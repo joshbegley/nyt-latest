@@ -1,40 +1,40 @@
+**Hurricane Laura Strengthens in the Gulf and Rekindles Dread from Past Storms**\
+`Hurricane Laura is expected to hit the coast of Texas and Louisiana near the anniversary of Harvey, one of the most disastrous storms the region has experienced.`\
+https://nytimes.com/2020/08/25/us/hurricane-laura-louisiana-texas.html?searchResultPosition=1
+
 **N. Korean Leader Calls for Readiness Against Virus, Typhoon**\
 `In a rare display of urgency, North Korean leader Kim Jong Un held his third high-level political conference in as many weeks, where he raised alarm about the nation’s coronavirus response and a typhoon forecast to hit the country early Thursday. `\
-https://nytimes.com/aponline/2020/08/25/world/asia/ap-as-north-korea-party-meeting.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/25/world/asia/ap-as-north-korea-party-meeting.html?searchResultPosition=2
 
 **Radio Station Fires Worker Over Role in Yusuf Hawkins Death**\
 `A man who was among those charged in the notorious 1989 killing of Yusuf Hawkins, a Black teen set upon by a white mob and shot, was fired from a New York hip-hop radio station after a new documentary brought the murder case renewed attention.`\
-https://nytimes.com/aponline/2020/08/25/us/ap-us-radio-station-employees-past.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/25/us/ap-us-radio-station-employees-past.html?searchResultPosition=3
 
 **China Central Bank Injects $29 Billion via Reverse Repos**\
 `China's central bank said it has injected 200 billion yuan ($28.94 billion) through 14-day reverse repo operations into the banking system on Wednesday.`\
-https://nytimes.com/reuters/2020/08/25/world/asia/25reuters-china-openmarket-repo.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/25/world/asia/25reuters-china-openmarket-repo.html?searchResultPosition=4
 
 **Alaska Attorney General Quits Over Texts to Female State Worker**\
 `“So what are you doing sweet lady?” A flurry of 558 messages was sent by a senior state official over 27 days.`\
-https://nytimes.com/2020/08/25/us/alaska-clarkson-resignation.html?searchResultPosition=4
+https://nytimes.com/2020/08/25/us/alaska-clarkson-resignation.html?searchResultPosition=5
 
 **Murray Scores 42, Nuggets Beat Jazz 117-107 in Game 5**\
 `Jamal Murray scored 33 of his 42 points in a second half where he played every minute and the Denver Nuggets avoided elimination by beating the Utah Jazz 117-107 on Tuesday night in Game 5.`\
-https://nytimes.com/aponline/2020/08/25/sports/basketball/ap-bkn-jazz-nuggets.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/25/sports/basketball/ap-bkn-jazz-nuggets.html?searchResultPosition=6
 
 **Glasnow Records 13 Strikeouts as Rays Beat Orioles 4-2**\
 `Tyler Glasnow struck out a career-high 13 over seven innings and the AL East-leading Tampa Bay Rays beat the Baltimore Orioles 4-2 on Tuesday night.`\
-https://nytimes.com/aponline/2020/08/25/sports/baseball/bc-bba-orioles-rays.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/25/sports/baseball/bc-bba-orioles-rays.html?searchResultPosition=7
 
 **Marlins Shut Down Mets 4-0**\
 `Miguel Rojas’ two-run single capped a three-run second inning and four pitchers combined on an eight-hitter to lead the Miami Marlins past the New York Mets 4-0 on Tuesday night in the first game of a doubleheader.`\
-https://nytimes.com/aponline/2020/08/25/sports/baseball/ap-bbn-marlins-mets.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/25/sports/baseball/ap-bbn-marlins-mets.html?searchResultPosition=8
 
 **50 or More Letters?**\
 `Carl Larson’s puzzle enriches us, in the ways that really matter.`\
-https://nytimes.com/2020/08/25/crosswords/daily-puzzle-2020-08-26.html?searchResultPosition=8
+https://nytimes.com/2020/08/25/crosswords/daily-puzzle-2020-08-26.html?searchResultPosition=9
 
 **Liberty Snap 7-Game Skid, Beat Sky 101-99 on Clarendon's FTs**\
 `Layshia Clarendon drove the lane and was fouled with 0.3 seconds left and made both free throws as New York beat the Chicago Sky 101-99 on Tuesday night for the Liberty's second win of the season.`\
-https://nytimes.com/aponline/2020/08/25/sports/basketball/bc-bkl-liberty-sky.html?searchResultPosition=9
-
-**No Funds Available: Depositors at India's PMC Bank Survive on Loans, Charity**\
-`In February, 82-year-old Kishan Lal appealed to India's finance minister for help, saying in a Twitter message he was ready to donate his kidney and eyes if someone could help arrange funds to treat his daughter, who had a brain tumour.`\
-https://nytimes.com/reuters/2020/08/25/business/25reuters-india-banking-pmc-insight.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/25/sports/basketball/bc-bkl-liberty-sky.html?searchResultPosition=10
 
