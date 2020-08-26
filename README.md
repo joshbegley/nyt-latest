@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-newzealand-shooting-
 https://nytimes.com/aponline/2020/08/26/world/asia/ap-as-australia-china.html?searchResultPosition=8
 
 **Donovan Solano Slugs Giants Past Dodgers in 11th Inning 10-8**\
-`Donovan Solano hit a walkoff two-run homer with two outs in the 11th after Evan Longoria's tying single, and the San Francisco Giants held off the first-place Los Angeles Dodgers 10-8 on Tuesday night for their seventh straight win.`\
+`The typically reliable Los Angeles Dodgers' bullpen didn't have its shut-down stuff this time.`\
 https://nytimes.com/aponline/2020/08/26/sports/baseball/ap-bbn-dodgers-giants.html?searchResultPosition=9
 
 **Three Shot Amid Protests Over Jacob Blake Shooting**\
