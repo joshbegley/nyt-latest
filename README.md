@@ -34,7 +34,7 @@ https://nytimes.com/2020/08/26/nyregion/larry-ray-sarah-lawrence.html?searchResu
 `The dates on which Iran has agreed to grant the U.N. nuclear watchdog access to two suspected former secret sites are "very, very soon", the agency's chief Rafael Grossi told reporters as he returned from Tehran on Wednesday.`\
 https://nytimes.com/reuters/2020/08/26/world/middleeast/26reuters-iran-nuclear-iaea-dates.html?searchResultPosition=9
 
-**Milwaukee Bucks Miss Start of Playoff Game After Jacob Blake Shooting**\
+**N.B.A. Postpones Playoff Games After Milwaukee Bucks Boycott**\
 `N.B.A. players have been speaking out against racism and police brutality, but athletes have wondered whether that would be enough.`\
 https://nytimes.com/2020/08/26/sports/basketball/nba-boycott-bucks-magic-blake-shooting.html?searchResultPosition=10
 
