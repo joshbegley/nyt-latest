@@ -1,40 +1,40 @@
+**14 Dolphins Die in Mauritius Near Japanese Ship's Oil Spill**\
+`At least 14 dead dolphins have washed up on the coast of the Indian Ocean island of Mauritius, where a Japanese ship ran aground last month and spilled more than 1,000 tons of fuel, environmental groups and experts said Wednesday.`\
+https://nytimes.com/aponline/2020/08/26/world/africa/ap-af-mauritius-oil-spill-dolphins-die.html?searchResultPosition=1
+
+**Stronger Hurricane Laura Aims at Heart of U.S. Oil Refining Industry**\
+`Hurricane Laura strengthened on Wednesday as it churned over evacuated oil-production platforms in the U.S. Gulf of Mexico and took aim at the energy industry's refining hub along the Texas/Louisiana coast. `\
+https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-storm-laura-energy.html?searchResultPosition=2
+
+**Bulgaria: Justice Minister Favoring New Constitution Resigns**\
+`Bulgaria’s justice minister resigned Wednesday amid strong public criticism of a controversial proposal for a new constitution he co-authored.`\
+https://nytimes.com/aponline/2020/08/26/world/europe/ap-eu-bulgaria-government.html?searchResultPosition=3
+
+**Yet Another Use for Your Sheet Pan: Sugar Cookies**\
+`These simple frosted cookies are just the thing to share distantly — or hoard all for yourself.`\
+https://nytimes.com/2020/08/26/dining/sheet-pan-sugar-cookies.html?searchResultPosition=4
+
+**How Much Coffee Should You Drink During Pregnancy? Maybe None at All**\
+`A new review of studies suggests that avoiding caffeine altogether may be the safest bet during pregnancy.`\
+https://nytimes.com/2020/08/26/well/caffeine-coffee-pregnancy.html?searchResultPosition=5
+
+**UK Daily Stats Show 1,048 New Confirmed Cases of COVID-19**\
+`The United Kingdom recorded 1,048 new cases of COVID-19 in the latest daily statistics published on Wednesday, compared with 1,184 a day earlier, government figures showed.`\
+https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-health-coronavirus-britain-cases.html?searchResultPosition=6
+
+**Russia Starts Trials of Approved COVID-19 Vaccine on 40,000 People**\
+`Russia starts a new phase of clinic trials of Russia's approved COVID-19 vaccine called "Sputnik V" that will involve more than 40,000 people in Moscow, the Russian Direct Investment Fund (RDIF) said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-health-coronavirus-russia-vaccine-putin.html?searchResultPosition=7
+
+**Rights Group Urges Release of Abducted Libyan Protesters**\
+`Amnesty International on Wednesday urged for the release of at least six protesters abducted when armed men, apparently allied with Libya’s U.N.-supported government, fired live ammunition to disperse a demonstration in the capital.`\
+https://nytimes.com/aponline/2020/08/26/world/middleeast/ap-ml-libya.html?searchResultPosition=8
+
 **Uber Plans to Expand Services Across Quebec This Fall**\
 `Uber Technologies Inc on Wednesday said it plans to expand its ride-hailing services across the Canadian province of Quebec this fall.`\
-https://nytimes.com/reuters/2020/08/26/business/26reuters-uber-canada-quebec.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/26/business/26reuters-uber-canada-quebec.html?searchResultPosition=9
 
 **New Director Sees Berlin’s Jewish Museum as a Place for Debate**\
 `Hetty Berg wants the institution to become a cultural hub for the German capital, enabling difficult discussions without succumbing to their rancor.`\
-https://nytimes.com/2020/08/26/arts/design/jewish-museum-berlin-director-hetty-berg.html?searchResultPosition=2
-
-**M.T.A. Warns of Doomsday Subway Cuts Without $12 Billion in Federal Aid**\
-`The agency, facing staggering financial losses because of the pandemic, said it would have to reduce subway and bus service by 40 percent.`\
-https://nytimes.com/2020/08/26/nyregion/nyc-subway-bus-service-cuts.html?searchResultPosition=3
-
-**Intrigue Surrounds Messi's Next Move After Barca Bombshell**\
-`When Barcelona confirmed they had received a request from Lionel Messi's lawyers informing them he wanted to terminate one of soccer's longest-standing relationships, the owners of Europe's biggest clubs would have raised a collective eyebrow.`\
-https://nytimes.com/reuters/2020/08/26/sports/soccer/26reuters-soccer-spain-fcb-messi.html?searchResultPosition=4
-
-**Bernard Fils-Aimé, Haitian Activist and Cellphone Mogul, Dies at 67**\
-`He ran Haiti’s first cellular network, which he saw as a way of raising the voices of ordinary citizens, in Haiti and the United States. He died of the novel coronavirus.`\
-https://nytimes.com/2020/08/26/obituaries/bernard-fils-aime-dead-coronavirus.html?searchResultPosition=5
-
-**Israeli Police Say Palestinian Has Stabbed Israeli to Death**\
-`A Palestinian who entered Israel from the occupied West Bank on a work permit stabbed an Israeli to death on Wednesday and was later arrested, Israeli police said.`\
-https://nytimes.com/aponline/2020/08/26/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=6
-
-**U.S. Eyes Restricting Chip Equipment and Other Exports**\
-`The United States is considering new restrictions on exports of semiconductor manufacturing equipment and associated software tools, lasers, sensors, and other technology to prevent them from falling into the hands of U.S. adversaries like China.`\
-https://nytimes.com/reuters/2020/08/26/technology/26reuters-usa-trump-foundational-tech.html?searchResultPosition=7
-
-**Equinor to Cut Jobs in U.S., Canada and UK Amid Oil Price Fall**\
-`Norwegian oil and gas firm Equinor is set to significantly cut jobs in the United States, Canada and Britain to adjust to the fall in the oil prices, a company spokesman said on Wednesday. `\
-https://nytimes.com/reuters/2020/08/26/business/26reuters-equinor-layoffs.html?searchResultPosition=8
-
-**Bare Breasts on French Beaches? You Can, Despite Police Warnings**\
-`The country’s interior minister had to defend a “precious” freedom after topless sunbathers were wrongfully asked to cover up.`\
-https://nytimes.com/2020/08/26/world/europe/france-beach-topless.html?searchResultPosition=9
-
-**Powell Edges Toward Loosening the Fed's Stance on Inflation**\
-`For decades, the Federal Reserve made clear its readiness to raise interest rates at the earliest signs of creeping inflation.`\
-https://nytimes.com/aponline/2020/08/26/business/bc-us-federal-reserve-powell-speech.html?searchResultPosition=10
+https://nytimes.com/2020/08/26/arts/design/jewish-museum-berlin-director-hetty-berg.html?searchResultPosition=10
 
