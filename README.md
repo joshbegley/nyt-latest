@@ -27,7 +27,7 @@ https://nytimes.com/2020/08/25/us/alaska-clarkson-resignation.html?searchResultP
 https://nytimes.com/aponline/2020/08/25/sports/basketball/ap-bkn-jazz-nuggets.html?searchResultPosition=7
 
 **Glasnow Records 13 Strikeouts as Rays Beat Orioles 4-2**\
-`Tyler Glasnow struck out a career-high 13 over seven innings and the AL East-leading Tampa Bay Rays beat the Baltimore Orioles 4-2 on Tuesday night.`\
+`Tyler Glasnow finished with a flurry after giving up an early home run.`\
 https://nytimes.com/aponline/2020/08/25/sports/baseball/bc-bba-orioles-rays.html?searchResultPosition=8
 
 **Marlins Shut Down Mets 4-0**\
