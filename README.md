@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/08/26/world/americas/ap-lt-mexico-radio-battle
 https://nytimes.com/reuters/2020/08/26/us/politics/26reuters-alaska-hunting-trump.html?searchResultPosition=7
 
 **Myers Scores Early in OT, Flyers Even Series With Islanders**\
-`Phillippe Myers scored 2:40 into overtime to give the Philadelphia Flyers a 4-3 victory over the New York Islanders 4-3 on Wednesday, tying the second-round playoff series at a game apiece.`\
+`Phillippe Myers scored 2:40 into overtime to give the Philadelphia Flyers a 4-3 victory over the New York Islanders on Wednesday, tying the second-round playoff series at a game apiece.`\
 https://nytimes.com/aponline/2020/08/26/sports/hockey/bc-hkn-islanders-flyers.html?searchResultPosition=8
 
 **Bad Boy! Dog Costs Mississippi Officials More Than $7,000**\
