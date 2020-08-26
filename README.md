@@ -1,40 +1,40 @@
+**Saks Owner Hudson's Bay Drops Financing Plan: Sources**\
+`Hudson's Bay Co, the owner of luxury department store Saks Fifth Avenue, has ditched its plan to raise up to $900 million in debt after prospective investors requested a higher interest rate than the company was willing to pay, people familiar with the matter said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/26/business/26reuters-hudsons-bay-debt.html?searchResultPosition=1
+
+**18 Million People Watched Second Night of Republican National Convention**\
+`A total of 18 million people watched the second night of the mostly virtual Republican National Convention, according to early Nielsen Media Research, slightly fewer than the 18.2 million viewers who watched the second night of the Democratic National Convention across the same number of networks.`\
+https://nytimes.com/reuters/2020/08/26/us/politics/26reuters-usa-election-tv-ratings.html?searchResultPosition=2
+
+**NHL Strips Coyotes of 2 Picks for Violating Combine Policy**\
+`The NHL on Wednesday stripped the Arizona Coyotes of their 2020 second-round pick and 2021 first-round pick for violating the scouting combine policy by conducting physical tests of draft-eligible players.`\
+https://nytimes.com/aponline/2020/08/26/sports/hockey/ap-hkn-coyotes-sanctions.html?searchResultPosition=3
+
+**Central Park Monument Is First to Honor Nonfictional Women**\
+`A bronze statue depicting women's rights pioneers Sojourner Truth, Elizabeth Cady Stanton and Susan B.`\
+https://nytimes.com/aponline/2020/08/26/us/ap-us-central-park-first-female-statue.html?searchResultPosition=4
+
+**Natural History Museum Union Files Complaint Over Coronavirus App**\
+`The app would have asked employees to report if they had a fever and any new symptoms each day. Some see it as an invasion of privacy.`\
+https://nytimes.com/2020/08/26/arts/design/natural-history-museum-coronavirus-app.html?searchResultPosition=5
+
+**How Mark Duplass and Bradley Whitford Swapped Bodies**\
+`In a conversation, the Emmy nominees Duplass, of “The Morning Show,” and Whitford, of “The Handmaid’s Tale,” talk about how they traded comfort zones.`\
+https://nytimes.com/2020/08/26/arts/television/emmys-mark-duplass-bradley-whitford.html?searchResultPosition=6
+
 **EU Trade Chief Hogan to Resign: Reports**\
 `European Union trade chief Phil Hogan will tender his resignation to the EU's chief executive Ursula von der Leyen on Wednesday evening, according to reports in Ireland's Irish Independent and Irish Times newspapers.`\
-https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-health-coronavirus-ireland-eu.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-health-coronavirus-ireland-eu.html?searchResultPosition=7
 
 **AP PHOTOS: Unrest Grips Wisconsin City After Police Shooting**\
 `Unrest has gripped Kenosha for three nights after Jacob Blake, a Black man, was shot by police in the southeastern Wisconsin city.`\
-https://nytimes.com/aponline/2020/08/26/us/ap-us-police-shooting-wisconsin-photo-gallery.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/26/us/ap-us-police-shooting-wisconsin-photo-gallery.html?searchResultPosition=8
 
 **The Terrible Déjà Vu of the Navalny Case**\
 `As a founding member of the activist band Pussy Riot, I’ve fought for years against autocracy. My country has only slid deeper.`\
-https://nytimes.com/2020/08/26/opinion/navalny-russia.html?searchResultPosition=3
+https://nytimes.com/2020/08/26/opinion/navalny-russia.html?searchResultPosition=9
 
 **The Latest: Laura Becomes 'Catastrophic' Category 4 Storm**\
 `The Latest on Hurricane Laura (all times local): `\
-https://nytimes.com/aponline/2020/08/26/us/ap-tropical-weather-the-latest.html?searchResultPosition=4
-
-**UK Supreme Court Lifts Info Share Block on IS 'Beatles' Case**\
-`British authorities can share information with U.S. prosecutors about two members of a suspected Islamic State militant cell in Syria known as “The Beatles,” after a U.K. Supreme Court ruling that may lead to the men being tried in America.`\
-https://nytimes.com/aponline/2020/08/26/world/europe/ap-eu-britain-us-islamic-state.html?searchResultPosition=5
-
-**Testing Traps to Control Lovely but Destructive Lionfish**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/08/26/us/ap-us-lionfish-traps-.html?searchResultPosition=6
-
-**Germany Scraps Plans for Brexit Talks at EU Ambassadors Summit: The Guardian**\
-`Germany has dropped plans to discuss Brexit at a European Union ambassadors summit next weeek, The Guardian newspaper reported https://www.`\
-https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-britain-eu-germany.html?searchResultPosition=7
-
-**Hezbollah Says South Lebanon Incident a 'Sensitive' Matter**\
-`Hezbollah leader Sayyed Hassan Nasrallah said what happened in southern Lebanon on Tuesday, an apparent reference to Israeli strikes overnight, was an "important and sensitive" matter.`\
-https://nytimes.com/reuters/2020/08/26/world/middleeast/26reuters-lebanon-israel-shells-hezbollah.html?searchResultPosition=8
-
-**Argentina Formally Initiates Talks With IMF Over a New Program: Government Statement**\
-`Argentina's government has formally initiated talks with the International Monetary Fund on a new program, it said in a statement on Wednesday. `\
-https://nytimes.com/reuters/2020/08/26/world/americas/26reuters-argentina-imf.html?searchResultPosition=9
-
-**U.S. Health Agency Says Some Exposed to COVID-19 Do Not Need Test, Reversing Course**\
-`The U.S. Centers for Disease Control and Prevention narrowed its guidance for who should get tested for COVID-19 this week, saying those who were exposed but are not symptomatic may not need to be tested. `\
-https://nytimes.com/reuters/2020/08/26/us/26reuters-health-coronavirus-cdc-testing.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/26/us/ap-tropical-weather-the-latest.html?searchResultPosition=10
 
