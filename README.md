@@ -1,40 +1,40 @@
-**U.S. Rejects U.N. Rights Panel Upholding Access to Abortions During Pandemic**\
-`The United States on Wednesday hit back at a U.N. women's rights panel that said some U.S. states limited access to abortions during the COVID-19 pandemic, rejecting its interference and the notion of "an assumed right to abortion".`\
-https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-usa-un-abortion.html?searchResultPosition=1
+**Republican Convention: Best and Worst Moments From Night 2**\
+`Our columnists and contributors give their rankings.`\
+https://nytimes.com/2020/08/26/opinion/rnc-best-worst-night-2.html?searchResultPosition=1
 
-**Thai Minister Says Clampdown Won't Stop as Facebook Plans to Fight Order**\
-`Thailand's digital minister vowed no relent on Wednesday in a crackdown on social media content deemed illegal and said it was unlikely Facebook would follow through on plans to challenge an order to block access to a group critical of the Thai monarchy. `\
-https://nytimes.com/reuters/2020/08/26/business/26reuters-thailand-facebook.html?searchResultPosition=2
+**Thai Protest Boycotts Force Businesses to Pick Sides**\
+`The owner of Burger King's franchise in Thailand became the latest company on Wednesday to bow to boycott calls by protesters who accused it of advertising on a television network they brand pro-government.`\
+https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-thailand-protests-business-analysis.html?searchResultPosition=2
 
-**India Indicts Pakistani Militant in 2019 Kashmir Bombing**\
-`India's anti-terrorism agency named a Pakistan-based militant leader as the prime mastermind of a 2019 car bombing in Indian-controlled Kashmir that killed 40 Indian soldiers and brought the nuclear-armed rivals to the brink of war. `\
-https://nytimes.com/aponline/2020/08/26/world/asia/ap-as-india-kashmir-bombing.html?searchResultPosition=3
+**Schools Can Reopen, Germany Finds, but Expect a ‘Roller Coaster’**\
+`With nations determined to return to in-person learning, many will have trouble matching Germany’s formula: Fast and free testing, robust contact tracing and low community spread.`\
+https://nytimes.com/2020/08/26/world/europe/germany-schools-virus-reopening.html?searchResultPosition=3
 
-**Euro Zone Economy Growing According to ECB's Baseline, Policymaker Says**\
-`The euro zone economy is growing in line with the path the European Central Bank projected in June, and the bank's bond purchase scheme to help tackle the pandemic emergency is working as intended, ECB policymaker Peter Kazimir said on Wednesday.`\
-https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-ecb-poilcy-kazimir.html?searchResultPosition=4
+**Holmdel, N.J.: A Friendly Community ‘Full of Peace and Quiet’**\
+`With plenty of open space, the Monmouth County township is attracting city buyers — and inventory is at ‘a record low.’`\
+https://nytimes.com/2020/08/26/realestate/holmdel-new-jersey.html?searchResultPosition=4
 
-**'Polishing the Gun': China, U.S. Tensions Raise Taiwan Conflict Fears**\
-`Numerous Chinese and U.S. military exercises, Taiwan missiles tracking Chinese fighters and plummeting China-U.S. ties make for a heady cocktail of tension that is raising fears of conflict touched off by a crisis over Taiwan.`\
-https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-taiwan-china-security-analysis.html?searchResultPosition=5
+**Feminist Factions United and Filled the Streets for This Historic March**\
+`In 1970, on the 50th anniversary of suffrage, the Women’s Strike for Equality brought together a diverse group of protesters.`\
+https://nytimes.com/2020/08/26/us/womens-strike-for-equality.html?searchResultPosition=5
 
-**Indonesia Reports 2,306 New Coronavirus Infections, 86 Deaths**\
-`Indonesia reported 2,306 new coronavirus infections on Wednesday, taking its total number of cases to 160,165, data published on the country's health ministry website showed.`\
-https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=6
+**Mr. Smith Went to Washington … With Dimmers**\
+`The decorator Michael Smith, who has transformed interiors for the Obamas, Rupert Murdoch and Cindy Crawford, is spilling paint in a new book.`\
+https://nytimes.com/2020/08/26/style/michael-smith-decorator-obamas-cindy-crawford-rupert-murdoch.html?searchResultPosition=6
 
-**France to Join Military Exercises in Eastern Mediterranean: Ministry**\
-`France will join military exercises with Italy, Greece and Cyprus in the Eastern Mediterranean from Aug. 26 to Aug. 28, the French Armed Forces Ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-turkey-greece-france.html?searchResultPosition=7
+**G.O.P. Women in Arizona Could Decide an Unexpected 2020 Battle**\
+`Led by a firebrand loyalist, the state party has lurched to the right under President Trump. That has turned off some Republicans, and Arizona suddenly appears in play for Democrats.`\
+https://nytimes.com/2020/08/26/us/politics/republicans-arizona-2020.html?searchResultPosition=7
 
-**Dozens of Migrants Rescued Off Greek Island**\
-`Dozens of migrants have been rescued from a boat off the Greek island of Halki, the coast guard said on Wednesday, in one of the biggest operations of its kind in the country in months. `\
-https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-europe-migrants-greece.html?searchResultPosition=8
+**Should Children Go Back to School? It Depends in Part on Your Politics**\
+`There’s a large partisan divide in parents’ views on whether it’s safe for students and teachers to return to school, several new surveys find.`\
+https://nytimes.com/2020/08/26/upshot/school-reopening-partisan-divide.html?searchResultPosition=8
 
-**Ex-U.S. Ambassador Quits Singapore Firm Linked to Newcastle United Bidders**\
-`The former U.S. ambassador to Singapore said he had resigned from the board of a firm in the city-state linked to a group bidding for English soccer club Newcastle United citing "recent revelations" about the group.`\
-https://nytimes.com/reuters/2020/08/26/business/26reuters-soccer-england-new-mergers.html?searchResultPosition=9
+**What’s a Palantir? The Tech Industry’s Next Big I.P.O.**\
+`A tech start-up named for objects in “The Lord of the Rings” has become a major government contractor. But what it does is not easy to understand.`\
+https://nytimes.com/2020/08/26/technology/palantir-ipo.html?searchResultPosition=9
 
-**Thai Police Continue Crackdown on Pro-Democracy Activists**\
-`Police in Thailand continued their crackdown on the country’s student-led protest movement on Wednesday, arresting two more activists on charges of sedition and several minor offenses.`\
-https://nytimes.com/aponline/2020/08/26/world/asia/ap-as-thailand-protests.html?searchResultPosition=10
+**Living In ... Holmdel, N.J.**\
+`With plenty of open space, the Monmouth County township is attracting city buyers — and inventory is at ‘a record low.’`\
+https://nytimes.com/slideshow/2020/08/26/realestate/living-in-holmdel-nj.html?searchResultPosition=10
 
