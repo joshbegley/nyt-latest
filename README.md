@@ -27,7 +27,7 @@ https://nytimes.com/2020/08/26/business/economy/trump-sanctions-south-china-sea.
 https://nytimes.com/2020/08/26/us/elections/republican-convention-speakers-tried-to-recast-trump-as-an-inclusive-leader.html?searchResultPosition=7
 
 **White House Says Trump Could Act Unilaterally to Avoid U.S. Airline Layoffs**\
-`President Donald Trump could take executive action to avoid massive layoffs at U.S. airlines, while an impasse on a new coronavirus stimulus package continues in Congress, White House Chief of Staff Mark Meadows said on Wednesday.`\
+`President Donald Trump could take executive action to avoid massive layoffs at U.S. airlines, while the coronavirus pandemic weighs on air travel and talks on a new COVID-19 stimulus bill remain stall in Congress, White House Chief of Staff Mark Meadows said on Wednesday.`\
 https://nytimes.com/reuters/2020/08/26/business/26reuters-health-coronavirus-usa-airlines.html?searchResultPosition=8
 
 **U.S. SEC Adopts Rule Allowing More Investors Access to Private Companies**\
