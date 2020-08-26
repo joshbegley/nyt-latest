@@ -1,40 +1,40 @@
+**The New Power Dressing**\
+`This season’s surefire uniform? Bold reds, supple leathers, strong shapes and plenty of shine.`\
+https://nytimes.com/2020/08/26/t-magazine/fall-womens-fashion-cover.html?searchResultPosition=1
+
+**What to Plant in a Hot, Dry Year? Succulents, of Course**\
+`Nothing else looks so good, for so long, with so little attention. So long as you go easy on them.`\
+https://nytimes.com/2020/08/26/realestate/succulents-care-indoor-outdoor-water.html?searchResultPosition=2
+
+**Trump’s Suburban Strategy**\
+`Set against the backdrop of unrest, Republicans are using a law and order message to appeal to a powerful voting bloc.`\
+https://nytimes.com/2020/08/26/podcasts/the-daily/republican-convention-suburbs.html?searchResultPosition=3
+
+**80 Tips for Remote Learning From Seasoned Educators**\
+`Twenty-eight middle and high school teachers from The New York Times Teaching Project tell us how they’re navigating remote instruction this fall.`\
+https://nytimes.com/2020/08/26/learning/80-tips-for-remote-learning-from-seasoned-educators.html?searchResultPosition=4
+
+**Overcoming the Fear of Making a Wrong Turn**\
+`A woman challenges herself to let go of regret and to learn to “go with the flow.”`\
+https://nytimes.com/2020/08/26/crosswords/essay-hinds-puzzles-solving.html?searchResultPosition=5
+
+**Flash Floods Kill More Than 70 in Afghanistan**\
+`A violent flash flood killed more than 70 people and destroyed hundreds of homes just north of Afghanistan's capital on Wednesday, officials said.`\
+https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-afghanistan-floods.html?searchResultPosition=6
+
+**Iran's Coronavirus Death Toll Exceeds 21,000: Health Ministry**\
+`Iran's death toll from the novel coronavirus rose by 119 to 21,020, the health ministry's spokeswoman told state TV on Wednesday, with the total number of identified cases rising to 365,606.`\
+https://nytimes.com/reuters/2020/08/26/world/middleeast/26reuters-health-coronavirus-iran.html?searchResultPosition=7
+
 **Thailand Delays Human Testing for Coronavirus Vaccine**\
 `Thailand will delay human trials of its coronavirus vaccine due to limited production capacity at overseas facilities, a senior official said on Wednesday, but it hopes to resume trials by the end of the year.  `\
-https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-health-coronavirus-thailand-vaccine.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-health-coronavirus-thailand-vaccine.html?searchResultPosition=8
 
 **Turkey Warns Greece Not to Test Its Patience Over East Med**\
 `Turkish President Recep Tayyip Erdogan warned Greece on Wednesday not to test his country’s patience or courage, further stoking tensions between the NATO allies over offshore energy exploration in the eastern Mediterranean.`\
-https://nytimes.com/aponline/2020/08/26/world/europe/ap-eu-turkey-greece.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/26/world/europe/ap-eu-turkey-greece.html?searchResultPosition=9
 
 **Chinese Metal Bands Turn Up the Volume as Live Venues Reopen**\
 `The moment the metal singer Shui Shu spread his arms, Buddhist prayer beads in hand and incense wafting from the stage, his band unleashed a wall of sound on the crowd. `\
-https://nytimes.com/reuters/2020/08/26/arts/26reuters-health-coronavirus-china-bands.html?searchResultPosition=3
-
-**Japan Top Government Spokesman Signals Readiness for More Spending**\
-`Japan will consider what more it can do to prevent the economy from sliding deeper into recession, the top government spokesman said on Wednesday, signaling readiness to deploy another spending package to cushion the blow from the pandemic.`\
-https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-japan-politics-suga.html?searchResultPosition=4
-
-**What You See Is What You'll Get: No Upside for European Stocks, Reuters Poll Shows**\
-`European stocks are expected to stall for the rest of 2020 and miss out on the bull market which has propelled Wall Street to record highs, a Reuters poll of 27 fund managers, strategists and brokers published on Wednesday showed. `\
-https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-europe-stocks-poll.html?searchResultPosition=5
-
-**Chinese Province Bans Ecuadorean Shrimp in Coronavirus Clamp-Down**\
-`China's northern Shanxi province said on Wednesday it is banning the purchase, sale and use of shrimp from Ecuador as part of efforts to prevent and control the coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/08/26/world/americas/26reuters-health-coronavirus-china-shrimp.html?searchResultPosition=6
-
-**Yemeni Separatists Suspend Talks With Gov't, Clashes Resume**\
-`Fighting resumed in southern Yemen between Emirati-backed separatists and the internationally recognized government, officials said Wednesday. The renewed violence comes after the separatists suspended participation in talks to implement a Saudi-brokered peace deal.`\
-https://nytimes.com/aponline/2020/08/26/world/middleeast/ap-ml-yemen.html?searchResultPosition=7
-
-**HK Police Arrest Two Pro-Democracy Lawmakers Over 2019 Protests**\
-`Hong Kong police arrested two opposition lawmakers on Wednesday over anti-government protests in July last year, one of whom was suspected of rioting during an incident in which he was attacked by a mob.`\
-https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-hongkong-security.html?searchResultPosition=8
-
-**Gaza Man Dies of Coronavirus as Enclave Clamps Down on Outbreak**\
-`A 61-year-old man has died in the Gaza Strip after contracting the coronavirus, Palestinian authorities said on Wednesday as they clamped down on an outbreak of the pandemic in the enclave.`\
-https://nytimes.com/reuters/2020/08/26/world/middleeast/26reuters-health-coronavirus-gaza.html?searchResultPosition=9
-
-**Berlin Bans Weekend Protests Against Anti-Virus Measures**\
-`Authorities in Berlin on Wednesday banned several protests planned for the weekend against coronavirus pandemic measures. The protests have drawn support from the German far right.`\
-https://nytimes.com/aponline/2020/08/26/world/europe/ap-eu-virus-outbreak-germany.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/26/arts/26reuters-health-coronavirus-china-bands.html?searchResultPosition=10
 
