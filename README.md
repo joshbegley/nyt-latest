@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/08/25/world/asia/25reuters-health-coronavirus-c
 `The administration now says failure to report Covid-19 data to the Department of Health and Human Services could cost hospitals Medicare and Medicaid funding.`\
 https://nytimes.com/2020/08/25/us/politics/trump-coronavirus-data.html?searchResultPosition=4
 
-**Anti-Government Activist Bundy Arrested at Idaho Statehouse**\
+**Anti-Government Activist Bundy Arrested Idaho Statehouse**\
 `Authorities on Tuesday arrested anti-government activist Ammon Bundy at the Idaho Statehouse after he refused to leave a meeting room where a few hours earlier angry protesters forced out lawmakers.`\
 https://nytimes.com/aponline/2020/08/25/us/ap-us-special-session-idaho-3rd-ld-writethru.html?searchResultPosition=5
 
