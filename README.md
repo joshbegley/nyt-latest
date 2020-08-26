@@ -2,7 +2,7 @@
 `Tiger Woods at Olympia Fields brought concerns about the state of his game.`\
 https://nytimes.com/aponline/2020/08/26/sports/golf/ap-glf-bmw-championship.html?searchResultPosition=1
 
-**Kanye West Sues Ohio Election Chief Over Petition Denial**\
+**Kanye West Sues Ohio Election Head to Get on November Ballot**\
 `Rapper Kanye West sued Ohio’s election chief Wednesday in an effort to be placed on the November presidential ballot after the Secretary of State deemed him unqualified as an independent candidate.`\
 https://nytimes.com/aponline/2020/08/26/us/ap-us-2020-election-kanye-west.html?searchResultPosition=2
 
