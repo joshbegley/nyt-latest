@@ -1,40 +1,40 @@
+**Brazil Hits 3.7 Million COVID-19 Cases, Death Toll at 117,666: Ministry**\
+`Brazil reported 47,161 new cases of the novel coronavirus and 1,086 deaths from the disease caused by the virus in the past 24 hours, the health ministry said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/26/world/americas/26reuters-health-coronavirus-brazil.html?searchResultPosition=1
+
+**Sometime Soon, Your Car Will Park Itself in Urban Garages**\
+`So after the coronavirus threat has passed, you head downtown for a baseball game.`\
+https://nytimes.com/aponline/2020/08/26/business/ap-us-automated-parking.html?searchResultPosition=2
+
 **Republicans Set to Propose Smaller Coronavirus Stimulus Bill: CNBC**\
 `Republicans are working on a more narrow coronavirus stimulus bill, which could be released to members of the U.S. Congress as soon as this week, CNBC reported on Wednesday, citing sources.`\
-https://nytimes.com/reuters/2020/08/26/us/26reuters-health-coronavirus-usa-stimulus.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/26/us/26reuters-health-coronavirus-usa-stimulus.html?searchResultPosition=3
 
 **A Rebuilt Pitcher Puts Together the Season’s First No-Hitter**\
 `Lucas Giolito of the White Sox struck out 13 Pirates and won, 1-0, in the best performance of baseball’s restarted season.`\
-https://nytimes.com/2020/08/26/sports/baseball/lucas-giolito-no-hitter-white-sox.html?searchResultPosition=2
+https://nytimes.com/2020/08/26/sports/baseball/lucas-giolito-no-hitter-white-sox.html?searchResultPosition=4
 
 **How Major US Stock Indexes Fared Wednesday**\
 `Technology companies powered stocks higher on Wall Street Wednesday, driving the S&P 500 to another record high.`\
-https://nytimes.com/aponline/2020/08/26/business/ap-financial-markets-box.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/26/business/ap-financial-markets-box.html?searchResultPosition=5
 
 **Woods Faces a New, Stern Test to Get to FedEx Cup Finale**\
 `Tiger Woods at Olympia Fields brought concerns about the state of his game.`\
-https://nytimes.com/aponline/2020/08/26/sports/golf/ap-glf-bmw-championship.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/26/sports/golf/ap-glf-bmw-championship.html?searchResultPosition=6
 
 **Kanye West Sues Ohio Election Head to Get on November Ballot**\
 `Rapper Kanye West sued Ohio’s election chief Wednesday in an effort to be placed on the November presidential ballot after the Secretary of State deemed him unqualified as an independent candidate.`\
-https://nytimes.com/aponline/2020/08/26/us/ap-us-2020-election-kanye-west.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/26/us/ap-us-2020-election-kanye-west.html?searchResultPosition=7
 
 **Suspect in Sarah Lawrence Cult Case Is Accused of Witness Tampering**\
 `Lawrence V. Ray, who is charged with sex trafficking and extortion, tried to intimidate his daughter’s former classmates from his jail cell, prosecutors say.`\
-https://nytimes.com/2020/08/26/nyregion/larry-ray-sarah-lawrence.html?searchResultPosition=6
+https://nytimes.com/2020/08/26/nyregion/larry-ray-sarah-lawrence.html?searchResultPosition=8
 
 **IAEA Chief Grossi Expects Access to Iranian Sites 'Very, Very Soon'**\
 `The dates on which Iran has agreed to grant the U.N. nuclear watchdog access to two suspected former secret sites are "very, very soon", the agency's chief Rafael Grossi told reporters as he returned from Tehran on Wednesday.`\
-https://nytimes.com/reuters/2020/08/26/world/middleeast/26reuters-iran-nuclear-iaea-dates.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/08/26/world/middleeast/26reuters-iran-nuclear-iaea-dates.html?searchResultPosition=9
 
 **Milwaukee Bucks Miss Start of Playoff Game After Jacob Blake Shooting**\
 `N.B.A. players have been speaking out against racism and police brutality, but athletes have wondered whether that would be enough.`\
-https://nytimes.com/2020/08/26/sports/basketball/nba-boycott-bucks-magic-blake-shooting.html?searchResultPosition=8
-
-**White House Is Mulling Options to Prevent Airline Furloughs**\
-`The White House is considering whether it can take action to prevent thousands of job losses in the airline industry a month before the election if it cannot reach a deal with Congress on a broader package of additional pandemic relief.`\
-https://nytimes.com/aponline/2020/08/26/business/bc-us-trump-airlines.html?searchResultPosition=9
-
-**Your Thursday Briefing**\
-`Hong Kong arrests, TikTok talks, Kenosha: Here’s what you need to know.`\
-https://nytimes.com/2020/08/26/briefing/hong-kong-arrests-tik-tok-kenosha.html?searchResultPosition=10
+https://nytimes.com/2020/08/26/sports/basketball/nba-boycott-bucks-magic-blake-shooting.html?searchResultPosition=10
 
