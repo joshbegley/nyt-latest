@@ -35,6 +35,6 @@ https://nytimes.com/2020/08/26/briefing/mike-pence-hurricane-laura-kenosha.html?
 https://nytimes.com/aponline/2020/08/26/us/ap-us-george-floyd-minneapolis-police.html?searchResultPosition=9
 
 **Damage From Whopper Hurricanes Rising for Many Reasons**\
-`Here we go again.`\
+`A destructive storm is rising from warm waters. Again.`\
 https://nytimes.com/aponline/2020/08/26/science/ap-us-sci-increasing-hurricane-devastation.html?searchResultPosition=10
 
