@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/08/27/us/27reuters-usa-california-electric.html
 https://nytimes.com/aponline/2020/08/27/us/ap-us-postal-service-state-lawsuits-.html?searchResultPosition=5
 
 **Mets, Marlins Walk Off Field in Social Injustice Protest**\
-`The New York Mets and Miami Marlins jointly walked off the field after a moment of silence, draping a Black Lives Matter T-shirt across home plate as they chose not to start their scheduled game Thursday night.`\
+`The New York Mets and Miami Marlins jointly walked off the field after a moment of silence, draping a Black Lives Matter T-shirt across home plate as they chose not to play Thursday night.`\
 https://nytimes.com/aponline/2020/08/27/sports/baseball/ap-bbn-marlins-mets-protest.html?searchResultPosition=6
 
 **‘Bill & Ted Face the Music’ Review: Be Adequate to Each Other**\
