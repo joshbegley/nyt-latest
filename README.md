@@ -10,8 +10,8 @@ https://nytimes.com/2020/08/27/climate/hurricane-laura-fire-pollution.html?searc
 `Black Lives Matter activists are holding their first Black National Convention Friday, a virtual event that will adopt a political agenda calling for slavery reparations, universal basic income, environmental justice and legislation that entirely re-imagines criminal justice reform.`\
 https://nytimes.com/aponline/2020/08/27/us/ap-us-racial-injustice-black-lives-convention.html?searchResultPosition=3
 
-**Texas, Florida, California, New York Will Not Follow New U.S. COVID-19 Testing Plan**\
-`Several large U.S. states including Texas are not heeding new federal health officials' calls to reduce COVID-19 testing of some exposed to the virus, joining a broad rebuke of the Trump administration by public health leaders.`\
+**California, Florida, New York, Texas Will Not Follow New U.S. COVID-19 Testing Plan**\
+`Several large U.S. states are not heeding new federal health officials' calls to reduce COVID-19 testing of some exposed to the virus, joining a broad rebuke of the Trump administration by public health leaders.`\
 https://nytimes.com/reuters/2020/08/27/us/27reuters-health-coronavirus-usa-testing.html?searchResultPosition=4
 
 **How Much Can 1968 Tell Us About 2020?**\
