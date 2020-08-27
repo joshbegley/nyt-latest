@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/08/27/us/27reuters-storm-laura-chemical-fire.ht
 `NHL games and the majority of Major League Baseball games went forward as scheduled on Wednesday, a decision some players called out as a missed opportunity.`\
 https://nytimes.com/reuters/2020/08/27/sports/27reuters-sports-blm-boycott.html?searchResultPosition=5
 
-**The Latest: Trump to Raise $10M Before His Convention Speech**\
+**The Latest: Pelosi Doesn't Want Any Biden-Trump Debates**\
 `The Latest on the Republican National Convention (all times local):`\
 https://nytimes.com/aponline/2020/08/27/us/politics/ap-us-election-2020-rnc-the-latest.html?searchResultPosition=6
 
