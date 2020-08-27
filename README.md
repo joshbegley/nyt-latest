@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-health-coronavirus-t
 https://nytimes.com/aponline/2020/08/26/sports/ap-cyc-tour-de-france-preview.html?searchResultPosition=9
 
 **Lightning Crank Up Power Play, Rout Bruins 7-1 in Game 3**\
-`Ondrej Palat, Mikhail Sergachez and Alex Killorn scored power-play goals Wednesday night to lead the Tampa Bay Lightning to a 7-1 rout of the Boston Bruins in Game 3 of their second-round NHL playoff series.`\
+`Ondrej Palat, Mikhail Sergachev and Alex Killorn scored power-play goals Wednesday night to lead the Tampa Bay Lightning to a 7-1 rout of the Boston Bruins in Game 3 of their second-round NHL playoff series.`\
 https://nytimes.com/aponline/2020/08/26/sports/hockey/bc-hkn-lightning-bruins.html?searchResultPosition=10
 
