@@ -1,40 +1,40 @@
+**A Next Generation of Republicans: ‘Young People Have Stepped Up’**\
+`Several speakers representing the future of the Republican Party spoke about their political motivations on the third night of the convention.`\
+https://nytimes.com/video/us/elections/100000007310182/rnc-young-stars.html?searchResultPosition=1
+
+**Thai Refuge Warns of Growing Risks to Animals as Pandemic Bites**\
+`As the pandemic batters Thailand's tourist-reliant economy, animal attractions from petting zoos to elephant camps and tiger farms are feeling the pain and may even have to give animals away, warned the founder of an animal refuge.    `\
+https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-health-coronavirus-thailand-sanctuary.html?searchResultPosition=2
+
+**China Repeatedly Fell Short of Abiding by International Laws: U.S.' Esper**\
+`U.S. Defense Secretary Mark Esper said on Wednesday China has repeatedly fallen short of promises to abide by international laws and said Beijing wants to project its power globally. `\
+https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-usa-defence-china.html?searchResultPosition=3
+
+**Tracking the Suspect in the Fatal Kenosha Shootings**\
+`A teenager is accused of killing two people during protests in Wisconsin. We followed his movements that night.`\
+https://nytimes.com/2020/08/27/us/kyle-rittenhouse-kenosha-shooting-video.html?searchResultPosition=4
+
+**Factbox: Quotes From Sentencing of New Zealand Mosque Shooter**\
+`A New Zealand court on Thursday sentenced Brenton Tarrant, a 29-year-old Australian who killed 51 Muslim worshippers in Christchurch, to life in prison without parole, the first time such a sentence has been handed down in the Pacific nation.`\
+https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-newzealand-shooting-factbox.html?searchResultPosition=5
+
+**New Zealand Judge Sentences Mosque Shooter to Life Without Parole for 'Wicked' Crimes**\
+`A New Zealand judge sentenced white supremacist Brenton Tarrant to life in prison without parole on Thursday for killing 51 Muslim worshippers in the country's deadliest shooting, saying the sentence was not enough punishment for the "wicked" crimes.`\
+https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-newzealand-shooting.html?searchResultPosition=6
+
+**Citadel Hires Ex-Glencore Trader to Head Asia Commodities Trading Team**\
+`Citadel, one of the world's largest hedge fund managers, said on Thursday it had hired a former Glencore energy derivatives trader to head its first commodities trading team in Asia.`\
+https://nytimes.com/reuters/2020/08/27/business/27reuters-asia-commodities-citadel.html?searchResultPosition=7
+
+**China's Industrial Profits Grow at Fastest Pace Since Mid-2018**\
+`Profits at China's industrial firms grew for a third straight month in July and at the fastest pace since June 2018, marking a bright spot in the economy as the manufacturing sector slowly recovers from its coronavirus slump.`\
+https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-china-economy-industrial-profit.html?searchResultPosition=8
+
+**Report: China Fires 'Carrier Killer' Missile in Disputed Sea**\
+`China’s military test-fired two missiles into the South China Sea, including a “carrier killer” military analysts suggest might have been developed to attack U.S. forces, a newspaper reported Thursday. `\
+https://nytimes.com/aponline/2020/08/27/world/asia/ap-as-china-military.html?searchResultPosition=9
+
 **Today in History**\
 `Today in History `\
-https://nytimes.com/aponline/2020/08/27/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=1
-
-**Oil Industry Shuts Platforms, Rigs, Refineries Before Storm**\
-`The energy industry is bracing for catastrophic storm surges and winds as Hurricane Laura cuts a dangerous path toward the coastlines of Texas and Louisiana. `\
-https://nytimes.com/aponline/2020/08/27/business/ap-us-tropical-weather-oil.html?searchResultPosition=2
-
-**Speakers Praise Trump on Gender: ‘For Decades He Has Elevated Women’**\
-`Women making a case for how well President Trump treats women was a recurring theme of the third night of the Republican National Convention`\
-https://nytimes.com/video/us/elections/100000007310178/rnc-women.html?searchResultPosition=3
-
-**Mike Pence Accepts Nomination and Attacks Joe Biden**\
-`In making his case for another Trump term, the vice president spoke of President Trump’s character “when the cameras are off.”`\
-https://nytimes.com/video/us/elections/100000007309781/mike-pence-speaks-rnc.html?searchResultPosition=4
-
-**Full Transcript: Mike Pence’s R.N.C. Speech**\
-`The vice president in a lengthy speech at Fort McHenry said the 2020 election was a choice of “whether America remains America.”`\
-https://nytimes.com/2020/08/26/us/politics/mike-pence-rnc-speech.html?searchResultPosition=5
-
-**Curfew, National Guard After Unrest in Downtown Minneapolis**\
-`The Minneapolis mayor imposed a curfew Wednesday night and requested National Guard help after unrest that included violence and store looting broke out downtown following what authorities said was misinformation about the suicide death of a Black homicide suspect.`\
-https://nytimes.com/aponline/2020/08/26/us/ap-us-racial-injustice-minneapolis-unrest.html?searchResultPosition=6
-
-**LEADING OFF: Racial Justice Protests Reverberate Through MLB**\
-`A look at what’s happening around the majors Thursday:`\
-https://nytimes.com/aponline/2020/08/26/sports/baseball/ap-bbo-leading-off.html?searchResultPosition=7
-
-**Organisers Postpone Thursday's Matches at Western & Southern Open**\
-`Tennis matches at the Western & Southern Open, which is being played in New York as a tune-up to the U.S. Open Grand Slam, will be suspended on Thursday in protest against racial injustice, organisers said in a statement.`\
-https://nytimes.com/reuters/2020/08/26/sports/tennis/26reuters-global-race-usa-tennis.html?searchResultPosition=8
-
-**China Makes Proposal to U.S. in Concession to Solve Accounting Dispute: Bloomberg**\
-`China is proposing to let U.S. regulators audit its state-owned enterprises (SOEs) in a concession aimed at solving their long-running accounting dispute, but would insist on redacting some information on national security grounds, Bloomberg News reported on Thursday.`\
-https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-china-audit-dispute.html?searchResultPosition=9
-
-**AL-Best A's Win 3-1 in Another Victory by Fiers Over Rangers**\
-`Oakland Athletics right-hander Mike Fiers allowed only an unearned run over six innings while getting his team yet another win over the Texas Rangers, 3-1 on Wednesday night. `\
-https://nytimes.com/aponline/2020/08/26/sports/baseball/ap-bba-athletics-rangers.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/27/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=10
 
