@@ -1,5 +1,5 @@
 **Laura Hits Petrochemical Region, and a Factory Goes Up in Flames**\
-`The hurricane rolled over a coast studded with oil, gas and chemical plants. Previous storms have caused the release of toxic substances, often affecting minority communities.`\
+`The hurricane rolled over a coast studded with oil, gas and chemical plants. Other storms have caused the release of toxic substances, often affecting minority communities.`\
 https://nytimes.com/2020/08/27/climate/hurricane-laura-fire-pollution.html?searchResultPosition=1
 
 **Black National Convention Puts Spotlight on Police Brutality**\
