@@ -1,40 +1,40 @@
-**Stephen Colbert Refuses to Watch Night 3 of the R.N.C.**\
-`“Why should we watch their reality show if it doesn’t reflect our reality?” the “Late Show” host asked on Wednesday. “Why subject ourselves to their lies that stick to your soul like hot tar?"`\
-https://nytimes.com/2020/08/27/arts/television/stephen-colbert-republican-convention.html?searchResultPosition=1
+**Minneapolis Under State of Emergency After Black Homicide Suspect's Death**\
+`The governor of Minnesota declared a state of peacetime emergency on the city of Minneapolis after violent protests erupted on Wednesday night following the death of a Black homicide suspect who police say shot himself.`\
+https://nytimes.com/reuters/2020/08/27/us/27reuters-global-race-minneapolis.html?searchResultPosition=1
 
-**French Government Says Needs to Intervene to Contain COVID-19 Spread**\
-`French Prime Minister Jean Castex said on Thursday the government needs to intervene to contain the new coronavirus outbreak spread as the virus was circulating widely among young people.`\
-https://nytimes.com/reuters/2020/08/27/world/europe/27reuters-health-coronavirus-france.html?searchResultPosition=2
+**China Criticizes US Sanctions Over South China Sea Buildup**\
+`China on Thursday accused Washington of violating international law by imposing sanctions on officials and companies over Beijing’s military buildup in the disputed South China Sea, but gave no indication of possible retaliation.`\
+https://nytimes.com/aponline/2020/08/27/world/asia/ap-as-china-us.html?searchResultPosition=2
 
-**Bouygues to Remove 3,000 Huawei-Made Mobile Antennas in France by 2028: Deputy CEO**\
-`Bouygues' will swap 3,000 Huawei-made mobile antennas in France by 2028 following a decision by the country's authorities to remove equipment made by the Chinese company from highly populated areas, Bouygues' deputy CEO said on Thursday.`\
-https://nytimes.com/reuters/2020/08/27/technology/27reuters-bouygues-huawei-security.html?searchResultPosition=3
+**Republican Convention: Best and Worst Moments From Mike Pence Night**\
+`Our columnists and contributors give their rankings.`\
+https://nytimes.com/2020/08/27/opinion/rnc-best-worst-night-3.html?searchResultPosition=3
 
-**Doctors in Kenyan Capital End Strike Over Pay Delays, Lack of PPE**\
-`Doctors employed by Kenya's Nairobi County government resumed work on Thursday following a six-day strike over delayed salaries and a lack of protective equipment when handling patients who may have COVID-19, a union official said.`\
-https://nytimes.com/reuters/2020/08/27/world/africa/27reuters-health-coronavirus-kenya.html?searchResultPosition=4
+**Fires Set, Windows Broken as Oakland Protest Turns Violent**\
+`Protests in Oakland, California, over the shooting of a Black man in Wisconsin turned violent late Wednesday night.`\
+https://nytimes.com/aponline/2020/08/27/us/ap-us-racial-injustice-oakland-protests.html?searchResultPosition=4
 
-**China Arrests at Least 10 at Sea; HK Media Say Suspects Fleeing to Taiwan**\
-`Chinese authorities have arrested at least 10 people after intercepting a boat off the coast of the southern province of Guangdong, the provincial Coast Guard Bureau said in a post on its social media site.`\
-https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-hongkong-security-arrests.html?searchResultPosition=5
+**Russia Launches Probe Into Hospitalization of Kremlin Critic Navalny: TASS**\
+`Russia's Interior Ministry said on Thursday it was launching a probe into the hospitalization of Kremlin critic Alexei Navalny over what his allies suspect was a poisoning, TASS news agency reported.`\
+https://nytimes.com/reuters/2020/08/27/world/europe/27reuters-russia-politics-navalny-probe.html?searchResultPosition=5
 
-**UK Public's Inflation Expectations Slip From Near Seven-Year High**\
-`The British public's expectations for inflation over the coming year fell in August after touching one of the highest levels since 2013 in July, a survey from bank Citi and polling firm YouGov showed on Thursday.`\
-https://nytimes.com/reuters/2020/08/27/world/europe/27reuters-britain-inflation.html?searchResultPosition=6
+**15 Books to Watch For in September**\
+`New fiction from Elena Ferrante, Yaa Gyasi and Marilynne Robinson, Mariah Carey’s tell-all, several deep dives into Cold War espionage and more.`\
+https://nytimes.com/2020/08/27/arts/new-september-books.html?searchResultPosition=6
 
-**Russia Detains Serviceman for Allegedly Passing State Secrets to Ukraine**\
-`Russia's Federal Security Service (FSB) said on Thursday it had detained a serviceman in Siberia for having allegedly passed state secrets to Ukraine. `\
-https://nytimes.com/reuters/2020/08/27/world/europe/27reuters-russia-security-ukraine.html?searchResultPosition=7
+**In Michigan’s Upper Peninsula, Some Cracks Emerge in the Pro-Trump Wall**\
+`President Trump is likely to win again in rural northern Michigan, a key to his surprise victory in the state in 2016. But can he pile up the same margin in 2020? Some have their doubts.`\
+https://nytimes.com/2020/08/27/us/politics/michigan-trump.html?searchResultPosition=7
 
-**Hungary PM Orban's Cabinet Chief Quarantined Over Coronavirus**\
-`Hungarian Prime Minister Viktor Orban's cabinet chief has been quarantined until he tests negative for the coronavirus, after he attended a private event last Saturday where a participant tested positive for the disease, Orban's office said on Thursday.`\
-https://nytimes.com/reuters/2020/08/27/world/europe/27reuters-health-coronavirus-hungary-govt.html?searchResultPosition=8
+**Félix Fénéon, the Collector-Anarchist Who Was Seurat’s First Champion**\
+`The Museum of Modern Art reopens with an exemplary show devoted to an essential figure who multitasked his way through the aesthetic and political ferment of Belle Époque Paris.`\
+https://nytimes.com/2020/08/27/arts/design/moma-reopens-felix-feneon.html?searchResultPosition=8
 
-**China Defence Ministry Says Won't Let U.S. 'Cause Trouble'**\
-`China's military will neither "dance to the tune of the U.S." nor allow the United States to "cause trouble", defence ministry spokesman Wu Qian said on Thursday at a monthly news briefing.`\
-https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-china-military-usa.html?searchResultPosition=9
+**Turkey Braces for Yet Another Currency Crisis**\
+`A sharp drop in the value of the lira is testing businesses and residents while they are coping with the pandemic.`\
+https://nytimes.com/2020/08/27/business/turkey-currency-crisis.html?searchResultPosition=9
 
-**NHL Roundup: Flyers Go OT to Even Series With Islanders**\
-`Philippe Myers scored on a shot from the point at 2:41 of overtime as the top-seeded Philadelphia Flyers drew even in their Eastern Conference second-round playoff series with a 4-3 victory against the New York Islanders on Wednesday afternoon in Toronto.`\
-https://nytimes.com/reuters/2020/08/27/sports/hockey/27reuters-icehockey-nhl-roundup.html?searchResultPosition=10
+**Intel Slips, and a High-Profile Supercomputer Is Delayed**\
+`The chip maker was selected for an Energy Department project meant to show American tech independence. But problems at Intel have thrown a wrench into the effort.`\
+https://nytimes.com/2020/08/27/technology/intel-aurora-supercomputer.html?searchResultPosition=10
 
