@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/08/26/sports/tennis/26reuters-tennis-cincinnati-osaka.html?searchResultPosition=1
 
 **Defense Official: Arson Suspected as Cause of Navy Ship Fire**\
-`A senior defense official says arson is suspected as the cause of a July 12 fire that left extensive damage to the USS Bonhomme Richard and a U.S. Navy sailor is being questioned as a potential suspect. `\
+`Arson is suspected as the cause of a July 12 fire that left extensive damage to the USS Bonhomme Richard and a U.S. Navy sailor is being questioned as a potential suspect, a senior defense official said Wednesday. `\
 https://nytimes.com/aponline/2020/08/26/us/ap-us-navy-ship-fire-investigation.html?searchResultPosition=2
 
 **Typhoon Barrels Into N. Korea After Causing Damage in South**\
