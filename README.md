@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/08/27/business/27reuters-workday-ceo.html?searc
 `Air Canada is planning a voluntary COVID-19 test trial for passengers arriving at the country's largest airport to help persuade the federal government to end stringent quarantine rules that have crippled air travel, a Raymond James analyst said in a note.`\
 https://nytimes.com/reuters/2020/08/27/us/27reuters-health-coronavirus-air-canada.html?searchResultPosition=3
 
-**Dell Quarterly Revenue Edges Past Estimates on Remote Work Boost**\
-`Dell Technologies Inc posted a smaller-than-expected drop in quarterly revenue on Thursday, as weakness in its data center segment was cushioned by robust demand for its notebooks and software products for remote work and online learning.    `\
+**Dell's Quarterly Results Beat Estimates on Remote Work Boost**\
+`Dell Technologies Inc on Thursday posted a smaller-than-expected drop in quarterly revenue and beat profit estimates on robust demand for its notebooks and software products for remote work and online learning.  `\
 https://nytimes.com/reuters/2020/08/27/business/27reuters-dell-tech-results.html?searchResultPosition=4
 
 **Chinese Minister Urges Multilateralism During European Tour**\
@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/27/us/ap-virus-outbreak-developments.html?s
 `Two people were killed and at least three wounded in clashes in a town south of Lebanon's capital Beirut on Thursday, the state news agency and a security source said, which prompted the deployment of the army as several political parties urged calm.`\
 https://nytimes.com/reuters/2020/08/27/world/middleeast/27reuters-lebanon-security-clash.html?searchResultPosition=9
 
-**Exclusive: ByteDance Asks TikTok to Draw Up U.S. Shutdown Contingencies-Sources**\
+**Exclusive: ByteDance Asks TikTok to Draw Up U.S. Shutdown Contingencies: Sources**\
 `China's ByteDance told engineers of its popular short-video app TikTok this week to make contingencies should it need to shut down its U.S. operations, even as it works toward divesting them, people familiar with the matter said on Thursday.`\
 https://nytimes.com/reuters/2020/08/27/business/27reuters-usa-tiktok-shutdown-exclusive.html?searchResultPosition=10
 
