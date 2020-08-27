@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/08/27/business/27reuters-usa-economy-employment
 https://nytimes.com/reuters/2020/08/27/business/27reuters-china-audit-dispute.html?searchResultPosition=8
 
 **Pelosi Endorses Rep. Richard Neal in Democratic Primary**\
-`U.S. House Speaker Nancy Pelosi gave a full-throated endorsement Thursday of U.S. Rep. Richard Neal as the long-time incumbent and chair of the powerful House Ways and Means Committee tries to fend off a Democratic primary challenge by Holyoke Mayor Alex Morse.`\
+`U.S. House Speaker Nancy Pelosi gave an enthusiastic endorsement Thursday of U.S. Rep. Richard Neal as the long-time incumbent and chair of the powerful House Ways and Means Committee tries to fend off a Democratic primary challenge by Holyoke Mayor Alex Morse.`\
 https://nytimes.com/aponline/2020/08/27/us/ap-us-election-2020-massachusetts-house.html?searchResultPosition=9
 
 **Book-Publishing Exec Dawn Davis Is New Bon Appetit Editor**\
