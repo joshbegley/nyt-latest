@@ -1,40 +1,40 @@
+**Bill Gates' Nuclear Venture Plans Reactor to Complement Solar, Wind Power Boom**\
+`A nuclear energy venture founded by Bill Gates said Thursday it hopes to build small advanced nuclear power stations that can store electricity to supplement grids increasingly supplied by intermittent sources like solar and wind power.`\
+https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-usa-nuclearpower-terrapower.html?searchResultPosition=1
+
+**Rescue Boat Seeks Port for 200 Migrants in Mediterranean**\
+`A German-flagged charity boat says it has been waiting for several days for port permission so it can disembark 201 migrants rescued in the central Mediterranean. `\
+https://nytimes.com/aponline/2020/08/27/world/europe/ap-eu-italy-migrants.html?searchResultPosition=2
+
+**Black Players Call on NHL to Postpone Playoff Games**\
+`Members of the Hockey Diversity Alliance asked the NHL to postpone its two second-round playoff games on Thursday in response to Jacob Blake being shot by police in Wisconsin.`\
+https://nytimes.com/aponline/2020/08/27/sports/hockey/ap-hkn-racial-injustice-nhl-1st-ld-writethru.html?searchResultPosition=3
+
+**BP: Preparing to Restore Ops at Gulf of Mexico Facilities**\
+`BP Plc <BP.PLC> on Thursday said its preparing to return its Gulf of Mexico facilities to operations after shutting production due to tropical storm Marco and Hurricane Laura.`\
+https://nytimes.com/reuters/2020/08/27/business/27reuters-bp-operations-gulf-of-mexico.html?searchResultPosition=4
+
+**Arizona, Alabama, Michigan Sending National Guard Troops to Kenosha: Official**\
+`The U.S. National Guard will send troops from three additional states, Arizona, Alabama and Michigan, to Kenosha to assist with operations there, the head of Wisconsin's National Guard Major General Paul Knapp told a news conference on Thursday.`\
+https://nytimes.com/reuters/2020/08/27/us/27reuters-global-race-usa-states.html?searchResultPosition=5
+
 **Chlorine Plant Fire Has Residents Sheltering After Hurricane**\
 `A fire at a Louisiana chlorine plant erupted with thick, billowing smoke Thursday after Hurricane Laura plowed through part of the country's petrochemical corridor with storm surges and fierce wind, forcing residents around the plant to shelter in their homes.`\
-https://nytimes.com/aponline/2020/08/27/us/ap-us-tropical-weather-chemical-fire.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/27/us/ap-us-tropical-weather-chemical-fire.html?searchResultPosition=6
 
 **15.7 Million People Watched Third Night of Republican National Convention**\
 `A total of 15.7 million people watched the third night of the mostly virtual Republican National Convention, according to early Nielsen Media Research, fewer than the 21.4 million viewers who watched the third night of the Democratic National Convention across the same number of networks.`\
-https://nytimes.com/reuters/2020/08/27/us/politics/27reuters-usa-election-tv-ratings.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/27/us/politics/27reuters-usa-election-tv-ratings.html?searchResultPosition=7
 
 **United Airlines to Cut 2,850 Pilot Jobs Without More U.S. Government Aid**\
 `United Airlines said on Thursday it will need to cut 2,850 pilot jobs this year if the government does not extend an aid package to help airlines cover employee payroll for another six months while they weather the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/08/27/business/27reuters-health-coronavirus-united-arlns-jobs.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/27/business/27reuters-health-coronavirus-united-arlns-jobs.html?searchResultPosition=8
 
 **Trump Says NBA Has Become Like a Political Organization**\
 `U.S. President Donald Trump on Thursday said the NBA has become "like a political organization", though he said he did not know much about the players' boycott to protest racial injustice following the police shooting of a Black man in Wisconsin.`\
-https://nytimes.com/reuters/2020/08/27/us/politics/27reuters-global-race-usa-sports-trump.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/27/us/politics/27reuters-global-race-usa-sports-trump.html?searchResultPosition=9
 
 **Fox's Tucker Carlson Takes Heat for Kenosha Commentary**\
 `Fox News' Tucker Carlson, no stranger to the hot seat for his commentary, is being criticized for suggesting that no one should be surprised by the killing of two demonstrators during social unrest in Kenosha, Wisconsin.`\
-https://nytimes.com/aponline/2020/08/27/arts/ap-us-media-tucker-carlson.html?searchResultPosition=5
-
-**Plans Are Dumb: The Republican Platform for 2020**\
-`A (faux) campaign ad for the G.O.P.`\
-https://nytimes.com/video/opinion/100000007308948/2020-republican-party-platform.html?searchResultPosition=6
-
-**1st Black Woman Confirmed to Be Justice on NJ High Court**\
-`The nomination of the first Black woman to sit on New Jersey's Supreme Court was confirmed Thursday by the state Senate.`\
-https://nytimes.com/aponline/2020/08/27/us/ap-us-supreme-court-new-jersey.html?searchResultPosition=7
-
-**Nebraska Players' Lawsuit Seeks to Restore B10 Fall Football**\
-`A group of Nebraska football players filed a lawsuit Thursday asking a jury to force the Big Ten Conference to reinstate a fall football season.`\
-https://nytimes.com/aponline/2020/08/27/sports/ncaafootball/ap-fbc-virus-outbreak-big-ten.html?searchResultPosition=8
-
-**Record Floods Cause Deaths and Widespread Damage in Sudan**\
-`Flood waters in Sudan have reached the highest levels on record, killing dozens of people, destroying thousands of homes and encroaching on some neighbourhoods of the capital Khartoum.`\
-https://nytimes.com/reuters/2020/08/27/world/africa/27reuters-sudan-floods.html?searchResultPosition=9
-
-**Kremlin Critic Navalny's Condition Still Serious: Spokeswoman**\
-`Kremlin critic Alexei Navalny, who is in a coma in a Berlin hospital after what his allies describe as a poisoning, continues to be in a serious condition, his spokeswoman Kira Yarmysh said on Thursday.`\
-https://nytimes.com/reuters/2020/08/27/world/europe/27reuters-russia-politics-navalny-condition.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/27/arts/ap-us-media-tucker-carlson.html?searchResultPosition=10
 
