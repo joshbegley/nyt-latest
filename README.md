@@ -22,7 +22,7 @@ https://nytimes.com/2020/08/27/us/family-politics-children-democrat-republican.h
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2020/08/27/briefing/hurricane-laura-president-trump-baby-dinosaurs.html?searchResultPosition=6
 
-**This Confederate Monument Survived Controversy, but Not the Hurricane**\
+**This Confederate Monument Survived Protests, but Not the Hurricane**\
 `Officials voted two weeks ago to keep the monument on courthouse property in Lake Charles, La., but Hurricane Laura toppled its statue from the base.`\
 https://nytimes.com/2020/08/27/us/hurricane-laura-confederate-statue.html?searchResultPosition=7
 
