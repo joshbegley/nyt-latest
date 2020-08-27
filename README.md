@@ -1,40 +1,40 @@
+**Trump's Big Night: Expect Talk of GOP Progress, Dem Anarchy**\
+`Four years ago, Donald Trump accepted the Republican Party’s nomination for president with a dark convention speech that painted a dystopian portrait of America in decline and offered a singular solution: himself.`\
+https://nytimes.com/aponline/2020/08/27/us/politics/ap-us-election-2020-rnc-trump-speech.html?searchResultPosition=1
+
+**Bryan Brothers Announce Retirement: New York Times**\
+`Bob and Mike Bryan, the most successful men's doubles team in the history of tennis, are bringing the curtain down on their 22-year professional careers, the New York Times reported on Wednesday.`\
+https://nytimes.com/reuters/2020/08/27/sports/olympics/27reuters-tennis-bryan.html?searchResultPosition=2
+
+**Wisconsin Investigators Say Knife Found at Scene of Police Shooting of Jacob Blake**\
+`Investigators of a shooting by a white police officer that left a Black man, Jacob Blake Jr., paralyzed and the town of Kenosha, Wisconsin, torn by civil strife found a knife belonging to Blake at the scene of the confrontation, the state attorney general said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/27/us/27reuters-global-race-usa-wisconsin-shots.html?searchResultPosition=3
+
+**At RNC, GOP Echoes Racial Code of Nixon's 1968 Campaign**\
+`The question was how he planned to address poverty. In his reply, the Republican running for president quickly pivoted to a central campaign theme — denouncing the fiery chaos that had erupted in American cities during protests over civil rights.`\
+https://nytimes.com/aponline/2020/08/27/us/politics/ap-us-election-2020-rnc-southern-strategy-.html?searchResultPosition=4
+
+**Retired St. Louis Police Captain's Widow to Address RNC**\
+`The widow of a retired St. Louis police captain shot to death after a violent night of protests will speak Thursday as part of the Republican National Convention.`\
+https://nytimes.com/aponline/2020/08/27/us/politics/ap-us-election-2020-rnc-police-widow.html?searchResultPosition=5
+
+**India Reports Record Daily Jump of 75,760 Coronavirus Infections**\
+`India reported on Thursday a record daily jump of 75,760 coronavirus infections, taking its total caseload to 3.31 million as cases surged across the country, data from the federal health ministry showed.`\
+https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-health-coronavirus-india-cases.html?searchResultPosition=6
+
+**WHAT TO WATCH: Trump's Moment, Ivanka and Rudy Giuliani**\
+`President Donald Trump has popped up multiple times during this week's Republican National Convention, but his big moment is scheduled for Thursday night when he is to make his case for another four years in the White House. `\
+https://nytimes.com/aponline/2020/08/27/us/politics/ap-us-election-2020-rnc-what-to-watch.html?searchResultPosition=7
+
+**Esper Visit to Tiny Palau Highlights US-China Competition**\
+`No nation is too small or too distant from Washington, it seems, to be excluded from the Trump administration’s campaign to counter China’s efforts to supplant America as the dominant Pacific power.`\
+https://nytimes.com/aponline/2020/08/27/us/politics/ap-us-united-states-china-palau.html?searchResultPosition=8
+
 **Osaka Reaches Semis Then Withdraws to Protest Racial Injustice**\
 `Naomi Osaka withdrew from the Western & Southern Open on Wednesday in protest against racial injustice hours after the two-times Grand Slam champion had booked her spot in the semi-finals of the U.S. Open tune-up event.`\
-https://nytimes.com/reuters/2020/08/27/sports/tennis/27reuters-tennis-cincinnati-osaka.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/27/sports/tennis/27reuters-tennis-cincinnati-osaka.html?searchResultPosition=9
 
 **Djokovic Cruises Into Semis Where Bautista Agut Awaits**\
 `Novak Djokovic cruised past Germany's Jan-Lennard Struff 6-3 6-1 on Wednesday to reach a record-equalling eighth Western & Southern Open semi-final where he will face Spaniard Roberto Bautista Agut.`\
-https://nytimes.com/reuters/2020/08/27/sports/tennis/27reuters-tennis-cincinnati.html?searchResultPosition=2
-
-**A Next Generation of Republicans: ‘Young People Have Stepped Up’**\
-`Several speakers representing the future of the Republican Party spoke about their political motivations on the third night of the convention.`\
-https://nytimes.com/video/us/elections/100000007310182/rnc-young-stars.html?searchResultPosition=3
-
-**Thai Refuge Warns of Growing Risks to Animals as Pandemic Bites**\
-`As the pandemic batters Thailand's tourist-reliant economy, animal attractions from petting zoos to elephant camps and tiger farms are feeling the pain and may even have to give animals away, warned the founder of an animal refuge.    `\
-https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-health-coronavirus-thailand-sanctuary.html?searchResultPosition=4
-
-**China Repeatedly Fell Short of Abiding by International Laws: U.S.' Esper**\
-`U.S. Defense Secretary Mark Esper said on Wednesday China has repeatedly fallen short of promises to abide by international laws and said Beijing wants to project its power globally. `\
-https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-usa-defence-china.html?searchResultPosition=5
-
-**Tracking the Suspect in the Fatal Kenosha Shootings**\
-`A teenager is accused of killing two people during protests in Wisconsin. We followed his movements that night.`\
-https://nytimes.com/2020/08/27/us/kyle-rittenhouse-kenosha-shooting-video.html?searchResultPosition=6
-
-**Factbox: Quotes From Sentencing of New Zealand Mosque Shooter**\
-`A New Zealand court on Thursday sentenced Brenton Tarrant, a 29-year-old Australian who killed 51 Muslim worshippers in Christchurch, to life in prison without parole, the first time such a sentence has been handed down in the Pacific nation.`\
-https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-newzealand-shooting-factbox.html?searchResultPosition=7
-
-**New Zealand Judge Sentences Mosque Shooter to Life Without Parole for 'Wicked' Crimes**\
-`A New Zealand judge sentenced white supremacist Brenton Tarrant to life in prison without parole on Thursday for killing 51 Muslim worshippers in the country's deadliest shooting, saying the sentence was not enough punishment for the "wicked" crimes.`\
-https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-newzealand-shooting.html?searchResultPosition=8
-
-**Citadel Hires Ex-Glencore Trader to Head Asia Commodities Trading Team**\
-`Citadel, one of the world's largest hedge fund managers, said on Thursday it had hired a former Glencore energy derivatives trader to head its first commodities trading team in Asia.`\
-https://nytimes.com/reuters/2020/08/27/business/27reuters-asia-commodities-citadel.html?searchResultPosition=9
-
-**China's Industrial Profits Grow at Fastest Pace Since Mid-2018**\
-`Profits at China's industrial firms grew for a third straight month in July and at the fastest pace since June 2018, marking a bright spot in the economy as the manufacturing sector slowly recovers from its coronavirus slump.`\
-https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-china-economy-industrial-profit.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/27/sports/tennis/27reuters-tennis-cincinnati.html?searchResultPosition=10
 
