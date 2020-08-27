@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/08/26/sports/baseball/ap-bba-orioles-rays.html
 `A blind Chinese dissident whose escape to the U.S. was facilitated by the Obama administration is calling on other countries to support President Donald Trump in leading a coalition to “stop China's aggression.”`\
 https://nytimes.com/aponline/2020/08/26/us/politics/ap-us-election-2020-rnc-chen.html?searchResultPosition=3
 
-**With Wisconsin Unrest as Backdrop, Republicans Focus on Safety for Americans**\
+**With Wisconsin Unrest as Backdrop, Republicans Intensify Law-and-Order Message**\
 `On the third day of the convention, two of the G.O.P.’s female leaders, Kristi Noem and Marsha Blackburn, talked about law and order. And Vice President Mike Pence had a rare opportunity to take the political foreground.`\
 https://nytimes.com/2020/08/26/us/politics/republican-national-convention-recap.html?searchResultPosition=4
 
