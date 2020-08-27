@@ -1,4 +1,4 @@
-**China Reports 8 New COVID-19 Cases vs 15 a Day Earlier**\
+**China Reports Eight New COVID-19 Cases vs 15 a Day Earlier**\
 `China reported eight new COVID-19 cases in the mainland as of Aug. 26, down from 15 a day earlier, the country's health authority said on Thursday. `\
 https://nytimes.com/reuters/2020/08/26/world/asia/26reuters-health-coronavirus-china-cases.html?searchResultPosition=1
 
