@@ -1,40 +1,40 @@
+**Fabrics With Powerful Stories to Tell**\
+`The Afro-Brazilian sculptor Sonia Gomes, in a debut U.S. show, gives materials new life — as they have given her life new balance.`\
+https://nytimes.com/2020/08/28/arts/design/sonia-gomes-brazil-art.html?searchResultPosition=1
+
+**‘It’s a Joy for Me to Bury Them’: A Quest to Honor Migrant Dead**\
+`Boubacar Wann Diallo is devoted to determining the names and origins of corpses that wash up on Morocco’s shores and to giving them a decent final resting place.`\
+https://nytimes.com/2020/08/28/world/africa/morocco-bodies-migrants.html?searchResultPosition=2
+
+**When Retirement Comes Too Early**\
+`Workplaces have grown steadily less friendly to older employees, and the pandemic has pushed more of these workers from the labor market.`\
+https://nytimes.com/2020/08/28/health/coronavirus-retirement-recession.html?searchResultPosition=3
+
+**The Psychiatrist Will See You Online Now**\
+`Experts have long predicted that psychotherapy was poised to go virtual. The pandemic may prove them right.`\
+https://nytimes.com/2020/08/28/health/virtual-therapy-psychiatry-coronavirus.html?searchResultPosition=4
+
+**A Sculptural Sofa, Rereleased for the First Time**\
+`Designed by Mario Bellini, the Camaleonda was a hit when MoMA included it in a landmark 1972 show.`\
+https://nytimes.com/2020/08/28/t-magazine/bebitalia-camaleonda-sofa.html?searchResultPosition=5
+
+**Comfort Viewing: 3 Reasons I Love ‘The Sting’**\
+`Sharp clothes, sharp tunes, sharp acting. This Redford-Newman con-men picture swindles viewers, too. But so what? It’s a con that leaves us feeling richer.`\
+https://nytimes.com/2020/08/28/movies/the-sting-robert-redford-paul-newman.html?searchResultPosition=6
+
+**Spanish Police Arrest Pandemic-Denier for Inciting Hatred**\
+`Spanish police said on Friday they had arrested a man near the northeastern city of Zaragoza, who believed the coronavirus pandemic to be a hoax, for inciting hatred and violence across several anonymous social-media profiles. `\
+https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-health-coronavirus-spain-crime.html?searchResultPosition=7
+
 **India’s Covid Outbreak Is Now the World’s Fastest-Growing**\
 `Crowded cities, lockdown fatigue and a lack of contact tracing have spread the coronavirus to every corner of the vast country.`\
-https://nytimes.com/2020/08/28/world/asia/india-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/08/28/world/asia/india-coronavirus.html?searchResultPosition=8
 
 **Women's Soccer in England Returns With Optimism**\
 `After a pandemic-induced end to last season, women's soccer in England seems reborn with the arrival of World Cup-winning Americans, a slew of Australians and robust enthusiasm about the league's potential.`\
-https://nytimes.com/aponline/2020/08/28/sports/soccer/ap-soc-england-womens-league.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/28/sports/soccer/ap-soc-england-womens-league.html?searchResultPosition=9
 
 **VIRUS DIARY: She Has Her Cake, but Others Can't Eat It, Too**\
 `When my birthday rolled around in June, I had to face the fact that, thanks to COVID-19, I would not be having cake with anyone. Yet I went ahead and made the cake I really wanted — a three-layer, naked strawberry chamomile cake.`\
-https://nytimes.com/aponline/2020/08/28/us/ap-us-virus-outbreak-diary-no-sharing-baking.html?searchResultPosition=3
-
-**Small but Mighty, a Washington Florist Battles Back in the Pandemic**\
-`The bloom is back at Lee's Flower and Card Shop in Washington's historic U Street neighborhood, with an added touch: Blue, green, yellow and white origami cranes spelling out the words "Black Lives Matter" on the storefront window.`\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-health-coronavirus-usa-smallbusiness.html?searchResultPosition=4
-
-**After Nearly 200 Years, Lord & Taylor Goes Out of Business**\
-`Lord & Taylor, one of the country's oldest department store chains, is going out of business after filing for bankruptcy earlier this month. `\
-https://nytimes.com/aponline/2020/08/28/business/ap-lord-taylor-going-out-of-business.html?searchResultPosition=5
-
-**Coca-Cola Offering Buyouts to About 4,000 Workers**\
-`Coca-Cola is offering voluntary buyouts to about 4,000 people to reduce the number of layoffs it says will take place as it streamlines operations.`\
-https://nytimes.com/aponline/2020/08/28/business/ap-us-coca-cola-buyouts.html?searchResultPosition=6
-
-**55 Migrants on Crippled Yacht Safely Towed to Greek Island**\
-`A crippled yacht carrying 55 migrants has been safely towed to port on the southeastern Aegean Sea island of Rhodes following an overnight search and rescue operation, Greek authorities said Friday.`\
-https://nytimes.com/aponline/2020/08/28/world/europe/ap-eu-greece-migrants.html?searchResultPosition=7
-
-**Shuttered Philippine TV Network Ends Newscasts to Millions**\
-`The Philippines’ largest TV network broadcast its final newscasts Friday to millions of provincial viewers with announcers tearfully bidding goodbye after lawmakers voted to reject its license renewal.`\
-https://nytimes.com/aponline/2020/08/28/world/asia/ap-as-philippines-tv-network-shutdown.html?searchResultPosition=8
-
-**UK COVID-19 Reproduction 'R' Rate Steady at 0.9-1.1**\
-`The reproduction "R" number of COVID-19 in the United Kingdom remains between 0.9 and 1.1, the government said on Friday, indicating that the rate of infection is most likely either broadly stable or slightly growing.`\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-health-coronavirus-britain-r.html?searchResultPosition=9
-
-**Germany Would Be Ready to Sanction Russia Over Navalny Case: Maas**\
-`Germany would be ready to impose diplomatic sanctions against Russia if it concludes that Russian state agencies were behind the poisoning of a critic of President Vladimir Putin, Foreign Minister Heiko Maas said on Friday.`\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-germany-eu-russia-navalny.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/28/us/ap-us-virus-outbreak-diary-no-sharing-baking.html?searchResultPosition=10
 
