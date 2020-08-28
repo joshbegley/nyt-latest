@@ -1,40 +1,40 @@
+**Suspect in Kenosha Killings Ardently Promoted Blue Lives Matter**\
+`Kyle Rittenhouse, accused of killing two people during protests over a police shooting, faces six criminal counts. His social media accounts showed strong support for officers.`\
+https://nytimes.com/2020/08/27/us/kyle-rittenhouse-kenosha.html?searchResultPosition=1
+
+**Mexico Records More Than 6,000 New Coronavirus Cases**\
+`Mexico's health ministry on Thursday reported 6,026 new confirmed cases of coronavirus infection, bringing the total in the country to 579,914 cases. It reported the same number of accumulated deaths registered the day before, 62,076. `\
+https://nytimes.com/reuters/2020/08/27/world/americas/27reuters-health-coronavirus-mexico-tally.html?searchResultPosition=2
+
 **Republican Convention Live Analysis and Video**\
 `President Donald Trump is headlining the fourth night of the Republican convention. Our correspondents are following every revelation and providing live analysis and insights.`\
-https://nytimes.com/interactive/2020/08/27/us/politics/live-rnc-stream-analysis.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/08/27/us/politics/live-rnc-stream-analysis.html?searchResultPosition=3
 
 **Reds Beat Brewers 6-1 as Teams Resume Play Following Protest**\
 `Jesse Winker homered twice, prized prospect Jose Garcia singled in his first big league at-bat and the Cincinnati Reds beat the Milwaukee Brewers 6-1 Thursday in a doubleheader opener one day after both teams opted not to play to protest racial injustice.`\
-https://nytimes.com/aponline/2020/08/27/sports/baseball/bc-bbn-reds-brewers.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/27/sports/baseball/bc-bbn-reds-brewers.html?searchResultPosition=4
 
 **Navajo Nation Wants More Say Over Criminal Justice Matters**\
 `Shortly after the only Native American man on federal death row took his last breath, his tribe blasted the federal government and accused it of violating the spirit of a law that allows tribes to decide whether to subject their citizens to capital punishment.`\
-https://nytimes.com/aponline/2020/08/27/us/ap-us-federal-execution-native-american.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/27/us/ap-us-federal-execution-native-american.html?searchResultPosition=5
 
 **Violent 24 Hours in Rio De Janeiro, as Shootouts Plague City**\
 `A family held hostage by drug traffickers. A violent police shootout on a busy street. A mother killed while shielding her three-year-old daughter from gunfire.`\
-https://nytimes.com/reuters/2020/08/27/world/americas/27reuters-brazil-violence.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/27/world/americas/27reuters-brazil-violence.html?searchResultPosition=6
 
 **Sport-By-Sport Snapshot of Racial Injustice Protests**\
 `Moved by the videotaped shooting of Jacob Blake, many professional athletes — some who had previously donned Black Lives Matter T-Shirts and knelt for the national anthem to protest racial injustice — made a more dramatic statement. `\
-https://nytimes.com/aponline/2020/08/27/sports/ap-us-racial-injustice-sports-snapshot.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/27/sports/ap-us-racial-injustice-sports-snapshot.html?searchResultPosition=7
 
 **China Halts Beef Imports From Australian Firm Over Banned Substance: Customs**\
 `China has suspended imports of beef from Australian firm John Dee Warwick after it detected a banned substance in some of the company's products, the country's customs administration said.`\
-https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-china-australia-beef.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-china-australia-beef.html?searchResultPosition=8
 
 **Matsuyama Leads on Long Birdie to End Tough Day at Olympia**\
 `One of the toughest tests of the year made it clear that par would be a great score at Olympia Fields. Leave it to Hideki Matsuyama to make a 65-foot birdie putt on his final hole Thursday to lead the BMW Championship.`\
-https://nytimes.com/aponline/2020/08/27/sports/golf/ap-glf-bmw-championship.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/27/sports/golf/ap-glf-bmw-championship.html?searchResultPosition=9
 
 **China Reports 9 New Mainland COVID-19 Cases vs. 8 a Day Earlier**\
 `China reported nine new COVID-19 cases in the mainland on Aug. 27, compared with eight a day earlier, the country's health authority said on Friday. `\
-https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-health-coronavirus-china-cases.html?searchResultPosition=8
-
-**Trump Heads Into General Election Leading a Party He Has Transformed**\
-`After three days of law-and-order rhetoric at the Republican convention, President Trump was ready to make a determined push to change the subject from the coronavirus and to mark Joseph R. Biden Jr. as a willing partner of the far left.`\
-https://nytimes.com/2020/08/27/us/politics/republican-national-convention-recap.html?searchResultPosition=9
-
-**Instead of Evolving as President, Trump Has Bent the Job to His Will**\
-`In a 40-minute phone call this week, Mr. Trump struggled to describe how he has changed in office. “I think I’ve just become more guarded than I was four years ago,” he said.`\
-https://nytimes.com/2020/08/27/us/politics/donald-trump.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/27/world/asia/27reuters-health-coronavirus-china-cases.html?searchResultPosition=10
 
