@@ -7,7 +7,7 @@ https://nytimes.com/2020/08/28/opinion/coronavirus-misinformation-faceboook.html
 https://nytimes.com/aponline/2020/08/28/us/ap-us-missing-mother.html?searchResultPosition=2
 
 **Trump Willing to Sign a $1.3 Trillion Coronavirus Relief Bill: Meadows**\
-`White House Chief of Staff Mark Meadows said on Friday that President Donald Trump is willing to sign a $1.3 trillion coronavirus relief bill, a $300 billion increase from Senate Majority Leader Mitch McConnell's offer on legislation meant to blunt the economic effects of the global pandemic.`\
+`President Donald Trump is willing to sign a $1.3 trillion coronavirus relief bill, a top Trump aide said on Friday, marking a $300 billion increase from an initial $1 trillion offer from the White House and Senate Republicans. `\
 https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-health-coronavirus-usa-meadows.html?searchResultPosition=3
 
 **Some 21.6 Million Americans Watched Trump Speech on Last Night of Republican Convention: CNN**\
