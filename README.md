@@ -1,40 +1,40 @@
+**Merkel Vows to Speed Up Fight Against Climate Change**\
+`German Chancellor Angela Merkel said on Friday she would accelerate the fight against climate change in the coming years.`\
+https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-germany-merkel-climate.html?searchResultPosition=1
+
+**5 Things to Know for Today**\
+`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today: `\
+https://nytimes.com/aponline/2020/08/28/us/ap-5-things-to-know-today.html?searchResultPosition=2
+
+**Why Does Walmart Want TikTok? Looking to China May Explain**\
+`The app’s Chinese version, Douyin, is trying to become a mobile marketplace where video stars promote products. That could be a model for the U.S. retail giant if it acquires TikTok.`\
+https://nytimes.com/2020/08/28/technology/tiktok-walmart-ecommerce.html?searchResultPosition=3
+
+**Men Accused of Helping Ex-Nissan Boss Carlos Ghosn Escape Face U.S. Extradition Hearing**\
+`A U.S. judge on Friday will hear arguments over whether two Massachusetts men can be extradited to Japan to face charges that they helped former Nissan Motor Co Ltd Chairman Carlos Ghosn flee the country to avoid facing financial charges.`\
+https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-nissan-ghosn.html?searchResultPosition=4
+
+**U.S. Economic Recovery Hampered by Wobbly Performance in Powerhouse States**\
+`Of the many tragedies in the U.S. coronavirus epidemic, among the largest was that the nation's four economic powerhouses - California, Florida, New York and Texas - bolted to opposite corners early in an often politicized response to the crisis.`\
+https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-economy-covid-states.html?searchResultPosition=5
+
+**Spanish League Forced to Deal With Another Star Departing**\
+`First it was Neymar. Then Cristiano Ronaldo. And now, very likely, it will be Lionel Messi.`\
+https://nytimes.com/aponline/2020/08/28/sports/soccer/ap-soc-spanish-league-losing-messi.html?searchResultPosition=6
+
+**Rights Groups Call for Release of Jordanian Cartoonist**\
+`Press freedom groups are calling for the release of a cartoonist who was arrested in Jordan for criticizing the agreement between Israel and the United Arab Emirates to normalize relations.`\
+https://nytimes.com/aponline/2020/08/28/world/middleeast/ap-ml-jordan-cartoonist-arrested.html?searchResultPosition=7
+
 **Republican Convention Praise of Trump Economy Is Risky Strategy, Poll Highlights**\
 `Americans' support for President Donald Trump's management of the economy has slipped, a new Reuters/Ipsos poll shows, challenging a bedrock re-election argument laid out at the Republican National Convention this week.`\
-https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-usa-election-economy.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-usa-election-economy.html?searchResultPosition=8
 
 **Acting Leader of Egypt's Muslim Brotherhood Arrested in Cairo**\
 `Egyptian authorities said on Friday they had arrested the acting leader of the Muslim Brotherhood, Mahmoud Ezzat, during a raid on an apartment in Cairo.`\
-https://nytimes.com/reuters/2020/08/28/world/middleeast/28reuters-egypt-politics.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/28/world/middleeast/28reuters-egypt-politics.html?searchResultPosition=9
 
 **Apple and Tesla Split Their Shares, but Does It Matter?**\
 `Shares of Apple Inc and Tesla Inc will be less costly on Monday as pre-announced stock splits take effect, in theory making them more accessible to retail investors, but as more brokers offer fractional shares, some in the market question the need.`\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-tesla-stocksplit-investors-preview.html?searchResultPosition=3
-
-**What the Conventions Reveal for Biden, Trump in Final Stretch to November**\
-`The back-to-back presidential nominating conventions that concluded with Donald Trump's speech on Thursday showed both sides intend to fight for the sliver of independent and moderate voters that will decide the election, each with a wildly different strategy in the final sprint to Nov. 3.`\
-https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-usa-election-convention-contrast-analysis.html?searchResultPosition=4
-
-**NBA Star LeBron James Emerges as Potent Political Force Ahead of November U.S. Election**\
-`Two years after a conservative commentator told LeBron James to "shut up and dribble," the NBA star has become an increasingly influential political force as issues of racial justice and voter suppression move to the forefront in the November presidential election.`\
-https://nytimes.com/reuters/2020/08/28/sports/basketball/28reuters-usa-election-james.html?searchResultPosition=5
-
-**Trump to Campaign in New Hampshire After Convention Speech at White House**\
-`Fresh from accepting the Republican nomination with a sweeping attack on Democratic rival Joe Biden, President Donald Trump travels to New Hampshire on Friday to bring his re-election argument to a state he hopes to flip to his column in November.`\
-https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-usa-election-trump.html?searchResultPosition=6
-
-**Powell's White-Collar World Led to Fed Pivot for Blue-Collar Jobs**\
-`Raised in a white-collar Washington suburb, a product of prep schools, elite colleges and the 1% world of private equity, Jerome Powell is an unlikely candidate to tilt U.S. monetary policy toward the working class.`\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-fed-jacksonhole-labor.html?searchResultPosition=7
-
-**Greece Starts More Training Exercises Amid Turkey Tension**\
-`Greece and the United Arab Emirates have begun joint air force training exercises in the eastern Mediterranean, in the latest build-up of military forces in the region where Greece and Turkey are at odds over seabed mineral rights.`\
-https://nytimes.com/aponline/2020/08/28/business/bc-eu-turkey-greece.html?searchResultPosition=8
-
-**Polar Bear Kills Man in Norway's Arctic Svalbard Archipelago**\
-`A man was killed by a polar bear in the Norwegian Arctic Svalbard islands early on Friday, local authorities said, the first such deadly incident in nine years.`\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-norway-polarbear.html?searchResultPosition=9
-
-**West African Leaders to Push Mali Junta to Hand Over Power Within a Year**\
-`West African leaders seeking a return to democracy in Mali will on Friday demand that the military junta that ousted the president in a coup last week appoint a civilian head of government to oversee a transition lasting no more than a year.`\
-https://nytimes.com/reuters/2020/08/28/world/africa/28reuters-mali-security.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/28/business/28reuters-tesla-stocksplit-investors-preview.html?searchResultPosition=10
 
