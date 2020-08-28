@@ -1,40 +1,40 @@
-**Prosecutors: Self-Help Guru Calls Sex Slave Scheme 'Noble'**\
-`Communications from jail show the leader of a cult-like self-improvement group in upstate New York has no remorse over his conviction last year on charges he turned some of his followers into sex slaves, even calling his conspiracy “noble,” prosecutors said Friday in court papers.`\
-https://nytimes.com/aponline/2020/08/28/us/ap-us-branded-women.html?searchResultPosition=1
+**Herbalife Admits Bribing Chinese Officials to Grow Business**\
+`Herbalife, a Los Angeles-based health and nutrition company, bribed Chinese government officials for a decade to grow its overseas business and falsified accounting records to cover up the payments, U.S. prosecutors said Friday in announcing corruption charges against the publicly traded company.`\
+https://nytimes.com/aponline/2020/08/28/business/ap-us-herbalife-bribery-fine.html?searchResultPosition=1
 
-**US Plans Further Troop Reductions in Iraq by November**\
-`The United States plans to reduce its military force in Iraq from the current 5,200 to about 3,500 by November, U.`\
-https://nytimes.com/aponline/2020/08/28/us/politics/ap-us-united-states-iraq.html?searchResultPosition=2
+**For Trump, G.O.P. Created an Alternative America Beyond Covid-19**\
+`For four days, the Republican National Convention constructed a false image of America beyond the pandemic, where President Trump had moved quickly and effectively to crush the coronavirus.`\
+https://nytimes.com/2020/08/28/us/politics/trump-coronavirus-fact-check.html?searchResultPosition=2
 
-**The Met Opera’s Newest Star Returns, on the Small Screen**\
-`Lise Davidsen, who made a widely hailed company debut last season, won’t be back in the fall as planned. But she is giving a live recital this weekend.`\
-https://nytimes.com/2020/08/28/arts/music/lise-davidsen-met-opera.html?searchResultPosition=3
+**The True Cost of Lionel Messi’s Declaration of Independence**\
+`The Barcelona star is not just prepared to trade one jersey for another. He is prepared to walk away from the life he has built.`\
+https://nytimes.com/2020/08/28/sports/soccer/lionel-messi-barcelona.html?searchResultPosition=3
 
-**Clouds of Smoke are Blowing Misery Across the West**\
-`Wildfires are burning from California to Minnesota, leaving millions of people to cough and wheeze through the toxic air. Gathering indoors brings the risk of coronavirus. Is there no respite?`\
-https://nytimes.com/2020/08/28/us/california-fires-smoke.html?searchResultPosition=4
+**Will More Data Make Us Healthier?**\
+`Trackers can collect all sorts of information on our health, sleep and fitness. But then what?`\
+https://nytimes.com/2020/08/28/technology/health-tracking-technology.html?searchResultPosition=4
 
-**U.S. IPO Market Channels Spirit of '99 to Tee Up Bumper 2020**\
-`A host of companies have filed for U.S. initial public offerings (IPOs) this week in the busiest period in recent history, as businesses rush to take advantage of ample investor appetite for new stocks. `\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-ipo.html?searchResultPosition=5
+**Health Agencies' Credibility at Risk After Week of Blunders**\
+`The credibility of two of the nation’s leading public health agencies is under fire this week after controversial decisions that outside experts say smack of political pressure from President Donald Trump as he attempts to move past the devastating toll of the coronavirus ahead of the November election.`\
+https://nytimes.com/aponline/2020/08/28/us/politics/ap-virus-outbreak-public-health-credibility.html?searchResultPosition=5
 
-**Man Pleads to 39 Manslaughter Counts in Container Case**\
-`A truck driver from Northern Ireland on Friday pleaded guilty to manslaughter in the deaths of 39 people found in the back of a container truck last year in southeastern England.`\
-https://nytimes.com/aponline/2020/08/28/world/europe/ap-eu-britain-truck-deaths.html?searchResultPosition=6
+**In a Week of Layoffs, MGM Resorts Adds 18,000 More**\
+`MGM Resorts is laying off 18,000 people as an unchecked pandemic leaves economic scars across numerous U.S. industries, particularly those that really on healthy crowds of people. `\
+https://nytimes.com/aponline/2020/08/28/business/bc-us-mgm-resorts-layoffs.html?searchResultPosition=6
 
-**Schools Briefing: The Rise of ‘Off-Off-Off-Campus Housing’**\
-`College students are getting creative with their distance-learning locales, deadly bacteria may be lurking in schools, and half a billion children have lost access to education.`\
-https://nytimes.com/2020/08/28/us/coronavirus-college-housing-legionella.html?searchResultPosition=7
+**Macron Says France's 5G Strategy Founded on European Sovereignty**\
+`President Emmanuel Macron said on Friday France was not excluding any company including China's Huawei from its next-generation 5G mobile market but that his strategy was one based on European sovereignty.`\
+https://nytimes.com/reuters/2020/08/28/technology/28reuters-france-macron-huawei.html?searchResultPosition=7
 
-**Vodafone, Sky, Windtre Say Independence of Single Broadband Network Crucial**\
-`Vodafone, Comcast unit SKY and WindTre said on Friday it was crucial that any single broadband network company in Italy be independent with the proper governance rules.`\
-https://nytimes.com/reuters/2020/08/28/technology/28reuters-italy-broadband.html?searchResultPosition=8
+**France Doing Everything Possible to Avoid Repeat COVID-19 Lockdown, Says Macron**\
+`French President Emmanuel Macron said on Friday his government was doing everything possible to avoid another nationwide coronavirus lockdown but added it would be dangerous to rule out any scenario.`\
+https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-health-coronavirus-france-macron.html?searchResultPosition=8
 
-**'Double Lockdown': COVID-19 Adds to Blockaded Gaza's Despair**\
-`On a deserted beachfront in a newly locked-down Gaza, fishermen look impotently at the Mediterranean waters they can no longer access under two separate bans - one by Israel and the other by Hamas police imposing COVID-19 restrictions. `\
-https://nytimes.com/reuters/2020/08/28/world/middleeast/28reuters-health-coronavirus-gaza.html?searchResultPosition=9
+**U.N. to Renew Lebanon Peacekeeping Mandate, Reduce Troops: Diplomats**\
+`The U.N. Security Council will extend the mandate for a peacekeeping force in southern Lebanon for another year later on Friday, but will reduce the number of troops amid U.S. and Israeli criticism over the mission's efficiency, diplomats said.`\
+https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-lebanon-crisis-un-mandate.html?searchResultPosition=9
 
-**Slow Cooker Central**\
-`Love it or hate it, the slow cooker is a valued tool in many home kitchens. Here are five excellent dishes.`\
-https://nytimes.com/2020/08/28/dining/slow-cooker-central.html?searchResultPosition=10
+**Review: Chloroform, Lies and Racism Fire Up ‘The Jacksonian’**\
+`This streamed reading of Beth Henley’s slice of Southern noir offers scorching portraits of bad faith from Ed Harris, Amy Madigan and Bill Pullman.`\
+https://nytimes.com/2020/08/28/theater/the-jacksonian-streaming-reading.html?searchResultPosition=10
 
