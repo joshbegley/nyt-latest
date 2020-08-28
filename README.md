@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/08/28/sports/baseball/28reuters-baseball-mlb-bo
 https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-taiwan-security.html?searchResultPosition=8
 
 **Quotes From Last Day of Republican National Convention Themed 'Land of Greatness'**\
-`President Donald Trump attacked rival Joe Biden in front of a large crowd on the South Lawn of the White House on Thursday, as Republicans warned of a lawless and dangerous America if the Democrat wins the November election.`\
+`President Donald Trump accepted the Republican nomination on Thursday for a second term with an attack on rival Joe Biden, asserting that a Democratic victory in November would exacerbate the racial strife and coronavirus pandemic besieging the nation. `\
 https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-usa-election-convention-quotes-factbox.html?searchResultPosition=9
 
 **AP Finds Brazil's Plan to Protect Amazon Has Opposite Effect**\
