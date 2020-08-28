@@ -10,7 +10,7 @@ https://nytimes.com/2020/08/27/us/kyle-rittenhouse-kenosha.html?searchResultPosi
 `Mexico's health ministry on Thursday reported 6,026 new confirmed cases of coronavirus infection, bringing the total in the country to 579,914 cases. It reported the same number of accumulated deaths registered the day before, 62,076. `\
 https://nytimes.com/reuters/2020/08/27/world/americas/27reuters-health-coronavirus-mexico-tally.html?searchResultPosition=3
 
-**Republican Convention Live Analysis and Video**\
+**Watch Live: Republican Convention Night 4 Analysis and Video**\
 `President Donald Trump is headlining the fourth night of the Republican convention. Our correspondents are following every revelation and providing live analysis and insights.`\
 https://nytimes.com/interactive/2020/08/27/us/politics/live-rnc-stream-analysis.html?searchResultPosition=4
 
