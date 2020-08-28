@@ -1,40 +1,40 @@
+**Levitating Stocks Unlikely to Help Fed's Economic Equality Efforts**\
+`U.S. Federal Reserve chair Jerome Powell tried to address economic inequalities in his landmark policy move. Still the Fed holding rates lower-for-longer may support bulging asset prices - which is unlikely to benefit the neediest and could well widen the wealth gap in the near term.`\
+https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-fed-jacksonhole-stocks-analysis.html?searchResultPosition=1
+
+**Russian Navy Conducts Major Maneuvers Near Alaska**\
+`The Russian navy conducted major war games near Alaska involving dozens of ships and aircraft, the military said Friday, the biggest such drills in the area since Soviet times. `\
+https://nytimes.com/aponline/2020/08/28/world/europe/ap-eu-russia-navy-drills.html?searchResultPosition=2
+
+**TikTok Influencers Say 'Everybody Is Going to Take a Big Hit'**\
+`In a luxury mansion in the Hollywood Hills, young TikTok influencers bounced around on a bright sunny morning this week trying out new ideas for zany short form videos that they hope will go viral.`\
+https://nytimes.com/reuters/2020/08/28/technology/28reuters-usa-tiktok-influencers.html?searchResultPosition=3
+
+**S&P 500 Futures Rise for Seventh Straight Day**\
+`The S&P 500 futures rose for a seventh straight day on Friday as the prospect of super low interest rates for a prolonged period spurred risk appetite, with focus shifting to monthly personal consumption data for signs of an economic rebound.`\
+https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-stocks.html?searchResultPosition=4
+
+**Archbishop Oscar Cruz, Philippine Critic of Graft and Gambling, Dies at 85**\
+`The outspoken archbishop made it his main mission to rid the Philippines of illegal gambling, drawing the ire of officials.`\
+https://nytimes.com/2020/08/28/obituaries/oscar-cruz-philippines.html?searchResultPosition=5
+
+**Philippine Network That Clashed With Duterte Ends Local Coverage**\
+`ABS-CBN lost its broadcast license, but a dozen regional operations kept covering local news through cable and the internet. As of Friday, that stops.`\
+https://nytimes.com/2020/08/28/world/asia/philippines-abs-cbn-shutdown.html?searchResultPosition=6
+
 **Who Is Shinzo Abe, Japan’s Departing Prime Minister?**\
 `Mr. Abe, who announced his resignation on Friday, sought to revive Japan’s economy and alter its pacifist Constitution.`\
-https://nytimes.com/2020/08/28/world/asia/who-is-shinzo-abe.html?searchResultPosition=1
+https://nytimes.com/2020/08/28/world/asia/who-is-shinzo-abe.html?searchResultPosition=7
 
 **Death Toll of Mauritius Dolphins Is Now 38: Government Official**\
 `The number of dolphins washed up dead near a Mauritius oil spill site increased to 38 on Friday, a government official told Reuters. `\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-mauritius-environment-dolphins.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-mauritius-environment-dolphins.html?searchResultPosition=8
 
 **Tour De France Teams Can Be Excluded if Two Riders Test Positive for Coronavirus-UCI**\
 `Tour de France teams can be excluded if two riders from the same outfit test positive for the coronavirus within a seven-day period during the race, the International Cycling Union (UCI) said on Friday. `\
-https://nytimes.com/reuters/2020/08/28/sports/cycling/28reuters-cycling-france-covid.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/28/sports/cycling/28reuters-cycling-france-covid.html?searchResultPosition=9
 
 **Legal Hurdles, Pandemic Would Bedevil Biden Efforts to Undo Trump Immigration Overhaul**\
 `Democratic presidential nominee Joe Biden says he will reverse some of President Donald Trump's restrictive immigration policies should he win in November, but the dizzying number of changes could take months or years to undo, according to policy and regulatory experts and people close to the Biden campaign.`\
-https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-usa-election-immigration-insight.html?searchResultPosition=4
-
-**The Latest: Judo Events to Restart Following Virus Break**\
-`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/08/28/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=5
-
-**Slovakia Adds Croatia, France, Spain, Belgium, Netherlands, Malta to Quarantine Requirement**\
-`Slovakia will require travellers from six more European countries to stay in quarantine from Sept. 1 due to rising numbers of coronavirus cases there, the Health Ministry said on Friday.`\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-health-coronavirus-slovakia.html?searchResultPosition=6
-
-**Rio De Janeiro's Governor Removed From Office Over Graft Investigations**\
-`Rio de Janeiro's state governor Wilson Witzel has been temporarily removed from power by the Superior Court of Justice over alleged graft in the purchase of medical supplies and services to fight the COVID-19 outbreak, Brazilian prosecutors said in a statement.`\
-https://nytimes.com/reuters/2020/08/28/world/americas/28reuters-health-coronavirus-brazil-politics.html?searchResultPosition=7
-
-**Bangladesh's Beximco in Coronavirus Vaccine Pact With India's Serum Institute**\
-`One of Bangladesh's largest drugmakers, Beximco Pharmaceuticals, announced on Friday that it will invest with the Serum Institute of India (SII) to ensure Bangladesh gets access to vaccines it is developing for the novel coronavirus.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-health-coronavirus-bangladesh-india.html?searchResultPosition=8
-
-**German Economy Minister Does Not Expect Another Shutdown-Broadcaster SWR**\
-`Germany's economy minister does not expect the nation's economy to have to suffer another lockdown even if coronoavirus infections continue to rise, he told regional broadcaster SWR.`\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-health-coronavirus-germany-altmeier.html?searchResultPosition=9
-
-**Four Years Later, Trump Still Portrays America as Under Siege**\
-`President Trump is again running as an outsider who can fix the problems if elected, but he’s the incumbent this time.`\
-https://nytimes.com/2020/08/28/us/politics/trump-rnc.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-usa-election-immigration-insight.html?searchResultPosition=10
 
