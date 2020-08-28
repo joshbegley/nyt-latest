@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/08/28/sports/football/ap-fbn-nfl-preview.html?
 `The United States is expected to reduce its troops presence in Iraq by about a third in the coming months, a U.S. official said on Friday, a move that had been expected after President Donald Trump's administration committed to a reduction recently. `\
 https://nytimes.com/reuters/2020/08/28/world/middleeast/28reuters-usa-iraq-military.html?searchResultPosition=2
 
-**Two P.R. Experts at F.D.A. Have Been Removed After Blood Plasma Fiasco**\
+**Two P.R. Experts at F.D.A. Have Been Ousted After Blood Plasma Fiasco**\
 `The agency’s chief spokeswoman, Emily Miller, was removed from her position just 11 days into the job.`\
 https://nytimes.com/2020/08/28/health/blood-plasma-fda.html?searchResultPosition=3
 
