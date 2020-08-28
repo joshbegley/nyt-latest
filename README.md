@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/08/28/world/asia/ap-as-japan-abe.html?searchRe
 `In an overtly politically staged event, President Trump officially accepted his party’s renomination from the South Lawn at the White House. He turned the setting into a partisan prop as no other politician ever had.`\
 https://nytimes.com/video/us/politics/100000007312239/republican-national-convention-highlights.html?searchResultPosition=8
 
-**Japan PM Abe Set to Resign, Citing Worsening Health: Media**\
-`Japanese Prime Minister Shinzo Abe is set to resign, public  broadcaster NHK said on Friday, adding that the long-serving leader wanted to avoid causing problems for the government due to the worsening of a chronic health condition.`\
+**Japan PM Abe Set to Resign Over Worsening Health: Source**\
+`Japanese Prime Minister Shinzo Abe, the nation's longest serving premier, is set to resign due to his worsening health, a source close to a ruling party official said on Friday, sparking a slide in Tokyo stock prices and a rise in the yen.`\
 https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe.html?searchResultPosition=9
 
 **Shinzo Abe, Japan’s Longest-Serving Leader, to Resign Because of Illness**\
