@@ -1,40 +1,40 @@
+**NASCAR Races, Wallace Says Fight for Racial Equality Goes On**\
+`Major sports across North America ground to a halt in the wake of another police shooting of a Black man, this time in Wisconsin. Auto racing was not among them.`\
+https://nytimes.com/aponline/2020/08/28/sports/ap-car-racial-injustice-motorsports.html?searchResultPosition=1
+
+**Wall Street's 'Fear Gauge' Climbs Despite U.S. Stock Rally**\
+`U.S. stocks are rallying, but so too is Wall Street's "fear gauge," in an unusual twist.`\
+https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-stocks-volatility.html?searchResultPosition=2
+
+**Pakistani Court Sentences 3 Men on Terror Financing Charges**\
+`A Pakistani court on Wednesday convicted on terror financing charges three associates of a radical cleric wanted by Washington for his role in the 2008 Mumbai attacks.`\
+https://nytimes.com/aponline/2020/08/28/world/asia/ap-as-pakistan-terror-financing.html?searchResultPosition=3
+
+**Canada Extends International Travel Ban to September 30**\
+`Canada extended a measure barring most foreign travelers from entering the country amid continued efforts to limit the introduction and spread of the coronavirus, Public Safety Minister Bill Blair said on Friday on Twitter.`\
+https://nytimes.com/reuters/2020/08/28/world/americas/28reuters-health-coronavirus-canada-border.html?searchResultPosition=4
+
+**Tigers, Twins Have Doubleheader Postponed Because of Weather**\
+`Friday's doubleheader between the Detroit Tigers and Minnesota Twins was postponed because of bad weather.`\
+https://nytimes.com/aponline/2020/08/28/sports/baseball/bc-bba-twins-tigers.html?searchResultPosition=5
+
+**House Readies Contempt Resolution as Pompeo Defies Subpoenas**\
+`The House Foreign Affairs Committee is moving to hold Secretary of State Mike Pompeo in contempt after he has repeatedly rejected the committee’s subpoenas for records related to Ukraine that the department has turned over to the Republican-led Senate. `\
+https://nytimes.com/aponline/2020/08/28/us/politics/ap-us-congress-pompeo.html?searchResultPosition=6
+
+**South Africa's Ex-Leader Zuma, Accused of Graft, Hits Out at Successor**\
+`South Africa's former president Jacob Zuma, facing trial for graft, lashed out at his successor Cyril Ramaphosa on Friday, accusing him of betraying the ruling African National Congress (ANC) with his stance against corruption.`\
+https://nytimes.com/reuters/2020/08/28/world/africa/28reuters-safrica-politics-zuma.html?searchResultPosition=7
+
 **Trump Administration Says Sinochem and Others Backed by Chinese Military**\
 `The Trump administration has determined that another 11 Chinese firms, including construction giant China Communications Construction Company, are owned or controlled by the Chinese military, laying the groundwork for new sanctions.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-usa-china-military.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-usa-china-military.html?searchResultPosition=8
 
 **Trump Says He Is Pardoning Woman Whose Cause Was Backed by Kim Kardashian**\
 `U.S. President Donald Trump said on Friday he was giving a full pardon to Alice Marie Johnson, a Tennessee woman who received a life sentence for a first-time drug offense and whose cause was taken up by celebrity Kim Kardashian West.`\
-https://nytimes.com/reuters/2020/08/28/us/28reuters-usa-johnson-pardon.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/28/us/28reuters-usa-johnson-pardon.html?searchResultPosition=9
 
 **Study: MLB Nets Small Gain in Diversity Hiring, Led by Women**\
 `A diversity report released Friday on Major League Baseball showed a modest increase in its overall diversity hiring practices, spurred by its improved gender diversity.`\
-https://nytimes.com/aponline/2020/08/28/sports/baseball/ap-bbo-mlb-diversity-study.html?searchResultPosition=3
-
-**In a Naked Pandemic Race, You Can Leave Your Hat On**\
-`When we can’t go outside without covering our faces, there’s a special appeal in the opportunity to uncover everything else.`\
-https://nytimes.com/2020/08/28/well/move/running-race-nudist-resort-naked.html?searchResultPosition=4
-
-**Love Letter: Can Your Relationship Survive a Political Divide?**\
-`Plus: A son becomes a distant memory.`\
-https://nytimes.com/2020/08/28/style/love-letter-can-your-relationship-survive-a-political-divide.html?searchResultPosition=5
-
-**AP Source: Big Ten Working on Multiple Options for Football**\
-`Big Ten coaches, athletic directors and medical personnel are working on multiple plans for staging a football season — including one that would have the league kicking off as soon as Thanksgiving weekend.`\
-https://nytimes.com/aponline/2020/08/28/sports/ncaafootball/ap-fbc-virus-outbreak-big-ten.html?searchResultPosition=6
-
-**Hasidic Jewish Pilgrims Stranded at Ukraine Airports After Travel Ban**\
-`Hasidic Jews arriving in Ukraine for an annual pilgrimage were stranded at airports on Friday after the government partially closed the border, a representative of the Rabbi Nachman International Charitable Foundation said.`\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-ukraine-pilgrims.html?searchResultPosition=7
-
-**Ian McRae, Who Brought Electricity to Black South Africa, Dies at 90**\
-`As head of the state-owned utility, he defied apartheid laws by laying the groundwork for providing power to the nonwhite townships and by hiring Black people. He died of the novel coronavirus.`\
-https://nytimes.com/2020/08/28/obituaries/ian-mcrae-dead-coronavirus.html?searchResultPosition=8
-
-**Canada Completes Boeing 737 MAX Flight Tests, Analyzing Results: Statement**\
-`Canada has completed simulator and flight tests of Boeing Co's 737 MAX jetliner, which was grounded worldwide after two fatal crashes, and is analyzing the results, the Transport Ministry said in a statement on Friday. `\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-boeing-737-max-canada.html?searchResultPosition=9
-
-**Conventions Highlight Aggressive Fact-Check Efforts**\
-`Rachel Maddow ended her fact-check mission with a lightning round after President Donald Trump's nomination acceptance speech — 12 corrections in about a minute. Or, rather, 11 corrections and a prediction.`\
-https://nytimes.com/aponline/2020/08/28/business/bc-us-election-2020-media-fact-checks.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/28/sports/baseball/ap-bbo-mlb-diversity-study.html?searchResultPosition=10
 
