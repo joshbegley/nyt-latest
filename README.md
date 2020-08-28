@@ -1,40 +1,40 @@
+**'WHATS POPPIN' Remakes by 2 Georgia Teachers Go Viral**\
+`Two teachers were recently looking for ways to motivate their students for a new school year amid the coronavirus pandemic, which has hit their south Georgia community especially hard. Their solution — remakes of rapper Jack Harlow’s ‘WHATS POPPIN’ — has gone viral.`\
+https://nytimes.com/aponline/2020/08/27/us/ap-us-virus-outbreak-teacher-rap-video.html?searchResultPosition=1
+
+**Seven MLB Games Postponed on Thursday**\
+`Seven Major League Baseball games were postponed Thursday night as part of an athlete boycott following the recent shooting of a Black man in Wisconsin.`\
+https://nytimes.com/reuters/2020/08/27/sports/baseball/27reuters-baseball-mlb-boycott.html?searchResultPosition=2
+
 **Champ Speaks Out on Racial Injustice With Shoes and Words**\
 `Golf played on even as other sports in America stopped, and it gave Cameron Champ a chance to speak out at the BMW Championship.`\
-https://nytimes.com/aponline/2020/08/27/sports/golf/ap-glf-racial-injustice-pga-tour.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/27/sports/golf/ap-glf-racial-injustice-pga-tour.html?searchResultPosition=3
 
 **After Barcelona, Messi's Argentine Hometown Dreams of Return**\
 `A mural of a young Lionel Messi in a Newell’s Old Boys jersey, tiny and barefoot with a soccer ball in front of him, inspires hundreds of young people at the Argentine club's youth school to dream of succeeding like their hometown hero.`\
-https://nytimes.com/aponline/2020/08/27/sports/soccer/ap-soc-argentina-messis-hometown.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/27/sports/soccer/ap-soc-argentina-messis-hometown.html?searchResultPosition=4
 
 **Mets G.M. Says Commissioner ‘Doesn’t Get It’ in Video**\
 `The Mets’ Brodie Van Wagenen criticized Rob Manfred’s handling of player protests in comments captured on a video stream. The Mets were one of many teams that opted not to play Thursday.`\
-https://nytimes.com/2020/08/27/sports/baseball/brodie-van-wagenen-rob-manfred.html?searchResultPosition=3
+https://nytimes.com/2020/08/27/sports/baseball/brodie-van-wagenen-rob-manfred.html?searchResultPosition=5
 
 **Democrat Harris Says Wisconsin Officer Should Be Charged: NBC**\
 `U.S. Democratic vice presidential nominee Kamala Harris said on Thursday that she believed the officer who shot 29-year-old Jacob Blake in Wisconsin should be charged with a crime.`\
-https://nytimes.com/reuters/2020/08/27/us/politics/27reuters-global-race-usa-harris.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/27/us/politics/27reuters-global-race-usa-harris.html?searchResultPosition=6
 
 **Jackson Heights, Queens: Walk Where the World Finds a Home**\
 `Stroll through the city’s most global neighborhood with the author Suketu Mehta, featuring Diversity Plaza, Roosevelt Avenue and the birth of Scrabble.`\
-https://nytimes.com/interactive/2020/08/27/arts/design/jackson-heights-queens-virtual-walk-tour.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/08/27/arts/design/jackson-heights-queens-virtual-walk-tour.html?searchResultPosition=7
 
 **North Korean Leader Thankful Typhoon Damage Wasn't Worse**\
 `North Korean leader Kim Jong Un visited a western coastal area hit by a typhoon and expressed relief the damage wasn’t worse, state media said Friday.`\
-https://nytimes.com/aponline/2020/08/27/world/asia/ap-as-nkorea-typhoon-.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/27/world/asia/ap-as-nkorea-typhoon-.html?searchResultPosition=8
 
 **Suspect in Kenosha Killings Ardently Promoted Blue Lives Matter**\
 `Kyle Rittenhouse, accused of killing two people during protests over a police shooting, faces six criminal counts. His social media accounts showed strong support for officers.`\
-https://nytimes.com/2020/08/27/us/kyle-rittenhouse-kenosha.html?searchResultPosition=7
+https://nytimes.com/2020/08/27/us/kyle-rittenhouse-kenosha.html?searchResultPosition=9
 
-**Mexico Records More Than 6,000 New Coronavirus Cases**\
-`Mexico's health ministry on Thursday reported 6,026 new confirmed cases of coronavirus infection, bringing the total in the country to 579,914 cases. It reported the same number of accumulated deaths registered the day before, 62,076. `\
-https://nytimes.com/reuters/2020/08/27/world/americas/27reuters-health-coronavirus-mexico-tally.html?searchResultPosition=8
-
-**Watch Live: Republican National Convention Night 4 Analysis**\
-`President Donald Trump is headlining the fourth night of the Republican convention. Our correspondents are following every revelation and providing live analysis and insights.`\
-https://nytimes.com/interactive/2020/08/27/us/politics/live-rnc-stream-analysis.html?searchResultPosition=9
-
-**Reds Beat Brewers 6-1 as Teams Resume Play Following Protest**\
-`Jesse Winker homered twice, prized prospect Jose Garcia singled in his first big league at-bat and the Cincinnati Reds beat the Milwaukee Brewers 6-1 Thursday in a doubleheader opener one day after both teams opted not to play to protest racial injustice.`\
-https://nytimes.com/aponline/2020/08/27/sports/baseball/bc-bbn-reds-brewers.html?searchResultPosition=10
+**Mexico Records 6,026 New Coronavirus Cases, 518 More Deaths**\
+`Mexico's health ministry on Wednesday reported 6,026 new confirmed cases of coronavirus infections and 518 additional fatalities, bringing the total in the country to 579,914 cases and 62,594 deaths.`\
+https://nytimes.com/reuters/2020/08/27/world/americas/27reuters-health-coronavirus-mexico-tally.html?searchResultPosition=10
 
