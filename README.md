@@ -1,4 +1,4 @@
-**Breaking Down the Biggest Moments of Trump’s R.N.C. Speech**\
+**Breaking Down the Biggest Moments of Trump’s Speech**\
 `The Times’s White House correspondent Maggie Haberman analyzes President Trump’s nomination acceptance speech and breaks down the major moments.`\
 https://nytimes.com/video/us/politics/100000007282050/trump-speech-video.html?searchResultPosition=1
 
