@@ -1,40 +1,40 @@
-**Key Dates in Tenure of Japanese Prime Minister Shinzo Abe**\
-`Japanese Prime Minister Shinzo Abe says he will step down due to his health. `\
-https://nytimes.com/aponline/2020/08/28/business/ap-as-japan-abe-timeline.html?searchResultPosition=1
+**Republican Convention: Best and Worst Moments From Trump’s Big Night**\
+`Our columnists and contributors give their rankings.`\
+https://nytimes.com/2020/08/28/opinion/rnc-best-worst-trump-night-4.html?searchResultPosition=1
 
-**Amnesty Says India Police Violated Rights in Religious Riots**\
-`Indian police violated human rights during deadly religious riots in New Delhi earlier this year, Amnesty International said in a report released Friday. `\
-https://nytimes.com/aponline/2020/08/28/world/asia/ap-as-india-religious-riots.html?searchResultPosition=2
+**France's Macron to Head to Beirut to Pressure Lebanese Political Elite**\
+`French President Emmanuel Macron will head to Beirut next week to pressure local politicians into pressing ahead with the creation of a government that can implement urgent reforms, a French presidential official said on Friday.`\
+https://nytimes.com/reuters/2020/08/28/world/middleeast/28reuters-lebanon-security-france.html?searchResultPosition=2
 
-**Japan's Abe: Won't Comment on Specific Names of Possible Successor**\
-`Japanese Prime Minister Shinzo Abe said he would not comment on his potential successors, but said the next premier should continue to work on fighting the coronavirus.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-leaders.html?searchResultPosition=3
+**International Reaction to Resignation of Japan's PM Abe**\
+`Japanese Prime Minister Shinzo Abe, the nation's longest serving premier, said on Friday he is resigning due to health reasons.`\
+https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-factbox.html?searchResultPosition=3
 
-**Japan's Abe: Health Started Declining Middle of Last Month**\
-`Japanese Prime Minister Shinzo Abe said on Friday his health started declining around the middle of last month and he did not want it to impact on important policy decisions.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-health.html?searchResultPosition=4
+**Explainer: What Do We Know About the Health of Japan's Shinzo Abe?**\
+`Prime Minister Shinzo Abe, Japan's longest-serving premier, said on Friday he was resigning because of poor health, ending a stint at the helm of the world's third-biggest economy during which he sought to revive growth and bolster its defences.`\
+https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-illness-explainer.html?searchResultPosition=4
 
-**Monsoon Rains Wreek Havoc in Pakistani Port City, Killing 20**\
-`Heavy rains hit Pakistan’s financial capital Karachi for a fifth straight night, bringing more flooding and killing at least 20 more people, officials said Friday, as rescuers evacuated people from flooded neighborhoods `\
-https://nytimes.com/aponline/2020/08/28/world/asia/ap-as-pakistan-rains.html?searchResultPosition=5
+**Parents Join Forces to Rethink ‘Back to School’**\
+`Instead of classrooms, some children are heading to learning pods that will be held in repurposed living rooms, cleaned-out barns and even tree houses.`\
+https://nytimes.com/2020/08/28/realestate/coronavirus-parents-schools.html?searchResultPosition=5
 
-**Factbox: Tokyo Residents React to PM Abe's Resignation**\
-`Japanese Prime Minister Shinzo Abe, the nation's longest serving premier, said on Friday plans to resign, citing a worsening health problem.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-public-factbox.html?searchResultPosition=6
+**Turning Your Home Into a Home School**\
+`Classes are being held in repurposed living rooms, cleaned-out barns and even tree houses.`\
+https://nytimes.com/slideshow/2020/08/28/realestate/turning-your-home-into-a-home-school.html?searchResultPosition=6
 
-**Indonesia Reports Record New Coronavirus Cases for Second Day**\
-`Indonesia on Friday reported 3,003 new coronavirus cases, its biggest rise in new infections for a second successive day, data from the country's COVID-19 task force showed.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-health-coronavirus-indonesia.html?searchResultPosition=7
+**For David Hallberg, a Swan Song in Pictures**\
+`Mr. Hallberg, soon to lead the Australian Ballet, was photographed in Moscow before the pandemic halted his final days as a dancer.`\
+https://nytimes.com/2020/08/28/arts/dance/david-hallberg-bolshoi.html?searchResultPosition=7
 
-**Taiwan Paves Way for U.S. Trade Deal by Easing Pork, Beef Imports**\
-`Taiwan paved the way for an eventual free trade deal with the United States on Friday by announcing an easing of restrictions on the import of U.S. beef and pork, as the island looks to boost ties with Washington at a time of tensions with China.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-taiwan-usa-trade.html?searchResultPosition=8
+**Is Opening a Hotel in Rockaway Beach Right Now a Good Idea?**\
+`The area is perfect for day-trippers during a pandemic, but whether New Yorkers will pay hundreds to spend the night is another question.`\
+https://nytimes.com/2020/08/28/nyregion/rockaway-beach-hotel.html?searchResultPosition=8
 
-**Sinovac's Coronavirus Vaccine Candidate Approved for Emergency Use in China- Source**\
-`Sinovac Biotech Ltd's coronavirus vaccine candidate CoronaVac was approved in July for emergency use as part of a programme in China to vaccinate high-risk groups such as medical staff, a person familiar with the matter said.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-health-coronavirus-china-vaccines.html?searchResultPosition=9
+**The Mind Readers**\
+`Brains are talking to computers, and computers to brains. Are our daydreams safe?`\
+https://nytimes.com/2020/08/28/opinion/brain-machine-artificial-intelligence.html?searchResultPosition=9
 
-**Soccer: UK Anti-Racism Charity Calls for Support From Clubs**\
-`Anti-racism charity Show Racism the Red Card has called on soccer clubs in England, Scotland and Wales to help educate young people about issues relating to race and spread the message of racial equality.`\
-https://nytimes.com/reuters/2020/08/28/sports/soccer/28reuters-soccer-britain-discrimination.html?searchResultPosition=10
+**7 Things to Do This Weekend**\
+`How can you get your cultural fix when many arts institutions remain closed? Our writers offer suggestions for what to listen to and watch as well as view in person (museums are reopening!).`\
+https://nytimes.com/2020/08/28/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=10
 
