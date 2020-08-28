@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-r
 `President Donald Trump refused to allow the coronavirus to deny him the crowd he craved for the Republican National Convention.`\
 https://nytimes.com/aponline/2020/08/28/us/politics/ap-us-election-2020-rnc-takeaways.html?searchResultPosition=5
 
-**‘We Have to Hear Each Other Out’**\
-`The actresses Tichina Arnold and Beth Behrs are different races. They’re also close friends. And they have a few things to say about that.`\
+**‘We Have to Hear Each Other Out’: Two TV Stars on Friendship and Race**\
+`The actresses Tichina Arnold and Beth Behrs of ‘The Neighborhood’ are different races. They’re also close. And they have a few things to say about that.`\
 https://nytimes.com/2020/08/28/insider/neighborhood-arnold-behrs.html?searchResultPosition=6
 
 **AP FACT CHECK: Trump Distorts Record; BLM Falsely Accused**\
