@@ -1,40 +1,40 @@
+**World Leaders Praise Japan PM Abe's Contributions to Ties**\
+`World leaders wished Japanese Prime Minister Shinzo Abe a rapid recovery on Friday and praised his contributions to bilateral relations during his years as Japan's longest-serving leader.`\
+https://nytimes.com/aponline/2020/08/28/us/ap-as-japan-abe-reaction.html?searchResultPosition=1
+
+**How Summer Festivals Persevered in the Pandemic**\
+`Organizers of cultural events in the United States and around the world showed ingenuity to keep cultural celebrations going while taking precautions against the coronavirus. Take a visual tour.`\
+https://nytimes.com/2020/08/28/travel/summer-festivals-coronavirus.html?searchResultPosition=2
+
+**What to Cook This Weekend**\
+`Take advantage of the season and grill some corn soon.`\
+https://nytimes.com/2020/08/28/dining/what-to-cook-this-weekend.html?searchResultPosition=3
+
 **A Visitor’s Guide to MoMA and the Met**\
 `What you need to know before you head back to the museums, from safety precautions to the exhibitions still on view.`\
-https://nytimes.com/2020/08/28/arts/design/metropolitan-museum-moma-reopening.html?searchResultPosition=1
+https://nytimes.com/2020/08/28/arts/design/metropolitan-museum-moma-reopening.html?searchResultPosition=4
 
 **Fed's Targeting of Higher Inflation Could Backfire, Paper Suggests**\
 `Targeting higher inflation, as the Federal Reserve suggested it would do in a revamp of its monetary policy strategy on Thursday, could end up slowing growth instead of boosting it unless the U.S. central bank's message to households and businesses is carefully crafted and conveyed.`\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-fed-jacksonhole-inflation.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-fed-jacksonhole-inflation.html?searchResultPosition=5
 
 **Keke Palmer Keeps a Check**\
 `The movie star, talk-show host, singer and self-described “drama nerd person” is hosting the MTV V.M.A.s. She’s the only person for the job.`\
-https://nytimes.com/2020/08/28/style/keke-palmer-MTV-VMAs.html?searchResultPosition=3
+https://nytimes.com/2020/08/28/style/keke-palmer-MTV-VMAs.html?searchResultPosition=6
 
 **Champ Makes Statement on Racial Justice as BMW Championship Begins**\
 `Cameron Champ expressed support for the Black Lives Matter movement Thursday as PGA Tour decided to play on in the wake of walkouts in other sports.`\
-https://nytimes.com/2020/08/28/sports/golf/cameron-champ-bmw-championship.html?searchResultPosition=4
+https://nytimes.com/2020/08/28/sports/golf/cameron-champ-bmw-championship.html?searchResultPosition=7
 
 **Missing the Classroom? These Novels Will Take You There**\
 `Nostalgic for sharp pencils and freshly polished gym floors? Let these books take you back, no masks or Wi-Fi required.`\
-https://nytimes.com/interactive/2020/08/28/books/books-about-school.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/08/28/books/books-about-school.html?searchResultPosition=8
 
 **Yum China Applies for Hong Kong Debut Amid U.S.-China Tensions**\
 `Yum China Holdings Inc filed an application for a secondary listing in Hong Kong on Friday, a rising trend among some Chinese firms to list closer to home in a bid to mitigate risks from escalating U.S.-China tensions.  `\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-yum-china-hldg-listing.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/28/business/28reuters-yum-china-hldg-listing.html?searchResultPosition=9
 
 **Live Updates: Jacob Blake Is Shackled to Hospital Bed, His Father Says**\
 `“Why do they have that cold steel on my son’s ankle?” the father asked as he described talking to his son, who was shot seven times by the police in Kenosha, Wis.`\
-https://nytimes.com/2020/08/28/us/kenosha-shooting-protests.html?searchResultPosition=7
-
-**Breaking Down the Biggest Moments of Trump’s Speech**\
-`The Times’s White House correspondent Maggie Haberman analyzes President Trump’s nomination acceptance speech and breaks down the major moments.`\
-https://nytimes.com/video/us/politics/100000007282050/trump-speech-video.html?searchResultPosition=8
-
-**Five Years on, France to Try Suspects in Charlie Hebdo Killings**\
-`Fourteen suspected accomplices to the French Islamist militants behind the 2015 attacks on the Charlie Hebdo satirical magazine and a Jewish supermarket in Paris will go on trial next Wednesday.`\
-https://nytimes.com/reuters/2020/08/28/world/middleeast/28reuters-france-charliehebdo.html?searchResultPosition=9
-
-**Fabrics With Powerful Stories to Tell**\
-`The Afro-Brazilian sculptor Sonia Gomes, in a debut U.S. show, gives materials new life — as they have given her life new balance.`\
-https://nytimes.com/2020/08/28/arts/design/sonia-gomes-brazil-art.html?searchResultPosition=10
+https://nytimes.com/2020/08/28/us/kenosha-shooting-protests.html?searchResultPosition=10
 
