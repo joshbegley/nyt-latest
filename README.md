@@ -1,40 +1,40 @@
+**New Statue of UK's Princess Diana to Be Installed Next Year**\
+`A new statue of Britain's Princess Diana will be installed at Kensington Palace next July on what would have been her 60th birthday, the palace said on Friday, after a delay due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/08/28/arts/28reuters-britain-royals-diana.html?searchResultPosition=1
+
+**I'm Stronger Than Last Year, Says Local Hope Pinot**\
+`Thibaut Pinot has suffered countless setbacks on the Tour de France, but the Groupama-FDJ leader believes he is ready to cope with the immense pressure of trying to become the first Frenchman to win the race in 35 years.`\
+https://nytimes.com/reuters/2020/08/28/sports/cycling/28reuters-cycling-france-pinot.html?searchResultPosition=2
+
 **Exclusive: WHO Sweetens Terms to Join Struggling Global COVAX Vaccine Facility-Documents**\
 `Wealthier countries that join the World Health Organization's COVID-19 vaccine plan are being offered a new option to pick and choose which shots they get while reserving a right to receive their "full share" of doses, documents seen by Reuters show.`\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-health-coronavirus-who-offer-exclusive.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-health-coronavirus-who-offer-exclusive.html?searchResultPosition=3
 
 **Russia Dismisses Anti-Doping Chief**\
 `Russia on Friday dismissed the head of RUSADA, its national anti-doping agency, in a move that threatens to further strain the country's relations on the global sports stage. `\
-https://nytimes.com/reuters/2020/08/28/sports/olympics/28reuters-sport-doping-russia.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/28/sports/olympics/28reuters-sport-doping-russia.html?searchResultPosition=4
 
 **Europe and China Must Keep Conversation Going: Merkel**\
 `Europe and China should keep the conversation going on topics on which they can cooperate, such as climate change, but also on difficult topics on which they do not agree, such as Hong Kong, German Chancellor Angela Merkel said on Friday.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-germany-merkel-china.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-germany-merkel-china.html?searchResultPosition=5
 
 **U.S. Flies B-52 Bombers Over Europe to Show NATO Solidarity**\
 `American B-52 Stratofortress bombers were flying over all 30 NATO countries on Friday in an exercise the U.S. military said was meant to demonstrate the alliance's solidarity, amid growing signs of cracks.`\
-https://nytimes.com/aponline/2020/08/28/world/europe/ap-eu-europe-us-nato.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/28/world/europe/ap-eu-europe-us-nato.html?searchResultPosition=6
 
 **Afghan Officials: Roadside Bombs Kill 14 in Separate Attacks**\
 `Roadside bombs struck two vehicles carrying civilians in separate attacks Friday in southern Afghanistan, killing at least 14 people, including three children, and wounding three others, officials said.`\
-https://nytimes.com/aponline/2020/08/28/world/asia/ap-as-afghanistan.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/28/world/asia/ap-as-afghanistan.html?searchResultPosition=7
 
 **Coca-Cola to Cut Jobs in Restructuring**\
 `Coca-Cola Co said on Friday it would reduce its global workforce as part of a company-wide restructuring.`\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-coca-cola-layoffs.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/28/business/28reuters-coca-cola-layoffs.html?searchResultPosition=8
 
 **Banks Eye Layoffs as Short-Term Crisis Ends, Long-Term Costs Emerge**\
 `At the height of the coronavirus pandemic last spring, the heads of U.S. banks including Morgan Stanley, Bank of America Corp and others pledged not to cut any jobs in 2020 because it was the wrong thing to do.`\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-banks-layoffs.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-banks-layoffs.html?searchResultPosition=9
 
 **Levitating Stocks Unlikely to Help Fed's Economic Equality Efforts**\
 `U.S. Federal Reserve chair Jerome Powell tried to address economic inequalities in his landmark policy move. Still the Fed holding rates lower-for-longer may support bulging asset prices - which is unlikely to benefit the neediest and could well widen the wealth gap in the near term.`\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-fed-jacksonhole-stocks-analysis.html?searchResultPosition=8
-
-**Russian Navy Conducts Major Maneuvers Near Alaska**\
-`The Russian navy conducted major war games near Alaska involving dozens of ships and aircraft, the military said Friday, the biggest such drills in the area since Soviet times. `\
-https://nytimes.com/aponline/2020/08/28/world/europe/ap-eu-russia-navy-drills.html?searchResultPosition=9
-
-**TikTok Influencers Say 'Everybody Is Going to Take a Big Hit'**\
-`In a luxury mansion in the Hollywood Hills, young TikTok influencers bounced around on a bright sunny morning this week trying out new ideas for zany short form videos that they hope will go viral.`\
-https://nytimes.com/reuters/2020/08/28/technology/28reuters-usa-tiktok-influencers.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/28/business/28reuters-usa-fed-jacksonhole-stocks-analysis.html?searchResultPosition=10
 
