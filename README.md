@@ -1,40 +1,40 @@
+**Dollar Climbs Against Yen as Fed's Inflation Shift Drives Yields Higher**\
+`The dollar hit a two-week high against Japan's yen on Friday, supported by U.S. bond yields, which rose on the Federal Reserve's aggressive new strategy to lift employment and an increased tolerance for higher inflation.`\
+https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-global-forex.html?searchResultPosition=1
+
+**Japan, Eyeing Olympics, Lines Up Half-Billion Doses of COVID-19 Vaccine**\
+`Japan is making an aggressive move to grab enough coronavirus vaccine to inoculate its population four times over, a push the government hopes will instil confidence that it can host a delayed summer Olympics next year.`\
+https://nytimes.com/reuters/2020/08/28/sports/olympics/28reuters-health-coronavirus-vaccine-japan.html?searchResultPosition=2
+
+**What’s on TV Friday: ‘Following’ and ‘The Roads Not Taken’**\
+`Revisit Christopher Nolan’s debut feature. Or stream the latest movie from the filmmaker Sally Potter.`\
+https://nytimes.com/2020/08/28/arts/television/whats-on-tv-friday-following-and-the-roads-not-taken.html?searchResultPosition=3
+
+**MLB Roundup: Reds Post DH Sweep of Brewers**\
+`Wade Miley allowed one hit over four strong innings, while Nick Castellanos and Jesse Winker provided offensive help as the visiting Cincinnati Reds completed a doubleheader sweep of the Milwaukee Brewers with a 6-0 win in Thursday's nightcap.`\
+https://nytimes.com/reuters/2020/08/28/sports/baseball/28reuters-baseball-mlb-roundup.html?searchResultPosition=4
+
 **Corrections: Aug. 28, 2020**\
 `Corrections that appeared in print on Friday, Aug. 28, 2020.`\
-https://nytimes.com/2020/08/28/pageoneplus/corrections-aug-28-2020.html?searchResultPosition=1
+https://nytimes.com/2020/08/28/pageoneplus/corrections-aug-28-2020.html?searchResultPosition=5
 
 **Quotation of the Day: Fed Chair Paves Way for a Period of Lower Rates**\
 `Quotation of the Day for Friday, August 28, 2020.`\
-https://nytimes.com/2020/08/28/todayspaper/quotation-of-the-day-fed-chair-paves-way-for-a-period-of-lower-rates.html?searchResultPosition=2
+https://nytimes.com/2020/08/28/todayspaper/quotation-of-the-day-fed-chair-paves-way-for-a-period-of-lower-rates.html?searchResultPosition=6
 
 **Japan PM Abe Says Aims to Secure Coronavirus Vaccine for All Citizens by Mid-2021**\
 `Japanese Prime Minister Shinzo Abe announced new measures to fight the coronavirus pandemic on Friday, including boosting testing capability to 200,000 tests per day and aiming to secure enough vaccines for all citizens by mid-2021.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-measures.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-measures.html?searchResultPosition=7
 
 **Trump Assails Rival Biden in White House Speech Accepting Nomination**\
 `A defiant President Donald Trump accepted the Republican nomination for a second term on Thursday with a scathing attack on rival Joe Biden, asserting that a Democratic victory in November would only exacerbate the racial strife and coronavirus pandemic besieging the nation.`\
-https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-usa-election-convention.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/28/us/politics/28reuters-usa-election-convention.html?searchResultPosition=8
 
 **Mets GM Van Wagenen Apologizes for Manfred Criticism**\
 `After a video surfaced of him criticizing Major League Baseball commissioner Rob Manfred, New York Mets general manager Brodie Van Wagenen apologized Thursday for misconstruing the situation.`\
-https://nytimes.com/reuters/2020/08/28/sports/baseball/28reuters-baseball-mlb-nym-van-wagenen-apology.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/08/28/sports/baseball/28reuters-baseball-mlb-nym-van-wagenen-apology.html?searchResultPosition=9
 
 **Oil Steady as U.S. Producers, Refiners Avoid Worst of Storm**\
 `Oil prices fell on Friday as a massive storm raced inland past the heart of the U.S. oil industry in Louisiana and Texas without causing any widespread damage to refineries.        `\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-global-oil.html?searchResultPosition=6
-
-**Trump Stomps on the Rules, but the Pandemic Isn’t as Easily Trampled**\
-`“We’re here and they’re not.” The president shows that he didn’t need a party in a big arena when the White House lawn was available.`\
-https://nytimes.com/2020/08/28/us/politics/trump-convention-speech-white-house.html?searchResultPosition=7
-
-**Trump Promises Tariffs on Companies That Leave U.S. to Create Jobs Overseas**\
-`U.S. President Donald Trump said on Thursday that if he was re-elected, his administration would impose tariffs on any company that leaves the United States to create jobs elsewhere.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-usa-election-convention-tariffs.html?searchResultPosition=8
-
-**A Week to Change My Life': Lawlor on European Tour Debut**\
-`Brendan Lawlor shot a 12-over-par 84 in the first round of the UK Championship but the 22-year-old, who became the first golfer with disabilities to compete on the European Tour on Thursday, said scoring is immaterial in a week that will change his life.`\
-https://nytimes.com/reuters/2020/08/28/sports/golf/28reuters-golf-european.html?searchResultPosition=9
-
-**Reports: Hall of Fame Coach Olson Dead at 85**\
-`Hall of Fame college basketball coach Lute Olson, who won 776 games over 34 seasons and led the Arizona Wildcats to the 1997 NCAA championship, died Thursday, multiple outlets reported.`\
-https://nytimes.com/reuters/2020/08/28/sports/basketball/28reuters-basketball-ncaa-ari-lute-olson-obit.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/28/business/28reuters-global-oil.html?searchResultPosition=10
 
