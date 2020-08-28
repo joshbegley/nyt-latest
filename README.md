@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-lebanon-crisis-con
 `The Pittsburgh Pirates and Milwaukee Brewers are set to play baseball Friday at Miller Park, but that doesn't mean they are overlooking the civil unrest and Black Lives Matter protests that have spread across the country.`\
 https://nytimes.com/reuters/2020/08/28/sports/28reuters-basketball-mlb-mil-pit-preview.html?searchResultPosition=7
 
-**Ukraine Has Frozen Dialogue With Belarus: Foreign Minister**\
+**Ukraine Has Frozen Dialogue With Belarus - Foreign Minister**\
 `Ukraine has frozen contact with Belarus and joined the European Union in condemning the recent elections in its northerly neighbour as not free or fair, Foreign Minister Dmytro Kuleba said on Friday.`\
 https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-belarus-election-ukraine.html?searchResultPosition=8
 
