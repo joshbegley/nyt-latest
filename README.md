@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/08/28/world/europe/ap-eu-poland-elephants-hemp
 `Two people have died and a third is critically injured after a helicopter crashed into a residential area in Nigeria’s most populous city, Lagos, authorities said Friday.`\
 https://nytimes.com/aponline/2020/08/28/world/africa/ap-af-nigeria-helicopter-crash.html?searchResultPosition=5
 
-**Men Killed, Wounded Joined Kenosha Protests, Engaged Gunman**\
+**Victims of Shooting During Kenosha Protest Engaged Gunman**\
 `A man known for his love of skateboarding, a Texas transplant to the state and a college student acting as a volunteer medic were killed or wounded this week by a 17-year-old gunman amid chaos on the streets of Kenosha, Wisconsin. `\
 https://nytimes.com/aponline/2020/08/28/us/ap-us-police-shooting-wisconsin-protest-victims-.html?searchResultPosition=6
 
