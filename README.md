@@ -1,40 +1,40 @@
-**Nobel Laureate Author Emerges as Powerful Voice Backing Belarus Protests**\
-`Wielding a bunch of flowers and surrounded by clapping supporters, Belarus's most celebrated writer has lent a powerful voice to the opposition against President Alexander Lukashenko, even if she has so far balked at taking a leadership role.`\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-belarus-election-alexievich.html?searchResultPosition=1
+**Polar Bear Kills Man in Norway's Arctic Svalbard Archipelago**\
+`A man was killed by a polar bear in the Norwegian Arctic Svalbard islands early on Friday, local authorities said, the first such deadly incident in nine years.`\
+https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-norway-polarbear.html?searchResultPosition=1
 
-**Kremlin Regrets Japan PM Abe's Decision to Step Down**\
-`The Kremlin regrets that Japan's Prime Minister Shinzo Abe has decided to step down, spokesman Dmitry Peskov said on Friday, describing the working relations between Abe and President Vladimir Putin as 'brilliant'. `\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-japan-politics-abe-resignation-kremlin.html?searchResultPosition=2
+**West African Leaders to Push Mali Junta to Hand Over Power Within a Year**\
+`West African leaders seeking a return to democracy in Mali will on Friday demand that the military junta that ousted the president in a coup last week appoint a civilian head of government to oversee a transition lasting no more than a year.`\
+https://nytimes.com/reuters/2020/08/28/world/africa/28reuters-mali-security.html?searchResultPosition=2
 
-**UK PM Johnson Says Japan's Abe Achieved Great Things**\
-`British Prime Minister Boris Johnson on Friday praised the record of Japanese premier Shinzo Abe, who announced his resignation earlier because of poor health.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-britain.html?searchResultPosition=3
+**New Zealand Investigating Stock Market Cyber Attacks**\
+`New Zealand’s government and its foreign spy agency are getting involved after cyber attacks disrupted trading on the nation’s stock market several times this week. `\
+https://nytimes.com/aponline/2020/08/28/business/ap-new-zealand-cyber-attack.html?searchResultPosition=3
 
-**Merkel Warns Coronavirus Situation to Get More Difficult Over Winter**\
-`German Chancellor Angela Merkel said on Friday the coronavirus pandemic will make things more difficult in the coming months and over the winter.`\
-https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-germany-merkel-virus.html?searchResultPosition=4
+**Finding Hope and Their Own Magical Moments**\
+`The musician Alexi Paraschos found joy in creating a video of happy wedding scenes during the pandemic. They included his own wedding to Chelsea Holmes.`\
+https://nytimes.com/2020/08/28/fashion/weddings/finding-hope-and-their-own-magical-moments.html?searchResultPosition=4
 
-**UK Lawmakers, Union Call for Extra State Help for Aviation Sector**\
-`More than 100 British lawmakers have joined forces with trade union Unite to urge the government to provide extra state support to airlines and airports as travel slumps due to the coronavirus pandemic and job losses increase. `\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-health-coronavirus-britain-airlines.html?searchResultPosition=5
+**Saudi-Led Coalition Says Destroys Houthi Drone: Saudi Press Agency**\
+`The Saudi-led coalition fighting the Houthis in Yemen said it intercepted and destroyed on Friday an explosives-laden drone launched by the Iran-aligned group in the direction of Saudi Arabia, the state-run Saudi Press Agency reported.`\
+https://nytimes.com/reuters/2020/08/28/world/middleeast/28reuters-yemen-security-saudi.html?searchResultPosition=5
 
-**UK Encourages Workers to Return to the Office**\
-`The British government is encouraging workers to return to their offices amid concern that the number of people working from home during the coronavirus pandemic is hurting coffee bars, restaurants and other businesses in city centers.`\
-https://nytimes.com/aponline/2020/08/28/business/ap-eu-virus-outbreak-britain.html?searchResultPosition=6
+**Amsterdam Ends 'Experiment' With Mandatory Face Masks**\
+`The city of Amsterdam said on Friday it was ending an experiment with mandating the use of face masks in crowded public spaces as a way to slow the spread of coronavirus, as the peak of the tourism season has passed.`\
+https://nytimes.com/reuters/2020/08/28/world/europe/28reuters-health-coronavirus-amsterdam-masks.html?searchResultPosition=6
 
-**El Al to Fly Israel's First Flight to UAE by Commercial Carrier, Airport Timetable Shows**\
-`El Al Airlines  on Monday will fly Israel's first flight to the United Arab Emirates by a commercial carrier, a timetable on the Israel Airports Authority's website showed, as the countries forge ahead with a deal to normalise ties. `\
-https://nytimes.com/reuters/2020/08/28/world/middleeast/28reuters-israel-emirates-flight.html?searchResultPosition=7
+**Bayer Acknowledges 'Bumps' in $11 Billion Roundup Deal After Judge Raises Doubts**\
+`Shares in German drugs company Bayer AG fell 3% on Friday after it said there were "bumps" in sealing its $11 billion settlement of U.S. lawsuits over its Roundup weed killer after a U.S. judge cast doubt on the progress of the agreement.`\
+https://nytimes.com/reuters/2020/08/28/business/28reuters-bayer-lawsuit.html?searchResultPosition=7
 
-**Police Say Lightning Kills 10 Children in Remote Uganda Town**\
-`Ten children have been killed in a lightning strike in a remote Ugandan town near the Congo border, Ugandan police said Friday. `\
-https://nytimes.com/aponline/2020/08/28/world/africa/ap-af-uganda-deadly-lightning-.html?searchResultPosition=8
+**Donald Trump Jr.’s Journey to Republican Stardom**\
+`Once, he was consigned to the sidelines of his father’s endeavors. Now he could be his political heir.`\
+https://nytimes.com/2020/08/28/podcasts/the-daily/donald-trump-junior-campaign.html?searchResultPosition=8
 
-**Exclusive: Facebook Says Apple Rejected Its Attempt to Tell Users About App Store Fees**\
-`Facebook Inc on Thursday told Reuters that Apple Inc rejected its attempt to tell users the iPhone maker would take a 30% cut of sales in a new online events feature, forcing Facebook to remove the message to get the tool to users.`\
-https://nytimes.com/reuters/2020/08/28/business/28reuters-facebook-apple-exclusive.html?searchResultPosition=9
+**When Plans Are Meant to be Changed**\
+`Sophie Turnbull was ready to return to Australia after finishing a master’s program at Harvard. Then she met Tyler Bosmeny, and her plans changed.`\
+https://nytimes.com/2020/08/28/fashion/weddings/when-plans-are-meant-to-be-changed.html?searchResultPosition=9
 
-**Factbox: International Reaction to Resignation of Japan's PM Abe**\
-`Japanese Prime Minister Shinzo Abe, the nation's longest serving premier, said on Friday he is resigning due to health reasons.`\
-https://nytimes.com/reuters/2020/08/28/world/asia/28reuters-japan-politics-abe-reaction-factbox.html?searchResultPosition=10
+**Back to Where They Started**\
+`Sydney Spector and Brock Glover were married in Hawaii in what they call a twice-in-a-lifetime adventure.`\
+https://nytimes.com/2020/08/28/fashion/weddings/back-to-where-they-started.html?searchResultPosition=10
 
