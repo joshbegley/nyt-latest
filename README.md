@@ -1,4 +1,4 @@
-**Japan-US Confirm Bilateral Treaty Covers Isles Disputed With China, Kono Says**\
+**Japan-U.S. Confirm Bilateral Treaty Covers Isles Disputed With China, Kono Says**\
 `Japan Defense Minister Taro Kono said on Saturday he had confirmed with his U.S. counterpart Mark Esper that islands in the East China Sea disputed by Japan and China are covered by the U.S.-Japan security treaty.`\
 https://nytimes.com/reuters/2020/08/29/world/asia/29reuters-japan-us-defense.html?searchResultPosition=1
 
