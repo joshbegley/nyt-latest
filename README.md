@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/08/29/world/europe/29reuters-syria-security-un.
 https://nytimes.com/2020/08/29/opinion/sunday/trump-protests-law.html?searchResultPosition=5
 
 **Hurricane-Related Shut-Ins Curb 82% of Oil, 59% of Natural Gas Output in U.S. Gulf of Mexico, Regulator Says**\
-`U.S. energy companies continued to restaff offshore oil and gas production facilities in the U.S. Gulf of Mexico on Saturday, according to data released by the U.S. Department of Interior.`\
+`U.S. energy companies on Saturday continued to restaff offshore oil and gas production facilities in the U.S. Gulf of Mexico, according to data released by the U.S. Department of Interior.`\
 https://nytimes.com/reuters/2020/08/29/business/29reuters-storm-laura-energy.html?searchResultPosition=6
 
 **Don’t Let Eviction Become a Superspreader**\
