@@ -2,7 +2,7 @@
 `Michael Hawkins leaves us stranded on a corner.`\
 https://nytimes.com/2020/08/28/crosswords/daily-puzzle-2020-08-29.html?searchResultPosition=1
 
-**A's, Astros Walked Off Field in Protest, Game Postponed**\
+**A's, Astros Walk Off Field in Protest, Game Postponed**\
 `The Houston Astros and Oakland Athletics jointly walked off the field following a moment of silence, draping a Black Lives Matter T-shirt across home plate as they chose not to play on Friday night.`\
 https://nytimes.com/aponline/2020/08/28/sports/baseball/bc-bba-athletics-astros-protest-postponement.html?searchResultPosition=2
 
