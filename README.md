@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/08/29/world/europe/29reuters-europe-migrants-banksy-alarm.html?searchResultPosition=1
 
 **Protest in Mauritius Over Oil Spill, Dozens of Dead Dolphins**\
-`Honking and drumming, hundreds of people have begun protesting in the capital of Mauritius over the government’s handling of an oil spill from a grounded Japanese ship and the alarming discovery of dozens of dead dolphins in recent days.`\
+`Honking and drumming, thousands of people protested Saturday in the capital of Mauritius over the government’s handling of an oil spill from a grounded Japanese ship and the alarming discovery of dozens of dead dolphins in recent days.`\
 https://nytimes.com/aponline/2020/08/29/business/ap-af-mauritius-oil-spill-protest.html?searchResultPosition=2
 
 **Latest on the Worldwide Spread of Coronavirus**\
