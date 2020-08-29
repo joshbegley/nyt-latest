@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/08/29/sports/baseball/ap-bbn-giants-diamondbac
 `Protesters took to the condo lobby of Portland's mayor Friday night as Oregon protests against racial injustice persist. `\
 https://nytimes.com/aponline/2020/08/29/us/ap-us-portland-protests.html?searchResultPosition=8
 
-**The Latest: Malaysia Extends Ban on Foreign Tourists**\
-`KUALA LUMPUR, Malaysia — Malaysia has extended its pandemic movement restrictions including a ban on foreign tourists until the end of the year. `\
+**The Latest: India Records Over 76,000 Cases, Ramps Up Tests**\
+`NEW DELHI — India has recorded 76,472 new coronavirus cases in the past 24 hours, raising its tally to over 3.4 million. A country of 1.4 billion people, India now has the fastest-growing caseload in the world. `\
 https://nytimes.com/aponline/2020/08/29/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
 
 **Attorney for Accused Kenosha Protest Gunman Says Teen Acted in Self-Defense**\
