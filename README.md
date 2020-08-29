@@ -1,40 +1,40 @@
+**Nurses on NY's Front Lines Call for Minimum Staffing Ratios**\
+`Nurses on the front lines of New York’s COVID-19 pandemic are calling for the state to enact minimum staffing standards ahead of another wave of infections.`\
+https://nytimes.com/aponline/2020/08/29/us/ap-us-virus-outbreak-staffing-levels-1st-ld-writethru.html?searchResultPosition=1
+
+**Zuckerberg Says Facebook Erred in Not Removing Militia Post**\
+`Facebook made a mistake in not removing a militia group's page earlier this week that called for armed civilians to enter Kenosha, Wisconsin, amid violent protests after police shot Jacob Blake, CEO Mark Zuckerberg says.`\
+https://nytimes.com/aponline/2020/08/29/business/ap-us-facebook-kenosha.html?searchResultPosition=2
+
+**Brazil's Pantanal, World's Largest Wetland, Burns From Above and Below**\
+`The world's largest wetland is ablaze, but the fire is often invisible.`\
+https://nytimes.com/reuters/2020/08/29/world/americas/29reuters-brazil-environment-fires.html?searchResultPosition=3
+
 **Mayor: Police Overtime Bill to Teen Over Protest Rescinded**\
 `The mayor of a northern New Jersey town says a bill for police overtime reportedly totaling $2,500 that was sent to a teenager who organized a Black Lives Matter rally last month has been rescinded.`\
-https://nytimes.com/aponline/2020/08/29/us/ap-us-blm-protest-police-overtime-bill.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/29/us/ap-us-blm-protest-police-overtime-bill.html?searchResultPosition=4
 
 **Former Trail Blazers Star Robinson Dies at 53**\
 `Former NBA All-Star and Sixth Man of the Year Clifford Robinson has died at the age of 53.`\
-https://nytimes.com/reuters/2020/08/29/sports/basketball/29reuters-basketball-nba-por-obit-robinson.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/29/sports/basketball/29reuters-basketball-nba-por-obit-robinson.html?searchResultPosition=5
 
 **Anger After French Magazine Depicts Black Lawmaker as Slave**\
 `A French magazine apologized Saturday after portraying a Black lawmaker as a slave, as France's government and officials across the political spectrum decried the publication.`\
-https://nytimes.com/aponline/2020/08/29/world/europe/ap-eu-france-racial-injustice-1st-ld-writethru.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/29/world/europe/ap-eu-france-racial-injustice-1st-ld-writethru.html?searchResultPosition=6
 
 **Athlete Power: ‘Shut Up and Play' Is Tossed From the Game**\
 `With every get-out-the-vote campaign, every shutdown of a major sport, every detailed list of actions by athletes demanding change, one new reality comes into sharper focus: The days of “shut up and play” are winding down. `\
-https://nytimes.com/aponline/2020/08/29/sports/ap-athlete-power.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/29/sports/ap-athlete-power.html?searchResultPosition=7
 
 **Top Brazil Official Says No Halt to Amazon Protections**\
 `Brazil’s environment ministry said it will continue operations to curb deforestation and fires in the Amazon and other regions, reversing an earlier announcement that it would halt such operations starting Monday.`\
-https://nytimes.com/aponline/2020/08/29/world/americas/ap-lt-brazil-rainforest.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/29/world/americas/ap-lt-brazil-rainforest.html?searchResultPosition=8
 
 **Shiite Muslims Mark Holy Day of Mourning in Virus' Shadow**\
 `Shiite Muslims are observing the solemn holy day of Ashoura that they typically mark with large, mournful gatherings, in the shadow of the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/08/29/us/ap-rel-islam-ashoura.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/29/us/ap-rel-islam-ashoura.html?searchResultPosition=9
 
 **Scores Injured as Police Break Up Muslim March in Kashmir**\
 `Government forces on Saturday fired shotgun pellets and tear gas to disperse hundreds of Shia Muslims participating in a traditional religious procession in the Indian-controlled Kashmir, injuring scores, eyewitnesses said.`\
-https://nytimes.com/aponline/2020/08/29/world/asia/ap-as-kashmir-violence-muharram-procession.html?searchResultPosition=7
-
-**Pakistan Jails Three Men Linked to Group Accused of Mumbai Attack**\
-`A court in Pakistan has sentenced to prison three leaders of Jamat-ud-Dawa, an organisation accused by India and the United States of masterminding the 2008 attacks in Mumbai.`\
-https://nytimes.com/reuters/2020/08/29/world/asia/29reuters-pakistan-court-fatf.html?searchResultPosition=8
-
-**Normalcy Returning to Pakistan's Monsoon-Drenched Karachi**\
-`Normalcy began slowly returning to Pakistan's financial capital Karachi on Saturday after flood waters from days of monsoon rains that killed 47 people receded, enabling relief work in the city of 15 million.`\
-https://nytimes.com/aponline/2020/08/29/world/asia/ap-as-pakistan-rains.html?searchResultPosition=9
-
-**Reliance to Buy Future Group's Retail Arm for $3.38 Billion**\
-`Mukesh Ambani-led Reliance Industries said on Saturday it has agreed to acquire the retail and wholesale business and the logistics and warehousing business of Future Group in a deal valued at $3.38 billion, including debt.`\
-https://nytimes.com/reuters/2020/08/29/business/29reuters-future-enterprises-m-a-reliance-industries.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/29/world/asia/ap-as-kashmir-violence-muharram-procession.html?searchResultPosition=10
 
