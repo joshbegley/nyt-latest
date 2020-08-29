@@ -30,7 +30,7 @@ https://nytimes.com/aponline/2020/08/28/us/ap-us-george-floyd-investigation.html
 `Elon Musk isn't content with electric cars, shooting people into orbit, populating Mars and building underground tunnels to solve traffic problems. He also wants to get inside your brain.`\
 https://nytimes.com/aponline/2020/08/28/business/ap-us-musk-neuralink-demo.html?searchResultPosition=8
 
-**Jacob Blake Was Shackled in Hospital Bed After Police Shooting**\
+**Jacob Blake Was Shackled in Hospital Bed After Police Shot Him**\
 `The authorities said an earlier sexual assault charge was the reason for the restraints, which were removed on Friday.`\
 https://nytimes.com/2020/08/28/us/jacob-blake-shackles-assault.html?searchResultPosition=9
 
