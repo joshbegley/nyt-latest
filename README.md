@@ -34,7 +34,7 @@ https://nytimes.com/2020/08/29/health/Covid-obamacare-uninsured.html?searchResul
 `In ad campaigns for designers like Valentino and Tommy Hilfiger, race-conscious casting matters now. Is it progress, or is it cynicism?`\
 https://nytimes.com/2020/08/29/style/black-models-fashion-advertising.html?searchResultPosition=9
 
-**The U.S. Open Is Looking a Bit Closed**\
-`Because of the coronavirus, there will be no fans in the stands and several top players just won’t be coming.`\
-https://nytimes.com/2020/08/29/sports/tennis/us-open-coronavirus-new-york.html?searchResultPosition=10
+**Why Does the W.N.B.A. #SayHerName? Ask Angel McCoughtry**\
+`McCoughtry, a star veteran on the Las Vegas Aces, has been praised for suggesting that the W.N.B.A. include Breonna Taylor’s name on its jerseys.`\
+https://nytimes.com/2020/08/29/sports/basketball/Angel-McCoughtry-breonna-taylor.html?searchResultPosition=10
 
