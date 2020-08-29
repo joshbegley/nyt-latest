@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/08/28/sports/baseball/ap-bba-royals-white-sox.
 https://nytimes.com/2020/08/28/insider/TV-listings-ending.html?searchResultPosition=9
 
 **Chadwick Boseman, Who Starred in ‘Black Panther,’ Is Mourned as a ‘Superhero’**\
-`Martin Luther King III and former Vice President Joseph R. Biden Jr. were among those who praised the actor, who died on Friday at 43, for his portrayals of Black leaders.`\
+`Oprah Winfrey, Martin Luther King III and Joseph R. Biden Jr. were among those who praised the actor, who died on Friday at 43, for his portrayals of Black leaders.`\
 https://nytimes.com/2020/08/28/arts/chadwick-boseman-reaction.html?searchResultPosition=10
 
