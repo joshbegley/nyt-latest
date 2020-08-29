@@ -1,40 +1,40 @@
+**'Black Panther' Film Star Chadwick Boseman Dead at 43, After Cancer Battle**\
+`"Black Panther" film star Chadwick Boseman, an actor whose work celebrated African-American pioneers and culture, has died at age 43 after a four-year battle with colon cancer, according to an announcement posted on Friday to his social media accounts.`\
+https://nytimes.com/reuters/2020/08/29/arts/29reuters-people-chadwick-boseman.html?searchResultPosition=1
+
 **Cricket: Australia 'Blow Cobwebs Out' in Rain-Affected Practice in England**\
 `Australian wicketkeeper-batsman Matthew Wade was pleased to have an opportunity to "blow the cobwebs out" and was confident his bowlers would get enough match practice before their limited overs series against England starts next week.`\
-https://nytimes.com/reuters/2020/08/29/sports/cricket/29reuters-cricket-australia-england.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/29/sports/cricket/29reuters-cricket-australia-england.html?searchResultPosition=2
 
 **Where to Stream Chadwick Boseman’s Best Performances**\
 `The star made a specialty of playing Black heroes real (Jackie Robinson, Thurgood Marshall) and imaginary (Black Panther).`\
-https://nytimes.com/2020/08/29/movies/chadwick-boseman-streaming.html?searchResultPosition=2
+https://nytimes.com/2020/08/29/movies/chadwick-boseman-streaming.html?searchResultPosition=3
 
 **What’s on TV Saturday: ‘Get Duked!’ and NASCAR**\
 `Four teenagers try to escape the Scottish Highlands alive in “Get Duked!” And NASCAR’s regular season finale kicks off in Daytona.`\
-https://nytimes.com/2020/08/29/arts/television/whats-on-tv-saturday-get-duked-and-nascar.html?searchResultPosition=3
+https://nytimes.com/2020/08/29/arts/television/whats-on-tv-saturday-get-duked-and-nascar.html?searchResultPosition=4
 
 **Tokyo Transparent Toilet's Walls Go Opaque When Door Closed**\
 `Now you see them, now you don’t.`\
-https://nytimes.com/aponline/2020/08/29/world/asia/ap-as-japan-transparent-toilets.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/29/world/asia/ap-as-japan-transparent-toilets.html?searchResultPosition=5
 
 **Reyes HR, 5 RBIs, Indians Get 20 Hits, Rout Cardinals 14-2**\
 `Franmil Reyes homered and drove in five runs, Carlos Santana hit a home run and scored four times and the Cleveland Indians routed the St. Louis Cardinals 14-2 Friday night.`\
-https://nytimes.com/aponline/2020/08/29/sports/baseball/ap-bbo-indians-cardinals.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/29/sports/baseball/ap-bbo-indians-cardinals.html?searchResultPosition=6
 
 **Diamondbacks Stop 8-Game Skid, Beat Giants 7-4**\
 `Zac Gallen earned his first win of the season, Starling Marte had two hits and two RBIs and the Arizona Diamondbacks snapped an eight-game losing streak by beating the San Francisco Giants 7-4 on Friday night.`\
-https://nytimes.com/aponline/2020/08/29/sports/baseball/ap-bbn-giants-diamondbacks.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/29/sports/baseball/ap-bbn-giants-diamondbacks.html?searchResultPosition=7
 
 **Protesters Hold Sit-In at Portland Mayor's Condo Building**\
 `Protesters took to the condo lobby of Portland's mayor Friday night as Oregon protests against racial injustice persist. `\
-https://nytimes.com/aponline/2020/08/29/us/ap-us-portland-protests.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/29/us/ap-us-portland-protests.html?searchResultPosition=8
 
 **The Latest: Malaysia Extends Ban on Foreign Tourists**\
 `KUALA LUMPUR, Malaysia — Malaysia has extended its pandemic movement restrictions including a ban on foreign tourists until the end of the year. `\
-https://nytimes.com/aponline/2020/08/29/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/08/29/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
 
 **Attorney for Accused Kenosha Protest Gunman Says Teen Acted in Self-Defense**\
 `A high-profile lawyer representing the 17-year-old boy charged with killing two protesters and wounding another during demonstrations on the streets of Kenosha, Wisconsin, said on Friday that his client had acted in self-defense.`\
-https://nytimes.com/reuters/2020/08/29/us/29reuters-global-race-usa.html?searchResultPosition=9
-
-**Billionaire Steve Cohen Enters Talks to Buy New York Mets: CNBC**\
-`Billionaire hedge fund manager Steve Cohen has entered exclusive negotiations to buy the New York Mets, CNBC reported on Friday, citing numerous unnamed sources.`\
-https://nytimes.com/reuters/2020/08/29/business/29reuters-sports-mets.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/29/us/29reuters-global-race-usa.html?searchResultPosition=10
 
