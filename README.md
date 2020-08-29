@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/08/29/world/asia/ap-as-pakistan-rains.html?sea
 `Mukesh Ambani-led Reliance Industries said on Saturday it has agreed to acquire the retail and wholesale business and the logistics and warehousing business of Future Group in a deal valued at $3.38 billion, including debt.`\
 https://nytimes.com/reuters/2020/08/29/business/29reuters-future-enterprises-m-a-reliance-industries.html?searchResultPosition=5
 
-**Norway's Kristoff Wins Tour De France First Stage**\
-`Norway's Alexander Kristoff won the first stage of the Tour de France, a 156-km ride around Nice on Saturday.`\
+**Kristoff Wins Tour De France First Stage as Pinot Crashes**\
+`Alexander Kristoff won the opening stage of the Tour de France, while Thibaut Pinot was one of several riders to take a tumble on a rain-hit ride on Saturday.`\
 https://nytimes.com/reuters/2020/08/29/sports/cycling/29reuters-cycling-france-kristoff.html?searchResultPosition=6
 
 **Belarus Cracks Down on Journalists, 2 AP Staff Deported**\
