@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/08/30/world/asia/ap-as-taiwan-czech-republic.h
 `Jo Adell hit his first two major league home runs, Mike Trout drove in six and the Los Angeles Angels set a season high in runs as they routed the Seattle Mariners 16-3 Saturday night.`\
 https://nytimes.com/aponline/2020/08/30/sports/baseball/bc-bba-mariners-angels.html?searchResultPosition=7
 
-**One Shot Dead as Rival Protesters Clash in Portland**\
+**One Shot Dead in Portland as Rival Protesters Clash**\
 `One person was shot dead in Portland late on Saturday as protesters from rival groups clashed in the northwest U.S. city, which has seen frequent demonstrations for months that have at times turned violent.`\
 https://nytimes.com/reuters/2020/08/30/us/30reuters-global-race-portland-protests.html?searchResultPosition=8
 
