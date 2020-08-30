@@ -1,40 +1,40 @@
+**Lebanon’s Powerhouse Hezbollah Hit by Backlash After Blast**\
+`Sara Jaafar joined a group of political activists gathered on Aug. 4 to discuss strategies to challenge Lebanon’s entrenched rulers when their building was shaken and the windows blasted out by the giant explosion that rocked Beirut. `\
+https://nytimes.com/aponline/2020/08/30/world/middleeast/ap-ml-lebanon-blaming-hezbollah.html?searchResultPosition=1
+
+**Breonna Taylor’s Life Was Changing. Then the Police Came to Her Door.**\
+`An ex-boyfriend’s run-ins with the law entangled her even as she tried to move on. Interviews, documents and jailhouse recordings help explain how she landed in the middle of a deadly drug raid.`\
+https://nytimes.com/2020/08/30/us/breonna-taylor-police-killing.html?searchResultPosition=2
+
+**‘A Hail Mary’: Psychedelic Therapy Draws Veterans to Jungle Retreats**\
+`Ayahuasca, a vomit-inducing hallucinogenic brew, draws thousands of people each year — including former soldiers — to jungle retreats that have become an unlicensed and unregulated mental health marketplace.`\
+https://nytimes.com/2020/08/30/world/americas/psychedelics-therapy-war-stress.html?searchResultPosition=3
+
+**New Yorkers Are Fleeing to the Suburbs: ‘The Demand Is Insane’**\
+`The pandemic is spurring home sales as prosperous city residents seek more space. One listing had 97 showings and received 24 offers.`\
+https://nytimes.com/2020/08/30/nyregion/nyc-suburbs-housing-demand.html?searchResultPosition=4
+
+**The Pandemic’s Secret Formula: Backyard Workouts and Lots of Sleep**\
+`Limitations imposed by the coronavirus have helped, not hurt, the performances of some world-class athletes.`\
+https://nytimes.com/2020/08/30/sports/olympics/pandemic-olympics-training.html?searchResultPosition=5
+
+**Looking to Reopen, Colleges Become Labs for Coronavirus Tests and Tracking Apps**\
+`Universities are pioneering technology that could help society combat the pandemic.`\
+https://nytimes.com/2020/08/30/us/colleges-coronavirus-research.html?searchResultPosition=6
+
+**‘I Turned to See a Man Behind Me Wearing a Sweater That I Also Own’**\
+`Bonding at a butcher shop, a rainy day ode and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2020/08/30/nyregion/metropolitan-diary.html?searchResultPosition=7
+
 **After Deciding to Stay, Lakers Could Be in Bubble a While**\
 `There was a point this week when LeBron James and the Lakers weren't sure they would remain in the bubble.`\
-https://nytimes.com/aponline/2020/08/30/sports/basketball/ap-bkn-lakers-advance.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/30/sports/basketball/ap-bkn-lakers-advance.html?searchResultPosition=8
 
 **Restaurant Collapse in China's Shanxi Kills 29**\
 `Twenty-nine people were killed and seven seriously injured when a restaurant collapsed in northern China's Shanxi province, the country's emergencies ministry media said on Sunday.`\
-https://nytimes.com/reuters/2020/08/30/world/asia/30reuters-china-accident.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/30/world/asia/30reuters-china-accident.html?searchResultPosition=9
 
 **Anti-Racism Protesters Rally in Kenosha, Trump Plans Visit**\
 `About 1,000 people joined a mile-long march in Kenosha, Wisconsin on Saturday, chanting "Black Lives Matter" and "No Justice, No Peace" as U.S. President Donald Trump announced plans to visit the violence-rocked city next week.`\
-https://nytimes.com/reuters/2020/08/30/us/30reuters-global-race-usa.html?searchResultPosition=3
-
-**Trump to Visit Wisconsin City on Tuesday Where Police Shot Black Man in the Back**\
-`U.S. President Donald Trump on Tuesday will visit Kenosha, Wisconsin, the city that has seen unrest since a white police officer shot a Black man in the back, a White House official told reporters on Saturday.  `\
-https://nytimes.com/reuters/2020/08/30/us/30reuters-global-race-usa-wisconsin-trump.html?searchResultPosition=4
-
-**MLB Roundup: Walker Sharp in Blue Jays Debut**\
-`Taijuan Walker pitched six scoreless innings in his Toronto Blue Jays debut and Vladimir Guerrero Jr. and Cavan Biggio each had two RBIs in a 5-0 victory over the Baltimore Orioles on Saturday night at Buffalo.`\
-https://nytimes.com/reuters/2020/08/30/sports/baseball/30reuters-baseball-mlb-roundup.html?searchResultPosition=5
-
-**What Happens When Pandemic Locks Down a Globe-Trotting Pope?**\
-`On the March day that Italy recorded its single biggest jump in coronavirus fatalities, Pope Francis emerged from lockdown to offer an extraordinary prayer and plea to his flock to reassess their priorities, arguing the virus had proved they needed one another. `\
-https://nytimes.com/aponline/2020/08/30/world/europe/ap-eu-rel-vatican-the-pope-and-the-pandemic.html?searchResultPosition=6
-
-**NHL Roundup: Lightning Put Bruins on Verge of Elimination**\
-`Ondrej Palat scored two goals to lead Tampa Bay to a 3-1 victory over the Boston Bruins on Saturday afternoon in Toronto, putting the Lightning on the cusp of reaching the next round in the Stanley Cup playoffs.`\
-https://nytimes.com/reuters/2020/08/30/sports/hockey/30reuters-icehockey-nhl-roundup.html?searchResultPosition=7
-
-**NBA Roundup: Lakers Defeat Trail Blazers, Advance to Semis**\
-`Anthony Davis scored 43 points and LeBron James added 36 to lead the Los Angeles Lakers to a 131-122 victory over the Portland Trail Blazers on Saturday night near Orlando to win the Western Conference first-round series in five games.`\
-https://nytimes.com/reuters/2020/08/30/sports/basketball/30reuters-basketball-nba-roundup.html?searchResultPosition=8
-
-**Canals, Carpets and Kisses: Fun Moments From Venice Festival**\
-`It starts with a boat ride in, and for the lucky few, ends with a kiss on the side of the trophy.`\
-https://nytimes.com/aponline/2020/08/30/world/europe/ap-eu-venice-film-festival-photo-gallery.html?searchResultPosition=9
-
-**Israel Hopes for Washington Signing Ceremony on UAE Deal by Mid-September**\
-`Israel hopes to hold a signing ceremony in Washington for its normalisation deal with the United Arab Emirates by mid-September, a member of Prime Minister Benjamin Netanyahu's cabinet said on Sunday.`\
-https://nytimes.com/reuters/2020/08/30/world/middleeast/30reuters-israel-emirates-usa.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/30/us/30reuters-global-race-usa.html?searchResultPosition=10
 
