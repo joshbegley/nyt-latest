@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-belarus-election-p
 `Olaf Scholz, a candidate to succeed Angela Merkel as chancellor, on Sunday condemned protestors who stormed the steps of Germany's Reichstag parliament building, some of them holding far-right flags.`\
 https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-health-coronavirus-germany-protests.html?searchResultPosition=7
 
-**Migrants Overwhelm Italian Island; Islanders Launch Protest**\
-`The arrival of hundreds of migrants crammed into a rickety fishing boat has worsened the severe overcrowding at shelters on a tiny Italian island, triggering an angry demonstration by islanders and a vow Sunday by the mayor to call a protest strike. `\
+**State TV: 4 Migrants Die in Fire on Boat Off Italian Coast**\
+`Fire erupted on a migrants’ sailboat off the coast of southern Italy on Sunday, and Italian news reports said at least four perished and others were missing in the sea, the latest drama in the nation’s struggle to deal with hundreds of migrants reaching its shores this summer. `\
 https://nytimes.com/aponline/2020/08/30/world/europe/ap-eu-italy-migrants.html?searchResultPosition=8
 
 **AP Source: Jaguars Trading Ngakoue to Vikings for 2 Picks**\
