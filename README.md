@@ -2,7 +2,7 @@
 `Russian President Vladimir Putin and Belarusian leader Alexander Lukashenko have agreed to meet in Moscow in the next few weeks, the Kremlin said on Sunday.`\
 https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-belarus-election-putin-lukashenko.html?searchResultPosition=1
 
-**1 Killed as Trump Supporters, Protesters Clash in Portland**\
+**Trump Supporters, Protesters Clash in Portland; 1 Killed**\
 `One person was shot and killed late Saturday in Portland, Oregon, as a large caravan of President Donald Trump supporters and Black Lives Matter protesters clashed in the streets, police said.`\
 https://nytimes.com/aponline/2020/08/30/us/ap-us-portland-protests.html?searchResultPosition=2
 
