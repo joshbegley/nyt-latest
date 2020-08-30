@@ -23,7 +23,7 @@ https://nytimes.com/2020/08/30/opinion/turkey-greece-oil-gas.html?searchResultPo
 https://nytimes.com/aponline/2020/08/30/business/bc-us-california-wildfires-wine-country.html?searchResultPosition=6
 
 **UK Records 1,715 Daily Confirmed Cases of COVID-19**\
-`The United Kingdom recorded 1,715 daily confirmed cases of COVID-19, according to government data on Sunday, compared with 1,108 a day earlier.`\
+`The United Kingdom recorded 1,715 daily confirmed cases of COVID-19, according to government data on Sunday, the highest level since June 4.`\
 https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-health-coronavirus-britain-cases.html?searchResultPosition=7
 
 **Taliban Violated Afghan Deal With Shelling of American Bases, U.S. Officials Say**\
