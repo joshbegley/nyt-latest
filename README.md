@@ -1,40 +1,40 @@
-**British Universities Should Not Reopen Next Month, Says Union**\
-`British universities should scrap plans to reopen next month to prevent travelling students from fuelling the country's coronavirus pandemic, a union said, calling for courses to be taught online.`\
-https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-health-coronavirus-britain-universities.html?searchResultPosition=1
+**Dior’s Victoire de Castellane, from A to Z**\
+`The jewelry designer’s 20 years at the fashion house is captured in a new book, created in a dictionary format.`\
+https://nytimes.com/2020/08/30/fashion/jewelry-dior-victoire-de-castellane.html?searchResultPosition=1
 
-**French Armed Forces Minister Says Senior Officer Investigated Over 'Breach of Security'**\
-`French Armed Forces Minister Florence Parly confirmed on Sunday that a senior officer had been put under investigation over a suspected breach of security.`\
-https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-france-defence.html?searchResultPosition=2
+**Van Cleef & Arpels is Ready to Blossom**\
+`The jewelry house’s floral heritage inspired an artistic collaboration for its boutiques.`\
+https://nytimes.com/2020/08/30/fashion/jewelry-van-cleef-and-arpels.html?searchResultPosition=2
 
-**Afghan President Names Council for Peace Deal With Taliban**\
-`Afghanistan's president has appointed a council for national reconciliation, which will have final say on whether the government will sign a peace deal with the Taliban after what are expected to be protracted and uncertain negotiations with the insurgents.`\
-https://nytimes.com/aponline/2020/08/30/world/asia/ap-as-afghanistan.html?searchResultPosition=3
+**Dermatology Has a Problem With Skin Color**\
+`Common conditions often manifest differently on dark skin. Yet physicians are trained mostly to diagnose them on white skin.`\
+https://nytimes.com/2020/08/30/health/skin-diseases-black-hispanic.html?searchResultPosition=3
 
-**Japan's Daiwa Gets Approval for Majority-Owned China Securities JV**\
-`Japan's Daiwa Securities Group Inc has received regulatory approval to launch a majority-owned joint venture in China that will provide brokerage and securities underwriting services in the world's second-largest economy.`\
-https://nytimes.com/reuters/2020/08/30/business/30reuters-daiwa-secs-grp-china.html?searchResultPosition=4
+**Steven Mnuchin Tried to Save the Economy. Not Even His Family Is Happy.**\
+`The coronavirus was an opportunity for the Treasury secretary to redefine his legacy, for better or worse.`\
+https://nytimes.com/2020/08/30/business/steven-mnuchin-trump-economy.html?searchResultPosition=4
 
-**Factbox: Latest on the Worldwide Spread of Coronavirus**\
-`Global coronavirus cases surged past 25 million on Sunday, according to a Reuters tally, as India marked a worldwide record for daily new cases in the pandemic.`\
-https://nytimes.com/reuters/2020/08/30/us/30reuters-health-coronavirus-latest-factbox.html?searchResultPosition=5
+**Homes That Sold for Around $750,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2020/08/30/realestate/homes-that-sold-for-around-750000.html?searchResultPosition=5
 
-**Cycling: Gilbert Out of Tour De France as Lotto Soudal Down to Six Riders**\
-`Philippe Gilbert has pulled out of the Tour de France after the former world champion broke his knee cap, leaving the Lotto Soudal team with six riders on Sunday, down from eight after just one stage of the race.`\
-https://nytimes.com/reuters/2020/08/30/sports/cycling/30reuters-cycling-france-gilbert.html?searchResultPosition=6
+**Malcolm X, Laurence Fishburne and ‘the Theater of Your Mind’**\
+`The Oscar-nominated actor narrates “The Autobiography of Malcolm X” in an audiobook project he says “doesn’t change my perspective so much as it amplifies it.”`\
+https://nytimes.com/2020/08/30/books/laurence-fishburne-autobiography-of-malcolm-x-audiobook.html?searchResultPosition=6
 
-**Divided Montenegro Starts Knife-Edge Election**\
-`Montenegrins go to the polls on Sunday in a parliamentary election that looks too close to call, with neither the long-ruling pro-Western party nor a rival pro-Serb and pro-Russian alliance tipped to win a majority of seats.`\
-https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-montenegro-election.html?searchResultPosition=7
+**Preaching Equality, Start-Up Didn’t Practice It With Employees**\
+`Current and former workers at Carta, a hot Silicon Valley fintech company, said they were belittled, excluded and punished if they spoke up.`\
+https://nytimes.com/2020/08/30/business/carta-workers-inequality.html?searchResultPosition=7
 
-**Philippines Records 4,284 More Coronavirus Infections, 102 New Deaths**\
-`The Philippines on Sunday confirmed 4,284 more coronavirus infections and 102 additional deaths.`\
-https://nytimes.com/reuters/2020/08/30/world/asia/30reuters-health-coronavirus-philippines-cases.html?searchResultPosition=8
+**Will the U.S. Open Show Big Events Can Return to New York?**\
+`The city is used to holding so many big events, but what is possible with the coronavirus? As the United States Open begins on Monday under a microscope, the answer could be at hand.`\
+https://nytimes.com/2020/08/30/sports/tennis/coronavirus-us-open-bubble.html?searchResultPosition=8
 
-**Factbox: What's Next as Japan PM Abe Quits, Potential Successors**\
-`The abrupt resignation of Japan's longest-serving prime minister, Shinzo Abe, triggered an election in his Liberal Democratic Party (LDP) to replace him as its president, followed by a vote in parliament to elect a new prime minister.`\
-https://nytimes.com/reuters/2020/08/30/world/asia/30reuters-japan-politics-abe-successors-factbox.html?searchResultPosition=9
+**Finish Your Soda So She Can Make Some Earrings**\
+`The London jewelry designer Anabela Chan is adding 18-karat gold and lab-grown diamonds to upcycled aluminum cans.`\
+https://nytimes.com/2020/08/30/fashion/jewelry-anabela-chan-recycling.html?searchResultPosition=9
 
-**Indonesia Reports 2,858 New Coronavirus Infections, 82 New Deaths**\
-`Indonesia on Sunday reported 2,858 new coronavirus infections and 82 more deaths, taking the total number of cases to 172,053 and fatalities to 7,343, data by the country's health ministry showed.`\
-https://nytimes.com/reuters/2020/08/30/world/asia/30reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=10
+**What’s on TV Sunday: The VMAs and ‘Driven to Abstraction’**\
+`The MTV Video Music Awards come to New York. And a new documentary retraces a major art world scandal.`\
+https://nytimes.com/2020/08/30/arts/television/whats-on-tv-sunday-the-vmas-and-driven-to-abstraction.html?searchResultPosition=10
 
