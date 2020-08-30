@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/08/30/world/americas/30reuters-health-coronavir
 https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-health-coronavirus-britain-flight.html?searchResultPosition=3
 
 **What Happened in Portland? Here’s What We Know**\
-`A man was shot and killed after supporters of President Trump’s clashed with counterprotesters.`\
+`A man was shot and killed after supporters of President Trump clashed with counterprotesters.`\
 https://nytimes.com/2020/08/30/us/portland-shooting-explained.html?searchResultPosition=4
 
 **Hidden Trump Voters, or Remorseful?**\
