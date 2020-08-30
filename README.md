@@ -1,4 +1,4 @@
-**France Reports 5,413 New Confirmed Coronavirus Cases in Past 24 Hours**\
+**France Shows Steady Growth in New Coronavirus Cases**\
 `France reported 5,413 new confirmed coronavirus cases on Sunday, slightly down from the 5,453 seen on Saturday.`\
 https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-health-coronavirus-france-casualties.html?searchResultPosition=1
 
