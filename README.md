@@ -1,5 +1,5 @@
 **Islanders Rally to Beat Flyers 3-1 for 2-1 Series Lead**\
-`Matt Martin and Leo Komaro scored in the second period as the New York Islanders rallied to beat the Philadelphia Flyers 3-1 on Saturday night, taking a 2-1 lead in their conference semifinal series.`\
+`Matt Martin and Leo Komarov scored in the second period as the New York Islanders rallied to beat the Philadelphia Flyers 3-1 on Saturday night, taking a 2-1 lead in their conference semifinal series.`\
 https://nytimes.com/aponline/2020/08/29/sports/hockey/ap-hkn-flyers-islanders.html?searchResultPosition=1
 
 **College Football Kicks Off COVID-19 Style in Alabama**\
