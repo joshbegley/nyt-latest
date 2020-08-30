@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/08/29/world/asia/29reuters-japan-politics.html?
 `“It has been challenging mentally and emotionally for me to stay sane,” said Novak Djokovic, who beat Milos Raonic on Saturday while working to create a controversial new players’ association.`\
 https://nytimes.com/2020/08/29/sports/tennis/novak-djokovic-us-open.html?searchResultPosition=6
 
-**Byron Wins to Reach Cup Series Playoffs, Knocks Johnson Out**\
-`Jimmie Johnson's final season as a full-time driver will end without another title.`\
+**Byron Wins to Reach Cup Series Playoffs, Knocks Out Johnson**\
+`William Byron snaked his way through a smoky crash late Saturday night at Daytona International Speedway and narrowly avoided another melee a few laps later.`\
 https://nytimes.com/aponline/2020/08/29/sports/ap-car-nascar-daytona.html?searchResultPosition=7
 
 **Arkansas Sheriff Quits After Racist Rant Goes Viral**\
