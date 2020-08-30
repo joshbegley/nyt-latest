@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/08/29/sports/basketball/bc-bkn-thunder-rockets
 `U.S. President Donald Trump on Tuesday will visit Kenosha, Wisconsin, the city that has seen unrest since a white police officer shot a Black man in the back, a White House official told reporters on Saturday.  `\
 https://nytimes.com/reuters/2020/08/29/us/29reuters-global-race-usa-wisconsin-trump.html?searchResultPosition=5
 
-**Rookie Fleming and Rays Hold Marlins to 3 Hits and Win 4-0**\
+**Rookie Fleming, Rays Hold Marlins to 3 Hits, Win 4-0**\
 `Rookie Josh Fleming and four relievers combined on a three-hitter, and Tampa Bay pitchers extended their streak of success at Marlins Park to 36 consecutive scoreless innings in the Rays' 4-0 victory over Miami on Saturday.`\
 https://nytimes.com/aponline/2020/08/29/sports/baseball/ap-bbo-rays-marlins.html?searchResultPosition=6
 
