@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/08/30/sports/tennis/30reuters-tennis-usopen.htm
 `Belarusian police on Sunday detained at least a dozen protesters who had gathered in central Minsk, a Reuters witness said.`\
 https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-belarus-election-protests-arrests.html?searchResultPosition=9
 
-**Mauritius Fishermen Battle to Save Dozens Dolphins Near Oil Spill**\
+**Mauritius Fishermen Battle to Save Dozens of Dolphins Near Oil Spill**\
 `Fishermen battled on Sunday to save dozens of injured dolphins washed ashore in Mauritius where in recent days at least 40 of the animals were found dead in a lagoon near the site of an oil spill from a Japanese bulk carrier which struck a coral reef.`\
 https://nytimes.com/reuters/2020/08/30/world/africa/30reuters-mauritius-environment-dolphins.html?searchResultPosition=10
 
