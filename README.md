@@ -7,7 +7,7 @@ https://nytimes.com/2020/08/30/briefing/presidential-race-chadwick-boseman-septe
 https://nytimes.com/aponline/2020/08/30/world/asia/ap-as-kashmir-violence.html?searchResultPosition=2
 
 **Putin and Lukashenko Plan to Meet in Moscow-Kremlin**\
-`Russian President Vladimir Putin and Belarusian leader Alexander Lukashenko have agreed to meet in Moscow in the next few weeks, the Kremlin said on Sunday.`\
+`Russian President Vladimir Putin and Belarusian leader Alexander Lukashenko have agreed to meet in Moscow in coming weeks, the Kremlin said on Sunday.`\
 https://nytimes.com/reuters/2020/08/30/world/europe/30reuters-belarus-election-putin-lukashenko.html?searchResultPosition=3
 
 **Trump Supporters, Protesters Clash in Portland; 1 Killed**\
