@@ -26,8 +26,8 @@ https://nytimes.com/aponline/2020/08/29/sports/baseball/ap-bbn-pirates-brewers.h
 `Max Muncy drove in four runs close to home for the Los Angeles Dodgers, who can still avoid their first series loss of the season after a 7-4 win Saturday night over the Texas Rangers and potential trade target Lance Lynn. `\
 https://nytimes.com/aponline/2020/08/29/sports/baseball/ap-bbo-dodgers-rangers.html?searchResultPosition=7
 
-**Caravan of Trump Supporters Rallies in Oregon's Biggest City**\
-`A caravan of supporters of President Donald Trump drove into downtown Portland Saturday night to show their support of him in a part of the city that has been the site of nightly protests for three months since the police killing of George Floyd in Minneapolis. `\
+**Trump Supporters, Counter-Protesters Clash in Portland**\
+`Fights broke out in downtown Portland Saturday night as a large caravan of supporters of President Donald Trump drove through the city, clashing with counter-protesters.`\
 https://nytimes.com/aponline/2020/08/29/us/ap-us-portland-protests-1st-ld-writethru.html?searchResultPosition=8
 
 **Weston McKennie Becomes 1st American Player at Juventus**\
