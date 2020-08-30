@@ -30,7 +30,7 @@ https://nytimes.com/2020/08/30/opinion/shinzo-abe-resign-japan.html?searchResult
 `Lujuan Winningham caught a 10-yard touchdown pass from Breylin Smith with 34 seconds left to lift Central Arkansas to a 24-17 victory over Austin Peay on Saturday night in college football's first game of the COVID-19 pandemic.`\
 https://nytimes.com/aponline/2020/08/30/sports/ncaafootball/bc-fbc-central-arkansas-austin-peay.html?searchResultPosition=8
 
-**Japan's Suga to Join Race to Succeed PM Abe: Media**\
+**Japan's Suga Hopes to Succeed PM Abe, Race Heats Up-Media**\
 `Japan's Chief Cabinet Secretary Yoshihide Suga will join the race to succeed his boss Shinzo Abe as prime minister, local media said on Sunday, as the competition heats up to succeed Japan's longest-serving leader.`\
 https://nytimes.com/reuters/2020/08/30/world/asia/30reuters-japan-politics.html?searchResultPosition=9
 
