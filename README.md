@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/29/us/ap-us-portland-protests-1st-ld-writet
 `It’s official: Midfielder Weston McKennie has become the first American player at Juventus.`\
 https://nytimes.com/aponline/2020/08/29/sports/soccer/ap-soc-juventus-mckennie.html?searchResultPosition=9
 
-**Japan's Suga to Join Race to Succeed PM Abe: Kyodo**\
-`Japan's Chief Cabinet Secretary Yoshihide Suga intends to run in the ruling party leadership race to succeed Prime Minister Shinzo Abe, Kyodo news agency reported on Sunday, citing an unnamed source.`\
+**Japan's Suga to Join Race to Succeed PM Abe-Kyodo**\
+`Japan's Chief Cabinet Secretary Yoshihide Suga will join the race to succeed his boss Shinzo Abe as prime minister, Kyodo news agency reported on Sunday, as the competition heats up to succeed Japan's longest-serving leader.`\
 https://nytimes.com/reuters/2020/08/29/world/asia/29reuters-japan-politics.html?searchResultPosition=10
 
