@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/08/30/us/ap-us-tropical-weather-air-hazards.ht
 https://nytimes.com/aponline/2020/08/30/world/europe/ap-eu-belarus-protests-1st-ld-writethru.html?searchResultPosition=3
 
 **U.S. Gulf of Mexico Oil Output Down 1.29 Million Bpd After Storm, Data Shows**\
-`U.S. Gulf of Mexico crude oil production on Sunday remained down 70%, or 1.29 million barrels per day, according to data released by the U.S. Department of Interior, as companies continued to return crews to evacuated offshore facilities.`\
+`U.S. Gulf of Mexico crude oil output on Sunday remained down 70%, or 1.29 million barrels per day, according to data released by the Department of Interior, as companies continued to return crews to offshore facilities that were evacuated ahead of Hurricane Laura.`\
 https://nytimes.com/reuters/2020/08/30/business/30reuters-storm-laura-energy.html?searchResultPosition=4
 
 **'Tenet' Launches With $53M in Overseas Gambit at Box Office**\
