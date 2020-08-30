@@ -15,7 +15,7 @@ https://nytimes.com/2020/08/29/todayspaper/quotation-of-the-day-district-by-dist
 https://nytimes.com/aponline/2020/08/29/us/ap-us-st-louis-police-shooting.html?searchResultPosition=4
 
 **Sogard Bails Out Hader, Lifts Brewers With 1st Walkoff HR**\
-`Eric Sogard bailed out All-Star closer Josh Hader by hitting first career walkoff home run, a two-run shot that lifted the Milwaukee Brewers over the Pittsburgh Pirates 7-6 on Saturday night.`\
+`Eric Sogard bailed out All-Star closer Josh Hader by hitting his first career walkoff home run, a two-run shot that lifted the Milwaukee Brewers over the Pittsburgh Pirates 7-6 on Saturday night.`\
 https://nytimes.com/aponline/2020/08/29/sports/baseball/ap-bbn-pirates-brewers.html?searchResultPosition=5
 
 **Muncy 4 RBIs for Dodgers in 7-4 Win Over Rangers and Lynn**\
