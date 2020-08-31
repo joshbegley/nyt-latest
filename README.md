@@ -1,40 +1,40 @@
+**3 Highly Portable Picnic Options That Aren’t Sandwiches**\
+`Try Italian calzones, Turkish pide or Eastern European piroshki.`\
+https://nytimes.com/2020/08/31/dining/hand-held-picnic-food.html?searchResultPosition=1
+
+**Lagardere Rejects Request to Hold an Extraordinary General Meeting**\
+`French publishing and media group Lagardere said on Monday it had rejected a request made by activist fund Amber Capital and Vivendi to hold an extraordinary general meeting.`\
+https://nytimes.com/reuters/2020/08/31/business/31reuters-lagardere-strategy-amber-vivendi.html?searchResultPosition=2
+
+**Venezuelan Government Says It Is Pardoning 110 Opponents**\
+`The Venezuelan government said Monday that it had pardoned more than 100 political opponents, including some who are in prison, took refuge in foreign embassies in Caracas or fled the country fearing for their safety. `\
+https://nytimes.com/aponline/2020/08/31/world/americas/ap-lt-venezuela.html?searchResultPosition=3
+
+**Reaction to the Death of Hall of Fame Coach John Thompson**\
+`Reaction from the sports world to the death of former Georgetown basketball coach and Hall of Famer John Thompson: `\
+https://nytimes.com/aponline/2020/08/31/sports/ncaabasketball/ap-bkc-obit-thompson-quote-box.html?searchResultPosition=4
+
+**Delta Joins United in Dropping Most Change Fees for US Trips**\
+`This could be the final boarding call for the $200 ticket-change fee that has enraged so many U.S. airline travelers over the past decade.`\
+https://nytimes.com/aponline/2020/08/31/business/bc-us-airlines-change-fees.html?searchResultPosition=5
+
 **Israel, Hamas Agree to Restore Calm Along Gaza Border**\
 `Palestinian militant groups and Israel agreed to end a weeks-long escalation of unrest along the Israel-Gaza border, Gaza's ruling Islamist group Hamas and Israel said on Monday.`\
-https://nytimes.com/reuters/2020/08/31/world/middleeast/31reuters-israel-palestinians-truce.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/31/world/middleeast/31reuters-israel-palestinians-truce.html?searchResultPosition=6
 
 **Belarus Opposition Leaders Creating Political Party: Video**\
 `Belarus opposition leader Maria Kolesnikova and members of the team of Viktor Babariko, who was jailed at the start of the campaign, said on Monday they were forming a new political party, called Together, a video shared online showed.`\
-https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-belarus-election-party.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-belarus-election-party.html?searchResultPosition=7
 
 **Argentina's Guzman Says 93.55% of Bonds Tendered in Debt Restructuring**\
 `Argentina's $65 billion debt restructuring gained huge majority support with creditors tendering 93.55% of the eligible bonds, the country's Economy Minister Martin Guzman said at a press conference on Monday, allowing a near full revamp of the debt.`\
-https://nytimes.com/reuters/2020/08/31/business/31reuters-argentina-debt-result.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/31/business/31reuters-argentina-debt-result.html?searchResultPosition=8
 
 **Presiding Justice: RBG Officiates Family Friend's Wedding**\
 `A tweet Monday from a new bride brought the first sighting of ailing Supreme Court Justice Ruth Bader Ginsburg in months — officiating at an outdoor wedding Sunday.`\
-https://nytimes.com/aponline/2020/08/31/us/politics/ap-us-supreme-court-ginsburg.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/31/us/politics/ap-us-supreme-court-ginsburg.html?searchResultPosition=9
 
 **Bria Hartley Found the Right Fit With the Phoenix Mercury**\
 `Hartley, a seventh-year guard, was having a career year for Phoenix before a season-ending injury cut it short. But this year has given her something to build on, even beyond basketball.`\
-https://nytimes.com/2020/08/31/sports/basketball/bria-hartley-phoenix-mercury.html?searchResultPosition=5
-
-**Factbox: A Look at Walmart, Microsoft's Past Collaborations**\
-`Microsoft Corp and Walmart Inc are together bidding for TikTok's U.S. assets, competing with Oracle Corp for a piece of the popular short-video app.`\
-https://nytimes.com/reuters/2020/08/31/technology/31reuters-tiktok-microsoft-walmart-factbox.html?searchResultPosition=6
-
-**House Democrats Demand Pompeo, Esper Provide Witnesses for Afghan Hearing**\
-`Democrats in the U.S. House of Representatives on Monday called on Secretary of State Mike Pompeo and Defense Secretary Mark Esper to provide witnesses for a hearing on Afghanistan policy, and threatened to issue subpoenas if their departments did not comply.`\
-https://nytimes.com/reuters/2020/08/31/us/politics/31reuters-usa-afghanistan-congress.html?searchResultPosition=7
-
-**U.S. CDC Reports 182,622 Deaths From Coronavirus**\
-`The U.S. Centers for Disease Control and Prevention (CDC) said on Monday the number of deaths due to the coronavirus had risen by 473 to 182,622 and reported 5,972,356 cases, an increase of 37,532 from its previous count.`\
-https://nytimes.com/reuters/2020/08/31/us/31reuters-health-coronavirus-usa-cdc.html?searchResultPosition=8
-
-**Illinois Girl's Keen Hearing Credited With Saving Neighbor**\
-`A suburban Chicago girl who has hypersensitive hearing is credited with saving the life of a neighbor after she slipped and fell on ice last winter and became trapped beneath a car.`\
-https://nytimes.com/aponline/2020/08/31/us/ap-us-lifesaving-ear.html?searchResultPosition=9
-
-**BTS Score a First for Korean Band on Billboard Chart With 'Dynamite'**\
-`K-Pop band BTS roared to the top of the Billboard Hot 100 singles charts in the United States on Monday, becoming the first Korean pop act to debut at No. 1.`\
-https://nytimes.com/reuters/2020/08/31/arts/31reuters-music-bts.html?searchResultPosition=10
+https://nytimes.com/2020/08/31/sports/basketball/bria-hartley-phoenix-mercury.html?searchResultPosition=10
 
