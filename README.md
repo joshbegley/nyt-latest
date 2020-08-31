@@ -1,40 +1,40 @@
+**2 Shootings, 2 Days, 2 Miles: US Inequality Microcosm Bared**\
+`A Black man, accosted by police on a domestic dispute call, is left with bullet wounds in his back that will likely keep him from ever walking again.`\
+https://nytimes.com/aponline/2020/08/31/us/ap-us-police-shooting-wisconsin-voices.html?searchResultPosition=1
+
+**Candidate Draws Criticism Over Meme About Wisconsin Shooting**\
+`A Republican congressional nominee in Alabama is facing criticism for a weekend social media post, which he later deleted, of a meme that appeared to support a teenager charged with killing two people, and wounding a third, during protests in Wisconsin.`\
+https://nytimes.com/aponline/2020/08/31/us/ap-us-election-2020-alabama-congressional-race-protests-.html?searchResultPosition=2
+
+**U.S. Isolated as It Vetoes U.N. Resolution on Foreign Militants**\
+`The United States on Monday vetoed a U.N. Security Council resolution on foreign militants fighting with groups like Islamic State because it did not address repatriation, an issue that has long-pitted Washington against its European allies. `\
+https://nytimes.com/reuters/2020/08/31/world/asia/31reuters-usa-un-militants.html?searchResultPosition=3
+
+**Exclusive: TPG Explores $8 Billion Sale of U.S. Cable Operator Astound**\
+`Private equity firm TPG is exploring a sale of Astound that could value the owner of a U.S. network of regional cable TV and internet providers at more than $8 billion, including debt, according to people familiar with the matter. `\
+https://nytimes.com/reuters/2020/08/31/business/31reuters-tpg-m-a-astound-exclusive.html?searchResultPosition=4
+
 **House to Subpoena Postmaster General Over Mail Delays**\
 `The House Oversight Committee intends to subpoena Postmaster General Louis DeJoy for documents on disruptions in mail delivery operations that are now central to questions over the agency's ability to handle the onslaught of mail-in ballots expected for the November election.`\
-https://nytimes.com/aponline/2020/08/31/us/politics/ap-us-election-2020-postal-service-congress.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/31/us/politics/ap-us-election-2020-postal-service-congress.html?searchResultPosition=5
 
 **‘We Need Safety in America,’ Biden Says, Denouncing Trump**\
 `Joseph R. Biden Jr. said that he would keep Americans safer than President Trump has in a speech aimed at deflecting criticism from Republicans that Mr. Biden would preside over a country wracked by lawlessness.`\
-https://nytimes.com/video/us/elections/100000007317007/biden-safety-america.html?searchResultPosition=2
+https://nytimes.com/video/us/elections/100000007317007/biden-safety-america.html?searchResultPosition=6
 
 **Framework Complete, Fed Faces Election Year Call on Next Steps**\
 `With a new policy framework in place, the Federal Reserve will turn to discussion of its next steps in the fight against the economic fallout of the coronavirus pandemic, and if and when to roll out additional support.`\
-https://nytimes.com/reuters/2020/08/31/business/31reuters-usa-fed.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/31/business/31reuters-usa-fed.html?searchResultPosition=7
 
 **AP Source: 7 US Open Players Put in 'Bubble in the Bubble'**\
 `As the U.`\
-https://nytimes.com/aponline/2020/08/31/sports/tennis/ap-ten-us-open.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/31/sports/tennis/ap-ten-us-open.html?searchResultPosition=8
 
 **20 New Sexual Assault Counts for Adult Film Actor Ron Jeremy**\
 `Adult film star Ron Jeremy was charged Monday with 20 new counts of rape or sexual assault involving 12 women and a teenage girl, authorities said. `\
-https://nytimes.com/aponline/2020/08/31/us/ap-us-sexual-misconduct-ron-jeremy-.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/31/us/ap-us-sexual-misconduct-ron-jeremy-.html?searchResultPosition=9
 
 **Venezuela Government Says It Has Pardoned More Than 50 Opposition Politicians**\
 `Venezuela said on Monday it has pardoned more than 50 opposition politicians including 20 legislators who had mostly been accused of conspiring against President Nicolas Maduro, as the country heads toward parliamentary elections scheduled for December. `\
-https://nytimes.com/reuters/2020/08/31/world/americas/31reuters-venezuela-politics.html?searchResultPosition=6
-
-**COVID-19 Often Goes Undiagnosed in Hospital Workers; Virus May Impair Heart Functions**\
-`The following is a roundup of some of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
-https://nytimes.com/reuters/2020/08/31/us/31reuters-health-coronavirus-science.html?searchResultPosition=7
-
-**JPMorgan Hires Vanguard Veteran to Lead Call Center Wealth Managers**\
-`JPMorgan Chase & Co said on Monday it hired the head of Vanguard Group's robo-adviser to lead its phone and video-based financial advice unit and to oversee its nationwide hiring spree.`\
-https://nytimes.com/reuters/2020/08/31/business/31reuters-jp-morgan-moves-lahovitsky.html?searchResultPosition=8
-
-**Judge Blocks Asylum Screening by Border Protection Agents**\
-`A federal judge on Monday blocked U.S. Customs and Border Protection employees from conducting the initial screening for people seeking asylum, dealing a setback to one of the Trump administration’s efforts to rein in asylum.`\
-https://nytimes.com/aponline/2020/08/31/us/ap-us-immigration-asylum-screenings.html?searchResultPosition=9
-
-**The Turmoil in Portland and Kenosha**\
-`Readers write that President Trump is stoking fear for his political advantage.`\
-https://nytimes.com/2020/08/31/opinion/letters/portland-kenosha-trump.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/31/world/americas/31reuters-venezuela-politics.html?searchResultPosition=10
 
