@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/08/31/sports/tennis/31reuters-tennis-usopen-sha
 `A Syrian Defense Ministry official said Israel’s military fired missiles Monday night on areas south of the capital Damascus killing two soldiers, wounding seven and causing material damage.`\
 https://nytimes.com/aponline/2020/08/31/world/middleeast/ap-ml-syria-israel-1st-ld-writethru.html?searchResultPosition=6
 
-**Biden Confronts Trump on Safety, Saying Violence Is Happening on His Watch**\
-`In a blistering speech, Joe Biden charged that President Trump “can’t stop the violence” in America, as the Democratic nominee sought to refocus the spotlight after a week of Republican attacks.`\
+**Biden Confronts Trump on Safety, Saying the President ‘Can’t Stop the Violence’**\
+`In a blistering speech, Joe Biden charged that crises “have kept multiplying” under President Trump’s watch. It was an effort to refocus the spotlight on the incumbent after a week of Republican attacks.`\
 https://nytimes.com/2020/08/31/us/politics/biden-speech-trump.html?searchResultPosition=7
 
 **Zoom Rides Pandemic to Another Quarter of Explosive Growth**\
