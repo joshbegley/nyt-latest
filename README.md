@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-britain-politics-c
 `By The Associated Press`\
 https://nytimes.com/aponline/2020/08/31/world/africa/ap-af-rwanda-hotel-rwanda-arrest.html?searchResultPosition=9
 
-**Canada to Buy 76 Mln Doses of Novavax's Potential Coronavirus Vaccine**\
+**Canada to Buy 76 Million Doses of Novavax's Potential Coronavirus Vaccine**\
 `Novavax Inc said on Monday it had reached an agreement in principle with the Canadian government to supply up to 76 million doses of its experimental coronavirus vaccine, sending the company's shares up nearly 7%.`\
 https://nytimes.com/reuters/2020/08/31/us/31reuters-health-coronavirus-novavax-canada.html?searchResultPosition=10
 
