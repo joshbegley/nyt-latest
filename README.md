@@ -1,40 +1,40 @@
+**VAT Cut Pushes German Inflation Into Negative Territory**\
+`German annual consumer prices fell for the first time in more than four years in August due to a VAT cut as part of the government's stimulus push to help Europe's largest economy recover from the coronavirus shock, data showed on Monday.`\
+https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-germany-economy-inflation.html?searchResultPosition=1
+
+**Finland Launches Its Own Coronavirus Tracing App**\
+`Finland's health authorities on Monday launched the country's own and long-waited contact tracing smartphone app to combat the spread of COVID-19.`\
+https://nytimes.com/reuters/2020/08/31/technology/31reuters-health-coronavirus-finland-app.html?searchResultPosition=2
+
+**India's Economy Shrinks Record 23.9% Y/y in April-June Quarter: Government**\
+`Indian economy contracted at its steepest pace on record of 23.9% year-on-year in the June quarter, official data showed on Friday, as the pandemic lockdown shattered consumer and business spending. `\
+https://nytimes.com/reuters/2020/08/31/world/asia/31reuters-india-economy-gdp.html?searchResultPosition=3
+
+**COVID-19 Can Wipe Out Health Care Progress in Short Order-WHO**\
+`More than 90% of countries have seen ordinary health services disrupted by the COVID-19 pandemic, with major gains in medical care attained over decades vulnerable to being wiped out in a short period, a World Health Organization survey showed. `\
+https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-health-coronavirus-who-survey.html?searchResultPosition=4
+
+**No Reset, No Bottom for GE Yet: J.P. Morgan**\
+`General Electric Co shares are now worth less than $5 each, analysts from J.P. Morgan said on Monday, valuing the U.S. conglomerate at less than $44 billion and predicting it is yet to reach a turning point in efforts to reboot its businesses.`\
+https://nytimes.com/reuters/2020/08/31/business/31reuters-ge-research-jpm.html?searchResultPosition=5
+
 **CD&R to Buy KKR's Epicor Software for $4.7 Billion**\
 `Private equity firm KKR & Co Inc will sell business software maker Epicor Software Corp to Clayton Dubilier & Rice in a $4.7 billion deal, the companies said on Monday.`\
-https://nytimes.com/reuters/2020/08/31/business/31reuters-epicor-m-a-cd-r.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/31/business/31reuters-epicor-m-a-cd-r.html?searchResultPosition=6
 
 **Turkey Accuses Greece of 'Piracy' Over Eastern Mediterranean**\
 `Turkey on Monday accused Greece of “piracy” and warned it will stand up to Athens’ alleged efforts to militarize islands near its coast, following claims that the neighboring country was building up troops on one such island in violation of treaties.`\
-https://nytimes.com/aponline/2020/08/31/business/bc-eu-turkey-greece.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/31/business/bc-eu-turkey-greece.html?searchResultPosition=7
 
 **With Borders Closed, South Africa Pins Hopes on Cash-Strapped Local Tourists**\
 `Lisa Krohn's Ashanti Lodge in Cape Town - normally abuzz with backpackers from around the world - today sits largely empty, a sign of how the pandemic has crushed South Africa's tourist industry.`\
-https://nytimes.com/reuters/2020/08/31/world/africa/31reuters-health-coronavirus-safrica-tourism.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/31/world/africa/31reuters-health-coronavirus-safrica-tourism.html?searchResultPosition=8
 
 **Couple, Twin Teenage Children Found Dead in Ohio Home**\
 `A couple and their twin teenage children were found dead in their home after authorities were asked to conduct a welfare check at the residence in a Cleveland suburb, authorities said.`\
-https://nytimes.com/aponline/2020/08/31/us/ap-us-family-members-found-dead-1st-ld-writethru.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/31/us/ap-us-family-members-found-dead-1st-ld-writethru.html?searchResultPosition=9
 
 **Mexico's Pemex Tests Limits of Investor Influence on Climate Change**\
 `At a time when oil production is at historic lows, lenders who want Mexican oil giant Pemex to adapt to climate change are struggling to be heard.`\
-https://nytimes.com/reuters/2020/08/31/business/31reuters-climate-change-pemex-investors-insight.html?searchResultPosition=5
-
-**Lady Gaga’s Masks Win the V.M.A.s**\
-`This is one way to use the red carpet and fashion to send a message.`\
-https://nytimes.com/2020/08/31/style/lady-gaga-masks-vmas.html?searchResultPosition=6
-
-**GSK, Partner Vir Join Race to Find COVID-19 Antibody Treatment**\
-`GlaxoSmithKline and partner Vir Biotechnology have started testing their experimental antibody on early-stage COVID-19 patients, entering the race to find a winner in a promising class of antiviral drugs to combat the pandemic.`\
-https://nytimes.com/reuters/2020/08/31/us/31reuters-health-coronavirus-gsk-vir.html?searchResultPosition=7
-
-**A shift on election briefings to Congress could create an information gap for voters.**\
-`The elimination of in-person election security briefings to Congress could leave the public with a diminished understanding of the threats facing the election as it enters a critical phase.`\
-https://nytimes.com/2020/08/31/us/elections/a-shift-on-election-briefings-to-congress-could-create-an-information-gap-for-voters.html?searchResultPosition=8
-
-**Moscow Police Open Criminal Case After Anti-Kremlin Blogger Badly Beaten**\
-`Moscow police opened a criminal inquiry on Monday after anti-Kremlin opposition activist and political blogger Yegor Zhukov was beaten and left bloodied outside his home at the weekend. `\
-https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-russia-politics-blogger.html?searchResultPosition=9
-
-**Thailand Delays China Submarines Buy Amid Public Outrage**\
-`Thailand has postponed the purchase of two submarines from China, officials said on Monday, following more than a week of public outcry about a multi-million dollar procurement during the country's biggest economic slump in decades.`\
-https://nytimes.com/reuters/2020/08/31/world/asia/31reuters-thailand-china-defence.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/31/business/31reuters-climate-change-pemex-investors-insight.html?searchResultPosition=10
 
