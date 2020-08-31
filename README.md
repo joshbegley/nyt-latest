@@ -1,40 +1,40 @@
+**U.S. Ambassador to Russia Visits Jailed Ex-Marine Reed**\
+`The U.S. ambassador to Russia visited on Monday a former U.S. Marine who has just started a nine-year sentence in a Moscow jail, and said the United States was pushing for his release.`\
+https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-russia-usa-reed.html?searchResultPosition=1
+
+**Emergency Authorisation of COVID-19 Vaccines Needs Great Care-WHO**\
+`The emergency authorisation of COVID-19 vaccines requires a "great deal of seriousness and reflection", the World Health Organization said on Monday. `\
+https://nytimes.com/reuters/2020/08/31/us/31reuters-health-coronavirus-who-care.html?searchResultPosition=2
+
+**Emergency Authorization of COVID-19 Vaccines Needs Great Care, WHO Says**\
+`The emergency authorization of COVID-19 vaccines requires a "great deal of seriousness and reflection", the World Health Organization said on Monday. `\
+https://nytimes.com/reuters/2020/08/31/us/31reuters-health-coronavirus-who-vaccine.html?searchResultPosition=3
+
+**Hockey’s Fights and Handshakes? Not Exactly Socially Distant**\
+`Home-ice advantage is gone and fans are locked out, but the games in Toronto and Edmonton still feel like playoff hockey.`\
+https://nytimes.com/2020/08/31/sports/hockey/NHL-playoffs-pandemic-protocols.html?searchResultPosition=4
+
+**Kansas Man Sentenced to 10 Years in Oklahoma Cold Case**\
+`A Kansas man has been sentenced to 10 years in prison in connection with the deaths of two people and the disappearance of two teenage girls more than 20 years ago.`\
+https://nytimes.com/aponline/2020/08/31/us/ap-us-oklahoma-cold-case-arrest.html?searchResultPosition=5
+
+**Appeals Court Denies Flynn’s Attempt to End Case**\
+`A lower-court judge can continue to scrutinize the Justice Department’s highly unusual request to drop the charge against President Trump’s former national security adviser, the court ruled.`\
+https://nytimes.com/2020/08/31/us/politics/michael-flynn-appeals-court.html?searchResultPosition=6
+
 **House Panel to Subpoena DeJoy Seeking Postal Service Documents**\
 `The chairwoman of the House Oversight and Reform Committee said Monday she plans to subpoena Postmaster General Louis DeJoy seeking documents he has been withholding from Congress.`\
-https://nytimes.com/reuters/2020/08/31/us/politics/31reuters-usa-election-post-office.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/31/us/politics/31reuters-usa-election-post-office.html?searchResultPosition=7
 
 **N.Y.C. to Pay $5.9 Million in Death of Transgender Woman at Rikers**\
 `Layleen Polanco had a fatal epileptic seizure while in isolation, an investigation found, spurring calls to end solitary confinement and close the jail complex.`\
-https://nytimes.com/2020/08/31/nyregion/layleen-polanco-settlement-rikers-transgender.html?searchResultPosition=2
+https://nytimes.com/2020/08/31/nyregion/layleen-polanco-settlement-rikers-transgender.html?searchResultPosition=8
 
 **1 of 3 Cubs Orphaned by Famous Bear's Death Captured**\
 `One of three black bear cubs orphaned by the recent death of their famous mother was captured Monday morning and will be taken a rehabilitation center for the winter.`\
-https://nytimes.com/aponline/2020/08/31/us/ap-us-spared-bear-cub-captured.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/31/us/ap-us-spared-bear-cub-captured.html?searchResultPosition=9
 
 **Bostic: Fed's Tools Limited as Long as Health Trajectory Remains in Doubt**\
 `The Federal Reserve's available tools, such as expanding its monthly asset purchases, aren't the best methods at this point for ensuring the U.S. economy returns to steady growth, Atlanta Fed president Raphael Bostic said on Monday.`\
-https://nytimes.com/reuters/2020/08/31/us/31reuters-usa-fed-bostic-policy.html?searchResultPosition=4
-
-**U.S. Agrees to Pay South Carolina $600 Million and Dispose of Plutonium**\
-`The U.S. Energy Department said on Monday it has reached a settlement with South Carolina on removing weapons-grade plutonium by 2037 from a Cold War-era site and shipping most of it to a disposal facility in New Mexico.  `\
-https://nytimes.com/reuters/2020/08/31/us/31reuters-usa-south-carolina-plutonium.html?searchResultPosition=5
-
-**Nigeria Sets Capital Rules for Mobile Money Licences**\
-`Nigeria's central bank said it will grant more licences for payment service banks but set a minimum capital base of $13 million, which could deter telecoms firms and some other potential new entrants to the digital financial services sector.`\
-https://nytimes.com/reuters/2020/08/31/world/africa/31reuters-nigeria-payment-banks.html?searchResultPosition=6
-
-**The Latest: Vondrousova Is First Winner as US Open Begins**\
-`The Latest on the U.S. Open tennis tournament (all times local):`\
-https://nytimes.com/aponline/2020/08/31/sports/tennis/ap-ten-us-open-the-latest-1st-ld-writethru.html?searchResultPosition=7
-
-**John Thompson, Hall of Fame Basketball Coach, Dies at 78**\
-`The first Black coach to lead a team to the N.C.A.A. men’s basketball championship, he helped mold N.B.A. stars like Patrick Ewing and Allen Iverson at Georgetown University.`\
-https://nytimes.com/2020/08/31/sports/basketball/john-thompson-dead.html?searchResultPosition=8
-
-**El Al Flight LY971 to Abu Dhabi Was No Typical Air Journey**\
-`From the Israeli captain’s emotional greeting in Arabic upon takeoff in Tel Aviv, to the warm Emirati reception on the ground in scorching Abu Dhabi, it was obvious this was no typical flight.`\
-https://nytimes.com/aponline/2020/08/31/world/middleeast/ap-ml-israel-emirates-peace-plane.html?searchResultPosition=9
-
-**Review: It’s Just You and Me and Zoom in ‘Here We Are’**\
-`Theater for One was built on the idea of face-to-face encounters. Moving it online could have been a disaster, but instead it’s a heartbreaker.`\
-https://nytimes.com/2020/08/31/theater/here-we-are-review.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/31/us/31reuters-usa-fed-bostic-policy.html?searchResultPosition=10
 
