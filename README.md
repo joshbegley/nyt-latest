@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/08/30/sports/golf/30reuters-golf-bmw-woods.html
 https://nytimes.com/reuters/2020/08/30/business/30reuters-berkshire-stake-japan.html?searchResultPosition=7
 
 **Rahm's Makes the Biggest Putt to Win a Thriller at BMW**\
-`Even with so few people around, Jon Rahm could hear from the other side of the Olympia Fields clubhouse that Dustin Johnson had made a 45-foot birdie on the final hole to force a playoff Sunday in the BMW Championship.`\
+`With so few people around, Jon Rahm still got word from the other side of the Olympia Fields clubhouse that Dustin Johnson had made a 45-foot birdie on the final hole to force a playoff Sunday in the BMW Championship.`\
 https://nytimes.com/aponline/2020/08/30/sports/golf/ap-glf-bmw-championship.html?searchResultPosition=8
 
 **China Reports 17 New COVID-19 Cases on August 30 vs Nine a Day Earlier**\
