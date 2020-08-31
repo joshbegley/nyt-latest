@@ -27,7 +27,7 @@ https://nytimes.com/2020/08/30/opinion/trump-white-fear-2020.html?searchResultPo
 https://nytimes.com/2020/08/30/sports/golf/jon-rahm-bmw-championship.html?searchResultPosition=7
 
 **Rahm Secures Playoff Win at Olympia Fields With 66-Foot Putt**\
-`Spain's Jon Rahm sunk a breathtaking 66-foot putt to win the BMW Championship on Sunday in a thrilling playoff win over American Dustin Johnson.`\
+`Spain's Jon Rahm sunk a breathtaking 66-foot (20 metre) putt to win the BMW Championship on Sunday in a thrilling playoff victory over American Dustin Johnson.`\
 https://nytimes.com/reuters/2020/08/30/sports/golf/30reuters-golf-bmw.html?searchResultPosition=8
 
 **New Zealand's Stock Market Website Goes Down Again, Trading Unaffected**\
