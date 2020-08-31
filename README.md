@@ -26,8 +26,8 @@ https://nytimes.com/2020/08/30/us/portland-shooting-protests.html?searchResultPo
 `“Black Panther” star Chadwick Boseman, whose death from colon cancer shocked fans, was honored at the MTV Video Music Awards as a hero in real life, not just on the big screen.`\
 https://nytimes.com/aponline/2020/08/30/us/ap-us-music-mtv-video-music-awards-boseman-1st-ld-writethru.html?searchResultPosition=7
 
-**Australia's Victoria State Reports 73 New Coronavirus Cases, 41 Deaths**\
-`Australia's Victoria state - the epicentre of the country's COVID-19 outbreak - said on Monday it has detected 73 new infections in the past 24 hours, while the death toll rose by 41.`\
+**Australia Reports Record One-Day Rise in COVID-19 Deaths**\
+`Australia reported a record daily rise in COVID-19 deaths on Monday, although the number of new infections in the country's virus epicentre fell to a near two-month low.`\
 https://nytimes.com/reuters/2020/08/30/world/asia/30reuters-health-coronavirus-australia.html?searchResultPosition=8
 
 **Taurasi, Diggins-Smith Help Mercury Hold Off Lynx, 83-79**\
