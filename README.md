@@ -1,40 +1,40 @@
+**Big Ten Presidents Voted 11-3 to Cancel Fall Football Season**\
+`A court filing discloed Monday shows that Big Ten Conference presidents voted 11-3 to postpone the football season until spring, bringing some clarity to a key question raised in a lawsuit brought by a group of Nebraska football players.`\
+https://nytimes.com/aponline/2020/08/31/sports/ncaafootball/ap-fbc-virus-outbreak-big-ten.html?searchResultPosition=1
+
+**Joe Biden, Child virus cases, U.S. Open: Your Monday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/08/31/briefing/joe-biden-child-infections-us-open.html?searchResultPosition=2
+
+**In Steve Bannon Case, Prosecutors Have ‘Voluminous’ Emails**\
+`Documents found in email accounts will be used to help link the president’s former aide to a fraudulent scheme to build a border wall, the government said.`\
+https://nytimes.com/2020/08/31/nyregion/steve-bannon-we-build-the-wall-kolfage.html?searchResultPosition=3
+
+**Agency Denies Critical Habitat for Endangered Bumblebee**\
+`Federal regulators said Monday they would not designate critical habitat for the first bee species in the continental U.S. to be listed as endangered, a move that environmentalists said would worsen its chances for recovery.`\
+https://nytimes.com/aponline/2020/08/31/us/ap-us-endangered-bumblebee.html?searchResultPosition=4
+
+**Louisiana Sen. Cassidy Says He's Recovered From COVID-19**\
+`U.S. Sen. Bill Cassidy of Louisiana said Monday that he has recovered from COVID-19 and is resuming his normal congressional workload after experiencing only modest symptoms of the illness caused by the coronavirus.`\
+https://nytimes.com/aponline/2020/08/31/us/ap-us-virus-outbreak-cassidy.html?searchResultPosition=5
+
+**E.P.A. Relaxes Rules Limiting Toxic Waste From Coal Plants**\
+`The agency weakened Obama-era rules meant to keep metals and other pollution out of rivers and streams, saving industry tens of millions of dollars.`\
+https://nytimes.com/2020/08/31/climate/trump-coal-plants.html?searchResultPosition=6
+
+**Reds Manager Bell, Others Suspended for Incident With Cubs**\
+`Major League Baseball disciplined three members of the Cincinnati Reds and one from the Chicago Cubs in response to a benches-clearing incident between the teams in the fourth inning of the second game of a doubleheader Saturday night.`\
+https://nytimes.com/reuters/2020/08/31/sports/baseball/31reuters-baseball-mlb-cin-chc-suspensions-fines.html?searchResultPosition=7
+
+**Ignore the C.D.C. and Expand Testing**\
+`The agency’s new guidelines are wrong, so states have to step up on their own to suppress the coronavirus.`\
+https://nytimes.com/2020/08/31/opinion/cdc-testing-coronavirus.html?searchResultPosition=8
+
+**AP FACT CHECK: Trump Tweets Distort Truth on National Guard**\
+`It's become a pattern when unrest flares in a city: President Donald Trump suggests he has National Guard troops ready to send to the scene and takes credit for dispatching them and restoring calm while he accuses Democrats of being squishy on law and order.`\
+https://nytimes.com/aponline/2020/08/31/us/politics/ap-us-trump-national-guard-fact-check.html?searchResultPosition=9
+
 **Learn About ‘The Politics of the Potato’**\
 `A new book dives into the history, including the ties to government food policies in Europe, the United States and elsewhere.`\
-https://nytimes.com/2020/08/31/dining/feeding-the-people-potato-book-rebecca-earle.html?searchResultPosition=1
-
-**Long Neglected After Landmark Discovery, Armored Dinosaur Finally Gets Its Due**\
-`When the bones of the early armored dinosaur Scelidosaurus were unearthed in 1858 in west Dorset, England, they comprised the first complete dinosaur skeleton ever identified.`\
-https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-science-scelidosaurus.html?searchResultPosition=2
-
-**Saudi King Sacks Joint Forces Commander, Refers Him Along Others for Investigation: State TV**\
-`Saudi King Salman sacked on Monday the joint forces commander by placing him into retirement and referring him for investigation, Saudi state TV said.`\
-https://nytimes.com/reuters/2020/08/31/world/middleeast/31reuters-saudi-king-defense.html?searchResultPosition=3
-
-**John Thompson’s Success at Georgetown Made Him Ahead of His Time**\
-`He inspired a generation of young, Black players when their acceptance was not taken for granted. He pushed open doors for plenty of coaches, too.`\
-https://nytimes.com/2020/08/31/sports/ncaabasketball/john-thompson-georgetown-ewing.html?searchResultPosition=4
-
-**TikTok Deal Faces Complications as U.S. and China Ratchet Up Tit-for-Tat**\
-`China’s new export rules, which could delay or scuttle a sale of TikTok, have further turned giant companies into pawns in a geopolitical struggle.`\
-https://nytimes.com/2020/08/31/technology/tiktok-export-us-china.html?searchResultPosition=5
-
-**Canada Statistics Agency Eyes Savings 'Pot of Cash' for Hints on Recovery**\
-`Canada's statistical agency is paying close attention to the "pot of cash" that Canadians have saved up amid the COVID-19 pandemic as it looks to understand who is saving and how that money may contribute to the shape of the recovery.`\
-https://nytimes.com/reuters/2020/08/31/us/31reuters-health-coronavirus-canada-economy.html?searchResultPosition=6
-
-**Combat Homelessness Using Data and A.I.**\
-`For an issue as complicated as homelessness, data, A.I. and cloud offer innovative new solutions. Here’s how Sonoma County, California cares for the homeless by leveraging IBM technology.`\
-https://nytimes.com/paidpost/ibm-cloud-and-ai/combat-homelessness-using-data-and-ai.html?searchResultPosition=7
-
-**Fight the Flu Using Weather Prediction Technology**\
-`This is how The Weather Company is going beyond the weather to add innovative health-related forecasts using cloud and A.I., helping consumers make smarter, more informed health decisions.`\
-https://nytimes.com/paidpost/ibm-cloud-and-ai/fight-the-flu-using-weather-prediction-technology.html?searchResultPosition=8
-
-**Trump Had One Good Response to Covid-19. His Party Killed It.**\
-`Aid to the unemployed saved us from disaster. Now it’s gone.`\
-https://nytimes.com/2020/08/31/opinion/trump-coronavirus-economy.html?searchResultPosition=9
-
-**A Documentary on Women in the Restaurant Business**\
-`The 29-minute film follows three professionals as they manage working in male-dominated spaces.`\
-https://nytimes.com/2020/08/31/dining/a-womans-place-restaurant-documentary.html?searchResultPosition=10
+https://nytimes.com/2020/08/31/dining/feeding-the-people-potato-book-rebecca-earle.html?searchResultPosition=10
 
