@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/08/31/world/middleeast/31reuters-lebanon-crisis
 https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-health-coronavirus-russia-schools.html?searchResultPosition=7
 
 **Romania's Minority Government Survives No-Confidence Motion**\
-`Romania's centrist minority government of Prime Minister Ludovic Orban survived a motion of no-confidence by the Social Democrat opposition on Monday, with parliamentary debates and the vote canceled due to the absence of a quorum in parliament.`\
+`The centrist minority government of Prime Minister Ludovic Orban survived a motion of no-confidence in parliament on Monday, ensuring political stability at a time when Romania struggles to curb the coronavius epidemic which has crippled its economy.`\
 https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-romania-government-vote.html?searchResultPosition=8
 
 **Djokovic, Osaka in Action as Very Different U.S. Open Begins**\
