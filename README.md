@@ -1,40 +1,40 @@
+**Guinea President Accepts Nomination to Seek Third Term**\
+`Guinea President Alpha Conde has accepted his party's nomination to run for a third term in October's election, the party said in a statement on Monday. `\
+https://nytimes.com/reuters/2020/08/31/world/europe/31reuters-guinea-politics.html?searchResultPosition=1
+
+**Brazil Passes 3.9 Million Coronavirus Cases, Death Toll at 121,381: Health Ministry**\
+`Brazil reported 45,961 new cases of the novel coronavirus and 553 deaths from the disease caused by the virus in the past 24 hours, the health ministry said on Monday.`\
+https://nytimes.com/reuters/2020/08/31/world/americas/31reuters-health-coronavirus-brazil.html?searchResultPosition=2
+
+**McConnell Eyeing Revamped U.S. Coronavirus Relief Bill, Mnuchin Tells Fox Business**\
+`The Trump administration and Senate Republicans have been in regular contact over possible coronavirus relief measures and the Senate's top Republican will "hopefully" unveil a new bill next week, Treasury Secretary Steve Mnuchin said on Monday.`\
+https://nytimes.com/reuters/2020/08/31/us/politics/31reuters-health-coronavirus-usa-congress.html?searchResultPosition=3
+
+**Column: Everyone Chasing Harvick, Hamlin as Playoffs Begin**\
+`NASCAR's pandemic-plagued season has finally reached the playoffs, with 16 drivers chasing the Cup championship starting Sunday in South Carolina. `\
+https://nytimes.com/aponline/2020/08/31/sports/ap-car-nascar-in-the-pits.html?searchResultPosition=4
+
+**Chocolate and Art from Mast and the Met**\
+`The Mount Kisco, N.Y., company teamed up with the Metropolitan Museum to create a special assortment of bars as fund-raisers.`\
+https://nytimes.com/2020/08/31/dining/metropolitan-museum-mast-brothers-chocolate.html?searchResultPosition=5
+
+**A New Book from a Renowned Photographer of Interiors**\
+`Throughout his career, Simon Watson has brought his unique eye to crumbling castles, monastic apartments and everything in between.`\
+https://nytimes.com/2020/08/31/t-magazine/simon-watson-photographer-book-design.html?searchResultPosition=6
+
 **Trump Administration Finalizes Coal Plant Pollution Rollback**\
 `The Trump administration on Monday finalized its weakening of an Obama-era rule aimed at reducing pollution from coal-burning power plants that has contaminated streams, lakes and underground aquifers`\
-https://nytimes.com/aponline/2020/08/31/business/ap-us-trump-coal-plants.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/31/business/ap-us-trump-coal-plants.html?searchResultPosition=7
 
 **U.S. Announces Taiwan Initiative, Declassifies Documents, Citing China Pressure**\
 `The United States said on Monday it was establishing a new bilateral economic dialogue with Taiwan, an initiative it said was aimed at strengthening ties with Taipei and supporting it in the face of increasing pressure from Beijing.`\
-https://nytimes.com/reuters/2020/08/31/world/asia/31reuters-usa-taiwan-dialogue.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/31/world/asia/31reuters-usa-taiwan-dialogue.html?searchResultPosition=8
 
 **After Contact Tracing, Some U.S. Open Players Are Put on Tighter Restrictions**\
 `These athletes did not test positive for the coronavirus themselves, but they had close contact with an infected athlete who has been withdrawn from the tournament.`\
-https://nytimes.com/2020/08/31/sports/tennis/us-open-coronavirus-contact-tracing.html?searchResultPosition=3
+https://nytimes.com/2020/08/31/sports/tennis/us-open-coronavirus-contact-tracing.html?searchResultPosition=9
 
 **Embattled Nebraska Candidate Vows to Stay in Senate Race**\
 `Embattled Nebraska U.S. Senate hopeful Chris Janicek doubled down Monday on his refusal to bow out of the race, despite relentless pressure from the state Democratic Party after he admitted to sending sexually offensive text messages about a campaign employee.`\
-https://nytimes.com/aponline/2020/08/31/us/politics/ap-us-election-2020-senate-nebraska.html?searchResultPosition=4
-
-**Gannett Sells Pine Bluff Commercial to Arkansas Newspaper**\
-`Gannett Media Corp. sold the Pine Bluff Commercial publication to the Arkansas Democrat-Gazette and its parent company, WEHCO Newspapers Inc. of Little Rock.`\
-https://nytimes.com/aponline/2020/08/31/business/ap-us-democrat-gazette-acquisition.html?searchResultPosition=5
-
-**Chile Threatens Striking Truckers With Security Law After Breakdown in Talks**\
-`The Chilean government on Monday threatened to invoke a state security law to penalise striking truck drivers blocking arterial routes and damaging supply chains after talks between the two sides broke down.`\
-https://nytimes.com/reuters/2020/08/31/world/americas/31reuters-chile-politics-truckers.html?searchResultPosition=6
-
-**Learn to Shuck Oysters at Seamore’s**\
-`The location in Battery Park City offers a 90-minute session with socially distant seating.`\
-https://nytimes.com/2020/08/31/dining/shuck-oysters-class-seamores.html?searchResultPosition=7
-
-**Inmates Take 10 Guards Hostage at Guatemalan Prison**\
-`Imprisoned Guatemalan gang members took 10 guards hostage Monday after prison system authorities moved some gang leaders to another lockup.`\
-https://nytimes.com/aponline/2020/08/31/world/americas/ap-lt-guatemala-prison-hostages.html?searchResultPosition=8
-
-**U.S. Open Order of Play on Tuesday**\
-`Order of play on the main show courts on the second day of the U.S. Open on Tuesday (play starts at 1500 GMT/11 AM ET unless stated, prefix number denotes seeding):`\
-https://nytimes.com/reuters/2020/08/31/sports/tennis/31reuters-tennis-usopen-order.html?searchResultPosition=9
-
-**3 Found Dead in Dallas After Man Says He Killed Wife, Kids**\
-`Dallas police officers found the bodies of three people in an apartment Monday after a man called an alarm company and said he had killed his wife and two children, police said.`\
-https://nytimes.com/aponline/2020/08/31/us/ap-us-dallas-three-killed.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/31/us/politics/ap-us-election-2020-senate-nebraska.html?searchResultPosition=10
 
