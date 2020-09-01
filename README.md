@@ -1,40 +1,40 @@
+**Feds Want Deal With North Dakota Over Pipeline Protest Costs**\
+`The Army Corps of Engineers is recommending that the federal government negotiate a settlement with North Dakota for more than $38 million that the state spent policing protests against the Dakota Access oil pipeline.`\
+https://nytimes.com/aponline/2020/09/01/business/ap-us-oil-pipeline-policing-costs-north-dakota.html?searchResultPosition=1
+
+**Trump Administration Promise to Focus on Extremism Remains Unfulfilled**\
+`A year after the Department of Homeland Security promised to focus more on violent extremism, the plan to carry out that shift remains hidden while the atmosphere worsens.`\
+https://nytimes.com/2020/09/01/us/politics/trump-homeland-security-extremism.html?searchResultPosition=2
+
+**New York City Schools to Delay Class Start Under Safety Deal With Unions**\
+`New York City public schools, the largest U.S. school system, will delay the start of classes by 11 days to Sept. 21 under an agreement with education unions that had pushed for additional coronavirus safety measures, Mayor Bill de Blasio said on Tuesday. `\
+https://nytimes.com/reuters/2020/09/01/us/01reuters-health-coronavirus-usa-new-york.html?searchResultPosition=3
+
+**Trump White House Restarts Tours, With Pandemic Restrictions**\
+`President Donald Trump's administration will restart tours of the White House on Sept. 12 with new restrictions aimed at limiting the spread of the coronavirus, according to an announcement released on Tuesday.`\
+https://nytimes.com/reuters/2020/09/01/us/politics/01reuters-health-coronavirus-usa-white-house.html?searchResultPosition=4
+
+**NYC Delays Start of School Year to Allow More Prep Time**\
+`New York City is delaying the start of its school year by several days to give teachers more time to prepare to have students back in classrooms amid the coronavirus pandemic, Mayor Bill de Blasio announced Tuesday.`\
+https://nytimes.com/aponline/2020/09/01/nyregion/ap-us-virus-outbreak-nyc-schools.html?searchResultPosition=5
+
+**Portugal's COVID-19 Cases Raise UK Quarantine Fears**\
+`As coronavirus cases in Portugal go up and down, fears are growing that Britain will reimpose a quarantine for people travelling from the country. `\
+https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-health-coronavirus-portugal-britain.html?searchResultPosition=6
+
+**OAS Chief Under Fire for Removal of Top Rights Official**\
+`An ombudswoman for the Organization of American States is facing criticism that she assisted Secretary General Luis Almagro in a widely condemned effort to remove the region’s top human rights official, The Associated Press has learned.`\
+https://nytimes.com/aponline/2020/09/01/us/ap-us-oas-human-rights.html?searchResultPosition=7
+
+**AT&T Looks to Sell Digital Ad Unit: WSJ**\
+`AT&T Inc is exploring a sale of its digital advertising unit Xandr, the Wall Street Journal reported on Tuesday, citing people familiar with the matter.`\
+https://nytimes.com/reuters/2020/09/01/business/01reuters-at-t-divestiture.html?searchResultPosition=8
+
 **Mexican Central Bank Says July Remittances Totaled $3.53 Billion**\
 `Remittances sent to Mexico in July reached $3.53 billion, up by more than 7% compared to the same month last year, Mexico's central bank said on Tuesday. `\
-https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-mexico-economy-remittances.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-mexico-economy-remittances.html?searchResultPosition=9
 
 **USTR Extends Some China Tariff Exclusions, but Only Through End-2020**\
 `The U.S. Trade Representative's office said on Tuesday it has extended China tariff exclusions for a wide range of goods, including smart watches and certain medical masks, through the end of 2020, rather than renewing the previous one-year extension.`\
-https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-usa-trade-china-tariffs.html?searchResultPosition=2
-
-**U.S. House Oversight Committee to Subpoena AbbVie in Drug-Pricing Probe**\
-`The U.S. House Oversight Committee on Tuesday decided to subpoena AbbVie Inc to seek documents on the drugmaker's blockbuster treatments, Humira and Imbruvica, as part of its investigation into drug pricing practices.`\
-https://nytimes.com/reuters/2020/09/01/us/01reuters-abbvie-drugpricing.html?searchResultPosition=3
-
-**The Best Movies and TV Shows Coming to Netflix, Amazon and More in September**\
-`Every month, subscription streaming services add a new batch of titles to their libraries. Here are our picks for September.`\
-https://nytimes.com/2020/09/01/arts/television/new-to-stream-netflix.html?searchResultPosition=4
-
-**Miranda Lambert Leads CMA Noms, Luke Combs' Streak Continues**\
-`Country star Miranda Lambert turns her “Wildcard” into an ace as she’s the leading nominee at the 2020 Country Music Association Awards, including her first entertainer of the year nomination in five years.`\
-https://nytimes.com/aponline/2020/09/01/us/ap-us-music-cma-awards-nominations-1st-ld-writethru.html?searchResultPosition=5
-
-**Indian IT Minister Accuses Facebook of Bias Amid Row Over Content**\
-`India's minister for information technology and law Ravi Shankar Prasad raised concerns on Tuesday over the deletion of some pages and posts on Facebook, accusing some employees of the social media platform in India of bias and inaction.`\
-https://nytimes.com/reuters/2020/09/01/business/01reuters-facebook-india.html?searchResultPosition=6
-
-**US Construction Spending Edges Up Tiny 0.1% in July**\
-`U.S. construction spending edged up a tiny 0.1% in July, breaking a string of losses due to disruptions caused by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/09/01/business/bc-us-construction-spending.html?searchResultPosition=7
-
-**Survey: US Factories Grow in August for Third Straight Month**\
-`American factories expanded last month at the fastest pace since late 2018, continuing a rebound from the coronavirus recession.`\
-https://nytimes.com/aponline/2020/09/01/business/ap-u-economy-manufacturing.html?searchResultPosition=8
-
-**U.S. Construction Spending Almost Flat in July: Commerce Department**\
-`U.S. construction spending barely rose in July as an increase in outlays on private projects was almost offset by a plunge in public construction projects.`\
-https://nytimes.com/reuters/2020/09/01/us/01reuters-usa-economy-construction.html?searchResultPosition=9
-
-**White House Public Tours to Resume Sept. 12 With COVID Rules**\
-`Public tours of the White House, halted nearly six months ago due to the coronavirus  outbreak, are set to resume later this month with new health and safety policies in place.`\
-https://nytimes.com/aponline/2020/09/01/us/politics/ap-us-white-house-public-tours-.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-usa-trade-china-tariffs.html?searchResultPosition=10
 
