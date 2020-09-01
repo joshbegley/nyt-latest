@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-norway-belarus.htm
 https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-india-china.html?searchResultPosition=9
 
 **A Parent’s Toughest Call: In-Person Schooling or Not?**\
-`Parents are wrestling with difficult choices over sending their children to school. Here’s how one science reporter made the call.`\
+`Parents are wrestling with difficult choices over sending their children to school. Here’s how one science reporter made the decision.`\
 https://nytimes.com/2020/09/01/health/coronavirus-parents-schools.html?searchResultPosition=10
 
