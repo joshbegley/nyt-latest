@@ -26,8 +26,8 @@ https://nytimes.com/aponline/2020/09/01/us/ap-us-oglala-sioux-president-impeachm
 `A video circulating on social media appears to show an Israeli soldier kneeling on a Palestinian protester's neck while arresting him during a demonstration in the occupied West Bank on Tuesday.`\
 https://nytimes.com/aponline/2020/09/01/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=7
 
-**Mnuchin: Eviction Moratorium to Impact Close to 40 Million U.S. Renters**\
-`U.S. Treasury Secretary Steven Mnuchin said the Trump administration will detail an eviction moratorium later on Tuesday that will affect close to 40 million U.S. renters.`\
+**Mnuchin: Treasury to Disclose Details on Eviction Moratorium for U.S. Renters**\
+`U.S. Treasury Secretary Steven Mnuchin said on Tuesday the Trump administration was set to disclose details of an eviction moratorium later in the day.`\
 https://nytimes.com/reuters/2020/09/01/us/01reuters-health-coronavirus-usa-renters.html?searchResultPosition=8
 
 **US Justice Department Warns FIFA on International Ban**\
