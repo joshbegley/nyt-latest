@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/09/01/world/africa/ap-af-zimbabwe-elephant-dea
 https://nytimes.com/aponline/2020/09/01/sports/tennis/ap-ten-us-open-the-latest-1st-ld-writethru.html?searchResultPosition=4
 
 **Climate Action Is Europe's 'Roadmap' Out of COVID-19 Crisis, Top Official Says**\
-`The European Union will redouble efforts to meet its green goals to help mitigate the economic havoc wrought by the COVID-19, its top climate official said on Tuesday, rejecting any notion that the pandemic had made ambitious climate action unaffordable.`\
+`The European Union will redouble efforts to meet its green goals to help mitigate the economic havoc wrought by COVID-19, its top climate official said on Tuesday, rejecting any notion that the pandemic had made ambitious climate action unaffordable.`\
 https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-climate-change-eu.html?searchResultPosition=5
 
 **Scottish Nationalists Announce Plans for New Independence Referendum**\
