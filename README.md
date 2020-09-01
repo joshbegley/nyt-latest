@@ -1,40 +1,40 @@
+**Schools Reopen Around the World Despite Coronavirus Spread**\
+`In countries all over the world, students are heading back to school with varying degrees of safety precautions.`\
+https://nytimes.com/video/world/europe/100000007318835/schools-reopen-worldwide-despite-coronavirus.html?searchResultPosition=1
+
+**Her Town Depended on the Mill. Was It Also Making the Residents Sick?**\
+`In “Mill Town,” Kerri Arsenault uncovers her family’s long history in northern Maine and an epidemic of cancer that may be intimately connected to the community’s main employer.`\
+https://nytimes.com/2020/09/01/books/review/mill-town-reckoning-with-what-remains-kerri-arsenault.html?searchResultPosition=2
+
+**The Latest: Trump Says He'll Thank National Guard in Kenosha**\
+`The Latest on the Aug. 23 police shooting of Jacob Blake (all times local):`\
+https://nytimes.com/aponline/2020/09/01/us/ap-us-police-shooting-wisconsin-the-latest.html?searchResultPosition=3
+
+**Barr Imposes Limits on F.B.I. Surveillance of Political Candidates**\
+`The directives came in response to the flawed monitoring of a former Trump adviser that the president has falsely held up as proof of spying on his campaign.`\
+https://nytimes.com/2020/09/01/us/politics/barr-elections-fbi-surveillance.html?searchResultPosition=4
+
+**U.S. Manufacturing Activity at Nearly Two-Year High; New Orders Accelerate**\
+`U.S. manufacturing activity accelerated to a nearly two-year high in August aided by a surge in new orders, but employment at factories continued to lag amid safety restrictions intended to slow the spread of COVID-19.`\
+https://nytimes.com/reuters/2020/09/01/business/01reuters-usa-economy.html?searchResultPosition=5
+
+**Chicago Police Fatally Shoot 1 After Gunfire Hits Squad Car**\
+`Chicago police officers shot and fatally wounded a male suspect after their squad car was struck overnight by gunfire, police said Tuesday.`\
+https://nytimes.com/aponline/2020/09/01/us/ap-us-chicago-violence-squad-car-shooting-2nd-ld-writethru.html?searchResultPosition=6
+
+**Yes to Tech Optimism. And Pessimism.**\
+`We need tech optimists to shoot for the moon. But we also need those looking for problems.`\
+https://nytimes.com/2020/09/01/technology/yes-to-tech-optimism-and-pessimism.html?searchResultPosition=7
+
 **What Our Reporter Is Seeing on the Ground in Kenosha**\
 `President Trump arrives today for a visit over the objections of the mayor and governor, who asked him to come later to avoid inflaming tensions in this boarded-up, traumatized city.`\
-https://nytimes.com/interactive/2020/09/01/us/kenosha-trump-visit.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/09/01/us/kenosha-trump-visit.html?searchResultPosition=8
 
 **Italy's Dompe to Start Testing New Treatment in Brazil for Severe COVID-19 Patients**\
 `Italian biotech firm Dompe said it received the go-ahead from Brazil's medical regulator to start Phase II human trials of one of its products being developed for organ transplants for treating severely ill COVID-19 patients. `\
-https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-health-coronavirus-italy-brazil.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-health-coronavirus-italy-brazil.html?searchResultPosition=9
 
 **Beirut Blast Victim's Daughter Gifts Macron a Pin, Gets Hug**\
 `“Keep Lebanon close to your heart.” That's the concept behind a golden pin given to French President Emmanuel Macron by an 11-year-old Beirut girl that adorned his lapel during meetings with Lebanese officials Tuesday. `\
-https://nytimes.com/aponline/2020/09/01/world/middleeast/ap-ml-lebanon-macron-blast-victim.html?searchResultPosition=3
-
-**Pentagon Concerned by China's Nuclear Ambitions, Expects Warheads to Double**\
-`China is expected to at least double the number of its nuclear warheads over the next decade from the low 200s now and is nearing the ability to launch nuclear strikes by land, air and sea, a capacity known as a triad, the Pentagon said on Tuesday.`\
-https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-usa-china-military-nuclear.html?searchResultPosition=4
-
-**Amid Talks With Israel, UAE Pursuit of Stealth Jets Rumbles in Background**\
-`Amid historic normalization talks between Israel and the United Arab Emirates, American officials spent a morning at an Abu Dhabi air base housing U.S. stealth jets which the Gulf state hopes to buy despite Israeli objections.`\
-https://nytimes.com/reuters/2020/09/01/world/middleeast/01reuters-israel-emirates-usa-military.html?searchResultPosition=5
-
-**Mississippi University to Rename 'Dixie Darlings' Dance Team**\
-`A Mississippi university says it is beginning the process of renaming its dance team, the “Dixie Darlings."`\
-https://nytimes.com/aponline/2020/09/01/us/ap-us-dixie-darlings-1st-ld-writethru.html?searchResultPosition=6
-
-**Google, Apple Roll Out Built-In COVID-19 Exposure Notifications to Phones**\
-`Alphabet Inc's Google and Apple Inc on Tuesday announced a new system that will enable public health authorities to use smartphones to assist in contact tracing without having to build an app.`\
-https://nytimes.com/reuters/2020/09/01/business/01reuters-health-coronavirus-apple-google.html?searchResultPosition=7
-
-**UK Records 1,295 Daily Confirmed Cases of COVID-19**\
-`The United Kingdom recorded 1,295 daily confirmed cases of COVID-19, according to government data published on Tuesday, down from 1,406 a day earlier.`\
-https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-health-coronavirus-britain-cases.html?searchResultPosition=8
-
-**Bring Back the Bogs: Estonian Volunteers Get Hands Dirty in Climate Fight**\
-`Deep in the Estonian woodlands, a group of volunteers is toiling to restore a bog that was drained last century for mining purposes, turning the area into a major source of greenhouse gas emissions no longer trapped in damp, heavy earth.`\
-https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-estonia-environment-bogs.html?searchResultPosition=9
-
-**Pentagon Says China Planning Big Increase in Nuclear Arsenal**\
-`China likely plans to double its stockpile of nuclear warheads in this decade, including those designed to be carried atop ballistic missiles that can reach the United States, the Pentagon said in a report released Tuesday.`\
-https://nytimes.com/aponline/2020/09/01/us/politics/ap-us-pentagon-china-nuclear.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/01/world/middleeast/ap-ml-lebanon-macron-blast-victim.html?searchResultPosition=10
 
