@@ -1,40 +1,40 @@
+**Myers Homers, Busy Padres Blank Rockies 6-0**\
+`Wil Myers homered and Garrett Richards led a committee of pitchers that scattered seven hits as the San Diego Padres beat the Colorado Rockies 6-0 on Monday night.`\
+https://nytimes.com/aponline/2020/09/01/sports/baseball/bc-bbn-padres-rockies.html?searchResultPosition=1
+
 **What Belarusians Can Learn From Poland**\
 `The protests, strikes and brutal police response invite comparison to Solidarity’s campaign for freedom from Moscow 40 years ago. There are differences.`\
-https://nytimes.com/2020/09/01/opinion/belarus-poland.html?searchResultPosition=1
+https://nytimes.com/2020/09/01/opinion/belarus-poland.html?searchResultPosition=2
 
 **Japan's Next Premier to Find Pandemic Eroding Job Market Gains Made by 'Abenomics'**\
 `Whoever succeeds Shinzo Abe as Japan's prime minister will be confronted with growing signs that the job market is deteriorating in an economy laid low by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/09/01/business/01reuters-japan-politics-abenomics-job.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/09/01/business/01reuters-japan-politics-abenomics-job.html?searchResultPosition=3
 
 **Earthquake of Magnitude 6.3 Strikes Near Coast of Northern Chile: GFZ**\
 `An earthquake of magnitude 6.3 struck near the coast of Northern Chile on Tuesday, the GFZ German Research Center for Geosciences said.`\
-https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-chile-quake.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-chile-quake.html?searchResultPosition=4
 
 **LEADING OFF: Deadline Deals, Pineda Returns, Rays Roll Yanks**\
 `A look at what’s happening around the majors Tuesday:`\
-https://nytimes.com/aponline/2020/09/01/sports/baseball/ap-bbo-leading-off-1st-ld-writethru.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/09/01/sports/baseball/ap-bbo-leading-off-1st-ld-writethru.html?searchResultPosition=5
 
 **Reports on Trinity Test Fallout, Cancer Cases to Be Released**\
 `After years of research, the National Cancer Institute was poised Tuesday to finally release a series of papers related to radiation doses and cancer risks resulting from the U.S. government's detonation of the first atomic bomb during a test at a military outpost in the New Mexico desert in 1945.`\
-https://nytimes.com/aponline/2020/09/01/us/ap-us-nuclear-weapons-fallout.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/09/01/us/ap-us-nuclear-weapons-fallout.html?searchResultPosition=6
 
 **South Korea Prosecutors to Announce on Tuesday if Samsung Leader Jay Y. Lee Will Be Indicted**\
 `South Korean prosecutors will announce on Tuesday whether they will indict Samsung Group leader Jay Y. Lee on charges of manipulating stock prices and violating accounting rules to cement control of the group, a prosecution spokesman said.`\
-https://nytimes.com/reuters/2020/09/01/business/01reuters-samsung-elec-heir.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/09/01/business/01reuters-samsung-elec-heir.html?searchResultPosition=7
 
 **Avs Ride 5-Goal 1st Period to 6-3 Win Over Stars in Game 5**\
 `Pierre-Edouard Bellemare began a five-goal scoring spree in the first period and the Colorado Avalanche avoided second-round elimination with a 6-3 victory over the Dallas Stars in Game 5 on Monday night.`\
-https://nytimes.com/aponline/2020/09/01/sports/hockey/bc-hkn-stars-avalanche.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/09/01/sports/hockey/bc-hkn-stars-avalanche.html?searchResultPosition=8
 
 **Facebook to Block News on Australian Sites After New Law, Riling Lawmakers**\
 `Facebook Inc on Tuesday said it would stop Australians sharing news content on its platforms if a proposal to make it pay local media outlets for their content becomes law, escalating tension with the Australian government.`\
-https://nytimes.com/reuters/2020/09/01/technology/01reuters-australia-media-facebook.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/09/01/technology/01reuters-australia-media-facebook.html?searchResultPosition=9
 
 **Osaka Wears Mask in Memory of Breonna Taylor at US Open**\
 `Before and after her first-round victory at the U.S. Open, Naomi Osaka wore a mask bearing the name of Breonna Taylor, a Black woman who was fatally shot by police.`\
-https://nytimes.com/aponline/2020/09/01/sports/tennis/ap-ten-us-open-osaka.html?searchResultPosition=9
-
-**India's Coronavirus Cases Near 3.7 Million**\
-`India reported 69,921 new coronavirus infections on Tuesday, the lowest daily jump in six days, taking its overall caseload to 3.69 million.`\
-https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-health-coronavirus-india-cases.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/01/sports/tennis/ap-ten-us-open-osaka.html?searchResultPosition=10
 
