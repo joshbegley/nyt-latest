@@ -1,40 +1,40 @@
+**Norway PM to Meet Belarus Opposition Leader Tsikhanouskaya**\
+`Norwegian Prime Minister Erna Solberg has scheduled a meeting with exiled Belarusian opposition leader Sviatlana Tsikhanouskaya during a visit to Lithuania next week, Norwegian broadcaster TV2 reported on Tuesday.`\
+https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-norway-belarus.html?searchResultPosition=1
+
+**India Says Troops Hold Himalayan Hilltops After Face-Off With Chinese Forces**\
+`A senior Indian official said on Tuesday Indian troops had deployed on four strategic hilltops after what New Delhi called an attempted Chinese incursion along the disputed Himalayan border, underlining simmering tensions between the Asian giants.`\
+https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-india-china.html?searchResultPosition=2
+
+**A Parent’s Toughest Call: In-Person Schooling or Not?**\
+`Parents are wrestling with difficult choices over sending their children to school. Here’s how one science reporter made the call.`\
+https://nytimes.com/2020/09/01/health/coronavirus-parents-schools.html?searchResultPosition=3
+
+**In Coming Wave of Pandemic-Induced Vacancies, Some See Opportunity**\
+`As the outlook for retail, hotel and office space shifts, some developers are already planning to convert empty properties to new uses.`\
+https://nytimes.com/2020/09/01/business/commercial-real-estate-conversion-coronavirus.html?searchResultPosition=4
+
+**Determined to Salvage the Fall, Cabaret Plots Its (Outdoor, Online) Return**\
+`Making performances more accessible to audiences is part of the mission. Presenting shows that reflect the moment is another.`\
+https://nytimes.com/2020/09/01/arts/music/cabaret-fall-season.html?searchResultPosition=5
+
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2020/09/01/business/recent-commercial-real-estate-transactions.html?searchResultPosition=6
+
+**‘Robin’s Wish’ Review: Celebrating a Life, Highlighting a Disease**\
+`This documentary on Robin Williams alternates between paying tribute to him and shedding light on Lewy body dementia, which was diagnosed in him after his death.`\
+https://nytimes.com/2020/09/01/movies/robins-wish-review-robin-williams.html?searchResultPosition=7
+
+**EU Resumes Air Canada/Transat Merger Review, Sets December 11 Deadline**\
+`EU antitrust regulators have resumed their investigation into Air Canada's proposed acquisition of rival Canadian carrier Air Transat and set a deadline of December 11 for a decision.`\
+https://nytimes.com/reuters/2020/09/01/business/01reuters-transat-at-m-a-air-canada-eu.html?searchResultPosition=8
+
+**Brazil's Bolsonaro Extends COVID-19 Assistance Until End of Year at 300 Reais**\
+`Brazilian President Jair Bolsonaro said on Tuesday he has extended financial assistance to help offset the economic fallout from the pandemic until the end of the year, at a lower rate of 300 reais ($55.63) per month, down from 600 reais.`\
+https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-brazil-politics.html?searchResultPosition=9
+
 **Zuckerberg, Chan to Donate $300 Million for U.S. Elections to Deal With COVID-19 Pandemic**\
 `Facebook Inc Chief Executive Officer Mark Zuckerberg and his wife Priscilla Chan will donate $300 million to help the U.S. election process deal with challenges related to the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/09/01/technology/01reuters-usa-election-zuckerberg.html?searchResultPosition=1
-
-**How to Read California’s Air Quality Index**\
-`Here’s what you need to know about reading daily pollution levels.`\
-https://nytimes.com/2020/09/01/us/ca-air-quality-index.html?searchResultPosition=2
-
-**Virgin Atlantic, Eyeing Approval of Rescue Deal, Restarts More Routes**\
-`Virgin Atlantic will resume flying to Delhi, Tel Aviv, Atlanta, Mumbai and Lagos from London in September as travel restrictions ease, the airline said on Tuesday, as it eyes the completion of its restructuring plan.`\
-https://nytimes.com/reuters/2020/09/01/business/01reuters-health-coronavirus-virgin-atlantic.html?searchResultPosition=3
-
-**Thai Finance Minister Quits 1 Month After Appointment**\
-`Thailand’s finance minister resigned unexpectedly Tuesday after less than a month in the job, in which he was responsible for helping restore an economy slammed by the coronavirus.`\
-https://nytimes.com/aponline/2020/09/01/business/ap-as-thailand-finance-minister.html?searchResultPosition=4
-
-**Alpine Skiing: Germany's Olympic Champion Rebensburg Retires**\
-`Germany's leading skier and 2010 Olympic giant slalom champion Viktoria Rebensburg is retiring after a dip in form, she said on Tuesday.`\
-https://nytimes.com/reuters/2020/09/01/sports/skiing/01reuters-alpine-germany-rebensburg.html?searchResultPosition=5
-
-**Brazil's Gol Pays $300 Million Loan Guaranteed by Delta: Filing**\
-`Brazilian airline Gol Linhas Aereas Inteligentes said on Tuesday it paid a $300 million debt guaranteed by U.S. carrier Delta Air Lines, according to a securities filing.`\
-https://nytimes.com/reuters/2020/09/01/business/01reuters-gol-delta-debt.html?searchResultPosition=6
-
-**Tunisia's Parliament Votes on New Prime Minister Amid Crisis**\
-`The Tunisian parliament is holding a confidence vote Tuesday on a new prime minister and his proposed government as the North African country faces deep economic crisis worsened by the coronavirus pandemic and after a conflict-of-interest scandal pushed out the previous officeholder. `\
-https://nytimes.com/aponline/2020/09/01/world/africa/ap-af-tunisia-government.html?searchResultPosition=7
-
-**German Parliament Set to Hold Inquiry on Wirecard Scandal**\
-`German opposition parties plan to trigger a parliamentary inquiry into the downfall of bankrupt payment company Wirecard, a development that could be uncomfortable for the government ahead of an election next year.`\
-https://nytimes.com/aponline/2020/09/01/business/ap-eu-germany-wirecard.html?searchResultPosition=8
-
-**Gunfire Erupts in Lebanese Town South of Capital, State Media Says**\
-`Gunfire broke out on Tuesday in a town south of Beirut, where clashes last week killed two people and raised the risk of sectarian strife in Lebanon, the state news agency NNA said.`\
-https://nytimes.com/reuters/2020/09/01/world/middleeast/01reuters-lebanon-security-shooting.html?searchResultPosition=9
-
-**UK to Ramp Up Return-To-Workplace Campaign After COVID Slump**\
-`Britain's government will launch a media campaign this week to urge people to return to their workplaces, ramping up Prime Minister Boris Johnson's calls to get economy back up to speed up after its hammering during the coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-health-coronavirus-britain-workers.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/01/technology/01reuters-usa-election-zuckerberg.html?searchResultPosition=10
 
