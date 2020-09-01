@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-india-mukherjee-obit
 `A trove of Phoenician artifacts was long ascribed to a single shipwreck. More likely they were tossed overboard, and over centuries, a new study suggests.`\
 https://nytimes.com/2020/09/01/science/archaeology-phoenician-israel-shavei-zion.html?searchResultPosition=9
 
-**AstraZeneca's Imfinzi Wins EU Approval for Lung Cancer**\
-`AstraZeneca Plc's Imfinzi has been approved in the European Union for previously untreated adult patients with extensive-stage small cell lung cancer (ES-SCLC), the drugmaker said on Tuesday.`\
+**AstraZeneca's Imfinzi Wins EU Approval for Aggressive Form of Lung Cancer**\
+`AstraZeneca Plc's Imfinzi has been approved in the European Union to treat an aggressive form of lung cancer in  previously untreated adult patients, the drugmaker said on Tuesday.`\
 https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-astrazeneca-imfinzi.html?searchResultPosition=10
 
