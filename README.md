@@ -1,40 +1,40 @@
+**Braskem Hires Law Firm in the U.S. for Class Action on Alagoas Salt Case: Filing**\
+`Braskem SA was notified of a class-action lawsuit filed with the Federal Court of the District of New Jersey and has hired a law firm in the U.S. to represent the company, it said in a filing on late Monday.`\
+https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-braskem-brazil-legal.html?searchResultPosition=1
+
+**Toyota's U.S. Sales Fall 23% in August**\
+`Toyota Motor Corp on Tuesday reported its fifth straight month of declines in the United States in August as demand for cars remains sluggish even after factories and dealerships reopened from coronavirus-led lockdowns.`\
+https://nytimes.com/reuters/2020/09/01/business/01reuters-usa-autos-sales.html?searchResultPosition=2
+
+**As Food Deliveries Boom, So Do Ghost Kitchens**\
+`Several new companies and models have emerged to help restaurants by making food off-site, and even delivering it.`\
+https://nytimes.com/2020/09/01/dining/ghost-kitchens-delivery-pandemic.html?searchResultPosition=3
+
+**James Robbins, N.F.L. Lineman With Cardinals and Packers, Dies at 62**\
+`An offensive lineman for a dozen years, “Tootie” Robbins was popular with his teammates and never forgot his roots. He died of pneumonia related to Covid-19.`\
+https://nytimes.com/2020/09/01/obituaries/james-robbins-dead-coronavirus.html?searchResultPosition=4
+
+**FIFA Is Warned That Banning Top Games in U.S. May Breach Antitrust Laws**\
+`The Justice Department told FIFA of its concerns as a lawsuit brought by an American sports promoter challenges regulations on where regular-season games involving overseas soccer clubs can be played.`\
+https://nytimes.com/2020/09/01/sports/soccer/fifa-antitrust-us.html?searchResultPosition=5
+
+**Kanye West Sues to Be Listed on West Virginia Ballot**\
+`Rapper Kanye West has sued the West Virginia Secretary of State's Office after being told his bid to get on the ballot for president came up short on qualified signatures.`\
+https://nytimes.com/aponline/2020/09/01/us/ap-us-election-2020-kanye-west.html?searchResultPosition=6
+
+**To Play Poker in a Pandemic, Americans Flee the U.S.**\
+`Unlike other sporting events canceled by the coronavirus, the World of Series of Poker, and its millions in prizes, went online. But borders are tricky when it comes to internet gambling.`\
+https://nytimes.com/2020/09/01/sports/coronavirus-world-series-of-poker.html?searchResultPosition=7
+
 **Amazon's Whole Foods Market Opens First Delivery-Only Store**\
 `Amazon.com Inc owned Whole Foods Market opened its first delivery-only store in Brooklyn, New York on Sept. 1, the e-commerce giant said on Tuesday.     `\
-https://nytimes.com/reuters/2020/09/01/business/01reuters-amazon-whole-foods-market.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/01/business/01reuters-amazon-whole-foods-market.html?searchResultPosition=8
 
 **Roanoke’s ‘Lost Colony’ Was Never Lost, New Book Says**\
 `A new book aims to settle a centuries-old question of what happened to a group of English colonists. Archaeologists said that its theory was plausible but that more evidence was needed.`\
-https://nytimes.com/2020/09/01/us/Roanoke-lost-colony.html?searchResultPosition=2
+https://nytimes.com/2020/09/01/us/Roanoke-lost-colony.html?searchResultPosition=9
 
 **Why the Coronavirus Stalks Children of Color**\
 `Cases are rising among children everywhere. But those in minority communities are much more likely to become infected and severely ill, new data show.`\
-https://nytimes.com/2020/09/01/health/coronavirus-children-minorities.html?searchResultPosition=3
-
-**Gang Members Release Guards From Guatemala Prison**\
-`Ten guards taken hostage by gang members in a Guatemala prison were released early Tuesday after hours of captivity and negotiations with police.`\
-https://nytimes.com/aponline/2020/09/01/world/americas/ap-lt-guatemala-prison-hostages.html?searchResultPosition=4
-
-**Georgia Police: Couple 'Intended to Raise' Abducted Baby**\
-`A couple accused of kidnapping a 1-year-old boy at gunpoint from his stroller outside his family's apartment near Atlanta “intended to raise” the baby as their own and had tried to abduct another child earlier that day, authorities said.`\
-https://nytimes.com/aponline/2020/09/01/us/ap-us-baby-kidnapped-1st-ld-writethru.html?searchResultPosition=5
-
-**U.S.-Russia Military Tensions Intensify in the Air and on the Ground Worldwide**\
-`Recent altercations in Europe, the Middle East and off the coast of Alaska have heightened tensions between the two rival powers.`\
-https://nytimes.com/2020/09/01/us/politics/us-russia-military-tensions.html?searchResultPosition=6
-
-**Washington Says Pardons by Venezuela's Maduro Are Token Acts**\
-`The Trump administration said Tuesday that Venezuelan President Nicolás Maduro should not be praised for releasing a few political opponents ahead of a congressional election, when many more opposition activists remain in jail. `\
-https://nytimes.com/aponline/2020/09/01/world/americas/ap-lt-venezuela.html?searchResultPosition=7
-
-**Mexico's Factories Still Reeling From Coronavirus, Pace of Decline Eases in August**\
-`Mexico's factories were still hurting in August from the coronavirus pandemic, with production falling and firms cutting workers, though the pace of deterioration in business conditions eased for a fourth straight month, a survey showed on Tuesday.`\
-https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-mexico-economy-pmi.html?searchResultPosition=8
-
-**Ex-Candidate Says Belarusians Will No Longer Obey President**\
-`The former English teacher who ran for president as an opposition candidate in Belarus said Tuesday that she thinks the country's authoritarian government will eventually succumb to public pressure and agree to enter discussions on a peaceful transition of power. `\
-https://nytimes.com/aponline/2020/09/01/world/europe/ap-eu-belarus-opposition.html?searchResultPosition=9
-
-**Remembering Riley Gale of Power Trip, a Thrash Titan**\
-`The band’s 34-year-old frontman helped break down barriers between scenes, and was known for singularly wild live shows.`\
-https://nytimes.com/2020/09/01/arts/music/popcast-riley-gale-power-trip.html?searchResultPosition=10
+https://nytimes.com/2020/09/01/health/coronavirus-children-minorities.html?searchResultPosition=10
 
