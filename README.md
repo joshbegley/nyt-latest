@@ -1,4 +1,4 @@
-**Here’s What Our Reporter Is Seeing on the Ground in Kenosha**\
+**What Our Reporter Is Seeing on the Ground in Kenosha**\
 `President Trump arrives today for a visit over the objections of the mayor and governor, who asked him to come later to avoid inflaming tensions in this boarded-up, traumatized city.`\
 https://nytimes.com/interactive/2020/09/01/us/kenosha-trump-visit.html?searchResultPosition=1
 
