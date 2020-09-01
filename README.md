@@ -1,40 +1,40 @@
-**US Construction Spending Edges Up Tiny 0.1% in July**\
-`U.S. construction spending edged up a tiny 0.1% in July, breaking a string of losses due to disruptions caused by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/09/01/business/bc-us-construction-spending.html?searchResultPosition=1
+**Why the Coronavirus Stalks Children of Color**\
+`Cases are rising among children everywhere. But those in minority communities are much more likely to become infected and severely ill, new data show.`\
+https://nytimes.com/2020/09/01/health/coronavirus-children-minorities.html?searchResultPosition=1
 
-**Survey: US Factories Grow in August for Third Straight Month**\
-`American factories expanded last month at the fastest pace since late 2018, continuing a rebound from the coronavirus recession.`\
-https://nytimes.com/aponline/2020/09/01/business/ap-u-economy-manufacturing.html?searchResultPosition=2
+**Gang Members Release Guards From Guatemala Prison**\
+`Ten guards taken hostage by gang members in a Guatemala prison were released early Tuesday after hours of captivity and negotiations with police.`\
+https://nytimes.com/aponline/2020/09/01/world/americas/ap-lt-guatemala-prison-hostages.html?searchResultPosition=2
 
-**U.S. Construction Spending Almost Flat in July: Commerce Department**\
-`U.S. construction spending barely rose in July as an increase in outlays on private projects was almost offset by a plunge in public construction projects.`\
-https://nytimes.com/reuters/2020/09/01/us/01reuters-usa-economy-construction.html?searchResultPosition=3
+**Georgia Police: Couple 'Intended to Raise' Abducted Baby**\
+`A couple accused of kidnapping a 1-year-old boy at gunpoint from his stroller outside his family's apartment near Atlanta “intended to raise” the baby as their own and had tried to abduct another child earlier that day, authorities said.`\
+https://nytimes.com/aponline/2020/09/01/us/ap-us-baby-kidnapped-1st-ld-writethru.html?searchResultPosition=3
 
-**White House Public Tours to Resume Sept. 12 With COVID Rules**\
-`Public tours of the White House, halted nearly six months ago due to the coronavirus  outbreak, are set to resume later this month with new health and safety policies in place.`\
-https://nytimes.com/aponline/2020/09/01/us/politics/ap-us-white-house-public-tours-.html?searchResultPosition=4
+**U.S.-Russia Military Tensions Intensify in the Air and on the Ground Worldwide**\
+`Recent altercations in Europe, the Middle East and off the coast of Alaska have heightened tensions between the two rival powers.`\
+https://nytimes.com/2020/09/01/us/politics/us-russia-military-tensions.html?searchResultPosition=4
 
-**Samsung's New Foldable Phone Is Its Biggest**\
-`Samsung Electronics Co Ltd's latest foldable smartphone is also its largest, offering users a tablet-size screen 12% bigger than its first Galaxy Fold.`\
-https://nytimes.com/reuters/2020/09/01/business/01reuters-samsung-elec-smartphone.html?searchResultPosition=5
+**Washington Says Pardons by Venezuela's Maduro Are Token Acts**\
+`The Trump administration said Tuesday that Venezuelan President Nicolás Maduro should not be praised for releasing a few political opponents ahead of a congressional election, when many more opposition activists remain in jail. `\
+https://nytimes.com/aponline/2020/09/01/world/americas/ap-lt-venezuela.html?searchResultPosition=5
 
-**Music World to Conductor Seiji Ozawa: Happy 85th Birthday**\
-`The Boston Symphony Orchestra, along with several other organizations around the world, is celebrating conductor Seiji Ozawa's 85th birthday Tuesday.`\
-https://nytimes.com/aponline/2020/09/01/us/ap-us-people-ozawa-1st-ld-writethru.html?searchResultPosition=6
+**Mexico's Factories Still Reeling From Coronavirus, Pace of Decline Eases in August**\
+`Mexico's factories were still hurting in August from the coronavirus pandemic, with production falling and firms cutting workers, though the pace of deterioration in business conditions eased for a fourth straight month, a survey showed on Tuesday.`\
+https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-mexico-economy-pmi.html?searchResultPosition=6
 
-**'Follow Me on LinkedIn,' UK PM Johnson Tells Businesses**\
-`British Prime Minister Boris Johnson opened an account on professional networking site LinkedIn on Tuesday, saying he wanted to use it as a way to talk more directly to the business community.`\
-https://nytimes.com/reuters/2020/09/01/business/01reuters-britain-politics-johnson.html?searchResultPosition=7
+**Ex-Candidate Says Belarusians Will No Longer Obey President**\
+`The former English teacher who ran for president as an opposition candidate in Belarus said Tuesday that she thinks the country's authoritarian government will eventually succumb to public pressure and agree to enter discussions on a peaceful transition of power. `\
+https://nytimes.com/aponline/2020/09/01/world/europe/ap-eu-belarus-opposition.html?searchResultPosition=7
 
-**U.S. Manufacturing Activity at 19-Month High in August**\
-`U.S. manufacturing activity accelerated to a more than 1-1/2-year high in August amid a surge in new orders, but employment continued to lag, supporting views that the labor market recovery was losing momentum. `\
-https://nytimes.com/reuters/2020/09/01/us/01reuters-usa-economy-manufacturing.html?searchResultPosition=8
+**Remembering Riley Gale of Power Trip, a Thrash Titan**\
+`The band’s 34-year-old frontman helped break down barriers between scenes, and was known for singularly wild live shows.`\
+https://nytimes.com/2020/09/01/arts/music/popcast-riley-gale-power-trip.html?searchResultPosition=8
 
-**2 Pythons Weighing 100 Pounds Collapse Ceiling in Australia**\
-`An Australian returned home and was surprised to discover that his kitchen ceiling had collapsed under the weight of two large pythons apparently fighting over a mate.`\
-https://nytimes.com/aponline/2020/09/01/us/ap-as-australia-snakes-in-the-ceiling.html?searchResultPosition=9
+**Face Shields and Valved Masks Offer More Comfort but Less Protection**\
+`While any face covering is better than nothing, clear plastic shields and masks with exhale valves allow large plumes of particles to escape and may also expose the wearer to more germs.`\
+https://nytimes.com/2020/09/01/well/live/face-shield-.html?searchResultPosition=9
 
-**India Accuses China of Fresh Provocation During Military Talks Over Border**\
-`India's Foreign Ministry said on Tuesday that Chinese troops had "engaged in provocative action" on the border on Monday even as military commanders held talks to defuse tensions.`\
-https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-india-china-border.html?searchResultPosition=10
+**Roll Redemption: No. 3 Alabama Aims to Restore Dominance**\
+`Alabama coach Nick Saban stressed the importance of humility to his players in a preseason talk, urging them to avoid the pitfalls of entitlement and self-satisfaction.`\
+https://nytimes.com/aponline/2020/09/01/sports/ncaafootball/ap-fbc-t25-alabama-preview.html?searchResultPosition=10
 
