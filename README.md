@@ -1,40 +1,40 @@
+**Vandersloot Sets WNBA Single-Game Record With 18 Assists**\
+`Courtney Vandersloot set a WNBA single-game record with 18 assists, helping the Chicago Sky beat the Indiana Fever 100-77 on Monday night.`\
+https://nytimes.com/aponline/2020/08/31/sports/basketball/ap-bkl-sky-fever.html?searchResultPosition=1
+
+**Niecy Nash Surprises With Wedding to Singer Jessica Betts**\
+`Actor and comedian Niecy Nash surprised fans with her weekend wedding to singer Jessica Betts. `\
+https://nytimes.com/aponline/2020/08/31/us/ap-us-people-niecy-nash.html?searchResultPosition=2
+
+**Strong Typhoon Sweeping Over Japan's Southernmost Islands**\
+`A powerful typhoon was blowing over Japan's southernmost islands early Tuesday on course for Japan's main southern island and later the Korean Peninsula.`\
+https://nytimes.com/aponline/2020/08/31/world/asia/ap-as-asia-typhoon.html?searchResultPosition=3
+
+**Japan's Second-Quarter Capex Sees Biggest Decline Since 2010 on Pandemic Blow**\
+`Japanese firms cut spending on plant and equipment by the most in a decade in the second quarter, the government said on Tuesday, as the coronavirus pandemic delivered a heavy blow to business activity.`\
+https://nytimes.com/reuters/2020/08/31/business/31reuters-japan-economy-capex.html?searchResultPosition=4
+
+**Trump Defends Kyle Rittenhouse**\
+`President Trump said Mr. Rittenhouse, the 17-year-old who has been charged in the killings of two people in Wisconsin, was “violently attacked.”`\
+https://nytimes.com/video/us/politics/100000007317812/trump-rittenhouse-teenager-peaceful-protest.html?searchResultPosition=5
+
+**A Long History of Language That Incites and Demonizes**\
+`President Trump has employed provocative and sometimes incendiary words and images to focus attention on demonstrations and away from the human and economic costs of the pandemic.`\
+https://nytimes.com/2020/08/31/us/politics/trump-police-protests.html?searchResultPosition=6
+
+**Mexico City's 2nd Oldest Church Burns Amid Homeless Takeover**\
+`Authorities promised Monday to erect a barricade around Mexico City’s second oldest church after a weekend fire damaged the tower, choir, an organ and stained glass. `\
+https://nytimes.com/aponline/2020/08/31/world/americas/ap-lt-mexico-church-burned.html?searchResultPosition=7
+
 **Mexico Records 3,719 New Coronavirus Cases, 256 More Deaths**\
 `Mexico's health ministry on Monday reported 3,719 new confirmed cases of coronavirus infections and 256 additional fatalities, bringing the total in the country to 599,560 cases and 64,414 deaths.`\
-https://nytimes.com/reuters/2020/08/31/world/americas/31reuters-health-coronavirus-mexico-tally.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/31/world/americas/31reuters-health-coronavirus-mexico-tally.html?searchResultPosition=8
 
 **‘We Germans,’ Alexander Starritt by the Author: An Excerpt**\
 `An excerpt from “We Germans,” by Alexander Starritt`\
-https://nytimes.com/2020/08/31/books/review/we-germans-alexander-starritt-by-the-author-an-excerpt.html?searchResultPosition=2
+https://nytimes.com/2020/08/31/books/review/we-germans-alexander-starritt-by-the-author-an-excerpt.html?searchResultPosition=9
 
 **Visitation to Begin Again at Federal Prisons in October**\
 `The federal Bureau of Prisons will begin allowing inmates to have visitors again in October, almost seven months after visits were suspended at the 122 federal prisons across the U.S., according to a memo obtained by The Associated Press.`\
-https://nytimes.com/aponline/2020/08/31/us/politics/ap-us-federal-prisons-visitation.html?searchResultPosition=3
-
-**Unwitting Progressives for Trump**\
-`Defend looting if you want to re-elect the president.`\
-https://nytimes.com/2020/08/31/opinion/trump-biden-protests.html?searchResultPosition=4
-
-**Giants' Baker Sued Over Alleged May Robbery in Florida**\
-`Three people filed a lawsuit Monday against New York Giants cornerback DeAndre Baker, claiming that he robbed them at gunpoint during a May cookout in Florida, court records show.`\
-https://nytimes.com/aponline/2020/08/31/sports/football/ap-fbn-giants-baker-lawsuit.html?searchResultPosition=5
-
-**Tennis: Players Frustrated to Be in 'Bubble Within a Bubble' After Positive COVID-19 Test**\
-`A number of competitors at the U.S. Open have expressed their frustration after they were moved into a so-called "bubble within a bubble" as they had been in contact with Frenchman Benoit Paire, who tested positive for COVID-19. `\
-https://nytimes.com/reuters/2020/08/31/sports/tennis/31reuters-tennis-usopen-bubble.html?searchResultPosition=6
-
-**US Wildlife Officials Aim to Remove Wolf Protections in 2020**\
-`The Trump administration plans to lift endangered species protections for gray wolves across most of the nation by the end of the year, the director of the U.S. Fish and Wildlife Service said Monday.`\
-https://nytimes.com/aponline/2020/08/31/us/ap-us-gray-wolves-endangered.html?searchResultPosition=7
-
-**China Can Make India Suffer 'Severe' Military Losses: Global Times**\
-`China is able to make India suffer more severe military losses than in the past if it wants to engage in competition, state-backed newspaper Global Times said on Tuesday, after a fresh border flare-up between the two nuclear-armed countries. `\
-https://nytimes.com/reuters/2020/08/31/world/asia/31reuters-china-india-border-media.html?searchResultPosition=8
-
-**Facebook Could Block Sharing of News Stories in Australia**\
-`The move, a response to pressure to pay publishers when their stories are posted on the social network, could add to internet silos springing up around the world.`\
-https://nytimes.com/2020/08/31/technology/facebook-block-news-stories-australia.html?searchResultPosition=9
-
-**Frustrated by Election Boycott, Venezuela’s Leader Pardons 100 Opponents**\
-`President Nicolás Maduro cast his decree as a bid for unity, but many members of the political opposition quickly scorned it.`\
-https://nytimes.com/2020/08/31/world/americas/venezuela-pardons-maduro.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/31/us/politics/ap-us-federal-prisons-visitation.html?searchResultPosition=10
 
