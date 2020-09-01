@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/08/31/sports/golf/31reuters-golf-japan.html?sea
 `The Saudi-Led coalition fighting in Yemen intercepted and destroyed an explosive-laden drone early on Tuesday launched by Iran-aligned Houthis to target civilians in the Kingdom's southern area, Saudi state news agency (SPA) reported.`\
 https://nytimes.com/reuters/2020/08/31/world/middleeast/31reuters-saudi-security-yemen.html?searchResultPosition=3
 
-**AP Source: NFL Takes Over Washington Football Investigation**\
-`The NFL has taken over the independent investigation into workplace conduct within the Washington Football Team, a person familiar with the situation said Monday.`\
+**NFL Takes Over Investigation of Washington Football Team**\
+`The NFL has taken over the independent investigation into workplace conduct within the Washington Football Team, owner Dan Snyder confirmed Monday.`\
 https://nytimes.com/aponline/2020/08/31/sports/football/ap-fbn-washington-investigation.html?searchResultPosition=4
 
 **In Indonesia, Coronavirus Floods Cisadane River With Extra Hazard: Medical Waste**\
