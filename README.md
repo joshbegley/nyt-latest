@@ -1,40 +1,40 @@
-**France's Macron: Next Three Months Key for Lebanon-POLITICO**\
-`The next three months will be fundamental for bringing about change in Lebanon, and if no change is forthcoming, punitive measures might ensue, French President Emmanuel Macron told POLITICO on Tuesday.`\
-https://nytimes.com/reuters/2020/09/01/world/middleeast/01reuters-lebanon-crisis-macron.html?searchResultPosition=1
+**Greece in Talks With France Over Fighter Jets, as East Med Tensions Rise-Source**\
+`Greece is in talks with France and other countries over arms purchases to boost its armed forces, a government official told Reuters on Tuesday, as tensions grow over energy resources in the Eastern Mediterranean region.`\
+https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-greece-turkey-defence-france.html?searchResultPosition=1
 
-**Texts Books and Face Masks, Europe's Children Return to School**\
-`Tens of millions of pupils returned to school in France, Poland and Russia on Tuesday, their rucksacks loaded with exercise books, geometry sets and, for many, face masks to protect them from a resurgent coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-health-coronavirus-europe-education.html?searchResultPosition=2
+**‘I Am Stuck Until That Border Opens’: Marooned in Paradise**\
+`This geographically isolated community in Washington State has avoided the coronavirus, but at a considerable cost.`\
+https://nytimes.com/2020/09/01/us/coronavirus-point-roberts-washington-canada.html?searchResultPosition=2
 
-**Blast Hits Libyan Capital, Residents Say**\
-`A loud blast hit the Libyan capital Tripoli early on Tuesday, residents said, with the noise audible across much of the city and dark smoke in the sky. `\
-https://nytimes.com/reuters/2020/09/01/world/africa/01reuters-libya-security.html?searchResultPosition=3
+**Police Detain Alleged IS Commander in Turkey**\
+`Turkish police have detained an alleged top commander of the Islamic State group in Turkey, the country’s interior minister said Tuesday.`\
+https://nytimes.com/aponline/2020/09/01/world/europe/ap-eu-turkey-islamic-state.html?searchResultPosition=3
 
-**Poland Approves New German Ambassador After Long Delay**\
-`Poland has accepted the appointment of a new German ambassador after an unusual delay of about three months.`\
-https://nytimes.com/aponline/2020/09/01/world/europe/ap-eu-poland-germany.html?searchResultPosition=4
+**German Jobless Spike Held Down by Government Salary Program**\
+`Germany's unemployment rate edged up to 6.`\
+https://nytimes.com/aponline/2020/09/01/business/ap-eu-germany-economy.html?searchResultPosition=4
 
-**Australia Prisoners Set Fire in Cells as Virus Lockdown Sparks Unrest**\
-`Inmates at a high-security Australian prison lit fires, smashed windows and flooded their cells with water, authorities said on Tuesday, after a lockdown sparked by a coronavirus outbreak resulted in a shortage of staff and services.`\
-https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-health-coronavirus-australia-prison.html?searchResultPosition=5
+**‘Fixing the Damage We’ve Done’: Rewilding Jaguars in Argentina**\
+`Bringing back the top predator to Argentina’s wetlands could restore the health of an entire ecosystem. But inducing five felines with troubled pasts to hunt, and mate, is not easy.`\
+https://nytimes.com/2020/09/01/world/americas/Jaguars-argentina-ibera.html?searchResultPosition=5
 
-**UK Mortgage Approvals Jump as Housing Market Bounces Back**\
-`British mortgage lending accelerated more quickly than expected in July, a latest sign of a post-lockdown bounce-back in the housing market, data from the Bank of England showed on Tuesday.`\
-https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-health-coronavirus-britain-boe.html?searchResultPosition=6
+**The Forgotten Colonial Forces of World War II**\
+`“There’s a scattered memory of their sacrifice all over Europe.” The Allied powers relied on colonial troops to defeat the Axis, but their contributions are not often recognized.`\
+https://nytimes.com/2020/09/01/magazine/the-forgotten-colonial-forces-of-world-war-ii.html?searchResultPosition=6
 
-**Tsitsipas Opens Up on His Relationship With His Towel**\
-`The U.S. Open is very different this year because of health protocols and for world number six Stefanos Tsitsipas, the difficulty in getting regular access to his towel is proving quite a challenge. `\
-https://nytimes.com/reuters/2020/09/01/sports/tennis/01reuters-tennis-usopen-tsitsipas-towel.html?searchResultPosition=7
+**The State Fair Is Canceled. Deep-Fried Oreos Are Not.**\
+`Food vendors and their devoted fans are going to great lengths, from drive-throughs to phone apps, to keep the corn dogs and chickens-on-a-stick flowing.`\
+https://nytimes.com/2020/09/01/dining/state-fair-food-coronavirus.html?searchResultPosition=7
 
-**Iran's Khamenei Says Israel Deal 'Betrayal' of Islamic World by UAE**\
-`The United Arab Emirates has betrayed the Islamic world and the Palestinians by reaching a deal toward normalising ties with Israel, Iran’s top authority Supreme Leader Ayatollah Ali Khamenei said in a speech on Tuesday.`\
-https://nytimes.com/reuters/2020/09/01/world/middleeast/01reuters-israel-emirates-iran.html?searchResultPosition=8
+**The Many Sides to Dan Brown**\
+`The author of “The Da Vinci Code” just released a classical music album for children. It happens to be one of the assets he and his wife are disputing in lawsuits over their divorce.`\
+https://nytimes.com/2020/09/01/style/dan-brown-wild-symphony-divorce.html?searchResultPosition=8
 
-**UK Factories See Big Upturn in August, but From Low Ebb: PMI**\
-`British factory output recovered some ground lost to the COVID-19 pandemic as output rose in August at the fastest pace in more than six years, albeit from a low level, a survey showed on Tuesday.`\
-https://nytimes.com/reuters/2020/09/01/world/europe/01reuters-britain-economy-pmi.html?searchResultPosition=9
+**Trump Needs His Own Sister Souljah Moment**\
+`The president must condemn those responsible for violence and disavow those who act in his name. Easy, right?`\
+https://nytimes.com/2020/09/01/opinion/trump-kenosha-portland-sister-souljah.html?searchResultPosition=9
 
-**Iran's Supreme Leader Denounces UAE's Recognition of Israel**\
-`Iran’s supreme leader has called the United Arab Emirates’ recognition of Israel “treason that will not last for long," the state media in Iran reported on Tuesday.`\
-https://nytimes.com/aponline/2020/09/01/world/middleeast/ap-ml-emirates-israel.html?searchResultPosition=10
+**Small-Business Failures Loom as Federal Aid Dries Up**\
+`Many owners face tough choices after a federal loan program and other government moves to bolster the economy have run their course.`\
+https://nytimes.com/2020/09/01/business/economy/small-businesses-coronavirus.html?searchResultPosition=10
 
