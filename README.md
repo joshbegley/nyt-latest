@@ -1,40 +1,40 @@
-**Students Blockade Top Arts University as Hungary's Government Tightens Control**\
-`Students at Hungary's University of Theatre and Film Arts have sealed entrances to the building to stop the new board of trustees getting in, and pledged to maintain the blockade until demands for autonomy from government control were met.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-hungary-politics-education-theatre.html?searchResultPosition=1
+**GM CEO Barra, Ivanka Trump Talk Jobs in a 2020 Battleground**\
+`General Motors Co Chief Executive Mary Barra hosted Ivanka Trump, daughter and adviser to U.S. President Donald Trump, for a tour on Wednesday of a GM worker training center in one of the hottest battlegrounds of the U.S. presidential race.`\
+https://nytimes.com/reuters/2020/09/02/business/02reuters-usa-election-gm.html?searchResultPosition=1
 
-**Italy's Former PM Berlusconi Tests Positive for Coronavirus**\
-`Italy's former Prime Minister Silvio Berlusconi has tested positive for coronavirus and is currently in isolation at home, his staff said in a statement on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-italy-politics.html?searchResultPosition=2
+**White House Slams WHO Over Criticism of Push for COVID-19 Vaccine**\
+`The White House pushed back on concerns expressed by the World Health Organization (WHO) after a U.S. health official said a coronavirus vaccine might be authorized for use without completing full trials.`\
+https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-usa-who.html?searchResultPosition=2
 
-**Lithuania, Estonia Push for EU Sanctions on Lukashenko: Diplomats**\
-`Lithuania and Estonia have asked fellow EU nations to blacklist Belarusian leader Alexander Lukashenko when the bloc imposes sanctions on the former Soviet republic over a disputed election and a crackdown on protests, diplomatic sources said. `\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-belarus-election-eu.html?searchResultPosition=3
+**Venice Film Festival Opens With Show of Support for Battered Industry**\
+`The heads of Europe's main film festivals came together for the opening of the Venice movie showcase on Wednesday in a show of solidarity for an industry which has been hit hard by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/09/02/arts/02reuters-filmfestival-venice.html?searchResultPosition=3
 
-**Biden and DNC Raised Combined $364.5 Million in August**\
-`Democratic presidential nominee Joe Biden and the Democratic National Committee said on Wednesday that they raised a combined $364.5 million in August, including more than $205 million from online, small-dollar donations. `\
-https://nytimes.com/reuters/2020/09/02/us/politics/02reuters-usa-election-biden-fundraising.html?searchResultPosition=4
+**U.S. CDC Reports 184,083 Deaths From Coronavirus**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Wednesday said the number of deaths due to the new coronavirus had risen by 1,033 to 184,083 and reported 6,047,692 cases, an increase of 43,249 cases from its previous count.`\
+https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-usa-cdc.html?searchResultPosition=4
 
-**France's New COVID-19 Infections Again Above 7,000**\
-`French health authorities reported 7,017 new confirmed coronavirus cases on Wednesday, sharply up from Tuesday's 4,982 figure, and the third time since the beginning of the outbreak that the daily tally has stood above 7,000.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-france-casualties.html?searchResultPosition=5
+**College Football Embarks on Uncertain Season of COVID-19**\
+`A most overused coaching cliche has never been so relevant as college football embarks on a season of COVID-19: Take it one day at a time. `\
+https://nytimes.com/aponline/2020/09/02/sports/ncaafootball/ap-fbc-season-primer.html?searchResultPosition=5
 
-**'Avoidable' Coronavirus Outbreak Tears Through Madrid Homeless Shelter**\
-`A coronavirus outbreak at a Madrid homeless shelter, where 26 new infections were diagnosed on Wednesday amid a resurgence of the virus in Spain, has led staff to blame city authorities for not isolating those infected as they remained in crammed rooms.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-spain-shelter.html?searchResultPosition=6
+**Hans A. Linde, Iconoclastic Legal Scholar, Dies at 96**\
+`As a justice on the Oregon Supreme Court, he was a proponent of the new judicial federalism of the 1970s, which grounded civil rights protections in state constitutions.`\
+https://nytimes.com/2020/09/02/us/hans-a-linde-dead-96.html?searchResultPosition=6
 
-**U.S. NIH Awards Nine Companies $129 Million to Scale Up COVID-19 Testing**\
-`The National Institutes of Health is awarding $129.3 million to nine companies to support scaling-up coronavirus testing and manufacturing new testing technologies, the U.S. health agency said on Wednesday. `\
-https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-testing.html?searchResultPosition=7
+**The Latest: Kerber Advances to 3rd Round of US Open**\
+`The Latest on the U.S. Open tennis tournament (all times local):`\
+https://nytimes.com/aponline/2020/09/02/sports/tennis/ap-ten-us-open-the-latest-1st-ld-writethru.html?searchResultPosition=7
 
-**Bank of England's Bailey Slams EU Barrier to Investment Banking Services After Brexit**\
-`An EU refusal to grant cross-border access to investment banking services from the CIty of London shows how the bloc wants to force Britain to keep adopting its rules in future, Bank of England Governor Andrew Bailey said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/us/02reuters-britain-eu-banks.html?searchResultPosition=8
+**US Suspends Some Aid to Ethiopia Over Dam Dispute With Egypt**\
+`The State Department says that on the guidance of President Donald Trump the U.S. is suspending some aid to Ethiopia over the “lack of progress” in the country’s talks with Egypt and Sudan over a massive, disputed dam project it is completing on the Nile River.`\
+https://nytimes.com/aponline/2020/09/02/world/africa/ap-af-ethiopia-us-dam-dispute.html?searchResultPosition=8
 
-**Fox, C-SPAN, NBC Moderators for Upcoming Trump-Biden Debates**\
-`Representatives from Fox News, C-SPAN and NBC will moderate the upcoming debates between President Donald Trump and Democratic challenger Joe Biden.`\
-https://nytimes.com/aponline/2020/09/02/arts/ap-us-election-2020-debates.html?searchResultPosition=9
+**Crump to Represent Black Man Shot, Killed by LA Deputies**\
+`The family of a Black bicyclist fatally shot by Los Angeles County sheriff’s deputies after he was stopped for a traffic violation has retained civil rights attorney Benjamin Crump, who also represents the family of Wisconsin police shooting victim Jacob Blake. `\
+https://nytimes.com/aponline/2020/09/02/us/ap-us-california-deputies-fatal-shooting.html?searchResultPosition=9
 
-**Bank of England: Return of UK Office Workers to Take Time**\
-`The Bank of England said Wednesday there are perfectly understandable reasons why the majority of office workers have yet to return to their pre-lockdown workplaces despite new coronavirus guidance from the British government.`\
-https://nytimes.com/aponline/2020/09/02/business/ap-eu-britain-economy.html?searchResultPosition=10
+**‘Vanguard’ Spotlights the Black Women Who Fought for the Vote**\
+`Martha S. Jones’s new book is interested in everything these women made possible — not just the trails they blazed, but the journeys they took and what came after.`\
+https://nytimes.com/2020/09/02/books/review-vanguard-black-women-broke-barriers-won-vote-martha-s-jones.html?searchResultPosition=10
 
