@@ -1,40 +1,40 @@
+**Canada, U.S., EU and Britain Are Discussing Sanctions Against Belarus: Ottawa**\
+`Canada, the United States, the European Union and Britain are discussing possible sanctions against Belarus over its crackdown against protests following a disputed election, a Canadian source directly familiar with the matter said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-belarus-election-canada.html?searchResultPosition=1
+
+**Trump Flexes Power of Incumbency in North Carolina Trip**\
+`President Donald Trump will use the power of incumbency to his advantage Wednesday, making a personal appearance in a key battleground state on V-J Day to declare the port city of Wilmington, North Carolina a World War II “Heritage City.”`\
+https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-trump.html?searchResultPosition=2
+
+**Depression, Anxiety Spike Amid Outbreak and Turbulent Times**\
+`Mental health therapists’ caseloads are bulging. Waiting lists for appointments are growing. And anxiety and depression are rising among Americans amid the coronavirus crisis, research suggests. `\
+https://nytimes.com/aponline/2020/09/02/us/ap-us-virus-outbreak.html?searchResultPosition=3
+
+**What’s Bigger Than an Event Film? ‘Tenet’ Might Just Be**\
+`Christopher Nolan movies are always events. `\
+https://nytimes.com/aponline/2020/09/02/us/ap-us-film-tenet.html?searchResultPosition=4
+
+**UK Says Russia Must Explain Why Putin Critic Navalny Was Poisoned With Novichok**\
+`Britain insisted Russia must explain why a critic of Russian President Vladmir Putin has been poisoned with a nerve agent of the Novichok family and said it is unacceptable that the chemical weapon has been used again.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-russia-politics-navalny-britain.html?searchResultPosition=5
+
+**Navalny Is Victim of Murder Attempt Using Novichok, Merkel Says**\
+`Alexei Navalny is the victim of a murder attempt with the nerve agent Novichok, German Chancellor Angela Merkel said on Wednesday, adding that Russia must answer "difficult questions" related to the attack against President Vladimir Putin's critic.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-russia-politics-navalny-merkel.html?searchResultPosition=6
+
+**Putin Critic Navalny Faces Long Period of Illness, German Hospital Says**\
+`A critic of President Vladimir Putin who fell into a coma in Russia and is being treated in Berlin remains in intensive care and long-term consequences from his poisoning cannot be ruled out, the hospital treating him said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-russia-politics-navalny-hospital.html?searchResultPosition=7
+
 **U.S. Passenger Railroad Amtrak to Furlough 2,000 Workers**\
 `U.S. passenger railroad Amtrak will furlough more than 2,000 workers as a result of the steep decline in travel demand from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-usa-amtrak.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-usa-amtrak.html?searchResultPosition=8
 
 **'Skeptical:' Ernst Suggests COVID Numbers Are Inflated**\
 `Echoing a discredited conspiracy theory, vulnerable Republican Sen. Joni Ernst is suggesting government statistics on coronavirus infections and deaths have been inflated.`\
-https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-election-2020-ernst-coronavirus.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-election-2020-ernst-coronavirus.html?searchResultPosition=9
 
 **Is it Safe to Send Your Kids to School?**\
 `The toughest call for parents`\
-https://nytimes.com/2020/09/02/us/is-it-safe-to-send-your-kids-to-school.html?searchResultPosition=3
-
-**Fauci Says COVID-19 Vaccine Trial Enrollment Promising for Vaccine Decision: MSNBC**\
-`Top U.S. infectious disease expert Anthony Fauci said on MSNBC that based on the patient enrollment rate in COVID-19 vaccine trials underway, there could be enough clinical data to know by November or December that one of the vaccines is safe and effective.`\
-https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-usa-fauci.html?searchResultPosition=4
-
-**Intel Releases New Laptop Chips to Confront Rising Rivals**\
-`Intel Corp on Wednesday unveiled "Tiger Lake," the 11th generation version of its flagship chip for laptops.`\
-https://nytimes.com/reuters/2020/09/02/business/02reuters-intel-chip.html?searchResultPosition=5
-
-**Melania Trump Reportedly Used Her Personal Email for Government Business**\
-`Stephanie Winston Wolkoff, who served as Mrs. Trump’s senior adviser, told The Washington Post that the first lady also used encrypted messaging apps like Signal to conduct government business.`\
-https://nytimes.com/2020/09/02/us/politics/melania-trump-emails.html?searchResultPosition=6
-
-**Trump, Biden and the Kenosha Factor**\
-`Readers view the president’s comments during his visit to Kenosha, Wis., as stoking fear, and offer advice to Joe Biden and his supporters on how to respond.`\
-https://nytimes.com/2020/09/02/opinion/letters/trump-biden-kenosha.html?searchResultPosition=7
-
-**The True Cost of Life in the N.B.A. Bubble**\
-`In this week’s newsletter, Marc Stein reflects on what he will miss as he leaves the bubble after more than 50 days. Plus: How long will Mike D’Antoni stay with the Rockets?`\
-https://nytimes.com/2020/09/02/sports/basketball/nba-bubble-mental-health.html?searchResultPosition=8
-
-**W.H.O. Recommends Steroids for Critically Ill Coronavirus Patients**\
-`The World Health Organization said steroids should be used to treat patients hospitalized with severe Covid-19, but advised against giving the drugs to patients with mild cases.`\
-https://nytimes.com/video/world/europe/100000007320740/who-steroid-guidelines-coronavirus.html?searchResultPosition=9
-
-**‘Children of the Sea’ Review: Finding Beauty in the Watery Depths**\
-`Exploration is at the heart of the mostly stunning and totally mystifying Japanese anime feature.`\
-https://nytimes.com/2020/09/02/movies/children-of-the-sea-review.html?searchResultPosition=10
+https://nytimes.com/2020/09/02/us/is-it-safe-to-send-your-kids-to-school.html?searchResultPosition=10
 
