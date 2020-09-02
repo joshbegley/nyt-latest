@@ -1,40 +1,40 @@
-**How Major US Stock Indexes Fared Wednesday**\
-`Wall Street extended its milestone-setting rally Wednesday as the Dow Jones Industrial Average climbed more than 450 points and the S&P 500 jumped to its biggest gain since July. `\
-https://nytimes.com/aponline/2020/09/02/business/ap-financial-markets-box.html?searchResultPosition=1
+**Dutch Cardinal Emeritus Adrianus Simonis Dies at Age 88**\
+`Cardinal emeritus Adrianus Simonis, who led the Dutch Catholic Church during a period of secularization in society and, after his retirement, had to confront abuse in the church, has died at age 88, his former archdiocese of Utrecht announced Wednesday.`\
+https://nytimes.com/aponline/2020/09/02/world/europe/ap-eu-netherlands-obit-cardinal-simonis.html?searchResultPosition=1
 
-**Swedes Confidence in PM's Handling of Coronavirus Crisis Declining, Poll Shows**\
-`Confidence in the way Sweden's Prime Minister Stefan Lofven and his government have handled the coronavirus pandemic has dropped sharply over the last three months, a poll in daily Dagens Nyheter showed on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-sweden.html?searchResultPosition=2
+**North Texas Man Pleads Guilty to Helping Islamic State Group**\
+`A North Texas man pleaded guilty Wednesday to supporting the Islamic State group, federal prosecutors said.`\
+https://nytimes.com/aponline/2020/09/02/us/ap-us-dallas-man-terror-plea.html?searchResultPosition=2
 
-**Kennedy Loss in Massachusetts May Mark End of 'Camelot' Era**\
-`After the 1963 assassination of President John F. Kennedy, Jacqueline Kennedy famously compared his 1,000-day presidency to “Camelot,” a popular Broadway musical about the legend of King Arthur — crafting a wistful shorthand for the Kennedy tenure, and by extension the entire Kennedy dynasty.`\
-https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-election-2020-kennedy-legacy.html?searchResultPosition=3
+**Peru Looks to Reopen International Passenger Air Travel**\
+`Peru will restart passenger air transport internationally on Oct. 1 after it was suspended in March due to the coronavirus outbreak, Transport and Communications Minister Carlos Estremadoyro said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/02/world/americas/02reuters-health-peru-coronavirus-travel.html?searchResultPosition=3
 
-**India Bans 118 Chinese Apps as Indian Soldier Is Killed on Disputed Border**\
-`The Indian government is blocking Chinese apps from its huge domestic market to strike back against China amid a tense border standoff.`\
-https://nytimes.com/2020/09/02/world/asia/india-bans-china-apps.html?searchResultPosition=4
+**U.S. Cuts Aid to Ethiopia Amid Nile Dam Dispute**\
+`It was an unusual example of President Trump’s direct intervention on an issue in Africa, a continent he hasn’t visited as president and rarely mentions publicly.`\
+https://nytimes.com/2020/09/02/world/us-aid-ethiopia-dam.html?searchResultPosition=4
 
-**Facebook Removes GOP Lawmaker's Threat to 'Drop' Protesters**\
-`A U.S. congressman's post that suggested armed Black demonstrators should be met with force was removed by Facebook on Wednesday for violating its policies against inciting violence.`\
-https://nytimes.com/reuters/2020/09/02/us/politics/02reuters-usa-congress-higgins.html?searchResultPosition=5
+**Amtrak Will Furlough Over 2,000 Workers Because of the Coronavirus**\
+`The job cuts come as the rail agency’s response to fiscal challenges receives scrutiny from rail advocates and federal lawmakers.`\
+https://nytimes.com/2020/09/02/us/politics/coronavirus-amtrak-furloughs.html?searchResultPosition=5
 
-**Tour Reaches End of Season, Embarks on Plan Toward Diversity**\
-`What started as the “Return to Golf” has yielded to “Crossing the Finish Line.” `\
-https://nytimes.com/aponline/2020/09/02/sports/golf/ap-glf-tour-championship.html?searchResultPosition=6
+**Pelosi Says Hair Salon Should Apologize for 'Set-Up' Visit**\
+`A testy Nancy Pelosi said Wednesday she takes responsibility for trusting the word of a San Francisco hair salon that it was OK to come in for a solo visit — even though the city still does not allow indoor beauty services because of the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/09/02/us/ap-us-pelosi-salon-.html?searchResultPosition=6
 
-**U.S. Open Order of Play on Thursday**\
-`Order of play on the main show courts on the fourth day of the U.S. Open on Thursday (play starts at 1500 GMT/11 AM ET unless stated, prefix number denotes seeding):`\
-https://nytimes.com/reuters/2020/09/02/sports/tennis/02reuters-tennis-usopen-order.html?searchResultPosition=7
+**Police: Man Snatches Shop Tip Jar After Applying for Job**\
+`After a man ran off with the tip jar at an eastern Pennsylvania pizza shop, investigators didn't have to do a lot of legwork to track him down.`\
+https://nytimes.com/aponline/2020/09/02/us/ap-us-job-applicant-stolen-tip-jar-2nd-ld-writethru.html?searchResultPosition=7
 
-**Syria Reports Israeli Airstrikes Against Central Airbase**\
-`Syrian air defenses opened fire late Wednesday on missiles launched by Israeli warplanes at a military airbase in the central province of Homs, shooting down some of them, state media said.`\
-https://nytimes.com/aponline/2020/09/02/world/middleeast/ap-ml-syria.html?searchResultPosition=8
+**Pompeo Accuses W.H.O. of Being Ineffective**\
+`Secretary of State Mike Pompeo defended the U.S. decision to stay out of the World Health Organization’s global campaign to develop a vaccine.`\
+https://nytimes.com/video/us/politics/100000007320987/pompeo-who-coronavirus-vaccine.html?searchResultPosition=8
 
-**2 College Students Dreamed Up an A.L.S. Treatment. The Results Are In.**\
-`A study of their therapy and clinical trials of other experimental treatments are offering glimmers of hope that paralysis from the disorder can be slowed.`\
-https://nytimes.com/2020/09/02/health/als-icebucket-treatment.html?searchResultPosition=9
+**How a Smooth Election in Massachusetts Could Be a Cautionary Tale**\
+`Election experts said that Tuesday’s primary offered a mix of smart policies and harsh deadlines, and that the state benefited from not having a highly charged political atmosphere.`\
+https://nytimes.com/2020/09/02/us/politics/massachusetts-election-voting.html?searchResultPosition=9
 
-**UN: Libya at 'Turning Point,' COVID Heading 'Out of Control'**\
-`The top U.`\
-https://nytimes.com/aponline/2020/09/02/world/africa/ap-un-virus-outbreak-libya.html?searchResultPosition=10
+**Trump Administration Will Redirect $62 Million Owed to the W.H.O.**\
+`The money, part of $120 million owed in annual dues, will go to other agencies fighting flu and buying vaccines.`\
+https://nytimes.com/2020/09/02/health/coronavirus-who-trump.html?searchResultPosition=10
 
