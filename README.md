@@ -4,7 +4,7 @@ https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-russia-politics-na
 
 **Gerald Ford Rushed Out a Vaccine. It Was a Fiasco.**\
 `Trump should keep that in mind as he pushes for a coronavirus shot.`\
-https://nytimes.com/2020/09/02/opinion/cornoavirus-vaccine-trump.html?searchResultPosition=2
+https://nytimes.com/2020/09/02/opinion/coronavirus-vaccine-trump.html?searchResultPosition=2
 
 **A Basketball Friendship Became a Tag Team for Social Justice**\
 `Natasha Cloud of the Mystics and Bradley Beal of the Wizards are leading their teams in a joint push against racism in Washington, D.C.`\
