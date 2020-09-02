@@ -12,7 +12,7 @@ https://nytimes.com/2020/09/02/business/retailers-holiday-shopping.html?searchRe
 
 **How a Patou Dress Is Born**\
 `Guillaume Henry, artistic director, reveals his creative process for the luxury house’s new collection. `\
-https://nytimes.com/paidpost/2020-08-26/.html?searchResultPosition=4
+https://nytimes.com/paidpost/patou/how-a-patou-dress-is-born.html?searchResultPosition=4
 
 **Business Owners Tap Into Savings to Withstand Pandemic**\
 `When the coronavirus outbreak forced cruise lines to cancel trips to Alaska, it wiped out Midgi Moore’s tour business, leaving her with thousands of dollars in deposits to refund.`\
