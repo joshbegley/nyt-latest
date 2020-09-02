@@ -1,8 +1,16 @@
+**Appeals Court Overturns Ban on Immigrant Courthouse Arrests**\
+`A federal appeals court on Tuesday overturned a ruling that barred immigration authorities from arresting people suspected of living in the U.S. illegally if they show up at Massachusetts courthouses.`\
+https://nytimes.com/aponline/2020/09/01/us/ap-us-immigration-courthouse-arrests.html?searchResultPosition=1
+
+**Jacob Blake’s Family Rebukes Trump’s Visit**\
+`At the corner where Mr. Blake was shot, hundreds gathered for a “Justice for Jake” rally to promote community healing and to rebuke President Trump’s visit to Kenosha, Wis.`\
+https://nytimes.com/video/us/politics/100000007319976/jacob-blake-family-trump-visit-corner.html?searchResultPosition=2
+
+**Keïta, Mali’s Deposed Leader, Is Said to Be Hospitalized**\
+`Ibrahim Boubacar Keïta’s condition was not immediately known, and it was unclear whether he would be evacuated abroad for medical treatment.`\
+https://nytimes.com/2020/09/01/world/africa/keita-mali-hospital.html?searchResultPosition=3
+
 **Drilling, Mines, Other Projects Hastened by Trump Order**\
 `The Trump administration is seeking to fast track environmental reviews of dozens of major energy and infrastructure projects during the COVID-19 pandemic, including oil and gas drilling, hazardous fuel pipelines, wind farms and highway projects in multiple states, according to documents provided to The Associated Press.`\
-https://nytimes.com/aponline/2020/09/01/business/bc-us-trump-environment.html?searchResultPosition=1
-
-**For Biden to Win, Listen to Minneapolis**\
-`Not everyone is for defunding the police. Especially those in communities that would be most affected.`\
-https://nytimes.com/2020/09/01/opinion/biden-trump-police-minneapolis.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/01/business/bc-us-trump-environment.html?searchResultPosition=4
 
