@@ -1,40 +1,40 @@
+**Once Out, Consort to Thailand’s King Appears to Be Back In Again**\
+`Demoted a year ago after being accused by the palace of upstaging the queen, the former consort to King Maha Vajiralongkorn has regained the titles she was stripped of last year.`\
+https://nytimes.com/2020/09/02/world/asia/thailand-king-consort.html?searchResultPosition=1
+
+**Team Ineos Are Off Their Game, Says Rival Boss Vaughters**\
+`Team Ineos lack their usual strength and will not be able to control the Tour de France as they usually do, rival team manager Jonathan Vaughters said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/02/sports/cycling/02reuters-cycling-tourdefrance-ineos.html?searchResultPosition=2
+
+**Van Aert Sprints to Fifth Stage Victory on the Tour De France**\
+`Belgian Wouth van Aert won the fifth stage of the Tour de France, a 183-km ride from Gap that featured no breakaway, an almost unprecedented scenario in normal racing conditions in the modern era on Wednesday.`\
+https://nytimes.com/reuters/2020/09/02/sports/cycling/02reuters-cycling-france.html?searchResultPosition=3
+
+**Tropical Storm Nana Headed for Belize**\
+`Tropical Storm Nana barreled westward Wednesday just off the coast of Honduras on a collision course with the tiny nation of Belize.`\
+https://nytimes.com/aponline/2020/09/02/world/americas/ap-lt-tropical-weather.html?searchResultPosition=4
+
+**Biden Raises Over $360 Million in August, Shattering Record**\
+`Former Vice President Joe Biden raised $364 million for his election effort in August, a record-shattering sum that will give the Democrat ample resources to compete in the final two months of the campaign. `\
+https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-election-2020-biden-fundraising.html?searchResultPosition=5
+
+**Prince Harry and Meghan Sign Production Deal With Netflix**\
+`The Duke and Duchess of Sussex have a new home: Netflix.`\
+https://nytimes.com/aponline/2020/09/02/business/ap-tv-royal-netflix-deal.html?searchResultPosition=6
+
+**The New Eviction Moratorium: What You Need to Know**\
+`A Trump administration order could allow many troubled renters to avoid eviction through Dec. 31. We answer renters’ questions here.`\
+https://nytimes.com/2020/09/02/your-money/eviction-moratorium-covid.html?searchResultPosition=7
+
+**The Trump-Biden Debates Are On: Three Matchups, With a Solo Moderator for Each**\
+`Chris Wallace of Fox News, Steve Scully of C-SPAN and Kristen Welker of NBC News will run the televised proceedings.`\
+https://nytimes.com/2020/09/02/business/media/trump-biden-debate-moderators.html?searchResultPosition=8
+
+**Amazon’s Biggest Leap Was Boring**\
+`Forget about drones. Amazon delivered something just as innovative with nuts and bolts.`\
+https://nytimes.com/2020/09/02/technology/amazon-delivery-innovation.html?searchResultPosition=9
+
 **Bank of England Policymakers Warn of Bigger Risks for UK Economy**\
 `Bank of England Deputy Governor Dave Ramsden and another interest-rate setter, Gertjan Vlieghe, warned of risks that Britain's economy could suffer more damage from the coronavirus crisis than spelt out by the central bank last month.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-britain-boe.html?searchResultPosition=1
-
-**Interior Department Seeks to Expedite Energy Projects to Speed COVID Recovery: Document**\
-`The Interior Department sent a list of 50 major infrastructure projects, including 21 involving oil and gas drilling and mining, to the White House to be fast-tracked to "support economic recovery" from the ongoing COVID-19 emergency, according to a document obtained through a lawsuit by an environmental group.`\
-https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-environment.html?searchResultPosition=2
-
-**Prince Harry and Meghan Sign Deal With Netflix to Produce Programs**\
-`Britain's Prince Harry and his American wife Meghan have signed a multiyear contract with Netflix to produce different types of programs, the company said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/arts/02reuters-britain-royals-netflix.html?searchResultPosition=3
-
-**B/E Aerospace Founder's Son Charged in U.S. College Admissions Scandal**\
-`A son of the co-founder of aircraft interior maker B/E Aerospace was indicted on Wednesday on charges he participated in a vast U.S. college admissions bribery and fraud scheme to secure his daughter's enrollment at Georgetown University.`\
-https://nytimes.com/reuters/2020/09/02/us/02reuters-usa-education-cheating.html?searchResultPosition=4
-
-**Fed's Mester Says New Framework Makes Clear Strong Employment Not Always a Concern**\
-`The U.S. Federal Reserve's new framework for setting monetary policy makes it clear that a strong labor market on its own is not cause for concern unless there are signs of inflation or financial stability risks, Cleveland Fed Bank President Loretta Mester said Wednesday. `\
-https://nytimes.com/reuters/2020/09/02/us/02reuters-usa-fed-mester.html?searchResultPosition=5
-
-**Saudi Aramco Slows Diversification Plans Amid Industry Downturn: WSJ**\
-`Oil company Saudi Aramco is reviewing plans to expand at home and abroad in the face of sharply lower oil prices and a heavy dividend burden, the Wall Street Journal reported on Wednesday, citing people familiar with the matter.`\
-https://nytimes.com/reuters/2020/09/02/business/02reuters-saudi-aramco-outlook.html?searchResultPosition=6
-
-**Exclusive: Aspiring TikTok Buyers Pursue Four Options in Effort to Revive Talks-Sources**\
-`TikTok's prospective buyers are discussing four ways to structure an acquisition from its Chinese owner ByteDance, which include buying its U.S. operations without key software, after Beijing stalled a deal which could be worth $30 billion, sources said.`\
-https://nytimes.com/reuters/2020/09/02/business/02reuters-usa-tiktok-bytedance-exclusive.html?searchResultPosition=7
-
-**Trump Travels to Politically Key North Carolina to Commemorate End of World War Two**\
-`President Donald Trump will commemorate the 75th anniversary of the conclusion of World War Two on Wednesday with a visit to a retired battleship in North Carolina, a political battleground state he hopes to win in the Nov. 3 U.S. election.`\
-https://nytimes.com/reuters/2020/09/02/us/politics/02reuters-usa-election-trump.html?searchResultPosition=8
-
-**Its Leader Under Fire, a Southern Food Group Vows to Examine Racism**\
-`The University of Mississippi will commission an outside audit of the Southern Foodways Alliance, looking into its record on diversity, after calls for the group’s white director to resign.`\
-https://nytimes.com/2020/09/02/dining/southern-foodways-alliance-audit.html?searchResultPosition=9
-
-**UK Records 1,508 Daily Confirmed Cases of COVID-19**\
-`The United Kingdom recorded 1,508 daily confirmed cases of COVID-19, according to government data published on Wednesday, up from 1,295 a day earlier.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-britain-cases.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-britain-boe.html?searchResultPosition=10
 
