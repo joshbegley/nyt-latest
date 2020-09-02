@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/09/02/us/02reuters-usa-fed-williams-circumstanc
 `Three Paris St Germain players have tested positive for COVID-19, the Ligue 1 club said on Wednesday.`\
 https://nytimes.com/reuters/2020/09/02/sports/02reuters-health-coronavirus-soccer-france.html?searchResultPosition=8
 
-**The Latest: Biden to Visit Wisconsin, Now a 2020 Flash Point**\
+**The Latest: Biden Raises Record-Breaking $360M in August**\
 `The Latest on the 2020 presidential campaign (all times local):`\
 https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=9
 
