@@ -1,5 +1,5 @@
 **Germany Says Nerve Agent Novichok Found in Russia's Navalny**\
-`The German government says tests performed on samples taken from Russian opposition leader Alexei Navalny showed the presence of the nerve agent Novichok.`\
+`The German government says tests performed on samples taken from Russian opposition leader Alexei Navalny showed the presence of the Soviet-era nerve agent Novichok.`\
 https://nytimes.com/aponline/2020/09/02/world/europe/ap-eu-germany-russia-navalny.html?searchResultPosition=1
 
 **'Tiger King' Star Carole Baskin to 'Dancing With the Stars'**\
