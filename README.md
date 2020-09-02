@@ -1,40 +1,40 @@
-**The True Colors of America’s Political Spectrum Are Gray and Green**\
-`Think of the gray sidewalks of Democratic-leaning New York City, or the endless stretch of green fields in Kansas.`\
-https://nytimes.com/interactive/2020/09/02/upshot/america-political-spectrum.html?searchResultPosition=1
+**Russian PM to Visit Belarus on Thursday Amid Political Crisis**\
+`Russian Prime Minister Mikhail Mishustin will visit Belarus for talks on Thursday, Foreign Minister Sergei Lavrov said, as Belarusian leader Alexander Lukashenko faces the biggest political crisis of his 26 years in power.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-belarus-election-russia.html?searchResultPosition=1
 
-**Japan's Suga: Won't Stop Abenomics Reforms**\
-`Japan's Chief Cabinet Secretary Yoshihide Suga on Wednesday said he would not stop the Abenomics reforms of outgoing premier Shinzo Abe.`\
-https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-japan-politics-suga-abenomics.html?searchResultPosition=2
+**America, Don’t Try to Out-China China**\
+`Beijing’s nationalism will be self-defeating in the long term. Washington should just let that run its course.`\
+https://nytimes.com/2020/09/02/opinion/us-china-nationalism.html?searchResultPosition=2
 
-**Messi’s Father Arrives in Barcelona to Discuss Son’s Future**\
-`Lionel Messi’s father arrived in Spain early Wednesday and is expected to meet with Barcelona club officials to discuss his son’s future.`\
-https://nytimes.com/aponline/2020/09/02/sports/soccer/ap-soc-barcelona-messi.html?searchResultPosition=3
+**‘They Stand on the Shoulders of Giants’: The Next Generation to March on Washington**\
+`Many protesters came to inspire their children and pass down a legacy of action against racial injustice.`\
+https://nytimes.com/2020/09/02/us/politics/blm-march-on-washington.html?searchResultPosition=3
 
-**If You Don’t Have a Vaccine, Try Fighting the Virus with … TikTok?**\
-`While the United States was creating confusion with its virus messaging, the rest of the world got creative.`\
-https://nytimes.com/video/opinion/100000007313396/coronavirus-pandemic-communication.html?searchResultPosition=4
+**Inside a Power 5 Program Recovering in Real Time**\
+`At the University of California, Berkeley, athletes, coaches and administrators face the most complicated puzzle in sports: the return of college athletics. They are providing The Times an inside look at their journey’s ups and downs.`\
+https://nytimes.com/2020/09/02/sports/ncaafootball/coronavirus-cal-athletics-season.html?searchResultPosition=4
 
-**UN Says New Polio Outbreak in Sudan Caused by Oral Vaccine**\
-`The World Health Organization says a new polio outbreak in Sudan is linked to an ongoing vaccine-sparked epidemic in Chad — a week after the U.N. health agency declared the African continent free of the wild polio virus. `\
-https://nytimes.com/aponline/2020/09/02/health/ap-ml-med-sudan-polio-outbreak.html?searchResultPosition=5
+**World War II After 75 Years: Beyond the War We Know**\
+`We set out to explore the end of the conflict and its aftermath, focusing on lesser-known stories both personal and profound.`\
+https://nytimes.com/2020/09/02/magazine/ww-ii-75th-anniversary.html?searchResultPosition=5
 
-**China Will Gradually Resume Direct International Flights to Beijing**\
-`China's aviation regulator said on Wednesday it will resume direct flights to Beijing from eight countries including Thailand, Cambodia, Greece, Denmark, Sweden and Canada from Sept. 3.`\
-https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-health-coronavirus-china-airlines.html?searchResultPosition=6
+**‘Nobody Likes Snitching’: How Rules Against Parties Are Dividing Campuses**\
+`As colleges reopen despite the pandemic, students must decide whether they are willing to blow the whistle on their classmates.`\
+https://nytimes.com/2020/09/02/nyregion/colleges-universities-covid-parties.html?searchResultPosition=6
 
-**Russian Prosecutors Ask Germany for Details of Poison Tests on Navalny: Paper**\
-`Russian prosecutors have asked Germany to provide details of medical tests conducted on Alexei Navalny, a Russian opposition politician lying in a coma in Berlin after a suspected poisoning in Siberia last month, a newspaper reported on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-russia-politics-navalny.html?searchResultPosition=7
+**Health Care Powered Democratic Wins in 2018. The Party Hopes for a Repeat.**\
+`With the pandemic highlighting the importance of health coverage, Democrats are leaning into health care as a campaign issue. Republicans appear to be on shakier footing.`\
+https://nytimes.com/2020/09/02/us/politics/health-care-democrats-2020-election.html?searchResultPosition=7
 
-**Indonesia Reports 3,075 New Coronavirus Cases, 111 Deaths**\
-`Indonesia reported 3,075 new coronavirus cases on Wednesday, bringing the country's total tally to 180,646, data from the country’s health ministry website showed.`\
-https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=8
+**TriBeCa: Cobblestone Streets and Multimillion-Dollar Homes**\
+`Neighborhood residents call it Triburbia, for its resemblance to a close-knit suburb in the city — but one that few can afford.`\
+https://nytimes.com/2020/09/02/realestate/living-in-tribeca.html?searchResultPosition=8
 
-**Activist Cevian Capital Trims Ericsson Stake to 5.45%**\
-`Activist investor Cevian Capital has cut its holding in Ericsson to 5.45% of the telecom equipment maker's share capital in order to adjust the relative weights of its portfolio and to free up capital for new investments, Cevian co-founder Christer Gardell said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/business/02reuters-ericsson-equity-cevian.html?searchResultPosition=9
+**First You Clean the Dinosaur’s Teeth. Then You Open the Museum.**\
+`The American Museum of Natural History is going for an intimate experience — allowing hundreds, not thousands, of visitors in per hour — when it reopens on Sept. 9.`\
+https://nytimes.com/2020/09/02/arts/design/natural-history-museum-reopening.html?searchResultPosition=9
 
-**Japan's Suga Says He Will Push Forward 'Abenomics' Policies if He Becomes PM**\
-`Japan's Chief Cabinet Secretary Yoshihide Suga said on Wednesday he would "maintain and push forward" the "Abenomics" stimulus policies pursued by Prime Minister Shinzo Abe if he were to become the next premier.`\
-https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-japan-politics-suga-economy.html?searchResultPosition=10
+**‘That Kept Us Going’: Small Businesses Stay Alive With Local Help**\
+`Cities big and small know they can’t rely on federal stimulus to support their entrepreneurs, so they are finding innovative ways to keep them afloat.`\
+https://nytimes.com/2020/09/02/business/small-business-coronavirus-local.html?searchResultPosition=10
 
