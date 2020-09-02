@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/09/02/sports/football/ap-fbn-vikings-cousins.h
 https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-health-coronavirus-vaccines-adenovirus-history-explain.html?searchResultPosition=9
 
 **Budget Deficit to Hit Record $3.3T Due to Virus, Recession**\
-`The federal budget deficit is projected to hit a record $3.3 trillion due to COVID-19 costs and the recession, the Congressional Budget Office said Wednesday. `\
+`The federal budget deficit is projected to hit a record $3.3 trillion as huge government expeditures to fight the coronavirus and to prop up the economy have added more than $2 trillion to the federal ledger, the Congressional Budget Office said Wednesday.`\
 https://nytimes.com/aponline/2020/09/02/business/bc-us-budget-deficit-1st-ld-writethru.html?searchResultPosition=10
 
