@@ -1,40 +1,40 @@
+**More Than 10% of British Shops Vacant, Survey Shows**\
+`More than one-in-ten British shops now stand empty, reflecting recent widespread closures which are partly the result of the coronavirus crisis, a report on Thursday showed.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-britain-retail-shop-vacancies.html?searchResultPosition=1
+
+**New Yorkers Pant With Relief Through Masks as Gyms Reopen**\
+`A special strain of New Yorker showed up at Chelsea Piers Fitness on Wednesday morning, the first time gyms have been allowed to open since the coronavirus pandemic shuttered the city in March.`\
+https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-usa-new-york-gyms.html?searchResultPosition=2
+
+**Verdict Expected in Case of Journalist Murder That Rocked Slovakia**\
+`A Slovak court is expected to rule on Thursday on whether an influential businessman ordered the murder of an investigative journalist, in a case that prompted mass street protests and led to the reshaping of the country's political landscape.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-slovakia-crime.html?searchResultPosition=3
+
+**Report: Mexico Leads in Health Worker Deaths From COVID-19**\
+`Mexico leads the world in coronavirus deaths among its health care workers, Amnesty International said in a new report Wednesday.`\
+https://nytimes.com/aponline/2020/09/02/world/americas/ap-lt-virus-outbreak-mexico-health-worker-deaths.html?searchResultPosition=4
+
+**US Officials: No New Environmental Study for Nuclear Lab**\
+`The National Nuclear Security Administration says it doesn’t need to do an additional environmental review for Los Alamos National Laboratory before it begins producing key components for the nation’s nuclear arsenal because it has enough information.`\
+https://nytimes.com/aponline/2020/09/02/business/ap-us-nuclear-weapons-los-alamos.html?searchResultPosition=5
+
+**Hacienda Executives Indicted on Financial Crimes**\
+`Two former executives from an Arizona care facility where an incapacitated woman was raped have been indicted on financial charges, Attorney General Mark Brnovich announced Wednesday. `\
+https://nytimes.com/aponline/2020/09/02/us/ap-us-incapacitated-woman-birth-financial-indictments.html?searchResultPosition=6
+
+**Emission Abates From Leaking Natural Gas Well of Texas Coast**\
+`The emission from a leaking natural gas well off the Texas coast could no longer be seen from shore by Wednesday and was down to about 5 percent of what it was the day before, officials said.`\
+https://nytimes.com/aponline/2020/09/02/business/ap-us-offshore-platform-release.html?searchResultPosition=7
+
 **‘Remote Learning’ Is Often an Oxymoron**\
 `We need to try harder to get kids back in school.`\
-https://nytimes.com/2020/09/02/opinion/remote-learning-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/09/02/opinion/remote-learning-coronavirus.html?searchResultPosition=8
 
 **Postal Service Has Paid DeJoy’s Former Company $286 Million Since 2013**\
 `Documents obtained through a public records request showed the degree to which XPO Logistics, Postmaster General Louis DeJoy’s former employer, is intertwined with the agency he now oversees.`\
-https://nytimes.com/2020/09/02/us/politics/postal-service-xpo-dejoy.html?searchResultPosition=2
+https://nytimes.com/2020/09/02/us/politics/postal-service-xpo-dejoy.html?searchResultPosition=9
 
 **Arkansas Communities Endorse Hate Crimes Law Effort**\
 `Community leaders in an Arkansas region that has struggled with racism and white supremacists over the years on Wednesday endorsed an effort by the governor and lawmakers to enact a hate crimes law.`\
-https://nytimes.com/aponline/2020/09/02/us/ap-us-hate-crimes-arkansas.html?searchResultPosition=3
-
-**What’s at Stake for Shinzo Abe’s Successor**\
-`Can Japan’s next leader build on his predecessor’s legacy?`\
-https://nytimes.com/2020/09/02/opinion/shinzo-abe-japan.html?searchResultPosition=4
-
-**‘It Was a Setup,’ Pelosi Says of Salon Visit Controversy**\
-`Speaker Nancy Pelosi’s visit to a hair salon in San Francisco this week was captured on video and sparked backlash. At the time, Bay Area officials’ coronavirus guidelines prohibited indoor beauty services.`\
-https://nytimes.com/video/us/politics/100000007321505/pelosi-san-francisco-hair-salon.html?searchResultPosition=5
-
-**Ship Carrying Livestock and Crew Missing Off Japan Coast: NHK**\
-`The Japanese coastguard is looking for a cargo ship carrying livestock and dozens of crew members that went missing after issuing a distress signal due to typhoon Maysak, Japanese public broadcaster NHK said.`\
-https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-japan-newzealand-ship.html?searchResultPosition=6
-
-**The C.D.C. Is Preparing for 2 Covid-19 Vaccines. Here’s What You Need to Know.**\
-`The agency told public health agencies that two unidentified vaccines might be ready by October or November. We explain how vaccine trials work, when one might be ready, and who may get them first.`\
-https://nytimes.com/article/covid-vaccine-a-b.html?searchResultPosition=7
-
-**Mother of Unarmed Wyoming Man Shot by Deputy Files Lawsuit**\
-`The mother of an unarmed Wyoming man killed by a sheriff’s deputy after a traffic stop has filed a lawsuit alleging excessive use of force and failures in hiring and training the deputy.`\
-https://nytimes.com/aponline/2020/09/02/us/ap-us-deputy-shooting-lawsuit.html?searchResultPosition=8
-
-**Los Angeles County Allows Schools to Reopen for Students With Special Needs**\
-`Los Angeles County will allow schools to reopen to serve small groups of students with special needs and those for whom English is a second language, the latest move to loosen coronavirus-related restrictions in the hard-hit region.`\
-https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-california.html?searchResultPosition=9
-
-**Djokovic Overcomes Slow Start to Extend Win Streak**\
-`World number one Novak Djokovic brushed aside Briton Kyle Edmund 6-7(5) 6-3 6-4 6-2 on Wednesday after a sluggish start to remain unbeaten in 2020 and move into the third round of the U.S. Open.`\
-https://nytimes.com/reuters/2020/09/02/sports/tennis/02reuters-tennis-usopen-djokovic.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/02/us/ap-us-hate-crimes-arkansas.html?searchResultPosition=10
 
