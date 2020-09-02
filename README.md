@@ -1,40 +1,40 @@
+**Soccer: Three PSG Players Test Positive for COVID-19**\
+`Three Paris St Germain players have tested positive for COVID-19, the Ligue 1 club said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/02/sports/02reuters-health-coronavirus-soccer-france.html?searchResultPosition=1
+
+**Delta Helped Brazil's Gol Refinance $300 Million Loan, Memo Shows**\
+`Delta Air Lines helped its former Brazilian partner Gol Linhas Aereas Inteligentes to refinance a $300 million loan that was due on Monday and that the U.S. carrier had guaranteed, according to an internal memo seen by Reuters. `\
+https://nytimes.com/reuters/2020/09/02/business/02reuters-delta-air-gol-linhas-ae-debt.html?searchResultPosition=2
+
+**The Latest: Biden to Visit Wisconsin, Now a 2020 Flash Point**\
+`The Latest on the 2020 presidential campaign (all times local):`\
+https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=3
+
+**Season 2 of Amazon Hit 'The Boys' Finds Team on Run From Law**\
+`The upcoming season of “The Boys” has so many surprises, revelations and themes ripped from today’s front pages that some actors are wondering if their show runner has psychic super abilities.`\
+https://nytimes.com/aponline/2020/09/02/us/ap-us-tv-the-boys.html?searchResultPosition=4
+
+**Greece Reopens 10-Year Bond Issue Ahead of Defense Boost**\
+`Greece’s finance minister said Wednesday the country has carried out a successful bond auction, reopening a June 10-year issue that had raised 3 billion euros ($3.55 billion) with a yield of 1.50%.`\
+https://nytimes.com/aponline/2020/09/02/business/ap-eu-greece-bond-auction-defence.html?searchResultPosition=5
+
+**More Charges Brought in College Admissions Bribery Scandal**\
+`Another wealthy parent was charged Wednesday with trying to bribe his child's way into an elite university as a fake athletic recruit, a day after two former college coaches caught up in the nationwide admissions bribery scandal were hit with additional charges.`\
+https://nytimes.com/aponline/2020/09/02/business/ap-us-college-admissions-bribery.html?searchResultPosition=6
+
 **Italy Minister's Embrace of 'Blackface' Memes Spotlights Racism**\
 `For Foreign Minister Luigi Di Maio it was a bit of harmless, social media fun, for others it highlighted what some say is a national blindness to insidious racism lurking just under the skin of predominantly white Italy. `\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-italy-racism.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-italy-racism.html?searchResultPosition=7
 
 **'BLM' and 'Defund the Police' Tagged on Memphis Landmarks**\
 `Messages of Black Lives Matter and “Defund the Police” were spray painted on several tourist attractions in Tennessee on Monday night, including Graceland, the Elvis Presley estate, authorities said.`\
-https://nytimes.com/aponline/2020/09/02/us/ap-us-graceland-graffiti-blm.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/09/02/us/ap-us-graceland-graffiti-blm.html?searchResultPosition=8
 
 **U.S. Blacklists ICC Prosecutor Over Afghanistan War Crimes Probe**\
 `The United States on Wednesday imposed sanctions on International Criminal Court prosecutor Fatou Bensouda, Secretary of State Mike Pompeo said, over her investigation into whether American forces committed war crimes in Afghanistan.`\
-https://nytimes.com/reuters/2020/09/02/us/02reuters-usa-icc-sanctions.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/09/02/us/02reuters-usa-icc-sanctions.html?searchResultPosition=9
 
 **Dutch Health Authorities Report 734 New Coronavirus Cases**\
 `Dutch health authorities on Wednesday reported 734 new coronavirus cases in the past 24 hours, the largest one-day total since mid-August.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=4
-
-**After Tesla's Fart Mode, Mercedes Bets on Comfort to Blow Customers Away**\
-`Mercedes-Benz engineers are striving to meet every definition of comfort in the new S-Class sedan as they try to steal a march on rival Tesla, which wowed audiences with its "fart mode."`\
-https://nytimes.com/reuters/2020/09/02/business/02reuters-daimler-premiere-sclass.html?searchResultPosition=5
-
-**India Parliament Panel Says to Summon Facebook Again on Content Regulation**\
-`An Indian parliamentary panel on information technology will summon Facebook Inc executives again as issues regarding the social media giant's content regulations policies could not be settled on Wednesday, the panel's chief said.`\
-https://nytimes.com/reuters/2020/09/02/technology/02reuters-facebook-india-parliament.html?searchResultPosition=6
-
-**Germany Urges Russia to Probe Novichok Attack on Putin Critic**\
-`German Foreign Minister Heiko Maas urged Russia on Wednesday to investigate the poisoning of Alexei Navalny after clinical tests conducted in Germany determined that the critic of President Vladimir Putin had been attacked with the nerve agent Novichok.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-russia-politics-navalny-maas.html?searchResultPosition=7
-
-**Steroids Confirmed to Help Severely Ill Coronavirus Patients**\
-`New studies confirm that multiple types of steroids improve survival for severely ill COVID-19 patients, cementing the cheap drugs as a standard of care. `\
-https://nytimes.com/aponline/2020/09/02/health/ap-us-med-virus-outbreak-treatments.html?searchResultPosition=8
-
-**AstraZeneca COVID-19 Vaccine Could Be on the Market by End of 2020-Italy Minister**\
-`The first shots of British drug maker AstraZeneca's potential COVID-19 vaccine could be on the market by the end of 2020, Italian Health Minister Roberto Speranza said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-italy-vaccine.html?searchResultPosition=9
-
-**Prince Harry and Meghan Sign Megawatt Netflix Deal**\
-`Six months after ceasing to be working members of the British royal family, the Duke and Duchess of Sussex are Hollywood producers.`\
-https://nytimes.com/2020/09/02/business/media/harry-meghan-netflix.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=10
 
