@@ -14,8 +14,8 @@ https://nytimes.com/2020/09/02/arts/television/raised-by-wolves-review.html?sear
 `Greece will require visitors from Russia to show a negative COVID-19 test before entering the country between Sept. 7 and Sept. 21, its civil aviation authority said on Wednesday.`\
 https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-greece-russia.html?searchResultPosition=4
 
-**Madrid Shuts Teacher Testing Centre as Virus Fears Grow**\
-`Authorities in Madrid shut down a coronavirus testing centre for teachers on Wednesday after large crowds formed outside, while the health ministry diagnosed 3,663 new cases of the virus, down from a peak of nearly 10,000 recorded in Spain last Friday. `\
+**Madrid Shuts Teacher Testing Center as Virus Fears Grow**\
+`Authorities in Madrid shut down a coronavirus testing center for teachers on Wednesday after large crowds formed outside, while the health ministry diagnosed 3,663 new cases of the virus, down from a peak of nearly 10,000 recorded in Spain last Friday. `\
 https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-spain.html?searchResultPosition=5
 
 **4 Members of Congress Question NFL on Concussion Payments**\
