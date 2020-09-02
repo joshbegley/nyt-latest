@@ -1,4 +1,4 @@
-**Latest on the Worldwide Spread of Coronavirus**\
+**Factbox: Latest on the Worldwide Spread of Coronavirus**\
 `Tens of millions of pupils around Europe returned to school on Tuesday, while in the United States moves were afoot to support school reopenings even as the proposed coronavirus relief legislation remained in a limbo.`\
 https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-health-coronavirus-latest-factbox.html?searchResultPosition=1
 
