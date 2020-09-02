@@ -1,40 +1,40 @@
+**5 Ways to Get Structure Back Into Your Kids’ Lives**\
+`School has begun, here’s how to reintroduce routines.`\
+https://nytimes.com/2020/09/02/parenting/school-routines.html?searchResultPosition=1
+
+**Verizon Has $1.9 Billion in Winning Bids in 3.5 GHz Spectrum Auction: FCC**\
+`The Federal Communications Commission (FCC) said a Verizon Communications Inc unit won bids worth nearly $1.9 billion in an auction of a key spectrum block in the 3.5 GHz band.`\
+https://nytimes.com/reuters/2020/09/02/us/02reuters-usa-spectrum-auction.html?searchResultPosition=2
+
+**U.S. to Require Approvals on Work of Chinese Diplomats in America**\
+`The United States will now require senior Chinese diplomats in the country to receive approvals from the State Department before visiting U.S. university campuses and holding cultural events with more than 50 people outside the mission grounds, the Department said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/02/technology/02reuters-usa-china-diplomats.html?searchResultPosition=3
+
+**'Virtual London Marathon' Sells Out as 45,000 Sign Up to Run Alone**\
+`More than 45,000 people have signed up to run the first "virtual"  London Marathon in October after the actual race, already postponed from April, was cancelled last month due to the risk of coronavirus spread.`\
+https://nytimes.com/reuters/2020/09/02/sports/02reuters-athletics-london.html?searchResultPosition=4
+
+**Lawmakers Ask N.F.L. About Race Norms Used in Concussion Settlement**\
+`Members of Congress questioned whether the racial benchmarks used to settle dementia claims were consistent with discriminatory economic practices like redlining.`\
+https://nytimes.com/2020/09/02/sports/football/nfl-concussion-settlement-race-bias-congress.html?searchResultPosition=5
+
+**New US Sanctions on International Tribunal Prosecutor, Aide**\
+`The Trump administration on Wednesday imposed sanctions on the chief prosecutor of the International Criminal Court and one of her top aides for continuing to investigate war crimes allegations against Americans.`\
+https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-united-states-international-court.html?searchResultPosition=6
+
+**Jordan Gets Stake in DraftKings for Advisory Role**\
+`DraftKings shares jumped in morning trading after announcing that basketball legend Michael Jordan would take an ownership stake in the company in exchange for becoming a special adviser to the sports betting site. `\
+https://nytimes.com/aponline/2020/09/02/business/ap-draftkings-michael-jordan.html?searchResultPosition=7
+
 **Wells Fargo Is Fined for Violations Related to Variable Annuity Switches: FINRA**\
 `Wells Fargo & Co agreed to pay $2.1 million in fines and restitution to settle charges it failed to properly supervise brokers' recommendations that customers sell variable annuities and use proceeds to buy other investments, the Financial Industry Regulatory Authority said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/business/02reuters-wells-fargo-finra.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/02/business/02reuters-wells-fargo-finra.html?searchResultPosition=8
 
 **Biden to Air Law-and-Order Ad Condemning Rioters and Looters**\
 `The ad, part of a $45 million one-week television and digital purchase that is by far the campaign’s largest to date, comes as the Democratic nominee pushes back against President Trump’s attacks.`\
-https://nytimes.com/2020/09/02/us/politics/biden-ads-trump.html?searchResultPosition=2
+https://nytimes.com/2020/09/02/us/politics/biden-ads-trump.html?searchResultPosition=9
 
 **Top EU Schools See Applications Dip as COVID Compounds Brexit Delays**\
 `The coronavirus pandemic has forced some British-based families to put Brexit-related plans to move to the European Union on hold, leaving some top international schools wondering when a predicted surge in new applications will materialize.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-britain-eu-schools.html?searchResultPosition=3
-
-**Exclusive: EU Draft Plan Targets Free Carbon Credit Cut for Most Industries**\
-`Most industries covered by the European Union's carbon market would see free credits cut by the highest possible rate over the next five years under draft plans, potentially costing some of the biggest polluters millions of euros.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-climate-change-eu-industry-exclusive.html?searchResultPosition=4
-
-**Family of Chicago Man Killed by Police Seek Video, Answers**\
-`Relatives of a man fatally shot by Chicago police after gunshots were fired at an unmarked police car don't believe he fired those shots and want to see police body camera footage of the incident.`\
-https://nytimes.com/aponline/2020/09/02/us/ap-us-chicago-violence-squad-car-shooting.html?searchResultPosition=5
-
-**Blanchett on Venice, Virus and Why Lessons Weren't Learned**\
-`Australian actress Cate Blanchett said Wednesday she is baffled that other countries didn’t learn from Italy’s pain to be better prepared to fight the coronavirus outbreak when it spread.`\
-https://nytimes.com/aponline/2020/09/02/world/europe/ap-eu-italy-venice-film-festival-blanchett.html?searchResultPosition=6
-
-**Pompeo Defends RNC Address, Saying State Dept. Found It Lawful**\
-`U.S. Secretary of State Mike Pompeo on Wednesday defended his appearance last week at the Republican National Convention, saying it was reviewed by the department as lawful.`\
-https://nytimes.com/reuters/2020/09/02/us/politics/02reuters-usa-election-convention-pompeo.html?searchResultPosition=7
-
-**U.S. Mulls Sanctions on Anyone Involved in Belarus Rights Abuses, Pompeo Says**\
-`The United States and European partners are together reviewing imposing targeted sanctions on anyone involved in human rights abuses in Belarus, U.S. Secretary of State Mike Pompeo said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-belarus-election-usa-pompeo.html?searchResultPosition=8
-
-**Ford Cutting 1,400 US Salaried Jobs With Retirement Offers**\
-`Ford Motor Co. will offer early retirement incentives with hopes of cutting its U.S. white-collar workforce by 1,400 more positions. `\
-https://nytimes.com/aponline/2020/09/02/business/ap-us-ford-job-cuts.html?searchResultPosition=9
-
-**Cook the Season’s Best**\
-`Make Jerrelle Guy’s cherry-almond crisp, Ali Slagle’s cantaloupe-avocado salad, and more recipes for right now.`\
-https://nytimes.com/2020/09/02/dining/cook-the-seasons-best.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-britain-eu-schools.html?searchResultPosition=10
 
