@@ -1,40 +1,40 @@
+**Memo: NCAA to Furlough Its Entire Staff for 3-8 Weeks**\
+`The NCAA will furlough its entire Indianapolis-based staff of about 600 employees for three to eight weeks in a cost-saving move, according to memo obtained Wednesday by The Associated Press. `\
+https://nytimes.com/aponline/2020/09/02/sports/ap-us-ncaa-furloughs.html?searchResultPosition=1
+
+**Damaged Venezuelan Oil Tanker Drawing International Concern**\
+`The sight of a huge oil tanker that has taken on water and is leaning to one side off a remote stretch of Venezuela's coast has triggered international calls for action.`\
+https://nytimes.com/aponline/2020/09/02/world/americas/ap-lt-venezuela-sinking-oil-tanker.html?searchResultPosition=2
+
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark U.S. crude oil for October delivery fell $1.25 to $41.51 a barrel Wednesday. Brent crude oil for November delivery dropped $1.15 to $44.43 a barrel.`\
+https://nytimes.com/aponline/2020/09/02/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=3
+
+**Winter Sea Ice in Bering Sea Reached Lowest Levels in Millennia: Study**\
+`The Bering Sea ice cover during the winters of 2018 and 2019 hit new lows not seen in thousands of years, scientists reported on  Wednesday, adding to concerns about the accelerating impact of climate change in the Arctic.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-climate-change-arctic.html?searchResultPosition=4
+
+**Joni Ernst, in a Tight Senate Race, Repeats a Debunked Coronavirus Theory**\
+`The Iowa senator’s comments echoed a false claim, spread by President Trump over the weekend, that deaths from Covid-19 have been inflated.`\
+https://nytimes.com/2020/09/02/us/politics/Joni-ernst-Covid-deaths.html?searchResultPosition=5
+
+**Attorneys Present Revised Weinstein Bankruptcy Plan to Judge**\
+`Attorneys for The Weinstein Co. presented a Delaware judge Wednesday with a revised bankruptcy plan that would provide about $35 million for creditors, including victims of sexual misconduct by disgraced film mogul Harvey Weinstein.`\
+https://nytimes.com/aponline/2020/09/02/business/ap-us-weinstein-bankruptcy.html?searchResultPosition=6
+
+**Steroids Cut COVID-19 Death Risk; Hepatitis C Drugs May Help Fight the Coronavirus**\
+`The following is a roundup of some of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
+https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-science.html?searchResultPosition=7
+
 **‘We’ve Got To Heal,’ Biden Says Before Kenosha Visit**\
 `A day ahead of his visit to Kenosha, Wis., Joseph R. Biden Jr. described the intentions of his trip, and what he would do to unify the country if elected president.`\
-https://nytimes.com/video/us/100000007321418/biden-kenosha.html?searchResultPosition=1
+https://nytimes.com/video/us/100000007321418/biden-kenosha.html?searchResultPosition=8
 
 **‘Mr. President, Where Are You?’: Biden Slams Trump Over School Reopenings**\
 `The Democratic nominee for president, Joseph R. Biden Jr., called for more funding for schools to open safely amid the coronavirus pandemic.`\
-https://nytimes.com/video/us/politics/100000007321416/biden-trump-coronavirus-reopening-schools.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000007321416/biden-trump-coronavirus-reopening-schools.html?searchResultPosition=9
 
 **UN: Respect Rights of Detained Man of 'Hotel Rwanda' Fame**\
 `The United Nations human rights office says it expects that the rights of an outspoken government critic that Rwanda paraded in handcuffs this week will be respected “notwithstanding the serious allegations” against him.`\
-https://nytimes.com/aponline/2020/09/02/world/africa/ap-af-rwanda-hotel-rwanda-arrest.html?searchResultPosition=3
-
-**Art Basel Cancels Annual Miami Event Due to Virus**\
-`The high brow Art Basel fair, known for glamorous parties and celebrity sightings, on Wednesday announced the cancellation of its annual Miami event amid the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/09/02/us/ap-us-virus-outbreak-florida-.html?searchResultPosition=4
-
-**Facebook Removes Congressman's Post Over 'Incitement'**\
-`A Louisiana congressman's Facebook post promising the use of force against armed protesters has been removed from the social media platform, prompting a response from the congressman that “America is being manipulated into a new era of government control.”`\
-https://nytimes.com/aponline/2020/09/02/us/ap-us-congressmans-post-removed-.html?searchResultPosition=5
-
-**Exclusive: Brazil Amazon Fires Likely Worst in 10 Years, August Data Incomplete, Government Researcher Says**\
-`The official August data on the number of fires in Brazil's Amazon needs to be corrected and will likely show an increase over last year, meaning that blazes surged to a decade high, a scientist responsible for the figures told Reuters on Wednesday. `\
-https://nytimes.com/reuters/2020/09/02/world/americas/02reuters-brazil-environment-fires-exclusive.html?searchResultPosition=6
-
-**Backed by Federal Funds, New Virus Tests Are Hitting the Market**\
-`Six months into the pandemic and with no coherent national testing strategy, the Trump administration is encouraging private development of an array of faster and cheaper techniques.`\
-https://nytimes.com/2020/09/02/us/politics/covid-testing.html?searchResultPosition=7
-
-**Trump Backs Police in Kenosha, City at Heart of Debate Over Race, Justice**\
-`President Donald Trump defied requests to stay away and visited Kenosha, Wisconsin, on Tuesday, not to urge racial healing after a white officer shot a Black man in the back but to express support for law enforcement in a city rocked by civil unrest.`\
-https://nytimes.com/reuters/2020/09/02/us/politics/02reuters-global-race-usa-trump.html?searchResultPosition=8
-
-**Duplantis Wins in Lausanne to Extend Unbeaten Run This Year**\
-`World record holder Armand Duplantis continued his perfect record this year when he beat world champion Sam Kendricks to win a special city centre event in Lausanne on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/sports/02reuters-athletics-diamond-lausanne.html?searchResultPosition=9
-
-**Lawsuit: Whistleblower in VA Deaths Wrongfully Suspended**\
-`A man who says he alerted authorities to a string of suspicious patient deaths at a West Virginia veterans hospital has filed a lawsuit claiming he was wrongfully suspended because of his actions, a newspaper reported. `\
-https://nytimes.com/aponline/2020/09/02/us/ap-us-va-deaths-west-virginia-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/02/world/africa/ap-af-rwanda-hotel-rwanda-arrest.html?searchResultPosition=10
 
