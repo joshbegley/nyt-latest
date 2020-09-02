@@ -6,8 +6,8 @@ https://nytimes.com/2020/09/02/us/politics/pompeo-china-sanctions.html?searchRes
 `The United States said on Wednesday that it will not pay some $80 million it currently owes to the Geneva-based World Health Organization (WHO) and will instead redirect the money to help pay its United Nations bill in New York. `\
 https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-health-coronavirus-who-usa.html?searchResultPosition=2
 
-**Mandatory Virus Tests Are a Key Part of N.Y.C. School Reopening Plan**\
-`To keep schools safe, the city plans to test an estimated 60,000 students and teachers each month. If parents refuse, their children will have to learn at home.`\
+**N.Y.C. School Plan Hinges on Hundreds of Thousands of Virus Tests**\
+`To keep schools safe after reopening, the city plans mandatory tests of 10 percent of students and teachers. If parents refuse, their children will have to learn at home.`\
 https://nytimes.com/2020/09/02/nyregion/schools-reopen-testing-nyc.html?searchResultPosition=3
 
 **Coronavirus Vaccine, 2020 Election, Jane Fonda: Your Wednesday Evening Briefing**\
