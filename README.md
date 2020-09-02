@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/09/01/us/01reuters-california-wildfire.html?sea
 `The 2020 edition of China's richest golf tournament, the WGC-HSBC Champions, has been cancelled because of government restrictions on international sporting events, the International Federation of PGA Tours said on Wednesday. `\
 https://nytimes.com/reuters/2020/09/01/sports/golf/01reuters-health-coronavirus-golf-champions.html?searchResultPosition=5
 
-**Khmer Rouge Prison Commander Duch Dies in Cambodia**\
-`Comrade Duch, the senior Khmer Rouge figure who ran Cambodia’s most notorious prison during the genocidal regime, died on Wednesday, a spokesman for the tribunal that convicted him of war crimes said.`\
+**Notorious Khmer Rouge Prison Commander Comrade Duch Dead at 77**\
+`The Khmer Rouge commander known as 'Comrade Duch', Pol Pot's premier executioner and security chief who oversaw the mass murder of at least 14,000 Cambodians at the notorious Tuol Sleng prison, died on Wednesday. He was 77.`\
 https://nytimes.com/reuters/2020/09/01/world/asia/01reuters-cambodia-duch.html?searchResultPosition=6
 
 **UK Man Guilty of Trying to Smuggle Generator From US to Iran**\
@@ -31,7 +31,7 @@ https://nytimes.com/aponline/2020/09/01/business/ap-us-smuggled-generator-iran.h
 https://nytimes.com/reuters/2020/09/01/world/americas/01reuters-health-coronavirus-mexico-tally.html?searchResultPosition=8
 
 **Tatum, Smart Lift Boston Past Toronto, Celtics Take 2-0 Lead**\
-`Jayson Tatum scored 34 points, Marcus Smart made five 3-pointers in the fourth quarter and the Boston Celtics beat the Toronto Raptors 102-99 in Game 2 of their Eastern Conference semifinal series Monday night, putting the reigning NBA champions in serious trouble.`\
+`Marcus Smart didn’t like a call that went against him late in the third quarter, a moment that made it seem like the Toronto Raptors were taking control against the Boston Celtics.`\
 https://nytimes.com/aponline/2020/09/01/sports/basketball/ap-bkn-celtics-raptors.html?searchResultPosition=9
 
 **Murray Ready for Long Haul After Winning Gruelling Opener in New York**\
