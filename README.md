@@ -1,40 +1,40 @@
+**Students Blockade Top Arts University as Hungary's Government Tightens Control**\
+`Students at Hungary's University of Theatre and Film Arts have sealed entrances to the building to stop the new board of trustees getting in, and pledged to maintain the blockade until demands for autonomy from government control were met.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-hungary-politics-education-theatre.html?searchResultPosition=1
+
+**Italy's Former PM Berlusconi Tests Positive for Coronavirus**\
+`Italy's former Prime Minister Silvio Berlusconi has tested positive for coronavirus and is currently in isolation at home, his staff said in a statement on Wednesday.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-italy-politics.html?searchResultPosition=2
+
+**Lithuania, Estonia Push for EU Sanctions on Lukashenko: Diplomats**\
+`Lithuania and Estonia have asked fellow EU nations to blacklist Belarusian leader Alexander Lukashenko when the bloc imposes sanctions on the former Soviet republic over a disputed election and a crackdown on protests, diplomatic sources said. `\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-belarus-election-eu.html?searchResultPosition=3
+
+**Biden and DNC Raised Combined $364.5 Million in August**\
+`Democratic presidential nominee Joe Biden and the Democratic National Committee said on Wednesday that they raised a combined $364.5 million in August, including more than $205 million from online, small-dollar donations. `\
+https://nytimes.com/reuters/2020/09/02/us/politics/02reuters-usa-election-biden-fundraising.html?searchResultPosition=4
+
+**France's New COVID-19 Infections Again Above 7,000**\
+`French health authorities reported 7,017 new confirmed coronavirus cases on Wednesday, sharply up from Tuesday's 4,982 figure, and the third time since the beginning of the outbreak that the daily tally has stood above 7,000.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-france-casualties.html?searchResultPosition=5
+
+**'Avoidable' Coronavirus Outbreak Tears Through Madrid Homeless Shelter**\
+`A coronavirus outbreak at a Madrid homeless shelter, where 26 new infections were diagnosed on Wednesday amid a resurgence of the virus in Spain, has led staff to blame city authorities for not isolating those infected as they remained in crammed rooms.`\
+https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-spain-shelter.html?searchResultPosition=6
+
+**U.S. NIH Awards Nine Companies $129 Million to Scale Up COVID-19 Testing**\
+`The National Institutes of Health is awarding $129.3 million to nine companies to support scaling-up coronavirus testing and manufacturing new testing technologies, the U.S. health agency said on Wednesday. `\
+https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-testing.html?searchResultPosition=7
+
+**Bank of England's Bailey Slams EU Barrier to Investment Banking Services After Brexit**\
+`An EU refusal to grant cross-border access to investment banking services from the CIty of London shows how the bloc wants to force Britain to keep adopting its rules in future, Bank of England Governor Andrew Bailey said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/02/us/02reuters-britain-eu-banks.html?searchResultPosition=8
+
+**Fox, C-SPAN, NBC Moderators for Upcoming Trump-Biden Debates**\
+`Representatives from Fox News, C-SPAN and NBC will moderate the upcoming debates between President Donald Trump and Democratic challenger Joe Biden.`\
+https://nytimes.com/aponline/2020/09/02/arts/ap-us-election-2020-debates.html?searchResultPosition=9
+
 **Bank of England: Return of UK Office Workers to Take Time**\
 `The Bank of England said Wednesday there are perfectly understandable reasons why the majority of office workers have yet to return to their pre-lockdown workplaces despite new coronavirus guidance from the British government.`\
-https://nytimes.com/aponline/2020/09/02/business/ap-eu-britain-economy.html?searchResultPosition=1
-
-**Blues Trade Goalie Allen to Montreal, Clear Salary Cap Space**\
-`The St. Louis Blues traded goaltender Jake Allen to the Montreal Canadiens on Wednesday in a move that clears valuable salary cap space to try to keep their Stanley Cup-winning captain.`\
-https://nytimes.com/aponline/2020/09/02/sports/hockey/ap-hkn-blues-canadiens-trade.html?searchResultPosition=2
-
-**Tibetan Soldier's Death Near Tense India-China Border Sheds Light on Covert Unit**\
-`The death of a Tibetan member of an Indian special forces unit in a mine blast near the site of a border flare-up with Chinese troops has offered a rare glimpse into a little-known group of elite, high-altitude warriors.`\
-https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-india-china-tibet.html?searchResultPosition=3
-
-**EU Weighing Sanctions on 10-15 Belarus Figures, U.S. Official Says**\
-`The European Union is looking at sanctioning 10 to 15 Belarusian figures in connection with the former Soviet republic's disputed Aug. 9 election and subsequent violent crackdown on protesters, a U.S. State Department official said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-belarus-election-usa-europe.html?searchResultPosition=4
-
-**French Roadmap Sets Blistering Pace for Lebanon to Change Course**\
-`A French roadmap for Lebanon's next government calls for the immediate resumption of talks with the International Monetary Fund to fix the shattered economy and swift moves to fight graft and introduce other reforms that have been delayed for years.`\
-https://nytimes.com/reuters/2020/09/02/world/middleeast/02reuters-lebanon-crisis-government.html?searchResultPosition=5
-
-**Canada, U.S., EU and Britain Are Discussing Sanctions Against Belarus: Ottawa**\
-`Canada, the United States, the European Union and Britain are discussing possible sanctions against Belarus over its crackdown against protests following a disputed election, a Canadian source directly familiar with the matter said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-belarus-election-canada.html?searchResultPosition=6
-
-**Trump Flexes Power of Incumbency in North Carolina Trip**\
-`President Donald Trump will use the power of incumbency to his advantage Wednesday, making a personal appearance in a key battleground state on V-J Day to declare the port city of Wilmington, North Carolina a World War II “Heritage City.”`\
-https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-trump.html?searchResultPosition=7
-
-**Depression, Anxiety Spike Amid Outbreak and Turbulent Times**\
-`Mental health therapists’ caseloads are bulging. Waiting lists for appointments are growing. And anxiety and depression are rising among Americans amid the coronavirus crisis, research suggests. `\
-https://nytimes.com/aponline/2020/09/02/us/ap-us-virus-outbreak.html?searchResultPosition=8
-
-**What’s Bigger Than an Event Film? ‘Tenet’ Might Just Be**\
-`Christopher Nolan movies are always events. `\
-https://nytimes.com/aponline/2020/09/02/us/ap-us-film-tenet.html?searchResultPosition=9
-
-**UK Says Russia Must Explain Why Putin Critic Navalny Was Poisoned With Novichok**\
-`Britain insisted Russia must explain why a critic of Russian President Vladmir Putin has been poisoned with a nerve agent of the Novichok family and said it is unacceptable that the chemical weapon has been used again.`\
-https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-russia-politics-navalny-britain.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/02/business/ap-eu-britain-economy.html?searchResultPosition=10
 
