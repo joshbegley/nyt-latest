@@ -1,4 +1,4 @@
-**Biden to Air Law-and-Order Ad Condemning Rioters and Looters Nationwide**\
+**Biden to Air Nationwide Law-and-Order Ad Condemning Rioters and Looters**\
 `The ad, part of a $45 million one-week television and digital purchase that is by far the campaign’s largest to date, comes as the Democratic nominee pushes back against President Trump’s attacks.`\
 https://nytimes.com/2020/09/01/us/politics/biden-ad-crime-trump.html?searchResultPosition=1
 
