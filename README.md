@@ -1,40 +1,40 @@
+**Four State Attorneys General Back Trump on Social Media Regulation Push**\
+`Four Republican state attorneys general led by Texas backed President Donald Trump's push to narrow the ability of social media companies to remove objectionable content and require new transparency rules.`\
+https://nytimes.com/reuters/2020/09/03/technology/03reuters-usa-trump-socialmedia.html?searchResultPosition=1
+
+**Black Jogger Who Was Mistakenly Jailed in Texas Speaks Out**\
+`A Black jogger who spent nearly two days in jail after mistakenly being arrested by San Antonio police because he fit the description of an assault suspect says it was a traumatic experience that no one should have to experience.`\
+https://nytimes.com/aponline/2020/09/03/us/ap-us-black-jogger-arrested.html?searchResultPosition=2
+
+**2 Missouri Councilmen Answer for Racist Halloween Costumes**\
+`One Missouri councilman has come under fire for wearing blackface to a Halloween party and another from the same city has apologized in a Facebook post for costumes in which he dressed as a slave owner one year and as someone who was mentally disabled the next. `\
+https://nytimes.com/aponline/2020/09/03/us/ap-us-missouri-councilmen-racist-costumes-1st-ld-writethru.html?searchResultPosition=3
+
+**Pelosi, Mnuchin Agree on Plan to Avoid Government Shutdown**\
+`House Speaker Nancy Pelosi and the Trump administration have informally agreed to keep a stopgap government-wide funding bill — needed to avert a shutdown at the end of this month — free of controversy or conflict. `\
+https://nytimes.com/aponline/2020/09/03/business/ap-us-congress-government-funding-1st-ld-writethru.html?searchResultPosition=4
+
+**Jack Daniel's Master Distiller Stepping Down After 12 Years**\
+`After 12 years of leading production of the powerhouse Jack Daniel's whiskey brand, Jeff Arnett is stepping down as master distiller, the company announced Thursday.`\
+https://nytimes.com/aponline/2020/09/03/business/ap-us-jack-daniels-master-distiller.html?searchResultPosition=5
+
+**Unemployment Claims Show Layoffs Continue to Batter Economy**\
+`Progress in restoring lost jobs has become more challenging. “It’s pretty bad at this stage in the crisis,” one economist said.`\
+https://nytimes.com/2020/09/03/business/economy/unemployment-claims.html?searchResultPosition=6
+
 **Hamilton Takes Formula One's 'Party Mode' Ban as a Compliment**\
 `Formula One leader Lewis Hamilton said he saw a clampdown on engine modes as a compliment to his dominant Mercedes team and suspected the move could backfire on rivals seeking to slow him down.`\
-https://nytimes.com/reuters/2020/09/03/sports/autoracing/03reuters-motor-f1-italy-hamilton-partymode.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/03/sports/autoracing/03reuters-motor-f1-italy-hamilton-partymode.html?searchResultPosition=7
 
 **German Prosecutors Drop Probe Into FT Over Wirecard**\
 `German prosecutors have dropped their investigation into journalists of the Financial Times in connection with its reporting on the corporate fraud at payments firm Wirecard that eventually led to its collapse.`\
-https://nytimes.com/reuters/2020/09/03/business/03reuters-wirecard-accounts-financial-times.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/09/03/business/03reuters-wirecard-accounts-financial-times.html?searchResultPosition=8
 
 **The Terrible Cost of Presidential Racism**\
 `Recently declassified White House Tapes reveal how President Nixon’s racism and misogyny led him to ignore the genocidal violence of the Pakistani military in what is today Bangladesh.`\
-https://nytimes.com/2020/09/03/opinion/nixon-racism-india.html?searchResultPosition=3
+https://nytimes.com/2020/09/03/opinion/nixon-racism-india.html?searchResultPosition=9
 
 **Campbell Soup Shares Fall Despite Strong Earnings, Sales**\
 `Campbell Soup reported strong fiscal fourth-quarter earnings on Thursday, boosted by people making more food at home because of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/09/03/business/ap-us-campbell-soup-results.html?searchResultPosition=4
-
-**Tennis: Bautista Agut Finds Way Past Tricky Kecmanovic**\
-`Eighth seed Roberto Bautista Agut got through a difficult second-round match against Serbian youngster Miomir Kecmanovic with a 6-3 3-6 6-3 6-4 victory at the U.S. Open on Thursday.`\
-https://nytimes.com/reuters/2020/09/03/sports/tennis/03reuters-tennis-usopen-agut.html?searchResultPosition=5
-
-**Scotland Adds Portugal to Its COVID-19 Quarantine List**\
-`Scotland will require travellers returning from Portugal and French Polynesia from 0300 GMT on Saturday to quarantine for 14 days, Scotland's Justice Minister Humza Yousaf said on Twitter on Thursday.`\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-health-coronavirus-scotland-travel.html?searchResultPosition=6
-
-**Report: NFL Further Limits Size of Traveling Party**\
-`The NFL will limit its teams to a traveling party of 70 staff members in the 2020 season, the Sports Business Journal reported Thursday.`\
-https://nytimes.com/reuters/2020/09/03/sports/football/03reuters-football-nfl-travel.html?searchResultPosition=7
-
-**Kenosha Journalist Quits After Coverage of Jacob Blake Rally**\
-`A Black journalist quit his job at a Kenosha, Wisconsin, daily newspaper after disputing a headline for a story about a rally organized by the family of Jacob Blake, a Black man who was shot by a police officer.`\
-https://nytimes.com/aponline/2020/09/03/us/ap-us-police-shooting-wisconsin-journalist-quit.html?searchResultPosition=8
-
-**Motor Racing: Hamilton Opens Up About Difficult Days and Loneliness**\
-`Formula One world championship leader Lewis Hamilton spoke on Thursday of loneliness and the "difficult days" of racing in a COVID-19 bubble, but said it was important to be open about it.`\
-https://nytimes.com/reuters/2020/09/03/sports/autoracing/03reuters-motor-f1-italy-hamilton.html?searchResultPosition=9
-
-**Long Shots in NFL Face Even Longer Odds During Pandemic**\
-`Pro days scuttled. Rookie minicamps wiped out. The NFL's traditional offseason, obliterated. `\
-https://nytimes.com/aponline/2020/09/03/sports/football/ap-fbn-virus-outbreak-missed-chances.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/03/business/ap-us-campbell-soup-results.html?searchResultPosition=10
 
