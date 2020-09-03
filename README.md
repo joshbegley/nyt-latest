@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/09/02/sports/tennis/02reuters-tennis-usopen-fac
 https://nytimes.com/aponline/2020/09/02/sports/baseball/ap-bbo-obit-seaver.html?searchResultPosition=2
 
 **Former New York Mets Star Pitcher Tom Seaver Dies at 75**\
-`Tom Seaver, the Hall-of-Fame baseball pitcher who lead the New York Mets to the 1969 World Series championship, has died at the age of 75, the franchise said on Twitter.`\
+`Tom Seaver, the Hall-of-Fame baseball pitcher who won more than 300 games during his celebrated career and led the New York Mets to their unlikely 1969 World Series championship, has died at the age of 75.`\
 https://nytimes.com/reuters/2020/09/02/arts/02reuters-people-tomseaver.html?searchResultPosition=3
 
 **Japan's August Service Sector Activity Worsens as Pandemic Stymies Recovery**\
