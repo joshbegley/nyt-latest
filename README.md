@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/09/02/us/politics/ap-us-nations-capital-police
 https://nytimes.com/reuters/2020/09/02/sports/tennis/02reuters-tennis-usopen-factbox.html?searchResultPosition=4
 
 **Tom Seaver, Heart and Mighty Arm of Miracle Mets, Dies at 75**\
-`Tom Seaver, the galvanizing leader of the Miracle Mets 1969 championship team and a pitcher who personified the rise of expansion teams during an era of radical change for baseball, has died. He was 75.`\
+`Tom Seaver, the Hall of Fame pitcher who steered a stunning transformation from lovable losers to Miracle Mets in 1969, has died. He was 75.`\
 https://nytimes.com/aponline/2020/09/02/sports/baseball/ap-bbo-obit-seaver.html?searchResultPosition=5
 
 **Former New York Mets Star Pitcher Tom Seaver Dies at 75**\
