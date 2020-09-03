@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/09/03/business/ap-financial-markets.html?searc
 `Tears and excitement from students greeted teachers on the first day of school after seven months in the Chinese city of Wuhan, but parents and teachers warned that while the coronavirus has retreated, no one could afford to let down their guard.`\
 https://nytimes.com/reuters/2020/09/03/world/asia/03reuters-health-coronavirus-china-wuhan.html?searchResultPosition=5
 
-**Sanofi and GSK Launch Trial for COVID-19 Protein-Based Vaccine**\
-`French drugmaker Sanofi and its British peer GSK have started a clinical trial for a protein-based COVID-19 vaccine candidate, as pharmaceutical companies race to develop treatments against the coronavirus pandemic.`\
+**Sanofi, GSK Launch Trial for COVID-19 Protein-Based Vaccine**\
+`French drugmaker Sanofi and its British peer GSK have started a clinical trial for a protein-based COVID-19 vaccine candidate, as pharmaceutical companies race to develop treatments against the COVID-19 pandemic.`\
 https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-health-coronavirus-gsk-sanofi.html?searchResultPosition=6
 
 **Roche Presents New Data on Efficacy of MS Treatment Ocrevus**\
