@@ -1,40 +1,40 @@
-**Climate Activists Glue Themselves to Street Outside British Parliament**\
-`Climate activists from the Extinction Rebellion group glued themselves to street entrances at the British parliament on Thursday, a Reuters reporter at the scene said.`\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-climate-change-britain.html?searchResultPosition=1
+**Minivans at the Food Pantry: Meet America’s New Needy**\
+`The economic strain of the coronavirus pandemic has more Americans turning to food banks and charity for help feeding their families.`\
+https://nytimes.com/2020/09/03/us/food-pantries-hunger-us.html?searchResultPosition=1
 
-**Britons Slowly Returning to Workplaces, Statistics Office Says**\
-`British employees are gradually returning to their workplaces after working from home because of the coronavirus pandemic, the country's statistics office said on Thursday.`\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-health-coronavirus-britain-economy.html?searchResultPosition=2
+**Pull Out of the Kentucky Derby? Pressure on a Black Owner Mounts**\
+`Greg Harbut, the rare Black owner of a horse in America’s biggest race, says the predominantly white sport must change. But at a moment of social unrest, others question why he is racing at all.`\
+https://nytimes.com/2020/09/03/sports/horse-racing/kentucky-derby-breonna-taylor-harbut.html?searchResultPosition=2
 
-**Australian Mom Handcuffed for Advocating Against Lockdown**\
-`A pregnant woman said Thursday she didn’t know she had broken any law when she was handcuffed by police in front of her children in her Australian home and led away in pajamas for allegedly inciting activists to demonstrate against pandemic lockdown.`\
-https://nytimes.com/aponline/2020/09/03/world/asia/ap-as-virus-outbreak-australian-arrest.html?searchResultPosition=3
+**A Turtle With a Permanent Smile Was Brought Back From Extinction**\
+`Scientists have rebuilt the population of Burmese roofed turtles to nearly 1,000 individuals and counting.`\
+https://nytimes.com/2020/09/03/science/burmese-roofed-turtle-myanmar-extinction.html?searchResultPosition=3
 
-**Belarusian Leader Lukashenko Replaces Heads of KGB and Security Council: Belta**\
-`Belarusian leader Alexander Lukashenko has appointed new heads of the KGB security service, the security council and the state control committee amid protests and strikes over a disputed election, the official Belta news agency reported on Thursday. `\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-belarus-election-lukashenko.html?searchResultPosition=4
+**The Whitney Reopens With 3 Powerhouse Shows**\
+`When the museum closed in March, it was showing Agnes Pelton’s paintings and Mexico’s great muralists. Thankfully, these works are still up on the walls.`\
+https://nytimes.com/2020/09/03/arts/design/whitney-museum-reopening.html?searchResultPosition=4
 
-**UK Job Losses Accelerate in August, PMI Shows**\
-`Job losses at British companies accelerated in August despite an upturn in demand, a survey showed on Thursday, in a bleak sign ahead of the closure of the government's coronavirus furlough scheme at the end of next month.`\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-britain-economy-pmi.html?searchResultPosition=5
+**Its Electric Grid Under Strain, California Turns to Batteries**\
+`When demand exceeded supply in a recent heat wave, electricity stored at businesses and even homes was called into service. With proper management, batteries could have made up for an offline gas plant.`\
+https://nytimes.com/2020/09/03/business/energy-environment/california-electricity-blackout-battery.html?searchResultPosition=5
 
-**Czech Republic Reports Its Highest Daily Number of Coronavirus Cases**\
-`The Czech Republic reported 650 new COVID-19 cases on Thursday, its highest number for a single day since the start of the coronavirus pandemic`\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-health-coronavirus-czech-cases.html?searchResultPosition=6
+**Glamping for First-Timers**\
+`A novice camper needed a vacation. What are the options during the summer of Covid-19?`\
+https://nytimes.com/2020/09/03/travel/virus-glamping.html?searchResultPosition=6
 
-**Japan's Suga Pledges Focus on Coronavirus but Details Remain Sketchy**\
-`As Japan's ruling party seeks a new leader to replace outgoing Prime Minister Shinzo Abe, health experts worry that his successor may prioritize reviving the recession-hit economy over its pledge to contain the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/09/03/world/asia/03reuters-health-coronavirus-japan-suga.html?searchResultPosition=7
+**Waves of Russian and Emirati Flights Fuel Libyan War, U.N. Finds**\
+`A confidential report sent to the Security Council details extensive breaches of the international arms embargo on Libya by eight countries since the beginning of the year.`\
+https://nytimes.com/2020/09/03/world/middleeast/libya-russia-emirates-mercenaries.html?searchResultPosition=7
 
-**UK Public Tribunal to Probe Uighur 'Genocide' Claims**\
-`A prominent British human rights lawyer is convening an independent tribunal in London to investigate whether the Chinese government’s alleged rights abuses against Uighur Muslims in the far western Xinjiang region constitute genocide or crimes against humanity.`\
-https://nytimes.com/aponline/2020/09/03/world/europe/ap-eu-britain-china-xinjiang-tribunal.html?searchResultPosition=8
+**Windjamming in the Bay**\
+`With the virus lingering and modified lockdowns still in effect, San Franciscans can still get an adrenaline rush watching kitesurfing daredevils catch air off Crissy Field.`\
+https://nytimes.com/2020/09/03/style/kitesurfing-windjamming-in-the-bay.html?searchResultPosition=8
 
-**Amazon to Create Further 7,000 Jobs in UK in 2020**\
-`Amazon will create a further 7,000 permanent jobs across the United Kingdom in 2020, taking total new jobs this year to 10,000, it said on Thursday.`\
-https://nytimes.com/reuters/2020/09/03/business/03reuters-amazon-jobs-britain.html?searchResultPosition=9
+**Marian Wright Edelman Steps Down, and a New Generation Takes Over**\
+`A Ferguson activist will lead the Children’s Defense Fund at a time when an impassioned civil rights movement is challenging racial injustice.`\
+https://nytimes.com/2020/09/03/nyregion/marian-wright-edelman-childrens-defense-fund.html?searchResultPosition=9
 
-**Indonesia Reports New Record in Daily Coronavirus Infections**\
-`Indonesia on Thursday reported 3,622 new coronavirus infections, a record high in daily cases, and 134 new deaths, data from the country's COVID-19 task force showed.`\
-https://nytimes.com/reuters/2020/09/03/world/asia/03reuters-health-coronavirus-indonesia.html?searchResultPosition=10
+**Is Virtual Burning Man the Internet’s Ultimate Test?**\
+`The cyberdelic extravaganza is online for the first time because of the pandemic. But maybe that’s not as strange as it might seem.`\
+https://nytimes.com/2020/09/03/opinion/virtual-burning-man-2020.html?searchResultPosition=10
 
