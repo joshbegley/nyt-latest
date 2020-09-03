@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/09/02/technology/02reuters-global-race-facebook
 `The large Solomon Islands province of Malaita said it will conduct an independence referendum after rejecting the Pacific nation's decision last year to cut its association with Taiwan and establish formal ties with China.`\
 https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-china-solomonislands-malaita.html?searchResultPosition=7
 
-**Twitter Account of India PM Modi's Personal Website Apparently Hacked**\
-`A Twitter account of Indian Prime Minister Narendra Modi's personal website appeared to be hacked early on Thursday with a series of tweets requesting its followers to donate to a relief fund through cryptocurrency, which was subsequently taken down.`\
+**Twitter Confirms Account of India PM Modi's Personal Website Hacked**\
+`Twitter confirmed on Thursday that an account of Indian Prime Minister Narendra Modi's personal website was hacked with a series of tweets asking its followers to donate to a relief fund through cryptocurrency.`\
 https://nytimes.com/reuters/2020/09/02/world/asia/02reuters-twitter-cyber-india-modi.html?searchResultPosition=8
 
 **Fed's Daly Urges More Government Spending to Boost Economy**\
