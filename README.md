@@ -1,40 +1,40 @@
-**Mexico Has World's Most Health Worker Deaths From Pandemic: Amnesty International**\
+**Trump Threat to Democratic-Led Cities Provokes Outcry**\
+`The White House said President Donald Trump’s latest threat to cut federal dollars for certain big cities is aimed at spurring them to do more to quell violence, but local leaders dismissed it Thursday as a political gimmick and unlikely to stand up in court if implemented.`\
+https://nytimes.com/aponline/2020/09/03/us/politics/ap-us-trump-cities.html?searchResultPosition=1
+
+**U.S. Stock Funds Shed $6.2 Billion Outflow in Last Week: Lipper**\
+`U.S.-based stock funds posted $6.2 billion in outflows in the week to Wednesday, according to Lipper.`\
+https://nytimes.com/reuters/2020/09/03/business/03reuters-usa-investments-mutualfunds.html?searchResultPosition=2
+
+**Brazil's Coronavirus Cases Pass the Four Million Mark: Ministry**\
+`Brazil has recorded more than 4 million confirmed cases of coronavirus, with 43,773 new cases and 834 deaths from the disease caused by the virus reported in the past 24 hours, the health ministry said on Thursday.`\
+https://nytimes.com/reuters/2020/09/03/world/americas/03reuters-health-coronavirus-brazil.html?searchResultPosition=3
+
+**Trump and the Attack of the Invisible Anarchists**\
+`Lurid fantasies about urban hellscapes are all he has left.`\
+https://nytimes.com/2020/09/03/opinion/trump-democrats-cities.html?searchResultPosition=4
+
+**We Are Not Going to Fact-Check Our Way Out of QAnon**\
+`“You don’t have a movement like this without people who’ve lost trust in expertise and authority and institutions.”`\
+https://nytimes.com/2020/09/03/opinion/qanon-facebook-trump.html?searchResultPosition=5
+
+**Balancing Motherhood and Tennis, Pironkova Advances at Open**\
+`Tsvetana Pironkova took a three-year break from tennis to have a son, missed the sport and now is playing every other day.`\
+https://nytimes.com/aponline/2020/09/03/sports/tennis/ap-ten-us-open-notebook.html?searchResultPosition=6
+
+**'Mammoth Central' Found at Mexico Airport Construction Site**\
+`The number of mammoth skeletons recovered at an airport construction site north of Mexico City has risen to at least 200, with a large number still to be excavated, experts said Thursday. `\
+https://nytimes.com/aponline/2020/09/03/world/americas/ap-lt-mexico-too-many-mammoths.html?searchResultPosition=7
+
+**Britney Spears Shows Love for #FreeBritney in Court Filing**\
+`Britney Spears is welcoming public scrutiny of the court conservatorship that has controlled her life and money for 12 years as she seeks to push her father out of power, according to a Thursday court filing. `\
+https://nytimes.com/aponline/2020/09/03/business/bc-us-people-britney-spears.html?searchResultPosition=8
+
+**Mexico Has World's Most Health Worker Deaths From Pandemic, Amnesty International Says**\
 `More health workers have died from the coronavirus in Mexico than any other country on the planet, Amnesty International said on Thursday, highlighting the high toll the pandemic was taking on frontline medical staff around the globe.`\
-https://nytimes.com/reuters/2020/09/03/world/americas/03reuters-health-coronavirus-mexico-amnesty.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/03/world/americas/03reuters-health-coronavirus-mexico-amnesty.html?searchResultPosition=9
 
 **Match Says DOJ Closes Probe Into FTC Complaint**\
 `Match Group Inc said on Thursday the U.S. Department of Justice has closed its investigation relating to a lawsuit filed by the Federal Trade Commission on the dating apps owner's business practices.`\
-https://nytimes.com/reuters/2020/09/03/business/03reuters-match-ftc-subpoena.html?searchResultPosition=2
-
-**U.S. Homeland Security Warns That Russia Is Trying to Undermine Confidence in Mail-In Voting**\
-`The U.S. Department of Homeland Security (DHS) is warning that Russia is trying to undermine Americans' confidence in the security and validity of mail-in voting.`\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-usa-election-russia-ballots.html?searchResultPosition=3
-
-**Mets Honor Seaver With Salute, Jersey and Dirt-Smudged Knee**\
-`Far too young to remember Tom Seaver’s glory days, Pete Alonso and the New York Mets found a perfect way to pay tribute to the greatest player in franchise history.`\
-https://nytimes.com/aponline/2020/09/03/sports/baseball/ap-bbo-seaver-tributes.html?searchResultPosition=4
-
-**AFL-CIO Chief Says Union to File Labor Complaint Under USMCA This Month**\
-`The AFL-CIO is planning to file labor complaints against Mexico this month under the new U.S.-Mexico-Canada trade agreement's labor enforcement mechanism, the U.S. union's president said on Thursday.`\
-https://nytimes.com/reuters/2020/09/03/business/03reuters-usa-trade-usmca-labor.html?searchResultPosition=5
-
-**Trump's U.S. EPA Chief Claims Climate-Change Fight Hurts the Poor**\
-`The head of the Environmental Protection Agency on Thursday accused Democrats of hurting the poor with policies aimed at fighting climate change, and said the agency would keep supporting development and deregulation if President Donald Trump is re-elected.`\
-https://nytimes.com/reuters/2020/09/03/us/03reuters-usa-epa.html?searchResultPosition=6
-
-**Teenagers in The Times: August 2020**\
-`Our roundup of the news stories and features about young people that have recently appeared across sections of NYTimes.com.`\
-https://nytimes.com/2020/09/03/learning/teenagers-in-the-times-august-2020.html?searchResultPosition=7
-
-**What Are ‘Spit Hoods,’ and Why Do the Police Use Them?**\
-`Daniel Prude died in Rochester after officers covered his head with a hood. The devices are widely used, but the N.Y.P.D. does not give them to patrol officers.`\
-https://nytimes.com/2020/09/03/nyregion/spithood-rochester-daniel-prude.html?searchResultPosition=8
-
-**Lakers Brace for Harden, Westbrook and Small-Ball Rockets**\
-`LeBron James and the Los Angeles Lakers pushed aside one of the NBA’s best backcourts in the first round.`\
-https://nytimes.com/aponline/2020/09/03/sports/basketball/ap-bkn-rockets-lakers-preview.html?searchResultPosition=9
-
-**Fed Policymakers Signal Comfort With Higher Inflation**\
-`In the week since the Federal Reserve made a landmark shift in its approach to monetary policy, details are emerging on what it could look like in practice, with two Fed policymakers on Thursday saying they'd be comfortable with leaving interest rates near zero even if inflation rises to levels not seen on a sustained basis in some 30 years.`\
-https://nytimes.com/reuters/2020/09/03/business/03reuters-usa-fed.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/03/business/03reuters-match-ftc-subpoena.html?searchResultPosition=10
 
