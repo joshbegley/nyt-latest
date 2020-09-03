@@ -1,40 +1,40 @@
+**More Than 250 Arrested Since Blake Shooting in Wisconsin**\
+`More than 250 people have been arrested since the police shooting of Jacob Blake in Kenosha, with more than half from outside the county that the southeastern Wisconsin city is in, police reported Thursday.`\
+https://nytimes.com/aponline/2020/09/03/us/ap-us-police-shooting-wisconsin.html?searchResultPosition=1
+
+**Kenin Marches Past Fernandez Into U.S. Open Third Round**\
+`Australian Open champion Sofia Kenin used a mix of power and sharp angles to overwhelm Canadian Leylah Fernandez 6-4 6-3 on Thursday and reach the third round of the U.S. Open.`\
+https://nytimes.com/reuters/2020/09/03/sports/tennis/03reuters-tennis-usopen-kenin.html?searchResultPosition=2
+
+**Stiffing Workers on Wages Grows Worse With Recession**\
+`New research shows that minimum-wage violations spike as low-paid workers become more vulnerable and less inclined to complain.`\
+https://nytimes.com/2020/09/03/business/economy/wage-theft-recession.html?searchResultPosition=3
+
+**Pfizer Expects Vaccine Results by End of October**\
+`Pfizer’s chief executive, Dr. Albert Bourla, said the drug-making company is in a “very advanced stage” and should know by the end of October whether the coronavirus vaccine they are developing is safe and effective.`\
+https://nytimes.com/video/us/politics/100000007323276/pfizer-coronavirus-vaccine-october.html?searchResultPosition=4
+
+**Dr. Seymour Schwartz, Who Wrote the Book on Surgery, Dies at 92**\
+`His name is synonymous with his field: He was a founding editor of “Schwartz’s Principles of Surgery,” a seminal textbook for medical students.`\
+https://nytimes.com/2020/09/03/health/dr-seymour-schwartz-dead.html?searchResultPosition=5
+
+**Attorneys Argue Trump's Exclusion Order for Count Is Illegal**\
+`Any effort to extend the 2020 census beyond the end of September would be costly and burden the agency that runs it, government attorneys said in response to cities and civil rights groups who want another month to ensure that minority communities aren't undercounted. `\
+https://nytimes.com/aponline/2020/09/03/us/ap-us-2020-census.html?searchResultPosition=6
+
+**New York Hedge Fund Founder Charged With Fraud, Extortion Tied to Neiman Marcus Bankruptcy**\
+`The founder of a New York hedge fund was criminally charged on Thursday over an alleged scheme to pressure a rival not to bid for assets related to Neiman Marcus' bankruptcy so he could buy them at a lower price, the U.S. Department of Justice said on Thursday.`\
+https://nytimes.com/reuters/2020/09/03/business/03reuters-usa-crime-kamensky.html?searchResultPosition=7
+
 **White House: No One Pressuring FDA to Approve Coronavirus Vaccine**\
 `White House Spokeswoman Kayleigh McEnany said on Thursday there is no political pressure on the U.`\
-https://nytimes.com/reuters/2020/09/03/us/politics/03reuters-health-coronavirus-vaccine-white-house.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/03/us/politics/03reuters-health-coronavirus-vaccine-white-house.html?searchResultPosition=8
 
 **Libyan Interior Minister Restored to Post After Talks**\
 `Libya's internationally recognised Government of National Accord (GNA) on Thursday restored the interior minister to his post after announcing his suspension last week following protests over living conditions. `\
-https://nytimes.com/reuters/2020/09/03/world/africa/03reuters-libya-security.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/09/03/world/africa/03reuters-libya-security.html?searchResultPosition=9
 
 **Afghan War Casualty Report: September 2020**\
 `At least 45 pro-government forces and 27 civilians have been killed in Afghanistan in the past seven days.`\
-https://nytimes.com/2020/09/03/magazine/afghan-war-casualty-report-september-2020.html?searchResultPosition=3
-
-**The Politics of Fear**\
-`Robert Jay Lifton and Nancy L. Rosenblum discuss the “sheer immorality” of this president. Also: Dermatologists and race.`\
-https://nytimes.com/2020/09/03/opinion/letters/trump-politics.html?searchResultPosition=4
-
-**U.S. CDC Reports 185,092 Deaths From Coronavirus**\
-` The U.S. Centers for Disease Control and Prevention (CDC) on Thursday said the number of deaths due to the new coronavirus had risen by 1,009 to 185,092 and reported 6,087,403 cases, an increase of 39,711 cases from its previous count.`\
-https://nytimes.com/reuters/2020/09/03/us/03reuters-health-coronavirus-usa-cdc.html?searchResultPosition=5
-
-**Highlights: U.S. Open Day Four**\
-`Highlights of the fourth day at the U.S. Open in New York on Thursday. The Grand Slam is being played without spectators due to the COVID-19 pandemic. (Times ET; GMT-4):`\
-https://nytimes.com/reuters/2020/09/03/sports/tennis/03reuters-tennis-usopen-highlights.html?searchResultPosition=6
-
-**France Calls on U.S. to Drop Sanctions Against ICC Staff**\
-`France called on the United States to withdraw sanctions on International Criminal Court prosecutor Fatou Bensouda, French Foreign Minister Jean-Yves Le Drian said on Thursday. `\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-usa-icc-sanctions-france.html?searchResultPosition=7
-
-**U.S. Blacklisting of ICC Prosecutor Must Be Reversed, EU Says**\
-`The European Union's top diplomat called on Thursday for Washington to reverse its sanctions on International Criminal Court prosecutor Fatou Bensouda and another member of the ICC, calling the measures "unacceptable and unprecedented".`\
-https://nytimes.com/reuters/2020/09/03/world/asia/03reuters-usa-icc-sanctions-eu.html?searchResultPosition=8
-
-**Team Sold, Williams Family to Leave F1 After Italian GP**\
-`Claire Williams, Formula One's only female team boss, will step down after Sunday's Italian Grand Prix with founder Frank also leaving following last month's sale to U.S.-based Dorilton Capital.`\
-https://nytimes.com/reuters/2020/09/03/sports/autoracing/03reuters-motor-f1-italy.html?searchResultPosition=9
-
-**German Prosecutors Drop Probe of Journalists Over Wirecard**\
-`German prosecutors said Thursday they have closed an investigation into two journalists with the Financial Times that was launched following reports last year about allegations of irregularities at now-bankrupt payment company Wirecard.`\
-https://nytimes.com/aponline/2020/09/03/business/bc-eu-germany-wirecard.html?searchResultPosition=10
+https://nytimes.com/2020/09/03/magazine/afghan-war-casualty-report-september-2020.html?searchResultPosition=10
 
