@@ -1,5 +1,5 @@
 **A Few Students Threw Parties. Now an Entire SUNY Campus Is Shut Down.**\
-`Nearly 400 State University of New York, Oneonta students tested positive for the coronavirus less than two weeks after classes began.`\
+`Nearly 400 State University of New York, Oneonta, students tested positive for the coronavirus less than two weeks after classes began.`\
 https://nytimes.com/2020/09/03/nyregion/new-york-suny-oneonta-coronavirus.html?searchResultPosition=1
 
 **Mexico Struggles With US Water Debt, Suggests UN Audit**\
