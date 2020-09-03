@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/09/02/world/asia/ap-as-asia-typhoon.html?searc
 https://nytimes.com/reuters/2020/09/02/us/02reuters-health-coronavirus-usa.html?searchResultPosition=3
 
 **Tom Seaver, Pitcher Who Led ‘Miracle Mets’ to Glory, Dies at 75**\
-`A Hall of Famer, Seaver won 311 games for four teams. But Mets fans called him “Tom Terrific” for turning around the club’s fortunes.`\
+`A Hall of Famer, Seaver won 311 games for four different teams. But Mets fans called him Tom Terrific for turning around the club’s fortunes.`\
 https://nytimes.com/2020/09/02/obituaries/tom-seaver-dead.html?searchResultPosition=4
 
 **Top Fed Staffer, Whose Research Helped Guide Policy in Recent Years, Dies**\
