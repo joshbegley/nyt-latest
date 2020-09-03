@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/09/03/business/03reuters-usa-election-economy-d
 https://nytimes.com/aponline/2020/09/03/business/ap-us-hyundai-kia-recalls.html?searchResultPosition=6
 
 **Chemical Weapons Agency: Use of Nerve Agent Is Considered Use of Chemical Weapons**\
-`The poisoning of any individual with a toxic nerve agent would be considered use of a banned chemical weapon, the global chemical weapons agency OPCW said on Thursday in a statement about Russian opposition leader Alexei Navalny.`\
+`The poisoning of any individual with a toxic nerve agent is considered use of a banned chemical weapon, the global chemical weapons agency OPCW said on Thursday, in a statement about Russian opposition leader Alexei Navalny.`\
 https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-russia-politics-navalny-chmicalweapons.html?searchResultPosition=7
 
 **Bodies of 5 Children Found at Apartment in Germany**\
