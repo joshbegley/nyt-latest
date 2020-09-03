@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/09/03/sports/tennis/03reuters-tennis-usopen-ord
 `Alabama's governor announced plans Thursday to move forward with state leasing of three privately built mega prisons that would begin construction next year, in what she described as a step toward overhauling an understaffed and violence-plagued prison system beset by years of federal criticism. `\
 https://nytimes.com/aponline/2020/09/03/us/ap-us-alabama-prisons-.html?searchResultPosition=2
 
-**Irving Kanarek Lawyer Who Defended Charles Manson, Dies at 100**\
+**Irving Kanarek, Lawyer Who Defended Charles Manson, Dies at 100**\
 `The national spotlight that focused on Mr. Kanarek made his disruptive circus of courtroom tactics almost as fascinating as his bizarre clients.`\
 https://nytimes.com/2020/09/03/us/irving-kanarek-dead.html?searchResultPosition=3
 
