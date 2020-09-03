@@ -1,4 +1,4 @@
-**Covid-19 Live Updates: The C.D.C. Is Preparing 2 Vaccines. Here’s What You Need to Know.**\
+**Covid-19 Live Updates: What We Know About the C.D.C.’s Vaccine Plans**\
 `U.S. colleges are cracking down on parties as campus infections rise. South Korea’s much vaunted strategy for battling the virus is under pressure as a second wave of cases sweeps the country.`\
 https://nytimes.com/2020/09/03/world/covid-19-coronavirus.html?searchResultPosition=1
 
