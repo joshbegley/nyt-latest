@@ -1,40 +1,40 @@
+**Montenegro President Accepts His Party Lost Election**\
+`Montenegro's president, Milo Djukanovic, says his pro-Western party is ready to go into opposition after three decades in power if three political alliances can form a coalition following their success in a parliamentary election.`\
+https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-montenegro-election.html?searchResultPosition=1
+
+**Internet Giants Could Be Fined Up to $12 Million Under Austrian Hate Speech Law**\
+`Austria plans to oblige large internet platforms like Facebook and Google to delete illegal content within days and impose fines of up to 10 million euros ($12 million) in case of non-compliance, the government said on Thursday.`\
+https://nytimes.com/reuters/2020/09/03/technology/03reuters-austria-hatecrime.html?searchResultPosition=2
+
+**Michael Bloomberg to Give $100 Million to Black Medical Schools**\
+`The billionaire’s gift is meant to ease students’ debts and free them to serve in needy communities.`\
+https://nytimes.com/2020/09/03/business/dealbook/bloomberg-black-medical-schools-donation.html?searchResultPosition=3
+
+**Campbell Soup Forecasts Up to 7% Sales Growth on Pandemic Boost**\
+`Campbell Soup Co forecast current-quarter sales largely above market estimates after posting better-than-expected quarterly results on Thursday, boosted by higher demand for its Prego pasta sauces and Goldfish crackers.`\
+https://nytimes.com/reuters/2020/09/03/business/03reuters-campbell-soup-results.html?searchResultPosition=4
+
+**Akebia Therapeutics' Anemia Treatment Fails to Meet Safety Goal in Late-Stage Study**\
+`Akebia Therapeutics Inc said on Thursday its experimental drug to treat anemia in patients with chronic kidney disease failed to meet the main goal on safety in a late-stage trial.`\
+https://nytimes.com/reuters/2020/09/03/us/03reuters-akebia-study.html?searchResultPosition=5
+
+**Costa Coffee's Rejig Plan to Put 1,650 Roles at Risk**\
+`Costa Coffee, a unit of Coca-Cola Co, said on Thursday a plan to streamline its UK in-store structure in response to the coronavirus pandemic will put nearly 1,650 jobs at risk.`\
+https://nytimes.com/reuters/2020/09/03/business/03reuters-costa-coffee-layofs.html?searchResultPosition=6
+
+**1 Missing, 1 Injured in Fire on Oil Tanker Near Sri Lanka**\
+`A fire broke out on an oil tanker off the eastern coast of Sri Lanka on Thursday, leaving one of its 23 crew members missing and another injured, a navy spokesman said.`\
+https://nytimes.com/aponline/2020/09/03/world/asia/ap-as-sri-lanka-ship-fire.html?searchResultPosition=7
+
+**Pressure Grows for Germany to Rethink Pipeline With Russia**\
+`German Chancellor Angela Merkel faced pressure on Thursday to use a joint German-Russian pipeline project as leverage in getting Russia to provide answers about the poisoning of the Kremlin's most determined critic. `\
+https://nytimes.com/aponline/2020/09/03/business/ap-eu-germany-russia-navalny.html?searchResultPosition=8
+
+**Slovak Businessman Found Not Guilty of Ordering Murder of Investigative Journalist**\
+`A Slovak court on Thursday found a politically connected businessman not guilty of charges that he ordered the murder of investigative journalist Jan Kuciak, a case that shook the nation and brought down longtime premier Robert Fico.`\
+https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-slovakia-crime.html?searchResultPosition=9
+
 **UK's Johnson Met Trump Advisor Kushner, Discussed Middle East: PM's Office**\
 `British Prime Minister Boris Johnson met U.S. President Donald Trump's senior advisor Jared Kushner in London on Thursday and discussed the Middle East peace process after dropping in on Kushner's meeting with foreign minister Dominic Raab.`\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-britain-usa.html?searchResultPosition=1
-
-**German Minister: Sanctions on Russia Over Navalny Depend on Moscow Reaction-Paper**\
-`German Finance Minister Olaf Scholz said decisions on any sanctions against Russia in relation to the poisoning of Kremlin critic Alexei Navalny depends on Moscow's reaction, the Neue Osnabruecker Zeitung newspaper reported on Thursday. `\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-russia-politics-navalny-germany-scholz.html?searchResultPosition=2
-
-**UN Chief Urges Japan, Others to Meet Goals on Climate Change**\
-`The United Nations chief urged Japan and other wealthy nations on Thursday to give up their reliance on coal and other fossil fuels and commit to investments in green energy as they recover from the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/09/03/business/ap-un-climate-change.html?searchResultPosition=3
-
-**Investors Snap Up Corporate Debt, Pushing Some Real Yields Below Zero**\
-`More U.S. corporate bonds are paying negative inflation-adjusted yields, as expectations that interest rates will stay near historic lows send investors seeking higher payouts in riskier assets.`\
-https://nytimes.com/reuters/2020/09/03/business/03reuters-usa-bonds-corporate.html?searchResultPosition=4
-
-**Thailand Reports First Domestic Coronavirus Case in 100 Days**\
-`Thailand on Thursday reported its first local coronavirus transmission in more than 100 days, officials said, after a man who was recently imprisoned failed a routine test at a Bangkok jail.  `\
-https://nytimes.com/reuters/2020/09/03/world/asia/03reuters-health-coronavirus-thailand.html?searchResultPosition=5
-
-**The Joy of Just Good Enough Theater**\
-`Most plays aren’t masterpieces. As audiences emerge from lockdown and return to normal, there’s comfort in seeing a show that may not be great, but isn’t bad, either.`\
-https://nytimes.com/2020/09/03/theater/un-ete-particulier-paris.html?searchResultPosition=6
-
-**BOJ May Have Bigger Role to Play in Helping Firms Hit by COVID-19: Suga Ally**\
-`The Bank of Japan may have a bigger role to play in helping firms suffering from the hit by the coronavirus pandemic, said a  former economy minister with close ties to Yoshihide Suga - the front-runner to become next prime minister.`\
-https://nytimes.com/reuters/2020/09/03/world/asia/03reuters-japan-politics-economy-takenaka.html?searchResultPosition=7
-
-**Jamaicans Head to Polls Amid Coronavirus Resurgence**\
-`Jamaica's ruling party looks set to retain power by a strong margin in a general election on Thursday thanks to its steady stewardship of the economy and despite a recent resurgence of the country's coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/09/03/world/americas/03reuters-jamaica-elections.html?searchResultPosition=8
-
-**Mideast's Confirmed Coronavirus Death Toll Goes Over 50,000**\
-`The confirmed death toll from the coronavirus went over 50,000 in the Middle East on Thursday as the pandemic continues. `\
-https://nytimes.com/aponline/2020/09/03/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=9
-
-**Belarus Leader Reshuffles Lieutenants to Tighten Control**\
-`Belarus' authoritarian leader on Thursday reshuffled his top lieutenants in an apparent attempt to strengthen his rule amid weeks of protests pushing for his resignation.`\
-https://nytimes.com/aponline/2020/09/03/world/europe/ap-eu-belarus-protests.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-britain-usa.html?searchResultPosition=10
 
