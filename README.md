@@ -22,13 +22,13 @@ https://nytimes.com/reuters/2020/09/03/sports/tennis/03reuters-tennis-usopen-pir
 `Stocks that moved heavily or traded substantially Thursday:`\
 https://nytimes.com/aponline/2020/09/03/business/ap-financial-markets-stocks.html?searchResultPosition=6
 
+**Broadcom Sees Quarterly Revenue Above Estimates as 5G Phone Rollouts Loom**\
+`Broadcom Inc forecast current-quarter revenue above Wall Street estimates on Thursday, encouraged by the upcoming 5G phone launches and strong demand for its data-center chips from the growing remote work market.`\
+https://nytimes.com/reuters/2020/09/03/business/03reuters-broadcom-results.html?searchResultPosition=7
+
 **For First Time, a Woman to Head Canada's Space Agency**\
 `For the first time in its 31-year history, the Canadian Space Agency will have a female president.`\
-https://nytimes.com/aponline/2020/09/03/world/ap-cn-canada-space-agency.html?searchResultPosition=7
-
-**Broadcom Forecasts Current-Quarter Revenue Above Estimates**\
-`Broadcom Inc forecast current-quarter revenue above Wall Street estimates on Thursday, encouraged by strong demand for its data center chips from the growing remote work market and the upcoming 5G phone launches. `\
-https://nytimes.com/reuters/2020/09/03/business/03reuters-broadcom-results.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/09/03/world/ap-cn-canada-space-agency.html?searchResultPosition=8
 
 **Art Museum Accused of Racism Names 1st Director of Inclusion**\
 `Boston's Museum of Fine Arts, one of the most prestigious art institutions in the world, has appointed its first director of belonging and inclusion — the latest in a series of efforts to make amends for allegations of racism.`\
