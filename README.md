@@ -1,40 +1,40 @@
+**England Makes No Changes to COVID-19 Quarantine Countries**\
+`No changes were made to the list of countries on England's quarantine list on Thursday, British Transport Secretary Grant Shapps said.`\
+https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-health-coronavirus-britain-travel.html?searchResultPosition=1
+
+**Finding the Heart of Zinfandel**\
+`Debating authenticity in wine is often pointless, especially with New World wines. That leaves more options for producers, who are free to surprise.`\
+https://nytimes.com/2020/09/03/dining/drinks/wine-school-zinfandel.html?searchResultPosition=2
+
+**A Study in the Subtleties of Northern Rhône Terroirs**\
+`What does a comparison of three bottles from different appellations reveal? Conclusive proof of the power of place is hard to determine.`\
+https://nytimes.com/2020/09/03/dining/drinks/wine-school-assignment-northern-rhone-reds.html?searchResultPosition=3
+
+**Turkey's Erdogan, Germany's Merkel Discuss East Mediterranean**\
+`Turkish President Tayyip Erdogan told German Chancellor Angela Merkel on Thursday that support given by some countries for Greece's "selfish and unjust stance" in the eastern Mediterranean was unacceptable, Erdogan's office said.`\
+https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-turkey-greece-germany.html?searchResultPosition=4
+
+**Apple Might Delay iOS Change Vexing Mobile Ad Market: The Information**\
+`Apple Inc plans to delay updates to its next mobile operating system that would change how ads are targeted on iPhones and iPads, technology news website The Information reported on Thursday, citing people familiar with the matter.`\
+https://nytimes.com/reuters/2020/09/03/business/03reuters-apple-advertising.html?searchResultPosition=5
+
+**Wall Street Stocks Slide as Brakes Slammed on Tech Rally**\
+`The main U.S. stock indexes tumbled on Thursday, arrested by a backpedaling tech sector that had led an epic recovery from pandemic lows, while Wall Street's "fear gauge" soared and investors bought safe-haven Treasuries, pushing yields down. `\
+https://nytimes.com/reuters/2020/09/03/business/03reuters-usa-stocks-instant.html?searchResultPosition=6
+
 **Ryanair Targets 400 Million Euros in Share Placement**\
-`Ryanair launched on Thursday a share placement, aiming to raise 400 million euros ($473 million) to help it take advantage of lower costs following the COVID-19 pandemic to expand its fleet and other initiatives.`\
-https://nytimes.com/reuters/2020/09/03/business/03reuters-ryanair-placement.html?searchResultPosition=1
+`Ryanair launched a share placement on Thursday, aiming to raise 400 million euros ($473 million) to help it take advantage of lower costs following the COVID-19 pandemic to expand its fleet and other initiatives.`\
+https://nytimes.com/reuters/2020/09/03/business/03reuters-ryanair-placement.html?searchResultPosition=7
 
 **A New $300 Federal Jobless Benefit? Not Likely for Some**\
 `Down to a weekly unemployment check of $96, Fakisha Fenderson brushed aside her doctor's advice last month and began looking for a job. `\
-https://nytimes.com/aponline/2020/09/03/business/ap-us-jobless-aid-falling-through-the-cracks.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/09/03/business/ap-us-jobless-aid-falling-through-the-cracks.html?searchResultPosition=8
 
 **Embracing Sexual Identity, These Graphic Novels Burst With Life**\
 `In her Graphic Content column, Hillary Chute looks at a reissue of Howard Cruse’s classic “Stuck Rubber Baby” and a new set of tarot cards for the future.`\
-https://nytimes.com/2020/09/03/books/review/howard-cruse-stuck-rubber-baby-spellbound-bishakh-sim.html?searchResultPosition=3
+https://nytimes.com/2020/09/03/books/review/howard-cruse-stuck-rubber-baby-spellbound-bishakh-sim.html?searchResultPosition=9
 
 **UK's Raab Discusses Middle East With Trump Adviser Kushner**\
 `Foreign minister Dominic Raab discussed the Middle East peace process on Thursday with Jared Kushner, U.S. President Donald Trump's senior adviser, a British statement said.`\
-https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-britain-usa-raab.html?searchResultPosition=4
-
-**How a Praying Mantis Says ‘Boo!’**\
-`A study of startle displays hints at why provoked creatures have such a wide range of reactions.`\
-https://nytimes.com/2020/09/03/science/praying-mantis-startle.html?searchResultPosition=5
-
-**Tesla Retreats for Third Day as Investors Cash In on Gains**\
-`Tesla Inc shares fell for a third straight day on Thursday, as investors who have been betting on the electric-car maker's growth prospects cashed in on the meteoric rally in the stock price this year.   `\
-https://nytimes.com/reuters/2020/09/03/business/03reuters-tesla-stocks.html?searchResultPosition=6
-
-**Johnson and Rahm Set for Battle in Playoff Finale**\
-`The PGA Tour wraps up a season unlike any other with this week's Tour Championship in Atlanta where the winner from an elite 30-player field will be crowned FedExCup champion and take home an eye-popping $15 million.`\
-https://nytimes.com/reuters/2020/09/03/sports/golf/03reuters-golf-tourchamp.html?searchResultPosition=7
-
-**English Premier League Terminates China TV Agreement Amid Dispute**\
-`The world’s most-watched sports league said it had canceled its biggest overseas broadcast deal, worth over $700 million. It was already facing heavy costs from coronavirus disruption.`\
-https://nytimes.com/2020/09/03/sports/soccer/premier-league-china-contract-television.html?searchResultPosition=8
-
-**Bolivian Families Turn to Makeshift Graves as Cemeteries Fill During Pandemic**\
-`Desperate families in Bolivia are turning to makeshift graves to bury their loved ones, with cemetery space at a premium as the coronavirus pandemic keeps the South American nation in its grip.`\
-https://nytimes.com/reuters/2020/09/03/world/americas/03reuters-health-coronavirus-bolivia-deaths.html?searchResultPosition=9
-
-**Pakistani Officials: Roadside Bomb Hits Army, Kills 3 Troops**\
-`A powerful roadside bomb targeted a military vehicle in northwestern Pakistan, a former Taliban stronghold, killing three soldiers, officials said. The Pakistani Taliban claimed responsibility for the attack, which is raising fears the militants are regrouping in the region. `\
-https://nytimes.com/aponline/2020/09/03/world/asia/ap-as-pakistan-bombing.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-britain-usa-raab.html?searchResultPosition=10
 
