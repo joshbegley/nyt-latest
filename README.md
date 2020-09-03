@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/09/02/sports/hockey/ap-hkn-avalanche-stars.htm
 https://nytimes.com/reuters/2020/09/02/world/europe/02reuters-health-coronavirus-germany-cases.html?searchResultPosition=5
 
 **Duvall Follows Ozuna With 3 HRs; Braves Complete Sweep**\
-`Adam Duvall hit three home runs a night after teammate Marcell Ozuna become the first NL player ever to hit three homers in Fenway Park, and the East-leading Atlanta Braves beat the stumbling Boston Red Sox 7-5 Wednesday night to complete a three-game sweep. `\
+`Adam Duvall hit three home runs a night after teammate Marcell Ozuna did it, making them the first teammates in major league history to perform the feat in consecutive games as the NL East-leading Atlanta Braves beat the stumbling Boston Red Sox 7-5 Wednesday night for a three-game sweep. `\
 https://nytimes.com/aponline/2020/09/02/sports/baseball/bc-bbo-braves-red-sox.html?searchResultPosition=6
 
 **Brantley Homers Early, Astros Hold On for 2-1 Win Over Texas**\
