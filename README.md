@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/09/03/world/asia/03reuters-japan-politics-econo
 https://nytimes.com/reuters/2020/09/03/world/americas/03reuters-jamaica-elections.html?searchResultPosition=8
 
 **Mideast's Confirmed Coronavirus Death Toll Goes Over 50,000**\
-`The confirmed death toll from the coronavirus has gone over 50,000 in the Middle East as the pandemic continues. `\
+`The confirmed death toll from the coronavirus went over 50,000 in the Middle East on Thursday as the pandemic continues. `\
 https://nytimes.com/aponline/2020/09/03/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=9
 
 **Belarus Leader Reshuffles Lieutenants to Tighten Control**\
