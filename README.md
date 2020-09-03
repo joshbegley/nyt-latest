@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/09/03/world/middleeast/ap-ml-virus-outbreak-mi
 https://nytimes.com/aponline/2020/09/03/world/europe/ap-eu-belarus-protests.html?searchResultPosition=2
 
 **Thailand Reports 1st Local Coronavirus Case in 100 Days**\
-`Health officials in Thailand say a prison inmate has tested positive for the coronavirus in the country’s first confirmed locally transmitted case in 100 days.`\
+`Health officials in Thailand say a prison inmate has tested positive for the coronavirus in the country’s first confirmed locally transmitted case in 100 days. `\
 https://nytimes.com/aponline/2020/09/03/world/asia/ap-as-virus-outbreak-thailand.html?searchResultPosition=3
 
 **Portland Police Make Arrests After Protest Turns Violent**\
@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/09/03/business/ap-us-facebook-us-election-1st-
 https://nytimes.com/reuters/2020/09/03/us/03reuters-health-coronavirus-canada-education.html?searchResultPosition=6
 
 **No-Trade Deal Brexit? JPMorgan Says About One Third Chance**\
-`U.S. bank JPMorgan said on Thursday that there was about a one third chance of a no-trade deal Brexit at year end when the transition period finishes.`\
+`JPMorgan said there was about a one third chance of a no-trade deal Brexit at the year end but that brinkmanship between Britain and the European Union over coming months would make it appear a much greater risk. `\
 https://nytimes.com/reuters/2020/09/03/business/03reuters-britain-eu-jpmorgan.html?searchResultPosition=7
 
 **EU Unveils Plan to Secure Raw Materials, Cut Dependency**\
