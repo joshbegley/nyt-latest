@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/09/04/business/ap-eu-britain-high-speed-rail.h
 https://nytimes.com/reuters/2020/09/04/business/04reuters-usa-economy-instant-view.html?searchResultPosition=9
 
 **Students, IT Workers Keep Pressure on Defiant Belarus Leader**\
-`Hundreds of demonstrators rallied again in Belarus' capital Friday to protest the disputed reelection of the nation's authoritarian president, while police dispersed university students attempting to show solidarity with peers who were detained earlier in the week. `\
+`Hundreds of demonstrators rallied again in Belarus' capital Friday to protest the disputed reelection of the nation's authoritarian president, while police dispersed university students attempting to show solidarity with peers who were detained earlier in the week.`\
 https://nytimes.com/aponline/2020/09/04/world/europe/ap-eu-belarus-protests.html?searchResultPosition=10
 
