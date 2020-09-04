@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/09/04/us/ap-us-buttigieg-police-shooting.html?
 `U.S. Rep. Debbie Wasserman Schultz said she was denied access to two U.S. Postal Service facilities in South Florida on Friday morning following evidence of delivery delays and other problems.`\
 https://nytimes.com/aponline/2020/09/04/us/ap-us-election-2020-postal-service-visit.html?searchResultPosition=2
 
-**Athletics: Farah Breaks World Record for One Hour Run**\
-`Britain's Mo Farah broke the world record for a one-hour run by completing a distance of 21,330 metres at the Brussels Diamond League athletics meeting on Friday.`\
+**Athletics: Farah Returns to Track in Style by Breaking One-Hour Record**\
+`Britain's multiple world and Olympic champion Mo Farah ended a three-year absence from the track in style on Friday when he broke the world record for the one hour run at the Brussels Diamond League athletics meeting.`\
 https://nytimes.com/reuters/2020/09/04/sports/04reuters-athletics-diamond-brussels-farah.html?searchResultPosition=3
 
 **Georgia Candidate's Post Removed for Inciting Violence**\
