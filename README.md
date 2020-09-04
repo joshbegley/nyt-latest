@@ -19,7 +19,7 @@ https://nytimes.com/2020/09/04/movies/chadwick-boseman-adrian-matejka.html?searc
 https://nytimes.com/reuters/2020/09/04/technology/04reuters-china-economy-trade.html?searchResultPosition=5
 
 **Pence Says Deal Has Been Reached to Fund Government Past Month's End**\
-`U.S. Vice President Mike Pence said on Friday the Trump administration has reached a deal with lawmakers on Capitol Hill to ensure the government is funded past the month's end, taking the threat of a government shutdown off the table.`\
+`Republican Vice President Mike Pence said on Friday the Trump administration has reached a deal with lawmakers on Capitol Hill to ensure the U.S. government is funded past the month's end, taking the threat of a near-term government shutdown off the table.`\
 https://nytimes.com/reuters/2020/09/04/us/politics/04reuters-usa-fiscal-shutdown.html?searchResultPosition=6
 
 **Iranian Judge in Romania Committed Suicide, Prosecutors Say**\
