@@ -1,40 +1,40 @@
-**Factbox: Fully Loaded Supertanker Catches Fire Off Sri Lanka**\
-`A fire broke out on a Panama-flagged supertanker carrying about 2 million barrels of oil in the Indian Ocean off the east coast of Sri Lanka. One of its 23 crew is missing and presumed dead.`\
-https://nytimes.com/reuters/2020/09/04/world/asia/04reuters-india-tanker-blast-factbox.html?searchResultPosition=1
+**N.Y.C. Cut 40,000 Youth Jobs When They Were Needed Most**\
+`“I wasn’t doing this for video games,” said one participant in the Summer Youth Employment Program, whose budget was slashed because of the pandemic. For those who didn’t get a slot, it was yet another letdown in an uncertain year.`\
+https://nytimes.com/2020/09/04/nyregion/nyc-youth-summer-jobs-program.html?searchResultPosition=1
 
-**China May Dump U.S. Treasuries as Sino-U.S. Tensions Flare: Global Times**\
-`China may gradually cut its holdings of U.S. Treasury bonds and notes, in light of rising tensions between Beijing and Washington, state-backed newspaper Global Times cited experts as saying.`\
-https://nytimes.com/reuters/2020/09/04/business/04reuters-china-economy-treasury.html?searchResultPosition=2
+**To Many Travelers, 2020 Was the Summer of 1965**\
+`Driving over flying. Domestic destinations. Though the conditions and causes were different, certain midcentury travel preferences experienced a revival this year.`\
+https://nytimes.com/2020/09/04/travel/to-many-travelers-2020-was-the-summer-of-1965.html?searchResultPosition=2
 
-**Italy's Berlusconi Has Early Stage Double Pneumonia: ANSA**\
-`Former Italian Prime Minister Silvio Berlusconi, in hospital after testing positive for coronavirus, has been diagnosed with the early stages of double pneumonia, ANSA news agency reported on Friday. `\
-https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-health-coronavirus-berlusconi-pneumonia.html?searchResultPosition=3
+**A Secret Diary Chronicled the ‘Satanic World’ That Was Dachau**\
+`For two years, a prisoner in the German concentration camp kept a journal that would later be used to convict those who had persecuted him and killed his fellow prisoners.`\
+https://nytimes.com/2020/09/04/magazine/-secret-diarist-dachau.html?searchResultPosition=3
 
-**Indonesia Sees Over 3,000 New Virus Cases for Third Successive Day**\
-`Indonesia reported 3,269 new coronavirus infections on Friday, bringing the overall tally to 187,537, according to data from the country's health ministry.`\
-https://nytimes.com/reuters/2020/09/04/world/asia/04reuters-health-coronavirus-indonesia.html?searchResultPosition=4
+**They’re Stuck at Home, So They’re Making Home a Sanctuary**\
+`With few places to go or reasons to spend, those lucky enough to be employed remotely are upgrading their surroundings. The impulse comes with guilt.`\
+https://nytimes.com/2020/09/04/business/coronavirus-home-upgrades.html?searchResultPosition=4
 
-**UK Construction Recovery Slows Unexpectedly in August: PMI**\
-`The momentum behind the recovery of Britain's construction industry faded unexpectedly in August, according to a survey on Friday that pointed to another sharp drop in employment.`\
-https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-britain-economy-pmi.html?searchResultPosition=5
+**The 22-Year-Old Coordinating Protests in Belarus, From a Small Office in Poland**\
+`Stepan Svetlov hasn’t set foot in Belarus for two years. But his social media profile is now a lodestar for demonstrators back home.`\
+https://nytimes.com/2020/09/04/world/europe/belarus-blogger-poland-svetlov.html?searchResultPosition=5
 
-**Thailand Races to Contact Trace as Coronavirus Reappears**\
-`Thailand is racing ahead with contact tracing after detecting its first domestic coronavirus infection in over three months, health officials said on Friday, with tests conducted on nearly 200 people with possible exposure to the new case. `\
-https://nytimes.com/reuters/2020/09/04/world/asia/04reuters-health-coronavirus-thailand.html?searchResultPosition=6
+**The Latest: Table Tennis Events to Return in November**\
+`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
+https://nytimes.com/aponline/2020/09/04/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=6
 
-**Freight Haulers Demand Action on Brexit Preparations**\
-`British freight haulers and storage companies are asking for an urgent meeting with government leaders because of concern that gaps in preparations for Brexit may threaten supplies of critical goods.`\
-https://nytimes.com/aponline/2020/09/04/business/ap-eu-britain-brexit.html?searchResultPosition=7
+**MLB Roundup: Alonso's Homer Lifts Mets Past Yanks**\
+`J.D. Davis hit the game-tying homer with one out in the ninth inning, and Pete Alonso hit a two-run homer leading off the 10th as the New York Mets rallied for a 9-7 victory over the visiting New York Yankees on Thursday in a makeup game at Citi Field.`\
+https://nytimes.com/reuters/2020/09/04/sports/04reuters-baseball-mlb-roundup.html?searchResultPosition=7
 
-**Chinese Teenager Yin Wins Third Straight Title After Turning Pro**\
-`Shanghai teenager Yin Ruoning won her third successive tournament at the start of her professional career with a one-stroke victory at the China LPGA's Mitsubishi Heavy Industries Orient Masters on Friday. `\
-https://nytimes.com/reuters/2020/09/04/sports/golf/04reuters-golf-china.html?searchResultPosition=8
+**Here Are 20 Shows to Watch This Fall**\
+`Thanks to the coronavirus shutdown, the networks’ fall schedules are packed with reality competitions and recycled shows. But there are still as many intriguing offerings as ever this season.`\
+https://nytimes.com/2020/09/04/arts/television/what-to-watch-tv-shows.html?searchResultPosition=8
 
-**Philippines Confirms 3,714 New Coronavirus Cases, 49 More Deaths**\
-`The Philippine health ministry on Friday reported 3,714 novel coronavirus infections and 49 additional deaths.`\
-https://nytimes.com/reuters/2020/09/04/world/asia/04reuters-health-coronavirus-philippines-cases.html?searchResultPosition=9
+**Instagram Is Coming for Your Sock Drawer**\
+`The Home Edit won over Khloé Kardashian and Gwyneth Paltrow with a particular style of home organization. Now a new Netflix show will showcase its high aspirations and “low bar” ethos.`\
+https://nytimes.com/2020/09/04/magazine/instagram-is-coming-for-your-sock-drawer.html?searchResultPosition=9
 
-**Just Eat Takeaway COO Sees GrubHub as Well Positioned**\
-`European food-ordering firm Just Eat Takeaway.com NV thinks GrubHub is better positioned than rivals to prosper in the United States even though it has been pushed into third place, its operating chief told Reuters.`\
-https://nytimes.com/reuters/2020/09/04/business/04reuters-just-eat-takeawa-grubhub.html?searchResultPosition=10
+**Exclusive: Taking Power-Chinese Firm to Run Laos Electric Grid Amid Default Warnings**\
+`The poor, small Southeast Asian country of Laos is set to cede majority control of its electric grid to a Chinese company, as it struggles to stave off a potential debt default, people with direct knowledge of the agreement said.`\
+https://nytimes.com/reuters/2020/09/04/business/04reuters-china-laos-exclusive.html?searchResultPosition=10
 
