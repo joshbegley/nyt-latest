@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/09/04/world/asia/04reuters-health-coronavirus-s
 `ByteDance, the owner of popular short-video app TikTok, said it has acquired a Chinese third-party payment service UIPay in a bid to leverage its domestic payment capability.`\
 https://nytimes.com/reuters/2020/09/04/business/04reuters-china-bytedance-fintech.html?searchResultPosition=2
 
-**UK Sees Just 30-40% Chance of Brexit Trade Deal: The Times**\
-`Senior officials in British Prime Minister Boris Johnson's office see only a 30-40% chance that there will be an Brexit trade agreement with the European Union due to an impasse over state aid rules, The Times reported.`\
+**UK Sees Just 30%-40% Chance of Brexit Trade Deal: The Times**\
+`Senior officials in British Prime Minister Boris Johnson's office see only a 30%-40% chance that there will be a Brexit trade agreement with the European Union due to an impasse over state aid rules, The Times reported.`\
 https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-britain-eu-fish.html?searchResultPosition=3
 
 **China's August Exports Seen Keeping Solid Momentum; Imports Flat: Reuters Poll**\
