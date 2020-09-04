@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/09/03/world/asia/03reuters-health-coronavirus-n
 https://nytimes.com/reuters/2020/09/03/world/asia/03reuters-japan-politics.html?searchResultPosition=4
 
 **‘They Killed A Son:’ Family of Black Man Killed in Police Custody Speaks Out**\
-`Seven police officers were suspended and protests broke out in Rochester, N.Y., over the death of Daniel Prude from suffocation after officers put a hood over his head during a mental health call in March.`\
+`Seven police officers were suspended and there were protests in Rochester, N.Y., over the death of Daniel Prude, who suffocated after officers put a hood over his head during a mental health call in March.`\
 https://nytimes.com/video/us/politics/100000007323016/daniel-prude-rochester-police-killing-video.html?searchResultPosition=5
 
 **U.S. Justice Department's Google Lawsuit Expected in Weeks Ahead: Sources**\
