@@ -1,4 +1,4 @@
-**Mental Health as Crime**\
+**Mental Illness as a Crime**\
 `And what else you need to know today.`\
 https://nytimes.com/2020/09/04/briefing/trump-portland-facebook-your-friday-briefing.html?searchResultPosition=1
 
