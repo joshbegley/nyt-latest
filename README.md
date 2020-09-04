@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/09/03/sports/tennis/03reuters-tennis-usopen-med
 https://nytimes.com/reuters/2020/09/03/world/americas/03reuters-mexico-violence-missing.html?searchResultPosition=2
 
 **U.N. Experts Decry Hong Kong Security Law in Letter to China**\
-`U.N. human rights experts have told China the new security law for Hong Kong "infringes on certain fundamental rights" and voiced concerns that it could be used to prosecute political activists in the former British colony.`\
+`U.N. human rights experts have told China a new security law for Hong Kong "infringes on certain fundamental rights" and voiced concerns that it could be used to prosecute political activists in the former British colony.`\
 https://nytimes.com/reuters/2020/09/03/world/europe/03reuters-hongkong-security-un.html?searchResultPosition=3
 
 **University Investigates Claim That White Professor Pretended to Be Black**\
