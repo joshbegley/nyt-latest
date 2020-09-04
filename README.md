@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/09/04/business/04reuters-usa-stocks.html?search
 `Construction formally begins Friday on Britain's 106 billion-pound ($140 billion) high-speed railway project, aiming to forge better connections between cities for decades to come.`\
 https://nytimes.com/aponline/2020/09/04/business/ap-eu-britain-high-speed-rail.html?searchResultPosition=8
 
-**U.S. Job Creation Slowed in August, While Jobless Rate Drops Below 10%**\
+**US Job Creation Slowed in Aug, While Jobless Rate Drops Below 10%**\
 `U.S. job growth slowed further in August as financial assistance from the government ran out, threatening the economy's recovery from the COVID-19 recession.`\
 https://nytimes.com/reuters/2020/09/04/business/04reuters-usa-economy-instant-view.html?searchResultPosition=9
 
