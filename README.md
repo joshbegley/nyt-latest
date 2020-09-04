@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/09/04/business/04reuters-health-coronavirus-inv
 `A look at the records of Canada's Denis Shapovalov and American Taylor Fritz before their third-round match at the U.S. Open on Friday:`\
 https://nytimes.com/reuters/2020/09/04/sports/tennis/04reuters-tennis-usopen-shapovalov-factbox.html?searchResultPosition=8
 
-**Engie Chairman Says Veolia Bid for Its Suez Stake Not High Enough**\
-`French water and waste management company Veolia's bid for a stake in rival Suez held by utility Engie at 15.50 euros a share is not high enough, Engie Chairman Jean-Pierre Clamadieu said on Friday. `\
+**France's Engie Says Veolia's Bid for Suez Stake Too Low**\
+`French water and waste management company Veolia's offer for Engie's's stake in rival Suez is too low, Engie's chairman said on Friday, cranking up the pressure on the bidder. `\
 https://nytimes.com/reuters/2020/09/04/business/04reuters-suez-m-a-veolia-engie.html?searchResultPosition=9
 
 **Rescue Workers in Beirut Hope to Find Survivor in Rubble**\
