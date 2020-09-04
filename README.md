@@ -14,8 +14,8 @@ https://nytimes.com/2020/09/03/us/Danny-Buckley-shooting-jace-Boyd.html?searchRe
 `Ivan Provorov scored at 15:03 of the second overtime and the Philadelphia Flyers beat the New York Islanders 5-4 on Thursday night to force a deciding Game 7.`\
 https://nytimes.com/aponline/2020/09/03/sports/hockey/ap-hkn-flyers-islanders.html?searchResultPosition=4
 
-**Suspect in Fatal Portland Shooting Is Reported Killed as Officers Move In**\
-`Michael Forest Reinoehl, an antifa supporter, died when law enforcement went to arrest him. He was being investigated in the fatal shooting of a member of the far-right group Patriot Prayer.`\
+**Suspect in Fatal Portland Shooting Is Killed by Officers During Arrest**\
+`Michael Forest Reinoehl, an antifa supporter, died when law enforcement went to arrest him, four officials said. He was being investigated in the fatal shooting of a member of a far-right group.`\
 https://nytimes.com/2020/09/03/us/michael-reinoehl-arrest-portland-shooting.html?searchResultPosition=5
 
 **Ships, Boats From Sri Lanka, India Try to Douse Tanker Fire**\
