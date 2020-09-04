@@ -1,40 +1,40 @@
+**U.S. Says Conveyed 'Grave Concern' to Russia Over Navalny Case**\
+`The United States on Friday conveyed to Russia its 'grave concern' about German government finding that Russian opposition politician Alexei Navalny was poisoned with a Soviet-style nerve agent, the U.S. State Department said.`\
+https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-russia-politics-navalny-usa.html?searchResultPosition=1
+
+**State: Lawmaker Advocated Burning Black Lives Matter Houses**\
+`A legislator accused of making a Facebook post that advocated burning and looting houses displaying Black Lives Matter signs is being investigated by the state attorney general and facing calls to resign.`\
+https://nytimes.com/aponline/2020/09/04/us/ap-us-racial-injustice-lawmaker-facebook.html?searchResultPosition=2
+
+**Man Gets Life Sentence in Slayings of Grandparents, Uncle**\
+`A Kentucky man who fatally shot his grandparents and uncle has been sentenced to life in prison without parole.`\
+https://nytimes.com/aponline/2020/09/04/us/ap-us-grandparents-slain-kentucky-1st-ld-writethru.html?searchResultPosition=3
+
+**Paris Gourmet Grocer Fauchon Faces COVID Crunch From Lack of Tourists**\
+`Since its start as a grocery pushcart, the Fauchon delicatessen has been on the same spot in central Paris for 134 years where it was buffeted by two World Wars, countless mass demonstrations, strikes and riots. `\
+https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-health-coronavirus-france-fauchon.html?searchResultPosition=4
+
+**Spain Close to Half a Million Coronavirus Cases**\
+`Spain came close to clocking half a million coronavirus cases on Friday after authorities registered 4,503 new infections, bringing the total to 498,989 - the most in Western Europe.`\
+https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-health-coronavirus-spain.html?searchResultPosition=5
+
 **Behind the Cover: Hunger in America**\
 `A look at a rise in food insecurity that none of us has seen in our lifetimes.`\
-https://nytimes.com/2020/09/04/magazine/behind-the-cover-hunger-in-america.html?searchResultPosition=1
+https://nytimes.com/2020/09/04/magazine/behind-the-cover-hunger-in-america.html?searchResultPosition=6
 
 **Say My Name, Say My Name, Say My Name (Correctly!)**\
 `Plus: Synagogues have work drama, too.`\
-https://nytimes.com/2020/09/04/business/how-do-you-pronounce.html?searchResultPosition=2
+https://nytimes.com/2020/09/04/business/how-do-you-pronounce.html?searchResultPosition=7
 
 **Britain Names Former Australian PM Abbott as Trade Adviser**\
-`Britain named former Australian Prime Minister, Tony Abbott, as an adviser to its Board of Trade on Friday, rejecting complaints from critics that his conservative views about women and gay people made him unfit to represent the United Kingdom.`\
-https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-britain-eu-abbott.html?searchResultPosition=3
+`Britain named former Australian Prime Minister, Tony Abbott, as a trade adviser on Friday, rejecting complaints from critics that his conservative views about women and gay people made him unfit to represent the United Kingdom.`\
+https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-britain-eu-abbott.html?searchResultPosition=8
 
 **Americans Back Tough Limits on Building in Fire and Flood Zones**\
 `A majority support outright bans on construction in disaster-prone areas, as well as paying people to move, researchers say — policies that local governments have been reluctant to adopt.`\
-https://nytimes.com/2020/09/04/climate/flood-fire-building-restrictions.html?searchResultPosition=4
+https://nytimes.com/2020/09/04/climate/flood-fire-building-restrictions.html?searchResultPosition=9
 
 **WHO Chief Scientist: 'We Should See Vaccine Rollout by Mid-2021'**\
 `The World Health Organization is hopeful that a novel coronavirus vaccine will be ready internationally by mid-2021, its chief scientist said on Friday.`\
-https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-health-coronavirus-who-swaminathan.html?searchResultPosition=5
-
-**Russia Records More Than 10,000 Deaths Linked to Coronavirus in July-Stats Agency**\
-`Russia registered 10,079 deaths linked to suspected or confirmed cases of COVID-19, data from the state statistics service Rosstat showed on Friday.`\
-https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-health-coronavirus-russia-july.html?searchResultPosition=6
-
-**Colombia Orders Google to Comply With Data Protection Rules**\
-`Colombian regulators on Friday ordered Alphabet Inc's Google to clearly ask each user whether the world's largest search engine can use their personal data which is being captured without authorization.`\
-https://nytimes.com/reuters/2020/09/04/business/04reuters-google-colombia.html?searchResultPosition=7
-
-**France Reports 8,975 New Daily COVID-19 Infections, Setting a Record High**\
-`French health authorities reported 8,975 new confirmed coronavirus cases on Friday, setting an all-time high of daily additional infections since the disease started to spread in the country at the end of the winter.`\
-https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-health-coronavirus-france-cases.html?searchResultPosition=8
-
-**The Elements of Wok Hei, and How to Capture Them at Home**\
-`The elusive smoky flavors and aromas of stir-fry can be achieved in your home kitchen. J. Kenji López-Alt shows you how.`\
-https://nytimes.com/2020/09/04/dining/stir-fry-recipe-wok-hei.html?searchResultPosition=9
-
-**Softbank Bets Heavily on Option Purchases, Primarily in Tech Sector: Sources**\
-`SoftBank Group Corp made significant option purchases in the U.S. stock market in recent weeks as a way of temporarily investing some of its proceeds from asset sales, people familiar with the matter said on Friday. `\
-https://nytimes.com/reuters/2020/09/04/business/04reuters-usa-stocks-softbank-group.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/04/world/europe/04reuters-health-coronavirus-who-swaminathan.html?searchResultPosition=10
 
