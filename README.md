@@ -1,5 +1,5 @@
 **What to Know About Daniel Prude’s Death**\
-`Mr. Prude, who is Black, died of the effects suffocation after he was held by the police  in Rochester, N.Y. The news roiled yet another American city.`\
+`Mr. Prude, who is Black, died of the effects suffocation after he was held by the Rochester police. The news roiled yet another American city.`\
 https://nytimes.com/2020/09/04/nyregion/rochester-daniel-prude.html?searchResultPosition=1
 
 **Japan's Tuna Market, the World's Largest, Hit Hard by Coronavirus Pandemic**\
