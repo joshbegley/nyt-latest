@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/09/05/sports/05reuters-football-nfl-lac-allen-c
 https://nytimes.com/2020/09/05/arts/joseph-bartscherer-dead.html?searchResultPosition=4
 
 **Serena Williams Beats Sloane Stephens at U.S. Open**\
-`Williams, the No. 3 seed, won after dropping the dropping the first set to Stephens.`\
+`Williams, the No. 3 seed, won after dropping the first set to Stephens.`\
 https://nytimes.com/2020/09/05/sports/tennis/serena-williams-sloane-stephens.html?searchResultPosition=5
 
 **De Minaur Battles Past Khachanov to Reach U.S. Open Last-16**\
