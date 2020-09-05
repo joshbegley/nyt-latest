@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/09/05/sports/tennis/05reuters-tennis-usopen-min
 `President Donald Trump will highlight his environmental agenda as he campaigns in the battleground states of Florida and North Carolina on Tuesday. `\
 https://nytimes.com/aponline/2020/09/05/us/politics/ap-us-trump.html?searchResultPosition=9
 
-**Two French Soldiers Killed in Mali-Presidency**\
+**Two French Soldiers Killed, One Injured in Mali-Presidency**\
 `Two French military personnel were killed while on an operation in Mali on Saturday when an improvised explosive device destroyed their armoured vehicle, the French Presidency said.`\
 https://nytimes.com/reuters/2020/09/05/world/africa/05reuters-france-mali-military.html?searchResultPosition=10
 
