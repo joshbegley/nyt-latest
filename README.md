@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/09/05/world/africa/ap-af-virus-outbreak-faith-
 `Protesters against a COVID-19 lockdown defied police in Australia's hotspot on Saturday, prompting 15 arrests, even as the state of Victoria continued its gradual improvement in stemming new cases due to the nearly five weeks of restrictions.`\
 https://nytimes.com/reuters/2020/09/05/world/asia/05reuters-health-coronavirus-australia.html?searchResultPosition=3
 
-**India Defense Ministry Says Agreed With China to Ease Tension on Border**\
-`India said on Saturday it had agreed with China to work toward reducing tensions along their contested border, following a meeting of the defense ministers of both countries. `\
+**India and China Agree to Ease Tension on Border, New Delhi Says**\
+`India said on Saturday it has agreed with China to work towards reducing tensions along their contested border, following a meeting of the defense ministers of both countries. `\
 https://nytimes.com/reuters/2020/09/05/world/asia/05reuters-india-china.html?searchResultPosition=4
 
 **Iran Begins New School Year Amid Virus Concerns**\
