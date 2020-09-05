@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/09/05/world/europe/05reuters-health-coronavirus
 `A Bosnian fan of both Ford trucks and Elon Musk's Tesla could not just sit on his hands waiting for the electric carmaker to release its Cybertruck, expected from late 2021. Instead he came up with his own version of the futuristic vehicle.`\
 https://nytimes.com/reuters/2020/09/05/business/05reuters-bosnia-tesla.html?searchResultPosition=7
 
-**The Trump Docket: A Look the Fights Fueling Trump’s Big Legal Bills**\
+**The Trump Docket: A Look at the Fights Fueling Trump’s Big Legal Bills**\
 `Donor money is helping pay for a dizzying array of litigation filed by the president or against him.`\
 https://nytimes.com/2020/09/05/us/politics/trump-docket-legal-bills.html?searchResultPosition=8
 
