@@ -1,40 +1,40 @@
+**Iran Schools Re-Open Despite Concerns Over Spread of Virus**\
+`Schools in Iran re-opened to 15 million students on Saturday after a seven-month closure despite concerns over increased spread of the novel coronavirus in the country.`\
+https://nytimes.com/reuters/2020/09/05/world/middleeast/05reuters-health-coronavirus-iran.html?searchResultPosition=1
+
+**Slovakia Reports Record Spike in Coronavirus Cases**\
+`Slovakia on Saturday reported a spike of 226 cases of the new coronavirus, the biggest one-day rise in the central European country since the start of the pandemic.`\
+https://nytimes.com/reuters/2020/09/05/world/europe/05reuters-health-coronavirus-slovakia.html?searchResultPosition=2
+
 **Former Cook Islands Leader Dies From Virus in New Zealand**\
 `Joe Williams may have been 85 years old, but when the coronavirus struck this year, the Auckland doctor worked extra hard to warn his Pacific Island patients of its dangers. His friend suggested he take a vacation, but Williams was having none of it.`\
-https://nytimes.com/aponline/2020/09/05/world/asia/ap-as-new-zealand-obit-joe-williams.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/09/05/world/asia/ap-as-new-zealand-obit-joe-williams.html?searchResultPosition=3
 
 **After Criticism, Trump Says Pentagon Will Not Shut Down Stars and Stripes**\
 `After an outcry from U.S. lawmakers, President Donald Trump on Friday said his administration would not be shutting down the Stars and Stripes military newspaper as announced by the Pentagon earlier this year.`\
-https://nytimes.com/reuters/2020/09/05/us/politics/05reuters-usa-military-trump-media.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/09/05/us/politics/05reuters-usa-military-trump-media.html?searchResultPosition=4
 
 **Pentagon Chief Says Trump Has Respect for Troops, After Report Said He Disparaged War Dead**\
 `U.S. Defense Secretary Mark Esper said on Friday that President Donald Trump respects American troops and veterans after a magazine report said Trump had called fallen U.S. military personnel buried in Europe "losers" and declined to visit an American cemetery because he thought it unimportant.`\
-https://nytimes.com/reuters/2020/09/05/us/politics/05reuters-usa-trump-military.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/09/05/us/politics/05reuters-usa-trump-military.html?searchResultPosition=5
 
 **Hundreds of Thai Students Rally to Demand School Reform**\
 `Hundreds of high school students demonstrated in Bangkok on Saturday to demand reform of an education system they say is outdated in the latest of more than a month of anti-authority protests.`\
-https://nytimes.com/reuters/2020/09/05/world/asia/05reuters-thailand-protests.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/09/05/world/asia/05reuters-thailand-protests.html?searchResultPosition=6
 
 **Explosion at Mosque, Likely Caused by Gas Leak, Kills 16 in Bangladesh**\
 `Dozens of worshipers were severely burned in the blast on Friday night just outside Dhaka.`\
-https://nytimes.com/2020/09/05/world/asia/bangladesh-mosque-explosion.html?searchResultPosition=5
+https://nytimes.com/2020/09/05/world/asia/bangladesh-mosque-explosion.html?searchResultPosition=7
 
 **Pope to Travel Outside Rome for First Time Since Coronavirus Pandemic**\
 `Pope Francis will next month visit the Italian town of Assisi, his first trip out of Rome since the coronavirus pandemic hit the country in February, and will sign a new encyclical, a spokesman for the Assisi Basilica said on Saturday.`\
-https://nytimes.com/reuters/2020/09/05/world/europe/05reuters-pope-assisi.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/09/05/world/europe/05reuters-pope-assisi.html?searchResultPosition=8
 
 **Epic Games Asks Court to Prevent What It Describes as Apple's 'Retaliation'**\
 `Epic Games said late on Friday that it has asked a court to stop what it saw as Apple Inc's retaliation against the "Fortnite" creator after the iPhone maker terminated Epic Games' account on its App Store.`\
-https://nytimes.com/reuters/2020/09/05/business/05reuters-apple-epic-games.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/09/05/business/05reuters-apple-epic-games.html?searchResultPosition=9
 
 **Summer of Protests Ends With Rallies For and Against Trump Across U.S.**\
 `A summer of street marches will culminate over the Labor Day holiday weekend with some rallies backing U.S. President Donald Trump, while others continue protests against racial inequality and police violence across the country.`\
-https://nytimes.com/reuters/2020/09/05/us/05reuters-global-race-usa-protests.html?searchResultPosition=8
-
-**Ex-FBI Agent: Attacks From Trump 'Outrageous' and 'Cruel'**\
-`Peter Strzok spent his FBI career hunting Russian and Chinese spies, but after news broke of derogatory text messages he'd sent about President Donald Trump, he came to feel like he was the one being hunted.`\
-https://nytimes.com/aponline/2020/09/05/us/politics/ap-us-trump-russia-probe-fbi.html?searchResultPosition=9
-
-**Ex-F.B.I. Agent in Russia Inquiry Says Trump Is a National Security Threat**\
-`Peter Strzok, who was fired for sending anti-Trump texts, played a central role in both the Hillary Clinton email and Trump-Russia investigations.`\
-https://nytimes.com/2020/09/05/us/politics/peter-strzok-book.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/05/us/05reuters-global-race-usa-protests.html?searchResultPosition=10
 
