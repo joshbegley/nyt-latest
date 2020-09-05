@@ -1,4 +1,4 @@
-**Report: QB Smith Makes Washington Roster**\
+**QB Smith Makes Washington Roster**\
 `Continuing a remarkable comeback, quarterback Alex Smith reportedly earned a spot on the Washington Football Team's 53-man roster.`\
 https://nytimes.com/reuters/2020/09/05/us/05reuters-football-nfl-was-smith.html?searchResultPosition=1
 
