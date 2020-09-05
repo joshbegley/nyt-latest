@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/09/04/world/asia/04reuters-japan-politics.html?
 `Hyundai has reversed itself on a recall to fix a defect that could cause engine fires and is now telling owners of more than 200,000 vehicles to park them outdoors until repairs are made.`\
 https://nytimes.com/aponline/2020/09/04/business/bc-us-hyundai-kia-recalls.html?searchResultPosition=8
 
-**Zverev Holds Off Mannarino to Reach U.S. Open Fourth Round**\
-`Fifth seed Alexander Zverev overcame a slow start to dispatch France's Adrian Mannarino 6-7(4) 6-4 6-2 6-2 at the U.S. Open on Friday in a match that was delayed by health officials for over 2-1/2 hours.`\
+**Zverev Beats Mannarino After Delay Over Health Protocols at US Open**\
+`Alexander Zverev feared his tie with Adrian Mannarino may not go ahead on Friday due to COVID-19 protocols but the German secured a 6-7(4) 6-4 6-2 6-2 win in a match delayed almost three hours due to talks between organizers and New York health officials.`\
 https://nytimes.com/reuters/2020/09/04/sports/tennis/04reuters-tennis-usopen-zverev.html?searchResultPosition=9
 
 **With More Black Women, U.S. Open Shows Serena and Venus Legacy**\
