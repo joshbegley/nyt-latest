@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/09/05/us/politics/ap-us-election-2020-permissi
 https://nytimes.com/aponline/2020/09/05/sports/basketball/bc-bkl-sparks-storm.html?searchResultPosition=3
 
 **Racial Tensions Roiling US Pose Target for Election Meddling**\
-`//FOR SATURDAY PMS//`\
+`The tensions coursing through the United States over racism and policing are likely targets for adversaries seeking to influence the November election, lawmakers and experts warn — and there are signs that Russia is again seeking to exploit the divide.`\
 https://nytimes.com/aponline/2020/09/05/us/politics/ap-us-election-2020-russia-race.html?searchResultPosition=4
 
 **Fernando Tatís Jr. And Slugging Padres Pound Athletics 7-0**\
