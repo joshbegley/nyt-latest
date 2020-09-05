@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/09/05/sports/basketball/bc-bkl-sparks-storm.ht
 https://nytimes.com/aponline/2020/09/05/us/politics/ap-us-election-2020-russia-race.html?searchResultPosition=4
 
 **Fernando Tatís Jr. And Slugging Padres Pound Athletics 7-0**\
-`Fernando Tatís Jr. and Manny Machado hit back-to-back homers in the seventh inning, and the San Diego Padres pounded Oakland 7-0 on Friday night as the Athletics returned to the field from a four-game postponement following a positive coronavirus test.`\
+`The San Diego Padres were far too powerful and beat the Athletics at their own home run game with Oakland searching to rediscover its rhythm after an unplanned layoff.`\
 https://nytimes.com/aponline/2020/09/05/sports/baseball/bc-bbo-padres-athletics.html?searchResultPosition=5
 
 **Portland Protests Reach 100 Consecutive Days This Weekend**\
