@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/09/05/sports/tennis/05reuters-tennis-usopen-wil
 https://nytimes.com/2020/09/05/us/dorothy-parker-ashes-new-york.html?searchResultPosition=9
 
 **Johnson Turns Rough Day Into 1-Shot Lead at East Lake**\
-`Dustin Johnson went the last three hours over 13 holes without hitting from the fairway and still manged to hang on to the lead Saturday after two rounds at the Tour Championship.`\
+`The final hole at East Lake brought two strange sights Saturday at the Tour Championship.`\
 https://nytimes.com/aponline/2020/09/05/sports/golf/ap-glf-tour-championship.html?searchResultPosition=10
 
