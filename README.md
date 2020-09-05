@@ -1,40 +1,40 @@
-**Nuggets Coach Malone Hits Out at NBA's 'Criminal' Guest Policy**\
-`Denver Nuggets head coach Michael Malone has criticized the National Basketball Association's (NBA) policy that prevents the families of coaches entering the bubble-like campus near Orlando, where the season resumed amid the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/09/05/sports/basketball/05reuters-health-coronavirus-basketball-nba.html?searchResultPosition=1
+**11 Students on a First Day of School Like No Other**\
+`Students across the country discussed math, masks and managing anxiety as the year begins.`\
+https://nytimes.com/2020/09/05/us/virtual-return-to-school-covid.html?searchResultPosition=1
 
-**Sanofi France Chief: Future COVID-19 Vaccine Seen Below 10 Euros**\
-`Sanofi's chief in France, Olivier Bogillot, said on Saturday that its future COVID-19 vaccine was likely to be priced below 10 euros per shot.`\
-https://nytimes.com/reuters/2020/09/05/world/europe/05reuters-health-coronavirus-sanofi.html?searchResultPosition=2
+**How the Circle Drive-in ‘Found Its Niche’ in the Pandemic**\
+`With a flea market, graduations and even a livestreamed country music concert, a Pennsylvania Drive-in became a safe gathering place.`\
+https://nytimes.com/2020/09/05/us/how-the-circle-drive-in-found-its-niche-in-the-pandemic.html?searchResultPosition=2
 
-**TikTok Troubles Narrow Gap Between Beijing and ByteDance Founder Zhang Yiming**\
-`ByteDance founder Zhang Yiming has long positioned himself as a global internet entrepreneur, largely eschewing Chinese government involvement, but U.S. demands to sell his crown jewel TikTok are testing the boundaries with Beijing.`\
-https://nytimes.com/reuters/2020/09/05/business/05reuters-usa-tiktok-bytedance-insight.html?searchResultPosition=3
+**Readers Share Their Best Unexpected Wedding Photos**\
+`A selection of cherished, unplanned and unscripted, wedding moments submitted by our readers.`\
+https://nytimes.com/2020/09/05/fashion/weddings/readers-share-their-best-unexpected-wedding-photos.html?searchResultPosition=3
 
-**Environment Activists Blockade UK Newspaper Printing Plants**\
-`Environmental activists have blockaded two British printing plants, disrupting the distribution of several national newspapers on Saturday.`\
-https://nytimes.com/aponline/2020/09/05/world/europe/ap-eu-britain-extinction-rebellion.html?searchResultPosition=4
+**How Trump Draws on Campaign Funds to Pay Legal Bills**\
+`As he has done with other aspects of the presidency, Donald J. Trump has redefined the practice in ways that have unsettled even some Republicans.`\
+https://nytimes.com/2020/09/05/us/politics/trump-campaign-funds-legal-bills.html?searchResultPosition=4
 
-**British Newspapers Distribution Hit by Extinction Rebellion Blockade**\
-`The distribution of several British newspapers was disrupted on Saturday after Extinction Rebellion climate change activists blockaded printing presses used by Rupert Murdoch's News UK, the publisher of The Times and The Sun.`\
-https://nytimes.com/reuters/2020/09/05/world/europe/05reuters-climate-change-britain-protests.html?searchResultPosition=5
+**Flat Polls. Weak Ratings. Do Political Conventions Have a Future?**\
+`Ratings were down and polls barely budged. Did the August conventions offer a road map for saving a flailing political institution?`\
+https://nytimes.com/2020/09/05/us/elections/political-conventions-ending.html?searchResultPosition=5
 
-**Gas Pipeline Blast Kills 13 Worshippers in Bangladesh Mosque**\
-`A gas pipeline explosion near a mosque in Bangladesh killed 13 people and injured 30 as worshippers were about to end their prayers, officials said on Saturday.`\
-https://nytimes.com/reuters/2020/09/05/world/asia/05reuters-bangladesh-blast.html?searchResultPosition=6
+**‘Agricultural Jihad’: A Hungry Lebanon Returns to Family Farms to Feed Itself**\
+`With a tanking economy, and imported food costs soaring, leaders are urging the Lebanese to wage a campaign of self-sufficiency. “I never thought I’d do this in my life, but I have to survive.”`\
+https://nytimes.com/2020/09/05/world/middleeast/lebanon-economic-crisis-farming.html?searchResultPosition=6
 
-**Japan's Suga Signals Ultra-Easy Monetary Policy to Continue**\
-`Japan's Chief Cabinet Secretary Yoshihide Suga, a frontrunner to be the next prime minister, said he would like the central bank to continue its ultra-loose monetary policy as the economy is still struggling with the impact of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/09/05/world/asia/05reuters-japan-politics.html?searchResultPosition=7
+**Famous in Italy, Rodari Reaches U.S. Shores With ‘Telephone Tales’**\
+`The children’s book writer never caught on in America, partly because of his Communist Party ties, but the English-language release of his masterpiece could change that.`\
+https://nytimes.com/2020/09/05/books/gianni-rodari-telephone-tales.html?searchResultPosition=7
 
-**As Africa's COVID-19 Cases Rise, Faith Is Put to the Test**\
-`The COVID-19 pandemic is testing the patience of some religious leaders across Africa who worry they will lose followers, and funding, as restrictions on gatherings continue.`\
-https://nytimes.com/aponline/2020/09/05/world/africa/ap-af-virus-outbreak-faith-tested.html?searchResultPosition=8
+**Parents Got More Time Off. Then the Backlash Started.**\
+`Pandemic policies at tech companies have created a rift between parents offered more benefits and resentful workers who don’t have children.`\
+https://nytimes.com/2020/09/05/technology/parents-time-off-backlash.html?searchResultPosition=8
 
-**Lockdown Protesters Defy Police as Australia Coronavirus Cases Ease**\
-`Protesters against a COVID-19 lockdown defied police in Australia's hotspot on Saturday, prompting 15 arrests, even as the state of Victoria continued its gradual improvement in stemming new cases due to the nearly five weeks of restrictions.`\
-https://nytimes.com/reuters/2020/09/05/world/asia/05reuters-health-coronavirus-australia.html?searchResultPosition=9
+**After a Feast, These Sea Anemones Grow More Arms**\
+`They’re the first animals known to turn food into extra limbs.`\
+https://nytimes.com/2020/09/05/science/sea-anemones-arms.html?searchResultPosition=9
 
-**India and China Agree to Ease Tension on Border, New Delhi Says**\
-`India said on Saturday it has agreed with China to work towards reducing tensions along their contested border, following a meeting of the defense ministers of both countries. `\
-https://nytimes.com/reuters/2020/09/05/world/asia/05reuters-india-china.html?searchResultPosition=10
+**100 Days of Protest: A Chasm Grows Between Portland and the Rest of Oregon**\
+`The proximity of the left and the right in Oregon has created a dynamic of fear, mistrust and anger.`\
+https://nytimes.com/2020/09/05/us/portland-political-chasm-protests-unrest.html?searchResultPosition=10
 
