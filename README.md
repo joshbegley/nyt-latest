@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/05/sports/the-us-open-virus-quarantine-chaos.html?se
 https://nytimes.com/aponline/2020/09/05/sports/ap-rac-kentucky-derby.html?searchResultPosition=3
 
 **Laureano Homers as A's Get Back on Track to Beat Padres 8-4**\
-`Ramón Laureano homered to help Sean Manaea win his third straight start, and the Oakland Athletics snapped a three-game losing streak by beating the San Diego Padres 8-4 on Saturday. `\
+`Manager Bob Melvin figured the slugging Athletics might need a few games to regain their offensive swagger following an unplanned layoff this past week.`\
 https://nytimes.com/aponline/2020/09/05/sports/baseball/ap-bbo-padres-athletics.html?searchResultPosition=4
 
 **Authentic Holds Off Tiz the Law to Win Kentucky Derby**\
