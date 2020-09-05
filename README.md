@@ -1,5 +1,5 @@
-**Portland Police Made 'Multiple Arrests' Overnight as City Nears 100 Days of Protests**\
-`Portland Police made multiple arrests overnight on Friday as the Oregon city nears 100 days of demonstrations against racism and police brutality.`\
+**Portland Police Make 'Multiple Arrests' as U.S. City Nears 100 Days of Protests**\
+`Portland Police made multiple arrests overnight on Friday as the Oregon city nears 100 days of demonstrations against racism and police brutality, which have at times turned violent.`\
 https://nytimes.com/reuters/2020/09/05/us/05reuters-global-race-protests-portland.html?searchResultPosition=1
 
 **Hawaii Team Backed by Former All Blacks Pulls Out of 2021 MLR**\
