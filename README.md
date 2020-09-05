@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/09/04/sports/baseball/ap-bbn-cardinals-cubs.ht
 `President Xi Jinping pledged to open China’s service industries wider to foreign competitors as its first in-person trade fair since the coronavirus outbreak opened under intensive anti-disease controls.`\
 https://nytimes.com/aponline/2020/09/04/business/ap-as-china-trade-fair.html?searchResultPosition=6
 
-**Trump Moves to Cancel Government Sensitivity Training Contracts**\
+**Trump Moves to Cancel Contracts for Government Sensitivity Training**\
 `A memo sent to agency heads on Friday called efforts that often focus on promoting awareness of racism “divisive” and “un-American propaganda.”`\
 https://nytimes.com/2020/09/04/us/politics/trump-race-sensitivity-training.html?searchResultPosition=7
 
