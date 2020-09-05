@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/09/05/sports/football/05reuters-football-nfl-buf-white-extension.html?searchResultPosition=1
 
 **The U.S. Open Descends Into Pandemic Precaution Chaos**\
-`Yet another change in rules for how players who were exposed to a player who tested positive for coronavirus caused the top women’s doubles team to be defaulted.`\
+`Yet another change in rules for players who were exposed to a player who tested positive for coronavirus caused the top women’s doubles team to be defaulted.`\
 https://nytimes.com/2020/09/05/sports/the-us-open-virus-quarantine-chaos.html?searchResultPosition=2
 
 **Authentic Wins Ky. Derby, Gives Baffert Tying 6th Victory**\
