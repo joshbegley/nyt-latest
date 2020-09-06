@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/09/06/us/politics/06reuters-usa-congress-mnuchi
 https://nytimes.com/aponline/2020/09/06/us/ap-us-police-shooting-wisconsin.html?searchResultPosition=7
 
 **States Plan for Cuts as Congress Deadlocks on More Virus Aid**\
-`Spending cuts to schools, childhood vaccinations and job-training programs. New taxes on millionaires, cigarettes and legalized marijuana. Borrowing, drawing from rainy day funds and reducing government workers' pay..`\
+`Spending cuts to schools, childhood vaccinations and job-training programs. New taxes on millionaires, cigarettes and legalized marijuana. Borrowing, drawing from rainy day funds and reducing government workers' pay.`\
 https://nytimes.com/aponline/2020/09/06/us/ap-us-virus-outbreak-state-budgets.html?searchResultPosition=8
 
 **France's Le Drian: We Must Not Let the Guard Down in Mali**\
