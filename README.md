@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/09/06/world/europe/06reuters-russia-serbia-dipl
 `The coronavirus pandemic could lead to pandemonium on offensive lines throughout the NFL.`\
 https://nytimes.com/aponline/2020/09/06/sports/football/ap-fbn-o-line-chaos.html?searchResultPosition=6
 
-**Turkey's Erdogan, EU's Michel Discuss East Med-CNN Turk**\
+**Turkey's Erdogan, EU's Michel Discuss East Mediterranean-CNN Turk**\
 `Turkish President Tayyip Erdogan and European Council President Charles Michel discussed developments in the Eastern Mediterranean on Sunday, CNN Turk reported.`\
 https://nytimes.com/reuters/2020/09/06/world/europe/06reuters-turkey-greece-eu.html?searchResultPosition=7
 
