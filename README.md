@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/09/06/world/europe/06reuters-germany-russia-nav
 https://nytimes.com/reuters/2020/09/06/world/africa/06reuters-tunisia-security.html?searchResultPosition=2
 
 **Exclusive: 90% of China's Sinovac Employees, Families Took Coronavirus Vaccine, Says CEO**\
-`About 90% of Sinovac Biotech Ltd employees and their families have taken an experimental coronavirus vaccine developed by the Chinese firm under the country's emergency use programme, its chief executive said on Sunday.`\
+`About 90% of Sinovac Biotech Ltd employees and their families have taken an experimental coronavirus vaccine developed by the Chinese firm under the country's emergency use program, its chief executive said on Sunday.`\
 https://nytimes.com/reuters/2020/09/06/world/asia/06reuters-health-coronavirus-vaccine-sinovac-exclusive.html?searchResultPosition=3
 
 **Incidents in UK's Birmingham Look to Be Related: Mayor**\
