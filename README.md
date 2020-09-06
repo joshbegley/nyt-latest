@@ -1,40 +1,40 @@
+**Exclusive: 90% of China's Sinovac Employees, Families Took Coronavirus Vaccine, Says CEO**\
+`About 90% of Sinovac Biotech Ltd employees and their families have taken an experimental coronavirus vaccine developed by the Chinese firm under the country's emergency use programme, its chief executive said on Sunday.`\
+https://nytimes.com/reuters/2020/09/06/world/asia/06reuters-health-coronavirus-vaccine-sinovac-exclusive.html?searchResultPosition=1
+
 **Incidents in UK's Birmingham Look to Be Related: Mayor**\
 `A number of stabbings in the center of the English city of Birmingham that resulted in injuries on Sunday looked to be related, West Midlands Mayor Andy Street told the BBC.`\
-https://nytimes.com/reuters/2020/09/06/world/europe/06reuters-britain-security-birmingham-street.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/06/world/europe/06reuters-britain-security-birmingham-street.html?searchResultPosition=2
 
 **Philippines Reports 2,839 New Coronavirus Infections, 85 More Deaths**\
 `The Philippines health ministry on Sunday reported 2,839 new coronavirus cases and 85 more deaths, bringing the country's total tally of infections to 237,365 and fatalities to 3,875.`\
-https://nytimes.com/reuters/2020/09/06/world/asia/06reuters-health-coronavirus-philippines-cases.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/09/06/world/asia/06reuters-health-coronavirus-philippines-cases.html?searchResultPosition=3
 
 **Hundreds of Hong Kong Protesters March to Oppose Postponed Elections, New Law**\
 `Hundreds of protesters took to the streets in the Asian financial hub of Hong Kong on Sunday to demonstrate against a new national security law imposed by China and the postponement of legislative elections.`\
-https://nytimes.com/reuters/2020/09/06/world/asia/06reuters-hongkong-security-protests.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/09/06/world/asia/06reuters-hongkong-security-protests.html?searchResultPosition=4
 
 **MLB Roundup: Trout Blasts Club-Record 300th HR in Angels Win**\
 `Jo Adell's two-run single in the bottom of the seventh lifted the Los Angeles Angels to a 10-9 win against the Houston Astros in the opener of their doubleheader on Saturday afternoon in Anaheim, Calif.`\
-https://nytimes.com/reuters/2020/09/06/sports/baseball/06reuters-baseball-mlb-roundup.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/09/06/sports/baseball/06reuters-baseball-mlb-roundup.html?searchResultPosition=5
 
 **California Wildfire Traps Campers in National Forest**\
 `Three fast-spreading California wildfires sent people fleeing Saturday, with one trapping campers at a reservoir in the Sierra National Forest, as a brutal heat wave pushed temperatures into triple digits in many parts of state.`\
-https://nytimes.com/aponline/2020/09/06/us/ap-us-california-wildfires.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/09/06/us/ap-us-california-wildfires.html?searchResultPosition=6
 
 **Taiwan Opposition Pushes Pork Referendum, Could Threaten U.S. Trade Deal**\
 `Taiwan's main opposition party the Kuomintang (KMT) began a push on Sunday for a referendum to block the easing of restrictions on U.S. pork imports, which if passed could threaten a long-mooted free trade deal with Taipei's key ally Washington.`\
-https://nytimes.com/reuters/2020/09/06/business/06reuters-taiwan-politics.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/09/06/business/06reuters-taiwan-politics.html?searchResultPosition=7
 
 **Israeli Business Delegations Led by Banks Hapoalim, Leumi to Visit UAE**\
 `The heads of Israel's two biggest banks will travel to the United Arab Emirates (UAE) this month, the first such visits since the two countries agreed to normalize relations.`\
-https://nytimes.com/reuters/2020/09/06/business/06reuters-israel-emirates-banking.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/09/06/business/06reuters-israel-emirates-banking.html?searchResultPosition=8
 
 **Portland Protesters Throw Fire Bombs at Officers on 100th Day of Demonstrations**\
 `Protesters in Portland threw fire bombs at police on Saturday night and at least one person was injured, police said, on the 100th day of demonstrations in the Oregon city over racial injustice and police brutality.`\
-https://nytimes.com/reuters/2020/09/06/us/politics/06reuters-global-race-protests-portland.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/09/06/us/politics/06reuters-global-race-protests-portland.html?searchResultPosition=9
 
 **China's First Reusable Spacecraft Lands After 2-Day Flight**\
 `China’s first reusable spacecraft landed Sunday after two days in orbit, a possible step toward lower-cost space flight, the government announced.`\
-https://nytimes.com/aponline/2020/09/06/world/asia/ap-as-china-reusable-spacecraft.html?searchResultPosition=9
-
-**Death Toll From Bangladesh Mosque Explosion Rises to 24**\
-`The death toll from a gas pipeline explosion in a mosque outside Bangladesh’s capital rose to 24 on Sunday while authorities were examining how a leakage caused the accident during evening prayers. `\
-https://nytimes.com/aponline/2020/09/06/world/asia/ap-as-bangladesh-mosque-explosion-.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/06/world/asia/ap-as-china-reusable-spacecraft.html?searchResultPosition=10
 
