@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/09/06/world/europe/06reuters-health-coronavirus
 `Fernando Tatís Jr. matched Angels slugger Mike Trout for the majors' home run lead with his 15th, a two-run drive in the seventh inning of the San Diego Padres' back-and-forth 5-3 win over the Oakland Athletics on Sunday.`\
 https://nytimes.com/aponline/2020/09/06/sports/baseball/bc-bbo-padres-athletics.html?searchResultPosition=9
 
-**Hall of Fame Outfielder Lou Brock Dies at Age 81**\
+**Hall of Fame Outfielder, Speedster Brock Dies at Age 81**\
 `Hall of Famer Lou Brock, one of baseball’s signature leadoff hitters and base stealers who helped the St. Louis Cardinals win three pennants and two World Series titles in the 1960s, has died. He was 81.`\
 https://nytimes.com/aponline/2020/09/06/sports/baseball/ap-bbo-obit-lou-brock.html?searchResultPosition=10
 
