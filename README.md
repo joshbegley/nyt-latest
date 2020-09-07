@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/09/07/business/07reuters-ab-foods-outlook.html?
 `New Zealand's largest independent broadcaster, MediaWorks, said on Monday it would sell its free-to-air TV business to U.S. media company Discovery Inc, months after putting the struggling division up for sale.`\
 https://nytimes.com/reuters/2020/09/07/world/asia/07reuters-mediaworks-divestiture-discovery-inc.html?searchResultPosition=2
 
-**Surging Euro, Vanishing Inflation: Five Questions for the ECB**\
+**Graphic: Surging Euro, Vanishing Inflation: Five Questions for the ECB**\
 `Thursday's European Central Bank meeting should be anything but dull: the euro is surging, inflation is negative for the first time since 2016 and there is heightened uncertainty about the coronavirus as the number of new cases edges higher.`\
 https://nytimes.com/reuters/2020/09/07/business/07reuters-eurozone-markets-ecb.html?searchResultPosition=3
 
