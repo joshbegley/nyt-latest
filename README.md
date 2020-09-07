@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/09/06/business/06reuters-global-forex.html?sear
 `Japan's coastguard said on Monday that its search-and-rescue mission for 40 missing crew from a capsized cattle ship in the East China Sea remains suspended, with no timing set for resumption.`\
 https://nytimes.com/reuters/2020/09/06/world/asia/06reuters-japan-newzealand-ship.html?searchResultPosition=6
 
-**Typhoon Heads to South Korea After Battering Southern Japan**\
-`The second powerful typhoon to slam Japan in a week damaged buildings, caused blackouts in nearly half a million homes and injured 20 people on southern Japanese islands before heading to South Korea on Monday.`\
+**Typhoon Moves Onshore in S Korea After Battering Japan Isles**\
+`The third typhoon in as many weeks brought rain and wind to South Korea on Monday after it damaged buildings, caused blackouts in nearly half a million homes and injured 20 people on southern Japanese islands.`\
 https://nytimes.com/aponline/2020/09/06/world/asia/ap-as-asia-typhoon.html?searchResultPosition=7
 
 **Journalists Aren’t the Enemy of the People. But We’re Not Your Friends.**\
