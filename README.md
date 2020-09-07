@@ -1,40 +1,40 @@
+**The 2020 U.S. Presidential Election Calendar: Day by Day**\
+`U.S. voters on Nov. 3 will decide whether to give Republican President Donald Trump a second four-year term or replace him with Democratic presidential nominee Joe Biden. Here are the important dates in the 2020 presidential contest:`\
+https://nytimes.com/reuters/2020/09/07/us/politics/07reuters-usa-election-timeline.html?searchResultPosition=1
+
+**German Finance Minister Scholz Eyes More Debt to Support Recovery**\
+`The German economy is recovering from the coronavirus shock and will reach its pre-crisis size at the beginning of 2022 at the latest, Finance Minister Olaf Scholz told Reuters on Monday.`\
+https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-germany-eu-scholz.html?searchResultPosition=2
+
+**Handshakes at US Open Rare but, as Djokovic Shows, Do Happen**\
+`When he was disqualified from the U.S. Open for unintentionally hitting a line judge with a ball after losing a point, Novak Djokovic walked to the sideline and extended his right arm toward his fourth-round foe, Pablo Carreño Busta.`\
+https://nytimes.com/aponline/2020/09/07/sports/tennis/ap-ten-us-open-shake-it-off.html?searchResultPosition=3
+
+**Nestle on Track to Meet Sustainable Packaging Goal**\
+`Nestle has increased the share of recyclable or reusable plastics to package its products to 87%, making progress toward its 100% goal by 2025, and gave examples of innovation to cut plastic waste in a media briefing on Monday.`\
+https://nytimes.com/reuters/2020/09/07/business/07reuters-nestle-packaging.html?searchResultPosition=4
+
+**Naked Protesters Demand Action After Daniel Prude's Killing**\
+`Naked except for “spit hoods” in a reference to the killing of Daniel Prude, several protesters sat outside Rochester's police headquarters Monday morning to push for police accountability, local news outlets reported.`\
+https://nytimes.com/aponline/2020/09/07/us/ap-us-rochester-police-death.html?searchResultPosition=5
+
+**For Long-Haulers, Covid-19 Takes a Toll on Mind as Well as Body**\
+`“It makes you depressed, anxious that it’s never going to go away.”`\
+https://nytimes.com/2020/09/07/health/coronavirus-mental-health-long-hauler.html?searchResultPosition=6
+
 **UK's Johnson, France's Macron Agree on Need for Brexit Deal, UK Says**\
 `British Prime Minister Boris Johnson and French President Emmanuel Macron agreed on Monday that talks on a Brexit deal needed to make progress this month and reach a conclusion quickly.`\
-https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-britain-eu-johnson-macron.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-britain-eu-johnson-macron.html?searchResultPosition=7
 
 **UK Expected to Announce More Flexible Travel Quarantine Rules: BBC**\
 `Britain's government is expected to announce on Monday that it will adopt a regional approach to travel corridors, meaning that travelers from areas of countries that are less affected by COVID-19 will not need to quarantine, the BBC said.`\
-https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-health-coronavirus-britain-travel.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-health-coronavirus-britain-travel.html?searchResultPosition=8
 
 **Stalled by Pandemic, Migrants Press in Quest for Better Life**\
 `Duperat Laurette fled Haiti after her country's massive 2010 earthquake, making her way first to the Dominican Republic, then Chile and five years later to Panama, all with the dream of reaching the U.S. and finding a job to help support 14 siblings left behind in Haiti.`\
-https://nytimes.com/aponline/2020/09/07/world/americas/ap-lt-virus-outbreak-panama-migrants.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/09/07/world/americas/ap-lt-virus-outbreak-panama-migrants.html?searchResultPosition=9
 
 **Russia Says Trying to Help Syria Break Through U.S. Sanctions Blockade**\
 `Russia is trying to help Syria break through an economic blockade created by new U.S. sanctions that are impeding foreign investment into Syria's economy, Russian Deputy Prime Minister Yuri Borisov said on Monday.`\
-https://nytimes.com/reuters/2020/09/07/world/middleeast/07reuters-syria-russia-fm-blockade.html?searchResultPosition=4
-
-**Timeline of Julian Assange's Legal Battles Over Past Decade**\
-`The extradition hearing of Julian Assange, the founder of anti-secrecy group WikiLeaks, opened in London on Monday, the latest development in a long legal saga. Here is a look at key events.`\
-https://nytimes.com/aponline/2020/09/07/world/europe/ap-eu-britain-assange-timeline.html?searchResultPosition=5
-
-**Seven of South African Retailer Clicks' Stores Damaged in Protests Over 'Racist' Ad**\
-`Demonstrators damaged seven of South African drug retailer Clicks Group's shops on Monday and forced others to close during protests over what they said was a racist advertisement posted on its website.`\
-https://nytimes.com/reuters/2020/09/07/business/07reuters-global-race-safrica-clicks-group.html?searchResultPosition=6
-
-**Trump to Hold Labor Day News Conference at White House**\
-`President Donald Trump on Monday said he will hold a news conference at the White House during the Labor Day holiday at 1 p.m. (1700 GMT).`\
-https://nytimes.com/reuters/2020/09/07/us/politics/07reuters-usa-trump-news-confernce.html?searchResultPosition=7
-
-**Saudi Court Issues Final Verdicts in Khashoggi Killing**\
-`A Saudi court issued final verdicts on Monday in the case of slain Washington Post columnist and Saudi critic Jamal Khashoggi after his family announced pardons that spared five of the convicted individuals from execution.`\
-https://nytimes.com/aponline/2020/09/07/world/middleeast/ap-ml-saudi-khashoggi-killing.html?searchResultPosition=8
-
-**Saudi Arabia Sentences Eight People to Prison in Khashoggi Murder Case**\
-`A Saudi Arabian court has issued a final ruling in the case of the 2018 killing of Saudi journalist Jamal Khashoggi, sentencing eight people to between seven and 20 years in prison, the kingdom's state-run Al Ekhbariya TV reported on Monday.`\
-https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-saudi-khashoggi.html?searchResultPosition=9
-
-**Electric Car Warning Signals as Denmark Calculates Cost of Switch**\
-`A rapid switch from to electric cars to meet Denmark's ambitious climate targets will leave a massive gap in its finances, a government commission said on Monday.`\
-https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-denmark-climatechange-autos.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/07/world/middleeast/07reuters-syria-russia-fm-blockade.html?searchResultPosition=10
 
