@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/09/07/sports/tennis/07reuters-tennis-usopen-hig
 `India's coronavirus infections surged past 4.2 million on Monday as it overtook Brazil to become the country with the second-highest number of cases. `\
 https://nytimes.com/reuters/2020/09/07/world/americas/07reuters-health-coronavirus-india-cases.html?searchResultPosition=8
 
-**India Passes Brazil as Country 2nd-Worst-Hit by Virus**\
-`India became the second worst-hit country by the pandemic on Monday as urban metro trains partially resumed service in the capital New Delhi and other states as the government pushes to sustain a weakened economy. `\
+**India Becomes 2nd Worst-Hit Country, Economic Pain Is Urgent**\
+`India's increasing caseload made the Asian giant the pandemic's second-worst-hit country behind the United States on Monday as its efforts to head off economic disaster gain urgency. `\
 https://nytimes.com/aponline/2020/09/07/business/ap-as-virus-outbreak-india.html?searchResultPosition=9
 
 **AP FACT CHECK: Trump's Errant Views on Voting, Biden Miscues**\
