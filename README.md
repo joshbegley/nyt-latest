@@ -1,40 +1,40 @@
+**Denmark to Limit Public Gatherings in Copenhagen After Coronavirus Spike**\
+`The limit on public gatherings will be lowered to 50 people from 100 in Denmark's capital Copenhagen and in Odense, after a recent spike in number of COVID-19 infections, the country's health minister said on Monday.`\
+https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-health-coronavirus-denmark.html?searchResultPosition=1
+
+**Tokyo Highlights LGBTQ Rights Before Olympics With Pride House**\
+`Tokyo will open Pride House, Japan's first permanent such center, next month to raise awareness of LGBTQ rights before and during the rearranged Olympic Games in 2021.`\
+https://nytimes.com/reuters/2020/09/07/sports/olympics/07reuters-olympics-2020-pride.html?searchResultPosition=2
+
+**Charlie Hebdo Uncowed After Attacks-But Now With Bodyguards**\
+`More than five years after Islamist militants killed 12 of their colleagues, staff at French satirical magazine Charlie Hebdo say they re-published cartoons of the Prophet Mohammad to tell the world they are "still standing" - albeit with a security detail. `\
+https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-france-charliehebdo.html?searchResultPosition=3
+
+**Hundreds of Belarus Protesters Say They Were Beaten by Police, Demand Justice**\
+`Artur Khomenko, an entrepreneur from Minsk, said police officers began beating him with their fists and truncheons after they detained him on the fourth night of huge protests that have weakened Belarusian leader Alexander Lukashenko's grip on power.`\
+https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-belarus-election-police-insight.html?searchResultPosition=4
+
+**Hopes Fading for Coronavirus Deal as Congress Returns**\
+`At least there won't be a government shutdown.`\
+https://nytimes.com/aponline/2020/09/07/business/bc-us-congress-returns.html?searchResultPosition=5
+
 **Search for a Bison After It Attacked Tourist in Poland**\
 `Employees of the Bialowieza nature reserve in eastern Poland were searching for a male bison Monday after it injured a vacationer. `\
-https://nytimes.com/aponline/2020/09/07/world/europe/ap-eu-poland-bison-attack.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/09/07/world/europe/ap-eu-poland-bison-attack.html?searchResultPosition=6
 
 **Amazon Animal Rescue Brings Hope From Blazes Great and Small**\
 `Xita, a tiny monkey with sad brown eyes, clutches her newborn tight. Both are fighting for their lives.`\
-https://nytimes.com/reuters/2020/09/07/world/americas/07reuters-brazil-environment-animals.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/09/07/world/americas/07reuters-brazil-environment-animals.html?searchResultPosition=7
 
 **UK Police Arrest Teenager After Shooting of 15-Year-Old Boy**\
 `British police said a teenager in eastern England has been arrested in connection with the shooting on Monday of a 15-year-old boy on his way to school.`\
-https://nytimes.com/aponline/2020/09/07/world/europe/ap-eu-britain-student-shooting.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/09/07/world/europe/ap-eu-britain-student-shooting.html?searchResultPosition=8
 
 **BioNTech, Pfizer Begin German Part of COVID-19 Vaccine Study**\
 `Biotech firm BioNTech said on Monday it widened an ongoing pivotal global study of its COVID-19 vaccine candidate to include testing in its home country of Germany.`\
-https://nytimes.com/reuters/2020/09/07/us/07reuters-health-coronavirus-pfizer-biontech.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/09/07/us/07reuters-health-coronavirus-pfizer-biontech.html?searchResultPosition=9
 
 **UAE Planning First Official Visit to Israel on Sept. 22: Source**\
 `The United Arab Emirates is planning to make its first official visit to Israel on Sept. 22 to build up the countries' agreement to normalize relations, a source familiar with the provisional itinerary said on Monday.`\
-https://nytimes.com/reuters/2020/09/07/world/middleeast/07reuters-israel-emirates-delegation.html?searchResultPosition=5
-
-**Tunisia Arrests 7 Suspects After Deadly Weekend Attack**\
-`Tunisian authorities say that they have arrested seven people suspected of links to a deadly weekend attack that left one security officer dead and another injured.`\
-https://nytimes.com/aponline/2020/09/07/world/middleeast/ap-ml-tunisia-deadly-attack.html?searchResultPosition=6
-
-**Russian FM in Syria, Meets Assad in First Visit Since 2012**\
-`Russia's foreign minister has met with Syrian President Bashar Assad shortly after landing in the Syrian capital on Monday, his first visit since 2012. `\
-https://nytimes.com/aponline/2020/09/07/world/middleeast/ap-ml-syria-russia.html?searchResultPosition=7
-
-**Russia to Begin Trial COVID Vaccinations of Volunteers This Week: TASS**\
-`Russia will begin offering its COVID-19 vaccine to volunteers this week as part of a trial following the vaccine's registration, the TASS news agency cited Health Minister Mikhail Murashko as saying on Monday. `\
-https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-health-coronavirus-russia-vaccine.html?searchResultPosition=8
-
-**Renault to Develop, Build Next-Generation Nissan Micra: Report**\
-`French carmaker Renault will develop and assemble the next generation of partner Nissan's Micra models, a senior executive at the Japanese firm said, as the two companies try to reboot their alliance with tighter cooperation in production. `\
-https://nytimes.com/reuters/2020/09/07/business/07reuters-renault-nissan-micra.html?searchResultPosition=9
-
-**Thai Court Releases Key Anti-Government Activists**\
-`Two prominent Thai activists arrested last month for their roles in anti-government rallies were released on Monday after spending five days in prison for bail breaches, after police told a court there was no grounds to detain them. `\
-https://nytimes.com/reuters/2020/09/07/world/asia/07reuters-thailand-protests.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/07/world/middleeast/07reuters-israel-emirates-delegation.html?searchResultPosition=10
 
