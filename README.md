@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/09/07/us/ap-us-racial-injustice-police-chief.h
 https://nytimes.com/aponline/2020/09/07/business/ap-us-samsung-verizon.html?searchResultPosition=6
 
 **UK Recovery From Lockdown Deserves More Credit: BoE's Haldane**\
-`The Bank of England's chief economist Andy Haldane hailed the recovery in Britain's economy from its coronavirus lockdown shock, striking a more upbeat tone than several of his colleagues recently.`\
+`The Bank of England's chief economist, Andy Haldane, hailed the recovery so far in Britain's economy after its coronavirus lockdown shock, striking a more upbeat tone than several of his colleagues recently.`\
 https://nytimes.com/reuters/2020/09/07/world/europe/07reuters-britain-boe-haldane.html?searchResultPosition=7
 
 **Japan's Suga Signals Chance of Calling Snap Election: Asahi**\
