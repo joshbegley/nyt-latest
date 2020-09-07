@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/09/06/world/asia/06reuters-health-coronavirus-a
 https://nytimes.com/reuters/2020/09/06/world/americas/06reuters-health-coronavirus-honduras.html?searchResultPosition=9
 
 **Shapovalov Into U.S. Open Quarter-Finals After Goffin Win**\
-`Denis Shapovalov overcame a terrible first set tie-break to beat David Goffin 6-7(0) 6-3 6-4 6-3 on Sunday and become the first Canadian man to advance to the U.S. Open quarter-finals in the Open era.  `\
+`Denis Shapovalov regrouped after losing a terrible first set tie-break to beat David Goffin 6-7(0) 6-3 6-4 6-3 on Sunday and become the first Canadian man to reach the U.S. Open quarter-finals in the Open era.  `\
 https://nytimes.com/reuters/2020/09/06/sports/tennis/06reuters-tennis-usopen-shapovalov.html?searchResultPosition=10
 
