@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/09/07/world/asia/ap-as-indonesia-rohingya.html
 https://nytimes.com/reuters/2020/09/07/business/07reuters-health-coronavirus-australia-manufacturing-analysis.html?searchResultPosition=2
 
 **Almost 300 Rohingya Refugees Arrive in Indonesia's Aceh Province**\
-`Almost 300 Rohingya refugees believed to have been at sea for six months landed in Indonesia’s Aceh province in the early on Monday, Indonesian authorities have confirmed.`\
+`Almost 300 Rohingya refugees believed to have been at sea for six months landed in Indonesia’s Aceh province early on Monday, Indonesian authorities said.`\
 https://nytimes.com/reuters/2020/09/07/world/asia/07reuters-indonesia-rohingya.html?searchResultPosition=3
 
 **Big Tippers: Alaska Man Joins Push to Aid Restaurant Workers**\
