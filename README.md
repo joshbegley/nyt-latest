@@ -24,7 +24,7 @@ https://nytimes.com/aponline/2020/09/08/sports/football/ap-fbn-browns-hunt-exten
 
 **Your Wednesday Briefing**\
 `Rohingya massacres, India-China border, Australian journalists: Here’s what you need to know.`\
-https://nytimes.com/2020/09/08/briefing/rohingya-myanmar-india-china-border.html?searchResultPosition=7
+https://nytimes.com/2020/09/08/briefing/rohingya-myanmar-china-border-india.html?searchResultPosition=7
 
 **Tiny Love Stories: ‘The Loneliness He Made Me Feel’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
