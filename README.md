@@ -1,40 +1,40 @@
+**Convicted Murderer Sworn In to Parliament. Then It Was Back to Jail.**\
+`He may have been convicted of murder and sentenced to death, but a member of Sri Lanka’s Parliament is keeping his day job.`\
+https://nytimes.com/2020/09/08/world/asia/sri-lanka-parliament-murder.html?searchResultPosition=1
+
+**Bohm Hit in 7th Rallies Phillies Over Red Sox 6-5 in Game 1**\
+`Alec Bohm hit a two-out, two-run single in the seventh inning to rally the Philadelphia Phillies over the Boston Red Sox 6-5 on Tuesday in the first game of a doubleheader.`\
+https://nytimes.com/aponline/2020/09/08/sports/baseball/ap-bbo-red-sox-phillies.html?searchResultPosition=2
+
+**Warren Buffett's Duracell Sues Energizer Over Battery Life Claims**\
+`Duracell, the battery unit of Warren Buffett's Berkshire Hathaway Inc, sued the maker of Energizer batteries on Tuesday, accusing it falsely advertising that its Energizer MAX batteries last up to 50% longer than other alkaline batteries.`\
+https://nytimes.com/reuters/2020/09/08/us/08reuters-energizer-duracell-lawsuit.html?searchResultPosition=3
+
+**N.Y. Will Move Homeless Men from Liberal Neighborhood After Backlash**\
+`The move of 300 men to the upscale Upper West Side neighborhood led to complaints and the threat of a lawsuit.`\
+https://nytimes.com/2020/09/08/nyregion/uws-homeless-hotels-nyc.html?searchResultPosition=4
+
+**South Korea August Jobless Rate Logs Fastest Monthly Drop Since 1999**\
+`South Korea's unemployment rate dropped in August by the sharpest monthly decline since 1999 as more people stopped looking for work amid the coronavirus pandemic and floods.`\
+https://nytimes.com/reuters/2020/09/08/world/asia/08reuters-southkorea-economy-unemployment.html?searchResultPosition=5
+
 **Give Money to Babies**\
 `New Jersey’s “baby bonds” plan is a potentially transformative effort in the fight against inequality.`\
-https://nytimes.com/2020/09/08/opinion/baby-bonds-new-jersey.html?searchResultPosition=1
+https://nytimes.com/2020/09/08/opinion/baby-bonds-new-jersey.html?searchResultPosition=6
 
 **Track’s Caster Semenya Loses Appeal to Defend 800-Meter Title**\
 `A ruling by the Swiss Supreme Court appears to have nixed any chance for the South African star to defend her title in her signature event at the Tokyo Olympics next summer.`\
-https://nytimes.com/2020/09/08/sports/olympics/caster-semenya-court-ruling.html?searchResultPosition=2
+https://nytimes.com/2020/09/08/sports/olympics/caster-semenya-court-ruling.html?searchResultPosition=7
 
 **Justice Dept. Intervenes to Help Trump in E. Jean Carroll Rape Lawsuit**\
 `Government lawyers made the unusual move of seeking to take over President Trump’s defense in a defamation suit brought by Ms. Carroll, who has claimed Mr. Trump raped her in the 1990s.`\
-https://nytimes.com/2020/09/08/nyregion/donald-trump-jean-carroll-lawsuit-rape.html?searchResultPosition=3
+https://nytimes.com/2020/09/08/nyregion/donald-trump-jean-carroll-lawsuit-rape.html?searchResultPosition=8
 
 **Coronavirus Briefing: What Happened Today**\
 `Drugmakers pledged to not distribute a vaccine until it had been thoroughly tested.`\
-https://nytimes.com/2020/09/08/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=4
+https://nytimes.com/2020/09/08/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=9
 
 **Republicans Push Scaled-Back Stimulus Plan as Impasse on Virus Aid Persists**\
 `The economic recovery measure Republicans presented on Tuesday is a fraction of the size of their original offer and was immediately dismissed by Democrats as inadequate.`\
-https://nytimes.com/2020/09/08/us/politics/congress-coronavirus-stimulus.html?searchResultPosition=5
-
-**Washington Post Journalist Named Executive Editor at Crown**\
-`A prize-winning journalist at The Washington Post has been named vice president and executive editor at Crown, a prominent division of Penguin Random House where authors include Barack and Michelle Obama. `\
-https://nytimes.com/aponline/2020/09/08/us/ap-us-books-crown-executive-editor-.html?searchResultPosition=6
-
-**Explainer: What We Know About China's 'Dual Circulation' Economic Strategy**\
-`China has unveiled a "dual circulation" strategy to cut its dependence on overseas markets and technology in its long-term development, a shift brought on by a deepening rift with the United States.`\
-https://nytimes.com/reuters/2020/09/08/technology/08reuters-china-economy-transformation-explainer.html?searchResultPosition=7
-
-**Democrats Flip Open the Health Care Playbook**\
-`Coronavirus ads are one thing, but Democrats are also bringing back the messaging that worked so well for them in 2018.`\
-https://nytimes.com/2020/09/08/us/politics/health-care-political-ads.html?searchResultPosition=8
-
-**These Hummingbirds Take Extreme Naps. Some May Even Hibernate.**\
-`To adapt to life in the Andes Mountains, some South American species go into exceptionally deep torpor to save energy.`\
-https://nytimes.com/2020/09/08/science/hummingbirds-torpor-hibernation.html?searchResultPosition=9
-
-**N.Y. Fire Department Replaces Name on Its Highest Award, Citing Racist Past**\
-`The James Gordon Bennett Medal will now be named for Chief Peter J. Ganci, who was killed in the Sept. 11 terror attacks.`\
-https://nytimes.com/2020/09/08/nyregion/nyc-fire-department-bennett-medal.html?searchResultPosition=10
+https://nytimes.com/2020/09/08/us/politics/congress-coronavirus-stimulus.html?searchResultPosition=10
 
