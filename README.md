@@ -1,5 +1,5 @@
-**Convicted Murderer Sworn In to Parliament. Then It Was Back to Jail.**\
-`He may have been convicted of murder and sentenced to death, but a member of Sri Lanka’s Parliament is keeping his day job.`\
+**Convicted of Murder, He Was Sworn In to Parliament. Then It Was Back to Jail.**\
+`He may have been sentenced to death for killing an opposition activist, but a member of Sri Lanka’s Parliament is keeping his day job.`\
 https://nytimes.com/2020/09/08/world/asia/sri-lanka-parliament-murder.html?searchResultPosition=1
 
 **Bohm Hit in 7th Rallies Phillies Over Red Sox 6-5 in Game 1**\
