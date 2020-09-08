@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/09/08/business/bc-us-documentary-the-social-di
 https://nytimes.com/2020/09/08/world/asia/sri-lanka-parliament-murder.html?searchResultPosition=6
 
 **Bohm Hit in 7th Rallies Phillies Over Red Sox 6-5 in Game 1**\
-`Alec Bohm hit a two-out, two-run single in the seventh inning to rally the Philadelphia Phillies over the Boston Red Sox 6-5 on Tuesday in the first game of a doubleheader.`\
+`Alec Bohm delivered again in the clutch for the Phillies.`\
 https://nytimes.com/aponline/2020/09/08/sports/baseball/ap-bbo-red-sox-phillies.html?searchResultPosition=7
 
 **Warren Buffett's Duracell Sues Energizer Over Battery Life Claims**\
