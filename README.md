@@ -1,40 +1,40 @@
+**Innovative, Ultramodern SoFi Stadium Ready to Welcome NFL**\
+`When Stan Kroenke asked his fellow NFL owners for permission to return pro football to Los Angeles nearly a half-decade ago, he won them over by promising something nobody else could realistically deliver.`\
+https://nytimes.com/aponline/2020/09/08/sports/football/ap-fbn-sofi-stadium.html?searchResultPosition=1
+
+**Extra Virus Safeguards Planned for Overturned Ship Removal**\
+`Workers coming to the Georgia coast to cut apart and remove a giant cargo ship that overturned a year ago will be sequestered at a nearby resort, which will close to the public for up to four months, in an effort to prevent coronavirus infections among the salvage team.`\
+https://nytimes.com/aponline/2020/09/08/us/ap-us-overturned-cargo-ship-georgia.html?searchResultPosition=2
+
+**How Major US Stock Indexes Fared Tuesday**\
+`Technology stocks dropped again on Wall Street, pulling the Nasdaq down 10% over the past three trading days. `\
+https://nytimes.com/aponline/2020/09/08/business/ap-financial-markets-box.html?searchResultPosition=3
+
 **Jail Deputy Suspended After Fight With Black Teen**\
 `A white Florida jail deputy has been suspended following a fight that led to a Black teen being hospitalized, officials said.`\
-https://nytimes.com/aponline/2020/09/08/us/ap-us-deputy-teen-fight.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/09/08/us/ap-us-deputy-teen-fight.html?searchResultPosition=4
 
 **New Hampshire Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-house-district-1-primary-election.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-house-district-1-primary-election.html?searchResultPosition=5
 
 **New Hampshire Primary Election Results: Second Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-house-district-2-primary-election.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-house-district-2-primary-election.html?searchResultPosition=6
 
 **New Hampshire Governor Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-governor-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-governor-primary-election.html?searchResultPosition=7
 
 **New Hampshire U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-senate-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-senate-primary-election.html?searchResultPosition=8
 
 **Rhode Island Primary Election Results: Second Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-rhode-island-house-district-2-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/09/08/us/elections/results-rhode-island-house-district-2-primary-election.html?searchResultPosition=9
 
 **Report: Immigration Detention Center Should Release Inmates**\
 `An outside expert who inspected an immigration detention center in Virginia that experienced a massive coronavirus outbreak is recommending that some high-risk inmates be released after finding flaws in the center's screening procedures.`\
-https://nytimes.com/aponline/2020/09/08/us/ap-us-virus-outbreak-detention-center.html?searchResultPosition=7
-
-**Unilever CEO Expects Shareholder Support for UK HQ Move**\
-`Unilever expects shareholders to support its plan to unify its headquarters in London and scrap its Dutch base and believes a potential law enacting an "exit tax" in the Netherlands would breach European Union law, its chief executive said on Tuesday. `\
-https://nytimes.com/reuters/2020/09/08/business/08reuters-unilever-unification.html?searchResultPosition=8
-
-**The Yankees, Poised to Dominate This Year, Are Barely Hanging On**\
-`More than two-thirds into the 2020 season, the talent-laden Yankees are barely holding onto a postseason spot, and only because of an expanded field.`\
-https://nytimes.com/2020/09/08/sports/baseball/new-york-yankees-standings.html?searchResultPosition=9
-
-**U.S. Credit Spreads Unlikely to Tighten Much Further, Says UBS**\
-`The U.S. corporate bond market has made a dramatic recovery from the early stages of the coronavirus pandemic, but it is unlikely to improve further in the near term, according to UBS Group analysts.`\
-https://nytimes.com/reuters/2020/09/08/business/08reuters-usa-credit-ubs-group.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/08/us/ap-us-virus-outbreak-detention-center.html?searchResultPosition=10
 
