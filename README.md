@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/09/08/world/asia/08reuters-usa-election-biden-t
 https://nytimes.com/reuters/2020/09/08/sports/tennis/08reuters-tennis-men-players.html?searchResultPosition=3
 
 **UN Detects Virus Cases in Syrian Refugee Camp in Jordan**\
-`The U.N. agency for refugees says it has confirmed two coronavirus cases in the Azraq camp for Syrian refugees in Jordan. `\
+`The U.N. agency for refugees said Tuesday it has confirmed two coronavirus cases in the Azraq camp for Syrian refugees in Jordan. `\
 https://nytimes.com/aponline/2020/09/08/world/middleeast/ap-ml-virus-outbreak-syrian-refugees.html?searchResultPosition=4
 
 **UK Minister Says Internal Market Bill Will Be in Keeping With Brexit Deal**\
