@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/09/07/business/bc-as-japan-economy.html?search
 `Australia's competition regulator on Tuesday said it would look into the use of and sharing of data by apps and the extent of competition between Apple Inc's and Google's app stores.`\
 https://nytimes.com/reuters/2020/09/07/business/07reuters-australia-regulator-apple-alphabet.html?searchResultPosition=3
 
-**Little if Any Growth Expected in Mexico's 2021 Budget: Senior Lawmaker**\
+**Little if Any Growth Expected in Mexico's 2021 Budget, Senior Lawmaker Says**\
 `The Mexican government's 2021 spending blueprint will likely forecast revenue similar to this year's level, or 6.1 trillion pesos ($282 billion), a senior lawmaker said on Monday, modestly boosting health spending but keeping taxes at current levels. `\
 https://nytimes.com/reuters/2020/09/07/world/americas/07reuters-mexico-budget-lawmaker.html?searchResultPosition=4
 
