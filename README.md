@@ -1,40 +1,40 @@
+**Netanyahu Slams Israeli Police Amid Report About Cover-Up**\
+`Prime Minister Benjamin Netanyahu lashed out at the country's law enforcement system on Tuesday, continuing a crusade to discredit those who have pressed corruption cases against him ahead of the resumption of his trial early next year.`\
+https://nytimes.com/aponline/2020/09/08/world/middleeast/ap-ml-israel-netanyahu.html?searchResultPosition=1
+
+**France Postpones Foreign, Defence Minister Talks With Russia**\
+`France has postponed bilateral talks with Russia's foreign and defence ministers originally scheduled for next week, the French government said on Tuesday. `\
+https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-russia-politics-navalny-france.html?searchResultPosition=2
+
+**U.S. CDC Reports 188,688 Deaths From Coronavirus**\
+`The U.S. Centers for Disease Control and Prevention (CDC) said on Tuesday the number of deaths due to the new coronavirus had risen by 175 to 188,688 and reported 6,287,362 cases, an increase of 26,146 cases from its previous count.`\
+https://nytimes.com/reuters/2020/09/08/us/08reuters-health-coronavirus-usa-cdc.html?searchResultPosition=3
+
+**Turkey Scales Back School Reopening Amid Rise in COVID-19 Cases**\
+`Turkey announced on Tuesday it was scaling back plans to reopen schools later this month, with only the youngest pupils beginning classes at first, for up to two days a week.`\
+https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-turkey-education.html?searchResultPosition=4
+
+**Sun Earn Playoff Berth, Seattle Back on Top of Power Poll**\
+`DeWanna Bonner got off to a great individual start to the season, but as she was thriving the Connecticut Sun lost their first five games.`\
+https://nytimes.com/aponline/2020/09/08/sports/basketball/ap-bkl-around-the-wnba.html?searchResultPosition=5
+
+**UK Reports 2,460 New COVID-19 Cases**\
+`The United Kingdom reported 2,460 confirmed new cases of COVID-19, according to government data published on Tuesday, compared to 2,948 on Monday.`\
+https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-britain-data.html?searchResultPosition=6
+
+**Ex-Fixer for Trump Links Falwell’s Endorsement in 2016 to Suppression of Racy Photos**\
+`In his book released today, Michael Cohen, the former fixer for U.`\
+https://nytimes.com/reuters/2020/09/08/us/politics/08reuters-usa-falwell-endorsement.html?searchResultPosition=7
+
 **French Prime Minister Castex Has Tested Negative for COVID-BFM TV**\
 `French Prime Minister Jean Castex has tested negative for the COVID-19 virus, BFM TV reported on Tuesday, citing Castex's Matignon department.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-france-politics.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-france-politics.html?searchResultPosition=8
 
 **Column: Credibility for Dustin Johnson and for the FedEx Cup**\
 `Sometime after Paul Azinger stopped winning and before he went on television to talk about those who were, he described pressure in the simplest terms. He said players only choked for cash or prestige.`\
-https://nytimes.com/aponline/2020/09/08/sports/golf/ap-glf-on-the-fringe-johnson.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/09/08/sports/golf/ap-glf-on-the-fringe-johnson.html?searchResultPosition=9
 
 **U.S. House Members Ask Trump to Probe Navalny Poisoning, Suggest Sanctions**\
 `The Republican and Democratic leaders of the U.S. House of Representatives Foreign Affairs Committee called on President Donald Trump's administration on Tuesday to investigate the suspected poisoning of Russian opposition leader Alexei Navalny, suggesting sanctions might be necessary.`\
-https://nytimes.com/reuters/2020/09/08/us/politics/08reuters-russia-politics-navalny-usa.html?searchResultPosition=3
-
-**Computer Glitches Disrupt Classes as Schools Return Online**\
-`As millions of American youngsters start the school year with online classes at home because of the coronavirus, they are running into technical glitches and other headaches that have thrust many a harried parent into the role of teacher’s aide and tech support person.`\
-https://nytimes.com/aponline/2020/09/08/us/ap-us-virus-outbreak.html?searchResultPosition=4
-
-**Palestinian Economic Woes Compounded by COVID-19: U.N. Report**\
-`The COVID-19 pandemic is compounding dire economic conditions in the Palestinian territories, where GDP per capita was already projected to fall by 3% to 4.5% this year, a United Nations agency said on Tuesday.`\
-https://nytimes.com/reuters/2020/09/08/world/middleeast/08reuters-israel-palestinian-un.html?searchResultPosition=5
-
-**'Start Me Up'-Rolling Stones Open Store in London Despite Pandemic**\
-`The Rolling Stones will open their first dedicated store on Wednesday in London's Carnaby Street, despite the coronavirus pandemic having drastically reduced footfall and the number of tourists visiting the city. `\
-https://nytimes.com/reuters/2020/09/08/arts/08reuters-music-rolling-stones-britain-store.html?searchResultPosition=6
-
-**Mexican President Says Would Extradite Predecessor Calderon to U.S.**\
-`Mexican President Andres Manuel Lopez Obrador said he would extradite former President Felipe Calderon to the United States if Washington asked him to, according to an interview published on Tuesday.`\
-https://nytimes.com/reuters/2020/09/08/world/americas/08reuters-mexico-politics.html?searchResultPosition=7
-
-**Police Detain Dozens at Protests in Belarusian Capital: Eyewitness**\
-`Belarusian police detained dozens of people during a protest on Tuesday in the capital Minsk, according to an eyewitness.    `\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-belarus-election-protests-detentions.html?searchResultPosition=8
-
-**Outdoor Dining for Ceetay and Hudson Smokehouse in Mott Haven**\
-`It is the first South Bronx setup of the Rockwell Group’s DineOut NYC systems installed across the city.`\
-https://nytimes.com/2020/09/08/dining/nyc-restaurant-news.html?searchResultPosition=9
-
-**Gene Budig, Academic Who Ran American League, Dies at 81**\
-`Gene Budig, the self-effacing educator and baseball fan from small-town Nebraska who became the head of three major universities and the last president of the American League, died Tuesday. He was 81.`\
-https://nytimes.com/aponline/2020/09/08/sports/baseball/ap-bbo-obit-budig-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/08/us/politics/08reuters-russia-politics-navalny-usa.html?searchResultPosition=10
 
