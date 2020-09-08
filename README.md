@@ -34,7 +34,7 @@ https://nytimes.com/2020/09/08/us/politics/georgia-double-voting.html?searchResu
 `A dog has been credited with saving an Alabama family’s lives after his bark awakened them to a fire that was sweeping through their rental home early Tuesday morning.`\
 https://nytimes.com/aponline/2020/09/08/us/ap-us-house-fire-hero-dog.html?searchResultPosition=9
 
-**Rochester Police Leaders Retire in Wake of Calls for Change**\
-`Top police leaders in Rochester are retiring en masse amid criticism of the city's handling of the the suffocation death of Daniel Prude, Mayor Lovely Warren said Tuesday.`\
+**Rochester Police Leaders Retire After Suffocation Death**\
+`Top police leaders in New York's third-largest city are retiring en masse amid criticism of the city's handling of the suffocation death of Daniel Prude, the mayor of Rochester said Tuesday.`\
 https://nytimes.com/aponline/2020/09/08/us/ap-us-rochester-police-death.html?searchResultPosition=10
 
