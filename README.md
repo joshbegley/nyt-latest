@@ -1,40 +1,40 @@
+**First Pandemic, Now Ransomware: Attack Forces Hartford to Postpone School**\
+`Officials were not sure when the Connecticut city’s 18,000 public school students would be able to return to class.`\
+https://nytimes.com/2020/09/08/nyregion/hartford-schools-ransomware.html?searchResultPosition=1
+
+**U.S. Slaps Sanctions on Two Former Lebanese Ministers Over Ties to Hezbollah**\
+`The United States on Tuesday backlisted two former Lebanese ministers, saying they provided material and financial help to Hezbollah in Lebanon, stepping up U.S. action against the Iran-backed Shi'ite group after the August blast in Beirut that left the country reeling.`\
+https://nytimes.com/reuters/2020/09/08/world/middleeast/08reuters-lebanon-crisis-usa-sanctions.html?searchResultPosition=2
+
+**Czech Government Seeks to Keep Economy Running as COVID-19 Cases Rise**\
+`The Czech Republic is aiming to avoid imposing strict limitations on public life and business to spare its economy another shock, a government official said on Tuesday, despite a jump in the number of coronavirus cases.`\
+https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-czech.html?searchResultPosition=3
+
+**Boris Johnson Facing Revolt Over Northern Ireland Pact**\
+`The government’s top lawyer has quit, and even a government minister admits the prime minister’s effort to rewrite the treaty violates international law.`\
+https://nytimes.com/2020/09/08/world/europe/boris-johnson-brexit-northern-ireland.html?searchResultPosition=4
+
+**Report: Iowa Teen's Starvation Death Was Preventable**\
+`An Iowa teenager who died of starvation in 2017 could have been saved if state social workers and contractors had been more thorough when they investigated the girl's living conditions, a state watchdog said Tuesday.`\
+https://nytimes.com/aponline/2020/09/08/us/ap-us-iowa-starvation-report.html?searchResultPosition=5
+
+**Virginia Official Resigns Amid Controversy on Statue Charges**\
+`The Portsmouth city manager has resigned amid an ongoing dispute over charges filed against a Black state senator and several others who the city’s police department say were conspiring to damage a Confederate monument.`\
+https://nytimes.com/aponline/2020/09/08/us/ap-us-racial-injustice-city-manager-.html?searchResultPosition=6
+
+**Positive Covid Tests in No-Lockdown Sweden Hit Lowest Rate Since Pandemic Began**\
+`Sweden carried out a record number of new coronavirus tests last week with only 1.2% coming back positive, the health agency said on Tuesday, the lowest rate since the pandemic began at a time when countries across Europe are seeing surges in infections.`\
+https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-sweden-strategy.html?searchResultPosition=7
+
 **GM CEO Moves to Remake U.S. Automaker for EV Future**\
 `General Motors Co Chief Executive Mary Barra has reeled off two significant deals in the past week in response to investor concerns the No. 1 U.S. automaker is stuck in neutral while Tesla Inc and other electric vehicle makers are leaving legacy automakers behind.`\
-https://nytimes.com/reuters/2020/09/08/business/08reuters-gm-electric-shareholders-analysis.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/08/business/08reuters-gm-electric-shareholders-analysis.html?searchResultPosition=8
 
 **Chiefs, Texans Fine-Tuning for NFL Opener Thursday Night**\
 `Perhaps never before has the final full practice before an NFL game been more important than this season.`\
-https://nytimes.com/aponline/2020/09/08/sports/football/ap-fbn-chiefs-fine-tuning.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/09/08/sports/football/ap-fbn-chiefs-fine-tuning.html?searchResultPosition=9
 
 **Netanyahu Slams Israeli Police Amid Report About Cover-Up**\
 `Prime Minister Benjamin Netanyahu lashed out at the country's law enforcement system on Tuesday, continuing a crusade to discredit those who have pressed corruption cases against him ahead of the resumption of his trial early next year.`\
-https://nytimes.com/aponline/2020/09/08/world/middleeast/ap-ml-israel-netanyahu.html?searchResultPosition=3
-
-**France Postpones Foreign, Defence Minister Talks With Russia**\
-`France has postponed bilateral talks with Russia's foreign and defence ministers originally scheduled for next week, the French government said on Tuesday. `\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-russia-politics-navalny-france.html?searchResultPosition=4
-
-**U.S. CDC Reports 188,688 Deaths From Coronavirus**\
-`The U.S. Centers for Disease Control and Prevention (CDC) said on Tuesday the number of deaths due to the new coronavirus had risen by 175 to 188,688 and reported 6,287,362 cases, an increase of 26,146 cases from its previous count.`\
-https://nytimes.com/reuters/2020/09/08/us/08reuters-health-coronavirus-usa-cdc.html?searchResultPosition=5
-
-**Turkey Scales Back School Reopening Amid Rise in COVID-19 Cases**\
-`Turkey announced on Tuesday it was scaling back plans to reopen schools later this month, with only the youngest pupils beginning classes at first, for up to two days a week.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-turkey-education.html?searchResultPosition=6
-
-**Sun Earn Playoff Berth, Seattle Back on Top of Power Poll**\
-`DeWanna Bonner got off to a great individual start to the season, but as she was thriving the Connecticut Sun lost their first five games.`\
-https://nytimes.com/aponline/2020/09/08/sports/basketball/ap-bkl-around-the-wnba.html?searchResultPosition=7
-
-**UK Reports 2,460 New COVID-19 Cases**\
-`The United Kingdom reported 2,460 confirmed new cases of COVID-19, according to government data published on Tuesday, compared to 2,948 on Monday.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-britain-data.html?searchResultPosition=8
-
-**Ex-Fixer for Trump Links Falwell’s Endorsement in 2016 to Suppression of Racy Photos**\
-`In his book released today, Michael Cohen, the former fixer for U.`\
-https://nytimes.com/reuters/2020/09/08/us/politics/08reuters-usa-falwell-endorsement.html?searchResultPosition=9
-
-**French Prime Minister Castex Has Tested Negative for COVID-BFM TV**\
-`French Prime Minister Jean Castex has tested negative for the COVID-19 virus, BFM TV reported on Tuesday, citing Castex's Matignon department.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-france-politics.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/09/08/world/middleeast/ap-ml-israel-netanyahu.html?searchResultPosition=10
 
