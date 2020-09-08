@@ -1,40 +1,40 @@
+**Who Will Be the Biden Trade Czar if He Wins in November?**\
+`Democratic presidential nominee Joe Biden is tapping some of the most experienced trade professionals in Washington to help chart a new course on trade if he is elected.`\
+https://nytimes.com/reuters/2020/09/08/world/asia/08reuters-usa-election-biden-trade-people.html?searchResultPosition=1
+
+**Djokovic's Breakaway Players Body Has Blindsided ATP Council: Anderson**\
+`The launch of Novak Djokovic's breakaway players body just before the U.S. Open completely blindsided the ATP player council and could undermine the structure of the men's tour, acting president Kevin Anderson told Reuters.`\
+https://nytimes.com/reuters/2020/09/08/sports/tennis/08reuters-tennis-men-players.html?searchResultPosition=2
+
+**UN Detects Virus Cases in Syrian Refugee Camp in Jordan**\
+`The U.N. agency for refugees says it has confirmed two coronavirus cases in the Azraq camp for Syrian refugees in Jordan. `\
+https://nytimes.com/aponline/2020/09/08/world/middleeast/ap-ml-virus-outbreak-syrian-refugees.html?searchResultPosition=3
+
+**UK Minister Says Internal Market Bill Will Be in Keeping With Brexit Deal**\
+`Northern Ireland minister Brandon Lewis said the British government would honour its international commitments and a bill on Britain's internal market would be in keeping with the divorce deal signed with the European Union earlier this year.`\
+https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-britain-eu-lewis.html?searchResultPosition=4
+
+**Some Gardeners in a Pickle Over Scarce Canning Supplies**\
+`It’s the time of year when gardeners are turning their ripe tomatoes into sauces and salsas and cucumbers into pickles. But a boom in gardening and preparing food at home during the coronavirus pandemic has led to a scarcity of supplies with which to preserve them. `\
+https://nytimes.com/aponline/2020/09/08/us/ap-us-virus-outbreak-scarce-canning-supplies.html?searchResultPosition=5
+
+**Rapper Genesis Be's Long Battle Versus the Confederate Flag**\
+`The path that brought rapper and activist Genesis Be to a New York City stage, her body draped in a Confederate flag and a noose hung around her neck, was a long one.`\
+https://nytimes.com/aponline/2020/09/08/us/ap-us-rel-racial-injustice-genesis-be.html?searchResultPosition=6
+
+**General Motors Taking $2B Equity Stake in Nikola**\
+`General Motors is taking a $2 billion equity stake in Nikola that will see it engineer and make the company's Badger, a fully-electric and hydrogen fuel cell electric pickup truck.`\
+https://nytimes.com/aponline/2020/09/08/business/ap-us-gm-nikola.html?searchResultPosition=7
+
+**TikTok Scrambles to Remove Suicide Video Clips, Ban Users**\
+`TikTok says it's working to remove videos of a man apparently taking his own life and banning users that keep trying to spread the clips on the popular social media platform.`\
+https://nytimes.com/aponline/2020/09/08/business/ap-tiktok-suicide-video.html?searchResultPosition=8
+
+**Pulled in Many Directions, Biden May Keep Trump's China Tariffs in Place**\
+`“Damaging,” “reckless” and “disastrous” are some of the words Joe Biden has used to describe tariffs imposed by Donald Trump on allies and rivals alike.He may keep some in place anyway if he is elected president of the United States in November.`\
+https://nytimes.com/reuters/2020/09/08/world/asia/08reuters-usa-election-biden-trade-analysis.html?searchResultPosition=9
+
 **Virtual New Yorker Festival Will Host Chris Rock and Elizabeth Warren**\
 `This year’s lineup will also include Dr. Anthony Fauci and Representative Alexandria Ocasio-Cortez, in addition to Yo-Yo Ma and other entertainers.`\
-https://nytimes.com/2020/09/08/arts/new-yorker-festival-chris-rock-elizabeth-warren.html?searchResultPosition=1
-
-**New Apartments in the Suburbs Attract New Yorkers**\
-`City residents head to new developments in walkable suburban communities where they can get apartments with more indoor and outdoor space.`\
-https://nytimes.com/2020/09/08/realestate/suburbs-attract-new-yorkers.html?searchResultPosition=2
-
-**General Motors Acquires 11% Stake in Electric Truck Maker Nikola**\
-`General Motors Co said on Tuesday it was acquiring an 11% stake, worth $2 billion, in U.S. electric truck maker Nikola Corp.`\
-https://nytimes.com/reuters/2020/09/08/business/08reuters-gm-nikola-investment.html?searchResultPosition=3
-
-**Assange Warned He Will Be Removed From London Court if Outbursts Continue**\
-`Julian Assange, the Wikileaks founder who is fighting to avoid extradition to the United States from Britain, was warned by a judge on Tuesday he will be removed from the courtroom and tried in his absence if he continues to interrupt proceedings.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-britain-assange.html?searchResultPosition=4
-
-**Iranian TV: British-Iranian Dual National Faces New Charge**\
-`Iran's state TV, citing an unnamed official, announced Tuesday that British-Iranian dual national Nazanin Zaghari-Ratcliffe is facing a new charge. `\
-https://nytimes.com/aponline/2020/09/08/world/middleeast/ap-ml-iran-dual-nationals.html?searchResultPosition=5
-
-**IAG Shareholders Provisionally Approve Capital Raise**\
-`Shareholders in airlines group IAG overwhelmingly voted to approve the increase in the company shares for a rights issue to raise 2.75 billion euros ($3.25 billion) at its annual meeting on Tuesday, according to the provisional result.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-iag-finances-votes.html?searchResultPosition=6
-
-**India Weighing Russian Offer for Sputnik-V Vaccine Trial, Manufacturing: Official**\
-`India has received an offer from Russia to conduct a trial and manufacture its "Sputnik-V" COVID-19 vaccine, with several Indian companies currently studying the proposal, an Indian government official said on Tuesday.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-india-russia.html?searchResultPosition=7
-
-**French PM to Have COVID Test After Contact at Tour De France**\
-`French Prime Minister Jean Castex is to undergo a COVID-19 test as a precaution after he shared a car with the director of the Tour de France cycle race, who has since tested positive for the virus, the prime minister's office said on Tuesday.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-france-pm.html?searchResultPosition=8
-
-**Officers Capture 1 of 2 Fugitives After Georgia Deputy Shot**\
-`Law officers have apprehended one of two Texas fugitives wanted after a Georgia deputy was shot during a traffic stop, the Georgia Bureau of Investigation said Tuesday.`\
-https://nytimes.com/aponline/2020/09/08/us/ap-us-georgia-deputy-shot.html?searchResultPosition=9
-
-**Trump's Ex-Lawyer Cohen Says President Disparaged Black Leaders and Voters: Report**\
-`Michael Cohen, U.S. President Donald Trump's former personal lawyer, is alleging in a new book that Trump made disparaging remarks about Black world leaders including former South African President Nelson Mandela, as well as about U.S. minorities in general, the Washington Post reported on Saturday.`\
-https://nytimes.com/reuters/2020/09/08/us/politics/08reuters-usa-trump-cohen.html?searchResultPosition=10
+https://nytimes.com/2020/09/08/arts/new-yorker-festival-chris-rock-elizabeth-warren.html?searchResultPosition=10
 
