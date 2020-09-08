@@ -1,40 +1,40 @@
-**How the Aging Immune System Makes Older People Vulnerable to Covid-19**\
-`As we age, the immune system begins to shift into a heightened state of alert, dialing up inflammation and running out of certain immune cells.`\
-https://nytimes.com/2020/09/08/health/covid-aging-immune-system.html?searchResultPosition=1
+**Japan's PM Frontrunner Vows Insurance Coverage for Fertility Treatments**\
+`Yoshihide Suga, the frontrunner to become Japan's next prime minister, on Wednesday proposed insurance coverage for expensive fertility treatments.`\
+https://nytimes.com/reuters/2020/09/08/world/asia/08reuters-japan-politics-suga-birth.html?searchResultPosition=1
 
-**‘Or I Will Stab You Right Now’: A Family’s Prison Extortion Nightmare**\
-`While serving time, Ryan Rust was beaten, stabbed and threatened with hot oil if his relatives didn’t pay up. After disturbing calls and texts, they bought guns for protection.`\
-https://nytimes.com/2020/09/08/us/alabama-prisons-extortion-cellphones.html?searchResultPosition=2
+**From Clown Shoes to Quarter-Finals: Aussie De Minaur Savours Breakthrough**\
+`Australia's Alex de Minaur once struggled to grow into his body as a tennis player but the tenacious 21-year-old feels himself a snug fit in the U.S. Open quarter-finals.`\
+https://nytimes.com/reuters/2020/09/08/world/asia/08reuters-tennis-usopen-minaur.html?searchResultPosition=2
 
-**Comic Books Flourish on Crowdfunding Sites, Drawing Big Names**\
-`Prominent arrivals include Boom Studios, which is working with Keanu Reeves on a Kickstarter project. But critics are questioning whether projects from established publishers are crowding out others.`\
-https://nytimes.com/2020/09/08/business/media/comic-books-kickstarter-crowdfunding.html?searchResultPosition=3
+**Ukraine Reports Record Number of Daily Coronavirus Deaths**\
+`Ukraine registered a record 57 deaths related to the new coronavirus in the past 24 hours, the national security council said on Tuesday, up from a previous record of 54 deaths registered last week.`\
+https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-ukraine-casualties.html?searchResultPosition=3
 
-**Tina Charles Is a W.N.B.A. Superstar Hiding in Plain Sight**\
-`Charles has stacks of awards and eye-popping stats from her run with the Liberty. But a W.N.B.A. championship, and the spotlight, have eluded her.`\
-https://nytimes.com/2020/09/08/sports/basketball/tina-charles-liberty-mystics-wnba.html?searchResultPosition=4
+**Global Stocks Firm, Shrug Off Tech Rout Scare and Sino-U.S. Tensions**\
+`Asian shares gained on Tuesday following a small bounce in European markets and shrugging off concerns over the latest U.S.-China tensions, as investors looked to whether high-flying U.S. tech shares could recover from their recent rout.`\
+https://nytimes.com/reuters/2020/09/08/business/08reuters-global-markets.html?searchResultPosition=4
 
-**Unofficial End of Summer**\
-`How did you celebrate Labor Day weekend?`\
-https://nytimes.com/2020/09/08/learning/unofficial-end-of-summer.html?searchResultPosition=5
+**‘Kill All You See’: In a First, Myanmar Soldiers Tell of Rohingya Slaughter**\
+`Video testimony from two soldiers supports widespread accusations that Myanmar’s military tried to eradicate the ethnic minority in a genocidal campaign.`\
+https://nytimes.com/2020/09/08/world/asia/myanmar-rohingya-genocide.html?searchResultPosition=5
 
-**Pakistani Rescuers Pull 8 More Bodies From Collapsed Mine**\
-`Rescue crews using heavy machinery pulled eight more bodies on Tuesday from a collapsed marble mine in northwestern Pakistan, raising the death toll from the incident to 16, officials said. `\
-https://nytimes.com/aponline/2020/09/08/world/asia/ap-as-pakistan-collapsed-mine.html?searchResultPosition=6
+**Lawyers Allege 'Hotel Rwanda' Hero Faces Risk of Torture**\
+`The legal team for “Hotel Rwanda” hero Paul Rusesabagina has filed a complaint with the United Nations special rapporteur on torture asserting that Rusesabagina faces an “immediate risk” of cruel treatment as he remains cut off from lawyers, consular officials and his family more than a week after he appeared in handcuffs in Rwanda.`\
+https://nytimes.com/aponline/2020/09/08/world/africa/ap-af-rwanda-hotel-rwanda-arrest.html?searchResultPosition=6
 
-**Beyond Meat Signs Deal to Open Production Facility Near Shanghai**\
-`Beyond Meat Inc said on Tuesday it had signed a deal to open a production facility near the business hub of Shanghai, as the plant-based meat products maker ramps up its focus on the rapidly growing Chinese market.`\
-https://nytimes.com/reuters/2020/09/08/business/08reuters-china-beyond-meat.html?searchResultPosition=7
+**India, China Accuse Each Other of Firing in the Air on Tense Border**\
+`India and China have accused each other of firing in the air during a new confrontation on their border in the western Himalayas, in a further escalation of military tension between the nuclear-armed nations. `\
+https://nytimes.com/reuters/2020/09/08/world/asia/08reuters-india-china.html?searchResultPosition=7
 
-**Australian Watchdog to Examine Competition Between Apple, Google App Stores**\
-`Australia's competition regulator on Tuesday said it would look into the extent of competition between the app stores of Apple Inc and Google, and also examine whether more pricing transparency is needed in the country's mobile apps market.`\
-https://nytimes.com/reuters/2020/09/08/business/08reuters-australia-regulator-apple-alphabet.html?searchResultPosition=8
+**What Should I Look For in a Hand Sanitizer?**\
+`What should I look for in a hand sanitizer?`\
+https://nytimes.com/aponline/2020/09/08/us/ap-us-virus-outbreak-viral-questions-hand-sanitizer.html?searchResultPosition=8
 
-**UK Says on Brexit: We'll Leave With No Deal Unless the EU Is Flexible**\
-`Britain's housing minister said on Tuesday that unless the European Union started to show more flexibility to help clinch a Canadian-style free trade deal then the government would be happy to leave the bloc without a deal.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-britain-eu-jenrick-brexit.html?searchResultPosition=9
+**Spain Pushes for EU Harmonisation of COVID Travel Measures, Foreign Minister Says**\
+`Spain's Foreign Minister Arancha Gonzalez Laya said on Tuesday her government was pushing for a European Union harmonisation of COVID-19 travel measures to limit problems for tourists and tourism operators.`\
+https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-health-coronavirus-spain-travel.html?searchResultPosition=9
 
-**German Engineering Sector Sees Production Growing by 2% in 2021: VDMA**\
-`German engineering firms expects production to decline by 17% this year before growing by 2% in 2021 due to the impact of the coronavirus pandemic and protectionism in international trade, business association VDMA said on Tuesday.`\
-https://nytimes.com/reuters/2020/09/08/world/europe/08reuters-germany-economy-engineering.html?searchResultPosition=10
+**Asian Shares Rise as US Set to Reopen From Labor Day Holiday**\
+`Asian shares rose Tuesday, after European stocks rallied and U.S. markets were closed for the Labor Day national holiday. `\
+https://nytimes.com/aponline/2020/09/08/business/bc-financial-markets.html?searchResultPosition=10
 
