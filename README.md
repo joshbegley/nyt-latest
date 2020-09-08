@@ -19,7 +19,7 @@ https://nytimes.com/2020/09/08/arts/television/review-woke.html?searchResultPosi
 https://nytimes.com/aponline/2020/09/08/us/ap-us-rockies-weather-1st-ld-writethru.html?searchResultPosition=5
 
 **Crazy Weather in Colorado: Roasting Yesterday, Snowing Today**\
-`Temperatures plunged more than 50 degrees overnight as an Arctic air mass drove into the Denver area, bringing a very early winter snowstorm on Tuesday.`\
+`Temperatures plunged more than 50 degrees overnight as an Arctic air mass drove into the Denver area, bringing a very early winter storm on Tuesday.`\
 https://nytimes.com/2020/09/08/us/denver-snow-weather.html?searchResultPosition=6
 
 **Egypt Air to Resume Direct Flights Between Cairo and Moscow Sept 17: MENA**\
