@@ -1,22 +1,22 @@
-**New Hampshire Primary Election Results: First Congressional District**\
-``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-house-district-1-primary-election.html?searchResultPosition=1
-
-**New Hampshire U.S. Senate Primary Election Results**\
-``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-senate-primary-election.html?searchResultPosition=2
-
-**New Hampshire Primary Election Results: Second Congressional District**\
-``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-house-district-2-primary-election.html?searchResultPosition=3
-
 **New Hampshire Governor Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-governor-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-governor-primary-election.html?searchResultPosition=1
 
 **Rhode Island Primary Election Results: Second Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/09/08/us/elections/results-rhode-island-house-district-2-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/09/08/us/elections/results-rhode-island-house-district-2-primary-election.html?searchResultPosition=2
+
+**New Hampshire Primary Election Results: First Congressional District**\
+``\
+https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-house-district-1-primary-election.html?searchResultPosition=3
+
+**New Hampshire Primary Election Results: Second Congressional District**\
+``\
+https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-house-district-2-primary-election.html?searchResultPosition=4
+
+**New Hampshire U.S. Senate Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/09/08/us/elections/results-new-hampshire-senate-primary-election.html?searchResultPosition=5
 
 **The Yankees, Poised to Dominate This Year, Are Barely Hanging On**\
 `More than two-thirds into the 2020 season, the talent-laden Yankees are barely holding onto a postseason spot, and only because of an expanded field.`\
