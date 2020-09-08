@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/09/08/sports/tennis/08reuters-tennis-usopen-fac
 https://nytimes.com/reuters/2020/09/08/sports/tennis/08reuters-tennis-usopen-shapovalov-preview.html?searchResultPosition=8
 
 **Murphy Hits Homer, Two-Run Single, A's Take 1st From Astros**\
-`Sean Murphy homered and hit a two-run single to help Chris Bassitt snap a three-start winless stretch, and the Oakland Athletics beat the Houston Astros 6-0 on Monday night with both teams missing star players.`\
+`When their star players go down, the Oakland Athletics turn to their depth.`\
 https://nytimes.com/aponline/2020/09/08/sports/baseball/ap-bba-astros-athletics.html?searchResultPosition=9
 
 **Hong Kong Residents Arrested at Sea 'Will Have to Be Dealt With' by Mainland China: Lam**\
