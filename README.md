@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/09/08/us/08reuters-usa-biofuels-exclusive.html?
 https://nytimes.com/2020/09/08/todayspaper/quotation-of-the-day-ghostly-offices-haunt-new-york-as-rebound-lags.html?searchResultPosition=4
 
 **Vegas Is Back, Baby: Golden Knights Beat Stars to Tie Series**\
-`Paul Stastny scored to end a lengthy goal drought by Vegas forwards, Robin Lehner stopped all 24shots he faced for his fourth shutout of the playoffs and the Golden Knights rediscovered their winning ways and beat the Dallas Stars 3-0 Tuesday in Game 2 of the Western Conference final, evening the series.`\
+`Paul Stastny scored to end a lengthy goal drought by Vegas forwards, Robin Lehner stopped all 24 shots he faced for his fourth shutout of the playoffs and the Golden Knights rediscovered their winning ways and beat the Dallas Stars 3-0 Tuesday in Game 2 of the Western Conference final, evening the series.`\
 https://nytimes.com/aponline/2020/09/08/sports/hockey/bc-hkn-stars-golden-knights.html?searchResultPosition=5
 
 **Defending Champion Mystics Keep Playoff Hopes Alive**\
