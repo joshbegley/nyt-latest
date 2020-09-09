@@ -2,7 +2,7 @@
 `William J. Flynn, the agency’s chief executive, warned of additional cuts to Amtrak’s service and work force to “stave off bankruptcy” if Congress did not provide any additional emergency funding.`\
 https://nytimes.com/2020/09/09/us/politics/coronavirus-amtrak.html?searchResultPosition=1
 
-**Whistleblower: D.H.S. Leaders Downplayed Threats from Russia and White Supremacists**\
+**Whistle-blower: D.H.S. Leaders Downplayed Threats From Russia and White Supremacists**\
 `The former head of the Homeland Security Department’s intelligence division has accused three senior leaders of warping the agency around President Trump’s rhetoric.`\
 https://nytimes.com/2020/09/09/us/politics/homeland-security-russia-trump.html?searchResultPosition=2
 
