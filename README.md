@@ -1,40 +1,40 @@
-**Earthquake Strikes New Jersey, Shaking Reported Across State**\
-`A magnitude 3.1 earthquake struck in East Freehold, New Jersey, early Wednesday morning, the U.S. Geological Survey reported.`\
-https://nytimes.com/aponline/2020/09/09/us/ap-us-new-jersey-earthquake.html?searchResultPosition=1
+**Pawling, N.Y.: A Quaint Place With Acres of Open Space**\
+`Unsurprisingly, the pandemic-era real estate market in this Dutchess County town has been ‘crazy,’ with some homes selling for over asking price.`\
+https://nytimes.com/2020/09/09/realestate/pawling-new-york.html?searchResultPosition=1
 
-**Philippines Reports 3,176 New Coronavirus Infections, 70 More Deaths**\
-`The Philippines' health ministry on Wednesday reported 3,176 more novel coronavirus infections and 70 additional deaths.`\
-https://nytimes.com/reuters/2020/09/09/world/asia/09reuters-health-coronavirus-philippines.html?searchResultPosition=2
+**English Warned Limits on Gatherings May Last Til Christmas**\
+`New limits on social gatherings in England to six people are set to stay in place for the “foreseeable future,” potentially until or even through Christmas, British Health Secretary Matt Hancock said Wednesday.`\
+https://nytimes.com/aponline/2020/09/09/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=2
 
-**Belarus Says Police Detained 121 People on Tuesday During Protests**\
-`Belarusian police detained 121 people at protests across the country on Tuesday, the Interior Ministry said in a statement on Wednesday.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-belarus-election-detentions.html?searchResultPosition=3
+**Living In ... Pawling, N.Y.**\
+`Unsurprisingly, the pandemic-era real estate market in this Dutchess County town has been ‘crazy,’ with many homes selling for over asking price.`\
+https://nytimes.com/slideshow/2020/09/09/realestate/living-in-pawling-ny.html?searchResultPosition=3
 
-**Thailand Tests Nearly 600 People Exposed to Mystery Coronavirus Case**\
-`Thailand said on Wednesday it had tested nearly 600 people potentially exposed to the country's first domestic coronavirus case in over three months, but has so far found no new infections.`\
-https://nytimes.com/reuters/2020/09/09/world/asia/09reuters-health-coronavirus-thailand.html?searchResultPosition=4
+**New Wedding Date? Here’s How to Update Your Look**\
+`With a few revisions, you can still wear the dress you had originally envisioned.`\
+https://nytimes.com/2020/09/09/fashion/weddings/new-wedding-date-heres-how-to-update-your-look.html?searchResultPosition=4
 
-**Belarusian Leader Lukashenko to Visit Russia on Sept. 14: RIA Cites Source**\
-`Belarusian leader Alexander Lukashenko will visit Russia on Sept. 14, the RIA news agency cited a diplomatic source as saying on Wednesday.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-belarus-election-lukashenko-russia.html?searchResultPosition=5
+**Shapovalov Rues Lack of Maturity as Grand Slam Bid Ends**\
+`Canadian Denis Shapovalov says a lack of maturity cost him a semi-final berth at the U.S. Open, a Grand Slam that is up for grabs in the absence of the 'Big Three' of men's tennis.`\
+https://nytimes.com/reuters/2020/09/09/sports/tennis/09reuters-tennis-usopen-shapovalov.html?searchResultPosition=5
 
-**Fendi Selects Kim Jones to Replace Karl Lagerfeld**\
-`The British fashion designer will oversee Fendi haute couture, ready-to-wear and fur, but will also continue as artistic director of Dior Men.`\
-https://nytimes.com/2020/09/09/style/fendi-kim-jones-lagerfeld.html?searchResultPosition=6
+**Volkswagen's New Electric Car Panned by Germany's Leading Test Publication**\
+`Germany's Auto Motor und Sport said Volkswagen's new electric car, the ID.3, had fallen short of the carmaker's usual standards of fit and finish, and had a limited operating range, when it reviewed the car ahead of its launch. `\
+https://nytimes.com/reuters/2020/09/09/business/09reuters-volkswagen-electric-review.html?searchResultPosition=6
 
-**WHO Says Vaccine Safety Top Priority, as AstraZeneca Pauses Study**\
-`Safety of a prospective vaccine for COVID-19 comes "first and foremost", the World Health Organization's chief scientist said on Wednesday, as a trial of a candidate from AstraZeneca  was paused, at least temporarily, due to concerns over side effects.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-health-coronavirus-who.html?searchResultPosition=7
+**Seven Election Day Nightmares**\
+`We asked security experts to tell us what keeps them up at night — and what to do about it.`\
+https://nytimes.com/2020/09/09/opinion/election-security-trump.html?searchResultPosition=7
 
-**Over 300 Groups Urge More Scrutiny of China on Human Rights**\
-`More than 300 civil society groups including Human Rights Watch, Amnesty International and the International Service for Human Rights are urging the United Nations to set up an international watchdog to address human rights violations by the Chinese government.`\
-https://nytimes.com/aponline/2020/09/09/world/europe/ap-eu-switzerland-china-human-rights.html?searchResultPosition=8
+**How One Man Conned the Beltway**\
+`The billion-dollar “Black Budget” demands secrecy. That made it a perfect target.`\
+https://nytimes.com/2020/09/09/opinion/garrison-courtney-spies-contracts.html?searchResultPosition=8
 
-**AstraZeneca Pauses Coronavirus Vaccine Trial, Rollout Doubts Dent Shares**\
-`AstraZeneca has paused global trials of its experimental coronavirus vaccine after an unexplained illness in a participant, denting the British drugmaker's shares on Wednesday as the move was seen as dimming prospects for an early rollout.`\
-https://nytimes.com/reuters/2020/09/09/business/09reuters-health-coronavirus-astrazeneca-stocks.html?searchResultPosition=9
+**Coronavirus Tests Are Supposed to Be Free. The Surprise Bills Come Anyway.**\
+`Congress sought to ensure that patients would not face costs connected to the virus. But rules are not always being followed.`\
+https://nytimes.com/2020/09/09/upshot/coronavirus-surprise-test-fees.html?searchResultPosition=9
 
-**China Says U.S. Trying to Incite Instability With Proposed Orders to Block Xinjiang Imports**\
-`China's foreign ministry, when asked about reports that the United States may ban some imports from China’s Xinjiang region over alleged human rights violations, said this is a pretext to oppress Chinese customers and incite instability. `\
-https://nytimes.com/reuters/2020/09/09/world/asia/09reuters-china-us-xinjiang.html?searchResultPosition=10
+**The Watch Fair Returns**\
+`But Geneva Watch Days, the first gathering since the pandemic began, included the public — a group that hasn’t been a fair focus in the past.`\
+https://nytimes.com/2020/09/09/fashion/geneva-watch-days-bulgari.html?searchResultPosition=10
 
