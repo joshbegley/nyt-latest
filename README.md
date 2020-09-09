@@ -1,40 +1,40 @@
-**Inmate Charged in Slaying of Deputy in Detroit Jail**\
-`An inmate has been charged in the slaying of a Wayne County sheriff’s deputy at a jail in downtown Detroit.`\
-https://nytimes.com/aponline/2020/09/09/us/ap-us-jail-deputy-slain-michigan.html?searchResultPosition=1
+**Brexit Deal Contains Ambiguities After Being Written at Pace, Says UK PM's Spokesman**\
+`The Brexit divorce deal contained ambiguities after being written at pace, Prime Minister Boris Johnson's spokesman said on Wednesday, adding it was always expected for the details on Northern Ireland to be hammered out after signing.`\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-eu-bill-ambiguity.html?searchResultPosition=1
 
-**Former AP Newsperson Ali Kotarumalos Dies in Indonesia**\
-`Ali Kotarumalos, a journalist who reported on major news events in Indonesia for The Associated Press for more than three decades, has died. He was 68.`\
-https://nytimes.com/aponline/2020/09/09/world/asia/ap-as-indonesia-obit-ali-kotarumalos.html?searchResultPosition=2
+**GOP Targets Democratic-Run California in Election Gamble**\
+`Republican candidates eager for a turnaround in heavily Democratic California are spotlighting what they see as a dire threat to families and communities — their own state’s policies. `\
+https://nytimes.com/aponline/2020/09/09/us/ap-us-election-2020-california-republicans.html?searchResultPosition=2
 
-**Walmart to Test Drone Delivery of Grocery, Household Items**\
-`Walmart Inc said on Wednesday it would run a pilot project for delivery of grocery and household products through automated drones, along with end-to-end delivery firm Flytrex, as the U.S. retailer looks to beef up its delivery business.`\
-https://nytimes.com/reuters/2020/09/09/business/09reuters-walmart-dronedelivery.html?searchResultPosition=3
+**Exclusive: Russian Government Tells State Banks to Ensure Liquidity Flow to Belarus Lenders**\
+`Russia's prime minister and finance minister have told the country's biggest state lenders to ensure liquidity continues to flow to banks in Belarus, where a political crisis has increased strains on the financial sector, banking sources said. `\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-belarus-election-russia-banks-exclusive.html?searchResultPosition=3
 
-**Sitting in Silence With 5,000 Fans: The New Sound of Japanese Sports**\
-`The country has welcomed spectators back to stadiums, but the highly orchestrated singing, chanting and drumming for which they are known is now strictly forbidden.`\
-https://nytimes.com/2020/09/09/world/asia/japan-coronavirus-jleague-soccer.html?searchResultPosition=4
+**Exclusive: Trump Administration to Deny Pending Retroactive U.S. Biofuel Waivers-Sources**\
+`U.S. President Donald Trump has instructed that dozens of oil  refiner requests for retroactive waivers from U.S. biofuel laws be denied amid concerns the issue could cut into his support in the Farm Belt, three sources familiar with the decision said. `\
+https://nytimes.com/reuters/2020/09/09/us/09reuters-usa-biofuels-exclusive.html?searchResultPosition=4
 
-**'It's Going Horribly': College Towns Fret About Census Count**\
-`Betsy Landin was listed by her parents on the 2020 census as living at her family's home in Phoenix when she really should have been counted in the college town of Tempe, where she studies finance at Arizona State University. `\
-https://nytimes.com/aponline/2020/09/09/us/ap-us-2020-census-college-towns.html?searchResultPosition=5
+**ECB to Make Only Slight Changes to Projections: Bloomberg**\
+`The European Central Bank's growth and inflation projections to be published on Thursday will only show slight changes compared with the bank's June forecasts, Bloomberg reported on Wednesday.`\
+https://nytimes.com/reuters/2020/09/09/us/09reuters-ecb-policy-projections.html?searchResultPosition=5
 
-**U.S. Renewable Fuel Credits Rise to Two-Year High After Reuters Report: Traders**\
-`U.S. renewable fuel credits traded at their highest since March 2018 on Wednesday after a Reuters report said the Trump administration plans to deny oil refiner requests for retroactive waivers from U.S. biofuel laws.`\
-https://nytimes.com/reuters/2020/09/09/us/09reuters-usa-biofuels-credits.html?searchResultPosition=6
+**EU Will Not Seek to Suspend Brexit Talks Over New British Bill: Sources**\
+`The EU will not seek to suspend talks over a new Brexit deal despite London publishing a bill acknowledging it could break international law by ignoring parts of an earlier divorce treaty it had sealed with the bloc, three sources said.`\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-eu-suspension.html?searchResultPosition=6
 
-**McBride, Wilkerson Among Nominees for Kirkus Prize**\
-`Elena Ferrante, James McBride and Isabel Wilkerson are among the nominees for the Kirkus Prize, a $50,000 honor for the best fiction, nonfiction and children's books.`\
-https://nytimes.com/aponline/2020/09/09/us/ap-us-books-kirkus-prize.html?searchResultPosition=7
+**House Hunting in Canada: A Rowhouse in Old Montreal With Income Potential**\
+`Prices and sales volume have bounced back in Montreal since the spring quarantine, but the growing recession has the housing market on edge.`\
+https://nytimes.com/2020/09/09/realestate/montreal-canada-real-estate.html?searchResultPosition=7
 
-**Belarusian Opposition Politician Kolesnikova Suspected of Calls to Seize Power: RIA Cites Lawyer**\
-`Belarusian opposition politician Maria Kolesnikova is being detained on suspicion of making calls to seize power, as part of a criminal case, the Russian news agency RIA cited her lawyer as saying on Wednesday.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-belarus-election-kolesnikova-treason.html?searchResultPosition=8
+**A 19th-Century Rowhouse in Historic Old Montreal**\
+`This six-bedroom rowhouse in the historic Old Montreal neighborhood, with three commercial spaces included, is on the market for $4.8 million.`\
+https://nytimes.com/slideshow/2020/09/09/realestate/a-19th-century-rowhouse-in-historic-old-montreal.html?searchResultPosition=8
 
-**North Carolina Home of Nina Simone Gets Permanent Protection**\
-`The childhood home of iconic musician and civil rights activist Nina Simone will be indefinitely preserved in North Carolina.`\
-https://nytimes.com/aponline/2020/09/09/us/ap-us-nina-simone-childhood-home.html?searchResultPosition=9
+**Ex-VW CEO to Face Charges of Organized Commercial Fraud**\
+`Former Volkswagen Chief Executive Martin Winterkorn will face charges of conspiracy to commit organized commercial fraud with a high likelihood of conviction, a court probing the carmaker's diesel emissions scandal said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/09/business/09reuters-volkswagen-emissions.html?searchResultPosition=9
 
-**Walmart Testing Drones for Deliveries in North Carolina City**\
-`Walmart launched a pilot program Wednesday using drones to deliver groceries and household essentials in a North Carolina city.`\
-https://nytimes.com/aponline/2020/09/09/business/ap-us-walmart-drones.html?searchResultPosition=10
+**Indonesia's Capital to Reimpose Restrictions Over Coronavirus**\
+`Indonesia's capital, Jakarta, will reinstate wide-scale social restrictions "as soon as possible" because a rise in coronavirus infections threatens to strain its health system, its governor said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/09/world/asia/09reuters-health-coronavirus-indonesia.html?searchResultPosition=10
 
