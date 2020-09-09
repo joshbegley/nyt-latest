@@ -1,40 +1,40 @@
-**Brexit Deal Contains Ambiguities After Being Written at Pace, Says UK PM's Spokesman**\
-`The Brexit divorce deal contained ambiguities after being written at pace, Prime Minister Boris Johnson's spokesman said on Wednesday, adding it was always expected for the details on Northern Ireland to be hammered out after signing.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-eu-bill-ambiguity.html?searchResultPosition=1
+**FDA Authorizes Emergency Use of COVID-19 Test From Alphabet's Verily**\
+`The U.S. Food and Drug Administration has granted an emergency use authorization for a COVID-19 test from Alphabet Inc unit Verily Life Sciences. `\
+https://nytimes.com/reuters/2020/09/09/us/09reuters-health-coronavirus-testing.html?searchResultPosition=1
 
-**GOP Targets Democratic-Run California in Election Gamble**\
-`Republican candidates eager for a turnaround in heavily Democratic California are spotlighting what they see as a dire threat to families and communities — their own state’s policies. `\
-https://nytimes.com/aponline/2020/09/09/us/ap-us-election-2020-california-republicans.html?searchResultPosition=2
+**Belarusian Opposition Leaders Kolesnikova and Znak Being Held in Custody, Investigative Committee Says**\
+`Belarusian opposition leaders Maria Kolesnikova and Maxim Znak are being held in custody, Belarus' investigative committee said on Wednesday, under suspicion of destabilizing the country and harming its national security. `\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-belarus-election-kolesnikova-custody.html?searchResultPosition=2
 
-**Exclusive: Russian Government Tells State Banks to Ensure Liquidity Flow to Belarus Lenders**\
-`Russia's prime minister and finance minister have told the country's biggest state lenders to ensure liquidity continues to flow to banks in Belarus, where a political crisis has increased strains on the financial sector, banking sources said. `\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-belarus-election-russia-banks-exclusive.html?searchResultPosition=3
+**Belarus's Tsikhanouskaya: Each Country Should Make Its Own Decision on Sanctions**\
+`Each country should make its own decision on sanctions, exiled Belarusian opposition leader Sviatlana Tsikhanouskaya said on Wednesday.`\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-belarus-election-tsikhanouskaya-sanctions.html?searchResultPosition=3
 
-**Exclusive: Trump Administration to Deny Pending Retroactive U.S. Biofuel Waivers-Sources**\
-`U.S. President Donald Trump has instructed that dozens of oil  refiner requests for retroactive waivers from U.S. biofuel laws be denied amid concerns the issue could cut into his support in the Farm Belt, three sources familiar with the decision said. `\
-https://nytimes.com/reuters/2020/09/09/us/09reuters-usa-biofuels-exclusive.html?searchResultPosition=4
+**U.S. Job Openings Rise in July; More Workers Quitting**\
+`U.S. job openings increased further in July and more workers quit their jobs in the retail as well as professional and business services industries likely because of fears of exposure to COVID-19 and problems with child care.`\
+https://nytimes.com/reuters/2020/09/09/business/09reuters-usa-economy-jobs.html?searchResultPosition=4
 
-**ECB to Make Only Slight Changes to Projections: Bloomberg**\
-`The European Central Bank's growth and inflation projections to be published on Thursday will only show slight changes compared with the bank's June forecasts, Bloomberg reported on Wednesday.`\
-https://nytimes.com/reuters/2020/09/09/us/09reuters-ecb-policy-projections.html?searchResultPosition=5
+**Exclusive: EU Prepares to Lift Sanctions on Libyan Powerbroker, Diplomats Say**\
+`The European Union plans to remove an east Libyan powerbroker from its sanctions blacklist to encourage peace efforts and ensure the EU plays a central role in any negotiated settlement, three diplomats said.`\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-libya-security-sanctions-exclusive.html?searchResultPosition=5
 
-**EU Will Not Seek to Suspend Brexit Talks Over New British Bill: Sources**\
-`The EU will not seek to suspend talks over a new Brexit deal despite London publishing a bill acknowledging it could break international law by ignoring parts of an earlier divorce treaty it had sealed with the bloc, three sources said.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-eu-suspension.html?searchResultPosition=6
+**Huawei Fears It May Be Excluded From Poland's 5G Network**\
+`Poland's planned criteria for assessing the risk of telecoms equipment providers are political and may be aimed at excluding Huawei [HWT.UL] from developing the country's 5G network, the Chinese company said on Wednesday. `\
+https://nytimes.com/reuters/2020/09/09/business/09reuters-poland-5g-huawei.html?searchResultPosition=6
 
-**House Hunting in Canada: A Rowhouse in Old Montreal With Income Potential**\
-`Prices and sales volume have bounced back in Montreal since the spring quarantine, but the growing recession has the housing market on edge.`\
-https://nytimes.com/2020/09/09/realestate/montreal-canada-real-estate.html?searchResultPosition=7
+**Wildfires Live Updates: Evacuation Orders in California and Oregon**\
+`Strong winds were likely to continue to fuel the extraordinary number of fires burning in the West.`\
+https://nytimes.com/2020/09/09/us/wildfires-live-updates.html?searchResultPosition=7
 
-**A 19th-Century Rowhouse in Historic Old Montreal**\
-`This six-bedroom rowhouse in the historic Old Montreal neighborhood, with three commercial spaces included, is on the market for $4.8 million.`\
-https://nytimes.com/slideshow/2020/09/09/realestate/a-19th-century-rowhouse-in-historic-old-montreal.html?searchResultPosition=8
+**U.S. Airline Unions to Meet With Top Democrats on Aid as Demand Languishes**\
+`U.S. airline union leaders are due to meet with senior congressional Democrats on Wednesday to discuss a second round of aid to protect tens of thousands of jobs, officials said, while airlines continue to wrestle with a drastic downturn in demand due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/09/09/business/09reuters-health-coronavirus-usa-airlines.html?searchResultPosition=8
 
-**Ex-VW CEO to Face Charges of Organized Commercial Fraud**\
-`Former Volkswagen Chief Executive Martin Winterkorn will face charges of conspiracy to commit organized commercial fraud with a high likelihood of conviction, a court probing the carmaker's diesel emissions scandal said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/09/business/09reuters-volkswagen-emissions.html?searchResultPosition=9
+**Britain Will follow WTO subsidy Rules After Brexit Transition Period, Minister Says**\
+`Britain will follow World Trade Organisation (WTO) rules on subsidies after its exit from the European Union is completed at the end of the year, business minister Alok Sharma said on Wednesday, promising not to adopt a "picking winners" approach.`\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-eu-subsidy.html?searchResultPosition=9
 
-**Indonesia's Capital to Reimpose Restrictions Over Coronavirus**\
-`Indonesia's capital, Jakarta, will reinstate wide-scale social restrictions "as soon as possible" because a rise in coronavirus infections threatens to strain its health system, its governor said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/09/world/asia/09reuters-health-coronavirus-indonesia.html?searchResultPosition=10
+**Trump Targeting WikiLeaks' Assange as 'Political Enemy', UK Court Told**\
+`WikiLeaks founder Julian Assange is wanted by the United States because he is a "political enemy" of President Donald Trump, his London extradition hearing was told on Wednesday.`\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-assange.html?searchResultPosition=10
 
