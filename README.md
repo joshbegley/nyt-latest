@@ -1,4 +1,4 @@
-**Safety Paramount in Vaccine Trials, Suspensions 'Not Unusual'-WHO**\
+**Safety Paramount in Vaccine Trials, Suspensions 'Not Unusual', WHO Says**\
 `Safety is paramount in vaccine clinical trials and temporary suspensions are not unusual to evaluate any unexplained illness in a participant, the World Health Organization (WHO) said on Thursday regarding the pause in an AstraZeneca COVID-19 trial.`\
 https://nytimes.com/reuters/2020/09/09/business/09reuters-health-coronavirus-astrazeneca-who.html?searchResultPosition=1
 
