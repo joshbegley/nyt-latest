@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-france-charliehebdo-trial.html?searchResultPosition=1
 
 **EU Executive Very Concerned About British Bill Plans, Would Undermine Trust**\
-`European Commission President Ursula von der Leyen expressed strong concern on Wednesday about Britain's plans to pass a bill that would break its earlier international agreements made with the EU in the treaty on leaving the European Union.`\
+`European Commission head Ursula von der Leyen expressed strong concern on Wednesday about Britain's plans to pass a bill breaking a treaty on the withdrawal from the European Union, noting it would destroy trust and undermine trade talks.`\
 https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-eu-commission-bill.html?searchResultPosition=2
 
 **EU Says Trust Needed if Talks With UK Are to Continue**\
