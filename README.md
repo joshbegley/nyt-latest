@@ -1,40 +1,40 @@
+**France Fines Roche, Novartis 444 Million Euros in Ongoing Eye Drug Clash**\
+`Switzerland's Novartis and Roche were fined 444 million euros (403.55 million pounds)by France, after its competition authority said on Wednesday they used abusive practices to push costly eye injection Lucentis over a cheaper drug.`\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-novartis-roche-lucentis.html?searchResultPosition=1
+
+**United States Formally Announces Troop Reduction in Iraq**\
+`The United States military on Wednesday announced that it would be reducing its presence in Iraq from 5,200 to 3,000 troops this month, formalizing a move that had been long expected.`\
+https://nytimes.com/reuters/2020/09/09/world/middleeast/09reuters-usa-iraq-troops.html?searchResultPosition=2
+
+**EU Enters Final Talks for BioNTech-Pfizer Vaccine**\
+`The European Commission said on Wednesday it had entered final stage talks with BioNTech-Pfizer to purchase up to 300 million doses of a potential vaccine against COVID-19.`\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-health-coronavirus-eu-vaccine.html?searchResultPosition=3
+
+**Norwegian Lawmaker Nominates Trump for Nobel Peace Prize**\
+`A Norwegian lawmaker has nominated Donald Trump for the Nobel Peace Prize for 2021 for helping broker a deal between Israel and the United Arab Emirates, the second time he has put forward the U.S. president for the honor. `\
+https://nytimes.com/reuters/2020/09/09/world/middleeast/09reuters-nobel-prize-peace-trump.html?searchResultPosition=4
+
+**Ryanair Steels for Winter 'Write-Off' as Travel Gloom Deepens**\
+`Ryanair slashed its annual passenger target by another 10 million on Wednesday, becoming the latest European airline to signal more capacity cuts as resurgent COVID-19 infections and travel restrictions dent recovery hopes.`\
+https://nytimes.com/reuters/2020/09/09/business/09reuters-health-coronavirus-ryanair.html?searchResultPosition=5
+
+**UAE Reports 883 New Coronavirus Cases, Highest Since Late May**\
+`The United Arab Emirates recorded 883 new coronavirus infections on Wednesday, its highest daily increase in over three months. `\
+https://nytimes.com/reuters/2020/09/09/world/middleeast/09reuters-health-coronavirus-emirates.html?searchResultPosition=6
+
+**Radrizzani Replaces Chaos With Caution on Leeds' EPL Return**\
+`Andrea Radrizzani is trying to redefine what “Doing a Leeds” means.`\
+https://nytimes.com/aponline/2020/09/09/sports/soccer/ap-soc-premier-league-leeds-back.html?searchResultPosition=7
+
 **Lebanon's Hezbollah-Allied Amal Movement Condemns U.S. Sanctions on Its Member**\
 `Lebanon's Amal movement, a Shi'ite Muslim group allied to Hezbollah, said on Wednesday the U.S. move to impose sanctions on one of its senior members was like placing sanctions on the whole Middle East country.`\
-https://nytimes.com/reuters/2020/09/09/world/middleeast/09reuters-lebanon-crisis-usa-sanctions-amal.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/09/09/world/middleeast/09reuters-lebanon-crisis-usa-sanctions-amal.html?searchResultPosition=8
 
 **United Airlines Cuts Quarterly Revenue Forecast Further**\
 `United Airlines Holdings said on Wednesday it now expects third-quarter passenger revenue and capacity to be down about 85%, lower than its previous forecast.`\
-https://nytimes.com/reuters/2020/09/09/business/09reuters-united-airlines-outlook.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/09/09/business/09reuters-united-airlines-outlook.html?searchResultPosition=9
 
 **Indian and Chinese Troops Man Remote Himalayan Outposts Just Hundreds of Meters Apart**\
 `Indian and Chinese troops were facing off on Wednesday, barely a few hundred meters apart, in a remote Himalayan region where shots were fired for the first time in decades, Indian officials said.`\
-https://nytimes.com/reuters/2020/09/09/world/asia/09reuters-india-china.html?searchResultPosition=3
-
-**Russia Calls Germany's Handling of Requests on Navalny 'Inappropriate'**\
-`Russia's foreign minister criticized Germany on Wednesday over its handling of official requests by Moscow about the condition of Kremlin critic Alexei Navalny, Interfax news agency reported. `\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-russia-politics-navalny-germany.html?searchResultPosition=4
-
-**Germany Extends COVID-19 Travel Warning for Outside Europe Until Sept. 30**\
-`Germany will extend until Sept. 30 its travel warning for countries outside Europe due to the coronavirus pandemic, a spokesman of the foreign ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-health-coronavirus-germany-travel.html?searchResultPosition=5
-
-**Everyone Should Obey the Law, UK PM Johnson Says After Government Admission**\
-`Prime Minister Boris Johnson said on Wednesday he expected all Britons to obey the law after his government admitted that proposed legislation could break international law by overriding parts of a divorce deal agreed with the European Union.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-eu-bill-law.html?searchResultPosition=6
-
-**No UN Protection for Congo's Threatened Nobel-Winning Doctor**\
-`Death threats against a Nobel Peace Prize-winning Congolese doctor have alarmed his supporters who are urging the United Nations to reinstate protection by its peacekeepers, but it likely won’t return.`\
-https://nytimes.com/aponline/2020/09/09/world/africa/ap-af-congo-nobel-doctor-threatened.html?searchResultPosition=7
-
-**Small Earthquake Rattles New Jersey Coast**\
-`The 3.1-magnitude earthquake shook an area about a mile south of East Freehold in Monmouth County. There were no reports of damage or injuries.`\
-https://nytimes.com/2020/09/09/us/earthquake-nj.html?searchResultPosition=8
-
-**Fauci Says Astrazeneca Vaccine Pause Unfortunate but a Safety Valve**\
-`U.S. infectious disease expert Anthony Fauci said on Wednesday that AstraZeneca's decision to pause global trials of its experimental coronavirus vaccine was unfortunate but not an uncommon safety precaution in a vaccine development process.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-health-coronavirus-astrazeneca-fauci.html?searchResultPosition=9
-
-**Polish PM Hands Belarus Opposition Leader Key to New Center**\
-`Poland’s prime minister gave Belarus' leading opposition presidential candidate the symbolic keys to a new Belarusian center in Warsaw, saying Wednesday that the Polish government wanted to provide Belarusians with a home to continue their struggle for change.`\
-https://nytimes.com/aponline/2020/09/09/world/europe/ap-eu-poland-belarus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/09/world/asia/09reuters-india-china.html?searchResultPosition=10
 
