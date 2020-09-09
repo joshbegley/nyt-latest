@@ -1,40 +1,40 @@
+**Ferrante, Wilkerson Among Nominees for Kirkus Prize**\
+`Elena Ferrante, James McBride and Isabel Wilkerson are among the nominees for the Kirkus Prize, a $50,000 honor for the best fiction, nonfiction and children's books.`\
+https://nytimes.com/aponline/2020/09/09/us/ap-us-books-kirkus-prize.html?searchResultPosition=1
+
+**Belarusian Opposition Politician Kolesnikova Suspected of State Treason: RIA Cites Lawyer**\
+`Belarusian opposition politician Maria Kolesnikova is being detained under suspicion of state treason, as part of a criminal case involving an attempt to seize power, the Russian news agency RIA cited her lawyer as saying on Wednesday. `\
+https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-belarus-election-kolesnikova-treason.html?searchResultPosition=2
+
+**North Carolina Home of Nina Simone Gets Permanent Protection**\
+`The childhood home of iconic musician and civil rights activist Nina Simone will be indefinitely preserved in North Carolina.`\
+https://nytimes.com/aponline/2020/09/09/us/ap-us-nina-simone-childhood-home.html?searchResultPosition=3
+
+**Walmart Testing Drones for Deliveries in North Carolina City**\
+`Walmart launched a pilot program Wednesday using drones to deliver groceries and household essentials in a North Carolina city.`\
+https://nytimes.com/aponline/2020/09/09/business/ap-us-walmart-drones.html?searchResultPosition=4
+
+**$1.85 Million Homes in Massachusetts, Hawaii and Georgia**\
+`An 1880 house in Provincetown, an off-the-grid home on the Big Island and a five-bedroom estate with two guesthouses in Rabun Gap.`\
+https://nytimes.com/2020/09/09/realestate/1-85-million-homes-in-massachusetts-hawaii-and-georgia.html?searchResultPosition=5
+
+**What You Get for $1.85 Million**\
+`An 1880 house in Provincetown, Mass.; an off-the-grid home on the Big Island of Hawaii; and a five-bedroom estate in Rabun Gap, Ga.`\
+https://nytimes.com/slideshow/2020/09/09/realestate/what-you-get-for-1-85-million.html?searchResultPosition=6
+
+**Continue Your Life’s Education With Free Online Classes**\
+`If you’re pondering a career shift, looking to learn a specific skill or just plain bored, consider a web-based class to broaden your horizons.`\
+https://nytimes.com/2020/09/09/technology/personaltech/education-free-online-classes.html?searchResultPosition=7
+
+**An Operatic Innovator Takes On Detroit**\
+`Yuval Sharon, who has created works in cars, a park and a train station, will now lead Michigan Opera Theater.`\
+https://nytimes.com/2020/09/09/arts/music/yuval-sharon-michigan-opera-theater.html?searchResultPosition=8
+
+**Jerry Lewis Telethon Will Return With Kevin Hart**\
+`Once a Labor Day weekend tradition, the telethon is coming back in October to raise money for the Muscular Dystrophy Association and its new host’s Help From the Hart charity.`\
+https://nytimes.com/2020/09/09/arts/television/jerry-lewis-telethon-kevin-hart.html?searchResultPosition=9
+
 **Amazon to Open Two New Fulfillment Centers in Canada's Ontario**\
 `Amazon.com Inc said on Wednesday it plans to open two new fulfillment centers in Ontario next year, in a move that would create 2,500 new jobs in Canada's most-populous province.`\
-https://nytimes.com/reuters/2020/09/09/business/09reuters-amazon-com-canada.html?searchResultPosition=1
-
-**Newsom Vows to ‘Face Climate Change Head On’**\
-`Wednesday: Another update on the raging wildfires. Also: More counties can ease restrictions; and a look at school district-supported learning pods.`\
-https://nytimes.com/2020/09/09/us/california-wildfires.html?searchResultPosition=2
-
-**Government Agreed, Montenegro to Keep Pro-Western Course.**\
-`The leaders of the three main opposition groups in Montenegro signed a coalition agreement Wednesday to form the next government and sought to alleviate fears that they would steer the small Balkan state off its pro-Western course and back toward traditional allies Serbia and Russia.`\
-https://nytimes.com/aponline/2020/09/09/world/europe/ap-eu-montenegro-new-government.html?searchResultPosition=3
-
-**A Man, a Pint and a Timer Become Symbols of Ireland’s Pandemic Rules**\
-`A photo of an older man having a meal in a pub started a national conversation about coronavirus regulations and life’s simple pleasures.`\
-https://nytimes.com/2020/09/09/world/europe/ireland-pub-viral-photo.html?searchResultPosition=4
-
-**EU's Michel Calls on Britain to Respect Brexit Withdrawal Treaty**\
-`Britain's withdrawal treaty with the European Union "has to be applied in full," to build trust, European Council President Charles Michel said on Wednesday. `\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-eu-michel.html?searchResultPosition=5
-
-**Delta CFO Warns That COVID-19 Vaccinations Could Take Up to a Year**\
-`Delta Air Lines has seen a moderate improvement in demand but continues to burn through around $27 million of cash each day, its chief financial officer said, and warned that any COVID-19 vaccination process could take between six and 12 months.`\
-https://nytimes.com/reuters/2020/09/09/business/09reuters-delta-air-outlook.html?searchResultPosition=6
-
-**Factbox: After Brexit Row, What Does Britain's Internal Market Bill Do?**\
-`Britain published draft legislation on Wednesday on how it wants to manage trade within its borders after Brexit, a bill which caused a new row with the European Union after the government admitted it will break international law.`\
-https://nytimes.com/reuters/2020/09/09/world/europe/09reuters-britain-eu-bill-changes-factbox.html?searchResultPosition=7
-
-**Safety Paramount in Vaccine Trials, Suspensions 'Not Unusual', WHO Says**\
-`Safety is paramount in vaccine clinical trials and temporary suspensions are not unusual to evaluate any unexplained illness in a participant, the World Health Organization (WHO) said on Thursday regarding the pause in an AstraZeneca COVID-19 trial.`\
-https://nytimes.com/reuters/2020/09/09/business/09reuters-health-coronavirus-astrazeneca-who.html?searchResultPosition=8
-
-**Major Bank-Led Digital Cash Settlement Project Gets Delayed**\
-`A project involving 13 of the world's largest banks and aimed at launching digital versions of major currencies in 2020 is no longer likely to get going this year, the company set up to run the effort said.`\
-https://nytimes.com/reuters/2020/09/09/technology/09reuters-blockchain-banks.html?searchResultPosition=9
-
-**Top Senate Democrat Says Good Chance Coronavirus Aid Bill Will Pass**\
-`The Senate Democratic leader Chuck Schumer said on Wednesday he believes there is a good chance Congress will pass a coronavirus relief bill and predicted Republicans will feel pressure to provide help for Americans suffering from the pandemic. `\
-https://nytimes.com/reuters/2020/09/09/us/politics/09reuters-health-coronavirus-usa-congress.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/09/09/business/09reuters-amazon-com-canada.html?searchResultPosition=10
 
