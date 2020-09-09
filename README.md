@@ -18,7 +18,7 @@ https://nytimes.com/2020/09/09/arts/design/gallery-sales-art-market-virus.html?s
 `William J. Flynn, the agency’s chief executive, warned of additional cuts to Amtrak’s service and work force to “stave off bankruptcy” if Congress did not provide any additional emergency funding.`\
 https://nytimes.com/2020/09/09/us/politics/coronavirus-amtrak.html?searchResultPosition=5
 
-**Whistle-blower: Homeland Security Leaders Downplayed Threats From Russia and White Supremacists**\
+**Whistle-Blower: Homeland Security Leaders Downplayed Threats From Russia and White Supremacists**\
 `The former head of the Homeland Security Department’s intelligence division has accused three senior leaders of warping the agency around President Trump’s rhetoric.`\
 https://nytimes.com/2020/09/09/us/politics/homeland-security-russia-trump.html?searchResultPosition=6
 
