@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/09/09/us/ap-5-things-to-know-today.html?search
 https://nytimes.com/2020/09/09/nyregion/new-york-city-mayor-race.html?searchResultPosition=7
 
 **Ethiopia's Tigray Holds Regional Election in Defiance of Federal Government**\
-`Ethiopia's northern Tigray region on Wednesday went ahead with regional elections on Friday in an act of strong defiance against Prime Minister Abiy Ahmed, who called the vote illegal but said the government would not respond with force.    `\
+`Ethiopia's northern Tigray region on Wednesday went ahead with regional elections in an act of strong defiance against Prime Minister Abiy Ahmed, who called the vote illegal but said the government would not respond with force.    `\
 https://nytimes.com/reuters/2020/09/09/world/africa/09reuters-ethiopia-politics.html?searchResultPosition=8
 
 **Irish PM to Express 'Strong Concerns' to UK's Johnson on Brexit Move**\
