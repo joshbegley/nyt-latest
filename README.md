@@ -16,7 +16,7 @@ https://nytimes.com/2020/09/09/us/why-are-men-still-explaining-things-to-women-m
 
 **‘A Nuclear Winter’ Over Bay Area, as Wildfires Blot Out the Sun**\
 `Across Northern California, huge plumes of smoke from a fire that blasted through the foothills of the Sierra Nevada billowed high into the atmosphere, turning day into an eerie twilight.`\
-https://nytimes.com/2020/09/09/us/california-wildfire-photos.html?searchResultPosition=5
+https://nytimes.com/2020/09/09/us/pictures-photos-california-fires.html?searchResultPosition=5
 
 **Franchise Workers Win Victory Over U.S. Effort to Curb Lawsuits**\
 `A judge rebuffed a Labor Department move that made it harder for employees to win judgments against parent companies over pay violations.`\
