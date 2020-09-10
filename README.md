@@ -23,7 +23,7 @@ https://nytimes.com/2020/09/10/arts/music/ronald-khalis-bell-kool-gang-dead.html
 https://nytimes.com/2020/09/10/briefing/stimulus-bill-wildfires-nfl.html?searchResultPosition=6
 
 **Advertisers Flock to N.F.L. Broadcasts as a ‘Safe Haven’**\
-`Ad spending has slumped in the pandemic over uncertainty about how sports seasons would proceed. With an on-time start, football is poised to capture “a greater share of a smaller pie.”`\
+`Ad spending has slumped in the pandemic, in part over uncertainty about how sports seasons would proceed. With an on-time start, football is poised to capture “a greater share of a smaller pie.”`\
 https://nytimes.com/2020/09/10/sports/football/nfl-tv-broadcast-ads.html?searchResultPosition=7
 
 **9 New Books We Recommend This Week**\
