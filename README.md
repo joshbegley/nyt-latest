@@ -15,7 +15,7 @@ https://nytimes.com/2020/09/10/movies/the-50-best-movies-on-netflix-right-now.ht
 https://nytimes.com/2020/09/10/sports/tennis/2020-us-open-what-to-watch.html?searchResultPosition=4
 
 **N.F.L. Week 1 Predictions: Our Picks Against the Spread**\
-`The Texans and the Chiefs will get things started on Thursday in a season that should look different than previous years, but will feature plenty of intriguing story lines.`\
+`The Texans and the Chiefs will get things started on Thursday in a season that should look different from previous years, but will feature plenty of intriguing story lines.`\
 https://nytimes.com/2020/09/10/sports/football/nfl-picks-week-1.html?searchResultPosition=5
 
 **President Trump, Moria Migrants, Beirut Explosion: Your Thursday Briefing**\
