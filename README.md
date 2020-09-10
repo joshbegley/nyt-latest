@@ -19,7 +19,7 @@ https://nytimes.com/2020/09/10/theater/berlin-theater-season-coronavirus.html?se
 https://nytimes.com/2020/09/10/business/dealbook/lvmh-tiffany-deal.html?searchResultPosition=5
 
 **New Fire Erupts in Beirut Port, Weeks After Devastating Blast**\
-`Videos taken at the scene showed flames engulfing an already damaged warehouse in the port and a thick plume of smoke rising from the area.`\
+`Orange flames and a plume of black smoke rose over the city, terrifying residents still recovering from last month’s explosion.`\
 https://nytimes.com/2020/09/10/world/middleeast/beirut-port-fire.html?searchResultPosition=6
 
 **The Woodward Revelations**\
