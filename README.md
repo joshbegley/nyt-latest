@@ -1,40 +1,40 @@
+**Ronald Khalis Bell of Kool & the Gang Dies at 68**\
+`He was the chief force behind the feel-good song, “Celebration,” and other 1970s R&B hits.`\
+https://nytimes.com/2020/09/10/arts/music/ronald-khalis-bell-kool-gang-dead.html?searchResultPosition=1
+
+**Stimulus Bill, Wildfires, N.F.L.: Your Thursday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/09/10/briefing/stimulus-bill-wildfires-nfl.html?searchResultPosition=2
+
+**Advertisers Flock to N.F.L. Broadcasts as a ‘Safe Haven’**\
+`Ad spending has slumped in the pandemic over uncertainty about how sports seasons would proceed. With an on-time start, football is poised to capture “a greater share of a smaller pie.”`\
+https://nytimes.com/2020/09/10/sports/football/nfl-tv-broadcast-ads.html?searchResultPosition=3
+
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2020/09/10/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=4
+
+**A University Had a Great Coronavirus Plan, but Students Partied On**\
+`An unexpected upswing in positive tests at the University of Illinois at Urbana-Champaign showed how even the most comprehensive approaches to limiting the virus’s spread can break down.`\
+https://nytimes.com/2020/09/10/health/university-illinois-covid.html?searchResultPosition=5
+
+**‘I Didn’t Lie,’ Trump Claims on Downplaying Coronavirus Threat**\
+`During a news conference, President Trump defended his interviews with the veteran journalist Bob Woodward.`\
+https://nytimes.com/video/us/politics/100000007334631/trump-woodward-coronavirus-interview.html?searchResultPosition=6
+
 **Coronavirus Briefing: What Happened Today**\
 `A recovery bill sinks, and teachers pay a heavy toll.`\
-https://nytimes.com/2020/09/10/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=1
+https://nytimes.com/2020/09/10/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=7
 
 **The Ugly Side of New York’s Outdoor Dining Renaissance**\
 `When sidewalk cafes collide with the city’s inadequate response to homelessness.`\
-https://nytimes.com/2020/09/10/nyregion/nyc-outdoor-dining-homeless.html?searchResultPosition=2
+https://nytimes.com/2020/09/10/nyregion/nyc-outdoor-dining-homeless.html?searchResultPosition=8
 
 **La Niña May Worsen Southwest Drought This Winter**\
 `Climate forecasters said the pattern would affect weather across the globe.`\
-https://nytimes.com/2020/09/10/climate/la-nina-southwest-drought.html?searchResultPosition=3
+https://nytimes.com/2020/09/10/climate/la-nina-southwest-drought.html?searchResultPosition=9
 
 **Four Houston Police Officers Are Fired Over Fatal Shooting**\
 `Nicolas Chavez, 27, was killed by the police in southwest Houston in April, during a confrontation that was partly recorded by a bystander’s cellphone.`\
-https://nytimes.com/2020/09/10/us/nicholas-chavez-houston-police.html?searchResultPosition=4
-
-**A District Keeps Classrooms Closed, Defying a Governor’s Order**\
-`In one of the nation’s sharpest clashes over school reopening, officials in Des Moines say Iowa’s Republican governor is pushing them to risk public safety.`\
-https://nytimes.com/2020/09/10/us/des-moines-school-opening-coronavirus.html?searchResultPosition=5
-
-**M.L.B. Set to Hold Postseason at Neutral Sites**\
-`The league plans to hold games at four stadiums in Southern California and Texas, with the World Series held at the Texas Rangers’ new ballpark.`\
-https://nytimes.com/2020/09/10/sports/baseball/mlb-postseason-neutral-sites.html?searchResultPosition=6
-
-**Century 21, Fabled New York Bargain Destination, Is Closing**\
-`The retailer, famous for offering designer goods at discount prices, said it had failed to receive $175 million from its insurers and would close its 13 locations.`\
-https://nytimes.com/2020/09/10/business/century-21-bankruptcy-closing.html?searchResultPosition=7
-
-**U.S. Imposes Sanctions on Ukrainian With Ties to Russia, Citing Election Interference**\
-`Andriy Derkach has released information intended to hurt former Vice President Joseph R. Biden Jr., which President Trump has promoted.`\
-https://nytimes.com/2020/09/10/us/politics/sanctions-russia-ukraine-election-interference.html?searchResultPosition=8
-
-**Joan Feynman, Who Shined Light on the Aurora Borealis, Dies at 93**\
-`Her mother told her that women’s brains “can’t do science.” She would prove her mother very wrong.`\
-https://nytimes.com/2020/09/10/science/joan-feynman-dead.html?searchResultPosition=9
-
-**Your Friday Briefing**\
-`Indonesia hospitals, election hacking, Afghan peace talks: Here’s what you need to know.`\
-https://nytimes.com/2020/09/10/briefing/indonesia-hospitals-russian-hackers-california-fires.html?searchResultPosition=10
+https://nytimes.com/2020/09/10/us/nicholas-chavez-houston-police.html?searchResultPosition=10
 
