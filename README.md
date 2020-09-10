@@ -26,8 +26,8 @@ https://nytimes.com/2020/09/09/us/forrest-fenn-dead.html?searchResultPosition=6
 `He lied about the coronavirus anyway.`\
 https://nytimes.com/2020/09/09/opinion/trump-bob-woodward-coronavirus.html?searchResultPosition=7
 
-**California, Washington and Oregon Fire Maps Tracker**\
-`Maps showing the extents of the major fires in the western states.`\
+**California, Washington and Oregon Fire Tracking Maps**\
+`Maps showing the major fires are burning in the western states.`\
 https://nytimes.com/interactive/2020/us/fires-map-tracker.html?searchResultPosition=8
 
 **In Bob Woodward’s ‘Rage,’ a Reporter and a President From Different Universes**\
