@@ -1,40 +1,40 @@
-**Video Shows: New Fire Engulfs Beirut Port**\
-`Video shows flames erupting at an already damaged warehouse and a thick plume of smoke rising from the area.`\
-https://nytimes.com/video/world/europe/100000007333350/beirut-port-explosion.html?searchResultPosition=1
+**‘Buoyancy’ Review: Enduring Horrors on the Sea, and Struggling to Survive**\
+`In this sobering, moving drama, a Cambodian teenager runs away from home and is sold into slavery on a Thai fishing boat.`\
+https://nytimes.com/2020/09/10/movies/buoyancy-review.html?searchResultPosition=1
 
-**Citigroup Names Fraser as C.E.O. With Corbat to Retire Next Year**\
-`Jane Fraser, currently the bank’s president, will replace Corbat in February, becoming the first woman to lead a major Wall Street institution.`\
-https://nytimes.com/2020/09/10/business/citigroup-ceo-jane-fraser.html?searchResultPosition=2
+**What to Know About the Wildfires**\
+`Thursday: Taking a step back to answer questions.`\
+https://nytimes.com/2020/09/10/us/california-wildfires.html?searchResultPosition=2
 
-**For Survivors at Charlie Hebdo Trial, Wounds Are Still Raw**\
-`Victims of the 2015 attack on the satirical weekly took the stand this week with vivid accounts of how their colleagues were killed — and how their own lives were suddenly overturned.`\
-https://nytimes.com/2020/09/10/world/europe/charlie-hebdo-trial-survivors.html?searchResultPosition=3
+**Homes for Sale in Brooklyn, the Bronx and Manhattan**\
+`This week’s properties are in Red Hook, Kingsbridge and Midtown East.`\
+https://nytimes.com/2020/09/10/realestate/housing-market-nyc.html?searchResultPosition=3
 
-**Even With 190,000 Dead, There’s a Lot Voters Don’t Know**\
-`People often engage in “projection,” assuming a preferred candidate shares their view, even on a key issue like masks during a pandemic.`\
-https://nytimes.com/2020/09/10/upshot/voters-trump-virus-projection.html?searchResultPosition=4
+**On the Market in New York City**\
+`This week’s properties are in Red Hook, Kingsbridge and Midtown East.`\
+https://nytimes.com/slideshow/2020/09/10/realestate/on-the-market-in-new-york-city.html?searchResultPosition=4
 
-**Trump, the Coronavirus Vaccine’s Worst Hype Man**\
-`He has so little credibility that even Big Pharma is turning on him.`\
-https://nytimes.com/2020/09/10/opinion/trump-big-pharma-coronavirus.html?searchResultPosition=5
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties include a six-bedroom, 1788 house in Albertson, N.Y., and a five-bedroom in Absecon, N.J.`\
+https://nytimes.com/2020/09/10/realestate/housing-market-near-nyc.html?searchResultPosition=5
 
-**In Berlin Theaters, the Curtain Rises on a ‘Corona Season’**\
-`Some of the city’s major playhouses are presenting pandemic-delayed premieres in sparsely populated auditoriums, with much of the seating removed.`\
-https://nytimes.com/2020/09/10/theater/berlin-theater-season-coronavirus.html?searchResultPosition=6
+**On the Market in the New York Region**\
+`This week’s properties include a six-bedroom, 1788 house in Albertson, N.Y., and a five-bedroom in Absecon, N.J.`\
+https://nytimes.com/slideshow/2020/09/10/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=6
 
-**The Case of the LVMH Letter**\
-`Can a French government intervention excuse the luxury conglomerate from its $16.2 billion deal with Tiffany? It depends on what counts as an order.`\
-https://nytimes.com/2020/09/10/business/dealbook/lvmh-tiffany-deal.html?searchResultPosition=7
+**Fewer Homes, Higher Asking Prices**\
+`Though asking prices are up somewhat, reduced inventory could cause final selling prices to be even higher.`\
+https://nytimes.com/2020/09/10/realestate/fewer-homes-higher-asking-prices.html?searchResultPosition=7
 
-**New Fire Erupts in Beirut Port, Weeks After Devastating Blast**\
-`Orange flames and a plume of black smoke rose over the city, terrifying residents still recovering from last month’s explosion.`\
-https://nytimes.com/2020/09/10/world/middleeast/beirut-port-fire.html?searchResultPosition=8
+**Cleaners Demand Harassment Safeguards From the Booking Service Handy**\
+`Workers for a home services company say they face sexual harassment and unfair fees. A civil rights group is asking California regulators to step in.`\
+https://nytimes.com/2020/09/10/business/handy-service-cleaners-harassment.html?searchResultPosition=8
 
-**The Woodward Revelations**\
-`In March, Trump admitted he was downplaying the coronavirus: This is your morning tip sheet.`\
-https://nytimes.com/2020/09/10/us/politics/trump-woodward-book.html?searchResultPosition=9
+**‘Black Boys’ Review: Young Lives in the Balance**\
+`This documentary addresses the dehumanization of Black boys by attempting the reverse: reconstructing them to show they are worth the care they are denied.`\
+https://nytimes.com/2020/09/10/movies/black-boys-review.html?searchResultPosition=9
 
-**‘Space Dogs’ Review: No Dogs Go to Heaven**\
-`This documentary uses the lives and legends of Moscow’s street dogs to present a brutal vision of humanity and nature.`\
-https://nytimes.com/2020/09/10/movies/space-dogs-review.html?searchResultPosition=10
+**How Do I Tell My Friend to Stop Paying for His Son’s Lifestyle?**\
+`A reader wants his golfing buddy to stop complaining about his over-age dependent.`\
+https://nytimes.com/2020/09/10/style/paying-for-son-expenses.html?searchResultPosition=10
 
