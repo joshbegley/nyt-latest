@@ -1,40 +1,40 @@
+**‘Space Dogs’ Review: No Dogs Go to Heaven**\
+`This documentary uses the lives and legends of Moscow’s street dogs to present a brutal vision of humanity and nature.`\
+https://nytimes.com/2020/09/10/movies/space-dogs-review.html?searchResultPosition=1
+
+**‘Jimmy Carter Rock & Roll President’ Review: A Musically Enlightened Commander in Chief**\
+`Bob Dylan, Rosanne Cash, Willie Nelson, Garth Brooks and more celebrate the 39th U.S. president in this documentary.`\
+https://nytimes.com/2020/09/10/movies/jimmy-carter-rock-roll-president-review.html?searchResultPosition=2
+
+**‘Suspension’ Review: Roads to Nowhere**\
+`This documentary looks at a stretch of road in Colombia known as “the springboard of death.”`\
+https://nytimes.com/2020/09/10/movies/suspension-review.html?searchResultPosition=3
+
+**‘Our Time Machine’ Review: A Picture of the Past**\
+`In this documentary, the Chinese artist Maleonn enlists his aging parents, both artists themselves, in an ambitious memory play.`\
+https://nytimes.com/2020/09/10/movies/our-time-machine-review.html?searchResultPosition=4
+
+**‘Red, White & Wasted’ Review: Dirty Driving**\
+`A beloved swampland subculture is under threat in this raucous yet melancholy documentary.`\
+https://nytimes.com/2020/09/10/movies/red-white-wasted-review.html?searchResultPosition=5
+
+**‘Sibyl’ Review: Diagnosing Problems, and Creating More**\
+`A troubled psychotherapist becomes unhealthily embroiled in a patient’s life in this unhinged melodrama.`\
+https://nytimes.com/2020/09/10/movies/sibyl-review.html?searchResultPosition=6
+
+**‘Unpregnant’ Review: Friendship Is a Long and Winding Road**\
+`Former besties reunite for a road trip in this teen buddy comedy, which is the second movie this year to feature young women crossing state lines to obtain an abortion.`\
+https://nytimes.com/2020/09/10/movies/unpregnant-review.html?searchResultPosition=7
+
+**‘Rent-A-Pal’ Review: You Don’t Want to Borrow This VHS Tape**\
+`Set in the 1990s, this thriller features Wil Wheaton — on a videotape — as a bearded, sweater-vest wearing “friend” to a lonely man.`\
+https://nytimes.com/2020/09/10/movies/rent-a-pal-review.html?searchResultPosition=8
+
 **What Milton Friedman Missed About Social Inequality**\
 `Since the economist wrote his influential essay on capitalism, the “haves” have gained much — and everyone else has missed out.`\
-https://nytimes.com/2020/09/10/business/dealbook/milton-friedman-inequality.html?searchResultPosition=1
+https://nytimes.com/2020/09/10/business/dealbook/milton-friedman-inequality.html?searchResultPosition=9
 
 **The West, Ablaze**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/09/10/briefing/california-wildfires-bob-woodward-coronavirus-your-thursday-briefing.html?searchResultPosition=2
-
-**A Director Turns an Immigrant Into a Modern-Day Jesus**\
-`Milo Rau has retold the Passion of Christ through the story of migrant workers in Italy fighting for rights and citizenship.`\
-https://nytimes.com/2020/09/10/movies/milo-rau-the-new-gospel.html?searchResultPosition=3
-
-**Inquiry Begins Into AstraZeneca’s Vaccine Trial**\
-`A participant in the company’s late-stage coronavirus vaccine trial reportedly developed severe neurological symptoms. Now experts must assess whether the vaccine was responsible.`\
-https://nytimes.com/2020/09/10/health/covid-astrazeneca-vaccine-trans.html?searchResultPosition=4
-
-**Wildfires Are Worsening. The Way We Manage Them Isn’t Keeping Pace.**\
-`The blazes scorching the West highlight the urgency of rethinking fire management policies, as climate change threatens to make things worse.`\
-https://nytimes.com/2020/09/10/climate/wildfires-climate-policy.html?searchResultPosition=5
-
-**The Killing of Breonna Taylor, Part 2**\
-`What thousands of pages of documents tell us about the night the 26-year-old was killed and whether the officers involved will ever be charged.`\
-https://nytimes.com/2020/09/10/podcasts/the-daily/Breonna-Taylor.html?searchResultPosition=6
-
-**Mothers for QAnon**\
-`In the testosterone-filled world of Trump-adjacent online conspiracy, the newest theory stands out. Why are so many women falling for Q?`\
-https://nytimes.com/2020/09/10/opinion/qanon-women-conspiracy.html?searchResultPosition=7
-
-**Covid-19 Live Updates: Senate Republicans Plan Vote on ‘Skinny’ Aid Bill**\
-`The measure, which Democrats see as inadequate, is likely to fail.`\
-https://nytimes.com/2020/09/10/world/covid-19-coronavirus.html?searchResultPosition=8
-
-**After Backlash, Homeless Men Will Move Out of the Upper West Side**\
-`Some residents complained that the new neighbors were diminishing the quality of life in the area. Others felt that characterization was unfair.`\
-https://nytimes.com/2020/09/10/nyregion/homeless-men-hotel-upper-west-side.html?searchResultPosition=9
-
-**What’s Mightier Than the Coronavirus? A Freshly Killed Chicken**\
-`How Hong Kong’s food culture has adapted to epidemic after epidemic, fending off disease while saving its favorite dishes, and its soul.`\
-https://nytimes.com/2020/09/10/opinion/coronavirus-hong-kong-food.html?searchResultPosition=10
+https://nytimes.com/2020/09/10/briefing/california-wildfires-bob-woodward-coronavirus-your-thursday-briefing.html?searchResultPosition=10
 
