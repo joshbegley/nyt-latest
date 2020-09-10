@@ -1,40 +1,40 @@
+**Forrest Fenn, Art Dealer Who Enticed Thousands to Hunt for Hidden Treasure, Dies at 90**\
+`Mr. Fenn announced in a 2010 book that he had hidden a chest of gold nuggets, diamonds and other jewels somewhere in the Rocky Mountains. People reacted.`\
+https://nytimes.com/2020/09/09/us/forrest-fenn-dead.html?searchResultPosition=1
+
+**Mr. Trump Knew It Was Deadly and Airborne**\
+`He lied about the coronavirus anyway.`\
+https://nytimes.com/2020/09/09/opinion/trump-bob-woodward-coronavirus.html?searchResultPosition=2
+
 **California, Washington and Oregon Fire Maps Tracker**\
 `Maps showing the extents of the major fires in the western states.`\
-https://nytimes.com/interactive/2020/us/fires-map-tracker.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/us/fires-map-tracker.html?searchResultPosition=3
 
 **In Bob Woodward’s ‘Rage,’ a Reporter and a President From Different Universes**\
 `In this follow-up to “Fear,” Woodward continues applying old-school theories and lines of questioning to a deeply unorthodox administration.`\
-https://nytimes.com/2020/09/09/books/review-rage-donald-trump-bob-woodward.html?searchResultPosition=2
+https://nytimes.com/2020/09/09/books/review-rage-donald-trump-bob-woodward.html?searchResultPosition=4
 
 **Oh Lord, We’re Financing Trump**\
 `Next time your lawn needs a rehab, you know whom to bill.`\
-https://nytimes.com/2020/09/09/opinion/trump-campaign-money.html?searchResultPosition=3
+https://nytimes.com/2020/09/09/opinion/trump-campaign-money.html?searchResultPosition=5
 
 **‘We’re No. 28! And Dropping!’**\
 `A measure of social progress finds that the quality of life has dropped in America over the last decade, even as it has risen almost everywhere else.`\
-https://nytimes.com/2020/09/09/opinion/united-states-social-progress.html?searchResultPosition=4
+https://nytimes.com/2020/09/09/opinion/united-states-social-progress.html?searchResultPosition=6
 
 **Health Official Tries to Reassure Public That Science Will Set Vaccine Approval**\
 `Dr. Francis S. Collins, the National Institutes of Health director, who testified before senators along with Surgeon General Jerome Adams, said a vaccine wouldn’t be made available unless it was safe.`\
-https://nytimes.com/2020/09/09/us/politics/coronavirus-vaccine-trump.html?searchResultPosition=5
+https://nytimes.com/2020/09/09/us/politics/coronavirus-vaccine-trump.html?searchResultPosition=7
 
 **Wildfires Bring New Devastation Across the West**\
 `A record 2.5 million acres have burned in California, while entire communities in Oregon and Washington were largely wiped out.`\
-https://nytimes.com/2020/09/09/us/fires-washington-california-oregon-malden.html?searchResultPosition=6
+https://nytimes.com/2020/09/09/us/fires-washington-california-oregon-malden.html?searchResultPosition=8
 
 **Trump Announces New Slate of Possible Supreme Court Picks**\
 `The president, who views his commitment to a conservative federal judiciary as critical to his 2016 victory, added 20 more names to earlier lists.`\
-https://nytimes.com/2020/09/09/us/trump-supreme-court-list.html?searchResultPosition=7
+https://nytimes.com/2020/09/09/us/trump-supreme-court-list.html?searchResultPosition=9
 
 **Trump Resumes the Rallies He Cherishes, but Virus Vexes His Plans**\
 `With hyperbole and falsehoods, the president has increased stops at airports that resemble campaign rallies, his favorite type of politicking. But Nevada said the events violated health restrictions and canceled two rallies there.`\
-https://nytimes.com/2020/09/09/us/politics/trump-rally-nevada.html?searchResultPosition=8
-
-**Gary Peacock, Master Jazz Bassist, Is Dead at 85**\
-`He was a free-jazz pioneer early on before becoming the enduring third leg of a Keith Jarrett trio, infusing American standards with a Zen sensibility.`\
-https://nytimes.com/2020/09/09/arts/music/gary-peacock-dead-at-85.html?searchResultPosition=9
-
-**5 Takeaways From ‘Rage,’ Bob Woodward’s New Book About Trump**\
-`Mr. Woodward reveals that President Trump sought to play down the severity of the coronavirus and repeatedly denigrated the U.S. military.`\
-https://nytimes.com/2020/09/09/us/politics/woodward-trump-rage-takeaways.html?searchResultPosition=10
+https://nytimes.com/2020/09/09/us/politics/trump-rally-nevada.html?searchResultPosition=10
 
