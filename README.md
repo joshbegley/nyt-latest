@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/10/us/politics/fda-coronavirus-vaccine.html?searchResultPosition=1
 
 **Federal Court Rejects Trump’s Order to Exclude Undocumented From Census**\
-`A three-judge panel unanimously said President Trump lacks authority to remove noncitizens census counts used to allot House seats.`\
+`A three-judge panel unanimously said President Trump lacks the authority to remove noncitizens from census counts used to allot House seats.`\
 https://nytimes.com/2020/09/10/us/census-undocumented-trump.html?searchResultPosition=2
 
 **When a Heart Is Empty**\
