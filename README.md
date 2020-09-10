@@ -10,8 +10,8 @@ https://nytimes.com/2020/09/10/sports/tennis/2020-us-open-what-to-watch.html?sea
 `The Texans and the Chiefs will get things started on Thursday in a season that should look different than previous years, but will feature plenty of intriguing story lines.`\
 https://nytimes.com/2020/09/10/sports/football/nfl-picks-week-1.html?searchResultPosition=3
 
-**Your Thursday Briefing**\
-`President Trump, Moria migrants, Beirut explosion: Here’s what you need to know.`\
+**President Trump, Moria Migrants, Beirut Explosion: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/09/briefing/trump-moria-beirut.html?searchResultPosition=4
 
 **Texas Man Sentenced to Five Years for Planting Bombs in Beaumont**\
