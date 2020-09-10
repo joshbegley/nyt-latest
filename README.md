@@ -2,7 +2,7 @@
 `Some of the city’s major playhouses are presenting pandemic-delayed premieres in sparsely populated auditoriums, with much of the seating removed.`\
 https://nytimes.com/2020/09/10/theater/berlin-theater-season-coronavirus.html?searchResultPosition=1
 
-**DealBook: The Case of the LVMH Letter**\
+**The Case of the LVMH Letter**\
 `Can a French government intervention excuse the luxury conglomerate from its $16.2 billion deal with Tiffany? It depends on what counts as an order.`\
 https://nytimes.com/2020/09/10/business/dealbook/lvmh-tiffany-deal.html?searchResultPosition=2
 
