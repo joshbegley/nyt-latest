@@ -24,7 +24,7 @@ https://nytimes.com/2020/09/10/obituaries/marcia-sasser-dead-coronavirus.html?se
 
 **In Photos: Wildfires Ravage California, Oregon and Washington**\
 `Fires continued to blaze up and down the West Coast, destroying neighborhoods and forcing mass evacuations as firefighters struggled to contain them.`\
-https://nytimes.com/article/fire-photos.html?searchResultPosition=7
+https://nytimes.com/article/wildfires-photos-california-oregon-washington-state.html?searchResultPosition=7
 
 **3 Air National Guard Members Killed in Plane Crash in Tennessee**\
 `The crash, which occurred near an airport 70 miles southeast of Nashville, is being investigated by the F.A.A. and the National Transportation Safety Board.`\
