@@ -1,6 +1,6 @@
 **Your Friday Briefing**\
 `Brexit, Russian hacking, coronavirus deaths: Here’s what you need to know.`\
-https://nytimes.com/2020/09/10/briefing/your-friday-briefing.html?searchResultPosition=1
+https://nytimes.com/2020/09/10/briefing/brexit-russian-hacking-coronavirus.html?searchResultPosition=1
 
 **Not on Time, but That’s OK**\
 `Caitlin Reid and Erik Agard finally arrive to open our solving weekend.`\
