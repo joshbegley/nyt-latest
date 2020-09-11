@@ -1,40 +1,40 @@
-**The Pandemic in Six Word Memoirs**\
-`“The world has never felt smaller.”`\
-https://nytimes.com/2020/09/11/opinion/coronavirus-pandemic-poetry-memoirs.html?searchResultPosition=1
+**Black Police Chiefs, Feeling Squeezed, Face Criticism on All Sides**\
+`As police departments are scrutinized for racist policing practices, African-American chiefs find themselves caught between skeptical residents and officers.`\
+https://nytimes.com/2020/09/11/us/black-police-chiefs-reform.html?searchResultPosition=1
 
-**After the After-Parties, Act 1, Scene 1**\
-`Shauna Perlman and Julie Oh went from party to party after the Tony Awards ceremony in 2014, and then gingerly entered into a relationship.`\
-https://nytimes.com/2020/09/11/style/after-the-after-parties-act-1-scene-1.html?searchResultPosition=2
+**The Coronavirus Is Mutating, and That’s Fine (So Far)**\
+`SARS-CoV-2 has been slowly changing in small ways, without getting more dangerous.`\
+https://nytimes.com/2020/09/11/opinion/coronavirus-mutation-reinfection.html?searchResultPosition=2
 
-**Larry Wilmore Doesn’t Miss Late Night, but He’s Back Anyway**\
-`Four years after the abrupt end of “The Nightly Show,” Wilmore has a new topical comedy series on Peacock.`\
-https://nytimes.com/2020/09/11/arts/television/larry-wilmore.html?searchResultPosition=3
+**The Other Way Covid Will Kill: Hunger**\
+`Worldwide, the population facing life-threatening levels of food insecurity is expected to double, to more than a quarter of a billion people.`\
+https://nytimes.com/2020/09/11/business/covid-hunger-food-insecurity.html?searchResultPosition=3
 
-**Is There a Black Hole in Our Backyard?**\
-`Astrophysicists have recently begun hatching plans to find out just how weird Planet Nine might be.`\
-https://nytimes.com/2020/09/11/science/astronomy-planet-nine-black-hole.html?searchResultPosition=4
+**In New Development, Buyers Favor the Boroughs**\
+`Yes, some buyers are leaving Manhattan. But others are doubling down on Brooklyn and Queens.`\
+https://nytimes.com/2020/09/11/realestate/new-development-brooklyn-queens-covid.html?searchResultPosition=4
 
-**A Day 1 Prediction on the Beach**\
-`Jordan Eller and Philipp Leiminger met on an island in Thailand. Their connection was immediate.`\
-https://nytimes.com/2020/09/11/fashion/weddings/a-day-1-prediction-on-the-beach.html?searchResultPosition=5
+**Green Golf Homes in Five Global Destinations**\
+`Golf homes, like the courses themselves, are getting more environmentally conscious as climate change threats grow in golf-friendly territory.`\
+https://nytimes.com/2020/09/11/realestate/green-golf-homes.html?searchResultPosition=5
 
-**Can Empathy Be Taught? Should Schools Try to Help Us Feel One Another’s Pain?**\
-`We can never perfectly inhabit another person’s experience, but should we still try?`\
-https://nytimes.com/2020/09/11/learning/can-empathy-be-taught-should-schools-try-to-help-us-feel-one-anothers-pain.html?searchResultPosition=6
+**Flying, Golfing and Living. All in the Same Place.**\
+`These homeowners can taxi their planes to their backyard hangars and then drive their golf carts to the greens.`\
+https://nytimes.com/2020/09/11/realestate/golf-planes-homes.html?searchResultPosition=6
 
-**I’ve Never Seen the American West in Such Deep Distress**\
-`We’re choking on smoke and staring out at Martian-red skies in a world becoming uninhabitable.`\
-https://nytimes.com/2020/09/11/opinion/fire-coronavirus-west-california.html?searchResultPosition=7
+**Jerry Lorenzo, the Designer Behind the Cult Label Fear of God**\
+`His “fluid casual” collection may become our uniform in a postcoronavirus world.`\
+https://nytimes.com/2020/09/11/fashion/mens-style/jerry-lorenzo-the-designer-behind-the-cult-label-fear-of-god.html?searchResultPosition=7
 
-**Always on Each Other’s Mind**\
-`Caitlin Nicholson and Emily Reeves got to know each other at a Dartmouth sorority party, and hit it off right away.`\
-https://nytimes.com/2020/09/11/style/always-on-each-others-mind.html?searchResultPosition=8
+**‘It’s Like Church to Us’: A Brooklyn Tradition Goes On**\
+`This year, the official West Indian American Day celebrations were canceled — but the Carnival spirit came through.`\
+https://nytimes.com/2020/09/11/nyregion/west-indian-carnival-parade.html?searchResultPosition=8
 
-**One Question Left on the Board**\
-`Lina-Marie Mano and Andrew Silvestri played 20 questions while they were dating as a way to learn more about each other.`\
-https://nytimes.com/2020/09/11/style/one-question-left-on-the-board.html?searchResultPosition=9
+**Golf Is Embracing the ‘Dark Sky’ Movement**\
+`The payoffs go far beyond a better view of the glittering stars above.`\
+https://nytimes.com/2020/09/11/climate/golf-dark-sky-movement.html?searchResultPosition=9
 
-**The Perfect Mix: Politics and Comedy**\
-`Chelsea Connor and Will Carey met at a comedy club in June 2014, but didn’t begin to date to date until a month later, after the New York Democratic primary.`\
-https://nytimes.com/2020/09/11/style/the-perfect-mix-politics-and-comedy.html?searchResultPosition=10
+**This Island Has No Bridges. Can It Survive With No Ferries?**\
+`On Shelter Island, private ferries are the only way to reach the mainland. With a greatly reduced tourist season, they might be out of business soon.`\
+https://nytimes.com/2020/09/11/nyregion/shelter-island-ferries.html?searchResultPosition=10
 
