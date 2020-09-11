@@ -26,7 +26,7 @@ https://nytimes.com/2020/09/10/crosswords/daily-puzzle-2020-09-11.html?searchRes
 `In a United States Open with a reduced field and protocols that discouraged players from high-fiving, Mate Pavic and Bruno Soares won their first major title together in straight sets.`\
 https://nytimes.com/2020/09/10/sports/us-open-mens-doubles-final.html?searchResultPosition=7
 
-**Victoria Azarenka Reaches U.S. Open Final After Serena Williams Hurt**\
+**Victoria Azarenka Beats Serena Williams in Comeback to Reach U.S. Open Final**\
 `Serena Williams was hurt in the third set of a tight match against Azarenka, who will face Naomi Osaka in the final.`\
 https://nytimes.com/2020/09/10/sports/tennis/us-open-naomi-osaka-jennifer-brady-serena-williams-victoria-azarenka-semifinal.html?searchResultPosition=8
 
