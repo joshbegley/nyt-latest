@@ -2,7 +2,7 @@
 `The Lakers took a 3-1 lead in the series by shutting down James Harden`\
 https://nytimes.com/2020/09/11/sports/rockets-lakers-nba.html?searchResultPosition=1
 
-**DealBook: Who’s the Next Woman to Take Over on Wall Street?**\
+**Who’s the Next Woman to Take Over on Wall Street?**\
 `Citigroup made history by appointing Jane Fraser as its next C.E.O., making her the first woman to lead a major Wall Street bank. Who will be the second?`\
 https://nytimes.com/2020/09/11/business/dealbook/women-wall-street-citigroup.html?searchResultPosition=2
 
