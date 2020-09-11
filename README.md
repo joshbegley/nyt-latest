@@ -1,40 +1,40 @@
-**China and India Pledge to Ease Tensions After Border Clashes**\
-`The foreign ministers of the two countries issued a five-point statement aimed at ending a simmering confrontation. A previous pledge was followed by the deadliest clash in decades.`\
-https://nytimes.com/2020/09/11/world/asia/china-india-border-clashes.html?searchResultPosition=1
+**The Pandemic in Six Word Memoirs**\
+`“The world has never felt smaller.”`\
+https://nytimes.com/2020/09/11/opinion/coronavirus-pandemic-poetry-memoirs.html?searchResultPosition=1
 
-**Rapes of Woman and 5-Year-Old Fuel Outrage in Pakistan**\
-`The girl’s burned body was found two days later. The woman was dragged from her car. The two cases have focused the country’s attention on its handling of sexual abuse.`\
-https://nytimes.com/2020/09/11/world/asia/pakistan-rape-5-year-old-lahore-karachi.html?searchResultPosition=2
+**After the After-Parties, Act 1, Scene 1**\
+`Shauna Perlman and Julie Oh went from party to party after the Tony Awards ceremony in 2014, and then gingerly entered into a relationship.`\
+https://nytimes.com/2020/09/11/style/after-the-after-parties-act-1-scene-1.html?searchResultPosition=2
 
-**Lesson of the Day: ‘High Schoolers Across the Country Are Seeking “Teenager Therapy’’’**\
-`In this lesson, students will learn about a podcast started by five teenagers from a bedroom that has become a lifeline for other kids. Then they will consider what kind of podcast they would want to create.`\
-https://nytimes.com/2020/09/11/learning/lesson-of-the-day-high-schoolers-across-the-country-are-seeking-teenager-therapy.html?searchResultPosition=3
+**Larry Wilmore Doesn’t Miss Late Night, but He’s Back Anyway**\
+`Four years after the abrupt end of “The Nightly Show,” Wilmore has a new topical comedy series on Peacock.`\
+https://nytimes.com/2020/09/11/arts/television/larry-wilmore.html?searchResultPosition=3
 
-**News Quiz: Wildfires, Coronavirus, U.S. Open**\
-`Did you follow the headlines this week?`\
-https://nytimes.com/interactive/2020/09/11/briefing/news-quiz-wildfires-coronavirus-tennis.html?searchResultPosition=4
+**Is There a Black Hole in Our Backyard?**\
+`Astrophysicists have recently begun hatching plans to find out just how weird Planet Nine might be.`\
+https://nytimes.com/2020/09/11/science/astronomy-planet-nine-black-hole.html?searchResultPosition=4
 
-**Trevor Noah: Trump Should Be America’s Coach, Not Its Cheerleader**\
-`“When you see that your team is headed for a huge defeat, you come up with some plays, right?” the “Daily Show” host said.`\
-https://nytimes.com/2020/09/11/arts/television/late-night-trevor-noah-trump-cheerleader.html?searchResultPosition=5
+**A Day 1 Prediction on the Beach**\
+`Jordan Eller and Philipp Leiminger met on an island in Thailand. Their connection was immediate.`\
+https://nytimes.com/2020/09/11/fashion/weddings/a-day-1-prediction-on-the-beach.html?searchResultPosition=5
 
-**From Asia to Africa, China Promotes Its Vaccines to Win Friends**\
-`With pledges of a coronavirus vaccine, China is on a charm offensive to repair strained diplomatic ties and bolster engagement with other countries.`\
-https://nytimes.com/2020/09/11/business/china-vaccine-diplomacy.html?searchResultPosition=6
+**Can Empathy Be Taught? Should Schools Try to Help Us Feel One Another’s Pain?**\
+`We can never perfectly inhabit another person’s experience, but should we still try?`\
+https://nytimes.com/2020/09/11/learning/can-empathy-be-taught-should-schools-try-to-help-us-feel-one-anothers-pain.html?searchResultPosition=6
 
-**Tropical Confinement**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2020/09/11/learning/tropical-confinement.html?searchResultPosition=7
+**I’ve Never Seen the American West in Such Deep Distress**\
+`We’re choking on smoke and staring out at Martian-red skies in a world becoming uninhabitable.`\
+https://nytimes.com/2020/09/11/opinion/fire-coronavirus-west-california.html?searchResultPosition=7
 
-**2020 U.S. Open: What to Watch on Friday**\
-`Daniil Medvedev and Dominic Thiem will meet in a men’s semifinal on Friday night, and the women’s doubles title will be decided.`\
-https://nytimes.com/2020/09/11/sports/2020-us-open-what-to-watch.html?searchResultPosition=8
+**Always on Each Other’s Mind**\
+`Caitlin Nicholson and Emily Reeves got to know each other at a Dartmouth sorority party, and hit it off right away.`\
+https://nytimes.com/2020/09/11/style/always-on-each-others-mind.html?searchResultPosition=8
 
-**Word + Quiz: passel**\
-`This word has appeared in 18 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/09/11/learning/word-quiz-passel.html?searchResultPosition=9
+**One Question Left on the Board**\
+`Lina-Marie Mano and Andrew Silvestri played 20 questions while they were dating as a way to learn more about each other.`\
+https://nytimes.com/2020/09/11/style/one-question-left-on-the-board.html?searchResultPosition=9
 
-**Rio Tinto Executives to Step Down After Miner Destroys Sacred Australian Sites**\
-`The mining giant’s chief executive was among those pushed out after shareholders revolted over the destruction of ancient Indigenous sites in Western Australia.`\
-https://nytimes.com/2020/09/11/business/rio-tinto-indigenous-sites.html?searchResultPosition=10
+**The Perfect Mix: Politics and Comedy**\
+`Chelsea Connor and Will Carey met at a comedy club in June 2014, but didn’t begin to date to date until a month later, after the New York Democratic primary.`\
+https://nytimes.com/2020/09/11/style/the-perfect-mix-politics-and-comedy.html?searchResultPosition=10
 
