@@ -1,5 +1,5 @@
 **Naomi Osaka Reaches U.S. Open Final With Win Over Jennifer Brady**\
-`Osaka, the 2018 U.S. Open champion, prevailed even as she had her power matched by Brady for much of the match.`\
+`Osaka, the 2018 U.S. Open champion, prevailed even as she had her power matched often by Brady. Osaka will meet either Serena Williams or Victoria Azarenka in the final.`\
 https://nytimes.com/2020/09/10/sports/tennis/us-open-naomi-osaka-jennifer-brady-serena-williams-victoria-azarenka-semifinal.html?searchResultPosition=1
 
 **N.F.L. Season Kicks Off With Protests**\
