@@ -22,8 +22,8 @@ https://nytimes.com/2020/09/11/style/modern-love-no-emoticon-for-this-emotion.ht
 `Law enforcement agencies said claims on social media that antifascist activists had set fires on the West Coast were unfounded.`\
 https://nytimes.com/2020/09/10/us/wildfires-misinformation-arson-activists.html?searchResultPosition=6
 
-**Your Friday Briefing**\
-`Brexit, Russian hacking, coronavirus deaths: Here’s what you need to know.`\
+**Brexit, Russian Hacking, Coronavirus: Your Friday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/10/briefing/brexit-russian-hacking-coronavirus.html?searchResultPosition=7
 
 **Not on Time, but That’s OK**\
