@@ -1,5 +1,5 @@
-**N.F.L. Season Kicks Off With a Team Protest**\
-`After an off-season of social turmoil, the Houston Texans chose not to be on the field for the playing of the national anthem before the league’s season opener in Kansas City.`\
+**N.F.L. Season Kicks Off With Protests**\
+`After an off-season of social turmoil, the Houston Texans chose not to be on the field for the playing of “Lift Every Voice and Sing” and “The Star-Spangled Banner” before the league’s season opener in Kansas City, Mo.`\
 https://nytimes.com/2020/09/10/sports/nfl-anthem.html?searchResultPosition=1
 
 **Police Chief Cheated to Get His Job, and Officers Helped, U.S. Says**\
