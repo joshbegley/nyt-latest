@@ -1,5 +1,5 @@
 **Felicia Campbell, Professor Who Studied Gambling and Pop Culture, Dies at 89**\
-`Ms. Campbell was the longest-serving professor at the University of Las Vegas, Nevada. She died of complications of the novel coronavirus.`\
+`Ms. Campbell was the longest-serving professor at the University of Nevada, Las Vegas. She died of complications of the novel coronavirus.`\
 https://nytimes.com/2020/09/11/obituaries/felicia-campbell-dead-coronavirus.html?searchResultPosition=1
 
 **Six Questions Looming Over the New Season in Europe**\
