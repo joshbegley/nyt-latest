@@ -22,7 +22,7 @@ https://nytimes.com/2020/09/11/us/halloween-postcard.html?searchResultPosition=5
 `The coronavirus pandemic forced universities to create new football schedules on the fly. And even though the season has started, the tinkering may not be over.`\
 https://nytimes.com/2020/09/11/sports/ncaafootball/college-football-schedule.html?searchResultPosition=6
 
-**This Is the Most Perfect Way to Weeknight Shrimp**\
+**This Is the Path to Perfect Weeknight Shrimp**\
 `This twist on a buttery, garlicky scampi gets a sweet-tart lift from burst Sungold tomatoes and tangy fresh lime.`\
 https://nytimes.com/2020/09/11/dining/shrimp-scampi-recipe.html?searchResultPosition=7
 
