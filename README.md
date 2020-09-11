@@ -20,7 +20,7 @@ https://nytimes.com/2020/09/10/nyregion/bridgeport-police-chief-fraud.html?searc
 
 **Hopes Dim for More Stimulus as Democrats Block Narrow G.O.P. Plan**\
 `A show vote in the Senate reflected a continuing partisan divide that appears increasingly likely to scuttle any recovery package to address the toll of the pandemic before the November election.`\
-https://nytimes.com/2020/09/10/us/politics/senate-coronavirus-stimulus.html?searchResultPosition=6
+https://nytimes.com/2020/09/10/us/politics/second-stimulus-check.html?searchResultPosition=6
 
 **For a President Who ‘Needs to Touch the Flame,’ Bob Woodward Was Irresistible**\
 `President Trump gave 18 interviews to the famed Watergate journalist, gambling that he could control the narrative. Instead, he undermined himself shortly before an election.`\
