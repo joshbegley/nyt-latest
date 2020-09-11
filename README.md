@@ -31,7 +31,7 @@ https://nytimes.com/2020/09/10/crosswords/daily-puzzle-2020-09-11.html?searchRes
 https://nytimes.com/2020/09/10/sports/us-open-mens-doubles-final.html?searchResultPosition=8
 
 **Victoria Azarenka Beats Serena Williams in Comeback to Reach U.S. Open Final**\
-`Serena Williams was hurt in the third set of a tight match against Azarenka, who will face Naomi Osaka in the final.`\
+`Williams was hurt in the third set of a tight match. Azarenka will face Naomi Osaka in the final.`\
 https://nytimes.com/2020/09/10/sports/tennis/us-open-naomi-osaka-jennifer-brady-serena-williams-victoria-azarenka-semifinal.html?searchResultPosition=9
 
 **N.F.L. Season Kicks Off With Players’ Protesting Racism**\
