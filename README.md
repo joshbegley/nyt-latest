@@ -1,40 +1,40 @@
+**Not on Time, but That’s OK**\
+`Caitlin Reid and Erik Agard finally arrive to open our solving weekend.`\
+https://nytimes.com/2020/09/10/crosswords/daily-puzzle-2020-09-11.html?searchResultPosition=1
+
+**For the Men’s Doubles Champs, One Constant Holds: ‘A Grand Slam Is a Grand Slam’**\
+`In a United States Open with a reduced field and protocols that discouraged players from high-fiving, Mate Pavic and Bruno Soares won their first major title together in straight sets.`\
+https://nytimes.com/2020/09/10/sports/us-open-mens-doubles-final.html?searchResultPosition=2
+
 **Naomi Osaka Reaches U.S. Open Final With Win Over Jennifer Brady**\
 `Osaka, the 2018 U.S. Open champion, prevailed even as she had her power matched often by Brady. Osaka will meet either Serena Williams or Victoria Azarenka in the final.`\
-https://nytimes.com/2020/09/10/sports/tennis/us-open-naomi-osaka-jennifer-brady-serena-williams-victoria-azarenka-semifinal.html?searchResultPosition=1
+https://nytimes.com/2020/09/10/sports/tennis/us-open-naomi-osaka-jennifer-brady-serena-williams-victoria-azarenka-semifinal.html?searchResultPosition=3
 
 **N.F.L. Season Kicks Off With Protests**\
 `After an off-season of social turmoil, the Houston Texans chose not to be on the field for the playing of “Lift Every Voice and Sing” and “The Star-Spangled Banner” before the league’s season opener in Kansas City, Mo.`\
-https://nytimes.com/2020/09/10/sports/nfl-anthem.html?searchResultPosition=2
+https://nytimes.com/2020/09/10/sports/nfl-anthem.html?searchResultPosition=4
 
 **Police Chief Cheated to Get His Job, and Officers Helped, U.S. Says**\
 `Armando J. Perez, the police chief of Bridgeport, Conn., and another official were charged with conspiring to rig the hiring process to ensure Mr. Perez got the top job.`\
-https://nytimes.com/2020/09/10/nyregion/bridgeport-police-chief-fraud.html?searchResultPosition=3
+https://nytimes.com/2020/09/10/nyregion/bridgeport-police-chief-fraud.html?searchResultPosition=5
 
 **Hopes Dim for More Stimulus as Democrats Block Narrow G.O.P. Plan**\
 `A show vote in the Senate reflected a continuing partisan divide that appears increasingly likely to scuttle any recovery package to address the toll of the pandemic before the November election.`\
-https://nytimes.com/2020/09/10/us/politics/senate-coronavirus-stimulus.html?searchResultPosition=4
+https://nytimes.com/2020/09/10/us/politics/senate-coronavirus-stimulus.html?searchResultPosition=6
 
 **For a President Who ‘Needs to Touch the Flame,’ Bob Woodward Was Irresistible**\
 `President Trump gave 18 interviews to the famed Watergate journalist, gambling that he could control the narrative. Instead, he undermined himself shortly before an election.`\
-https://nytimes.com/2020/09/10/us/politics/trump-woodward.html?searchResultPosition=5
+https://nytimes.com/2020/09/10/us/politics/trump-woodward.html?searchResultPosition=7
 
 **Investigation of Medicare Chief Exposes Underside of Washington**\
 `A yearlong investigation into Seema Verma, the head of the Centers for Medicare and Medicaid Services, showed the cozy relations that fuel the nation’s capital at taxpayer expense.`\
-https://nytimes.com/2020/09/10/us/politics/seema-verma-investigation.html?searchResultPosition=6
+https://nytimes.com/2020/09/10/us/politics/seema-verma-investigation.html?searchResultPosition=8
 
 **States Are in Desperate Search for Help Battling Record Wildfires**\
 `With millions of acres ablaze across the West Coast, states are having a tough time finding available fire crews. California resorted to calling in a team of firefighters from Israel.`\
-https://nytimes.com/2020/09/10/us/fires-oregon-california-washington.html?searchResultPosition=7
+https://nytimes.com/2020/09/10/us/fires-oregon-california-washington.html?searchResultPosition=9
 
 **Ronald Harwood, Oscar-Winning Screenwriter, Is Dead at 85**\
 `A prolific writer of books and plays as well as screenplays, he won an Academy Award in 2003 for “The Pianist.”`\
-https://nytimes.com/2020/09/10/movies/ronald-harwood-dead.html?searchResultPosition=8
-
-**F.D.A. Regulators Publish Rare Self-Defense Amid Rising Vaccine Pressure**\
-`A group of career scientists at the Food and Drug Administration vowed that their work would continue unimpeded and independent of political influence.`\
-https://nytimes.com/2020/09/10/us/politics/fda-coronavirus-vaccine.html?searchResultPosition=9
-
-**Federal Court Rejects Trump’s Order to Exclude Undocumented From Census**\
-`A three-judge panel unanimously said President Trump lacked the authority to remove noncitizens from census counts used to allot House seats.`\
-https://nytimes.com/2020/09/10/us/census-undocumented-trump.html?searchResultPosition=10
+https://nytimes.com/2020/09/10/movies/ronald-harwood-dead.html?searchResultPosition=10
 
