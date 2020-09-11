@@ -23,7 +23,7 @@ https://nytimes.com/2020/09/10/movies/ronald-harwood-dead.html?searchResultPosit
 https://nytimes.com/2020/09/10/us/politics/fda-coronavirus-vaccine.html?searchResultPosition=6
 
 **Federal Court Rejects Trump’s Order to Exclude Undocumented From Census**\
-`A three-judge panel unanimously said President Trump lacks the authority to remove noncitizens from census counts used to allot House seats.`\
+`A three-judge panel unanimously said President Trump lacked the authority to remove noncitizens from census counts used to allot House seats.`\
 https://nytimes.com/2020/09/10/us/census-undocumented-trump.html?searchResultPosition=7
 
 **When a Heart Is Empty**\
