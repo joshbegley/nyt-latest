@@ -36,5 +36,5 @@ https://nytimes.com/2020/09/10/us/politics/seema-verma-investigation.html?search
 
 **States Are in Desperate Search for Help Battling Record Wildfires**\
 `With millions of acres ablaze across the West Coast, states are having a tough time finding available fire crews. California resorted to calling in a team of firefighters from Israel.`\
-https://nytimes.com/2020/09/10/us/fires-oregon-california-washington.html?searchResultPosition=10
+https://nytimes.com/2020/09/10/us/wildfires-help-ca-or-wa.html?searchResultPosition=10
 
