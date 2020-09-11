@@ -14,7 +14,7 @@ https://nytimes.com/2020/09/10/sports/us-open-mens-doubles-final.html?searchResu
 `Osaka, the 2018 U.S. Open champion, prevailed even as she had her power matched often by Brady. Osaka will meet either Serena Williams or Victoria Azarenka in the final.`\
 https://nytimes.com/2020/09/10/sports/tennis/us-open-naomi-osaka-jennifer-brady-serena-williams-victoria-azarenka-semifinal.html?searchResultPosition=4
 
-**N.F.L. Season Kicks Off With Protests**\
+**N.F.L. Season Kicks Off With Players’ Protesting Racism**\
 `After an off-season of social turmoil, the Houston Texans chose not to be on the field for the playing of “Lift Every Voice and Sing” and “The Star-Spangled Banner” before the league’s season opener in Kansas City, Mo.`\
 https://nytimes.com/2020/09/10/sports/nfl-anthem.html?searchResultPosition=5
 
