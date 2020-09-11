@@ -14,8 +14,8 @@ https://nytimes.com/2020/09/11/dining/recipes-for-right-now.html?searchResultPos
 `Palestinian families are suffering intensely as their government’s tax protest continues, even though the cause — Israel’s push to annex the West Bank — has been suspended.`\
 https://nytimes.com/2020/09/11/world/middleeast/annexation-israel-west-bank-palestinians.html?searchResultPosition=4
 
-**As Antifa Rumors Spread in Oregon, Residents Defied Evacuation Orders**\
-`Authorities sought to dispel false rumors that left-wing activists were out setting fires and looting homes. But some vowed to stay to protect property.`\
+**In Oregon, a Year of Political Tumult Extends to Devastating Wildfires**\
+`A tumultuous summer of protests has become a complication in the wildfires raging around Portland.`\
 https://nytimes.com/2020/09/11/us/fires-oregon-antifa-rumors.html?searchResultPosition=5
 
 **A Favorite Teacher Lost**\
