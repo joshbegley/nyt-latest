@@ -10,7 +10,7 @@ https://nytimes.com/2020/09/11/business/rio-tinto-indigenous-sites.html?searchRe
 `Kansas City’s Super Bowl title defense began with boos from a reduced capacity home crowd and ended with a resounding victory.`\
 https://nytimes.com/2020/09/11/sports/football/kansas-city-chiefs-texans-score.html?searchResultPosition=3
 
-**For U.S. Open Contenders Medvedev and Zverev, A Journey From Russia Was a Big Step**\
+**For U.S. Open Contenders Medvedev and Zverev, a Journey From Russia Was a Big Step**\
 `Daniil Medvedev and Alexander Zverev are part of a talented final four, all seeking their first Grand Slam title.`\
 https://nytimes.com/2020/09/11/sports/tennis/us-open-daniil-medvedev-alexander-zverev.html?searchResultPosition=4
 
