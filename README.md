@@ -1,5 +1,5 @@
 **China and India Pledge to Ease Tensions After Border Clashes**\
-`The former ministers of the two countries issued a five-point statement aimed at ending a simmering confrontation. A previous pledge was followed by the deadliest clash in decades.`\
+`The foreign ministers of the two countries issued a five-point statement aimed at ending a simmering confrontation. A previous pledge was followed by the deadliest clash in decades.`\
 https://nytimes.com/2020/09/11/world/asia/china-india-border-clashes.html?searchResultPosition=1
 
 **Rapes of Woman and 5-Year-Old Fuel Outrage in Pakistan**\
