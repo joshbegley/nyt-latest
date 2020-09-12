@@ -1,40 +1,40 @@
+**Make a Cube, Then Make a Bigger Cube**\
+`Using modular origami you can turn newspaper into a cube, then create an intricate mathematical puzzle.`\
+https://nytimes.com/2020/09/12/at-home/make-soma-cube.html?searchResultPosition=1
+
 **A Young Core Carries the Celtics Past the Raptors. But There’s More Work to Do.**\
 `Jayson Tatum, Jaylen Brown and Marcus Smart played like veterans in dethroning the Toronto Raptors.`\
-https://nytimes.com/2020/09/12/sports/basketball/boston-celtics.html?searchResultPosition=1
+https://nytimes.com/2020/09/12/sports/basketball/boston-celtics.html?searchResultPosition=2
 
 **How to Declutter Your Digital World**\
 `If you’re overwhelmed from telecommuting for months, here are ways to step away from your devices and, just maybe, get to inbox zero.`\
-https://nytimes.com/2020/09/12/at-home/declutter-your-digital-world.html?searchResultPosition=2
+https://nytimes.com/2020/09/12/at-home/declutter-your-digital-world.html?searchResultPosition=3
 
 **A U.S. Open Missing Fans and Stars: Was it Worth It?**\
 `No Federer or Nadal, and so many top women taking a pass, plus a fracas with the French, but the United States Tennis Association needed to hold this tournament and has no regrets.`\
-https://nytimes.com/2020/09/12/sports/tennis/us-open-fans-sa.html?searchResultPosition=3
+https://nytimes.com/2020/09/12/sports/tennis/us-open-fans-sa.html?searchResultPosition=4
 
 **North Korean Propaganda Gets a YouTube Makeover: Fewer Parades, More Pizza**\
 `YouTube and other social media platforms give the country an easy way to spread propaganda and push a more modern, upbeat message: We’re just like you.`\
-https://nytimes.com/2020/09/12/world/asia/north-korea-kim-jong-un-propaganda.html?searchResultPosition=4
+https://nytimes.com/2020/09/12/world/asia/north-korea-kim-jong-un-propaganda.html?searchResultPosition=5
 
 **Trump Pressed for Plasma Therapy. Officials Worry, Is an Unvetted Vaccine Next?**\
 `New details of how the president has demanded faster action from health agencies help explain the intensifying concern that he could demand pre-Election Day approval of a vaccine.`\
-https://nytimes.com/2020/09/12/us/politics/trump-coronavirus-treatment-vaccine.html?searchResultPosition=5
+https://nytimes.com/2020/09/12/us/politics/trump-coronavirus-treatment-vaccine.html?searchResultPosition=6
 
 **New Zealand Protesters Rally Against Lockdown**\
 `More than 1,000 demonstrators marched in Auckland, New Zealand, on Saturday to oppose the country’s lingering coronavirus lockdown measures.`\
-https://nytimes.com/video/world/australia/100000007337546/new-zealand-coronavirus-lockdown-protest.html?searchResultPosition=6
+https://nytimes.com/video/world/australia/100000007337546/new-zealand-coronavirus-lockdown-protest.html?searchResultPosition=7
 
 **Another Gulf State Recognizes Israel. Here’s Why It Matters.**\
 `The announcement that Bahrain would establish full diplomatic relations with Israel leaves open the possibility that more Arab states will follow.`\
-https://nytimes.com/2020/09/12/world/middleeast/bahrain-israel.html?searchResultPosition=7
+https://nytimes.com/2020/09/12/world/middleeast/bahrain-israel.html?searchResultPosition=8
 
 **Do We Look Down on the Less Educated?**\
 `Readers respond to an Op-Ed arguing that the contributions of those without a diploma have been devalued.`\
-https://nytimes.com/2020/09/12/opinion/letters/education-prejudice.html?searchResultPosition=8
+https://nytimes.com/2020/09/12/opinion/letters/education-prejudice.html?searchResultPosition=9
 
 **As the West Coast Burns, Communities Unravel With Each Death**\
 `The fires have killed at least 17 people, leaving families and communities devastated up and down the West Coast.`\
-https://nytimes.com/2020/09/12/us/wildfire-deaths.html?searchResultPosition=9
-
-**Disney Wanted to Make a Splash in China With ‘Mulan.’ It Stumbled Instead.**\
-`A political controversy over a filming location was a rare blunder for one of the world’s savviest companies in dealing with China.`\
-https://nytimes.com/2020/09/12/business/media/disney-mulan-china.html?searchResultPosition=10
+https://nytimes.com/2020/09/12/us/wildfire-deaths.html?searchResultPosition=10
 
