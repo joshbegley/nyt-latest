@@ -30,8 +30,8 @@ https://nytimes.com/2020/09/11/nyregion/donald-trump-taxes-cyrus-vance.html?sear
 `House was said to have had an unauthorized guest in his hotel room at Walt Disney World “over multiple hours” on Tuesday in violation of the league’s health protocols.`\
 https://nytimes.com/2020/09/11/sports/basketball/nba-houston-rockets-danuel-house.html?searchResultPosition=8
 
-**Alexander Zverev Reaches U.S. Open Final, His First in a Grand Slam**\
-`Zverev was down two sets to none before coming back against Pablo Carreño Busta.`\
+**Dominic Thiem and Alexander Zverev Reach U.S. Open Final**\
+`Zverev was down two sets to none before coming back against Pablo Carreño Busta. Thiem beat Daniil Medvedev in straight sets.`\
 https://nytimes.com/2020/09/11/sports/tennis/us-open-mens-semifinals-alexander-zverev-daniil-medvedev-dominic-thiem.html?searchResultPosition=9
 
 **Hal Singer, Saxophonist and Tulsa Massacre Survivor, Dies at 100**\
