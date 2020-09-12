@@ -7,7 +7,7 @@ https://nytimes.com/2020/09/11/opinion/brexit-boris-johnson.html?searchResultPos
 https://nytimes.com/2020/09/11/world/middleeast/bahrain-israel-saudi-arabia.html?searchResultPosition=2
 
 **Trump Accuses Judge of ‘Stacking the Deck’ Against Him in Tax Ruling**\
-`The president is appealing an order that his tax returns and other financial records be released to the Manhattan district attorney.`\
+`The president is appealing an order that allowed his tax returns and other financial records to be released to the Manhattan district attorney.`\
 https://nytimes.com/2020/09/11/nyregion/donald-trump-taxes-cyrus-vance.html?searchResultPosition=3
 
 **Rockets’ Danuel House Leaves N.B.A. Bubble After Violation**\
