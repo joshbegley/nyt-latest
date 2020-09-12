@@ -1,5 +1,5 @@
 **‘Nomadland’ Wins Top Prize at the Venice Film Festival**\
-`The first major international movie event since the coronavirus pandemic began draws to a close and hands out its biggest award.`\
+`The first major international movie event since the coronavirus pandemic began drew to a close and handed out its biggest award.`\
 https://nytimes.com/2020/09/12/movies/nomadland-venice-film-festival.html?searchResultPosition=1
 
 **SoftBank Said to Near a Deal to Sell British Chip Designer Arm**\
