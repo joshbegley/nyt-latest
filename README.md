@@ -14,7 +14,7 @@ https://nytimes.com/2020/09/12/world/asia/china-schools-reopening.html?searchRes
 `Osaka has had to manage an injury and the spotlight as one of the game’s biggest stars. Azarenka’s win over Serena Williams in a semifinal showed her renewed confidence.`\
 https://nytimes.com/2020/09/12/sports/naomi-osaka-and-victoria-azarenka-get-test-of-mettle-in-us-open-final.html?searchResultPosition=4
 
-**Afghanistan Peace Talks to Open in Qatar, Seeking End to Decades of War**\
+**Afghanistan Peace Talks Open in Qatar, Seeking End to Decades of War**\
 `The Afghan government and the Taliban are finally coming to the table, after repeated delays. But the violence continues, and the challenges are vast.`\
 https://nytimes.com/2020/09/12/world/asia/afghanistan-taliban.html?searchResultPosition=5
 
