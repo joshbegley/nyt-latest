@@ -36,5 +36,5 @@ https://nytimes.com/2020/09/12/business/media/disney-mulan-china.html?searchResu
 
 **Targeting Conservative Terrain, Democrats Look to Independent Challengers in Alaska**\
 `The bids of two congressional candidates are shaping up as crucial tests of whether a centrist label can overcome resistance to Democrats in a conservative-leaning state.`\
-https://nytimes.com/2020/09/12/us/politics/targeting-conservative-terrain-democrats-look-to-independent-challengers-in-alaska.html?searchResultPosition=10
+https://nytimes.com/2020/09/12/us/politics/alaska-democrats-independent-challengers.html?searchResultPosition=10
 
