@@ -18,21 +18,21 @@ https://nytimes.com/2020/09/12/science/extinction-species-conservation.html?sear
 `The people who now represent the United States, interacting with visiting foreign leaders in Washington and at the highest levels abroad, are overwhelmingly white and male.`\
 https://nytimes.com/2020/09/12/us/politics/trump-race-state-department.html?searchResultPosition=5
 
+**After a Pandemic Pause, ICE Resumes Deportation Arrests**\
+`The Trump administration says it is targeting criminals, but government data suggests that many others are getting caught up in immigration sweeps.`\
+https://nytimes.com/2020/09/12/us/ice-immigration-sweeps-deportation.html?searchResultPosition=6
+
 **As Both Sides Dig In, What’s the Endgame for Belarus?**\
 `President Aleksandr G. Lukashenko seems set on relentless repression, while protesters think peaceful defiance will win in the end.`\
-https://nytimes.com/2020/09/12/world/europe/belarus-russia-protests-endgame.html?searchResultPosition=6
+https://nytimes.com/2020/09/12/world/europe/belarus-russia-protests-endgame.html?searchResultPosition=7
 
 **How to Transform Your Place for an Intimate Wedding**\
 `Here are a few tips on how to decorate and bring your wedding vision to life for an at-home wedding.`\
-https://nytimes.com/2020/09/12/fashion/weddings/how-to-transform-your-place-for-an-intimate-wedding.html?searchResultPosition=7
+https://nytimes.com/2020/09/12/fashion/weddings/how-to-transform-your-place-for-an-intimate-wedding.html?searchResultPosition=8
 
 **Who Is Paris Hilton, Really?**\
 `The heiress and proto-influencer says that she spent nearly two decades playing a character. Now she’s ready to be herself.`\
-https://nytimes.com/2020/09/12/style/paris-hilton-documentary.html?searchResultPosition=8
-
-**After a Pandemic Pause, ICE Resumes Deportation Arrests**\
-`The Trump administration says it is targeting criminals, but government data suggests that many others are getting caught up in immigration sweeps.`\
-https://nytimes.com/2020/09/12/us/ice-immigration-sweeps-deportation.html?searchResultPosition=9
+https://nytimes.com/2020/09/12/style/paris-hilton-documentary.html?searchResultPosition=9
 
 **Trump and Biden Seek an Electoral Edge From an Unlikely Source: College Football**\
 `College sports leaders aren’t thrilled to see football assume a role in the presidential campaign, but they’re not surprised.`\
