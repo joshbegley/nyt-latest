@@ -1,5 +1,5 @@
 **A Line of Fire South of Portland and a Yearslong Recovery Ahead**\
-`Firefighters continued to battle blazes along the West Coast that have now charred nearly five million acres. At least 15 people are dead, with dozens still missing.`\
+`Firefighters continued to battle blazes along the West Coast that have now charred nearly five million acres. At least 16 people are dead, with dozens still missing.`\
 https://nytimes.com/2020/09/11/us/fires-oregon-california-washington.html?searchResultPosition=1
 
 **Remember Brexit?**\
