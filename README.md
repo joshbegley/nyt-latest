@@ -1,5 +1,5 @@
-**Naomi Osaka Beats Victoria Azarenka to Win U.S. Open Title**\
-`The victory is Osaka’s third Grand Slam singles title.`\
+**Naomi Osaka, While Rallying for Social Justice, Wins U.S. Open Title**\
+`“The point was to make people start talking,” said Osaka, who wore masks to the court in each of her seven victories bearing the names of Black people who were victims of violence.`\
 https://nytimes.com/2020/09/12/sports/tennis/naomi-osaka-us-open-title.html?searchResultPosition=1
 
 **Trump to Visit California After Criticism Over Silence on Wildfires**\
