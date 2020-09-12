@@ -1,5 +1,5 @@
-**Iran Executes Wrestler Accused of Murder After He Took Part in Protests**\
-`Many suspected that the charges against Navid Afkari were false, and international sports groups had campaigned for clemency.`\
+**Iran Executes Wrestler Accused of Murder After He Took Part in 2018 Protests**\
+`Many suspected that the charges against Navid Afkari were false, and international sports groups had mounted a campaign for clemency.`\
 https://nytimes.com/2020/09/12/world/middleeast/iran-wrestler-navid-afkari.html?searchResultPosition=1
 
 **Inside the Clash Between Powerful Business Leaders and N.Y.C.’s Mayor**\
