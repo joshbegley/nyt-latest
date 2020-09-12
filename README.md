@@ -30,8 +30,8 @@ https://nytimes.com/2020/09/11/us/james-jackson-dead.html?searchResultPosition=7
 `It’s been circulating on social media for months. Here’s what I found when I looked into these claims.`\
 https://nytimes.com/2020/09/11/opinion/fact-check-trump.html?searchResultPosition=8
 
-**Court Ruling Deals Blow to Ex-Felons’ Voting Rights in Florida**\
-`In a reversal, a federal appeals court says Floridians who had completed sentences for felonies must pay fines and fees before voting.`\
+**Ex-Felons in Florida Must Pay Fines Before Voting, Appeals Court Rules**\
+`In a reversal, a court said Floridians who had completed sentences for felonies must pay fines and fees before voting. The State Constitution was amended in 2018 to restore their rights.`\
 https://nytimes.com/2020/09/11/us/florida-felon-voting-rights.html?searchResultPosition=9
 
 **Police Veteran in George Floyd Killing Turns Blame to Rookie Officers**\
