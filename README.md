@@ -12,7 +12,7 @@ https://nytimes.com/2020/09/12/opinion/sunday/census-trump-republicans.html?sear
 
 **What Isn’t Trump’s Fault**\
 `The coronavirus stories that get lost when we focus only on presidential failure.`\
-https://nytimes.com/2020/09/12/opinion/trump-coronavirus.html?searchResultPosition=4
+https://nytimes.com/2020/09/12/opinion/sunday/trump-coronavirus.html?searchResultPosition=4
 
 **Gene Budig, Last President of the American League, Dies at 81**\
 `After a distinguished academic career, he brought his love of baseball to a position that he considered a dream job — but that was eliminated five years later.`\
