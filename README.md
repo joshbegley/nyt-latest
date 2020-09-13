@@ -1,40 +1,40 @@
-**Wildfires, 2020 Election, N.F.L. Sunday: Your Weekend Briefing**\
-`Here’s what you need to know about the week’s top stories.`\
-https://nytimes.com/2020/09/13/briefing/wildfires-2020-election-nfl-sunday.html?searchResultPosition=1
+**Minnesota Seemed Ripe for a Trump Breakout. It Has Not Arrived.**\
+`Minnesota was a near miss for Donald Trump in 2016. But new polling shows him well behind where he finished four years ago in a state he views as a prime pickup opportunity.`\
+https://nytimes.com/2020/09/13/us/politics/Minnesota-poll-Biden-Trump.html?searchResultPosition=1
 
-**U.S. Marine Pardoned for Killing Transgender Woman Is Deported From Philippines**\
-`Lance Cpl. Joseph Scott Pemberton was formally deported and flown out on a U.S. military plane. His pardon by President Rodrigo Duterte has drawn anger from activists.`\
-https://nytimes.com/2020/09/13/world/asia/philippines-us-marine-transgender-woman.html?searchResultPosition=2
+**How Old Is This Ancient Vision of the Stars?**\
+`It’s a tale of bronze, iron, looting and archaeological conflict.`\
+https://nytimes.com/2020/09/13/science/nebra-sky-disk.html?searchResultPosition=2
 
-**How Kamala Harris’s Immigrant Parents Found a Home, and Each Other, in a Black Study Group**\
-`Donald Harris and Shyamala Gopalan grew up under British colonial rule on different sides of the planet. They were each drawn to Berkeley, and became part of an intellectual circle that shaped the rest of their lives.`\
-https://nytimes.com/2020/09/13/us/kamala-harris-parents.html?searchResultPosition=3
+**Big Voting Decisions in Florida, Wisconsin, Texas: What They Mean for November**\
+`Less than two months before the election, both parties are waging legal battles around the country over who gets to vote and how.`\
+https://nytimes.com/2020/09/13/us/politics/Voting-rights-Florida-Wisconsin-Texas.html?searchResultPosition=3
 
-**‘I Was Enjoying Dinner Alone on My Favorite Boulder in St. Nicholas Park’**\
-`A quiet place on a summer evening, a taste of wine and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2020/09/13/nyregion/metropolitan-diary.html?searchResultPosition=4
+**At U.S.A.I.D., Juggling Political Priorities and Pandemic Response**\
+`Aggressive oversight of the aid agency by political appointees at the White House and the State Department has delayed humanitarian aid when the world needs it most.`\
+https://nytimes.com/2020/09/13/us/politics/usaid-coronavirus-trump.html?searchResultPosition=4
 
-**Corrections: Sunday, Sept. 13, 2020**\
-`Corrections that appeared in print on Sunday, Sept. 13, 2020`\
-https://nytimes.com/2020/09/13/pageoneplus/corrections-sunday-sept-13-2020.html?searchResultPosition=5
+**As Fires Disrupt Schools, ‘the Pandemic Has Actually Helped’**\
+`After wildfires consumed an entire town, students and teachers who had planned for remote classes found some comfort in staying connected amid the chaos.`\
+https://nytimes.com/2020/09/13/us/wildfires-schools-coronavirus.html?searchResultPosition=5
 
-**Quotation of the Day: Mandela. Dalai Lama. Gorbachev. Now Trump?**\
-`Quotation of the Day for Sunday, September 13, 2020.`\
-https://nytimes.com/2020/09/13/todayspaper/quotation-of-the-day-mandela-dalai-lama-gorbachev-now-trump.html?searchResultPosition=6
+**The Maitre d’ Will Take Your Temperature Now**\
+`Fever checks are becoming de rigueur in many workplaces and restaurants, even though federal health officials say they are of limited value.`\
+https://nytimes.com/2020/09/13/health/covid-fever-checks-dining.html?searchResultPosition=6
 
-**4 Podcasts to Help Heal Your Mind**\
-`Use this playlist to learn more about mental health and to understand your own better.`\
-https://nytimes.com/2020/09/13/at-home/podcasts-mental-health.html?searchResultPosition=7
+**How My 2-Year-Old Planted a Coronavirus Story Idea**\
+`After another child at my son’s day care tested positive, I ran into obstacle after obstacle trying to get him a test. I quickly learned I wasn’t alone among concerned parents of young children.`\
+https://nytimes.com/2020/09/13/reader-center/coronavirus-testing-children.html?searchResultPosition=7
 
-**It Was 50 Years Ago Today, the Marathon Came to New York to Stay**\
-`There won’t be a New York City Marathon this year, but we can celebrate the anniversary of the first one, held on Sept. 13, 1970.`\
-https://nytimes.com/2020/09/13/sports/new-york-city-marathon.html?searchResultPosition=8
+**Homes That Sold for Under $500,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2020/09/13/realestate/home-sales-under-500000-dollars.html?searchResultPosition=8
 
-**Shinzo Abe Vowed Japan Would Help Women ‘Shine.’ They’re Still Waiting.**\
-`Female workers remain largely shut out of management jobs, and many take part-time work because of overwhelming family responsibilities, despite policies that Mr. Abe said would elevate their standing in society.`\
-https://nytimes.com/2020/09/13/world/asia/japan-women-abe.html?searchResultPosition=9
+**A New Look at the Often Barely United States**\
+`Richard Kreitner talks about “Break It Up,” his new book about deep divisions and secessionist movements throughout American history.`\
+https://nytimes.com/2020/09/13/books/break-it-up-secession-richard-kreitner-interview.html?searchResultPosition=9
 
-**2020 U.S. Open: Men’s Final Preview**\
-`Dominic Thiem and Alexander Zverev will play in the men’s singles final of the United States Open on Saturday.`\
-https://nytimes.com/2020/09/13/sports/tennis/us-open-mens-final-preview.html?searchResultPosition=10
+**New Cases Have Reached Record Levels in the Midwest**\
+`As new coronavirus cases have dropped nationally, infections have soared in the Midwest.`\
+https://nytimes.com/interactive/2020/09/13/us/coronavirus-cases-midwest.html?searchResultPosition=10
 
