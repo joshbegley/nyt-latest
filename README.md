@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/12/health/astrazeneca-coronavirus-vaccine-trial-resu
 https://nytimes.com/2020/09/12/sports/tennis/naomi-osaka-us-open-title.html?searchResultPosition=4
 
 **Trump to Visit California After Criticism Over Silence on Wildfires**\
-`The announcement came after the president acknowledged a wildfire season that so far has claimed 17 lives and destroyed millions of acres of land in California, Oregon and Washington.`\
+`The announcement came after the president acknowledged a wildfire season that so far has claimed at least 20 lives and destroyed millions of acres of land in California, Oregon and Washington.`\
 https://nytimes.com/2020/09/12/us/politics/trump-california-wildfires.html?searchResultPosition=5
 
 **Confederate Statue Removed to Cheers in Charlottesville**\
