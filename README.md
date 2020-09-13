@@ -19,7 +19,7 @@ https://nytimes.com/2020/09/13/opinion/letters/should-the-salt-cap-on-deductions
 https://nytimes.com/2020/09/13/opinion/letters/china-trade.html?searchResultPosition=5
 
 **West Coast Wildfires Burn More Than 4 Million Acres**\
-`At least 20 people have died in massive fires spreading through parts of California, Oregon and Washington.`\
+`At least 23 people have died in massive fires spreading through parts of California, Oregon and Washington.`\
 https://nytimes.com/video/us/100000007338172/west-wildfires.html?searchResultPosition=6
 
 **N.F.L. Week 1: Live Updates From Opening Sunday**\
