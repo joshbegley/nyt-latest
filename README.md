@@ -1,40 +1,40 @@
+**Tropical Storm Sally Barrels Toward the Gulf Coast**\
+`The storm is expected to bring dangerous flooding to areas of Louisiana and Mississippi, according to the National Hurricane Center.`\
+https://nytimes.com/2020/09/13/us/tropical-storm-sally-barrels-toward-the-gulf-coast.html?searchResultPosition=1
+
 **Review: Four Intimate Screen Encounters (One From Far Away)**\
 `The second grouping of these excellent “Here We Are” monologues includes a raucous report from outer space and a small gem from Lynn Nottage.`\
-https://nytimes.com/2020/09/13/theater/here-we-are-lynn-nottage-nikkole-salter.html?searchResultPosition=1
+https://nytimes.com/2020/09/13/theater/here-we-are-lynn-nottage-nikkole-salter.html?searchResultPosition=2
 
 **At Least 11 Dead as Nepal Landslides Destroy Homes**\
 `Many more were still missing after heavy rains led to landslides in the hilly Sindhupalchok district of Nepal over the weekend.`\
-https://nytimes.com/video/world/asia/100000007338247/nepal-landslide.html?searchResultPosition=2
+https://nytimes.com/video/world/asia/100000007338247/nepal-landslide.html?searchResultPosition=3
 
 **Conflicting Virus Data in Texas Raises Distrust of the Government**\
 `Delays, discrepancies and abrupt leaps in coronavirus case and death counts in Texas have baffled residents and frustrated local officials. Here is what has gone awry.`\
-https://nytimes.com/2020/09/13/us/texas-virus-data.html?searchResultPosition=3
+https://nytimes.com/2020/09/13/us/texas-virus-data.html?searchResultPosition=4
 
 **2 Killed, 6 Injured in Shooting Near Rutgers University**\
 `The authorities said that the shooting on Sunday morning had “no affiliation” with the college or its students.`\
-https://nytimes.com/2020/09/13/nyregion/new-brunswick-rutgers-shooting.html?searchResultPosition=4
+https://nytimes.com/2020/09/13/nyregion/new-brunswick-rutgers-shooting.html?searchResultPosition=5
 
 **Empty Seats, Slowly Filled With Energy**\
 `A photographer’s account of covering a U.S. Open unlike any that had come before it.`\
-https://nytimes.com/2020/09/13/sports/tennis/us-open-photography.html?searchResultPosition=5
+https://nytimes.com/2020/09/13/sports/tennis/us-open-photography.html?searchResultPosition=6
 
 **Should the SALT Cap on Deductions Be Repealed?**\
 `Readers discuss who benefits and who is harmed by the $10,000 cap on deductions for state and local taxes, and whether progressives should back the repeal.`\
-https://nytimes.com/2020/09/13/opinion/letters/should-the-salt-cap-on-deductions-be-repealed.html?searchResultPosition=6
+https://nytimes.com/2020/09/13/opinion/letters/should-the-salt-cap-on-deductions-be-repealed.html?searchResultPosition=7
 
 **Decoupling From China: There’s Precedent**\
 `A former U.S. trade negotiator says Japan, India and Australia have already taken steps. Also: Kenosha, my hometown; making the switch to metric.`\
-https://nytimes.com/2020/09/13/opinion/letters/china-trade.html?searchResultPosition=7
+https://nytimes.com/2020/09/13/opinion/letters/china-trade.html?searchResultPosition=8
 
 **West Coast Wildfires Burn More Than 4 Million Acres**\
 `At least 23 people have died in massive fires spreading through parts of California, Oregon and Washington.`\
-https://nytimes.com/video/us/100000007338172/west-wildfires.html?searchResultPosition=8
+https://nytimes.com/video/us/100000007338172/west-wildfires.html?searchResultPosition=9
 
 **N.F.L. Week 1: Live Updates From Opening Sunday**\
 `Some familiar faces joined new teams — looking at you, Tom Brady and Cam Newton — and young stars like Lamar Jackson are ready to pick up where they left off in a season unlike any other.`\
-https://nytimes.com/2020/09/13/sports/football/nfl-scores.html?searchResultPosition=9
-
-**What to Cook This Week**\
-`The weather is just starting to turn in some parts of the country. It’s time for the most comforting of stews.`\
-https://nytimes.com/2020/09/13/dining/what-to-cook-this-week.html?searchResultPosition=10
+https://nytimes.com/2020/09/13/sports/football/nfl-scores.html?searchResultPosition=10
 
