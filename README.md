@@ -32,7 +32,7 @@ https://nytimes.com/2020/09/13/dining/what-to-cook-this-week.html?searchResultPo
 
 **Wildfires Live Updates: As Crews in Oregon Battle the Fires, a Search for the Missing**\
 `With parts of Oregon expected to see wind gusts as high as 40 miles an hour, the state “could be looking at a challenging Sunday.”`\
-https://nytimes.com/2020/09/13/us/wildfires-live-updates-as-crews-in-oregon-battle-the-fires-a-search-for-the-missing.html?searchResultPosition=9
+https://nytimes.com/2020/09/13/us/oregon-wildfires-california-washington-map.html?searchResultPosition=9
 
 **The Sunday Read: ‘The Children in the Shadows’**\
 `More than 100,000 of New York City’s public school students lack permanent housing. They are caught in bureaucratic limbo that often seems like a trap.`\
