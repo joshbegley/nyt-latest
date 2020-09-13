@@ -4,7 +4,7 @@ https://nytimes.com/2020/09/13/us/florence-howe-dead.html?searchResultPosition=1
 
 **Tropical Storm Sally Barrels Toward the Gulf Coast**\
 `The storm is expected to bring dangerous flooding to areas of Louisiana and Mississippi, according to the National Hurricane Center.`\
-https://nytimes.com/2020/09/13/us/tropical-storm-sally-barrels-toward-the-gulf-coast.html?searchResultPosition=2
+https://nytimes.com/2020/09/13/us/hurricane-sally.html?searchResultPosition=2
 
 **Review: Four Intimate Screen Encounters (One From Far Away)**\
 `The second grouping of these excellent “Here We Are” monologues includes a raucous report from outer space and a small gem from Lynn Nottage.`\
