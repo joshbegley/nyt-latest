@@ -26,9 +26,9 @@ https://nytimes.com/2020/09/13/sports/football/nfl-scores.html?searchResultPosit
 `The weather is just starting to turn in some parts of the country. It’s time for the most comforting of stews.`\
 https://nytimes.com/2020/09/13/dining/what-to-cook-this-week.html?searchResultPosition=7
 
-**Wildfires Live Updates: As West Coast Crews Battle the Fires, a Search for the Missing**\
+**Wildfires Live Updates: As Crews in Oregon Battle the Fires, a Search for the Missing**\
 `With parts of Oregon expected to see wind gusts as high as 40 miles an hour, the state “could be looking at a challenging Sunday.”`\
-https://nytimes.com/2020/09/13/us/wildfires-live-updates-as-west-coast-crews-battle-the-fires-a-search-for-the-missing.html?searchResultPosition=8
+https://nytimes.com/2020/09/13/us/wildfires-live-updates-as-crews-in-oregon-battle-the-fires-a-search-for-the-missing.html?searchResultPosition=8
 
 **The Sunday Read: ‘The Children in the Shadows’**\
 `More than 100,000 of New York City’s public school students lack permanent housing. They are caught in bureaucratic limbo that often seems like a trap.`\
