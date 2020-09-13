@@ -10,7 +10,7 @@ https://nytimes.com/2020/09/13/podcasts/the-daily/homelessness-new-york-coronavi
 `The Voices of East Harlem went from community stages to the Isle of Wight Festival, blending the soul-cleansing power of Christian songs with R&B, funk and rock on “Right On Be Free.”`\
 https://nytimes.com/2020/09/13/arts/music/voices-of-east-harlem-gospel-protest.html?searchResultPosition=3
 
-**Covid-19 Live Updates: Experts Play Down Value of Public Temperature Checks**\
+**Covid-19 Live Updates: U.S. Experts Play Down Value of Public Temperature Checks**\
 `A member of Prime Minister Benjamin Netanyahu’s cabinet resigned from Israel’s government as it debated a nationwide lockdown that coincides with key holidays.`\
 https://nytimes.com/2020/09/13/world/covid-19-coronavirus.html?searchResultPosition=4
 
