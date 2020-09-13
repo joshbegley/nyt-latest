@@ -10,8 +10,8 @@ https://nytimes.com/2020/09/13/learning/whats-going-on-in-this-picture-sept-14-2
 `Normalized ties with the United Arab Emirates and Bahrain raise hopes in Israel that it is finally gaining acceptance in its volatile neighborhood.`\
 https://nytimes.com/2020/09/13/world/middleeast/israel-bahrain-mideast-persian-gulf.html?searchResultPosition=3
 
-**Embattled Belarus Leader Faces More Protests in Advance of Putin Summit**\
-`President Aleksandr G. Lukashenko has for weeks tried to quell protests against his re-election. A day before meeting President Vladimir V. Putin, his main backer, he continued to crack down on the opposition.`\
+**Embattled Belarus Leader Beset by More Protests Before Putin Summit**\
+`President Aleksandr G. Lukashenko has for weeks tried to quell protests against his re-election claim. A day before meeting President Vladimir V. Putin, his main backer, he continued to crack down on the opposition.`\
 https://nytimes.com/2020/09/13/world/europe/belarus-protests-putin.html?searchResultPosition=4
 
 **It’s New York Fashion Week, Live**\
