@@ -14,7 +14,7 @@ https://nytimes.com/2020/09/13/world/middleeast/nazanin-zaghari-ratcliffe-iran-d
 `In a bad week for deals, a new aid bill fizzled in Congress and Tiffany’s sale fell apart.`\
 https://nytimes.com/2020/09/13/business/the-week-in-business-stimulus-economy-tiffany.html?searchResultPosition=4
 
-**Greed is Good. Except When it’s Bad.**\
+**Greed is Good. Except When It’s Bad.**\
 `Fifty years ago today, Milton Friedman published a seminal essay that is still hotly debated in business and policy circles.`\
 https://nytimes.com/2020/09/13/business/dealbook/milton-friedman-essay-anniversary.html?searchResultPosition=5
 
