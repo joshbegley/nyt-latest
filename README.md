@@ -14,7 +14,7 @@ https://nytimes.com/2020/09/13/sports/tennis/us-open-mens-final-preview.html?sea
 `Some familiar faces joined new teams — looking at you, Tom Brady and Cam Newton — and young stars like Lamar Jackson are ready to pick up where they left off in a season unlike any other.`\
 https://nytimes.com/2020/09/13/sports/football/nfl-week-1-preview.html?searchResultPosition=4
 
-**Two California Deputies Shot in ‘Ambush,’ Authorities Say**\
+**Two California Deputies Shot in Ambush, Authorities Say**\
 `The Los Angeles County deputies were in critical condition after being fired upon in their car outside a metro station in Compton. The gunman remained at large.`\
 https://nytimes.com/2020/09/12/us/los-angeles-deputies-shot.html?searchResultPosition=5
 
