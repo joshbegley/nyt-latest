@@ -1,5 +1,5 @@
 **Covid-19 Live Updates: Experts Play Down Value of Public Temperature Checks**\
-`The police and protesters in Australia clashed at a rally calling for an easing of restrictions. And politics delayed efforts by U.S.A.I.D. to help communities around in the world.`\
+`A member of Prime Minister Benjamin Netanyahu’s cabinet resigned from Israel’s government as it debated a nationwide lockdown that coincides with key holidays.`\
 https://nytimes.com/2020/09/13/world/covid-19-coronavirus.html?searchResultPosition=1
 
 **Review: ‘We Are Who We Are’ Captures Not-So-Innocents Abroad**\
