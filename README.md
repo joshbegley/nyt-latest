@@ -27,7 +27,7 @@ https://nytimes.com/2020/09/13/sports/tennis/us-open-mens-final-preview.html?sea
 https://nytimes.com/2020/09/13/sports/football/nfl-week-1-preview.html?searchResultPosition=7
 
 **Two California Deputies Shot in Ambush, Authorities Say**\
-`The Los Angeles County deputies were in critical condition after being fired upon in their car outside a metro station in Compton. The gunman remained at large.`\
+`The Los Angeles County deputies were in critical condition after being fired upon in their car outside a metro station in Compton. The shooter remained at large.`\
 https://nytimes.com/2020/09/12/us/los-angeles-deputies-shot.html?searchResultPosition=8
 
 **Stars Are One Win Away From Winning the West**\
