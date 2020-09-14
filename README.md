@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/14/arts/nancy-dine-jim-artist-dead-83.html?searchResultPosition=1
 
 **In Berlin, the Art World Spreads Out to Stay Safe**\
-`The first major international art event since the lockdown started took place as smaller gatherings around the city, rather than under a single roof.`\
+`The first major international art event since the lockdown started took place at smaller venues around the city, rather than under a single roof.`\
 https://nytimes.com/2020/09/14/arts/design/berlin-art-weekend.html?searchResultPosition=2
 
 **U.S. Restricts Chinese Apparel and Tech Products, Citing Forced Labor**\
