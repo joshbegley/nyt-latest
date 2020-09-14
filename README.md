@@ -1,40 +1,40 @@
+**Why You Should Care About TikTok**\
+`Forcing a sale of the app is a show of power, but it doesn’t really protect your privacy.`\
+https://nytimes.com/video/opinion/100000007331331/tiktok-sale-trump.html?searchResultPosition=1
+
 **West End Shows Announce a Return, Even as U.K. Coronavirus Cases Rise**\
 `“Six,” the hit musical, will start an 11-week run in November, with other shows including “The Mousetrap” also slated to resume soon.`\
-https://nytimes.com/2020/09/14/theater/six-west-end-return-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/09/14/theater/six-west-end-return-coronavirus.html?searchResultPosition=2
 
 **Lesson of the Day: ‘Building Public Places for a Covid World’**\
 `How would you reinvent a space in your area so that it both advances wellness and knits the community together? That’s a question The Times asked architects, and we’re posing it to students, too.`\
-https://nytimes.com/2020/09/14/learning/lesson-of-the-day-building-public-places-for-a-covid-world.html?searchResultPosition=2
+https://nytimes.com/2020/09/14/learning/lesson-of-the-day-building-public-places-for-a-covid-world.html?searchResultPosition=3
 
 **With Tensions High, Trump’s Ambassador to China Is Stepping Down**\
 `Terry Branstad, a former Republican governor of Iowa and early supporter of Mr. Trump’s candidacy, will leave his post as the top American diplomat in China.`\
-https://nytimes.com/2020/09/14/world/asia/branstad-ambassador-china.html?searchResultPosition=3
+https://nytimes.com/2020/09/14/world/asia/branstad-ambassador-china.html?searchResultPosition=4
 
 **How New York City’s Police Unions Embraced Trump**\
 `The unions’ leadership is mostly white, suburban and Republican, setting it apart from an increasingly diverse police force and the city itself.`\
-https://nytimes.com/2020/09/14/nyregion/ny-police-unions-racial-disparity-trump.html?searchResultPosition=4
+https://nytimes.com/2020/09/14/nyregion/ny-police-unions-racial-disparity-trump.html?searchResultPosition=5
 
 **A’ja Wilson for M.V.P., and More W.N.B.A. Awards Picks**\
 `Wilson, the Aces’ All-Star forward, isn’t the only one from Las Vegas deserving of honors this year.`\
-https://nytimes.com/2020/09/14/sports/basketball/wnba-awards-mvp.html?searchResultPosition=5
+https://nytimes.com/2020/09/14/sports/basketball/wnba-awards-mvp.html?searchResultPosition=6
 
 **When You Love — and Loathe — Watching the N.F.L.**\
 `The return of professional football to a nation living on a raw and perilous edge, struggling to confront a lethal virus and trying to heal its deep racial wounds, offered fans a tense and unlikely paradox.`\
-https://nytimes.com/2020/09/14/sports/football/nfl-season-restart.html?searchResultPosition=6
+https://nytimes.com/2020/09/14/sports/football/nfl-season-restart.html?searchResultPosition=7
 
 **Japan’s Next Prime Minister, Yoshihide Suga, Emerges From Behind the Curtain**\
 `Mr. Suga’s years as a shadow power in Japanese politics have made him a bit of a cipher. But his decisive victory in a party election demonstrated his formidable political skills.`\
-https://nytimes.com/2020/09/14/world/asia/japan-prime-minister-yoshihide-suga-bio.html?searchResultPosition=7
+https://nytimes.com/2020/09/14/world/asia/japan-prime-minister-yoshihide-suga-bio.html?searchResultPosition=8
 
 **Party Insiders Put Yoshihide Suga on Brink of Being Japan’s Prime Minister**\
 `The governing party, in an emergency vote restricted to members of Parliament and select delegates, overwhelmingly backed the leading symbol of continuity from Shinzo Abe’s long premiership.`\
-https://nytimes.com/2020/09/14/world/asia/japan-yoshihide-suga-election-prime-minister.html?searchResultPosition=8
+https://nytimes.com/2020/09/14/world/asia/japan-yoshihide-suga-election-prime-minister.html?searchResultPosition=9
 
 **Word + Quiz: esplanade**\
 `This word has appeared in 26 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/09/14/learning/word-quiz-esplanade.html?searchResultPosition=9
-
-**Trump Defies Nevada Directive as Thousands Gather for Indoor Rally**\
-`The president unloaded his regular, inaccurate onslaught against Joseph R. Biden Jr., and there were no signs of any attempts at social distancing at the event.`\
-https://nytimes.com/2020/09/14/us/politics/trump-nevada-rally.html?searchResultPosition=10
+https://nytimes.com/2020/09/14/learning/word-quiz-esplanade.html?searchResultPosition=10
 
