@@ -23,7 +23,7 @@ https://nytimes.com/2020/09/14/sports/football/nfl-season-restart.html?searchRes
 https://nytimes.com/2020/09/14/world/asia/japan-prime-minister-yoshihide-suga-bio.html?searchResultPosition=6
 
 **Party Insiders Put Yoshihide Suga on Brink of Being Japan’s Prime Minister**\
-`The governing party, in an emergency vote restricted to members of Parliament and select delegates, overwhelmingly backed the leading symbol of continuity from Mr. Abe’s long premiership.`\
+`The governing party, in an emergency vote restricted to members of Parliament and select delegates, overwhelmingly backed the leading symbol of continuity from Shinzo Abe’s long premiership.`\
 https://nytimes.com/2020/09/14/world/asia/japan-yoshihide-suga-election-prime-minister.html?searchResultPosition=7
 
 **Word + Quiz: esplanade**\
