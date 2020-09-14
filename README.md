@@ -22,8 +22,8 @@ https://nytimes.com/2020/09/14/sports/football/nfl-season-restart.html?searchRes
 `Mr. Suga’s years as a shadow power in Japanese politics have made him a bit of a cipher. But his decisive victory in a party election demonstrated his formidable political skills.`\
 https://nytimes.com/2020/09/14/world/asia/japan-prime-minister-yoshihide-suga-bio.html?searchResultPosition=6
 
-**Yoshihide Suga, Right-Hand Man of Shinzo Abe, Is Set to Be Japan’s Prime Minister**\
-`The governing party, in an emergency vote restricted to insiders, overwhelmingly backed the leading symbol of continuity from Mr. Abe’s long premiership.`\
+**Party Insiders Put Yoshihide Suga on Brink of Being Japan’s Prime Minister**\
+`The governing party, in an emergency vote restricted to members of Parliament and select delegates, overwhelmingly backed the leading symbol of continuity from Mr. Abe’s long premiership.`\
 https://nytimes.com/2020/09/14/world/asia/japan-yoshihide-suga-election-prime-minister.html?searchResultPosition=7
 
 **Word + Quiz: esplanade**\
