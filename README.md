@@ -1,4 +1,4 @@
-**DealBook: Is This How the TikTok Saga Ends?**\
+**Is This How the TikTok Saga Ends?**\
 `An unexpected, late twist in the long-running drama over the sale of the Chinese video app.`\
 https://nytimes.com/2020/09/14/business/dealbook/tiktok-oracle-deal.html?searchResultPosition=1
 
