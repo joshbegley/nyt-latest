@@ -1,4 +1,4 @@
-**Vasilis Dimitriou, Keeper of a Dying Movie Art, Dies at 84**\
+**Vasilis Dimitriou, Keeper of a Fading Movie Art, Dies at 84**\
 `He was one of Europe’s last Hollywood billboard painters, creating, by hand, giant film promotions for theaters since the end of World War II.`\
 https://nytimes.com/2020/09/14/world/europe/vasilis-dimitriou-dead.html?searchResultPosition=1
 
