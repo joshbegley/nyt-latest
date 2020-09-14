@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/14/world/asia/mulan-china-debut.html?searchResultPos
 `Monday: The advice is to take it hour by hour. Also: President Trump is set to visit California, where he’ll confront a reality he’s denied.`\
 https://nytimes.com/2020/09/14/us/california-fires-air-quality.html?searchResultPosition=3
 
-**Wildfires Live Updates: Dire Conditions for California and Oregon**\
+**Wildfires Live Updates: Gusty Winds Could Whip Up Blazes**\
 `Firefighters were facing unpredictable wind gusts and drier weather on Monday, conditions that threaten to give new strength to raging wildfires.`\
 https://nytimes.com/2020/09/14/us/wildfires-live-updates.html?searchResultPosition=4
 
