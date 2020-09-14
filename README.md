@@ -1,5 +1,5 @@
 **Trump Defies Nevada Directive as Thousands Gather for Indoor Rally**\
-`The president unloaded his regular, inaccurate onslaught against Joseph R. Biden Jr., and there were no signs of any attempts at social distancing.`\
+`The president unloaded his regular, inaccurate onslaught against Joseph R. Biden Jr., and there were no signs of any attempts at social distancing at the event.`\
 https://nytimes.com/2020/09/14/us/politics/trump-nevada-rally.html?searchResultPosition=1
 
 **Quotation of the Day: Trapped by Pandemic, Ships’ Crews Are Buckling**\
