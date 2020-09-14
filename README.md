@@ -1,6 +1,6 @@
 **As N.Y.C. Reopens Schools, Homeless Families Face New Challenges**\
 `As a new experiment in remote learning begins, students who live in shelters or doubled up with family may not have the resources they need.`\
-https://nytimes.com/2020/09/14/nyregion/nyc-schools-homless-students.html?searchResultPosition=1
+https://nytimes.com/2020/09/14/nyregion/nyc-schools-homeless-students.html?searchResultPosition=1
 
 **How Much Do You Know About India?**\
 `Can you find India on a map? What else do you know about this South Asian nation with about 1.3 billion people?`\
