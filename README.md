@@ -18,23 +18,23 @@ https://nytimes.com/2020/09/14/books/review/jorie-graham-runaway-new-poems.html?
 `Open water and rain, rather than ice and snow, are becoming typical of the region, a new study has found.`\
 https://nytimes.com/2020/09/14/climate/arctic-changing-climate.html?searchResultPosition=5
 
+**Biden’s plans call for over $5.4 trillion in new federal programs, an analysis finds.**\
+`By Jim Tankersley`\
+https://nytimes.com/2020/09/14/us/elections/bidens-plans-call-for-over-5-4-trillion-in-new-federal-programs-an-analysis-finds.html?searchResultPosition=6
+
 **Life on Venus? Astronomers See a Signal in Its Clouds**\
 `The detection of a gas in the planet’s atmosphere could turn scientists’ gaze to a planet long overlooked in the search for extraterrestrial life.`\
-https://nytimes.com/2020/09/14/science/venus-life-clouds.html?searchResultPosition=6
+https://nytimes.com/2020/09/14/science/venus-life-clouds.html?searchResultPosition=7
 
 **France and Sweden Confirm Novichok Poisoning of Navalny, Backing Germany**\
 `The evidence that Moscow attempted to murder Russia’s most visible opposition politician hardens. But for now, Germany and its allies are still struggling to respond.`\
-https://nytimes.com/2020/09/14/world/europe/navalny-novichok.html?searchResultPosition=7
+https://nytimes.com/2020/09/14/world/europe/navalny-novichok.html?searchResultPosition=8
 
 **Today Is for Nachos**\
 `Find comfort in the easy favorite.`\
-https://nytimes.com/2020/09/14/dining/today-is-for-nachos.html?searchResultPosition=8
+https://nytimes.com/2020/09/14/dining/today-is-for-nachos.html?searchResultPosition=9
 
 **How to Deal With Longing for a Distant Home**\
 `Where is home, really?`\
-https://nytimes.com/2020/09/14/smarter-living/coronavirus-distant-home.html?searchResultPosition=9
-
-**Australia’s Witnesses to Fire’s Fury Are Desperate to Avoid a Sequel**\
-`Eight months after blazes devastated a wide swath of Australia, the most battered communities are trying to burn their way to safety as another fire season approaches.`\
-https://nytimes.com/2020/09/14/world/australia/bush-fires-preventive-burns.html?searchResultPosition=10
+https://nytimes.com/2020/09/14/smarter-living/coronavirus-distant-home.html?searchResultPosition=10
 
