@@ -1,4 +1,4 @@
-**Arctic Shifting to Entirely Different Climate as Result of Global Warming**\
+**The Arctic Is Shifting to a New Climate Because of Global Warming**\
 `Open water and rain, rather than ice and snow, are becoming typical of the region, a new study has found.`\
 https://nytimes.com/2020/09/14/climate/arctic-changing-climate.html?searchResultPosition=1
 
