@@ -10,7 +10,7 @@ https://nytimes.com/2020/09/14/dining/today-is-for-nachos.html?searchResultPosit
 `Where is home, really?`\
 https://nytimes.com/2020/09/14/smarter-living/coronavirus-distant-home.html?searchResultPosition=3
 
-**Witnesses to the Ravages of Fire, and Desperate to Avoid a Sequel**\
+**Australia’s Witnesses to Fire’s Fury Are Desperate to Avoid a Sequel**\
 `Eight months after blazes devastated a wide swath of Australia, the most battered communities are trying to burn their way to safety as another fire season approaches.`\
 https://nytimes.com/2020/09/14/world/australia/bush-fires-preventive-burns.html?searchResultPosition=4
 
