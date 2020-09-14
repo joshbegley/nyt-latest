@@ -1,6 +1,6 @@
 **Volkswagen Has Kept Promises to Reform, U.S. Overseer Says**\
 `A court-appointed monitor said in a final report that the carmaker has become more ethical following a devastating emissions cheating scandal, but ‘continued vigilance’ is needed.`\
-https://nytimes.com/2020/09/14/business/volkswagen-has-kept-promises-to-reform-us-overseer-says.html?searchResultPosition=1
+https://nytimes.com/2020/09/14/business/volkswagen-emissions-regulations-reform.html?searchResultPosition=1
 
 **TikTok Owner’s Big Reason to Strike a U.S. Deal: China Is Slowing**\
 `ByteDance’s founder has long urged his employees to think beyond the world’s No. 2 economy, where growth is easing and competition is rising.`\
