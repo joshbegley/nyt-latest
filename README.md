@@ -1,40 +1,40 @@
-**Why You Should Care About TikTok**\
-`Forcing a sale of the app is a show of power, but it doesn’t really protect your privacy.`\
-https://nytimes.com/video/opinion/100000007331331/tiktok-sale-trump.html?searchResultPosition=1
+**Vivid Street Scenes From Salvador, Brazil**\
+`After living for nearly half a decade in the capital city of the Brazilian state of Bahia, a photographer offers an intimate look at a city where the act of celebration is indelibly ingrained.`\
+https://nytimes.com/2020/09/14/travel/salvador-brazil.html?searchResultPosition=1
 
-**West End Shows Announce a Return, Even as U.K. Coronavirus Cases Rise**\
-`“Six,” the hit musical, will start an 11-week run in November, with other shows including “The Mousetrap” also slated to resume soon.`\
-https://nytimes.com/2020/09/14/theater/six-west-end-return-coronavirus.html?searchResultPosition=2
+**War Crimes Risk Grows for U.S. Over Saudi Strikes in Yemen**\
+`State Department officials have raised alarms about the legal risk in aiding airstrikes that kill civilians. The Trump administration recently suppressed findings as it sold more weapons to Gulf nations.`\
+https://nytimes.com/2020/09/14/us/politics/us-war-crimes-yemen-saudi-arabia.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Building Public Places for a Covid World’**\
-`How would you reinvent a space in your area so that it both advances wellness and knits the community together? That’s a question The Times asked architects, and we’re posing it to students, too.`\
-https://nytimes.com/2020/09/14/learning/lesson-of-the-day-building-public-places-for-a-covid-world.html?searchResultPosition=3
+**Trump and Biden Joust in Florida, Looking for Votes in the Margins**\
+`Elections in Florida are won by running up margins in favorable terrain while losing more closely in hostile precincts. Joseph Biden visits the state on Tuesday for the first time since claiming the nomination.`\
+https://nytimes.com/2020/09/14/us/politics/florida-trump-biden-2020.html?searchResultPosition=3
 
-**With Tensions High, Trump’s Ambassador to China Is Stepping Down**\
-`Terry Branstad, a former Republican governor of Iowa and early supporter of Mr. Trump’s candidacy, will leave his post as the top American diplomat in China.`\
-https://nytimes.com/2020/09/14/world/asia/branstad-ambassador-china.html?searchResultPosition=4
+**For Prisoners in the West, the Virus and the Wildfires Are Colliding Threats**\
+`Prisoners are more vulnerable than ever to the twin crises of the pandemic and a historic wildfire season.`\
+https://nytimes.com/2020/09/14/us/prisons-fires-coronavirus.html?searchResultPosition=4
 
-**How New York City’s Police Unions Embraced Trump**\
-`The unions’ leadership is mostly white, suburban and Republican, setting it apart from an increasingly diverse police force and the city itself.`\
-https://nytimes.com/2020/09/14/nyregion/ny-police-unions-racial-disparity-trump.html?searchResultPosition=5
+**Biden Creates Legal War Room, Preparing for a Big Fight Over Voting**\
+`With two former solicitors general and hundreds of lawyers, the Biden campaign is bracing for an extended legal battle and hoping to maintain trust in the electoral process.`\
+https://nytimes.com/2020/09/14/us/politics/biden-legal-challenges-trump.html?searchResultPosition=5
 
-**A’ja Wilson for M.V.P., and More W.N.B.A. Awards Picks**\
-`Wilson, the Aces’ All-Star forward, isn’t the only one from Las Vegas deserving of honors this year.`\
-https://nytimes.com/2020/09/14/sports/basketball/wnba-awards-mvp.html?searchResultPosition=6
+**On the Eve of New York Fashion Week, What’s Next?**\
+`Four fashion insiders debate the questions swirling around shows, clothes and race.`\
+https://nytimes.com/2020/09/14/style/Fashion-Week-2020.html?searchResultPosition=6
 
-**When You Love — and Loathe — Watching the N.F.L.**\
-`The return of professional football to a nation living on a raw and perilous edge, struggling to confront a lethal virus and trying to heal its deep racial wounds, offered fans a tense and unlikely paradox.`\
-https://nytimes.com/2020/09/14/sports/football/nfl-season-restart.html?searchResultPosition=7
+**Let’s Fret the Night Together**\
+`The Biden campaign and the world it’s playing out in are making us all nervous wrecks.`\
+https://nytimes.com/2020/09/14/opinion/biden-trump-2020.html?searchResultPosition=7
 
-**Japan’s Next Prime Minister, Yoshihide Suga, Emerges From Behind the Curtain**\
-`Mr. Suga’s years as a shadow power in Japanese politics have made him a bit of a cipher. But his decisive victory in a party election demonstrated his formidable political skills.`\
-https://nytimes.com/2020/09/14/world/asia/japan-prime-minister-yoshihide-suga-bio.html?searchResultPosition=8
+**A Building Courtyard Becomes a Wedding Venue**\
+`The pandemic didn’t stop these high school sweethearts from marrying. It just downsized their party.`\
+https://nytimes.com/2020/09/14/realestate/a-building-courtyard-becomes-a-wedding-venue.html?searchResultPosition=8
 
-**Party Insiders Put Yoshihide Suga on Brink of Being Japan’s Prime Minister**\
-`The governing party, in an emergency vote restricted to members of Parliament and select delegates, overwhelmingly backed the leading symbol of continuity from Shinzo Abe’s long premiership.`\
-https://nytimes.com/2020/09/14/world/asia/japan-yoshihide-suga-election-prime-minister.html?searchResultPosition=9
+**Progressive Donor Susan Sandler to Give $200 Million to Racial Justice Groups**\
+`Her efforts will support organizations trying to build political power in states that are undergoing rapid demographic change.`\
+https://nytimes.com/2020/09/14/us/politics/Susan-Sandler-donation-racial-justice.html?searchResultPosition=9
 
-**Word + Quiz: esplanade**\
-`This word has appeared in 26 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/09/14/learning/word-quiz-esplanade.html?searchResultPosition=10
+**Jerry Brown on a California Exodus: ‘Tell Me: Where Are You Going to Go?’**\
+`From his ranch, the former California governor is experiencing the same smoky air wafting through much of the state. “We are causing this,” he declared in an interview.`\
+https://nytimes.com/2020/09/14/jerry-brown-on-a-california-exodus-tell-me-where-are-you-going-to-go.html?searchResultPosition=10
 
