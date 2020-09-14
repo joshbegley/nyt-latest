@@ -10,8 +10,8 @@ https://nytimes.com/2020/09/13/todayspaper/quotation-of-the-day-trapped-by-pande
 `No corrections appeared in print on Monday, Sept. 14, 2020.`\
 https://nytimes.com/2020/09/13/pageoneplus/no-corrections-sept-14-2020.html?searchResultPosition=3
 
-**Your Monday Briefing**\
-`Belarus protests, migrants in Greece, U.K. coronavirus: Here’s what you need to know.`\
+**Belarus Protests, Migrants, U.K. Coronavirus: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/13/briefing/belarus-greek-migrants-uk-coronavirus.html?searchResultPosition=4
 
 **This ‘Lovecraft Country’ Actor Is Happy in Her Own Skin**\
