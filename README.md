@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘These Families Feel Forgotten as N.Y.C. Pushes to Open Schools’**\
-`In this lesson, students will learn about some of the challenges that homeless families face with school this fall. Then, they will research what is happening in their own community and take action.`\
-https://nytimes.com/2020/09/15/learning/lesson-of-the-day-these-families-feel-forgotten-as-nyc-pushes-to-open-schools.html?searchResultPosition=1
+**How Climate Migration Will Reshape America**\
+`Millions will be displaced in the coming decades by fires, hurricanes, extreme heat and rising seas. Where will they go?`\
+https://nytimes.com/interactive/2020/09/15/magazine/climate-crisis-migration-america.html?searchResultPosition=1
 
-**Coming This Fall: Return of the Video Game Console Wars**\
-`Gamers are awaiting Sony’s PlayStation 5 and Microsoft’s Xbox Series X, though supply might be limited because of the pandemic.`\
-https://nytimes.com/2020/09/15/technology/xbox-series-x-playstation-5.html?searchResultPosition=2
+**As U.N. Turns 75, the Celebration Is Muted by Calamity and Conflict**\
+`The organization created in the wake of one world war was aimed at preventing another. But a celebration of its accomplishments has been overshadowed by a pandemic and rising world tensions.`\
+https://nytimes.com/2020/09/15/world/United-Nations-General-Assembly.html?searchResultPosition=2
 
-**To Get to Afghan Talks, Lots of Last-Minute Deals — and Nose Swabs**\
-`Months of delays over issues as big as prisoner swaps and as small as haircuts, with extra coronavirus complications, made the Afghan flight to meet the Taliban no sure bet.`\
-https://nytimes.com/2020/09/15/world/asia/afghanistan-taliban-peace-talks.html?searchResultPosition=3
+**Struggling Hotel Owners, Some With Trump Ties, Seek Federal Bailout**\
+`Hotel owners, who spent years loading up on a cheap type of debt, are now faced with the potential for default as the pandemic saps revenues.`\
+https://nytimes.com/2020/09/15/business/economy/hotel-owners-trump-federal-bailout.html?searchResultPosition=3
 
-**Diana Taurasi Is Still Living Up to Her ‘White Mamba’ Nickname**\
-`Taurasi, the Phoenix Mercury guard, knows she is near the end of her career, but she plays with her signature competitive fire and is “finding the beauty in the struggle.”`\
-https://nytimes.com/2020/09/15/sports/basketball/diana-taurasi-is-still-living-up-to-her-white-mamba-nickname.html?searchResultPosition=4
+**How Companies Are Getting Speedy Coronavirus Tests for Employees**\
+`Intermediaries are finding labs with capacity for companies seeking to make sure workers are virus-free. But many employers choose to avoid the cost.`\
+https://nytimes.com/2020/09/15/business/economy/employers-coronavirus-testing.html?searchResultPosition=4
 
-**The Good, the Bad and the ‘Radically Dishonest’**\
-`Lying and cheating behavior comes in several distinct flavors, a recent study found.`\
-https://nytimes.com/2020/09/15/science/psychology-dishonesty-lying-cheating.html?searchResultPosition=5
+**Nevada Built a Powerful Democratic Machine. Will It Work in a Pandemic?**\
+`One example of how things have changed: A Latino outreach group estimated in January that it would register 21,000 new voters in the state by Labor Day. It’s at around 6,000 now.`\
+https://nytimes.com/2020/09/15/us/politics/nevada-2020-biden-trump.html?searchResultPosition=5
 
-**W.N.B.A. Playoff Preview: Don’t Crown the Seattle Storm Yet**\
-`The Las Vegas Aces swept their regular-season series with Seattle, but the Storm can’t be discounted as long as they have Sue Bird — and don’t forget the Los Angeles Sparks.`\
-https://nytimes.com/2020/09/15/sports/basketball/wnba-playoff-preview.html?searchResultPosition=6
+**A Civil War Political Movement Reawakens — Complete With Capes**\
+`In 1860, the Wide Awakes mobilized against slavery and for Abraham Lincoln. A new collective is tapping into their spirit today.`\
+https://nytimes.com/2020/09/15/style/wide-awakes-civil-war-activists.html?searchResultPosition=6
 
-**The Los Angeles Clippers Are Blowing Their Best Opportunity**\
-`The Clippers finally have the expectations, and the talent, for a deep postseason run. But inconsistent play has them on the brink of elimination.`\
-https://nytimes.com/2020/09/15/sports/basketball/nba-clippers-nuggets.html?searchResultPosition=7
+**Did This Police Maneuver Lead to Daniel Prude’s Death?**\
+`The move, which the officer in Rochester, N.Y., called “segmenting,” is normally used to subdue a person, but Mr. Prude was already shackled.`\
+https://nytimes.com/2020/09/15/nyregion/daniel-prude-video-police-rochester.html?searchResultPosition=7
 
-**The Lightning Lost Early Last Year. They Came Back Tougher.**\
-`After adding more veterans following a first-round defeat to Columbus, Tampa Bay needs one more win over the Islanders to reach the Stanley Cup finals for the second time in six years.`\
-https://nytimes.com/2020/09/15/sports/hockey/the-lightning-lost-early-last-year-they-came-back-tougher.html?searchResultPosition=8
+**How Gibraltar Became Europe’s Pandemic Wedding Hot Spot**\
+`The tiny British territory at the tip of Spain, with its open border and lack of restrictions, has become the go-to place for couples looking to wed.`\
+https://nytimes.com/2020/09/15/travel/virus-gibraltar-weddings.html?searchResultPosition=8
 
-**Tennis and Social Justice**\
-`Do you follow tennis? What is your reaction to Naomi Osaka’s recent win — and her use of masks to honor Black victims of violence?`\
-https://nytimes.com/2020/09/15/learning/tennis-and-social-justice.html?searchResultPosition=9
+**The Best Post Office Novel You Will Read Before the Election**\
+`Vigdis Hjorth’s “Long Live the Post Horn!” follows a 35-year-old woman through an identity crisis — and a campaign in support of postal workers.`\
+https://nytimes.com/2020/09/15/books/review/vigdis-hjorth-long-live-the-post-horn.html?searchResultPosition=9
 
-**Late Night Fears ‘Trump Fever’ After His Indoor Rally in Nevada**\
-`“It looks like the next long-term residency in Las Vegas will be the coronavirus,” Jimmy Fallon said on Monday’s “Tonight Show.”`\
-https://nytimes.com/2020/09/15/arts/television/late-night-trump-indoor-rally.html?searchResultPosition=10
+**Which Party Represents the Racial Future?**\
+`Right now, it’s not the Republicans. But a Hispanic swing toward Trump hints at a more unsettled future.`\
+https://nytimes.com/2020/09/15/opinion/trump-biden-future.html?searchResultPosition=10
 
