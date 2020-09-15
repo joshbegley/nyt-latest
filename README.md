@@ -1,40 +1,40 @@
+**Coming This Fall: Return of the Video Game Console Wars**\
+`Gamers are awaiting Sony’s PlayStation 5 and Microsoft’s Xbox Series X, though supply might be limited because of the pandemic.`\
+https://nytimes.com/2020/09/15/technology/xbox-series-x-playstation-5.html?searchResultPosition=1
+
+**To Get to Afghan Talks, Lots of Last-Minute Deals — and Nose Swabs**\
+`Months of delays over issues as big as prisoner swaps and as small as haircuts, with extra coronavirus complications, made the Afghan flight to meet the Taliban no sure bet.`\
+https://nytimes.com/2020/09/15/world/asia/to-get-to-afghan-talks-lots-of-last-minute-deals-and-nose-swabs.html?searchResultPosition=2
+
+**Diana Taurasi Is Still Living Up to Her ‘White Mamba’ Nickname**\
+`Taurasi, the Phoenix Mercury guard, knows she is near the end of her career, but she plays with her signature competitive fire and is “finding the beauty in the struggle.”`\
+https://nytimes.com/2020/09/15/sports/basketball/diana-taurasi-is-still-living-up-to-her-white-mamba-nickname.html?searchResultPosition=3
+
+**The Good, the Bad and the ‘Radically Dishonest’**\
+`Lying and cheating behavior comes in several distinct flavors, a recent study found.`\
+https://nytimes.com/2020/09/15/science/psychology-dishonesty-lying-cheating.html?searchResultPosition=4
+
+**W.N.B.A. Playoff Preview: Don’t Crown the Seattle Storm Yet**\
+`The Las Vegas Aces swept their regular-season series with Seattle, but the Storm can’t be discounted as long as they have Sue Bird — and don’t forget the Los Angeles Sparks.`\
+https://nytimes.com/2020/09/15/sports/basketball/wnba-playoff-preview.html?searchResultPosition=5
+
+**The Los Angeles Clippers Are Blowing Their Best Opportunity**\
+`The Clippers finally have the expectations, and the talent, for a deep postseason run. But inconsistent play has them on the brink of elimination.`\
+https://nytimes.com/2020/09/15/sports/basketball/nba-clippers-nuggets.html?searchResultPosition=6
+
+**The Lightning Lost Early Last Year. They Came Back Tougher.**\
+`After adding more veterans following a first-round defeat to Columbus, Tampa Bay needs one more win over the Islanders to reach the Stanley Cup finals for the second time in six years.`\
+https://nytimes.com/2020/09/15/sports/hockey/the-lightning-lost-early-last-year-they-came-back-tougher.html?searchResultPosition=7
+
 **Tennis and Social Justice**\
 `Do you follow tennis? What is your reaction to Naomi Osaka’s recent win — and her use of masks to honor Black victims of violence?`\
-https://nytimes.com/2020/09/15/learning/tennis-and-social-justice.html?searchResultPosition=1
+https://nytimes.com/2020/09/15/learning/tennis-and-social-justice.html?searchResultPosition=8
 
 **Late Night Fears ‘Trump Fever’ After His Indoor Rally in Nevada**\
 `“It looks like the next long-term residency in Las Vegas will be the coronavirus,” Jimmy Fallon said on Monday’s “Tonight Show.”`\
-https://nytimes.com/2020/09/15/arts/television/late-night-trump-indoor-rally.html?searchResultPosition=2
+https://nytimes.com/2020/09/15/arts/television/late-night-trump-indoor-rally.html?searchResultPosition=9
 
 **Word + Quiz: reclamation**\
 `This word has appeared in 66 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/09/15/learning/word-quiz-reclamation.html?searchResultPosition=3
-
-**Dallas Stars Advance to Stanley Cup Final**\
-`Denis Gurianov scored a power-play goal in overtime of Game 5 to send the third-seeded Stars to the final for the first time in 20 years, eliminating the top-seeded Golden Knights.`\
-https://nytimes.com/2020/09/15/sports/hockey/dallas-stars-stanley-cup.html?searchResultPosition=4
-
-**The Housewife Who Was a Spy**\
-`Ben Macintyre’s “Agent Sonya” recounts the story of a woman who passed along atomic secrets when she wasn’t raising her family in the Cotswolds.`\
-https://nytimes.com/2020/09/15/books/review/agent-sonya-ben-macintyre.html?searchResultPosition=5
-
-**With Nissan’s Carlos Ghosn Gone, Greg Kelly Faces Trial Alone**\
-`Japanese prosecutors say the former car executive helped Ghosn conceal his pay. For the world, the country’s court system itself could face judgment.`\
-https://nytimes.com/2020/09/14/business/nissan-ghosn-kelly.html?searchResultPosition=6
-
-**Aleksei Navalny, Coronavirus Lockdowns, Life on Venus: Your Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2020/09/14/briefing/aleksei-navalny-coronavirus-lockdowns-life-venus.html?searchResultPosition=7
-
-**Corrections: Sept. 15, 2020**\
-`Corrections that appeared in print on Tuesday, Sept. 15, 2020.`\
-https://nytimes.com/2020/09/14/pageoneplus/corrections-sept-15-2020.html?searchResultPosition=8
-
-**Quotation of the Day: How Thiem Grew Into His Grand Slam Moment, With Hopes of More**\
-`Quotation of the Day for Tuesday, September 15, 2020.`\
-https://nytimes.com/2020/09/14/todayspaper/quotation-of-the-day-how-thiem-grew-into-his-grand-slam-moment-with-hopes-of-more.html?searchResultPosition=9
-
-**Gates Offers Grim Global Health Report, and Some Optimism**\
-`The Covid-19 pandemic has set back public health efforts by years. But in an interview, the tech philanthropist expressed hope about new avenues for foreign aid`\
-https://nytimes.com/2020/09/14/health/coronavirus-gates-foundation-health.html?searchResultPosition=10
+https://nytimes.com/2020/09/15/learning/word-quiz-reclamation.html?searchResultPosition=10
 
