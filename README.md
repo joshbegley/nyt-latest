@@ -7,7 +7,7 @@ https://nytimes.com/2020/09/15/opinion/letters/trump-coronavirus-climate.html?se
 https://nytimes.com/2020/09/15/dining/nyc-restaurant-news.html?searchResultPosition=2
 
 **Trump Hosts Israel, U.A.E. and Bahrain at White House Signing Ceremony**\
-`Critics of the agreement between the three countries have called President Trump’s claims that ensures peace in the Mideast to be overblown.`\
+`Critics of the agreement between the three countries have called President Trump’s claims that they will produce wider peace in the Middle East to be overblown.`\
 https://nytimes.com/2020/09/15/us/politics/trump-israel-peace-emirates-bahrain.html?searchResultPosition=3
 
 **Derek Jeter Puts His Tampa Home On the Market for $29 Million**\
