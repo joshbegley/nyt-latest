@@ -10,8 +10,8 @@ https://nytimes.com/2020/09/15/books/review/agent-sonya-ben-macintyre.html?searc
 `Japanese prosecutors say the former car executive helped Ghosn conceal his pay. For the world, the country’s court system itself could face judgment.`\
 https://nytimes.com/2020/09/14/business/nissan-ghosn-kelly.html?searchResultPosition=3
 
-**Your Tuesday Briefing**\
-`Aleksei Navalny, coronavirus lockdowns, life on Venus: Here’s what you need to know.`\
+**Aleksei Navalny, Coronavirus Lockdowns, Life on Venus: Your Tuesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/14/briefing/aleksei-navalny-coronavirus-lockdowns-life-venus.html?searchResultPosition=4
 
 **Corrections: Sept. 15, 2020**\
