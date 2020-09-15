@@ -30,11 +30,11 @@ https://nytimes.com/2020/09/15/world/europe/navalny-hospital-photo.html?searchRe
 `Officials urged people to prepare for “life-threatening” flash floods, torrential rains and strong winds. “This is the real deal,” Mississippi’s governor said.`\
 https://nytimes.com/2020/09/15/us/hurricane-sally-live.html?searchResultPosition=8
 
-**How to Turn Your Home Into the Best Classroom It Can Be**\
-`School is back, and for many families this year that means learning from home. Here are some tips and tools for how to create the best educational environment for your children.`\
-https://nytimes.com/2020/09/15/realestate/how-to-turn-your-home-into-the-best-classroom-it-can-be.html?searchResultPosition=9
-
 **Amid Stimulus Impasse, Bipartisan Group Offers $1.5 Trillion Compromise**\
 `Members of the House Problem Solvers Caucus plan to map out a recovery package they hope can push top Democrats and White House officials back to the negotiating table.`\
-https://nytimes.com/2020/09/15/us/politics/bipartisan-stimulus-bill.html?searchResultPosition=10
+https://nytimes.com/2020/09/15/us/politics/bipartisan-stimulus-bill.html?searchResultPosition=9
+
+**How to Turn Your Home Into the Best Classroom It Can Be**\
+`School is back, and for many families this year that means learning from home. Here are some tips and tools for how to create the best educational environment for your children.`\
+https://nytimes.com/2020/09/15/realestate/how-to-turn-your-home-into-the-best-classroom-it-can-be.html?searchResultPosition=10
 
