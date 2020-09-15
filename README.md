@@ -8,7 +8,7 @@ https://nytimes.com/video/world/asia/100000007341613/greg-kelly-nissan-court-tri
 
 **Forecasters Are Running Out of Names This Hurricane Season. What Then?**\
 `Barely halfway through what one meteorologist called a “hyperactive” season, there is only one entry left on the 21-name list used for storms.`\
-https://nytimes.com/2020/09/15/us/hurricane-names-2020.html?searchResultPosition=3
+https://nytimes.com/2020/09/15/climate/hurricane-names-2020.html?searchResultPosition=3
 
 **Southern California Battles Fires**\
 `The wildfires in California have continued to spread, and forced evacuations in Los Angeles County.`\
@@ -22,7 +22,7 @@ https://nytimes.com/2020/09/15/world/europe/coronavirus-europe.html?searchResult
 `Charles Elphicke, who served as a Conservative member of Parliament, was found guilty of assaulting two women, one who worked for him as a parliamentary aide and the other as a nanny for his children.`\
 https://nytimes.com/2020/09/15/world/europe/charlie-elphicke-sexual-assault-prison.html?searchResultPosition=6
 
-**‘Nothing To Do With Climate Change’: Conservative Media and Trump Align on Fires**\
+**‘Nothing to Do With Climate Change’: Conservative Media and Trump Align on Fires**\
 `Rush Limbaugh and Tucker Carlson dismiss scientists’ determination that climate change is a key culprit in West Coast wildfires.`\
 https://nytimes.com/2020/09/15/business/media/wildfires-conservative-media.html?searchResultPosition=7
 
