@@ -1,6 +1,6 @@
 **Dallas Stars Advance to Stanley Cup Final**\
-`Denis Gurianov scored on a power play in overtime of Game 5 to send the third-seeded Stars to the final for the first time in 20 years, eliminating the top-seeded Golden Knights.`\
-https://nytimes.com/2020/09/15/sports/hockey/dallas-stars-beat-vegas-advance-to-stanley-cup.html?searchResultPosition=1
+`Denis Gurianov scored a power-play goal in overtime of Game 5 to send the third-seeded Stars to the final for the first time in 20 years, eliminating the top-seeded Golden Knights.`\
+https://nytimes.com/2020/09/15/sports/hockey/dallas-stars-stanley-cup.html?searchResultPosition=1
 
 **The Housewife Who Was a Spy**\
 `Ben Macintyre’s “Agent Sonya” recounts the story of a woman who passed along atomic secrets when she wasn’t raising her family in the Cotswolds.`\
