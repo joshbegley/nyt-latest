@@ -7,7 +7,7 @@ https://nytimes.com/2020/09/15/briefing/wildfires-venus-hurricane-sally-your-tue
 https://nytimes.com/2020/09/15/world/europe/navalny-hospital-photo.html?searchResultPosition=2
 
 **Hurricane Sally Live Updates: Gulf Coast Prepares for Deluge**\
-`Officials in Mississippi and Louisiana urged people to prepare, warning of flash floods and strong winds. “This is the real deal,” Mississippi’s governor said.`\
+`Officials urged people to prepare for “life-threatening” flash floods, torrential rains and strong winds. “This is the real deal,” Mississippi’s governor said.`\
 https://nytimes.com/2020/09/15/us/hurricane-sally-live.html?searchResultPosition=3
 
 **How to Turn Your Home Into the Best Classroom It Can Be**\
