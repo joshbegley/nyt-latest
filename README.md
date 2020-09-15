@@ -14,8 +14,8 @@ https://nytimes.com/2020/09/15/business/dealbook/airline-bailouts-delta.html?sea
 `And what else you need to know today.`\
 https://nytimes.com/2020/09/15/briefing/wildfires-venus-hurricane-sally-your-tuesday-briefing.html?searchResultPosition=4
 
-**Navalny Posts a Message From His Hospital Bed**\
-`The poisoned Russian opposition leader said he could breathe on his own now, but was still weakened.`\
+**Navalny Says He is Breathing on His Own in a Message From His Hospital Bed**\
+`The poisoned Russian opposition leader plans to return to Russia, his spokeswoman says.`\
 https://nytimes.com/2020/09/15/world/europe/navalny-hospital-photo.html?searchResultPosition=5
 
 **Hurricane Sally Live Updates: Gulf Coast Prepares for Deluge**\
