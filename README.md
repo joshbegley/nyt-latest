@@ -1,6 +1,6 @@
 **What Happened During Trump’s Visit?**\
 `Tuesday: Although the governor and the president were polite, they disagreed about the reality of climate change.`\
-https://nytimes.com/2020/09/15/us/california-trump-visit-newsom.html?searchResultPosition=1
+https://nytimes.com/2020/09/15/us/trump-newsom.html?searchResultPosition=1
 
 **Seats? Empty. Crowd Noise? Artificial. Giants? Still Bad.**\
 `A team that has scraped together only 12 wins in their last three seasons, combined, started this one with another loss.`\
