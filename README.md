@@ -1,10 +1,10 @@
-**‘I Discovered the Body’: South Dakota’s Attorney General Offers New Crash Details**\
-`Jason Ravnsborg, the attorney general, elaborated on what happened after his car struck something on a dark highway, saying he returned in the morning to find the dead man, Joe Boever, 55, nearby.`\
-https://nytimes.com/2020/09/15/us/jason-ravnsborg-hits-deer-body.html?searchResultPosition=1
-
 **U.S. Military Seeks Authority to Expand Counterterrorism Drone War to Kenya**\
 `Draft rules for potential airstrikes, drawn up after a Shabab attack at a base in January, are said to be limited and would require Kenyan assent.`\
-https://nytimes.com/2020/09/15/us/politics/shabab-drone-authorities-kenya.html?searchResultPosition=2
+https://nytimes.com/2020/09/15/us/politics/shabab-drone-authorities-kenya.html?searchResultPosition=1
+
+**‘I Discovered the Body’: South Dakota’s Attorney General Offers New Crash Details**\
+`Jason Ravnsborg, the attorney general, elaborated on what happened after his car struck something on a dark highway, saying he returned in the morning to find the dead man, Joe Boever, 55, nearby.`\
+https://nytimes.com/2020/09/15/us/jason-ravnsborg-hits-deer-body.html?searchResultPosition=2
 
 **How To Tame Your Snack Monster**\
 `The pandemic has disrupted kids’ normal snack habits. Here are small ways to bring back a flexible eating schedule.`\
