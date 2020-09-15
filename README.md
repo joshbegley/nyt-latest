@@ -34,7 +34,7 @@ https://nytimes.com/2020/09/15/us/politics/bipartisan-stimulus-bill.html?searchR
 `As wildfires continue to rip through parts of the West, Oregon is experiencing catastrophic destruction.`\
 https://nytimes.com/2020/09/15/podcasts/the-daily/oregon-wildfires.html?searchResultPosition=9
 
-**Covid-19 Live Updates: Gates Foundation Report Paints a Grim Global Picture**\
-`The pandemic has set back public health by years, but in an interview with The Times, the tech philanthropist expressed hope about new avenues for foreign aid.`\
+**Covid-19 Live Updates: Bipartisan House Group Proposes Stimulus Compromise**\
+`The 50 centrist lawmakers are hoping to show Democratic and White House negotiators that there is enough common ground to forge a law.`\
 https://nytimes.com/2020/09/15/world/covid-19-coronavirus.html?searchResultPosition=10
 
