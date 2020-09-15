@@ -22,7 +22,7 @@ https://nytimes.com/2020/09/15/us/politics/shabab-drone-authorities-kenya.html?s
 `Jason Ravnsborg, the attorney general, elaborated on what happened after his car struck something on a dark highway, saying he returned in the morning to find the dead man, Joe Boever, 55, nearby.`\
 https://nytimes.com/2020/09/15/us/jason-ravnsborg-hits-deer-body.html?searchResultPosition=6
 
-**How To Tame Your Snack Monster**\
+**How to Tame Your Snack Monster**\
 `The pandemic has disrupted kids’ normal snack habits. Here are small ways to bring back a flexible eating schedule.`\
 https://nytimes.com/2020/09/15/parenting/children-snacks-eating.html?searchResultPosition=7
 
