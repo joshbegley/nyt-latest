@@ -8,7 +8,7 @@ https://nytimes.com/2020/09/15/technology/xbox-series-x-playstation-5.html?searc
 
 **To Get to Afghan Talks, Lots of Last-Minute Deals — and Nose Swabs**\
 `Months of delays over issues as big as prisoner swaps and as small as haircuts, with extra coronavirus complications, made the Afghan flight to meet the Taliban no sure bet.`\
-https://nytimes.com/2020/09/15/world/asia/to-get-to-afghan-talks-lots-of-last-minute-deals-and-nose-swabs.html?searchResultPosition=3
+https://nytimes.com/2020/09/15/world/asia/afghanistan-taliban-peace-talks.html?searchResultPosition=3
 
 **Diana Taurasi Is Still Living Up to Her ‘White Mamba’ Nickname**\
 `Taurasi, the Phoenix Mercury guard, knows she is near the end of her career, but she plays with her signature competitive fire and is “finding the beauty in the struggle.”`\
