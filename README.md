@@ -14,7 +14,7 @@ https://nytimes.com/2020/09/15/us/politics/trump-biden-climate.html?searchResult
 `The U.S.G.A. in 2018 quietly changed the Open’s playoff format from a full round to a two-hole aggregate score. Under it, Bobby Jones, Ben Hogan and others would have lost their dramatic finales.`\
 https://nytimes.com/2020/09/15/sports/golf/us-open-playoff-rules-sudden-death.html?searchResultPosition=4
 
-**DealBook: Can Airlines Avoid Another Bailout?**\
+**Can Airlines Avoid Another Bailout?**\
 `They have two weeks to decide whether to accept government rescue loans, or try to weather the storm without them.`\
 https://nytimes.com/2020/09/15/business/dealbook/airline-bailouts-delta.html?searchResultPosition=5
 
