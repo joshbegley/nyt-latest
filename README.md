@@ -30,7 +30,7 @@ https://nytimes.com/2020/09/15/us/politics/trump-israel-peace-emirates-bahrain.h
 `“It’s definitely not a casual house,” according to the broker, “but it’s very livable.”`\
 https://nytimes.com/2020/09/15/realestate/derek-jeter-sells-tampa-house.html?searchResultPosition=8
 
-**Derek Jeter Sells His House in Tampa, Fla.**\
+**Derek Jeter’s House in Tampa, Fla., Is For Sale**\
 `A mansion with 30,873 square feet of “very livable” space.`\
 https://nytimes.com/slideshow/2020/09/15/realestate/derek-jeter-tampa-mansion.html?searchResultPosition=9
 
