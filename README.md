@@ -11,8 +11,8 @@ https://nytimes.com/2020/09/15/technology/uber-autonomous-crash-driver-charged.h
 https://nytimes.com/2020/09/15/business/bill-gates-sr-dead.html?searchResultPosition=3
 
 **Yoga Teachers Take On QAnon**\
-`After seeing posts that seemed aligned with QAnon popping up in their social fees, wellness influencers pushed back.`\
-https://nytimes.com/interactive/2020/09/15/business/qanon-wellness.html?searchResultPosition=4
+`Online wellness influencers are pushing back against an influx of misinformation related to QAnon, the vast pro-Trump conspiracy theory.`\
+https://nytimes.com/2020/09/15/technology/yoga-teachers-take-on-qanon.html?searchResultPosition=4
 
 **Trump Health Official Apologizes for Facebook Outburst**\
 `Michael R. Caputo, the head of communications at the Department of Health and Human Services, apologized to the health secretary  and his staff and is considering a medical leave.`\
