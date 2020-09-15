@@ -1,5 +1,5 @@
 **Lord & Taylor Was More Than a Store**\
-`Readers mourn the closing of the legendary department store in New York City. Also: Mike Bloomberg’s campaign money; police accountability; misuse of algorithms; hostages in the Trump era.`\
+`Readers mourn the closing of the legendary department store. Also: Mike Bloomberg’s campaign money; police accountability; misuse of algorithms; hostages in the Trump era.`\
 https://nytimes.com/2020/09/15/opinion/letters/lord-taylor-closing.html?searchResultPosition=1
 
 **As Second Wave of Virus Builds, U.K. Enters New Testing Crisis**\
