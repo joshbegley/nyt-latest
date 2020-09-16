@@ -27,7 +27,7 @@ https://nytimes.com/2020/09/16/nyregion/nyc-coronavirus-lab-tests.html?searchRes
 https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/automobiles/100000007342362/AS-Brendan-Test.html?searchResultPosition=7
 
 **Crane Accident in Austin Injures at Least 20 People**\
-`The authorities in Austin, Texas, said that 16 people were taken to a hospital after an accident at a construction site.`\
+`The authorities in Austin, Texas, said that 16 people were taken to a hospital after two cranes became entangled at a construction site.`\
 https://nytimes.com/2020/09/16/us/austin-crane-collapse.html?searchResultPosition=8
 
 **How to Judge the Booker Prize in a Pandemic**\
