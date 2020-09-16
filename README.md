@@ -34,7 +34,7 @@ https://nytimes.com/2020/09/16/movies/goodfellas-godfather.html?searchResultPosi
 `George Kolasa and Justin Tarquinio’s cozy retreat is an ode to lazy bygone summers.`\
 https://nytimes.com/2020/09/16/t-magazine/pool-house-long-island-design.html?searchResultPosition=9
 
-**Chile’s Mapuche See Opportunity in the Prospect of a New Constitution**\
-`Chile’s largest Indigenous group has long demanded official recognition of their culture and of their claims to ancestral lands. A referendum over a new Constitution provides them a chance to be included.`\
+**Chile’s Largest Indigenous Group Sees Opportunity in a New Constitution**\
+`Chile’s Mapuche have long demanded official recognition of their culture and of their claims to ancestral lands. A referendum over a new Constitution provides them a chance to be included.`\
 https://nytimes.com/2020/09/16/world/americas/chile-mapuche-constitution.html?searchResultPosition=10
 
