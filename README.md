@@ -16,7 +16,7 @@ https://nytimes.com/2020/09/16/parenting/school-reopening-special-needs.html?sea
 
 **Jerry Harris of ‘Cheer’ Accused of Sex Abuse in Teenagers’ Lawsuit**\
 `A lawsuit filed in Texas on Monday accuses a star of the Netflix docuseries of soliciting sex and nude photos from two underage boys.`\
-https://nytimes.com/2020/09/16/arts/television/jerry-harris-cheers.html?searchResultPosition=5
+https://nytimes.com/2020/09/16/arts/television/jerry-harris-cheer.html?searchResultPosition=5
 
 **Your Thursday Briefing**\
 `India’s caseload, China, Yoshihide Suga: Here’s what you need to know.`\
