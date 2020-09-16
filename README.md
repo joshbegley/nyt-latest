@@ -6,7 +6,7 @@ https://nytimes.com/video/us/politics/100000007344235/justice-department-china-h
 `A naïve young woman struggles with the pitfalls of intimacy in the digital age, on and off the battlefield of a multiplayer online game.`\
 https://nytimes.com/2020/09/16/theater/review-in-love-and-warcraft.html?searchResultPosition=2
 
-**Facebook, Instagram Flag Tucker Carlson Virus Posts**\
+**Facebook and Instagram Flag Tucker Carlson Virus Posts**\
 `The social media platforms warn viewers that the Fox News host’s interview with a Chinese virologist contained “false information” about Covid-19.`\
 https://nytimes.com/2020/09/16/business/media/facebook-instagram-tucker-carlson-virus-posts.html?searchResultPosition=3
 
