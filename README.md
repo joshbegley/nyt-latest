@@ -27,7 +27,7 @@ https://nytimes.com/2020/09/16/opinion/letters/hunger-families-snap.html?searchR
 https://nytimes.com/2020/09/16/world/europe/afghan-migrants-charged-arson-lesbos.html?searchResultPosition=7
 
 **Diversity: A Movement, Not a Moment**\
-`New York Men’s Week may have shrunk, but the talent pool keeps growing.`\
+`The New York men’s fashion week schedule may have shrunk, but the talent pool keeps growing.`\
 https://nytimes.com/2020/09/16/style/mens-fashion-diversity-a-movement-not-a-moment.html?searchResultPosition=8
 
 **De Blasio to Furlough City Hall Workers, Including Himself**\
