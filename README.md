@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/15/us/politics/sarah-mcbride-delaware-transgender.ht
 https://nytimes.com/2020/09/15/upshot/methodology-how-the-upshots-presidential-polling-averages-are-calculated.html?searchResultPosition=3
 
 **U.S. Orders Al Jazeera Affiliate to Register as Foreign Agent**\
-`The Justice Department says AJ+, a media outlet controlled by the royal family of Qatar, engages in “political activities.”`\
+`The Justice Department says AJ+, a media outlet backed by the royal family of Qatar, engages in “political activities.”`\
 https://nytimes.com/2020/09/15/business/aj-al-jazeera-fara.html?searchResultPosition=4
 
 **New Mexico Mystery: Why Are So Many Birds Dropping Dead?**\
