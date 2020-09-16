@@ -1,5 +1,5 @@
 **Hurricane Sally Makes Landfall**\
-`Hurricane Sally made landfall as a category two storm off the coast of Alabama.`\
+`Hurricane Sally made landfall as a Category 2 storm off the coast of Alabama.`\
 https://nytimes.com/video/us/100000007343642/hurricane-sally-alabama.html?searchResultPosition=1
 
 **Wildfires Live Updates: Rain Could Offer Some Relief for Oregon and Washington**\
