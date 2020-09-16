@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/16/movies/geraldine-viswanathan-broken-hearts-galler
 https://nytimes.com/2020/09/16/theater/kara-young-bulrusher.html?searchResultPosition=3
 
 **Miami Herald Editor Apologizes for ‘Racist and Anti-Semitic’ Insert**\
-`Libre, a Spanish-language supplement included in El Nuevo Herald, a sibling to The Miami Herald, published a column comparing Black Lives Matter activists to ‘Nazi thugs.’`\
+`Libre, a Spanish-language supplement included in El Nuevo Herald, a sibling to The Miami Herald, published a column comparing Black Lives Matter activists to “Nazi thugs.”`\
 https://nytimes.com/2020/09/16/business/media/miami-herald-editor-apologizes-for-racist-and-anti-semitic-insert-el-nuevo.html?searchResultPosition=4
 
 **Former Parody Account Was Early in Spreading False Rumors on Fires**\
