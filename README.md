@@ -23,7 +23,7 @@ https://nytimes.com/2020/09/16/us/politics/michael-caputo-hhs-leave-of-absence.h
 https://nytimes.com/video/us/politics/100000007344709/biden-coronavirus-vaccine.html?searchResultPosition=6
 
 **Barr Told Prosecutors to Consider Sedition Charges for Protest Violence**\
-`The extraordinary suggestion comes as Attorney General William P. Barr has emerged as a messenger for President Trump’s re-election campaign.`\
+`The extraordinary suggestion came as Attorney General William P. Barr has emerged as a messenger for President Trump’s re-election campaign.`\
 https://nytimes.com/2020/09/16/us/politics/william-barr-sedition.html?searchResultPosition=7
 
 **For Sale: The Family Home**\
