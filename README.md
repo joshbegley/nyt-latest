@@ -1,4 +1,4 @@
-**DealBook: This Isn’t Just JPMorgan’s Problem**\
+**This Isn’t Just JPMorgan’s Problem**\
 `Sending workers home after a colleague tests positive for the coronavirus will be a fact of life for months to come.`\
 https://nytimes.com/2020/09/16/business/dealbook/jpmorgan-office-covid.html?searchResultPosition=1
 
