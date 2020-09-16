@@ -7,7 +7,7 @@ https://nytimes.com/2020/09/16/us/for-school-outbreaks-its-whennot-if.html?searc
 https://nytimes.com/2020/09/16/technology/snowflake-tech-ipo.html?searchResultPosition=2
 
 **A season of climate-fueled disasters**\
-`It’s been a busy week for the NYT team that covers global warming.`\
+`Wildfires are still scorching the West as a hurricane hits the South`\
 https://nytimes.com/2020/09/16/climate/wildfires-hurricanes-climate-change.html?searchResultPosition=3
 
 **Facebook Oculus Quest 2 Review: Solid V.R. Headset, but Few Games**\
