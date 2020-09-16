@@ -8,7 +8,7 @@ https://nytimes.com/2020/09/16/us/politics/pelosi-congress-coronavirus-aid.html?
 
 **So You Moved During the Pandemic. Now Where and How Do You Vote?**\
 `Whether you’re staying at a second home, a college dorm, your parents’ house or just moving around, here’s where and how you can vote.`\
-https://nytimes.com/2020/09/16/us/so-you-moved-during-the-pandemic-now-where-and-how-do-you-vote.html?searchResultPosition=3
+https://nytimes.com/2020/09/16/us/politics/how-to-vote-moved.html?searchResultPosition=3
 
 **‘The Devil All the Time’ Review: Down-Home Livin’ and Dyin’**\
 `In this period drama, Tom Holland plays a country boy surrounded by Gothic ghouls, including Robert Pattinson’s preacher man.`\
