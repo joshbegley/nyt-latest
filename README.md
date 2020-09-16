@@ -16,7 +16,7 @@ https://nytimes.com/2020/09/16/movies/the-devil-all-the-time-review.html?searchR
 
 **Far-Right Police Officers Suspended in Germany After Sharing Hitler Pictures**\
 `Five chat groups with extremist content were discovered in a police department in western Germany. It is the latest example of far-right infiltration of Germany’s security services.`\
-https://nytimes.com/2020/09/16/world/europe/far-right-police-officers-suspended-in-germany-after-sharing-hitler-pictures.html?searchResultPosition=5
+https://nytimes.com/2020/09/16/world/europe/germany-police-far-right-chat-group.html?searchResultPosition=5
 
 **Trump Gets an Earful**\
 `And what else you need to know today.`\
