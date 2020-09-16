@@ -2,7 +2,7 @@
 `Embrace the chill in the air and the late-summer summer produce at the market, and make corn soup, tomato risotto, Japanese curry.`\
 https://nytimes.com/2020/09/16/dining/what-to-cook-right-now.html?searchResultPosition=1
 
-**Melania Trump Statue Returns in Slovenia. (This One Won’t Burn.)**\
+**Melania Trump Statue Returns in Slovenia. (This One Is Harder to Burn.)**\
 `The wooden original, erected last year near the first lady’s hometown, was set on fire in July. The replacement, made from bronze, is intended to last a bit longer, the commissioning artist said.`\
 https://nytimes.com/2020/09/16/world/europe/melania-trump-sculpture-slovenia.html?searchResultPosition=2
 
