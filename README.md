@@ -1,40 +1,40 @@
+**Inquiry Ordered Into Claims Immigrants Had Unwanted Gynecology Procedures**\
+`Members of Congress and the D.H.S. are investigating claims by a nurse and lawyers that immigrant detainees in Georgia were complaining of unwanted procedures and rough treatment.`\
+https://nytimes.com/2020/09/16/us/ICE-hysterectomies-whistleblower-georgia.html?searchResultPosition=1
+
 **Hurricane Sally’s Fierce Rain Shows How Climate Change Raises Storm Risks**\
 `Staggering rain totals, fueled by a warming atmosphere that can hold more moisture, are being recorded from the storm.`\
-https://nytimes.com/2020/09/16/climate/hurricane-sally-climate-change.html?searchResultPosition=1
+https://nytimes.com/2020/09/16/climate/hurricane-sally-climate-change.html?searchResultPosition=2
 
 **Guggenheim Cuts Staff by 11 Percent Ahead of Reopening**\
 `The museum announced Wednesday that 24 employees would be laid off and that eight others have taken voluntary separation agreements.`\
-https://nytimes.com/2020/09/16/arts/guggenheim-layoffs.html?searchResultPosition=2
+https://nytimes.com/2020/09/16/arts/guggenheim-layoffs.html?searchResultPosition=3
 
 **Does Wearing Glasses Protect You From Coronavirus?**\
 `After researchers noticed fewer nearsighted patients in a hospital ward in China, they speculated that wearing glasses might offer some protection against Covid-19.`\
-https://nytimes.com/2020/09/16/well/live/does-wearing-glasses-protect-you-from-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/09/16/well/live/does-wearing-glasses-protect-you-from-coronavirus.html?searchResultPosition=4
 
 **Hurricane Sally, Masks, Chris Rock: Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/09/16/briefing/hurricane-sally-masks-chris-rock.html?searchResultPosition=4
+https://nytimes.com/2020/09/16/briefing/hurricane-sally-masks-chris-rock.html?searchResultPosition=5
 
 **Trump Shares Two Doctored Videos of Biden**\
 `One video was in line with Trump’s frequent attempts to suggest that Biden opposes law enforcement, including his false claim that Biden wants to defund the police.`\
-https://nytimes.com/interactive/2020/09/16/business/trump-biden-nwa.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/09/16/business/trump-biden-nwa.html?searchResultPosition=6
 
 **Health Official to Take Leave of Absence After He Attacked Federal Scientists**\
 `Michael R. Caputo, the assistant secretary of health for public affairs, and his science adviser will be leaving the Department of Health and Human Services after both criticized the C.D.C.`\
-https://nytimes.com/2020/09/16/us/politics/michael-caputo-hhs-leave-of-absence.html?searchResultPosition=6
+https://nytimes.com/2020/09/16/us/politics/michael-caputo-hhs-leave-of-absence.html?searchResultPosition=7
 
 **‘Scientific Breakthroughs Don’t Care About Calendars,’ Biden Says**\
 `The Democratic presidential nominee, Joseph R. Biden Jr., expressed concern that President Trump was trying to rush coronavirus vaccine approval for political gain.`\
-https://nytimes.com/video/us/politics/100000007344709/biden-coronavirus-vaccine.html?searchResultPosition=7
+https://nytimes.com/video/us/politics/100000007344709/biden-coronavirus-vaccine.html?searchResultPosition=8
 
 **Barr Told Prosecutors to Consider Sedition Charges for Protest Violence**\
 `The extraordinary suggestion came as Attorney General William P. Barr has emerged as a messenger for President Trump’s re-election campaign.`\
-https://nytimes.com/2020/09/16/us/politics/william-barr-sedition.html?searchResultPosition=8
+https://nytimes.com/2020/09/16/us/politics/william-barr-sedition.html?searchResultPosition=9
 
 **For Sale: The Family Home**\
 `For loved ones, decisions surrounding retirement can stir up a variety of emotions.`\
-https://nytimes.com/paidpost/securian-financial/for-sale-the-family-home.html?searchResultPosition=9
-
-**Snapshots of an Extraordinary Moment in Time**\
-`Scraps of joy and anxiety, wonder, fear and optimism.`\
-https://nytimes.com/2020/09/16/at-home/newsletter.html?searchResultPosition=10
+https://nytimes.com/paidpost/securian-financial/for-sale-the-family-home.html?searchResultPosition=10
 
