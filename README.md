@@ -1,4 +1,4 @@
-**Trump Gets ‘Fox & Friend-Zoned’**\
+**Trump Gets ‘Fox and Friend-Zoned’**\
 `“Wow, Steve Doocy just told the president of the United States, ‘Don’t call us, we’ll call you,’” Trevor Noah joked after President Trump announced on-air he’d call into “Fox and Friends” every week and the co-host suggested otherwise.`\
 https://nytimes.com/2020/09/16/arts/television/trump-steve-doocy-fox-and-friends.html?searchResultPosition=1
 
