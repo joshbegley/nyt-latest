@@ -34,7 +34,7 @@ https://nytimes.com/2020/09/17/learning/what-students-are-saying-about-their-hop
 `In her new book, “Just Us,” the poet and essayist repeatedly asks how race is understood and manifested in American culture.`\
 https://nytimes.com/2020/09/17/books/review/claudia-rankine-just-us.html?searchResultPosition=9
 
-**Former Trump officials back Biden, saying the president is a weak leader who mismanaged the virus response.**\
+**Former Trump officials back Biden, saying it is time to put ‘country over party.’**\
 `By Michael D. Shear`\
 https://nytimes.com/2020/09/17/us/elections/republicans-former-trump-officials-biden.html?searchResultPosition=10
 
