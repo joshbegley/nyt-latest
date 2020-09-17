@@ -1,5 +1,5 @@
 **Walmart will raise wages for 165,000 employees.**\
-`By Michael Corkery`\
+`The raises at Walmart will be carefully watched because the giant retailer sets the benchmark for lower-wage workers.`\
 https://nytimes.com/2020/09/17/business/walmart-pay-raise.html?searchResultPosition=1
 
 **How Postpartum Breast Cancer Changed My Parenting Plans**\
