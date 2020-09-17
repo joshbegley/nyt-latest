@@ -31,7 +31,7 @@ https://nytimes.com/2020/09/17/magazine/philippines-marine-pardon-duterte.html?s
 https://nytimes.com/2020/09/17/sports/autoracing/a-female-team-at-le-mans-jumps-to-a-new-level.html?searchResultPosition=8
 
 **Inside One N.F.L. Team’s Attempt to Turn Protest Into Action**\
-`The Falcons, who play in the home city of the Rev. Dr. Martin Luther King, Jr., are making voting rights a priority this season.`\
+`The Falcons, who play in the home city of the Rev. Dr. Martin Luther King Jr., are making voting rights a priority this season.`\
 https://nytimes.com/2020/09/17/sports/football/inside-one-nfl-teams-attempt-to-turn-protest-into-action.html?searchResultPosition=9
 
 **Does Biden Need a Higher Gear? Some Democrats Think So**\
