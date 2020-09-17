@@ -1,40 +1,40 @@
-**The Back Story Behind ‘Transcendent Kingdom’: Yaa Gyasi Is a Solid Friend**\
-`Loyalty spurred the best-selling author to visit a neuroscientist’s lab. What she saw there inspired her next narrator.`\
-https://nytimes.com/2020/09/17/books/review/yaa-gyasi-transcendent-kingdom.html?searchResultPosition=1
+**Trump Is Wrong about TikTok. China’s Plans Are Much More Sinister.**\
+`The West still doesn’t understand the scale of Beijing’s soft-power ambitions.`\
+https://nytimes.com/2020/09/17/opinion/tiktok-china-strategy.html?searchResultPosition=1
 
-**Do Your Parents Overpraise You?**\
-`Are you overwhelmed with “good jobs,” “you’re so smarts” and “that’s beautifuls”? Or do you wish that you received more praise and approval?`\
-https://nytimes.com/2020/09/17/learning/do-your-parents-overpraise-you.html?searchResultPosition=2
+**A New Ship’s Mission: Let the Deep Sea Be Seen**\
+`A giant new vessel, OceanXplorer, seeks to unveil the secrets of the abyss for a global audience.`\
+https://nytimes.com/2020/09/17/science/ocean-exploration-dalio-ship.html?searchResultPosition=2
 
-**Why Michael Ian Black Doesn’t Like Mystery Novels**\
-`“Just tell me who did it.”`\
-https://nytimes.com/2020/09/17/books/review/michael-ian-black-by-the-book-interview.html?searchResultPosition=3
+**Many Small Businesses Can’t Pay the Rent. A Deal With the Landlord Is Their Only Hope.**\
+`Months of pandemic-related closures have left many business owners too deeply in debt to survive without concessions or deferrals.`\
+https://nytimes.com/2020/09/17/business/small-business-rent-landlord.html?searchResultPosition=3
 
-**Revisiting the ‘Violent Ballets’ of Jack Kirby**\
-`In his Graphic Content column, Ed Park explores books capturing Kirby’s life and work, including a new biography by Tom Scioli.`\
-https://nytimes.com/2020/09/17/books/review/tom-scioli-jack-kirby-atlas-at-war.html?searchResultPosition=4
+**He Killed a Transgender Woman in the Philippines. Why Was He Freed?**\
+`The pardon of U.S. Marine Lance Cpl. Joseph Scott Pemberton by President Rodrigo Duterte is the final chapter in a case that reignited debate over old defense treaties.`\
+https://nytimes.com/2020/09/17/magazine/philippines-marine-pardon-duterte.html?searchResultPosition=4
 
-**Florida Was Nice, but This Couple Was Ready to Come Home to New York **\
-`Seeking cooler weather and ‘the pulse of the city,’ Glenn Snider and Allen Sistrunk put their $500,000 budget to the test in Manhattan. Which of these options would you choose?`\
-https://nytimes.com/interactive/2020/09/17/realestate/17hunt-snider.html?searchResultPosition=5
+**A Female Team at Le Mans Jumps to a New Level**\
+`All-women teams have run at Le Mans before, but none in the LMP2 class.`\
+https://nytimes.com/2020/09/17/sports/autoracing/a-female-team-at-le-mans-jumps-to-a-new-level.html?searchResultPosition=5
 
-**Judge John Hodgman on Hollering Around the House**\
-`How should one respond to in-home echolocation?`\
-https://nytimes.com/2020/09/17/magazine/judge-john-hodgman-on-hollering-around-the-house.html?searchResultPosition=6
+**Inside One N.F.L. Team’s Attempt to Turn Protest Into Action**\
+`The Falcons, who play in the home city of the Rev. Dr. Martin Luther King, Jr., are making voting rights a priority this season.`\
+https://nytimes.com/2020/09/17/sports/football/inside-one-nfl-teams-attempt-to-turn-protest-into-action.html?searchResultPosition=6
 
-**Lesson of the Day: ‘The Complex History of the Women’s Suffrage Movement’**\
-`This year, we celebrate the 100th anniversary of the 19th Amendment. In this lesson, you’ll learn about the lesser-known history of the fight for the right to vote.`\
-https://nytimes.com/2020/09/17/learning/lesson-of-the-day-the-complex-history-of-the-womens-suffrage-movement.html?searchResultPosition=7
+**Why French Politicians Can’t Stop Talking About Crime**\
+`Statistics show a steady decline in major crimes. But what has intensified are the challenges to France’s traditional national identity, and the jockeying in the race to be the next president.`\
+https://nytimes.com/2020/09/17/world/europe/france-crime.html?searchResultPosition=7
 
-**Stephen Colbert Can’t Believe There Are Undecided Voters**\
-`“I assume the night started with each of them being roused from a coma,” Colbert said of the uncommitted audience at President Trump’s Philadelphia town hall.`\
-https://nytimes.com/2020/09/17/arts/television/trump-town-hall-stephen-colbert.html?searchResultPosition=8
+**Private Tutors, Pop-Up Schools or Nothing at All: How Employers Are Helping Parents**\
+`Benefits depend on where people work, and the kind of job they have, a new survey finds, highlighting disparities that predate the pandemic.`\
+https://nytimes.com/2020/09/17/upshot/pandemic-workers-benefits-disparity.html?searchResultPosition=8
 
-**A Desperate Bid for Survival as Fire Closed In on an Oregon Mountain Town**\
-`After wildfires left them trapped on the shores of a reservoir near Detroit, Ore., dozens of people and nine firefighters mounted a last stand, hoping for a miracle.`\
-https://nytimes.com/2020/09/17/us/fires-oregon-detroit.html?searchResultPosition=9
+**Does Biden Need a Higher Gear? Some Democrats Think So.**\
+`As President Trump’s campaign barrels ahead with crowded rallies and in-person door-knocking, some Democratic officials in battleground states are warning that Joe Biden may not be doing enough to excite voters.`\
+https://nytimes.com/2020/09/17/us/politics/joe-biden-campaign.html?searchResultPosition=9
 
-**Martha Stewart, Blissed Out on CBD, Is Doing Just Fine**\
-`America’s foremost domestic goddess was well prepared for many months spent at home.`\
-https://nytimes.com/2020/09/17/style/martha-stewart-at-home.html?searchResultPosition=10
+**A College Football Conference Can Choose Players Over Profits for a Change**\
+`The Big Ten’s reversal on playing college football this fall puts young players at risk for our entertainment. The Pac-12 should resist pressure and continue to stand down.`\
+https://nytimes.com/2020/09/17/sports/ncaafootball/covid-big-ten-football-pac-12.html?searchResultPosition=10
 
