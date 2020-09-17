@@ -31,7 +31,7 @@ https://nytimes.com/2020/09/17/learning/whats-going-on-in-this-graph-sept-23-202
 https://nytimes.com/2020/09/17/opinion/letters/trump-barr-sedition.html?searchResultPosition=8
 
 **10 Great Movies at the New York Film Festival You Can (Mostly) See Online**\
-`This year’s edition of the Lincoln Center staple is going virtual and (gasp!) to the Bronx — but there is still plenty to watch.`\
+`This year’s edition of the Lincoln Center staple is going virtual and to the Bronx — but there is still plenty to watch.`\
 https://nytimes.com/2020/09/17/movies/new-york-film-festival-best-movies.html?searchResultPosition=9
 
 **Your Friday Briefing**\
