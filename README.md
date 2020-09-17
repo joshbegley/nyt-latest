@@ -2,7 +2,7 @@
 `In her new book, “Just Us,” the poet and essayist repeatedly asks how race is understood and manifested in American culture.`\
 https://nytimes.com/2020/09/17/books/review/claudia-rankine-just-us.html?searchResultPosition=1
 
-**Blue Bell is hit with a $17.25 million penalty over a 2015 listeria outbreak.**\
+**Blue Bell is hit with a $17.25 million penalty over 2015 listeria contamination.**\
 `By Gillian Friedman`\
 https://nytimes.com/2020/09/17/business/blue-bell-listeria-fine.html?searchResultPosition=2
 
