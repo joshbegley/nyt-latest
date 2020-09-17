@@ -14,8 +14,8 @@ https://nytimes.com/2020/09/16/todayspaper/quotation-of-the-day-saudi-strikes-in
 `Corrections that appeared in print on Thursday, Sept. 17, 2020.`\
 https://nytimes.com/2020/09/16/pageoneplus/corrections-sept-17-2020.html?searchResultPosition=4
 
-**Your Thursday Briefing**\
-`Europe’s economy, German police, China: Here’s what you need to know.`\
+**Europe’s Economy, German Police, China: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/16/briefing/europe-economy-german-police-china.html?searchResultPosition=5
 
 **U.S. Prosecutors’ Bid to ‘Bury’ Evidence Draws Judge’s Wrath**\
