@@ -2,20 +2,20 @@
 `Conditions at the Moria refugee center were already dire. This year, the coronavirus compounded the misery, and then fires razed the squalid camp, leaving thousands homeless.`\
 https://nytimes.com/2020/09/17/podcasts/the-daily/moria-fire-asylum-seekers.html?searchResultPosition=1
 
-**A Car Insurance Claim Estimate Before the Tow Truck Is Called**\
-`Using algorithms, tech companies are helping insurers speed up the process after an accident, make it more accurate and keep estimators out of the field — a plus during a pandemic.`\
-https://nytimes.com/2020/09/17/business/car-insurance-claim-estimate-artificial-intelligence.html?searchResultPosition=2
-
 **Obama’s Memoir ‘A Promised Land’ Coming in November**\
 `The former president’s publisher plans to release the book after the 2020 election and has ordered a first U.S. printing of 3 million copies.`\
-https://nytimes.com/2020/09/17/books/obama-memoir-a-promised-land.html?searchResultPosition=3
+https://nytimes.com/2020/09/17/books/obama-memoir-a-promised-land.html?searchResultPosition=2
+
+**A Car Insurance Claim Estimate Before the Tow Truck Is Called**\
+`Using algorithms, tech companies are helping insurers speed up the process after an accident, make it more accurate and keep estimators out of the field — a plus during a pandemic.`\
+https://nytimes.com/2020/09/17/business/car-insurance-claim-estimate-artificial-intelligence.html?searchResultPosition=3
 
 **A ‘Textbook Example’ of a College Outbreak in N.Y.**\
 `Students, parents and staff members at SUNY Oneonta say a problem of lax screening  was made worse by risky off-campus gatherings.`\
 https://nytimes.com/2020/09/17/nyregion/suny-oneonta-covid-outbreak.html?searchResultPosition=4
 
 **Aleksei Navalny Was Poisoned at His Hotel, His Team Says**\
-`Aides of the Russian opposition leader collected items from his hotel room in Siberia as soon as he fell ill, including a water bottle tainted with poison, according to a video posted on his Instagram account.`\
+`Aides of the Russian opposition leader collected items from his hotel room in Siberia as soon as he fell ill, according to a video posted on his Instagram account.`\
 https://nytimes.com/2020/09/17/world/europe/aleksei-navalny-poisoning-water-bottle-russia.html?searchResultPosition=5
 
 **Covid-19 Live Updates: For Small Businesses, Rent Help Is Needed to Survive**\
