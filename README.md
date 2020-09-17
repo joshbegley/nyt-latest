@@ -10,8 +10,8 @@ https://nytimes.com/2020/09/16/us/salt-lake-city-police-dog-attack.html?searchRe
 `Next time maybe they’ll bring back the Whigs.`\
 https://nytimes.com/2020/09/16/opinion/third-parties-2020.html?searchResultPosition=3
 
-**A Welcome Development in the Middle East**\
-`The Trump administration deserves credit for brokering the normalization of relations between Israel and two Arab states.`\
+**Trump’s Middle East Deal Is Good. But Not That Good.**\
+`The normalization of relations between Israel and two Arab states is a welcome development. There’s still a long way to go toward peace.`\
 https://nytimes.com/2020/09/16/opinion/trump-israel-bahrain-uae.html?searchResultPosition=4
 
 **In the Big Ten, Football Gets to Play by Its Own Rules**\
