@@ -1,5 +1,5 @@
-**Poison Used on Aleksei Navalny Was in a Water Bottle, His Team Says**\
-`Aides of the Russian opposition leader collected items from his hotel room in Siberia as soon as he fell ill, according to a video posted on his Instagram account.`\
+**Aleksei Navalny Was Poisoned at His Hotel, His Team Says**\
+`Aides of the Russian opposition leader collected items from his hotel room in Siberia as soon as he fell ill, including a water bottle tainted with poison, according to a video posted on his Instagram account.`\
 https://nytimes.com/2020/09/17/world/europe/aleksei-navalny-poisoning-water-bottle-russia.html?searchResultPosition=1
 
 **Covid-19 Live Updates: For Small Businesses, Rent Help Is Needed to Survive**\
