@@ -14,7 +14,7 @@ https://nytimes.com/2020/09/17/nyregion/nyc-schools-reopening.html?searchResultP
 `“Some days, it’s heavy talk about the future of the world,” said Jeff Van Gundy, an ESPN commentator. “We talk about everything and solve nothing.”`\
 https://nytimes.com/2020/09/17/sports/basketball/nba-jeff-stan-van-gundy.html?searchResultPosition=4
 
-**Election results will take longer, but not because of ‘unsolicited ballots,’ despite Trump’s claims.**\
+**Election results will take longer, but not because of ‘unsolicited ballots,’ despite Trump’s claims**\
 `By Nick Corasaniti`\
 https://nytimes.com/2020/09/17/us/elections/election-results-will-take-longer-but-not-because-of-unsolicited-ballots-despite-trumps-claims.html?searchResultPosition=5
 
