@@ -2,8 +2,8 @@
 `The sluggish storm veered east and intensified before making landfall near the Alabama and Florida state line. Residents and officials said they were not anticipating a direct hit.`\
 https://nytimes.com/2020/09/16/us/hurricane-sally-landfall.html?searchResultPosition=1
 
-**Trump Rebukes C.D.C. Chief Over Masks and a Vaccine Timeline**\
-`Dr. Robert R. Redfield told a Senate panel on Wednesday that a vaccine would not be widely available until mid-2021. The president said Dr. Redfield must have misunderstood the questions.`\
+**Trump Scorns His Own Scientists Over Virus Data**\
+`A public scolding of the C.D.C. chief was only the latest but perhaps the starkest instance when the president has rejected not just the policy advice of his public health officials but the facts and information that they provided.`\
 https://nytimes.com/2020/09/16/us/politics/trump-cdc-covid-vaccine.html?searchResultPosition=2
 
 **Is TikTok a Music Industry Friend or Troll?**\
