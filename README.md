@@ -12,7 +12,7 @@ https://nytimes.com/2020/09/17/world/europe/medicane-ianos-greece.html?searchRes
 
 **F.B.I. Director Warns of Russian Interference and White Supremacist Violence**\
 `The testimony contradicted efforts by President Trump and other officials to downplay the threats.`\
-https://nytimes.com/2020/09/17/us/politics/fbi-russian-interference-white-supremacist-violence.html?searchResultPosition=4
+https://nytimes.com/2020/09/17/us/politics/fbi-russia.html?searchResultPosition=4
 
 **Top Justice Dept. Official Embraces Use of Sedition Charges for Protest Violence**\
 `The deputy attorney general, Jeffrey A. Rosen, emphasized that the sedition statute covered a variety of crimes and the push to consider it was proper.`\
