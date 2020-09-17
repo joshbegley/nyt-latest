@@ -34,7 +34,7 @@ https://nytimes.com/2020/09/17/sports/autoracing/a-female-team-at-le-mans-jumps-
 `The Falcons, who play in the home city of the Rev. Dr. Martin Luther King, Jr., are making voting rights a priority this season.`\
 https://nytimes.com/2020/09/17/sports/football/inside-one-nfl-teams-attempt-to-turn-protest-into-action.html?searchResultPosition=9
 
-**Why French Politicians Can’t Stop Talking About Crime**\
-`Statistics show a steady decline in major crimes. But what has intensified are the challenges to France’s traditional national identity, and the jockeying in the race to be the next president.`\
-https://nytimes.com/2020/09/17/world/europe/france-crime.html?searchResultPosition=10
+**Does Biden Need a Higher Gear? Some Democrats Think So**\
+`As President Trump’s campaign barrels ahead with crowded rallies and in-person door-knocking, some Democratic officials in battleground states are warning that Joe Biden may not be doing enough to excite voters.`\
+https://nytimes.com/2020/09/17/us/politics/joe-biden-campaign.html?searchResultPosition=10
 
