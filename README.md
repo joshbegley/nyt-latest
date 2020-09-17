@@ -1,40 +1,40 @@
+**South Africa to Reopen Borders, Move to Lowest Virus Alert Level**\
+`President Cyril Ramaphosa of South Africa said the country would drop to its lowest coronavirus alert level starting Sunday, and begin allowing international travel from most countries on Oct. 1.`\
+https://nytimes.com/video/world/africa/100000007345964/south-africa-coronavirus-borders.html?searchResultPosition=1
+
+**The Whitney Canceled Their Exhibition. Now Those Artists Want Reform.**\
+`Last month, the museum acquired works from 80 artists, often through discounted sales. A new letter signed by more than half of the artists asks for substantive changes in the Whitney’s policies.`\
+https://nytimes.com/2020/09/17/arts/design/whitney-museum-artists-letter.html?searchResultPosition=2
+
+**Medical Errors May Increase Around Daylight Saving Time in the Spring**\
+`After the loss of an hour from daylight savings, the number of human mistakes increased by almost 20 percent, mostly involving drug errors.`\
+https://nytimes.com/2020/09/17/well/live/medical-errors-may-increase-around-daylight-saving-time-in-the-spring.html?searchResultPosition=3
+
 **Community Colleges Can Be Engines of Economic Recovery**\
 `With proper funding and innovation, two-year public colleges can handle job training for millions of people.`\
-https://nytimes.com/2020/09/17/business/community-colleges-economic-recovery.html?searchResultPosition=1
+https://nytimes.com/2020/09/17/business/community-colleges-economic-recovery.html?searchResultPosition=4
 
 **How Politics Gutted Ex-Felon Voting Rights in Florida**\
 `It’s a cautionary tale about the messy process of citizen-led ballot initiatives and how a dominant political party can exert its power.`\
-https://nytimes.com/2020/09/17/us/florida-felons-voting.html?searchResultPosition=2
+https://nytimes.com/2020/09/17/us/florida-felons-voting.html?searchResultPosition=5
 
 **Advice from Home-Schooling Parents for Remote Learning**\
 `‘The most wonderful thing is that you’re home with your kids all the time. And the worst thing is that you’re home, with your kids, all the time.’`\
-https://nytimes.com/interactive/2020/09/17/parenting/home-school-advice.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/09/17/parenting/home-school-advice.html?searchResultPosition=6
 
 **‘H Is for Happiness’ Review: Using Fuss to Fight Off a Funk**\
 `The cuteness and cheer of this film is offset by a refreshingly direct take on depression and despair.`\
-https://nytimes.com/2020/09/17/movies/h-is-for-happiness-review.html?searchResultPosition=4
+https://nytimes.com/2020/09/17/movies/h-is-for-happiness-review.html?searchResultPosition=7
 
 **Alicia Keys Has Passion, Advice and Aplomb on ‘Alicia’**\
 `The singer and songwriter’s seventh album grapples with other people’s expectations and offers words of uplift.`\
-https://nytimes.com/2020/09/17/arts/music/alicia-keys-alicia-review.html?searchResultPosition=5
+https://nytimes.com/2020/09/17/arts/music/alicia-keys-alicia-review.html?searchResultPosition=8
 
 **Reproductive Life Span May Affect a Woman’s Heart Risks**\
 `Women with a shorter time between menarche and menopause were at higher risk of cardiovascular disease, heart attack and stroke.`\
-https://nytimes.com/2020/09/17/well/live/reproductive-life-span-may-affect-a-womans-heart-risks.html?searchResultPosition=6
+https://nytimes.com/2020/09/17/well/live/reproductive-life-span-may-affect-a-womans-heart-risks.html?searchResultPosition=9
 
 **Speeding Fire Truck Hits Ambulance, Killing Patient**\
 `A ladder truck rushing to a fire slammed into an ambulance carrying a man who had had a heart attack, killing him and injuring 11 others.`\
-https://nytimes.com/2020/09/17/nyregion/fdny-ambulance-crash.html?searchResultPosition=7
-
-**A September Wine Romance**\
-`The end of summer has a particular feel to it as the bountiful fresh produce ebbs. These 12 wines can make the seasonal transition.`\
-https://nytimes.com/2020/09/17/dining/drinks/best-wines-for-fall-dinners.html?searchResultPosition=8
-
-**A Climate Center on Governors Island? Could Be a Game Changer**\
-`A rezoning proposal that has been floating around is finally up for city review. This kind of development is just what New York needs now.`\
-https://nytimes.com/2020/09/17/arts/design/17governors-island-climate-change.html?searchResultPosition=9
-
-**N.Y.C. Will Again Delay Start of In-Person Classes for Most Students**\
-`The city had scheduled classes to start on Monday. Now, it will phase students back on a rolling basis, beginning with pre-K.`\
-https://nytimes.com/2020/09/17/nyregion/nyc-schools-reopening.html?searchResultPosition=10
+https://nytimes.com/2020/09/17/nyregion/fdny-ambulance-crash.html?searchResultPosition=10
 
