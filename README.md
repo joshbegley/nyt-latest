@@ -10,9 +10,9 @@ https://nytimes.com/2020/09/17/nyregion/nyc-schools-reopening.html?searchResultP
 `“Some days, it’s heavy talk about the future of the world,” said Jeff Van Gundy, an ESPN commentator. “We talk about everything and solve nothing.”`\
 https://nytimes.com/2020/09/17/sports/basketball/nba-jeff-stan-van-gundy.html?searchResultPosition=3
 
-**Election results will take longer, but not be because of Trump’s claims about ‘unsolicited ballots.’**\
+**Election results will take longer, but not because of Trump’s claims about ‘unsolicited ballots.’**\
 `By Nick Corasaniti`\
-https://nytimes.com/2020/09/17/us/elections/election-results-will-take-longer-but-not-be-because-of-trumps-claims-about-unsolicited-ballots.html?searchResultPosition=4
+https://nytimes.com/2020/09/17/us/elections/election-results-will-take-longer-but-not-because-of-trumps-claims-about-unsolicited-ballots.html?searchResultPosition=4
 
 **Police Move Migrants From Greek Camp to Temporary Lesbos Site After Fires**\
 `The move comes a week after fires destroyed the Moria camp, where 12,000 people were living. But rights groups say the new camp is only a temporary solution.`\
