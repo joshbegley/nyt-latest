@@ -1,5 +1,5 @@
-**A Humanitarian Crisis in Greece**\
-`Conditions at the Moria refugee center were already dire. This year, the coronavirus compounded the misery, and then fires razed the squalid camp, leaving thousands homeless.`\
+**Why a Refugee Camp Burned in Greece**\
+`Conditions at the Moria center on the island of Lesbos were already dire. This year, the coronavirus compounded the misery, and then fires razed the squalid camp, leaving thousands homeless.`\
 https://nytimes.com/2020/09/17/podcasts/the-daily/moria-fire-asylum-seekers.html?searchResultPosition=1
 
 **Obama’s Memoir ‘A Promised Land’ Coming in November**\
