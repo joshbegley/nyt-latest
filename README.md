@@ -26,7 +26,7 @@ https://nytimes.com/2020/09/17/nyregion/nj-millionaires-tax.html?searchResultPos
 `The most-viewed properties of the month in included Manhattan homes that were most affordable as well as very expensive.`\
 https://nytimes.com/2020/09/17/realestate/the-most-popular-listings-of-august.html?searchResultPosition=7
 
-**Wildfires Live Updates: Dry Lightning Could Threaten Western Oregon**\
+**Wildfires Live Updates: Dry Lightning Could Threaten Oregon**\
 `Firefighters were making progress against several significant wildfires, but a coming change in conditions could allow fires to quickly spread.`\
 https://nytimes.com/2020/09/17/us/wildfires-live-updates.html?searchResultPosition=8
 
