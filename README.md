@@ -30,7 +30,7 @@ https://nytimes.com/video/world/europe/100000007348708/johnson-britain-second-wa
 `A Heritage Foundation investigation went viral on Thursday, but it conflated two nonprofits with the same name.`\
 https://nytimes.com/2020/09/18/technology/no-a-black-lives-matter-co-founder-didnt-partner-with-a-pro-communist-chinese-group.html?searchResultPosition=8
 
-**With Moria’s Displaced, a Larger Conundrum for Europe**\
+**After Fire at Refugee Camp, Europe Faces a Reckoning**\
 `Years after the Syrian refugee crisis subsided, asylum seekers from other nations face even higher obstacles to enter Europe, which is more ambivalent about accepting them than ever.`\
 https://nytimes.com/2020/09/18/world/europe/eu-moria-migrants.html?searchResultPosition=9
 
