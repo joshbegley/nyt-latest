@@ -1,5 +1,5 @@
 **Ready for School to Start? For Most Students, Not So Fast.**\
-`Mayor Bill de Blasio's abrupt announcement of a phased start to in-person classes left many parents with little lead time to make alternative arrangements. `\
+`Mayor Bill de Blasio's  announcement of a phased start to in-person classes left many parents with little  time to make alternative arrangements. `\
 https://nytimes.com/2020/09/18/nyregion/new-york-schools-delayed.html?searchResultPosition=1
 
 **Covid-19 Live Updates: Joe Biden, Facing Voters, Criticizes Trump’s Virus Response**\
