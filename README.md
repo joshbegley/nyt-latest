@@ -1,40 +1,21 @@
-**How to Help Victims of the California Wildfires**\
-`There are a number of ways to help, including donating to relief organizations and signing up to host displaced community members.`\
-https://nytimes.com/2020/09/18/us/help-wildfires-victims.html?searchResultPosition=1
+**Firefighter Dies in Blaze Sparked by Gender-Reveal Celebration**\
+`The U.S. Forest Service said the firefighter died while battling the El Dorado Fire, which has burned through 19,000 acres since it was started by a pyrotechnic device.`\
+https://nytimes.com/2020/09/18/us/firefighter-killed-california.html?searchResultPosition=1
 
-**Trump Administration to Ban TikTok and WeChat From U.S. App Stores**\
-`The Trump administration issued new rules Friday morning that will cripple the operation of two popular Chinese-owned apps in the United States.`\
-https://nytimes.com/2020/09/18/business/trump-tik-tok-wechat-ban.html?searchResultPosition=2
+**Hamptons Home Sales Continue to Surge**\
+`New signed contracts for single-family homes in the Hamptons in August more than doubled from a year ago.`\
+https://nytimes.com/2020/09/18/realestate/hamptons-home-sales-continue-to-surge.html?searchResultPosition=2
 
-**Behind the Cover: U.S. Climate Migration**\
-`A look at the rising threats of wildfires, extreme heat and storms — and how Americans will move to avoid them.`\
-https://nytimes.com/2020/09/18/magazine/behind-the-cover-us-climate-migration.html?searchResultPosition=3
+**Computing Pioneers Endorse Biden, Citing Trump Immigration Crackdown**\
+`They said the administration’s policies were driving away technology talent and could do long-term damage to their industry.`\
+https://nytimes.com/2020/09/18/technology/turing-scientists-endorse-biden.html?searchResultPosition=3
 
-**A Saint Laurent Jacket That Defies Expectations**\
-`Yves Saint Laurent forever changed women’s fashion with his iconic Le Smoking tuxedo. A new take by Anthony Vaccarello feels just as fresh.`\
-https://nytimes.com/2020/09/18/t-magazine/saint-laurent-jacket.html?searchResultPosition=4
+**Tax Strategies to Embrace, or Avoid, Before the November Election**\
+`No one knows the outcome of the presidential race or how Congress could adjust the tax code next year. But there are changes taxpayers can make now, financial advisers say.`\
+https://nytimes.com/2020/09/18/your-money/election-tax-strategies.html?searchResultPosition=4
 
-**In His Hands, a Love Song Becomes a Requiem for Plague Times**\
-`The artist Ragnar Kjartansson has built his reputation around endurance works, and a Milanese church will host his latest: the same romantic tune repeated hour after hour, day after day, for a month.`\
-https://nytimes.com/2020/09/18/arts/design/ragnar-kjartansson-milan.html?searchResultPosition=5
+**$2.50 a Year in Interest? That’s What $5,000 in Savings Gets**\
+`With the Federal Reserve keeping rates low, home buyers are benefiting. But savers? Their average interest rate is just 0.05 percent.`\
+https://nytimes.com/2020/09/18/your-money/savings-interest-rates.html?searchResultPosition=5
 
-**China Sends Warning to Taiwan and U.S. With Big Show of Air Power**\
-`Beijing sent 18 aircraft into the Taiwan Strait as a senior American diplomat held meetings on the island.`\
-https://nytimes.com/2020/09/18/world/asia/us-taiwan-china-jets.html?searchResultPosition=6
-
-**A New Spin on SPACs**\
-`Silicon Valley stars Reid Hoffman and Mark Pincus explain what makes their blank-check company different.`\
-https://nytimes.com/2020/09/18/business/dealbook/hoffman-pincus-spac.html?searchResultPosition=7
-
-**Michigan as a Microcosm: Will Polling Avoid Another Miss?**\
-`Key demographics are tilting Democratic. Frustration with President Trump’s virus response is high. And there are two big differences from 2016: Pollsters have made adjustments, and voter enthusiasm is high.`\
-https://nytimes.com/2020/09/18/us/politics/michigan-polling-biden-trump.html?searchResultPosition=8
-
-**‘PEN15’ Is No Longer an Underdog, and That Feels Weird**\
-`In a joint interview, Maya Erskine and Anna Konkle discussed the new season, the destabilizing effect of their show’s success and why the smallest slights are the most devastating.`\
-https://nytimes.com/2020/09/18/arts/television/PEN15.html?searchResultPosition=9
-
-**Cyclone Batters Greek Islands as It Makes Landfall**\
-`Ianos, a rare hurricane-strength Mediterranean storm, slammed into Greece’s western islands, bringing lashing rain and gales.`\
-https://nytimes.com/2020/09/18/world/europe/greece-medicane-ianos-cassilda.html?searchResultPosition=10
-
+**Read the Document**\
