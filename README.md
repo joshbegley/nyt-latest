@@ -22,7 +22,7 @@ https://nytimes.com/2020/09/18/world/europe/britain-corona-lockdown-johnson.html
 `Teachers are posting videos of the extraordinary energy required keep young learners engaged and amused.`\
 https://nytimes.com/2020/09/18/us/remote-learning-tiktok.html?searchResultPosition=6
 
-**New York City Center to Revive a Pair of Black Musicals**\
+**New York City Center to Revive a Pair of Musicals About Black Lives**\
 `“The Life” and “The Tap Dance Kid,” which focus on people of color in Manhattan, are planned for the 2020-2021 season of Encores!, the center’s popular series.`\
 https://nytimes.com/2020/09/18/arts/new-york-city-center-encores.html?searchResultPosition=7
 
