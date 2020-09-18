@@ -30,11 +30,11 @@ https://nytimes.com/2020/09/17/us/coronavirus-today.html?searchResultPosition=7
 `A roundup of early fall essentials, from airy dresses to cozy crocheted knits, that will ease the seasonal transition.`\
 https://nytimes.com/2020/09/17/t-magazine/colorful-fall-essentials.html?searchResultPosition=8
 
+**Virginia Supreme Court rejects Kanye West’s appeal to be placed on the ballot.**\
+`By Jenny Gross`\
+https://nytimes.com/2020/09/17/us/elections/virginia-supreme-court-rejects-kanye-wests-appeal-to-be-placed-on-the-ballot.html?searchResultPosition=9
+
 **Rare Hurricane-Force Mediterranean Cyclone Heads for Greece**\
 `This type of storm, dubbed a Medicane, was all but unknown until recent years. It is expected to make landfall in southwestern Greece on Friday.`\
-https://nytimes.com/2020/09/17/world/europe/medicane-ianos-greece.html?searchResultPosition=9
-
-**F.B.I. Director Warns of Russian Interference and White Supremacist Violence**\
-`The testimony contradicted efforts by President Trump and other officials to downplay the threats.`\
-https://nytimes.com/2020/09/17/us/politics/fbi-russia.html?searchResultPosition=10
+https://nytimes.com/2020/09/17/world/europe/medicane-ianos-greece.html?searchResultPosition=10
 
