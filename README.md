@@ -1,4 +1,4 @@
-**Stephen Cohen, Influential Historian of Russia, Dies at 81**\
+**Stephen F. Cohen, Influential Historian of Russia, Dies at 81**\
 `He chronicled Stalin’s tyrannies and the collapse of the Soviet Union, and he was an enthusiastic admirer of Mikhail Gorbachev.`\
 https://nytimes.com/2020/09/18/books/stephen-cohen-dead.html?searchResultPosition=1
 
