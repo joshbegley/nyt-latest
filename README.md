@@ -2,13 +2,13 @@
 `The U.S. Forest Service said the firefighter died while battling the El Dorado Fire, which has burned through 19,000 acres since it was started by a pyrotechnic device.`\
 https://nytimes.com/2020/09/18/us/firefighter-killed-california.html?searchResultPosition=1
 
-**Hamptons Home Sales Continue to Surge**\
-`New signed contracts for single-family homes in the Hamptons in August more than doubled from a year ago.`\
-https://nytimes.com/2020/09/18/realestate/hamptons-home-sales-continue-to-surge.html?searchResultPosition=2
-
 **Computing Pioneers Endorse Biden, Citing Trump Immigration Crackdown**\
 `They said the administration’s policies were driving away technology talent and could do long-term damage to their industry.`\
-https://nytimes.com/2020/09/18/technology/turing-scientists-endorse-biden.html?searchResultPosition=3
+https://nytimes.com/2020/09/18/technology/turing-scientists-endorse-biden.html?searchResultPosition=2
+
+**Hamptons Home Sales Continue to Surge**\
+`New signed contracts for single-family homes in the Hamptons in August more than doubled from a year ago.`\
+https://nytimes.com/2020/09/18/realestate/hamptons-home-sales-continue-to-surge.html?searchResultPosition=3
 
 **Tax Strategies to Embrace, or Avoid, Before the November Election**\
 `No one knows the outcome of the presidential race or how Congress could adjust the tax code next year. But there are changes taxpayers can make now, financial advisers say.`\
