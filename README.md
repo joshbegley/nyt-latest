@@ -7,7 +7,7 @@ https://nytimes.com/2020/09/17/realestate/artificial-intelligence-home-managemen
 https://nytimes.com/interactive/2020/09/17/nyregion/nyc-schools-opening.html?searchResultPosition=2
 
 **Princeton Admitted Past Racism. Now It Is Under Investigation.**\
-`The Trump administration opened a civil rights investigation into the university after its president acknowledged the role of systemic racism at the school and in society.`\
+`The Trump administration opened a civil rights investigation into the university after its president acknowledged the role of systemic racism at the school.`\
 https://nytimes.com/2020/09/17/us/princeton-racism-federal-investigation.html?searchResultPosition=3
 
 **Military Names New Judge for Guantánamo Bay 9/11 Trial**\
