@@ -28,7 +28,7 @@ https://nytimes.com/2020/09/18/climate/oregon-rain-fires-landslides.html?searchR
 
 **What Is Happening With TikTok and WeChat as Trump Tries to Ban Them?**\
 `The Commerce Department announced that it was prohibiting downloads of WeChat and TikTok in U.S. app stores. Here’s what you need to know.`\
-https://nytimes.com/2020/09/18/technology/personaltech/tiktok-wechat-ban.html?searchResultPosition=8
+https://nytimes.com/2020/09/18/technology/tiktok-wechat-ban.html?searchResultPosition=8
 
 **Christian Siriano and Tom Ford Have an Unexpected Mind-Meld**\
 `The two designers brought New York Fashion Week to a close with a shared idea: Fashion should make you smile.`\
