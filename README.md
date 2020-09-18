@@ -30,8 +30,8 @@ https://nytimes.com/2020/09/17/todayspaper/quotation-of-the-day-they-were-eager-
 `Corrections that appeared in print on Friday, Sept. 18, 2020.`\
 https://nytimes.com/2020/09/17/pageoneplus/corrections-sept-18-2020.html?searchResultPosition=8
 
-**Your Friday Briefing**\
-`Coronavirus in Europe, China, Aleksei Navalny: Here’s what you need to know.`\
+**Coronavirus, China, Aleksei Navalny: Your Friday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/17/briefing/coronavirus-eu-china-aleksei-navalny.html?searchResultPosition=9
 
 **Biden, Facing Voters in a 2020 Rarity, Attacks Trump From a Battleground State**\
