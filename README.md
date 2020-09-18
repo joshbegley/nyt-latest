@@ -1,40 +1,40 @@
-**Housekeepers Face a Disaster Generations in the Making**\
-`Ghosted by their employers, members of the profession are facing “a full-blown humanitarian crisis — a Depression-level situation.”`\
-https://nytimes.com/2020/09/18/business/housekeepers-covid.html?searchResultPosition=1
+**The Last of the SoHo Pioneers**\
+`An artist who bought a loft on West Broadway for $15,000 in 1972 sells it for $2.4 million and retires to her home borough of Queens.`\
+https://nytimes.com/2020/09/18/realestate/soho-artist-loft-sale.html?searchResultPosition=1
 
-**Virus Pulls Down Trump, Poll Shows, and G.O.P. Senators Suffer With Him**\
-`A New York Times/Siena College survey showed Joe Biden leading President Trump by wide margins in Maine and Arizona, and effectively tied in North Carolina. Susan Collins trailed her Democratic rival in Maine’s Senate race.`\
-https://nytimes.com/2020/09/18/us/politics/trump-biden-senate-collins-poll.html?searchResultPosition=2
+**A Classic SoHo Artist’s Loft**\
+`Linda Sampson bought her loft on West Broadway for $15,000 in 1972 and sold it this year for $2.4 million.`\
+https://nytimes.com/slideshow/2020/09/18/realestate/a-classic-soho-artists-loft.html?searchResultPosition=2
 
-**Women in Suburbia Don’t Seem Too Worried About Its Destruction**\
-`President Trump has sought to fan fears about lower property values and crime, but polls suggest his general statements are not resonating locally.`\
-https://nytimes.com/2020/09/18/upshot/voters-suburbs-2020-election.html?searchResultPosition=3
+**It’s a Banana. It’s Art. And Now It’s the Guggenheim’s Problem.**\
+`Ephemeral works of art, like Maurizio Cattelan’s creation out of fruit, can often pose conservation challenges for the museums that have them.`\
+https://nytimes.com/2020/09/18/arts/design/its-a-banana-its-art-and-now-its-the-guggenheims-problem.html?searchResultPosition=3
 
-**When a Bus Driver Told a Rider to Wear a Mask, ‘He Knocked Me Out Cold’**\
-`More than 170 New York City transit workers have been harassed or assaulted for asking passengers to wear masks.`\
-https://nytimes.com/2020/09/18/nyregion/bus-drivers-nyc-assault-face-mask.html?searchResultPosition=4
+**Iranian Hackers Can Now Beat Encrypted Apps, Researchers Say**\
+`Reports reveal that hackers have been secretly gathering intelligence on opponents of the Iranian regime, breaking into cellphones and computers and outsmarting apps like Telegram.`\
+https://nytimes.com/2020/09/18/world/middleeast/iran-hacking-encryption.html?searchResultPosition=4
 
-**What I Saw When Australia Burned**\
-`At one point, the wildfires that country experienced seemed to fade from our memory. Not anymore. And what I witnessed there has shaped my thoughts on what’s raging here.`\
-https://nytimes.com/2020/09/18/insider/new-york-times-presents-wildfires.html?searchResultPosition=5
+**The Pandemic Is Chasing Aging Coaches From the Field**\
+`One of Louisiana’s most successful high school football coaches retired, concerned that his blood cancer made him vulnerable to Covid-19. At least 30 high school and club coaches have died of the coronavirus.`\
+https://nytimes.com/2020/09/18/sports/covid-coach-retire.html?searchResultPosition=5
 
-**Facebook Has Been a Disaster for the World**\
-`How much longer are we going to allow its platform to foment hatred and undermine democracy?`\
-https://nytimes.com/2020/09/18/opinion/facebook-democracy.html?searchResultPosition=6
+**A’ja Wilson Wanted This to Be Her Year. So Far, It Is.**\
+`Wilson, the Aces forward, led Las Vegas to the No. 1 seed and won the W.N.B.A.’s Most Valuable Player Award. “It’s crazy to think that I’m just really honestly just scratching the surface.”`\
+https://nytimes.com/2020/09/18/sports/basketball/wnba-aja-wilson-aces.html?searchResultPosition=6
 
-**A Candlelit Proposal for a Couple Used to the Spotlight**\
-`Ben Chase and Rachel Schur, both actors, got engaged sitting in an audience.`\
-https://nytimes.com/2020/09/18/fashion/weddings/a-candlelit-proposal-for-a-couple-used-to-the-spotlight.html?searchResultPosition=7
+**California, the Most Calamitous Place on Earth**\
+`Drought, flood, wildfire, mudslide, earthquake — it’s a hell of a way to run through the seasons.`\
+https://nytimes.com/2020/09/18/opinion/fires-california-climate-change.html?searchResultPosition=7
 
-**Make a Collage With Your Newspaper**\
-`Turn the news of the day into a time capsule with some scissors and some glue.`\
-https://nytimes.com/2020/09/18/at-home/newspaper-collages.html?searchResultPosition=8
+**A Danish Children’s TV Show Has This Message: ‘Normal Bodies Look Like This’**\
+`The program aims to counter social media that bombards young people with images of perfect bodies.`\
+https://nytimes.com/2020/09/18/world/europe/denmark-children-nudity-sex-education.html?searchResultPosition=8
 
-**Cruise Ships Can’t Sail. But the Behemoth Vessels Are Still a Draw.**\
-`Empty cruise liners idling in the English Channel have become a tourist destination of their own, drawing cruise fans temporarily stuck on land.`\
-https://nytimes.com/2020/09/18/travel/virused-cruise-ships.html?searchResultPosition=9
+**How a Restaurateur and Activist Spends Her Sundays**\
+`When she has free time, Claire Sprouse makes a point of supporting small local businesses, since she runs one herself.`\
+https://nytimes.com/2020/09/18/nyregion/coronavirus-restaurants-nyc-claire-sprouse.html?searchResultPosition=9
 
-**Republicans Killed the Obamacare Mandate. New Data Shows It Didn’t Really Matter.**\
-`Many experts now view the individual mandate as a policy that did little to increase health coverage — but did a lot to invite political backlash.`\
-https://nytimes.com/2020/09/18/upshot/obamacare-mandate-republicans.html?searchResultPosition=10
+**Can Digital Mortgage Platforms Reduce Discrimination in Lending?**\
+`Early indications are promising. But automated systems provide rich opportunities to perpetuate bias.`\
+https://nytimes.com/2020/09/18/business/digital-mortgages.html?searchResultPosition=10
 
