@@ -2,13 +2,13 @@
 `Did you follow the headlines this week?`\
 https://nytimes.com/interactive/2020/09/18/briefing/news-quiz-breonna-taylor-hurricane-sally-venus.html?searchResultPosition=1
 
-**Wildfires Are Latest Risk in the Rewarding Quiet of Gold Country**\
-`California’s numerous fires are challenging the survival of some of the state’s oldest and most storied small communities.`\
-https://nytimes.com/2020/09/18/us/wildfires-california-sierra-nevada.html?searchResultPosition=2
-
 **Israelis Prepare to Celebrate the Year’s Holiest Days Under Lockdown**\
 `As the pandemic in the country worsens, officials warn that new restrictions might not be enough to cut infection rates significantly. Many people question the logic and motives behind the rules.`\
-https://nytimes.com/2020/09/18/world/middleeast/israel-lockdown-high-holidays.html?searchResultPosition=3
+https://nytimes.com/2020/09/18/world/middleeast/israel-lockdown-high-holidays.html?searchResultPosition=2
+
+**Wildfires Are Latest Risk in the Rewarding Quiet of Gold Country**\
+`California’s numerous fires are challenging the survival of some of the state’s oldest and most storied small communities.`\
+https://nytimes.com/2020/09/18/us/wildfires-california-sierra-nevada.html?searchResultPosition=3
 
 **Hands**\
 `What is this image saying?`\
