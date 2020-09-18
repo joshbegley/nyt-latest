@@ -6,7 +6,7 @@ https://nytimes.com/2020/09/18/arts/design/ragnar-kjartansson-milan.html?searchR
 `Beijing sent 18 aircraft across the Taiwan Strait as a senior American diplomat held meetings on the island.`\
 https://nytimes.com/2020/09/18/world/asia/us-taiwan-china-jets.html?searchResultPosition=2
 
-**DealBook: A New Spin on SPACs**\
+**A New Spin on SPACs**\
 `Silicon Valley stars Reid Hoffman and Mark Pincus explain what makes their blank-check company different.`\
 https://nytimes.com/2020/09/18/business/dealbook/hoffman-pincus-spac.html?searchResultPosition=3
 
