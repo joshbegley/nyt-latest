@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/18/us/politics/us-troops-syria-russia.html?searchResultPosition=1
 
 **Bryson DeChambeau’s No-Fear Strategy at the U.S. Open Is Working**\
-`DeChambeau’s aggressive game plan at the tricky Winged Foot course has him near the top of the leaderboard: “I want to play it as hard as possible,” he said.`\
+`DeChambeau’s aggressive game plan at the tricky Winged Foot course has him near the top of the leaderboard: “I want it to play as hard as possible,” he said.`\
 https://nytimes.com/2020/09/18/sports/golf/golf-us-open-bryson-dechambeau.html?searchResultPosition=2
 
 **Trump’s Middle Eastern Mirage**\
