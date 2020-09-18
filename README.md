@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/18/arts/design/ragnar-kjartansson-milan.html?searchResultPosition=1
 
 **China Sends Warning to Taiwan and U.S. With Big Show of Air Power**\
-`Beijing sent 18 aircraft across the Taiwan Strait as a senior American diplomat held meetings on the island.`\
+`Beijing sent 18 aircraft into the Taiwan Strait as a senior American diplomat held meetings on the island.`\
 https://nytimes.com/2020/09/18/world/asia/us-taiwan-china-jets.html?searchResultPosition=2
 
 **A New Spin on SPACs**\
