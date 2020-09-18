@@ -8,7 +8,7 @@ https://nytimes.com/2020/09/17/us/politics/military-judge-guantanamo-bay-911-tri
 
 **For Trump, It’s Not the United States, It’s Red and Blue States**\
 `A statement by the president this week was an insight into how he views the country as composed of parts that either are for him or against him.`\
-https://nytimes.com/2020/09/17/us/politics/trump-division-blue-states.html?searchResultPosition=3
+https://nytimes.com/2020/09/17/us/politics/trump-america.html?searchResultPosition=3
 
 **As Courts Uphold Broad Mail-In Voting, DeJoy Apologizes for Missteps**\
 `Postmaster General Louis DeJoy privately apologized to election officials for failing to consult about a postcard that was sent to educate voters on mail-in ballots.`\
