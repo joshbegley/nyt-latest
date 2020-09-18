@@ -8,7 +8,7 @@ https://nytimes.com/2020/09/18/business/qanon-boss-conspiracy-theories.html?sear
 
 **The Spy Movie That Upset the American Dream**\
 `“The Spook Who Sat by the Door,” a 1973 parable about institutional racism, was pulled from theaters after only a few weeks. The New York Film Festival is giving new life to the cult film.`\
-https://nytimes.com/2020/09/18/movies/the-spy-movie-that-upset-the-american-dream.html?searchResultPosition=3
+https://nytimes.com/2020/09/18/movies/spook-who-sat-by-the-door.html?searchResultPosition=3
 
 **From a Historic Piano Duel to a Finger-Blurring New Album**\
 `Marc-André Hamelin’s recording features fantasias on Italian opera by Franz Liszt and Sigismond Thalberg, who faced off onstage in 1837.`\
