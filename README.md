@@ -2,9 +2,9 @@
 `Pujols’s 661st and 662nd homers are cause for celebration, and offer a chance to reflect on a career that took a wildly different trajectory than many of his elite peers.`\
 https://nytimes.com/2020/09/18/sports/baseball/albert-pujols-willie-mays-661.html?searchResultPosition=1
 
-**Tell Us: How Did Ruth Bader Ginsburg Inspire You?**\
+**Tell Us: How Did Ruth Bader Ginsburg Influence You?**\
 `Share your photos and stories about what the esteemed Supreme Court justice meant to you.`\
-https://nytimes.com/2020/09/18/reader-center/tell-us-how-did-ruth-bader-ginsburg-inspire-you.html?searchResultPosition=2
+https://nytimes.com/2020/09/18/reader-center/tell-us-how-did-ruth-bader-ginsburg-influence-you.html?searchResultPosition=2
 
 **Peru President, Martín Vizcarra, Survives Impeachment Vote**\
 `The effort by opposition lawmakers to remove Mr. Vizcarra failed on Friday, with Congress opting for stability as Peru deals with a devastating pandemic.`\
@@ -36,5 +36,5 @@ https://nytimes.com/2020/09/18/us/trump-supreme-court-nominees-list.html?searchR
 
 **Justice Ginsburg’s Judicial Legacy of Striking Dissents**\
 `She was part of the Supreme Court’s 4-member liberal wing throughout her 27-year tenure and led it in her last decade.`\
-https://nytimes.com/2020/09/18/us/ruth-bader-ginsburg-legacy.html?searchResultPosition=10
+https://nytimes.com/2020/09/18/us/rbg-accomplishments.html?searchResultPosition=10
 
