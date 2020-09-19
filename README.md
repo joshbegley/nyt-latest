@@ -15,7 +15,7 @@ https://nytimes.com/2020/09/18/todayspaper/quotation-of-the-day-new-specter-in-t
 https://nytimes.com/2020/09/18/sports/baseball/albert-pujols-willie-mays-661.html?searchResultPosition=4
 
 **Tell Us: How Did Ruth Bader Ginsburg Influence You?**\
-`Share your photos and stories about what the esteemed Supreme Court justice meant to you.`\
+`Share your photos and stories about what the esteemed Supreme Court justice’s career meant to you.`\
 https://nytimes.com/2020/09/18/reader-center/ruth-bader-ginsburg-influence.html?searchResultPosition=5
 
 **Peru President, Martín Vizcarra, Survives Impeachment Vote**\
