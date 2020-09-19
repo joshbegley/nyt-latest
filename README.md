@@ -6,21 +6,21 @@ https://nytimes.com/2020/09/19/us/fires-oregon-trees-timber.html?searchResultPos
 `After the death of Ruth Bader Ginsburg, it was not clear that President Trump’s right-wing coalition would be more motivated by a confirmation fight than the alliance of liberals and moderates supportive of Mr. Biden would be.`\
 https://nytimes.com/2020/09/19/us/politics/ginsberg-campaign-2020.html?searchResultPosition=2
 
-**In South Korea, Covid-19 Comes With Another Risk: Online Bullies**\
-`The country’s extensive response has been praised around the world but has led to harassment and slander, raising questions about privacy protections.`\
-https://nytimes.com/2020/09/19/world/asia/south-korea-covid-19-online-bullying.html?searchResultPosition=3
-
 **Big Ten Football May Be Back. The Atmosphere Isn’t.**\
 `Athletes in other sports are still in limbo. Campuses have lost the campus feel. And people used to falls built around college football Saturdays are having to rethink their weekends.`\
-https://nytimes.com/2020/09/19/sports/ncaafootball/big-ten-football-may-be-back-the-atmosphere-isnt.html?searchResultPosition=4
+https://nytimes.com/2020/09/19/sports/ncaafootball/big-ten-football-may-be-back-the-atmosphere-isnt.html?searchResultPosition=3
 
-**Best Sellers Sell the Best Because They’re Best Sellers**\
-`Publishing is becoming a winner-take-all game. Nobody dominates it like Madeline McIntosh and Penguin Random House.`\
-https://nytimes.com/2020/09/19/books/penguin-random-house-madeline-mcintosh.html?searchResultPosition=5
+**In South Korea, Covid-19 Comes With Another Risk: Online Bullies**\
+`The country’s extensive response has been praised around the world but has led to harassment and slander, raising questions about privacy protections.`\
+https://nytimes.com/2020/09/19/world/asia/south-korea-covid-19-online-bullying.html?searchResultPosition=4
 
 **On Venus, Cloudy With a Chance of Microbial Life**\
 `Astrobiologists shift their gaze, and speculations, to Earth’s broiling sister planet.`\
-https://nytimes.com/2020/09/19/science/venus-planets-microbes-life.html?searchResultPosition=6
+https://nytimes.com/2020/09/19/science/venus-planets-microbes-life.html?searchResultPosition=5
+
+**Best Sellers Sell the Best Because They’re Best Sellers**\
+`Publishing is becoming a winner-take-all game. Nobody dominates it like Madeline McIntosh and Penguin Random House.`\
+https://nytimes.com/2020/09/19/books/penguin-random-house-madeline-mcintosh.html?searchResultPosition=6
 
 **Canada’s Napa Valley Seeks Elusive Audience: Canadian Wine Drinkers**\
 `British Columbia’s wines are improbably being embraced by wine snobs around the world. But legal restrictions, and regional biases, are getting in the way at home.`\
