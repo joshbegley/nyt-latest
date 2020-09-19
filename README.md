@@ -31,7 +31,7 @@ https://nytimes.com/2020/09/19/us/politics/ginsburg-voter-reactions.html?searchR
 https://nytimes.com/video/us/politics/100000007350412/mcconnell-protest-ginsburg.html?searchResultPosition=8
 
 **In ‘Power Grab,’ Health Secretary Azar Asserts Authority Over F.D.A.**\
-`Experts said the memo would make it more difficult for the Food and Drug Administration to issue new rules, but it was unclear how it would affect the vetting of coronavirus vaccines.`\
+`Experts said the memo would make it more difficult for the F.D.A. to issue new rules, but it’s unclear how it would affect the vetting of coronavirus vaccines.`\
 https://nytimes.com/2020/09/19/health/azar-hhs-fda.html?searchResultPosition=9
 
 **The Latest Positions of Key Senators on Ginsburg’s Replacement**\
