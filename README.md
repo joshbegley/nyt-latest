@@ -1,5 +1,5 @@
-**Tadej Pogacar Takes Tour de France Lead in Epic Time Trial**\
-`For more than a week, Pogacar and his friend Primoz Roglic had stalked one another across France. On Saturday, Pogacar surged past his rival to claim the leader’s yellow jersey entering the race’s final day.`\
+**Tadej Pogacar Takes Tour de France Lead in Stunning Time Trial**\
+`For more than a week, Pogacar and Primoz Roglic had stalked one another across France. On Saturday, Pogacar surged past his rival to claim the yellow jersey.`\
 https://nytimes.com/2020/09/19/sports/cycling/tour-de-france-pocagar-roglic.html?searchResultPosition=1
 
 **Cash Is Flowing Over Confirmation Battle for Supreme Court Vacancy**\
