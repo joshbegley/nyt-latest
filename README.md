@@ -7,7 +7,7 @@ https://nytimes.com/2020/09/19/us/politics/ginsburg-voter-reactions.html?searchR
 https://nytimes.com/video/us/politics/100000007350412/mcconnell-protest-ginsburg.html?searchResultPosition=2
 
 **In ‘Power Grab,’ Health Secretary Azar Asserts Authority Over F.D.A.**\
-`Experts said the memo would make it more difficult for the Food and Drug Administration to issue new rules, but it’s unclear how it would affect the vetting of coronavirus vaccines.`\
+`Experts said the memo would make it more difficult for the Food and Drug Administration to issue new rules, but it was unclear how it would affect the vetting of coronavirus vaccines.`\
 https://nytimes.com/2020/09/19/health/azar-hhs-fda.html?searchResultPosition=3
 
 **The Latest Positions of Key Senators on Ginsburg’s Replacement**\
@@ -35,6 +35,6 @@ https://nytimes.com/2020/09/19/opinion/sunday/fires-hurricanes-climate-change-ho
 https://nytimes.com/2020/09/19/sports/soccer/gareth-bale-tottenham-madrid.html?searchResultPosition=9
 
 **Ricin Is Said to Have Been Sent to White House**\
-`Federal investigators are working to track down who sent it and determine whether other envelopes have been sent through the postal system.`\
+`Letters with the lethal substance also were sent to federal offices in Texas, an official said. Investigators were trying to track down who sent them and whether more were circulating through the postal system.`\
 https://nytimes.com/2020/09/19/us/politics/ricin-white-house-postal-service.html?searchResultPosition=10
 
