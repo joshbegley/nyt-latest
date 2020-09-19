@@ -6,8 +6,8 @@ https://nytimes.com/video/obituaries/100000006849413/ruth-bader-ginsburg-obituar
 `How one college student fought Covid-19 in isolation — with her mother on FaceTime.`\
 https://nytimes.com/2020/09/18/podcasts/daily-newsletter-college-coronavirus-wildfires.html?searchResultPosition=2
 
-**Justice Ruth Bader Ginsburg Dies at 87**\
-`“Our nation has lost a jurist of historic stature,” Chief Justice John G. Roberts Jr. said in a statement.`\
+**Ruth Bader Ginsburg, Supreme Court’s Feminist Icon, Is Dead at 87**\
+`The second woman appointed to the Supreme Court, Justice Ginsburg’s pointed and powerful dissenting opinions earned her late-life rock stardom.`\
 https://nytimes.com/2020/09/18/us/ruth-bader-ginsburg-dead.html?searchResultPosition=3
 
 **Stephen F. Cohen, Influential Historian of Russia, Dies at 81**\
