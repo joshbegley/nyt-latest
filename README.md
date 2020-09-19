@@ -18,8 +18,8 @@ https://nytimes.com/2020/09/18/us/ruth-bader-ginsburg-dead.html?searchResultPosi
 `He chronicled Stalin’s tyrannies and the collapse of the Soviet Union, and he was an enthusiastic admirer of Mikhail Gorbachev.`\
 https://nytimes.com/2020/09/18/books/stephen-cohen-dead.html?searchResultPosition=5
 
-**Joe Biden, in Minnesota Speech, Says Trump Is Out of Touch With Middle Class**\
-`Mr. Biden and President Trump are both campaigning in Minnesota, a state that Mr. Trump lost narrowly in 2016.`\
+**News of Justice Ginsburg’s Death Arrives as Biden and Trump Host Dueling Minnesota Events**\
+`Fifteen minutes after President Trump started speaking at a rally in Bemidji, Minn., the news broke of Justice Ruth Bader Ginsburg’s death, with the potential to upend the 2020 race.`\
 https://nytimes.com/2020/09/18/us/politics/joe-biden-trump-minnesota.html?searchResultPosition=6
 
 **Can We Escape the Political-Industrial Complex?**\
