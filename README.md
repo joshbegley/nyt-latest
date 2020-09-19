@@ -1,40 +1,40 @@
-**Shooting in Rochester Leaves 2 Dead and 14 Injured**\
-`The shooting occurred at a house party in the early hours of Saturday, the police said.`\
-https://nytimes.com/2020/09/19/us/shooting-in-rochester-leaves-2-dead-and-14-injured.html?searchResultPosition=1
+**Fires Scorch a Way of Life That Still Grows From the Trees**\
+`Oregon’s fate has always been intertwined with the forests that blanket the state. Now millions of trees are charred, and those who live from them face a future full of uncertainty.`\
+https://nytimes.com/2020/09/19/us/fires-oregon-trees-timber.html?searchResultPosition=1
 
-**After Trump’s TikTok Ban, China Readies Blacklist of Foreign Companies**\
-`Beijing issued rules that could allow it to halt exports, imports and investments by businesses accused of endangering national security.`\
-https://nytimes.com/2020/09/19/technology/china-tiktok-wechat-blacklist.html?searchResultPosition=2
+**Court Vacancy Injects New Uncertainty Into Rancorous Election Battle**\
+`After the death of Ruth Bader Ginsburg, it was not clear that President Trump’s right-wing coalition would be more motivated by a confirmation fight than the alliance of liberals and moderates supportive of Mr. Biden would be.`\
+https://nytimes.com/2020/09/19/us/politics/ginsberg-campaign-2020.html?searchResultPosition=2
 
-**Ginsburg Supreme Court Vacancy Is the Second Closest to a U.S. Election Ever**\
-`The death of Justice Ruth Bader Ginsburg on Friday left an opening on the Supreme Court 46 days before Election Day.`\
-https://nytimes.com/interactive/2020/09/19/us/politics/supreme-court-vacancies-election-year.html?searchResultPosition=3
+**In South Korea, Covid-19 Comes With Another Risk: Online Bullies**\
+`The country’s extensive response has been praised around the world but has led to harassment and slander, raising questions about privacy protections.`\
+https://nytimes.com/2020/09/19/world/asia/south-korea-covid-19-online-bullying.html?searchResultPosition=3
 
-**Small Businesses Need Rent Breaks. But Landlords Are in Crisis, Too.**\
-`Some landlords are adjusting rent, while others hold firm. Their decisions are reshaping New York City’s neighborhoods.`\
-https://nytimes.com/2020/09/19/nyregion/nyc-businesses-rent-landlords.html?searchResultPosition=4
+**Big Ten Football May Be Back. The Atmosphere Isn’t.**\
+`Athletes in other sports are still in limbo. Campuses have lost the campus feel. And people used to falls built around college football Saturdays are having to rethink their weekends.`\
+https://nytimes.com/2020/09/19/sports/ncaafootball/big-ten-football-may-be-back-the-atmosphere-isnt.html?searchResultPosition=4
 
-**In These N.H.L. Playoffs, Backup Goalies Have Taken Center Stage**\
-`By the second round, six regular-season backups were functioning as No. 1s. One of them, Dallas’s Anton Khudobin, is in the Stanley Cup finals.`\
-https://nytimes.com/2020/09/19/sports/hockey/anton-khudobin-stanley-cup-playoffs.html?searchResultPosition=5
+**Best Sellers Sell the Best Because They’re Best Sellers**\
+`Publishing is becoming a winner-take-all game. Nobody dominates it like Madeline McIntosh and Penguin Random House.`\
+https://nytimes.com/2020/09/19/books/penguin-random-house-madeline-mcintosh.html?searchResultPosition=5
 
-**Miami and Boston’s Young N.B.A. Players Are Bucking Tradition**\
-`Jayson Tatum and Bam Adebayo are just two of the young or less-experienced players making an impact in the Eastern Conference finals.`\
-https://nytimes.com/2020/09/19/sports/basketball/nba-celtics-heat-tatum-ad.html?searchResultPosition=6
+**On Venus, Cloudy With a Chance of Microbial Life**\
+`Astrobiologists shift their gaze, and speculations, to Earth’s broiling sister planet.`\
+https://nytimes.com/2020/09/19/science/venus-planets-microbes-life.html?searchResultPosition=6
 
-**On Racism and British Fashion**\
-`The designer Osman Yousefzada reflects on change in the industry, straddling cultures and why he looked beyond fashion to find his voice.`\
-https://nytimes.com/2020/09/19/fashion/racism-LFW.html?searchResultPosition=7
+**Canada’s Napa Valley Seeks Elusive Audience: Canadian Wine Drinkers**\
+`British Columbia’s wines are improbably being embraced by wine snobs around the world. But legal restrictions, and regional biases, are getting in the way at home.`\
+https://nytimes.com/2020/09/19/world/canada/british-columbia-wine-Okanagan-Valley.html?searchResultPosition=7
 
-**Map: Tracking Tropical Storm Beta**\
-`A hurricane watch was issued for parts of the Texas coast.`\
-https://nytimes.com/interactive/2020/09/19/us/hurricane-beta-map-tracker.html?searchResultPosition=8
+**Mount Wilson Observatory Survives a Trial by Fire**\
+`The birthplace of modern cosmology “has been declared safe” from the wildfires that have ravaged the surrounding area in Southern California.`\
+https://nytimes.com/2020/09/19/science/wilson-observatory-bobcat-wildfires.html?searchResultPosition=8
 
-**Mourners Fill Supreme Court’s Plaza to Honor Ginsburg**\
-`At a spontaneous vigil in Washington, fans of Justice Ruth Bader Ginsburg celebrated her life and career, detached from the political moment.`\
-https://nytimes.com/2020/09/19/us/politics/rbg-supreme-court-crowd.html?searchResultPosition=9
+**From Bike Blockers to Street Medics: The Anatomy of an N.Y.C. Protest**\
+`Some demonstrators in New York have taken on informal but crucial roles over a summer of marches. Here’s how to spot them.`\
+https://nytimes.com/2020/09/19/nyregion/street-protest-nyc.html?searchResultPosition=9
 
-**Young Adult Dystopian Fiction That Feels Pretty Real**\
-`These four thrillers may be gussied up with future settings, but the problems they confront are rooted in today’s world.`\
-https://nytimes.com/2020/09/19/books/review/young-adult-crossover-dystopia.html?searchResultPosition=10
+**The Flight Goes Nowhere. And It’s Sold Out.**\
+`People who miss flying are rushing to buy tickets for flights that land in the same place they depart from.`\
+https://nytimes.com/2020/09/19/travel/airlines-pandemic-flights-to-nowhere.html?searchResultPosition=10
 
