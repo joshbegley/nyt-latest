@@ -14,9 +14,9 @@ https://nytimes.com/video/us/politics/100000007349878/biden-ginsburg-reaction.ht
 `President Trump spoke about the death of Justice Ruth Bader Ginsburg after leaving the stage of a rally in Minnesota.`\
 https://nytimes.com/video/us/politics/100000007349867/trump-ginsburg-reaction.html?searchResultPosition=4
 
-**Democrats shatter donation records in the hours after Ginsburg’s death.**\
+**Democrats shatter the ActBlue site’s donation records in the hours after Ginsburg’s death.**\
 `By Shane Goldmacher`\
-https://nytimes.com/2020/09/18/us/elections/democrats-shatter-donation-records-in-the-hours-after-ginsburgs-death.html?searchResultPosition=5
+https://nytimes.com/2020/09/18/us/elections/democrats-shatter-the-actblue-sites-donation-records-in-the-hours-after-ginsburgs-death.html?searchResultPosition=5
 
 **Corrections: Sept. 19, 2020**\
 `Corrections that appeared in print on Saturday, Sept. 19, 2020.`\
