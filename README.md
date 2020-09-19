@@ -10,7 +10,7 @@ https://nytimes.com/2020/09/18/opinion/bader-ginsburg-trump-biden-2020.html?sear
 `But she also knew something about the unreliability of happy endings.`\
 https://nytimes.com/2020/09/18/opinion/ruth-bader-ginsburg-dead-time.html?searchResultPosition=3
 
-**For McConnell, Ginsburg’s Death Turns 2016 Inside Out With Pledge to Act Fast**\
+**For McConnell, Ginsburg’s Death Prompts Stark Turnabout From 2016 Stance**\
 `The majority leader pledged that President Trump’s nominee to replace Justice Ginsburg would receive a Senate vote, despite his 2016 move to block President Obama’s nominee in the waning months of his term.`\
 https://nytimes.com/2020/09/18/us/mitch-mcconnell-rbg-trump.html?searchResultPosition=4
 
