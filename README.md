@@ -8,7 +8,7 @@ https://nytimes.com/2020/09/19/us/politics/rbg-vacancy-senators.html?searchResul
 
 **In the Supreme Court Battle to Come, Here Are the Senators to Watch**\
 `Republicans hold a narrow majority in the Senate, meaning they can only afford to lose a few votes in their push to confirm a replacement for Justice Ruth Bader Ginsburg. Here are the potential swing votes.`\
-https://nytimes.com/2020/09/19/us/politics/senators-possible-swing-votes-supreme-court.html?searchResultPosition=3
+https://nytimes.com/2020/09/19/us/politics/senators-supreme-court-vote.html?searchResultPosition=3
 
 **Violent Attacks Plague Afghanistan as Peace Talks in Doha Slow**\
 `More than a dozen civilians are feared dead in an airstrike, as talks go on to finalize rules for negotiations.`\
