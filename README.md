@@ -31,7 +31,7 @@ https://nytimes.com/2020/09/19/realestate/loan-deferments-CARES-act.html?searchR
 https://nytimes.com/2020/09/19/us/politics/ruth-bader-ginsburg-live-updates.html?searchResultPosition=8
 
 **Covid-19 Live Updates: C.D.C. Changes Guidance on Testing**\
-`The agency says people who were in close contact with an infected person should be tested even if showing no symptoms. South Korea’s virus tracing has brought increased bullying.`\
+`The agency says people who were in close contact with an infected person should be tested even if showing no symptoms. The eight remaining members of the Supreme Court are expected to hear arguments next month via telephone.`\
 https://nytimes.com/2020/09/19/world/covid-19-coronavirus.html?searchResultPosition=9
 
 **Ruth Bader Ginsburg’s Death Revives Talk of Court Packing**\
