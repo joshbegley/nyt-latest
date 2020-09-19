@@ -28,7 +28,7 @@ https://nytimes.com/2020/09/19/us/fires-oregon-trees-timber.html?searchResultPos
 
 **Court Vacancy Injects New Uncertainty Into Rancorous Election Battle**\
 `After the death of Ruth Bader Ginsburg, it was not clear that President Trump’s right-wing coalition would be more motivated by a confirmation fight than the alliance of liberals and moderates supportive of Mr. Biden would be.`\
-https://nytimes.com/2020/09/19/us/politics/ginsberg-trump-biden.html?searchResultPosition=8
+https://nytimes.com/2020/09/19/us/politics/ginsburg-trump-biden.html?searchResultPosition=8
 
 **Big Ten Football May Be Back. The Atmosphere Isn’t.**\
 `Athletes in other sports are still in limbo. Campuses have lost the campus feel. And people used to falls built around college football Saturdays are having to rethink their weekends.`\
