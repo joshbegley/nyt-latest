@@ -2,7 +2,7 @@
 `The majority leader pledged that President Trump’s nominee to replace Justice Ginsburg would receive a Senate vote, despite his 2016 move to block President Obama’s nominee in the waning months of his term.`\
 https://nytimes.com/2020/09/18/us/mitch-mcconnell-supreme-court-ruth-bader-ginsburg.html?searchResultPosition=1
 
-**McConnell Vows Vote on Ginsburg Replacement as Her Death Reshapes the 2020 Race**\
+**McConnell Vows Vote on Ginsburg Replacement as Her Death Upends the 2020 Race**\
 `Democrats warn Republicans to follow the precedent they set in 2016, when they refused to consider President Barack Obama’s choice for the court on the grounds that it was an election year.`\
 https://nytimes.com/2020/09/18/us/politics/mitch-mcconnell-supreme-court-ruth-bader-ginsburg.html?searchResultPosition=2
 
