@@ -8,7 +8,7 @@ https://nytimes.com/2020/09/18/podcasts/daily-newsletter-college-coronavirus-wil
 
 **Justice Ruth Bader Ginsburg Dies at 87**\
 `“Our nation has lost a jurist of historic stature,” Chief Justice John G. Roberts Jr. said in a statement.`\
-https://nytimes.com/2020/09/18/us/justice-ruth-bader-ginsburg-dies-at-87.html?searchResultPosition=3
+https://nytimes.com/2020/09/18/us/ruth-bader-ginsburg-dead.html?searchResultPosition=3
 
 **Stephen F. Cohen, Influential Historian of Russia, Dies at 81**\
 `He chronicled Stalin’s tyrannies and the collapse of the Soviet Union, and he was an enthusiastic admirer of Mikhail Gorbachev.`\
