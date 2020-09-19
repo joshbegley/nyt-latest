@@ -1,6 +1,6 @@
 **McConnell Vows Vote on Ginsburg Replacement as Her Death Reshapes the 2020 Race**\
 `Democrats warn Republicans to follow the precedent they set in 2016, when they refused to consider President Barack Obama’s choice for the court on the grounds that it was an election year.`\
-https://nytimes.com/2020/09/18/us/politics/ruth-bader-ginsburg-mcconnell.html?searchResultPosition=1
+https://nytimes.com/2020/09/18/us/politics/mitch-mcconnell-supreme-court-ruth-bader-ginsburg.html?searchResultPosition=1
 
 **Trump’s Supreme Court Nominees List Gets New Scrutiny**\
 `The death of Justice Ruth Bader Ginsburg focuses attention to a list of potential court nominees that President Trump updated last week.`\
