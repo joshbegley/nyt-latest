@@ -1,5 +1,5 @@
 **Denied the M.V.P., James Takes Out His Frustration on the Nuggets**\
-`LeBron James is playing angry and the Lakers are playing well. In Game 1, that spelled trouble for the Nuggets.`\
+`LeBron James is playing angry and the Lakers are playing well. In Game 1, that spelled trouble for Denver.`\
 https://nytimes.com/2020/09/19/sports/basketball/lakers-nuggets-lebron-james.html?searchResultPosition=1
 
 **Aleksei Navalny, Russian Dissident, Says He Can Walk and Speak Now**\
