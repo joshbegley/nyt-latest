@@ -1,5 +1,5 @@
 **Albert Pujols Passes Willie Mays in Home Runs, if Not Dominance**\
-`Pujols’s 661st homer is cause for celebration, and offers a chance to reflect on a career that took a wildly different trajectory than many of his elite peers.`\
+`Pujols’s 661st and 662nd homers are cause for celebration, and offer a chance to reflect on a career that took a wildly different trajectory than many of his elite peers.`\
 https://nytimes.com/2020/09/18/sports/baseball/albert-pujols-willie-mays-661.html?searchResultPosition=1
 
 **Tell Us: How Did Ruth Bader Ginsburg Inspire You?**\
