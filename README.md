@@ -2,8 +2,8 @@
 `The shooting took place early Saturday at a backyard party of about 100 people in the upstate New York town of Rochester.`\
 https://nytimes.com/video/nyregion/100000007350270/rochester-shooting.html?searchResultPosition=1
 
-**Tadej Pogacar Takes Tour de France Lead in Stunning Time Trial**\
-`For more than a week, Pogacar and Primoz Roglic had stalked one another across France. On Saturday, Pogacar surged past his rival to claim the yellow jersey.`\
+**Tour de France Lead Changes Hands in Epic Time Trial**\
+`For more than a week, Tadej Pogacar and Primoz Roglic had stalked each other across France. On Saturday, Pogacar surged past his rival to claim the yellow jersey.`\
 https://nytimes.com/2020/09/19/sports/cycling/tour-de-france-pocagar-roglic.html?searchResultPosition=2
 
 **Cash Is Flowing Over Confirmation Battle for Supreme Court Vacancy**\
