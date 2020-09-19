@@ -26,8 +26,8 @@ https://nytimes.com/2020/09/19/movies/rbg-movies.html?searchResultPosition=6
 `For millions of American homeowners who have deferred mortgage payments during the crisis, the ability to borrow money again may depend on what type of loan they have.`\
 https://nytimes.com/2020/09/19/realestate/loan-deferments-CARES-act.html?searchResultPosition=7
 
-**Ruth Bader Ginsburg Live Updates: As Nation Mourns, a Frenzy of Political Maneuvering Begins**\
-`The death of Justice Ginsburg, the second woman appointed to the Supreme Court, has injected new uncertainty into the presidential election and sparked a political fight over the vacancy on the bench.`\
+**Ruth Bader Ginsburg Live Updates: As Nation Mourns, Trump Pushes to Fill Vacancy ‘Without Delay’**\
+`The death of Justice Ginsburg, the second woman appointed to the Supreme Court, has injected new uncertainty into the presidential election and set off a frenzy of political maneuvering.`\
 https://nytimes.com/2020/09/19/us/politics/ruth-bader-ginsburg-live-updates.html?searchResultPosition=8
 
 **Covid-19 Live Updates: C.D.C. Changes Guidance on Testing**\
