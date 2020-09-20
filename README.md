@@ -26,8 +26,8 @@ https://nytimes.com/2020/09/20/world/europe/orca-boat-spain.html?searchResultPos
 `From an office building in Russia, an army of “trolls” tried to wreak havoc all around the internet — and in real-life American communities.`\
 https://nytimes.com/2020/09/20/podcasts/the-daily/russia-trolls-misinformation.html?searchResultPosition=7
 
-**We Clerked for Ruth Bader Ginsburg. Nothing Stopped Her From Speaking Up.**\
-`Keenly aware of how the law affects real women in real life, she fought fiercely for equality.`\
+**We Worked for Ruth Bader Ginsburg. Here’s What She Taught Us.**\
+`In her career and at home, she lived a life that reflected her vision of equality.`\
 https://nytimes.com/2020/09/20/opinion/ruth-bader-ginsburg-work.html?searchResultPosition=8
 
 **Covid-19 Live Updates: As Cases Rise, U.K. Plans Tougher Fines for Rule Breakers**\
