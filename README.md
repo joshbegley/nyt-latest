@@ -1,4 +1,4 @@
-**Emmy Awards 2020 Live Chat**\
+**Emmy Awards Live Chat**\
 `We will be watching the 72nd Emmy Awards starting at 8 p.m. Eastern. Follow along with our reporter and critics as they share analysis of the winners and their favorite (and least favorite) moments of the show.`\
 https://nytimes.com/interactive/2020/09/20/arts/television/live-emmy-awards-analysis.html?searchResultPosition=1
 
