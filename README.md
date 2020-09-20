@@ -4,7 +4,7 @@ https://nytimes.com/2020/09/20/us/politics/trump-israel-arab-election.html?searc
 
 **As Supreme Court Fight Heats Up, Biden Urges Republican Senators to ‘Follow Your Conscience’**\
 `The Democratic nominee, speaking in Philadelphia, said the Senate should wait until after the election to decide on the nominee to replace Justice Ruth Bader Ginsburg.`\
-https://nytimes.com/2020/09/20/us/politics/as-supreme-court-fight-heats-up-biden-urges-republican-senators-to-follow-your-conscience.html?searchResultPosition=2
+https://nytimes.com/2020/09/20/us/politics/biden-supreme-court-senators.html?searchResultPosition=2
 
 **Murkowski Becomes 2nd Republican to Oppose Supreme Court Vote Before Election**\
 `The announcement by the senator from Alaska potentially complicates efforts to quickly fill the vacancy left by the death of Justice Ruth Bader Ginsburg.`\
