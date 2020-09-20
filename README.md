@@ -2,8 +2,8 @@
 `A group waving Trump flags and chanting “four more years” created a commotion at a polling location in Fairfax, Va. A county official said some voters and staff members felt intimidated.`\
 https://nytimes.com/2020/09/19/us/politics/trump-supporters-early-voting-virginia.html?searchResultPosition=1
 
-**Wolff Leads DeChambeau at U.S. Open, as Power Paves the Way**\
-`A fast start and some steady nerves gave Matthew Wolff a two-shot lead entering the final round of only his second major championship.`\
+**Matthew Wolff Leads Bryson DeChambeau at U.S. Open as Power Paves the Way**\
+`A fast start and some steady nerves gave Wolff a two-shot lead entering the final round of only his second major championship.`\
 https://nytimes.com/2020/09/19/sports/golf/us-open-leaderboard-wolff.html?searchResultPosition=2
 
 **Joe Biden’s Court Vacancy Plan: More Talk of Health Care and the Pandemic**\
@@ -26,9 +26,9 @@ https://nytimes.com/2020/09/19/health/astrazeneca-vaccine-safety-blueprints.html
 `Women have become the face of the protests against President Aleksandr Lukashenko, and his police force rounded up more than 300 participants in a “Women’s March” in Minsk on Saturday.`\
 https://nytimes.com/2020/09/19/world/europe/belarus-protests-women.html?searchResultPosition=8
 
-**Trump Says Deal Between Oracle and TikTok Has His ‘Blessing’**\
-`The remarks suggested the Chinese-owned social media app may be allowed to continue to operate in the United States after receiving investment from American partners.`\
-https://nytimes.com/2020/09/19/business/economy/trump-oracle-and-tiktok.html?searchResultPosition=9
+**Trump Approves Deal Between Oracle and TikTok**\
+`The approval delays President Trump’s threat to block a popular Chinese-owned social media app from the United States until it receives investment from American partners.`\
+https://nytimes.com/2020/09/19/technology/trump-oracle-and-tiktok.html?searchResultPosition=9
 
 **Word Ladders**\
 `It’s a bit of a climb, but with Sam Trabucco to guide you, you’ll enjoy every step of your ascent. Or descent.`\
