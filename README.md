@@ -30,7 +30,7 @@ https://nytimes.com/2020/09/20/opinion/ruth-bader-ginsburg-work.html?searchResul
 `Serious breaches of coronavirus restrictions could be punished with penalties of more than $10,000 as the British government tries to avoid another national lockdown. Russia’s vaccine rollout is off to a slow start.`\
 https://nytimes.com/2020/09/20/world/covid-19-coronavirus.html?searchResultPosition=8
 
-**Ruth Bader Ginsburg Live Updates: As Nation Mourns, Political Struggle Intensifies**\
+**Ruth Bader Ginsburg Live Updates: Amid Mourning, Political Fight Heats Up**\
 `In emotional displays, thousands honored Justice Ginsburg and vowed to protect her legacy. President Trump said the nominee “will be a woman,” and pressed to fill the seat “without delay.”`\
 https://nytimes.com/2020/09/20/us/politics/ruth-bader-ginsburg-supreme-court-live.html?searchResultPosition=9
 
