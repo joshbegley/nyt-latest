@@ -1,5 +1,5 @@
-**Tadej Pogacar Wins Tour de France, Capping Dramatic Comeback**\
-`Riding into Paris a day after grabbing the lead in stunning fashion, Pogacar, 21, was still struggling to fathom how he had snatched victory from his friend and rival Primoz Roglic.`\
+**Tour de France Crowns Young Champion to End Its Pandemic Edition**\
+`Riding into Paris a day after grabbing the lead, Tadej Pogacar, 21, was still struggling to fathom how he had claimed his victory over two unforgettable days.`\
 https://nytimes.com/2020/09/20/sports/cycling/tour-de-france-tadej-pogacar.html?searchResultPosition=1
 
 **‘It Will Be a Woman,’ Trump Says of Supreme Court Pick**\
