@@ -6,13 +6,13 @@ https://nytimes.com/2020/09/20/world/americas/cuba-economy.html?searchResultPosi
 `The government’s abuse of refugees in offshore facilities on Nauru and Papua New Guinea has its roots in the country’s racist, colonial history.`\
 https://nytimes.com/2020/09/20/opinion/australia-white-supremacy-refugees.html?searchResultPosition=2
 
-**Here’s a Full List of the 2020 Emmy Nominees**\
-`The 72nd Emmy Awards will be held tonight. Several winners were announced last week.`\
-https://nytimes.com/2020/09/20/arts/television/emmy-award-nominees.html?searchResultPosition=3
-
 **At Summer’s End**\
 `I greet this gorgeous season with a stillness I never felt when I was younger and in such a hurry.`\
-https://nytimes.com/2020/09/20/opinion/at-summers-end.html?searchResultPosition=4
+https://nytimes.com/2020/09/20/opinion/at-summers-end.html?searchResultPosition=3
+
+**Here’s a Full List of the 2020 Emmy Nominees**\
+`The 72nd Emmy Awards will be held tonight. Several winners were announced last week.`\
+https://nytimes.com/2020/09/20/arts/television/emmy-award-nominees.html?searchResultPosition=4
 
 **What to Cook This Week**\
 `Spiced, seared eggplant, crispy tofu and seared scallops: These are the ingredients to savor as summer turns to fall.`\
