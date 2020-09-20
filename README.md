@@ -1,5 +1,5 @@
 **Bryson DeChambeau Tames Course, Doubters With U.S. Open Win**\
-`DeChambeau, who bulked up and went all-in to prove a power game could flout golf’s norms, shot the only under par round on Sunday to win the 2020 U.S. Open.`\
+`DeChambeau, who bulked up and went all-in to prove a power game could flout golf’s norms, shot the only under-par round on Sunday to win the 2020 U.S. Open.`\
 https://nytimes.com/2020/09/20/sports/golf/bryson-dechambeau-us-open.html?searchResultPosition=1
 
 **Abortion Was Back-Burnered in the Presidential Race. Not Anymore.**\
