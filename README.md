@@ -1,5 +1,5 @@
-**The Met Opera Fired James Levine, Citing Sex Misconduct. Then He Was Paid $3.5 Million.**\
-`The terms of the settlement between the renowned conductor and the company he shaped have not been previously disclosed.`\
+**This file was published in error.**\
+`This file was published in error.`\
 https://nytimes.com/2020/09/20/arts/music/met-opera-james-levine.html?searchResultPosition=1
 
 **Billy Porter Leads Hollywood Diversity Push in Emmys Ad**\
