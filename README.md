@@ -1,4 +1,4 @@
-**Robert S. Graetz, Rare White Minister Who Backed Bus Boycott, Dies at 92**\
+**Robert S. Graetz, Rare White Minister to Back Bus Boycott, Dies at 92**\
 `The Rev. Robert S. Graetz resisted the menacing of the Ku Klux Klan and isolation among fellow clergymen to be an unbowed voice for desegregation among white people in Alabama.`\
 https://nytimes.com/2020/09/20/obituaries/robert-graetz-dead.html?searchResultPosition=1
 
