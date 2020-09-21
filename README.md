@@ -1,40 +1,40 @@
+**President Trump says China must cede control of TikTok or he ‘won’t make the deal.’**\
+`By David McCabe`\
+https://nytimes.com/2020/09/21/business/trump-tiktok-deal.html?searchResultPosition=1
+
+**One Musician’s Plan to Make the Concert Industry More Diverse**\
+`Noelle Scaggs from Fitz and the Tantrums has an initiative, Diversify the Stage, that aims to direct more touring business opportunities to people of color, women, and L.G.B.T.Q. people.`\
+https://nytimes.com/2020/09/21/arts/music/diversify-the-stage-noelle-scaggs.html?searchResultPosition=2
+
+**In a Desert’s Burning Sands, Shrimp**\
+`When it rains in Iran’s Dasht-e Lut desert, the ground comes alive with tiny, upside-down crustaceans.`\
+https://nytimes.com/2020/09/21/science/phallocryptus-shrimp-iran-desert.html?searchResultPosition=3
+
 **What the Heck Is That?**\
 `A look at one of the entries from last week’s puzzles that stumped our solvers.`\
-https://nytimes.com/2020/09/21/crosswords/heck-grok-crosswords.html?searchResultPosition=1
+https://nytimes.com/2020/09/21/crosswords/heck-grok-crosswords.html?searchResultPosition=4
 
 **New Zealand Is ‘On the Right Track,’ Prime Minister Says**\
 `Coronavirus restrictions on travel and gatherings will be lifted across most of New Zealand starting at midnight on Monday, Prime Minister Jacinda Ardern said.`\
-https://nytimes.com/video/world/australia/100000007352136/new-zealand-coronavirus-lockdown.html?searchResultPosition=2
+https://nytimes.com/video/world/australia/100000007352136/new-zealand-coronavirus-lockdown.html?searchResultPosition=5
 
 **To Protest Colonialism, He Takes Artifacts From Museums**\
 `Mwazulu Diyabanza will appear in a Paris court this month after he tried to make off with an African treasure he says was looted. France and its attitude to the colonial past will be on trial, too.`\
-https://nytimes.com/2020/09/21/arts/design/france-museum-quai-branly.html?searchResultPosition=3
+https://nytimes.com/2020/09/21/arts/design/france-museum-quai-branly.html?searchResultPosition=6
 
 **2 Men Working to Map World War II Bombs Are Killed by One**\
 `The aid workers had taken the device to the home they were sharing in the Solomon Islands, a country littered with unexploded ordnance.`\
-https://nytimes.com/2020/09/21/world/australia/solomon-islands-unexploded-ordnance.html?searchResultPosition=4
+https://nytimes.com/2020/09/21/world/australia/solomon-islands-unexploded-ordnance.html?searchResultPosition=7
 
 **Players’ Alliance Gets $10 Million From M.L.B. and Union to Build Diversity**\
 `The money is a substantial boost to the 12-week-old group formed by current and former players to increase Black participation at all levels of the sport.`\
-https://nytimes.com/2020/09/21/sports/baseball/mlb-players-alliance.html?searchResultPosition=5
+https://nytimes.com/2020/09/21/sports/baseball/mlb-players-alliance.html?searchResultPosition=8
 
 **An Indigenous Canadian Journalist Was Covering a Protest. Then He Got Arrested.**\
 `He is one of four reporters arrested while covering Indigenous affairs in a country that has been trying to make amends for its colonial past.`\
-https://nytimes.com/2020/09/21/world/canada/indigenous-journalism-protests.html?searchResultPosition=6
+https://nytimes.com/2020/09/21/world/canada/indigenous-journalism-protests.html?searchResultPosition=9
 
 **U.N. Live Updates: A General Assembly Like No Other**\
 `As world leaders meet for the 75th United Nations General Assembly this week, the gatherings are virtual, but the challenges all too real.`\
-https://nytimes.com/2020/09/21/world/americas/united-nations-general-assembly.html?searchResultPosition=7
-
-**$990,000 Homes in California**\
-`A 1926 Tudor Revival in Santa Ana, a Spanish-style house in Solvang and a townhouse overlooking a golf course in Danville.`\
-https://nytimes.com/2020/09/21/realestate/1-million-dollar-homes-for-sale-ca.html?searchResultPosition=8
-
-**What You Get for $990,000 in California**\
-`A 1926 Tudor Revival in Santa Ana, a Spanish-style house in Solvang and a townhouse overlooking a golf course in Danville.`\
-https://nytimes.com/slideshow/2020/09/21/realestate/what-you-get-for-990000-in-california.html?searchResultPosition=9
-
-**The Best and Worst Moments of the 2020 Emmys**\
-`The pandemic forced the Emmy Awards to stage a largely virtual event. Here are the highs and lows of the ceremony.`\
-https://nytimes.com/2020/09/21/arts/television/emmys-winners-and-losers.html?searchResultPosition=10
+https://nytimes.com/2020/09/21/world/americas/united-nations-general-assembly.html?searchResultPosition=10
 
