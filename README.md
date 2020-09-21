@@ -6,8 +6,8 @@ https://nytimes.com/2020/09/21/opinion/mitt-romney-supreme-court-nominee.html?se
 `Your 2020 Guide to a Sweet, Spooky and Safe Halloween`\
 https://nytimes.com/paidpost/national-confectioners-association/halloween-tips-tricks-and-treats.html?searchResultPosition=2
 
-**How one district reopened its classrooms**\
-`Most lower-income students are learning online. But in Cajon Valley, Calif. they’re back in school. Here’s how they did it.`\
+**How One District Reopened its Classrooms**\
+`Most lower-income students are learning online. But in Cajon Valley, Calif., they’re back in school. Here’s how they did it.`\
 https://nytimes.com/2020/09/21/us/cajon-valley-school-reopening.html?searchResultPosition=3
 
 **Ellen DeGeneres Returns to Her Talk Show With an Apology**\
