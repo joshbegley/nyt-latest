@@ -19,7 +19,7 @@ https://nytimes.com/2020/09/21/nyregion/donald-trump-taxes-cyrus-vance.html?sear
 https://nytimes.com/2020/09/21/sports/football/nfl-injuries-mccaffrey-barkley.html?searchResultPosition=5
 
 **Kids Need Superheroes Now More Than Ever**\
-`My grandfather co-created Captain America for another era, and now my daughter is turning to the superhero today.`\
+`If Captain America can defeat the Red Skull, a child can conquer her anxiety of a Zoom class.`\
 https://nytimes.com/2020/09/21/parenting/kids-superheroes.html?searchResultPosition=6
 
 **Emmys Night 2020, by the Numbers**\
