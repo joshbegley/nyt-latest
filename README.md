@@ -1,4 +1,4 @@
-**Left Litter in the Park? Thailand Officials Will Return It by Mail.**\
+**Left Litter in the Park? Thailand Officials Will Mail It to Your Home**\
 `To crack down on littering, park employees tracked down a group of campers, mailed the special package and reported them to the authorities.`\
 https://nytimes.com/2020/09/21/world/asia/thailand-park-mail-trash.html?searchResultPosition=1
 
