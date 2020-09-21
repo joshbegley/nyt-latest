@@ -34,7 +34,7 @@ https://nytimes.com/2020/09/21/arts/ginsburg-feminist-backlash.html?searchResult
 `With resistance to face masks and scorn for science, President Trump and a sizable number of his supporters are pushing an alternate reality minimizing a tragedy that has killed almost 200,000 Americans.`\
 https://nytimes.com/2020/09/21/us/politics/trump-base-virus.html?searchResultPosition=9
 
-**Shopping for Blankets**\
-`Because it may not be cold yet, but it will be soon.`\
-https://nytimes.com/2020/09/21/realestate/shopping-for-blankets.html?searchResultPosition=10
+**Was That Ride on the Trump Train Worth It?**\
+`The president has proved as hazardous to his allies as to his enemies.`\
+https://nytimes.com/2020/09/21/opinion/trump-supporters.html?searchResultPosition=10
 
