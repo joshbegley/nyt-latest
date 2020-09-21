@@ -1,5 +1,5 @@
 **Jimmy Kimmel’s 2020 Emmys Monologue: ‘You Can’t Have a Virus Without a Host’**\
-`Kimmel started his pandemic-era monologue by delivering it to a fake audience and fake applause. “Of course we don’t have an audience,” he quipped. “This isn’t a MAGA rally.”`\
+`Kimmel started his pandemic-era monologue by delivering it to a fake audience. “Of course we don’t have an audience,” he quipped. “This isn’t a MAGA rally.”`\
 https://nytimes.com/2020/09/20/arts/television/emmys-kimmel-monologue.html?searchResultPosition=1
 
 **Trump Needs a Tutorial on How International Agreements Work**\
