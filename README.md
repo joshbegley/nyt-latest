@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2020/09/21/arts/television/emmys-2020-numbers.ht
 `Republicans from 2016 make their case against Republicans of today.`\
 https://nytimes.com/interactive/2020/09/21/opinion/supreme-court-nomination-ginsburg.html?searchResultPosition=5
 
-**Fill Ginsburg’s Seat Now. Signed, the Democratic Senators of 2016**\
+**Fill Ginsburg’s Seat Now. Signed, the Democratic Senators of 2016.**\
 `Democrats from 2016 make their case against the Democrats of today.`\
 https://nytimes.com/interactive/2020/09/21/opinion/supreme-court-nomination-ginsburg-democrats.html?searchResultPosition=6
 
