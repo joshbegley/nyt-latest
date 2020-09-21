@@ -22,8 +22,8 @@ https://nytimes.com/2020/09/20/pageoneplus/no-corrections-sept-21-2020.html?sear
 `The mostly virtual Emmys telecast dispensed with many award-show trappings, but continued its trend of feeling out of tune with the way most of us watch TV.`\
 https://nytimes.com/2020/09/20/arts/television/review-emmy-awards.html?searchResultPosition=6
 
-**Your Monday Briefing**\
-`Ruth Bader Ginsburg, Belarus, Aleksei Navalny: Here’s what you need to know.`\
+**Ruth Bader Ginsburg, Belarus, Aleksei Navalny: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/20/briefing/rbg-belarus-aleksei-navalny.html?searchResultPosition=7
 
 **Robert S. Graetz, Rare White Minister to Back Bus Boycott, Dies at 92**\
