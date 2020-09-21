@@ -1,5 +1,5 @@
 **This file was published in error.**\
-`This file was published in error.`\
+``\
 https://nytimes.com/2020/09/20/arts/music/met-opera-james-levine.html?searchResultPosition=1
 
 **Billy Porter Leads Hollywood Diversity Push in Emmys Ad**\
