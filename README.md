@@ -19,7 +19,7 @@ https://nytimes.com/2020/09/20/us/politics/20biden-trump-election-finance.html?s
 https://nytimes.com/2020/09/20/arts/television/emmys-winners-list.html?searchResultPosition=5
 
 **Emmy Awards Live Chat**\
-`We will be watching the 72nd Emmy Awards starting at 8 p.m. Eastern. Follow along with our reporter and critics as they share analysis of the winners and their favorite (and least favorite) moments of the show.`\
+`We are watching the Emmy Awards. Follow along with our reporter and TV critics as they share analysis of the winners and their favorite (and least favorite) moments of the show.`\
 https://nytimes.com/interactive/2020/09/20/arts/television/live-emmy-awards-analysis.html?searchResultPosition=6
 
 **‘I Was Devastated. Now I Am Emboldened.’**\
