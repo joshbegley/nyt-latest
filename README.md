@@ -1,4 +1,4 @@
-**Campers Left Trash in a Thai Park. Officials Returned It in the Mail.**\
+**Left Litter in the Park? Thailand Officials Will Return It by Mail.**\
 `To crack down on littering, park employees tracked down a group of campers, mailed the special package and reported them to the authorities.`\
 https://nytimes.com/2020/09/21/world/asia/thailand-park-mail-trash.html?searchResultPosition=1
 
