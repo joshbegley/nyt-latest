@@ -26,7 +26,7 @@ https://nytimes.com/2020/09/20/us/politics/20biden-trump-election-finance.html?s
 `Here are the shows, actors and production teams who won at the 72nd Primetime Emmy Awards.`\
 https://nytimes.com/2020/09/20/arts/television/emmys-winners-list.html?searchResultPosition=7
 
-**Emmy Awards Live Chat**\
+**2020 Emmy Awards: Live Chat**\
 `We are watching the Emmy Awards. Follow along with our reporter and TV critics as they share analysis of the winners and their favorite (and least favorite) moments of the show.`\
 https://nytimes.com/interactive/2020/09/20/arts/television/live-emmy-awards-analysis.html?searchResultPosition=8
 
