@@ -2,8 +2,8 @@
 `William B. Crews was especially focused on undermining efforts to persuade the public to wear masks.`\
 https://nytimes.com/2020/09/22/technology/this-misinformation-was-coming-from-inside-the-house.html?searchResultPosition=1
 
-**Judy Shelton’s Inconsistencies Extend Beyond the Fed**\
-`The free market champion and longtime gold standard fan could soon clinch a job on the Fed Board. Her views have often been inconsistent.`\
+**Embattled Fed Nominee Celebrates Free Markets, but Not in Her Back Yard**\
+`July Shelton, a longtime Federal Reserve critic and gold standard fan, could soon clinch a job on the Fed board. Her views have often been inconsistent.`\
 https://nytimes.com/2020/09/22/business/economy/judy-shelton-federal-reserve-inconsistencies.html?searchResultPosition=2
 
 **Every Night in Quarantine, I Danced With Hundreds of Strangers**\
