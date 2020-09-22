@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/22/opinion/vladimir-putin-navalny-poisoning.html?searchResultPosition=1
 
 **The Green Party’s Biggest Fan? In Some States, It’s the G.O.P.**\
-`Republicans have tried boosting Green Party candidates in previous election cycles to siphon votes from Democrats. It’s at it again this year — but it hasn’t always worked.`\
+`Republicans have tried boosting Green Party candidates in previous election cycles to siphon votes from Democrats. They are at it again this year — but it hasn’t always worked.`\
 https://nytimes.com/2020/09/22/us/politics/green-party-republicans-hawkins.html?searchResultPosition=2
 
 **9 of Every 10 Restaurants and Bars in N.Y.C. Can’t Pay Full Rent**\
