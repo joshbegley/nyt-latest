@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/21/world/europe/italy-salvini-league-regional-electi
 https://nytimes.com/2020/09/21/climate/arctic-sea-ice-climate-change.html?searchResultPosition=3
 
 **Republican Senators Line Up to Back Trump on Court Fight**\
-`Senators Charles Grassley and Cory Gardner gave the president the votes he needs, but for the Senate to vote on his choice before the election will still be a challenge.`\
+`Senators Charles Grassley and Cory Gardner gave the president the votes he needs, but for the Senate to confirm his choice before the Nov. 3 election will still be a challenge.`\
 https://nytimes.com/2020/09/21/us/politics/trump-supreme-court.html?searchResultPosition=4
 
 **How the Supreme Court Could Affect Voting Rules on Election Day**\
