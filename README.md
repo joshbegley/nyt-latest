@@ -26,7 +26,7 @@ https://nytimes.com/2020/09/22/sports/biggest-wave-surfed-nazare-maya-gabeira.ht
 `The industry is trying to reach customers amid a severe global recession that has brought mass layoffs and plunging sales. Traditional fashion weeks might be out of step.`\
 https://nytimes.com/2020/09/22/business/luxury-fashion-september-coronavirus.html?searchResultPosition=7
 
-**Trump falsely says the coronavirus pandemic ‘affects virtually nobody,’ as U.S. death toll nears 200,000.**\
+**‘It affects virtually nobody,’ Trump says, minimizing the effect of the coronavirus on young people as U.S. death toll hits 200,000.**\
 `By Glenn Thrush`\
 https://nytimes.com/2020/09/22/us/politics/trump-coronavirus-virtually-nobody.html?searchResultPosition=8
 
