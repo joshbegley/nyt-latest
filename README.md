@@ -1,40 +1,40 @@
-**Late Night Riffs on Republicans’ Flip-Flop Over Supreme Court Seat**\
-`Some senators who wouldn’t consider Barack Obama’s nominee in 2016 are happy to vote on President Trump’s. “Hypocrisy only matters if you have shame,” Seth Meyers explained.`\
-https://nytimes.com/2020/09/22/arts/television/late-night-republicans-supreme-court.html?searchResultPosition=1
+**A Canadian Dream House That Took Three Architects to Build**\
+`Cascading down a rocky slope in West Vancouver, the home was a creative effort that required patience and a tolerance for loss.`\
+https://nytimes.com/2020/09/22/realestate/a-canadian-dream-house-that-took-three-architects-to-build.html?searchResultPosition=1
 
-**Stakeholder Capitalism Gets a Report Card. It’s Not Good.**\
-`The pandemic and the movement for racial justice have tested corporate pledges to elevate social concerns alongside shareholder interests. A new study finds companies are failing to follow through.`\
-https://nytimes.com/2020/09/22/business/business-roudtable-stakeholder-capitalism.html?searchResultPosition=2
+**The Site Was Rocky, and So Was the Project**\
+`Cascading down a craggy slope in British Columbia, Canada, the home was a creative effort that required patience and a tolerance for loss.`\
+https://nytimes.com/slideshow/2020/09/22/realestate/the-site-was-rocky-and-so-was-the-project.html?searchResultPosition=2
 
-**She’s the W.N.B.A. Threat No One Warned You About**\
-`Minnesota Lynx guard Crystal Dangerfield wasn’t a top pick, and her coach didn’t plan to play her much. Now she’s the rookie of the year, and leading her Lynx through the playoffs.`\
-https://nytimes.com/2020/09/22/sports/basketball/wnba-crystal-dangerfield-lynx.html?searchResultPosition=3
+**The Cradle of Global Bagel Baking? (It’s Not New York)**\
+`A self-taught baker in New Jersey is helping entrepreneurs all over the world, many with not even a schmear of experience, to open bagel shops.`\
+https://nytimes.com/2020/09/22/dining/bagels-byob-consultants.html?searchResultPosition=3
 
-**Nikola Jokic Plays Basketball as if It’s Water Polo**\
-`Jokic, the Denver Nuggets star, is doing everything in the N.B.A. playoffs: shooting, rebounding, blocking — and firing one-handed crosscourt passes like he’s in a swimming pool.`\
-https://nytimes.com/2020/09/22/sports/basketball/nikola-jokic-nuggets-water-polo.html?searchResultPosition=4
+**When Joe Biden’s in Town, but It’s Hard to Tell**\
+`An expert retail politician has become perhaps the most conspicuous practitioner of social distancing in America.`\
+https://nytimes.com/2020/09/22/us/politics/biden-coronavirus-campaign.html?searchResultPosition=4
 
-**Mind Games**\
-`What are some of your favorite games and puzzles?`\
-https://nytimes.com/2020/09/22/learning/mind-games.html?searchResultPosition=5
+**As Schools Go Remote, Finding ‘Lost’ Students Gets Harder**\
+`Early data for the new school year suggests that attendance in virtual classrooms is down, possibly because students are working or caring for siblings.`\
+https://nytimes.com/2020/09/22/us/schools-covid-attendance.html?searchResultPosition=5
 
-**Bringing the Ocean’s Midnight Zone Into the Light**\
-`The Monterey Bay Aquarium has learned how to raise the deepest sea life to the surface and keep it alive for display.`\
-https://nytimes.com/2020/09/22/science/monterey-bay-aquarium-midnight-zone.html?searchResultPosition=6
+**Is It Strange to Say I Miss the Bodies of Strangers?**\
+`Weeks before lockdown, I made a whirlwind tour of Istanbul’s public baths. It was a crash course in pleasure that helped me understand what we’ve lost since.`\
+https://nytimes.com/2020/09/22/magazine/turkish-baths-istanbul.html?searchResultPosition=6
 
-**Word + Quiz: somnolent**\
-`This word has appeared in 12 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/09/22/learning/word-quiz-somnolent.html?searchResultPosition=7
+**Democratic Donors Push Biden for a Cabinet Free of Fossil Fuel Connections**\
+`A group of more than 60 donors is urging Joe Biden to renounce advisers with ties to the fossil fuel industry.`\
+https://nytimes.com/2020/09/22/climate/biden-climate-change.html?searchResultPosition=7
 
-**Behind Their Power Play, Lightning Even the Series**\
-`Brayden Point and Ondrej Palat scored two of Tampa Bay’s three first-period goals in its 3-2 win on Monday.`\
-https://nytimes.com/2020/09/22/sports/hockey/lightning-stars-game-2.html?searchResultPosition=8
+**The White House, Senate and Supreme Court Could All Hinge on North Carolina**\
+`Thom Tillis, who has embraced President Trump’s plan to quickly replace Justice Ruth Bader Ginsburg, could become the deciding vote in the Senate.`\
+https://nytimes.com/2020/09/22/us/politics/supreme-court-north-carolina-tillis.html?searchResultPosition=8
 
-**Justice Dept. Denies House Panel’s Request for Officials to Appear**\
-`The department cited what it called Democrats’ “scolding and insulting” of Attorney General William P. Barr at a contentious hearing in July.`\
-https://nytimes.com/2020/09/22/us/politics/justice-department-judiciary-committee-hearing.html?searchResultPosition=9
+**We Made Wildfire an Enemy for 110 Years. It Could Have Been an Ally.**\
+`Starting with the Big Blowup of 1910, the U.S. Forest Service’s strategy mostly has been to put out fires as fast as possible. With climate change and shifting populations, we’re losing that war.`\
+https://nytimes.com/2020/09/22/us/big-blowup-wildfire-1910.html?searchResultPosition=9
 
-**DeVos to Be Investigated for Potential Violation of Ethics Law**\
-`A watchdog filed a complaint over the Education Department distributing a Fox News clip of Secretary Betsy DeVos criticizing Joe Biden, potentially in violation of the Hatch Act.`\
-https://nytimes.com/2020/09/22/us/politics/betsy-devos-hatch-act-investigation.html?searchResultPosition=10
+**With Kids in Sports Bubbles, These Parents Are Desperate for a Way In**\
+`Many parents are used to following their pro-athlete offspring from game to game. With the pandemic keeping them out of stadiums, some are getting creative.`\
+https://nytimes.com/2020/09/22/sports/baseball/sports-bubbles-parents.html?searchResultPosition=10
 
