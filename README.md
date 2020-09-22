@@ -1,4 +1,4 @@
-**California City Reaches $4 Million Settlement in Fatal Police Shooting**\
+**City in California Reaches $4 Million Settlement in Fatal Police Shooting**\
 `Miles Hall, 23, was killed after his family called the police in Walnut Creek as he was experiencing a mental health crisis.`\
 https://nytimes.com/2020/09/22/us/miles-hall-shooting-walnut-creek.html?searchResultPosition=1
 
