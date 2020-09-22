@@ -4,7 +4,7 @@ https://nytimes.com/2020/09/22/business/mass-timber-wood-buildings.html?searchRe
 
 **Bernie Sanders Sounds Alarm on a Trump ‘Nightmare Scenario’**\
 `Warning that this election is an “extremely dangerous moment” for the country, he said in an interview that he would aggressively push to try to stop President Trump from delegitimizing the vote.`\
-https://nytimes.com/2020/09/22/us/politics/bernie-sanders-2020-election.html?searchResultPosition=2
+https://nytimes.com/2020/09/22/us/politics/bernie-sanders-trump-nightmare-scenario.html?searchResultPosition=2
 
 **Recent Commercial Real Estate Transactions**\
 `Recent commercial real estate transactions in New York.`\
