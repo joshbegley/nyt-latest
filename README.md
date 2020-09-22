@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/22/health/coronavirus-heart-surgery.html?searchResul
 https://nytimes.com/video/us/politics/100000007354172/powell-mnuchin-coronavirus-congress.html?searchResultPosition=3
 
 **U.N. Live Updates: Trump Blasts China at First Virtual General Assembly**\
-`After the U.S. president, a roster of strongmen — Bolsonaro, Erdogan, Xi, Putin, Duterte and Rouhani — will be among the first to speak via prerecorded videos on a Covid-compromised world stage.`\
+`Around the U.S. president, a roster of strongmen — Bolsonaro, Erdogan, Xi, Putin, Duterte and Rouhani — will be among the first to speak via prerecorded videos on a Covid-compromised world stage.`\
 https://nytimes.com/2020/09/22/world/asia/un-general-assembly-live-updates.html?searchResultPosition=4
 
 **Hundreds of Whales Stranded in Australia**\
