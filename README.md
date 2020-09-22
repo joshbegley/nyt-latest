@@ -10,7 +10,7 @@ https://nytimes.com/2020/09/22/magazine/samin-nosrat-okra-soup.html?searchResult
 `Olivia Troye, the latest Republican to leave the administration and speak out against President Trump, called the statements seeking to undermine her credibility “a bald faced lie.”`\
 https://nytimes.com/2020/09/22/us/politics/olivia-troye-trump-biden.html?searchResultPosition=3
 
-**Trump Widens War vs. New York, as E.P.A. Threatens to Leave City**\
+**Trump Uses E.P.A. Office to Widen ‘Anarchist’ War vs. New York**\
 `The president has painted New York as an “anarchist jurisdiction,” but his administration’s threats to withhold funds are being dismissed as a politicized campaign tactic.`\
 https://nytimes.com/2020/09/22/nyregion/trump-epa-anarchist-jurisdiction.html?searchResultPosition=4
 
