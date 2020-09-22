@@ -7,7 +7,7 @@ https://nytimes.com/2020/09/22/dining/pantry-recipes.html?searchResultPosition=1
 https://nytimes.com/2020/09/22/health/coronavirus-heart-surgery.html?searchResultPosition=2
 
 **Watch Live: Powell and Mnuchin Testify Before Congress**\
-`Federal Reserve Chair Jerome H. Powell and Treasury Secretary Steven Mnuchin will testify before lawmakers Tuesday on the U.S. economy’s recovery from coronavirus.`\
+`The Federal Reserve chair, Jerome H. Powell, and Treasury Secretary Steven Mnuchin testify before lawmakers on Tuesday on the economy’s recovery from the coronavirus pandemic.`\
 https://nytimes.com/video/us/politics/100000007354172/powell-mnuchin-coronavirus-congress.html?searchResultPosition=3
 
 **U.N. Live Updates: Trump Blasts China at First Virtual General Assembly**\
