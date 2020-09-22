@@ -10,8 +10,8 @@ https://nytimes.com/2020/09/22/movies/kiss-the-ground-review.html?searchResultPo
 `This new documentary is a showcase for stunt performers in Hollywood, but it fails to capture the best of the action.`\
 https://nytimes.com/2020/09/22/movies/stuntwomen-the-untold-hollywood-story-review.html?searchResultPosition=3
 
-**Chinese City Orders Taxi Drivers to Remove Their Tattoos**\
-`Officials in Lanzhou said tattooed drivers could “cause distress” to women and children. Many Chinese frown on body art, but young people are increasingly embracing it.`\
+**Chinese City Orders Taxi Drivers to Remove Tattoos (for the Women and Children)**\
+`Officials in Lanzhou said tattooed drivers could “cause distress” to passengers. The order has revived a debate over stigmatized body art.`\
 https://nytimes.com/2020/09/22/world/asia/china-tattoos-taxi-drivers.html?searchResultPosition=4
 
 **The Fall Surge Is Here**\
