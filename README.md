@@ -1,4 +1,4 @@
-**DealBook: When Is a Deal Not a Deal?**\
+**When Is a Deal Not a Deal?**\
 `When it involves TikTok.`\
 https://nytimes.com/2020/09/22/business/dealbook/tiktok-china-control.html?searchResultPosition=1
 
