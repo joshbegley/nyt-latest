@@ -10,7 +10,7 @@ https://nytimes.com/slideshow/2020/09/22/realestate/long-island-mansion-goes-on-
 `A court battle is beginning just weeks before Election Day. Here’s what that could mean for the campaigns in key states.`\
 https://nytimes.com/2020/09/22/podcasts/the-daily/supreme-court-swing-voters-ginsburg.html?searchResultPosition=3
 
-**Rescue Effort Is Underway After Hundreds of Whales Beach Off Tasmania**\
+**Rescue Effort Is Underway After Hundreds of Whales Beach Themselves Off Tasmania**\
 `About 270 pilot whales became stranded on the west coast of the island state in Australia. Rescuers estimate that a third of them have already died.`\
 https://nytimes.com/2020/09/22/world/australia/tasmania-whales-beached.html?searchResultPosition=4
 
