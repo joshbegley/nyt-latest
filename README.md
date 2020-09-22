@@ -8,7 +8,7 @@ https://nytimes.com/2020/09/22/world/europe/uk-labour-keir-starmer.html?searchRe
 
 **The C.D.C.’s Continuing Confusion**\
 `A reversal erodes trust as Trump barrels forward with a nomination: This is your morning tip sheet.`\
-https://nytimes.com/2020/09/22/us/politics/cdc-trump-scotus.html?searchResultPosition=3
+https://nytimes.com/2020/09/22/us/politics/cdc-changes-confusion.html?searchResultPosition=3
 
 **‘Kiss the Ground’ Review: Regenerating Hope for the Climate**\
 `An optimistic climate documentary narrated by Woody Harrelson argues for the healing power of soil, which could offer a solution to the climate crisis.`\
