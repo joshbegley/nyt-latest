@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000007354323/boris-johnson-coronavirus-lockdown.html?searchResultPosition=1
 
 **The Biggest Wave Surfed This Year**\
-`Gabeira didn’t just ride the biggest wave ever ridden by a woman. It was the biggest wave surfed by anyone during the 2019-2020 winter season, a first for women in professional surfing.`\
+`Maya Gabeira didn’t just ride the biggest wave ever ridden by a woman. It was the biggest wave surfed by anyone in the 2019-20 winter season, a first for women in professional surfing.`\
 https://nytimes.com/2020/09/22/sports/biggest-wave-surfed-nazare-maya-gabeira.html?searchResultPosition=2
 
 **Can Luxury Fashion Ever Regain Its Luster?**\
