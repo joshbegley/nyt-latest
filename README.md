@@ -10,7 +10,7 @@ https://nytimes.com/video/us/politics/100000007354494/live-ruth-bader-ginsburg-r
 `A career official said political appointees “commandeered” the prepublication review process.`\
 https://nytimes.com/2020/09/23/us/politics/john-bolton-book-review-process.html?searchResultPosition=3
 
-**In a Secret Ceremony, Embattled Belarus Strongman Is Sworn In as President**\
+**In Secret Ceremony, Embattled Belarus Strongman Is Sworn In as President**\
 `Despite weeks of mass demonstrations against his re-election, Aleksandr G. Lukashenko declared victory over protesters as he began a sixth term.`\
 https://nytimes.com/2020/09/23/world/europe/lukashenko-inauguration-belarus.html?searchResultPosition=4
 
