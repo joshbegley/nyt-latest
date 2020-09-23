@@ -2,7 +2,7 @@
 `The outspoken conservative envoy, Pete Hoekstra, has been criticized for hosting a fund-raiser for a Dutch populist party at the U.S. Embassy.`\
 https://nytimes.com/2020/09/23/world/europe/ambassador-hoekstra-netherlands.html?searchResultPosition=1
 
-**DealBook: Is This Trump’s Next Chinese Target?**\
+**Is This Trump’s Next Chinese Target?**\
 `Tencent, one of China’s most powerful tech companies, is coming into the administration’s sights.`\
 https://nytimes.com/2020/09/23/business/dealbook/tencent-deals-cfius.html?searchResultPosition=2
 
