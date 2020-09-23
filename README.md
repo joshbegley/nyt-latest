@@ -30,11 +30,11 @@ https://nytimes.com/slideshow/2020/09/23/realestate/living-in-nissequogue-and-he
 `For the vast majority of people in one teeming neighborhood of Mexico City, risking illness or death has simply become the price of survival.`\
 https://nytimes.com/2020/09/23/world/americas/mexico-coronavirus-covid-iztapalapa.html?searchResultPosition=8
 
-**Pandemic-Obstructed Views**\
-`Baseball fans have found ways to watch live baseball in person this season despite not being allowed in the stands.`\
-https://nytimes.com/2020/09/23/sports/baseball/pandemic-obstructed-views.html?searchResultPosition=9
-
 **As China Ages, a Push to Add Elevators Offers a New Kind of Economic Relief**\
 `China’s premier wants to retrofit three million older apartment buildings all over the country, but he still needs political buy-in at the top.`\
-https://nytimes.com/2020/09/23/business/china-economy-elevators-aging.html?searchResultPosition=10
+https://nytimes.com/2020/09/23/business/china-economy-elevators-aging.html?searchResultPosition=9
+
+**Pandemic-Obstructed Views**\
+`Baseball fans have found ways to watch live baseball in person this season despite not being allowed in the stands.`\
+https://nytimes.com/2020/09/23/sports/baseball/pandemic-obstructed-views.html?searchResultPosition=10
 
