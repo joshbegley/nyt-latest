@@ -14,7 +14,7 @@ https://nytimes.com/2020/09/23/movies/oliver-sacks-his-own-life-review.html?sear
 `The 16-bit duel in this CBS All Access documentary is charged up to Sonic the Hedgehog speed.`\
 https://nytimes.com/2020/09/23/movies/console-wars-review.html?searchResultPosition=4
 
-**China’s Pledge to Be Carbon Neutral by 2060: What to Know**\
+**China’s Pledge to Be Carbon Neutral by 2060: What it Means**\
 `Under international pressure to do more to address global warming, Xi Jinping made a surprise commitment to drastically reduce emissions. Now comes the hard part.`\
 https://nytimes.com/2020/09/23/world/asia/china-climate-change.html?searchResultPosition=5
 
