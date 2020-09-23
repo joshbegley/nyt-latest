@@ -1,4 +1,4 @@
-**Poisoned Russian Opposition Leader Leaves Berlin Hospital**\
+**Russian Opposition Leader Leaves Berlin Hospital After Poisoning**\
 `Doctors treating Alexei Navalny said he had been discharged after 32 days of treatment and is expected to make a full recovery.`\
 https://nytimes.com/2020/09/23/world/europe/aleksei-navalny-hospital-release.html?searchResultPosition=1
 
