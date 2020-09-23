@@ -6,7 +6,7 @@ https://nytimes.com/2020/09/23/arts/design/museum-polling-center-california.html
 `In a new memoir, the rock musician breaks down the first 25 years of his life, when he found his sound, his voice and his commitment to love and nonviolence.`\
 https://nytimes.com/2020/09/23/arts/music/lenny-kravitz-let-love-rule.html?searchResultPosition=2
 
-**Gale Sayers, Hall of Fame Running Back, Dies at 77**\
+**Gale Sayers, Elusive Hall of Fame Running Back, Is Dead at 77**\
 `Though his career was cut short by knee injuries, he was widely regarded as one of the greatest running backs in National Football League history.`\
 https://nytimes.com/2020/09/23/sports/football/gale-sayers-dead.html?searchResultPosition=3
 
