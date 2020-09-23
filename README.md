@@ -20,7 +20,7 @@ https://nytimes.com/video/us/politics/100000007356634/justice-roberts-ginsburg-f
 
 **Ron Cobb, a Pioneer in Science Fiction Design, Dies at 83**\
 `The artist and movie production designer, who brought a meticulous eye for detail to movies including “Star Wars,” “Alien” and “Back to the Future,” helped shape the aesthetics of science fiction.`\
-https://nytimes.com/2020/09/23/obituaries/ron-cobb-dies.html?searchResultPosition=6
+https://nytimes.com/2020/09/23/arts/ron-cobb-dies.html?searchResultPosition=6
 
 **Republican Inquiry Finds No Evidence of Wrongdoing by Biden**\
 `The report delivered on Wednesday appeared to be little more than a rehashing of unproven allegations that echoed a Russian disinformation campaign.`\
