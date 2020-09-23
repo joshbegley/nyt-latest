@@ -30,8 +30,8 @@ https://nytimes.com/2020/09/23/us/politics/democrats-government-overhaul-trump.h
 `Wednesday: The presidential election isn’t the only thing on the ballot.`\
 https://nytimes.com/2020/09/23/us/ballot-california-election.html?searchResultPosition=8
 
-**Supreme Court Honors Begin for Ruth Bader Ginsburg**\
-`Justice Ruth Bader Ginsburg will make a final trip to the Supreme Court, beginning three days of honors.`\
+**Ruth Bader Ginsburg Lies in Repose at Supreme Court**\
+`Justice Ruth Bader Ginsburg lies in repose at the Supreme Court, where members of the public are paying their respects.`\
 https://nytimes.com/video/us/politics/100000007354494/live-ruth-bader-ginsburg-repose.html?searchResultPosition=9
 
 **White House Accused of Intervening to Keep Bolton’s Book From Becoming Public**\
