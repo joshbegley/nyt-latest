@@ -10,7 +10,7 @@ https://nytimes.com/2020/09/23/dining/three-cheers-for-melissa-clark.html?search
 `Looking for a few fresh and different streaming options? We offer some assistance.`\
 https://nytimes.com/2020/09/23/movies/offbeat-streaming-movie-recommendations.html?searchResultPosition=3
 
-**356 Elephants Dropped Dead. Did This Algae Poison Them?**\
+**356 Elephants Dropped Dead. Did This Bacteria Poison Them?**\
 `Some conservationists accepted the explanation provided by Botswana’s government, but others raised doubts.`\
 https://nytimes.com/2020/09/23/science/dead-elephants-botswana.html?searchResultPosition=4
 
