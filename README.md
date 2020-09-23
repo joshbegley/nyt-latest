@@ -1,4 +1,4 @@
-**Former Louisville Officer Is Indicted in Breonna Taylor Case**\
+**Breonna Taylor Live Updates: One Officer Charged in Shooting**\
 `Protesters and celebrities demanded justice after Ms. Taylor was killed by police officers in her Louisville apartment.`\
 https://nytimes.com/2020/09/23/us/breonna-taylor-charges-louisville.html?searchResultPosition=1
 
