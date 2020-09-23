@@ -18,7 +18,7 @@ https://nytimes.com/2020/09/23/business/walmart-tiktok-groceries.html?searchResu
 `Senator Hannah-Beth Jackson has been the driver of several new laws aimed at eliminating gender-based barriers.`\
 https://nytimes.com/2020/09/23/us/california-state-senator-gender-equality-laws.html?searchResultPosition=5
 
-**Watch Live: Attorney General Announces Decision in Breonna Taylor Case**\
+**Watch Live: Attorney General Speaks After Grand Jury Decision in Breonna Taylor Case**\
 `Daniel Cameron, the Republican attorney general in Kentucky, is expected to announce the results of the grand jury inquiry in Breonna Taylor’s case.`\
 https://nytimes.com/video/us/politics/100000007356820/kentucky-attorney-general-breonna-taylor-grand-jury-decision.html?searchResultPosition=6
 
