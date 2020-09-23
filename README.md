@@ -14,7 +14,7 @@ https://nytimes.com/2020/09/23/style/kid-boats-homeschooling-at-sea-boatschoolin
 `The proposal would speed up the state’s efforts to fight global warming at a time when California is being battered by wildfires, heat waves and other consequences of climate change.`\
 https://nytimes.com/2020/09/23/climate/california-ban-gas-cars.html?searchResultPosition=4
 
-**Museum Fires Curator Who It Says Sexual Harassed Student Researcher**\
+**Museum Fires Curator Who It Says Sexually Harassed Student Researcher**\
 `The American Museum of Natural History acted after investigators it hired reviewed a complaint filed against an expert on invertebrate zoology.`\
 https://nytimes.com/2020/09/23/arts/mark-siddall-sexual-harassment.html?searchResultPosition=5
 
