@@ -1,5 +1,5 @@
-**Your Wednesday Briefing**\
-`Boris Johnson, United Nations, climate change: Here’s what you need to know.`\
+**Boris Johnson, United Nations, Climate Change: Your Wednesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/22/briefing/boris-johnson-united-nations-climate-change.html?searchResultPosition=1
 
 **Corrections: Sept. 23, 2020**\
