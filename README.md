@@ -1,10 +1,10 @@
-**Young People More Likely to Believe Virus Misinformation, Study Says**\
-`The results diverge from past research that said older people were more likely to share false news articles on social media.`\
-https://nytimes.com/2020/09/23/technology/young-people-more-likely-to-believe-virus-misinformation-study-says.html?searchResultPosition=1
-
 **A Historic Opening for Anti-Abortion Activists**\
 `With conservatives looking set to gain another vote on the Supreme Court, the president of the Susan B. Anthony List says she senses a turning point.`\
-https://nytimes.com/2020/09/23/podcasts/the-daily/supreme-court-trump-roe-v-wade.html?searchResultPosition=2
+https://nytimes.com/2020/09/23/podcasts/the-daily/supreme-court-trump-roe-v-wade.html?searchResultPosition=1
+
+**Young People More Likely to Believe Virus Misinformation, Study Says**\
+`The results diverge from past research that said older people were more likely to share false news articles on social media.`\
+https://nytimes.com/2020/09/23/technology/young-people-more-likely-to-believe-virus-misinformation-study-says.html?searchResultPosition=2
 
 **Watch Milan Fashion Week Shows With Us**\
 `This week, join us to watch live shows from Milan Fashion Week, including Fendi, Etro, Versace and more.`\
