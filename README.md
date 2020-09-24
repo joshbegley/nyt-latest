@@ -1,40 +1,40 @@
+**Review: ‘Romantics Anonymous,’ a Challenge to Your Sweet Tooth**\
+`A musical about two French chocolatiers may satisfy the hunger for live song and dance, but keep the insulin handy.`\
+https://nytimes.com/2020/09/24/theater/review-romantics-anonymous-bristol-old-vic.html?searchResultPosition=1
+
 **Don’t Get What Makes Brian De Palma an Auteur? Try These Two Films**\
 `The director, who just turned 80, makes popular films that have long inspired debates. Watch “Blow Out” and “Carlito’s Way” to better understand the arguments.`\
-https://nytimes.com/2020/09/24/movies/brian-de-palma-blow-out-carlitos-way.html?searchResultPosition=1
+https://nytimes.com/2020/09/24/movies/brian-de-palma-blow-out-carlitos-way.html?searchResultPosition=2
 
 **U.S. Plans to Execute Inmate Who Murdered Two Youth Ministers**\
 `Christopher Andre Vialva, 40, scheduled for execution on Thursday, would be the seventh federal inmate and the first Black man put to death since federal executions resumed.`\
-https://nytimes.com/2020/09/24/us/federal-execution-christopher-vialva.html?searchResultPosition=2
+https://nytimes.com/2020/09/24/us/federal-execution-christopher-vialva.html?searchResultPosition=3
 
 **2 Officers Shot in Louisville Protests**\
 `Two Louisville, Ky., police officers were shot during protests Wednesday night after a grand jury did not charge officers with killing Breonna Taylor.`\
-https://nytimes.com/video/us/politics/100000007358755/breonna-taylor-louisville-protest-police-officers-shot.html?searchResultPosition=3
+https://nytimes.com/video/us/politics/100000007358755/breonna-taylor-louisville-protest-police-officers-shot.html?searchResultPosition=4
 
 **Emails Show How Pesticide Industry Influenced U.S. Position in Health Talks**\
 `The U.S. insisted that new international guidelines on combating drug resistance omit any mention of fungicides — a demand that the industry made but that ran counter to science.`\
-https://nytimes.com/2020/09/24/health/pesticides-drug-resistance-trump-anifungals.html?searchResultPosition=4
+https://nytimes.com/2020/09/24/health/pesticides-drug-resistance-trump-anifungals.html?searchResultPosition=5
 
 **Crowd Chants ‘Vote Him Out’ as Trump Visits Ginsburg’s Coffin**\
 `President Trump was greeted by protesters at the Supreme Court on Thursday as he paid his respects to the late Justice Ruth Bader Ginsburg.`\
-https://nytimes.com/video/us/elections/100000007359127/prosters-trump-ginsburg-visit.html?searchResultPosition=5
+https://nytimes.com/video/us/elections/100000007359127/prosters-trump-ginsburg-visit.html?searchResultPosition=6
 
 **U.S. Risks Repeating 2009 Mistakes as Economic Recovery Slows**\
 `In the wake of the last recession, government spending dried up, leading to a slow and stilted recovery. Policymakers warn against letting it happen again.`\
-https://nytimes.com/2020/09/24/business/economy/us-economy-pandemic.html?searchResultPosition=6
+https://nytimes.com/2020/09/24/business/economy/us-economy-pandemic.html?searchResultPosition=7
 
 **What’s Going On in This Graph? | Sept. 30, 2020**\
 `Who are our essential workers?`\
-https://nytimes.com/2020/09/24/learning/whats-going-on-in-this-graph-sept-30-2020.html?searchResultPosition=7
+https://nytimes.com/2020/09/24/learning/whats-going-on-in-this-graph-sept-30-2020.html?searchResultPosition=8
 
 **Review: ‘The Comey Rule’ and What a Fool Believes**\
 `Showtime’s political drama is a scattered but searing picture of failed self-righteousness.`\
-https://nytimes.com/2020/09/24/arts/television/review-comey-rule.html?searchResultPosition=8
+https://nytimes.com/2020/09/24/arts/television/review-comey-rule.html?searchResultPosition=9
 
 **After Brief TikTok Run, Kevin Mayer in Talks to Join Investment Firm**\
 `Mr. Mayer, who was a top dealmaker at Disney for years before his three months as TikTok’s chief executive, is in advanced talks with RedBird Capital, a private firm with holdings in sports, entertainment and financial services.`\
-https://nytimes.com/2020/09/24/business/kevin-mayer-tiktok-redbird.html?searchResultPosition=9
-
-**Corey Johnson Drops Out of 2021 Race for N.Y.C. Mayor**\
-`Mr. Johnson, the City Council speaker, was one of the front-runners to succeed Mayor Bill de Blasio, but the recent rigors of his job had worn on him.`\
-https://nytimes.com/2020/09/24/nyregion/corey-johnson-mayor-nyc.html?searchResultPosition=10
+https://nytimes.com/2020/09/24/business/kevin-mayer-tiktok-redbird.html?searchResultPosition=10
 
