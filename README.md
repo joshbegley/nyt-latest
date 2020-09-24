@@ -16,7 +16,7 @@ https://nytimes.com/2020/09/24/world/asia/hong-kong-arrest-joshua-wong.html?sear
 
 **Civil Conversation Challenge for Teenagers, Forum 3: The Fight for Racial Justice**\
 `To what extent is the legacy of slavery and racism still present in America in 2020? In what ways has progress been made? What work remains to be done?`\
-https://nytimes.com/2020/09/24/learning/lesson-plans/civil-conversation-challenge-for-teenagers-forum-3-the-fight-for-racial-justice.html?searchResultPosition=5
+https://nytimes.com/2020/09/24/learning/civil-conversation-challenge-for-teenagers-forum-3-the-fight-for-racial-justice.html?searchResultPosition=5
 
 **The Race for Iowa, Georgia and Texas**\
 `A Times poll shows Biden and Trump neck and neck in three states: This is your morning tip sheet.`\
