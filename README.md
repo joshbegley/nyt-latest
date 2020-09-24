@@ -26,7 +26,7 @@ https://nytimes.com/2020/09/24/business/economy/unemployment-claims.html?searchR
 `It is one of the first states to take on debt to plug a budget hole created by the impact of the coronavirus.`\
 https://nytimes.com/2020/09/24/nyregion/new-jersey-coronavirus-budget.html?searchResultPosition=7
 
-**Breonna Taylor Case Is Formidable Test for an Ascendant Attorney General**\
+**Breonna Taylr Case Is Formidable Test for an Ascendant Attorney General**\
 `Daniel Cameron, a rising G.O.P. star in Kentucky, is seen as a possible successor to Senator Mitch McConnell. But first, he has to navigate a case roiling the nation.`\
 https://nytimes.com/2020/09/24/us/daniel-cameron-breonna-taylor-kentucky.html?searchResultPosition=8
 
