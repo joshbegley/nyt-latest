@@ -22,13 +22,13 @@ https://nytimes.com/interactive/2020/09/24/us/politics/how-to-vote-register.html
 `Research shows that coronavirus infections “are moving up the age bands”`\
 https://nytimes.com/2020/09/24/us/coronavirus-today.html?searchResultPosition=6
 
-**Trump’s Stalinist Approach to Science**\
-`Bully and ignore the experts, and send in the quacks.`\
-https://nytimes.com/2020/09/24/opinion/trump-science-coronavirus.html?searchResultPosition=7
-
 **How Faith Shapes My Politics**\
 `Not as much as you’d think.`\
-https://nytimes.com/2020/09/24/opinion/religion-politics.html?searchResultPosition=8
+https://nytimes.com/2020/09/24/opinion/religion-politics.html?searchResultPosition=7
+
+**Trump’s Stalinist Approach to Science**\
+`Bully and ignore the experts, and send in the quacks.`\
+https://nytimes.com/2020/09/24/opinion/trump-science-coronavirus.html?searchResultPosition=8
 
 **Now That You Can Work From Anywhere, Let These Local Customs Inspire You**\
 `An estimated 60 percent of Americans now work remotely, and more than half say they want to keep this change, according to a recent Gallup poll.`\
