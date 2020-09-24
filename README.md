@@ -2,8 +2,8 @@
 `This word has appeared in 16 articles on NYTimes.com in the past year.`\
 https://nytimes.com/2020/09/24/learning/word-quiz-huckster.html?searchResultPosition=1
 
-**South Korean Official Is Shot Dead and Burned by North Korea, Officials Say**\
-`The body of the fisheries official, who was apparently trying to defect to the North, was set ablaze for fear he was carrying the coronavirus, South Korean officials said.`\
+**North Korea Accused of Shooting and Burning South Korean Defector**\
+`The body of the fisheries official was set ablaze in the North’s waters for fear he was carrying the coronavirus, South Korean officials said.`\
 https://nytimes.com/2020/09/24/world/asia/korea-defector-covid-19.html?searchResultPosition=2
 
 **Political Incompetence Can Be as Deadly as Covid-19**\
