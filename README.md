@@ -2,7 +2,7 @@
 `The New York Times has photographers on the ground following protests across the country.`\
 https://nytimes.com/2020/09/24/us/breonna-taylor-protests-photos.html?searchResultPosition=1
 
-**‘Just a Small Play Date’? You Still Need to Be Careful.**\
+**‘Just a Small Play Date’? You Still Need to Be Careful**\
 `Experts warn that seemingly harmless interactions with close family and friends may be driving the spread of Covid.`\
 https://nytimes.com/2020/09/24/parenting/family-gatherings-coronavirus.html?searchResultPosition=2
 
