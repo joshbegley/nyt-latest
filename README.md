@@ -34,7 +34,7 @@ https://nytimes.com/paidpost/brunello-cucinelli/a-new-dawn-for-brunello-cucinell
 `Benzodiazepines — commonly prescribed for anxiety, insomnia, seizures and panic disorders — are highly addictive and come with health risks, especially when combined with other drugs.`\
 https://nytimes.com/2020/09/23/health/benzodiazepines-fda-warning.html?searchResultPosition=9
 
-**Virus Cases Are Reported in 100 N.Y.C. School Buildings**\
+**100 N.Y.C. School Buildings Have Already Reported a Positive Case**\
 `Nearly all the buildings remained open, following city guidelines that say only those schools with two cases in different classrooms will shut.`\
 https://nytimes.com/2020/09/23/nyregion/coronavirus-new-york-schools.html?searchResultPosition=10
 
