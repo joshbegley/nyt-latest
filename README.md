@@ -1,40 +1,40 @@
+**‘Public Trust’ Review: Saving National Lands**\
+`This documentary follows individuals pushing back against political forces that want to privatize federal lands.`\
+https://nytimes.com/2020/09/24/movies/public-trust-review.html?searchResultPosition=1
+
+**To Fight Apple and Google, Smaller App Rivals Organize a Coalition**\
+`Spotify, Match Group, Epic Games and others have created a nonprofit alliance that they hope will amplify a protest against the power of the giants.`\
+https://nytimes.com/2020/09/24/technology/apple-google-coalition-epic-match-spotify.html?searchResultPosition=2
+
+**‘Myth of a Colorblind France’ Review: Artistry Abroad**\
+`The documentary focuses on the history of African-American expatriates in France and the writings, paintings and music they made there.`\
+https://nytimes.com/2020/09/24/movies/myth-of-a-colorblind-france-review.html?searchResultPosition=3
+
+**‘Ottolenghi and the Cakes of Versailles’ Review: Pastries of the Gilded Age, Made Modern**\
+`This documentary follows the star chef Yotam Ottolenghi as he assembles a crack team to make sweets for an event at the Metropolitan Museum of Art.`\
+https://nytimes.com/2020/09/24/movies/ottolenghi-and-the-cakes-of-versailles-review.html?searchResultPosition=4
+
+**‘The Last Shift’ Review: Passing the Fast-Food Torch**\
+`Richard Jenkins gets a starring role as a man training his replacement at a job he’s worked at for nearly 40 years.`\
+https://nytimes.com/2020/09/24/movies/the-last-shift-review.html?searchResultPosition=5
+
+**‘The Artist’s Wife’ Review: Strife on Canvas**\
+`Lena Olin and Bruce Dern play married artists whose lives are abruptly reconfigured when one receives a diagnosis of dementia.`\
+https://nytimes.com/2020/09/24/movies/the-artists-wife-review.html?searchResultPosition=6
+
+**‘Kajillionaire’ Review: California Scheming**\
+`Miranda July’s third feature follows a family of small-scale swindlers in a deceptively sunny Los Angeles.`\
+https://nytimes.com/2020/09/24/movies/kajillionaire-review.html?searchResultPosition=7
+
+**‘Secret Society of Second-Born Royals’ Review: A Princess With Powers**\
+`Streaming on Disney+, Anna Mastro’s incoherent origin story follows a rebellious princess who learns she’s even more special than she thought.`\
+https://nytimes.com/2020/09/24/movies/secret-society-of-second-born-royals-review.html?searchResultPosition=8
+
+**‘Bird Island’ Review: Avian Therapy**\
+`This compact, whimsical film about a bird rehabilitation center in Switzerland is perched wryly between fiction and documentary.`\
+https://nytimes.com/2020/09/24/movies/bird-island-review.html?searchResultPosition=9
+
 **40 days to Nov. 3**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/09/24/briefing/louisville-coronavirus-ruth-bader-ginsburg-your-thursday-briefing.html?searchResultPosition=1
-
-**On the Ground in Louisville**\
-`Unrest has again rocked the city after a grand jury in Kentucky declined to bring charges against the two officers who shot Breonna Taylor.`\
-https://nytimes.com/2020/09/24/podcasts/the-daily/breonna-taylor-police-officers-louisville.html?searchResultPosition=2
-
-**As Virus Cases Surge in Europe, Hospitalizations Lag. But for How Long?**\
-`For now, countries are betting they can suppress hospital admissions and deaths without imposing more lockdowns, even as case numbers approach peak levels from last spring.`\
-https://nytimes.com/2020/09/24/world/europe/covid-europe-hospitals-lockdowns.html?searchResultPosition=3
-
-**Solo Plays for Anxious Times**\
-`The Bridge theater in London has resumed performances after the coronavirus shutdown with a series of monologues by David Hare and Alan Bennett.`\
-https://nytimes.com/2020/09/24/theater/bridge-david-hare-alan-bennet.html?searchResultPosition=4
-
-**Covid-19 Live Updates: Trump Suggests Vaccine Approval Plans Are Driven by Politics**\
-`President Trump said the White House “may or may not” approve new F.D.A. guidelines that would toughen the process for approving a coronavirus vaccine.`\
-https://nytimes.com/2020/09/24/world/covid-19-coronavirus.html?searchResultPosition=5
-
-**Industry City: Here’s What Happened**\
-`After a long battle to rezone the business hub in Brooklyn, developers abandoned the plan, eliminating a possible 20,000 new jobs. `\
-https://nytimes.com/2020/09/24/nyregion/industry-city-brooklyn.html?searchResultPosition=6
-
-**Harold Evans, Crusading Newspaperman With a Second Act, Dies at 92**\
-`In Britain, he helped redefine high-quality newspapers and challenged legal restrictions on the press. In America, he brought new scope and glitz to book publishing as the head of Random House.`\
-https://nytimes.com/2020/09/24/business/media/sir-harold-evans-dead.html?searchResultPosition=7
-
-**China Has a New Plan to Tame Tibet**\
-`It failed to coax cultural assimilation with economic incentives. Now it’s going for coerced labor and micromanaging people’s very lifestyles.`\
-https://nytimes.com/2020/09/24/opinion/tibet-china-labor.html?searchResultPosition=8
-
-**Home Sales Surge in Brooklyn**\
-`Six months into the pandemic, inventory is up in Manhattan while buyers are heading to Brooklyn for more space and lower prices.`\
-https://nytimes.com/2020/09/24/realestate/brooklyn-real-estate-sales.html?searchResultPosition=9
-
-**Times Square, Grand Central and the Laws That Build the City**\
-`A virtual tour looks at the legal battles and innovations behind 42nd Street. Our critic chats with the Harvard professor Jerold S. Kayden.`\
-https://nytimes.com/2020/09/24/arts/design/times-square-grand-central-tour.html?searchResultPosition=10
+https://nytimes.com/2020/09/24/briefing/louisville-coronavirus-ruth-bader-ginsburg-your-thursday-briefing.html?searchResultPosition=10
 
