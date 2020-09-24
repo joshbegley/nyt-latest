@@ -22,8 +22,8 @@ https://nytimes.com/2020/09/24/sports/football/nfl-picks-week-3.html?searchResul
 `Don’t think about the economics at play in the Colombian’s arrival at Everton. Just enjoy it.`\
 https://nytimes.com/2020/09/24/sports/soccer/james-rodriguez-everton.html?searchResultPosition=6
 
-**Your Thursday Briefing**\
-`Breonna Taylor, coronavirus vaccine, Belarus: Here’s what you need to know.`\
+**Breonna Taylor, Coronavirus Vaccine, Belarus: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/23/briefing/breonna-taylor-coronavirus-vaccine-belarus.html?searchResultPosition=7
 
 **Corrections: Sept. 24, 2020**\
