@@ -35,6 +35,6 @@ https://nytimes.com/2020/09/24/theater/review-romantics-anonymous-bristol-old-vi
 https://nytimes.com/2020/09/24/movies/brian-de-palma-blow-out-carlitos-way.html?searchResultPosition=9
 
 **U.S. Plans to Execute Inmate Who Murdered Two Youth Ministers**\
-`Christopher Andre Vialva, 40, scheduled for execution on Thursday, would be the seventh federal inmate and the first Black man put to death since federal executions resumed.`\
+`Christopher Andre Vialva, 40, scheduled for execution on Thursday, would be the seventh federal inmate and the first Black man put to death since federal executions resumed last year.`\
 https://nytimes.com/2020/09/24/us/federal-execution-christopher-vialva.html?searchResultPosition=10
 
