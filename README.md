@@ -2,7 +2,7 @@
 `The Designer D.I.Y. series returns with a sleeveless look for the last stretches of summer, from the pioneer woman of modern prairie dresses.`\
 https://nytimes.com/2020/09/24/fashion/batsheva-makes-a-top-or-a-dress-from-a-pillowcase.html?searchResultPosition=1
 
-**DealBook: Another Big Investment in Racial Justice**\
+**Another Big Investment in Racial Justice**\
 `Square plans to put $100 million into programs to bolster Black communities, joining the likes of Netflix and others.`\
 https://nytimes.com/2020/09/24/business/dealbook/square-racial-justice.html?searchResultPosition=2
 
