@@ -1,40 +1,40 @@
-**Night Images Reveal Many New Detention Sites in China’s Xinjiang Region**\
-`China said it was winding down its “re-education” camps for Uighurs and other minorities, but researchers found evidence that incarceration is on the rise.`\
-https://nytimes.com/2020/09/24/world/asia/china-muslims-xinjiang-detention.html?searchResultPosition=1
+**Times Square, Grand Central and the Laws That Build the City**\
+`A virtual tour looks at the legal battles and innovations behind 42nd Street. Our critic chats with the Harvard professor Jerold S. Kayden.`\
+https://nytimes.com/2020/09/24/arts/design/times-square-grand-central-tour.html?searchResultPosition=1
 
-**Even as Virus Surges, Hungary Forges Ahead With Super Cup Soccer Game**\
-`Bayern Munich and Sevilla will be battling for the European trophy in Budapest despite growing concerns over fan safety in a stadium that is prepared to host 20,000 people.`\
-https://nytimes.com/2020/09/24/world/europe/super-cup-hungary-bayern-munich-sevilla.html?searchResultPosition=2
+**What Will It Take to Vote in Milwaukee?**\
+`The coronavirus has added strain to Wisconsin voters already facing challenges to ballot access.`\
+https://nytimes.com/2020/09/24/us/politics/milwaukee-voters-2020-black-latino.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Mind Games: The Conservation Test’**\
-`In this lesson, students will learn about the science of how young children see and understand the world. Then they will design and conduct their own cognitive experiment to illuminate the mysteries of the human mind.`\
-https://nytimes.com/2020/09/24/learning/lesson-of-the-day-mind-games-the-conservation-test.html?searchResultPosition=3
+**17 New Books to Watch For in October**\
+`New biographies shed light on Malcolm X, Sylvia Plath and the Beatles, plus the latest fiction from Tana French, Martin Amis, Sayaka Murata and more.`\
+https://nytimes.com/2020/09/24/books/october-2020-new-books.html?searchResultPosition=3
 
-**Trump Rallies Are High-Risk Activities, Seth Meyers Says**\
-`Attending a Trump event is as risky as “doorknob licking, hugging everyone on the subway and eating shrimp at the strip club buffet,” the “Late Night” host said.`\
-https://nytimes.com/2020/09/24/arts/television/trump-rallies-late-night-seth-meyers-halloween.html?searchResultPosition=4
+**Trump Faces Challenges Even in Red States, Poll Shows, as Women Favor Biden**\
+`Close races in Georgia, Iowa and Texas show President Trump’s vulnerability and suggest that Joseph Biden has assembled a formidable coalition, according to a New York Times/Siena College poll.`\
+https://nytimes.com/2020/09/24/us/politics/trump-biden-polls-texas-georgia-iowa.html?searchResultPosition=4
 
-**Basketball Persists in Mexico Amid the Pandemic**\
-`The Astros de Jalisco are competing in Mexico’s top professional basketball league during the pandemic. But several teams have decided it’s not worth playing.`\
-https://nytimes.com/2020/09/24/sports/basketball/mexico-basketball.html?searchResultPosition=5
+**U.S. Prepares to Take Sudan Off List of States That Support Terrorism**\
+`Coming before the election, the move would give President Trump another chance to broker diplomacy on Israel’s behalf. But it could be at the cost of compensation for terrorism victims.`\
+https://nytimes.com/2020/09/24/us/politics/us-prepares-to-take-sudan-off-list-of-states-that-support-terrorism.html?searchResultPosition=5
 
-**Now’s the Time for Wigs. If You Can Get the Hair for Them.**\
-`Supply-chain problems have interrupted Black women’s efforts to stockpile during the pandemic.`\
-https://nytimes.com/2020/09/24/style/wigs-coronavirus.html?searchResultPosition=6
+**Trump Says He Will ‘Always’ Protect Those With Pre-Existing Conditions. He Hasn’t.**\
+`The president’s promises on health care stand in stark contrast with his legislative, regulatory and legal record.`\
+https://nytimes.com/2020/09/24/upshot/trump-pre-existing-conditions-obamacare.html?searchResultPosition=6
 
-**Wave Rider**\
-`What story could this video tell?`\
-https://nytimes.com/2020/09/24/learning/wave-rider.html?searchResultPosition=7
+**Few Police Officers Who Cause Deaths Are Charged or Convicted**\
+`A wide gulf remains between the public perception of police violence and how it is treated in court.`\
+https://nytimes.com/2020/09/24/us/police-killings-prosecution-charges.html?searchResultPosition=7
 
-**A Manila Barbershop’s Mirrors Reflect the Pain of the Pandemic**\
-`Seven months since the Philippines enacted its first lockdown, Jolog’s Barbershop exemplifies the toll the coronavirus has exacted on the country in lost lives, income and sense of community.`\
-https://nytimes.com/2020/09/24/world/asia/philippines-coronavirus-manila.html?searchResultPosition=8
+**In Politically Charged Inquiry, Durham Sought Details About Scrutiny of Clintons**\
+`John Durham’s team has sought information about the F.B.I.’s handling of the Clinton Foundation investigation, raising questions about the scope of the prosecutor’s review.`\
+https://nytimes.com/2020/09/24/us/politics/durham-clinton-foundation-investigation.html?searchResultPosition=8
 
-**Word + Quiz: huckster**\
-`This word has appeared in 16 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/09/24/learning/word-quiz-huckster.html?searchResultPosition=9
+**A Quadriplegic, a Specialty Van and a Lifetime of Adventures**\
+`A biking accident left Kirk Williams paralyzed, but he has traveled widely and inspired others to follow in his tire tracks.`\
+https://nytimes.com/2020/09/24/business/accessible-van-adventures.html?searchResultPosition=9
 
-**North Korea Accused of Shooting and Burning South Korean Defector**\
-`The body of the fisheries official was set ablaze in the North’s waters for fear he was carrying the coronavirus, South Korean officials said.`\
-https://nytimes.com/2020/09/24/world/asia/korea-defector-covid-19.html?searchResultPosition=10
+**Beyond the Pandemic, Libraries Look Toward a New Era**\
+`With a shift to online resources well underway, “the most trusted civic institutions” are in a good position to deal with the changing future.`\
+https://nytimes.com/2020/09/24/business/libraries-pandemic-future.html?searchResultPosition=10
 
