@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/24/books/review/10-new-books-to-read-this-week.html?
 https://nytimes.com/2020/09/24/arts/television/fargo-review-season-four.html?searchResultPosition=3
 
 **Ocean Heat Waves Are Directly Linked to Climate Change**\
-`The “blob” of hotter ocean water that killed sea lions and other marine life may become permanent.`\
+`The “blob” of hotter ocean water that killed sea lions and other marine life in 2014 and 2015 may become permanent.`\
 https://nytimes.com/2020/09/24/climate/ocean-heat-waves-blob.html?searchResultPosition=4
 
 **Lorne Michaels Isn’t Sure ‘S.N.L.’ Can Pull This Off**\
