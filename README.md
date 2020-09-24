@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/24/learning/whats-going-on-in-this-graph-sept-30-202
 https://nytimes.com/2020/09/24/arts/television/review-comey-rule.html?searchResultPosition=3
 
 **After Brief TikTok Run, Kevin Mayer in Talks to Join Investment Firm**\
-`Mr. Mayer, who was a top dealmaker at Disney for years before his three months as TikTok’s chief executive, is in advanced talks with RedBird Capital, a private firm with holdings in sports, entertainment and energy.`\
+`Mr. Mayer, who was a top dealmaker at Disney for years before his three months as TikTok’s chief executive, is in advanced talks with RedBird Capital, a private firm with holdings in sports, entertainment and financial services.`\
 https://nytimes.com/2020/09/24/business/kevin-mayer-tiktok-redbird.html?searchResultPosition=4
 
 **Corey Johnson Drops Out of 2021 Race for N.Y.C. Mayor**\
