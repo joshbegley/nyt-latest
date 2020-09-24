@@ -35,6 +35,6 @@ https://nytimes.com/2020/09/24/health/pesticides-drug-resistance-trump-anifungal
 https://nytimes.com/video/us/elections/100000007359127/prosters-trump-ginsburg-visit.html?searchResultPosition=9
 
 **U.S. Risks Repeating 2009 Mistakes as Economic Recovery Slows**\
-`In the wake of the last recession, government spending dried up, leading to a slow recovery. Policymakers warn against letting it happen again.`\
+`In the wake of the last recession, government spending dried up, dragging out the recovery.  Policymakers warn against letting it happen again.`\
 https://nytimes.com/2020/09/24/business/economy/us-economy-pandemic.html?searchResultPosition=10
 
