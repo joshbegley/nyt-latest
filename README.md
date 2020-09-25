@@ -1,40 +1,40 @@
-**Stranded Overseas, Thousands Beg Australia to Let Them Come Home**\
-`Limits on the number of Australians who can return have spurred a growing uproar over the country’s hard-line approach.`\
-https://nytimes.com/2020/09/25/world/australia/stranded-overseas-coronavirus.html?searchResultPosition=1
+**Seeking the Humanity in the Story of Kim Wall’s Murder**\
+`A new limited series, “The Investigation,” fictionalizes the police investigation into the killing of the Swedish journalist, resisting the usual trappings of Nordic noir.`\
+https://nytimes.com/2020/09/25/arts/television/kim-wall-the-investigation.html?searchResultPosition=1
 
-**Federal Judge Bars Trump Administration From Ending Census Early**\
-`The ruling says the census, which was delayed for months because of the coronavirus, needs more time to get an accurate count.`\
-https://nytimes.com/2020/09/25/us/trump-census-deadline.html?searchResultPosition=2
+**Some in Oregon Wildfires’ Path Never Got Evacuation Alerts**\
+`Technological advancements have helped people get information about when to leave and where to go. But some never got the alerts and had to search social media for vital information.`\
+https://nytimes.com/2020/09/25/us/fires-oregon-evacuation-alerts.html?searchResultPosition=2
 
-**Lesson of the Day: ‘What We Know About Breonna Taylor’s Case and Death’**\
-`In this lesson, students will learn about and respond to Ms. Taylor’s life and death, as well as the reaction to the recent grand jury decision for her case.`\
-https://nytimes.com/2020/09/25/learning/lesson-of-the-day-what-we-know-about-breonna-taylors-case-and-death.html?searchResultPosition=3
+**Will Trump’s Presidency Ever End?**\
+`America is in terrible danger.`\
+https://nytimes.com/2020/09/25/opinion/trump-election-supreme-court.html?searchResultPosition=3
 
-**Late Night Takes On the Peaceful Transition of Power**\
-`Hosts weighed in on President Trump’s refusal to say he would step down if he lost the election. “Well, so much for that Nobel Peace Prize,” Jimmy Kimmel said on Thursday.`\
-https://nytimes.com/2020/09/25/arts/television/late-night-trump-peaceful-transition.html?searchResultPosition=4
+**A Supreme Court Fight Might Be Exactly What America Needs**\
+`From the courts to Congress, we might need fewer embalming norms and more room for victories and defeat.`\
+https://nytimes.com/2020/09/25/opinion/supreme-court-democrats-republicans.html?searchResultPosition=4
 
-**Washington N.F.L. Team’s Drama Fueled by Owners’ Fight Over Payout**\
-`The team’s controlling owner, Daniel Snyder, withheld dividend payouts to partners in the spring, leading to an arbitration case and a boardroom brawl that has spilled into public view.`\
-https://nytimes.com/2020/09/25/sports/football/washington-nfl-team-owners-dan-snyder.html?searchResultPosition=5
+**The Gilgo Beach Murders Were a Cold Case. Then a New Police Chief Arrived.**\
+`After a decade of little movement in a series of killings on Long Island, a new sense of urgency.`\
+https://nytimes.com/2020/09/25/nyregion/long-island-serial-killer-gilgo-beach.html?searchResultPosition=5
 
-**For the N.H.L. Bubble to Succeed, Everyone Had to Be Flexible**\
-`Broadcasters did interviews from high above the ice instead of rinkside. A popular cafe in Edmonton tailored its menu to athletes. And most players have gone weeks without seeing their families.`\
-https://nytimes.com/2020/09/25/sports/hockey/nhl-bubble-families.html?searchResultPosition=6
+**One Day on a Hard Court, Then on Clay**\
+`The French Open, held so close to the U.S. Open this year, forces players to quickly adjust to a new surface. Then there’s the change of seasons.`\
+https://nytimes.com/2020/09/25/sports/tennis/french-open-clay.html?searchResultPosition=6
 
-**Dark Cloud**\
-`What is this image saying?`\
-https://nytimes.com/2020/09/25/learning/dark-cloud.html?searchResultPosition=7
+**At Pentagon, Fears Grow That Trump Will Pull Military Into Election Unrest**\
+`Defense Department officials said top generals could resign if Mr. Trump ordered the active-duty military into the streets to quell election protests.`\
+https://nytimes.com/2020/09/25/us/politics/trump-military-election.html?searchResultPosition=7
 
-**Kim Jong-un Offers South Korea Rare Apology for Killing of Official**\
-`“I am deeply sorry that an unexpected and unfortunate thing has happened in our territorial waters,” the North Korean leader said in a message, according to officials in the South.`\
-https://nytimes.com/2020/09/25/world/asia/korea-kim-jong-un-apology-killing-defector.html?searchResultPosition=8
+**Trump and Biden Court Catholic Vote, in Very Different Ways**\
+`Joseph Biden’s supporters are highlighting his Catholic faith and values while President Trump, with a Supreme Court selection looming, is operating on the culture-war turf he prefers.`\
+https://nytimes.com/2020/09/25/us/politics/catholic-voters-trump-biden.html?searchResultPosition=8
 
-**Word + Quiz: parity**\
-`This word has appeared in 118 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/09/25/learning/word-quiz-parity.html?searchResultPosition=9
+**Rafael Nadal Goes for No. 13 in France**\
+`He skipped the U.S. Open and hunkered down in Spain, but is ready to defend his French Open title.`\
+https://nytimes.com/2020/09/25/sports/tennis/rafael-nadal-french-open.html?searchResultPosition=9
 
-**Bringing Clarity to the Voting Process Before Election Day**\
-`In creating a special guide for voters, a team of reporters, editors and designers worked under one guiding principle: Make sense of the muddle.`\
-https://nytimes.com/2020/09/25/insider/2020-voter-guide.html?searchResultPosition=10
+**40 Guests, Plus a Covid-Safety Officer**\
+`Dr. Kyle Burton and Julie-Ann Hutchinson, who met at the Harvard Kennedy School in 2016, instituted several safety precautions during their wedding at the Missouri Botanical Garden in St. Louis.`\
+https://nytimes.com/2020/09/25/fashion/weddings/40-guests-plus-a-covid-safety-officer.html?searchResultPosition=10
 
