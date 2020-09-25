@@ -26,15 +26,15 @@ https://nytimes.com/2020/09/25/fashion/weddings/after-months-of-obstacles-a-happ
 `A new TV series, “The Investigation,” fictionalizes the police investigation into the killing of the Swedish journalist, resisting the usual trappings of Nordic noir.`\
 https://nytimes.com/2020/09/25/arts/television/kim-wall-the-investigation.html?searchResultPosition=7
 
+**A Supreme Court Fight Might Be Exactly What America Needs**\
+`From the courts to Congress, we might need fewer embalming norms and more room for victories and defeat.`\
+https://nytimes.com/2020/09/25/opinion/supreme-court-democrats-republicans.html?searchResultPosition=8
+
 **Some in Oregon Wildfires’ Path Never Got Evacuation Alerts**\
 `Technological advancements have helped people get information about when to leave and where to go. But some never got the alerts and had to search social media for vital information.`\
-https://nytimes.com/2020/09/25/us/fires-oregon-evacuation-alerts.html?searchResultPosition=8
+https://nytimes.com/2020/09/25/us/fires-oregon-evacuation-alerts.html?searchResultPosition=9
 
 **Will Trump’s Presidency Ever End?**\
 `America is in terrible danger.`\
-https://nytimes.com/2020/09/25/opinion/trump-election-supreme-court.html?searchResultPosition=9
-
-**A Supreme Court Fight Might Be Exactly What America Needs**\
-`From the courts to Congress, we might need fewer embalming norms and more room for victories and defeat.`\
-https://nytimes.com/2020/09/25/opinion/supreme-court-democrats-republicans.html?searchResultPosition=10
+https://nytimes.com/2020/09/25/opinion/trump-election-supreme-court.html?searchResultPosition=10
 
