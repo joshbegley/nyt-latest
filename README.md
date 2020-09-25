@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/25/world/asia/afghanistan-woman-university-.html?sea
 https://nytimes.com/2020/09/25/fashion/weddings/after-months-of-obstacles-a-happy-ending.html?searchResultPosition=3
 
 **Seeking the Humanity in the Story of Kim Wall’s Murder**\
-`A new limited series, “The Investigation,” fictionalizes the police investigation into the killing of the Swedish journalist, resisting the usual trappings of Nordic noir.`\
+`A new TV series, “The Investigation,” fictionalizes the police investigation into the killing of the Swedish journalist, resisting the usual trappings of Nordic noir.`\
 https://nytimes.com/2020/09/25/arts/television/kim-wall-the-investigation.html?searchResultPosition=4
 
 **Some in Oregon Wildfires’ Path Never Got Evacuation Alerts**\
