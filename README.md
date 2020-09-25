@@ -2,8 +2,8 @@
 `Hear tracks by Oneohtrix Point Never, Bryson Tiller, La Dame Blanche and others.`\
 https://nytimes.com/2020/09/25/arts/music/playlist-jennifer-lopez-maluma-snoop-dogg.html?searchResultPosition=1
 
-**Criminal Charges for Covid-19 Deaths at Massachusetts Veterans’ Home**\
-`Two former leaders of the Holyoke Soldiers’ Home were charged in connection with a coronavirus outbreak at the facility, where 76 people died.`\
+**Two Charged in Coronavirus Outbreak at Veterans’ Home That Left 76 Dead**\
+`The former leaders of the state-run Holyoke Soldiers’ Home in Massachusetts were indicted by a state grand jury on abuse and neglect charges related to their work there.`\
 https://nytimes.com/2020/09/25/us/veterans-home-holyoke-covid.html?searchResultPosition=2
 
 **An Election That Could Hinge on the Voting Process Itself**\
