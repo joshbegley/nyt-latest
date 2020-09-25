@@ -1,5 +1,5 @@
 **The Empty Stages of N.Y.C.**\
-`Most concerts, plays and other live performances have yet to resume amid the pandemic. The fallout has devastated creative workers and hurt the city.`\
+`Most concerts, plays and other live performances have yet to resume. The pandemic fallout has devastated creative workers and hurt the city.`\
 https://nytimes.com/2020/09/25/nyregion/nyc-arts-shutdown.html?searchResultPosition=1
 
 **Vietnam Confiscates Over 300,000 Recycled Condoms for Sale**\
