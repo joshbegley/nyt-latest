@@ -19,7 +19,7 @@ https://nytimes.com/2020/09/25/style/love-letter-newsletter-minding-the-age-gap.
 https://nytimes.com/2020/09/25/us/officer-fake-ambush.html?searchResultPosition=5
 
 **New York Threatens Orthodox Jewish Areas With Lockdown Over Virus**\
-`Community leaders said residents have resisted the rules in part because of the influence of President Trump, whose views on masks have been  embraced.`\
+`Community leaders said residents have resisted the rules in part because of the influence of President Trump, whose views on masks have been embraced.`\
 https://nytimes.com/2020/09/25/nyregion/coronavirus-orthodox-jewish-communities.html?searchResultPosition=6
 
 **Don’t Get Star-Struck Playing Sue Bird. She’s Here to Win.**\
