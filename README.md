@@ -1,5 +1,5 @@
 **Kim Jong-un Offers South Korea Rare Apology for Killing of Official**\
-`“I am deeply sorry that an unexpected and unfortunate thing has happened in our territorial waters,” the North Korean leader said by telephone, officials in the South said.`\
+`“I am deeply sorry that an unexpected and unfortunate thing has happened in our territorial waters,” the North Korean leader said in a telephone message, officials in the South said.`\
 https://nytimes.com/2020/09/25/world/asia/korea-kim-jong-un-apology-killing-defector.html?searchResultPosition=1
 
 **Word + Quiz: parity**\
