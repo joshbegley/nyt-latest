@@ -1,6 +1,6 @@
-**Without Evidence, Right-Wing Commentators Link Soros to U-Haul Rental**\
+**Without Evidence, Right-Wing Commentators Link Soros to Louisville U-Haul**\
 `A spokeswoman for the liberal financier said he had “absolutely not” paid for the rental of a truck used in a protest in Louisville.`\
-https://nytimes.com/2020/09/24/technology/without-evidence-right-wing-commentators-link-soros-to-u-haul-rental.html?searchResultPosition=1
+https://nytimes.com/2020/09/24/technology/without-evidence-right-wing-commentators-link-soros-to-louisville-u-haul.html?searchResultPosition=1
 
 **Corrections: Sept. 25, 2020**\
 `Corrections that appeared in print on Friday, Sept. 25, 2020.`\
