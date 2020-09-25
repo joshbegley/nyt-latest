@@ -7,7 +7,7 @@ https://nytimes.com/2020/09/24/us/politics/pennsylvania-mail-in-voter-fraud-inve
 https://nytimes.com/2020/09/24/opinion/apple-google-mobile-apps.html?searchResultPosition=2
 
 **Trump Promises Drug Discount Cards as an Expensive Pre-election Gift**\
-`The $200 cards for prescription drugs, intended for 33 million older Americans, are part of a $6.6 billion promise with dubious legal authority.`\
+`The $200 cards for prescription drugs, intended for 33 million older Americans, are part of a $6.6 billion promise offered to a key constituency.`\
 https://nytimes.com/2020/09/24/us/politics/trump-health-care-plan.html?searchResultPosition=3
 
 **Facebook Takes Down Networks Linked to Russian Disinformation**\
