@@ -22,7 +22,7 @@ https://nytimes.com/2020/09/24/movies/the-trial-of-the-chicago-7-review-they-fou
 `Be creative about space. Communicate early and often. Don’t let your family dynamic regress.`\
 https://nytimes.com/2020/09/24/magazine/how-to-move-back-home.html?searchResultPosition=6
 
-**Trump Administration To Announce Plan to Open Tongass Forest to Logging**\
+**Trump Administration to Announce Plan to Open Tongass Forest to Logging**\
 `The effort to open the Alaskan wilderness area, the nation’s largest national forest, has been in the works for about two years.`\
 https://nytimes.com/2020/09/24/climate/tongass-logging.html?searchResultPosition=7
 
