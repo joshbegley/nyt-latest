@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/25/world/europe/ukraine-military-plane-crash.html?searchResultPosition=1
 
 **Cardinal Dismissed Over Corruption Says He’s Innocent**\
-`A day after Pope Francis dismissed Cardinal Giovanni Maria Becciu without explanation, the once-powerful prelate disclosed the reason, and denied reports accusing him of corruption.`\
+`A day after Pope Francis dismissed Cardinal Giovanni Angelo Becciu without explanation, the once-powerful prelate disclosed the reason, and denied reports accusing him of corruption.`\
 https://nytimes.com/2020/09/25/world/europe/Cardinal-Becciu-Fired.html?searchResultPosition=2
 
 **Coronavirus Briefing: What Happened Today**\
