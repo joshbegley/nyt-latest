@@ -23,7 +23,7 @@ https://nytimes.com/2020/09/25/sports/hockey/nhl-bubble-families.html?searchResu
 https://nytimes.com/2020/09/25/learning/dark-cloud.html?searchResultPosition=6
 
 **Kim Jong-un Offers South Korea Rare Apology for Killing of Official**\
-`“I am deeply sorry that an unexpected and unfortunate thing has happened in our territorial waters,” the North Korean leader said in a telephone message, officials in the South said.`\
+`“I am deeply sorry that an unexpected and unfortunate thing has happened in our territorial waters,” the North Korean leader said in a message, according to officials in the South.`\
 https://nytimes.com/2020/09/25/world/asia/korea-kim-jong-un-apology-killing-defector.html?searchResultPosition=7
 
 **Word + Quiz: parity**\
