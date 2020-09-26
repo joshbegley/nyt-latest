@@ -10,13 +10,13 @@ https://nytimes.com/2020/09/26/technology/amazon-coronavirus-pandemic.html?searc
 `Veterans, gamers, history buffs and gun enthusiasts are shelling out to take part in military simulations.`\
 https://nytimes.com/2020/09/26/style/milsim-military-simulation.html?searchResultPosition=3
 
-**Pandemic Will ‘Take Our Women 10 Years Back’ in the Workplace**\
-`Improvements in gender equality in the workplace may be another casualty of the coronavirus, as women find their place in the work force more at risk.`\
-https://nytimes.com/2020/09/26/world/covid-women-childcare-equality.html?searchResultPosition=4
-
 **This Carousel Has Had Quite a Ride. Will Anyone in Japan Save It?**\
 `The 113-year-old merry-go-round, which arrived in Tokyo after stints in Germany and Coney Island, is now in storage, its fate uncertain in a country that tends to preserve only the very old.`\
-https://nytimes.com/2020/09/26/world/asia/japan-carousel.html?searchResultPosition=5
+https://nytimes.com/2020/09/26/world/asia/japan-carousel.html?searchResultPosition=4
+
+**Pandemic Will ‘Take Our Women 10 Years Back’ in the Workplace**\
+`Improvements in gender equality in the workplace may be another casualty of the coronavirus, as women find their place in the work force more at risk.`\
+https://nytimes.com/2020/09/26/world/covid-women-childcare-equality.html?searchResultPosition=5
 
 **The Judicial Wars Started on Biden’s Watch. Can He End Them?**\
 `He reveres Senate custom and recognizes the courts’ essential role in shaping a policy agenda. Those dual instincts have perhaps never been in greater conflict.`\
