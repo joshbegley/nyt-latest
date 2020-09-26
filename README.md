@@ -1,4 +1,4 @@
-**Top U.S. Lands Official Has Served Unlawfully for 424 Days, Judge Rules**\
+**Top U.S. Lands Official Served Unlawfully for Over a Year, a Federal Judge Rules**\
 `A federal judge in Montana ordered William Perry Pendley, whose appointment was not confirmed by the Senate, to leave the position.`\
 https://nytimes.com/2020/09/26/us/william-perry-pendley-blm.html?searchResultPosition=1
 
@@ -18,9 +18,9 @@ https://nytimes.com/video/us/politics/100000007363001/trump-scotus-announcement.
 `The man, Shehroze Chaudhry, created a political storm in Canada with his assertions that he participated in atrocities by ISIS in Syria.`\
 https://nytimes.com/2020/09/26/world/canada/Shehroze-Chaudhry-isis-canada.html?searchResultPosition=5
 
-**Biden doesn’t discuss the court, but accuses Trump of dividing the country.**\
+**Before Trump’s Supreme Court announcement, Biden accuses him of dividing the country.**\
 `By Matt Stevens and Michael Levenson`\
-https://nytimes.com/2020/09/26/us/politics/biden-doesnt-discuss-the-court-but-accuses-trump-of-dividing-the-country.html?searchResultPosition=6
+https://nytimes.com/2020/09/26/us/politics/before-trumps-supreme-court-announcement-biden-accuses-him-of-dividing-the-country.html?searchResultPosition=6
 
 **Democrats Don’t Want to Get Personal in Debate Over Coney Barrett**\
 `Joseph Biden and Democrats are wary of criticism of Judge Amy Coney Barrett that could be perceived as personal attacks. They will focus on the real-world impact she might have as a Supreme Court justice on health care and access to abortion.`\
