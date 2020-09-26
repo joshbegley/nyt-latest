@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/26/opinion/amy-coney-barrett-nominee.html?searchResu
 https://nytimes.com/2020/09/26/obituaries/dr-rebecca-shadowen-covid.html?searchResultPosition=3
 
 **U.S. Places Restrictions on China’s Leading Chip Maker**\
-`The export controls follow a review in which the United States concluded that Semiconductor Manufacturing International Corporation may be supplying chips to the Chinese military.`\
+`The export controls follow a review in which the United States concluded that Semiconductor Manufacturing International Corporation’s chips may be used by the Chinese military.`\
 https://nytimes.com/2020/09/26/technology/trump-china-smic-blacklist.html?searchResultPosition=4
 
 **Michael Lonsdale, a Bond Villain and Much More, Dies at 89**\
