@@ -34,7 +34,7 @@ https://nytimes.com/2020/09/26/opinion/sunday/trump-politics-humor.html?searchRe
 `Demonstrators flouted social distancing rules at a rally in central London against new coronavirus restrictions. A day earlier, Britain saw its highest daily number of new infections since the start of the pandemic.`\
 https://nytimes.com/video/world/europe/100000007363010/london-coronavirus-lockdown-protest.html?searchResultPosition=9
 
-**Portland Fears Violence as ‘Proud Boys’ Group Descends on City**\
-`The Oregon governor declared an emergency in advance of the event hosted by a right-wing group with a history of violence at protests. Local Black activists planned an event nearby.`\
+**New Protests in Portland as ‘Proud Boys’ Group Descends on City**\
+`Ralliers gathered at three locations as a large police presence attempted to keep them apart. The Oregon governor declared an emergency ahead of the event hosted by a right-wing group with a history of violence at protests.`\
 https://nytimes.com/2020/09/26/us/portland-proud-boys-protests.html?searchResultPosition=10
 
