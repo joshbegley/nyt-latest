@@ -23,7 +23,7 @@ https://nytimes.com/2020/09/26/us/coronavirus-vermont-transplants.html?searchRes
 https://nytimes.com/2020/09/26/us/colorado-lauren-boebert-congress.html?searchResultPosition=6
 
 **Barrett’s Record: A Conservative Who Would Push the Supreme Court to the Right**\
-`As an appeals court judge, her opinions have reflected those of her mentor, Justice Antonin Scalia, but with few of his occasional liberal rulings.`\
+`As an appeals court judge, Judge Barrett has issued opinions that have reflected those of her mentor, Justice Antonin Scalia, but with few of his occasional liberal rulings.`\
 https://nytimes.com/2020/09/26/us/amy-coney-barrett-views-abortion-health-care.html?searchResultPosition=7
 
 **Barrett Clerked for Scalia. Conservatives Hope She’ll Follow His Path.**\
