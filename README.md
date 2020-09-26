@@ -1,6 +1,6 @@
 **Full Transcript: Read Judge Amy Coney Barrett’s Remarks**\
 `President Trump announced on Saturday that he would nominate Judge Barrett to the Supreme Court to fill the vacancy left by Justice Ruth Bader Ginsburg.`\
-https://nytimes.com/2020/09/26/us/politics/full-transcript-amy-coney-barretts.html?searchResultPosition=1
+https://nytimes.com/2020/09/26/us/politics/full-transcript-amy-coney-barrett.html?searchResultPosition=1
 
 **Scalia’s ‘Judicial Philosophy Is Mine Too,’ Amy Coney Barrett Says**\
 `President Trump nominated Judge Barrett to replace Justice Ruth Bader Ginsburg on the Supreme Court. The confirmation of Judge Barrett, a deeply conservative jurist, could shift the balance of the court firmly to the right.`\
