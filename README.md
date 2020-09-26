@@ -1,4 +1,4 @@
-**‘Schitts Creek’s’ Star, and His Fans, Are Taking Indigenous Studies**\
+**‘Schitt’s Creek’ Star, and His Fans, Are Taking Indigenous Studies**\
 `Dan Levy suggested in an Instagram post that his fans study Canadian Indigenous history along with him. About 64,000 people signed up.`\
 https://nytimes.com/2020/09/26/world/canada/schitts-creek-dan-levy-indigenous.html?searchResultPosition=1
 
