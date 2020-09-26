@@ -1,6 +1,6 @@
-**Paris Attack Suspect Said It Was Aimed at Paper That Mocked Islam’s Prophet**\
+**Paris Suspect Said Attack Was Aimed at Paper That Mocked Islam’s Prophet**\
 `An 18-year-old immigrant from Pakistan was arrested on Friday after the stabbing of two people near the former offices of the satirical newspaper Charlie Hebdo, which was targeted in a 2015 terrorist attack.`\
-https://nytimes.com/2020/09/26/world/europe/paris-attack-suspect-said-it-was-aimed-at-paper-that-mocked-islams-prophet.html?searchResultPosition=1
+https://nytimes.com/2020/09/26/world/europe/paris-suspect-said-attack-was-aimed-at-paper-that-mocked-islams-prophet.html?searchResultPosition=1
 
 **Remembering Ruth Bader Ginsburg**\
 `Photos capture the Supreme Court justice’s life and legacy, from her Brooklyn girlhood to a late-in-life turn as the Notorious R.B.G.`\
