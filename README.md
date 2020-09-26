@@ -19,7 +19,7 @@ https://nytimes.com/2020/09/26/world/canada/schitts-creek-dan-levy-indigenous.ht
 https://nytimes.com/2020/09/26/world/australia/tasmania-beached-whales.html?searchResultPosition=5
 
 **Covid-19 Live Updates: Under 10 Percent in U.S. Have Antibodies, Study Finds**\
-`The pandemic has been a significant, and tough, setback for working women. The governor of Bali, who reopened the Indonesian island to domestic tourism, has tested positive for the virus.`\
+`The Navajo Nation, the largest U.S. Indian reservation, restores a full weekend lockdown as cases spike. The governor of Bali, who reopened the Indonesian island to domestic tourism, has tested positive.`\
 https://nytimes.com/2020/09/26/world/covid-19-coronavirus.html?searchResultPosition=6
 
 **In Melbourne, Springtime Ushers in a New Sense of Hope**\
