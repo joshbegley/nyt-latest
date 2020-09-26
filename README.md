@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/26/us/politics/north-carolina-voting.html?searchResultPosition=1
 
 **Watch Live: Trump Announces Supreme Court Nominee**\
-`President Trump is expected to announce Judge Amy Coney Barrett as his nominee to succeed the late Justice Ruth Bader Ginsburg on the Supreme Court.`\
+`President Trump is announcing Judge Amy Coney Barrett as his nominee to succeed the late Justice Ruth Bader Ginsburg on the Supreme Court.`\
 https://nytimes.com/video/us/politics/100000007363001/trump-scotus-announcement.html?searchResultPosition=2
 
 **Canadian Police Charge Man With Faking Terrorist Activity**\
