@@ -1,40 +1,40 @@
+**Amy Coney Barrett Is No Ruth Bader Ginsburg**\
+`When it comes to the Supreme Court, we’ve been to this identity politics movie before.`\
+https://nytimes.com/2020/09/26/opinion/amy-coney-barrett-nominee.html?searchResultPosition=1
+
 **Dr. Rebecca Shadowen, Expert in Infectious Diseases, Dies at 62**\
 `Dr. Shadowen, ill with the coronavirus, continued to attend working group meetings. She eventually died of Covid-19.`\
-https://nytimes.com/2020/09/26/obituaries/dr-rebecca-shadowen-covid.html?searchResultPosition=1
+https://nytimes.com/2020/09/26/obituaries/dr-rebecca-shadowen-covid.html?searchResultPosition=2
 
 **U.S. Places Restrictions on China’s Leading Chip Maker**\
 `The export controls follow a review in which the United States concluded that Semiconductor Manufacturing International Corporation may be supplying chips to the Chinese military.`\
-https://nytimes.com/2020/09/26/technology/trump-china-smic-blacklist.html?searchResultPosition=2
+https://nytimes.com/2020/09/26/technology/trump-china-smic-blacklist.html?searchResultPosition=3
 
 **Michael Lonsdale, a Bond Villain and Much More, Dies at 89**\
 `He was best known to many as Hugo Drax in “Moonraker.” But he also worked with a Who’s Who of directors including Truffaut, Spielberg and Marguerite Duras.`\
-https://nytimes.com/2020/09/26/movies/michael-lonsdale-dead.html?searchResultPosition=3
+https://nytimes.com/2020/09/26/movies/michael-lonsdale-dead.html?searchResultPosition=4
 
 **For U.K.’s Boris Johnson, Hardball Tactics Seem the Only Way to a Brexit Deal**\
 `With a combative style, Mr. Johnson has pointedly avoided comparisons to Theresa May, his predecessor. But will his strategy yield a deal?`\
-https://nytimes.com/2020/09/26/world/europe/boris-johnson-brexit.html?searchResultPosition=4
+https://nytimes.com/2020/09/26/world/europe/boris-johnson-brexit.html?searchResultPosition=5
 
 **Pennsylvania: In a county Trump flipped, Democrats seek voters willing to flip back.**\
 `By Jon Hurdle`\
-https://nytimes.com/2020/09/26/us/politics/pennsylvania-voting.html?searchResultPosition=5
+https://nytimes.com/2020/09/26/us/politics/pennsylvania-voting.html?searchResultPosition=6
 
 **‘Schitt’s Creek’ Star, and His Fans, Are Taking Indigenous Studies**\
 `Dan Levy suggested in an Instagram post that his fans study Canadian Indigenous history along with him. About 64,000 people signed up.`\
-https://nytimes.com/2020/09/26/world/canada/schitts-creek-dan-levy-indigenous.html?searchResultPosition=6
+https://nytimes.com/2020/09/26/world/canada/schitts-creek-dan-levy-indigenous.html?searchResultPosition=7
 
 **Tasmania Whale Rescue Ends With 108 Saved and Over 300 Dead**\
 `The whale beaching, one of the largest strandings ever recorded globally, prompted a five-day rescue effort.`\
-https://nytimes.com/2020/09/26/world/australia/tasmania-beached-whales.html?searchResultPosition=7
+https://nytimes.com/2020/09/26/world/australia/tasmania-beached-whales.html?searchResultPosition=8
 
 **Covid-19 Live Updates: Under 10 Percent in U.S. Have Antibodies, Study Finds**\
 `The Navajo Nation, the largest U.S. Indian reservation, restores a full weekend lockdown as cases spike. The governor of Bali, who reopened the Indonesian island to domestic tourism, has tested positive.`\
-https://nytimes.com/2020/09/26/world/covid-19-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/09/26/world/covid-19-coronavirus.html?searchResultPosition=9
 
 **In Melbourne, Springtime Ushers in a New Sense of Hope**\
 `As our Covid-19 restrictions ease, the mood of the city feels like the weather.`\
-https://nytimes.com/2020/09/26/world/australia/melbourne-lockdown-hope.html?searchResultPosition=9
-
-**The Meaning of Amy Coney Barrett**\
-`Ruth Bader Ginsburg’s likely successor could become a different kind of three-initialed icon.`\
-https://nytimes.com/2020/09/26/opinion/amy-coney-barrett-supreme-court.html?searchResultPosition=10
+https://nytimes.com/2020/09/26/world/australia/melbourne-lockdown-hope.html?searchResultPosition=10
 
