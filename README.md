@@ -35,6 +35,6 @@ https://nytimes.com/2020/09/26/world/canada/Shehroze-Chaudhry-isis-canada.html?s
 https://nytimes.com/2020/09/26/us/politics/before-trumps-supreme-court-announcement-biden-accuses-him-of-dividing-the-country.html?searchResultPosition=9
 
 **Democrats Don’t Want to Get Personal in Debate Over Barrett**\
-`Joseph Biden and Democrats are wary of criticism of Judge Amy Coney Barrett that could be perceived as personal attacks. They will focus on the real-world impact she might have as a Supreme Court justice on health care and access to abortion.`\
+`Joseph Biden and other Democrats are wary of criticism of Judge Amy Coney Barrett that could be perceived as personal. They will focus on the real-world impact she might have as a Supreme Court justice on health care and access to abortion.`\
 https://nytimes.com/2020/09/26/us/politics/coney-barrett-biden-democrats-supreme-court.html?searchResultPosition=10
 
