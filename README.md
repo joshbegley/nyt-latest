@@ -10,13 +10,13 @@ https://nytimes.com/2020/09/27/world/europe/scotland-gold.html?searchResultPosit
 `A Times/Siena College poll showed that 56 percent said the next president should nominate a Supreme Court justice. And Joe Biden retained a clear lead over President Trump, 49 to 41 percent.`\
 https://nytimes.com/2020/09/27/us/politics/poll-supreme-court-trump-biden.html?searchResultPosition=3
 
-**With Nominee Set, Senate Republicans Plot Swift Supreme Court Confirmation**\
-`Republicans planned to hold four days of nationally televised public hearings the week of Oct. 12, aiming for a vote on the Senate floor by late October, just days before the election.`\
-https://nytimes.com/2020/09/27/us/politics/senate-supreme-court-nominee.html?searchResultPosition=4
-
 **Sudan Is Focus of U.S. Efforts to Improve Ties With Israel**\
 `The U.S. is offering cash and promises to entice Sudan to recognize Israel before the American election, while the big prize, Saudi Arabia, remains out of reach.`\
-https://nytimes.com/2020/09/27/world/middleeast/sudan-us-israel-peace-recognize.html?searchResultPosition=5
+https://nytimes.com/2020/09/27/world/middleeast/sudan-us-israel-peace-recognize.html?searchResultPosition=4
+
+**With Nominee Set, Senate Republicans Plot Swift Supreme Court Confirmation**\
+`Republicans planned to hold four days of nationally televised public hearings the week of Oct. 12, aiming for a vote on the Senate floor by late October, just days before the election.`\
+https://nytimes.com/2020/09/27/us/politics/senate-supreme-court-nominee.html?searchResultPosition=5
 
 **By Lowering the Debate Bar for Biden, Has Trump Set a Trap for Himself?**\
 `President Trump has worked overtime to persuade followers that Joe Biden is addled and incoherent. That could backfire if Mr. Biden doesn’t fit the caricature.`\
