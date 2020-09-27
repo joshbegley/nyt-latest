@@ -1,4 +1,4 @@
-**N.F.L. Week 2: Is the Buffalo Bills’ Hot Start Legit?**\
+**N.F.L. Week 3: Is the Buffalo Bills’ Hot Start Legit?**\
 `Josh Allen and Stefon Diggs will try to keep Buffalo’s high-octane offense gunning against the 2-0 Los Angeles Rams.`\
 https://nytimes.com/2020/09/27/sports/football/nfl-scores-live.html?searchResultPosition=1
 
