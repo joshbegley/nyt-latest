@@ -2,7 +2,7 @@
 `Lynn Lempel gives us a giggle.`\
 https://nytimes.com/2020/09/27/crosswords/play-it-as-it-lays.html?searchResultPosition=1
 
-**Patriots Turn to Burkhead, and the Run After Newton Falters Early**\
+**Patriots Turn to Burkhead and the Run After Newton Falters Early**\
 `New England struggled to get its passing offense going against the Raiders but got timely dashes from running backs Rex Burkhead and Sony Michel.`\
 https://nytimes.com/2020/09/27/sports/football/patriots-raiders-score-cam-newton-rex-burkhead.html?searchResultPosition=2
 
