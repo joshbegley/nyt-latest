@@ -6,8 +6,8 @@ https://nytimes.com/2020/09/27/sports/baseball/mets-fred-wilpon.html?searchResul
 `Hive mind, unite!`\
 https://nytimes.com/2020/09/27/crosswords/do-you-play-spelling-bee-lets-talk.html?searchResultPosition=2
 
-**California Woman Is Charged After Two Protesters Struck by Car**\
-`The driver was charged with attempted murder and assault with a deadly weapon on Saturday, the authorities said.`\
+**California Driver Charged After Striking Two Protesters, Police Say**\
+`The woman was charged with attempted murder and assault with a deadly weapon on Saturday, the authorities said.`\
 https://nytimes.com/2020/09/27/us/tatiana-turner-yorba-linda-protest.html?searchResultPosition=3
 
 **Big Business’s Undisclosed Climate Crisis Plans**\
