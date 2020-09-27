@@ -22,8 +22,8 @@ https://nytimes.com/video/world/australia/100000007363642/melbourne-coronavirus-
 `In films like “Memento” and “Inception,” the director’s time shifts and intricate action require careful calibration by editors, stunt performers and others.`\
 https://nytimes.com/2020/09/27/movies/christopher-nolan-film-editing.html?searchResultPosition=6
 
-**In Pakistan, the Rising Tide of Climate Disasters**\
-`The country debates women’s honor inexhaustibly but pays little attention to the ferocious and imminent dangers of climate change.`\
+**Pakistan’s Most Terrifying Adversary Is Climate Change**\
+`The country debates women’s honor inexhaustibly but pays little attention to the ferocious and imminent dangers of climate disasters.`\
 https://nytimes.com/2020/09/27/opinion/pakistan-climate-change.html?searchResultPosition=7
 
 **At Trial, Jewish Victims of 2015 Paris Attack Ask: Why the Hatred?**\
