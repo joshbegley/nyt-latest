@@ -1,5 +1,5 @@
-**California Woman Is Charged After Striking Two Protesters With Car, Police Say**\
-`The woman was charged with attempted murder and assault with a deadly weapon on Saturday, the authorities said.`\
+**California Woman Is Charged After Two Protesters Struck by Car**\
+`The driver was charged with attempted murder and assault with a deadly weapon on Saturday, the authorities said.`\
 https://nytimes.com/2020/09/27/us/tatiana-turner-yorba-linda-protest.html?searchResultPosition=1
 
 **Big Business’s Undisclosed Climate Crisis Plans**\
