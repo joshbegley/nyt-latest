@@ -26,11 +26,11 @@ https://nytimes.com/2020/09/26/us/william-perry-pendley-blm.html?searchResultPos
 `Alex Eaton-Salners provides the ingredients for a sumptuous Sunday solve.`\
 https://nytimes.com/2020/09/26/crosswords/daily-puzzle-2020-09-27.html?searchResultPosition=8
 
+**The Judiciary Committee is expected to hold hearings starting Oct. 12. Here is what’s next.**\
+`Senator Mitch McConnell of Kentucky, the Republican majority leader, has already vowed that the Senate will vote on President Trump’s Supreme Court nominee by the end of the year, though he has not made clear whether that will happen before Election Day, Nov. 3.`\
+https://nytimes.com/2020/09/26/us/politics/the-judiciary-committee-is-expected-to-hold-hearings-starting-oct-12-here-is-whats-next.html?searchResultPosition=9
+
 **North Carolina: An empty campus says a lot about the state of the race.**\
 `By Jonathan Martin`\
-https://nytimes.com/2020/09/26/us/politics/north-carolina-voting.html?searchResultPosition=9
-
-**Watch: Trump Names Amy Coney Barrett Supreme Court Nominee**\
-`President Trump announced Judge Amy Coney Barrett as his nominee to succeed the late Justice Ruth Bader Ginsburg on the Supreme Court.`\
-https://nytimes.com/video/us/politics/100000007363001/trump-scotus-announcement.html?searchResultPosition=10
+https://nytimes.com/2020/09/26/us/politics/north-carolina-voting.html?searchResultPosition=10
 
