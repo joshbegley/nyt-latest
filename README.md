@@ -35,6 +35,6 @@ https://nytimes.com/2020/09/27/theater/tony-tanner-dead.html?searchResultPositio
 https://nytimes.com/2020/09/27/nyregion/nypd-west-village-arrests.html?searchResultPosition=9
 
 **Officers Rush a West Village Intersection**\
-`Dozens of N.Y.P.D. officers charged into a group of people near an intersection in the West Village, arresting several. Video of the incident drew strong criticism of what appears to be unprovoked police violence.`\
+`Dozens of N.Y.P.D. officers charged into a group of people near an intersection in the West Village, arresting several. Video of the incident drew strong criticism that the officers had used unnecessary force.`\
 https://nytimes.com/video/nyregion/100000007363665/nypd-rushes-protesters-west-village.html?searchResultPosition=10
 
