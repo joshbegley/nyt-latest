@@ -26,7 +26,7 @@ https://nytimes.com/2020/09/27/briefing/coronavirus-xinjiang-supreme-court.html?
 `In a new show on a new network, the anchor wants a ‘no pundits’ approach: ‘We’re not interested in helping you know how to think.’`\
 https://nytimes.com/2020/09/27/business/media/shepard-smith-fox-news-cnbc.html?searchResultPosition=7
 
-**Futures in Peril: Takeaways From Rise of Child Labor in Pandemic**\
+**Futures in Peril: The Rise of Child Labor in the Pandemic**\
 `With schools closed and families desperate for income, millions of children are being forced into work that is often dangerous, arduous and illegal.`\
 https://nytimes.com/2020/09/27/world/asia/coronavirus-education-child-labor.html?searchResultPosition=8
 
