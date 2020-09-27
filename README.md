@@ -30,7 +30,7 @@ https://nytimes.com/2020/09/26/us/william-perry-pendley-blm.html?searchResultPos
 `Alex Eaton-Salners provides the ingredients for a sumptuous Sunday solve.`\
 https://nytimes.com/2020/09/26/crosswords/daily-puzzle-2020-09-27.html?searchResultPosition=9
 
-**The Judiciary Committee is expected to hold hearings starting Oct. 12. Here is what’s next.**\
+**The Judiciary Committee will hold hearings starting Oct. 12. Here is what’s next.**\
 `Senator Mitch McConnell of Kentucky, the Republican majority leader, has already vowed that the Senate will vote on President Trump’s Supreme Court nominee by the end of the year, though he has not made clear whether that will happen before Election Day, Nov. 3.`\
-https://nytimes.com/2020/09/26/us/politics/the-judiciary-committee-is-expected-to-hold-hearings-starting-oct-12-here-is-whats-next.html?searchResultPosition=10
+https://nytimes.com/2020/09/26/us/politics/the-judiciary-committee-will-hold-hearings-starting-oct-12-here-is-whats-next.html?searchResultPosition=10
 
