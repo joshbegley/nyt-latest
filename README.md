@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Kids Need Superheroes Now More Than Ever’**\
-`In this lesson, students will learn why one author believes that comic book heroes can help children get through these difficult times. Then, they will create their own superhero to help us cope.`\
-https://nytimes.com/2020/09/28/learning/lesson-of-the-day-kids-need-superheroes-now-more-than-ever.html?searchResultPosition=1
+**Glimpses of the Isolated Communities Along a Remote Siberian River**\
+`Once a vast prison ground for political exiles, the banks of the Ket River are now home to a range of solitary settlements.`\
+https://nytimes.com/2020/09/28/travel/russia-ket-river-siberia.html?searchResultPosition=1
 
-**Some Workers Face Looming Cutoffs in Health Insurance**\
-`Coverage is a major expense for employers, especially those in small businesses, as they deal with the pandemic’s economic fallout. Many may face end-of-year renewal deadlines that are harder and harder to afford.`\
-https://nytimes.com/2020/09/28/health/Covid-health-insurance.html?searchResultPosition=2
+**Black Microbiologists Push for Visibility Amid a Pandemic**\
+`A week of talks, panels and discussions seeks to counter an impression “that this talent pool just does not exist.”`\
+https://nytimes.com/2020/09/28/science/black-microbiology-week.html?searchResultPosition=2
 
-**From Cars to Jewelry, China’s Shoppers Are Spending Again**\
-`Big crowds at places like the Beijing auto show are a sign of good news for a world mired in recession. But China needs its less affluent to spend more before its growth engine can return to full speed.`\
-https://nytimes.com/2020/09/28/business/china-consumers-beijing-auto-show.html?searchResultPosition=3
+**For Conservative Christian Women, Amy Coney Barrett’s Success Is Personal**\
+`Judge Barrett is a new kind of icon for some, one they have not seen before in American cultural and political life.`\
+https://nytimes.com/2020/09/28/us/amy-coney-barrett-christian-women.html?searchResultPosition=3
 
-**Hockey Needs Viewers. It Should Not Glorify Pain and Violence to Get Them.**\
-`A promotional video posted by the N.H.L. that glorified pain showed a disturbing embrace of violence by the league. The post has since been deleted.`\
-https://nytimes.com/2020/09/28/sports/hockey/stanley-cup-fights-nhl-video.html?searchResultPosition=4
+**Cal Athletic Director: Football Will Help School Balance Sports Budget**\
+`California has been considering how to adjust with a $55 million budget shortfall. An influx of TV money by staging a football season will help.`\
+https://nytimes.com/2020/09/28/sports/ncaafootball/cal-athletic-director.html?searchResultPosition=4
 
-**Jackson-Mahomes III: ‘The Whole World Is Watching’**\
-`They’re under 26, have won M.V.P.s and they can seemingly do anything. On Monday night, the N.F.L. gets a boost from the latest installment of its best current rivalry.`\
-https://nytimes.com/2020/09/28/sports/football/patrick-mahomes-lamar-jackson.html?searchResultPosition=5
+**The Reality TV Host vs. the Velvet Shiv: Trump and Biden in Debates**\
+`Joe Biden and Donald Trump will bring very different histories and styles to their presidential debate on Tuesday.`\
+https://nytimes.com/2020/09/28/us/politics/trump-biden-debate-styles.html?searchResultPosition=5
 
-**The Best 60-Game Stretch in a Century Belongs to Ichiro Suzuki**\
-`No one managed to hit .400 this year despite excited speculation about the possibility in a truncated season, underscoring how impressive Suzuki’s late-season stretch in 2004 was.`\
-https://nytimes.com/2020/09/28/sports/baseball/ichiro-suzuki-2004-60-games.html?searchResultPosition=6
+**Masks, Floor Decals, Mute Buttons: How Schools Are Scrambling to Open**\
+`Most students who have chosen in-person learning will be returning to classrooms this week. Teachers and principals are racing to be ready for them.`\
+https://nytimes.com/2020/09/28/nyregion/nyc-schools-reopening-coronavirus.html?searchResultPosition=6
 
-**Word + Quiz: arcane**\
-`This word has appeared in 122 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/09/28/learning/word-quiz-arcane.html?searchResultPosition=7
+**A Theory About Conspiracy Theories**\
+`In a new study, psychologists tried to get a handle on the personality types that might be prone to outlandish beliefs.`\
+https://nytimes.com/2020/09/28/health/psychology-conspiracy-theories.html?searchResultPosition=7
 
-**What’s on TV This Week: ‘Saturday Night Live’ and the First Presidential Debate**\
-`Chris Rock hosts the return of “Saturday Night Live,” President Trump and Joe Biden face off in their first debate and Jimmy Stewart and Jean Arthur star in the classic Frank Capra film “You Can’t Take It With You.”`\
-https://nytimes.com/2020/09/28/arts/television/whats-on-tv-saturday-night-live-premiere.html?searchResultPosition=8
+**How Joe Biden Is Preparing for the Biggest Debate of His Life**\
+`The first debate between Joseph R. Biden Jr. and President Trump on Tuesday represents one of the president’s last, best chances to move a race that polls show him losing. There are risks for Mr. Biden, too.`\
+https://nytimes.com/2020/09/28/us/politics/biden-debate.html?searchResultPosition=8
 
-**Quotation of the Day: Put Down Your Pencils, but Not Your Mask: SATs in the Covid Era**\
-`Quotation of the Day for Monday, September 28, 2020.`\
-https://nytimes.com/2020/09/28/todayspaper/quotation-of-the-day-put-down-your-pencils-but-not-your-mask-sats-in-the-covid-era.html?searchResultPosition=9
+**Coronavirus Brings a Medical Resident to the Bronx**\
+`She put her career on hold to raise a family, but the pandemic gave her a chance to become a doctor.`\
+https://nytimes.com/2020/09/28/realestate/bronx-renter-coronavirus-doctor.html?searchResultPosition=9
 
-**No Corrections: Sept. 28, 2020**\
-`No corrections appeared in print on Monday, Sept. 28, 2020.`\
-https://nytimes.com/2020/09/28/pageoneplus/no-corrections-sept-28-2020.html?searchResultPosition=10
+**Seeing Ourselves in Bloom**\
+`Cristina Martinez makes paintings for hyphenated American life.`\
+https://nytimes.com/2020/09/28/us/seeing-ourselves-in-bloom.html?searchResultPosition=10
 
