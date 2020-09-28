@@ -2,7 +2,7 @@
 `Selective mutism is a common anxiety condition whereby kids who are normally chatty at home clam up around outsiders or at school.`\
 https://nytimes.com/2020/09/28/parenting/anxiety-selective-mutism-kids.html?searchResultPosition=1
 
-**Coronavirus Cases Rise in New York, Prompting Concerns**\
+**Warnings Issued as Virus Cases Rise in New York**\
 `Clusters of cases have emerged in Brooklyn and New York City’s northern suburbs, in areas with large Orthodox Jewish communities.`\
 https://nytimes.com/2020/09/28/nyregion/ny-coronavirus-cases.html?searchResultPosition=2
 
