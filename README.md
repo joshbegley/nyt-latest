@@ -27,7 +27,7 @@ https://nytimes.com/2020/09/27/sports/baseball/yankees-lemahieu-voit.html?search
 https://nytimes.com/2020/09/27/sports/darnold-throws-three-interceptions-in-blowout-loss.html?searchResultPosition=7
 
 **What We Learned From Week 3 of the N.F.L. Season**\
-`Fourth quarter leads were far from safe in a week where Buffalo, Pittsburgh, Tennessee, Seattle and Chicago — yes, the Bears — improved to 3-0.`\
+`Fourth quarter leads were far from safe in a week where Green Bay, Buffalo, Pittsburgh, Tennessee, Seattle and Chicago — yes, the Bears — improved to 3-0.`\
 https://nytimes.com/2020/09/27/sports/football/week-3-nfl-results.html?searchResultPosition=8
 
 **Trump Wants to Discredit the Election. This Nerd Could Stop Him.**\
