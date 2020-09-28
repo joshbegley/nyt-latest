@@ -27,7 +27,7 @@ https://nytimes.com/2020/09/28/books/review-missionaries-phil-klay.html?searchRe
 https://nytimes.com/2020/09/28/technology/how-save-the-children-is-keeping-qanon-alive.html?searchResultPosition=7
 
 **Trump, Biden and ‘Made in U.S.A.’: Same Refrain, Varying Notes**\
-`Biden’s economic policy proposals show how the president has shifted the playing field toward protectionism. But there may be fewer jobs to lose, or regain.`\
+`Joe Biden’s economic proposals show how the president has shifted the playing field toward protectionism. But there may be fewer jobs to lose, or regain.`\
 https://nytimes.com/2020/09/28/business/economy/biden-trump-made-in-usa.html?searchResultPosition=8
 
 **The Revelations About Donald Trump’s Taxes**\
