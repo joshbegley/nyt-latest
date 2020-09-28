@@ -1,40 +1,40 @@
-**Tanqueray, Humans of New York Star, Brings in $1.5 Million in Donations**\
-`Stephanie Johnson, 76, returned to the blog to share stories from her incredible life, this time for a cause.`\
-https://nytimes.com/2020/09/28/style/tanqueray-humans-of-new-york.html?searchResultPosition=1
+**Watch Paris Fashion Week Now**\
+`Watch along with us.`\
+https://nytimes.com/2020/09/28/fashion/watch-paris-fashion-week-now.html?searchResultPosition=1
 
-**Amid the Monument Wars, a Rally for ‘More History’**\
-`Historians recently gathered at Civil War sites across the country in an effort to highlight distortions, omissions and the erasure of Black contributions.`\
-https://nytimes.com/2020/09/28/arts/civil-war-monuments.html?searchResultPosition=2
+**Apple and Epic Games Spar Over Returning Fortnite to the App Store**\
+`The two companies argued in federal court over Apple’s power over apps, as their fight heads to trial next year.`\
+https://nytimes.com/2020/09/28/technology/apple-epic-app-court.html?searchResultPosition=2
 
-**$20 Million Settlement Reached in Officer’s Fatal Shooting of Handcuffed Man**\
-`Michael Owen, a police corporal in Prince George’s County, Md., shot William H. Green six times while he was in a patrol car in January, the authorities said.`\
-https://nytimes.com/2020/09/28/us/william-green-settlement.html?searchResultPosition=3
+**Former Fashion Models Accuse Top Agent of Rape and Sexual Assault**\
+`Prosecutors in Paris are reviewing a complaint containing claims against Gérald Marie, former European chief of Elite Model Management, dating back decades.`\
+https://nytimes.com/2020/09/28/world/europe/gerald-marie-france-models-accusations.html?searchResultPosition=3
 
-**The New Helicopter Parents Are on Zoom**\
-`With kids needing so much help in remote learning, we may be pushed to become the parents we never wanted to be.`\
-https://nytimes.com/2020/09/28/parenting/helicopter-parent-remote-learning.html?searchResultPosition=4
+**The Ship That Stopped 7,000 Migrants, and Smuggled 700,000 Cigarettes**\
+`The Caprera, an Italian warship, was deployed to Tripoli to help combat people-smugglers in Libya. Some of its sailors gathered a cargo of contraband.`\
+https://nytimes.com/2020/09/28/world/europe/italy-warship-migrants-libya-cigarettes-smuggling.html?searchResultPosition=4
 
-**Kamala Harris says appointing Amy Coney Barrett to the Supreme Court would imperil health care and abortion rights.**\
-`Senator Kamala Harris warns of far-reaching consequences to American society if Judge Amy Coney Barrett is confirmed to the Supreme Court.`\
-https://nytimes.com/2020/09/28/us/kamala-harris-supreme-court.html?searchResultPosition=5
+**Harry Evans, Potentate of Print, Was Also a Social Butterfly**\
+`He and his wife Tina Brown hosted and attended some of New York’s most memorable gatherings. (Back when we gathered.)`\
+https://nytimes.com/2020/09/28/style/harry-evans-tina-brown-parties-bill-clinton-al-gore-tony-blair.html?searchResultPosition=5
 
-**Donald Trump Was the Real Winner of ‘The Apprentice’**\
-`The reality show temporarily revived his business fortunes by creating the illusion that he was already doing great.`\
-https://nytimes.com/2020/09/28/arts/television/trump-taxes-apprentice.html?searchResultPosition=6
+**Trump’s Taxes, Presidential Debate, Virus Deaths: Your Monday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/09/28/briefing/trumps-taxes-presidential-debate-virus-deaths.html?searchResultPosition=6
 
-**In Proud Corners of Afghanistan, New Calls for Autonomy**\
-`In Panjshir, one of the last holdout regions against the Soviets and the Taliban, some would prefer to go their own way rather than support a government negotiating peace with the insurgency.`\
-https://nytimes.com/2020/09/28/world/asia/panjshir-afghanistan-taliban.html?searchResultPosition=7
+**Now Pitching for the Yankees … These 13 Guys**\
+`A quirk in Major League Baseball’s modified postseason format could lead to an unusual assortment of pitchers getting innings aside from the usual starters and relievers.`\
+https://nytimes.com/2020/09/28/sports/baseball/yankees-indians-pitchers-cole.html?searchResultPosition=7
 
-**‘I Love New York’ Is More Than a Motto**\
-`As retail chains abandon Manhattan, New Yorkers can rebuild a city that is more hospitable to its small businesses.`\
-https://nytimes.com/2020/09/28/opinion/new-york-small-businesses.html?searchResultPosition=8
+**How I Cover a Debate**\
+`This time, the setting is different (my couch). But the approach is the same (I get lots of help).`\
+https://nytimes.com/2020/09/28/insider/covering-a-debate.html?searchResultPosition=8
 
-**Two New Wildfires Rage in Northern California**\
-`Two fast-moving wildfires in Northern California, the Zogg Fire in Shasta County and the Glass Fire in Napa County, burned more than 26,000 acres and prompted new evacuation orders for thousands of people.`\
-https://nytimes.com/video/climate/100000007365600/napa-county-wildfire-evacuations.html?searchResultPosition=9
+**Supreme Court Vacancy Hasn’t Boosted Trump’s Support in Pennsylvania, a Times Poll Shows**\
+`President Trump had counted on his court nomination over the weekend to shift the election dynamic away from his handling of the coronavirus pandemic. But it has not reset the race in the key battleground state.`\
+https://nytimes.com/2020/09/28/us/politics/supreme-court-pennsylvania-poll.html?searchResultPosition=9
 
-**Your Tuesday Briefing**\
-`China’s vaccines, Trump’s taxes, Zardari: Here’s what you need to know.`\
-https://nytimes.com/2020/09/28/briefing/china-vaccines-economy-trump-tax.html?searchResultPosition=10
+**Swami Agnivesh, Crusader Against Labor Abuses in India, Dies at 81**\
+`A pacifist monk, he championed social justice causes, fighting against child labor, indentured servitude and a rising tide of Hindu fundamentalism.`\
+https://nytimes.com/2020/09/28/world/asia/swami-agnivesh-crusader-against-labor-abuses-in-india-dies-at-81.html?searchResultPosition=10
 
