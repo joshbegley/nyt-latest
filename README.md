@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/28/style/tanqueray-humans-of-new-york.html?searchResultPosition=1
 
 **Amid the Monument Wars, a Rally for ‘More History’**\
-`Historians recently gathered at Civil War sites across the country in an effort to highlight  distortions, omissions and the erasure of Black contributions.`\
+`Historians recently gathered at Civil War sites across the country in an effort to highlight distortions, omissions and the erasure of Black contributions.`\
 https://nytimes.com/2020/09/28/arts/civil-war-monuments.html?searchResultPosition=2
 
 **$20 Million Settlement Reached in Officer’s Fatal Shooting of Handcuffed Man**\
