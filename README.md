@@ -12,7 +12,7 @@ https://nytimes.com/2020/09/28/world/europe/spain-catalonia-quim-torra.html?sear
 
 **The Trump Tax Bombshell**\
 `A Times report unravels much of the mystery: This is your morning tip sheet.`\
-https://nytimes.com/2020/09/28/us/politics/trump-campaign-taxes.html?searchResultPosition=4
+https://nytimes.com/2020/09/28/us/politics/nyt-trump-taxes-explained.html?searchResultPosition=4
 
 **Ex-President of Pakistan Is Indicted on Money Laundering Charges**\
 `The case against Asif Ali Zardari, widower of former Prime Minister Benazir Bhutto, is the latest in a string of moves against opposition figures that his supporters say are politically motivated.`\
