@@ -1,6 +1,6 @@
 **How ‘Save the Children’ Is Keeping QAnon Alive**\
 `Appropriating anti-trafficking narratives is helping the pro-Trump conspiracy theory fuel its community’s hunger for vengeance.`\
-https://nytimes.com/interactive/2020/09/28/business/qanon-facebook-save-the-children.html?searchResultPosition=1
+https://nytimes.com/2020/09/28/technology/how-save-the-children-is-keeping-qanon-alive.html?searchResultPosition=1
 
 **5 Things to Avoid on Prime Day**\
 `There will be many traps to fall into, so watch out.`\
