@@ -11,7 +11,7 @@ https://nytimes.com/2020/09/28/podcasts/the-daily/trump-supreme-court-amy-coney-
 https://nytimes.com/2020/09/28/world/asia/thailand-koh-chang-defamation.html?searchResultPosition=3
 
 **Uber Can Continue Operating in London, Judge Rules**\
-`The decision was the latest in a battle between the ride-hailing giant and London regulators.`\
+`After a battle with transportation regulators, the ride-hailing firm was granted an 18-month license.`\
 https://nytimes.com/2020/09/28/business/uber-london-court.html?searchResultPosition=4
 
 **Corey Johnson Drops Out, Shaking Up the Mayor’s Race**\
