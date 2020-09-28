@@ -20,7 +20,7 @@ https://nytimes.com/2020/09/28/world/europe/europe-coronavirus-protests.html?sea
 
 **What to Know About Voting by Mail in California**\
 `County election officials will soon begin mailing ballots to the state’s 21 million registered voters.`\
-https://nytimes.com/2020/09/28/us/vote-by-mail-california.html?searchResultPosition=6
+https://nytimes.com/article/vote-by-mail-california.html?searchResultPosition=6
 
 **How the Biden-Trump Debate Will Play on TV (Don’t Expect Fact-Checks)**\
 `“My job is to be as invisible as possible,” said Chris Wallace of Fox News, the moderator of the opening matchup on Tuesday.`\
