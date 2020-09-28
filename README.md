@@ -10,7 +10,7 @@ https://nytimes.com/2020/09/28/us/politics/trump-campaign-taxes.html?searchResul
 `The case against Asif Ali Zardari, widower of former Prime Minister Benazir Bhutto, is the latest in a string of moves against opposition figures that his supporters say are politically motivated.`\
 https://nytimes.com/2020/09/28/world/asia/pakistan-asif-ali-zardari-imran-khan.html?searchResultPosition=3
 
-**DealBook: How Much Did Trump Win by Losing?**\
+**How Much Did Trump Win by Losing?**\
 `A major investigation into President Trump’s finances shows that his businesses reported huge losses. That may have been part of the plan.`\
 https://nytimes.com/2020/09/28/business/dealbook/trump-taxes-losses.html?searchResultPosition=4
 
