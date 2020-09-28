@@ -6,7 +6,7 @@ https://nytimes.com/2020/09/28/science/arthur-ashkin-dead.html?searchResultPosit
 `The confirmation process cranked into motion on Capitol Hill as the Senate Judiciary Committee began scrubbing Judge Amy Coney Barrett’s background.`\
 https://nytimes.com/2020/09/28/us/politics/supreme-court-barrett-confirmation.html?searchResultPosition=2
 
-**Tanqueray, Humans of New York Star, Brings in $1.5 Million in Donations**\
+**Tanqueray, Humans of New York Star, Brings in Over $1.5 Million in Donations**\
 `Stephanie Johnson, 76, returned to the blog to share stories from her incredible life, this time for a cause.`\
 https://nytimes.com/2020/09/28/style/tanqueray-humans-of-new-york.html?searchResultPosition=3
 
