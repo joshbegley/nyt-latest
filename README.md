@@ -10,7 +10,7 @@ https://nytimes.com/2020/09/28/dining/michaels-mandel-bread.html?searchResultPos
 `The Kentucky attorney general’s office said it would release the panel’s recordings after a grand juror contended in a court filing that its discussions were inaccurately characterized.`\
 https://nytimes.com/2020/09/28/us/breonna-taylor-grand-jury.html?searchResultPosition=3
 
-**Tampa Bay Lightning Win Stanley Cup in Pandemic ‘Bubble’**\
+**Tampa Bay Lightning Win Stanley Cup in Pandemic Bubble**\
 `The Lightning defeated the Dallas Stars, four games to two, to win their second championship, in a season upended by the coronavirus pandemic.`\
 https://nytimes.com/2020/09/28/sports/hockey/tampa-bay-lightning-win-stanley-cup.html?searchResultPosition=4
 
