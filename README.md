@@ -16,25 +16,25 @@ https://nytimes.com/2020/09/29/style/testing-schools-proctorio.html?searchResult
 
 **Financial Advisors Swap Insights on Tough Client Questions**\
 `Challenging times call for collaborative measures — especially when it comes to finance. `\
-https://nytimes.com/paidpost/2020-09-16/.html?searchResultPosition=5
+https://nytimes.com/paidpost/vanguard/financial-advisors-swap-insights-on-tough-client-questions.html?searchResultPosition=5
+
+**Netanyahu says Israel’s nationwide lockdown won’t be lifted within less than a month, adding it ‘may take much longer than that.’**\
+`By Isabel Kershner`\
+https://nytimes.com/2020/09/29/world/netanyahu-says-israels-nationwide-lockdown-wont-be-lifted-within-less-than-a-month-adding-it-may-take-much-longer-than-that.html?searchResultPosition=6
 
 **What That Viral Clip of Vin Diesel’s Song Debut on ‘The Kelly Clarkson Show’ Says About the Moment**\
 `Live entertainment in 2020 is always a little morbid, and often hilariously awkward.`\
-https://nytimes.com/2020/09/29/style/Kelly-Clarkson-Vin-Diesel-viral.html?searchResultPosition=6
+https://nytimes.com/2020/09/29/style/Kelly-Clarkson-Vin-Diesel-viral.html?searchResultPosition=7
 
 **Review: ‘Miranda’ Poses a Musical Mystery in Virtual Reality**\
 `Airships float by, avatars sing and the audience is the jury in this visually enticing but overstuffed steampunk experiment.`\
-https://nytimes.com/2020/09/29/theater/review-miranda-virtual-reality.html?searchResultPosition=7
+https://nytimes.com/2020/09/29/theater/review-miranda-virtual-reality.html?searchResultPosition=8
 
 **Covid in Children of Color**\
 `A pediatrician writes that bias in the health care system accounts for illness severity in Black children. Also: The value of temperature checks; the Gray Panthers movement continues.`\
-https://nytimes.com/2020/09/29/opinion/letters/covid-black-children.html?searchResultPosition=8
+https://nytimes.com/2020/09/29/opinion/letters/covid-black-children.html?searchResultPosition=9
 
 **In Nagorno-Karabakh, Signs of Escalating and Widening Conflict**\
 `Armenia accuses Azerbaijan of using long-range weaponry in the disputed enclave and threatens to reciprocate, raising concerns that fighting could spread to the territories of both countries.`\
-https://nytimes.com/2020/09/29/world/middleeast/nagorno-karabakh-armernia-azerbaijan.html?searchResultPosition=9
-
-**Has the Pandemic Affected Your Finances? These Advisors Can Help**\
-`Many people are concerned about their finances right now. With job losses in many sectors and widespread uncertainty, people are facing complex personal and financial situations that would benefit from expert guidance.`\
-https://nytimes.com/paidpost/vanguard/has-the-pandemic-affected-your-finances-these-advisors-can-help.html?searchResultPosition=10
+https://nytimes.com/2020/09/29/world/middleeast/nagorno-karabakh-armernia-azerbaijan.html?searchResultPosition=10
 
