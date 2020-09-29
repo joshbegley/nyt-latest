@@ -6,8 +6,8 @@ https://nytimes.com/2020/09/29/books/review/the-end-of-the-day-by-bill-clegg-an-
 `Marion County deputies responded to a call about a “possible hostage situation” on Monday afternoon, the sheriff’s office said. It was not immediately clear who fired the shots, or how many people died.`\
 https://nytimes.com/2020/09/29/us/oregon-shooting-salem.html?searchResultPosition=2
 
-**Strange Bacteria Is Attacking the State’s Trout Supply**\
-`Tuesday: When a bacteria was detected at a hatchery, officials, already under statewide shelter-in-place orders, moved to institute a lockdown of their own.`\
+**Strange Bacteria Are Attacking the State’s Trout Supply**\
+`Tuesday: When an infection was detected at a hatchery, officials, already under statewide shelter-in-place orders, moved to institute a lockdown of their own.`\
 https://nytimes.com/2020/09/29/us/california-trout-virus.html?searchResultPosition=3
 
 **‘The Midnight Library,’ by Matt Haig: An Excerpt**\
