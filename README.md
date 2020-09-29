@@ -1,4 +1,4 @@
-**How 3 start-ups launched in 2020**\
+**How 3 Start-Ups Launched in 2020**\
 `Cut the ribbon, pop the bubbly, don a mask. These bold new businesses managed to open — despite everything.`\
 https://nytimes.com/paidpost/dropbox/how-3-start-ups-launched-in-2020.html?searchResultPosition=1
 
