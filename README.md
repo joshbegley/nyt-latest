@@ -1,40 +1,40 @@
+**Studies Begin to Untangle Obesity’s Role in Covid-19**\
+`People with extra weight may struggle to mount a robust immune response to the coronavirus — and may respond poorly to a vaccine.`\
+https://nytimes.com/2020/09/29/health/covid-obesity.html?searchResultPosition=1
+
+**Liberals Are Furious. Their Standard-Bearer Wants to Hold Back.**\
+`As an unusually high-stakes Supreme Court battle begins during the most bitter election season in decades, Joe Biden is wading cautiously into the fight.`\
+https://nytimes.com/2020/09/29/us/politics/supreme-court-joe-biden.html?searchResultPosition=2
+
+**A Beloved Teacher Died From the Virus. Now Her School Confronts Reopening.**\
+`At Public School 9 in Brooklyn, students will start each day by talking about how they are feeling and will take breaks for movement and meditation.`\
+https://nytimes.com/2020/09/29/nyregion/schools-coronavirus-reopening-nyc.html?searchResultPosition=3
+
+**Meet the Biggest Prankster in Baseball: Yankees G.M. Brian Cashman**\
+`Bogus trades. Fake lottery tickets. Electric pen assaults. No one at Yankee Stadium is safe from the longtime general manager’s high jinks.`\
+https://nytimes.com/2020/09/29/sports/baseball/brian-cashman-yankees.html?searchResultPosition=4
+
+**The Celtics Have a Bright Future — and a Low Ceiling?**\
+`Boston has several young stars and a trio of first-round draft picks, but strong competition may blunt their hopes of bouncing back next season from this year’s disappointment.`\
+https://nytimes.com/2020/09/29/sports/basketball/nba-boston-celtics.html?searchResultPosition=5
+
+**Lessons From Animals**\
+`Whether they were pets you owned or creatures you encountered in the wild, what have animals taught you?`\
+https://nytimes.com/2020/09/29/learning/lessons-from-animals.html?searchResultPosition=6
+
+**‘The Drug Became His Friend’: Pandemic Drives Hike in Opioid Deaths**\
+`In the months since the pandemic took hold in the U.S., the opioid epidemic has taken a sharp turn for the worse. More than 40 states have seen increases in overdoses.`\
+https://nytimes.com/2020/09/29/health/coronavirus-overdose-opioids-addi.html?searchResultPosition=7
+
 **Late Night Weighs In on Trump’s Taxes**\
 `“For those keeping score, Trump paid $750 in taxes and $130,000 to a porn star, which means if the I.R.S. wants to get money from Trump, you guys know what you got to do,” Trevor Noah joked on Monday.`\
-https://nytimes.com/2020/09/29/arts/television/trumps-taxes-late-night.html?searchResultPosition=1
+https://nytimes.com/2020/09/29/arts/television/trumps-taxes-late-night.html?searchResultPosition=8
 
 **Duterte Lashes Out at Facebook After It Takes Down Fake Accounts**\
 `The Philippine leader, who harnessed the social network as he rose to power, is now making vague threats to shut it down.`\
-https://nytimes.com/2020/09/29/business/rodrigo-duterte-facebook-philippines.html?searchResultPosition=2
+https://nytimes.com/2020/09/29/business/rodrigo-duterte-facebook-philippines.html?searchResultPosition=9
 
 **Word + Quiz: vociferous**\
 `This word has appeared in 56 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/09/29/learning/word-quiz-vociferous.html?searchResultPosition=3
-
-**Patrick Mahomes Flexes Chiefs’ Muscle to Beat the Ravens**\
-`In a showdown of two of the N.F.L.’s best quarterbacks, Patrick Mahomes again bested Lamar Jackson. The Kansas City quarterback showed off an efficient and varied offense in Baltimore.`\
-https://nytimes.com/2020/09/29/sports/football/monday-night-football-score.html?searchResultPosition=4
-
-**Prosecutors Target Ex-Audi Chief in First VW Emissions Trial**\
-`Rupert Stadler is accused of continuing to sell cars with illegal software even after Volkswagen’s cheating scandal came to light.`\
-https://nytimes.com/2020/09/29/business/Volkswagen-Audi-rupert-stadler-diesel.html?searchResultPosition=5
-
-**2020 French Open: What to Watch on Tuesday**\
-`Novak Djokovic starts his campaign for a second French Open title against Mikael Ymer, while Aryna Sabalenka tries to live up to her potential on the Grand Slam stage.`\
-https://nytimes.com/2020/09/29/sports/tennis/2020-french-open-what-to-watch-on-tuesday.html?searchResultPosition=6
-
-**How to Watch the First Presidential Debate**\
-`The first debate between President Trump and Joseph R. Biden Jr. takes place Tuesday night from 9 to 10:30 p.m. Eastern.`\
-https://nytimes.com/2020/09/29/us/politics/what-time-is-the-debate.html?searchResultPosition=7
-
-**Texas Sheriff Faces Evidence-Tampering Charge in Black Man’s Death**\
-`Robert Chody, the sheriff in Williamson County, is accused of tampering with a video of a fatal 2019 traffic stop made by the crew of a police ride-along program.`\
-https://nytimes.com/2020/09/28/us/live-pd-williamson-sherriff-taser.html?searchResultPosition=8
-
-**Trump’s Taxes, Coronavirus, China’s Economy: Your Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2020/09/28/briefing/donald-trump-taxes-coronavirus-china-economy.html?searchResultPosition=9
-
-**Mandelbrot by Way of Florida**\
-`Michael’s Mandel Bread, a once-baked chocolate chip treat, was perfected in Miami.`\
-https://nytimes.com/2020/09/28/dining/michaels-mandel-bread.html?searchResultPosition=10
+https://nytimes.com/2020/09/29/learning/word-quiz-vociferous.html?searchResultPosition=10
 
