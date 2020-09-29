@@ -1,6 +1,6 @@
 **The First Presidential Face-Off**\
 `Biden and Trump prepare to confront each other onstage: This is your morning tip sheet.`\
-https://nytimes.com/2020/09/29/us/politics/debate-2020.html?searchResultPosition=1
+https://nytimes.com/2020/09/29/us/politics/tonights-debate-biden-trump.html?searchResultPosition=1
 
 **Taking a Stand Against Social Stances**\
 `Many companies are embracing social causes as part of their mission. The cryptocurrency exchange Coinbase is going the other way.`\
