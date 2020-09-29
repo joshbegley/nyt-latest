@@ -18,9 +18,9 @@ https://nytimes.com/2020/09/29/style/testing-schools-proctorio.html?searchResult
 `Challenging times call for collaborative measures — especially when it comes to finance. `\
 https://nytimes.com/paidpost/vanguard/financial-advisors-swap-insights-on-tough-client-questions.html?searchResultPosition=5
 
-**Netanyahu says Israel’s nationwide lockdown won’t be lifted within less than a month, adding it ‘may take much longer than that.’**\
+**Netanyahu says Israel’s nationwide lockdown is likely to last at least a month.**\
 `By Isabel Kershner`\
-https://nytimes.com/2020/09/29/world/netanyahu-says-israels-nationwide-lockdown-wont-be-lifted-within-less-than-a-month-adding-it-may-take-much-longer-than-that.html?searchResultPosition=6
+https://nytimes.com/2020/09/29/world/netanyahu-says-israels-nationwide-lockdown-is-likely-to-last-at-least-a-month.html?searchResultPosition=6
 
 **What That Viral Clip of Vin Diesel’s Song Debut on ‘The Kelly Clarkson Show’ Says About the Moment**\
 `Live entertainment in 2020 is always a little morbid, and often hilariously awkward.`\
