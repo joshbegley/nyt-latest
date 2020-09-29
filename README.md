@@ -2,7 +2,7 @@
 `Biden and Trump prepare to confront each other onstage: This is your morning tip sheet.`\
 https://nytimes.com/2020/09/29/us/politics/debate-2020.html?searchResultPosition=1
 
-**DealBook: Taking a Stand Against Social Stances**\
+**Taking a Stand Against Social Stances**\
 `Many companies are embracing social causes as part of their mission. The cryptocurrency exchange Coinbase is going the other way.`\
 https://nytimes.com/2020/09/29/business/dealbook/coinbase-social-activism.html?searchResultPosition=2
 
