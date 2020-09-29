@@ -14,8 +14,8 @@ https://nytimes.com/2020/09/29/us/politics/robert-mueller-andrew-weissmann.html?
 `The timing of the deceptive video, which accuses Ilhan Omar of voter fraud, indicates that several conservatives, including Donald Trump Jr., may have known about it in advance.`\
 https://nytimes.com/2020/09/29/us/politics/project-veritas-ilhan-omar.html?searchResultPosition=4
 
-**Disney Lays Off a Quarter of U.S. Theme Park Workers**\
-`The company said it would eliminate 28,000 jobs across its resorts in Florida and California, which have been hit hard by the pandemic.`\
+**Disney Lays Off 28,000, Mostly at Its 2 U.S. Theme Parks**\
+`The company said it would eliminate thousands of jobs at its resorts in Florida and California, which have been hit hard by the pandemic.`\
 https://nytimes.com/2020/09/29/business/disney-theme-park-workers-layoffs.html?searchResultPosition=5
 
 **Presidential Debate, N.Y.C., Fall Cookbooks: Your Tuesday Evening Briefing**\
