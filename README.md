@@ -10,13 +10,13 @@ https://nytimes.com/2020/09/29/sports/breanna-stewart-seattle-storm-wnba.html?se
 `Calvin Royal III, a principal at American Ballet Theater, has turned the one-bedroom he shares with his partner into a rehearsal space. For now.`\
 https://nytimes.com/2020/09/29/realestate/calvin-royal-american-ballet-theatre.html?searchResultPosition=3
 
-**Opening the Doors of Design**\
-`A tiny proportion of designers are Black, but a host of new initiatives, as well as evolving tastes, are working to right the imbalance.`\
-https://nytimes.com/2020/09/29/style/opening-the-doors-of-design.html?searchResultPosition=4
-
 **How Coal-Loving Australia Became the Leader in Rooftop Solar**\
 `Embracing solar panels to save money, homeowners have made the country a powerhouse in renewable energy.`\
-https://nytimes.com/2020/09/29/business/energy-environment/australia-rooftop-solar-coal.html?searchResultPosition=5
+https://nytimes.com/2020/09/29/business/energy-environment/australia-rooftop-solar-coal.html?searchResultPosition=4
+
+**Opening the Doors of Design**\
+`A tiny proportion of designers are Black, but a host of new initiatives, as well as evolving tastes, are working to right the imbalance.`\
+https://nytimes.com/2020/09/29/style/opening-the-doors-of-design.html?searchResultPosition=5
 
 **Pavilions Inhabit the Space Between Art and Architecture**\
 `Especially in a pandemic, these structures give architects room to play with materials and form.`\
