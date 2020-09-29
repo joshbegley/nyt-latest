@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/29/briefing/presidential-debate-nyc-fall-cookbooks.html?searchResultPosition=1
 
 **Coronavirus Briefing: What Happened Today**\
-`Despite optimistic claims, up to 90 percent of the U.S. population is still vulnerable.`\
+`How close is herd immunity? Despite optimistic claims, up to 90 percent of the U.S. population is still vulnerable.`\
 https://nytimes.com/2020/09/29/us/coronavirus-today.html?searchResultPosition=2
 
 **The Incredible Whiteness of the Museum Fashion Collection**\
