@@ -1,40 +1,40 @@
-**America Wrote the Pandemic Playbook, Then Ignored It.**\
-`The U.S. spent 15 years preparing for the coronavirus. Why did we handle it so badly?`\
-https://nytimes.com/video/opinion/100000007358968/covid-pandemic-us-response.html?searchResultPosition=1
+**Breanna Stewart Is Ready for the W.N.B.A. Finals, and the Election**\
+`Stewart and her W.N.B.A. peers are playing through the postseason while also continuing their social justice advocacy in the wake of the Breonna Taylor grand jury decision.`\
+https://nytimes.com/2020/09/29/sports/breanna-stewart-seattle-storm-wnba.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Rat That Sniffs Out Land Mines Receives Award for Bravery’**\
-`In this lesson, you’ll learn about Magawa, a 5-year-old African giant pouched rat, who was recently recognized with a prestigious honor for his work detecting mines and explosives in Cambodia.`\
-https://nytimes.com/2020/09/29/learning/lesson-of-the-day-rat-that-sniffs-out-land-mines-receives-award-for-bravery.html?searchResultPosition=2
+**With Fancy Footwork, a Dancer’s Home Doubles as a Studio**\
+`Calvin Royal III, a principal at American Ballet Theater, has turned the one-bedroom he shares with his partner into a rehearsal space. For now.`\
+https://nytimes.com/2020/09/29/realestate/calvin-royal-american-ballet-theatre.html?searchResultPosition=2
 
-**Studies Begin to Untangle Obesity’s Role in Covid-19**\
-`People with extra weight may struggle to mount a robust immune response to the coronavirus — and may respond poorly to a vaccine.`\
-https://nytimes.com/2020/09/29/health/covid-obesity.html?searchResultPosition=3
+**Opening the Doors of Design**\
+`A tiny proportion of designers are Black, but a host of new initiatives, as well as evolving tastes, are working to right the imbalance.`\
+https://nytimes.com/2020/09/29/style/opening-the-doors-of-design.html?searchResultPosition=3
 
-**Liberals Are Furious. Their Standard-Bearer Wants to Hold Back.**\
-`As an unusually high-stakes Supreme Court battle begins during the most bitter election season in decades, Joe Biden is wading cautiously into the fight.`\
-https://nytimes.com/2020/09/29/us/politics/supreme-court-joe-biden.html?searchResultPosition=4
+**How Coal-Loving Australia Became the Leader in Rooftop Solar**\
+`Embracing solar panels to save money, homeowners have made the country a powerhouse in renewable energy.`\
+https://nytimes.com/2020/09/29/business/energy-environment/australia-rooftop-solar-coal.html?searchResultPosition=4
 
-**A Beloved Teacher Died From the Virus. Now Her School Confronts Reopening.**\
-`At Public School 9 in Brooklyn, students will start each day by talking about how they are feeling and will take breaks for movement and meditation.`\
-https://nytimes.com/2020/09/29/nyregion/schools-coronavirus-reopening-nyc.html?searchResultPosition=5
+**Pavilions Inhabit the Space Between Art and Architecture**\
+`Especially in a pandemic, these structures give architects room to play with materials and form.`\
+https://nytimes.com/2020/09/29/style/design-outdoor-pavilion-architecture.html?searchResultPosition=5
 
-**Meet the Biggest Prankster in Baseball: Yankees G.M. Brian Cashman**\
-`Bogus trades. Fake lottery tickets. Electric pen assaults. No one at Yankee Stadium is safe from the longtime general manager’s high jinks.`\
-https://nytimes.com/2020/09/29/sports/baseball/brian-cashman-yankees.html?searchResultPosition=6
+**Making the Most of 500 Square Feet, in Royal Style**\
+`Calvin Royal III, a principal at American Ballet Theater, has turned the one-bedroom he shares with his partner into a rehearsal space. For now.`\
+https://nytimes.com/slideshow/2020/09/29/realestate/making-the-most-of-500-square-feet-in-royal-style.html?searchResultPosition=6
 
-**The Celtics Have a Bright Future — and a Low Ceiling?**\
-`Boston has several young stars and a trio of first-round draft picks, but strong competition may blunt their hopes of bouncing back next season from this year’s disappointment.`\
-https://nytimes.com/2020/09/29/sports/basketball/nba-boston-celtics.html?searchResultPosition=7
+**A Narnia-Inspired Design, on Long Island**\
+`A guesthouse remodel is helped by a passion for reading, in particular an escapist book series. Step into the wardrobe, please.`\
+https://nytimes.com/2020/09/29/style/narnia-inspiried-design-house.html?searchResultPosition=7
 
-**Lessons From Animals**\
-`Whether they were pets you owned or creatures you encountered in the wild, what have animals taught you?`\
-https://nytimes.com/2020/09/29/learning/lessons-from-animals.html?searchResultPosition=8
+**Pandemic Highlights Deep-Rooted Problems in Indian Health Service**\
+`Few hospital beds, lack of equipment, a shipment of body bags in response to a request for coronavirus tests: The agency providing health care to tribal communities struggled to meet the challenge.`\
+https://nytimes.com/2020/09/29/us/politics/coronavirus-indian-health-service.html?searchResultPosition=8
 
-**‘The Drug Became His Friend’: Pandemic Drives Hike in Opioid Deaths**\
-`In the months since the pandemic took hold in the U.S., the opioid epidemic has taken a sharp turn for the worse. More than 40 states have seen increases in overdoses.`\
-https://nytimes.com/2020/09/29/health/coronavirus-overdose-opioids-addi.html?searchResultPosition=9
+**Feng Shui Lessons From a Design Master Who Has Your Back**\
+`A novice studies the practice to improve her décor, her nerves and maybe even her bank balance.`\
+https://nytimes.com/2020/09/29/style/fengshui-interior-design-lesson.html?searchResultPosition=9
 
-**Late Night Weighs In on Trump’s Taxes**\
-`“For those keeping score, Trump paid $750 in taxes and $130,000 to a porn star, which means if the I.R.S. wants to get money from Trump, you guys know what you got to do,” Trevor Noah joked on Monday.`\
-https://nytimes.com/2020/09/29/arts/television/trumps-taxes-late-night.html?searchResultPosition=10
+**Immigrants Say They Were Pressured Into Unneeded Surgeries**\
+`Immigrants detained at an ICE-contracted center in Georgia said they had invasive gynecology procedures that they later learned might have been unnecessary.`\
+https://nytimes.com/2020/09/29/us/immigrants-hysterectomies-gynecology-irwin-county-ICE.html?searchResultPosition=10
 
