@@ -2,7 +2,7 @@
 `Ahead of Tuesday’s debate, right-wing commentators (and President Trump’s campaign) speculated that Joe Biden might be equipped with a hidden earpiece. It’s a decades-old charge without much evidence.`\
 https://nytimes.com/2020/09/29/technology/the-long-history-of-hidden-earpiece-conspiracy-theories.html?searchResultPosition=1
 
-**‘Super-enzyme’ Speeds Up Breakdown of Plastic, Researchers Say**\
+**‘Super-Enzyme’ Speeds Up Breakdown of Plastic, Researchers Say**\
 `A new cocktail of enzymes that degrades plastic faster is a step to fully recycling soda bottles and other waste, British and American researchers said this week.`\
 https://nytimes.com/2020/09/29/world/europe/plastic-recycling-super-enzyme.html?searchResultPosition=2
 
