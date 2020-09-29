@@ -18,8 +18,8 @@ https://nytimes.com/2020/09/29/us/politics/what-time-is-the-debate.html?searchRe
 `Robert Chody, the sheriff in Williamson County, is accused of tampering with a video of a fatal 2019 traffic stop made by the crew of a police ride-along program.`\
 https://nytimes.com/2020/09/28/us/live-pd-williamson-sherriff-taser.html?searchResultPosition=5
 
-**Your Tuesday Briefing**\
-`Trump’s tax returns, coronavirus, Chinese economy: Here’s what you need to know.`\
+**Trump’s Taxes, Coronavirus, China’s Economy: Your Tuesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/09/28/briefing/donald-trump-taxes-coronavirus-china-economy.html?searchResultPosition=6
 
 **Mandelbrot by Way of Florida**\
