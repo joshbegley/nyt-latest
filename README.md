@@ -6,8 +6,8 @@ https://nytimes.com/2020/09/28/briefing/donald-trump-taxes-coronavirus-china-eco
 `Michael’s Mandel Bread, a once-baked chocolate chip treat, was perfected in Miami.`\
 https://nytimes.com/2020/09/28/dining/michaels-mandel-bread.html?searchResultPosition=2
 
-**Grand Jury Deliberations in Breonna Taylor Case Will Be Released**\
-`The Kentucky attorney general’s office said it would release the recordings of the deliberations after a grand juror complained about how they were publicly represented.`\
+**Grand Juror in Breonna Taylor Case Says Deliberations Were Misrepresented**\
+`The Kentucky attorney general’s office said it would release the panel’s recordings after a grand juror contended in a court filing that its discussions were inaccurately characterized.`\
 https://nytimes.com/2020/09/28/us/breonna-taylor-grand-jury.html?searchResultPosition=3
 
 **Tampa Bay Lightning Win Stanley Cup in Pandemic ‘Bubble’**\
