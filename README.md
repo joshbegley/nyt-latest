@@ -2,7 +2,7 @@
 `After having weathered high death rates when it resisted a lockdown in the spring, Sweden now has one of Europe’s lowest rates of daily new cases. Whether that is an aberration remains to be seen.`\
 https://nytimes.com/2020/09/29/world/europe/sweden-coronavirus-strategy.html?searchResultPosition=1
 
-**Children Return to Elementary Schools, in Milestone for N.Y.C.**\
+**Elementary Schools Reopen in Person, in Milestone for N.Y.C.**\
 `About 300,000 children returned to classrooms for the first time since March as the city’s test positivity rate edged upward.`\
 https://nytimes.com/2020/09/29/nyregion/nyc-coronavirus-schools-reopen.html?searchResultPosition=2
 
