@@ -31,7 +31,7 @@ https://nytimes.com/2020/09/29/arts/television/seth-meyers-favorites.html?search
 https://nytimes.com/2020/09/29/us/oregon-fires.html?searchResultPosition=8
 
 **Where Trump and Biden Stand on Abortion Issues**\
-`From Roe v. Wade to domestic “gag rules,” there is a sharp difference between the two candidates.`\
+`From Roe v. Wade to domestic ‘gag rules,’ there is a sharp difference between the two candidates.`\
 https://nytimes.com/interactive/2020/09/29/us/elections/trump-biden-abortion.html?searchResultPosition=9
 
 **Vilified Early Over Lax Virus Strategy, Sweden Seems to Have Scourge Controlled**\
