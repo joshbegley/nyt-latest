@@ -2,7 +2,7 @@
 `An excerpt from “The End of the Day,” by Bill Clegg`\
 https://nytimes.com/2020/09/29/books/review/the-end-of-the-day-by-bill-clegg-an-excerpt.html?searchResultPosition=1
 
-**Multiple People Fatally Shot in Oregon Hostage Situation, Authorities Say**\
+**Multiple People Killed After Oregon Police Respond to Call About Hostages**\
 `Marion County deputies responded to a call about a “possible hostage situation” on Monday afternoon, the sheriff’s office said. It was not immediately clear who fired the shots, or how many people died.`\
 https://nytimes.com/2020/09/29/us/oregon-shooting-salem.html?searchResultPosition=2
 
