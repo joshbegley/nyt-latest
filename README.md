@@ -1,6 +1,6 @@
 **The Long History of ‘Hidden Earpiece’ Conspiracy Theories**\
-`From Daily Distortions: The unfounded speculation that a candidate had a “secret earpiece” in a presidential debate is a charge that dates back to 2004.`\
-https://nytimes.com/interactive/2020/09/29/technology/biden-debate-earpiece.html?searchResultPosition=1
+`Ahead of Tuesday’s debate, right-wing commentators (and President Trump’s campaign) speculated that Joe Biden might be equipped with a hidden earpiece. It’s a decades-old charge without much evidence.`\
+https://nytimes.com/2020/09/29/technology/the-long-history-of-hidden-earpiece-conspiracy-theories.html?searchResultPosition=1
 
 **Biden and Trump Will Debate Six Main Issues. Here’s Where They Stand.**\
 `The long-anticipated first debate will cover issues like the coronavirus, social unrest and the Supreme Court, offering each candidate the chance to defend his record and attack his opponent’s.`\
