@@ -6,7 +6,7 @@ https://nytimes.com/2020/09/30/sports/tennis/french-open-what-to-watch.html?sear
 `President Trump and former Vice President Joseph R. Biden Jr. went head to head on their records, civil unrest, election integrity and more.`\
 https://nytimes.com/video/us/politics/100000007368667/presidential-debate-highlights.html?searchResultPosition=2
 
-**‘Would You Shut Up, Man?’ Biden Tells Trump**\
+**‘Will You Shut Up, Man?’ Biden Tells Trump**\
 `Joseph R. Biden Jr. asked President Trump to stop interrupting him while he tried to finish his remarks during the debate.`\
 https://nytimes.com/video/us/elections/100000007368653/biden-shut-up-debate-video-clip.html?searchResultPosition=3
 
