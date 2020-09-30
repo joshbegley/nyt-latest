@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/30/world/europe/boom-noise-rattles-paris.html?searchResultPosition=1
 
 **Serena Williams Withdraws From French Open With Injury**\
-`Williams, citing an Achilles’ tendon injury, said she thinks she needs “four to six weeks of sitting and doing nothing.”`\
+`Williams, citing an Achilles’ tendon injury, said she thought she needed “four to six weeks of sitting and doing nothing.”`\
 https://nytimes.com/2020/09/30/sports/tennis/french-open-serena-williams-injury.html?searchResultPosition=2
 
 **DealBook: Takeaways From the Shoutfest**\
