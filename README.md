@@ -2,13 +2,13 @@
 `In cool colors, glass or brass, these cordless styles add a flourish even before they’re switched on.`\
 https://nytimes.com/2020/09/30/t-magazine/portable-lamps.html?searchResultPosition=1
 
-**The Only Music Critic Who Matters (if You’re Under 25)**\
-`Anthony Fantano reviews albums and songs on his YouTube channel, The Needle Drop, bringing an old art to a new medium — and perhaps ensuring it has a future.`\
-https://nytimes.com/2020/09/30/arts/music/anthony-fantano-the-needle-drop.html?searchResultPosition=2
-
 **Huge Study of Coronavirus Cases in India Offers Some Surprises to Scientists**\
 `The rate of death went down in patients over 65. Researchers also found that children of all ages became infected and spread the virus to others.`\
-https://nytimes.com/2020/09/30/health/covid-india-children.html?searchResultPosition=3
+https://nytimes.com/2020/09/30/health/covid-india-children.html?searchResultPosition=2
+
+**The Only Music Critic Who Matters (if You’re Under 25)**\
+`Anthony Fantano reviews albums and songs on his YouTube channel, The Needle Drop, bringing an old art to a new medium — and perhaps ensuring it has a future.`\
+https://nytimes.com/2020/09/30/arts/music/anthony-fantano-the-needle-drop.html?searchResultPosition=3
 
 **3 Art Gallery Shows to See Right Now**\
 `Henni Alftan’s distinctive artistic vision; Sonja Ferlov Mancoba and Ernest Mancoba’s pairings; and Matthew Porter’s pandemic-tinged photographs.`\
