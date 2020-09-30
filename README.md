@@ -1,5 +1,5 @@
 **Republicans Scold Trump on White Supremacy, Fearing a Drag on the Party**\
-`For the second time in two weeks, Republicans distanced themselves from the president, expressing unease about his conduct amid mounting fears that it could damage the party on Election Day.`\
+`For the second time in two weeks, Republicans distanced themselves from the president, expressing unease about his failure to disavow an extremist group linked with acts of violence.`\
 https://nytimes.com/2020/09/30/us/politics/trump-debate-white-supremacy.html?searchResultPosition=1
 
 **U.S. Repatriates Last of Islamic State Suspects Believed Captured in Syria**\
