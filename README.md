@@ -12,7 +12,7 @@ https://nytimes.com/2020/09/30/magazine/salt-baked-potatoes-recipe.html?searchRe
 
 **New Paltz, N.Y.: Beautiful, Sporty and Cultured**\
 `Surrounded by nature preserves and anchored by a state university, the Ulster County town is undergoing a pandemic-related boom thanks to a wave of newcomers.`\
-https://nytimes.com/2020/09/30/realestate/new-paltz-ny-beautiful-sporty-and-cultured.html?searchResultPosition=4
+https://nytimes.com/2020/09/30/realestate/new-paltz-ny.html?searchResultPosition=4
 
 **Trump and Biden’s First Debate: ‘A Bonfire of Hate and Grievance’**\
 `How Round 1 looked to Times Opinion writers.`\
