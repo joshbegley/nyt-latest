@@ -2,7 +2,7 @@
 `After writing hits for Elvis Presley and others, he became famous in his own right with songs like the No. 1 hit “Baby Don’t Get Hooked on Me.”`\
 https://nytimes.com/2020/09/30/arts/music/mac-davis-dead.html?searchResultPosition=1
 
-**At-Home Learning, When Home is in Ashes**\
+**At-Home Learning, When Home Is in Ashes**\
 `How families in one Oregon community are coping with the aftermath of a massive wildfire.`\
 https://nytimes.com/2020/09/30/parenting/fires-displacement-distance-learning.html?searchResultPosition=2
 
