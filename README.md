@@ -23,7 +23,7 @@ https://nytimes.com/2020/09/30/opinion/presidential-debate-highlights.html?searc
 https://nytimes.com/video/us/elections/100000007369583/biden-train-campaign-tour.html?searchResultPosition=6
 
 **Tuesday’s Debate Made Clear the Gravest Threat to the Election: The President Himself**\
-`President Trump’s unwillingness to say he would abide by the result, and his disinformation campaign about election integrity went beyond anything President Vladimir V. Putin could have imagined.`\
+`President Trump’s unwillingness to say he would abide by the result, and his disinformation campaign about election fraud went beyond anything President Vladimir V. Putin could have imagined.`\
 https://nytimes.com/2020/09/30/us/politics/trump-debate-election.html?searchResultPosition=7
 
 **Norman Bernal, Generation-Spanning Music Teacher, Dies at 75**\
