@@ -22,8 +22,8 @@ https://nytimes.com/2020/09/30/us/politics/trump-debate-election.html?searchResu
 `Mr. Bernal, who had Covid-19, was a Peruvian-born violinist who established himself as a longtime player and pedagogue in the United States.`\
 https://nytimes.com/2020/09/30/obituaries/norman-bernal-dead-coronavirus.html?searchResultPosition=6
 
-**The Color of Menstruation? Period Red**\
-`Pantone’s latest announcement, with the Swedish brand Intimina, takes aim at an old taboo and barrier to women’s equality.`\
+**Pantone’s Newest Color Is a Nod to Menstruation: Period Red**\
+`The color registry, with the Swedish brand Intimina, takes aim at an old taboo and barrier to women’s equality.`\
 https://nytimes.com/2020/09/30/business/pantone-color.html?searchResultPosition=7
 
 **White House Blocked C.D.C. Order to Keep Cruise Ships Docked**\
