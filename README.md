@@ -14,8 +14,8 @@ https://nytimes.com/2020/09/29/opinion/respond-debate.html?searchResultPosition=
 `In the presidential debate Joseph R. Biden Jr. and Donald J. Trump debated the concept of law and order after recent unrest gripped the nation.`\
 https://nytimes.com/video/us/elections/100000007368637/trump-biden-law-and-order-debate-video-clip.html?searchResultPosition=4
 
-**Chris Wallace Tries to Rein In an Unruly Trump at First Debate**\
-`In his second time as moderator of a presidential debate, the Fox News anchor sought to reset the proceedings midway through.`\
+**Chris Wallace Struggled to Rein In an Unruly Trump at First Debate**\
+`In his second time moderating a presidential debate, the Fox News anchor attempted to reset the proceedings midway through.`\
 https://nytimes.com/2020/09/29/us/politics/chris-wallace-debate.html?searchResultPosition=5
 
 **‘They Will Have the Vaccine Very Soon,’ Trump Says**\
