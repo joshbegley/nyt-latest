@@ -1,4 +1,4 @@
-**Chris Wallace Tries to Rein In an Unruly Trump During First Debate**\
+**Chris Wallace Tries to Rein In an Unruly Trump at First Debate**\
 `In his second time as moderator of a presidential debate, the Fox News anchor sought to reset the proceedings midway through.`\
 https://nytimes.com/2020/09/29/us/politics/chris-wallace-debate.html?searchResultPosition=1
 
