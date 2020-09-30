@@ -1,5 +1,5 @@
 **Erroneous Absentee Ballots in N.Y.C.: Here’s What We Know**\
-`The Board of Elections executive director blamed a printing company for the problem, concentrated in Brooklyn, that included mismatched names and addresses.`\
+`The Board of Elections executive director blamed a printing company for the problem, concentrated in Brooklyn, that included mismatched names.`\
 https://nytimes.com/2020/09/30/nyregion/absentee-ballots-nyc.html?searchResultPosition=1
 
 **In Madrid, Covid Resurgence Divides Rich and Poor**\
