@@ -1,5 +1,5 @@
 **‘Super Healthy’ College Student Dies of Rare Covid-19 Complications**\
-`Chad Dorrill, a 19-year-old sophomore at Appalachian State, recovered from flulike symptoms but then developed neurological problems.`\
+`Chad Dorrill, a 19-year-old at Appalachian State, recovered from flulike symptoms but then developed neurological problems.`\
 https://nytimes.com/2020/09/29/us/college-student-dies-covid.html?searchResultPosition=1
 
 **Watch Live: First 2020 Presidential Debate**\
