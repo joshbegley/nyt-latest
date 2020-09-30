@@ -26,7 +26,7 @@ https://nytimes.com/2020/09/30/world/europe/boom-noise-rattles-paris.html?search
 `Williams, citing an Achilles’ tendon injury, said she thought she needed “four to six weeks of sitting and doing nothing.”`\
 https://nytimes.com/2020/09/30/sports/tennis/french-open-serena-williams-injury.html?searchResultPosition=7
 
-**DealBook: Takeaways From the Shoutfest**\
+**Takeaways From the Shoutfest**\
 `What should businesses make of the chaotic presidential debate?`\
 https://nytimes.com/2020/09/30/business/dealbook/trump-biden-debate-business.html?searchResultPosition=8
 
