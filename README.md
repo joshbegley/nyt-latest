@@ -3,7 +3,7 @@
 https://nytimes.com/2020/09/30/us/politics/presidential-debate-analysis.html?searchResultPosition=1
 
 **Trump Mocks Biden on Law Enforcement**\
-`President Trump said he had the support of law enforcement groups across the country and falsely claimed Joseph R. Biden Jr. won’t use the words “law and order” or “law enforcement.”`\
+`President Trump said he had the support of law enforcement groups across the country and falsely claimed that Joseph R. Biden Jr. wouldn’t use the words “law and order” or “law enforcement.”`\
 https://nytimes.com/video/us/elections/100000007369044/trump-law-enforcement-debate-video-clip.html?searchResultPosition=2
 
 **Six Takeaways From the First Presidential Debate**\
