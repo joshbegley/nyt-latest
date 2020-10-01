@@ -1,4 +1,4 @@
-**McMaster, Mostly Silent Until Now, Says Trump Is ‘Aiding and Abetting Putin’s Efforts’**\
+**McMaster Says Trump Is ‘Aiding and Abetting Putin’s Efforts’**\
 `“This sustained campaign of disruption, disinformation, and denial, is aided by any leader who doesn’t acknowledge it,” President Trump’s former national security adviser said.`\
 https://nytimes.com/2020/10/01/us/politics/mcmaster-trump-russia-election.html?searchResultPosition=1
 
