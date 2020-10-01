@@ -2,7 +2,7 @@
 `“Driving home from the hospital with no baby,” Ms. Teigen wrote on Twitter. “How can this be real.” She said she and her husband had decided to call the infant Jack.`\
 https://nytimes.com/2020/10/01/style/chrissy-teigen-john-legend-baby.html?searchResultPosition=1
 
-**Hong Kong is China, Like It or Not**\
+**Hong Kong Is China, Like It or Not**\
 `After months of chaos in the city, something had to be done, and the Chinese government did it.`\
 https://nytimes.com/2020/10/01/opinion/hong-kong-china-security-law.html?searchResultPosition=2
 
