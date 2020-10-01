@@ -20,7 +20,7 @@ https://nytimes.com/2020/10/01/style/political-merch-work-trump-biden.html?searc
 
 **Corporate America’s Role in the Fight for Racial Justice**\
 `A conversation with The Times’s Nikole Hannah-Jones on how businesses can help whittle away social inequities — and why they should.`\
-https://nytimes.com/2020/10/01/business/dealbook/corporate-america-racial-justice.html?searchResultPosition=6
+https://nytimes.com/2020/08/07/business/dealbook/corporate-america-racial-justice.html?searchResultPosition=6
 
 **E.U. Leaders’ Thorny To-Do List: Belarus and Turkey, for Starters**\
 `The agenda for Thursday’s summit is long, including persuading Cyprus to back sanctions on Belarus and hashing out a joint strategy on Turkey. And there’s always money to fight about.`\
