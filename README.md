@@ -2,7 +2,7 @@
 `Be it congressional Democrats, the news media, the standards enforcers at Twitter or, now, the debate commission, President Trump has repeatedly blamed others for problems and self-inflicted wounds.`\
 https://nytimes.com/2020/10/01/us/politics/trump-polls-victim.html?searchResultPosition=1
 
-**Michigan charged two right-wing operatives with felonies over voter suppression scheme.**\
+**Michigan charges two right-wing operatives with felonies over voter suppression scheme.**\
 `By Neil Vigdor`\
 https://nytimes.com/2020/10/01/us/elections/jacob-wohl-jack-burkman-michigan-felony.html?searchResultPosition=2
 
