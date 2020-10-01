@@ -22,7 +22,7 @@ https://nytimes.com/2020/09/30/us/elections/facebook-will-forbid-ads-that-underm
 `Instead of condemning violent groups, the president marshals them.`\
 https://nytimes.com/2020/09/30/opinion/trump-election-debate.html?searchResultPosition=6
 
-**N.B.A. Finals Live Updates: Game 1 Lakers vs. Heat**\
+**N.B.A. Finals Live Updates: Lakers vs. Heat in Game 1**\
 `LeBron James and the Los Angeles Lakers are up against Jimmy Butler and the Miami Heat for the championship.`\
 https://nytimes.com/2020/09/30/sports/basketball/lakers-heat-live-game-1.html?searchResultPosition=7
 
