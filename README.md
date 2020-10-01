@@ -34,7 +34,7 @@ https://nytimes.com/2020/09/30/us/trump-election-poll-watchers.html?searchResult
 `After months of lockdown, restaurant owners in this Queens neighborhood finally had a reason to be optimistic: indoor dining had returned.`\
 https://nytimes.com/interactive/2020/09/30/nyregion/NYC-indoor-dining-reopening.html?searchResultPosition=9
 
-**Republicans Scold Trump on White Supremacy, Fearing a Drag on the Party**\
-`For the second time in two weeks, Republicans distanced themselves from the president, expressing unease about his failure to disavow an extremist group linked with acts of violence.`\
+**G.O.P. Alarmed by Trump’s Comments on Extremist Group, Fearing a Drag on the Party**\
+`For the second time in two weeks, Republicans distanced themselves from the president, expressing unease about his failure to disavow a right-wing organization linked with white supremacy and acts of violence.`\
 https://nytimes.com/2020/09/30/us/politics/trump-debate-white-supremacy.html?searchResultPosition=10
 
