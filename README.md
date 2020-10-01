@@ -1,40 +1,40 @@
-**After ‘The Salisbury Poisonings,’ Locals Picked Up the Pieces**\
-`A new AMC show dramatizes the 2018 poisoning of a former Russian spy in Britain. Even for a reporter who covered the real events, the four episodes contain revelations.`\
-https://nytimes.com/2020/10/01/arts/television/salisbury-poisonings.html?searchResultPosition=1
+**‘A Battle for the Souls of Black Girls’**\
+`Discipline disparities between Black and white boys have driven reform efforts for years. But Black girls are arguably the most at-risk student group in the United States.`\
+https://nytimes.com/2020/10/01/us/politics/black-girls-school-discipline.html?searchResultPosition=1
 
-**Lesson of the Day: ‘How to Get the Most Out of Art (Even When You’re Not Sure You Get It)’**\
-`In this lesson, you will explore helpful strategies for appreciating art.`\
-https://nytimes.com/2020/10/01/learning/lesson-of-the-day-how-to-get-the-most-out-of-art-even-when-youre-not-sure-you-get-it.html?searchResultPosition=2
+**The American Latino Experience: 20 Essential Films Since 2000**\
+`In Hollywood, Hispanic stories usually mean ones from other countries. The features and documentaries on this list explore U.S. lives that deserve the spotlight, too.`\
+https://nytimes.com/article/latino-movies.html?searchResultPosition=2
 
-**At the Edge of Time, a Litter of Galactic Puppies**\
-`The discovery of a black hole surrounded by protogalaxies provides astronomers with a rare glimpse of the web of matter permeating the cosmos.`\
-https://nytimes.com/2020/10/01/science/astronomy-galaxies-black-hole.html?searchResultPosition=3
+**Roland Mouret on How to Create a Vacation Bag for the Summer That Wasn’t**\
+`As part of our Designer D.I.Y. series, Mr. Mouret shows how to make a denim handbag inspired by a town on the French Riviera.`\
+https://nytimes.com/2020/10/01/style/sewing-do-it-yourself-roland-mouret-on-how-to-create-a-tktk-bag.html?searchResultPosition=3
 
-**For Voters Still Mulling, One Thing Is Clear: That Debate Didn’t Help**\
-`A small but crucial segment of likely voters say they remain uncommitted — to a candidate or to voting at all — and nothing they heard on Tuesday clinched things for them.`\
-https://nytimes.com/2020/10/01/us/politics/trump-biden-undecided-voters.html?searchResultPosition=4
+**In U.S.-China Tech Feud, Taiwan Feels Heat From Both Sides**\
+`The island’s biggest chip maker has been a coveted partner to both battling giants. But rising nationalism is making it harder to keep the middle ground.`\
+https://nytimes.com/2020/10/01/technology/taiwan-china-tsmc-huawei.html?searchResultPosition=4
 
-**Confrontation**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2020/10/01/learning/confrontation.html?searchResultPosition=5
+**Jim Murray, a Top Whiskey Critic, Faces Accusations of Sexism**\
+`Several distillers and retailers have severed ties to the British writer, after complaints surfaced about the treatment of women in his books and at events.`\
+https://nytimes.com/2020/10/01/dining/drinks/jim-murray-whisky-sexism.html?searchResultPosition=5
 
-**Samantha Bee Decries Trump’s ‘Stand Back and Stand By’**\
-`“Do not tell Trump that he can say anything he wants about race,” Bee said — one reason being that “Mark Burnett will have to spend hours erasing the tapes.”`\
-https://nytimes.com/2020/10/01/arts/television/late-night-trump-proud-boys.html?searchResultPosition=6
+**When Your Job Is to Make Sure Nov. 3 Isn’t a Disaster**\
+`As the top elections officials in many states, secretaries of state are managing a level of chaos they never expected.`\
+https://nytimes.com/2020/10/01/us/voting-election.html?searchResultPosition=6
 
-**Word + Quiz: guttural**\
-`This word has appeared in 23 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/10/01/learning/word-quiz-guttural.html?searchResultPosition=7
+**The Army Rolls Out a New Weapon: Strategic Napping**\
+`Because fatigue can corrode mission performance, a new physical training manual tells soldiers to grab 40 winks when they can, part of a new holistic approach to health in the ranks.`\
+https://nytimes.com/2020/10/01/us/army-naps.html?searchResultPosition=7
 
-**Chrissy Teigen and John Legend Lose Baby After Pregnancy Complications**\
-`“Driving home from the hospital with no baby,” Ms. Teigen wrote on Twitter. “How can this be real.” She said she and her husband had decided to call the infant Jack.`\
-https://nytimes.com/2020/10/01/style/chrissy-teigen-john-legend-baby.html?searchResultPosition=8
+**Laughter May Be Effective Medicine for These Trying Times**\
+`Doctors, nurses and therapists have a prescription for helping all of us to get through these difficult times: Try a little laughter.`\
+https://nytimes.com/2020/10/01/well/mind/laughter-may-be-effective-medicine-for-these-trying-times.html?searchResultPosition=8
 
-**Hong Kong Is China, Like It or Not**\
-`After months of chaos in the city, something had to be done, and the Chinese government did it.`\
-https://nytimes.com/2020/10/01/opinion/hong-kong-china-security-law.html?searchResultPosition=9
+**D.C. Statehood Is Good for the Democrats, Good for Democracy**\
+`It has to be a priority.`\
+https://nytimes.com/2020/10/01/opinion/washington-dc-state.html?searchResultPosition=9
 
-**N.F.L. Week 4 Predictions: Our Picks Against the Spread**\
-`Patrick Mahomes and the Chiefs face New England, the Bears try to continue their improbable start and the whole league waits to see what will happen with Tennessee and Pittsburgh.`\
-https://nytimes.com/2020/10/01/sports/football/nfl-picks-week-4.html?searchResultPosition=10
+**Why This Artist Is Paying Bodegas With 120,000 Pennies**\
+`A message about the pandemic, inscribed on $1,200 worth of coins, is trickling into New York’s shops, and possibly your pocket.`\
+https://nytimes.com/2020/10/01/nyregion/why-this-artist-is-paying-bodegas-with-120000-pennies.html?searchResultPosition=10
 
