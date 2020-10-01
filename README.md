@@ -35,6 +35,6 @@ https://nytimes.com/video/us/politics/100000007372216/nyc-indoor-dining-resumes.
 https://nytimes.com/2020/10/01/obituaries/lucy-diggs-slowe-overlooked.html?searchResultPosition=9
 
 **Brennan Rebuffed Requests to Lower Confidence in Key Russia Finding**\
-`The revelation that the former C.I.A. director sided with two analysts over senior officers, contained in his new book, has been a focus of the Justice Department review of the Russia inquiry.`\
+`The revelation that the former C.I.A. director sided with analysts over senior officers, contained in his new book, has been a focus of the Justice Department review of the Russia inquiry.`\
 https://nytimes.com/2020/10/01/us/politics/brennan-russia-election-interference.html?searchResultPosition=10
 
