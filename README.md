@@ -1,5 +1,5 @@
 **It Took a While, but the Yankees Win a Doozy**\
-`When Aroldis Chapman struck out Austin Hedges at 1:14 a.m., the Yankees had defeated the Indians to cap the longest nine-inning game in major-league history.`\
+`When Aroldis Chapman struck out Austin Hedges at 1:14 a.m., the Yankees had defeated the Indians to cap the longest nine-inning game in major league history.`\
 https://nytimes.com/2020/10/01/sports/yankees-indians-american-league-wild-card.html?searchResultPosition=1
 
 **Where You Carry Body Fat May Affect How Long You Live**\
