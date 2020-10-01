@@ -2,13 +2,13 @@
 `TK TK TK`\
 https://nytimes.com/interactive/2020/10/01/admin/test-central.html?searchResultPosition=1
 
-**‘Save Yourselves!’ Review: Alien Invasion in the Smartphone Generation**\
-`The writer-directors Alex Huston Fischer and Eleanor Wilson lovingly poke fun at the doomed generation in this apocalyptic comedy.`\
-https://nytimes.com/2020/10/01/movies/save-yourselves-review.html?searchResultPosition=2
-
 **DealBook: Take It or Leave It**\
 `Palantir’s C.E.O. defended the founders’ tight control over the company, citing defense of its corporate mission.`\
-https://nytimes.com/2020/10/01/business/dealbook/palantir-direct-listing.html?searchResultPosition=3
+https://nytimes.com/2020/10/01/business/dealbook/palantir-direct-listing.html?searchResultPosition=2
+
+**‘Save Yourselves!’ Review: Alien Invasion in the Smartphone Generation**\
+`The writer-directors Alex Huston Fischer and Eleanor Wilson lovingly poke fun at the doomed generation in this apocalyptic comedy.`\
+https://nytimes.com/2020/10/01/movies/save-yourselves-review.html?searchResultPosition=3
 
 **‘Dick Johnson Is Dead’ Review: A Father’s Painful, Funny Goodbye**\
 `With the help of her father, the documentary filmmaker Kirsten Johnson made a surprising, endearing movie about his death.`\
