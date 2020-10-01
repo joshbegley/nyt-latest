@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/01/obituaries/lucy-diggs-slowe-overlooked.html?searchResultPosition=1
 
 **Brennan Rebuffed Requests to Lower Confidence in Key Russia Finding**\
-`The revelation, contained in the former C.I.A. director’s new book, has been one focus of the Justice Department review of the Russia inquiry.`\
+`The revelation that the former C.I.A. director side with two analysts over senior officers, contained in his new book, has been a focus of the Justice Department review of the Russia inquiry.`\
 https://nytimes.com/2020/10/01/us/politics/brennan-russia-election-interference.html?searchResultPosition=2
 
 **Fraud Schemes Exploit Weak Spots in Unemployment Claims System**\
