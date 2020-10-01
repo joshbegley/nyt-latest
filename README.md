@@ -4,7 +4,7 @@ https://nytimes.com/2020/10/01/opinion/trump-biden-economic-policy.html?searchRe
 
 **At His Core, Trump Is an Immoralist**\
 `Will we let this man and his felons drag us to moral chaos?`\
-https://nytimes.com/2020/10/01/opinion/at-his-core-trump-is-an-immoralist.html?searchResultPosition=2
+https://nytimes.com/2020/10/01/opinion/trump-ethics-immorality.html?searchResultPosition=2
 
 **Wisconsin Is Frazzled by Surging Virus Cases and Growing Campaign Frenzy**\
 `The state, up for grabs in the presidential election, has become a coronavirus hot spot. “It’s too late” to solve, one mayor says.`\
