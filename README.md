@@ -1,40 +1,40 @@
+**Stream These Great British Detective Shows**\
+`Complex characters and long, slow-moving mystery plots are the hallmarks of these crime dramas from across the pond. The charming accents are just a bonus.`\
+https://nytimes.com/article/british-detective-series.html?searchResultPosition=1
+
+**Please Let Me Terrify Some Kids on Halloween**\
+`A socially distanced dad hopes that frightening children isn’t a thing of the past.`\
+https://nytimes.com/2020/10/01/parenting/halloween-kids.html?searchResultPosition=2
+
+**What to Do With Your Plants for the Winter**\
+`It’s time to decide: Should you bother trying to save the plants you’ve been laboring over all summer or just buy replacements come spring?`\
+https://nytimes.com/interactive/2020/10/01/realestate/save-plants-garden-winter.html?searchResultPosition=3
+
+**White Actors and Directors Still Dominate Broadway Stages, Report Finds**\
+`And just 20 percent of shows on New York stages were written by people of color in the 2017-18 season, a report says.`\
+https://nytimes.com/2020/10/01/theater/new-york-theater-diversity-report.html?searchResultPosition=4
+
 **The Best Documentaries on Netflix Right Now**\
 `From true-crime series to Oscar-winning movies, the streaming giant has gone all in on nonfiction filmmaking. Here are the ones you should check out.`\
-https://nytimes.com/article/best-documentaries-netflix.html?searchResultPosition=1
+https://nytimes.com/article/best-documentaries-netflix.html?searchResultPosition=5
 
 **35 Thoughts About Mario on Super Mario’s 35th Anniversary**\
 `Insights and observations about Super Mario, what he means to video game culture and why he remains popular today.`\
-https://nytimes.com/2020/10/01/arts/super-mario-35th-anniversary.html?searchResultPosition=2
+https://nytimes.com/2020/10/01/arts/super-mario-35th-anniversary.html?searchResultPosition=6
 
 **N.F.L.’s New Two-Minute Drill: Juggling a Coronavirus Outbreak**\
 `A spate of infections in the Titans’ clubhouse forced the league to indefinitely postpone their game against the Steelers and gird for more consequences.`\
-https://nytimes.com/2020/10/01/sports/football/tennessee-titans-covid-19-nfl.html?searchResultPosition=3
+https://nytimes.com/2020/10/01/sports/football/tennessee-titans-covid-19-nfl.html?searchResultPosition=7
 
 **Male Baboons Find Good Reasons to Be in the Friend Zone**\
 `These male monkeys lived longer if they had female friends, with or without benefits.`\
-https://nytimes.com/2020/10/01/science/baboons-males-friendship.html?searchResultPosition=4
+https://nytimes.com/2020/10/01/science/baboons-males-friendship.html?searchResultPosition=8
 
 **Despite Billions in Fees, Banks Predict Meager Profits on P.P.P. Loans**\
 `Banks collected at least $13 billion in fees on Paycheck Protection Program loans, according to a New York Times analysis. But the largest lenders say costs wiped out most of what they took in.`\
-https://nytimes.com/2020/10/01/business/ppp-loans-bank-profits.html?searchResultPosition=5
+https://nytimes.com/2020/10/01/business/ppp-loans-bank-profits.html?searchResultPosition=9
 
 **White House Says Trump Has ‘Always Denounced White Supremacy’**\
 `Kayleigh McEnany, the White House press secretary, repeatedly refused to denounce white supremacy on Thursday, insisting that President Trump had already done so.`\
-https://nytimes.com/video/us/politics/100000007372544/trump-kayleigh-mcenany-denounce-white-supremacy.html?searchResultPosition=6
-
-**Gas Tax Spikes in N.J. Because of Pandemic’s Impact**\
-`Taxes on gasoline and diesel increased by 9.3 cents a gallon on Thursday in a state once known for bargain fuel. The increase came a month after tolls on major roadways also spiked.`\
-https://nytimes.com/2020/10/01/nyregion/nj-gas-tax-hike.html?searchResultPosition=7
-
-**7 Things to Do This Weekend**\
-`Our critics and writers have selected noteworthy cultural events to experience virtually or in person in New York City.`\
-https://nytimes.com/2020/10/01/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=8
-
-**Glass Fire Burns in California as Winds Cause Concern**\
-`Forecasters and fire officials warned that strong, dry gusts, known as Diablo winds, could worsen the Glass Fire. The fire has burned more than 50,000 acres in California’s Napa and Sonoma Counties.`\
-https://nytimes.com/video/us/100000007372501/napa-california-wildfire.html?searchResultPosition=9
-
-**Fires and Storms Push Demand for Emergency Shelter to a New High**\
-`The Red Cross has provided more nights of shelter to Americans this year than at any point on record, a sign of the widening human toll of climate change.`\
-https://nytimes.com/2020/10/01/climate/disaster-shelter-red-cross.html?searchResultPosition=10
+https://nytimes.com/video/us/politics/100000007372544/trump-kayleigh-mcenany-denounce-white-supremacy.html?searchResultPosition=10
 
