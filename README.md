@@ -2,8 +2,8 @@
 `Our president as a terrible toddler.`\
 https://nytimes.com/2020/09/30/opinion/presidential-debate-trump.html?searchResultPosition=1
 
-**The Proud Boys, Who Trade in Political Violence, Get a Boost From Trump**\
-`During this week’s presidential debate, President Trump said the far-right organization should “stand back and stand by.” Some saw it as an endorsement of a group known for street brawls.`\
+**Far-Right Group That Trades in Political Violence Gets a Boost**\
+`During this week’s presidential debate, President Trump said an extremist organization should “stand back and stand by.” Some saw it as an endorsement of a group known for street brawls.`\
 https://nytimes.com/2020/09/30/us/proud-boys-trump.html?searchResultPosition=2
 
 **Trump Renews Fears of Voter Intimidation as G.O.P. Poll Watchers Mobilize**\
