@@ -1,5 +1,5 @@
 **You’re Telling Me!**\
-`Gather round and listen up to Sam Ezersky’s puzzle.`\
+`SUNDAY PUZZLE — If you like mining your puzzles for puns, you certainly won’t find this grid boring! For those who don’t know Sam Ezersky, he’s solely responsible for all of those annoying Spelling Bee omissions (complaints to buzzwords@nytimes.`\
 https://nytimes.com/2020/10/02/crosswords/daily-puzzle-2020-10-04.html?searchResultPosition=1
 
 **Trump’s Undoing: A Virus That Thrives Indoors**\
