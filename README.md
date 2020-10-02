@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/02/parenting/black-parents-pandemic.html?searchResul
 https://nytimes.com/video/world/europe/100000007374383/johnson-trump-coronavirus.html?searchResultPosition=2
 
 **The Watchable Parts of Thursday’s Broncos-Jets Game**\
-`A sloppy game between fairly woeful teams had a few moments of pure beauty. We focused on those and left out the rest.`\
+`A sloppy contest between fairly woeful teams had a few moments of pure beauty. We focused on those and left out the rest.`\
 https://nytimes.com/2020/10/02/sports/football/jets-broncos-highlights.html?searchResultPosition=3
 
 **Fungus May Be Fall’s Hottest Fashion Trend**\
