@@ -1,40 +1,40 @@
+**New Jersey Man’s Body Is Recovered From the Depths of Lake Tahoe**\
+`Officials said the recovery of Ryan Normoyle’s body, which was 1,565 feet down, was the deepest ever recorded at the lake.`\
+https://nytimes.com/2020/10/02/us/new-jersey-man-body-recovered-lake-tahoe.html?searchResultPosition=1
+
 **Your Friday Briefing**\
 `Trump quarantine, Belarus sanctions, Aleksei Navalny: Here’s what you need to know.`\
-https://nytimes.com/2020/10/02/briefing/trump-quarantine-navalny-belarus.html?searchResultPosition=1
+https://nytimes.com/2020/10/02/briefing/trump-quarantine-navalny-belarus.html?searchResultPosition=2
 
 **30 Years After Reunification, Old German-German Border Is a Green Oasis**\
 `Crossing the militarized border that split Germany into east and west once meant risking death. Now? It’s a literal walk in the park.`\
-https://nytimes.com/2020/10/02/world/europe/germany-reunification-berlin-wall.html?searchResultPosition=2
+https://nytimes.com/2020/10/02/world/europe/germany-reunification-berlin-wall.html?searchResultPosition=3
 
 **The Oakland A’s Conquer One Demon. Could the Astros Be Next?**\
 `The A’s got their first postseason series victory since 2006, and they will now face a Houston team that has become their nemesis.`\
-https://nytimes.com/2020/10/02/sports/02kepner-oakland-athletics-mlb-playoffs.html?searchResultPosition=3
+https://nytimes.com/2020/10/02/sports/02kepner-oakland-athletics-mlb-playoffs.html?searchResultPosition=4
 
 **Corrections: Oct. 2, 2020**\
 `Corrections that appeared in print on Friday, Oct. 2, 2020.`\
-https://nytimes.com/2020/10/02/pageoneplus/corrections-oct-2-2020.html?searchResultPosition=4
+https://nytimes.com/2020/10/02/pageoneplus/corrections-oct-2-2020.html?searchResultPosition=5
 
 **2020 French Open: What to Watch on Friday**\
 `Simona Halep and Amanda Anisimova meet in the third round, while a slew of young talents on the men’s side look to set personal records on the Grand Slam stage.`\
-https://nytimes.com/2020/10/02/sports/2020-french-open-what-to-watch-on-friday.html?searchResultPosition=5
+https://nytimes.com/2020/10/02/sports/2020-french-open-what-to-watch-on-friday.html?searchResultPosition=6
 
 **Preakness Stakes Experts’ Picks: Who Will Win?**\
 `Joe Drape and Melissa Hoppert look at the contenders for the 145th Preakness Stakes on Saturday in Baltimore.`\
-https://nytimes.com/2020/10/02/sports/horse-racing/preakness-stakes-experts-picks-predictions.html?searchResultPosition=6
+https://nytimes.com/2020/10/02/sports/horse-racing/preakness-stakes-experts-picks-predictions.html?searchResultPosition=7
 
 **Real Estate Sales Continue to Stagnate in Manhattan**\
 `The number of apartments sold in the last three months was down by 46 percent compared to the same period in 2019.`\
-https://nytimes.com/2020/10/02/realestate/nymarket-still-down.html?searchResultPosition=7
+https://nytimes.com/2020/10/02/realestate/nymarket-still-down.html?searchResultPosition=8
 
 **In My Sari, Kissing the Soccer Coach**\
 `“Bend It Like Beckham” gave me a vision of my romantic future. My future had other ideas.`\
-https://nytimes.com/2020/10/02/style/modern-love-in-my-saari-kissing-the-soccer-coach.html?searchResultPosition=8
+https://nytimes.com/2020/10/02/style/modern-love-in-my-saari-kissing-the-soccer-coach.html?searchResultPosition=9
 
 **Quotation of the Day: When Your Job Is to Ensure Nov. 3 Isn’t a Debacle**\
 `Quotation of the Day for Friday, October 2, 2020.`\
-https://nytimes.com/2020/10/01/todayspaper/quotation-of-the-day-when-your-job-is-to-ensure-nov-3-isnt-a-debacle.html?searchResultPosition=9
-
-**In Profane Rant, Melania Trump Takes Aim at Migrant Children and Critics**\
-`The audio recording puts the first lady’s frustrations on full display just weeks before President Trump faces the voters in his bid for a second term.`\
-https://nytimes.com/2020/10/01/us/politics/melania-trump-christmas-stephanie-winston-wolkoff.html?searchResultPosition=10
+https://nytimes.com/2020/10/01/todayspaper/quotation-of-the-day-when-your-job-is-to-ensure-nov-3-isnt-a-debacle.html?searchResultPosition=10
 
