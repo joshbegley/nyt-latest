@@ -27,7 +27,7 @@ https://nytimes.com/2020/10/02/world/stock-market-trump-coronavirus.html?searchR
 https://nytimes.com/2020/10/02/us/politics/secret-service-coronavirus-trump.html?searchResultPosition=7
 
 **Global Markets Fall After Trump Tests Positive for Covid-19**\
-`Futures suggested Wall Street would open 1 percent to 2 percent lower as the political leadership of the United States was thrown into doubt.`\
+`Futures suggested Wall Street would open lower as U.S. political leadership was thrown into doubt.`\
 https://nytimes.com/2020/10/02/business/trump-coronavirus-markets.html?searchResultPosition=8
 
 **Covid-19 Upends South Korea’s Thanksgiving, and Its Rituals**\
