@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/02/movies/netflix-october-expiring.html?searchResult
 https://nytimes.com/2020/10/02/us/politics/trump-succession-constitution.html?searchResultPosition=3
 
 **Special Edition: The Pandemic Reaches the President**\
-`He assured the country the pandemic would “disappear” soon. Then he tested positive.`\
+`He assured the country the coronavirus would “disappear” soon. Then he tested positive.`\
 https://nytimes.com/2020/10/02/podcasts/the-daily/trump-coronavirus-symptoms.html?searchResultPosition=4
 
 **Getting the Virus Can Change a Politician’s Mind, Say Some Who Had It**\
