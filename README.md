@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/02/us/harvey-weinstein-sexual-assault-charges.html?s
 `“Kingdom of Silence,” due Friday, and “The Dissident,” due Dec. 18, revisit the killing of the Saudi journalist Khashoggi in Turkey in 2018.`\
 https://nytimes.com/2020/10/02/movies/jamal-khashoggi-kingdom-of-silence-the-dissident.html?searchResultPosition=3
 
-**Fox News Stars, and Lachlan Murdoch, Were Potentially Exposed at the Debate**\
+**Fox News Stars, and Lachlan Murdoch, Were Potentially Exposed on Debate Night**\
 `Fox News is planning for its anchors, reporters and staff to be tested out of an abundance of caution.`\
 https://nytimes.com/2020/10/02/business/media/foxnews-trump-coronavirus-exposure.html?searchResultPosition=4
 
