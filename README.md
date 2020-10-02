@@ -27,7 +27,7 @@ https://nytimes.com/2020/10/02/t-magazine/tiffany-gold-mesh-necklace.html?search
 https://nytimes.com/2020/10/02/opinion/international-world/the-wall-that-covid-19-built-is-keeping-me-from-my-mom.html?searchResultPosition=7
 
 **Watch Full Video: Health Secretary Alex Azar Testifies on Coronavirus**\
-`Secretary of Health and Human Services Alex Azar testified before House Select Subcommittee on the Coronavirus Crisis.`\
+`Secretary of Health and Human Services Alex Azar testified before the House Select Subcommittee on the Coronavirus Crisis.`\
 https://nytimes.com/video/us/politics/100000007374657/alex-azar-coronavirus.html?searchResultPosition=8
 
 **Video Shows Trump Tossing Hats to Crowd Before Positive Test for Virus**\
