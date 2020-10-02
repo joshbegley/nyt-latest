@@ -26,8 +26,8 @@ https://nytimes.com/2020/10/02/us/politics/covid-vaccine-guidelines.html?searchR
 `The Times is looking for stories about coping with the stresses of being Black while raising kids during the pandemic.`\
 https://nytimes.com/2020/10/02/parenting/black-parents-pandemic.html?searchResultPosition=7
 
-**Boris Johnson Wishes Trump a ‘Strong Recovery’**\
-`On Friday, Prime Minister Boris Johnson of Britain, who had recovered from Covid-19, sent get-well greetings to President Trump and the first lady after learning they had tested positive for the coronavirus.`\
+**World Leaders Wish Trump a Speedy Recovery**\
+`Prime Minister Boris Johnson of Britain and Chancellor Angela Merkel of Germany sent get-well greetings to President Trump and the first lady after learning they had tested positive for the coronavirus.`\
 https://nytimes.com/video/world/europe/100000007374383/johnson-trump-coronavirus.html?searchResultPosition=8
 
 **The Watchable Parts of Thursday’s Broncos-Jets Game**\
