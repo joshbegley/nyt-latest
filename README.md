@@ -4,7 +4,7 @@ https://nytimes.com/2020/10/02/world/asia/indonesia-bill-environment-unions.html
 
 **Trump Tests Positive for the Coronavirus**\
 `The president’s result came after he spent months playing down the severity of the outbreak that has killed more than 207,000 in the United States and hours after insisting that “the end of the pandemic is in sight.”`\
-https://nytimes.com/2020/10/02/us/politics/trump-positive-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/10/02/us/politics/trump-covid.html?searchResultPosition=2
 
 **Eliud Kipchoge Emerges as the Philosopher-King of Running**\
 `He is already the greatest marathoner ever, but Kipchoge, who competes in London on Sunday, has evolved into something of a Zen master as well. Where does that come from? Look to his heritage.`\
