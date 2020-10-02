@@ -1,40 +1,40 @@
+**What Went Viral This Week**\
+`Stories about Trump’s taxes, the Proud Boys and Chris Wallace’s debate performance dominated social media feeds this week.`\
+https://nytimes.com/2020/10/02/technology/what-went-viral-this-week.html?searchResultPosition=1
+
 **Retracing Trump’s Contacts Before He Tested Positive for Coronavirus**\
 `A visual guide to the president’s movements and contacts in the days before he announced his positive test for the coronavirus.`\
-https://nytimes.com/interactive/2020/10/02/us/politics/trump-contact-tracing-covid.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/10/02/us/politics/trump-contact-tracing-covid.html?searchResultPosition=2
 
 **Azar Defends Trump Decision to Not Wear Mask**\
 `At a House hearing on Friday, Alex M. Azar II, the Health and Human Services secretary, defended President Trump’s refusal to wear a mask at the recent presidential debate.`\
-https://nytimes.com/video/us/politics/100000007374943/azar-trump-masks-coronavirus.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000007374943/azar-trump-masks-coronavirus.html?searchResultPosition=3
 
 **Biden Campaign Scrambles to Adjust to New Uncertainty in Race**\
 `Joe Biden tested negative for the coronavirus and planned to go ahead with campaign events. But President Trump’s positive test injects a volatile new element into the race just a month before Election Day.`\
-https://nytimes.com/2020/10/02/us/politics/joe-biden-virus-trump.html?searchResultPosition=3
+https://nytimes.com/2020/10/02/us/politics/joe-biden-virus-trump.html?searchResultPosition=4
 
 **Which public officials and members of Trump’s circle have recently tested positive for the coronavirus (and which have not).**\
 `By Matt Stevens and Priya Arora`\
-https://nytimes.com/2020/10/02/us/elections/covid-trump-aides-politicians.html?searchResultPosition=4
+https://nytimes.com/2020/10/02/us/elections/covid-trump-aides-politicians.html?searchResultPosition=5
 
 **N.Y. Voting Officials Need Money. They Were Told to Go to Zuckerberg.**\
 `Local election boards say they may need up to $50 million to avoid a repeat of the botched primary, so some are seeking, and receiving, grants funded by the Facebook chief executive.`\
-https://nytimes.com/2020/10/02/nyregion/voting-absentee-ballots-ny.html?searchResultPosition=5
+https://nytimes.com/2020/10/02/nyregion/voting-absentee-ballots-ny.html?searchResultPosition=6
 
 **Tech Isn’t the Answer for Test Taking**\
 `Taking tests remotely is a problem. That doesn’t mean technology is the solution.`\
-https://nytimes.com/2020/10/02/technology/tech-test-taking.html?searchResultPosition=6
+https://nytimes.com/2020/10/02/technology/tech-test-taking.html?searchResultPosition=7
 
 **Solutions Are Expensive. An Aura Is Priceless.**\
 `Some players are so respected that even their rare mistakes do not impact their reputations. That greatness is earned, of course, but it can cast an unfair shadow over everyone else.`\
-https://nytimes.com/2020/10/02/sports/soccer/liverpool-van-dijk.html?searchResultPosition=7
+https://nytimes.com/2020/10/02/sports/soccer/liverpool-van-dijk.html?searchResultPosition=8
 
 **Salty-Sweet Chicken**\
 `Rick A. Martinez’s weeknight chicken Marbella is an exceptionally good dinner.`\
-https://nytimes.com/2020/10/02/dining/salty-sweet-chicken.html?searchResultPosition=8
+https://nytimes.com/2020/10/02/dining/salty-sweet-chicken.html?searchResultPosition=9
 
 **Macron Vows Crackdown on ‘Islamist Separatism’ in France**\
 `President Emmanuel Macron’s speech addressed a deep-rooted problem in French society: its enduring difficulty to integrate significant parts of its large, nonwhite, Muslim population of immigrants and their descendants.`\
-https://nytimes.com/2020/10/02/world/europe/macron-radical-islam-france.html?searchResultPosition=9
-
-**Trump Infected: What Do We Know and Don’t We Know**\
-`The president has tested positive for the coronavirus and is isolated at the White House for the time being. Aides said he has “mild symptoms” but much remains unknown.`\
-https://nytimes.com/2020/10/02/us/politics/trump-infected-what-we-know.html?searchResultPosition=10
+https://nytimes.com/2020/10/02/world/europe/macron-radical-islam-france.html?searchResultPosition=10
 
