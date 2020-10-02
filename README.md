@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/01/us/politics/democrats-stimulus-bill.html?searchRe
 `Our monthly collection of recent Times articles about young people, from the Sports and Business sections to international and education reporting.`\
 https://nytimes.com/2020/10/01/learning/teenagers-in-the-times-september-2020.html?searchResultPosition=2
 
-**Hope Hicks, a White House adviser who traveled with the president on Air Force One on Wednesday, tests positive for coronavirus.**\
+**Hope Hicks, a White House adviser who traveled with the president on Air Force One, tests positive for coronavirus.**\
 `By Maggie Haberman`\
 https://nytimes.com/2020/10/01/us/elections/hope-hicks-coronavirus.html?searchResultPosition=3
 
