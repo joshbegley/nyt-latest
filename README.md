@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/02/opinion/trump-positive-coronavirus-biden.html?sea
 `Rick Owens and Loewe embrace the surreality of the moment, and it looks great. Dries Van Noten clears the air.`\
 https://nytimes.com/2020/10/02/style/paris-fashion-week-rick-owens-loewe-dries-van-noten.html?searchResultPosition=2
 
-**Biotech Industry Pushes F.D.A. to Release New Vaccine Guidelines**\
+**Biotech Industry Pushes Trump Administration to Release New Vaccine Guidelines**\
 `The BIO trade group, whose members include most of the vaccine makers, asked the health secretary to make the new vaccine guidelines public.`\
 https://nytimes.com/2020/10/02/us/politics/covid-vaccine-guidelines.html?searchResultPosition=3
 
