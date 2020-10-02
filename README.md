@@ -1,40 +1,40 @@
-**Trump’s Positive Coronavirus Test Upends Campaign in Final Stretch**\
-`With his health and the country’s stability at risk, strategists and even senior aides to the president said he would face a harsh judgment from voters.`\
-https://nytimes.com/2020/10/02/us/politics/trump-coronavirus-campaign.html?searchResultPosition=1
+**Captain Chain Saw’s Delusion**\
+`The Amazon was never a “land without men.”`\
+https://nytimes.com/2020/10/02/opinion/amazon-rainforest-conservation.html?searchResultPosition=1
 
-**Every Place Under Threat**\
-`In the Amazon, today's environmental problems become tomorrow's catastrophe.`\
-https://nytimes.com/interactive/2020/10/02/opinion/amazon-under-threat.html?searchResultPosition=2
+**20 Hours of Audio From Breonna Taylor Grand Jury Are Set to Be Made Public**\
+`The rare release of audio from grand jury proceedings is expected to happen on Friday morning and may shed light on the jurors’ decision to indict one of three officers who fired their weapons.`\
+https://nytimes.com/2020/10/02/us/breonna-taylor-grand-jury-audio-recording.html?searchResultPosition=2
 
-**In His Own Words, Trump on the Pandemic and Masks**\
-`During the course of the outbreak, the president has expressed confidence that the virus would quickly go away and skepticism about the value of wearing masks.`\
-https://nytimes.com/2020/10/02/us/politics/donald-trump-masks.html?searchResultPosition=3
+**Peace Corps Faces Questions Over Another Volunteer Death**\
+`A 24-year-old volunteer died of undiagnosed malaria on the island nation of Comoros. It was one of at least three deaths since 2009 that have been linked to mistakes by Peace Corps doctors.`\
+https://nytimes.com/2020/10/02/us/politics/peace-corps-death.html?searchResultPosition=3
 
-**Lesson of the Day: ‘As Covid-19 Closes Schools, the World’s Children Go to Work’**\
-`In this lesson, students learn about the growing child labor crisis around the world and consider ways they can inform others.`\
-https://nytimes.com/2020/10/02/learning/lesson-of-the-day-as-covid-19-closes-schools-the-worlds-children-go-to-work.html?searchResultPosition=4
+**Amazon 4.0. How to Reinvent the Rainforest**\
+`It took tens of millions of years for tropical rainforests to evolve. It may take us just a few decades to destroy them, unless we change course.`\
+https://nytimes.com/2020/10/02/opinion/amazon-rainforest-climate-change.html?searchResultPosition=4
 
-**On Monday, Trump Updated the Nation on Virus Strategy. By Friday, He Tested Positive.**\
-`President Trump interacted with scores of staff members, donors and supporters this week. Early Friday morning, it was still unclear how many other aides who had come into close contact with him had tested positive.`\
-https://nytimes.com/2020/10/02/us/politics/trump-positive-coronavirus-test.html?searchResultPosition=5
+**Why ‘Stand Back and Stand By’ Should Set Off Alarm Bells**\
+`America’s failure to deal with the white power movement.`\
+https://nytimes.com/2020/10/02/opinion/trump-proud-boys.html?searchResultPosition=5
 
-**Colleges Learn How to Suppress Coronavirus: Extensive Testing**\
-`While many campuses are struggling with major outbreaks, some schools have successfully contained the virus.`\
-https://nytimes.com/2020/10/02/us/colleges-coronavirus-success.html?searchResultPosition=6
+**Six Months in the Life of a Locked-Down Theater**\
+`Britain’s National Theater hopes to reopen in October after being closed for more than 200 days. But even with the shutters down, it’s been an eventful and emotional time for its staff.`\
+https://nytimes.com/2020/10/02/theater/uk-national-theater-coronavirus.html?searchResultPosition=6
 
-**Do Politics Belong in Retirement Planning?**\
-`Whether financial advisers like to address the topic or not, clients are bringing it up.`\
-https://nytimes.com/2020/10/02/business/politics-retirement-planning.html?searchResultPosition=7
+**Leaf Peeping Is Not Canceled: 6 Drives and Hikes to Try This Fall**\
+`From the Berkshires to the Rockies, the vibrant colors of fall are popping, and nothing, not even a pandemic, can stop them. Six writers in six states reveal their favorite drives and hikes.`\
+https://nytimes.com/2020/10/02/travel/leaf-peeping-drives-hikes.html?searchResultPosition=7
 
-**W.N.B.A. Finals Storm-Aces Preview: A Battle of M.V.P.s**\
-`The Las Vegas Aces have A’ja Wilson, and the Seattle Storm have Breanna Stewart. Their teams went toe-to-toe during the regular season, and the finals should be no different.`\
-https://nytimes.com/2020/10/02/sports/basketball/wnba-finals-preview-storm-ace.html?searchResultPosition=8
+**Democrats Mount an All-Out Effort to Get Detroit to Vote**\
+`Urgently trying to avoid a repeat of 2016, when Donald Trump won Michigan by a razor-thin margin, Democrats have been focusing on driving up turnout in a city where tens of thousands didn’t vote the last time.`\
+https://nytimes.com/2020/10/02/us/politics/democrats-mount-an-all-out-effort-to-get-detroit-to-vote.html?searchResultPosition=8
 
-**Sitting and Standing**\
-`What is this image saying?`\
-https://nytimes.com/2020/10/02/learning/sitting-and-standing.html?searchResultPosition=9
+**After Wildfires Stop Burning, a Danger in the Drinking Water**\
+`Experts are warning that existing water safety rules are not suitable to a world where wildfires destroy more residential areas than in the past.`\
+https://nytimes.com/2020/10/02/science/wildfires-water-toxins.html?searchResultPosition=9
 
-**Trump Tests Positive for Covid-19, and the World Shudders**\
-`The news of an American president contracting a potentially lethal virus carried global repercussions beyond that of any other world leader.`\
-https://nytimes.com/2020/10/02/world/reactions-trump-positive-covid-test.html?searchResultPosition=10
+**Tom Who? Cam Newton Is Moving New England Past Brady**\
+`Cam Newton is winning over New England, a racially complicated area accustomed to Hall of Fame quarterback play. All it’s taken are a couple wins, endorsements from his taciturn coach and a whole lot of charm.`\
+https://nytimes.com/2020/10/02/sports/football/cam-newton-new-england-patriots.html?searchResultPosition=10
 
