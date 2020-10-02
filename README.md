@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/02/us/politics/homeland-security-portland-protesters
 `SUNDAY PUZZLE — If you like mining your puzzles for puns, you certainly won’t find this grid boring! For those who don’t know Sam Ezersky, he’s solely responsible for all of those annoying Spelling Bee omissions (complaints to buzzwords@nytimes.`\
 https://nytimes.com/2020/10/02/crosswords/daily-puzzle-2020-10-04.html?searchResultPosition=9
 
-**Trump’s Undoing: A Virus That Thrives Indoors**\
+**Trump’s Travail: A Virus That Thrives Indoors**\
 `The coronavirus can linger in the air in tiny particles. The president spends a lot of time indoors with others and disdains precautions.`\
 https://nytimes.com/2020/10/02/health/trump-infected-coronavirus.html?searchResultPosition=10
 
