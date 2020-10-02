@@ -1,8 +1,8 @@
-**DealBook: Trump Tests Positive. What Comes Next...**\
+**DealBook: Trump Tests Positive. What Comes Next ...**\
 `Now, everything is in flux.`\
 https://nytimes.com/2020/10/02/business/dealbook/trump-coronavirus-positive.html?searchResultPosition=1
 
-**Defiant, Now Infected: Trump is a Morality Tale**\
+**Defiant, Now Infected: Trump Is a Morality Tale**\
 `The president has the coronavirus. Let’s learn from that.`\
 https://nytimes.com/2020/10/02/opinion/trump-positive-coronavirus.html?searchResultPosition=2
 
