@@ -2,7 +2,7 @@
 `President Trump’s health news brought on, for many, the kind of psychic doom-spiraling that has felt endemic to the era.`\
 https://nytimes.com/2020/10/02/us/politics/trump-coronavirus-2020-campaign.html?searchResultPosition=1
 
-**Trump Joins Other World Leaders in Contracting Coronavirus**\
+**Trump Joins Boris Johnson and Jair Bolsonaro as Leader Who Got Virus**\
 `Prime Minister Boris Johnson of Britain and President Jair Bolsonaro of Brazil were also among the top officials infected this year. Although Mr. Johnson was hospitalized, Mr. Bolsonaro appeared to have a mild case.`\
 https://nytimes.com/2020/10/02/world/trump-covid-world-leaders.html?searchResultPosition=2
 
