@@ -30,8 +30,8 @@ https://nytimes.com/2020/10/02/sports/soccer/liverpool-van-dijk.html?searchResul
 `Rick A. Martinez’s weeknight chicken Marbella is an exceptionally good dinner.`\
 https://nytimes.com/2020/10/02/dining/salty-sweet-chicken.html?searchResultPosition=8
 
-**Macron Vows Crackdown on Radical Islam in France**\
-`President Emmanuel Macron, who is gearing up for a 2022 re-election campaign, outlined measures to curb what he called “Islamist separatism.”`\
+**Macron Vows Crackdown on ‘Islamist Separatism’ in France**\
+`President Emmanuel Macron’s speech addressed a deep-rooted problem in French society: its enduring difficulty to integrate significant parts of its large, nonwhite, Muslim population of immigrants and their descendants.`\
 https://nytimes.com/2020/10/02/world/europe/macron-radical-islam-france.html?searchResultPosition=9
 
 **Trump Infected: What Do We Know and Don’t We Know**\
