@@ -1,4 +1,4 @@
-**Trump Has the Coronavirus: What Risks Does He Face?**\
+**Trump Has the Coronavirus. What Risks Does He Face?**\
 `Older men have a greater chance of becoming severely ill from Covid-19, though many recover quickly. Experts say the next week will be crucial.`\
 https://nytimes.com/2020/10/02/health/trump-coronavirus-explainer.html?searchResultPosition=1
 
