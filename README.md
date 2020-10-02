@@ -1,4 +1,4 @@
-**Hope Hicks, White House adviser who traveled with the president on Air Force One on Wednesday, tests positive for coronavirus.**\
+**Hope Hicks, a White House adviser who traveled with the president on Air Force One on Wednesday, tests positive for coronavirus.**\
 `By Maggie Haberman`\
 https://nytimes.com/2020/10/01/us/elections/hope-hicks-coronavirus.html?searchResultPosition=1
 
