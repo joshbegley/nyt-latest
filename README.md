@@ -30,11 +30,11 @@ https://nytimes.com/2020/10/02/sports/02kepner-oakland-athletics-mlb-playoffs.ht
 `Corrections that appeared in print on Friday, Oct. 2, 2020.`\
 https://nytimes.com/2020/10/02/pageoneplus/corrections-oct-2-2020.html?searchResultPosition=8
 
-**2020 French Open: What to Watch on Friday**\
-`Simona Halep and Amanda Anisimova meet in the third round, while a slew of young talents on the men’s side look to set personal records on the Grand Slam stage.`\
-https://nytimes.com/2020/10/02/sports/2020-french-open-what-to-watch-on-friday.html?searchResultPosition=9
-
 **Preakness Stakes Experts’ Picks: Who Will Win?**\
 `Joe Drape and Melissa Hoppert look at the contenders for the 145th Preakness Stakes on Saturday in Baltimore.`\
-https://nytimes.com/2020/10/02/sports/horse-racing/preakness-stakes-experts-picks-predictions.html?searchResultPosition=10
+https://nytimes.com/2020/10/02/sports/horse-racing/preakness-stakes-experts-picks-predictions.html?searchResultPosition=9
+
+**2020 French Open: What to Watch on Friday**\
+`Simona Halep and Amanda Anisimova meet in the third round, while a slew of young talents on the men’s side look to set personal records on the Grand Slam stage.`\
+https://nytimes.com/2020/10/02/sports/2020-french-open-what-to-watch-on-friday.html?searchResultPosition=10
 
