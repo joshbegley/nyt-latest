@@ -4,7 +4,7 @@ https://nytimes.com/2020/10/02/nyregion/rochester-mayor-warren-indicted.html?sea
 
 **Revisiting George Smiley and the British Secret Service**\
 `In 1974, Richard Locke reviewed “Tinker, Tailor, Soldier, Spy,” John le Carré’s novel following a spymaster’s pursuit to uncover a Soviet mole in the British secret service, for the Book Review.`\
-https://nytimes.com/2020/10/02/books/review/revisiting-george-smiley-and-the-british-secret-service.html?searchResultPosition=2
+https://nytimes.com/2020/10/04/books/review/revisiting-george-smiley-and-the-british-secret-service.html?searchResultPosition=2
 
 **When Waking Life Feels Like a Dream**\
 `How do you interpret it?`\
