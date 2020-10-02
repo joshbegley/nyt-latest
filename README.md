@@ -15,7 +15,7 @@ https://nytimes.com/2020/10/02/sports/eliud-kipchoge-talai-kenya-london-marathon
 https://nytimes.com/2020/10/02/us/new-jersey-man-body-recovered-lake-tahoe.html?searchResultPosition=4
 
 **Your Friday Briefing**\
-`Trump quarantine, Belarus sanctions, Aleksei Navalny: Here’s what you need to know.`\
+`Trump’s positive coronavirus test, Belarus sanctions, Aleksei Navalny: Here’s what you need to know.`\
 https://nytimes.com/2020/10/02/briefing/trump-quarantine-navalny-belarus.html?searchResultPosition=5
 
 **30 Years After Reunification, Old German-German Border Is a Green Oasis**\
