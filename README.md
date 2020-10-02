@@ -2,9 +2,9 @@
 `The diamonds perched atop Elsa Peretti’s fluid gold mesh collar, which the house recently reimagined, resemble droplets of dew.`\
 https://nytimes.com/2020/10/02/t-magazine/tiffany-gold-mesh-necklace.html?searchResultPosition=1
 
-**The Border Wall That Covid-19 Built Is Keeping Me From My Mom**\
+**The Wall That Covid-19 Built Is Keeping Me From My Mom**\
 `Being a family separated by borders is never easy, but this year is different.`\
-https://nytimes.com/2020/10/02/opinion/international-world/the-border-wall-that-covid-19-built-is-keeping-me-from-my-mom.html?searchResultPosition=2
+https://nytimes.com/2020/10/02/opinion/international-world/the-wall-that-covid-19-built-is-keeping-me-from-my-mom.html?searchResultPosition=2
 
 **Watch Live: Health Secretary Alex Azar Testifies on Coronavirus**\
 `Secretary of Health and Human Services Alex Azar testifies before House Select Subcommittee on the Coronavirus Crisis.`\
