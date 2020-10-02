@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/02/dining/salty-sweet-chicken.html?searchResultPosit
 https://nytimes.com/2020/10/02/world/europe/macron-radical-islam-france.html?searchResultPosition=3
 
 **Trump Infected: What Do We Know and Don’t We Know**\
-`The president has tested positive for the coronavirus and is quarantined at the White House for the time being. Aides said he has “mild symptoms” but much remains unknown.`\
+`The president has tested positive for the coronavirus and is isolated at the White House for the time being. Aides said he has “mild symptoms” but much remains unknown.`\
 https://nytimes.com/2020/10/02/us/politics/trump-infected-what-we-know.html?searchResultPosition=4
 
 **Will the Trumps Get Experimental Treatments for Covid-19?**\
