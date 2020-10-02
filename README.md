@@ -26,13 +26,13 @@ https://nytimes.com/2020/10/02/us/politics/peace-corps-death.html?searchResultPo
 `It took tens of millions of years for tropical rainforests to evolve. It may take us just a few decades to destroy them, unless we change course.`\
 https://nytimes.com/2020/10/02/opinion/amazon-rainforest-climate-change.html?searchResultPosition=7
 
-**Why ‘Stand Back and Stand By’ Should Set Off Alarm Bells**\
-`America’s failure to deal with the white power movement.`\
-https://nytimes.com/2020/10/02/opinion/trump-proud-boys.html?searchResultPosition=8
-
 **Six Months in the Life of a Locked-Down Theater**\
 `Britain’s National Theater hopes to reopen in October after being closed for more than 200 days. But even with the shutters down, it’s been an eventful and emotional time for its staff.`\
-https://nytimes.com/2020/10/02/theater/uk-national-theater-coronavirus.html?searchResultPosition=9
+https://nytimes.com/2020/10/02/theater/uk-national-theater-coronavirus.html?searchResultPosition=8
+
+**Why ‘Stand Back and Stand By’ Should Set Off Alarm Bells**\
+`America’s failure to deal with the white power movement.`\
+https://nytimes.com/2020/10/02/opinion/trump-proud-boys.html?searchResultPosition=9
 
 **Leaf Peeping Is Not Canceled: 6 Drives and Hikes to Try This Fall**\
 `From the Berkshires to the Rockies, the vibrant colors of fall are popping, and nothing, not even a pandemic, can stop them. Six writers in six states reveal their favorite drives and hikes.`\
