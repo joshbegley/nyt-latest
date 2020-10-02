@@ -1,5 +1,5 @@
 **On Monday, Trump Updated the Nation on Virus Strategy. By Friday, He Tested Positive.**\
-`President Trump has interacted with scores of staff, donors and supporters this week. Early Friday morning, it was still unclear how many other aides who had come into close contact with him had tested positive.`\
+`President Trump interacted with scores of staff members, donors and supporters this week. Early Friday morning, it was still unclear how many other aides who had come into close contact with him had tested positive.`\
 https://nytimes.com/2020/10/02/us/politics/trump-virus.html?searchResultPosition=1
 
 **Colleges Learn How to Suppress Coronavirus: Extensive Testing**\
