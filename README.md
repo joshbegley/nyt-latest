@@ -28,7 +28,7 @@ https://nytimes.com/2020/10/02/learning/sitting-and-standing.html?searchResultPo
 
 **Trump Tests Positive for Covid-19, and the World Shudders**\
 `The news of an American president contracting a potentially lethal virus carried global repercussions beyond that of any other world leader.`\
-https://nytimes.com/2020/10/02/world/stock-market-trump-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/10/02/world/reactions-trump-positive-covid-test.html?searchResultPosition=8
 
 **Outbreak at Secret Service Training Center Underlines Proximity of Virus to White House**\
 `At least 11 people tested positive at a Secret Service center that serves as a staffing pipeline to the presidential protective force.`\
