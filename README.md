@@ -2,8 +2,8 @@
 `The fiercely contested floodgate system was used to stop a high tide from flooding Venice’s fragile streets. The system held, but will it work as the climate worsens?`\
 https://nytimes.com/2020/10/03/world/europe/venice-floodgates-flooding.html?searchResultPosition=1
 
-**Cam Newton Tests Positive for Coronavirus, Out of Sunday’s Patriots-Chiefs Game**\
-`Newton, who replaced Tom Brady this season, has led the team to a 2-1 record and was poised for a showdown with the undefeated Patrick Mahomes and the Kansas City Chiefs.`\
+**Patriots-Chiefs Game Postponed After Positive Coronavirus Tests on Both Teams**\
+`Cam Newton, who replaced Tom Brady this season and has led the team to a 2-1 record, was reportedly among those who tested positive. Sunday’s game will be rescheduled to Monday or Tuesday, the N.F.L. said.`\
 https://nytimes.com/2020/10/03/sports/football/coronavirus-cam-newton-patriots.html?searchResultPosition=2
 
 **In Nagorno-Karabakh, New Risks in an Old Ethnic Conflict**\
