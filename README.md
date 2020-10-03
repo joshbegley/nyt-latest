@@ -12,7 +12,7 @@ https://nytimes.com/2020/10/03/dining/top-ten-dishes.html?searchResultPosition=3
 
 **Democratic challenger in North Carolina’s Senate race apologizes for romantic texts to a woman who is not his wife.**\
 `By Matt Stevens`\
-https://nytimes.com/2020/10/03/us/elections/democratic-challenger-in-north-carolinas-senate-race-apologizes-for-romantic-texts-to-a-woman-who-is-not-his-wife.html?searchResultPosition=4
+https://nytimes.com/2020/10/03/us/elections/cal-cunningham-thom-tillis.html?searchResultPosition=4
 
 **Belgium Arrests 3 Men Suspected of Involvement in Rwandan Genocide**\
 `The men, whose identities were not made public, are charged with serious abuse of human rights.`\
