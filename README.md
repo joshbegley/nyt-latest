@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/03/crosswords/variety-marching-bands.html?searchResu
 `The scientific institute leading the trip denied that its policy had been applied to a specific sex, saying, “Women and men participate in our polar expeditions as equals.”`\
 https://nytimes.com/2020/10/03/world/europe/arctic-mosaic-dress-code.html?searchResultPosition=9
 
-**Watch Live: Trump’s Physician to Deliver Update on President’s Condition**\
-`Dr. Sean Conley, the White House physician, is expected to address the president’s health. Mr. Trump is being treated at Walter Reed National Military Medical Center after testing positive for the coronavirus.`\
+**Watch: Trump’s Physician Delivers Update on President’s Condition**\
+`Dr. Sean Conley, the White House physician, addressed the president’s health. Mr. Trump is being treated at Walter Reed National Military Medical Center after testing positive for the coronavirus.`\
 https://nytimes.com/video/us/politics/100000007376262/trump-condition-walter-reed-update.html?searchResultPosition=10
 
