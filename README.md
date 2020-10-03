@@ -23,7 +23,7 @@ https://nytimes.com/2020/10/03/world/asia/india-bollywood-sushant-singh-rajput.h
 https://nytimes.com/video/us/politics/100000007376626/biden-trump-coronavirus.html?searchResultPosition=6
 
 **What to Know About Sean Conley, the White House Physician**\
-`Dr. Conley, who was appointed as President Trump’s physician in 2018, specializes in osteopathic medicine.`\
+`Dr. Conley, who was appointed as President Trump’s physician in 2018, is a doctor of osteopathic medicine.`\
 https://nytimes.com/2020/10/03/us/sean-conley-trump-doctor.html?searchResultPosition=7
 
 **‘Fifth Girl’ in 1963 Church Bombing Gets an Apology From Alabama’s Governor**\
