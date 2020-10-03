@@ -1,5 +1,5 @@
 **Bob Gibson, Feared Flamethrower for the Cardinals, Dies at 84**\
-`Gibson, who was known for his high, inside fastballs, won two Cy Young Awards and threw 56 career shutouts.`\
+`Gibson, who won two Cy Young Awards and threw 56 career shutouts, was known for his high, inside fastballs.`\
 https://nytimes.com/2020/10/02/sports/baseball/bob-gibson-dies.html?searchResultPosition=1
 
 **Corrections: Oct. 3, 2020**\
