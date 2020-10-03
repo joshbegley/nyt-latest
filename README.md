@@ -6,13 +6,13 @@ https://nytimes.com/2020/10/03/business/tidjane-thiam-credit-suisse.html?searchR
 `After the president tested positive, some Minnesota Republicans were undergoing tests, while others said they were unconcerned about potential risks of the rally.`\
 https://nytimes.com/2020/10/03/us/trump-covid-minnesota-rally.html?searchResultPosition=2
 
-**Help! I’d Like to Ride the Train. Is it Safe?**\
-`Our columnist finds that rail companies, both regional systems and Amtrak, are undertaking massive coronavirus efforts. But they can’t thoroughly disinfect every seat in every train at every station.`\
-https://nytimes.com/2020/10/03/travel/virus-amtrak-train-travel.html?searchResultPosition=3
-
 **Mother’s Little Helper Is Back, and Daddy’s Partaking Too**\
 `After the kids go to bed, the grown-ups are drinking and smoking pot to distract themselves from the hellscape that is pandemic parenting.`\
-https://nytimes.com/2020/10/03/style/am-i-drinking-too-much.html?searchResultPosition=4
+https://nytimes.com/2020/10/03/style/am-i-drinking-too-much.html?searchResultPosition=3
+
+**Help! I’d Like to Ride the Train. Is it Safe?**\
+`Our columnist finds that rail companies, both regional systems and Amtrak, are undertaking massive coronavirus efforts. But they can’t thoroughly disinfect every seat in every train at every station.`\
+https://nytimes.com/2020/10/03/travel/virus-amtrak-train-travel.html?searchResultPosition=4
 
 **Some Insurers End Pandemic Waivers of Fees and Deductibles for Telehealth**\
 `The coronavirus outbreaks had prompted the nation’s largest insurers to stop charging co-pays or requiring deductibles for virtual visits, but some consumers will now have to pay those fees again.`\
