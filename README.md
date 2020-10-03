@@ -1,5 +1,5 @@
 **While You Were Sleeping**\
-`How we turned a late night debate into an early morning show. Plus, a special episode.`\
+`How we turned a late-night debate into an early-morning show. Plus: A special episode, “The Pandemic Reaches the President.”`\
 https://nytimes.com/2020/10/02/podcasts/trump-debate-coronavirus.html?searchResultPosition=1
 
 **Setter’s Activity**\
