@@ -22,8 +22,8 @@ https://nytimes.com/2020/10/02/pageoneplus/corrections-oct-3-2020.html?searchRes
 `Quotation of the Day for Saturday, October 3, 2020.`\
 https://nytimes.com/2020/10/02/todayspaper/quotation-of-the-day-jobs-gains-lose-momentum-as-promising-recovery-stalls.html?searchResultPosition=6
 
-**Kellyanne Conway tests positive for the virus.**\
-`Kellyanne Conway said she had tested positive for the coronavirus, making her the latest person close to President Trump to have gotten sick this week.`\
+**Two senators on the Judiciary Committee test positive, raising questions about the timing of Barrett’s confirmation hearings.**\
+`By Maggie Haberman, Nicholas Fandos, Catie Edmondson, Lisa Lerer, Lauren Wolfe and Apoorva Mandavilli`\
 https://nytimes.com/2020/10/02/us/elections/kellyanne-conway-coronavirus.html?searchResultPosition=7
 
 **While You Were Sleeping**\
