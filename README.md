@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/03/upshot/polls-election-florida-pennsylvania.html?searchResultPosition=1
 
 **Battling Wildfire and Pandemic, Ukraine Faces a New Foe: Landmines**\
-`The blaze is setting off mines in the war zone in eastern Ukraine, hampering already dangerous firefighting and evacuation efforts.`\
+`The blaze is setting off mines and other ordnance littering the war zone in eastern Ukraine, hampering already dangerous firefighting and evacuation efforts.`\
 https://nytimes.com/2020/10/03/world/europe/ukraine-wildfires-landmines.html?searchResultPosition=2
 
 **Britain and E.U. Enter Make-or-Break Phase for Brexit Deal by Year’s End**\
