@@ -18,7 +18,7 @@ https://nytimes.com/video/us/politics/100000007376353/trump-coronavirus-health-u
 `In a different moment, a stricken leader might have rallied people behind him. But President Trump’s health crisis is filtered through the partisan lenses that divide Americans on seemingly every issue.`\
 https://nytimes.com/2020/10/03/us/politics/trump-covid-voter-reactions.html?searchResultPosition=5
 
-**Trump’s Symptoms Are Said to Be ‘Very Concerning’ as Virus Infects More G.O.P. Allies**\
+**Trump’s Symptoms Are ‘Very Concerning’ as Virus Infects More G.O.P. Allies**\
 `Doctors refused to provide critical details and left open the impression that the president was known to be sick a day earlier than previously reported.`\
 https://nytimes.com/2020/10/03/us/politics/trump-covid-updates.html?searchResultPosition=6
 
