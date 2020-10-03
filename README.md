@@ -22,7 +22,7 @@ https://nytimes.com/2020/10/03/sports/swiss-skydiver-wins-the-preakness-stakes.h
 `By Alisha Haridasani Gupta and Fatima Faizi`\
 https://nytimes.com/2020/10/03/world/afghan-women-men.html?searchResultPosition=6
 
-**Trump’s Covid Treatments Suggest a Serious Condition**\
+**Trump’s Covid Treatments Are Aimed at Preventing Severe Illness**\
 `Outside experts pointed to the therapies as signs that the president’s health may not be as good as his doctors said. His age, weight and gender put him at high risk.`\
 https://nytimes.com/2020/10/03/health/Covid-trump-treatments.html?searchResultPosition=7
 
