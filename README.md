@@ -18,8 +18,8 @@ https://nytimes.com/2020/10/03/us/elections/trumps-diagnosis-imperils-a-quick-su
 `Tidjane Thiam made Credit Suisse profitable again. But the Swiss rejected him as an outsider, and a sudden scandal took him down.`\
 https://nytimes.com/2020/10/03/business/tidjane-thiam-credit-suisse.html?searchResultPosition=5
 
-**They Cheered Trump in Minnesota, the Last Big Rally Before His Covid Test**\
-`After the president tested positive, some Minnesota Republicans were undergoing tests, while others said they were unconcerned about potential risks of the rally.`\
+**They Cheered Trump in Minnesota, at the Last Big Rally Before His Virus Test**\
+`After President Trump tested positive, some Minnesota Republicans were undergoing tests, while others said they were unconcerned about potential risks.`\
 https://nytimes.com/2020/10/03/us/trump-covid-minnesota-rally.html?searchResultPosition=6
 
 **Mother’s Little Helper Is Back, and Daddy’s Partaking Too**\
