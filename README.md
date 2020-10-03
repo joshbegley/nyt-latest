@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/03/us/1963-church-bombing-apology.html?searchResultP
 `The Senate race in North Carolina was engulfed in chaos after the incumbent tested positive for coronavirus and his challenger admitted to exchanging romantic texts with a woman who is not his wife.`\
 https://nytimes.com/2020/10/03/us/politics/coronavirus-thom-tillis-cal-cunningham-north-carolina.html?searchResultPosition=9
 
-**Swiss Skydiver Wins the Preakness Stakes**\
-`The race, won by a filly for the first time since 2009, wrapped up a Triple Crown season that was upended and reordered by the pandemic.`\
-https://nytimes.com/2020/10/03/sports/swiss-skydiver-wins-the-preakness-stakes.html?searchResultPosition=10
+**Swiss Skydiver, With a Last-Minute Jockey, Wins the Preakness Stakes**\
+`Robby Albarado was called in late to ride Swiss Skydiver, who became the sixth philly to win the race and the first to do so since 2009.`\
+https://nytimes.com/2020/10/03/sports/swiss-skydiver-with-a-last-minute-jockey-wins-the-preakness-stakes.html?searchResultPosition=10
 
