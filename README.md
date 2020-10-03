@@ -19,7 +19,7 @@ https://nytimes.com/2020/10/02/podcasts/trump-debate-coronavirus.html?searchResu
 https://nytimes.com/2020/10/02/crosswords/daily-puzzle-2020-10-03.html?searchResultPosition=5
 
 **Trump’s Coronavirus Diagnosis Is a ‘Bracing Reminder,’ Biden Says**\
-`During a campaign rally in Grand Rapids, Mich., Joseph R. Biden Jr., the Democratic presidential nominee, said he and his wife, Jill, had tested negative for the coronavirus and were sending their prayers to President Trump and the first lady.`\
+`During a speech in Grand Rapids, Mich., Joseph R. Biden Jr., the Democratic presidential nominee, offered prayers for President Trump and the first lady.`\
 https://nytimes.com/video/us/elections/100000007375505/biden-negative-coronavirus-test.html?searchResultPosition=6
 
 **The Busy Week When the President Met the Virus**\
