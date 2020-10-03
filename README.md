@@ -18,23 +18,23 @@ https://nytimes.com/2020/10/03/world/americas/chile-protests.html?searchResultPo
 `Senator Mitch McConnell postponed the Senate’s return for two weeks but said lawmakers would continue confirmation hearings as planned.`\
 https://nytimes.com/2020/10/03/us/politics/senate-virus-supreme-court-confirmation.html?searchResultPosition=5
 
+**Attorney General Barr will not self-quarantine, despite possible exposure to the coronavirus.**\
+`He attended a reception for Amy Coney Barrett, an event where several other attendees later tested positive.`\
+https://nytimes.com/2020/10/03/us/elections/attorney-general-barr-will-not-self-quarantine-despite-possible-exposure-to-the-coronavirus.html?searchResultPosition=6
+
 **To Hold Police Accountable, Ax the Arbitrators**\
 `Communities should have the power to fire abusive officers. But that power often rests with an obscure group of unelected labor arbitrators.`\
-https://nytimes.com/2020/10/03/opinion/sunday/police-arbitration-reform-unions.html?searchResultPosition=6
+https://nytimes.com/2020/10/03/opinion/sunday/police-arbitration-reform-unions.html?searchResultPosition=7
 
 **Venice Sea Walls Withstand First Test in New Video**\
 `Sea walls designed to defend Venice against “acqua alta,” or high water, went into use on Saturday, testing their ability to battle the Italian city’s increasingly menacing floods.`\
-https://nytimes.com/video/world/100000007376403/venice-sea-walls.html?searchResultPosition=7
+https://nytimes.com/video/world/100000007376403/venice-sea-walls.html?searchResultPosition=8
 
 **Trump’s Medical Team Provides an Update on His Condition**\
 `President Trump’s doctors said he was doing well, but they refused to provide critical details and left open the impression that he was known to be sick earlier than previously reported.`\
-https://nytimes.com/video/us/politics/100000007376353/trump-coronavirus-health-update.html?searchResultPosition=8
+https://nytimes.com/video/us/politics/100000007376353/trump-coronavirus-health-update.html?searchResultPosition=9
 
 **The President’s Illness Is Yet Another Dividing Line in the Trump Era**\
 `In a different moment, a stricken leader might have rallied people behind him. But President Trump’s health crisis is filtered through the partisan lenses that divide Americans on seemingly every issue.`\
-https://nytimes.com/2020/10/03/us/politics/trump-covid-voter-reactions.html?searchResultPosition=9
-
-**Trump’s Symptoms Described as ‘Very Concerning’ Even as Doctors Offer Rosier Picture**\
-`Doctors refused to provide critical details and left open the impression that the president was known to be sick a day earlier than previously reported.`\
-https://nytimes.com/2020/10/03/us/politics/trump-covid-updates.html?searchResultPosition=10
+https://nytimes.com/2020/10/03/us/politics/trump-covid-voter-reactions.html?searchResultPosition=10
 
