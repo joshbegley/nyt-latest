@@ -31,7 +31,7 @@ https://nytimes.com/2020/10/04/sports/baseball/mlb-division-series-schedule.html
 https://nytimes.com/2020/10/04/arts/music/mariah-carey-memoir-rarities.html?searchResultPosition=8
 
 **White House Physician Says Trump Had Been Given Supplemental Oxygen and Dexamethasone**\
-`Insisting that President Trump’s health is improving, Dr. Sean P. Conley, the White House physician, gave a statement on Sunday contradictory to his previous update, informing the public that the president has received supplemental oxygen twice and is on the steroid dexamethasone.`\
+`Insisting that President Trump’s health is improving, Dr. Sean P. Conley, the White House physician, gave a statement on Sunday contradictory to his previous update, informing the public that the president has received supplemental oxygen and is on the steroid dexamethasone.`\
 https://nytimes.com/video/us/politics/100000007377045/trump-walter-reed-health-update.html?searchResultPosition=9
 
 **I’m Black, and I Joined a Vaccine Trial**\
