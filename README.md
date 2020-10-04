@@ -1,5 +1,5 @@
-**A Portrait of Grief**\
-`Remembering the one million people lost to the coronavirus — through those who loved them.`\
+**One Million Lives**\
+`Remembering the people who died from coronavirus – through those who loved them`\
 https://nytimes.com/2020/10/04/podcasts/the-daily/coronavirus-one-million.html?searchResultPosition=1
 
 **How Does the Electoral College Work and Why Does It Matter?**\
