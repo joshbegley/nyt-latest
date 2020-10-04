@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/03/us/politics/trump-campaign-covid.html?searchResul
 https://nytimes.com/2020/10/03/us/jobs-women-dropping-out-workforce-wage-gap-gender.html?searchResultPosition=4
 
 **‘I Feel Much Better Now,’ Trump Says**\
-`President Trump released a video update on his health from Walter Reed National Military Medical Center. The message came after a day of confusing reports about his health.`\
+`President Trump released a video update on his health from Walter Reed National Military Medical Center. The message came after a day of confusing reports.`\
 https://nytimes.com/video/us/politics/100000007376654/trump-health-coronavirus-update.html?searchResultPosition=5
 
 **Inside the White House Event Now Under Covid Scrutiny**\
