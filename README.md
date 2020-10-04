@@ -10,8 +10,8 @@ https://nytimes.com/2020/10/04/world/middleeast/israel-arab-uae-normalization.ht
 `Eighty years after Londoners rallied in the face of the deadly German blitz, many are flouting the rules aimed at preventing the spread of the novel coronavirus.`\
 https://nytimes.com/2020/10/04/world/europe/britain-london-coronavirus.html?searchResultPosition=3
 
-**Watch Live: White House Physician to Speak on Trump’s Condition**\
-`Dr. Sean P. Conley, the White House physician, is expected to give an update on the well-being of President Trump, who is in his third day of coronavirus treatment at Walter Reed National Military Medical Center.`\
+**Watch Live: White House Physician Speaks on Trump’s Condition**\
+`Dr. Sean P. Conley, the White House physician, gave an update on the well-being of President Trump, who is in his third day of coronavirus treatment at Walter Reed National Military Medical Center.`\
 https://nytimes.com/video/us/politics/100000007376999/trump-condition-walter-reed-update.html?searchResultPosition=4
 
 **Against Covid-19, Imperfect Measures Do the Most Good**\
