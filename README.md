@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/04/learning/whats-going-on-in-this-picture-oct-5-202
 https://nytimes.com/2020/10/04/world/europe/synagogue-attack-germany-hamburg.html?searchResultPosition=3
 
 **Kenzo Takada, Who Brought Japanese Fashion to the World, Dies at 81**\
-`He planned to stay in Paris for six months but stayed 56 years, becoming known for bold, exuberant prints. He died of the novel  coronavirus.`\
+`He planned to stay in Paris for six months but stayed 56 years, becoming known for bold, exuberant prints. He died of the novel coronavirus.`\
 https://nytimes.com/2020/10/04/style/kenzo-takada-dead.html?searchResultPosition=4
 
 **Your Monday Briefing**\
