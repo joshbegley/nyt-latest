@@ -1,6 +1,6 @@
 **Dish From a Crockpot**\
 `Evan Mahnken whips up a toothsome Monday morsel.`\
-https://nytimes.com/2020/10/04/crosswords/dish-from-a-crockpot.html?searchResultPosition=1
+https://nytimes.com/2020/10/04/crosswords/https-wwwnytimescom-2020-10-03-crosswords-daily-puzzle-2020-10-05.html?searchResultPosition=1
 
 **Alexander Zverev’s Illness Puts French Open Health Protocols in Focus**\
 `After losing to Jannik Sinner, Zverev said he “shouldn’t have played” and had a fever and difficulty breathing. Tournament officials said Zverev did not report his symptoms before the match.`\
