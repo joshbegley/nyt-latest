@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/04/movies/david-attenborough-a-life-on-our-planet-re
 https://nytimes.com/2020/10/04/business/the-week-in-business-economy-trump-coronavirus.html?searchResultPosition=3
 
 **Simona Halep Upset in French Open by Iga Swiatek**\
-`Swiatek bounced Halep, the top seed, in straight sets in the fourth round to deliver the biggest surprise so far in the tournament.`\
+`Swiatek bounced Halep, the top seed, in straight sets in the fourth round to deliver the biggest surprise so far in a women’s draw that has been upended.`\
 https://nytimes.com/2020/10/04/sports/tennis/french-open-simona-halep-iga-swiatek.html?searchResultPosition=4
 
 **Hopes Fade for New Political Course in Algeria a Year After Popular Uprising**\
