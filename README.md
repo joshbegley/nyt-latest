@@ -18,19 +18,19 @@ https://nytimes.com/interactive/2020/10/03/us/rose-garden-event-covid.html?searc
 `Covid-19 is rippling through the country. The economy is reeling. But for many Indians, an actor’s death and the investigation that followed are a bigger story.`\
 https://nytimes.com/2020/10/03/world/asia/india-bollywood-sushant-singh-rajput.html?searchResultPosition=6
 
+**Trump’s hospitalization starts to affect the campaign trail.**\
+`By Michael Levenson`\
+https://nytimes.com/2020/10/03/us/elections/trumps-hospitalization-starts-to-affect-the-campaign-trail.html?searchResultPosition=7
+
 **‘I Don’t Want to Be Attacking the President,’ Joe Biden Says**\
 `In a town hall for union workers, Mr. Biden was asked about how he would handle the pandemic, but he said he did not want to take shots at President Trump.`\
-https://nytimes.com/video/us/politics/100000007376626/biden-trump-coronavirus.html?searchResultPosition=7
+https://nytimes.com/video/us/politics/100000007376626/biden-trump-coronavirus.html?searchResultPosition=8
 
 **What to Know About Sean Conley, the White House Physician**\
 `Dr. Conley, who was appointed as President Trump’s physician in 2018, is a doctor of osteopathic medicine.`\
-https://nytimes.com/2020/10/03/us/sean-conley-trump-doctor.html?searchResultPosition=8
+https://nytimes.com/2020/10/03/us/sean-conley-trump-doctor.html?searchResultPosition=9
 
 **‘Fifth Girl’ in 1963 Church Bombing Gets an Apology From Alabama’s Governor**\
 `Gov. Kay Ivey offered to have state officials meet with lawyers for a maimed survivor of an infamous racist attack in Birmingham to discuss restitution for an “egregious injustice.”`\
-https://nytimes.com/2020/10/03/us/1963-church-bombing-apology.html?searchResultPosition=9
-
-**Virus Diagnosis and Secret Texts Upend a Critical Senate Race in a Single Night**\
-`The Senate race in North Carolina was engulfed in chaos after the incumbent tested positive for coronavirus and his challenger admitted to exchanging romantic texts with a woman who is not his wife.`\
-https://nytimes.com/2020/10/03/us/politics/coronavirus-thom-tillis-cal-cunningham-north-carolina.html?searchResultPosition=10
+https://nytimes.com/2020/10/03/us/1963-church-bombing-apology.html?searchResultPosition=10
 
