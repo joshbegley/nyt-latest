@@ -23,7 +23,7 @@ https://nytimes.com/2020/10/04/world/europe/armenia-nagorno-karabakh-trump.html?
 https://nytimes.com/2020/10/04/world/middleeast/israel-arab-uae-normalization.html?searchResultPosition=6
 
 **‘Keep Calm and Carry On’ May Not Work in a Time of Pandemic**\
-`Eighty years after Londoners rallied in the face of the deadly German blitz, many are flouting the rules aimed at preventing the spread of the novel coronavirus.`\
+`Eighty years after Londoners rallied in the face of the deadly German Blitz, many are flouting the rules aimed at preventing the spread of the novel coronavirus.`\
 https://nytimes.com/2020/10/04/world/europe/britain-london-coronavirus.html?searchResultPosition=7
 
 **Watch: White House Physician Speaks on Trump’s Condition**\
