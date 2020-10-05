@@ -28,7 +28,7 @@ https://nytimes.com/2020/10/05/sports/nba-finals-miami-heat-los-angeles-lakers-g
 
 **The owner of Regal Cinemas is closing its U.S. theaters, with 40,000 jobs at stake.**\
 `By Eshe Nelson and Gillian Friedman`\
-https://nytimes.com/2020/10/05/business/the-owner-of-regal-cinemas-is-closing-its-us-theaters-with-40000-jobs-at-stake.html?searchResultPosition=8
+https://nytimes.com/2020/10/05/business/regal-cinemas-closing.html?searchResultPosition=8
 
 **Israel’s Coronavirus Lockdown Fuels Protests, Violence and Confusion**\
 `Last month, the country became the first to reimpose nationwide measures. But the decision has led to chaotic scenes and criticism of how its fragile coalition is handling the crisis.`\
