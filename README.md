@@ -22,8 +22,8 @@ https://nytimes.com/2020/10/05/arts/mellon-foundation-monuments.html?searchResul
 `The Italians up the ante after Loy’s attempt to take over the slaughterhouses. But which Fadda brother is really calling the shots?`\
 https://nytimes.com/2020/10/04/arts/television/fargo-recap-episode-3.html?searchResultPosition=6
 
-**Your Monday Briefing**\
-`President Trump, coronavirus, Sanda Dia: Here’s what you need to know.`\
+**Trump, Coronavirus, Sanda Dia: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/10/04/briefing/trump-covid-uk-contact-tracing.html?searchResultPosition=7
 
 **Quotation of the Day: Bonded by Combat, Veterans Are Driven Apart by Political Rancor**\
