@@ -1,5 +1,5 @@
 **A New Battle Against the Virus Is Set for 9 ZIP Codes**\
-`Mayor Bill de Blasio has proposed "rewinding" the reopening of businesses and schools in areas where the coronavirus infection rate has spiked.`\
+`Mayor Bill de Blasio has proposed "rewinding" the reopening of businesses and schools in areas where the  infection rate has spiked.`\
 https://nytimes.com/2020/10/05/nyregion/coronavirus-zip-codes-nyc.html?searchResultPosition=1
 
 **Kamala Harris, a Disco-Dancing Teenager, Yearned for Home in Canada**\
