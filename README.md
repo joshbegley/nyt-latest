@@ -26,8 +26,8 @@ https://nytimes.com/2020/10/05/us/politics/secret-service-trump-virus.html?searc
 `Experts were outraged by the president’s comments about a disease that has killed nearly 210,000 people in the United States.`\
 https://nytimes.com/2020/10/05/health/trump-covid-public-health.html?searchResultPosition=7
 
-**Peregrine Worsthorne, British Conservative Editor, Dies at 96**\
-`He championed the British establishment and lamented the decline of “the gentleman.” He also admired the United States.`\
+**Peregrine Worsthorne, Provocative Conservative British Editor, Dies at 96**\
+`From a newspaper perch, he championed the British “elite,” lamented the decline of “the gentleman” and made headlines himself with a word that can’t be quoted.`\
 https://nytimes.com/2020/10/05/obituaries/peregrine-worsthorne-dead.html?searchResultPosition=8
 
 **Eric Trump Finally Interviewed in N.Y. Fraud Inquiry**\
