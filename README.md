@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/05/arts/television/whats-on-tv-soulmates-vice-presid
 `“I miss you guys,” Grigor Dimitrov said while sitting in an empty room and staring at a checkerboard of faces on video.`\
 https://nytimes.com/2020/10/05/sports/tennis/french-open-interviews.html?searchResultPosition=9
 
-**Interpol Issues ‘Red Notice’ for Fugitive Red Bull Heir in Thai Hit and Run**\
-`The police in Thailand, widely criticized for dropping charges against the wealthy playboy in July, are now seeking the global agency’s help in finding him.`\
+**Interpol Issues ‘Red Notice’ for Thai Red Bull Heir**\
+`The police in Thailand, widely criticized for dropping charges against the wealthy playboy in July after he was accused of a fatal hit-and-run, are seeking the agency’s help to arrest him.`\
 https://nytimes.com/2020/10/05/world/asia/thailand-red-bull-heir-vorayuth-yoovidhaya-interpol.html?searchResultPosition=10
 
