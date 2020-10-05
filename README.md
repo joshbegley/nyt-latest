@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/05/travel/india-womens-market-imphal.html?searchResu
 `Cases are spiking at Appalachian State in North Carolina, causing many students and faculty members to call for stronger safety measures.`\
 https://nytimes.com/2020/10/05/us/covid-college-death-chad-dorrill.html?searchResultPosition=9
 
-**The New Museum Is World-Class, but Many Find It a Tough Place to Work**\
+**The New Museum Is World Class, but Many Find It a Tough Place to Work**\
 `Critics acknowledge the success the New Museum in New York has achieved. But they say it has come at the expense of many people who work there.`\
 https://nytimes.com/2020/10/05/arts/the-new-museum-is-world-class-but-many-find-it-a-tough-place-to-work.html?searchResultPosition=10
 
