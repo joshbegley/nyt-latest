@@ -22,8 +22,8 @@ https://nytimes.com/2020/10/05/health/Covid-patients-mental-state.html?searchRes
 `The actress is selling the beachfront home she bought to de-stress from city life.`\
 https://nytimes.com/slideshow/2020/10/05/realestate/kim-catrall-hamptons-getaway.html?searchResultPosition=6
 
-**Watch Live: White House Doctors Update Trump’s Condition**\
-`President Trump’s doctors are expected to provide the latest developments on the state of his condition as he recovers from coronavirus after misleading accounts of his health over the weekend.`\
+**Watch Full Video: White House Doctors Update Trump’s Condition**\
+`President Trump’s doctors provided the latest developments on the state of his condition as he recovers from coronavirus after misleading accounts of his health over the weekend.`\
 https://nytimes.com/video/us/politics/100000007378233/white-house-doctors-trump-covid-update.html?searchResultPosition=7
 
 **2020 Nobel Prize Winners: Full List**\
