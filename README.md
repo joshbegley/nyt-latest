@@ -26,15 +26,15 @@ https://nytimes.com/2020/10/05/business/dealbook/dealbook-the-illusion-of-safety
 `Grinding for layups, absorbing contact, drawing defenders and passing to teammates; Butler was Mr. Inside.`\
 https://nytimes.com/2020/10/05/sports/nba-finals-miami-heat-los-angeles-lakers-game-3.html?searchResultPosition=7
 
+**The owner of Regal Cinemas is closing its U.S. theaters, with 40,000 jobs at stake.**\
+`By Eshe Nelson and Gillian Friedman`\
+https://nytimes.com/2020/10/05/business/the-owner-of-regal-cinemas-is-closing-its-us-theaters-with-40000-jobs-at-stake.html?searchResultPosition=8
+
 **Israel’s Coronavirus Lockdown Fuels Protests, Violence and Confusion**\
 `Last month, the country became the first to reimpose nationwide measures. But the decision has led to chaotic scenes and criticism of how its fragile coalition is handling the crisis.`\
-https://nytimes.com/2020/10/05/world/middleeast/israel-coronavirus-lockdown.html?searchResultPosition=8
+https://nytimes.com/2020/10/05/world/middleeast/israel-coronavirus-lockdown.html?searchResultPosition=9
 
 **The Pressure to Be Perfect Turns Deadly for Celebrities in Japan**\
 `A succession of suicides has shown the burdens of a society where many feel that they must conceal their personal struggles.`\
-https://nytimes.com/2020/10/05/world/asia/japan-suicide-celebrities.html?searchResultPosition=9
-
-**Making the Monsters of ‘Lovecraft Country’**\
-`Grant Walker, who helped create the HBO show’s nightmarish Shoggoth creatures, had “a lot of fun designing the teeth and the mouth and all of the blood.”`\
-https://nytimes.com/2020/10/05/arts/television/lovecraft-country-shoggoth.html?searchResultPosition=10
+https://nytimes.com/2020/10/05/world/asia/japan-suicide-celebrities.html?searchResultPosition=10
 
