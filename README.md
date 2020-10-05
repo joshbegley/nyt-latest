@@ -1,40 +1,40 @@
+**A White House Infected With Propaganda**\
+`Trump risks lives to sustain his coronavirus lies.`\
+https://nytimes.com/2020/10/05/opinion/trump-coronavirus-white-house.html?searchResultPosition=1
+
+**PAC Led by Postal Official Pours $20 Million Into Rescuing Tillis**\
+`American Crossroads is wading deeper into Republicans’ fight to keep the Senate with North Carolina ads, renewing partisanship questions at the Postal Service, where a PAC leader has a powerful post.`\
+https://nytimes.com/2020/10/05/us/politics/super-pac-tillis-postal-service.html?searchResultPosition=2
+
 **Chaos — and Controlled Chaos**\
 `For Carl and Jesse Crawford, raising six young children was challenging enough. Now add a pandemic.`\
-https://nytimes.com/interactive/2020/10/05/us/familyinterrupted-crawford.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/10/05/us/familyinterrupted-crawford.html?searchResultPosition=3
 
 **How Facebook and Twitter Handled Trump’s ‘Don’t Be Afraid of Covid’ Post**\
 `Medical experts said the president’s message downplayed the dangers of the coronavirus. But it fell into a gray area for the social media platforms.`\
-https://nytimes.com/2020/10/05/technology/Trump-Afraid-Covid-Facebook-Twitter.html?searchResultPosition=2
+https://nytimes.com/2020/10/05/technology/Trump-Afraid-Covid-Facebook-Twitter.html?searchResultPosition=4
 
 **Trump’s Campaign Saw an Opportunity. He Undermined It.**\
 `The health crisis was a chance for a political reset, some advisers believed, to show a new, more empathetic stance toward the coronavirus. But the candidate did not stick to the narrative.`\
-https://nytimes.com/2020/10/05/us/politics/trump-virus-campaign.html?searchResultPosition=3
+https://nytimes.com/2020/10/05/us/politics/trump-virus-campaign.html?searchResultPosition=5
 
 **Trump Isn’t ‘Out of the Woods,’ but We’re in the Dark**\
 `Few things are more important than the president’s health — and the mixed messaging about his condition is putting the United States at risk.`\
-https://nytimes.com/2020/10/05/us/politics/trump-health-coronavirus.html?searchResultPosition=4
+https://nytimes.com/2020/10/05/us/politics/trump-health-coronavirus.html?searchResultPosition=6
 
 **Barr Plans to Return to Justice Dept. After Negative Coronavirus Test Results**\
 `A spokeswoman said the attorney general was considered an essential worker exempt from guidelines on quarantining after potential exposure.`\
-https://nytimes.com/2020/10/05/us/politics/attorney-general-barr-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2020/10/05/us/politics/attorney-general-barr-coronavirus.html?searchResultPosition=7
 
 **For the Secret Service, a New Question: Who Will Protect Them From Trump?**\
 `Central to the job is a willingness to say yes to the president no matter what he asks. Now, that means subjecting an agent’s health to the whims of a contagious president.`\
-https://nytimes.com/2020/10/05/us/politics/secret-service-trump-virus.html?searchResultPosition=6
+https://nytimes.com/2020/10/05/us/politics/secret-service-trump-virus.html?searchResultPosition=8
 
 **‘Don’t Be Afraid of Covid,’ Trump Says, Undermining Public Health Messages**\
 `Experts were outraged by the president’s comments about a disease that has killed nearly 210,000 people in the United States.`\
-https://nytimes.com/2020/10/05/health/trump-covid-public-health.html?searchResultPosition=7
+https://nytimes.com/2020/10/05/health/trump-covid-public-health.html?searchResultPosition=9
 
 **Peregrine Worsthorne, Provocative Conservative British Editor, Dies at 96**\
 `From a newspaper perch, he championed the British “elite,” lamented the decline of “the gentleman” and made headlines himself with a word that can’t be quoted.`\
-https://nytimes.com/2020/10/05/obituaries/peregrine-worsthorne-dead.html?searchResultPosition=8
-
-**Eric Trump Finally Interviewed in N.Y. Fraud Inquiry**\
-`President Trump’s son had sought to postpone a deposition with the New York attorney general’s office until after Election Day.`\
-https://nytimes.com/2020/10/05/nyregion/eric-trump-investigation-election.html?searchResultPosition=9
-
-**Biden Presses His Case to Florida Voters and Renews Criticism of Trump**\
-`Speaking in Miami to Haitian-Americans, Cuban-Americans and others from immigrant backgrounds, Joe Biden wished the president well but urged him to listen to experts on the pandemic.`\
-https://nytimes.com/2020/10/05/us/politics/biden-florida-covid.html?searchResultPosition=10
+https://nytimes.com/2020/10/05/obituaries/peregrine-worsthorne-dead.html?searchResultPosition=10
 
