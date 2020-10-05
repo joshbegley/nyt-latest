@@ -8,7 +8,7 @@ https://nytimes.com/2020/10/05/sports/football/nfl-covid-19-patriots-monday-nigh
 
 **White House Is Not Contact Tracing ‘Super-Spreader’ Rose Garden Event**\
 `Since President Trump’s Covid diagnosis, numerous associates have tested positive, but the White House has not aggressively investigated the outbreak.`\
-https://nytimes.com/2020/10/05/health/covid-trump-contact-tracing.html?searchResultPosition=3
+https://nytimes.com/2020/10/05/health/contact-tracing-white-house.html?searchResultPosition=3
 
 **Beware of Diego Schwartzman, a Tennis David in a Sport of Goliaths**\
 `Schwartzman is among the shortest players in elite tennis, but at this unique French Open, he has become a brutal opponent.`\
