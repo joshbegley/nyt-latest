@@ -32,7 +32,7 @@ https://nytimes.com/2020/10/05/sports/basketball/wnba-finals-storm-aces.html?sea
 
 **As Virus Invades West Wing, White House Reporters Face Heightened Risks**\
 `At least three correspondents have tested positive for the coronavirus, along with the press secretary and two of her deputies.`\
-https://nytimes.com/2020/10/05/business/media/white-house-press-coronavirus.html?searchResultPosition=9
+https://nytimes.com/2020/10/05/business/white-house-coronavirus.html?searchResultPosition=9
 
 **After 12 Years, a Yankees Scout’s Dream Pairing Comes to Fruition**\
 `Dave Keith scouted Gerrit Cole and Kyle Higashioka as amateurs in 2008 and immediately envisioned them as a battery in pinstripes. This year, it finally happened.`\
