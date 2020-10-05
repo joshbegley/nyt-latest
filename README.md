@@ -12,7 +12,7 @@ https://nytimes.com/2020/10/05/opinion/trump-covid-fox-news-masks.html?searchRes
 
 **Former M.L.B. Pitcher Suspected of Killing Ex-Girlfriend Is Found Dead**\
 `The authorities said they had been looking for Charles Haeger since Friday, when his former girlfriend was fatally shot in her home in Scottsdale, Ariz.`\
-https://nytimes.com/2020/10/05/us/charles-haeger-dead.html?searchResultPosition=4
+https://nytimes.com/2020/10/05/sports/charles-haeger-dead.html?searchResultPosition=4
 
 **How Did ‘Ransomware’ Get So Bad?**\
 `Hackers are freezing information and demanding ransom. Who is behind this, and what can be done?`\
