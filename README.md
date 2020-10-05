@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/05/podcasts/the-daily/donald-trump-coronavirus-treat
 https://nytimes.com/2020/10/05/opinion/international-world/corporations-preserve-democracy.html?searchResultPosition=2
 
 **Nobel Prize in Medicine Awarded to Scientists Who Discovered Hepatitis C Virus**\
-`Harvey J. Alter, Michael Houghton and Charles M. Rice were jointly honored for their “decisive contribution to the fight against blood-borne hepatitis, a major global health problem.”`\
+`Harvey J. Alter, Michael Houghton and Charles M. Rice were jointly honored for their decisive contribution to the fight against blood-borne hepatitis, a major global health problem.`\
 https://nytimes.com/2020/10/05/health/nobel-prize-medicine-hepatitis-c.html?searchResultPosition=3
 
 **How Much Do You Know About Sweden?**\
