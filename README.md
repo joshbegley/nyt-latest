@@ -1,4 +1,4 @@
-**DealBook: The Illusion of Safety**\
+**The Illusion of Safety**\
 `Testing alone won’t stop the spread of Covid-19, as President Trump’s illness shows.`\
 https://nytimes.com/2020/10/05/business/dealbook/dealbook-the-illusion-of-safety.html?searchResultPosition=1
 
