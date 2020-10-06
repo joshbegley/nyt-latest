@@ -1,4 +1,4 @@
-**Florida’s voting website crashed repeatedly in the hours before the registration deadline, leading to accusations of voter suppression.**\
+**Florida’s voting website crashed repeatedly in the hours before Monday’s registration deadline, leading to accusations of voter suppression.**\
 `By Patricia Mazzei`\
 https://nytimes.com/2020/10/06/us/elections/florida-voter-registration-website.html?searchResultPosition=1
 
