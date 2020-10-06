@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/05/us/supreme-court-south-carolina-absentee-ballots.
 `Ms. Carroll, a writer, has asked a judge to reject the department’s move to intervene in her lawsuit against the president, whom she has accused of rape.`\
 https://nytimes.com/2020/10/05/nyregion/donald-trump-jean-carroll-lawsuit-rape.html?searchResultPosition=3
 
-**Stairwell Collapse in Houston Leaves 3 Workers Dead, 1 Injured**\
+**Stairwell Collapse in Houston Leaves 3 Workers Dead and 1 Injured**\
 `The 15-story building had been inspected hours before the accident.`\
 https://nytimes.com/2020/10/05/us/houston-stairwell-collapse.html?searchResultPosition=4
 
