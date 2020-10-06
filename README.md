@@ -1,40 +1,40 @@
+**‘The Lie’ Review: A Child’s Crime, a Parental Conspiracy**\
+`A thriller that’s a relentlessly punishing exercise in cinematic misery-mongering.`\
+https://nytimes.com/2020/10/06/movies/the-lie-review-a-childs-crime-a-parental-conspiracy.html?searchResultPosition=1
+
+**‘Black Box’ Review: Memory and Loss**\
+`An amnesiac begins to see strange visions in this engrossing thriller streaming on Amazon Prime Video.`\
+https://nytimes.com/2020/10/06/movies/black-box-review.html?searchResultPosition=2
+
+**DealBook: ‘Don’t Be Afraid of It’?**\
+`President Trump’s comments upon his return from the hospital may pose problems for business reopenings.`\
+https://nytimes.com/2020/10/06/business/dealbook/trump-coronavirus-liability.html?searchResultPosition=3
+
 **Rational Fear**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/10/06/briefing/joe-biden-donald-trump-nobel-prize-physics.html?searchResultPosition=1
+https://nytimes.com/2020/10/06/briefing/joe-biden-donald-trump-nobel-prize-physics.html?searchResultPosition=4
 
 **Nobel Prize in Physics Awarded to 3 Scientists for Work on Black Holes**\
 `The prize was awarded half to Roger Penrose for showing how black holes could form and half to Reinhard Genzel and Andrea Ghez for discovering a supermassive object at the Milky Way’s center.`\
-https://nytimes.com/2020/10/06/science/nobel-prize-physics.html?searchResultPosition=2
+https://nytimes.com/2020/10/06/science/nobel-prize-physics.html?searchResultPosition=5
 
 **How a Small Bar Battled to Survive the Coronavirus**\
 `We chart the trials of a tavern in Oakland, Calif., that was thriving until the pandemic brought economic and emotional turmoil.`\
-https://nytimes.com/2020/10/06/podcasts/the-daily/how-a-small-bar-battled-to-survive-the-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/10/06/podcasts/the-daily/how-a-small-bar-battled-to-survive-the-coronavirus.html?searchResultPosition=6
 
 **In Togo, There Is Nowhere to Hide**\
 `Africa’s oldest single-family autocracy has tightened its grip on power by relying on foreign-made digital surveillance tools. Activists like myself are no longer safe.`\
-https://nytimes.com/2020/10/06/opinion/international-world/togo-activists-autocracy.html?searchResultPosition=4
+https://nytimes.com/2020/10/06/opinion/international-world/togo-activists-autocracy.html?searchResultPosition=7
 
 **Coronavirus in N.Y.C.: Latest Updates**\
 `The governor has refused to approve the mayor's plan to shut nonessential businesses in areas that are virus hot spots. `\
-https://nytimes.com/2020/10/06/nyregion/coronavirus-nyc.html?searchResultPosition=5
+https://nytimes.com/2020/10/06/nyregion/coronavirus-nyc.html?searchResultPosition=8
 
 **Sabotage in the Liberal City**\
 `The disparate racial impact of progressivism’s pandemic-era policy blunders.`\
-https://nytimes.com/2020/10/06/opinion/liberal-cities-schools-covid.html?searchResultPosition=6
+https://nytimes.com/2020/10/06/opinion/liberal-cities-schools-covid.html?searchResultPosition=9
 
 **America May Need International Intervention**\
 `Even Democrats may find it hard to imagine, but the “leader of the free world” would benefit from United Nations oversight.`\
-https://nytimes.com/2020/10/06/opinion/us-united-nations-election.html?searchResultPosition=7
-
-**The 10 Bellwether Counties That Show How Trump Is in Serious Trouble**\
-`Each one is in a battleground state. Votes from people there will matter a lot — and offer Joe Biden several paths to victory.`\
-https://nytimes.com/2020/10/06/opinion/biden-trump-bellwether-counties-.html?searchResultPosition=8
-
-**‘War: How Conflict Shaped Us,’ by Margaret MacMillan: An Excerpt**\
-`An excerpt from “War: How Conflict Shaped Us,” by Margaret MacMillan`\
-https://nytimes.com/2020/10/06/books/review/war-how-conflict-shaped-us-by-margaret-macmillan-an-excerpt.html?searchResultPosition=9
-
-**‘The Zealot and the Emancipator,’ by H.W. Brands: An Excerpt**\
-`An excerpt from “The Zealot and the Emancipator,” by H.W. Brands`\
-https://nytimes.com/2020/10/06/books/review/the-zealot-and-the-emancipator-by-hw-brands-an-excerpt.html?searchResultPosition=10
+https://nytimes.com/2020/10/06/opinion/us-united-nations-election.html?searchResultPosition=10
 
