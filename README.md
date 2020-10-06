@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/06/us/florida-registration-voter-crash.html?searchRe
 `Dylan Wissing is a session drummer with a passion for meticulously duplicating famous rhythms.`\
 https://nytimes.com/2020/10/06/arts/music/dylan-wissing-funky-drummer.html?searchResultPosition=2
 
-**Lumberjack, Tailor, Counselor, Host: A Hotel Owner Does it All During the Pandemic**\
+**Lumberjack, Tailor, Counselor, Host: A Hotel Owner Does It All During the Pandemic**\
 `The head of a family business is trying to keep eight hotel properties afloat despite fewer travelers and worried lenders. He may not succeed.`\
 https://nytimes.com/2020/10/06/business/hotel-small-business-coronavirus-pandemic.html?searchResultPosition=3
 
