@@ -10,8 +10,8 @@ https://nytimes.com/2020/10/06/us/politics/joe-biden-gettysburg-covid.html?searc
 `Mesut Ozil, one of soccer’s highest-paid stars, has offered to save the club’s beloved dinosaur mascot, who has been delighting supporters and players for 27 years.`\
 https://nytimes.com/2020/10/06/sports/arsenal-gunnersaurus-mesut-ozil.html?searchResultPosition=3
 
-**Top Women’s Soccer Coach Wants Some Company on the Sideline**\
-`A new initiative by U.S. Soccer and the former U.S. women’s national team coach Jill Ellis will try to address the gender gap in top-flight coaching.`\
+**Jill Ellis Wants a Little More Company on the Sideline**\
+`A new initiative by U.S. Soccer and the former women’s national team coach will try to address the gender gap in top-flight coaching.`\
 https://nytimes.com/2020/10/06/sports/soccer/jill-ellis-us-soccer-coaching.html?searchResultPosition=4
 
 **Eddie Van Halen, Virtuoso of the Rock Guitar, Dies at 65**\
