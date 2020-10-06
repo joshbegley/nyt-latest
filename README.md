@@ -18,7 +18,7 @@ https://nytimes.com/2020/10/06/us/hurricane-delta-forecast.html?searchResultPosi
 `Open window, extend arm and your car will slow very slightly. But you’ll need more than a few arms to bring it to a halt.`\
 https://nytimes.com/2020/10/06/science/randall-munroe-car-brake-question.html?searchResultPosition=5
 
-**Michelle Obama releases a video urging those disillusioned by politics to vote.**\
+**Michelle Obama expresses empathy for White House staff ‘touched by this virus’ and urges Americans to vote.**\
 `By Katie Glueck`\
 https://nytimes.com/2020/10/06/us/elections/michelle-obama-vote.html?searchResultPosition=6
 
