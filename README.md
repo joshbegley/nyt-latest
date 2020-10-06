@@ -1,5 +1,5 @@
 **Tim Kaine on What It’s Like to Debate Mike Pence**\
-`Mr. Kaine, Hillary Clinton’s running mate in 2016, spoke to The Times about what Senator Kamala Harris should expect for Wednesday’s vice-presidential debate.`\
+`Mr. Kaine, Hillary Clinton’s running mate in 2016, spoke to The Times about what lies ahead for Senator Kamala Harris at Wednesday’s V.P. debate.`\
 https://nytimes.com/2020/10/06/us/politics/tim-kaine-interview.html?searchResultPosition=1
 
 **Your Wednesday Briefing**\
