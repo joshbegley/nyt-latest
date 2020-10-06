@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/06/realestate/sonoma-county-house.html?searchResultP
 `Designed as a place for friends to gather, this casual Northern California home has become a solitary retreat during the pandemic.`\
 https://nytimes.com/slideshow/2020/10/06/realestate/sonoma-county-weekend-house.html?searchResultPosition=9
 
-**Once a Hotel Suite, Now an Office Space**\
-`As the hospitality industry grapples with a severe downturn, owners are turning hotels into offices, schools, emergency housing, wedding halls or homeless shelters.`\
-https://nytimes.com/2020/10/06/business/hotels-transformation-offices-shelters-coronavirus.html?searchResultPosition=10
+**Britain Is Getting Ready for Its Space Race**\
+`Spurred by Brexit, London is backing companies that will build satellites and haul them into orbit.`\
+https://nytimes.com/2020/10/06/business/britain-satellites-brexit.html?searchResultPosition=10
 
