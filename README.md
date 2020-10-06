@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/06/health/covid-white-house-testing.html?searchResul
 `Father Tamer, a Lebanese Franciscan, chose to remain behind when given the chance to leave Syria after fighting broke out. He died of Covid-19.`\
 https://nytimes.com/2020/10/06/obituaries/the-rev-edoardo-tamer-dead-covid.html?searchResultPosition=9
 
-**Florida’s voting website crashed repeatedly in the hours before Monday’s registration deadline, leading to accusations of voter suppression.**\
-`By Patricia Mazzei`\
+**Florida extends its voter registration deadline after its website crashed repeatedly.**\
+`By Patricia Mazzei, Nicole Perlroth and Frances Robles`\
 https://nytimes.com/2020/10/06/us/elections/florida-voter-registration-website.html?searchResultPosition=10
 
