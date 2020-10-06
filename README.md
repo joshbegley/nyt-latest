@@ -35,6 +35,6 @@ https://nytimes.com/2020/10/06/business/economy/jerome-powell-economic-recovery-
 https://nytimes.com/2020/10/06/world/asia/china-negative-pew-survey.html?searchResultPosition=9
 
 **Nerve Agent Was Used to Poison Navalny, Chemical Weapons Body Confirms**\
-`The Organization for the Prohibition of Chemical Weapons concluded that the nerve agent was used against the Russian opposition leader, Aleksei Navalny, bolstering similar assessments from three European countries.`\
-https://nytimes.com/2020/10/06/world/europe/navalny-opcw-russia.html?searchResultPosition=10
+`The Organization for the Prohibition of Chemical Weapons bolstered the assessments of European countries that a form Novichok sickened Aleksei A. Navalny, the Russian opposition leader.`\
+https://nytimes.com/2020/10/06/world/europe/navalny-opcw-russia-novichok.html?searchResultPosition=10
 
