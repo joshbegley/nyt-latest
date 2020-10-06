@@ -35,6 +35,6 @@ https://nytimes.com/2020/10/06/science/randall-munroe-car-brake-question.html?se
 https://nytimes.com/2020/10/06/us/elections/michelle-obama-vote.html?searchResultPosition=9
 
 **E.U. Court Rules Against Hungary Law Targeting Soros-Funded University**\
-`The ruling comes at the bloc pushes back against a growing authoritarianism by the government of Viktor Orban, but is unlikely to have much effect on the ground.`\
+`The ruling comes as the bloc pushes back against a growing authoritarianism by the government of Viktor Orban, but is unlikely to have much effect on the ground.`\
 https://nytimes.com/2020/10/06/world/europe/hungary-soros-university-court.html?searchResultPosition=10
 
