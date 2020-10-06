@@ -2,8 +2,8 @@
 `In a report led by Democrats, lawmakers said Apple, Amazon, Google and Facebook needed to be checked and recommended reforming antitrust laws.`\
 https://nytimes.com/2020/10/06/technology/congress-big-tech-monopoly-power.html?searchResultPosition=1
 
-**Read the House Antitrust Report on Big Tech**\
-`In a report led by Democrats, lawmakers said Apple, Amazon, Google and Facebook needed to be checked and recommended reforming antitrust laws.`\
+**The House Antitrust Report on Big Tech**\
+`Read the report.`\
 https://nytimes.com/interactive/2020/10/06/technology/house-antitrust-report-big-tech.html?searchResultPosition=2
 
 **Illness Isn’t Weakness, Mr. President**\
