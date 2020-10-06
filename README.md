@@ -1,5 +1,5 @@
 **Nobel Prize in Physics Awarded to 3 Scientists for Work on Black Holes**\
-`The prize was awarded half to Roger Penrose and the other half jointly to Reinhard Genzel and Andrea Ghez.`\
+`The prize was awarded half to Roger Penrose for showing how black holes could form and half to Reinhard Genzel and Andrea Ghez for discovering a supermassive object at the Milky Way’s center.`\
 https://nytimes.com/2020/10/06/science/nobel-prize-physics.html?searchResultPosition=1
 
 **How a Small Bar Battled to Survive the Coronavirus**\
