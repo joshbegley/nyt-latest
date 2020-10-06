@@ -4,7 +4,7 @@ https://nytimes.com/2020/10/06/science/randall-munroe-car-brake-question.html?se
 
 **Michelle Obama releases a video urging those disillusioned by politics to vote.**\
 `By Katie Glueck`\
-https://nytimes.com/2020/10/06/us/elections/michelle-obama-releases-a-video-urging-those-disillusioned-by-politics-to-vote.html?searchResultPosition=2
+https://nytimes.com/2020/10/06/us/elections/m.html?searchResultPosition=2
 
 **E.U. Court Rules Against Hungary Law Targeting Soros-Funded University**\
 `The ruling comes at the bloc pushes back against a growing authoritarianism by the government of Viktor Orban, but is unlikely to have much effect on the ground.`\
