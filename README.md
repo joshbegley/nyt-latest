@@ -23,7 +23,7 @@ https://nytimes.com/2020/10/07/podcasts/the-daily/future-of-the-coronavirus.html
 https://nytimes.com/2020/10/07/us/politics/vp-debate-time.html?searchResultPosition=6
 
 **Nobel Prize in Chemistry Awarded to 2 Scientists for Work on Genome Editing**\
-`Emmanuelle Charpentier and Jennifer A. Doudna developed the Crispr tool, which can change the DNA of animals, plants and microorganisms with high precision.`\
+`Emmanuelle Charpentier and Jennifer A. Doudna developed the Crispr tool, which can alter the DNA of animals, plants and microorganisms with high precision.`\
 https://nytimes.com/2020/10/07/science/nobel-prize-chemistry-crispr.html?searchResultPosition=7
 
 **Trump Isn’t Actually That Good at Politics**\
