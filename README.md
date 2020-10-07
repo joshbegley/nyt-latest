@@ -1,6 +1,6 @@
 **Your Wednesday Briefing**\
 `Trump, British universities, Germany’s far-right: Here’s what you need to know.`\
-https://nytimes.com/2020/10/06/briefing/your-wednesday-briefing.html?searchResultPosition=1
+https://nytimes.com/2020/10/06/briefing/trump-uk-universities-german-far-right.html?searchResultPosition=1
 
 **Corrections: Oct. 7, 2020**\
 `Corrections that appeared in print on Wednesday, Oct. 7, 2020.`\
