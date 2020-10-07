@@ -28,7 +28,7 @@ https://nytimes.com/2020/10/07/health/laurie-santos-covid-happiness.html?searchR
 
 **What Are the Rules for Tonight’s Debate? (Plexiglass Is Allowed, for One)**\
 `This year’s vice-presidential contest has featured more controversy than usual over the seating arrangements.`\
-https://nytimes.com/2020/10/07/us/politics/debate-rules-plexiglass.html?searchResultPosition=8
+https://nytimes.com/2020/10/07/us/politics/vice-presidential-debate-rules.html?searchResultPosition=8
 
 **Does Cancer Chemotherapy Increase My Covid Risks?**\
 `People with cancer, especially leukemia, are at higher risk of dying from Covid-19, though chemotherapy does not appear to increase the risk.`\
