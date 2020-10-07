@@ -8,7 +8,7 @@ https://nytimes.com/slideshow/2020/10/07/realestate/this-castle-almost-survived-
 
 **Backlash Grows in Orthodox Jewish Areas Over Virus Crackdown by Cuomo**\
 `Rules that would have a pronounced impact on synagogues were met with protests and fires in a part of Brooklyn seeing an uptick in cases.`\
-https://nytimes.com/2020/10/07/us/orthodox-jews-nyc-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/10/07/nyregion/orthodox-jews-nyc-coronavirus.html?searchResultPosition=3
 
 **Berlin Trial Opens for Man Charged With Murder on Behalf of Russia**\
 `German prosecutors accused the defendant of the killing of a former Chechen commander at a time when Berlin is losing patience with Moscow.`\
