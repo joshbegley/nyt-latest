@@ -1,5 +1,5 @@
 **That Airport Spa? It’s a Coronavirus Testing Clinic**\
-`XpresSpa used to offer pedicures and chair massages at airports, now it’s in the coronavirus testing business.`\
+`XpresSpa used to offer pedicures and chair massages at airports. Now it’s in the coronavirus testing business.`\
 https://nytimes.com/2020/10/07/travel/coronavirus-airport-testing-xpresspa.html?searchResultPosition=1
 
 **Morgan Wallen Loses ‘S.N.L.’ Music Spot for Violating Virus Rules**\
