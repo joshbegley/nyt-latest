@@ -18,23 +18,23 @@ https://nytimes.com/2020/10/07/nyregion/grandparents-kidnapped-cocaine.html?sear
 `At issue: Who should represent performers and stage managers when theater is recorded and streamed, one of the few viable options during the pandemic.`\
 https://nytimes.com/2020/10/07/theater/actors-equity-union-battle.html?searchResultPosition=5
 
+**Trump says contracting the virus was a ‘blessing from God’ in a new video.**\
+`By Maggie Haberman and Katie Thomas`\
+https://nytimes.com/2020/10/07/us/trump-video-blessing-from-god.html?searchResultPosition=6
+
 **2020 Debate, Stimulus Bill, Homecoming: Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/10/07/briefing/2020-debate-stimulus-bill-homecoming.html?searchResultPosition=6
+https://nytimes.com/2020/10/07/briefing/2020-debate-stimulus-bill-homecoming.html?searchResultPosition=7
 
 **A New Issue Grips the 2020 Race: Debate Safety**\
 `Despite having the coronavirus, President Trump insists he is “looking forward” to the next debate. Joe Biden’s team says the president must prove he’s not contagious.`\
-https://nytimes.com/2020/10/07/us/politics/trump-debate-coronavirus-safety.html?searchResultPosition=7
+https://nytimes.com/2020/10/07/us/politics/trump-debate-coronavirus-safety.html?searchResultPosition=8
 
 **California Sunday Suspends Publication After Emerson Collective Pulls Out**\
 `An award-winning magazine may have reached the end after Laurene Powell Jobs’s Emerson Collective, a major media player, severed ties with its parent company.`\
-https://nytimes.com/2020/10/07/business/media/california-sunday-suspends-publication.html?searchResultPosition=8
+https://nytimes.com/2020/10/07/business/media/california-sunday-suspends-publication.html?searchResultPosition=9
 
 **4 Art Gallery Shows to See Right Now**\
 `Ficre Ghebreyesus’s artistic legacy; Steve Mumford’s combat-zone drawings; Manal Kara’s adoring gaze; Cheyenne Julien’s iridescent paintings.`\
-https://nytimes.com/2020/10/07/arts/design/art-gallery-shows-to-see-right-now.html?searchResultPosition=9
-
-**Wait, Wall Street Is Pro-Biden Now?**\
-`Investors are warming to the possibility of a “blue wave” as Joseph R. Biden Jr. rises in the polls and the chances of a contested election diminish.`\
-https://nytimes.com/2020/10/07/business/stock-markets-biden-trump.html?searchResultPosition=10
+https://nytimes.com/2020/10/07/arts/design/art-gallery-shows-to-see-right-now.html?searchResultPosition=10
 
