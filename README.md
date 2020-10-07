@@ -14,7 +14,7 @@ https://nytimes.com/video/t-magazine/100000007367835/cooking-class-yabu-pushelbe
 `A grand jury in Tyler County accused Netflix, which has been streaming the award-winning French film, of promoting lewd visual material depicting a child, prosecutors said.`\
 https://nytimes.com/2020/10/07/business/cuties-netflix-texas.html?searchResultPosition=4
 
-**In Killing Stimulus Talks, Trump Invites Political Risk for Himself and Republicans**\
+**In Scuttling Stimulus Talks, Trump Invites Political Risk for Himself and Republicans**\
 `The politics of a bipartisan deal were always tricky, but the president’s abrupt move to upend negotiations removed any ambiguity about who was responsible for the lack of an aid bill.`\
 https://nytimes.com/2020/10/07/business/trump-stimulus-bill-republicans.html?searchResultPosition=5
 
