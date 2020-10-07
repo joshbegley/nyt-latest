@@ -1,40 +1,40 @@
+**The Yankees Tried a Sneaky Move With All the Wrong Pieces**\
+`Manager Aaron Boone tried to take a page out of the Rays’ playbook to beat Tampa Bay, but it backfired without crucial buy-in from his pitcher.`\
+https://nytimes.com/2020/10/07/sports/baseball/ja-happ-aaron-boone-yankees.html?searchResultPosition=1
+
+**Eddie Van Halen, the Shredder Supreme**\
+`The guitarist, who died this week at 65, gleefully reinvented the rules of being a guitar hero — then bent them again and again.`\
+https://nytimes.com/2020/10/07/arts/music/eddie-van-halen.html?searchResultPosition=2
+
+**It Takes One: How the Monologue Speaks Loudest in Lockdown**\
+`Self-aware, self-conscious or self-deluding, it’s a form as old as theater itself. And it’s flourishing in a time of social isolation.`\
+https://nytimes.com/2020/10/07/theater/monologue-one-person-stage-show.html?searchResultPosition=3
+
+**10 Monologues That Make Solo Music**\
+`In a few minutes or a full show, these performers capture heartbreak, fury and laughs. For the words of Samuel Beckett, a disembodied mouth did the trick.`\
+https://nytimes.com/2020/10/07/theater/best-stage-zoom-monologues.html?searchResultPosition=4
+
+**Dolores Huerta: ‘We Have to Keep on Marching’**\
+`Fifty years after a historic victory for farm workers in California, the civil rights leader feels optimistic about the new generation of activists.`\
+https://nytimes.com/2020/10/07/opinion/international-world/dolores-huerta-activists-unions.html?searchResultPosition=5
+
+**SITI Company Announces Final Season**\
+`After three decades, the noted experimental New York theater company will stop producing shows in 2022.`\
+https://nytimes.com/2020/10/07/theater/siti-company-final-season.html?searchResultPosition=6
+
 **Islamic State ‘Beatles’ Fighters Being Brought to U.S. to Face Charges**\
 `The federal prosecution of two Britons involved in the kidnapping and torture of American hostages comes more than two years after they were captured in Syria.`\
-https://nytimes.com/2020/10/07/us/politics/beatles-islamic-state.html?searchResultPosition=1
+https://nytimes.com/2020/10/07/us/politics/beatles-islamic-state.html?searchResultPosition=7
 
 **Manhattan D.A. Can Obtain Trump’s Tax Returns, Judges Rule**\
 `The dispute will now likely head to the Supreme Court for a second time.`\
-https://nytimes.com/2020/10/07/nyregion/donald-trump-taxes-cyrus-vance.html?searchResultPosition=2
+https://nytimes.com/2020/10/07/nyregion/donald-trump-taxes-cyrus-vance.html?searchResultPosition=8
 
 **House Hunting in France: A Once-in-a-Millennium Castle for $3.3 Million**\
 `France saw a buying frenzy in the months after the first pandemic lockdown, but it may not be enough to make up for the lost activity that preceded it.`\
-https://nytimes.com/2020/10/07/realestate/house-hunting-in-france-castle.html?searchResultPosition=3
+https://nytimes.com/2020/10/07/realestate/house-hunting-in-france-castle.html?searchResultPosition=9
 
 **This Castle (Almost) Survived the Hundred Years’ War**\
 `This 11th-century castle on 94 acres in the French village of Verteuil-sur-Charente is on the market for $3.3 million.`\
-https://nytimes.com/slideshow/2020/10/07/realestate/this-castle-almost-survived-the-hundred-years-war.html?searchResultPosition=4
-
-**Backlash Grows in Orthodox Jewish Areas Over Virus Crackdown by Cuomo**\
-`Rules that would have a pronounced impact on synagogues were met with protests and fires in a part of Brooklyn seeing an uptick in cases.`\
-https://nytimes.com/2020/10/07/nyregion/orthodox-jews-nyc-coronavirus.html?searchResultPosition=5
-
-**Berlin Trial Opens for Man Charged With Murder on Behalf of Russia**\
-`German prosecutors accused the defendant of the killing of a former Chechen commander at a time when Berlin is losing patience with Moscow.`\
-https://nytimes.com/2020/10/07/world/europe/berlin-murder-trial-russia.html?searchResultPosition=6
-
-**$375,000 Homes in Pennsylvania, Vermont and Texas**\
-`A two-story brick rowhouse in Philadelphia, a converted 1893 church in Castleton and a one-bedroom condo in Austin.`\
-https://nytimes.com/2020/10/07/realestate/375000-homes-in-pennsylvania-vermont-and-texas.html?searchResultPosition=7
-
-**What You Get for $375,000**\
-`A two-story brick rowhouse in Philadelphia; a converted 1893 church in Castleton, Vt.; and a one-bedroom condo in Austin, Texas.`\
-https://nytimes.com/slideshow/2020/10/07/realestate/what-you-get-for-375000.html?searchResultPosition=8
-
-**Laurie Santos Says Self-Care Doesn’t Have to Be Selfish**\
-`The expert in positive psychology has a few simple ideas for sustaining mental well-being as Covid-19 continues.`\
-https://nytimes.com/2020/10/07/health/laurie-santos-covid-happiness.html?searchResultPosition=9
-
-**What Are the Rules for Tonight’s Debate? (Plexiglass Is Allowed, for One)**\
-`This year’s vice-presidential contest has featured more controversy than usual over the seating arrangements.`\
-https://nytimes.com/2020/10/07/us/politics/vice-presidential-debate-rules.html?searchResultPosition=10
+https://nytimes.com/slideshow/2020/10/07/realestate/this-castle-almost-survived-the-hundred-years-war.html?searchResultPosition=10
 
