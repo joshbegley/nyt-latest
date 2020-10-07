@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/07/health/nevada-covid-testing-nursing-homes.html?searchResultPosition=1
 
 **My Patients Can’t Take Trump’s Advice**\
-`He urged Americans to not let the virus “dominate” their lives, but my patients are genuinely afraid.`\
+`He urged Americans to not let the virus “dominate” their lives, but the people who come to my hospital seeking care are genuinely afraid.`\
 https://nytimes.com/2020/10/07/opinion/trump-coronavirus-patients.html?searchResultPosition=2
 
 **Welcome to the New Modern Love Podcast**\
