@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/06/us/jail-baby-shark-charges.html?searchResultPosit
 https://nytimes.com/2020/10/06/sports/basketball/wnba-championship-seattle-storm-aces.html?searchResultPosition=2
 
 **For Trump, a Pattern of Denial, From the Virus to Russia to Climate Change**\
-`“The denialism is a pattern,” said Richard Haass, the president of the Council on Foreign Relations. “It is pervasive.”`\
+`The president’s preoccupation with demonstrating strength or rearranging facts to reinforce his worldview has led him, time and again, to downplay, ignore or mock serious issues.`\
 https://nytimes.com/2020/10/06/us/politics/trump-virus-denial.html?searchResultPosition=3
 
 **Trump Insists He Is ‘Feeling Great’ as Most of Joint Chiefs Quarantine**\
