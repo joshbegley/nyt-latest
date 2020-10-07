@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/07/movies/books-of-blood-review.html?searchResultPos
 `In this documentary, the filmmaker Catherine Gund recaps the career of her mother, the philanthropist and art collector Agnes Gund.`\
 https://nytimes.com/2020/10/07/movies/aggie-review-portrait-of-an-art-collector-by-her-daughter.html?searchResultPosition=3
 
-**DealBook: No Relief in Sight**\
+**No Relief in Sight**\
 `President Trump cut off stimulus talks. What’s the strategy?`\
 https://nytimes.com/2020/10/07/business/dealbook/stimulus-talks-trump.html?searchResultPosition=4
 
