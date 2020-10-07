@@ -1,40 +1,40 @@
-**‘Tomboy’ Looks at Gender Roles, and Role-Playing, Through the Ages**\
-`Lisa Selin Davis’s book asks what it means, really, to “act like a girl,” or not.`\
-https://nytimes.com/2020/10/07/books/review/lisa-selin-davis-tomboy.html?searchResultPosition=1
+**The Gender Reveal That Doesn’t**\
+`Gender, sexuality and even biology are in play as men’s wear says bye-bye to the binary.`\
+https://nytimes.com/2020/10/07/style/mens-fashion-the-gender-reveal-that-doesnt.html?searchResultPosition=1
 
-**Two of These Mail Ballot Signatures Are by the Same Person. Which Ones?**\
-`How election officials vet voter signatures based on slants, sizes and loops.`\
-https://nytimes.com/interactive/2020/10/07/upshot/mail-voting-ballots-signature-matching.html?searchResultPosition=2
+**New Brunswick, N.J.: Big-City Amenities With a Small-Town Feel**\
+`Best known as the home of Rutgers University, this Middlesex County city offers many of the pleasures of urban life — but at a small scale.`\
+https://nytimes.com/2020/10/07/realestate/new-brunswick-new-jersey.html?searchResultPosition=2
 
-**How Trump Could Win Again, Even if He Loses**\
-`Two words: Electoral College.`\
-https://nytimes.com/video/opinion/100000007319217/electoral-college-abolish-eliminate.html?searchResultPosition=3
+**In India, a Dance Haven Shuts Out the World**\
+`With the pandemic, Nrityagram, near Bangalore, has become a more self-contained version of itself: a refuge, with a single-minded focus on classical Indian dance.`\
+https://nytimes.com/2020/10/07/arts/dance/india-nrityagram-virus.html?searchResultPosition=3
 
-**Lesson of the Day: ‘35 Thoughts About Mario on Super Mario’s 35th Anniversary’**\
-`In this lesson, students will learn about the game’s legacy and enduring popularity. Then they will create a new character to join the Super Mario Bros. universe.`\
-https://nytimes.com/2020/10/07/learning/lesson-of-the-day-35-thoughts-about-mario-on-super-marios-35th-anniversary.html?searchResultPosition=4
+**New England’s Forests Are Sick. They Need More Tree Doctors.**\
+`Climate change is taking a toll on woodlands in the Northeast.`\
+https://nytimes.com/2020/10/07/climate/new-england-trees-forests.html?searchResultPosition=4
 
-**‘I Won’t Be Used as a Guinea Pig for White People’**\
-`Mistrust of vaccines runs deep in African-American communities. Against formidable odds, Father Paul Abernathy and his teams are trying to convince residents of Pittsburgh’s historic Black neighborhoods to volunteer for trials testing a Covid-19 shot.`\
-https://nytimes.com/2020/10/07/health/coronavirus-vaccine-trials-african-americans.html?searchResultPosition=5
+**Venezuela, Once an Oil Giant, Reaches the End of an Era**\
+`Venezuela’s oil reserves, the world’s largest, transformed the country and the global energy market. Now its oil sector is grinding to a halt — perhaps never to recover.`\
+https://nytimes.com/2020/10/07/world/americas/venezuela-oil-economy-maduro.html?searchResultPosition=5
 
-**The Virus Surges in North Dakota, Filling Hospitals and Testing Attitudes**\
-`As Covid-19 cases grow in the Great Plains, one official said residents need to know “how perilously close we are to the edge.”`\
-https://nytimes.com/2020/10/07/us/coronavirus-north-dakota.html?searchResultPosition=6
+**Living In ... New Brunswick, N.J.**\
+`Best known as the home of Rutgers University, this Middlesex County city offers many of the pleasures of urban life — but at a small-scale.`\
+https://nytimes.com/slideshow/2020/10/07/realestate/living-in-new-brunswick-nj.html?searchResultPosition=6
 
-**Mike Pence Brought Conservatives Home. What If They Don’t Need Him Anymore?**\
-`Evangelical Christians were drawn to the vice president because he shared their values. But Trump’s style has made defiance of political norms, not a Pence specialty, seem appealing.`\
-https://nytimes.com/2020/10/07/us/politics/mike-pence-debate.html?searchResultPosition=7
+**The Glorious Absurdity of Paris Fashion**\
+`Balenciaga was great, Chanel was lumpy, and Thom Browne had spaceships.`\
+https://nytimes.com/2020/10/07/style/Paris-fashion-week-chanel-louis-vuitton-balenciaga.html?searchResultPosition=7
 
-**Russell Wilson Leads the N.F.L. M.V.P. Race, but Josh Allen Is …**\
-`Smart money is on the Seattle quarterback receiving at least a vote or two this year. But the better bet, counter-intuitively, might be the Bills’ Josh Allen.`\
-https://nytimes.com/2020/10/07/sports/football/russell-wilson-josh-allen-nfl-mvp.html?searchResultPosition=8
+**5 Minutes That Will Make You Love Baroque Music**\
+`Listen to spirited, sublime works by Bach, Handel, Purcell and others.`\
+https://nytimes.com/2020/10/07/arts/music/five-minutes-classical-music-baroque.html?searchResultPosition=8
 
-**Inside, Outside**\
-`What is this image saying?`\
-https://nytimes.com/2020/10/07/learning/inside-outside.html?searchResultPosition=9
+**What Does Retirement Look Like in a Pandemic?**\
+`Bucket-list plans for travel to exotic lands are on hold, while socializing and volunteering have gone virtual.`\
+https://nytimes.com/2020/10/07/business/retirement/pandemic-life-seniors.html?searchResultPosition=9
 
-**Trevor Noah: Trump Is Immune to Factual Information**\
-`“You would think that somewhere along that journey Trump would pick up a tiny, tiny bit of knowledge. But, hey, maybe he’s immune to that, too,” the “Daily Show” host said of the president’s infection with the coronavirus.`\
-https://nytimes.com/2020/10/07/arts/television/trevor-noah-trump-coronavirus.html?searchResultPosition=10
+**The Field Is Looking Very English**\
+`The pandemic is forcing players to reduce travel, so this BMW P.G.A. Championship near London has become homegrown.`\
+https://nytimes.com/2020/10/07/sports/golf/pga-bmw-championship-england.html?searchResultPosition=10
 
