@@ -19,7 +19,7 @@ https://nytimes.com/2020/10/07/business/cuties-netflix-texas.html?searchResultPo
 https://nytimes.com/2020/10/07/business/trump-stimulus-bill-republicans.html?searchResultPosition=5
 
 **BuzzFeed News Pulls Reporter From White House, Citing Virus Risk**\
-`The journalist said she had “obvious concerns about working indoors during an outbreak” as the White House Correspondents’ Association pushes for more information on known infections.`\
+`She said she had “obvious concerns about working indoors during an outbreak.” The White House Correspondents’ Association pushed for more information on known infections.`\
 https://nytimes.com/2020/10/07/business/media/buzzfeed-white-house-coronavirus.html?searchResultPosition=6
 
 **Lyon Gardiner Tyler Jr., Grandson of the 10th President, Dies at 95**\
