@@ -10,8 +10,8 @@ https://nytimes.com/interactive/2020/10/07/magazine/black-futures.html?searchRes
 `The virus is now devastating the U.S. Midwest and Great Plains.`\
 https://nytimes.com/2020/10/07/us/coronavirus-today.html?searchResultPosition=3
 
-**Taylor Swift, leaning further into politics, formally endorses Biden and Harris.**\
-`Ms. Swift kept her personal political views mostly out of public view for years, but has increasingly been vocal on social issues.`\
+**Taylor Swift, leaning further into politics, endorses Joe Biden and Kamala Harris.**\
+`By Matt Stevens`\
 https://nytimes.com/2020/10/07/us/politics/taylor-swift-joe-biden-kamala-harris.html?searchResultPosition=4
 
 **New York Grandparents Are Kidnapped and Taken to Canada**\
