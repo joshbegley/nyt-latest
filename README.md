@@ -1,40 +1,40 @@
+**Fancy Cars, Fine Dining, Creator Mansions, Cash: Triller Is Shelling Out for Talent**\
+`TikTok’s top creators are taking “Triller money” to bring their content over to the app.`\
+https://nytimes.com/2020/10/07/style/triller-app-tiktok.html?searchResultPosition=1
+
 **Why Conspiracy Theories Are So Addictive Right Now**\
 `QAnon, #TrumpCovidHoax and other conspiracy theories may be part of a larger authority crisis created by the internet.`\
-https://nytimes.com/2020/10/07/technology/Trump-conspiracy-theories.html?searchResultPosition=1
+https://nytimes.com/2020/10/07/technology/Trump-conspiracy-theories.html?searchResultPosition=2
 
 **Putin, Long the Sower of Instability, Is Now Surrounded by It**\
 `Fueled by the pandemic, uprisings in Belarus and Kyrgyzstan and a war in the Caucasus region are undermining the influence of the Russian leader.`\
-https://nytimes.com/2020/10/07/world/europe/putin-belarus-instability-karabakh.html?searchResultPosition=2
+https://nytimes.com/2020/10/07/world/europe/putin-belarus-instability-karabakh.html?searchResultPosition=3
 
 **The Times Endorses Joe Biden, and Readers Applaud**\
 `“I want to thank The Times for this thoughtful and accurate assessment of the candidate and the broader context of this race,” a reader writes.`\
-https://nytimes.com/2020/10/07/opinion/letters/joe-biden-nyt-endorsement.html?searchResultPosition=3
+https://nytimes.com/2020/10/07/opinion/letters/joe-biden-nyt-endorsement.html?searchResultPosition=4
 
 **The Artist Charles Gaines Creates a Fellowship for Black Students**\
 `The project, at CalArts, where he has been a longtime member of the faculty, will cover at least two-thirds of the cost of an M.F.A. student’s tuition.`\
-https://nytimes.com/2020/10/07/arts/design/charles-gaines-fellowship-calarts.html?searchResultPosition=4
+https://nytimes.com/2020/10/07/arts/design/charles-gaines-fellowship-calarts.html?searchResultPosition=5
 
 **A ‘Great Gatsby’ Quote Takes On New Resonance**\
 `People critical of the president’s and other Republicans’ behavior have been sharing a line from the Fitzgerald novel about the wealthy characters whose “carelessness” harms everyone around them.`\
-https://nytimes.com/2020/10/07/books/great-gatsby-quote-trump.html?searchResultPosition=5
+https://nytimes.com/2020/10/07/books/great-gatsby-quote-trump.html?searchResultPosition=6
 
 **Your Thursday Briefing**\
 `New Zealand’s recovery, North Korean defector, Nobel women: Here’s what you need to know.`\
-https://nytimes.com/2020/10/07/briefing/new-zealand-coronavirus-north-korea-nobel-us-debate.html?searchResultPosition=6
+https://nytimes.com/2020/10/07/briefing/new-zealand-coronavirus-north-korea-nobel-us-debate.html?searchResultPosition=7
 
 **Protest Movements Without a Public Face**\
 `Do 21st-century social struggles need traditional leaders, or are they better off without them?`\
-https://nytimes.com/2020/10/07/opinion/international-world/protest-movements-public-face.html?searchResultPosition=7
+https://nytimes.com/2020/10/07/opinion/international-world/protest-movements-public-face.html?searchResultPosition=8
 
 **A Digital Ailey Season Celebrates ‘Revelations’ at 60**\
 `The December season includes a premiere by Jamar Roberts, the company’s choreographer in residence, set to Charlie Parker.`\
-https://nytimes.com/2020/10/07/arts/dance/a-digital-ailey-season-celebrates-revelations-at-60.html?searchResultPosition=8
+https://nytimes.com/2020/10/07/arts/dance/a-digital-ailey-season-celebrates-revelations-at-60.html?searchResultPosition=9
 
 **This Year’s Nobel Prize in Chemistry Honors a Revolution**\
 `With Crispr, two scientists turned a curiosity of nature into an invention that will transform the human race.`\
-https://nytimes.com/2020/10/07/opinion/nobel-prize-chemistry-2020-doudna-charpentier.html?searchResultPosition=9
-
-**De Blasio Says New Restrictions Will Go Into Effect on Thursday**\
-`Mayor Bill de Blasio of New York City said that the restrictions in parts of Brooklyn and Queens aimed at curbing coronavirus clusters will go into effect on Thursday.`\
-https://nytimes.com/video/us/politics/100000007383276/bill-de-blasio-new-york-coronavirus-clusters-restrictions.html?searchResultPosition=10
+https://nytimes.com/2020/10/07/opinion/nobel-prize-chemistry-2020-doudna-charpentier.html?searchResultPosition=10
 
