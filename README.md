@@ -1,5 +1,5 @@
 **Morgan Wallen Loses ‘S.N.L.’ Music Spot for Violating Virus Rules**\
-`The country musician was seen in videos posted on social media kissing fans and mingling in groups while he wasn’t wearing a mask.`\
+`The country musician was seen in videos on social media mingling in groups without wearing a mask and kissing fans.`\
 https://nytimes.com/2020/10/07/arts/television/morgan-wallen-snl-covid.html?searchResultPosition=1
 
 **Stars Bring a Broadway Tune Back to Times Square, Unexpectedly**\
