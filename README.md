@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/07/arts/television/morgan-wallen-snl-covid.html?sear
 `Two dozen shielded performers, including Bernadette Peters and Andrew Rannells, surprised passers-by with a rendition of Stephen Sondheim’s “Sunday.”`\
 https://nytimes.com/2020/10/07/theater/surprise-theater-times-square.html?searchResultPosition=2
 
-**Justice Dept. Eases Pre-Election Constraints on Investigating Election Fraud**\
+**Justice Dept. Eases Election Fraud Inquiry Constraints as Trump Promotes False Narrative**\
 `The move comes as President Trump promotes a false narrative of widespread voter fraud ahead of the election.`\
 https://nytimes.com/2020/10/07/us/politics/justice-department-election-fraud.html?searchResultPosition=3
 
