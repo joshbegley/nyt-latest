@@ -1,40 +1,40 @@
+**New York Grandparents Are Kidnapped and Taken to Canada**\
+`Their captors demanded the return of cocaine worth $3.5 million. They were freed after the authorities used cellphone data to track them to a house in Quebec.`\
+https://nytimes.com/2020/10/07/nyregion/grandparents-kidnapped-cocaine.html?searchResultPosition=1
+
 **There’s Not Much Work for Actors. Now Their Unions Are Fighting.**\
 `At issue: Who should represent performers and stage managers when theater is recorded and streamed, one of the few viable options during the pandemic.`\
-https://nytimes.com/2020/10/07/theater/actors-equity-union-battle.html?searchResultPosition=1
+https://nytimes.com/2020/10/07/theater/actors-equity-union-battle.html?searchResultPosition=2
 
 **2020 Debate, Stimulus Bill, Homecoming: Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/10/07/briefing/2020-debate-stimulus-bill-homecoming.html?searchResultPosition=2
+https://nytimes.com/2020/10/07/briefing/2020-debate-stimulus-bill-homecoming.html?searchResultPosition=3
 
 **A New Issue Grips the 2020 Race: Debate Safety**\
 `Despite having the coronavirus, President Trump insists he is “looking forward” to the next debate. Joe Biden’s team says the president must prove he’s not contagious.`\
-https://nytimes.com/2020/10/07/us/politics/trump-debate-coronavirus-safety.html?searchResultPosition=3
+https://nytimes.com/2020/10/07/us/politics/trump-debate-coronavirus-safety.html?searchResultPosition=4
 
 **California Sunday Suspends Publication After Emerson Collective Pulls Out**\
 `An award-winning magazine may have reached the end after Laurene Powell Jobs’s Emerson Collective, a major media player, severed ties with its parent company.`\
-https://nytimes.com/2020/10/07/business/media/california-sunday-suspends-publication.html?searchResultPosition=4
+https://nytimes.com/2020/10/07/business/media/california-sunday-suspends-publication.html?searchResultPosition=5
 
 **4 Art Gallery Shows to See Right Now**\
 `Ficre Ghebreyesus’s artistic legacy; Steve Mumford’s combat-zone drawings; Manal Kara’s adoring gaze; Cheyenne Julien’s iridescent paintings.`\
-https://nytimes.com/2020/10/07/arts/design/art-gallery-shows-to-see-right-now.html?searchResultPosition=5
+https://nytimes.com/2020/10/07/arts/design/art-gallery-shows-to-see-right-now.html?searchResultPosition=6
 
 **Wait, Wall Street Is Pro-Biden Now?**\
 `Investors are warming to the possibility of a “blue wave” as Joseph R. Biden Jr. rises in the polls and the chances of a contested election diminish.`\
-https://nytimes.com/2020/10/07/business/stock-markets-biden-trump.html?searchResultPosition=6
+https://nytimes.com/2020/10/07/business/stock-markets-biden-trump.html?searchResultPosition=7
 
 **Citigroup is fined $400 million over ‘longstanding’ internal problems.**\
 `A misdirected money transfer of nearly $1 billion and a string of other mistakes prompted regulators to call for a major internal revamp.`\
-https://nytimes.com/2020/10/07/business/citigroup-fine-risk-management.html?searchResultPosition=7
+https://nytimes.com/2020/10/07/business/citigroup-fine-risk-management.html?searchResultPosition=8
 
 **Djokovic and Kenin Push Through to French Open Semifinals**\
 `Djokovic appeared to be in pain in his neck, arms and legs, but said he didn’t “want to reveal too much” because he is still in contention for another Grand Slam singles title.`\
-https://nytimes.com/2020/10/07/sports/djokovic-nadal-kenin-kvitova-french-open-semifinals.html?searchResultPosition=8
+https://nytimes.com/2020/10/07/sports/djokovic-nadal-kenin-kvitova-french-open-semifinals.html?searchResultPosition=9
 
 **Facebook Widens Ban on Political Ads as Alarm Rises Over Election**\
 `Political ads will be banned indefinitely after polls close on Nov. 3 and the company plans new steps to limit misinformation about the results.`\
-https://nytimes.com/2020/10/07/technology/facebook-political-ads-ban.html?searchResultPosition=9
-
-**Fed Officials Warned of Slowdown Without Stimulus**\
-`In notes from their September meeting, Federal Reserve officials said optimism about a strong rebound hinged on government help.`\
-https://nytimes.com/2020/10/07/business/economy/federal-reserve-slowdown-stimulus.html?searchResultPosition=10
+https://nytimes.com/2020/10/07/technology/facebook-political-ads-ban.html?searchResultPosition=10
 
