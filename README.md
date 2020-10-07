@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/07/health/nevada-covid-testing-nursing-homes.html?se
 https://nytimes.com/2020/10/07/opinion/trump-coronavirus-patients.html?searchResultPosition=3
 
 **Welcome to the New Modern Love Podcast**\
-`Love is going to sound a little different this season.`\
+`Love will sound a little different this season.`\
 https://nytimes.com/2020/10/07/style/modern-love-podcast-trailer.html?searchResultPosition=4
 
 **For a Second Series of Play Readings: More Shows, More Stars**\
