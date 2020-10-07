@@ -18,8 +18,8 @@ https://nytimes.com/2020/10/06/world/asia/defector-north-korea.html?searchResult
 `By Julie Bosman, Sarah Mervosh, Amy Harmon and Nicholas Bogel-Burroughs`\
 https://nytimes.com/2020/10/06/world/trump-benefits-from-treatments-most-covid-19-patients-lacked.html?searchResultPosition=5
 
-**Your Wednesday Briefing**\
-`Trump, British universities, Germany’s far-right: Here’s what you need to know.`\
+**Trump, U.K. Universities, Germany’s Far-Right: Your Wednesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/10/06/briefing/trump-uk-universities-german-far-right.html?searchResultPosition=6
 
 **Corrections: Oct. 7, 2020**\
