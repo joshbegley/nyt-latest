@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/07/books/review-knowledge-machine-irrationality-crea
 https://nytimes.com/2020/10/07/arts/music/eddie-van-halen-metallica-kirk-hammett.html?searchResultPosition=3
 
 **Joseph L. Bruno, Fallen Power in New York Senate, Dies at 91**\
-`As the Republican majority leader for 13 years, he was one of the “three men in a room” who decided things in Albany. Then came corruption charges.`\
+`As the Republican majority leader for 13 years, he was one of the “three men in a room” who decided things in Albany. Then came corruption charges and, ultimately, vindication.`\
 https://nytimes.com/2020/10/07/nyregion/joseph-l-bruno-dead.html?searchResultPosition=4
 
 **How Will Pence Fare vs. Harris? 5 Moments From 2016 Offer Clues**\
