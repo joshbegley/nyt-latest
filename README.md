@@ -26,7 +26,7 @@ https://nytimes.com/2020/10/07/nyregion/grandparents-kidnapped-cocaine.html?sear
 `At issue: Who should represent performers and stage managers when theater is recorded and streamed, one of the few viable options during the pandemic.`\
 https://nytimes.com/2020/10/07/theater/actors-equity-union-battle.html?searchResultPosition=7
 
-**Contracting the virus was ‘a blessing from God,’ Trump says in a new video.**\
+**Trump says contracting the virus was ‘a blessing from God’ and hails an unproven drug as ‘a cure.’**\
 `By Maggie Haberman and Katie Thomas`\
 https://nytimes.com/2020/10/07/us/trump-video-blessing-from-god.html?searchResultPosition=8
 
