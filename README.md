@@ -8,7 +8,7 @@ https://nytimes.com/2020/10/07/technology/Trump-conspiracy-theories.html?searchR
 
 **Putin, Long the Sower of Instability, Is Now Surrounded by It**\
 `Fueled by the pandemic, uprisings in Belarus and Kyrgyzstan and a war in the Caucasus region are undermining the influence of the Russian leader.`\
-https://nytimes.com/2020/10/07/world/europe/putin-belarus-instability-karabakh.html?searchResultPosition=3
+https://nytimes.com/2020/10/07/world/europe/putin-belarus-kyrgyzstan-caucasus.html?searchResultPosition=3
 
 **The Times Endorses Joe Biden, and Readers Applaud**\
 `“I want to thank The Times for this thoughtful and accurate assessment of the candidate and the broader context of this race,” a reader writes.`\
