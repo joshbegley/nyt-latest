@@ -1,40 +1,40 @@
+**Johnny Nash, Who Sang ‘I Can See Clearly Now’, Dies at 80**\
+`After only modest success as a romantic crooner, he played a key role in bringing reggae to a wider audience.`\
+https://nytimes.com/2020/10/07/arts/music/johnny-nash-dead.html?searchResultPosition=1
+
 **Hurricane Delta Hits Mexico**\
 `Hurricane Delta made landfall in Mexico on Wednesday as a Category 2 storm and could produce “life-threatening” conditions in the Yucatán Peninsula, according to the U.S. National Hurricane Center.`\
-https://nytimes.com/video/climate/100000007382616/hurricane-delta-mexico-video.html?searchResultPosition=1
+https://nytimes.com/video/climate/100000007382616/hurricane-delta-mexico-video.html?searchResultPosition=2
 
 **Welcome to Homecoming!**\
 `At H.B.C.U.s, homecoming is part family reunion and part revival. It’s canceled this year, so let’s celebrate here.`\
-https://nytimes.com/2020/10/07/style/welcome-to-homecoming.html?searchResultPosition=2
+https://nytimes.com/2020/10/07/style/welcome-to-homecoming.html?searchResultPosition=3
 
 **‘Baptized in Blackness’: Why Homecoming Is Vital to the Black College Experience**\
 `Our video asks H.B.C.U. students and alumni what homecoming means to them, and what is lost this year as festivities go virtual.`\
-https://nytimes.com/video/style/100000007331461/hbcu-homecoming-2020.html?searchResultPosition=3
+https://nytimes.com/video/style/100000007331461/hbcu-homecoming-2020.html?searchResultPosition=4
 
 **Mapo Tofu Wins the Day**\
 `Years of eating the dish led Andrea Nguyen to a bulletproof recipe — and more recently, to use the original’s flavors to inform other dishes.`\
-https://nytimes.com/2020/10/07/dining/mapo-tofu-wins-the-day.html?searchResultPosition=4
+https://nytimes.com/2020/10/07/dining/mapo-tofu-wins-the-day.html?searchResultPosition=5
 
 **The Yankees Tried a Sneaky Move With All the Wrong Pieces**\
 `Manager Aaron Boone tried to take a page out of the Rays’ playbook to beat Tampa Bay, but it backfired without crucial buy-in from his pitcher.`\
-https://nytimes.com/2020/10/07/sports/baseball/ja-happ-aaron-boone-yankees.html?searchResultPosition=5
+https://nytimes.com/2020/10/07/sports/baseball/ja-happ-aaron-boone-yankees.html?searchResultPosition=6
 
 **Eddie Van Halen, the Shredder Supreme**\
 `The guitarist, who died this week at 65, gleefully reinvented the rules of being a guitar hero — then bent them again and again.`\
-https://nytimes.com/2020/10/07/arts/music/eddie-van-halen.html?searchResultPosition=6
+https://nytimes.com/2020/10/07/arts/music/eddie-van-halen.html?searchResultPosition=7
 
 **It Takes One: How the Monologue Speaks Loudest in Lockdown**\
 `Self-aware, self-conscious or self-deluding, it’s a form as old as theater itself. And it’s flourishing in a time of social isolation.`\
-https://nytimes.com/2020/10/07/theater/monologue-one-person-stage-show.html?searchResultPosition=7
+https://nytimes.com/2020/10/07/theater/monologue-one-person-stage-show.html?searchResultPosition=8
 
 **10 Monologues That Make Solo Music**\
 `In a few minutes or a full show, these performers capture heartbreak, fury and laughs. For the words of Samuel Beckett, a disembodied mouth did the trick.`\
-https://nytimes.com/2020/10/07/theater/best-stage-zoom-monologues.html?searchResultPosition=8
+https://nytimes.com/2020/10/07/theater/best-stage-zoom-monologues.html?searchResultPosition=9
 
 **Dolores Huerta: ‘We Have to Keep on Marching’**\
 `Fifty years after a historic victory for farm workers in California, the civil rights leader feels optimistic about the new generation of activists.`\
-https://nytimes.com/2020/10/07/opinion/international-world/dolores-huerta-activists-unions.html?searchResultPosition=9
-
-**SITI Company Announces Final Season**\
-`After three decades, the noted experimental New York theater company will stop producing shows in 2022.`\
-https://nytimes.com/2020/10/07/theater/siti-company-final-season.html?searchResultPosition=10
+https://nytimes.com/2020/10/07/opinion/international-world/dolores-huerta-activists-unions.html?searchResultPosition=10
 
