@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/07/us/ocean-spray-buys-car.html?searchResultPosition
 https://nytimes.com/interactive/2020/10/07/us/politics/vp-debate-live-analysis-kamala-pence.html?searchResultPosition=3
 
 **Watch Live: The Pence-Harris V.P. Debate**\
-`The vice-presidential debate between Vice President Mike Pence and Senator Kamala Harris is set to begin in Salt Lake City. It will be moderated by Susan Page, USA Today’s Washington bureau chief.`\
+`The vice-presidential debate between Vice President Mike Pence and Senator Kamala Harris is underway in Salt Lake City.`\
 https://nytimes.com/video/us/elections/100000007381656/vp-debate-live.html?searchResultPosition=4
 
 **Scary Movies Are Coming for You**\
