@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/08/sports/baseball/tanaka-yankees-rays.html?searchResultPosition=1
 
 **Six Takeaways From the Vice-Presidential Debate**\
-`Harris tried to make it about Trump, Pence tried to make it about the economy, but, in the end, a fly generated most of the buzz.`\
+`Kamala Harris tried to make it about Trump and Mike Pence tried to make it about the economy, but in the end, a fly generated most of the buzz.`\
 https://nytimes.com/2020/10/08/us/politics/debate-analysis.html?searchResultPosition=2
 
 **Karen Pence Appears Without a Mask**\
