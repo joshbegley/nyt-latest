@@ -8,7 +8,7 @@ https://nytimes.com/2020/10/08/briefing/michigan-presidential-debates-thanksgivi
 
 **Smoking Through Covid? You’re Not Alone**\
 `Cigarette sales are benefiting from the stress of the pandemic, social unrest and the presidential election.`\
-https://nytimes.com/interactive/2020/10/08/burst/covid-smoking-cigarette-sales.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/10/08/business/covid-smoking-cigarette-sales.html?searchResultPosition=3
 
 **U.S. Issues Additional Sanctions Against Iranian Banks**\
 `The penalties, which could effectively lock Iran out of the global financial system, were the latest sign that the Trump administration plans to maintain its maximum pressure campaign against the country.`\
