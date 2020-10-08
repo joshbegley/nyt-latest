@@ -2,7 +2,7 @@
 `A TikTok video of an Idaho man longboarding to work while chugging cran-raspberry juice and lip-syncing Fleetwood Mac pays unexpected dividends.`\
 https://nytimes.com/2020/10/07/us/ocean-spray-buys-car.html?searchResultPosition=1
 
-**Watch Live: V.P. Debate Stream and Analysis**\
+**Watch Live: VP Debate Stream and Analysis**\
 `Vice President Mike Pence and Senator Kamala Harris are meeting for their only debate, moderated by Susan Page of USA Today. Watch here with our live fact checks and analysis.`\
 https://nytimes.com/interactive/2020/10/07/us/politics/vp-debate-live-analysis-kamala-pence.html?searchResultPosition=2
 
