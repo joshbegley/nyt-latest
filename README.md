@@ -22,7 +22,7 @@ https://nytimes.com/2020/10/08/style/child-safety-firearms.html?searchResultPosi
 `An independent investigation found no mistreatment of a Black curator, Chaédria LaBouvier, but the chief curator, Nancy Spector, who is white, is leaving after 34 years.`\
 https://nytimes.com/2020/10/08/arts/design/guggenheim-investigation-nancy-spector.html?searchResultPosition=6
 
-**I.C.M. Partners Buys Stellar Group, Acquiring a Foothold in Soccer**\
+**ICM Partners Buys Stellar Group, Acquiring a Foothold in Soccer**\
 `International Creative Management Partners, one of the world’s big four talent agencies, will partner with a leading soccer agent in its effort to expand into sports.`\
 https://nytimes.com/2020/10/08/sports/soccer/icm-partners-stellar-group.html?searchResultPosition=7
 
