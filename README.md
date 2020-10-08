@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/07/health/trump-covid-regeneron.html?searchResultPosition=1
 
 **Trump Calls His Illness ‘a Blessing From God’**\
-`In a video on Wednesday evening, the president portrayed an antibody cocktail being developed by the drug maker Regeneron as a miracle cure.`\
+`In a video on Wednesday evening, the president portrayed an unproven antibody cocktail being developed by the drug maker Regeneron as a miracle cure.`\
 https://nytimes.com/2020/10/07/us/politics/trump-coronavirus-blessing.html?searchResultPosition=2
 
 **Harris and Pence Clash on Coronavirus Vaccine**\
