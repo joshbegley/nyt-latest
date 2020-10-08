@@ -1,5 +1,5 @@
 **Look for People to Scam Online**\
-`Sam Buchbinder reels us into the weekend.`\
+`FRIDAY PUZZLE — Solvers, I’m writing this in advance with the fervent hope that we make it through the week.`\
 https://nytimes.com/2020/10/07/crosswords/look-for-people-to-scam-online.html?searchResultPosition=1
 
 **Puckered**\
