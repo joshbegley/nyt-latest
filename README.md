@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/08/arts/television/disney-right-stuff-code-404.html?
 https://nytimes.com/2020/10/08/learning/film-club-baptized-in-blackness-why-homecoming-is-vital-to-the-black-college-experience.html?searchResultPosition=2
 
 **McConnell Says He’s Avoided White House Over Lack of Virus Measures**\
-`Senator Mitch McConnell, the majority leader, said he had not been to the White House since Aug. 6, due to a lack of protections against the coronavirus.`\
+`Senator Mitch McConnell said he had not been to the White House since August.`\
 https://nytimes.com/video/us/politics/100000007386109/mcconnell-white-house-coronavirus-precautions.html?searchResultPosition=3
 
 **New N.Y.C. Virus Shutdown Brings Confusion, Anger and Lawsuits**\
