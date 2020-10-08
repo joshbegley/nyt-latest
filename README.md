@@ -34,7 +34,7 @@ https://nytimes.com/video/us/elections/100000007383976/debate-pence-harris-power
 `During Wednesday night’s debate, a large fly landed on Vice President Mike Pence’s head and rested there.`\
 https://nytimes.com/video/us/elections/100000007383978/debate-fly-lands-on-pence.html?searchResultPosition=9
 
-**Pence Accuses Harris of Wanting to Pack the Supreme Court**\
+**Harris Dodges Pence on Packing Supreme Court**\
 `Kamala Harris said the Supreme Court vacancy should be filled by the president voters elect in November, while Mike Pence accused Ms. Harris and Joe Biden of wanting to pack the Supreme Court.`\
 https://nytimes.com/video/us/elections/100000007383977/pence-harris-supreme-court.html?searchResultPosition=10
 
