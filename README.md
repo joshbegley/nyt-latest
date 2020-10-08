@@ -2,7 +2,7 @@
 `Parents, local officials and religious leaders bristled at the haphazard way the governor and mayor announced new restrictions, some of which contradicted each other.`\
 https://nytimes.com/2020/10/08/nyregion/nyc-coronavirus-shutdown-cuomo.html?searchResultPosition=1
 
-**A Low-Income Quarter Needs to Grow. A Treasured Forest Could Pay the Price.**\
+**A Low-Income Quarter Needs to Grow. A Prized Forest Could Pay the Price.**\
 `With Jerusalem bursting at the seams, 5,000 new homes could wreck a popular getaway in the hills. “You don’t solve one social blight by creating another,” said one opponent of the project.`\
 https://nytimes.com/2020/10/08/world/middleeast/jerusalem-building-forest.html?searchResultPosition=2
 
