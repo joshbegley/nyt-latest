@@ -1,40 +1,40 @@
+**A Fly Landed on Mike Pence**\
+`During Wednesday night’s debate, a large fly landed on Vice President Mike Pence’s head and rested there.`\
+https://nytimes.com/video/us/elections/100000007383978/debate-fly-lands-on-pence.html?searchResultPosition=1
+
 **Pence Accuses Harris of Wanting to Pack the Supreme Court**\
 `Kamala Harris said the Supreme Court vacancy should be filled by the president voters elect in November, while Mike Pence accused Ms. Harris and Joe Biden of wanting to pack the Supreme Court.`\
-https://nytimes.com/video/us/elections/100000007383977/pence-harris-supreme-court.html?searchResultPosition=1
+https://nytimes.com/video/us/elections/100000007383977/pence-harris-supreme-court.html?searchResultPosition=2
 
 **Virus Takes Center Stage as Pence and Harris Skirmish in Debate**\
 `Vice President Mike Pence and Senator Kamala Harris met in a face-off that was more civil than the unruly presidential event but featured sharp exchanges over the virus, China policy, job creation and health care.`\
-https://nytimes.com/2020/10/07/us/politics/vice-presidential-debate.html?searchResultPosition=2
+https://nytimes.com/2020/10/07/us/politics/vice-presidential-debate.html?searchResultPosition=3
 
 **Pence and Harris Square Off Over Abortion**\
 `Mike Pence and Kamala Harris took contrasting positions on the Supreme Court nomination of Amy Coney Barrett and what it may mean for Roe v. Wade.`\
-https://nytimes.com/video/us/elections/100000007383989/debate-pence-harris-scotus.html?searchResultPosition=3
+https://nytimes.com/video/us/elections/100000007383989/debate-pence-harris-scotus.html?searchResultPosition=4
 
 **A fly sat atop Mike Pence’s head for two minutes during the V.P. debate.**\
 `By Reid J. Epstein`\
-https://nytimes.com/2020/10/07/us/politics/the-fly-pence-head.html?searchResultPosition=4
+https://nytimes.com/2020/10/07/us/politics/the-fly-pence-head.html?searchResultPosition=5
 
 **Harris Calls Trump’s Refusal to Condemn Racism ‘Part of a Pattern’**\
 `Senator Kamala Harris criticized President Trump for repeatedly refusing to condemn White supremacists.`\
-https://nytimes.com/video/us/elections/100000007383990/pence-harris-white-supremacy.html?searchResultPosition=5
+https://nytimes.com/video/us/elections/100000007383990/pence-harris-white-supremacy.html?searchResultPosition=6
 
 **Who Do You Think Won the Debate: Harris or Pence?**\
 `The vice-presidential candidates are done talking … for the moment. Now it’s your turn.`\
-https://nytimes.com/2020/10/07/opinion/reader-reactions-debate.html?searchResultPosition=6
+https://nytimes.com/2020/10/07/opinion/reader-reactions-debate.html?searchResultPosition=7
 
 **Pence faults Biden in Kayla Mueller’s killing, saying she could have been rescued from ISIS.**\
 `By Glenn Thrush`\
-https://nytimes.com/2020/10/07/us/politics/who-is-kayla-mueller.html?searchResultPosition=7
+https://nytimes.com/2020/10/07/us/politics/who-is-kayla-mueller.html?searchResultPosition=8
 
 **An exchange about Breonna Taylor and George Floyd crystallizes the candidates’ opposing views on racial justice.**\
 `By Maggie Astor`\
-https://nytimes.com/2020/10/07/us/politics/kamala-harris-breonna-taylor.html?searchResultPosition=8
+https://nytimes.com/2020/10/07/us/politics/kamala-harris-breonna-taylor.html?searchResultPosition=9
 
 **Harris and Pence Clash on Climate Change**\
 `In Wednesday night’s debate, Kamala Harris and Mike Pence argued about fracking and job creation related to climate change.`\
-https://nytimes.com/video/us/elections/100000007383974/debate-harris-pence-climate-change.html?searchResultPosition=9
-
-**Pence and Harris Go Head-to-Head on Taxes**\
-`Senator Kamala Harris criticized tax cuts for wealthy Americans instituted by President Trump, while Vice President Mike Pence contended that a Biden administration would raise taxes.`\
-https://nytimes.com/video/us/elections/100000007383972/pence-harris-taxes.html?searchResultPosition=10
+https://nytimes.com/video/us/elections/100000007383974/debate-harris-pence-climate-change.html?searchResultPosition=10
 
