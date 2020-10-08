@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/08/sports/baseball/tanaka-yankees-rays.html?searchResultPosition=1
 
 **Six Takeaways From the Vice-Presidential Debate**\
-`Harris tried to make it about Trump, Pence tried to make it about the economy, but, in the end, a fly generated all the buzz.`\
+`Harris tried to make it about Trump, Pence tried to make it about the economy, but, in the end, a fly generated most of the buzz.`\
 https://nytimes.com/2020/10/08/us/politics/debate-analysis.html?searchResultPosition=2
 
 **Karen Pence Appears Without a Mask**\
@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/08/us/politics/debate-analysis.html?searchResultPosi
 https://nytimes.com/video/us/elections/100000007383982/debate-karen-pence-does-not-wear-a-mask.html?searchResultPosition=3
 
 **Watch: Highlights From the 2020 Vice-Presidential Debate**\
-`Vice President Mike Pence and Senator Kamala Harris sparred on topics including the response to the coronavirus, taxes and the Supreme Court vacancy.`\
+`Vice President Mike Pence and Senator Kamala Harris sparred on topics including the response to the coronavirus and the Supreme Court vacancy.`\
 https://nytimes.com/video/us/politics/100000007383962/vp-debate-highlights.html?searchResultPosition=4
 
 **How the Internet Viewed the Vice-Presidential Debate**\
