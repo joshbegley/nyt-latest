@@ -10,8 +10,8 @@ https://nytimes.com/2020/10/08/world/asia/hong-kong-heist-mao-scroll.html?search
 `The goal is to award 50 projects more than $1 million each over the next 10 years for coming up with innovative solutions to address climate change and other environmental issues.`\
 https://nytimes.com/2020/10/08/world/europe/prince-william-environment-earthshot-prize.html?searchResultPosition=3
 
-**Next Biden-Trump Debate to Be a Virtual Matchup**\
-`The Commission on Presidential Debates said it would hold a virtual debate between the candidates on Oct. 15 because of virus concerns.`\
+**Trump Objects to Commission’s Virtual Debate Plan**\
+`The Commission on Presidential Debates said the second presidential debate, scheduled for Oct. 15, would be virtual, because of virus concerns. Trump called the plan “ridiculous” in a Fox Business interview.`\
 https://nytimes.com/2020/10/08/business/media/trump-biden-debate-virtual.html?searchResultPosition=4
 
 **Randy Arozarena Can’t Stop Hitting**\
