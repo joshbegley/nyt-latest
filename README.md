@@ -1,4 +1,4 @@
-**Louise Glück Wins Nobel Prize in Literature**\
+**Louise Glück Is Awarded Nobel Prize in Literature**\
 `The American writer was lauded “for her unmistakable poetic voice.”`\
 https://nytimes.com/2020/10/08/books/nobel-prize-literature-winner.html?searchResultPosition=1
 
