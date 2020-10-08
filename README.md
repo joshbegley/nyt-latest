@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/08/arts/television/reality-tv-older-kids.html?searchResultPosition=1
 
 **F.B.I. Says Michigan Militia Plotted to Kidnap Gov. Gretchen Whitmer**\
-`The six men had been discussing taking Ms. Whitmer, a Democrat, hostage since at least the summer.`\
+`Six men had been discussing taking Ms. Whitmer, a Democrat, hostage since at least the summer, the F.B.I. said.`\
 https://nytimes.com/2020/10/08/us/gretchen-whitmer-michigan-militia.html?searchResultPosition=2
 
 **Florida Principal in Holocaust Dispute Is Reinstated**\
