@@ -1,4 +1,4 @@
-**Torey Lanez Charged With Assault in Shooting of Megan Thee Stallion**\
+**Tory Lanez Charged With Assault in Shooting of Megan Thee Stallion**\
 `The Canadian artist is accused of wounding the singer by firing at her feet after an argument last summer.`\
 https://nytimes.com/2020/10/08/arts/music/stallion-lanez-shooting.html?searchResultPosition=1
 
