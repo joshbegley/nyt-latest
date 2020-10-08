@@ -1,5 +1,5 @@
 **Louise Glück Wins Nobel Prize in Literature**\
-`The prize was announced at a news conference in Stockholm.`\
+`The American writer was lauded “for her unmistakable poetic voice.”`\
 https://nytimes.com/2020/10/08/books/nobel-prize-literature-winner.html?searchResultPosition=1
 
 **Oh, the Memories of Normal Debates**\
