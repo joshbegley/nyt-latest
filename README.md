@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/07/todayspaper/quotation-of-the-day-this-could-be-th
 `Senator Kamala Harris asked Vice President Mike Pence to stop cutting in as she responded to a question on taxes.`\
 https://nytimes.com/video/us/elections/100000007383979/pence-harris-interruption.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`U.S. vice-presidential debate, New Zealand, Vladimir Putin: Here’s what you need to know.`\
+**U.S. Vice-Presidential Debate, New Zealand, Vladimir Putin: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/10/07/briefing/debate-new-zealand-vladimir-putin.html?searchResultPosition=10
 
