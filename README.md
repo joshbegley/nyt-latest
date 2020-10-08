@@ -1,40 +1,40 @@
+**Homes for Sale in Brooklyn, Manhattan and Queens**\
+`This week’s properties are in Gowanus, Chelsea and Forest Hills.`\
+https://nytimes.com/2020/10/08/realestate/housing-market-nyc.html?searchResultPosition=1
+
+**Homes for Sale in New York City**\
+`This week’s properties are in Gowanus, Chelsea and Forest Hills.`\
+https://nytimes.com/slideshow/2020/10/08/realestate/homes-for-sale-in-new-york-city.html?searchResultPosition=2
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are four-bedroom homes in Long Beach, N.Y., and Norwalk, Conn.`\
+https://nytimes.com/2020/10/08/realestate/housing-market-near-nyc.html?searchResultPosition=3
+
+**On the Market in the New York Region**\
+`This week’s properties are four-bedroom homes in Long Beach, N.Y., and Norwalk, Conn.`\
+https://nytimes.com/slideshow/2020/10/08/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+
+**The Stars of Black LinkedIn Have Had It With Corporate Racism**\
+`The tamest social network has become a thriving outlet for Black users to call out marginalization in the workplace — and on LinkedIn itself.`\
+https://nytimes.com/2020/10/08/business/black-linkedin.html?searchResultPosition=5
+
+**Millennials Face a Steep Climb to Homeownership**\
+`A new survey lays bare the gap between the generation’s dreams of homeownership and its financial reality.`\
+https://nytimes.com/2020/10/08/realestate/millennials-homeownership-savings.html?searchResultPosition=6
+
 **What to Know About the Vice-Presidential Debate**\
 `Thursday: A look at the “most interesting vice-presidential debate in years.” Also: Climate change; and Eddie Van Halen.`\
-https://nytimes.com/2020/10/08/us/vice-presidential-debate-climate-change.html?searchResultPosition=1
+https://nytimes.com/2020/10/08/us/vice-presidential-debate-climate-change.html?searchResultPosition=7
 
 **Library of Congress Acquires Archives of the National Women’s Party**\
 `The donation, timed to the centennial of the 19th Amendment, doubles the library’s holdings relating to the party, which fought for women’s suffrage and the Equal Rights Amendment.`\
-https://nytimes.com/2020/10/08/arts/library-of-congress-national-womens-party.html?searchResultPosition=2
+https://nytimes.com/2020/10/08/arts/library-of-congress-national-womens-party.html?searchResultPosition=8
 
 **When a Fly Ruins Your Image**\
 `It was a night of somber, serious suits and signals for both Kamala Harris and Mike Pence. Then the bug arrived.`\
-https://nytimes.com/2020/10/08/style/vice-presidential-debate-kamala-harris-style-fly.html?searchResultPosition=3
+https://nytimes.com/2020/10/08/style/vice-presidential-debate-kamala-harris-style-fly.html?searchResultPosition=9
 
 **They Took $645 Million in Valuables. Then They Took a Taxi.**\
 `The burglars stole coins, vintage stamps and Mao scrolls from a Hong Kong apartment. The police recovered one scroll cut in two. One man has been charged so far.`\
-https://nytimes.com/2020/10/08/world/asia/hong-kong-heist-mao-scroll.html?searchResultPosition=4
-
-**Prince William Announces New Prize Aimed at ‘Repairing’ the Planet**\
-`The goal is to award 50 projects more than $1 million each over the next 10 years for coming up with innovative solutions to address climate change and other environmental issues.`\
-https://nytimes.com/2020/10/08/world/europe/prince-william-environment-earthshot-prize.html?searchResultPosition=5
-
-**Trump Objects to Commission’s Virtual Debate Plan**\
-`The Commission on Presidential Debates said the second Biden-Trump matchup would be virtual, because of virus concerns, but the president called the plan “ridiculous.”`\
-https://nytimes.com/2020/10/08/business/media/trump-biden-debate-virtual.html?searchResultPosition=6
-
-**Randy Arozarena Can’t Stop Hitting**\
-`‘He’s from another planet’: Rays star has a .600 average in the postseason.`\
-https://nytimes.com/2020/10/08/sports/baseball/randy-arozarena-yankees-rays.html?searchResultPosition=7
-
-**A Debate Full of Divides, Some Visible, Some Transparent**\
-`The pandemic took up only a few questions at the Pence-Harris vice-presidential debate. But it was everywhere.`\
-https://nytimes.com/2020/10/08/arts/television/vice-presidential-debate.html?searchResultPosition=8
-
-**Louise Glück Is Awarded Nobel Prize in Literature**\
-`The American writer was lauded “for her unmistakable poetic voice.”`\
-https://nytimes.com/2020/10/08/books/nobel-prize-literature-winner.html?searchResultPosition=9
-
-**Oh, the Memories of Normal Debates**\
-`Remember when debates were staid, uneventful and just kind of boring? In many respects, last night’s vice-presidential matchup seemed like a blast from the past.`\
-https://nytimes.com/2020/10/08/us/politics/vp-debate-recap.html?searchResultPosition=10
+https://nytimes.com/2020/10/08/world/asia/hong-kong-heist-mao-scroll.html?searchResultPosition=10
 
