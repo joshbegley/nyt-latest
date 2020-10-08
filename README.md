@@ -19,7 +19,7 @@ https://nytimes.com/2020/10/08/arts/design/chelsea-art-shows-to-see-now.html?sea
 https://nytimes.com/2020/10/08/arts/music/maurice-edwards-dead-coronavirus.html?searchResultPosition=5
 
 **Harry and Meghan Get an Apology After Suing Paparazzi**\
-`A celebrity news agency in Los Angeles also agreed to turn over photos of the couple’s young son and destroy any copies in its archives or databases after a settlement in an invasion-of-privacy case.`\
+`A celebrity news agency in Los Angeles also agreed to turn over photos of the couple’s young son and destroy its copies after a settlement in an invasion-of-privacy case.`\
 https://nytimes.com/2020/10/08/business/harry-meghan-paparazzi-lawsuit.html?searchResultPosition=6
 
 **Here Are Some Memorable Lines from Louise Glück**\
