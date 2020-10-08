@@ -24,7 +24,7 @@ https://nytimes.com/2020/10/08/business/united-states-budget-deficit-3-trillion.
 
 **Elliott Broidy, a Top Trump Fund-Raiser, Charged in Foreign Influence Case**\
 `Federal authorities accused him of violating lobbying laws in his unsuccessful efforts to resolve an investigation into the embezzlement of the Malaysian investment fund 1MDB.`\
-https://nytimes.com/2020/10/08/us/politics/elliott-broidy-a-top-trump-fund-raiser-charged-in-foreign-influence-case.html?searchResultPosition=7
+https://nytimes.com/2020/10/08/us/politics/elliott-broidy-trump-fundraiser.html?searchResultPosition=7
 
 **What We Learned From the Vice-Presidential Debate**\
 `There was a lot to glean from what the candidates said — and what they didn’t.`\
