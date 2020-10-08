@@ -1,6 +1,6 @@
 **Pence, Peerless Trump Defender, Confronts His Limits**\
 `During an orderly debate, the vice president deflected criticism of the Trump administration’s pandemic response, something Kamala Harris said “clearly” hasn’t worked.`\
-https://nytimes.com/2020/10/08/us/politics/pence-harris-debate.html?searchResultPosition=1
+https://nytimes.com/2020/10/08/us/politics/mike-pence-debate.html?searchResultPosition=1
 
 **N.F.L. Week 5 Predictions: Our Picks Against the Spread**\
 `The Seahawks and Vikings may rack up points while the Colts and the Buccaneers will try to keep rolling. That is, if the N.F.L. plays through its coronavirus setbacks.`\
