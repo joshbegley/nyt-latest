@@ -19,7 +19,7 @@ https://nytimes.com/2020/10/08/world/asia/hong-kong-heist-mao-scroll.html?search
 https://nytimes.com/2020/10/08/world/europe/prince-william-environment-earthshot-prize.html?searchResultPosition=5
 
 **Trump Objects to Commission’s Virtual Debate Plan**\
-`The Commission on Presidential Debates said the second presidential debate, scheduled for Oct. 15, would be virtual, because of virus concerns. Trump called the plan “ridiculous” in a Fox Business interview.`\
+`The Commission on Presidential Debates said the second Biden-Trump matchup would be virtual, because of virus concerns, but the president called the plan “ridiculous.”`\
 https://nytimes.com/2020/10/08/business/media/trump-biden-debate-virtual.html?searchResultPosition=6
 
 **Randy Arozarena Can’t Stop Hitting**\
