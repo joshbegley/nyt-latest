@@ -1,5 +1,5 @@
 **Wolverines Don’t Require Protection, U.S. Officials Rule**\
-`The decision capped a quarter-century legal battle that exposed deep divisions over the power of government and how humans interact with nature.`\
+`The decision capped a quarter-century legal battle that exposed deep divisions over the role of government and how humans interact with nature.`\
 https://nytimes.com/2020/10/08/climate/wolverines-no-federal-protection.html?searchResultPosition=1
 
 **Dead, Alive, on Life Support? Confusion Reigns on Stimulus as Talks Continue**\
