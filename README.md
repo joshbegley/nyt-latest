@@ -10,7 +10,7 @@ https://nytimes.com/video/us/politics/100000007385603/pelosi-coronavirus-airline
 `The immune systems of bats are weird, but we don’t know how weird, how they got that way or enough about other animals.`\
 https://nytimes.com/2020/10/08/science/bats-viruses-vaccines.html?searchResultPosition=3
 
-**A Resurgence in Chelsea**\
+**A Gallery Resurgence in Chelsea**\
 `In the face of economic unknowns, the message from the city’s galleries is: we’re not taking this lying down. Roberta Smith on 16 of the neighborhood’s most riveting painting shows.`\
 https://nytimes.com/2020/10/08/arts/design/chelsea-art-shows-to-see-now.html?searchResultPosition=4
 
