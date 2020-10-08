@@ -1,4 +1,4 @@
-**Gulf States Brace for Hurricane Delta**\
+**Gulf States Brace for Yet Another Hurricane**\
 `The governors of Alabama and Mississippi have declared states of emergency, while some parishes in Louisiana are under mandatory evacuation orders.`\
 https://nytimes.com/2020/10/08/us/hurricane-delta-gulf-coast.html?searchResultPosition=1
 
