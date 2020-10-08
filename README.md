@@ -30,9 +30,9 @@ https://nytimes.com/2020/10/08/us/iran-sanctions-banks-united-states.html?search
 `The president, who is counting on support from military members and their families, suggested for the second time in a week that they might have spread the coronavirus at the White House.`\
 https://nytimes.com/2020/10/08/us/politics/trump-coronavirus-gold-star-families.html?searchResultPosition=8
 
-**Pence-Harris Matchup Draws 58 Million TV Viewers**\
-`It was the second most-watched vice-presidential debate, according to Nielsen.`\
-https://nytimes.com/2020/10/08/business/media/pence-harris-matchup-draws-58-million-tv-viewers.html?searchResultPosition=9
+**Pence-Harris Debate Is No. 2 in Vice-Presidential Ratings, With 58 Million TV Viewers**\
+`The matchup was second only to Sarah Palin’s debate with Joe Biden in 2008, according to Nielsen.`\
+https://nytimes.com/2020/10/08/business/media/pence-harris-debate-is-no-2-in-vice-presidential-ratings-with-58-million-tv-viewers.html?searchResultPosition=9
 
 **Labor Board Accuses Google Contractor of Violating Union Rights**\
 `The complaint says the contractor, HCL, refused to negotiate with the union and retaliated by shipping work to Poland.`\
