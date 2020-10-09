@@ -22,9 +22,9 @@ https://nytimes.com/2020/10/08/us/politics/trump-voice-of-america.html?searchRes
 `The White House physician, Dr. Sean P. Conley, predicted that the president could safely return to “public engagements.” Experts questioned the doctor’s rationale.`\
 https://nytimes.com/2020/10/08/health/trump-public-return-experts.html?searchResultPosition=6
 
-**Your Friday Briefing**\
-`Sweden, U.S. election, French Open: Here’s what you need to know.`\
-https://nytimes.com/2020/10/08/briefing/your-friday-briefing.html?searchResultPosition=7
+**Sweden, U.S. Election, French Open: Your Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2020/10/08/briefing/sweden-us-election-french-open-your-friday-briefing.html?searchResultPosition=7
 
 **The Astros, Suddenly Dominant at the Plate, Are Back in the A.L.C.S.**\
 `A team that looked ordinary during the regular season has caught fire in the postseason, reaching the American League Championship Series and enraging those still upset over their 2017 cheating scandal.`\
