@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/08/us/politics/arizona-pence-biden-harris.html?searc
 https://nytimes.com/2020/10/08/world/australia/travel-52-places-you-love.html?searchResultPosition=2
 
 **N.F.L. Postpones More Games Because of Positive Coronavirus Tests**\
-`For the second consecutive week, the league had to move games, including another postponement for the Tennessee Titans, who have the league’s biggest outbreak. The Patriots also faced a second rescheduling.`\
+`For the second consecutive week, the league had to move games, including another postponement for the Tennessee Titans, who have the league’s biggest outbreak. The Patriots also had a second rescheduling.`\
 https://nytimes.com/2020/10/08/sports/football/nfl-postpones-titans-coronavirus-patriots.html?searchResultPosition=3
 
 **Facebook and the Group That Planned to Kidnap Gretchen Whitmer**\
