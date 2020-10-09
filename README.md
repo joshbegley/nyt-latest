@@ -35,6 +35,6 @@ https://nytimes.com/video/us/politics/100000007387446/pelosi-trump-25th-amendmen
 https://nytimes.com/2020/10/09/arts/music/playlist-jeff-tweedy-anderson-paak-davido.html?searchResultPosition=9
 
 **Trump’s Taxes Show He Engineered a Sudden Windfall in 2016**\
-`Over $21 million in highly unusual payments from the Las Vegas hotel Donald Trump owns with Phil Ruffin were routed through other Trump companies, then paid out in cash.`\
+`Over $21 million in highly unusual payments from the Las Vegas hotel Donald Trump owns with Phil Ruffin were routed through other Trump companies, then directed to Mr. Trump.`\
 https://nytimes.com/interactive/2020/10/09/us/donald-trump-taxes-las-vegas.html?searchResultPosition=10
 
