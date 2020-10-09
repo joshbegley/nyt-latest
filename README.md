@@ -14,8 +14,8 @@ https://nytimes.com/2020/10/09/arts/carol-paumgarten-dead.html?searchResultPosit
 `We check in with Pancho, Maria and Abel to hear how they’ve been doing since we recorded Tuesday’s episode.`\
 https://nytimes.com/2020/10/09/podcasts/hatch-bar-shutdown-coronavirus.html?searchResultPosition=4
 
-**Kyle Rittenhouse, Charged in Protesters’ Deaths, Draws Support in Some Corners**\
-`Video footage shows Mr. Rittenhouse firing shots, which prosecutors say killed two demonstrators protesting a police shooting in Kenosha, Wis. Some conservatives are donating to the teenager’s legal defense.`\
+**Some Conservatives Rally Behind Teenager Charged in Protesters’ Deaths**\
+`Supporters are donating to the legal defense of Kyle Rittenhouse, who prosecutors say killed two protesters of a police shooting in Kenosha, Wis.`\
 https://nytimes.com/2020/10/09/us/kyle-rittenhouse-kenosha.html?searchResultPosition=5
 
 **Scientist Accused of Hiding Chinese Funds Sues Harvard, Saying It Abandoned Him**\
