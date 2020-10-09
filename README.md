@@ -1,5 +1,5 @@
-**White House Grasps for Stimulus Deal Amid Deep Republican Divisions**\
-`Days after tweeting an end to stimulus talks, the president reversed course, proposing a plan his own party may reject, and giving Democrats fresh leverage to dictate the terms of a deal.`\
+**Trump Raises Stimulus Offer to $1.8 Trillion Days After Halting Negotiations**\
+`After ending stimulus talks via Twitter on Tuesday, the president reversed course, proposing a plan his own party may reject, and giving Democrats fresh leverage to dictate the terms of a deal.`\
 https://nytimes.com/2020/10/09/us/politics/trump-covid-stimulus-pelosi-republicans.html?searchResultPosition=1
 
 **Doc Antle of ‘Tiger King’ Is Charged With Wildlife Trafficking**\
