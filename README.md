@@ -28,7 +28,7 @@ https://nytimes.com/2020/10/09/arts/design/dutch-restitution-report.html?searchR
 
 **Trump, on Sean Hannity’s show, projects optimism about resuming rallies this weekend.**\
 `By Maggie Astor`\
-https://nytimes.com/2020/10/09/us/elections/trump-on-sean-hannitys-show-projects-optimism-about-resuming-rallies-this-weekend.html?searchResultPosition=8
+https://nytimes.com/2020/10/09/us/elections/trump-sean-hannity-interview.html?searchResultPosition=8
 
 **Yelp Says It Will Mark Pages of Businesses Accused of Racist Conduct**\
 `The online review company said that it would raise flags when there was “resounding evidence” and that it would link to articles detailing racist reports.`\
