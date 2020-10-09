@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2020/10/09/briefing/the-weekender.html?searchRes
 `You told us what you’ve been cooking, and we listened.`\
 https://nytimes.com/2020/10/09/dining/recipes-reader-favorites.html?searchResultPosition=5
 
-**Rafael Nadal Reaches French Open Final, Could Tie Majors Record**\
+**Rafael Nadal Reaches French Open Final and Could Tie Majors Record**\
 `If Nadal can win a championship for the 13th time at Roland Garros on Sunday, he would tie Roger Federer with 20 singles victories in Grand Slam tournaments.`\
 https://nytimes.com/2020/10/09/sports/tennis/french-open-rafael-nadal-novak-djokovic-stefanos-tsitsipas.html?searchResultPosition=6
 
