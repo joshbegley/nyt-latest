@@ -1,40 +1,40 @@
-**News Quiz: Regeneron, Coronavirus, Eddie Van Halen**\
-`Did you follow the headlines this week?`\
-https://nytimes.com/interactive/2020/10/09/briefing/news-quiz-regeneron-coronavirus-eddie-van-halen.html?searchResultPosition=1
+**Do Cuomo’s New Covid Rules Discriminate Against Religion?**\
+`I almost always side with protecting houses of worship. But there are limits.`\
+https://nytimes.com/2020/10/09/opinion/cuomo-synagogue-lockdown.html?searchResultPosition=1
 
-**Jimmy Fallon Riffs on Mike Pence’s Fly and Pink Eye**\
-`“He’s the head of the coronavirus task force. Not really a great look when you’re covered in bugs and bleeding out of your eye,” Fallon said on Thursday.`\
-https://nytimes.com/2020/10/09/arts/television/late-night-mike-pence-fly-vp-debate-pink-eye.html?searchResultPosition=2
+**Trump’s Struggles Ripple Across the Sun Belt, Endangering G.O.P. Stronghold**\
+`President Trump is fading nationally as he alienates women, seniors and suburbanites, polls show. But private G.O.P. surveys show he is in close races in solidly red states, too.`\
+https://nytimes.com/2020/10/09/us/politics/trump-biden-sun-belt.html?searchResultPosition=2
 
-**An Afghan Boy’s Rape and Death Prompt a Rare Response: Arrests**\
-`Villagers confronted officials, and seven police officers are now in jail, in a rare official action to investigate child sexual abuse accusations in Afghanistan.`\
-https://nytimes.com/2020/10/09/world/asia/afghanistan-rape-bacha-bazi.html?searchResultPosition=3
+**Chevron’s Purchase Could Unlock Israel’s Natural Gas Bonanza**\
+`The oil giant’s takeover of Noble Energy gives it a foothold in an emerging energy hot spot: the eastern Mediterranean Sea.`\
+https://nytimes.com/2020/10/09/business/eastern-mediterranean-natural-gas-chevron.html?searchResultPosition=3
 
-**Daniel Prude Was in ‘Mental Distress.’ Police Treated Him Like a Suspect.**\
-`Rochester officers followed their training in restraining Mr. Prude, who was incoherent, but did little to calm him down or defuse his anger.`\
-https://nytimes.com/2020/10/09/nyregion/daniel-prude-rochester-police-mental-health.html?searchResultPosition=4
+**Finding the Right Path in an Up-and-Down Market**\
+`Does the latest twist herald the end of a bull run or the beginning of a shift toward long-neglected niches?`\
+https://nytimes.com/2020/10/09/business/mutfund/stock-market-high-low.html?searchResultPosition=4
 
-**Paid to Laugh**\
-`Would you attend a live TV show taping — if you got money for it?`\
-https://nytimes.com/2020/10/09/learning/paid-to-laugh.html?searchResultPosition=5
+**Man’s Best Friend Once Made Nice Wool Blankets, Too**\
+`Indigenous peoples of the Pacific Northwest once bred dogs in large numbers and sheared them for wool.`\
+https://nytimes.com/2020/10/09/science/dog-wool.html?searchResultPosition=5
 
-**Word + Quiz: vector**\
-`This word has appeared in 105 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/10/09/learning/word-quiz-vector.html?searchResultPosition=6
+**The Northeast Held the Virus in Check. Now Cases Are Inching Up Again.**\
+`The Northeast, devastated by the coronavirus in the spring and held up as a model of infection control by summer, is now seeing early signs of a second wave.`\
+https://nytimes.com/2020/10/09/us/northeast-coronavirus-cases.html?searchResultPosition=6
 
-**Yankees Beat Back the Rays, Giving Gerrit Cole a Shot at Game 5**\
-`A stout performance from Jordan Montgomery, coupled with some timely hitting, set up the Yankees to put their best pitcher on the mound in a winner-take-all showdown on Friday.`\
-https://nytimes.com/2020/10/09/sports/baseball/yankees-rays-gerrit-cole-game-5.html?searchResultPosition=7
+**New York Real Estate Is On the Mend**\
+`The recovery is tenuous, but renters are returning, buyers are getting deals, and those who stayed are finding a measure of vindication.`\
+https://nytimes.com/2020/10/09/realestate/new-york-city-real-estate-return.html?searchResultPosition=7
 
-**The French Open Will Probably Finish. But This Tournament Has Not Been Normal.**\
-`The Grand Slam tournament has played out as the coronavirus has gotten worse in Paris.`\
-https://nytimes.com/2020/10/09/sports/tennis/french-open-coronavirus.html?searchResultPosition=8
+**‘If No Tourists Come, I Have No Business’: New York’s Tourism Crisis**\
+`International arrivals to New York are down as much as 93 percent, and the people and businesses of the city’s tourism industry are on the brink.`\
+https://nytimes.com/2020/10/09/travel/nyc-tourism-travel-restrictions.html?searchResultPosition=8
 
-**2020 French Open: Men’s Semifinal Preview**\
-`Novak Djokovic and Rafael Nadal will try to push past two players who are in their first French Open semifinals.`\
-https://nytimes.com/2020/10/09/sports/tennis/2020-french-open-mens-semifinal-preview.html?searchResultPosition=9
+**Spotify, Solar Power and Beer Cans: How 3 Investors Beat the Market**\
+`Managers of three of the third quarter’s top-performing mutual funds bet on a music streamer, a solar-panel installer and a beverage-can maker.`\
+https://nytimes.com/2020/10/09/business/mutfund/investors-stock-market.html?searchResultPosition=9
 
-**My Best Friend Is Gone, and Nothing Feels Right**\
-`If grief is the price of love, I am unable to pay.`\
-https://nytimes.com/2020/10/09/style/modern-love-coronavirus-thank-you-for-ruining-me.html?searchResultPosition=10
+**Customers Still Like to Shop in Person, Even if They Get Only to the Curb**\
+`Online orders have surged for retailers in the pandemic, as curbside pickup helps Americans satisfy their desire to hop in a car and drive to the store.`\
+https://nytimes.com/2020/10/09/business/retailers-curbside-pickup.html?searchResultPosition=10
 
