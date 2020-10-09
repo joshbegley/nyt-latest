@@ -1,40 +1,40 @@
+**Broadway Will Remain Closed at Least Through May**\
+`“The Music Man” and other shows will have to plan new opening dates, as a new reality sets in: Many theaters are likely to stay shut through next fall.`\
+https://nytimes.com/2020/10/09/theater/broadway-reopening.html?searchResultPosition=1
+
 **From Hiding, Kyrgyzstan’s Leader Declares State of Emergency**\
 `Earlier on Friday, after protesters besieged government buildings, President Sooronbai Jeenbekov said he was willing to leave office. His new decree raised concerns about an orderly transfer of power.`\
-https://nytimes.com/2020/10/09/world/europe/kyrgyzstan-state-of-emergency.html?searchResultPosition=1
+https://nytimes.com/2020/10/09/world/europe/kyrgyzstan-state-of-emergency.html?searchResultPosition=2
 
 **Private Schools Hold New Attraction for Rich Parents**\
 `Schools offering in-person teaching are seeing a rise in applications — even when tuition is $50,000 a year or more.`\
-https://nytimes.com/2020/10/09/your-money/private-schools-wealthy-parents.html?searchResultPosition=2
+https://nytimes.com/2020/10/09/your-money/private-schools-wealthy-parents.html?searchResultPosition=3
 
 **Looking for Escapist TV? Try Home Design Shows**\
 `We’re home all the time now, so watching home improvement television can give us tips on what to do and what not to do.`\
-https://nytimes.com/2020/10/09/realestate/netflix-home-improvement-shows.html?searchResultPosition=3
+https://nytimes.com/2020/10/09/realestate/netflix-home-improvement-shows.html?searchResultPosition=4
 
 **A Challenge to Real Estate Commissions Gains Ground**\
 `In a lawsuit, home sellers say that the current system is anticompetitive and that they overpaid. The Realtors association disagrees.`\
-https://nytimes.com/2020/10/09/your-money/real-estate-commissions-lawsuit.html?searchResultPosition=4
+https://nytimes.com/2020/10/09/your-money/real-estate-commissions-lawsuit.html?searchResultPosition=5
 
 **The Island Brokers Are Overwhelmed**\
 `The wealthy want to escape the pandemic to a private, isolated paradise. The people who sell islands have to explain: It’s complicated.`\
-https://nytimes.com/2020/10/09/realestate/private-islands-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2020/10/09/realestate/private-islands-coronavirus.html?searchResultPosition=6
 
 **An Update on Reopening California**\
 `In the past few weeks, a number of counties have moved forward with reopening and a few have reversed course.`\
-https://nytimes.com/2020/10/09/us/california-virus-tiers-reopening.html?searchResultPosition=6
+https://nytimes.com/2020/10/09/us/california-virus-tiers-reopening.html?searchResultPosition=7
 
 **Did Tom Brady Forget It Was Fourth Down? It Sure Looked Like It**\
 `As the defeated Buccaneers offense left the field against the Bears, Brady stayed, apparently thinking he still had another play.`\
-https://nytimes.com/2020/10/09/sports/tom-brady-fourth-down.html?searchResultPosition=7
+https://nytimes.com/2020/10/09/sports/tom-brady-fourth-down.html?searchResultPosition=8
 
 **Return Looted Art to Former Colonies, Dutch Committee Tells Government**\
 `The Netherlands should show “a willingness to return” items taken without consent, and to do so without conditions, a report said.`\
-https://nytimes.com/2020/10/09/arts/design/dutch-restitution-report.html?searchResultPosition=8
+https://nytimes.com/2020/10/09/arts/design/dutch-restitution-report.html?searchResultPosition=9
 
 **Trump, on Sean Hannity’s show, projects optimism about resuming rallies this weekend.**\
 `By Maggie Astor`\
-https://nytimes.com/2020/10/09/us/elections/trump-sean-hannity-interview.html?searchResultPosition=9
-
-**Yelp Says It Will Mark Pages of Businesses Accused of Racist Conduct**\
-`The online review company said that it would raise flags when there was “resounding evidence” and that it would link to articles detailing racist reports.`\
-https://nytimes.com/2020/10/09/business/yelp-racism.html?searchResultPosition=10
+https://nytimes.com/2020/10/09/us/elections/trump-sean-hannity-interview.html?searchResultPosition=10
 
