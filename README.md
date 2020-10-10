@@ -4,7 +4,7 @@ https://nytimes.com/2020/10/10/us/politics/trump-white-house-coronavirus.html?se
 
 **Trump Must Ensure ‘He Is Not a Spreader,’ Biden Says**\
 `On the tarmac en route to a campaign event, Joseph R. Biden Jr. avoided a question about court packing, and criticized the president’s lack of virus precautions.`\
-https://nytimes.com/video/us/politics/100000007389113/biden-pennsylvania.html?searchResultPosition=2
+https://nytimes.com/video/embedded/us/politics/100000007389113/biden-pennsylvania.html?searchResultPosition=2
 
 **Princeton to Name Residential College After Black Alumna**\
 `It will be named after Mellody Hobson and built where a college once bore Woodrow Wilson’s name. Princeton in June said the former president was a racist who segregated the Civil Service.`\
