@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/09/todayspaper/quotation-of-the-day-son-of-the-city-
 https://nytimes.com/2020/10/09/us/politics/justice-department-diversity-training.html?searchResultPosition=2
 
 **Rays End Yankees’ Season With a Late Homer in Game 5**\
-`Mike Brosseau hit the winning homer for Tampa Bay in the eighth inning.`\
+`Mike Brosseau hit a solo home run off Aroldis Chapman in the eighth inning to send Tampa Bay past the Yankees and into the A.L.C.S.`\
 https://nytimes.com/2020/10/09/sports/baseball/yankees-rays-game-5.html?searchResultPosition=3
 
 **Trump Claims in Interview That He Is ‘Medication Free’**\
