@@ -1,40 +1,40 @@
+**Trump, Lagging in Polls, Tries to Project Strength: This Week in the 2020 Race**\
+`President Trump returned to the White House this week after his hospitalization for coronavirus. He is eager to get back on the campaign trail as his support is falling far behind Joe Biden in national polls.`\
+https://nytimes.com/2020/10/10/us/trump-biden-coronavirus.html?searchResultPosition=1
+
+**For Boris Johnson, and Maybe Trump, Covid as Metaphor Is Hard to Shake**\
+`The British prime minister’s personal battle with the disease has come to symbolize his government’s fumbling efforts to halt the pathogen.`\
+https://nytimes.com/2020/10/10/world/europe/boris-johnson-trump-covid.html?searchResultPosition=2
+
+**A Famed Horror Director Mines Japan’s Real-Life Atrocities**\
+`Kiyoshi Kurosawa’s latest movie, which recently won him the award for best director at the Venice Film Festival, is a thriller animated by the ghosts of Japan’s ghastly wartime experiments.`\
+https://nytimes.com/2020/10/10/world/asia/kiyoshi-kurosawa-wife-of-a-spy.html?searchResultPosition=3
+
+**Huge Absentee Vote in Key States Favors Democrats So Far**\
+`In Wisconsin, about 146,000 people voted by mail in the 2016 general election. This fall, about 647,000 people have already voted absentee, many in Democratic strongholds.`\
+https://nytimes.com/2020/10/10/us/politics/early-voting-swing-states.html?searchResultPosition=4
+
+**Can Trump Really Speed Approval of Covid Treatments?**\
+`Emergency-use authorizations, a formerly obscure corner of regulatory law, have become a centerpiece of the government’s response to the pandemic.`\
+https://nytimes.com/2020/10/10/health/covid-vaccine-treatment-fda-emergency.html?searchResultPosition=5
+
+**Facing Disaster After Disaster, the American Red Cross C.E.O. Stays Optimistic**\
+`“I really believe when we’re all set free from captivity, we are going to be so happy and kind to each other,” Gail McGovern says.`\
+https://nytimes.com/2020/10/10/business/gail-mcgovern-red-cross-corner-office.html?searchResultPosition=6
+
+**James Murdoch, Rebellious Scion**\
+`Increasingly uncomfortable with News Corp’s politics and profit motives, Rupert’s younger son chose chickens and sheep over Fox, and insists he doesn’t watch ‘Succession.’`\
+https://nytimes.com/2020/10/10/style/james-murdoch-maureen-dowd.html?searchResultPosition=7
+
+**How to Hold Onto Your Money, Wherever the Market Takes You**\
+`Crises abound, yet stocks have generated strong returns. Investors had better be ready for anything.`\
+https://nytimes.com/2020/10/10/business/investing-stocks-bonds-markets.html?searchResultPosition=8
+
 **Hong Kong Arrests Nine Over Protesters’ Escape by Speedboat**\
 `The arrests appeared intended to deter others from helping antigovernment protesters flee the Chinese territory, where Beijing’s grip is tightening.`\
-https://nytimes.com/2020/10/10/world/asia/hong-kong-arrests-protests.html?searchResultPosition=1
+https://nytimes.com/2020/10/10/world/asia/hong-kong-arrests-protests.html?searchResultPosition=9
 
 **Europe’s Economic Recovery Is a Summer Memory**\
 `As the coronavirus resumes spreading rapidly across the continent, hopes for an economic revival have given way to diminished expectations.`\
-https://nytimes.com/2020/10/10/business/European-economy-coronavirus.html?searchResultPosition=2
-
-**Airline Miles Programs Sure Are Profitable. Are You the Loser?**\
-`United and Delta have been boasting to lenders about fat margins in frequent-flier mile programs. Time for customers to pay a bit more attention.`\
-https://nytimes.com/2020/10/10/your-money/airline-miles-credit-cards.html?searchResultPosition=3
-
-**How Long Should Trump Be in Isolation?**\
-`Some White House staff members who were exposed to the virus have not followed public health guidance to quarantine or self-isolate.`\
-https://nytimes.com/interactive/2020/10/10/us/trump-covid-isolation.html?searchResultPosition=4
-
-**Will This Be the Last French Open With Only Human Eyes Minding the Lines?**\
-`Clay-court events have been the last holdouts against electronic line calling, in large part because of how well the surface absorbs marks wherever a ball lands.`\
-https://nytimes.com/2020/10/10/sports/tennis/french-open-judging.html?searchResultPosition=5
-
-**Federal Judge Blocks Texas Governor’s Move to Limit Ballot Drop-Off Sites**\
-`Gov. Greg Abbott had ordered that counties in the state be limited to one site each.`\
-https://nytimes.com/2020/10/10/us/politics/texas-ballot-judge.html?searchResultPosition=6
-
-**Corrections: Oct. 10, 2020**\
-`Corrections that appeared in print on Saturday, Oct. 10, 2020.`\
-https://nytimes.com/2020/10/10/pageoneplus/corrections-oct-10-2020.html?searchResultPosition=7
-
-**Teenagers in Turmoil**\
-`Whether undead, unloved or unjustly incarcerated, these star-crossed young-adult protagonists face their demons.`\
-https://nytimes.com/2020/10/10/books/review/young-adult-crossover-fiction.html?searchResultPosition=8
-
-**2020 French Open: Women’s Final Preview**\
-`Sofia Kenin and Iga Swiatek face off, each looking to secure their first French Open title.`\
-https://nytimes.com/2020/10/10/sports/tennis/french-open-womens-final-preview.html?searchResultPosition=9
-
-**Quotation of the Day: Son of the City, and Cornerstone of a Dynasty**\
-`Quotation of the Day for Saturday, October 10, 2020.`\
-https://nytimes.com/2020/10/09/todayspaper/quotation-of-the-day-son-of-the-city-and-cornerstone-of-a-dynasty.html?searchResultPosition=10
+https://nytimes.com/2020/10/10/business/European-economy-coronavirus.html?searchResultPosition=10
 
