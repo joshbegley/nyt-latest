@@ -27,7 +27,7 @@ https://nytimes.com/interactive/2020/10/10/opinion/undecided-election-voter-quiz
 https://nytimes.com/2020/10/10/world/europe/armenia-azerbaijan-nagorno-karabakh.html?searchResultPosition=7
 
 **Iga Swiatek Steamrolls Sofia Kenin to Win the French Open**\
-`Swiatek became the first player from Poland to win a Grand Slam title. She did it without losing a set at Roland Garros, and no more than five games in any match.`\
+`Swiatek became the first player from Poland to win a Grand Slam singles title. She did it without losing a set at Roland Garros, and no more than five games in any match.`\
 https://nytimes.com/2020/10/10/sports/tennis/french-open-final-iga-swiatek.html?searchResultPosition=8
 
 **Crispy Sour Cream and Onion Chicken Forever**\
