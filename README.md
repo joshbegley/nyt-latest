@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/10/us/hurricane-delta-damage.html?searchResultPositi
 `Television taught me how to move between social classes — but at what cost?`\
 https://nytimes.com/2020/10/10/opinion/television-culture.html?searchResultPosition=2
 
-**Trump Thinks His Supporters Are ‘Disgusting.’ Do They Care?**\
+**Trump Has Called His Supporters ‘Disgusting.’ Do They Care?**\
 `“The people Trump despises most love him the most,” Howard Stern has said. But that may be beginning to change.`\
 https://nytimes.com/2020/10/10/sunday-review/trump-supporters.html?searchResultPosition=3
 
