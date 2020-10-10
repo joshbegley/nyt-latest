@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/09/opinion/nyt-1619-project-criticisms.html?searchRe
 https://nytimes.com/2020/10/09/us/politics/trump-clinton-emails-state-department.html?searchResultPosition=3
 
 **Hurricane Delta Brings High Winds and Rain to Louisiana’s Coast**\
-`Storm surge rose more than seven feet on Friday in some areas of Louisiana, where Hurricane Delta made landfall in the evening as a Category 2. The storm hit 20 miles east of Hurricane Laura’s landfall six weeks earlier.`\
+`Storm surge rose more than seven feet on Friday in some areas of Louisiana, where Hurricane Delta made landfall as a Category 2 storm. It struck 20 miles east of Hurricane Laura’s landfall six weeks earlier.`\
 https://nytimes.com/video/us/100000007388530/hurricane-delta-louisiana.html?searchResultPosition=4
 
 **A.O.C.’s Mistake in Pulling Out of a Rabin Memorial**\
