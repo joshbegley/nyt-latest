@@ -1,4 +1,4 @@
-**Trump Holds Rally at White House a Week After Coronavirus Diagnosis**\
+**Trump Holds Event at White House a Week After Coronavirus Diagnosis**\
 `President Trump said he was “feeling great” as he spoke from a balcony to several hundred supporters on the South Lawn of the White House in his first public event since testing positive for the virus.`\
 https://nytimes.com/video/us/elections/100000007388931/trump-white-house-event-coronavirus.html?searchResultPosition=1
 
