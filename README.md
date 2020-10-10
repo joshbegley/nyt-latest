@@ -26,13 +26,13 @@ https://nytimes.com/video/us/100000007388995/hurricane-delta-louisiana-damage.ht
 `This administration has attacked every aspect of the immigration system — and it won’t be easy to undo.`\
 https://nytimes.com/2020/10/10/opinion/sunday/trump-immigration-child-separations.html?searchResultPosition=7
 
-**Who’s the Tax Cheat: The Lady in Jail or the Man in the White House?**\
-`Donald Trump knows that taxes are for the poor.`\
-https://nytimes.com/2020/10/10/opinion/sunday/trump-taxes.html?searchResultPosition=8
-
 **There Will Be No Trump Coup**\
 `A final pre-election case for understanding the president as a noisy weakling, not a budding autocrat.`\
-https://nytimes.com/2020/10/10/opinion/sunday/trump-election-authoritarianism.html?searchResultPosition=9
+https://nytimes.com/2020/10/10/opinion/sunday/trump-election-authoritarianism.html?searchResultPosition=8
+
+**Who’s the Tax Cheat: The Lady in Jail or the Man in the White House?**\
+`Donald Trump knows that taxes are for the poor.`\
+https://nytimes.com/2020/10/10/opinion/sunday/trump-taxes.html?searchResultPosition=9
 
 **A Convicted Kidnapper Is Chosen to Lead Government of Kyrgyzstan**\
 `Lawmakers in Central Asia's only democracy selected a man sprung from jail by protesters just days ago in an effort to end days of violent political unrest`\
