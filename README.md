@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/10/us/politics/pearl-jam-votes.html?searchResultPosi
 `Quinton Byfield became the highest-drafted Black player in league history just one day before the Hockey Diversity Alliance said it would work independently of the N.H.L.`\
 https://nytimes.com/2020/10/10/sports/hockey/with-push-on-diversity-nhl-makes-landmark-selection-of-black-player.html?searchResultPosition=3
 
-**2020 Presidential Debate Calendar: What to Know**\
+**2020 Election Presidential Debate Calendar: Key Dates**\
 `Here’s the who, what, when and where for the three matchups between President Trump and Joe Biden and the single vice-presidential debate.`\
 https://nytimes.com/2020/10/10/us/politics/presidential-debate-calendar.html?searchResultPosition=4
 
