@@ -1,40 +1,40 @@
+**πr²**\
+`Gary Larson’s Sunday puzzle makes us circle back and get square.`\
+https://nytimes.com/2020/10/10/crosswords/daily-puzzle-2020-10-11.html?searchResultPosition=1
+
 **Taking Page From Authoritarians, Trump Turns Power of State Against Political Rivals**\
 `President Trump took a step even Richard M. Nixon avoided in his most desperate days: openly ordering direct immediate government action against specific opponents, timed to serve his re-election campaign.`\
-https://nytimes.com/2020/10/10/us/politics/trump-barr-pompeo.html?searchResultPosition=1
+https://nytimes.com/2020/10/10/us/politics/trump-barr-pompeo.html?searchResultPosition=2
 
 **Trump Must Ensure ‘He Is Not a Spreader,’ Biden Says**\
 `On the tarmac en route to a campaign event, Joseph R. Biden Jr. avoided a question about court packing, and criticized the president’s lack of virus precautions.`\
-https://nytimes.com/video/us/elections/100000007389168/biden-airport.html?searchResultPosition=2
+https://nytimes.com/video/us/elections/100000007389168/biden-airport.html?searchResultPosition=3
 
 **Senate Republicans Denounce White House’s Offer for Coronavirus Relief**\
 `Even as Democrats held out for more concessions over funding and provisions, it was the deep divisions among Republicans that were standing in the way.`\
-https://nytimes.com/2020/10/10/us/politics/senate-republicans-white-house-coronavirus-relief.html?searchResultPosition=3
+https://nytimes.com/2020/10/10/us/politics/senate-republicans-white-house-coronavirus-relief.html?searchResultPosition=4
 
 **Trump Makes First Public Appearance Since Leaving Walter Reed**\
 `The president continued to play down the threat of the virus, but the event that the White House had previewed as a huge “peaceful protest for law and order” was uncharacteristically brief.`\
-https://nytimes.com/2020/10/10/us/politics/trump-white-house-coronavirus.html?searchResultPosition=4
+https://nytimes.com/2020/10/10/us/politics/trump-white-house-coronavirus.html?searchResultPosition=5
 
 **Trump Must Ensure ‘He Is Not a Spreader,’ Biden Says**\
 `On the tarmac en route to a campaign event, Joseph R. Biden Jr. avoided a question about court packing, and criticized the president’s lack of virus precautions.`\
-https://nytimes.com/video/embedded/us/politics/100000007389113/biden-pennsylvania.html?searchResultPosition=5
+https://nytimes.com/video/embedded/us/politics/100000007389113/biden-pennsylvania.html?searchResultPosition=6
 
 **Princeton to Name Residential College After Black Alumna**\
 `It will be named after Mellody Hobson and built where a college once bore Woodrow Wilson’s name. Princeton in June said the former president was a racist who segregated the Civil Service.`\
-https://nytimes.com/2020/10/10/us/mellody-hobson-woodrow-wilson-princeton.html?searchResultPosition=6
+https://nytimes.com/2020/10/10/us/mellody-hobson-woodrow-wilson-princeton.html?searchResultPosition=7
 
 **Nevada Revokes Halt on Rapid Antigen Testing in Nursing Homes**\
 `The reversal came just hours after the federal government threatened the state, calling the prohibition on the tests “illegal.”`\
-https://nytimes.com/2020/10/10/health/covid-nevada-testing-nursing-homes.html?searchResultPosition=7
+https://nytimes.com/2020/10/10/health/covid-nevada-testing-nursing-homes.html?searchResultPosition=8
 
 **Extra Pounds May Raise Risk of Severe Covid-19**\
 `Even people who aren’t obese may be more likely to become seriously ill when infected with the coronavirus, the C.D.C. said.`\
-https://nytimes.com/2020/10/10/health/coronavirus-obesity-weight.html?searchResultPosition=8
+https://nytimes.com/2020/10/10/health/coronavirus-obesity-weight.html?searchResultPosition=9
 
 **Trump Holds Event at White House a Week After Coronavirus Diagnosis**\
 `President Trump said he was “feeling great” as he spoke from a balcony to several hundred supporters on the South Lawn of the White House in his first public event since testing positive for the virus.`\
-https://nytimes.com/video/us/elections/100000007388931/trump-white-house-event-coronavirus.html?searchResultPosition=9
-
-**The Week in Business: A Conspiracy Crackdown**\
-`Big tech is trying to stop the spread of misinformation. But is it too little, too late?`\
-https://nytimes.com/2020/10/10/business/the-week-in-business-a-conspiracy-crackdown.html?searchResultPosition=10
+https://nytimes.com/video/us/elections/100000007388931/trump-white-house-event-coronavirus.html?searchResultPosition=10
 
