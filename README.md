@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/10/sports/tennis/french-open-final-iga-swiatek.html?
 https://nytimes.com/2020/10/10/admin/crispy-sour-cream-and-onion-chicken-forever.html?searchResultPosition=2
 
 **North Korea Unveils New ICBM During Military Parade**\
-`The weapon is bigger than the North’s previous long-range missile, indicating that it could possibly fly father with a more powerful nuclear warhead.`\
+`The weapon appeared to be bigger than the North’s previous long-range missile, indicating that it might be able to fly farther with a more powerful nuclear warhead.`\
 https://nytimes.com/2020/10/10/world/asia/north-korea-icbm.html?searchResultPosition=3
 
 **7 Key Findings About Trump’s Reinvented Swamp**\
