@@ -18,7 +18,7 @@ https://nytimes.com/2020/10/10/opinion/sunday/trump-election-authoritarianism.ht
 `Lawmakers in Central Asia's only democracy selected a man sprung from jail by protesters just days ago in an effort to end days of violent political unrest`\
 https://nytimes.com/2020/10/10/world/asia/kidnapper-kyrgyzstan-prime-minister.html?searchResultPosition=5
 
-**Warning: Don’t Touch This Hairy- Looking Caterpillar**\
+**Warning: Don’t Touch This Hairy-Looking Caterpillar**\
 `Contact with a puss caterpillar can cause a painful reaction as well as a rash, fever, muscle cramps or swollen glands, experts caution.`\
 https://nytimes.com/2020/10/10/us/puss-caterpillar-virginia-warning.html?searchResultPosition=6
 
