@@ -1,40 +1,40 @@
+**Trump Makes First Public Appearance Since Leaving Walter Reed**\
+`The president continued to play down the threat of the virus, but the event that the White House had previewed as a huge “peaceful protest for law and order” was uncharacteristically brief.`\
+https://nytimes.com/2020/10/10/us/politics/trump-white-house-coronavirus.html?searchResultPosition=1
+
 **Trump Must Ensure ‘He Is Not a Spreader,’ Biden Says**\
 `On the tarmac en route to a campaign event, Joseph R. Biden Jr. avoided a question about court packing, and criticized the president’s lack of virus precautions.`\
-https://nytimes.com/video/us/politics/100000007389113/biden-pennsylvania.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000007389113/biden-pennsylvania.html?searchResultPosition=2
 
 **Princeton to Name Residential College After Black Alumna**\
 `It will be named after Mellody Hobson and built where a college once bore Woodrow Wilson’s name. Princeton in June said the former president was a racist who segregated the Civil Service.`\
-https://nytimes.com/2020/10/10/us/mellody-hobson-woodrow-wilson-princeton.html?searchResultPosition=2
+https://nytimes.com/2020/10/10/us/mellody-hobson-woodrow-wilson-princeton.html?searchResultPosition=3
 
 **Nevada Revokes Halt on Rapid Antigen Testing in Nursing Homes**\
 `The reversal came just hours after the federal government threatened the state, calling the prohibition on the tests “illegal.”`\
-https://nytimes.com/2020/10/10/health/covid-nevada-testing-nursing-homes.html?searchResultPosition=3
+https://nytimes.com/2020/10/10/health/covid-nevada-testing-nursing-homes.html?searchResultPosition=4
 
 **Extra Pounds May Raise Risk of Severe Covid-19**\
 `Even people who aren’t obese may be more likely to become seriously ill when infected with the coronavirus, the C.D.C. said.`\
-https://nytimes.com/2020/10/10/health/coronavirus-obesity-weight.html?searchResultPosition=4
+https://nytimes.com/2020/10/10/health/coronavirus-obesity-weight.html?searchResultPosition=5
 
 **Trump Holds Event at White House a Week After Coronavirus Diagnosis**\
 `President Trump said he was “feeling great” as he spoke from a balcony to several hundred supporters on the South Lawn of the White House in his first public event since testing positive for the virus.`\
-https://nytimes.com/video/us/elections/100000007388931/trump-white-house-event-coronavirus.html?searchResultPosition=5
+https://nytimes.com/video/us/elections/100000007388931/trump-white-house-event-coronavirus.html?searchResultPosition=6
 
 **The Week in Business: A Conspiracy Crackdown**\
 `Big tech is trying to stop the spread of misinformation. But is it too little, too late?`\
-https://nytimes.com/2020/10/10/business/the-week-in-business-a-conspiracy-crackdown.html?searchResultPosition=6
+https://nytimes.com/2020/10/10/business/the-week-in-business-a-conspiracy-crackdown.html?searchResultPosition=7
 
 **‘We’re Getting Back Up’: Louisiana Residents Face Delta Damage**\
 `Hurricane Delta left another layer of damage in coastal Louisiana, where the storm made landfall only six weeks after Hurricane Laura devastated the state.`\
-https://nytimes.com/video/us/100000007388995/hurricane-delta-louisiana-damage.html?searchResultPosition=7
+https://nytimes.com/video/us/100000007388995/hurricane-delta-louisiana-damage.html?searchResultPosition=8
 
 **Trump’s Overhaul of Immigration Is Worse Than You Think**\
 `This administration has attacked every aspect of the immigration system — and it won’t be easy to undo.`\
-https://nytimes.com/2020/10/10/opinion/sunday/trump-immigration-child-separations.html?searchResultPosition=8
+https://nytimes.com/2020/10/10/opinion/sunday/trump-immigration-child-separations.html?searchResultPosition=9
 
 **There Will Be No Trump Coup**\
 `A final pre-election case for understanding the president as a noisy weakling, not a budding autocrat.`\
-https://nytimes.com/2020/10/10/opinion/sunday/trump-election-authoritarianism.html?searchResultPosition=9
-
-**Who’s the Tax Cheat: The Lady in Jail or the Man in the White House?**\
-`Donald Trump knows that taxes are for the poor.`\
-https://nytimes.com/2020/10/10/opinion/sunday/trump-taxes.html?searchResultPosition=10
+https://nytimes.com/2020/10/10/opinion/sunday/trump-election-authoritarianism.html?searchResultPosition=10
 
