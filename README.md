@@ -24,7 +24,7 @@ https://nytimes.com/2020/10/11/sports/football/nfl-scores-high-points.html?searc
 
 **What ‘The Babylon Bee’ Thinks Is So Funny About Liberals**\
 `The comedy site, a conservative answer to ‘The Onion,’ used to have Trump squarely in its cross hairs. But now it’s less about him and more about the people who can’t stand him.`\
-https://nytimes.com/2020/10/11/babylon-bee-conservative-satire.html?searchResultPosition=7
+https://nytimes.com/2020/10/11/us/politics/babylon-bee-conservative-satire.html?searchResultPosition=7
 
 **Latino, Evangelical and Politically Homeless**\
 `Hispanic evangelicals identify as religious first and foremost. That’s why, despite his harsh rhetoric on immigration, many back President Trump.`\
