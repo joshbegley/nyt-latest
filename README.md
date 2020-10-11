@@ -2,7 +2,7 @@
 `The picturesque Gard desperately needs more employment. But environmentalists are pushing back at what they see as a looming blight.`\
 https://nytimes.com/2020/10/11/business/amazon-warehouse-france.html?searchResultPosition=1
 
-**How Could Vote-By-Mail Impact the Election? Look at Michigan**\
+**How Could Vote-by-Mail Impact the Election? Look at Michigan**\
 `Vote-by-mail has become one of the most contentious issues of the 2020 election. But while battles rage on social media and in the courts, a group of bipartisan Michigan election officials worry they won’t have the time or resources to ensure results on election night.`\
 https://nytimes.com/2020/10/11/us/elections/vote-by-mail-election.html?searchResultPosition=2
 
