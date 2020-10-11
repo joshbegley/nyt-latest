@@ -26,9 +26,9 @@ https://nytimes.com/2020/10/11/arts/music/tool-concert-refunds.html?searchResult
 `We asked readers if and how you would alter the way justices are chosen and how the court works, and received more than 1,500 responses. Some of your suggestions would require constitutional amendments.`\
 https://nytimes.com/2020/10/11/opinion/letters/supreme-court-reform.html?searchResultPosition=7
 
-**Lewis Hamilton Ties Schumacher’s Wins Record in Germany**\
-`Hamilton won his 91st Formula One race at the Eifel Grand Prix, with Schumacher’s record for titles in sight.`\
-https://nytimes.com/2020/10/11/sports/autoracing/lewis-hamilton-micahel-schumacher-formula-1.html?searchResultPosition=8
+**Lewis Hamilton Ties Michael Schumacher’s Wins Record in Germany**\
+`Hamilton won his 91st Formula 1 race at the Eifel Grand Prix, with Schumacher’s record for titles in sight.`\
+https://nytimes.com/2020/10/11/sports/autoracing/f1-lewis-hamilton-michael-schumacher.html?searchResultPosition=8
 
 **‘I Feel Like I Have Dementia’: Brain Fog Plagues Covid Survivors**\
 `The condition is affecting thousands of patients, impeding their ability to work and function in daily life.`\
