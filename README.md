@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/10/at-home/spooky-podcasts.html?searchResultPosition
 `Taking the time to sketch your belongings can help capture moments and memories.`\
 https://nytimes.com/2020/10/10/at-home/draw-objects-in-your-life.html?searchResultPosition=9
 
-**Offering few details, the White House doctor says Trump is no longer contagious.**\
-`By Maggie Haberman, Katherine J. Wu and Apoorva Mandavilli`\
-https://nytimes.com/2020/10/10/world/offering-few-details-the-white-house-doctor-says-trump-is-no-longer-contagious.html?searchResultPosition=10
+**Guantánamo Bay Navy Base Raises Health Alert and Closes Facilities**\
+`Residents received little information about the source of the health scare that halted activities at the outpost in Cuba.`\
+https://nytimes.com/2020/10/10/us/politics/guantanamo-bay-health-alert.html?searchResultPosition=10
 
