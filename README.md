@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/11/arts/television/review-mystery-road.html?searchRe
 https://nytimes.com/2020/10/11/us/politics/jaime-harrison-lindsey-graham-south-carolina.html?searchResultPosition=3
 
 **Trump’s Campaign Talk of Troop Withdrawals Doesn’t Match Military Reality**\
-`President Trump has brought home few American combat troops overall even as his pressure campaign against Iran risks a new Middle East conflict.`\
+`President Trump has brought home few American combat troops over all even as his pressure campaign against Iran risks a new Middle East conflict.`\
 https://nytimes.com/2020/10/11/us/politics/trump-troop-withdrawals-war.html?searchResultPosition=4
 
 **Four Tricky Issues for the Biden-Harris Ticket**\
