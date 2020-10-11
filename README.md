@@ -14,7 +14,7 @@ https://nytimes.com/2020/10/11/us/kamala-harris-amy-coney-barrett-supreme-court.
 `Remote work during the coronavirus pandemic has given executives with children a taste of a different way to live.`\
 https://nytimes.com/2020/10/11/business/family-dinner-returns.html?searchResultPosition=4
 
-**French Open: Live Updates from Nadal vs. Djokovic Final**\
+**Live French Open Final Updates: Nadal vs. Djokovic**\
 `Rafael Nadal is chasing a 20th Grand Slam men’s singles championship to tie Roger Federer’s record. Novak Djokovic is just behind them and has had a nearly flawless season.`\
 https://nytimes.com/2020/10/11/sports/tennis/nadal-djokovic-live.html?searchResultPosition=5
 
