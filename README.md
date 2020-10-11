@@ -15,7 +15,7 @@ https://nytimes.com/2020/10/10/sports/tennis/french-open-mens-final-nadal-djokov
 https://nytimes.com/2020/10/10/crosswords/daily-puzzle-2020-10-11.html?searchResultPosition=4
 
 **Taking Page From Authoritarians, Trump Turns Power of State Against Political Rivals**\
-`President Trump took a step even Richard M. Nixon avoided in his most desperate days: openly ordering direct immediate government action against specific opponents, timed to serve his re-election campaign.`\
+`President Trump took a step even Richard M. Nixon avoided in his most desperate days: openly ordering direct, immediate government action against specific opponents, timed to serve his re-election campaign.`\
 https://nytimes.com/2020/10/10/us/politics/trump-barr-pompeo.html?searchResultPosition=5
 
 **Trump Must Ensure ‘He Is Not a Spreader,’ Biden Says**\
