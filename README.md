@@ -15,7 +15,7 @@ https://nytimes.com/2020/10/10/world/offering-few-details-the-white-house-doctor
 https://nytimes.com/2020/10/10/us/politics/guantanamo-bay-health-alert.html?searchResultPosition=4
 
 **Fatal Shooting in Denver Amid Dueling Protests, Police Say**\
-`The police said it was not immediately clear whether the shooting was connected to opposing rallies by far-right and far-left activists.`\
+`The shooting happened as opposing rallies by far-right and far-left activists were ending. A television news station reported that a private security guard it had hired was being detained by the police.`\
 https://nytimes.com/2020/10/10/us/Denver-shooting-protest.html?searchResultPosition=5
 
 **It’s Djokovic-Nadal Yet Again. But This French Open Duel Is Not Like the Others.**\
