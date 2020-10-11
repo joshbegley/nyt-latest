@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/10/us/politics/guantanamo-bay-health-alert.html?searchResultPosition=1
 
 **Fatal Shooting in Denver Amid Dueling Protests, Police Say**\
-`It was not immediately clear if the shooting was connected to the opposing rallies by far-right and far-left activists.`\
+`The police said it was not immediately clear whether the shooting was connected to opposing rallies by far-right and far-left activists.`\
 https://nytimes.com/2020/10/10/us/Denver-shooting-protest.html?searchResultPosition=2
 
 **It’s Djokovic-Nadal Yet Again. But This French Open Duel Is Not Like the Others.**\
