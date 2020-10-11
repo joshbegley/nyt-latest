@@ -1,4 +1,4 @@
-**Quotation of the Day: Battered by Trump, the C.D.C.’s Director Faces Pressure to Speak Out**\
+**Quotation of the Day: C.D.C.’s Director Is Challenged to ‘Stand Up to a Bully’**\
 `Quotation of the Day for Sunday, October 11, 2020.`\
 https://nytimes.com/2020/10/11/todayspaper/quotation-of-the-day-battered-by-trump-the-cdcs-director-faces-pressure-to-speak-out.html?searchResultPosition=1
 
