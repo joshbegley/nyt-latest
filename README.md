@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/11/sports/football/nfl-scores-live.html?searchResult
 `The league has not said when the teams will make up the game in an already crowded calendar`\
 https://nytimes.com/2020/10/11/sports/football/patriots-broncos-delayed-coronavirus.html?searchResultPosition=2
 
-**Premier League Reform Plan Would Reshape English Soccer**\
+**Premier League Reform Plan Seeks to Reshape English Soccer**\
 `A proposal engineered by Liverpool and Manchester United would yield an 18-team Premier League and hundreds of millions of dollars in payments to lower leagues. But key players are not on board.`\
 https://nytimes.com/2020/10/11/sports/soccer/premier-league-reform-plan.html?searchResultPosition=3
 
