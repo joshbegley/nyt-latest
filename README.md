@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/12/technology/on-facebook-misinformation-is-more-pop
 https://nytimes.com/2020/10/12/podcasts/the-daily/abortion-rights-amy-coney-barrett.html?searchResultPosition=3
 
 **2020 Nobel in Economics Is Awarded to Paul Milgrom and Robert Wilson**\
-`The two U.S. economists were honored for their work in auction theory.`\
+`The two U.S. academics were honored for their work in auction theory.`\
 https://nytimes.com/2020/10/12/business/nobel-economics-paul-milgrom-robert-wilson.html?searchResultPosition=4
 
 **Arctic Science Mission Wraps Up as Research Ship Docks in Germany**\
