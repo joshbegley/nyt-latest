@@ -1,10 +1,10 @@
-**On Facebook, Misinformation Is More Popular Now Than in 2016**\
-`People are engaging more on Facebook with content from outlets that publish falsehoods and distortions, even though the social network has tried limiting misinformation, new research found.`\
-https://nytimes.com/2020/10/12/technology/on-facebook-misinformation-is-more-popular-now-than-in-2016.html?searchResultPosition=1
-
 **Florida Sees Signals of a Climate-Driven Housing Crisis**\
 `Home sales in areas most vulnerable to sea-level rise began falling around 2013, researchers found. Now, prices are following a similar downward path.`\
-https://nytimes.com/2020/10/12/climate/home-sales-florida.html?searchResultPosition=2
+https://nytimes.com/2020/10/12/climate/home-sales-florida.html?searchResultPosition=1
+
+**On Facebook, Misinformation Is More Popular Now Than in 2016**\
+`People are engaging more on Facebook with content from outlets that publish falsehoods and distortions, even though the social network has tried limiting misinformation, new research found.`\
+https://nytimes.com/2020/10/12/technology/on-facebook-misinformation-is-more-popular-now-than-in-2016.html?searchResultPosition=2
 
 **Why the Left Is Losing on Abortion**\
 `The volatile issue is front and center in Judge Amy Coney Barrett’s nomination to the Supreme Court. An abortion rights leader tells us how we got to this point.`\
