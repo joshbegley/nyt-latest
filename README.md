@@ -1,5 +1,5 @@
 **Subways Are Less Busy and Less Safe**\
-`Violent crime has risen during the pandemic, as criminals may be emboldened  if they’re targeting the only person on a train car or platform.`\
+`Violent crime has risen in the pandemic, as criminals may be emboldened  if they’re targeting the only person on a  car or platform.`\
 https://nytimes.com/2020/10/12/nyregion/nyc-coronavirus-subway-crime.html?searchResultPosition=1
 
 **Will Luxury Smartwatches Succeed?**\
