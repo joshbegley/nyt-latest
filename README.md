@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/12/well/live/irregular-menstrual-cycles-tied-to-shorter-lifespans.html?searchResultPosition=1
 
 **How Russell Wilson’s Latest Clutch Drive Beat the Vikings**\
-`The presumptive league M.V.P. led the Seahawks on another game-winning drive — the 30th of his career — Sunday night. “He’s as good as you can get,” Seattle Coach Pete Carroll said.`\
+`A potential league M.V.P., Wilson led the Seahawks on another game-winning drive — the 30th of his career — Sunday night. “He’s as good as you can get,” Seattle Coach Pete Carroll said.`\
 https://nytimes.com/2020/10/12/sports/football/russell-wilsons-seahawks-vikings.html?searchResultPosition=2
 
 **Facebook Bans Content About Holocaust Denial From Its Site**\
