@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/12/crosswords/heck-crosswords-puzzles-bcc.html?searc
 https://nytimes.com/2020/10/12/health/coronavirus-pandemic-vaccine-optimism.html?searchResultPosition=2
 
 **First, a Vaccine Approval. Then ‘Chaos and Confusion.’**\
-`Come spring, Americans may have their choice of several so-so vaccines — with no way of knowing which one is best.`\
+`Come spring, Americans may have their choice of several so-so coronavirus vaccines — with no way of knowing which one is best.`\
 https://nytimes.com/2020/10/12/health/covid-vaccines.html?searchResultPosition=3
 
 **Spirit Halloween Rises from the Dead. Again. And Again.**\
