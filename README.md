@@ -1,40 +1,40 @@
+**A Knife for All That Sourdough**\
+`The chef Nancy Silverton has designed a sleek limited-edition bread knife for Made In.`\
+https://nytimes.com/2020/10/12/dining/made-in-bread-knife-nancy-silverton.html?searchResultPosition=1
+
 **A Wine Dispenser for Your Counter**\
 `The Boxxle, which holds four bottles of wine or the wine bladder from a box wine, conveniently dispenses wine whenever you need it.`\
-https://nytimes.com/2020/10/12/dining/drinks/boxxle-wine-dispenser.html?searchResultPosition=1
+https://nytimes.com/2020/10/12/dining/drinks/boxxle-wine-dispenser.html?searchResultPosition=2
 
 **Is Everybody Doing … OK? Let’s Ask Social Media**\
 `Researchers are looking at online behavior to gauge public mental health. The results aren’t pretty.`\
-https://nytimes.com/2020/10/12/style/self-care/social-media-.html?searchResultPosition=2
+https://nytimes.com/2020/10/12/style/self-care/social-media-.html?searchResultPosition=3
 
 **H.B.C.U. Homecomings Are Canceled, but Students and Alumni Will Feast Anyway**\
 `Brunch, a major part of homecoming at historically Black colleges and universities, is still on for this year, even if it has to be virtual.`\
-https://nytimes.com/2020/10/12/dining/hbcu-homecoming-brunch-recipes.html?searchResultPosition=3
+https://nytimes.com/2020/10/12/dining/hbcu-homecoming-brunch-recipes.html?searchResultPosition=4
 
 **The Wristwatch at 100**\
 `Experts identify the milestones in a century of portable timekeeping.`\
-https://nytimes.com/2020/10/12/fashion/wristwatch-at-100.html?searchResultPosition=4
+https://nytimes.com/2020/10/12/fashion/wristwatch-at-100.html?searchResultPosition=5
 
 **4 Moments That Changed the Watch World**\
 `From sports tie-ins to online coverage, the Swiss industry has benefited from its marketing skill.`\
-https://nytimes.com/2020/10/12/fashion/watches-marketing-rolex.html?searchResultPosition=5
+https://nytimes.com/2020/10/12/fashion/watches-marketing-rolex.html?searchResultPosition=6
 
 **A Quest to Give Russia a Luxury Brand**\
 `The goal of Raketa’s managing director? To have his line of watches resonate globally, like Prada and Gucci.`\
-https://nytimes.com/2020/10/12/fashion/watches-raketa-st-petersburg-russia.html?searchResultPosition=6
+https://nytimes.com/2020/10/12/fashion/watches-raketa-st-petersburg-russia.html?searchResultPosition=7
 
 **Roberta McCain, Mother of the Senator and His Beacon, Dies at 108**\
 `John McCain credited to her his will to survive as a prisoner of war. She later campaigned for him in his 2008 bid for the presidency.`\
-https://nytimes.com/2020/10/12/us/roberta-mccain-dead.html?searchResultPosition=7
+https://nytimes.com/2020/10/12/us/roberta-mccain-dead.html?searchResultPosition=8
 
 **Black-Owned Watch Brands Rising**\
 `Owners say the #BuyBlack movement and digital strengths have spurred sales.`\
-https://nytimes.com/2020/10/12/fashion/watches-black-owned-business.html?searchResultPosition=8
+https://nytimes.com/2020/10/12/fashion/watches-black-owned-business.html?searchResultPosition=9
 
 **The Tale of the Rosie Watch**\
 `A great-grandmother’s birthday gift has become a family heirloom.`\
-https://nytimes.com/2020/10/12/fashion/watches-vintage-family-heirloom.html?searchResultPosition=9
-
-**The Watchmaking Wizard Who Doesn’t Like Watches**\
-`“I love the mechanics,” Eric Coudray said, “but the watch itself as an object, it doesn’t really touch me.”`\
-https://nytimes.com/2020/10/12/fashion/watches-tourbillon-eric-coudray.html?searchResultPosition=10
+https://nytimes.com/2020/10/12/fashion/watches-vintage-family-heirloom.html?searchResultPosition=10
 
