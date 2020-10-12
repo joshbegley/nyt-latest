@@ -1,40 +1,40 @@
-**British Airways Abruptly Replaces Its Chief Executive**\
-`Another job is lost as the airline industry suffers its “worst crisis.”`\
-https://nytimes.com/2020/10/12/business/british-airways-ceo.html?searchResultPosition=1
+**Museum-Worthy Watches, From Pearls to Plastic**\
+`Design often catches a museum curator’s eye.`\
+https://nytimes.com/2020/10/12/fashion/watches-design-museums.html?searchResultPosition=1
 
-**The Digital Divide Starts With a Laptop Shortage**\
-`A surge in worldwide demand by educators for low-cost laptops has created shipment delays and pitted desperate schools against one another. Districts with deep pockets often win out.`\
-https://nytimes.com/2020/10/12/technology/laptops-schools-digital-divide.html?searchResultPosition=2
+**A Glance at Daily Life Among the Caretakers of Britain’s Small Islands**\
+`Stationed off the coast of Britain, island wardens manage the preservation of their small speck of land — while coping with extreme weather and limited access to the mainland.`\
+https://nytimes.com/2020/10/12/travel/britain-island-wardens.html?searchResultPosition=2
 
-**‘Everything Is Closed Down.’ The Lack of Youth Sports Is a Crisis.**\
-`Despite a glut of sports on TV, the lack of youth leagues and teams in the pandemic could cost us for years to come.`\
-https://nytimes.com/2020/10/12/sports/covid-youth-sports-canceled.html?searchResultPosition=3
+**As N.Y.C. Jails Become More Violent, Solitary Confinement Persists**\
+`Even as Mayor Bill de Blasio has emptied out the city’s jails, the number of people who are placed in punitive segregation each year has remained about the same.`\
+https://nytimes.com/2020/10/12/nyregion/rikers-solitary-confinement.html?searchResultPosition=3
 
-**In Emptier Subways, Violent Crime Is Rising**\
-`Reports of homicides, rapes and burglaries are posing another challenge to regaining the confidence of passengers during the pandemic.`\
-https://nytimes.com/2020/10/12/nyregion/nyc-crime-subway.html?searchResultPosition=4
+**In Former Taliban Stronghold, Defiant Women Hit the Gym**\
+`A women’s health club in Kandahar challenges conservative Afghan traditions that vilify exercise for women. Many do it secretly.`\
+https://nytimes.com/2020/10/12/world/asia/afghanistan-women-gym-kandahar.html?searchResultPosition=4
 
-**What’s on TV This Week: ‘Lovecraft Country’ and the Billboard Music Awards**\
-`HBO’s series wraps up its first season; Doja Cat, Bad Bunny and others perform live; and the filmed version of David Byrne’s “American Utopia” debuts.`\
-https://nytimes.com/2020/10/12/arts/television/whats-on-tv-this-week.html?searchResultPosition=5
+**Tommy Tuberville’s Financial Fumbles**\
+`Mr. Tuberville, the former football coach and Alabama Senate candidate, is leading Senator Doug Jones in the polls. But his financial record raises questions.`\
+https://nytimes.com/2020/10/12/us/elections/senate-alabama-tuberville-jones.html?searchResultPosition=5
 
-**Judge Amy Coney Barrett’s Hearings Begin Today. Here’s What to Watch.**\
-`Democrats will look to portray Judge Barrett as an ideologue who would throw out the Affordable Care and Roe v. Wade, while Republicans above all else will seek to keep the hearings moving speedily.`\
-https://nytimes.com/2020/10/12/us/politics/supreme-court-hearing-time-amy-barrett.html?searchResultPosition=6
+**No Home, No Wi-Fi: Pandemic Adds to Strain on Poor College Students**\
+`Some low-income students have dropped out, and there are growing concerns about hunger and homelessness.`\
+https://nytimes.com/2020/10/12/us/covid-poor-college-students.html?searchResultPosition=6
 
-**Corrections: Oct. 12, 2020**\
-`No corrections appeared in print on Monday, Oct. 12, 2020.`\
-https://nytimes.com/2020/10/12/pageoneplus/corrections-oct-12-2020.html?searchResultPosition=7
+**The Billionaire Who Stood by Jeffrey Epstein**\
+`Leon Black, whose $9 billion fortune could buy the best counsel in the world, paid at least $50 million to Mr. Epstein for advice and services after most others had deserted him.`\
+https://nytimes.com/2020/10/12/business/leon-black-jeffrey-epstein.html?searchResultPosition=7
 
-**Quotation of the Day: C.E.O.s Rediscover Family Mealtime, a Ritual That’s Become a ‘Priority Again’**\
-`Quotation of the Day for Monday, October 12, 2020.`\
-https://nytimes.com/2020/10/12/todayspaper/quotation-of-the-day-ceos-rediscover-family-mealtime-a-ritual-thats-become-a-priority-again.html?searchResultPosition=8
+**Who Is That Masked Man?**\
+`The president is not the only one adjusting to a new political reality.`\
+https://nytimes.com/2020/10/12/opinion/trump-biden-barrett-mcconnell.html?searchResultPosition=8
 
-**Barrett’s Record: A Conservative Who Would Push the Supreme Court to the Right**\
-`As an appeals court judge, Judge Barrett has issued opinions that have reflected those of her mentor, Justice Antonin Scalia, but with few of his occasional liberal rulings.`\
-https://nytimes.com/article/amy-barrett-views-issues.html?searchResultPosition=9
+**The Crowded, Competitive World of Anti-Trump G.O.P. Groups**\
+`The Lincoln Project. Republican Voters Against Trump. 43 Alumni for Joe Biden. These groups and others have similar missions, but engage in little coordination or sharing of resources.`\
+https://nytimes.com/2020/10/12/us/politics/never-trump-republicans.html?searchResultPosition=9
 
-**‘Fargo’ Season 4, Episode 4 Recap: Something Rotten**\
-`Sometimes when a bag of money smells a little suspect, that’s because it is.`\
-https://nytimes.com/2020/10/11/arts/television/fargo-episode-4-recap.html?searchResultPosition=10
+**Long After the Bomb, Its Story Finds a New Audience**\
+`“Hiroshima,” one of the first accounts of the devastation in Japan, was read nearly everywhere in the world except Russia. Nearly 75 years later, that is changing.`\
+https://nytimes.com/2020/10/12/books/hiroshima-john-hersey-russia.html?searchResultPosition=10
 
