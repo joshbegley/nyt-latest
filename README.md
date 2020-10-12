@@ -1,33 +1,37 @@
+**First, a Vaccine Approval. Then ‘Chaos and Confusion.’**\
+`Come spring, Americans may have their choice of several so-so vaccines — with no way of knowing which one is best.`\
+https://nytimes.com/2020/10/12/health/covid-vaccines.html?searchResultPosition=1
+
 **Spirit Halloween Rises from the Dead. Again. And Again.**\
 `The retailer inspires songs and memes with its near-guaranteed seasonal reappearance each fall. But can it survive this year?`\
-https://nytimes.com/2020/10/12/style/spirit-halloween-costume-store-undead-forever.html?searchResultPosition=1
+https://nytimes.com/2020/10/12/style/spirit-halloween-costume-store-undead-forever.html?searchResultPosition=2
 
 **Cooking Can Help**\
 `Mondays land heavily sometimes. You may find joy in making something new.`\
-https://nytimes.com/2020/10/12/dining/cooking-can-help.html?searchResultPosition=2
+https://nytimes.com/2020/10/12/dining/cooking-can-help.html?searchResultPosition=3
 
 **Bangladesh to Allow Death Penalty for Rape Convictions**\
 `Ministers approved an amendment that would permit capital punishment for the crime after a series of assaults led to widespread calls to tackle what many say is a systemic problem.`\
-https://nytimes.com/2020/10/12/world/asia/bangladesh-death-penalty-rape.html?searchResultPosition=3
+https://nytimes.com/2020/10/12/world/asia/bangladesh-death-penalty-rape.html?searchResultPosition=4
 
 **$4.5 Million Homes in California**\
 `A new Craftsman-style house in Newport Beach, a circa 1890 farmhouse in Guerneville and a renovated 1967 house in Marina del Rey.`\
-https://nytimes.com/2020/10/12/realestate/4-5-million-homes-in-california.html?searchResultPosition=4
+https://nytimes.com/2020/10/12/realestate/4-5-million-homes-in-california.html?searchResultPosition=5
 
 **What You Get for $4.5 Million in California**\
 `A new Craftsman-style house in Newport Beach, a circa 1890 farmhouse in Guerneville and a renovated 1967 house in Marina del Rey.`\
-https://nytimes.com/slideshow/2020/10/12/realestate/what-you-get-for-4-5-million-in-california.html?searchResultPosition=5
+https://nytimes.com/slideshow/2020/10/12/realestate/what-you-get-for-4-5-million-in-california.html?searchResultPosition=6
 
 **Jennifer Doudna, New Nobel Laureate, on Science and Covid**\
 `Monday: A conversation with the U.C. Berkeley professor who shared the Nobel Prize in Chemistry. Also: A call for first-time voters.`\
-https://nytimes.com/2020/10/12/us/jennifer-doudna-nobel-laureate.html?searchResultPosition=6
+https://nytimes.com/2020/10/12/us/jennifer-doudna-nobel-laureate.html?searchResultPosition=7
 
 **BTS Honored Korean War Sacrifices. Some in China Detected an Insult.**\
 `Samsung and Fila distanced themselves from the K-pop band, becoming the latest example of multinational companies deferring to Chinese patriotic sentiment.`\
-https://nytimes.com/2020/10/12/business/bts-korean-war-china-samsung.html?searchResultPosition=7
+https://nytimes.com/2020/10/12/business/bts-korean-war-china-samsung.html?searchResultPosition=8
 
 **Global Talks on Taxing Tech Firms Will Slip Into 2021**\
 `The talks at the Organization for Economic Cooperation and Development have progressed on several fronts, but a dispute remains between the Trump administration and key allies.`\
-https://nytimes.com/2020/10/12/business/digital-tax-talks.html?searchResultPosition=8
+https://nytimes.com/2020/10/12/business/digital-tax-talks.html?searchResultPosition=9
 
 **Senator Lindsey Graham has gaveled in the start of the hearing.**\
