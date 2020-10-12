@@ -1,5 +1,5 @@
 **What We Learned From Week 5 of the N.F.L. Season**\
-`Dak Prescott’s season might be over, Alex Smith came back after nearly two years away, the Ravens demolished Joe Burrow and the Bengals, and the Raiders shocked the Chiefs.`\
+`Dak Prescott’s season appears to be over, Alex Smith came back after nearly two years away, the Ravens demolished Joe Burrow and the Bengals, and the Raiders shocked the Chiefs.`\
 https://nytimes.com/2020/10/11/sports/football/week-5-nfl-results.html?searchResultPosition=1
 
 **Trump’s Virus Treatment Revives Questions About Unchecked Nuclear Authority**\
