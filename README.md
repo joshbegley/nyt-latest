@@ -19,7 +19,7 @@ https://nytimes.com/2020/10/12/business/bts-korean-war-china-samsung.html?search
 https://nytimes.com/2020/10/12/business/digital-tax-talks.html?searchResultPosition=5
 
 **Watch Live: Confirmation Hearing for Amy Coney Barrett**\
-`The Senate on Monday will begin the confirmation hearing for Judge Amy Coney Barrett, President Trump’s choice to fill the Supreme Court seat of the late Justice Ruth Bader Ginsburg.`\
+`The Senate on Monday begins the confirmation hearing for Judge Amy Coney Barrett, President Trump’s choice to fill the Supreme Court seat of the late Justice Ruth Bader Ginsburg.`\
 https://nytimes.com/video/us/politics/100000007390658/amy-coney-barrett-live-video.html?searchResultPosition=6
 
 **Handcuffed by a New Rule, Rays Manage to Escape**\
