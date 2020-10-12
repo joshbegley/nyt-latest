@@ -22,9 +22,9 @@ https://nytimes.com/article/amy-barrett-views-issues.html?searchResultPosition=5
 `Sometimes when a bag of money smells a little suspect, that’s because it is.`\
 https://nytimes.com/2020/10/11/arts/television/fargo-episode-4-recap.html?searchResultPosition=6
 
-**Your Monday Briefing**\
-`Coronavirus, QAnon, Trump: Here’s what you need to know.`\
-https://nytimes.com/2020/10/11/briefing/your-monday-briefing.html?searchResultPosition=7
+**Coronavirus, QAnon, Trump: Your Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2020/10/11/briefing/coronavirus-qanon-trump-your-monday-briefing.html?searchResultPosition=7
 
 **The Lakers’ Winding Path Ends With a Championship**\
 `The Los Angeles Lakers defeated the Miami Heat in six games to take home the franchise’s 17th championship. It was the fourth title for LeBron James.`\
