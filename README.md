@@ -2,7 +2,7 @@
 `Atlanta is the second team to clean house to try to salvage its season.`\
 https://nytimes.com/2020/10/12/sports/football/falcons-dan-quinn.html?searchResultPosition=1
 
-**DealBook: New Questions About Leon Black’s Ties to Jeffrey Epstein**\
+**New Questions About Leon Black’s Ties to Jeffrey Epstein**\
 `The billionaire chief of Apollo Global Management had a far deeper relationship than previously known.`\
 https://nytimes.com/2020/10/12/business/dealbook/black-epstein-relationship.html?searchResultPosition=2
 
