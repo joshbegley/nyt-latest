@@ -1,21 +1,25 @@
+**Bangladesh to Allow Death Penalty for Rape Convictions**\
+`Ministers approved an amendment that would permit capital punishment for the crime after a series of assaults led to widespread calls to tackle what many say is a systemic problem.`\
+https://nytimes.com/2020/10/12/world/asia/bangladesh-death-penalty-rape.html?searchResultPosition=1
+
 **$4.5 Million Homes in California**\
 `A new Craftsman-style house in Newport Beach, a circa 1890 farmhouse in Guerneville and a renovated 1967 house in Marina del Rey.`\
-https://nytimes.com/2020/10/12/realestate/4-5-million-homes-in-california.html?searchResultPosition=1
+https://nytimes.com/2020/10/12/realestate/4-5-million-homes-in-california.html?searchResultPosition=2
 
 **What You Get for $4.5 Million in California**\
 `A new Craftsman-style house in Newport Beach, a circa 1890 farmhouse in Guerneville and a renovated 1967 house in Marina del Rey.`\
-https://nytimes.com/slideshow/2020/10/12/realestate/what-you-get-for-4-5-million-in-california.html?searchResultPosition=2
+https://nytimes.com/slideshow/2020/10/12/realestate/what-you-get-for-4-5-million-in-california.html?searchResultPosition=3
 
 **Jennifer Doudna, New Nobel Laureate, on Science and Covid**\
 `Monday: A conversation with the U.C. Berkeley professor who shared the Nobel Prize in Chemistry. Also: A call for first-time voters.`\
-https://nytimes.com/2020/10/12/us/jennifer-doudna-nobel-laureate.html?searchResultPosition=3
+https://nytimes.com/2020/10/12/us/jennifer-doudna-nobel-laureate.html?searchResultPosition=4
 
 **BTS Honored Korean War Sacrifices. Some in China Detected an Insult.**\
 `Samsung and Fila distanced themselves from the K-pop band, becoming the latest example of multinational companies deferring to Chinese patriotic sentiment.`\
-https://nytimes.com/2020/10/12/business/bts-korean-war-china-samsung.html?searchResultPosition=4
+https://nytimes.com/2020/10/12/business/bts-korean-war-china-samsung.html?searchResultPosition=5
 
 **Global Talks on Taxing Tech Firms Will Slip Into 2021**\
 `The talks at the Organization for Economic Cooperation and Development have progressed on several fronts, but a dispute remains between the Trump administration and key allies.`\
-https://nytimes.com/2020/10/12/business/digital-tax-talks.html?searchResultPosition=5
+https://nytimes.com/2020/10/12/business/digital-tax-talks.html?searchResultPosition=6
 
 **Senator Lindsey Graham has gaveled in the start of the hearing.**\
