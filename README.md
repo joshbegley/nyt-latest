@@ -10,8 +10,8 @@ https://nytimes.com/slideshow/2020/10/12/realestate/what-you-get-for-4-5-million
 `Monday: A conversation with the U.C. Berkeley professor who shared the Nobel Prize in Chemistry. Also: A call for first-time voters.`\
 https://nytimes.com/2020/10/12/us/jennifer-doudna-nobel-laureate.html?searchResultPosition=3
 
-**A Pop Group Honored Korean War Sacrifices. Some in China Detected an Insult.**\
-`Samsung and Fila distanced themselves from the K-pop band BTS, becoming the latest example of multinational companies deferring to Chinese patriotic sentiment.`\
+**BTS Honored Korean War Sacrifices. Some in China Detected an Insult.**\
+`Samsung and Fila distanced themselves from the K-pop band, becoming the latest example of multinational companies deferring to Chinese patriotic sentiment.`\
 https://nytimes.com/2020/10/12/business/bts-korean-war-china-samsung.html?searchResultPosition=4
 
 **Global Talks on Taxing Tech Firms Will Slip Into 2021**\
