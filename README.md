@@ -2,7 +2,7 @@
 `In “The Wind Traveler,” by Alonso Cueto, a man haunted by a terrible act he committed as a soldier faces the fallout years later.`\
 https://nytimes.com/2020/10/13/books/review/alonso-cueto-wind-traveler.html?searchResultPosition=1
 
-**Oh the Hunt for Office Space, Companies Stay Low to the Ground**\
+**On the Hunt for Office Space, Companies Stay Low to the Ground**\
 `Groundscrapers have been considered less exalted than their soaring brethren, but their ability to house an entire company on a single floor has made them more desirable in the pandemic.`\
 https://nytimes.com/2020/10/13/business/groundscraper-landscraper-skyscraper.html?searchResultPosition=2
 
