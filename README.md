@@ -30,7 +30,7 @@ https://nytimes.com/2020/10/13/books/review/kants-little-prussian-head-and-other
 `An excerpt from “The Upswing,” by Robert D. Putnam`\
 https://nytimes.com/2020/10/13/books/review/the-upswing-by-robert-d-putnam-an-excerpt.html?searchResultPosition=8
 
-**DealBook: The Market Sees Blue**\
+**The Market Sees Blue**\
 `Investors didn’t always think a Democratic sweep would be good for stocks.`\
 https://nytimes.com/2020/10/13/business/dealbook/biden-markets-blue-wave.html?searchResultPosition=9
 
