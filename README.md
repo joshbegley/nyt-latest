@@ -1,40 +1,40 @@
-**Megan Thee Stallion: Why I Speak Up for Black Women**\
-`I’m not afraid of criticism, and “Protect Black women” should not be controversial.`\
-https://nytimes.com/video/opinion/100000007387419/megan-thee-stallion-black-women.html?searchResultPosition=1
+**PBS Showed TV the Future. But What Does Its Own Look Like?**\
+`It created the blueprint for what TV has become. And, while networks and streaming services reap the benefits of PBS’s successes, it is still struggling to survive.`\
+https://nytimes.com/2020/10/13/arts/television/pbs-future.html?searchResultPosition=1
 
-**Lesson of the Day: ‘“Everything Is Closed Down.” The Lack of Youth Sports Is a Crisis.’**\
-`In this lesson, students consider the impact of the pandemic on youth sports in general, then investigate how their own community is adapting.`\
-https://nytimes.com/2020/10/13/learning/lesson-of-the-day-everything-is-closed-down-the-lack-of-youth-sports-is-a-crisis.html?searchResultPosition=2
+**PBS Is Still TV’s Best Path to Better Citizenship**\
+`Long before it was fashionable, PBS educated us about the realities of American life, and spoke some truth to power along the way.`\
+https://nytimes.com/2020/10/13/arts/television/pbs-american-life.html?searchResultPosition=2
 
-**A Broadway ‘Moment of Joy’**\
-`What does theater mean to you? How have you been getting your fix during the pandemic?`\
-https://nytimes.com/2020/10/13/learning/a-broadway-moment-of-joy.html?searchResultPosition=3
+**Hearings, Protests and Rallies: Washington Grinds On Through the Pandemic**\
+`New York Times photographers captured a day of consequential events for all three branches of a government struggling to cope with the coronavirus.`\
+https://nytimes.com/2020/10/13/us/politics/photos-supreme-court-hearing.html?searchResultPosition=3
 
-**Heidi Larson Knows How to Build Trust in Vaccines**\
-`For the founder of the Vaccine Confidence Project, squashing viral rumors means building trust — and avoiding the term “anti-vaxxer.”`\
-https://nytimes.com/2020/10/13/health/coronavirus-vaccine-hesitancy-larson.html?searchResultPosition=4
+**The Marc Jacobs Whisperer**\
+`Among the many tasks of Nick Newbold, the designer’s personal assistant? Shooting a documentary about their lives during all of … this.`\
+https://nytimes.com/2020/10/13/fashion/marc-jacobs-instagram.html?searchResultPosition=4
 
-**Word + Quiz: scurrilous**\
-`This word has appeared in 13 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/10/13/learning/word-quiz-scurrilous.html?searchResultPosition=5
+**The News Cycle Is Crushing Seattle’s Vibrant Restaurant Scene**\
+`Among the first in the country to go into Covid-19 lockdown, the city has also experienced the effects of protests and wildfires. It has been vertiginous for a dining community shaped by prosperity.`\
+https://nytimes.com/2020/10/13/dining/seattle-restaurants-coronavirus.html?searchResultPosition=5
 
-**Questioning Begins for Judge Amy Coney Barrett. Here’s What to Watch For.**\
-`Republicans appear prepared to continue burnishing Judge Barrett’s reputation, while Democrats may look to attack the hearing itself, rather than the nominee.`\
-https://nytimes.com/2020/10/13/us/politics/amy-coney-barrett-hearing.html?searchResultPosition=6
+**50 Reasons Over 50 Years We Turned to PBS**\
+`Over the past five decades, we have invited Monty Python, Julia Child, Barney, William F. Buckley Jr. and Carl Sagan into our living rooms. Sound eclectic? It’s called the Public Broadcasting Service.`\
+https://nytimes.com/2020/10/13/arts/pbs-50-anniversary.html?searchResultPosition=6
 
-**Trump’s False Claims as He Resumes His Rallies After Hospitalization**\
-`In Florida, the president made a series of inaccurate claims about his election opponent, the coronavirus pandemic, the Nobel Peace Prize and Cuba, among other topics.`\
-https://nytimes.com/2020/10/13/us/politics/fact-check-trump-rally-florida.html?searchResultPosition=7
+**‘Elmo Knows Where You Live’: A History of the PBS Pledge Drive**\
+`The interruptions to regular programming in favor of a hard sell and programming of dubious merit have infuriated viewers for decades. But stations find it hard to quit them.`\
+https://nytimes.com/2020/10/13/arts/television/pbs-pledge-drive-history.html?searchResultPosition=7
 
-**Corrections: Oct. 13, 2020**\
-`Corrections that appeared in print on Tuesday, Oct. 13, 2020.`\
-https://nytimes.com/2020/10/13/pageoneplus/corrections-oct-13-2020.html?searchResultPosition=8
+**Iceland Tourism Prepares for a Comeback**\
+`The country hopes that when people book their first post-pandemic flights overseas, Iceland will be the top choice. It also aims to learn from the recent past, when tourist numbers soared.`\
+https://nytimes.com/2020/10/13/travel/iceland-tourism-pandemic.html?searchResultPosition=8
 
-**With a Long Ball and a Long Fall, Manuel Margot Lifts the Rays**\
-`The Tampa Bay outfielder made a highlight-reel catch and hit a three-run homer in a victory over the Astros, putting Houston in a “must-win situation” for Game 3.`\
-https://nytimes.com/2020/10/13/sports/baseball/manuel-margot-rays-astros.html?searchResultPosition=9
+**Why I’ll Never Stop Being a Theater Critic**\
+`After 27 years on the job, the writer Ben Brantley bids farewell with one last recommendation: Watch a show as if you were a reviewer.`\
+https://nytimes.com/2020/10/13/insider/brantley-critic-farewell.html?searchResultPosition=9
 
-**Quotation of the Day: Democrats in Trump Country: No Longer Shy to Back Biden**\
-`Quotation of the Day for Tuesday, October 13, 2020.`\
-https://nytimes.com/2020/10/13/todayspaper/quotation-of-the-day-democrats-in-trump-country-no-longer-shy-to-back-biden.html?searchResultPosition=10
+**Rep. Max Rose Seeks 2nd Term by Targeting Fellow Democrat: De Blasio**\
+`The Republican candidate is Nicole Malliotakis, but in a conservative congressional district, Mr. Rose is also happy to run against the mayor.`\
+https://nytimes.com/2020/10/13/nyregion/max-rose-nicole-malliotakis.html?searchResultPosition=10
 
