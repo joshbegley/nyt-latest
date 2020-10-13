@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/13/sports/football/titans-bills-tuesday-night-nfl.ht
 `On Tuesday, senators began their questioning of Judge Amy Coney Barrett during her Supreme Court confirmation hearing.`\
 https://nytimes.com/video/us/politics/100000007394061/amy-coney-barrett-day-2-highlights.html?searchResultPosition=3
 
-**The Fight Over Mail-In Ballots Has Shifted to Drop Boxes**\
+**The Fight Over Absentee Ballots Intensifies Around Drop Boxes**\
 `Democrats are pushing to expand their use, while Republicans insist, without evidence, that they make fraud easier — even as they deploy their own in California.`\
 https://nytimes.com/2020/10/13/us/politics/california-drop-boxes-voting-gop.html?searchResultPosition=4
 
