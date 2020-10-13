@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/13/books/review/the-upswing-by-robert-d-putnam-an-excerpt.html?searchResultPosition=1
 
 **DealBook: The Market Sees Blue**\
-`Investors didn’t always think that a “blue wave” election would be good for stocks.`\
+`Investors didn’t always think a Democratic sweep would be good for stocks.`\
 https://nytimes.com/2020/10/13/business/dealbook/biden-markets-blue-wave.html?searchResultPosition=2
 
 **‘The Adventures of China Iron,’ by Gabriela Cabezón Cámara: An Excerpt**\
