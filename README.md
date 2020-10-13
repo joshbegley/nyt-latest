@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/13/todayspaper/quotation-of-the-day-democrats-in-tru
 `Here’s what you need to know.`\
 https://nytimes.com/2020/10/12/briefing/belarus-vaccines-amy-coney-barrett.html?searchResultPosition=9
 
-**Denver Photojournalist Captures Shooting as It Unfolds**\
+**How a Denver Photojournalist Captured a Shooting as It Unfolded**\
 `Helen H. Richardson, a photographer at The Denver Post, was steps away when a rally and a counterprotest ended in a fatal shooting.`\
 https://nytimes.com/2020/10/12/business/media/denver-photographer-shooting.html?searchResultPosition=10
 
