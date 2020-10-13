@@ -2,7 +2,7 @@
 `New series made in and about the pandemic are fascinating first drafts of pop history — even if they’re mixed as entertainment.`\
 https://nytimes.com/2020/10/13/arts/television/social-distance-connecting.html?searchResultPosition=1
 
-**Turkish Defector Says He Was Ordered to Kill Ex-Lawmaker in Austria**\
+**Turkish Defector Says He Was Ordered to Kill Politician in Austria**\
 `The testimony by the man, who claimed to be an intelligence agent, offers insight into President Recep Tayyip Erdogan’s pursuit of foes and undermines the conviction of a U.S. Consulate employee in Istanbul.`\
 https://nytimes.com/2020/10/13/world/europe/turkey-austria-erdogan-assassin.html?searchResultPosition=2
 
