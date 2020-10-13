@@ -18,8 +18,8 @@ https://nytimes.com/2020/10/13/sports/baseball/manuel-margot-rays-astros.html?se
 `Quotation of the Day for Tuesday, October 13, 2020.`\
 https://nytimes.com/2020/10/13/todayspaper/quotation-of-the-day-democrats-in-trump-country-no-longer-shy-to-back-biden.html?searchResultPosition=5
 
-**Your Tuesday Briefing**\
-`Belarus, vaccines, Amy Coney Barrett: Here’s what you need to know.`\
+**Belarus, Vaccines, Amy Coney Barrett: Your Tuesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/10/12/briefing/belarus-vaccines-amy-coney-barrett.html?searchResultPosition=6
 
 **Denver Photojournalist Captures Shooting as It Unfolds**\
