@@ -1,8 +1,8 @@
-**From Here**\
+**The World Has Changed. Where Do We Go From Here?**\
 `A collection of visually immersive stories that explore how communities are gathering in a time of unprecedented change.`\
 https://nytimes.com/interactive/2020/10/12/style/from-here.html?searchResultPosition=1
 
-**The World Has Changed. What’s Next?**\
+**Reimagining Community in Rapidly Changing Times**\
 `The world we live in today is vastly different from the one we left behind just months ago. The question now: Where do we go from here?`\
 https://nytimes.com/interactive/2020/10/12/style/from-here-moving-forward.html?searchResultPosition=2
 
