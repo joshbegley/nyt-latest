@@ -12,7 +12,7 @@ https://nytimes.com/2020/10/13/learning/word-quiz-scurrilous.html?searchResultPo
 
 **Questioning Begins for Judge Amy Coney Barrett. Here’s What to Watch For.**\
 `Republicans appear prepared to continue burnishing Judge Barrett’s reputation, while Democrats may look to attack the hearing itself, rather than the nominee.`\
-https://nytimes.com/2020/10/13/us/politics/what-time-is-amy-coney-barrett-hearing.html?searchResultPosition=4
+https://nytimes.com/2020/10/13/us/politics/amy-coney-barrett-hearing.html?searchResultPosition=4
 
 **Trump’s False Claims as He Resumes His Rallies After Hospitalization**\
 `In Florida, the president made a series of inaccurate claims about his election opponent, the coronavirus pandemic, the Nobel Peace Prize and Cuba, among other topics.`\
