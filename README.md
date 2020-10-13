@@ -26,7 +26,7 @@ https://nytimes.com/2020/10/13/fashion/marc-jacobs-instagram.html?searchResultPo
 `Among the first in the country to go into Covid-19 lockdown, the city has also experienced the effects of protests and wildfires. It has been vertiginous for a dining community shaped by prosperity.`\
 https://nytimes.com/2020/10/13/dining/seattle-restaurants-coronavirus.html?searchResultPosition=7
 
-**50 Reasons Over 50 Years We Turned to PBS**\
+**Why We Turned to PBS: 50 Reasons Over 50 Years**\
 `Over the past five decades, we have invited Monty Python, Julia Child, Barney, William F. Buckley Jr. and Carl Sagan into our living rooms. Sound eclectic? It’s called the Public Broadcasting Service.`\
 https://nytimes.com/2020/10/13/arts/pbs-50-anniversary.html?searchResultPosition=8
 
