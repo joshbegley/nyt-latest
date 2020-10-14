@@ -1,6 +1,6 @@
 **Trump May Be Immune to the Coronavirus. But for How Long?**\
-`A unique treatment course may have short-circuited his body’s production of antibodies, scientists warn.`\
-https://nytimes.com/2020/10/14/health/trump-may-be-immune-to-the-coronavirus-but-for-how-long.html?searchResultPosition=1
+`A unique treatment course may have blunted his body’s production of antibodies, scientists warn.`\
+https://nytimes.com/2020/10/14/health/coronavirus-trump-antibodies.html?searchResultPosition=1
 
 **Biden Did Not Meet With Ukrainian Energy Executive, Campaign Says**\
 `Joseph Biden’s campaign rejected assertions made in a published report that were based on unverified material provided by Rudy Giuliani, a staunch ally of President Trump.`\
