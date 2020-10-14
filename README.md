@@ -1,40 +1,40 @@
+**Amy Cooper Made 2nd 911 Call to Falsely Accuse Black Bird-Watcher**\
+`Prosecutors said Ms. Cooper called the police twice, saying she had not only been threatened but had been assaulted by a man in Central Park who had asked her to leash her dog.`\
+https://nytimes.com/2020/10/14/nyregion/amy-cooper-false-report-charge.html?searchResultPosition=1
+
 **Ford and Mellon Foundations Unveil Initiative for Disabled Artists**\
 `The Disability Futures fellowship awards $50,000 to 20 artists, filmmakers and journalists.`\
-https://nytimes.com/2020/10/14/arts/dance/ford-mellon-foundation-disabled-artists.html?searchResultPosition=1
+https://nytimes.com/2020/10/14/arts/dance/ford-mellon-foundation-disabled-artists.html?searchResultPosition=2
 
 **Indonesian Defense Chief, Accused of Rights Abuses, to Visit Pentagon**\
 `Prabowo Subianto, former head of Indonesia’s feared special forces under Suharto and now the minister of defense, had been barred from entering the United States for years.`\
-https://nytimes.com/2020/10/14/world/asia/indonesia-prabowo-subianto-us-visit.html?searchResultPosition=2
+https://nytimes.com/2020/10/14/world/asia/indonesia-prabowo-subianto-us-visit.html?searchResultPosition=3
 
 **Jose Altuve, the Yips, and Some Sympathy for the Astros**\
 `Down by 0-3 against the Rays, Houston Manager Dusty Baker remains hopeful despite bizarre fielding struggles from his reliable star: “We’re due big time.”`\
-https://nytimes.com/2020/10/14/sports/baseball/astros-jose-altuve-rays.html?searchResultPosition=3
+https://nytimes.com/2020/10/14/sports/baseball/astros-jose-altuve-rays.html?searchResultPosition=4
 
 **House Hunting in Croatia: A Modern Mountain Villa for $1.2 Million**\
 `Outside of Zagreb, low interest rates and the demand for more space are leading buyers to Croatia’s mountainous regions.`\
-https://nytimes.com/2020/10/14/realestate/house-hunting-in-croatia-mountains.html?searchResultPosition=4
+https://nytimes.com/2020/10/14/realestate/house-hunting-in-croatia-mountains.html?searchResultPosition=5
 
 **Glass and Wood in the ‘Green Lungs’ of Croatia**\
 `This modern three-bedroom house in the heart of Croatia’s mountainous Gorski Kotar region is on the market for $1.2 million.`\
-https://nytimes.com/slideshow/2020/10/14/realestate/glass-and-wood-in-the-green-lungs-of-croatia.html?searchResultPosition=5
+https://nytimes.com/slideshow/2020/10/14/realestate/glass-and-wood-in-the-green-lungs-of-croatia.html?searchResultPosition=6
 
 **What We’re Reading When We’re Off Duty**\
 `Here’s a look at what our colleagues from the Book Review and the Books desk are reading.`\
-https://nytimes.com/interactive/2020/10/14/books/reading-suggestions.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/10/14/books/reading-suggestions.html?searchResultPosition=7
 
 **Ikea Will Buy Back Some Used Furniture to Stop ‘Excessive Consumption’**\
 `The program, part of the company’s larger efforts to combat climate change, will be available in 27 countries, but not the United States.`\
-https://nytimes.com/2020/10/14/business/ikea-buy-back-furniture.html?searchResultPosition=7
+https://nytimes.com/2020/10/14/business/ikea-buy-back-furniture.html?searchResultPosition=8
 
 **$1.325 Million Homes in Connecticut, California and South Carolina**\
 `A Gothic Revival mansion in Old Lyme, a two-story condo in San Francisco and a 19th-century clapboard house in Charleston.`\
-https://nytimes.com/2020/10/14/realestate/1-million-dollar-homes-for-sale-in-ct-ca-sc.html?searchResultPosition=8
+https://nytimes.com/2020/10/14/realestate/1-million-dollar-homes-for-sale-in-ct-ca-sc.html?searchResultPosition=9
 
 **What You Get for $1.325 Million**\
 `A Gothic Revival mansion in Old Lyme, Conn.; a two-story condo in San Francisco; and a 19th-century clapboard house in Charleston, S.C.`\
-https://nytimes.com/slideshow/2020/10/14/realestate/what-you-get-for-1-325-million.html?searchResultPosition=9
-
-**Jimmy Butler Was Made for Miami**\
-`In this newsletter, Marc Stein says Butler was the breakout star of the N.B.A. finals, even in defeat. Plus: Why one ring isn’t enough to put LeBron James on the Lakers’ Mount Rushmore.`\
-https://nytimes.com/2020/10/14/sports/basketball/nba-jimmy-butler-miami-heat.html?searchResultPosition=10
+https://nytimes.com/slideshow/2020/10/14/realestate/what-you-get-for-1-325-million.html?searchResultPosition=10
 
