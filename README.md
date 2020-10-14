@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/14/world/asia/china-xi-jinping-shenzhen.html?searchR
 https://nytimes.com/2020/10/14/business/pilgrims-pride-price-fixing.html?searchResultPosition=2
 
 **Watch Live: Day 3 of Amy Coney Barrett Hearings**\
-`On Wednesday, President Trump’s nominee for the Supreme Court will face a second round of questions from the Senate Judiciary Committee.`\
+`On Wednesday, President Trump’s nominee for the Supreme Court will face more questions from the Senate Judiciary Committee.`\
 https://nytimes.com/video/us/politics/100000007394795/live-video-amy-coney-barrett.html?searchResultPosition=3
 
 **E.U. Preparing Sanctions on Putin Allies Over Navalny’s Poisoning**\
