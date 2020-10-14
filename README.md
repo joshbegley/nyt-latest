@@ -1,6 +1,6 @@
 **World War II-Era ‘Earthquake Bomb’ Explodes in Polish Waters**\
 `Polish Navy divers tried to remotely neutralize a six-ton “Tallboy” dropped by the British, but the bomb had no intention of going quietly.`\
-https://nytimes.com/2020/10/14/world/europe/world-war-ii-era-earthquake-bomb-explodes-in-polish-waters.html?searchResultPosition=1
+https://nytimes.com/2020/10/14/world/europe/poland-bomb.html?searchResultPosition=1
 
 **Votes, Sex and Money**\
 `Senators, I’m looking at you.`\
