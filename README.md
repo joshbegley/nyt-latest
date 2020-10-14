@@ -14,7 +14,7 @@ https://nytimes.com/2020/10/14/movies/blackpink-light-up-the-sky-review.html?sea
 `Barrett skillfully avoids any commitments to how she’d rule: This is your morning tip sheet.`\
 https://nytimes.com/2020/10/14/us/politics/supreme-court-2020-campaign.html?searchResultPosition=4
 
-**DealBook: Business Leaders Speak Out on Election Integrity**\
+**Business Leaders Speak Out on Election Integrity**\
 `These days, nothing goes without saying.`\
 https://nytimes.com/2020/10/14/business/dealbook/business-election-integrity.html?searchResultPosition=5
 
