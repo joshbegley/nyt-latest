@@ -1,40 +1,40 @@
-**The Cicada and the Train Wreck of 2020**\
-`The problems that brought us a terrible year have been incubating for a long time.`\
-https://nytimes.com/video/opinion/100000007344068/cicadas-2020-trainwreck.html?searchResultPosition=1
+**The Way We Watch Now**\
+`TV brings us comfort. TV gives us information. TV is relentless. The coronavirus lockdown has changed the way we absorb the glow of screens. Three photographers captured viewers at home and in public, relaxed and on edge, together and alone.`\
+https://nytimes.com/2020/10/14/arts/design/watching-television-photos.html?searchResultPosition=1
 
-**Helsinki Makes Sustainability a Guiding Principle for Development**\
-`Co-housing is on the rise, as is solar power and geothermal heat. In one neighborhood, trash is collected via pneumatic tubes.`\
-https://nytimes.com/2020/10/14/todaysinyt/helsinki-makes-sustainability-a-guiding-principle-for-development.html?searchResultPosition=2
+**Students, Parents and Teachers Tell Their Stories of Remote Learning**\
+`We asked readers across the country how they are tackling these new challenges. Here is what they said.`\
+https://nytimes.com/2020/10/14/education/learning/students-parents-teachers-remote-stories.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Listen Up: These Young Black Poets Have a Message’**\
-`In this lesson, students will learn from the next generation of promising writers about their craft and why they think poetry matters. Then students will write their own poems, taking inspiration from these courageous voices.`\
-https://nytimes.com/2020/10/14/learning/lesson-of-the-day-listen-up-these-young-black-poets-have-a-message.html?searchResultPosition=3
+**From School Boards to the Senate, All Politics Is Virus Politics in 2020**\
+`The pandemic has inspired new candidates to run, and defined the debate in campaigns up and down the ballots.`\
+https://nytimes.com/2020/10/14/us/coronavirus-elections.html?searchResultPosition=3
 
-**BTS’s Loyal Army of Fans Is the Secret Weapon Behind a $4 Billion I.P.O.**\
-`What investors are really paying for is not necessarily the K-pop group or its management company, but its huge, highly connected ecosystem of followers.`\
-https://nytimes.com/2020/10/14/business/bts-ipo.html?searchResultPosition=4
+**The Learning Bulletin Board**\
+`Online education tools, mental health care and more: a collection of views and news from our special report.`\
+https://nytimes.com/2020/10/14/education/learning/bulletin-board.html?searchResultPosition=4
 
-**At Cal, a Covid Survivor Keeps Watch Over Football’s Return**\
-`Every college program in America is trying to keep the coronavirus away. But not all of them are being guided by a staff member who has lived through it.`\
-https://nytimes.com/2020/10/14/sports/ncaafootball/cal-football-pac-12.html?searchResultPosition=5
+**This School Year Has Been Unlike Any Other**\
+`Some examples of how the world of education has responded to the pandemic.`\
+https://nytimes.com/2020/10/14/education/learning/this-school-year-has-been-unlike-any-other.html?searchResultPosition=5
 
-**Why Parents in This High-Performing School District Chose All-Remote Learning**\
-`In a heavily Asian-American district of Queens, two-thirds of families have chosen not to send their children back to school.`\
-https://nytimes.com/2020/10/14/nyregion/nyc-coronavirus-schools-reopening.html?searchResultPosition=6
+**Lessons From Tornadoes Help a Community Combat Covid**\
+`The same spirit of innovation that made it possible to track storms has helped a Tennessee county prepare for online learning and a return to classrooms.`\
+https://nytimes.com/2020/10/14/education/learning/tornadoes-covid-lessons.html?searchResultPosition=6
 
-**What Kamala Harris Learned About Power at Howard**\
-`As a college student in the 1980s, she and fellow children of the Civil Rights movement wanted to have an impact. The answer she landed on — working inside institutions — set her on the path to the vice-presidential nomination.`\
-https://nytimes.com/2020/10/14/us/politics/kamala-harris-howard.html?searchResultPosition=7
+**Matthew McConaughey Wrote the Book on Matthew McConaughey**\
+`In his memoir, “Greenlights,” the star of “Dazed and Confused” and “Dallas Buyers Club” shares lessons from a life in which he turned out all right, all right, all right.`\
+https://nytimes.com/2020/10/14/books/matthew-mcconaughey-memoir-greenlights.html?searchResultPosition=7
 
-**For the Browns, Trying Everything May Finally Lead to Something**\
-`Cleveland’s results may not have followed the analytics strategist Paul DePodesta’s initial vision, but a 4-1 record is math anyone can do.`\
-https://nytimes.com/2020/10/14/sports/football/cleveland-browns-record-nfl-standings.html?searchResultPosition=8
+**My Mustache, My Self**\
+`A quarantine facial-hair experiment led me to a deep consideration of my Blackness.`\
+https://nytimes.com/2020/10/14/magazine/quarantine-mustache.html?searchResultPosition=8
 
-**Creepy**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2020/10/14/learning/creepy.html?searchResultPosition=9
+**‘This Is a War’: Cross-Border Fight Over Water Erupts in Mexico**\
+`Farmers in Mexico ambushed soldiers and seized a dam to stop water payments to the United States, in a sign of growing conflict over increasingly scarce resources.`\
+https://nytimes.com/2020/10/14/world/americas/mexico-water-boquilla-dam.html?searchResultPosition=9
 
-**Word + Quiz: ersatz**\
-`This word has appeared in 36 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/10/14/learning/word-quiz-ersatz.html?searchResultPosition=10
+**How the Pandemic Is Affecting What Babies and Toddlers Learn**\
+`Without preschool and playgroups, the youngest children are missing out on important educational opportunities.`\
+https://nytimes.com/2020/10/14/education/learning/babies-toddlers-pandemic.html?searchResultPosition=10
 
