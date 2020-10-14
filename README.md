@@ -18,23 +18,4 @@ https://nytimes.com/video/world/europe/100000007394837/poland-wwii-bomb-explodin
 `Wednesday: Election officials are looking into the use of unofficial ballot drop boxes installed by the state’s Republican Party. Here’s what you should know.`\
 https://nytimes.com/2020/10/14/us/california-official-drop-boxes.html?searchResultPosition=5
 
-**In City Where China Welcomed the World, Xi Prepares for a Colder One**\
-`China’s leader, Xi Jinping, speaking in the early trading center of Shenzhen, emphasized domestic innovation amid tensions with the United States.`\
-https://nytimes.com/2020/10/14/world/asia/china-xi-jinping-shenzhen.html?searchResultPosition=6
-
-**Pilgrim’s Pride to Pay $110 Million to Settle Charges of Fixing Chicken Prices**\
-`The Justice Department said the company helped fix the price of chicken and passed the cost to consumers.`\
-https://nytimes.com/2020/10/14/business/pilgrims-pride-price-fixing.html?searchResultPosition=7
-
-**Watch Live: Day 3 of Amy Coney Barrett Hearings**\
-`On Wednesday, President Trump’s nominee for the Supreme Court will face more questions from the Senate Judiciary Committee.`\
-https://nytimes.com/video/us/politics/100000007394795/live-video-amy-coney-barrett.html?searchResultPosition=8
-
-**E.U. Preparing Sanctions on Putin Allies Over Navalny’s Poisoning**\
-`Six high-ranking Russian officials who are believed to be involved in the attack on the opposition leader Aleksei A. Navalny face asset freezes and bans on travel to the bloc.`\
-https://nytimes.com/2020/10/14/world/europe/eu-sanctions-navalny-poisoning-russia.html?searchResultPosition=9
-
-**Herbert Kretzmer, Who Wrote Lyrics for ‘Les Misérables,’ Dies at 95**\
-`A London theater critic, he turned a little-known French musical into a global blockbuster, earning $20 million in royalties.`\
-https://nytimes.com/2020/10/14/theater/herbert-kretzmer-les-miserbles-dead.html?searchResultPosition=10
-
+**Day 3 of Judge Barrett’s confirmation hearings is expected to start soon. Watch live.**\
