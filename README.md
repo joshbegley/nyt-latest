@@ -1,4 +1,4 @@
-**Restoring Farmland Could Drastically Slow Extinctions and Fight Climate Change, Study Says**\
+**Restoring Farmland Could Drastically Slow Extinctions and Fight Climate Change**\
 `Returning strategic parts of the world’s farmlands to nature could help mitigate both climate change and biodiversity loss, a new study found.`\
 https://nytimes.com/2020/10/14/climate/biodiversity-farmland-extinction.html?searchResultPosition=1
 
