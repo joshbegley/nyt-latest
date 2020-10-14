@@ -2,7 +2,7 @@
 `At a detention hearing on Wednesday, four potential custodians said they would be willing to house Mr. Harris, 21, if he were released on bail.`\
 https://nytimes.com/2020/10/14/arts/television/jerry-harris-bail.html?searchResultPosition=1
 
-**Constance Buchanan, Gave Women Voice in Religion, Dies at 73**\
+**Constance Buchanan Dies at 73; Gave Women Voice in Religion,**\
 `At Harvard Divinity School, she ensured that women were represented in scholarship, the curriculum, the syllabus and in publications.`\
 https://nytimes.com/2020/10/14/us/constance-buchanan-dies.html?searchResultPosition=2
 
