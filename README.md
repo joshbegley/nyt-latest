@@ -22,8 +22,8 @@ https://nytimes.com/2020/10/14/opinion/germany-russia-navalny.html?searchResultP
 `A new study by Human Rights Watch found that poor Indian women who work in the informal jobs sector are routinely subjected to sexual harassment and abuse despite a groundbreaking law.`\
 https://nytimes.com/2020/10/14/world/asia/india-sexual-harassment.html?searchResultPosition=6
 
-**He Built a Shrine to Trump and Prayed for His Health. Then He Died.**\
-`Bussa Krishna, a farmer who called President Trump his god, stopped eating after Mr. Trump was infected with the coronavirus, his family said. He died on Sunday.`\
+**He Worshiped Trump From India and Prayed for His Health. Then He Collapsed.**\
+`Bussa Krishna, a farmer who called President Trump his god, stopped eating after Mr. Trump became infected with the coronavirus, his family said. He died on Sunday.`\
 https://nytimes.com/2020/10/14/world/asia/india-trump-fan-dies.html?searchResultPosition=7
 
 **Indian-Americans Overwhelmingly Support Joe Biden, New Poll Shows**\
