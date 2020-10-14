@@ -26,15 +26,15 @@ https://nytimes.com/2020/10/14/us/students-laptops-digitial-divide.html?searchRe
 `A brutally unexpected year turned millions of people into gear nerds, whether they liked it or not.`\
 https://nytimes.com/2020/10/14/style/gadgets-are-back.html?searchResultPosition=7
 
+**Lindsey Graham, running for re-election, says his reference to ‘the good old days of segregation’ was sarcastic.**\
+`By Nicholas Fandos`\
+https://nytimes.com/2020/10/14/us/elections/lindsey-graham-good-old-days-segregation.html?searchResultPosition=8
+
 **Schools Struggle to Secure Computers**\
 `Facing a laptop shortage, some schools have had to jump through hoops to make remote learning work.`\
-https://nytimes.com/2020/10/14/technology/schools-remote-learning-computers.html?searchResultPosition=8
+https://nytimes.com/2020/10/14/technology/schools-remote-learning-computers.html?searchResultPosition=9
 
 **North Carolina Voters Distrust Trump and Tillis, Poll Finds, Imperiling G.O.P.**\
 `President Trump trails Joseph R. Biden Jr. by four points in the latest Times/Siena survey of North Carolina, and Senator Thom Tillis is lagging behind his Democratic challenger in a crucial Senate race.`\
-https://nytimes.com/2020/10/14/us/politics/north-carolina-trump-polls.html?searchResultPosition=9
-
-**Pearls, Pumps and Precedent in the Case of Amy Coney Barrett**\
-`In the pageantry of the Senate confirmation hearings for the Supreme Court nominee, image becomes evidence.`\
-https://nytimes.com/2020/10/14/style/amy-coney-barrett-hearings.html?searchResultPosition=10
+https://nytimes.com/2020/10/14/us/politics/north-carolina-trump-polls.html?searchResultPosition=10
 
