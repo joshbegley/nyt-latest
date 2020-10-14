@@ -2,7 +2,7 @@
 `Celebrated for its successes on the field, France’s soccer federation hired a consultant to address complaints about top executives. He heard accusations of bullying, misbehavior and sexism.`\
 https://nytimes.com/2020/10/14/sports/soccer/france-soccer-federation-investigation.html?searchResultPosition=1
 
-**Restoring Farmland Could Drastically Slow Extinctions and Fight Climate Change**\
+**Restoring Farmland Could Drastically Slow Extinctions, Fight Climate Change**\
 `Returning strategic parts of the world’s farmlands to nature could help mitigate both climate change and biodiversity loss, a new study found.`\
 https://nytimes.com/2020/10/14/climate/biodiversity-farmland-extinction.html?searchResultPosition=2
 
