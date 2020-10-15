@@ -1,5 +1,5 @@
-**Chainsmokers Promoter and Sweet 16 Venue Fined Over Virus Violations**\
-`The Sweet 16 party, at a Long Island catering hall, led to a flare-up that sickened dozens and forced 270 into quarantine, officials said.`\
+**‘Diamond Sweet 16’ Party Leaves 37 Infected and 270 in Quarantine**\
+`More than 80 people attended the birthday event, officials said. The Long Island venue was fined $12,000.`\
 https://nytimes.com/2020/10/14/nyregion/virus-outbreak-sweet-sixteen.html?searchResultPosition=1
 
 **Jetpack Sighted Again Above Los Angeles, This Time at 6,000 Feet**\
