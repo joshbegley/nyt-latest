@@ -14,7 +14,7 @@ https://nytimes.com/2020/10/15/arts/television/curb-your-enthusiasm-20th-anniver
 `Every place has its own climate risk. What is it where you live? How may climate change affect your community?`\
 https://nytimes.com/2020/10/15/learning/whats-going-on-in-this-graph-oct-21-2020.html?searchResultPosition=4
 
-**What to Expect at the 2020 Tony Award Nominations**\
+**2020 Tony Award Nominations: Live Updates**\
 `In a season cut short by the coronavirus pandemic, only 18 shows are eligible for awards. The ceremony is expected to take place in December.`\
 https://nytimes.com/2020/10/15/theater/tony-award-nominations.html?searchResultPosition=5
 
