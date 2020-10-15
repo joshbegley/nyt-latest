@@ -1,40 +1,40 @@
-**Politics, Poems and Charm in Two London Monologues**\
-`Two young Black playwrights chronicle tales of the Nigerian diaspora in performances at the Bridge Theater, but only one digs deep.`\
-https://nytimes.com/2020/10/15/theater/inua-sllams-yolanda-mercy-bridge.html?searchResultPosition=1
+**Did Lockdowns Lower Premature Births? A New Study Adds Evidence**\
+`Dutch researchers say the “impact was real,” adding to hopes that doctors will learn more about factors contributing to preterm birth.`\
+https://nytimes.com/2020/10/15/health/covid-premature-births-lockdown.html?searchResultPosition=1
 
-**Lesson of the Day: Dangerous Denominators**\
-`In this lesson, students will examine the math behind Covid-19 risk in schools and uncover misleading percentages and data reliability in coronavirus case reporting.`\
-https://nytimes.com/2020/10/15/learning/lesson-of-the-day-dangerous-denominators.html?searchResultPosition=2
+**The 2020 Election Is Happening Right Now**\
+`Millions have voted in-person or by mail, with weeks to go before Election Day.`\
+https://nytimes.com/2020/10/15/us/politics/early-voting-photos.html?searchResultPosition=2
 
-**Red and Blue**\
-`What is this image saying?`\
-https://nytimes.com/2020/10/15/learning/red-and-blue.html?searchResultPosition=3
+**The 25 Most Influential Works of American Protest Art Since World War II**\
+`Three artists, a curator and a writer came together to discuss the pieces that have not only best reflected the era, but have made an impact.`\
+https://nytimes.com/2020/10/15/t-magazine/most-influential-protest-art.html?searchResultPosition=3
 
-**Word + Quiz: compendium**\
-`This word has appeared in 63 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/10/15/learning/word-quiz-compendium.html?searchResultPosition=4
+**The East Village, Home of Punks and Poets: Here’s a Tour**\
+`Luc Sante, author of “Low Life,” chats about the neighborhood’s history, including CBGB, Warhol’s Electric Circus and the Tompkins Square Park riots.`\
+https://nytimes.com/2020/10/15/arts/design/east-village-virtual-tour.html?searchResultPosition=4
 
-**Iker Casillas Remembers Everything**\
-`The former goalkeeper on Real Madrid, managing Clásico rivalries and the “madness” of the toughest three weeks of his career.`\
-https://nytimes.com/2020/10/15/sports/soccer/iker-casillas-madrid-spain.html?searchResultPosition=5
+**Black Products. Black Shoppers. Black Workers. But Who Owns the Store?**\
+`At a Chicago beauty supply shop, one American dream has come true. Another is still waiting for its chance.`\
+https://nytimes.com/2020/10/15/business/beauty-store-race-protests.html?searchResultPosition=5
 
-**Jimmy Kimmel Rips Into Trump’s ‘Superspreader’ Rally**\
-`“Even though his own White House put out guidelines saying there should be no gatherings in central Iowa with more than 25 people, they’re doing this,” Kimmel said of President Trump’s rally.`\
-https://nytimes.com/2020/10/15/arts/television/jimmy-kimmel-rips-into-trumps-superspreader-rally.html?searchResultPosition=6
+**With Barrett Nomination, a D.C. Conservative Power Couple Nears Its Dream**\
+`Carrie Severino of the Judicial Crisis Network and Roger Severino, a senior health and human services official, have worked to reshape social policy and the courts they need to uphold it.`\
+https://nytimes.com/2020/10/15/us/politics/severinos-amy-coney-barrett.html?searchResultPosition=6
 
-**BTS Management’s Stock Soars on First Day of Trading**\
-`Shares in Big Hit, the company behind the K-pop phenomenon, opened at more than double the offering price, then jumped 30 percent in early trading before finishing down on the day.`\
-https://nytimes.com/2020/10/15/business/bts-stock.html?searchResultPosition=7
+**Reporting Live From Quarantine U.**\
+`Faced with soaring coronavirus caseloads, some universities told students to “stay put” for 14 days. College journalists report from their quarantined campuses.`\
+https://nytimes.com/2020/10/15/us/coronavirus-college-quarantines.html?searchResultPosition=7
 
-**Citing Risk of Wildfires, Utility Plans to Cut Off Power to 50,000 in California**\
-`Pacific Gas and Electric said power would begin to be shut off Wednesday evening and might return Friday night.`\
-https://nytimes.com/2020/10/15/us/california-wildfires-power.html?searchResultPosition=8
+**How One of the Most Stable Nations in West Africa Descended Into Mayhem**\
+`Burkina Faso once looked like a success story for U.S. military aid. But now it’s contending with a growing insurgency, an unfolding humanitarian crisis — and a security force targeting civilians.`\
+https://nytimes.com/2020/10/15/magazine/burkina-faso-terrorism-united-states.html?searchResultPosition=8
 
-**Trump and Biden Town Halls: What to Watch For**\
-`President Trump and Joe Biden will appear at separate, nationally televised events on Thursday night, with the president facing one of his final prime-time opportunities to change the race’s trajectory.`\
-https://nytimes.com/2020/10/15/us/politics/presidential-town-halls-tonight.html?searchResultPosition=9
+**For the Navajo Nation, ‘Everything Takes Time,’ Including Voting**\
+`Post offices are few and far between on the reservation, and mail can take a week and a half to reach the county seat. In this year’s election, that has more profound implications than ever before.`\
+https://nytimes.com/2020/10/15/us/politics/navajo-arizona-mail-voting.html?searchResultPosition=9
 
-**N.F.L. Week 6 Predictions: Our Picks Against the Spread**\
-`The red-hot Browns and Steelers will resume a fierce rivalry. The Chiefs and Bills will try to get back on track. And the Packers will try to pick up where they left off before their bye week.`\
-https://nytimes.com/2020/10/15/sports/football/nfl-picks-week-6.html?searchResultPosition=10
+**Your Local Bookstore Wants You to Know That It’s Struggling**\
+`Independent booksellers are desperate for customers to return, and not just for an online reading.`\
+https://nytimes.com/2020/10/15/books/independent-bookstores-economy.html?searchResultPosition=10
 
