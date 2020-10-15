@@ -18,13 +18,13 @@ https://nytimes.com/2020/10/15/t-magazine/most-influential-protest-art.html?sear
 `Luc Sante, author of “Low Life,” chats about the neighborhood’s history, including CBGB, Warhol’s Electric Circus and the Tompkins Square Park riots.`\
 https://nytimes.com/2020/10/15/arts/design/east-village-virtual-tour.html?searchResultPosition=5
 
-**Reporting Live From Quarantine U.**\
-`Faced with soaring coronavirus caseloads, some universities told students to “stay put” for 14 days. College journalists report from their quarantined campuses.`\
-https://nytimes.com/2020/10/15/us/coronavirus-college-quarantines.html?searchResultPosition=6
-
 **Black Products. Black Shoppers. Black Workers. But Who Owns the Store?**\
 `At a Chicago beauty supply shop, one American dream has come true. Another is still waiting for its chance.`\
-https://nytimes.com/2020/10/15/business/beauty-store-race-protests.html?searchResultPosition=7
+https://nytimes.com/2020/10/15/business/beauty-store-race-protests.html?searchResultPosition=6
+
+**Reporting Live From Quarantine U.**\
+`Faced with soaring coronavirus caseloads, some universities told students to “stay put” for 14 days. College journalists report from their quarantined campuses.`\
+https://nytimes.com/2020/10/15/us/coronavirus-college-quarantines.html?searchResultPosition=7
 
 **With Barrett Nomination, a D.C. Conservative Power Couple Nears Its Dream**\
 `Carrie Severino of the Judicial Crisis Network and Roger Severino, a senior health and human services official, have worked to reshape social policy and the courts they need to uphold it.`\
