@@ -26,7 +26,7 @@ https://nytimes.com/2020/10/15/climate/amy-coney-barrett-climate-change.html?sea
 `We miss theater. And we know you do too. So we asked you to share some memories with us.`\
 https://nytimes.com/interactive/2020/10/15/theater/missing-theater.html?searchResultPosition=7
 
-**Live Town Halls Tonight: News Tracker and Analysis**\
+**Live Town Halls Tonight Tracker**\
 `President Trump and former Vice President Joseph R. Biden Jr. are appearing in simultaneous town-hall-style events on NBC and ABC, after Mr. Trump rejected the previously scheduled debate. Follow our analysis of both of the broadcasts.`\
 https://nytimes.com/interactive/2020/10/15/us/politics/town-halls.html?searchResultPosition=8
 
