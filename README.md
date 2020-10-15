@@ -20,7 +20,7 @@ https://nytimes.com/2020/10/15/business/bts-stock.html?searchResultPosition=5
 
 **Citing Risk of Wildfires, Utility Plans to Cut Off Power to 50,000 in California**\
 `Pacific Gas and Electric said power would begin to be shut off Wednesday evening and might return Friday night.`\
-https://nytimes.com/2020/10/15/us/citing-risk-of-wildfires-utility-plans-to-cut-off-power-to-50000-in-california.html?searchResultPosition=6
+https://nytimes.com/2020/10/15/us/california-wildfires-power.html?searchResultPosition=6
 
 **Trump and Biden Town Halls: What to Watch For**\
 `President Trump and Joe Biden will appear at separate, nationally televised events on Thursday night, with the president facing one of his final prime-time opportunities to change the race’s trajectory.`\
