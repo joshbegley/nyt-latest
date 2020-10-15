@@ -19,7 +19,7 @@ https://nytimes.com/2020/10/15/sports/soccer/iker-casillas-madrid-spain.html?sea
 https://nytimes.com/2020/10/15/arts/television/jimmy-kimmel-rips-into-trumps-superspreader-rally.html?searchResultPosition=5
 
 **BTS Management’s Stock Soars on First Day of Trading**\
-`Shares in Big Hit, the company behind the global K-pop phenomenon, opened at more than double the offering price, then jumped 30 percent in early trading.`\
+`Shares in Big Hit, the company behind the K-pop phenomenon, opened at more than double the offering price, then jumped 30 percent in early trading before finishing down on the day.`\
 https://nytimes.com/2020/10/15/business/bts-stock.html?searchResultPosition=6
 
 **Citing Risk of Wildfires, Utility Plans to Cut Off Power to 50,000 in California**\
