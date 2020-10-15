@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/15/nyregion/amy-cooper-false-report-charge.html?sear
 https://nytimes.com/2020/10/15/health/covid-premature-births-lockdown.html?searchResultPosition=2
 
 **The 2020 Election Is Happening Right Now**\
-`Millions have voted in-person or by mail, with weeks to go before Election Day.`\
+`Millions have voted in person or by mail, with weeks to go before Election Day.`\
 https://nytimes.com/2020/10/15/us/politics/early-voting-photos.html?searchResultPosition=3
 
 **The 25 Most Influential Works of American Protest Art Since World War II**\
