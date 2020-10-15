@@ -27,7 +27,7 @@ https://nytimes.com/video/world/europe/100000007397639/london-mayor-coronavirus-
 https://nytimes.com/interactive/2020/10/15/smarter-living/how-to-hang-picture.html?searchResultPosition=7
 
 **This Elite School Is in a Brick Fortress. Can It Handle a Pandemic?**\
-`The building that is home to Manhattan’s Hunter College High closed after two students tested positive for the virus. Some teachers say the site isn’t safe.`\
+`The building that is home to Manhattan’s Hunter College High closed after at least two students tested positive for the virus. Some teachers say the site isn’t safe.`\
 https://nytimes.com/2020/10/15/nyregion/hunter-college-schools-teachers-coronavirus-covid.html?searchResultPosition=8
 
 **Daryl Morey Steps Down as G.M. of the Houston Rockets**\
