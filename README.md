@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/15/movies/belly-of-the-beast-review.html?searchResul
 https://nytimes.com/2020/10/15/world/europe/france-coronavirus-second-wave.html?searchResultPosition=3
 
 **Full List of the 2020 Tony Award Nominees**\
-`The 74th annual Tony nominations will be announced at noon.`\
+`The 74th annual Tony nominations were announced at noon.`\
 https://nytimes.com/2020/10/15/theater/tony-nominees.html?searchResultPosition=4
 
 **In Trying Times, 20 Wines Under $20 That Revive and Restore**\
