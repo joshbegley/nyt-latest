@@ -2,7 +2,7 @@
 `Private White House briefings were shared with investors who made fortuitous bets against the market in late February.`\
 https://nytimes.com/2020/10/15/business/dealbook/pandemic-briefings-investors.html?searchResultPosition=1
 
-**Scott Peterson’s Murder Convictions to Be Re-Examined, Court Orders**\
+**Scott Peterson’s Murder Convictions to Be Re-examined, Court Orders**\
 `The move comes two months after the California Supreme Court overturned a sentence of death for his 2004 convictions.`\
 https://nytimes.com/2020/10/15/us/scott-peterson.html?searchResultPosition=2
 
