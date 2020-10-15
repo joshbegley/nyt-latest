@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/15/nyregion/ruth-bader-ginsburg-statue-brooklyn.html
 `Lue will take over as Paul George and Kawhi Leonard each have only one guaranteed year remaining with the Clippers before they can return to free agency.`\
 https://nytimes.com/2020/10/15/sports/basketball/clippers-tyronn-lue.html?searchResultPosition=2
 
-**Trump ‘kisses dictators’ butts’ and has ‘flirted with white supremacists,’ Senator Ben Sasse, a Republican, tells constituents.**\
+**Trump ‘kisses dictators’ butts,’ Senator Ben Sasse, a Republican, tells constituents.**\
 `By Nicholas Fandos`\
 https://nytimes.com/2020/10/15/us/elections/ben-sasse-trump.html?searchResultPosition=3
 
