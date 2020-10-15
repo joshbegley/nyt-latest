@@ -1,5 +1,5 @@
 **18 Hours of Questions, Few Answers: What We Learned About Amy Coney Barrett**\
-`The Supreme Court nominee would not say whether the president could pardon himself or delay the election, but she did stake out a position on “little warm puppies.”`\
+`The Supreme Court nominee would not say whether the president could pardon himself or delay the election, but she displayed a sure command of the law.`\
 https://nytimes.com/2020/10/15/us/politics/amy-coney-barrett-what-we-learned.html?searchResultPosition=1
 
 **Bob Shanks, Influential TV Executive, Dies at 88**\
