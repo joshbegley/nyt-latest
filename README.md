@@ -10,17 +10,17 @@ https://nytimes.com/2020/10/15/us/scott-peterson.html?searchResultPosition=2
 `Conservative investors benefited from hints of the looming threat: This is your morning tip sheet.`\
 https://nytimes.com/2020/10/15/us/politics/virus-stocks-trump-administration.html?searchResultPosition=3
 
+**Tonight’s Dueling Town Halls: How to Watch**\
+`President Trump and Joe Biden will appear at simultaneous televised forums on Thursday night, starting at 8 p.m. Eastern time.`\
+https://nytimes.com/2020/10/15/us/politics/trump-biden-town-halls-time-channel-streaming-moderators-rules.html?searchResultPosition=4
+
 **Little Bursts of Fright: The Horror Anthology Is Having a Heyday**\
 `Monsters in minutes and ghosts on the go: several new offerings show why a compressed time frame can heighten onscreen scares.`\
-https://nytimes.com/2020/10/15/movies/horror-anthology-monsterland-welcome-to-the-blumhouse.html?searchResultPosition=4
+https://nytimes.com/2020/10/15/movies/horror-anthology-monsterland-welcome-to-the-blumhouse.html?searchResultPosition=5
 
 **‘White Riot’ Review: When Punk’s Stars Banded Against Racism**\
 `Rubika Shah’s documentary about the British organization Rock Against Racism is a compelling depiction of political organizing in the 1970s.`\
-https://nytimes.com/2020/10/15/movies/white-riot-review.html?searchResultPosition=5
-
-**Tonight’s Dueling Town Halls: How to Watch**\
-`President Trump and Joe Biden will appear at simultaneous televised forums on Thursday night, starting at 8 p.m. Eastern time.`\
-https://nytimes.com/2020/10/15/us/politics/trump-biden-town-halls-time-channel-streaming-moderators-rules.html?searchResultPosition=6
+https://nytimes.com/2020/10/15/movies/white-riot-review.html?searchResultPosition=6
 
 **‘Martin Eden’ Review: Reading and Writing His Way Out of the Pit**\
 `In this bold adaptation of the Jack London novel, a young writer suffers, fights and pays as he stands alone against the world.`\
