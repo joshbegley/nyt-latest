@@ -1,40 +1,40 @@
+**Your Thursday Briefing**\
+`Coronavirus, Supreme Court, Pret A Manger: Here’s what you need to know.`\
+https://nytimes.com/2020/10/14/briefing/coronavirus-supreme-court-pret-a-manger.html?searchResultPosition=1
+
 **The Jailed Activist Left a Letter Behind. The Message: Keep Fighting.**\
 `Pham Doan Trang was harassed for years by the Vietnamese police, even beaten. In a letter, she foretold her arrest and called for an end to one-party rule.`\
-https://nytimes.com/2020/10/14/world/asia/vietnam-pham-doan-trang-arrest.html?searchResultPosition=1
+https://nytimes.com/2020/10/14/world/asia/vietnam-pham-doan-trang-arrest.html?searchResultPosition=2
 
 **Corrections: Oct. 15, 2020**\
 `Corrections that appeared in print on Thursday, Oct. 15, 2020.`\
-https://nytimes.com/2020/10/14/pageoneplus/corrections-oct-15-2020.html?searchResultPosition=2
+https://nytimes.com/2020/10/14/pageoneplus/corrections-oct-15-2020.html?searchResultPosition=3
 
 **Dodgers Bury the Braves and Rewrite the Record Books**\
 `Five home runs, 13 hits, and 15 runs scored — and that was all in just the first three innings.`\
-https://nytimes.com/2020/10/14/sports/baseball/dodgers-braves-nlcs-records.html?searchResultPosition=3
+https://nytimes.com/2020/10/14/sports/baseball/dodgers-braves-nlcs-records.html?searchResultPosition=4
 
 **Quotation of the Day: As Cycling Grows, So Do Bike Thefts, and Locks Don’t Seem to Matter**\
 `Quotation of the Day for Thursday, October 15, 2020.`\
-https://nytimes.com/2020/10/14/todayspaper/quotation-of-the-day-as-cycling-grows-so-do-bike-thefts-and-locks-dont-seem-to-matter.html?searchResultPosition=4
+https://nytimes.com/2020/10/14/todayspaper/quotation-of-the-day-as-cycling-grows-so-do-bike-thefts-and-locks-dont-seem-to-matter.html?searchResultPosition=5
 
 **It Takes Two to Tie It**\
 `Lindsey Hobbs makes her New York Times Crossword debut.`\
-https://nytimes.com/2020/10/14/crosswords/daily-puzzle-2020-10-15.html?searchResultPosition=5
+https://nytimes.com/2020/10/14/crosswords/daily-puzzle-2020-10-15.html?searchResultPosition=6
 
 **‘Diamond Sweet 16’ Party Leaves 37 Infected and 270 in Quarantine**\
 `More than 80 people attended the birthday event, officials said. The Long Island venue was fined $12,000.`\
-https://nytimes.com/2020/10/14/nyregion/virus-outbreak-sweet-sixteen.html?searchResultPosition=6
+https://nytimes.com/2020/10/14/nyregion/virus-outbreak-sweet-sixteen.html?searchResultPosition=7
 
 **Jetpack Sighted Again Above Los Angeles, This Time at 6,000 Feet**\
 `Federal officials are looking into the second such sighting in just six weeks. Two airline pilots previously spotted a man in a jetpack at an altitude of 3,000 feet.`\
-https://nytimes.com/2020/10/14/us/jetpack-lax-sighting.html?searchResultPosition=7
+https://nytimes.com/2020/10/14/us/jetpack-lax-sighting.html?searchResultPosition=8
 
 **Federal Judge Strikes Down Waiting Period for Abortion in Tennessee**\
 `The ruling, which called the state’s 48-hour waiting period “gratuitously demeaning,” came at a pivotal moment for abortion access, as the Senate considers Judge Amy Coney Barrett for the Supreme Court.`\
-https://nytimes.com/2020/10/14/us/tennessee-abortion-ruling.html?searchResultPosition=8
+https://nytimes.com/2020/10/14/us/tennessee-abortion-ruling.html?searchResultPosition=9
 
 **Murky Financial Forecast Looms Over Yankees’ Off-Season Questions**\
 `The Yankees have several roster issues to solve, but their biggest question is one every M.L.B. team will confront: How much can they spend after a pandemic-affected season?`\
-https://nytimes.com/2020/10/14/sports/baseball/yankees-free-agency-preview.html?searchResultPosition=9
-
-**My Brother Died and Reminded Me of These Life Lessons**\
-`I went home to celebrate Frederick’s glorious life and was forced to reflect on my own.`\
-https://nytimes.com/2020/10/14/opinion/brother-death-lessons.html?searchResultPosition=10
+https://nytimes.com/2020/10/14/sports/baseball/yankees-free-agency-preview.html?searchResultPosition=10
 
