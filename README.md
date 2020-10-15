@@ -30,7 +30,7 @@ https://nytimes.com/2020/10/14/world/asia/vietnam-pham-doan-trang-arrest.html?se
 `Corrections that appeared in print on Thursday, Oct. 15, 2020.`\
 https://nytimes.com/2020/10/14/pageoneplus/corrections-oct-15-2020.html?searchResultPosition=8
 
-**With 11 Runs in One Inning, the Dodgers Bury the Braves**\
+**Dodgers Bury the Braves and Rewrite the Record Books**\
 `Five home runs, 13 hits, and 15 runs scored — and that was all in just the first three innings.`\
 https://nytimes.com/2020/10/14/sports/baseball/dodgers-braves-nlcs-records.html?searchResultPosition=9
 
