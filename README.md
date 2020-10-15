@@ -1,40 +1,40 @@
-**From Hiding, Head of Central Asia’s Only Democracy Says He’s Quitting**\
-`The president of Kyrgyzstan said he did not want to be remembered as a leader “who shed blood and shot at his own citizens.”`\
-https://nytimes.com/2020/10/15/world/asia/president-kyrgyzstan-resign.html?searchResultPosition=1
+**An Early Virus Stock Sell-Off**\
+`Conservative investors benefited from hints of the looming threat: This is your morning tip sheet.`\
+https://nytimes.com/2020/10/15/us/politics/virus-stocks-trump-administration.html?searchResultPosition=1
 
-**The Surging Virus**\
-`And what else you need to know today.`\
-https://nytimes.com/2020/10/15/briefing/nick-saban-europe-coronavirus.html?searchResultPosition=2
+**Little Bursts of Fright: The Horror Anthology Is Having a Heyday**\
+`Monsters in minutes and ghosts on the go: several new offerings show why a compressed time frame can heighten onscreen scares.`\
+https://nytimes.com/2020/10/15/movies/horror-anthology-monsterland-welcome-to-the-blumhouse.html?searchResultPosition=2
 
-**The Candidates: Donald Trump’s Promises**\
-`In the first of a two-part series exploring the policies of the presidential candidates, we look at whether Mr. Trump has made good on his commitments from 2016.`\
-https://nytimes.com/2020/10/15/podcasts/the-daily/donald-trump-election.html?searchResultPosition=3
+**‘White Riot’ Review: When Punk’s Stars Banded Against Racism**\
+`Rubika Shah’s documentary about the British organization Rock Against Racism is a compelling depiction of political organizing in the 1970s.`\
+https://nytimes.com/2020/10/15/movies/white-riot-review.html?searchResultPosition=3
 
-**How Green Is That Electric Car? And When It Hits 100 M.P.H.?**\
-`The Tesla Model S and the Porsche Taycan give environmentally conscious speedsters an outlet for their desires.`\
-https://nytimes.com/2020/10/15/business/electric-supercars-porsche-taycan-tesla.html?searchResultPosition=4
+**Tonight’s Dueling Town Halls: How to Watch**\
+`President Trump and Joe Biden will appear at simultaneous televised forums on Thursday night, starting at 8 p.m. Eastern time.`\
+https://nytimes.com/2020/10/15/us/politics/trump-biden-town-halls-time-channel-streaming-moderators-rules.html?searchResultPosition=4
 
-**A 2nd 911 Call: What to Know About the Amy Cooper Case**\
-`The case of a white woman who called the police on a Black bird-watcher prompted a  conversation amplified by the Black Lives Matter movement.`\
-https://nytimes.com/2020/10/15/nyregion/amy-cooper-false-report-charge.html?searchResultPosition=5
+**‘Martin Eden’ Review: Reading and Writing His Way Out of the Pit**\
+`In this bold adaptation of the Jack London novel, a young writer suffers, fights and pays as he stands alone against the world.`\
+https://nytimes.com/2020/10/15/movies/martin-eden-review.html?searchResultPosition=5
 
-**Did Lockdowns Lower Premature Births? A New Study Adds Evidence**\
-`Dutch researchers say the “impact was real,” adding to hopes that doctors will learn more about factors contributing to preterm birth.`\
-https://nytimes.com/2020/10/15/health/covid-premature-births-lockdown.html?searchResultPosition=6
+**‘Honest Thief’ Review: An Utterly Forgettable Thriller**\
+`In the latest Liam Neeson film, an honorable crook faces off against crooked cops.`\
+https://nytimes.com/2020/10/15/movies/honest-thief-review.html?searchResultPosition=6
 
-**The 2020 Election Is Happening Right Now**\
-`Millions have voted in person or by mail, with weeks to go before Election Day.`\
-https://nytimes.com/2020/10/15/us/politics/early-voting-photos.html?searchResultPosition=7
+**‘The Devil Has a Name’ Review: A Little Guy Takes On Big Oil**\
+`A farmer sues an oil company in this well-meaning but muddled drama directed by Edward James Olmos.`\
+https://nytimes.com/2020/10/15/movies/the-devil-has-a-name-review.html?searchResultPosition=7
 
-**The 25 Most Influential Works of American Protest Art Since World War II**\
-`Three artists, a curator and a writer came together to discuss the pieces that have not only best reflected the era, but have made an impact.`\
-https://nytimes.com/2020/10/15/t-magazine/most-influential-protest-art.html?searchResultPosition=8
+**‘Love and Monsters’ Review: Coming-of-Age After the Apocalypse**\
+`The new sci-fi adventure from Michael Matthews lacks the self-seriousness of typical dystopian flicks but doesn’t completely lack depth.`\
+https://nytimes.com/2020/10/15/movies/love-and-monsters-review.html?searchResultPosition=8
 
-**The East Village, Home of Punks and Poets: Here’s a Tour**\
-`Luc Sante, author of “Low Life,” chats about the neighborhood’s history, including CBGB, Warhol’s Electric Circus and the Tompkins Square Park riots.`\
-https://nytimes.com/2020/10/15/arts/design/east-village-virtual-tour.html?searchResultPosition=9
+**Review: College Is Hard, but Less So in This Mopey Talkathon**\
+`Cooper Raiff wrote, directed and stars in his first feature film, which is both more and less than it appears.`\
+https://nytimes.com/2020/10/15/movies/shithouse-review.html?searchResultPosition=9
 
-**Black Products. Black Shoppers. Black Workers. But Who Owns the Store?**\
-`At a Chicago beauty supply shop, one American dream has come true. Another is still waiting for its chance.`\
-https://nytimes.com/2020/10/15/business/beauty-store-race-protests.html?searchResultPosition=10
+**‘Freedia Got a Gun’ Review: A Musician Makes a Call to Action**\
+`In this documentary, the performer Big Freedia tackles the epidemic of gun violence in New Orleans.`\
+https://nytimes.com/2020/10/15/movies/freedia-got-a-gun-review.html?searchResultPosition=10
 
