@@ -2,13 +2,13 @@
 `Every place has its own climate risk. What is it where you live? How may climate change affect your community?`\
 https://nytimes.com/2020/10/15/learning/whats-going-on-in-this-graph-oct-21-2020.html?searchResultPosition=1
 
-**YouTube Cracks Down on QAnon Conspiracy Theory, Citing Offline Violence**\
-`YouTube has played a bigger role in moving QAnon from the fringes to the mainstream than most platforms.`\
-https://nytimes.com/2020/10/15/technology/youtube-bans-qanon-violence.html?searchResultPosition=2
-
 **What to Expect at the 2020 Tony Award Nominations**\
 `In a season cut short by the coronavirus pandemic, only 18 shows are eligible for awards. The ceremony is expected to take place in December.`\
-https://nytimes.com/2020/10/15/theater/tony-award-nominations.html?searchResultPosition=3
+https://nytimes.com/2020/10/15/theater/tony-award-nominations.html?searchResultPosition=2
+
+**YouTube Cracks Down on QAnon Conspiracy Theory, Citing Offline Violence**\
+`YouTube has played a bigger role in moving QAnon from the fringes to the mainstream than most platforms.`\
+https://nytimes.com/2020/10/15/technology/youtube-bans-qanon-violence.html?searchResultPosition=3
 
 **Should I Let My Boyfriend Be a Poll Worker on Election Day?**\
 `He wants to help, but I’m worried that doing so could put us both at risk.`\
