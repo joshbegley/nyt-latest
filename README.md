@@ -14,7 +14,7 @@ https://nytimes.com/2020/10/15/world/europe/germany-gender-bill-language.html?se
 `Every fall, air pollution spikes in India. Doctors worry what it will mean for coronavirus patients with breathing problems.`\
 https://nytimes.com/2020/10/15/world/asia/india-covid-pollution.html?searchResultPosition=4
 
-**DealBook: These Traders Got the Jump on the Pandemic**\
+**These Traders Got the Jump on the Pandemic**\
 `Private White House briefings were shared with investors who made fortuitous bets against the market in late February.`\
 https://nytimes.com/2020/10/15/business/dealbook/pandemic-briefings-investors.html?searchResultPosition=5
 
