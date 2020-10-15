@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/15/nyregion/oneonta-college-coronavirus-president.ht
 https://nytimes.com/2020/10/15/opinion/stimulus-deal-trump.html?searchResultPosition=2
 
 **Trump Addresses Killing of Antifa Activist**\
-`During his campaign rally in Greenville, N.C., President Trump spoke about the killing of Michael Reinoehl, a protester in Portland, Ore., by a U.S. marshals task force in unmarked vehicles.`\
+`During his campaign rally in Greenville, N.C., President Trump spoke about the killing of Michael Reinoehl, a protester in Portland, Ore., by a U.S. marshals task force.`\
 https://nytimes.com/video/us/politics/100000007397667/trump-michael-reinoehl-us-marshals.html?searchResultPosition=3
 
 **The British Design Legend Known for Tailoring With a Twist**\
