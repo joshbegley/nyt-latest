@@ -1,6 +1,6 @@
 **Here’s What It’s Like to Appear on ‘Curb Your Enthusiasm’**\
 `The HBO comedy has welcomed a rich array of guest stars over the past 20 years. Bryan Cranston, Ricky Gervais, Judge Judy, Kym Whitley and others describe how it feels to face off with Larry David.`\
-https://nytimes.com/2020/10/15/arts/television/curb-your-enthusiasm-anniversary.html?searchResultPosition=1
+https://nytimes.com/2020/10/15/arts/television/curb-your-enthusiasm-20th-anniversary.html?searchResultPosition=1
 
 **What’s Going On in This Graph? | Oct. 21, 2020**\
 `Every place has its own climate risk. What is it where you live? How may climate change affect your community?`\
