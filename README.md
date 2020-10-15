@@ -1,4 +1,4 @@
-**Mary-Louise Parker: ‘My Heart is Aching’ for the Return of Live Theater**\
+**Mary-Louise Parker: ‘My Heart Is Aching’ for the Return of Live Theater**\
 `The 56-year-old actress received her fourth Tony nomination for her role as a creative-writing professor grappling with a cancer diagnosis in “The Sound Inside.”`\
 https://nytimes.com/2020/10/15/theater/mary-louise-parker-sound-inside-tonys.html?searchResultPosition=1
 
