@@ -24,7 +24,7 @@ https://nytimes.com/2020/10/15/theater/lois-smith-tony-awards.html?searchResultP
 
 **Could Trump Still Spread the Coronavirus? Probably Not, Experts Say**\
 `While questions have surrounded the timing and severity of the president’s illness, health experts said he was unlikely to infect people at Thursday’s town hall event on NBC.`\
-https://nytimes.com/2020/10/15/us/politics/covid-trump.html?searchResultPosition=7
+https://nytimes.com/2020/10/15/us/politics/covid-trump-town-hall.html?searchResultPosition=7
 
 **What Students Are Saying About Mental Health, Improving Sports and a Dusk-Lit Train**\
 `Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
