@@ -26,9 +26,9 @@ https://nytimes.com/2020/10/15/us/richard-holzer-synagogue-bomb.html?searchResul
 `Gisele Barreto Fetterman said she had asked that a woman who directed racist slurs at her be given “the necessary treatment and intervention needed in order to break this cycle” of hate.`\
 https://nytimes.com/2020/10/15/us/gisele-fetterman-racial-slur.html?searchResultPosition=7
 
-**Your Friday Briefing**\
-`U.S. election, Boris Johnson, coronavirus: Here’s what you need to know.`\
-https://nytimes.com/2020/10/15/briefing/your-friday-briefing.html?searchResultPosition=8
+**U.S. Election, Boris Johnson, Coronavirus: Your Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2020/10/15/briefing/us-election-boris-johnson-coronavirus-your-friday-briefing.html?searchResultPosition=8
 
 **Trump Said to Be Warned That Giuliani Was Conveying Russian Disinformation**\
 `President Trump shrugged off the warning from the intelligence agencies, officials said.`\
