@@ -34,7 +34,7 @@ https://nytimes.com/video/us/politics/100000007400121/who-coronavirus-remdesivir
 `The prime minister blew up over what he called Europe’s insistence that Britain make all the compromises. But Europe says it still wants to talk.`\
 https://nytimes.com/2020/10/16/world/europe/brexit-boris-johnson-europe.html?searchResultPosition=9
 
-**How The Babylon Bee, a Right-Wing Satire Site, Capitalizes on Confusion**\
-`President Trump tweeted about one of the site’s stories on Friday. It is unclear whether he knew it was a joke.`\
-https://nytimes.com/interactive/2020/10/16/technology/trump-babylon-bee-twitter.html?searchResultPosition=10
+**Republicans, You Are Complicit**\
+`A reader says Senate Republicans need to take responsibility for crises current and future. Also: The financial sell-off and the pandemic; the artistry of the rapper Megan Thee Stallion.`\
+https://nytimes.com/2020/10/16/opinion/letters/trump-republicans-senate.html?searchResultPosition=10
 
