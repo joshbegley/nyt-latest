@@ -18,7 +18,7 @@ https://nytimes.com/2020/10/16/crosswords/spellingbee-puzzles.html?searchResultP
 `The White House has dismantled major climate and environmental policies focused on clean air, water, wildlife and toxic chemicals. Here’s how it adds up.`\
 https://nytimes.com/interactive/2020/climate/trump-environment-rollbacks-list.html?searchResultPosition=5
 
-**French Police Fatally Shoot Man Who Beheaded Victim on the Street**\
+**French Police Shoot and Kill Man After a Fatal Knife Attack on the Street**\
 `France’s anti-terrorism prosecutors are investigating the brazen attack, which took place in a suburb north of Paris.`\
 https://nytimes.com/2020/10/16/world/europe/france-decapitate.html?searchResultPosition=6
 
