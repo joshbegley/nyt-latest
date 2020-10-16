@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/16/at-home/newsletter.html?searchResultPosition=1
 `These physicists were never amazing football players, but they’ve helped explain some of the magic when a quarterback goes deep.`\
 https://nytimes.com/2020/10/16/science/football-pass-physics.html?searchResultPosition=2
 
-**He Chopped His Boss Into 108 Pieces. Is His Sentence Too Short?**\
+**He Dismembered His Boss, but a Judge Ruled It Manslaughter**\
 `A New York Times reporter and true crime author reflects on one of the strangest crimes that he’s encountered in Canada.`\
 https://nytimes.com/2020/10/16/world/canada/Zhao-Li-chopped-body-108-pieces.html?searchResultPosition=3
 
