@@ -12,7 +12,7 @@ https://nytimes.com/2020/10/16/technology/what-went-viral-this-week.html?searchR
 
 **What You Need to Know About ‘The Trial of the Chicago 7’**\
 `Aaron Sorkin’s Netflix film dramatizes the notorious 1969 political trial with many players. Use this guide to understand the people and the issues at stake.`\
-https://nytimes.com/2020/10/16/movies/what-you-need-to-know-about-the-trial-of-the-chicago-7.html?searchResultPosition=4
+https://nytimes.com/2020/10/16/movies/chicago-7-trial.html?searchResultPosition=4
 
 **Presidential Race, Budget Deficit, Halloween: Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
