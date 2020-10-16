@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/15/briefing/your-friday-briefing.html?searchResultPo
 `President Trump shrugged off the warning from the intelligence agencies, officials said.`\
 https://nytimes.com/2020/10/15/us/politics/giuliani-russian-disinformation.html?searchResultPosition=3
 
-**NBC’s Savannah Guthrie Grills Trump Opposite ABC’s Mild Biden Show**\
+**NBC’s Savannah Guthrie Grills Trump Opposite ABC’s Sober Biden Talk**\
 `In place of a canceled debate, a pair of network prime-time town halls made for starkly contrasting telecasts.`\
 https://nytimes.com/2020/10/15/business/media/savannah-guthrie-trump-biden.html?searchResultPosition=4
 
