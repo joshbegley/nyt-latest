@@ -30,11 +30,11 @@ https://nytimes.com/2020/10/15/us/politics/presidential-town-halls.html?searchRe
 `Quotation of the Day for Friday, October 16, 2020.`\
 https://nytimes.com/2020/10/15/todayspaper/quotation-of-the-day-amid-a-rising-second-wave-and-a-brexit-deadline-johnson-stalls-for-time.html?searchResultPosition=8
 
+**In a first, Biden says he’ll have a clear stance on expanding the Supreme Court.**\
+`By Sydney Ember`\
+https://nytimes.com/2020/10/15/us/elections/in-a-first-biden-says-hell-have-a-clear-stance-on-expanding-the-supreme-court.html?searchResultPosition=9
+
 **Savannah Guthrie gets answers from Trump by setting a fast pace and following up.**\
 `By Annie Karni`\
-https://nytimes.com/2020/10/15/us/elections/savannah-guthrie-trump.html?searchResultPosition=9
-
-**Biden says that elements of the 1994 crime bill were a ‘mistake.’**\
-`By Reid J. Epstein`\
-https://nytimes.com/2020/10/15/us/elections/joe-biden-crime-bill.html?searchResultPosition=10
+https://nytimes.com/2020/10/15/us/elections/savannah-guthrie-trump.html?searchResultPosition=10
 
