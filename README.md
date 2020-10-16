@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/16/world/australia/daniel-andrews-victoria-lockdown.
 https://nytimes.com/2020/10/16/us/bijan-ghaisar-police-indicted.html?searchResultPosition=3
 
 **Mexico’s Former Defense Minister Is Arrested in Los Angeles**\
-`Gen. Salvador Cienfuegos was detained at the airport at the request of the D.E.A. and will face drug and money-laundering charges, a federal law enforcement official said.`\
+`Gen. Salvador Cienfuegos, who was detained at the airport, is the first high-ranking Mexican military official to be taken into custody in the U.S. in connection with drug-related corruption.`\
 https://nytimes.com/2020/10/16/us/mexico-general-cienfuegos-dea.html?searchResultPosition=4
 
 **Will Jacinda Ardern Win a Second Term? New Zealand’s Election, Explained**\
