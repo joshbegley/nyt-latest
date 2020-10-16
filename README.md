@@ -30,7 +30,7 @@ https://nytimes.com/2020/10/16/world/europe/putin-nuclear-new-start-treaty.html?
 `If you’re anything like me, you’ve been spending even more time at your desk than usual. I’ve found that keeping clutter to a minimum boosts my productivity.`\
 https://nytimes.com/interactive/2020/10/16/smarter-living/wirecutter/desk-organization.html?searchResultPosition=8
 
-**Suggestions for a Better Big Picture**\
+**Suggestions for a Better Big Picture for English Soccer**\
 `Whispered plans for restructuring English soccer vanished as soon as they were exposed to sunlight. But the problems they targeted are real, and some of the ideas are worth adopting.`\
 https://nytimes.com/2020/10/16/sports/soccer/project-big-picture-england-soccer.html?searchResultPosition=9
 
