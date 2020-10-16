@@ -1,6 +1,6 @@
 **Don’t Shame Your Neighbors**\
 `It’s a favorite American pastime. But it’s not helping.`\
-https://nytimes.com/2020/10/16/opinion/dont-shame-your-neighbors.html?searchResultPosition=1
+https://nytimes.com/2020/10/16/opinion/shame-masks-coronavirus-covid.html?searchResultPosition=1
 
 **N.Y.C.’s First Lady Won’t Seek Office as Mayor’s Popularity Fades**\
 `Chirlane McCray, who had considered running for borough president, said she wants to focus on helping the city recover from the pandemic.`\
