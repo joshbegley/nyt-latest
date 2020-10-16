@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/15/health/coronavirus-remdesivir-who.html?searchResultPosition=1
 
 **A Judge Pushes a Police Officer and Hurls Threats, but Isn’t Charged**\
-`Body camera footage shows Justice Mark J. Grisanti of the New York Supreme Court invoking his friendship with the mayor and his ties to the police.`\
+`The white New York State judge invoked his friendship with the mayor and ties to the police, raising questions about whether his status and race were factors.`\
 https://nytimes.com/2020/10/15/nyregion/judge-grisanti-buffalo-police.html?searchResultPosition=2
 
 **Jake Gyllenhaal on His First Tony Nomination**\
