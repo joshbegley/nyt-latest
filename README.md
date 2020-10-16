@@ -1,18 +1,18 @@
+**Savannah Guthrie gets answers from Trump by setting a fast pace and following up.**\
+`By Annie Karni`\
+https://nytimes.com/2020/10/15/us/elections/savannah-guthrie-trump.html?searchResultPosition=1
+
 **Biden says that elements of the 1994 crime bill were a ‘mistake.’**\
 `By Reid J. Epstein`\
-https://nytimes.com/2020/10/15/us/elections/joe-biden-crime-bill.html?searchResultPosition=1
+https://nytimes.com/2020/10/15/us/elections/joe-biden-crime-bill.html?searchResultPosition=2
 
 **Remdesivir Fails to Prevent Covid-19 Deaths in Huge Trial**\
 `An antiviral widely used to treat hospitalized patients did not lower the mortality rate in a multinational trial.`\
-https://nytimes.com/2020/10/15/health/coronavirus-remdesivir-who.html?searchResultPosition=2
+https://nytimes.com/2020/10/15/health/coronavirus-remdesivir-who.html?searchResultPosition=3
 
 **A Judge Pushes a Police Officer and Hurls Threats, but Isn’t Charged**\
 `The white New York State judge invoked his friendship with the mayor and ties to the police, raising questions about whether his status and race were factors.`\
-https://nytimes.com/2020/10/15/nyregion/judge-grisanti-buffalo-police.html?searchResultPosition=3
-
-**“The U.K. is up 2,500 percent, the EU is up 722 percent and the United States is down 21 percent.”**\
-`Cases in Britain have increased by 154 percent and have increased in the U.S. by 23 percent in the last two weeks.`\
-https://nytimes.com/2020/10/15/us/politics/the-uk-is-up-2500-percent-the-eu-is-up-722-percent-and-the-united-states-is-down-21-percent.html?searchResultPosition=4
+https://nytimes.com/2020/10/15/nyregion/judge-grisanti-buffalo-police.html?searchResultPosition=4
 
 **Jake Gyllenhaal on His First Tony Nomination**\
 `“I’m so deeply moved,” said the actor, who was nominated for best lead actor for his role in “Sea Wall/A Life” and was a producer for that show and “Slave Play.”`\
