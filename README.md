@@ -8,7 +8,7 @@ https://nytimes.com/2020/10/16/us/bijan-ghaisar-police-indicted.html?searchResul
 
 **Mexico’s Former Defense Minister Is Arrested in Los Angeles**\
 `Gen. Salvador Cienfuegos was detained at the airport at the request of the D.E.A. and will face drug and money-laundering charges, a federal law enforcement official said.`\
-https://nytimes.com/2020/10/16/us/mexico-general-arrest-la-airport.html?searchResultPosition=3
+https://nytimes.com/2020/10/16/us/mexico-general-cienfuegos-dea.html?searchResultPosition=3
 
 **Will Jacinda Ardern Win a Second Term? New Zealand’s Election, Explained**\
 `Voters go to the polls on Saturday after a campaign that focused heavily on Ms. Ardern’s successful handling of the coronavirus outbreak.`\
