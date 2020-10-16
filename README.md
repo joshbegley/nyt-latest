@@ -15,7 +15,7 @@ https://nytimes.com/2020/10/15/us/politics/presidential-town-halls.html?searchRe
 https://nytimes.com/2020/10/15/todayspaper/quotation-of-the-day-amid-a-rising-second-wave-and-a-brexit-deadline-johnson-stalls-for-time.html?searchResultPosition=4
 
 **Savannah Guthrie gets answers from Trump by setting a fast pace and following up.**\
-`By Annie Karni`\
+`Ms. Guthrie pressed the president on why he had retweeted a conspiracy theory, and whether he’d taken a coronavirus test on the day of the last debate.`\
 https://nytimes.com/2020/10/15/us/elections/savannah-guthrie-trump.html?searchResultPosition=5
 
 **Biden says that elements of the 1994 crime bill were a ‘mistake.’**\
