@@ -1,4 +1,4 @@
-**In the World’s Longest Lockdown, One Man is Omnipresent**\
+**In One of the World’s Longest Lockdowns, One Man is Omnipresent**\
 `Daniel Andrews, Victoria’s premier, has conducted 100 consecutive daily news conferences. In Melbourne, we all watch. We are all exhausted.`\
 https://nytimes.com/2020/10/16/world/australia/daniel-andrews-victoria-lockdown.html?searchResultPosition=1
 
