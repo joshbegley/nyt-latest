@@ -1,5 +1,5 @@
-**Former Top Mexican Defense Official Is Arrested in Los Angeles**\
-`Gen. Salvador Cienfuegos was detained at the airport at the request of the Drug Enforcement Administration and will face drug and money-laundering charges, a federal law enforcement official said.`\
+**Mexico’s Former Defense Minister Is Arrested in Los Angeles**\
+`Gen. Salvador Cienfuegos was detained at the airport at the request of the D.E.A. and will face drug and money-laundering charges, a federal law enforcement official said.`\
 https://nytimes.com/2020/10/16/us/mexico-general-arrest-la-airport.html?searchResultPosition=1
 
 **Will Jacinda Ardern Win a Second Term? New Zealand’s Election, Explained**\
