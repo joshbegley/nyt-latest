@@ -1,4 +1,4 @@
-**Ruth Kluger, Who Wrote Haunting Holocaust Memoir, Dies at 88**\
+**Ruth Kluger, Author of a Haunting Holocaust Memoir, Dies at 88**\
 `“Still Alive” was an unforgiving view of anti-Semitism in Vienna and a feminist window on the war and the world beyond.`\
 https://nytimes.com/2020/10/16/us/ruth-kluger-dies.html?searchResultPosition=1
 
