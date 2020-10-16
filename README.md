@@ -26,8 +26,8 @@ https://nytimes.com/interactive/2020/10/16/technology/trump-babylon-bee-twitter.
 `A reader says Senate Republicans need to take responsibility for crises current and future. Also: The financial sell-off and the pandemic; the artistry of the rapper Megan Thee Stallion.`\
 https://nytimes.com/2020/10/16/opinion/letters/trump-republicans-senate.html?searchResultPosition=7
 
-**Patriots and Colts Cancel Practices but Insist Games Will Go On**\
-`Both teams say they will play on Sunday. An N.F.L. schedule with little wiggle room may leave them no choice.`\
+**Patriots and Colts Report New Cases but Insist Games Will Go On**\
+`Indianapolis quickly reverses course after announcing four positives, saying re-testing had given different results.`\
 https://nytimes.com/2020/10/16/sports/football/patriots-colts-coronavirus-nfl.html?searchResultPosition=8
 
 **How Much Do You Really Miss Going to the Movies?**\
