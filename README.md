@@ -1,4 +1,4 @@
-**A Combative Trump and a Deliberate Biden Sparrom Afar at Town Halls**\
+**A Combative Trump and a Deliberate Biden Spar From Afar at Town Halls**\
 `With less than three weeks left in the campaign, there was no sign that either candidate was diverging from the political tracks they laid down months ago.`\
 https://nytimes.com/2020/10/15/us/politics/presidential-town-halls.html?searchResultPosition=1
 
