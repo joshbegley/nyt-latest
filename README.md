@@ -1,10 +1,10 @@
-**End Our National Crisis**\
-`The case against Donald Trump.`\
-https://nytimes.com/interactive/2020/10/16/opinion/donald-trump-worst-president.html?searchResultPosition=1
-
 **The Power Picnic Is Spreading**\
 `With outdoor meals one of the few pleasures sanctioned during the pandemic, companies are forming to help you think beyond wicker basket and frayed blanket.`\
-https://nytimes.com/2020/10/16/style/how-to-do-a-nice-picnic.html?searchResultPosition=2
+https://nytimes.com/2020/10/16/style/picnic-basket-blanket-food.html?searchResultPosition=1
+
+**End Our National Crisis**\
+`The case against Donald Trump.`\
+https://nytimes.com/interactive/2020/10/16/opinion/donald-trump-worst-president.html?searchResultPosition=2
 
 **The Candidates: Joe Biden’s Plans**\
 `In the second part of our look at the presidential candidates’ policies, we explore Joe Biden’s plans for a crisis presidency.`\
