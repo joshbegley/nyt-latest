@@ -6,8 +6,8 @@ https://nytimes.com/video/world/australia/100000007401139/jacinda-ardern-new-zea
 `The phrase has poured into the nation’s rhetorical bloodstream. Organizations from the N.F.L. to art museums to colleges requiring the SAT are accused of perpetuating it.`\
 https://nytimes.com/2020/10/17/us/white-supremacy.html?searchResultPosition=2
 
-**Nick Saban Cleared to Coach Alabama, Days After Testing Positive for Coronavirus**\
-`The coach can take the field for Saturday’s game against Georgia after a series of negative tests.`\
+**Alabama Says Nick Saban Does Not Have Coronavirus, Can Coach Saturday**\
+`The university said an earlier positive test result was false, after a series of negative tests. He is expected to take the field against Georgia.`\
 https://nytimes.com/2020/10/17/sports/ncaafootball/nick-saban-alabama-georgia-coronavirus.html?searchResultPosition=3
 
 **The Women Behind the Million Man March**\
