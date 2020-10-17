@@ -22,19 +22,19 @@ https://nytimes.com/2020/10/16/us/politics/justice-department-barr-prosecutors.h
 `Times architecture critic Michael Kimmelman explores what is, in normal times, the busiest thoroughfare in America.`\
 https://nytimes.com/interactive/2020/10/16/arts/walking-42-street.html?searchResultPosition=6
 
+**Trump is in Georgia, trying to shore up support in a critical battleground state.**\
+`By Astead W. Herndon`\
+https://nytimes.com/2020/10/16/us/elections/trump-is-in-georgia-trying-to-shore-up-support-in-a-critical-battleground-state.html?searchResultPosition=7
+
 **What Went Viral This Week**\
 `Hunter Biden, a “Two and a Half Men” star’s death and Amy Coney Barrett’s empty notepad carried the week on social media.`\
-https://nytimes.com/2020/10/16/technology/what-went-viral-this-week.html?searchResultPosition=7
+https://nytimes.com/2020/10/16/technology/what-went-viral-this-week.html?searchResultPosition=8
 
 **What You Need to Know About ‘The Trial of the Chicago 7’**\
 `Aaron Sorkin’s Netflix film dramatizes the notorious 1969 political trial with many players. Use this guide to understand the people and the issues at stake.`\
-https://nytimes.com/2020/10/16/movies/chicago-7-trial.html?searchResultPosition=8
+https://nytimes.com/2020/10/16/movies/chicago-7-trial.html?searchResultPosition=9
 
 **Presidential Race, Budget Deficit, Halloween: Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/10/16/briefing/presidential-race-budget-deficit-halloween.html?searchResultPosition=9
-
-**Don’t Shame Your Neighbors**\
-`It’s a favorite American pastime. But it’s not helping.`\
-https://nytimes.com/2020/10/16/opinion/shame-masks-coronavirus-covid.html?searchResultPosition=10
+https://nytimes.com/2020/10/16/briefing/presidential-race-budget-deficit-halloween.html?searchResultPosition=10
 
