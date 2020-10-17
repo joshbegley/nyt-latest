@@ -1,40 +1,40 @@
-**In My Mountain Town, We’re Preparing for Dark Times**\
-`As the contagion spreads, we look ahead to winter and wonder whom we can safely pull close.`\
-https://nytimes.com/2020/10/17/opinion/covid-19-winter.html?searchResultPosition=1
+**Despite Everything, People Still Have Weddings at ‘Plantation’ Sites**\
+`Weddings help pay for education at American labor camp sites and connect us with history. Is that good enough?`\
+https://nytimes.com/2020/10/17/style/despite-everything-people-still-have-weddings-at-plantation-sites.html?searchResultPosition=1
 
-**Jacinda Ardern, Hero to Liberals Abroad, Is Validated at Home**\
-`New Zealand’s prime minister and her party are coasting to victory in national elections, but it is unclear how far she will push her progressive promises.`\
-https://nytimes.com/2020/10/17/world/asia/jacinda-ardern-election-new-zealand.html?searchResultPosition=2
+**Joe Biden’s Non-Radical 1960s**\
+`Trump has called Biden a tool of leftist agitators. Friends say that has never much been his way, even as a young man surrounded by protest.`\
+https://nytimes.com/2020/10/17/us/politics/joe-biden-college-1960s.html?searchResultPosition=2
 
-**‘Please Like Me,’ Trump Begged. For Many Women, It’s Way Too Late.**\
-`The white suburban voters the president needs to carve a path to victory have turned away from him, for deeply personal reasons.`\
-https://nytimes.com/2020/10/17/us/politics/trump-women-voters.html?searchResultPosition=3
+**Sacha Baron Cohen: This Time He’s Serious**\
+`Reviving his Borat character and playing the political activist Abbie Hoffman, the actor feels he “had to ring the alarm bell and say that democracy is in peril this year.”`\
+https://nytimes.com/2020/10/17/style/sacha-baron-cohen-maureen-dowd-interview.html?searchResultPosition=3
 
-**Make Your First Home Your Last: The Case for Not Moving Up**\
-`It’s a tough moment for big decisions. Think more about what you’ll want in three years — and not just three months, when we’ll still be shut in.`\
-https://nytimes.com/2020/10/17/your-money/real-estate-coronavirus-mortgage.html?searchResultPosition=4
+**In Kalamazoo, Old High School Classmates Reckon With a Divided Country**\
+`The Michigan city, like the state, is a battleground of cultural and racial tensions. I should know: I grew up there.`\
+https://nytimes.com/2020/10/17/us/politics/voters-michigan-kalamazoo.html?searchResultPosition=4
 
-**Will Smith Homers Off Will Smith, and the Dodgers Top the Braves**\
-`Yes, you read that correctly.`\
-https://nytimes.com/2020/10/17/sports/baseball/will-smith-dodgers-braves.html?searchResultPosition=5
+**For Young Rohingya Brides, Marriage Means a Perilous, Deadly Crossing**\
+`Girls and young women from refugee camps in Bangladesh, promised to men they have never met, are undertaking the dangerous journey to Malaysia to join them.`\
+https://nytimes.com/2020/10/17/world/asia/rohingya-child-brides.html?searchResultPosition=5
 
-**Trick or Treat: It’s Mom and Dad!**\
-`The world’s worst parents come back to haunt us, in Lois Lowry’s “The Willoughbys Return.”`\
-https://nytimes.com/2020/10/17/books/review/lois-lowry-the-willoughbys-return.html?searchResultPosition=6
+**The Comforts of Clutter**\
+`Objects saved and accumulated can be a balm for uncertain times.`\
+https://nytimes.com/2020/10/17/style/the-comforts-of-clutter.html?searchResultPosition=6
 
-**Astros Battle Back to Force a Game 7 Against the Rays**\
-`Tampa Bay will start Charlie Morton, a former Astro, in a do-or-die game Saturday night, hoping to avoid joining the 2004 Yankees as the only teams to lose a series after taking a 3-0 lead.`\
-https://nytimes.com/2020/10/17/sports/baseball/rays-astros-game-7.html?searchResultPosition=7
+**For Long-Term Investors, Small Things Like Presidential Elections Don’t Matter**\
+`There is heartbreak almost everywhere you look, our columnist says, but the stock market usually rises anyway.`\
+https://nytimes.com/2020/10/17/business/presidential-election-stocks-coronavirus-.html?searchResultPosition=7
 
-**Invasion of the Memory Snatchers**\
-`In Kory Merritt’s “No Place for Monsters,” an invisible force is snatching kids in the night, erasing them not only from their beds but from everyone else’s memory.`\
-https://nytimes.com/2020/10/17/books/review/no-place-for-monsters-kory-merritt.html?searchResultPosition=8
+**A Black Hole’s Lunch: Stellar Spaghetti**\
+`Astronomers observed a star become a “feast” for a cosmic monster.`\
+https://nytimes.com/2020/10/17/science/astronomy-black-hole-at1910qix.html?searchResultPosition=8
 
-**Rhonda Fleming, 97, Movie Star Made for Technicolor, Is Dead**\
-`Ms. Fleming’s roles ranged from Wyatt Earp’s love interest to a princess in King Arthur’s court.`\
-https://nytimes.com/2020/10/16/movies/rhonda-fleming-dead.html?searchResultPosition=9
+**‘How Weird Is All of This?’ Fans Return to a Warped Ballpark Experience**\
+`The National League Championship Series gave fans their first chance to watch M.L.B. action in person, but it wasn’t a typical stadium outing.`\
+https://nytimes.com/2020/10/17/sports/baseball/mlb-fans-at-stadiums.html?searchResultPosition=9
 
-**Quotation of the Day: Inferno Threatens World’s Largest Tropical Wetland**\
-`Quotation of the Day for Saturday, October 17, 2020.`\
-https://nytimes.com/2020/10/16/todayspaper/quotation-of-the-day-inferno-threatens-worlds-largest-tropical-wetland.html?searchResultPosition=10
+**N.Y.C. Was Once a Bastion of G.O.P. Moderates. Then Trump Came Along.**\
+`For decades, Republicans in Manhattan carved out a niche by embracing socially liberal causes. President Trump’s election destroyed that centrism.`\
+https://nytimes.com/2020/10/17/nyregion/giuliani-republican-party-nyc.html?searchResultPosition=10
 
