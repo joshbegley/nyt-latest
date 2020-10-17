@@ -8,7 +8,7 @@ https://nytimes.com/2020/10/16/us/politics/georgia-polls-trump-biden.html?search
 
 **$421 Million in Debt: Trump Calls It ‘a Peanut,’ but Challenges Lie Ahead**\
 `The president on Thursday played down big loans he guaranteed for his struggling businesses. But much of that debt is soon to come due in the midst of declining revenue and an I.R.S. audit that could cost him over $100 million.`\
-https://nytimes.com/2020/10/16/us/trump-debt-finances.html?searchResultPosition=3
+https://nytimes.com/2020/10/16/us/trump-taxes.html?searchResultPosition=3
 
 **Killing of White Farmer Becomes a Flash Point in South Africa**\
 `Outside a court hearing for two Black suspects in a murder case, white Afrikaners nostalgic for the apartheid era and Black protesters angry that whites still own most farmland squared off.`\
