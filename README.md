@@ -12,7 +12,7 @@ https://nytimes.com/2020/10/17/opinion/hospital-internet-security-ransomware.htm
 
 **At Least 3 Injured in Explosion at Virginia Strip Mall**\
 `The shopping center was a “complete loss,” a city official said. The cause of the explosion was unknown.`\
-https://nytimes.com/2020/10/17/us/explosion-harrionsburg-virginia.html?searchResultPosition=4
+https://nytimes.com/2020/10/17/us/explosion-harrisonburg-virginia.html?searchResultPosition=4
 
 **Ernst Struggles in Iowa as Republicans Battle to Hold Senate Amid Trump’s Woes**\
 `Senator Joni Ernst, the first woman to represent Iowa in Congress, is facing the same headwinds plaguing President Trump, who is lagging in the state in part because of deep disadvantage among women.`\
