@@ -2,8 +2,8 @@
 `Federal district courts have tended to rule for Democrats in litigation over how to run the election, but appeals courts, well stocked with the president’s nominees, are blocking them.`\
 https://nytimes.com/2020/10/17/us/politics/federal-appeals-courts-trump-voting.html?searchResultPosition=1
 
-**Suspect in France Beheading Was Immigrant From Russia, Officials Say**\
-`The suspect was angered by a classroom display of caricatures of the Prophet Muhammad, investigators said, and he sought help identifying the teacher involved.`\
+**Suspect Stalked French School Before Beheading Teacher, Officials Say**\
+`The suspect, a Russian immigrant, was angered by a classroom display of caricatures of the Prophet Muhammad and sought help identifying the teacher involved.`\
 https://nytimes.com/2020/10/17/world/europe/france-beheading-teacher-paris-suburb.html?searchResultPosition=2
 
 **There’s a Word for Why We Wear Masks, and Liberals Should Say It**\
