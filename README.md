@@ -1,36 +1,36 @@
+**Play a Halloween Pencil Game, if You Dare**\
+`Finding the sinister words will reveal the spooky images that go along with them.`\
+https://nytimes.com/2020/10/17/at-home/halloween-word-search.html?searchResultPosition=1
+
+**How to Have a Safe and Still Spooky Halloween**\
+`Scavenger hunts, outdoor movie screenings and other ideas to have a safe holiday on Oct. 31.`\
+https://nytimes.com/2020/10/17/at-home/safe-and-spooky-halloween.html?searchResultPosition=2
+
+**Become a Dessert Person and Face the Haunts in Edith Wharton’s Home**\
+`Listen to the audio play ‘Shipwreck,’ bake some madeleines with Sur La Table and make dinosaur-shadow puppets.`\
+https://nytimes.com/2020/10/17/at-home/things-to-do-this-week.html?searchResultPosition=3
+
 **Flush With Cash, Biden Eclipses Trump in War for the Airwaves**\
 `Joe Biden is vastly outspending President Trump in TV advertising, maintaining a nearly 2-to-1 advantage on the airwaves.`\
-https://nytimes.com/interactive/2020/10/17/us/politics/trump-biden-campaign-ad-spending.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/10/17/us/politics/trump-biden-campaign-ad-spending.html?searchResultPosition=4
 
 **Title Basin’**\
 `Go with the flow on this Miriam Estrin construction.`\
-https://nytimes.com/2020/10/17/crosswords/daily-puzzle-2020-10-18.html?searchResultPosition=3
+https://nytimes.com/2020/10/17/crosswords/daily-puzzle-2020-10-18.html?searchResultPosition=6
 
 **U.S. Schedules First Execution of a Woman in Nearly 70 Years**\
 `Lisa Montgomery, the only woman on federal death row, was convicted of killing a pregnant woman and attempting to pass the baby off as her own.`\
-https://nytimes.com/2020/10/17/us/lisa-montgomery-execution.html?searchResultPosition=4
+https://nytimes.com/2020/10/17/us/lisa-montgomery-execution.html?searchResultPosition=7
 
 **Armenia, Azerbaijan Reach New Cease-Fire for Nagorno-Karabakh**\
 `A truce brokered just a week earlier failed to hold. The war between the two Caucasus countries has already killed hundreds.`\
-https://nytimes.com/2020/10/17/world/europe/armenia-azerbaijan-truce-nagorno-karabakh.html?searchResultPosition=5
+https://nytimes.com/2020/10/17/world/europe/armenia-azerbaijan-truce-nagorno-karabakh.html?searchResultPosition=8
 
 **Women March in Washington Against Trump and Barrett**\
 `Women’s March protesters took to the streets of Washington on Saturday to rally against President Trump and his nomination of Judge Amy Coney Barrett to the Supreme Court.`\
-https://nytimes.com/video/us/politics/100000007401222/womens-march-against-barrett-trump.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000007401222/womens-march-against-barrett-trump.html?searchResultPosition=9
 
 **U.S. records over 70,000 cases in one day for the first time since July.**\
 `By The New York Times`\
-https://nytimes.com/2020/10/17/world/us-records-over-70000-cases-in-one-day-for-the-first-time-since-july.html?searchResultPosition=7
-
-**As the Coronavirus Surges, a New Culprit Emerges: Pandemic Fatigue**\
-`Exhaustion and impatience are creating new risks as cases soar in parts of the world. “They have had enough,” one U.S. mayor said of her residents.`\
-https://nytimes.com/2020/10/17/us/coronavirus-pandemic-fatigue.html?searchResultPosition=8
-
-**Fred Dean, Sack Specialist Who Ignited 49ers Dynasty, Dies at 68**\
-`Dean helped lead San Francisco to two Super Bowl victories, transforming the team into an N.F.L. powerhouse. He died of Covid-19.`\
-https://nytimes.com/2020/10/17/obituaries/fred-dean-dead-covid.html?searchResultPosition=9
-
-**Where Liberal Power Lies**\
-`And why conservatives fear the creep of authoritarianism, too.`\
-https://nytimes.com/2020/10/17/opinion/where-liberal-power-lies.html?searchResultPosition=10
+https://nytimes.com/2020/10/17/world/us-records-over-70000-cases-in-one-day-for-the-first-time-since-july.html?searchResultPosition=10
 
