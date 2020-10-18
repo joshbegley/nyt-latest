@@ -30,11 +30,11 @@ https://nytimes.com/2020/10/18/briefing/coronavirus-surge-2020-election-mlb-play
 `In a suburban Salt Lake City district, coronavirus cases spiked as students returned to their classrooms.`\
 https://nytimes.com/2020/10/18/us/coronavirus-schools-reopening-outbreak.html?searchResultPosition=8
 
-**Trump’s Sanctions on International Court May Do Little Beyond Alienating Allies**\
-`Critics say the administration has targeted a human rights lawyer with economic penalties meant for warlords, dictators and authoritarian governments.`\
-https://nytimes.com/2020/10/18/world/europe/trump-sanctions-international-criminal-court.html?searchResultPosition=9
-
 **Some Signs of Recovery From Severe Covid Lung Damage**\
 `In two early studies, researchers said some patients showed signs of healing just weeks after leaving the hospital.`\
-https://nytimes.com/2020/10/18/health/Covid-lung-damage-recovery.html?searchResultPosition=10
+https://nytimes.com/2020/10/18/health/Covid-lung-damage-recovery.html?searchResultPosition=9
+
+**Trump’s Sanctions on International Court May Do Little Beyond Alienating Allies**\
+`Critics say the administration has targeted a human rights lawyer with economic penalties meant for warlords, dictators and authoritarian governments.`\
+https://nytimes.com/2020/10/18/world/europe/trump-sanctions-international-criminal-court.html?searchResultPosition=10
 
