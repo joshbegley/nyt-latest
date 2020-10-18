@@ -15,7 +15,7 @@ https://nytimes.com/2020/10/18/realestate/changing-neighborhood-names-nyc.html?s
 https://nytimes.com/2020/10/18/us/virus-warning-vaccine-Azar.html?searchResultPosition=4
 
 **What We Learned From Week 6 of the N.F.L. Season**\
-`The Titans rumbled for 601 yards, the Steelers crushed the Browns and the lowly Giants finally gave New Jersey a win.`\
+`The Titans rumbled for 601 yards in an overtime win. The Steelers crushed the Browns, the Buccaneers upset the Packers and the lowly Giants finally gave New Jersey a win.`\
 https://nytimes.com/2020/10/18/sports/football/week-6-nfl-results.html?searchResultPosition=5
 
 **Patriots Struggle to Find Their Way After Schedule Shuffle**\
