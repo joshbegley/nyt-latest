@@ -1,40 +1,40 @@
+**Biden Says He Gets Places Like Scranton. Some in Town Aren’t So Sure.**\
+`Scranton, Pa., is no longer the dying coal town of Joseph Biden’s youth. It is more racially diverse and prosperous, and not everyone there is enthusiastic about his candidacy.`\
+https://nytimes.com/2020/10/18/us/scranton-biden-democrats.html?searchResultPosition=1
+
 **Paleontologists See **** as Conference Software Bleeps Scientific Terms**\
 `Paleontologists whose annual conference was moved online were amused to find seemingly benign terms blocked during virtual question-and-answer sessions.`\
-https://nytimes.com/2020/10/18/science/paleontology-banned-words-convey.html?searchResultPosition=1
+https://nytimes.com/2020/10/18/science/paleontology-banned-words-convey.html?searchResultPosition=2
 
 **A Storied Female Warlord Surrenders, Taliban Say, Exposing Afghan Weakness**\
 `She was undefeated in decades of war, but her decision was an act of survival. A government that has come to depend on unreliable militias finds itself vulnerable.`\
-https://nytimes.com/2020/10/18/world/asia/commander-pigeon-afghanistan-woman-commander.html?searchResultPosition=2
+https://nytimes.com/2020/10/18/world/asia/commander-pigeon-afghanistan-woman-commander.html?searchResultPosition=3
 
 **What to Cook This Week**\
 `Make a maqluba for your pod, or savor the leftovers of a comforting lentil and orzo stew.`\
-https://nytimes.com/2020/10/18/dining/what-to-cook-this-week.html?searchResultPosition=3
+https://nytimes.com/2020/10/18/dining/what-to-cook-this-week.html?searchResultPosition=4
 
 **Dating Means Fear. Again.**\
 `I never imagined I’d live to witness another viral threat.`\
-https://nytimes.com/2020/10/18/opinion/covid-dating-hiv.html?searchResultPosition=4
+https://nytimes.com/2020/10/18/opinion/covid-dating-hiv.html?searchResultPosition=5
 
 **A Mysterious Autograph Hound’s Book Is Up for Auction**\
 `With Mary Todd Lincoln, Mark Twain and even Oscar Wilde, a mystery remains: How did Lafayette Cornwell get all these people to autograph his book?`\
-https://nytimes.com/2020/10/18/arts/design/autographs-auction-twain-lincoln.html?searchResultPosition=5
+https://nytimes.com/2020/10/18/arts/design/autographs-auction-twain-lincoln.html?searchResultPosition=6
 
 **The Sunday Read: ‘Jim Dwyer, About New York’**\
 `A farewell to the late Pulitzer Prize-winning Times journalist.`\
-https://nytimes.com/2020/10/18/podcasts/the-daily/remembering-jim-dwyer.html?searchResultPosition=6
+https://nytimes.com/2020/10/18/podcasts/the-daily/remembering-jim-dwyer.html?searchResultPosition=7
 
 **Homes That Sold for $550,000, or Less**\
 `Recent residential sales in New York City and the region.`\
-https://nytimes.com/2020/10/18/realestate/homes-that-sold-for-550000-or-less.html?searchResultPosition=7
+https://nytimes.com/2020/10/18/realestate/homes-that-sold-for-550000-or-less.html?searchResultPosition=8
 
 **What the N.B.A.’s East Teams Need: Playmakers and Trade Partners**\
 `Some teams are one move away from contention. Others, not so much. Here are our suggestions for how each team can improve.`\
-https://nytimes.com/2020/10/18/sports/what-the-nbas-east-teams-need-playmakers-and-trade-partners.html?searchResultPosition=8
+https://nytimes.com/2020/10/18/sports/what-the-nbas-east-teams-need-playmakers-and-trade-partners.html?searchResultPosition=9
 
 **How Mormons Fed Up With Trump Could Help Lift Biden in Arizona**\
 `Loyalty to the Republican Party is ingrained in the Latter-day Saints religion. But in Arizona, some find the president’s behavior at odds with their values and are shifting to Joe Biden.`\
-https://nytimes.com/2020/10/18/us/politics/arizona-mormons-trump-biden.html?searchResultPosition=9
-
-**The Week in Business: Facebook Cracks Down**\
-` Jobs are disappearing again, and stimulus talks look deader than ever.`\
-https://nytimes.com/2020/10/18/business/the-week-in-business-social-media-election-misinformation.html?searchResultPosition=10
+https://nytimes.com/2020/10/18/us/politics/arizona-mormons-trump-biden.html?searchResultPosition=10
 
