@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/18/us/politics/trump-refugees-iraq-afghanistan.html?searchResultPosition=1
 
 **The Facebook-Twitter-Trump Wars Are Actually About Something Else**\
-`Our institutions have failed to reign in Donald Trump. So people look to Big Tech.`\
+`Our institutions have failed to rein in Donald Trump. So people look to Big Tech.`\
 https://nytimes.com/2020/10/18/opinion/ny-post-biden-twitter.html?searchResultPosition=2
 
 **‘We Can’t Let Up,’ Biden Says to North Carolina Voters**\
