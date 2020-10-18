@@ -6,8 +6,8 @@ https://nytimes.com/2020/10/18/us/politics/trump-2020-campaign.html?searchResult
 `Scranton, Pa., is no longer the dying coal town of Joseph Biden’s youth. It is more racially diverse and prosperous, and not everyone there is enthusiastic about his candidacy.`\
 https://nytimes.com/2020/10/18/us/scranton-biden-democrats.html?searchResultPosition=2
 
-**Paleontologists See **** as Conference Software Bleeps Scientific Terms**\
-`Paleontologists whose annual conference was moved online were amused to find seemingly benign terms blocked during virtual question-and-answer sessions.`\
+**Paleontologists See Stars as Software Bleeps Scientific Terms**\
+`When their annual conference was moved online, they were amused to find seemingly benign words blocked and replaced with asterisks during virtual sessions.`\
 https://nytimes.com/2020/10/18/science/paleontology-banned-words-convey.html?searchResultPosition=3
 
 **A Storied Female Warlord Surrenders, Taliban Say, Exposing Afghan Weakness**\
