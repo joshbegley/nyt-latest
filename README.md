@@ -1,5 +1,5 @@
 **For Liverpool, a Cruel Twist in a Year With No Mercy**\
-`Virgil van Dijk’s knee surgery will dent his team’s Premier League title hopes. But it’s also a reminder that this season’s champions will be the clubs that survive as much as excel.`\
+`Virgil van Dijk’s knee surgery will dent his club’s Premier League title hopes. But it’s also a reminder that this season’s champions will be the teams that survive as much as excel.`\
 https://nytimes.com/2020/10/18/sports/soccer/liverpool-van-dijk-premier-league.html?searchResultPosition=1
 
 **New York Post Published Hunter Biden Report Amid Newsroom Doubts**\
