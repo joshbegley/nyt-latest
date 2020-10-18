@@ -31,7 +31,7 @@ https://nytimes.com/2020/10/18/us/politics/trump-refugees-iraq-afghanistan.html?
 https://nytimes.com/2020/10/18/opinion/ny-post-biden-twitter.html?searchResultPosition=8
 
 **‘We Can’t Let Up,’ Biden Says to North Carolina Voters**\
-`Joseph R. Biden Jr., the Democratic nominee for president, called for voters in the critical battleground state to vote early for the presidency and for races up and down the ballot.`\
+`Joseph R. Biden Jr., the Democratic nominee for president, spoke to supporters at a drive-in rally on Sunday.`\
 https://nytimes.com/video/us/politics/100000007401867/biden-north-carolina.html?searchResultPosition=9
 
 **Man Arrested After Threatening Wichita Mayor Over Face Masks**\
