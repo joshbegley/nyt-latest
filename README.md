@@ -6,13 +6,13 @@ https://nytimes.com/2020/10/18/briefing/coronavirus-surge-2020-election-mlb-play
 `In a suburban Salt Lake City district, coronavirus cases spiked as students returned to their classrooms.`\
 https://nytimes.com/2020/10/18/us/coronavirus-schools-reopening-outbreak.html?searchResultPosition=2
 
-**Some Signs of Recovery From Severe Covid Lung Damage**\
-`In two early studies, researchers said some patients showed signs of healing just weeks after leaving the hospital.`\
-https://nytimes.com/2020/10/18/health/Covid-lung-damage-recovery.html?searchResultPosition=3
-
 **Trump’s Sanctions on International Court May Do Little Beyond Alienating Allies**\
 `Critics say the administration has targeted a human rights lawyer with economic penalties meant for warlords, dictators and authoritarian governments.`\
-https://nytimes.com/2020/10/18/world/europe/trump-sanctions-international-criminal-court.html?searchResultPosition=4
+https://nytimes.com/2020/10/18/world/europe/trump-sanctions-international-criminal-court.html?searchResultPosition=3
+
+**Some Signs of Recovery From Severe Covid Lung Damage**\
+`In two early studies, researchers said some patients showed signs of healing just weeks after leaving the hospital.`\
+https://nytimes.com/2020/10/18/health/Covid-lung-damage-recovery.html?searchResultPosition=4
 
 **Why These Voters Rejected Hillary Clinton but Are Backing Joe Biden**\
 `For many Democrats and independents who sat out 2016, voted for third-party candidates or backed Donald Trump, Mr. Biden is more acceptable to them in ways large and small than Mrs. Clinton was.`\
