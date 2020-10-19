@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/19/us/california-gatherings-coronavirus.html?searchR
 https://nytimes.com/2020/10/19/us/zion-park-hiker-found.html?searchResultPosition=3
 
 **It’s a Party at Gatsby’s Mansion. No Dancing, Please.**\
-`An immersive theater show of “The Great Gatsby” has returned in London. Can it keep the novel’s spirit alive while obeying coronavirus rules?`\
+`An immersive theater show of “The Great Gatsby” has returned in London. Can it keep the novel’s spirit alive while obeying the coronavirus rules?`\
 https://nytimes.com/2020/10/19/theater/great-gatsby-immersive-london-coronavirus.html?searchResultPosition=4
 
 **Running the Numbers on Biden’s Tax Policy**\
