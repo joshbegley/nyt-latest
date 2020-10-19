@@ -20,7 +20,7 @@ https://nytimes.com/interactive/2020/10/19/t-magazine/the-greats.html?searchResu
 
 **10,000 Guests at a Hasidic Wedding in Brooklyn? N.Y. Says No.**\
 `The governor warned that the gathering could be a superspreader event; a synagogue representative accused  officials of “unwarranted attacks.” `\
-https://nytimes.com/2020/10/19/nyregion/covid-hasidic-wedding-brooklyn.html?searchResultPosition=6
+https://nytimes.com/2020/10/19/nyregion/hasidic-jews-wedding-brooklyn-coronavirus.html?searchResultPosition=6
 
 **Sigourney Weaver Goes Her Own Way**\
 `In performances both profound and eccentric — and in films that span several genres — the statuesque actress reveals she is a woman who defies definition and embraces adventure.`\
