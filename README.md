@@ -24,7 +24,7 @@ https://nytimes.com/2020/10/19/parenting/active-listening-communication-advice.h
 
 **U.S. Charges Russian Intelligence Officers in Major Cyberattacks**\
 `Prosecutors said the suspects hacked elections in France and the 2018 Winter Olympics.`\
-https://nytimes.com/2020/10/19/us/politics/russian-intelligence-cyberattacks.html?searchResultPosition=7
+https://nytimes.com/2020/10/19/homepage/russian-intelligence-cyberattacks.html?searchResultPosition=7
 
 **Ballet Finds Itself on Higher Ground, Overlooking Lincoln Center**\
 `Six short works, including three premieres, were unveiled on a rooftop to benefit the new organization Dancers of N.Y.C.B.`\
