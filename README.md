@@ -15,7 +15,7 @@ https://nytimes.com/video/us/politics/100000007403340/doj-russia-cyberattack.htm
 https://nytimes.com/2020/10/19/theater/shipwreck-review.html?searchResultPosition=4
 
 **State Dept. to Remove Sudan From List of Terrorist States**\
-`The move clears the way for the African nation to seek international assistance and potentially to normalize relations with Israel, which officials said could happen within days.`\
+`The move clears the way for the African nation to seek international assistance and potentially to normalize relations with Israel, which officials said could happen in days.`\
 https://nytimes.com/2020/10/19/world/africa/sudan-trump-israel-terrorism.html?searchResultPosition=5
 
 **Armenians Under Fire: Who Will Help?**\
