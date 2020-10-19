@@ -18,8 +18,8 @@ https://nytimes.com/2020/10/18/todayspaper/quotation-of-the-day-how-the-wnba-bec
 `No corrections appeared in print on Monday, Oct. 19, 2020.`\
 https://nytimes.com/2020/10/18/pageoneplus/no-corrections-oct-19-2020.html?searchResultPosition=5
 
-**Your Monday Briefing**\
-`Fighting in the Caucasus continues, despite a cease-fire.`\
+**Nagorno-Karabakh, Coronavirus, Thai Protests: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/10/18/briefing/nagorno-karabakh-covid-19-thailand-protests.html?searchResultPosition=6
 
 **With Covid-19 Under Control, China’s Economy Surges Ahead**\
