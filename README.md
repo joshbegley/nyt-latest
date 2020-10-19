@@ -2,7 +2,7 @@
 `A landslide early on Sunday killed at least 14 military personnel and left eight missing in central Vietnam, the government said, in what could be the country's largest military loss in peace time as it battles major flooding.`\
 https://nytimes.com/reuters/2020/10/18/world/asia/18reuters-asia-storm-vietnam.html?searchResultPosition=1
 
-**Disney Prefaces Some Older Films With Warning of ‘Racist’ Stereotypes**\
+**Disney Prefaces Some Older Films With Warning of Racist Stereotypes**\
 `“These stereotypes were wrong then and are wrong now,” a 12-second disclaimer on the Disney+ streaming service reads.`\
 https://nytimes.com/2020/10/18/business/media/disney-plus-disclaimers.html?searchResultPosition=2
 
