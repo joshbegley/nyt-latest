@@ -26,7 +26,7 @@ https://nytimes.com/2020/10/19/us/politics/coronavirus-stimulus-bill.html?search
 `And what else you need to know today.`\
 https://nytimes.com/2020/10/19/briefing/amy-coney-barrett-voting-world-series-your-monday-briefing.html?searchResultPosition=7
 
-**The Field: Energizing the Latino Vote in Arizona**\
+**The Field: A Divided Latino Vote in Arizona**\
 `Could a strong Hispanic turnout flip the traditionally Republican state for the Democrats?`\
 https://nytimes.com/2020/10/19/podcasts/the-daily/latino-voters-biden-trump.html?searchResultPosition=8
 
