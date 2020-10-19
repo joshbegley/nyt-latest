@@ -12,7 +12,7 @@ https://nytimes.com/2020/10/19/arts/kobe-bryant-museum.html?searchResultPosition
 
 **Pakistan Rescinds TikTok Ban**\
 `A decision outlawing the social media app was overturned after 10 days with assurances from the Chinese owners that content would be moderated according to local laws.`\
-https://nytimes.com/2020/10/19/world/asia/pakistan-tiktok-ban.html?searchResultPosition=4
+https://nytimes.com/2020/10/19/business/pakistan-tiktok-ban.html?searchResultPosition=4
 
 **What to Know About California’s New Rules for Gathering**\
 `Monday: As we head toward the holiday season, the state has lifted its official ban on private parties. But there are still restrictions.`\
