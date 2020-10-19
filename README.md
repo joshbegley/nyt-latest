@@ -35,6 +35,6 @@ https://nytimes.com/2020/10/18/us/virus-warning-vaccine-Azar.html?searchResultPo
 https://nytimes.com/2020/10/18/sports/football/week-6-nfl-results.html?searchResultPosition=9
 
 **Patriots Struggle to Find Their Way After Schedule Shuffle**\
-`For only the second time under Bill Belichick, New England (2-3) has a losing record after five games. The team looked out of sorts in a game that had been postponed twice because of Covid-19.`\
+`For only the second time in 19 years, New England (2-3) has a losing record after five games. The team looked out of sorts in a game that had been postponed twice because of Covid-19.`\
 https://nytimes.com/2020/10/18/sports/football/patriots-vs-broncos-score.html?searchResultPosition=10
 
