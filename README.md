@@ -1,40 +1,40 @@
+**What to Know About California’s New Rules for Gathering**\
+`Monday: As we head toward the holiday season, the state has lifted its official ban on private parties. But there are still restrictions.`\
+https://nytimes.com/2020/10/19/us/california-gatherings-coronavirus.html?searchResultPosition=1
+
 **Hiker Is Rescued in Zion National Park After Nearly Two Weeks Missing**\
 `Holly Suzanne Courtier, 38, went missing on Oct. 6 after getting off a shuttle bus at the park in Utah. She was found safely on Sunday, the authorities said.`\
-https://nytimes.com/2020/10/19/us/zion-park-hiker-found.html?searchResultPosition=1
+https://nytimes.com/2020/10/19/us/zion-park-hiker-found.html?searchResultPosition=2
 
 **It’s a Party at Gatsby’s Mansion. No Dancing, Please.**\
 `An immersive theater show of “The Great Gatsby” has returned in London. Can it keep the novel’s spirit alive while obeying coronavirus rules?`\
-https://nytimes.com/2020/10/19/theater/great-gatsby-immersive-london-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/10/19/theater/great-gatsby-immersive-london-coronavirus.html?searchResultPosition=3
 
 **Running the Numbers on Biden’s Tax Policy**\
 `Will it help or hurt the economy?`\
-https://nytimes.com/2020/10/19/business/dealbook/biden-tax-economy.html?searchResultPosition=3
+https://nytimes.com/2020/10/19/business/dealbook/biden-tax-economy.html?searchResultPosition=4
 
 **Police Raid in France Targets Islamist Links After Teacher’s Killing**\
 `Interior Minister Gerald Darmanin said the raids began Monday morning, and that some Muslim groups were being investigated.`\
-https://nytimes.com/2020/10/19/world/europe/france-raids-teacher-beheading.html?searchResultPosition=4
+https://nytimes.com/2020/10/19/world/europe/france-raids-teacher-beheading.html?searchResultPosition=5
 
 **In Tampa Bay, a Plan Just Might Be Coming Together**\
 `The team wanted Tom Brady to smooth out its offense so its defense could shine. In a dominant win over Green Bay, that’s exactly what happened.`\
-https://nytimes.com/2020/10/19/sports/football/buccaneers-packers.html?searchResultPosition=5
+https://nytimes.com/2020/10/19/sports/football/buccaneers-packers.html?searchResultPosition=6
 
 **Europe’s Museums Are Open, but the Public Isn’t Coming**\
 `Attendance at some major institutions is a third of what it was last year. Their ability to cope depends almost entirely on how they are funded.`\
-https://nytimes.com/2020/10/19/arts/design/europe-museums-covid.html?searchResultPosition=6
+https://nytimes.com/2020/10/19/arts/design/europe-museums-covid.html?searchResultPosition=7
 
 **A Coronavirus Relief Deal Remains Elusive**\
 `Voters want stimulus aid, but it may not arrive: This is your morning tip sheet.`\
-https://nytimes.com/2020/10/19/us/politics/coronavirus-stimulus-bill.html?searchResultPosition=7
+https://nytimes.com/2020/10/19/us/politics/coronavirus-stimulus-bill.html?searchResultPosition=8
 
 **A Corporate Court**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/10/19/briefing/amy-coney-barrett-voting-world-series-your-monday-briefing.html?searchResultPosition=8
+https://nytimes.com/2020/10/19/briefing/amy-coney-barrett-voting-world-series-your-monday-briefing.html?searchResultPosition=9
 
 **The Field: A Divided Latino Vote in Arizona**\
 `Could a strong Hispanic turnout flip the traditionally Republican state for the Democrats?`\
-https://nytimes.com/2020/10/19/podcasts/the-daily/latino-voters-biden-trump.html?searchResultPosition=9
-
-**How Much Do You Know About Azerbaijan?**\
-`Can you find Azerbaijan on a map? What else do you know about this nation with about 10 million people?`\
-https://nytimes.com/interactive/2020/10/19/learning/Azerbaijan-Geography-Quiz.html?searchResultPosition=10
+https://nytimes.com/2020/10/19/podcasts/the-daily/latino-voters-biden-trump.html?searchResultPosition=10
 
