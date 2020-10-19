@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2020/10/19/learning/Azerbaijan-Geography-Quiz.html?searchResultPosition=1
 
 **The Greats**\
-`In our 2020 Greats issue, out Oct. 25, T celebrates five talents who, in mastering their crafts, have changed their fields — and the culture at large. They have in common an essential and fierce desire to communicate, whether through beauty or provocation, or both.`\
+`In our 2020 Greats issue, out Oct. 25, T celebrates five talents who, in mastering their crafts, have changed their fields — and the culture at large.`\
 https://nytimes.com/interactive/2020/10/19/t-magazine/the-greats.html?searchResultPosition=2
 
 **10,000 Guests at a Hasidic Wedding in Brooklyn? N.Y. Says No.**\
