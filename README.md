@@ -15,7 +15,7 @@ https://nytimes.com/video/us/elections/100000007402944/florida-early-voting-line
 https://nytimes.com/2020/10/19/business/media/channing-dungey-warner-bros-netflix.html?searchResultPosition=4
 
 **Trump calls Fauci ‘a disaster’ in a call with his campaign staff.**\
-`By Maggie Haberman`\
+`President Trump told his campaign staff that Dr. Anthony S. Fauci was “a disaster” and said, “People are tired of hearing Fauci and these idiots.”`\
 https://nytimes.com/2020/10/19/us/elections/trump-fauci.html?searchResultPosition=5
 
 **Behind in Polls, Republicans See a Silver Lining in Voter Registrations**\
