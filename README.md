@@ -31,7 +31,7 @@ https://nytimes.com/2020/10/20/theater/temping-workplace-drama.html?searchResult
 https://nytimes.com/2020/10/20/world/europe/Vittorio-Raso-released-spain.html?searchResultPosition=8
 
 **Spencer Davis, Whose Band Was a Hitmaker in the ’60s, Dies at 81**\
-`“Gimme Some Lovin’” and “I’m a Man” made the Spencer David Group, based in Britain, famous worldwide and launched the career of its lead singer, Steve Winwood.`\
+`“Gimme Some Lovin’” and “I’m a Man” made the Spencer Davis Group, based in Britain, famous worldwide and launched the career of its lead singer, Steve Winwood.`\
 https://nytimes.com/2020/10/20/arts/spencer-davis-whose-band-was-a-hitmaker-in-the-60s-dies-at-81.html?searchResultPosition=9
 
 **Seven states are considering filing their own antitrust suit against Google.**\
