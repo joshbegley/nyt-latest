@@ -26,13 +26,13 @@ https://nytimes.com/2020/10/20/technology/tech-startups-garage.html?searchResult
 `After sheltering a prominent dissident, Yang Bin, a former prosecutor, is now under the scrutiny of the police. But she has no regrets.`\
 https://nytimes.com/2020/10/20/world/asia/china-prosecutor-lawyer.html?searchResultPosition=7
 
-**Life (and Death) Without God**\
-`The philosopher Todd May is an atheist who rejects the supernatural, but not the people who believe in it.`\
-https://nytimes.com/2020/10/20/opinion/philosophy-death-atheism.html?searchResultPosition=8
-
 **After 2 Hurricanes, Lake Charles Fears Its Cries for Help Have Gone Unheard**\
 `The city was shredded by Hurricanes Laura and Delta. But the needs of Lake Charles have been overlooked in a year of disaster and unrest.`\
-https://nytimes.com/2020/10/20/us/lake-charles-hurricane-laura-delta.html?searchResultPosition=9
+https://nytimes.com/2020/10/20/us/lake-charles-hurricane-laura-delta.html?searchResultPosition=8
+
+**Life (and Death) Without God**\
+`The philosopher Todd May is an atheist who rejects the supernatural, but not the people who believe in it.`\
+https://nytimes.com/2020/10/20/opinion/philosophy-death-atheism.html?searchResultPosition=9
 
 **A Gated Community in N.Y.C. Where Trump Flags Fly**\
 `Breezy Point, a private enclave in Queens, is bastion of Trump supporters in liberal New York City.`\
