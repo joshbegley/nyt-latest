@@ -2,7 +2,7 @@
 `The battle for the 2020 World Series title starts tonight at Globe Life Field in Arlington, Texas.`\
 https://nytimes.com/2020/10/20/sports/baseball/world-series-game-1.html?searchResultPosition=1
 
-**Your Tuesday Briefing**\
+**France Crackdown, Manchester Restrictions, Nazca Lines Cat: Your Tuesday Briefing**\
 `A brutal killing in France prompts a swift official response.`\
 https://nytimes.com/2020/10/19/briefing/france-crackdown-manchester-restrictions-nazca-lines-cat.html?searchResultPosition=2
 
