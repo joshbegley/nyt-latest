@@ -16,7 +16,7 @@ https://nytimes.com/2020/10/20/us/elections/ballot-box-fire-california.html?sear
 
 **It’s Google’s World. We Just Live In It.**\
 `Googling something was all we once did with Google. Now we spend hours a day using its maps, videos, security cameras, email, smartphones and more.`\
-https://nytimes.com/2020/10/20/technology/personaltech/google-maps-video-cameras-phones-email.html?searchResultPosition=5
+https://nytimes.com/2020/10/20/technology/personaltech/doj-google.html?searchResultPosition=5
 
 **Read the Document**\
 `Here’s the U.S. government’s case against Google.`\
