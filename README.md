@@ -1,4 +1,4 @@
-**The Pandemic’s Real Toll? 300,000, and It’s Not Just From the Coronavirus**\
+**The Pandemic’s Real Toll? 300,000 Deaths, and It’s Not Just From the Coronavirus**\
 `A C.D.C. analysis finds that overall death rates have risen, particularly among young adults and people of color.`\
 https://nytimes.com/2020/10/20/health/coronavirus-excess-deaths.html?searchResultPosition=1
 
