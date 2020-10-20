@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/20/technology/google-antitrust-laws-microsoft.html?s
 `After months of caving to pressures from the White House, Commissioner Stephen Hahn and a band of agency scientists have eked out a few victories.`\
 https://nytimes.com/2020/10/20/health/covid-vaccines-fda-trump.html?searchResultPosition=2
 
-**Nigerian Soldiers Shoot at Demonstrators Against Police Brutality**\
+**Nigerian Forces Shoot at Demonstrators Against Police Brutality**\
 `The toll was unclear, but witnesses said several people were shot during escalating protests in Lagos. The governor said ‘miscreants’ had hijacked mostly peaceful demonstrations.`\
 https://nytimes.com/2020/10/20/world/africa/Nigeria-protests-shooting.html?searchResultPosition=3
 
