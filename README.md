@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/20/obituaries/rev-john-vakulskas-dead-coronavirus.html?searchResultPosition=1
 
 **Two Police Officers Are Shot in Houston**\
-`Chief Art Acevedo of the Houston police said a suspect was taken into custody. The two officers were struck by gunfire after responding to a disturbance at an apartment complex, the police said.`\
+`Chief Art Acevedo of the Houston police said a suspect was in custody. The two officers were struck by gunfire after responding to a disturbance at an apartment complex, the police said.`\
 https://nytimes.com/2020/10/20/us/houston-police-shooting-.html?searchResultPosition=2
 
 **Will Florida, the Recount State, Be Ready for the Election?**\
