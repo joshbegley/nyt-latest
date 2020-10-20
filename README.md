@@ -26,15 +26,15 @@ https://nytimes.com/2020/10/20/world/europe/Vittorio-Raso-released-spain.html?se
 `“Gimme Some Lovin’,” “I’m a Man” and “Keep On Running” made the rock group, from Britain, famous and launched the career of its lead singer, Steve Winwood.`\
 https://nytimes.com/2020/10/20/arts/spencer-davis-whose-band-was-a-hitmaker-in-the-60s-dies-at-81.html?searchResultPosition=7
 
+**Seven states are considering filing their own antitrust suit against Google.**\
+`By Gillian Friedman`\
+https://nytimes.com/2020/10/20/business/states-google-antitrust-suits.html?searchResultPosition=8
+
 **Why the Government Is Suing Google**\
 `Maybe all Google needed to keep from acting like a monopoly was more effective government oversight.`\
-https://nytimes.com/2020/10/20/technology/why-the-government-is-suing-google.html?searchResultPosition=8
+https://nytimes.com/2020/10/20/technology/why-the-government-is-suing-google.html?searchResultPosition=9
 
 **Here Are the Hundreds of Sites in a Pay-to-Play Local News Network**\
 `We are publishing the full list so readers can see whether the sites target their area.`\
-https://nytimes.com/2020/10/20/technology/timpone-network-pay-to-play-local-news.html?searchResultPosition=9
-
-**A Spooky Fall Poem**\
-`Bring out your dread.`\
-https://nytimes.com/interactive/2020/10/20/style/spooky-fall-poem.html?searchResultPosition=10
+https://nytimes.com/2020/10/20/technology/timpone-network-pay-to-play-local-news.html?searchResultPosition=10
 
