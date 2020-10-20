@@ -1,5 +1,5 @@
-**After Doping, Russia Moves on to Hacking Olympics, U.S. and Britain Say**\
-`After suffering embarrassment over its doping scheme, Russia tried cyber attacks against the 2018 Winter Olympics in South Korea and was targeting the postponed Tokyo Olympics too, American and British officials said.`\
+**After Doping Scandal, Russia Hacked the Olympics, U.S. and Britain Say**\
+`After suffering embarrassment over its doping scheme, Russia tried cyberattacks against the 2018 Winter Olympics in South Korea and was targeting the postponed Tokyo Olympics too, American and British officials said.`\
 https://nytimes.com/2020/10/20/sports/olympics/russia-hack-olympics-doping.html?searchResultPosition=1
 
 **A Bucket Bag Originally Intended to Carry Champagne**\
