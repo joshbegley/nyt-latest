@@ -23,7 +23,7 @@ https://nytimes.com/2020/10/20/realestate/virtual-reality-for-beginners.html?sea
 https://nytimes.com/2020/10/20/us/elections/trump-describes-hypothetical-quid-pro-quo-with-exxon-exxon-says-it-never-happened.html?searchResultPosition=6
 
 **Peter Madsen, Killer of Kim Wall, Escapes Prison but Is Recaptured**\
-`Mr. Madsen fled the Herstedvester Prison near Copenhagen, according to local news outlets, but the police apprehended him a short time later on the outskirts of the city.`\
+`Mr. Madsen fled the Herstedvester Prison near Copenhagen after taking a staff member hostage with what appeared to be a gun, according to local news outlets. He was apprehended a short time later.`\
 https://nytimes.com/2020/10/20/world/europe/peter-madsen-kim-wall-prison-escape.html?searchResultPosition=7
 
 **A Supreme Court Split on Voting**\
