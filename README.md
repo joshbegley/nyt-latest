@@ -14,7 +14,7 @@ https://nytimes.com/video/world/europe/100000007405227/johnson-coronavirus-brita
 `An immersive work at the Wild Project asks the sole audience member to consider the value of life while role playing as an office worker involved in calculating risk of death.`\
 https://nytimes.com/2020/10/20/theater/temping-workplace-drama.html?searchResultPosition=4
 
-**Spanish Judge Releases One of Italy’s Most Wanted Mafia Suspects**\
+**Spanish Judge Releases a Fugitive Italian Mafia Suspect**\
 `A court spokesman said the judge had not been aware of accusations linking the fugitive to organized crime.`\
 https://nytimes.com/2020/10/20/world/europe/Vittorio-Raso-released-spain.html?searchResultPosition=5
 
