@@ -1,4 +1,4 @@
-**Goldman Sachs Is Said to Admit Wrongdoing in 1MDB Scandal**\
+**Goldman Sachs Is Said to Admit Mistakes in 1MDB Scandal**\
 `A foreign subsidiary of the Wall Street giant will plead guilty under an agreement with the Justice Department, according to a person familiar with the deal.`\
 https://nytimes.com/2020/10/20/business/goldman-sachs-1mdb-malaysia.html?searchResultPosition=1
 
