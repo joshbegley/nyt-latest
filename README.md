@@ -1,5 +1,5 @@
 **Spencer Davis, Whose Band Was a Hitmaker in the ’60s, Dies at 81**\
-`“Gimme Some Lovin’,” “I’m a Man” and “Keep On Running” made the band, from Britain, famous and launched the career of its lead singer, Steve Winwood.`\
+`“Gimme Some Lovin’,” “I’m a Man” and “Keep On Running” made the rock group, from Britain, famous and launched the career of its lead singer, Steve Winwood.`\
 https://nytimes.com/2020/10/20/arts/spencer-davis-whose-band-was-a-hitmaker-in-the-60s-dies-at-81.html?searchResultPosition=1
 
 **Why the Government Is Suing Google**\
