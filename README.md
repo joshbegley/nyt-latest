@@ -1,4 +1,4 @@
-**Editor’s Note: Trump’s Blueprint for Dystopian Policing**\
+**Opinion Today: Trump’s Blueprint for Dystopian Policing**\
 `If this expert is worried, you should be too.`\
 https://nytimes.com/2020/10/20/opinion/opinion-today-trump-dystopian-policing.html?searchResultPosition=1
 
