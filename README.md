@@ -22,19 +22,19 @@ https://nytimes.com/2020/10/21/sports/football/pittsburgh-steelers.html?searchRe
 `“He’s just going to shout or, even worse, he’ll just walk over to Biden and use his mic,” Trevor Noah predicted of the upcoming debate. “He’ll probably lick it, too.”`\
 https://nytimes.com/2020/10/21/arts/television/late-night-doesnt-think-its-possible-to-mute-trump.html?searchResultPosition=6
 
+**To get out the vote, Alexandria Ocasio-Cortez plays a video game.**\
+`By Mike Ives`\
+https://nytimes.com/2020/10/21/us/elections/aoc-twitch-among-us-video-game.html?searchResultPosition=7
+
 **Word + Quiz: wheedle**\
 `This word has appeared in three articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/10/21/learning/word-quiz-wheedle.html?searchResultPosition=7
+https://nytimes.com/2020/10/21/learning/word-quiz-wheedle.html?searchResultPosition=8
 
 **‘We Cannot Kill That Little Chihuahua’: Actor’s Puppy Crusade Shines Light on Global Trade**\
 `The action star Jean-Claude Van Damme intervened to save a Bulgarian dog from euthanasia after Norway said it had been imported on a fake passport.`\
-https://nytimes.com/2020/10/21/world/europe/jean-claude-van-damme-puppy.html?searchResultPosition=8
+https://nytimes.com/2020/10/21/world/europe/jean-claude-van-damme-puppy.html?searchResultPosition=9
 
 **Vanessa Guillen Died ‘in the Line of Duty,’ Army Officials Say**\
 `The determination means the slain Army specialist’s family is entitled to  military life insurance, final pay and allowance.`\
-https://nytimes.com/2020/10/21/us/vanessa-guillen-death.html?searchResultPosition=9
-
-**Are You Having Issues With Your Mail-In Ballot?**\
-`If you’ve faced problems requesting, receiving or submitting a mail-in ballot, we’d like to hear from you.`\
-https://nytimes.com/article/mail-in-ballot-issues.html?searchResultPosition=10
+https://nytimes.com/2020/10/21/us/vanessa-guillen-death.html?searchResultPosition=10
 
