@@ -16,7 +16,7 @@ https://nytimes.com/2020/10/20/us/politics/trump-barr-biden.html?searchResultPos
 
 **McConnell Moves to Head Off Stimulus Deal as Pelosi Reports Progress**\
 `The top Senate Republican told colleagues that he had advised the White House against striking a pre-election deal with Democrats to deliver pandemic aid, fearing political repercussions.`\
-https://nytimes.com/2020/10/20/us/politics/mcconnell-pelosi-stimulus-deal.html?searchResultPosition=9
+https://nytimes.com/2020/10/20/us/politics/stimulus-deal-mitch-mcconnell-nancy-pelosi.html?searchResultPosition=9
 
 **Trump Records Shed New Light on Chinese Business Pursuits**\
 `As he raises questions about his opponent’s standing with China, President Trump’s taxes reveal details about his own activities there, including a previously unknown bank account.`\
