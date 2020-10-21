@@ -1,4 +1,4 @@
-**France, Waging a Broad Crackdown, Depicts a Plot in Teacher’s Beheading**\
+**France, Waging Crackdown, Honors a Teacher and Depicts a Plot in Beheading**\
 `Two teenagers were paid about $350 to identify a teacher later decapitated outside his school. As the nation mourns, officials move against what they see as militant Islam.`\
 https://nytimes.com/2020/10/21/world/europe/france-teacher-beheading.html?searchResultPosition=1
 
