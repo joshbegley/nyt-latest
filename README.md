@@ -24,7 +24,7 @@ https://nytimes.com/2020/10/21/world/europe/pope-francis-same-sex-civil-unions.h
 
 **Robert DeMora Dies at 85; Helped Make Bette Midler Look Divine**\
 `His outlandish costumes embellished Ms. Midler’s elaborate extravaganzas. He also contributed to films like “Risky Business” and “The Birdcage.”`\
-https://nytimes.com/2020/10/21/arts/robert-demora-deade.html?searchResultPosition=7
+https://nytimes.com/2020/10/21/arts/robert-demora-dead.html?searchResultPosition=7
 
 **The Case for Sausage Rolls**\
 `You don’t need much of a reason to make these Australian favorites, but Melissa Clark makes a compelling argument.`\
