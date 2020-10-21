@@ -26,8 +26,8 @@ https://nytimes.com/2020/10/21/arts/television/late-night-doesnt-think-its-possi
 `This word has appeared in three articles on NYTimes.com in the past year.`\
 https://nytimes.com/2020/10/21/learning/word-quiz-wheedle.html?searchResultPosition=7
 
-**‘We Cannot Kill That Little Chihuahua’: How Jean-Claude Van Damme Helped Save a Puppy**\
-`The action movie star intervened to save a Bulgarian dog from euthanasia after Norway said it had been imported on a fake passport.`\
+**‘We Cannot Kill That Little Chihuahua’: Actor’s Puppy Crusade Shines Light on Global Trade**\
+`The action star Jean-Claude Van Damme intervened to save a Bulgarian dog from euthanasia after Norway said it had been imported on a fake passport.`\
 https://nytimes.com/2020/10/21/world/europe/jean-claude-van-damme-puppy.html?searchResultPosition=8
 
 **Vanessa Guillen Died ‘in the Line of Duty,’ Army Officials Say**\
