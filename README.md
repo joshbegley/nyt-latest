@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/20/world/asia/india-china-soldier-return.html?search
 `Vote for public servants who will represent all Americans.`\
 https://nytimes.com/2020/10/20/opinion/nancy-goroff-antonio-delgado-tom-malinowski-endorsement.html?searchResultPosition=3
 
-**Disneyland, Other California Theme Parks, Get Rules for Reopening**\
+**Disneyland and Other California Theme Parks Get Rules for Reopening**\
 `Large parks must be in the state’s “yellow” tier for economic recovery, with the virus largely contained, which could be a long wait.`\
 https://nytimes.com/2020/10/20/travel/disneyland-california-reopening.html?searchResultPosition=4
 
