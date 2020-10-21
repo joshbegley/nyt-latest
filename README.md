@@ -1,6 +1,6 @@
 **‘We Cannot Kill That Little Chihuahua’: How Jean-Claude Van Damme Helped Save a Puppy**\
 `The action movie star intervened to save a Bulgarian dog from euthanasia after Norway said it had been imported on a fake passport.`\
-https://nytimes.com/2020/10/21/world/europe/jean-claude-van-damme-puppy-norway-bulgaria.html?searchResultPosition=1
+https://nytimes.com/2020/10/21/world/europe/jean-claude-van-damme-puppy.html?searchResultPosition=1
 
 **Vanessa Guillen Died ‘in the Line of Duty,’ Army Officials Say**\
 `The determination means the slain Army specialist’s family is entitled to  military life insurance, final pay and allowance.`\
