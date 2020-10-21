@@ -14,7 +14,7 @@ https://nytimes.com/2020/10/21/movies/white-noise-review.html?searchResultPositi
 `And what else you need to know today.`\
 https://nytimes.com/2020/10/21/briefing/world-series-coronavirus-nigeria-protest.html?searchResultPosition=4
 
-**Social Media and the Hunter Biden Report**\
+**A Misinformation Test for Social Media**\
 `In trying to insulate their platforms from the spread of dubious information, Facebook, Twitter and YouTube have ignited a different kind of firestorm.`\
 https://nytimes.com/2020/10/21/podcasts/the-daily/hunter-biden-new-york-post-twitter-facebook.html?searchResultPosition=5
 
