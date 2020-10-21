@@ -24,7 +24,7 @@ https://nytimes.com/2020/10/21/world/europe/jean-claude-van-damme-puppy.html?sea
 
 **Vanessa Guillen Died ‘in the Line of Duty,’ Army Officials Say**\
 `The determination means the slain Army specialist’s family is entitled to  military life insurance, final pay and allowance.`\
-https://nytimes.com/2020/10/21/us/vanessa-guillen-died-in-line-of-duty.html?searchResultPosition=7
+https://nytimes.com/2020/10/21/us/vanessa-guillen-death.html?searchResultPosition=7
 
 **Are You Having Issues With Your Mail-In Ballot?**\
 `If you’ve faced problems requesting, receiving or submitting a mail-in ballot, we’d like to hear from you.`\
