@@ -22,7 +22,7 @@ https://nytimes.com/2020/10/20/todayspaper/quotation-of-the-day-collaborative-pu
 `Dory Mintz makes a worldly Wednesday debut.`\
 https://nytimes.com/2020/10/20/crosswords/daily-puzzle-2020-10-21.html?searchResultPosition=6
 
-**Trump’s Campaign Cash Dwindled to $63 Million Entering October**\
+**Trump Campaign’s $63 Million Dwarfed by Biden’s $177 Million**\
 `New financial filings showed the extent of the president’s cash troubles, as he is now badly outmatched by Joe Biden.`\
 https://nytimes.com/2020/10/20/us/politics/trump-money-biden.html?searchResultPosition=7
 
