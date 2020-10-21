@@ -1,5 +1,5 @@
 **Surprising Census Results in N.Y.C.**\
-`The self-response rate was higher than   predicted, equaling the 2010 count despite what the mayor called "so many more challenges in the way.” `\
+`The self-response rate was higher than   predicted, equaling the 2010 count despite what the mayor called “so many more challenges in the way.” `\
 https://nytimes.com/2020/10/21/nyregion/census-nyc.html?searchResultPosition=1
 
 **LeBron James on Black Voter Participation, Misinformation and Trump**\
@@ -26,15 +26,15 @@ https://nytimes.com/2020/10/21/world/americas/mexico-city-quarantine-baking.html
 `Before you pick up one of these hair-raising, shiver-inducing novels, you’re going to want to close the curtains and check the locks (twice).`\
 https://nytimes.com/2020/10/21/at-home/50-states-50-scares.html?searchResultPosition=7
 
+**Congratulations, You’ve Won the White House. Now What?**\
+`If Biden holds on, keeping the Democratic coalition intact will take an unusual level of political skill.`\
+https://nytimes.com/2020/10/21/opinion/biden-2020-democratic-party.html?searchResultPosition=8
+
 **Google Antitrust Fight Thrusts Low-Key C.E.O. Into the Line of Fire**\
 `Sundar Pichai, chief executive of Google’s parent company for less than a year, already faces the internet giant’s biggest threat in its 22 years.`\
-https://nytimes.com/2020/10/21/technology/google-antitrust-sundar-pichai.html?searchResultPosition=8
+https://nytimes.com/2020/10/21/technology/google-antitrust-sundar-pichai.html?searchResultPosition=9
 
 **A Biden Landslide? Some Democrats Can’t Help Whispering**\
 `Democrats are still haunted by the ghosts of 2016. But some are allowing themselves to contemplate a Biden victory big enough to reorder the nation’s politics.`\
-https://nytimes.com/2020/10/21/us/politics/biden-election-landslide.html?searchResultPosition=9
-
-**Congratulations, You’ve Won the White House. Now What?**\
-`If Biden holds on, keeping the Democratic coalition intact will take an unusual level of political skill.`\
-https://nytimes.com/2020/10/21/opinion/biden-2020-democratic-party.html?searchResultPosition=10
+https://nytimes.com/2020/10/21/us/politics/biden-election-landslide.html?searchResultPosition=10
 
