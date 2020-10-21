@@ -18,7 +18,7 @@ https://nytimes.com/2020/10/21/nyregion/census-nyc.html?searchResultPosition=4
 `In an interview, the recently crowned N.B.A. champion addressed his latest political push: combating misinformation among Black communities before Election Day.`\
 https://nytimes.com/2020/10/21/us/politics/lebron-james-trump-black-voters.html?searchResultPosition=5
 
-**Demand for Pakistan Visas Fuels Deadly Stampede in Afghanistan**\
+**Demand for Pakistan Visas Sets Off Deadly Stampede in Afghanistan**\
 `At least 12 people died as thousands crowded a soccer stadium. Many were seeking medical care in Pakistan, which recently eased its pandemic border restrictions.`\
 https://nytimes.com/2020/10/21/world/asia/afghanistan-stampede-visas-pakistan.html?searchResultPosition=6
 
