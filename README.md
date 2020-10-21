@@ -1,4 +1,4 @@
-**London’s Latest Art Scene: Its Suburbs and Towns**\
+**Growing Scenes for London Artists: Towns and Suburbs**\
 `The pandemic has accelerated a creative exodus.`\
 https://nytimes.com/2020/10/21/arts/design/artists-hastings-luton-croydon.html?searchResultPosition=1
 
