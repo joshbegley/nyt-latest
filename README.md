@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/21/arts/music/joel-ross-good-vibes-who-are-you.html?
 https://nytimes.com/2020/10/21/technology/police-can-open-your-phone-its-ok.html?searchResultPosition=2
 
 **Westminster Dog Show Will Move to the Country in June**\
-`The event, long a fixture at Madison Square Garden in Manhattan, will move to Lyndhurst, an estate along the Hudson River in Westchester County, N.Y., for an outdoor show in 2021.`\
+`The event, long a fixture at Madison Square Garden in Manhattan, will move to Lyndhurst, a riverside estate in Westchester County, next year for an outdoor show.`\
 https://nytimes.com/2020/10/21/sports/westminster-dog-show-2021-tarrytown-lyndhurst.html?searchResultPosition=3
 
 **What Cows Eat Affects Climate**\
