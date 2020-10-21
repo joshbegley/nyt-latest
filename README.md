@@ -22,9 +22,9 @@ https://nytimes.com/2020/10/21/arts/design/jacob-lawrence-painting-found.html?se
 `Federal authorities and academics have long described private paramilitary organizations as “militias.” Some critics say the term gives the groups more legitimacy than they deserve.`\
 https://nytimes.com/2020/10/21/us/militia-michigian.html?searchResultPosition=6
 
-**A man in Maryland has been arrested and accused of threatening to kidnap and kill Biden and Harris.**\
+**A man in Maryland was arrested and charged with threatening to kidnap and kill Biden and Harris.**\
 `A man in Frederick, Md., northwest of Washington, is accused of threatening to kidnap and kill Joe Biden and Kamala Harris.`\
-https://nytimes.com/2020/10/21/us/elections/a-man-in-maryland-has-been-arrested-and-accused-of-threatening-to-kidnap-and-kill-biden-and-harris.html?searchResultPosition=7
+https://nytimes.com/2020/10/21/us/elections/a-man-in-maryland-was-arrested-and-charged-with-threatening-to-kidnap-and-kill-biden-and-harris.html?searchResultPosition=7
 
 **The F.D.A. Wanted to Ban Some Hair Straighteners. It Never Happened.**\
 `In 2016, agency scientists deemed hair straighteners containing formaldehyde to be unsafe, according to newly obtained emails.`\
