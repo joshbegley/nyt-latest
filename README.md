@@ -22,7 +22,7 @@ https://nytimes.com/2020/10/21/arts/robert-demora-deade.html?searchResultPositio
 `You don’t need much of a reason to make these Australian favorites, but Melissa Clark makes a compelling argument.`\
 https://nytimes.com/2020/10/21/dining/the-case-for-sausage-rolls.html?searchResultPosition=6
 
-**Analyst Who Collected the Infamous Trump Tape Rumor Wants to Clear His Name**\
+**Analyst Who Reported the Infamous Trump Tape Rumor Wants to Clear His Name**\
 `The Steele dossier’s main source explained where its most notorious claim came from — and called Republicans’ accusations that he is a Russian agent “slander.”`\
 https://nytimes.com/2020/10/21/us/politics/igor-danchenko-steele-dossier.html?searchResultPosition=7
 
