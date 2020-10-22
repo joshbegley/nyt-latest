@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/21/us/politics/grenell-maduro-venezuela-trump.html?s
 https://nytimes.com/2020/10/21/us/tulsa-massacre-coffins-grave.html?searchResultPosition=3
 
 **Iran and Russia Seek to Influence Election in Final Days, U.S. Officials Warn**\
-`Both countries have obtained voter information, national security officials warned, but there was no indication that any votes themselves have been altered.`\
+`Iran is behind threatening, spoofed emails sent to voters, the officials said, but there was no indication that any votes themselves had been altered.`\
 https://nytimes.com/2020/10/21/us/politics/iran-russia-election-interference.html?searchResultPosition=4
 
 **Rudy Giuliani Denies He Did Anything Wrong in New ‘Borat’ Movie**\
