@@ -32,7 +32,7 @@ https://nytimes.com/2020/10/22/arts/music/popcast-mariah-carey.html?searchResult
 
 **Trump Campaign Draws Rebuke for Surveilling Philadelphia Voters**\
 `President Trump’s campaign has been videotaping voters at ballot drop boxes, a tactic that could amount to illegal voter intimidation, Pennsylvania’s attorney general says.`\
-https://nytimes.com/2020/10/22/us/politics/trump-campaign-draws-rebuke-for-surveilling-philadelphia-voters.html?searchResultPosition=9
+https://nytimes.com/2020/10/22/us/politics/trump-campaign-voter-surveillance.html?searchResultPosition=9
 
 **Goldman Sachs to Pay Nearly $3 Billion in 1MDB Case**\
 `The Justice Department formally announced the guilty plea of Goldman Sachs in the settlement over the 1MDB fraud. Goldman will be required to pay over $2.9 billion in criminal fines, penalties and disgorgement.`\
