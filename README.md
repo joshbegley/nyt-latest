@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/22/sports/baseball/world-series-dodgers-rays-game-2.
 `A matchup of 5-0 teams in Tennessee is the week’s main event. But keep your eyes on a potential upset in Arizona as Kyler Murray leads his upstart Cardinals against the 5-0 Seahawks.`\
 https://nytimes.com/2020/10/22/sports/football/nfl-picks-week-7.html?searchResultPosition=2
 
-**Your Thursday Briefing**\
+**Nigeria Protests, Coronavirus, Pope Francis: Your Thursday Briefing**\
 `Security forces in Nigeria open fire on protesters.`\
 https://nytimes.com/2020/10/21/briefing/nigeria-protests-coronavirus-pope-francis.html?searchResultPosition=3
 
