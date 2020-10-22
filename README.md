@@ -1,40 +1,40 @@
-**America and the Virus: ‘A Colossal Failure of Leadership’**\
-`In its destruction of American lives, treasure and well-being, this pandemic marks the greatest failure of U.S. governance since Vietnam.`\
-https://nytimes.com/2020/10/22/opinion/coronavirus-united-states.html?searchResultPosition=1
+**Grateful for a Wedding in Prison**\
+`Chelsea Moore, a law student, married Christopher Blackwell, who is incarcerated for murder, at the Monroe Correctional Complex in Washington State. He will be released in 2045.`\
+https://nytimes.com/2020/10/22/fashion/weddings/grateful-for-a-wedding-in-prison.html?searchResultPosition=1
 
-**Elijah Pierce, Outsider Artist, Finds a Spotlight at the Right Time**\
-`He would have rejected the word “activist,” but his politically and religiously informed woodcarvings feel in tune with a turbulent year.`\
-https://nytimes.com/2020/10/22/arts/elijah-pierce-outsider-artist-new-exhibit.html?searchResultPosition=2
+**In Texas Towns Gutted by Covid-19, a Fragile Effort to Sustain a Cherished Sport**\
+`The Friday night lights of high school football have dimmed or been shut down through much of the Rio Grande Valley.`\
+https://nytimes.com/2020/10/22/sports/texas-football-covid-19.html?searchResultPosition=2
 
-**Michelle Obama’s ‘Becoming’ Editor Starts Her Own Publishing Firm**\
-`Molly Stern, the former publisher of Crown, is starting Zando, an independent publishing company with an unusual marketing strategy.`\
-https://nytimes.com/2020/10/22/books/zando-molly-stern-publishing.html?searchResultPosition=3
+**Costume Drama: The Highs and Lows of Superhero Uniforms**\
+`Comic book heroes are seemingly eternal, but they still get to change their clothes now and again.`\
+https://nytimes.com/2020/10/22/style/costume-drama-the-highs-and-lows-of-superhero-uniforms.html?searchResultPosition=3
 
-**He Was a Rising Jazz Pianist. Then His N.Y.C. Dreams Were Shattered.**\
-`The police said an attack on the pianist was not a hate crime, but social media disagreed. Now he’s considering a return to Japan.`\
-https://nytimes.com/2020/10/22/nyregion/jazz-pianist-attack-racism.html?searchResultPosition=4
+**Trump’s Cash Crunch Constrains His Campaign at a Critical Juncture**\
+`With far less money that anticipated, campaign officials are scrambling to address a severe financial disadvantage against Joseph R. Biden Jr., producing something of an internal blame game.`\
+https://nytimes.com/2020/10/22/us/politics/trump-campaign-money.html?searchResultPosition=4
 
-**At 12, She’s a Covid ‘Long Hauler’**\
-`Although most young people recover quickly, doctors are seeing more children and teens with lingering fatigue and other chronic problems.`\
-https://nytimes.com/2020/10/22/well/family/coronavirus-symptoms-kids-children-long-hauler.html?searchResultPosition=5
+**The Newest Thing in Fashion? Old Clothes**\
+`Disposability is no longer chic. A new magazine joins a host of big brands in exploring the joys of upcycling.`\
+https://nytimes.com/2020/10/22/style/upcycling-fashion.html?searchResultPosition=5
 
-**A First-Time Survey of Asian Art Gets a Second Chance to Dazzle**\
-`The curators of the Asia Society Triennial planned a really big show. They didn’t plan on reconfiguring it for a city dealing with a pandemic.`\
-https://nytimes.com/2020/10/22/arts/asia-society-triennial-rescheduled.html?searchResultPosition=6
+**OSHA Under Fire Over Regulation of Meatpacking in Pandemic**\
+`Critics say the agency has applied scant oversight and negligible penalties despite virus outbreaks at many plants in the spring.`\
+https://nytimes.com/2020/10/22/business/economy/osha-coronavirus-meat.html?searchResultPosition=6
 
-**Help! My Travel Agency Shut Down and I’m Out $2,000**\
-`Our columnist investigates whether there is any recourse for a canceled flight booked through STA Travel, which filed for bankruptcy in August.`\
-https://nytimes.com/2020/10/22/travel/help-my-travel-agency-shut-down-and-im-out-2000.html?searchResultPosition=7
+**Trump Promised Seniors Drug Discount Cards. They May Be Illegal.**\
+`A proposal announced by President Trump last month was to send older Americans $200 discount cards to offset prescription costs. It’s not going to happen before the election, and maybe not ever.`\
+https://nytimes.com/2020/10/22/us/politics/trump-prescription-drugs.html?searchResultPosition=7
 
-**What Does Amy Coney Barrett Mean for the Supreme Court?**\
-`We know who her allies are, and we know how to read what she’s written or signed.`\
-https://nytimes.com/2020/10/22/opinion/supreme-court-amy-coney-barrett.html?searchResultPosition=8
+**To Cover College Quarantines, We Turned to the Best Sources: Student Journalists**\
+`A network of freelance correspondents provided a rare glimpse into how schools were handling the pandemic.`\
+https://nytimes.com/2020/10/22/insider/coronavirus-college-journalists.html?searchResultPosition=8
 
-**Pandemic-Forced Isolation Opens New Artistic Pathways**\
-`A sculptor and designer, Daniel Arsham has returned to painting — a medium he had largely left behind.`\
-https://nytimes.com/2020/10/22/arts/daniel-arsham-pandemic-isolation.html?searchResultPosition=9
+**Republicans Set to Advance Barrett Nomination Amid Democratic Boycott**\
+`The action by the Senate Judiciary Committee would set up a vote on Monday by the full chamber to confirm Judge Amy Coney Barrett to the Supreme Court.`\
+https://nytimes.com/2020/10/22/us/politics/barrett-nomination-republicans.html?searchResultPosition=9
 
-**Putting Pencil to Paper, in Galleries and in the Voting Booth**\
-`New exhibitions of up-to-the-moment drawings illustrate our historic moment, even as it unfolds.`\
-https://nytimes.com/2020/10/22/arts/design/drawing-exhibitions.html?searchResultPosition=10
+**Forget Antitrust Laws. To Limit Tech, Some Say a New Regulator Is Needed.**\
+`Even as the Justice Department sued Google, some antitrust experts wondered whether a different government response would be more effective.`\
+https://nytimes.com/2020/10/22/technology/antitrust-laws-tech-new-regulator.html?searchResultPosition=10
 
