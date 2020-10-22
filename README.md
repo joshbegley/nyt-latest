@@ -15,7 +15,7 @@ https://nytimes.com/2020/10/22/opinion/covid-college-humanities.html?searchResul
 https://nytimes.com/2020/10/22/dining/drinks/wine-prices.html?searchResultPosition=4
 
 **Deposition of Ghislaine Maxwell, Charged in Epstein Case, Is Revealed**\
-`Ms. Maxwell, who fought to keep the deposition secret, repeatedly denied that she helped Jeffrey Epstein recruit, groom and sexually abuse young women.`\
+`Ms. Maxwell, who fought to keep the deposition secret, repeatedly denied that she helped Jeffrey Epstein recruit, groom and sexually abuse teenage girls.`\
 https://nytimes.com/2020/10/22/nyregion/ghislaine-maxwell-epstein-deposition.html?searchResultPosition=5
 
 **Some Republicans Are Abandoning the Trump Ship**\
