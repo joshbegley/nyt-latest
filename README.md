@@ -1,5 +1,5 @@
 **Man Pleads Guilty to Cyberstalking Tulsa Mayor Before Trump Rally**\
-`Adam Maxwell Donn, 40, of Norfolk, Va., sent dozens of threatening emails to try to get President Trump’s campaign rally canceled, officials said.`\
+`Adam Maxwell Donn, 40, of Norfolk, Va., sent dozens of harassing and threatening emails to try to get President Trump’s campaign rally canceled, officials said.`\
 https://nytimes.com/2020/10/21/us/tulsa-mayor-cyberstalking.html?searchResultPosition=1
 
 **How Do I Listen to ‘Sway’?**\
