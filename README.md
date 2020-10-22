@@ -1,5 +1,5 @@
 **Judge Dismisses Third-Degree Murder Charge in George Floyd Killing**\
-`A judge upheld the more serious charge of second-degree murder against Derek Chauvin, the former Minneapolis police officer who was captured on video kneeling on Mr. Floyd’s neck.`\
+`The judge upheld the more serious charge of second-degree murder against Derek Chauvin, the former Minneapolis police officer who was captured on video kneeling on Mr. Floyd’s neck.`\
 https://nytimes.com/2020/10/22/us/derek-chauvin-third-degree-murder.html?searchResultPosition=1
 
 **Read the document**\
