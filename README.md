@@ -14,7 +14,7 @@ https://nytimes.com/2020/10/23/movies/bad-hair-clip.html?searchResultPosition=3
 `The writer and director Justin Simien narrates a sequence from his horror satire.`\
 https://nytimes.com/video/movies/100000007409251/bad-hair-scene.html?searchResultPosition=4
 
-**Libya Cease-Fire Raises Hopes of Full Peace Deal**\
+**Libya Cease-Fire Raises Hopes for Full Peace Deal**\
 `The two main factions in years of civil war that have drawn in Russia, Turkey and other regional powers signed an accord at the United Nations in Geneva.`\
 https://nytimes.com/2020/10/23/world/middleeast/libya-ceasefire.html?searchResultPosition=5
 
