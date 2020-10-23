@@ -12,7 +12,7 @@ https://nytimes.com/2020/10/22/opinion/reader-reaction-debate.html?searchResultP
 
 **Biden calls Trump ‘one of the most racist presidents we’ve had in modern history.’**\
 `By Annie Karni`\
-https://nytimes.com/2020/10/22/us/politics/biden-calls-trump-one-of-the-most-racist-presidents-weve-had-in-modern-history.html?searchResultPosition=4
+https://nytimes.com/2020/10/22/us/politics/biden-trump-racism.html?searchResultPosition=4
 
 **Trump and Biden Differ on Health Care Plans**\
 `President Trump and Joe Biden took different tacks on a health care plan to deal with pre-existing conditions.`\
