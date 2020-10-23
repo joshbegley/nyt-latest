@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/22/us/waukegan-police-shooting-protests.html?searchResultPosition=1
 
 **Watch Live: The Final 2020 Presidential Debate**\
-`The third presidential debate between Joseph R. Biden Jr. and President Trump will take place in Nashville. It will be moderated by Kristen Welker of NBC News. The debate commission will mute each candidate’s audio feed while his rival has the floor to avoid interruptions.`\
+`The second presidential debate between Joseph R. Biden Jr. and President Trump will take place in Nashville. It will be moderated by Kristen Welker of NBC News. The debate commission will mute each candidate’s audio feed at times to cut down on interruptions.`\
 https://nytimes.com/video/us/politics/100000007407847/debate-live-stream.html?searchResultPosition=2
 
 **Debate Preview: There Will Be Muting**\
