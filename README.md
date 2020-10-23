@@ -30,7 +30,7 @@ https://nytimes.com/2020/10/23/sports/big-ten-football.html?searchResultPosition
 `Federal prosecutors said Enrique Marquez Jr., 28, provided the weapons that were used by a friend and his wife to kill 14 people at a social services center on Dec. 2, 2015.`\
 https://nytimes.com/2020/10/23/us/enrique-marquez-san-bernardino-attack.html?searchResultPosition=8
 
-**In Trump Donations, Big Tax Write-Offs and Claims That Don’t Always Add Up**\
+**Trump’s Philanthropy: Big Tax Write-Offs and Claims That Don’t Always Add Up**\
 `Hidden financial records cast doubt on a number of his charitable commitments and show that most of his giving came from land deals that offset his income.`\
 https://nytimes.com/2020/10/23/us/trump-taxes-philanthropy.html?searchResultPosition=9
 
