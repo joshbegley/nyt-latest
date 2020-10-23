@@ -23,7 +23,7 @@ https://nytimes.com/video/us/elections/100000007410728/debate-biden-trump-minimu
 https://nytimes.com/video/us/elections/100000007410735/biden-trump-energy-windmills-debate.html?searchResultPosition=6
 
 **In Calmer Debate, Biden and Trump Offer Sharply Different Visions for Nation**\
-`In a more restrained appearance, President Trump depicted Joseph R. Biden Jr. as an ineffectual Washington insider.  Mr. Biden accused the president of heartlessness for separating migrant families and inflaming racial tensions.`\
+`In a more restrained appearance, President Trump depicted Joseph R. Biden Jr. as an ineffectual Washington insider. Mr. Biden accused the president of heartlessness for separating migrant families and inflaming racial tensions.`\
 https://nytimes.com/2020/10/22/us/politics/debate-presidential-recap.html?searchResultPosition=7
 
 **Biden Says Family Separations Have Made U.S. a ‘Laughingstock’**\
