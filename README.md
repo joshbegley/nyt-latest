@@ -15,7 +15,7 @@ https://nytimes.com/2020/10/23/us/politics/trump-biden-presidential-debate.html?
 https://nytimes.com/2020/10/23/style/modern-love-its-not-easy-being-easy.html?searchResultPosition=4
 
 **Trump and Biden’s Final Debate: Your Friday Briefing**\
-`Here’s everything you need to know.`\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/10/22/briefing/trump-and-bidens-final-debate-your-friday-briefing.html?searchResultPosition=5
 
 **NBC’s Kristen Welker Manages to Keep Order at Final Debate**\
