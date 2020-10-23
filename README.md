@@ -14,8 +14,8 @@ https://nytimes.com/video/us/elections/100000007410728/debate-biden-trump-minimu
 `Joe Biden said solar and wind energy would provide an economic boost, while President Trump questioned their efficiency and called relying on them “a pipe dream.”`\
 https://nytimes.com/video/us/elections/100000007410735/biden-trump-energy-windmills-debate.html?searchResultPosition=4
 
-**In Calmer Debate, Biden and Trump Offer Sharply Divergent Visions for Nation**\
-`In a more restrained appearance, President Trump told Joseph R. Biden Jr., “You didn’t get it done” in Washington. Mr. Biden accused the president of heartlessness for separating migrant families and inflaming racial tensions.`\
+**In Calmer Debate, Biden and Trump Offer Sharply Different Visions for Nation**\
+`In a more restrained appearance, President Trump depicted Joseph R. Biden Jr. as an ineffectual Washington insider.  Mr. Biden accused the president of heartlessness for separating migrant families and inflaming racial tensions.`\
 https://nytimes.com/2020/10/22/us/politics/debate-presidential-recap.html?searchResultPosition=5
 
 **Biden Says Family Separations Have Made U.S. a ‘Laughingstock’**\
