@@ -1,4 +1,4 @@
-**‘We’ve Seen That Pattern’: Harris Slams Trump as a Racist**\
+**‘We’ve Seen That Pattern’: Harris Slams Trump as Racist**\
 `Senator Kamala Harris, the Democratic vice-presidential nominee, said, while addressing voters at Morehouse College, a historically Black institution in Atlanta, that President Trump has shown a pattern of racism.`\
 https://nytimes.com/video/us/elections/100000007412930/kamala-harris-morehouse-georgia.html?searchResultPosition=1
 
