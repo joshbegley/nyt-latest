@@ -1,40 +1,40 @@
-**The Cautionary Tale of Adam Neumann and WeWork**\
-`In “Billion Dollar Loser,” Reeves Wiedeman places the once exalted Silicon Valley founder in the context of contemporary capitalism.`\
-https://nytimes.com/2020/10/23/books/review/billion-dollar-loser-adam-neumann-wework-reeves-wiedemann.html?searchResultPosition=1
-
-**What Does Your Unique Style Say About You?**\
-`How much do you think about what you wear and how you look? Do your clothes, hairstyle and accessories say something larger about your identity?`\
-https://nytimes.com/2020/10/23/learning/what-does-your-unique-style-say-about-you.html?searchResultPosition=2
-
-**Weekly Health Quiz: Elections, Knees and a New Organ?**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2020/10/23/well/live/23healthquiz-10232020.html?searchResultPosition=3
-
-**In the West, Lightning Grows as a Cause of Damaging Fires**\
-`In the West, wildfires caused by lightning have been growing bigger and occurring more frequently. With climate change, other parts of the country may feel the effects, too.`\
-https://nytimes.com/interactive/2020/10/23/climate/west-lightning-wildfires.html?searchResultPosition=4
-
 **Letters to the Editor**\
 `Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2020/10/23/books/review/letters-to-the-editor.html?searchResultPosition=5
+https://nytimes.com/2020/10/23/books/review/letters-to-the-editor.html?searchResultPosition=1
 
-**Looking for Work, and Hope: Jobless Americans Tell Their Stories**\
-`Millions across the U.S. have lost work. What toll has that taken on people’s lives in places like Owensboro, Ky., and Eau Claire, Wis.? The National desk teamed up with local news organizations to find out.`\
-https://nytimes.com/2020/10/23/insider/unemployed-interviews.html?searchResultPosition=6
+**Biden and Trump’s Final Debate: Who Won?**\
+`How their last clash looked to Times Opinion writers.`\
+https://nytimes.com/2020/10/23/opinion/debate-trump-biden-who-won.html?searchResultPosition=2
 
-**For Italy’s Masked Rap Diva, an Era of Face Coverings Poses a Dilemma**\
-`Myss Keta, the mysterious Queen of the Milan Night and an authority on life behind the surgical veil, was on the brink of celebrity. Now, everyone looks like her.`\
-https://nytimes.com/2020/10/23/world/europe/italy-myss-keta-masks.html?searchResultPosition=7
+**Horror Masks Are Never Just About the Monster**\
+`These cinematic mainstays continue to terrify.`\
+https://nytimes.com/2020/10/23/movies/halloween-horror-masks.html?searchResultPosition=3
 
-**News Quiz: Russia, Google, World Series**\
-`Did you follow the headlines this week?`\
-https://nytimes.com/interactive/2020/10/23/briefing/news-quiz-russia-google-world-series.html?searchResultPosition=8
+**Met at Dunkin’, Married at Dunkin’**\
+`Sugar Good and John Thompson discovered there was more than coffee brewing during his early morning stops at the store she manages in Edmond, Okla. He proposed in the parking lot, and they married at the drive-through.`\
+https://nytimes.com/2020/10/23/style/dunkin-marriage.html?searchResultPosition=4
 
-**A Common Retort After Insensitive Remarks by Elected Leaders: Resign**\
-`Officials have long atoned for their racist and inappropriate comments. But unlike years past, when apologies might have been enough, they have also been asked to step down.`\
-https://nytimes.com/2020/10/23/us/mayor-resigns-race-criticism.html?searchResultPosition=9
+**It’s a Ballot Fight for Survival for Gig Companies Like Uber**\
+`A group that also includes Lyft and DoorDash has spent nearly $200 million to support a California proposition that could save them from a new labor law.`\
+https://nytimes.com/2020/10/23/technology/uber-lyft-california-prop-22.html?searchResultPosition=5
 
-**‘At Capacity’: Covid-19 Patients Push U.S. Hospitals to Brink**\
-`Utah officials issued urgent pleas and said they were planning to open a field hospital, which Wisconsin has already done. At least 14 states have a record number of coronavirus hospitalizations.`\
-https://nytimes.com/2020/10/23/us/covid-hospitalizations.html?searchResultPosition=10
+**A ‘Final Fantasy’ Alliance Gets Real**\
+`Kate Armitage and Eric de Grandmont met online while playing a video game. During chats, they realized their connection ran deeper. Soon they were traveling between New Jersey and Canada and falling in love.`\
+https://nytimes.com/2020/10/23/fashion/weddings/a-final-fantasy-alliance-gets-real.html?searchResultPosition=6
+
+**Six Takeaways From the Final Presidential Debate**\
+`It was an actual debate with real disagreements. President Trump still struggled for an answer on the coronavirus and Joe Biden waved away character attacks with a “Come on, man!”`\
+https://nytimes.com/2020/10/23/us/politics/debate-biden-trump.html?searchResultPosition=7
+
+**Susan Collins Hasn’t Changed Much, but Maine Has**\
+`Democrats are angry with her. Republicans see her as disloyal to the president. Her old-fashioned politics? “I don’t know if people respond as well to that anymore,” said her G.O.P. predecessor in the Senate.`\
+https://nytimes.com/2020/10/23/us/politics/susan-collins-maine-senate.html?searchResultPosition=8
+
+**What Will New York Real Estate Look Like Next Year?**\
+`City planners, developers and local officials weigh in on how the pandemic could change the city’s housing markets, land use and policy.`\
+https://nytimes.com/2020/10/23/realestate/nyc-housing-future.html?searchResultPosition=9
+
+**Sarah Bahbah Turns Her Lens on the Millennial Condition**\
+`Through photographs and film, the Los Angeles artist explores the experiences of young adults, usually women.`\
+https://nytimes.com/2020/10/23/style/sarah-bahbah-turns-her-lens-on-the-millennial-condition.html?searchResultPosition=10
 
