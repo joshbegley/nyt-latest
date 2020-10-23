@@ -1,5 +1,5 @@
-**Libya’s Two Main Factions Agree to a Cease-Fire**\
-`A U.N. mediator voiced hope that the deal would lay the groundwork for a broader political deal to end years of a civil war that has drawn in Russia, Turkey and other regional powers.`\
+**Libya Cease-Fire Raises Hopes of Full Peace Deal**\
+`The two main factions in years of civil war that have drawn in Russia, Turkey and other regional powers signed an accord at the United Nations in Geneva.`\
 https://nytimes.com/2020/10/23/world/middleeast/libya-ceasefire.html?searchResultPosition=1
 
 **The Final Debate**\
