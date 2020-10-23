@@ -14,9 +14,9 @@ https://nytimes.com/2020/10/23/us/politics/trump-biden-presidential-debate.html?
 `What if the fastest path to a committed relationship is to actively avoid one?`\
 https://nytimes.com/2020/10/23/style/modern-love-its-not-easy-being-easy.html?searchResultPosition=4
 
-**Your Friday Briefing**\
-`Trump and Biden square off in the final debate.`\
-https://nytimes.com/2020/10/22/briefing/your-friday-briefing.html?searchResultPosition=5
+**Trump and Biden’s Final Debate: Your Friday Briefing**\
+`Here’s everything you need to know.`\
+https://nytimes.com/2020/10/22/briefing/trump-and-bidens-final-debate-your-friday-briefing.html?searchResultPosition=5
 
 **NBC’s Kristen Welker Manages to Keep Order at Final Debate**\
 `“I’m jealous,” said Chris Wallace, the moderator of the unruly matchup last month, just after the debate, which featured a more civil President Trump.`\
