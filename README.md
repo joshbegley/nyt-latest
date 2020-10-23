@@ -22,7 +22,7 @@ https://nytimes.com/2020/10/22/health/covid-vaccine-fda-advisory-committee.html?
 `Corrections that appeared in print on Friday, Oct. 23, 2020.`\
 https://nytimes.com/2020/10/22/pageoneplus/corrections-oct-23-2020.html?searchResultPosition=6
 
-**Watch Trump vs. Biden Live Stream and Analysis**\
+**Watch Trump vs. Biden Debate Live Stream and Analysis**\
 `President Trump and former Vice President Joseph R. Biden Jr. meet for a second and final debate, moderated by Kristen Welker of NBC News. Watch here with live fact-checks and analysis.`\
 https://nytimes.com/interactive/2020/10/22/us/politics/debate-live-stream.html?searchResultPosition=7
 
