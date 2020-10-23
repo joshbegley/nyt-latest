@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/23/arts/music/gabriela-lena-frank-music.html?searchResultPosition=1
 
 **Goldman Makes its Bankers Pay**\
-`Do executive pay clawbacks deter wrongdoing?`\
+`Do compensation clawbacks deter wrongdoing?`\
 https://nytimes.com/2020/10/23/business/dealbook/goldman-sachs-clawback.html?searchResultPosition=2
 
 **What if Only White Men Voted?**\
