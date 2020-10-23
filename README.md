@@ -2,7 +2,7 @@
 `Daniel Jones was on his way to giving the Giants a signature play. Until he wasn’t.`\
 https://nytimes.com/2020/10/23/sports/daniel-jones-giants-eagles.html?searchResultPosition=1
 
-**Moderation Returns to Politics. Or at Least to the Debate**\
+**Moderation Returns to Politics. Or at Least to the Debate.**\
 `Donald Trump and Joe Biden faced off one last time, and the winner was Kristen Welker.`\
 https://nytimes.com/2020/10/23/arts/television/debate-kristen-welker.html?searchResultPosition=2
 
