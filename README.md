@@ -1,5 +1,5 @@
 **Trump Family Ally Is Arrested on Cyberstalking Charge**\
-`Ken Kurson, a close friend of the president’s son-in-law Jared Kushner, was arrested on federal charges stemming from his divorce.`\
+`Ken Kurson, a close friend of the president’s son-in-law Jared Kushner, was arrested in connection with incidents stemming from his divorce.`\
 https://nytimes.com/2020/10/23/nyregion/ken-kurson-arrest-cyberstalking.html?searchResultPosition=1
 
 **The Weekender**\
