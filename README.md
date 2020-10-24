@@ -2,8 +2,8 @@
 `Sink your teeth into this Byron Walden Saturday puzzle.`\
 https://nytimes.com/2020/10/23/crosswords/daily-puzzle-2020-10-24.html?searchResultPosition=1
 
-**Navy Plane Crashes in Alabama, Killing Crew**\
-`The plane crashed into a residential area. No civilians on the ground were injured, the authorities said.`\
+**Navy Plane Crashes in Alabama, Killing Crew of 2**\
+`The plane crashed next to a house. No civilians on the ground were injured, the authorities said.`\
 https://nytimes.com/2020/10/23/us/navy-plane-crash-alabama.html?searchResultPosition=2
 
 **U.F.C. 254: What to Watch for**\
