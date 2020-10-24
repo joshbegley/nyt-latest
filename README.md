@@ -14,9 +14,9 @@ https://nytimes.com/2020/10/23/sports/football/antonio-brown-buccaneers.html?sea
 `Officials said they planned to destroy the nest in Blaine, Wash., on Saturday before the voracious Asian giant hornets could multiply and lay waste to bees.`\
 https://nytimes.com/2020/10/23/us/-murder-hornet-nest-washington.html?searchResultPosition=4
 
-**Trump’s Claims About Hunter Biden Sends Online Activity Soaring**\
+**Trump’s Claims About Hunter Biden Send Online Activity Soaring**\
 `Google searches and Facebook posts about Joseph R. Biden Jr.’s son rose after President Trump’s misleading comments at Thursday’s debate.`\
-https://nytimes.com/2020/10/23/technology/trumps-claims-about-hunter-biden-sends-online-activity-soaring.html?searchResultPosition=5
+https://nytimes.com/2020/10/23/technology/trumps-claims-about-hunter-biden-send-online-activity-soaring.html?searchResultPosition=5
 
 **NASA Mission Springs a Small Leak After Touching an Asteroid**\
 `The OSIRIS-REX spacecraft collected rock and dirt samples from Bennu, but it appears to be losing some of what it grabbed.`\
