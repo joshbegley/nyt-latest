@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/23/crosswords/daily-puzzle-2020-10-24.html?searchRes
 `The plane crashed next to a house. No civilians on the ground were injured, the authorities said.`\
 https://nytimes.com/2020/10/23/us/navy-plane-crash-alabama.html?searchResultPosition=2
 
-**U.F.C. 254: What to Watch for**\
+**U.F.C. 254: What to Watch for From Nurmagomedov and Gaethje**\
 `Khabib Nurmagomedov will fight Justin Gaethje in a highly anticipated main event that was not on the radar at the start of 2020.`\
 https://nytimes.com/2020/10/23/sports/ufc-254.html?searchResultPosition=3
 
