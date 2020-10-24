@@ -15,7 +15,7 @@ https://nytimes.com/2020/10/24/business/millennial-personal-finance.html?searchR
 https://nytimes.com/2020/10/24/world/europe/covid-poland-president-duda.html?searchResultPosition=4
 
 **Forging Through ‘the Chaos of Life’ Together**\
-`In their two decades of marriage, Mary Sebonia Rhodes become “more open, patient and compassionate.” Matt Rhodes learned resiliency.`\
+`In their two decades of marriage, Mary Sebonia Rhodes became “more open, patient and compassionate.” Matt Rhodes learned resiliency.`\
 https://nytimes.com/2020/10/24/fashion/weddings/forging-through-the-chaos-of-life-together.html?searchResultPosition=5
 
 **Far-Right Groups Are Behind Most U.S. Terrorist Attacks, Report Finds**\
