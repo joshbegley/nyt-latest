@@ -1,5 +1,5 @@
 **‘It May Come Down to Pennsylvania,’ Biden Says**\
-`Joseph R. Biden Jr., the Democratic nominee for president, rallied voters at a drive-in event in Bristol Saturday, emphasizing the swing state’s importance.`\
+`Joseph R. Biden Jr., the Democratic nominee for president, rallied voters on Saturday at a drive-in event in Bristol, Pa., emphasizing the swing state’s importance.`\
 https://nytimes.com/video/us/elections/100000007413477/biden-pennsylvania.html?searchResultPosition=1
 
 **Israel Sees Warming Ties With Sudan as Symbolic Progress in Hostile Region**\
