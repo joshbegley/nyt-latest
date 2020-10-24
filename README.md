@@ -34,7 +34,7 @@ https://nytimes.com/video/us/elections/100000007413444/new-york-city-early-votin
 `Andreu Canet is one of the last survivors of the “baby bottle conscription.” Born in 1920, they were drafted as teenagers in an ill-fated bid to stop Franco from winning Spain’s civil war.`\
 https://nytimes.com/2020/10/24/world/europe/spain-civil-war-baby-bottlers.html?searchResultPosition=9
 
-**Wrangling Over Herd Immunity and Masks as Covid Cases Keep Rising**\
-`Readers are skeptical of herd immunity as a strategy and view mask-wearing as a limit on one’s freedom in order to save lives.`\
-https://nytimes.com/2020/10/24/opinion/letters/covid-herd-immunity-masks.html?searchResultPosition=10
+**Huge turnout in New York on first day of early voting.**\
+`At Madison Square Garden, Barclays Center and other sites, people arrived hours before polls opened. This is the first time that early voting has been allowed in New York in a presidential election.`\
+https://nytimes.com/2020/10/24/us/elections/huge-turnout-in-new-york-on-first-day-of-early-voting.html?searchResultPosition=10
 
