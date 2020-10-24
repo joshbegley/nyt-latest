@@ -31,7 +31,7 @@ https://nytimes.com/2020/10/24/opinion/visas-trump-students-journalists-us.html?
 https://nytimes.com/2020/10/24/nyregion/new-york-early-voting.html?searchResultPosition=8
 
 **Illinois Police Officer Fired After Fatally Shooting Black Man**\
-`The officer, who has not been named, was fired three days after he shot and killed 19-year-old Marcellis Stinnette, the passenger in a car he had been approaching to investigate.`\
+`The officer was fired three days after he killed 19-year-old Marcellis Stinnette, the passenger in a car he had been approaching to investigate. The Justice Department has agreed to examine the case.`\
 https://nytimes.com/2020/10/24/us/waukegan-police-officer-fired.html?searchResultPosition=9
 
 **Trump Votes Early in Florida**\
