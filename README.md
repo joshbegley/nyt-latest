@@ -1,40 +1,40 @@
+**How a Journeyman Infielder Taught Dave Roberts to Slow the Game Down**\
+`When Roberts was an information-hungry 26-year-old in the minor leagues, he soaked up valuable advice from a veteran third baseman named Jeff Manto that still serves him.`\
+https://nytimes.com/2020/10/24/sports/baseball/dave-roberts-dodgers.html?searchResultPosition=1
+
+**In South Korea, Draft Resisters Still Go to Prison. But Now It’s a Job.**\
+`A court ruled that conscientious objectors must be allowed to serve their country in other ways. The government says they’ll still have to do so behind prison walls.`\
+https://nytimes.com/2020/10/24/world/asia/south-korea-draft-conscientious-objectors.html?searchResultPosition=2
+
+**Biden, an Amtrak Evangelist, Could Be a Lifeline for a Rail Agency in Crisis**\
+`Amtrak has reduced service and is poised to cut thousands of jobs. Rail supporters argue that, win or lose, the Democratic presidential candidate could shift the debate over the agency’s future.`\
+https://nytimes.com/2020/10/24/us/biden-amtrak-covid.html?searchResultPosition=3
+
 **New Visas Limits Would Be a Self-Inflicted Wound for the U.S.**\
 `The Trump administration wants to make it harder for foreign students, exchange visitors and journalists.`\
-https://nytimes.com/2020/10/24/opinion/visas-trump-students-journalists-us.html?searchResultPosition=1
+https://nytimes.com/2020/10/24/opinion/visas-trump-students-journalists-us.html?searchResultPosition=4
 
 **Long Lines as New Yorkers Flood Polling Places for Early Voting**\
 `At Madison Square Garden, Barclays Center and other sites, people arrived hours before polls opened. This is the first time that early voting has been allowed in New York in a presidential election.`\
-https://nytimes.com/2020/10/24/nyregion/new-york-early-voting.html?searchResultPosition=2
+https://nytimes.com/2020/10/24/nyregion/new-york-early-voting.html?searchResultPosition=5
 
 **Illinois Police Officer Fired After Fatally Shooting Black Man**\
 `The officer, who has not been named, was fired three days after he shot and killed 19-year-old Marcellis Stinnette, the passenger in a car he had been approaching to investigate.`\
-https://nytimes.com/2020/10/24/us/waukegan-police-officer-fired.html?searchResultPosition=3
+https://nytimes.com/2020/10/24/us/waukegan-police-officer-fired.html?searchResultPosition=6
 
 **Trump Votes Early in Florida**\
 `President Trump on Saturday cast a ballot for himself in the 2020 presidential election, voting early at a polling site in West Palm Beach, Fla.`\
-https://nytimes.com/video/us/elections/100000007413374/trump-vote-florida.html?searchResultPosition=4
+https://nytimes.com/video/us/elections/100000007413374/trump-vote-florida.html?searchResultPosition=7
 
 **Joe Biden Had Close Ties With Police Leaders. Will They Help Him Now?**\
 `His proposed solution to addressing both urgent calls for police reform and animosity from law enforcement toward Democrats is one he’s long relied on: He’ll just get everyone in the same room.`\
-https://nytimes.com/2020/10/24/us/politics/joe-biden-police.html?searchResultPosition=5
+https://nytimes.com/2020/10/24/us/politics/joe-biden-police.html?searchResultPosition=8
 
 **How to Steal an Election**\
 `In the old days, nobody needed help from a foreign country.`\
-https://nytimes.com/2020/10/24/opinion/sunday/stealing-elections.html?searchResultPosition=6
+https://nytimes.com/2020/10/24/opinion/sunday/stealing-elections.html?searchResultPosition=9
 
 **Will Cuba Tip Florida to Trump?**\
 `Sixty-two years after the revolution, America’s relations with its neighbor to the south loom large.`\
-https://nytimes.com/2020/10/24/sunday-review/cuba-florida-trump-election.html?searchResultPosition=7
-
-**Amy Coney Barrett’s Rise Is a Threat to Gay Rights**\
-`Many of us thought gays and lesbians had won the marriage battle. Maybe not.`\
-https://nytimes.com/2020/10/24/opinion/amy-coney-barrett-gay-rights.html?searchResultPosition=8
-
-**How The Epoch Times Created a Giant Influence Machine**\
-`Since 2016, the Falun Gong-backed newspaper has used aggressive Facebook tactics and right-wing misinformation to create an anti-China, pro-Trump media empire.`\
-https://nytimes.com/2020/10/24/technology/epoch-times-influence-falun-gong.html?searchResultPosition=9
-
-**Arrest Leads to Tragedy in the Rio Grande Valley**\
-`Jorge Gonzalez Zuniga’s death after a brutal arrest prompted protests that are rare in a region where undocumented immigrants often prefer to stay silent.`\
-https://nytimes.com/2020/10/24/us/hidalgo-police-death-edinburg-rio-grande.html?searchResultPosition=10
+https://nytimes.com/2020/10/24/sunday-review/cuba-florida-trump-election.html?searchResultPosition=10
 
