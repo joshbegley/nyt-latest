@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/24/world/asia/hong-kong-asylum-seekers.html?searchRe
 https://nytimes.com/2020/10/24/world/asia/kabul-afghanistan-bombing-school.html?searchResultPosition=3
 
 **New York City billboards featuring Ivanka Trump and Jared Kushner draw a threatening letter.**\
-`A lawyer for Ms. Trump and Mr. Kushner, her husband, called the ads defamatory and demanded their removal.`\
+`By Stephanie Saul`\
 https://nytimes.com/2020/10/24/us/elections/ivanka-trump-jared-kushner-billboard.html?searchResultPosition=4
 
 **How to Pressure Your Landlord to Keep Your Building Safe**\
