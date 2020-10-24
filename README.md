@@ -18,9 +18,9 @@ https://nytimes.com/video/us/elections/100000007413622/trump-obama-florida-man.h
 `With the season’s finish line in sight, M.L.B.’s medical director said the outbreaks among the Cardinals and the Marlins this summer were a “wake-up call” that ultimately helped the sport.`\
 https://nytimes.com/2020/10/24/sports/baseball/mlb-season.html?searchResultPosition=5
 
-**Nurmagomedov announced his U.F.C. retirement in the octagon after winning.**\
+**Nurmagomedov announced his U.F.C. retirement in the octagon after defending his lightweight title.**\
 `By Morgan Campbell`\
-https://nytimes.com/2020/10/24/sports/nurmagomedov-announced-his-ufc-retirement-in-the-octagon-after-winning.html?searchResultPosition=6
+https://nytimes.com/2020/10/24/sports/nurmagomedov-announced-his-ufc-retirement-in-the-octagon-after-defending-his-lightweight-title.html?searchResultPosition=6
 
 **Venezuela Opposition Figure, Long Confined, Flees Country**\
 `Leopoldo López had spent the past six years in jail, house arrest and diplomatic asylum. He fled on Saturday to an undisclosed location, his party said.`\
