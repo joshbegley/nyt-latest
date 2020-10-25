@@ -1,5 +1,5 @@
-**Chaotic Walk-Off Gives Rays a Win and Ties the World Series**\
-`Two mistakes by the Dodgers on the last play of the game gave the Rays a Game 4 win that tied the World Series.`\
+**Rays Stun the Dodgers With a Chaotic Walk-Off Win in Game 4**\
+`The Dodgers needed one more out to take a 3-1 lead in the Series, but they made two mistakes on a wild final play that gave the Rays a memorable Game 4 victory.`\
 https://nytimes.com/2020/10/25/sports/dodgers-rays-game-4.html?searchResultPosition=1
 
 **Hail the Supermoon And Howl at a Canine Costume Contest**\
