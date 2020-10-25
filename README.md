@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/25/us/abandoned-churches-covid.html?searchResultPosition=1
 
 **Your Monday Briefing**\
-`China tackles a coronavirus outbreak in Kashgar.`\
+`China tackles an outbreak in Kashgar.`\
 https://nytimes.com/2020/10/25/briefing/china-virus-hongkong-southkorea-us-election.html?searchResultPosition=2
 
 **Sashimi With Spaghetti? Yes, Please. And a Slice of Mango on Top.**\
