@@ -6,21 +6,21 @@ https://nytimes.com/2020/10/25/books/best-agatha-christie-books-murder-mystery.h
 `Newer Cuban immigrants who previously had little engagement in American politics have started to identify as Trump Republicans. It could give the president a boost in a critical swing state.`\
 https://nytimes.com/2020/10/25/us/miami-cuban-trump-biden.html?searchResultPosition=2
 
+**Why Trump Can’t Take Red Counties in North Carolina for Granted**\
+`Even some people in Gastonia, N.C., are a little perplexed about why the president was holding a rally in a small community that’s already in his camp.`\
+https://nytimes.com/2020/10/25/us/politics/trump-north-carolina-rural-.html?searchResultPosition=3
+
 **With Vacation Rentals Empty, European Cities See a Chance to Reclaim Housing**\
 `Platforms like Airbnb have been criticized for raising living costs in popular cities. Now, officials are trying to move properties aimed at tourists to long-term leases.`\
-https://nytimes.com/2020/10/25/world/europe/airbnb-lisbon-housing.html?searchResultPosition=3
+https://nytimes.com/2020/10/25/world/europe/airbnb-lisbon-housing.html?searchResultPosition=4
 
 **Why False Positives Matter, Too**\
 `False negatives are not the only troublesome outcome of a faulty coronavirus test.`\
-https://nytimes.com/2020/10/25/health/coronavirus-testing-false-positive.html?searchResultPosition=4
+https://nytimes.com/2020/10/25/health/coronavirus-testing-false-positive.html?searchResultPosition=5
 
 **Democrats Hope 2020 Is the Year They Flip the Texas House**\
 `Republicans have controlled the state government since 2003. An anti-Trump surge could give Democrats a crucial boost.`\
-https://nytimes.com/2020/10/25/us/politics/texas-house-democrats-republicans.html?searchResultPosition=5
-
-**Why Trump Can’t Take Red Counties in North Carolina for Granted**\
-`Even some people in Gastonia, N.C., are a little perplexed about why the president was holding a rally in a small community that’s already in his camp.`\
-https://nytimes.com/2020/10/25/us/politics/trump-north-carolina-rural-.html?searchResultPosition=6
+https://nytimes.com/2020/10/25/us/politics/texas-house-democrats-republicans.html?searchResultPosition=6
 
 **Homes That Sold for Around $1.5 Million**\
 `Recent residential sales in New York City and the region.`\
