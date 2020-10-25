@@ -8,7 +8,7 @@ https://nytimes.com/2020/10/25/sports/football/covid-outbreak-titans-workout.htm
 
 **Pope Francis Appoints First African-American Cardinal**\
 `Wilton Gregory, the archbishop of Washington, who led the Roman Catholic Church’s response to the sexual abuse crisis in the early 2000s, was among 13 new cardinals named on Sunday.`\
-https://nytimes.com/2020/10/25/world/europe/pope-francis-cardinal-gregory.html?searchResultPosition=3
+https://nytimes.com/2020/10/25/us/pope-francis-cardinal-gregory.html?searchResultPosition=3
 
 **The Week in Business: A Headache for Big Tech**\
 `The government filed an antitrust lawsuit against Google and is considering one against Facebook, too.`\
