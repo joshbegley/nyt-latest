@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/25/opinion/letters/trump-humor.html?searchResultPosi
 `Readers respond to an Op-Ed essay on learning through watching.`\
 https://nytimes.com/2020/10/25/opinion/letters/tv-education.html?searchResultPosition=3
 
-**The Supreme Court’s Legitimacy Is Now in Question**\
+**We Were Clerks at the Supreme Court. Its Legitimacy Is Now in Question.**\
 `Brazen politics in Amy Coney Barrett’s confirmation process threatens the court’s standing with the public.`\
 https://nytimes.com/2020/10/25/opinion/supreme-court-amy-coney-barrett.html?searchResultPosition=4
 
