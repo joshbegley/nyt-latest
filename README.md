@@ -1,6 +1,6 @@
 **Border Patrol Agents Fatally Shoot Driver in Texas**\
 `The driver was shot in Laredo on Friday after he reversed his car into an agent and refused orders to stop, according to U.S. Customs and Border Protection.`\
-https://nytimes.com/2020/10/25/us/border-patrol-agents-fatally-shoot-driver-in-laredo-texas.html?searchResultPosition=1
+https://nytimes.com/2020/10/25/us/border-patrol-shooting-texas.html?searchResultPosition=1
 
 **Brett Phillips Becomes the Rays’ Latest Unlikely Hero**\
 `Phillips may have been the last hitter the Rays wanted in a do-or-die situation in the World Series. But he delivered one of the most memorable hits in team history to win Game 4.`\
