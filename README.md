@@ -10,8 +10,8 @@ https://nytimes.com/2020/10/25/us/tropical-storm-zeta.html?searchResultPosition=
 `A near party-line vote on Sunday to cut off debate over Judge Amy Coney Barrett’s Supreme Court nomination set up a final confirmation vote on Monday.`\
 https://nytimes.com/2020/10/25/us/politics/amy-barrett-senate-vote.html?searchResultPosition=3
 
-**Dunkin’ Brands Is Said to Be Near Deal to Sell Itself and Go Private**\
-`The parent of Dunkin’ and Baskin Robbins is in talks with a private-equity-backed company for a takeover that values the company at nearly $9 billion.`\
+**Dunkin’ Brands Is in Talks to Sell Itself and Go Private**\
+`The parent of Dunkin’ and Baskin Robbins is negotiating with a private-equity-backed company for a takeover that values the coffee company at nearly $9 billion.`\
 https://nytimes.com/2020/10/25/business/dealbook/dunkin-brands-sale-private-equity.html?searchResultPosition=4
 
 **These Sisters Have Transformed the Piano Duo**\
