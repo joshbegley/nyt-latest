@@ -32,5 +32,5 @@ https://nytimes.com/2020/10/24/sports/nurmagomedov-announced-his-ufc-retirement-
 
 **Venezuela Opposition Figure, Long Confined, Flees Country**\
 `Leopoldo López had spent the past six years in jail, house arrest and diplomatic asylum. He fled on Saturday to an undisclosed location, his party said.`\
-https://nytimes.com/2020/10/24/world/asia/venezuela-opposition-leader-escapes.html?searchResultPosition=10
+https://nytimes.com/2020/10/24/world/americas/venezuela-opposition-leader-escapes.html?searchResultPosition=10
 
