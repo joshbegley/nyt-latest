@@ -19,7 +19,7 @@ https://nytimes.com/2020/10/24/at-home/virtual-galas-fall-2020.html?searchResult
 https://nytimes.com/2020/10/24/pageoneplus/corrections-oct-25-2020.html?searchResultPosition=5
 
 **Members of Pence’s Inner Circle Test Positive for Coronavirus**\
-`Along with Marc Short, the vice president’s chief of staff, another staff member and a Pence adviser have also tested positive, according to people briefed on the developments.`\
+`Along with Marc Short, the vice president’s chief of staff, three additional staff members and a Pence adviser have also tested positive, according to people briefed on the developments.`\
 https://nytimes.com/2020/10/24/us/politics/pence-virus-marc-short.html?searchResultPosition=6
 
 **Lee Kun-hee of Samsung Dies at 78; Built an Electronics Titan**\
