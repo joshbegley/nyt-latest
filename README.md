@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/25/sports/baseball/brett-phillips-rays.html?searchRe
 https://nytimes.com/2020/10/25/podcasts/the-daily/my-mustache-my-self.html?searchResultPosition=2
 
 **N.F.L. Punishes Titans for Their Handling of Coronavirus Outbreak**\
-`A heavy fine, but no suspensions, come after two dozen players and staff members tested positive.`\
+`A heavy fine, but no suspensions, come after two dozen players and staff members tested positive for the virus.`\
 https://nytimes.com/2020/10/25/sports/football/covid-outbreak-titans-workout.html?searchResultPosition=3
 
 **Pope Francis Appoints First African-American Cardinal**\
