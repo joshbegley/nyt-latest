@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000007313607/russia-us-election-disinformation-v
 https://nytimes.com/2020/10/25/technology/seesaw-school-app.html?searchResultPosition=3
 
 **Republicans Cut Off Barrett Debate, Setting Up Final Confirmation Vote**\
-`Senate Republicans secured a 51-48 vote to limit debate on Judge Amy Coney Barrett’s Supreme Court nomination, setting up the final confirmation vote for Monday, eight days before the election.`\
+`Senate Republicans secured a 51-to-48 vote to limit debate on Judge Amy Coney Barrett’s Supreme Court nomination, setting up the final confirmation vote for Monday, eight days before the election.`\
 https://nytimes.com/video/us/politics/100000007414568/senate-barrett.html?searchResultPosition=4
 
 **Treaty to Prohibit Nuclear Weapons Passes Important Threshold**\
