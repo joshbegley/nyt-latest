@@ -6,9 +6,9 @@ https://nytimes.com/2020/10/25/business/economy/kodak-loan.html?searchResultPosi
 `Coach Adam Gase ceded the offensive play-calling duties and the Jets built a 10-0 lead. But the Bills used six field goals to end a two-game skid.`\
 https://nytimes.com/2020/10/25/sports/the-jets-kept-buffalo-out-of-the-end-zone-it-wasnt-enough.html?searchResultPosition=2
 
-**Trump and Biden ‘60 Minutes’ Interviews Air Tonight. Here’s What to Expect.**\
-`By Sydney Ember`\
-https://nytimes.com/2020/10/25/us/elections/trump-and-biden-60-minutes-interviews-air-tonight-heres-what-to-expect.html?searchResultPosition=3
+**The Trump and Biden ‘60 Minutes’ interviews air tonight. Here’s what to expect.**\
+`The exchanges, on CBS at 7:30 p.m. Eastern, have already attracted attention, in Biden’s case because of comments on the Supreme Court, and in Trump’s case because he walked out.`\
+https://nytimes.com/2020/10/25/us/elections/the-trump-and-biden-60-minutes-interviews-air-tonight-heres-what-to-expect.html?searchResultPosition=3
 
 **‘JQA’ Review: Fictional History That Resonates Today**\
 `In Aaron Posner’s play, there is more than one John Quincy Adams, but only one way to ensure that American democracy endures.`\
