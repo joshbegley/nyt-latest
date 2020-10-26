@@ -2,7 +2,7 @@
 `At his Monday news conference, Gov. Philip D. Murphy of New Jersey said the state is working with Newark to enforce new coronavirus mandates as cases surge.`\
 https://nytimes.com/video/us/politics/100000007416212/newark-coronavirus-shutdowns.html?searchResultPosition=1
 
-**Trump Says Harris ‘Will Not Be the First Woman President’**\
+**Trump Tells Supporters to Stop Harris from Becoming the ‘First Woman President’**\
 `President Trump mocked Senator Kamala Harris during a rally in Pennsylvania on Monday and said, “She will not be the first woman president — you can’t let that happen.”`\
 https://nytimes.com/video/us/elections/100000007416261/trump-kamala-harris-first-woman-president.html?searchResultPosition=2
 
