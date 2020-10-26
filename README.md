@@ -1,40 +1,40 @@
-**What Do We Do About Q?**\
-`The conspiracy theories seem ridiculous, but the consequences are real.`\
-https://nytimes.com/video/opinion/100000007409726/qanon-conspiracy-donald-trump.html?searchResultPosition=1
+**They Did Not Vote in 2016. Why They Plan on Skipping the Election Again.**\
+`Between a third and a half of all eligible voters typically stay home during presidential elections.`\
+https://nytimes.com/2020/10/26/us/election-nonvoters.html?searchResultPosition=1
 
-**Lesson of the Day: ‘How to Deal With a Crisis of Misinformation’**\
-`In this lesson, students examine their own information-consuming and sharing habits, then learn practical tips for thinking critically about news.`\
-https://nytimes.com/2020/10/26/learning/lesson-of-the-day-how-to-deal-with-a-crisis-of-misinformation.html?searchResultPosition=2
+**China’s Chance to Save Antarctic Sealife**\
+`Twenty-four countries and the E.U. have agreed to create three marine parks, which would ban fishing and other industrial activity. But to become a reality, China must also agree.`\
+https://nytimes.com/2020/10/26/opinion/climate-change-antartica-china.html?searchResultPosition=2
 
-**China Aims to End Extreme Poverty, but Covid-19 Exposes Gaps**\
-`The pandemic has worsened longstanding conditions that have widened inequality, hindering Xi Jinping’s vow to “leave no one behind.”`\
-https://nytimes.com/2020/10/26/world/asia/china-poverty-covid-19.html?searchResultPosition=3
+**20,000 Ballots an Hour, With Paper and Ink by the Ton**\
+`This election will require more paper ballots than any other in American history — which means some serious human labor and machine power.`\
+https://nytimes.com/interactive/2020/10/26/magazine/printing-mail-in-ballots.html?searchResultPosition=3
 
-**As a Coach and a Cop in Minneapolis, Where Would He Draw the Line?**\
-`While his city struggles with the pandemic and wounds laid bare by George Floyd’s killing, Charles Adams embodies the everyday people trying to make change.`\
-https://nytimes.com/2020/10/26/sports/george-floyd-police-schools.html?searchResultPosition=4
+**He’s a GOP Insider and Trump’s Friend. He Says Vote Your Conscience.**\
+`Armstrong Williams has had a front row seat to 30 years of conservative politics. He's come to some conclusions.`\
+https://nytimes.com/interactive/2020/10/26/magazine/armstrong-williams-interview.html?searchResultPosition=4
 
-**A Teacher, His Killer and the Failure of French Integration**\
-`For generations, public schools assimilated immigrant children into French society by instilling the nation’s ideals. The beheading of a teacher has raised doubts about whether that model still works.`\
-https://nytimes.com/2020/10/26/world/europe/france-beheading-teacher.html?searchResultPosition=5
+**Can Fashion Photography Survive the Pandemic?**\
+`Glossy magazines are going digital. Brands are shutting down. The fantasy images of women in ball gowns with elephants may soon be no more.`\
+https://nytimes.com/2020/10/26/style/fashion-photographers-coronavirus.html?searchResultPosition=5
 
-**Inside Decades of Nepotism and Bungling at the N.Y.C. Elections Board**\
-`Some staffers read or watch Netflix at the office, while others punch in and then go shopping or to the gym, current and former employees said.`\
-https://nytimes.com/2020/10/26/nyregion/nyc-voting-election-board.html?searchResultPosition=6
+**Witnessing Peru’s Enduring, if Altered, Snow Star Festival**\
+`Rising temperatures and melting glaciers have changed key aspects of the age-old Peruvian festival of Qoyllur Rit’i. Still, the celebrations persist.`\
+https://nytimes.com/2020/10/26/travel/qoyllur-riti-snow-star-festival-peru.html?searchResultPosition=6
 
-**The Erasure of Mesut Özil**\
-`A year ago, he was one of the Premier League’s highest-paid players. Now, after angering China and refusing a pay cut, he has simply vanished.`\
-https://nytimes.com/2020/10/26/sports/soccer/mesut-ozil-arsenal-china.html?searchResultPosition=7
+**In Madagascar, Endangered Lemurs Find a Private Refuge**\
+`Climate change is shifting the habitats of endangered species and requiring conservation scientists to think outside traditional park boundaries.`\
+https://nytimes.com/2020/10/26/science/madagascar-lemurs-climate-change.html?searchResultPosition=7
 
-**Word + Quiz: pneumatic**\
-`This word has appeared in 14 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/10/26/learning/word-quiz-pneumatic.html?searchResultPosition=8
+**For Best Results, Eat This Roti Immediately**\
+`In Los Angeles, the chef Rashida Holmes grows her small food business to meet the demand for comforting West Indian food.`\
+https://nytimes.com/2020/10/26/dining/bridgetown-roti-los-angeles.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘This Is Us’ and ‘The Haunting’**\
-`The NBC family drama returns, the classic haunted-house horror airs on TCM and Snoop Dogg presents at the BET Hip Hop Awards.`\
-https://nytimes.com/2020/10/26/arts/television/whats-on-tv-this-week-this-is-us-and-the-haunting.html?searchResultPosition=9
+**Colleges Slash Budgets in the Pandemic, With ‘Nothing Off-Limits’**\
+`Liberal arts departments, graduate student aid and even tenured teaching positions are targets as the coronavirus causes shortfalls.`\
+https://nytimes.com/2020/10/26/us/colleges-coronavirus-budget-cuts.html?searchResultPosition=9
 
-**Women on Qatar Airways Flight Endured Strip Search, Australia Says**\
-`Women told officials they had been pulled from a Sydney-bound flight in Doha and medically examined to see if they had recently given birth after an abandoned newborn was found in an airport bathroom.`\
-https://nytimes.com/2020/10/26/world/australia/qatar-airways-women-strip-search-baby.html?searchResultPosition=10
+**If the Shoe Floats**\
+`Over the decades, a mass of flotsam from a freighter accident has inspired scientific discovery, urban legend and, now, an art exhibition commemorating the Great Sneaker Spill of 1990.`\
+https://nytimes.com/2020/10/26/style/if-the-shoe-floats.html?searchResultPosition=10
 
