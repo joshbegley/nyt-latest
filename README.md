@@ -1,4 +1,4 @@
-**Trick-or-Treating This Year? Here’s How.**\
+**Trick-or-Treating This Year? Here’s How**\
 `Depending on the incidence of coronavirus in your community, it may be safe to trick-or-treat in a modified way.`\
 https://nytimes.com/interactive/2020/10/26/parenting/halloween-coronavirus-safety-tips.html?searchResultPosition=1
 
