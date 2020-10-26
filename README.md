@@ -18,7 +18,7 @@ https://nytimes.com/2020/10/26/us/elections/democrats-house-election.html?search
 `Peter King is leaving Congress, and Lee Zeldin could be vulnerable. The elections in the two districts will be “a referendum on Trump,” a strategist said.`\
 https://nytimes.com/2020/10/26/nyregion/lee-zeldin-congress-trump.html?searchResultPosition=5
 
-**Virginia Mollenkott, 88, Dies; Feminist Found Liberation in Bible**\
+**Virginia Mollenkott, 88, Dies; Feminist Found Liberation in the Bible**\
 `A Christian evangelical who was shunned for her lesbianism, she became an influential scholar of the Bible, finding in it acceptance of L.G.B.T.Q. people.`\
 https://nytimes.com/2020/10/26/books/virginia-mollenkott-dead.html?searchResultPosition=6
 
