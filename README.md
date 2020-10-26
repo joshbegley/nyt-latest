@@ -14,8 +14,8 @@ https://nytimes.com/2020/10/25/us/Illinois-hayride-death.html?searchResultPositi
 `The Cannon-Fadda conflict reached the point of no return, despite the seemingly endless monologues.`\
 https://nytimes.com/2020/10/25/arts/television/fargo-recap-episode-6.html?searchResultPosition=4
 
-**Your Monday Briefing**\
-`Spain declares a state of emergency.`\
+**Spain, Covid-19, Airbnb: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/10/25/briefing/spain-covid-19-airbnb.html?searchResultPosition=5
 
 **Quotation of the Day: New Spirits Rise in Old, Repurposed Churches**\
