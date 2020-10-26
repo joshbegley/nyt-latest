@@ -31,7 +31,7 @@ https://nytimes.com/2020/10/26/nyregion/lee-zeldin-congress-trump.html?searchRes
 https://nytimes.com/2020/10/26/books/virginia-mollenkott-dead.html?searchResultPosition=8
 
 **Jona Frank: Between Reality and Fantasy**\
-`From André Breton to Alison Bechdel, artists have turned the memoir genre upside down. Now a photographer recreates her troubled suburban childhood in a book, casting a movie star — Laura Dern — as her mother.`\
+`From André Breton to Alison Bechdel, memoir writers have turned the genre upside down. Now a photographer recreates her troubled suburban childhood in a book, casting a movie star — Laura Dern — as her mother.`\
 https://nytimes.com/2020/10/26/arts/design/jona-frank-cherry-hill.html?searchResultPosition=9
 
 **Only 26% of N.Y.C. Students Attend In-Person Classes, Far From Goal**\
