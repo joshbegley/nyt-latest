@@ -26,7 +26,7 @@ https://nytimes.com/video/us/politics/100000007415838/oronavirus-new-york-public
 `The court ruled that the defendants would not spend more time in jail. Their video call crossed the hard line Hamas takes on many interactions between Palestinians and Israelis.`\
 https://nytimes.com/2020/10/26/world/middleeast/peace-activists-convicted-gaza.html?searchResultPosition=7
 
-**Should You FedEx Your Mail-In Ballot? No.**\
+**Should You FedEx Your Ballot? No.**\
 `Experts say that people should use the United States Postal Service or a secure ballot drop box instead to make sure they are complying with vote-by-mail rules that vary by state.`\
 https://nytimes.com/2020/10/26/us/politics/mail-in-ballots-election.html?searchResultPosition=8
 
