@@ -30,7 +30,7 @@ https://nytimes.com/2020/10/26/us/colleges-budget-cuts-finance.html?searchResult
 `The actress, of “Goodfellas” and “The Sopranos” fame, is the unlikely star of her own HGTV show, “My Big Italian Adventure.”`\
 https://nytimes.com/2020/10/26/arts/television/lorraine-bracco-hgtv.html?searchResultPosition=8
 
-**There’s Water Ice on the Moon, and in More Places Than NASA Once Thought**\
+**There’s Water and Ice on the Moon, and in More Places Than NASA Once Thought**\
 `Future astronauts seeking water on the moon may not need to go into the most treacherous craters in its polar regions to find it.`\
 https://nytimes.com/2020/10/26/science/moon-ice-water.html?searchResultPosition=9
 
