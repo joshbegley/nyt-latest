@@ -1,5 +1,5 @@
 **Georgia, Once Reliably Red, Is Suddenly a Battleground. What Happened?**\
-`Biden could win the state because Republicans have failed to keep up with its diverse population and shifting suburban politics.`\
+`Joe Biden could win the state because Republicans have failed to keep up with its diverse population and shifting suburban politics.`\
 https://nytimes.com/2020/10/26/us/politics/georgia-battleground-state.html?searchResultPosition=1
 
 **Belarus Opposition Calls General Strike, as Protesters Gird for Long Fight**\
