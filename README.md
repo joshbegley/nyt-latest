@@ -4,7 +4,7 @@ https://nytimes.com/2020/10/26/briefing/coronavirus-chile-world-series.html?sear
 
 **The Field: Why Suburban Women Changed Their Minds**\
 `In 2016, white women in the suburbs helped deliver President Trump the White House. Four years later, they could be the ones to take it away from him.`\
-https://nytimes.com/2020/10/26/podcasts/the-daily/the-field-why-suburban-women-changed-their-minds.html?searchResultPosition=2
+https://nytimes.com/2020/10/26/podcasts/the-daily/suburban-women-trump-biden-election.html?searchResultPosition=2
 
 **Exports of Used Cars Are a Pollution Problem, U.N. Warns**\
 `Rich countries are sending millions of older, dirtier vehicles abroad, in a trade that’s largely unregulated, even as they mandate cleaner cars at home.`\
