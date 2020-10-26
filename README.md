@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/26/learning/word-quiz-pneumatic.html?searchResultPos
 `The NBC family drama returns, the classic haunted-house horror airs on TCM and Snoop Dogg presents at the BET Hip Hop Awards.`\
 https://nytimes.com/2020/10/26/arts/television/whats-on-tv-this-week-this-is-us-and-the-haunting.html?searchResultPosition=2
 
-**Australia Says Female Passengers on Qatar Flight Got Invasive Medical Exams**\
+**Women on Qatar Airways Flight Endured Strip Search, Australia Says**\
 `Women told officials they had been pulled from a Sydney-bound flight in Doha, strip-searched and examined to see if they had recently given birth after an abandoned newborn was found in an airport bathroom.`\
 https://nytimes.com/2020/10/26/world/australia/qatar-airways-women-strip-search-baby.html?searchResultPosition=3
 
