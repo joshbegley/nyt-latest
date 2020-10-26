@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/25/us/politics/pence-trump-coronavirus.html?searchRe
 `Uncontrolled spread of the coronavirus in northeast Wisconsin has done what little else could: subdue a city’s  urge to cheer on its beloved Packers together.`\
 https://nytimes.com/2020/10/25/us/wisconsin-packers-virus.html?searchResultPosition=2
 
-**‘Dear Evan Hansen’ and ‘Death of a Salesman’ Win at Olivier Awards**\
+**‘Dear Evan Hansen’ and ‘Leopoldstadt’ Pick Up Olivier Awards**\
 `Sam Tutty, Sharon D. Clarke and Andrew Scott are among the actors to triumph at the coronavirus-delayed awards, the British equivalent of the Tonys.`\
 https://nytimes.com/2020/10/25/theater/olivier-awards-winners-evan-hansen-salesman.html?searchResultPosition=3
 
