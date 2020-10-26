@@ -10,7 +10,7 @@ https://nytimes.com/video/us/elections/100000007415378/jews-for-trump-nyc-rally.
 `After banning the first Sacha Baron Cohen satire, the country has created tourism ads adopting its catchphrase.`\
 https://nytimes.com/2020/10/26/business/kazakhstan-embraces-borat.html?searchResultPosition=3
 
-**Arts Bailout in U.K. Buys Time, but Not Peace of Mind**\
+**Arts Bailout in U.K. Buys Time, but No Peace of Mind**\
 `In Liverpool, England, whose tourist trade is built on culture, more than 40 venues received money from a $2 billion fund. That life support lasts until April.`\
 https://nytimes.com/2020/10/26/arts/uk-bailout-liverpool.html?searchResultPosition=4
 
