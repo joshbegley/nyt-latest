@@ -27,7 +27,7 @@ https://nytimes.com/2020/10/26/world/europe/belarus-protests-lukashenko.html?sea
 https://nytimes.com/2020/10/26/opinion/letters/covid-trump-pence.html?searchResultPosition=7
 
 **Jeannette Williams-Parker, Nurse With a Daredevil Streak, Dies at 48**\
-`She was a registered nurse for 26 years, and loved rock music from the 1980s and ’90s. She became the first nurse in West Virginia to die of Covid-19.`\
+`A registered nurse for 26 years, she loved rock music from the 1980s and ’90s. She was the first nurse in West Virginia to die of Covid-19.`\
 https://nytimes.com/2020/10/26/obituaries/jeannette-williams-parker-dead-coronavirus.html?searchResultPosition=8
 
 **New Jersey Governor Addresses Newark’s Coronavirus Mandates**\
