@@ -27,7 +27,7 @@ https://nytimes.com/video/us/politics/100000007415838/oronavirus-new-york-public
 https://nytimes.com/2020/10/26/world/middleeast/peace-activists-convicted-gaza.html?searchResultPosition=7
 
 **Should You FedEx Your Ballot? No.**\
-`Experts say that people should use the United States Postal Service or a secure ballot drop box instead to make sure they are complying with vote-by-mail rules that vary by state.`\
+`Lady Gaga shared a photo of herself on Twitter holding a ballot and a FedEx envelope. But experts urged people to use the United States Postal Service or a secure ballot drop box instead.`\
 https://nytimes.com/2020/10/26/us/politics/mail-in-ballots-election.html?searchResultPosition=8
 
 **A Malaria Mystery, Partly Solved: What Happens When the Rains End?**\
