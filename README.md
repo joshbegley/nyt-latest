@@ -1,6 +1,6 @@
 **Australia Says Female Passengers on Qatar Flight Got Invasive Medical Exams**\
 `Women told officials they had been pulled from a Sydney-bound flight in Doha, strip-searched and examined to see if they had recently given birth after an abandoned newborn was found in an airport bathroom.`\
-https://nytimes.com/2020/10/26/world/australia/qatar-airlines-women-strip-search-baby.html?searchResultPosition=1
+https://nytimes.com/2020/10/26/world/australia/qatar-airways-women-strip-search-baby.html?searchResultPosition=1
 
 **Clayton Kershaw Steadies Dodgers and Puts a World Series Within Reach**\
 `Los Angeles rebounded after a wild loss on Saturday to beat the Tampa Bay Rays in Game 5 and move to within one win of a championship.`\
