@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/27/learning/our-eighth-annual-15-second-vocabulary-v
 `Clearly relishing the chance to strike back at his successor, the former president has been willing to throw punches on behalf of Joe Biden’s unity-focused campaign.`\
 https://nytimes.com/2020/10/27/us/politics/obama-trump-biden.html?searchResultPosition=3
 
-**What Is Trump’s Second-Term Agenda? He Won’t Say**\
+**Trump’s Second-Term Agenda? Slogans Over Details**\
 `President Trump’s norm-shattering ways now extend to a refusal to tell voters how he will spend another four years in the White House.`\
 https://nytimes.com/2020/10/27/us/politics/trump-second-term-agenda.html?searchResultPosition=4
 
