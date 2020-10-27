@@ -1,4 +1,4 @@
-**Watch Live: Biden Speaks In Georgia**\
+**Watch Live: Biden Speaks in Georgia**\
 `One week before Election Day, the Democratic presidential nominee, Joseph R. Biden Jr., will deliver a campaign speech in Warm Springs, Ga.`\
 https://nytimes.com/video/us/politics/100000007417442/biden-georgia-speech.html?searchResultPosition=1
 
