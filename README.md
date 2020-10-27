@@ -1,4 +1,4 @@
-**The Salt Lake Tribune Ends Daily Print Edition After 150 Years**\
+**The Salt Lake Tribune Ends Daily Print Edition After Nearly 150 Years**\
 `The Salt Lake City newspaper will move to weekly editions. The change will not result in any layoffs in the 65-person newsroom, according to the newspaper’s interim editor.`\
 https://nytimes.com/2020/10/27/business/media/salt-lake-tribune-daily-delivery.html?searchResultPosition=1
 
