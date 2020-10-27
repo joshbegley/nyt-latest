@@ -1,4 +1,4 @@
-**Al Qaeda Feels Losses in Syria and Afghanistan, but Stays Resilient**\
+**Al Qaeda Feels Losses in Syria and Afghanistan but Stays Resilient**\
 `American drones and U.S. allies killed several Qaeda leaders and operatives in the past week. But the organization has “ingrained itself in local communities and conflicts,” according to the U.N.`\
 https://nytimes.com/2020/10/27/world/middleeast/al-qaeda-afghanistan-syria-somalia.html?searchResultPosition=1
 
