@@ -18,8 +18,8 @@ https://nytimes.com/2020/10/27/nyregion/keith-raniere-nxivm.html?searchResultPos
 `With state and city government support, developers are building laboratories for medical research and incubator spaces for biotech start-ups amid the race for a coronavirus vaccine.`\
 https://nytimes.com/2020/10/27/business/life-science-new-york-coronavirus.html?searchResultPosition=5
 
-**U.S. Voters Agree on One Thing: They’d Feel Better Owning a Gun**\
-`At a recent gun show, people roamed the aisles in Black Lives Matter T-shirts and MAGA hats. “It’s a giant room of ‘you never know.’”`\
+**A Divided Nation Agrees on One Thing: Many People Want a Gun**\
+`Gun buyers say they are motivated by a new destabilizing sense that is pushing them to purchase weapons for the first time, or if they already have them, to buy more.`\
 https://nytimes.com/2020/10/27/us/guns-2020-election.html?searchResultPosition=6
 
 **Recent Commercial Real Estate Transactions**\
