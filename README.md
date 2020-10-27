@@ -1,40 +1,40 @@
+**Biden’s Plans for Latin America: End ‘Bully Dictating Policy’**\
+`If elected, Joe Biden plans to spearhead a repudiation — in policy and tone — of President Trump’s legacy in the region.`\
+https://nytimes.com/2020/10/27/world/americas/joe-biden-latin-america-policy.html?searchResultPosition=1
+
 **The Year in Misinformation, So Far**\
 `Dubious stories about George Soros, Ukraine and vote-by-mail have spread widely on social media this year, and we may just be warming up.`\
-https://nytimes.com/2020/10/27/technology/the-year-in-misinformation-so-far.html?searchResultPosition=1
+https://nytimes.com/2020/10/27/technology/the-year-in-misinformation-so-far.html?searchResultPosition=2
 
 **Three Paths for Reforming the Supreme Court**\
 `Joe Biden initially resisted Democrats’ calls to overhaul the court system. Not anymore.`\
-https://nytimes.com/2020/10/27/opinion/three-paths-for-reforming-the-supreme-court.html?searchResultPosition=2
+https://nytimes.com/2020/10/27/opinion/three-paths-for-reforming-the-supreme-court.html?searchResultPosition=3
 
 **The Other Rookie Star of the World Series? Globe Life Field**\
 `While the Texas Rangers did not make the postseason, their new ballpark has provided an unlikely yet oddly fitting setting for this World Series.`\
-https://nytimes.com/2020/10/27/sports/baseball/globe-life-field-world-series.html?searchResultPosition=3
+https://nytimes.com/2020/10/27/sports/baseball/globe-life-field-world-series.html?searchResultPosition=4
 
 **Chrissy Teigen Opens Up About Her Pregnancy Loss**\
 `In an intimate essay published on Medium, Chrissy Teigen shared the circumstances surrounding her stillbirth and addressed her critics.`\
-https://nytimes.com/2020/10/27/style/chrissy-teigen-pregnancy-loss-essay.html?searchResultPosition=4
+https://nytimes.com/2020/10/27/style/chrissy-teigen-pregnancy-loss-essay.html?searchResultPosition=5
 
 **Dr. Joyce Wallace, Pioneering AIDS Physician, Dies at 79**\
 `Among the first to study the disease in the 1980s, she tried to stop its spread among thousands of New York City prostitutes.`\
-https://nytimes.com/2020/10/27/us/joyce-wallace-dies.html?searchResultPosition=5
+https://nytimes.com/2020/10/27/us/joyce-wallace-dies.html?searchResultPosition=6
 
 **Election Day, NOAA, World Series: Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/10/27/briefing/election-day-noaa-world-series.html?searchResultPosition=6
+https://nytimes.com/2020/10/27/briefing/election-day-noaa-world-series.html?searchResultPosition=7
 
 **Barcelona President Quits on Eve of Vote to Oust Him**\
 `Josep Maria Bartomeu said he and his entire board had stepped down.`\
-https://nytimes.com/2020/10/27/sports/soccer/josep-maria-bartomeu-quits-barcelona.html?searchResultPosition=7
+https://nytimes.com/2020/10/27/sports/soccer/josep-maria-bartomeu-quits-barcelona.html?searchResultPosition=8
 
 **Crowd Chants ‘Lock Her Up’ After Trump Lashes Out at Whitmer**\
 `President Trump lashed out at Michigan’s governor, Gretchen Whitmer, during his rally in Lansing, Mich. Tuesday criticizing her for imposing too many restrictions to prevent the spread of the coronavirus.`\
-https://nytimes.com/video/us/elections/100000007418689/trump-michigan-whitmer.html?searchResultPosition=8
+https://nytimes.com/video/us/elections/100000007418689/trump-michigan-whitmer.html?searchResultPosition=9
 
 **Trump Allies Amp Up Fight Over Tech’s Legal Shield Before Election**\
 `Their animosity is likely to be on full display at a hearing on Wednesday with the leaders of Facebook, Google and Twitter.`\
-https://nytimes.com/2020/10/27/technology/social-media-senate-hearing.html?searchResultPosition=9
-
-**Supreme Court Galvanizes Push for Early Voting by Wisconsin Democrats**\
-`As the Biden campaign fights to win the battleground state, a court decision has spurred an all-out effort to track down every last vote.`\
-https://nytimes.com/2020/10/27/us/politics/wisconsin-absentee-ballots-election.html?searchResultPosition=10
+https://nytimes.com/2020/10/27/technology/social-media-senate-hearing.html?searchResultPosition=10
 
