@@ -10,21 +10,21 @@ https://nytimes.com/2020/10/27/realestate/sheldon-harnick-fiddler-on-the-roof.ht
 `The lyricist of “Fiddler on the Roof” and many other shows has always worked at home, in the Beresford apartment he shares with his wife, Margery.`\
 https://nytimes.com/slideshow/2020/10/27/realestate/sheldon-and-margery-harnick-an-upper-west-side-tradition.html?searchResultPosition=3
 
+**‘Fat and Happy’ With a Conservative Court, Are Republicans Losing a Winning Issue?**\
+`President Trump and his party pushed Justice Barrett’s confirmation through in record time. But they could find that satisfied voters, who no longer fear the specter of a liberal court, are also complacent.`\
+https://nytimes.com/2020/10/27/us/politics/republicans-supreme-court.html?searchResultPosition=4
+
 **Recession’s Silver Lining: American Households Are Doing Better Than Expected**\
 `With few avenues for spending and big purchases on hold, many Americans are saving more and paying off debts, helped by loan deferrals and relief aid.`\
-https://nytimes.com/2020/10/27/business/recession-consumers-savings.html?searchResultPosition=4
+https://nytimes.com/2020/10/27/business/recession-consumers-savings.html?searchResultPosition=5
 
 **Airbnb Fights Its ‘Party House Problem’**\
 `Noise. Damages. Safety questions. Airbnb is racing to address the risks posed by partying guests before it goes public.`\
-https://nytimes.com/2020/10/27/business/airbnb-party-house-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2020/10/27/business/airbnb-party-house-coronavirus.html?searchResultPosition=6
 
 **Want to Be the Next Big Thing in Fashion? Nah.**\
 `Unicorns are so 2010. For a thriving generation of talented comers, small is beautiful.`\
-https://nytimes.com/2020/10/27/fashion/who-are-the-cool-new-designers.html?searchResultPosition=6
-
-**‘Fat and Happy’ With a Conservative Court, Are Republicans Losing a Winning Issue?**\
-`President Trump and his party pushed Justice Barrett’s confirmation through in record time. But they could find that satisfied voters, who no longer fear the specter of a liberal court, are also complacent.`\
-https://nytimes.com/2020/10/27/us/politics/republicans-supreme-court.html?searchResultPosition=7
+https://nytimes.com/2020/10/27/fashion/who-are-the-cool-new-designers.html?searchResultPosition=7
 
 **How to Travel Abroad to Work From Home**\
 `My partner and I both felt we could get away, safely. So we packed the large bottles of sanitizer, double-checked the Wi-Fi and off we went.`\
