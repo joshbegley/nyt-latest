@@ -1,6 +1,6 @@
 **Stephen Colbert: Mike Pence Is ‘America’s Spare Tire’**\
 `After the White House called the vice president an essential worker, Colbert said: “At best, he is vice essential. You want him in the trunk, but you hope to never have to use him.”`\
-https://nytimes.com/2020/10/27/arts/television/late-nice-mike-pence-stepehen-colbert.html?searchResultPosition=1
+https://nytimes.com/2020/10/27/arts/television/late-night-mike-pence-stephen-colbert.html?searchResultPosition=1
 
 **Philadelphia Police Fatally Shoot a Black Man Who They Say Had a Knife**\
 `Protesters clashed with the police hours after the death of Walter Wallace Jr. The mayor said the shooting raised “difficult questions that must be answered.”`\
