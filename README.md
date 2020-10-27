@@ -22,8 +22,8 @@ https://nytimes.com/2020/10/26/crosswords/daily-puzzle-2020-10-27.html?searchRes
 `In April, the court had assumed an extension was permissible, though it insisted that ballots be mailed and postmarked before Election Day.`\
 https://nytimes.com/2020/10/26/us/supreme-court-wisconsin-ballots.html?searchResultPosition=6
 
-**Senate Confirms Barrett to the Supreme Court**\
-`Eight days before the presidential election, the Senate voted 52 to 48 to confirm Judge Amy Coney Barrett, a conservative appeals court judge, to the nation’s top court.`\
+**Barrett Sworn in as Supreme Court Justice**\
+`The Senate voted 52 to 48 to confirm the nomination of Amy Coney Barrett, a conservative appeals court judge, eight days before the presidential election.`\
 https://nytimes.com/video/us/politics/100000007416718/amy-coney-barrett-confirmation.html?searchResultPosition=7
 
 **For a Cheese Lover, Two New Books**\
