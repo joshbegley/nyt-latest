@@ -1,40 +1,40 @@
+**Keith Raniere, Leader of Nxivm Sex Cult, Faces Life Sentence**\
+`Mr. Raniere, once idolized by his followers as a genius, was convicted after prosecutors presented evidence that he had a harem of sexual “slaves” kept in line with blackmail.`\
+https://nytimes.com/2020/10/27/nyregion/keith-raniere-nxivm.html?searchResultPosition=1
+
 **In a Battered New York Office Market, Life Science Is Flourishing**\
 `With state and city government support, developers are building laboratories for medical research and incubator spaces for biotech start-ups amid the race for a coronavirus vaccine.`\
-https://nytimes.com/2020/10/27/business/life-science-new-york-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/10/27/business/life-science-new-york-coronavirus.html?searchResultPosition=2
 
 **U.S. Voters Agree on One Thing: They’d Feel Better Owning a Gun**\
 `At a recent gun show, people roamed the aisles in Black Lives Matter T-shirts and MAGA hats. “It’s a giant room of ‘you never know.’”`\
-https://nytimes.com/2020/10/27/us/guns-2020-election.html?searchResultPosition=2
+https://nytimes.com/2020/10/27/us/guns-2020-election.html?searchResultPosition=3
 
 **Recent Commercial Real Estate Transactions**\
 `Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2020/10/27/business/new-york-commercial-real-estate.html?searchResultPosition=3
+https://nytimes.com/2020/10/27/business/new-york-commercial-real-estate.html?searchResultPosition=4
 
 **Ballot Measures to Watch in California**\
 `Tuesday: A quick refresher on statewide ballot propositions. Also: An update on fires in Orange County.`\
-https://nytimes.com/2020/10/27/us/california-election-races-to-watch.html?searchResultPosition=4
+https://nytimes.com/2020/10/27/us/california-election-races-to-watch.html?searchResultPosition=5
 
 **The Salt Lake Tribune Ends Daily Print Edition After Nearly 150 Years**\
 `The Salt Lake City newspaper will move to weekly editions. The change will not result in any layoffs in the 65-person newsroom, according to the newspaper’s interim editor.`\
-https://nytimes.com/2020/10/27/business/media/salt-lake-tribune-daily-delivery.html?searchResultPosition=5
+https://nytimes.com/2020/10/27/business/media/salt-lake-tribune-daily-delivery.html?searchResultPosition=6
 
 **Why a New Abortion Ban in Poland is Tearing the Country Apart**\
 `The ruling party has tried and failed in the Parliament to restrict abortion. Now the courts it controls have done it, instead, sparking the biggest protests since the government came to power.`\
-https://nytimes.com/2020/10/27/world/europe/poland-abortion-ruling-protests.html?searchResultPosition=6
+https://nytimes.com/2020/10/27/world/europe/poland-abortion-ruling-protests.html?searchResultPosition=7
 
 **Weekly News Quiz for Students: Google Lawsuit, Supreme Court, Found Painting **\
 `How well did you follow the news this past week? How many of these 10 questions can you get right?`\
-https://nytimes.com/interactive/2020/10/27/learning/27News-Quiz-for-Students.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/10/27/learning/27News-Quiz-for-Students.html?searchResultPosition=8
 
 **A Mighty Ant**\
 `The Chinese fintech firm is set to break I.P.O. records.`\
-https://nytimes.com/2020/10/27/business/dealbook/ant-group-IPO.html?searchResultPosition=8
+https://nytimes.com/2020/10/27/business/dealbook/ant-group-IPO.html?searchResultPosition=9
 
 **In New York, Roommates Make a Comeback**\
 `It can be lonely living alone, especially during a pandemic, so some renters are finding new places with friends and sharing both the experience and the rent.`\
-https://nytimes.com/2020/10/27/realestate/renters-roommates-loneliness.html?searchResultPosition=9
-
-**How an Afghan Political Crisis Derailed Payments to War Victims**\
-`Sometimes money is the only form of justice for those who lost loved ones in Afghanistan’s unending war.`\
-https://nytimes.com/2020/10/27/world/asia/afghanistan-war-victims-compensation.html?searchResultPosition=10
+https://nytimes.com/2020/10/27/realestate/renters-roommates-loneliness.html?searchResultPosition=10
 
