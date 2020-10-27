@@ -12,7 +12,7 @@ https://nytimes.com/2020/10/27/books/review/red-comet-heather-clark-sylvia-plath
 
 **Pfizer C.E.O. All but Rules Out Vaccine Before Election Day**\
 `Pfizer’s C.E.O. said on Tuesday that much-anticipated results from its vaccine trial would not be coming this month, after all.`\
-https://nytimes.com/2020/10/27/health/covid-vaccine-pfizer.html?searchResultPosition=4
+https://nytimes.com/2020/10/27/health/pfizer-covid-19-vaccine.html?searchResultPosition=4
 
 **Vintage Alfa Romeos to Be Auctioned at Sotheby’s**\
 `Three sculptural automobiles from the 1950s, designed by Franco Scaglione, will be shown alongside works by other postwar Italian artists and designers.`\
