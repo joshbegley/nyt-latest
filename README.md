@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/27/us/politics/mail-voting-postal-service-election.html?searchResultPosition=1
 
 **Trump Wants to Pick Off Nevada. But Biden Is Holding a Lead, Our Poll Shows.**\
-`Joe Biden has a six-point advantage in the latest New York Times/Siena College poll of Nevada, a state that has one of the highest rates of unemployment in the country amid the coronavirus pandemic.`\
+`Joe Biden has a six-point advantage in the latest New York Times/Siena College poll of Nevada, where unemployment has soared amid the coronavirus pandemic.`\
 https://nytimes.com/2020/10/27/us/politics/nevada-poll-biden-trump.html?searchResultPosition=2
 
 **Noah Centineo Wants You to Vote**\
