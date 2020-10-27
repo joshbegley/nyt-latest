@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/27/learning/our-eighth-annual-15-second-vocabulary-v
 https://nytimes.com/2020/10/27/us/politics/obama-trump-biden.html?searchResultPosition=3
 
 **What Is Trump’s Second-Term Agenda? He Won’t Say**\
-`President Trump’s norm-shattering ways now extend to a refusal to tell voters what he actually wants to do with four more years in the White House.`\
+`President Trump’s norm-shattering ways now extend to a refusal to tell voters how he will spend another four years in the White House.`\
 https://nytimes.com/2020/10/27/us/politics/trump-second-term-agenda.html?searchResultPosition=4
 
 **Watch What Happens When Real Housewives Don’t Wear Masks**\
