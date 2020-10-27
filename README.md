@@ -2,7 +2,7 @@
 `Experts say it’s normal for levels of antibodies to drop after clearing an infection, and that they represent just one arm of the immune response against a virus.`\
 https://nytimes.com/2020/10/27/health/coronavirus-antibodies-studies.html?searchResultPosition=1
 
-**Britain’s Health Workers Face 2d Virus Wave, but This Time With Less Support**\
+**Britain’s Health Workers Face 2nd Virus Wave, but This Time With Less Support**\
 `Public backing for the efforts of the country’s health service is eroding amid a lack of a clear government policy to deal with the pandemic, many medical workers say.`\
 https://nytimes.com/2020/10/27/world/europe/britain-coronavirus-second-wave.html?searchResultPosition=2
 
