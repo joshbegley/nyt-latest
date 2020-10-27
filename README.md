@@ -18,8 +18,8 @@ https://nytimes.com/2020/10/27/opinion/three-paths-for-reforming-the-supreme-cou
 `While the Texas Rangers did not make the postseason, their new ballpark has provided an unlikely yet oddly fitting setting for this World Series.`\
 https://nytimes.com/2020/10/27/sports/baseball/globe-life-field-world-series.html?searchResultPosition=5
 
-**Chrissy Teigen Opens Up About Her Pregnancy Loss**\
-`In an intimate essay published on Medium, Chrissy Teigen shared the circumstances surrounding her stillbirth and addressed her critics.`\
+**Chrissy Teigen Shares Essay About Pregnancy Loss**\
+`In an intimate piece published on Medium, Chrissy Teigen discussed the circumstances surrounding her stillbirth and addressed her critics.`\
 https://nytimes.com/2020/10/27/style/chrissy-teigen-pregnancy-loss-essay.html?searchResultPosition=6
 
 **Dr. Joyce Wallace, Pioneering AIDS Physician, Dies at 79**\
