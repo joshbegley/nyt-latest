@@ -30,7 +30,7 @@ https://nytimes.com/2020/10/27/learning/word-quiz-redolent.html?searchResultPosi
 `Blake Leeper says his prostheses level the playing field. But World Athletics has successfully argued that they give him an unfair advantage by making him artificially taller.`\
 https://nytimes.com/2020/10/27/sports/blake-leeper-prostheses-ruling.html?searchResultPosition=8
 
-**The Lesson from Bolivia for Latin American Politics**\
+**The Lesson From Bolivia for Latin American Politics**\
 `The ability to move past controversial leaders can energize the movements and the values they champion.`\
 https://nytimes.com/2020/10/27/opinion/bolivia-election-arce-morales.html?searchResultPosition=9
 
