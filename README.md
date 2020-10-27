@@ -1,40 +1,40 @@
-**Blast at Pakistani Religious School Kills at Least 7**\
-`No group claimed immediate responsibility for the bombing, which took place while classes were happening at a madrasa in the suburbs of Peshawar, Pakistan.`\
-https://nytimes.com/2020/10/27/world/asia/pakistan-school-bombing.html?searchResultPosition=1
+**Classrooms Without Walls, and Hopefully Covid**\
+`To combat the coronavirus, schools across America moved students outdoors. Here’s a look at four new learning environments.`\
+https://nytimes.com/2020/10/27/us/outdoor-classroom-design.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Parents of 545 Children Separated at the Border Cannot Be Found’**\
-`In this lesson, students will learn about efforts to reunite families who were separated under the Trump administration’s immigration policy. Then, they will create a one-pager to educate others, or learn more by watching a film or listening to a podcast.`\
-https://nytimes.com/2020/10/27/learning/lesson-of-the-day-parents-of-545-children-separated-at-the-border-cannot-be-found.html?searchResultPosition=2
+**Sheldon Harnick: Working From Home for 55 Years**\
+`The lyricist of “Fiddler on the Roof” and many other shows has always worked at home, in the Beresford apartment he shares with his wife, Margery.`\
+https://nytimes.com/2020/10/27/realestate/sheldon-harnick-fiddler-on-the-roof.html?searchResultPosition=2
 
-**Stephen Colbert: Mike Pence Is ‘America’s Spare Tire’**\
-`After the White House called the vice president an essential worker, Colbert said: “At best, he is vice essential. You want him in the trunk, but you hope to never have to use him.”`\
-https://nytimes.com/2020/10/27/arts/television/late-night-mike-pence-stephen-colbert.html?searchResultPosition=3
+**Sheldon and Margery Harnick, An Upper West Side Tradition**\
+`The lyricist of “Fiddler on the Roof” and many other shows has always worked at home, in the Beresford apartment he shares with his wife, Margery.`\
+https://nytimes.com/slideshow/2020/10/27/realestate/sheldon-and-margery-harnick-an-upper-west-side-tradition.html?searchResultPosition=3
 
-**Philadelphia Police Fatally Shoot a Black Man Who They Say Had a Knife**\
-`Protesters clashed with the police hours after the death of Walter Wallace Jr. The mayor said the shooting raised “difficult questions that must be answered.”`\
-https://nytimes.com/2020/10/27/us/philadelphia-police-shooting-walter-wallace-jr.html?searchResultPosition=4
+**Recession’s Silver Lining: American Households Are Doing Better Than Expected**\
+`With few avenues for spending and big purchases on hold, many Americans are saving more and paying off debts, helped by loan deferrals and relief aid.`\
+https://nytimes.com/2020/10/27/business/recession-consumers-savings.html?searchResultPosition=4
 
-**How Trump and Bolsonaro Broke Latin America’s Covid-19 Defenses**\
-`The two presidents drove out 10,000 Cuban doctors and nurses. They defunded the region’s leading health agency. They wrongly pushed hydroxychloroquine as a cure.`\
-https://nytimes.com/2020/10/27/world/trump-bolsonaro-coronavirus-latin-america.html?searchResultPosition=5
+**Airbnb Fights Its ‘Party House Problem’**\
+`Noise. Damages. Safety questions. Airbnb is racing to address the risks posed by partying guests before it goes public.`\
+https://nytimes.com/2020/10/27/business/airbnb-party-house-coronavirus.html?searchResultPosition=5
 
-**This Addiction Treatment Works. Why Is It So Underused?**\
-`An approach called contingency management rewards drug users with money and prizes for staying abstinent. But few programs offer it, in part because of moral objections to the concept.`\
-https://nytimes.com/2020/10/27/health/addiction-treatment-pays-drug-users-to-stay-clean.html?searchResultPosition=6
+**Want to Be the Next Big Thing in Fashion? Nah.**\
+`Unicorns are so 2010. For a thriving generation of talented comers, small is beautiful.`\
+https://nytimes.com/2020/10/27/fashion/who-are-the-cool-new-designers.html?searchResultPosition=6
 
-**Sites of Solitude**\
-`What well-trodden destinations would you like to have all to yourself?`\
-https://nytimes.com/2020/10/27/learning/sites-of-solitude.html?searchResultPosition=7
+**‘Fat and Happy’ With a Conservative Court, Are Republicans Losing a Winning Issue?**\
+`President Trump and his party pushed Justice Barrett’s confirmation through in record time. But they could find that satisfied voters, who no longer fear the specter of a liberal court, are also complacent.`\
+https://nytimes.com/2020/10/27/us/politics/republicans-supreme-court.html?searchResultPosition=7
 
-**Voters in Battleground States Are Driving Record Early Turnout**\
-`Election Day is a week away, and more than 64 million Americans have already cast their ballots  — with about half of them in battleground states.`\
-https://nytimes.com/interactive/2020/10/27/us/politics/election-voter-turnout.html?searchResultPosition=8
+**How to Travel Abroad to Work From Home**\
+`My partner and I both felt we could get away, safely. So we packed the large bottles of sanitizer, double-checked the Wi-Fi and off we went.`\
+https://nytimes.com/2020/10/27/travel/remote-working-tulum-mexico.html?searchResultPosition=8
 
-**Transforming Pandemic Grief Into Art**\
-`Ansel Oommen, an artist and medical lab worker, has turned biohazard labels into an outlet for pandemic grief and trauma.`\
-https://nytimes.com/interactive/2020/10/27/science/covid-pandemic-grief-art.html?searchResultPosition=9
+**Fighting an Uphill Senate Re-election Battle, Doug Jones Does It His Way**\
+`Mr. Jones, from deeply conservative Alabama, is the Senate’s most vulnerable Democratic incumbent. But far from tiptoeing toward re-election, he seems almost liberated by his predicament.`\
+https://nytimes.com/2020/10/27/us/politics/doug-jones-alabama-senate.html?searchResultPosition=9
 
-**Word + Quiz: redolent**\
-`This word has appeared in 48 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/10/27/learning/word-quiz-redolent.html?searchResultPosition=10
+**Cardi B’s ‘WAP’ Proves Music’s Dirty Secret: Censorship Is Good Business**\
+`Scandalized parents and politicians ushered in warning labels in the 1980s. Now making clean versions of explicit songs means taking advantage of every possible revenue stream.`\
+https://nytimes.com/2020/10/27/arts/music/clean-versions-explicit-songs.html?searchResultPosition=10
 
