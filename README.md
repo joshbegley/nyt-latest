@@ -1,5 +1,5 @@
-**Judge Rejects Justice Dept.’s Bid to Shield Trump From Carroll Lawsuit**\
-`The Justice Department intervened to represent President Trump against a defamation lawsuit by the writer E. Jean Carroll, who claims he lied when he denied raping her.`\
+**Justice Dept. Blocked in Bid to Shield Trump From Rape Defamation Suit**\
+`The Justice Department had tried to intervene to represent President Trump against the lawsuit by the writer E. Jean Carroll, who claims he lied when he denied raping her.`\
 https://nytimes.com/2020/10/27/nyregion/jean-carroll-trump-rape-lawsuit.html?searchResultPosition=1
 
 **Russian Biathlete Loses His Medals, His Country’s Latest Defeat**\
