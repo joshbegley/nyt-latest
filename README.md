@@ -35,6 +35,6 @@ https://nytimes.com/2020/10/28/nyregion/wetlands-staten-island-bjs.html?searchRe
 https://nytimes.com/2020/10/28/business/international/china-gay-homosexuality-textbooks-lawsuit.html?searchResultPosition=9
 
 **N.J’s Largest City Shuts Down Again as Virus Cases Surge**\
-`Newark will require nonessential businesses to close indoor operations beginning at 8 p.m. on Tuesday. Salons may open by appointment only.`\
+`Newark required nonessential businesses to close indoor operations beginning at 8 p.m. on Tuesday. Salons may open by appointment only.`\
 https://nytimes.com/2020/10/28/nyregion/newark-coronavirus-curfew.html?searchResultPosition=10
 
