@@ -4,7 +4,7 @@ https://nytimes.com/2020/10/27/todayspaper/quotation-of-the-day-in-divided-natio
 
 **Quiz: Can You Tell a ‘Trump’ Fridge From a ‘Biden’ Fridge?**\
 `What the contents of our refrigerators say about our politics — and our assumptions.`\
-https://nytimes.com/interactive/2020/10/27/upshot/28up-fridge-politics-quiz.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/10/27/upshot/biden-trump-poll-quiz.html?searchResultPosition=2
 
 **Pregnant Woman Is Strangled as N.Y.C. Has 3 Domestic Violence Killings in Days**\
 `The body of Vanessa Pierre, 29, was found on the side of a Queens highway. Her boyfriend has been charged with murder.`\
