@@ -14,7 +14,7 @@ https://nytimes.com/2020/10/28/us/politics/joe-biden-virus.html?searchResultPosi
 `A new report found that service cuts could cost the New York metropolitan area 450,000 jobs by 2022, resulting in $50 billion in lost earnings.`\
 https://nytimes.com/2020/10/28/nyregion/mta-budget-cuts.html?searchResultPosition=4
 
-**In Rural Virginia, a Militia Tries to Recruit a New Ally: the County Government.**\
+**In Rural Virginia, a Militia Tries to Recruit a New Ally: The County Government**\
 `After Virginia passed gun laws, conservatives began invoking the state’s colonial-era constitution, which calls for a “well-regulated militia.”`\
 https://nytimes.com/2020/10/28/us/virginia-county-militia-.html?searchResultPosition=5
 
