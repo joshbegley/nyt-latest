@@ -1,4 +1,4 @@
-**Reclaiming, on TV, an Ancient Battle Beloved of Germany’s Far Right**\
+**Reclaiming, on Netflix, an Ancient Battle Beloved of Germany’s Far Right**\
 `“Barbarians” depicts the Battle of Teutoburg Forest, which has long been a rallying cry for German nationalists, including the Nazis.`\
 https://nytimes.com/2020/10/28/arts/television/barbarians-netflix.html?searchResultPosition=1
 
