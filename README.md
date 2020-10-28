@@ -1,5 +1,5 @@
 **Trump Campaign Website Is Defaced by Hackers**\
-`The defacement lasted less than 30 minutes and the hackers appeared to be looking to generate cryptocurrency.`\
+`The defacement lasted less than 30 minutes, and the hackers appeared to be looking to generate cryptocurrency.`\
 https://nytimes.com/2020/10/27/technology/trump-campaign-website-defaced-hackers.html?searchResultPosition=1
 
 **When My President Sang ‘Amazing Grace’**\
