@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/27/world/middleeast/qatar-airport-baby.html?searchRe
 `The gloves were headed for hospitals battling the pandemic.`\
 https://nytimes.com/2020/10/27/us/Gloves-stolen-covid-Florida.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
+**Coronavirus, Britain, Transgender Rugby: Your Wednesday Briefing**\
 `British health workers brace for a second wave.`\
 https://nytimes.com/2020/10/27/briefing/coronavirus-britain-transgender-rugby-azerbaijan.html?searchResultPosition=10
 
