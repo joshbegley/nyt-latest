@@ -1,5 +1,5 @@
 **After 12 Years, Arrest in Abduction of Former Times Journalist David Rohde**\
-`A former Taliban commander was arrested in the November 2008 kidnapping of Mr. Rohde and two others in Afghanistan He was brought to the United States to face charges.`\
+`A former Taliban commander was arrested in the November 2008 kidnapping of Mr. Rohde and two others in Afghanistan. He was brought to the United States to face charges.`\
 https://nytimes.com/2020/10/28/world/asia/rohde-afghanistan-kidnap-arrest.html?searchResultPosition=1
 
 **Palestinian Leaders Are Banking on Biden Win Next Week**\
