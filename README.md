@@ -1,5 +1,5 @@
 **Wedding and Birthday Party Infect 56, Leaving Nearly 300 in Quarantine**\
-`“This kind of blatant disregard for the well-being of others is not only extremely disappointing, it will not be tolerated,” a Long Island official said.`\
+`“This kind of blatant disregard for the well-being of others is not only extremely disappointing; it will not be tolerated,” a Long Island official said.`\
 https://nytimes.com/2020/10/28/nyregion/long-island-superspreader-events.html?searchResultPosition=1
 
 **Say Yes to Progressive Taxation**\
