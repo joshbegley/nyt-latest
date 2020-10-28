@@ -11,7 +11,7 @@ https://nytimes.com/2020/10/28/insider/religion-reporters.html?searchResultPosit
 https://nytimes.com/2020/10/28/us/virginia-governor-robert-e-lee-statue-ruling.html?searchResultPosition=3
 
 **Justin Turner Was Pulled From Game 6 After Positive Virus Test**\
-`The positive test was announced after the end of the game, which the Dodgers won to clinch the World Series title. Turner was seen on the field with his teammate during postgame celebrations.`\
+`The test result was announced after the end of the game, which the Dodgers won to clinch the World Series title. Turner was seen on the field with his teammates during the postgame celebration.`\
 https://nytimes.com/2020/10/28/sports/baseball/Justin-turner-covid-coronavirus.html?searchResultPosition=4
 
 **Philadelphia Protests Continue After Fatal Shooting by Police**\
