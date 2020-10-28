@@ -23,7 +23,7 @@ https://nytimes.com/2020/10/28/movies/the-craft-legacy-review.html?searchResultP
 https://nytimes.com/2020/10/27/world/middleeast/qatar-airport-baby.html?searchResultPosition=6
 
 **Thieves Steal 6 Million Medical Gloves from Florida Supplier**\
-`The gloves, headed for hospitals battling the pandemic, were worth around $1 million, the supplier said.`\
+`The gloves  were headed for hospitals battling the pandemic.`\
 https://nytimes.com/2020/10/27/us/Gloves-stolen-covid-Florida.html?searchResultPosition=7
 
 **Your Wednesday Briefing**\
