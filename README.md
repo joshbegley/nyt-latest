@@ -1,5 +1,5 @@
 **Quiz: Can You Tell a ‘Trump’ Fridge From a ‘Biden’ Fridge?**\
-`Take our quiz.`\
+`What the contents of our refrigerators say about our politics — and our assumptions.`\
 https://nytimes.com/interactive/2020/10/27/upshot/28up-fridge-politics-quiz.html?searchResultPosition=1
 
 **Pregnant Woman Is Strangled as N.Y.C. Has 3 Domestic Violence Killings in Days**\
