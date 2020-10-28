@@ -22,7 +22,7 @@ https://nytimes.com/2020/10/28/learning/long-distance-hugs.html?searchResultPosi
 `The Tanzanian president is nicknamed “the Bulldozer,” and he has brooked little dissent as he seeks a second term.`\
 https://nytimes.com/2020/10/28/world/africa/tanzania-election-john-magufuli.html?searchResultPosition=6
 
-**Trevor Noah: Replacing RBG with ACB Is Like Trading LeBron for Ben Carson**\
+**Trevor Noah: Replacing RBG With ACB Is Like Trading LeBron for Ben Carson**\
 `“Technically, yes, they’re swapping one Black man for another, but good luck on making the playoffs next season,” Noah joked on Tuesday’s “Daily Show.”`\
 https://nytimes.com/2020/10/28/arts/television/late-night-trevor-noah-amy-coney-barrett.html?searchResultPosition=7
 
