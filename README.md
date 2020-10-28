@@ -30,4 +30,11 @@ https://nytimes.com/2020/10/28/arts/music/san-francisco-symphony-nico-muhly.html
 `Highlights include Philip Glass at the Metropolitan Opera, the Seattle Symphony and the pianist Vicky Chow.`\
 https://nytimes.com/2020/10/28/arts/music/classical-music-stream.html?searchResultPosition=8
 
-**Watch live testimony of the chief executives of Facebook, Google and Twitter.**\
+**House Hunting in England: A Refurbished Army Fortress in the English Channel**\
+`In the harbor city of Portsmouth, the housing market is rebounding thanks in large part to Londoners looking for an escape.`\
+https://nytimes.com/2020/10/28/realestate/house-hunting-in-england-a-refurbished-army-fortress-in-the-english-channel.html?searchResultPosition=9
+
+**Gun Rooms Turned Bedrooms off the English Coast**\
+`Spitbank Fort, a refurbished 19th-century military fortress off the southern coast of England, is on the market for $5.2 million.`\
+https://nytimes.com/slideshow/2020/10/28/realestate/gun-rooms-turned-bedrooms-off-the-english-coast.html?searchResultPosition=10
+
