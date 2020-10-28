@@ -1,5 +1,5 @@
-**‘It Can’t Roar Back’: M.T.A. Cuts Would Deepen N.Y.C’s Financial Crisis**\
-`Service cuts could cost the New York metropolitan area 450,000 jobs by 2022, a new report found.`\
+**‘Decades to Recover’: Transit Cuts Could Erase 450,000 New York Jobs**\
+`Service cuts could cost the New York metropolitan area $50 billion in lost earnings by 2022, a new report found.`\
 https://nytimes.com/2020/10/28/nyregion/mta-budget-cuts.html?searchResultPosition=1
 
 **In Rural Virginia, a Militia Tries to Recruit a New Ally: the County Government.**\
