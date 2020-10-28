@@ -1,40 +1,40 @@
-**Stocks Post Worst Day in 4 Months as Infections Rise Around the Globe**\
-`The S&P 500 was down 3.5 percent after France and Germany announced new lockdown measures, an unwelcome reminder of the recovery’s fragility.`\
-https://nytimes.com/2020/10/28/business/stock-market-coronavirus.html?searchResultPosition=1
+**California Primary Election Results: 43rd House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-california-house-district-43-primary-election.html?searchResultPosition=1
 
-**The 2020 Campaign Is the Most Expensive Ever (By a Lot)**\
-`The total cost of the races for the White House, the Senate and the House is expected to hit nearly $14 billion.`\
-https://nytimes.com/2020/10/28/us/politics/2020-race-money.html?searchResultPosition=2
+**Texas U.S. Senate Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-senate-primary-election.html?searchResultPosition=2
 
-**After 50 Years, a Suspect Emerges in a Cold Murder Case**\
-`With the help of DNA technology, John Jeffrey Sipos, 75, was arrested in Pennsylvania last weekend in the 1969 murder of Mary Scott, a 23-year-old California woman.`\
-https://nytimes.com/2020/10/28/us/john-sipos-cold-case-arrest.html?searchResultPosition=3
+**Live Results: Maine Presidential Primary 2020**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-maine-president-democrat-primary-election.html?searchResultPosition=3
 
-**Supreme Court Won’t Speed a Do-Over on Pennsylvania’s Ballot Deadlines**\
-`The court deadlocked last week in the same case, but Justice Amy Coney Barrett did not participate in the second request for review.`\
-https://nytimes.com/2020/10/28/us/supreme-court-pennsylvania-ballots.html?searchResultPosition=4
+**Texas Primary Election Results: Second House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-2-primary-election.html?searchResultPosition=4
 
-**Covid Relief for Nonprofits**\
-`“Nonprofits throughout the country and the millions of Americans who depend on them cannot wait until after the election for relief.” Also: Helping coal miners; how the use of pens can help learning.`\
-https://nytimes.com/2020/10/28/opinion/letters/covid-relief-nonprofits.html?searchResultPosition=5
+**Live Results: Vermont Presidential Primary 2020**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-vermont-president-democrat-primary-election.html?searchResultPosition=5
 
-**Diane di Prima, Poet of the Beat Era and Beyond, Dies at 86**\
-`She traveled in the circles of Ginsberg and Ferlinghetti, a rare female voice in a male world, and went on to a long, prolific career in poetry.`\
-https://nytimes.com/2020/10/28/books/diane-di-prima-dead.html?searchResultPosition=6
+**Texas Primary Election Results: 19th House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-19-primary-election.html?searchResultPosition=6
 
-**Disinformation Moves From Social Networks to Texts**\
-`A video from a conservative political action committee falsely claiming that Joe Biden supported sex changes for 8-year-olds spread widely on social media and as part of a coordinated text-messaging campaign last week.`\
-https://nytimes.com/interactive/2020/10/28/technology/biden-text-video.html?searchResultPosition=7
+**Texas Primary Election Results: 13th House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-13-primary-election.html?searchResultPosition=7
 
-**What Are You Seeing at the Polls?**\
-`Voters are turning out in record numbers to cast ballots in the 2020 election. We want to hear what is happening when you go to vote.`\
-https://nytimes.com/2020/10/28/reader-center/what-are-you-seeing-at-the-polls.html?searchResultPosition=8
+**California Primary Election Results: 46th House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-california-house-district-46-primary-election.html?searchResultPosition=8
 
-**Coronavirus Briefing: What Happened Today**\
-`France and Germany reimposed nationwide lockdowns as cases surge.`\
-https://nytimes.com/2020/10/28/us/coronavirus-today.html?searchResultPosition=9
+**Texas Primary Election Results: 16th House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-16-primary-election.html?searchResultPosition=9
 
-**After a Dampened Celebration, Enduring Glory Still Awaits the Dodgers**\
-`For years, Los Angeles’s players have borne the burden of a title drought. The unusual circumstances of their World Series win won’t dim the joy and relief that come with the long-awaited championship.`\
-https://nytimes.com/2020/10/28/sports/baseball/dodgers-win-world-series.html?searchResultPosition=10
+**Texas Primary Election Results: 29th House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-29-primary-election.html?searchResultPosition=10
 
