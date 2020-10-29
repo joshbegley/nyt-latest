@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/29/business/economy/gdp-q3-economy.html?searchResultPosition=1
 
 **Your Friday Briefing**\
-`Xi set the tone for the next five years.`\
+`Xi sets the tone for the next five years.`\
 https://nytimes.com/2020/10/29/briefing/singapore-migrant-worker-xi-jinping-meeting-agenda.html?searchResultPosition=2
 
 **What Students Are Saying About Embarrassing Parents, Personal Style and Social Media Perceptions**\
