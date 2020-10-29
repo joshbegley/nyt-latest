@@ -4,7 +4,7 @@ https://nytimes.com/2020/10/29/upshot/american-economy-gdp-numbers.html?searchRe
 
 **Labour Party Suspends Jeremy Corbyn Over Anti-Semitism Response**\
 `A long-awaited official report strongly criticized Britain’s main opposition party, which Mr. Corbyn once led. His reply to the findings prompted his suspension.`\
-https://nytimes.com/2020/10/29/world/europe/jeremy-corbyn-suspended-labour-anti-semitism.html?searchResultPosition=2
+https://nytimes.com/2020/10/29/world/europe/jeremy-corbyn-labour-anti-semitism.html?searchResultPosition=2
 
 **Gilead’s Covid-19 Drug is Mediocre. It Will Be a Blockbuster Anyway.**\
 `Gilead Sciences said Wednesday that remdesivir, which has been authorized for emergency use since the spring, brought in $873 million in revenues so far this year.`\
