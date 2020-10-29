@@ -2,7 +2,7 @@
 `Sales of Halloween outfits and decorations have been surprisingly strong this year, with some seeing the holiday as a last hurrah before winter and the pandemic send people back inside.`\
 https://nytimes.com/2020/10/29/business/halloween-costumes-decorations-sales.html?searchResultPosition=1
 
-**Chris Pendergast, Who Fought A.L.S. Over Miles and Miles, Dies at 71**\
+**Chris Pendergast, Who Fought A.L.S. Mile After Mile, Dies at 71**\
 `Living for 27 years with Lou Gehrig’s disease (and beating the odds), he started Ride for Life, an annual trek that has raised millions for A.L.S. research.`\
 https://nytimes.com/2020/10/29/us/chris-pendergast-died.html?searchResultPosition=2
 
