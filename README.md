@@ -15,7 +15,7 @@ https://nytimes.com/2020/10/29/opinion/trump-lies.html?searchResultPosition=3
 https://nytimes.com/2020/10/29/opinion/coronavirus-holiday-travel-thanksgiving.html?searchResultPosition=4
 
 **Dan Baum, Journalist, Author and Long-Form Tweeter, Dies at 64**\
-`He was a Twitter pioneer in writing at length, 140 characters at a time, about losing his job at The New Yorker. He also wrote an admired book on New Orleans.`\
+`He was a Twitter pioneer in writing at length, 140 characters at a time, about losing his job at The New Yorker. He wrote an admired book on New Orleans.`\
 https://nytimes.com/2020/10/29/us/dan-baum-died.html?searchResultPosition=5
 
 **NASA’s Asteroid Mission Packs Away Its Cargo. Next Stop: Earth.**\
