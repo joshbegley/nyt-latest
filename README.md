@@ -1,40 +1,40 @@
+**Homes for Sale in Brooklyn, Manhattan and Queens**\
+`This week’s properties are in Park Slope, Lenox Hill and Woodside.`\
+https://nytimes.com/2020/10/29/realestate/housing-market-nyc.html?searchResultPosition=1
+
+**On the Market in New York City**\
+`This week’s properties are in Park Slope, Lenox Hill and Woodside.`\
+https://nytimes.com/slideshow/2020/10/29/realestate/on-the-market-in-new-york-city.html?searchResultPosition=2
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a seven-bedroom in Maplewood, N.J., and a five-bedroom in Sea Cliff, N.Y.`\
+https://nytimes.com/2020/10/29/realestate/housing-market-near-nyc.html?searchResultPosition=3
+
+**On the Market in the New York Region**\
+`This week’s featured properties are a seven-bedroom in Maplewood, N.J., and a five-bedroom in Sea Cliff, N.Y.`\
+https://nytimes.com/slideshow/2020/10/29/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+
+**The T List: Five Things We Recommend This Week**\
+`Ballet flats, colorful rugs — and more.`\
+https://nytimes.com/2020/10/29/t-magazine/ballet-flats-ikoyi-beni-rugs.html?searchResultPosition=5
+
+**Can I Tell My Friend Her Halloween Costume Is Problematic?**\
+`A reader feels that Scarlett O’Hara-style period dress may be seen as whitewashing the antebellum South.`\
+https://nytimes.com/2020/10/29/style/can-i-tell-my-friend-her-halloween-costume-is-problematic.html?searchResultPosition=6
+
 **The Tax Fight Haunting California**\
 `Thursday: Ah! It’s property tax reform. Also: Fire updates; and more on Justin Turner.`\
-https://nytimes.com/2020/10/29/us/california-prop-15.html?searchResultPosition=1
+https://nytimes.com/2020/10/29/us/california-prop-15.html?searchResultPosition=7
 
 **As the West Stumbles, ‘Helmsman’ Xi Pushes an Ambitious Plan for China**\
 `China’s leader emerged from a key Communist Party meeting newly emboldened, outlining a road map for the country for years to come. Some have warned of overreach.`\
-https://nytimes.com/2020/10/29/world/asia/china-xi-communist-party-meeting.html?searchResultPosition=2
+https://nytimes.com/2020/10/29/world/asia/china-xi-communist-party-meeting.html?searchResultPosition=8
 
 **For Stock Markets, ‘an Unwelcome Déjà Vu Feeling’**\
 `Echoes of the past are spooking investors.`\
-https://nytimes.com/2020/10/29/business/dealbook/stock-market-decline.html?searchResultPosition=3
+https://nytimes.com/2020/10/29/business/dealbook/stock-market-decline.html?searchResultPosition=9
 
 **‘The True Adventures of Wolfboy’ Review: A Hirsute Teen Drama**\
 `A 13-year-old boy, his body covered in hair, searches for the mother he never knew.`\
-https://nytimes.com/2020/10/29/movies/the-true-adventures-of-wolfboy-review.html?searchResultPosition=4
-
-**What Turn Are We Really Rounding on the Virus?**\
-`The president leans into denial for his closing argument: This is your morning tip sheet.`\
-https://nytimes.com/2020/10/29/us/politics/trump-coronavirus-presidential-race.html?searchResultPosition=5
-
-**United will try testing passengers on New York-to-London flights.**\
-`In a monthlong trial it hopes will build confidence in flying, the airline will offer rapid tests at Newark airport and only let those with negative results board.`\
-https://nytimes.com/2020/10/29/business/united-will-try-testing-passengers-on-new-york-to-london-flights.html?searchResultPosition=6
-
-**Halloween for Kids: Different This Year, but Still Delightful**\
-`In New York, trick-or-treating has been curtailed, and parades called off. But there are plenty of ways to please and spook the little ones.`\
-https://nytimes.com/2020/10/29/arts/halloween-for-kids-coronavirus.html?searchResultPosition=7
-
-**‘Fire Will Come’ Review: An Arsonist Returns Home to the Forest**\
-`Oliver Laxe gives us the story of humans and nature in crisis in Galicia, with nonactors playing the roles.`\
-https://nytimes.com/2020/10/29/movies/an-arsonist-returns-home-to-the-forest.html?searchResultPosition=8
-
-**Welcome to His World: Bela Tarr’s First Meteorological Event**\
-`“Damnation,” an atmospheric tale of erotic obsession, is the movie with which the Hungarian filmmaker Bela Tarr came into his own as a stylist.`\
-https://nytimes.com/2020/10/29/arts/bela-tarr-damnation.html?searchResultPosition=9
-
-**‘Us Kids’ Review: They’re Not All Right**\
-`This documentary by Kim A. Snyder asks difficult questions about what it means to grow up in an America where gun violence is far too common.`\
-https://nytimes.com/2020/10/29/movies/us-kids-review.html?searchResultPosition=10
+https://nytimes.com/2020/10/29/movies/the-true-adventures-of-wolfboy-review.html?searchResultPosition=10
 
