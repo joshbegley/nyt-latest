@@ -1,4 +1,4 @@
-**Long Lines, Steady Rain: What It’s Like to Vote Early in N.Y.C.**\
+**Long Lines, Steady Rain: Voting Early in N.Y.C.**\
 `More than 600,000 voters have flocked to New York City poll sites since early voting began, causing long waits in some places. Here’s what voters at the site with the most assigned voters in the city had to say.`\
 https://nytimes.com/interactive/2020/10/29/nyregion/nyc-early-voting.html?searchResultPosition=1
 
