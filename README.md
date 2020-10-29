@@ -2,7 +2,7 @@
 `Walmart said the move was motivated by protests and looting that have roiled Philadelphia this week after police killed Walter Wallace Jr. on Monday.`\
 https://nytimes.com/2020/10/29/business/walmart-guns-unrest.html?searchResultPosition=1
 
-**Chris Christie Unwittingly Makes a Video Supporting a Democrat (on Cameo)**\
+**Chris Christie Makes Cameo Video For Montana Democrat (By Mistake)**\
 `The former New Jersey governor is the latest Republican politician to be tricked into making a video for the opposing party.`\
 https://nytimes.com/2020/10/29/style/chris-christie-cameo-montana.html?searchResultPosition=2
 
