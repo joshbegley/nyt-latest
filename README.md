@@ -1,5 +1,5 @@
-**Chris Pendergast, Who Fought A.L.S. for 27 Years, Dies at 71**\
-`Doctors told him when he was 44 that he had Lou Gehrig’s disease, but he refused to give up, and his annual Ride for Life raised $10 million.`\
+**Chris Pendergast, Who Fought A.L.S. Over Miles and Miles, Dies at 71**\
+`Living for 27 years with Lou Gehrig’s disease (and beating the odds), he started Ride for Life, an annual trek that has raised millions for A.L.S. reseach.`\
 https://nytimes.com/2020/10/29/us/chris-pendergast-died.html?searchResultPosition=1
 
 **Transitioning From Fossil Fuels**\
