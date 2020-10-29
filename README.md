@@ -24,17 +24,13 @@ https://nytimes.com/interactive/2020/10/28/opinion/election-quiz.html?searchResu
 
 **Who Is Miles Taylor?**\
 `A lifelong Republican and a former top official at the Department of Homeland Security, Mr. Taylor took a leave of absence from his job at Google this summer to campaign for Joseph R. Biden Jr.`\
-https://nytimes.com/2020/10/28/us/politics/anonymous-miles-taylor.html?searchResultPosition=7
+https://nytimes.com/2020/10/28/us/politics/anonymous-miles-taylor.html?searchResultPosition=8
 
 **Texas Primary Election Results: 13th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-13-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-13-primary-election.html?searchResultPosition=9
 
 **Texas Primary Election Results: 29th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-29-primary-election.html?searchResultPosition=9
-
-**North Carolina Primary Election Results: 11th House District**\
-``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-north-carolina-house-district-11-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-29-primary-election.html?searchResultPosition=10
 
