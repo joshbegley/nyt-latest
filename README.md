@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/28/us/politics/2020-election-hacking.html?searchResultPosition=1
 
 **$300 Million Telemarketing Scheme Preyed on Older People, U.S. Says**\
-`Officials announced that 60 people had been charged in the scheme, in which federal prosecutors said deceptive sales tactics were used to sell magazine subscriptions to more than 150,000 older and vulnerable people.`\
+`Officials announced that 60 people had been charged in the scheme, in which federal prosecutors said deceptive tactics were used to sell magazine subscriptions to more than 150,000 older and vulnerable people.`\
 https://nytimes.com/2020/10/28/us/telemarketing-scheme-elderly-people.html?searchResultPosition=2
 
 **A Privacy Measure That’s Hard to Like**\
