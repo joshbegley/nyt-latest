@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/29/world/europe/covid-19-netherlands.html?searchResultPosition=1
 
 **Like Outdoor Dining? Try Outdoor Shopping**\
-`Stores will be allowed to use nearby spaces outside to display merchandise and conduct transactions, under a program announced by the mayor.`\
+`Stores will be allowed to use nearby spaces outside to display merchandise and conduct transactions,  the mayor said.`\
 https://nytimes.com/2020/10/29/nyregion/nyc-covid-reopening-outdoor-retail.html?searchResultPosition=2
 
 **Trump’s Potemkin Patriarchy**\
