@@ -1,40 +1,40 @@
-**Thinking About College: Activities Adults and Teenagers Can Do Together**\
-`An expert on the college process suggests ways to have productive conversations, and provides some useful resources to help.`\
-https://nytimes.com/2020/10/29/learning/thinking-about-college-activities-adults-and-teenagers-can-do-together.html?searchResultPosition=1
+**Celebrity Vetting and ‘Helping the President’ to Defeat Coronavirus Despair**\
+`In a letter to Alex M. Azar II, the health secretary, House Democrats detailed how a $265 million public relations campaign tried to bolster President Trump.`\
+https://nytimes.com/2020/10/29/us/politics/coronavirus-public-relations-trump.html?searchResultPosition=1
 
-**Rooster Kills Police Officer in Covid-19 Lockdown Raid**\
-`The Philippine lieutenant was slashed by a razor-sharp spur attached to the bird’s leg during a raid on an illegal cockfighting den.`\
-https://nytimes.com/2020/10/29/world/asia/philippines-police-rooster-covid-19-coronavirus.html?searchResultPosition=2
+**40 Dead, Now 40 Laid Off: Inside a Nursing Home in Crisis**\
+`They came to work when death counts were horrific and the risks enormous. Now they fear for their jobs. At one home, they agreed to speak out.`\
+https://nytimes.com/2020/10/29/nyregion/nursing-home-workers-pandemic-jobs.html?searchResultPosition=2
 
-**Young and Jobless in Europe: ‘It’s Been Desperate’**\
-`The pandemic-induced jobs crisis has fallen disproportionately on generation Covid-19, and the effects may be long lasting.`\
-https://nytimes.com/2020/10/29/business/youth-unemployment-europe.html?searchResultPosition=3
+**16 New Books to Watch For in November**\
+`Barack Obama’s memoir is landing. So is a biography of Adrienne Rich and buzzy fiction from Jo Nesbo, Nicole Krauss and Susie Yang.`\
+https://nytimes.com/2020/10/29/books/november-2020-books.html?searchResultPosition=3
 
-**Stefanik’s Loyalty to Trump Is Flashpoint in $16 Million N.Y. Race**\
-`Representative Elise Stefanik’s strenuous defense of the president has enabled her Democratic opponent to raise $5 million. Ms. Stefanik has raised even more.`\
-https://nytimes.com/2020/10/29/nyregion/elise-stefanik-tedra-cobb.html?searchResultPosition=4
+**‘It’s Going Away’: A Small Movie Theater Struggles to Survive**\
+`The pandemic has staggered the industry and left independent operations like the Park Plaza Cinema in Hilton Head Island, S.C., fighting to stay afloat.`\
+https://nytimes.com/2020/10/29/business/media/pandemic-small-movie-theaters.html?searchResultPosition=4
 
-**Familial Frights**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2020/10/29/learning/familial-frights.html?searchResultPosition=5
+**‘Tsunamis of Misinformation’ Overwhelm Local Election Officials**\
+`From Philadelphia to Sonoma County, Calif., election officials said they were working marathon hours to fight a flood of falsehoods.`\
+https://nytimes.com/2020/10/29/technology/misinformation-local-election-officials.html?searchResultPosition=5
 
-**Jimmy Fallon: ‘Even Trump Supporters Are Turning Blue’**\
-`The “Tonight Show” host joined his late-night colleagues in chastising President Trump for stranding supporters in near-freezing temperatures after a Tuesday rally in Omaha.`\
-https://nytimes.com/2020/10/29/arts/television/jimmy-fallon-trump-omaha-rally.html?searchResultPosition=6
+**They Scream! We Scream!**\
+`What’s more fundamental to scary movies than the bone-chilling shriek? But delivering a terrifying wail isn’t easy. It’s an entire art with a history and a world of its own.`\
+https://nytimes.com/2020/10/29/movies/scream-horror.html?searchResultPosition=6
 
-**Former South Korean President Ordered Back to Prison for Bribery**\
-`The country’s Supreme Court upheld a 17-year sentence for Lee Myung-bak. He will be the second former leader of South Korea​ behind bars on corruption charges.`\
-https://nytimes.com/2020/10/29/world/asia/korea-president-bribery-conviction-prison.html?searchResultPosition=7
+**Turkish Bank Case Showed Erdogan’s Influence With Trump**\
+`New details of the Justice Department’s handling of the accusations against Halkbank reveal how Turkey’s leader pressured the president, prompting concern from top White House aides.`\
+https://nytimes.com/2020/10/29/us/politics/trump-erdogan-halkbank.html?searchResultPosition=7
 
-**Word + Quiz: cogent**\
-`This word has appeared in 48 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/10/29/learning/word-quiz-cogent.html?searchResultPosition=8
+**Death Rates Have Dropped for Seriously Ill Covid Patients**\
+`Survival rates have improved with medical advances and less crowded hospitals, studies say. But the latest record-breaking surge in infections could reverse the gains.`\
+https://nytimes.com/2020/10/29/health/Covid-survival-rates.html?searchResultPosition=8
 
-**Ultra-Orthodox Jews’ Greatest Strength Has Become Their Greatest Weakness**\
-`In Israel and the U.S., this isolated community is thriving. The coronavirus pandemic has shown why this may be its biggest problem.`\
-https://nytimes.com/2020/10/29/opinion/ultra-orthodox-jews-coronavirus.html?searchResultPosition=9
+**Police Pin a Rise in Murders on an Unusual Suspect: Covid**\
+`Awash in new firearms, cities are drawing connections between the stresses of the coronavirus and a surge in homicides.`\
+https://nytimes.com/2020/10/29/us/coronavirus-murders.html?searchResultPosition=9
 
-**John Hinckley Can Publicly Display His Artwork, Judge Rules**\
-`The man who shot President Ronald Reagan said he wanted to “make money from my music and art.”`\
-https://nytimes.com/2020/10/29/us/john-hinckley-art.html?searchResultPosition=10
+**How Suckerfish Surf Across Blue Whales Without Falling Off**\
+`Remoras — known for hitching rides on whales and sharks — swim surprisingly freely over the surfaces formed by their hosts.`\
+https://nytimes.com/2020/10/29/science/remoras-suckerfish-whales.html?searchResultPosition=10
 
