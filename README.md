@@ -36,5 +36,5 @@ https://nytimes.com/2020/10/29/opinion/ultra-orthodox-jews-coronavirus.html?sear
 
 **John Hinckley Can Publicly Display His Artwork, Judge Rules**\
 `The man who shot President Ronald Reagan said he wanted to “make money from my music and art.”`\
-https://nytimes.com/2020/10/29/us/john-hinckley-can-publicly-display-his-artwork-judge-rules.html?searchResultPosition=10
+https://nytimes.com/2020/10/29/us/john-hinckley-art.html?searchResultPosition=10
 
