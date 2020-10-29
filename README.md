@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/29/learning/what-students-are-saying-about-embarrass
 `Izzat Ibrahim al-Douri, who had eluded capture for 17 years, was Mr. Hussein’s right-hand man in a government that dealt brutally with Iraqi civilians and unleashed catastrophic regional wars.`\
 https://nytimes.com/2020/10/29/world/middleeast/izzat-al-douri-saddam-hussein-iraq.html?searchResultPosition=9
 
-**Amid a Local Outbreak, a Historically Black University Cancels Basketball**\
+**Amid a Local Outbreak, a Historically Black University Cancels Basketball Season**\
 `The outlook has not been much better for basketball than football. “I wouldn’t use the word ‘disaster’ because that would be too light a term,” Seton Hall Coach Kevin Willard said.`\
 https://nytimes.com/2020/10/29/sports/ncaabasketball/coronavirus-college-basketball.html?searchResultPosition=10
 
