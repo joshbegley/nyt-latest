@@ -1,6 +1,6 @@
 **Walmart, citing unrest in Philadelphia, takes guns off its sales floors.**\
-`Walmart said the move was motivated by protests and looting that have roiled Philadelphia this week after police killed a Black man who was carrying a knife.`\
-https://nytimes.com/2020/10/29/business/walmart-guns-election-unrest.html?searchResultPosition=1
+`Walmart said the move was motivated by protests and looting that have roiled Philadelphia this week after police killed Walter Wallace Jr. on Monday.`\
+https://nytimes.com/2020/10/29/business/walmart-guns-unrest.html?searchResultPosition=1
 
 **Chris Christie Unwittingly Makes a Video Supporting a Democrat (on Cameo)**\
 `The former New Jersey governor is the latest Republican politician to be tricked into making a video for the opposing party.`\
