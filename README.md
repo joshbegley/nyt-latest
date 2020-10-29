@@ -1,5 +1,5 @@
 **U.S. to Remove Wolves From Protected Species List**\
-`Populations have rebounded in recent decades, but some  scientists on the panel that evaluated the proposal said it was deeply flawed.`\
+`Populations have rebounded in recent decades, but some scientists on the panel that evaluated the proposal said it was deeply flawed.`\
 https://nytimes.com/2020/10/29/climate/wolves-endangered-species-list.html?searchResultPosition=1
 
 **From Bolivia, Lessons for a Successful Election**\
