@@ -22,7 +22,7 @@ https://nytimes.com/2020/10/29/learning/film-club-three-families-nine-weeks-thin
 `The Postal Service’s performance has not been as bad as initially feared, but handling of mail ballots has been inconsistent enough that some people are choosing to vote in person.`\
 https://nytimes.com/2020/10/29/us/politics/post-office-mail-voting-2020-election.html?searchResultPosition=6
 
-**U.S. Coronavirus Cases Approach 9 Million With No End in Sight**\
+**U.S. Coronavirus Cases Surpass 9 Million With No End in Sight**\
 `Covid-19 cases are rapidly increasing in more than 20 states in a dangerous surge one governor described as an “urgent crisis.”`\
 https://nytimes.com/2020/10/29/us/coronavirus-nine-million-cases.html?searchResultPosition=7
 
