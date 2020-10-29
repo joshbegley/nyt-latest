@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2020/10/29/smarter-living/wirecutter/how-to-buy-
 
 **The ‘South Park’ Guys Break Down Their Viral Deepfake Video**\
 `In an interview, Trey Parker, Matt Stone and their collaborator Peter Serafinowicz discuss the back story of “Sassy Justice,” their deepfake video that used images of President Trump and others.`\
-https://nytimes.com/2020/10/29/arts/television/south-park-deepfake-video.html?searchResultPosition=3
+https://nytimes.com/2020/10/29/arts/television/sassy-justice-south-park-deepfake.html?searchResultPosition=3
 
 **David Guillod, Hollywood Executive, Arrested Again After Assault Report**\
 `Mr. Guillod was out on bail after he was charged earlier this year with sexually assaulting four women.`\
