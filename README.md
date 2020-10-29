@@ -6,7 +6,7 @@ https://nytimes.com/2020/10/29/briefing/gdp-florida-octopus.html?searchResultPos
 `Survival rates among Covid-19 patients are improving.`\
 https://nytimes.com/2020/10/29/us/coronavirus-today.html?searchResultPosition=2
 
-**New York Nightmare: Man Falls Through Sidewalk Into Rat-Filled Chasm**\
+**New York Nightmare: Man Plunges Through Sidewalk Into Rat-Filled Hole**\
 `“Rats crawling on him, he can’t move,” said the brother of the man, who was rescued after about 30 minutes and remains hospitalized in stable condition.`\
 https://nytimes.com/2020/10/29/nyregion/rats-sinkhole-sidewalk-bronx.html?searchResultPosition=3
 
