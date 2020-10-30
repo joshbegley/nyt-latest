@@ -3,7 +3,7 @@
 https://nytimes.com/2020/10/29/dining/nachos-recipes.html?searchResultPosition=1
 
 **Clemson’s Trevor Lawrence Tests Positive for the Coronavirus**\
-`The quarterback’s test result was announced by Coach Dabo Swinney.`\
+`The quarterback’s test result was announced by Coach Dabo Swinney, who also said that Lawrence had mild symptoms.`\
 https://nytimes.com/2020/10/29/sports/trevor-lawrence-tests-positive-clemson.html?searchResultPosition=2
 
 **Five Great Things Biden Has Already Done**\
