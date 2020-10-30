@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2020/10/30/science/wear-mask-covid-particles-ul.
 https://nytimes.com/video/us/elections/100000007399774/1982-consent-decree.html?searchResultPosition=2
 
 **Lori Loughlin Begins 2-Month Sentence for Role in Admissions Scandal**\
-`The actress and her husband pleaded guilty in May to charges that they conspired to get their daughters admitted to college as rowing recruits, even though neither participated in the sport.`\
+`The actress and her husband pleaded guilty in May to charges that they conspired to have their daughters admitted to college as rowing recruits, even though neither participated in the sport.`\
 https://nytimes.com/2020/10/30/us/lori-loughlin-prison.html?searchResultPosition=3
 
 **Europe Risks a New Economic Downturn as Lockdowns Return**\
