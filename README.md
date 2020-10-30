@@ -1,5 +1,5 @@
 **Democrats Prepare to ‘Fundamentally Reform’ Capitalism**\
-`A move by four senators, including Elizabeth Warren, suggests a new priority: moving corporate America away from a focus on shareholders.`\
+`A move by senators suggests a new priority: moving corporate America away from a focus on shareholders.`\
 https://nytimes.com/2020/10/30/business/dealbook/democrats-warren-capitalism.html?searchResultPosition=1
 
 **Justin Herbert and the Chargers Veer Happily Off Course**\
