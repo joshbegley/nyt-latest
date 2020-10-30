@@ -1,40 +1,40 @@
+**Stressed About the Election? Don’t Take It Out on Your Investments**\
+`It may be tempting, one economist says, to think that if your side wins, the economy will be all right. But no matter who wins, it may not be as good or as bad as you think.`\
+https://nytimes.com/2020/10/30/your-money/election-investments.html?searchResultPosition=1
+
+**A SoHo Triplex Sells for a Record $35.1 Million**\
+`And despite an overall slowdown in New York City closings in the final weeks before the presidential election, October’s biggest sale was a $65.6 million Central Park duplex.`\
+https://nytimes.com/2020/10/30/realestate/top-nyc-real-estate-sales.html?searchResultPosition=2
+
+**Reasons to Sign Up for a Health Savings Account**\
+`The money grows tax free, and can act as a sort of 401(k) for future health needs if invested. But just 6 percent of account holders do invest the savings.`\
+https://nytimes.com/2020/10/30/your-money/hsa-contribution.html?searchResultPosition=3
+
+**A Decade Later, Salem Returns to an Even Darker World**\
+`The band’s 2010 debut alienated as many listeners as it inspired before Salem dropped out of sight. Its new “Fires in Heaven” arrives in a different landscape.`\
+https://nytimes.com/2020/10/30/arts/music/salem-fires-in-heaven.html?searchResultPosition=4
+
 **Vote Centers Open After a Week of Wildfires**\
 `Friday: Fires caused tens of thousands of Orange County residents to flee their homes this week. No ballots were damaged and polls will open, officials say.`\
-https://nytimes.com/2020/10/30/us/voting-orange-county-wildfires.html?searchResultPosition=1
+https://nytimes.com/2020/10/30/us/voting-orange-county-wildfires.html?searchResultPosition=5
 
 **Will the Hardest-Hit Communities Get the Coronavirus Vaccine?**\
 `A committee that advises the C.D.C.’s director is working on a plan to equitably distribute immunizations when they become available.`\
-https://nytimes.com/2020/10/30/health/covid-vaccine-racism.html?searchResultPosition=2
+https://nytimes.com/2020/10/30/health/covid-vaccine-racism.html?searchResultPosition=6
 
 **2nd Man Is Arrested Over Knife Attack in Nice**\
 `The man, 47, was suspected of being in contact with a knife-wielding assailant who killed three people at a church on Thursday, the French authorities said.`\
-https://nytimes.com/2020/10/30/world/europe/nice-knife-attack-arrest.html?searchResultPosition=3
+https://nytimes.com/2020/10/30/world/europe/nice-knife-attack-arrest.html?searchResultPosition=7
 
 **Qatar Apologizes for Airport Strip Searches and Pursues Charges**\
 `The government called the invasive examinations of women on 10 flights at Doha’s airport this month “wholly inconsistent with Qatar’s culture and values.”`\
-https://nytimes.com/2020/10/30/world/middleeast/qatar-prosecutes-airport-search.html?searchResultPosition=4
+https://nytimes.com/2020/10/30/world/middleeast/qatar-prosecutes-airport-search.html?searchResultPosition=8
 
 **Down the Basement Stairs and Into the Past**\
 `Going through a box filled with memories prompted me to find people I hadn’t spoken to in decades. Am I the only one whose social life has improved during the lockdown?`\
-https://nytimes.com/2020/10/30/realestate/home-decluttering-letters.html?searchResultPosition=5
+https://nytimes.com/2020/10/30/realestate/home-decluttering-letters.html?searchResultPosition=9
 
 **Democrats Prepare to ‘Fundamentally Reform’ Capitalism**\
 `A move by senators suggests a new priority: moving corporate America away from a focus on shareholders.`\
-https://nytimes.com/2020/10/30/business/dealbook/democrats-warren-capitalism.html?searchResultPosition=6
-
-**Justin Herbert and the Chargers Veer Happily Off Course**\
-`Herbert took a strange route to the starting quarterback’s job, and his emergence as arguably the most effective rookie passer this season has been an unexpected windfall in Los Angeles.`\
-https://nytimes.com/2020/10/30/sports/football/justin-herbert-chargers.html?searchResultPosition=7
-
-**‘What a Barrister Looks Like’: A Young Black Woman Paves the Way**\
-`Alexandra Wilson is working to change England’s legal establishment, and perceptions about who belongs in it, from the inside.`\
-https://nytimes.com/2020/10/30/world/europe/alexandra-wilson-barrister.html?searchResultPosition=8
-
-**Who Will Win Florida? What Polls Say About an Eternal Mystery**\
-`Joe Biden has cut into President Trump’s edge among suburbanites and older voters, but his support from Latino voters appears weaker than Hillary Clinton’s was.`\
-https://nytimes.com/2020/10/30/us/politics/who-will-win-florida-polls.html?searchResultPosition=9
-
-**What Happens on Nov. 4?**\
-`Why we agreed to grant current and former aides to President Trump anonymity for Ron Suskind’s Op-Ed.`\
-https://nytimes.com/2020/10/30/opinion/what-happens-on-nov-4.html?searchResultPosition=10
+https://nytimes.com/2020/10/30/business/dealbook/democrats-warren-capitalism.html?searchResultPosition=10
 
