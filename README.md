@@ -26,8 +26,8 @@ https://nytimes.com/2020/10/29/sports/hockey/coyotes-renounce-rights-to-mitchell
 `Listen to a Halloween edition of Michael Barbaro’s intro on The Daily.`\
 https://nytimes.com/audio/2020/10/29/podcasts/30daily-newsletter-audio.html?searchResultPosition=7
 
-**Your Friday Briefing**\
-`Nice, France, knife attack kills three.`\
+**Coronavirus, Nice Attacks, U.S. Election: Your Friday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/10/29/briefing/coronavirus-nice-attacks-us-election.html?searchResultPosition=8
 
 **Quotation of the Day: Tech Start-Ups Are Divided on Politics**\
