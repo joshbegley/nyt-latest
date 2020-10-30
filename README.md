@@ -14,7 +14,7 @@ https://nytimes.com/video/world/middleeast/100000007424386/turkey-earthquake.htm
 `Telecommuting has changed the workspace. These two organizations reveal how they were able to adapt to remote work so quickly and why the new world of work may be here to stay.`\
 https://nytimes.com/paidpost/2020-10-27/the-new-world-of-work.html?searchResultPosition=4
 
-**U.S. Says Virus Can’t be Controlled. China Aims to Prove It Wrong**\
+**U.S. Says Virus Can’t be Controlled. China Aims to Prove It Wrong.**\
 `China’s all-out, authoritarian approach to keep Covid-19 at bay has helped restore confidence and allowed businesses to reopen.`\
 https://nytimes.com/2020/10/30/world/asia/china-covid-coronavirus.html?searchResultPosition=5
 
