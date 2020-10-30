@@ -1,40 +1,40 @@
-**New Zealand Voters Approve Euthanasia but Reject Recreational Marijuana**\
-`Proponents of legalizing cannabis voiced anger at Prime Minister Jacinda Ardern, who revealed only after the referendum that she supported it.`\
-https://nytimes.com/2020/10/30/world/asia/new-zealand-euthanasia-marijuana.html?searchResultPosition=1
+**What Makes a Man Manly? Trump and Biden Offer Competing Answers**\
+`Amid a large gender gap among voters, one version of masculinity stresses toughness and the other a duty to protect the weak.`\
+https://nytimes.com/2020/10/30/upshot/trump-biden-masculinity-fatherhood.html?searchResultPosition=1
 
-**These Zombies Threaten the Whole Planet**\
-`Canada’s oil patch has nearly 100,000 suspended wells, neither active nor capped, and they’re a worrying source of planet-warming methane.`\
-https://nytimes.com/2020/10/30/climate/oil-wells-leak-canada.html?searchResultPosition=2
+**Sharknado Goes to Washington**\
+`Donald Trump has made America exceptional all right — exceptionally off track.`\
+https://nytimes.com/2020/10/30/opinion/donald-trump-america-polarization.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Why Nigeria Is Now Erupting’**\
-`In this lesson, students will learn about recent demonstrations against police brutality in Nigeria. Then, they will use media literacy skills to analyze and evaluate the social media campaign behind the movement.`\
-https://nytimes.com/2020/10/30/learning/lesson-of-the-day-why-nigeria-is-now-erupting.html?searchResultPosition=3
+**New in Paperback: ‘All Blood Runs Red’ and ‘Frankissstein’**\
+`Six new paperbacks to check out this week.`\
+https://nytimes.com/2020/10/30/books/review/new-paperbacks.html?searchResultPosition=3
 
-**News Quiz: Amy Coney Barrett, Lockdowns, Anonymous**\
-`Did you follow the headlines this week?`\
-https://nytimes.com/interactive/2020/10/30/briefing/news-quiz-lockdowns-anonymous-amy-coney-barrett.html?searchResultPosition=4
+**Weekly Health Quiz: Marijuana, Lullabies and Coronavirus**\
+`Test your knowledge of this week’s health quiz.`\
+https://nytimes.com/interactive/2020/10/30/well/live/30healthquiz-10302020.html?searchResultPosition=4
 
-**These Are the Perks Companies Use to Get Workers Back to Their Offices**\
-`Free lunch. Discounted parking. Learning pods for children. Some New York City companies are offering incentives to workers who are required to return to the office.`\
-https://nytimes.com/2020/10/30/nyregion/new-york-city-office-coronavirus.html?searchResultPosition=5
+**In Brooklyn, a Ghost of Breweries Past**\
+`Remnants of 19th-century Bushwick still exist at the William Ulmer Brewery. A castle-like, two-story office is on the market as residences, while other plans have been stalled by the pandemic.`\
+https://nytimes.com/2020/10/30/realestate/william-ulmer-brewery-brooklyn.html?searchResultPosition=5
 
-**Nap Time**\
-`How do you feel about naps?`\
-https://nytimes.com/2020/10/30/learning/nap-time.html?searchResultPosition=6
+**The Storied History of a Brewery in Brooklyn**\
+`The old William Ulmer Brewery in Bushwick is trying to push its way into the present day.`\
+https://nytimes.com/slideshow/2020/10/30/realestate/bushwick-brewery-brooklyn.html?searchResultPosition=6
 
-**‘Rogue City’ Review: An Action Movie Skimping on Action**\
-`Olivier Marchal’s film proves that gangsters and crooked cops can speak French and still spin clichés.`\
-https://nytimes.com/2020/10/30/movies/rogue-city-review.html?searchResultPosition=7
+**How an Urban Beekeeper Spends His Sundays**\
+`Nick Hoefly tends to bees among the tombs of Green-Wood Cemetery in Brooklyn. Happy Halloween.`\
+https://nytimes.com/2020/10/30/nyregion/beekeeping-nyc-Astor-Apiaries.html?searchResultPosition=7
 
-**Late Night Is Too Nervous to Believe in Biden-Leading Polls**\
-`“It feels like we’re all Charlie Brown going to kick the football, but we know at the last second Lucy’s gonna give us coronavirus,” Stephen Colbert joked on Thursday.`\
-https://nytimes.com/2020/10/30/arts/television/late-night-biden-polls-trump-election.html?searchResultPosition=8
+**In Michigan, a Suburban County That Flipped Blue Isn’t Looking Back**\
+`Oakland County, Mich., a Republican stronghold 12 years ago that is now solidly Democratic, is a prime example of the political evolution taking place in many of the nation’s suburbs.`\
+https://nytimes.com/2020/10/30/us/politics/oakland-county-michigan-democrats.html?searchResultPosition=8
 
-**Prosecutors Call Former Embassy Employee an ‘Experienced Sexual Predator’**\
-`Brian Jeffrey Raymond, who worked at the U.S. Embassy in Mexico, was charged with videotaping a woman who was partially naked and unconscious. Prosecutors said there are at least 21 other victims.`\
-https://nytimes.com/2020/10/30/us/mexico-embassy-sex-arrest.html?searchResultPosition=9
+**Why This Professor Is Writing Letters for People Feeling Blue**\
+`With a typewriter and a mailbox, a sidewalk project explores the art of consoling those who need good news.`\
+https://nytimes.com/2020/10/30/nyregion/coronavirus-letter-writing-brooklyn.html?searchResultPosition=9
 
-**In Avignon, Snatching Theater From the Jaws of New Lockdowns**\
-`Delayed from the summer, France’s biggest stage celebration was further curtailed as restrictions again hit the country. That made the moments of grace that were possible all the more powerful.`\
-https://nytimes.com/2020/10/30/theater/avignon-festival-lockdown.html?searchResultPosition=10
+**The Day After Election Day**\
+`Current and former Trump administration officials are worried about what might happen on Nov. 4.`\
+https://nytimes.com/2020/10/30/opinion/trump-election-officials.html?searchResultPosition=10
 
