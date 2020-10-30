@@ -7,7 +7,7 @@ https://nytimes.com/2020/10/29/crosswords/daily-puzzle-2020-10-30.html?searchRes
 https://nytimes.com/2020/10/29/dining/nachos-recipes.html?searchResultPosition=2
 
 **Clemson’s Trevor Lawrence Tests Positive for the Coronavirus**\
-`The quarterback’s test result was announced by Coach Dabo Swinney, who also said that Lawrence had mild symptoms.`\
+`The star quarterback, who will miss this weekend’s game against Boston College, said he had “relatively mild” symptoms.`\
 https://nytimes.com/2020/10/29/sports/trevor-lawrence-tests-positive-clemson.html?searchResultPosition=3
 
 **Five Great Things Biden Has Already Done**\
