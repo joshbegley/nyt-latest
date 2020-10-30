@@ -14,7 +14,7 @@ https://nytimes.com/video/us/elections/100000007425359/trump-biden-crime-bill-bl
 `Turner could not have been unaware of the pandemic’s severity when he insisted on celebrating his World Series win in close quarters with his Dodgers teammates. And Rob Manfred, baseball’s commissioner, can’t just blame one player.`\
 https://nytimes.com/2020/10/30/sports/coronavirus-justin-turner-dodgers-world-series.html?searchResultPosition=4
 
-**Steven Cohen Is Approved as Mets Owner After Clearing 2 Final Hurdles**\
+**Steven Cohen Is Approved as Mets Owner After Clearing 2 More Hurdles**\
 `M.L.B.’s owners voted to approve Cohen’s $2.4 billion purchase of the team, and New York City signed off on his taking over the lease of Citi Field.`\
 https://nytimes.com/2020/10/30/sports/baseball/steve-cohen-mets-approved.html?searchResultPosition=5
 
