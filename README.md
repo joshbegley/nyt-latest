@@ -30,11 +30,11 @@ https://nytimes.com/2020/10/31/style/the-year-of-blur.html?searchResultPosition=
 `Cephalopod researchers were surprised by the sighting of a ram’s horn squid, a peculiar animal never before filmed in its natural environment.`\
 https://nytimes.com/2020/10/31/science/rams-head-squid-cephalopod.html?searchResultPosition=8
 
-**Networks Pledge Caution for an Election Night Like No Other**\
-`Complicated ballot counts and a president’s baseless claims of vote-rigging are two of the challenges facing TV anchors and executives.`\
-https://nytimes.com/2020/10/31/business/media/election-night-tv-networks.html?searchResultPosition=9
-
 **What if They Could Make the Pandemic Go Poof?**\
 `The crisis facing magicians is unprecedented. “It’s a scary, scary time,” said one.`\
-https://nytimes.com/2020/10/31/style/how-do-i-find-a-good-magician-pary-tricks-online.html?searchResultPosition=10
+https://nytimes.com/2020/10/31/style/how-do-i-find-a-good-magician-pary-tricks-online.html?searchResultPosition=9
+
+**Networks Pledge Caution for an Election Night Like No Other**\
+`Complicated ballot counts and a president’s baseless claims of vote-rigging are two of the challenges facing TV anchors and executives.`\
+https://nytimes.com/2020/10/31/business/media/election-night-tv-networks.html?searchResultPosition=10
 
