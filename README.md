@@ -2,7 +2,7 @@
 `At a moment when the United States has pulled back from its allies, the former secretary of state lamented the Trump administration’s allergy to international accords.`\
 https://nytimes.com/2020/10/31/us/politics/george-schultz-trump-biden-election.html?searchResultPosition=1
 
-**Trump Camp Uses Online Gimmick to Fuel Donations into December**\
+**Trump Camp Uses Online Gimmick to Fuel Donations Into December**\
 `The Trump campaign is now automatically checking a box to create recurring weekly donations from supporters until mid-December.`\
 https://nytimes.com/2020/10/31/us/politics/trump-fundraising-donations.html?searchResultPosition=2
 
