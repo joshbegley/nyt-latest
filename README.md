@@ -10,7 +10,7 @@ https://nytimes.com/2020/10/31/us/politics/trump-fundraising-donations.html?sear
 `During his rally in Newtown, Pa., on Saturday, President Trump warned that voters would be “waiting for weeks” to get final election results and called it “a terrible thing.”`\
 https://nytimes.com/video/embedded/us/elections/100000007426302/trump-election-day-ballots.html?searchResultPosition=3
 
-**Typhoon Goni Makes Landfall in Philippines**\
+**Typhoon Goni Makes Landfall in Philippines; ‘Catastrophic’ Winds Feared**\
 `With gusts of up to 165 miles per hour early Sunday, the storm bore down on the country and was on a path to strike its most populated island and its capital region.`\
 https://nytimes.com/2020/10/31/world/asia/typhoon-goni-live-updates.html?searchResultPosition=4
 
