@@ -1,5 +1,5 @@
 **U.K. Weighs Another Nationwide Virus Lockdown**\
-`Prime Minister Boris Johnson's cabinet met on Saturday as medical experts warned the virus is spreading at a rate that will soon overwhelm hospitals if the government does not take draconian action.`\
+`Prime Minister Boris Johnson’s cabinet met on Saturday as medical experts warned that the virus would soon overwhelm hospitals if the government did not take draconian action.`\
 https://nytimes.com/2020/10/31/world/great-britain-coronavirus-lockdown.html?searchResultPosition=1
 
 **Sean Connery, Who Embodied James Bond and More, Dies at 90**\
