@@ -1,40 +1,40 @@
-**He’s a Rare House Republican in a District Trump Lost. Can He Hold On?**\
-`Representative John Katko has managed to keep his seat in Central New York by distancing himself from the president. Will that be enough this year?`\
-https://nytimes.com/2020/10/31/nyregion/house-races-katko-balter.html?searchResultPosition=1
+**Campaign 2020: Let’s Never Do This Again**\
+`It’s not hope or change. It’s not making anything great. It’s just about making it through.`\
+https://nytimes.com/2020/10/31/us/politics/2020-campaign.html?searchResultPosition=1
 
-**Investing for the Future in the United States of Agita**\
-`No matter who wins the presidency, a lot of people are going to be disappointed. Maybe even scared. But it’s no time to act rashly.`\
-https://nytimes.com/2020/10/31/your-money/investing-stocks-trump-biden.html?searchResultPosition=2
+**A Frazzled World Holds Its Breath While the U.S. Chooses Its Leader**\
+`President Trump turned American foreign policy inside out, to the benefit of some nations and consternation of others. Now both groups are watching attentively to see which direction the U.S. goes next.`\
+https://nytimes.com/2020/10/31/world/middleeast/world-us-election-response.html?searchResultPosition=2
 
-**One More Thing the Pandemic Election Upended: First Campaign Job Rites of Passage**\
-`Young staff members are adjusting to a campaign trail altered by the coronavirus, working long hours from their childhood bedrooms.`\
-https://nytimes.com/2020/10/31/us/young-campaign-2020.html?searchResultPosition=3
+**Fueled by Cash, Health Care and Trump’s Woes, Democrats Aim for Senate Control**\
+`Republicans are battling to hold off losses by warning of the risks of unified Democratic power in Washington, but they concede their majority is in peril.`\
+https://nytimes.com/2020/10/31/us/democrats-republicans-senate-control.html?searchResultPosition=3
 
-**Philip Pullman’s New ‘Dark Materials’ Book Brims With Familiar Delights**\
-`“Serpentine” — which features, once again, the unquenchably curious Lyra — juxtaposes light and dark, innocence and experience.`\
-https://nytimes.com/2020/10/31/books/review/philip-pullman-serpentine.html?searchResultPosition=4
+**The Capital of Sprawl Gets a Radically Car-Free Neighborhood**\
+`On an empty lot near Phoenix, perhaps the most auto-addicted city in America, a start-up is betting $170 million on a more walkable future.`\
+https://nytimes.com/2020/10/31/business/culdesac-tempe-phoenix-sprawl.html?searchResultPosition=4
 
-**‘Everyone Needs a Buddy’**\
-`In Varian Johnson and Shannon Wright’s graphic novel “Twins,” sisters navigate a sometimes cruel and changing world.`\
-https://nytimes.com/2020/10/31/books/review/twins-varian-johnson-shannon-wright.html?searchResultPosition=5
+**Americans Surge to Polls: ‘I’m Going to Vote Like My Life Depends on It’**\
+`Anxious but determined, Americans are pushing through challenges like the pandemic and long lines to cast their ballot. The country is on course to surpass 150 million votes for the first time.`\
+https://nytimes.com/2020/10/31/us/politics/early-voting.html?searchResultPosition=5
 
-**Float Like a Butterfly, Sting Like a Bee: A Book Brings a Black Hero to Life**\
-`“Becoming Muhammad Ali,” by James Patterson and Kwame Alexander, is a poetic retelling of the legendary boxer’s youth.`\
-https://nytimes.com/2020/10/31/books/review/james-patterson-kwame-alexander-dawud-anyabwile-becoming-muhammad-ali.html?searchResultPosition=6
+**The Year of Blur**\
+`How isolation, monotony and chronic stress are destroying our sense of time.`\
+https://nytimes.com/2020/10/31/style/the-year-of-blur.html?searchResultPosition=6
 
-**‘Square Dancing Belongs Somewhere Far Away … Like the 1800s’**\
-`In “Lupe Wong Won’t Dance,” a seventh-grade girl who dreams of becoming a major-league pitcher is horrified by a new unit in gym class: square dancing.`\
-https://nytimes.com/2020/10/31/books/review/lupe-wong-wont-dance-donna-barba-higuera.html?searchResultPosition=7
+**‘They’re Calling You on the Squid Phone’**\
+`Cephalopod researchers were surprised by the sighting of a ram’s horn squid, a peculiar animal never before filmed in its natural environment.`\
+https://nytimes.com/2020/10/31/science/rams-head-squid-cephalopod.html?searchResultPosition=7
 
-**In Times of Crisis, Life-Affirming Picture Books**\
-`These new works from Tomi Ungerer, Sophie Blackall and Christian Robinson are realistic and — without being soppy — filled with hope.`\
-https://nytimes.com/2020/10/31/books/review/nonstop-tomi-ungerer.html?searchResultPosition=8
+**Networks Pledge Caution for an Election Night Like No Other**\
+`Complicated ballot counts and a president’s baseless claims of vote-rigging are two of the challenges facing TV anchors and executives.`\
+https://nytimes.com/2020/10/31/business/media/election-night-tv-networks.html?searchResultPosition=8
 
-**Fights in Front of Fans Test Boxing’s Business in the Pandemic Era**\
-`Gervonta Davis and Leo Santa Cruz will fight on pay-per-view and in front of fans at the Alamodome. Two weeks ago, another big fight was not sold separately for viewers, and did not allow paying spectators.`\
-https://nytimes.com/2020/10/31/sports/boxing-tank-davis.html?searchResultPosition=9
+**What if They Could Make the Pandemic Go Poof?**\
+`The crisis facing magicians is unprecedented. “It’s a scary, scary time,” said one.`\
+https://nytimes.com/2020/10/31/style/how-do-i-find-a-good-magician-pary-tricks-online.html?searchResultPosition=9
 
-**No Corrections: Oct. 31, 2020**\
-`No corrections appeared in print on Saturday, Oct. 31, 2020.`\
-https://nytimes.com/2020/10/30/pageoneplus/no-corrections-oct-31-2020.html?searchResultPosition=10
+**The Yarn Store Would Like You to Vote**\
+`And so would nearly every company out there this year.`\
+https://nytimes.com/2020/10/31/upshot/voting-brands-companies.html?searchResultPosition=10
 
