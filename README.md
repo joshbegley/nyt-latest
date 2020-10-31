@@ -23,7 +23,7 @@ https://nytimes.com/video/world/europe/100000007426562/boris-johnson-england-cor
 https://nytimes.com/2020/10/31/movies/sean-connery-james-bond-actors.html?searchResultPosition=6
 
 **Vehicles flying Trump flags try to force a Biden-Harris campaign bus off a highway in Texas.**\
-`By David R. Montgomery`\
+`Vehicles flying Trump flags tried to force a Biden-Harris campaign bus off a highway in Texas.`\
 https://nytimes.com/2020/10/31/us/elections/vehicles-flying-trump-flags-try-to-force-a-biden-harris-campaign-bus-off-a-highway-in-texas.html?searchResultPosition=7
 
 **Obama Rips Into Trump During Drive-In Biden Rally**\
