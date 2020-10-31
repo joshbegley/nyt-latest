@@ -34,7 +34,7 @@ https://nytimes.com/2020/10/31/obituaries/elvia-ramirez-dies-coronavirus.html?se
 `Its name was Observation Post Rock. The outpost is the backdrop for a ghost story, and is known for strange voices, radio static and the creeping fear of being watched.`\
 https://nytimes.com/2020/10/31/world/asia/afghanistan-haunted-outpost.html?searchResultPosition=9
 
-**The ‘Wall’ Is Still Motivating Voters. But This Time is it Against Trump?**\
+**The ‘Wall’ Is Still Motivating Voters. But This Time Is It Against Trump?**\
 `Immigration was a defining issue for President Trump in 2016. It’s less dominant in 2020, and it is motivating his critics as well as his supporters.`\
 https://nytimes.com/2020/10/31/us/politics/trump-immigration-.html?searchResultPosition=10
 
