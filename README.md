@@ -2,7 +2,7 @@
 `After a poll marred by accusations of widespread fraud and irregularities, one opposition leader warned that the nation could become a “one-party system.”`\
 https://nytimes.com/2020/10/31/world/africa/tanzania-election-magufuli-wins.html?searchResultPosition=1
 
-**U.K. Weighs Another Nationwide Virus Lockdown**\
+**England Weighs Another Nationwide Virus Lockdown**\
 `Prime Minister Boris Johnson’s cabinet met on Saturday as medical experts warned that the virus would soon overwhelm hospitals if the government did not take draconian action.`\
 https://nytimes.com/2020/10/31/world/great-britain-coronavirus-lockdown.html?searchResultPosition=2
 
