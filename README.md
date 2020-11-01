@@ -1,6 +1,6 @@
 **Welcome to November. For Trump, the October Surprise Never Came.**\
 `Trump’s hope that an economic recovery, a Covid vaccine or a Biden scandal could shake up the race fades with the last light of October.`\
-https://nytimes.com/2020/11/01/us/politics/october-surprise-presidential-election.html?searchResultPosition=1
+https://nytimes.com/2020/11/01/us/politics/trump-october.html?searchResultPosition=1
 
 **Make Some Noise and Move: A Choreographer Provides Instructions**\
 `“I really didn’t want it to be about the screen,” Yanira Castro said about adapting a work for the pandemic. Instead, she made scores to try at home.`\
