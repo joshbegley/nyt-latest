@@ -1,40 +1,40 @@
-**Meet the Ebony Anglers, Five Black Women Catching Fish and Stares**\
-`The team, formed in the past few months, is trying to make a mark in the mostly white, mostly male world of competitive fishing.`\
-https://nytimes.com/2020/11/01/sports/ebony-anglers-fishing-black-women.html?searchResultPosition=1
+**He Already Saw the Election as Good vs. Evil. Then His Tractor Burned.**\
+`In Nebraska, President Trump’s supporters hope he wins a second term, and that they get four more years of feeling like the country’s leader understands and defends them.`\
+https://nytimes.com/2020/11/01/us/trump-tractor-fire-nebraska.html?searchResultPosition=1
 
-**She’s Moved From the Upper East Side to ‘Cobble Hill’**\
-`Cecily von Ziegesar, the author of “Gossip Girl,” is going for an adult, possibly Brooklyn-based audience in her new novel, but there will still be drama.`\
-https://nytimes.com/2020/11/01/books/cecily-von-ziegesar-cobble-hill-gossip-girl.html?searchResultPosition=2
+**On Marathon Weekend, Des Linden Ran 26.2 Miles, and Then Some, in New York**\
+`The New York City Marathon turned into a virtual event, but that did not stop Des Linden from coming to New York to accomplish something big.`\
+https://nytimes.com/2020/11/01/sports/New-York-City-Marathon-des-linden.html?searchResultPosition=2
 
-**Inside One Brooklyn Restaurant’s Desperate Fight to Survive the Pandemic**\
-`Half of New York City’s 24,000 restaurants could go out of business. Gertie is fighting to avoid becoming one of them.`\
-https://nytimes.com/2020/11/01/nyregion/williamsburg-restaurant-reopening-brooklyn.html?searchResultPosition=3
+**Dishonesty Has Defined the Trump Presidency. The Consequences Could Be Lasting.**\
+`Whether President Trump wins or loses on Nov. 3, the very concept of public trust in an established set of facts necessary for the operation of a democratic society has been eroded.`\
+https://nytimes.com/2020/11/01/us/politics/trump-presidency-dishonesty.html?searchResultPosition=3
 
-**In Italy, Like Everywhere the Virus Goes, It’s the Discontent That’s Contagious**\
-`Italians are now a long way away from the days of singing on balconies and their summer fling with freedom. Just like everyone else, they’ve had it.`\
-https://nytimes.com/2020/11/01/world/europe/italy-coronavirus-lockdown.html?searchResultPosition=4
+**Election at Hand, Biden Leads Trump in Four Key States, Poll Shows**\
+`Joseph R. Biden Jr. leads President Trump in Pennsylvania, Florida, Arizona and, by a wide margin, in Wisconsin, according to a Times/Siena College poll.`\
+https://nytimes.com/2020/11/01/us/politics/biden-trump-poll-florida-pennsylvania-wisconsin.html?searchResultPosition=4
 
-**Preaching or Avoiding Politics, Conservative Churches Walk a Delicate Line**\
-`Pastors can’t endorse or oppose candidates from the pulpit, and many of them don’t want to. But that doesn’t mean they’re ignoring politics.`\
-https://nytimes.com/2020/11/01/us/church-sermons-election-politics.html?searchResultPosition=5
+**How the Wealthy World Has Failed Poor Countries During the Pandemic**\
+`Despite pledges for debt relief and expanded programs, the World Bank and International Monetary Fund have delivered meager aid, say economists.`\
+https://nytimes.com/2020/11/01/business/coronavirus-imf-world-bank.html?searchResultPosition=5
 
-**‘He Managed a Smile and Thanked Charles for the Compliment’**\
-`A reunion with a well-dressed teacher, a tricky census question and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2020/11/01/nyregion/metropolitan-diary.html?searchResultPosition=6
+**Can Raphael Warnock Go From the Pulpit to the Senate?**\
+`The pastor at the Ebenezer Baptist Church in Atlanta, where Martin Luther King Jr. once preached, is betting that Georgia is ready to send a religious progressive to Washington.`\
+https://nytimes.com/2020/11/01/us/politics/raphael-warnock-ga.html?searchResultPosition=6
 
-**On ‘S.N.L.’, Jim Carrey Reads a Spooky Election Update of ‘The Raven’**\
-`Carrey appeared in his recurring role as Joe Biden in a Halloween episode hosted by the “Saturday Night Live” alum John Mulaney and featuring the Strokes as the musical guest.`\
-https://nytimes.com/2020/11/01/arts/television/snl-john-mulaney-jim-carrey-strokes.html?searchResultPosition=7
+**Pastors at the Polls? Meet Ohio’s Election Protection Squad**\
+`After the most tense election season in generations, clergy members are being trained and deployed to defuse potentially violent encounters on Election Day.`\
+https://nytimes.com/2020/11/01/us/politics/election-day-violence.html?searchResultPosition=7
 
-**2 Killed in Halloween Stabbing Spree in Quebec City**\
-`The police arrested a suspect in the attack, a man in his mid-20s who they said was dressed in medieval garb. Five people were injured in the attack.`\
-https://nytimes.com/2020/11/01/world/canada/quebec-city-stabbing-deaths-halloween-medieval-costume.html?searchResultPosition=8
+**Americans Are Afraid. Not for Themselves, but for the Country.**\
+`A feeling of alarm and fear about the future of democracy, from voters across the political spectrum.`\
+https://nytimes.com/2020/11/01/upshot/election-democracy-fear-americans.html?searchResultPosition=8
 
-**7 Pro-Democracy Politicians Arrested in Hong Kong Over Heated Meeting**\
-`The Hong Kong politicians were arrested in connection with a contentious meeting in May, when the local legislature’s chambers were filled with protest over a battle for control over a key committee.`\
-https://nytimes.com/2020/11/01/world/asia/hong-kong-prodemocracy-lawmakers-arrested-legco.html?searchResultPosition=9
+**Ahead of Election, Police Prepare For Violence and Disruption**\
+`Many law enforcement officials have attempted to inject calm while warning of dire consequences for those who try to disrupt voting.`\
+https://nytimes.com/2020/11/01/us/election-police-violence.html?searchResultPosition=9
 
-**Obituaries for the American Dream**\
-`If it was ever real, it isn’t anymore.`\
-https://nytimes.com/2020/11/01/opinion/american-dream-stories.html?searchResultPosition=10
+**U.S. Diplomat Coughs Online, and European Allies Wonder if They Were Exposed**\
+`A senior State Department official who tested positive for the coronavirus after a trip to Europe has angered other diplomats and irritated foreign officials whom he could have infected.`\
+https://nytimes.com/2020/11/01/us/politics/coronavirus-state-department-diplomats.html?searchResultPosition=10
 
