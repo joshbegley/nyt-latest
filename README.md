@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2020/us/politics/battleground-states-trump-biden
 https://nytimes.com/2020/10/31/us/politics/stanford-study-infections-trump-rallies.html?searchResultPosition=3
 
 **Police in North Carolina use a chemical spray to disperse a get-out-the-vote rally.**\
-`By Michael Levenson`\
+`Police officers and sheriff’s deputies in Graham, N.C., deployed a chemical spray and arrested eight people at a get-out-the-vote march and rally on Saturday, according to the police and participants.`\
 https://nytimes.com/2020/10/31/us/elections/police-in-north-carolina-use-a-chemical-spray-to-disperse-a-get-out-the-vote-rally.html?searchResultPosition=4
 
 **George Shultz Speaks Out for Renewing U.S. Leadership Overseas**\
