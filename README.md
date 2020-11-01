@@ -27,7 +27,7 @@ https://nytimes.com/2020/11/01/climate/eta-hurricane-record.html?searchResultPos
 https://nytimes.com/2020/11/01/world/europe/turkey-earthquake-rescue.html?searchResultPosition=7
 
 **How J Balvin Made His Trippy, Eye-Popping Halloween Concert in Fortnite**\
-`The popular video game has become a music venue as the pandemic continues to keep live shows off the road. The Latin pop star put his own colorful spin on the experience.`\
+`The video game has become a music venue as the pandemic continues to keep live shows off the road. The Latin pop star put his own colorful spin on the experience.`\
 https://nytimes.com/2020/11/01/arts/music/j-balvin-fortnite-concert.html?searchResultPosition=8
 
 **Homes That Sold for Around $1 Million**\
