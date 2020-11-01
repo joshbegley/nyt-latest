@@ -30,11 +30,11 @@ https://nytimes.com/2020/11/01/opinion/us-voting-rights-republicans.html?searchR
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2020/11/01/briefing/coronavirus-surge-election-day-sean-connery.html?searchResultPosition=8
 
-**Mississippi City Spared Loss of Electric Service**\
-`Upset over high electricity bills, residents of Itta Bena, Miss., complained, only to discover the city was hundreds of thousands of dollars in debt to its power supplier.`\
-https://nytimes.com/2020/11/01/us/itta-bena-mississippi-debt.html?searchResultPosition=9
+**An Ohio couple finds agreement on the presidential race.**\
+`By Elaina Plott`\
+https://nytimes.com/2020/10/31/us/elections/an-ohio-couple-finds-agreement-on-the-presidential-race.html?searchResultPosition=9
 
-**He Already Saw the Election as Good vs. Evil. Then His Tractor Burned.**\
-`In Nebraska, President Trump’s supporters hope he wins a second term, and that they get four more years of feeling like the country’s leader understands and defends them.`\
-https://nytimes.com/2020/11/01/us/trump-tractor-fire-nebraska.html?searchResultPosition=10
+**Don’t give in to ‘election stress disorder.’**\
+`By Katherine Cusumano`\
+https://nytimes.com/2020/11/01/us/elections/dont-give-in-to-election-stress-disorder.html?searchResultPosition=10
 
