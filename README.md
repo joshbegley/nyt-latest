@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/01/nyregion/williamsburg-restaurant-reopening-brooklyn.html?searchResultPosition=1
 
 **In Italy, Like Everywhere the Virus Goes, It’s the Discontent That’s Contagious**\
-`Italians are now a long way away from the days of singing on balconies days and their summer fling with freedom. Just like everyone else, they’ve had it.`\
+`Italians are now a long way away from the days of singing on balconies and their summer fling with freedom. Just like everyone else, they’ve had it.`\
 https://nytimes.com/2020/11/01/world/europe/italy-coronavirus-lockdown.html?searchResultPosition=2
 
 **Preaching or Avoiding Politics, Conservative Churches Walk a Delicate Line**\
