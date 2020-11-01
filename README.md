@@ -18,8 +18,8 @@ https://nytimes.com/2020/11/01/nyregion/metropolitan-diary.html?searchResultPosi
 `Carrey appeared in his recurring role as Joe Biden in a Halloween episode hosted by the “Saturday Night Live” alum John Mulaney and featuring the Strokes as the musical guest.`\
 https://nytimes.com/2020/11/01/arts/television/snl-john-mulaney-jim-carrey-strokes.html?searchResultPosition=5
 
-**2 Reported Killed in Halloween Stabbing Spree in Quebec City**\
-`The police arrested a suspect in the attack, a man in his mid-20s who they said was dressed in medieval garb. Five people were said to be injured in the attack.`\
+**2 Killed in Halloween Stabbing Spree in Quebec City**\
+`The police arrested a suspect in the attack, a man in his mid-20s who they said was dressed in medieval garb. Five people were injured in the attack.`\
 https://nytimes.com/2020/11/01/world/canada/quebec-city-stabbing-deaths-halloween-medieval-costume.html?searchResultPosition=6
 
 **7 Pro-Democracy Politicians Arrested in Hong Kong Over Heated Meeting**\
