@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/01/opinion/letters/climate-change.html?searchResultP
 `Some final thoughts about the candidates and voters’ hopes and fears as Election Day looms.`\
 https://nytimes.com/2020/11/01/opinion/letters/trump-biden-election.html?searchResultPosition=9
 
-**When It Comes to Democracy, the U. S. Is Showing Its Age**\
+**When It Comes to Democracy, the U.S. Is Showing Its Age**\
 `Our election systems were not built for the modern era. Looking abroad might help.`\
 https://nytimes.com/2020/11/01/opinion/election-vote-2020.html?searchResultPosition=10
 
