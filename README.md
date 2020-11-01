@@ -15,7 +15,7 @@ https://nytimes.com/2020/11/01/dining/what-to-cook-this-week.html?searchResultPo
 https://nytimes.com/2020/11/01/world/europe/russia-wine-black-sea.html?searchResultPosition=4
 
 **David Henry Hwang’s ‘M. Butterfly’ Followup: ‘M. Turkey’**\
-`The goal: a comedy about mistaken racial identity inspired by protests over “Miss Saigon.” The result: a backstage farce that never made it to opening night.`\
+`The goal: a comedy about mistaken racial identity inspired by protests over “Miss Saigon.” The result: a backstage farce that never got to opening night.`\
 https://nytimes.com/2020/11/01/theater/face-value-david-henry-hwang-broadway.html?searchResultPosition=5
 
 **Tropical Storm Eta Forms, Tying a Record Set 15 Years Ago**\
