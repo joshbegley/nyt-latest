@@ -1,16 +1,16 @@
-**Our Most Dangerous Weeks Are Ahead**\
-`We are making preparations for the election to descend into bedlam.`\
-https://nytimes.com/2020/11/01/opinion/trump-election-night-violence.html?searchResultPosition=1
-
 **What We Learned From Week 8 of the N.F.L. Season**\
 `Dalvin Cook shredded the Packers, the Steelers stayed undefeated and Joe Burrow and the Bengals shocked Tennessee.`\
-https://nytimes.com/2020/11/01/sports/football/nfl-results.html?searchResultPosition=2
+https://nytimes.com/2020/11/01/sports/football/nfl-results.html?searchResultPosition=1
+
+**Our Most Dangerous Weeks Are Ahead**\
+`We are making preparations for the election to descend into bedlam.`\
+https://nytimes.com/2020/11/01/opinion/trump-election-night-violence.html?searchResultPosition=2
 
 **Trump’s supporters block traffic on major roadways in New York and New Jersey.**\
 `By Neil Vigdor, Jesse McKinley, Emma G. Fitzsimmons and Sydney Ember`\
 https://nytimes.com/2020/11/01/us/elections/trumps-supporters-block-traffic-on-major-roadways-in-new-york-and-new-jersey.html?searchResultPosition=3
 
-**Famed Iranian Under #MeToo Cloud Faces Art World Repercussions**\
+**Famed Iranian Artist Under #MeToo Cloud Faces Art World Repercussions**\
 `In Iran, an exhibit of Aydin Aghdashloo’s work was canceled and a prominent auction is considering dropping him. In Canada, a petition calls for an art festival to cut ties with him.`\
 https://nytimes.com/2020/11/01/world/canada/iran-metoo-aghdashloo-reaction.html?searchResultPosition=4
 
