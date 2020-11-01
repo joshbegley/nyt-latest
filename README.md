@@ -2,7 +2,7 @@
 `The 50th New York City Marathon would have been Sunday. Some runners still ran the 26.2-mile course despite the cancellation.`\
 https://nytimes.com/2020/11/01/sports/new-york-city-marathon-virtual.html?searchResultPosition=1
 
-**The Atlantic Says It Was Deceived by Writer of Article on Niche Sports**\
+**The Atlantic Says It Was Deceived by the Writer of an Article on Niche Sports**\
 `The writer, Ruth Shalit Barrett, had been a rising young political reporter in the 1990s before accusations of plagiarism derailed her career as an associate editor at The New Republic.`\
 https://nytimes.com/2020/11/01/business/media/atlantic-ruth-shalit-barrett.html?searchResultPosition=2
 
