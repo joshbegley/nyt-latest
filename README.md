@@ -1,4 +1,4 @@
-**Patrick Mahomes and Chiefs Pile On to Jets’ Woes**\
+**Patrick Mahomes and Chiefs Pile Onto Jets’ Woes**\
 `Kansas City cruised with the former Jets running back Le’Veon Bell barely needing to exert himself to extend his former team’s losing streak to eight straight.`\
 https://nytimes.com/2020/11/01/sports/football/jets-chiefs-score.html?searchResultPosition=1
 
