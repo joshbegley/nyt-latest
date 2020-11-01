@@ -1,10 +1,10 @@
-**Obituaries for the American Dream**\
-`If it was ever real, it isn’t anymore.`\
-https://nytimes.com/2020/11/01/opinion/american-dream-stories.html?searchResultPosition=1
-
 **7 Pro-Democracy Politicians Arrested in Hong Kong Over Heated Meeting**\
 `The Hong Kong politicians were arrested in connection with a contentious meeting in May, when the local legislature’s chambers were filled with protest over a battle for control over a key committee.`\
-https://nytimes.com/2020/11/01/world/asia/hong-kong-prodemocracy-lawmakers-arrested-legco.html?searchResultPosition=2
+https://nytimes.com/2020/11/01/world/asia/hong-kong-prodemocracy-lawmakers-arrested-legco.html?searchResultPosition=1
+
+**Obituaries for the American Dream**\
+`If it was ever real, it isn’t anymore.`\
+https://nytimes.com/2020/11/01/opinion/american-dream-stories.html?searchResultPosition=2
 
 **This Election Week, Revisit the Constitution, Then Soothe Your Stressed Mind**\
 `Calm your nerves with a meditation guide, a night at the Seattle Symphony and a day among the sea otters at the Monterey Bay Aquarium.`\
