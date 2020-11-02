@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/02/us/election-ballots-rejections.html?searchResultP
 
 **Review: A Poet’s Urgent Questions Fuel ‘November’**\
 `Five Black women narrate a filmed rendition of Claudia Rankine’s heady play, which was rethought after an initial version was shut down by the pandemic.`\
-https://nytimes.com/2020/11/02/arts/review-november-claudia-rankine.html?searchResultPosition=2
+https://nytimes.com/2020/11/02/theater/review-november-claudia-rankine.html?searchResultPosition=2
 
 **Graham and Harrison Battle Over the ‘New South,’ in Their Final Appeals**\
 `As Jaime Harrison called Lindsey Graham a 1950s relic, the Republican incumbent urged voters to re-elect him to help protect a way of life.`\
