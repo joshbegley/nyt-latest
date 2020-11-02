@@ -26,9 +26,9 @@ https://nytimes.com/2020/11/01/opinion/trump-election-night-violence.html?search
 `Dalvin Cook shredded the Packers, the Steelers stayed undefeated and Joe Burrow and the Bengals shocked Tennessee.`\
 https://nytimes.com/2020/11/01/sports/football/nfl-results.html?searchResultPosition=7
 
-**Trump’s supporters block traffic on major roadways in New York and New Jersey.**\
+**Trump defends Texas drivers who surrounded Biden bus, while president’s supporters block traffic in New York and New Jersey.**\
 `By Neil Vigdor, Jesse McKinley, Emma G. Fitzsimmons, Sydney Ember, Annie Karni, Stephanie Saul and Dave Montgomery`\
-https://nytimes.com/2020/11/01/us/elections/trumps-supporters-block-traffic-on-major-roadways-in-new-york-and-new-jersey.html?searchResultPosition=8
+https://nytimes.com/2020/11/01/us/elections/trump-defends-texas-drivers-who-surrounded-biden-bus-while-presidents-supporters-block-traffic-in-new-york-and-new-jersey.html?searchResultPosition=8
 
 **Famed Iranian Artist Under #MeToo Cloud Faces Art World Repercussions**\
 `In Iran, an exhibit of Aydin Aghdashloo’s work was canceled and a prominent auction is considering dropping him. In Canada, a petition calls for an art festival to cut ties with him.`\
