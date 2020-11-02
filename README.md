@@ -1,5 +1,5 @@
 **Macy’s, Saks and Small Stores Brace for Potential N.Y.C. Unrest**\
-`On the eve of Election Day, stores in the city’s Manhattan shopping districts prepared for possible outbreaks of vandalism in the aftermath of the vote.`\
+`On the eve of Election Day, stores in the city’s Manhattan shopping districts boarded up, reflecting an anxiety among retailers across the nation.`\
 https://nytimes.com/2020/11/02/nyregion/nyc-election-unrest.html?searchResultPosition=1
 
 **A Golden Team, a Terrible Title and a Show That Vanished**\
