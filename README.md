@@ -11,7 +11,7 @@ https://nytimes.com/2020/11/02/nyregion/new-york-coronavirus-orange-county.html?
 https://nytimes.com/2020/11/02/opinion/patriotism-america-2020.html?searchResultPosition=3
 
 **Johnny Depp Loses Court Case Against Newspaper That Called Him a ‘Wife Beater’**\
-`The British judge who heard the case issued his ruling online on Monday, 96 days after the hearing into the accusations closed.`\
+`A British judge dismissed Mr. Depp’s case on Monday, 96 days after the hearing into the accusations closed.`\
 https://nytimes.com/2020/11/02/arts/depp-heard-court-ruling.html?searchResultPosition=4
 
 **Does Everyone Have a Responsibility to Vote?**\
