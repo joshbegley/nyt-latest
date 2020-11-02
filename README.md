@@ -1,40 +1,40 @@
-**What to Expect From Facebook, Twitter and YouTube on Election Day**\
-`The sites are key conduits for communication and information. Here’s how they plan to handle the challenges facing them before, on and after Tuesday.`\
-https://nytimes.com/2020/11/02/technology/facebook-twitter-youtube-election-day.html?searchResultPosition=1
+**A Local’s Tour of Asturias, Spain’s ‘Natural Paradise’**\
+`After a decade spent living abroad, a photographer returns to her homeland — and revels in the breadth of its beauty.`\
+https://nytimes.com/2020/11/02/travel/asturias-spain.html?searchResultPosition=1
 
-**Bartlet for America: A ‘West Wing’ Fantasy**\
-`OK, it’s a fairy tale, but it’s a fairy tale we should heed on Election Day.`\
-https://nytimes.com/2020/11/02/opinion/west-wing-election-2020-politics.html?searchResultPosition=2
+**‘It’s Just Crazy’ in Pennsylvania: Mail Voting and the Anxiety That Followed**\
+`A county northeast of Pittsburgh is a microcosm of the high tension, confusion and deep uncertainty that have accompanied the expansion of mail-in voting.`\
+https://nytimes.com/2020/11/02/us/politics/Pennsylvania-presidential-election.html?searchResultPosition=2
 
-**Sarah Cooper Is Tired of Being Donald Trump**\
-`The comedian delighted millions with her Trump lip-syncs. After the election, she may be on to her next act.`\
-https://nytimes.com/2020/11/02/opinion/sway-kara-swisher-sarah-cooper.html?searchResultPosition=3
+**Win or Lose, Trump and Biden’s Parties Will Plunge Into Uncertainty**\
+`No matter who wins, Democrats will be split between younger progressives and a moderate old guard. And a Republican Party redefined in President Trump’s image will start weighing where it goes next.`\
+https://nytimes.com/2020/11/02/us/politics/trump-biden-republicans-democrats.html?searchResultPosition=3
 
-**Has the Court Learned Nothing From Bush v. Gore?**\
-`Apparently not.`\
-https://nytimes.com/2020/11/02/opinion/election-supreme-court.html?searchResultPosition=4
+**It Was Election Day Eve and All Through the House …**\
+`Everyone was pretty much freaking out.`\
+https://nytimes.com/2020/11/02/opinion/election-day-biden-trump.html?searchResultPosition=4
 
-**Does Everyone Have a Responsibility to Vote?**\
-`Is it OK not to vote, or is voting a civic duty?`\
-https://nytimes.com/2020/11/02/learning/does-everyone-have-a-responsibility-to-vote.html?searchResultPosition=5
+**Election Day Game Plan on Social Media: Share Carefully**\
+`Two digital experts for The Times discuss what they anticipate for a busy night and beyond.`\
+https://nytimes.com/2020/11/02/insider/election-social-media-coverage.html?searchResultPosition=5
 
-**7 Ways That You Can Save Our Democracy**\
-`It starts with believing in, and then protecting, our electoral system.`\
-https://nytimes.com/2020/11/02/opinion/vote-2020-election-democracy.html?searchResultPosition=6
+**Taxes, Heroin and Statehood: A Glimpse Into This Year’s Ballot Measures**\
+`The coronavirus pandemic has put a dent in the signature-gathering process, but voters still managed to put forward dozens of measures nationwide.`\
+https://nytimes.com/2020/11/02/us/ballot-measures-election-2020.html?searchResultPosition=6
 
-**Lesson of the Day: ‘Lil Buck Feels the Dancing Spirit All Over Again’**\
-`In this lesson, students watch a short film by the dancer Lil Buck, then consider his contention that street dance is fine art and can be “a tool to help bring change.”`\
-https://nytimes.com/2020/11/02/learning/lesson-of-the-day-lil-buck-feels-the-dancing-spirit-all-over-again.html?searchResultPosition=7
+**As the Virus Rages, Some Are Convinced It’s Too Late to Stop It**\
+`Coronavirus case counts are at record highs, yet many in states like Idaho are embracing a let-it-ride approach. One county with a hospital nearing capacity repealed its mask mandate.`\
+https://nytimes.com/2020/11/02/us/coronavirus-control.html?searchResultPosition=7
 
-**Shirley Hazzard’s Stories Observe Pain and Disappointment With a Witty Intelligence**\
-`The award-winning Australian-American writer’s “Collected Stories” includes pointed observations about the natural world and human nature.`\
-https://nytimes.com/2020/11/02/books/review-collected-stories-shirley-hazzard.html?searchResultPosition=8
+**Why Iowa Is in Play**\
+`With Covid-19 and devastating storms, the state needs smart government — and Joe Biden has ideas for governing.`\
+https://nytimes.com/2020/11/02/opinion/iowa-trump-biden-2020.html?searchResultPosition=8
 
-**Greta Thunberg Hears Your Excuses. She Is Not Impressed.**\
-`“If you fully understand the science, then you know what you as an individual have to do. You know then that you have a responsibility.”`\
-https://nytimes.com/interactive/2020/11/02/magazine/greta-thunberg-interview.html?searchResultPosition=9
+**Shopping for Armoires**\
+`When you’ve run out of space to store clothing or work materials, this is one piece of furniture you need.`\
+https://nytimes.com/2020/11/02/realestate/shopping-for-armoires.html?searchResultPosition=9
 
-**How Do Donalds Vote? Take Our Name Quiz to Find Out.**\
-`The Times analyzed polls of more than 17,000 voters to see which names are backing which candidates.`\
-https://nytimes.com/interactive/2020/11/02/us/elections/02names-polls.html?searchResultPosition=10
+**The Quiet Architect of Biden’s Plan to Rescue the Economy**\
+`Ben Harris is not a household name, even in economics. But he helped develop a package of tax and spending increases that have not spooked Wall Street.`\
+https://nytimes.com/2020/11/02/business/biden-economist.html?searchResultPosition=10
 
