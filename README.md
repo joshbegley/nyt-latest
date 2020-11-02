@@ -30,11 +30,11 @@ https://nytimes.com/2020/11/02/world/europe/pope-gay-civil-unions.html?searchRes
 `Some final thoughts on Joe Biden (“our democracy rests in his hands”) and President Trump (“he cares for the little people”).`\
 https://nytimes.com/2020/11/02/opinion/letters/trump-biden-election.html?searchResultPosition=8
 
+**There have been scattered reports of paramilitary groups trying to interfere with voting.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/2020/11/02/us/elections/there-have-been-scattered-reports-of-paramilitary-groups-trying-to-interfere-with-voting.html?searchResultPosition=9
+
 **Pregnant Women Face Increased Risks From Covid-19**\
 `If symptomatic, they were more likely to develop complications and die than nonpregnant women with symptoms.`\
-https://nytimes.com/2020/11/02/health/Covid-pregnancy-health-risks.html?searchResultPosition=9
-
-**Review: ‘What a Carve Up!’ Is Wonderful. But Is It Theater?**\
-`Three British companies reimagine a murder mystery for the virtual stage. Except there’s no stage, and no part of it is live.`\
-https://nytimes.com/2020/11/02/theater/what-a-carve-up-review.html?searchResultPosition=10
+https://nytimes.com/2020/11/02/health/Covid-pregnancy-health-risks.html?searchResultPosition=10
 
