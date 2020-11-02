@@ -1,40 +1,40 @@
+**20 Years Aboard the International Space Station**\
+`Twenty years ago today, three astronauts stepped aboard the International Space Station. Since then, the I.S.S. has hosted hundreds of residents from many countries. This is a history of our first 20 years of living aboard.`\
+https://nytimes.com/interactive/2020/11/02/science/iss-20th-anniversary-timeline.html?searchResultPosition=1
+
+**Video Shows Trump Supporters Blocking Highways and Streets**\
+`Caravan parades for President Trump clogged roadways in New York and California, adding a new layer of tension in the days leading to Election Day.`\
+https://nytimes.com/video/us/elections/100000007429725/trump-highway-caravans.html?searchResultPosition=2
+
+**Are You Going Home for Thanksgiving?**\
+`College students, we know this is a hectic year. How are you planning for the holiday?`\
+https://nytimes.com/2020/11/02/us/are-you-going-home-for-thanksgiving.html?searchResultPosition=3
+
 **9 Ways Outdoor Dining Will Change New York**\
 `Street and sidewalk tables won’t just survive the pandemic. They’ll make the city a different place.`\
-https://nytimes.com/2020/11/02/dining/outdoor-dining-nyc.html?searchResultPosition=1
+https://nytimes.com/2020/11/02/dining/outdoor-dining-nyc.html?searchResultPosition=4
 
 **Million of Votes Are in Postal Workers’ Hands. Here Is Their Story.**\
 `What this year’s politically charged vote-by-mail election is like for U.S.P.S. employees on the ground.`\
-https://nytimes.com/interactive/2020/11/02/magazine/vote-mail-postal-service.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/11/02/magazine/vote-mail-postal-service.html?searchResultPosition=5
 
 **Can I Wear Political Clothing When I Vote?**\
 `The short answer is: No. Many states have rules about what you can and cannot wear to the polls. But that doesn’t mean you can’t express yourself.`\
-https://nytimes.com/2020/11/02/style/political-clothing-vote.html?searchResultPosition=3
+https://nytimes.com/2020/11/02/style/political-clothing-vote.html?searchResultPosition=6
 
 **Home Sweet Home in Orbit**\
 `A visual tour of the International Space Station, humanity’s high-tech home in the sky.`\
-https://nytimes.com/2020/11/02/science/space-station-astronomy.html?searchResultPosition=4
+https://nytimes.com/2020/11/02/science/space-station-astronomy.html?searchResultPosition=7
 
 **Battleground States See the Most Voting Misinformation**\
 `Pennsylvania, Ohio and Texas topped the list of places seeing the most vote-by-mail distortions, according to new data.`\
-https://nytimes.com/2020/11/02/technology/battleground-states-see-the-most-voting-misinformation.html?searchResultPosition=5
+https://nytimes.com/2020/11/02/technology/battleground-states-see-the-most-voting-misinformation.html?searchResultPosition=8
 
 **When the Virus Came for the American Dream**\
 `Buford Highway, in suburban Atlanta, has long been a place where immigrant entrepreneurs could build businesses and get ahead. Not this year.`\
-https://nytimes.com/2020/11/02/magazine/covid-business-atlanta.html?searchResultPosition=6
+https://nytimes.com/2020/11/02/magazine/covid-business-atlanta.html?searchResultPosition=9
 
 **How the Space Station Became a Base to Launch Humanity’s Future**\
 `Once derided as a poster child for government waste, the outpost in orbit is now seen as a linchpin for future economic activity in space.`\
-https://nytimes.com/2020/11/02/science/international-space-station-20-anniversary.html?searchResultPosition=7
-
-**A perilous flight that reinforced Russia’s rocketry skills.**\
-`The astronauts survived the accident, a reminder of the Soyuz rocket’s excellent engineering.`\
-https://nytimes.com/2020/11/02/science/russia-soyuz-escape.html?searchResultPosition=8
-
-**Many firsts for women in a very male orbit.**\
-`Women have accomplished a great deal on the space station, when they’ve been there.`\
-https://nytimes.com/2020/11/02/science/space-station-peggy-whitson.html?searchResultPosition=9
-
-**A new window that forever changed our view of Earth.**\
-`Many of the greatest images you’ve seen from the space station were made in the cupola.`\
-https://nytimes.com/2020/11/02/science/space-station-cupola.html?searchResultPosition=10
+https://nytimes.com/2020/11/02/science/international-space-station-20-anniversary.html?searchResultPosition=10
 
