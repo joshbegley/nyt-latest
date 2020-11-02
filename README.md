@@ -30,7 +30,7 @@ https://nytimes.com/2020/11/02/world/americas/hurricane-eta.html?searchResultPos
 `Can you find Togo on a map? What else do you know about this African country with about 8 million people.`\
 https://nytimes.com/interactive/2020/11/02/learning/Togo-Geography-Quiz.html?searchResultPosition=8
 
-**The Virus Rate in Orange County Plummeted. Experts Wonder Why.**\
+**The Virus Rate in One Area Plummeted. Experts Wonder Why.**\
 `The sudden drop raises questions about community sensitivities over testing and how useful the data is in determining preventive measures.`\
 https://nytimes.com/2020/11/02/nyregion/new-york-coronavirus-orange-county.html?searchResultPosition=9
 
