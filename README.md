@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/02/arts/music/luke-combs-streaming-chart.html?search
 https://nytimes.com/2020/11/02/us/national-guard-election.html?searchResultPosition=2
 
 **Macy’s, Saks and Small Stores Brace for Potential N.Y.C. Unrest**\
-`On the eve of Election Day, stores in the city’s Manhattan shopping districts boarded up, reflecting an anxiety among retailers across the nation.`\
+`On the eve of Election Day, stores in Manhattan shopping districts boarded up, reflecting an anxiety among retailers across the nation.`\
 https://nytimes.com/2020/11/02/nyregion/nyc-election-unrest.html?searchResultPosition=3
 
 **A Golden Team, a Terrible Title and a Show That Vanished**\
