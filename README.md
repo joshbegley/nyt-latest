@@ -18,8 +18,8 @@ https://nytimes.com/2020/11/01/arts/television/fargo-recap-episode-7.html?search
 `Our streaming picks for November, including ‘The Crown,’ ‘Hillbilly Elegy’ and ‘Small Axe.’`\
 https://nytimes.com/2020/11/01/arts/television/best-tv-movies-netflix-stan-amazon-australia.html?searchResultPosition=5
 
-**Your Monday Briefing**\
-`Britain prepares for a month of lockdown.`\
+**England, Covid-19, U.S. Election: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/01/briefing/uk-lockdown-covid-19-us-election.html?searchResultPosition=6
 
 **Quotation of the Day: ‘Most Police Chiefs Are Worried’: Departments Prepare for Election-Related Threats**\
