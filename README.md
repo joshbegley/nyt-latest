@@ -27,7 +27,7 @@ https://nytimes.com/2020/11/01/opinion/trump-election-night-violence.html?search
 https://nytimes.com/2020/11/01/sports/football/nfl-results.html?searchResultPosition=7
 
 **Trump’s supporters block traffic on major roadways in New York and New Jersey.**\
-`By Neil Vigdor, Jesse McKinley, Emma G. Fitzsimmons, Sydney Ember, Annie Karni and Stephanie Saul`\
+`By Neil Vigdor, Jesse McKinley, Emma G. Fitzsimmons, Sydney Ember, Annie Karni, Stephanie Saul and Dave Montgomery`\
 https://nytimes.com/2020/11/01/us/elections/trumps-supporters-block-traffic-on-major-roadways-in-new-york-and-new-jersey.html?searchResultPosition=8
 
 **Famed Iranian Artist Under #MeToo Cloud Faces Art World Repercussions**\
