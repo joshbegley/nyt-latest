@@ -1,5 +1,5 @@
 **‘I Am On Your Side’: How the Police Gave Armed Groups a Pass in 2020**\
-`Armed groups showed up to scores of racial justice protests since May. Our video shows how police officers at times let them operate freely. it had been protesters`\
+`Armed groups showed up to scores of racial justice protests since May. Our video shows how police officers at times let them operate freely.`\
 https://nytimes.com/video/us/100000007424380/police-black-lives-matter-protests.html?searchResultPosition=1
 
 **Mount Everest Empties as Covid-19 Strikes Tourism in Nepal**\
