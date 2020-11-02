@@ -35,6 +35,6 @@ https://nytimes.com/2020/11/02/business/media/associated-press-presidential-elec
 https://nytimes.com/2020/11/02/books/review/the-cold-millions-by-jess-walter-an-excerpt.html?searchResultPosition=9
 
 **Vienna Shooting Live Updates: City Center in Chaos After Gunmen Open Fire**\
-`Several people were reported injured in what officials described as “an obvious terror attack” Monday night in the heart of Austria’s capital.`\
+`At least one person was killed and several people were reported injured in what officials described as a terrorist attack Monday night in the heart of Austria’s capital.`\
 https://nytimes.com/2020/11/02/world/europe/vienna-austria-attack-shooter.html?searchResultPosition=10
 
