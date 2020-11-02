@@ -26,8 +26,8 @@ https://nytimes.com/2020/11/02/books/review/the-cold-millions-by-jess-walter-an-
 `Pennsylvania, Ohio and Texas topped the list of places seeing the most vote-by-mail distortions, according to new data.`\
 https://nytimes.com/interactive/2020/11/02/technology/us-states-misinformation-pennsylvania.html?searchResultPosition=7
 
-**Vienna Shooting Live Updates: A City Center in Chaos After ‘Evident Terrorist Attack’**\
-`Several people were reported injured in the shooting Monday night in the heart of Austria’s capital.`\
+**Vienna Shooting Live Updates: City Center in Chaos After ‘Terrorist Attack’**\
+`Several people were reported injured in the shooting Monday night in the heart of Austria’s capital. The country’s interior minister called it a terrorist attack.`\
 https://nytimes.com/2020/11/02/world/europe/vienna-austria-attack-shooter.html?searchResultPosition=8
 
 **The World Lost Emile Bruneau When We Needed Him Most**\
