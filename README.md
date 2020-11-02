@@ -1,5 +1,5 @@
 **As California Goes, So Goes the Nation’s Business?**\
-`Some of the state’s ballot propositions could have profound implications for companies across the country.`\
+`Some of the state’s ballot propositions could have profound implications for companies.`\
 https://nytimes.com/2020/11/02/business/dealbook/as-california-goes-so-goes-the-nations-business.html?searchResultPosition=1
 
 **Gunmen Storm Kabul University, Killing at Least 19**\
