@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/01/pageoneplus/no-corrections-nov-2-2020.html?search
 `Both campaigns were intensifying their efforts in a state increasingly critical to victory, as the candidates and their surrogates planned a final blitz to make their closing arguments.`\
 https://nytimes.com/2020/11/01/us/politics/trump-biden-campaign.html?searchResultPosition=9
 
-**Trump Backers Block Highways as Nation’s Divisions Play Out in the Street**\
-`Disruptions in New Jersey, Texas, Georgia, North Carolina and elsewhere reflect a bitter, uncertain election.`\
+**Trump Backers Block Highways as Election Tensions Play Out in the Streets**\
+`Law enforcement authorities are increasingly worried, not just about what they have already seen, but also about what has been threatened, especially online.`\
 https://nytimes.com/2020/11/01/us/trump-biden-election-campaign.html?searchResultPosition=10
 
