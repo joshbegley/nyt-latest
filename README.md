@@ -28,7 +28,7 @@ https://nytimes.com/video/us/elections/100000007431075/biden-trump-black-voters-
 
 **Dozens Killed in Ethiopia in Schoolyard Massacre**\
 `Rights groups said at least 54 people were killed in Sunday’s attack, which underscored how relations between Ethiopia’s ethnic groups are fraying.`\
-https://nytimes.com/2020/11/02/world/africa/ethiopia-massacre-amhara-oromo-attack.html?searchResultPosition=8
+https://nytimes.com/2020/11/02/world/africa/ethiopia-school-massacre.html?searchResultPosition=8
 
 **What Are You Voting For?**\
 `Here’s what our readers have to say.`\
