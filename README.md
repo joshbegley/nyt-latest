@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/03/world/europe/coronavirus-concert-study-germany.html?searchResultPosition=1
 
 **The Daily: Live Election Day Broadcast**\
-`Come back at 4 p.m. Eastern time to hear live conversations with correspondents and voters on a history-making day.`\
+`Come back at 4 p.m. Eastern time to hear live conversations with correspondents and voters on a history-making day. For now, listen to the trailer.`\
 https://nytimes.com/2020/11/03/podcasts/the-daily/the-daily-election.html?searchResultPosition=2
 
 **When Will We Know the Election Results?**\
