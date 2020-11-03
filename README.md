@@ -26,7 +26,7 @@ https://nytimes.com/2020/11/02/opinion/women-voters-georgia.html?searchResultPos
 `In the final days of voting, the Postal Service is struggling to ensure timely delivery of ballots in parts of key battleground states like Pennsylvania and Michigan.`\
 https://nytimes.com/2020/11/02/us/politics/mail-ballot-usps.html?searchResultPosition=7
 
-**Undeterred by Pandemic, Americans Prepare to Render Verdict on Trump**\
+**Undeterred by Pandemic, Americans Prepare to Deliver Verdict on Trump**\
 `President Trump and Joseph R. Biden Jr. barnstormed through battleground states, concluding an extraordinary campaign conducted amid a health crisis and deep economic anxiety.`\
 https://nytimes.com/2020/11/02/us/politics/trump-covid.html?searchResultPosition=8
 
