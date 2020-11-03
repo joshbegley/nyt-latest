@@ -1,40 +1,40 @@
-**Indonesian President Quietly Signs Divisive Bill Into Law Overnight**\
-`President Joko Widodo sold the law as necessary to make the world’s fourth most populous country a better place to do business. But activists say it eliminates critical protections for workers and the environment.`\
-https://nytimes.com/2020/11/03/world/asia/indonesia-stimulus-bill-signed.html?searchResultPosition=1
+**Missoni Zigzags on the Wrist**\
+`The Italian fashion house adapts its signature designs for three watch collections.`\
+https://nytimes.com/2020/11/03/fashion/watches-missoni-timex.html?searchResultPosition=1
 
-**Lesson of the Day: Learning With The Times’s ‘Family, Interrupted’ Series**\
-`In this lesson, students will learn how families across the country are experiencing irritations, sorrows, panics and even small joys right now. Then they will write a profile of a family for the series.`\
-https://nytimes.com/2020/11/03/learning/lesson-of-the-day-learning-with-the-timess-family-interrupted-series.html?searchResultPosition=2
+**Cultivating a Watch Community**\
+`The 20-year success of the fan club Paneristi has intrigued brands like Jaeger LeCoultre and Breitling.`\
+https://nytimes.com/2020/11/03/fashion/watches-fan-communities-panerai.html?searchResultPosition=2
 
-**What Do You Want Your Parents to Know About What It’s Like to Be a Teenager During the Pandemic?**\
-`What unique challenges do young people face? What do you wish parents (and other adults) understood about what you’re going through now?`\
-https://nytimes.com/2020/11/03/learning/what-do-you-want-your-parents-to-know-about-what-its-like-to-be-a-teenager-during-the-pandemic.html?searchResultPosition=3
+**‘White Ivy,’ by Susie Yang: An Excerpt**\
+`An excerpt from “White Ivy,” by Susie Yang`\
+https://nytimes.com/2020/11/03/books/review/white-ivy-by-susie-yang-an-excerpt.html?searchResultPosition=3
 
-**How to Survive Your Election Day Anxiety**\
-`Delete the apps. In fact, put your phone in a different room entirely. It’s going to be a long day, whether you’re a Biden or a Trump supporter.`\
-https://nytimes.com/2020/11/03/us/politics/election-day-anxiety.html?searchResultPosition=4
+**When He Bought the Tiny House, He Was Single. That Didn’t Last.**\
+`The one-bedroom cottage on Shelter Island was perfect for one person. For a family? Not so much.`\
+https://nytimes.com/2020/11/03/realestate/shelter-island-renovations.html?searchResultPosition=4
 
-**China Envisions a New Hong Kong, Firmly Under Its Control**\
-`The government hopes to turn Hainan Island into a financial and shopping destination. Matching the former British colony won’t be easy.`\
-https://nytimes.com/2020/11/03/business/china-hong-kong-hainan-island.html?searchResultPosition=5
+**A Shelter Island Bachelor Pad Turned Family Home**\
+`The house was already perfect — just a little too small. So the expansion had to be done very carefully.`\
+https://nytimes.com/slideshow/2020/11/03/realestate/a-shelter-island-bachelor-pad-turned-family-home.html?searchResultPosition=5
 
-**Can Biden Regain Lost Ground With Latinos?**\
-`Despite a recent influx of cash, Democrats worry that his outreach efforts are too little, too late among a critical segment of the electorate.`\
-https://nytimes.com/2020/11/03/us/politics/biden-latino-vote.html?searchResultPosition=6
+**Tearful Voters, Dueling Dogs, Endless Nights: Campaign Moments Our Reporters Won’t Forget**\
+`After covering an epic race for the presidency, 16 Times journalists write about experiences that will linger after the ballots are cast.`\
+https://nytimes.com/2020/11/03/insider/reporters-campaign-memories.html?searchResultPosition=6
 
-**America Is Going Full ‘Mad Max’ for Election Day, Late Night Says**\
-`“Right now, they’re erecting a massive protective fence around the White House in the event that things get crazy,” Jimmy Kimmel said. “It took four years, but Trump finally got his wall built.”`\
-https://nytimes.com/2020/11/03/arts/television/late-night-us-election-trump-kimmel-trevor-noah.html?searchResultPosition=7
+**If Restaurants Go, What Happens to Cities?**\
+`Restaurants have been crucial in drawing the young and highly educated to live and work in central cities. The pandemic could erode that foundation.`\
+https://nytimes.com/2020/11/03/business/economy/cities-restaurants.html?searchResultPosition=7
 
-**In midnight vote, Biden sweeps Dixville Notch. Trump takes another New Hampshire town.**\
-`Joe Biden was the first presidential candidate to sweep the general election vote in Dixville Notch since the midnight voting tradition began there in 1960.`\
-https://nytimes.com/2020/11/02/us/politics/dixville-notch-biden-millsfield-trump.html?searchResultPosition=8
+**Migrant Families Were Confused When U.S. Expelled Children Into Mexico**\
+`U.S. authorities improperly expelled Central American children in violation of international agreements. Families scrambled to learn how they had ended up back across the border.`\
+https://nytimes.com/2020/11/03/us/migrant-children-expulsions.html?searchResultPosition=8
 
-**The Electoral College Explained**\
-`It’s the Electoral College, not the national popular vote, that determines who wins the presidency.`\
-https://nytimes.com/article/the-electoral-college.html?searchResultPosition=9
+**Holiday Travel and Safety: 5 Things We Know**\
+`During the current pandemic surge, how risky is it to travel during what is normally one of the busiest seasons? And how is the industry making it safer? Here’s what you need to know.`\
+https://nytimes.com/2020/11/03/travel/holiday-travel-covid.html?searchResultPosition=9
 
-**Chinese Regulators Summon Jack Ma Ahead of Ant I.P.O.**\
-`The internet finance titan, which is days away from a huge stock offering, has challenged China’s state-led banking system, putting it in the cross-hairs of the authorities.`\
-https://nytimes.com/2020/11/03/technology/ant-ipo-jack-ma-summoned.html?searchResultPosition=10
+**‘Our Democracy as We Know It Is at Stake.’**\
+`The Trump-Biden matchup has ramifications far beyond those of an ordinary presidential election.`\
+https://nytimes.com/2020/11/03/opinion/our-democracy-as-we-know-it-is-at-stake.html?searchResultPosition=10
 
