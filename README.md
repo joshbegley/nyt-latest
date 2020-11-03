@@ -1,40 +1,40 @@
-**Ohio Election Results: Fourth Congressional District**\
-`See full results and maps from the Ohio election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-ohio-house-district-4.html?searchResultPosition=1
+**South Dakota Amendment A Election Results: Legalize Recreational Marijuana**\
+`See full results and maps from the South Dakota election.`\
+https://nytimes.com/interactive/2020/11/03/us/elections/results-south-dakota-amendment-a-legalize-recreational-marijuana.html?searchResultPosition=1
 
-**New Jersey Election Results: Sixth Congressional District**\
-`See full results and maps from the New Jersey election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-new-jersey-house-district-6.html?searchResultPosition=2
+**California Proposition 25 Election Results: End Cash Bail**\
+`See full results and maps from the California election.`\
+https://nytimes.com/interactive/2020/11/03/us/elections/results-california-proposition-25-end-cash-bail.html?searchResultPosition=2
 
-**Ohio Voter Surveys: How Different Groups Voted**\
+**Illinois Voter Surveys: How Different Groups Voted**\
 `How different groups voted`\
-https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-ohio.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-illinois.html?searchResultPosition=3
 
-**Oklahoma Election Results: Third Congressional District**\
+**Washington Election Results: Second Congressional District**\
+`See full results and maps from the Washington election.`\
+https://nytimes.com/interactive/2020/11/03/us/elections/results-washington-house-district-2.html?searchResultPosition=4
+
+**Utah Voter Surveys: How Different Groups Voted**\
+`How different groups voted`\
+https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-utah.html?searchResultPosition=5
+
+**New Mexico Voter Surveys: How Different Groups Voted**\
+`How different groups voted`\
+https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-new-mexico.html?searchResultPosition=6
+
+**North Dakota Voter Surveys: How Different Groups Voted**\
+`How different groups voted`\
+https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-north-dakota.html?searchResultPosition=7
+
+**Wisconsin Election Results: First Congressional District**\
+`See full results and maps from the Wisconsin election.`\
+https://nytimes.com/interactive/2020/11/03/us/elections/results-wisconsin-house-district-1.html?searchResultPosition=8
+
+**Louisiana Voter Surveys: How Different Groups Voted**\
+`How different groups voted`\
+https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-louisiana.html?searchResultPosition=9
+
+**Oklahoma Election Results: Second Congressional District**\
 `See full results and maps from the Oklahoma election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-oklahoma-house-district-3.html?searchResultPosition=4
-
-**New Hampshire Voter Surveys: How Different Groups Voted**\
-`How different groups voted`\
-https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-new-hampshire.html?searchResultPosition=5
-
-**South Carolina Election Results: Fourth Congressional District**\
-`See full results and maps from the South Carolina election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-south-carolina-house-district-4.html?searchResultPosition=6
-
-**Missouri Presidential Election Results**\
-`See full results and maps for the 2020 presidential election in Missouri.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-missouri-president.html?searchResultPosition=7
-
-**New York Presidential Election Results**\
-`See full results and maps for the 2020 presidential election in New York.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-new-york-president.html?searchResultPosition=8
-
-**Colorado Proposition 113 Election Results: Institute a National Popular Vote**\
-`See full results and maps from the Colorado election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-colorado-proposition-113-institute-a-national-popular-vote.html?searchResultPosition=9
-
-**Missouri Election Results: Fifth Congressional District**\
-`See full results and maps from the Missouri election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-missouri-house-district-5.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/11/03/us/elections/results-oklahoma-house-district-2.html?searchResultPosition=10
 
