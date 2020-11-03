@@ -1,14 +1,14 @@
+**2019: The Year in Visual Stories and Graphics**\
+`Selected Times graphics, visualizations and multimedia stories from the year.`\
+https://nytimes.com/interactive/2019/12/30/us/2019-year-in-graphics.html?searchResultPosition=1
+
 **Your Tuesday Briefing**\
 `At least two dead in a Vienna shooting.`\
-https://nytimes.com/2020/11/02/briefing/vienna-attack-us-election-covid-19.html?searchResultPosition=1
+https://nytimes.com/2020/11/02/briefing/vienna-attack-us-election-covid-19.html?searchResultPosition=2
 
 **‘That’s What They Tell Me’**\
 `Amanda Chung and Karl Ni break us up.`\
-https://nytimes.com/2020/11/02/crosswords/daily-puzzle-2020-11-03.html?searchResultPosition=2
-
-**2019: The Year in Visual Stories and Graphics**\
-`Selected Times graphics, visualizations and multimedia stories from the year.`\
-https://nytimes.com/interactive/2019/12/30/us/2019-year-in-graphics.html?searchResultPosition=3
+https://nytimes.com/2020/11/02/crosswords/daily-puzzle-2020-11-03.html?searchResultPosition=3
 
 **Fact-Checking Trump’s Claim That He ‘Prepaid Millions’ in Income Taxes**\
 `The president’s assertion, misleading at best, distracts from the reality that he has paid little or no income tax most years, largely because his business losses far outweighed his profits.`\
