@@ -19,7 +19,7 @@ https://nytimes.com/2020/11/03/parenting/boredom-kids-pandemic.html?searchResult
 https://nytimes.com/2020/11/03/us/politics/trump-coronavirus.html?searchResultPosition=5
 
 **Tracking Live Results on Election Night**\
-`Here’s a guide on finding the latest U.S. election results from The New York Times.`\
+`If you’re looking for a guide to finding the latest U.S. election results from The New York Times, this is it.`\
 https://nytimes.com/2020/11/03/us/elections/real-time-election-results.html?searchResultPosition=6
 
 **After 2016 Shock, Wisconsin Democrats Picked Themselves Off the Floor**\
