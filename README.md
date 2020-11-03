@@ -22,8 +22,8 @@ https://nytimes.com/2020/11/03/podcasts/the-daily/the-daily-election.html?search
 `We don’t have a crystal ball. But here’s what we know about timing for election night.`\
 https://nytimes.com/2020/11/03/us/politics/when-election-results.html?searchResultPosition=6
 
-**The Field: In Wisconsin, America’s Divisions Laid Bare**\
-`Disputes over how to combat the coronavirus in the rural north of the battleground state show some of the deep fissures in U.S. politics.`\
+**The Field: On Election Day, ‘Two Different Worlds’**\
+`Disputes over how to combat the coronavirus in the rural north of Wisconsin show some of the deep fissures in U.S. politics.`\
 https://nytimes.com/2020/11/03/podcasts/the-daily/wisconsin-election.html?searchResultPosition=7
 
 **‘To Be a Man,’ by Nicole Krauss: An Excerpt**\
