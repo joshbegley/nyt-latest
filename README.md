@@ -1,6 +1,6 @@
 **25 Years in Prison for Man Who Burned Down 3 Black Churches in Louisiana**\
 `Holden Matthews, 23, said he had set fire to the churches in order to raise his profile among ‘‘black metal” musicians, prosecutors said.`\
-https://nytimes.com/2020/11/03/us/holden-matthews-black-church-fires.html?searchResultPosition=1
+https://nytimes.com/2020/11/03/us/holden-matthews-black-church-fires-sentenced.html?searchResultPosition=1
 
 **Hurricane Eta Rips Toward Central America**\
 `Forecasters warned of “catastrophic” damage in the region, with winds up to 150 miles per hour and severe flooding expected as the Category 4 storm prepares to make landfall on the Caribbean coast of Nicaragua.`\
