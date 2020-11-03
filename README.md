@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/02/us/politics/joe-biden-2020-presidential-campaign.
 `Selected Times graphics, visualizations and multimedia stories from the year.`\
 https://nytimes.com/interactive/2019/12/30/us/2019-year-in-graphics.html?searchResultPosition=9
 
-**Your Tuesday Briefing**\
-`At least two dead in a Vienna shooting.`\
+**Vienna, U.S. Election, Covid-19: Your Tuesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/02/briefing/vienna-attack-us-election-covid-19.html?searchResultPosition=10
 
