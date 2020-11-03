@@ -30,11 +30,11 @@ https://nytimes.com/2020/11/02/us/politics/donald-trump-2020-presidential-campai
 `New York Times photographers have documented Joseph R. Biden Jr. throughout 2020 from his Democratic primary struggles to his socially distant campaign against President Trump. `\
 https://nytimes.com/2020/11/02/us/politics/joe-biden-2020-presidential-campaign.html?searchResultPosition=8
 
+**‘We are entering the most concerning and most deadly phase of this pandemic,’ Birx wrote in a White House memo.**\
+`By Sheryl Gay Stolberg and Maggie Haberman`\
+https://nytimes.com/2020/11/02/world/we-are-entering-the-most-concerning-and-most-deadly-phase-of-this-pandemic-birx-wrote-in-a-white-house-memo.html?searchResultPosition=9
+
 **2019: The Year in Visual Stories and Graphics**\
 `Selected Times graphics, visualizations and multimedia stories from the year.`\
-https://nytimes.com/interactive/2019/12/30/us/2019-year-in-graphics.html?searchResultPosition=9
-
-**Vienna, U.S. Election, Covid-19: Your Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2020/11/02/briefing/vienna-attack-us-election-covid-19.html?searchResultPosition=10
+https://nytimes.com/interactive/2019/12/30/us/2019-year-in-graphics.html?searchResultPosition=10
 
