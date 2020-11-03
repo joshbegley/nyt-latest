@@ -1,40 +1,40 @@
-**Need a Good Cry? In Mexico, a Town Picks the Best Person for the Job**\
-`Cemeteries were closed on the Day of the Dead, depriving Mexicans of mourning rituals. But one town went ahead with its annual weeping competition, giving everyone a chance to share in a cathartic cry.`\
-https://nytimes.com/2020/11/03/world/americas/mexico-day-of-dead-crying-contest.html?searchResultPosition=1
+**Virginia Election Results: Ninth Congressional District**\
+`See full results and maps from the Virginia election.`\
+https://nytimes.com/interactive/2020/11/03/us/elections/results-virginia-house-district-9.html?searchResultPosition=1
 
-**Colorado Proposition 116 Election Results: Reduce State Income Tax**\
-`See full results and maps from the Colorado election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-colorado-proposition-116-reduce-state-income-tax.html?searchResultPosition=2
-
-**Washington Election Results: Second Congressional District**\
-`See full results and maps from the Washington election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-washington-house-district-2.html?searchResultPosition=3
-
-**Wisconsin Election Results: First Congressional District**\
-`See full results and maps from the Wisconsin election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-wisconsin-house-district-1.html?searchResultPosition=4
-
-**Oklahoma Election Results: Second Congressional District**\
-`See full results and maps from the Oklahoma election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-oklahoma-house-district-2.html?searchResultPosition=5
+**Virginia Election Results: 11th Congressional District**\
+`See full results and maps from the Virginia election.`\
+https://nytimes.com/interactive/2020/11/03/us/elections/results-virginia-house-district-11.html?searchResultPosition=2
 
 **Maine Voter Surveys: How Different Groups Voted**\
 `How different groups voted`\
-https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-maine.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-maine.html?searchResultPosition=3
 
-**South Carolina Election Results: Second Congressional District**\
-`See full results and maps from the South Carolina election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-south-carolina-house-district-2.html?searchResultPosition=7
-
-**New York Election Results: Third Congressional District**\
-`See full results and maps from the New York election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-new-york-house-district-3.html?searchResultPosition=8
-
-**Washington Voter Surveys: How Different Groups Voted**\
+**Kentucky Voter Surveys: How Different Groups Voted**\
 `How different groups voted`\
-https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-washington.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-kentucky.html?searchResultPosition=4
 
-**Texas Election Results: 30th Congressional District**\
-`See full results and maps from the Texas election.`\
-https://nytimes.com/interactive/2020/11/03/us/elections/results-texas-house-district-30.html?searchResultPosition=10
+**Louisiana Election Results: Fifth Congressional District**\
+`See full results and maps from the Louisiana election.`\
+https://nytimes.com/interactive/2020/11/03/us/elections/results-louisiana-house-district-5.html?searchResultPosition=5
+
+**Pennsylvania Exit Polls: How Different Groups Voted**\
+`How different groups voted`\
+https://nytimes.com/interactive/2020/11/03/us/elections/exit-polls-pennsylvania.html?searchResultPosition=6
+
+**Tennessee Voter Surveys: How Different Groups Voted**\
+`How different groups voted`\
+https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-tennessee.html?searchResultPosition=7
+
+**Alaska Voter Surveys: How Different Groups Voted**\
+`How different groups voted`\
+https://nytimes.com/interactive/2020/11/03/us/elections/ap-polls-alaska.html?searchResultPosition=8
+
+**New York Election Results: 20th Congressional District**\
+`See full results and maps from the New York election.`\
+https://nytimes.com/interactive/2020/11/03/us/elections/results-new-york-house-district-20.html?searchResultPosition=9
+
+**Wyoming Election Results**\
+`See full results and maps from the Wyoming elections.`\
+https://nytimes.com/interactive/2020/11/03/us/elections/results-wyoming.html?searchResultPosition=10
 
