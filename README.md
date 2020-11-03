@@ -20,7 +20,7 @@ https://nytimes.com/2020/11/03/world/americas/hurricane-eta-live-updates.html?se
 
 **Georgia Is a Political Battleground. The Falcons Want More Voters.**\
 `Amid a player push for social justice initiatives in the N.F.L., members of the Atlanta Falcons are working with local high school students to support voter participation on Election Day.`\
-https://nytimes.com/2020/11/03/sports/georgia-battleground-state-atlanta-falcons-voting.html?searchResultPosition=6
+https://nytimes.com/2020/11/03/sports/georgia-voting-atlanta-falcons.html?searchResultPosition=6
 
 **President Trump’s 2020**\
 `New York Times photographers have documented President Trump throughout 2020 from his impeachment trial to his  campaign against Joseph R. Biden Jr. `\
