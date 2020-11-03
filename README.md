@@ -8,7 +8,7 @@ https://nytimes.com/2020/11/03/obituaries/bobby-ball-dead-coronavirus.html?searc
 
 **Vienna Reels From a Rare Terrorist Attack**\
 `The gunman, who killed four people and wounded 23, had been arrested for trying to join ISIS, raising questions about whether he should have been closely watched.`\
-https://nytimes.com/2020/11/03/world/europe/vienna-reels-from-a-rare-terrorist-attack.html?searchResultPosition=3
+https://nytimes.com/2020/11/03/world/europe/vienna-attack-shooter.html?searchResultPosition=3
 
 **As Counting Begins, a Flood of Mail Ballots Complicates Vote Tallies**\
 `Battleground states will use quite different methods to count the record number of mail-in ballots. But they may be the way of the future.`\
