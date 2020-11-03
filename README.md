@@ -36,5 +36,5 @@ https://nytimes.com/2020/11/03/arts/music/kylie-minogue-favorites.html?searchRes
 
 **How to Follow the Election Results**\
 `Here’s a guide to The Times’s election night coverage, no matter when, how or how often you want to consume it.`\
-https://nytimes.com/2020/11/03/us/politics/watch-stream-election-results-trump-biden.html?searchResultPosition=10
+https://nytimes.com/2020/11/03/us/politics/live-stream-election-watch.html?searchResultPosition=10
 
