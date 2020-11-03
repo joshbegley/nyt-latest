@@ -12,7 +12,7 @@ https://nytimes.com/2020/11/03/parenting/kids-anxiety-stress-coping-pandemic.htm
 
 **In ‘Knife’s Edge’ Pennsylvania, Trump’s Fortunes Rely on His Rural Base**\
 `If President Trump is able to outperform the polls in the battleground state of Pennsylvania, it will be because he re-energized white, blue-collar voters in places like Butler County.`\
-https://nytimes.com/2020/11/03/us/politics/in-knifes-edge-pennsylvania-trumps-fortunes-rely-on-his-rural-base.html?searchResultPosition=4
+https://nytimes.com/2020/11/03/us/politics/pennsylvania-results-trump.html?searchResultPosition=4
 
 **The Pandemic’s Future — and Ours**\
 `“Apollo’s Arrow,” by Nicholas A. Christakis, looks at the coronavirus from several angles and suggests some possibilities in the months and years to come.`\
