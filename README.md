@@ -1,40 +1,40 @@
+**Corrections: Nov. 3, 2020**\
+`Corrections that appeared in print on Tuesday, Nov. 3, 2020.`\
+https://nytimes.com/2020/11/02/pageoneplus/corrections-nov-3-2020.html?searchResultPosition=1
+
 **Finally, a Chance for Women to Defeat Trump**\
 `How four traumatic years turned Georgia into a swing state.`\
-https://nytimes.com/2020/11/02/opinion/women-voters-georgia.html?searchResultPosition=1
+https://nytimes.com/2020/11/02/opinion/women-voters-georgia.html?searchResultPosition=2
 
 **Some Regions Still Experience Slow Delivery of Mail Ballots**\
 `In the final days of voting, the Postal Service is struggling to ensure timely delivery of ballots in parts of key battleground states like Pennsylvania and Michigan.`\
-https://nytimes.com/2020/11/02/us/politics/mail-ballot-delivery-postal-service.html?searchResultPosition=2
+https://nytimes.com/2020/11/02/us/politics/mail-ballot-delivery-postal-service.html?searchResultPosition=3
 
 **Undeterred by Pandemic, Americans Prepare to Render Verdict on Trump**\
 `President Trump and Joseph R. Biden Jr. barnstormed through battleground states, concluding an extraordinary campaign conducted amid a health crisis and deep economic anxiety.`\
-https://nytimes.com/2020/11/02/us/politics/americans-prepare-to-render-verdict-on-trump.html?searchResultPosition=3
+https://nytimes.com/2020/11/02/us/politics/americans-prepare-to-render-verdict-on-trump.html?searchResultPosition=4
 
 **Biden Calls Out Trump’s Record With Black Americans**\
 `At a drive-in rally in Pittsburgh, Joseph R. Biden Jr., the Democratic presidential nominee, said President Trump had done much to harm African-Americans.`\
-https://nytimes.com/video/us/elections/100000007431075/biden-trump-black-voters-pittsburgh.html?searchResultPosition=4
+https://nytimes.com/video/us/elections/100000007431075/biden-trump-black-voters-pittsburgh.html?searchResultPosition=5
 
 **Dozens Killed in Ethiopia in Schoolyard Massacre**\
 `Rights groups said at least 54 people were killed in Sunday’s attack, which underscored how relations between Ethiopia’s ethnic groups are fraying.`\
-https://nytimes.com/2020/11/02/world/africa/ethiopia-massacre-amhara-oromo-attack.html?searchResultPosition=5
+https://nytimes.com/2020/11/02/world/africa/ethiopia-massacre-amhara-oromo-attack.html?searchResultPosition=6
 
 **What Are You Voting For?**\
 `Here’s what our readers have to say.`\
-https://nytimes.com/interactive/2020/11/02/opinion/2020-election-voter-issues.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/11/02/opinion/2020-election-voter-issues.html?searchResultPosition=7
 
 **Georgia Court Allows Prosecution of Ex-Deputies in Black Man’s Death**\
 `The State Supreme Court unanimously rejected a lower court’s decision to grant immunity for three former deputies in the death of Eurie Lee Martin, who was repeatedly tased.`\
-https://nytimes.com/2020/11/02/us/02xp-georgia-sheriffs-eurie-martin.html?searchResultPosition=7
+https://nytimes.com/2020/11/02/us/02xp-georgia-sheriffs-eurie-martin.html?searchResultPosition=8
 
 **Hundreds Die at Sea Off Senegal’s Coast on a Perilous Route to Europe**\
 `Those attempting to migrate from West Africa to Europe are once again taking a route so dangerous it’s known as “Barcelona or die.”`\
-https://nytimes.com/2020/11/02/world/africa/Senegal-migrants-drown.html?searchResultPosition=8
+https://nytimes.com/2020/11/02/world/africa/Senegal-migrants-drown.html?searchResultPosition=9
 
 **In the Trump Campaign, Government Agencies and Officials Have Often Provided Help**\
 `The sustained effort by President Trump, members of his cabinet and other officials to use the powers of incumbency has gone far beyond anything done by his predecessors.`\
-https://nytimes.com/2020/11/02/us/politics/trump-reelection-government-power.html?searchResultPosition=9
-
-**Trump Lives in a Hall of Mirrors and He’s Got Plenty of Company**\
-`It will take a long time to drive conspiracy-mongering back to the fringes of American politics.`\
-https://nytimes.com/2020/11/02/opinion/trump-qanon-conspiracy-theories.html?searchResultPosition=10
+https://nytimes.com/2020/11/02/us/politics/trump-reelection-government-power.html?searchResultPosition=10
 
