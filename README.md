@@ -8,7 +8,7 @@ https://nytimes.com/2020/11/03/arts/hrishikesh-hirway-song-exploder.html?searchR
 
 **In the Messiest Contested Election, One Man Saved the System From Itself**\
 `Samuel Randall went against his own party’s wishes to keep the U.S. political system from falling apart.`\
-https://nytimes.com/2020/11/03/dining/in-the-messiest-contested-election-one-man-saved-the-system-from-itself.html?searchResultPosition=3
+https://nytimes.com/2020/11/03/us/samuel-randall-1876-election.html?searchResultPosition=3
 
 **Photos From Election Day 2020**\
 `More than 50 photographers from The New York Times are capturing the final day of voting across America.`\
