@@ -16,11 +16,11 @@ https://nytimes.com/2020/11/02/opinion/women-voters-georgia.html?searchResultPos
 
 **Some Regions Still Experience Slow Delivery of Mail Ballots**\
 `In the final days of voting, the Postal Service is struggling to ensure timely delivery of ballots in parts of key battleground states like Pennsylvania and Michigan.`\
-https://nytimes.com/2020/11/02/us/politics/mail-ballot-delivery-postal-service.html?searchResultPosition=5
+https://nytimes.com/2020/11/02/us/politics/mail-ballot-usps.html?searchResultPosition=5
 
 **Undeterred by Pandemic, Americans Prepare to Render Verdict on Trump**\
 `President Trump and Joseph R. Biden Jr. barnstormed through battleground states, concluding an extraordinary campaign conducted amid a health crisis and deep economic anxiety.`\
-https://nytimes.com/2020/11/02/us/politics/americans-prepare-to-render-verdict-on-trump.html?searchResultPosition=6
+https://nytimes.com/2020/11/02/us/politics/trump-covid.html?searchResultPosition=6
 
 **Biden Calls Out Trump’s Record With Black Americans**\
 `At a drive-in rally in Pittsburgh, Joseph R. Biden Jr., the Democratic presidential nominee, said President Trump had done much to harm African-Americans.`\
