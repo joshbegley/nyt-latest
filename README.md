@@ -11,7 +11,7 @@ https://nytimes.com/2020/11/03/nyregion/ny-voting-election-day.html?searchResult
 https://nytimes.com/2020/11/03/us/politics/the-trump-campaign-has-set-up-two-war-rooms-in-the-white-house-complex.html?searchResultPosition=3
 
 **Wisconsin Football Cancels Over Virus Cases. Again.**\
-`The 10th-ranked Badgers will not play Purdue on Saturday as they continue to struggle with coronavirus containment, pushing them closer to ineligibility for the Big Ten title.`\
+`The 10th-ranked Badgers will not play Purdue on Saturday as they continue to struggle with coronavirus containment and move closer to ineligibility for the Big Ten title.`\
 https://nytimes.com/2020/11/03/sports/ncaafootball/wisconsin-purdue-canceled-coronavirus.html?searchResultPosition=4
 
 **‘I feel very good,’ President Trump tells campaign workers during an Election Day visit to a Republican office.**\
