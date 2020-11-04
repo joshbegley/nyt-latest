@@ -23,7 +23,7 @@ https://nytimes.com/2020/11/04/theater/the-bakers-wife-patti-lupone-stephen-schw
 https://nytimes.com/2020/11/04/books/review/rosanne-parry-a-whale-of-the-wild-philippe-costeau-austin-aslan-the-endangereds.html?searchResultPosition=6
 
 **Gap widely mocked for tweet depicting half-blue, half-red sweatshirt.**\
-`By Sapna Maheshwari`\
+`Gap, which has since deleted the tweet, said the sweatshirt was not actually a product for sale.`\
 https://nytimes.com/2020/11/04/business/gap-red-blue-shirt.html?searchResultPosition=7
 
 **When a President Sabotages His Own Country**\
