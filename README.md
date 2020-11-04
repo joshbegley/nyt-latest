@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/04/opinion/vote-count-election-2020.html?searchResultPosition=1
 
 **Some Suburban Strongholds Swing Back to G.O.P. in N.Y. and Across U.S.**\
-`Republicans are ahead in key congressional races in New York State, with mail-in ballots yet to be counted.`\
+`Republicans are ahead in key congressional races in New York State, mirroring a national trend of apparent success in winning back swing districts.`\
 https://nytimes.com/2020/11/04/nyregion/ny-house-election-gop.html?searchResultPosition=2
 
 **No, Sharpies Aren’t Invalidating Ballots in Arizona**\
