@@ -14,8 +14,8 @@ https://nytimes.com/2020/11/04/arts/television/tv-networks-election.html?searchR
 `Democrats failed to flip chambers in Texas, North Carolina and Iowa. They are set to take control of Arizona’s House and Senate, while Republicans flipped New Hampshire’s legislature.`\
 https://nytimes.com/2020/11/04/us/election-state-house-legislature-governors.html?searchResultPosition=4
 
-**Fear United Americans, but Couldn’t Keep Them From the Polls**\
-`On an Election Day in the midst of a devastating pandemic and a clash of competing visions of America, anxiety was the great uniter, and motivator.`\
+**E Pluribus Unnerved**\
+`On an Election Day in the midst of a devastating pandemic and a clash of competing visions of America, fear was the great uniter, and motivator.`\
 https://nytimes.com/2020/11/04/us/presidential-election-trump-biden.html?searchResultPosition=5
 
 **Review: ‘Crave’ Is a Timely Ticket for a World on Fire**\
