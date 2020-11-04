@@ -1,4 +1,4 @@
-**Helen Ginsburg, Who Saw a Living Wage as a Right, Dies at 91**\
+**Helen Lachs Ginsburg, Who Saw a Living Wage as a Right, Dies at 91**\
 `A top authority on full employment, she said a job for all may seem unrealistic, but at one time so did the right of women to vote.`\
 https://nytimes.com/2020/11/04/business/economy/helen-ginsburg-d.html?searchResultPosition=1
 
