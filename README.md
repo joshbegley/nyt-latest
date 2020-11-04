@@ -15,7 +15,7 @@ https://nytimes.com/2020/11/04/us/politics/election-results-day-2.html?searchRes
 https://nytimes.com/2020/11/04/us/politics/how-biden-and-trump-can-win.html?searchResultPosition=4
 
 **TV Journalist Is Arrested as Assaults on Press Freedom Rise in India**\
-`The conservative anchor Arnab Goswami was detained on charges of abetting a suicide in Mumbai, where a progressive political party is in power.`\
+`The conservative anchor Arnab Goswami was detained on charges of abetting a suicide in Mumbai, where an opposition party is in power.`\
 https://nytimes.com/2020/11/04/world/asia/arnab-goswami-arrest-india.html?searchResultPosition=5
 
 **How New York Voted**\
