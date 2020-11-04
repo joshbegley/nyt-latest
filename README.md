@@ -10,7 +10,7 @@ https://nytimes.com/video/us/elections/100000007433888/dodger-stadium-election-d
 `By Josh Holder and Alexander Burns`\
 https://nytimes.com/2020/11/03/us/elections/270-electoral-college.html?searchResultPosition=3
 
-**Mitch McConnell Wins 7th Term as Republicans Battle to Keep Senate Control**\
+**Mitch McConnell Wins 7th Term as Republicans Battle to Keep Senate**\
 `The top Senate Republican, a prime target of national Democrats, prevailed over Amy McGrath, a well-financed military veteran, as he fought to keep his perch as majority leader.`\
 https://nytimes.com/2020/11/03/us/politics/kentucky-mcconnell.html?searchResultPosition=4
 
