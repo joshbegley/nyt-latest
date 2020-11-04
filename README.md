@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/04/us/elections/iowa-randy-feenstra.html?searchResultPosition=1
 
 **Mississippi voters approve flag with magnolia instead of Confederate symbol.**\
-`By Rick Rojas`\
+`And about 70 percent of voters approved the new flag, which had to include the words “In God We Trust.”`\
 https://nytimes.com/2020/11/03/us/politics/mississippi-voters-approve-flag-with-magnolia-instead-of-confederate-symbol.html?searchResultPosition=2
 
 **Houston-Area Sheriff Fights Off Democratic Challenge in Longtime Republican Stronghold**\
