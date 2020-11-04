@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/04/health/covid-mink-mutation.html?searchResultPosit
 https://nytimes.com/2020/11/04/parenting/kids-winter-play-outside.html?searchResultPosition=2
 
 **Social Media Companies Survived Election Day. More Tests Loom.**\
-`Twitter, Facebook and YouTube remain on alert as the lack of a clear election result kept the online misinformation flowing.`\
+`Twitter, Facebook and YouTube remained on alert as the lack of a clear election result kept the online misinformation flowing.`\
 https://nytimes.com/2020/11/04/technology/social-media-companies-election-misinformation.html?searchResultPosition=3
 
 **Twitter Clamped Down on Trump, but Army of Accounts Spread His Message**\
