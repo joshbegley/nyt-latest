@@ -1,40 +1,40 @@
-**TV Anchors and Pundits Criticize Trump’s Baseless Claims of Fraud**\
-`On Fox News, the anchor Chris Wallace said, “This is an extremely flammable situation, and the president just threw a match on it.”`\
-https://nytimes.com/2020/11/04/business/media/trump-tv-anchors-criticism.html?searchResultPosition=1
+**Haworth, N.J.: A ‘True Hometown’ 20 Miles From Midtown Manhattan**\
+`Residents praise the two-square-mile Bergen County borough for its slow pace and friendliness: ‘It’s the cutest little place.’`\
+https://nytimes.com/2020/11/04/realestate/haworth-new-jersey.html?searchResultPosition=1
 
-**Fox News Made a Big Call in Arizona, Buoying Biden and Angering Trump**\
-`The data cruncher Arnon Mishkin made projections for key states on a night when other news networks played it safe.`\
-https://nytimes.com/2020/11/04/business/media/fox-news-arizona-trump.html?searchResultPosition=2
+**From Stage to Screen: 5 Shows That Got It Right (And 5 That Didn’t)**\
+`Our theater experts provide a guide to some of the successful (and failed) cinematic adaptations of plays and musicals — all for your streaming pleasure.`\
+https://nytimes.com/2020/11/04/movies/theater-movie-adaptations.html?searchResultPosition=2
 
-**‘Let’s Get to Work,’ Mark Kelly Says**\
-`Mr. Kelly, an astronaut and retired Navy, captain defeated Senator Martha McSally, Republican of Arizona, in a special election.`\
-https://nytimes.com/video/us/elections/100000007434960/mark-kelly-arizona-senate.html?searchResultPosition=3
+**Living In ... Haworth, N.J.**\
+`Residents praise the two-square-mile Bergen County borough for its slow pace and friendliness: ‘It’s the cutest little place.’`\
+https://nytimes.com/slideshow/2020/11/04/realestate/living-in-haworth-nj.html?searchResultPosition=3
 
-**Trevor Noah and Stephen Colbert Bring Levity to Election Specials**\
-`The late night hosts weighed in on race results with special guests on their one-hour election specials.`\
-https://nytimes.com/2020/11/04/arts/television/trevor-noah-stephen-colbert-presidential-election-specials.html?searchResultPosition=4
+**‘Hamilton’ Was Just the Beginning. Hollywood Loves Broadway, Again.**\
+`Theaters may be closed, but streamers and studios are flocking to the stage to meet the insatiable demand for content.`\
+https://nytimes.com/2020/11/04/movies/broadway-movie-adaptations-prom.html?searchResultPosition=4
 
-**Will Biden’s Focus on the ‘Blue Wall’ States Win Him the Election?**\
-`From the beginning of his campaign until the end, Joseph R. Biden Jr. concentrated on winning back Pennsylvania, Michigan and Wisconsin. It is not clear that he did.`\
-https://nytimes.com/2020/11/04/us/politics/biden-michigan-pennsylvania-wisconsin.html?searchResultPosition=5
+**Covid Is the Big Story on Campus. College Reporters Have the Scoop.**\
+`University outbreaks are significant contributors to the pandemic. And the campus paper might be the only one left to cover them.`\
+https://nytimes.com/2020/11/04/us/college-journalists-covid.html?searchResultPosition=5
 
-**A Riveted World Waits to See What’s Next in America**\
-`As results trickled in, they were analyzed far and wide with the sort of blanket news coverage most often reserved for elections closer to home.`\
-https://nytimes.com/2020/11/04/world/global-reaction-us-election.html?searchResultPosition=6
+**Forget Long Weekends: During the Pandemic It’s All About Short Weeks**\
+`Trips that might have been two or three nights last year now feel too brief — not worth all the hoops, not quite enough time away.`\
+https://nytimes.com/2020/11/04/travel/virus-vacation-trends-longer-weekends.html?searchResultPosition=6
 
-**Uber and Lyft Drivers in California Will Remain Independent**\
-`The victory of Proposition 22, the most expensive initiative in the state’s history, could help gig companies remake labor laws throughout the country.`\
-https://nytimes.com/2020/11/04/technology/california-uber-lyft-prop-22.html?searchResultPosition=7
+**A New Front Opens in the Russia-Ukraine Conflict: Borscht**\
+`“A lot of things were taken away from Ukraine, but they will not take our borscht,” said a chef who is leading a drive to recognize the soup as a Ukrainian cultural heritage.`\
+https://nytimes.com/2020/11/04/world/europe/russia-ukraine-borscht.html?searchResultPosition=7
 
-**Ethiopia’s Leader Orders Military Action in a Northern Region**\
-`“The last red line has been crossed,” said Prime Minister Abiy Ahmed, blaming the provincial government in Tigray for an attack on an army base.`\
-https://nytimes.com/2020/11/04/world/middleeast/ethiopia-abiy-tigray.html?searchResultPosition=8
+**New Book Returns to an Irresistible Theme: the Harvard Murder**\
+`In “We Keep the Dead Close,” Becky Cooper explores a killing she heard rumors about when she was a student, at a school where such crimes have become a rarefied literary genre.`\
+https://nytimes.com/2020/11/04/books/becky-cooper-we-keep-the-dead-close-harvard-murder.html?searchResultPosition=8
 
-**Tony Gonzales Defeats Gina Ortiz Jones, Keeping G.O.P. Hold on Texas House Seat**\
-`Tony Gonzales, a former Navy cryptologist, beat back a second attempt by Gina Ortiz Jones to flip the last remaining Republican district on the southern border.`\
-https://nytimes.com/2020/11/04/us/politics/texas-tony-gonzales.html?searchResultPosition=9
+**How Long Will the Counting Drag On in New York?**\
+`While the presidential race in the state was called on election night, more heavily contested races may take a while longer.`\
+https://nytimes.com/2020/11/04/nyregion/ny-absentee-ballot-count.html?searchResultPosition=9
 
-**Stephanie Bice Ousts Kendra Horn, Giving Republicans a Key House Victory**\
-`The Republican state senator toppled the lone Democrat representing Oklahoma in Congress, offering her party a pickup as it sought to build its numbers in the House.`\
-https://nytimes.com/2020/11/04/us/politics/oklahoma-stephanie-bice.html?searchResultPosition=10
+**I Love My Twin. How Did We End Up So Far Apart?**\
+`The Democrats kept me but lost him.`\
+https://nytimes.com/2020/11/04/opinion/2020-election-trump-family.html?searchResultPosition=10
 
