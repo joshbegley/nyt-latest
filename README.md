@@ -10,9 +10,9 @@ https://nytimes.com/2020/11/03/us/nevada-police-shooting.html?searchResultPositi
 `There is much to celebrate about our democracy, from record voter turnout to creative volunteerism.`\
 https://nytimes.com/2020/11/03/opinion/volunteers-election-2020.html?searchResultPosition=3
 
-**Polls are closing in Georgia, which faces competitive House and Senate races.**\
+**Polls are closed in Georgia, which faces competitive House and Senate races.**\
 `By Sydney Ember`\
-https://nytimes.com/2020/11/03/us/politics/polls-are-closing-in-georgia-which-faces-competitive-house-and-senate-races.html?searchResultPosition=4
+https://nytimes.com/2020/11/03/us/politics/polls-are-closed-in-georgia-which-faces-competitive-house-and-senate-races.html?searchResultPosition=4
 
 **Polls have begun to close in much of Florida.**\
 `By Patricia Mazzei`\
