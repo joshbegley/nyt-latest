@@ -28,7 +28,7 @@ https://nytimes.com/2020/11/03/crosswords/daily-puzzle-2020-11-04.html?searchRes
 
 **Marjorie Taylor Greene’s win in Georgia brings QAnon into Congress and the G.O.P.**\
 `By Matthew Rosenberg`\
-https://nytimes.com/2020/11/03/us/politics/marjorie-taylor-greenes-win-in-georgia-brings-qanon-into-congress-and-the-gop.html?searchResultPosition=8
+https://nytimes.com/2020/11/03/us/politics/marjorie-taylor-greene-qanon.html?searchResultPosition=8
 
 **Recreational Marijuana Legalized by New Jersey Voters**\
 `Voters approved a constitutional amendment to legalize cannabis in New Jersey, putting pressure on neighboring states like New York.`\
