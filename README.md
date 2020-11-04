@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/03/us/elections/270-electoral-college.html?searchRes
 `The top Senate Republican, a prime target of national Democrats, prevailed over Amy McGrath, a well-financed military veteran, as he fought to keep his perch as majority leader.`\
 https://nytimes.com/2020/11/03/us/politics/kentucky-mcconnell.html?searchResultPosition=9
 
-**What Are Your Reactions to the Results of Election 2020?**\
-`How do you feel about what happened in the national, state and local races? Why? What do you think the results mean for our nation?`\
-https://nytimes.com/2020/11/03/learning/presidential-election-student-reactions.html?searchResultPosition=10
+**Mitch McConnell wins re-election as Republicans fight to maintain their majority.**\
+`By Carl Hulse and Catie Edmondson`\
+https://nytimes.com/2020/11/03/us/elections/mitch-mcconnell-wins-re-election-as-republicans-fight-to-maintain-their-majority.html?searchResultPosition=10
 
