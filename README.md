@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/03/us/politics/kentucky-mcconnell.html?searchResultP
 
 **What Are Your Reactions to the Results of Election 2020?**\
 `How do you feel about what happened in the national, state and local races? Why? What do you think the results mean for our nation?`\
-https://nytimes.com/2020/11/03/learning/what-are-your-reactions-to-the-results-of-election-2020.html?searchResultPosition=2
+https://nytimes.com/2020/11/03/learning/usa-presidential-election.html?searchResultPosition=2
 
 **At the End of a Chaotic Campaign, an Election Day That Defied the Worst Fears**\
 `There were glitches and partisan skirmishes as voters went to the polls, but for the most part the system held up.`\
