@@ -1,4 +1,4 @@
-**A Presidency in the Balance**\
+**A Nation on Edge, a Presidency in the Balance**\
 `“Perhaps the most devastating reality was that so many Americans really love President Trump,” a reader writes.`\
 https://nytimes.com/2020/11/04/opinion/letters/trump-biden-election.html?searchResultPosition=1
 
