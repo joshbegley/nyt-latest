@@ -30,11 +30,11 @@ https://nytimes.com/2020/11/03/us/politics/south-carolina-graham.html?searchResu
 `Jack Murtagh makes his New York Times Crossword debut.`\
 https://nytimes.com/2020/11/03/crosswords/daily-puzzle-2020-11-04.html?searchResultPosition=8
 
-**Marjorie Taylor Greene’s win in Georgia brings QAnon into Congress and the G.O.P.**\
-`By Matthew Rosenberg`\
-https://nytimes.com/2020/11/03/us/politics/marjorie-taylor-greene-qanon.html?searchResultPosition=9
-
 **Recreational Marijuana Legalized by New Jersey Voters**\
 `Voters approved a constitutional amendment to legalize cannabis in New Jersey, putting pressure on neighboring states like New York.`\
-https://nytimes.com/2020/11/03/nyregion/nj-marijuana-legalization.html?searchResultPosition=10
+https://nytimes.com/2020/11/03/nyregion/nj-marijuana-legalization.html?searchResultPosition=9
+
+**Trump’s path is much narrower if he loses Ohio. Early tallies in the state give Biden reason to hope.**\
+`By Sydney Ember`\
+https://nytimes.com/2020/11/03/us/politics/trump-ohio-biden.html?searchResultPosition=10
 
