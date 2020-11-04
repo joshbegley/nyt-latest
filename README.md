@@ -6,8 +6,8 @@ https://nytimes.com/2020/11/04/us/politics/pennsylvania-results-trump-biden.html
 `The lone Electoral College vote awarded by Nebraska’s Second Congressional District has gone to Joe Biden. It could be the vote that gets him to 270.`\
 https://nytimes.com/2020/11/04/us/biden-nebraska-electoral-college.html?searchResultPosition=2
 
-**Arizona Call for Biden Flipped the Mood at Trump Headquarters**\
-`The Fox News decision left the president fuming, and his team complained to the network. Then he began casting aspersions on other states’ vote counts.`\
+**Fox’s Arizona Call for Biden Flipped the Mood at Trump Headquarters**\
+`The Fox News decision left the president fuming, and his team complaining. Then he began casting aspersions on other states’ vote counts.`\
 https://nytimes.com/2020/11/04/us/politics/trump-fox-news-arizona.html?searchResultPosition=3
 
 **Exit Polls Point to the Power of White Patriarchy**\
