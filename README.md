@@ -12,7 +12,7 @@ https://nytimes.com/slideshow/2020/11/04/realestate/what-you-get-for-1-25-millio
 
 **What’s Left in the Seven States That Will Decide the Race**\
 `Though they’re still too close to call, there are some indications of which way things might go.`\
-https://nytimes.com/2020/11/04/upshot/election-remaining-vote-key-states.html?searchResultPosition=4
+https://nytimes.com/2020/11/04/upshot/battleground-states-votes.html?searchResultPosition=4
 
 **Take a Controlled Breath Today**\
 `Feeling on edge? Controlled breathing has been shown to reduce stress, increase alertness and boost the immune system.`\
@@ -28,7 +28,7 @@ https://nytimes.com/2020/11/04/learning/lesson-of-the-day-as-america-awaits-a-wi
 
 **What We Know About the Election (Right Now)**\
 `There are three things we can say with some certainty.`\
-https://nytimes.com/2020/11/04/business/dealbook/election-day-takeaways.html?searchResultPosition=8
+https://nytimes.com/2020/11/04/business/election-day-takeaways.html?searchResultPosition=8
 
 **A Biden-Trump Stalemate, for Now**\
 `The race comes down to a few critical battlegrounds: This is your morning tip sheet.`\
