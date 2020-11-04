@@ -22,9 +22,9 @@ https://nytimes.com/2020/11/04/dining/new-beef-stew.html?searchResultPosition=5
 `Sotheby’s International Realty`\
 https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007435501/sothebys-international-realty.html?searchResultPosition=6
 
-**Here is the state of play in the undecided states that could determine the presidency.**\
+**Here is the state of play in seven states that could determine the presidency.**\
 `Here is the state of play in the undecided states that could determine the presidency.`\
-https://nytimes.com/2020/11/04/us/politics/here-is-the-state-of-play-in-the-undecided-states-that-could-determine-the-presidency.html?searchResultPosition=7
+https://nytimes.com/2020/11/04/us/politics/here-is-the-state-of-play-in-seven-states-that-could-determine-the-presidency.html?searchResultPosition=7
 
 **Brian Eno’s Music for Anxious Times**\
 `As he releases a collection of work that has appeared in films, the English musician talked about making functional art, his most ubiquitous composition and why he dislikes wearing headphones on the street.`\
