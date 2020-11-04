@@ -1,6 +1,6 @@
 **A Biden-Trump Stalemate, for Now**\
 `The race comes down to a few critical battlegrounds: This is your morning tip sheet.`\
-https://nytimes.com/2020/11/04/us/politics/biden-trump-2020.html?searchResultPosition=1
+https://nytimes.com/2020/11/04/us/politics/who-won-the-election.html?searchResultPosition=1
 
 **What We Know About the Vote in Wisconsin, Michigan and Pennsylvania**\
 `President Trump carried all three of the so-called “Blue Wall’’ states in 2016 and they are pivotal battlegrounds again this year. Here’s where things stand.`\
