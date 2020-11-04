@@ -10,7 +10,7 @@ https://nytimes.com/2020/11/04/podcasts/the-daily/election-2020-trump-biden.html
 `It was a long night. Here’s your guide to Day 2.`\
 https://nytimes.com/2020/11/04/us/politics/election-results-day-2.html?searchResultPosition=3
 
-**How Joe Biden and Donald Trump Can Each Still Win the Presidency**\
+**Can Biden Still Win? Yes. Here Are the Paths for Him and Trump**\
 `The president was able to close off several avenues to an early Biden win, but the former vice president still has a number of options.`\
 https://nytimes.com/2020/11/04/us/politics/how-biden-and-trump-can-win.html?searchResultPosition=4
 
