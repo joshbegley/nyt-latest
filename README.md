@@ -8,7 +8,7 @@ https://nytimes.com/2020/11/04/us/politics/the-view-in-wisconsin-biden-holds-a-s
 
 **For global betting markets, the U.S. presidential race has been a wild ride.**\
 `By Victor Mather`\
-https://nytimes.com/2020/11/04/us/politics/for-global-betting-markets-the-us-presidential-race-has-been-a-wild-ride.html?searchResultPosition=3
+https://nytimes.com/2020/11/04/us/politics/betting-trump-biden.html?searchResultPosition=3
 
 **There Was a Loser Last Night. It Was America.**\
 `Trump’s ugly speech told us exactly where we’re going — and it’s nowhere good.`\
