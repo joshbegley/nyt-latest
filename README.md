@@ -10,7 +10,7 @@ https://nytimes.com/video/us/elections/100000007434960/mark-kelly-arizona-senate
 `The late night hosts weighed in on race results with special guests on their one-hour election specials.`\
 https://nytimes.com/2020/11/04/arts/television/trevor-noah-stephen-colbert-presidential-election-specials.html?searchResultPosition=3
 
-**Despite Temptations, Biden Stayed Focused on the ‘Blue Wall’**\
+**Will Biden’s Focus on the ‘Blue Wall’ States Win Him the Election?**\
 `From the beginning of his campaign until the end, Joseph R. Biden Jr. concentrated on winning back Pennsylvania, Michigan and Wisconsin. It is not clear that he did.`\
 https://nytimes.com/2020/11/04/us/politics/biden-michigan-pennsylvania-wisconsin.html?searchResultPosition=4
 
