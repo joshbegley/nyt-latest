@@ -1,40 +1,40 @@
+**House Hunting in Panama: Tucked Into the Mountains for $580,000**\
+`In western Panama, the popular town of Boquete is fending off a pandemic slowdown by luring city-dwellers and retirees with its remote beauty and pleasant climate.`\
+https://nytimes.com/2020/11/04/realestate/house-hunting-in-panama-tucked-into-the-mountains-for-580000.html?searchResultPosition=1
+
+**Serene and Comfortable in Western Panama**\
+`This three-bedroom house in the town Boquete, with a lush garden and mountain views, is on the market for $580,000.`\
+https://nytimes.com/slideshow/2020/11/04/realestate/serene-and-comfortable-in-western-panama.html?searchResultPosition=2
+
 **Lauren Boebert, Hard-Right Gun Activist, Wins in Colorado House District**\
 `The Republican firebrand kept the seat in her party’s hands after toppling the incumbent in a primary, accusing him of being insufficiently supportive of President Trump.`\
-https://nytimes.com/2020/11/04/us/politics/colorado-election-Lauren-Boebert.html?searchResultPosition=1
+https://nytimes.com/2020/11/04/us/politics/colorado-election-Lauren-Boebert.html?searchResultPosition=3
 
 **As Italy’s Eateries Closed Early, a Small Neighbor Became a Dinner Hot Spot**\
 `Local officials fear that diners traveling to San Marino, a small independent nation, will spread the coronavirus. A new curfew in Italy may slow the mealtime trend.`\
-https://nytimes.com/2020/11/04/world/europe/italy-san-marino-covid-restaurants.html?searchResultPosition=2
+https://nytimes.com/2020/11/04/world/europe/italy-san-marino-covid-restaurants.html?searchResultPosition=4
 
 **Trump, Biden and Dressing for No Victory**\
 `The battle for the presidency is still going on, and that includes the pageantry.`\
-https://nytimes.com/2020/11/04/fashion/trump-biden-election-night-image.html?searchResultPosition=3
+https://nytimes.com/2020/11/04/fashion/trump-biden-election-night-image.html?searchResultPosition=5
 
 **$1.25 Million Homes in Maine, Texas and New York**\
 `A waterfront retreat on 76 acres in mid-coast Maine, a custom-designed home in Houston and an 1871 house by McKim Mead & White in Piermont.`\
-https://nytimes.com/2020/11/04/realestate/home-prices-me-tx-ny.html?searchResultPosition=4
+https://nytimes.com/2020/11/04/realestate/home-prices-me-tx-ny.html?searchResultPosition=6
 
 **What You Get for $1.25 Million**\
 `A waterfront retreat on 76 acres in mid-coast Maine; a custom-designed home in Houston; and an 1871 house by McKim Mead & White in Piermont, N.Y.`\
-https://nytimes.com/slideshow/2020/11/04/realestate/what-you-get-for-1-25-million.html?searchResultPosition=5
+https://nytimes.com/slideshow/2020/11/04/realestate/what-you-get-for-1-25-million.html?searchResultPosition=7
 
 **What’s Left in the Seven States That Will Decide the Race**\
 `Though they’re still too close to call, there are some indications of which way things might go.`\
-https://nytimes.com/2020/11/04/upshot/battleground-states-votes.html?searchResultPosition=6
+https://nytimes.com/2020/11/04/upshot/election-states-too-close-to-call.html?searchResultPosition=8
 
 **Take a Controlled Breath Today**\
 `Feeling on edge? Controlled breathing has been shown to reduce stress, increase alertness and boost the immune system.`\
-https://nytimes.com/interactive/2020/11/04/well/mind/election-stress-breathing-exercises.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/11/04/well/mind/election-stress-breathing-exercises.html?searchResultPosition=9
 
 **What We Know About Election Results in California**\
 `Wednesday: Joe Biden definitely won California, as expected. Here’s what else happened on Election Day.`\
-https://nytimes.com/2020/11/04/us/california-election-day-voting.html?searchResultPosition=8
-
-**Lesson of the Day: ‘As America Awaits a Winner, Trump Falsely Claims He Prevailed’**\
-`In this lesson, students will learn about the state of the presidential race the morning after Election Day, and consider what the results might mean for a deeply divided nation.`\
-https://nytimes.com/2020/11/04/learning/lesson-of-the-day-as-america-awaits-a-winner-trump-falsely-claims-he-prevailed.html?searchResultPosition=9
-
-**What We Know About the Election (Right Now)**\
-`There are three things we can say with some certainty.`\
-https://nytimes.com/2020/11/04/business/election-day-takeaways.html?searchResultPosition=10
+https://nytimes.com/2020/11/04/us/california-election-day-voting.html?searchResultPosition=10
 
