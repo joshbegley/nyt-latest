@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2020/11/04/business/media/election-tv-coverage.h
 `With a marquee creative team, this romantic musical should have been a sure bet. One great song survived the out-of-town turmoil.`\
 https://nytimes.com/2020/11/04/theater/the-bakers-wife-patti-lupone-stephen-schwartz.html?searchResultPosition=9
 
-**Two Middle Grade Novels Put Endangered Wildlife Front and Center**\
-`Rosanne Parry’s “A Whale of the Wild” and Philippe Cousteau and Austin Aslan’s “The Endangereds” dive deep into the relationship between humans and nature.`\
-https://nytimes.com/2020/11/04/books/review/rosanne-parry-a-whale-of-the-wild-philippe-costeau-austin-aslan-the-endangereds.html?searchResultPosition=10
+**Trump’s campaign manager wants a recount in Wisconsin. Here’s how it would work.**\
+`By Reid J. Epstein`\
+https://nytimes.com/2020/11/04/us/politics/trumps-campaign-manager-wants-a-recount-in-wisconsin-heres-how-it-would-work.html?searchResultPosition=10
 
