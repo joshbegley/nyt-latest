@@ -23,7 +23,7 @@ https://nytimes.com/2020/11/04/world/global-reaction-us-election.html?searchResu
 https://nytimes.com/2020/11/04/technology/california-uber-lyft-prop-22.html?searchResultPosition=6
 
 **Ethiopia’s Leader Orders Military Action in a Northern Region**\
-`Saying an army base in Tigray had been attacked by militia fighters, Prime Minister Abiy Ahmed declared, “The last red line has been crossed.”`\
+`“The last red line has been crossed,” said Prime Minister Abiy Ahmed, blaming the provincial government in Tigray for an attack on an army base.`\
 https://nytimes.com/2020/11/04/world/middleeast/ethiopia-abiy-tigray.html?searchResultPosition=7
 
 **Tony Gonzales Defeats Gina Ortiz Jones, Keeping G.O.P. Hold on Texas House Seat**\
