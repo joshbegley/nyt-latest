@@ -28,7 +28,7 @@ https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100
 
 **The view in Pennsylvania: Democrats are confident, even as the Trump team considers legal challenges.**\
 `By Trip Gabriel and Nick Corasaniti`\
-https://nytimes.com/2020/11/04/us/politics/the-view-in-pennsylvania-democrats-are-confident-even-as-the-trump-team-considers-legal-challenges.html?searchResultPosition=8
+https://nytimes.com/2020/11/04/us/politics/pa-election-results.html?searchResultPosition=8
 
 **Sotheby's International Realty**\
 `Sotheby’s International Realty`\
