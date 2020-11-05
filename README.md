@@ -2,13 +2,13 @@
 `Many of the continent’s museums, theaters, concert halls and bookshops have been forced to close again, and now, people’s reactions have changed.`\
 https://nytimes.com/2020/11/05/arts/second-lockdown-coronavirus-culture.html?searchResultPosition=1
 
-**How VW’s Diesel Settlement Is Changing Fleets, From Schools to Seaports**\
-`A scandal led to a $2.9 billion trust fund for states to put cleaner vehicles on their roads. A lot of the money has gone to more diesel vehicles.`\
-https://nytimes.com/2020/11/05/business/vw-diesel-settlement-states.html?searchResultPosition=2
-
 **Joe Biden Has the Edge**\
 `The Democratic candidate won Michigan and Wisconsin and seems to be well placed in other key states. President Trump has filed a series of lawsuits to block his path.`\
-https://nytimes.com/2020/11/05/podcasts/the-daily/donald-trump-joe-biden-arizona-pennsylvania-nevada.html?searchResultPosition=3
+https://nytimes.com/2020/11/05/podcasts/the-daily/donald-trump-joe-biden-arizona-pennsylvania-nevada.html?searchResultPosition=2
+
+**How VW’s Diesel Settlement Is Changing Fleets, From Schools to Seaports**\
+`A scandal led to a $2.9 billion trust fund for states to put cleaner vehicles on their roads. A lot of the money has gone to more diesel vehicles.`\
+https://nytimes.com/2020/11/05/business/vw-diesel-settlement-states.html?searchResultPosition=3
 
 **‘Not a Great Outcome’ for N.Y. Democrats as G.O.P. Gains**\
 `Preliminary tallies seemed to dash the hopes of progressives and indicated a resurgence of Republican power in areas across the state.`\
