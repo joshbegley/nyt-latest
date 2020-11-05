@@ -20,7 +20,7 @@ https://nytimes.com/video/us/elections/100000007438960/kathy-boockvar-pennsylvan
 
 **Chance of Divided Government Boosts Hopes for a Quick Stimulus**\
 `Congressional leaders and business groups are raising the possibility of new economic aid from Congress in the lame-duck session.`\
-https://nytimes.com/2020/11/05/business/economy/coronavirus-stimulus-2020-election.html?searchResultPosition=6
+https://nytimes.com/2020/11/05/business/economy/stimulus.html?searchResultPosition=6
 
 **Suspect Arrested in Deadly Ambush of Mormon Family**\
 `A year after the attack, nobody has been convicted of the crime, infuriating relatives and casting further doubt on the Mexican justice system.`\
