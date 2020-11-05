@@ -30,8 +30,8 @@ https://nytimes.com/2020/11/04/pageoneplus/corrections-nov-5-2020.html?searchRes
 `Quotation of the Day for Thursday, November 5, 2020.`\
 https://nytimes.com/2020/11/04/todayspaper/quotation-of-the-day-division-distrust-and-dissatisfaction-a-bleaknew-morning-in-america.html?searchResultPosition=8
 
-**Your Thursday Briefing**\
-`Trump’s path to victory grows increasingly narrow.`\
+**U.S. Election, Poland, Coronavirus: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/04/briefing/us-election-poland-abortion-coronavirus.html?searchResultPosition=9
 
 **Fall Setting**\
