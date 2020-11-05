@@ -10,8 +10,8 @@ https://nytimes.com/2020/11/05/technology/donald-trump-twitter.html?searchResult
 `An Indian-born acolyte of Gandhi, he campaigned for boycotts, divestments and other protests against the South African government.`\
 https://nytimes.com/2020/11/05/world/africa/es-reddy-dead.html?searchResultPosition=3
 
-**Watch Live: Pennsylvania Official Holds News Conference**\
-`Kathy Boockvar, Pennsylvania’s secretary of state, holds a news conference to provide updates on the state’s general election.`\
+**Watch Full Video: Pennsylvania Official Holds News Conference**\
+`Kathy Boockvar, Pennsylvania’s secretary of state, held a news conference to provide updates on the state’s general election.`\
 https://nytimes.com/video/us/elections/100000007438960/kathy-boockvar-pennsylvania-election.html?searchResultPosition=4
 
 **Chance of Divided Government Boosts Hopes for a Quick Stimulus**\
