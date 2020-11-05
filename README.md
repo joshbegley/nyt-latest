@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2020/11/05/us/texas-election-battleground-state-
 
 **With Arizona too close to call, Trump supporters gather at a vote-counting site in Phoenix.**\
 `By Simon Romero`\
-https://nytimes.com/2020/11/04/us/politics/with-arizona-too-close-to-call-trump-supporters-gather-at-a-vote-counting-site-in-phoenix.html?searchResultPosition=3
+https://nytimes.com/2020/11/04/us/politics/trump-supporters-protest-arizona.html?searchResultPosition=3
 
 **Police and Protesters Clash In New York City**\
 `Peaceful demonstrations turned into confrontations between police and protesters in the West Village and near Union Square.`\
