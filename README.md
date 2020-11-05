@@ -26,7 +26,7 @@ https://nytimes.com/2020/11/04/crosswords/daily-puzzle-2020-11-05.html?searchRes
 `The day after Election Day, the count continues across Pennsylvania. But the rules are still in dispute, and legal battles raise questions about whether every vote will be counted.`\
 https://nytimes.com/video/us/politics/100000007436291/pennsylvania-ballot-counting.html?searchResultPosition=7
 
-**‘Count Every Vote!,’ Protesters Across the Country Urge**\
+**Protests Spread Across U.S. as Votes Are Counted**\
 `A wide range of demonstrators gathered on Wednesday night in Portland, Ore., Philadelphia, Chicago and New York. Marchers showed support for all votes to be counted, Black Lives Matter and other causes.`\
 https://nytimes.com/video/us/elections/100000007437165/protest-unrest-united-states-election.html?searchResultPosition=8
 
