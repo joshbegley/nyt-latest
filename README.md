@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/05/arts/second-lockdown-coronavirus-culture.html?sea
 
 **Joe Biden Has the Edge**\
 `The Democratic candidate won Michigan and Wisconsin and seems to be well placed in other key states. President Trump has filed a series of lawsuits to block his path.`\
-https://nytimes.com/2020/11/05/podcasts/the-daily/donald-trump-joe-biden-arizona-pennsylvania-nevada.html?searchResultPosition=2
+https://nytimes.com/2020/11/05/podcasts/the-daily/trump-biden-arizona-pennsylvania-nevada.html?searchResultPosition=2
 
 **How VW’s Diesel Settlement Is Changing Fleets, From Schools to Seaports**\
 `A scandal led to a $2.9 billion trust fund for states to put cleaner vehicles on their roads. A lot of the money has gone to more diesel vehicles.`\
