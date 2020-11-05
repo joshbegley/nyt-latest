@@ -1,40 +1,40 @@
+**Homes for Sale in Brooklyn Manhattan and the Bronx**\
+`This week’s properties are in Crown Heights, Murray Hill and Riverdale.`\
+https://nytimes.com/2020/11/05/realestate/housing-market-nyc.html?searchResultPosition=1
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a five-bedroom in Ossining, N.Y., and a four-bedroom in Westport, Conn.`\
+https://nytimes.com/2020/11/05/realestate/housing-market-near-nyc.html?searchResultPosition=2
+
+**On the Market in New York City**\
+`This week’s properties are in Crown Heights, Murray Hill and Riverdale.`\
+https://nytimes.com/slideshow/2020/11/05/realestate/on-the-market-in-new-york-city.html?searchResultPosition=3
+
+**On the Market in the New York Region**\
+`This week’s properties are a five-bedroom in Ossining, N.Y., and a four-bedroom in Westport, Conn.`\
+https://nytimes.com/slideshow/2020/11/05/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+
+**Xbox Series X and S Review: Microsoft’s New Consoles Are a Good Value. Is That Enough?**\
+`Nice hardware? Check. Fair price? Check. Cool, exclusive games? T.B.D.`\
+https://nytimes.com/2020/11/05/technology/personaltech/xbox-series-x-series-s-review.html?searchResultPosition=5
+
+**Is Anyone Coming to See Listings These Days?**\
+`An industry measure of booked showings paints a picture of the real estate market.`\
+https://nytimes.com/2020/11/05/realestate/is-anyone-coming-to-see-listings-these-days.html?searchResultPosition=6
+
+**The T List: Five Things We Recommend This Week**\
+`Fruit butters, a classic Palm Springs hotel reopens — and more.`\
+https://nytimes.com/2020/11/05/t-magazine/sunil-gupta-lilikoi-ren.html?searchResultPosition=7
+
+**How Do I Tell My Boss I Don’t Want to Work in the Office?**\
+`He’s disrespecting our company’s remote work policy.`\
+https://nytimes.com/2020/11/05/style/remote-work-policy.html?searchResultPosition=8
+
 **Some Latinos Voted for Trump. Get Over It.**\
 `I’m Latina. I still don’t know what that means.`\
-https://nytimes.com/2020/11/05/opinion/trump-latino-vote.html?searchResultPosition=1
+https://nytimes.com/2020/11/05/opinion/trump-latino-vote.html?searchResultPosition=9
 
 **Making Sense of the California Voter**\
 `Thursday: An expert analysis of ballot proposition results. Also: More election updates from around the state.`\
-https://nytimes.com/2020/11/05/us/california-ballot-propositions.html?searchResultPosition=2
-
-**We’ll Get There**\
-`Deep breaths, everyone. Democracy is sorting itself out.`\
-https://nytimes.com/2020/11/05/us/politics/election-scenarios.html?searchResultPosition=3
-
-**Lesson of the Day: ‘How Poland’s New Abortion Law Became a Flash Point’**\
-`In this lesson, students will learn about recent protests in Poland and then reflect on their own beliefs about abortion rights.`\
-https://nytimes.com/2020/11/05/learning/lesson-of-the-day-how-polands-new-abortion-law-became-a-flash-point.html?searchResultPosition=4
-
-**Bob Baffert at the Breeders’ Cup: Awash in Favorites and Suspicion**\
-`Horse racing is under scrutiny again, as its top American trainer comes to the season’s final event with a record of four failed drug tests in the past six months.`\
-https://nytimes.com/2020/11/05/sports/horse-racing/bob-baffert-breeders-cup.html?searchResultPosition=5
-
-**The Markets Like What They See in the Election Results So Far**\
-`Investors have already made up their minds about the potential outcome.`\
-https://nytimes.com/2020/11/05/business/dealbook/markets-investors-election.html?searchResultPosition=6
-
-**North Korea Tells Its People to Stop Smoking. Can Kim Jong-un Quit, Too?**\
-`The country is expanding a national campaign against the habit, even as state news media continues to show Mr. Kim puffing away on the subway, at schools and at children’s hospitals.`\
-https://nytimes.com/2020/11/05/world/asia/north-korea-smoking-ban.html?searchResultPosition=7
-
-**Chinese Journalists Sought Freedom in the U.S. Now They’re in Limbo.**\
-`Caught in a tit-for-tat battle over the media between the two countries, the worried reporters say they help bring a nuanced view of American life back home.`\
-https://nytimes.com/2020/11/05/business/media/china-reporters-us.html?searchResultPosition=8
-
-**New York Times Hits 7 Million Subscribers as Digital Revenue Rises**\
-`For the first time, the publisher brings in more revenue from online readers than its print subscribers.`\
-https://nytimes.com/2020/11/05/business/media/new-york-times-q3-2020-earnings-nyt.html?searchResultPosition=9
-
-**Biden Edges Close to 270**\
-`Democrats are bullish on a top-of-ticket win in a tough election: This is your morning tip sheet.`\
-https://nytimes.com/2020/11/05/us/politics/biden-270-trump.html?searchResultPosition=10
+https://nytimes.com/2020/11/05/us/california-ballot-propositions.html?searchResultPosition=10
 
