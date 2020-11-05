@@ -16,7 +16,7 @@ https://nytimes.com/2020/11/04/books/review/the-little-mermaid-jerry-pinkney-the
 
 **Around the country, protesters insist that votes be counted — or not.**\
 `By Mike Baker`\
-https://nytimes.com/2020/11/04/us/politics/around-the-country-protesters-insist-that-votes-be-counted-or-not.html?searchResultPosition=5
+https://nytimes.com/2020/11/04/us/politics/election-protests.html?searchResultPosition=5
 
 **Corrections: Nov. 5, 2020**\
 `Corrections that appeared in print on Thursday, Nov. 5, 2020.`\
