@@ -19,7 +19,7 @@ https://nytimes.com/video/us/politics/100000007437076/philadelphia-walter-wallac
 https://nytimes.com/2020/11/04/us/politics/biden-democrats-narrower-path.html?searchResultPosition=5
 
 **With His Path to Re-election Narrowing, Trump Turns to the Courts**\
-`The president pursued lawsuits in Pennsylvania and Michigan, and his campaign said it would demand a recount in Wisconsin.`\
+`The president pursued lawsuits in Pennsylvania, Michigan and Georgia, and his campaign said it would demand a recount in Wisconsin.`\
 https://nytimes.com/2020/11/04/us/politics/trump-election-courts.html?searchResultPosition=6
 
 **Montana’s New Governor Could Remake the State**\
