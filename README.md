@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/05/style/what-to-wear-around-for-outdoor-dining-shaw
 `The desire to escape the pandemic and other worries of modern life has made retreats on private islands more enticing.`\
 https://nytimes.com/2020/11/05/realestate/private-island-real-estate-homes.html?searchResultPosition=9
 
-**A New Item on Your Medical Bill: The ‘Covid’ Fee**\
-`A surprise charge that can take advantage of vulnerable people and possibly violate consumer protection laws.`\
-https://nytimes.com/2020/11/05/upshot/covid-fee-medical-bills.html?searchResultPosition=10
+**Federal Reserve Meets Amid Major Uncertainties**\
+`The Fed will release its latest policy statement on Thursday, sandwiched between an undecided election and the October jobs report.`\
+https://nytimes.com/2020/11/05/business/economy/federal-reserve-meets-amid-major-uncertainties.html?searchResultPosition=10
 
