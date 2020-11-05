@@ -11,7 +11,7 @@ https://nytimes.com/2020/11/05/upshot/arizona-election-call.html?searchResultPos
 https://nytimes.com/2020/11/05/us/eta-florida-storm.html?searchResultPosition=3
 
 **Biden’s Campaign Manager Confident He Will Be Victorious**\
-`Joseph R. Biden Jr.’s campaign manager, Jennifer O’Malley Dillon, said on Thursday that it was confident that Mr. Biden will win the election and urged voters to remain patient.`\
+`Joseph R. Biden Jr.’s campaign manager, Jennifer O’Malley Dillon, said on Thursday that she was confident that Mr. Biden would win the election and urged voters to remain patient.`\
 https://nytimes.com/video/us/elections/100000007438014/biden-campaign-manager-win-2020-election.html?searchResultPosition=4
 
 **When Wine Is More Than Just a Drink**\
