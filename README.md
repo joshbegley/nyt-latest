@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/05/business/media/fox-news-trump-fraud-claims.html?s
 
 **Twitter Has Labeled 39% of Trump’s Tweets Since Tuesday**\
 `The company had said it would closely monitor posts that contain misinformation about the election or prematurely declare an outcome.`\
-https://nytimes.com/2020/11/05/technology/twitter-has-labeled-39-of-trumps-tweets-since-tuesday.html?searchResultPosition=2
+https://nytimes.com/2020/11/05/technology/donald-trump-twitter.html?searchResultPosition=2
 
 **E.S. Reddy, Who Led U.N.’s Efforts Against Apartheid, Dies at 96**\
 `An Indian-born acolyte of Gandhi, he campaigned for boycotts, divestments and other protests against the South African government.`\
