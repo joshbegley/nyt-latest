@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007436291/pennsylvania-ballot-counting.html?searchResultPosition=1
 
 **‘Count Every Vote!,’ Protesters Across the Country Urge**\
-`Demonstrators gathered on Wednesday night in Philadelphia, Chicago and New York to advocate that every single vote from the election be counted.`\
+`Demonstrators gathered on Wednesday night in Portland, Philadelphia, Chicago and New York to advocate that every single vote from the election be counted.`\
 https://nytimes.com/video/us/elections/100000007437165/protest-unrest-united-states-election.html?searchResultPosition=2
 
 **Armed Agents Are Allowed in Ballot-Counting Venues, Justice Dept. Tells Prosecutors**\
