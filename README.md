@@ -1,5 +1,5 @@
 **Police in Nevada Reveal New Details About Episode That Left 4 Dead**\
-`The Henderson Police Department said that officers had fired at a man whom they suspected had killed two women and was holding a 12-year-old boy at gunpoint.`\
+`The Henderson Police Department said that officers had fired at a man who they suspected had killed two women and was holding a 12-year-old boy at gunpoint.`\
 https://nytimes.com/2020/11/04/us/nevada-shooting.html?searchResultPosition=1
 
 **Watery Fairy Tales**\
