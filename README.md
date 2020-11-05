@@ -1,40 +1,40 @@
-**Partying Like It’s 1925 as London’s Theaters Go Dark (Again)**\
-`Two long-running immersive theater productions — “The Murdér Express” and “The Great Gatsby”— offered some much-needed merriment just before a new lockdown hit England.`\
-https://nytimes.com/2020/11/05/theater/london-murder-express-great-gatsby.html?searchResultPosition=1
+**Métiers d’Art Specialists Worry About the Future**\
+`With Swiss watch sales down, there are fewer calls for techniques like enameling and marquetry.`\
+https://nytimes.com/2020/11/05/fashion/watches-metiers-d-art-enamelwork-marquetry.html?searchResultPosition=1
 
-**Late Night Is Ready for the Election to Be Over**\
-`“I thought if your election lasted more than 48 hours you were supposed to seek medical attention,” Jimmy Kimmel said on Wednesday.`\
-https://nytimes.com/2020/11/05/arts/television/late-night-election-results.html?searchResultPosition=2
+**It Had Aerialists, Fire Eaters and Glitter. Is Brooklyn’s Wildest Party Over?**\
+`House of Yes was a revolution in New York nightlife: A space at once wild and safe, challenging and inclusive. Can it ever come back?`\
+https://nytimes.com/2020/11/05/nyregion/coronavirus-nyc-nightclubs.html?searchResultPosition=2
 
-**Norway’s Supreme Court Hears Rights Challenge to Arctic Oil Drilling**\
-`Environmental groups argue that exploratory drilling licenses violate a constitutional right to a healthy environment. It’s a test case taking on an industry that is key to the country’s economy.`\
-https://nytimes.com/2020/11/05/world/europe/norway-supreme-court-climate-change.html?searchResultPosition=3
+**Tears, Hugs and Fresh Clothes: New Jersey Prisoners Rejoice at Release**\
+`More than 2,000 inmates were freed to reduce the spread of Covid in the state’s prison system.`\
+https://nytimes.com/2020/11/05/nyregion/nj-prisoner-release-covid.html?searchResultPosition=3
 
-**Friday Night Bytes: Can Analytics Revolutionize High School Football?**\
-`George Mahoney is an efficiency expert by trade and by nature. He’s also among the analytics-minded coaches trying to bring data to one of the last holdouts in American sports — high school football.`\
-https://nytimes.com/2020/11/05/sports/football/high-school-football-analytics.html?searchResultPosition=4
+**Trump’s Tweeting Isn’t Crazy. It’s Strategic, Typos and All.**\
+`A network of right-wing operatives and activists — and the president himself — spread disinformation about Joe Biden with one simple hashtag.`\
+https://nytimes.com/2020/11/05/opinion/trump-twitter-biden-misinformation.html?searchResultPosition=4
 
-**Residents Feared Low-Income Housing Would Ruin Their Suburb. It Didn’t.**\
-`President Trump told suburban voters that affordable housing would hurt property values and increase crime. The story of one Wisconsin community challenges those assumptions.`\
-https://nytimes.com/2020/11/05/us/affordable-housing-suburbs.html?searchResultPosition=5
+**Dressing for the Heat Lamp**\
+`The new outdoor entertaining requires a different kind of wardrobe, and fashion lovers are reveling in the shopportunity.`\
+https://nytimes.com/2020/11/05/style/what-to-wear-around-for-outdoor-dining-shawls.html?searchResultPosition=5
 
-**They Love Paris in the Quarantine**\
-`“Frenchfluencers” (expats who blog or post from France) report increased engagement from stressed Americans seeking escapism.`\
-https://nytimes.com/2020/11/05/style/french-expats.html?searchResultPosition=6
+**The Lure of the Private Island Home**\
+`The desire to escape the pandemic and other worries of modern life has made retreats on private islands more enticing.`\
+https://nytimes.com/2020/11/05/realestate/private-island-real-estate-homes.html?searchResultPosition=6
 
-**Divided**\
-`What is this image saying?`\
-https://nytimes.com/2020/11/05/learning/divided.html?searchResultPosition=7
+**A New Item on Your Medical Bill: The ‘Covid’ Fee**\
+`A surprise charge that can take advantage of vulnerable people and possibly violate consumer protection laws.`\
+https://nytimes.com/2020/11/05/upshot/covid-fee-medical-bills.html?searchResultPosition=7
 
-**Word + Quiz: paroxysm**\
-`This word has appeared in 10 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/11/05/learning/word-quiz-paroxysm.html?searchResultPosition=8
+**Federal Reserve Meets Amid Major Uncertainties**\
+`The Fed will release its latest policy statement on Thursday, sandwiched between an undecided election and the October jobs report.`\
+https://nytimes.com/2020/11/05/business/economy/federal-reserve-meets-amid-major-uncertainties.html?searchResultPosition=8
 
-**Just Another ‘Dance’ at the Printing Plant**\
-`At The New York Times presses in Queens, making the paper Tuesday night felt pretty normal.`\
-https://nytimes.com/2020/11/05/insider/election-night-newspaper.html?searchResultPosition=9
+**The Eerie Limbo of Remote Schooling**\
+`A mother fears that her kids are learning less and missing more.`\
+https://nytimes.com/2020/11/05/parenting/remote-learning-school.html?searchResultPosition=9
 
-**Biden Flips Wisconsin, Fueled by Support From Cities and Suburbs**\
-`Rural voters continued to support President Trump, but some counties that swung far to the right in 2016 moved left in 2020.`\
-https://nytimes.com/interactive/2020/11/05/us/wisconsin-election-battleground-state-counties.html?searchResultPosition=10
+**We Waited in Vain for a Repudiation That Never Came**\
+`Trump may well end up losing to Biden, but Trumpism remains a viable political strategy.`\
+https://nytimes.com/2020/11/05/opinion/trump-election-trumpism.html?searchResultPosition=10
 
