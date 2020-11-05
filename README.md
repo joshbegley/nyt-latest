@@ -6,35 +6,35 @@ https://nytimes.com/interactive/2020/11/05/us/wisconsin-election-battleground-st
 `The Rio Grande Valley shifted decisively toward President Trump, cancelling out votes for Joseph R. Biden Jr. in urban and suburban areas.`\
 https://nytimes.com/interactive/2020/11/05/us/texas-election-battleground-state-counties.html?searchResultPosition=2
 
+**Protests sweep U.S. cities, as pro-Trump demonstrators bring guns to vote counting center in Arizona.**\
+`By Simon Romero, Mike Baker and Nicholas Bogel-Burroughs`\
+https://nytimes.com/2020/11/04/us/politics/protests-sweep-us-cities-as-pro-trump-demonstrators-bring-guns-to-vote-counting-center-in-arizona.html?searchResultPosition=3
+
 **Police and Protesters Clash In New York City**\
 `Peaceful demonstrations turned into confrontations between police and protesters in the West Village and near Union Square.`\
-https://nytimes.com/video/us/elections/100000007437443/protest-police-new-york-city-election.html?searchResultPosition=3
+https://nytimes.com/video/us/elections/100000007437443/protest-police-new-york-city-election.html?searchResultPosition=4
 
 **A Forgotten 1950 Classic by Ludwig Bemelmans Brings New York to Life**\
 `As his Madeline books did for Paris, “Sunshine” captures a city’s quintessence.`\
-https://nytimes.com/2020/11/05/books/review/ludwig-bemelmans-sunshine-a-story-about-the-city-of-new-york.html?searchResultPosition=4
+https://nytimes.com/2020/11/05/books/review/ludwig-bemelmans-sunshine-a-story-about-the-city-of-new-york.html?searchResultPosition=5
 
 **‘Count Every Vote’: Protests Over Ballot Tallies Sweep Through U.S. Cities**\
 `Protesters marched in Minneapolis, New York and elsewhere against President Trump, while some of his supporters gathered near a Phoenix building where crucial votes were being counted.`\
-https://nytimes.com/2020/11/05/us/election-protests-portland-minnesota-arizona.html?searchResultPosition=5
+https://nytimes.com/2020/11/05/us/election-protests-portland-minnesota-arizona.html?searchResultPosition=6
 
 **N.F.L. Week 9 Predictions: Our Picks Against the Spread**\
 `The Ravens will be tested by the Colts; the Seahawks can’t overlook the Bills; and the Cardinals and Dolphins will meet in a battle of feel-good teams.`\
-https://nytimes.com/2020/11/05/sports/football/nfl-picks-week-9.html?searchResultPosition=6
+https://nytimes.com/2020/11/05/sports/football/nfl-picks-week-9.html?searchResultPosition=7
 
 **Police ‘Kettle’ and Arrest Nearly 60 Protesters in Manhattan**\
 `The police broke up crowds after peaceful demonstrations turned into heated confrontations in the West Village and near Union Square.`\
-https://nytimes.com/2020/11/04/nyregion/nyc-presidential-election-protests.html?searchResultPosition=7
+https://nytimes.com/2020/11/04/nyregion/nyc-presidential-election-protests.html?searchResultPosition=8
 
 **Police in Nevada Reveal New Details About Episode That Left 4 Dead**\
 `The Henderson Police Department said that officers had fired at a man who they suspected had killed two women and was holding a 12-year-old boy at gunpoint.`\
-https://nytimes.com/2020/11/04/us/nevada-shooting.html?searchResultPosition=8
+https://nytimes.com/2020/11/04/us/nevada-shooting.html?searchResultPosition=9
 
 **Watery Fairy Tales**\
 `Trung Le Nguyen’s “The Magic Fish” and Jerry Pinkney’s “The Little Mermaid” recast the classics.`\
-https://nytimes.com/2020/11/04/books/review/the-little-mermaid-jerry-pinkney-the-magic-fish-trung-le-nguyen.html?searchResultPosition=9
-
-**Around the country, protesters insist that votes be counted — or not.**\
-`By Mike Baker`\
-https://nytimes.com/2020/11/04/us/politics/election-protests.html?searchResultPosition=10
+https://nytimes.com/2020/11/04/books/review/the-little-mermaid-jerry-pinkney-the-magic-fish-trung-le-nguyen.html?searchResultPosition=10
 
