@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/05/sports/baseball/mlb-negotiations-2021.html?search
 https://nytimes.com/video/us/elections/100000007438200/2020-election-updates-live.html?searchResultPosition=2
 
 **N.Y.P.D. Anti-Harassment Official Accused of Racist Rants**\
-`The official was relieved of his command after City Council investigators claimed that he posted vitriolic messages online under the name “Clouseau.”`\
+`The official was relieved of his command after City Council investigators amassed evidence that he posted vitriolic messages online under the name “Clouseau.”`\
 https://nytimes.com/2020/11/05/nyregion/james-kobel-nypd-racism.html?searchResultPosition=3
 
 **Election Special: Nail-Biter Edition**\
