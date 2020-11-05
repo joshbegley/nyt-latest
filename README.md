@@ -14,7 +14,7 @@ https://nytimes.com/2020/11/05/us/election-women-congress-republican.html?search
 `New York State Republicans used images of boarded-up businesses and of Mayor Bill de Blasio to persuade voters to vote for their candidates.`\
 https://nytimes.com/2020/11/05/nyregion/ny-election-Cuomo-mayor.html?searchResultPosition=4
 
-**Pennsylvania Official Says Integrity of State’s Voting Process Is ‘Unparalleled’**\
+**Pennsylvania Official Says Integrity of State’s Voting Processes Is ‘Unparalleled’**\
 `At a news conference on Thursday, Kathy Boockvar, Pennsylvania’s secretary of state, said that while a large percentage of votes in the state had been counted, the results were not yet certain.`\
 https://nytimes.com/video/us/elections/100000007439338/pennsylvania-vote-count.html?searchResultPosition=5
 
