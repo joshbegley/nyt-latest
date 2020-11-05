@@ -2,7 +2,7 @@
 `At a news conference on Thursday, Kathy Boockvar, Pennsylvania’s secretary of state, said that while a large percentage of votes in the state had been counted, the results were not yet certain.`\
 https://nytimes.com/video/us/elections/100000007439338/pennsylvania-vote-count.html?searchResultPosition=1
 
-**Facebook, Alarmed by Election Misinformation, Is Said to Be Taking Action**\
+**Facebook, Alarmed by Discord Over Vote Count, Is Said to Be Taking Action**\
 `New measures would slow down the flow of information and make election misinformation less visible, according to people with knowledge of the matter.`\
 https://nytimes.com/2020/11/05/technology/facebook-election-misinformation.html?searchResultPosition=2
 
