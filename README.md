@@ -1,40 +1,40 @@
-**The President Versus Democracy**\
-`And what else you need to know today.`\
-https://nytimes.com/2020/11/05/briefing/election-results-vote-count-arizona-joe-biden.html?searchResultPosition=1
+**Biden Edges Close to 270**\
+`Democrats are bullish on a top-of-ticket win in a tough election: This is your morning tip sheet.`\
+https://nytimes.com/2020/11/05/us/politics/biden-270-trump.html?searchResultPosition=1
 
-**For the Arts in Europe, Lockdown Feels Different This Time**\
-`Many of the continent’s museums, theaters, concert halls and bookshops have been forced to close again, and now, people’s reactions have changed.`\
-https://nytimes.com/2020/11/05/arts/second-lockdown-coronavirus-culture.html?searchResultPosition=2
+**‘Kindred’ Review: A Dreary, Derivative Hostage Thriller**\
+`Influences of “Rosemary’s Baby” and “Get Out” are evident in this Joe Marcantonio film, which doesn’t live up to its forebears.`\
+https://nytimes.com/2020/11/05/movies/kindred-review.html?searchResultPosition=2
 
-**Joe Biden Has the Edge**\
-`The Democratic candidate won Michigan and Wisconsin and seems to be well placed in other key states. President Trump has filed a series of lawsuits to block his path.`\
-https://nytimes.com/2020/11/05/podcasts/the-daily/trump-biden-arizona-pennsylvania-nevada.html?searchResultPosition=3
+**‘Mortal’ Review: Discovering Superpowers, None Too Quickly**\
+`André Ovredal’s new fantasy film seems more concerned with setting up a sequel than delivering answers.`\
+https://nytimes.com/2020/11/05/movies/mortal-review.html?searchResultPosition=3
 
-**How VW’s Diesel Settlement Is Changing Fleets, From Schools to Seaports**\
-`A scandal led to a $2.9 billion trust fund for states to put cleaner vehicles on their roads. A lot of the money has gone to more diesel vehicles.`\
-https://nytimes.com/2020/11/05/business/vw-diesel-settlement-states.html?searchResultPosition=4
+**‘Operation Christmas Drop’ Review: Heavy Military Presents**\
+`This Netflix holiday movie is predictable to a fault, with barely enough energy to light up a Christmas tree.`\
+https://nytimes.com/2020/11/05/movies/operation-christmas-drop-review.html?searchResultPosition=4
 
-**‘Not a Great Outcome’ for N.Y. Democrats as G.O.P. Gains**\
-`Preliminary tallies seemed to dash the hopes of progressives and indicated a resurgence of Republican power in areas across the state.`\
-https://nytimes.com/2020/11/05/nyregion/ny-election-results.html?searchResultPosition=5
+**‘Jungleland’ Review: On the Outside, Looking Down**\
+`A tale of American striving, in undergrowth thick with preconceived notions about people who might not be exactly like you.`\
+https://nytimes.com/2020/11/05/movies/jungleland-review.html?searchResultPosition=5
 
-**Sleuths of the Artistic Kind**\
-`In Florence, skilled restorers, with help from technology, lay bare the secret pasts of masterworks.`\
-https://nytimes.com/2020/11/05/fashion/craftsmanship-art-restoration-uffizi-florence.html?searchResultPosition=6
+**‘The Endless Trench’ Review: A Hidden Life**\
+`In this survival drama set during the military dictatorship in Spain, a man hides in his house for three decades, battling tedium and isolation.`\
+https://nytimes.com/2020/11/05/movies/the-endless-trench.html?searchResultPosition=6
 
-**Kiki Van Eijk: 20 Years of Design**\
-`As one fan says, the Dutch designer is “really a conceptual storyteller, creating her own world using craftsmanship and nature.”`\
-https://nytimes.com/2020/11/05/fashion/kiki-van-eijk-20-years-of-design.html?searchResultPosition=7
+**‘Proxima’ Review: Separation Anxiety**\
+`Eva Green plays an astronaut and single mother in this disappointingly earthbound drama.`\
+https://nytimes.com/2020/11/05/movies/proxima-review.html?searchResultPosition=7
 
-**Métiers d’Art Specialists Worry About the Future**\
-`With Swiss watch sales down, there are fewer calls for techniques like enameling and marquetry.`\
-https://nytimes.com/2020/11/05/fashion/watches-metiers-d-art-enamelwork-marquetry.html?searchResultPosition=8
+**‘The Informer’ Review: Lock Up or Shut Up**\
+`The film, starring Joel Kinnaman as a mole in a mob-run drug trade, makes for an absorbing time killer.`\
+https://nytimes.com/2020/11/05/movies/the-informer-review.html?searchResultPosition=8
 
-**It Had Aerialists, Fire Eaters and Glitter. Is Brooklyn’s Wildest Party Over?**\
-`House of Yes was a revolution in New York nightlife: A space at once wild and safe, challenging and inclusive. Can it ever come back?`\
-https://nytimes.com/2020/11/05/nyregion/coronavirus-nyc-nightclubs.html?searchResultPosition=9
+**‘The Dark and the Wicked’ Review: Home, but Not Alone**\
+`A family is threatened by a diabolical entity in this frightening and emotionally fraught horror movie.`\
+https://nytimes.com/2020/11/05/movies/the-dark-and-the-wicked-review.html?searchResultPosition=9
 
-**Tears, Hugs and Fresh Clothes: New Jersey Prisoners Rejoice at Release**\
-`More than 2,000 inmates were freed to reduce the spread of Covid in the state’s prison system.`\
-https://nytimes.com/2020/11/05/nyregion/nj-prisoner-release-covid.html?searchResultPosition=10
+**‘Let Him Go’ Review: From Grief to Terror**\
+`The mature chemistry of Kevin Costner and Diane Lane goes a long way in this searing thriller.`\
+https://nytimes.com/2020/11/05/movies/let-him-go-review.html?searchResultPosition=10
 
