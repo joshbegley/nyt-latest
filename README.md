@@ -1,6 +1,6 @@
 **The President’s Dangerous Lies**\
 `With Joe Biden leading in electoral votes as counting progressed, President Trump claimed that the election was being stolen from him.`\
-https://nytimes.com/2020/11/06/podcasts/the-daily/the-presidents-dangerous-lies.html?searchResultPosition=1
+https://nytimes.com/2020/11/06/podcasts/the-daily/donald-trump-election-2020.html?searchResultPosition=1
 
 **The Penthouse Where Leonard Bernstein Once Lived Is for Sale**\
 `A Park Avenue duplex previously owned by the composer is on the market for the first time in more than 40 years — for $29.5 million.`\
