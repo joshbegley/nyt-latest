@@ -1,6 +1,6 @@
 **How Claims of Dead Michigan Voters Spread Faster Than the Facts**\
 `Journalists have debunked most claims of voter fraud, but President Trump’s supporters have not seemed to notice.`\
-https://nytimes.com/2020/11/06/technology/how-claims-of-dead-michigan-voters-spread-faster-than-the-facts.html?searchResultPosition=1
+https://nytimes.com/2020/11/06/technology/false-dead-michigan-voter-claims.html?searchResultPosition=1
 
 **The Great State of Pennsylvania? No. The Greatest State. Also, Not a State.**\
 `It’s a commonwealth, thank you for caring and wanting to know more.`\
@@ -8,7 +8,7 @@ https://nytimes.com/2020/11/06/style/pennsylvania-rules.html?searchResultPositio
 
 **Joe Biden’s Magic**\
 `He has the power to make real, transformational progress look like common sense. Will he use it, given the chance?`\
-https://nytimes.com/2020/11/06/sunday-review/joe-biden-president-policy.html?searchResultPosition=3
+https://nytimes.com/2020/11/06/opinion/sunday/joe-biden-president-policy.html?searchResultPosition=3
 
 **How the White House Rolled Back Financial Regulations**\
 `Under President Trump, agencies have eased bans on Wall Street risk-taking and loosened consumer protections and anti-discrimination laws.`\
