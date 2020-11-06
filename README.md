@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/06/business/trump-administration-financial-regulatio
 
 **Serve Up Some Extra Precautions at Your Thanksgiving Table This Year**\
 `Public health officials urge families to keep celebrations small, avoid mixing households and open the windows.`\
-https://nytimes.com/2020/11/06/well/coronavirus-covid-thanksgiving-dinner-safe-precautions.html?searchResultPosition=2
+https://nytimes.com/2020/11/06/well/covid-thanksgiving-safety-tips.html?searchResultPosition=2
 
 **Love Letter: Losing Sleep Over Late-Night Dates**\
 `And: A quarantine love story.`\
