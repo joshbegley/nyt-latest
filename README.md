@@ -1,6 +1,6 @@
 **N.B.A. Is Expected to Start Its New Season Next Month**\
 `The players tentatively approved a shortened 2020-21 season that will begin Dec. 22, giving top teams little time to recover from the last campaign.`\
-https://nytimes.com/2020/11/06/sports/nba-next-season.html?searchResultPosition=1
+https://nytimes.com/2020/11/06/sports/basketball/nba-next-season.html?searchResultPosition=1
 
 **A Man (and Meals) Worth Losing Sleep Over**\
 `The cook would arrive after midnight and whip up a Michelin-worthy spread. Which was great, until I could no longer keep my eyes open at work.`\
