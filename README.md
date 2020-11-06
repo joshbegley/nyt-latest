@@ -10,7 +10,7 @@ https://nytimes.com/2020/11/06/business/economy-letter-next-president.html?searc
 `And what else you need to know today.`\
 https://nytimes.com/2020/11/06/briefing/georgia-joe-biden-donald-trump-vote-counting.html?searchResultPosition=3
 
-**The President’s Dangerous Lies**\
+**The President’s Damaging Lies**\
 `With Joe Biden leading in electoral votes as counting progressed, President Trump claimed that the election was being stolen from him.`\
 https://nytimes.com/2020/11/06/podcasts/the-daily/donald-trump-election-2020.html?searchResultPosition=4
 
