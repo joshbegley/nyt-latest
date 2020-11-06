@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘How the Space Station Became a Base to Launch Humanity’s Future’**\
-`It’s the 20th anniversary of continuous human occupation of the International Space Station. In this lesson, students will learn more about the station’s history and its future. Then they will imagine life aboard the outpost 250 miles above the earth.`\
-https://nytimes.com/2020/11/06/learning/lesson-of-the-day-how-the-space-station-became-a-base-to-launch-humanitys-future.html?searchResultPosition=1
+**What We Know About New York Election Results**\
+`Republicans were ahead in key congressional races in the state, with mail-in ballots yet to be counted.`\
+https://nytimes.com/2020/11/06/nyregion/ny-election-results.html?searchResultPosition=1
 
-**News Quiz: U.S. Election, Sean Connery, International Space Station**\
-`Did you follow the headlines this week?`\
-https://nytimes.com/interactive/2020/11/06/briefing/news-quiz-election-sean-connery-international-space-station.html?searchResultPosition=2
+**Megan Rapinoe Has a Lot More to Say**\
+`Don’t expect the usual bromides about hard work and resilience in “One Life.” The soccer star’s memoir gets into her political awakening as much as it does her sports career.`\
+https://nytimes.com/2020/11/06/books/megan-rapinoe-memoir-one-life.html?searchResultPosition=2
 
-**Stephen Colbert Doesn’t Feel Like Laughing**\
-`In an emotional speech, the “Late Show” host accused President Trump of trying to “poison American democracy” by claiming the election was being stolen.`\
-https://nytimes.com/2020/11/06/arts/television/stephen-colbert-trump-election.html?searchResultPosition=3
+**Why I Love Women Who Wallop**\
+`For our film critic, watching actresses become action stars made her think differently about bodies and the meaning of representation.`\
+https://nytimes.com/2020/11/06/movies/actresses-women-stunts.html?searchResultPosition=3
 
-**The Unforeseen Threats to the 2020 Election: Hand Sanitizer and Bad Plumbing**\
-`In a year when armed groups or interference by foreign governments were considered a threat at the polls, some holdups were the result of everyday municipal malfunctions.`\
-https://nytimes.com/2020/11/06/us/election-delays.html?searchResultPosition=4
+**Where Blue Meets Green: Sustainable Waterfront Homes**\
+`A look at green waterfront homes in five destinations around the world.`\
+https://nytimes.com/2020/11/06/realestate/sustainable-green-waterfront-homes.html?searchResultPosition=4
 
-**Brands That ‘Spread Joy’**\
-`Have you ever seen an Oscar Meyer Weinermobile? In your view, what brands do the best job at bringing “surprise and joy” to their customers?`\
-https://nytimes.com/2020/11/06/learning/brands-that-spread-joy.html?searchResultPosition=5
+**How an Eataly Executive Spends His Sundays**\
+`Dino Borri usually checks in at the Italian culinary emporium, which is preparing for the holidays.`\
+https://nytimes.com/2020/11/06/nyregion/eataly-nyc-dino-borri.html?searchResultPosition=5
 
-**Word + Quiz: rarefied**\
-`This word has appeared in 99 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/11/06/learning/word-quiz-rarefied.html?searchResultPosition=6
+**Maintenance Fees for Some Co-ops Rise to Cover Lost Commercial Rent**\
+`As the pandemic has wrought havoc on the economy, many New York stores have been unable to pay the rent, forcing co-ops to pick up the slack.`\
+https://nytimes.com/2020/11/06/realestate/nyc-coops-fees-rent.html?searchResultPosition=6
 
-**Books for Budding Art Lovers**\
-`New picture books explore the life of Keith Haring, the collection of the Centre Pompidou in Paris, the work of the Zhou brothers and much more.`\
-https://nytimes.com/2020/11/06/books/review/flying-paintings-the-zhou-brothers-a-story-of-revolution-and-art.html?searchResultPosition=7
+**A Star of the ‘Raging Rooks,’ He Helped Change the Face of N.Y.C. Chess**\
+`Charu Robinson was one of the pioneers who inspired a generation of children to play a game that had been the province of elite schools.`\
+https://nytimes.com/2020/11/06/nyregion/charu-robinson-nyc-chess.html?searchResultPosition=7
 
-**N.B.A. Is Expected to Start Its New Season Next Month**\
-`The players tentatively approved a shortened 2020-21 season that will begin Dec. 22, giving top teams little time to recover from the last campaign.`\
-https://nytimes.com/2020/11/06/sports/basketball/nba-next-season.html?searchResultPosition=8
+**From the Chest X-Ray, He Saw a Romantic Future**\
+`Dr. Mary Oakley Strasser won the heart of her fellow medical student, Balaji Pandian, during a lecture in medical school.`\
+https://nytimes.com/2020/11/06/style/from-the-chest-x-ray-he-saw-a-romantic-future.html?searchResultPosition=8
 
-**A Man (and Meals) Worth Losing Sleep Over**\
-`The cook would arrive after midnight and whip up a Michelin-worthy spread. Which was great, until I could no longer keep my eyes open at work.`\
-https://nytimes.com/2020/11/06/style/modern-love-a-man-and-meals-worth-losing-sleep-over.html?searchResultPosition=9
+**Are We Losing a Generation of Children to Remote Learning?**\
+`Leaving children to teach themselves from a sofa might be the greatest untold tragedy of the pandemic.`\
+https://nytimes.com/2020/11/06/nyregion/nyc-remote-learning.html?searchResultPosition=9
 
-**Raiders and Jon Gruden Are Fined Again Over Virus Violations**\
-`The league imposed fines totaling $650,000 and took a draft pick away from the Raiders, who had already been penalized because their coach did not wear face coverings properly.`\
-https://nytimes.com/2020/11/05/sports/football/raiders-jon-gruden-fines-coronavirus.html?searchResultPosition=10
+**A Gymnastics Coach, a Misconduct Complaint and a Hall of Fame Berth**\
+`The sport’s leaders say they want to end a bullying approach to coaching that has become a part of its culture, but athletes see reasons to doubt that commitment.`\
+https://nytimes.com/2020/11/06/sports/gymnastics-coach-misconduct-safesport.html?searchResultPosition=10
 
