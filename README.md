@@ -16,7 +16,7 @@ https://nytimes.com/2020/11/05/world/australia/american-tribalism-democracy-divi
 
 **Loaded Questions**\
 `Aimee Lucido takes over themeless territory.`\
-https://nytimes.com/2020/11/05/crosswords/loaded-questions.html?searchResultPosition=5
+https://nytimes.com/2020/11/05/crosswords/daily-puzzle-2020-11-06.html?searchResultPosition=5
 
 **Dueling Protests in Philadelphia for and Against Counting Votes**\
 `Protesters, both those calling for all votes to be counted and supporters of President Trump seeking to stop the count, gathered outside the Philadelphia Convention Center, where votes were being tallied Thursday.`\
