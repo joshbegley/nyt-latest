@@ -36,5 +36,5 @@ https://nytimes.com/2020/11/05/business/media/trump-tv.html?searchResultPosition
 
 **Biden Makes Gains in Key States as Anxious Nation Awaits Winner**\
 `Joe Biden picked up votes in Pennsylvania, Nevada and Georgia and urged patience with the slow-moving vote count. President Trump appeared in the evening to break his silence, lying about “illegal” votes.`\
-https://nytimes.com/2020/11/05/us/politics/biden-trump-election-recap.html?searchResultPosition=10
+https://nytimes.com/2020/11/05/us/politics/biden-georgia-pennsylvania.html?searchResultPosition=10
 
