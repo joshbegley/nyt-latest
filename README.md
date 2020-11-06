@@ -1,4 +1,4 @@
-**What We Know About New York Election Results**\
+**What We Know About Election Results in New York**\
 `Republicans were ahead in key congressional races in the state, with mail-in ballots yet to be counted.`\
 https://nytimes.com/2020/11/06/nyregion/ny-election-results.html?searchResultPosition=1
 
