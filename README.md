@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/05/us/house-democrats-election-losses.html?searchRes
 `Demonstrations have broken out all year long across America, and they have not let up as states tally their ballots after Election Day.`\
 https://nytimes.com/2020/11/05/us/election-protests-vote-count.html?searchResultPosition=9
 
-**A Groundbreaking Election for Women in Congress? Kind of.**\
+**A Groundbreaking Election for Women in Congress? Kind of**\
 `Women made significant but slight gains, still representing under a quarter of seats in the House and the Senate.`\
 https://nytimes.com/2020/11/05/us/election-women-congress-republican.html?searchResultPosition=10
 
