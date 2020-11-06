@@ -18,7 +18,7 @@ https://nytimes.com/2020/11/06/your-money/payroll-deduction-emergency-savings.ht
 `We’re trying to warm up our backyards for winter, but can we make them cozy enough to actually use them?`\
 https://nytimes.com/2020/11/06/realestate/warming-up-outdoor-space-for-winter.html?searchResultPosition=5
 
-**Republicans, This Is a Great Time to Jump Ship**\
+**Republicans, Now Is the Time to Step Up**\
 `It’s not too late to end up on the right side of history.`\
 https://nytimes.com/2020/11/06/opinion/trump-speech-election.html?searchResultPosition=6
 
