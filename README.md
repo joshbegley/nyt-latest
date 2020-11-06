@@ -19,7 +19,7 @@ https://nytimes.com/2020/11/06/us/coronavirus-today-what-happened.html?searchRes
 https://nytimes.com/2020/11/06/books/review/the-magic-bookcase-robert-ingpen.html?searchResultPosition=5
 
 **Dean Baquet on How We’re Covering the Election of 2020**\
-`The Times’s executive editor speaks to Michael Barbaro, host of The Daily, and Carolyn Ryan, a deputy managing editor, on The Daily’s live Election Day broadcast.`\
+`The Times’s executive editor speaks to Michael Barbaro, host of The Daily, and Carolyn Ryan, a deputy managing editor, on The Daily’s live Election Day broadcast. Recorded on Nov. 3, 2020.`\
 https://nytimes.com/audio/2020/11/06/podcasts/06daily-newsletter-audio.html?searchResultPosition=6
 
 **Eta Moves Over Caribbean, Leaving Devastation in Its Wake**\
