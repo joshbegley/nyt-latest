@@ -1,6 +1,6 @@
 **A Friday Full of M.L.B. News and Mercy**\
 `The era of outrage took a timeout as Steven Cohen took over the Mets, Alex Cora was rehired by the Red Sox and Justin Turner escaped punishment for a controversial on-field celebration.`\
-https://nytimes.com/2020/11/06/sports/baseball/a-friday-full-of-mlb-news-and-mercy.html?searchResultPosition=1
+https://nytimes.com/2020/11/06/sports/baseball/steven-cohen-justin-turner-alex-cora.html?searchResultPosition=1
 
 **How ‘Defund the Police’ Became a Flashpoint in Competitive N.Y. Races**\
 `Democrats are debating whether the party’s stances alienated moderates, but progressives like Alexandria Ocasio-Cortez challenged that narrative.`\
