@@ -15,7 +15,7 @@ https://nytimes.com/2020/11/06/sports/basketball/eddie-johnson-dead.html?searchR
 https://nytimes.com/2020/11/06/business/economy/october-jobs-report.html?searchResultPosition=4
 
 **How Twitter Policed Trump During the Election**\
-`Twitter has flagged 15 of the president’s 44 tweets since polls closed, acting more aggressively to combat false or misleading information.`\
+`Twitter has flagged 15 of the president’s four dozen tweets since polls closed, acting more aggressively to combat false or misleading information.`\
 https://nytimes.com/2020/11/06/technology/trump-twitter-labels-election.html?searchResultPosition=5
 
 **Viola Smith, ‘Fastest Girl Drummer in the World,’ Dies at 107**\
