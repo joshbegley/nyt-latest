@@ -32,7 +32,7 @@ https://nytimes.com/2020/11/05/us/politics/trump-news-conference.html?searchResu
 
 **Major Networks Cut Away From Trump’s Baseless Fraud Claims**\
 `Fox News and CNN stuck with the White House news conference, but reported afterward that the president offered no evidence for his accusations of vote fraud.`\
-https://nytimes.com/2020/11/05/business/media/major-networks-cut-away-from-trumps-baseless-fraud-claims.html?searchResultPosition=9
+https://nytimes.com/2020/11/05/business/media/trump-tv.html?searchResultPosition=9
 
 **Biden Makes Gains in Key States as Anxious Nation Awaits Winner**\
 `Joe Biden picked up votes in Pennsylvania, Nevada and Georgia and urged patience with the slow-moving vote count. President Trump appeared in the evening to break his silence, lying about “illegal” votes.`\
