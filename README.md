@@ -1,40 +1,40 @@
+**The Economy Is Healing. But Not Fast Enough to Prevent Serious Damage.**\
+`The jobs report suggests a continued rebound but also long-lasting scars.`\
+https://nytimes.com/2020/11/06/upshot/jobs-report-economy-damage.html?searchResultPosition=1
+
+**Jo Nesbo’s New Book Stars an Antisocial Loner. It’s Not Harry Hole.**\
+`There’s butchery and blood aplenty in “The Kingdom,” but no sign of Nesbo’s beloved police detective — just two brothers who have been up to no good.`\
+https://nytimes.com/2020/11/06/books/review/jo-nesbo-the-kingdom.html?searchResultPosition=2
+
 **Attacks in France Point to a Threat Beyond Extremist Networks**\
 `The most recent attackers were isolated, self-radicalized individuals. That has raised questions about the government’s response.`\
-https://nytimes.com/2020/11/06/world/europe/france-attacks-beheading-terrorism.html?searchResultPosition=1
+https://nytimes.com/2020/11/06/world/europe/france-attacks-beheading-terrorism.html?searchResultPosition=3
 
 **Coronavirus Briefing: What Happened Today**\
 `A second day with more than 100,000 cases in the U.S.`\
-https://nytimes.com/2020/11/06/us/coronavirus-today.html?searchResultPosition=2
+https://nytimes.com/2020/11/06/us/coronavirus-today.html?searchResultPosition=4
 
 **Where the Key States Stand in a Possible Day of Decision for Biden**\
 `He now leads in Georgia and Pennsylvania, and it seems just a matter of time before the race in Pennsylvania is put out of reach.`\
-https://nytimes.com/2020/11/06/upshot/election-update-biden-pennsylvania.html?searchResultPosition=3
+https://nytimes.com/2020/11/06/upshot/election-update-biden-pennsylvania.html?searchResultPosition=5
 
 **Who Speed-Dates During a Pandemic?**\
 `Lots of us, it turns out. “More people,” says one Covid-era matchmaker, “are open to settling down.”`\
-https://nytimes.com/2020/11/06/business/covid-dating.html?searchResultPosition=4
+https://nytimes.com/2020/11/06/business/covid-dating.html?searchResultPosition=6
 
 **How One Entrepreneur Changed Her Business Model in the Pandemic**\
 `Sarah Figueroa started Geojam with the goal of connecting fans at concerts. When those events were halted, the company decided to connect fans directly to the artists.`\
-https://nytimes.com/2020/11/06/your-money/entrepreneur-pandemic.html?searchResultPosition=5
+https://nytimes.com/2020/11/06/your-money/entrepreneur-pandemic.html?searchResultPosition=7
 
 **More Workers Get Help in Building Rainy Day Savings**\
 `The pandemic has shown the need for a financial cushion. Now, some companies are offering programs that automatically deduct money from paychecks.`\
-https://nytimes.com/2020/11/06/your-money/payroll-deduction-emergency-savings.html?searchResultPosition=6
+https://nytimes.com/2020/11/06/your-money/payroll-deduction-emergency-savings.html?searchResultPosition=8
 
 **Baby, It’s Cold Outside**\
 `We’re trying to warm up our backyards for winter, but can we make them cozy enough to actually use them?`\
-https://nytimes.com/2020/11/06/realestate/warming-up-outdoor-space-for-winter.html?searchResultPosition=7
+https://nytimes.com/2020/11/06/realestate/warming-up-outdoor-space-for-winter.html?searchResultPosition=9
 
 **Republicans, Now Is the Time to Step Up**\
 `It’s not too late to end up on the right side of history.`\
-https://nytimes.com/2020/11/06/opinion/trump-speech-election.html?searchResultPosition=8
-
-**Why Is California a Blue State?**\
-`Friday: For over 25 years the state has been a Democratic stronghold. But it wasn’t always that way.`\
-https://nytimes.com/2020/11/06/us/california-blue-state-democrat.html?searchResultPosition=9
-
-**Lous and the Yakuza Makes Music From Her Life’s Darkness**\
-`At 24, the songwriter, singer and rapper has fled one war and lived through the aftermath of another. Now, bridging continents, she tells an autobiographical story with her debut album.`\
-https://nytimes.com/2020/11/06/arts/music/lous-and-the-yakuza.html?searchResultPosition=10
+https://nytimes.com/2020/11/06/opinion/trump-speech-election.html?searchResultPosition=10
 
