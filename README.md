@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/05/opinion/trump-biden-voters.html?searchResultPosition=1
 
 **Secretaries of State in Spotlight as Trump Ratchets Up Attacks to Sow Doubt**\
-`While state election centers have become the scenes of live cable news feeds and have drawn partisan supporters to the sites, election administrators have continued to diligently tabulate the votes.`\
+`While state election centers are broadcast on cable news and have drawn partisan supporters to the sites as thirst for electoral updates intensifies, election administrators have continued to diligently tabulate the votes.`\
 https://nytimes.com/2020/11/05/us/politics/trump-vote-count.html?searchResultPosition=2
 
 **‘Accuracy Is Vital,’ Georgia Election Official Says**\
