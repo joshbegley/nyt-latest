@@ -14,7 +14,7 @@ https://nytimes.com/2020/11/06/business/new-york-post-trump.html?searchResultPos
 `Devon Broglie is the latest figure in the Court of Master Sommeliers to be accused of an inappropriate relationship.`\
 https://nytimes.com/2020/11/06/dining/drinks/court-master-sommeliers-chairman-resigns.html?searchResultPosition=4
 
-**The Daily: Our Big Live Experiment**\
+**Our Big Live Experiment**\
 `Inside our Election Day broadcast.`\
 https://nytimes.com/2020/11/06/podcasts/the-daily-newsletter-live-election-day-broadcast.html?searchResultPosition=5
 
