@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/06/business/economy/october-jobs-report.html?searchR
 
 **How Twitter Policed Trump During the Election**\
 `Twitter has flagged 15 of the president’s 44 tweets since polls closed, acting more aggressively to combat false or misleading information.`\
-https://nytimes.com/2020/11/06/technology/trump-twitter-labels.html?searchResultPosition=2
+https://nytimes.com/2020/11/06/technology/trump-twitter-labels-election.html?searchResultPosition=2
 
 **Viola Smith, ‘Fastest Girl Drummer in the World,’ Dies at 107**\
 `She became a star as a percussionist and bandleader in the swing era. But her call for the big bands to hire women instrumentalists during World War II had little impact.`\
