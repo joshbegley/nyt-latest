@@ -10,7 +10,7 @@ https://nytimes.com/2020/11/05/us/politics/biden-trump-election-recap.html?searc
 `The president and his allies have united right-wing media and internet trolls with false messaging that legitimate vote counting should stop.`\
 https://nytimes.com/2020/11/05/us/politics/trump-white-house-disinformation.html?searchResultPosition=3
 
-**One Day in America: More Than 110,000 Virus Cases**\
+**One Day in America: More Than 114,000 Virus Cases**\
 `Thursday brought more coronavirus infections than in any other day of the pandemic. Around the country, the virus left its mark.`\
 https://nytimes.com/2020/11/05/us/covid-one-day-in-america.html?searchResultPosition=4
 
