@@ -6,7 +6,7 @@ https://nytimes.com/2020/11/06/us/politics/joe-biden-donald-trump-transition.htm
 `David Perdue, a first-term Republican, narrowly failed to clear 50 percent of the vote, sending the race to a January runoff that, along with another runoff contest, will probably determine which party controls the Senate.`\
 https://nytimes.com/2020/11/06/us/politics/georgia-senate-david-perdue.html?searchResultPosition=2
 
-**At Cal, a Single Positive May Wipe Out Two Football Games**\
+**At Cal, a Single Positive Test May Wipe Out Two Football Games**\
 `On Saturday, the Pac-12 will become the last major college conference to start its football season. But Cal’s Golden Bears, despite following strict protocols, won’t be on the field, and they might have to miss next week’s game, too.`\
 https://nytimes.com/2020/11/06/sports/ncaafootball/cal-football-pac-12.html?searchResultPosition=3
 
