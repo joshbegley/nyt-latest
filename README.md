@@ -35,6 +35,6 @@ https://nytimes.com/2020/11/07/us/politics/joe-biden.html?searchResultPosition=8
 https://nytimes.com/2020/11/07/opinion/biden-win-america.html?searchResultPosition=9
 
 **Victory for Joe Biden, at Last**\
-`A majority of Americans embrace his message of unity and healing.`\
+`Kamala Harris to make history as first female vice president.`\
 https://nytimes.com/2020/11/07/opinion/joe-biden-president-winner.html?searchResultPosition=10
 
