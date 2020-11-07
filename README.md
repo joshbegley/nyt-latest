@@ -20,7 +20,7 @@ https://nytimes.com/2020/11/07/us/politics/election-voting-challenges.html?searc
 
 **Irish Home of Biden’s Great-Great-Great Grandfather Cheers His Victory**\
 `He may be five generations removed, but the president-elect is a hometown boy in Ballina, Ireland.`\
-https://nytimes.com/2020/11/07/world/ireland-biden-ballina.html?searchResultPosition=6
+https://nytimes.com/2020/11/07/world/europe/ireland-biden-ballina.html?searchResultPosition=6
 
 **Looking Back at the Trump Years**\
 `Readers react to the reflections of New York Times columnists in a special Sunday Review issue.`\
