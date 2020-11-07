@@ -8,7 +8,7 @@ https://nytimes.com/2020/11/06/crosswords/daily-puzzle-2020-11-07.html?searchRes
 
 **Watch Full Video: Joe Biden Addresses Nation**\
 `Joseph R. Biden Jr., the Democratic presidential nominee, delivered an address.`\
-https://nytimes.com/video/us/elections/100000007441792/joe-biden-election.html?searchResultPosition=3
+https://nytimes.com/video/embedded/us/elections/100000007441792/joe-biden-election.html?searchResultPosition=3
 
 **16 Thanksgiving Sides to Make You Forget About the Turkey**\
 `We all know they’re the best part of the meal.`\
