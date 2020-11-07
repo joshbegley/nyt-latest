@@ -2,8 +2,8 @@
 `We all know they’re the best part of the meal.`\
 https://nytimes.com/2020/11/06/dining/best-thanksgiving-sides.html?searchResultPosition=1
 
-**Biden’s Team Steps Up Transition Plans, Sketching Out a White House**\
-`With Joe Biden leading in several important battleground states, his advisers and allies have moved rapidly to map out hiring in critical roles, especially those overseeing the coronavirus response.`\
+**Biden’s Team Steps Up Transition Plans, Mapping Out a White House**\
+`With Joe Biden leading in several important battleground states, his advisers and allies have moved rapidly to discuss hiring in critical roles, especially those overseeing the coronavirus response.`\
 https://nytimes.com/2020/11/06/us/politics/joe-biden-donald-trump-transition.html?searchResultPosition=2
 
 **Senate Majority in Limbo as Perdue Re-election Race Goes to Runoff in Georgia**\
