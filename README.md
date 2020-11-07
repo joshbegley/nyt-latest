@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/06/crosswords/daily-puzzle-2020-11-07.html?searchResultPosition=1
 
 **Watch Live: Joe Biden Addresses Nation**\
-`Joseph R. Biden Jr., the Democratic presidential nominee, is expected to deliver an address.`\
+`Joseph R. Biden Jr., the Democratic presidential nominee, is delivering an address.`\
 https://nytimes.com/video/us/elections/100000007441792/joe-biden-election.html?searchResultPosition=2
 
 **16 Thanksgiving Sides to Make You Forget About the Turkey**\
