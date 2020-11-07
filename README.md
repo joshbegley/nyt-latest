@@ -2,7 +2,7 @@
 `Neither of Georgia’s Republican senators drew a majority on Election Day, sending both of their races to special rematches in January that will likely determine control of the Senate.`\
 https://nytimes.com/2020/11/07/us/politics/georgia-senate-runoff-explainer.html?searchResultPosition=1
 
-**Special Episode: Joe Biden Wins the Presidency**\
+**Joe Biden Wins the Presidency: Special Episode of ‘The Daily’**\
 `The former vice president has been elected the 46th president of the United States. What does his victory mean and what happens now?`\
 https://nytimes.com/2020/11/07/podcasts/the-daily/joe-biden-president-election-donald-trump.html?searchResultPosition=2
 
