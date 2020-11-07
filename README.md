@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/06/business/media/rachel-maddow-coronavirus-quaranti
 `Officials said that an election worker in Fulton County, Ga., received threats following a Twitter post that falsely claimed he had discarded a ballot, and that the worker has gone into hiding.`\
 https://nytimes.com/video/us/elections/100000007441782/falsely-accused-election-worker-in-hiding.html?searchResultPosition=9
 
-**Lead in Pennsylvania Puts Biden Closer to Winning Threshold**\
+**Leading in Pennsylvania, Biden Tells Nation ‘We’re Going to Win This Race’**\
 `Joe Biden also pulled ahead in Georgia, and maintained leads in Nevada and Arizona. President Trump and his team weighed legal options, but lawsuits this week have had no meaningful effect on the tabulation of ballots.`\
 https://nytimes.com/2020/11/06/us/politics/biden-trump-election-recap.html?searchResultPosition=10
 
