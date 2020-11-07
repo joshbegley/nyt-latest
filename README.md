@@ -12,7 +12,7 @@ https://nytimes.com/2020/11/06/nyregion/election-nyc-defund-police.html?searchRe
 
 **New York Post Shifts Tone on Trump as a Top Editor Plans His Own Exit**\
 `Rupert Murdoch’s tabloid has turned critical as the president seems headed to defeat. Col Allan, a wizard there, says he plans to retire next year.`\
-https://nytimes.com/2020/11/06/business/new-york-post-trump.html?searchResultPosition=4
+https://nytimes.com/2020/11/06/business/media/new-york-post-trump.html?searchResultPosition=4
 
 **Chairman of Elite Wine Group Resigns Amid Its Sexual Harassment Scandal**\
 `Devon Broglie is the latest figure in the Court of Master Sommeliers to be accused of an inappropriate relationship.`\
