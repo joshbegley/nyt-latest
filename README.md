@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/06/opinion/sunday/trump-biden-election.html?searchRe
 https://nytimes.com/2020/11/06/crosswords/daily-puzzle-2020-11-07.html?searchResultPosition=2
 
 **Watch Full Video: Joe Biden Addresses Nation**\
-`Joseph R. Biden Jr., the Democratic presidential nominee, is delivered an address.`\
+`Joseph R. Biden Jr., the Democratic presidential nominee, delivered an address.`\
 https://nytimes.com/video/us/elections/100000007441792/joe-biden-election.html?searchResultPosition=3
 
 **16 Thanksgiving Sides to Make You Forget About the Turkey**\
