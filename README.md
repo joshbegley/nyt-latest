@@ -15,7 +15,7 @@ https://nytimes.com/2020/11/07/todayspaper/quotation-of-the-day-a-cliffhanger-of
 https://nytimes.com/video/us/elections/100000007441988/joe-biden-speech.html?searchResultPosition=4
 
 **Mark Meadows, Trump’s Chief of Staff, Has the Coronavirus**\
-`Mr. Meadows aided President Trump’s efforts to play down the virus throughout the summer. A second White House aide is also said to have tested positive.`\
+`Mr. Meadows aided President Trump’s efforts to play down the virus throughout the summer. A Trump campaign adviser and four other White House aides also tested positive.`\
 https://nytimes.com/2020/11/06/us/politics/mark-meadows-coronavirus.html?searchResultPosition=5
 
 **We Hereby Dump Trump**\
