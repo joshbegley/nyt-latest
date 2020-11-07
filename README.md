@@ -1,40 +1,40 @@
-**The Trump team is planning a news conference in Philadelphia this morning.**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/2020/11/06/us/politics/the-trump-team-is-planning-a-news-conference-in-philadelphia-this-morning.html?searchResultPosition=1
+**A Black Hero in the Jim Crow Navy**\
+`Dorie Miller saved lives at Pearl Harbor. He’s finally getting his due.`\
+https://nytimes.com/2020/11/07/opinion/sunday/dorie-miller-navy-ship.html?searchResultPosition=1
+
+**Gay in Nigeria, Black Male in America**\
+`I learned how to carry myself to protect my safety back home, only to come to the U.S. and face a different danger.`\
+https://nytimes.com/2020/11/07/opinion/sunday/gay-nigeria-black-america.html?searchResultPosition=2
+
+**The Human Experience Will Not Be Quantified**\
+`Why do we keep mistaking data for knowledge?`\
+https://nytimes.com/2020/11/07/opinion/sunday/data-science-limits.html?searchResultPosition=3
+
+**Why You Should Brave the ‘Bad’ Weather**\
+`My British upbringing taught me that socializing outdoors shouldn’t stop when rain falls and temperatures drop.`\
+https://nytimes.com/2020/11/07/opinion/sunday/covid-winter-outdoor-socializing.html?searchResultPosition=4
+
+**The Parrots vs. Stephen Miller**\
+`What will it mean if Trump is no longer president, and I’m no longer undocumented?`\
+https://nytimes.com/2020/11/07/opinion/sunday/immigration-trump-biden-election.html?searchResultPosition=5
+
+**String of Attacks Have People in Kabul Pointing a Finger, at the Government**\
+`The assaults not only highlight a city under siege, they have exposed a growing, and very public, discontent with an Afghan government unable to protect its people.`\
+https://nytimes.com/2020/11/07/world/asia/kabul-afghanistan-tolo-anchor-killed.html?searchResultPosition=6
 
 **Democracy Worked This Year. But It Is Under Threat.**\
 `America’s pandemic election was a remarkable, unlikely feat — conducted under assault from its president.`\
-https://nytimes.com/interactive/2020/11/07/magazine/election-voting-democracy.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/11/07/magazine/election-voting-democracy.html?searchResultPosition=7
 
 **Our 21 Favorite Thanksgiving Recipes**\
 `Try recommendations from members of The New York Times Food department.`\
-https://nytimes.com/2020/11/07/admin/our-21-favorite-thanksgiving-recipes.html?searchResultPosition=3
+https://nytimes.com/2020/11/07/admin/our-21-favorite-thanksgiving-recipes.html?searchResultPosition=8
 
 **Twitter flagged Trump’s morning tweets as potentially misleading.**\
 `By Michael D. Shear`\
-https://nytimes.com/2020/11/06/us/politics/twitter-flagged-trumps-morning-tweets-as-potentially-misleading.html?searchResultPosition=4
+https://nytimes.com/2020/11/06/us/politics/twitter-flagged-trumps-morning-tweets-as-potentially-misleading.html?searchResultPosition=9
 
 **What’s Still Left to Count, and Why Hasn’t a Winner Been Called?**\
 `Biden’s lead is expected to expand again in Pennsylvania today.`\
-https://nytimes.com/2020/11/07/upshot/election-count-remaining-biden.html?searchResultPosition=5
-
-**Voters Say Black Lives Matter Protests Were Important. They Disagree On Why.**\
-`About a fifth of all voters said the protests were the single most important factor in their decision at the ballot box, according to a new survey.`\
-https://nytimes.com/2020/11/07/us/black-lives-matter-protests.html?searchResultPosition=6
-
-**Do Emotional-Support Pets Pose a Covid Risk in Apartment Buildings?**\
-`Laws prohibiting discrimination against people with disabilities, not to mention coronavirus science, make it hard for apartment buildings to ban emotional-support animals.`\
-https://nytimes.com/2020/11/07/realestate/do-pets-pose-a-covid-risk.html?searchResultPosition=7
-
-**Stacey Abrams draws credit and praise as Biden inches ahead in Georgia.**\
-`By Danny Hakim, Stephanie Saul and Glenn Thrush`\
-https://nytimes.com/2020/11/07/us/politics/stacey-abrams-draws-credit-and-praise-as-biden-inches-ahead-in-georgia.html?searchResultPosition=8
-
-**Victory appears within Biden’s grasp as his lead widens in crucial battlegrounds.**\
-`Joe Biden hoped to deliver a victory address on Friday. Instead he called for calm as the nation awaits a winner.`\
-https://nytimes.com/2020/11/06/us/elections/victory-appears-within-bidens-grasp-as-his-lead-widens-in-crucial-battlegrounds.html?searchResultPosition=9
-
-**Weary ballot counters continue four days after vote as the nation waits for results.**\
-`By Jenny Gross`\
-https://nytimes.com/2020/11/06/us/politics/weary-ballot-counters-continue-four-days-after-vote-as-the-nation-waits-for-results.html?searchResultPosition=10
+https://nytimes.com/2020/11/07/upshot/election-count-remaining-biden.html?searchResultPosition=10
 
