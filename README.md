@@ -1,5 +1,5 @@
 **At Cal, a Single Positive May Wipe Out Two Football Games**\
-`On Saturday, the Pac-12 will become the last major college conference to start its football season. But Cal’s Golden Bears, despite following strict protocols, won’t be on the field.`\
+`On Saturday, the Pac-12 will become the last major college conference to start its football season. But Cal’s Golden Bears, despite following strict protocols, won’t be on the field, and they might have to miss next week’s game, too.`\
 https://nytimes.com/2020/11/06/sports/ncaafootball/cal-football-pac-12.html?searchResultPosition=1
 
 **Rachel Maddow Goes Into Coronavirus Quarantine**\
