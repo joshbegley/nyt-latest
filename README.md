@@ -6,8 +6,8 @@ https://nytimes.com/2020/11/06/dining/best-thanksgiving-sides.html?searchResultP
 `With Joe Biden leading in several important battleground states, his advisers and allies have moved rapidly to discuss hiring in critical roles, especially those overseeing the coronavirus response.`\
 https://nytimes.com/2020/11/06/us/politics/joe-biden-donald-trump-transition.html?searchResultPosition=2
 
-**Senate Majority in Limbo as Perdue Re-election Race Goes to Runoff in Georgia**\
-`David Perdue, a first-term Republican, narrowly failed to clear 50 percent of the vote, sending the race to a January runoff that, along with another runoff contest, will probably determine which party controls the Senate.`\
+**Senate Majority in Balance as Perdue Re-election Race Goes to Runoff in Georgia**\
+`Mr. Perdue, a first-term Republican, narrowly failed to clear 50 percent of the vote, sending the race to a January runoff that, along with another runoff contest, will probably determine which party controls the Senate.`\
 https://nytimes.com/2020/11/06/us/politics/georgia-senate-david-perdue.html?searchResultPosition=3
 
 **At Cal, a Single Positive Test May Wipe Out Two Football Games**\
