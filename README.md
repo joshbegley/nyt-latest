@@ -26,15 +26,15 @@ https://nytimes.com/2020/11/07/world/americas/guatemala-mudslide-storm-eta.html?
 `The unity message won. Now it will face a test.`\
 https://nytimes.com/2020/11/07/us/politics/biden-white-house-administration.html?searchResultPosition=7
 
+**Van Jones, breaking down on CNN, invokes George Floyd’s words in declaring Trump’s loss a ‘vindication.’**\
+`By Glenn Thrush`\
+https://nytimes.com/2020/11/07/us/politics/van-jones-cnn.html?searchResultPosition=8
+
 **In Oakland, the birthplace of Kamala Harris, the mayor says, ‘It is like a whole new world.’**\
 `By Thomas Fuller`\
-https://nytimes.com/2020/11/07/us/politics/in-oakland-the-birthplace-of-kamala-harris-the-mayor-says-it-is-like-a-whole-new-world.html?searchResultPosition=8
+https://nytimes.com/2020/11/07/us/politics/in-oakland-the-birthplace-of-kamala-harris-the-mayor-says-it-is-like-a-whole-new-world.html?searchResultPosition=9
 
 **Treasury Secretary Warren? Progressives Line Up to Press Their Agenda on Biden**\
 `With a Senate majority increasingly unlikely, liberal Democrats are trying to figure out how to achieve their policy goals through the White House.`\
-https://nytimes.com/2020/11/07/us/politics/progressives-biden-warren.html?searchResultPosition=9
-
-**Democrats cheer ‘historic’ win as race is called for Biden and Harris.**\
-`By Matt Stevens`\
-https://nytimes.com/2020/11/07/us/politics/democrats-republicans-biden-harris.html?searchResultPosition=10
+https://nytimes.com/2020/11/07/us/politics/progressives-biden-warren.html?searchResultPosition=10
 
