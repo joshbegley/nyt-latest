@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/06/podcasts/the-daily-newsletter-live-election-day-b
 `He covered wars, politics and brash, complicated men — like himself. His profile subjects included Oliver Stone, Tupac Shakur and David Geffen.`\
 https://nytimes.com/2020/11/06/business/media/robert-sam-anson-dead.html?searchResultPosition=9
 
-**America Votes, Canada Fidgets**\
+**Canada Hasn’t Slept Well Since the U.S. Election**\
 `Canadians have been ripping their cuticles off while they wait for the United States to pick its next president.`\
-https://nytimes.com/2020/11/06/world/canada/america-votes-canada-fidgets.html?searchResultPosition=10
+https://nytimes.com/2020/11/06/world/canada/canada-hasnt-slept-well-since-the-us-election.html?searchResultPosition=10
 
