@@ -20,7 +20,7 @@ https://nytimes.com/2020/11/07/us/politics/progressives-biden-warren.html?search
 
 **Democrats cheer ‘historic’ win as race is called for Biden and Harris.**\
 `By Matt Stevens`\
-https://nytimes.com/2020/11/07/us/politics/democrats-cheer-historic-win-as-race-is-called-for-biden-and-harris.html?searchResultPosition=6
+https://nytimes.com/2020/11/07/us/politics/democrats-republicans-biden-harris.html?searchResultPosition=6
 
 **CNN Was First With the Call for Joe Biden. Fox News Went Last.**\
 `The news networks pledged restraint going into Election Day. They waited until a batch of Philadelphia votes came in on Saturday morning to make the projection.`\
