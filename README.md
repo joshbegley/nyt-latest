@@ -35,6 +35,6 @@ https://nytimes.com/2020/11/08/world/europe/biden-putin-russia.html?searchResult
 https://nytimes.com/2020/11/08/fashion/kamala-harris-speech-suffrage.html?searchResultPosition=9
 
 **Biden Attends Mass After Winning Election**\
-`President-elect Joseph R. Biden Jr. on Sunday attended Mass and visited the cemetery where his son Beau Biden and other family members are buried at St. Joseph on the Brandywine Church in Wilmington, Del.`\
+`President-elect Joseph R. Biden Jr. on Sunday attended Mass and visited the cemetery where his son Beau Biden and other family members are buried at St. Joseph on the Brandywine in Wilmington, Del.`\
 https://nytimes.com/video/us/elections/100000007443633/joe-biden-attends-mass.html?searchResultPosition=10
 
