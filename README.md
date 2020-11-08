@@ -6,7 +6,7 @@ https://nytimes.com/2020/11/08/sports/football/ravens-colts-score-nfl.html?searc
 `Nebraska delivered one electoral vote for Mr. Biden, but the rest of the rural state is deeply red, and mostly accepting of the election results.`\
 https://nytimes.com/2020/11/08/us/politics/nebraska-trump-biden.html?searchResultPosition=2
 
-**Conor Lamb, House Moderate, on Biden’s Win,‘the Squad’ and the Future of the Democratic Party**\
+**Conor Lamb, House Moderate, on Biden’s Win, ‘the Squad’ and the Future of the Democratic Party**\
 `Conor Lamb, who survived a Republican challenge in Pennsylvania, says Democrats were given a message on Election Day: Backlash to progressive policies risks killing their House majority.`\
 https://nytimes.com/2020/11/08/us/politics/conor-lamb-democrats-biden.html?searchResultPosition=3
 
