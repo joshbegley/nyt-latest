@@ -35,6 +35,6 @@ https://nytimes.com/2020/11/08/science/Covid-virus-transmission-mink.html?search
 https://nytimes.com/2020/11/08/dining/what-to-cook-this-week.html?searchResultPosition=9
 
 **Earthquake Rattles Parts of Massachusetts and Rhode Island**\
-`The quake, which had a preliminary magnitude of 4.0, was also felt in the Long Island Sound, the United States Geological Survey said.`\
+`The quake, which had a preliminary magnitude of 3.6, was also felt in the Long Island Sound, the United States Geological Survey said.`\
 https://nytimes.com/2020/11/08/us/earthquake-ma-rhode-island.html?searchResultPosition=10
 
