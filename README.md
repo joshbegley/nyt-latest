@@ -22,13 +22,13 @@ https://nytimes.com/2020/11/08/us/politics/pennsylvania-trump-voters.html?search
 `Recent studies have created doubts about an agent in cytokine storms, and suggest that treatments for it may not help.`\
 https://nytimes.com/2020/11/08/health/covid-cytokine-storm.html?searchResultPosition=6
 
-**Why the Biden Economy Could Be the Same Long Slog as the Obama Economy**\
-`With continuing Republican control of the Senate likely, the sort of large-scale stimulus some economists have urged may be off the table.`\
-https://nytimes.com/2020/11/08/upshot/biden-economy-obama-comparison.html?searchResultPosition=7
-
 **‘It’s Such a Relief’: Biden Voters Rebuild a Wall That Trump Smashed**\
 `Joe Biden’s victory was particularly sweet for supporters in three states he had to win: Pennsylvania, Wisconsin and Michigan.`\
-https://nytimes.com/2020/11/08/us/politics/joe-biden-voters.html?searchResultPosition=8
+https://nytimes.com/2020/11/08/us/politics/joe-biden-voters.html?searchResultPosition=7
+
+**Why the Biden Economy Could Be the Same Long Slog as the Obama Economy**\
+`With continuing Republican control of the Senate likely, the sort of large-scale stimulus some economists have urged may be off the table.`\
+https://nytimes.com/2020/11/08/upshot/biden-economy-obama-comparison.html?searchResultPosition=8
 
 **Norway Has a Must-See Team. Barely Anyone Can Watch It.**\
 `Bodo/Glimt is on the cusp of its first championship, a soccer success story built on style and innovation. But its golden year has played out in front of nearly empty stands.`\
