@@ -1,4 +1,4 @@
-**Read Kamala Harris’ Vice-Presidential Acceptance Speech**\
+**Read Kamala Harris’s Vice-Presidential Acceptance Speech**\
 `In her remarks Saturday night, Vice President-elect Kamala Harris acknowledged “all the women who have worked to secure and protect the right to vote” and said: “And I stand on their shoulders.”`\
 https://nytimes.com/article/Kamala-Harris-speech-transcript.html?searchResultPosition=1
 
