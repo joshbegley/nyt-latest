@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/08/pageoneplus/corrections-nov-8-2020.html?searchResultPosition=1
 
 **‘Saturday Night Live’ Sends Off Trump With a Ballad**\
-`The host Dave Chappelle, who also hosted the first episode after the 2016 election, urged Americans to “find a way to forgive each other.”`\
+`Alec Baldwin appeared as the president to mourn the election results, and the host Dave Chappelle urged Americans to “find a way to forgive each other.”`\
 https://nytimes.com/2020/11/08/arts/television/saturday-night-live-dave-chappelle.html?searchResultPosition=2
 
 **Quotation of the Day: Despite Warnings, the Election Actually Ran Smoothly**\
