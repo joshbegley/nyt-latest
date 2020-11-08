@@ -1,5 +1,5 @@
 **Watch Live: Biden Speaks as President-Elect**\
-`Joseph R. Biden Jr. speaks in Wilmington, Del., after defeating President Trump in the 2020 general election.`\
+`President-elect Joseph R. Biden Jr. is about to speak in Wilmington, Del., after defeating President Trump in the 2020 general election.`\
 https://nytimes.com/video/us/100000007442826/biden-acceptance-speech-live.html?searchResultPosition=1
 
 **Authentic Gets ‘Emotional’ Breeders’ Cup Win for John Velazquez**\
