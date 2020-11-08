@@ -2,8 +2,8 @@
 `This wasn’t about fashion, it was about politics, past and future.`\
 https://nytimes.com/2020/11/08/fashion/kamala-harris-speech-suffrage.html?searchResultPosition=1
 
-**Biden Attends Mass and Visits Son’s Grave After Winning Election**\
-`President-elect Joseph R. Biden Jr. on Sunday attended mass and visited the grave of his son Beau Biden at St. Joseph on the Brandywine church in Wilmington, Del.`\
+**Biden Attends Mass After Winning Election**\
+`President-elect Joseph R. Biden Jr. on Sunday attended mass and visited the cemetery where his son Beau Biden and other family members are buried at St. Joseph on the Brandywine Church in Wilmington, Del.`\
 https://nytimes.com/video/us/elections/100000007443633/joe-biden-attends-mass.html?searchResultPosition=2
 
 **Alex Trebek, Longtime Host of ‘Jeopardy!,’ Dies at 80**\
