@@ -32,7 +32,7 @@ https://nytimes.com/2020/11/08/us/politics/biden-trump-executive-action.html?sea
 
 **In Pennsylvania, Trump Voter Fury Foretells a Nation Still Divided**\
 `President Trump has presented no hard evidence of voter fraud, but his charges have riled supporters in Pennsylvania who now insist the election has been stolen.`\
-https://nytimes.com/2020/11/08/us/politics/pennsylvania-trump-voters.html?searchResultPosition=9
+https://nytimes.com/2020/11/08/us/politics/pa-trump-voters.html?searchResultPosition=9
 
 **An Explanation for Some Covid-19 Deaths May Not Be Holding Up**\
 `Recent studies have created doubts about an agent in cytokine storms, and suggest that treatments for it may not help.`\
