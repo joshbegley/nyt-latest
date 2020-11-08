@@ -6,8 +6,8 @@ https://nytimes.com/2020/11/08/realestate/home-sales-750000-dollars.html?searchR
 `The epic hunt for a lost World War II aircraft carrier.`\
 https://nytimes.com/2020/11/08/podcasts/the-daily/lost-in-the-deep.html?searchResultPosition=2
 
-**Seymour Topping, Former Times Journalist With an Enviable View of History, Dies at 98**\
-`Mr. Topping was an estimable foreign correspondent and leader at The New York Times under the legendary executive editor A.M. Rosenthal.`\
+**Seymour Topping, Former Times Journalist and Eyewitness to History, Dies at 98**\
+`He was one of the most accomplished foreign correspondents of his generation and a newsroom leader under the renowned executive editor A.M. Rosenthal.`\
 https://nytimes.com/2020/11/08/us/seymour-topping-dead.html?searchResultPosition=3
 
 **Where Does Joe Biden Stand on Major Policies?**\
