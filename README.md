@@ -28,7 +28,7 @@ https://nytimes.com/2020/11/07/us/politics/biden-acceptance-speech.html?searchRe
 
 **The Key States Biden Won en Route to the White House**\
 `Joe Biden had to flip a few states that went to President Trump in 2016 and hold on to Democratic-leaning battleground states to win the election. Here’s how it happened.`\
-https://nytimes.com/2020/11/07/us/politics/what-states-did-biden-win-lose.html?searchResultPosition=9
+https://nytimes.com/2020/11/07/us/politics/biden-states-won.html?searchResultPosition=9
 
 **‘It’s a Big Deal’: TV Coverage Notes Magnitude of Kamala Harris Victory**\
 `On Fox News, Donna Brazile recalled that her mother and grandmother could not vote. “Just scoot over and let women also share in the leadership of this country,” she said.`\
