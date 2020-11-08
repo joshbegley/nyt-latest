@@ -23,7 +23,7 @@ https://nytimes.com/2020/11/07/us/politics/georgia-senate-runoff-explainer.html?
 https://nytimes.com/2020/11/07/podcasts/the-daily/joe-biden-president-election-donald-trump.html?searchResultPosition=7
 
 **Biden, Now President-Elect, Prepares to Address Nation**\
-`Joe Biden, joined by his wife, Jill, and his running mate, Senator Kamala Harris, is expected to speak from Wilmington, Del., after days of vote-counting culminated in his victory on Saturday.`\
+`Joe Biden, joined by his wife, Jill, and his running mate, Senator Kamala Harris, is expected to speak from Wilmington, Del., for the first time since his victory on Saturday.`\
 https://nytimes.com/2020/11/07/us/politics/biden-acceptance-speech.html?searchResultPosition=8
 
 **The Key States Biden Won en Route to the White House**\
