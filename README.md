@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/08/fashion/kamala-harris-speech-suffrage.html?searchResultPosition=1
 
 **Biden Attends Mass After Winning Election**\
-`President-elect Joseph R. Biden Jr. on Sunday attended mass and visited the cemetery where his son Beau Biden and other family members are buried at St. Joseph on the Brandywine Church in Wilmington, Del.`\
+`President-elect Joseph R. Biden Jr. on Sunday attended Mass and visited the cemetery where his son Beau Biden and other family members are buried at St. Joseph on the Brandywine Church in Wilmington, Del.`\
 https://nytimes.com/video/us/elections/100000007443633/joe-biden-attends-mass.html?searchResultPosition=2
 
 **Alex Trebek, Longtime Host of ‘Jeopardy!,’ Dies at 80**\
