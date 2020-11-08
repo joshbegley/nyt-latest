@@ -6,9 +6,9 @@ https://nytimes.com/2020/11/07/us/kamala-harris-black-women-first.html?searchRes
 `The congresswoman said Joe Biden’s relationship with progressives would hinge on his actions. And she dismissed criticism from House moderates, calling some candidates who lost their races “sitting ducks.”`\
 https://nytimes.com/2020/11/07/us/politics/aoc-biden-progressives.html?searchResultPosition=2
 
-**There’s no proof to support claims that election observers were blocked from counting rooms.**\
+**There’s no evidence to support claims that election observers were blocked from counting rooms.**\
 `By Jim Rutenberg`\
-https://nytimes.com/2020/11/07/us/politics/theres-no-proof-to-support-claims-that-election-observers-were-blocked-from-counting-rooms.html?searchResultPosition=3
+https://nytimes.com/2020/11/07/us/politics/theres-no-evidence-to-support-claims-that-election-observers-were-blocked-from-counting-rooms.html?searchResultPosition=3
 
 **Watch: Biden Speaks as President-Elect**\
 `President-elect Joseph R. Biden Jr. and Vice President-elect Kamala Harris addressed the nation from Wilmington, Del.`\
