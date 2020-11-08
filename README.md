@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/07/us/politics/aoc-biden-progressives.html?searchRes
 https://nytimes.com/2020/11/07/us/politics/theres-no-proof-to-support-claims-that-election-observers-were-blocked-from-counting-rooms.html?searchResultPosition=2
 
 **Watch Live: Biden Speaks as President-Elect**\
-`President-elect Joseph R. Biden Jr. is about to speak in Wilmington, Del., after defeating President Trump in the 2020 general election.`\
+`President-elect Joseph R. Biden Jr. and Vice President-elect Kamala Harris are speaking in Wilmington, Del.`\
 https://nytimes.com/video/us/100000007442826/biden-acceptance-speech-live.html?searchResultPosition=3
 
 **Authentic Gets ‘Emotional’ Breeders’ Cup Win for John Velazquez**\
