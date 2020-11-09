@@ -14,8 +14,8 @@ https://nytimes.com/2020/11/08/todayspaper/quotation-of-the-day-silence-in-gop-a
 `Loy’s strategy to turn brother against brother hits a snag. But so does just about everyone else’s schemes this week.`\
 https://nytimes.com/2020/11/08/arts/television/fargo-episode-8-recap.html?searchResultPosition=4
 
-**Your Monday Briefing**\
-`Europe congratulates President-elect Joe Biden.`\
+**Joe Biden, Coronavirus, Europe: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/08/briefing/joe-biden-coronavirus-europe-terrorism.html?searchResultPosition=5
 
 **Where Do We Go From Here?**\
