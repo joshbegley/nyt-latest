@@ -27,7 +27,7 @@ https://nytimes.com/2020/11/09/world/europe/france-austria-terrorist-attacks-mar
 https://nytimes.com/interactive/2020/11/09/arts/television/alex-trebek-pop-culture.html?searchResultPosition=7
 
 **Trading Blame and Worry, Notre Dame Grapples With Celebration’s Fallout**\
-`The university’s president said students storming the field after an overtime win was “very disappointing.” But his credibility on campus is wearing thin.`\
+`The university’s president promised strict punishments for students who break virus protocols. But his credibility on campus is wearing thin.`\
 https://nytimes.com/2020/11/09/sports/ncaafootball/notre-dame-fans-clemson.html?searchResultPosition=8
 
 **Trump’s Fury Feeds Moscow and Beijing Accounts of U.S. Chaos**\
