@@ -1,6 +1,6 @@
 **How New York Reacted to Biden’s Win**\
 `In heavily Democratic New York City, Joseph R. Biden Jr.’s victory over President Trump  predictably drew jubilation.`\
-https://nytimes.com/2020/11/09/nyregion/how-new-york-reacted-to-bidens-win.html?searchResultPosition=1
+https://nytimes.com/2020/11/09/nyregion/newyorktoday/how-new-york-reacted-to-bidens-win.html?searchResultPosition=1
 
 **From Iraq, an Intimate Glimpse of the Religious Holiday of Arbaeen**\
 `Every year, millions of pilgrims descend on the central Iraqi city of Karbala to commemorate the Shiite holiday of Arbaeen, one of the largest organized gatherings in the world.`\
