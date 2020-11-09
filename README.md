@@ -14,7 +14,7 @@ https://nytimes.com/2020/11/09/us/politics/cyberattacks-2020-election.html?searc
 `By Rick Rojas and Emily Cochrane`\
 https://nytimes.com/2020/11/09/us/politics/facing-runoffs-georgias-senators-ask-top-elections-official-to-step-down-not-going-to-happen-he-replies.html?searchResultPosition=4
 
-**Roger Ryman, a ‘Real-life’ Cowboy From Nebraska, Dies at 70**\
+**Roger Ryman, a ‘Real-Life’ Cowboy From Nebraska, Dies at 70**\
 `After working summers at the family ranch, he decided to saddle up as a job, turning to selling real estate later in life. He died of Covid-19.`\
 https://nytimes.com/2020/11/09/obituaries/roger-ryman-dead-covid.html?searchResultPosition=5
 
