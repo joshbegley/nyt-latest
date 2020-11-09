@@ -15,7 +15,7 @@ https://nytimes.com/2020/11/09/us/politics/how-democrats-missed-trumps-appeal-to
 https://nytimes.com/2020/11/09/sports/golf/bryson-dechambeau-masters-augusta.html?searchResultPosition=4
 
 **Even With a New President, Sports at the White House Won’t Be the Same**\
-`The politicization of the ceremonial visit to the Rose Garden by champions is one sign the presidential connection to sports is fraught, maybe inalterably.`\
+`Awe and tension filled the air on that sunny afternoon in the Rose Garden four years ago this week. I could feel it, and so could everyone else on hand: The sense of celebration mixed with a gnawing worry for the future.`\
 https://nytimes.com/2020/11/09/sports/biden-sports-trump-protests.html?searchResultPosition=5
 
 **Precious Achiuwa’s Journey May Finally Take Him to the N.B.A.**\
