@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/09/world/americas/evo-morales-bolivia.html?searchRes
 https://nytimes.com/2020/11/09/dining/this-is-the-best-poundcake.html?searchResultPosition=2
 
 **Hakeem Jeffries Wants Democrats to Take a Deep Breath**\
-`The No. 5 House Democrat plans to announce he is running for another term in his post, as he and a new generation of leaders position look to a future after Speaker Nancy Pelosi is gone.`\
+`The No. 5 House Democrat plans to announce he is running for another term in his post, as he and a new generation of leaders look to a future after Speaker Nancy Pelosi is gone.`\
 https://nytimes.com/2020/11/09/us/politics/hakeem-jeffries-democrats.html?searchResultPosition=3
 
 **Business Leaders, Drawn Into Fray by Trump, See Chance to Step Back**\
