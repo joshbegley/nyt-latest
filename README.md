@@ -1,40 +1,40 @@
+**Ariana Grande Streams Her Way to a Fifth No. 1 With ‘Positions’**\
+`The singer’s latest album opened with nearly 174 million streams, the most by a woman since Taylor Swift’s “Folklore” debuted in July.`\
+https://nytimes.com/2020/11/09/arts/music/ariana-grande-positions-billboard.html?searchResultPosition=1
+
 **British Peer Criticized for Calling Kamala Harris ‘the Indian’**\
 `Lord Kilclooney, a member of the House of Lords, claimed not to know the vice president-elect’s name when he wrote the offending Twitter post.`\
-https://nytimes.com/2020/11/09/world/europe/british-peer-kilclooney-kamala-harris-indian.html?searchResultPosition=1
+https://nytimes.com/2020/11/09/world/europe/british-peer-kilclooney-kamala-harris-indian.html?searchResultPosition=2
 
 **12 Thanksgiving Desserts Worth Saving Room For**\
 `Here’s what you need to make the end of the meal shine.`\
-https://nytimes.com/2020/11/09/dining/best-thanksgiving-desserts.html?searchResultPosition=2
+https://nytimes.com/2020/11/09/dining/best-thanksgiving-desserts.html?searchResultPosition=3
 
 **Tropical Storm Eta Causes Flooding in South Florida**\
 `Some areas saw more than 13 inches of rainfall, and there was a storm surge along the coast.`\
-https://nytimes.com/2020/11/09/us/tropical-storm-eta-florida.html?searchResultPosition=3
+https://nytimes.com/2020/11/09/us/tropical-storm-eta-florida.html?searchResultPosition=4
 
 **The Buttermilk-Brined Turkey of Your Thanksgiving Dreams**\
 `Every November, people ask Samin Nosrat if her beloved roast chicken recipe works with turkey. She decided to find out.`\
-https://nytimes.com/2020/11/09/dining/buttermilk-brined-turkey-recipe-samin-nosrat.html?searchResultPosition=4
+https://nytimes.com/2020/11/09/dining/buttermilk-brined-turkey-recipe-samin-nosrat.html?searchResultPosition=5
 
-**Watch Live: Biden Delivers Coronavirus Briefing**\
-`President-elect Joseph R. Biden Jr. will make remarks on his plan to fight Covid-19 and build back the economy.`\
-https://nytimes.com/video/us/politics/100000007444602/biden-coronavirus-briefing.html?searchResultPosition=5
+**Watch Full Video: Biden Delivers Coronavirus Briefing**\
+`President-elect Joseph R. Biden Jr. made remarks on his plan to fight Covid-19 and build back the economy.`\
+https://nytimes.com/video/us/politics/100000007444602/biden-coronavirus-briefing.html?searchResultPosition=6
 
 **Thanksgiving Will Soon Empty Campuses. Will Students Bring Coronavirus Home?**\
 `Experts worry that some of the hundreds of thousands of departing students will be “little ticking time bombs.”`\
-https://nytimes.com/2020/11/09/us/colleges-coronavirus-thanksgiving.html?searchResultPosition=6
+https://nytimes.com/2020/11/09/us/colleges-coronavirus-thanksgiving.html?searchResultPosition=7
 
 **Evo Morales Returns to Bolivia to Cheers — and Worries**\
 `Supporters rushed to welcome the divisive former president back from exile, and his party is back in power. But the country’s new leaders have kept their distance.`\
-https://nytimes.com/2020/11/09/world/americas/evo-morales-bolivia.html?searchResultPosition=7
+https://nytimes.com/2020/11/09/world/americas/evo-morales-bolivia.html?searchResultPosition=8
 
 **This Is the Best Poundcake**\
 `Keith Lee, a son of Otis Lee, who ran Mr. Fofo’s Deli in Detroit, shared his father’s famous recipe. Make it soon.`\
-https://nytimes.com/2020/11/09/dining/this-is-the-best-poundcake.html?searchResultPosition=8
+https://nytimes.com/2020/11/09/dining/this-is-the-best-poundcake.html?searchResultPosition=9
 
 **Hakeem Jeffries Wants Democrats to Take a Deep Breath**\
 `The No. 5 House Democrat plans to announce he is running for another term in his post, as he and a new generation of leaders look to a future after Speaker Nancy Pelosi is gone.`\
-https://nytimes.com/2020/11/09/us/politics/hakeem-jeffries-democrats.html?searchResultPosition=9
-
-**Business Leaders, Drawn Into Fray by Trump, See Chance to Step Back**\
-`Since President Trump took office, corporate America has been thrust into the culture wars like never before. The atmosphere would probably be different with a Biden administration.`\
-https://nytimes.com/2020/11/09/business/business-politics-trump.html?searchResultPosition=10
+https://nytimes.com/2020/11/09/us/politics/hakeem-jeffries-democrats.html?searchResultPosition=10
 
