@@ -11,7 +11,7 @@ https://nytimes.com/2020/11/09/world/europe/lord-kilclooney-kamala-harris.html?s
 https://nytimes.com/2020/11/09/dining/best-thanksgiving-desserts.html?searchResultPosition=3
 
 **The streetwear brand Supreme is acquired in a $2.1 billion deal.**\
-`By Vanessa Friedman`\
+`Some of Supreme’s most famous products include a brick splashed with the Supreme logo, a hammer and a New York MetroCard.`\
 https://nytimes.com/2020/11/09/business/vf-corp-supreme-acquisition.html?searchResultPosition=4
 
 **Tropical Storm Eta Causes Flooding in South Florida**\
