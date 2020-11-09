@@ -27,7 +27,7 @@ https://nytimes.com/2020/11/08/opinion/election-2020-libertarians-deficit-hawks.
 https://nytimes.com/2020/11/08/us/aaron-coleman-kansas.html?searchResultPosition=7
 
 **What We Learned From Week 9 of the N.F.L. Season**\
-`Buffalo’s offense exploded against Seattle, the Ravens and the Chiefs held on for wins and Dalvin Cook continued to dominate.`\
+`Buffalo’s offense exploded against Seattle, the Ravens and the Chiefs held on for wins and the Steelers improved to 8-0.`\
 https://nytimes.com/2020/11/08/sports/football/nfl-results.html?searchResultPosition=8
 
 **Ravens Leave Loss in Rearview Mirror With Decisive Win Over Colts**\
