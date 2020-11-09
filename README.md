@@ -1,26 +1,26 @@
+**Virus Cases Spike Again in N.Y.C. as New Restrictions Are Considered**\
+`The surge could threaten the city’s halting recovery, including its success at reopening public schools and allowing limited indoor dining.`\
+https://nytimes.com/2020/11/09/nyregion/nyc-virus-spike.html?searchResultPosition=1
+
 **Kamala Harris Makes California History**\
 `Monday: The senator is the first Democrat from the Golden State to win on a national presidential ticket.`\
-https://nytimes.com/2020/11/09/us/kamala-harris-california-history.html?searchResultPosition=1
+https://nytimes.com/2020/11/09/us/kamala-harris-california-history.html?searchResultPosition=2
 
 **An Artist’s Continuing Exploration of the Human Form**\
 `Almost 50 years after the debut of her arresting womb-like sculptures, Senga Nengudi is still challenging what it means to live in a body, especially when that body is Black and female.`\
-https://nytimes.com/2020/11/09/t-magazine/senga-nengudi-art.html?searchResultPosition=2
+https://nytimes.com/2020/11/09/t-magazine/senga-nengudi-art.html?searchResultPosition=3
 
 **A Haunting Tale of Spies and Specters**\
 `In this short story written exclusively for T, the ghost of a former North Korean diplomat finds his way back to Leipzig, Germany, and to the woman he once loved.`\
-https://nytimes.com/2020/11/09/t-magazine/leipzig-germany-travel-story.html?searchResultPosition=3
+https://nytimes.com/2020/11/09/t-magazine/leipzig-germany-travel-story.html?searchResultPosition=4
 
 **In Strange Times, Eerie Stories Confront the Unknown**\
 `Tales of otherworldly figures aren’t necessarily meant to frighten — they’re ways to explain the living’s unresolved matters of the heart.`\
-https://nytimes.com/2020/11/09/t-magazine/travel-issue-ghost-stories.html?searchResultPosition=4
+https://nytimes.com/2020/11/09/t-magazine/travel-issue-ghost-stories.html?searchResultPosition=5
 
 **Should C.E.O.s Keep Speaking Out?**\
 `They were increasingly outspoken in the Trump era. They may not be when Biden takes over.`\
-https://nytimes.com/2020/11/09/business/dealbook/ceos-trump-social-activism.html?searchResultPosition=5
-
-**Biden adds vaccine official fired by Trump to his Covid-19 panel.**\
-`By Michael D. Shear`\
-https://nytimes.com/2020/11/09/world/biden-adds-vaccine-official-fired-by-trump-to-his-covid-19-panel.html?searchResultPosition=6
+https://nytimes.com/2020/11/09/business/dealbook/ceos-trump-social-activism.html?searchResultPosition=6
 
 **For NASCAR, a Season of Change**\
 `To race during the pandemic, practices were eliminated and crews were limited. And the organization made a significant move by banning the Confederate flag from its properties.`\
