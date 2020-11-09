@@ -1,5 +1,5 @@
 **Thanksgiving Will Soon Empty Campuses. Will Students Bring Coronavirus Home?**\
-`Experts worry that some of the hundreds of thousands of departing students will be ‘little ticking time bombs.’`\
+`Experts worry that some of the hundreds of thousands of departing students will be “little ticking time bombs.”`\
 https://nytimes.com/2020/11/09/us/colleges-coronavirus-thanksgiving.html?searchResultPosition=1
 
 **Evo Morales Returns to Bolivia to Cheers — and Worries**\
