@@ -14,8 +14,8 @@ https://nytimes.com/2020/11/09/us/politics/biden-trump-concession.html?searchRes
 `Students and teachers are placing pads outside bathrooms as part of a grass-roots campaign to fight period poverty and to remove the stigma surrounding menstruation.`\
 https://nytimes.com/2020/11/09/world/asia/china-period-shame-universities.html?searchResultPosition=4
 
-**Pfizer’s Early Data Shows Vaccine Is More Than 90% Effective**\
-`Pfizer announced stunning early results from its coronavirus vaccine trial, cementing the lead in a frenzied global race that has unfolded at record-breaking speed.`\
+**Pfizer Stuns Experts With Early Data that Vaccine Is More Than 90% Effective**\
+`Pfizer announced positive early results from its coronavirus vaccine trial, cementing the lead in a frenzied global race that has unfolded at record-breaking speed.`\
 https://nytimes.com/2020/11/09/health/covid-vaccine-pfizer.html?searchResultPosition=5
 
 **The Biden Bump**\
