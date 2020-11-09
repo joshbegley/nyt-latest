@@ -11,7 +11,7 @@ https://nytimes.com/2020/11/09/t-magazine/leipzig-germany-travel-story.html?sear
 https://nytimes.com/2020/11/09/t-magazine/travel-issue-ghost-stories.html?searchResultPosition=3
 
 **Should C.E.O.s Keep Speaking Out?**\
-`Corporate leaders were increasingly outspoken in the Trump era. There is reason to think they may not be in a Biden one.`\
+`They were increasingly outspoken in the Trump era. They may not be when Biden takes over.`\
 https://nytimes.com/2020/11/09/business/dealbook/ceos-trump-social-activism.html?searchResultPosition=4
 
 **For NASCAR, a Season of Change**\
@@ -30,7 +30,7 @@ https://nytimes.com/2020/11/09/us/politics/biden-trump-concession.html?searchRes
 `Students and teachers are placing pads outside bathrooms as part of a grass-roots campaign to fight period poverty and to remove the stigma surrounding menstruation.`\
 https://nytimes.com/2020/11/09/world/asia/china-period-shame-universities.html?searchResultPosition=8
 
-**Pfizer Stuns Experts With Early Data that Vaccine Is More Than 90% Effective**\
+**Pfizer’s Early Data Shows Vaccine Is More Than 90% Effective**\
 `Pfizer announced positive early results from its coronavirus vaccine trial, cementing the lead in a frenzied global race that has unfolded at record-breaking speed.`\
 https://nytimes.com/2020/11/09/health/covid-vaccine-pfizer.html?searchResultPosition=9
 
