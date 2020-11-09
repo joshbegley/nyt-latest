@@ -1,4 +1,4 @@
-**Esper Is Out as Trump’s Defense Secretary**\
+**Trump Fires Mark Esper, His Defense Secretary**\
 `Mark T. Esper broke with President Trump in June over sending active-duty military troops to control demonstrations against police brutality.`\
 https://nytimes.com/2020/11/09/us/politics/esper-defense-secretary.html?searchResultPosition=1
 
