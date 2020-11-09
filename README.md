@@ -1,6 +1,6 @@
 **Businesses Trying to Rebound After Unrest Face a Challenge: Not Enough Insurance**\
 `Some activists have downplayed the damage to businesses from looting and arson in racial justice protests around the country. But some small entrepreneurs are struggling.`\
-https://nytimes.com/2020/11/09/business/businesses-trying-to-rebound-after-unrest-face-a-challenge-not-enough-insurance.html?searchResultPosition=1
+https://nytimes.com/2020/11/09/business/small-business-insurance-unrest-kenosha.html?searchResultPosition=1
 
 **McConnell Says Trump Has Right To Challenge Biden’s Election Victory**\
 `Senator Mitch McConnell, Republican of Kentucky, on Monday supported President Trump’s refusal to concede and argued Mr. Trump was “within his rights” to challenge the outcome.`\
