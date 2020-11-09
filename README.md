@@ -1,6 +1,6 @@
 **British Peer Criticized for Calling Kamala Harris ‘the Indian’**\
 `Lord Kilclooney, a member of the House of Lords, claimed not to know the vice president-elect’s name when he wrote the offending Twitter post.`\
-https://nytimes.com/2020/11/09/world/europe/british-peer-kilcooney-kamala-harris-indian.html?searchResultPosition=1
+https://nytimes.com/2020/11/09/world/europe/british-peer-kilclooney-kamala-harris-indian.html?searchResultPosition=1
 
 **12 Thanksgiving Desserts Worth Saving Room For**\
 `Here’s what you need to make the end of the meal shine.`\
