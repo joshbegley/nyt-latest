@@ -1,4 +1,4 @@
-**Alexander Hamilton, Enslaver? New Research Says Yes.**\
+**Alexander Hamilton, Enslaver? New Research Says Yes**\
 `A paper by a researcher at the Schuyler Mansion finds overlooked evidence in letters and Hamilton’s own account books indicating that he bought, sold and personally owned slaves.`\
 https://nytimes.com/2020/11/09/arts/alexander-hamilton-enslaver-research.html?searchResultPosition=1
 
