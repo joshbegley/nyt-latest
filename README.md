@@ -1,40 +1,40 @@
+**N.Y.P.D. Will No Longer Force Women to Remove Hijabs for Mug Shots**\
+`The Police Department agreed to change its policy and allow religious people to be photographed in head coverings so long as their faces were left unobstructed.`\
+https://nytimes.com/2020/11/09/nyregion/hijab-muslim-nypd-mugshot-scarves.html?searchResultPosition=1
+
 **Helping to Shape the Words of the President-Elect: A Presidential Historian**\
 `Jon Meacham, best known for writing about past presidents like Andrew Jackson and George Bush, has helped shape some of Joseph R. Biden Jr.’s most significant speeches.`\
-https://nytimes.com/2020/11/09/us/politics/jon-meacham-biden-speech.html?searchResultPosition=1
+https://nytimes.com/2020/11/09/us/politics/jon-meacham-biden-speech.html?searchResultPosition=2
 
 **Federal Reserve’s Emergency Loan Programs at Center of Political Fight**\
 `Democrats are eyeing the programs as a backup option if they can’t strike a deal to aid states and localities, and believe they may be needed to backstop markets. Republicans want them off the table.`\
-https://nytimes.com/2020/11/09/business/economy/federal-reserve-emergency-loans.html?searchResultPosition=2
+https://nytimes.com/2020/11/09/business/economy/federal-reserve-emergency-loans.html?searchResultPosition=3
 
 **U.A.E. Changes Laws to Attract Foreign Tourists and Investment**\
 `The United Arab Emirates is abolishing lenient sentences for so-called honor killings, loosening alcohol restrictions and lessening the sway of Islamic law over foreigners.`\
-https://nytimes.com/2020/11/09/world/middleeast/united-arab-emirates-laws-tourists.html?searchResultPosition=3
+https://nytimes.com/2020/11/09/world/middleeast/united-arab-emirates-laws-tourists.html?searchResultPosition=4
 
 **Mink and the Coronavirus: What We Know**\
 `Mink are the only animal known to both catch the virus from people and transmit it to them.`\
-https://nytimes.com/article/mink-coronavirus-mutation.html?searchResultPosition=4
+https://nytimes.com/article/mink-coronavirus-mutation.html?searchResultPosition=5
 
 **Jonathan Sacks, the U.K.’s Inclusive Former Chief Rabbi, Dies at 72**\
 `In writings and media appearances, he took a universalist view of religion in a multicultural world — a stance that could get him in hot water with conservatives.`\
-https://nytimes.com/2020/11/09/world/europe/jonathan-sacks-dead.html?searchResultPosition=5
+https://nytimes.com/2020/11/09/world/europe/jonathan-sacks-dead.html?searchResultPosition=6
 
 **Coronavirus Briefing: What Happened Today**\
 `The first significant sign that a coronavirus vaccine could actually work.`\
-https://nytimes.com/2020/11/09/us/coronavirus-today.html?searchResultPosition=6
+https://nytimes.com/2020/11/09/us/coronavirus-today.html?searchResultPosition=7
 
 **A Collective Sigh of Relief Pushes the Stock Market Up**\
 `News of Pfizer’s Covid-19 vaccine progress, and Joseph R. Biden Jr.’s victory, gave investors reason to cheer.`\
-https://nytimes.com/2020/11/09/business/stock-market-vaccine-election.html?searchResultPosition=7
+https://nytimes.com/2020/11/09/business/stock-market-vaccine-election.html?searchResultPosition=8
 
 **Sterling Brown Agrees to $750,000 Settlement in Lawsuit Against Milwaukee**\
 `The city would also have to admit wrongdoing in its arrest of the Milwaukee Bucks player, who sued the city after the police used a Taser to subdue him during a confrontation over a parking violation in 2018.`\
-https://nytimes.com/2020/11/09/us/sterling-brown-nba-settlement.html?searchResultPosition=8
+https://nytimes.com/2020/11/09/us/sterling-brown-nba-settlement.html?searchResultPosition=9
 
 **Trump Administration Removes Scientist in Charge of Assessing Climate Change**\
 `Michael Kuperberg was told he would no longer oversee the National Climate Assessment. The job is expected to go to a climate-change skeptic, according to people familiar with the changes.`\
-https://nytimes.com/2020/11/09/climate/michael-kuperberg-climate-assessment.html?searchResultPosition=9
-
-**Mitch McConnell, Vaccine, Stock Market: Your Monday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/11/09/briefing/mitch-mcconnellvaccine-stock-market.html?searchResultPosition=10
+https://nytimes.com/2020/11/09/climate/michael-kuperberg-climate-assessment.html?searchResultPosition=10
 
