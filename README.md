@@ -1,40 +1,40 @@
-**Trump Lost the Race. But Republicans Know It’s Still His Party.**\
-`Inside the Zoom salons, Senate-office conversations and 2024 jockeying that will shape the future of the G.O.P.`\
-https://nytimes.com/2020/11/09/us/politics/republican-party-trump.html?searchResultPosition=1
+**From Iraq, an Intimate Glimpse of the Religious Holiday of Arbaeen**\
+`Every year, millions of pilgrims descend on the central Iraqi city of Karbala to commemorate the Shiite holiday of Arbaeen, one of the largest organized gatherings in the world.`\
+https://nytimes.com/2020/11/09/travel/arbaeen-karbala-iraq.html?searchResultPosition=1
 
-**The Setups for Outdoor Winter Dining Are Lavish. But Are They Safe?**\
-`New York’s struggling restaurants will try to lure diners with chandeliers and space blankets — and enclosures that health experts worry could increase the virus risk.`\
-https://nytimes.com/2020/11/09/nyregion/nyc-outdoor-dining-winter.html?searchResultPosition=2
+**Indians Love Cadbury Chocolate. New Rivals Would Love to Woo Them Away.**\
+`In India and its diaspora, a new wave of small companies are using Diwali and its tradition of giving sweets to popularize a different kind of bar.`\
+https://nytimes.com/2020/11/09/dining/drinks/india-cadbury-chocolate-diwali.html?searchResultPosition=2
 
-**An Early Test for Biden: Managing a Divided Democratic Party**\
-`Moderates and progressives were mostly united during the campaign. Their deep differences will now present a significant challenge for the president-elect.`\
-https://nytimes.com/2020/11/09/us/politics/democrats-biden-win.html?searchResultPosition=3
+**The End of ‘America First’: How Biden Says He Will Re-engage With the World**\
+`Those who have known President-elect Joseph R. Biden Jr. for decades say they expect him to move carefully, providing reassurance with a few big symbolic acts.`\
+https://nytimes.com/2020/11/09/us/politics/biden-foreign-policy.html?searchResultPosition=3
 
-**How Democrats Missed Trump’s Appeal to Latino Voters**\
-`The election was a referendum on Trump’s America, but plenty of Latino voters liked it just fine.`\
-https://nytimes.com/2020/11/09/us/politics/how-democrats-missed-trumps-appeal-to-latino-voters.html?searchResultPosition=4
+**Even as Trump Cut Immigration, Immigrants Transformed U.S.**\
+`The past four years have seen a steep reduction in immigration. But the country is becoming ever more diverse.`\
+https://nytimes.com/2020/11/09/us/immigration-trump.html?searchResultPosition=4
 
-**Bryson DeChambeau’s Golf Revolution Turns Toward the Masters**\
-`DeChambeau aims to conquer genteel Augusta National with brute force. Given his play since bulking up over the past year, lots of golfers — and bettors — think he can.`\
-https://nytimes.com/2020/11/09/sports/golf/bryson-dechambeau-masters-augusta.html?searchResultPosition=5
+**What Makes Sand Soft?**\
+`Understanding how grains flow is vital for everything from landslide prediction to agricultural processing, and scientists aren’t very good at it.`\
+https://nytimes.com/2020/11/09/science/what-makes-sand-soft.html?searchResultPosition=5
 
-**Even With a New President, Sports at the White House Won’t Be the Same**\
-`The politicization of the ceremonial visit to the Rose Garden by champions is one sign the presidential connection to sports is fraught, maybe inalterably.`\
-https://nytimes.com/2020/11/09/sports/biden-sports-trump-protests.html?searchResultPosition=6
+**Old Dogs, New Research and the Secrets of Aging**\
+`The ways that dogs grow and age may provide potentially useful similarities with people.`\
+https://nytimes.com/2020/11/09/science/dogs-aging-behavior.html?searchResultPosition=6
 
-**Precious Achiuwa’s Journey May Finally Take Him to the N.B.A.**\
-`Achiuwa has gone from Nigeria to New York to Memphis, cultivating an “extreme level of versatility” in his game that is key to making it in today’s N.B.A.`\
-https://nytimes.com/2020/11/09/sports/basketball/precious-achiuwa-nba-draft.html?searchResultPosition=7
+**Is Xi Jinping Too Strong for China’s Good?**\
+`Unlike any Chinese leader since 1949, he has no identifiable rivals and no likely successors.`\
+https://nytimes.com/2020/11/09/opinion/xi-jinping-china-power.html?searchResultPosition=7
 
-**Shot to Prevent H.I.V. Works Better Than Daily Pill in Women**\
-`Researchers ended a clinical trial of the drug early because the results were so convincing. The more effective drug would be given in six injections a year instead of as 365 daily pills.`\
-https://nytimes.com/2020/11/09/health/HIV-shot-prep-women.html?searchResultPosition=8
+**While the Pandemic Wrecked Some Businesses, Others Did Fine. Even Great.**\
+`Third-quarter financial results suggest that strong companies have gotten stronger and that some others are in dire straits.`\
+https://nytimes.com/2020/11/09/business/economy/companies-profits-losses-coronavirus.html?searchResultPosition=8
 
-**Word + Quiz: brio**\
-`This word has appeared in 28 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/11/09/learning/word-quiz-brio.html?searchResultPosition=9
+**How to Protect America From the Next Donald Trump**\
+`The Constitution is supposed to protect us from demagogues. Can we make it work again?`\
+https://nytimes.com/2020/11/09/opinion/how-to-protect-america-from-the-next-donald-trump.html?searchResultPosition=9
 
-**What’s on TV This Week: ‘Industry’ and ‘Transhood’**\
-`A new drama follows graduates working in London’s banking world, an HBO documentary follows families raising transgender children, and Reba McEntire and Darius Rucker host the CMA Awards.`\
-https://nytimes.com/2020/11/09/arts/television/whats-on-tv-this-week-industry-and-transhood.html?searchResultPosition=10
+**Moving to New York to Start Their Dance Careers**\
+`Two recent college grads are working — and dancing — from their new Brooklyn home during the pandemic.`\
+https://nytimes.com/2020/11/09/realestate/moving-to-new-york-to-start-their-dance-careers.html?searchResultPosition=10
 
