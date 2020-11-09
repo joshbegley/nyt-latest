@@ -18,9 +18,9 @@ https://nytimes.com/video/us/politics/100000007445595/mcconnell-trump-biden-2020
 `The 2020 election was the biggest test yet of a new approach of pre-emptive action against adversaries trying to hack election infrastructure or wage disinformation campaigns.`\
 https://nytimes.com/2020/11/09/us/politics/cyberattacks-2020-election.html?searchResultPosition=5
 
-**Facing runoffs, Georgia’s senators ask top elections official to step down. ‘Not going to happen,’ he replies.**\
+**Facing runoffs, Georgia’s Republican senators ask the state’s top elections official, also a Republican, to step down.**\
 `By Rick Rojas and Emily Cochrane`\
-https://nytimes.com/2020/11/09/us/politics/facing-runoffs-georgias-senators-ask-top-elections-official-to-step-down-not-going-to-happen-he-replies.html?searchResultPosition=6
+https://nytimes.com/2020/11/09/us/politics/facing-runoffs-georgias-republican-senators-ask-the-states-top-elections-official-also-a-republican-to-step-down.html?searchResultPosition=6
 
 **Roger Ryman, a ‘Real-Life’ Cowboy From Nebraska, Dies at 70**\
 `After working summers at the family ranch, he decided to saddle up as a job, turning to selling real estate later in life. He died of Covid-19.`\
