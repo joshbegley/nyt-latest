@@ -14,7 +14,7 @@ https://nytimes.com/2020/11/08/business/media/trump-maggie-haberman.html?searchR
 `Two employees of Virgin Hyperloop traveled on a small system the company has built near Las Vegas, the first such manned test.`\
 https://nytimes.com/2020/11/08/business/virgin-hyperloop-passenger-test.html?searchResultPosition=4
 
-**A ‘Terrifying’ Covid Surge Will Land in Biden’s Lap**\
+**A ‘Terrifying’ Coronavirus Surge Will Land in Biden’s Lap**\
 `Total coronavirus cases in the U.S. surpassed 10 million on Sunday. Experts say the virus is spreading out of control and could grow worse before President-elect Biden takes office.`\
 https://nytimes.com/2020/11/08/us/covid-united-states-joseph-biden.html?searchResultPosition=5
 
