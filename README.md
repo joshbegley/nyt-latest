@@ -22,19 +22,19 @@ https://nytimes.com/2020/11/09/us/politics/inauguration-biden-harris.html?search
 `Can you find Liechtenstein on a map? What else do you know about this small European nation?`\
 https://nytimes.com/interactive/2020/11/09/learning/Liechtenstein-Geography-Quiz.html?searchResultPosition=6
 
-**Financial world cheers the election result (and the tax increases it may impede).**\
-`By Kate Kelly`\
-https://nytimes.com/2020/11/09/business/financial-world-cheers-the-election-result-and-the-tax-increases-it-may-impede.html?searchResultPosition=7
-
 **How New York Reacted to Biden’s Win**\
 `In heavily Democratic New York City, Joseph R. Biden Jr.’s victory over President Trump  predictably drew jubilation.`\
-https://nytimes.com/2020/11/09/nyregion/newyorktoday/how-new-york-reacted-to-bidens-win.html?searchResultPosition=8
+https://nytimes.com/2020/11/09/nyregion/newyorktoday/how-new-york-reacted-to-bidens-win.html?searchResultPosition=7
 
 **From Iraq, an Intimate Glimpse of the Religious Holiday of Arbaeen**\
 `Every year, millions of pilgrims descend on the central Iraqi city of Karbala to commemorate the Shiite holiday of Arbaeen, one of the largest organized gatherings in the world.`\
-https://nytimes.com/2020/11/09/travel/arbaeen-karbala-iraq.html?searchResultPosition=9
+https://nytimes.com/2020/11/09/travel/arbaeen-karbala-iraq.html?searchResultPosition=8
 
 **Indians Love Cadbury Chocolate. New Rivals Would Love to Woo Them Away.**\
 `In India and its diaspora, a new wave of small companies are using Diwali and its tradition of giving sweets to popularize a different kind of bar.`\
-https://nytimes.com/2020/11/09/dining/drinks/india-cadbury-chocolate-diwali.html?searchResultPosition=10
+https://nytimes.com/2020/11/09/dining/drinks/india-cadbury-chocolate-diwali.html?searchResultPosition=9
+
+**The End of ‘America First’: How Biden Says He Will Re-engage With the World**\
+`Those who have known President-elect Joseph R. Biden Jr. for decades say they expect him to move carefully, providing reassurance with a few big symbolic acts.`\
+https://nytimes.com/2020/11/09/us/politics/biden-foreign-policy.html?searchResultPosition=10
 
