@@ -1,40 +1,40 @@
+**Angela Merkel Congratulates Biden and Harris**\
+`Chancellor Angela Merkel of Germany welcomed the prospect of a new administration in Washington, striking a note of personal affection for Joseph R. Biden Jr. and Senator Kamala Harris.`\
+https://nytimes.com/video/us/politics/100000007444604/merkel-biden-harris.html?searchResultPosition=1
+
 **$1.7 Million Homes in California**\
 `An Edwardian home in San Francisco, a Spanish-style house in San Diego and a three-bedroom beachside condominium in Malibu.`\
-https://nytimes.com/2020/11/09/realestate/home-prices-california.html?searchResultPosition=1
+https://nytimes.com/2020/11/09/realestate/home-prices-california.html?searchResultPosition=2
 
 **What You Get for $1.7 Million in California**\
 `An Edwardian home in San Francisco, a Spanish-style house in San Diego and a three-bedroom beachside condominium in Malibu.`\
-https://nytimes.com/slideshow/2020/11/09/realestate/what-you-get-for-1-7-million-in-california.html?searchResultPosition=2
+https://nytimes.com/slideshow/2020/11/09/realestate/what-you-get-for-1-7-million-in-california.html?searchResultPosition=3
 
 **Virus Cases Spike Again in N.Y.C. as New Restrictions Are Considered**\
 `The surge could threaten the city’s halting recovery, including its success at reopening public schools and allowing limited indoor dining.`\
-https://nytimes.com/2020/11/09/nyregion/nyc-virus-spike.html?searchResultPosition=3
+https://nytimes.com/2020/11/09/nyregion/nyc-virus-spike.html?searchResultPosition=4
 
 **Kamala Harris Makes California History**\
 `Monday: The senator is the first Democrat from the Golden State to win on a national presidential ticket.`\
-https://nytimes.com/2020/11/09/us/kamala-harris-california-history.html?searchResultPosition=4
+https://nytimes.com/2020/11/09/us/kamala-harris-california-history.html?searchResultPosition=5
 
 **An Artist’s Continuing Exploration of the Human Form**\
 `Almost 50 years after the debut of her arresting womb-like sculptures, Senga Nengudi is still challenging what it means to live in a body, especially when that body is Black and female.`\
-https://nytimes.com/2020/11/09/t-magazine/senga-nengudi-art.html?searchResultPosition=5
+https://nytimes.com/2020/11/09/t-magazine/senga-nengudi-art.html?searchResultPosition=6
 
 **A Haunting Tale of Spies and Specters**\
 `In this short story written exclusively for T, the ghost of a former North Korean diplomat finds his way back to Leipzig, Germany, and to the woman he once loved.`\
-https://nytimes.com/2020/11/09/t-magazine/leipzig-germany-travel-story.html?searchResultPosition=6
+https://nytimes.com/2020/11/09/t-magazine/leipzig-germany-travel-story.html?searchResultPosition=7
 
 **In Strange Times, Eerie Stories Confront the Unknown**\
 `Tales of otherworldly figures aren’t necessarily meant to frighten — they’re ways to explain the living’s unresolved matters of the heart.`\
-https://nytimes.com/2020/11/09/t-magazine/travel-issue-ghost-stories.html?searchResultPosition=7
+https://nytimes.com/2020/11/09/t-magazine/travel-issue-ghost-stories.html?searchResultPosition=8
 
 **Should C.E.O.s Keep Speaking Out?**\
 `They were increasingly outspoken in the Trump era. They may not be when Biden takes over.`\
-https://nytimes.com/2020/11/09/business/dealbook/ceos-trump-social-activism.html?searchResultPosition=8
+https://nytimes.com/2020/11/09/business/dealbook/ceos-trump-social-activism.html?searchResultPosition=9
 
 **For NASCAR, a Season of Change**\
 `To race during the pandemic, practices were eliminated and crews were limited. And the organization made a significant move by banning the Confederate flag from its properties.`\
-https://nytimes.com/2020/11/09/sports/autoracing/nascar-chase-elliott.html?searchResultPosition=9
-
-**Apple Puts Key Contractor on Probation Over Labor Abuses in China**\
-`The technology giant said it had suspended future business with the iPhone assembler Pegatron pending corrective actions. The Taiwanese manufacturer broke rules limiting student employee work hours.`\
-https://nytimes.com/2020/11/09/business/apple-china-pegatron.html?searchResultPosition=10
+https://nytimes.com/2020/11/09/sports/autoracing/nascar-chase-elliott.html?searchResultPosition=10
 
