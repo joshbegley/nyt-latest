@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/08/us/trump-biden-voters.html?searchResultPosition=1
 https://nytimes.com/2020/11/08/world/asia/myanmar-elections.html?searchResultPosition=2
 
 **The Trump Presidency Is Ending. So Is Maggie Haberman’s Wild Ride.**\
-`For the last four years, The Times reporter has been the human incarnation of a nation riveted, like it or not, by Donald Trump.`\
+`For the last four years, the Times reporter has been the human incarnation of a nation riveted, like it or not, by Donald Trump.`\
 https://nytimes.com/2020/11/08/business/media/trump-maggie-haberman.html?searchResultPosition=3
 
 **A Step Forward in the Promise of Ultrafast ‘Hyperloops’**\
