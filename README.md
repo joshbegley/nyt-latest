@@ -1,5 +1,5 @@
 **Greg Clarke, England’s F.A. Chief, Quits After Disastrous Testimony**\
-`In comments to a parliamentary committee, the chairman of England’s soccer association spoke in stereotypes about Blacks, Asians, girls and others. By the end of the day, he had resigned.`\
+`In comments to a parliamentary committee, the chairman of England’s soccer association spoke in stereotypes about Black and Asian people, girls and others. By the end of the day, he had resigned.`\
 https://nytimes.com/2020/11/10/sports/soccer/greg-clarke-england-FA.html?searchResultPosition=1
 
 **Ariana Grande, a Pop Star for the Post-Pop Star Age**\
