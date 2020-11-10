@@ -6,7 +6,7 @@ https://nytimes.com/2020/11/10/briefing/pfizer-vaccine-mark-esper-azerbaijan.htm
 `The government of the South American country offered little explanation as to why it had abruptly stopped testing a promising coronavirus shot that thousands of people have already received.`\
 https://nytimes.com/2020/11/10/world/asia/brazil-china-vaccine-covid19.html?searchResultPosition=2
 
-**Amazon Faces E.U. Antitrust Charges**\
+**Amazon Charged With Antitrust Violations by European Regulators**\
 `Margrethe Vestager, a European Commission vice president, said Amazon was unfairly using data to box out smaller competitors.`\
 https://nytimes.com/2020/11/10/business/amazon-eu-antitrust.html?searchResultPosition=3
 
