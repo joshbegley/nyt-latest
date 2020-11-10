@@ -30,8 +30,8 @@ https://nytimes.com/2020/11/10/opinion/berlusconi-italy-trump.html?searchResultP
 `On Saturday, after Joe Biden’s victory was announced, what spilled out of bodies and into cities was an expression of churning emotion.`\
 https://nytimes.com/2020/11/10/arts/dance/biden-election-victory-dancing.html?searchResultPosition=8
 
-**Van Duyne, a Republican, Wins Texas House Seat, Limiting Democratic Gains**\
-`Beth Van Duyne’s victory in a suburban Dallas district dealt a blow to Democrats’ efforts to build a second consecutive liberal wave through once reliably conservative areas.`\
+**Van Duyne Wins Texas House Seat, in Another Lost Chance for Democrats**\
+`Beth Van Duyne’s victory in a suburban Dallas district helped hold a crucial Republican seat as her party fought to add to its numbers in Congress.`\
 https://nytimes.com/2020/11/10/us/politics/texas-house-beth-van-duyne.html?searchResultPosition=9
 
 **Before Harris, This Vice President Broke a Racial Barrier**\
