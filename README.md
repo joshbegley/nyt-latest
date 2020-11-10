@@ -1,40 +1,40 @@
+**Suspect in 1972 Murder Dies in Apparent Suicide Hours Before Conviction**\
+`Detectives used genetic genealogy to connect Terrence Williams to the killing of Jody Loomis outside Seattle. He was charged last year.`\
+https://nytimes.com/2020/11/09/us/terrence-miller-suicide.html?searchResultPosition=1
+
 **Theta Forms as Season’s 29th Named Storm, Breaking a Record**\
 `The arrival of Theta broke the annual record for the number of storms strong enough to be given names. That benchmark was set in 2005, the year Hurricane Katrina hit the Gulf Coast.`\
-https://nytimes.com/2020/11/09/climate/atlantic-hurricane-season-record.html?searchResultPosition=1
+https://nytimes.com/2020/11/09/climate/atlantic-hurricane-season-record.html?searchResultPosition=2
 
 **Your Tuesday Briefing**\
 `Promising results from Pfizer’s vaccine trial.`\
-https://nytimes.com/2020/11/09/briefing/your-tuesday-briefing.html?searchResultPosition=2
+https://nytimes.com/2020/11/09/briefing/your-tuesday-briefing.html?searchResultPosition=3
 
 **Corrections: Nov. 10, 2020**\
 `Corrections that appeared in print on Tuesday, Nov. 10, 2020.`\
-https://nytimes.com/2020/11/09/pageoneplus/corrections-nov-10-2020.html?searchResultPosition=3
+https://nytimes.com/2020/11/09/pageoneplus/corrections-nov-10-2020.html?searchResultPosition=4
 
 **Quotation of the Day: New Restrictions Loom as Possible 2nd Wave Is ‘Dangerously Close’**\
 `Quotation of the Day for Tuesday, November 10, 2020.`\
-https://nytimes.com/2020/11/09/todayspaper/quotation-of-the-day-new-restrictions-loom-as-possible-2nd-wave-is-dangerously-close.html?searchResultPosition=4
+https://nytimes.com/2020/11/09/todayspaper/quotation-of-the-day-new-restrictions-loom-as-possible-2nd-wave-is-dangerously-close.html?searchResultPosition=5
 
 **Biden Video Uses Artist’s Vision to Project a Unified Country**\
 `This postelection campaign offering employs Lorraine O’Grady’s concept of placing people inside frames to promote images of an inclusive, diverse America.`\
-https://nytimes.com/2020/11/09/arts/biden-unity-video-uses-artists-vision.html?searchResultPosition=5
+https://nytimes.com/2020/11/09/arts/biden-unity-video-uses-artists-vision.html?searchResultPosition=6
 
 **Maybe Just Get the Turkey Leg This Year**\
 `Dickson’s Farmstand Meats in Chelsea Market now sells turkey leg confit, for an understated, but festive celebration.`\
-https://nytimes.com/2020/11/09/dining/turkey-leg-confit-dicksons.html?searchResultPosition=6
+https://nytimes.com/2020/11/09/dining/turkey-leg-confit-dicksons.html?searchResultPosition=7
 
 **Barr Hands Prosecutors the Authority to Investigate Voter Fraud Claims**\
 `The attorney general said that he had authorized “instances” of investigative steps but that inquiries should not be based on specious claims.`\
-https://nytimes.com/2020/11/09/us/politics/barr-elections.html?searchResultPosition=7
+https://nytimes.com/2020/11/09/us/politics/barr-elections.html?searchResultPosition=8
 
 **A Sparkling Dessert Collaboration**\
 `Jeni’s Splendid Ice Creams and Chandon have teamed up on a new sparkling berry punch sorbet for the holidays.`\
-https://nytimes.com/2020/11/09/dining/jenis-sparkling-berry-punch-chandon.html?searchResultPosition=8
+https://nytimes.com/2020/11/09/dining/jenis-sparkling-berry-punch-chandon.html?searchResultPosition=9
 
 **An Ancient Grain Flour for Your Pie Crust**\
 `This gluten-free flour from the chef Thomas Keller’s company can be used, as the brand says, measure for measure.`\
-https://nytimes.com/2020/11/09/dining/cup4cup-ancient-grains-flour.html?searchResultPosition=9
-
-**Eli Lilly’s Antibody Treatment Gets Emergency F.D.A. Approval**\
-`The authorization raised immediate questions about who would get access to the antibody treatments, which are in short supply.`\
-https://nytimes.com/2020/11/09/health/covid-antibody-treatment-eli-lilly.html?searchResultPosition=10
+https://nytimes.com/2020/11/09/dining/cup4cup-ancient-grains-flour.html?searchResultPosition=10
 
