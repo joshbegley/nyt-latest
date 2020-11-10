@@ -20,7 +20,7 @@ https://nytimes.com/2020/11/10/us/politics/texas-house-beth-van-duyne.html?searc
 
 **Before Harris, This Vice President Broke a Racial Barrier**\
 `Charles Curtis, who served as vice president from 1929 to 1933, grew up in part on Kanza land and spoke proudly of his Native American ancestry.`\
-https://nytimes.com/2020/11/10/us/charles-curtis-vice-president.html?searchResultPosition=6
+https://nytimes.com/2020/11/10/us/politics/charles-curtis-vice-president.html?searchResultPosition=6
 
 **The Husband-and-Wife Team Behind the Leading Vaccine to Solve Covid-19**\
 `The German company BioNTech, founded by two scientists, has teamed up with Pfizer on a vaccine that was found to be more than 90 percent effective.`\
