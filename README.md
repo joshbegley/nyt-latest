@@ -1,5 +1,5 @@
 **New Type of Test May Better Discern Immunity to the Coronavirus**\
-`The test detects the response of T cells to the virus — an arm of the immune system that may be just as important as antibodies to preventing re-infection.`\
+`The test detects the response of T cells to the virus — an arm of the immune system that may be just as important as antibodies to preventing reinfection.`\
 https://nytimes.com/2020/11/10/health/t-cell-test-coronavirus-immunity.html?searchResultPosition=1
 
 **Met Museum Board Will Have Two Leaders for the First Time**\
