@@ -16,7 +16,7 @@ https://nytimes.com/2020/11/10/podcasts/the-daily/election-polls-biden-trump.htm
 
 **Is a Second Wave Starting in N.Y.C.?**\
 `There's an alarming trend in the city: Coronavirus cases are on the rise as winter nears. The mayor is warning of tighter restrictions.`\
-https://nytimes.com/2020/11/10/nyregion/coronavirus-nyc.html?searchResultPosition=5
+https://nytimes.com/2020/11/10/nyregion/second-coronavirus-wave-.html?searchResultPosition=5
 
 **‘The Arrest,’ by Jonathan Lethem: An Excerpt**\
 `An excerpt from “The Arrest,” by Jonathan Lethem`\
