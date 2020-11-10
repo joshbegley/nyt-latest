@@ -30,7 +30,7 @@ https://nytimes.com/2020/11/09/technology/no-software-glitches-are-not-affecting
 `The presidential race in Arizona remains close, but Joseph R. Biden Jr. was able to draw voters in Phoenix who could help him flip the state.`\
 https://nytimes.com/interactive/2020/11/09/us/arizona-election-battleground-state-counties.html?searchResultPosition=8
 
-**A Trump Appointee Stands Between Biden’s Team and a Smooth Transition**\
+**Trump Appointee Stands Between Biden’s Team and a Smooth Transition**\
 `Emily W. Murphy, the administrator of the General Services Administration, must formally recognize President-elect Joseph R. Biden Jr. for the transfer of power to begin.`\
 https://nytimes.com/2020/11/09/us/politics/trump-biden-transition.html?searchResultPosition=9
 
