@@ -8,7 +8,7 @@ https://nytimes.com/2020/11/10/t-magazine/berlin-treehouses.html?searchResultPos
 
 **Armenians Erupt in Fury Over Bitter Defeat in Nagorno-Karabakh War**\
 `As Russian peacekeepers deployed to enforce a lopsided peace agreement, Azerbaijanis were savoring their country’s triumph.`\
-https://nytimes.com/2020/11/10/world/europe/armenia-azerbaijan-nagorno-karabakh-russia.html?searchResultPosition=3
+https://nytimes.com/2020/11/10/world/europe/armenia-azerbaijan-nagorno-karabakh.html?searchResultPosition=3
 
 **How to Give Guests an Active Role in Your Virtual Wedding**\
 `Here are a few creative ways to connect with your remote guests and integrate them into your celebration during the pandemic.`\
