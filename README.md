@@ -1,40 +1,40 @@
-**Saeb Erekat, Longtime Palestinian Chief Negotiator, Dies at 65**\
-`A passionate champion of Palestinian statehood, his goal seemed to become less attainable with time.`\
-https://nytimes.com/2020/11/10/world/middleeast/saeb-erekat-palestinian-negotiator-dead.html?searchResultPosition=1
+**‘The Arrest,’ by Jonathan Lethem: An Excerpt**\
+`An excerpt from “The Arrest,” by Jonathan Lethem`\
+https://nytimes.com/2020/11/10/books/review/the-arrest-by-jonathan-lethem-an-excerpt.html?searchResultPosition=1
 
-**Who Would Rig This Vote? The Fraud Was Real (and Feathers Were Ruffled)**\
-`More than 1,500 fake votes were slipped into New Zealand’s Bird of the Year 2020 contest in favor of the kiwi pukupuku.`\
-https://nytimes.com/2020/11/10/world/asia/voter-fraud-birds.html?searchResultPosition=2
+**‘Lightning Flowers: My Journey to Uncover the Cost of Saving a Life,’ by Katherine E. Standefer: An Excerpt**\
+`An excerpt from “Lightning Flowers: My Journey to Uncover the Cost of Saving a Life,” by Katherine E. Standefer`\
+https://nytimes.com/2020/11/10/books/review/lightning-flowers-my-journey-to-uncover-the-cost-of-saving-a-life-by-katherine-e-standefer-an-excerpt.html?searchResultPosition=2
 
-**Seth Meyers Celebrates Election Results Coming Up Biden**\
-`“You know you were a bad president when people were celebrating an old white centrist like he was the sunset at Burning Man,” the “Late Night” host joked of President Trump’s loss.`\
-https://nytimes.com/2020/11/10/arts/television/seth-meyers-biden-election.html?searchResultPosition=3
+**‘Loved and Wanted: A Memoir of Choice, Children, and Womanhood,’ by Christa Parravani: An Excerpt**\
+`An excerpt from “Loved and Wanted: A Memoir of Choice, Children, and Womanhood,” by Christa Parravani`\
+https://nytimes.com/2020/11/10/books/review/loved-and-wanted-a-memoir-of-choice-children-and-womanhood-by-christa-parravani-an-excerpt.html?searchResultPosition=3
 
-**Could Listening to the Deep Sea Help Save It?**\
-`In the abyss, everyone can hear you scream.`\
-https://nytimes.com/2020/11/10/science/deep-sea-marine-biology-acoustics.html?searchResultPosition=4
+**How Biden Can Rule America in Spite of Everything**\
+`It won’t be easy, but coming after a self-styled “disrupter” opens up its own possibilities.`\
+https://nytimes.com/2020/11/10/opinion/biden-president-elect-trump.html?searchResultPosition=4
 
-**Count Tiger Woods Out? Not at Augusta National**\
-`Woods’s 2019 Masters win was one of the most dramatic revivals in sports. Despite his back pain and the tournament’s odd November start, most expect him to contend for a record-tying sixth victory.`\
-https://nytimes.com/2020/11/10/sports/golf/tiger-woods-masters-tournament-augusta.html?searchResultPosition=5
+**A Dining Room That Celebrates Every Meal**\
+`Even with a socially distant Thanksgiving around the corner, you can create a dining room that lives up to the food you’re serving.`\
+https://nytimes.com/2020/11/10/realestate/a-dining-room-that-celebrates-every-meal.html?searchResultPosition=5
 
-**Brain Scientists Explore the How of When**\
-`A new study offers the strongest evidence yet of “time cells” in the brain.`\
-https://nytimes.com/2020/11/10/science/brain-time-neuroscience.html?searchResultPosition=6
+**After Trump’s Tariffs and Insults, Canada Is Relieved at Biden’s Win**\
+`Joseph R. Biden Jr. and Kamala Harris both have warm ties to Canada, and are more in line with Canadian views on issues like climate change.`\
+https://nytimes.com/2020/11/10/world/americas/canada-relieved-trump-biden.html?searchResultPosition=6
 
-**Hong Kong Protest Icon Mysteriously Vanished. Then She Returned Unbowed.**\
-`Alexandra Wong, 64, better known as “Grandma Wong,” said she had been detained by the Chinese authorities and made to pledge she would stop protesting.`\
-https://nytimes.com/2020/11/10/world/asia/hong-kong-grandma-wong-arrest-protests.html?searchResultPosition=7
+**Travel and Coronavirus Testing: Your Questions Answered**\
+`Taking a test is the best way to assure yourself and others that you aren’t spreading the virus. Here’s what you need to know.`\
+https://nytimes.com/2020/11/10/travel/virus-covid-travel-questions.html?searchResultPosition=7
 
-**Marty, Longtime Mascot of Mount Washington Observatory, Dies**\
-`“He might love you one week and the next week, he wouldn’t come near you,” said an observatory official. “Typical cat.”`\
-https://nytimes.com/2020/11/10/us/mount-washington-marty-cat-dead.html?searchResultPosition=8
+**Back to the Office: Tough Call for Workers, and for the Boss**\
+`A toy company owner decided the benefits of having everyone together, with safeguards, outweighed the risks. Some were readier than others to return.`\
+https://nytimes.com/2020/11/10/business/economy/coronavirus-office.html?searchResultPosition=8
 
-**Trump Plans PAC in Hopes of Keeping Hold on G.O.P.**\
-`The PAC could accept donations from an unlimited number of people and spend to benefit other candidates, allowing the president to retain influence in a party remade largely in his image.`\
-https://nytimes.com/2020/11/09/us/politics/trump-pac.html?searchResultPosition=9
+**The Races That Haven’t Been Called**\
+`Because so many mail ballots still need to be counted, we don’t yet know who won a lot of congressional races.`\
+https://nytimes.com/2020/11/10/us/politics/what-races-have-not-been-called.html?searchResultPosition=9
 
-**India’s Modi Faces Chance of Another Electoral Setback, This Time in Bihar**\
-`In a state election widely seen as a referendum on the government’s Covid-19 response, exit polls strongly favored a political coalition led by the 31-year-old son of two former chief ministers.`\
-https://nytimes.com/2020/11/09/world/asia/india-bihar-election.html?searchResultPosition=10
+**Supreme Court to Hear Arguments on Fate of Affordable Care Act**\
+`A transformed court, with a six-justice conservative majority, will take a new look at the sprawling health care law.`\
+https://nytimes.com/2020/11/10/us/supreme-court-obamacare-aca.html?searchResultPosition=10
 
