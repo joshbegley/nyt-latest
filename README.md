@@ -31,7 +31,7 @@ https://nytimes.com/2020/11/09/us/politics/trump-pac.html?searchResultPosition=7
 https://nytimes.com/2020/11/09/world/asia/india-bihar-election.html?searchResultPosition=8
 
 **Suspect in 1972 Murder Dies in Apparent Suicide Hours Before Conviction**\
-`Detectives used genetic genealogy to connect Terrence Williams to the killing of Jody Loomis outside Seattle. He was charged last year.`\
+`Detectives used genetic genealogy to connect Terrence Miller to the killing of Jody Loomis outside Seattle. He was charged last year.`\
 https://nytimes.com/2020/11/09/us/terrence-miller-suicide.html?searchResultPosition=9
 
 **Theta Forms as Season’s 29th Named Storm, Breaking a Record**\
