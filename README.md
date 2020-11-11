@@ -26,7 +26,7 @@ https://nytimes.com/2020/11/11/science/coronavirus-navy-parris-roosevelt.html?se
 `Chancellor Sebastian Kurz announced a set of legislative proposals that would make it easier to keep terrorists behind bars, close mosques and clamp down on funding for terrorists.`\
 https://nytimes.com/2020/11/11/world/europe/austria-kurz-terrorism.html?searchResultPosition=7
 
-**19% Test Positive as Outbreak Accelerates in N.J.’s Largest City**\
+**19% Positivity Rate as Outbreak Accelerates in N.J.’s Largest City**\
 `After nearly one in five residents who were tested over three days last week were found to have the coronavirus, Newark announced a set of strict new rules.`\
 https://nytimes.com/2020/11/11/nyregion/nj-newark-coronavirus-curfew.html?searchResultPosition=8
 
