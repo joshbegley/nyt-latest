@@ -22,7 +22,7 @@ https://nytimes.com/2020/11/11/world/asia/myanmar-election-aung-san-suu-kyi-resu
 `And what else you need to know today.`\
 https://nytimes.com/2020/11/11/briefing/obamacare-theodore-mccarrick-vaccine.html?searchResultPosition=6
 
-**The Battle for the Senate**\
+**The (Unfinished) Battle for the Senate**\
 `Democrats were optimistic about gaining control of the upper chamber, but it didn’t pan out that way. Now, a pair of races in Georgia will determine the balance of power in Washington.`\
 https://nytimes.com/2020/11/11/podcasts/the-daily/election-georgia-senate-race.html?searchResultPosition=7
 
