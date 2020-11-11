@@ -1,40 +1,40 @@
+**How the Carolina Panthers Can Make the Playoffs: Through Week 9**\
+`The Panthers have a 4% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/carolina-panthers-nfl-playoff-picture.html?searchResultPosition=1
+
+**How the Green Bay Packers Can Make the Playoffs: Through Week 9**\
+`The Packers now have a 93% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/green-bay-packers-nfl-playoff-picture.html?searchResultPosition=2
+
+**How the Denver Broncos Can Make the Playoffs: Through Week 9**\
+`The Broncos now have only a 6% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/denver-broncos-nfl-playoff-picture.html?searchResultPosition=3
+
+**How the Cincinnati Bengals Can Make the Playoffs: Through Week 9**\
+`The Bengals have a 2% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/cincinnati-bengals-nfl-playoff-picture.html?searchResultPosition=4
+
+**How the Arizona Cardinals Can Make the Playoffs: Through Week 9**\
+`The Cardinals now have a 65% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/arizona-cardinals-nfl-playoff-picture.html?searchResultPosition=5
+
+**N.F.L. Playoff Picture: Each Team’s Playoff Chances**\
+`An interactive calculator that lets you explore every team’s path to the N.F.L. playoffs.`\
+https://nytimes.com/interactive/2020/upshot/nfl-playoff-picture.html?searchResultPosition=6
+
+**How the New England Patriots Can Make the Playoffs: Through Week 9**\
+`The Patriots now have a 9% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/new-england-patriots-nfl-playoff-picture.html?searchResultPosition=7
+
 **Drudge Report, a Former Trump Ally, Looks to Biden**\
 `Matt Drudge and Donald Trump boosted each other four years ago. Now his site says, in prominent type, “The World Moves On.”`\
-https://nytimes.com/2020/11/11/business/media/drudge-report-trump-biden.html?searchResultPosition=1
+https://nytimes.com/2020/11/11/business/media/drudge-report-trump-biden.html?searchResultPosition=8
 
 **Hong Kong Pro-Democracy Lawmakers Vow to Resign**\
 `China ousted four Hong Kong pro-democracy lawmakers from the Legislature Wednesday, prompting the 15 others remaining in the opposition to vow to resign en masse in solidarity.`\
-https://nytimes.com/video/world/asia/100000007449170/hong-kong-pro-democracy-lawmakers.html?searchResultPosition=2
+https://nytimes.com/video/world/asia/100000007449170/hong-kong-pro-democracy-lawmakers.html?searchResultPosition=9
 
 **Thousands of Uncounted Votes Found a Week After Election in Puerto Rico**\
 `Nearly 200 boxes of uncounted votes have surfaced, potentially affecting the outcome of several close races across the island.`\
-https://nytimes.com/2020/11/11/us/puerto-rico-ballots.html?searchResultPosition=3
-
-**‘Transhood’ Review: Five Years Pass as Transgender Kids Grow Up**\
-`This HBO documentary follows the lives and trajectories of four transgender and gender-nonconforming children in Kansas City.`\
-https://nytimes.com/2020/11/11/movies/transhood-review.html?searchResultPosition=4
-
-**Tweets from Biden aide show campaign’s frustration with Facebook.**\
-`The campaign has urged the company to more aggressively police misinformation for more than a year.`\
-https://nytimes.com/2020/11/11/technology/tweets-from-biden-aide-show-campaigns-frustration-with-facebook.html?searchResultPosition=5
-
-**Archaeologists Discover Viking Age Ship Burial in Norway**\
-`Using ground-penetrating radar, a team of archaeologists made the discovery in southeastern Norway. Once excavated, the findings could offer insight into Viking settlements.`\
-https://nytimes.com/2020/11/11/world/europe/viking-discovery.html?searchResultPosition=6
-
-**Georgia Authorizes Hand Recount for Presidential Race**\
-`Brad Raffensperger, Georgia’s Republican secretary of state, announced Wednesday that “with the margin being so close” he has authorized a hand recount of the state’s election.`\
-https://nytimes.com/video/us/elections/100000007449086/georgia-presidential-race-hand-recount.html?searchResultPosition=7
-
-**U.S. Embassy in Pakistan Apologizes for Retweeting Anti-Trump Post**\
-`The American diplomatic mission in Islamabad said its account had been used “without authorization” to forward a message citing the presidential election result as a blow to demagogues and dictators.`\
-https://nytimes.com/2020/11/11/world/asia/pakistan-embassy-retweet.html?searchResultPosition=8
-
-**The New Rules of Virtual Wedding Gifting**\
-`Do you still have to give a gift at a Zoom wedding? Experts say yes, but it doesn’t have to break the bank.`\
-https://nytimes.com/2020/11/11/fashion/weddings/the-new-rules-of-virtual-wedding-gifting.html?searchResultPosition=9
-
-**Warming May Make Hurricanes Weaken More Slowly After Landfall**\
-`New research suggests that climate change may be causing storms to retain destructive power for longer after moving inland.`\
-https://nytimes.com/2020/11/11/climate/hurricanes-climate-change-patterns.html?searchResultPosition=10
+https://nytimes.com/2020/11/11/us/puerto-rico-ballots.html?searchResultPosition=10
 
