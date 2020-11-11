@@ -12,7 +12,7 @@ https://nytimes.com/slideshow/2020/11/11/realestate/what-you-get-for-225000.html
 
 **The Election’s Over, but Not the Stress. Any Edibles Left?**\
 `Sales surged as people turned to gummy bears, cookies and chocolates infused with cannabis to soothe their jitters.`\
-https://nytimes.com/2020/11/11/technology/the-elections-over-but-not-the-stress-any-edibles-left.html?searchResultPosition=4
+https://nytimes.com/2020/11/11/technology/election-anxiety-cannabis-edibles.html?searchResultPosition=4
 
 **The Fashion Photographer Who Traded Film for Flour**\
 `Six years ago, Norman Jean Roy walked away from his career behind the camera. These days, he’s baking bread.`\
