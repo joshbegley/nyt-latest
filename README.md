@@ -22,8 +22,8 @@ https://nytimes.com/2020/11/10/us/indianapolis-dreasjon-reed.html?searchResultPo
 `Quotation of the Day for Wednesday, November 11, 2020.`\
 https://nytimes.com/2020/11/10/todayspaper/quotation-of-the-day-el-paso-buckles-under-strain-as-infections-soar.html?searchResultPosition=6
 
-**Your Wednesday Briefing**\
-`A second coronavirus wave ravages Italy.`\
+**Italy, Covid-19, Trump: Your Wednesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/10/briefing/italy-covid-19-biden-trump-mink-cull.html?searchResultPosition=7
 
 **Paid to Play**\
