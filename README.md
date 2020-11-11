@@ -1,4 +1,4 @@
-**A Sick Swan Was Saved After a 23-Mile Odyssey by Foot, Car and Subway**\
+**A Sick Swan Is Saved After a 23-Mile Odyssey by Foot, Car and Subway**\
 `A woman with the right training noticed a bird’s odd behavior and made it her mission to undertake a very urban rescue.`\
 https://nytimes.com/2020/11/10/nyregion/swan-jamaica-bay-rescue.html?searchResultPosition=1
 
