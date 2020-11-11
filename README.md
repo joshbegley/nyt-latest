@@ -30,11 +30,11 @@ https://nytimes.com/2020/11/11/technology/facebook-political-ads.html?searchResu
 `Much of the blame must be laid at the door of the prime minister.`\
 https://nytimes.com/2020/11/11/opinion/ethiopia-tigray-abiy-ahmed.html?searchResultPosition=8
 
+**Doug Emhoff, Harris’s husband, will leave his law firm.**\
+`By Michael D. Shear`\
+https://nytimes.com/2020/11/11/us/doug-emhoff-harriss-husband-will-leave-his-law-firm.html?searchResultPosition=9
+
 **Modern Love Podcast: No More Secrets**\
 `“Honesty is linear.” Relationships require work and redefining, year after year.`\
-https://nytimes.com/2020/11/11/style/modern-love-podcast-no-more-secrets.html?searchResultPosition=9
-
-**After Biden Win, Right-Wing Sites Still Push False Vote-Fraud Claims**\
-`Many publications have refused to acknowledge the president-elect.`\
-https://nytimes.com/2020/11/11/business/media/right-wing-sites-false-vote-fraud-claims.html?searchResultPosition=10
+https://nytimes.com/2020/11/11/style/modern-love-podcast-no-more-secrets.html?searchResultPosition=10
 
