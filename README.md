@@ -10,7 +10,7 @@ https://nytimes.com/2020/11/11/opinion/trump-election-fraud.html?searchResultPos
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2020/11/11/briefing/georgia-coronavirus-steve-martin.html?searchResultPosition=3
 
-**Trump’s Election Tactics Put Him in Unsavory Company**\
+**Trump’s Post-Election Tactics Put Him in Unsavory Company**\
 `Denying defeat, claiming fraud and using government machinery to reverse election results are the time-honored tools of dictators.`\
 https://nytimes.com/2020/11/11/world/europe/mugabe-trump-maduro-lukashenko-pinochet-gbagbo.html?searchResultPosition=4
 
