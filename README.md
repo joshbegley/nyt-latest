@@ -1,40 +1,40 @@
+**Drudge Report, a Former Trump Ally, Looks to Biden**\
+`Matt Drudge and Donald Trump boosted each other four years ago. Now his site says, in prominent type, “The World Moves On.”`\
+https://nytimes.com/2020/11/11/business/media/drudge-report-trump-biden.html?searchResultPosition=1
+
+**Hong Kong Pro-Democracy Lawmakers Vow to Resign**\
+`China ousted four Hong Kong pro-democracy lawmakers from the Legislature Wednesday, prompting the 15 others remaining in the opposition to vow to resign en masse in solidarity.`\
+https://nytimes.com/video/world/asia/100000007449170/hong-kong-pro-democracy-lawmakers.html?searchResultPosition=2
+
+**Thousands of Uncounted Votes Found a Week After Election in Puerto Rico**\
+`Nearly 200 boxes of uncounted votes have surfaced, potentially affecting the outcome of several close races across the island.`\
+https://nytimes.com/2020/11/11/us/puerto-rico-ballots.html?searchResultPosition=3
+
+**‘Transhood’ Review: Five Years Pass as Transgender Kids Grow Up**\
+`This HBO documentary follows the lives and trajectories of four transgender and gender-nonconforming children in Kansas City.`\
+https://nytimes.com/2020/11/11/movies/transhood-review.html?searchResultPosition=4
+
 **Norwegian Archaeologists Discover Viking Age Ship Burial**\
 `Using ground-penetrating radar, a team of archaeologists made the discovery in southeastern Norway. Once excavated, the findings could offer insight into Viking settlements.`\
-https://nytimes.com/2020/11/11/world/europe/viking-discovery.html?searchResultPosition=1
+https://nytimes.com/2020/11/11/world/europe/viking-discovery.html?searchResultPosition=5
 
 **Georgia Authorizes Hand Recount for Presidential Race**\
 `Brad Raffensperger, Georgia’s Republican secretary of state, announced Wednesday that “with the margin being so close” he has authorized a hand recount of the state’s election.`\
-https://nytimes.com/video/us/elections/100000007449086/georgia-presidential-race-hand-recount.html?searchResultPosition=2
+https://nytimes.com/video/us/elections/100000007449086/georgia-presidential-race-hand-recount.html?searchResultPosition=6
 
 **U.S. Embassy in Pakistan Apologizes for Retweeting Anti-Trump Post**\
 `The American diplomatic mission in Islamabad said its account had been used “without authorization” to forward a message citing the presidential election result as a blow to demagogues and dictators.`\
-https://nytimes.com/2020/11/11/world/asia/pakistan-embassy-retweet.html?searchResultPosition=3
+https://nytimes.com/2020/11/11/world/asia/pakistan-embassy-retweet.html?searchResultPosition=7
 
 **The New Rules of Virtual Wedding Gifting**\
 `Do you still have to give a gift at a Zoom wedding? Experts say yes, but it doesn’t have to break the bank.`\
-https://nytimes.com/2020/11/11/fashion/weddings/the-new-rules-of-virtual-wedding-gifting.html?searchResultPosition=4
+https://nytimes.com/2020/11/11/fashion/weddings/the-new-rules-of-virtual-wedding-gifting.html?searchResultPosition=8
 
 **Warming May Make Hurricanes Weaken More Slowly After Landfall**\
 `New research suggests that climate change may be causing storms to retain destructive power for longer after moving inland.`\
-https://nytimes.com/2020/11/11/climate/hurricanes-climate-change-patterns.html?searchResultPosition=5
+https://nytimes.com/2020/11/11/climate/hurricanes-climate-change-patterns.html?searchResultPosition=9
 
 **In Kenya, a Cherished Fig Tree Gets a Reprieve**\
 `The 100-year-old tree, slated for removal to make room for a new expressway, will be preserved following a backlash from environmentalists concerned about shrinking green spaces in Nairobi.`\
-https://nytimes.com/2020/11/11/world/africa/kenya-fig-tree-nairobi-expressway.html?searchResultPosition=6
-
-**A Stirring Stir Fry**\
-`J. Kenji López-Alt’s latest, for hot and numbing stir-fried new potatoes, is great for the Thanksgiving table — or even just tonight’s dinner.`\
-https://nytimes.com/2020/11/11/dining/a-stirring-stir-fry.html?searchResultPosition=7
-
-**There is no proof that people stole maiden names to vote.**\
-`The hashtag #MaidenGate has spread, even though the tweet that planted the rumor contained no evidence of the supposed fraud.`\
-https://nytimes.com/2020/11/11/technology/no-proof-maiden-names-vote.html?searchResultPosition=8
-
-**Britney Spears’s Father Remains in Control of Conservatorship, for Now**\
-`At a hearing on Tuesday, a lawyer for the pop singer said that Spears was afraid of her father and would not perform while he was charge of her career.`\
-https://nytimes.com/2020/11/11/arts/music/britney-spears-jamie-conservatorship.html?searchResultPosition=9
-
-**Strangers on a Phone, Theatrically Speaking**\
-`Social distance has left us rusty when it comes to connecting with strangers. The latest piece by 600 Highwaymen aims to help us practice — starting with a call.`\
-https://nytimes.com/2020/11/11/theater/a-thousand-ways-600-highwaymen.html?searchResultPosition=10
+https://nytimes.com/2020/11/11/world/africa/kenya-fig-tree-nairobi-expressway.html?searchResultPosition=10
 
