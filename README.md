@@ -6,7 +6,7 @@ https://nytimes.com/2020/11/11/theater/a-thousand-ways-600-highwaymen.html?searc
 `The Italian Futurist Giacomo Balla’s sketch for a colorful room partition had remained unrealized since 1917. Now, Cassina has brought it to life.`\
 https://nytimes.com/2020/11/11/t-magazine/cassina-partition-giacomo-balla.html?searchResultPosition=2
 
-**Who Is the Smartest Dog? Let the Competition Begin.**\
+**Who Is the Smartest Dog? Let the Competition Begin**\
 `Scientists in Hungary are streaming experiments with dogs that know many words, featuring them in a contest of canine intelligence.`\
 https://nytimes.com/2020/11/11/science/smart-dogs-purina.html?searchResultPosition=3
 
