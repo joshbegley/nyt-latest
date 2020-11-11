@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/10/us/politics/voting-fraud.html?searchResultPositio
 `As President Trump and his administration insist he didn’t lose, the rest of the world has increasingly moved to accept Joe Biden’s victory.`\
 https://nytimes.com/2020/11/10/us/politics/trump-election-results.html?searchResultPosition=9
 
-**Postal worker withdraws claim that ballots were backdated in Pennsylvania, official says.**\
+**Postal worker withdraws claim that ballots were backdated in Pennsylvania, officials say.**\
 `By Luke Broadwater`\
-https://nytimes.com/2020/11/10/technology/postal-worker-withdraws-claim-that-ballots-were-backdated-in-pennsylvania-official-says.html?searchResultPosition=10
+https://nytimes.com/2020/11/10/technology/postal-worker-withdraws-claim-that-ballots-were-backdated-in-pennsylvania-officials-say.html?searchResultPosition=10
 
