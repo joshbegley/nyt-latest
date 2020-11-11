@@ -6,7 +6,7 @@ https://nytimes.com/2020/11/11/world/europe/bbc-martin-bashir-diana-interview.ht
 `In this lesson, students will learn about the promising developments toward a coronavirus vaccine and what it means for the fight against the pandemic.`\
 https://nytimes.com/2020/11/11/learning/lesson-of-the-day-pfizers-covid-vaccine-11-things-you-need-to-know.html?searchResultPosition=2
 
-**Judge Is Shot in Her Office at Manila’s City Hall**\
+**Judge Is Shot and Killed in Her Office at Manila’s City Hall**\
 `The judge was identified as Maria Theresa Abadilla, and the mayor’s office said a court clerk had been named by the police as a suspect in the shooting.`\
 https://nytimes.com/2020/11/11/world/asia/philippines-manila-judge-shooting-maria-theresa-abadilla.html?searchResultPosition=3
 
