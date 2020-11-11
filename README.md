@@ -1,5 +1,5 @@
 **Warming May Make Hurricanes Weaken More Slowly After Landfall**\
-`New research suggests that global warming may be causing storms to retain destructive power for longer after moving inland.`\
+`New research suggests that climate change may be causing storms to retain destructive power for longer after moving inland.`\
 https://nytimes.com/2020/11/11/climate/hurricanes-climate-change-patterns.html?searchResultPosition=1
 
 **In Kenya, a Cherished Fig Tree Gets a Reprieve**\
