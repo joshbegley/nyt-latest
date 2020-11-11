@@ -1,40 +1,40 @@
-**Was Reagan a Precursor to Trump? A New Documentary Says Yes**\
-`“The Reagans,” a new Showtime docu-series, presents Ronald Reagan as an early practitioner of dog-whistle politics. But some historians and journalists disagree with that position.`\
-https://nytimes.com/2020/11/11/arts/television/the-reagans.html?searchResultPosition=1
+**How the Tennessee Titans Can Make the Playoffs: Through Week 9**\
+`The Titans now have an 82% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/tennessee-titans-nfl-playoff-picture.html?searchResultPosition=1
 
-**How the Chicago Bears Can Make the Playoffs: Through Week 9**\
-`The Bears now have a 54% chance to make the playoffs.`\
-https://nytimes.com/interactive/2020/upshot/chicago-bears-nfl-playoff-picture.html?searchResultPosition=2
+**How the Cleveland Browns Can Make the Playoffs: Through Week 9**\
+`The Browns now have only a 49% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/cleveland-browns-nfl-playoff-picture.html?searchResultPosition=2
 
-**How the Las Vegas Raiders Can Make the Playoffs: Through Week 9**\
-`The Raiders have a 58% chance to make the playoffs.`\
-https://nytimes.com/interactive/2020/upshot/las-vegas-raiders-nfl-playoff-picture.html?searchResultPosition=3
+**How the Tampa Bay Buccaneers Can Make the Playoffs: Through Week 9**\
+`The Buccaneers now have an 81% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/tampa-bay-buccaneers-nfl-playoff-picture.html?searchResultPosition=3
 
-**How the Los Angeles Rams Can Make the Playoffs: Through Week 9**\
-`The Rams have a 66% chance to make the playoffs.`\
-https://nytimes.com/interactive/2020/upshot/los-angeles-rams-nfl-playoff-picture.html?searchResultPosition=4
+**How the Jacksonville Jaguars Can Make the Playoffs: Through Week 9**\
+`The Jaguars have a less than 1% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/jacksonville-jaguars-nfl-playoff-picture.html?searchResultPosition=4
 
-**How the Washington Football Team Can Make the Playoffs: Through Week 9**\
-`The Football Team now have only a 12% chance to make the playoffs.`\
-https://nytimes.com/interactive/2020/upshot/washington-football-team-nfl-playoff-picture.html?searchResultPosition=5
+**How the San Francisco 49ers Can Make the Playoffs: Through Week 9**\
+`The 49ers now have only a 20% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/san-francisco-49ers-nfl-playoff-picture.html?searchResultPosition=5
 
-**How the Houston Texans Can Make the Playoffs: Through Week 9**\
-`The Texans have a 2% chance to make the playoffs.`\
-https://nytimes.com/interactive/2020/upshot/houston-texans-nfl-playoff-picture.html?searchResultPosition=6
+**Trump Participates in Veterans Day Ceremony**\
+`President Trump participated in a brief, silent Veterans Day ceremony at Arlington National Cemetery.`\
+https://nytimes.com/video/us/politics/100000007449325/trump-veterans-day-appearance.html?searchResultPosition=6
 
-**How the Baltimore Ravens Can Make the Playoffs: Through Week 9**\
-`The Ravens now have a 93% chance to make the playoffs.`\
-https://nytimes.com/interactive/2020/upshot/baltimore-ravens-nfl-playoff-picture.html?searchResultPosition=7
+**How the Detroit Lions Can Make the Playoffs: Through Week 9**\
+`The Lions now have only an 8% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/detroit-lions-nfl-playoff-picture.html?searchResultPosition=7
 
-**How the Miami Dolphins Can Make the Playoffs: Through Week 9**\
-`The Dolphins now have a 54% chance to make the playoffs.`\
-https://nytimes.com/interactive/2020/upshot/miami-dolphins-nfl-playoff-picture.html?searchResultPosition=8
+**4 Art Gallery Shows to See Right Now**\
+`Jonathan Lyndon Chase’s cowboy paintings; objects with personality; Catalina Ouyang’s sculptural grotesques; Jordan Nassar’s new textile works.`\
+https://nytimes.com/2020/11/11/arts/design/art-gallery-shows-to-see-right-now.html?searchResultPosition=8
 
-**How the Indianapolis Colts Can Make the Playoffs: Through Week 9**\
-`The Colts now have a 52% chance to make the playoffs.`\
-https://nytimes.com/interactive/2020/upshot/indianapolis-colts-nfl-playoff-picture.html?searchResultPosition=9
+**How the New Orleans Saints Can Make the Playoffs: Through Week 9**\
+`The Saints now have a 95% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/new-orleans-saints-nfl-playoff-picture.html?searchResultPosition=9
 
-**How the Atlanta Falcons Can Make the Playoffs: Through Week 9**\
-`The Falcons have a 2% chance to make the playoffs.`\
-https://nytimes.com/interactive/2020/upshot/atlanta-falcons-nfl-playoff-picture.html?searchResultPosition=10
+**How the Los Angeles Chargers Can Make the Playoffs: Through Week 9**\
+`The Chargers now have only a 1% chance to make the playoffs.`\
+https://nytimes.com/interactive/2020/upshot/los-angeles-chargers-nfl-playoff-picture.html?searchResultPosition=10
 
