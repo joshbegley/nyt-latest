@@ -18,7 +18,7 @@ https://nytimes.com/2020/11/11/movies/transhood-review.html?searchResultPosition
 `The campaign has urged the company to more aggressively police misinformation for more than a year.`\
 https://nytimes.com/2020/11/11/technology/tweets-from-biden-aide-show-campaigns-frustration-with-facebook.html?searchResultPosition=5
 
-**Norwegian Archaeologists Discover Viking Age Ship Burial**\
+**Archaeologists Discover Viking Age Ship Burial in Norway**\
 `Using ground-penetrating radar, a team of archaeologists made the discovery in southeastern Norway. Once excavated, the findings could offer insight into Viking settlements.`\
 https://nytimes.com/2020/11/11/world/europe/viking-discovery.html?searchResultPosition=6
 
