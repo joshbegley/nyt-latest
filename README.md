@@ -14,27 +14,27 @@ https://nytimes.com/2020/11/11/us/puerto-rico-ballots.html?searchResultPosition=
 `This HBO documentary follows the lives and trajectories of four transgender and gender-nonconforming children in Kansas City.`\
 https://nytimes.com/2020/11/11/movies/transhood-review.html?searchResultPosition=4
 
+**Tweets from Biden aide show campaign’s frustration with Facebook.**\
+`The campaign has urged the company to more aggressively police misinformation for more than a year.`\
+https://nytimes.com/2020/11/11/technology/tweets-from-biden-aide-show-campaigns-frustration-with-facebook.html?searchResultPosition=5
+
 **Norwegian Archaeologists Discover Viking Age Ship Burial**\
 `Using ground-penetrating radar, a team of archaeologists made the discovery in southeastern Norway. Once excavated, the findings could offer insight into Viking settlements.`\
-https://nytimes.com/2020/11/11/world/europe/viking-discovery.html?searchResultPosition=5
+https://nytimes.com/2020/11/11/world/europe/viking-discovery.html?searchResultPosition=6
 
 **Georgia Authorizes Hand Recount for Presidential Race**\
 `Brad Raffensperger, Georgia’s Republican secretary of state, announced Wednesday that “with the margin being so close” he has authorized a hand recount of the state’s election.`\
-https://nytimes.com/video/us/elections/100000007449086/georgia-presidential-race-hand-recount.html?searchResultPosition=6
+https://nytimes.com/video/us/elections/100000007449086/georgia-presidential-race-hand-recount.html?searchResultPosition=7
 
 **U.S. Embassy in Pakistan Apologizes for Retweeting Anti-Trump Post**\
 `The American diplomatic mission in Islamabad said its account had been used “without authorization” to forward a message citing the presidential election result as a blow to demagogues and dictators.`\
-https://nytimes.com/2020/11/11/world/asia/pakistan-embassy-retweet.html?searchResultPosition=7
+https://nytimes.com/2020/11/11/world/asia/pakistan-embassy-retweet.html?searchResultPosition=8
 
 **The New Rules of Virtual Wedding Gifting**\
 `Do you still have to give a gift at a Zoom wedding? Experts say yes, but it doesn’t have to break the bank.`\
-https://nytimes.com/2020/11/11/fashion/weddings/the-new-rules-of-virtual-wedding-gifting.html?searchResultPosition=8
+https://nytimes.com/2020/11/11/fashion/weddings/the-new-rules-of-virtual-wedding-gifting.html?searchResultPosition=9
 
 **Warming May Make Hurricanes Weaken More Slowly After Landfall**\
 `New research suggests that climate change may be causing storms to retain destructive power for longer after moving inland.`\
-https://nytimes.com/2020/11/11/climate/hurricanes-climate-change-patterns.html?searchResultPosition=9
-
-**In Kenya, a Cherished Fig Tree Gets a Reprieve**\
-`The 100-year-old tree, slated for removal to make room for a new expressway, will be preserved following a backlash from environmentalists concerned about shrinking green spaces in Nairobi.`\
-https://nytimes.com/2020/11/11/world/africa/kenya-fig-tree-nairobi-expressway.html?searchResultPosition=10
+https://nytimes.com/2020/11/11/climate/hurricanes-climate-change-patterns.html?searchResultPosition=10
 
