@@ -1,40 +1,40 @@
-**A Police Swarm. Frantic Calls. Then 3,000 People Locked Inside.**\
-`On July 4, Australia’s second-largest city went into lockdown. But residents of nine public housing towers were singled out for even stricter treatment, leading many to suspect discrimination.`\
-https://nytimes.com/2020/11/12/world/australia/melbourne-towers-lockdown.html?searchResultPosition=1
+**After a Long Ride, Harley-Davidson Is Leaving India**\
+`The American icon saw promise in the world’s largest market for two-wheelers. But its bikes sold poorly in a country where incomes are low and manufacturing isn’t easy.`\
+https://nytimes.com/2020/11/12/technology/india-harley-davidson.html?searchResultPosition=1
 
-**Eta Makes Landfall in Florida, Again**\
-`The storm had already flooded streets and forced several universities to cancel classes on Thursday.`\
-https://nytimes.com/2020/11/12/us/hurricane-eta.html?searchResultPosition=2
+**‘The Crown’ Has Had Its Scandals, but There’s Nothing Like Diana**\
+`The face that launched a thousand tabloid stories — and books and documentaries and Instagram feeds — is taking center stage in the newest season of the Netflix series.`\
+https://nytimes.com/2020/11/12/arts/television/the-crown-princess-diana.html?searchResultPosition=2
 
-**Blackpink Cuddled a Baby Panda. Not Cute, the Chinese Internet Said.**\
-`The K-pop band was accused of putting the cub at risk after the group posted video of its antics at a South Korean zoo.`\
-https://nytimes.com/2020/11/12/world/asia/blackpink-panda-controversy.html?searchResultPosition=3
+**Sports Helped Shape Biden. But Expect a Quieter Fan in the White House.**\
+`Playing football in high school helped the president-elect overcome a stutter. And while he is known to be a sports fan, he has not displayed a taste for inserting politics in sports.`\
+https://nytimes.com/2020/11/12/sports/biden-trump-sports-protests.html?searchResultPosition=3
 
-**For Germany’s Theaters, a Reluctant Intermission**\
-`A second lockdown has put productions on hold and added extra drama to an already fraught theater season.`\
-https://nytimes.com/2020/11/12/theater/germany-theater-second-lockdown.html?searchResultPosition=4
+**It Was Raided by the Feds in 1932. Now It’s Making Artisanal Moonshine.**\
+`Distilleries are trendy in rural New York. But this one was open 88 years ago, during Prohibition.`\
+https://nytimes.com/2020/11/12/nyregion/catskills-farm-distilleries-prohibition.html?searchResultPosition=4
 
-**Lesson of the Day: ‘What Makes Sand Soft?’**\
-`In this lesson, students will learn about the complicated properties of sand. Then, they will design their own science experiment.`\
-https://nytimes.com/2020/11/12/learning/lesson-of-the-day-what-makes-sand-soft.html?searchResultPosition=5
+**The ‘Detective Work’ Behind a War Novel**\
+`Maaza Mengiste spent years on “The Shadow King,” not only writing but also learning Italian, living in Rome and amassing an archive of historical photography that informed her book.`\
+https://nytimes.com/2020/11/12/books/maaza-mengiste-the-shadow-king-photography.html?searchResultPosition=5
 
-**What Places Are Hardest Hit by the Coronavirus? It Depends on the Measure.**\
-`By different metrics, all sorts of locations in the United States are deeply troubling, from Minot, N.D., to New York City.`\
-https://nytimes.com/2020/11/12/us/coronavirus-crisis-united-states.html?searchResultPosition=6
+**New PlayStation and Xbox Arrive During a Pandemic Gold Rush**\
+`The video game industry has notched record spending and profit in 2020, but to sustain its growth, it must prepare to compete with the return of concerts, movie theaters and live sports.`\
+https://nytimes.com/2020/11/12/technology/ps5-xbox-pandemic.html?searchResultPosition=6
 
-**The Nude Pictures That Won’t Go Away**\
-`Emily Ratajkowski accused the photographer Jonathan Leder of assault and using photos against her wishes. Other women say they have similar experiences.`\
-https://nytimes.com/2020/11/12/style/jonathan-leder-photographer-emily-ratajowski.html?searchResultPosition=7
+**Parenting During the Pandemic: Stories from Families Across America**\
+`Scenes and snippets from families across the country.`\
+https://nytimes.com/2020/11/12/parenting/parenting-during-the-pandemic-stories-from-families-across-america.html?searchResultPosition=7
 
-**Augusta’s Green Jackets: For Winners, Members (and Buyers) Only**\
-`The club’s green jackets — awarded to its members and Masters winners — are not supposed to leave its grounds. A rare few have, becoming an expensive holy grail for memorabilia collectors.`\
-https://nytimes.com/2020/11/12/sports/golf/green-jacket-masters.html?searchResultPosition=8
+**How Do You Play Margaret Thatcher? Like This**\
+`In the new season of “The Crown,” Gillian Anderson takes on the role of the “Iron Lady.” She’s just the latest in a long line of Thatcher impersonators.`\
+https://nytimes.com/2020/11/12/arts/television/margaret-thatcher-the-crown.html?searchResultPosition=8
 
-**The President’s Backup Band**\
-`Absent connections to the world of celebrity, Donald J. Trump minted his own. His White House wasn’t Hollywood, but maybe that was the point.`\
-https://nytimes.com/2020/11/12/style/the-presidents-backup-band.html?searchResultPosition=9
+**How the Pandemic Inspired a Kitchen-Share Scene Among Out-of-Work Chefs**\
+`“It’s this very cool win, win, win,” said one restaurant owner.`\
+https://nytimes.com/2020/11/12/nyregion/coronavirus-restaurants-nyc.html?searchResultPosition=9
 
-**Off the Grid**\
-`What is this image saying?`\
-https://nytimes.com/2020/11/12/learning/off-the-grid.html?searchResultPosition=10
+**President Trump’s Show Has Been Canceled**\
+`For years, we’ve been living inside a story defined by Donald Trump’s reality-TV worldview. America finally changed the channel.`\
+https://nytimes.com/2020/11/12/arts/television/trump-biden-election.html?searchResultPosition=10
 
