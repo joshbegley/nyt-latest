@@ -3,8 +3,8 @@
 https://nytimes.com/2020/11/12/technology/2020s-hot-gadget-is-the-computer.html?searchResultPosition=1
 
 **Democrats demand a big stimulus package despite Republican insistence on targeted relief.**\
-`By Nicholas Fandos, Emily Cochrane and Alan Rappeport`\
-https://nytimes.com/2020/11/12/business/democrats-demand-a-big-stimulus-package-despite-republican-insistence-on-targeted-relief.html?searchResultPosition=2
+`Democrats appeared to be closing the door on the possibility of a year-end compromise with Republicans, who have proposed spending a fraction of that amount.`\
+https://nytimes.com/2020/11/12/business/economic-stimulus-package.html?searchResultPosition=2
 
 **Newsmax courts Fox News viewers with election denialism.**\
 `The president has been furiously sharing Newsmax clips and retweeting supporters who say they are turning to the network.`\
