@@ -14,8 +14,8 @@ https://nytimes.com/2020/11/11/us/biden-speaks-with-more-world-leaders-and-agree
 `By Matt Stevens`\
 https://nytimes.com/2020/11/11/us/a-republican-senator-says-biden-should-receive-daily-briefings-and-he-will-step-in-to-ensure-that-occurs.html?searchResultPosition=4
 
-**Your Thursday Briefing**\
-`President Trump’s refusal to concede.`\
+**Trump, Covid-19, Terrorism: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/11/briefing/biden-trump-covid-19-europe-terrorism.html?searchResultPosition=5
 
 **Meet George Jetson? Orlando Unveils Plans for First Flying-Car Hub in U.S.**\
