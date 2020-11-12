@@ -1,40 +1,40 @@
+**Britain Won’t Go ‘Back Completely to Normal’ As Virus Cases Increase**\
+`As the number of coronavirus cases grows across Europe, British officials discussed how the country would try to emerge from its lockdown.`\
+https://nytimes.com/video/world/europe/100000007451778/britain-covid-lockdown.html?searchResultPosition=1
+
 **France Will Not Loosen Covid-19 Restrictions Despite Fewer Cases**\
 `The surge of coronavirus cases in France appears to be slowing, however, the prime minister, Jean Castex, said Thursday that he country will maintain the lockdown for the next 15 days.`\
-https://nytimes.com/video/world/europe/100000007451588/france-coronavirus-lockdown.html?searchResultPosition=1
+https://nytimes.com/video/world/europe/100000007451588/france-coronavirus-lockdown.html?searchResultPosition=2
 
 **The Vatican Report on Clerical Abuse**\
 `A Catholic priest says the report documents the failure of the hierarchy, and a need for civil authorities to take the lead in finding the truth. Also: Happy to fly the flag again.`\
-https://nytimes.com/2020/11/12/opinion/letters/catholic-church-abuse.html?searchResultPosition=2
+https://nytimes.com/2020/11/12/opinion/letters/catholic-church-abuse.html?searchResultPosition=3
 
 **What are the 10 Best Books of 2020? You Can Find Out First.**\
 `Join The Times for a live virtual announcement of this year’s 10 Best Books list, featuring a celebrity guest.`\
-https://nytimes.com/2020/11/12/books/best-books-live-event.html?searchResultPosition=3
+https://nytimes.com/2020/11/12/books/best-books-live-event.html?searchResultPosition=4
 
 **The Word at MoMA Is ‘Rotation, Rotation, Rotation’**\
 `On Saturday, the museum opens with changes to 20 of its 60 permanent collection galleries. A critic’s guide to the standouts on each floor.`\
-https://nytimes.com/2020/11/12/arts/design/moma-permanent-collection-rehang.html?searchResultPosition=4
+https://nytimes.com/2020/11/12/arts/design/moma-permanent-collection-rehang.html?searchResultPosition=5
 
 **Rep. Max Rose Is Defeated in a N.Y. House Victory for Republicans**\
 `Nicole Malliotakis, a Republican state assemblywoman, flipped a district that is considered the most conservative in New York City.`\
-https://nytimes.com/2020/11/12/nyregion/nicole-malliotakis-defeat-max-rose.html?searchResultPosition=5
+https://nytimes.com/2020/11/12/nyregion/nicole-malliotakis-defeat-max-rose.html?searchResultPosition=6
 
 **Jerry Rawlings, From Coup-Plotter to Ghanaian Statesman, Dies at 73**\
 `Mr. Rawlings, after initial years leading the country with crackdowns, helped Ghana blossom into a stable democracy.`\
-https://nytimes.com/2020/11/12/world/africa/jerry-rawlings-dead-version.html?searchResultPosition=6
+https://nytimes.com/2020/11/12/world/africa/jerry-rawlings-dead-version.html?searchResultPosition=7
 
 **Republicans Should Be Defending Georgia’s Election Process**\
 `The G.O.P. is trying to scapegoat Brad Raffensperger for Trump’s apparent loss in Georgia.`\
-https://nytimes.com/2020/11/12/opinion/2020-election-raffensperger-georgia.html?searchResultPosition=7
+https://nytimes.com/2020/11/12/opinion/2020-election-raffensperger-georgia.html?searchResultPosition=8
 
 **‘A Black Eye’: Why Political Polling Missed the Mark. Again.**\
 `As politics becomes a high-stakes spectator sport, pollsters are reviewing their latest failures. But is part of the problem the public’s overly high expectations of precision?`\
-https://nytimes.com/2020/11/12/us/politics/election-polls-trump-biden.html?searchResultPosition=8
+https://nytimes.com/2020/11/12/us/politics/election-polls-trump-biden.html?searchResultPosition=9
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2020/11/12/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=9
-
-**Your Friday Briefing**\
-`Hong Kong’s opposition is almost totally gutted.`\
-https://nytimes.com/2020/11/12/briefing/hongkong-china-melbourne-afghan-trump-biden.html?searchResultPosition=10
+https://nytimes.com/2020/11/12/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=10
 
