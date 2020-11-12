@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/12/technology/2020s-hot-gadget-is-the-computer.html?searchResultPosition=1
 
 **Democrats demand a big stimulus package despite Republican insistence on targeted relief.**\
-`Speaker Nancy Pelosi and Senator Chuck Schumer appeared to be closing the door on the possibility of a year-end compromise with Republicans.`\
+`By Nicholas Fandos, Emily Cochrane and Alan Rappeport`\
 https://nytimes.com/2020/11/12/business/economic-stimulus-package.html?searchResultPosition=2
 
 **Newsmax courts Fox News viewers with election denialism.**\
