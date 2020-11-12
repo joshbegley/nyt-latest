@@ -1,6 +1,6 @@
 **David Easton, Architect for an American Gentry, Dies at 83**\
 `He was noted in the ’80s for his English-style manors, catering to an opulent clientele with a taste for grandeur.`\
-https://nytimes.com/2020/11/12/us/david-easton-dies.html?searchResultPosition=1
+https://nytimes.com/2020/11/12/arts/design/david-easton-dies.html?searchResultPosition=1
 
 **Layoffs at Police Watchdog Agency Prompt Claims of Retaliation**\
 `The agency said it was restructuring to hire more investigators, but employees said the officials were all critics of the agency’s performance.`\
