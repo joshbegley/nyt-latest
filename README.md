@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/12/arts/design/sky-hopinka-art-review.html?searchRes
 https://nytimes.com/2020/11/12/technology/republicans-distrust-news-media.html?searchResultPosition=2
 
 **Helicopter Crash Kills 7 Peacekeepers From Multinational Force in Sinai**\
-`The Multinational Force and Observers said there was nothing to suggest the crash was anything other than an accident.`\
+`Five Americans are among the dead. The Multinational Force and Observers said there was nothing to suggest the crash was anything other than an accident.`\
 https://nytimes.com/2020/11/12/world/middleeast/sinai-peacekeepers-crash.html?searchResultPosition=3
 
 **How Pfizer Plans to Distribute Its Vaccine (It’s Complicated)**\
