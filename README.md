@@ -2,8 +2,8 @@
 `On July 4, Australia’s second-largest city went into lockdown. But residents of nine public housing towers were singled out for even stricter treatment, leading many to suspect discrimination.`\
 https://nytimes.com/2020/11/12/world/australia/melbourne-towers-lockdown.html?searchResultPosition=1
 
-**Eta Lashes Florida’s Gulf Coast, Causing Power Outages**\
-`The storm had already flooded streets and forced several universities to cancel classes on Thursday ahead of its expected landfall.`\
+**Eta Makes Landfall in Florida, Again**\
+`The storm had already flooded streets and forced several universities to cancel classes on Thursday.`\
 https://nytimes.com/2020/11/12/us/hurricane-eta.html?searchResultPosition=2
 
 **Blackpink Cuddled a Baby Panda. Not Cute, the Chinese Internet Said.**\
