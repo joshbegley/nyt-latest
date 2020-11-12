@@ -1,9 +1,9 @@
 **Lucille Bridges, Mother of Civil Rights Trailblazer, Dies at 86**\
-`In 1960, Ms. Bridges enrolled her daughter Ruby in all-white school in New Orleans and escorted her there, breaking through segregation.`\
+`In 1960, Ms. Bridges enrolled her daughter Ruby in an all-white school in New Orleans and escorted her there, breaking through segregation.`\
 https://nytimes.com/2020/11/11/us/lucille-bridges-dies.html?searchResultPosition=1
 
-**UPS to Allow Natural Black Hairstyles Like Afros and Braids**\
-`The policy change, which also permits facial hair, comes amid a growing national movement to ban racial discrimination based on people’s natural hairstyle.`\
+**UPS to Allow Natural Black Hairstyles and Facial Hair**\
+`The policy change comes amid a growing national movement to ban racial discrimination based on people’s natural hairstyle.`\
 https://nytimes.com/2020/11/11/business/ups-black-natural-hair.html?searchResultPosition=2
 
 **Georgia’s Close Elections Sent Republicans After a Republican**\
