@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/12/us/politics/biden-administration-corporate-influe
 https://nytimes.com/2020/11/12/arts/television/inside-pixar-scientology.html?searchResultPosition=2
 
 **Pearl Chin Dies at 71; Her Knitting Store Was a Haven and a Hub**\
-`Knitty City was more than a Manhattan supply shop for yarn; it was an urban sanctuary and a springboard for social activism (or, in her word, “craftivism”).`\
+`Knitty City was more than a Manhattan supply shop for yarn; it was an urban sanctuary and a springboard for social activism (or, as she and others called it, “craftivism”).`\
 https://nytimes.com/2020/11/12/nyregion/pearl-chin-dead.html?searchResultPosition=3
 
 **Sweet, Sweet Fantasies, Baby**\
