@@ -1,6 +1,6 @@
 **A Vaccine Breakthrough**\
 `A major advance in the race to develop a coronavirus shot has raised hopes that mass immunization could bring an end to the pandemic.`\
-https://nytimes.com/2020/11/12/podcasts/the-daily/pfizer-vaccine-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/11/12/podcasts/the-daily/pfizer-vaccine-coronavirus-BioNTech.html?searchResultPosition=1
 
 **Putting the Sport Back in S.U.V.s, 2 Jeep Rivals Sell the Off-Grid Life**\
 `The Ford Bronco and the Land Rover Defender revive two legendary lineages with models that can handle trails as well as grocery store runs.`\
