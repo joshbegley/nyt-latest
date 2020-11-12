@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2020/11/09/us/politics/2016-election-trump-count
 `Joe Biden’s team should be given the official go-ahead for the smooth transfer of power.`\
 https://nytimes.com/2020/11/11/opinion/transition-biden-trump-concede.html?searchResultPosition=5
 
-**Biden to Name Ron Klain as White House Chief of Staff**\
+**Biden Names Ron Klain as White House Chief of Staff**\
 `Mr. Klain, a lawyer and veteran Democratic operative who first worked for the president-elect in 1989 when he was a senator, has been a sharp critic of President Trump’s handling of the coronavirus.`\
 https://nytimes.com/2020/11/11/us/politics/ron-klain-biden.html?searchResultPosition=6
 
