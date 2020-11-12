@@ -22,8 +22,8 @@ https://nytimes.com/2020/11/12/arts/design/sky-hopinka-art-review.html?searchRes
 `Conservatives are increasingly relying on right-wing outlets and pundits with a history of spreading falsehoods, research has found.`\
 https://nytimes.com/2020/11/12/technology/republicans-distrust-news-media.html?searchResultPosition=6
 
-**Helicopter Crash Kills 7 Peacekeepers From Multinational Force in Sinai**\
-`Five Americans are among the dead. The Multinational Force and Observers said there was nothing to suggest the crash was anything other than an accident.`\
+**Helicopter Crash Kills 8 Peacekeepers From Multinational Force in Sinai**\
+`Six Americans are among the dead. The Multinational Force and Observers said there was nothing to suggest the crash was anything but an accident.`\
 https://nytimes.com/2020/11/12/world/middleeast/sinai-peacekeepers-crash.html?searchResultPosition=7
 
 **How Pfizer Plans to Distribute Its Vaccine (It’s Complicated)**\
