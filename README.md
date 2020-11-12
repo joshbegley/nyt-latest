@@ -23,7 +23,7 @@ https://nytimes.com/2020/11/12/theater/nyc-winter-garden-theater-death.html?sear
 https://nytimes.com/2020/11/12/business/economy/trump-china-investment-ban.html?searchResultPosition=6
 
 **Disney+ Passes 73 Million Subscribers as Streaming Takes Center Stage**\
-`The company has experienced deep losses in its theme park and movie divisions because of the pandemic, but investors don’t seem to care at the moment.`\
+`The company has experienced deep losses in its theme park because of the pandemic, but investors don’t seem to care at the moment.`\
 https://nytimes.com/2020/11/12/business/media/disney-plus-73-million-subscribers.html?searchResultPosition=7
 
 **California’s Coronavirus Caseload: 1 Million and Counting**\
