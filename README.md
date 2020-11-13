@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/13/world/europe/britain-parliament-breast-cancer.html?searchResultPosition=1
 
 **‘Hipster Antitrust’ Comes for Joe Biden**\
-`Progressives want the president-elect to move leftward on competition rules, but he pursue a more moderate path`\
+`Progressives want the president-elect to move leftward on competition rules, but he may pursue a more moderate path.`\
 https://nytimes.com/2020/11/13/business/dealbook/biden-hipster-antitrust.html?searchResultPosition=2
 
 **A Surging Virus and a Muddled Transition**\
