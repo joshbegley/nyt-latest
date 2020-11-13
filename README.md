@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/13/world/canada/canada-montreal-ubisoft.html?searchResultPosition=1
 
 **The Theme Music of Modern Love**\
-`The intro to the theme blends romantic string arrangements, evoking classic Hollywood, with neo-soul. Composed by Dan Powell.`\
+`The intro to the podcast’s theme blends romantic string arrangements with neo-soul. Composed by Dan Powell.`\
 https://nytimes.com/audio/2020/11/13/podcasts/13daily-newsletter-audio1.html?searchResultPosition=2
 
 **Scientists Destroyed a Nest of Murder Hornets. Here’s What They Learned.**\
