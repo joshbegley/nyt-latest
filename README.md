@@ -8,7 +8,7 @@ https://nytimes.com/2020/11/13/us/politics/congress-freshman-class-orientation.h
 
 **Wall Street Carried to Record by Biden Win and Vaccine Hopes**\
 `Money poured into equity markets after Joseph R. Biden Jr. was declared president-elect and Pfizer and BioNTech announced that their vaccine candidate was highly effective.`\
-https://nytimes.com/2020/11/13/business/wall-street-carried-to-record-by-biden-win-and-vaccine-hopes.html?searchResultPosition=3
+https://nytimes.com/2020/11/13/business/stock-market-record.html?searchResultPosition=3
 
 **China’s New Testing Policy for Travelers Is Problematic, Experts Say**\
 `Airline passengers must present negative antibody test results before boarding. Scientists consider it a largely useless way to curb disease transmission.`\
