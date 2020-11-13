@@ -1,5 +1,5 @@
-**Paul Hornung, Football’s ‘Golden Boy’ of the ’60s, Is Dead at 84**\
-`His dazzling play at Notre Dame, a Hall of Fame Career with the Green Bay Packers, matinee-idol looks and a playboy image made him a national celebrity.`\
+**Paul Hornung, Midcentury Football’s ‘Golden Boy’, Is Dead at 84**\
+`His dazzling play at Notre Dame, a Hall of Fame Career with the Green Bay Packers, matinee-idol looks and a playboy image made him a national celebrity in the ’50s and ’60s.`\
 https://nytimes.com/2020/11/13/sports/football/paul-hornung-footballs-golden-boy-of-the-60s-is-dead-at-84.html?searchResultPosition=1
 
 **The ‘Inn’ Is Out at the Beatrice, but History Still Holds Sway**\
