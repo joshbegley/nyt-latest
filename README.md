@@ -22,9 +22,9 @@ https://nytimes.com/2020/11/12/us/biden-wins-arizona.html?searchResultPosition=5
 `Why the harshest example of an already-harsh lockdown had left many with a lingering sense of discrimination.`\
 https://nytimes.com/2020/11/12/world/australia/melbourne-public-housing-lockdown.html?searchResultPosition=6
 
-**Your Friday Briefing**\
-`The challenges of rolling out a vaccine.`\
-https://nytimes.com/2020/11/12/briefing/your-friday-briefing.html?searchResultPosition=7
+**Pfizer Vaccine, Brexit, U.S. Presidential Transition: Your Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2020/11/12/briefing/pfizer-vaccine-brexit-us-presidential-transition-your-friday-briefing.html?searchResultPosition=7
 
 **Straight Shooter?**\
 `Sawyer Tabony and Ashton Anderson power us into the weekend with a fast and furious puzzle.`\
