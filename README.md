@@ -1,4 +1,4 @@
-**Powerful Aide to Boris Johnson Quits in Britain**\
+**Powerful Aide to Boris Johnson Quits in Britain, Report Says**\
 `Dominic Cummings, who masterminded the Brexit campaign in 2016 and helped vault Mr. Johnson into office, resigned amid fierce infighting.`\
 https://nytimes.com/2020/11/13/world/europe/dominic-cummings-boris-johnson-uk.html?searchResultPosition=1
 
