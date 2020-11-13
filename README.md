@@ -18,7 +18,7 @@ https://nytimes.com/2020/11/12/todayspaper/quotation-of-the-day-vaccine-will-tra
 `Corrections that appeared in print on Friday, Nov. 13, 2020.`\
 https://nytimes.com/2020/11/12/pageoneplus/corrections-nov-13-2020.html?searchResultPosition=5
 
-**At Least 6 Killed as Flash Floods Ravage North Carolina**\
+**At Least 7 Killed as Flash Floods Ravage North Carolina**\
 `Rescuers evacuated 31 people from a campground an hour north of Charlotte, which accounted for at least three of the fatalities, the authorities said.`\
 https://nytimes.com/2020/11/12/us/north-carolina-eta-flooding.html?searchResultPosition=6
 
