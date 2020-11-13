@@ -10,17 +10,17 @@ https://nytimes.com/2020/11/13/realestate/real-estate-coronavirus.html?searchRes
 `Todd Haiman will often go for a hike outside of the city or visit the Brooklyn Botanic Garden for inspiration.`\
 https://nytimes.com/2020/11/13/nyregion/coronavirus-Todd-Haiman-landscape-nyc.html?searchResultPosition=3
 
+**Biden’s Education Department Will Move Fast to Reverse Betsy DeVos’s Policies**\
+`President-elect Joseph R. Biden Jr. has presented an education agenda that is starkly different from the Trump era, beginning with a far more cautious approach to school reopenings.`\
+https://nytimes.com/2020/11/13/us/politics/biden-education-devos.html?searchResultPosition=4
+
 **They Met in Touchy-Feely 101 at Stanford**\
 `Irene Yuan and Colin Evran went on a shopping trip after she criticized his clothes in an interpersonal dynamics class. A makeover, friendship and romance soon followed.`\
-https://nytimes.com/2020/11/13/style/they-met-in-touchy-feely-101-at-stanford.html?searchResultPosition=4
+https://nytimes.com/2020/11/13/style/they-met-in-touchy-feely-101-at-stanford.html?searchResultPosition=5
 
 **A Second Look at the Nerdy Guy Carrying a Helmet**\
 `Sarah Miller decided that despite the fact that Ron Jacobson rode a motorcycle to their first date, it would not be a deal breaker.`\
-https://nytimes.com/2020/11/13/style/a-second-look-at-the-nerdy-guy-carrying-a-helmet.html?searchResultPosition=5
-
-**Biden’s Education Department Will Move Fast to Reverse Betsy DeVos’s Policies**\
-`President-elect Joseph R. Biden Jr. has presented an education agenda that is starkly different from the Trump era, beginning with a far more cautious approach to school reopenings.`\
-https://nytimes.com/2020/11/13/us/politics/biden-education-devos.html?searchResultPosition=6
+https://nytimes.com/2020/11/13/style/a-second-look-at-the-nerdy-guy-carrying-a-helmet.html?searchResultPosition=6
 
 **He Put the Boston Marathon Pic in His Profile. It Worked.**\
 `Jessica Jeffrey, an avid runner, was drawn to Billy Pitman’s online dating profile after seeing a photo of him participating in the Boston Marathon.`\
