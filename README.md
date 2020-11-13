@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2020/11/13/arts/television/best-of-late-night.ht
 `The percussive sounds in the theme were made by kitchenware.`\
 https://nytimes.com/audio/2020/11/13/podcasts/13daily-newsletter-audio-2.html?searchResultPosition=4
 
-**Police Converge on Offices of French Video Game Developer in Montreal**\
+**n MonnPolice Converge on Offices of French Video Game Developer in Montreal**\
 `The police told residents to stay off the streets surrounding the offices of Ubisoft. Employees were on the roof of the building, according to local media.`\
 https://nytimes.com/2020/11/13/world/canada/canada-montreal-ubisoft.html?searchResultPosition=5
 
