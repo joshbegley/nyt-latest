@@ -19,7 +19,7 @@ https://nytimes.com/2020/11/13/science/platypus-glow-ultraviolet.html?searchResu
 https://nytimes.com/2020/11/13/sports/football/covid-nfl-fans-players.html?searchResultPosition=5
 
 **Inspiration From South of the Border Moves Center Stage in Houston**\
-`The opening of a new building at the Museum of Fine Arts puts Latin American and Latino artists on the global map.`\
+`A new building at the Museum of Fine Arts showcases works by Latin American and Latino artists, many of whom are rarely shown in the United States.`\
 https://nytimes.com/2020/11/13/arts/design/latino-artists-museum-of-fine-arts-houston.html?searchResultPosition=6
 
 **A Cape Town Apartment That Speaks to the Past**\
