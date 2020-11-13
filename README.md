@@ -6,8 +6,8 @@ https://nytimes.com/2020/11/13/us/politics/secret-service-coronavirus.html?searc
 `Lockdowns return to the United States.`\
 https://nytimes.com/2020/11/13/us/coronavirus-today.html?searchResultPosition=2
 
-**Alito Says Religious Liberty and Free Speech Are Under Assault from Liberals**\
-`The conservative justice’s unusually pointed and political remarks, which he made in a speech to the Federalist Society, reflected thoughts he has expressed in his opinions.`\
+**In Unusually Political Speech, Alito Says Liberals Pose Threat to Liberties**\
+`The conservative justice’s pointed remarks, which he made in a speech to the Federalist Society, reflected thoughts he has expressed in his opinions.`\
 https://nytimes.com/2020/11/13/us/samuel-alito-religious-liberty-free-speech.html?searchResultPosition=3
 
 **8 Months After Virus Hit, an Ominous Sign: Long Lines for Testing Again**\
