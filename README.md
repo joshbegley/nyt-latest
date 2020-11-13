@@ -2,7 +2,7 @@
 `A fixture of the Lower East Side’s ’60s art scene, he had an abiding interest in black. “‘Black,’” he wrote, “is not the opposite of white; it is a state of being.”`\
 https://nytimes.com/2020/11/12/obituaries/aldo-tambellini-dead.html?searchResultPosition=1
 
-**Tiger Woods Starts Strong at the Masters as Paul Casey Leads an Incomplete First Round**\
+**Tiger Woods Starts Strong at the Masters as Paul Casey Leads an Incomplete Round**\
 `Casey shot seven under par on Thursday, and Woods was four under, after rain delayed the start of tournament and left many golfers with unfinished rounds.`\
 https://nytimes.com/2020/11/12/sports/golf/masters-leaderboard-day-1.html?searchResultPosition=2
 
