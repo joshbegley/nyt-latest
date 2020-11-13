@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/13/briefing/arizona-president-of-turkmenistan-the-weeknd.html?searchResultPosition=1
 
 **London Police to Recruit 40% of Officers From Minority Backgrounds**\
-`The Metropolitan Police also announced a review of all road traffic stops, as Commissioner Cressida Dick acknowledged that her force was “not free from racism or discrimination.”`\
+`The Metropolitan Police also announced a review of all road traffic stops as Commissioner Cressida Dick acknowledged that her force was “not free from racism or discrimination.”`\
 https://nytimes.com/2020/11/13/world/europe/london-police-discrimination.html?searchResultPosition=2
 
 **Why This Contentious Transition Is So Perilous for the Economy**\
