@@ -10,7 +10,7 @@ https://nytimes.com/2020/11/13/magazine/behind-the-cover-democracy-by-mail.html?
 `See full results and maps for the 2020 presidential election in Georgia.`\
 https://nytimes.com/interactive/2020/11/03/us/elections/results-georgia-president.html?searchResultPosition=3
 
-**Trump Administration Gives TikTok More Time to Reach Deal**\
+**The Trump administration gave TikTok more time to reach a deal.**\
 `The Chinese-owned social media app now has until Nov. 27 for a deal that would give American companies more ownership of the service.`\
 https://nytimes.com/2020/11/13/technology/trump-tiktok.html?searchResultPosition=4
 
