@@ -1,4 +1,4 @@
-**The N.F.L. Has Prevented Coronavirus on the Field. Off It Is Another Matter**\
+**The N.F.L. Has Prevented Coronavirus on the Field. Off It Is Another Matter.**\
 `As the virus surges around the country — and near team facilities — the league’s efforts to complete the season on schedule will be severely tested.`\
 https://nytimes.com/2020/11/13/sports/football/covid-nfl-fans-players.html?searchResultPosition=1
 
