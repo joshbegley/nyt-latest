@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/13/health/coronavirus-testing-china-travel.html?sear
 
 **What Kind of Love Story Can You Tell in 100 Words?**\
 `Times subscribers are invited to join Modern Love for a free evening of performances, videos and special guests, celebrating the new “Tiny Love Stories” book.`\
-https://nytimes.com/2020/11/13/style/modern-love-live-virutal-event-tiny-love-stories.html?searchResultPosition=2
+https://nytimes.com/2020/11/13/style/modern-love-live-virtual-event-tiny-love-stories.html?searchResultPosition=2
 
 **Arsène Wenger and the Gift of Time**\
 `The former Arsenal manager is still consumed by soccer, and how it is played and taught. It is just that now, he does not have anything to distract him from the big questions.`\
