@@ -6,13 +6,13 @@ https://nytimes.com/2020/11/14/sports/tennis/atp-finals-london.html?searchResult
 `Roger Federer, Rafael Nadal and Novak Djokovic still dominate, but the youngsters have arrived.`\
 https://nytimes.com/2020/11/14/sports/tennis/next-generation-mens-players.html?searchResultPosition=2
 
-**‘It’s Traumatizing’: Coronavirus Deaths Are Climbing Once Again**\
-`Deaths are far below the rate of the spring, when as many as 2,200 people were dying every day, but experts warn they are rising fast.`\
-https://nytimes.com/2020/11/14/us/coronavirus-deaths.html?searchResultPosition=3
-
 **‘You Cannot Say No’: The Reign of Terror That Sustains Belarus’s Leader**\
 `Despite hundreds of thousands protesting against him for months, Aleksandr G. Lukashenko has been able to cling to power thanks to an all-pervasive security system.`\
-https://nytimes.com/2020/11/14/world/europe/belarus-lukashenko-protests-crackdown.html?searchResultPosition=4
+https://nytimes.com/2020/11/14/world/europe/belarus-lukashenko-protests-crackdown.html?searchResultPosition=3
+
+**‘It’s Traumatizing’: Coronavirus Deaths Are Climbing Once Again**\
+`Deaths are far below the rate of the spring, when as many as 2,200 people were dying every day, but experts warn they are rising fast.`\
+https://nytimes.com/2020/11/14/us/coronavirus-deaths.html?searchResultPosition=4
 
 **The Pandemic Is Showing Us How Capitalism Is Amazing, and Inadequate**\
 `Why big business needs big government, and vice versa`\
