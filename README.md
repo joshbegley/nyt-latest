@@ -1,6 +1,6 @@
 **Theme Shmeme**\
 `Caitlin Reid just couldn’t stay away, on a Sunday.`\
-https://nytimes.com/2020/11/14/crosswords/theme-shmeme.html?searchResultPosition=1
+https://nytimes.com/2020/11/14/crosswords/daily-puzzle-2020-11-15.html?searchResultPosition=1
 
 **Iran Denies That Al Qaeda Leader Was Killed in Tehran**\
 `The denial came in the wake of a New York Times report that quoted intelligence officials as saying the terror group’s No. 2 leader was killed on the street in Tehran in August.`\
