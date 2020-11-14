@@ -15,7 +15,7 @@ https://nytimes.com/2020/11/14/world/europe/belarus-lukashenko-protests-crackdow
 https://nytimes.com/2020/11/14/us/coronavirus-deaths.html?searchResultPosition=4
 
 **The Pandemic Is Showing Us How Capitalism Is Amazing, and Inadequate**\
-`Why big business needs big government, and vice versa`\
+`Why big business needs big government and vice versa.`\
 https://nytimes.com/2020/11/14/upshot/pandemic-capitalism-vaccine.html?searchResultPosition=5
 
 **Missing From State Plans to Distribute the Coronavirus Vaccine: Money to Do It**\
