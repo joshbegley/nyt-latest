@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/13/us/politics/trump-election-lawsuits.html?searchResultPosition=1
 
 **Without Augusta’s Famed Roars, the Masters Goes Quiet**\
-`The swell of the tournament’s spectators has long provided a dramatic soundtrack to the Masters’ most memorable finishes. In their absence, golfers will play their final rounds a cappella.`\
+`The swell of the tournament’s spectators has long provided a dramatic soundtrack to the Masters’ most memorable finishes. In its absence, golfers will play their final rounds a cappella.`\
 https://nytimes.com/interactive/2020/11/13/sports/golf/masters-patrons-roars.html?searchResultPosition=2
 
 **Corrections: Nov. 14, 2020**\
