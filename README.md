@@ -31,7 +31,7 @@ https://nytimes.com/2020/11/14/us/joanna-harcourt-smith-dead.html?searchResultPo
 https://nytimes.com/2020/11/14/world/europe/athens-mosque-coronavirus.html?searchResultPosition=8
 
 **Trump Waves to Supporters Protesting Election Results**\
-`President Trump’s motorcade drove by hundreds of supporters, who had gathered in Washington to protest the outcome of the presidential election, on the way to his private golf club in Virginia on Saturday.`\
+`Demonstrators gathered in Washington on Saturday, echoing President Trump’s unfounded claims of election fraud. He waved to some of them from his motorcade as he was en route to his private golf club in Virginia.`\
 https://nytimes.com/video/us/politics/100000007454769/trump-appearance-million-maga-march.html?searchResultPosition=9
 
 **To Celebrate Diwali Is to Celebrate the Light**\
