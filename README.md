@@ -10,31 +10,31 @@ https://nytimes.com/2020/11/14/opinion/sunday/trump-military-transition.html?sea
 `One of Africa’s longest-simmering conflicts erupts back into the open.`\
 https://nytimes.com/2020/11/14/world/middleeast/western-sahara-morocco-polisario.html?searchResultPosition=3
 
+**Giuliani adds fuel to discredited theories about voting machines.**\
+`By Zach Montague`\
+https://nytimes.com/2020/11/14/us/politics/giuliani-adds-fuel-to-discredited-theories-about-voting-machines.html?searchResultPosition=4
+
 **A Divided Country: What Can Be Done?**\
 `Readers criticize Democrats for being too “woke” and not communicating their ideas better, urge a pardon of the president, suggest separation into two different countries, and more.`\
-https://nytimes.com/2020/11/14/opinion/letters/us-divided-election.html?searchResultPosition=4
+https://nytimes.com/2020/11/14/opinion/letters/us-divided-election.html?searchResultPosition=5
 
 **Trump Twittertorium**\
 `A reader suggests an alternative to the traditional presidential library.`\
-https://nytimes.com/2020/11/14/opinion/letters/trump-twitter.html?searchResultPosition=5
+https://nytimes.com/2020/11/14/opinion/letters/trump-twitter.html?searchResultPosition=6
 
 **Variety: Jelly Roll**\
 `Eric Berlin returns with another sweet and twisted new venture.`\
-https://nytimes.com/2020/11/14/crosswords/variety-jelly-roll.html?searchResultPosition=6
+https://nytimes.com/2020/11/14/crosswords/variety-jelly-roll.html?searchResultPosition=7
 
 **Joanna Harcourt-Smith, Lover of Timothy Leary, High Priest of LSD, Dies at 74**\
 `Traumatized by her experience with the psychedelic Pied Piper, she spent decades “composting” her thoughts about him and learning to start her life over again.`\
-https://nytimes.com/2020/11/14/us/joanna-harcourt-smith-dead.html?searchResultPosition=7
+https://nytimes.com/2020/11/14/us/joanna-harcourt-smith-dead.html?searchResultPosition=8
 
 **It Took a Century to Open a Mosque in Athens. Then Came the Pandemic.**\
 `The first purpose-built Muslim place of worship in the Greek capital since the Ottoman occupation arrived after decades of delay — just in time for a second coronavirus surge.`\
-https://nytimes.com/2020/11/14/world/europe/athens-mosque-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/11/14/world/europe/athens-mosque-coronavirus.html?searchResultPosition=9
 
 **Trump Waves to Supporters Protesting Election Results**\
 `Demonstrators gathered in Washington on Saturday, echoing President Trump’s unfounded claims of election fraud. He waved to some of them from his motorcade as he was en route to his private golf club in Virginia.`\
-https://nytimes.com/video/us/politics/100000007454769/trump-appearance-million-maga-march.html?searchResultPosition=9
-
-**To Celebrate Diwali Is to Celebrate the Light**\
-`Diwali is a celebration of light. It reminds me that we can help one another get through the darkest times. And it comes at an especially grim time in our country.`\
-https://nytimes.com/2020/11/14/us/diwali-celebration.html?searchResultPosition=10
+https://nytimes.com/video/us/politics/100000007454769/trump-appearance-million-maga-march.html?searchResultPosition=10
 
