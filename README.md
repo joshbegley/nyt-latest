@@ -19,7 +19,7 @@ https://nytimes.com/2020/11/14/world/africa/ethiopia-tigray-missiles-airport.htm
 https://nytimes.com/2020/11/14/us/white-house-pets.html?searchResultPosition=5
 
 **What to Expect on Day 3 of the 2020 Masters**\
-`The cut is coming on Saturday morning, but some of the youngest players are near the top of the standings.`\
+`The cut line is set at even par and some of the youngest players are near the top of the standings. Then there’s Bernhard Langer who, at 63, is the Masters oldest golfer to make it to the weekend.`\
 https://nytimes.com/2020/11/14/sports/golf/masters-leaderboard-day-3.html?searchResultPosition=6
 
 **The ATP Finals Say Goodbye to London**\
