@@ -24,7 +24,7 @@ https://nytimes.com/2020/11/14/opinion/coronavirus-testing-cancer.html?searchRes
 
 **This Coronavirus Surge Does Not Have to Be So Horrific**\
 `America is entering a difficult period. But the outcome is not foregone.`\
-https://nytimes.com/2020/11/14/opinion/coronavirus-cases-deaths-winter.html?searchResultPosition=7
+https://nytimes.com/2020/11/14/opinion/sunday/coronavirus-cases-deaths-winter.html?searchResultPosition=7
 
 **Goodbye, Golden Goose**\
 `Time for Donald Trump to head down Sunset Boulevard.`\
