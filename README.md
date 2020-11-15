@@ -22,7 +22,7 @@ https://nytimes.com/2020/11/15/briefing/china-trade-virus-us-spacex.html?searchR
 `Connection or isolation? Intensity or escape? This spate of shows that put the watcher to work are rewarding, but often in contrasting ways.`\
 https://nytimes.com/2020/11/15/theater/temping-pandemic-phone-call.html?searchResultPosition=6
 
-**Trump’s Vaccine Distribution Plan Is a Moral ‘Affront,’ Cuomo Says**\
+**Trump’s Vaccine Distribution Plan Is an ‘Affront,’ Cuomo Says**\
 `Gov. Andrew M. Cuomo of New York criticized President Trump’s coronavirus vaccine distribution plan and said the state would consider taking legal action to pursue a more equitable process.`\
 https://nytimes.com/video/us/politics/100000007455472/cuomo-coronavirus-vaccine.html?searchResultPosition=7
 
