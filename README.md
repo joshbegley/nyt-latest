@@ -30,8 +30,8 @@ https://nytimes.com/2020/11/15/world/europe/cyprus-turkey-erdogan.html?searchRes
 `Thousands of medical practices are closing, as doctors and nurses decide to retire early or shift to less intense jobs.`\
 https://nytimes.com/2020/11/15/health/Covid-doctors-nurses-quitting.html?searchResultPosition=8
 
-**Facing Widespread Protests, Peru’s Interim President Steps Down**\
-`Manuel Merino took power after Congress surprised the population by swiftly pushing out Peru’s popular president and swearing him in. On the job for less than a week, he faced mounting opposition.`\
+**After Six Days on the Job, Peru’s Interim President Steps Down Amid Protests**\
+`Manuel Merino took power after Congress pushed out Peru’s popular president. In office less than a week, he faced mounting opposition.`\
 https://nytimes.com/2020/11/15/world/americas/peru-president-resigns.html?searchResultPosition=9
 
 **Sex-Abuse Claims Against Boy Scouts Now Surpass 81,000**\
