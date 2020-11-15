@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/15/theater/temping-pandemic-phone-call.html?searchResultPosition=1
 
 **Trump’s Vaccine Distribution Plan Is a Moral ‘Affront,’ Cuomo Says**\
-`Gov. Andrew M. Cuomo of New York criticized President Trump’s coronavirus vaccine distribution plan and said the state would take legal action to pursue a more equitable process.`\
+`Gov. Andrew M. Cuomo of New York criticized President Trump’s coronavirus vaccine distribution plan and said the state would consider taking legal action to pursue a more equitable process.`\
 https://nytimes.com/video/us/politics/100000007455472/cuomo-coronavirus-vaccine.html?searchResultPosition=2
 
 **A Pianist Loses Himself in a Musical ‘Labyrinth’**\
