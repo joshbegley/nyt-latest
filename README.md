@@ -1,5 +1,5 @@
 **Giants Make a Case to Win the Grim N.F.C. East**\
-`Daniel Jones threw accurate passes and had a 34-yard touchdown run as the Giants moved a half-game back of Philadelphia in the once-grand division.`\
+`Daniel Jones threw accurate passes and had a 34-yard touchdown run as the Giants (3-7) moved a half-game back of Philadelphia in the once-grand division.`\
 https://nytimes.com/2020/11/15/sports/football/giants-eagles-nfl-week-10.html?searchResultPosition=1
 
 **Roger Jepsen, Senator From Iowa and Reagan Ally, Dies at 91**\
