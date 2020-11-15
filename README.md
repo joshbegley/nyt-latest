@@ -26,8 +26,8 @@ https://nytimes.com/2020/11/15/podcasts/the-daily/gillian-welch-david-rawlings-f
 `A 65-foot-tall stage curtain that the artist created for the Metropolitan Opera in the 1960s will go up for auction Tuesday at Bonhams.`\
 https://nytimes.com/2020/11/15/arts/design/marc-chagall-opera-curtain-auction.html?searchResultPosition=7
 
-**The Masters Round 4 Live Updates: Dustin Johnson Starts Steady**\
-`Johnson entered Sunday’s final round with a four-stroke lead over the Masters field.`\
+**The Masters Round 4 Live Updates: Sungjae Im Stalks Johnson’s Lead**\
+`Johnson’s final round lead is narrowing as his playing partner, Sungjae Im, applies pressure.`\
 https://nytimes.com/2020/11/15/sports/golf/masters-leaderboard-day-4.html?searchResultPosition=8
 
 **The Week in Business: The Vaccine Boost**\
