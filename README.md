@@ -1,5 +1,5 @@
 **Did It Hit 3%? Why Parents and Teachers Are Fixated on One Number**\
-`Weeks after he managed to reopen the system, Mayor Bill de Blasio is facing fresh questions about if and when to close it.`\
+`Weeks after he managed to reopen the New York City school system, Mayor Bill de Blasio is facing fresh questions about if and when to close it.`\
 https://nytimes.com/2020/11/15/nyregion/coronavirus-nyc-schools-shutdown.html?searchResultPosition=1
 
 **Where Is the Smithsonian Museum for American Latinos?**\
