@@ -12,7 +12,7 @@ https://nytimes.com/video/us/politics/100000007455472/cuomo-coronavirus-vaccine.
 
 **A Pianist Loses Himself in a Musical ‘Labyrinth’**\
 `David Greilsammer’s new recording charts a fantastical and disorienting adventure through works spanning centuries.`\
-https://nytimes.com/2020/11/15/arts/music/david-greilsammer-piano-labyrinth.html?searchResultPosition=4
+https://nytimes.com/2020/11/15/arts/music/david-greilsammer-piano-labyrinth-review.html?searchResultPosition=4
 
 **Catch the Vibe: Club Culture Comes to Life at Lincoln Center**\
 `The choreographer Ephrat Asherie unveils her short film “UnderScored,” which pays homage to the history of the underground scene and its veterans.`\
