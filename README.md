@@ -1,5 +1,5 @@
 **Facing Widespread Protests, Peru’s Interim President Steps Down**\
-`Manuel Merino took power after Congress surprised the population by swiftly pushing out Peru’s popular president and swearing him in. In place for less than a week on the job, he faced mounting opposition.`\
+`Manuel Merino took power after Congress surprised the population by swiftly pushing out Peru’s popular president and swearing him in. On the job for less than a week, he faced mounting opposition.`\
 https://nytimes.com/2020/11/15/world/americas/peru-president-resigns.html?searchResultPosition=1
 
 **Sex-Abuse Claims Against Boy Scouts Now Surpass 81,000**\
