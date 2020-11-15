@@ -1,5 +1,5 @@
 **Disappearance and Death of Louisiana Teen Raises Questions About Police Response**\
-`Quawan Charles, 15, was found dead in a field in rural Louisiana days after he had vanished. Now his family is asking whether his death could have been prevented with a faster response.`\
+`Quawan Charles was found dead in a field in rural Louisiana days after he had vanished. Now his family is asking whether his death could have been prevented with a faster response.`\
 https://nytimes.com/2020/11/14/us/quawan-charles-bobby-louisiana.html?searchResultPosition=1
 
 **Dustin Johnson Widens Masters Lead and Eyes Scoring Record**\
