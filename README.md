@@ -1,4 +1,4 @@
-**Dustin Johnson Widens Masters Lead, Eyes Scoring Record**\
+**Dustin Johnson Widens Masters Lead and Eyes Scoring Record**\
 `The No. 1-ranked golfer played in one lead-up event before the Masters after a positive coronavirus test felled him in October. Despite the rust, he leads the field by four strokes after three rounds.`\
 https://nytimes.com/2020/11/14/sports/golf/masters-results-dustin-johnson.html?searchResultPosition=1
 
