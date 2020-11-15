@@ -35,6 +35,6 @@ https://nytimes.com/2020/11/15/nyregion/coronavirus-nyc-schools-shutdown.html?se
 https://nytimes.com/2020/11/15/opinion/national-latino-museum.html?searchResultPosition=9
 
 **Dustin Johnson Wins 2020 Masters in Record Fashion**\
-`Johnson, the No. 1-ranked golfer in the world, completed a historic win at 20-under, becoming the first player to reach that total at Augusta National.`\
+`Johnson, the No. 1-ranked golfer in the world, won with a score of 20 under par, the first player to reach that total at Augusta National.`\
 https://nytimes.com/2020/11/15/sports/golf/dustin-johnson-masters-win.html?searchResultPosition=10
 
