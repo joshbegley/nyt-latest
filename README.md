@@ -2,8 +2,8 @@
 `When the “Singin’ in the Rain” actress was alive, the film academy turned up its nose at her fabled costume collection. Now it has gone to her son with hat in hand.`\
 https://nytimes.com/2020/11/16/movies/academy-museum-debbie-reynolds-costumes.html?searchResultPosition=1
 
-**Watch Live: Biden Holds Economic Briefing**\
-`President-elect Joseph R. Biden Jr. delivers remarks on the economy as coronavirus cases surge and certain areas of the economy begin to shut down.`\
+**Watch Full Video: Biden Holds Economic Briefing**\
+`President-elect Joseph R. Biden Jr. delivered remarks on the economy as coronavirus cases surge and certain areas of the economy begin to shut down.`\
 https://nytimes.com/video/us/politics/100000007456458/biden-briefing-economy.html?searchResultPosition=2
 
 **How to Do Thanksgiving With Less Waste**\
