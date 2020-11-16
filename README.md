@@ -1,40 +1,40 @@
-**Living Near Drilling Is Deadly. Why Don’t California Lawmakers Care?**\
-`The state may be phasing out gas-powered cars, but it’s still legal to put an oil well right next to an elementary school.`\
-https://nytimes.com/video/opinion/100000007452219/california-oil-drilling-legislation.html?searchResultPosition=1
+**Britain’s prime minister is quarantining, and other news around the world.**\
+`By Eric Nagourney and Adam Rasgon`\
+https://nytimes.com/2020/11/16/world/britains-prime-minister-is-quarantining-and-other-news-around-the-world.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Teens in Covid Isolation: “I Felt Like I Was Suffocating’’’**\
-`In this lesson, students learn why a loss of social ties is especially severe for teenagers, then consider how to cope both now and when the pandemic is over.`\
-https://nytimes.com/2020/11/16/learning/lesson-of-the-day-teens-in-covid-isolation-i-felt-like-i-was-suffocating.html?searchResultPosition=2
+**The Distinctive Black Beehives of Turkey’s ‘Honey Forest’**\
+`The beekeeping traditions of the Hemshin people, an ethnic minority originating from Armenia, are both evolving and at risk of vanishing.`\
+https://nytimes.com/2020/11/16/travel/turkey-honey-forest-bees.html?searchResultPosition=2
 
-**How a Minneapolis Suburb Turned Blue, Despite Trump’s Law-and-Order Pitch**\
-`President Trump comfortably carried Chaska, Minn., in 2016. This time, he lost by nine percentage points — a dramatic shift that similarly played out in suburban counties across the country.`\
-https://nytimes.com/2020/11/16/us/biden-suburbs-blue-minneapolis.html?searchResultPosition=3
+**Biden’s China Policy? A Balancing Act for a Toxic Relationship**\
+`As president, Joe Biden will face deep dilemmas, and a lot of unfinished business, stemming from President Trump’s multiyear onslaught against China.`\
+https://nytimes.com/2020/11/16/business/economy/bidens-china-policy-a-balancing-act-for-a-toxic-relationship.html?searchResultPosition=3
 
-**Chris Nikic, You Are an Ironman. And Your Journey Is Remarkable.**\
-`Nikic, 21, became the first person with Down syndrome to conquer the grueling endurance race, offering lessons in perseverance and hope.`\
-https://nytimes.com/2020/11/16/sports/ironman-triathlon-down-syndrome.html?searchResultPosition=4
+**Liberals Envisioned a Multiracial Coalition. Voters of Color Had Other Ideas.**\
+`Democrats may need to rethink their strategy as the class complexities and competing desires of Latino and Asian-American demographic groups become clear.`\
+https://nytimes.com/2020/11/16/us/liberals-race.html?searchResultPosition=4
 
-**While Training Continues, China’s Prized Women’s Hockey Players Are in Russia**\
-`With the 2022 Winter Games 15 months away, at a time teams would normally be paring their rosters, the North American imports aren’t in the Beijing training bubble.`\
-https://nytimes.com/2020/11/16/sports/hockey/china-womens-hockey-2022-olympics-krs-vanke-rays.html?searchResultPosition=5
+**Rachel Bloom’s Life Is an Open Book**\
+`The star and co-creator of “Crazy Ex-Girlfriend” wryly explores adolescent angst, adult trauma and musical theater in a new memoir, “I Want to Be Where the Normal People Are.”`\
+https://nytimes.com/2020/11/16/books/rachel-bloom-i-want-to-be-where-the-normal-people-are.html?searchResultPosition=5
 
-**Word + Quiz: grandstand**\
-`This word has appeared in 30 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/11/16/learning/word-quiz-grandstand.html?searchResultPosition=6
+**Spain’s Other Covid Casualties: Undetected Cancer Cases**\
+`A raft of lawsuits has emerged from a health care system where the struggle to fight the pandemic has led to neglect of other serious conditions.`\
+https://nytimes.com/2020/11/16/world/europe/spain-coronavirus-cancer.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘Big Sky’ and ‘Between the World and Me’**\
-`Ryan Phillippe stars in a new drama from the creator of “Big Little Lies”; a screen adaptation of a Ta-Nehisi Coates work comes to HBO; and “Supernatural” ends its 15-season run.`\
-https://nytimes.com/2020/11/16/arts/television/whats-on-tv-this-week-big-sky-between-the-world-and-me.html?searchResultPosition=7
+**I❤️NY in Crisis: How Do Tourist Shops Survive With No Tourists?**\
+`After the coronavirus lockdown wiped out tourism in the city, souvenir stores remain empty.`\
+https://nytimes.com/2020/11/16/nyregion/souvenir-shops-business-loss.html?searchResultPosition=7
 
-**For a Leading Light of Indian Fashion, All That Glitters Is Not Gold**\
-`Manish Arora was the breakout fashion star of India. Today, his business is in tatters, with a trail of debts. What happened?`\
-https://nytimes.com/2020/11/16/fashion/manish-arora-bankruptcy-downfall.html?searchResultPosition=8
+**For Small-Business Owners, a Shifting Landscape of Resources**\
+`With the end of the Paycheck Protection Program loan program, entrepreneurs are forced to look elsewhere.`\
+https://nytimes.com/2020/11/16/business/smallbusiness/small-business-loans-assistance-resources.html?searchResultPosition=8
 
-**‘Fargo’ Season 4, Episode 9 Recap: And a Little Dog, Too**\
-`This week’s episode was a audacious shaggy dog story full of twists and turns and stylistic flourishes. We’re not in Kansas (City) anymore.`\
-https://nytimes.com/2020/11/15/arts/television/fargo-season-4-episode-9-recap-and-a-little-dog-too.html?searchResultPosition=9
+**Case on Churches, Cuomo and Coronavirus Arrives at Supreme Court**\
+`The general question in cases in California, Nevada and New York is whether government officials or judges should calibrate responses to the public health crisis.`\
+https://nytimes.com/2020/11/16/us/supreme-court-coronavirus-cuomo.html?searchResultPosition=9
 
-**U.S. Election, Boris Johnson, Nagorno-Karabakh: Your Monday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2020/11/15/briefing/us-election-boris-johnson-nagorno-karabakh.html?searchResultPosition=10
+**Shopping for Desk Lamps**\
+`If your work-from-home setup needs an upgrade, a new task light is a good place to start.`\
+https://nytimes.com/2020/11/16/realestate/shopping-for-desk-lamps.html?searchResultPosition=10
 
