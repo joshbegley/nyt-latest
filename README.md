@@ -10,8 +10,8 @@ https://nytimes.com/2020/11/16/fashion/manish-arora-bankruptcy-downfall.html?sea
 `This week’s episode was a audacious shaggy dog story full of twists and turns and stylistic flourishes. We’re not in Kansas (City) anymore.`\
 https://nytimes.com/2020/11/15/arts/television/fargo-season-4-episode-9-recap-and-a-little-dog-too.html?searchResultPosition=3
 
-**Your Monday Briefing**\
-`Trump’s refusal to concede at any cost.`\
+**U.S. Election, Boris Johnson, Nagorno-Karabakh: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/15/briefing/us-election-boris-johnson-nagorno-karabakh.html?searchResultPosition=4
 
 **To Scare Off Wild Bears, Japanese City Calls In the ‘Monster Wolf’**\
