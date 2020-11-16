@@ -23,7 +23,7 @@ https://nytimes.com/2020/11/16/dining/recipes-to-alter-your-mood.html?searchResu
 https://nytimes.com/2020/11/16/world/americas/hurricane-iota.html?searchResultPosition=6
 
 **States Vow Extra Scrutiny of Coronavirus Vaccine**\
-`Special committees, mostly in Democratic states, will seek to reassure the public that an F.D.A.-approved vaccine is safe and effective amid doubts about the Trump administration’s virus response.`\
+`Special committees, mostly in Democratic-led states, will seek to reassure the public that an F.D.A.-approved vaccine is safe and effective amid doubts about the Trump administration’s virus response.`\
 https://nytimes.com/2020/11/16/us/coronavirus-vaccine-states-trump.html?searchResultPosition=7
 
 **Mo Willems Has a Message for Parents: He’s Not on Your Side**\
