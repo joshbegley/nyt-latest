@@ -10,7 +10,7 @@ https://nytimes.com/video/world/asia/100000007453021/japan-monster-wolf-wild-bea
 `No corrections appeared in print on Monday, Nov. 16, 2020.`\
 https://nytimes.com/2020/11/15/pageoneplus/no-corrections-nov-16-2020.html?searchResultPosition=3
 
-**Quotation of the Day: Parties Hunt for a Message After a Split-Decision Election**\
+**Quotation of the Day: Parties Hunting for a Message After a Split-Decision Election**\
 `Quotation of the Day for Monday, November 16, 2020.`\
 https://nytimes.com/2020/11/15/todayspaper/quotation-of-the-day-parties-hunt-for-a-message-after-a-split-decision-election.html?searchResultPosition=4
 
