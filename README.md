@@ -26,7 +26,7 @@ https://nytimes.com/2020/11/16/us/how-are-you-adapting-thanksgiving-this-year.ht
 `The home rental service gave the first comprehensive look at its finances on Monday as it moves to go public.`\
 https://nytimes.com/2020/11/16/technology/airbnb-revenue-prospectus-ipo.html?searchResultPosition=7
 
-**Hungary, Poland Threaten E.U. Stimulus Over Rule of Law Links**\
+**Hungary and Poland Threaten E.U. Stimulus Over Rule of Law Links**\
 `The two illiberal governments, having been enabled by the bloc’s leaders and evaded punishment, now hold a 1.8 trillion euro package hostage.`\
 https://nytimes.com/2020/11/16/world/europe/eu-stimulus-poland-hungary.html?searchResultPosition=8
 
