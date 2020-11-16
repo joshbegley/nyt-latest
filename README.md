@@ -22,7 +22,7 @@ https://nytimes.com/2020/11/16/sports/baseball/hall-of-fame-finalists.html?searc
 `Answer: Schools over restaurants, for now.`\
 https://nytimes.com/2020/11/16/us/biden-coronavirus-school-reopenings-task-force.html?searchResultPosition=6
 
-**Tourism, Major Engine for N.Y.C. Economy, May Not Recover Until 2024**\
+**Tourism, Engine for N.Y.C. Economy, May Not Fully Recover Until 2025**\
 `A new forecast projects a rebound in visitors starting in mid-2021, but says it will take years to return to pre-pandemic totals.`\
 https://nytimes.com/2020/11/16/nyregion/nyc-tourism-covid.html?searchResultPosition=7
 
