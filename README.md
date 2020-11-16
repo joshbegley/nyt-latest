@@ -30,7 +30,7 @@ https://nytimes.com/2020/11/15/arts/television/fargo-season-4-episode-9-recap-an
 `Here’s what you need to know.`\
 https://nytimes.com/2020/11/15/briefing/us-election-boris-johnson-nagorno-karabakh.html?searchResultPosition=8
 
-**To Scare Off Wild Bears, Japanese City Calls In the ‘Monster Wolf’**\
+**To Scare Off Wild Bears, Japanese City Calls In Robo-Wolf**\
 `After bears kept venturing into the city in search of food, officials installed mechanical wolves with bared teeth, glowing red eyes and a fearsome screech to keep the animals away.`\
 https://nytimes.com/2020/11/15/world/asia/japan-robot-wolf-bears.html?searchResultPosition=9
 
