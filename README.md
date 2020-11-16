@@ -11,7 +11,7 @@ https://nytimes.com/slideshow/2020/11/16/realestate/what-you-get-for-3-8-million
 https://nytimes.com/2020/11/16/us/election-disinformation.html?searchResultPosition=3
 
 **‘The Crown’: How to Survive a Royal Weekend**\
-`In the new season, Diana Spencer’s aristocratic breeding triumphs and Margaret Thatcher’s middle class tendencies horrify the royals. Here’s a guide to the rigid world of the British class system.`\
+`In the new season, Diana Spencer’s aristocratic breeding triumphs and Margaret Thatcher’s middle-class tendencies horrify the royals. Here’s a guide to the rigid world of the British class system.`\
 https://nytimes.com/2020/11/16/arts/television/the-crown-margaret-thatcher.html?searchResultPosition=4
 
 **Trump’s S.E.C. Chairman Is Stepping Down**\
