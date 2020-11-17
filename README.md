@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/17/arts/television/animaniacs-hulu.html?searchResult
 
 **The Stars of ‘Animaniacs’ Speak for Themselves**\
 `Meet the voice-over actors who have played Yakko, Wakko, Dot and Pinky and the Brain for nearly 30 years.`\
-https://nytimes.com/2020/11/17/arts/television/the-stars-of-animaniacs-speak-for-themselves.html?searchResultPosition=2
+https://nytimes.com/2020/11/17/arts/television/animaniacs-voice-actors.html?searchResultPosition=2
 
 **Everything You Need to Cook Thanksgiving Dinner**\
 `Here are a few holiday meal essentials from the editors of Wirecutter, a product recommendation site owned by The New York Times Company.`\
