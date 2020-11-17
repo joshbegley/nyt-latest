@@ -2,7 +2,7 @@
 `The decision, coming three weeks after the party suspended Jeremy Corbyn, the ex-Labour leader, provoked anger from some British Jews, who said his attempts to clarify his comments were inadequate.`\
 https://nytimes.com/2020/11/17/world/europe/labour-reinstates-jeremy-corbyn.html?searchResultPosition=1
 
-**Very Good? Very Bad? For the Chicago Bears, Mediocre Seems Just Right.**\
+**Very Good? Very Bad? For the Chicago Bears, Mediocre Seems Just Right**\
 `The team’s 5-1 start was something of an illusion, but even at 5-5, Chicago is not quite dead in the N.F.C. North.`\
 https://nytimes.com/2020/11/17/sports/football/chicago-bears-nick-foles.html?searchResultPosition=2
 
