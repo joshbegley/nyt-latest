@@ -1,5 +1,5 @@
 **Rob Mazurek’s Intergalactic Jazz Aims for a New Dimension**\
-`The composer and cornetist explains how the latest album with his Exploding Star Orchestra is an escape from Earthbound thinking.`\
+`The composer and cornetist explains how the latest album with his Exploding Star Orchestra is an escape from earthbound thinking.`\
 https://nytimes.com/2020/11/17/arts/music/rob-mazurek-dimensional-stardust.html?searchResultPosition=1
 
 **Corporations and Foreign Nations Pivot to Lobby Biden**\
