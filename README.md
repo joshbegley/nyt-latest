@@ -14,7 +14,7 @@ https://nytimes.com/2020/11/16/us/politics/obama-interviews.html?searchResultPos
 `Election officials discovered about 2,600 new ballots, but they are not enough to affect the outcome of the presidential race in the state.`\
 https://nytimes.com/2020/11/16/us/politics/georgia-recount.html?searchResultPosition=4
 
-**Covid, Climate and the Power of Denial**\
+**Why the 2020 Election Makes it Hard to be Optimistic About the Future**\
 `If we can’t face up to a pandemic, how can we avoid apocalypse?`\
 https://nytimes.com/2020/11/16/opinion/coronavirus-climate.html?searchResultPosition=5
 
