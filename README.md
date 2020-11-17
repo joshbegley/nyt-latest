@@ -26,7 +26,7 @@ https://nytimes.com/2020/11/17/arts/television/princess-diana-the-crown.html?sea
 `As the coronavirus surged anew, the authorities on either side of the Atlantic took profoundly different approaches.`\
 https://nytimes.com/2020/11/17/podcasts/the-daily/coronavirus-second-wave-us-europe.html?searchResultPosition=7
 
-**Hurricane Iota Live Updates: Still ‘Extremely Dangerous’ at Category 2**\
+**Hurricane Iota Live Updates: Still ‘Extremely Dangerous’ at Category 1**\
 `The storm is barreling across parts of Central America that are still reeling from Hurricane Eta’s impact earlier this month.`\
 https://nytimes.com/2020/11/17/world/americas/hurricane-iota-updates.html?searchResultPosition=8
 
