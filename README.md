@@ -6,7 +6,7 @@ https://nytimes.com/2020/11/17/technology/lawmakers-drill-down-on-how-facebook-a
 `An industry group says that the financial state of the country’s museums “is moving from bad to worse.”`\
 https://nytimes.com/2020/11/17/arts/design/museum-closings-covid-19.html?searchResultPosition=2
 
-**Review: A Digital Fog of War, and Its Aftermath**\
+**‘Remnant’ Review: A Digital Fog of War, and Its Aftermath**\
 `Drawing on interviews with soldiers and classical texts, Theater Mitu’s experimental collage is visually absorbing but thematically fuzzy.`\
 https://nytimes.com/2020/11/17/theater/remnant-review.html?searchResultPosition=3
 
