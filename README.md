@@ -22,7 +22,7 @@ https://nytimes.com/2020/11/17/technology/how-twitter-and-facebook-plan-to-handl
 `The podcast boom has produced plenty of star vehicles in audio form, and these celebrity-hosted shows are a cut above the rest.`\
 https://nytimes.com/2020/11/17/arts/podcasts-famous-hosts.html?searchResultPosition=6
 
-**Lil Wayne Charged With Federal Gun Possession**\
+**Lil Wayne Faces Federal Gun Possession Charge**\
 `The rapper, a felon, faces up to 10 years in prison if convicted.`\
 https://nytimes.com/2020/11/17/arts/music/lil-wayne-gun-charge.html?searchResultPosition=7
 
