@@ -18,8 +18,8 @@ https://nytimes.com/2020/11/16/pageoneplus/corrections-nov-17-2020.html?searchRe
 `Quotation of the Day for Tuesday, November 17, 2020.`\
 https://nytimes.com/2020/11/16/todayspaper/quotation-of-the-day-tourists-may-love-new-york-but-may-not-be-back-for-years.html?searchResultPosition=5
 
-**Your Tuesday Briefing**\
-`‘Impressive’ results from Moderna’s vaccine trials.`\
+**Moderna Vaccine, E.U., Joe Biden: Your Tuesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/16/briefing/moderna-vaccine-eu-budget-joe-biden.html?searchResultPosition=6
 
 **$73 Million Settlement Is Reached in Sex Abuse Suit Involving U.C.L.A. Gynecologist**\
