@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/18/health/coronavirus-testing-home.html?searchResult
 `Federal prosecutors say that Timothy John Watson sold his products to members of the antigovernment Boogaloo movement.`\
 https://nytimes.com/2020/11/18/us/boogaloo-machine-gun-sales-indicted.html?searchResultPosition=9
 
-**Corrections: Nov. 18, 2020**\
-`Corrections that appeared in print on Wednesday, Nov. 18, 2020.`\
-https://nytimes.com/2020/11/17/corrections/corrections-nov-18-2020.html?searchResultPosition=10
+**F.D.A. authorizes the first at-home coronavirus test.**\
+`By Katherine J. Wu`\
+https://nytimes.com/2020/11/17/world/fda-authorizes-the-first-at-home-coronavirus-test.html?searchResultPosition=10
 
