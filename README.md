@@ -15,7 +15,7 @@ https://nytimes.com/2020/11/18/realestate/sunnyside-queens-the-lure-of-greenery-
 https://nytimes.com/slideshow/2020/11/18/realestate/living-in-sunnyside-queens.html?searchResultPosition=4
 
 **A Trump Memoir Would Sell. Will Publishers Buy It?**\
-`Some publishing executives worry their authors and staff might rebel, but they say their bigger concern would be ensuring that the book is accurate.`\
+`Some publishing executives worry their authors and staff might rebel, but they say their bigger concern would be ensuring the book’s accuracy.`\
 https://nytimes.com/2020/11/18/books/trump-memoir-publishers.html?searchResultPosition=5
 
 **Many G.O.P. Governors Avoid Stating Plainly That Biden Won**\
