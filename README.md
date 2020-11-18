@@ -2,7 +2,7 @@
 `A project announced this week and funded by the European Union will catalog and recreate the scents of Europe from the 16th century to the early 20th century.`\
 https://nytimes.com/2020/11/18/world/europe/europe-historic-smells.html?searchResultPosition=1
 
-**Second Investigation at Victoria's Secret, but Employees Wonder What’s Changed**\
+**Second Epstein Investigation Begins at Victoria’s Secret, but What’s Changed?**\
 `An internal review started after Jeffrey Epstein’s ties to the company were revealed has not produced any public findings. Some employees question whether workplace issues have been properly addressed.`\
 https://nytimes.com/2020/11/18/business/victorias-secret-internal-culture-les-wexner.html?searchResultPosition=2
 
