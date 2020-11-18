@@ -10,8 +10,8 @@ https://nytimes.com/2020/11/17/corrections/corrections-nov-18-2020.html?searchRe
 `Quotation of the Day for Wednesday, November 18, 2020.`\
 https://nytimes.com/2020/11/17/todayspaper/quotation-of-the-day-democrats-went-all-out-it-might-be-why-they-lost.html?searchResultPosition=3
 
-**Your Wednesday Briefing**\
-`Immunity to the coronavirus may last years.`\
+**Covid-19 Immunity, Palestinians, Biden: Your Wednesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/17/briefing/covid-19-immunity-israel-palestinians-biden.html?searchResultPosition=4
 
 **Time Away From the Grind**\
