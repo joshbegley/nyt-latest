@@ -1,5 +1,5 @@
 **Kevin McCarthy, the House Minority Leader, Doesn’t Think Trump Is Going Away**\
-`The California Republican believes his party’s victories in 2020 came thanks to the president, not in spite of him: ‘He brought turnout.’`\
+`The California Republican believes his party’s victories in 2020 came thanks to the president, not in spite of him: “He brought turnout.”`\
 https://nytimes.com/2020/11/18/us/politics/kevin-mccarthy-trump.html?searchResultPosition=1
 
 **Director of Mass MoCA, Playground for Artists, Moves On**\
