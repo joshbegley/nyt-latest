@@ -1,10 +1,10 @@
-**Children in U.S. May Miss 9 Million Vaccine Doses in 2020, Report Warns**\
-`The Blue Cross Blue Shield Association said vaccinations for measles, polio and other highly contagious diseases had fallen by as much as 26 percent during the coronavirus pandemic.`\
-https://nytimes.com/2020/11/18/health/coronavirus-childhood-vaccines-immunizations.html?searchResultPosition=1
-
 **The Rise, Fall and Resurrection of the Taliban**\
 `A Times correspondent reflects on what he’s learned from growing up with and reporting on the extremists in Afghanistan for some 25 years.`\
-https://nytimes.com/2020/11/18/podcasts/the-daily/afghanistan-taliban-us-withdrawal.html?searchResultPosition=2
+https://nytimes.com/2020/11/18/podcasts/the-daily/afghanistan-taliban-us-withdrawal.html?searchResultPosition=1
+
+**Children in U.S. May Miss 9 Million Vaccine Doses in 2020, Report Warns**\
+`The Blue Cross Blue Shield Association said vaccinations for measles, polio and other highly contagious diseases had fallen by as much as 26 percent during the coronavirus pandemic.`\
+https://nytimes.com/2020/11/18/health/coronavirus-childhood-vaccines-immunizations.html?searchResultPosition=2
 
 **Apple Halves Its App Store Fee for the Smaller Companies**\
 `App makers bridled at the 30 percent commission, which has drawn scrutiny from regulators looking into antitrust claims.`\
