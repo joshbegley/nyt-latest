@@ -28,7 +28,7 @@ https://nytimes.com/2020/11/18/movies/movies-tv-stream-online.html?searchResultP
 
 **Sunnyside, Queens: The Lure of Greenery in a Pandemic**\
 `Housing sales are brisk in this western Queens neighborhood, thanks to leafy backyards and — for some lucky homeowners — access to a private park.`\
-https://nytimes.com/2020/11/18/realestate/sunnyside-queens-the-lure-of-greenery-in-a-pandemic.html?searchResultPosition=8
+https://nytimes.com/2020/11/18/realestate/sunnyside-queens.html?searchResultPosition=8
 
 **Living In ... Sunnyside, Queens**\
 `Housing sales are brisk in this western Queens neighborhood, thanks to leafy backyards and — for some lucky homeowners — access to a private park.`\
