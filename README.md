@@ -1,4 +1,4 @@
-**New Pfizer Results: Vaccine Is Safe and 95% Effective**\
+**New Pfizer Results: Coronavirus Vaccine Is Safe and 95% Effective**\
 `The company said it planned to apply for emergency approval from the Food and Drug Administration “within days.”`\
 https://nytimes.com/2020/11/18/health/pfizer-covid-vaccine.html?searchResultPosition=1
 
