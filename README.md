@@ -18,7 +18,7 @@ https://nytimes.com/2020/11/18/crosswords/crosswords-puzzles-constructor-merrell
 `The industry has been hit so hard  it could take years to come back. “It’s going to be a very slow build initially,” the tourism chief said.`\
 https://nytimes.com/2020/11/18/nyregion/nyc-tourism-coronavirus.html?searchResultPosition=5
 
-**I Am Living in a Covid-Free World Just a Few Hundred Miles from Manhattan**\
+**I Am Living in a Covid-Free World Just a Few Hundred Miles From Manhattan**\
 `Welcome to Nova Scotia, the land that proves that beating back the virus is possible.`\
 https://nytimes.com/2020/11/18/opinion/covid-halifax-nova-scotia-canada.html?searchResultPosition=6
 
