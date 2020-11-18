@@ -1,40 +1,40 @@
-**Watch These TikTok Videos. The Vibe Is Contagious.**\
-`When anxiety is running high, TikTok masters of “vibe” invite us into their lighter moments, from skating backward to rocking out.`\
-https://nytimes.com/2020/11/18/magazine/watch-these-tiktok-videos-the-vibe-is-contagious.html?searchResultPosition=1
+**The Best Films and TV Shows to Stream Over the Holidays**\
+`Hollywood history (“Mank”), jazz (“Soul”) and romance (“Happiest Season”) all have a chance to shine in your living room as the year comes to an end.`\
+https://nytimes.com/2020/11/18/movies/movies-tv-stream-online.html?searchResultPosition=1
 
-**Salt-Rising Bread: A Delicious and Nearly Lost Tradition**\
-`This yeast-free bread connects us to long-ago bakers and rewards those who are patient with a delicate, cakelike crumb.`\
-https://nytimes.com/2020/11/18/magazine/salt-rising-bread-a-delicious-and-nearly-lost-tradition.html?searchResultPosition=2
+**Sunnyside, Queens: The Lure of Greenery in a Pandemic**\
+`Housing sales are brisk in this western Queens neighborhood, thanks to leafy backyards and — for some lucky homeowners — access to a private park.`\
+https://nytimes.com/2020/11/18/realestate/sunnyside-queens-the-lure-of-greenery-in-a-pandemic.html?searchResultPosition=2
 
-**How Richard Linklater’s ‘Dazed and Confused’ Came to Exist**\
-`Patton Oswalt reviews “Alright, Alright, Alright,” an oral history by Melissa Maerz.`\
-https://nytimes.com/2020/11/18/books/review/alright-alright-alright-dazed-and-confused-melissa-maerz.html?searchResultPosition=3
+**Living In ... Sunnyside, Queens**\
+`Housing sales are brisk in this western Queens neighborhood, thanks to leafy backyards and — for some lucky homeowners — access to a private park.`\
+https://nytimes.com/slideshow/2020/11/18/realestate/living-in-sunnyside-queens.html?searchResultPosition=3
 
-**‘Within Seconds Everything Was Gone’: Devastating Floods Submerge the Philippines**\
-`Torrential rains and back-to-back typhoons have ripped through the country in the past two weeks, turning a once picturesque river into a sea of murky brown, killing dozens and setting off deadly landslides.`\
-https://nytimes.com/2020/11/18/world/asia/philippines-floods-photos.html?searchResultPosition=4
+**A Trump Memoir Would Sell. Will Publishers Buy It?**\
+`Some publishing executives worry their authors and staff might rebel, but they say their bigger concern would be ensuring that the book is accurate.`\
+https://nytimes.com/2020/11/18/books/trump-memoir-publishers.html?searchResultPosition=4
 
-**Lesson of the Day: ‘Masks Work. Really. We’ll Show You How.’**\
-`In this lesson, students will go on a visual journey to see how effective a swath of fabric can be at fighting the coronavirus. Then they will create posters to inform others about what they learned.`\
-https://nytimes.com/2020/11/18/learning/lesson-of-the-day-masks-work-really-well-show-you-how.html?searchResultPosition=5
+**Many G.O.P. Governors Avoid Stating Plainly That Biden Won**\
+`Most were operating in a murky middle ground in which they neither gave full credence to the president’s claims of fraud nor affirmed Joe Biden’s victory.`\
+https://nytimes.com/2020/11/18/us/republican-governors-biden-trump.html?searchResultPosition=5
 
-**1,000 Interviews to Pick No. 1: Inside the Timberwolves’ N.B.A. Draft Prep**\
-`It has taken months of watching film, traveling the country and conducting interviews on video, but Minnesota is just about ready to make the first pick in the N.B.A. draft — or trade it away.`\
-https://nytimes.com/2020/11/18/sports/basketball/nba-draft-minnesota-timberwolves.html?searchResultPosition=6
+**The Wild, Rangy, Unclassifiable Delights of Joy Williams’s Fiction**\
+`In the third installment of “The Americans,” his series on overlooked or under-read writers, A.O. Scott considers the idiosyncratic originality of an author whose influences extend from Hawthorne to Carver but whose imagination is wholly her own.`\
+https://nytimes.com/2020/11/18/books/the-wild-rangy-unclassifiable-delights-of-joy-williamss-fiction.html?searchResultPosition=6
 
-**The N.F.C. West Has Highlights and Stars. But Can it Contend?**\
-`DK Metcalf’s chase-down. DeAndre Hopkins’s catch. The division has produced some of the most memorable moments of the 2020 season, but there’s no distinguishing among its logjam of 6-3 teams.`\
-https://nytimes.com/2020/11/18/sports/football/nfc-west-cardinals-seahawks.html?searchResultPosition=7
+**When Trump Goes, Can the Democrats Hold It Together?**\
+`An intense battle between moderates and progressives has already spilled into public view.`\
+https://nytimes.com/2020/11/18/opinion/biden-democrats-moderate-progressive.html?searchResultPosition=7
 
-**Respect for Skateboarders**\
-`Have you seen more skateboarding parks in your area? Do you think the sport is becoming mainstream — and, if so, is that a good thing?`\
-https://nytimes.com/2020/11/18/learning/respect-for-skateboarders.html?searchResultPosition=8
+**Cases of Mask-taken Identity**\
+`Running into friends on the street has gotten a lot more complicated.`\
+https://nytimes.com/2020/11/18/style/wearing-a-mask-in-public-awkward-encounters.html?searchResultPosition=8
 
-**Jimmy Kimmel Calls Giuliani the ‘Gift That Keeps on Grifting’**\
-`“I guess this explains why Trump has been passing the MAGA hat around, asking his fans to donate to his legal defense fund,” Kimmel said of Rudy Giuliani’s alleged request to be paid $20,000 a day.`\
-https://nytimes.com/2020/11/18/arts/television/jimmy-kimmel-giuliani-trump.html?searchResultPosition=9
+**What About Tackling the Causes of Student Debt?**\
+`Pros and cons of loan forgiveness aside, there’s a more fundamental problem.`\
+https://nytimes.com/2020/11/18/upshot/student-debt-forgiveness-biden.html?searchResultPosition=9
 
-**Word + Quiz: grizzled**\
-`This word has appeared in 55 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/11/18/learning/word-quiz-grizzled.html?searchResultPosition=10
+**N.Y. Shuts Funeral Home Where Dozens of Bodies Were Found in Trucks**\
+`The Brooklyn funeral director says New York failed to help mortuaries struggling with an onslaught of bodies at the height of the pandemic.`\
+https://nytimes.com/2020/11/18/nyregion/brooklyn-funeral-home-trucks.html?searchResultPosition=10
 
