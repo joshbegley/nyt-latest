@@ -26,7 +26,7 @@ https://nytimes.com/2020/11/18/briefing/nyc-schools-biden-transition-ina-garten.
 `Over a Zoom call, Eric Adams, the Brooklyn borough president, officially announced his run for New York City mayor.`\
 https://nytimes.com/interactive/2020/11/18/nyregion/eric-adams-nyc-mayor.html?searchResultPosition=7
 
-**Linda Henry, Who Owns The Boston Globe With Her Husband, Becomes Its Chief Executive**\
+**Linda Henry, Who Owns Boston Globe With Her Husband, Becomes Its C.E.O.**\
 `She takes the reins at a time of rising tensions between management and the paper’s union.`\
 https://nytimes.com/2020/11/18/business/media/boston-globe-linda-henry.html?searchResultPosition=8
 
