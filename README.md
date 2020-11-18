@@ -1,6 +1,6 @@
 **Forget the Fancy Proposal. Let’s Just Get Married.**\
 `An orchestrated proposal is often deemed an essential step toward marriage. But many couples, already living together and sharing bank accounts, consider it unnecessary.`\
-https://nytimes.com/2020/11/18/style/forget-the-fancy-proposal-lets-just-get-married.html?searchResultPosition=1
+https://nytimes.com/2020/11/18/style/marriage-proposal.html?searchResultPosition=1
 
 **South Australia Announces Six-Day Lockdown**\
 `The state of South Australia will go into lockdown in an effort to contain a growing coronavirus outbreak.`\
