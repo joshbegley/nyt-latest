@@ -1,5 +1,5 @@
 **‘Within Seconds Everything Was Gone’: Devastating Floods Submerge the Philippines**\
-`Torrential rains and back-to-back typhoons have ripped through the country in the past two weeks, turning a once picturesque river into a sea of murky brown, killing dozens and triggering deadly landslides.`\
+`Torrential rains and back-to-back typhoons have ripped through the country in the past two weeks, turning a once picturesque river into a sea of murky brown, killing dozens and setting off deadly landslides.`\
 https://nytimes.com/2020/11/18/world/asia/philippines-floods-photos.html?searchResultPosition=1
 
 **Lesson of the Day: ‘Masks Work. Really. We’ll Show You How.’**\
