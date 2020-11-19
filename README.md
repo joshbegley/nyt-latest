@@ -10,7 +10,7 @@ https://nytimes.com/2020/11/19/business/gm-electric-vehicles.html?searchResultPo
 `The new Showtime documentary aims to present a more complex view of John Belushi, the tragically fated star of “Animal House,” “The Blues Brothers” and “S.N.L.,” beyond the stunts and hard partying.`\
 https://nytimes.com/2020/11/19/arts/television/belushi-documentary.html?searchResultPosition=3
 
-**How To Make Thanksgiving In One Pot and One Pan**\
+**How to Make Thanksgiving With One Pot and One Pan**\
 `This small-scale feast packs in the classics with less clean up and no stress.`\
 https://nytimes.com/2020/11/19/dining/one-pot-sheet-pan-thanksgiving.html?searchResultPosition=4
 
