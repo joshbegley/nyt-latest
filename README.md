@@ -35,6 +35,6 @@ https://nytimes.com/2020/11/19/sports/olympics/swimming-records-olympics.html?se
 https://nytimes.com/2020/11/19/business/media/buzzfeed-huffpost.html?searchResultPosition=9
 
 **‘Just a Matter of Time,’ de Blasio Says of Limiting Indoor Activity**\
-`Mayor Bill de Blasio of New York warned of further restrictions on indoor activity as the city enters the Orange Zone.`\
+`Mayor Bill de Blasio of New York warned of further restrictions on indoor activity as the city approaches the Orange Zone.`\
 https://nytimes.com/video/us/politics/100000007463543/deblasio-nyc-coronavirus.html?searchResultPosition=10
 
