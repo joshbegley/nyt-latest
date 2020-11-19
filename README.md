@@ -10,8 +10,8 @@ https://nytimes.com/video/world/africa/100000007463336/africa-coronavirus-cases.
 `New research shows that we need to be even more skeptical online shoppers.`\
 https://nytimes.com/2020/11/19/technology/fake-reviews-amazon.html?searchResultPosition=3
 
-**Census Bureau Says It Can’t Meet Trump’s Deadline for Population Count**\
-`The bureau has concluded it won’t have data on time to carry out the administration’s goal of stripping unauthorized immigrants from census totals for apportionment.`\
+**Census Bureau Says It Can’t Meet Trump’s Deadline for Count of Undocumented Immigrants**\
+`The bureau has concluded it won’t have data on time to carry out the administration’s goal of stripping unauthorized immigrants from census totals before a new president is inaugurated.`\
 https://nytimes.com/2020/11/19/us/2020-census-data.html?searchResultPosition=4
 
 **Arecibo Observatory, a Great Eye on the Cosmos, Is Going Dark**\
