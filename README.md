@@ -1,40 +1,40 @@
-**Virus Words vs. Actions**\
-`And what else you need to know today.`\
-https://nytimes.com/2020/11/19/briefing/election-results-gavin-newsom-nyc-schools.html?searchResultPosition=1
+**Biden Turns Up the Heat on the G.S.A.**\
+`The Trump administration holds out in blocking the transition: This is your morning tip sheet.`\
+https://nytimes.com/2020/11/19/us/politics/biden-gsa-transition.html?searchResultPosition=1
 
-**The Pandemic Economy in 7 Numbers**\
-`As several areas in the U.S. start to reimpose coronavirus restrictions, we look at some landmark figures that illuminate the depth of the recession and the prospects for recovery.`\
-https://nytimes.com/2020/11/19/podcasts/the-daily/coronavirus-pandemic-us-economy-unemployment.html?searchResultPosition=2
+**‘Team Marco’ Review: Bocce Will Save Our Youth**\
+`An obnoxious youth is taught the ways of the bocce court in this Staten Island family drama from Julio Vincent Gambuto.`\
+https://nytimes.com/2020/11/19/movies/team-marco-review.html?searchResultPosition=2
 
-**Introducing ‘Some Kind of Heaven,’ a Film From The Times and Magnolia Pictures**\
-`Behind the gates of a palm-tree-lined fantasyland, three residents and one interloper at America’s largest retirement community strive to find happiness.`\
-https://nytimes.com/2020/11/19/universal/introducing-some-kind-of-heaven-a-film-from-the-times-and-magnolia-pictures.html?searchResultPosition=3
+**‘Mangrove’ Review: A Restaurant’s Radicalism**\
+`The first episode in Steve McQueen’s “Small Axe” anthology dramatizes protest and police brutality in 1960s London.`\
+https://nytimes.com/2020/11/19/movies/mangrove-review-small-axe.html?searchResultPosition=3
 
-**An Arms Race in Car Stereos**\
-`Seventeen speakers, meticulously engineered? That can be just the start in luring audiophile car buyers with plenty of cash to spend.`\
-https://nytimes.com/2020/11/19/business/car-stereos.html?searchResultPosition=4
+**‘Soros’ Review: A Philanthropist in the Spotlight**\
+`This documentary on the Holocaust survivor and successful investor isn’t an objective portrait and doesn’t aspire to be.`\
+https://nytimes.com/2020/11/19/movies/soros-review.html?searchResultPosition=4
 
-**An Angel on the Shoulder of Your Teenage Driver (or at Least a Snitch)**\
-`Many automakers offer systems that keep an eye on how fast or how far your teenager is traveling.`\
-https://nytimes.com/2020/11/19/business/teen-driver-monitoring-systems.html?searchResultPosition=5
+**‘Vanguard’ Review: Jackie Chan, More Avuncular Than Action This Time**\
+`Playing a chief executive, Chan mostly observes rather than takes part in this movie’s death-defying stunts.`\
+https://nytimes.com/2020/11/19/movies/vanguard-review.html?searchResultPosition=5
 
-**N.Y.C.’s Schools Shutdown, Explained**\
-`The mayor may wait until community spread of the virus stabilizes at a lower rate before reopening the buildings.`\
-https://nytimes.com/2020/11/19/nyregion/nyc-schools-closed-covid.html?searchResultPosition=6
+**‘The Last Vermeer’ Review: A Lost Masterpiece Is Only the Beginning**\
+`The Danish actor Claes Bang plays an army officer in the aftermath of World War II, investigating paintings that have fallen into Nazi hands.`\
+https://nytimes.com/2020/11/19/movies/the-last-vermeer-review.html?searchResultPosition=6
 
-**Do You Know Where Your Watch’s Gold Came From?**\
-`Some Swiss watch companies are beginning to disclose their supply chains.`\
-https://nytimes.com/2020/11/19/fashion/watches-supply-chain-transparency-chopard.html?searchResultPosition=7
+**‘The Princess Switch: Switched Again’ Review: A Who’s Who of Hudgens**\
+`A holiday game of musical thrones keeps Vanessa Hudgens whirling through costumes and accents.`\
+https://nytimes.com/2020/11/19/movies/the-princess-switch-switched-again-review-a-whos-who-of-hudgens.html?searchResultPosition=7
 
-**In Britain, Watch Sellers Shocked at End of Sales Tax Refund**\
-`Come 2021, travelers will no longer be reimbursed for most of the 20 percent VAT they paid on a Rolex or many other souvenirs.`\
-https://nytimes.com/2020/11/19/fashion/watches-britain-travel-VAT-reimbursement.html?searchResultPosition=8
+**‘Sound of Metal’ Review: When the Music Stops, the Healing Begins**\
+`Riz Ahmed is touchingly credible as a musician who loses his hearing in this unusual drama.`\
+https://nytimes.com/2020/11/19/movies/sound-of-metal-review.html?searchResultPosition=8
 
-**‘Reach Out to Trump Supporters,’ They Said. I Tried.**\
-`I give up.`\
-https://nytimes.com/2020/11/19/opinion/trump-supporters.html?searchResultPosition=9
+**‘Run’ Review: Bad Medicine**\
+`Sarah Paulson plays a menacing parent in this enjoyably ludicrous thriller.`\
+https://nytimes.com/2020/11/19/movies/run-review.html?searchResultPosition=9
 
-**Reducing the Impact of the Packaging**\
-`Watch brands are developing presentation boxes of recycled or green materials, a sign of their concern for sustainability.`\
-https://nytimes.com/2020/11/19/fashion/watches-packaging-breitling.html?searchResultPosition=10
+**‘The Twentieth Century’ Review: The Great Weird North**\
+`In Matthew Rankin’s visually exuberant film, a candidate for prime minister copes with fascism and fetishism in a bizarro-world version of Canada’s past.`\
+https://nytimes.com/2020/11/19/movies/the-twentieth-century-review.html?searchResultPosition=10
 
