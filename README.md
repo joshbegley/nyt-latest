@@ -8,7 +8,7 @@ https://nytimes.com/2020/11/18/todayspaper/quotation-of-the-day-hospitals-full-i
 
 **The Coronavirus Is Airborne Indoors. But We’re Still Scrubbing Surfaces.**\
 `Scientists who initially warned about contaminated surfaces now say that the virus spreads primarily through inhaled droplets, and that there is little to no evidence that deep cleaning mitigates the threat indoors.`\
-https://nytimes.com/2020/11/18/world/asia/coronavirus-scrubbing-surfaces.html?searchResultPosition=3
+https://nytimes.com/2020/11/18/world/asia/covid-cleaning.html?searchResultPosition=3
 
 **Your Thursday Briefing**\
 `A quarter of a million deaths in the U.S.`\
