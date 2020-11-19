@@ -1,5 +1,5 @@
 **Mnuchin to End Some Fed Emergency Programs, Limiting Biden**\
-`The Treasury Department asked the Fed to return unused funds, which could prevent a new secretary from restarting key loan programs.`\
+`The Treasury Department asked the Federal Reserve to return unused funds, which could prevent a new secretary from restarting key loan programs.`\
 https://nytimes.com/2020/11/19/business/economy/mnuchin-fed-emergency-programs.html?searchResultPosition=1
 
 **Whatever It Is, It’s Probably Not Hair Dye**\
