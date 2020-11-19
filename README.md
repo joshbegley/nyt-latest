@@ -1,4 +1,4 @@
-**Treasury’s Mnuchin Plans to End Fed’s Emergency Facilities**\
+**Mnuchin to End Some Fed Emergency Programs, Limiting Biden**\
 `The Treasury Department asked the Fed to return unused funds, which could prevent a new secretary from restarting key loan programs.`\
 https://nytimes.com/2020/11/19/business/economy/mnuchin-fed-emergency-programs.html?searchResultPosition=1
 
