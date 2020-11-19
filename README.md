@@ -1,4 +1,4 @@
-**Australian Troops Unlawfully Killed 39 Afghan Civilians, Report Finds**\
+**Australian Troops Unlawfully Killed 39 Afghans, Report Finds**\
 `The findings of a long-awaited inquiry painted a scathing picture of the culture inside the Australian special forces.`\
 https://nytimes.com/2020/11/18/world/australia/afghanistan-war-crimes.html?searchResultPosition=1
 
