@@ -1,18 +1,18 @@
+**After the Election, Celebrating Diversity**\
+`“I am so overwhelmed with pride to be American again,” a Muslim woman writes. Also: Recovering memories; wrist fractures.`\
+https://nytimes.com/2020/11/19/opinion/letters/biden-diversity.html?searchResultPosition=1
+
 **What’s Going On in This Graph? | Dec. 2, 2020**\
 `These two maps show the results of the 2020 presidential election. Which map does a better job of visualizing the outcome of the election?`\
-https://nytimes.com/2020/11/19/learning/whats-going-on-in-this-graph-dec-2-2020.html?searchResultPosition=1
+https://nytimes.com/2020/11/19/learning/whats-going-on-in-this-graph-dec-2-2020.html?searchResultPosition=2
 
 **Will Lara Trump Be the Next Trump on a Ballot?**\
 `The president’s daughter-in-law is said to be considering a Senate run in her native state of North Carolina.`\
-https://nytimes.com/2020/11/19/us/politics/lara-trump.html?searchResultPosition=2
+https://nytimes.com/2020/11/19/us/politics/lara-trump.html?searchResultPosition=3
 
 **H.I.V. Death Rates Fell by Half, C.D.C. Says**\
 `From 2010-2018, significantly fewer people died of H.I.V.-related causes, although survival rates for women and people of color did not improve as much.`\
-https://nytimes.com/2020/11/19/health/hiv-aids-death-rates-cdc.html?searchResultPosition=3
-
-**No, Judges Don’t Overturn Elections Because of isolated Irregularities**\
-`Courts have set the bar extremely high for throwing out election results, and the discrepancies cited by the Trump campaign don’t come anywhere close.`\
-https://nytimes.com/interactive/2020/11/19/technology/election-overturn-judge.html?searchResultPosition=4
+https://nytimes.com/2020/11/19/health/hiv-aids-death-rates-cdc.html?searchResultPosition=4
 
 **Douglas Stuart Wins Booker Prize for ‘Shuggie Bain’**\
 `The autobiographical novel, about the lonely gay son of an alcoholic mother in 1980s Scotland, was one of four debut books in this year’s shortlist.`\
