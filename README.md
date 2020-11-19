@@ -22,8 +22,8 @@ https://nytimes.com/2020/11/18/todayspaper/quotation-of-the-day-hospitals-full-i
 `Scientists who initially warned about contaminated surfaces now say that the virus spreads primarily through inhaled droplets, and that there is little to no evidence that deep cleaning mitigates the threat indoors.`\
 https://nytimes.com/2020/11/18/world/asia/covid-cleaning.html?searchResultPosition=6
 
-**Your Thursday Briefing**\
-`A quarter of a million deaths in the U.S.`\
+**Covid-19, Boris Johnson, U.S. Troops: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/18/briefing/covid-19-boris-johnson-us-troops.html?searchResultPosition=7
 
 **Groundwork of a Plant Manager**\
