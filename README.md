@@ -18,8 +18,8 @@ https://nytimes.com/2020/11/19/books/booker-prize-winner-douglas-stuart-shuggie-
 `By Stephanie Saul`\
 https://nytimes.com/2020/11/19/us/david-perdue-stock-georgia-senate.html?searchResultPosition=5
 
-**Smithsonian to Close Its Washington Museums on Monday**\
-`Eight D.C.-area institutions that had reopened to the public will again temporarily close their doors.`\
+**Smithsonian Museums Are Latest to Shutter as Virus Surges**\
+`Eight D.C.-area institutions that had reopened to the public will again temporarily close their doors, starting Monday.`\
 https://nytimes.com/2020/11/19/arts/design/smithsonian-museums-closing-covid-dc.html?searchResultPosition=6
 
 **Review: 4 Characters in Search of a Big Moment in ‘A Day’**\
