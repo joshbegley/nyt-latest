@@ -1,5 +1,5 @@
 **Fugitive Arrested After Remains of 3 People Are Found in Colorado**\
-`Adre Jordan Baroz, who goes by the nickname Psycho, faces charges of first-degree homicide, first-degree assault and second-degree kidnapping, according to the Colorado Bureau of Investigation.`\
+`Adre Jordan Baroz, who goes by the nickname Psycho, faces charges of homicide, assault and kidnapping, according to the Colorado Bureau of Investigation.`\
 https://nytimes.com/2020/11/19/us/Psycho-Colorado.html?searchResultPosition=1
 
 **Trump’s Attempts to Overturn the Election Are Unparalleled in U.S. History**\
