@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/19/us/politics/trump-election.html?searchResultPosit
 
 **Are Streamed Plays Theater or TV? Unions Settle a Dispute**\
 `Actors’ Equity and SAG-AFTRA agreement clears the way for more entertainment during the pandemic winter.`\
-https://nytimes.com/2020/11/19/theater/Sag-aftra-equity-dispute.html?searchResultPosition=2
+https://nytimes.com/2020/11/19/theater/Sag-aftra-equity-settle-dispute.html?searchResultPosition=2
 
 **Trump Targets Michigan in His Ploy to Subvert the Election**\
 `In a brazen step, the president invited Republican state leaders in Michigan to the White House as he and his allies try to prevent the state from certifying Joe Biden’s clear victory there.`\
