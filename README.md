@@ -1,40 +1,40 @@
-**New in Paperback: ‘The Grammarians’ and ‘Edison’**\
-`Six new paperbacks to check out this week.`\
-https://nytimes.com/2020/11/20/books/review/new-paperbacks.html?searchResultPosition=1
+**She Seemed Destined for Olympic Glory. Brain Injuries Ended That.**\
+`Ellie Furneaux looked like she was going to become Britain’s next star in the sledding sport skeleton. But a series of concussions took a heavy toll.`\
+https://nytimes.com/2020/11/20/sports/olympics/skeleton-concussion-bobsled-head-injuries.html?searchResultPosition=1
 
-**What the Pandemic Has Done to to Giveaway Books**\
-`Brooklynites have a long tradition of passing along books. But what ends up in giveaway piles these days speaks volumes about our current fraught moment.`\
-https://nytimes.com/interactive/2020/11/20/nyregion/street-books-brooklyn.html?searchResultPosition=2
+**What 635 Epidemiologists Are Doing for Thanksgiving**\
+`Those who are gathering with family or friends are taking precautions or rethinking their holiday rituals altogether. Most are staying home.`\
+https://nytimes.com/2020/11/20/upshot/how-epidemiologists-spending-thanksgiving.html?searchResultPosition=2
 
-**100 Notable Books of 2020**\
-`The year’s notable fiction, poetry and nonfiction, selected by the editors of The New York Times Book Review`\
-https://nytimes.com/interactive/2020/books/notable-books.html?searchResultPosition=3
+**After a ‘Covid Semester,’ the University of Michigan Gets Tougher on the Virus**\
+`Like many big state universities, it tried to open with some semblance of normalcy. Outbreaks ensued.`\
+https://nytimes.com/2020/11/20/us/coronavirus-colleges-michigan.html?searchResultPosition=3
 
-**Weekly Health Quiz: Thanksgiving Shopping, Coronavirus and a Grim Milestone**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2020/11/20/well/live/20healthquiz-11202020.html?searchResultPosition=4
+**A Medical Examiner Fought to Prepare Her County for the Virus. Then It Struck.**\
+`Patty Schachtner took masks to funeral homes and installed showers for sheriff’s deputies. No amount of preparation could ready her for what followed.`\
+https://nytimes.com/2020/11/20/us/wisconsin-coronavirus.html?searchResultPosition=4
 
-**England’s Greatest Novelist and Other Letters to the Editor**\
-`Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2020/11/20/books/review/englands-greatest-novelist-and-other-letters-to-the-editor.html?searchResultPosition=5
+**Where Have All the Houseguests Gone?**\
+`The pandemic has made it impossible to invite people over, fundamentally changing the way many of us like to use our homes.`\
+https://nytimes.com/2020/11/20/realestate/covid-houseguests-entertaining.html?searchResultPosition=5
 
-**In ‘Small Axe,’ Letitia Wright Plays a Real-Life Black Panther**\
-`The actress takes on the role of the British activist Altheia Jones-LeCointe in Steve McQueen’s series for Amazon. The experience has proved to be an education.`\
-https://nytimes.com/2020/11/20/arts/television/letitia-wright-mangrove-small-axe.html?searchResultPosition=6
+**If Biden Wants to Be Like F.D.R., He Needs the Left**\
+`Radical agitation helped bring Social Security and much of the New Deal into being.`\
+https://nytimes.com/2020/11/20/opinion/biden-fdr-left-new-deal.html?searchResultPosition=6
 
-**Quotation of the Day: Under a Divisive Peace, Hope Is Hobbled in Bosnia**\
-`Quotation of the Day for Friday, November 20, 2020.`\
-https://nytimes.com/2020/11/20/todayspaper/quotation-of-the-day-under-a-divisive-peace-hope-is-hobbled-in-bosnia.html?searchResultPosition=7
+**This Is How the Outbreak Is Resurging Across New York City**\
+`The positive test rates have gone up in the city in the last month, leading to what many experts say is a second wave.`\
+https://nytimes.com/2020/11/20/nyregion/covid-19-nyc.html?searchResultPosition=7
 
-**Lesson of the Day: ‘Chris Nikic, You Are an Ironman. And Your Journey Is Remarkable.’**\
-`In this lesson, you will meet Chris Nikic, 21, who became the first person with Down syndrome to conquer the grueling endurance race. What can we learn from the challenges and triumphs of others?`\
-https://nytimes.com/2020/11/20/learning/lesson-of-the-day-chris-nikic-you-are-an-ironman-and-your-journey-is-remarkable.html?searchResultPosition=8
+**A First Date Unspoiled Even After He Lost His Phone and Wallet**\
+`Aliza Aber and Jeb Browning quickly connected. Both were divorced and both had two young daughters. Together, they’re a happy family.`\
+https://nytimes.com/2020/11/20/fashion/weddings/wedding-in-the-park.html?searchResultPosition=8
 
-**1945: Britain Asks for Whisky to Ensure ‘Merry, Merry Christmas’**\
-`For the first peacetime Christmas after the end of World War II, a British newspaper called for whisky usually exported to America to be kept aside to boost people’s spirits at home.`\
-https://nytimes.com/2020/11/20/world/europe/1945-britain-asks-for-whisky-to-ensure-merry-merry-christmas.html?searchResultPosition=9
+**Walking Down the Automotive Aisle**\
+`“Every time I smell a tire or see a car battery now, I’m going to think about getting married,” said Evan Sloan, who married Mary Kate Vollmer at a country store in Montgomery, Ill.`\
+https://nytimes.com/2020/11/20/fashion/weddings/walking-down-the-automotive-aisle.html?searchResultPosition=9
 
-**News Quiz: Election Certification, Boeing, Vaccines**\
-`Did you follow the headlines this week?`\
-https://nytimes.com/interactive/2020/11/20/briefing/news-quiz-election-certification-boeing-vaccines.html?searchResultPosition=10
+**Overcoming Cancer, Postponements and a Hurricane**\
+`Yoelvis Valdez and Anabel Santeliz, who met in 2012, faced numerous obstacles before finally marrying in the backyard of friends in Manalapan, N.J.`\
+https://nytimes.com/2020/11/20/fashion/weddings/overcoming-cancer-postponements-and-a-hurricane.html?searchResultPosition=10
 
