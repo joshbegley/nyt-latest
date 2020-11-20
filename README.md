@@ -6,8 +6,8 @@ https://nytimes.com/2020/11/20/climate/pebble-mine-alaska-investigation.html?sea
 `A look at our picks from the past 16 years.`\
 https://nytimes.com/article/top-book-lists.html?searchResultPosition=2
 
-**Coronavirus Briefing: Dr. Fauci sees ‘terribly painful months’ ahead**\
-`Experts on the next few months, and how we should think about the holidays.`\
+**Dr. Fauci Sees ‘Terribly Painful Months’ Ahead**\
+`How we should think about the holidays, and beyond.`\
 https://nytimes.com/2020/11/20/us/coronavirus-today.html?searchResultPosition=3
 
 **Ezra Klein Leaves Vox for The New York Times**\
