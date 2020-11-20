@@ -1,8 +1,8 @@
-**On Transgender Day of Remembrance, Biden pledges protections against discrimination and violence.**\
-`By Eileen Sullivan`\
-https://nytimes.com/2020/11/20/us/politics/biden-transgender-day-of-remembrance.html?searchResultPosition=1
+**Gianni Bernardinello, Baker Who Fed Neighbors Amid Pandemic, Dies at 76**\
+`The Milanese baker would leave out baskets of bread for people hit hard economically by the coronavirus pandemic. Now the disease has claimed his life.`\
+https://nytimes.com/2020/11/20/obituaries/gianni-bernardinelli-dead-coronavirus.html?searchResultPosition=1
 
-**3 Ways to Get Your Kids Cooking on Thanksgiving 3 Ways to Get Your Kids Cooking on Thanksgiving 3 Ways to Get Your Kids Cooking on Thanksgiving 3 Ways to Get Your Kids Cooking on Thanksgiving 3 Easy Ways To Get Your Kids Cooking This Thanksgiving**\
+**3 Ways to Get Your Kids Cooking on Thanksgiving**\
 `Melissa Clark shares tips for involving your kids in this year’s Thanksgiving meal preparations.`\
 https://nytimes.com/interactive/2020/11/20/dining/cooking-with-kids.html?searchResultPosition=2
 
