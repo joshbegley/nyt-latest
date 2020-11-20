@@ -2,7 +2,7 @@
 `The director Aneesh Chaganty narrates a sequence featuring Kiera Allen, who plays a wheelchair-using teenager with a secretive mother.`\
 https://nytimes.com/2020/11/20/movies/run-clip.html?searchResultPosition=1
 
-**A Lie and a Pizza Joint: Why Australian Officials Reversed a Lockdown**\
+**A Lie and a Pizza Shop: Why Australian Officials Reversed a Lockdown**\
 `South Australia imposed tight statewide restrictions based on what a man had said about his relationship to a restaurant. And then the authorities learned the truth.`\
 https://nytimes.com/2020/11/20/world/australia/pizza-lockdown.html?searchResultPosition=2
 
