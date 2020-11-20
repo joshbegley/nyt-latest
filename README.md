@@ -10,13 +10,13 @@ https://nytimes.com/2020/11/20/movies/sylvies-love-eugene-ashe.html?searchResult
 `In this new painting, Honor Titus explores a bygone era.`\
 https://nytimes.com/2020/11/20/t-magazine/honor-titus-sock-hop-art.html?searchResultPosition=3
 
-**At Wharton, a New Leader Confronts the Culture Wars**\
-`Erika James recently took over the Wharton School at the University of Pennsylvania. Already, she is enmeshed in debates about race, politics and the role of business in society.`\
-https://nytimes.com/2020/11/20/business/erika-james-wharton-corner-office.html?searchResultPosition=4
-
 **Kiernan Shipka Is Relaxing with Tony Soprano and a Margarita**\
 `The actress, who stars in Netflix’s “Chilling Adventures of Sabrina,” shared her essentials ahead of the show’s final season.`\
-https://nytimes.com/2020/11/20/arts/television/kiernan-shipka-favorites.html?searchResultPosition=5
+https://nytimes.com/2020/11/20/arts/television/kiernan-shipka-favorites.html?searchResultPosition=4
+
+**At Wharton, a New Leader Confronts the Culture Wars**\
+`Erika James recently took over the Wharton School at the University of Pennsylvania. Already, she is enmeshed in debates about race, politics and the role of business in society.`\
+https://nytimes.com/2020/11/20/business/erika-james-wharton-corner-office.html?searchResultPosition=5
 
 **Trump allies are among the frequent purveyors of election misinformation.**\
 `The who’s who includes the conservative activist Charlie Kirk, Jim Holt of Gateway Pundit, Eric Trump — and the president himself.`\
