@@ -20,7 +20,7 @@ https://nytimes.com/2020/11/20/sports/soccer/soccer-coronavirus.html?searchResul
 
 **Gianni Bernardinello, Baker Who Fed Neighbors Amid Pandemic, Dies at 76**\
 `The Milanese baker would leave out baskets of bread for people hit hard economically by the coronavirus pandemic. Now the disease has claimed his life.`\
-https://nytimes.com/2020/11/20/obituaries/gianni-bernardinelli-dead-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2020/11/20/obituaries/gianni-bernardinello-dead-coronavirus.html?searchResultPosition=6
 
 **3 Ways to Get Your Kids Cooking on Thanksgiving**\
 `Melissa Clark shares tips for involving your kids in this year’s Thanksgiving meal preparations.`\
