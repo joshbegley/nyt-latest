@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/19/us/politics/trump-election.html?searchResultPosition=1
 
 **Are Streamed Plays Theater or TV? Unions Settle a Dispute**\
-`Actors’ Equity and SAG-AFTRA agreement clears the way for more entertainment during the pandemic winter.`\
+`Actors’ Equity and SAG-AFTRA’s agreement clears the way for more entertainment during the pandemic winter.`\
 https://nytimes.com/2020/11/19/theater/Sag-aftra-equity-settle-dispute.html?searchResultPosition=2
 
 **Trump Targets Michigan in His Ploy to Subvert the Election**\
