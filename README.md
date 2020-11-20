@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/20/world/australia/coronavirus-green-spaces-golf-cou
 
 **Margaret Guilfoyle, Trailblazing Australian Lawmaker, Dies at 94**\
 `As a member of Prime Minister Malcolm Fraser’s cabinet from 1975 to 1983, Ms. Guilfoyle was the first woman to run an Australian government department.`\
-https://nytimes.com/2020/11/20/world/australia/margaret-guilfoyle-obituary.html?searchResultPosition=2
+https://nytimes.com/2020/11/20/world/australia/margaret-guilfoyle-dead.html?searchResultPosition=2
 
 **How Steve Bannon and a Chinese Billionaire Created a Right-Wing Coronavirus Media Sensation**\
 `Increasingly allied, the American far right and members of the Chinese diaspora tapped into social media to give a Hong Kong researcher a vast audience for peddling unsubstantiated pandemic claims.`\
