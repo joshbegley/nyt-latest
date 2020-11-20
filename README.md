@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/20/well/family/thanksgiving-conversation.html?search
 `The Belgian city of Oudenburg’s holiday display has made international headlines for the wrong reasons.`\
 https://nytimes.com/2020/11/20/world/europe/phallic-christmas-lights-belgium.html?searchResultPosition=9
 
-**After Trump’s Embrace, Saudis Brace for a Chillier Tone from Biden**\
+**After Trump’s Embrace, Saudis Brace for a Chillier Tone From Biden**\
 `Saudi Arabia’s leaders counted on President Trump’s unwavering support, but President-elect Biden has vowed to take away the kingdom’s “dangerous blank check.”`\
 https://nytimes.com/2020/11/20/world/middleeast/saudi-arabia-biden-trump.html?searchResultPosition=10
 
