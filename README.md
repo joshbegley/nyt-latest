@@ -1,40 +1,40 @@
+**Antibodies Good. Machine-Made Molecules Better?**\
+`With help from computer algorithms, researchers designed proteins from scratch that can trounce the coronavirus in lab animals.`\
+https://nytimes.com/2020/11/21/science/coronavirus-antibodies-artificial-intelligence.html?searchResultPosition=1
+
+**This American Mess**\
+`Thanksgiving is here. Unfortunately, America is all over the place.`\
+https://nytimes.com/2020/11/21/style/thanksgiving-travel-coronavirus.html?searchResultPosition=2
+
+**How One Airline’s Pandemic Hurt Becomes Everyone’s Pain**\
+`Virgin Atlantic doesn’t act alone to fly passengers. It relies on a constellation of companies employing people around the globe — all of whom are touched by the disappearance of travelers.`\
+https://nytimes.com/2020/11/21/business/virgin-airlines-covid-19-pandemic.html?searchResultPosition=3
+
+**1 America, 1 Pandemic, 2 Realities**\
+`Journeys through two states found Americans leading starkly different lives in the pandemic. New Mexico feels at a standstill. In South Dakota, life is going right on.`\
+https://nytimes.com/2020/11/21/us/coronavirus-south-dakota-new-mexico.html?searchResultPosition=4
+
+**Kimchi Making at Home Was Going Out of Style. Rural Towns to the Rescue.**\
+`Families that have grown weary of eating commercial kimchi in big cities have started making pilgrimages to the countryside where they can learn how to prepare it on their own.`\
+https://nytimes.com/2020/11/21/world/asia/kimchi-kimjang-south-korea.html?searchResultPosition=5
+
+**Presidential Memoirs Don’t Always Take This Long to Write**\
+`Barack Obama’s new book, “A Promised Land,” arrived nearly four years after he left the White House. A look at how he and other presidents approached their memoirs offers some clues about the timing.`\
+https://nytimes.com/2020/11/21/books/barack-obama-promised-land-presidential-memoirs.html?searchResultPosition=6
+
+**What Happened When a School District Banned Thin Blue Line Flags**\
+`Some students in a mostly white New York suburb said the flag made them feel unsafe. Banning it prompted accusations of political bias.`\
+https://nytimes.com/2020/11/21/nyregion/police-flag-pelham-school-district.html?searchResultPosition=7
+
+**No, a Negative Coronavirus Test Does Not Mean You Can Safely Socialize**\
+`A negative test is helpful, scientists and doctors say. But it doesn’t mean you should skip other measures, like quarantining, masking and distancing.`\
+https://nytimes.com/2020/11/21/upshot/coronavirus-test-thanksgiving-plans.html?searchResultPosition=8
+
+**You Don’t Have to Fake It Through Thanksgiving**\
+`The need for joy and celebration cannot erase loss, even during the holidays.`\
+https://nytimes.com/2020/11/21/opinion/thanksgiving-holiday-gathering-grief.html?searchResultPosition=9
+
 **How a Man With a Van Is Challenging U.K. Drug Policy**\
 `A former drug user turned activist is addressing Scotland’s alarming drug death crisis by running the nation’s first drug consumption room — and risking arrest to do it.`\
-https://nytimes.com/2020/11/21/world/europe/scotland-glasgow-drugs-van.html?searchResultPosition=1
-
-**Saudi Arabia and Human Rights Activists Fight Over Kingdom’s Image at G20**\
-`As the summit’s host, the kingdom hopes to showcase its advances, while critics see an opportunity to pounce. But the virtual event will have a lower profile.`\
-https://nytimes.com/2020/11/21/world/middleeast/saudi-human-rights-G20.html?searchResultPosition=2
-
-**Deadly Rocket Attack Strikes Kabul Ahead of U.S.-Taliban Meeting**\
-`The strikes on the Afghan capital, which killed at least five people, comes on the heels of an already bloody month for the city.`\
-https://nytimes.com/2020/11/21/world/middleeast/afghanistan-kabul-rocket-attack.html?searchResultPosition=3
-
-**Designed to Deceive: Do These People Look Real to You?**\
-`The people in this story may look familiar, like ones you’ve seen on Facebook or Twitter or Tinder. But they don’t exist. They were born from the mind of a computer, and the technology behind them is improving at a startling pace.`\
-https://nytimes.com/interactive/2020/11/21/science/artificial-intelligence-fake-people-faces.html?searchResultPosition=4
-
-**Humdingers**\
-`Sam Ezersky’s Saturday puzzle, it’s got a few.`\
-https://nytimes.com/2020/11/20/crosswords/daily-puzzle-2020-11-21.html?searchResultPosition=5
-
-**Corrections: Nov. 21, 2020**\
-`Corrections that appeared in print on Saturday, Nov. 21, 2020.`\
-https://nytimes.com/2020/11/20/pageoneplus/corrections-nov-21-2020.html?searchResultPosition=6
-
-**Quotation of the Day: Few Voices Breaking From G.O.P.’s Wall of Silence Over Trump’s Defeat**\
-`Quotation of the Day for Saturday, November 21, 2020.`\
-https://nytimes.com/2020/11/20/todayspaper/quotation-of-the-day-few-voices-breaking-from-gops-wall-of-silence-over-trumps-defeat.html?searchResultPosition=7
-
-**Pharmacist and Drug Dealer Sentenced to Prison in Plot to Firebomb Rival Pharmacy**\
-`The Nebraska pharmacist was sentenced to nine years and the Maryland drug dealer was sentenced for 14 years for the plot.`\
-https://nytimes.com/2020/11/20/us/pharmacist-nebraska-drugs-dark-web.html?searchResultPosition=8
-
-**Business and World Leaders Move On as Trump Fights to Reverse Election**\
-`President-elect Joseph R. Biden Jr. is seizing the moment, not to aggressively confront the president he defeated, but to act presidential in his stead.`\
-https://nytimes.com/2020/11/20/us/politics/biden-world-leaders.html?searchResultPosition=9
-
-**Georgia and Michigan Deliver Blows to Trump’s Efforts to Undo the Election**\
-`Joseph R. Biden Jr. was certified as the winner in Georgia, and Michigan Republicans said they had no information that would change the tally in a state Mr. Biden also won.`\
-https://nytimes.com/2020/11/20/us/politics/georgia-trump-michigan-election.html?searchResultPosition=10
+https://nytimes.com/2020/11/21/world/europe/scotland-glasgow-drugs-van.html?searchResultPosition=10
 
