@@ -6,7 +6,7 @@ https://nytimes.com/2020/11/20/us/politics/biden-world-leaders.html?searchResult
 `Joseph R. Biden Jr. was certified as the winner in Georgia, and Michigan Republicans said they had no information that would change the tally in a state Mr. Biden also won.`\
 https://nytimes.com/2020/11/20/us/politics/georgia-trump-michigan-election.html?searchResultPosition=2
 
-**Melania Trump Selects a Noguchi Sculpture for the White House**\
+**Melania Trump Announces a Noguchi Sculpture for the White House**\
 `Isamu Noguchi’s 1962 installation, “Floor Frame,” will be the first piece by an Asian-American artist in the White House collection.`\
 https://nytimes.com/2020/11/20/arts/design/melania-trump-noguchi-sculpture.html?searchResultPosition=3
 
