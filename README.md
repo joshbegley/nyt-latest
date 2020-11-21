@@ -22,19 +22,19 @@ https://nytimes.com/2020/11/20/us/politics/biden-world-leaders.html?searchResult
 `Joseph R. Biden Jr. was certified as the winner in Georgia, and Michigan Republicans said they had no information that would change the tally in a state Mr. Biden also won.`\
 https://nytimes.com/2020/11/20/us/politics/georgia-trump-michigan-election.html?searchResultPosition=6
 
+**Senate Republicans could be an obstacle for Biden’s Cabinet nominees.**\
+`By Carl Hulse`\
+https://nytimes.com/2020/11/20/us/politics/senate-republicans-could-be-an-obstacle-for-bidens-cabinet-nominees.html?searchResultPosition=7
+
 **Melania Trump Announces a Noguchi Sculpture for the White House**\
 `Isamu Noguchi’s 1962 installation, “Floor Frame,” will be the first piece by an Asian-American artist in the White House collection.`\
-https://nytimes.com/2020/11/20/arts/design/melania-trump-noguchi-sculpture.html?searchResultPosition=7
+https://nytimes.com/2020/11/20/arts/design/melania-trump-noguchi-sculpture.html?searchResultPosition=8
 
 **Meeting With Schumer and Pelosi, Biden Keeps Focus on Virus and Economy**\
 `On his 78th birthday, President-elect Joseph R. Biden Jr. ignored President Trump's continued efforts to subvert the election results.`\
-https://nytimes.com/2020/11/20/us/politics/biden-virus-economy-schumer-pelosi.html?searchResultPosition=8
+https://nytimes.com/2020/11/20/us/politics/biden-virus-economy-schumer-pelosi.html?searchResultPosition=9
 
 **New Thanksgiving Ritual: A Covid-19 Test Before the Turkey**\
 `As cases surge and the Centers for Disease Control cautions against travel, Americans are lining up for Covid-19 test`\
-https://nytimes.com/interactive/2020/11/20/us/covid-test-thanksgiving.html?searchResultPosition=9
-
-**In Detroit, Trump’s Postelection Offensive Has a Familiar Feel**\
-`In a city that is used to being disparaged, President Trump’s attempt to overturn an election that he lost seems both extraordinary and business as usual.`\
-https://nytimes.com/2020/11/20/us/detroit-voters-trump.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/11/20/us/covid-test-thanksgiving.html?searchResultPosition=10
 
