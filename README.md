@@ -1,4 +1,4 @@
-**Saudi Arabia and Human Rights Activists Fight Over Its Image at G20**\
+**Saudi Arabia and Human Rights Activists Fight Over Kingdom’s Image at G20**\
 `As the summit’s host, the kingdom hopes to showcase its advances, while critics see an opportunity to pounce. But the virtual event will have a lower profile.`\
 https://nytimes.com/2020/11/21/world/middleeast/saudi-human-rights-G20.html?searchResultPosition=1
 
