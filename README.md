@@ -26,7 +26,7 @@ https://nytimes.com/2020/11/21/books/jan-morris-appraisal.html?searchResultPosit
 `At a wide range of departments and agencies, Mr. Trump’s political appointees are going to extraordinary lengths to try to prevent Mr. Biden from rolling back the president’s legacy.`\
 https://nytimes.com/2020/11/21/us/politics/trump-biden-transition.html?searchResultPosition=7
 
-**Duty or Party? For Republicans, a Choice on Whether to Enable Trump**\
+**Duty or Party? For Republicans, a Test on Whether to Enable Trump**\
 `In pushing his false claims to the limits and cowing Republicans into acquiescence or silence, President Trump has revealed the fragility of the electoral system — and shaken it.`\
 https://nytimes.com/2020/11/21/us/politics/trump-vote.html?searchResultPosition=8
 
