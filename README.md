@@ -30,7 +30,7 @@ https://nytimes.com/2020/11/21/opinion/sunday/donald-trump-moving-on.html?search
 `Morris, who died on Friday at 94, was an inveterate traveler who wrote acclaimed books about Venice, Hong Kong, New York and many other places.`\
 https://nytimes.com/2020/11/21/books/jan-morris-appraisal.html?searchResultPosition=8
 
-**Trump Using Last Days to Lock in Policies and Make Biden’s Task More Difficult**\
+**Trump Using Last Days to Lock In Policies and Make Biden’s Task More Difficult**\
 `At a wide range of departments and agencies, Mr. Trump’s political appointees are going to extraordinary lengths to try to prevent Mr. Biden from rolling back the president’s legacy.`\
 https://nytimes.com/2020/11/21/us/politics/trump-biden-transition.html?searchResultPosition=9
 
