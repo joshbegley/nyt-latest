@@ -2,7 +2,7 @@
 `A decision by Prime Minister Benjamin Netanyahu’s rival defense minister, Benny Gantz, to hold an inquiry could further destabilize their unity government.`\
 https://nytimes.com/2020/11/22/world/middleeast/israel-netanyahu-submarine-scandal.html?searchResultPosition=1
 
-**Oxford’s 2020 Word of the Year? Well, It’s Unprecedented**\
+**Oxford’s 2020 Word of the Year? It’s Too Hard to Isolate.**\
 `Instead of crowning a single word as the winner, Oxford Languages looks at the pandemic’s swift and widespread impact on the English language.`\
 https://nytimes.com/2020/11/22/arts/oxford-word-of-the-year-coronavirus.html?searchResultPosition=2
 
