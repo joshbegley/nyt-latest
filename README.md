@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/22/business/economy/biden-coronavirus-stimulus-reces
 `Gov. Andrew M. Cuomo of New York warned that the borough’s coronavirus positivity rates are on track to overburden hospitals and push it into the highest lockdown level in the state, where cases are spiking.`\
 https://nytimes.com/video/nyregion/100000007467539/cuomo-staten-island-coronavirus.html?searchResultPosition=9
 
-**An Orderly Transition Is Essential for National Security**\
+**Our National Security Depends on Joe Biden’s Transition**\
 `Why President Trump’s stonewalling makes America less safe.`\
 https://nytimes.com/2020/11/22/opinion/trump-transition-national-security.html?searchResultPosition=10
 
