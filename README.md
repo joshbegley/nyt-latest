@@ -22,15 +22,4 @@ https://nytimes.com/2020/11/21/us/politics/kelly-loeffler-georgia-quarantine-cor
 `Spend this holiday week experimenting with turkey bones, painting botanical art or running a virtual race.`\
 https://nytimes.com/2020/11/21/at-home/things-to-do-this-week.html?searchResultPosition=6
 
-**Protesters in Guatemala Set Fire to Congress Building Over Spending Cuts**\
-`After two hurricanes displaced thousands of people and wrecked infrastructure, a bill that cut spending on health and education and bolstered lawmakers’ meal stipends touched off a wave of anger in the capital.`\
-https://nytimes.com/2020/11/21/world/americas/guatemala-budget-protests-congress-fire.html?searchResultPosition=7
-
-**F.D.A. Grants Emergency Authorization of Antibody Treatment Given to Trump**\
-`The treatment, made by the biotech company Regeneron, is a cocktail of two powerful antibodies that have shown promise for people who get it early in the course of the disease.`\
-https://nytimes.com/2020/11/21/health/regeneron-covid-antibodies-trump.html?searchResultPosition=8
-
-**Judge Dismisses Trump Lawsuit Seeking to Delay Certification in Pennsylvania**\
-`In a scathing order, a federal judge rejected the Trump campaign’s claim of widespread improprieties with mail-in ballots, removing a major legal hurdle to certifying Joseph R. Biden Jr.’s victory there.`\
-https://nytimes.com/2020/11/21/us/politics/pennsylvania-trump-court-ballots.html?searchResultPosition=9
-
+**South Dakota and New Mexico offer a snapshot of the alternate realities in the U.S. pandemic.**\
