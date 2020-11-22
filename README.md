@@ -1,5 +1,5 @@
 **Bruce Swedien, a Shaper of Michael Jackson’s Sound, Dies at 86**\
-`In nearly 60 years as a recording engineer, he worked with a wide range of artists. His most notable collaboration was with Mr. Jackson and the producer Quincy Jones.`\
+`In more than 60 years as a recording engineer, he worked with a wide range of artists. His most notable collaboration was with Mr. Jackson and the producer Quincy Jones.`\
 https://nytimes.com/2020/11/22/arts/music/bruce-swedien-dead.html?searchResultPosition=1
 
 **Coronavirus Upends Thanksgiving for Many, While Others Ignore Warnings**\
