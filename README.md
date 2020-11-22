@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/21/health/regeneron-covid-antibodies-trump.html?searchResultPosition=1
 
 **Judge Dismisses Trump Lawsuit Seeking to Delay Certification in Pennsylvania**\
-`In a scathing order, a federal judge rejected the Trump campaign’s claim of widespread improprieties with mail-in ballots, removing a major legal hurdle to certifying Joseph R. Biden’s Jr.’s victory there.`\
+`In a scathing order, a federal judge rejected the Trump campaign’s claim of widespread improprieties with mail-in ballots, removing a major legal hurdle to certifying Joseph R. Biden Jr.’s victory there.`\
 https://nytimes.com/2020/11/21/us/politics/pennsylvania-trump-court-ballots.html?searchResultPosition=2
 
 **It All Adds Up**\
