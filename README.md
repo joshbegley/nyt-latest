@@ -1,5 +1,5 @@
 **Protesters in Guatemala Set Fire to Congress Building Over Spending Cuts**\
-`Coming on the heels of two hurricanes that displaced thousands of people and wrecked infrastructure, a bill that cut spending on health and education and bolstered lawmakers’ meal stipends touched off a wave of anger in the capital.`\
+`After two hurricanes displaced thousands of people and wrecked infrastructure, a bill that cut spending on health and education and bolstered lawmakers’ meal stipends touched off a wave of anger in the capital.`\
 https://nytimes.com/2020/11/21/world/americas/guatemala-budget-protests-congress-fire.html?searchResultPosition=1
 
 **F.D.A. Grants Emergency Authorization of Antibody Treatment Given to Trump**\
