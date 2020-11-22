@@ -22,7 +22,7 @@ https://nytimes.com/2020/11/22/opinion/eu-poland-hungary.html?searchResultPositi
 `Cases are climbing quickly in Japan and South Korea.`\
 https://nytimes.com/2020/11/22/briefing/coronavirus-japan-southkorea-israel.html?searchResultPosition=6
 
-**The Pomegranate Harvest Is Life Here. The Taliban Shattered It.**\
+**Where the Pomegranate Harvest Is Life, the Taliban Brought Ruin**\
 `An incursion that devastated a prized crop shows the loss and uncertainty that many Afghans endure.`\
 https://nytimes.com/2020/11/22/world/asia/Afghanistan-pomegranate-taliban.html?searchResultPosition=7
 
