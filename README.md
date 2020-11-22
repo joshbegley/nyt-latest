@@ -24,7 +24,7 @@ https://nytimes.com/2020/11/22/science/artificial-intelligence-robots-racism-pol
 
 **How Trump Hopes to Use Party Machinery to Retain Control of the G.O.P.**\
 `Ronna McDaniel, a close ally of President Trump, wants to remain head of the Republican National Committee, worrying party members who believe the president will try to use the group to keep control of the G.O.P.`\
-https://nytimes.com/2020/11/22/us/trump-gop-control.html?searchResultPosition=7
+https://nytimes.com/2020/11/22/us/politics/trump-gop-control.html?searchResultPosition=7
 
 **Newsmax, Once a Right-Wing Also-Ran, Is Rising, and Trump Approves**\
 `A once-niche conservative cable network, owned by a longtime friend of the president, lures audiences by refusing to declare an electoral winner.`\
