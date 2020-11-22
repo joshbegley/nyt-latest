@@ -15,7 +15,7 @@ https://nytimes.com/2020/11/22/learning/whats-going-on-in-this-picture-nov-23-20
 https://nytimes.com/2020/11/22/us/politics/g20-summit-trump.html?searchResultPosition=4
 
 **Now the U.S. Has Lots of Ventilators, but Too Few Specialists to Operate Them**\
-`A burst of production solved the dire shortage that defined the first wave of Covid-19. But the surplus may not be enough to prevent large numbers of deaths.`\
+`A burst of production solved the dire shortage that defined the first wave of the coronavirus. But the surplus may not be enough to prevent large numbers of deaths.`\
 https://nytimes.com/2020/11/22/health/Covid-ventilators-stockpile.html?searchResultPosition=5
 
 **English Gyms Offer a New Workout: Civil Disobedience**\
