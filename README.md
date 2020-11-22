@@ -14,8 +14,8 @@ https://nytimes.com/2020/11/22/learning/whats-going-on-in-this-picture-nov-23-20
 `World leaders committed to some efforts to fight the coronavirus pandemic, but the meeting illustrated the difficulty of carrying out an agenda when the United States is indifferent or hostile to many goals.`\
 https://nytimes.com/2020/11/22/us/politics/g20-summit-trump.html?searchResultPosition=4
 
-**Now the U.S. Has Lots of Ventilators — but Too Few Specialists to Operate Them**\
-`A burst of production solved the dire shortage that defined the first wave of Covid. But the surplus may not be enough to prevent large numbers of deaths.`\
+**Now the U.S. Has Lots of Ventilators, but Too Few Specialists to Operate Them**\
+`A burst of production solved the dire shortage that defined the first wave of Covid-19. But the surplus may not be enough to prevent large numbers of deaths.`\
 https://nytimes.com/2020/11/22/health/Covid-ventilators-stockpile.html?searchResultPosition=5
 
 **English Gyms Offer a New Workout: Civil Disobedience**\
