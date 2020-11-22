@@ -2,8 +2,8 @@
 `With a little paint and accordion folding, your newspaper can become décor for your Thanksgiving table.`\
 https://nytimes.com/2020/11/21/at-home/leaf-decor-activity.html?searchResultPosition=1
 
-**Senator Kelly Loeffler of Georgia is in quarantine after testing positive for the virus.**\
-`Senator Kelly Loeffler of Georgia, a Republican who is campaigning in a high-stakes runoff election that could determine control of the Senate, is quarantining after testing positive for the coronavirus.`\
+**Senator Kelly Loeffler of Georgia is in isolation after testing positive for the virus.**\
+`Senator Kelly Loeffler of Georgia, a Republican who is campaigning in a high-stakes runoff election that could determine control of the Senate, is isolating after testing positive for the coronavirus.`\
 https://nytimes.com/2020/11/21/us/politics/kelly-loeffler-georgia-quarantine-coronavirus-senate-runoff.html?searchResultPosition=2
 
 **Cook an Indigenous Meal or Dance with Dua Lipa**\
