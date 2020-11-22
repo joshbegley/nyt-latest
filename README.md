@@ -6,13 +6,13 @@ https://nytimes.com/2020/11/22/science/artificial-intelligence-robots-racism-pol
 `Ronna McDaniel, a close ally of President Trump, wants to remain head of the Republican National Committee, worrying party members who believe the president will try to use the group to keep control of the G.O.P.`\
 https://nytimes.com/2020/11/22/us/trump-gop-control.html?searchResultPosition=2
 
-**Hollywood’s ‘We’re Not in Kansas Anymore’ Moment**\
-`The announcement that “Wonder Woman 1984” will be released in theaters and on HBO Max on Christmas Day is the clearest sign that streaming is now central to the film industry’s business model.`\
-https://nytimes.com/2020/11/22/business/media/wonder-woman-1984-hollywood-streaming.html?searchResultPosition=3
-
 **Newsmax, Once a Right-Wing Also-Ran, Is Rising, and Trump Approves**\
 `A once-niche conservative cable network, owned by a longtime friend of the president, lures audiences by refusing to declare an electoral winner.`\
-https://nytimes.com/2020/11/22/business/media/newsmax-trump-fox-news.html?searchResultPosition=4
+https://nytimes.com/2020/11/22/business/media/newsmax-trump-fox-news.html?searchResultPosition=3
+
+**Hollywood’s ‘We’re Not in Kansas Anymore’ Moment**\
+`The announcement that “Wonder Woman 1984” will be released in theaters and on HBO Max on Christmas Day is the clearest sign that streaming is now central to the film industry’s business model.`\
+https://nytimes.com/2020/11/22/business/media/wonder-woman-1984-hollywood-streaming.html?searchResultPosition=4
 
 **New York City Hit a 3% Positive Test Rate. Or Did It?**\
 `The city and state use different approaches for calculations. That has led to confusion and has a big impact on which restrictions are adopted.`\
