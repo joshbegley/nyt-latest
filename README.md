@@ -2,13 +2,13 @@
 `Gov. Andrew M. Cuomo of New York warned that the borough’s coronavirus positivity rates are on track to overburden hospitals and push it into the highest lockdown level in the state, where cases are spiking.`\
 https://nytimes.com/video/nyregion/100000007467539/cuomo-staten-island-coronavirus.html?searchResultPosition=1
 
-**The E.U. Puts Its Foot Down on the Rule of Law**\
-`While the leaders of Hungary and Poland resist.`\
-https://nytimes.com/2020/11/22/opinion/eu-poland-hungary.html?searchResultPosition=2
-
 **An Orderly Transition Is Essential for National Security**\
 `Why President Trump’s stonewalling makes America less safe.`\
-https://nytimes.com/2020/11/22/opinion/trump-transition-national-security.html?searchResultPosition=3
+https://nytimes.com/2020/11/22/opinion/trump-transition-national-security.html?searchResultPosition=2
+
+**The E.U. Puts Its Foot Down on the Rule of Law**\
+`While the leaders of Hungary and Poland resist.`\
+https://nytimes.com/2020/11/22/opinion/eu-poland-hungary.html?searchResultPosition=3
 
 **Your Monday Briefing**\
 `Cases are climbing quickly in Japan and South Korea.`\
