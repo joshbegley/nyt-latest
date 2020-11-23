@@ -18,9 +18,9 @@ https://nytimes.com/2020/11/23/science/conflict-of-interest-ai.html?searchResult
 `Sohla El-Waylly is here for the holiday’s best side, which she griddles into sandwich filling, fries into croutons and simmers into dumplings for soup.`\
 https://nytimes.com/2020/11/23/dining/thanksgiving-leftover-stuffing-recipes.html?searchResultPosition=5
 
-**No, Joe Biden Did Not Have a Maskless Birthday Party Last Week.**\
-`The video of a crowd singing happy birthday to the president-elect was from 2019. Here’s how it went viral.`\
-https://nytimes.com/interactive/2020/11/23/technology/biden-birthday-party.html?searchResultPosition=6
+**daily-distortion**\
+`Tracking Viral Misinformation About the 2020 Election`\
+https://nytimes.com/live/2020/2020-election-misinformation-distortions?searchResultPosition=6
 
 **China Launches Spacecraft to the Moon**\
 `China launched a spacecraft to the moon’s surface on Monday. The mission, called Chang’e-5, is China’s aim to be the first country in more than four decades to bring back samples of lunar rocks and soil.`\
