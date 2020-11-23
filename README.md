@@ -27,7 +27,7 @@ https://nytimes.com/2020/11/22/sports/football/jets-lose-to-chargers-week-11.htm
 https://nytimes.com/2020/11/22/technology/china-intel-nvidia-xinjiang.html?searchResultPosition=7
 
 **Biden Chooses Antony Blinken, Defender of Global Alliances, as Secretary of State**\
-`The president-elect is also expected to name Jake Sullivan as national security adviser.`\
+`The president-elect is also expected to name Jake Sullivan, another close aide of his, as national security adviser, and Linda Thomas-Greenfield, a 35-year Foreign Service veteran, as his ambassador to the U.N.`\
 https://nytimes.com/2020/11/22/us/politics/biden-antony-blinken-secretary-of-state.html?searchResultPosition=8
 
 **Republicans Rewrite an Old Playbook on Disenfranchising Black Americans**\
