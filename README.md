@@ -2,13 +2,13 @@
 `The Netflix show about a chess prodigy has reignited interest in the game and fueled demand for sets, accessories and timers.`\
 https://nytimes.com/2020/11/23/arts/television/queens-gambit-chess-boards.html?searchResultPosition=1
 
-**New York City’s 3 Percent Problem**\
-`The nation’s largest public school system defied the odds to reopen for in-person classes. Eight weeks later, the schools are having to shut again.`\
-https://nytimes.com/2020/11/23/podcasts/the-daily/new-york-city-school-reopening.html?searchResultPosition=2
-
 **Business Leaders, Citing Damage to Country, Urge Trump to Begin Transition**\
 `At the urging of New York’s attorney general, business leaders in New York push for the Trump administration to begin a transfer of power.`\
-https://nytimes.com/2020/11/23/us/trump-biden-transition-business.html?searchResultPosition=3
+https://nytimes.com/2020/11/23/us/trump-biden-transition-business.html?searchResultPosition=2
+
+**New York City’s 3 Percent Problem**\
+`The nation’s largest public school system defied the odds to reopen for in-person classes. Eight weeks later, the schools are having to shut again.`\
+https://nytimes.com/2020/11/23/podcasts/the-daily/new-york-city-school-reopening.html?searchResultPosition=3
 
 **Electric Scooters Are Now Legal in New York. But Are They Safe?**\
 `Fans of the devices say they are a cheap way to travel. But other New Yorkers view them as a nuisance or worry about the risks they pose.`\
