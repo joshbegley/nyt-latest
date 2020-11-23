@@ -15,7 +15,7 @@ https://nytimes.com/2020/11/22/sports/football/jets-lose-to-chargers-week-11.htm
 https://nytimes.com/2020/11/22/technology/china-intel-nvidia-xinjiang.html?searchResultPosition=4
 
 **Biden Chooses Antony Blinken, Defender of Global Alliances, as Secretary of State**\
-`Formerly the State Department’s No. 2, Mr. Blinken is expected to re-establish the United States as a trusted ally ready to rejoin global agreements and court multilateral efforts to confront China.`\
+`Formerly the State Department’s No. 2, Mr. Blinken is expected to try to re-establish the United States as a trusted ally ready to rejoin global agreements and court multilateral efforts to confront China.`\
 https://nytimes.com/2020/11/22/us/politics/biden-antony-blinken-secretary-of-state.html?searchResultPosition=5
 
 **Republicans Rewrite an Old Playbook on Disenfranchising Black Americans**\
