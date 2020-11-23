@@ -30,8 +30,8 @@ https://nytimes.com/2020/11/22/us/pat-quinn-dead.html?searchResultPosition=7
 `President Trump’s campaign issued a striking repudiation of Sidney Powell, who had offered up widely derided conspiracy theories as she tried to aid the president’s baseless challenges to vote counts.`\
 https://nytimes.com/2020/11/22/us/politics/sidney-powell-trump.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`Europe’s record-setting coronavirus surge.`\
+**Europe, Covid-19, Trump: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/22/briefing/europe-covid-uk-trump-israel.html?searchResultPosition=9
 
 **Jets’ Second-Half Push Falls Short Against Chargers**\
