@@ -1,40 +1,40 @@
-**Netanyahu Held Secret Meeting with Saudi Crown Prince, Israeli Media Reports**\
-`The reported visit on Sunday night would be the first known meeting between high-level Israeli and Saudi leaders.`\
-https://nytimes.com/2020/11/23/world/middleeast/israel-saudi-netanyahu-visit.html?searchResultPosition=1
+**No Corrections: Nov. 23, 2020**\
+`No corrections appeared in print on Monday, Nov. 23, 2020.`\
+https://nytimes.com/2020/11/23/pageoneplus/no-corrections-nov-23-2020.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Designed to Deceive: Do These People Look Real to You?’**\
-`In this lesson, students will learn about a new type of artificial intelligence and consider its implications for our society.`\
-https://nytimes.com/2020/11/23/learning/lesson-of-the-day-designed-to-deceive-do-these-people-look-real-to-you.html?searchResultPosition=2
+**Snapshots of Daily Life in a Remote Region of Portugal**\
+`The Barroso is one of Portugal’s most isolated areas, known for its rough terrain, abiding agricultural traditions and stunning beauty.`\
+https://nytimes.com/2020/11/23/travel/barroso-portugal-agriculture.html?searchResultPosition=2
 
-**Bill Gates, the Virus and the Quest to Vaccinate the World**\
-`The billionaire is working with the W.H.O., drugmakers and nonprofits to defeat the coronavirus everywhere, including in the world’s poorest nations. Can they do it?`\
-https://nytimes.com/2020/11/23/world/bill-gates-vaccine-coronavirus.html?searchResultPosition=3
+**Pandemic Crowds Bring ‘Rivergeddon’ to Montana’s Rivers**\
+`As urbanites flock to forests and rivers to escape coronavirus threats, trailheads are cramped with parked cars and fishing on the Madison River is like a Disneyland ride.`\
+https://nytimes.com/2020/11/23/us/pandemic-montana-wilderness-rush.html?searchResultPosition=3
 
-**France’s Dragnet for Extremists Sweeps Up Some Schoolchildren, Too**\
-`When France held a tribute to a teacher killed after a class on freedom of expression, the police interrogated at least 14 students over comments flagged as inappropriate.`\
-https://nytimes.com/2020/11/23/world/europe/france-extremism-children.html?searchResultPosition=4
+**Nail Salons, Lifeline for Immigrants, Have Lost Half Their Business**\
+`New York City nail salons reopened in July, but few customers come in. “No matter how hard I work, I make no money,” one owner said.`\
+https://nytimes.com/2020/11/23/nyregion/new-york-city-nail-salons-coronavirus.html?searchResultPosition=4
 
-**A Quarterback With N.F.L. Potential Pledges to an H.B.C.U., Joining a Trend**\
-`“I want to be a trendsetter,” said Noah Bodden, who has announced he will play for Grambling State instead of for one of the wealthier, higher-profile teams at predominantly white colleges.`\
-https://nytimes.com/2020/11/23/sports/ncaafootball/noah-bodden-grambling-state.html?searchResultPosition=5
+**Georgia Is a Purple State, but Don’t Expect Centrist Politicians**\
+`Georgia flipped blue for Joe Biden, but in its all-important and costly Senate runoff elections, the Republicans are in full attack mode while the Democrats stick to a steady liberal message.`\
+https://nytimes.com/2020/11/23/us/politics/ossoff-perdue-loeffler-warnock.html?searchResultPosition=5
 
-**To Wear Their Masks, the Beards (and a Tradition) Had to Go**\
-`Members of ski patrols nationwide are known for their beards, but many have shaved them to wear masks in the pandemic, causing good-natured angst.`\
-https://nytimes.com/2020/11/23/sports/skiing/coronavirus-ski-patrol-beards.html?searchResultPosition=6
+**9 Ways to Support Small Businesses**\
+`Wondering how you can help as a consumer? Here are some ideas.`\
+https://nytimes.com/2020/11/23/business/smallbusiness/how-to-support-small-businesses.html?searchResultPosition=6
 
-**What We Know About a Suddenly Important Michigan Elections Board**\
-`Its work is usually routine, but thanks to a push by President Trump and other Republicans to overturn the election results, the Michigan Board of State Canvassers is now under a microscope.`\
-https://nytimes.com/2020/11/23/us/politics/election-michigan-board-state-canvassers.html?searchResultPosition=7
+**Can a Computer Devise a Theory of Everything?**\
+`It might be possible, physicists say, but not anytime soon. And there’s no guarantee that we humans will understand the result.`\
+https://nytimes.com/2020/11/23/science/artificial-intelligence-ai-physics-theory.html?searchResultPosition=7
 
-**‘Shawn Mendes: In Wonder’ Review: A Skin-Deep Portrait**\
-`This Netflix documentary wants so much to be a humanizing look at Mendes, but it doesn’t crack his polished pop-idol veneer.`\
-https://nytimes.com/2020/11/23/movies/shawn-mendes-in-wonder-review.html?searchResultPosition=8
+**Can an Algorithm Prevent Suicide?**\
+`The Department of Veterans Affairs has turned to machine-learning to help identify vets at risk of taking their own lives.`\
+https://nytimes.com/2020/11/23/health/artificial-intelligence-veterans-suicide.html?searchResultPosition=8
 
-**Myanmar Still Loves Aung San Suu Kyi, but Not Why You Think**\
-`The explanation is much more paradoxical than just popularity.`\
-https://nytimes.com/2020/11/23/opinion/myanmar-election.html?searchResultPosition=9
+**Trump’s Legal Farce Is Having Tragic Results**\
+`There is nothing funny about the Republican Party’s multipronged attack on voting rights.`\
+https://nytimes.com/2020/11/23/opinion/trump-election-courts.html?searchResultPosition=9
 
-**It Was Just Him and His Smiley Face. He’s Charged With Illegal Assembly.**\
-`Jolovan Wham, a civil rights activist in Singapore, was charged with violating the Public Order Act for holding up a cardboard sign with a smiley face on it near a police station in March.`\
-https://nytimes.com/2020/11/23/world/asia/singapore-smiley-face-protest-charges.html?searchResultPosition=10
+**China Disappeared My Professor. It Can’t Silence His Poetry.**\
+`Against overwhelming state violence, poetry might appear to offer little recourse. But for many Uighurs, it’s a powerful form of resistance.`\
+https://nytimes.com/2020/11/23/opinion/uighur-poetry-xinjiang-china.html?searchResultPosition=10
 
