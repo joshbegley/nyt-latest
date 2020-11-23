@@ -1,5 +1,5 @@
-**Party at a Sex Club Is Shut Down as Sheriff Targets Illegal Gatherings**\
-`Despite rising virus cases, 80 guests, many without masks, partied at a swingers club in Queens, while 120 people gathered in Midtown.`\
+**Party at a Queens Sex Club With 80 People Is Shut Down by Sheriff**\
+`Despite rising virus cases, guests crowded into a swingers club in Queens, while 120 people gathered in Midtown.`\
 https://nytimes.com/2020/11/22/nyregion/sex-club-covid-sheriff-nyc.html?searchResultPosition=1
 
 **Vandalizing Our Democracy**\
