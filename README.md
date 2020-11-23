@@ -22,13 +22,13 @@ https://nytimes.com/2020/11/23/pageoneplus/no-corrections-nov-23-2020.html?searc
 `The Barroso is one of Portugal’s most isolated areas, known for its rough terrain, abiding agricultural traditions and stunning beauty.`\
 https://nytimes.com/2020/11/23/travel/barroso-portugal-agriculture.html?searchResultPosition=6
 
-**Pandemic Crowds Bring ‘Rivergeddon’ to Montana’s Rivers**\
-`As urbanites flock to forests and rivers to escape coronavirus threats, trailheads are cramped with parked cars and fishing on the Madison River is like a Disneyland ride.`\
-https://nytimes.com/2020/11/23/us/pandemic-montana-wilderness-rush.html?searchResultPosition=7
-
 **Nail Salons, Lifeline for Immigrants, Have Lost Half Their Business**\
 `New York City nail salons reopened in July, but few customers come in. “No matter how hard I work, I make no money,” one owner said.`\
-https://nytimes.com/2020/11/23/nyregion/new-york-city-nail-salons-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/11/23/nyregion/new-york-city-nail-salons-coronavirus.html?searchResultPosition=7
+
+**Pandemic Crowds Bring ‘Rivergeddon’ to Montana’s Rivers**\
+`As urbanites flock to forests and rivers to escape coronavirus threats, trailheads are cramped with parked cars and fishing on the Madison River is like a Disneyland ride.`\
+https://nytimes.com/2020/11/23/us/pandemic-montana-wilderness-rush.html?searchResultPosition=8
 
 **Georgia Is a Purple State, but Don’t Expect Centrist Politicians**\
 `Georgia flipped blue for Joe Biden, but in its all-important and costly Senate runoff elections, the Republicans are in full attack mode while the Democrats stick to a steady liberal message.`\
