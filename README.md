@@ -1,5 +1,5 @@
-**Biden Expected to Pick Janet Yellen, former Fed Chair, as Treasury Secretary**\
-`The former Fed Chair, a labor market expert, appears poised to lead President-elect Biden’s Treasury Department.`\
+**Biden Expected to Pick Janet Yellen, Former Fed Chair, as Treasury Secretary**\
+`The former Fed chair, a labor market expert, appears poised to lead President-elect Biden’s Treasury Department.`\
 https://nytimes.com/2020/11/23/business/economy/janet-yellen-treasury-secretary.html?searchResultPosition=1
 
 **Cuomo Announces New Virus Restrictions Ahead of Thanksgiving**\
