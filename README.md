@@ -2,7 +2,7 @@
 `The police said there were “multiple stabbing victims” on Sunday night. Information on a motive or a possible suspect were not immediately available.`\
 https://nytimes.com/2020/11/23/us/san-jose-church-stabbing.html?searchResultPosition=1
 
-**Joshua Wong Pleads Guilty Over 2019 Hong Kong Protests**\
+**Joshua Wong Pleads Guilty Over 2019 Hong Kong Protest**\
 `He and two fellow activists, Agnes Chow and Ivan Lam, were immediately jailed on charges of unauthorized assembly. They will be sentenced next week.`\
 https://nytimes.com/2020/11/23/world/asia/joshua-wong-agnes-chow-hong-kong.html?searchResultPosition=2
 
