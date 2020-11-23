@@ -22,19 +22,19 @@ https://nytimes.com/2020/11/23/climate/general-motors-trump.html?searchResultPos
 `Lavita McMath Turner will lead new initiatives at the museum as it aims to become more inclusive.`\
 https://nytimes.com/2020/11/23/arts/design/met-museum-diversity-officer.html?searchResultPosition=6
 
+**No, Joe Biden did not have a maskless birthday party last week.**\
+`The video of a crowd singing happy birthday to the president-elect was from 2019.`\
+https://nytimes.com/2020/11/23/technology/joe-biden-birthday-party.html?searchResultPosition=7
+
 **Why ‘Gilmore Girls’ Endures**\
 `This week brings the broadcast debut of “Gilmore Girls: A Year in the Life,” on the CW. The creator Amy Sherman-Palladino and other “Gilmore” veterans look back on the show’s lasting appeal.`\
-https://nytimes.com/2020/11/23/arts/television/gilmore-girls-cw.html?searchResultPosition=7
+https://nytimes.com/2020/11/23/arts/television/gilmore-girls-cw.html?searchResultPosition=8
 
 **‘Dolly Parton’s Christmas on the Square’ Review: Holiday Winks**\
 `Netflix’s peppy holiday musical has a campy streak and original songs by the country star, who plays a homeless angel with lessons for the town Scrooge.`\
-https://nytimes.com/2020/11/23/movies/dolly-partons-christmas-on-the-square-review.html?searchResultPosition=8
+https://nytimes.com/2020/11/23/movies/dolly-partons-christmas-on-the-square-review.html?searchResultPosition=9
 
 **Hospitals Struggling to Meet the Covid Surge**\
 `A physician urges people to stay home on Thanksgiving, a nurse begs for more P.P.E. and a widower worries about people not getting care for other diseases.`\
-https://nytimes.com/2020/11/23/opinion/letters/covid-hospitals-thanksgiving.html?searchResultPosition=9
-
-**Small Social Gatherings Aren’t Driving the Virus Surge (So Far)**\
-`Yes, the coronavirus can be spread over cocktails and dinners. But these get-togethers do not account for the huge rise in cases seen now, the data show.`\
-https://nytimes.com/2020/11/23/health/coronavirus-holiday-gatherings.html?searchResultPosition=10
+https://nytimes.com/2020/11/23/opinion/letters/covid-hospitals-thanksgiving.html?searchResultPosition=10
 
