@@ -1,6 +1,6 @@
 **Pennsylvania certifies its election results, solidifying Biden’s victory there.**\
 `By Nick Corasaniti`\
-https://nytimes.com/2020/11/24/us/pennsylvania-certifies-its-election-results-solidifying-bidens-victory-there.html?searchResultPosition=1
+https://nytimes.com/2020/11/24/us/pennsylvania-certifies-election-biden.html?searchResultPosition=1
 
 **Zagat and Michelin Hit Pause on New York City Guides**\
 `There will be no New York restaurant guides from the two companies this year, as restaurateurs struggle to keep their businesses open.`\
