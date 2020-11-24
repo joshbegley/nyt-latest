@@ -34,7 +34,7 @@ https://nytimes.com/2020/11/24/arts/television/late-night-trump-sidney-powell.ht
 `This word has appeared in eight articles on NYTimes.com in the past year.`\
 https://nytimes.com/2020/11/24/learning/word-quiz-mawkish.html?searchResultPosition=9
 
-**Qatar Charges Doha Airport Police Over Strip-Search of Female Passengers**\
+**Qatar Charges Airport Police After Female Passengers Are Strip-Searched**\
 `Officials said they had identified the mother of a baby abandoned at the airport, and were seeking to extradite the women in order to charge her with attempted murder.`\
 https://nytimes.com/2020/11/24/world/middleeast/qatar-airport-strip-search.html?searchResultPosition=10
 
