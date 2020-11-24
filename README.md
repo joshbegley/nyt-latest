@@ -22,13 +22,13 @@ https://nytimes.com/2020/11/24/books/review/the-last-american-aristocrat-the-bri
 `The 19th-century Brooklyn brownstone where Jad Abumrad, Karla Murthy and their sons live has been through two renovations and lots of redecorating.`\
 https://nytimes.com/2020/11/24/realestate/radiolab-host-fort-greene-brooklyn-house.html?searchResultPosition=6
 
-**Virginia Democrats, Thrilled With Biden Victory, Aren’t Looking for Carbon Copy**\
-`Suburban women who played a huge role in Joe Biden’s victory are not convinced that they need a white man to win their governor’s race next year.`\
-https://nytimes.com/2020/11/24/us/politics/virginia-democrats-governor.html?searchResultPosition=7
-
 **Jad Abumrad and Karla Murthy’s ‘Space Where Everyone Comes Together’**\
 `The 19th-century Brooklyn brownstone where Jad Abumrad, Karla Murthy and their sons live has been through two renovations and lots of redecorating.`\
-https://nytimes.com/slideshow/2020/11/24/realestate/jad-abumrad-and-karla-murthys-space-where-everyone-comes-together.html?searchResultPosition=8
+https://nytimes.com/slideshow/2020/11/24/realestate/jad-abumrad-and-karla-murthys-space-where-everyone-comes-together.html?searchResultPosition=7
+
+**Virginia Democrats, Thrilled With Biden Victory, Aren’t Looking for Carbon Copy**\
+`Suburban women who played a huge role in Joe Biden’s victory are not convinced that they need a white man to win their governor’s race next year.`\
+https://nytimes.com/2020/11/24/us/politics/virginia-democrats-governor.html?searchResultPosition=8
 
 **8 Rules for Skiing This Season**\
 `Being out on the slopes is a perfect pandemic escape. It’s everything around the skiing that’s hard. What you need to know to navigate this year.`\
