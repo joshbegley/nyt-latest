@@ -30,11 +30,11 @@ https://nytimes.com/2020/11/24/arts/television/saved-by-the-bell-review.html?sea
 `Some of pop music’s biggest names didn’t get nominations for the 2021 awards, while a diverse list of lesser-known acts filled out the ballot.`\
 https://nytimes.com/2020/11/24/arts/music/snubs-surprises-grammy-awards.html?searchResultPosition=8
 
+**In the first distribution push, 6.4 million doses of Pfizer’s vaccine will be shipped across the U.S.**\
+`By Rebecca Robbins`\
+https://nytimes.com/2020/11/24/world/pfizer-vaccine-distribution.html?searchResultPosition=9
+
 **Unemployment Scam Using Inmates’ Names Costs California Hundreds of Millions**\
 `Investigators say the payment of benefits claimed with the names of prisoners, including many on death row, “appears to be the most significant fraud on taxpayer funds in California history.”`\
-https://nytimes.com/2020/11/24/us/california-unemployment-fraud-inmates.html?searchResultPosition=9
-
-**What Not to Buy on Black Friday**\
-`Here, Wirecutter, the New York Times company that recommends products, tells you what’s not worth it.`\
-https://nytimes.com/interactive/2020/11/24/smarter-living/wirecutter/black-friday-deals-to-skip.html?searchResultPosition=10
+https://nytimes.com/2020/11/24/us/california-unemployment-fraud-inmates.html?searchResultPosition=10
 
