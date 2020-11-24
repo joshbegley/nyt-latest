@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2020/11/24/parenting/kids-kitchen-safety.html?se
 https://nytimes.com/2020/11/24/us/politics/janet-yellen-treasury-biden.html?searchResultPosition=4
 
 **Separated by Distance? Send Pressed Flowers**\
-`The expert gardener and ceramist Frances Palmer offers a primer on how to decorate a card with dried botanicals.`\
+`The skilled gardener and ceramist Frances Palmer offers a primer on how to decorate a card with dried botanicals.`\
 https://nytimes.com/2020/11/24/t-magazine/pressing-flowers-how-to-crafting.html?searchResultPosition=5
 
 **Honestie Hodges, Handcuffed by the Police at 11, Is Dead at 14**\
