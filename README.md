@@ -20,7 +20,7 @@ https://nytimes.com/2020/11/24/theater/laura-benanti-favorites.html?searchResult
 
 **U.K. Woman Who Joined ISIS in Syria Asks High Court to Let Her Return Home**\
 `Shamima Begum, who traveled to Syria in 2015 as a teenager and remains in detention there, is challenging a decision by the British authorities to revoke her citizenship.`\
-https://nytimes.com/2020/11/24/world/europe/uk-terror-ISIS-Shamima-Begum.html?searchResultPosition=6
+https://nytimes.com/2020/11/24/world/europe/uk-isis-shamima-begum.html?searchResultPosition=6
 
 **David Maas, Half of ‘Quick Change’ Magic Act, Dies of Covid-19**\
 `Mr. Maas and his wife, who performed lightning-fast costume changes, often appeared on television and were a halftime fixture at N.B.A. and college basketball arenas.`\
