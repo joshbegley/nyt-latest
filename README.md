@@ -2,13 +2,13 @@
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2020/11/24/style/tiny-modern-love-stories-we-could-only-see-each-others-eyes.html?searchResultPosition=1
 
-**Debbie Allen’s Technique? It’s All About Tough Love**\
-`The documentary “Dance Dreams: Hot Chocolate Nutcracker” shines a spotlight on Ms. Allen and her academy as it prepares for the holiday classic.`\
-https://nytimes.com/2020/11/24/arts/dance/debbie-allen-dance-dreams-hot-chocolate-nutcracker.html?searchResultPosition=2
-
 **Your Wednesday Briefing**\
 `Lessons from South Korea’s vaccine campaign.`\
-https://nytimes.com/2020/11/24/briefing/south-korea-vaccine-china-taiwan-biden.html?searchResultPosition=3
+https://nytimes.com/2020/11/24/briefing/south-korea-vaccine-china-taiwan-biden.html?searchResultPosition=2
+
+**Debbie Allen’s Technique? It’s All About Tough Love**\
+`The documentary “Dance Dreams: Hot Chocolate Nutcracker” shines a spotlight on Ms. Allen and her academy as it prepares for the holiday classic.`\
+https://nytimes.com/2020/11/24/arts/dance/debbie-allen-dance-dreams-hot-chocolate-nutcracker.html?searchResultPosition=3
 
 **A Detailed Map of Where Americans Are Staying Home for Thanksgiving**\
 `Despite geographical and partisan splits, the vast majority say they are heeding pandemic warnings and planning a quieter holiday than usual.`\
