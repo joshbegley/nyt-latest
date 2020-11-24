@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/23/todayspaper/quotation-of-the-day-in-second-lockdown-a-push-to-keep-schools-open.html?searchResultPosition=1
 
 **Ex-Police Officer Charged With Manslaughter in 2017 Killing of Suspect**\
-`The San Francisco police rookie, Christopher Samayoa, was on his fourth day on the job when he shot and killed Keita O’Neil, an unarmed carjacking suspect, the authorities said.`\
+`The San Francisco police rookie, Christopher Samayoa, was on his fourth day of field training when he shot and killed Keita O’Neil, an unarmed carjacking suspect, the authorities said.`\
 https://nytimes.com/2020/11/23/us/chris-samayoa-san-francisco-manslaughter.html?searchResultPosition=2
 
 **Why Were Canadians Warned Not to Let Moose Lick Their Cars?**\
