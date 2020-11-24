@@ -26,8 +26,8 @@ https://nytimes.com/2020/11/23/us/politics/trump-turkey-pardon.html?searchResult
 `Election officials in Michigan certified its election results on Monday, resisting pressure from President Trump to delay the process and making President-elect Biden’s win official.`\
 https://nytimes.com/video/us/elections/100000007469837/michigan-certifies-biden-2020-election.html?searchResultPosition=7
 
-**This ‘Jeopardy!’ Champ Will Temporarily Succeed Alex Trebek**\
-`The game show is holding off on naming a new long-term host, but the game show superstar Ken Jennings will be a short-term replacement.`\
+**Ken Jennings Will Temporarily Succeed Alex Trebek on ‘Jeopardy!’**\
+`The game show is holding off on naming a new long-term host, but the game show superstar will be a short-term replacement.`\
 https://nytimes.com/2020/11/23/arts/television/jeopardy-ken-jennings-alex-trebek.html?searchResultPosition=8
 
 **Cabinet Picks, Michigan Vote, Vaccines: Your Monday Evening Briefing**\
