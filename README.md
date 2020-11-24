@@ -16,7 +16,7 @@ https://nytimes.com/2020/11/24/us/politics/election-trump-democracy.html?searchR
 
 **Tackling ‘Period Poverty,’ Scotland Is 1st Nation to Make Sanitary Products Free**\
 `The Scottish Parliament voted unanimously to pass a measure that makes free period products available to anyone who needs them, the first country to do so.`\
-https://nytimes.com/2020/11/24/world/europe/scotland-period-poverty.html?searchResultPosition=5
+https://nytimes.com/2020/11/24/world/europe/scotland-free-period-products.html?searchResultPosition=5
 
 **2 Officers Are Wounded and Man Is Killed in Queens Shootout, Police Say**\
 `The officers were responding to a domestic violence call when the man opened fire, wounding both of them, the police said. Neither injury was life threatening.`\
