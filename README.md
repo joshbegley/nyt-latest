@@ -6,8 +6,8 @@ https://nytimes.com/2020/11/24/us/Utah-monolith-red-rock-country.html?searchResu
 `Even in the absence of a questionable outcome or any evidence of fraud, President Trump managed to freeze the passage of power for most of a month.`\
 https://nytimes.com/2020/11/24/us/politics/election-trump-democracy.html?searchResultPosition=2
 
-**Scotland Passes Bill to End ‘Period Poverty’ With Free Sanitary Products**\
-`The Scottish Parliament voted unanimously to pass a bill that makes free period products available to anyone who needs them, the first country to do so.`\
+**Tackling ‘Period Poverty,’ Scotland Is 1st Nation to Make Sanitary Products Free**\
+`The Scottish Parliament voted unanimously to pass a measure that makes free period products available to anyone who needs them, the first country to do so.`\
 https://nytimes.com/2020/11/24/world/europe/scotland-period-poverty.html?searchResultPosition=3
 
 **2 Officers Are Wounded and Man Is Killed in Queens Shootout, Police Say**\
