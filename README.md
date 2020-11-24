@@ -1,4 +1,4 @@
-**Qatar Charges Airport Police in Strip- Search of Female Passengers**\
+**Qatar Charges Doha Airport Police Over Strip-Search of Female Passengers**\
 `Officials said they had identified the mother of a baby abandoned at the airport, and were seeking to extradite the women in order to charge her with attempted murder.`\
 https://nytimes.com/2020/11/24/world/middleeast/qatar-airport-strip-search.html?searchResultPosition=1
 
