@@ -1,4 +1,4 @@
-**Watch Live: Biden and Harris Introduce Cabinet**\
+**Watch Live: Biden and Harris Introduce Cabinet Picks**\
 `President-elect Joseph R. Biden Jr. and Vice President-elect Kamala Harris introduce nominees and appointees to crucial national security and foreign policy posts for their cabinet.`\
 https://nytimes.com/video/us/elections/100000007471259/biden-cabinet-live-video.html?searchResultPosition=1
 
