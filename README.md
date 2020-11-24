@@ -18,7 +18,7 @@ https://nytimes.com/2020/11/24/world/asia/taiwan-china-trump-biden.html?searchRe
 `Mr. Dinkins, who served in the early 1990s, was seen as a compromise selection for voters weary of racial unrest, crime and fiscal turmoil. The racial harmony he sought remained elusive during his years in office.`\
 https://nytimes.com/2020/11/24/nyregion/david-dinkins-dead.html?searchResultPosition=5
 
-**Last Word: David N. Dinkins**\
+**The Last Word: David N. Dinkins**\
 `The first African-American mayor of New York on his rise to City Hall and his fall after criticism of his handling of the racial violence in Crown Heights in 1991.`\
 https://nytimes.com/video/nyregion/100000004682319/last-word-david-n-dinkins.html?searchResultPosition=6
 
