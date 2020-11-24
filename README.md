@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/24/world/europe/scotland-period-poverty.html?searchResultPosition=1
 
 **2 Officers Are Wounded and Man Is Killed in Queens Shootout, Police Say**\
-`The officers were responding to a 911 call about domestic violence when the man opened fire, wounding both of them, the police said.`\
+`The officers were responding to a domestic violence call when the man opened fire, wounding both of them, the police said. Neither injury was life threatening.`\
 https://nytimes.com/2020/11/24/nyregion/nypd-officer-shooting-man-killed.html?searchResultPosition=2
 
 **Democratic senators urge YouTube to remove election misinformation videos.**\
