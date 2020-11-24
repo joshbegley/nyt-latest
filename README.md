@@ -11,7 +11,7 @@ https://nytimes.com/2020/11/24/nyregion/david-dinkins-death-reaction.html?search
 https://nytimes.com/2020/11/24/world/asia/taiwan-china-trump-biden.html?searchResultPosition=3
 
 **David N. Dinkins, New York’s First Black Mayor, Dies at 93**\
-`Mr. Dinkins, who served in the early 1990s, was seen as a compromise selection for voters weary of racial unrest, crime and fiscal turmoil, and proved to be an able caretaker rather than a bold innovator.`\
+`Mr. Dinkins, who served in the early 1990s, was seen as a compromise selection for voters weary of racial unrest, crime and fiscal turmoil. The racial harmony he sought remained elusive during his years in office.`\
 https://nytimes.com/2020/11/24/nyregion/david-dinkins-dead.html?searchResultPosition=4
 
 **Last Word: David N. Dinkins**\
