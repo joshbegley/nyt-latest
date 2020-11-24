@@ -1,4 +1,4 @@
-**Biden Announces ‘Incredible Team’ of Cabinet Picks**\
+**Biden Announces Cabinet Picks, Calling Them an ‘Incredible Team’**\
 `On Tuesday, President-elect Joseph R. Biden Jr. introduced his nominees for crucial foreign policy and national security roles during a public address.`\
 https://nytimes.com/video/us/politics/100000007471559/biden-presidential-cabinet-nominations.html?searchResultPosition=1
 
