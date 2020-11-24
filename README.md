@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/23/opinion/coronavirus-testing.html?searchResultPosi
 https://nytimes.com/2020/11/23/opinion/trump-biden-conspiracy-theory.html?searchResultPosition=2
 
 **Cuomo Invited His Mother for Thanksgiving. New Yorkers Noticed.**\
-`The governor was accused of hypocrisy after he said his mother and two daughters were traveling to Albany for the holiday.`\
+`The governor was accused of hypocrisy after he said his mother and two daughters were traveling to Albany for the holiday. He withdrew the invitation.`\
 https://nytimes.com/2020/11/23/nyregion/cuomo-thanksgiving-mother.html?searchResultPosition=3
 
 **In Canada, a Push to Keep Schools Open in Second Lockdown**\
