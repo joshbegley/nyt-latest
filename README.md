@@ -26,8 +26,8 @@ https://nytimes.com/2020/11/24/books/review/saving-freedom-joe-scarborough-truma
 `The final rankings will not come until at least Dec. 20. But on Tuesday night, the Playoff’s selection committee will give a sense of how it is approaching the pandemic-upended year.`\
 https://nytimes.com/2020/11/24/sports/ncaafootball/college-football-playoff-rankings.html?searchResultPosition=7
 
-**Watch Live: Biden and Harris Introduce Cabinet Picks**\
-`President-elect Joseph R. Biden Jr. and Vice President-elect Kamala Harris introduce nominees and appointees to crucial national security and foreign policy posts for their cabinet.`\
+**Watch Full Video: Biden and Harris Introduce Cabinet Picks**\
+`President-elect Joseph R. Biden Jr. and Vice President-elect Kamala Harris introduced nominees and appointees to crucial national security and foreign policy posts for their cabinet.`\
 https://nytimes.com/video/us/elections/100000007471259/biden-cabinet-live-video.html?searchResultPosition=8
 
 **Beyoncé, Taylor Swift and Dua Lipa Dominate 2021 Grammy Nominations**\
