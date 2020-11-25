@@ -1,40 +1,40 @@
+**Homeless Men Must Leave Upper West Side Hotel, Judge Rules**\
+`The dispute has been a flash point in one of New York City’s most liberal neighborhoods.`\
+https://nytimes.com/2020/11/25/nyregion/nyc-homeless-hotel-lucerne.html?searchResultPosition=1
+
 **N.B.A. Free Agency Frenzy: 5 Takeaways**\
 `A player was traded three times, and the Lakers and Clippers jockeyed for each other’s stars. But Milwaukee is still waiting for a big decision from its biggest star: Giannis Antetokounmpo.`\
-https://nytimes.com/2020/11/25/sports/basketball/nba-giannis-antetokounmpo.html?searchResultPosition=1
+https://nytimes.com/2020/11/25/sports/basketball/nba-giannis-antetokounmpo.html?searchResultPosition=2
 
 **A Conspiracy to Steal the Election, Aided by 80 Million Voters**\
 `A reader humorously describes a scheme by “diabolical” conspirators.`\
-https://nytimes.com/2020/11/25/opinion/letters/trump-biden-election-conspiracy.html?searchResultPosition=2
+https://nytimes.com/2020/11/25/opinion/letters/trump-biden-election-conspiracy.html?searchResultPosition=3
 
 **Iran Said to Free British-Australian Scholar Accused of Spying**\
 `Iranian state media said the scholar, Kylie Moore-Gilbert, was released in exchange for the return to Iran of three Iranian citizens, described as businessmen who had been held abroad.`\
-https://nytimes.com/2020/11/25/world/middleeast/iran-prisoner-exchange.html?searchResultPosition=3
+https://nytimes.com/2020/11/25/world/middleeast/iran-prisoner-exchange.html?searchResultPosition=4
 
 **Permit Denied for Alaskan Mine Project**\
 `The Army Corps of Engineers denied a permit for the proposed Pebble Mine project, saying it was “contrary to the public interest.”`\
-https://nytimes.com/2020/11/25/climate/pebble-mine-permit-denied.html?searchResultPosition=4
+https://nytimes.com/2020/11/25/climate/pebble-mine-permit-denied.html?searchResultPosition=5
 
 **Meghan’s Miscarriage, and Mine**\
 `A reader found consoling words a great help in her grief; another finds that even decades later the feelings of loss don’t go away. Also: How schools will be transformed.`\
-https://nytimes.com/2020/11/25/opinion/letters/meghan-miscarriage.html?searchResultPosition=5
+https://nytimes.com/2020/11/25/opinion/letters/meghan-miscarriage.html?searchResultPosition=6
 
 **Weary of Cooking? This Simple Dinner Will Invigorate**\
 `A fine dinner need not be complicated, nor relegated to the weekend, as David Tanis’s Mediterranean-inspired menu proves.`\
-https://nytimes.com/2020/11/25/dining/simple-dinner-recipes.html?searchResultPosition=6
+https://nytimes.com/2020/11/25/dining/simple-dinner-recipes.html?searchResultPosition=7
 
 **A Looming Drinksgiving Disaster**\
 `Thanksgiving Eve could be a super-spreading event.`\
-https://nytimes.com/2020/11/25/us/drinksgiving-thanksgiving-eve-superspreader-college-bars.html?searchResultPosition=7
+https://nytimes.com/2020/11/25/us/drinksgiving-thanksgiving-eve-superspreader-college-bars.html?searchResultPosition=8
 
 **Cyclone Nivar Drenches India’s East Coast**\
 `The cyclone is the fourth named storm in the North Indian Ocean this year. The city of Chennai, in southern India, was battered by heavy rains on Wednesday as the storm neared landfall in the state of Tamil Nadu.`\
-https://nytimes.com/video/climate/100000007473304/india-cyclone-nivar.html?searchResultPosition=8
+https://nytimes.com/video/climate/100000007473304/india-cyclone-nivar.html?searchResultPosition=9
 
 **Over 30 Trump Campaign Lawsuits Have Failed. Some Rulings Are Scathing.**\
 `As President Trump continues to litigate the 2020 election, some judges have lost all patience. Here are some excerpts of their rulings.`\
-https://nytimes.com/2020/11/25/us/elections/trump-campaign-lawsuits.html?searchResultPosition=9
-
-**France Drops Rape Investigation of Former Deputy Mayor of Paris**\
-`Prosecutors said the case was closed because the statute of limitations on the alleged offense had expired.`\
-https://nytimes.com/2020/11/25/world/europe/france-drops-rape-investigation-of-former-deputy-mayor-of-paris.html?searchResultPosition=10
+https://nytimes.com/2020/11/25/us/elections/trump-campaign-lawsuits.html?searchResultPosition=10
 
