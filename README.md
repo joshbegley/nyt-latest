@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/25/arts/music/opera-mail.html?searchResultPosition=1
 
 **Your Thursday Briefing**\
-`The U.S., already breaking virus records, heads into busiest travel season.`\
+`The U.S., breaking virus records, heads into busiest travel season.`\
 https://nytimes.com/2020/11/25/briefing/virus-malaysia-diego-maradona.html?searchResultPosition=2
 
 **Macron’s Rightward Tilt, Seen in New Laws, Sows Wider Alarm in France**\
