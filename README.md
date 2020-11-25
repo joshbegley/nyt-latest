@@ -1,6 +1,6 @@
 **Penguin Random House to Buy Simon & Schuster**\
 `ViacomCBS agreed to sell the 96-year-old company in a deal that potentially creates a megapublisher.`\
-https://nytimes.com/2020/11/25/books/simon-schuster-viacom-bertelsmann.html?searchResultPosition=1
+https://nytimes.com/2020/11/25/books/simon-schuster-penguin-random-house.html?searchResultPosition=1
 
 **$1.3 Million Homes in Pennsylvania, Colorado and Texas**\
 `A 1769 townhouse in the Society Hill section of Philadelphia, an 1898 home in Denver and a 1997 postmodern house designed by Michael Graves in Austin.`\
