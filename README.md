@@ -1,40 +1,40 @@
-**It’s the Fauci Awards!**\
-`What if public health officials got awards instead of death threats?`\
-https://nytimes.com/video/opinion/100000007453967/fauci-public-health-awards.html?searchResultPosition=1
+**An Ethiopian Boutique Showcasing Artisanal Design**\
+`Anna Getaneh opened African Mosaique almost four years ago in a home her father had built where she spent some of her childhood years.`\
+https://nytimes.com/2020/11/25/style/addis-ababa-ethiopia-shopping.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Old Dogs, New Research and the Secrets of Aging’**\
-`In this lesson, students will learn about the latest discoveries about the ways dogs grow and age and how that might help us to better understand aging in humans.`\
-https://nytimes.com/2020/11/25/learning/lesson-of-the-day-old-dogs-new-research-and-the-secrets-of-aging.html?searchResultPosition=2
+**Danish Hygge Is So Last Year. Say Hello to Swedish Mys.**\
+`The essence of mys is the feeling of warmth. And the best city to stock up on mys-making supplies is Stockholm.`\
+https://nytimes.com/2020/11/25/style/stockholm-shopping-mys-nytorget.html?searchResultPosition=2
 
-**Casualties From Banned Cluster Bombs Nearly Doubled in 2019, Mostly in Syria**\
-`The war in Syria, which began almost a decade ago, makes it the only country where the outlawed bombs have been repeatedly used since 2012.`\
-https://nytimes.com/2020/11/25/world/middleeast/cluster-bomb-casualties-syria.html?searchResultPosition=3
+**Discovering Vintage Madrid**\
+`When the pandemic temporarily closed El Rastro, the city’s sprawling street market, neighboring shops had a chance to shine.`\
+https://nytimes.com/2020/11/25/style/madrid-spain-shopping-el-rastro.html?searchResultPosition=3
 
-**The Losses We Share**\
-`Perhaps the path to healing begins with three simple words: Are you OK?`\
-https://nytimes.com/2020/11/25/opinion/meghan-markle-miscarriage.html?searchResultPosition=4
+**Perhaps a New Fragrance Will Make Things Festive**\
+`The smell of flowers or pine or vanilla could be a holiday boost.`\
+https://nytimes.com/2020/11/25/fashion/perfume-candles-fragrance-foundation-UK.html?searchResultPosition=4
 
-**David Dinkins Kept Loving Tennis, No Matter Who Mocked Him**\
-`The expansion of the National Tennis Center in Queens was among the signature achievements of the former mayor, who still played into his late 80s.`\
-https://nytimes.com/2020/11/25/sports/tennis/dinkins-tennis-open-giuliani.html?searchResultPosition=5
+**7 New Books to Watch For in December**\
+`There’s a new novel from Jane Smiley and biographies of the English suffragist Sylvia Pankhurst and Louise Fitzhugh, the creator of “Harriet the Spy.”`\
+https://nytimes.com/2020/11/25/books/december-books.html?searchResultPosition=5
 
-**Without Drew Brees, the Saints Rely on an All-Purpose Back. No, Not Taysom Hill.**\
-`Alvin Kamara has lined up for New Orleans at running back, receiver, kick returner and occasionally as a wildcat quarterback to make the most of his diverse talents.`\
-https://nytimes.com/2020/11/25/sports/football/new-orleans-saints-taysom-hill-alvin-kamara.html?searchResultPosition=6
+**In Buenos Aires, Shops Where Sophistication and Tradition Meet**\
+`You’ll find everything from handmade Quichua blankets to world-renowned leather polo boots.`\
+https://nytimes.com/2020/11/25/style/buenos-aires-shopping.html?searchResultPosition=6
 
-**Divvy Homes Says Rent-to-Own Deals Work. Next Year Will Be a Test.**\
-`Portraying itself as a good guy in a seedy corner of home sales, Divvy has received mixed early reviews. But the bulk of its clients will soon have to decide whether to buy or back out.`\
-https://nytimes.com/2020/11/25/business/divvy-homes-real-estate-homes.html?searchResultPosition=7
+**The Museums of Paris: A Source for Gifts Inspired by the Past**\
+`Although a new lockdown has made it more challenging, browsing at museum shops is still an option, thanks to the internet.`\
+https://nytimes.com/2020/11/25/style/paris-museums-gifts.html?searchResultPosition=7
 
-**College Basketball Is Starting. Some Coaches Are Openly Asking Why.**\
-`There will be 100-plus games happening on Wednesday, as health officials urge the rest of us not to travel while the coronavirus surges.`\
-https://nytimes.com/2020/11/25/sports/ncaabasketball/coronavirus-college-basketball.html?searchResultPosition=8
+**Jackson Township, N.J.: A Range of Housing With ‘Tremendous Value’**\
+`Best known as the home of Six Flags Great Adventure, this Ocean County township is drawing new residents with its relatively affordable home prices.`\
+https://nytimes.com/2020/11/25/realestate/living-in-jackson-township-new-jersey.html?searchResultPosition=8
 
-**‘The Christmas Chronicles: Part Two’ Review: Meet the Clauses**\
-`Kids explore the marvels of Santa’s Village in this sugary, busy Netflix sequel that stars Kurt Russell and Goldie Hawn as Mr. and Mrs. Claus.`\
-https://nytimes.com/2020/11/25/movies/the-christmas-chronicles-part-two-review.html?searchResultPosition=9
+**‘Thumb-Stopping.’ ‘Humaning.’ ‘B4H.’ The Strange Language of Modern Marketing.**\
+`The ad business is overrun with buzzwords and acronyms, and some people are saying it’s enough already.`\
+https://nytimes.com/2020/11/25/business/media/thumb-stopping-humaning-b4h-the-strange-language-of-modern-marketing.html?searchResultPosition=9
 
-**Sacred Souvenirs**\
-`What cherished mementos have you acquired on vacation?`\
-https://nytimes.com/2020/11/25/learning/sacred-souvenirs.html?searchResultPosition=10
+**7 Places Where the Slopes Are Less Skied**\
+`These under-the-radar resorts offer plenty of room to turn, and plenty of challenge amid a winter of social distancing.`\
+https://nytimes.com/2020/11/25/travel/small-mountain-ski-resorts-us.html?searchResultPosition=10
 
