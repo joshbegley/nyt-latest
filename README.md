@@ -1,40 +1,40 @@
+**David Dinkins Kept Loving Tennis, No Matter Who Mocked Him**\
+`The expansion of the National Tennis Center in Queens was among the signature achievements of the former mayor, who still played into his late 80s.`\
+https://nytimes.com/2020/11/25/sports/tennis/dinkins-tennis-open-giuliani.html?searchResultPosition=1
+
+**Without Drew Brees, the Saints Rely on an All-Purpose Back. No, Not Taysom Hill.**\
+`Alvin Kamara has lined up for New Orleans at running back, receiver, kick returner and occasionally as a wildcat quarterback to make the most of his diverse talents.`\
+https://nytimes.com/2020/11/25/sports/football/new-orleans-saints-taysom-hill-alvin-kamara.html?searchResultPosition=2
+
+**Divvy Homes Says Rent-to-Own Deals Work. Next Year Will Be a Test.**\
+`Portraying itself as a good guy in a seedy corner of home sales, Divvy has received mixed early reviews. But the bulk of its clients will soon have to decide whether to buy or back out.`\
+https://nytimes.com/2020/11/25/business/divvy-homes-real-estate-homes.html?searchResultPosition=3
+
+**College Basketball Is Starting. Some Coaches Are Openly Asking Why.**\
+`There will be 100-plus games happening on Wednesday, as health officials urge the rest of us not to travel while the coronavirus surges.`\
+https://nytimes.com/2020/11/25/sports/ncaabasketball/coronavirus-college-basketball.html?searchResultPosition=4
+
+**‘The Christmas Chronicles: Part Two’ Review: Meet the Clauses**\
+`Kids explore the marvels of Santa’s Village in this sugary, busy Netflix sequel that stars Kurt Russell and Goldie Hawn as Mr. and Mrs. Claus.`\
+https://nytimes.com/2020/11/25/movies/the-christmas-chronicles-part-two-review.html?searchResultPosition=5
+
+**Sacred Souvenirs**\
+`What cherished mementos have you acquired on vacation?`\
+https://nytimes.com/2020/11/25/learning/sacred-souvenirs.html?searchResultPosition=6
+
 **Poem: The next what-have-you**\
 `Djelloul Marbrook's poems feel as connected as charms on a weighty silver necklace from an older country, passed down from the grandmothers.`\
-https://nytimes.com/2020/11/25/magazine/poem-the-next-what-have-you.html?searchResultPosition=1
+https://nytimes.com/2020/11/25/magazine/poem-the-next-what-have-you.html?searchResultPosition=7
 
 **Word + Quiz: waylay**\
 `This word has appeared in two articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/11/25/learning/word-quiz-waylay.html?searchResultPosition=2
+https://nytimes.com/2020/11/25/learning/word-quiz-waylay.html?searchResultPosition=8
 
 **Jimmy Kimmel Rags on Trump for His Randy Quaid Retweets**\
 `“Let’s just say he makes Gary Busey look like Dr. Fauci,” Kimmel said of the pro-Trump actor after the president retweeted five of his posts on Tuesday.`\
-https://nytimes.com/2020/11/25/arts/television/jimmy-kimmel-trump-randy-quaid-tweets-late-night.html?searchResultPosition=3
+https://nytimes.com/2020/11/25/arts/television/jimmy-kimmel-trump-randy-quaid-tweets-late-night.html?searchResultPosition=9
 
 **Death by Shark Is at a High in Australia. What’s Going On?**\
 `Eight people have been fatally attacked this year, the most in nearly a century. But scientists say these numbers don’t tell the full story.`\
-https://nytimes.com/2020/11/24/world/australia/shark-attack.html?searchResultPosition=4
-
-**Your Wednesday Briefing**\
-`France and Germany tussle over defense policy.`\
-https://nytimes.com/2020/11/24/briefing/britain-christmas-lockdown-paris-migrant-camp.html?searchResultPosition=5
-
-**Quotation of the Day: It Was a Rape Camp. Now It’s a Spa That Depends on Amnesia.**\
-`Quotation of the Day for Wednesday, November 25, 2020.`\
-https://nytimes.com/2020/11/24/todayspaper/quotation-of-the-day-it-was-a-rape-camp-now-its-a-spa-that-depends-on-amnesia.html?searchResultPosition=6
-
-**Corrections: Nov. 25, 2020**\
-`Corrections that appeared in print on Wednesday, Nov. 25, 2020.`\
-https://nytimes.com/2020/11/24/pageoneplus/corrections-nov-25-2020.html?searchResultPosition=7
-
-**Juggling or Ventriloquism**\
-`John Guzzetta and Jeff Chen ride into town with an acrobatic puzzle.`\
-https://nytimes.com/2020/11/24/crosswords/daily-puzzle-2020-11-25.html?searchResultPosition=8
-
-**Trump Is Said to Plan Pardon of Flynn**\
-`The expected pardon of President Trump’s former national security adviser, who twice pleaded guilty to lying to the F.B.I., is said to be one of a string Mr. Trump plans to issue before leaving office.`\
-https://nytimes.com/2020/11/24/us/politics/trump-is-said-to-plan-pardon-of-flynn.html?searchResultPosition=9
-
-**Biden’s National Security Team Offers a Sharp Turn. But in Which Direction?**\
-`The picks are a repudiation of President Trump’s isolationism, but they will have to resolve tensions between an Obama-era approach and the “fresh thinking” the president-elect says he wants.`\
-https://nytimes.com/2020/11/24/us/politics/biden-nominees-national-security.html?searchResultPosition=10
+https://nytimes.com/2020/11/24/world/australia/shark-attack.html?searchResultPosition=10
 
