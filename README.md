@@ -1,40 +1,40 @@
+**Biden and China**\
+`And what else you need to know today.`\
+https://nytimes.com/2020/11/25/briefing/michael-flynn-utah-monolith-grammy-nominations.html?searchResultPosition=1
+
 **Thanksgiving Lessons in Gratitude From My Grandmother**\
 `Our pandemic sacrifices pale in comparison to her immigrant journey.`\
-https://nytimes.com/2020/11/25/parenting/thanksgiving-gratitude-family.html?searchResultPosition=1
+https://nytimes.com/2020/11/25/parenting/thanksgiving-gratitude-family.html?searchResultPosition=2
 
 **Will White Women in Georgia Put Family or Culture War First?**\
 `As the crucial swing voting bloc in the state’s two pivotal Senate runoffs, they have a clear choice.`\
-https://nytimes.com/2020/11/25/opinion/georgia-senate-white-women-vote.html?searchResultPosition=2
+https://nytimes.com/2020/11/25/opinion/georgia-senate-white-women-vote.html?searchResultPosition=3
 
 **A Day at the Food Pantry**\
 `Soaring numbers of New York City residents face food shortages as a result of the pandemic. Here are some of them.`\
-https://nytimes.com/2020/11/25/podcasts/the-daily/new-york-city-food-pantries.html?searchResultPosition=3
+https://nytimes.com/2020/11/25/podcasts/the-daily/new-york-city-food-pantries.html?searchResultPosition=4
 
 **My Journey to the American Crossword Puzzle Tournament**\
 `A well-loved clipboard loaded with crossword puzzles became the rock one woman leaned on when her husband became critically ill.`\
-https://nytimes.com/2020/11/25/crosswords/crosswords-essay-thiesen.html?searchResultPosition=4
+https://nytimes.com/2020/11/25/crosswords/crosswords-essay-thiesen.html?searchResultPosition=5
 
 **Amid Thailand’s Protests, a Feared Tool to Protect the Monarchy Returns**\
 `The country’s lèse-majesté law, which makes insulting the king punishable by years in prison, is being used against the movement’s leadership for the first time.`\
-https://nytimes.com/2020/11/25/world/asia/thailand-protest-lese-majeste-monarchy.html?searchResultPosition=5
+https://nytimes.com/2020/11/25/world/asia/thailand-protest-lese-majeste-monarchy.html?searchResultPosition=6
 
 **Remembering David Dinkins, First Black Mayor of N.Y.C.**\
 `Prominent leaders said he was a somewhat reluctant trailblazer who took office at a difficult period of fiscal crisis and racial tension.`\
-https://nytimes.com/2020/11/25/nyregion/new-yorkers-remember-david-dinkins.html?searchResultPosition=6
+https://nytimes.com/2020/11/25/nyregion/new-yorkers-remember-david-dinkins.html?searchResultPosition=7
 
 **Driver Crashes Car Into Gate Outside Angela Merkel’s Office**\
 `The motive was unclear, but it could be tied to an expected German government extension of a partial lockdown to stem coronavirus infections.`\
-https://nytimes.com/2020/11/25/world/europe/germany-car-crash-merkel.html?searchResultPosition=7
+https://nytimes.com/2020/11/25/world/europe/germany-car-crash-merkel.html?searchResultPosition=8
 
 **Grave Is Found at Site of Historic Black Church in Colonial Williamsburg**\
 `An archaeological project digs into the past to finally give voice to one of Williamsburg’s oldest communities.`\
-https://nytimes.com/2020/11/25/us/williamsburg-black-church-graves.html?searchResultPosition=8
+https://nytimes.com/2020/11/25/us/williamsburg-black-church-graves.html?searchResultPosition=9
 
 **Gift Giving Will Be Different This Year**\
 `Finances may be tight, but shopping will go on. And at least one person is thinking of reviving Christmas cards.`\
-https://nytimes.com/2020/11/25/fashion/holiday-gift-giving.html?searchResultPosition=9
-
-**When Music Is on Your Holiday List**\
-`Online subscriptions and charity donations are easy ways to give the gift of sound this year.`\
-https://nytimes.com/2020/11/25/fashion/gifts-music-subscriptions-on-demand.html?searchResultPosition=10
+https://nytimes.com/2020/11/25/fashion/holiday-gift-giving.html?searchResultPosition=10
 
