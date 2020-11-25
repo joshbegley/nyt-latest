@@ -24,7 +24,7 @@ https://nytimes.com/2020/11/25/sports/soccer/diego-maradona.html?searchResultPos
 
 **Saudi Judge Sends Prominent Women’s Rights Activist to Terrorism Court**\
 `Loujain al-Hathloul, who campaigned for women’s right to drive, has been accused of harming the kingdom’s security. Rights groups consider the trial a sham.`\
-https://nytimes.com/2020/11/25/world/middleeast/saudi-woman-activist.html?searchResultPosition=7
+https://nytimes.com/2020/11/25/world/middleeast/saudi-arabia-loujain-al-hathloul.html?searchResultPosition=7
 
 **C.I.A. Officer Is Killed in Somalia**\
 `The officer’s combat death came as President Trump considers pulling back on American operations in the region.`\
