@@ -1,5 +1,5 @@
 **Diego Maradona, One of Soccer’s Greatest Players, Is Dead at 60**\
-`His ability to surprise and startle developed a darker edge as he became addicted to cocaine.`\
+`He was ranked with Pele among the best. But his ability to surprise and startle developed a darker edge as he became addicted to cocaine.`\
 https://nytimes.com/2020/11/25/sports/soccer/diego-maradona-dead.html?searchResultPosition=1
 
 **We’re Still Smarter Than Computers**\
