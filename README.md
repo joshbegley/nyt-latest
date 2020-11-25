@@ -23,7 +23,7 @@ https://nytimes.com/2020/11/25/us/elections/trump-campaign-lawsuits.html?searchR
 https://nytimes.com/2020/11/25/world/europe/france-drops-rape-investigation-of-former-deputy-mayor-of-paris.html?searchResultPosition=6
 
 **Diego Maradona, One of Soccer’s Greatest Players, Is Dead at 60**\
-`He was ranked with Pele among the best. But his ability to surprise and startle developed a darker edge as he became addicted to cocaine.`\
+`He was ranked with Pele among the best, and his ability to surprise and startle won over fans and even critics. But his excesses and addictions darkened his legacy.`\
 https://nytimes.com/2020/11/25/sports/soccer/diego-maradona-dead.html?searchResultPosition=7
 
 **We’re Still Smarter Than Computers**\
