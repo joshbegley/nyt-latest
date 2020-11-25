@@ -1,40 +1,40 @@
+**Words of Gratitude From Delaware**\
+`The New York Times asked poets laureate from across the country what the people in their states had to be thankful for in this difficult year.`\
+https://nytimes.com/2020/11/25/us/words-of-gratitude-from-delaware.html?searchResultPosition=1
+
+**A Poem of Gratitude From West Virginia**\
+`The New York Times asked poets laureate from across the country what the people in their states had to be thankful for in this difficult year.`\
+https://nytimes.com/2020/11/25/us/a-poem-of-gratitude-from-west-virginia.html?searchResultPosition=2
+
+**A Poem of Gratitude From Wyoming**\
+`The New York Times asked poets laureate from across the country what the people in their states had to be thankful for in this difficult year.`\
+https://nytimes.com/2020/11/25/us/a-poem-of-gratitude-from-wyoming.html?searchResultPosition=3
+
+**Poems of Gratitude From Oregon**\
+`The New York Times asked poets laureate from across the country what the people in their states had to be thankful for in this difficult year.`\
+https://nytimes.com/2020/11/25/us/poems-of-gratitude-from-oregon.html?searchResultPosition=4
+
+**A Poem of Gratitude From Virginia**\
+`The New York Times asked poets laureate from across the country what the people in their states had to be thankful for in this difficult year.`\
+https://nytimes.com/2020/11/25/us/a-poem-of-gratitude-from-virginia.html?searchResultPosition=5
+
+**A Poem of Gratitude From Nebraska**\
+`The New York Times asked poets laureate from across the country what the people in their states had to be thankful for in this difficult year.`\
+https://nytimes.com/2020/11/25/us/a-poem-of-gratitude-from-nebraska.html?searchResultPosition=6
+
 **The Myth of North America, in One Painting**\
 `How Benjamin West remade a bloody battle as a founding romance.`\
-https://nytimes.com/interactive/2020/11/25/arts/benjamin-west-general-wolfe.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/11/25/arts/benjamin-west-general-wolfe.html?searchResultPosition=7
 
 **Iconic or Sexist? Palm Springs Mulls a Marilyn Monroe Statue**\
 `The City Council has voted to place the sculpture near the Palm Springs Art Museum, but local cultural leaders oppose the move.`\
-https://nytimes.com/2020/11/25/arts/design/marilyn-monroe-sculpture-palm-springs.html?searchResultPosition=2
+https://nytimes.com/2020/11/25/arts/design/marilyn-monroe-sculpture-palm-springs.html?searchResultPosition=8
 
 **Biden Calls for Unity in Thanksgiving Address**\
 `President-elect Joseph R. Biden Jr. stressed the importance of unity and encouraged Americans to be careful with Thanksgiving celebrations this year to help curb the spread of the coronavirus.`\
-https://nytimes.com/video/us/politics/100000007474058/biden-thanksgiving-coronavirus.html?searchResultPosition=3
+https://nytimes.com/video/us/politics/100000007474058/biden-thanksgiving-coronavirus.html?searchResultPosition=9
 
 **Trump Pardons Michael Flynn, Ending Case His Justice Dept. Sought to Shut Down**\
 `The president’s former national security adviser twice pleaded guilty to lying to investigators about his conversations with Russia’s ambassador.`\
-https://nytimes.com/2020/11/25/us/politics/michael-flynn-pardon.html?searchResultPosition=4
-
-**A Poem of Gratitude From Ohio**\
-`The New York Times asked poets laureate from across the country what the people in their states had to be thankful for in this difficult year.`\
-https://nytimes.com/2020/11/25/us/a-poem-of-gratitude-from-ohio.html?searchResultPosition=5
-
-**Diego Maradona, the Most Human of Immortals**\
-`The sport that the Argentina legend illuminated, the one he lifted into an art, was not tarnished by all that he did to himself.`\
-https://nytimes.com/2020/11/25/sports/soccer/diego-maradona.html?searchResultPosition=6
-
-**Saudi Judge Sends Prominent Women’s Rights Activist to Terrorism Court**\
-`Loujain al-Hathloul, who campaigned for women’s right to drive, has been accused of harming the kingdom’s security. Rights groups consider the trial a sham.`\
-https://nytimes.com/2020/11/25/world/middleeast/saudi-arabia-loujain-al-hathloul.html?searchResultPosition=7
-
-**C.I.A. Officer Is Killed in Somalia**\
-`The officer’s combat death came as President Trump considers pulling back on American operations in the region.`\
-https://nytimes.com/2020/11/25/us/politics/cia-officer-somalia-death.html?searchResultPosition=8
-
-**U.S. Shutters Warehouse Where Migrants Were Kept in ‘Cages’**\
-`The chain-link pens that held thousands of children in overcrowded, dirty conditions are being removed as part of a facility upgrade.`\
-https://nytimes.com/2020/11/25/us/border-migrant-children-cages-ursula-warehouse.html?searchResultPosition=9
-
-**Snapshots of the Many Megan Thee Stallions**\
-`The Houston rapper provides glimpses of her various sides on her new album, “Good News,” but offers few close-ups.`\
-https://nytimes.com/2020/11/25/arts/music/megan-thee-stallion-good-news-review.html?searchResultPosition=10
+https://nytimes.com/2020/11/25/us/politics/michael-flynn-pardon.html?searchResultPosition=10
 
