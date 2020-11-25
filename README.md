@@ -19,7 +19,7 @@ https://nytimes.com/2020/11/24/pageoneplus/corrections-nov-25-2020.html?searchRe
 https://nytimes.com/2020/11/24/crosswords/daily-puzzle-2020-11-25.html?searchResultPosition=5
 
 **Trump Is Said to Plan Pardon of Flynn**\
-`The expected pardon of President Trump’s former national security adviser, who twice pleaded guilty to lying to the F.B.I., is said to be one of a string Mr. Trump plans to issue before he leaves office.`\
+`The expected pardon of President Trump’s former national security adviser, who twice pleaded guilty to lying to the F.B.I., is said to be one of a string Mr. Trump plans to issue before leaving office.`\
 https://nytimes.com/2020/11/24/us/politics/trump-is-said-to-plan-pardon-of-flynn.html?searchResultPosition=6
 
 **Biden’s National Security Team Offers a Sharp Turn. But in Which Direction?**\
