@@ -19,7 +19,7 @@ https://nytimes.com/2020/11/25/theater/review-emilia.html?searchResultPosition=4
 https://nytimes.com/2020/11/25/climate/diesel-trucks-air-pollution.html?searchResultPosition=5
 
 **How Phoebe Bridgers Got Her Grammys Good News**\
-`The 26-year-old singer and songwriter picked up her first three nominations on Tuesday, including one for best new artist.`\
+`The 26-year-old singer and songwriter picked up her first four nominations on Tuesday, including one for best new artist.`\
 https://nytimes.com/2020/11/25/arts/music/phoebe-bridgers-grammys.html?searchResultPosition=6
 
 **A Badly Timed Disruption for Wine Sales in the New York Area**\
