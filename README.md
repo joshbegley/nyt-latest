@@ -31,7 +31,7 @@ https://nytimes.com/2020/11/26/world/europe/Paris-police-beating-video.html?sear
 https://nytimes.com/2020/11/26/us/rifts-supreme-court-trump.html?searchResultPosition=8
 
 **Dr. Mary Fowkes, 66, Dies; Helped Science Understand the Pandemic**\
-`She performed autopsies at Mount Sinai Hospital in New York that found blood clots in vital organs, suggesting how much the virus spreads through the body.`\
+`She performed autopsies in New York that found blood clots in vital organs, suggesting how much the virus spreads through the body.`\
 https://nytimes.com/2020/11/26/health/dr-mary-fowkes-dead.html?searchResultPosition=9
 
 **Here’s What the Thanksgiving Parade Looked Like in Pandemic New York**\
