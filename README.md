@@ -1,4 +1,4 @@
-**Macy’s Thanksgiving Day Parade Is Scaled Down in Pandemic**\
+**Macy’s Thanksgiving Day Parade Is Scaled Down in a Pandemic**\
 `The threat of the coronavirus led planners of the annual parade in New York City to drastically revise plans, including reducing the route to a single block down 34th Street, near the flagship department store.`\
 https://nytimes.com/video/nyregion/nyregionspecial/100000007475365/macy-day-thanksgiving-parade-coronavirus.html?searchResultPosition=1
 
