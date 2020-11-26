@@ -1,5 +1,5 @@
 **Splitting 5 to 4, Supreme Court Backs Religious Challenge to Cuomo’s Virus Shutdown Order**\
-`In earlier rulings related to coronavirus restrictions in California and Nevada, the court had taken the opposite approach. But its membership has changed since then.`\
+`Justice Amy Coney Barrett played a decisive role in the decision, which took the opposite approach of earlier court rulings related to coronavirus restrictions in California and Nevada.`\
 https://nytimes.com/2020/11/26/us/supreme-court-coronavirus-religion-new-york.html?searchResultPosition=1
 
 **N.F.L. Week 12 Predictions: Our Picks Against the Spread**\
