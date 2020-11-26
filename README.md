@@ -28,7 +28,7 @@ https://nytimes.com/2020/11/26/us/politics/edward-perkins-dead.html?searchResult
 
 **Families Have Been Torn Apart by Politics. What Happens to Them Now?**\
 `Unlike 2016, when conflicts emerged over political choices, this time many are centered on the legitimacy of the result itself.`\
-https://nytimes.com/2020/11/26/us/families-have-been-torn-apart-by-politics-what-happens-to-them-now.html?searchResultPosition=8
+https://nytimes.com/2020/11/26/us/2020-election-family-conflict.html?searchResultPosition=8
 
 **Cuomo Attacks Supreme Court’s Emboldened Majority Over Virus Ruling**\
 `“You have a different court, and I think that was the statement the court was making,” the governor said after a 5-4 decision barring restrictions on religious services.`\
