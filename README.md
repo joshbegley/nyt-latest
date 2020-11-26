@@ -26,7 +26,7 @@ https://nytimes.com/2020/11/26/movies/mosul-review.html?searchResultPosition=6
 `One viewing is enough for this animated feature debut by the Polish director Mariusz Wilczynski.`\
 https://nytimes.com/2020/11/26/movies/review-kill-it-and-leave-this-town.html?searchResultPosition=7
 
-**Happy Thanksgiving**\
+**Gratitude in Six Words, From Our Readers**\
 `And what else you need to know today.`\
 https://nytimes.com/2020/11/26/briefing/coronavirus-vaccine-trump-pardon-diego-maradona.html?searchResultPosition=8
 
