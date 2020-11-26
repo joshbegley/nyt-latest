@@ -30,11 +30,11 @@ https://nytimes.com/2020/11/26/at-home/newsletter.html?searchResultPosition=7
 `Prime Minister Abiy Ahmed said that a deadline for the region’s dissident leaders to surrender had lapsed. The conflict threatens to destabilize the entire Horn of Africa.`\
 https://nytimes.com/2020/11/26/world/africa/ethiopia-tigray-abiy-ahmed.html?searchResultPosition=8
 
+**Merkel outlines Germany’s plan to extend restrictions through December.**\
+`By Christopher F. Schuetze`\
+https://nytimes.com/2020/11/26/world/merkel-outlines-germanys-plan-to-extend-restrictions-through-december.html?searchResultPosition=9
+
 **‘Superintelligence’ Review: Melissa McCarthy Has to Save the World**\
 `In this comedy from Ben Falcone, McCarthy plays the world’s most average human, picked to save the world by an A.I. entity with the voice of James Corden.`\
-https://nytimes.com/2020/11/26/movies/superintelligence-review.html?searchResultPosition=9
-
-**‘Stardust’ Review: A Week With David Bowie, Unaccompanied by His Music**\
-`A more accurate title for this movie, set in the early ’70s, would be “Johnny Flynn Sings Jacques Brel.”`\
-https://nytimes.com/2020/11/26/movies/stardust-review-a-week-with-david-bowie-unaccompanied-by-his-music.html?searchResultPosition=10
+https://nytimes.com/2020/11/26/movies/superintelligence-review.html?searchResultPosition=10
 
