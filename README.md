@@ -1,40 +1,40 @@
+**Corrections: Nov. 26, 2020**\
+`Corrections that appeared in print on Thursday, Nov. 26, 2020.`\
+https://nytimes.com/2020/11/25/pageoneplus/corrections-nov-26-2020.html?searchResultPosition=1
+
 **Quotation of the Day: As Surge Spreads, No Corner of Nation Is Spared**\
 `Quotation of the Day for Thursday, November 26, 2020.`\
-https://nytimes.com/2020/11/25/todayspaper/quotation-of-the-day-as-surge-spreads-no-corner-of-nation-is-spared.html?searchResultPosition=1
+https://nytimes.com/2020/11/25/todayspaper/quotation-of-the-day-as-surge-spreads-no-corner-of-nation-is-spared.html?searchResultPosition=2
 
 **How Not to Overspend This Black Friday**\
 `Have a list, a budget and some patience.`\
-https://nytimes.com/2020/11/25/smarter-living/how-not-to-overspend-black-friday.html?searchResultPosition=2
+https://nytimes.com/2020/11/25/smarter-living/how-not-to-overspend-black-friday.html?searchResultPosition=3
 
 **The Best Books to Give This Year**\
 `What better way to spread joy than with books? We've rounded up 62 new titles, from thrillers to cookbooks to photography books and more, for every type of reader.`\
-https://nytimes.com/interactive/2020/11/25/books/gifts-for-book-lovers.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/11/25/books/gifts-for-book-lovers.html?searchResultPosition=4
 
 **Sewage may offer early signs of coronavirus outbreaks.**\
 `By Kim Tingley`\
-https://nytimes.com/2020/11/24/science/sewage-may-offer-early-signs-of-coronavirus-outbreaks.html?searchResultPosition=4
+https://nytimes.com/2020/11/24/science/sewage-may-offer-early-signs-of-coronavirus-outbreaks.html?searchResultPosition=5
 
 **Biden’s Cabinet: Who He’s Picked So Far**\
 `The makeup of President-elect Joseph R. Biden Jr.’s inner circle is becoming clearer as the transition to his administration begins.`\
-https://nytimes.com/article/joe-biden-cabinet.html?searchResultPosition=5
+https://nytimes.com/article/joe-biden-cabinet.html?searchResultPosition=6
 
 **Biden Urges Unity: ‘We’re at War With the Virus, Not With One Another’**\
 `In an emotional address, he pleaded with Americans to “hang on” and cited the death of his son to say that he understood the loss in the nation.`\
-https://nytimes.com/2020/11/25/us/politics/biden-address.html?searchResultPosition=6
+https://nytimes.com/2020/11/25/us/politics/biden-address.html?searchResultPosition=7
 
 **James D. Wolfensohn, Who Led the World Bank for 10 Years, Dies at 86**\
 `He was a force on Wall Street before taking the reins of the bank in 1995, then proceeded to shake it up. He did the same at both Carnegie Hall and the Kennedy Center.`\
-https://nytimes.com/2020/11/25/business/economy/james-d-wolfensohn-dead.html?searchResultPosition=7
+https://nytimes.com/2020/11/25/business/economy/james-d-wolfensohn-dead.html?searchResultPosition=8
 
 **A Turkey Recipe for 2020**\
 `How to feel better about this horrible year.`\
-https://nytimes.com/2020/11/25/opinion/turkey-thanksgiving-2020.html?searchResultPosition=8
+https://nytimes.com/2020/11/25/opinion/turkey-thanksgiving-2020.html?searchResultPosition=9
 
 **This Wrongly Convicted Man Spent 25 Thanksgivings in Prison**\
 `This holiday, he says he’s thankful. Are you?`\
-https://nytimes.com/2020/11/25/opinion/christian-pacheco-prison-thanksgiving.html?searchResultPosition=9
-
-**In “This Is Your Time,” Ruby Bridges Urges a New Generation to Keep Fighting**\
-`The trailblazer’s best seller is intended for a middle grade audience, but her message of persistence is relevant to people of all ages.`\
-https://nytimes.com/2020/11/25/books/review/ruby-bridges-this-is-your-time.html?searchResultPosition=10
+https://nytimes.com/2020/11/25/opinion/christian-pacheco-prison-thanksgiving.html?searchResultPosition=10
 
