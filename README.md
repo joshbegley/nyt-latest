@@ -14,8 +14,8 @@ https://nytimes.com/2020/11/25/us/politics/biden-national-security.html?searchRe
 `The rule, which would permit methods including firing squads and electrocution, comes as the administration rushes to execute five more prisoners before President Trump’s term ends.`\
 https://nytimes.com/2020/11/25/us/politics/executions-death-penalty-rules.html?searchResultPosition=4
 
-**Your Thursday Briefing**\
-`Americans prepare for a challenging Thanksgiving.`\
+**Maradona, Covid-19, Macron: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/25/briefing/thanksgiving-covid-macron-islam-maradona.html?searchResultPosition=5
 
 **Two Texas Men Charged With Scheme to Sell 50 Million Nonexistent N95 Masks**\
