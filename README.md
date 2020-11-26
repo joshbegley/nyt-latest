@@ -30,7 +30,7 @@ https://nytimes.com/2020/11/26/sports/freediving-womens-world-record.html?search
 `A spate of new travel insurance policies have begun covering Covid-19, just as many international destinations begin to require it. Here’s what to look for.`\
 https://nytimes.com/2020/11/26/travel/travel-insurance-coronavirus.html?searchResultPosition=8
 
-**I was a Child Refugee. Another War in Ethiopia Is Forcing More Children Into the Camps.**\
+**I Was a Child Refugee. Another War in Ethiopia Is Forcing More Children Into the Camps.**\
 `Abiy Ahmed, the country’s prime minister, has become the protagonist of a familiar story in Africa, which is written in blood by politicians in pursuit of their ideologies and power.`\
 https://nytimes.com/2020/11/26/opinion/ethiopia-tigray-abiy-ahmed.html?searchResultPosition=9
 
