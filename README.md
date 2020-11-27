@@ -6,8 +6,8 @@ https://nytimes.com/interactive/2020/11/26/climate/california-smoke-children-hea
 `Robyn Weintraub offers us a marvelous way to work off our holiday meals.`\
 https://nytimes.com/2020/11/26/crosswords/daily-puzzle-2020-11-27.html?searchResultPosition=2
 
-**Lamar Jackson, Ravens Quarterback, Tests Positive for Coronavirus**\
-`The N.F.L.’s 2019 M.V.P. is among more than a dozen Baltimore players who have tested positive for the virus.`\
+**Lamar Jackson, Ravens Quarterback, Is Said to Test Positive for Coronavirus**\
+`The N.F.L.’s 2019 M.V.P. is among more than a dozen Baltimore players who have reportedly tested positive for the virus.`\
 https://nytimes.com/2020/11/26/sports/lamar-jackson-coronavirus.html?searchResultPosition=3
 
 **Your Friday Briefing**\
