@@ -1,40 +1,40 @@
-**Sotheby’s and Christie’s Look to Luxury as a Coronavirus Antidote**\
-`The world’s two biggest auction houses are selling more watches, jewelry and handbags, but art’s still where the money is.`\
-https://nytimes.com/2020/11/27/arts/design/auction-houses-luxury-sothebys-christies.html?searchResultPosition=1
+**It’s the Winter of Backcountry. Here’s How to Start Safely.**\
+`The pandemic has many people wanting to avoid crowded slopes. Going into the backcountry requires avalanche knowledge or a guide. Here are suggestions for taking part across the United States.`\
+https://nytimes.com/2020/11/27/travel/backcountry-skiing-tours-coronavirus.html?searchResultPosition=1
 
-**A Job for Life, or Not? A Class Divide Deepens in Japan**\
-`Two court rulings threaten to further entrench distinctions in Japan between “regular” workers and the growing ranks of nonregular employees, many of whom are women.`\
-https://nytimes.com/2020/11/27/business/japan-workers.html?searchResultPosition=2
+**‘Tokenized’: Inside Black Workers’ Struggles at the King of Crypto Start-Ups**\
+`Coinbase, the most valuable U.S. cryptocurrency company, has faced many internal complaints about discriminatory treatment.`\
+https://nytimes.com/2020/11/27/technology/coinbase-cryptocurrency-black-employees.html?searchResultPosition=2
 
-**Loose Screws Help Defector Give Korean Guards the Slip**\
-`South Korea said its sensors had malfunctioned, allowing a North Korean to defect undetected, in the military’s most embarrassing border security breach in years.`\
-https://nytimes.com/2020/11/27/world/asia/korea-defector-screws-sensors.html?searchResultPosition=3
+**Her Antenna Is Tuned to the Quietest Voices**\
+`Yu Miri won a National Book Award for “Tokyo Ueno Station,” a novel whose main character is the ghost of a homeless construction worker.`\
+https://nytimes.com/2020/11/27/books/yu-miri-tokyo-ueno-station.html?searchResultPosition=3
 
-**A Mother, Her Son — and Their 1,500-Mile Search for Home**\
-`Millions of people have been displaced by the pandemic. Jessika and her 6-year-old, Sebastián, are among the many who have yet to find a home.`\
-https://nytimes.com/2020/11/27/world/americas/coronavirus-migrants-venezuela.html?searchResultPosition=4
+**The Virus Won’t Stop Evolving When the Vaccine Arrives**\
+`The coronavirus is not a shape shifter like the flu virus, but it could become vaccine resistant over time. That prompts researchers to urge vigilance.`\
+https://nytimes.com/2020/11/27/science/Covid-vaccine-virus-resistance.html?searchResultPosition=4
 
-**Brexit Is Nipping at London’s Role as a Financial Powerhouse**\
-`Britain and the European Union don’t trust each other much, and global banks are caught in the middle.`\
-https://nytimes.com/2020/11/27/business/brexit-london-financial-center.html?searchResultPosition=5
+**Pushed by Pandemic, Amazon Goes on a Hiring Spree Without Equal**\
+`The company has added 427,300 employees in 10 months, bringing its global work force to more than 1.2 million.`\
+https://nytimes.com/2020/11/27/technology/pushed-by-pandemic-amazon-goes-on-a-hiring-spree-without-equal.html?searchResultPosition=5
 
-**Job Interviews Without Interviewers, Products of the Pandemic**\
-`Video responses to set questions, online games that measure a person’s traits and skills: The future of interviews is coming to a wider variety of professions in the pandemic.`\
-https://nytimes.com/2020/11/27/business/video-job-interviews.html?searchResultPosition=6
+**Jailed, Exiled and Silenced: Smothering East Africa’s Political Opposition**\
+`In several countries, entrenched leaders are taking advantage of coronavirus restrictions and a world distracted by the pandemic to clamp down hard on prominent political opponents.`\
+https://nytimes.com/2020/11/27/world/africa/Africa-leaders-suppression.html?searchResultPosition=6
 
-**This Year’s Black Friday Designer Fashion Sales May Not Be What You Think.**\
-`A group of brands and retailers have been trying to reset expectations.`\
-https://nytimes.com/2020/11/27/business/black-friday-designer-fashion-sales.html?searchResultPosition=7
+**Even From the Desert, Danny Lyon Still Speaks to the Streets**\
+`The indefatigable photographer on the struggles of getting his new film to the next generation of activists.`\
+https://nytimes.com/2020/11/27/arts/design/danny-lyon-sncc-photography.html?searchResultPosition=7
 
-**S Korea Agency Says N Korea Executed People, Shut Pyongyang**\
-`North Korean leader Kim Jong Un has ordered at least two people executed, banned fishing at sea and locked down capital Pyongyang as part of frantic efforts to guard against the coronavirus and its economic damage, South Korea’s spy agency told lawmakers Friday.`\
-https://nytimes.com/aponline/2020/11/27/business/ap-as-nkorea-virus-measures-.html?searchResultPosition=8
+**The Exquisite Angst of Applying to College in a Deeply Anxious Year**\
+`The pandemic has changed everything about the stressful admissions process, adding even more strain on students.`\
+https://nytimes.com/2020/11/27/us/college-admissions-coronavirus.html?searchResultPosition=8
 
-**Gift Books for Children (That Adults Will Also Love)**\
-`Upside-down fairy tales, a neon periodic table, the art of Ramona Quimby and more.`\
-https://nytimes.com/2020/11/27/books/review/childrens-holiday-gift-books.html?searchResultPosition=9
+**How the Singer Patty Smyth Spends Her Sundays**\
+`The front woman of the 1980s band Scandal talks about promoting her solo album during a pandemic and her 23-year marriage to the tennis star John McEnroe.`\
+https://nytimes.com/2020/11/27/nyregion/patty-smyth-scandal-john-mcenroe.html?searchResultPosition=9
 
-**‘Black Beauty’ Review: A Melodrama in Need of Rougher Edges**\
-`Set in the present day, this adaptation of the classic children’s novel forgets why the story of a horse surviving the maliciousness of humans has endured for so long.`\
-https://nytimes.com/2020/11/27/movies/black-beauty-review.html?searchResultPosition=10
+**In ‘Your Honor,’ a New Orleans Judge Breaks Bad**\
+`It was the best show idea the writer Peter Moffat had ever heard. Bryan Cranston loved it, too. Their new mini-series asks: How far would you go to protect your child?`\
+https://nytimes.com/2020/11/27/arts/television/your-honor-bryan-cranston-peter-moffat.html?searchResultPosition=10
 
