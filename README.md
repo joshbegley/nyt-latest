@@ -1,40 +1,40 @@
+**The Best of Late Night This Week**\
+`The late-night hosts took the holiday off, and all seemed thankful earlier in the week that there were still plenty of White House antics to discuss.`\
+https://nytimes.com/interactive/2020/11/27/arts/television/best-of-late-night.html?searchResultPosition=1
+
 **Empowered by an Odds-Defying Win, Susan Collins is Ready to Deal**\
 `The senator from Maine has emerged from the toughest re-election battle of her career more influential than ever, and ready to play a crucial deal-making role in a divided Senate.`\
-https://nytimes.com/2020/11/27/us/politics/susan-collins-senate-biden.html?searchResultPosition=1
+https://nytimes.com/2020/11/27/us/politics/susan-collins-senate-biden.html?searchResultPosition=2
 
 **Biden’s Plan for Seniors Is Not Just a Plan for Seniors**\
 `The incoming administration aims to tackle child care, elder care, preschool and more in one ambitious aid program.`\
-https://nytimes.com/2020/11/27/health/home-caregiving-biden-healthcare.html?searchResultPosition=2
+https://nytimes.com/2020/11/27/health/home-caregiving-biden-healthcare.html?searchResultPosition=3
 
 **Ghost Ships**\
 `My sister was my other half until we tacked in different directions, making our own life choices.`\
-https://nytimes.com/2020/11/27/well/family/sisters-relationships.html?searchResultPosition=3
+https://nytimes.com/2020/11/27/well/family/sisters-relationships.html?searchResultPosition=4
 
 **The Weekender**\
 `“Are you OK?” asks Meghan, Duchess of Sussex. The chameleon of leftovers. The legacy of Mayor David Dinkins. And more.`\
-https://nytimes.com/interactive/2020/11/27/briefing/the-weekender.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/11/27/briefing/the-weekender.html?searchResultPosition=5
 
 **What to Cook This Weekend**\
 `Put your Thanksgiving leftovers to work, in touriéres, in a sandwich, in soup, or in a panzanella.`\
-https://nytimes.com/2020/11/27/dining/what-to-cook-this-weekend.html?searchResultPosition=5
+https://nytimes.com/2020/11/27/dining/what-to-cook-this-weekend.html?searchResultPosition=6
 
 **Live Updates: Iran’s Top Nuclear Scientist Killed in Attack, State Media Say**\
 `The scientist, Mohsen Fakhrizadeh, was seen as the force behind Iran’s nuclear weapons program. News reports in Iran say he died after being attacked in a vehicle.`\
-https://nytimes.com/2020/11/27/world/middleeast/mohsen-fakhrizadeh-iran-scientist-killed.html?searchResultPosition=6
+https://nytimes.com/2020/11/27/world/middleeast/mohsen-fakhrizadeh-iran-scientist-killed.html?searchResultPosition=7
 
 **Marching to the Beat of Their Own Drum**\
 `Inspired by this year’s protests against racial injustice, this Derek Fordjour painting reimagines the stars and stripes of the American flag.`\
-https://nytimes.com/2020/11/27/t-magazine/derek-fordjour.html?searchResultPosition=7
+https://nytimes.com/2020/11/27/t-magazine/derek-fordjour.html?searchResultPosition=8
 
 **Trump Gave W.H.O. a List of Demands. Hours Later, He Walked Away.**\
 `When President Trump quit the health organization, he left a list of seven demands on the table. Here they are.`\
-https://nytimes.com/2020/11/27/world/europe/trump-who-tedros-china-virus.html?searchResultPosition=8
+https://nytimes.com/2020/11/27/world/europe/trump-who-tedros-china-virus.html?searchResultPosition=9
 
 **Iranian Diplomat Accused of Plotting to Bomb Dissidents Goes on Trial in Belgium**\
 `Prosecutors say the diplomat, Assadollah Assadi, was carrying out a plan organized by Iran’s intelligence services against an overseas opposition group.`\
-https://nytimes.com/2020/11/27/world/europe/iran-dissidents-bomb-assadi-belgium.html?searchResultPosition=9
-
-**Among the C.D.C.’s higher-risk activities: Black Friday shopping.**\
-`By Sapna Maheshwari`\
-https://nytimes.com/2020/11/27/business/among-the-cdcs-higher-risk-activities-black-friday-shopping.html?searchResultPosition=10
+https://nytimes.com/2020/11/27/world/europe/iran-dissidents-bomb-assadi-belgium.html?searchResultPosition=10
 
