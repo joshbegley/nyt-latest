@@ -1,5 +1,5 @@
-**Lamar Jackson, Ravens Quarterback, Is Sidelined by Team’s Coronavirus Outbreak**\
-`The N.F.L.’s 2019 M.V.P. was among several players who tested positive for the virus on Thursday.`\
+**Lamar Jackson, Ravens Quarterback, Tests Positive for Coronavirus**\
+`The N.F.L.’s 2019 M.V.P. was among more than a dozen team players who have tested positive for the virus.`\
 https://nytimes.com/2020/11/26/sports/lamar-jackson-coronavirus.html?searchResultPosition=1
 
 **Your Friday Briefing**\
