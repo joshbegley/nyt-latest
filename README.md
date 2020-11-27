@@ -8,7 +8,7 @@ https://nytimes.com/2020/11/27/world/europe/trump-who-tedros-china-virus.html?se
 
 **Iranian Diplomat Accused of Plotting to Bomb Dissidents Goes on Trial in Belgium**\
 `Prosecutors say the diplomat, Assadollah Assadi, was carrying out a plan organized by Iran’s intelligence services against an overseas opposition group.`\
-https://nytimes.com/2020/11/27/world/europe/Iran-dissidents-bomb-assadi-Belgium.html?searchResultPosition=3
+https://nytimes.com/2020/11/27/world/europe/iran-dissidents-bomb-assadi-belgium.html?searchResultPosition=3
 
 **Among the C.D.C.’s higher-risk activities: Black Friday shopping.**\
 `By Sapna Maheshwari`\
