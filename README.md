@@ -1,5 +1,5 @@
-**Loose Screws Allowed Defector to Slip Over Korean Border Undetected**\
-`South Korea said its sensors had malfunctioned, in the military’s most embarrassing border security breach in years.`\
+**Loose Screws Help Defector Give Korean Guards the Slip**\
+`South Korea said its sensors had malfunctioned, allowing a North Korean to defect undetected, in the military’s most embarrassing border security breach in years.`\
 https://nytimes.com/2020/11/27/world/asia/korea-defector-screws-sensors.html?searchResultPosition=1
 
 **A Mother, Her Son — and Their 1,500-Mile Search for Home**\
