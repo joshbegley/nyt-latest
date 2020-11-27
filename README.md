@@ -26,7 +26,7 @@ https://nytimes.com/2020/11/27/climate/epa-trump-biden.html?searchResultPosition
 `Advice for getting back into the work force at 60, dealing with shame and co-workers, and how to cope with losing all motivation for working from home.`\
 https://nytimes.com/2020/11/27/business/work-friend-advice-roxane-gay.html?searchResultPosition=7
 
-**Covid Overload: U.S. Hospitals Are Stretched Way Too Thin**\
+**Covid Overload: U.S. Hospitals Are Running Out of Beds for Patients**\
 `As the coronavirus pandemic surges across the country, hospitals are facing a crisis-level shortage of beds and staff to provide adequate care for patients.`\
 https://nytimes.com/2020/11/27/health/covid-hospitals-overload.html?searchResultPosition=8
 
