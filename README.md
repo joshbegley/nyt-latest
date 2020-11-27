@@ -30,8 +30,8 @@ https://nytimes.com/2020/11/26/crosswords/daily-puzzle-2020-11-27.html?searchRes
 `The N.F.L.’s 2019 M.V.P. is among more than a dozen Baltimore players who have reportedly tested positive for the virus.`\
 https://nytimes.com/2020/11/26/sports/lamar-jackson-coronavirus.html?searchResultPosition=8
 
-**Your Friday Briefing**\
-`Tensions flare over England’s virus restrictions.`\
+**England, Covid-19, Tigray: Your Friday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/26/briefing/england-restrictions-eu-migrants-ethiopia.html?searchResultPosition=9
 
 **U.N. Panel: Technology in Policing Can Reinforce Racial Bias**\
