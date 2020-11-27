@@ -12,7 +12,7 @@ https://nytimes.com/2020/11/27/dining/what-to-cook-this-weekend.html?searchResul
 
 **Live Updates: Iran’s Top Nuclear Scientist Killed in Attack, State Media Say**\
 `The scientist, Mohsen Fakhrizadeh, was seen as the force behind Iran’s nuclear weapons program. News reports in Iran say he died after being attacked in a vehicle.`\
-https://nytimes.com/2020/11/27/world/middleeast/iran-scientists-killed.html?searchResultPosition=4
+https://nytimes.com/2020/11/27/world/middleeast/mohsen-fakhrizade-iran-scientists-killed.html?searchResultPosition=4
 
 **Marching to the Beat of Their Own Drum**\
 `Inspired by this year’s protests against racial injustice, this Derek Fordjour painting reimagines the stars and stripes of the American flag.`\
