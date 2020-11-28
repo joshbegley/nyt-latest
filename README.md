@@ -23,7 +23,7 @@ https://nytimes.com/2020/11/28/us/politics/biden-westexec.html?searchResultPosit
 https://nytimes.com/2020/11/28/sunday-review/pandemic-habits-routine-brain.html?searchResultPosition=6
 
 **Tony Hsieh, Longtime Chief of Zappos, Dies at 46**\
-`He stepped down from the online shoe retailer and assisted in revitalizing downtown Las Vegas. He died of injuries suffered in a fire.`\
+`He stepped down from the online shoe retailer in August and assisted in revitalizing downtown Las Vegas. He died of injuries suffered in a fire.`\
 https://nytimes.com/2020/11/28/obituaries/tony-hsieh-dead.html?searchResultPosition=7
 
 **47 Recipes for Thanksgiving Leftovers**\
