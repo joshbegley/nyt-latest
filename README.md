@@ -1,5 +1,5 @@
 **Protests Over Security Bill in France Draw Tens of Thousands**\
-`Demonstrators accused the government of drifting toward repressive policies.`\
+`Demonstrators accused the government of drifting toward repressive policies with a measure that would restrict the sharing images of police officers and strengthen government surveillance tools.`\
 https://nytimes.com/2020/11/28/world/europe/france-protests-security-bill.html?searchResultPosition=1
 
 **Israel’s Pick to Head Holocaust Memorial Stirs International Uproar**\
