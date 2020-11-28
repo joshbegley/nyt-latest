@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/28/world/middleeast/iran-mohsen-fakhrizadeh-nuclear.html?searchResultPosition=1
 
 **‘From the Front Lines,’ Stories of Resistance and a Movement for Black Lives**\
-`In an interview, Saidu Tejan-Thomas, the creator of the podcast, Resistance, talked about the movement unfolding in Nigeria, with regular demonstrations against police brutality.`\
+`In an interview, Saidu Tejan-Thomas Jr., the creator of the podcast, Resistance, talked about the movement unfolding in Nigeria, with regular demonstrations against police brutality.`\
 https://nytimes.com/2020/11/28/us/resistance-podcast-race-related.html?searchResultPosition=2
 
 **A Week in the Life of a Baltimore School Getting Back to Class**\
