@@ -1,4 +1,4 @@
-**Sarah Fuller, With a Kickoff, Becomes First Woman to Play Football in Power 5 Game**\
+**Sarah Fuller, With a Kickoff, Is the First Woman to Play Football in a Power 5 Game**\
 `Fuller, a goalkeeper for Vanderbilt’s women’s soccer team, was asked to play because the football team’s kicking unit could not practice because of the coronavirus.`\
 https://nytimes.com/2020/11/28/sports/sarah-fuller-woman-kicker-vanderbilt.html?searchResultPosition=1
 
