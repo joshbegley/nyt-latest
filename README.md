@@ -1,40 +1,40 @@
-**As Hiking Surges During the Pandemic, So Do Injuries**\
-`Novice hikers and climbers have flocked to the outdoors, but some are unprepared for the dangers on the trails.`\
-https://nytimes.com/2020/11/28/sports/covid-hiking-parks-trails.html?searchResultPosition=1
+**How to Build a Guitar**\
+`For The New York Times for Kids, the photographer Christopher Payne visited the Martin Guitars factory to see how humans and machines make music.`\
+https://nytimes.com/2020/11/28/magazine/martin-guitar-factory.html?searchResultPosition=1
 
-**How Democrats Suffered Crushing Down-Ballot Losses Across America**\
-`In statehouse races, suburban voters’ disgust with President Trump failed to translate into a rebuke of other Republicans, ensuring the party’s grip on partisan mapmaking.`\
-https://nytimes.com/2020/11/28/us/politics/democrats-republicans-state-legislatures.html?searchResultPosition=2
+**Pedophile Scandal Can’t Crack the Closed Circles of Literary France**\
+`The scandal surrounding the writer Gabriel Matzneff was not limited to his pedophilia. It also opened a window on the entrenched and clubby nature of many of France’s elite institutions.`\
+https://nytimes.com/2020/11/28/world/europe/france-literary-prizes-matzneff.html?searchResultPosition=2
 
-**Ohio State Cancels Football Game Against Illinois Amid Virus Outbreak**\
-`The university announced the cancellation hours after reporting that the coach of the fourth-ranked Buckeyes, Ryan Day, had tested positive for the coronavirus.`\
-https://nytimes.com/2020/11/28/sports/ncaafootball/ohio-state-football-cancel-coronavirus.html?searchResultPosition=3
+**Hollywood’s Obituary, the Sequel. Now Streaming.**\
+`In the 110-year history of the American film industry, never has so much upheaval arrived so quickly and on so many fronts.`\
+https://nytimes.com/2020/11/28/business/media/hollywood-coronavirus-streaming.html?searchResultPosition=3
 
-**What to Watch When Mike Tyson Fights Roy Jones Jr.**\
-`Is this for real? Yes. Sort of. Just expect more spectacle than in high-level boxing.`\
-https://nytimes.com/2020/11/28/sports/mike-tyson-roy-jones-jr.html?searchResultPosition=4
+**A.A. to Zoom, Substance Abuse Treatment Goes Online**\
+`It began as a stopgap way to get through the pandemic, but both participants and providers say virtual sessions have some clear advantages and will likely become a permanent part of recovery.`\
+https://nytimes.com/2020/11/28/health/covid-substance-abuse-treatment.html?searchResultPosition=4
 
-**Los Angeles Bans Almost All Public Gatherings to Stop Virus Surge**\
-`Los Angeles County is now seeing almost 5,000 new virus cases a day. The order, which even restricts functions in private homes, takes effect Monday.`\
-https://nytimes.com/2020/11/27/us/los-angeles-bans-almost-all-public-gatherings-to-stop-virus-surge.html?searchResultPosition=5
+**Top Contenders for Biden’s Cabinet Draw Fire From All Sides**\
+`Lists of names of those the president-elect is said to be considering are flying across Washington, prompting lawmakers and interest groups to raise questions about some top contenders.`\
+https://nytimes.com/2020/11/28/us/politics/biden-cabinet.html?searchResultPosition=5
 
-**Beijing Takes Its South China Sea Strategy to the Himalayas**\
-`China built a village in territory also claimed by the kingdom of Bhutan, echoing its aggressive tactics at the border with India and in places much farther away.`\
-https://nytimes.com/2020/11/27/world/asia/china-bhutan-india-border.html?searchResultPosition=6
+**Sometimes, It’s OK to Bark in Meetings**\
+`Some of our favorite new colleagues are four-legged and furry.`\
+https://nytimes.com/2020/11/28/insider/pandemic-pets-adoptions.html?searchResultPosition=6
 
-**Macron Says Images of French Police Beating Black Man ‘Shame Us’**\
-`President Emmanuel Macron called for reaffirming “the link of confidence that should naturally exist between the French and those who protect them.”`\
-https://nytimes.com/2020/11/27/world/europe/macron-france-police-michel-zecler.html?searchResultPosition=7
+**What We Can Learn From Solitude**\
+`Contemporary hermits are reaching out to people struggling with isolation. Their message: Go inward, and get outside.`\
+https://nytimes.com/2020/11/28/style/self-care/hermits-solitude.html?searchResultPosition=7
 
-**Says Too Much**\
-`Nam Jin Yoon’s Saturday puzzle rolls off the tongue.`\
-https://nytimes.com/2020/11/27/crosswords/daily-puzzle-2020-11-28.html?searchResultPosition=8
+**Arizona Settles In to Life as a ‘Magenta’ State**\
+`Democrats made historic inroads. But it’s a deeply divided place, and some say a “blood bath” is on the horizon in 2022.`\
+https://nytimes.com/2020/11/28/us/politics/arizona-settles-in-to-life-as-a-magenta-state.html?searchResultPosition=8
 
-**Quotation of the Day: Scathing Ruling Sinks President in Pennsylvania**\
-`Quotation of the Day for Saturday, November 28, 2020.`\
-https://nytimes.com/2020/11/27/todayspaper/quotation-of-the-day-scathing-ruling-sinks-president-in-pennsylvania.html?searchResultPosition=9
+**The World’s Most Glamorous Quarantine Project**\
+`While you’ve been binge-watching Netflix and peering anxiously at your sourdough, John Hatleberg has been working on replicas of the Hope Diamond and its earlier incarnations for the Smithsonian.`\
+https://nytimes.com/2020/11/28/style/hope-diamond-story-smithsonian-copy.html?searchResultPosition=9
 
-**Corrections: Nov. 28, 2020**\
-`Corrections that appeared in print on Saturday, Nov. 28, 2020.`\
-https://nytimes.com/2020/11/27/pageoneplus/corrections-nov-28-2020.html?searchResultPosition=10
+**My Neighbor’s Dogs Are Driving Me Crazy. What Can I Do?**\
+`Incessant barking is the top complaint to animal-control centers. As always, it’s better to start with a personal approach.`\
+https://nytimes.com/2020/11/28/realestate/barking-dogs-causing-noise.html?searchResultPosition=10
 
