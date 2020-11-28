@@ -1,6 +1,6 @@
-**Los Angeles Bars Almost All Public Gatherings to Stop Virus Surge**\
+**Los Angeles Bans Almost All Public Gatherings to Stop Virus Surge**\
 `Los Angeles County is now seeing almost 5,000 new virus cases a day. The order, which even restricts functions in private homes, takes effect Monday.`\
-https://nytimes.com/2020/11/27/us/los-angeles-bars-almost-all-public-gatherings-to-stop-virus-surge.html?searchResultPosition=1
+https://nytimes.com/2020/11/27/us/los-angeles-bans-almost-all-public-gatherings-to-stop-virus-surge.html?searchResultPosition=1
 
 **Beijing Takes Its South China Sea Strategy to the Himalayas**\
 `China built a village in territory also claimed by the kingdom of Bhutan, echoing its aggressive tactics at the border with India and in places much farther away.`\
