@@ -4,7 +4,7 @@ https://nytimes.com/2020/11/28/us/Biden-cat-dogs-German-shepherd.html?searchResu
 
 **Brazen Killings Expose Iran’s Vulnerabilities as It Struggles to Respond**\
 `After suffering a string of audacious attacks, Tehran faces an agonizing choice: embracing hard-liner demands for swift retaliation, or trying to make a fresh start with the Biden administration.`\
-https://nytimes.com/2020/11/28/international-home/iran-assassinations-nuclear-israel.html?searchResultPosition=2
+https://nytimes.com/2020/11/28/world/middleeast/iran-assassinations-nuclear-israel.html?searchResultPosition=2
 
 **How Tony Hsieh Tried to Single-Handedly Transform Downtown Las Vegas**\
 `Mr. Hsieh, who died at 46, tried to revitalize a corner of the city by attracting other entrepreneurs.`\
