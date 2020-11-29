@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/29/world/europe/uk-lockdown-sports-women.html?searchResultPosition=1
 
 **Should Isolation Periods Be Shorter for People With Covid-19?**\
-`Patients usually are most infectious two days before symptoms begin and for five days after, a new analysis finds.`\
+`Patients are usually most infectious two days before symptoms begin and for five days after, a new analysis finds.`\
 https://nytimes.com/2020/11/29/health/should-covid-19-isolation-periods-be-shorter.html?searchResultPosition=2
 
 **One Seat, Competing Pressures as Newsom Considers Senate Pick**\
