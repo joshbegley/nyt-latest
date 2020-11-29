@@ -23,7 +23,7 @@ https://nytimes.com/2020/11/29/business/the-week-in-business-wall-street-record.
 https://nytimes.com/2020/11/29/briefing/coronavirus-deaths-joe-biden-holiday-windows.html?searchResultPosition=6
 
 **Dave Prowse, Man Behind Darth Vader’s Mask, Is Dead at 85**\
-`Mr. Prowse went from being a weight lifting champion in Britain to helping portray one of the most iconic villains in movie history. But his voice did not make the edit.`\
+`Mr. Prowse went from being a weight lifting champion in Britain to helping portray one of the most memorable villains in movie history. But his voice did not make the edit.`\
 https://nytimes.com/2020/11/29/movies/darth-vader-dave-prowse-dead.html?searchResultPosition=7
 
 **The Lost Days That Made Bergamo a Coronavirus Tragedy**\
