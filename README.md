@@ -6,9 +6,9 @@ https://nytimes.com/2020/11/29/briefing/japan-skorea-hongkong-iran-china.html?se
 `The opportunity to stage “Black Magic” in Times Square “was a great proposition to do something transgressive,” said the artist Rashaad Newsome.`\
 https://nytimes.com/2020/11/29/arts/design/rashaad-newsome-times-square.html?searchResultPosition=2
 
-**Recount in two Wisconsin counties reaffirms Biden’s victory.**\
+**Recount in two Wisconsin counties reinforces Biden’s victory.**\
 `The conclusion of the recount adds yet another loss in the Trump campaign’s effort to upend Mr. Biden’s win.`\
-https://nytimes.com/2020/11/29/us/politics/recount-in-two-wisconsin-counties-reaffirms-bidens-victory.html?searchResultPosition=3
+https://nytimes.com/2020/11/29/us/politics/recount-in-two-wisconsin-counties-reinforces-bidens-victory.html?searchResultPosition=3
 
 **A Theater’s ‘Last Gasp’ Doesn’t Look Like the End**\
 `As Split Britches, Peggy Shaw and Lois Weaver have made off-kilter theater for 40 years. Memory loss, and a pandemic, haven’t stopped their creating.`\
