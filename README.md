@@ -6,13 +6,13 @@ https://nytimes.com/2020/11/29/dining/what-to-cook-this-week.html?searchResultPo
 `Penumbral eclipses are subtle, but there are good reasons to try to notice one.`\
 https://nytimes.com/2020/11/29/science/lunar-eclipse-moon.html?searchResultPosition=2
 
-**Homes That Sold for Around $1.5 Million**\
-`Recent residential sales in New York City and the region.`\
-https://nytimes.com/2020/11/29/realestate/homes-that-sold-for-around-1-5-million.html?searchResultPosition=3
-
 **The Beat at the Heart of ‘Lovers Rock’**\
 `Steve McQueen’s new “Small Axe” anthology includes a film that centers on an offshoot of reggae that represented big shifts in the music, and in Black British culture.`\
-https://nytimes.com/2020/11/29/arts/music/lovers-rock-small-axe.html?searchResultPosition=4
+https://nytimes.com/2020/11/29/arts/music/lovers-rock-small-axe.html?searchResultPosition=3
+
+**Homes That Sold for Around $1.5 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2020/11/29/realestate/homes-that-sold-for-around-1-5-million.html?searchResultPosition=4
 
 **‘The Lessons of Nuremberg Must Be Continually Relearned’**\
 `Former Senator Christopher J. Dodd writes of his father’s role at the World War II military tribunal, and the lessons that can be drawn today.`\
