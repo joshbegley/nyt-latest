@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/28/opinion/iran-nuclear-scientist-killed.html?searchResultPosition=1
 
 **Virus Disruptions Hit 49ers and Broncos, as N.F.L. Crisis Grows**\
-`The 49ers would need to train away for the headquarters for three weeks under an order from local health officials. The Broncos have none of their quarterbacks available for their game on Sunday.`\
+`The 49ers would need to train away from their headquarters for three weeks under an order from local health officials. The Broncos have none of their quarterbacks available for their game on Sunday.`\
 https://nytimes.com/2020/11/28/sports/football/coronavirus-49ers-ravens-santa-clara-county.html?searchResultPosition=2
 
 **Quotation of the Day: Drugs, Guns and Cash: This Is ‘Cartel TikTok’**\
