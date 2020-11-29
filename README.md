@@ -3,7 +3,7 @@
 https://nytimes.com/2020/11/29/world/americas/diego-maradona-doctor.html?searchResultPosition=1
 
 **New York City Will Reopen Elementary Schools and Phase Out Hybrid Learning**\
-`Mayor Bill de Blasio had faced criticism that in responding to the pandemic, he was prioritizing activities like indoor dining over the well-being of the city's children.`\
+`Mayor Bill de Blasio announced an abrupt shift in managing schools during the pandemic. Officials had faced criticism that they prioritized activities like indoor dining over the well-being of children.`\
 https://nytimes.com/2020/11/29/nyregion/schools-reopening-partially.html?searchResultPosition=2
 
 **Saweetie, City Girls and the Female Rapper Renaissance**\
