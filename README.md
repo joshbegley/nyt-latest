@@ -26,8 +26,8 @@ https://nytimes.com/2020/11/29/opinion/iran-biden-nuclear-scientist.html?searchR
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2020/11/29/learning/whats-going-on-in-this-picture.html?searchResultPosition=7
 
-**Jets’ Offense Sputters in Darnold’s Return**\
-`The offense failed to take advantage of two Miami turnovers and did not score a touchdown in the team’s 11th consecutive loss of the season.`\
+**Jets’ Offense Sputters in Sam Darnold’s Return**\
+`Miami quarterback Ryan Fitzpatrick stepped in to beat one of his many former teams, and the Jets (0-11), in Darnold’s return from a shoulder injury, did not score a touchdown.`\
 https://nytimes.com/2020/11/29/sports/jets-dolphins-nfl-week-12.html?searchResultPosition=8
 
 **A Season of Footnotes Limps to Its Conclusion**\
