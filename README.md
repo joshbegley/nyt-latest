@@ -22,9 +22,9 @@ https://nytimes.com/2020/11/29/us/politics/biden-cabinet-tanden-rouse-adeyemo.ht
 `Biden wants to reinstate the nuclear deal, but first he must confront the new Middle East.`\
 https://nytimes.com/2020/11/29/opinion/iran-biden-nuclear-scientist.html?searchResultPosition=6
 
-**What’s Going On in This Picture? |**\
+**What’s Going On in This Picture? | Nov. 30, 2020**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2020/11/29/learning/whats-going-on-in-this-picture.html?searchResultPosition=7
+https://nytimes.com/2020/11/29/learning/whats-going-on-in-this-picture-nov-30-2020.html?searchResultPosition=7
 
 **Jets’ Offense Sputters in Sam Darnold’s Return**\
 `Miami quarterback Ryan Fitzpatrick stepped in to beat one of his many former teams, and the Jets (0-11), in Darnold’s return from a shoulder injury, did not score a touchdown.`\
