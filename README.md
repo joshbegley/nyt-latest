@@ -7,7 +7,7 @@ https://nytimes.com/2020/11/28/us/Biden-cat-dogs-German-shepherd.html?searchResu
 https://nytimes.com/2020/11/28/international-home/iran-assassinations-nuclear-israel.html?searchResultPosition=2
 
 **How Tony Hsieh Tried to Single-Handedly Transform Downtown Las Vegas**\
-`Mr. Hsieh, who died at 46, tried to revitalize a corner of the city by attracting others entrepreneurs.`\
+`Mr. Hsieh, who died at 46, tried to revitalize a corner of the city by attracting other entrepreneurs.`\
 https://nytimes.com/2020/11/28/us/tony-hsieh-las-vegas.html?searchResultPosition=3
 
 **Six-Pack**\
