@@ -14,7 +14,7 @@ https://nytimes.com/2020/11/30/sports/olympics/gymnastics-abuse-laurie-hernandez
 `This word has appeared in 46 articles on NYTimes.com in the past year.`\
 https://nytimes.com/2020/11/30/learning/word-quiz-expedient.html?searchResultPosition=4
 
-**New Zealand Charges 13 Parties Over Deadly White Island Volcano Eruption**\
+**New Zealand Announces Charges in Deadly White Island Volcano Eruption**\
 `Government agencies and individuals were among those charged over the roles in the 2019 disaster, which killed 22 people.`\
 https://nytimes.com/2020/11/30/world/asia/new-zealand-white-island-eruption-volcano.html?searchResultPosition=5
 
