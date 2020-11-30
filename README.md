@@ -27,7 +27,7 @@ https://nytimes.com/paidpost/the-home-depot/the-home-depot-decor/from-house-to-h
 https://nytimes.com/2020/11/30/us/covid-restrictions-california.html?searchResultPosition=7
 
 **Brady Puts Up a Fight, but It’s Mahomes and the Chiefs’ Day**\
-`Tyreek Hill terrorized the Buccaneers with 13 receptions for 269 receiving yards and three touchdowns.`\
+`Tyreek Hill had a career day against the Buccaneers with 13 receptions for 269 receiving yards and three touchdowns.`\
 https://nytimes.com/2020/11/30/sports/buccaneers-chiefs-tom-brady-patrick-mahomes.html?searchResultPosition=8
 
 **Noah Hawley Isn’t Done with ‘Fargo’**\
