@@ -14,8 +14,8 @@ https://nytimes.com/interactive/2020/11/30/learning/Grenada-Geography-Quiz.html?
 `Middle and high schools will remain closed for now, said Mayor de Blasio, who signaled  changes in managing the system during the pandemic.`\
 https://nytimes.com/2020/11/30/nyregion/elementary-schools-reopening-covid-nyc.html?searchResultPosition=4
 
-**When Does an Enemy’s Cultural Heritage Become One’s Own?**\
-`The cease-fire in Nagorno-Karabakh may offer new hope for the preservation of threatened monuments everywhere.`\
+**When an Enemy’s Cultural Heritage Becomes One’s Own**\
+`Could the cease-fire in Nagorno-Karabakh offer new hope for the preservation of threatened monuments everywhere?`\
 https://nytimes.com/2020/11/30/opinion/armenia-azerbaijan-monuments.html?searchResultPosition=5
 
 **Hidden in Plain Sight: The Ghosts of Segregation**\
