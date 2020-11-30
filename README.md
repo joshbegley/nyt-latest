@@ -26,15 +26,15 @@ https://nytimes.com/2020/11/30/business/dealbook/salesforce-slack-work-from-home
 `The post, with a doctored photograph showing an Australian soldier with a knife to the throat of an Afghan child, sent relations between the two countries to a new low.`\
 https://nytimes.com/2020/11/30/world/australia/china-tweet-soldier.html?searchResultPosition=7
 
-**S&P Global agrees to buy IHS Markit, a financial data powerhouse, for $44 billion.**\
-`IHS Markit itself was the product of a 2016 merger between IHS, which was founded in 1959 as a repository for aerospace data, and Markit, which was created in 2003 as a`\
-https://nytimes.com/2020/11/30/business/sp-global-agrees-to-buy-ihs-markit-a-financial-data-powerhouse-for-44-billion.html?searchResultPosition=8
-
 **Biden Moves on to Economic Hires**\
 `Some of his foreign policy choices present an ethics test: This is your morning tip sheet.`\
-https://nytimes.com/2020/11/30/us/politics/biden-economic-appointments.html?searchResultPosition=9
+https://nytimes.com/2020/11/30/us/politics/biden-economic-appointments.html?searchResultPosition=8
 
 **Moderna Applies for Emergency F.D.A. Approval for Its Coronavirus Vaccine**\
 `The first shots could be given as early as Dec. 21, if authorization is granted.`\
-https://nytimes.com/2020/11/30/health/covid-vaccine-moderna.html?searchResultPosition=10
+https://nytimes.com/2020/11/30/health/covid-vaccine-moderna.html?searchResultPosition=9
+
+**Most Republicans Say They Doubt the Election. How Many Really Mean It?**\
+`Survey research tries to sort out the typical partisan reactions to a loss from an erosion of trust that may be more lasting.`\
+https://nytimes.com/2020/11/30/upshot/republican-voters-election-doubts.html?searchResultPosition=10
 
