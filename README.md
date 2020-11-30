@@ -14,7 +14,7 @@ https://nytimes.com/2020/11/30/us/aidan-ellison-oregon-shooting.html?searchResul
 `A family tradition inspired Yewande Komolafe’s spiced and steeped fruit mix, which you could add to cocktails and scones, or serve alongside braised lamb.`\
 https://nytimes.com/2020/11/30/dining/brandied-fruit-recipe.html?searchResultPosition=4
 
-**Why School Districts Have Decided to Bring Younger Children Back First**\
+**Why School Districts Are Bringing Back Younger Children First**\
 `New York City became the highest-profile example when Mayor de Blasio said elementary schools would reopen starting Dec. 7.`\
 https://nytimes.com/2020/11/30/nyregion/elementary-schools-reopening.html?searchResultPosition=5
 
