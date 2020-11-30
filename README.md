@@ -1,5 +1,5 @@
 **Australia Demands Apology After Chinese Official’s ‘Repugnant’ Tweet**\
-`Prime Minister Scott Morrison of Australia condemned a Chinese official’s tweet that showed an Australian soldier with a knife to the throat of an Afghan child, labeling it “disgusting slur” and demanded an apology.`\
+`Prime Minister Scott Morrison of Australia condemned a Chinese official’s tweet that showed an Australian soldier with a knife to the throat of an Afghan child, labeling it a “disgusting slur” and demanded an apology.`\
 https://nytimes.com/video/world/australia/100000007478946/australia-apology-china-twitter.html?searchResultPosition=1
 
 **Angry Farmers Choke India’s Capital in Giant Demonstrations**\
