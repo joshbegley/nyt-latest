@@ -1,40 +1,40 @@
+**S&P Global agrees to buy IHS Markit, a financial data powerhouse, for $44 billion.**\
+`IHS Markit itself was the product of a 2016 merger between IHS, which was founded in 1959 as a repository for aerospace data, and Markit, which was created in 2003 as a`\
+https://nytimes.com/2020/11/30/business/sp-global-agrees-to-buy-ihs-markit-a-financial-data-powerhouse-for-44-billion.html?searchResultPosition=1
+
+**Biden Moves on to Economic Hires**\
+`Some of his foreign policy choices present an ethics test: This is your morning tip sheet.`\
+https://nytimes.com/2020/11/30/us/politics/biden-economic-appointments.html?searchResultPosition=2
+
+**Moderna Applies for Emergency F.D.A. Approval for Its Coronavirus Vaccine**\
+`The first shots could be given as early as Dec. 21, if authorization is granted.`\
+https://nytimes.com/2020/11/30/health/covid-vaccine-moderna.html?searchResultPosition=3
+
+**Most Republicans Say They Doubt the Election. How Many Really Mean It?**\
+`Survey research tries to sort out the typical partisan reactions to a loss from an erosion of trust that may be more lasting.`\
+https://nytimes.com/2020/11/30/upshot/republican-voters-election-doubts.html?searchResultPosition=4
+
 **The Path of Virus Deaths**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/11/30/briefing/biden-foot-bill-de-blasio-schools.html?searchResultPosition=1
+https://nytimes.com/2020/11/30/briefing/biden-foot-bill-de-blasio-schools.html?searchResultPosition=5
 
 **When and How You’ll Get a Vaccine**\
 `Multiple inoculations for the coronavirus are making their way through the approval process. Here’s what we know about the plan for their distribution.`\
-https://nytimes.com/2020/11/30/podcasts/the-daily/covid-vaccine.html?searchResultPosition=2
+https://nytimes.com/2020/11/30/podcasts/the-daily/covid-vaccine.html?searchResultPosition=6
 
 **On TikTok, Fans Are Making Their Own ‘Ratatouille’ Musical**\
 `Thousands of TikTok users, including musical theater professionals, are creating a Broadway-style adaptation of the animated Disney film about a rat with culinary aspirations.`\
-https://nytimes.com/2020/11/30/arts/tiktok-disney-ratatouille-musical.html?searchResultPosition=3
+https://nytimes.com/2020/11/30/arts/tiktok-disney-ratatouille-musical.html?searchResultPosition=7
 
 **How Much Do You Know About Grenada?**\
 `Can you find Grenada on a map? What else do you know about this island nation with a population of about 112,500 people?`\
-https://nytimes.com/interactive/2020/11/30/learning/Grenada-Geography-Quiz.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/11/30/learning/Grenada-Geography-Quiz.html?searchResultPosition=8
 
 **New York Shifts Its Thinking and Reopens Elementary Schools**\
 `Middle and high schools will remain closed for now, said Mayor de Blasio, who signaled  changes in managing the system during the pandemic.`\
-https://nytimes.com/2020/11/30/nyregion/elementary-schools-reopening-covid-nyc.html?searchResultPosition=5
+https://nytimes.com/2020/11/30/nyregion/elementary-schools-reopening-covid-nyc.html?searchResultPosition=9
 
 **When an Enemy’s Cultural Heritage Becomes One’s Own**\
 `Could the cease-fire in Nagorno-Karabakh offer new hope for the preservation of threatened monuments everywhere?`\
-https://nytimes.com/2020/11/30/opinion/armenia-azerbaijan-monuments.html?searchResultPosition=6
-
-**Hidden in Plain Sight: The Ghosts of Segregation**\
-`Vestiges of racism and oppression, from bricked-over segregated entrances to the forgotten sites of racial violence, still permeate much of America’s built environment.`\
-https://nytimes.com/2020/11/30/travel/ghosts-of-segregation.html?searchResultPosition=7
-
-**Teaching in the Pandemic: ‘This Is Not Sustainable’**\
-`Teacher burnout could erode instructional quality, stymie working parents and hinder the reopening of the economy.`\
-https://nytimes.com/2020/11/30/us/teachers-remote-learning-burnout.html?searchResultPosition=8
-
-**Barbra Streisand Is, as Ever, Firmly in Control**\
-`Since her breakout in the 1960s, she’s been able to convince the world around her to listen — not by chasing trends but by remaining always and fully herself.`\
-https://nytimes.com/2020/11/30/t-magazine/barbra-streisand.html?searchResultPosition=9
-
-**Can a Start-Up Mentality Save Small Businesses?**\
-`Small-business owners are having to learn approaches like “fail fast,” course-correcting and going virtual — and some are succeeding.`\
-https://nytimes.com/2020/11/30/business/smallbusiness/small-business-startups-fail-fast.html?searchResultPosition=10
+https://nytimes.com/2020/11/30/opinion/armenia-azerbaijan-monuments.html?searchResultPosition=10
 
