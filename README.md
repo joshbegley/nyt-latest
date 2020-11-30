@@ -26,8 +26,8 @@ https://nytimes.com/interactive/2020/11/29/sports/hockey/nhl-lake-hockey-elias-p
 `No corrections appeared in print on Monday, Nov. 30, 2020.`\
 https://nytimes.com/2020/11/29/pageoneplus/no-corrections-nov-30-2020.html?searchResultPosition=7
 
-**Your Monday Briefing**\
-`Bergamo’s needlessly high death toll.`\
+**Coronavirus, Tigray, France: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/11/29/briefing/coronavirus-tigray-gabriel-matzneff.html?searchResultPosition=8
 
 **A New Outbreak Leaves a Broncos Rookie in an Awkward Position: Quarterback**\
