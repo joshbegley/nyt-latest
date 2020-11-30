@@ -6,13 +6,13 @@ https://nytimes.com/2020/11/30/learning/word-quiz-expedient.html?searchResultPos
 `Government agencies and individuals were among those charged over the roles in the 2019 disaster, which killed 22 people.`\
 https://nytimes.com/2020/11/30/world/asia/new-zealand-white-island-eruption-volcano.html?searchResultPosition=2
 
-**What’s on TV This Week: ‘Your Honor’ and ‘The Disney Holiday Singalong’**\
-`Bryan Cranston stars in a new mini-series on Showtime. And singers including Leslie Odom Jr. and Katy Perry appear in a Disney special.`\
-https://nytimes.com/2020/11/30/arts/television/your-honor-the-disney-holiday-singalong.html?searchResultPosition=3
-
 **1918 Germany Has a Warning for America**\
 `Donald Trump’s “Stop the Steal” campaign recalls one of the most disastrous political lies of the 20th century.`\
-https://nytimes.com/2020/11/30/opinion/trump-conspiracy-germany-1918.html?searchResultPosition=4
+https://nytimes.com/2020/11/30/opinion/trump-conspiracy-germany-1918.html?searchResultPosition=3
+
+**What’s on TV This Week: ‘Your Honor’ and ‘The Disney Holiday Singalong’**\
+`Bryan Cranston stars in a new mini-series on Showtime. And singers including Leslie Odom Jr. and Katy Perry appear in a Disney special.`\
+https://nytimes.com/2020/11/30/arts/television/your-honor-the-disney-holiday-singalong.html?searchResultPosition=4
 
 **Embracing My Inner Bob Ross**\
 `While covering an exhibit of the famous PBS artist, I replaced my notebook with an easel and experienced even more of the joy of reporting.`\
