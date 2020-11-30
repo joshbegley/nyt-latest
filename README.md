@@ -6,7 +6,7 @@ https://nytimes.com/2020/11/30/us/politics/wisconsin-arizona-election-results.ht
 `He needs to make the G.O.P. pay a price for obstruction.`\
 https://nytimes.com/2020/11/30/opinion/biden-republican-party.html?searchResultPosition=2
 
-**Black Teenager Is Shot in Argument Over Music, Police Say**\
+**Black Teenager Is Fatally Shot in Argument Over Music, Police Say**\
 `The authorities in Ashland, Ore., said they were investigating whether the killing of Aiden Ellison after a confrontation in a hotel parking lot had been “driven by race.”`\
 https://nytimes.com/2020/11/30/us/aidan-ellison-oregon-shooting.html?searchResultPosition=3
 
