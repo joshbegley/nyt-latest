@@ -27,7 +27,7 @@ https://nytimes.com/2020/11/29/sports/football/giants-bengals-daniel-jones.html?
 https://nytimes.com/2020/11/29/nyregion/party-400-people-coronavirus-nyc.html?searchResultPosition=7
 
 **Biden Expected to Name Top Economic Officials This Week**\
-`President-elect Joseph R. Biden Jr. is expected to nominate Neera Tanden, a divisive figure within the Democratic Party, to lead the budget office, setting up a potential confirmation fight.`\
+`President-elect Joseph R. Biden Jr. is expected to nominate Neera Tanden, a divisive figure within the Democratic Party, to lead the budget office. He also named an all-female communications staff.`\
 https://nytimes.com/2020/11/29/us/politics/biden-cabinet-tanden-rouse-adeyemo.html?searchResultPosition=8
 
 **Dear Joe, It’s Not About Iran’s Nukes Anymore**\
