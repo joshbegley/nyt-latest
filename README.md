@@ -1,5 +1,5 @@
 **NATO Needs to Adapt Quickly to Stay Relevant for 2030, Report Urges**\
-`After France’s president said NATO was suffering ‘brain death,’ the alliance sought advice on how to stay vibrant as it faces new challenges from Russia and China.`\
+`After France’s president said NATO was suffering “brain death,” the alliance sought advice on how to stay vibrant as it faces new challenges from Russia and China.`\
 https://nytimes.com/2020/11/30/world/europe/nato-needs-to-adapt-quickly-to-stay-relevant-for-2030-report-urges.html?searchResultPosition=1
 
 **The Long Darkness Before Dawn**\
