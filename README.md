@@ -31,7 +31,7 @@ https://nytimes.com/2020/12/01/world/americas/brazil-criciuma-bank-robbery.html?
 https://nytimes.com/2020/12/01/learning/word-quiz-bildungsroman.html?searchResultPosition=8
 
 **Los Angeles Reverses Decision to Close Virus Testing Site for a Film Shoot**\
-`Testing was going to be disrupted at a major transit hub because of the filming of a movie featuring the TikTok star Addison Rae. The mayor then backtracked.`\
+`Testing was going to be disrupted at a major transit hub because of the filming of a movie featuring the TikTok star Addison Rae. The city then backtracked.`\
 https://nytimes.com/2020/12/01/us/virus-testing-Union-Station-Los-Angeles.html?searchResultPosition=9
 
 **Earthlings, It Seems, Not Aliens, Removed the Utah Monolith**\
