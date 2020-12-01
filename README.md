@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/01/opinion/trump-biden-immigration-reform.html?searc
 `The Florida senator says we need to recognize that Beijing is a power bent on world dominance. Also: Clean air in schools; Republicans should get real; a vaccination sticker for all to see.`\
 https://nytimes.com/2020/12/01/opinion/letters/china-us.html?searchResultPosition=9
 
-**Hungarian Politician Resigns After Brussels Party Raided by Police**\
-`Jozsef Szajer, a top politician with the conservative Fidesz party, will leave the European Parliament after attending a gathering in Brussels that violated coronavirus restrictions.`\
-https://nytimes.com/2020/12/01/world/europe/jozsef-szajer-european-parliament-resignation.html?searchResultPosition=10
+**No, it isn’t unusual that Kamala Harris is still in the Senate.**\
+`In the past half century, it has been common for vice president-elects to resign from their previous posts in late December or January.`\
+https://nytimes.com/2020/12/01/technology/no-it-isnt-unusual-that-kamala-harris-is-still-in-the-senate.html?searchResultPosition=10
 
