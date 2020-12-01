@@ -26,15 +26,15 @@ https://nytimes.com/2020/12/01/opinion/trump-biden-immigration-reform.html?searc
 `The Florida senator says we need to recognize that Beijing is a power bent on world dominance. Also: Clean air in schools; Republicans should get real; a vaccination sticker for all to see.`\
 https://nytimes.com/2020/12/01/opinion/letters/china-us.html?searchResultPosition=7
 
+**The U.S. and Britain race to authorize Covid-19 vaccines.**\
+`By Karen Zraick, Benjamin Mueller, Sharon LaFraniere, Sheila Kaplan, Rebecca Robbins and Annie Karni`\
+https://nytimes.com/2020/12/01/world/the-us-and-britain-race-to-authorize-covid-19-vaccines.html?searchResultPosition=8
+
 **Hungarian Politician Resigns After Brussels Party Raided by Police**\
 `Jozsef Szajer, a top politician with the conservative Fidesz party, will leave the European Parliament after attending a gathering in Brussels that violated coronavirus restrictions.`\
-https://nytimes.com/2020/12/01/world/europe/jozsef-szajer-european-parliament-resignation.html?searchResultPosition=8
+https://nytimes.com/2020/12/01/world/europe/jozsef-szajer-european-parliament-resignation.html?searchResultPosition=9
 
 **Your Wednesday Briefing**\
 `Australia’s latest clash with China.`\
-https://nytimes.com/2020/12/01/briefing/australia-china-vaccine-europe-change-5.html?searchResultPosition=9
-
-**In England, Rumbles of Discontent as Parliament Votes to Exit Lockdown**\
-`Lawmakers approved new coronavirus restriction rules, but members of Prime Minister Boris Johnson’s Conservative Party showed growing opposition to the measures.`\
-https://nytimes.com/2020/12/01/world/europe/england-coronavirus-lockdown-end.html?searchResultPosition=10
+https://nytimes.com/2020/12/01/briefing/australia-china-vaccine-europe-change-5.html?searchResultPosition=10
 
