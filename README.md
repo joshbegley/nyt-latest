@@ -26,15 +26,15 @@ https://nytimes.com/2020/12/01/world/europe/germany-car-pedestrians.html?searchR
 `A reality TV producer who spent most of her days orchestrating elaborate scenes for singles looking for love finally became the star of her own long-awaited love story.`\
 https://nytimes.com/2020/12/01/fashion/weddings/the-wedding-i-never-thought-would-happen.html?searchResultPosition=7
 
+**The chief of Hamas in Gaza tests positive, and other updates from around the world.**\
+`By Daniel Victor and Adam Rasgon`\
+https://nytimes.com/2020/12/01/world/the-chief-of-hamas-in-gaza-tests-positive-and-other-updates-from-around-the-world.html?searchResultPosition=8
+
 **Weekend Bags for a Fantasy Getaway**\
 `These eight oversize totes — some logoed, some understated — are perfect carryalls, even if you’ll be staying close to home this holiday season.`\
-https://nytimes.com/2020/12/01/t-magazine/weekend-bags-totes.html?searchResultPosition=8
+https://nytimes.com/2020/12/01/t-magazine/weekend-bags-totes.html?searchResultPosition=9
 
 **Recent Commercial Real Estate Transactions**\
 `Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2020/12/01/business/new-york-commercial-real-estate.html?searchResultPosition=9
-
-**‘Everything Is on the Table’ as Hospitals Fill**\
-`Tuesday: State projections showed that intensive care units could be full by the middle of December. Also: What’s at stake in the Senate pick.`\
-https://nytimes.com/2020/12/01/us/ca-covid-cases.html?searchResultPosition=10
+https://nytimes.com/2020/12/01/business/new-york-commercial-real-estate.html?searchResultPosition=10
 
