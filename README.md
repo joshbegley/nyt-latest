@@ -11,7 +11,7 @@ https://nytimes.com/video/world/europe/100000007481861/germany-trier-car-crash.h
 https://nytimes.com/2020/12/01/opinion/pebble-mine-alaska.html?searchResultPosition=3
 
 **Are You Ready for Some (Wednesday) Football?**\
-`After multiple delays, the Ravens and the Steelers appear set for the N.F.L.’s second Wednesday game since 1949. It is an unusual day for football, but games on that day have been pretty notable.`\
+`After multiple delays, the Ravens and the Steelers appear set for the N.F.L.’s second Wednesday game since 1949. It is an unusual day for football, but games on that day have been fairly notable.`\
 https://nytimes.com/2020/12/01/sports/football/steelers-ravens-nfl-wednesday.html?searchResultPosition=4
 
 **With Trevor May, the Mets Make a Foray Into Free Agency**\
