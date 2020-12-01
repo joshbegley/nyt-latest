@@ -1,4 +1,4 @@
-**New ‘BTS Law’ Is Passed in South Korea. An Army of Fans Rejoice.**\
+**New ‘BTS Law’ Is Passed in South Korea. An Army of Fans Rejoices.**\
 `The oldest member of BTS was saved at the last minute from having to join the military under the country’s conscription system.`\
 https://nytimes.com/2020/12/01/world/asia/korea-bts-law-military-deferment.html?searchResultPosition=1
 
