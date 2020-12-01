@@ -6,8 +6,8 @@ https://nytimes.com/2020/12/01/science/leaf-stick-insects-phyllium-asekiense.htm
 `“Someone check who that dog voted for,” Trevor Noah said after the president-elect fractured his foot while playing with his German shepherd.`\
 https://nytimes.com/2020/12/01/arts/television/late-night-joe-biden-fractured-foot.html?searchResultPosition=2
 
-**Brazilian City Is Attacked by Armed Robbers, Police Say**\
-`An organized “crime gang” besieged the coastal city of Criciúma early Tuesday, robbing several bank branches, according to a police official.`\
+**Armed Robbers Attack Brazilian City, Police Say**\
+`An organized “crime gang” besieged the coastal city of Criciúma early Tuesday, robbing bank branches and temporarily taking hostages, according to the police and the mayor.`\
 https://nytimes.com/2020/12/01/world/americas/brazil-criciuma-bank-robbery.html?searchResultPosition=3
 
 **Word + Quiz: bildungsroman**\
