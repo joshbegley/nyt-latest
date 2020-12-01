@@ -1,5 +1,5 @@
 **The World in a Vise: Sounding the Alarm on China, Then Running for Shelter**\
-`When Australia’s leader denounced a tweet by a Chinese official, he also urged the two sides to reset their partnership. That reflected the insecurities facing many countries with limited options on China.`\
+`When Australia’s leader demanded an apology for a tweet by a Chinese official, his response reflected the insecurities facing many countries in dealing with China.`\
 https://nytimes.com/2020/12/01/world/australia/china-morrison-tweet.html?searchResultPosition=1
 
 **U.K. National Theater Enters the Streaming Wars**\
