@@ -18,7 +18,7 @@ https://nytimes.com/2020/12/01/arts/music/miley-cyrus-plastic-hearts-review.html
 `Adewale Adeyemo’s role in the Trans-Pacific Partnership negotiations and work at BlackRock could complicate his confirmation hearings.`\
 https://nytimes.com/2020/12/01/us/politics/treasury-Adewale-Adeyemo.html?searchResultPosition=5
 
-**How to Makethe Perfect Cookie Box**\
+**How to Make the Perfect Cookie Box**\
 `For years, Melissa Clark has been on a quest to make the most delicious cookie box to gift to loved ones, logging her triumphs and failures along the way. Here’s what she’s learned.`\
 https://nytimes.com/2020/12/01/dining/holiday-cookie-box.html?searchResultPosition=6
 
