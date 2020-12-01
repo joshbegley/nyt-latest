@@ -1,40 +1,40 @@
-**Should I Stop Speaking to My Trump-Supporting Friends?**\
-`The magazine’s Ethicist columnist on ending friendships with those who back the president, identifying as L.G.B.T.Q. on medical-school applications — and more.`\
-https://nytimes.com/2020/12/01/magazine/should-i-stop-speaking-to-my-trump-supporting-friends.html?searchResultPosition=1
+**Best TV Shows of 2020**\
+`Television wasn’t spared by the pandemic, but there were still more great shows than any one person could watch. Here’s a look at the top series of the year, as well as some that signed off for good.`\
+https://nytimes.com/2020/12/01/arts/television/best-tv-shows.html?searchResultPosition=1
 
-**New ‘BTS Law’ Is Passed in South Korea. An Army of Fans Rejoices.**\
-`The oldest member of BTS was saved at the last minute from having to join the military under the country’s conscription system.`\
-https://nytimes.com/2020/12/01/world/asia/korea-bts-law-military-deferment.html?searchResultPosition=2
+**Best Theater of 2020**\
+`It wasn’t the year for celebration. But watching innovation flourish inspired our chief critic, while other writers found the joys of the stage in other media.`\
+https://nytimes.com/2020/12/01/theater/best-broadway-theater-show.html?searchResultPosition=2
 
-**Without Crowds, Is Times Square Really Times Square? Take a Look**\
-`The throngs of visitors have disappeared from New York City’s famous neighborhood, stirring fears that it could return to its 1970s self.`\
-https://nytimes.com/2020/12/01/nyregion/times-square-nyc-coronavirus.html?searchResultPosition=3
+**In Miami Beach, the Art Scene Has Moved Outdoors**\
+`Even though it’s not playing host to Art Basel this year, the city is still putting on a show, most of it outdoors.`\
+https://nytimes.com/2020/12/01/arts/miami-beach-outdoor-art.html?searchResultPosition=3
 
-**This Los Angeles Team Wants to Diversify Cycling. They’re Starting With its Podiums.**\
-`As a Black cyclist from South Los Angeles, Justin Williams says he has frequently been written off by managers. That hasn’t slowed him down as he works to diversify the sport.`\
-https://nytimes.com/2020/12/01/sports/justin-williams-cycling-L39ION.html?searchResultPosition=4
+**In Nagorno-Karabakh Peace Deal, Putin Applied a Deft New Touch**\
+`The iron-fisted tactics used against Georgia and Ukraine seem to have fallen out of favor, replaced by a more subtle blend of soft power and an implicit military threat.`\
+https://nytimes.com/2020/12/01/world/europe/nagorno-karabakh-putin-armenia-azerbaijan.html?searchResultPosition=4
 
-**Can the Giants’ Tenuous Grasp of the N.F.C. East Hold?**\
-`The Giants are riding a three-game win streak and seem banded behind first-year Coach Joe Judge. In a shaky division, that just might be enough to put them in the playoffs.`\
-https://nytimes.com/2020/12/01/sports/football/giants-bengals.html?searchResultPosition=5
+**Goodbye, Blazers; Hello, ‘Coatigans.’ Women Adjust Attire to Work at Home.**\
+`With many professional women working remotely, their notions of work wear have transformed, shaking up businesses that have sought to outfit them for the office.`\
+https://nytimes.com/2020/12/01/business/work-from-home-women-office-attire.html?searchResultPosition=5
 
-**Best Books?**\
-`What have you read and loved this year?`\
-https://nytimes.com/2020/12/01/learning/best-books.html?searchResultPosition=6
+**That Home You Made With Your Ex? ‘Say Goodbye to Everything’**\
+`As one architect discovered after a failed relationship, the best way forward is sometimes getting rid of most of what you own.`\
+https://nytimes.com/2020/12/01/realestate/renovating-after-a-break-up.html?searchResultPosition=6
 
-**He Was a Stick, She Was a Leaf; Together They Made History**\
-`A surprise clutch of eggs has solved a century-old leaf insect mystery.`\
-https://nytimes.com/2020/12/01/science/leaf-stick-insects-phyllium-asekiense.html?searchResultPosition=7
+**Her Renovation Strategy: ‘I Just Ripped Off the Band-Aid’**\
+`As one architect discovered for herself after a failed relationship, the best way forward is sometimes getting rid of most of what you own.`\
+https://nytimes.com/slideshow/2020/12/01/realestate/her-renovation-strategy-i-just-ripped-off-the-band-aid.html?searchResultPosition=7
 
-**Late Night Reels as Joe Biden Gets the Boot, Too**\
-`“Someone check who that dog voted for,” Trevor Noah said after the president-elect fractured his foot while playing with his German shepherd.`\
-https://nytimes.com/2020/12/01/arts/television/late-night-joe-biden-fractured-foot.html?searchResultPosition=8
+**As Another Fair Goes Virtual, Art Basel Finds Its Footing**\
+`Marking the end of ‘a tumultuous year’ with Miami Beach, there’s a sense of what works, and what doesn’t.​`\
+https://nytimes.com/2020/12/01/arts/art-basel-miami-beach-online.html?searchResultPosition=8
 
-**Armed Robbers Attack Brazilian City, Police Say**\
-`An organized “crime gang” besieged the coastal city of Criciúma early Tuesday, robbing bank branches and temporarily taking hostages, according to the police and the mayor.`\
-https://nytimes.com/2020/12/01/world/americas/brazil-criciuma-bank-robbery.html?searchResultPosition=9
+**Galleries, Like Their Buyers, Make Themselves at Home in Palm Beach**\
+`The city has become an art hub of its own that benefits from being near, but not in, Miami.`\
+https://nytimes.com/2020/12/01/arts/galleries-palm-beach-florida.html?searchResultPosition=9
 
-**Word + Quiz: bildungsroman**\
-`This word has appeared in 17 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/12/01/learning/word-quiz-bildungsroman.html?searchResultPosition=10
+**Who Will Get the Coronavirus Vaccine First?**\
+`A C.D.C. advisory panel will decide on its recommendations on Tuesday afternoon. Here’s what we expect, along with answers to other questions about the new shot.`\
+https://nytimes.com/2020/12/01/health/covid-vaccine-distribution-first.html?searchResultPosition=10
 
