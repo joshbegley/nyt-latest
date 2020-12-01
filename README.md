@@ -31,7 +31,7 @@ https://nytimes.com/2020/12/01/realestate/renovating-after-a-break-up.html?searc
 https://nytimes.com/slideshow/2020/12/01/realestate/her-renovation-strategy-i-just-ripped-off-the-band-aid.html?searchResultPosition=8
 
 **As Another Fair Goes Virtual, Art Basel Finds Its Footing**\
-`At the beginning of 2020, the organizers of Art Basel, the art fair powerhouse, were preparing to celebrate this influential event’s 50th birthday with fanfare at its three far-flung iterations: in Hong Kong; Basel, Switzerland; and Miami Beach.`\
+`Marking the end of ‘a tumultuous year’ with Miami Beach, there’s a sense of what works, and what doesn’t.​`\
 https://nytimes.com/2020/12/01/arts/art-basel-miami-beach-online.html?searchResultPosition=9
 
 **Galleries, Like Their Buyers, Make Themselves at Home in Palm Beach**\
