@@ -1,5 +1,5 @@
 **Captain of California Boat That Caught Fire and Killed 34 Is Indicted**\
-`Federal officials said the captain of the Conception neglected key safety measures, contributing to the deaths of passengers.`\
+`Federal officials said the captain of the Conception, who was indicted on charges of seaman’s manslaughter, neglected key safety measures that contributed to the deaths of passengers.`\
 https://nytimes.com/2020/12/01/us/conception-boat-fire-manslaughter.html?searchResultPosition=1
 
 **Kevin Durant Says He’s Ready to Return. ‘It’ll Come Naturally.’**\
