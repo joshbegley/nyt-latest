@@ -1,5 +1,5 @@
-**Mark Kelly Is Sworn In, Narrowing Senate’s Republican Majority**\
-`The induction of Mr. Kelly, a former astronaut who won a special election last month, means for the first time in decades two Democrats are representing Arizona in the Senate.`\
+**Mark Kelly To Be Sworn In, Narrowing G.O.P.’s Senate Majority**\
+`The induction of Mr. Kelly, a former astronaut who won a special election last month, will be the first time in decades that two Democrats are representing Arizona in the Senate.`\
 https://nytimes.com/2020/12/02/us/politics/senator-mark-kelly-arizona.html?searchResultPosition=1
 
 **Afghan and Taliban Negotiators Agree on Peace Talks’ Procedures**\
