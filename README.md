@@ -30,7 +30,7 @@ https://nytimes.com/2020/12/02/sports/football/nfl-covid-ravens-steelers.html?se
 `What story does this image inspire for you?`\
 https://nytimes.com/2020/12/02/learning/snow-globe.html?searchResultPosition=8
 
-**Joshua Wong and Agnes Chow Are Sentenced Over Hong Kong Protest**\
+**Joshua Wong and Agnes Chow Are Sentenced to Prison Over Hong Kong Protest**\
 `The activists, along with Ivan Lam, had pleaded guilty to illegal assembly in connection with a 2019 demonstration outside Police Headquarters.`\
 https://nytimes.com/2020/12/02/world/asia/joshua-wong-agnes-chow-hong-kong.html?searchResultPosition=9
 
