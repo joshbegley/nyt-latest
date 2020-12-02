@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/01/world/asia/south-korea-china-kimchi-paocai.html?s
 `Will Nediger serves up a snack. Sort of.`\
 https://nytimes.com/2020/12/01/crosswords/daily-puzzle-2020-12-02.html?searchResultPosition=2
 
-**Captain of California Boat That Caught Fire and Killed 34 Is Indicted**\
+**California Boat Captain Charged With Manslaughter in Fire That Killed 34**\
 `Federal officials said the captain of the Conception, who was indicted on charges of seaman’s manslaughter, neglected key safety measures that contributed to the deaths of passengers.`\
 https://nytimes.com/2020/12/01/us/conception-boat-fire-manslaughter.html?searchResultPosition=3
 
