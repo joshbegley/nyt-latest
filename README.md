@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/01/us/politics/john-durham-special-counsel-russia-in
 https://nytimes.com/video/us/politics/100000007482041/trump-georgia-election-issues.html?searchResultPosition=2
 
 **‘It Has to Stop’: Georgia Election Official Lashes Trump**\
-`Gabriel Sterling, a voting system official in Georgia, harshly criticized the president for failing to condemn threats of violence against people overseeing the voting system in his state.`\
+`Gabriel Sterling, a voting system official in Georgia, harshly criticized the president for failing to condemn threats of violence against people overseeing the election in his state.`\
 https://nytimes.com/2020/12/01/us/politics/georgia-election-trump.html?searchResultPosition=3
 
 **Barr Acknowledges Justice Dept. Has Found No Widespread Voter Fraud**\
