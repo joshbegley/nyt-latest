@@ -1,5 +1,5 @@
 **Valéry Giscard d’Estaing, Who Struggled to Transform France, Dies at 94**\
-`As president, he sought to reform the powerful position and make government more responsive to the people, but was thwarted by an economic slowdown and demographic shifts. He died of Covid-19.`\
+`As a conservative president and a descendant of nobility, he sought to make government more responsive to the people but was thwarted by an economic slowdown, demographic shifts and an imperious bearing. He died of Covid-19.`\
 https://nytimes.com/2020/12/02/world/europe/valery-giscard-destaing-dead.html?searchResultPosition=1
 
 **Coronavirus Briefing: What Happened Today**\
