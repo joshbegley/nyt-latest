@@ -1,6 +1,6 @@
-**The U.K. approves Pfizer’s vaccine, becoming the first nation in the West to do so.**\
-`Britain gave emergency approval on Wednesday to Pfizer’s coronavirus vaccine, clearing the way for the country to begin mass inoculations.`\
-https://nytimes.com/2020/12/02/world/the-uk-approves-pfizers-vaccine-becoming-the-first-nation-in-the-west-to-do-so.html?searchResultPosition=1
+**Joshua Wong and Agnes Chow Are Sentenced Over Hong Kong Protest**\
+`The activists, along with Ivan Lam, had pleaded guilty to illegal assembly in connection with a 2019 demonstration outside Police Headquarters.`\
+https://nytimes.com/2020/12/02/world/asia/joshua-wong-agnes-chow-hong-kong.html?searchResultPosition=1
 
 **U.K. Approves Pfizer Coronavirus Vaccine, a First in the West**\
 `Emergency approval of the vaccine, ahead of the United States and the European Union, clears the way for Britain to begin mass inoculations.`\
