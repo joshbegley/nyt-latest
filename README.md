@@ -1,6 +1,6 @@
 **12 Votes Separated These House Candidates. Then 55 Ballots Were Found.**\
 `‘StickyGate’ is just one of the reasons for the uproar over the extraordinarily close race between Claudia Tenney, a Republican, and Rep. Anthony Brindisi.`\
-https://nytimes.com/2020/12/02/nyregion/12-votes-separated-these-house-candidates-then-55-ballots-were-found.html?searchResultPosition=1
+https://nytimes.com/2020/12/02/nyregion/house-election-tenney-brindisi.html?searchResultPosition=1
 
 **Chinese Companies to Face More Scrutiny as Bill Clears House**\
 `The House voted to approve legislation that will increase oversight for Chinese companies listed on American exchanges, making the bill almost certain to become law.`\
