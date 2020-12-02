@@ -1,4 +1,4 @@
-**Biden’s Spin on ‘America First’**\
+**The Biden Spin on ‘America First’**\
 `The president-elect’s economic team says that it’s all about workers.`\
 https://nytimes.com/2020/12/02/business/dealbook/biden-economy-workers.html?searchResultPosition=1
 
