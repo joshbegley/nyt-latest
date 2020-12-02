@@ -1,40 +1,40 @@
+**Pantyhose and Trash Bags: How Music Programs Are Surviving in the Pandemic**\
+`Concerned about spreading the virus through instruments or singing, student music groups are finding innovative ways to perform together.`\
+https://nytimes.com/2020/12/02/us/coronavirus-music-students-band.html?searchResultPosition=1
+
+**Only 9 Trials in 9 Months: Virus Wreaks Havoc on N.Y.C. Courts**\
+`The coronavirus has upended criminal trials in the city, infiltrating courtrooms in ways that threaten both health and justice.`\
+https://nytimes.com/2020/12/02/nyregion/courts-covid.html?searchResultPosition=2
+
+**Add Parkour to the Olympics? Purists Say ‘Nah’**\
+`The international gymnastics federation wants to push for parkour to be included in the Paris Games in 2024. It may not be up to them.`\
+https://nytimes.com/2020/12/02/sports/olympics/parkour-olympic-games.html?searchResultPosition=3
+
+**Louisville Is Clamoring for Police Reform. Can an Interim Chief Deliver?**\
+`Yvette Gentry won’t be in the job long, but her city is hoping for swift progress after a series of scandals and police shootings.`\
+https://nytimes.com/2020/12/02/us/louisville-police-yvette-gentry.html?searchResultPosition=4
+
+**Perform Abysmally, Defend Yourself Vehemently: The Adam Gase Way**\
+`Gase’s head coaching career has been a tour de force of blame deflection and expectation tempering. His time with the Jets is no different.`\
+https://nytimes.com/2020/12/02/sports/football/adam-gase-jets-playcalling.html?searchResultPosition=5
+
+**Do We Need Football in America This Badly?**\
+`The N.F.L.’s efforts to keep the season going are reaching heights of absurdity as the pandemic worsens. It’s time to pause.`\
+https://nytimes.com/2020/12/02/sports/football/nfl-covid-ravens-steelers.html?searchResultPosition=6
+
+**Snow Globe**\
+`What story does this image inspire for you?`\
+https://nytimes.com/2020/12/02/learning/snow-globe.html?searchResultPosition=7
+
 **Joshua Wong and Agnes Chow Are Sentenced Over Hong Kong Protest**\
 `The activists, along with Ivan Lam, had pleaded guilty to illegal assembly in connection with a 2019 demonstration outside Police Headquarters.`\
-https://nytimes.com/2020/12/02/world/asia/joshua-wong-agnes-chow-hong-kong.html?searchResultPosition=1
+https://nytimes.com/2020/12/02/world/asia/joshua-wong-agnes-chow-hong-kong.html?searchResultPosition=8
 
 **U.K. Approves Pfizer Coronavirus Vaccine, a First in the West**\
 `Emergency approval of the vaccine, ahead of the United States and the European Union, clears the way for Britain to begin mass inoculations.`\
-https://nytimes.com/2020/12/02/world/europe/pfizer-coronavirus-vaccine-approved-uk.html?searchResultPosition=2
+https://nytimes.com/2020/12/02/world/europe/pfizer-coronavirus-vaccine-approved-uk.html?searchResultPosition=9
 
 **Stephen Colbert Says Bill Barr Will Be Missed**\
 `Barr said the Justice Department had not found voter fraud on a scale that could change election results. “Fraud on a scale — also known as the president’s annual physical,” Colbert joked Tuesday.`\
-https://nytimes.com/2020/12/02/arts/television/stephen-colbert-william-barr.html?searchResultPosition=3
-
-**Word + Quiz: virago**\
-`This word has appeared in four articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/12/02/learning/word-quiz-virago.html?searchResultPosition=4
-
-**A Turkish-German Couple May Save Us From the Virus. So Why Is Germany Uneasy?**\
-`When it comes to immigration, nothing in Germany is simple.`\
-https://nytimes.com/2020/12/02/opinion/biontech-vaccine-germany-immigration.html?searchResultPosition=5
-
-**Biden: ‘We’re Going to Fight Like Hell by Investing in America First’**\
-`My talk with Joe Biden on his first few months, and his next four years.`\
-https://nytimes.com/2020/12/02/opinion/biden-interview-mcconnell-china-iran.html?searchResultPosition=6
-
-**Exhume the Body of Warren G. Harding? A Judge Says That Won’t Be Necessary**\
-`A grandson, whose grandmother Nan Britton had an affair with the 29th president, was attempting to confirm his presidential lineage.`\
-https://nytimes.com/2020/12/01/us/warren-harding-grandson-exhume.html?searchResultPosition=7
-
-**Your Wednesday Briefing**\
-`Rumbles of discontent from Conservatives in the U.K.`\
-https://nytimes.com/2020/12/01/briefing/coronavirus-biden-transition-nagorno-karabakh.html?searchResultPosition=8
-
-**Quotation of the Day: Biden Urges a ‘Robust’ Stimulus as Risks Mount**\
-`Quotation of the Day for Wednesday, December 2, 2020.`\
-https://nytimes.com/2020/12/01/todayspaper/quotation-of-the-day-biden-urges-a-robust-stimulus-as-risks-mount.html?searchResultPosition=9
-
-**Corrections: Dec. 2, 2020**\
-`Corrections that appeared in print on Wednesday, Dec. 2, 2020.`\
-https://nytimes.com/2020/12/01/pageoneplus/corrections-dec-2-2020.html?searchResultPosition=10
+https://nytimes.com/2020/12/02/arts/television/stephen-colbert-william-barr.html?searchResultPosition=10
 
