@@ -1,6 +1,6 @@
 **‘We Were at Base Camp’: Why the U.K. Approved a Vaccine First**\
 `When early results from the final trials began to roll in, scientists were well prepared. Now, they face the logistical challenge of putting the vaccine to work.`\
-https://nytimes.com/2020/12/02/world/europe/why-uk-approved-vaccine-first.html?searchResultPosition=1
+https://nytimes.com/2020/12/02/world/europe/uk-covid-vaccine-pfizer.html?searchResultPosition=1
 
 **The Salads You Desire**\
 `Find respite in the season’s richness with a marinated celery salad, or crisp tofu with sweet potatoes.`\
