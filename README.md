@@ -11,7 +11,7 @@ https://nytimes.com/video/world/europe/100000007482923/coronavirus-vaccine-appro
 https://nytimes.com/2020/12/02/travel/travel-grief.html?searchResultPosition=3
 
 **A Trump Fund-Raiser for Maya Wiley? Yes, but It’s Mary Trump**\
-`Ms. Trump, the president’s niece, has written a tell-all book and opposed his re-election. Now she’s holding an online event for Ms. Wiley, who’s running for mayor of New York.`\
+`Ms. Trump, the president’s niece, has written a tell-all book. Now she’s holding an online event for Ms. Wiley, the former MSNBC analyst who’s running for mayor of New York.`\
 https://nytimes.com/2020/12/02/nyregion/mary-trump-maya-wiley.html?searchResultPosition=4
 
 **What You Need to Make Hot Pot at Home**\
