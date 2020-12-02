@@ -1,40 +1,40 @@
+**Killer Robot? Assassination of Iranian Scientist Feeds Conflicting Accounts**\
+`Contradictory reports from Iran expose tensions between competing factions of the government as each seeks to avoid blame for a major security lapse.`\
+https://nytimes.com/2020/12/02/world/middleeast/iran-assassination-nuclear-scientist.html?searchResultPosition=1
+
 **‘He Is a Thug’: Polarizing Cleric Returns to Indonesia**\
 `Rizieq Shihab and his vigilante movement have spent decades calling for harsh Islamic rule. Now he’s back from self-imposed exile and promising a “moral revolution.”`\
-https://nytimes.com/2020/12/02/world/asia/indonesia-rizieq-muslim.html?searchResultPosition=1
+https://nytimes.com/2020/12/02/world/asia/indonesia-rizieq-muslim.html?searchResultPosition=2
 
 **Mr. Biden, Keep the Pressure on Hong Kong**\
 `We are democracy activists. We call on Washington to forge a new China policy that prioritizes human rights over other interests.`\
-https://nytimes.com/2020/12/02/opinion/hong-kong-biden.html?searchResultPosition=2
+https://nytimes.com/2020/12/02/opinion/hong-kong-biden.html?searchResultPosition=3
 
 **Pantyhose and Trash Bags: How Music Programs Are Surviving in the Pandemic**\
 `Concerned about spreading the virus through instruments or singing, student music groups are finding innovative ways to perform together.`\
-https://nytimes.com/2020/12/02/us/coronavirus-music-students-band.html?searchResultPosition=3
+https://nytimes.com/2020/12/02/us/coronavirus-music-students-band.html?searchResultPosition=4
 
 **Only 9 Trials in 9 Months: Virus Wreaks Havoc on N.Y.C. Courts**\
 `The coronavirus has upended criminal trials in the city, infiltrating courtrooms in ways that threaten both health and justice.`\
-https://nytimes.com/2020/12/02/nyregion/courts-covid.html?searchResultPosition=4
+https://nytimes.com/2020/12/02/nyregion/courts-covid.html?searchResultPosition=5
 
 **Add Parkour to the Olympics? Purists Say ‘Nah’**\
 `The international gymnastics federation wants to push for parkour to be included in the Paris Games in 2024. It may not be up to them.`\
-https://nytimes.com/2020/12/02/sports/olympics/parkour-olympic-games.html?searchResultPosition=5
+https://nytimes.com/2020/12/02/sports/olympics/parkour-olympic-games.html?searchResultPosition=6
 
 **Louisville Is Clamoring for Police Reform. Can an Interim Chief Deliver?**\
 `Yvette Gentry won’t be in the job long, but her city is hoping for swift progress after a series of scandals and police shootings.`\
-https://nytimes.com/2020/12/02/us/louisville-police-yvette-gentry.html?searchResultPosition=6
+https://nytimes.com/2020/12/02/us/louisville-police-yvette-gentry.html?searchResultPosition=7
 
 **Perform Abysmally, Defend Yourself Vehemently: The Adam Gase Way**\
 `Gase’s head coaching career has been a tour de force of blame deflection and expectation tempering. His time with the Jets is no different.`\
-https://nytimes.com/2020/12/02/sports/football/adam-gase-jets-playcalling.html?searchResultPosition=7
+https://nytimes.com/2020/12/02/sports/football/adam-gase-jets-playcalling.html?searchResultPosition=8
 
 **Do We Need Football in America This Badly?**\
 `The N.F.L.’s efforts to keep the season going are reaching heights of absurdity as the pandemic worsens. It’s time to pause.`\
-https://nytimes.com/2020/12/02/sports/football/nfl-covid-ravens-steelers.html?searchResultPosition=8
+https://nytimes.com/2020/12/02/sports/football/nfl-covid-ravens-steelers.html?searchResultPosition=9
 
 **Snow Globe**\
 `What story does this image inspire for you?`\
-https://nytimes.com/2020/12/02/learning/snow-globe.html?searchResultPosition=9
-
-**Joshua Wong and Agnes Chow Are Sentenced to Prison Over Hong Kong Protest**\
-`The activists, along with Ivan Lam, had pleaded guilty to illegal assembly in connection with a 2019 demonstration outside Police Headquarters.`\
-https://nytimes.com/2020/12/02/world/asia/joshua-wong-agnes-chow-hong-kong.html?searchResultPosition=10
+https://nytimes.com/2020/12/02/learning/snow-globe.html?searchResultPosition=10
 
