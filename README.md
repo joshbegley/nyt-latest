@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/02/dining/the-salads-you-desire.html?searchResultPos
 
 **Barry Gibb Has a Mission: ‘Keep the Music Alive’**\
 `The last Bee Gee looks back at his wide-ranging catalog of hits, and ahead to an album of duets that spotlights his first love, country music.`\
-https://nytimes.com/2020/12/02/arts/music/barry-gibb-has-a-mission-keep-the-music-alive.html?searchResultPosition=3
+https://nytimes.com/2020/12/02/arts/music/barry-gibb.html?searchResultPosition=3
 
 **Glittering High Jewelry, Inspired by Tweed**\
 `With their cascades of white and yellow diamonds, these drop earrings conjure the woven, nubby quality of what was one of Coco Chanel’s favorite fabrics.`\
