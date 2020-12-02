@@ -31,7 +31,7 @@ https://nytimes.com/2020/12/02/nyregion/subway-ridership-mta.html?searchResultPo
 https://nytimes.com/paidpost/capital-one/tis-just-before-the-holidays-and-your-shopping-isnt-done.html?searchResultPosition=8
 
 **C.D.C. Director Warns of High Winter Death Toll**\
-`Dr. Robert R. Redfield, director of the Centers for Disease Control and Prevention, said he expected U.S. coronavirus deaths could reach near 450,000 by February, and urged Americans to practice precautions, especially wearing masks.`\
+`Dr. Robert R. Redfield, director of the Centers for Disease Control and Prevention, urged Americans to practice precautions, especially wearing masks.`\
 https://nytimes.com/video/us/politics/100000007483485/redfield-coronavirus-winter.html?searchResultPosition=9
 
 **He Was Rescued at Sea in a Sailing Race. ‘It’s Life,’ He Said.**\
