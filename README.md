@@ -35,6 +35,6 @@ https://nytimes.com/interactive/2020/12/03/us/citizenship-quiz.html?searchResult
 https://nytimes.com/2020/12/03/learning/word-quiz-yaw.html?searchResultPosition=9
 
 **U.S. Tightens Visa Rules for Chinese Communist Party Members**\
-`New guidelines mean that travel visas for China’s 92 million party members will be limited to one month, single entry — if the State Department can figure out who they are.`\
+`New guidelines mean that China’s 92 million party members will be limited to one-month, single-entry U.S. permits — if the State Department can figure out who they are.`\
 https://nytimes.com/2020/12/03/world/asia/us-visa-china-communist-party.html?searchResultPosition=10
 
