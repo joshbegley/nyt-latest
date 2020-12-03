@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Who Will Get the Coronavirus Vaccine First?’**\
-`In this lesson, students will learn about how the vaccine is most likely to be distributed and consider the ethics behind who should receive it first.`\
-https://nytimes.com/2020/12/03/learning/lesson-of-the-day-who-will-get-the-coronavirus-vaccine-first.html?searchResultPosition=1
+**The Epicenter**\
+`Thousands sick. Hundreds dead. How the virus ravaged a vibrant corner of New York.`\
+https://nytimes.com/2020/12/03/nyregion/coronavirus-new-york.html?searchResultPosition=1
 
-**Who’ll Be Pardoned for What? Stephen Colbert Invites You to Guess**\
-`Colbert made a game out of the speculation about presidential pardons: “You have to match the person to their crime, and there are no wrong answers.”`\
-https://nytimes.com/2020/12/03/arts/television/late-night-trump-pardons.html?searchResultPosition=2
+**Coffee-Table Books to Give (and Get) This Season**\
+`Bridging the literary and aesthetic worlds, some of the year’s best large-scale, illustrated hardcovers offer immersion and escape — right from your living room.`\
+https://nytimes.com/2020/12/03/books/review/seasons-best-coffee-table-books.html?searchResultPosition=2
 
-**The College-Entrance Exam Is 9 Hours Long. Covid-19 Made It Harder.**\
-`In South Korea, planes are grounded and parents pray as high school students hunker down for the grueling test. But this year, officials and students had to navigate a pandemic.`\
-https://nytimes.com/2020/12/03/world/asia/south-korea-college-exam-suneung-coronavirus.html?searchResultPosition=3
+**A Covid-19 Cruise Takes Planning, but the Strip Show Goes On**\
+`Singapore allows cruises to nowhere, helping a struggling industry. That means socially distanced buffet lines, electronic monitoring and hand sanitizer at the slot machines.`\
+https://nytimes.com/2020/12/03/business/singapore-cruise-covid-19.html?searchResultPosition=3
 
-**New U.S. Citizenship Test Is Longer and More Difficult**\
-`Critics say the new test is harder for English learners. It features more nuanced questions and highlights such issues as states’ rights and the Vietnam War.`\
-https://nytimes.com/2020/12/03/us/citizenship-test.html?searchResultPosition=4
+**Oil Refineries See Profit in Turning Kitchen Grease Into Diesel**\
+`Struggling energy companies are increasing the production of renewable diesel, which can reduce greenhouse gas emissions.`\
+https://nytimes.com/2020/12/03/business/energy-environment/oil-refineries-renewable-diesel.html?searchResultPosition=4
 
-**Getting Creative for the 2020 Office Holiday Party**\
-`Because yet another Google hangout is not going to cut it.`\
-https://nytimes.com/2020/12/03/style/getting-creative-for-the-2020-office-holiday-party.html?searchResultPosition=5
+**Mourning at the Places Where ‘El Dios’ Walked**\
+`During three national days of mourning for Diego Maradona, Argentines traveled — sometimes hundreds of miles — to honor him at the sites where his talent once made them smile.`\
+https://nytimes.com/2020/12/03/sports/soccer/maradona-argentina-soccer-memorial-stadiums.html?searchResultPosition=5
 
-**How to Host a Holiday Party (Sort of) in a Pandemic**\
-`Bye-bye, eggnog. Hello, nasal swab.`\
-https://nytimes.com/2020/12/03/style/holiday-party-ideas-2020.html?searchResultPosition=6
+**Best Movies of 2020**\
+`The screening rooms were closed. The festivals were virtual. The blockbusters were in storage. Even so, our critics found abundant and inspiring signs of cinematic life in the pandemic.`\
+https://nytimes.com/2020/12/03/movies/best-movies.html?searchResultPosition=6
 
-**Cookie Collection**\
-`What would the ideal box of cookies contain in your opinion? Why?`\
-https://nytimes.com/2020/12/03/learning/cookie-collection.html?searchResultPosition=7
+**‘Nobody Sees Us’: Testing-Lab Workers Strain Under Demand**\
+`Laboratory technologists have been working nonstop to help the nation diagnose an ever-growing number of coronavirus cases.`\
+https://nytimes.com/2020/12/03/health/coronavirus-testing-labs-workers.html?searchResultPosition=7
 
-**The Trump Administration Just Made the Citizenship Test Harder. How Would You Do?**\
-`Test your knowledge on some of the topics from American history and government that prospective new citizens have to answer.`\
-https://nytimes.com/interactive/2020/12/03/us/citizenship-quiz.html?searchResultPosition=8
+**‘Field of Broken Dreams’: London’s Growing Taxi Graveyards**\
+`Confronted with deserted streets during the pandemic, drivers are turning in their rented black cabs by the hundreds.`\
+https://nytimes.com/2020/12/03/world/europe/london-taxis-coronavirus.html?searchResultPosition=8
 
-**Word + Quiz: yaw**\
-`This word has appeared in 10 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/12/03/learning/word-quiz-yaw.html?searchResultPosition=9
+**There’s Something About a Jeweler-Made Bag**\
+`Jewelry houses say they create purses the same way they imagine any gem.`\
+https://nytimes.com/2020/12/03/fashion/jewelry-handbags-van-cleef-arpels-chanel-cartier.html?searchResultPosition=9
 
-**U.S. Tightens Visa Rules for Chinese Communist Party Members**\
-`New guidelines mean that China’s 92 million party members will be limited to one-month, single-entry U.S. permits — if the State Department can figure out who they are.`\
-https://nytimes.com/2020/12/03/world/asia/us-visa-china-communist-party.html?searchResultPosition=10
+**Which New Yorkers Will Be First to Get the Virus Vaccine?**\
+`The first batch of the vaccine is expected to arrive in New York on Dec. 15.`\
+https://nytimes.com/2020/12/03/nyregion/new-york-coronavirus-vaccine.html?searchResultPosition=10
 
