@@ -10,8 +10,8 @@ https://nytimes.com/2020/12/02/us/politics/coronavirus-stimulus-talks-congress.h
 `Many in the state G.O.P. are expending significant effort — and contorting themselves into political pretzels — to navigate the president’s outrage over his loss, hoping to retain the support of his base.`\
 https://nytimes.com/2020/12/02/us/politics/georgia-republicans-election-trump.html?searchResultPosition=3
 
-**Opposing Visa’s Plaid Acquisition Is Good Antitrust Enforcement**\
-`In opposing the acquisition of a nascent rival, the Justice Department is taking an important step to protect competition.`\
+**Visa Is Doing What Big American Companies Do to ‘Protect This Business’**\
+`The Justice Department is opposing Visa’s acquisition of a nascent rival in a step forward for antitrust enforcement.`\
 https://nytimes.com/2020/12/02/opinion/visa-plaid-antitrust-doj.html?searchResultPosition=4
 
 **David Hackett, Historian and Holocaust Expert, Dies at 80**\
