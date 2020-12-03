@@ -1,40 +1,40 @@
+**How the Avalanches Put Themselves Back Together Again**\
+`The Australian group known for its sample-heavy music paused for 16 years between its first two albums. Sobriety, and an ambitious new set of inspirations, fuel its latest LP, “We Will Always Love You.”`\
+https://nytimes.com/2020/12/03/arts/music/avalanches-we-will-always-love-you.html?searchResultPosition=1
+
 **Sentences That Matter, Mentor and Motivate**\
 `Two teachers show how their middle and high school students work with sentence structure using New York Times models. They also pose a sentence-writing challenge for your students.`\
-https://nytimes.com/2020/12/03/learning/sentences-that-matter-mentor-and-motivate.html?searchResultPosition=1
+https://nytimes.com/2020/12/03/learning/sentences-that-matter-mentor-and-motivate.html?searchResultPosition=2
 
 **August Wilson, American Bard**\
 `Perhaps no playwright has asserted the richness and complexity of everyday Black lives and language so deeply. Now, two screen projects affirm his legacy for new audiences.`\
-https://nytimes.com/2020/12/03/t-magazine/august-wilson-ma-rainey.html?searchResultPosition=2
+https://nytimes.com/2020/12/03/t-magazine/august-wilson-ma-rainey.html?searchResultPosition=3
 
 **Up to 30 Million in U.S. Have the Skills to Earn 70% More, Researchers Say**\
 `The findings point to the potential of upward mobility for people without a college degree.`\
-https://nytimes.com/2020/12/03/technology/work-skills-upward-mobility.html?searchResultPosition=3
+https://nytimes.com/2020/12/03/technology/work-skills-upward-mobility.html?searchResultPosition=4
 
 **U.S. Cyberforce Was Deployed to Estonia to Hunt for Russian Hackers**\
 `An operation ahead of the November election was part of stepped-up efforts by the military to stop Russian interference in American politics.`\
-https://nytimes.com/2020/12/03/us/politics/cyber-command-elections-estonia.html?searchResultPosition=4
+https://nytimes.com/2020/12/03/us/politics/cyber-command-elections-estonia.html?searchResultPosition=5
 
 **A Handel Master on Building the Perfect ‘Messiah’**\
 `Julian Wachner describes the many choices that go into performing the classic holiday oratorio.`\
-https://nytimes.com/2020/12/03/arts/music/handel-messiah-trinity-church.html?searchResultPosition=5
+https://nytimes.com/2020/12/03/arts/music/handel-messiah-trinity-church.html?searchResultPosition=6
 
 **Review: In ‘Your Honor,’ a Dark Cable Premise Breaks Worse**\
 `Bryan Cranston stars in a role that recalls his most famous series. The comparison is not flattering.`\
-https://nytimes.com/2020/12/03/arts/television/review-your-honor.html?searchResultPosition=6
+https://nytimes.com/2020/12/03/arts/television/review-your-honor.html?searchResultPosition=7
 
 **Are You a Good Conversationalist?**\
 `Have you had any great conversations lately? What could you do to make them deeper or more satisfying?`\
-https://nytimes.com/2020/12/03/learning/are-you-a-good-conversationalist.html?searchResultPosition=7
+https://nytimes.com/2020/12/03/learning/are-you-a-good-conversationalist.html?searchResultPosition=8
 
 **Who Got Rescued?**\
 `Just 1 percent of borrowers received a quarter of loans from the federal Paycheck Protection Program.`\
-https://nytimes.com/2020/12/03/business/dealbook/ppp-loans-data.html?searchResultPosition=8
+https://nytimes.com/2020/12/03/business/dealbook/ppp-loans-data.html?searchResultPosition=9
 
 **A Bipartisan Stimulus Bill Lives**\
 `Will Mitch McConnell get on board? Time will tell: This is your morning tip sheet.`\
-https://nytimes.com/2020/12/03/us/politics/stimulus-bill.html?searchResultPosition=9
-
-**‘Billie’ Review: A Legend, in a Different Light**\
-`The journalist Linda Lipnack Kuehl worked for years on a Billie Holiday biography before Kuehl’s sudden death in 1978. The director of this documentary bought her research, and uses it well.`\
-https://nytimes.com/2020/12/03/movies/billie-review.html?searchResultPosition=10
+https://nytimes.com/2020/12/03/us/politics/stimulus-bill.html?searchResultPosition=10
 
