@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/02/sports/basketball/russell-westbrook-john-wall-tra
 `The company, sued by the U.S. Equal Employment Opportunity Commission, also agreed to a consent decree to provide anti-discrimination training.`\
 https://nytimes.com/2020/12/02/business/del-taco-sexual-harasment.html?searchResultPosition=3
 
-**After Bar Manager’s Arrest, Covid Culture Wars Escalate in Staten Island**\
+**After Bar Manager’s Arrest, Covid Culture Wars Escalate on Staten Island**\
 `Mac’s Public House was shut down after the owner and manager refused to follow virus restrictions. Supporters rallied outside the bar Wednesday night.`\
 https://nytimes.com/2020/12/02/nyregion/macs-staten-island-coronavirus.html?searchResultPosition=4
 
