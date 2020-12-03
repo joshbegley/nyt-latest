@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/03/fashion/Fashion-Awards.html?searchResultPosition=1
 
 **How Scientists Tracked Down a Mass Killer (of Salmon)**\
-`Restoration projects had brought coho salmon back to creeks in the Seattle area. Then, in some streams, they were almost wiped out.`\
+`Something was decimating the salmon that had been restored to creeks around Puget Sound.`\
 https://nytimes.com/2020/12/03/climate/salmon-kill-washington.html?searchResultPosition=2
 
 **Archaeologists Could Help Bring Otters Back From the Dead**\
