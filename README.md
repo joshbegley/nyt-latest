@@ -1,5 +1,5 @@
 **Who Got Rescued?**\
-`Just 1 percent of borrowers received a quarter of P.P.P. loans.`\
+`Just 1 percent of borrowers received a quarter of loans from the federal Paycheck Protection Program.`\
 https://nytimes.com/2020/12/03/business/dealbook/ppp-loans-data.html?searchResultPosition=1
 
 **A Bipartisan Stimulus Bill Lives**\
