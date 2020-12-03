@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/03/world/europe/hamish-macinnes-dead.html?searchResu
 https://nytimes.com/2020/12/03/arts/music/pa-salieu.html?searchResultPosition=5
 
 **Find Your Place in the Vaccine Line**\
-`See how many people could get the vaccine before you.`\
+`See when you might be able to get a shot.`\
 https://nytimes.com/interactive/2020/12/03/opinion/covid-19-vaccine-timeline.html?searchResultPosition=6
 
 **Meet Biden’s Energy and Climate Cabinet Contenders**\
