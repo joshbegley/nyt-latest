@@ -26,7 +26,7 @@ https://nytimes.com/2020/12/03/opinion/covid-relief-mitch-mcconnell.html?searchR
 `Mr. Adams spent a quarter-century developing and refining the recipe for the beef jerky snack.`\
 https://nytimes.com/2020/12/03/us/lon-adams-dead.html?searchResultPosition=7
 
-**Alison Lurie, Tart-Voiced Novelist of Manners, Dies at 95**\
+**Alison Lurie, Tart-Voiced Novelist of Manners, Dies at 94**\
 `Ms. Lurie wrote about academics and intellectuals, straying spouses, snobs and artists, in novels of close observation and sharp prose.`\
 https://nytimes.com/2020/12/03/books/alison-lurie-dead.html?searchResultPosition=8
 
