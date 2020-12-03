@@ -1,5 +1,5 @@
 **Rapper Casanova Is Accused of Conspiring in ‘Terrible Acts of Violence’**\
-`Like 6ix9ine before him, the New York recording artist is accused of participating in a violent conspiracy.`\
+`Like 6ix9ine before him, the New York recording artist is charged with being a member of a ruthless street gang.`\
 https://nytimes.com/2020/12/03/nyregion/rapper-casanova-arrest.html?searchResultPosition=1
 
 **Benny Andrews: A Life in Portraits**\
