@@ -2,7 +2,7 @@
 `Last year, the tennis champion was shown with light skin in an instant noodle ad. Now, she’ll be portrayed as a manga character, and illustrators insisted on getting details right.`\
 https://nytimes.com/2020/12/04/world/asia/naomi-osaka-manga-mari-japan.html?searchResultPosition=1
 
-**E.U. Privacy Rule Would Rein In the Hunt for Online Child Sex Abuse**\
+**E.U. Privacy Rule Would Rein In the Hunt for Online Child Sexual Abuse**\
 `Regulators argue that while abuse imagery on the internet is abhorrent, unchecked scanning for it by tech companies could violate privacy rights. A showdown looms.`\
 https://nytimes.com/2020/12/04/technology/european-union-child-sexual-abuse.html?searchResultPosition=2
 
