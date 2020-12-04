@@ -2,7 +2,7 @@
 `Did you follow the headlines this week?`\
 https://nytimes.com/interactive/2020/12/04/briefing/news-quiz-iran-utah-emergency-approval.html?searchResultPosition=1
 
-**Late Night: Vaccinating Ex-Presidents Is Not Must-See TV**\
+**Late Night: Vaccinating Ex-Presidents Is Hardly Must-See TV**\
 `Barack Obama, George W. Bush and Bill Clinton offered to take a coronavirus vaccine on camera. Jimmy Kimmel isn’t worried about losing viewers to that program.`\
 https://nytimes.com/2020/12/04/arts/television/late-night-obama-bush-clinton-vaccine.html?searchResultPosition=2
 
