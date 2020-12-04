@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/04/arts/best-performances.html?searchResultPosition=
 `He’s making a list (he’s disinfecting it twice).`\
 https://nytimes.com/2020/12/04/nyregion/coronavirus-santa-claus-nyc.html?searchResultPosition=9
 
-**This Unusual Bird Superpower Goes Back to the Dinosaur Extinction**\
-`Kiwis, ibises and sandpipers share this sensory power with birds that lived millions of years ago.`\
-https://nytimes.com/2020/12/04/science/bird-beaks-touch.html?searchResultPosition=10
+**The Children of Pornhub**\
+`Why does Canada allow this company to profit off videos of exploitation and assault?`\
+https://nytimes.com/2020/12/04/opinion/sunday/pornhub-rape-trafficking.html?searchResultPosition=10
 
