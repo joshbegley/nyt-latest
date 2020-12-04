@@ -1,6 +1,6 @@
 **Your Friday Briefing**\
 `Britain and the U.S. spar over the coronavirus vaccine.`\
-https://nytimes.com/2020/12/03/briefing/your-friday-briefing.html?searchResultPosition=1
+https://nytimes.com/2020/12/03/briefing/coronavirus-vaccine-alieu-kosiah-tigray.html?searchResultPosition=1
 
 **Can You Believe It?!**\
 `Patti Varol brings us her debut Times Friday puzzle, a collaboration with Doug Peterson.`\
