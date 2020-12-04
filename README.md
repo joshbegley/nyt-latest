@@ -28,7 +28,7 @@ https://nytimes.com/2020/12/04/books/review/podcast-david-sedaris-best-of-me.htm
 
 **Prominent New York Priest Is Investigated Over Sexual Assault Accusation**\
 `The Manhattan district attorney’s office said it was investigating the Rev. George William Rutler after a security guard said he attacked her at his church.`\
-https://nytimes.com/2020/12/04/us/new-york-priest-sexual-assault.html?searchResultPosition=8
+https://nytimes.com/2020/12/04/nyregion/new-york-priest-sexual-assault.html?searchResultPosition=8
 
 **What Went Viral This Week**\
 `Stories about Elliot Page, BTS and a rare “Christmas Star” dominated social media this week.`\
