@@ -15,8 +15,8 @@ https://nytimes.com/2020/12/04/world/europe/azerbaijan-armenia-nagorno-karabakh-
 https://nytimes.com/2020/12/04/arts/music/lissner-teatro-san-carlo-opera.html?searchResultPosition=4
 
 **The State of the Virus This Week**\
-`A look at this week’s news from the team tracking the coronavirus.`\
-https://nytimes.com/interactive/2020/12/04/burst/coronavirus-this-week.html?searchResultPosition=5
+`A look at the news from the team tracking the coronavirus.`\
+https://nytimes.com/interactive/2020/12/04/us/coronavirus-this-week.html?searchResultPosition=5
 
 **Covid Survivors With Long-Term Symptoms Need Urgent Attention, Experts Say**\
 `In a two-day meeting sponsored by the N.I.H., officials acknowledged an insufficient understanding of the issues and warned of a growing public health problem.`\
