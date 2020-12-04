@@ -34,7 +34,7 @@ https://nytimes.com/video/us/politics/100000007487608/house-passes-marijuana-bil
 `Leaders say economic challenges prompted the move, and they promise a new residency program that pays. Artists who urged change feel betrayed.`\
 https://nytimes.com/2020/12/04/theater/flea-theater-the-bats.html?searchResultPosition=9
 
-**Considering a Post-pandemic Future**\
+**Considering a Post-Pandemic Future**\
 `What are you looking forward to?`\
 https://nytimes.com/2020/12/04/at-home/newsletter.html?searchResultPosition=10
 
