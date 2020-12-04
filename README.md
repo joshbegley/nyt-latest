@@ -15,7 +15,7 @@ https://nytimes.com/2020/12/03/pageoneplus/corrections-dec-4-2020.html?searchRes
 https://nytimes.com/2020/12/03/todayspaper/quotation-of-the-day-cyberattacks-are-discovered-on-vaccine-supply-network.html?searchResultPosition=4
 
 **Trump Associates Said to Have Been Scrutinized in Suspected Pardon Scheme**\
-`A billionaire from San Francisco sought clemency for a psychologist convicted of monetary crimes. The Republican donor Elliott Broidy and a lawyer who later represented Jared Kushner were enlisted.`\
+`A billionaire from the San Francisco area sought clemency for a psychologist convicted of monetary crimes. The Republican donor Elliott Broidy and a lawyer who later represented Jared Kushner were enlisted.`\
 https://nytimes.com/2020/12/03/us/pardon-elliott-broidy-abbe-lowell.html?searchResultPosition=5
 
 **Trump Lost the 2020 Election. He Has Raised $207.5 Million Since.**\
