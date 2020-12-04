@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2020/12/04/briefing/news-quiz-iran-utah-emergenc
 `Barack Obama, George W. Bush and Bill Clinton offered to take a coronavirus vaccine on camera. Jimmy Kimmel isn’t worried about losing viewers to that program.`\
 https://nytimes.com/2020/12/04/arts/television/late-night-obama-bush-clinton-vaccine.html?searchResultPosition=2
 
-**Blue State or Red, Pandemic Upends Public Services and Jobs**\
+**In Blue States and Red, Pandemic Upends Public Services and Jobs**\
 `As a standoff over federal aid persists, state and local governments are making deep budget cuts. “Everything’s going to slow down,” one official said.`\
 https://nytimes.com/2020/12/04/business/economy/state-local-finances.html?searchResultPosition=3
 
