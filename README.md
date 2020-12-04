@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/03/us/politics/kamala-harris-staff-tina-flournoy.htm
 https://nytimes.com/2020/12/03/business/coronavirus-stimulus-bill.html?searchResultPosition=5
 
 **Juan Williams of Fox News Is Said to Test Positive for Coronavirus**\
-`The liberal co-host of “The Five” is quarantining, and the program’s stars will appear remotely for the foreseeable future.`\
+`The liberal co-host of “The Five” is isolating himself, and the program’s stars will appear remotely for the foreseeable future.`\
 https://nytimes.com/2020/12/03/business/media/fox-news-juan-williams-coronavirus.html?searchResultPosition=6
 
 **Goodbye, U.S.D.A., Hello, Department of Food and Well-Being**\
