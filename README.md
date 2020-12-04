@@ -31,7 +31,7 @@ https://nytimes.com/2020/12/03/business/media/fox-news-juan-williams-coronavirus
 https://nytimes.com/2020/12/03/opinion/usda-agriculture-secretary-biden.html?searchResultPosition=8
 
 **Wildfire Erupts Outside Los Angeles, Forcing Evacuation of 25,000 Residents**\
-`Two firefighters were injured on Thursday in Orange County as efforts to contain the Bond fire continued.`\
+`Two firefighters were hospitalized with non-life-threatening injuries on Thursday in Orange County as efforts to contain the Bond fire continued.`\
 https://nytimes.com/2020/12/03/us/bond-fire-california.html?searchResultPosition=9
 
 **Wisconsin’s Top Court Rejects Trump Lawsuit as His Election Push Fades**\
