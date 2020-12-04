@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/04/business/dealbook/how-to-fix-america.html?searchResultPosition=1
 
 **At Least 2 U.S. Marshals Are Shot in the Bronx**\
-`The marshals’ conditions weren’t immediately known after the shooting in the Wakefield neighborhood, officials said. One suspect was shot.`\
+`The marshals’ conditions weren’t immediately known after the shooting in the Wakefield neighborhood, officials said. One suspect was also wounded.`\
 https://nytimes.com/2020/12/04/nyregion/marshals-shot-bronx.html?searchResultPosition=2
 
 **Biden Asks Fauci to Stay, and Plans a Mask Plea**\
@@ -27,7 +27,7 @@ https://nytimes.com/2020/12/04/world/asia/india-farmers-protest-pollution-corona
 https://nytimes.com/2020/12/04/briefing/california-covid-restrictions-warner-bros-stimulus.html?searchResultPosition=7
 
 **The President and Pre-Emptive Pardons**\
-`President Trump has discussed insulating his children and personal lawyer from criminal charges that have yet to be brought. Here’s a look at what he could do in his final days.`\
+`President Trump has discussed insulating his children and personal lawyer from criminal charges that have not yet been filed. Here’s a look at what he could do in his final days.`\
 https://nytimes.com/2020/12/04/podcasts/the-daily/donald-trump-pardons.html?searchResultPosition=8
 
 **The Puzzle of Low Interest Rates**\
