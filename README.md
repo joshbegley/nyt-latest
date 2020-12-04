@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/04/technology/european-union-child-sexual-abuse.html
 `Tough times may not bring love, but they do bring clarity.`\
 https://nytimes.com/2020/12/04/style/modern-love-ghosted-during-a-pandemic.html?searchResultPosition=3
 
-**Why is Australia Still Part of the British Monarchy?**\
+**Why Is Australia Still Part of the British Monarchy?**\
 `Exploring why we just can’t seem to break free.`\
 https://nytimes.com/2020/12/03/world/australia/why-is-australia-still-part-of-the-british-monarchy.html?searchResultPosition=4
 
