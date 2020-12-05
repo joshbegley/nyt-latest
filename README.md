@@ -1,40 +1,40 @@
-**Corrections: Dec. 5, 2020**\
-`Corrections that appeared in print on Saturday, Dec. 5, 2020.`\
-https://nytimes.com/2020/12/05/pageoneplus/corrections-dec-5-2020.html?searchResultPosition=1
+**After Perilous Atlantic Journey, Migrants Await Their Fate in Canary Island Hotels**\
+`The Spanish government has put migrants up in hotels as the islands struggle to cope with a rise in arrivals from Africa, but tensions are fraying with locals who fear they’ll scare off tourists.`\
+https://nytimes.com/2020/12/05/world/europe/after-perilous-atlantic-journey-migrants-await-their-fate-in-canary-island-hotels.html?searchResultPosition=1
 
-**Quotation of the Day: The Outcry Over Sex Testing Grows Louder**\
-`Quotation of the Day for Saturday, December 5, 2020.`\
-https://nytimes.com/2020/12/05/todayspaper/quotation-of-the-day-the-outcry-over-sex-testing-grows-louder.html?searchResultPosition=2
+**A Race Against Time to Rescue a Reef From Climate Change**\
+`In an unusual experiment, a coral reef in Mexico is now insured against hurricanes. A team of locals known as “the Brigade” rushed to repair the devastated corals, piece by piece.`\
+https://nytimes.com/2020/12/05/climate/Mexico-reef-climate-change.html?searchResultPosition=2
 
-**Liberty Win the W.N.B.A. Draft Lottery Again**\
-`The team, which took Sabrina Ionescu in the most recent draft, got the top pick for a second consecutive year. The choice will be more complicated this time.`\
-https://nytimes.com/2020/12/05/sports/liberty-wnba-draft-lottery.html?searchResultPosition=3
+**The ‘Mexican Beverly Hills’**\
+`How a former white enclave became an aspirational suburb for Latinos in Los Angeles.`\
+https://nytimes.com/2020/12/05/style/mexican-beverly-hills-downey-los-angeles.html?searchResultPosition=3
 
-**Japan’s Journey to an Asteroid Ends With a Hunt in Australia’s Outback**\
-`The Hayabusa2 mission cements Japan’s role in exploring the solar system, but finding its asteroid cargo presents one last challenge.`\
-https://nytimes.com/2020/12/05/science/japan-asteroid-hayabusa2-woomera.html?searchResultPosition=4
+**Festive Holiday Gifts for Newlyweds**\
+`Event planners and culinary professionals share some suggestions to help couples celebrate the season in style.`\
+https://nytimes.com/2020/12/05/style/festive-holiday-gifts-for-newlyweds.html?searchResultPosition=4
 
-**Diabolical**\
-`Get sucked into this Brendan Emmett Quigley construction, if you dare!`\
-https://nytimes.com/2020/12/04/crosswords/daily-puzzle-2020-12-05.html?searchResultPosition=5
+**One of the First Virus Hot Spots in the U.S. Is Under Siege Again**\
+`New Rochelle, N.Y., was a model for how to contain and control the coronavirus’s spread. But the city’s success may be fleeting.`\
+https://nytimes.com/2020/12/05/nyregion/new-rochelle-westchester-coronavirus.html?searchResultPosition=5
 
-**As Deadline Lapses, Trump Administration Continues TikTok Talks**\
-`The White House did not extend a Dec. 4 deadline for the Chinese internet company ByteDance to sell TikTok.`\
-https://nytimes.com/2020/12/04/technology/as-deadline-lapses-trump-administration-continues-tiktok-talks.html?searchResultPosition=6
+**Candice Bergen, Woman Who’s Had It All**\
+`The wryest of Hollywood royals recalls life with Daddy’s dummy, marriage to Louis Malle and a comedic career for the ages.`\
+https://nytimes.com/2020/12/05/style/candice-bergen-instagram-murphy-brown-steven-soderbergh.html?searchResultPosition=6
 
-**Vaccines End the Pandemic’s Political Harmony**\
-`Erin O’Toole, the Conservative leader, is using the government’s vaccine plans to begin his first big political attack on Prime Minister Justin Trudeau.`\
-https://nytimes.com/2020/12/04/world/canada/vaccines-end-the-pandemics-political-harmony.html?searchResultPosition=7
+**The Swiss Cheese Model of Pandemic Defense**\
+`It’s not edible, but it can save lives. The virologist Ian Mackay explains how.`\
+https://nytimes.com/2020/12/05/health/coronavirus-swiss-cheese-infection-mackay.html?searchResultPosition=7
 
-**The Virus Is Devastating the U.S., and Leaving an Uneven Toll**\
-`The United States saw the most new coronavirus cases of the pandemic on Friday, with deaths and hospitalizations also rising. Underlying conditions largely determine who survives.`\
-https://nytimes.com/2020/12/04/us/covid-united-states-surge.html?searchResultPosition=8
+**Police Drones Are Starting to Think for Themselves**\
+`In one Southern California city, flying drones with artificial intelligence are aiding investigations while presenting new civil rights questions.`\
+https://nytimes.com/2020/12/05/technology/police-drones.html?searchResultPosition=8
 
-**Flaws in Census Count Imperil Trump Plan to Exclude Undocumented Immigrants**\
-`More problems arise as the Census Bureau rushes to compile information needed for apportionment before President Trump leaves office.`\
-https://nytimes.com/2020/12/04/us/census-trump.html?searchResultPosition=9
+**Two Retiring Senators, Two Divergent Views on How to Save the Senate**\
+`Senators Lamar Alexander, a Republican, and Tom Udall, a Democrat, agree the institution needs fixing but differ on what the solution is.`\
+https://nytimes.com/2020/12/05/us/senate-lamar-alexander-tom-udall.html?searchResultPosition=9
 
-**A Gathering Political Storm Hits Georgia, With Trump on the Way**\
-`With two crucial Senate seats up for grabs, Mike Pence and Barack Obama joined the fray in support of their party’s candidates, and President Trump is headed there on Saturday.`\
-https://nytimes.com/2020/12/04/us/politics/trump-georgia-senate-obama.html?searchResultPosition=10
+**Cynthia Lummis, a Bull-Coaxing Conservative, Heads to the Senate**\
+`A right-wing rancher with a libertarian streak, Ms. Lummis, who served four terms in the House, is the first woman to represent Wyoming in the Senate.`\
+https://nytimes.com/2020/12/05/us/politics/cynthia-lummis-senate-wyoming.html?searchResultPosition=10
 
