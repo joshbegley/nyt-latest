@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/04/us/daca-reinstated.html?searchResultPosition=1
 `President Emmanuel Macron and others there have been angered by outside criticism.`\
 https://nytimes.com/2020/12/04/opinion/macron-terrorism-france.html?searchResultPosition=2
 
-**Stimulus Prospects Grow as Leaders Agree to Try for Year-end Deal**\
+**Stimulus Prospects Grow as Leaders Agree to Try for Year-End Deal**\
 `Speaker Nancy Pelosi and Senator Mitch McConnell, the majority leader, have agreed to try to reach a deal that could be included in a must-pass spending measure.`\
 https://nytimes.com/2020/12/04/us/politics/stimulus-deal-pelosi-mcconnell-biden.html?searchResultPosition=3
 
