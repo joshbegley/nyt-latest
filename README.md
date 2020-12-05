@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/05/us/daca-immigration-what-next.html?searchResultPo
 `Mr. Berlinger, who had dozens of roles in a career that spanned more than six decades, appeared in “Happy Days” and “The Cannonball Run.”`\
 https://nytimes.com/2020/12/05/arts/television/warren-berlinger-dead.html?searchResultPosition=2
 
-**Fred Sasakamoose, a Rare Indigenous N.H.L. Player, Dies at 86**\
+**Fred Sasakamoose, One of the First Indigenous N.H.L. Players, Dies at 86**\
 `He played only 11 games in hockey’s top league, but he inspired generations of athletes from Canada’s First Nations. He died after suffering complications of the coronavirus.`\
 https://nytimes.com/2020/12/05/obituaries/fred-sasakamoose-dead-coronavirus.html?searchResultPosition=3
 
