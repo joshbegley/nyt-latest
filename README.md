@@ -1,5 +1,5 @@
 **A Gathering Political Storm Hits Georgia, With Trump on the Way**\
-`With two crucial senate seats up for grabs, Mike Pence and Barack Obama joined the fray in support of their party’s candidates, and President Trump is headed there on Saturday.`\
+`With two crucial Senate seats up for grabs, Mike Pence and Barack Obama joined the fray in support of their party’s candidates, and President Trump is headed there on Saturday.`\
 https://nytimes.com/2020/12/04/us/politics/trump-georgia-senate-obama.html?searchResultPosition=1
 
 **Judge Orders Government to Fully Reinstate DACA Program**\
