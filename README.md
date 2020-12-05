@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/04/world/canada/vaccines-end-the-pandemics-political
 https://nytimes.com/2020/12/04/us/covid-united-states-surge.html?searchResultPosition=3
 
 **Flaws in Census Count Imperil Trump Plan to Exclude Undocumented Immigrants**\
-`More problems arise as the Census Bureau rushes to compile information needed for apportionment before Mr. Trump leaves office.`\
+`More problems arise as the Census Bureau rushes to compile information needed for apportionment before President Trump leaves office.`\
 https://nytimes.com/2020/12/04/us/census-trump.html?searchResultPosition=4
 
 **A Gathering Political Storm Hits Georgia, With Trump on the Way**\
