@@ -23,7 +23,7 @@ https://nytimes.com/2020/12/05/sports/soccer/manchester-united-west-ham-fans.htm
 https://nytimes.com/2020/12/05/world/africa/somalia-us-troops-withdraw.html?searchResultPosition=6
 
 **Trump Campaigns in Georgia With His Own Lost Race on His Mind**\
-`President Trump returned to the campaign trail on Saturday, but helping the two Republican senators in runoff elections that will decide control of the Senate wasn’t his entire agenda.`\
+`Before a rally supporting the two Republican senators in key runoff elections, President Trump urged the governor to call a special legislative session to overturn Joe Biden’s win in the state.`\
 https://nytimes.com/2020/12/05/us/trump-georgia-runoff.html?searchResultPosition=7
 
 **William Aronwald, Target of a Botched Mob Hit, Dies at 79**\
