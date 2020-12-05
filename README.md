@@ -12,7 +12,7 @@ https://nytimes.com/2020/12/05/world/greece-orthodox-church-coronavirus.html?sea
 
 **After Perilous Atlantic Journey, Migrants Await Their Fate in Canary Island Hotels**\
 `The Spanish government has put migrants up in hotels as the islands struggle to cope with a rise in arrivals from Africa, but tensions are fraying with locals who fear they’ll scare off tourists.`\
-https://nytimes.com/2020/12/05/world/europe/after-perilous-atlantic-journey-migrants-await-their-fate-in-canary-island-hotels.html?searchResultPosition=4
+https://nytimes.com/2020/12/05/world/europe/migrants-canary-island-hotels.html?searchResultPosition=4
 
 **A Race Against Time to Rescue a Reef From Climate Change**\
 `In an unusual experiment, a coral reef in Mexico is now insured against hurricanes. A team of locals known as “the Brigade” rushed to repair the devastated corals, piece by piece.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2020/12/05/climate/Mexico-reef-climate-change.html?searchRes
 
 **Candice Bergen, Woman Who’s Had It All**\
 `The wryest of Hollywood royals recalls life with Daddy’s dummy, marriage to Louis Malle and a comedic career for the ages.`\
-https://nytimes.com/2020/12/05/style/candice-bergen-instagram-murphy-brown-steven-soderbergh.html?searchResultPosition=6
+https://nytimes.com/2020/12/05/style/candice-bergen.html?searchResultPosition=6
 
 **The ‘Mexican Beverly Hills’**\
 `How a former white enclave became an aspirational suburb for Latinos in Los Angeles.`\
