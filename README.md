@@ -1,10 +1,10 @@
 **How Moderna’s Vaccine Works**\
 `Two shots can prime the immune system to fight the coronavirus.`\
-https://nytimes.com/interactive/2020/science/moderna-covid-19-vaccine.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/health/moderna-covid-19-vaccine.html?searchResultPosition=1
 
 **How Pfizer’s Vaccine Works**\
 `Two shots can prime the immune system to fight the coronavirus.`\
-https://nytimes.com/interactive/2020/science/pfizer-biontech-covid-19-vaccine.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/health/pfizer-biontech-covid-19-vaccine.html?searchResultPosition=2
 
 **The Sacklers’ Last Poison Pill**\
 `A trapdoor in the Justice Department deal with the family’s company might enable them to escape a full accounting of their part in the opioid epidemic.`\
