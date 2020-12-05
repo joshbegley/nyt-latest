@@ -1,5 +1,5 @@
 **Report Points to Microwave ‘Attack’ as Likely Source of Mystery Illnesses That Hit Diplomats and Spies**\
-`A government-commissioned report provides the most definitive explanation yet for “Havana syndrome,” which struck scores of employees, first in Cuba and then in China, Russia and other countries.`\
+`A government-commissioned report provides the most definitive explanation yet for “Havana syndrome,” which struck scores of American employees, first in Cuba and then in China, Russia and other countries.`\
 https://nytimes.com/2020/12/05/business/economy/havana-syndrome-microwave-attack.html?searchResultPosition=1
 
 **How Did Ancient Cultures Experience Reading?**\
