@@ -27,7 +27,7 @@ https://nytimes.com/2020/12/04/technology/as-deadline-lapses-trump-administratio
 https://nytimes.com/2020/12/04/world/canada/vaccines-end-the-pandemics-political-harmony.html?searchResultPosition=7
 
 **The Virus Is Devastating the U.S., and Leaving an Uneven Toll**\
-`The United States saw the most new coronavirus cases of the pandemic on Thursday, with deaths and hospitalizations also rising. Underlying conditions largely determine who survives.`\
+`The United States saw the most new coronavirus cases of the pandemic on Friday, with deaths and hospitalizations also rising. Underlying conditions largely determine who survives.`\
 https://nytimes.com/2020/12/04/us/covid-united-states-surge.html?searchResultPosition=8
 
 **Flaws in Census Count Imperil Trump Plan to Exclude Undocumented Immigrants**\
