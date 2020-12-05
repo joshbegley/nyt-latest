@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/05/opinion/autism-adult-diagnosis-women.html?searchR
 https://nytimes.com/2020/12/05/opinion/thailand-king-protests.html?searchResultPosition=2
 
 **The Elderly vs. Essential Workers: Who Should Get the Coronavirus Vaccine First?**\
-`The C.D.C. will soon decide which group to recommend next, and the debate over the trade-offs is growing heated. Ultimately, states will decide whom to include.`\
+`The C.D.C. will soon decide which group to recommend next, and the debate over the trade-offs is growing heated. Ultimately, states will determine whom to include.`\
 https://nytimes.com/2020/12/05/health/covid-vaccine-first.html?searchResultPosition=3
 
 **Historic Church Damaged in East Village Fire**\
