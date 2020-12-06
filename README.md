@@ -1,6 +1,6 @@
 **Giuliani has tested positive for the coronavirus, Trump says.**\
 `By Maggie Haberman`\
-https://nytimes.com/2020/12/06/world/giuliani-has-tested-positive-for-the-coronavirus-trump-says.html?searchResultPosition=1
+https://nytimes.com/2020/12/06/world/rudy-giuliani-covid.html?searchResultPosition=1
 
 **How ‘Wolves’ and ‘Heroes’ Are Saving Pandemic Theater**\
 `Serious new plays are always in danger of disappearing — never more so than now. But inventive virtual productions, such as “The Wolves” and “Heroes of the Fourth Turning,” offer hope.`\
