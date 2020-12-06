@@ -1,4 +1,4 @@
-**Biden to Pick Xavier Becerra to Lead Health and Human Services**\
+**Biden Picks Xavier Becerra to Lead Health and Human Services**\
 `The selection of Mr. Becerra, the California attorney general, is a surprise. If confirmed, he will face a daunting challenge in leading the department at a critical moment in the pandemic.`\
 https://nytimes.com/2020/12/06/us/politics/xavier-becerra-hhs-health-secretary.html?searchResultPosition=1
 
