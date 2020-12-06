@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/06/theater/wolves-and-heroes-virtual-theater.html?se
 https://nytimes.com/2020/12/06/movies/mank-citizen-kane-orson-welles.html?searchResultPosition=3
 
 **Georgia Officials Warn Trump’s Election Claims Could Hurt G.O.P. in Senate Runoff**\
-`President Trump has continued repeating baseless allegations surrounding his loss, and Republican state officials argue that it is undermining public trust in the elections process.`\
+`President Trump has continued to repeat baseless allegations surrounding his loss, and Republican state officials argue that it is undermining public trust in the elections process.`\
 https://nytimes.com/2020/12/06/us/georgia-senate-debate.html?searchResultPosition=4
 
 **Your Monday Briefing**\
