@@ -1,5 +1,5 @@
 **She Couldn’t Open for Outdoor Dining. The Film Crew Next Door Could.**\
-`Restaurant owners says Los Angeles County is unfairly enforcing its ban on outdoor dining, but health officials say rules for film crews are much more strict.`\
+`Restaurant owners say Los Angeles County is unfairly enforcing its ban on outdoor dining, but health officials say rules for film crews are much more strict.`\
 https://nytimes.com/2020/12/05/us/outdoor-dining-la-protest.html?searchResultPosition=1
 
 **‘They’re Playing With Our Lives’: What Happens Next for DACA’s ‘Dreamers’**\
