@@ -4,7 +4,7 @@ https://nytimes.com/video/us/100000007489110/new-england-winter-storm.html?searc
 
 **Residents of nursing homes could receive vaccine by the end of December, official says.**\
 `By Apoorva Mandavilli`\
-https://nytimes.com/2020/12/06/world/residents-of-nursing-homes-could-receive-vaccine-by-the-end-of-december-official-says.html?searchResultPosition=2
+https://nytimes.com/2020/12/06/world/covid-19-vaccine-timeline.html?searchResultPosition=2
 
 **‘Like a Cattle Yard’: How Justice Is Delivered in Australia’s Bush Courts**\
 `In some remote Aboriginal communities, judges and lawyers arrive by plane and handle dozens of cases in a single day. Critics say language barriers and the rapid pace infringe on human rights.`\
