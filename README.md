@@ -1,10 +1,10 @@
-**‘Existential Peril’: Mass Transit Faces Huge Service Cuts Across U.S.**\
-`Reeling from the pandemic, transit agencies are grappling with drastic reductions in ridership and pleading for help from Washington.`\
-https://nytimes.com/2020/12/06/nyregion/mass-transit-service-cuts-covid.html?searchResultPosition=1
-
 **Bergamo’s Pandemic Survivors Carry Scars Unseen and Incalculable**\
 `Plagued by guilt, anger and regrets, those still alive in the hardest hit place in Italy, and perhaps the world, grapple to understand how the virus has changed them.`\
-https://nytimes.com/2020/12/06/world/europe/bergamo-italy-coronavirus-covid-19-ptsd.html?searchResultPosition=2
+https://nytimes.com/2020/12/06/world/europe/bergamo-italy-coronavirus-covid-19-ptsd.html?searchResultPosition=1
+
+**‘Existential Peril’: Mass Transit Faces Huge Service Cuts Across U.S.**\
+`Reeling from the pandemic, transit agencies are grappling with drastic reductions in ridership and pleading for help from Washington.`\
+https://nytimes.com/2020/12/06/nyregion/mass-transit-service-cuts-covid.html?searchResultPosition=2
 
 **Some Colleges Plan to Bring Back More Students in the Spring**\
 `College officials say they have learned important lessons about managing the pandemic on their campuses. Not everyone is so confident.`\
