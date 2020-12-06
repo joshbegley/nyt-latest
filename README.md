@@ -1,5 +1,5 @@
-**Defiant Staten Island Bar Manager Hits Sheriff’s Deputy With Car**\
-`The manager of Mac’s Public House, which has ignored virus rules, hit the deputy while fleeing from arrest after authorities confronted him at the tavern, the sheriff said.`\
+**After Defying Virus Rules, Bar Manager Drives Car Into Sheriff’s Deputy**\
+`The manager of Mac’s Public House on Staten Island hit the deputy while fleeing from arrest after authorities confronted him, the sheriff said.`\
 https://nytimes.com/2020/12/06/nyregion/staten-island-bar-owner.html?searchResultPosition=1
 
 **In Brooklyn Bridge Park, Artwork Confronts Climate Change**\
