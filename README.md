@@ -12,7 +12,7 @@ https://nytimes.com/2020/12/07/arts/design/Ouroboros-Steak-design-museum.html?se
 
 **In Australia’s Deadly Year for Shark Attacks, a Surfer Lives to Tell the Tale**\
 `After being bitten by a great white in South Australia, the victim managed to paddle ashore and walk nearly 1,000 feet for help. He said the attack “was like being hit by a truck.”`\
-https://nytimes.com/2020/12/07/world/australia/shark-attack-survivor.html?searchResultPosition=4
+https://nytimes.com/2020/12/07/world/australia/australia-shark-attack-survivor.html?searchResultPosition=4
 
 **New York Philharmonic Musicians Agree to Years of Pandemic Pay Cuts**\
 `Anticipating a long road to financial recovery, the orchestra has decided on cuts that will gradually lessen.`\
