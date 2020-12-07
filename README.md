@@ -18,23 +18,23 @@ https://nytimes.com/2020/12/07/books/she-come-by-it-natural-dolly-parton-sarah-s
 `An album of previously unheard recordings from the “Time Out” sessions in 1959 reveals the making of a masterpiece.`\
 https://nytimes.com/2020/12/07/arts/music/dave-brubeck-time-outtakes-review.html?searchResultPosition=5
 
+**No, Kelly Loeffler didn’t wear a wire during a debate.**\
+`The false claim about the Georgia Republican was shared by some liberals on Twitter.`\
+https://nytimes.com/2020/12/07/technology/no-kelly-loeffler-didnt-wear-a-wire-during-a-debate.html?searchResultPosition=6
+
 **Cuomo Outlines New Criteria for Virus Restrictions**\
 `With hospitalizations rising, Gov. Andrew M. Cuomo of New York outlined new criteria for regional shutdowns and for restricting indoor dining.`\
-https://nytimes.com/video/nyregion/100000007490474/cuomo-coronavirus-new-york-restrictions.html?searchResultPosition=6
+https://nytimes.com/video/nyregion/100000007490474/cuomo-coronavirus-new-york-restrictions.html?searchResultPosition=7
 
 **Your Tuesday Briefing**\
 `People across Australia celebrate a return to (almost) normal.`\
-https://nytimes.com/2020/12/07/briefing/australia-restrictions-china-vaccine-pfizer-biontech.html?searchResultPosition=7
+https://nytimes.com/2020/12/07/briefing/australia-restrictions-china-vaccine-pfizer-biontech.html?searchResultPosition=8
 
 **After Botched Covid Response, U.K. Tackles Giant Vaccine Rollout**\
 `Britain left hospitals short of masks and gowns, and stumbled on testing and tracing, so can it vaccinate tens of millions of people in a matter of months? Experts think it can.`\
-https://nytimes.com/2020/12/07/world/europe/covid-uk-vaccine-pfizer.html?searchResultPosition=8
+https://nytimes.com/2020/12/07/world/europe/covid-uk-vaccine-pfizer.html?searchResultPosition=9
 
-**Is American Dietetics a White-Bread World? These Dietitians Think So**\
-`A new generation of practitioners says the profession pays inadequate attention to different kinds of diets, body types and lives.`\
-https://nytimes.com/2020/12/07/dining/dietitian-diversity.html?searchResultPosition=9
-
-**What Were the Jets Thinking?**\
-`The Jets looked to have their first win of the season sewn up. But a decision to send an all-out blitz against the Raiders on the final play handed Las Vegas the game-winning touchdown.`\
-https://nytimes.com/2020/12/07/sports/football/jets-raiders-gregg-williams-fired.html?searchResultPosition=10
+**Top Georgia election official debunks ‘ridiculous’ claims about election fraud.**\
+`The office of Georgia’s secretary of state dedicated part of a news conference to what was called “Disinformation Monday.”`\
+https://nytimes.com/2020/12/07/technology/top-georgia-election-official-debunks-ridiculous-claims-about-election-fraud.html?searchResultPosition=10
 
