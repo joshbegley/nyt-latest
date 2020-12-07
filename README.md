@@ -1,10 +1,10 @@
+**Lesson of the Day: ‘Pantyhose and Trash Bags: How Music Programs Are Surviving in the Pandemic’**\
+`In this lesson, students will learn about innovations embraced by student music groups that address concerns about spreading the coronavirus.`\
+https://nytimes.com/2020/12/07/learning/lesson-of-the-day-pantyhose-and-trash-bags-how-music-programs-are-surviving-in-the-pandemic.html?searchResultPosition=1
+
 **After Grand Theft Auto and Minecraft, Balenciaga: The Video Game?**\
 `The fashion house has created a game to showcase its latest collection, and everyone can play.`\
-https://nytimes.com/2020/12/07/style/balenciaga-video-game-afterworld.html?searchResultPosition=1
-
-**Moncler will buy its rival Stone Island in a $1.4 billion deal.**\
-`2020 has been the worst year in history for luxury brands. The deals, however, keep on coming.`\
-https://nytimes.com/2020/12/07/business/moncler-will-buy-its-rival-stone-island-in-a-1-4-billion-deal.html?searchResultPosition=2
+https://nytimes.com/2020/12/07/style/balenciaga-video-game-afterworld.html?searchResultPosition=2
 
 **Paul Sarbanes, Former Maryland Senator, Dies at 87**\
 `Early in his career, Mr. Sarbanes introduced the first article of impeachment against Richard Nixon. Decades later, he wrote legislation in response to fraud scandals involving Enron and other companies.`\
