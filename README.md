@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/07/todayspaper/quotation-of-the-day-in-debate-loeffl
 https://nytimes.com/2020/12/06/business/chickfila-poultry-prices-lawsuit.html?searchResultPosition=3
 
 **California Men Declare Themselves Makers of Pine Mountain Monolith**\
-`Four artist-fabricators say they made the mysterious manifestation in stainless steel that sprang up in Atascadero. Meanwhile, another rises in Las Vegas.`\
+`Four artist-fabricators say they made the mysterious manifestation in stainless steel that sprang up in Atascadero. Meanwhile, two others rise.`\
 https://nytimes.com/2020/12/06/arts/design/monolith-artists-reveal-themselves.html?searchResultPosition=4
 
 **Your Monday Briefing**\
