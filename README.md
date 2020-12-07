@@ -22,8 +22,8 @@ https://nytimes.com/2020/12/07/world/europe/romania-election.html?searchResultPo
 `A former nun, she transformed Manhattanville College as its president before becoming a philanthropic adviser to major foundations and the Rockefellers.`\
 https://nytimes.com/2020/12/07/nyregion/elizabeth-mccormack-dead.html?searchResultPosition=6
 
-**Mets’ Largess Can’t Beat Rangers’ Location for Chris Young**\
-`The Mets were in the hunt for one of the top general manager candidates in the game, but the ability to stay in Texas was something Steven Cohen’s billions couldn’t match.`\
+**Chris Young Heads Home, and the Mets Keep Waiting**\
+`The Mets were in the hunt for one of the top general manager candidates in the game, but the ability to stay in Texas was something Steven Cohen could never match.`\
 https://nytimes.com/2020/12/07/sports/baseball/chris-young-rangers-mets.html?searchResultPosition=7
 
 **MSNBC Names a New President as Rashida Jones Replaces Phil Griffin**\
