@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/06/business/media/pittsburgh-post-gazette-news-guild
 `Concerns about vaccination are unfortunate, but they have historical roots.`\
 https://nytimes.com/2020/12/06/opinion/blacks-vaccinations-health.html?searchResultPosition=2
 
-**Anti-Vaccine Scientist Has Been Invited to Testify Before Senate Committee**\
+**Anti-Vaccine Doctor Has Been Invited to Testify Before Senate Committee**\
 `The selection of Dr. Jane M. Orient as federal health officials are trying to promote a vaccine to end the coronavirus pandemic prompted harsh criticism from Senator Chuck Schumer, Democrat of New York.`\
 https://nytimes.com/2020/12/06/us/politics/anti-vax-scientist-senate-hearing.html?searchResultPosition=3
 
