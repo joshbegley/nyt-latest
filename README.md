@@ -1,6 +1,6 @@
 **After a Hard Year, Holiday Commercials Get Real**\
 `Tear-jerker scenes and reminders of the coronavirus pandemic are part of a not-so-cheery seasonal ad blitz.`\
-https://nytimes.com/2020/12/07/business/media/after-a-hard-year-holiday-commercials-get-real.html?searchResultPosition=1
+https://nytimes.com/2020/12/07/business/media/holiday-commercials-coronavirus-pandemic.html?searchResultPosition=1
 
 **$1.6 Million Homes in California**\
 `A midcentury-modern house in Lafayette, a remodeled 1967 home in Calabasas and a Victorian landmark in Nevada City.`\
