@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/07/us/politics/trump-hotel-payments.html?searchResultPosition=1
 
 **Xavier Becerra Brings Environmental Justice to Forefront**\
-`Joseph R. Biden, Jr.’s choice to run the Department of Health and Human Services  is the first state attorney general to create an environmental justice bureau`\
+`Joseph R. Biden, Jr.’s choice to run the Department of Health and Human Services is the first state attorney general to create an environmental justice bureau.`\
 https://nytimes.com/2020/12/07/climate/xavier-becerra-environmental-justice.html?searchResultPosition=2
 
 **How to Return to Campus Safely: Test, Then Test Again**\
