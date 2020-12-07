@@ -18,7 +18,7 @@ https://nytimes.com/2020/12/06/business/chickfila-poultry-prices-lawsuit.html?se
 `Four artist-fabricators say they made the mysterious manifestation in stainless steel that sprang up in Atascadero. Meanwhile, two others rise.`\
 https://nytimes.com/2020/12/06/arts/design/monolith-artists-reveal-themselves.html?searchResultPosition=5
 
-**Your Monday Briefing**\
+**Coronavirus, Brexit, Havana Syndrome: Your Monday Briefing**\
 `The loss, guilt and anger after an outbreak.`\
 https://nytimes.com/2020/12/06/briefing/bergamo-coronavirus-brexit-havana-syndrome.html?searchResultPosition=6
 
