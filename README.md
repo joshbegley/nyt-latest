@@ -6,13 +6,13 @@ https://nytimes.com/2020/12/07/nyregion/coronavirus-queens-epicenter.html?search
 `Otherwise, there won’t be enough shots to go around, even in rich countries.`\
 https://nytimes.com/2020/12/07/opinion/covid-vaccines-patents.html?searchResultPosition=2
 
+**Three Years After Family Separation, Her Son Is Back. But Her Life Is Not.**\
+`Many of the migrant families separated under the Trump administration’s most controversial immigration policy have been reunited. But some are still struggling.`\
+https://nytimes.com/2020/12/07/us/family-separation-complications.html?searchResultPosition=3
+
 **Best Songs of 2020**\
 `Tracks responding to real-time events and a spectrum of moods captured the hodgepodge feelings of life in lockdown.`\
-https://nytimes.com/2020/12/07/arts/music/best-songs.html?searchResultPosition=3
-
-**Three Years After Family Separation, Her Son Is Back. But Her Life Is Not.**\
-`Most of the migrant families separated under the Trump administration’s most controversial immigration policy have been reunited. But some are still struggling.`\
-https://nytimes.com/2020/12/07/us/family-separation-complications.html?searchResultPosition=4
+https://nytimes.com/2020/12/07/arts/music/best-songs.html?searchResultPosition=4
 
 **In a New York Neighborhood Reeling From the Virus, 1 in 4 Is Out of Work**\
 `Pandemic job losses have disproportionately hurt low-paid service workers who tend to be poor and people of color.`\
