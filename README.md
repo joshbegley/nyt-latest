@@ -24,7 +24,7 @@ https://nytimes.com/2020/12/07/world/canada/toronto-coronavirus-christmas-trees.
 
 **Pressure on California hospitals is still mounting fast, Newsom says.**\
 `By Jill Cowan`\
-https://nytimes.com/2020/12/07/us/pressure-on-california-hospitals-is-still-mounting-fast-newsom-says.html?searchResultPosition=7
+https://nytimes.com/live/2020/12/07/world/covid-19-coronavirus/pressure-on-california-hospitals-is-still-mounting-fast-newsom-says?searchResultPosition=7
 
 **Top Georgia Election Official Debunks ‘Ridiculous’ Claims About Election Fraud**\
 `The office of Georgia’s secretary of state dedicated part of a news conference to what was called “Disinformation Monday.”`\
