@@ -22,19 +22,19 @@ https://nytimes.com/2020/12/08/us/stay-at-home-california-order.html?searchResul
 `The Food and Drug Administration’s first analysis of the clinical trial data also found that the coronavirus vaccine worked well regardless of a volunteer’s race, weight or age.`\
 https://nytimes.com/2020/12/08/health/covid-vaccine-pfizer.html?searchResultPosition=6
 
-**Coronavirus Vaccine Tracker**\
-`A look at all the vaccines that have reached trials in humans.`\
-https://nytimes.com/interactive/2020/science/coronavirus-vaccine-tracker.html?searchResultPosition=7
-
 **Magnum Opus: ‘Bloom County’ 40 Years Later**\
 `Berkeley Breathed, the cartoonist behind the strip, talks about its past, its future and his problem with deadlines.`\
-https://nytimes.com/2020/12/08/arts/bloom-county-40-berkeley-breathed.html?searchResultPosition=8
+https://nytimes.com/2020/12/08/arts/bloom-county-40-berkeley-breathed.html?searchResultPosition=7
 
 **Celebrating the Holidays in a Tent**\
 `To visit with family and friends but still maintain social distancing, some people are camping out in the front and backyards of their hosts.`\
-https://nytimes.com/2020/12/08/realestate/holiday-camping-pandemic.html?searchResultPosition=9
+https://nytimes.com/2020/12/08/realestate/holiday-camping-pandemic.html?searchResultPosition=8
 
 **‘Mank’ and More Movies With Screenwriters as Main Characters**\
 `What makes a writer interesting as a movie character? These films seek to answer that question.`\
-https://nytimes.com/2020/12/08/movies/mank-screenwriter-movies.html?searchResultPosition=10
+https://nytimes.com/2020/12/08/movies/mank-screenwriter-movies.html?searchResultPosition=9
+
+**The Pope Blesses Business Plans**\
+`A new initiative brings the Vatican and C.E.O.s together.`\
+https://nytimes.com/2020/12/08/business/dealbook/pope-vatican-inclusive-capitalism.html?searchResultPosition=10
 
