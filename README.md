@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/08/realestate/holiday-camping-pandemic.html?searchRe
 https://nytimes.com/2020/12/08/movies/mank-screenwriter-movies.html?searchResultPosition=5
 
 **The Pope Blesses Business Plans**\
-`A new initiative brings the Vatican and C.E.O.s together, a sign of the growing influence of environmental and social initiatives in boardrooms.`\
+`A new initiative brings the Vatican and C.E.O.s together.`\
 https://nytimes.com/2020/12/08/business/dealbook/pope-vatican-inclusive-capitalism.html?searchResultPosition=6
 
 **Nepal and China Give Mount Everest, and Their Relations, a Boost**\
