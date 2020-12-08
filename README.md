@@ -26,15 +26,15 @@ https://nytimes.com/2020/12/08/travel/dakar-senegal-vacation-at-home.html?search
 `As New York City schools reopen, many families of color are choosing to keep students home. That disparity is raising alarms, given the shortcomings of remote learning.`\
 https://nytimes.com/2020/12/08/nyregion/ny-schools-reopening-inequality.html?searchResultPosition=7
 
+**Why Is the G.O.P. Refusing to Recognize Its Own Success?**\
+`Republicans not named Trump fared quite well in 2020, not that you can tell from listening to them.`\
+https://nytimes.com/2020/12/08/opinion/trump-fraud-republicans.html?searchResultPosition=8
+
 **C.D.C. Call for Data on Vaccine Recipients Raises Alarm Over Privacy**\
 `The Trump administration is requiring states to submit personal data — including names, birth dates and addresses — of Covid-19 vaccine recipients.`\
-https://nytimes.com/2020/12/08/us/politics/cdc-vaccine-data-privacy.html?searchResultPosition=8
+https://nytimes.com/2020/12/08/us/politics/cdc-vaccine-data-privacy.html?searchResultPosition=9
 
 **Here’s Why Vaccinated People Still Need to Wear a Mask**\
 `The new vaccines will probably prevent you from getting sick with Covid. No one knows yet whether they will keep you from spreading the virus to others — but that information is coming.`\
-https://nytimes.com/2020/12/08/health/covid-vaccine-mask.html?searchResultPosition=9
-
-**What We Know About the Voting in Georgia So Far**\
-`Monday was the deadline to register to vote for the January runoffs, and a big number of absentee ballots have already been requested. This time, those ballots may be counted more quickly.`\
-https://nytimes.com/2020/12/08/us/politics/georgia-senate-runoff-election.html?searchResultPosition=10
+https://nytimes.com/2020/12/08/health/covid-vaccine-mask.html?searchResultPosition=10
 
