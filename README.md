@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/07/dining/christmas-chocolates.html?searchResultPosi
 `As the United States approached 15 million cases, California’s situation despite its earlier restrictions was a cautionary tale.`\
 https://nytimes.com/2020/12/07/us/california-covid-restrictions.html?searchResultPosition=9
 
-**Sorry, General Austin. A General Should Not Be Secretary of Defense.**\
+**Sorry, Lloyd Austin. A General Should Not Be Secretary of Defense.**\
 `After a tumultuous four years, we need civilian leadership and a return to normalcy.`\
 https://nytimes.com/2020/12/07/opinion/biden-defense-secretary-dod.html?searchResultPosition=10
 
