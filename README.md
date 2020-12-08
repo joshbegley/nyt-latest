@@ -30,11 +30,11 @@ https://nytimes.com/2020/12/08/business/britain-metal-tariffs.html?searchResultP
 `Her vibrant “memory paintings,” which drew comparisons to the work of Grandma Moses and other regional artists, brought her renown late in life.`\
 https://nytimes.com/2020/12/08/arts/helen-lafrance-dead.html?searchResultPosition=8
 
+**In a meeting with Biden, the N.A.A.C.P. pushes for a civil rights envoy position in the White House.**\
+`By Annie Karni`\
+https://nytimes.com/2020/12/08/us/politics/in-a-meeting-with-biden-the-naacp-pushes-for-a-civil-rights-envoy-position-in-the-white-house.html?searchResultPosition=9
+
 **‘To the Ends of the Earth’ Review: Seeking a Big Fish, and More**\
 `A Japanese TV host is lost in and out of translation in Uzbekistan.`\
-https://nytimes.com/2020/12/08/movies/to-the-ends-of-the-earth-review.html?searchResultPosition=9
-
-**Five Takeaways From Olivia Jade’s First Interview About the College Admissions Scandal**\
-`The daughter of Lori Loughlin and Mossimo Giannulli, who are both serving prison sentences, appeared on “Red Table Talk.”`\
-https://nytimes.com/2020/12/08/style/olivia-jade-red-table-talk.html?searchResultPosition=10
+https://nytimes.com/2020/12/08/movies/to-the-ends-of-the-earth-review.html?searchResultPosition=10
 
