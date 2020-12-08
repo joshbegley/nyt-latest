@@ -1,4 +1,4 @@
-**Christmas Trees Provide a Bright Spot as Europeans Stay In**\
+**It’s a Lovely Winter in Europe. If You’re Selling Christmas Trees.**\
 `Sellers across the continent have reported surging demand, though coronavirus restrictions have complicated supply.`\
 https://nytimes.com/2020/12/08/world/europe/christmas-trees-coronavirus.html?searchResultPosition=1
 
