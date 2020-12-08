@@ -11,7 +11,7 @@ https://nytimes.com/video/us/politics/100000007492408/biden-team-health-nominees
 https://nytimes.com/2020/12/08/opinion/covid-pandemic-food-crisis.html?searchResultPosition=3
 
 **Army Finds ‘Major Flaws’ at Fort Hood; 14 Officials Disciplined**\
-`More than a dozen Army officials have been terminated or suspended as part of an investigation into the culture at Fort Hood in Texas. Specialist Vanessa Guillen was killed this year after reporting harassment.`\
+`More than a dozen Army officials have been fired or suspended as part of an investigation into the culture at Fort Hood in Texas. Specialist Vanessa Guillen was killed this year after reporting harassment.`\
 https://nytimes.com/2020/12/08/us/fort-hood-officers-fired-vanessa-guillen.html?searchResultPosition=4
 
 **What Made Leonardo Such a Great Artist? Science, Says a New Book**\
