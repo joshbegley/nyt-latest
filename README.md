@@ -22,19 +22,19 @@ https://nytimes.com/2020/12/08/sports/soccer/man-united-RB-leipzig-ralf-rangnick
 `“Sadly, this Covid test is the only positive thing to come out of Rudy Giuliani in four years,” Jimmy Kimmel joked on Monday.`\
 https://nytimes.com/2020/12/08/arts/television/jimmy-kimmel-rudy-giuliani-coronavirus.html?searchResultPosition=6
 
+**As Britain begins vaccinations, here are answers to some common questions.**\
+`By Benjamin Mueller and Carl Zimmer`\
+https://nytimes.com/2020/11/08/world/as-britain-begins-vaccinations-here-are-answers-to-some-common-questions.html?searchResultPosition=7
+
 **Corrections: Dec. 8, 2020**\
 `Corrections that appeared in print on Tuesday, Dec. 8, 2020.`\
-https://nytimes.com/2020/12/08/pageoneplus/corrections-dec-8-2020.html?searchResultPosition=7
+https://nytimes.com/2020/12/08/pageoneplus/corrections-dec-8-2020.html?searchResultPosition=8
 
 **Quotation of the Day: ‘I Think, I Feel, I Decide’: Rejecting Politics of the Polish Church**\
 `Quotation of the Day for Tuesday, December 8, 2020.`\
-https://nytimes.com/2020/12/08/todayspaper/quotation-of-the-day-i-think-i-feel-i-decide-rejecting-politics-of-the-polish-church.html?searchResultPosition=8
+https://nytimes.com/2020/12/08/todayspaper/quotation-of-the-day-i-think-i-feel-i-decide-rejecting-politics-of-the-polish-church.html?searchResultPosition=9
 
 **Trump Asked Pennsylvania House Speaker About Overturning His Loss**\
 `President Trump has failed to persuade elected Republicans in Michigan and Georgia to subvert the will of voters, and his effort appears to have stalled in Pennsylvania too.`\
-https://nytimes.com/2020/12/08/us/politics/trump-pennsylvania-house-speaker.html?searchResultPosition=9
-
-**Natalie Desselle, Comedic Heart of ‘BAPS’ and ‘Eve,’ Dies at 53**\
-`Her role as Halle Berry’s uproarious stardom-seeking sidekick helped define a decades-long career in film and TV.`\
-https://nytimes.com/2020/12/07/movies/natalie-desselle-reid-dead.html?searchResultPosition=10
+https://nytimes.com/2020/12/08/us/politics/trump-pennsylvania-house-speaker.html?searchResultPosition=10
 
