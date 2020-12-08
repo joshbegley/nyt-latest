@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/07/dining/resy-cookie-box.html?searchResultPosition=
 https://nytimes.com/2020/12/07/opinion/republicans-civility-benson.html?searchResultPosition=2
 
 **Christchurch Inquiry Says New Zealand Couldn’t Have Prevented Mosque Attacks**\
-`The investigation closes one of the most painful chapters in the country’s history.`\
+`But the Royal Commission, the country’s highest-level investigation, faulted lax gun regulations and the country’s “fragile” intelligence agencies.`\
 https://nytimes.com/2020/12/08/world/asia/christchurch-inquiry-report.html?searchResultPosition=3
 
 **My, What a Sneaky Little Flour**\
@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/07/dining/christmas-chocolates.html?searchResultPosi
 `As the United States approached 15 million cases, California’s situation despite its earlier restrictions was a cautionary tale.`\
 https://nytimes.com/2020/12/07/us/california-covid-restrictions.html?searchResultPosition=9
 
-**A General Shouldn’t Lead the Defense Department**\
+**Sorry, General Austin. A General Should Not Be Secretary of Defense.**\
 `After a tumultuous four years, we need civilian leadership and a return to normalcy.`\
 https://nytimes.com/2020/12/07/opinion/biden-defense-secretary-dod.html?searchResultPosition=10
 
