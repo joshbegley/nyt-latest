@@ -1,5 +1,5 @@
 **Trump Asked Pennsylvania House Speaker About Overturning His Loss**\
-`President Trump has already failed to persuade elected Republicans in Michigan and Georgia to subvert the will of voters, and his effort appears to have stalled in Pennsylvania as well.`\
+`President Trump has failed to persuade elected Republicans in Michigan and Georgia to subvert the will of voters, and his effort appears to have stalled in Pennsylvania too.`\
 https://nytimes.com/2020/12/08/us/politics/trump-pennsylvania-house-speaker.html?searchResultPosition=1
 
 **Natalie Desselle, Comedic Heart of ‘BAPS’ and ‘Eve,’ Dies at 53**\
