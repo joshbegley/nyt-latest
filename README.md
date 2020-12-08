@@ -1,5 +1,5 @@
 **‘Go for It’: U.K.’s First Vaccine Patient Encourages Others**\
-`Margaret Keenan, the first patient in Britain to receive the coronavirus vaccine, hopes to set an example for people hesitant to become vaccinated.`\
+`Margaret Keenan, the first patient in Britain to receive the coronavirus vaccine, hopes to set an example for people hesitant to get vaccinated.`\
 https://nytimes.com/video/world/100000007492334/coronavirus-vaccine-united-kingdom.html?searchResultPosition=1
 
 **He Pretended to Be Trump’s Family. Then Trump Fell for It.**\
