@@ -24,7 +24,7 @@ https://nytimes.com/2020/12/08/health/covid-vaccine-pfizer.html?searchResultPosi
 
 **Coronavirus Vaccine Tracker**\
 `A look at all the vaccines that have reached trials in humans.`\
-https://nytimes.com/interactive/2020/science/coronavirus-vaccine-tracker-esp-2.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/science/coronavirus-vaccine-tracker.html?searchResultPosition=7
 
 **Magnum Opus: ‘Bloom County’ 40 Years Later**\
 `Berkeley Breathed, the cartoonist behind the strip, talks about its past, its future and his problem with deadlines.`\
