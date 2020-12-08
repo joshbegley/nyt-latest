@@ -14,17 +14,17 @@ https://nytimes.com/2020/12/08/us/xavier-becerra-hhs.html?searchResultPosition=3
 `It’s not just party balloons. A huge Siberian production plant is expected to reshape the market for a gas that’s essential to many critical industries.`\
 https://nytimes.com/2020/12/08/business/energy-environment/russia-helium.html?searchResultPosition=4
 
+**Racial Divide in Reopened Classrooms: More White Than Black Children**\
+`As New York City schools reopen, many families of color are choosing to keep students home. That disparity is raising alarms, given the shortcomings of remote learning.`\
+https://nytimes.com/2020/12/08/nyregion/ny-schools-reopening-inequality.html?searchResultPosition=5
+
 **Decorating for the Holidays in a Gloomy Year**\
 `With fewer guests, you may be tempted to scale back your seasonal décor. But in 2020, many designers say, less definitely isn’t more.`\
-https://nytimes.com/2020/12/08/realestate/holiday-decorating-in-pandemic.html?searchResultPosition=5
+https://nytimes.com/2020/12/08/realestate/holiday-decorating-in-pandemic.html?searchResultPosition=6
 
 **How to Pretend You’re in Dakar Today**\
 `The Senegalese capital has an aura that seeps into the soul. Bustling and addictive, it makes you want to stick around.`\
-https://nytimes.com/2020/12/08/travel/dakar-senegal-vacation-at-home.html?searchResultPosition=6
-
-**Racial Divide in Reopened Classrooms: More White Than Black Children**\
-`As New York City schools reopen, many families of color are choosing to keep students home. That disparity is raising alarms, given the shortcomings of remote learning.`\
-https://nytimes.com/2020/12/08/nyregion/ny-schools-reopening-inequality.html?searchResultPosition=7
+https://nytimes.com/2020/12/08/travel/dakar-senegal-vacation-at-home.html?searchResultPosition=7
 
 **Why Is the G.O.P. Refusing to Recognize Its Own Success?**\
 `Republicans not named Trump fared quite well in 2020, not that you can tell from listening to them.`\
