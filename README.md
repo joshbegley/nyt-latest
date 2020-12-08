@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/08/science/astronomy-cosmos-blackness.html?searchRes
 `While people deliberately breed plants, a team of researchers say humans have inadvertently prompted this one to develop camouflage.`\
 https://nytimes.com/2020/12/08/science/plant-camouflage-evolution.html?searchResultPosition=2
 
-**U.S. Sanctions Chinese Officials Over Hong Kong Crackdown**\
+**U.S. Imposes Sanctions on Chinese Officials Over Hong Kong Crackdown**\
 `Fourteen senior Chinese officials face travel bans and financial sanctions. In Hong Kong, the police stepped up arrests of pro-democracy politicians and activists.`\
 https://nytimes.com/2020/12/08/world/asia/hong-kong-china-us-sanctions.html?searchResultPosition=3
 
