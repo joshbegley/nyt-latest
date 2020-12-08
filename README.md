@@ -22,8 +22,8 @@ https://nytimes.com/2020/12/07/theater/flying-lovers-review-chagall.html?searchR
 `A World War II fighter ace and Air Force general, he was, according to Tom Wolfe, “the most righteous of all the possessors of the right stuff.”`\
 https://nytimes.com/2020/12/07/us/chuck-yeager-dead.html?searchResultPosition=6
 
-**Your Tuesday Briefing**\
-`The first day of Britain’s coronavirus vaccinations.`\
+**Vaccines, Brexit, Biden: Your Tuesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/12/07/briefing/brexit-coronavirus-vaccine-biden-victory.html?searchResultPosition=7
 
 **Like the Year You Ring In**\
