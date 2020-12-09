@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/09/sports/golf/patrick-reed-european-tour.html?searc
 `The pandemic forced the golf tour to start almost from scratch. But six months later, it’s holding the tournament that will determine its champion.`\
 https://nytimes.com/2020/12/09/sports/golf/european-tour-championship.html?searchResultPosition=9
 
-**When Podcasts Bridged the Social Distance**\
-`The voices that piped into our ears carried more than stories — they brought in the outside world.`\
-https://nytimes.com/2020/12/09/arts/music/podcasts-quarantine.html?searchResultPosition=10
+**This Was the Year When Everything Became TV**\
+`As a global pandemic left us homebound, cousin Emily in Pittsburgh existed on the same plane as “Emily in Paris.”`\
+https://nytimes.com/2020/12/09/arts/television/everything-became-tv.html?searchResultPosition=10
 
