@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/09/business/china-coronavirus-vaccine-united-arab-em
 `The fund will divest from many fossil fuels in the next five years and sell its shares in other companies that contribute to global warming by 2040.`\
 https://nytimes.com/2020/12/09/nyregion/new-york-pension-fossil-fuels.html?searchResultPosition=9
 
-**Video Shows: West Virginia Chemical Explosion**\
+**Video Shows West Virginia Chemical Explosion**\
 `A large explosion at a West Virginia chemical plant flung debris more than a mile away late on Tuesday. At least four people were hospitalized and residents nearby were asked to shelter in place.`\
 https://nytimes.com/video/us/100000007494457/west-virginia-chemical-explosion.html?searchResultPosition=10
 
