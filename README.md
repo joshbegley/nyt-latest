@@ -30,7 +30,7 @@ https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100
 `Sotheby’s International Realty`\
 https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007493935/sothebys-international-realty.html?searchResultPosition=8
 
-**White House Offers $916 Billion Stimulus Proposal as Talks Intensify**\
+**White House Offers $916 Billion Stimulus Proposal, Cutting Jobless Benefits**\
 `The proposal by Steven Mnuchin, the Treasury secretary, was the administration’s first substantive engagement with Congress on a stimulus deal since the election.`\
 https://nytimes.com/2020/12/08/us/politics/congress-coronavirus-stimulus.html?searchResultPosition=9
 
