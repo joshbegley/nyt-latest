@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/09/sports/basketball/saying-goodbye-to-the-trips-of-
 https://nytimes.com/2020/12/09/us/xavier-becerra-attorney-general.html?searchResultPosition=5
 
 **Dez Bryant’s Wild Ride: a Positive Test, a Glass of Wine, a Ravens Win**\
-`After testing positive for the coronavirus, receiver Dez Bryant missed Baltimore’s game against the Dallas Cowboys. But fans were still able to follow his emotional evening in real time on Twitter.`\
+`After testing positive for the coronavirus, receiver Dez Bryant missed Baltimore’s game against the Dallas Cowboys. But fans were still able to follow his emotional evening in real time.`\
 https://nytimes.com/2020/12/09/sports/football/dez-bryant-ravens-cowboys-coronavirus.html?searchResultPosition=6
 
 **Iran Claims Arrests in Killing of Top Nuclear Scientist**\
