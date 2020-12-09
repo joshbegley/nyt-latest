@@ -15,7 +15,7 @@ https://nytimes.com/2020/12/09/us/coronavirus-today.html?searchResultPosition=3
 https://nytimes.com/2020/12/09/us/politics/biden-lloyd-austin-defense-secretary.html?searchResultPosition=4
 
 **Disney to Reveal Plans to Turbocharge Streaming Offerings**\
-`Some big-budget movies will first go to theaters. Others offerings will debut online. All will ultimately strengthen Disney+.`\
+`Some big-budget movies will first go to theaters. Other offerings will debut online. All will ultimately strengthen Disney+.`\
 https://nytimes.com/2020/12/09/business/media/disney-plus-new-movies.html?searchResultPosition=5
 
 **Biden Picks Katherine Tai as Trade Representative**\
