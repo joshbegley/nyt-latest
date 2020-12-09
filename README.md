@@ -1,4 +1,4 @@
-**The Best Albums of 2020? Let’s Discuss.**\
+**The Best Albums of 2020? Let’s Discuss**\
 `An absence of live music refocused attention on records, and work by Fiona Apple, Taylor Swift and Run the Jewels spoke loudly.`\
 https://nytimes.com/2020/12/09/arts/music/popcast-best-albums-2020.html?searchResultPosition=1
 
