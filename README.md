@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/09/sports/arnie-robinson-dead-covid.html?searchResul
 `With the Crimson Tide, he had a tough act to follow, Bear Bryant, but he enjoyed some success. He didn’t fare so well with the Giants and the Buccaneers.`\
 https://nytimes.com/2020/12/09/sports/football/ray-perkins-dead.html?searchResultPosition=2
 
-**SpaceX’s Starship Launches and Explodes in Crash Landing**\
+**Watch SpaceX’s Starship Launch and Explode in Crash Landing**\
 `The company described the test of the next-generation spacecraft as “awesome” even though it ended in a fiery blast.`\
 https://nytimes.com/2020/12/09/science/spacex-starship-crash.html?searchResultPosition=3
 
