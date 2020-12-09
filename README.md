@@ -3,7 +3,7 @@
 https://nytimes.com/video/nyregion/100000007494682/cuomo-vaccine-distribution-plan.html?searchResultPosition=1
 
 **Read Riley McCusker’s Lawsuit**\
-`The gymnast, who has a good chance of making the U.S. Olympic team for next summer’s Tokyo Games, has accused her coach Maggie Haney of forcing her to train with injuries. Haney has denied those accusations.`\
+`The gymnast has accused her coach Maggie Haney of forcing her to train with injuries. Haney has denied those accusations.`\
 https://nytimes.com/interactive/2020/12/09/sports/redacted-riley-mc-cusker-lawsuit.html?searchResultPosition=2
 
 **Fleeing Ethiopians Tell of Ethnic Massacres in Tigray War**\
