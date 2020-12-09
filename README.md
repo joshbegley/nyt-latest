@@ -2,7 +2,7 @@
 `Around the world, flouting coronavirus regulations can have expensive consequences.`\
 https://nytimes.com/2020/12/09/world/coronavirus-covid-19-quarantine-fine.html?searchResultPosition=1
 
-**Chinese vaccine is 86 percent effective, says U.A.E. where trials were held.**\
+**Chinese vaccine is 86 percent effective, says U.A.E., where trials were held.**\
 `By Sui-Lee Wee`\
 https://nytimes.com/2020/12/08/world/chinese-vaccine-is-86-percent-effective-says-uae-where-trials-were-held.html?searchResultPosition=2
 
