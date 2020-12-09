@@ -6,8 +6,8 @@ https://nytimes.com/2020/12/09/pageoneplus/corrections-dec-9-2020.html?searchRes
 `A federal lawsuit says that Moda Latina BZ, a Los Angeles County company, deceived consumers into thinking they could make up to $500 a week selling perfume, makeup and other items.`\
 https://nytimes.com/2020/12/08/us/moda-latina-ftc-lawsuit.html?searchResultPosition=2
 
-**Your Wednesday Briefing**\
-`The world’s first authorized Covid-19 vaccines.`\
+**Vaccines, Brexit, Obama: Your Wednesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/12/08/briefing/covid-vaccine-brexit-obama.html?searchResultPosition=3
 
 **A Year Like No Other**\
