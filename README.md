@@ -30,9 +30,9 @@ https://nytimes.com/2020/12/09/opinion/letters/covid-public-health.html?searchRe
 `For nine months, the hit musical about the wives of Henry VIII has tried to keep the show going. But that’s not easy in a pandemic.`\
 https://nytimes.com/2020/12/09/theater/six-musical-return.html?searchResultPosition=8
 
-**Watch Live: Biden Introduces Secretary of Defense Nominee**\
-`President-elect Joseph R. Biden Jr. and Vice President-elect Kamala Harris will introduce Gen. Lloyd J. Austin III, a retired four-star Army general, as the nominee for secretary of Defense.`\
-https://nytimes.com/video/us/politics/100000007494638/biden-defense-secretary-video.html?searchResultPosition=9
+**Watch Full Video: Biden Introduces Secretary of Defense Nominee**\
+`President-elect Joseph R. Biden Jr. and Vice President-elect Kamala Harris introduced Gen. Lloyd J. Austin III, a retired four-star Army general, as the nominee for secretary of Defense.`\
+https://nytimes.com/video/embedded/us/politics/100000007494638/biden-defense-secretary-video.html?searchResultPosition=9
 
 **A Year of Radical Political Imagination**\
 `Mass protest movements changed the world’s attitude toward social justice.`\
