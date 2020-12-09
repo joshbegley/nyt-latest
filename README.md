@@ -24,7 +24,7 @@ https://nytimes.com/2020/12/09/sports/football/dez-bryant-ravens-cowboys-coronav
 
 **Iran Claims Arrests in Killing of Top Nuclear Scientist**\
 `A parliamentary adviser told a state-run news outlet that some people he accused of involvement in the assassination last month of the scientist, Mohsen Fakhrizadeh, had been arrested.`\
-https://nytimes.com/2020/12/09/world/middleeast/iran-arrests.html?searchResultPosition=7
+https://nytimes.com/2020/12/09/world/middleeast/iran-mohsen-fakhrizadeh-arrests.html?searchResultPosition=7
 
 **What TikTok Taught One Stand-Up Comic**\
 `Carmen Lynch told the same joke on “The Tonight Show” and an album. It didn’t take off until she made it the subject of a goofy video posted on the platform.`\
