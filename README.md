@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/09/us/politics/us-turkey-trump-erdogan.html?searchRe
 
 **Pantone Picks Two Colors of the Year for 2021**\
 `It’s all about the messaging. Get ready for a brighter future.`\
-https://nytimes.com/2020/12/09/style/pantone-color-of-the-year-ultimate-Gray-and-illuminating.html?searchResultPosition=3
+https://nytimes.com/2020/12/09/style/pantone-color-2021-ultimate-gray-illuminating.html?searchResultPosition=3
 
 **‘On Social Media, There Are Thousands’: In Cuba, Internet Fuels Rare Protests**\
 `Artists gathered by the hundreds in Cuba’s largest protest in decades after seeing videos of police detentions that were filmed on cellphones and circulated online.`\
