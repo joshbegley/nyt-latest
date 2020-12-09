@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/09/us/pandemic-holiday-christmas.html?searchResultPo
 https://nytimes.com/2020/12/09/technology/twitch-harassment-policy.html?searchResultPosition=3
 
 **Pandemic Closures Devastate Restaurant Industry’s Middle Class**\
-`A sous-chef’s search for job security shows how cooks, managers and servers at fine dining establishments have been hit hard by the pandemic.`\
+`A sous-chef’s search for job security shows how cooks, managers and servers at upscale dining establishments have been hit hard by the pandemic.`\
 https://nytimes.com/2020/12/09/business/pandemic-restaurant-middle-class.html?searchResultPosition=4
 
 **How to Clean Your Office Chair**\
