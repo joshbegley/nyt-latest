@@ -1,4 +1,4 @@
-**Carnegie Hall Stands by Its Chairman, Despite Tax Violations**\
+**Carnegie Hall Stands By Its Chairman, Despite Tax Violations**\
 `Robert F. Smith has acknowledged his involvement in a 15-year scheme to hide more than $200 million in income and evade taxes, but he retains the support of the hall’s board.`\
 https://nytimes.com/2020/12/09/arts/music/carnegie-hall-robert-f-smith-tax-violations.html?searchResultPosition=1
 
