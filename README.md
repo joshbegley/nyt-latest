@@ -1,40 +1,40 @@
+**With These Experiences for Kids, All the Living Room’s a Stage**\
+`Theatermakers are devising new, immersive ways to engage children, with a few sending boxes of props and set pieces to your home.`\
+https://nytimes.com/2020/12/09/theater/kids-immersive-theater.html?searchResultPosition=1
+
+**Canada Approves Coronavirus Vaccine, a Step Toward Defeating Pandemic**\
+`Canada approved the same inoculation codeveloped by Pfizer that Britain authorized last week, and American regulators will consider on Thursday.`\
+https://nytimes.com/2020/12/09/world/americas/canada-vaccine-approve.html?searchResultPosition=2
+
 **Planned Execution Stirs Debate Over Punishment for Young Offenders**\
 `Brandon Bernard was 18 when he took part in the grisly murders of two youth ministers. He is scheduled to be put to death on Thursday despite a drive among his supporters for clemency.`\
-https://nytimes.com/2020/12/09/us/politics/brandon-bernard-death-penalty.html?searchResultPosition=1
+https://nytimes.com/2020/12/09/us/politics/brandon-bernard-death-penalty.html?searchResultPosition=3
 
 **Casey Goodson Died From Multiple Gunshot Wounds, Coroner Says**\
 `Mr. Goodson, of Columbus, Ohio, was shot several times in the torso, the coroner said. He was shot by a member of a fugitive task force who the authorities said was searching for someone else.`\
-https://nytimes.com/2020/12/09/us/casey-goodson-ohio-homicide.html?searchResultPosition=2
+https://nytimes.com/2020/12/09/us/casey-goodson-ohio-homicide.html?searchResultPosition=4
 
 **When Murder Hornets Menace Their Hive, Bees Decorate It With Animal Feces**\
 `Asian honeybees have exhibited what scientists call a form of tool use to deter attacks by giant predatory wasps.`\
-https://nytimes.com/2020/12/09/science/bees-poop-murder-hornets.html?searchResultPosition=3
+https://nytimes.com/2020/12/09/science/bees-poop-murder-hornets.html?searchResultPosition=5
 
 **For Canadians Held in China, Two Years of Isolation and Uncertainty**\
 `The fates of Michael Kovrig and Michael Spavor appear tied to a Chinese technology executive detained in Canada on a U.S. warrant. Some hope the new Biden administration could hasten their release.`\
-https://nytimes.com/2020/12/09/world/asia/china-canada-michael-kovrig-spavor.html?searchResultPosition=4
+https://nytimes.com/2020/12/09/world/asia/china-canada-michael-kovrig-spavor.html?searchResultPosition=6
 
 **Name One Good Thing About 2020**\
 `We invite readers to think of something positive about a dismal year.`\
-https://nytimes.com/2020/12/09/opinion/letters/year-end-2020.html?searchResultPosition=5
+https://nytimes.com/2020/12/09/opinion/letters/year-end-2020.html?searchResultPosition=7
 
 **Guido Goldman, a U.S. Bridge to Germany, Dies at 83**\
 `A Kissinger protégé (and a pre-eminent textile art collector), his fingerprints can be found on many of the leading postwar institutions linking the two allies.`\
-https://nytimes.com/2020/12/09/world/europe/guido-goldman-dead.html?searchResultPosition=6
+https://nytimes.com/2020/12/09/world/europe/guido-goldman-dead.html?searchResultPosition=8
 
 **At Johns Hopkins, Revelations About Its Founder and Slavery**\
 `The university and its medical system have long celebrated their founding benefactor as a staunch abolitionist. But newly surfaced documents tell a different story.`\
-https://nytimes.com/2020/12/09/arts/johns-hopkins-slavery-abolitionist.html?searchResultPosition=7
+https://nytimes.com/2020/12/09/arts/johns-hopkins-slavery-abolitionist.html?searchResultPosition=9
 
 **Why Can’t Some Take Covid Seriously?**\
 `Readers call for unsparing news coverage of the illness’s severity.`\
-https://nytimes.com/2020/12/09/opinion/letters/covid-public-health.html?searchResultPosition=8
-
-**‘Six’ Tries to Get Back Onstage. Again, and Again, and Again.**\
-`For nine months, the hit musical about the wives of Henry VIII has tried to keep the show going. But that’s not easy in a pandemic.`\
-https://nytimes.com/2020/12/09/theater/six-musical-return.html?searchResultPosition=9
-
-**Watch Full Video: Biden Introduces Secretary of Defense Nominee**\
-`President-elect Joseph R. Biden Jr. and Vice President-elect Kamala Harris introduced Gen. Lloyd J. Austin III, a retired four-star Army general, as the nominee for secretary of Defense.`\
-https://nytimes.com/video/embedded/us/politics/100000007494638/biden-defense-secretary-video.html?searchResultPosition=10
+https://nytimes.com/2020/12/09/opinion/letters/covid-public-health.html?searchResultPosition=10
 
