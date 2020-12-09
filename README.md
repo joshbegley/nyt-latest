@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/09/style/tone-indicators-online.html?searchResultPos
 
 **Will Art Lovers Open Their Wallets for Online Tours?**\
 `Two London museums have started charging to experience their shows on the internet.`\
-https://nytimes.com/2020/12/09/arts/online-museum-tours-artemisia.html?searchResultPosition=3
+https://nytimes.com/2020/12/09/arts/design/online-museum-tours-artemisia.html?searchResultPosition=3
 
 **Top Mayoral Candidate’s Choice: Should He Send His Sons Back to School?**\
 `If Scott Stringer wins the race next year, his experience as a parent is likely to inform how he guides New York’s public schools out of crisis.`\
