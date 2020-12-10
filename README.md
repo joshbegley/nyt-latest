@@ -1,40 +1,40 @@
+**Why We’re Talking About the California-Texas Rivalry, Again**\
+`Thursday: What the two states’ “frenemy” relationship says about the economy. Also: An update on the pandemic.`\
+https://nytimes.com/2020/12/10/us/california-texas-elon-musk.html?searchResultPosition=1
+
 **Afghan Journalist Is Killed in Latest Attack on Media Figures**\
 `Gunmen attacked Malalai Maiwand, a well-known TV and radio journalist, in Jalalabad. Her death is one of a string of high-profile targeted killings in Afghanistan.`\
-https://nytimes.com/2020/12/10/world/asia/afghanistan-journalist-malalai-maiwand.html?searchResultPosition=1
+https://nytimes.com/2020/12/10/world/asia/afghanistan-journalist-malalai-maiwand.html?searchResultPosition=2
 
 **To Deter Iranian Attacks on U.S. Troops, Pentagon Orders B-52 Flights to Middle East**\
 `It was the second time in three weeks that Air Force bombers had conducted long-range flights near Iranian air space on short notice.`\
-https://nytimes.com/2020/12/10/world/middleeast/bombers-iran-deterrence.html?searchResultPosition=2
+https://nytimes.com/2020/12/10/world/middleeast/bombers-iran-deterrence.html?searchResultPosition=3
 
 **Minneapolis City Council Votes to Remove $8 Million From Police Budget**\
 `The move comes as the city grapples with efforts to overhaul the department after the police killing of George Floyd.`\
-https://nytimes.com/2020/12/10/us/minneapolis-police-funding.html?searchResultPosition=3
+https://nytimes.com/2020/12/10/us/minneapolis-police-funding.html?searchResultPosition=4
 
 **Who Wants to Undo Facebook?**\
 `The F.T.C. and more than 40 states seek to break up the tech giant.`\
-https://nytimes.com/2020/12/10/business/dealbook/facebook-undo-lawsuits.html?searchResultPosition=4
+https://nytimes.com/2020/12/10/business/dealbook/facebook-undo-lawsuits.html?searchResultPosition=5
 
 **How ‘The Queen’s Gambit’ Is Inspiring Women to Take Up Chess**\
 `Fans of the Netflix series, including teenagers and the actress Beth Behrs, are flocking to the game because “women can be rock stars” in chess.`\
-https://nytimes.com/2020/12/10/arts/television/queens-gambit-netflix-chess.html?searchResultPosition=5
+https://nytimes.com/2020/12/10/arts/television/queens-gambit-netflix-chess.html?searchResultPosition=6
 
 **‘Assassins’ Review: Duped Into an International Murder Plot**\
 `A documentary tries to explain how two women were able to cause the death of the North Korean leader’s half brother.`\
-https://nytimes.com/2020/12/10/movies/assassins-review.html?searchResultPosition=6
+https://nytimes.com/2020/12/10/movies/assassins-review.html?searchResultPosition=7
 
 **Antitrust Suits and a Hail Mary**\
 `By Giovanni Russonello`\
-https://nytimes.com/2020/12/10/us/politics/antitrust-suits-and-a-hail-mary.html?searchResultPosition=7
+https://nytimes.com/2020/12/10/us/politics/antitrust-suits-and-a-hail-mary.html?searchResultPosition=8
 
 **‘The Prom’ Review: Showbiz Sanctimony, and All That Zazz**\
 `Ryan Murphy takes on the Broadway hit “The Prom,” with help from Meryl Streep, Nicole Kidman and Keegan-Michael Key.`\
-https://nytimes.com/2020/12/10/movies/the-prom-review.html?searchResultPosition=8
+https://nytimes.com/2020/12/10/movies/the-prom-review.html?searchResultPosition=9
 
 **‘Through the Night’ Review: Tucking In Children When Their Parents Can’t**\
 `A new documentary looks at a 24-hour day care center a couple runs in their home.`\
-https://nytimes.com/2020/12/10/arts/through-the-night-review.html?searchResultPosition=9
-
-**‘Funny Boy’ Review: Coming Out During Civil War**\
-`Deepa Mehta’s sprawling coming-of-age drama follows a boy who realizes he is gay in a country that criminalizes homosexuality.`\
-https://nytimes.com/2020/12/10/movies/funny-boy-review.html?searchResultPosition=10
+https://nytimes.com/2020/12/10/arts/through-the-night-review.html?searchResultPosition=10
 
