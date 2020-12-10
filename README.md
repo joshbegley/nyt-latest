@@ -1,40 +1,40 @@
+**How ‘The Queen’s Gambit’ Is Inspiring Women to Take Up Chess**\
+`Fans of the Netflix series, including teenagers and the actress Beth Behrs, are flocking to the game because “women can be rock stars” in chess.`\
+https://nytimes.com/2020/12/10/arts/television/queens-gambit-netflix-chess.html?searchResultPosition=1
+
+**‘Assassins’ Review: Duped Into an International Murder Plot**\
+`A documentary tries to explain how two women were able to cause the death of the North Korean leader’s half brother.`\
+https://nytimes.com/2020/12/10/movies/assassins-review.html?searchResultPosition=2
+
+**Antitrust Suits and a Hail Mary**\
+`By Giovanni Russonello`\
+https://nytimes.com/2020/12/10/us/politics/antitrust-suits-and-a-hail-mary.html?searchResultPosition=3
+
+**‘The Prom’ Review: Showbiz Sanctimony, and All That Zazz**\
+`Ryan Murphy takes on the Broadway hit “The Prom,” with help from Meryl Streep, Nicole Kidman and Keegan-Michael Key.`\
+https://nytimes.com/2020/12/10/movies/the-prom-review.html?searchResultPosition=4
+
+**‘Through the Night’ Review: Tucking In Children When Their Parents Can’t**\
+`A new documentary looks at a 24-hour day care center a couple runs in their home.`\
+https://nytimes.com/2020/12/10/arts/through-the-night-review.html?searchResultPosition=5
+
+**‘Funny Boy’ Review: Coming Out During Civil War**\
+`Deepa Mehta’s sprawling coming-of-age drama follows a boy who realizes he is gay in a country that criminalizes homosexuality.`\
+https://nytimes.com/2020/12/10/movies/funny-boy-review.html?searchResultPosition=6
+
+**‘Wild Mountain Thyme’ Review: Finding Love Down on the Farm**\
+`John Patrick Shanley adapts his play “Outside Mullingar” into a movie. (Don’t worry about the accents.)`\
+https://nytimes.com/2020/12/10/movies/wild-mountain-thyme-review.html?searchResultPosition=7
+
+**‘The Weasels’ Tale’ Review: House Hunting**\
+`Argentine showbiz stars in a remote mansion battle with two real estate hustlers in Juan José Campanella’s crowd-pleasing comedy.`\
+https://nytimes.com/2020/12/10/movies/the-weasels-tale-review.html?searchResultPosition=8
+
 **Masks, Distancing — and Tests**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/12/10/briefing/facebook-covid-deaths-hanukkah-your-morning-briefing.html?searchResultPosition=1
+https://nytimes.com/2020/12/10/briefing/facebook-covid-deaths-hanukkah-your-morning-briefing.html?searchResultPosition=9
 
 **E.U. Insists on Rule of Law in Emerging Deal With Hungary and Poland**\
-`Leaders will meet Thursday to work out a compromise with the two holdouts, who have vetoed the bloc’s budget and stimulus plans over threats that they wll lose access to funds.`\
-https://nytimes.com/2020/12/10/world/europe/eu-deal-poland-hungary.html?searchResultPosition=2
-
-**Why Did the U.S. Turn Down Vaccine Doses?**\
-`The Trump administration rejected the opportunity to secure a bigger stockpile months ago. How did that happen?`\
-https://nytimes.com/2020/12/10/podcasts/the-daily/pfizer-vaccine-us.html?searchResultPosition=3
-
-**Smarter Traffic Lights, Calmer Commuters**\
-`Advances in technology may come to a corner near you, easing traffic and possibly helping the environment.`\
-https://nytimes.com/2020/12/10/business/smart-traffic-lights.html?searchResultPosition=4
-
-**Housing Fights to Be Heard in the Mayoral Race**\
-`A coalition of housing groups releases a blueprint that includes rezoning affluent neighborhoods, legalizing basement apartments and turning hotels into affordable housing.`\
-https://nytimes.com/2020/12/10/realestate/housing-plan-new-york-mayor.html?searchResultPosition=5
-
-**How Washington and Silicon Valley Agree to Disagree on Taming Big Tech**\
-`A group of experts gathered to debate privacy, competition and what to do — if anything — about tech giants’ growing power.`\
-https://nytimes.com/2020/12/10/business/dealbook/tech-antitrust-policy-debate.html?searchResultPosition=6
-
-**The Partial Return to School in New York City**\
-`Elementary schools have reopened, with mandatory weekly testing, but many parents decided not to send their children back.`\
-https://nytimes.com/2020/12/10/nyregion/schools-reopening-nyc.html?searchResultPosition=7
-
-**An Unwelcome Silent Night: Germany Without Christmas Markets**\
-`Across the country, city and town squares stand empty of the usual huts, sounds, scents and lights, as the coronavirus has forced the country to skip its beloved annual Christmas markets.`\
-https://nytimes.com/2020/12/10/world/europe/germany-christmas-markets-coronavirus.html?searchResultPosition=8
-
-**Child, Bride, Mother: Kenya**\
-`In Samburu County, economic and social strife from the pandemic is helping turn a generation of girls into commodities.`\
-https://nytimes.com/2020/12/10/opinion/kenya-covid-child-marriage.html?searchResultPosition=9
-
-**As Trump Disputes Election Results, Republicans Target Voting by Mail**\
-`Nearly half of voters cast absentee ballots in the election, a huge increase. If Republicans have their way, that might not last.`\
-https://nytimes.com/2020/12/10/us/mail-voting-absentee.html?searchResultPosition=10
+`Leaders will meet Thursday to work out a compromise with the two holdouts, who have vetoed the bloc’s budget and stimulus plans over threats that they will lose access to funds.`\
+https://nytimes.com/2020/12/10/world/europe/eu-deal-poland-hungary.html?searchResultPosition=10
 
