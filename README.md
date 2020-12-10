@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/10/opinion/letters/child-pornography.html?searchResu
 `Which of these six skills would you choose to instantly master? How does your answer compare to what these Times subscribers said?`\
 https://nytimes.com/2020/12/10/learning/whats-going-on-in-this-graph-dec-16-2020.html?searchResultPosition=3
 
-**Facebook’s Microsoft Moment Is Here**\
+**Yes, Facebook Has Become a Menace**\
 `It’s not too late for the government to take back power from Big Tech.`\
 https://nytimes.com/2020/12/10/opinion/facebook-antitrust-ftc.html?searchResultPosition=4
 
