@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/10/sports/ncaafootball/sec-disney-deal.html?searchResultPosition=1
 
 **F.D.A. Advisory Panel Gives Green Light to Pfizer Vaccine**\
-`The blessing of these experts means that the agency will OK the vaccine’s use, paving the way for health care workers to begin getting shots next week.`\
+`The blessing of these experts means that the agency will likely OK the vaccine’s use, paving the way for health care workers to begin getting shots next week.`\
 https://nytimes.com/2020/12/10/health/covid-vaccine-pfizer-fda.html?searchResultPosition=2
 
 **End of ‘One Day at a Time’ Removes One of TV’s Few Latino Families**\
