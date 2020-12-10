@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/10/health/covid-vaccine-pfizer-fda.html?searchResult
 
 **End of ‘One Day at a Time’ Removes One of TV’s Few Latino Families**\
 `After being canceled last year by Netflix, the sitcom, a reboot of a Norman Lear classic, found a new but short-lived home on cable.`\
-https://nytimes.com/2020/12/10/us/one-day-at-a-time-canceled.html?searchResultPosition=3
+https://nytimes.com/2020/12/10/arts/television/one-day-at-a-time-canceled.html?searchResultPosition=3
 
 **How Much Watching Time Do You Have This Weekend?**\
 `Need a good origin story or a cure for vacation envy? This weekend’s selections have you covered.`\
