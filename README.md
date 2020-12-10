@@ -26,9 +26,9 @@ https://nytimes.com/2020/12/10/dining/marilyn-hagerty-grand-forks-restaurants.ht
 `Searching for a last-minute gift … that may take months to arrive? This holiday gift guide might give you a few ideas.`\
 https://nytimes.com/interactive/2020/12/10/style/gifts-from-cyberspace-2020.html?searchResultPosition=7
 
-**Watch Live: Mnuchin Testifies Before Congress**\
-`Steven Mnuchin, the Treasury secretary, will testify before the Congressional Oversight Commission, for the first time over his decision to end pandemic relief programs.`\
-https://nytimes.com/video/us/politics/100000007496484/mnuchin-congress-live-video.html?searchResultPosition=8
+**Watch Full Video: Mnuchin Testifies Before Congress**\
+`Steven Mnuchin, the Treasury secretary, testified before the Congressional Oversight Commission, for the first time over his decision to end pandemic relief programs.`\
+https://nytimes.com/video/embedded/us/politics/100000007496484/mnuchin-congress-live-video.html?searchResultPosition=8
 
 **Executed Nigerian Farmers Were Caught Between Boko Haram and the Army**\
 `More than 70 agricultural workers were killed by militants, who accused them of telling the authorities that the extremist group was in the area.`\
