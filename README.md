@@ -1,40 +1,40 @@
-**The Salzburg Festival, Reduced This Year, Roars Back in 2021**\
-`Classical music’s most storied annual event announces plans to return to pre-pandemic scale next summer.`\
-https://nytimes.com/2020/12/10/arts/music/salzburg-festival-music-opera.html?searchResultPosition=1
+**An Unwelcome Silent Night: Germany Without Christmas Markets**\
+`Across the country, city and town squares stand empty of the usual huts, sounds, scents and lights, as the coronavirus has forced the country to skip its beloved annual Christmas markets.`\
+https://nytimes.com/2020/12/10/world/europe/germany-christmas-markets-coronavirus.html?searchResultPosition=1
 
-**Lesson of the Day: ‘No Papers, No Jobs: The New Street Vendors of Queens’**\
-`In this lesson, students will learn about the struggles that street vendors face in New York. Then they will make connections to history.`\
-https://nytimes.com/2020/12/10/learning/lesson-of-the-day-no-papers-no-jobs-the-new-street-vendors-of-queens.html?searchResultPosition=2
+**As Trump Disputes Election Results, Republicans Target Voting by Mail**\
+`Nearly half of voters cast absentee ballots in the election, a huge increase. If Republicans have their way, that might not last.`\
+https://nytimes.com/2020/12/10/us/mail-voting-absentee.html?searchResultPosition=2
 
-**The Once and Future Handbag**\
-`Predictions that 2020 would bring the end of the bag have been greatly exaggerated.`\
-https://nytimes.com/2020/12/10/style/handbags-death-victoria-albert-museum.html?searchResultPosition=3
+**Child, Bride, Mother: Kenya**\
+`In Samburu County, economic and social strife from the pandemic is helping turn a generation of girls into commodities.`\
+https://nytimes.com/2020/12/10/opinion/kenya-covid-child-marriage.html?searchResultPosition=3
 
-**December Date for U.S. Women’s Open Brings New Challenges**\
-`Golf’s final major tournament is set to play in Houston with coronavirus-related challenges, an unprecedented two-course format, and one of women’s golf’s largest purses.`\
-https://nytimes.com/2020/12/10/sports/golf/womens-us-open.html?searchResultPosition=4
+**The Newest Challenge for Europe’s Parks: A Surge of New Nature Lovers**\
+`Lockdown-weary city dwellers across the continent are visiting parks and other protected areas for the first time, overwhelming staff and generating pleas for more support.`\
+https://nytimes.com/2020/12/10/travel/european-parks-pandemic.html?searchResultPosition=4
 
-**The New Abortion Rights Advocates Are on TikTok**\
-`Gen Z activists have been unapologetic and confrontational, a shift in tactics for a movement at a crossroads.`\
-https://nytimes.com/2020/12/10/style/abortion-rights-activists-tiktok.html?searchResultPosition=5
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually.`\
+https://nytimes.com/2020/12/10/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=5
 
-**Stay-at-Home Holiday**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2020/12/10/learning/stay-at-home-holiday.html?searchResultPosition=6
+**How We Followed a 1,500-Mile Migration Journey**\
+`Over several months, a team of Times journalists tracked the progress of a pregnant mother displaced by the pandemic.`\
+https://nytimes.com/2020/12/10/insider/1500-mile-migration-journey.html?searchResultPosition=6
 
-**Cases Surge in South Korea, but Covid Vaccine Is Months Away**\
-`Health officials warned that the number of daily cases in the country could rise to record highs in coming days, and that the latest wave of infections was the most elusive.`\
-https://nytimes.com/2020/12/10/world/asia/south-korea-covid-vaccine-surge.html?searchResultPosition=7
+**N.C.A.A. Crisis Shows How Biden’s Surgeon General Pick Navigated the Pandemic**\
+`Vivek Murthy was a central figure in the decision to cancel the March Madness basketball tournaments. He’s poised to have a major role in the Biden administration’s response to the coronavirus pandemic.`\
+https://nytimes.com/2020/12/10/sports/ncaabasketball/vivek-murthy-ncaa-coronavirus.html?searchResultPosition=7
 
-**Word + Quiz: affectation**\
-`This word has appeared in 11 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/12/10/learning/word-quiz-affectation.html?searchResultPosition=8
+**States Try to Rescue Small Businesses as U.S. Aid Is Snarled**\
+`State governments are offering loans, grants and tax rebates, but budget constraints limit their impact.`\
+https://nytimes.com/2020/12/10/business/economy/states-small-businesses.html?searchResultPosition=8
 
-**Trevor Noah: Trump Takes Another ‘L’ Trying to ‘Unlose’ the Election**\
-`“Not only did they shut this case down, but they shut it down in just 34 minutes,” Noah said of the Supreme Court. “They didn’t even pretend that they were going to consider it.”`\
-https://nytimes.com/2020/12/10/arts/television/trevor-noah-trump-supreme-court.html?searchResultPosition=9
+**‘It’s Hard to Prove’: Why Antitrust Suits Against Facebook Face Hurdles**\
+`The U.S. and states cases against the social network are far from a slam dunk because the standards of proof are formidable.`\
+https://nytimes.com/2020/12/10/technology/facebook-antitrust-suits-hurdles.html?searchResultPosition=9
 
-**They Call Us Enemies of the Cuban People**\
-`The San Isidro movement is a small step toward a national conversation.`\
-https://nytimes.com/2020/12/10/opinion/cuba-san-isidro-movement.html?searchResultPosition=10
+**Inside the Battle Between Biden and Facebook**\
+`What if neutrality isn’t neutral?`\
+https://nytimes.com/2020/12/10/opinion/biden-campaign-facebook-disinformation.html?searchResultPosition=10
 
