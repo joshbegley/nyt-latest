@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/10/us/mail-voting-absentee.html?searchResultPosition
 `Lockdown-weary city dwellers across the continent are visiting parks and other protected areas for the first time, overwhelming staff and generating pleas for more support.`\
 https://nytimes.com/2020/12/10/travel/european-parks-pandemic.html?searchResultPosition=9
 
-**5 Things to Do This Weekend**\
-`Our critics and writers have selected noteworthy cultural events to experience virtually.`\
-https://nytimes.com/2020/12/10/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=10
+**N.C.A.A. Crisis Shows How Biden’s Surgeon General Pick Navigated the Pandemic**\
+`Vivek Murthy was a central figure in the decision to cancel the March Madness basketball tournaments. He’s poised to have a major role in the Biden administration’s response to the coronavirus pandemic.`\
+https://nytimes.com/2020/12/10/sports/ncaabasketball/vivek-murthy-ncaa-coronavirus.html?searchResultPosition=10
 
