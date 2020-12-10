@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/10/us/politics/pentagon-cia-support.html?searchResul
 `A judge said he would grant class-action status to a group of fighters arguing that the Ultimate Fighting Championship suppresses pay. If the fighters win, it could force the U.F.C. to pay much, much more.`\
 https://nytimes.com/2020/12/10/sports/ufc-lawsuit.html?searchResultPosition=2
 
-**Vaccine,Virus deaths, California’s trees: Your Thursday Evening Briefing**\
+**Vaccine,Virus Deaths, California’s Trees: Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2020/12/10/briefing/vaccine-virus-deaths-californias-trees.html?searchResultPosition=3
 
