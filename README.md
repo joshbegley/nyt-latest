@@ -1,4 +1,4 @@
-**Truck Crashes Into Cyclists, Killing Five Outside Las Vegas**\
+**Truck Driver Crashes Into Cyclists, Killing 5 Outside Las Vegas**\
 `The crash happened on Thursday morning as a group of about 20 bicyclists were riding on the shoulder of U.S. 95 in Clark County, just north of Searchlight, N.V.`\
 https://nytimes.com/2020/12/10/us/cyclists-crash-las-vegas-dead.html?searchResultPosition=1
 
