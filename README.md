@@ -1,6 +1,6 @@
 **Ellen DeGeneres says she has tested positive for the coronavirus.**\
 `By Amy Harmon`\
-https://nytimes.com/2020/12/10/world/ellen-degeneres-says-she-has-tested-positive-for-the-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/12/10/world/ellen-degeneres-covid.html?searchResultPosition=1
 
 **Mnuchin Defends Handling of Stimulus Programs**\
 `On Thursday, lawmakers scrutinized Treasury secretary, Steven T. Mnuchin, for his decision to end five of the Federal Reserve’s emergency lending programs.`\
