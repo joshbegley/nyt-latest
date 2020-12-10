@@ -20,7 +20,7 @@ https://nytimes.com/2020/12/10/arts/best-thrillers.html?searchResultPosition=5
 
 **No, there isn’t evidence that Pfizer’s vaccine causes infertility.**\
 `A flurry of rumors online has prompted concern. But scientists assert the claims are baseless.`\
-https://nytimes.com/2020/12/10/technology/no-there-isnt-evidence-that-pfizers-vaccine-causes-infertility.html?searchResultPosition=6
+https://nytimes.com/2020/12/10/technology/pfizer-vaccine-infertility-disinformation.html?searchResultPosition=6
 
 **The Facebook Lawsuits Explained**\
 `Regulators accuse Facebook of buying up rivals. Here’s what this means for us and Big Tech.`\
