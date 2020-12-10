@@ -22,8 +22,8 @@ https://nytimes.com/2020/12/09/todayspaper/quotation-of-the-day-nowhere-for-the-
 `California’s redwoods, sequoias and Joshua trees define the American West and nature’s resilience through the ages. Wildfires this year were their deadliest test.`\
 https://nytimes.com/interactive/2020/12/09/climate/redwood-sequoia-tree-fire.html?searchResultPosition=6
 
-**Your Thursday Briefing**\
-`Angela Merkel pleads with her countrymen.`\
+**Merkel, Facebook, Ethiopia: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/12/09/briefing/merkel-covid-facebook-ethiopia.html?searchResultPosition=7
 
 **A Constant Celebration**\
