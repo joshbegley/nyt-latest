@@ -1,5 +1,5 @@
 **Your Friday Briefing**\
-`South Korea’s biggest coronavirus crisis`\
+`South Korea’s biggest coronavirus crisis.`\
 https://nytimes.com/2020/12/10/briefing/south-korea-virus-australia-fires.html?searchResultPosition=1
 
 **Boris Johnson Once Mocked the Eurocrats of Brussels. They Haven’t Forgotten**\
