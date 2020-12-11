@@ -10,7 +10,7 @@ https://nytimes.com/video/us/politics/100000007497983/florida-police-bodycam-rai
 `Unless the Trump Justice Department clears Hunter Biden, the new president will confront the prospect of his own administration handling an inquiry that could expose his son to criminal prosecution.`\
 https://nytimes.com/2020/12/10/us/politics/hunter-biden-investigation.html?searchResultPosition=3
 
-**Two reasons the Texas election case is faulty: legal theory and statistical fallacy.**\
+**Two reasons the Texas election case is faulty: flawed legal theory and statistical fallacy.**\
 `Texas has asked the Supreme Court to reverse the election results, but the case’s legal argument is flawed and its statistical assertion that Joe Biden had a minuscule chance to win is “comical,” experts said.`\
 https://nytimes.com/2020/12/10/technology/texas-election-lawsuit-legality.html?searchResultPosition=4
 
