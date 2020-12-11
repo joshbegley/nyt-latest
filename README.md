@@ -6,9 +6,9 @@ https://nytimes.com/2020/12/11/arts/television/mandalorian-recap-mask.html?searc
 `For Armenians uprooted from their homes, and for Azerbaijanis returning to uninhabitable towns, “It’s going to be very hard to forgive.”`\
 https://nytimes.com/2020/12/11/world/europe/nagorno-karabakh-armenia-azerbaijan.html?searchResultPosition=2
 
-**What Does a Sustainable Future for the Diamond Industry Look Like?**\
+**Resetting the Future With Diamonds**\
 `With the launch of 12 ambitious sustainability and ethics goals, De Beers is spearheading meaningful change in a $76 billion industry.`\
-https://nytimes.com/paidpost/debeers/what-does-a-sustainable-future-for-the-diamond-industry-look-like.html?searchResultPosition=3
+https://nytimes.com/paidpost/debeers/resetting-the-future-with-diamonds.html?searchResultPosition=3
 
 **Pfizer’s Covid Vaccine and Allergies: How Concerned Should You Be?**\
 `British health officials recommended that people with severe allergy reactions not be given the vaccine. Such reactions to vaccines are rare, even in people who have allergies to food or bee stings.`\
