@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/11/arts/germany-bds-open-letter.html?searchResultPos
 https://nytimes.com/2020/12/11/sports/soccer/champions-league-injuries.html?searchResultPosition=5
 
 **‘Evermore,’ Taylor Swift’s ‘Folklore’ Sequel, Is a Journey Deeper Inward**\
-`The singer and songwriter’s July album traded glossy sheen for an acoustic-Minimalistic palate. A second album with the same collaborators moves even further from her pop past.`\
+`The singer and songwriter’s July album traded glossy sheen for an acoustic-Minimalistic palette. A second album with the same collaborators moves even further from her pop past.`\
 https://nytimes.com/2020/12/11/arts/music/taylor-swift-evermore-review.html?searchResultPosition=6
 
 **How to Make a Spectacular Holiday Trifle**\
