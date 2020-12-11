@@ -1,40 +1,40 @@
-**News Quiz: Facebook, Universal, Chuck Yeager**\
-`Did you follow the headlines this week?`\
-https://nytimes.com/interactive/2020/12/11/briefing/news-quiz-facebook-universal-chuck-yeager.html?searchResultPosition=1
+**A Few Words on Behalf of Bats**\
+`They probably spread the virus that’s killing humans. We almost certainly spread the fungus that’s killing them.`\
+https://nytimes.com/2020/12/11/opinion/covid-bats.html?searchResultPosition=1
 
-**Australia Scraps Covid-19 Vaccine That Produced H.I.V. False Positives**\
-`Of the dozens of coronavirus vaccines being tested worldwide, the one under development at the University of Queensland was the first to be abandoned.`\
-https://nytimes.com/2020/12/11/world/australia/australia-covid-vaccine-HIV.html?searchResultPosition=2
+**The Bittersweet Tale of a Diner, a Toy Shop and a Changing New York**\
+`One is expanding. One is closing. But not all is lost.`\
+https://nytimes.com/2020/12/11/nyregion/coronavirus-veselka-nyc.html?searchResultPosition=2
 
-**The Threat Against New York’s Bodegas**\
-`Bodegas, often seen as safe havens, have been hit by a crime wave during the pandemic.`\
-https://nytimes.com/2020/12/11/nyregion/new-york-city-bodega-crime.html?searchResultPosition=3
+**A State Scientist Questioned Florida’s Virus Data. Now Her Home’s Been Raided.**\
+`Rebekah Jones became an unlikely celebrity when she lost her job running the state’s coronavirus data dashboard. Police say a breach at the Department of Health was traced to her computer.`\
+https://nytimes.com/2020/12/11/us/florida-coronavirus-data-rebekah-jones.html?searchResultPosition=3
 
-**Midtown Is Reeling. Should Its Offices Become Apartments?**\
-`The pandemic has created a crisis in New York City’s commercial real estate industry. Some leaders think it’s time to reimagine the city’s business districts.`\
-https://nytimes.com/2020/12/11/nyregion/nyc-commercial-real-estate.html?searchResultPosition=4
+**College Sports Has Reported at Least 6,629 Virus Cases. There Are Many More.**\
+`The N.C.A.A. does not track coronavirus cases, but a New York Times analysis shows the pandemic’s toll across college athletics. Many universities have kept their case counts from the public.`\
+https://nytimes.com/2020/12/11/sports/coronavirus-college-sports-football.html?searchResultPosition=4
 
-**Holiday Flicks**\
-`What are your favorite (or not-so-favorite) holiday films?`\
-https://nytimes.com/2020/12/11/learning/holiday-flicks.html?searchResultPosition=5
+**Manhattan D.A. Intensifies Investigation of Trump**\
+`Prosecutors have recently interviewed employees of President Trump’s lender and insurance brokerage, in the latest indication that he still faces the potential threat of criminal charges once he leaves office.`\
+https://nytimes.com/2020/12/11/nyregion/trump-taxes-cy-vance.html?searchResultPosition=5
 
-**Jimmy Fallon: Trump’s Hanukkah Party Was a ‘Festival of Lies’**\
-`“Even the dreidel was looking at Trump like, ‘Damn, this guy spins more than I do,’” Fallon joked on Wednesday.`\
-https://nytimes.com/2020/12/11/arts/television/late-night-white-house-hanukkah-party-facebook.html?searchResultPosition=6
+**The ‘Trump Won’ Farce Isn’t Funny Anymore**\
+`Republicans are now seriously arguing that elections are legitimate only when their side wins.`\
+https://nytimes.com/2020/12/11/opinion/trump-republicans-texas-lawsuit.html?searchResultPosition=6
 
-**Word + Quiz: scud**\
-`This word has appeared in four articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/12/11/learning/word-quiz-scud.html?searchResultPosition=7
+**What’s Fauci Reading? We Take Another Look at Celebrity Bookshelves**\
+`This year is finally coming to an end, so here is one last peek at the books behind Chris Rock, Jeff Bezos, Jemele Hill, Julia Louis-Dreyfus and more.`\
+https://nytimes.com/2020/12/11/books/celebrity-bookshelves-anthony-fauci-chris-rock.html?searchResultPosition=7
 
-**Jimmy Lai, Media Mogul, Is Charged Under Hong Kong’s National Security Law**\
-`The prominent pro-democracy activist and founder of the Apple Daily newspaper is accused of colluding with foreign forces.`\
-https://nytimes.com/2020/12/11/world/asia/hongkong-jimmy-lai-national-security-law.html?searchResultPosition=8
+**Co-ops in the Time of Covid**\
+`New York’s enduring vertical village, the cooperative, has faced a variety of challenges during the pandemic.`\
+https://nytimes.com/2020/12/11/realestate/covid-coops.html?searchResultPosition=8
 
-**Biden and Harris Are Time’s Persons of the Year for 2020**\
-`The magazine chose the president-elect and the vice president-elect over frontline health care workers (along with Dr. Anthony S. Fauci), the racial justice movement and President Trump.`\
-https://nytimes.com/2020/12/11/business/media/time-person-of-the-year-joe-biden-kamala-harris.html?searchResultPosition=9
+**The New Influencer Capital of America**\
+`After years of being passed over by brands and management companies despite driving the internet’s biggest trends, Black influencers in Atlanta are working to shift the paradigm.`\
+https://nytimes.com/2020/12/11/style/atlanta-black-tiktok-creators.html?searchResultPosition=9
 
-**He Seduced Me With Bread**\
-`An Italian woman, trapped in lockdown, takes daily calls from strangers until she finds one who really knows how to cook.`\
-https://nytimes.com/2020/12/11/style/modern-love-he-seduced-me-with-bread.html?searchResultPosition=10
+**Jobless Benefits Saved Them, Until States Wanted the Money Back**\
+`A pandemic relief program allows no forgiveness of overpayments, even when recipients are not at fault and the funds are already spent.`\
+https://nytimes.com/2020/12/11/business/economy/unemployment-benefit-payback.html?searchResultPosition=10
 
