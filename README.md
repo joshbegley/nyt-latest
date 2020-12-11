@@ -1,6 +1,6 @@
 **Two Soccer Teams Showed Up to Play. One Lost Because of Hair Dye.**\
 `A Chinese university team argued that an opposing player’s hair was not “black enough,” according to the rules, and her team forfeited the match.`\
-https://nytimes.com/2020/12/10/world/asia/china-soccer-hair-dye.html?searchResultPosition=1
+https://nytimes.com/2020/12/11/world/asia/china-soccer-hair-dye.html?searchResultPosition=1
 
 **Take Turns, Say**\
 `Find a friend or two to tackle Ari Richter’s Friday puzzle (here we are!).`\
