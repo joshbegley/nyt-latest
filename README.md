@@ -23,7 +23,7 @@ https://nytimes.com/2020/12/11/technology/coronavirus-alert-apps.html?searchResu
 https://nytimes.com/2020/12/11/dining/roast-a-chicken.html?searchResultPosition=6
 
 **A Traditional, but Unexpected, Christmas Showstopper**\
-`Yotam Ottolenghi usually leaves the Christmas meals to his partner. But dessert is where he shines, making this riff on the classic bûche de Noël.`\
+`Yotam Ottolenghi usually leaves the Christmas meals to his husband. But dessert is where he shines, making this riff on the classic bûche de Noël.`\
 https://nytimes.com/2020/12/11/dining/christmas-dessert-ottolenghi.html?searchResultPosition=7
 
 **Gwen Stefani’s Ska-Pop Flashback, and 10 More New Songs**\
