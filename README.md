@@ -2,7 +2,7 @@
 `The American Institute of Architects has changed its stance on members who design spaces for executions or prolonged solitary confinement.`\
 https://nytimes.com/2020/12/11/arts/design/american-institute-of-architects-execution.html?searchResultPosition=1
 
-**Supreme Court Rejects Texas Suit Seeking to Overturn Election**\
+**Supreme Court Rejects Texas Suit Seeking to Subvert Election**\
 `The suit, filed directly in the Supreme Court, sought to bar Georgia, Michigan, Pennsylvania and Wisconsin from casting their electoral votes for Joseph R. Biden Jr.`\
 https://nytimes.com/2020/12/11/us/politics/supreme-court-election-texas.html?searchResultPosition=2
 
