@@ -24,7 +24,7 @@ https://nytimes.com/2020/12/11/briefing/pfizer-trump-lawsuit-star-wars-your-morn
 
 **Everyone Gather Round the Squirrel Table. (Chipmunks Too!)**\
 `Enticing wildlife to the backyard, with tiny furniture and elaborate meals, has consoled some Americans in quarantine.`\
-https://nytimes.com/2020/12/11/style/squirrerl-tables.html?searchResultPosition=7
+https://nytimes.com/2020/12/11/style/squirrel-tables.html?searchResultPosition=7
 
 **Female Workers Could Take Another Pandemic Hit: To Their Retirements**\
 `Unequal job losses now will translate into smaller nest eggs and Social Security benefits down the road.`\
