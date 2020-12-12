@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/12/us/politics/biden-iowa-cabinet.html?searchResultP
 `The deal for the biopharmaceutical company is the latest big takeover this year, even amid the pandemic.`\
 https://nytimes.com/2020/12/12/business/dealbook/astrazeneca-alexion-deal.html?searchResultPosition=2
 
-**First Coronavirus Vaccines to Head to States, Starting Historic Effort**\
+**First Coronavirus Vaccines Head to States, Starting Historic Effort**\
 `Distributing supplies is a daunting logistical challenge, involving sophisticated tracking equipment, military contingencies and tight security.`\
 https://nytimes.com/2020/12/12/health/covid-vaccine-first.html?searchResultPosition=3
 
