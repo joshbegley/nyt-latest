@@ -1,5 +1,5 @@
 **10 Months Later, Iowa Democrats Blame National Party for Caucus Meltdown**\
-`With the future of Iowa’s first-in-the-nation Democratic caucuses in jeopardy, the state party sought to shift blame for this year’s breakdown, which delayed results for days after the Feb. 3 contest.`\
+`With the future of Iowa’s first-in-the-nation Democratic caucuses in jeopardy, the state party sought to shift blame for a breakdown that delayed results for days after the Feb. 3 contest.`\
 https://nytimes.com/2020/12/12/us/politics/iowa-caucus-report.html?searchResultPosition=1
 
 **Republicans Find Themselves Speechless Following a Supreme Court Defeat**\
