@@ -1,4 +1,4 @@
-**China, in a Nudge to U.S., Makes a New Promise to Tackle Global Warming**\
+**China, in Nudge to U.S., Makes a New Promise to Tackle Global Warming**\
 `Speaking at an online summit on the fifth anniversary of the Paris climate agreement, Xi Jinping said that China would reduce its carbon intensity by over 65 percent by 2030.`\
 https://nytimes.com/2020/12/12/climate/china-xi-greenhouse-gases.html?searchResultPosition=1
 
