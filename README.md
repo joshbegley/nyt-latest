@@ -10,13 +10,13 @@ https://nytimes.com/2020/12/11/world/europe/UK-fossil-fuel-subsidies.html?search
 `Vaccines for Americans are just around the corner.`\
 https://nytimes.com/2020/12/11/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=3
 
-**This Is the Test of Our Lifetimes**\
-`More Americans have died from Covid-19 than perished in four years of combat in World War II.`\
-https://nytimes.com/2020/12/11/opinion/sunday/coronavirus-vaccine-united-states.html?searchResultPosition=4
-
 **This Blockbuster Is Coming to a Living Room Near You**\
 `The next generation of event viewing is likely to look more like ‘Game of Thrones’ and less like ‘Tenet.’`\
-https://nytimes.com/2020/12/11/opinion/movies-warner-bros-hbo-theaters.html?searchResultPosition=5
+https://nytimes.com/2020/12/11/opinion/movies-warner-bros-hbo-theaters.html?searchResultPosition=4
+
+**This Is the Test of Our Lifetimes**\
+`More Americans have died from Covid-19 than perished in four years of combat in World War II.`\
+https://nytimes.com/2020/12/11/opinion/sunday/coronavirus-vaccine-united-states.html?searchResultPosition=5
 
 **All Fish and No Chips**\
 `Brexit negotiations continue to limp along as a deadline looms.`\
