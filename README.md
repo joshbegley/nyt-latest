@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/12/us/politics/biden-iowa-cabinet.html?searchResultPosition=1
 
 **AstraZeneca to Buy Alexion for $39 Billion to Add Rare-Disease Treatments**\
-`The deal is the latest big takeover this year, even amid the pandemic.`\
+`The deal for the biopharmaceutical company is the latest big takeover this year, even amid the pandemic.`\
 https://nytimes.com/2020/12/12/business/dealbook/astrazeneca-alexion-deal.html?searchResultPosition=2
 
 **First Coronavirus Vaccines to Head to States, Starting Historic Effort**\
