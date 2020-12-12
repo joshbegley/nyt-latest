@@ -10,13 +10,13 @@ https://nytimes.com/2020/12/12/us/politics/electoral-college-electors.html?searc
 `Among the last in her community, an 89-year-old woman self-published a memoir about life in the mountains, where a number of Black families settled after the end of the Civil War.`\
 https://nytimes.com/2020/12/12/us/mary-othella-burnette-southern-appalachia.html?searchResultPosition=3
 
-**Al Gore: Where I Find Hope**\
-`The Biden administration will have the opportunity to restore confidence in America and take on the worsening climate crisis.`\
-https://nytimes.com/2020/12/12/opinion/sunday/biden-climate-change-al-gore.html?searchResultPosition=4
-
 **Build on Common Ground**\
 `There is progress to be made on policies most Americans support.`\
-https://nytimes.com/2020/12/12/opinion/joe-biden-america.html?searchResultPosition=5
+https://nytimes.com/2020/12/12/opinion/joe-biden-america.html?searchResultPosition=4
+
+**Al Gore: Where I Find Hope**\
+`The Biden administration will have the opportunity to restore confidence in America and take on the worsening climate crisis.`\
+https://nytimes.com/2020/12/12/opinion/sunday/biden-climate-change-al-gore.html?searchResultPosition=5
 
 **The Texas Lawsuit and the Age of Dreampolitik**\
 `The separation of political reality from political fantasy stills exists — for now.`\
