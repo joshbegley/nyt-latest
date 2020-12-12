@@ -1,5 +1,5 @@
 **UPS and FedEx say plans to ship the vaccine are underway.**\
-`By Niraj Chokshi`\
+`By Niraj Chokshi and Katie Thomas`\
 https://nytimes.com/2020/12/12/business/ups-and-fedex-say-plans-to-ship-the-vaccine-are-underway.html?searchResultPosition=1
 
 **Young People Have Less Covid-19 Risk, but in College Towns, Deaths Rose Fast**\
