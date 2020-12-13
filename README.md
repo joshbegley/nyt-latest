@@ -1,4 +1,4 @@
-**The Electoral College is Voting Tomorrow. Here’s What to Expect.**\
+**The Electoral College Is Voting Tomorrow. Here’s What to Expect.**\
 `Most states offer livestreams to watch the proceedings, including crucial battlegrounds won by President-elect Joseph R. Biden Jr. After Monday’s vote, the process moves to Congress.`\
 https://nytimes.com/2020/12/13/us/politics/electoral-college.html?searchResultPosition=1
 
