@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/13/obituaries/anthony-veasna-so-dead.html?searchResultPosition=1
 
 **Police Shoot Man Near Cathedral in Manhattan After He Opens Fire**\
-`The police shot a man near the Cathedral of St. John the Divine in Morningside Heights after he fired at officers, the authorities said.`\
+`The police shot a man near the Cathedral of St. John the Divine in Morningside Heights, where a Christmas carol service was scheduled, the authorities said.`\
 https://nytimes.com/2020/12/13/nyregion/nyc-shooting-cathedral.html?searchResultPosition=2
 
 **White House staff members will be among the first to be vaccinated.**\
