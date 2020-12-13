@@ -1,40 +1,40 @@
+**Why Getting the Most Votes Matters**\
+`Majority rule shapes our lives — except when it comes to electing the president.`\
+https://nytimes.com/2020/12/13/opinion/electoral-college-trump-election.html?searchResultPosition=1
+
 **Your Monday Briefing**\
 `The U.S. prepares to start vaccinating.`\
-https://nytimes.com/2020/12/13/briefing/us-vaccines-china-bicycles-philippines.html?searchResultPosition=1
+https://nytimes.com/2020/12/13/briefing/us-vaccines-china-bicycles-philippines.html?searchResultPosition=2
 
 **Review: Finding Hope in an Unfinished Pam Tanowitz Premiere**\
 `At the Joyce Theater, “Finally Unfinished: Part 1” and “Gustave Le Gray, No. 2” constitute an event in the Merce Cunningham sense, combining old pieces in a new order for a new occasion and space.`\
-https://nytimes.com/2020/12/13/arts/dance/finally-unfinished-pam-tanowitz.html?searchResultPosition=2
+https://nytimes.com/2020/12/13/arts/dance/finally-unfinished-pam-tanowitz.html?searchResultPosition=3
 
 **How Readers Reacted to FKA twigs and Her Allegations of Abuse**\
 `Women responded on social media with their own stories of violence, and their support for survivors, after the Times reported that FKA twigs had sued Shia LaBeouf, her former boyfriend.`\
-https://nytimes.com/2020/12/13/arts/music/fka-twigs-abuse-allegations.html?searchResultPosition=3
+https://nytimes.com/2020/12/13/arts/music/fka-twigs-abuse-allegations.html?searchResultPosition=4
 
 **Alex Olmedo, 84, Dies; Tennis Star Known for a Remarkable Year**\
 `In 1959, Olmedo won the Australian and Wimbledon men’s single championships and reached the final of the United States Nationals.`\
-https://nytimes.com/2020/12/13/sports/tennis/alex-olmedo-dead.html?searchResultPosition=4
+https://nytimes.com/2020/12/13/sports/tennis/alex-olmedo-dead.html?searchResultPosition=5
 
 **Worried About College Plans for Spring**\
 `A University of Florida faculty member and a resident of Columbia University’s neighborhood express fears about Covid outbreaks. Also: Rohingya refugees; growing meat.`\
-https://nytimes.com/2020/12/13/opinion/letters/colleges-covid.html?searchResultPosition=5
+https://nytimes.com/2020/12/13/opinion/letters/colleges-covid.html?searchResultPosition=6
 
 **What Will Trump’s Legacy Be?**\
 `Readers react to two Opinion pieces arguing that the president will not leave a big footprint, and urge Times columnists to stop constantly writing about Mr. Trump.`\
-https://nytimes.com/2020/12/13/opinion/letters/president-trump-legacy.html?searchResultPosition=6
+https://nytimes.com/2020/12/13/opinion/letters/president-trump-legacy.html?searchResultPosition=7
 
 **Germany Locks Down Ahead of Christmas as Coronavirus Deaths Rise**\
 `Stores and schools will be closed, and public and private meetings will be restricted over the holidays, in an effort to bring down coronavirus infections and deaths.`\
-https://nytimes.com/2020/12/13/world/europe/germany-locks-down-ahead-of-christmas-as-coronavirus-deaths-rise.html?searchResultPosition=7
+https://nytimes.com/2020/12/13/world/europe/germany-locks-down-ahead-of-christmas-as-coronavirus-deaths-rise.html?searchResultPosition=8
 
 **Ben Bova, Science Fiction Editor and Author, Is Dead at 88**\
 `As editor of the magazines Analog and Omni, he was a champion of a new generation of authors, including George R.R. Martin.`\
-https://nytimes.com/2020/12/13/books/ben-bova-dies.html?searchResultPosition=8
+https://nytimes.com/2020/12/13/books/ben-bova-dies.html?searchResultPosition=9
 
 **The Electoral College Is Voting Tomorrow. Here’s What to Expect.**\
 `Most states offer livestreams to watch the proceedings, including crucial battlegrounds won by President-elect Joseph R. Biden Jr. After Monday’s vote, the process moves to Congress.`\
-https://nytimes.com/2020/12/13/us/politics/electoral-college.html?searchResultPosition=9
-
-**Hundreds of Students Feared Missing After Attack at Nigeria School**\
-`Hundreds of Nigerian students are feared missing after gunmen raided a secondary school in the northern state of Katsina. The military later exchanged fire with the attackers in a forest.`\
-https://nytimes.com/2020/12/13/world/africa/nigeria-school-attack.html?searchResultPosition=10
+https://nytimes.com/2020/12/13/us/politics/electoral-college.html?searchResultPosition=10
 
