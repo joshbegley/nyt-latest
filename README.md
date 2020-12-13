@@ -10,8 +10,8 @@ https://nytimes.com/2020/12/13/learning/whats-going-on-in-this-picture-dec-14-20
 `His darkly comedic stories explored the experiences of Cambodian-Americans. His first book, the subject of a bidding war, is to be published next August.`\
 https://nytimes.com/2020/12/13/obituaries/anthony-veasna-so-dead.html?searchResultPosition=3
 
-**Police Shoot Man Near Cathedral in Manhattan After He Opens Fire**\
-`The police shot a man near the Cathedral of St. John the Divine in Morningside Heights, where a Christmas carol service was scheduled, the authorities said.`\
+**Police Shoot Man After He Opens Fire Near Crowd at Manhattan Cathedral**\
+`The shooting at the Cathedral of St. John the Divine took place just after a carol service ended. Two people, including the gunman, were taken to the hospital.`\
 https://nytimes.com/2020/12/13/nyregion/nyc-shooting-cathedral.html?searchResultPosition=4
 
 **White House staff members will be among the first to be vaccinated.**\
