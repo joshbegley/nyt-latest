@@ -16,7 +16,7 @@ https://nytimes.com/2020/12/13/health/Covid-remdesivir-arthritis-drug.html?searc
 
 **John le Carré, Best-Selling Author of Cold War Thrillers, Is Dead at 89**\
 `Graham Greene called “The Spy Who Came in From the Cold,” featuring the plump, ill-dressed George Smiley, the greatest spy story he had ever read.`\
-https://nytimes.com/2020/12/13/books/john-le-carre-best-selling-author-of-cold-war-thrillers-is-dead-at-89.html?searchResultPosition=5
+https://nytimes.com/2020/12/13/books/john-le-carre-dead.html?searchResultPosition=5
 
 **What’s Going On in This Picture? | Dec. 14, 2020**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
