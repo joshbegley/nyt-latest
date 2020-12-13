@@ -1,4 +1,4 @@
-**An Opinion Article Argued Jill Biden Should Drop the ‘Dr.’ Few Were Persuaded.**\
+**An Opinion Writer Argued Jill Biden Should Drop the ‘Dr.’ (Few Were Swayed.)**\
 `Many women said Joseph Epstein’s suggestion in The Wall Street Journal was blatantly sexist and underscored the way men often dismiss women’s credentials.`\
 https://nytimes.com/2020/12/12/us/jill-biden-doctor-wsj.html?searchResultPosition=1
 
