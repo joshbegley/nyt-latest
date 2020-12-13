@@ -6,8 +6,8 @@ https://nytimes.com/2020/12/13/business/the-week-in-business-getting-vaccines-fr
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2020/12/13/briefing/pfizer-vaccine-electoral-college-holiday-baking.html?searchResultPosition=2
 
-**Brexit Trade Talks Approach Crucial Deadline. Again.**\
-`If no significant headway is made in negotiations between London and Brussels on Sunday, the likelihood of Britain’s leaving without a deal intensifies, threatening various cross-border disruptions.`\
+**Deadline for Brexit Trade Talks Is Extended. Again.**\
+`Britain and the European Union agreed to give the seemingly intractable negotiations yet more time in an attempt to strike a deal and avoid a disruptive no-deal outcome before Dec. 31.`\
 https://nytimes.com/2020/12/13/world/europe/brexit-trade-talks-uk-eu.html?searchResultPosition=3
 
 **Fears of a ‘Twindemic’ Recede as Flu Lies Low**\
