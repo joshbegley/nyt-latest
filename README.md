@@ -22,8 +22,8 @@ https://nytimes.com/2020/12/13/us/hospitals-coronavirus-vaccine-delivery.html?se
 `Baricitinib had previously attracted some scrutiny from experts, who were unsure when it would most help their patients.`\
 https://nytimes.com/2020/12/13/health/Covid-remdesivir-arthritis-drug.html?searchResultPosition=6
 
-**John le Carré, Best-Selling Author of Cold War Thrillers, Is Dead at 89**\
-`Graham Greene called “The Spy Who Came in From the Cold,” featuring the plump, ill-dressed George Smiley, the greatest spy story he had ever read.`\
+**John le Carré, Best-Selling Author of Cold War Thrillers, Dies at 89**\
+`By Sarah Lyall`\
 https://nytimes.com/2020/12/13/books/john-le-carre-dead.html?searchResultPosition=7
 
 **What’s Going On in This Picture? | Dec. 14, 2020**\
