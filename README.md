@@ -1,40 +1,40 @@
+**As Biden Prepares to Take Office, a New Rush at the Border**\
+`The president-elect has promised a more humane border policy. But devastated economies and natural disasters in Latin America have fueled a spike in migration that could make pledges hard to keep.`\
+https://nytimes.com/2020/12/13/us/border-crossing-migrants-biden.html?searchResultPosition=1
+
+**Play Suspension Delays Finish at U.S. Women’s Open**\
+`Golf’s final major of the year experienced a rain delay before play was called Sunday.`\
+https://nytimes.com/2020/12/13/sports/golf/us-womens-open.html?searchResultPosition=2
+
+**Man Is Arrested in Stabbing at D.C. Election Protest**\
+`The confrontation near the White House between supporters and opponents of President Trump was one of several on Saturday in Washington and in state capitals across the country.`\
+https://nytimes.com/2020/12/13/us/politics/trump-election-protests-violence.html?searchResultPosition=3
+
 **Why Getting the Most Votes Matters**\
 `Majority rule shapes our lives — except when it comes to electing the president.`\
-https://nytimes.com/2020/12/13/opinion/electoral-college-trump-election.html?searchResultPosition=1
+https://nytimes.com/2020/12/13/opinion/electoral-college-trump-election.html?searchResultPosition=4
 
 **Your Monday Briefing**\
 `The U.S. prepares to start vaccinating.`\
-https://nytimes.com/2020/12/13/briefing/us-vaccines-china-bicycles-philippines.html?searchResultPosition=2
+https://nytimes.com/2020/12/13/briefing/us-vaccines-china-bicycles-philippines.html?searchResultPosition=5
 
 **Review: Finding Hope in an Unfinished Pam Tanowitz Premiere**\
 `At the Joyce Theater, “Finally Unfinished: Part 1” and “Gustave Le Gray, No. 2” constitute an event in the Merce Cunningham sense, combining old pieces in a new order for a new occasion and space.`\
-https://nytimes.com/2020/12/13/arts/dance/finally-unfinished-pam-tanowitz.html?searchResultPosition=3
+https://nytimes.com/2020/12/13/arts/dance/finally-unfinished-pam-tanowitz.html?searchResultPosition=6
 
 **How Readers Reacted to FKA twigs and Her Allegations of Abuse**\
 `Women responded on social media with their own stories of violence, and their support for survivors, after the Times reported that FKA twigs had sued Shia LaBeouf, her former boyfriend.`\
-https://nytimes.com/2020/12/13/arts/music/fka-twigs-abuse-allegations.html?searchResultPosition=4
+https://nytimes.com/2020/12/13/arts/music/fka-twigs-abuse-allegations.html?searchResultPosition=7
 
 **Alex Olmedo, 84, Dies; Tennis Star Known for a Remarkable Year**\
 `In 1959, Olmedo won the Australian and Wimbledon men’s single championships and reached the final of the United States Nationals.`\
-https://nytimes.com/2020/12/13/sports/tennis/alex-olmedo-dead.html?searchResultPosition=5
+https://nytimes.com/2020/12/13/sports/tennis/alex-olmedo-dead.html?searchResultPosition=8
 
 **Worried About College Plans for Spring**\
 `A University of Florida faculty member and a resident of Columbia University’s neighborhood express fears about Covid outbreaks. Also: Rohingya refugees; growing meat.`\
-https://nytimes.com/2020/12/13/opinion/letters/colleges-covid.html?searchResultPosition=6
+https://nytimes.com/2020/12/13/opinion/letters/colleges-covid.html?searchResultPosition=9
 
 **What Will Trump’s Legacy Be?**\
 `Readers react to two Opinion pieces arguing that the president will not leave a big footprint, and urge Times columnists to stop constantly writing about Mr. Trump.`\
-https://nytimes.com/2020/12/13/opinion/letters/president-trump-legacy.html?searchResultPosition=7
-
-**Germany Locks Down Ahead of Christmas as Coronavirus Deaths Rise**\
-`Stores and schools will be closed, and public and private meetings will be restricted over the holidays, in an effort to bring down coronavirus infections and deaths.`\
-https://nytimes.com/2020/12/13/world/europe/germany-locks-down-ahead-of-christmas-as-coronavirus-deaths-rise.html?searchResultPosition=8
-
-**Ben Bova, Science Fiction Editor and Author, Is Dead at 88**\
-`As editor of the magazines Analog and Omni, he was a champion of a new generation of authors, including George R.R. Martin.`\
-https://nytimes.com/2020/12/13/books/ben-bova-dies.html?searchResultPosition=9
-
-**The Electoral College Is Voting Tomorrow. Here’s What to Expect.**\
-`Most states offer livestreams to watch the proceedings, including crucial battlegrounds won by President-elect Joseph R. Biden Jr. After Monday’s vote, the process moves to Congress.`\
-https://nytimes.com/2020/12/13/us/politics/electoral-college.html?searchResultPosition=10
+https://nytimes.com/2020/12/13/opinion/letters/president-trump-legacy.html?searchResultPosition=10
 
