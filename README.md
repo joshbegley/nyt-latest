@@ -22,19 +22,4 @@ https://nytimes.com/2020/12/14/sports/basketball/anthony-carter-bill-duffy-miami
 `Monday: The representative-elect discusses the state’s pandemic response and the future of the Republican Party: “This is not a Trump or Biden issue.”`\
 https://nytimes.com/2020/12/14/us/young-kim-california-gop.html?searchResultPosition=6
 
-**Bills Beat the Steelers, Surging as a Rival Sinks**\
-`Buffalo can clinch the A.F.C. East title on Saturday. Pittsburgh fell behind Kansas City in the race for the top seed in the playoffs.`\
-https://nytimes.com/2020/12/14/sports/football/bills-steelers.html?searchResultPosition=7
-
-**How Much Do You Know About the Philippines?**\
-`Can you find the Philippines on a map? What else do you know about this Pacific island nation with about 110 million people?`\
-https://nytimes.com/interactive/2020/12/14/learning/Philippines-Geography-Quiz.html?searchResultPosition=8
-
-**Vaccine Arrives in New York, Hard Hit in Outbreak’s Early Days**\
-`Vaccinations are scheduled to take place on Monday, according to one hospital system.`\
-https://nytimes.com/2020/12/14/nyregion/coronavirus-vaccine-new-york.html?searchResultPosition=9
-
-**Athens, Greece**\
-`Mayor Kostas Bakoyannis describes a greener future for Athens.`\
-https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007502000/athens-greece.html?searchResultPosition=10
-
+**New York’s first vaccines have arrived, and shots are scheduled to start Monday.**\
