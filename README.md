@@ -27,7 +27,7 @@ https://nytimes.com/2020/12/14/business/media/norman-pearlstine-los-angeles-time
 https://nytimes.com/2020/12/14/science/fruit-flies-covid.html?searchResultPosition=7
 
 **Watch Live: Electoral College Vote in California**\
-`On Monday, state electors in California will meet to officially cast their Electoral College vote.`\
+`On Monday, state electors in California are meeting to officially cast their Electoral College vote.`\
 https://nytimes.com/video/us/politics/100000007502250/electoral-college-california-videohtml.html?searchResultPosition=8
 
 **The Next Vaccine Challenge: Reassuring Older Americans**\
