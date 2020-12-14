@@ -22,4 +22,4 @@ https://nytimes.com/2020/12/14/sports/basketball/anthony-carter-bill-duffy-miami
 `Monday: The representative-elect discusses the state’s pandemic response and the future of the Republican Party: “This is not a Trump or Biden issue.”`\
 https://nytimes.com/2020/12/14/us/young-kim-california-gop.html?searchResultPosition=6
 
-**New York’s first vaccines have arrived, and shots are scheduled to start Monday.**\
+**New York’s first vaccines have arrived, and shots began on Monday.**\
