@@ -1,5 +1,5 @@
 **Just When Restaurants Thought 2020 Couldn’t Get Any Worse …**\
-`Everything seemed to conspire against the city’s food and drink businesses. Now, indoor dining has been taken away again.`\
+`Everything seemed to conspire against New York City’s food and drink businesses. Now, indoor dining has been taken away again.`\
 https://nytimes.com/2020/12/14/dining/restaurants-indoor-dining-coronavirus.html?searchResultPosition=1
 
 **John le Carré, a Master of Spy Novels Where the Real Action Was Internal**\
