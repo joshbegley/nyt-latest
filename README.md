@@ -1,6 +1,6 @@
-**Australia and New Zealand plan to ease travel restrictions between their countries.**\
-`By Natasha Frost`\
-https://nytimes.com/2020/12/14/world/australia-and-new-zealand-plan-to-ease-travel-restrictions-between-their-countries.html?searchResultPosition=1
+**Australia and New Zealand plan to ease travel restrictions, and other news from around the world.**\
+`By Natasha Frost, Jennifer Jett and Sui-Lee Wee`\
+https://nytimes.com/2020/12/14/world/australia-and-new-zealand-plan-to-ease-travel-restrictions-and-other-news-from-around-the-world.html?searchResultPosition=1
 
 **A Gym Is Where You Work Out. Everything Else Is Optional.**\
 `Forced to close its physical location because of the pandemic, a Long Island gym has adapted to its members’ settings and abilities, creating an entirely new type of fitness community.`\
