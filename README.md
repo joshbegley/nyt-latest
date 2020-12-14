@@ -30,11 +30,11 @@ https://nytimes.com/2020/12/14/realestate/shopping-for-firewood-holders.html?sea
 `We need to match our focus on the supply of misinformation with a focus on the demand for it.`\
 https://nytimes.com/2020/12/14/opinion/trump-voter-fraud-education.html?searchResultPosition=8
 
-**What’s Next for Trump Voters Who Believe the Election Was Stolen?**\
-`Some are certain the election was fraudulent. Others aren’t so sure. What becomes of their skepticism has important implications for American democracy.`\
-https://nytimes.com/2020/12/14/us/trump-voters-stolen-election.html?searchResultPosition=9
-
 **Google Dominates Thanks to an Unrivaled View of the Web**\
 `As regulators seek ways to curb the company’s power, there is more focus on the vast index — hundreds of billion of web pages — behind its search engine.`\
-https://nytimes.com/2020/12/14/technology/how-google-dominates.html?searchResultPosition=10
+https://nytimes.com/2020/12/14/technology/how-google-dominates.html?searchResultPosition=9
+
+**Can Congress Overturn the Electoral College Results? Probably Not**\
+`Republicans are planning one final showdown. They are almost certain to fail, but not before Vice President Mike Pence is thrust into having to declare President Trump the loser.`\
+https://nytimes.com/2020/12/14/us/politics/congress-election-role.html?searchResultPosition=10
 
