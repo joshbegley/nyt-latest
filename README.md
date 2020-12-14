@@ -22,7 +22,7 @@ https://nytimes.com/2020/12/14/technology/cyberpunk-2077-refund.html?searchResul
 `On Monday, state electors in Georgia will meet to officially cast their Electoral College vote.`\
 https://nytimes.com/video/us/elections/100000007502079/electoral-college-georgia-video.html?searchResultPosition=6
 
-**Watch Live: Coronavirus Vaccinations Begin in the U.S.**\
+**Coronavirus Vaccinations Begin in the U.S.**\
 `On Monday, the first coronavirus vaccines were administered in the United States.`\
 https://nytimes.com/video/us/politics/100000007502071/us-covid-vaccine-rollout.html?searchResultPosition=7
 
