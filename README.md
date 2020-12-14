@@ -1,40 +1,40 @@
-**An Ode to the Before Times**\
-`Also, I think I’m losing my mind.`\
-https://nytimes.com/video/opinion/100000007438119/pandemic-life-nostalgia.html?searchResultPosition=1
+**A Gym Is Where You Work Out. Everything Else Is Optional.**\
+`Forced to close its physical location because of the pandemic, a Long Island gym has adapted to its members’ settings and abilities, creating an entirely new type of fitness community.`\
+https://nytimes.com/2020/12/14/sports/coronavirus-virtual-gym-home-photo.html?searchResultPosition=1
 
-**U.K. to Ease Rules on Blood Donations by Gay and Bisexual Men**\
-`The new policy, which will take effect next summer, was described by Britain’s health secretary as a landmark and by an activist as “a fundamental shift toward recognizing people are individuals.”`\
-https://nytimes.com/2020/12/14/world/europe/gay-bisexual-blood-donors-uk.html?searchResultPosition=2
+**Silent Night: Scenes of a Pandemic Christmas**\
+`Photographers around the country captured how the pandemic has brought many hectic holiday traditions to a halt.`\
+https://nytimes.com/2020/12/14/business/covid-holidays-christmas-photos.html?searchResultPosition=2
 
-**Quotation of the Day: Struggling Restaurants Face Bleak Future as Indoor Dining Ban Begins**\
-`Quotation of the Day for Monday, December 14, 2020.`\
-https://nytimes.com/2020/12/14/todayspaper/quotation-of-the-day-struggling-restaurants-face-bleak-future-as-indoor-dining-ban-begins.html?searchResultPosition=3
+**In Indonesia, a Blurred Boundary Between the Living and the Dead**\
+`The Toraja people of southern Sulawesi, one of Indonesia’s largest islands, are known for their elaborate death rituals, which include preserving and exhuming the dead.`\
+https://nytimes.com/2020/12/14/travel/torajan-death-rituals-indonesia.html?searchResultPosition=3
 
-**Restaurants Forge Ahead Without Indoor Dining**\
-`The second wave of the coronavirus has brought a new hardship for  restaurants, which now confront a winter with no indoor dining.`\
-https://nytimes.com/2020/12/14/nyregion/restaurants-coronavirus-nyc.html?searchResultPosition=4
+**Why This Force of 150 Sheriff’s Deputies Is Enforcing Virus Rules**\
+`The New York City Sheriff’s Office, a law enforcement team unknown to most New Yorkers, has been thrust into the spotlight during the pandemic.`\
+https://nytimes.com/2020/12/14/nyregion/nyc-sheriffs-office.html?searchResultPosition=4
 
-**China’s Combative Nationalists See a World Turning Their Way**\
-`China’s Communist Party is pushing the narrative that the pandemic has proved the superiority of its authoritarian model. The muscular message is finding fans at home.`\
-https://nytimes.com/2020/12/14/world/asia/china-nationalists-covid.html?searchResultPosition=5
+**It’s a Terrible Time for Small Businesses. Except When It’s Not.**\
+`Some entrepreneurs are finding opportunities in unlikely places.`\
+https://nytimes.com/2020/12/14/business/smallbusiness/small-business-start-ups-entrepeneurs.html?searchResultPosition=5
 
-**5 Highlights of the N.Y.C. Mayor’s Race: Yang and Rose Enter**\
-`As Kathryn Garcia and Shaun Donovan officially launched their campaigns last week, two newcomers, Andrew Yang and Rep. Max Rose, seemed poised to soon join them.`\
-https://nytimes.com/2020/12/14/nyregion/nyc-mayor-yang-rose.html?searchResultPosition=6
+**Shopping for Firewood Holders**\
+`If you have a working fireplace, it’s time to stock up on wood. And you’ll need somewhere to put it.`\
+https://nytimes.com/2020/12/14/realestate/shopping-for-firewood-holders.html?searchResultPosition=6
 
-**Conflicting Narratives Emerge in Ohio Shooting, Prompting Protests**\
-`Much about the shooting death of Casey Goodson Jr. by a sheriff’s deputy has been disputed — what led to it, why it happened and where exactly on his body Mr. Goodson was shot.`\
-https://nytimes.com/2020/12/14/us/casey-goodson-columbus-ohio-shooting.html?searchResultPosition=7
+**Twitter and Facebook Are a Huge Problem. But So Are We.**\
+`We need to match our focus on the supply of misinformation with a focus on the demand for it.`\
+https://nytimes.com/2020/12/14/opinion/trump-voter-fraud-education.html?searchResultPosition=7
 
-**N.Y.C. Restaurants Face Bleak Winter With No Indoor Dining**\
-`Restaurants already struggling during the pandemic are experiencing another setback. Many increasingly wonder how they will survive.`\
-https://nytimes.com/2020/12/14/nyregion/indoor-dining-ending-nyc.html?searchResultPosition=8
+**What’s Next for Trump Voters Who Believe the Election Was Stolen?**\
+`Some are certain the election was fraudulent. Others aren’t so sure. What becomes of their skepticism has important implications for American democracy.`\
+https://nytimes.com/2020/12/14/us/trump-voters-stolen-election.html?searchResultPosition=8
 
-**Electoral College Voter: Long an Honor, and Now Also a Headache**\
-`Casting votes in the Electoral College has been a routine part of election mechanics, but this year electors have been thrust into the cross hairs of President Trump’s extraordinary effort to overturn the results.`\
-https://nytimes.com/2020/12/14/us/politics/electoral-college-biden-trump.html?searchResultPosition=9
+**Google Dominates Thanks to an Unrivaled View of the Web**\
+`As regulators seek ways to curb the company’s power, there is more focus on the vast index — hundreds of billion of web pages — behind its search engine.`\
+https://nytimes.com/2020/12/14/technology/how-google-dominates.html?searchResultPosition=9
 
-**Big Tech Turns Its Lobbyists Loose on Europe, Alarming Regulators**\
-`Silicon Valley is building a powerful influence industry in Brussels, which has “never seen this kind of money” spent this way.`\
-https://nytimes.com/2020/12/14/technology/big-tech-lobbying-europe.html?searchResultPosition=10
+**Can Congress Overturn the Electoral College Results? Probably Not**\
+`Republicans are planning one final showdown. They are almost certain to fail, but not before Vice President Mike Pence is thrust into having to declare President Trump the loser.`\
+https://nytimes.com/2020/12/14/us/politics/congress-election-role.html?searchResultPosition=10
 
