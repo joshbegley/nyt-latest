@@ -30,11 +30,11 @@ https://nytimes.com/2020/12/14/arts/television/donald-trump-culture-war.html?sea
 `The Electoral College is nearing completion to officially designate Joseph R. Biden Jr. as the president-elect.`\
 https://nytimes.com/video/us/elections/100000007503121/electoral-college-vote-2020-election.html?searchResultPosition=8
 
+**Biden tops 270 votes in the Electoral College, affirming his presidential victory.**\
+`By Nick Corasaniti and Jim Rutenberg`\
+https://nytimes.com/2020/12/14/us/biden-electoral-college-vote.html?searchResultPosition=9
+
 **Watch Live: Biden Speaks Following Electoral College Certification**\
 `President-elect Joseph R. Biden Jr. delivers remarks after electors in states across the country cast their votes for president.`\
-https://nytimes.com/video/us/elections/100000007503306/joe-biden-live-speech-video.html?searchResultPosition=9
-
-**California’s electors are meeting now. Their votes are expected to push Biden over the top.**\
-`By Sydney Ember`\
-https://nytimes.com/2020/12/14/us/californias-electors-are-meeting-now-their-votes-are-expected-to-push-biden-over-the-top.html?searchResultPosition=10
+https://nytimes.com/video/us/elections/100000007503306/joe-biden-live-speech-video.html?searchResultPosition=10
 
