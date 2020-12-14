@@ -14,7 +14,7 @@ https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100
 `Roblox delayed its debut as Wall Street worries about a bubble.`\
 https://nytimes.com/2020/12/14/business/dealbook/roblox-tech-ipos.html?searchResultPosition=4
 
-**Google’s Apps Crash in Worldwide Outage**\
+**Google’s apps rash in a worldwide outage.**\
 `The tech giant’s popular services like Gmail, Hangouts, Meet and YouTube went offline, halting work across the globe.`\
 https://nytimes.com/2020/12/11/business/google-down-worldwide.html?searchResultPosition=5
 
