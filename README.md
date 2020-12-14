@@ -1,4 +1,4 @@
-**For London, Tighter Virus Rules. For Boris Johnson, more pressure.**\
+**For London, Tighter Virus Rules. For Boris Johnson, More Pressure.**\
 `The prime minister, already facing a tough week with Brexit, risks additional wrath from Conservatives over the closing of pubs and restaurants again.`\
 https://nytimes.com/2020/12/14/world/europe/for-london-tighter-virus-rules-for-boris-johnson-more-pressure.html?searchResultPosition=1
 
