@@ -1,40 +1,40 @@
-**Putin Congratulates Biden After Electoral College Vote**\
-`President Vladimir V. Putin of Russia had delayed acknowledging the victory of President-elect Joseph R Biden Jr. for over a month, citing President Trump’s legal challenges.`\
-https://nytimes.com/2020/12/15/world/europe/putin-congratulates-biden-electoral-college.html?searchResultPosition=1
+**Vaccine Distribution Is Underway in New York**\
+`The first coronavirus vaccine in the country was administered in Queens. `\
+https://nytimes.com/2020/12/15/nyregion/vaccine-distribution-is-underway-in-new-york.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Cleveland’s Baseball Team Will Drop Its Indians Team Name’**\
-`In this lesson, students will learn about professional sports teams that are changing their problematic names. Then, they will engage in a graffiti board discussion to further explore the issue with classmates.`\
-https://nytimes.com/2020/12/15/learning/lesson-of-the-day-clevelands-baseball-team-will-drop-its-indians-team-name.html?searchResultPosition=2
+**‘Sylvia Pankhurst: Natural Born Rebel,’ by Rachel Holmes: An Excerpt**\
+`An excerpt from “Sylvia Pankhurst: Natural Born Rebel,” by Rachel Holmes`\
+https://nytimes.com/2020/12/15/books/review/sylvia-pankhurst-natural-born-rebel-by-rachel-holmes-an-excerpt.html?searchResultPosition=2
 
-**Turkey’s Coffeehouses, a Hub of Male Social Life, May Not Survive Virus**\
-`Coffeehouses, mainstays of Turkish neighborhoods for centuries, are suffering under pandemic restrictions — particularly a ban on games. Regulars fear losing “our jokes, our laughter.”`\
-https://nytimes.com/2020/12/15/world/europe/turkey-coffeehouse-coronavirus-games.html?searchResultPosition=3
+**How to Pretend You’re in Singapore Tonight**\
+`You can feel like you are in the Lion City with a little work in the kitchen, the right book and some time in front of the TV.`\
+https://nytimes.com/2020/12/15/travel/singapore-vacation-at-home.html?searchResultPosition=3
 
-**2020 in Pictures**\
-`Which of the images in this Times collection best captures how you’ll remember this “year like no other”?`\
-https://nytimes.com/2020/12/15/learning/2020-in-pictures.html?searchResultPosition=4
+**With Most Pantomimes Canceled, Another Blow to U.K. Theaters**\
+`Camp, kid-friendly and hugely popular, the peculiarly British performances usually sell enough tickets to support theaters’ programs throughout the rest of the year.`\
+https://nytimes.com/2020/12/15/theater/pantomime-uk.html?searchResultPosition=4
 
-**Late Night Is Ready to Take Jabs**\
-`“That’s right, people all across America are lining up for shots,” Jimmy Fallon said on Monday. “Normally, when that happens here in December, we call it SantaCon.”`\
-https://nytimes.com/2020/12/15/arts/television/late-night-trump-biden-electoral-college.html?searchResultPosition=5
+**Inside Biden’s Struggle to Manage Factions in the Democratic Party**\
+`The competition for senior offices has strained valuable political alliances, vexing some of Joe Biden’s key supporters from the Democratic primary contest.`\
+https://nytimes.com/2020/12/15/us/politics/biden-democrats.html?searchResultPosition=5
 
-**French Soccer Faces Financial Crisis After Broadcaster Pulls the Plug**\
-`The sudden collapse of a billion-dollar television contract has created a serious cash crisis for French clubs as the January transfer window nears.`\
-https://nytimes.com/2020/12/15/sports/soccer/LFP-mediapro-telefoot-ligue-1.html?searchResultPosition=6
+**An Instagram-Friendly Renovation, Complete With Disco Ball**\
+`For one couple, updating a midcentury-modern house near Palm Springs wasn’t just about respecting the architecture. It was about making it pop.`\
+https://nytimes.com/2020/12/15/realestate/instagrammable-renovation-palm-springs.html?searchResultPosition=6
 
-**Word + Quiz: purport**\
-`This word has appeared in 29 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/12/15/learning/word-quiz-purport.html?searchResultPosition=7
+**Delivery Workers in South Korea Say They’re Dying of ‘Overwork’**\
+`More than a dozen couriers have died this year. Some died after complaining of unbearable workloads that kept them on the clock from dawn until past midnight.`\
+https://nytimes.com/2020/12/15/world/asia/korea-couriers-dead-overwork.html?searchResultPosition=7
 
-**Dixie State University in Utah Says It’s in Need of a Name Change**\
-`The public university in St. George said about one in five recent graduates surveyed had received negative feedback from prospective out-of-state employers about the name.`\
-https://nytimes.com/2020/12/15/us/dixie-state-name-change.html?searchResultPosition=8
+**With First Dibs on Vaccines, Rich Countries Have ‘Cleared the Shelves’**\
+`The U.S., Britain, Canada and others are hedging their bets, reserving doses that far outnumber their populations, as many poorer nations struggle to secure enough.`\
+https://nytimes.com/2020/12/15/us/coronavirus-vaccine-doses-reserved.html?searchResultPosition=8
 
-**Lamar Jackson Returns to Seal Ravens’ Win Over Browns**\
-`The N.F.L.’s reigning most valuable player was treated for cramps but returned to Monday night’s game to throw a touchdown pass and set up a field-goal drive to beat surging Cleveland.`\
-https://nytimes.com/2020/12/15/sports/football/ravens-browns-score.html?searchResultPosition=9
+**The Undoing of Jeffrey Toobin**\
+`How a leading man of legal journalism lost his sweetest gig.`\
+https://nytimes.com/2020/12/15/style/jeffrey-toobin-zoom.html?searchResultPosition=9
 
-**‘We’re Facing So Many Different Battles’**\
-`Catherine Volcy, like college students across America, is studying from home. She is aching to talk in person with her peers and professors about this tumultuous year.`\
-https://nytimes.com/interactive/2020/12/14/us/familyinterrupted-volcy.html?searchResultPosition=10
+**A Desert Home Filled With Instagrammable Moments**\
+`For one couple, updating a midcentury-modern house near Palm Springs wasn’t just about respecting the architecture. It was about making it pop.`\
+https://nytimes.com/slideshow/2020/12/15/realestate/a-desert-home-filled-with-instagrammable-moments.html?searchResultPosition=10
 
