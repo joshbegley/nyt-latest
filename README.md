@@ -1,5 +1,5 @@
 **Richard Hinch, Speaker of New Hampshire House, Dies at 71**\
-`A Republican, he had a staunchly conservative agenda as his party took control of the state government in the December election. He died of Covid-19.`\
+`A Republican, he had a staunchly conservative agenda as his party took control of the state government in the November election. He died of Covid-19.`\
 https://nytimes.com/2020/12/15/obituaries/richard-hinch-dead-coronavirus.html?searchResultPosition=1
 
 **New & Noteworthy Visual Books, From Boxing to Hollywood Candids**\
