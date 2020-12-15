@@ -30,11 +30,11 @@ https://nytimes.com/2020/12/15/us/politics/biden-democrats.html?searchResultPosi
 `For one couple, updating a midcentury-modern house near Palm Springs wasn’t just about respecting the architecture. It was about making it pop.`\
 https://nytimes.com/2020/12/15/realestate/instagrammable-renovation-palm-springs.html?searchResultPosition=8
 
-**Delivery Workers in South Korea Say They’re Dying of ‘Overwork’**\
-`More than a dozen couriers have died this year. Some died after complaining of unbearable workloads that kept them on the clock from dawn until past midnight.`\
-https://nytimes.com/2020/12/15/world/asia/korea-couriers-dead-overwork.html?searchResultPosition=9
-
 **With First Dibs on Vaccines, Rich Countries Have ‘Cleared the Shelves’**\
 `The U.S., Britain, Canada and others are hedging their bets, reserving doses that far outnumber their populations, as many poorer nations struggle to secure enough.`\
-https://nytimes.com/2020/12/15/us/coronavirus-vaccine-doses-reserved.html?searchResultPosition=10
+https://nytimes.com/2020/12/15/us/coronavirus-vaccine-doses-reserved.html?searchResultPosition=9
+
+**Delivery Workers in South Korea Say They’re Dying of ‘Overwork’**\
+`More than a dozen couriers have died this year. Some died after complaining of unbearable workloads that kept them on the clock from dawn until past midnight.`\
+https://nytimes.com/2020/12/15/world/asia/korea-couriers-dead-overwork.html?searchResultPosition=10
 
