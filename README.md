@@ -2,8 +2,8 @@
 `The Department of Cultural Affairs announced Tuesday that more than 1,000 of the city’s cultural organizations would receive the funds.`\
 https://nytimes.com/2020/12/15/arts/nyc-arts-grants.html?searchResultPosition=1
 
-**The Vaccine Rollout Begins**\
-`Times correspondents report on the first coronavirus vaccinations in the United States`\
+**What We Saw on Day 1 of the Vaccine Rollout**\
+`Times correspondents report on the first coronavirus vaccinations in the United States.`\
 https://nytimes.com/interactive/2020/12/15/us/coronavirus-vaccine-rollout-burst.html?searchResultPosition=2
 
 **The Virus Trains: How Lockdown Chaos Spread Covid-19 Across India**\
