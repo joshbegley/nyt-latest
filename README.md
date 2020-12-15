@@ -32,7 +32,7 @@ https://nytimes.com/video/us/politics/100000007503601/azar-jerome-adams-coronavi
 
 **Carol Sutton, a Stage and Screen Actress Devoted to New Orleans, Dies at 76**\
 `Ms. Sutton brought characters to life on the stage, on television and in movies like “Steel Magnolias.” She also mentored young people in her local theater community.`\
-https://nytimes.com/2020/12/14/obituaries/carol-sutton-dies.html?searchResultPosition=9
+https://nytimes.com/2020/12/14/arts/carol-sutton-dies.html?searchResultPosition=9
 
 **‘It was important for me to do this one thing,’ a terminally ill elector said, casting his vote for Biden.**\
 `By Aishvarya Kavi`\
