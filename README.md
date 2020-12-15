@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/14/briefing/coronavirus-england-joe-biden-big-tech.h
 
 **Ann Reinking, Dancer, Actor, Choreographer and Fosse Muse, Dies at 71**\
 `From the ensembles of “Cabaret” and “Pippin,” Ms. Reinking stepped into the role of Roxie Hart in “Chicago,” and the rest is Tony-winning history.`\
-https://nytimes.com/2020/12/14/obituaries/ann-reinking-dies.html?searchResultPosition=3
+https://nytimes.com/2020/12/14/obituaries/ann-reinking-dead.html?searchResultPosition=3
 
 **Quotation of the Day: Early Epicenter Takes Step Forward and Prepares for Mass Inoculations**\
 `Quotation of the Day for Tuesday, December 15, 2020.`\
