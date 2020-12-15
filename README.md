@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/15/books/review/new-this-week.html?searchResultPosit
 `While the Constitution gives Congress the final say in the election, there is no chance that it will agree to overturn the results.`\
 https://nytimes.com/2020/12/15/technology/can-trump-still-win.html?searchResultPosition=2
 
-**California’s Travel Restrictions Ban Short-Term Rentals. Why Can’t Travelers Get Refunds?**\
+**California Is Banning Short-Term Rentals. Why Can’t Travelers Get Refunds?**\
 `The state’s latest travel restrictions make most hotel or short term lodging illegal. But Airbnb and Vrbo, the biggest home-sharing companies, are sticking to no-refund policies.`\
 https://nytimes.com/2020/12/15/travel/airbnb-vrbo-refunds-travel-ban.html?searchResultPosition=3
 
