@@ -1,6 +1,6 @@
 **After weeks of declining to recognize Biden’s win, Mitch McConnell congratulates him for being the president-elect.**\
 `By Nicholas Fandos`\
-https://nytimes.com/2020/12/15/us/politics/after-weeks-of-declining-to-recognize-bidens-win-mitch-mcconnell-congratulates-him-for-being-the-president-elect.html?searchResultPosition=1
+https://nytimes.com/2020/12/15/us/politics/mitch-mcconnell-congratulates-biden.html?searchResultPosition=1
 
 **A Deeper, Darker Look at James Beard, Food Oracle and Gay Man**\
 `A new biography traces the influence he wielded as a writer and the pain he endured for his sexuality in an unwelcoming world.`\
