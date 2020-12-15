@@ -27,7 +27,7 @@ https://nytimes.com/2020/12/15/movies/keegan-michael-key-favorites.html?searchRe
 https://nytimes.com/2020/12/15/movies/15heat-michael-mann-anniversary.html?searchResultPosition=7
 
 **Another Effect of Covid: Thousands of Double Proxy Weddings**\
-`Randy Nuñez and Sasha Carvalho-Nuñez were 4,000 miles apart on the day they were married. The couple, both of whom are in the Navy, were married when two strangers in Montana stood in for them.`\
+`Randy Nuñez and Sasha Nuñez-Carvalho were 4,000 miles apart on the day they were married. The couple, both of whom are in the Navy, were married when two strangers in Montana stood in for them.`\
 https://nytimes.com/2020/12/15/fashion/weddings/another-effect-of-covid-thousands-of-double-proxy-weddings.html?searchResultPosition=8
 
 **Vaccines Come With a Dose of Caution in California**\
