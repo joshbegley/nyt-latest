@@ -31,7 +31,7 @@ https://nytimes.com/2020/12/15/health/covid-moderna-vaccine.html?searchResultPos
 https://nytimes.com/2020/12/15/realestate/pandemic-winter-holidays.html?searchResultPosition=8
 
 **I.C.C. Won’t Investigate China’s Detention of Muslims**\
-`The International Criminal Court’s decision angered rights activists, who had lobbied it to investigate China’s repressive policies against Uighurs.`\
+`The International Criminal Court’s decision angered rights activists, who had lobbied it to investigate Beijing’s repressive policies against Uighurs.`\
 https://nytimes.com/2020/12/15/world/asia/icc-china-uighurs.html?searchResultPosition=9
 
 **Hungary Passes Laws Curtailing Gay Rights and Expanding Executive Power**\
