@@ -1,40 +1,40 @@
+**New Restaurant Offerings Amid the Pandemic**\
+`Though indoor dining has been suspended indefinitely in New York City, many restaurants continue to seek out creative ways to stay afloat. Here are a few.`\
+https://nytimes.com/2020/12/15/dining/nyc-restaurant-news.html?searchResultPosition=1
+
+**Violent Tragedy Upends a Bible Belt Town in This Brisk Novel**\
+`“The Ancient Hours,” by Michael Bible, examines lives in a North Carolina town after a deadly church fire.`\
+https://nytimes.com/2020/12/15/books/review/michael-bible-ancient-hours.html?searchResultPosition=2
+
 **A New Breed of Animal Documentary**\
 `“Gunda” and “My Octopus Teacher” present creatures as distinct beings with qualities that have nothing to do with humans.`\
-https://nytimes.com/2020/12/15/movies/gunda-my-octopus-teacher-documentaries.html?searchResultPosition=1
+https://nytimes.com/2020/12/15/movies/gunda-my-octopus-teacher-documentaries.html?searchResultPosition=3
 
 **Fashion Mogul Peter Nygard Indicted on Sex-Trafficking Charges**\
 `Mr. Nygard was arrested in Canada at the request of the U.S. attorney’s office in New York City, which accused him of recruiting dozens of women for sex.`\
-https://nytimes.com/2020/12/15/world/peter-nygard-sex-trafficking-charges.html?searchResultPosition=2
+https://nytimes.com/2020/12/15/world/peter-nygard-sex-trafficking-charges.html?searchResultPosition=4
 
 **Online Shopping Is Amazing. Or Is It?**\
 `So many shower curtains! But with the endless choice comes the risk of being fooled.`\
-https://nytimes.com/2020/12/15/technology/online-shopping.html?searchResultPosition=3
+https://nytimes.com/2020/12/15/technology/online-shopping.html?searchResultPosition=5
 
 **Ann Reinking: Playful, Refined and With Legs for Days**\
 `Discipline and abandon gave the dancer an ingrained elegance, an internal organization of the body that you sense even when it’s not pronounced.`\
-https://nytimes.com/2020/12/15/arts/dance/ann-reinking-appraisal.html?searchResultPosition=4
+https://nytimes.com/2020/12/15/arts/dance/ann-reinking-appraisal.html?searchResultPosition=6
 
 **What Is José Mourinho Telling Us on Instagram?**\
 `The Tottenham coach’s account is a surprisingly unfiltered window into his personality. It’s revealing a side of him he hasn’t always wanted people to see.`\
-https://nytimes.com/2020/12/15/sports/soccer/jose-mourinho-instagram.html?searchResultPosition=5
+https://nytimes.com/2020/12/15/sports/soccer/jose-mourinho-instagram.html?searchResultPosition=7
 
 **Monarch Butterflies Won’t Be Listed as Endangered Despite Meeting Criteria**\
 `The species will not come under federal protection because resources are being used for other listings, the U.S. Fish and Wildlife Service announced.`\
-https://nytimes.com/2020/12/15/climate/monarch-butterflies-endangered-species-list.html?searchResultPosition=6
+https://nytimes.com/2020/12/15/climate/monarch-butterflies-endangered-species-list.html?searchResultPosition=8
 
 **After Wildfires, Mourning the Loss of California’s Giants**\
 `For one reporter, documenting the destruction of redwoods and sequoias was a heartbreaking assignment.`\
-https://nytimes.com/2020/12/15/insider/wildfires-california-redwoods.html?searchResultPosition=7
+https://nytimes.com/2020/12/15/insider/wildfires-california-redwoods.html?searchResultPosition=9
 
 **East Coast Braces for Winter Storm on Wednesday**\
 `Heavy snow is forecast to sweep through the Mid-Atlantic States and barrel north through New England, dropping up to two feet of snow in some areas, but the fast-moving system won’t stick around for long.`\
-https://nytimes.com/2020/12/15/us/noreaster-weather-snow.html?searchResultPosition=8
-
-**One Wild Mink Near Utah Fur Farms Tests Positive for Virus**\
-`Infection seems to have come from farm animals, but there is no evidence of further spreading.`\
-https://nytimes.com/2020/12/15/science/covid-wild-mink-utah.html?searchResultPosition=9
-
-**Man Is Jailed After Taking Jet Ski Across Irish Sea to See Girlfriend**\
-`Defying the Isle of Man’s coronavirus restrictions, a 28-year-old traveled from Scotland to the island on Friday. Days after he arrived, he was sentenced to jail for four weeks.`\
-https://nytimes.com/2020/12/15/world/europe/jet-ski-isle-of-man-dale-mclaughlan.html?searchResultPosition=10
+https://nytimes.com/2020/12/15/us/noreaster-weather-snow.html?searchResultPosition=10
 
