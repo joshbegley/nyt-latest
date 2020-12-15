@@ -1,5 +1,5 @@
 **Biden to Name Gina McCarthy, Former E.P.A. Chief, as White House Climate Coordinator**\
-`Ms. McCarthy will serve as a senior adviser to President-elect Biden, coordinating climate change policy throughout the government.`\
+`Ms. McCarthy will serve as a senior adviser to President-elect Joseph R. Biden Jr., coordinating climate change policy throughout the government.`\
 https://nytimes.com/2020/12/15/climate/gina-mccarthy-biden-climate.html?searchResultPosition=1
 
 **Dominion’s C.E.O. defends his firm’s voting machines to Michigan lawmakers, denouncing a ‘reckless disinformation campaign.’**\
@@ -14,9 +14,9 @@ https://nytimes.com/2020/12/15/us/politics/drug-makers-340b-program.html?searchR
 `Fueled by a debate over when the justice system should consider young people adults, the legislation would apply to those under 25 when they committed a crime who have served at least 15 years.`\
 https://nytimes.com/2020/12/15/us/politics/dc-crime-youth.html?searchResultPosition=4
 
-**No, There Aren’t ‘Alternate Electors’ to Vote for Trump**\
-`It’s meaningless theater.`\
-https://nytimes.com/interactive/2020/12/15/technology/electoral-college-alternate-trump.html?searchResultPosition=5
+**daily-distortion**\
+`Tracking Viral Misinformation`\
+https://nytimes.com/live/2020/2020-election-misinformation-distortions?searchResultPosition=5
 
 **Where Does American Democracy Go From Here?**\
 `Six weeks after the election, Republican leaders are finally acknowledging Biden’s victory. Is that a relief, or an omen?`\
