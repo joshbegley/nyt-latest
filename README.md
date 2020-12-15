@@ -27,7 +27,7 @@ https://nytimes.com/2020/12/14/crosswords/daily-puzzle-2020-12-15.html?searchRes
 https://nytimes.com/video/us/politics/100000007503601/azar-jerome-adams-coronavirus-vaccine.html?searchResultPosition=7
 
 **Carol Sutton, a Stage and Screen Actress Devoted to New Orleans, Dies at 76**\
-`Ms. Sutton brought characters to life on the stage, on television and in movies like “Steel Magnolia.” She also mentored young people in her local theater community.`\
+`Ms. Sutton brought characters to life on the stage, on television and in movies like “Steel Magnolias.” She also mentored young people in her local theater community.`\
 https://nytimes.com/2020/12/14/obituaries/carol-sutton-dies.html?searchResultPosition=8
 
 **‘It was important for me to do this one thing,’ a terminally ill elector said, casting his vote for Biden.**\
