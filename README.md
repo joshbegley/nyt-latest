@@ -22,7 +22,7 @@ https://nytimes.com/2020/12/14/us/politics/republicans-electoral-college.html?se
 `He failed to bend the state to his will, but he still broke the country.`\
 https://nytimes.com/2020/12/14/opinion/trump-fascism.html?searchResultPosition=6
 
-**Start of Vaccinations Across U.S. Brings Hope as Virus Death Toll Soars**\
+**First Coronavirus Vaccines Bring Americans Hope in Small Doses**\
 `The vaccine campaign began on the same day that the nation surpassed 300,000 deaths, more than any other country.`\
 https://nytimes.com/2020/12/14/us/covid-vaccines-first-shots.html?searchResultPosition=7
 
