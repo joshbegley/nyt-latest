@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/14/arts/music/greatest-songs-WXPN.html?searchResultP
 https://nytimes.com/2020/12/14/sports/baseball/jared-porter-mets.html?searchResultPosition=5
 
 **In Canada, the First Vaccines Leave Health Workers in Tears of Relief**\
-`‘We were desperate.’ As nursing home employees received the first vaccinations on Monday, memories of the pandemic’s first wave left some overwhelmed with emotion.`\
+`“We were desperate.” As nursing home employees received the first vaccinations on Monday, memories of the pandemic’s first wave left some overwhelmed with emotion.`\
 https://nytimes.com/2020/12/14/world/canada/canada-virus-vaccine.html?searchResultPosition=6
 
 **Coronavirus Briefing: Vaccinations Begin in the U.S.**\
