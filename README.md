@@ -1,40 +1,40 @@
+**To Cut Emissions to Zero, U.S. Needs to Make Big Changes in Next 10 Years**\
+`New research details major infrastructure work — including immense construction projects — that would need to start right away to achieve Biden’s goal of zero emissions by 2050.`\
+https://nytimes.com/2020/12/15/climate/america-next-decade-climate.html?searchResultPosition=1
+
+**Sundance Goes Virtual With a More Accessible 2021 Lineup**\
+`Among the 72 feature films chosen for the slimmed-down festival are a Tessa Thompson racial-issues drama and a music documentary from Questlove.`\
+https://nytimes.com/2020/12/15/movies/sundance-film-festival-2021-lineup.html?searchResultPosition=2
+
+**Menopause Stories**\
+`‘There are still many women who think that menopause is the end of your life.’`\
+https://nytimes.com/video/opinion/100000007490980/menopause-stories.html?searchResultPosition=3
+
+**The Unsexy Side of Covid Vaccines Gets Wall Street’s Attention**\
+`Smaller companies that are key to the cold storage and distribution of Covid-19 vaccines are seeing a flurry of new investments.`\
+https://nytimes.com/2020/12/15/business/wall-street-cold-storage-covid-vaccine.html?searchResultPosition=4
+
+**When Publishing Women Was a Radical Act: A British Editor Looks Back**\
+`In “A Bite of the Apple,” Lennie Goodings recalls her time at Virago Books, occupying a front seat to feminist history.`\
+https://nytimes.com/2020/12/15/books/when-publishing-women-was-a-radical-act-a-british-editor-looks-back.html?searchResultPosition=5
+
+**Tara VanDerveer’s Current Math: 1,098 and Counting**\
+`Stanford’s women’s basketball coach is expected to break Pat Summitt’s record for wins on Tuesday night. But she isn’t stopping there.`\
+https://nytimes.com/2020/12/15/sports/ncaabasketball/tara-vanderveer-wins-record-stanford.html?searchResultPosition=6
+
+**Biden to Face a Confrontational Russia in a World Changed From His Time in Office**\
+`The president-elect will have to assure American national security in ways that will require pushing back on the Kremlin at times and, at others, seeking Russian cooperation.`\
+https://nytimes.com/2020/12/15/us/politics/biden-russia-trump-putin.html?searchResultPosition=7
+
 **Nursing Home Fire in Russia Kills 11**\
 `Small privately run facilities are filling a niche in the country, but fires in these homes are common occurrences.`\
-https://nytimes.com/2020/12/15/world/europe/nursing-home-fire-in-russia-kills-11.html?searchResultPosition=1
+https://nytimes.com/2020/12/15/world/europe/nursing-home-fire-in-russia-kills-11.html?searchResultPosition=8
 
 **Your Wednesday Briefing**\
 `A rich-poor divide in vaccine doses.`\
-https://nytimes.com/2020/12/15/briefing/virus-vaccines-icc-uighurs-korea-couriers.html?searchResultPosition=2
+https://nytimes.com/2020/12/15/briefing/virus-vaccines-icc-uighurs-korea-couriers.html?searchResultPosition=9
 
 **Biden picks Pete Buttigieg for transportation secretary.**\
 `By Coral Davenport and Michael D. Shear`\
-https://nytimes.com/2020/12/15/us/politics/biden-picks-pete-buttigieg-for-transportation-secretary.html?searchResultPosition=3
-
-**I Can’t Stop Watching Coronavirus Vaccine Videos**\
-`Unboxing a hopeful future.`\
-https://nytimes.com/2020/12/15/opinion/coronavirus-vaccine-videos.html?searchResultPosition=4
-
-**New At-Home Covid Test Gets Green Light From F.D.A.**\
-`Unlike similar at-home tests, Ellume’s does not require a prescription.`\
-https://nytimes.com/2020/12/15/health/rapid-covid-test-ellume.html?searchResultPosition=5
-
-**New York City Cultural Groups Awarded More Than $47 Million in Grants**\
-`The Department of Cultural Affairs announced Tuesday that more than 1,000 of the city’s cultural organizations would receive the funds.`\
-https://nytimes.com/2020/12/15/arts/nyc-arts-grants.html?searchResultPosition=6
-
-**What We Saw on Day 1 of the Vaccine Rollout**\
-`Times correspondents report on the first coronavirus vaccinations in the United States.`\
-https://nytimes.com/interactive/2020/12/15/us/coronavirus-vaccine-rollout-burst.html?searchResultPosition=7
-
-**The Virus Trains: How Lockdown Chaos Spread Covid-19 Across India**\
-`Prime Minister Narendra Modi’s coronavirus restrictions sent migrant workers fleeing. To get them home, the government offered special trains. But the trains would spread the virus across the country.`\
-https://nytimes.com/2020/12/15/world/asia/india-coronavirus-shramik-specials.html?searchResultPosition=8
-
-**Review: Catching Up to ‘The Expanse,’ the Space Opera You Love**\
-`The undisputed heir to “Battlestar Galactica” begins its fifth (and next to last) season on Amazon Prime Video.`\
-https://nytimes.com/2020/12/15/arts/television/review-the-expanse.html?searchResultPosition=9
-
-**Panel Finds ‘Serious Concerns’ With Mexican Labor Reforms**\
-`A new report examining Mexican labor reforms required under the United States-Mexico-Canada Agreement highlights one of the biggest trade challenges for the incoming Biden administration.`\
-https://nytimes.com/2020/12/15/business/economy/usmca-mexico-labor-reforms.html?searchResultPosition=10
+https://nytimes.com/2020/12/15/us/politics/biden-picks-pete-buttigieg-for-transportation-secretary.html?searchResultPosition=10
 
