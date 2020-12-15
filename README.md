@@ -1,4 +1,4 @@
-**Wary Companies Say No to Super Bowl Commercials, Citing Pandemic**\
+**Wary Companies Hesitate on Super Bowl Commercials, Citing Pandemic**\
 `As the virus cuts into the annual ad blitz, CBS has yet to book all of the 30-second slots available for the big game.`\
 https://nytimes.com/2020/12/15/business/media/super-bowl-2021-ads-coronavirus.html?searchResultPosition=1
 
