@@ -1,40 +1,40 @@
+**The Fast Path to a Vaccine**\
+`And what else you need to know today.`\
+https://nytimes.com/2020/12/15/briefing/attorney-general-barr-sandra-lindsay-russia-hackers.html?searchResultPosition=1
+
 **Japan’s ‘Twitter Killer’ Given Death Sentence for 9 Murders**\
 `Takahiro Shiraishi confessed to killing eight women he stalked on social media, and a man he thought suspected him, in crimes that evoked many of the country’s social fears.`\
-https://nytimes.com/2020/12/15/world/asia/japan-twitter-killer-death-sentence.html?searchResultPosition=1
+https://nytimes.com/2020/12/15/world/asia/japan-twitter-killer-death-sentence.html?searchResultPosition=2
 
 **In a Hard Year, Families Find Joy in Real Christmas Trees**\
 `Bell’s Christmas Trees in Accord, N.Y., closed early this month after its customers, worn down by the pandemic and looking for a safe family activity, bought out its entire inventory.`\
-https://nytimes.com/2020/12/15/us/bells-christmas-trees-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/12/15/us/bells-christmas-trees-coronavirus.html?searchResultPosition=3
 
 **America’s First Coronavirus Vaccinations**\
 `As the first shots are administered in the United States, we hear what it was like for health care workers in North Dakota and New Orleans.`\
-https://nytimes.com/2020/12/15/podcasts/the-daily/coronavirus-vaccinations-united-states.html?searchResultPosition=3
+https://nytimes.com/2020/12/15/podcasts/the-daily/coronavirus-vaccinations-united-states.html?searchResultPosition=4
 
 **A Black Student’s Mother Complained About ‘Fences.’ He Was Expelled.**\
 `A dispute about the reading of August Wilson’s Pulitzer Prize-winning play in an English class escalated at the mostly white Providence Day School in Charlotte, N.C.`\
-https://nytimes.com/2020/12/15/us/providence-day-school-fences-.html?searchResultPosition=4
+https://nytimes.com/2020/12/15/us/providence-day-school-fences-.html?searchResultPosition=5
 
 **Court Finds Evidence of Crimes Against Humanity in the Philippines**\
 `The International Criminal Court has released its latest report on President Rodrigo Duterte’s bloody war on drugs.`\
-https://nytimes.com/2020/12/15/world/asia/philippines-duterte-drugs-icc.html?searchResultPosition=5
+https://nytimes.com/2020/12/15/world/asia/philippines-duterte-drugs-icc.html?searchResultPosition=6
 
 **Vaccine Distribution Is Underway in New York**\
 `The first coronavirus vaccine in the country was administered in Queens. `\
-https://nytimes.com/2020/12/15/nyregion/vaccine-distribution-is-underway-in-new-york.html?searchResultPosition=6
+https://nytimes.com/2020/12/15/nyregion/vaccine-distribution-is-underway-in-new-york.html?searchResultPosition=7
 
 **‘Sylvia Pankhurst: Natural Born Rebel,’ by Rachel Holmes: An Excerpt**\
 `An excerpt from “Sylvia Pankhurst: Natural Born Rebel,” by Rachel Holmes`\
-https://nytimes.com/2020/12/15/books/review/sylvia-pankhurst-natural-born-rebel-by-rachel-holmes-an-excerpt.html?searchResultPosition=7
+https://nytimes.com/2020/12/15/books/review/sylvia-pankhurst-natural-born-rebel-by-rachel-holmes-an-excerpt.html?searchResultPosition=8
 
 **How to Pretend You’re in Singapore Tonight**\
 `You can feel like you are in the Lion City with a little work in the kitchen, the right book and some time in front of the TV.`\
-https://nytimes.com/2020/12/15/travel/singapore-vacation-at-home.html?searchResultPosition=8
+https://nytimes.com/2020/12/15/travel/singapore-vacation-at-home.html?searchResultPosition=9
 
 **With Most Pantomimes Canceled, Another Blow to U.K. Theaters**\
 `Camp, kid-friendly and hugely popular, the peculiarly British performances usually sell enough tickets to support theaters’ programs throughout the rest of the year.`\
-https://nytimes.com/2020/12/15/theater/pantomime-uk.html?searchResultPosition=9
-
-**Inside Biden’s Struggle to Manage Factions in the Democratic Party**\
-`The competition for senior offices has strained valuable political alliances, vexing some of Joe Biden’s key supporters from the Democratic primary contest.`\
-https://nytimes.com/2020/12/15/us/politics/biden-democrats.html?searchResultPosition=10
+https://nytimes.com/2020/12/15/theater/pantomime-uk.html?searchResultPosition=10
 
