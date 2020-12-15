@@ -1,5 +1,5 @@
 **Moderna Vaccine Is Highly Protective and Prevents Severe Covid-19, Data Show**\
-`The positive review likely ensures that the F.D.A. will approve a second coronavirus vaccine this week for millions of Americans.`\
+`The positive review likely ensures that the F.D.A. will grant emergency authorization for a second coronavirus vaccine this week for millions of Americans.`\
 https://nytimes.com/2020/12/15/health/covid-moderna-vaccine.html?searchResultPosition=1
 
 **Still at Home for the Holidays**\
