@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/14/opinion/donald-trump-presidency.html?searchResultPosition=1
 
 **Electoral College Vote Officially Affirms Biden’s Victory**\
-`The vote made official Joe Biden’s victory, despite President Trump’s attempt to subvert the nation’s democratic process, and to put pressure on Republicans to acknowledge the outcome.`\
+`The vote made official Joe Biden’s victory, despite President Trump’s attempt to subvert the nation’s democratic process, and it put pressure on Republicans to acknowledge the outcome.`\
 https://nytimes.com/2020/12/14/us/politics/biden-electoral-college.html?searchResultPosition=2
 
 **With Selfies, Emojis and Little Disruption, the Electoral College Makes It Official**\
