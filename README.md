@@ -1,5 +1,5 @@
 **‘The Electoral College Has Spoken’: McConnell Recognizes Biden’s Win**\
-`On Tuesday, Senator Mitch McConnell, the majority leader, recognized Joseph R. Biden Jr. as the president-elect and Senator Kamala Harris of California as vice-president elect.`\
+`On Tuesday, Senator Mitch McConnell, the majority leader, recognized Joseph R. Biden Jr. as the president-elect and Senator Kamala Harris of California as vice president-elect.`\
 https://nytimes.com/video/us/elections/100000007504433/mcconnell-congratulates-joe-biden-president.html?searchResultPosition=1
 
 **‘The Last Blockbuster’ Review: All the Nostalgia, With No Late Fees**\
