@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/15/business/media/conde-nast-shrinks.html?searchResu
 `On Tuesday, a private nursing home in a village outside the capital of Russia’s steel industry, Magnitogorsk, burned down killing 11 residents.`\
 https://nytimes.com/video/world/100000007504995/russia-fire-retirement-nursing-home.html?searchResultPosition=2
 
-**‘I Wouldn’t Have Known That My Mom Had Gone Through Menopause.’**\
+**‘I Wouldn’t Have Known That My Mom Had Gone Through Menopause’**\
 `Why are we so unprepared for one of life’s inevitable transitions?`\
 https://nytimes.com/2020/12/15/opinion/menopause-stories-women.html?searchResultPosition=3
 
