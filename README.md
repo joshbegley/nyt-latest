@@ -1,40 +1,40 @@
-**Her Wrist Was Swollen and Excruciatingly Painful. Steroids Didn’t Help.**\
-`At first, it was just sore. Then she could barely turn a doorknob or hold her cellphone. What brought this on?`\
-https://nytimes.com/2020/12/16/magazine/mycobacterium-marinum.html?searchResultPosition=1
+**How Russia Wins the Climate Crisis**\
+`Climate change is propelling enormous human migrations, transforming global agriculture and remaking the world order — and no country stands to gain more than Russia.`\
+https://nytimes.com/interactive/2020/12/16/magazine/russia-climate-migration-crisis.html?searchResultPosition=1
 
-**He Wanted to Count Every Vote in Philadelphia. His Party Had Other Ideas.**\
-`When Donald Trump’s campaign tried to overturn the election results in Pennsylvania, Al Schmidt found himself trapped between his party and his principles.`\
-https://nytimes.com/2020/12/16/magazine/trump-election-philadelphia-republican.html?searchResultPosition=2
+**Snow in N.Y.C.: When Will It Start, and How Much Will Fall?**\
+`Wednesday's snowstorm in New York City will be the biggest in recent years. Many New Yorkers were planning to stay home anyway.`\
+https://nytimes.com/2020/12/16/nyregion/nyc-winter-storm-gail.html?searchResultPosition=2
 
-**“The Best Year I’ve Ever Seen”**\
-`Plantations Réal Beloin is a family-run tree farm in Quebec that has been operating since the 1980s. This year, it sold out of trees in August and packed up his its last shipment to the U.S. on Thanksgiving weekend.`\
-https://nytimes.com/interactive/2020/12/16/business/quebec-christmas-tree-farm.html?searchResultPosition=3
+**Pandemic Leaves More Military Families Seeking Food Assistance**\
+`Veterans are in a similar situation, hunger advocates and service organizations have found.`\
+https://nytimes.com/2020/12/16/us/politics/coronavirus-military-hunger.html?searchResultPosition=3
 
-**Your New Favorite Condiment: Salsa Macha**\
-`This chunky Mexican chile oil can make everything from fried eggs to potatoes more delicious.`\
-https://nytimes.com/2020/12/16/magazine/salsa-macha-chile-oil.html?searchResultPosition=4
+**Counting on Biden, M.T.A. Shifts From Doomsday Budget to a Wishful One**\
+`New York’s transportation agency is expected to pass a stopgap budget that omits the draconian cuts transit officials have threatened in recent months.`\
+https://nytimes.com/2020/12/16/nyregion/mta-budget-cuts-federal-aid.html?searchResultPosition=4
 
-**‘Fantasia,’ ‘Snow White,’ Betty Boop, Popeye and the First Golden Age of Animation**\
-`Reid Mitenbuler’s “Wild Minds” is full of high-flown aspirations and zany anecdotes.`\
-https://nytimes.com/2020/12/16/books/review-wild-minds-golden-age-animation-reid-mitenbuler.html?searchResultPosition=5
+**From Voter Fraud to Vaccine Lies: Misinformation Peddlers Shift Gears**\
+`Election-related falsehoods have subsided, but misleading claims about the coronavirus vaccines are surging — often spread by the same people.`\
+https://nytimes.com/2020/12/16/technology/from-voter-fraud-to-vaccine-lies-misinformation-peddlers-shift-gears.html?searchResultPosition=5
 
-**The 20 Percent Shutdown**\
-`A better way to reduce infections without closing businesses.`\
-https://nytimes.com/interactive/2020/12/16/opinion/coronavirus-shutdown-strategies.html?searchResultPosition=6
+**A Portraitist Whose Subjects Are All in Her Head**\
+`A major new exhibition at Tate Britain in London puts the spotlight on Lynette Yiadom-Boakye, an artist who paints enigmatic Black characters of her own invention.`\
+https://nytimes.com/2020/12/16/arts/design/lynette-yiadom-boakye.html?searchResultPosition=6
 
-**Suspect Is Charged With Murder Over Japan Animation Studio Fire**\
-`Prosecutors accused Shinji Aoba in connection with a blaze in Kyoto last year that killed 36, making it the country’s deadliest attack in decades.`\
-https://nytimes.com/2020/12/16/world/asia/japan-kyoto-animation-studio-fire.html?searchResultPosition=7
+**How Putting on a Mask Raised Naomi Osaka’s Voice**\
+`She used her time away from competing during the pandemic to reflect on the world and her place within it. When the time came to speak, she approached it in her own distinct way.`\
+https://nytimes.com/2020/12/16/sports/tennis/naomi-osaka-protests-open.html?searchResultPosition=7
 
-**Can Any A.F.C. Team Catch the Chiefs?**\
-`Sure, Kansas City (12-1) is flawed, but its closest challengers have a long way to go to usurp a Super Bowl berth.`\
-https://nytimes.com/2020/12/16/sports/football/kansas-city-chiefs-playoffs-afc.html?searchResultPosition=8
+**Newburgh, N.Y.: Onetime Jewel of the Hudson River**\
+`As many New Yorkers discovered during the pandemic, this Orange County city doesn’t just have good bones, it is magnificent — and still fairly affordable.`\
+https://nytimes.com/2020/12/16/realestate/newburgh-ny-real-estate.html?searchResultPosition=8
 
-**Five Minutes of Beethoven**\
-`What emotions, images or ideas does this piano sonata evoke for you?`\
-https://nytimes.com/2020/12/16/learning/five-minutes-of-beethoven.html?searchResultPosition=9
+**Living In ... Newburgh, N.Y.**\
+`As many New Yorkers have discovered, this Orange County city doesn’t just have good bones, it is magnificent — and still relatively affordable.`\
+https://nytimes.com/slideshow/2020/12/16/realestate/living-in-newburgh-ny.html?searchResultPosition=9
 
-**Some Republicans Finally Face ‘Their Biggest Fear: Reality,’ Colbert Says**\
-`Mitch McConnell’s congratulating Joe Biden on his victory in the election was big news among late-night hosts like Stephen Colbert.`\
-https://nytimes.com/2020/12/16/arts/television/late-night-election-mitch-mcconnell-joe-biden-bill-barr.html?searchResultPosition=10
+**Newest Pandemic Shortage and Price Spike: Christmas Trees**\
+`Christmas tree vendors in New York say they have seen a rush of customers eager for a sense of comfort in a year of constant turbulence.`\
+https://nytimes.com/2020/12/16/nyregion/nyc-christmas-trees.html?searchResultPosition=10
 
