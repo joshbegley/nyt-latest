@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/15/crosswords/daily-puzzle-2020-12-16.html?searchRes
 https://nytimes.com/video/us/politics/100000007505712/myon-burrell-prison-release-minnesota.html?searchResultPosition=3
 
 **Santa Tests Positive for Virus After Photo Session With 50 Children**\
-`A husband and wife who dressed up as Santa and Mrs. Claus for an annual Christmas parade and tree-lighting ceremony in Georgia learned three days after the events that they had the coronavirus, officials said.`\
+`A husband and wife who dressed up as Santa and Mrs. Claus for an annual Christmas parade and tree-lighting ceremony in Georgia learned three days after the festivities that they had the coronavirus, officials said.`\
 https://nytimes.com/2020/12/15/us/georgia-santa-covid.html?searchResultPosition=4
 
 **Mexico, in Rebuke to U.S., Adopts Measure Restricting Foreign Agents**\
