@@ -16,7 +16,7 @@ https://nytimes.com/2020/12/16/technology/personaltech/how-to-send-2020-holiday-
 
 **Red Sox. White Sox. Blue Sox? Manny Is Still Manny.**\
 `The Sydney Blue Sox were stunned that Manny Ramirez, 48, wanted to join the Australian Baseball League. They’re counting on the former superstar to raise baseball’s profile in the country.`\
-https://nytimes.com/2020/12/16/sports/baseball/red-sox-white-sox-blue-sox-manny-is-still-manny.html?searchResultPosition=5
+https://nytimes.com/2020/12/16/sports/baseball/manny-ramirez-sydney-blue-sox.html?searchResultPosition=5
 
 **A Year When Even Sports Wasn’t an Escape**\
 `Social activism and the pandemic dominated 2020, and the sports world responded in kind.`\
