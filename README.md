@@ -36,5 +36,5 @@ https://nytimes.com/2020/12/16/arts/design/gallery-shows-right-now.html?searchRe
 
 **City of Paris Fined Nearly $110,000 for Appointing Too Many Women**\
 `The French government ordered the city to pay up under a 2012 law intended to address gender imbalance at senior levels of the country’s Civil Service. The mayor deemed the decision “absurd.”`\
-https://nytimes.com/2020/12/16/world/europe/city-of-paris-fined-nearly-110000-for-appointing-too-many-women.html?searchResultPosition=10
+https://nytimes.com/2020/12/16/world/europe/paris-too-many-women-fine.html?searchResultPosition=10
 
