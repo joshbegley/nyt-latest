@@ -1,5 +1,5 @@
-**Suspect Is Charged in Japan Over Animation Studio Fire**\
-`Prosecutors accused Shinji Aoba of arson and murder in connection with a blaze in Kyoto last year that killed 36, making it the country’s deadliest attack in decades.`\
+**Suspect Is Charged With Murder Over Japan Animation Studio Fire**\
+`Prosecutors accused Shinji Aoba in connection with a blaze in Kyoto last year that killed 36, making it the country’s deadliest attack in decades.`\
 https://nytimes.com/2020/12/16/world/asia/japan-kyoto-animation-studio-fire.html?searchResultPosition=1
 
 **Can Any A.F.C. Team Catch the Chiefs?**\
