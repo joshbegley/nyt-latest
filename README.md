@@ -1,5 +1,5 @@
 **Sake and Oysters: A Perfect Pair**\
-`Four culinary experts weigh in, dispel myths and share their experiences while tasting sake and oysters. Get ready for some “Kampai time!”`\
+`Four culinary experts weigh in on how to marry seafood and sake’s umami flavors.`\
 https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007506372/sake-and-oysters-a-perfect-pair.html?searchResultPosition=1
 
 **Vaccination Campaign at Nursing Homes Faces Obstacles and Confusion**\
