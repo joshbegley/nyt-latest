@@ -1,5 +1,5 @@
 **Mexico, in Rebuke to U.S., Adopts Measure Restricting Foreign Agents**\
-`The legislation has sparked criticism from American officials, who say it will limit the work of law enforcement in Mexico.`\
+`The legislation, which will limit cooperation with U.S. drug enforcement agents, was approved after weeks of tension over the Americans’ short-lived arrest of a former Mexican official.`\
 https://nytimes.com/2020/12/15/world/americas/mexico-us-drug-agents.html?searchResultPosition=1
 
 **Biden’s Climate Team Begins to Take Shape**\
