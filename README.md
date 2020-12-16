@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/15/opinion/trump-democracy-america.html?searchResult
 `The top four congressional leaders had their first in-person spending discussions in months, but were still short of a deal on a pandemic stimulus measure or a broader spending plan.`\
 https://nytimes.com/2020/12/15/us/politics/congress-stimulus-spending-deals.html?searchResultPosition=9
 
-**Kamala Harris Deserves a More Important Job**\
-`She could be at the forefront of helping a part of America that’s been left behind.`\
-https://nytimes.com/2020/12/15/opinion/kamala-harris-rural-america.html?searchResultPosition=10
+**He’s Too Quiet for His Mate to Hear Him. So He Makes a Megaphone.**\
+`Some tree crickets amplify their calls with leaves, giving them an opportunity to mate that they otherwise might miss.`\
+https://nytimes.com/2020/12/15/science/tree-crickets-chirps.html?searchResultPosition=10
 
