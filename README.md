@@ -31,7 +31,7 @@ https://nytimes.com/2020/12/16/us/despite-scaled-back-plans-biden-inauguration-o
 https://nytimes.com/2020/12/16/sports/baseball/mlb-negro-leagues.html?searchResultPosition=8
 
 **Fed Leaves Rates Unchanged and Commits to Ongoing Bond Purchases**\
-`Central bank officials left rates near-zero at their December meeting and tied bond buying to their employment and price goals.`\
+`Central bank officials left rates near-zero at their December meeting, and tied bond buying to their employment and price goals.`\
 https://nytimes.com/2020/12/16/business/economy/fed-december-meeting-jerome-powell.html?searchResultPosition=9
 
 **Watch Live: Powell Holds News Conference**\
