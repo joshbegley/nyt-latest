@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/16/us/politics/biden-inauguration-donors-virtual.html?searchResultPosition=1
 
 **Mobster Pleads in Plot Against ‘Real Housewives’ Boyfriend, U.S. Says**\
-`John Perna, who prosecutors say is a member of the Lucchese crime family, agreed to the beatdown in exchange for a discount on a wedding deal, the indictment charged.`\
+`A man who was dating a former New Jersey “housewife” was beaten up. Her ex-husband ordered the assault, prosecutors say.`\
 https://nytimes.com/2020/12/16/nyregion/mafia-attack-real-housewives.html?searchResultPosition=2
 
 **Staring Down Deadline, Congress Nears $900 Billion Stimulus Deal**\
