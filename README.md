@@ -1,40 +1,40 @@
+**As Singapore Ventures Back Out, Migrant Workers Are Kept In**\
+`The low-wage workers, almost half of whom have contracted the coronavirus, continue to be mostly confined to dormitories even as the city-state eases restrictions.`\
+https://nytimes.com/2020/12/17/world/asia/coronavirus-singapore-migrant-workers.html?searchResultPosition=1
+
 **Axios Buys Charlotte Agenda, a Digital Start-Up, as Part of Push Into Local News**\
 `The site focuses on service journalism for North Carolina’s largest city. Now it has been scooped up in a deal valued at nearly $5 million and will be a partial model for other cities.`\
-https://nytimes.com/2020/12/17/business/media/axios-local-news-charlotte-agenda.html?searchResultPosition=1
+https://nytimes.com/2020/12/17/business/media/axios-local-news-charlotte-agenda.html?searchResultPosition=2
 
 **2020: A Theater of the Absurd for Europe’s Playhouses**\
 `The Times’s theater critics in London, Paris and Berlin reflect on a year of closures, reopenings, restrictions and curfews, in which the show somehow went on.`\
-https://nytimes.com/2020/12/17/theater/theater-europe-2020.html?searchResultPosition=2
+https://nytimes.com/2020/12/17/theater/theater-europe-2020.html?searchResultPosition=3
 
 **Microsoft’s Lessons for Google**\
 `What the Microsoft case teaches us about antitrust and the power of Big Tech today.`\
-https://nytimes.com/2020/12/17/technology/microsofts-lessons-for-google.html?searchResultPosition=3
+https://nytimes.com/2020/12/17/technology/microsofts-lessons-for-google.html?searchResultPosition=4
 
 **Gunman Sentenced to Life in Prison for 2015 Attack on Paris-Bound Train**\
 `The trial of the main assailant, Ayoub El Khazzani, and three accomplices provided a rare opportunity for prosecutors to delve into the operations of the Islamic State in Europe.`\
-https://nytimes.com/2020/12/17/world/europe/france-train-attack-trial.html?searchResultPosition=4
+https://nytimes.com/2020/12/17/world/europe/france-train-attack-trial.html?searchResultPosition=5
 
 **Nursing Home Residents Receive Coronavirus Vaccines**\
 `This week, nursing home residents across the U.S became some of the first patients to receive the new coronavirus vaccine.`\
-https://nytimes.com/video/us/politics/100000007508884/nursing-home-coronavirus-vaccines.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000007508884/nursing-home-coronavirus-vaccines.html?searchResultPosition=6
 
 **It Was a Landmark Crime Bill. Then a State Senator Added a Special Favor.**\
 `The clause to weaken penalties for official misconduct in New Jersey was added by a powerful Democrat whose girlfriend’s son faces five years in prison.`\
-https://nytimes.com/2020/12/17/nyregion/nj-mandatory-minimum-public-corruption.html?searchResultPosition=6
+https://nytimes.com/2020/12/17/nyregion/nj-mandatory-minimum-public-corruption.html?searchResultPosition=7
 
 **Will a Famous Critic’s Desk Cure My Writer’s Block?**\
 `Seeking inspiration from Vincent Canby’s Gothic trestle table.`\
-https://nytimes.com/2020/12/17/nyregion/vincent-canby-nyc.html?searchResultPosition=7
+https://nytimes.com/2020/12/17/nyregion/vincent-canby-nyc.html?searchResultPosition=8
 
 **Harold Budd, Composer of Spaciousness and Calm, Dies at 84**\
 `Known for his collaborations with art-pop artists like Brian Eno and Cocteau Twins, he created a signature sound suspended in reverberation and drone.`\
-https://nytimes.com/2020/12/17/arts/music/harold-budd-dead-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/12/17/arts/music/harold-budd-dead-coronavirus.html?searchResultPosition=9
 
 **Denmark Toughens Rape Law to Include Sex Without Consent**\
 `Rights groups and assault survivors welcomed the change, saying it was long overdue in a country that prides itself on gender equality.`\
-https://nytimes.com/2020/12/17/world/europe/denmark-rape-law.html?searchResultPosition=9
-
-**What’s in Our Queue? ‘On the Rocks’**\
-`I'm a pop culture reporter here at The Times. Here's what I've been watching, reading and listening to.`\
-https://nytimes.com/interactive/2020/12/17/burst/17editors-recommendations.html?searchResultPosition=10
+https://nytimes.com/2020/12/17/world/europe/denmark-rape-law.html?searchResultPosition=10
 
