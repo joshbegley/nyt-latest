@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/17/us/chicago-police-raid-anjanette-young.html?searc
 https://nytimes.com/2020/12/17/us/politics/don-fowler-dead.html?searchResultPosition=5
 
 **F.D.A. Panel Endorses Moderna’s Covid-19 Vaccine**\
-`An advisory group’s recommendation will mean millions more Americans can be inoculated, extending protection against Covid beyond big urban areas into rural and suburban regions.`\
+`An advisory group’s recommendation will mean millions more Americans can be inoculated, extending protection against Covid beyond major urban areas into rural and suburban regions.`\
 https://nytimes.com/2020/12/17/health/covid-vaccine-fda-moderna.html?searchResultPosition=6
 
 **Will Ghost Sharks Vanish Before Scientists Can Study Them?**\
