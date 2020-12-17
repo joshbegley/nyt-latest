@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/16/us/politics/biden-inauguration-donors-virtual.html?searchResultPosition=1
 
 **Mobster Pleads in Plot Against ‘Real Housewives’ Boyfriend, U.S. Says**\
-`A man who was dating a former New Jersey “housewife” was beaten up. Her ex-husband asked a Lucchese crime family member o commit the assault, prosecutors say.`\
+`A man who was dating a former New Jersey “housewife” was beaten up. Her ex-husband asked a Lucchese crime family member to commit the assault, prosecutors say.`\
 https://nytimes.com/2020/12/16/nyregion/mafia-attack-real-housewives.html?searchResultPosition=2
 
 **Staring Down Deadline, Congress Nears $900 Billion Stimulus Deal**\
