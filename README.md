@@ -1,40 +1,40 @@
+**51 Is Greater Than 1**\
+`And what else you need to know today.`\
+https://nytimes.com/2020/12/17/briefing/stimulus-trump-mar-a-lago-pfizer-vaccine.html?searchResultPosition=1
+
 **Should Facebook Be Broken Up?**\
 `The U.S. government and more than 40 states say the social networking company has become an unlawful monopoly that is hurting consumers.`\
-https://nytimes.com/2020/12/17/podcasts/the-daily/facebook-zuckerberg-antirust-ftc.html?searchResultPosition=1
+https://nytimes.com/2020/12/17/podcasts/the-daily/facebook-zuckerberg-antirust-ftc.html?searchResultPosition=2
 
 **A 1958 ’Vette Translated Into Modern Chinese**\
 `SongSan’s SS Dolphin is the latest in a long line of Chinese attempts at cloning more prominent vehicles.`\
-https://nytimes.com/2020/12/17/business/chinese-car-knockoffs.html?searchResultPosition=2
+https://nytimes.com/2020/12/17/business/chinese-car-knockoffs.html?searchResultPosition=3
 
 **How to Reimagine Policing and Public Safety that Works for Everyone**\
 `A group of police chiefs, activists and policymakers gathered to debate how to reform law enforcement in America in a time of unrest and upheaval.`\
-https://nytimes.com/2020/12/17/business/dealbook/police-reform-debate.html?searchResultPosition=3
+https://nytimes.com/2020/12/17/business/dealbook/police-reform-debate.html?searchResultPosition=4
 
 **What New Yorkers Need to Know About the Snowstorm**\
 `The National Weather Service suggested that snow accumulations in New York City could end up on the low end of the initial forecasts of eight to 12 inches. `\
-https://nytimes.com/2020/12/17/nyregion/nyc-snow-storm.html?searchResultPosition=4
+https://nytimes.com/2020/12/17/nyregion/nyc-snow-storm.html?searchResultPosition=5
 
 **A MAVERICK ADVENTURE THROUGH SPAIN’S INDOMITABLE ASTURIAS**\
 `From its ambitious cycle routes to its mountaintop villages preserving an old way of life, Asturias will provide travelers with a whole new sense of Spain.`\
-https://nytimes.com/paidpost/asturias-tourism/a-maverick-adventure-through-spains-indomitable-asturias.html?searchResultPosition=5
+https://nytimes.com/paidpost/asturias-tourism/a-maverick-adventure-through-spains-indomitable-asturias.html?searchResultPosition=6
 
 **The 25 Best Classical Music Tracks of 2020**\
 `Listen to our critics’ favorites from a year in which much of the energy in music came from recordings.`\
-https://nytimes.com/2020/12/17/arts/music/best-classical-music.html?searchResultPosition=6
+https://nytimes.com/2020/12/17/arts/music/best-classical-music.html?searchResultPosition=7
 
 **Viola Davis and Company on ‘Ma Rainey’ and Chadwick Boseman’s Last Bow**\
 `Members of the creative team discuss what it took to adapt the August Wilson play for Netflix and trying not to be “outdone” by the late actor.`\
-https://nytimes.com/2020/12/17/movies/ma-raineys-black-bottom-cast-roundtable.html?searchResultPosition=7
+https://nytimes.com/2020/12/17/movies/ma-raineys-black-bottom-cast-roundtable.html?searchResultPosition=8
 
 **The Video Games That Got Us Through 2020**\
 `These are not necessarily the best games or the newest games. But these are the games that people across The New York Times played for hundreds of hours this year.`\
-https://nytimes.com/2020/12/17/arts/video-games-pandemic.html?searchResultPosition=8
+https://nytimes.com/2020/12/17/arts/video-games-pandemic.html?searchResultPosition=9
 
 **The Best TV Episodes of 2020**\
 `Jackie Daytona. Dave Chappelle’s monologue. John Wilson’s risotto lesson. These are the episodes that cut through the clutter this year.`\
-https://nytimes.com/2020/12/17/arts/television/best-tv-episodes.html?searchResultPosition=9
-
-**What Happened in 2020 Will Not Stay in 2020**\
-`Elections are not intended to be open-ended affairs. But is any campaign with Donald Trump on the ballot bound to linger past its sell-by date?`\
-https://nytimes.com/2020/12/17/us/politics/2020-election-over.html?searchResultPosition=10
+https://nytimes.com/2020/12/17/arts/television/best-tv-episodes.html?searchResultPosition=10
 
