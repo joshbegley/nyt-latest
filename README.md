@@ -1,40 +1,40 @@
-**The Tactic of Our Time: Sound Urgent, Be Incomprehensible**\
-`In an era of institutional rot, cranks can be hard to tell from heroes.`\
-https://nytimes.com/2020/12/17/magazine/the-tactic-of-our-time-sound-urgent-be-incomprehensible.html?searchResultPosition=1
+**The 25 Best Classical Music Tracks of 2020**\
+`Listen to our critics’ favorites from a year in which much of the energy in music came from recordings.`\
+https://nytimes.com/2020/12/17/arts/music/best-classical-music.html?searchResultPosition=1
 
-**Emerald Fennell’s Dark, Jaded, Funny, Furious Fables of Female Revenge**\
-`A brilliant young show runner from “Killing Eve” unveils her first film, “Promising Young Woman,” bringing macabre feminist wit to experiences that no one wants to talk about.`\
-https://nytimes.com/2020/12/17/magazine/promising-young-woman-emerald-fennell.html?searchResultPosition=2
+**Viola Davis and Company on ‘Ma Rainey’ and Chadwick Boseman’s Last Bow**\
+`Members of the creative team discuss what it took to adapt the August Wilson play for Netflix and trying not to be “outdone” by the late actor.`\
+https://nytimes.com/2020/12/17/movies/ma-raineys-black-bottom-cast-roundtable.html?searchResultPosition=2
 
-**Want to Talk About Racism? Sit Next to Frederick Joseph**\
-`This debut author has learned not to read the comments about his new book, “The Black Friend.” Some are supportive; others contain death threats.`\
-https://nytimes.com/2020/12/17/books/review/frederick-joseph-the-black-friend.html?searchResultPosition=3
+**The Video Games That Got Us Through 2020**\
+`These are not necessarily the best games or the newest games. But these are the games that people across The New York Times played for hundreds of hours this year.`\
+https://nytimes.com/2020/12/17/arts/video-games-pandemic.html?searchResultPosition=3
 
-**How the Economy Is Actually Doing, in 9 Charts**\
-`The unemployment rate doesn't tell the whole story. We talked to a panel of economists to find out what other measures can shed light on whether we're in a short-term crisis — or the start of a long recession.`\
-https://nytimes.com/interactive/2020/12/17/business/economy/economic-indicator-charts-measures.html?searchResultPosition=4
+**The Best TV Episodes of 2020**\
+`Jackie Daytona. Dave Chappelle’s monologue. John Wilson’s risotto lesson. These are the episodes that cut through the clutter this year.`\
+https://nytimes.com/2020/12/17/arts/television/best-tv-episodes.html?searchResultPosition=4
 
-**With Rents Going Down, They Looked to Trade Up. Which of These Homes Would You Choose?**\
-`For their first place together, a couple joined forces (and budgets) to find a place with some sunlight and enough space to work from home.`\
-https://nytimes.com/interactive/2020/12/17/realestate/17hunt-sazo.html?searchResultPosition=5
+**What Happened in 2020 Will Not Stay in 2020**\
+`Elections are not intended to be open-ended affairs. But is any campaign with Donald Trump on the ballot bound to linger past its sell-by date?`\
+https://nytimes.com/2020/12/17/us/politics/2020-election-over.html?searchResultPosition=5
 
-**These Buses Bring School to Students**\
-`Remote learning is extra hard for millions of students who lack reliable internet at home. Wi-Fi buses are the solution in this Michigan community.`\
-https://nytimes.com/interactive/2020/12/17/us/school-bus-remote-learning-wifi.html?searchResultPosition=6
+**The Man I Saw Them Kill**\
+`The Trump administration has resumed federal executions after a 17-year hiatus. I witnessed the latest one.`\
+https://nytimes.com/2020/12/17/opinion/federal-executions-trump-alfred-bourgeois.html?searchResultPosition=6
 
-**Judge John Hodgman on Eating Mashed Potatoes**\
-`A deeply personal choice: Should you use a spoon or a fork?`\
-https://nytimes.com/2020/12/17/magazine/judge-john-hodgman-on-eating-mashed-potatoes.html?searchResultPosition=7
+**Don’t Fall for Big Pharma’s Savior Act**\
+`Heroic work went into the development of the coronavirus vaccines. But that doesn’t mean this industry deserves your affection.`\
+https://nytimes.com/2020/12/17/opinion/covid-vaccine-big-pharma.html?searchResultPosition=7
 
-**Lesson of the Day: ‘Treasure Washes Up on Venezuela’s Shore, Bringing Gold and Hope to a Village’**\
-`In this lesson, students will learn about the mysterious appearance of treasure in a fishing village. Then, they will reflect artistically on the article, or learn more about Venezuela.`\
-https://nytimes.com/2020/12/17/learning/lesson-of-the-day-treasure-washes-up-on-venezuelas-shore-bringing-gold-and-hope-to-a-village.html?searchResultPosition=8
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually.`\
+https://nytimes.com/2020/12/17/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=8
 
-**Auctioning Off a Dead Mall**\
-`When a shopping mall closes, where does all of its stuff go?`\
-https://nytimes.com/2020/12/17/style/auctioning-off-a-dead-mall.html?searchResultPosition=9
+**Nurses Are Anxious and Angry in 2nd Wave: ‘We’re Not Prepared’**\
+`“We’re worse off in some ways than we were in the beginning,” said one nurse about the lack of workers and resources at her New York hospital.`\
+https://nytimes.com/2020/12/17/nyregion/nurses-coronavirus-new-york.html?searchResultPosition=9
 
-**First Nursing Home Vaccines Arrive With Fist Bumps and Applause**\
-`Vaccines have now been administered at long-term care facilities in several states, but administrators warn that they will not bring a quick end to the long siege of the virus.`\
-https://nytimes.com/2020/12/17/us/coronavirus-vaccines-nursing-homes.html?searchResultPosition=10
+**Some Health Care Workers Are Getting the Vaccine. Others Aren’t. Who Decides?**\
+`Many primary care doctors, firefighters and others at risk of exposure are waiting to learn when they will get vaccinated.`\
+https://nytimes.com/2020/12/17/us/covid-vaccine-health-workers.html?searchResultPosition=10
 
