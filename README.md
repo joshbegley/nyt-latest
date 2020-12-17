@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/16/movies/the-art-of-political-murder-review-behind-a-bishops-assassination.html?searchResultPosition=1
 
 **I Was the Homeland Security Adviser to Trump. We’re Being Hacked.**\
-`The magnitude of this national security hack is hard to overstate.`\
+`The magnitude of this national security breach is hard to overstate.`\
 https://nytimes.com/2020/12/16/opinion/fireeye-solarwinds-russia-hack.html?searchResultPosition=2
 
 **Facebook reverses postelection algorithm changes that boosted news from authoritative sources.**\
