@@ -1,6 +1,6 @@
 **‘The Art of Political Murder’ Review: Behind a Bishop’s Assassination**\
 `This documentary from Paul Taylor explores the killing of Bishop Juan Gerardi Conedera in Guatemala in 1998.`\
-https://nytimes.com/2020/12/16/movies/the-art-of-political-murder-review-behind-a-bishops-assassination.html?searchResultPosition=1
+https://nytimes.com/2020/12/16/movies/the-art-of-political-murder-review.html?searchResultPosition=1
 
 **I Was the Homeland Security Adviser to Trump. We’re Being Hacked.**\
 `The magnitude of this national security breach is hard to overstate.`\
