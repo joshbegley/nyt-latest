@@ -1,5 +1,5 @@
 **How Many of Our Networks Do the Russians Control?**\
-`The magnitude of this national security breach is hard to overstate.`\
+`The magnitude of this national security hack is hard to overstate.`\
 https://nytimes.com/2020/12/16/opinion/fireeye-solarwinds-russia-hack.html?searchResultPosition=1
 
 **Move On, but Never Forget**\
