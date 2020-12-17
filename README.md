@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/17/briefing/coronavirus-spending-macron-pollution-de
 https://nytimes.com/interactive/2020/12/17/world/europe/britain-covid-contracts.html?searchResultPosition=2
 
 **Who Gets to Breathe Clean Air in New Delhi?**\
-`We measured how much air pollution two children, Monu and Aamya, breathed for a day to see if inequality makes a difference.`\
+`We measured how much air pollution two children, Monu and Aamya, breathed for a day to see how much inequality makes a difference.`\
 https://nytimes.com/interactive/2020/12/17/world/asia/india-pollution-inequality.html?searchResultPosition=3
 
 **N.F.L. Week 15 Predictions: Our Picks Against the Spread**\
