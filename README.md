@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007508884/nursing-home-coronavirus-vaccines.html?searchResultPosition=1
 
 **It Was a Landmark Crime Bill. Then a State Senator Added a Special Favor.**\
-`A proposal to weaken penalties for official misconduct was tucked into legislation to end mandatory sentences for nonviolent drug crimes in New Jersey.`\
+`The clause to weaken penalties for official misconduct in New Jersey was added by a powerful Democrat whose girlfriend’s son faces five years in prison.`\
 https://nytimes.com/2020/12/17/nyregion/nj-mandatory-minimum-public-corruption.html?searchResultPosition=2
 
 **Will a Famous Critic’s Desk Cure My Writer’s Block?**\
