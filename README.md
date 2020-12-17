@@ -1,6 +1,6 @@
 **Read the CAS Decision Reducing Russia’s Doping Ban**\
 `The ruling reduced a four-year ban to two, but will keep Russian teams out of the next two Olympics and dozens of other global competitions.`\
-https://nytimes.com/interactive/2020/12/17/sports/olympics/17cas-decision-wada-rusada.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/12/17/sports/olympics/cas-decision-wada-rusada.html?searchResultPosition=1
 
 **To the Rescue This Year: The People Who Put Orchestras Online**\
 `Across the country, fall concerts were saved by staff whose work shifted rapidly from promotional videos to high-quality broadcasts.`\
