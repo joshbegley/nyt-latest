@@ -1,6 +1,6 @@
 **The virus is spreading unabated in California despite strict stay-at-home orders.**\
 `By Jill Cowan`\
-https://nytimes.com/2020/12/17/world/california-cases.html?searchResultPosition=1
+https://nytimes.com/2020/12/17/world/california-covid-cases.html?searchResultPosition=1
 
 **How the Oxford-AstraZeneca Vaccine Works**\
 `Two shots can prime the immune system to fight the coronavirus.`\
