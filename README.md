@@ -1,5 +1,5 @@
 **8 Catholic Sisters Die of Covid-19 Within a Week at a Wisconsin Home**\
-`They were educators, music teachers and liturgists, living out their remaining years in a retirement residence when they died in the past two weeks after lifetimes of service.`\
+`They were educators, music teachers and liturgists, living out their remaining years in a retirement residence after lifetimes of service.`\
 https://nytimes.com/2020/12/18/us/wisconsin-nuns-covid-deaths.html?searchResultPosition=1
 
 **Complete or Incomplete?**\
