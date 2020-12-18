@@ -1,40 +1,40 @@
+**What Qualifies as Success?**\
+`Borussia Dortmund’s business is winning matches and grooming some of the world’s best young talent. To do both, sometimes you have to put up with a few growing pains.`\
+https://nytimes.com/2020/12/18/sports/soccer/dortmund-haaland-reyna-sancho.html?searchResultPosition=1
+
+**U.K. Lawmaker Under Fire for Calling UNICEF’s Free Meals a ‘Political Stunt’**\
+`Jacob Rees-Mogg said the agency should be ashamed of itself for providing free meals to 15,000 children in Britain, prompting a backlash.`\
+https://nytimes.com/2020/12/18/world/europe/rees-moog-unicef.html?searchResultPosition=2
+
+**‘Bridgerton’ Imagines a More Colorful Regency England**\
+`For her first Netflix series, Shonda Rhimes and her team infuse period-drama escapism with modern-day sensibilities.`\
+https://nytimes.com/2020/12/18/arts/television/bridgerton-netflix-shonda-rhimes.html?searchResultPosition=3
+
+**Is There Such a Thing as a Humane Eviction?**\
+`As a bulge of evictions looms, a Massachusetts sheriff is searching for ways to soften the blow.`\
+https://nytimes.com/2020/12/18/us/evictions-pandemic.html?searchResultPosition=4
+
+**Bill Ford: ‘Our Family Name Is on the Line Every Day’**\
+`The chairman of Ford Motor and the great-grandson of Henry Ford is an elder statesman in an industry where C.E.O.s come and go.`\
+https://nytimes.com/2020/12/18/business/bill-ford-interview-corner-office.html?searchResultPosition=5
+
+**Swapping Songs With Chess Grandmaster Garry Kasparov**\
+`Music brought a critic and a guest together, in a conversation about Bach, Beethoven, chess and politics.`\
+https://nytimes.com/2020/12/18/arts/music/garry-kasparov-classical-music.html?searchResultPosition=6
+
 **An Examination of ‘Caliphate’**\
 `Dean Baquet, the executive editor of The Times, discusses where “Caliphate” failed to meet Times standards. And Mark Mazzetti, an investigative correspondent for The Times, details new reporting that casts significant doubt on the claims of a central figure in the series.`\
-https://nytimes.com/2020/12/18/podcasts/caliphate-editors-note.html?searchResultPosition=1
+https://nytimes.com/2020/12/18/podcasts/caliphate-editors-note.html?searchResultPosition=7
 
 **An Unprepared N.Y.P.D. Badly Mishandled Floyd Protests, Watchdog Says**\
 `“I look back with remorse,” Mayor Bill de Blasio said after a city oversight agency found the department’s tactics “produced excessive enforcement.”`\
-https://nytimes.com/2020/12/18/nyregion/nypd-george-floyd-protests.html?searchResultPosition=2
+https://nytimes.com/2020/12/18/nyregion/nypd-george-floyd-protests.html?searchResultPosition=8
 
 **New York City Will Change Many Selective Schools to Address Segregation**\
 `The pandemic prompted the mayor’s most significant action yet on integration: a major shift in how hundreds of schools admit students.`\
-https://nytimes.com/2020/12/18/nyregion/nyc-schools-admissions-segregation.html?searchResultPosition=3
+https://nytimes.com/2020/12/18/nyregion/nyc-schools-admissions-segregation.html?searchResultPosition=9
 
 **Lost and Found: A Missing Camus Biography and a Christmas Miracle**\
 `Geoff Dyer remembers the book that came back.`\
-https://nytimes.com/2020/12/18/books/review/lost-and-found-a-missing-camus-biography-and-a-christmas-miracle.html?searchResultPosition=4
-
-**What It Was Like to Participate in a Covid-19 Vaccine Trial**\
-`Friday: We spoke with one Los Angeles nurse about why she volunteered for the Pfizer-BioNTech clinical trial.`\
-https://nytimes.com/2020/12/18/us/covid-vaccine-trial.html?searchResultPosition=5
-
-**Zoom Cocktails 2.0: The Holiday Edition**\
-`The virtual happy hour was novel nine months ago, and now it’s back to get us through the holidays. But can we overcome the limits of a virtual social life?`\
-https://nytimes.com/2020/12/18/realestate/zoom-cocktails-holidays.html?searchResultPosition=6
-
-**Mariah! Dolly! Carrie! 2020 Can’t Quarantine This Cheer**\
-`Pop stars try to pull off a Christmas spectacular in tough times, with three sparkly but heartfelt specials now on streaming services.`\
-https://nytimes.com/2020/12/18/arts/television/mariah-dolly-carrie-holiday-shows.html?searchResultPosition=7
-
-**Stuck at Home, People Are Splurging on Wine and Spirits**\
-`Sales of wine, beer and spirits are up across the board, but “consumers are trading up and spending more,” one analyst said.`\
-https://nytimes.com/2020/12/18/your-money/wine-liquor-sales-pandemic.html?searchResultPosition=8
-
-**Rock Hall of Fame Reveals Plan for Expansion**\
-`The $100 million project would add more programming space and a new band shell and renovate the Rock Hall’s original I.M. Pei building in Cleveland.`\
-https://nytimes.com/2020/12/18/arts/design/rock-and-roll-hall-of-fame-expansion.html?searchResultPosition=9
-
-**A Worrisome Drop in College Aid Applications**\
-`The pandemic has already led to one “lost class” of freshmen. The low rate of completing the financial aid form may signal another.`\
-https://nytimes.com/2020/12/18/your-money/college-financial-aid-covid.html?searchResultPosition=10
+https://nytimes.com/2020/12/18/books/review/lost-and-found-a-missing-camus-biography-and-a-christmas-miracle.html?searchResultPosition=10
 
