@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/18/arts/television/barbara-windsor-dead.html?searchR
 https://nytimes.com/2020/12/18/opinion/letters/russia-hacking.html?searchResultPosition=2
 
 **The Primal Scream Hotline**\
-`Are you a working parent? Scream after the beep.`\
+`Are you a parent who’s tired as hell? Click the number to scream after the beep.`\
 https://nytimes.com/interactive/2020/12/18/parenting/primal-scream.html?searchResultPosition=3
 
 **Should You Bank Your Baby’s Cord Blood?**\
