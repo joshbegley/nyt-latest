@@ -1,4 +1,4 @@
-**Biden addresses accusations against his son, saying I think it’s kind of foul play.’**\
+**Biden addresses accusations against his son, saying ‘I think it’s kind of foul play.’**\
 `By Katie Benner`\
 https://nytimes.com/2020/12/17/us/biden-addresses-accusations-against-his-son-saying-i-think-its-kind-of-foul-play.html?searchResultPosition=1
 
