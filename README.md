@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/18/sports/soccer/dortmund-haaland-reyna-sancho.html?
 `Jacob Rees-Mogg said the agency should be ashamed of itself for providing free meals to 15,000 children in Britain, prompting a backlash.`\
 https://nytimes.com/2020/12/18/world/europe/rees-moog-unicef.html?searchResultPosition=3
 
-**‘Bridgerton’ Imagines a More Colorful Regency England**\
+**With ‘Bridgerton,’ Scandal Comes to Regency England**\
 `For her first Netflix series, Shonda Rhimes and her team infuse period-drama escapism with modern-day sensibilities.`\
 https://nytimes.com/2020/12/18/arts/television/bridgerton-netflix-shonda-rhimes.html?searchResultPosition=4
 
