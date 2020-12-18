@@ -1,40 +1,40 @@
-**Inside One N.Y.C. School That Reopened During the Pandemic**\
-`By Juliane Dressner and Alexandra Garcia`\
-https://nytimes.com/2020/12/18/nyregion/nyc-bronx-school-reopening.html?searchResultPosition=1
+**Holiday Lights Go Big This Year**\
+`In this upended holiday season, Americans are decorating their rooflines and yards with gusto as a way to demand some cheer from a gloomy year.`\
+https://nytimes.com/2020/12/18/realestate/holiday-lights.html?searchResultPosition=1
 
-**Reopening a N.Y.C. School: ‘It’s Been a Tough Start’**\
-`This fall New York City’s public schools faced perhaps their biggest challenge in memory: Could they resume in person safely? And for how long? We filmed in one school for 33 days to chronicle every step of the reopening.`\
-https://nytimes.com/video/nyregion/100000007469742/nyc-bronx-school-reopening.html?searchResultPosition=2
+**A Holiday Light Show**\
+`The pandemic has prompted many homeowners to go bigger with their holiday decorations this year.`\
+https://nytimes.com/slideshow/2020/12/18/realestate/holiday-lights.html?searchResultPosition=2
 
-**Kangaroos Can Communicate With Humans, Study Says**\
-`Researchers say that kangaroos are the first wild animals to exhibit interspecies communication that is more commonly seen in animals that have evolved alongside humans.`\
-https://nytimes.com/2020/12/18/world/australia/kangaroos-communicate.html?searchResultPosition=3
+**How New York City Vaccinated 6 Million People in Less Than a Month**\
+`When a single case of smallpox arrived in Manhattan in 1947, a severe outbreak was possible. A decisive civil servant made a bold decision.`\
+https://nytimes.com/2020/12/18/nyregion/nyc-smallpox-vaccine.html?searchResultPosition=3
 
-**Lesson of the Day: ‘Australia Gears Up for the Great Koala Count, Using Drones, Droppings and Dogs’**\
-`In this lesson, students will learn about an upcoming effort to accurately count the koala population in Australia. Then, they will participate in a species count of their own.`\
-https://nytimes.com/2020/12/18/learning/lesson-of-the-day-australia-gears-up-for-the-great-koala-count-using-drones-droppings-and-dogs.html?searchResultPosition=4
+**In a Tough Year, a Nativity Scene ‘That Has Had Problems’**\
+`The Vatican’s Nativity scene this year has prompted much criticism — and some head-scratching.`\
+https://nytimes.com/2020/12/18/world/europe/italy-vatican-city-rome-nativity-scene-christmas.html?searchResultPosition=4
 
-**News Quiz: Vaccinations, Russian Hackers, Pete Buttigieg**\
-`Did you follow the headlines this week?`\
-https://nytimes.com/interactive/2020/12/18/briefing/news-quiz-vaccinations-russian-hackers-pete-buttigieg.html?searchResultPosition=5
+**Escape From the City: 9 Winter Outings That Fight Cabin Fever**\
+`Snow biking near Seattle, winter bird-watching near New York and seven other cold-weather activities near large U.S. cities.`\
+https://nytimes.com/2020/12/18/travel/winter-outdoor-activities-us.html?searchResultPosition=5
 
-**Best Animal Feeds?**\
-`Have you been watching any live feeds of animals during quarantine? Which are your favorites, and why?`\
-https://nytimes.com/2020/12/18/learning/best-animal-feeds.html?searchResultPosition=6
+**10 Powerful ‘Daily’ Episodes From 2020**\
+`In a year defined by a pandemic, protests and politics, “The Daily” sought out personal stories. Here’s a holiday playlist of the episodes that Michael Barbaro and our team can’t forget.`\
+https://nytimes.com/2020/12/18/podcasts/10-powerful-daily-episodes-from-2020.html?searchResultPosition=6
 
-**Benny Napoleon, Michigan Sheriff and Ex-Detroit Police Chief, Dies at 65**\
-`Sheriff Napoleon served for more than a decade in the Michigan county that includes Detroit, and ran unsuccessfully for the city’s mayor.`\
-https://nytimes.com/2020/12/18/us/benny-napoleon-dead.html?searchResultPosition=7
+**Tips for Hanging Outdoor Holiday Lights**\
+`Make a plan and be safe.`\
+https://nytimes.com/2020/12/18/realestate/tips-for-hanging-outdoor-holiday-lights.html?searchResultPosition=7
 
-**Word + Quiz: windfall**\
-`This word has appeared in 155 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/12/18/learning/word-quiz-windfall.html?searchResultPosition=8
+**Punch After Punch, Rape After Rape, a Murderer Was Made**\
+`The execution of Lisa Montgomery would be an injustice on top of an injustice.`\
+https://nytimes.com/2020/12/18/opinion/lisa-montgomery-execution.html?searchResultPosition=8
 
-**Late Night Compares Trump Health Adviser, Paul Alexander, to a Comic Book Villain**\
-`The former Health and Human Services adviser’s leaked emails encouraged herd immunity to deal with the pandemic, writing of Americans, “We want them infected.”`\
-https://nytimes.com/2020/12/18/arts/television/late-night-paul-alexander-covid-trump-casino.html?searchResultPosition=9
+**Carrier Plant Is Bustling, but Workers Are Wary as Trump Exits**\
+`The president championed an Indiana factory facing a shutdown four years ago. Hundreds of jobs were kept, and overtime abounds. Can the revival last?`\
+https://nytimes.com/2020/12/18/business/economy/carrier-trump.html?searchResultPosition=9
 
-**The Best Book Covers of 2020**\
-`The Book Review’s art director offers his annual laurels to the covers that distinguished themselves in his eyes.`\
-https://nytimes.com/2020/12/18/books/the-best-book-covers-of-2020.html?searchResultPosition=10
+**For Opponents of Native American Nicknames, 2020 Brought Hope**\
+`Leaders in the movement to rid sports of such nicknames and the logos that accompany them saw a domino effect building in public schools after two major professional teams made changes. But there are staunch holdouts.`\
+https://nytimes.com/2020/12/18/sports/for-opponents-of-native-american-nicknames-2020-brought-hope.html?searchResultPosition=10
 
