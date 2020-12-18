@@ -1,5 +1,5 @@
-**Justices Put Off Ruling on Trump Plan to Exclude Unauthorized Immigrants in Allocating House Seats**\
-`The Supreme Court said a challenge to efforts to exclude unauthorized immigrants from the tabulations was premature.`\
+**Justices Put Off Ruling on Trump Plan for Unauthorized Immigrants and Census**\
+`The Supreme Court said a challenge to efforts to exclude unauthorized immigrants from the tabulations used to allocate House seats was premature.`\
 https://nytimes.com/2020/12/18/us/supreme-court-census.html?searchResultPosition=1
 
 **They Died in the French and Indian War. Their Remains Await Reburial.**\
