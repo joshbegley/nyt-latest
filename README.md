@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/18/us/politics/henry-haller-dead.html?searchResultPosition=1
 
 **Zoom Executive Accused of Disrupting Calls at China’s Behest**\
-`U.S. prosecutors have charged a company executive based in China with engaging in a conspiracy over the termination of online meetings about the Tiananmen Square massacre.`\
+`U.S. prosecutors have charged a company executive based in China with conspiring to terminate online meetings about the Tiananmen Square massacre.`\
 https://nytimes.com/2020/12/18/technology/zoom-tiananmen-square.html?searchResultPosition=2
 
 **Government Shutdown, Moderna, Holiday Lights: Your Friday Evening Briefing**\
