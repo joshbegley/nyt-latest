@@ -2,7 +2,7 @@
 `The Supreme Court said a challenge to efforts to exclude unauthorized immigrants from the tabulations was premature.`\
 https://nytimes.com/2020/12/18/us/supreme-court-census.html?searchResultPosition=1
 
-**They Died in the French and Indian War. Their Remains Await Reburial**\
+**They Died in the French and Indian War. Their Remains Await Reburial.**\
 `The bones of British soldiers and colonial militia were disinterred during a reconstruction of Fort William Henry nearly 70 years ago.`\
 https://nytimes.com/2020/12/18/arts/design/Fort-William-Henry-soldiers-remains.html?searchResultPosition=2
 
