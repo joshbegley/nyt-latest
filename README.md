@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/19/world/covid-syria-surge-warning.html?searchResult
 `All the dishes we cooked over and over again.`\
 https://nytimes.com/2020/12/19/admin/33-recipes-our-food-staff-cooked-on-repeat-in-2020.html?searchResultPosition=9
 
-**3 Dead in Queens House Fire, Officials Say**\
+**3 Dead and 4 Injured in Queens House Fire, Officials Say**\
 `One firefighter fell through a floor while responding on Saturday morning to a fire in the Elmhurst section of Queens.`\
 https://nytimes.com/2020/12/19/nyregion/queens-fire.html?searchResultPosition=10
 
