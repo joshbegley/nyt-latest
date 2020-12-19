@@ -6,13 +6,13 @@ https://nytimes.com/2020/12/19/world/europe/france-charlie-hebdo-slogan.html?sea
 `Bed Bath & Beyond’s plus-size mailer, known as Big Blue, has made it to TV, eBay, even a mobster’s kitchen drawer. “The poor mailmen,” the company’s former marketing V.P. said, “what we did to them.”`\
 https://nytimes.com/2020/12/19/business/bed-bath-and-beyond-coupon.html?searchResultPosition=2
 
-**On LinkedIn, Pro Athletes Make Their Next Move**\
-`The platform that put the “network” in “social network” has proved unexpectedly popular with jocks seeking second careers.`\
-https://nytimes.com/2020/12/19/style/athletes-on-linked-in.html?searchResultPosition=3
-
 **Lebanese Officials Try to Limit Inquiry Into Deadly Beirut Blast**\
 `Months after a huge explosion in Beirut’s port, the investigation has become mired in politics as powerful forces band together to block efforts to hold leaders accountable.`\
-https://nytimes.com/2020/12/19/world/middleeast/beirut-explosion-investigation-arrests.html?searchResultPosition=4
+https://nytimes.com/2020/12/19/world/middleeast/beirut-explosion-investigation-arrests.html?searchResultPosition=3
+
+**On LinkedIn, Pro Athletes Make Their Next Move**\
+`The platform that put the “network” in “social network” has proved unexpectedly popular with jocks seeking second careers.`\
+https://nytimes.com/2020/12/19/style/athletes-on-linked-in.html?searchResultPosition=4
 
 **Flash Invaders: Another Game for a World on Pause**\
 `A free phone app encourages people to explore their surroundings, engage with art and connect across oceans.`\
