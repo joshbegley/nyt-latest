@@ -1,5 +1,5 @@
 **U.K. Imposes Harsher Lockdown on London, Citing New Version of Virus**\
-`Scientists say the new variant is spreading faster than previous ones, but does not appear to make people sicker.`\
+`Scientists in Britain say the new variant is spreading faster than previous ones, but does not appear to make people sicker.`\
 https://nytimes.com/2020/12/19/world/coronavirus-uk-new-variant.html?searchResultPosition=1
 
 **Hare Scramble**\
