@@ -34,7 +34,7 @@ https://nytimes.com/video/world/europe/100000007512534/johnson-britain-lockdown-
 `In a meeting at the White House on Friday, the president weighed appointing Sidney Powell, who promoted conspiracy theories about rigged voting machines, to probe voter fraud.`\
 https://nytimes.com/2020/12/19/us/politics/trump-sidney-powell-voter-fraud.html?searchResultPosition=9
 
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon prepare us for an annual visitor.`\
-https://nytimes.com/2020/12/19/crosswords/variety-acrostic.html?searchResultPosition=10
+**Congressional leaders work feverishly to finalize a $900 billion stimulus deal before midnight Sunday.**\
+`By Emily Cochrane`\
+https://nytimes.com/2020/12/19/world/stimulus-deal-congress.html?searchResultPosition=10
 
