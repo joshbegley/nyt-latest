@@ -23,7 +23,7 @@ https://nytimes.com/2020/12/19/opinion/sunday/trump-presidency-accountability.ht
 https://nytimes.com/2020/12/19/opinion/sunday/coronavirus-science.html?searchResultPosition=6
 
 **Biden Introduces His Climate Team**\
-`The president-elect said he has chosen a team that prioritizes making clean energy jobs and environmental protection the cornerstone of his economic plans.`\
+`The president-elect said he has chosen a team that prioritizes making clean energy jobs and environmental protection a cornerstone of his economic plans.`\
 https://nytimes.com/2020/12/19/climate/biden-climate-team.html?searchResultPosition=7
 
 **Jean Graetz, White Supporter of Civil Rights in Alabama, Dies at 90**\
