@@ -1,6 +1,6 @@
 **Toy Story**\
 `Randolph Ross gives us a holiday puzzle that everyone can monkey with.`\
-https://nytimes.com/2020/12/19/crosswords/toy-story.html?searchResultPosition=1
+https://nytimes.com/2020/12/19/crosswords/daily-puzzle-2020-12-20.html?searchResultPosition=1
 
 **C.D.C. Panel Endorses Moderna Vaccine for Americans**\
 `The approval sets the stage for widespread inoculations in the United States with a second coronavirus vaccine.`\
