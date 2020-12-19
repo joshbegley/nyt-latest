@@ -1,5 +1,5 @@
 **Georgia Pastors See Attack on Black Church in Campaign Against Warnock**\
-`In an open letter, dozens of Black religious leaders criticized Senator Kelly Loeffler for her criticism of the Rev. Dr. Raphael G. Warnock, her Democratic opponent.`\
+`In an open letter, dozens of Black religious leaders criticized Senator Kelly Loeffler for her characterizations of the Rev. Dr. Raphael G. Warnock, her Democratic opponent.`\
 https://nytimes.com/2020/12/19/us/georgia-pastors-see-attack-on-black-church-in-campaign-against-warnock.html?searchResultPosition=1
 
 **Cyberpunk 2077 Was Supposed to Be the Biggest Video Game of the Year. What Happened?**\
