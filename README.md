@@ -30,7 +30,7 @@ https://nytimes.com/2020/12/18/nyregion/snow-storm-rescue.html?searchResultPosit
 `The short time frame signaled optimism that Congress could come to agreement on the $900 billion economic recovery plan, but a last-minute dispute over the Fed’s lending powers emerged as a stubborn final sticking point.`\
 https://nytimes.com/2020/12/18/us/politics/congress-spending-bill-stimulus.html?searchResultPosition=8
 
-**F.D.A. OKs the Moderna Covid Vaccine, Adding Millions More Doses to the U.S. Supply**\
+**F.D.A. Authorizes Moderna Vaccine, Adding Millions of Doses to U.S. Supply**\
 `The Food and Drug Administration authorized a second coronavirus vaccine for emergency use, clearing the way for millions more Americans to be immunized next week.`\
 https://nytimes.com/2020/12/18/health/covid-vaccine-fda-moderna.html?searchResultPosition=9
 
