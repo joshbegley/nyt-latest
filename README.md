@@ -2,8 +2,8 @@
 `With her husband, Robert, Mrs. Graetz became a friend of Rosa Parks and supported the Montgomery bus boycott, despite threats to her life.`\
 https://nytimes.com/2020/12/19/us/jean-graetz-dead.html?searchResultPosition=1
 
-**General Perna Apologizes for Smaller Vaccine Deliveries in Some States**\
-`General Gustave F. Perna, chief operating officer for Operation Warp Speed, apologized after a number of states last week received fewer initial doses of the coronavirus vaccine than planned.`\
+**U.S. General Apologizes for Smaller Vaccine Deliveries in Some States**\
+`Gen. Gustave F. Perna, chief operating officer for Operation Warp Speed, apologized after a number of states last week received fewer initial doses of the coronavirus vaccine than planned.`\
 https://nytimes.com/video/us/politics/100000007512478/warp-speed-vaccine-delivery-problems.html?searchResultPosition=2
 
 **The head of Operation Warp Speed apologizes for shortfalls in vaccine deliveries to at least 14 states.**\
