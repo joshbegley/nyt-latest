@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/20/technology/antitrust-case-google-facebook.html?se
 `Diplomatic sweeteners for joining the Abraham Accords that were offered to Morocco, Sudan and the United Arab Emirates could be rejected by Congress or reversed by the incoming Biden administration.`\
 https://nytimes.com/2020/12/20/us/politics/trump-israel-sudan-peace-accord.html?searchResultPosition=3
 
-**Alabama Leads Rankings as College Football Playoff Field Is Set**\
+**Alabama in Top Spot as College Football Playoff Field Is Set**\
 `The semifinals will be played on Jan. 1 in Louisiana and Texas, with the national championship scheduled for the Miami area on Jan. 11.`\
 https://nytimes.com/2020/12/20/sports/ncaafootball/college-football-playoff-alabama-clemson.html?searchResultPosition=4
 
