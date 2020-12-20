@@ -1,4 +1,4 @@
-**‘The Pandemic is a Prisoner’s Dilemma Game’**\
+**‘The Pandemic Is a Prisoner’s Dilemma Game’**\
 `Using game theory, researchers modeled two ways of prioritizing vaccinations, to see which saved more lives.`\
 https://nytimes.com/2020/12/20/health/virus-vaccine-game-theory.html?searchResultPosition=1
 
