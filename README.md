@@ -22,9 +22,9 @@ https://nytimes.com/2020/12/19/at-home/geodesic-dome-activity.html?searchResultP
 `Washington’s owner, Daniel Snyder, is working to buy out three minority partners, including one he has accused of running a smear campaign against him.`\
 https://nytimes.com/2020/12/19/sports/football/washington-nfl-daniel-snyder.html?searchResultPosition=6
 
-**Congress Grasps for Stimulus Deal as Fed Dispute Poses Final Hurdle**\
-`Leaders struggled to clear away the last sticking points in the $900 billion compromise plan, including a stubborn disagreement over the central bank’s lending powers.`\
-https://nytimes.com/2020/12/19/us/politics/congress-grasps-for-stimulus-deal-as-fed-dispute-poses-final-hurdle.html?searchResultPosition=7
+**Lawmakers Resolve Fed Dispute as They Race to Close Stimulus Deal**\
+`Top senators appeared to strike an agreement on the central bank’s lending powers as they struggled to clear away the last sticking points in the $900 billion compromise plan.`\
+https://nytimes.com/2020/12/19/us/politics/stimulus-deal-congress.html?searchResultPosition=7
 
 **Americans Scraping By Say They Fear a Second Stimulus Won’t Be Enough**\
 `A proposed package includes $600 checks for individuals, but some facing overdue rent and stacks of bills say the money would make only a small dent.`\
