@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/20/us/politics/trump-israel-sudan-peace-accord.html?
 https://nytimes.com/2020/12/20/sports/ncaafootball/college-football-playoff-alabama-clemson.html?searchResultPosition=2
 
 **Long Lines as International Passengers Leave London**\
-`On Saturday, Prime Minister Boris Johnson of Britain imposed a lockdown in London and southeast England, citing a fast-spreading coronavirus variant.`\
+`People wait to depart from St. Pancras train station in London. On Saturday, Prime Minister Boris Johnson of Britain imposed a lockdown in London and southeast England, citing a fast-spreading coronavirus variant.`\
 https://nytimes.com/video/world/europe/100000007513177/london-coronavirus-lockdown-travel.html?searchResultPosition=3
 
 **Brinkmanship or Bluster? On Brexit and Pandemic, Boris Johnson Leaves It Late**\
