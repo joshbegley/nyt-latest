@@ -24,7 +24,7 @@ https://nytimes.com/2020/12/20/opinion/fake-news-disinformation-immigrants.html?
 
 **European countries begin barring travelers from the U.K. over concerns of a new coronavirus variant.**\
 `By Isabella Kwai and Apoorva Mandavilli`\
-https://nytimes.com/2020/12/20/world/european-countries-begin-barring-travelers-from-the-uk-over-concerns-of-a-new-coronavirus-variant.html?searchResultPosition=7
+https://nytimes.com/2020/12/20/world/UK-travelers-barred-over-new-virus-variant.html?searchResultPosition=7
 
 **What to Cook This Week**\
 `Make vinegar chicken exactly as it’s written, or a speedy recipe for hummus.`\
