@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/20/health/covid-ppe-shortages.html?searchResultPosition=1
 
 **Congress Reaches Deal on $900 Billion Coronavirus Relief Plan**\
-`Senator Mitch McConnell, the majority leader, said on Sunday evening that the stimulus package would provide $600 payments to Americans — half of what the government sent to many Americans in April.`\
+`Senator Mitch McConnell, the majority leader, said on Sunday evening the stimulus package would include direct payments for Americans.`\
 https://nytimes.com/video/us/politics/100000007513554/stimulus-coronavirus-relief-deal-mcconnell.html?searchResultPosition=2
 
 **Where Spiders Get Their Information**\
