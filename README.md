@@ -1,6 +1,6 @@
 **‘Covid Can’t Compete.’ In a Place Mired in War, the Virus Is an Afterthought.**\
 `In Afghanistan, life goes on as though the coronavirus never existed. “Fake news,” some say, even as a second wave has brought on a surge of new cases and hospitalizations.`\
-https://nytimes.com/2020/12/20/world/asia/covid-cant-compete-in-a-place-mired-in-war-the-virus-is-an-afterthought.html?searchResultPosition=1
+https://nytimes.com/2020/12/20/world/asia/covid-afghanistan-coronavirus.html?searchResultPosition=1
 
 **The Antitrust Case Against Big Tech, Shaped by Tech Industry Exiles**\
 `Regulators are relying on insiders like Dina Srinivasan, who left her digital ad job after concluding that “Facebook and Google were going to win and everybody else is going to lose.”`\
