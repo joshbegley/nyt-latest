@@ -1,5 +1,5 @@
 **Immigrant Neighborhoods Shifted Red as the Country Chose Blue**\
-`These maps show how areas with large populations of Latinos and those of Asian descent shifted this election in a way that may scramble the future of electoral politics, according to a New York Times analysis of 28,000 precincts.`\
+`These maps show how areas with Latino and Asian residents shifted the vote in a way that may scramble the future of electoral politics, according to a New York Times analysis of 28,000 precincts.`\
 https://nytimes.com/interactive/2020/12/20/us/politics/election-hispanics-asians-voting.html?searchResultPosition=1
 
 **Cause of Life**\
