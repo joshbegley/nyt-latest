@@ -22,7 +22,7 @@ https://nytimes.com/2020/12/20/pageoneplus/no-corrections-dec-21-2020.html?searc
 `Quotation of the Day for Monday, December 21, 2020.`\
 https://nytimes.com/2020/12/20/todayspaper/quotation-of-the-day-no-warning-no-strings-no-fanfare-a-billionaire-bestows-gifts.html?searchResultPosition=6
 
-**Your Monday Briefing**\
+**Coronavirus, Stimulus Deal, Rohingya: Your Monday Briefing**\
 `A worrying mutation of the coronavirus.`\
 https://nytimes.com/2020/12/20/briefing/coronavirus-stimulus-deal-rohingya-muppets.html?searchResultPosition=7
 
