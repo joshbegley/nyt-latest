@@ -27,7 +27,7 @@ https://nytimes.com/2020/12/21/dining/citrus-flavors-from-laduree.html?searchRes
 https://nytimes.com/2020/12/21/dining/alex-guarnaschelli-book-cook-with-me.html?searchResultPosition=7
 
 **Runners’ Races Were Canceled. Their Coaches Filled the Void.**\
-`Coaches and agents were desperate to help their athletes compete in a year void of competition. So they created a marathon themselves, and watched records fall.`\
+`Coaches and agents were desperate to help their athletes compete in a year void of competition. So they created a marathon themselves, and watched the list of the fastest American marathons times get rewritten.`\
 https://nytimes.com/2020/12/21/sports/marathon-project-sara-hall-martin-hehir.html?searchResultPosition=8
 
 **Trump Makes Classical Style the Default for Federal Buildings**\
