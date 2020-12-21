@@ -2,7 +2,7 @@
 `The Mendoza brothers, identical twins who worked together, died of complications of Covid-19 on the same day.`\
 https://nytimes.com/2020/12/21/obituaries/rosendo-rogelio-mendoza-dead.html?searchResultPosition=1
 
-**Navalny Says Russian Official Confessed to Plot to Poison Him**\
+**Navalny Says Russian Agent Confessed to Plot to Poison Him**\
 `Aleksei A. Navalny, the Russian opposition leader, published a recording of a phone call in which he says he tricked a security official into exposing the plot.`\
 https://nytimes.com/2020/12/21/world/europe/russia-navalny-poisoning-putin.html?searchResultPosition=2
 
