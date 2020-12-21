@@ -24,7 +24,7 @@ https://nytimes.com/2020/12/21/crosswords/the-crossword-stumper.html?searchResul
 
 **Concerns About Coronavirus Variant Cut Off U.K. From Europe**\
 `More than 30 countries banned air and rail links to Britain, foreshadowing what a ‘no deal’ Brexit could look like in 10 days.`\
-https://nytimes.com/2020/12/21/world/europe/covid-uk-europe-brexit.html?searchResultPosition=7
+https://nytimes.com/2020/12/21/world/europe/coronavirus-variant-uk.html?searchResultPosition=7
 
 **The Best New Podcasts of 2020**\
 `Some of this tumultuous year’s most absorbing programming — whether escapist or heartbreaking — could be found in these shows.`\
