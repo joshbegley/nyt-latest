@@ -35,6 +35,6 @@ https://nytimes.com/video/us/politics/100000007513554/stimulus-coronavirus-relie
 https://nytimes.com/2020/12/20/crosswords/daily-puzzle-2020-12-21.html?searchResultPosition=9
 
 **Congress Strikes Long-Sought Stimulus Deal to Provide $900 Billion in Aid**\
-`Leaders said they had an agreement on a pandemic aid plan including payments to Americans, jobless benefits and funds for businesses and vaccine distribution, but the timing of final votes was unclear.`\
+`Democrats and Republicans said they had an agreement on another round of pandemic aid, including direct payments to Americans, jobless benefits and funds for businesses and vaccine distribution.`\
 https://nytimes.com/2020/12/20/us/politics/congress-stimulus-deal.html?searchResultPosition=10
 
