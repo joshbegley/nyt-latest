@@ -35,6 +35,6 @@ https://nytimes.com/2020/12/20/opinion/trump-justice-department-lawyer.html?sear
 https://nytimes.com/2020/12/20/arts/ariana-grande-engaged-dalton-gomez.html?searchResultPosition=9
 
 **What We Learned From Week 15 of the N.F.L. Season**\
-`The Titans and the Colts won, the Buccaneers came back to beat the Falcons, and the Dolphins eliminated the Patriots from playoff contention.`\
+`The Chiefs won a potential Super Bowl preview against the Saints, the Titans and the Colts stayed hot and the previously winless Jets pulled off the upset of the season.`\
 https://nytimes.com/2020/12/20/sports/football/nfl-scores-results-week-15.html?searchResultPosition=10
 
