@@ -26,7 +26,7 @@ https://nytimes.com/2020/12/21/nyregion/who-gets-the-vaccine-next.html?searchRes
 `After officials locked down London and surrounding areas on Saturday, several nations banned travelers and France suspended freight transit.`\
 https://nytimes.com/2020/12/21/world/alarmed-by-reports-of-new-coronavirus-strain-nations-close-doors-to-britain.html?searchResultPosition=7
 
-**China Long Avoided Talking About Mental Health. Then the Pandemic Hit.**\
+**China Long Avoided Discussing Mental Health. The Pandemic Changed That**\
 `The government has deployed extensive resources to address the spike in depression and anxiety. But social stigmas and long-term challenges remain.`\
 https://nytimes.com/2020/12/21/world/asia/china-covid-mental-health.html?searchResultPosition=8
 
