@@ -32,7 +32,7 @@ https://nytimes.com/video/us/politics/100000007514649/barr-announces-new-charges
 
 **Pandemic Aid Boosts Biden and Shows a Potential Path for His Agenda in Congress**\
 `Working together with the president-elect urging them on from the sidelines, bipartisan groups in the Senate and House helped push feuding leaders to compromise. It could be a template for the future.`\
-https://nytimes.com/2020/12/21/us/coronavirus-relief-assessment.html?searchResultPosition=9
+https://nytimes.com/2020/12/21/us/biden-stimulus.html?searchResultPosition=9
 
 **The Crossword Stumper**\
 `A look at one of the entries that fooled solvers in last week’s puzzles.`\
