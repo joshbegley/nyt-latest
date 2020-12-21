@@ -26,7 +26,7 @@ https://nytimes.com/2020/12/21/world/americas/mexico-city-covid.html?searchResul
 `A polyglot, nonsectarian, gender-inclusive film from Canada remakes the Handel classic for today’s world.`\
 https://nytimes.com/2020/12/21/arts/music/handel-messiah-canada-indigenous.html?searchResultPosition=7
 
-**Kilauea Volcano Erupts in Hawaii, Prompting Warning About Ash**\
+**Kilauea Volcano Erupts in Hawaii, Prompting Warning to Stay Inside**\
 `The civil defense authorities warned people to stay indoors to avoid the fallout of ash carried by the winds.`\
 https://nytimes.com/2020/12/21/us/kilauea-volcano-eruption-hawaii.html?searchResultPosition=8
 
