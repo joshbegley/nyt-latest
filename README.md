@@ -1,40 +1,40 @@
+**The ‘Student-Athlete’ Myth**\
+`Two academics say the pandemic has highlighted the “utter hypocrisy” of the label. Also: The virus as war.`\
+https://nytimes.com/2020/12/21/opinion/letters/colleges-athletes.html?searchResultPosition=1
+
 **‘This Is Very Concerning,’ Cuomo Says of New Coronavirus Strain**\
 `On Monday, Gov. Andrew M. Cuomo of New York called for testing of passengers on flights bound to New York from the United Kingdom, after a new strain of coronavirus was discovered.`\
-https://nytimes.com/video/us/politics/100000007514982/cuomo-uk-coronavirus-new-strain.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000007514982/cuomo-uk-coronavirus-new-strain.html?searchResultPosition=2
 
 **Disney names a new chairman for its movie division.**\
 `By Brooks Barnes`\
-https://nytimes.com/2020/12/21/business/disney-chairman-alan-bergman-horn.html?searchResultPosition=2
+https://nytimes.com/2020/12/21/business/disney-chairman-alan-bergman-horn.html?searchResultPosition=3
 
 **N.J. Approves $14 Billion in Corporate Tax Breaks in Less Than a Week**\
 `The incentive package was pushed by Gov. Philip D. Murphy, a progressive Democrat who has railed against similar tax breaks in the past. His allies are not happy.`\
-https://nytimes.com/2020/12/21/nyregion/tax-incentives-new-jersey.html?searchResultPosition=3
+https://nytimes.com/2020/12/21/nyregion/tax-incentives-new-jersey.html?searchResultPosition=4
 
 **Take a Walking Tour of New York**\
 `Months ago, our architecture critic invited a few people to suggest modest strolls around places meaningful to them. Here’s where they went.`\
-https://nytimes.com/interactive/2020/12/21/arts/design/walking-tour-new-york.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/12/21/arts/design/walking-tour-new-york.html?searchResultPosition=5
 
 **Your Tuesday Briefing**\
 `Parts of Asia and Europe bar travelers from Britain.`\
-https://nytimes.com/2020/12/21/briefing/virus-variant-bans-china-electricity.html?searchResultPosition=5
+https://nytimes.com/2020/12/21/briefing/virus-variant-bans-china-electricity.html?searchResultPosition=6
 
 **Protesters angry over virus restrictions try to force their way into the Oregon statehouse.**\
 `By Mike Baker`\
-https://nytimes.com/2020/12/21/world/oregon-coronavirus-protests.html?searchResultPosition=6
+https://nytimes.com/2020/12/21/world/oregon-coronavirus-protests.html?searchResultPosition=7
 
 **Moratorium on evictions and foreclosures for F.H.A. loans is extended.**\
 `The moratorium will now run through Feb. 28. It had been set to expire at the end of the month.`\
-https://nytimes.com/2020/12/21/business/fha-loan-eviction-foreclosure-moratorium.html?searchResultPosition=7
+https://nytimes.com/2020/12/21/business/fha-loan-eviction-foreclosure-moratorium.html?searchResultPosition=8
 
 **‘Star Trek’ and Dr. Seuss Mash-Up Not Protected, Court Rules**\
 `The book, titled “Oh, the Places You’ll Boldly Go!”, hewed too closely to the original to be considered a parody under the “fair use” doctrine, a three-judge federal appeals panel declared.`\
-https://nytimes.com/2020/12/21/business/dr-seuss-star-trek-comicmix.html?searchResultPosition=8
+https://nytimes.com/2020/12/21/business/dr-seuss-star-trek-comicmix.html?searchResultPosition=9
 
 **‘No Plan to Do So,’ Barr Says of Appointing Special Counsels**\
 `Attorney General William P. Barr said Monday that he saw no reason to appoint special counsels to oversee the Justice Department’s investigation into Hunter Biden or President Trump’s baseless claims of widespread voter fraud.`\
-https://nytimes.com/video/us/politics/100000007514699/barr-elections-fraud-hunter-biden-no-charges.html?searchResultPosition=9
-
-**Progress Pack**\
-`The food insecurity crisis is accelerating. But people need more than just food; they need access to good food to avoid nutritional threats – from malnutrition to obesity – in order to live healthy lives and thrive.`\
-https://nytimes.com/paidpost/the-healthy-living-coalition/progress-pack.html?searchResultPosition=10
+https://nytimes.com/video/us/politics/100000007514699/barr-elections-fraud-hunter-biden-no-charges.html?searchResultPosition=10
 
