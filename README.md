@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/20/todayspaper/quotation-of-the-day-no-warning-no-st
 
 **Your Monday Briefing**\
 `A worrying mutation of the coronavirus.`\
-https://nytimes.com/2020/12/20/briefing/your-monday-briefing.html?searchResultPosition=3
+https://nytimes.com/2020/12/20/briefing/coronavirus-stimulus-deal-rohingya-muppets.html?searchResultPosition=3
 
 **The Stimulus Deal: What’s in It for You**\
 `Lawmakers agreed to issue stimulus payments of $600 and distribute a federal unemployment benefit of $300 for 11 weeks. But that money will take time to start arriving.`\
