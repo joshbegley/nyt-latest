@@ -1,5 +1,5 @@
 **Concerns About Coronavirus Variant Cut Off U.K. From Europe**\
-`More than 30 countries banned air and rail links to the Britain, foreshadowing what a ‘no deal’ Brexit could look like in 10 days.`\
+`More than 30 countries banned air and rail links to Britain, foreshadowing what a ‘no deal’ Brexit could look like in 10 days.`\
 https://nytimes.com/2020/12/21/world/europe/covid-uk-europe-brexit.html?searchResultPosition=1
 
 **The Best New Podcasts of 2020**\
