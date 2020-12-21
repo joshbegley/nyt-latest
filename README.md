@@ -18,8 +18,8 @@ https://nytimes.com/2020/12/21/movies/a-christmas-story-mom.html?searchResultPos
 `And what else you need to know today.`\
 https://nytimes.com/2020/12/21/briefing/stimulus-deal-congress-covid-vaccine-winter-solstice.html?searchResultPosition=5
 
-**German White Nationalist Sentenced to Life in Prison**\
-`A German court sentenced a white supremacist to life for killing two and attempting to storm a synagogue in the country’s worst act of anti-Semitism since World War II.`\
+**German White Supremacist Is Sentenced to Life in Prison**\
+`The 28-year-old attacker was convicted of killing two and attempting to storm a synagogue in what was described in court as the most despicable act of anti-Semitism in Germany since World War II.`\
 https://nytimes.com/2020/12/21/world/europe/germany-synagogue-attack.html?searchResultPosition=6
 
 **Delilah**\
