@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/22/opinion/stimulus-checks-housing-rent.html?searchR
 https://nytimes.com/2020/12/22/world/coronavirus-antarctica-chile.html?searchResultPosition=5
 
 **It’s Peak Season for Tamales in Los Angeles**\
-`Big tamaladas are canceled this year, but many of the city’s tamaleras press on because tamales, along with the culture and microeconomies they sustain, are essential.`\
+`Big tamaladas are canceled this year, but many of the city’s tamaleras press on because tamales, along with the cultures and microeconomies they sustain, are essential.`\
 https://nytimes.com/2020/12/22/dining/tamales-los-angeles.html?searchResultPosition=6
 
 **Poor Maintenance and Construction Flaws Are Cited in Italy Bridge Collapse**\
