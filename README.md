@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/21/opinion/coronavirus-loneliness.html?searchResultP
 
 **Congress Rushes to Pass Huge Coronavirus Relief Bill**\
 `The House was set to approve a $900 billion pandemic aid bill on Monday night, with the Senate poised to follow later on. The bill provides a $600 payment for most Americans.`\
-https://nytimes.com/2020/12/21/us/politics/coronavirus-relief.html?searchResultPosition=3
+https://nytimes.com/2020/12/21/us/politics/coronavirus-stimulus-deal.html?searchResultPosition=3
 
 **The Ghost of Sabotage Future**\
 `This winter’s economy won’t be as grim as feared, but what about after?`\
