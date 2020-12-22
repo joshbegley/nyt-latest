@@ -1,5 +1,5 @@
 **‘Ariana Grande: Excuse Me, I Love You’ Review: It’s Mutual.**\
-`Sometimes it’s enough to have a pop star adore you from afar, even if you aren’t an Arianator.`\
+`Sometimes it’s enough to adore a pop star from afar, even if you aren’t an Arianator.`\
 https://nytimes.com/2020/12/21/movies/review-ariana-grande-excuse-me-i-love-you.html?searchResultPosition=1
 
 **Your Tuesday Briefing**\
