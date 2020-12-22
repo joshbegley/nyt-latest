@@ -1,6 +1,6 @@
 **N.B.A. Live Updates: Warriors vs. Nets**\
 `It’s opening night, which means the official debut of the Kevin Durant-Kyrie Irving pairing, and a ring ceremony for LeBron James and the Los Angeles Lakers.`\
-https://nytimes.com/2020/12/22/sports/basketball/nba-live-updates-warriors-nets-lakers-clippers.html?searchResultPosition=1
+https://nytimes.com/2020/12/22/sports/basketball/nba-live-scores.html?searchResultPosition=1
 
 **The Second Stimulus Package: Here’s What’s Included**\
 `Smaller stimulus checks, additional funding and rules for business loans, and funding to buy and distribute vaccines are among the main components of the latest pandemic aid bill.`\
