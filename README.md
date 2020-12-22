@@ -24,7 +24,7 @@ https://nytimes.com/2020/12/21/us/coronavirus-briefing-what-happened-today.html?
 
 **Relief Deal Would Give Small Businesses a Shot at a Second Loan**\
 `The stimulus package being negotiated in Washington includes $285 billion for a renewed Paycheck Protection Program.`\
-https://nytimes.com/2020/12/21/business/ppp-small-business-relief.html?searchResultPosition=7
+https://nytimes.com/2020/12/21/business/stimulus-paycheck-protection-program.html?searchResultPosition=7
 
 **Virus Hits Federal Death Row, Prompting Calls for Delays in Executions**\
 `At least 14 of the roughly 50 men held in the secure facility at the federal penitentiary in Terre Haute, Ind., have tested positive. Staff members involved in executions have also gotten sick.`\
