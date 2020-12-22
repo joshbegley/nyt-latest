@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/22/sports/basketball/nba-live-scores.html?searchResultPosition=1
 
 **The Second Stimulus Package: Here’s What’s Included**\
-`Smaller stimulus checks, additional funding and rules for business loans, and funding to buy and distribute vaccines are among the main components of the latest pandemic aid bill.`\
+`Smaller stimulus checks, targeted aid for small businesses, and funding to buy and distribute vaccines are among the main components of the latest pandemic relief package.`\
 https://nytimes.com/2020/12/22/us/politics/second-stimulus-whats-included.html?searchResultPosition=2
 
 **‘It’s What Makes Life Worth Living’**\
