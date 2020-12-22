@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/22/world/asia/kashmir-modi-election.html?searchResultPosition=1
 
 **The Relief Bill’s Biggest Blind Spot**\
-`Millions will owe an average of $5,850 in back rent and utilities next month. But the latest aid package did little to address housing.`\
+`Millions will owe an average of $5,850 in back rent and utilities next month. But the latest aid package did too little to address housing.`\
 https://nytimes.com/2020/12/22/opinion/stimulus-checks-housing-rent.html?searchResultPosition=2
 
 **With first positive tests in Antarctica, no continent is untouched by the virus.**\
