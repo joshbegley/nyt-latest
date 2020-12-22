@@ -1,4 +1,4 @@
-**Why Ambulances Are Exempt From the Surprise Billing Ban**\
+**Why Ambulances Are Exempt From the Surprise-Billing Ban**\
 `The welter of providers, layers of state and local regulation, and lack of information about costs made lawmakers hesitant to take up the issue. But that may change.`\
 https://nytimes.com/2020/12/22/upshot/ground-ambulances-left-off-surprise-medical-bill-law.html?searchResultPosition=1
 
