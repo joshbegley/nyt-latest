@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/22/opinion/coronavirus-uk-strain.html?searchResultPo
 
 **‘Soul’ Features Pixar’s First Black Lead Character. Here’s How It Happened.**\
 `Mindful of animation’s history of racist imagery, the studio aimed to make the jazz pianist at the center of the film as specific as possible.`\
-https://nytimes.com/2020/12/22/movies/soul-pixar-black-characters.html?searchResultPosition=3
+https://nytimes.com/2020/12/22/movies/soul-pixar-disney-black-characters.html?searchResultPosition=3
 
 **Tiny Love Stories: ‘My Lesbian Hallmark Christmas Film Fantasy’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
