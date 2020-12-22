@@ -12,7 +12,7 @@ https://nytimes.com/2020/12/22/opinion/letters/trump-martial-law.html?searchResu
 
 **Pfizer Nears Deal With Trump Administration to Provide More Vaccine Doses**\
 `The company could provide at least tens of millions of additional doses of a coronavirus vaccine under an agreement that would give it better access to the supplies it needs to expand manufacturing.`\
-https://nytimes.com/2020/12/22/us/pfizer-vaccine-trump-administration.html?searchResultPosition=4
+https://nytimes.com/2020/12/22/us/pfizer-vaccine-doses.html?searchResultPosition=4
 
 **Biden Addresses Nation Before Holidays**\
 `On Tuesday, President-elect Joseph R. Biden Jr. called for unity in combating the coronavirus crisis and criticized the Trump administration’s handling of a recent cyberattack.`\
