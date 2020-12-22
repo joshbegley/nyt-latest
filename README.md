@@ -1,6 +1,6 @@
 **Family of U.S. Student Jailed for Quarantine Violation Pleads for Her Release**\
 `“She’s pretty hysterical right now,” said the grandmother of the 18-year-old student, Skylar Mack, who broke quarantine in the Cayman Islands.`\
-https://nytimes.com/2020/12/22/world/americas/skylar-mack-cayman-islands-virus.html?searchResultPosition=1
+https://nytimes.com/2020/12/22/world/americas/skylar-mack-cayman-islands-covid.html?searchResultPosition=1
 
 **Lockdown Kept Lonely Fans at Home. So Their Teams Went to Them.**\
 `When the pandemic closed stadiums in Britain, soccer clubs sought out their most vulnerable supporters to make sure they were OK. Nine months later, they’re still at it.`\
