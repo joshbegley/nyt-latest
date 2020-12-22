@@ -16,7 +16,7 @@ https://nytimes.com/2020/12/21/opinion/republicans-covid-stimulus.html?searchRes
 
 **2 Passengers and a Dog Slide Out of Moving Plane at La Guardia**\
 `Delta Flight 462 was delayed for hours after a male passenger forced open a cabin door while the plane was taxiing. He and his companions slid their way out of the plane.`\
-https://nytimes.com/2020/12/21/nyregion/plane-slide-laguardia-passenger.html?searchResultPosition=5
+https://nytimes.com/2020/12/21/nyregion/la-guardia-airport-dog-passenger-plane.html?searchResultPosition=5
 
 **Google Denies Antitrust Claims in Early Response to U.S. Lawsuit**\
 `The company said people use its services because they choose to, not because they lack alternatives.`\
