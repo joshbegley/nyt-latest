@@ -1,4 +1,4 @@
-**Circus Acrobats Injured in 2014 Reach $52.5 Million Settlement**\
+**Circus Acrobats Reach $52.5 Million Settlement in 2014 Accident**\
 `“There are safety standards and safety features that were supposed to be in place for every event,” a lawyer for the acrobats said.`\
 https://nytimes.com/2020/12/21/us/circus-acrobats-injured-settlement.html?searchResultPosition=1
 
