@@ -1,5 +1,5 @@
 **The Lives They Lived**\
-`After a year of bereavement, we pause to reflect on the deeds of four complex and vibrant people we’ve lost.`\
+`After a year of bereavement, we pause to reflect on the lives of four complex and vibrant people we’ve lost.`\
 https://nytimes.com/2020/12/22/podcasts/the-daily/covid-coronavirus-deaths-lives.html?searchResultPosition=1
 
 **BioNTech’s co-founder says there is no evidence its vaccine would not work on the new virus variant.**\
