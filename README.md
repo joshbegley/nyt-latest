@@ -14,7 +14,7 @@ https://nytimes.com/2020/12/22/arts/television/zosia-mamet-flight-attendant.html
 `A protracted political crisis revolving around Prime Minister Benjamin Netanyahu’s legal troubles has brought the coalition government to the verge of collapse.`\
 https://nytimes.com/2020/12/22/world/middleeast/israel-election-netanyahu.html?searchResultPosition=4
 
-**Misinformation ‘Superspreaders’ Target Georgia Senate Races**\
+**Misinformation Amplifiers Target Georgia Senate Races**\
 `The conservative social media personalities that spread baseless rumors of election fraud are starting to focus on the races that will decide control of the Senate.`\
 https://nytimes.com/2020/12/22/technology/georgia-senate-runoff-misinformation.html?searchResultPosition=5
 
