@@ -22,9 +22,9 @@ https://nytimes.com/2020/12/22/world/asia/korea-covid-infections-level-3.html?se
 `After a year of bereavement, we pause to reflect on the lives of four complex and vibrant people we’ve lost.`\
 https://nytimes.com/2020/12/22/podcasts/the-daily/covid-coronavirus-deaths-lives.html?searchResultPosition=6
 
-**BioNTech’s co-founder says there is no evidence its vaccine would not work on the new virus variant.**\
-`British officials warned that lockdown restrictions in effect in London and much of southern England might need to be expanded.`\
-https://nytimes.com/2020/12/22/world/biontechs-co-founder-says-there-is-no-evidence-its-vaccine-would-not-work-on-the-new-virus-variant.html?searchResultPosition=7
+**E.U. urges member countries to lift blanket travel bans for Britain.**\
+`The co-founder of BioNTech said there was no evidence that the Pfizer vaccine would not work on the new virus variant that inspired worldwide restrictions.`\
+https://nytimes.com/2020/12/22/world/eu-urges-member-countries-to-lift-blanket-travel-bans-for-britain.html?searchResultPosition=7
 
 **Why Young New Yorkers Are Facing a Tougher Job Crisis**\
 `No age group has faced a worse economic crisis in New York City than young workers, especially those who are Black, Hispanic or do not have a college degree.`\
