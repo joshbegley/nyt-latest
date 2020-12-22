@@ -8,7 +8,7 @@ https://nytimes.com/video/us/politics/100000007516702/us-health-officials-vaccin
 
 **Trump’s Longtime Banker at Deutsche Bank Resigns**\
 `Rosemary Vrablic, who oversaw hundreds of millions of dollars in loans to President Trump’s company, will leave the bank next week.`\
-https://nytimes.com/2020/12/22/business/trump-banker-resigns-deutsche-bank.html?searchResultPosition=3
+https://nytimes.com/2020/12/22/business/trump-deutsche-bank-rosemary-vrablic.html?searchResultPosition=3
 
 **A Deluge of Virus Victims and a Funeral Home’s ‘Horrifying Disrespect’**\
 `Andrew T. Cleckley was the first funeral director in New York to have his license revoked over the way he handled the remains of pandemic victims.`\
