@@ -12,7 +12,7 @@ https://nytimes.com/2020/12/22/business/trump-deutsche-bank-rosemary-vrablic.htm
 
 **A Deluge of Virus Victims and a Funeral Home’s ‘Horrifying Disrespect’**\
 `Andrew T. Cleckley was the first funeral director in New York to have his license revoked over the way he handled the remains of pandemic victims.`\
-https://nytimes.com/2020/12/22/nyregion/brooklyn-funeral-home-coronavirus-.html?searchResultPosition=4
+https://nytimes.com/2020/12/22/nyregion/brooklyn-funeral-home-coronavirus.html?searchResultPosition=4
 
 **U.K. and France Work to Help Stranded Truckers and Ease Fears of Food Shortages**\
 `Two days after closing its borders to arrivals from Britain, France was expected to reopen its borders to French nationals, residents and workers like truck drivers.`\
