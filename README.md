@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/21/nyregion/west-point-cheating.html?searchResultPos
 https://nytimes.com/2020/12/21/opinion/coronavirus-loneliness.html?searchResultPosition=5
 
 **Congress Rushes to Pass Huge Coronavirus Relief Bill**\
-`The House was set to approve a $900 billion pandemic aid bill on Monday night, with the Senate poised to follow later on. The bill provides a $600 payment for most Americans.`\
+`The House approved a $900 billion pandemic aid bill on Monday night, with the Senate poised to follow shortly after. The bill provides a $600 payment for most Americans.`\
 https://nytimes.com/2020/12/21/us/politics/coronavirus-stimulus-deal.html?searchResultPosition=6
 
 **The Ghost of Sabotage Future**\
