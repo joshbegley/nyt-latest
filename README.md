@@ -1,5 +1,5 @@
-**Trump Rails Against Coronavirus Relief Bill, Calling It a ‘Disgrace’**\
-`“It’s called the Covid relief bill, but it has almost nothing to do with Covid,” the president said in a video posted on Twitter.`\
+**Trump Demands Changes to Coronavirus Relief Bill, Calling It a ‘Disgrace’**\
+`The president sought bigger checks for Americans and a bill that dealt more specifically with pandemic relief.`\
 https://nytimes.com/2020/12/22/us/politics/trump-coronavirus-bill.html?searchResultPosition=1
 
 **Queens Republicans Under Fire for ‘Covid Conga Line’ Holiday Party**\
