@@ -1,6 +1,6 @@
 **Four Charged Over Blaze That Devastated Australia’s Fraser Island**\
 `The police said the men started an illegal campfire, but experts said the region would remain vulnerable to more fires as climate change worsens dry conditions.`\
-https://nytimes.com/2020/12/22/world/australia/fraser-island-fire-australia.html?searchResultPosition=1
+https://nytimes.com/2020/12/23/world/australia/fraser-island-fire-australia.html?searchResultPosition=1
 
 **Corrections: Dec. 23, 2020**\
 `Corrections that appeared in print on Wednesday, Dec. 23, 2020.`\
