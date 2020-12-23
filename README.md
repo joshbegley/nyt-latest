@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/23/briefing/stimulus-pardons-blue-whales.html?search
 https://nytimes.com/2020/12/23/world/middleeast/blackwater-trump-pardon.html?searchResultPosition=2
 
 **N.B.A. Postpones Rockets Game, an Early Test of Its Virus Rules**\
-`Multiple positive or inconclusive virus tests, and a health protocol breach, left the Rockets with too few players to compete in their season opener.`\
+`Multiple positive or inconclusive coronavirus tests, and a health protocol breach, left the Rockets with too few players to compete in their season opener.`\
 https://nytimes.com/2020/12/23/sports/basketball/houston-rockets-postponed-nba-coronavirus.html?searchResultPosition=3
 
 **Coronavirus Briefing: What Happened Today**\
