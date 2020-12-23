@@ -12,5 +12,5 @@ https://nytimes.com/2020/12/22/business/media/caliphate-pulitzer.html?searchResu
 
 **Will Trump Force Principled Conservatives to Start Their Own Party? I Hope So**\
 `American politics will be shaped by the influence of the monarch of Mar-a-Lago.`\
-https://nytimes.com/2020/12/22/opinion/republicans-principles.html?searchResultPosition=4
+https://nytimes.com/2020/12/22/opinion/trump-republicans-party.html?searchResultPosition=4
 
