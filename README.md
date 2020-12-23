@@ -18,7 +18,7 @@ https://nytimes.com/2020/12/22/us/columbus-ohio-shooting.html?searchResultPositi
 `The voluminous coronavirus relief and spending bill that blasted through Congress on Monday includes provisions — good, bad and just plain strange — that few lawmakers got to read.`\
 https://nytimes.com/2020/12/22/us/politics/whats-in-the-covid-relief-bill.html?searchResultPosition=5
 
-**Biden Assails Trump Over Handling of Russia Hack**\
+**Biden Assails Trump Over Handling of Russia Hacking**\
 `“This assault happened on Donald Trump’s watch when he wasn’t watching,’’ President-elect Joseph R. Biden Jr. said.`\
 https://nytimes.com/2020/12/22/us/politics/biden-trump-russia-hack.html?searchResultPosition=6
 
