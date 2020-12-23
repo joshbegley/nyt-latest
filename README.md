@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/23/us/michaela-garecht-california-fingerprint.html?s
 `And what else you need to know today.`\
 https://nytimes.com/2020/12/23/briefing/pfizer-vaccine-nba-spotify.html?searchResultPosition=2
 
-**The Year in Good News**\
+**The Positive News Stories of 2020**\
 `In a bleak year, our listeners offer some brightness — from all over the world.`\
 https://nytimes.com/2020/12/23/podcasts/the-daily/2020-good-news.html?searchResultPosition=3
 
