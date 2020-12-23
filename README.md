@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/23/sports/basketball/8-fearless-nba-season-predictio
 `What is this image saying?`\
 https://nytimes.com/2020/12/23/learning/gifts-on-the-brain.html?searchResultPosition=3
 
-**3 French Gendarmes Killed After Responding to Domestic Abuse Reports**\
+**3 French Gendarmes Killed After Responding to Reports of Domestic Abuse**\
 `The officers were shot in an isolated hamlet in central France, the authorities said. The gunman was later found dead.`\
 https://nytimes.com/2020/12/23/world/europe/france-police-shooting-domestic-abuse.html?searchResultPosition=4
 
