@@ -1,40 +1,40 @@
+**Blackwater’s Bullets Scarred Iraqis. Trump’s Pardon Renewed the Pain.**\
+`Iraqi witnesses against Blackwater guards were promised justice after a mass killing in Baghdad in 2007. ‘Today,’ one said, the bullets still in his leg, ‘they proved to me it was just theater.’`\
+https://nytimes.com/2020/12/23/world/middleeast/blackwater-trump-pardon.html?searchResultPosition=1
+
+**N.B.A. Postpones Houston Rockets Game Because of the Coronavirus**\
+`Multiple positive or inconclusive virus tests, and a health protocol breach, left the Rockets with too few players to compete in their season opener.`\
+https://nytimes.com/2020/12/23/sports/basketball/houston-rockets-postponed-nba-coronavirus.html?searchResultPosition=2
+
+**Coronavirus Briefing: What Happened Today**\
+`Antibody treatments have shown promise, but tens of thousands of doses are sitting unused in hospital refrigerators.`\
+https://nytimes.com/2020/12/23/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=3
+
 **New Signs of Economic Distress Emerge as Trump Imperils Aid Deal**\
 `A decline in consumer income and spending poses a further challenge to the recovery as jobless claims remain high and benefits approach a cutoff.`\
-https://nytimes.com/2020/12/23/business/economy/economy-trump-income-spending-unemployment.html?searchResultPosition=1
+https://nytimes.com/2020/12/23/business/economy/economy-trump-income-spending-unemployment.html?searchResultPosition=4
 
 **Globetrotting**\
 `Your sneak preview of books coming out in 2021 from around the world, updated each season.`\
-https://nytimes.com/interactive/2020/12/23/books/new-books-international.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/12/23/books/new-books-international.html?searchResultPosition=5
 
 **Chinese Swimmer’s Doping Ban Is Lifted After Accusation of Racism**\
 `Sun Yang, a former Olympic champion, had challenged the neutrality of one of the Court of Arbitration for Sport officials who issued his eight-year suspension.`\
-https://nytimes.com/2020/12/23/sports/olympics/sun-yang-china-doping.html?searchResultPosition=3
+https://nytimes.com/2020/12/23/sports/olympics/sun-yang-china-doping.html?searchResultPosition=6
 
 **Amar’e Stoudemire Is a Coach Now. But Don’t Call Him That.**\
 `Stoudemire has reunited with his Phoenix Suns cohort of Steve Nash and Mike D’Antoni on the Nets’ staff. It’s weird to him, too.`\
-https://nytimes.com/2020/12/23/sports/basketball/amare-stoudemire-brooklyn-nets.html?searchResultPosition=4
+https://nytimes.com/2020/12/23/sports/basketball/amare-stoudemire-brooklyn-nets.html?searchResultPosition=7
 
 **The Modern Love Podcast: 10 Episodes to Binge Through the Holidays**\
 `2020 has been a year of isolation and grief, but there’s always room for love.`\
-https://nytimes.com/2020/12/23/podcasts/modern-love-10-episodes-binge-holidays.html?searchResultPosition=5
+https://nytimes.com/2020/12/23/podcasts/modern-love-10-episodes-binge-holidays.html?searchResultPosition=8
 
 **Make Your Own Party Blower**\
 `Even if your New Year’s Eve celebrations are smaller this year, you’ll still need festive supplies. Here’s how to make your own party blower.`\
-https://nytimes.com/interactive/2020/12/23/at-home/party-blower-activity-new-years-eve.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/12/23/at-home/party-blower-activity-new-years-eve.html?searchResultPosition=9
 
 **Pfizer Seals Deal With U.S. for 100 Million More Vaccine Doses**\
 `The company agreed to deliver the additional doses of its coronavirus vaccine by the end of July, helping address a looming shortage.`\
-https://nytimes.com/2020/12/23/us/politics/pfizer-vaccine-doses-virus.html?searchResultPosition=7
-
-**Jack Lenor Larsen, Innovative Textile Designer, Dies at 93**\
-`He blended ancient techniques and modern technology to weave fabrics that are in the collections of MoMA and the Louvre, which gave him a one-man retrospective.`\
-https://nytimes.com/2020/12/23/arts/jack-lenor-larsen-dead.html?searchResultPosition=8
-
-**Modern Love Podcast: What the Silence Said**\
-`Two marriages dissolve without a sound.`\
-https://nytimes.com/2020/12/23/style/modern-love-podcast-what-the-silence-said.html?searchResultPosition=9
-
-**At Home’s Best of 2020**\
-`What we watched, read, listened to and cooked this year.`\
-https://nytimes.com/2020/12/23/at-home/newsletter.html?searchResultPosition=10
+https://nytimes.com/2020/12/23/us/politics/pfizer-vaccine-doses-virus.html?searchResultPosition=10
 
