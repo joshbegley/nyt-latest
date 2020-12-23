@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/22/us/columbus-ohio-shooting.html?searchResultPositi
 
 **Buried in Pandemic Aid Bill: Billions to Soothe the Richest**\
 `The voluminous coronavirus relief and spending bill that blasted through Congress on Monday includes provisions — good, bad and just plain strange — that few lawmakers got to read.`\
-https://nytimes.com/2020/12/22/us/politics/coronavirus-relief-bill.html?searchResultPosition=3
+https://nytimes.com/2020/12/22/us/politics/whats-in-the-covid-relief-bill.html?searchResultPosition=3
 
 **Biden Assails Trump Over Handling of Russia Hack**\
 `“This assault happened on Donald Trump’s watch when he wasn’t watching,’’ President-elect Joseph R. Biden Jr. said.`\
