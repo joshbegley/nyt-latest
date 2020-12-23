@@ -26,8 +26,8 @@ https://nytimes.com/2020/12/23/briefing/stimulus-pardons-blue-whales.html?search
 `Iraqi witnesses against Blackwater guards were promised justice after a mass killing in Baghdad in 2007. ‘Today,’ one said, the bullets still in his leg, ‘they proved to me it was just theater.’`\
 https://nytimes.com/2020/12/23/world/middleeast/blackwater-trump-pardon.html?searchResultPosition=7
 
-**N.B.A. Postpones Rockets Game, an Early Test of Its Virus Rules**\
-`Multiple positive or inconclusive coronavirus tests, and a health protocol breach, left the Houston Rockets with too few players to compete in their season opener.`\
+**N.B.A. Postpones Rockets Game, an Early Test of League’s Virus Rules**\
+`Multiple positive or inconclusive coronavirus tests, and a health protocol breach, left the Houston Rockets with too few players to compete in their season opener Wednesday.`\
 https://nytimes.com/2020/12/23/sports/basketball/houston-rockets-postponed-nba-coronavirus.html?searchResultPosition=8
 
 **Coronavirus Briefing: What Happened Today**\
