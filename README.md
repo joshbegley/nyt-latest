@@ -1,40 +1,40 @@
-**See Where U.S. Intensive Care Units Are Filling Up**\
-`A Times analysis found that the number of hospitals with full or nearly full I.C.U.s has doubled nationwide since the beginning of October, and more than two in five hospitals have reached a critical occupancy level.`\
-https://nytimes.com/interactive/2020/12/23/us/covid-rising-icu-capacity.html?searchResultPosition=1
+**An Orchestra Striving to ‘Be Pioneers,’ Even in 2020**\
+`The pandemic has pushed the Vienna Philharmonic to experiment while protecting its musicians and audience, and preserving its signature sound.`\
+https://nytimes.com/2020/12/23/arts/vienna-philharmonic-new-years-concert.html?searchResultPosition=1
 
-**Michael Cunningham on Virginia Woolf’s Literary Revolution**\
-`The Pulitzer Prize-winning novelist explains how Woolf turned an ordinary day in an ordinary life into a masterpiece.`\
-https://nytimes.com/2020/12/23/books/review/michael-cunningham-on-virginia-woolfs-literary-revolution.html?searchResultPosition=2
+**West Point Cheating Scandal: What to Know**\
+`More than 70 West Point cadets  have been accused of cheating on an exam, the institution's largest academic scandal in decades.`\
+https://nytimes.com/2020/12/23/nyregion/west-point-cheating.html?searchResultPosition=2
 
-**In 30 Years, Little Progress for U.S. Sports Leagues on Leadership Diversity**\
-`There are rules, initiatives and eager proclamations throughout North American sports leagues when it comes to hiring more nonwhite leaders. Then there are actual hiring numbers.`\
-https://nytimes.com/interactive/2020/12/23/sports/diversity-coaches-sports.html?searchResultPosition=3
+**The Lower East Side: Where Historic Tenements Meet Glassy Towers**\
+`In recent years, the country’s ‘most famous immigrant neighborhood’ has welcomed new high-end development. But it still has an old-school vibe.`\
+https://nytimes.com/2020/12/23/realestate/the-lower-east-side-real-estate.html?searchResultPosition=3
 
-**A Holiday Haunted by Loss**\
-`This was the year of the empty seat at the table. We spent Thanksgiving with seven families who lost relatives to Covid.`\
-https://nytimes.com/interactive/2020/12/23/magazine/covid-family-deaths.html?searchResultPosition=4
+**Living On ... The Lower East Side**\
+`In recent years, the country’s ‘most famous immigrant neighborhood’ has welcomed new, high-end development. But it still has an old-school vibe.`\
+https://nytimes.com/slideshow/2020/12/23/realestate/living-on-the-lower-east-side.html?searchResultPosition=4
 
-**China-E.U. Talks Hit Another Snag as Biden Camp Objects**\
-`Beijing and Brussels were on the brink of an agreement to roll back restrictions on investment. But the deal’s fate is uncertain amid growing animosity toward China and increasingly vocal opposition.`\
-https://nytimes.com/2020/12/23/business/china-european-union-united-states.html?searchResultPosition=5
+**Police Took Their Son Away. Then the Merchants of Hope Showed Up.**\
+`The police seize and kill young men in Nigeria. Then pastors, lawyers and so-called human rights advocates squeeze money out of their families, promising to help find them.`\
+https://nytimes.com/2020/12/23/world/africa/nigeria-police-SARS.html?searchResultPosition=5
 
-**Lesson of the Day: ‘How We Survive Winter’**\
-`In this lesson, students will learn about how different people and cultures interpret and approach winter. Then they will express how they feel about winter using photography, drawing, poetry or storytelling.`\
-https://nytimes.com/2020/12/23/learning/lesson-of-the-day-how-we-survive-winter.html?searchResultPosition=6
+**Plants, Piano and Takeout: How New Yorkers Are Coping with Holidays Alone**\
+`For many in New York City, their pandemic-imposed loneliness has been even more pronounced during the holiday season.`\
+https://nytimes.com/2020/12/23/nyregion/plants-piano-and-takeout-how-new-yorkers-are-coping-with-holidays-alone.html?searchResultPosition=6
 
-**From North to South, Take a Journey Through Japan’s Wild Islands**\
-`Say “Japan” and people tend to think of its cities: Tokyo, Osaka, Kyoto. But this island nation is also a place of abundant, pristine nature`\
-https://nytimes.com/paidpost/jnto/from-north-to-south-take-a-journey-through-japans-wild-islands.html?searchResultPosition=7
+**The Tech That Was Fixed in 2020 and the Tech That Still Needs Fixing**\
+`From videoconferencing to fitness apps, the best tech helped us endure a hard year. But there were also low points.`\
+https://nytimes.com/2020/12/23/technology/personaltech/good-bad-tech-2020.html?searchResultPosition=7
 
-**8 Fearless N.B.A. Season Predictions**\
-`Houston’s James Harden is widely expected to be traded soon. But Kevin Love? Zach LaVine? LaMarcus Aldridge? They could be on the move, too.`\
-https://nytimes.com/2020/12/23/sports/basketball/8-fearless-nba-season-predictions.html?searchResultPosition=8
+**The Virus That Stole Most of 2020 Now Steals Christmas, Too**\
+`Across Italy and beyond, those who lost loved ones this year had looked forward to a holiday with the rest of their friends and relatives. But for many, it’s not to be.`\
+https://nytimes.com/2020/12/23/world/europe/italy-coronavirus-christmas.html?searchResultPosition=8
 
-**Gifts On the Brain**\
-`What is this image saying?`\
-https://nytimes.com/2020/12/23/learning/gifts-on-the-brain.html?searchResultPosition=9
+**Carey Mulligan Won’t Let Hollywood Off the Hook**\
+`The actress delivered the performance of her career in the dark comedy “Promising Young Woman.” Then came those with their tired views of women.`\
+https://nytimes.com/2020/12/23/movies/carey-mulligan-promising-young-woman.html?searchResultPosition=9
 
-**3 French Gendarmes Killed After Responding to Reports of Domestic Abuse**\
-`The officers were shot in an isolated hamlet in central France, the authorities said. The gunman was later found dead.`\
-https://nytimes.com/2020/12/23/world/europe/france-police-shooting-domestic-abuse.html?searchResultPosition=10
+**Walter Tevis Was a Novelist. You Might Know His Books (Much) Better as Movies.**\
+`In addition to “The Queen’s Gambit,” adapted into the current Netflix hit, Walter Tevis wrote the novels “The Hustler,” “The Color of Money” and “The Man Who Fell to Earth.”`\
+https://nytimes.com/2020/12/23/books/walter-tevis-novelist-queens-gambit-netflix.html?searchResultPosition=10
 
