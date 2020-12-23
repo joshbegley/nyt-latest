@@ -1,4 +1,4 @@
-**Pulse Oximeters May Be Less Accurate for Black People. Should They Use One?**\
+**Pulse Oximeters May Be Less Accurate for Black People. Should You Use One?**\
 `Although a new study showed the technology is more error prone in people with darker skin, doctors say the device is still useful for anyone monitoring Covid-19 at home.`\
 https://nytimes.com/2020/12/23/well/live/pulse-oximeter-black.html?searchResultPosition=1
 
