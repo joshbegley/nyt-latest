@@ -6,7 +6,7 @@ https://nytimes.com/video/us/elections/100000007519084/deblasio-uk-coronavirus-q
 `Jerome H. Powell’s central bank slashed rates, bought bonds in huge sums and rolled out never-before-tried loan programs that shifted its identity. The backlash is already beginning.`\
 https://nytimes.com/2020/12/23/business/economy/jerome-powell-federal-reserve.html?searchResultPosition=2
 
-**Trump Vetoes Defense Spending Bill**\
+**Trump Vetoes Military Spending Bill**\
 `The legislation passed with a veto-proof majority in the House and Senate, but it’s unclear whether Congress will override him.`\
 https://nytimes.com/2020/12/23/us/politics/trump-veto-defense-spending-bill.html?searchResultPosition=3
 
