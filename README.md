@@ -20,7 +20,7 @@ https://nytimes.com/2020/12/23/science/dna-caribbean-islands.html?searchResultPo
 
 **What to Know About the Covid Antibody Drugs That Could Help Many**\
 `Here’s information about who these therapies can help, how much they cost and how to find out if you can get them where you live.`\
-https://nytimes.com/2020/12/23/health/covid-antibody-drug-explainer.html?searchResultPosition=6
+https://nytimes.com/2020/12/23/health/coronavirus-antibody-drugs.html?searchResultPosition=6
 
 **Good Mornings**\
 `Honoring the first few moments of the day.`\
