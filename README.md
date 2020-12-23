@@ -31,7 +31,7 @@ https://nytimes.com/2020/12/23/science/covid-mink-animals.html?searchResultPosit
 https://nytimes.com/video/embedded/us/politics/100000007518651/watch-live-biden-introduces-miguel-cardona.html?searchResultPosition=8
 
 **Frustration at Britain’s Ports Over Travel Restrictions**\
-`In Britain, about 4,000 truck drivers were stuck along roads near the southeastern English port in Dover after a 48-hour shutdown to prevent the spread of a variation of the coronavirus. In order to travel to France, truckers must produce a negative Covid-19 test.`\
+`In Britain, about 4,000 truck drivers were stuck along roads near the southeastern English port in Dover after a 48-hour shutdown to prevent the spread of a variant of the coronavirus. Truckers who want to travel to France must show proof of a negative virus test.`\
 https://nytimes.com/video/world/europe/100000007518513/united-kingdom-coronavirus-lockdown-borders.html?searchResultPosition=9
 
 **Meet the People Who Can’t Bring You ‘Messiah’ This Year**\
