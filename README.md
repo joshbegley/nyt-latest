@@ -1,4 +1,4 @@
-**Contradicting His Advisers, Trump Rails Against Coronavirus Relief Bill, Calling It a ‘Disgrace’**\
+**Trump Rails Against Coronavirus Relief Bill, Calling It a ‘Disgrace’**\
 `“It’s called the Covid relief bill, but it has almost nothing to do with Covid,” the president said in a video posted on Twitter.`\
 https://nytimes.com/2020/12/22/us/politics/trump-coronavirus-bill.html?searchResultPosition=1
 
