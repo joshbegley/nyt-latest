@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/22/us/columbus-ohio-shooting.html?searchResultPositi
 https://nytimes.com/2020/12/22/us/politics/coronavirus-relief-bill.html?searchResultPosition=2
 
 **Biden Assails Trump Over Handling of Russia Hack**\
-`“This assault happened on Donald Trump’s watch when he wasn’t watching,’’ President-elect Joseph R. Biden said.`\
+`“This assault happened on Donald Trump’s watch when he wasn’t watching,’’ President-elect Joseph R. Biden Jr. said.`\
 https://nytimes.com/2020/12/22/us/politics/biden-trump-russia-hack.html?searchResultPosition=3
 
 **Trump Demands Changes to Coronavirus Relief Bill, Calling It a ‘Disgrace’**\
