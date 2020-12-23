@@ -35,6 +35,6 @@ https://nytimes.com/2020/12/22/us/columbus-ohio-shooting.html?searchResultPositi
 https://nytimes.com/2020/12/22/us/politics/whats-in-the-covid-relief-bill.html?searchResultPosition=9
 
 **Biden Assails Trump Over Handling of Russia Hacking**\
-`“This assault happened on Donald Trump’s watch when he wasn’t watching,’’ President-elect Joseph R. Biden Jr. said.`\
+`“This assault happened on Donald Trump’s watch when he wasn’t watching,” President-elect Joseph R. Biden Jr. said.`\
 https://nytimes.com/2020/12/22/us/politics/biden-trump-russia-hack.html?searchResultPosition=10
 
