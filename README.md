@@ -18,9 +18,9 @@ https://nytimes.com/2020/12/23/arts/music/popcast-listener-questions.html?search
 `Rampaging infections at farms caused scandal, scientific head-scratching and a search for a vaccine — for mink.`\
 https://nytimes.com/2020/12/23/science/covid-mink-animals.html?searchResultPosition=5
 
-**Watch Live: Biden Introduces Miguel Cardona**\
-`President-elect Joseph R. Biden Jr. will introduce Miguel Cardona as his choice for secretary of Education.`\
-https://nytimes.com/video/us/politics/100000007518651/watch-live-biden-introduces-miguel-cardona.html?searchResultPosition=6
+**Watch Full Video: Biden Introduces Miguel Cardona**\
+`President-elect Joseph R. Biden Jr. introduced Miguel Cardona as his choice for secretary of Education.`\
+https://nytimes.com/video/embedded/us/politics/100000007518651/watch-live-biden-introduces-miguel-cardona.html?searchResultPosition=6
 
 **Frustration at Britain’s Ports Over Travel Restrictions**\
 `In Britain, about 4,000 truck drivers were stuck along roads near the southeastern English port in Dover after a 48-hour shutdown to prevent the spread of a variation of the coronavirus. In order to travel to France, truckers must produce a negative Covid-19 test.`\
