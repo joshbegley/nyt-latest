@@ -1,6 +1,6 @@
-**China-E.U. Talks Hit Another Snag, as Biden Camp Objects**\
+**China-E.U. Talks Hit Another Snag as Biden Camp Objects**\
 `Beijing and Brussels were on the brink of an agreement to roll back restrictions on investment. But the deal’s fate is uncertain amid growing animosity toward China and increasingly vocal opposition.`\
-https://nytimes.com/2020/12/23/business/china-european-union.html?searchResultPosition=1
+https://nytimes.com/2020/12/23/business/china-european-union-united-states.html?searchResultPosition=1
 
 **Lesson of the Day: ‘How We Survive Winter’**\
 `In this lesson, students will learn about how different people and cultures interpret and approach winter. Then they will express how they feel about winter using photography, drawing, poetry or storytelling.`\
