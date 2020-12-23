@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/23/business/economy/economy-trump-income-spending-un
 https://nytimes.com/interactive/2020/12/23/books/new-books-international.html?searchResultPosition=5
 
 **Chinese Swimmer’s Doping Ban Is Lifted After Accusation of Racism**\
-`Sun Yang, a former Olympic champion, had challenged the neutrality of one of the Court of Arbitration for Sport officials who issued his eight-year suspension.`\
+`Lawyers for Sun Yang, a three-time Olympic champion, presented evidence that one of the arbitrators who issued his eight-year suspension had made racist comments about China on social media.`\
 https://nytimes.com/2020/12/23/sports/olympics/sun-yang-china-doping.html?searchResultPosition=6
 
 **Amar’e Stoudemire Is a Coach Now. But Don’t Call Him That.**\
