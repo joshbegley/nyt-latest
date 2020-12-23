@@ -1,6 +1,6 @@
 **5 Die in ‘Catastrophic’ Crash That Splits Car in Half**\
 `A speeding driver collided with a car carrying four recent high school graduates from Yonkers, N.Y.`\
-https://nytimes.com/2020/12/23/nyregion/car-accident-yonkers.html?searchResultPosition=1
+https://nytimes.com/2020/12/23/nyregion/yonkers-car-crash.html?searchResultPosition=1
 
 **Clubhouse Makes Way for Influencers**\
 `Tech investors have warmed to the idea that being a content creator is a legitimate form of business.`\
