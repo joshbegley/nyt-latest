@@ -2,7 +2,7 @@
 `After the center-left failed in three elections to oust Prime Minister Benjamin Netanyahu, the fourth one is shaping up into a contest among right-wing leaders.`\
 https://nytimes.com/2020/12/23/world/middleeast/23israel-netanyahu-election.html?searchResultPosition=1
 
-**As Evidence Mounts that Opposition Leader Was Poisoned, Russians Just Sigh.**\
+**As Evidence Mounts that Navalny Was Poisoned by State, Russians Just Sigh**\
 `Aleksei Navalny, the top critic of President Putin, has aired evidence that he was poisoned by his own government. Russians have responded with fear, disbelief and a lot of apathy.`\
 https://nytimes.com/2020/12/23/world/europe/russia-navalny-poisoning.html?searchResultPosition=2
 
