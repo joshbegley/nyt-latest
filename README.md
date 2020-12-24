@@ -1,5 +1,5 @@
-**Low-Income Students More Likely to Be Learning Remotely, Study Finds**\
-`Research from Columbia University suggests that less effective instruction will widen the achievement gap between the two groups.`\
+**Disadvantaged Students More Likely to Be Learning Remotely, Study Finds**\
+`Research from Columbia University suggests that less effective instruction will widen the achievement gap.`\
 https://nytimes.com/2020/12/24/us/remote-learning-student-income.html?searchResultPosition=1
 
 **Parents of ‘Balloon Boy’ Are Pardoned by Colorado’s Governor**\
