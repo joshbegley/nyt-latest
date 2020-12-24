@@ -1,5 +1,5 @@
-**China Opens Antitrust Investigation Into Alibaba**\
-`The move against the e-commerce giant is part of Beijing’s regulatory pushback against the business empire of Jack Ma, the company’s co-founder and the country’s richest man.`\
+**China Opens Antitrust Investigation Into Alibaba, the E-Commerce Giant**\
+`The move is part of Beijing’s regulatory pushback against the business empire of Jack Ma, the company’s co-founder and the country’s richest man.`\
 https://nytimes.com/2020/12/23/business/alibaba-antitrust-jack-ma.html?searchResultPosition=1
 
 **With Hacking, the United States Needs to Stop Playing the Victim**\
