@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/24/opinion/zoom-church-christmas-covid-loss.html?sea
 https://nytimes.com/2020/12/24/magazine/who-should-get-the-covid-vaccine-next.html?searchResultPosition=2
 
 **These Businesses Thrived as Others Struggled to Survive**\
-`As the pandemic ravaged small businesses across the country, some were surprised — and conflicted — about their success.`\
+`As the pandemic ravaged small businesses across America, some were surprised — and conflicted — about their success.`\
 https://nytimes.com/2020/12/24/business/small-business-coronvirus.html?searchResultPosition=3
 
 **In the Rio Grande Valley, Death Has Become a Family Affair**\
