@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/24/style/fairy-garden-covid.html?searchResultPositio
 `Prime Minister Yoshihide Suga said he had unintentionally misrepresented the facts around a political finance scandal after prosecutors announced they would seek to punish a former aide to Shinzo Abe.`\
 https://nytimes.com/2020/12/24/world/asia/japan-campaign-finance-scandal.html?searchResultPosition=3
 
-**What We’re Looking Forward to in 2021**\
+**What We’re Looking Forward To in 2021**\
 `Amid the challenges of 2020, there are reasons to be optimistic heading into the new year.`\
 https://nytimes.com/2020/12/24/business/dealbook/new-year-hope.html?searchResultPosition=4
 
