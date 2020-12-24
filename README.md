@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/24/arts/television/jerry-harris-news-arrest-child.ht
 https://nytimes.com/2020/12/24/business/media/phony-covid-cures.html?searchResultPosition=5
 
 **Answering Trump, Democrats Try and Fail to Jam $2,000 Payments Through House**\
-`In a brief bit of political theater, the House majority leader opened the House for business to ask for unanimous consent to accede to President Trump’s request for larger checks. A Republican objected.`\
+`In a brief bit of political theater, the House majority leader opened the House for business to ask for unanimous consent to accede to President Trump’s request for larger checks.`\
 https://nytimes.com/2020/12/24/us/politics/stimulus-2000.html?searchResultPosition=6
 
 **5 Things to Do This Christmas Weekend**\
