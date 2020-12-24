@@ -1,5 +1,5 @@
 **Facing Deportation, They Fled to the Safety of a Church. Now They are Free.**\
-`A Jamaican couple spent nearly two and a half years inside a Philadelphia church, isolated even further by the pandemic. This month, U.S. immigration officials relented.`\
+`A Jamaican couple spent nearly two and a half years inside Philadelphia churches, isolated even further by the pandemic. This month, U.S. immigration officials relented.`\
 https://nytimes.com/2020/12/24/us/philadelphia-church-sanctuary-deportation.html?searchResultPosition=1
 
 **Disadvantaged Students More Likely to Be Learning Remotely, Study Finds**\
