@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/23/books/review/eleanor-roosevelt-buying-pears-and-o
 https://nytimes.com/2020/12/23/health/coronavirus-uk-variant.html?searchResultPosition=3
 
 **Leslie West, ‘Mississippi Queen’ Rocker, Is Dead at 75**\
-`He rose to fame with Mountain, which Rolling Stone called a “louder version of Cream” — a band Mr. West idolized. One of the group’s first gigs was Woodstock,`\
+`He rose to fame with Mountain, which Rolling Stone called a “louder version of Cream” — a band Mr. West idolized. One of the group’s first gigs was Woodstock.`\
 https://nytimes.com/2020/12/23/arts/music/leslie-west-dead.html?searchResultPosition=4
 
 **A Slow Day at the Restaurant**\
