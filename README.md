@@ -22,8 +22,8 @@ https://nytimes.com/2020/12/24/us/politics/trump-pardon-power.html?searchResultP
 `In his victory speech, President-elect Joseph R. Biden Jr. said of Black voters: “You’ve always had my back, and I’ll have yours.” Many of those voters are watching to see what he does in office.`\
 https://nytimes.com/2020/12/24/us/politics/biden-black-voters.html?searchResultPosition=6
 
-**How the Spectacle of British Pantomime Looks From Across the Pond**\
-`Thanks to streaming, two American critics got to binge a bunch of the holiday extravaganzas. So how does this silly British tradition translate?`\
+**Silly Season: How British Pantomime Looks From Across the Pond**\
+`Thanks to streaming, two American critics got to binge a bunch of the traditional holiday spectacles. They’re amused, and confused, by what they saw.`\
 https://nytimes.com/2020/12/24/theater/pantomimes-british-christmas-tradition.html?searchResultPosition=7
 
 **‘The Dissident’ Review: A Murder for Power**\
