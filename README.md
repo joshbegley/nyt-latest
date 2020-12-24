@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2020/12/24/sports/baseball/tyler-kepner-christma
 https://nytimes.com/2020/12/24/us/winter-storm.html?searchResultPosition=4
 
 **Mexico Begins Vaccination Amid Virus Surge**\
-`Mexico is the first country in Latin America, a region hard hit by the coronavirus, to begin delivering the vaccines. A head nurse at a Mexico City hospital was the first person in the country to get a shot.`\
+`Mexico is the first country in Latin America, a region hard hit by the coronavirus, to begin delivering vaccines. A head nurse at a Mexico City hospital was the first to get a shot.`\
 https://nytimes.com/2020/12/24/world/americas/mexico-coronavirus-vaccine.html?searchResultPosition=5
 
 **8 New Books We Recommend This Week**\
