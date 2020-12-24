@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/23/us/politics/trump-pardon-manafort-stone.html?searchResultPosition=1
 
 **Black Doctor Dies of Covid-19 After Complaining of Racist Treatment**\
-`“He made me feel like a drug addict,” Dr. Susan Moore said, explaining that a white doctor downplayed her complaints of pain and suggested she should be discharged.`\
+`“He made me feel like a drug addict,” Dr. Susan Moore said, accusing a white doctor of downplaying her complaints of pain and suggesting she should be discharged.`\
 https://nytimes.com/2020/12/23/us/susan-moore-black-doctor-indiana.html?searchResultPosition=2
 
 **Trump’s Attack on Coronavirus Relief Divides G.O.P. and Threatens Recovery**\
