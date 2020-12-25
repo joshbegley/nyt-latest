@@ -2,7 +2,7 @@
 `Conservatives are united for now over the British prime minister’s trade deal, but as details emerge, he could face challenges from hard-liners and business groups.`\
 https://nytimes.com/2020/12/25/world/europe/brexit-uk-tories.html?searchResultPosition=1
 
-**Explosion in Downtown Nashville Draws Emergency Response**\
+**‘Intentional’ Explosion in Downtown Nashville Damages Buildings, Officials Say**\
 `An explosion linked to a vehicle sent debris and shattered glass into the city streets.`\
 https://nytimes.com/2020/12/25/us/nashville-explosion.html?searchResultPosition=2
 
