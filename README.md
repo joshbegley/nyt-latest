@@ -14,7 +14,7 @@ https://nytimes.com/2020/12/25/nyregion/nyc-army-navy-bags-coronavirus.html?sear
 `He got out for good by (almost) dying.`\
 https://nytimes.com/2020/12/25/style/modern-love-how-my-father-escaped-jail-for-christmas.html?searchResultPosition=4
 
-**U.S. to Require Negative Covid-19 Test for All Travelers From U.K.**\
+**U.S. to Require Negative Coronavirus Test for All Travelers From U.K.**\
 `The new rule, which takes effect on Monday, will apply to Americans as well as foreign nationals.`\
 https://nytimes.com/2020/12/24/us/coronavirus-test-us-travel.html?searchResultPosition=5
 
