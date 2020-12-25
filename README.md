@@ -30,11 +30,11 @@ https://nytimes.com/2020/12/25/sports/skiing/chamonix-france.html?searchResultPo
 `Maha Mamo had no citizenship. Born in Lebanon of Syrian parents, she was ineligible for either nationality. It took her years of perseverance, some lucky breaks and a painful loss to find a homeland — in Brazil.`\
 https://nytimes.com/2020/12/25/world/americas/stateless-brazil.html?searchResultPosition=8
 
-**How a Young Chess Phenom Spends His Sundays**\
-`Between studying moves with tutors in India and New York, Oliver Boydell has homework (with video game breaks, of course).`\
-https://nytimes.com/2020/12/25/nyregion/Oliver-Boydell-chess-nyc.html?searchResultPosition=9
-
 **Gurneys in the Gift Shop: Inside Southern California’s Overwhelmed Hospitals**\
 `Each day in California brings a mind-numbing new accounting of the tragedy underway. This week, the state became the first to reach two million virus cases.`\
-https://nytimes.com/2020/12/25/us/southern-california-hospitals-covid.html?searchResultPosition=10
+https://nytimes.com/2020/12/25/us/southern-california-hospitals-covid.html?searchResultPosition=9
+
+**How a Young Chess Phenom Spends His Sundays**\
+`Between studying moves with tutors in India and New York, Oliver Boydell has homework (with video game breaks, of course).`\
+https://nytimes.com/2020/12/25/nyregion/Oliver-Boydell-chess-nyc.html?searchResultPosition=10
 
