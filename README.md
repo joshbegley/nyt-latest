@@ -26,8 +26,8 @@ https://nytimes.com/2020/12/25/arts/television/david-attenborough-perfect-planet
 `Conservatives are united for now over the British prime minister’s trade deal, but as details emerge, he could face challenges from hard-liners and business groups.`\
 https://nytimes.com/2020/12/25/world/europe/brexit-uk-tories.html?searchResultPosition=7
 
-**Explosion in Downtown Nashville Draws Emergency Response**\
-`An explosion linked to a vehicle sent debris and shattered glass into the city streets.`\
+**Nashville Explosion Appears Intentional, Authorities Say**\
+`An explosion linked to a vehicle sent debris and shattered glass into the city streets, and has injured three people.`\
 https://nytimes.com/2020/12/25/us/nashville-explosion.html?searchResultPosition=8
 
 **How Pixar’s ‘Soul’ Animates Jazz**\
