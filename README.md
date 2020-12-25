@@ -15,7 +15,7 @@ https://nytimes.com/2020/12/25/us/nashville-explosion.html?searchResultPosition=
 https://nytimes.com/2020/12/25/movies/soul-jazz-animation.html?searchResultPosition=4
 
 **U.K. Increasingly Isolated as U.S. Restricts Travel**\
-`America’s requirement that passengers coming from Britain provide negative Covid-19 tests is just the latest woe to strike the country this Christmas period.`\
+`America’s requirement that passengers coming from Britain provide negative coronavirus tests is just the latest woe to strike the country this Christmas period.`\
 https://nytimes.com/2020/12/25/world/europe/covid-19-uk-travel-us.html?searchResultPosition=5
 
 **You Got a Bicycle, Now You Have to Take Care of It**\
