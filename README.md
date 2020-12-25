@@ -35,6 +35,6 @@ https://nytimes.com/2020/12/25/fashion/nancye-radmin-dead.html?searchResultPosit
 https://nytimes.com/2020/12/25/dining/fried-chicken-is-joy.html?searchResultPosition=9
 
 **Explosion in Downtown Nashville Injures Three**\
-`An explosion damaged buildings and forced evacuations in downtown Nashville Christmas morning. Authorities said they believed it was intentional and caused when a parked R.V. detonated outside the AT&T Building.`\
+`An explosion damaged buildings and forced evacuations in downtown Nashville Christmas morning. Authorities said they believed it was intentional and caused when a parked R.V. detonated outside an AT&T building.`\
 https://nytimes.com/video/us/100000007521506/nashville-explosion.html?searchResultPosition=10
 
