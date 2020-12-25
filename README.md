@@ -35,6 +35,6 @@ https://nytimes.com/2020/12/25/arts/television/david-attenborough-perfect-planet
 https://nytimes.com/2020/12/25/world/europe/brexit-uk-tories.html?searchResultPosition=9
 
 **Nashville Explosion Appears Intentional, Authorities Say**\
-`An explosion linked to a vehicle sent debris and shattered glass into the city streets, and has injured three people.`\
+`An explosion linked to a vehicle sent debris and shattered glass into the streets, and has injured three people.`\
 https://nytimes.com/2020/12/25/us/nashville-explosion.html?searchResultPosition=10
 
