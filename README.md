@@ -18,13 +18,13 @@ https://nytimes.com/2020/12/25/realestate/nyc-real-estate-market.html?searchResu
 `On social media this year, the stan was ascendant, fueling commercial competition, trolling and other arcane battles. How did we get here?`\
 https://nytimes.com/2020/12/25/arts/music/pop-music-superfans-stans.html?searchResultPosition=5
 
-**At French Resorts, Skiing Has Become an Uphill Sport**\
-`The government closed ski lifts, fearing they might spread the coronavirus. The skiers came anyway.`\
-https://nytimes.com/2020/12/25/sports/skiing/chamonix-france.html?searchResultPosition=6
-
 **8 Things We Hated About New York Until 2020 Happened**\
 `New Yorkers are world-famous kvetchers. But when we got something real to complain about, we changed our tune.`\
-https://nytimes.com/2020/12/25/nyregion/coronavirus-newyorkers-coping.html?searchResultPosition=7
+https://nytimes.com/2020/12/25/nyregion/coronavirus-newyorkers-coping.html?searchResultPosition=6
+
+**At French Resorts, Skiing Has Become an Uphill Sport**\
+`The government closed ski lifts, fearing they might spread the coronavirus. The skiers came anyway.`\
+https://nytimes.com/2020/12/25/sports/skiing/chamonix-france.html?searchResultPosition=7
 
 **Stateless, She Became the Face of a Largely Invisible Plight**\
 `Maha Mamo had no citizenship. Born in Lebanon of Syrian parents, she was ineligible for either nationality. It took her years of perseverance, some lucky breaks and a painful loss to find a homeland — in Brazil.`\
