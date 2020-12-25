@@ -1,10 +1,10 @@
+**Police Officer Is Shot in Brooklyn**\
+`The officer, whose condition was not immediately released, was taken to Kings County Hospital, according to a spokesman for the Police Department.`\
+https://nytimes.com/2020/12/24/nyregion/police-officer-shot-brooklyn.html?searchResultPosition=1
+
 **Russians Are Believed to Have Used Microsoft Resellers in Cyberattacks**\
 `Evidence from the security firm CrowdStrike suggests that companies that sell software on behalf of Microsoft were used to break into Microsoft’s Office 365 customers.`\
-https://nytimes.com/2020/12/24/us/russia-microsoft-resellers-cyberattacks.html?searchResultPosition=1
-
-**Retries**\
-`John Guzzetta’s themeless grid rewards persistence.`\
-https://nytimes.com/2020/12/24/crosswords/daily-puzzle-2020-12-26.html?searchResultPosition=2
+https://nytimes.com/2020/12/24/us/russia-microsoft-resellers-cyberattacks.html?searchResultPosition=2
 
 **A Perfect Score … or Half of One**\
 `Erik Agard collaborates with Wendy L. Brandes, who makes her New York Times Crossword debut.`\
