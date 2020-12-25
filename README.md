@@ -22,17 +22,17 @@ https://nytimes.com/2020/12/25/briefing/christmas-day-stimulus-bill-donald-trump
 `Many have put capacity restrictions in place, even as new lockdowns may spook visitors.`\
 https://nytimes.com/2020/12/25/business/stay-alive-and-survive-ski-resorts-brace-for-a-pandemic-season.html?searchResultPosition=6
 
+**The Real Estate Collapse of 2020**\
+`The pandemic devastated the housing industry this year, but there were a few flickers of life.`\
+https://nytimes.com/2020/12/25/realestate/nyc-real-estate-market.html?searchResultPosition=7
+
 **Vaccine Memories of Another Time and Place**\
 `Many older Americans, shut in during this year’s pandemic, share haunting recollections from the polio era of their childhood.`\
-https://nytimes.com/2020/12/25/health/covid-vaccine-polio.html?searchResultPosition=7
+https://nytimes.com/2020/12/25/health/covid-vaccine-polio.html?searchResultPosition=8
 
 **The Loveliest Gift: Friends and Books, All Wrapped Together**\
 `Long before I worked at The New York Times, my friends and I leaned on the Books section for holiday cheer. We still do.`\
-https://nytimes.com/2020/12/25/insider/secret-santa-books.html?searchResultPosition=8
-
-**The Real Estate Collapse of 2020**\
-`The pandemic devastated the housing industry this year, but there were a few flickers of life.`\
-https://nytimes.com/2020/12/25/realestate/nyc-real-estate-market.html?searchResultPosition=9
+https://nytimes.com/2020/12/25/insider/secret-santa-books.html?searchResultPosition=9
 
 **How Pop Music Fandom Became Sports, Politics, Religion and All-Out War**\
 `On social media this year, the stan was ascendant, fueling commercial competition, trolling and other arcane battles. How did we get here?`\
