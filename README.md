@@ -1,5 +1,5 @@
 **Pope Francis Makes Christmas Appeal for Nations to Share Vaccines**\
-`The pope made his remarks from inside the Vatican instead of before large crowds on St. Peter’s Square, as Christians around scaled back or reimagined Christmas traditions.`\
+`The pope made his remarks from inside the Vatican instead of before large crowds on St. Peter’s Square, as Christians around the world scaled back or reimagined Christmas traditions.`\
 https://nytimes.com/2020/12/25/world/europe/pope-francis-christmas-vaccines.html?searchResultPosition=1
 
 **7 Podcasts to Comfort and Connect**\
