@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/25/arts/podcasts-comfort-connect-holidays.html?searc
 https://nytimes.com/2020/12/25/dining/cook-yourself-a-merry-christmas.html?searchResultPosition=3
 
 **Minoru Makihara, Who Ran Mitsubishi After It Stumbled, Dies at 90**\
-`He steered the company, then the world’s largest, through the troubles of a collapsing economy, and dedicated himself to building bridges with the U.S.`\
+`He steered the company, then the world’s largest, through the troubles of a collapsing economy, and dedicated himself to improving relations with the U.S.`\
 https://nytimes.com/2020/12/25/business/minoru-makihara-dead.html?searchResultPosition=4
 
 **David Attenborough Still Has Hope for Our Future**\
