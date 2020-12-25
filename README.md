@@ -1,40 +1,40 @@
-**In Bethlehem and Jolly and Antlers, an American Christmas**\
-`Scenes from a holiday season that shone bright in dark times.`\
-https://nytimes.com/2020/12/25/us/america-christmas-hannukah-holidays.html?searchResultPosition=1
+**‘Stay Alive and Survive’: Ski Resorts Brace for a Pandemic Season**\
+`Many have put capacity restrictions in place, even as new lockdowns may spook visitors.`\
+https://nytimes.com/2020/12/25/business/stay-alive-and-survive-ski-resorts-brace-for-a-pandemic-season.html?searchResultPosition=1
 
-**An N.B.A. Christmas Gift: LeBron, Steph and Luka in Action**\
-`With LeBron James, Stephen Curry and Luka Doncic playing, there’s something for everyone. If you haven’t kept up since last season, here’s everything you need to know.`\
-https://nytimes.com/2020/12/25/sports/basketball/nba-christmas-schedule.html?searchResultPosition=2
+**Vaccine Memories of Another Time and Place**\
+`Many older Americans, shut in during this year’s pandemic, share haunting recollections from the polio era of their childhood.`\
+https://nytimes.com/2020/12/25/health/covid-vaccine-polio.html?searchResultPosition=2
 
-**What Happened When Henry Yao Almost Went Bust**\
-`His customers cherished his small business — and him — more than he ever knew.`\
-https://nytimes.com/2020/12/25/nyregion/nyc-army-navy-bags-coronavirus.html?searchResultPosition=3
+**The Loveliest Gift: Friends and Books, All Wrapped Together**\
+`Long before I worked at The New York Times, my friends and I leaned on the Books section for holiday cheer. We still do.`\
+https://nytimes.com/2020/12/25/insider/secret-santa-books.html?searchResultPosition=3
 
-**How My Father Escaped Jail for Christmas**\
-`He got out for good by (almost) dying.`\
-https://nytimes.com/2020/12/25/style/modern-love-how-my-father-escaped-jail-for-christmas.html?searchResultPosition=4
+**The Real Estate Collapse of 2020**\
+`The pandemic devastated the housing industry this year, but there were a few flickers of life.`\
+https://nytimes.com/2020/12/25/realestate/nyc-real-estate-market.html?searchResultPosition=4
 
-**U.S. to Require Negative Coronavirus Test for All Travelers From U.K.**\
-`The new rule, which takes effect on Monday, will apply to Americans as well as foreign nationals.`\
-https://nytimes.com/2020/12/24/us/coronavirus-test-us-travel.html?searchResultPosition=5
+**How Pop Music Fandom Became Sports, Politics, Religion and All-Out War**\
+`On social media this year, the stan was ascendant, fueling commercial competition, trolling and other arcane battles. How did we get here?`\
+https://nytimes.com/2020/12/25/arts/music/pop-music-superfans-stans.html?searchResultPosition=5
 
-**Police Officer Is Shot in Brooklyn, but Vest Stops the Bullet**\
-`The 27-year-old officer, who had responded to a call about domestic violence, was “in a little pain” but “extremely good spirits” at a Brooklyn hospital, the police commissioner said.`\
-https://nytimes.com/2020/12/24/nyregion/police-officer-shot-brooklyn.html?searchResultPosition=6
+**At French Resorts, Skiing Has Become an Uphill Sport**\
+`The government closed ski lifts, fearing they might spread the coronavirus. The skiers came anyway.`\
+https://nytimes.com/2020/12/25/sports/skiing/chamonix-france.html?searchResultPosition=6
 
-**Russians Are Believed to Have Used Microsoft Resellers in Cyberattacks**\
-`Evidence from the security firm CrowdStrike suggests that companies that sell software on behalf of Microsoft were used to break into Microsoft’s Office 365 customers.`\
-https://nytimes.com/2020/12/24/us/russia-microsoft-resellers-cyberattacks.html?searchResultPosition=7
+**8 Things We Hated About New York Until 2020 Happened**\
+`New Yorkers are world-famous kvetchers. But when we got something real to complain about, we changed our tune.`\
+https://nytimes.com/2020/12/25/nyregion/coronavirus-newyorkers-coping.html?searchResultPosition=7
 
-**A Perfect Score … or Half of One**\
-`Erik Agard collaborates with Wendy L. Brandes, who makes her New York Times Crossword debut.`\
-https://nytimes.com/2020/12/24/crosswords/daily-puzzle-2020-12-25.html?searchResultPosition=8
+**Stateless, She Became the Face of a Largely Invisible Plight**\
+`Maha Mamo had no citizenship. Born in Lebanon of Syrian parents, she was ineligible for either nationality. It took her years of perseverance, some lucky breaks and a painful loss to find a homeland — in Brazil.`\
+https://nytimes.com/2020/12/25/world/americas/stateless-brazil.html?searchResultPosition=8
 
-**Corrections: Dec. 25, 2020**\
-`Corrections that appeared in print on Friday, Dec. 25, 2020.`\
-https://nytimes.com/2020/12/24/pageoneplus/corrections-dec-25-2020.html?searchResultPosition=9
+**How a Young Chess Phenom Spends His Sundays**\
+`Between studying moves with tutors in India and New York, Oliver Boydell has homework (with video game breaks, of course).`\
+https://nytimes.com/2020/12/25/nyregion/Oliver-Boydell-chess-nyc.html?searchResultPosition=9
 
-**Quotation of the Day: Beijing Reins In Tech Behemoths It Let Run Free**\
-`Quotation of the Day for Friday, December 25, 2020.`\
-https://nytimes.com/2020/12/24/todayspaper/quotation-of-the-day-beijing-reins-in-tech-behemoths-it-let-run-free.html?searchResultPosition=10
+**Gurneys in the Gift Shop: Inside Southern California’s Overwhelmed Hospitals**\
+`Each day in California brings a mind-numbing new accounting of the tragedy underway. This week, the state became the first to reach two million virus cases.`\
+https://nytimes.com/2020/12/25/us/southern-california-hospitals-covid.html?searchResultPosition=10
 
