@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/25/style/modern-love-how-my-father-escaped-jail-for-christmas.html?searchResultPosition=1
 
 **U.S. to Require Negative Covid-19 Test for All Travelers From U.K.**\
-`The new rule, which takes effect on Monday, will apply to Americans  as well as foreign nationals.`\
+`The new rule, which takes effect on Monday, will apply to Americans as well as foreign nationals.`\
 https://nytimes.com/2020/12/24/us/coronavirus-test-us-travel.html?searchResultPosition=2
 
 **Police Officer Is Shot in Brooklyn**\
