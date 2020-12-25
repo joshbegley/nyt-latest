@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2020/12/25/briefing/the-weekender.html?searchRes
 
 **Russian Police Arrest a Top Navalny Ally**\
 `The police detained Lyubov Sobol amid a crackdown on activists seeking to draw attention to the nerve-agent poisoning of the opposition leader Aleksei A. Navalny.`\
-https://nytimes.com/2020/12/25/world/europe/russia-navalny-ally-arrest.html?searchResultPosition=2
+https://nytimes.com/2020/12/25/world/europe/navalny-lyubov-sobol.html?searchResultPosition=2
 
 **Pope Francis Makes Christmas Appeal for Nations to Share Vaccines**\
 `The pope made his remarks from inside the Vatican instead of before large crowds on St. Peter’s Square, as Christians around the world scaled back or reimagined Christmas traditions.`\
