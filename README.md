@@ -6,8 +6,8 @@ https://nytimes.com/2020/12/25/style/modern-love-how-my-father-escaped-jail-for-
 `The new rule, which takes effect on Monday, will apply to Americans as well as foreign nationals.`\
 https://nytimes.com/2020/12/24/us/coronavirus-test-us-travel.html?searchResultPosition=2
 
-**Police Officer Is Shot in Brooklyn**\
-`The officer, whose condition was not immediately released, was taken to Kings County Hospital, according to a spokesman for the Police Department.`\
+**Police Officer Is Shot in Brooklyn, but Vest Stops the Bullet**\
+`The 27-year-old officer, who had responded to a call about domestic violence, was “in a little pain” but “extremely good spirits” at a Brooklyn hospital, the police commissioner said.`\
 https://nytimes.com/2020/12/24/nyregion/police-officer-shot-brooklyn.html?searchResultPosition=3
 
 **Russians Are Believed to Have Used Microsoft Resellers in Cyberattacks**\
