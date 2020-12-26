@@ -22,8 +22,8 @@ https://nytimes.com/2020/12/26/business/coal-ships-china-australia.html?searchRe
 `The number of vegetarians in Brazil doubled over a six-year period, which has given rise to a booming plant-based industry that is seeking to turn meatpacking plants obsolete.`\
 https://nytimes.com/2020/12/26/world/americas/brazil-vegetarian.html?searchResultPosition=6
 
-**Homes Divided: Vaccinated Health Workers Chart a New Normal**\
-`They’ll be vaccinated but their families won’t, at least not yet. So for now all the precautions remain in place.`\
+**Dad Got the Vaccine, but No One Else Did — Yet**\
+`Vaccinated health workers must navigate another new normal: households in which not all family members are immunized.`\
 https://nytimes.com/2020/12/26/health/covid-vaccine-health-workers-families.html?searchResultPosition=7
 
 **The Darkest Timeline**\
