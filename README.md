@@ -1,4 +1,4 @@
-**Federal Agents Scour Nashville Home As They Hunt for Clues in Blast**\
+**Federal Agents Scour Home As They Hunt for Clues in Nashville Blast**\
 `Investigators said they were working to determine whether more than one person was involved in the Christmas Day explosion that rattled the city.`\
 https://nytimes.com/2020/12/26/us/explosion-nashville-rv.html?searchResultPosition=1
 
