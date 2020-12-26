@@ -2,17 +2,17 @@
 `Remember when? You probably don’t.`\
 https://nytimes.com/2020/12/26/style/2020-photos-style.html?searchResultPosition=1
 
-**Homes Divided: Vaccinated Health Workers Chart a New Normal**\
-`They’ll be vaccinated but their families won’t, at least not yet. So for now all the precautions remain in place.`\
-https://nytimes.com/2020/12/26/health/covid-vaccine-health-workers-families.html?searchResultPosition=2
-
 **Sailors Stranded for Months as China Refuses to Let Coal Ships Unload**\
 `China is vague about why vessels that carried Australian coal to its ports can’t unload their cargo. “We’re all depressed; our mental health is deteriorating,” one sailor said.`\
-https://nytimes.com/2020/12/26/business/coal-ships-china-australia.html?searchResultPosition=3
+https://nytimes.com/2020/12/26/business/coal-ships-china-australia.html?searchResultPosition=2
 
 **Brazil Is Famous for Its Meat. But Vegetarianism Is Soaring.**\
 `The number of vegetarians in Brazil doubled over a six-year period, which has given rise to a booming plant-based industry that is seeking to turn meatpacking plants obsolete.`\
-https://nytimes.com/2020/12/26/world/americas/brazil-vegetarian.html?searchResultPosition=4
+https://nytimes.com/2020/12/26/world/americas/brazil-vegetarian.html?searchResultPosition=3
+
+**Homes Divided: Vaccinated Health Workers Chart a New Normal**\
+`They’ll be vaccinated but their families won’t, at least not yet. So for now all the precautions remain in place.`\
+https://nytimes.com/2020/12/26/health/covid-vaccine-health-workers-families.html?searchResultPosition=4
 
 **The Darkest Timeline**\
 `“Deep Adaptation” made people confront the end of the world from climate change. Does it matter if it’s not correct?`\
