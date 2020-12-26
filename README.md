@@ -1,40 +1,40 @@
+**Good News About the Coronavirus Vaccine Is Becoming Contagious**\
+`Polls show that pervasive skepticism is melting, partly because of the high efficacy rates in trials and the images of real people getting the shot.`\
+https://nytimes.com/2020/12/26/health/covid-vaccine-hesitancy.html?searchResultPosition=1
+
+**Truck Jam Eases at U.K. Port Days After France Reopens Border**\
+`About 1,600 trucks were still waiting to cross the border on Saturday morning, while 8,000 had crossed into France, a British official said.`\
+https://nytimes.com/2020/12/26/world/europe/truck-jam-uk-france-covid.html?searchResultPosition=2
+
 **George Blake, British Spy Who Betrayed the West, Dies at 98**\
 `He was caught spilling secrets to the Soviets in 1961 and imprisoned. Five years later, he escaped and fled to Moscow, where he was hailed a hero.`\
-https://nytimes.com/2020/12/26/obituaries/george-blake-british-spy-dead.html?searchResultPosition=1
+https://nytimes.com/2020/12/26/obituaries/george-blake-british-spy-dead.html?searchResultPosition=3
 
 **Photography From the Year Time Stopped**\
 `Remember when? You probably don’t.`\
-https://nytimes.com/2020/12/26/style/2020-photos-style.html?searchResultPosition=2
+https://nytimes.com/2020/12/26/style/2020-photos-style.html?searchResultPosition=4
 
 **Sailors Stranded for Months as China Refuses to Let Ships Unload Australian Coal**\
 `China is vague about why vessels that carried Australian coal to its ports can’t unload their cargo. “We’re all depressed; our mental health is deteriorating,” one sailor said.`\
-https://nytimes.com/2020/12/26/business/coal-ships-china-australia.html?searchResultPosition=3
+https://nytimes.com/2020/12/26/business/coal-ships-china-australia.html?searchResultPosition=5
 
 **Brazil Is Famous for Its Meat. But Vegetarianism Is Soaring.**\
 `The number of vegetarians in Brazil doubled over a six-year period, which has given rise to a booming plant-based industry that is seeking to turn meatpacking plants obsolete.`\
-https://nytimes.com/2020/12/26/world/americas/brazil-vegetarian.html?searchResultPosition=4
+https://nytimes.com/2020/12/26/world/americas/brazil-vegetarian.html?searchResultPosition=6
 
 **Homes Divided: Vaccinated Health Workers Chart a New Normal**\
 `They’ll be vaccinated but their families won’t, at least not yet. So for now all the precautions remain in place.`\
-https://nytimes.com/2020/12/26/health/covid-vaccine-health-workers-families.html?searchResultPosition=5
+https://nytimes.com/2020/12/26/health/covid-vaccine-health-workers-families.html?searchResultPosition=7
 
 **The Darkest Timeline**\
 `“Deep Adaptation” made people confront the end of the world from climate change. Does it matter if it’s not correct?`\
-https://nytimes.com/2020/12/26/style/climate-change-deep-adaptation.html?searchResultPosition=6
+https://nytimes.com/2020/12/26/style/climate-change-deep-adaptation.html?searchResultPosition=8
 
 **A Stinging Setback in California Is a Warning for Democrats in 2022**\
 `Democrats lost four swing House districts in the state, suggesting that their hold on a number of formerly Republican seats is tenuous at best.`\
-https://nytimes.com/2020/12/26/us/california-republicans.html?searchResultPosition=7
+https://nytimes.com/2020/12/26/us/california-republicans.html?searchResultPosition=9
 
 **Special Delivery: Thousands of Books**\
 `By Charley Locke`\
-https://nytimes.com/2020/12/26/neediest-cases/special-delivery-thousands-of-books.html?searchResultPosition=8
-
-**The Brexit Fight, Through a Reporter’s Prism of a Changed Continent**\
-`Alan Cowell, a longtime New York Times correspondent, recalls a different Europe, one of currency controls, cumbersome paperwork and burdensome cross-border regulations.`\
-https://nytimes.com/2020/12/26/international-home/brexit-europe-history.html?searchResultPosition=9
-
-**1895: Wretched Weather Mars Christmas in London**\
-`Rain, snow and driving sleet hit the British capital 125 years ago, though a program offering poor children a hamper of holiday foods was a bright spot.`\
-https://nytimes.com/2020/12/26/world/europe/1895-london-christmas.html?searchResultPosition=10
+https://nytimes.com/2020/12/26/neediest-cases/special-delivery-thousands-of-books.html?searchResultPosition=10
 
