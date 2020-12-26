@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/25/us/politics/unemployment-pandemic-aid-trump.html?
 `His unarmed bomber was caught in the thick of Japan’s attack. He went on to fly some 80 missions in World War II and to become a record-setting test pilot.`\
 https://nytimes.com/2020/12/25/us/robert-thacker-dead.html?searchResultPosition=3
 
-**Brexit Deal Done, Britain Now Scrambles to See if It Can Work**\
+**Brexit Deal Done, Britain Now Scrambles to See How It Will Work**\
 `Britain is finally departing from the European Union, but its formal exit is only the beginning of a high-stakes experiment to unstitch commercial relations across an integrated continent.`\
 https://nytimes.com/2020/12/25/world/europe/brexit-britain-european-union.html?searchResultPosition=4
 
