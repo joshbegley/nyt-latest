@@ -30,7 +30,7 @@ https://nytimes.com/2020/12/26/crosswords/variety-cryptic-crossword.html?searchR
 `Drivers stuck outside Port of Dover in England were tested for the coronavirus before they could cross into France. On Saturday, nearly 1,600 trucks remained in the days-long jam, down from nearly 6,000 at its peak.`\
 https://nytimes.com/video/world/europe/100000007522098/truck-jam-dover-england.html?searchResultPosition=8
 
-**What to Know About the Nashville Explosion**\
+**Nashville Explosion: What to Know**\
 `Three people were injured and 41 businesses were damaged when an R.V. detonated downtown, but much about the case remains a mystery.`\
 https://nytimes.com/2020/12/26/us/nashville-bomb-explosion.html?searchResultPosition=9
 
