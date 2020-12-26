@@ -35,6 +35,6 @@ https://nytimes.com/2020/12/26/crosswords/variety-cryptic-crossword.html?searchR
 https://nytimes.com/video/world/europe/100000007522098/truck-jam-dover-england.html?searchResultPosition=9
 
 **Nashville Explosion: What to Know**\
-`Three people were injured and 41 businesses were damaged when an R.V. detonated downtown, but much about the case remains a mystery.`\
+`Federal agents said they were pursuing more than 500 leads but still had many unanswered questions about the blast, which injured three people and damaged 41 businesses.`\
 https://nytimes.com/2020/12/26/us/nashville-bomb-explosion.html?searchResultPosition=10
 
