@@ -1,5 +1,5 @@
-**Federal Agents Search for Clues of Culprit in Nashville Blast**\
-`Investigators said they were working to determine whether more than one person was involved in the Christmas Day explosion that rattled Nashville.`\
+**Federal Agents Scour Nashville Home As They Hunt for Clues in Blast**\
+`Investigators said they were working to determine whether more than one person was involved in the Christmas Day explosion that rattled the city.`\
 https://nytimes.com/2020/12/26/us/explosion-nashville-rv.html?searchResultPosition=1
 
 **3 European Countries Begin Coronavirus Vaccinations Early**\
