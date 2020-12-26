@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/26/business/investors-bull-market-pandemic.html?sear
 https://nytimes.com/2020/12/26/health/covid-vaccine-hesitancy.html?searchResultPosition=3
 
 **Truck Jam Eases at U.K. Port Days After France Reopens Border**\
-`Even with new restrictions around the world to try to stop the transmission of a virus variant sweeping rapidly across the United Kingdom, the mutation has already spread to France, Spain and Japan.`\
+`Even with new restrictions around the world to try to stop the transmission of a virus variant sweeping rapidly across Britain, the mutation has already spread to France, Spain and Japan.`\
 https://nytimes.com/2020/12/26/world/europe/truck-jam-uk-france-covid.html?searchResultPosition=4
 
 **George Blake, British Spy Who Betrayed the West, Dies at 98**\
