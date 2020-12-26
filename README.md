@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/26/health/covid-vaccine-hesitancy.html?searchResultP
 https://nytimes.com/2020/12/26/world/europe/truck-jam-uk-france-covid.html?searchResultPosition=3
 
 **George Blake, British Spy Who Betrayed the West, Dies at 98**\
-`He was caught spilling secrets to the Soviets in 1961 and imprisoned. Five years later, he escaped and fled to Moscow, where he was hailed a hero.`\
+`He was caught spilling secrets to the Soviets in 1961 and imprisoned. Five years later, he escaped and fled to Moscow, where he was hailed as a hero.`\
 https://nytimes.com/2020/12/26/obituaries/george-blake-british-spy-dead.html?searchResultPosition=4
 
 **Photography From the Year Time Stopped**\
