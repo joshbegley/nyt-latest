@@ -1,4 +1,4 @@
-**Major Truck Jam Eases at Port of Dover**\
+**Major Truck Jam Eases at U.K. Port**\
 `Drivers stuck outside Port of Dover in England were tested for the coronavirus before they could cross into France. On Saturday, nearly 1,600 trucks remained in the days-long jam, down from nearly 6,000 at its peak.`\
 https://nytimes.com/video/world/europe/100000007522098/truck-jam-dover-england.html?searchResultPosition=1
 
