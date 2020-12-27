@@ -10,8 +10,8 @@ https://nytimes.com/2020/12/27/world/europe/spain-military-franco-fascist.html?s
 `Nicole Taylor spoke with five families celebrating Kwanzaa, and returned with incredible recipes for BBQ tofu, coffee-rubbed grilled fish and vegan doughnuts.`\
 https://nytimes.com/2020/12/27/dining/what-to-cook-this-week.html?searchResultPosition=3
 
-**3 Dead in Shooting at Illinois Bowling Alley, Police Say**\
-`Three others were wounded in what the police said was most likely a random act.`\
+**U.S. Serviceman Charged in Deadly Shooting at Illinois Bowling Alley, Police Say**\
+`Three people were killed and three others injured in what the police described as a “completely random” act.`\
 https://nytimes.com/2020/12/27/us/Rockford-shooting-bowling-alley.html?searchResultPosition=4
 
 **I Think Beethoven Encoded His Deafness in His Music**\
