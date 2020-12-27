@@ -1,4 +1,4 @@
-**Jets Start a Winning Streak, and Diminish Browns’ Playoff Hopes**\
+**Jets Start a Winning Streak and Diminish Browns’ Playoff Hopes**\
 `The Jets’ second win of the season removed the possibility of them getting the No. 1 pick in next year’s draft, while Cleveland is at risk of extending the league’s longest postseason drought.`\
 https://nytimes.com/2020/12/27/sports/jets-browns-nfl-week-16.html?searchResultPosition=1
 
