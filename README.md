@@ -6,7 +6,7 @@ https://nytimes.com/2020/12/27/sports/jets-browns-nfl-week-16.html?searchResultP
 `Walter Hamada, who runs DC Films, is overseeing a dizzying number of projects, part of a swarm of comics-based stories coming from Hollywood.`\
 https://nytimes.com/2020/12/27/business/media/dc-superheroes-movies.html?searchResultPosition=2
 
-****\
+**Did These New York Clinics Ignore Rules on Who Gets Vaccinated First?**\
 `The state is investigating whether a network of urgent care clinics provided vaccinations to members of the public who were not yet entitled to have the shots.`\
 https://nytimes.com/2020/12/27/nyregion/ny-clinic-coronavirus-vaccine.html?searchResultPosition=3
 
