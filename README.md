@@ -8,7 +8,7 @@ https://nytimes.com/2020/12/27/world/asia/pakistan-kalash-chawmos.html?searchRes
 
 **The Treasured Diners and Hidden Haunts That Covid-19 Closed for Good**\
 `A Pittsburgh hot dog joint, a famous Cambridge dive bar, and a vibrant Filipino restaurant in Los Angeles were among the casualties of 2020.`\
-https://nytimes.com/2020/12/27/us/the-treasured-diners-and-hidden-haunts-that-covid-19-closed-for-good.html?searchResultPosition=3
+https://nytimes.com/2020/12/27/us/covid-restaurants-diners-closed.html?searchResultPosition=3
 
 **With Each Run, a City Shaken by Racism Is ‘Finding the Greater Good’**\
 `The route William Jones III designed 15 years ago through predominantly Black neighborhoods in Charlottesville, Va., has become the impetus for a diverse running group that’s grown since the summer.`\
