@@ -1,10 +1,10 @@
-**Homes That Sold for Around $450,000**\
-`Recent residential sales in New York City and the region.`\
-https://nytimes.com/2020/12/27/realestate/homes-that-sold-for-around-450000.html?searchResultPosition=1
-
 **The Sunday Read: ‘Cher Everlasting’**\
 `“Moonstruck” sustained many people through the pandemic. Caity Weaver spoke with Cher about why the film endures.`\
-https://nytimes.com/2020/12/27/podcasts/the-daily/cher-moonstruck-oscars-pandemic.html?searchResultPosition=2
+https://nytimes.com/2020/12/27/podcasts/the-daily/cher-moonstruck-oscars-pandemic.html?searchResultPosition=1
+
+**Homes That Sold for Around $450,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2020/12/27/realestate/homes-that-sold-for-around-450000.html?searchResultPosition=2
 
 **In a Village of Widows, the Opium Trade Has Taken a Deadly Toll**\
 `Afghan men in an impoverished border settlement die trying to smuggle opium into Iran, leaving behind loved ones forced to survive on their own.`\
