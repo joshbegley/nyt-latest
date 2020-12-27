@@ -23,7 +23,7 @@ https://nytimes.com/2020/12/27/dining/what-to-cook-this-week.html?searchResultPo
 https://nytimes.com/2020/12/27/us/Rockford-shooting-bowling-alley.html?searchResultPosition=6
 
 **I Think Beethoven Encoded His Deafness in His Music**\
-`Gabriela Lena Frank, a composer born with near-profound hearing loss, describes her creative experience.`\
+`Gabriela Lena Frank, a composer born with high-moderate/near-profound hearing loss, describes her creative experience.`\
 https://nytimes.com/2020/12/27/arts/music/beethoven-hearing-loss-deafness.html?searchResultPosition=7
 
 **Lawmakers urge Trump to sign relief bill.**\
