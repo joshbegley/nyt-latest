@@ -18,7 +18,7 @@ https://nytimes.com/2020/12/26/arts/music/john-fletcher-dead.html?searchResultPo
 `Mr. Alig, who gained fame in the 1980s as a party promoter, was a tabloid celebrity who served 17 years in prison for manslaughter.`\
 https://nytimes.com/2020/12/26/style/michael-alig-dead.html?searchResultPosition=5
 
-**Federal Agents Scour Home As They Hunt for Clues in Nashville Blast**\
+**Federal Agents Scour Home as They Hunt for Clues in Nashville Blast**\
 `Investigators said they were working to determine whether more than one person was involved in the Christmas Day explosion that rattled the city.`\
 https://nytimes.com/2020/12/26/us/explosion-nashville-rv.html?searchResultPosition=6
 
