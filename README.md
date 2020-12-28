@@ -28,7 +28,7 @@ https://nytimes.com/2020/12/28/us/vaccine-first-patients-covid.html?searchResult
 
 **The Year Inequality Became Less Visible, and More Visible Than Ever**\
 `Even as shared public spaces emptied out, the gap between the economically privileged and the precarious became impossible to ignore.`\
-https://nytimes.com/2020/12/28/upshot/the-year-inequality-became-less-visible-and-more-visible-than-ever.html?searchResultPosition=8
+https://nytimes.com/2020/12/28/upshot/income-inequality-visible.html?searchResultPosition=8
 
 **Saying Goodbye to the Knuckleball, and Its Master**\
 `Phil Niekro is the seventh member of the Baseball Hall of Fame to die this year. The pitch he perfected also appears to be lost.`\
