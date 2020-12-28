@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2020/12/28/science/space-astronomy-highlights.html?searchResultPosition=1
 
 **Saudi Activist Who Fought for Women’s Right to Drive Is Sentenced to Prison**\
-`Loujain al-Hathloul was charged with undermining the kingdom in a case that supporters decried as a political persecution.`\
+`Loujain al-Hathloul, who was arrested just before the driving ban was lifted, was charged with undermining the kingdom in a case that supporters decried as a political persecution.`\
 https://nytimes.com/2020/12/28/world/middleeast/saudi-arabia-loujain-al-hathloul-sentence.html?searchResultPosition=2
 
 **$1.4 Million Homes in California**\
