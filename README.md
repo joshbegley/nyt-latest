@@ -12,13 +12,13 @@ https://nytimes.com/2020/12/28/briefing/china-travel-virus-ethiopia-eritrea.html
 
 **Knee Problems Prompt Roger Federer to Skip the Australian Open**\
 `The 20-time Grand Slam champion had two knee surgeries in 2020. He wants to come back, but it remains unclear when he will play.`\
-https://nytimes.com/2020/12/28/sports/tennis/roger-federer.html?searchResultPosition=4
+https://nytimes.com/2020/12/28/sports/tennis/roger-federer-australian-open.html?searchResultPosition=4
 
 **Kentucky Is Hurting as Its Senators Limit or Oppose Federal Aid**\
 `Urban and rural fortunes diverge in the state, with the pandemic compounding troubles that predated it.`\
 https://nytimes.com/2020/12/28/business/economy/kentucky-economy.html?searchResultPosition=5
 
-**Nashville Bomber’s Aim Seemed to Be ‘More Destruction Than Death,’ Official Says**\
+**Seeking Nashville Bombing Motive, Official Says There May Never Be a ‘Complete Answer’**\
 `Investigators are searching for a motive in the bombing, as officials are grappling with whether it meets the legal definition of terrorism.`\
 https://nytimes.com/2020/12/28/us/anthony-warner-nashville-bombing-motive.html?searchResultPosition=6
 
