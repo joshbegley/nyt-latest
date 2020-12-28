@@ -1,6 +1,6 @@
 **A Look at What’s in the Stimulus Package Trump Signed**\
 `The $900 billion package provides more relief beyond the $600 checks that have become the focus in Washington.`\
-https://nytimes.com/2020/12/28/business/economy/a-look-at-whats-in-the-stimulus-package-trump-signed.html?searchResultPosition=1
+https://nytimes.com/2020/12/28/business/economy/second-stimulus-package.html?searchResultPosition=1
 
 **Reviewing a Wild Year in Art With the ‘Culture Gabfest’**\
 `The co-hosts of Slate’s long-running and influential podcast discuss the “urgency” of art in a crisis and whether Meryl Streep should play Anthony Fauci.`\
