@@ -27,7 +27,7 @@ https://nytimes.com/2020/12/28/arts/music/tony-rice-dead.html?searchResultPositi
 https://nytimes.com/2020/12/28/dining/drinks/shots-new-years-eve.html?searchResultPosition=7
 
 **Judge Rejects Ghislaine Maxwell’s $28.5 Million Bail Proposal**\
-`The British socialite, who is charged with assisting Jeffrey Epstein in his abuse of girls, had sought to be freed from what she called “intolerable” jail conditions.`\
+`The British socialite, charged with assisting Jeffrey Epstein in his abuse of girls, had called jail conditions “intolerable.” Prosecutors said she has her own shower, TV and computers.`\
 https://nytimes.com/2020/12/28/nyregion/ghislaine-maxwell-bail.html?searchResultPosition=8
 
 **Pope Francis Strips Powerful Vatican Office of Its Financial Assets**\
