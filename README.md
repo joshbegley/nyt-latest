@@ -22,13 +22,13 @@ https://nytimes.com/2020/12/28/science/math-conway-game-of-life.html?searchResul
 `Mike Strizki powers his house and cars with hydrogen he home-brews. He is using his retirement to evangelize for the planet-saving advantages of hydrogen batteries.`\
 https://nytimes.com/2020/12/28/business/hydrogen-power-cars.html?searchResultPosition=6
 
-**The Year Inequality Became Less Visible, and More Visible Than Ever**\
-`Even as shared public spaces emptied out, the gap between the economically privileged and the precarious became impossible to ignore.`\
-https://nytimes.com/2020/12/28/upshot/the-year-inequality-became-less-visible-and-more-visible-than-ever.html?searchResultPosition=7
-
 **After the Vaccine: Sore Arm, Yes. Headache, Maybe. Regrets, No.**\
 `Here is what some of the first Americans to be vaccinated against Covid-19 are saying about how they felt afterward, with some side effects but no second thoughts.`\
-https://nytimes.com/2020/12/28/us/vaccine-first-patients-covid.html?searchResultPosition=8
+https://nytimes.com/2020/12/28/us/vaccine-first-patients-covid.html?searchResultPosition=7
+
+**The Year Inequality Became Less Visible, and More Visible Than Ever**\
+`Even as shared public spaces emptied out, the gap between the economically privileged and the precarious became impossible to ignore.`\
+https://nytimes.com/2020/12/28/upshot/the-year-inequality-became-less-visible-and-more-visible-than-ever.html?searchResultPosition=8
 
 **Saying Goodbye to the Knuckleball, and Its Master**\
 `Phil Niekro is the seventh member of the Baseball Hall of Fame to die this year. The pitch he perfected also appears to be lost.`\
