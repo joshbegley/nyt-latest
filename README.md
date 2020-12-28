@@ -15,7 +15,7 @@ https://nytimes.com/2020/12/27/sports/football/seahawks-rams-score-nfc-west-stan
 https://nytimes.com/2020/12/27/style/how-to-have-a-better-2021-procrastination-personal-finance.html?searchResultPosition=4
 
 **Trump Signs Pandemic Relief Bill After Unemployment Aid Lapses**\
-`After calling the measure a “disgrace,” President Trump abruptly signed it, extending expanded unemployment benefits and an eviction moratorium, and averting a government shutdown.`\
+`After calling the measure a “disgrace,” President Trump unexpectedly signed the bill, extending expanded unemployment benefits and an eviction moratorium, and keeping the government open.`\
 https://nytimes.com/2020/12/27/us/politics/trump-signs-pandemic-relief.html?searchResultPosition=5
 
 **A Quiet Life, a Thunderous Death, and a Nightmare That Shook Nashville**\
