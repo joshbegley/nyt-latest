@@ -18,8 +18,8 @@ https://nytimes.com/2020/12/27/nyregion/betty-campbell-adams-dead.html?searchRes
 `The flying blades can cause injury and damage property, the Consumer Product Safety Commission said.`\
 https://nytimes.com/2020/12/27/business/fans-recalled-home-depot.html?searchResultPosition=5
 
-**Your Monday Briefing**\
-`The start of Europe’s vaccination campaign.`\
+**Vaccine, Brexit, Trump: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/12/27/briefing/brexit-coronavirus-david-attenborough.html?searchResultPosition=6
 
 **Seahawks Defense Is an Asset Again in Division-Clinching Win**\
