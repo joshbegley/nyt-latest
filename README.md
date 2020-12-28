@@ -2,13 +2,13 @@
 `During a year with limited travel possibilities, our World Through a Lens series offered Times readers a weekly escape. Here are some of the highlights.`\
 https://nytimes.com/2020/12/28/travel/world-through-a-lens.html?searchResultPosition=1
 
-**The Lasting Lessons of John Conway’s Game of Life**\
-`Fifty years on, the mathematician’s best known (and, to him, least favorite) creation confirms that “uncertainty is the only certainty.”`\
-https://nytimes.com/2020/12/28/science/math-conway-game-of-life.html?searchResultPosition=2
-
 **A Year of Watching Earthly Beauty Burn**\
 `From orbit, satellites send tragic evidence of climate change’s destructive power. This film covers 10 days, Sept. 7-16, 2020, a period of intense fires activity in North and South America.`\
-https://nytimes.com/2020/12/28/opinion/climate-change-earth.html?searchResultPosition=3
+https://nytimes.com/2020/12/28/opinion/climate-change-earth.html?searchResultPosition=2
+
+**The Lasting Lessons of John Conway’s Game of Life**\
+`Fifty years on, the mathematician’s best known (and, to him, least favorite) creation confirms that “uncertainty is the only certainty.”`\
+https://nytimes.com/2020/12/28/science/math-conway-game-of-life.html?searchResultPosition=3
 
 **The Gospel of Hydrogen Power**\
 `Mike Strizki powers his house and cars with hydrogen he home-brews. He is using his retirement to evangelize for the planet-saving advantages of hydrogen batteries.`\
@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/28/well/mind/stress-anxiety-advice.html?searchResult
 `The expansion of Enbridge’s Line 3 pipeline is a breathtaking betrayal of Minnesota’s Indigenous communities — and the environment.`\
 https://nytimes.com/2020/12/28/opinion/minnesota-line-3-enbridge-pipeline.html?searchResultPosition=9
 
-**Shopping for Night Lights**\
-`Even if you’re not afraid of the dark, you may want one of these.`\
-https://nytimes.com/2020/12/28/realestate/shopping-for-night-lights.html?searchResultPosition=10
+**The 48 Mountains That Held My Grief**\
+`After my son Ben died by suicide, I turned to hiking. I found myself: broken, but braver.`\
+https://nytimes.com/2020/12/28/opinion/hiking-grief.html?searchResultPosition=10
 
