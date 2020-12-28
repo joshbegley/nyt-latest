@@ -11,7 +11,7 @@ https://nytimes.com/2020/12/28/us/politics/jon-ossoff-georgia-senate.html?search
 https://nytimes.com/2020/12/28/world/africa/Ethiopia-Eritrea-Tigray.html?searchResultPosition=3
 
 **Yang Presses Forward, Wiley Is Sidelined: Highlights From Mayor’s Race**\
-`Andrew Yang met with the Rev. Al Sharpton, while yet another candidate joined a crowded field seeking to become New York City’s next mayor.`\
+`Andrew Yang met with the Rev. Al Sharpton, and Maya Wiley is in quarantine. Yet another candidate joined those seeking to become New York City’s next mayor.`\
 https://nytimes.com/2020/12/28/nyregion/yang-chang-wiley-mayor-nyc.html?searchResultPosition=4
 
 **Chinese Citizen Journalist Sentenced to 4 Years for Covid Reporting**\
