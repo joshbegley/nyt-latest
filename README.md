@@ -14,8 +14,8 @@ https://nytimes.com/2020/12/28/us/Girl-scouts-boy-scouts-trademark.html?searchRe
 `During a year with limited travel possibilities, our World Through a Lens series offered Times readers a weekly escape. Here are some of the highlights.`\
 https://nytimes.com/2020/12/28/travel/world-through-a-lens.html?searchResultPosition=4
 
-**A Year of Watching Earthly Beauty Burn**\
-`From orbit, satellites send tragic evidence of climate change’s destructive power. This film covers 10 days, Sept. 7-16, 2020, a period of intense fires activity in North and South America.`\
+**Watching Earth Burn**\
+`For 10 days in September, satellites in orbit sent tragic evidence of climate change’s destructive power.`\
 https://nytimes.com/2020/12/28/opinion/climate-change-earth.html?searchResultPosition=5
 
 **The Lasting Lessons of John Conway’s Game of Life**\
