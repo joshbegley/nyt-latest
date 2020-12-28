@@ -1,4 +1,4 @@
-**Black Teen Falsely Accused of Cellphone Theft in SoHo Hotel**\
+**Black Teenager Falsely Accused of Cellphone Theft in SoHo Hotel**\
 `A woman can be seen yelling at the 14-year-old in video captured at the Arlo Hotel in New York City on Saturday by the teenager’s father, the jazz musician Keyon Harrold. Her phone was later found by an Uber driver.`\
 https://nytimes.com/video/nyregion/100000007522950/woman-accuses-black-teen-soho-phone.html?searchResultPosition=1
 
