@@ -34,7 +34,7 @@ https://nytimes.com/2020/12/27/sports/football/ravens-giants-score-playoff-stand
 `The authorities said Anthony Quinn Warner, 63, detonated an R.V. in downtown Nashville on Christmas and died in the explosion. Law enforcement officials said they did not believe anyone else was involved.`\
 https://nytimes.com/video/us/100000007522654/nashville-explosion-bomber-identified.html?searchResultPosition=9
 
-**Stimulus in Limbo, but Not the Rent or Utility Bills**\
-`Financially pressed Americans looked forward to extended unemployment benefits and a $600 check. Now they are waiting to see if the president will sign the stimulus bill.`\
+**As Bills Pile Up, Many Anxiously Keep Tabs on the Stimulus Bill**\
+`Financially pressed Americans are looking forward to extended unemployment benefits and a $600 check, finally signed into law by the president.`\
 https://nytimes.com/2020/12/27/business/stimulus-aid-trump.html?searchResultPosition=10
 
