@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/28/nyregion/ghislaine-maxwell-bail.html?searchResult
 `A financial scandal involving the secretariat of state has given fresh impetus to Francis’ reform agenda.`\
 https://nytimes.com/2020/12/28/world/europe/pope-francis-vatican-finances.html?searchResultPosition=3
 
-**Biden Calls White House Transition Blockages ‘Irresponsible’**\
+**Biden Calls White House Transition Blockages Irresponsible**\
 `President-elect Joseph R. Biden Jr. said on Monday that his transition team faced “obstruction” from the political leadership at the Defense Department, after participating in a briefing with national security experts.`\
 https://nytimes.com/video/us/politics/100000007524123/biden-trump-national-security-transition.html?searchResultPosition=4
 
