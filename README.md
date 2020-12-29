@@ -1,40 +1,40 @@
-**Is Dairy Farming Cruel to Cows?**\
-`A small group of animal welfare scientists is seeking answers to that question. Facing a growing anti-dairy movement, many farmers are altering their practices.`\
-https://nytimes.com/2020/12/29/health/dairy-farming-cows-milk.html?searchResultPosition=1
+**Obamacare Gets First Big Test as Safety Net. It’s Holding Up, for the Most Part.**\
+`Job losses and the loss of insurance have typically gone hand in hand. This year, more Americans are staying covered.`\
+https://nytimes.com/2020/12/29/upshot/obamacare-recession-big-test.html?searchResultPosition=1
 
-**Will My Popcorn Explode?**\
-`The odds that all of your popcorn kernels will pop simultaneously aren’t zero. Maybe think instead of the multiple lotteries you’re more likely to win.`\
-https://nytimes.com/2020/12/29/science/randall-munroe-question-popcorn.html?searchResultPosition=2
+**The Year We Were Asked to Pick: Your Economy or Your Life**\
+`The last 10 months showed us that to curb the spread of the virus, we needed to invest more in our ability to pause the economy.`\
+https://nytimes.com/2020/12/29/opinion/new-york-covid-economy.html?searchResultPosition=2
 
-**Corrections: Dec. 29, 2020**\
-`Corrections that appeared in print on Tuesday, Dec. 29, 2020.`\
-https://nytimes.com/2020/12/29/pageoneplus/corrections-dec-29-2020.html?searchResultPosition=3
+**A Family of Four and a Home Office, in 660 Square Feet?**\
+`For one couple looking for a place in Brooklyn, natural light mattered more than space. They knew they’d make the compact apartment work.`\
+https://nytimes.com/2020/12/29/realestate/a-family-of-four-and-a-home-office-in-660-square-feet.html?searchResultPosition=3
 
-**Quotation of the Day: Thousands Await Word in Prison as Trump Frees a Privileged Few**\
-`Quotation of the Day for Tuesday, December 29, 2020.`\
-https://nytimes.com/2020/12/29/todayspaper/quotation-of-the-day-thousands-await-word-in-prison-as-trump-frees-a-privileged-few.html?searchResultPosition=4
+**A ‘Generous’ Home, in 660 Square Feet**\
+`For one couple looking for a place in Brooklyn, natural light mattered more than space. They knew they’d make the compact apartment work.`\
+https://nytimes.com/slideshow/2020/12/29/realestate/a-generous-home-in-660-square-feet.html?searchResultPosition=4
 
-**Your Tuesday Briefing**\
-`A terrorism suspect, disguised as a refugee.`\
-https://nytimes.com/2020/12/29/briefing/germany-terrorism-coronavirus-tigray.html?searchResultPosition=5
+**Co-ops in Spain’s Basque Region Soften Capitalism’s Rough Edges**\
+`A group of worker-owned businesses may present an alternative model to economies dominated by the interests of shareholders.`\
+https://nytimes.com/2020/12/29/business/cooperatives-basque-spain-economy.html?searchResultPosition=5
 
-**A Far-Right Terrorism Suspect With a Refugee Disguise: The Tale of Franco A.**\
-`A German officer is facing trial on terrorism charges. At a volatile time for Western democracy, his story mirrors the story of Germany itself.`\
-https://nytimes.com/2020/12/29/world/europe/germany-far-right-terrorism-refugee.html?searchResultPosition=6
+**What We Saw This Year: Grief, Love and Stirrings of Hope**\
+`In a season of expectation, looking for respite and meaning.`\
+https://nytimes.com/2020/12/29/nyregion/new-york-2020-new-year.html?searchResultPosition=6
 
-**Weeks-Old Statue of Breonna Taylor Is Smashed to Pieces in Oakland, Calif.**\
-`The vandalism of the ceramic sculpture of Ms. Taylor near City Hall is under investigation, the police said.`\
-https://nytimes.com/2020/12/28/us/breonna-taylor-statue-vandalized.html?searchResultPosition=7
+**Retailing’s Tumultuous Year Began Before the Pandemic**\
+`The industry employs millions of people, and the upheaval it experienced played out in the lives of many Americans.`\
+https://nytimes.com/2020/12/29/business/retail-industry-2020-pandemic.html?searchResultPosition=7
 
-**Moscow Turndown**\
-`Matthew Trout tells a very short story in his New York Times debut, and we can color in the details as we like.`\
-https://nytimes.com/2020/12/28/crosswords/daily-puzzle-2020-12-29.html?searchResultPosition=8
+**With Remote Learning, a 12-Year-Old Knows Her English Is Slipping Away**\
+`In New York City, 142,000 children are learning English in school. Online classes are especially challenging for them.`\
+https://nytimes.com/2020/12/29/nyregion/coronavirus-english-language-students.html?searchResultPosition=8
 
-**A New Source for Alcohol-Free Libations**\
-`Chris Becker, a former technology consultant, has about 170 nonalcoholic beers, wines and spirits on his website, Better Rhodes.`\
-https://nytimes.com/2020/12/28/dining/better-rhodes-nonalcoholic-drinks.html?searchResultPosition=9
+**Runners’ Post-Pandemic Dreams**\
+`We asked what you’re hoping to do when it’s safe again. Here’s what several runners told us.`\
+https://nytimes.com/2020/12/29/well/move/runners-post-pandemic-dreams.html?searchResultPosition=9
 
-**Green Chutney From a Minneapolis Family Recipe**\
-`The sisters Sheilla and Yasameen Sajady turned the cilantro chutney made by their mother, Fatima, into a business.`\
-https://nytimes.com/2020/12/28/dining/green-chutney-maazah.html?searchResultPosition=10
+**Surprise Ending for Publishers: In 2020, Business Was Good**\
+`With people stuck at home and so many other activities shut down, a lot of reading — or at least a lot of book buying — happened this year.`\
+https://nytimes.com/2020/12/29/books/book-publishing-2020.html?searchResultPosition=10
 
