@@ -7,7 +7,7 @@ https://nytimes.com/2020/12/29/t-magazine/callicoon-catskills-home-design.html?s
 https://nytimes.com/interactive/2020/12/29/multimedia/29virus-ems.html?searchResultPosition=2
 
 **Strong Earthquake Strikes Central Croatia**\
-`There was no immediate confirmation of casualties. The quake, with a preliminary magnitude of 6.4, was the second in the area in 24 hours and tremors were reported across the Balkans.`\
+`At least one person was reported killed. The quake, with a preliminary magnitude of 6.4, was the second in the area in 24 hours and tremors were reported across the Balkans.`\
 https://nytimes.com/2020/12/29/world/europe/croatia-earthquake.html?searchResultPosition=3
 
 **Pierre Cardin, Designer to the Famous and Merchant to the Masses, Dies at 98**\
