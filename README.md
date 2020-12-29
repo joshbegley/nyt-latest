@@ -2,7 +2,7 @@
 `The performance artist, who died in March, was eclipsed by his former collaborator and lover, Marina Abramovic. But he also produced powerful work without her, as an exhibition in Amsterdam shows.`\
 https://nytimes.com/2020/12/29/arts/design/ulay-was-here-stedelijk.html?searchResultPosition=1
 
-**Obamacare Gets First Big Test as Safety Net. It’s Holding Up, for the Most Part.**\
+**Obamacare, in Its First Big Test as Safety Net, Is Holding Up So Far**\
 `Job losses and the loss of insurance have typically gone hand in hand. This year, more Americans are staying covered.`\
 https://nytimes.com/2020/12/29/upshot/obamacare-recession-big-test.html?searchResultPosition=2
 
