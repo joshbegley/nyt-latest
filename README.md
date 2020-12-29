@@ -23,7 +23,7 @@ https://nytimes.com/2020/12/29/us/coronavirus-trauma-young-people.html?searchRes
 https://nytimes.com/2020/12/29/world/europe/nazanin-consular-assistance.html?searchResultPosition=6
 
 **Violent Year in New York and Across U.S. as Pandemic Fuels Crime Spike**\
-`A time without precedent saw huge increases in homicides and shootings in the city as some other categories of crime plummeted.`\
+`A time without precedent saw huge increases in homicides and shootings in the city as some other types of crime plummeted.`\
 https://nytimes.com/2020/12/29/nyregion/nyc-2020-crime-covid.html?searchResultPosition=7
 
 **Another Arrest, and Jail Time, Due to a Bad Facial Recognition Match**\
