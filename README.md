@@ -22,19 +22,19 @@ https://nytimes.com/slideshow/2020/12/29/realestate/a-generous-home-in-660-squar
 `A group of worker-owned businesses may present an alternative model to economies dominated by the interests of shareholders.`\
 https://nytimes.com/2020/12/29/business/cooperatives-basque-spain-economy.html?searchResultPosition=6
 
-**What We Saw This Year: Grief, Love and Stirrings of Hope**\
-`In a season of expectation, looking for respite and meaning.`\
-https://nytimes.com/2020/12/29/nyregion/new-york-2020-new-year.html?searchResultPosition=7
-
 **Retailing’s Tumultuous Year Began Before the Pandemic**\
 `The industry employs millions of people, and the upheaval it experienced played out in the lives of many Americans.`\
-https://nytimes.com/2020/12/29/business/retail-industry-2020-pandemic.html?searchResultPosition=8
+https://nytimes.com/2020/12/29/business/retail-industry-2020-pandemic.html?searchResultPosition=7
+
+**What We Saw This Year: Grief, Love and Stirrings of Hope**\
+`In a season of expectation, looking for respite and meaning.`\
+https://nytimes.com/2020/12/29/nyregion/new-york-2020-new-year.html?searchResultPosition=8
 
 **With Remote Learning, a 12-Year-Old Knows Her English Is Slipping Away**\
 `In New York City, 142,000 children are learning English in school. Online classes are especially challenging for them.`\
 https://nytimes.com/2020/12/29/nyregion/coronavirus-english-language-students.html?searchResultPosition=9
 
-**Runners’ Post-Pandemic Dreams**\
-`We asked what you’re hoping to do when it’s safe again. Here’s what several runners told us.`\
-https://nytimes.com/2020/12/29/well/move/runners-post-pandemic-dreams.html?searchResultPosition=10
+**Surprise Ending for Publishers: In 2020, Business Was Good**\
+`With people stuck at home and so many other activities shut down, a lot of reading — or at least a lot of book buying — happened this year.`\
+https://nytimes.com/2020/12/29/books/book-publishing-2020.html?searchResultPosition=10
 
