@@ -19,7 +19,7 @@ https://nytimes.com/video/world/europe/100000007526770/norway-landslide.html?sea
 https://nytimes.com/2020/12/30/business/2020-in-photos.html?searchResultPosition=5
 
 **Norway Landslide Injures 10 and Leaves 15 Missing**\
-`The landslide outside of Oslo was still ongoing. Several homes were destroyed.`\
+`Several homes were destroyed in the landslide about 30 miles northeast of Oslo, the authorities said.`\
 https://nytimes.com/2020/12/30/world/europe/norway-landslide.html?searchResultPosition=6
 
 **Let There Be Light, and Art, in the Moynihan Train Hall**\
