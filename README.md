@@ -1,40 +1,40 @@
-**Jonathan Pollard, Spy for Israel, Gets Hero’s Welcome From Netanyahu: ‘You’re Home’**\
-`Mr. Pollard, who gave a range of classified documents to Israel starting in 1984, recently completed his parole, and his case was a longstanding irritant to American-Israeli ties.`\
-https://nytimes.com/2020/12/30/world/middleeast/jonathan-pollard-israel-us-spy.html?searchResultPosition=1
+**A ‘Frankenstein’ That Never Lived**\
+`On Jan. 4, 1981, the effects-heavy production opened and closed on the same night. Forty years later, the creators revisit a very expensive Broadway flop.`\
+https://nytimes.com/2020/12/30/theater/frankenstein-broadway-flop.html?searchResultPosition=1
 
-**He Was Hospitalized for Covid-19. Then Hospitalized Again. And Again.**\
-`Significant numbers of coronavirus patients experience long-term symptoms that send them back to the hospital, taxing an already overburdened health system.`\
-https://nytimes.com/2020/12/30/health/covid-hospital-readmissions.html?searchResultPosition=2
+**The Hilaria Baldwin Story: ‘I’m Living My Life’**\
+`Accused of a “decade long grift where she impersonates a Spanish person,” the entrepreneur (and spouse of Alec Baldwin) talks about being the main character in this last week of 2020.`\
+https://nytimes.com/2020/12/30/style/hilaria-baldwin-interview.html?searchResultPosition=2
 
-**Quarterback Keeper? Jets, Browns and Bears Face Contract Decisions**\
-`Sam Darnold, Baker Mayfield and Mitchell Trubisky have all been marginally impressive at times. But is that enough for their teams to sign them to salary-cap-straining contracts?`\
-https://nytimes.com/2020/12/30/sports/football/quarterback-keeper-jets-browns-and-bears-face-contract-decisions.html?searchResultPosition=3
+**The Times Square Ball Drop is Still Happening. You’re Just Not Invited.**\
+`For the first time in decades, Times Square will be closed to the public on New Year’s Eve. Instead, dozens of frontline workers and their families will be honored with spots near the stage.`\
+https://nytimes.com/2020/12/30/nyregion/times-square-ball-new-years.html?searchResultPosition=3
 
-**Argentina Legalizes Abortion, a Milestone in a Conservative Region**\
-`The Senate vote on Wednesday was a major victory for Latin America’s growing feminist movement, and its ripple effects are likely to be widespread.`\
-https://nytimes.com/2020/12/30/world/americas/argentina-legalizes-abortion.html?searchResultPosition=4
+**Wood-Ridge, N.J.: Not Too Close to the City, or Too Far Away**\
+`This unpretentious suburb in Bergen County offers residents comfortable proximity to Manhattan and reasonably priced homes (some with skyline views).`\
+https://nytimes.com/2020/12/30/realestate/wood-ridge-nj-.html?searchResultPosition=4
 
-**Britain Authorizes Covid-19 Vaccine From Oxford and AstraZeneca**\
-`Health officials are hoping to soon vaccinate a million people per week as the country’s hospitals are overwhelmed by cases of a new, more contagious variant of the virus.`\
-https://nytimes.com/2020/12/30/world/europe/britain-authorizes-covid-19-vaccine-from-oxford-and-astrazeneca.html?searchResultPosition=5
+**Living In ... Wood-Ridge, N.J.**\
+`This unpretentious suburb in Bergen County offers residents comfortable proximity to Manhattan and reasonably priced homes (some with skyline views).`\
+https://nytimes.com/slideshow/2020/12/30/realestate/living-in-wood-ridge-nj.html?searchResultPosition=5
 
-**Numbers, Knowledge and Better Set Pieces: a View Into Soccer’s Future**\
-`F.C. Midtjylland’s search for competitive advantage has made it a place where ideas emerge. The problem is pretty soon everyone else has them, too.`\
-https://nytimes.com/2020/12/30/sports/soccer/soccer-future-midtjylland.html?searchResultPosition=6
+**One Way to Avoid Other Guests? Book the Entire Hotel**\
+`For those who aren’t deterred by a bill in the thousands, if not tens of thousands, buyouts of entire hotels or resorts offer the amenities and services of a hotel and the privacy and control of a vacation rental.`\
+https://nytimes.com/2020/12/30/travel/hotel-buyout-covid.html?searchResultPosition=6
 
-**A Chinese Covid-19 vaccine has proved effective, its maker said.**\
-`By Sui-Lee Wee`\
-https://nytimes.com/2020/12/29/world/a-chinese-covid-19-vaccine-has-proved-effective-its-maker-said.html?searchResultPosition=7
+**The 2020 Moments When Sports Made Sense**\
+`Sports were not a simple salve for the events of 2020, but they still provided some moments of joy, levity and shared humanity.`\
+https://nytimes.com/2020/12/30/sports/sports-moments-recap.html?searchResultPosition=7
 
-**A Chinese Covid-19 Vaccine Has Proved Effective, Its Maker Says**\
-`Sinopharm, a state-controlled company, said its candidate had a 79 percent efficacy rate in interim late-stage trials. But the announcement left crucial questions unanswered.`\
-https://nytimes.com/2020/12/30/business/china-vaccine.html?searchResultPosition=8
+**What’s on the Horizon for the Climate Desk**\
+`After a year when climate-related disasters seemed to become the norm, the team will be monitoring a 2021 that is pivotal for the world.`\
+https://nytimes.com/2020/12/30/insider/climate-2021.html?searchResultPosition=8
 
-**Nashville Suspect’s Girlfriend Told Police Last Year That He Was Making Bombs**\
-`Officers visited the home of Anthony Warner after his girlfriend said he was producing explosives in his R.V., according to a police report. They said then that there was no evidence of a crime.`\
-https://nytimes.com/2020/12/29/us/nashville-bomber-anthony-warner.html?searchResultPosition=9
+**The 2020 Good Tech Awards**\
+`This year, technology firms big and small stepped up to help with the Covid-19 pandemic and other thorny challenges.`\
+https://nytimes.com/2020/12/30/technology/2020-good-tech-awards.html?searchResultPosition=9
 
-**Corrections: Dec. 30, 2020**\
-`Corrections that appeared in print on Wednesday, Dec. 30, 2020.`\
-https://nytimes.com/2020/12/29/pageoneplus/corrections-dec-30-2020.html?searchResultPosition=10
+**The ‘Resistance’ Formed Because of Trump, With an Assist From Jon Ossoff**\
+`Mr. Ossoff’s 2017 special election was the first campaign Democrats had to focus on, after the shock of President Trump’s win. He lost, but the organizations formed around that race kept growing.`\
+https://nytimes.com/2020/12/30/us/politics/ossoff-georgia-resistance-trump.html?searchResultPosition=10
 
