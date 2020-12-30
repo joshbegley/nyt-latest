@@ -1,5 +1,5 @@
-**Nashville Suspect’s Girlfriend Told Police He Was Making Bombs Last Year**\
-`Officers visited the home of Anthony Warner last year after his girlfriend said he was producing explosives in his R.V., according to a police report. They said there was no evidence of a crime.`\
+**Nashville Suspect’s Girlfriend Told Police Last Year That He Was Making Bombs**\
+`Officers visited the home of Anthony Warner after his girlfriend said he was producing explosives in his R.V., according to a police report. They said then that there was no evidence of a crime.`\
 https://nytimes.com/2020/12/29/us/nashville-bomber-anthony-warner.html?searchResultPosition=1
 
 **Corrections: Dec. 30, 2020**\
