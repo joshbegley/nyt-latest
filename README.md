@@ -18,7 +18,7 @@ https://nytimes.com/video/world/europe/100000007526770/norway-landslide.html?sea
 `A photo retrospective of how the pandemic changed the business world and ruptured the economy in 2020 — creating some winners and, tragically, too many losers.`\
 https://nytimes.com/2020/12/30/business/2020-in-photos.html?searchResultPosition=5
 
-**Norway Landslide Injures 10 and Leaves 15 Missing**\
+**Norway Landslide Injures 10 and Leaves a Dozen Missing**\
 `Several homes were destroyed in the landslide about 30 miles northeast of Oslo, the authorities said.`\
 https://nytimes.com/2020/12/30/world/europe/norway-landslide.html?searchResultPosition=6
 
