@@ -26,8 +26,8 @@ https://nytimes.com/2020/12/30/us/california-2020.html?searchResultPosition=6
 `The agreement, which would roll back restrictions on investment, faces some opposition in Europe and objections from the Biden camp.`\
 https://nytimes.com/2020/12/30/business/china-eu-investment-deal.html?searchResultPosition=7
 
-**Explosion Reported at Yemen Airport as New Government Arrives**\
-`The blast, which killed at least 16 people and wounded 60 more, took place just before a plane carrying cabinet officials landed at the Aden airport.`\
+**Yemen Airport Is Attacked as New Government Arrives**\
+`The attack occurred just before a plane carrying several cabinet officials landed. The cabinet’s formation was supposed to be a step toward resolving Yemen’s civil war.`\
 https://nytimes.com/2020/12/30/world/middleeast/yemen-explosion-airport.html?searchResultPosition=8
 
 **U.K. Parliament Set to Approve Post-Brexit Trade Deal**\
