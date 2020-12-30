@@ -1,5 +1,5 @@
 **New Year’s Resolutions for the Planet**\
-`Here some ideas you wonderful readers sent to us.`\
+`Here are some ideas you wonderful readers sent to us.`\
 https://nytimes.com/interactive/2020/12/29/climate/new-years-resolutions-climate.html?searchResultPosition=1
 
 **2 Cleveland Police Officers Avoid Federal Charges in Killing of Tamir Rice**\
