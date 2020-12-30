@@ -35,6 +35,6 @@ https://nytimes.com/interactive/2020/12/29/climate/new-years-resolutions-climate
 https://nytimes.com/2020/12/29/us/tamir-rice-investigation-justice-department.html?searchResultPosition=9
 
 **Cutest Couple, Class Clown and a Competitive Year for D.C. Superlatives**\
-`The year’s best, worst and weirdest political operatives.`\
+`The year’s best, worst and weirdest political players.`\
 https://nytimes.com/2020/12/29/opinion/american-politicians-2020.html?searchResultPosition=10
 
