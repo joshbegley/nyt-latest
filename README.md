@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/30/world/americas/argentina-legalizes-abortion.html?searchResultPosition=1
 
 **Britain Authorizes Covid Vaccine From Oxford and AstraZeneca**\
-`Health authorities are hoping to soon vaccinate a million people per week as the country’s hospitals are overwhelmed by cases of a new, more contagious variant of the virus.`\
+`Health officials are hoping to soon vaccinate a million people per week as the country’s hospitals are overwhelmed by cases of a new, more contagious variant of the virus.`\
 https://nytimes.com/2020/12/30/world/europe/britain-authorizes-covid-vaccine-from-oxford-and-astrazeneca.html?searchResultPosition=2
 
 **Numbers, Knowledge and Better Set Pieces: a View Into Soccer’s Future**\
