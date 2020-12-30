@@ -1,5 +1,5 @@
-**Indonesia Disbands Radical Islamic Group Over Charges of ‘Terrorism’**\
-`The government dissolved the Islamic Defenders Front over charges that its members committed acts of violence. Its leader is already under arrest.`\
+**Indonesia Disbands Radical Islamic Group Over Charges of Violence**\
+`The government dissolved the Islamic Defenders Front over charges that its members committed terrorism. Its leader is already under arrest.`\
 https://nytimes.com/2020/12/30/world/asia/indonesia-islamic-defenders-front-banned.html?searchResultPosition=1
 
 **‘Let’s Talk About “Personal Responsibility”’: A Year of Tough Conversations in the Comments**\
