@@ -22,8 +22,8 @@ https://nytimes.com/2020/12/29/todayspaper/quotation-of-the-day-pandemic-worsens
 `The pro-democracy activists, who hoped to reach Taiwan, were caught by the Chinese Coast Guard and tried in the mainland’s opaque criminal justice system.`\
 https://nytimes.com/2020/12/29/world/asia/hong-kong-protesters-china.html?searchResultPosition=6
 
-**Your Wednesday Briefing**\
-`Britain bids adieu to the Erasmus program.`\
+**Erasmus, Covid-19, Croatia: Your Wednesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/12/29/briefing/erasmus-covid-croatia.html?searchResultPosition=7
 
 **A congressman-elect from Louisiana died from Covid-19 complications.**\
