@@ -1,5 +1,5 @@
 **Joe Clark, Tough Principal at New Jersey High School, Dies at 82**\
-`Bullhorn in hand, he roamed the hallways, imposing discipline, expelling ‘“miscreants” and restoring order. Morgan Freeman portrayed him in “Lean on Me.”`\
+`Bullhorn in hand, he roamed the hallways, imposing discipline, expelling “miscreants” and restoring order. Morgan Freeman portrayed him in “Lean on Me.”`\
 https://nytimes.com/2020/12/30/nyregion/joe-clark-dead.html?searchResultPosition=1
 
 **Meet Bill Butler, the Godfather of Roller Disco**\
