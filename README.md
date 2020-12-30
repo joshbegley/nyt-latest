@@ -22,19 +22,19 @@ https://nytimes.com/2020/12/30/world/europe/britain-authorizes-covid-19-vaccine-
 `F.C. Midtjylland’s search for competitive advantage has made it a place where ideas emerge. The problem is pretty soon everyone else has them, too.`\
 https://nytimes.com/2020/12/30/sports/soccer/soccer-future-midtjylland.html?searchResultPosition=6
 
+**A Chinese Covid-19 vaccine has proved effective, its maker said.**\
+`By Sui-Lee Wee`\
+https://nytimes.com/2020/12/29/world/a-chinese-covid-19-vaccine-has-proved-effective-its-maker-said.html?searchResultPosition=7
+
 **A Chinese Covid-19 Vaccine Has Proved Effective, Its Maker Says**\
 `Sinopharm, a state-controlled company, said its candidate had a 79 percent efficacy rate in interim late-stage trials. But the announcement left crucial questions unanswered.`\
-https://nytimes.com/2020/12/30/business/china-vaccine.html?searchResultPosition=7
+https://nytimes.com/2020/12/30/business/china-vaccine.html?searchResultPosition=8
 
 **Nashville Suspect’s Girlfriend Told Police Last Year That He Was Making Bombs**\
 `Officers visited the home of Anthony Warner after his girlfriend said he was producing explosives in his R.V., according to a police report. They said then that there was no evidence of a crime.`\
-https://nytimes.com/2020/12/29/us/nashville-bomber-anthony-warner.html?searchResultPosition=8
+https://nytimes.com/2020/12/29/us/nashville-bomber-anthony-warner.html?searchResultPosition=9
 
 **Corrections: Dec. 30, 2020**\
 `Corrections that appeared in print on Wednesday, Dec. 30, 2020.`\
-https://nytimes.com/2020/12/29/pageoneplus/corrections-dec-30-2020.html?searchResultPosition=9
-
-**Quotation of the Day: Pandemic Worsens Poverty’s Ills for Families**\
-`Quotation of the Day for Wednesday, December 30, 2020.`\
-https://nytimes.com/2020/12/29/todayspaper/quotation-of-the-day-pandemic-worsens-povertys-ills-for-families.html?searchResultPosition=10
+https://nytimes.com/2020/12/29/pageoneplus/corrections-dec-30-2020.html?searchResultPosition=10
 
