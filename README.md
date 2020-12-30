@@ -1,5 +1,5 @@
 **Explosion Reported at Yemen Airport as New Government Arrives**\
-`The blast took place just before a plane carrying cabinet officials landed at the Aden airport.`\
+`The blast, which killed at least 16 people and wounded 60 more, took place just before a plane carrying cabinet officials landed at the Aden airport.`\
 https://nytimes.com/2020/12/30/world/middleeast/yemen-explosion-airport.html?searchResultPosition=1
 
 **U.K. Parliament Set to Approve Post-Brexit Trade Deal**\
