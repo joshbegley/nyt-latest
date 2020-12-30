@@ -19,7 +19,7 @@ https://nytimes.com/2020/12/30/world/europe/britain-authorizes-covid-vaccine-fro
 https://nytimes.com/2020/12/30/sports/soccer/soccer-future-midtjylland.html?searchResultPosition=5
 
 **A Chinese Covid-19 Vaccine Has Proved Effective, Its Maker Says**\
-`Sinopharm, a state-controlled company, said its candidate had a 79 percent efficacy rate in interim late-stage trials, bringing a China-made vaccine a step closer to approval for mass use.`\
+`Sinopharm, a state-controlled company, said its candidate had a 79 percent efficacy rate in interim late-stage trials. But the announcement left crucial questions unanswered.`\
 https://nytimes.com/2020/12/30/business/china-vaccine.html?searchResultPosition=6
 
 **Nashville Suspect’s Girlfriend Told Police Last Year That He Was Making Bombs**\
