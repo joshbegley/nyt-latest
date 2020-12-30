@@ -10,9 +10,9 @@ https://nytimes.com/2020/12/30/sports/football/quarterback-keeper-jets-browns-an
 `The Senate vote on Wednesday was a major victory for Latin America’s growing feminist movement, and its ripple effects are likely to be widespread.`\
 https://nytimes.com/2020/12/30/world/americas/argentina-legalizes-abortion.html?searchResultPosition=3
 
-**Britain Authorizes Covid Vaccine From Oxford and AstraZeneca**\
+**Britain Authorizes Covid-19 Vaccine From Oxford and AstraZeneca**\
 `Health officials are hoping to soon vaccinate a million people per week as the country’s hospitals are overwhelmed by cases of a new, more contagious variant of the virus.`\
-https://nytimes.com/2020/12/30/world/europe/britain-authorizes-covid-vaccine-from-oxford-and-astrazeneca.html?searchResultPosition=4
+https://nytimes.com/2020/12/30/world/europe/britain-authorizes-covid-19-vaccine-from-oxford-and-astrazeneca.html?searchResultPosition=4
 
 **Numbers, Knowledge and Better Set Pieces: a View Into Soccer’s Future**\
 `F.C. Midtjylland’s search for competitive advantage has made it a place where ideas emerge. The problem is pretty soon everyone else has them, too.`\
