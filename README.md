@@ -1,6 +1,6 @@
 **Amazon Buys Wondery as Podcasting Race Continues**\
 `The deal, valued at $300 million, is the latest in a string of acquisitions as streaming platforms expand beyond music and video.`\
-https://nytimes.com/2020/12/30/business/wondery-amazon-podcasts.html?searchResultPosition=1
+https://nytimes.com/2020/12/30/business/dealbook/wondery-amazon-podcasts.html?searchResultPosition=1
 
 **Warp Speed Officials Say Covid Vaccine Distribution Is Going Too Slowly**\
 `“We know that it should be better, and we’re working hard to make it better,” said Moncef Slaoui, a leader of the federal effort to accelerate vaccine development and distribution.`\
