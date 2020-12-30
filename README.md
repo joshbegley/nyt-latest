@@ -1,4 +1,4 @@
-**A Chinese Covid-19 Vaccine Has Proven Effective, Its Maker Says**\
+**A Chinese Covid-19 Vaccine Has Proved Effective, Its Maker Says**\
 `Sinopharm, a state-controlled company, said its candidate was shown to be 79 percent effective in interim late-stage trials, bringing a China-made vaccine a step closer to approval for mass use.`\
 https://nytimes.com/2020/12/30/business/china-vaccine.html?searchResultPosition=1
 
