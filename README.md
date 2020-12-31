@@ -15,7 +15,7 @@ https://nytimes.com/2020/12/30/us/nashville-bomber-anthony-warner.html?searchRes
 https://nytimes.com/2020/12/30/us/simla-colorado-coronavirus-variant.html?searchResultPosition=4
 
 **Closing of Air Traffic Control Center for Virus Cleaning Halts Flights in Dallas**\
-`Covid cases at F.A.A. center in Fort Worth lead to ripples of delays and diverted flights across the country.`\
+`A single Covid case at the F.A.A. center in Fort Worth led to ripples of delays and diverted flights across the country.`\
 https://nytimes.com/2020/12/30/us/dfw-airport-closed-covid.html?searchResultPosition=5
 
 **The Bomb That Struck the Heart of Nashville**\
