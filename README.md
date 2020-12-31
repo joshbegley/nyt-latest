@@ -1,40 +1,40 @@
+**Vaccines Take a While to Kick In. Experts Say That Means the Body Is Doing Its Job.**\
+`Reports of Covid-19 cases that appeared shortly after a single shot of a two-dose vaccine shouldn’t cause concern.`\
+https://nytimes.com/2020/12/31/health/covid-vaccine-test-positive.html?searchResultPosition=1
+
+**Gibraltar Gets Its Own Last-Minute Brexit Deal on Borders**\
+`Spain and the European Union will share oversight over the flow of goods and people to the British territory, which worried about being left isolated and economically pinched outside the bloc.`\
+https://nytimes.com/2020/12/31/world/europe/gibraltar-brexit-uk-spain.html?searchResultPosition=2
+
+**More than 500 vaccine doses were left out to spoil on purpose by a hospital employee.**\
+`By Kate Taylor`\
+https://nytimes.com/2020/12/31/us/wisconsin-hospital-covid-vaccine-destroyed.html?searchResultPosition=3
+
 **A German Town Warily Considers a Future Without a Deep U.S. Presence**\
 `American culture, friends and jobs are part of the fabric of Vilseck, home to a U.S. military base. President Trump has forced its people to think about what it would mean to lose that.`\
-https://nytimes.com/2020/12/31/world/europe/vilseck-germany-us-army.html?searchResultPosition=1
+https://nytimes.com/2020/12/31/world/europe/vilseck-germany-us-army.html?searchResultPosition=4
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2020/12/31/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=2
+https://nytimes.com/2020/12/31/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=5
 
 **Padres Jolt M.L.B. With Bold Moves to Set Up World Series Run**\
 `While many teams continued to assess the financial consequences of the coronavirus pandemic, San Diego acquired two pricey pitchers and instantly became one of the favorites to win the World Series.`\
-https://nytimes.com/2020/12/31/sports/baseball/padres-mlb-trades.html?searchResultPosition=3
+https://nytimes.com/2020/12/31/sports/baseball/padres-mlb-trades.html?searchResultPosition=6
 
 **What It Takes to Heal From Covid-19**\
 `Survivors can get better, but they need help.`\
-https://nytimes.com/2020/12/31/opinion/covid-health-recovery.html?searchResultPosition=4
+https://nytimes.com/2020/12/31/opinion/covid-health-recovery.html?searchResultPosition=7
 
-**Here’s Why Distribution of the Vaccine is Taking Longer Than Expected**\
+**Here’s Why Distribution of the Vaccine Is Taking Longer Than Expected**\
 `Health officials and hospitals are struggling with a lack of resources. Holiday staffing and saving doses for nursing homes are also contributing to delays.`\
-https://nytimes.com/2020/12/31/health/vaccine-distribution-delays.html?searchResultPosition=5
+https://nytimes.com/2020/12/31/health/vaccine-distribution-delays.html?searchResultPosition=8
 
 **Superheroes and Trailblazers: Black Comic Book Artists, Rediscovered**\
 `A new book examines the lives of these trailblazers, who paved the way for subsequent generations of illustrators but were invisible to the mainstream in their own time.`\
-https://nytimes.com/2020/12/31/arts/design/black-comic-book-artists-racism.html?searchResultPosition=6
+https://nytimes.com/2020/12/31/arts/design/black-comic-book-artists-racism.html?searchResultPosition=9
 
 **Becky Hammon Becomes First Woman to Serve as Head Coach in N.B.A. Game**\
 `She took over coaching the San Antonio Spurs after Gregg Popovich was ejected from a game against the Los Angeles Lakers on Wednesday night.`\
-https://nytimes.com/2020/12/31/sports/basketball/becky-hammon-nba-head-coach.html?searchResultPosition=7
-
-**Homes for Sale in Brooklyn, Manhattan and Staten Island**\
-`This week’s properties are in Downtown Brooklyn, the Flatiron district and Grymes Hill.`\
-https://nytimes.com/2020/12/31/realestate/housing-market-nyc.html?searchResultPosition=8
-
-**On the Market in New York City**\
-`This week’s properties are in Downtown Brooklyn, the Flatiron district and Grymes Hill.`\
-https://nytimes.com/slideshow/2020/12/31/realestate/on-the-market-in-new-york-city.html?searchResultPosition=9
-
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties include a five-bedroom in Great Neck, N.Y., and a three-bedroom in Fairfield, Conn.`\
-https://nytimes.com/2020/12/31/realestate/housing-market-near-nyc.html?searchResultPosition=10
+https://nytimes.com/2020/12/31/sports/basketball/becky-hammon-nba-head-coach.html?searchResultPosition=10
 
