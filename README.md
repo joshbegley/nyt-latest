@@ -1,40 +1,40 @@
-**Two Siblings Are Killed in Crash as Suspect Speeds Wrong Way on I-95 in Florida**\
-`A carjacking suspect fleeing the police drove north in southbound lanes and struck an S.U.V. on Interstate 95 near Daytona Beach.`\
-https://nytimes.com/2020/12/31/us/daytona-beach-police-chase.html?searchResultPosition=1
+**How We Got Through and What We Missed Most: Lessons From a Pandemic Year**\
+`Readers across the country told us about their lockdown life. Baking, bourbon and biting nails? Check. But also, resilience and hope.`\
+https://nytimes.com/interactive/2020/12/31/upshot/lessons-from-a-pandemic-year.html?searchResultPosition=1
 
-**Working From Bed Is Actually Great**\
-`A perfect metaphor for a year of giving up and giving in.`\
-https://nytimes.com/2020/12/31/style/working-from-bed.html?searchResultPosition=2
+**How Politics, Protests and the Pandemic Shaped a Year in Books**\
+`From “American Dirt” to “Apropos of Nothing” to “A Promised Land,” here is what happened in the literary and publishing world’s unforgettable 2020.`\
+https://nytimes.com/2020/12/31/books/books-literature-publishing-2020.html?searchResultPosition=2
 
-**Samuel Little, America’s Most Prolific Serial Killer, Dies at 80**\
-`Mr. Little confessed to 93 murders, at least 50 of which were verified by law enforcement officers, the F.B.I. said.`\
-https://nytimes.com/2020/12/31/us/samuel-little-dead.html?searchResultPosition=3
+**Joy Survives: Your Positive Moments From 2020**\
+`Readers share memories of the good moments from this year, and reflect on what they mean now.`\
+https://nytimes.com/2020/12/31/us/positive-moments-2020.html?searchResultPosition=3
 
-**N.F.L. Week 17 Predictions: Our Picks Against the Spread**\
-`Ten teams will be fighting for seven playoff spots on a final regular-season Sunday when numerous playoff seedings can change.`\
-https://nytimes.com/2020/12/31/sports/football/nfl-picks-week-17.html?searchResultPosition=4
+**How 11 Kids Think the Biden Administration Should Spend Our Money**\
+`Vaccines, global warming, kid-sized chairs.`\
+https://nytimes.com/2020/12/31/business/how-11-kids-think-the-biden-administration-should-spend-our-money.html?searchResultPosition=4
 
-**Your Thursday Briefing**\
-`The vote on a long-awaited Brexit deal.`\
-https://nytimes.com/2020/12/30/briefing/brexit-coronavirus-astrazeneca-vaccine.html?searchResultPosition=5
+**Vanessa Kirby Has Been Waiting for a Role That Scares Her**\
+`For her first lead in a film, the actress wanted a character as challenging as many of those she’s played onstage. She found it in Kornel Mundruczo’s “Pieces of a Woman.”`\
+https://nytimes.com/2020/12/31/movies/vanessa-kirby-pieces-of-a-woman.html?searchResultPosition=5
 
-**Minneapolis Police Fatally Shoot Man During Traffic Stop**\
-`It was the first killing by a Minneapolis officer since George Floyd’s death in May. The chief said witnesses indicated that the man had fired first.`\
-https://nytimes.com/2020/12/30/us/minneapolis-police-shooting.html?searchResultPosition=6
+**Jobs, Houses and Cows: China’s Costly Drive to Erase Extreme Poverty**\
+`China has spent heavily to help its poorest citizens, an approach that few developing countries can afford and even Beijing may struggle to sustain.`\
+https://nytimes.com/2020/12/31/world/asia/china-poverty-xi-jinping.html?searchResultPosition=6
 
-**Trump Was Briefed on Uncorroborated Intelligence About Chinese Bounties**\
-`The unverified intelligence echoes a similar report, deemed credible by the C.I.A. but dismissed by the president, that Russian military agents had offered payments for attacks on Americans in Afghanistan.`\
-https://nytimes.com/2020/12/30/us/politics/trump-chinese-bounties-briefing.html?searchResultPosition=7
+**‘The Other Half of My Soul’: Widows of Covid-19 Bond Over Sudden Loss**\
+`Men have died of the coronavirus in larger numbers than women, leaving untold thousands of spouses suddenly alone. Some have turned to bereavement groups on Facebook.`\
+https://nytimes.com/2020/12/31/us/covid-widows-deaths.html?searchResultPosition=7
 
-**Corrections: Dec. 31, 2020**\
-`Corrections that appeared in print on Thursday, Dec. 31, 2020.`\
-https://nytimes.com/2020/12/30/pageoneplus/corrections-dec-31-2020.html?searchResultPosition=8
+**Was That a Dropped Call From ET?**\
+`A spooky radio signal showed up after a radio telescope was aimed at the next star over from our sun.`\
+https://nytimes.com/2020/12/31/science/radio-signal-extraterrestrial.html?searchResultPosition=8
 
-**Quotation of the Day: Missouri Senator Says He’ll Join Election Challenge, Dividing the G.O.P.**\
-`Quotation of the Day for Thursday, December 31, 2020.`\
-https://nytimes.com/2020/12/30/todayspaper/quotation-of-the-day-missouri-senator-says-hell-join-election-challenge-dividing-the-gop.html?searchResultPosition=9
+**Randall Cunningham Is Back in the N.F.L. … as Raiders Chaplain**\
+`“I want to preach myself into a Super Bowl ring.”`\
+https://nytimes.com/2020/12/31/sports/football/randall-cunningham-raiders-chaplain.html?searchResultPosition=9
 
-**Squirming, Maybe**\
-`David J. Kahn escorts the old year to the door.`\
-https://nytimes.com/2020/12/30/crosswords/daily-puzzle-2020-12-31.html?searchResultPosition=10
+**An Olympic Dream Is Reborn, Despite Fears of Brain Trauma**\
+`A.J. Edelman walked away from the hazards of sledding sports after he competed for Israel in the skeleton at the 2018 Winter Games. Now he is trying again in a bobsled.`\
+https://nytimes.com/2020/12/31/sports/bobsled-concussions-brain-damage.html?searchResultPosition=10
 
