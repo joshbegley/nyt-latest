@@ -12,7 +12,7 @@ https://nytimes.com/2020/12/31/business/stimulus-checks-overdraft.html?searchRes
 
 **Vaccines Take a While to Kick In. Experts Say That Means the Body Is Doing Its Job.**\
 `Reports of Covid-19 cases that appeared shortly after a single shot of a two-dose vaccine shouldn’t cause concern.`\
-https://nytimes.com/2020/12/31/health/covid-vaccine-test-positive.html?searchResultPosition=4
+https://nytimes.com/2020/12/31/health/covid-vaccine-side-effects.html?searchResultPosition=4
 
 **Gibraltar Gets Its Own Last-Minute Brexit Deal on Borders**\
 `Spain and the European Union will share oversight over the flow of goods and people to the British territory, which worried about being left isolated and economically pinched outside the bloc.`\
