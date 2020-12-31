@@ -12,7 +12,7 @@ https://nytimes.com/2020/12/31/opinion/covid-health-recovery.html?searchResultPo
 
 **Here’s Why the ‘Last Mile’ of Vaccine Distribution Is Going So Slowly**\
 `Health officials and hospitals are struggling with a lack of resources. Holiday staffing and saving doses for nursing homes are also contributing to delays.`\
-https://nytimes.com/2020/12/31/health/heres-why-the-last-mile-of-vaccine-distribution-is-going-so-slowly.html?searchResultPosition=4
+https://nytimes.com/2020/12/31/health/vaccine-distribution-delays.html?searchResultPosition=4
 
 **Superheroes and Trailblazers: Black Comic Book Artists, Rediscovered**\
 `A new book examines the lives of these trailblazers, who paved the way for subsequent generations of illustrators but were invisible to the mainstream in their own time.`\
