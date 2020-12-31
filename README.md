@@ -10,7 +10,7 @@ https://nytimes.com/2020/12/31/sports/football/nfl-picks-week-17.html?searchResu
 `The vote on a long-awaited Brexit deal.`\
 https://nytimes.com/2020/12/30/briefing/brexit-coronavirus-astrazeneca-vaccine.html?searchResultPosition=3
 
-**Minneapolis Police Chief Vows to Release Footage After Officer Fatally Shoots Man**\
+**Minneapolis Police Fatally Shoot Man During Traffic Stop**\
 `It was the first killing by a Minneapolis officer since George Floyd’s death in May. The chief said witnesses indicated that the man had fired first.`\
 https://nytimes.com/2020/12/30/us/minneapolis-police-shooting.html?searchResultPosition=4
 
