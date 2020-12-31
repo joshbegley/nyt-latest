@@ -3,7 +3,7 @@
 https://nytimes.com/2020/12/31/world/europe/brexit-eu-advantages.html?searchResultPosition=1
 
 **Hedge Fund Bids for Control of Tribune**\
-`Alden Global Capital, which is already Tribune’s biggest shareholder, unsuccessfully bid for the publisher earlier this year.`\
+`Alden Global Capital, which is already Tribune’s biggest shareholder, valued the company at about $520.6 million.`\
 https://nytimes.com/2020/12/31/business/media/tribune-alden-global.html?searchResultPosition=2
 
 **Coronavirus Dominates Merkel’s Last New Year’s Speech as Chancellor**\
