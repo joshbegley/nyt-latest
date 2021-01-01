@@ -1,40 +1,40 @@
-**College Football Powers Vie for Playoff’s Title Game**\
-`Alabama will play Notre Dame and Clemson will meet Ohio State in College Football Playoff semifinals on Friday as a chaotic season nears its end.`\
-https://nytimes.com/2021/01/01/sports/ncaafootball/playoff-alabama-clemson-covid.html?searchResultPosition=1
+**Coming Home**\
+`Tens of thousands of New Yorkers left the city when the pandemic struck and spent months living elsewhere. What did they learn?`\
+https://nytimes.com/2021/01/01/realestate/who-left-new-york-coronavirus.html?searchResultPosition=1
 
-**Virus Numbers Are Surging. Why Is New York’s Vaccine Rollout Sluggish?**\
-`With a new variant of the virus emerging elsewhere in the country, it’s crucial to vaccinate New Yorkers quickly. But so far, only about 88,000 have received the shots.`\
-https://nytimes.com/2021/01/01/nyregion/nyc-covid-vaccine-rollout.html?searchResultPosition=2
+**Choosing to Be Displaced**\
+`More than 400,000 New Yorkers left the city at the beginning of the pandemic. Many have returned; all have re-evaluated their relationship with the city.`\
+https://nytimes.com/slideshow/2021/01/01/realestate/who-left-new-york-coronavirus.html?searchResultPosition=2
 
-**New York to Delist Chinese Telecom Firms in Symbolic Shift**\
-`The move follows an order from the Trump administration, which says the companies are tied to China’s military. But they don’t need Wall Street as much as they once did.`\
-https://nytimes.com/2021/01/01/business/nyse-delist-china-mobile.html?searchResultPosition=3
+**Infrared Drones, Search Parties and a Lasso: Chasing a Runaway Llama**\
+`In a season of uncommon grief and worry, people far beyond the Westchester County estate from which Gizmo escaped were all too happy to fret about something else, for a change.`\
+https://nytimes.com/2021/01/01/nyregion/missing-llama-westchester.html?searchResultPosition=3
 
-**In Pasadena, Moving the Rose Bowl Makes For Unusual Rancor**\
-`The Rose Bowl moved to Texas from California to accommodate fans. But in Pasadena, city officials worried the maneuver could threaten its long-held ties to the game.`\
-https://nytimes.com/2021/01/01/sports/ncaafootball/rose-bowl-move-pasadena.html?searchResultPosition=4
+**A Monster Wind Turbine Is Upending an Industry**\
+`G.E.’s giant machine, which can light up a small town, is stoking a renewable-energy arms race.`\
+https://nytimes.com/2021/01/01/business/GE-wind-turbine.html?searchResultPosition=4
 
-**My Five-Week-Long First Date**\
-`Once I joined him on that ship for the Antarctic, there was no turning back.`\
-https://nytimes.com/2021/01/01/style/modern-love-my-five-week-long-first-date.html?searchResultPosition=5
+**Meteor Showers in 2021 That Will Light Up Night Skies**\
+`All year long, Earth passes through streams of cosmic debris. Here’s a list of some major meteor showers and how to spot them.`\
+https://nytimes.com/article/2021-meteor-showers.html?searchResultPosition=5
 
-**No Rose Parade: Southern California laments the loss of a tradition.**\
-`The pandemic caused the cancellation of the Rose Parade, an institution since 1890, for the first time since World War II.`\
-https://nytimes.com/2020/12/31/us/rose-parade-cancelled-new-years.html?searchResultPosition=6
+**The Problem With Problem Sharks**\
+`A marine biologist’s ideas for singling out sharks that attack humans have prompted objections from other shark scientists.`\
+https://nytimes.com/2021/01/01/science/problem-sharks-biteprinting.html?searchResultPosition=6
 
-**Your Friday Briefing**\
-`A very different New Year’s Eve.`\
-https://nytimes.com/2020/12/31/briefing/coronavirus-trump-new-years-day.html?searchResultPosition=7
+**An Embattled Public Servant in a Fractured France**\
+`Nicolas Cadène sees the failings of France’s secular model even as he upholds it.`\
+https://nytimes.com/2021/01/01/world/europe/an-embattled-public-servant-in-a-fractured-france.html?searchResultPosition=7
 
-**Corrections: Jan. 1, 2021**\
-`Corrections that appeared in print on Friday, Jan. 1, 2021.`\
-https://nytimes.com/2020/12/31/pageoneplus/corrections-jan-1-2021.html?searchResultPosition=8
+**How a Zen Buddhist Monk and Hospital Chaplain Spends His Sundays**\
+`To care for Covid-19 patients and their families, Seigan Ed Glassing reserves one day of the week to care for himself.`\
+https://nytimes.com/2021/01/01/nyregion/coronavirus-hospital-chaplain-buddhism.html?searchResultPosition=8
 
-**Quotation of the Day: For New York, a Year of Pain and Reflection**\
-`Quotation of the Day for Friday, Jan. 1, 2021.`\
-https://nytimes.com/2020/12/31/todayspaper/quotation-of-the-day-for-new-york-a-year-of-pain-and-reflection.html?searchResultPosition=9
+**Why Emptier Streets Meant an Especially Deadly Year for Traffic Deaths**\
+`In New York City, at least 243 people died in crashes in 2020 — the most since Mayor Bill de Blasio introduced his signature street safety plan in 2014.`\
+https://nytimes.com/2021/01/01/nyregion/nyc-traffic-deaths.html?searchResultPosition=9
 
-**Shhh! In Los Angeles, New Year’s Eve parties are still happening.**\
-`By Evan Nicole Brown`\
-https://nytimes.com/2020/12/31/us/shhh-in-los-angeles-new-years-eve-parties-are-still-happening.html?searchResultPosition=10
+**Upcoming N.H.L. Season Will Have Flashes of Other Difficult Eras**\
+`All of the Canadian teams will be in the same division, as they were in the late 1920s and most of the 1930s. And as during World War II, external circumstances will affect roster sizes.`\
+https://nytimes.com/2021/01/01/sports/hockey/nhl-season-opening.html?searchResultPosition=10
 
