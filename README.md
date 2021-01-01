@@ -3,8 +3,8 @@
 https://nytimes.com/2021/01/01/style/self-care/kambo-tree-frog-detox.html?searchResultPosition=1
 
 **The Philippines bars U.S. travelers after Florida becomes the third state to find the new virus variant.**\
-`By Jason Gutierrez, Michael Wolgelenter and Allyson Waller`\
-https://nytimes.com/2021/01/01/world/the-philippines-bars-us-travelers-after-florida-becomes-the-third-state-to-find-the-new-virus-variant.html?searchResultPosition=2
+`Florida joins California and Colorado in finding infections involving the more transmissible variant first identified in Britain.`\
+https://nytimes.com/2021/01/01/world/philippines-bars-us-travelers-florida-new-virus-variant.html?searchResultPosition=2
 
 **There Have Always Been Women Warriors**\
 `New scholarship shows that man was not always the hunter.`\
