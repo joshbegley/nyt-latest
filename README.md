@@ -1,4 +1,4 @@
-**Minneapolis Police Release Body Camera Video of First Killing Since George Floyd**\
+**Minneapolis Police Release Body Camera Video of Its First Killing Since George Floyd**\
 `The video shows a man raising something to his car window before a bang is heard. An officer ducks for cover and then fires several rounds at the man.`\
 https://nytimes.com/2020/12/31/us/george-floyd-minneapolis-police-body-cam.html?searchResultPosition=1
 
