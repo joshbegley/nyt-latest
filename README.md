@@ -1,5 +1,5 @@
 **Your Friday Briefing**\
-`A New Year’s Eve unlike any other.`\
+`A very different New Year’s Eve.`\
 https://nytimes.com/2020/12/31/briefing/coronavirus-trump-new-years-day.html?searchResultPosition=1
 
 **Corrections: Jan. 1, 2021**\
