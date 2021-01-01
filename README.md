@@ -18,8 +18,8 @@ https://nytimes.com/2021/01/01/opinion/letters/blackwater-pardons.html?searchRes
 `Britain is the latest country to get rid of the tax in recent years.`\
 https://nytimes.com/2021/01/01/world/europe/tampon-tax-uk.html?searchResultPosition=5
 
-**With Guards Crippled by Covid-19, States Are Closing Prisons**\
-`Officials are finding it hard to keep jails and prisons open as the virus ravages both prisoners and staff members. But transferring inmates can spur new outbreaks.`\
+**States Are Shutting Down Prisons as Guards are Crippled By Covid-19**\
+`States and counties are finding it hard to keep jails and prisons open as the virus ravages both prisoners and staff members. But transferring inmates can spur new outbreaks.`\
 https://nytimes.com/2021/01/01/us/coronavirus-prisons-jails-closing.html?searchResultPosition=6
 
 **Tyshawn Sorey: The Busiest Composer of the Bleakest Year**\
