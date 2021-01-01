@@ -3,8 +3,8 @@
 https://nytimes.com/2021/01/01/world/the-philippines-bars-us-travelers-after-florida-becomes-the-third-state-to-find-the-new-virus-variant.html?searchResultPosition=1
 
 **There Have Always Been Women Warriors**\
-`Man was not always the hunter — women hunted too.`\
-https://nytimes.com/2021/01/01/opinion/man-the-hunter-woman-andes-viking-women-leaders-feminism.html?searchResultPosition=2
+`New scholarship shows that man was not always the hunter.`\
+https://nytimes.com/2021/01/01/opinion/women-hunter-leader.html?searchResultPosition=2
 
 **Fareed Zakaria on Life After the Pandemic**\
 `Zakaria discusses “Ten Lessons for a Post-Pandemic World,” and Margaret MacMillan talks about “War: How Conflict Shaped Us.”`\
