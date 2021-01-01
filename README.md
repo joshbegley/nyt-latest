@@ -12,7 +12,7 @@ https://nytimes.com/2020/12/31/obituaries/klara-kasparova-dead-coronavirus.html?
 
 **Georgia Republicans Deliver Persistent Message: Fear the Democrats**\
 `Senators Kelly Loeffler and David Perdue are resting their re-election hopes on a strategy that calls more attention to what they’re against than what they support.`\
-https://nytimes.com/2020/12/31/us/politics/georgia-republicans-senate-loeffler-perdue.html?searchResultPosition=4
+https://nytimes.com/2020/12/31/us/politics/georgia-senate-election.html?searchResultPosition=4
 
 **MF Doom, Masked Rapper With Intricate Rhymes, Is Dead at 49**\
 `Born Daniel Dumile, MF Doom built a cult following with his wordplay and comic-book style. He died in October, a statement shared by his record label said.`\
