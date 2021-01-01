@@ -15,7 +15,7 @@ https://nytimes.com/2021/01/01/nyregion/nyc-chinatown-lanterns.html?searchResult
 https://nytimes.com/2021/01/01/style/self-care/kambo-tree-frog-detox.html?searchResultPosition=4
 
 **The Philippines bars U.S. travelers after Florida becomes the third state to find the new virus variant.**\
-`Florida joins California and Colorado in finding infections involving the more transmissible variant first identified in Britain.`\
+`Florida joins California and Colorado in finding infections involving the more transmissible variant first identified in Britain, which has been found in at least 31 more countries.`\
 https://nytimes.com/2021/01/01/world/philippines-bars-us-travelers-florida-new-virus-variant.html?searchResultPosition=5
 
 **There Have Always Been Women Warriors**\
