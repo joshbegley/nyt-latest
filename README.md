@@ -1,4 +1,4 @@
-**Before Embracing an America-First Agenda, David Perdue Was an Expert in Outsourcing**\
+**Before Embracing America-First Agenda, David Perdue Was an Outsourcing Expert**\
 `Mr. Perdue, who faces one of two runoff elections in Georgia that will determine control of the Senate, built a business record that shifted manufacturing and jobs overseas.`\
 https://nytimes.com/2021/01/01/us/politics/david-perdue-georgia-senate.html?searchResultPosition=1
 
