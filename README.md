@@ -1,5 +1,5 @@
 **Washington Has Been Lucrative for Some on Biden’s Team**\
-`Janet Yellen, the president-elect’s pick for Treasury secretary, collected $7.2 million in speaking fees over the past two years. Antony J. Blinken and Avril Haines did well, too.`\
+`Janet Yellen, the president-elect’s pick for Treasury secretary, collected more than $7 million in speaking fees over the past two years. Antony J. Blinken and Avril Haines did well, too.`\
 https://nytimes.com/2021/01/01/us/politics/yellen-speaking-fees-disclosure.html?searchResultPosition=1
 
 **In Abrupt Reversal of Iran Strategy, Pentagon Orders Aircraft Carrier Home**\
