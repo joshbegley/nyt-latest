@@ -18,8 +18,8 @@ https://nytimes.com/2021/01/02/obituaries/paul-westphal-dead.html?searchResultPo
 `By Ann Hinga Klein`\
 https://nytimes.com/2021/01/02/world/25-california-prisons-have-logged-more-than-1000-infections-none-are-in-the-first-wave-of-vaccinations.html?searchResultPosition=5
 
-**Clearing the Wreckage at the Education Department**\
-`The institution lies in ruins right when it’s needed most.`\
+**The Wreckage Betsy DeVos Leaves Behind**\
+`The Education Department lies in ruins right when it’s needed most.`\
 https://nytimes.com/2021/01/02/opinion/sunday/education-department-cardona-biden.html?searchResultPosition=6
 
 **Starving Children Don’t Cry**\
