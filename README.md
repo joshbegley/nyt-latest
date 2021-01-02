@@ -15,7 +15,7 @@ https://nytimes.com/2021/01/02/us/politics/congress-impeachment-coronavirus-trum
 https://nytimes.com/2021/01/02/us/minneapolis-police-shooting-raid-dolal-idd.html?searchResultPosition=4
 
 **11 Republican Senators Plan to Back Futile Bid to Overturn Biden’s Election**\
-`A group of senators and senators-elect, led by Ted Cruz of Texas, said that they would object to the outcome of the election, while conceding that the effort would be unsuccessful.`\
+`A group of senators and senators-elect, led by Ted Cruz of Texas, said that they would object to the outcome of the election, while conceding that their effort would be unsuccessful.`\
 https://nytimes.com/2021/01/02/us/politics/gop-senators-josh-hawley-election.html?searchResultPosition=5
 
 **Raphael Warnock, From the Pulpit to Politics, Doesn’t Shy From ‘Uncomfortable’ Truths**\
