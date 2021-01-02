@@ -26,7 +26,7 @@ https://nytimes.com/2021/01/02/us/mcconnell-pelosi-house-vandalized.html?searchR
 `The 116th Congress has lurched through a government shutdown, the impeachment and trial of a president, and the deadliest pandemic in a century.`\
 https://nytimes.com/2021/01/02/us/politics/congress-impeachment-coronavirus-trump.html?searchResultPosition=7
 
-**Family of Man Killed by Minneapolis Police Say Raid Left Them Shaken**\
+**Family Members of Man Killed by Minneapolis Police Say Raid Left Them Shaken**\
 `The father of a 23-year-old man killed by Minneapolis police officers learned of his son’s death only after police officers searched his home in the middle of the night.`\
 https://nytimes.com/2021/01/02/us/minneapolis-police-shooting-raid-dolal-idd.html?searchResultPosition=8
 
