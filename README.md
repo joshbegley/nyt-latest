@@ -1,10 +1,10 @@
-**Gunfire and Crashing Cars: In Struggling Neighborhoods, ‘We’re Losing Our Grip’**\
-`A year of hardship in parts of Cleveland has left many with the sense that the fabric of their communities was fraying.`\
-https://nytimes.com/2021/01/02/us/crime-poverty-pandemic-cleveland.html?searchResultPosition=1
-
 **As Understanding of Russian Hacking Grows, So Does Alarm**\
 `Those behind the widespread intrusion into government and corporate networks exploited seams in U.S. defenses and gave away nothing to American monitoring of their systems.`\
-https://nytimes.com/2021/01/02/us/politics/russian-hacking-government.html?searchResultPosition=2
+https://nytimes.com/2021/01/02/us/politics/russian-hacking-government.html?searchResultPosition=1
+
+**Gunfire and Crashing Cars: In Struggling Neighborhoods, ‘We’re Losing Our Grip’**\
+`A year of hardship in parts of Cleveland has left many with the sense that the fabric of their communities was fraying.`\
+https://nytimes.com/2021/01/02/us/crime-poverty-pandemic-cleveland.html?searchResultPosition=2
 
 **The Vegas Chapels Are Open, and Waiting**\
 `The pandemic did not stop a Las Vegas tradition: the fast, budget-priced nuptial ceremony with you and your very own (socially distant) Elvis impersonator.`\
