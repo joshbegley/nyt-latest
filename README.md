@@ -14,8 +14,8 @@ https://nytimes.com/2021/01/01/us/politics/mike-pence-louie-gohmert-lawsuit.html
 `President Trump continued his assault on election integrity, baselessly claiming the presidential results and the Senate runoffs in Georgia were both invalid — which could complicate G.O.P. efforts to motivate voters.`\
 https://nytimes.com/2021/01/01/us/politics/trump-georgia-senate.html?searchResultPosition=4
 
-**Alabama Reaches National Title Game by Easily Brushing Aside Notre Dame**\
-`Notre Dame never really threatened the Crimson Tide in their College Football Playoff semifinal.`\
+**Alabama and Ohio State Reach the National Title Game With Runaway Wins**\
+`Notre Dame never really threatened the Crimson Tide in their College Football Playoff semifinal, and then Ohio State rolled over Clemson.`\
 https://nytimes.com/2021/01/01/sports/ncaafootball/alabama-notre-dame-rose-bowl.html?searchResultPosition=5
 
 **Corrections: Jan. 2, 2021**\
