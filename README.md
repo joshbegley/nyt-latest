@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/01/us/politics/trump-georgia-senate.html?searchResul
 
 **Alabama and Ohio State Reach the National Title Game With Runaway Wins**\
 `Notre Dame never really threatened the Crimson Tide in their College Football Playoff semifinal, and then Ohio State rolled over Clemson.`\
-https://nytimes.com/2021/01/01/sports/ncaafootball/alabama-notre-dame-rose-bowl.html?searchResultPosition=5
+https://nytimes.com/2021/01/01/sports/ncaafootball/alabama-ohio-state-cfp.html?searchResultPosition=5
 
 **Corrections: Jan. 2, 2021**\
 `Corrections that appeared in print on Saturday, Jan. 2, 2021.`\
