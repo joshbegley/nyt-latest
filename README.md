@@ -18,23 +18,23 @@ https://nytimes.com/2021/01/03/briefing/georgia-britain-winter-tv.html?searchRes
 `A proposed new look for the beloved state tree has drawn complaints that it looks like a toilet brush or like one of the palmettos battered by Hurricane Hugo in 1989.`\
 https://nytimes.com/2021/01/03/us/new-sc-flag.html?searchResultPosition=5
 
-**A teacher whose class video made her a national sensation dies from Covid-19 at 35.**\
-`By Giulia McDonnell Nieto del Rio`\
-https://nytimes.com/2021/01/03/world/a-teacher-whose-class-video-made-her-a-national-sensation-dies-from-covid-19-at-35.html?searchResultPosition=6
-
 **2020 N.F.L. Playoff Picture for Week 17: Mapping All the Scenarios**\
 `Visualizing all the playoff possibilities.`\
-https://nytimes.com/interactive/2021/01/03/upshot/nfl-playoff-picture-week-17.html?searchResultPosition=7
+https://nytimes.com/interactive/2021/01/03/upshot/nfl-playoff-picture-week-17.html?searchResultPosition=6
 
 **‘A Slap in the Face’: The Pandemic Disrupts Young Oil Careers**\
 `Students and recent graduates struggle to get hired as the oil industry cuts tens of thousands of jobs, some of which may never come back.`\
-https://nytimes.com/2021/01/03/business/oil-industry-careers.html?searchResultPosition=8
+https://nytimes.com/2021/01/03/business/oil-industry-careers.html?searchResultPosition=7
 
 **A Covid-19 Relief Fund Was Only for Black Residents. Then Came the Lawsuits.**\
 `Oregon earmarked $62 million to explicitly benefit Black individuals and business owners. Now some of the money is in limbo after lawsuits alleging racial discrimination.`\
-https://nytimes.com/2021/01/03/us/oregon-cares-fund-lawsuit.html?searchResultPosition=9
+https://nytimes.com/2021/01/03/us/oregon-cares-fund-lawsuit.html?searchResultPosition=8
 
 **With Concessions and Deals, China’s Leader Tries to Box Out Biden**\
 `Xi Jinping has been making trade agreements in Asia and now Europe, hoping to head off the incoming president’s efforts to rally a united front against China.`\
-https://nytimes.com/2021/01/03/world/asia/china-eu-investment-biden.html?searchResultPosition=10
+https://nytimes.com/2021/01/03/world/asia/china-eu-investment-biden.html?searchResultPosition=9
+
+**Will You Pay to Stream Comfort Shows? Discovery Is About to Find Out**\
+`A cable-era way of watching TV comes to streaming with the debut of Discovery+, an on-demand platform with lots of nature shows and cooking programs.`\
+https://nytimes.com/2021/01/03/business/media/streaming-shows-discovery.html?searchResultPosition=10
 
