@@ -1,5 +1,5 @@
 **India Approves Oxford-AstraZeneca Covid-19 Vaccine and 1 Other**\
-`The move, coming days after Britain became the first country to approve the AstraZeneca shots for emergency use, begins a vast campaign to inoculate the hard-hit nation’s 1.3 billion people.`\
+`The approvals, which include a shot developed by Bharat Biotech, an Indian pharmaceutical company, begin a vast campaign to inoculate the hard-hit nation’s 1.3 billion people.`\
 https://nytimes.com/2021/01/03/world/asia/india-covid-19-vaccine.html?searchResultPosition=1
 
 **Gaze at the Night Skies and Unwind With a Yoga Class**\
