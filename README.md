@@ -1,4 +1,4 @@
-**Browns Are in, Ending N.F.L. Playoff Drought**\
+**Browns Are In, Ending N.F.L. Playoff Drought**\
 `Cleveland beat Pittsburgh on Sunday, qualifying for the playoffs for the first time since the 2002 season.`\
 https://nytimes.com/2021/01/03/sports/football/cleveland-browns-score-playoffs.html?searchResultPosition=1
 
