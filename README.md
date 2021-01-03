@@ -14,8 +14,8 @@ https://nytimes.com/2021/01/03/us/politics/georgia-senate-trump.html?searchResul
 `It’s another way to reach students without internet or computers during the pandemic.`\
 https://nytimes.com/2021/01/03/technology/teachers-on-tv.html?searchResultPosition=4
 
-**Scores of Civilians Are Dead After an Attack in Niger**\
-`As many as 100 men and boys were killed in a region under siege by militants, military officials say.`\
+**100 Civilians Are Reported Dead After Attacks in Niger**\
+`Gunmen were described as having singled out men and boys in two villages in a region under siege by militants.`\
 https://nytimes.com/2021/01/03/world/africa/niger-attack.html?searchResultPosition=5
 
 **The 117th Congress Convenes for the First Time**\
