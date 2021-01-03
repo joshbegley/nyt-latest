@@ -24,7 +24,7 @@ https://nytimes.com/2021/01/02/crosswords/daily-puzzle-2021-01-03.html?searchRes
 
 **The Los Angeles area is hit with a Christmas coronavirus surge.**\
 `By Bryan Pietsch`\
-https://nytimes.com/2021/01/02/world/the-los-angeles-area-is-hit-with-a-christmas-coronavirus-surge.html?searchResultPosition=7
+https://nytimes.com/2021/01/02/world/los-angeles-covid-coronavirus-surge.html?searchResultPosition=7
 
 **French Police Shut Down Illegal Rave**\
 `The police broke up a New Year’s party in Lieuron, France, that brazenly flouted the country’s coronavirus restrictions. About 2,500 people attended the 36-hour rave, held in two warehouses.`\
