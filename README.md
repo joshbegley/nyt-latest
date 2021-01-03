@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/03/nyregion/nyc-mayor-max-rose.html?searchResultPosi
 
 **Shirley Young, Businesswoman and Cultural Diplomat to China, Dies at 85**\
 `Breaking barriers she rose in the advertising industry before General Motors took her onboard. She later used classical music to forge closer ties between Americans and the Chinese.`\
-https://nytimes.com/2021/01/03/obituaries/shirley-young-businesswoman-and-cultural-diplomat-to-china-dies-at-85.html?searchResultPosition=2
+https://nytimes.com/2021/01/03/obituaries/shirley-young-dead.html?searchResultPosition=2
 
 **A Year of Scandals and Self-Questioning for France’s Top Publishers**\
 `The release of “Consent” put France’s literary establishment under a harsh spotlight. The publishing industry is grappling with a nation that it resembles less and less.`\
