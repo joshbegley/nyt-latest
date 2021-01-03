@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/03/us/coronavirus-vaccine-.html?searchResultPosition
 https://nytimes.com/interactive/2021/science/astronomy-space-calendar.html?searchResultPosition=3
 
 **9 Sisters at Upstate Convent Die as Outbreak Infects 47**\
-`The deaths at the St. Joseph’s Provincial House in Latham, N.Y., came as the virus surged in New York.`\
+`The deaths at the St. Joseph’s Provincial House outside Albany came as the virus surged in New York.`\
 https://nytimes.com/2021/01/03/nyregion/coronavirus-deaths-latham-convent.html?searchResultPosition=4
 
 **Something a Diva May Sing**\
