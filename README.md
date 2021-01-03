@@ -1,6 +1,6 @@
-**A teacher whose viral video made her a national sensation dies from Covid-19 at 35.**\
+**A teacher whose class video made her a national sensation dies from Covid-19 at 35.**\
 `By Giulia McDonnell Nieto del Rio`\
-https://nytimes.com/2021/01/03/world/a-teacher-whose-viral-video-made-her-a-national-sensation-dies-from-covid-19-at-35.html?searchResultPosition=1
+https://nytimes.com/2021/01/03/world/a-teacher-whose-class-video-made-her-a-national-sensation-dies-from-covid-19-at-35.html?searchResultPosition=1
 
 **2020 N.F.L. Playoff Picture for Week 17: Mapping All the Scenarios**\
 `Visualizing all the playoff possibilities.`\
