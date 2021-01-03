@@ -34,7 +34,7 @@ https://nytimes.com/2021/01/03/opinion/holocaust-covid-lockdown-pandemic.html?se
 `A Beltway school of journalism wants to get back to just-the-facts-ma’am reporting. But how do you cover this Republican Party?`\
 https://nytimes.com/2021/01/03/business/media/punchbowl-playbook-capitol-hill-politics.html?searchResultPosition=9
 
-**Georgia Politics Have Shifted. The Senate Races Will Show How Much.**\
+**Georgia Is Getting More Blue. The Senate Races Will Tell How Much.**\
 `A reliably red state for almost two decades, Georgia no longer resembles its Deep South neighbors. President Trump and Joe Biden head there Monday to help rally the bases.`\
 https://nytimes.com/2021/01/03/us/politics/georgia-senate-trump.html?searchResultPosition=10
 
