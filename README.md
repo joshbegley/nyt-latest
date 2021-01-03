@@ -26,7 +26,7 @@ https://nytimes.com/interactive/2021/01/03/upshot/nfl-playoff-picture-week-17.ht
 `Students and recent graduates struggle to get hired as the oil industry cuts tens of thousands of jobs, some of which may never come back.`\
 https://nytimes.com/2021/01/03/business/oil-industry-careers.html?searchResultPosition=7
 
-**A Covid-19 Relief Fund Was Only for Black Residents. Some Left Out Sued.**\
+**A Covid-19 Relief Fund Was Only for Black Residents. Then Came the Lawsuits.**\
 `Oregon earmarked $62 million to explicitly benefit Black individuals and business owners. Now some of the money is in limbo after lawsuits alleging racial discrimination.`\
 https://nytimes.com/2021/01/03/us/oregon-cares-fund-lawsuit.html?searchResultPosition=8
 
