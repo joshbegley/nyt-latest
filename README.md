@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/03/us/politics/georgia-senate-trump.html?searchResul
 https://nytimes.com/2021/01/03/technology/teachers-on-tv.html?searchResultPosition=3
 
 **Scores of Civilians Are Dead After an Attack in Niger**\
-`As many as 100 men and boys may were killed in a region under siege by militants, military officials say.`\
+`As many as 100 men and boys were killed in a region under siege by militants, military officials say.`\
 https://nytimes.com/2021/01/03/world/africa/niger-attack.html?searchResultPosition=4
 
 **The 117th Congress Convenes for the First Time**\
