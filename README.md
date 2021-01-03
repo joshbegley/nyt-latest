@@ -10,7 +10,7 @@ https://nytimes.com/2021/01/03/us/coronavirus-vaccine-.html?searchResultPosition
 `Never miss an eclipse, a meteor shower, a rocket launch or any other astronomical and space event that's out of this world.`\
 https://nytimes.com/interactive/2021/science/astronomy-space-calendar.html?searchResultPosition=3
 
-**9 Sisters at Upstate Convent Die as Covid Outbreak Infects 47**\
+**9 Sisters at Upstate Convent Die as Outbreak Infects 47**\
 `The deaths at the St. Joseph’s Provincial House in Latham, N.Y., came as the virus surged in New York.`\
 https://nytimes.com/2021/01/03/nyregion/coronavirus-deaths-latham-convent.html?searchResultPosition=4
 
