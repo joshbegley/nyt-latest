@@ -2,9 +2,9 @@
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2021/01/04/briefing/georgia-vaccine-uk-lockdown.html?searchResultPosition=1
 
-**Pharmacist Accused of Tampering With Vaccine Was ‘Admitted Conspiracy Theorist,’ Police Say**\
+**Pharmacist Accused of Tampering With Vaccine Was Conspiracy Theorist, Police Say**\
 `The police say a Wisconsin pharmacist believed the Moderna vaccine would harm people and tried to sabotage the effort to vaccinate frontline workers.`\
-https://nytimes.com/2021/01/04/us/pharmacist-accused-of-tampering-with-vaccine-was-admitted-conspiracy-theorist-police-say.html?searchResultPosition=2
+https://nytimes.com/2021/01/04/us/pharmacist-accused-of-tampering-with-vaccine-was-conspiracy-theorist-police-say.html?searchResultPosition=2
 
 **Share Your College Essays**\
 `Class of 2024: It’s been a year like never before. How did you write about it?`\
