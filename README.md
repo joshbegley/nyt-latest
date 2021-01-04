@@ -1,5 +1,5 @@
 **Britain Braces for a Dark Winter as Covid Variant Spreads**\
-`Scotland has declared a national lockdown and, as Prime Minister Boris Johnson addresses the nation Monday night, England May Soon Follow.`\
+`Scotland has declared a national lockdown and, as Prime Minister Boris Johnson addresses the nation Monday night, England may soon follow.`\
 https://nytimes.com/2021/01/04/world/europe/britain-braces-for-a-dark-winter-as-covid-variant-spreads.html?searchResultPosition=1
 
 **‘We Need to Reach Many More People,’ de Blasio Says**\
