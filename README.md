@@ -14,8 +14,8 @@ https://nytimes.com/2021/01/03/pageoneplus/corrections-jan-4-2021.html?searchRes
 `The acting defense secretary abruptly reversed his previous order to redeploy the Nimitz, which he had done over the objections of his top military advisers.`\
 https://nytimes.com/2021/01/03/world/middleeast/trump-iran-carrier-nimitz.html?searchResultPosition=4
 
-**Your Monday Briefing**\
-`Boris Johnson warns of more pain to come.`\
+**Britain, Trump, Covid-19: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2021/01/03/briefing/coronavirus-trump-russia.html?searchResultPosition=5
 
 **Highlights of Trump’s Call With the Georgia Secretary of State**\
