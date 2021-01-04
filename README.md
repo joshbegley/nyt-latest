@@ -31,7 +31,7 @@ https://nytimes.com/2021/01/04/briefing/trump-election-raffensperger-julian-assa
 https://nytimes.com/2021/01/04/opinion/google-union.html?searchResultPosition=8
 
 **U.K. Judge Blocks Assange’s Extradition to U.S., Citing Mental Health Concerns**\
-`The WikiLeaks founder, who is currently jailed in Britain, had been indicted in the United States on 17 charges of violating the Espionage Act.`\
+`U.S. officials want the WikiLeaks founder to face charges of violating the Espionage Act. But a judge in London ruled that he was at extreme risk of suicide.`\
 https://nytimes.com/2021/01/04/world/europe/assange-extradition-denied.html?searchResultPosition=9
 
 **Hundreds of Google Employees Unionize, Culminating Years of Activism**\
