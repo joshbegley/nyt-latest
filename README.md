@@ -14,8 +14,8 @@ https://nytimes.com/2021/01/04/movies/rudolphs-shiny-new-year.html?searchResultP
 `Readers applaud the opening of the Moynihan Train Hall. Also: Flavored Oreos.`\
 https://nytimes.com/2021/01/04/opinion/letters/penn-station-new-york-city.html?searchResultPosition=4
 
-**The Cut Find Its New Top Editor at Teen Vogue**\
-`Lindsay Peoples Wagner will leave her job as the editorial leader of the Condé Nast publication to take over New York Media’s style and culture site.`\
+**The Cut Finds Its New Top Editor at Teen Vogue**\
+`Lindsay Peoples Wagner will leave her job as the editorial leader of the Condé Nast publication to take over New York Magazine’s style and culture site.`\
 https://nytimes.com/2021/01/04/business/media/the-cut-editor-lindsay-peoples-wagner.html?searchResultPosition=5
 
 **Lesson of the Day: ‘Trump, in Taped Call, Pressured Georgia Official to “Find” Votes to Overturn Election’**\
