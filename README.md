@@ -2,7 +2,7 @@
 `Our company’s motto used to be “Don’t be evil.” An organized work force will help us live up to it.`\
 https://nytimes.com/2021/01/04/opinion/google-union.html?searchResultPosition=1
 
-**Assange Can’t Be Extradited to U.S. to Face Espionage Charges, U.K. Judge Rules**\
+**U.K. Judge Blocks Assange’s Extradition to U.S., Citing Mental Health Concerns**\
 `The WikiLeaks founder, who is currently jailed in Britain, had been indicted in the United States on 17 charges of violating the Espionage Act.`\
 https://nytimes.com/2021/01/04/world/europe/assange-extradition-denied.html?searchResultPosition=2
 
