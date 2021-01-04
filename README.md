@@ -15,8 +15,8 @@ https://nytimes.com/2021/01/03/us/politics/trump-georgia-call-excerpts.html?sear
 https://nytimes.com/2021/01/03/us/politics/biden-inauguration-day-plans.html?searchResultPosition=4
 
 **Listen to Excerpts From the President’s Call**\
-`President Trump demanded that Georgia’s secretary of state overturn the state’s election results.`\
-https://nytimes.com/video/homepage/100000007531767/listen-to-excerpts-from-the-presidents-call.html?searchResultPosition=5
+`The president pressured Georgia’s secretary of state to overturn the state’s election results.`\
+https://nytimes.com/video/homepage/listen-to-excerpts-from-the-presidents-call.html?searchResultPosition=5
 
 **What We Learned From Week 17 of the N.F.L. Season**\
 `Green Bay secured home-field advantage, Buffalo ended Miami’s season and Cleveland ended its 17-season playoff drought.`\
