@@ -27,7 +27,7 @@ https://nytimes.com/2021/01/03/us/politics/trump-georgia-call-excerpts.html?sear
 https://nytimes.com/2021/01/03/us/politics/biden-inauguration-day-plans.html?searchResultPosition=7
 
 **Listen to Excerpts From the President’s Call**\
-`The president pressured Georgia’s secretary of state to overturn the state’s election results.`\
+`President Trump pressured Georgia’s secretary of state to overturn the state’s election results.`\
 https://nytimes.com/video/homepage/listen-to-excerpts-from-the-presidents-call.html?searchResultPosition=8
 
 **What We Learned From Week 17 of the N.F.L. Season**\
