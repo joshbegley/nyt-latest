@@ -36,5 +36,5 @@ https://nytimes.com/2021/01/04/sports/basketball/stephen-curry-62-points.html?se
 
 **Iran Increases Uranium Enrichment at Key Nuclear Facility**\
 `The move is another step toward producing a nuclear weapon. Iran, in another provocation, also seized a South Korean vessel.`\
-https://nytimes.com/2021/01/04/world/middleeast/iran-increases-uranium-enrichment.html?searchResultPosition=10
+https://nytimes.com/2021/01/04/world/middleeast/iran-nuclear-uranium-enrichment.html?searchResultPosition=10
 
