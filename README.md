@@ -22,19 +22,19 @@ https://nytimes.com/2021/01/04/world/middleeast/iraq-economy-debt-oil.html?searc
 `Some work spaces in central employment districts may become housing, and some housing in residential areas may become work spaces.`\
 https://nytimes.com/2021/01/04/upshot/future-offices-worker-choice.html?searchResultPosition=6
 
-**Phone Calls, Texts and Tinder — Georgia Campaigns Court Young Voters**\
-`As vast resources and hundreds of millions of dollars have been pumped into Georgia for the Senate runoffs, few groups have been as vigorously pursued as the state’s young voters.`\
-https://nytimes.com/2021/01/04/us/georgia-runoff-young-voters.html?searchResultPosition=7
-
 **Is It Too Late to Impeach Trump Again?**\
 `The president showed this weekend that he still has Georgia on his mind.`\
-https://nytimes.com/2021/01/04/opinion/trump-georgia-phone-call.html?searchResultPosition=8
+https://nytimes.com/2021/01/04/opinion/trump-georgia-phone-call.html?searchResultPosition=7
+
+**Phone Calls, Texts and Tinder — Georgia Campaigns Court Young Voters**\
+`As vast resources and hundreds of millions of dollars have been pumped into Georgia for the Senate runoffs, few groups have been as vigorously pursued as the state’s young voters.`\
+https://nytimes.com/2021/01/04/us/georgia-runoff-young-voters.html?searchResultPosition=8
 
 **Why Should China Make Everything?**\
 `The United States can bring manufacturing back — which will bring back good jobs and protect national interests.`\
 https://nytimes.com/2021/01/04/opinion/manufacturing-united-states-masks.html?searchResultPosition=9
 
-**Co-living in a Brooklyn Townhouse**\
-`A two-room suite in a Park Slope brownstone provides a nice middle ground between living with roommates and all alone.`\
-https://nytimes.com/2021/01/04/realestate/brooklyn-rental-park-slope.html?searchResultPosition=10
+**What’s Next in Your Netflix Queue?**\
+`Bela Bajaria decides.`\
+https://nytimes.com/2021/01/04/opinion/sway-kara-swisher-bela-bajaria.html?searchResultPosition=10
 
