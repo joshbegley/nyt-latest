@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/04/us/politics/election-trump-biden.html?searchResul
 `And what else you need to know today.`\
 https://nytimes.com/2021/01/04/briefing/trump-election-raffensperger-julian-assange-costume.html?searchResultPosition=6
 
-**We’re Google Workers, and We Are Forming a Union**\
+**We Built Google. This Is Not the Company We Want to Work For.**\
 `Our company’s motto used to be “Don’t be evil.” An organized work force will help us live up to it.`\
 https://nytimes.com/2021/01/04/opinion/google-union.html?searchResultPosition=7
 
