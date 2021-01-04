@@ -2,8 +2,8 @@
 `Seven bodies have been recovered following the disaster last week in a village north of Oslo. Three people are still missing.`\
 https://nytimes.com/2021/01/04/world/europe/rescuers-search-for-survivors-in-norway-landslide-that-killed-at-least-7.html?searchResultPosition=1
 
-**Slack Disruption Affects Workers Returning After Holiday**\
-`Calling the problems in service an “incident,” the communication company Slack said it was investigating and trying to resolve the issue.`\
+**Slack Starts 2021 With Outage**\
+`Calling the problems in service an “incident,” the communication company said it was investigating and trying to resolve the issue, which caused disruptions for users as they returned to work after the holidays.`\
 https://nytimes.com/2021/01/04/technology/slack-down-outage.html?searchResultPosition=2
 
 **Without Tourism, Life in a Tuscan Village Slides Back in Time**\
