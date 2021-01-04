@@ -1,5 +1,5 @@
-**Jaguars Fire Doug Marrone After 1-15 Season**\
-`Marrone’s departure in Jacksonville came hours after the Jets fired Adam Gase. But Black Monday may not be as dark as usual this year.`\
+**N.F.L. Firings: Jaguars’ Marrone and Jets’ Gase Are Out**\
+`Doug Marrone’s departure in Jacksonville came hours after the Jets fired Adam Gase. But Black Monday may not be as dark as usual this year.`\
 https://nytimes.com/2021/01/04/sports/football/NFL-coaches-fired.html?searchResultPosition=1
 
 **‘A Time of Extraordinary Difficulty’: Pelosi Addresses Congress**\
