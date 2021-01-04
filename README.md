@@ -1,5 +1,5 @@
 **Listen to Excerpts From the President’s Call**\
-`Trump demanded that the Georgia secretary of state overturn the election.`\
+`President Trump demanded that Georgia’s secretary of state overturn the state’s election results.`\
 https://nytimes.com/video/homepage/100000007531767/listen-to-excerpts-from-the-presidents-call.html?searchResultPosition=1
 
 **What We Learned From Week 17 of the N.F.L. Season**\
