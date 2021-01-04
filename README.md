@@ -19,7 +19,7 @@ https://nytimes.com/2021/01/03/opinion/trump-voter-suppression.html?searchResult
 https://nytimes.com/2021/01/03/us/politics/biden-russia-iran.html?searchResultPosition=5
 
 **Democrats Rush to Turn Out Black Voters in Georgia, Looking Beyond Atlanta**\
-`In events from Macon to Savannah over the weekend, the Democratic challengers, Jon Ossoff and the Rev. Raphael Warnock, tried to encourage election-day turnout on the left.`\
+`Rallying voters across the state over the weekend, the Democratic challengers, Jon Ossoff and the Rev. Raphael Warnock, tried to encourage election-day turnout on the left.`\
 https://nytimes.com/2021/01/03/us/politics/georgia-senate-races-democrats.html?searchResultPosition=6
 
 **Giants Bumble Their Way Into a Win to Retain Playoff Hopes**\
