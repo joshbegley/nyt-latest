@@ -2,7 +2,7 @@
 `Corrections that appeared in print on Monday, Jan. 4, 2021.`\
 https://nytimes.com/2021/01/03/pageoneplus/corrections-jan-4-2021.html?searchResultPosition=1
 
-**In Reversal, Pentagon Announces Aircraft Carrier Nimitz to Remain in the Middle East**\
+**In Reversal, Pentagon Announces Aircraft Carrier Nimitz to Remain in Middle East**\
 `The acting defense secretary abruptly reversed his previous order to redeploy the Nimitz, which he had done over the objections of his top military advisers.`\
 https://nytimes.com/2021/01/03/world/middleeast/trump-iran-carrier-nimitz.html?searchResultPosition=2
 
