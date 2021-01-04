@@ -27,7 +27,7 @@ https://nytimes.com/2021/01/04/world/asia/china-hong-kong-lu-siwei-ren-quanniu.h
 https://nytimes.com/2021/01/04/sports/basketball/stephen-curry-62-points.html?searchResultPosition=7
 
 **Iran Increases Uranium Enrichment at Key Nuclear Facility**\
-`The move is another step toward producing a nuclear weapon at a time of heightened tensions with the United States. Iran also seized a South Korean vessel.`\
+`The move is another step toward producing a nuclear weapon. Iran, in another provocation, also seized a South Korean vessel.`\
 https://nytimes.com/2021/01/04/world/middleeast/iran-increases-uranium-enrichment.html?searchResultPosition=8
 
 **The Cost of Fighting the Count**\
