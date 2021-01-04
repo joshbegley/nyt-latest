@@ -15,7 +15,7 @@ https://nytimes.com/2021/01/04/world/asia/china-hong-kong-lu-siwei-ren-quanniu.h
 https://nytimes.com/2021/01/04/sports/basketball/stephen-curry-62-points.html?searchResultPosition=4
 
 **Iran Increases Uranium Enrichment at Key Nuclear Facility**\
-`The decision to resume enriching uranium to 20 percent could bring the country closer to the capacity to produce a nuclear weapon.`\
+`The move is another step toward producing a nuclear weapon at a time of heightened tensions with the United States.`\
 https://nytimes.com/2021/01/04/world/middleeast/iran-increases-uranium-enrichment.html?searchResultPosition=5
 
 **The Cost of Fighting the Count**\
