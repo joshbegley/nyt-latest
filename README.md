@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/04/business/haven-amazon-berkshire-hathaway-jpmorgan
 `For the first time on record, the number of newborns in South Korea last year fell below the number of deaths, underscoring a long-term crisis in one of world’s most important economies`\
 https://nytimes.com/2021/01/04/world/asia/south-korea-population.html?searchResultPosition=6
 
-**Britain Will Re-Enter Lockdown as Coronavirus Variant Rages**\
+**It’s Back to Lockdown for Britain as Cases Soar**\
 `Prime Minister Boris Johnson of Britain announced on Monday a strict new national lockdown after the fast-spreading variant of the coronavirus escalated case numbers and was on track to overwhelm the nation’s beleaguered hospitals.`\
 https://nytimes.com/video/world/europe/100000007532948/boris-united-kingdom-coronvirus-variant-shutdown.html?searchResultPosition=7
 
