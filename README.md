@@ -16,7 +16,7 @@ https://nytimes.com/paidpost/traditional-medicinals/how-can-plants-help-us-relax
 https://nytimes.com/2021/01/04/world/europe/rescuers-search-for-survivors-in-norway-landslide-that-killed-at-least-7.html?searchResultPosition=4
 
 **Slack Starts 2021 With Outage**\
-`Calling the problems in service an “incident,” the communication company said it was investigating and trying to resolve the issue, which caused disruptions for users as they returned to work after the holidays.`\
+`The company said it was investigating and trying to resolve the issue, which caused disruptions for users as they returned to work after the holidays.`\
 https://nytimes.com/2021/01/04/technology/slack-down-outage.html?searchResultPosition=5
 
 **Without Tourism, Life in a Tuscan Village Slides Back in Time**\
