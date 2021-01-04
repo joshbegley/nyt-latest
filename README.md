@@ -1,4 +1,4 @@
-**Full Transcript: President Trump’s Phone Call With Georgia Election Officials**\
+**Transcript: President Trump’s Phone Call With Georgia Election Officials**\
 `The president pressured Secretary of State Brad Raffensperger to overturn the results of the election in an hourlong phone conversation. Here is a transcript of the audio recording.`\
 https://nytimes.com/2021/01/03/us/politics/trump-raffensperger-georgia-call-transcript.html?searchResultPosition=1
 
