@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/04/business/media/04economy-briefing-quibi-sale-cont
 
 **Growing Crisis Over Vaccine Rollout in N.Y. as Deaths Rise in 2nd Wave**\
 `The sluggish pace of vaccinations has been particularly striking in New York City, the onetime epicenter of the pandemic.`\
-https://nytimes.com/2021/01/04/nyregion/vaccine-covid-cuomo-ny.html?searchResultPosition=5
+https://nytimes.com/2021/01/04/nyregion/coronavirus-vaccine-rollout.html?searchResultPosition=5
 
 **‘I’m Being Aggressive,’ Cuomo Says of New York State Vaccinations**\
 `On Monday, Gov. Andrew M. Cuomo of New York threatened to fine hospitals if they don’t increase the pace of coronavirus vaccinations.`\
