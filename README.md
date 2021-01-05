@@ -1,6 +1,6 @@
 **A Georgia election official debunked Trump’s claims of voter fraud, point by point.**\
 `Here are the explanations from the official, Gabriel Sterling, that rebut more than a dozen of the president’s false assertions.`\
-https://nytimes.com/2021/01/04/technology/trump-georgia-election-fraud.html?searchResultPosition=1
+https://nytimes.com/2021/01/04/us/politics/trump-georgia-election-fraud.html?searchResultPosition=1
 
 **Remembering the Stately Dinners of a Private Club**\
 `“Art at the Table” celebrates more than a century of dinners at the Lotos Club in New York.`\
