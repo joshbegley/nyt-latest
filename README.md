@@ -1,6 +1,6 @@
 **How the Republican Party Went Feral**\
 `Democracy is now threatened by malevolent tribalism.`\
-https://nytimes.com/2021/01/04/opinion/how-the-republican-party-went-feral.html?searchResultPosition=1
+https://nytimes.com/2021/01/04/opinion/trump-republican-party.html?searchResultPosition=1
 
 **Meet the Puzzle Makers of New York Times Games**\
 `Noca Wu makes puzzles for Vertex.`\
