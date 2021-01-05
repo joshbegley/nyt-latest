@@ -34,7 +34,7 @@ https://nytimes.com/2021/01/04/dining/lotos-club-book.html?searchResultPosition=
 `The chef Abel Álvarez’s Conservas Braseadas Güeyumar seafood line features grilled cockles, razor clams and tuna neck, among others.`\
 https://nytimes.com/2021/01/04/dining/spanish-tinned-seafood.html?searchResultPosition=9
 
-**Your Tuesday Briefing**\
-`Boris Johnson imposes broad new restrictions.`\
+**Britain, Trump, Coronavirus: Your Tuesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2021/01/04/briefing/britain-covid-19-trump.html?searchResultPosition=10
 
