@@ -1,40 +1,40 @@
-**It Spied on Soviet Atomic Bombs. Now It’s Solving Ecological Mysteries.**\
-`Imagery from the Cold War’s Corona satellites is helping scientists fill in how we have changed our planet in the past half century.`\
-https://nytimes.com/2021/01/05/science/corona-satellites-environment.html?searchResultPosition=1
+**Are We the Cows of the Future?**\
+`The pastures of digital dictatorship — crowded conditions, mass surveillance, virtual reality — are already here.`\
+https://nytimes.com/2021/01/05/opinion/tech-nature-freedom.html?searchResultPosition=1
 
-**More and Less**\
-`What do you want more of in 2021? Less of? Why?`\
-https://nytimes.com/2021/01/05/learning/more-and-less.html?searchResultPosition=2
+**From Toxic Chefs to Covid, Restaurant Workers Deserve Better**\
+`A former Momofuku employee’s account of a rage-fueled workplace is an all-too-familiar story. But it raises questions about how we treat restaurant staffs in the Covid era.`\
+https://nytimes.com/2021/01/05/dining/restaurant-workers-ndas-david-chang.html?searchResultPosition=2
 
-**Inside the C.I.A., She Became a Spy for Planet Earth**\
-`Linda Zall is disclosing how she toiled anonymously within the intelligence agency to help scientists intensify their studies of a changing planet.`\
-https://nytimes.com/2021/01/05/science/linda-zall-cia.html?searchResultPosition=3
+**It’s Time for a Better TV Room**\
+`Admit it: You’re spending a lot of time with the TV. And the room where you’re binge-watching could be more comfortable.`\
+https://nytimes.com/2021/01/05/realestate/designing-comfortable-tv-room.html?searchResultPosition=3
 
-**Late Night Returns in Time for Another Perfect Trump Call**\
-`Just as the hosts’ holiday break was ending, President Trump asked Georgia’s secretary of state to “find” some more votes for him.`\
-https://nytimes.com/2021/01/05/arts/television/late-night-trump-georgia-call-colbert.html?searchResultPosition=4
+**Three Generations. One Georgia Family. A Split Vote.**\
+`Leading up to the state’s U.S. Senate runoffs, the Gamel family shared their thoughts on voting and the current political climate.`\
+https://nytimes.com/2021/01/05/opinion/georgia-senate-runoffs-family-vote.html?searchResultPosition=4
 
-**Word + Quiz: bellicose**\
-`This word has appeared in 72 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/01/05/learning/word-quiz-bellicose.html?searchResultPosition=5
+**How to Pretend You’re in Cartagena Today**\
+`The Colombian port city, home to the trademark sounds and dances of the region, is so full of magic that it has inspired entire books by Gabriel García Márquez.`\
+https://nytimes.com/2021/01/05/travel/vacation-cartagena-colombia-at-home.html?searchResultPosition=5
 
-**New York Real Estate Begins Its Recovery**\
-`Real estate sales picked up in the final months of 2019, but not enough to make up for the shutdown in the early months of the pandemic.`\
-https://nytimes.com/2021/01/05/realestate/new-york-real-estate-recovery.html?searchResultPosition=6
+**Igloos and Iceless Curling: How New York Hopes to Fight Off a Grim Winter**\
+`The threat of the virus has transformed outdoor spaces that would normally sit empty during cold-weather months — though some options are priced beyond the reach of many New Yorkers.`\
+https://nytimes.com/2021/01/05/nyregion/nyc-covid-outside-activities.html?searchResultPosition=6
 
-**How to Follow the Georgia Senate Runoffs**\
-`The New York Times will provide live coverage of two races in Georgia that will determine control of the Senate.`\
-https://nytimes.com/2021/01/05/us/politics/polls-close-georgia-voting-long-lines.html?searchResultPosition=7
+**Georgia Senate Runoffs: What to Watch For**\
+`Control of the Senate is at stake. The candidates have shattered spending records. President Trump hovers over the two contests. Here is what we’re keeping an eye on as voters head to the polls.`\
+https://nytimes.com/2021/01/05/us/politics/georgia-senate-election-runoff-guide.html?searchResultPosition=7
 
-**Let the Carbs Come to You**\
-`Bread Basket is a new subscription service, offering assortments of breads and cookies from local bakeries.`\
-https://nytimes.com/2021/01/04/dining/bread-basket-nyc.html?searchResultPosition=8
+**Why the Fight Over Parking in New York Is ‘Like the Hunger Games’**\
+`Since the pandemic hit, car ownership has soared, stoking tensions over parking spots. Advocacy groups for mass transit don’t have much sympathy.`\
+https://nytimes.com/2021/01/05/nyregion/nyc-residential-parking.html?searchResultPosition=8
 
-**Cheerful Plates to Brighten Dark Nights**\
-`A new line of citrus plates from Williams Sonoma brings sunshine to the dinner table.`\
-https://nytimes.com/2021/01/04/dining/citrus-glass.html?searchResultPosition=9
+**Is Peru Ungovernable?**\
+`Peruvians need firm democratic convictions to avoid being fooled by authoritarian demagogues.`\
+https://nytimes.com/2021/01/05/opinion/is-peru-ungovernable.html?searchResultPosition=9
 
-**From Brooklyn, an Assertive Fernet and a Complex Aperitivo**\
-`Faccia Brutto, a spirits company from the chef Patrick Miller, makes Italian-style spirits in Bedford-Stuyvesant.`\
-https://nytimes.com/2021/01/04/dining/faccia-brutto.html?searchResultPosition=10
+**What Republicans Might Gain if They Lose Georgia**\
+`They have survived Trump for the last four years. But disentangling from him might get easier if his latest sabotage succeeds.`\
+https://nytimes.com/2021/01/05/opinion/trump-georgia-senate-election.html?searchResultPosition=10
 
