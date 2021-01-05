@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/05/us/politics/trump-georgia-race.html?searchResultPosition=1
 
 **‘This Vote Matters More Than Anything’: Ballots Are Cast in High-Stakes Runoffs**\
-`The stakes were clear: Theis vote could help set the country’s direction for the next two years. Some wanted a Senate that would back Joe Biden. Others sought a “balance of power.”`\
+`The stakes were clear: This vote could help set the country’s direction for the next two years. Some wanted a Senate that would back Joe Biden. Others sought a “balance of power.”`\
 https://nytimes.com/2021/01/05/us/politics/georgia-runoff-election-voters.html?searchResultPosition=2
 
 **Republicans Plan to Force at Least Three Votes to Invalidate Biden’s Election**\
