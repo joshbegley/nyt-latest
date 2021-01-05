@@ -14,11 +14,11 @@ https://nytimes.com/interactive/2021/01/05/us/elections/results-georgia-runoffs.
 `Modeling the Senate runoff election results.`\
 https://nytimes.com/interactive/2021/01/05/us/elections/forecast-georgia-senate-runoff.html?searchResultPosition=4
 
-**Georgia Runoff Election Results: Loeffler vs. Warnock**\
+**Georgia Runoff Results: Loeffler vs. Warnock**\
 `See full results and maps from the Georgia Senate runoff special election.`\
 https://nytimes.com/interactive/2021/01/05/us/elections/results-georgia-senate-runoff-loeffler-warnock.html?searchResultPosition=5
 
-**Georgia Runoff Election Results: Perdue vs. Ossoff**\
+**Georgia Runoff Results: Perdue vs. Ossoff**\
 `See full results and maps from the Georgia Senate runoff election.`\
 https://nytimes.com/interactive/2021/01/05/us/elections/results-georgia-senate-runoff-perdue-ossoff.html?searchResultPosition=6
 
