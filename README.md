@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/05/business/mental-health-facilities-design.html?sea
 `Recent commercial real estate transactions in New York.`\
 https://nytimes.com/2021/01/05/business/new-york-commercial-real-estate.html?searchResultPosition=6
 
-**In a Breakthrough, Gulf States Agree to Ease Relations With Qatar**\
+**Gulf States Agree to Ease Relations With Qatar**\
 `The small Arab nation has been under a blockade by air, land and sea since 2017, when neighboring nations accused it of supporting terrorism and aligning too closely with Iran.`\
 https://nytimes.com/2021/01/05/world/middleeast/gulf-qatar-blockade.html?searchResultPosition=7
 
