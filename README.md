@@ -32,7 +32,7 @@ https://nytimes.com/2021/01/04/us/politics/pence-trump-election-congress.html?se
 
 **Leader of Proud Boys, a Far-Right Group, Is Arrested as D.C. Braces for Protests**\
 `About 340 National Guard troops are expected to deploy in support of local law enforcement before demonstrations against the election results.`\
-https://nytimes.com/2021/01/04/us/politics/protests-election-national-guard-washington.html?searchResultPosition=9
+https://nytimes.com/2021/01/04/us/politics/enrique-tarrio-proud-boys.html?searchResultPosition=9
 
 **Trump Lawyer on Call Is a Conservative Firebrand Aiding His Push to Overturn Election**\
 `Cleta Mitchell had been quietly helping President Trump’s attempt to subvert the election results when the recording of him pressuring Georgia elections officials was revealed.`\
