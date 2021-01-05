@@ -1,5 +1,5 @@
 **Grammy Awards Postponed as Covid-19 Rages in Los Angeles**\
-`The 63rd annual ceremony was set for Jan. 31, and will now likely take place in March.`\
+`The delay comes less than four weeks before the ceremony was to be held, on Jan. 31.`\
 https://nytimes.com/2021/01/05/arts/music/grammys-postponed-covid-19.html?searchResultPosition=1
 
 **Prepping for the Apocalypse, the Biblical Way**\
