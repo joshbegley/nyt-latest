@@ -7,7 +7,7 @@ https://nytimes.com/2021/01/05/climate/trump-migratory-bird-protections.html?sea
 https://nytimes.com/2021/01/05/business/gm-2020-auto-sales.html?searchResultPosition=2
 
 **The New York Post names British tabloid deputy as its new top editor.**\
-`By Katie Robertson`\
+`Keith Poole, the deputy editor in chief of The Sun, will become editor in chief of The New York Post Group, which encompasses the print newspaper and related websites.`\
 https://nytimes.com/2021/01/05/business/media/new-york-post-editor-in-chief.html?searchResultPosition=3
 
 **5 Tech Tools That Can Enhance Your Wedding Day**\
