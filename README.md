@@ -20,7 +20,7 @@ https://nytimes.com/2021/01/04/us/politics/josh-hawley-republican-party.html?sea
 
 **As Georgians Prepare to Vote, Trump Interference Draws Rebuke**\
 `A top election official condemned President Trump’s baseless attacks on voting integrity, as the president and Joe Biden rallied support for their candidates in the crucial Senate runoffs.`\
-https://nytimes.com/2021/01/04/us/politics/georgia-senate-runoffs-trump.html?searchResultPosition=6
+https://nytimes.com/2021/01/04/us/politics/georgia-voters-trump.html?searchResultPosition=6
 
 **Lee Breuer, Adventurous Theater Director, Dies at 83**\
 `One of the founders of Mabou Mines, he reveled in being an outsider even when his celebrated “The Gospel at Colonus” reached Broadway.`\
