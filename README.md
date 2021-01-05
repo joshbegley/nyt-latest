@@ -32,7 +32,7 @@ https://nytimes.com/2021/01/04/opinion/trump-georgia-call.html?searchResultPosit
 
 **Pence’s Choice: Side With the Constitution or His Boss**\
 `The vice president will preside on Wednesday when Congress convenes to ratify Joe Biden’s victory. President Trump still seems to hold out hope that his loyal No. 2 could change the outcome.`\
-https://nytimes.com/2021/01/04/us/politics/pence-trump-election-congress.html?searchResultPosition=9
+https://nytimes.com/2021/01/04/us/politics/pence-trump.html?searchResultPosition=9
 
 **Leader of Proud Boys, a Far-Right Group, Is Arrested as D.C. Braces for Protests**\
 `About 340 National Guard troops are expected to deploy in support of local law enforcement before demonstrations against the election results.`\
