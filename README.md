@@ -30,11 +30,11 @@ https://nytimes.com/2021/01/05/nyregion/nyc-covid-outside-activities.html?search
 `Control of the Senate is at stake. The candidates have shattered spending records. President Trump hovers over the two contests. Here is what we’re keeping an eye on as voters head to the polls.`\
 https://nytimes.com/2021/01/05/us/politics/georgia-senate-election-runoff-guide.html?searchResultPosition=8
 
+**What Republicans Might Gain if They Lose Georgia**\
+`They have survived Trump for the last four years. But disentangling from him might get easier if his latest sabotage succeeds.`\
+https://nytimes.com/2021/01/05/opinion/trump-georgia-senate-election.html?searchResultPosition=9
+
 **Why the Fight Over Parking in New York Is ‘Like the Hunger Games’**\
 `Since the pandemic hit, car ownership has soared, stoking tensions over parking spots. Advocacy groups for mass transit don’t have much sympathy.`\
-https://nytimes.com/2021/01/05/nyregion/nyc-residential-parking.html?searchResultPosition=9
-
-**Is Peru Ungovernable?**\
-`Peruvians need firm democratic convictions to avoid being fooled by authoritarian demagogues.`\
-https://nytimes.com/2021/01/05/opinion/is-peru-ungovernable.html?searchResultPosition=10
+https://nytimes.com/2021/01/05/nyregion/nyc-residential-parking.html?searchResultPosition=10
 
