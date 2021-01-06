@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/05/sports/ncaafootball/heisman-trophy.html?searchRes
 
 **As the coronavirus rages in California, L.A. medics are told to ration oxygen.**\
 `By Anushka Patil`\
-https://nytimes.com/2021/01/05/world/as-the-coronavirus-rages-in-california-la-medics-are-told-to-ration-oxygen.html?searchResultPosition=4
+https://nytimes.com/2021/01/05/world/california-covid-oxygen-coronavirus.html?searchResultPosition=4
 
 **Utah Man Who Looked for Treasure Pleads Guilty to Digging in National Park**\
 `Rodrick Dow Craythorn, 52, pleaded guilty to causing more than $1,000 worth of damages in his quest to find Forrest Fenn’s treasure, prosecutors said.`\
