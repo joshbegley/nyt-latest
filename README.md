@@ -22,8 +22,8 @@ https://nytimes.com/2021/01/05/us/politics/stacey-abrams-georgia.html?searchResu
 `An emerging #MeToo movement and public horror over “honor killings” helped spur the government’s bill, but it still must be adopted by the conservative parliament.`\
 https://nytimes.com/2021/01/05/world/middleeast/iran-sexual-violence-metoo-women.html?searchResultPosition=6
 
-**Turnout Is Crucial as Georgians Chart the Course of the Senate**\
-`The runoff elections will determine which party controls the Senate and measure just how much politics have changed in a Deep South state in transition.`\
+**Warnock Beats Loeffler in Georgia Senate Race**\
+`The victory is a landmark breakthrough for African-Americans in politics. Mr. Warnock becomes the first Black Democrat to be elected to the Senate from the South.`\
 https://nytimes.com/2021/01/05/us/politics/georgia-election-result.html?searchResultPosition=7
 
 **High turnout among Black voters has lifted the Democratic Senate candidates in Georgia.**\
