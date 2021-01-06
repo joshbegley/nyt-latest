@@ -18,7 +18,7 @@ https://nytimes.com/2021/01/06/opinion/georgia-senate-election.html?searchResult
 `The success of a computer chip maker points to a path for companies like Google and Facebook.`\
 https://nytimes.com/2021/01/06/technology/lessons-from-qualcomm.html?searchResultPosition=5
 
-**Biden Said to Pick Merrick Garland, Blocked by G.O.P. From High Court, as Attorney General**\
+**Biden Said to Pick Merrick Garland as Attorney General**\
 `The choice of a judge is unusual and may reflect an effort by the president-elect to bring in an apolitical leader to bolster the Justice Department’s independence from politics.`\
 https://nytimes.com/2021/01/06/us/politics/merrick-garland-attorney-general.html?searchResultPosition=6
 
