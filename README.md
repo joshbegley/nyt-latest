@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/06/arts/dance/sunil-kothari-dead.html?searchResultPo
 
 **Georgia’s governor condemns the pro-Trump mob that invaded the Capitol as ‘un-American.’**\
 `By Richard Fausset`\
-https://nytimes.com/2021/01/06/us/politics/georgias-governor-condemns-the-pro-trump-mob-that-invaded-the-capitol-as-un-american.html?searchResultPosition=4
+https://nytimes.com/live/2021/01/06/us/georgia-election-results/georgias-governor-condemns-the-pro-trump-mob-that-invaded-the-capitol-as-un-american?searchResultPosition=4
 
 **Violence on Capitol Hill Is a Day of Reckoning for Social Media**\
 `Critics and even some allies of companies like Twitter and Facebook say they have failed to prevent the misinformation that led to chaos on Wednesday.`\
