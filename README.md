@@ -2,7 +2,7 @@
 `Pedaling across the Seine on a sunny day is a peak experience. How did the City of Light become a city of cycles?`\
 https://nytimes.com/2021/01/06/opinion/paris-bike.html?searchResultPosition=1
 
-**As vote counting continues, Warnock pledges to fight for all Georgians.**\
+**Warnock pledges to fight for all Georgians.**\
 `By Matt Stevens`\
 https://nytimes.com/2021/01/05/us/politics/raphael-warnock-georgia.html?searchResultPosition=2
 
