@@ -1,5 +1,5 @@
 **Trump Incites Terrorists**\
-`The President may use the language of patriotism, but these are the actions of Benedict Arnold.`\
+`The president may use the language of patriotism, but these are the actions of Benedict Arnold.`\
 https://nytimes.com/2021/01/06/opinion/capitol-riot-trump.html?searchResultPosition=1
 
 **‘Go Home,’ Trump Tells Pro-Trump Mob at Capitol**\
