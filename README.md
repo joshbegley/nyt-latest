@@ -1,5 +1,5 @@
-**Messages in the Georgia Runoffs**\
-`Readers react to the likelihood that Democrats will get control of the Senate.`\
+**Messages in the Democratic Sweep in Georgia**\
+`Readers react to the news that Democrats will get control of the Senate.`\
 https://nytimes.com/2021/01/06/opinion/letters/georgia-election.html?searchResultPosition=1
 
 **President-elect Biden calls on Trump to ‘demand an end to this siege.’**\
