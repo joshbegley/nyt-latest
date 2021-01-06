@@ -1,4 +1,4 @@
-**‘I’ll Be For You’: Ossoff Wins Georgia**\
+**‘I’ll Be for You’: Ossoff Wins Georgia**\
 `Jon Ossoff defeated David Perdue, ensuring Democrats will control the Senate.`\
 https://nytimes.com/video/us/politics/100000007537293/ossoff-election-results-georgia.html?searchResultPosition=1
 
@@ -22,8 +22,8 @@ https://nytimes.com/2021/01/06/at-home/newsletter.html?searchResultPosition=5
 `Bette Howland’s 1974 memoir, recently reissued, recounts her time in a psychiatric ward and the people she met there.`\
 https://nytimes.com/2021/01/06/books/review-w-3-memoir-bette-howland.html?searchResultPosition=6
 
-**Army activates D.C. National Guard to deploy troops to the Capitol.**\
-`By Helene Cooper`\
+**Army deploys D.C. National Guard to Capitol, and F.B.I. mobilizes agents.**\
+`By Helene Cooper, Julian E. Barnes and Jonathan Martin`\
 https://nytimes.com/2021/01/06/us/politics/national-guard-capitol-army.html?searchResultPosition=7
 
 **An explosive device is found at the R.N.C., and the D.N.C. is evacuated.**\
