@@ -30,7 +30,7 @@ https://nytimes.com/2021/01/06/technology/lessons-from-qualcomm.html?searchResul
 `The choice of a judge is unusual and may reflect an effort by the president-elect to bring in an apolitical leader to bolster the Justice Department’s independence from politics.`\
 https://nytimes.com/2021/01/06/us/politics/merrick-garland-attorney-general.html?searchResultPosition=8
 
-**A top election official in Georgia says Jon Ossoff will likely prevail.**\
+**A top election official in Georgia says Ossoff will likely prevail.**\
 `By Stephanie Saul`\
 https://nytimes.com/2021/01/06/us/politics/gabriel-sterling-georgia.html?searchResultPosition=9
 
