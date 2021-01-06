@@ -1,4 +1,4 @@
-**U.S. Is Blind to Virus Variant Swamping British Hospitals, Scientists Warn**\
+**U.S. Is Blind to Contagious New Virus Variant, Scientists Warn**\
 `It’s not too late to curb the contagious variant’s spread in the U.S., experts say — but only with a national program for genetic sequencing.`\
 https://nytimes.com/2021/01/06/health/coronavirus-variant-tracking.html?searchResultPosition=1
 
