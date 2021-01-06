@@ -1,6 +1,6 @@
-**Watch Live: Biden Addresses Chaos at Capitol**\
-`President-elect Joseph R. Biden Jr. delivers remarks in Wilmington, Del.`\
-https://nytimes.com/video/us/politics/100000007536703/watch-live-biden-remarks.html?searchResultPosition=1
+**Watch Full Video: Biden Addresses Chaos at Capitol**\
+`President-elect Joseph R. Biden Jr. delivered remarks in Wilmington, Del.`\
+https://nytimes.com/video/embedded/us/politics/100000007536703/watch-live-biden-remarks.html?searchResultPosition=1
 
 **Your Downsized Resolutions for 2021**\
 `Readers’ plans for the new year.`\
