@@ -22,19 +22,19 @@ https://nytimes.com/2021/01/06/sports/basketball/devin-booker-phoenix-suns.html?
 `What is this image saying?`\
 https://nytimes.com/2021/01/06/learning/overlooking.html?searchResultPosition=6
 
+**Warnock beats Loeffler in Georgia Senate race.**\
+`The victory is a landmark breakthrough for African-Americans in politics. Mr. Warnock becomes the first Black Democrat to be elected to the Senate from the Deep South.`\
+https://nytimes.com/2021/01/05/us/politics/warnock-beats-loeffler-in-georgia-senate-race.html?searchResultPosition=7
+
 **Paris by Bike**\
 `Pedaling across the Seine on a sunny day is a peak experience. How did the City of Light become a city of cycles?`\
-https://nytimes.com/2021/01/06/opinion/paris-bike.html?searchResultPosition=7
+https://nytimes.com/2021/01/06/opinion/paris-bike.html?searchResultPosition=8
 
 **Warnock pledges to fight for all Georgians.**\
 `By Matt Stevens`\
-https://nytimes.com/2021/01/05/us/politics/raphael-warnock-georgia.html?searchResultPosition=8
+https://nytimes.com/2021/01/05/us/politics/raphael-warnock-georgia.html?searchResultPosition=9
 
 **U.S. Democracy, European Vaccinations, French Scandal: Your Wednesday Briefing**\
 `A stress test for American democracy.`\
-https://nytimes.com/2021/01/06/briefing/us-democracy-european-vaccinations-french-scandal.html?searchResultPosition=9
-
-**‘I Will Get Up’: A Hard New Year Greets a World in Waiting**\
-`Around the globe, people who held on in hopes that 2021 would banish a year of horror are struggling with the reality that the hardest challenges may lie ahead.`\
-https://nytimes.com/2021/01/06/world/europe/coronavirus-new-year-vaccine.html?searchResultPosition=10
+https://nytimes.com/2021/01/06/briefing/us-democracy-european-vaccinations-french-scandal.html?searchResultPosition=10
 
