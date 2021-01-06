@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/06/climate/flood-zone-building-restrictions.html?sea
 
 **With Mass Arrests, Beijing Exerts an Increasingly Heavy Hand in Hong Kong**\
 `The central Chinese government, which once wielded its power over Hong Kong with a degree of discretion, has signaled its determination to openly impose its will on the city.`\
-https://nytimes.com/2021/01/06/world/asia/hong-kong-arrests-national-security-law.html?searchResultPosition=5
+https://nytimes.com/2021/01/06/world/asia/china-hong-kong-arrests.html?searchResultPosition=5
 
 **California Delivers Hard Choices for Essential Workers**\
 `Wednesday: Proposals for state stimulus and “hero pay” vie with unemployment fraud and freezes. Plus, name that condor chick.`\
