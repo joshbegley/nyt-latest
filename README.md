@@ -8,7 +8,7 @@ https://nytimes.com/2021/01/06/opinion/letters/georgia-election.html?searchResul
 
 **President-elect Biden calls on Trump to ‘demand an end to this siege.’**\
 `By Nicholas Bogel-Burroughs`\
-https://nytimes.com/2021/01/06/us/politics/biden-trump-capitol.html?searchResultPosition=3
+https://nytimes.com/live/2021/01/06/us/washington-dc-protests/biden-trump-capitol?searchResultPosition=3
 
 **Watch Full Video: Biden Addresses Chaos at Capitol**\
 `President-elect Joseph R. Biden Jr. delivered remarks in Wilmington, Del.`\
@@ -32,7 +32,7 @@ https://nytimes.com/2021/01/06/us/politics/an-explosive-device-is-found-at-the-r
 
 **Marauding protesters vandalize Speaker Pelosi’s office.**\
 `By Erin Schaff and Sabrina Tavernise`\
-https://nytimes.com/2021/01/06/us/politics/mob-vandalize-pelosi-office.html?searchResultPosition=9
+https://nytimes.com/live/2021/01/06/us/washington-dc-protests/mob-vandalize-pelosi-office?searchResultPosition=9
 
 **Bryan Sykes, Who Saw the Ancient Past in Genes, Dies at 73**\
 `An Oxford scientist with a flair for the dramatic, he introduced millions of people to the secrets of their ancestry through his books and TV appearances.`\
