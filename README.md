@@ -1,6 +1,6 @@
-**A W.N.B.A. team co-owned by Loeffler helped Warnock defeat her. What happens now?**\
-`By Sopan Deb`\
-https://nytimes.com/2021/01/06/us/politics/a-wnba-team-co-owned-by-loeffler-helped-warnock-defeat-her-what-happens-now.html?searchResultPosition=1
+**Washington in Final Convulsions of Trump Era**\
+`As angry Trump supporters massed in the capital and a futile challenge to Joseph R. Biden Jr.’s victory unfolded in Congress, the president most likely succeeded in handed Washington to the Democrats.`\
+https://nytimes.com/2021/01/06/us/politics/trump-congress.html?searchResultPosition=1
 
 **Legalized Marijuana in New York: This Could Be the Year**\
 `With the state facing a budget crisis, a Democratic supermajority in Albany may pave the way for new taxes and the legalization of recreational pot.`\
