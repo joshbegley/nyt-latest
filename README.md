@@ -26,7 +26,7 @@ https://nytimes.com/2021/01/05/us/politics/high-turnout-among-black-voters-has-l
 `Quotation of the Day for Wednesday, January 6, 2021.`\
 https://nytimes.com/2021/01/05/todayspaper/quotation-of-the-day-heres-how-the-final-election-tally-actually-works.html?searchResultPosition=7
 
-**Did Oxygen Outage Kill Covid Patients in Egypt? Government Says No.**\
+**Did Oxygen Outage Kill Covid Patients in Egypt? Government Says No**\
 `With anger swelling over a video clip purporting to show patients dying in a hospital after their oxygen was cut off, the authorities offered a counternarrative.`\
 https://nytimes.com/2021/01/05/world/middleeast/Egypt-covid-oxygen-video.html?searchResultPosition=8
 
