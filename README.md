@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/06/world/asia/pakistan-virginity-tests.html?searchRe
 `He was a premier election and campaign lawyer and a fixture in Chicago legal circles. He died of Covid-19.`\
 https://nytimes.com/2021/01/06/obituaries/richard-means-dead-covid.html?searchResultPosition=6
 
-**Congress Debates 2020 Electoral College Certification**\
+**Live Stream and Analysis: Congress Debates 2020 Electoral College Certification**\
 `Live coverage of the election-certification debate in Congress. Republican House and Senate members are expected to protest the election’s outcome.`\
 https://nytimes.com/interactive/2021/01/06/us/politics/electoral-college-certification-live-stream.html?searchResultPosition=7
 
