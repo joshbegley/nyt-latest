@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/06/climate/arctic-refuge-drilling-lease-sales.html?s
 `David Dahlen escaped from the Portland Police Bureau’s Central Precinct on Saturday after a cleaning crew left the door to his holding cell unlocked, officials said.`\
 https://nytimes.com/2021/01/06/us/portland-oregon-escaped-suspect.html?searchResultPosition=6
 
-**Trump Incites Terrorists**\
+**Trump Incites Rioters**\
 `The president may use the language of patriotism, but these are the actions of Benedict Arnold.`\
 https://nytimes.com/2021/01/06/opinion/capitol-riot-trump.html?searchResultPosition=7
 
