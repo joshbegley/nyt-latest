@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/06/arts/television/bbc-diversity-june-sarpong.html?s
 
 **‘Welcome to the new Georgia,’ Warnock says after win.**\
 `By Patricia Mazzei`\
-https://nytimes.com/2021/01/06/us/politics/welcome-to-the-new-georgia-warnock-says-after-win.html?searchResultPosition=4
+https://nytimes.com/live/2021/01/06/us/georgia-election-results/welcome-to-the-new-georgia-warnock-says-after-win?searchResultPosition=4
 
 **It’s OK to Watch ‘Schitt’s Creek’ With Your Kids**\
 `For some families, the pandemic has meant relaxing restrictions on what constitutes family TV. Here’s why that’s not necessarily a bad thing.`\
