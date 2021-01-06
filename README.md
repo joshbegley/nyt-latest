@@ -26,9 +26,9 @@ https://nytimes.com/slideshow/2021/01/06/realestate/what-you-get-for-1-7-million
 `The Rev. Raphael Warnock promised Georgia voters early Wednesday that he would work on their behalf.`\
 https://nytimes.com/video/us/politics/100000007536154/warnock-elected-united-states-senate.html?searchResultPosition=7
 
-**Watch out for this misinformation when Congress meets to certify the election.**\
-`Here are six false voter fraud claims that may be repeated during Wednesday’s proceedings.`\
-https://nytimes.com/2021/01/06/business/watch-out-for-this-misinformation-when-congress-meets-to-certify-the-election.html?searchResultPosition=8
+**Watch Out for These 6 Falsehoods About the Election**\
+`Here are six false voter fraud claims that may be repeated during the congressional proceedings.`\
+https://nytimes.com/interactive/2021/01/05/technology/voter-fraud-misinformation.html?searchResultPosition=8
 
 **Pop Stars Like Cozy Stuff, Too**\
 `With fans stuck at home, many musicians are pivoting from selling tour T-shirts to hawking comforting tchotchkes.`\
