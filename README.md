@@ -2,7 +2,7 @@
 `The senator was confronted in the airport and on a flight to Washington by supporters of President Trump, some of whom chanted “traitor” at him.`\
 https://nytimes.com/2021/01/06/us/politics/romney-trump-supporters-flight.html?searchResultPosition=1
 
-**On a Day of Capitol Drama, Cable News Covers Electoral Tally Like No Other**\
+**On a Day of Capitol Drama, Cable News Covers an Electoral Tally Like No Other**\
 `At the end of a stormy presidency, the major networks focused on a largely ceremonial event that is usually the stuff of C-SPAN.`\
 https://nytimes.com/2021/01/06/business/media/congress-trump-subvert-election-tv.html?searchResultPosition=2
 
