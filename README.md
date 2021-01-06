@@ -1,18 +1,18 @@
+**Eric Jerome Dickey, Best-Selling Novelist, Dies at 59**\
+`His fiction often featured strong Black women, and Black women were among his most enthusiastic readers.`\
+https://nytimes.com/2021/01/06/books/eric-jerome-dickey-dead.html?searchResultPosition=1
+
 **Theater to Stream: Festivals, Festivals, Festivals**\
 `The Under the Radar, Prototype and Exponential festivals are ready to open our minds with experimental work, even if their doors are shut.`\
-https://nytimes.com/2021/01/06/theater/streaming-theater-festivals.html?searchResultPosition=1
+https://nytimes.com/2021/01/06/theater/streaming-theater-festivals.html?searchResultPosition=2
 
 **Rosemary Collins, Singer and Choir Director, Dies at 51**\
 `Her tastes ran from Meat Loaf to Mozart and she brought that spirit of eclecticism to her jobs in schools and a church. She died of complications of the coronavirus.`\
-https://nytimes.com/2021/01/06/obituaries/rosemary-collins-dead-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2021/01/06/obituaries/rosemary-collins-dead-coronavirus.html?searchResultPosition=3
 
 **The Former Youth TV Star on a Mission to Transform the BBC**\
 `June Sarpong has been a familiar face on British screens for two decades. Now, she’s in charge of bringing greater diversity to the country’s public broadcaster.`\
-https://nytimes.com/2021/01/06/arts/television/bbc-diversity-june-sarpong.html?searchResultPosition=3
-
-**‘Welcome to the new Georgia,’ Warnock says after win.**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2021/01/06/us/georgia-election-results/welcome-to-the-new-georgia-warnock-says-after-win?searchResultPosition=4
+https://nytimes.com/2021/01/06/arts/television/bbc-diversity-june-sarpong.html?searchResultPosition=4
 
 **It’s OK to Watch ‘Schitt’s Creek’ With Your Kids**\
 `For some families, the pandemic has meant relaxing restrictions on what constitutes family TV. Here’s why that’s not necessarily a bad thing.`\
