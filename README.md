@@ -14,27 +14,27 @@ https://nytimes.com/2021/01/06/books/review-w-3-memoir-bette-howland.html?search
 `By Helene Cooper`\
 https://nytimes.com/2021/01/06/us/politics/national-guard-capitol-army.html?searchResultPosition=4
 
+**An explosive device is found at the R.N.C., and the D.N.C. is evacuated.**\
+`By Katie Benner, Maggie Haberman and Michael S. Schmidt`\
+https://nytimes.com/2021/01/06/us/politics/an-explosive-device-is-found-at-the-rnc-and-the-dnc-is-evacuated.html?searchResultPosition=5
+
 **Marauding protesters vandalize Speaker Pelosi’s office.**\
 `By Erin Schaff and Sabrina Tavernise`\
-https://nytimes.com/2021/01/06/us/politics/marauding-protesters-vandalize-speaker-pelosis-office.html?searchResultPosition=5
+https://nytimes.com/2021/01/06/us/politics/marauding-protesters-vandalize-speaker-pelosis-office.html?searchResultPosition=6
 
 **Bryan Sykes, Who Saw the Ancient Past in Genes, Dies at 73**\
 `An Oxford scientist with a flair for the dramatic, he introduced millions of people to the secrets of their ancestry through his books and TV appearances.`\
-https://nytimes.com/2021/01/06/science/bryan-sykes-dead.html?searchResultPosition=6
+https://nytimes.com/2021/01/06/science/bryan-sykes-dead.html?searchResultPosition=7
 
 **Fed Officials Fretted Over Virus Surge at December Meeting**\
 `Minutes from the central bank's December gathering show that the chair, Jerome H. Powell, and his colleagues were hoping for a 2021 rebound.`\
-https://nytimes.com/2021/01/06/business/economy/fed-officials-fretted-over-virus-surge-at-december-meeting.html?searchResultPosition=7
+https://nytimes.com/2021/01/06/business/economy/fed-officials-fretted-over-virus-surge-at-december-meeting.html?searchResultPosition=8
 
 **Your Thursday Briefing**\
 `A pro-Trump mob storms the U.S. Capitol.`\
-https://nytimes.com/2021/01/06/briefing/us-capitol-lockdown-trump-hong-kong-arrests.html?searchResultPosition=8
+https://nytimes.com/2021/01/06/briefing/us-capitol-lockdown-trump-hong-kong-arrests.html?searchResultPosition=9
 
 **Suzi Analogue Wants Black Women in Experimental Music to Never Compromise**\
 `She couldn’t find a label that understood her work, so she started her own. Now she’s doubling down on her mission to provide a home for others who want to create with total freedom.`\
-https://nytimes.com/2021/01/06/arts/music/suzi-analogue.html?searchResultPosition=9
-
-**Russian-Owned Software Company May Be Entry Point for Huge U.S. Hacking**\
-`Russian hackers may have piggybacked on a tool developed by JetBrains, which is based in the Czech Republic, to gain access to federal government and private sector systems in the United States.`\
-https://nytimes.com/2021/01/06/us/politics/russia-cyber-hack.html?searchResultPosition=10
+https://nytimes.com/2021/01/06/arts/music/suzi-analogue.html?searchResultPosition=10
 
