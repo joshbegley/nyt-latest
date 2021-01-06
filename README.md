@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/06/world/the-eu-drug-regulator-approves-the-moderna-
 
 **Congress Is Expected to Meet Into the Night as Republicans Try to Subvert the Election**\
 `Lawmakers will convene for a joint session to formalize President-elect Joseph R. Biden Jr.’s Electoral College victory, with President Trump and his allies plotting to transform the session into a final, futile attempt to overturn the results.`\
-https://nytimes.com/2021/01/06/us/politics/congress-is-expected-to-meet-into-the-night-as-republicans-try-to-subvert-the-election.html?searchResultPosition=2
+https://nytimes.com/2021/01/06/us/politics/congress-gop-subvert-election.html?searchResultPosition=2
 
 **What Georgia Means for the Markets**\
 `Investors react to Democrats’ strong showing in Senate runoffs.`\
