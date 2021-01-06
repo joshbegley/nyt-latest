@@ -1,4 +1,4 @@
-**Alabama Wide Receiver DeVonta Smith Wins Heisman Trophy**\
+**Alabama Wide Receiver DeVonta Smith Wins the Heisman Trophy**\
 `Smith, a senior, is the first wide receiver to win college football’s top individual award since 1991.`\
 https://nytimes.com/2021/01/05/sports/ncaafootball/heisman-trophy.html?searchResultPosition=1
 
