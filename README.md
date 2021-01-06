@@ -24,7 +24,7 @@ https://nytimes.com/slideshow/2021/01/06/realestate/bathed-in-natural-light-in-p
 
 **‘The Prophets’ Explores Black Love and Memory in a Time of Trauma**\
 `Robert Jones Jr.’s debut novel tells the story of two enslaved boys in love.`\
-https://nytimes.com/2021/01/06/books/review/the-prohets-robert-jones-jr.html?searchResultPosition=7
+https://nytimes.com/2021/01/06/books/review/the-prophets-robert-jones-jr.html?searchResultPosition=7
 
 **Early Biden Climate Test: Groups Demand Tougher Rules on Building**\
 `A new push for stricter rules in flood zones could force Biden’s team to choose: Increase construction costs, or leave people exposed to climate change.`\
