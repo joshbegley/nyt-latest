@@ -1,40 +1,40 @@
+**It’s OK to Watch ‘Schitt’s Creek’ With Your Kids**\
+`For some families, the pandemic has meant relaxing restrictions on what constitutes family TV. Here’s why that’s not necessarily a bad thing.`\
+https://nytimes.com/2021/01/06/parenting/family-tv-during-pandemic.html?searchResultPosition=1
+
+**Dr. Dre, Hospitalized in Los Angeles, Assures Fans He’s ‘Doing Great’**\
+`The rapper, producer and entrepreneur is being treated at Cedars-Sinai Medical Center.`\
+https://nytimes.com/2021/01/06/arts/music/dr-dre-hospitalized.html?searchResultPosition=2
+
 **Democrats Have Been Shameless About Your Presidential Vote Too**\
 `After the 2000, 2004 and 2016 elections, they objected to counting electoral totals.`\
-https://nytimes.com/2021/01/06/opinion/democrat-republican-electoral-votes.html?searchResultPosition=1
+https://nytimes.com/2021/01/06/opinion/democrat-republican-electoral-votes.html?searchResultPosition=3
 
 **Dwarf Giraffes Discovery Surprises Scientists**\
 `Like someone put a giraffe’s head and neck on a horse’s body.`\
-https://nytimes.com/2021/01/06/science/dwarf-giraffes.html?searchResultPosition=2
+https://nytimes.com/2021/01/06/science/dwarf-giraffes.html?searchResultPosition=4
 
 **5 Art Accounts to Follow on Instagram Now**\
 `Our critic recommends travel photography, a philosophical comic strip, a chronicler of Black life and the funerary monuments of old New York.`\
-https://nytimes.com/2021/01/06/arts/design/art-accounts-to-follow-on-instagram-now.html?searchResultPosition=3
+https://nytimes.com/2021/01/06/arts/design/art-accounts-to-follow-on-instagram-now.html?searchResultPosition=5
 
 **Why You Should Follow the Recipe**\
 `Genevieve Ko resolved to stick to the instructions this coming year, and brought several recipes to The Times so you can do just that.`\
-https://nytimes.com/2021/01/06/dining/follow-the-recipe.html?searchResultPosition=4
+https://nytimes.com/2021/01/06/dining/follow-the-recipe.html?searchResultPosition=6
 
 **For Democrats in Georgia, ‘There’s No Going Back’**\
 `The Democratic showing in the Senate races on Tuesday confirmed that Georgia’s metamorphosis from conservative bastion to battleground state was complete.`\
-https://nytimes.com/2021/01/06/us/politics/georgia-democrats-senate.html?searchResultPosition=5
+https://nytimes.com/2021/01/06/us/politics/georgia-democrats-senate.html?searchResultPosition=7
 
 **Albert Roux, Chef Who Brought French Cuisine to London, Dies at 85**\
 `Mr. Roux and his brother, Michel, opened Le Gavroche in the late 1960s, raising the level of fine dining in the city and offering a training ground for some of the restaurant industry’s future stars.`\
-https://nytimes.com/2021/01/06/world/europe/albert-roux-dead.html?searchResultPosition=6
+https://nytimes.com/2021/01/06/world/europe/albert-roux-dead.html?searchResultPosition=8
 
 **Police Chief Who Resigned After Fatal Shooting Will Lead Louisville Department**\
 `Erika Shields, who stepped down after the killing of Rayshard Brooks in Atlanta, will arrive in a city still gripped by the fatal police shooting of Breonna Taylor, which led to national cries for accountability.`\
-https://nytimes.com/2021/01/06/us/erika-shields-louisville-police-chief.html?searchResultPosition=7
+https://nytimes.com/2021/01/06/us/erika-shields-louisville-police-chief.html?searchResultPosition=9
 
 **Stream These 8 Titles Before They Leave Netflix This Month**\
 `After the end-of-year bloodletting, the losses are a little lighter in January. But there are still some great gems worth catching.`\
-https://nytimes.com/2021/01/06/arts/television/netflix-january-expiring.html?searchResultPosition=8
-
-**More Than the Girl Next Door: 8 Actors on Emily in ‘Our Town’**\
-`With a history of the Thornton Wilder classic coming soon, we talk with performers who found personal inspiration in the play’s beating heart.`\
-https://nytimes.com/2021/01/06/theater/our-town-actresses.html?searchResultPosition=9
-
-**Will the Sudden E.U.-China Deal Damage Relations With Biden?**\
-`Pushed by German Chancellor Merkel of Germany near the end of her tenure, the trade deal may complicate agreement on an effective trans-Atlantic policy toward China.`\
-https://nytimes.com/2021/01/06/world/europe/eu-china-deal-biden.html?searchResultPosition=10
+https://nytimes.com/2021/01/06/arts/television/netflix-january-expiring.html?searchResultPosition=10
 
