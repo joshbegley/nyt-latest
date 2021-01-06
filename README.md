@@ -26,15 +26,15 @@ https://nytimes.com/2021/01/06/business/sedition.html?searchResultPosition=6
 `Stephen J. Adler will retire in April from the global news organization, which employs about 2,500 journalists.`\
 https://nytimes.com/2021/01/06/business/media/reuters-editor-retires.html?searchResultPosition=7
 
+**A person was shot inside the Capitol during a violent protest.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/2021/01/06/us/politics/shooting-capitol.html?searchResultPosition=8
+
 **Blood Plasma Reduces Risk of Severe Covid-19 if Given Early**\
 `Thousands of people received convalescent plasma as an experimental treatment for Covid. A new study shows that it works — but only when given within a few days of the onset of illness.`\
-https://nytimes.com/2021/01/06/health/convalescent-plasma-covid.html?searchResultPosition=8
+https://nytimes.com/2021/01/06/health/convalescent-plasma-covid.html?searchResultPosition=9
 
 **Stimulus Payment Delayed? You May Need to Claim It on Your Tax Return**\
 `Payments must be sent by the government by Jan. 15, the I.R.S. said. If yours isn’t sent by then, you’ll have to claim it as a rebate on your 2020 taxes.`\
-https://nytimes.com/2021/01/06/business/stimulus-payment-delay-irs.html?searchResultPosition=9
-
-**‘I’ll Be for You’: Ossoff Wins Georgia**\
-`Jon Ossoff defeated David Perdue, ensuring Democrats will control the Senate.`\
-https://nytimes.com/video/us/politics/100000007537293/ossoff-election-results-georgia.html?searchResultPosition=10
+https://nytimes.com/2021/01/06/business/stimulus-payment-delay-irs.html?searchResultPosition=10
 
