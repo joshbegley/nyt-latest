@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/06/world/middleeast/israel-coronavirus-vaccine-palestinians.html?searchResultPosition=1
 
 **52 Places to Love in 2021**\
-`We asked readers to tell us about the spots that have delighted, inspired and comforted them in years past. Here, 52 of the more than 2,000 suggestions we received, to remind us that the world still awaits.`\
+`We asked readers to tell us about the spots that have delighted, inspired and comforted them over the years. Here, 52 of the more than 2,000 suggestions we received, to remind us that the world still awaits.`\
 https://nytimes.com/interactive/2021/travel/places-to-visit-vacation.html?searchResultPosition=2
 
 **Sale of Drilling Leases in Arctic Refuge Fails to Yield a Windfall**\
