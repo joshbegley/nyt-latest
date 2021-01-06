@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/05/us/politics/pro-trump-protests-washington.html?se
 
 **Lawyer on Trump Election Call Quits Firm After Uproar**\
 `The law firm, Foley & Lardner, had distanced itself from Cleta Mitchell after a recording of the call revealed she helped the president pressure Georgia elections officials.`\
-https://nytimes.com/2021/01/05/us/politics/cleta-mitchell-trump-lawyer.html?searchResultPosition=2
+https://nytimes.com/2021/01/05/us/politics/cleta-mitchell-foley-lardner-trump.html?searchResultPosition=2
 
 **Heart and Soul, I Fell in Love With You**\
 `How piano lessons — and a middle school friendship — changed my life.`\
