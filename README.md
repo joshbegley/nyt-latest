@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘This 14-Year-Old Ski Daredevil Is Already a Pro, and Trying Not to Scare His Parents’**\
-`In this lesson, students will learn about Kai Jones and the thrilling but dangerous sport of freeskiing. Then, they will profile a teenage athlete in their own school or community.`\
-https://nytimes.com/2021/01/06/learning/lesson-of-the-day-this-14-year-old-ski-daredevil-is-already-a-pro-and-trying-not-to-scare-his-parents.html?searchResultPosition=1
+**Jeff Flake: ‘Trump Can’t Hurt You. But He Is Destroying Us.’**\
+`My fellow Republicans, there is power in standing up to the rank corruptions of a demagogue.`\
+https://nytimes.com/2021/01/06/opinion/jeff-flake-trump-republicans.html?searchResultPosition=1
 
-**Late Night Wonders if Mike Pence Will Stand by His Man**\
-`Seth Meyers joked that the vice president had to “choose between the Constitution and a sleazy mafia don cold-calling election officials illegally, begging for votes like a telemarketer.”`\
-https://nytimes.com/2021/01/06/arts/television/late-night-mike-pence-trump.html?searchResultPosition=2
+**Hastings-on-Hudson, N.Y.: An Inclusive Community on the River**\
+`Many of the residents in this Westchester County village are city transplants, drawn by the creative, environmentally conscious vibe.`\
+https://nytimes.com/2021/01/06/realestate/living-in-hastings-on-hudson-ny-inclusive-rivertown.html?searchResultPosition=2
 
-**Fight Over Closing Schools Reignites as N.Y.C. Positive Rate Tops 9%**\
-`The teachers’ union wants schools to shut again if the rate of positive virus tests keeps rising. The city is determined to keep them open.`\
-https://nytimes.com/2021/01/06/nyregion/nyc-school-closings-coronavirus.html?searchResultPosition=3
+**Living In ... Hastings-on-Hudson, N.Y.**\
+`Many of the residents in this Westchester County village are city transplants, drawn by the creative, environmentally conscious vibe.`\
+https://nytimes.com/slideshow/2021/01/06/realestate/living-in-hastings-on-hudson-ny.html?searchResultPosition=3
 
-**Enjoy Derrick Henry’s High-Mileage Fun. History Shows It’s Unsustainable.**\
-`The Titans running back rushed for 2,027 yards, the fifth-highest total in N.F.L. history, and is hauling the team back to the postseason. It will be a fleeting joy ride, if past seasons are any indicator.`\
-https://nytimes.com/2021/01/06/sports/football/derrick-henry-2000-yard-rusher.html?searchResultPosition=4
+**5 Minutes That Will Make You Love the Flute**\
+`It’s an instrument based on the most fundamental sign of life: breath. Listen to the best music ever written for it.`\
+https://nytimes.com/2021/01/06/arts/music/five-minutes-classical-music-flute.html?searchResultPosition=4
 
-**Devin Booker Is Coming Into His Own With the Suns**\
-`Booker, the 24-year-old Phoenix Suns guard, learned to lead while his team was losing dozens of games a year. Now the Suns are winning, and that comes with new demands.`\
-https://nytimes.com/2021/01/06/sports/basketball/devin-booker-phoenix-suns.html?searchResultPosition=5
+**From the Music Hall to Ballet Royalty: A British Tale**\
+`The history of the Royal Academy of Dance, outlined at an exhibition in London, is synonymous with the history of ballet in Britain.`\
+https://nytimes.com/2021/01/06/arts/dance/royal-academy-history-exhibition-london.html?searchResultPosition=5
 
-**Overlooking**\
-`What is this image saying?`\
-https://nytimes.com/2021/01/06/learning/overlooking.html?searchResultPosition=6
+**Have Trump’s Lies Wrecked Free Speech?**\
+`A debate has broken out over whether the once-sacrosanct constitutional protection of the First Amendment has become a threat to democracy.`\
+https://nytimes.com/2021/01/06/opinion/trump-lies-free-speech.html?searchResultPosition=6
 
-**Warnock beats Loeffler in Georgia Senate race.**\
-`The victory is a landmark breakthrough for African-Americans in politics. Mr. Warnock becomes the first Black Democrat to be elected to the Senate from the Deep South.`\
-https://nytimes.com/2021/01/05/us/politics/warnock-beats-loeffler-in-georgia-senate-race.html?searchResultPosition=7
+**With One Presidential Phone Call, QAnon Shows Its Power**\
+`The sprawling online conspiracy network is at the center of Trump’s attempt to overturn the election.`\
+https://nytimes.com/2021/01/06/opinion/trump-qanon-georgia-call.html?searchResultPosition=7
 
-**Paris by Bike**\
-`Pedaling across the Seine on a sunny day is a peak experience. How did the City of Light become a city of cycles?`\
-https://nytimes.com/2021/01/06/opinion/paris-bike.html?searchResultPosition=8
+**Reporting on the Long Arc of Covid Relief**\
+`Covering economic stimulus talks is no easy assignment. For starters, it doesn’t seem to end. Here’s how the congressional reporter Emily Cochrane approached the task.`\
+https://nytimes.com/2021/01/06/insider/reporting-on-the-long-arc-of-covid-relief.html?searchResultPosition=8
 
-**Warnock pledges to fight for all Georgians.**\
-`By Matt Stevens`\
-https://nytimes.com/2021/01/05/us/politics/raphael-warnock-georgia.html?searchResultPosition=9
+**The Last Two Northern White Rhinos On Earth**\
+`What will we lose when Najin and Fatu die?`\
+https://nytimes.com/2021/01/06/magazine/the-last-two-northern-white-rhinos-on-earth.html?searchResultPosition=9
 
-**U.S. Democracy, European Vaccinations, French Scandal: Your Wednesday Briefing**\
-`A stress test for American democracy.`\
-https://nytimes.com/2021/01/06/briefing/us-democracy-european-vaccinations-french-scandal.html?searchResultPosition=10
+**The Tech That Will Invade Our Lives in 2021**\
+`Spoiler: We’re looking at another year of internet services dominating many aspects of our lives.`\
+https://nytimes.com/2021/01/06/technology/personaltech/tech-2021-augmented-reality-chatbots-wifi.html?searchResultPosition=10
 
