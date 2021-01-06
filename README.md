@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/05/todayspaper/quotation-of-the-day-heres-how-the-final-election-tally-actually-works.html?searchResultPosition=1
 
 **Did Oxygen Outage Kill Covid Patients in Egypt? Government Says No.**\
-`With anger swelling over a video clip purporting to show patients dying in a hospital after their oxygen was cut off, the authorities offered a counternarrative`\
+`With anger swelling over a video clip purporting to show patients dying in a hospital after their oxygen was cut off, the authorities offered a counternarrative.`\
 https://nytimes.com/2021/01/05/world/middleeast/Egypt-covid-oxygen-video.html?searchResultPosition=2
 
 **Corrections: Jan. 6, 2021**\
