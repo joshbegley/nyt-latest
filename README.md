@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/06/opinion/letters/mob-capital-election.html?searchR
 
 **Business Groups Condemn Violence on Capitol Hill: ‘This Is Sedition’**\
 `Hours after supporters of President Trump stormed the Capitol building, industry leaders called for an end to the chaos that disrupted efforts to certify the presidential election results.`\
-https://nytimes.com/2021/01/06/business/business-leaders-react-capitol-violence.html?searchResultPosition=2
+https://nytimes.com/2021/01/06/business/sedition.html?searchResultPosition=2
 
 **Reuters Editor in Chief Is Stepping Down After a Decade**\
 `Stephen J. Adler will retire in April from the global news organization, which employs about 2,500 journalists.`\
