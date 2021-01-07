@@ -1,40 +1,40 @@
+**Watch Live: House Reconvenes to Debate Challenges of Biden’s Victory**\
+`After a joint session of Congress was suspended, the House returned to its chamber to debate challenges to President-elect Joseph R. Biden Jr.’s Electoral College win. A pro-Trump mob breached the U.S. Capitol, halting the certification vote.`\
+https://nytimes.com/video/us/politics/100000007537856/house-reconvenes-debate-challenges-biden-victory.html?searchResultPosition=1
+
+**Watch Live: Congress Reconvenes to Certify Biden’s Victory**\
+`Congress reconvened for a joint session to record the votes of the Electoral College and confirm the victory of President-elect Joseph R. Biden Jr. after a mob supporting President Trump broke into the Capitol, disrupting the earlier vote.`\
+https://nytimes.com/video/us/politics/100000007537831/congress-reconvenes-to-certify-bidens-victory.html?searchResultPosition=2
+
 **Donald Trump’s Last Picture Show**\
 `The Capitol mob had reason to believe the president would be watching them. For the rest of us, it was a horror story.`\
-https://nytimes.com/2021/01/06/arts/television/donald-trump-capitol-mob-tv.html?searchResultPosition=1
+https://nytimes.com/2021/01/06/arts/television/donald-trump-capitol-mob-tv.html?searchResultPosition=3
 
 **Inside the Capitol, the Sound of the Mob Came First**\
 `Not long after Senator Mitch McConnell warned his Republican colleagues that their efforts to overturn an election would send democracy into a “death spiral,” fear surged through the Senate chamber.`\
-https://nytimes.com/2021/01/06/us/politics/photos-capitol-building-protesters.html?searchResultPosition=2
+https://nytimes.com/2021/01/06/us/politics/photos-capitol-building-protesters.html?searchResultPosition=4
 
 **Calls for Trump’s removal grow after storming of Capitol.**\
 `By Jeanna Smialek`\
-https://nytimes.com/2021/01/06/us/politics/trump-resign-removed-office.html?searchResultPosition=3
+https://nytimes.com/2021/01/06/us/politics/trump-resign-removed-office.html?searchResultPosition=5
 
 **Police response to Capitol mob is in striking contrast to protests after George Floyd killing.**\
 `By Shaila Dewan`\
-https://nytimes.com/2021/01/06/us/politics/capitol-george-floyd-dc-protests.html?searchResultPosition=4
+https://nytimes.com/2021/01/06/us/politics/capitol-george-floyd-dc-protests.html?searchResultPosition=6
 
 **America’s Friends Express Horror and Shock as Capitol Attack ‘Shakes the World’**\
 `Global leaders watched live as a mob stormed the U.S. Capitol, and many saw it as a warning to global democracies, placing the blame squarely on President Trump.`\
-https://nytimes.com/2021/01/06/world/europe/trump-capitol-2020-election-mob.html?searchResultPosition=5
+https://nytimes.com/2021/01/06/world/europe/trump-capitol-2020-election-mob.html?searchResultPosition=7
 
 **Congress Did Not Finish Certifying the Election Results. What Happens Next?**\
 `A mob of protesters interrupted certification of the 2020 electoral votes, injecting uncertainty into what happens next in the largely procedural action.`\
-https://nytimes.com/2021/01/06/us/politics/congress-certifying-the-election-explainer.html?searchResultPosition=6
+https://nytimes.com/2021/01/06/us/politics/congress-certifying-the-election-explainer.html?searchResultPosition=8
 
 **Evening Briefing Special Edition: A Pro-Trump Mob Storms the Capitol**\
 `Here’s what you need to know.`\
-https://nytimes.com/2021/01/06/briefing/pro-trump-mob-storms-the-capitol.html?searchResultPosition=7
+https://nytimes.com/2021/01/06/briefing/pro-trump-mob-storms-the-capitol.html?searchResultPosition=9
 
 **The entire D.C. National Guard has been mobilized.**\
 `By Eric Schmitt`\
-https://nytimes.com/2021/01/06/us/politics/the-entire-dc-national-guard-has-been-mobilized.html?searchResultPosition=8
-
-**Kelly Loeffler Is Done in the Senate. But What About in the W.N.B.A.?**\
-`Loeffler, who co-owns the Atlanta Dream, lost her Senate race on Tuesday, renewing questions about whether she has a place in a league where many players want her gone.`\
-https://nytimes.com/2021/01/06/sports/kelly-loeffler-wnba.html?searchResultPosition=9
-
-**Woman who was shot in the Capitol has died.**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/2021/01/06/us/politics/woman-shot-capitol-dead.html?searchResultPosition=10
+https://nytimes.com/2021/01/06/us/politics/the-entire-dc-national-guard-has-been-mobilized.html?searchResultPosition=10
 
