@@ -1,6 +1,6 @@
 **Trump’s Real Claim to Fame**\
 `When it comes to the president, there can never be enough losing.`\
-https://nytimes.com/2021/01/06/opinion/columnists/trumps-real-claim-to-fame.html?searchResultPosition=1
+https://nytimes.com/2021/01/06/opinion/trump-georgia-republicans.html?searchResultPosition=1
 
 **West Virginia Lawmaker Among Those Who Stormed U.S. Capitol**\
 `The lawmaker, Derrick Evans, posted a video showing himself in the crowd rushing into the building.`\
