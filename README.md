@@ -19,7 +19,7 @@ https://nytimes.com/2021/01/07/opinion/letters/capitol-assault.html?searchResult
 https://nytimes.com/2021/01/07/style/capitol-riot-tactics.html?searchResultPosition=5
 
 **A Riot Amid a Pandemic: Did the Virus, Too, Storm the Capitol?**\
-`Some scientists fear that the mayhem on Capitol Hill may lead to a so-called super-spreading event.`\
+`Some scientists fear that the mayhem on Capitol Hill may have been a so-called super-spreading event.`\
 https://nytimes.com/2021/01/07/health/coronavirus-capitol-riot.html?searchResultPosition=6
 
 **France vows to speed up vaccinations as it warns that restrictions will remain in place for now.**\
