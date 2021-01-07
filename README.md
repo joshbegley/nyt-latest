@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/07/insider/52-places-you-cherish.html?searchResultPosition=1
 
 **There’s Dance All Over, No Matter Where You Look**\
-`(TKTK)Live dance may largely be on hold, but there’s still beauty and catharsis outside of theaters, in the movements we encounter every day.`\
+`Live dance may largely be on hold, but there’s still beauty and catharsis outside of theaters, in the movements we encounter every day.`\
 https://nytimes.com/2021/01/07/arts/dance/dance-is-everywhere.html?searchResultPosition=2
 
 **Child Welfare Agency Cuts Ties to Professor Over Pedophile Studies**\
