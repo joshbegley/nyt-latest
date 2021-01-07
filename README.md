@@ -24,7 +24,7 @@ https://nytimes.com/2021/01/06/world/asia/hong-kong-quarantine.html?searchResult
 
 **He looted Speaker Pelosi’s office, but says he paid for his trophy.**\
 `By Matthew Rosenberg`\
-https://nytimes.com/2021/01/06/us/politics/he-looted-speaker-pelosis-office-but-says-he-paid-for-his-trophy.html?searchResultPosition=7
+https://nytimes.com/2021/01/06/us/politics/richard-barnett-pelosi.html?searchResultPosition=7
 
 **Loeffler Reverses Plan to Object to Georgia Election Results**\
 `Senator Kelly Loeffler, who lost a Senate runoff race in Georgia, decided not to object to election results Wednesday night after Trump supporters stormed the U.S. Capitol.`\
