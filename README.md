@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007538756/macron-washington-democracy.html?searchResultPosition=1
 
 **Facebook bans Trump indefinitely.**\
-`Facebook will block President Trump on its platforms, including Instagram, at least until the end of his term, chief executive Mark Zuckerberg said in a post on Thursday.`\
+`“We believe the risks of allowing the president to continue to use our service during this period are simply too great,” Mark Zuckerberg, Facebook’s chief executive, said.`\
 https://nytimes.com/2021/01/07/business/facebook-trump-ban.html?searchResultPosition=2
 
 **Record Coronavirus Cases Trigger State of Emergency for Tokyo**\
