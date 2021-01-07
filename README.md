@@ -26,15 +26,4 @@ https://nytimes.com/2021/01/06/us/politics/capitol-breach-trump-protests.html?se
 `Hundreds of people barreled past fence barricades and clashed with police officers in an attempt to disrupt the certification of the Electoral College results.`\
 https://nytimes.com/interactive/2021/01/06/us/trump-mob-capitol-building.html?searchResultPosition=7
 
-**Impeach and Convict. Right Now.**\
-`Trump is too dangerous to leave in office for even another minute.`\
-https://nytimes.com/2021/01/06/opinion/impeach-trump.html?searchResultPosition=8
-
-**What Are Your Reactions to the Storming of the Capitol by a Pro-Trump Mob?**\
-`What did you feel, notice and wonder as you heard about this news? What does it say about the strength of American democracy?`\
-https://nytimes.com/2021/01/06/learning/what-are-your-reactions-to-the-storming-of-the-capitol-by-a-pro-trump-mob.html?searchResultPosition=9
-
-**‘This Is Still The People’s House,’ Pence Declares After Mob Storms Capitol**\
-`Vice President Mike Pence reconvened lawmakers to count Electoral College votes hours after Trump supporters disrupted the previous session.`\
-https://nytimes.com/video/us/politics/100000007537933/pence-senate-capitol-electoral-college-vote.html?searchResultPosition=10
-
+**Watch live: House reconvenes to debate challenges of Biden’s victory.**\
