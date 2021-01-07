@@ -6,8 +6,8 @@ https://nytimes.com/video/us/politics/100000007538029/kelly-loeffler-senate-runo
 `Matthew Stock makes his New York Times Crossword debut in a collaboration with Sid Sivakumar.`\
 https://nytimes.com/2021/01/06/crosswords/daily-puzzle-2020-01-07.html?searchResultPosition=2
 
-**A Split Screen for the Trump Era: Barrier Breaking in Georgia, Violence in Washington**\
-`One January day, with Senate victories for Raphael Warnock and Jon Ossoff and a mob at the Capitol, encapsulated the politics of progress and grievance that have defined the Trump years.`\
+**A Democratic Triumph in Georgia, Overshadowed by Right-Wing Violence in Washington**\
+`One January day encapsulated the politics of progress and grievance that have defined the presidency of Donald Trump.`\
 https://nytimes.com/2021/01/06/us/politics/georgia-senate-trump-black-voters.html?searchResultPosition=3
 
 **Senate Leaders Condemn Mob’s Assault on U.S. Capitol**\
