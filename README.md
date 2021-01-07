@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/07/learning/film-club-an-ode-to-the-before-times.htm
 
 **Fauci says he thinks that January will get worse, and that the vaccination effort needs more time.**\
 `By Karen Zraick and Rebecca Robbins`\
-https://nytimes.com/2021/01/07/world/fauci-says-he-thinks-that-january-will-get-worse-and-that-the-vaccination-effort-needs-more-time.html?searchResultPosition=2
+https://nytimes.com/2021/01/07/world/fauci-coronavirus-january.html?searchResultPosition=2
 
 **Assault on the Capitol: America’s ‘Dark Night of the Soul’**\
 `Readers urge that President Trump be removed from office or prosecuted, assess blame, and wonder why a mob was able to storm the Capitol unimpeded.`\
