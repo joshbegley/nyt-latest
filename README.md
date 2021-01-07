@@ -1,4 +1,4 @@
-**Japan Declares State of Emergency in Tokyo Area After Days of Hesitation**\
+**Japan to Declare State of Emergency in Tokyo Area After Days of Hesitation**\
 `Fast-rising coronavirus case counts and deaths forced Prime Minister Yoshihide Suga to act, but some say the restrictions — mostly voluntary — won’t be enough.`\
 https://nytimes.com/2021/01/07/world/asia/japan-state-of-emergency.html?searchResultPosition=1
 
