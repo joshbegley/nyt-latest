@@ -14,7 +14,7 @@ https://nytimes.com/2021/01/07/arts/jean-valentine-dead.html?searchResultPositio
 `By Sapna Maheshwari`\
 https://nytimes.com/2021/01/07/business/shopify-trump-online-store.html?searchResultPosition=4
 
-**The Trump Administration Officials Who Resigned Over Capitol Violence**\
+**Trump Administration Officials Who Resigned Over Capitol Violence**\
 `Several officials announced that they were stepping down after a mob of the president’s supporters disrupted the process of certifying the election results on Wednesday.`\
 https://nytimes.com/article/trump-resignations.html?searchResultPosition=5
 
