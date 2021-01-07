@@ -10,8 +10,8 @@ https://nytimes.com/2021/01/07/sports/football/nfl-picks-wild-card-playoffs.html
 `Our streaming picks for January, including ‘Cobra Kai,’ ‘Bump’ and ‘One Night in Miami …’`\
 https://nytimes.com/2021/01/06/arts/television/best-movies-tv-new-netflix-amazon-australia-january.html?searchResultPosition=3
 
-**Your Thursday Briefing**\
-`A mob incited by President Trump stormed the U.S. Capitol.`\
+**U.S. Election, Trump, Britain: Your Thursday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2021/01/06/briefing/trump-election-senate-uk.html?searchResultPosition=4
 
 **Quotation of the Day: Trump Incites Mob**\
