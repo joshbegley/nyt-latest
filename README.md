@@ -1,6 +1,6 @@
 **Inside the Capitol, the Sound of the Mob Came First**\
 `Not long after Senator Mitch McConnell warned his Republican colleagues that their efforts to overturn an election would send democracy into a “death spiral,” fear surged through the Senate chamber.`\
-https://nytimes.com/2021/01/06/us/politics/inside-capitol-mob.html?searchResultPosition=1
+https://nytimes.com/2021/01/06/us/politics/photos-capitol-building-protesters.html?searchResultPosition=1
 
 **Police response to Capitol mob is in striking contrast to protests after George Floyd killing.**\
 `By Shaila Dewan`\
