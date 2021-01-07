@@ -34,7 +34,7 @@ https://nytimes.com/2021/01/07/arts/things-to-do-weekend-coronavirus.html?search
 `Eley Williams’s first novel, “The Liar’s Dictionary,” is a hilarious and clever homage to the power of words, both real and imagined.`\
 https://nytimes.com/2021/01/07/books/review/the-liars-dictionary-eley-williams.html?searchResultPosition=9
 
-**This Time, He Stars In His Own Story**\
-`Gabriel Byrne, known for his contemplative performances in “The Usual Suspects” and “In Treatment,” contends with his unlikely path to acting in his memoir, “Walking With Ghosts.”`\
-https://nytimes.com/2021/01/07/books/gabriel-byrne-walking-with-ghosts.html?searchResultPosition=10
+**I’m Haunted by Daniel Pearl’s Murder**\
+`The recent order by a Pakistani court to release his kidnapper opens old wounds and raises old questions about the war on terror that have never been resolved.`\
+https://nytimes.com/2021/01/07/opinion/daniel-pearl-killing.html?searchResultPosition=10
 
