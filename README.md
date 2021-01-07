@@ -32,7 +32,7 @@ https://nytimes.com/video/us/politics/100000007538029/kelly-loeffler-senate-runo
 
 **A to A, Say**\
 `Matthew Stock makes his New York Times Crossword debut in a collaboration with Sid Sivakumar.`\
-https://nytimes.com/2021/01/06/crosswords/daily-puzzle-2020-01-07.html?searchResultPosition=9
+https://nytimes.com/2021/01/06/crosswords/daily-puzzle-2021-01-07.html?searchResultPosition=9
 
 **A Democratic Triumph in Georgia, Overshadowed by Right-Wing Violence in Washington**\
 `One January day encapsulated the politics of progress and grievance that have defined the presidency of Donald Trump.`\
