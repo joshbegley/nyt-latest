@@ -14,27 +14,27 @@ https://nytimes.com/2021/01/06/us/politics/congress-certifying-the-election-expl
 `Here’s what you need to know.`\
 https://nytimes.com/2021/01/06/briefing/pro-trump-mob-storms-the-capitol.html?searchResultPosition=4
 
+**The entire D.C. National Guard has been mobilized.**\
+`By Eric Schmitt`\
+https://nytimes.com/2021/01/06/us/politics/the-entire-dc-national-guard-has-been-mobilized.html?searchResultPosition=5
+
 **Kelly Loeffler Is Done in the Senate. But What About in the W.N.B.A.?**\
 `Loeffler, who co-owns the Atlanta Dream, lost her Senate race on Tuesday, renewing questions about whether she has a place in a league where many players want her gone.`\
-https://nytimes.com/2021/01/06/sports/kelly-loeffler-wnba.html?searchResultPosition=5
+https://nytimes.com/2021/01/06/sports/kelly-loeffler-wnba.html?searchResultPosition=6
 
 **Woman who was shot in the Capitol has died.**\
 `By Nicholas Bogel-Burroughs`\
-https://nytimes.com/2021/01/06/us/politics/woman-who-was-shot-in-the-capitol-has-died.html?searchResultPosition=6
+https://nytimes.com/2021/01/06/us/politics/woman-who-was-shot-in-the-capitol-has-died.html?searchResultPosition=7
 
 **Twitter takes down Trump’s tweet that encouraged his supporters to ‘remember this day.’**\
 `By The New York Times`\
-https://nytimes.com/2021/01/06/us/politics/twitter-deletes-trump-tweet.html?searchResultPosition=7
+https://nytimes.com/2021/01/06/us/politics/twitter-deletes-trump-tweet.html?searchResultPosition=8
 
 **Coronavirus Briefing: What Happened Today**\
 `Public health experts say there is still time to contain the new variant.`\
-https://nytimes.com/2021/01/06/us/coronavirus-today.html?searchResultPosition=8
+https://nytimes.com/2021/01/06/us/coronavirus-today.html?searchResultPosition=9
 
 **Sunil Kothari, Eminent Scholar of Indian Dance, Dies at 87**\
 `A critic for The Times of India and a teacher of youthful energy, he explored a country rich in dance traditions, interviewing hundreds of gurus.`\
-https://nytimes.com/2021/01/06/arts/dance/sunil-kothari-dead.html?searchResultPosition=9
-
-**Violence on Capitol Hill Is a Day of Reckoning for Social Media**\
-`Critics and even some allies of companies like Twitter and Facebook say they have failed to prevent the misinformation that led to chaos on Wednesday.`\
-https://nytimes.com/2021/01/06/technology/violence-election-capitol-hill-social-media.html?searchResultPosition=10
+https://nytimes.com/2021/01/06/arts/dance/sunil-kothari-dead.html?searchResultPosition=10
 
