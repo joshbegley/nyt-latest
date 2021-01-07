@@ -22,19 +22,19 @@ https://nytimes.com/2021/01/07/style/social-qs-parenting-drinking.html?searchRes
 `In the eerie, gleefully absurdist second season, the young poet ponders whether it’s better to be Nobody.`\
 https://nytimes.com/2021/01/07/arts/television/dickinson-review.html?searchResultPosition=6
 
+**LVMH completes its acquisition of Tiffany, and an executive shake-up follows.**\
+`By Vanessa Friedman`\
+https://nytimes.com/2021/01/07/business/lvmh-tiffany.html?searchResultPosition=7
+
 **The T List: Five Things We Recommend This Week**\
 `Sculptural jewelry, puzzles in celebration of Black queer identity — and more.`\
-https://nytimes.com/2021/01/07/t-magazine/loewe-totoro-black-queer-puzzles.html?searchResultPosition=7
+https://nytimes.com/2021/01/07/t-magazine/loewe-totoro-black-queer-puzzles.html?searchResultPosition=8
 
 **On Alex Trebek’s Final ‘Jeopardy!,’ a Last Introduction From a Friend**\
 `Johnny Gilbert, 92, started on the game show with Trebek in 1984. Now, he must imagine a ‘Jeopardy!’ without his longtime colleague.`\
-https://nytimes.com/2021/01/07/arts/television/alex-trebek-jeopardy-johnny-gilbert.html?searchResultPosition=8
+https://nytimes.com/2021/01/07/arts/television/alex-trebek-jeopardy-johnny-gilbert.html?searchResultPosition=9
 
 **The Don Quixote of Brooklyn, Tilting at Plastic Bags**\
 `His quest? To remove garbage from the branches of trees throughout our fair city.`\
-https://nytimes.com/2021/01/07/nyregion/trees-plastic-bags.html?searchResultPosition=9
-
-**‘We Believe in the Strength of American Democracy,’ Macron Says**\
-`Global leaders, including President Emmanuel Macron of France, reacted to the riot in Washington, expressing support for America.`\
-https://nytimes.com/video/us/politics/100000007538756/macron-washington-democracy.html?searchResultPosition=10
+https://nytimes.com/2021/01/07/nyregion/trees-plastic-bags.html?searchResultPosition=10
 
