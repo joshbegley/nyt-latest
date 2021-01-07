@@ -1,6 +1,6 @@
 **Police response to Capitol mob is in striking contrast to protests after George Floyd killing.**\
 `By Shaila Dewan`\
-https://nytimes.com/2021/01/06/us/politics/police-response-to-capitol-mob-is-in-striking-contrast-to-protests-after-george-floyd-killing.html?searchResultPosition=1
+https://nytimes.com/2021/01/06/us/politics/capitol-george-floyd-dc-protests.html?searchResultPosition=1
 
 **America’s Friends Express Horror and Shock as Capitol Attack ‘Shakes the World’**\
 `Global leaders watched live as a mob stormed the U.S. Capitol, and many saw it as a warning to global democracies, placing the blame squarely on President Trump.`\
@@ -24,7 +24,7 @@ https://nytimes.com/2021/01/06/us/politics/woman-who-was-shot-in-the-capitol-has
 
 **Twitter takes down Trump’s tweet that encouraged his supporters to ‘remember this day.’**\
 `By The New York Times`\
-https://nytimes.com/2021/01/06/us/politics/twitter-takes-down-trumps-tweet-that-encouraged-his-supporters-to-remember-this-day.html?searchResultPosition=7
+https://nytimes.com/2021/01/06/us/politics/twitter-deletes-trump-tweet.html?searchResultPosition=7
 
 **Coronavirus Briefing: What Happened Today**\
 `Public health experts say there is still time to contain the new variant.`\
