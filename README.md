@@ -30,7 +30,7 @@ https://nytimes.com/2021/01/06/sports/kelly-loeffler-wnba.html?searchResultPosit
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/2021/01/06/us/politics/woman-shot-capitol-dead.html?searchResultPosition=8
 
-**Twitter takes down Trump’s tweet that encouraged his supporters to ‘remember this day.’**\
+**Twitter locks Trump’s account after he encouraged his supporters to ‘remember this day.’**\
 `By The New York Times`\
 https://nytimes.com/2021/01/06/us/politics/twitter-deletes-trump-tweet.html?searchResultPosition=9
 
