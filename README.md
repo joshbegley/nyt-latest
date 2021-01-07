@@ -4,7 +4,7 @@ https://nytimes.com/video/us/100000007537444/dc-protest-electoral-vote-hearings.
 
 **Covering Pro-Trump Mobs, the News Media Became a Target**\
 `“Murder the media” was scratched into a door of the Capitol. Violent protesters smashed equipment and punched a photographer.`\
-https://nytimes.com/2021/01/06/business/media/capitol-pro-trump-rampage-media-attacks.html?searchResultPosition=2
+https://nytimes.com/2021/01/06/business/media/media-murder-capitol-building.html?searchResultPosition=2
 
 **‘Be There. Will Be Wild!’: Trump All but Circled the Date**\
 `Inside Trump supporters’ online echo chambers, the chaos of Jan. 6 could be seen coming. People posted their plans to come to Washington — and showed the weapons they would carry.`\
