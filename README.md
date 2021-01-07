@@ -30,9 +30,9 @@ https://nytimes.com/2021/01/07/us/politics/pelosi-trump-removed-from-office.html
 `Police will go to California to investigate the incident, in which the woman falsely accused the son of a prominent jazz musician of stealing her phone.`\
 https://nytimes.com/2021/01/07/nyregion/arlo-hotel-keyon-harrold.html?searchResultPosition=8
 
-**Watch Live: Biden Delivers Remarks**\
-`President-elect Joseph R. Biden Jr. addresses the aftermath of the U.S. Capitol riot and is expected to introduce Department of Justice nominees.`\
-https://nytimes.com/video/us/politics/100000007538946/biden-justice-department-nominees-live.html?searchResultPosition=9
+**Watch: Biden Delivers Remarks**\
+`President-elect Joseph R. Biden Jr. addressed the aftermath of the U.S. Capitol riot and is expected to introduce Department of Justice nominees.`\
+https://nytimes.com/video/embedded/us/politics/100000007538946/biden-justice-department-nominees-live.html?searchResultPosition=9
 
 **Shakespeare, Swing and Louis Armstrong. So What Went Wrong?**\
 `Three theaters are exploring “Swingin’ the Dream,” which tanked on Broadway in 1939, but opens a window on the racial and artistic dynamics of its time.`\
