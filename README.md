@@ -1,6 +1,6 @@
 **Here are the Republicans who objected to certifying the election results.**\
 `By Jenny Gross and Luke Broadwater`\
-https://nytimes.com/2021/01/07/us/politics/here-are-the-republicans-who-objected-to-certifying-the-election-results.html?searchResultPosition=1
+https://nytimes.com/2021/01/07/us/politics/republicans-against-certification.html?searchResultPosition=1
 
 **An Ugly Day in America**\
 `The president incites mob violence, and Congress defies him: This is your morning tip sheet.`\
