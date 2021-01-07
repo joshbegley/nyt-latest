@@ -1,40 +1,40 @@
-**Congress Certifies Biden’s Election Victory**\
-`After a pro-Trump mob stormed the Capitol on Wednesday, the Senate and House voted early Thursday to certify Joseph R. Biden Jr. as winner of the 2020 presidential election.`\
-https://nytimes.com/video/us/politics/100000007538295/congress-senate-house-certify-2020-election-biden.html?searchResultPosition=1
+**52 Places You Cherish**\
+`Instead of its traditional list of destinations, the Travel desk asked readers about locales with special meaning to them.`\
+https://nytimes.com/2021/01/07/insider/52-places-you-cherish.html?searchResultPosition=1
 
-**Lesson of the Day: ‘‘I Will Get Up’: A Hard New Year Greets a World in Waiting’**\
-`In this lesson, students will learn about how countries around the world are viewing, and dealing with, the coronavirus pandemic in the first days of 2021.`\
-https://nytimes.com/2021/01/07/learning/lesson-of-the-day-i-will-get-up-a-hard-new-year-greets-a-world-in-waiting.html?searchResultPosition=2
+**There’s Dance All Over, No Matter Where You Look**\
+`(TKTK)Live dance may largely be on hold, but there’s still beauty and catharsis outside of theaters, in the movements we encounter every day.`\
+https://nytimes.com/2021/01/07/arts/dance/dance-is-everywhere.html?searchResultPosition=2
 
-**Stephen Colbert Goes ‘Unexpectedly Live’**\
-`“It’s a horrifying day that will go down in U.S. history, however much longer that is,” Colbert said after President Trump incited a mob of his supporters to storm the Capitol.`\
-https://nytimes.com/2021/01/07/arts/television/stephen-colbert-trump-capitol.html?searchResultPosition=3
+**Child Welfare Agency Cuts Ties to Professor Over Pedophile Studies**\
+`The New York City Administration for Children’s Services will no longer work with Theo Sandfort, a professor who headed a separate study on L.G.B.T.Q. youth in foster care.`\
+https://nytimes.com/2021/01/07/nyregion/nyc-foster-care-professor-pedophilia.html?searchResultPosition=3
 
-**The Nets Looked Unstoppable Early. They’ve Proved to Be Mortal.**\
-`Kevin Durant and Kyrie Irving have meshed well. But the team has lost a starter to injury, and the bench lineup has often been outplayed. Recent changes are promising.`\
-https://nytimes.com/2021/01/07/sports/basketball/the-nets-looked-unstoppable-early-theyve-proved-to-be-mortal.html?searchResultPosition=4
+**Beethoven’s ‘Für Elise’ Doesn’t Deserve Your Eye Rolls**\
+`It is overplayed all over pop culture. But the pianist Igor Levit says it is “one of the most beautiful pieces I know.”`\
+https://nytimes.com/2021/01/07/arts/music/beethoven-fur-elise-igor-levit.html?searchResultPosition=4
 
-**A Push for Cyclists Safety After 5 Die Near Las Vegas**\
-`The growing metropolitan area often pits cars and construction against cyclists, with tragic consequences and calls for better regulation.`\
-https://nytimes.com/2021/01/07/sports/cycling/cyclists-safety-las-vegas.html?searchResultPosition=5
+**Carmakers Put Their Biggest Faces Forward**\
+`They look as if they could strain spaghetti: Grilles are making a design statement.`\
+https://nytimes.com/2021/01/07/business/new-cars-huge-grilles.html?searchResultPosition=5
 
-**The Song Is You … for the Rest of Your Life**\
-`What’s it like to be name-checked by Taylor Swift, Beyoncé, Amy Winehouse, et al? We asked, among others, “our” Sharona.`\
-https://nytimes.com/2021/01/07/style/taylor-swift-evermore-.html?searchResultPosition=6
+**As State Legislatures Aim to Convene Amid Covid, One Tries a Drive-in**\
+`New Hampshire’s House of Representatives, whose speaker died of the coronavirus, has refused to meet remotely.`\
+https://nytimes.com/2021/01/07/us/new-hampshire-drive-in-legislature.html?searchResultPosition=6
 
-**The Record Keepers’ Rave**\
-`Every month, the archival institutions of this nation unleash tiny particles of the past in a frenzy of online revelry.`\
-https://nytimes.com/2021/01/07/style/archives-hashtag-party.html?searchResultPosition=7
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually.`\
+https://nytimes.com/2021/01/07/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=7
 
-**Soothing Video Games**\
-`Can video games intended to calm the mind be fun? Worthwhile?`\
-https://nytimes.com/2021/01/07/learning/soothing-video-games.html?searchResultPosition=8
+**A Comic Novel, a Mystery, a Love Story, a Melodrama — All About Words**\
+`Eley Williams’s first novel, “The Liar’s Dictionary,” is a hilarious and clever homage to the power of words, both real and imagined.`\
+https://nytimes.com/2021/01/07/books/review/the-liars-dictionary-eley-williams.html?searchResultPosition=8
 
-**Japan Declares State of Emergency in Tokyo Area After Days of Hesitation**\
-`Fast-rising coronavirus case counts and deaths forced Prime Minister Yoshihide Suga to act, but some say the restrictions — mostly voluntary — won’t be enough.`\
-https://nytimes.com/2021/01/07/world/asia/japan-state-of-emergency.html?searchResultPosition=9
+**This Time, He Stars In His Own Story**\
+`Gabriel Byrne, known for his contemplative performances in “The Usual Suspects” and “In Treatment,” contends with his unlikely path to acting in his memoir, “Walking With Ghosts.”`\
+https://nytimes.com/2021/01/07/books/gabriel-byrne-walking-with-ghosts.html?searchResultPosition=9
 
-**Asking the N.F.L. Playoff Questions That Need Answers**\
-`Can Tom Brady keep the momentum going? Is Seattle’s defense good again? Can anyone beat the Chiefs?`\
-https://nytimes.com/2021/01/07/sports/football/nfl-playoff-games.html?searchResultPosition=10
+**I’m Haunted by Daniel Pearl’s Murder**\
+`The recent order by a Pakistani court to release his kidnapper opens old wounds and raises old questions about the war on terror that have never been resolved.`\
+https://nytimes.com/2021/01/07/opinion/daniel-pearl-killing.html?searchResultPosition=10
 
