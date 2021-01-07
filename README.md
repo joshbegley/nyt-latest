@@ -1,5 +1,5 @@
 **With Democrats in Control, Biden Moves to Advance Agenda**\
-`By gaining the Senate, Democrats have the chance to move on large parts of the president-elect’s ambitions for the economy, health care, climate change and more`\
+`By gaining the Senate, Democrats have the chance to move on large parts of the president-elect’s ambitions for the economy, health care, climate change and more.`\
 https://nytimes.com/2021/01/07/business/democrats-biden-agenda.html?searchResultPosition=1
 
 **25th Amendment, Capitol Police, Merkel: Your Thursday Evening Briefing**\
