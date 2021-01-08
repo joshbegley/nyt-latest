@@ -22,19 +22,19 @@ https://nytimes.com/2021/01/08/business/sperm-donors-facebook-groups.html?search
 `Dr. Stephanie Sterling, an infectious disease expert, treats patients and oversees vaccination efforts and trials.`\
 https://nytimes.com/2021/01/08/nyregion/coronavirus-vaccinations-nyc.html?searchResultPosition=6
 
+**In 177 Portraits, an Artist’s Homage to His Bed-Stuy Muse**\
+`Over five years, Kambui Olujimi created paintings in tribute to Catherine Arline, a mentor from childhood on. Years after her passing, they speak more intimately than any statue could.`\
+https://nytimes.com/2021/01/08/arts/olujimi-portraits.html?searchResultPosition=7
+
 **For Immigrants Watching a Mob Storm the Capitol, a Sense of Shock and Shame**\
 `After years of seeing the U.S. as a beacon of democracy, many new Americans found themselves asking: Had their new country fallen this low? Or was this what it was all along?`\
-https://nytimes.com/2021/01/08/us/immigrants-capitol-riot.html?searchResultPosition=7
+https://nytimes.com/2021/01/08/us/immigrants-capitol-riot.html?searchResultPosition=8
 
 **What We Found in Robert Caro’s Yellowed Files**\
 `The author of “The Power Broker” and a multivolume biography of L.B.J. is giving awed archivists — and New York — access to more than 50 years of research.`\
-https://nytimes.com/2021/01/08/nyregion/robert-caro-archives.html?searchResultPosition=8
+https://nytimes.com/2021/01/08/nyregion/robert-caro-archives.html?searchResultPosition=9
 
 **Help! Despite State Travel Restrictions, I Can’t Get My Ski Pass Refunded**\
 `A reader writes in, saying he can’t ski because he can’t get into the state. It’s a very 2020 — wait, 2021 — travel predicament.`\
-https://nytimes.com/2021/01/08/travel/vail-resorts-epicpass-refunds.html?searchResultPosition=9
-
-**In 177 Portraits, an Artist’s Homage to his Bed-Stuy Muse**\
-`Over five years, Kambui Olujimi created paintings in tribute to Catherine Arline, a mentor from childhood on. Years after her passing, they speak more intimately than any statue could.`\
-https://nytimes.com/2021/01/08/arts/olujimi-portraits.html?searchResultPosition=10
+https://nytimes.com/2021/01/08/travel/vail-resorts-epicpass-refunds.html?searchResultPosition=10
 
