@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/07/us/politics/in-a-new-video-trump-addresses-violen
 
 **Woman Killed in Capitol Embraced Trump and QAnon**\
 `After 14 years in the military, Ashli Babbitt bought a pool supply company and delved into far-right politics.`\
-https://nytimes.com/2021/01/07/us/woman-killed-in-capitol-embraced-trump-and-qanon.html?searchResultPosition=5
+https://nytimes.com/2021/01/07/us/who-was-ashli-babbitt.html?searchResultPosition=5
 
 **Less Than Two Weeks To Go**\
 `No Americans should have to lose their lives to a transition of presidential power.`\
