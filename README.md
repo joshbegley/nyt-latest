@@ -1,40 +1,40 @@
-**His Job Is Counting Stephen Curry’s 3-Pointers. You’d Retire, Too.**\
-`On the heels of Curry’s 62-point explosion (and after 57 years in his role), Fred Kast is retiring as the Golden State Warriors’ official scorekeeper.`\
-https://nytimes.com/2021/01/08/sports/basketball/fred-kast-golden-state-warriors.html?searchResultPosition=1
+**We Need a Second Great Migration**\
+`Georgia illuminates the path to Black power. It lies in the South. Follow me there.`\
+https://nytimes.com/2021/01/08/opinion/georgia-black-political-power.html?searchResultPosition=1
 
-**Seats at the Counter**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2021/01/08/learning/seats-at-the-counter.html?searchResultPosition=2
+**Preserving New York’s Ties to the Underground Railroad**\
+`Safe houses and other structures used in the fight against slavery were often clandestine, and survivors today can be difficult to document. But there’s a 19th-century house in Washington Heights …`\
+https://nytimes.com/2021/01/08/realestate/streetscapes-washington-heights.html?searchResultPosition=2
 
-**Capitol Police Officer Dies From Injuries in Pro-Trump Rampage**\
-`The officer, identified as Brian D. Sicknick, was initially injured while “physically engaging with protesters,” the department said, and later collapsed after returning to his division office.`\
-https://nytimes.com/2021/01/08/us/brian-sicknick-police-capitol-dies.html?searchResultPosition=3
+**Ghosts of the Underground Railroad**\
+`Preservationists face an uphill battle as they try to identify and save buildings that might once have been used in the fight against slavery in the 19th century.`\
+https://nytimes.com/slideshow/2021/01/08/realestate/underground-railroad-washington-heights.html?searchResultPosition=3
 
-**Late Night Is Unimpressed by Titanic-Fleeing Republicans**\
-`“Resigning with two weeks left feels less like some moral stand and more like leaving early to beat traffic,” Jimmy Fallon said of the departing officials.`\
-https://nytimes.com/2021/01/08/arts/television/trump-mob-resignations-jimmy-fallon.html?searchResultPosition=4
+**The Sperm Kings Have a Problem: Too Much Demand**\
+`Many people want a pandemic baby, but some sperm banks are running low. So women are joining unregulated Facebook groups to find willing donors, no middleman required.`\
+https://nytimes.com/2021/01/08/business/sperm-donors-facebook-groups.html?searchResultPosition=4
 
-**2020 Ties 2016 as Hottest Yet, European Analysis Shows**\
-`The global average temperature in 2020 was about 2.25 degrees Fahrenheit warmer than the average from 1850 to 1900, data from the Copernicus Climate Change Service indicates.`\
-https://nytimes.com/2021/01/08/climate/hottest-year-ever.html?searchResultPosition=5
+**How the Head of a Vaccine Research Clinic Spends Her Sundays**\
+`Dr. Stephanie Sterling, an infectious disease expert, treats patients and oversees vaccination efforts and trials.`\
+https://nytimes.com/2021/01/08/nyregion/coronavirus-vaccinations-nyc.html?searchResultPosition=5
 
-**Word + Quiz: disparage**\
-`This word has appeared in 45 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/01/08/learning/word-quiz-disparage.html?searchResultPosition=6
+**For Immigrants Watching a Mob Storm the Capitol, a Sense of Shock and Shame**\
+`After years of seeing the U.S. as a beacon of democracy, many new Americans found themselves asking: Had their new country fallen this low? Or was this what it was all along?`\
+https://nytimes.com/2021/01/08/us/immigrants-capitol-riot.html?searchResultPosition=6
 
-**Wall Street Journal editorial board urges Trump to resign to avoid second impeachment.**\
-`By Michael M. Grynbaum`\
-https://nytimes.com/2021/01/08/us/politics/wall-street-journal-editorial-urges-trump-to-resign-to-avoid-second-impeachment.html?searchResultPosition=7
+**What We Found in Robert Caro’s Yellowed Files**\
+`The author of “The Power Broker” and a multivolume biography of L.B.J. is giving awed archivists — and New York — access to more than 50 years of research.`\
+https://nytimes.com/2021/01/08/nyregion/robert-caro-archives.html?searchResultPosition=7
 
-**Gunmen Storm Wake in Mexico, Killing at Least Nine**\
-`It was the latest bloody attack to roil the central state of Guanajuato, which is embroiled in a turf war between rival criminal groups.`\
-https://nytimes.com/2021/01/08/world/americas/mexico-killings-guanajuato.html?searchResultPosition=8
+**Help! Despite State Travel Restrictions, I Can’t Get My Ski Pass Refunded**\
+`A reader writes in, saying he can’t ski because he can’t get into the state. It’s a very 2020 — wait, 2021 — travel predicament.`\
+https://nytimes.com/2021/01/08/travel/vail-resorts-epicpass-refunds.html?searchResultPosition=8
 
-**‘Hateful’ Tweet About Stacey Abrams Costs University Football Coach His Job**\
-`The University of Tennessee at Chattanooga said that it had parted ways with Chris Malone, an offensive line coach, over a now-deleted social media post.`\
-https://nytimes.com/2021/01/08/us/coach-fired-stacey-abrams.html?searchResultPosition=9
+**In 177 Portraits, an Artist’s Homage to his Bed-Stuy Muse**\
+`Over five years, Kambui Olujimi created paintings in tribute to Catherine Arline, a mentor from childhood on. Years after her passing, they speak more intimately than any statue could.`\
+https://nytimes.com/2021/01/08/arts/olujimi-portraits.html?searchResultPosition=9
 
-**A Capitol Police officer dies from injuries sustained during the pro-Trump rampage.**\
-`Officer Brian D. Sicknick died Thursday night. Officials said he was “injured while physically engaging with protesters.”`\
-https://nytimes.com/2021/01/07/us/politics/a-capitol-police-officer-dies-from-injuries-sustained-during-the-pro-trump-rampage.html?searchResultPosition=10
+**Mike Tomlin Reaches Another N.F.L. Postseason With Fewer Black Peers**\
+`The Pittsburgh Steelers’ coach hasn’t had a losing season in 14 years. His acumen and approach have stabilized the team even amid player controversies and as the N.F.L. has struggled with race.`\
+https://nytimes.com/2021/01/08/sports/football/mike-tomlin-steelers.html?searchResultPosition=10
 
