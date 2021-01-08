@@ -1,40 +1,40 @@
+**Small-Business Loan Program Will Restart Monday, but Not for All**\
+`A small group of lenders that focus on underserved borrowers will get priority when the Paycheck Protection Program resumes.`\
+https://nytimes.com/2021/01/08/business/smallbusiness/ppp-loans-restart.html?searchResultPosition=1
+
 **‘They Know What It’s Like’: Biden Fills Out His Economic Team**\
 `On Friday, President-elect Joseph R. Biden Jr. announced additional members of his cabinet, including his choices to run the Labor and Commerce Departments.`\
-https://nytimes.com/video/us/politics/100000007541579/biden-economic-team-nominations.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000007541579/biden-economic-team-nominations.html?searchResultPosition=2
 
 **How to Impeach a President in 12 Days: Here’s What It Would Take**\
 `The storming of the Capitol has prompted a fresh drive by Democrats to impeach President Trump, who egged on the insurrection, for a second time. But there are less than two weeks left in his term.`\
-https://nytimes.com/2021/01/08/us/politics/impeachment-president-trump-capitol.html?searchResultPosition=2
+https://nytimes.com/2021/01/08/us/politics/impeachment-president-trump-capitol.html?searchResultPosition=3
 
 **The Capitol Takeover That Wasn’t**\
 `In 1861, a pro-Southern mob wanted to block the tallying of electoral votes for Lincoln. So did some congressmen.`\
-https://nytimes.com/2021/01/08/opinion/capitol-protest-1861-lincoln.html?searchResultPosition=3
+https://nytimes.com/2021/01/08/opinion/capitol-protest-1861-lincoln.html?searchResultPosition=4
 
 **K-12: The Spring Semester to Come**\
 `Re-opening debates rage, teachers wait for vaccines and remote learning struggles continue.`\
-https://nytimes.com/2021/01/08/us/k-12-the-spring-semester-to-come.html?searchResultPosition=4
+https://nytimes.com/2021/01/08/us/k-12-the-spring-semester-to-come.html?searchResultPosition=5
 
 **Amid the Rampage at the U.S. Capitol, a Sweatshirt Stirs Troubling Memories**\
 `For those who survived the Nazi death camp, pictures of a man wearing a “Camp Auschwitz” sweatshirt were painful.`\
-https://nytimes.com/2021/01/08/world/europe/us-capitol-rampage-camp-auschwitz.html?searchResultPosition=5
+https://nytimes.com/2021/01/08/world/europe/us-capitol-rampage-camp-auschwitz.html?searchResultPosition=6
 
 **A Polarizing Canadian ‘Messiah’ Shows How Pandemic Is Shaking Up Culture**\
 `The coronavirus, a force of death and destruction, is also pushing artists and musicians to be more creative.`\
-https://nytimes.com/2021/01/08/world/canada/canadian-messiah-pandemic.html?searchResultPosition=6
+https://nytimes.com/2021/01/08/world/canada/canadian-messiah-pandemic.html?searchResultPosition=7
 
 **Reddit bans forum dedicated to supporting Trump.**\
 `By Mike Isaac`\
-https://nytimes.com/2021/01/08/us/politics/reddit-bans-forum-dedicated-to-supporting-trump.html?searchResultPosition=7
+https://nytimes.com/2021/01/08/us/politics/reddit-bans-forum-dedicated-to-supporting-trump.html?searchResultPosition=8
 
 **Dr. Marcella Nunez-Smith Takes Aim at Racial Gaps in Health Care**\
 `Appointed head of the incoming administration’s task force on health equity, the Yale University scientist “is not sitting in her ivory tower.”`\
-https://nytimes.com/2021/01/08/health/coronavirus-marcella-nunez-smith.html?searchResultPosition=8
+https://nytimes.com/2021/01/08/health/coronavirus-marcella-nunez-smith.html?searchResultPosition=9
 
 **E.U. Secures 300 Million Additional Doses of Pfizer-BioNTech Vaccine**\
 `Ursula von der Leyen, president of the European Commission, announced on Friday that it has secured additional doses of the Pfizer-BioNTech vaccine, enough vaccines to inoculate 80 percent of the bloc’s population.`\
-https://nytimes.com/video/world/europe/100000007541356/european-union-pfizer-biontech-vaccine.html?searchResultPosition=9
-
-**The Aftershocks From the Capitol Attack**\
-`Readers react to impeachment calls, cabinet resignations and a video from the president.`\
-https://nytimes.com/2021/01/08/opinion/letters/capitol-attack-trump.html?searchResultPosition=10
+https://nytimes.com/video/world/europe/100000007541356/european-union-pfizer-biontech-vaccine.html?searchResultPosition=10
 
