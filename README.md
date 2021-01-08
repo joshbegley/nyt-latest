@@ -30,9 +30,9 @@ https://nytimes.com/2021/01/07/us/capitol-trump-mob-black-lives-matter.html?sear
 `The mob that rampaged the halls of Congress included infamous white supremacists and conspiracy theorists.`\
 https://nytimes.com/2021/01/07/us/names-of-rioters-capitol.html?searchResultPosition=8
 
-**A Capitol Police officer who was seriously injured Wednesday has died, two law enforcement officials said.**\
-`By Katie Benner and Michael Levenson`\
-https://nytimes.com/2021/01/07/us/politics/a-capitol-police-officer-who-was-seriously-injured-wednesday-has-died-two-law-enforcement-officials-said.html?searchResultPosition=9
+**Editors’ note.**\
+`This article was published in error.`\
+https://nytimes.com/2021/01/07/us/politics/editors-note.html?searchResultPosition=9
 
 **Justice Dept. Open to Pursuing Charges Against Trump in Inciting Riot**\
 `The top federal prosecutor in Washington said investigators were examining anyone involved, “not only the people who went into” the Capitol.`\
