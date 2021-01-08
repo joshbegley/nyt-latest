@@ -10,7 +10,7 @@ https://nytimes.com/2021/01/07/us/politics/capitol-lockdown.html?searchResultPos
 `Evan Kalish opens our solving weekend.`\
 https://nytimes.com/2021/01/07/crosswords/daily-puzzle-2021-01-08.html?searchResultPosition=3
 
-**Betsy DeVos, education secretary, is second cabinet member to resign.**\
+**Betsy DeVos, education secretary, is the second cabinet member to resign.**\
 `In a letter to President Trump Ms. DeVos said, “we are left to clean up the mess caused by violent protesters overrunning the U.S. Capitol in an attempt to undermine the people’s business.”`\
 https://nytimes.com/2021/01/07/us/politics/betsy-devos-resigns.html?searchResultPosition=4
 
