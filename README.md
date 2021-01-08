@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/08/us/politics/the-man-who-stormed-pelosis-office-an
 `Yu discusses his National Book Award-winning novel, and David S. Brown talks about “The Last American Aristocrat,” his biography of Henry Adams.`\
 https://nytimes.com/2021/01/08/books/review/podcast-charles-yu-interior-chinatown-david-brown-henry-adams-last-american-aristocrat.html?searchResultPosition=6
 
-**The Markets’ Splendid Disregard for the Chaos in Washington**\
+**The Markets’ Strange Disregard for the Chaos in Washington**\
 `The bull market has withstood pandemic, recession, political crisis and a mob attack on Congress. But it’s not immortal.`\
 https://nytimes.com/2021/01/08/business/trump-capitol-stock-market.html?searchResultPosition=7
 
