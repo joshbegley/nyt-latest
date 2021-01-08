@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/08/arts/television/trump-mob-resignations-jimmy-fall
 
 **2020 Ties 2016 as Hottest Yet, European Analysis Shows**\
 `The global average temperature in 2020 was about 2.25 degrees Fahrenheit warmer than the average from 1850 to 1900, data from the Copernicus Climate Change Service indicates.`\
-https://nytimes.com/2021/01/08/climate/global-temperatures-record.html?searchResultPosition=5
+https://nytimes.com/2021/01/08/climate/hottest-year-ever.html?searchResultPosition=5
 
 **Word + Quiz: disparage**\
 `This word has appeared in 45 articles on NYTimes.com in the past year.`\
