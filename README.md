@@ -1,4 +1,4 @@
-**Murkowski is first Republican senator to say Trump should resign: ‘I want him out.’**\
+**Murkowski is the first Republican senator to say Trump should resign: ‘I want him out.’**\
 `By Maggie Astor`\
 https://nytimes.com/2021/01/08/us/politics/lisa-murkowski-trump-resign.html?searchResultPosition=1
 
