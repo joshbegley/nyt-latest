@@ -15,7 +15,7 @@ https://nytimes.com/2021/01/07/us/politics/capitol-attack-democrats-trump.html?s
 https://nytimes.com/2021/01/07/us/politics/wall-street-journal-editorial-board-urges-trump-to-resign-to-avoid-second-impeachment.html?searchResultPosition=4
 
 **‘What a Joke.’ Black Lives Matter Activists Note Contrast in Police Response at Capitol**\
-`BLM activists said the tepid response from law enforcement officers to mostly white protesters stood in stark contrast to the aggressive tactics they have endured for years.`\
+`Black Lives Matter activists said the tepid response from law enforcement officers to mostly white protesters stood in stark contrast to the aggressive tactics they have endured for years.`\
 https://nytimes.com/2021/01/07/us/capitol-trump-mob-black-lives-matter.html?searchResultPosition=5
 
 **These Are the Rioters Who Stormed the Nation’s Capitol**\
