@@ -32,7 +32,7 @@ https://nytimes.com/2021/01/07/us/names-of-rioters-capitol.html?searchResultPosi
 
 **Editors’ note.**\
 `This article was published in error.`\
-https://nytimes.com/2021/01/07/us/politics/editors-note.html?searchResultPosition=9
+https://nytimes.com/2021/01/07/admin/editors-note.html?searchResultPosition=9
 
 **Justice Dept. Open to Pursuing Charges Against Trump in Inciting Riot**\
 `The top federal prosecutor in Washington said investigators were examining anyone involved, “not only the people who went into” the Capitol.`\
