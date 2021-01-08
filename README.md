@@ -36,5 +36,5 @@ https://nytimes.com/2021/01/08/us/politics/trump-administration-politicized-elec
 
 **‘Traitor!’ Dozens of Trump supporters heckle Lindsey Graham for breaking with the president.**\
 `By Nicholas Fandos`\
-https://nytimes.com/2021/01/08/us/politics/traitor-dozens-of-trump-supporters-heckle-lindsey-graham-for-breaking-with-the-president.html?searchResultPosition=10
+https://nytimes.com/2021/01/08/us/politics/traitor-lindsey-graham.html?searchResultPosition=10
 
