@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/07/us/politics/new-york-protests-trump.html?searchRe
 
 **‘Senate Being Locked Down’: Inside a Harrowing Day at the Capitol**\
 `Three New York Times journalists were at the Capitol when it was breached. Here’s how they experienced it.`\
-https://nytimes.com/2021/01/07/us/politics/capitol-lockdown-breach-trump.html?searchResultPosition=2
+https://nytimes.com/2021/01/07/us/politics/capitol-lockdown.html?searchResultPosition=2
 
 **A Real Head-Scratcher**\
 `Evan Kalish opens our solving weekend.`\
