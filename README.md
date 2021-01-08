@@ -15,7 +15,7 @@ https://nytimes.com/2021/01/08/nyregion/miya-ponsetto-soho-hotel.html?searchResu
 https://nytimes.com/2021/01/08/us/politics/trump-pelosi-nuclear-military.html?searchResultPosition=4
 
 **Twitter Permanently Suspends Trump**\
-`Twitter, the president’s preferred megaphone, cited “the risk of further incitement for violence.”`\
+`Twitter, the president’s preferred megaphone, cited “the risk of further incitement of violence” and said two tweets he posted on Friday violated its Glorification of Violence Policy.`\
 https://nytimes.com/2021/01/08/technology/twitter-trump-suspended.html?searchResultPosition=5
 
 **6 Months After Leaving the Hospital, Covid Survivors Still Face Lingering Health Issues**\
