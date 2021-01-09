@@ -1,5 +1,5 @@
 **Read the draft of an article of impeachment against President Trump**\
-`A draft copy of an article of impeachment against President Trump charges him with “incitement of insurrection,” saying that the president had “made statements that encouraged” his supporters to commit “violence against the government of the United States.”`\
+`A draft copy of an article of impeachment against President Trump charges him with “incitement of insurrection.”`\
 https://nytimes.com/interactive/2021/01/08/us/draft-articles-of-impeachment.html?searchResultPosition=1
 
 **Can Donald Trump Survive Without Twitter?**\
