@@ -10,8 +10,8 @@ https://nytimes.com/2021/01/09/opinion/sunday/university-of-georgia-desegregatio
 `A well-known conspiracy theorist who entered the Capitol shirtless, wearing a fur headdress with horns, was among those arrested.`\
 https://nytimes.com/2021/01/09/us/politics/capitol-riot-charges.html?searchResultPosition=3
 
-**Georgia Officials Reveal Third Trump Call Trying to Influence Election Results**\
-`In a December call, President Trump told a Georgia elections investigator, the official would be a “national hero” for finding evidence of fraud.`\
+**Georgia Officials Reveal Third Trump Call Seeking to Influence Election Results**\
+`In a December call, President Trump told a Georgia elections investigator that the official would be a “national hero” for finding evidence of fraud.`\
 https://nytimes.com/2021/01/09/us/georgia-presidential-election-results.html?searchResultPosition=4
 
 **Why Your New Year’s Diet Is Doomed**\
