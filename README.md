@@ -1,6 +1,6 @@
 **Queen Elizabeth and Prince Philip receive vaccinations in Britain.**\
-`Queen Elizabeth, 94, and Prince Philip, 99, were vaccinated at Windsor Castle, but it remains unclear which vaccine they receive.`\
-https://nytimes.com/2021/01/09/world/europe/queen-elizabeth-and-prince-philip-receive-vaccinations-in-britain.html?searchResultPosition=1
+`Queen Elizabeth, 94, and Prince Philip, 99, were vaccinated at Windsor Castle, but it remains unclear which vaccine they received.`\
+https://nytimes.com/2021/01/09/world/europe/queen-elizabeth-prince-vaccine.html?searchResultPosition=1
 
 **Graham Swarmed by Trump Supporters at D.C. Airport**\
 `Senator Lindsey Graham, Republican of South Carolina, was accosted in Washington by supporters of President Trump, who called him a “traitor” after he failed to uphold Mr. Trump’s false claims of election fraud.`\
