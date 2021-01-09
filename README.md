@@ -6,13 +6,13 @@ https://nytimes.com/interactive/2021/01/09/sports/nfl-scoring.html?searchResultP
 `Reporters who planned to watch a political ceremony were caught in a wave of turmoil.`\
 https://nytimes.com/2021/01/09/business/media/journalists-capitol-mob.html?searchResultPosition=2
 
-**Trump’s Legacy: Voters Who Reject Democracy and Any Politics but Their Own**\
-`The mob attack on the Capitol, and interviews with Trump voters this week, show that the president’s subversion of democratic values will have enduring influence within the Republican Party.`\
-https://nytimes.com/2021/01/09/us/politics/trump-voters.html?searchResultPosition=3
-
 **He Was Going to Close the Family Diner. Then He Got a Sign.**\
 `Peter Panayiotou was lost without his father, but the remarkable gesture of a stranger helped him heal.`\
-https://nytimes.com/2021/01/09/nyregion/coronavirus-nyc-diners.html?searchResultPosition=4
+https://nytimes.com/2021/01/09/nyregion/coronavirus-nyc-diners.html?searchResultPosition=3
+
+**Trump’s Legacy: Voters Who Reject Democracy and Any Politics but Their Own**\
+`The mob attack on the Capitol, and interviews with Trump voters this week, show that the president’s subversion of democratic values will have enduring influence within the Republican Party.`\
+https://nytimes.com/2021/01/09/us/politics/trump-voters.html?searchResultPosition=4
 
 **‘Our New York Moment’: Southern California Reels as Virus Surges**\
 `In the coming days, Los Angeles County will reach a level where one in 10 residents has tested positive for the coronavirus.`\
