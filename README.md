@@ -7,7 +7,7 @@ https://nytimes.com/2021/01/09/magazine/trump-coup.html?searchResultPosition=1
 https://nytimes.com/2021/01/09/world/europe/queen-elizabeth-prince-vaccine.html?searchResultPosition=2
 
 **Graham Swarmed by Trump Supporters at National Airport**\
-`Senator Lindsey Graham, Republican of South Carolina, was accosted by supporters of President Trump, who called him a “traitor” after he failed to uphold Mr. Trump’s false claims of election fraud.`\
+`Senator Lindsey Graham, Republican of South Carolina, was accosted at Reagan National Airport by supporters of President Trump after he failed to uphold Mr. Trump’s false claims of election fraud.`\
 https://nytimes.com/video/us/politics/100000007542653/graham-airport-capitol.html?searchResultPosition=3
 
 **The facial-recognition app Clearview sees a spike in use after Capitol attack.**\
