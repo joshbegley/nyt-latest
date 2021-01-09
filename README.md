@@ -32,7 +32,7 @@ https://nytimes.com/2021/01/09/us/politics/adam-johnson-arrested-pelosi-lectern.
 
 **A Hong Kong Website Gets Blocked, Raising Censorship Fears**\
 `Users of major mobile carriers can no longer access a service that detailed the personal information of police officers, a possible sign that the city is turning to tactics used in mainland China.`\
-https://nytimes.com/2021/01/09/business/hong-kong-website-blocked.html?searchResultPosition=9
+https://nytimes.com/2021/01/09/technology/hong-kong-website-blocked.html?searchResultPosition=9
 
 **Memorial to Massacre Victims in Norway Divides Traumatized Community**\
 `A decade after 69 people were killed by a right-wing gunman at a youth camp, the construction of a memorial is at the center of a lawsuit.`\
