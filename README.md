@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/09/sports/horse-racing/horse-racist-name-guillot.htm
 https://nytimes.com/2021/01/09/us/bush-home-national-park.html?searchResultPosition=3
 
 **U.S. attorney’s office opens probe into deaths of Capitol Police officer and protester.**\
-`By Katie Benner and Eric Schmidt`\
+`By Katie Benner and Eric Schmitt`\
 https://nytimes.com/2021/01/09/us/politics/us-attorneys-office-opens-probe-into-deaths-of-capitol-police-officer-and-protester.html?searchResultPosition=4
 
 **Fauci Suggests Theaters Could Reopen ‘Some Time in the Fall’**\
