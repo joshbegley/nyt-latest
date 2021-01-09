@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/08/sports/baseball/tommy-lasorda-dodgers.html?search
 https://nytimes.com/2021/01/08/health/US-variant-covid-false.html?searchResultPosition=3
 
 **She Said a Black Teen Stole Her Phone. Now She Faces a Robbery Charge.**\
-`Miya Ponsetto went “off script” during a disastrous interview with Gayle King, her lawyer said.`\
+`The woman, Miya Ponsetto, also went “off script” during a disastrous interview with Gayle King, hours before she was arrested in connection with the incident at a SoHo hotel.`\
 https://nytimes.com/2021/01/08/nyregion/miya-ponsetto-soho-hotel.html?searchResultPosition=4
 
 **Pelosi Pressed Pentagon on Safeguards to Prevent Trump From Ordering Military Action**\
