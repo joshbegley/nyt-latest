@@ -31,7 +31,7 @@ https://nytimes.com/2021/01/09/us/politics/republicans-trump-capitol.html?search
 https://nytimes.com/2021/01/09/world/asia/asia-record-cold.html?searchResultPosition=8
 
 **China’s New Rules Could Hit U.S. Firms and Send a Message to Biden**\
-`An order issued on Saturday empowers Beijing to tell companies to ignore U.S. restrictions and allows them sue other businesses if they comply.`\
+`An order issued on Saturday empowers Beijing to tell companies to ignore U.S. restrictions and allows them to sue other businesses if they comply.`\
 https://nytimes.com/2021/01/09/business/china-rules-trump-biden-sanctions.html?searchResultPosition=9
 
 **Indonesian Jetliner Crashes Into the Sea After Takeoff**\
