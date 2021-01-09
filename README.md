@@ -22,8 +22,8 @@ https://nytimes.com/2021/01/09/world/asia/asia-record-cold.html?searchResultPosi
 `An order issued on Saturday empowers Beijing to tell companies to ignore U.S. restrictions and allows them sue other businesses if they comply.`\
 https://nytimes.com/2021/01/09/business/china-rules-trump-biden-sanctions.html?searchResultPosition=6
 
-**Indonesia Loses Contact With Plane Over Java Sea**\
-`More than 50 people were believed to be aboard the Boeing 737-524, a Sriwijaya Air flight that had taken off from Jakarta.`\
+**Indonesian Jetliner Crashes Into the Sea After Takeoff**\
+`More than 60 people were believed to be aboard the Boeing 737-524, a Sriwijaya Air flight that had taken off from Jakarta. Officials said they believed they found part of the wreckage.`\
 https://nytimes.com/2021/01/09/world/asia/indonesia-plane.html?searchResultPosition=7
 
 **Four Reasons the N.F.L. Shattered Its Scoring Record in 2020**\
