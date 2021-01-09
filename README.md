@@ -15,7 +15,7 @@ https://nytimes.com/video/us/politics/100000007542794/biden-economy-pandemic.htm
 https://nytimes.com/2021/01/09/us/boston-mayor-election.html?searchResultPosition=4
 
 **Much of Pakistan Loses Power in Massive Blackout**\
-`Pakistani news sites said almost the entire country of more than 200 million was without power.`\
+`The capital, Islamabad, and most major cities were affected in what was one of the biggest power failures to hit the country of 200 million people.`\
 https://nytimes.com/2021/01/09/world/asia/pakistan-blackout-power-failure.html?searchResultPosition=5
 
 **N.C.A.A. President Seeks Delay on Vote to Let Students Profit From Fame**\
