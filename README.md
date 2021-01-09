@@ -1,40 +1,40 @@
-**Gary Paulsen’s Real-Life Survival Guide**\
-`“Gone to the Woods” is a memoir so rife with childhood trauma he wrote it in the third person.`\
-https://nytimes.com/2021/01/09/books/review/gary-paulsen-gone-to-the-woods-surviving-a-lost-childhood.html?searchResultPosition=1
+**11 Journalists on Covering the Capitol Siege: ‘This Could Get Ugly’**\
+`Reporters who planned to watch a political ceremony were caught in a wave of turmoil.`\
+https://nytimes.com/2021/01/09/business/media/journalists-capitol-mob.html?searchResultPosition=1
 
-**As Coronavirus Mutates, the World Stumbles Again to Respond**\
-`A South African tip led to the discovery of mutations around the world. With infections skyrocketing, “it’s a race against time.”`\
-https://nytimes.com/2021/01/09/world/europe/coronavirus-mutations.html?searchResultPosition=2
+**Trump’s Legacy: Voters Who Reject Democracy and Any Politics but Their Own**\
+`The mob attack on the Capitol, and interviews with Trump voters this week, show that the president’s subversion of democratic values will have enduring influence within the Republican Party.`\
+https://nytimes.com/2021/01/09/us/politics/trump-voters.html?searchResultPosition=2
 
-**A Week Into Brexit, the Pain for U.K. Businesses Has Arrived**\
-`As Britain adjusts to life outside of the European Union, businesses are contending with delays, service cancellations and piles of paperwork.`\
-https://nytimes.com/2021/01/09/business/Brexit-British-economy.html?searchResultPosition=3
+**He Was Going to Close the Family Diner. Then He Got a Sign.**\
+`Peter Panayiotou was lost without his father, but the remarkable gesture of a stranger helped him heal.`\
+https://nytimes.com/2021/01/09/nyregion/coronavirus-nyc-diners.html?searchResultPosition=3
 
-**Rampage Weighs on Congressional Staff Members and Capitol Workers**\
-`The violence caused by a pro-Trump mob on Wednesday has shaken many who work at the Capitol. And some people of color say the law enforcement response reopened old wounds.`\
-https://nytimes.com/2021/01/08/us/politics/capitol-rampage-congressional-staff.html?searchResultPosition=4
+**‘Our New York Moment’: Southern California Reels as Virus Surges**\
+`In the coming days Los Angeles County will reach a level where one in 10 residents has tested positive for the virus.`\
+https://nytimes.com/2021/01/09/us/california-coronavirus.html?searchResultPosition=4
 
-**Corrections: Jan. 9, 2021**\
-`Corrections that appeared in print on Saturday, Jan. 9, 2021.`\
-https://nytimes.com/2021/01/08/pageoneplus/corrections-jan-9-2021.html?searchResultPosition=5
+**Louise Linton Has Made a Movie**\
+`Scoffed at for conspicuous consumption, the wife of the departing Treasury secretary sends herself up in a camp-tastic dark comedy, “Me You Madness.”`\
+https://nytimes.com/2021/01/09/style/louise-linton-steve-mnuchin-wife-movie.html?searchResultPosition=5
 
-**Quotation of the Day: Sweatshirt Seen at Capitol Revives Distressing Memories**\
-`Quotation of the Day for Saturday, January 9, 2021.`\
-https://nytimes.com/2021/01/08/todayspaper/quotation-of-the-day-sweatshirt-seen-at-capitol-revives-distressing-memories.html?searchResultPosition=6
+**Meena Harris, Building That Brand**\
+`Kamala Harris’s niece is building her own empire with statement T-shirts. Just don’t define her by her family.`\
+https://nytimes.com/2021/01/09/style/meena-harris-building-that-brand.html?searchResultPosition=6
 
-**Like Some Letters and Lines**\
-`Grab the Scrabble set! Trenton Charlson is here with a high-scoring Saturday puzzle.`\
-https://nytimes.com/2021/01/08/crosswords/daily-puzzle-2021-01-09.html?searchResultPosition=7
+**To Start a New Habit, Make It Easy**\
+`Removing obstacles makes it more likely you’ll achieve a new health goal. The 7-Day Well Challenge will show you how.`\
+https://nytimes.com/2021/01/09/well/mind/healthy-habits.html?searchResultPosition=7
 
-**A judge has blocked Trump’s sweeping restrictions on asylum applications.**\
-`The policy, set to take effect next week, would have closed the doors of the United States to most asylum seekers.`\
-https://nytimes.com/2021/01/08/us/politics/a-judge-has-blocked-trumps-sweeping-restrictions-on-asylum-applications.html?searchResultPosition=8
+**Indigenous Beadwork Flourishes on Instagram**\
+`Interest in Indigenous artistry has created an ecosystem of beadwork drops that sell out in minutes online.`\
+https://nytimes.com/2021/01/09/style/indigenous-beadwork-instagram.html?searchResultPosition=8
 
-**Democrats Ready Impeachment Charge Against Trump for Inciting Capitol Mob**\
-`Speaker Nancy Pelosi threatened decisive action against the president for his role in the insurrection against Congress if he refused to resign.`\
-https://nytimes.com/2021/01/08/us/politics/democrats-trump-impeachment.html?searchResultPosition=9
+**A Question Hidden in the Platypus Genome: Are We the Weird Ones?**\
+`Researchers have produced the most comprehensive platypus genome yet, as well as that of another monotreme, an echidna.`\
+https://nytimes.com/2021/01/09/science/platypus-genome-echidna.html?searchResultPosition=9
 
-**Read the draft of an article of impeachment against President Trump**\
-`A draft copy of an article of impeachment against President Trump charges him with “incitement of insurrection.”`\
-https://nytimes.com/interactive/2021/01/08/us/draft-articles-of-impeachment.html?searchResultPosition=10
+**Loyal to Trump for Years, Manufacturing Group Now Calls for His Removal**\
+`The National Association of Manufacturers’ growing frustration during the last year culminated with its call to invoke the 25th Amendment.`\
+https://nytimes.com/2021/01/09/business/national-association-manufacturers-trump.html?searchResultPosition=10
 
