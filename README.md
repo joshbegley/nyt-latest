@@ -1,4 +1,4 @@
-**A Suspended Twitter Account, a Canceled Book — and the First Amendment**\
+**A Suspended Twitter Account, a Canceled Book and the First Amendment**\
 `There are reasons to question the wisdom of recent actions by Twitter and Simon & Schuster. But the First Amendment is on their side.`\
 https://nytimes.com/2021/01/09/us/first-amendment-free-speech.html?searchResultPosition=1
 
