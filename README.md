@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/09/opinion/sunday/trump-capitol-riot-legacy.html?sea
 
 **Police officers who traveled to Washington are being investigated for connection to the Capitol melee.**\
 `Officials are investigating whether the off-duty officers played a role in the Capitol siege.`\
-https://nytimes.com/2021/01/09/us/politics/police-officers-who-traveled-to-washington-are-being-investigated-for-connection-to-the-capitol-melee.html?searchResultPosition=4
+https://nytimes.com/2021/01/09/us/politics/capitol-police.html?searchResultPosition=4
 
 **How Singapore Has Kept the Coronavirus Off Campus**\
 `Singapore’s three major universities have reported zero cases. Their secret: technology, tough penalties and students willing to comply.`\
