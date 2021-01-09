@@ -1,5 +1,5 @@
 **Parler Pitched Itself as Twitter Without Rules. Apple and Google Said Not Anymore.**\
-`Apple and Google are threatening to remove Parler, a new social network popular with conservatives, from their app stores if the social network doesn’t better police its users’ posts.`\
+`Google suspended Parler, a social network popular with conservatives, from its app store, and Apple threatened to do the same if the social network doesn’t better police its users’ posts.`\
 https://nytimes.com/2021/01/08/technology/parler-apple-google.html?searchResultPosition=1
 
 **As Circle of Trump Aides Dwindles, a Few Plan to Stay to the End**\
