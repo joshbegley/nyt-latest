@@ -15,7 +15,7 @@ https://nytimes.com/2021/01/09/us/politics/trump-voters.html?searchResultPositio
 https://nytimes.com/2021/01/09/nyregion/coronavirus-nyc-diners.html?searchResultPosition=4
 
 **‘Our New York Moment’: Southern California Reels as Virus Surges**\
-`In the coming days Los Angeles County will reach a level where one in 10 residents has tested positive for the virus.`\
+`In the coming days, Los Angeles County will reach a level where one in 10 residents has tested positive for the coronavirus.`\
 https://nytimes.com/2021/01/09/us/california-coronavirus.html?searchResultPosition=5
 
 **Louise Linton Has Made a Movie**\
