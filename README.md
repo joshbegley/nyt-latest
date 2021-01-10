@@ -6,8 +6,8 @@ https://nytimes.com/2021/01/10/books/review/matthew-cordell-bear-island.html?sea
 `This week, learn about the basics of perfume, listen to a string quartet or catch Regina King’s directorial debut.`\
 https://nytimes.com/2021/01/09/at-home/things-to-do-this-week.html?searchResultPosition=2
 
-**11 Dead in 2 Landslides in Indonesia**\
-`The landslides on the island of Java were set off by heavy rainfall and unstable soil, officials said, and left rescue workers searching for survivors`\
+**At Least 12 Dead in 2 Landslides in Indonesia**\
+`The landslides on the island of Java were set off by heavy rainfall and unstable soil, officials said, and left rescue workers searching for survivors.`\
 https://nytimes.com/2021/01/09/world/asia/indonesia-landslide-rains-west-java.html?searchResultPosition=3
 
 **Let Down by ‘Wonder Woman 1984’? Here are 6 Great Superhero Movies**\
