@@ -6,7 +6,7 @@ https://nytimes.com/2021/01/10/us/politics/after-refusing-to-do-so-trump-orders-
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2021/01/10/learning/whats-going-on-in-this-picture-jan-11-2021.html?searchResultPosition=2
 
-**The F.B.I. arrests a man who had carried zip ties into the Capitol.**\
+**The F.B.I. arrest two men who had carried plastic restraints into the Capitol.**\
 `By Adam Goldman and Katie Benner`\
 https://nytimes.com/2021/01/10/us/politics/capitol-zip-ties-arrest.html?searchResultPosition=3
 
