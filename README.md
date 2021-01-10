@@ -6,8 +6,8 @@ https://nytimes.com/2021/01/09/us/man-with-assault-rifle-charged-with-threatenin
 `By Maggie Haberman`\
 https://nytimes.com/2021/01/09/us/politics/pence-intends-to-attend-bidens-inauguration.html?searchResultPosition=2
 
-**Apple and Google Cut Off Parler, an App That Drew Trump Supporters**\
-`The companies removed the “free speech” social network from their app stores, limiting its reach just as many conservatives are seeking alternatives to Facebook and Twitter.`\
+**Amazon, Apple and Google Cut Off Parler, an App That Drew Trump Supporters**\
+`The companies pulled support for the “free speech” social network, all but killing the service just as many conservatives are seeking alternatives to Facebook and Twitter.`\
 https://nytimes.com/2021/01/09/technology/apple-google-parler.html?searchResultPosition=3
 
 **State Dept. Moves to Ease Restrictions on Meeting With Taiwan Officials**\
