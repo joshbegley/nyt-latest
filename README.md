@@ -14,7 +14,7 @@ https://nytimes.com/2021/01/10/briefing/trump-impeach-indonesia-virus.html?searc
 `This charming mini-series adaptation of the James Herriot novel was a surprise pandemic hit in Britain. This week it arrives in an America in need of its own relief.`\
 https://nytimes.com/2021/01/10/arts/television/all-creatures-great-and-small-pbs.html?searchResultPosition=4
 
-**In a viral video, Schwarzenegger links the Capitol riot to an event that was a prelude to the Holocaust.**\
+**In a viral video, Schwarzenegger links the Capitol riot to an episode that was a prelude to the Holocaust.**\
 `By Hailey Fuchs`\
 https://nytimes.com/2021/01/10/us/politics/arnold-schwarzenegger-video.html?searchResultPosition=5
 
