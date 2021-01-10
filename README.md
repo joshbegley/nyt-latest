@@ -26,8 +26,8 @@ https://nytimes.com/2021/01/10/world/asia/afghanistan-taliban-information-war.ht
 `Lying as a political tool is hardly new. But a readiness, even enthusiasm, to be deceived has become a driving force in politics around the world, most recently in the United States.`\
 https://nytimes.com/2021/01/10/world/europe/trump-truth-lies-power.html?searchResultPosition=7
 
-**Virus Protocols Prompt N.B.A. to Postpone Celtics-Heat Game**\
-`Several teams, including the Miami Heat and the Boston Celtics, have been left without multiple or key players because of players’ testing positive for the coronavirus and contact tracing.`\
+**N.B.A. Says ‘No Plans to Pause the Season’ As Virus Cases Increase**\
+`A game between the Miami Heat and the Boston Celtics was postponed as several teams have been left without multiple or key players because of players’ testing positive for the coronavirus and contact tracing.`\
 https://nytimes.com/2021/01/10/sports/basketball/nba-heat-celtics-postponed.html?searchResultPosition=8
 
 **After refusing to do so, Trump orders flags to be flown at half-staff.**\
