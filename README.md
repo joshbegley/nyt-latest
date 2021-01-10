@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2021/01/09/us/parler-amazon-apple-google-respons
 
 **Man With Assault Rifle Charged With Threatening Pelosi, Officials Say**\
 `The Department of Justice said on Friday that Cleveland Grover Meredith Jr. was one of 13 people who had been charged in federal court after a violent pro-Trump mob stormed the Capitol.`\
-https://nytimes.com/2021/01/09/us/man-with-assault-rifle-charged-with-threatening-pelosi.html?searchResultPosition=7
+https://nytimes.com/2021/01/09/us/pelosi-threat-Cleveland-Grover-Meredith.html?searchResultPosition=7
 
 **Pence intends to attend Biden’s inauguration.**\
 `By Maggie Haberman`\
