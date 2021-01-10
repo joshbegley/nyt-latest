@@ -1,6 +1,6 @@
 **The F.B.I. arrests a man who had carried zip ties into the Capitol.**\
 `By Adam Goldman and Katie Benner`\
-https://nytimes.com/2021/01/10/us/politics/the-fbi-arrests-a-man-who-had-carried-zip-ties-into-the-capitol.html?searchResultPosition=1
+https://nytimes.com/2021/01/10/us/politics/capitol-zip-ties-arrest.html?searchResultPosition=1
 
 **Ved Mehta, Celebrated Writer for The New Yorker, Dies at 86**\
 `He was best known for his 12-volume memoir, which focused on the troubled modern history of his native India and his early struggles with blindness.`\
