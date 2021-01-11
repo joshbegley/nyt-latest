@@ -7,7 +7,7 @@ https://nytimes.com/2021/01/11/podcasts/the-daily/coronavirus-variant-vaccine-pa
 https://nytimes.com/2021/01/11/realestate/marie-kondo-container-store.html?searchResultPosition=2
 
 **On Taiwan’s New Passport, the Incredible Shrinking ‘Republic of China’**\
-`Taiwanese officials said the redesign was an attempt to disassociate its citizens from travelers from mainland China in the Covid era.`\
+`Officials said the redesign was an attempt to disassociate Taiwanese citizens from those on the mainland, who faced travel restrictions amid the pandemic.`\
 https://nytimes.com/2021/01/11/world/asia/taiwan-new-passport.html?searchResultPosition=3
 
 **How Much Do You Know About Australia?**\
