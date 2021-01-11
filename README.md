@@ -35,6 +35,6 @@ https://nytimes.com/video/us/politics/100000007542963/capitol-police-security-fa
 https://nytimes.com/2021/01/10/us/politics/trump-impeachment.html?searchResultPosition=9
 
 **What We Learned From the N.F.L.’s Wild-Card Weekend**\
-`Lamar Jackson finally won a playoff game, Tom Brady continued to break records and Nickelodeon’s broadcast of a game for children offered a welcome distraction.`\
+`Lamar Jackson finally won a playoff game, the Browns demolished the Steelers and Nickelodeon’s broadcast of a game for children offered a welcome distraction.`\
 https://nytimes.com/2021/01/10/sports/football/nfl-scores-wild-card-playoffs.html?searchResultPosition=10
 
