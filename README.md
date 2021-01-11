@@ -8,7 +8,7 @@ https://nytimes.com/2021/01/11/arts/television/pat-loud-dead.html?searchResultPo
 
 **‘I’m Still Shocked’: Indonesian Airline Crash Shakes Small Fishing Village**\
 `A sleepy island has become a base for the aircraft search and recovery operation after Sriwijaya Air Flight 182 fell from the sky. “I’m lucky it didn’t hit me,” said one fisherman.`\
-https://nytimes.com/2021/01/11/world/asia/indonesian-plane-crash-fishermen.html?searchResultPosition=3
+https://nytimes.com/2021/01/11/world/asia/indonesia-plane-crash-fishermen.html?searchResultPosition=3
 
 **$3.5 Million Homes in California**\
 `A Tudor Revival home in Los Angeles, a modern house in Palm Springs and a hillside retreat in San Clemente.`\
