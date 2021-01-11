@@ -1,4 +1,4 @@
-**Grown-ups Loved the N.F.L. on Nickelodeon. But What About Children?**\
+**Grown-Ups Loved the N.F.L. on Nickelodeon. But What About Children?**\
 `The cable channel aired a slime-filled version of the Bears-Saints wild card game on Sunday, to the delight of many adults. But the goal was to convert children into football fans.`\
 https://nytimes.com/2021/01/11/sports/football/nfl-nickelodeon-bears-saints.html?searchResultPosition=1
 
