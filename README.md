@@ -30,7 +30,7 @@ https://nytimes.com/2021/01/10/us/Grenade-kills-Virginia-child.html?searchResult
 `The rule of law has to apply to everyone, including those in power.`\
 https://nytimes.com/2021/01/10/opinion/trump-republicans.html?searchResultPosition=8
 
-**Stripped of Twitter, Trump Faces a New Challenge: How to Get Attention**\
+**Stripped of Twitter, Trump Faces a New Challenge: How to Command Attention**\
 `Mr. Trump became a celebrity through television, but Twitter had given him a singular outlet for expressing himself as he is, unfiltered by the norms of the presidency.`\
 https://nytimes.com/2021/01/10/us/politics/trump-twitter.html?searchResultPosition=9
 
