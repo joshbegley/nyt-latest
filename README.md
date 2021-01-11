@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/10/technology/parler-app-trump-free-speech.html?sear
 
 **Baby Megalodons Were 6-Foot-Long Womb Cannibals, Study Suggests**\
 `The research appears to confirm that, even as newborns, the extinct sharks were very, very big.`\
-https://nytimes.com/2021/01/10/science/baby-megalodons-were-6-foot-long-womb-cannibals-study-suggests.html?searchResultPosition=4
+https://nytimes.com/2021/01/10/science/megalodons-baby-shark.html?searchResultPosition=4
 
 **It Took a Genocide for Me to Remember My Uighur Roots**\
 `Since 1949, the Chinese Communist Party has gradually established policies that threaten Uighur culture and identity. My family’s forced assimilation is a part of that story.`\
