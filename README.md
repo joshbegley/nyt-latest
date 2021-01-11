@@ -22,19 +22,19 @@ https://nytimes.com/2021/01/11/business/media/jewish-week-70-faces.html?searchRe
 `Prototype, known for presenting visceral, chamber-scale new works, unveils an almost entirely streamed pandemic edition.`\
 https://nytimes.com/2021/01/11/arts/music/prototype-festival-opera.html?searchResultPosition=6
 
+**While fans watch Alabama and Ohio State duke it out, the host state Florida struggles with the coronavirus.**\
+`By Gillian R. Brassil`\
+https://nytimes.com/2021/01/11/sports/ncaafootball/while-fans-watch-alabama-and-ohio-state-duke-it-out-the-host-state-florida-struggles-with-the-coronavirus.html?searchResultPosition=7
+
 **When an I.Q. Score Is a Death Sentence**\
 `The Supreme Court declared it was unconstitutional to execute intellectually disabled people. On Thursday, we’re set to do it anyway.`\
-https://nytimes.com/2021/01/11/opinion/death-penalty-mental-disability.html?searchResultPosition=7
+https://nytimes.com/2021/01/11/opinion/death-penalty-mental-disability.html?searchResultPosition=8
 
 **The World Is Watching. We Need to Hold Trump Accountable.**\
 `We need to show our allies and adversaries that our democracy has weathered this test.`\
-https://nytimes.com/2021/01/11/opinion/chris-coons-trump.html?searchResultPosition=8
+https://nytimes.com/2021/01/11/opinion/chris-coons-trump.html?searchResultPosition=9
 
 **Let’s Work With Latin America to Fight Climate Change**\
 `The Biden administration should support clean energy investments and environmental protections in the region.`\
-https://nytimes.com/2021/01/11/opinion/biden-climate-change-latin-america.html?searchResultPosition=9
-
-**First Woman to Face Federal Execution Since 1953 Seeks Reprieve**\
-`Lisa M. Montgomery, who is scheduled to be executed on Tuesday for a gruesome murder, is seeking to have her sentence reduced to life imprisonment because she suffered sexual abuse from a young age.`\
-https://nytimes.com/2021/01/11/us/politics/lisa-montgomery-federal-execution.html?searchResultPosition=10
+https://nytimes.com/2021/01/11/opinion/biden-climate-change-latin-america.html?searchResultPosition=10
 
