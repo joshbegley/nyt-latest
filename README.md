@@ -1,40 +1,40 @@
-**What Are the Places in the World That You Love Most?**\
-`What places, either nearby or around the globe, bring you inspiration and comfort? What would you add to the Travel section’s “52 Places to Love in 2021”?`\
-https://nytimes.com/2021/01/11/learning/what-are-the-places-in-the-world-that-you-love-most.html?searchResultPosition=1
+**More people in New York become eligible for the vaccine.**\
+`Doses had been thrown out in recent weeks because medical providers had difficulties finding patients who precisely matched the state’s strict guidelines.`\
+https://nytimes.com/2021/01/11/world/more-people-in-new-york-become-eligible-for-the-vaccine.html?searchResultPosition=1
 
-**Scared Straight or Scarred for Life?**\
-`In “Troubled,” Kenneth R. Rosen investigates the kind of tough-love programs he was placed in as a teenager and exposes their unusual methods.`\
-https://nytimes.com/2021/01/11/books/review/troubled-kenneth-rosen.html?searchResultPosition=2
+**A Long, Lonesome Look at America**\
+`Alone on a 10,000-mile road trip across the United States, a Times journalist found an America cloaked in solitude — and a country on edge.`\
+https://nytimes.com/2021/01/11/travel/a-long-lonesome-look-at-america.html?searchResultPosition=2
 
-**Cicely Tyson Has a Secret About Living Life to the Fullest**\
-`“There’s so many facets to a human being. I surprise myself all the time.”`\
-https://nytimes.com/interactive/2021/01/11/magazine/cicely-tyson-interview.html?searchResultPosition=3
+**How High-End Restaurants Have Failed Black Female Chefs**\
+`Training and advancement as a chef can be hard to find in American fine-dining restaurants, according to Black women who have tried.`\
+https://nytimes.com/2021/01/11/dining/black-women-fine-dining-restaurant-kitchens.html?searchResultPosition=3
 
-**Lesson of the Day: ‘In a Pandemic Fairy Tale, a Garden Leads to a Magical Friendship’**\
-`In this lesson, students will meet a 4-year-old girl, her adult neighbor and a fairy named Sapphire. Then, they will consider the power of friendship and magical thinking — especially in these trying times.`\
-https://nytimes.com/2021/01/11/learning/lesson-of-the-day-in-a-pandemic-fairy-tale-a-garden-leads-to-a-magical-friendship.html?searchResultPosition=4
+**Revealed: The Shipworm Sex Tapes**\
+`Nature’s weirdest clam surprises scientists once again, this time in video footage of its mating habits.`\
+https://nytimes.com/2021/01/11/science/shipworm-sex-pseudocopulation.html?searchResultPosition=4
 
-**The Business Rules the Trump Administration Is Racing to Finish**\
-`From tariffs and trade to the status of Uber drivers, regulators are trying to install new rules or reduce regulations before President-elect Joe Biden takes over.`\
-https://nytimes.com/2021/01/11/business/trump-business-regulations-biden.html?searchResultPosition=5
+**Can Andrew Yang’s Star Power Carry Him to New York’s City Hall?**\
+`Mr. Yang has name recognition, fund-raising ability and some different ideas on how to run a government. How will that play in a city ravaged by the pandemic?`\
+https://nytimes.com/2021/01/11/nyregion/andrew-yang-mayor-nyc.html?searchResultPosition=5
 
-**Superheroes and an Indoor Fund-Raiser: 5 Takeaways From the Mayor’s Race**\
-`With a big fund-raising deadline this week, the New York City mayoral candidates are under pressure to reach benchmarks that would qualify them for matching funds.`\
-https://nytimes.com/2021/01/11/nyregion/mayor-race-nyc.html?searchResultPosition=6
+**Beyond Impeachment, a Push for Ethics Laws That Do Not Depend on Shame**\
+`Congressional Democrats and a slew of groups are preparing to push for the kinds of ethics and governance changes not seen since the post-Watergate era.`\
+https://nytimes.com/2021/01/11/us/politics/trump-ethics-democracy-biden.html?searchResultPosition=6
 
-**For Pro Athlete Leading Social Justice Push, a Victory and Uncertainty**\
-`Elizabeth Williams of the Atlanta Dream helped galvanize opposition to one of her team’s owners, Senator Kelly Loeffler, who has criticized Black Lives Matter. But the Capitol riot underscored the work ahead.`\
-https://nytimes.com/2021/01/11/sports/basketball/trump-riot-athletes-react.html?searchResultPosition=7
+**Shopping for Kettles**\
+`It’s not just for boiling water — so choose something with a little style.`\
+https://nytimes.com/2021/01/11/realestate/shopping-for-kettles.html?searchResultPosition=7
 
-**‘It Was a Joke’: Some Small Businesses Got $1 Relief Loans**\
-`Sole proprietors were eligible for loans under the Paycheck Protection Program only if they were profitable, but many got tiny loans because of the way rules were written.`\
-https://nytimes.com/2021/01/11/business/small-businesses-ppp-covid.html?searchResultPosition=8
+**The Roots of Josh Hawley’s Rage**\
+`Why do so many Republicans appear to be at war with both truth and democracy?`\
+https://nytimes.com/2021/01/11/opinion/josh-hawley-religion-democracy.html?searchResultPosition=8
 
-**$60 Million High Line Expansion to Connect Park to Moynihan Train Hall**\
-`Gov. Andrew Cuomo will propose a 1,200-foot elevated pathway that will lead to the new Penn Station development, to be financed by public and private funds.`\
-https://nytimes.com/2021/01/11/nyregion/moynihan-station-high-line.html?searchResultPosition=9
+**Senator Klobuchar to Write Antitrust Book**\
+`The Minnesota Democrat and former presidential candidate said her book would call for reform in how the United States treats monopolies and competition.`\
+https://nytimes.com/2021/01/11/books/amy-klobuchar-antitrust-book.html?searchResultPosition=9
 
-**With Injury, Justin Fields Is Taking a Big Risk for Ohio State**\
-`The dynamics of college football mean that the quarterback will shoulder all of the downsides of playing in the title game after his painful injury in the semifinals.`\
-https://nytimes.com/2021/01/11/sports/ncaafootball/justin-fields-ohio-state.html?searchResultPosition=10
+**The Most Important Thing Biden Can Learn From the Trump Economy**\
+`A “hot” economy with high deficits didn’t cause runaway inflation.`\
+https://nytimes.com/2021/01/11/upshot/trump-economy-lessons-biden.html?searchResultPosition=10
 
