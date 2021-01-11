@@ -1,4 +1,4 @@
-**Hundreds of Historians Join Call for Impeachment**\
+**Hundreds of Historians Join Call for Trump’s Impeachment**\
 `More than 300 historians and writers, including Ron Chernow and Taylor Branch, signed an open letter calling President Trump “a clear and present danger to American democracy.”`\
 https://nytimes.com/2021/01/11/arts/historians-impeachment.html?searchResultPosition=1
 
