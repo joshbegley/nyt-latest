@@ -22,8 +22,8 @@ https://nytimes.com/2021/01/10/todayspaper/quotation-of-the-day-vaccine-rules-ar
 `The golf major had been scheduled to be played at the Trump National Golf Club in Bedminster, N.J., in May 2022.`\
 https://nytimes.com/2021/01/10/sports/golf/trump-pga-championship-moved.html?searchResultPosition=6
 
-**Your Monday Briefing**\
-`Growing calls for a second impeachment.`\
+**Trump, Covid-19, U.K.: Your Monday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2021/01/10/briefing/impeachment-coronavirus-tim-berners-lee.html?searchResultPosition=7
 
 **Inside a Deadly Siege: How a String of Failures Led to a Dark Day at the Capitol**\
