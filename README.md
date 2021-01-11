@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/11/us/the-capitol-police-chief-says-his-pleas-for-ba
 
 **Colin Powell says he ‘can no longer call himself a Republican.’**\
 `By Azi Paybarah`\
-https://nytimes.com/2021/01/11/us/colin-powell-says-he-can-no-longer-call-himself-a-republican.html?searchResultPosition=5
+https://nytimes.com/2021/01/11/us/colin-powell-gop.html?searchResultPosition=5
 
 **How Can ‘Jeopardy!’ Replace Alex Trebek? See Game-Show History**\
 `The same producer who helped Drew Carey succeed Bob Barker on “The Price Is Right” is now working on the “Jeopardy!” succession.`\
