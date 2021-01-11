@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/11/us/politics/lisa-montgomery-federal-execution.html?searchResultPosition=1
 
 **Your Tuesday Briefing**\
-`Impeachment, Part 2.`\
+`Trump’s second impeachment.`\
 https://nytimes.com/2021/01/11/briefing/trump-impeachment-indonesia-vaccine-boeing.html?searchResultPosition=2
 
 **The Washington Monument has been closed because of ‘credible threats.’**\
