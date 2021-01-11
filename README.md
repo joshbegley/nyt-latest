@@ -1,6 +1,6 @@
-**Bill Burns, a career diplomat, is Biden’s choice to head the C.I.A.**\
+**William Burns, a career diplomat, is Biden’s choice to head the C.I.A.**\
 `By Pranshu Verma`\
-https://nytimes.com/2021/01/10/us/bill-burns-a-career-diplomat-is-bidens-choice-to-head-the-cia.html?searchResultPosition=1
+https://nytimes.com/2021/01/10/us/william-burns-a-career-diplomat-is-bidens-choice-to-head-the-cia.html?searchResultPosition=1
 
 **Impeachment Looms. What’s Next for the G.O.P.?**\
 `Three big factors will shape the party’s direction: This is your morning tip sheet.`\
