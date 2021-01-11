@@ -18,9 +18,9 @@ https://nytimes.com/video/us/politics/100000007545224/de-blasio-new-york-coronav
 `The vice president-elect is on the cover of the U.S. fashion magazine. Many people are not happy with the result.`\
 https://nytimes.com/2021/01/11/style/kamala-harris-vogue.html?searchResultPosition=5
 
-**Michigan Commission bans open carry at State Capitol.**\
+**Michigan Commission bans open carry at the State Capitol.**\
 `By Kathleen Gray`\
-https://nytimes.com/2021/01/11/us/michigan-commission-bans-open-carry-at-state-capitol.html?searchResultPosition=6
+https://nytimes.com/2021/01/11/us/michigan-commission-bans-open-carry-at-the-state-capitol.html?searchResultPosition=6
 
 **Parler accuses Amazon of breaking antitrust law in suspending hosting services.**\
 `The social network, which had fast been gaining right-wing users, said that Amazon had conspired with Twitter, but did not provide any direct evidence.`\
