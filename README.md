@@ -1,5 +1,5 @@
 **N.B.A. Postpones Two More Games Because of the Virus**\
-`The N.B.A. has now postponed four games because of the virus, and said it would be meeting with its players’ union on Monday to discuss changes to health protocols.`\
+`The league has now postponed four games, and said it would meet with its players’ union to discuss changes to health protocols.`\
 https://nytimes.com/2021/01/11/sports/basketball/nba-postponed-mavericks-celtics.html?searchResultPosition=1
 
 **Simon Rattle to Leave the London Symphony for Munich**\
