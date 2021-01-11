@@ -18,9 +18,9 @@ https://nytimes.com/2021/01/11/sports/basketball/nba-postponed-mavericks-celtics
 `As Brexit takes effect, Mr. Rattle, a British-born conductor with a family in Germany, said that he would take the helm of the Bavarian Radio Symphony Orchestra in 2023.`\
 https://nytimes.com/2021/01/11/arts/music/simon-rattle-london-symphony-munich.html?searchResultPosition=5
 
-**Watch Live: Biden Receives Second Coronavirus Vaccine Dose**\
-`President-elect Joseph R. Biden Jr. receives the second dose of the Pfizer-BioNTech Covid-19 vaccine. Mr. Biden took the first of his two scheduled doses last month.`\
-https://nytimes.com/video/us/politics/100000007544700/live-biden-vaccine.html?searchResultPosition=6
+**Watch Full Video: Biden Receives Second Coronavirus Vaccine Dose**\
+`President-elect Joseph R. Biden Jr. received the second dose of the Pfizer-BioNTech Covid-19 vaccine. Mr. Biden took the first of his two scheduled doses last month.`\
+https://nytimes.com/video/embedded/us/politics/100000007544700/live-biden-vaccine.html?searchResultPosition=6
 
 **The talk radio network that airs Dan Bongino and Mark Levin warned staff to stop ‘dog-whistle talk.’**\
 `Cumulus Media, a radio giant, told employees on Wednesday that they would be fired if they continued to back the president’s false claims of a stolen election.`\
