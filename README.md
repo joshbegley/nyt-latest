@@ -2,12 +2,12 @@
 `With “Total Blackout: The Tamborine Extended Cut,” the comic effectively erases the stamp of the original director, Bo Burnham, and turns in a less intimate show.`\
 https://nytimes.com/2021/01/12/arts/television/chris-rock-tamborine-extended-cut.html?searchResultPosition=1
 
-**What Was President Trump’s Twitter?**\
+**What Was Donald Trump’s Twitter?**\
 `“I’m going to be very restrained, if I use it at all,” Donald Trump told us in 2016. Something else happened.`\
 https://nytimes.com/2021/01/12/style/trump-twitter-ban.html?searchResultPosition=2
 
 **Your Wednesday Briefing**\
-`The renminbi is booming.`\
+`The renminbi is strengthening.`\
 https://nytimes.com/2021/01/12/briefing/china-currency-virus-variant-japan-impeachment.html?searchResultPosition=3
 
 **Rupert Grint Sees a Stage Mother in His Daughter’s Future**\
