@@ -6,8 +6,8 @@ https://nytimes.com/2021/01/12/us/politics/us-security-precautions.html?searchRe
 `This Yaniv Raz drama, about a Walt Whitman-obsessed teenager with a pigeon as an imaginary therapist, is drunk on its stylistic affectations.`\
 https://nytimes.com/2021/01/12/movies/dr-birds-advice-for-sad-poets-review.html?searchResultPosition=2
 
-**Data Recorder Recovered from Indonesian Plane Crash**\
-`The recovery of the so-called “black box” will help officials understand why Sriwijaya Air Flight 182 plummeted into the Java Sea on Saturday.`\
+**Data Recorder Recovered From Indonesian Plane Crash**\
+`The recovery of the so-called black box will help officials understand why Sriwijaya Air Flight 182 plummeted into the Java Sea on Saturday.`\
 https://nytimes.com/2021/01/12/world/asia/indonesian-plane-crash.html?searchResultPosition=3
 
 **A Corporate Backlash**\
