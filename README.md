@@ -10,13 +10,13 @@ https://nytimes.com/2021/01/12/business/media/netflix-2021-movies.html?searchRes
 `Airports across the United States are devoting more space to freight shipments as online shopping surges in the pandemic.`\
 https://nytimes.com/2021/01/12/business/air-cargo-airports-amazon.html?searchResultPosition=3
 
-**Recent Commercial Real Estate Transactions**\
-`Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2021/01/12/business/new-york-commercial-real-estate.html?searchResultPosition=4
-
 **Sally Rooney to Publish ‘Beautiful World, Where Are You’**\
 `The novel, which follows four young people in Ireland, is part of a two-book deal for the best-selling author of “Normal People” and “Conversations With Friends.”`\
-https://nytimes.com/2021/01/12/books/sally-rooney-beautiful-world-where-are-you.html?searchResultPosition=5
+https://nytimes.com/2021/01/12/books/sally-rooney-beautiful-world-where-are-you.html?searchResultPosition=4
+
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2021/01/12/business/new-york-commercial-real-estate.html?searchResultPosition=5
 
 **California Tries to Speed Up Vaccinations**\
 `Tuesday: Eligibility requirements have been loosened. Mass vaccination centers are in the works. Also: More fallout from the Capitol riot.`\
