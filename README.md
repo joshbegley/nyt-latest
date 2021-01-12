@@ -1,6 +1,6 @@
 **Amazon says it will remove QAnon products from its store.**\
 `By Karen Weise`\
-https://nytimes.com/2021/01/11/business/amazon-says-it-will-remove-qanon-products-from-its-store.html?searchResultPosition=1
+https://nytimes.com/2021/01/11/business/amazon-qanon.html?searchResultPosition=1
 
 **How White Evangelical Christians Fused With Trump Extremism**\
 `A potent mix of grievance and religious fervor has turbocharged the support among Trump loyalists, many of whom describe themselves as participants in a kind of holy war.`\
