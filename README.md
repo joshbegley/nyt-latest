@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/12/learning/teaching-with-the-my-ten-column.html?sea
 `As companies put their donations to candidates on hold, they should reassess political giving entirely, making the halt permanent.`\
 https://nytimes.com/2021/01/12/business/dealbook/political-donations-ibm.html?searchResultPosition=6
 
-**Covid-19 Took a Bite From U.S. Greenhouse Gas Emissions in 2020**\
+**Covid Took a Bite From U.S. Greenhouse Gas Emissions in 2020**\
 `Emissions plunged more than 10 percent. If the trend can be sustained, it would put the United States within striking distance of one of its major goals under the Paris climate agreement.`\
 https://nytimes.com/2021/01/12/climate/2020-greenhouse-gas-emissions.html?searchResultPosition=7
 
