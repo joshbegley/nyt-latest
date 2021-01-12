@@ -30,7 +30,7 @@ https://nytimes.com/2021/01/12/podcasts/the-daily/donald-trump-impeachment.html?
 `The governor’s agenda focuses on curtailing the pandemic, including vaccinating New Yorkers, and easing the fiscal crisis.`\
 https://nytimes.com/2021/01/12/nyregion/cuomo-new-york.html?searchResultPosition=8
 
-**India’s Top Court Suspends Farm Laws, in a Blow to Modi’s Ambitions**\
+**India’s Top Court Suspends Farm Laws That Prompted Massive Protests**\
 `The bid to overhaul the troubled agricultural sector had led to huge protests by farmers, who feared the new, market-oriented rules would hurt their livelihoods.`\
 https://nytimes.com/2021/01/12/world/asia/india-farmers-protest-court-law.html?searchResultPosition=9
 
