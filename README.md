@@ -14,7 +14,7 @@ https://nytimes.com/video/us/politics/100000007547020/mike-pompeo-iran-state-dep
 `The 27-year-old Nashville star leaves ample room for musical variety on his second LP, “Dangerous: The Double Album,” but keeps his lyrics focused on rural America as an idyllic fantasy.`\
 https://nytimes.com/2021/01/12/arts/music/morgan-wallen-dangerous-the-double-album-review.html?searchResultPosition=4
 
-**Grieving Lawmaker Jamie Raskin Leads the Push to Impeach Trump**\
+**Grieving Son’s Death, Maryland Lawmaker Fights to Impeach Trump**\
 `Representative Jamie Raskin, Democrat of Maryland, lost his 25-year-old son to suicide on New Year’s Eve. Then he survived the mob attack on the Capitol. Now, he leads the impeachment effort.`\
 https://nytimes.com/2021/01/12/us/politics/jamie-raskin-trump.html?searchResultPosition=5
 
