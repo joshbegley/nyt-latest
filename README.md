@@ -1,4 +1,4 @@
-**McConnell is said to be pleased about impeachment, believing it will make it easier to purge Trump from the Republican Party.**\
+**McConnell is said to be pleased about impeachment, believing it will be easier to purge Trump from the G.O.P.**\
 `By Jonathan Martin and Maggie Haberman`\
 https://nytimes.com/2021/01/12/us/mcconnell-impeachment-trump-mc.html?searchResultPosition=1
 
