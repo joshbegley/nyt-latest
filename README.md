@@ -10,7 +10,7 @@ https://nytimes.com/2021/01/12/arts/alice-rose-george-dead.html?searchResultPosi
 `The death of Mr. Adelson, who spent over half a billion dollars to boost Republicans, may complicate their efforts to regain control of Congress. “A next generation of Sheldon-level giving does not readily exist,” one strategist said.`\
 https://nytimes.com/2021/01/12/us/politics/adelson-republican-fundraising.html?searchResultPosition=3
 
-**One Mask Is Good. Would Two Would Be Better?**\
+**One Mask Is Good. Would Two Be Better?**\
 `Health experts double down on their advice for slowing the spread of the coronavirus.`\
 https://nytimes.com/2021/01/12/health/coronavirus-masks-transmission.html?searchResultPosition=4
 
