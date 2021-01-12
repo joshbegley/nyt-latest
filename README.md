@@ -15,7 +15,7 @@ https://nytimes.com/2021/01/12/books/review-swim-pond-rain-george-saunders.html?
 https://nytimes.com/2021/01/12/world/alabama-coronavirus-football.html?searchResultPosition=4
 
 **Viewers’ Streaming Favorites? Old Network TV Shows**\
-`“The Office,” “Grey’s Anatomy” and “Criminal Minds,” each accounted for more viewing time than any other show or movie on streaming platforms last year, according to Nielsen.`\
+`“The Office,” “Grey’s Anatomy” and “Criminal Minds” each accounted for more viewing time than any other show or movie on streaming platforms last year, according to Nielsen.`\
 https://nytimes.com/2021/01/12/business/media/most-streamed-shows-nielsen.html?searchResultPosition=5
 
 **6 Books to Understand the Precarious Political Moment**\
