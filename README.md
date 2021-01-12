@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/12/world/europe/brexit-sandwich-netherlands.html?sea
 `A government commission found  high death rates, unethical vaccine trials and traumatic living conditions at 18 homes that were used to house unwed mothers up until the 1990s.`\
 https://nytimes.com/2021/01/12/world/europe/ireland-mother-baby-home-report.html?searchResultPosition=6
 
-**In first public appearance since the Capitol siege, Trump expresses no contrition for his role in inciting the mob.**\
+**In first public appearance since the Capitol siege, Trump expresses no contrition for inciting the mob.**\
 `President Trump claimed that it was the impeachment charge, not the violence and ransacking of the Capitol, that was “causing tremendous anger.”`\
 https://nytimes.com/2021/01/12/us/trump-texas-border-wall.html?searchResultPosition=7
 
