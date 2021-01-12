@@ -1,6 +1,6 @@
 **McConnell is said to be pleased about impeachment, believing it will be easier to purge Trump from the G.O.P.**\
 `By Jonathan Martin and Maggie Haberman`\
-https://nytimes.com/2021/01/12/us/mcconnell-impeachment-trump-mc.html?searchResultPosition=1
+https://nytimes.com/2021/01/12/us/mitch-mcconnell-trump-impeachment.html?searchResultPosition=1
 
 **House Rules Committee Engages in Heated Impeachment Exchange**\
 `The House Rules Committee met on Tuesday to debate a resolution calling on Vice President Mike Pence to invoke the 25th Amendment and strip President Trump of his duties.`\
