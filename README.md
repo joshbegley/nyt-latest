@@ -1,4 +1,4 @@
-**‘I Could Just Vanish.’ In Kabul, Pocket Notes to Prevent Anonymous Death.**\
+**‘I Could Just Vanish’: In Kabul, Pocket Notes to Prevent Anonymous Death**\
 `As violence engulfs them, some Afghans carry notes with their names, blood types and relatives’ phone numbers in case they are killed or severely wounded.`\
 https://nytimes.com/2021/01/12/world/asia/afghanistan-attacks-pocket-notes.html?searchResultPosition=1
 
