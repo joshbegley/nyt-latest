@@ -18,7 +18,7 @@ https://nytimes.com/2021/01/12/us/politics/fbi-trump.html?searchResultPosition=4
 `In a letter to Speaker Nancy Pelosi, Vice President Mike Pence rejected the possibility of stripping President Trump of his powers through the 25th Amendment.`\
 https://nytimes.com/interactive/2021/01/13/us/pence-letter-to-pelosi.html?searchResultPosition=5
 
-**In letter to Pelosi, Pence rejects House effort to remove Trump.**\
+**In letter to Pelosi, Pence rejects House effort to have him strip Trump of powers.**\
 `By Chris Cameron`\
 https://nytimes.com/2021/01/12/us/pence-25th-amendment.html?searchResultPosition=6
 
