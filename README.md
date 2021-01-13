@@ -1,4 +1,4 @@
-**Read the Pence’s Letter to Pelosi**\
+**Read Pence’s Letter to Pelosi**\
 `In a letter to Speaker Nancy Pelosi, Vice President Mike Pence rejected the possibility of stripping President Trump of his powers through the 25th Amendment.`\
 https://nytimes.com/interactive/2021/01/13/us/pence-letter-to-pelosi.html?searchResultPosition=1
 
