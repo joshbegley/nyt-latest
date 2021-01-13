@@ -1,5 +1,5 @@
 **When Did This Rug Become ‘The’ Rug?**\
-`There are a million Moroccan Berger knockoffs but — like the Amazon coat before it — one particular brand and pattern is winning.`\
+`There are a million Moroccan Berber knockoffs but — like the Amazon coat before it — one particular brand and pattern is winning.`\
 https://nytimes.com/2021/01/13/style/moroccan-trellis-rug.html?searchResultPosition=1
 
 **No Bubble for the N.B.A. Season? It’s a Problem**\
