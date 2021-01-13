@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/12/opinion/world-covid-vaccines.html?searchResultPos
 https://nytimes.com/2021/01/12/opinion/republicans-trump.html?searchResultPosition=3
 
 **Ex-Governor’s Lawyer Says Charges in Flint Crisis Would Be ‘Meritless’**\
-`Gov. Rick Snyder, a Republican, was Michigan’s governor during the city’s water crisis, which left residents sickened.`\
+`Rick Snyder, a Republican, was Michigan’s governor during the city’s water crisis, which left residents sickened.`\
 https://nytimes.com/2021/01/12/us/flint-water-charges.html?searchResultPosition=6
 
 **N.B.A. Tightens Rules as Virus Crisis Spreads**\
