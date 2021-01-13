@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/13/us/politics/diana-degette-impeachment-manager.htm
 
 **Can Anyone Beat Chadwick Boseman for the Best-Actor Oscar?**\
 `Expect a category where a handful of titanic veterans and an influx of up-and-comers vie to be Boseman’s runner-up.`\
-https://nytimes.com/2021/01/13/movies/oscars-best-actor.html?searchResultPosition=5
+https://nytimes.com/2021/01/13/movies/oscars-best-actor-boseman.html?searchResultPosition=5
 
 **Biden’s Inaugural Will Bring Out Stars, but Few Crowds**\
 `Inaugurations have long mirrored the nation’s cultural life. Joe Biden’s will feature Tom Hanks, Justin Timberlake and Jon Bon Jovi — remotely, in an age of illness and threats.`\
