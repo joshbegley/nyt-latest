@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/13/books/orwellian-1984.html?searchResultPosition=1
 
 **Why Remove Trump Now? A Guide to the Second Impeachment of a President**\
 `With only a week left in his term, the House is set to impeach President Trump, but he will probably leave office before he stands trial in the Senate. Here’s how the process works.`\
-https://nytimes.com/2021/01/13/us/politics/trump-impeachment-process.html?searchResultPosition=2
+https://nytimes.com/article/why-impeach-remove-trump-now.html?searchResultPosition=2
 
 **Good Luck Is a Curse in This Classic Film From Senegal**\
 `Ousmane Sembène’s “Mandabi,” about a devout Muslim man who comes into some money, is a post-colonial satire that’s still resonant today.`\
