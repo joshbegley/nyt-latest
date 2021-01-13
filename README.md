@@ -1,40 +1,40 @@
+**Jimmy Fallon: Mike Pence Just Can’t Win With Trump Fans**\
+`“It’s a tough choice for Pence: Invoke the 25th and have MAGA nation hate you, or refuse and still have MAGA nation hate you,” Fallon said.`\
+https://nytimes.com/2021/01/13/arts/television/late-night-mike-pence-trump-25th-amendment.html?searchResultPosition=1
+
 **Uganda Blocks Facebook Ahead of Contentious Election**\
 `President Yoweri Museveni accused the company of “arrogance” after it removed fake accounts and pages linked to his re-election campaign.`\
-https://nytimes.com/2021/01/13/world/africa/uganda-facebook-ban-elections.html?searchResultPosition=1
+https://nytimes.com/2021/01/13/world/africa/uganda-facebook-ban-elections.html?searchResultPosition=2
 
 **The Olympics Were No Fluke. American Women Are Excelling in Cross-Country Skiing.**\
 `Jessie Diggins won the notoriously grueling Tour de Ski, after she and Rosie Brennan notched 1-2 finishes in two consecutive stages.`\
-https://nytimes.com/2021/01/13/sports/skiing/jessie-diggins-cross-country-skiing.html?searchResultPosition=2
+https://nytimes.com/2021/01/13/sports/skiing/jessie-diggins-cross-country-skiing.html?searchResultPosition=3
 
 **Word + Quiz: wisenheimer**\
 `This word has appeared in three articles on NYTimes.com in the past five years.`\
-https://nytimes.com/2021/01/13/learning/word-quiz-wisenheimer.html?searchResultPosition=3
+https://nytimes.com/2021/01/13/learning/word-quiz-wisenheimer.html?searchResultPosition=4
 
 **U.S. Executes Lisa Montgomery for 2004 Murder**\
 `She was the first woman to be put to death by the federal government since 1953 and had been the only woman on federal death row.`\
-https://nytimes.com/2021/01/13/us/politics/lisa-montgomery-execution.html?searchResultPosition=4
+https://nytimes.com/2021/01/13/us/politics/lisa-montgomery-execution.html?searchResultPosition=5
 
 **House Calls on Pence to Remove Trump From Power**\
 `The House of Representatives voted, 223 to 205, on Tuesday night to call on Vice President Mike Pence to invoke the 25th Amendment to strip President Trump of his powers for inciting a mob to attack the Capitol.`\
-https://nytimes.com/video/us/politics/100000007548376/house-vote-25th-amendment-trump-pence.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000007548376/house-vote-25th-amendment-trump-pence.html?searchResultPosition=6
 
 **​Kim Jong-un Uses Party ​Congress to Double Down on Nuclear Program**\
 `The North Korean leader said his economic policies had failed, but he called his nuclear arms buildup one of the great feats “in the history of the Korean nation​.”`\
-https://nytimes.com/2021/01/13/world/asia/north-korea-congress.html?searchResultPosition=6
+https://nytimes.com/2021/01/13/world/asia/north-korea-congress.html?searchResultPosition=7
 
 **YouTube Suspends Trump’s Channel for at Least Seven Days**\
 `YouTube is the latest tech company to bar the president from posting online, following Twitter, Facebook and others.`\
-https://nytimes.com/2021/01/12/technology/youtube-suspends-trump.html?searchResultPosition=7
+https://nytimes.com/2021/01/12/technology/youtube-suspends-trump.html?searchResultPosition=8
 
 **Your Wednesday Briefing**\
 `A likely vote on Trump’s impeachment.`\
-https://nytimes.com/2021/01/12/briefing/impeachment-coronavirus-ireland.html?searchResultPosition=8
+https://nytimes.com/2021/01/12/briefing/impeachment-coronavirus-ireland.html?searchResultPosition=9
 
 **One of Six Inmates Who Escaped From California Jail Is Recaptured**\
 `Edgar Ventura, 22, was arrested Tuesday “without incident” about 35 miles south of the Merced County Downtown Jail, officials said.`\
-https://nytimes.com/2021/01/12/us/escaped-prisoner-california-caught.html?searchResultPosition=9
-
-**Quotation of the Day: Cultural Crisis For American Indians as Elders Die**\
-`Quotation of the Day for Wednesday, January 13, 2021.`\
-https://nytimes.com/2021/01/12/todayspaper/quotation-of-the-day-cultural-crisis-for-american-indians-as-elders-die.html?searchResultPosition=10
+https://nytimes.com/2021/01/12/us/escaped-prisoner-california-caught.html?searchResultPosition=10
 
