@@ -1,40 +1,40 @@
+**Watch Live: House Moves Forward With Second Impeachment**\
+`On Wednesday, the House of Representatives will consider articles of impeachment against President Trump, accusing him of “inciting an insurrection” after the Jan. 6 attacks on the Capitol.`\
+https://nytimes.com/video/us/politics/100000007548749/house-second-impeachment-vote.html?searchResultPosition=1
+
+**Making Sense of the Capitol Attack**\
+`Wednesday: Putting the events of Jan. 6 in historical context with Lawrence Rosenthal, who has studied the right wing.`\
+https://nytimes.com/2021/01/13/us/capitol-attack-california.html?searchResultPosition=2
+
 **New York City Will End Contracts With Trump Over Capitol Riot**\
-`The mayor said the city would cancel contracts with the Trump Organization for two ice skating rinks, the Central Park Carousel and the Trump Golf Links in the Bronx.`\
-https://nytimes.com/2021/01/13/nyregion/nyc-trump-golf-carousel-ice-rinks.html?searchResultPosition=1
+`The mayor said the city would cancel contracts with the Trump Organization for two ice rinks, the Central Park Carousel and the Trump Golf Links in the Bronx.`\
+https://nytimes.com/2021/01/13/nyregion/nyc-trump-golf-carousel-ice-rinks.html?searchResultPosition=3
 
 **Estonia’s Prime Minister Steps Down Under a Cloud**\
 `The resignation of Juri Ratas in a scandal involving pandemic relief loans is an unusual hiccup in a buttoned-down country.`\
-https://nytimes.com/2021/01/13/world/europe/estonia-prime-minister-ratas-resigns.html?searchResultPosition=2
+https://nytimes.com/2021/01/13/world/europe/estonia-prime-minister-ratas-resigns.html?searchResultPosition=4
 
 **Potential Priorities for Wall Street’s Next Top Cop**\
 `Gary Gensler is reportedly President-elect Joe Biden’s choice to lead the S.E.C. Here’s what he might focus on.`\
-https://nytimes.com/2021/01/13/business/dealbook/gary-gensler-sec.html?searchResultPosition=3
+https://nytimes.com/2021/01/13/business/dealbook/gary-gensler-sec.html?searchResultPosition=5
 
 **Republicans Break Ranks on Impeachment**\
 `Mitch McConnell appears ready to cut ties with Trump: This is your morning tip sheet.`\
-https://nytimes.com/2021/01/13/us/politics/republicans-trump.html?searchResultPosition=4
+https://nytimes.com/2021/01/13/us/politics/republicans-trump.html?searchResultPosition=6
 
 **For Some Scottish Seafood Exporters, Brexit Could Be a Death Knell**\
 `Reliant on markets in the European Union, they fear that making any mistake in daunting new paperwork could cause border delays that would ruin entire shipments — and their businesses.`\
-https://nytimes.com/2021/01/13/world/europe/scotland-seafood-brexit-.html?searchResultPosition=5
+https://nytimes.com/2021/01/13/world/europe/scotland-seafood-brexit-.html?searchResultPosition=7
 
 **Indonesian Plane Went From No Flights to 132 in Less Than a Month**\
 `The mothballing adds another possible factor in the crash of the 26-year-old Boeing 737-500, which killed 62 people on Sriwijaya Air Flight 182.`\
-https://nytimes.com/2021/01/13/world/asia/indonesian-plane-crash-mothball.html?searchResultPosition=6
+https://nytimes.com/2021/01/13/world/asia/indonesian-plane-crash-mothball.html?searchResultPosition=8
 
 **Facing New Outbreaks, China Places Over 22 Million on Lockdown**\
 `The country is experiencing its worst coronavirus flare-up since last summer, testing the government’s success in subduing the disease.`\
-https://nytimes.com/2021/01/13/world/asia/china-covid-lockdown.html?searchResultPosition=7
+https://nytimes.com/2021/01/13/world/asia/china-covid-lockdown.html?searchResultPosition=9
 
 **The Psychology Behind Sibling Rivalry**\
 `You can’t avoid fighting. You can only hope to contain it.`\
-https://nytimes.com/2021/01/13/parenting/sibling-rivalry-fights-kids.html?searchResultPosition=8
-
-**The State of the Pandemic**\
-`And what else you need to know today.`\
-https://nytimes.com/2021/01/13/briefing/mike-pence-sheldon-adelson-execution-lisa-montgomery.html?searchResultPosition=9
-
-**Egypt Overturns Jail Sentences for 2 Women Who Gained Fame on TikTok**\
-`Convicted of inciting debauchery and violating family values, the women were caught up in a conservative backlash as the authorities tried to enforce strict social norms.`\
-https://nytimes.com/2021/01/13/world/middleeast/egypt-women-tiktok.html?searchResultPosition=10
+https://nytimes.com/2021/01/13/parenting/sibling-rivalry-fights-kids.html?searchResultPosition=10
 
