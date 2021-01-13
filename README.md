@@ -10,8 +10,8 @@ https://nytimes.com/2021/01/13/us/coronavirus-today.html?searchResultPosition=2
 `Nondenominational “spiritual companions” offer to connect clients to the divine in their everyday life.`\
 https://nytimes.com/2021/01/13/style/self-care/spiritual-directors-faith-religion.html?searchResultPosition=3
 
-**House Debates Historic Second Impeachment of Trump**\
-`On Wednesday, the House of Representatives considered articles of impeachment against President Trump, accusing him of “inciting an insurrection” after the Jan. 6 attacks on the Capitol.`\
+**Trump Impeached Again, With Some G.O.P. Support**\
+`On Wednesday, the House of Representatives impeached President Trump for inciting a violent insurrection against the United States government, following the Jan. 6 attacks on the Capitol. Ten Republican members voted with Democrats.`\
 https://nytimes.com/video/us/politics/100000007549954/trump-impeachment-house-debate.html?searchResultPosition=4
 
 **The Impeachment Proceedings That Came Before**\
