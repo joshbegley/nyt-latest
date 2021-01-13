@@ -6,8 +6,8 @@ https://nytimes.com/2021/01/13/style/moroccan-trellis-rug.html?searchResultPosit
 `Coronavirus cases, and game postponements, are piling up less than a month into the season. The league is turning to stricter rules off and on the court, but that may not be enough.`\
 https://nytimes.com/2021/01/13/sports/basketball/nba-coronavirus-postponements.html?searchResultPosition=2
 
-**Rioter wearing ‘Camp Auschwitz’ T-shirt is arrested, according to law enforcement.**\
-`A man who was photographed wearing a T-shirt that read “Camp Auschwitz” while inside the Capitol last week was arrested in Newport News, Va., in connection to the riot.`\
+**Rioter wearing ‘Camp Auschwitz’ sweatshirt is arrested, according to law enforcement.**\
+`A man who was photographed wearing a sweatshirt that read “Camp Auschwitz” while inside the Capitol last week was arrested in Newport News, Va., in connection to the riot.`\
 https://nytimes.com/2021/01/13/us/politics/camp-auschwitz-rioter-arrested.html?searchResultPosition=3
 
 **Many Lack Access to Pads and Tampons. What Are Lawmakers Doing About It?**\
