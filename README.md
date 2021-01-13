@@ -1,5 +1,5 @@
 **Smithsonian Scales Back $2 Billion Expansion Plan**\
-`The museum announced that it would abandon elements of its ambitious redesign, opting for a more modest approach.`\
+`The organization announced that it would abandon elements of its ambitious redesign, opting for a more modest approach.`\
 https://nytimes.com/2021/01/13/arts/design/smithsonian-expansion-plan.html?searchResultPosition=1
 
 **Coronavirus Briefing: What Happened Today**\
