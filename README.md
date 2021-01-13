@@ -7,8 +7,8 @@ https://nytimes.com/2021/01/13/us/politics/biden-inauguration-national-guard-pro
 https://nytimes.com/2021/01/13/us/politics/trump-polls.html?searchResultPosition=2
 
 **Federal authorities warn that the Capitol breach will be a ‘significant driver of violence.’**\
-`By Zolan Kanno-Youngs`\
-https://nytimes.com/2021/01/13/us/politics/federal-authorities-warn-that-the-capitol-breach-will-be-a-significant-driver-of-violence.html?searchResultPosition=3
+`The deadly breach at the Capitol last week will be a “significant driver of violence” for armed militia groups and racist extremists who are targeting the presidential inauguration next week, according to a joint intelligence bulletin issued by federal authorities.`\
+https://nytimes.com/2021/01/13/us/politics/capitol-breach-driver-of-violence.html?searchResultPosition=3
 
 **A Second Impeachment: Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
