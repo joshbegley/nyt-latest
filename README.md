@@ -1,6 +1,6 @@
 **Trump and the Complicit Republicans**\
 `“If we are to heal as a country, those in office who supported a rogue president above their country should be shamed,” a reader writes.`\
-https://nytimes.com/2021/01/13/opinion/letters/trump-and-the-complicit-republicans.html?searchResultPosition=1
+https://nytimes.com/2021/01/13/opinion/letters/trump-republicans.html?searchResultPosition=1
 
 **$750,000 Homes in Connecticut, Missouri and Minnesota**\
 `An 1846 cottage in Noank, a 1902 American Foursquare in St. Louis and an 1890 Queen Anne Victorian in St. Paul.`\
