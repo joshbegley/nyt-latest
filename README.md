@@ -27,7 +27,7 @@ https://nytimes.com/2021/01/13/health/covid-vaccine-johnson-johnson.html?searchR
 https://nytimes.com/2021/01/13/business/onlyfans-pandemic-users.html?searchResultPosition=7
 
 **How 8 Countries Have Tried to Keep Artists Afloat**\
-`In December, owners and operators of theaters and music halls across the United States breathed a sigh of relief when Congress passed the latest coronavirus aid package, which finally set aside $15 billion to help desperate cultural venues.`\
+`Governments around the world have tried to support the arts during the pandemic, some more generously than others.`\
 https://nytimes.com/2021/01/13/arts/coronavirus-pandemic-arts-support.html?searchResultPosition=8
 
 **Lack of Tiny Parts Disrupts Auto Factories Worldwide**\
