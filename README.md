@@ -1,40 +1,40 @@
-**She Works Two Jobs. She’s Still Facing Eviction.**\
-`Moratoriums kept millions housed, but back rent has piled up. On Feb. 1, the bill is due.`\
-https://nytimes.com/video/opinion/100000007505860/eviction-moratorium-congress.html?searchResultPosition=1
+**Larchmont, N.Y.: An Affluent Suburb on Long Island Sound**\
+`With a walkable downtown, spacious homes and proximity to Manhattan, this Westchester village has seen an influx of city buyers during the pandemic.`\
+https://nytimes.com/2021/01/13/realestate/larchmont-ny-an-affluent-suburb-on-long-island-sound.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Who Gets to Breathe Clean Air in New Delhi?’**\
-`In this lesson, students will meet two children, Monu and Aamya, and learn about how an invisible enemy threatens each differently based on their families’ income.`\
-https://nytimes.com/2021/01/13/learning/lesson-of-the-day-who-gets-to-breathe-clean-air-in-new-delhi.html?searchResultPosition=2
+**Living In ... Larchmont, N.Y.**\
+`With a walkable downtown, spacious homes and proximity to Manhattan, this Westchester village has seen an influx of city buyers during the pandemic.`\
+https://nytimes.com/slideshow/2021/01/13/realestate/living-in-larchmont-ny.html?searchResultPosition=2
 
-**Aleksei Navalny Says He’ll Return to Russia on Sunday**\
-`The opposition leader has been recovering in Germany from a poisoning attack widely believed to have been carried out by the Russian state.`\
-https://nytimes.com/2021/01/13/world/europe/aleksei-navalny-russia-return.html?searchResultPosition=3
+**Decoding the Far-Right Symbols at the Capitol Riot**\
+`There were militia flags and banners of extremist groups, as well as absurd images of dinosaurs and comic book logos that belied the violence that was to unfold.`\
+https://nytimes.com/2021/01/13/video/extremist-signs-symbols-capitol-riot.html?searchResultPosition=3
 
-**South Korean Church Leader Gets Suspended Prison Term After Virus Fallout**\
-`Lee Man-hee’s church, Shincheonji, was the epicenter of the first wave of coronavirus infections in South Korea last year.`\
-https://nytimes.com/2021/01/13/world/asia/korea-church-covid-trial-prison.html?searchResultPosition=4
+**Johnson & Johnson Expects Vaccine Results Soon but Lags in Production**\
+`The U.S. needs J.&J.’s one-shot vaccine more than ever. But the company is behind on manufacturing promises made in its Operation Warp Speed contract.`\
+https://nytimes.com/2021/01/13/health/covid-vaccine-johnson-johnson.html?searchResultPosition=4
 
-**How to Watch the Second Trump Impeachment Vote**\
-`The House will hold a vote on Wednesday to impeach President Trump. Here’s how to follow along.`\
-https://nytimes.com/2021/01/13/us/politics/what-time-is-trump-impeachment-vote.html?searchResultPosition=5
+**Jobless, Selling Nudes Online and Still Struggling**\
+`OnlyFans, a social media platform that allows people to sell explicit photos of themselves, has boomed during the pandemic. But competition on the site means many won’t earn much.`\
+https://nytimes.com/2021/01/13/business/onlyfans-pandemic-users.html?searchResultPosition=5
 
-**The Knicks Are Off to a Decent Start. Is This a Drill?**\
-`A more aggressive Knicks team has excited fans early, racking up big wins over Milwaukee and Utah. But they’ve lost three in a row, a worrisome sign for fans who’ve been let down before.`\
-https://nytimes.com/2021/01/13/sports/basketball/knicks-nba.html?searchResultPosition=6
+**How 8 Countries Have Tried to Keep Artists Afloat**\
+`Governments around the world have tried to support the arts during the pandemic, some more generously than others.`\
+https://nytimes.com/2021/01/13/arts/coronavirus-pandemic-arts-support.html?searchResultPosition=6
 
-**McGuire, Wall Street Favorite, Raises $5 Million and Jolts Mayor’s Race**\
-`New York’s business community is coalescing behind Raymond J. McGuire, an ex-Wall Street executive, but the support may turn off some left-leaning voters.`\
-https://nytimes.com/2021/01/13/nyregion/ray-mcguire-donors-mayor.html?searchResultPosition=7
+**Lack of Tiny Parts Disrupts Auto Factories Worldwide**\
+`Carmakers can’t buy the semiconductors they need because home electronics are taking all the supply.`\
+https://nytimes.com/2021/01/13/business/auto-factories-semiconductor-chips.html?searchResultPosition=7
 
-**N.H.L. Enters Another Abbreviated Season**\
-`Tampa Bay will try to defend its title without one of its stars, and the Seattle expansion draft after the season will affect teams’ personnel decisions.`\
-https://nytimes.com/2021/01/13/sports/hockey/2021-nhl-season-preview.html?searchResultPosition=8
+**Now Social Media Grows a Conscience?**\
+`Facebook and Twitter are taking action. It’s too little, too late.`\
+https://nytimes.com/2021/01/13/opinion/capitol-attack-twitter-facebook.html?searchResultPosition=8
 
-**Falling Off the Globe**\
-`What is this image saying?`\
-https://nytimes.com/2021/01/13/learning/falling-off-the-globe.html?searchResultPosition=9
+**White Riot**\
+`How racism, grievance, resentment and the fear of diminished status came together to fuel violence and mayhem on Jan. 6.`\
+https://nytimes.com/2021/01/13/opinion/capitol-riot-white-grievance.html?searchResultPosition=9
 
-**Jimmy Fallon: Mike Pence Just Can’t Win With Trump Fans**\
-`“It’s a tough choice for Pence: Invoke the 25th and have MAGA nation hate you, or refuse and still have MAGA nation hate you,” Fallon said.`\
-https://nytimes.com/2021/01/13/arts/television/late-night-mike-pence-trump-25th-amendment.html?searchResultPosition=10
+**Biden to Restore Homeland Security and Cybersecurity Aides to Senior White House Posts**\
+`The two appointments illustrate how the president-elect appears determined to rebuild a White House national security team to focus on threats that critics say were ignored by President Trump.`\
+https://nytimes.com/2021/01/13/us/politics/biden-homeland-security-cybersecurity.html?searchResultPosition=10
 
