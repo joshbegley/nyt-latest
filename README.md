@@ -23,7 +23,7 @@ https://nytimes.com/2021/01/12/sports/basketball/nba-postpone-coronavirus.html?s
 https://nytimes.com/2021/01/12/opinion/impeachment-congress-trump.html?searchResultPosition=8
 
 **Diego Rivera Mural to Get Landmark Status, Blocking Potential Sale**\
-`Officials unanimously vote to protect the $50 million artwork after the San Francisco Art Institute threatened to sell it to cover debts.`\
+`Officials unanimously voted to protect the $50 million artwork after the San Francisco Art Institute threatened to sell it to cover debts.`\
 https://nytimes.com/2021/01/12/arts/design/rivera-mural-to-become-landmark.html?searchResultPosition=9
 
 **Congress United After 9/11, but 1/6 Has Deepened the Divide**\
