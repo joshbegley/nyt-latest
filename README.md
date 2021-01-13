@@ -11,7 +11,7 @@ https://nytimes.com/slideshow/2021/01/13/realestate/what-you-get-for-750000.html
 https://nytimes.com/2021/01/13/technology/personaltech/smartphone-camera-do-more.html?searchResultPosition=3
 
 **House Debates New Article of Impeachment for Trump**\
-`Democrats are planning a Tuesday vote to formally call on the vice president to wrest power from President Trump and a Wednesday impeachment vote in the House if he does not.`\
+`Lawmakers are set to impeach President Trump on Wednesday, after formally calling on Vice President Mike Pence to use the 25th Amendment.`\
 https://nytimes.com/interactive/2021/01/13/us/politics/live-stream-house-trump-impeachment.html?searchResultPosition=4
 
 **Who Made My Crossword?**\
