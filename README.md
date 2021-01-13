@@ -1,4 +1,4 @@
-**Church Leader in South Korea Receives Suspended Prison Term After Virus Fallout**\
+**South Korean Church Leader Gets Suspended Prison Term After Virus Fallout**\
 `Lee Man-hee’s church, Shincheonji, was the epicenter of the first wave of coronavirus infections in South Korea last year.`\
 https://nytimes.com/2021/01/13/world/asia/korea-church-covid-trial-prison.html?searchResultPosition=1
 
