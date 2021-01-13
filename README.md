@@ -1,5 +1,5 @@
 **How to Watch the Second Trump Impeachment Vote**\
-`The House will hold a vote on Wednesday to impeach President Trump. Heres how to follow along.`\
+`The House will hold a vote on Wednesday to impeach President Trump. Here’s how to follow along.`\
 https://nytimes.com/2021/01/13/us/politics/what-time-is-trump-impeachment-vote.html?searchResultPosition=1
 
 **The Knicks Are Off to a Decent Start. Is This a Drill?**\
