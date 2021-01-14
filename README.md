@@ -1,5 +1,5 @@
 **Harold N. Bornstein, Trump’s Former Personal Physician, Dies at 73**\
-`He attested that Trump would be the ‘healthiest president ever,’ but was later expelled from the Trump orbit.,`\
+`He attested that Trump would be the ‘healthiest president ever,’ but was later expelled from the Trump orbit.`\
 https://nytimes.com/2021/01/14/nyregion/harold-bornstein-dead.html?searchResultPosition=1
 
 **Kelly Loeffler and the N.Y.S.E.**\
