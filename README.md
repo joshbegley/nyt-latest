@@ -1,40 +1,40 @@
+**Andy Murray’s Australian Open Said to Be in Doubt After Positive Test**\
+`Murray reportedly tested positive for the coronavirus just before he was to leave for Melbourne, where strict quarantine rules await all players.`\
+https://nytimes.com/2021/01/14/sports/tennis/andy-murray-coronavirus-australian-open.html?searchResultPosition=1
+
+**Homes for Sale in Brooklyn, Manhattan and the Bronx**\
+`This week’s properties are in Brooklyn Heights, Morningside Heights and Fieldston.`\
+https://nytimes.com/2021/01/14/realestate/housing-market-nyc.html?searchResultPosition=2
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties include an eight-bedroom in Pelham Manor, N.Y., and a five-bedroom in Westport, Conn.`\
+https://nytimes.com/2021/01/14/realestate/housing-market-near-nyc.html?searchResultPosition=3
+
+**On the Market in New York City**\
+`This week’s properties are in Brooklyn Heights, Morningside Heights and Fieldston.`\
+https://nytimes.com/slideshow/2021/01/14/realestate/on-the-market-in-new-york-city.html?searchResultPosition=4
+
+**On the Market in the New York Region**\
+`This week’s properties include an eight-bedroom in Pelham Manor, N.Y., and a five-bedroom in Westport, Conn.`\
+https://nytimes.com/slideshow/2021/01/14/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=5
+
+**The T List: Five Things We Recommend This Week**\
+`Fanciful wallpaper, new work by Marie Watt — and more.`\
+https://nytimes.com/2021/01/14/t-magazine/wine-wallpaper-sol-lewitt.html?searchResultPosition=6
+
+**Where Are Home Prices Rising the Most?**\
+`A recent report finds that home prices rose 14 percent nationally over a year. But not all markets are created equal.`\
+https://nytimes.com/2021/01/14/realestate/where-are-home-prices-rising-the-most.html?searchResultPosition=7
+
+**My Brother-in-Law Should Divorce My Sister. Right?**\
+`I’m worried her actions and stubbornness are getting in the way of his happiness.`\
+https://nytimes.com/2021/01/14/style/social-qs-divorce.html?searchResultPosition=8
+
+**What’s in Our Queue? ‘Grand Designs’**\
+`I’m the Times’s chief television critic. Here are some things I've been watching, reading and listening to.`\
+https://nytimes.com/interactive/2021/01/14/arts/editors-recommendations-grand-designs.html?searchResultPosition=9
+
 **Newsom on Covid: ‘There Are Some Good Things to Report’**\
 `Thursday: The state makes everyone 65 and older eligible for vaccines. Also: Why the only California Republican to vote to impeach President Trump did it.`\
-https://nytimes.com/2021/01/14/us/ca-covid-vaccines.html?searchResultPosition=1
-
-**Harold N. Bornstein, Trump’s Former Personal Physician, Dies at 73**\
-`He attested that Trump would be the ‘healthiest president ever,’ but was later expelled from the Trump orbit.`\
-https://nytimes.com/2021/01/14/nyregion/harold-bornstein-dead.html?searchResultPosition=2
-
-**Kelly Loeffler and the N.Y.S.E.**\
-`One company may have a harder time than most separating itself from the controversy at the Capitol.`\
-https://nytimes.com/2021/01/14/business/dealbook/kelly-loeffler-nyse.html?searchResultPosition=3
-
-**Martin Luther King Jr. Day: 9 Ways to Honor His Legacy**\
-`Marches and parades are on pause this year. But streamed events and exhibitions are still commemorating King’s achievements.`\
-https://nytimes.com/2021/01/14/arts/television/mlk-day-events-online.html?searchResultPosition=4
-
-**If You Were a Member of Congress, Would You Vote to Impeach President Trump?**\
-`What consequences should the president face for his involvement in inciting a riot at the U.S. Capitol?`\
-https://nytimes.com/2021/01/14/learning/if-you-were-a-member-of-congress-would-you-vote-to-impeach-president-trump.html?searchResultPosition=5
-
-**These Bond Funds Might Offer Juicy Yields, and Unwelcome Surprises**\
-`Unconstrained bond funds can invest in just about anything, sometimes even stock, so good luck figuring out exactly where they put your money.`\
-https://nytimes.com/2021/01/14/business/these-bond-funds-might-offer-juicy-yields-and-unwelcome-surprises.html?searchResultPosition=6
-
-**‘One Night in Miami’ Review: After the Big Fight, a War of Words**\
-`A 1964 meeting of Malcolm X, Cassius Clay, Sam Cooke and Jim Brown is the subject of Regina King’s riveting directorial debut.`\
-https://nytimes.com/2021/01/14/movies/one-night-in-miami-review.html?searchResultPosition=7
-
-**‘Film About a Father Who’ Review: Family Secrets by Omission**\
-`In her new documentary, Lynne Sachs assesses her relationship with her father, Ira Sachs Sr., who fathered children with multiple women.`\
-https://nytimes.com/2021/01/14/movies/film-about-a-father-who-review.html?searchResultPosition=8
-
-**‘Bloody Hell’ Review: An Acrid Thriller Bites Off Too Much**\
-`Cannibals and comedy are mixed in this deranged ride from the director Alister Grierson.`\
-https://nytimes.com/2021/01/14/movies/bloody-hell-review.html?searchResultPosition=9
-
-**A Historic Impeachment and a Big Choice for the Senate**\
-`Trump enters the history books. Now what will McConnell do? This is your morning tip sheet.`\
-https://nytimes.com/2021/01/14/us/politics/senate-impeachment.html?searchResultPosition=10
+https://nytimes.com/2021/01/14/us/ca-covid-vaccines.html?searchResultPosition=10
 
