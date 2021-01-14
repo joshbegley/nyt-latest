@@ -1,6 +1,6 @@
 **Kathleen Heddle, Rower Who Won 3 Olympic Gold Medals, Dies at 55**\
 `“I liked the balance between brute strength and power with finesse,” Ms. Heddle, a two-time Olympian for Canada, said of her sport.`\
-https://nytimes.com/2021/01/13/sports/olympics/13xp-kathleen-heddle-dead.html?searchResultPosition=1
+https://nytimes.com/2021/01/13/sports/olympics/kathleen-heddle-dead.html?searchResultPosition=1
 
 **Grubhub Will Deliver Girl Scout Cookies Amid the Pandemic**\
 `The Girl Scouts are also using virtual cookie booths and drive-through pickup sites to promote social distancing.`\
