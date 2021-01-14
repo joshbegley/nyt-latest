@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/14/realestate/new-york-city-real-estate-market.html?
 https://nytimes.com/article/inauguration-day.html?searchResultPosition=3
 
 **W.H.O. Team Finally Lands in Wuhan to Trace Origin of Virus**\
-`Beijing has repeatedly impeded the beginning of the World Health Organization’s inquiry into the virus’s emergence, worried about drawing attention to its early mistakes.`\
+`Beijing has repeatedly impeded the global inquiry into the emergence of the coronavirus, worried about drawing attention to its early mistakes.`\
 https://nytimes.com/2021/01/13/world/asia/china-who-wuhan-covid.html?searchResultPosition=4
 
 **Corrections: Jan. 14, 2021**\
