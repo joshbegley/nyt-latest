@@ -1,40 +1,40 @@
+**How Much Watching Time Do You Have This Weekend?**\
+`If you need soothing, an escape, or something that’s just fun, there’s plenty worth checking out.`\
+https://nytimes.com/2021/01/14/arts/television/weekend-magicians-joe-pera.html?searchResultPosition=1
+
+**Overwhelmed, More States Turn to National Guard for Vaccine Help**\
+`At least 16 states and territories are using the National Guard to give shots, drawing on doctors, nurses, medics and other troops who are skilled in administering injections.`\
+https://nytimes.com/2021/01/14/us/politics/coronavirus-vaccine-national-guard.html?searchResultPosition=2
+
+**Madrid Mayor Says Snowstorm Caused Nearly $2 Billion in Damage**\
+`The storm, named Filomena, dropped more than a foot and a half of snow on the city and its surrounding areas.`\
+https://nytimes.com/2021/01/14/world/europe/madrid-snowstorm-damage.html?searchResultPosition=3
+
+**Fed Will Not Raise Interest Rates Anytime Soon, Powell Says**\
+`Jerome H. Powell, the chair of the Federal Reserve, said the U.S. economy is a long way from recovery and the central bank would not raise interest rates anytime soon.`\
+https://nytimes.com/video/us/politics/100000007551681/powell-fed-interest-rate.html?searchResultPosition=4
+
 **U.S. Blacklisting of Yemen’s Houthis May Cause ‘Large-Scale Famine,’ U.N. Warns**\
 `U.N. officials say that the designation of the Houthis as a terrorist organization could choke food deliveries to Yemen, where millions face starvation.`\
-https://nytimes.com/2021/01/14/world/middleeast/yemen-famine-houthis.html?searchResultPosition=1
+https://nytimes.com/2021/01/14/world/middleeast/yemen-famine-houthis.html?searchResultPosition=5
 
 **12 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2021/01/14/books/review/12-new-books-we-recommend-this-week.html?searchResultPosition=2
+https://nytimes.com/2021/01/14/books/review/12-new-books-we-recommend-this-week.html?searchResultPosition=6
 
 **Trump Ignites a War Within the Church**\
 `After a week of Trumpist mayhem, white evangelicals wrestle with what they’ve become.`\
-https://nytimes.com/2021/01/14/opinion/trump-evangelicals.html?searchResultPosition=3
+https://nytimes.com/2021/01/14/opinion/trump-evangelicals.html?searchResultPosition=7
 
 **Murkowski signals she is open to convicting Trump as the timing of the Senate impeachment trial remains unclear.**\
 `By Nicholas Fandos`\
-https://nytimes.com/2021/01/14/us/murkowski-trump.html?searchResultPosition=4
+https://nytimes.com/2021/01/14/us/murkowski-trump.html?searchResultPosition=8
 
 **The U.K. bans travel from Latin America and Portugal, citing concern about a Brazilian variant.**\
 `By Elian Peltier`\
-https://nytimes.com/2021/01/14/world/europe/uk-travel-ban-brazilian-variant-latin-america-portugal.html?searchResultPosition=5
+https://nytimes.com/2021/01/14/world/europe/uk-travel-ban-brazilian-variant-latin-america-portugal.html?searchResultPosition=9
 
 **Working Women of Color Were Making Progress. Then the Coronavirus Hit.**\
 `Those hard-won gains were never guaranteed to last. Now we’re seeing just how precarious they were all along.`\
-https://nytimes.com/2021/01/14/opinion/minority-women-unemployment-covid.html?searchResultPosition=6
-
-**Ted Lumpkin Jr., a Tuskegee Airman, Dies at 100**\
-`In World War II, he was among a barrier-shattering group of Black pilots and support personnel. He died of complications of Covid-19.`\
-https://nytimes.com/2021/01/14/obituaries/ted-lumpkin-dead-coronavirus.html?searchResultPosition=7
-
-**Trump Appointee Will Temporarily Lead Pentagon Until Biden’s Pick Is Confirmed**\
-`David Norquist will be Joseph R. Biden Jr.’s acting defense secretary, if only for a few days. A retired rear admiral, John Kirby, will be the Pentagon press secretary.`\
-https://nytimes.com/2021/01/14/us/politics/biden-norquist-defense-secretary.html?searchResultPosition=8
-
-**Mary Catherine Bateson Dies at 82; Anthropologist on Lives of Women**\
-`After a well-documented childhood as the daughter of Margaret Mead, she earned her own renown with a book on women’s lives that became a touchstone to feminists.`\
-https://nytimes.com/2021/01/14/books/mary-catherine-bateson-dead.html?searchResultPosition=9
-
-**How Trump’s Worldview Is Ingrained in State and Local Republicans**\
-`As President Trump prepares to exit the White House, his ideas, including falsehoods and conspiracy theories, continue to exert a gravitational pull among grass-roots G.O.P. officials.`\
-https://nytimes.com/2021/01/14/us/politics/trump-republicans.html?searchResultPosition=10
+https://nytimes.com/2021/01/14/opinion/minority-women-unemployment-covid.html?searchResultPosition=10
 
