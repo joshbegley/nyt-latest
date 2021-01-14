@@ -32,7 +32,7 @@ https://nytimes.com/2021/01/14/business/mutfund/invest-stocks-bonds-gambling.htm
 
 **Lady Gaga and Jennifer Lopez to Sing at Biden’s Inauguration**\
 `Lady Gaga will sing the national anthem at Joe Biden’s swearing-in ceremony, which will feature a performance by Jennifer Lopez.`\
-https://nytimes.com/2021/01/14/arts/music/biden-inaugural-lady-gaga.html?searchResultPosition=9
+https://nytimes.com/2021/01/14/arts/music/biden-inauguration-lady-gaga-jennifer-lopez.html?searchResultPosition=9
 
 **What to Expect When You’re Expecting the Worst**\
 `People who have lost pregnancies often emotionally distance themselves when they become pregnant again. But is that healthy?`\
