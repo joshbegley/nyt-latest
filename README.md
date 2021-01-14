@@ -1,5 +1,5 @@
 **Yang’s Rivals in the Mayoral Race Co-opt His Signature Idea**\
-`Andrew Yang has entered the race for mayor of New York, pushing a modified version of universal basic income, the centerpiece of his presidential bid.`\
+`Andrew Yang favors a modified version of universal basic income that would provide payments of about $2,000 to a half million of the poorest New Yorkers.`\
 https://nytimes.com/2021/01/14/nyregion/andrew-yang-ubi-mayor.html?searchResultPosition=1
 
 **How Sustainable Is the Rally in Renewable Energy Stocks?**\
