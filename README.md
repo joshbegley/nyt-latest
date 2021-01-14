@@ -28,7 +28,7 @@ https://nytimes.com/2021/01/13/us/politics/impeachment-briefing-trump-is-impeach
 
 **A Preordained Coda to a Presidency**\
 `The impeachment of President Trump for a second time — in a Capitol ringed by troops — seemed like the almost inevitable culmination of four years that left the nation fractured, angry and losing its sense of self.`\
-https://nytimes.com/2021/01/13/us/politics/trump-impeachment-coda-presidency.html?searchResultPosition=8
+https://nytimes.com/2021/01/13/us/politics/donald-j-trump-impeachment-second-time.html?searchResultPosition=8
 
 **A Proud Boys supporter threatened violence against the Rev. Raphael Warnock, prosecutors said.**\
 `By Ed Shanahan and Nicole Hong`\
