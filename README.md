@@ -1,40 +1,40 @@
+**The Capitol Police Had One Mission. Now the Force Is in Crisis.**\
+`The department’s performance during the rampage at the Capitol has cast a harsh light on an agency that has been unused to public scrutiny.`\
+https://nytimes.com/2021/01/14/us/capitol-police-washington.html?searchResultPosition=1
+
+**After Much Different Bubble Stays, Rangers and Islanders Start New Year**\
+`The Rangers lost in the play-in round, while the Islanders reached their first conference finals since the early 1990s. Both teams have reason for excitement as they open the 2021 against each other.`\
+https://nytimes.com/2021/01/14/sports/hockey/rangers-islanders-2021-nhl-season-preview.html?searchResultPosition=2
+
+**Will N.F.L. Teams Learn the Right Lessons From Josh Allen’s Success?**\
+`The Buffalo Bills quarterback made an astonishing developmental jump in his third season that could provide a valuable map — or an untenable comparison — for teams trying to replicate it.`\
+https://nytimes.com/2021/01/14/sports/football/josh-allen-bills-playoffs.html?searchResultPosition=3
+
+**Community Clean Up**\
+`How do you help keep your neighborhood clean?`\
+https://nytimes.com/2021/01/14/learning/community-clean-up.html?searchResultPosition=4
+
 **Word + Quiz: biddable**\
 `This word has appeared in five articles on NYTimes.com in the past 10 years.`\
-https://nytimes.com/2021/01/14/learning/word-quiz-biddable.html?searchResultPosition=1
+https://nytimes.com/2021/01/14/learning/word-quiz-biddable.html?searchResultPosition=5
 
 **Late Night Reviews ‘Trump’s Impeachment: The Sequel’**\
 `“Makes sense — this president loves having seconds,” Stephen Colbert said on Wednesday.`\
-https://nytimes.com/2021/01/14/arts/television/late-night-trump-impeachment-stephen-colbert.html?searchResultPosition=2
+https://nytimes.com/2021/01/14/arts/television/late-night-trump-impeachment-stephen-colbert.html?searchResultPosition=6
 
 **N.F.L. Playoff Predictions: Our Picks in the Divisional Round**\
 `The A.F.C.’s young quarterbacks fight for a trip to the conference championship, while veterans, and defense, lead the way in the N.F.C.`\
-https://nytimes.com/2021/01/14/sports/football/nfl-playoff-picks-divisional-round.html?searchResultPosition=3
+https://nytimes.com/2021/01/14/sports/football/nfl-playoff-picks-divisional-round.html?searchResultPosition=7
 
 **New York Rents Continue to Slide, While Sales Rebound in Brooklyn**\
 `Manhattan’s median rent ended 2020 down by 17.3 percent, but the sales market showed signs of life in the other boroughs.`\
-https://nytimes.com/2021/01/14/realestate/new-york-city-real-estate-market.html?searchResultPosition=4
+https://nytimes.com/2021/01/14/realestate/new-york-city-real-estate-market.html?searchResultPosition=8
 
 **Inauguration Day: What You Need to Know**\
 `Washington is preparing for unrest, and planners urge people not to attend during a pandemic, but virtual events are intended to keep up the spirit of celebration.`\
-https://nytimes.com/article/inauguration-day.html?searchResultPosition=5
+https://nytimes.com/article/inauguration-day.html?searchResultPosition=9
 
 **W.H.O. Team Finally Lands in Wuhan to Trace Origin of Virus**\
 `Beijing has repeatedly impeded the global inquiry into the emergence of the coronavirus, worried about drawing attention to its early mistakes.`\
-https://nytimes.com/2021/01/13/world/asia/china-who-wuhan-covid.html?searchResultPosition=6
-
-**Corrections: Jan. 14, 2021**\
-`Corrections that appeared in print on Thursday, Jan. 14, 2021.`\
-https://nytimes.com/2021/01/13/pageoneplus/corrections-jan-14-2021.html?searchResultPosition=7
-
-**Quotation of the Day: Impeached**\
-`Quotation of the Day for Thursday, January 14, 2021.`\
-https://nytimes.com/2021/01/13/todayspaper/quotation-of-the-day-impeached.html?searchResultPosition=8
-
-**U.S. Capitol Fills With National Guard Troops**\
-`The troops lined the halls of the Capitol on Wednesday as the House of Representatives prepared to vote to impeach President Trump one week after he incited a mob to overrun the complex.`\
-https://nytimes.com/video/us/politics/100000007550529/national-guard-us-capitol-impeachment.html?searchResultPosition=9
-
-**Your Thursday Briefing**\
-`Trump is impeached again.`\
-https://nytimes.com/2021/01/13/briefing/impeachment-aleksei-navalny-coronavirus.html?searchResultPosition=10
+https://nytimes.com/2021/01/13/world/asia/china-who-wuhan-covid.html?searchResultPosition=10
 
