@@ -1,40 +1,40 @@
+**How to Move a Giraffe**\
+`As the senior wildlife veterinarian at the Uganda Wildlife Authority, Dr. Robert Aruho, 36, finds himself in the very tricky business of moving giraffes.`\
+https://nytimes.com/2021/01/14/business/how-to-move-a-giraffe.html?searchResultPosition=1
+
+**How to Be a Better Investor: Do Nothing**\
+`Once you have set up your stock and bond portfolio, avoiding further action is the most important and also the hardest task, our columnist says.`\
+https://nytimes.com/2021/01/14/business/mutfund/invest-stocks-bonds-gambling.html?searchResultPosition=2
+
 **Lady Gaga and Jennifer Lopez to Sing at Biden’s Inauguration**\
 `Lady Gaga will sing the national anthem at Joe Biden’s swearing-in ceremony, which will feature a performance by Jennifer Lopez.`\
-https://nytimes.com/2021/01/14/arts/music/biden-inaugural-lady-gaga.html?searchResultPosition=1
+https://nytimes.com/2021/01/14/arts/music/biden-inaugural-lady-gaga.html?searchResultPosition=3
 
 **What to Expect When You’re Expecting the Worst**\
 `People who have lost pregnancies often emotionally distance themselves when they become pregnant again. But is that healthy?`\
-https://nytimes.com/2021/01/14/parenting/pregnancy-loss-emotional-cushioning.html?searchResultPosition=2
+https://nytimes.com/2021/01/14/parenting/pregnancy-loss-emotional-cushioning.html?searchResultPosition=4
 
 **Jaime Harrison Said to Be Pick for Next D.N.C. Chair**\
 `Mr. Harrison, a veteran of South Carolina politics, was the Democratic nominee against Senator Lindsey Graham and shattered fund-raising records in the race.`\
-https://nytimes.com/2021/01/14/us/politics/jaime-harrison-dnc-chairman.html?searchResultPosition=3
+https://nytimes.com/2021/01/14/us/politics/jaime-harrison-dnc-chairman.html?searchResultPosition=5
 
 **In ‘Lupin,’ Omar Sy Puts a New Twist on a Classic French Tale**\
 `In the international hit from Netflix, the actor plays a modern gentleman thief, inspired by the charming rapscallion Arsène Lupin.`\
-https://nytimes.com/2021/01/14/arts/television/lupin-netflix-omar-sy.html?searchResultPosition=4
+https://nytimes.com/2021/01/14/arts/television/lupin-netflix-omar-sy.html?searchResultPosition=6
 
 **Urban Meyer in Talks to Make N.F.L. Jump With Jacksonville Jaguars**\
 `Meyer coached Florida and Ohio State to national championships before retiring in 2018. He is in talks to take over the Jaguars, who are expected to draft Clemson quarterback Trevor Lawrence first over all.`\
-https://nytimes.com/2021/01/14/sports/football/urban-meyer-nfl-jaguars.html?searchResultPosition=5
+https://nytimes.com/2021/01/14/sports/football/urban-meyer-nfl-jaguars.html?searchResultPosition=7
 
 **Former Michigan Governor Arraigned on Neglect Charges for Flint’s Water Disaster**\
 `Rick Snyder, the former governor, was leading the state when the city’s water became tainted in 2014.`\
-https://nytimes.com/2021/01/14/us/rick-snyder-flint-water-charges.html?searchResultPosition=6
+https://nytimes.com/2021/01/14/us/rick-snyder-flint-water-charges.html?searchResultPosition=8
 
 **A Global Tour of a Record-Hot Year**\
 `Data issued Thursday by NASA confirmed that 2020 has effectively tied the hottest year on record. That means the last seven years have been the warmest since the beginning of modern record-keeping.`\
-https://nytimes.com/interactive/2021/01/14/climate/hottest-year-2020-global-map.html?searchResultPosition=7
+https://nytimes.com/interactive/2021/01/14/climate/hottest-year-2020-global-map.html?searchResultPosition=9
 
 **Electric Eels Hunt in Packs, Shocking Prey and Scientists**\
 `The behavior, used by wolves and orcas to run down fast prey, is rarely seen in fish.`\
-https://nytimes.com/2021/01/14/science/electric-eels-hunting-pack.html?searchResultPosition=8
-
-**Julia Letlow, whose husband died of Covid-19 before being sworn into Congress, will run for the seat.**\
-`By Glenn Thrush and Emily Cochrane`\
-https://nytimes.com/2021/01/14/us/julia-letlow-congress-luke.html?searchResultPosition=9
-
-**Who Qualifies for a Second Round of Small-Business Relief?**\
-`The hardest-hit owners will be eligible for another loan from the Paycheck Protection Program.`\
-https://nytimes.com/2021/01/14/business/ppp-loans-questions.html?searchResultPosition=10
+https://nytimes.com/2021/01/14/science/electric-eels-hunting-pack.html?searchResultPosition=10
 
