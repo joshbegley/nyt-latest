@@ -1,40 +1,40 @@
+**‘One Night in Miami’ Review: After the Big Fight, a War of Words**\
+`A 1964 meeting of Malcolm X, Cassius Clay, Sam Cooke and Jim Brown is the subject of Regina King’s riveting directorial debut.`\
+https://nytimes.com/2021/01/14/movies/one-night-in-miami-review.html?searchResultPosition=1
+
+**These Bond Funds Might Offer Juicy Yields, and Unwelcome Surprises**\
+`Unconstrained bond funds can invest in just about anything, sometimes even stock, so good luck figuring out exactly where they put your money.`\
+https://nytimes.com/2021/01/14/business/these-bond-funds-might-offer-juicy-yields-and-unwelcome-surprises.html?searchResultPosition=2
+
+**‘Film About a Father Who’ Review: Family Secrets by Omission**\
+`In her new documentary, Lynne Sachs assesses her relationship with her father, Ira Sachs Sr., who fathered children with multiple women.`\
+https://nytimes.com/2021/01/14/movies/film-about-a-father-who-review.html?searchResultPosition=3
+
+**‘Bloody Hell’ Review: An Acrid Thriller Bites Off Too Much**\
+`Cannibals and comedy are mixed in this deranged ride from the director Alister Grierson.`\
+https://nytimes.com/2021/01/14/movies/bloody-hell-review.html?searchResultPosition=4
+
+**A Historic Impeachment and a Big Choice for the Senate**\
+`Trump enters the history books. Now what will McConnell do? This is your morning tip sheet.`\
+https://nytimes.com/2021/01/14/us/politics/senate-impeachment.html?searchResultPosition=5
+
+**‘My Little Sister’ Review: Sibling Dependency**\
+`A cancer diagnosis only strengthens the bond between adult twins in this perceptive Swiss drama.`\
+https://nytimes.com/2021/01/14/movies/my-little-sister-review-sibling-dependency.html?searchResultPosition=6
+
+**‘Some Kind of Heaven’ Review: Hardly an Idle Retirement**\
+`This documentary co-produced by The New York Times visits a retirement community the size of a small city.`\
+https://nytimes.com/2021/01/14/movies/some-kind-of-heaven-review.html?searchResultPosition=7
+
 **Microsoft, Oracle and Salesforce join a push for digital vaccination credentials.**\
 `By Natasha Singer`\
-https://nytimes.com/2021/01/14/business/microsoft-oracle-and-salesforce-join-a-push-for-digital-vaccination-credentials.html?searchResultPosition=1
+https://nytimes.com/2021/01/14/business/microsoft-oracle-and-salesforce-join-a-push-for-digital-vaccination-credentials.html?searchResultPosition=8
 
 **‘Hunted’ Review: Catch Me if You Can**\
 `Riffing on “Little Red Riding Hood,” this sadistic chase movie sends a young woman and two attackers into the deep, dark woods.`\
-https://nytimes.com/2021/01/14/movies/hunted-review.html?searchResultPosition=2
+https://nytimes.com/2021/01/14/movies/hunted-review.html?searchResultPosition=9
 
 **‘The Marksman’ Review: In Need of a Mission**\
 `Liam Neeson plays the reluctant protector of an undocumented Mexican boy in this dusty drama.`\
-https://nytimes.com/2021/01/14/movies/the-marksman-review.html?searchResultPosition=3
-
-**‘Locked Down’ Review: In Quarantine, Misery Hates Company**\
-`Anne Hathaway and Chiwetel Ejiofor play a couple sheltering in their London brownstone over the early weeks of the pandemic in this irritating heist comedy.`\
-https://nytimes.com/2021/01/14/movies/locked-down-review.html?searchResultPosition=4
-
-**‘American Skin’ Review: Out for Justice**\
-`In Nate Parker’s film, a father takes matters into his own hands to hold a police officer to account for shooting down his son.`\
-https://nytimes.com/2021/01/14/movies/american-skin-review.html?searchResultPosition=5
-
-**‘The Most Bipartisan Impeachment’**\
-`And what else you need to know today.`\
-https://nytimes.com/2021/01/14/briefing/impeachment-capitol-trump-china-who-wuhan.html?searchResultPosition=6
-
-**Impeached, Again**\
-`The House of Representatives has voted for President Trump to be tried for a second time. How did it happen and what comes next?`\
-https://nytimes.com/2021/01/14/podcasts/the-daily/donald-trump-impeachment-capitol-riots.html?searchResultPosition=7
-
-**An S.U.V.? Ferrari Sees the Writing on the Road**\
-`The Purosangue, whose details remain closely held, will be out next year. But the carmaker’s evolving lineup, too, points to a (slightly) more inclusive approach.`\
-https://nytimes.com/2021/01/14/business/ferrari-2021-lineup.html?searchResultPosition=8
-
-**A Rally That Won’t Stop or a Bubble About to Pop**\
-`Stock market sentiment and valuations are high, and with bonds expensive, too, there may be few safe places to turn.`\
-https://nytimes.com/2021/01/14/business/a-rally-that-wont-stop-or-a-bubble-about-to-pop.html?searchResultPosition=9
-
-**Tips for Getting Your Financial Life in Order in Hard Times**\
-`Two books provide financial advice for the immediate issues and for retirement. But for deep problems you are likely to need additional help.`\
-https://nytimes.com/2021/01/14/business/tips-for-getting-your-financial-life-in-order-in-hard-times.html?searchResultPosition=10
+https://nytimes.com/2021/01/14/movies/the-marksman-review.html?searchResultPosition=10
 
