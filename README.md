@@ -2,15 +2,15 @@
 `The A.F.C.’s young quarterbacks fight for a trip to the conference championship, while veterans, and defense, lead the way in the N.F.C.`\
 https://nytimes.com/2021/01/14/sports/football/nfl-playoff-picks-divisional-round.html?searchResultPosition=1
 
-**Inauguration Day: What You Need to Know**\
-`Washington is preparing for unrest, and planners urge people not to attend during a pandemic, but virtual events are intended to keep up the spirit of celebration.`\
-https://nytimes.com/article/inauguration-day.html?searchResultPosition=2
-
 **New York Rents Continue to Slide, While Sales Rebound in Brooklyn**\
 `Manhattan’s median rent ended 2020 down by 17.3 percent, but the sales market showed signs of life in the other boroughs.`\
-https://nytimes.com/2021/01/14/realestate/new-york-city-real-estate-market.html?searchResultPosition=3
+https://nytimes.com/2021/01/14/realestate/new-york-city-real-estate-market.html?searchResultPosition=2
 
-**W.H.O. Finally Lands in China to Begin Tracing the Coronavirus. How Hard Will It Be?**\
+**Inauguration Day: What You Need to Know**\
+`Washington is preparing for unrest, and planners urge people not to attend during a pandemic, but virtual events are intended to keep up the spirit of celebration.`\
+https://nytimes.com/article/inauguration-day.html?searchResultPosition=3
+
+**W.H.O. Finally Lands in China to Trace the Coronavirus. How Hard Will It Be?**\
 `Beijing has repeatedly impeded the beginning of the World Health Organization’s inquiry into the virus’s emergence, worried about drawing attention to its early mistakes.`\
 https://nytimes.com/2021/01/13/world/asia/china-who-wuhan-covid.html?searchResultPosition=4
 
