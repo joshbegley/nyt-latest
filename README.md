@@ -22,8 +22,8 @@ https://nytimes.com/2021/01/14/business/tips-for-getting-your-financial-life-in-
 `Our columnist is searching for his own niche in a universe dominated by giants.`\
 https://nytimes.com/2021/01/14/business/mutfund/swimming-with-the-sharks-in-facebooks-world.html?searchResultPosition=6
 
-**What to Know About Uganda’s Presidential Election**\
-`Voting is underway in the East African nation, with the long-serving leader, President Yoweri Museveni, facing 10 rivals, including Bobi Wine, a 38-year-old lawmaker and musician.`\
+**Ugandans Are Voting. Will Their President of 35 Years Win Again?**\
+`Voting is underway in the East African nation, with the long-serving leader, President Yoweri Museveni, facing 10 rivals, including Bobi Wine, a lawmaker and musician.`\
 https://nytimes.com/2021/01/14/world/africa/uganda-elections-bobi-wine-museveni.html?searchResultPosition=7
 
 **A Rohingya Camp Fire Leaves Hundreds Homeless**\
