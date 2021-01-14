@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/14/us/politics/jaime-harrison-dnc-chairman.html?searchResultPosition=1
 
 **In ‘Lupin,’ Omar Sy Puts a New Twist on a Classic French Tale**\
-`In the international hit from Netflix, the actor plays a modern gentleman thief, inspired by the charming fin de siecle rapscallion Arsène Lupin.`\
+`In the international hit from Netflix, the actor plays a modern gentleman thief, inspired by the charming rapscallion Arsène Lupin.`\
 https://nytimes.com/2021/01/14/arts/television/lupin-netflix-omar-sy.html?searchResultPosition=2
 
 **Urban Meyer in Talks to Make N.F.L. Jump With Jacksonville Jaguars**\
