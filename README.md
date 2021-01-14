@@ -26,7 +26,7 @@ https://nytimes.com/2021/01/13/us/politics/biden-administration-trump-impeachmen
 `The House impeached President Trump for inciting a violent insurrection against the U.S. government.`\
 https://nytimes.com/2021/01/13/us/politics/impeachment-briefing-trump-is-impeached-again.html?searchResultPosition=7
 
-**A Fitting Coda to a Presidency**\
+**A Preordained Coda to a Presidency**\
 `The impeachment of President Trump for a second time — in a Capitol ringed by troops — seemed like the almost inevitable culmination of four years that left the nation fractured, angry and losing its sense of self.`\
 https://nytimes.com/2021/01/13/us/politics/trump-impeachment-coda-presidency.html?searchResultPosition=8
 
