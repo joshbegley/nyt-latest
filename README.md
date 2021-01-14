@@ -1,5 +1,5 @@
 **Under Heavy Pressure, Trump Releases Video Condemning Capitol Siege**\
-`The video was made public after President Trump was impeached a second time and after he told his followers in the hours following the riot a week ago that “we love you.”`\
+`The video was made public after President Trump was impeached a second time and after he told his followers in the hours following the start of the riot that “we love you.’’`\
 https://nytimes.com/2021/01/13/us/politics/trump-video-capitol-riot.html?searchResultPosition=1
 
 **Ex-Governor of Michigan Charged with Neglect in Flint Water Crisis**\
