@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/14/movies/dont-tell-a-soul-review.html?searchResultP
 
 **Siegfried Fischbacher, Magician of Siegfried & Roy, Dies at 81**\
 `Mr. Fischbacher’s partner, Roy Horn, died last May of complications of Covid-19. “There could be no Siegfried without Roy, and no Roy without Siegfried,” Mr. Fischbacher said at the time.`\
-https://nytimes.com/2021/01/14/theater/siegfried-fischbacher-dead.html?searchResultPosition=5
+https://nytimes.com/2021/01/14/arts/siegfried-and-roy-siegfried-fischbacher-dead.html?searchResultPosition=5
 
 **Mike D Is Cleaning Out the Family Attic**\
 `Out with the (very) old at Sotheby’s.`\
