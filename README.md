@@ -24,7 +24,7 @@ https://nytimes.com/2021/01/14/style/hester-diamond-art-auction.html?searchResul
 
 **Biden will skip his planned Amtrak ride to the inauguration because of security concerns.**\
 `By Michael Crowley`\
-https://nytimes.com/live/2021/01/14/us/impeachment-trump/biden-amtrak-inauguration?searchResultPosition=7
+https://nytimes.com/2021/01/14/us/biden-amtrak-inauguration.html?searchResultPosition=7
 
 **The ‘Great Gatsby’ Glut**\
 `F. Scott Fitzgerald’s classic novel about America and aspiration is now in the public domain, so new editions, as well as a graphic novel and a zombie adaptation, have gotten the green light.`\
