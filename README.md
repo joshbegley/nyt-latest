@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/13/us/fbi-police-threats-inauguration.html?searchRes
 
 **Trump Swings and Misses**\
 `Talk about a bankrupt presidency.`\
-https://nytimes.com/2021/01/13/opinion/trump-swings-and-misses.html?searchResultPosition=2
+https://nytimes.com/2021/01/13/opinion/trump-impeachment-presidency.html?searchResultPosition=2
 
 **Inside the Capitol for Impeachment: National Guard in Every Corner**\
 `One week after the siege of the Capitol, lawmakers impeached President Trump a second time under heavily armed guard.`\
