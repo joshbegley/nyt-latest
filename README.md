@@ -30,7 +30,7 @@ https://nytimes.com/2021/01/15/business/mutfund/with-vaccines-arriving-value-inv
 `After nearly a year of jockeying, no clear front-runner has emerged to lead Germany’s Christian Democratic Union. Three men are vying for delegates’ votes this weekend.`\
 https://nytimes.com/2021/01/15/world/europe/germany-merkel-christian-democrats.html?searchResultPosition=8
 
-**The Estate Tax May Change Under Biden. Here’s What to Do Now.**\
+**The Estate Tax May Change Under Biden, Affecting Far More People**\
 `In contrast to previous changes, the tax code could be modified in a way that affects everyone who has something of value to leave to heirs.`\
 https://nytimes.com/2021/01/15/your-money/estate-tax-biden.html?searchResultPosition=9
 
