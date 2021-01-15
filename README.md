@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Pig Painting May Be World’s Oldest Cave Art Yet, Archaeologists Say’**\
-`In this lesson, students will learn about a 45,500-year-old painting and then consider what the images in their own lives might say about them centuries from now.`\
-https://nytimes.com/2021/01/15/learning/lesson-of-the-day-pig-painting-may-be-worlds-oldest-cave-art-yet-archaeologists-say.html?searchResultPosition=1
+**Hounded by Wildfires, Californians Rethink Their Willingness to Rebuild**\
+`In the aftermath, some people are deciding to just begin new lives elsewhere. The pandemic and longstanding housing problems haven’t made the choices any easier.`\
+https://nytimes.com/2021/01/15/realestate/california-wildfires-rebuild.html?searchResultPosition=1
 
-**As Trump Clashes With Big Tech, China’s Censored Internet Takes His Side**\
-`Blurring the distinction between companies and government, official propaganda outlets use President Trump’s ouster from Twitter and Facebook to argue that nobody in the world enjoys free speech.`\
-https://nytimes.com/2021/01/15/business/trump-china-censorship.html?searchResultPosition=2
+**The Essential Octavia Butler**\
+`She created vivid new worlds to reveal truths about our own. Here’s where to start with her books.`\
+https://nytimes.com/2021/01/15/books/review/the-essential-octavia-butler.html?searchResultPosition=2
 
-**The Liberty Enter Free Agency ‘Absolutely’ Ready for Big Changes**\
-`Sabrina Ionescu’s ankle injury derailed the Liberty’s high hopes for her rookie year, but the team is again aiming to contend next season. This is how it can do it.`\
-https://nytimes.com/2021/01/15/sports/basketball/new-york-liberty-ionescu.html?searchResultPosition=3
+**He Just Wanted to Play Catch. They Got Relief from Troubled Times.**\
+`A callout on social media for a game of catch in Dallas drew a varied group of strangers who found escape from society’s turbulence in the most banal ritual.`\
+https://nytimes.com/2021/01/15/sports/baseball/baseball-catch-covid-impeachment.html?searchResultPosition=3
 
-**City Skateboarding**\
-`What story does this video inspire for you?`\
-https://nytimes.com/2021/01/15/learning/city-skateboarding.html?searchResultPosition=4
+**California: After the Wildfires**\
+`Homeowners must grapple with the desire to rebuild and the realities of the housing market.`\
+https://nytimes.com/slideshow/2021/01/15/realestate/california-wildfires-housing.html?searchResultPosition=4
 
-**Hopes for Tokyo’s Summer Olympics Darken**\
-`Organizers postponed the Olympic Games for one year last March. Nearly a year later, prospects are getting bleaker.`\
-https://nytimes.com/2021/01/15/sports/olympics/covid-olympics-tokyo-2020.html?searchResultPosition=5
+**‘It’s Starting Again’: Why Filipino Nurses Dread the Second Wave**\
+`Indispensable to New York City hospitals, health care workers from the Philippines died in shocking numbers last spring. Will things be different this winter?`\
+https://nytimes.com/2021/01/15/nyregion/filipino-nurses-coronavirus.html?searchResultPosition=5
 
-**Late Night: Shocker. Trump Stiffs Giuliani and Won’t Take His Calls.**\
-`“Impeachment was great, but there really is no more perfect way for this to end than Trump stiffing Rudy,” Seth Meyers said.`\
-https://nytimes.com/2021/01/15/arts/television/late-night-trump-rudy-giuliani.html?searchResultPosition=6
+**‘I Literally Had No One.’ Then the Foster Kittens Arrived.**\
+`The pandemic has made life hard for many people, and their pets, but others find themselves with more time and the resources to help.`\
+https://nytimes.com/2021/01/15/nyregion/coronavirus-cat-fostering-nyc.html?searchResultPosition=6
 
-**Word + Quiz: traduce**\
-`This word has appeared in 15 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/01/15/learning/word-quiz-traduce.html?searchResultPosition=7
+**A ‘Batman’ Actress Who Gives Voice to Her Community**\
+`Jayme Lawson is also getting Oscar buzz for “Farewell Amor.”`\
+https://nytimes.com/2021/01/15/style/jayme-lawson-batman-farewell-amor-actress.html?searchResultPosition=7
 
-**Melvis Kwok, Tireless Elvis Impersonator in Hong Kong, Dies at 68**\
-`Mr. Kwok, who busked in the Chinese territory for 28 years, was hardly the first Elvis Presley impersonator in Asia. But he may have been the most committed.`\
-https://nytimes.com/2021/01/15/world/asia/melvis-kwok-dead.html?searchResultPosition=8
+**More Than Half of States Widen Access to Vaccine, Raising Hopes as Well as Chaos**\
+`At least 28 states have begun vaccinating older people. Amid a shifting rollout, here is a look at what every state is doing.`\
+https://nytimes.com/2021/01/15/us/coronavirus-vaccine-states.html?searchResultPosition=8
 
-**At Least 35 Killed and Hundreds Injured as Quake Hits Indonesia**\
-`The 6.2-magnitude earthquake, Indonesia’s third deadly disaster in a week, struck Sulawesi island, flattening a hospital, destroying homes and setting off landslides.`\
-https://nytimes.com/2021/01/15/world/asia/indonesia-earthquake-sulawesi.html?searchResultPosition=9
+**The Kids of Survival Are Middle-Aged — and Transforming Yet Again**\
+`Studio K.O.S. continues the legacy of the ’80s art collective that grew up, entered museums and regrouped in Hoboken.`\
+https://nytimes.com/2021/01/15/arts/design/kos-kids-of-survival-art-collective.html?searchResultPosition=9
 
-**Why Does Australia Want to Kill Joe the Pigeon?**\
-`A racing pigeon named after the president-elect appeared to have traveled from Oregon to a backyard in Melbourne. Or did it?`\
-https://nytimes.com/2021/01/15/world/australia/joe-pigeon.html?searchResultPosition=10
+**He Brought Moynihan Train Hall to Life, but Didn’t Live to See It**\
+`Many credit Michael Evans with turning the vision for the hall at Penn Station into a reality. Before it opened, he took his own life.`\
+https://nytimes.com/2021/01/15/nyregion/michael-evans-moynihan-train-hall.html?searchResultPosition=10
 
