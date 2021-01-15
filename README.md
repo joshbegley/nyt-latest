@@ -20,7 +20,7 @@ https://nytimes.com/2021/01/15/business/why-are-some-mutual-funds-changing-into-
 
 **Tips for Reducing Credit Card Debt, Even if Balances Are Already Lower**\
 `While American balances are down over all, interest can still add up. If your stimulus check isn’t going to cover basics, consider reducing your debt.`\
-https://nytimes.com/2021/01/15/your-money/eliminating-credit-card-debt.html?searchResultPosition=6
+https://nytimes.com/2021/01/15/your-money/pay-off-credit-card-debt.html?searchResultPosition=6
 
 **The Work Diary of an Executive Who Must Find Just the Right Words**\
 `A communications strategist for an investment firm, Arielle Patrick has developed playbooks for companies in the event of a crisis, like a data breach or #MeToo incident. “Companies that don’t do this are, frankly, delusional,” she said.`\
