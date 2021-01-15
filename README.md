@@ -36,5 +36,5 @@ https://nytimes.com/2021/01/15/world/asia/indonesia-earthquake-sulawesi.html?sea
 
 **Why Does Australia Want to Kill a Bird Named Joe (Biden)?**\
 `A racing pigeon that appeared to have traveled from Oregon to a backyard in Melbourne faces death. But there’s a twist.`\
-https://nytimes.com/2021/01/15/world/australia/racing-pigeon-joe-biden.html?searchResultPosition=10
+https://nytimes.com/2021/01/15/world/australia/joe-pigeon.html?searchResultPosition=10
 
