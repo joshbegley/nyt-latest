@@ -1,10 +1,10 @@
-**The Liberty Enter Free Agency ‘Absolutely’ Ready for Big Changes**\
-`Sabrina Ionescu’s ankle injury derailed the Liberty’s high hopes for her rookie year, but the team is again aiming to contend next season. This is how it can do it.`\
-https://nytimes.com/2021/01/15/sports/basketball/new-york-liberty-ionescu.html?searchResultPosition=1
-
 **As Trump Clashes With Big Tech, China’s Censored Internet Takes His Side**\
 `Blurring the distinction between companies and government, official propaganda outlets use President Trump’s ouster from Twitter and Facebook to argue that nobody in the world enjoys free speech.`\
-https://nytimes.com/2021/01/15/business/trump-china-censorship.html?searchResultPosition=2
+https://nytimes.com/2021/01/15/business/trump-china-censorship.html?searchResultPosition=1
+
+**The Liberty Enter Free Agency ‘Absolutely’ Ready for Big Changes**\
+`Sabrina Ionescu’s ankle injury derailed the Liberty’s high hopes for her rookie year, but the team is again aiming to contend next season. This is how it can do it.`\
+https://nytimes.com/2021/01/15/sports/basketball/new-york-liberty-ionescu.html?searchResultPosition=2
 
 **City Skateboarding**\
 `What story does this video inspire for you?`\
