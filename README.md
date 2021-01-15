@@ -23,8 +23,8 @@ https://nytimes.com/2021/01/15/technology/when-tech-antitrust-failed.html?search
 https://nytimes.com/2021/01/15/books/diwhy.html?searchResultPosition=6
 
 **There have now been over two million virus-related deaths worldwide.**\
-`By Marc Santora`\
-https://nytimes.com/2021/01/15/world/there-have-now-been-over-two-million-virus-related-deaths-worldwide.html?searchResultPosition=7
+`A year into the pandemic, the carnage is spreading faster than ever.`\
+https://nytimes.com/2021/01/15/world/covid-death-news.html?searchResultPosition=7
 
 **Electric Cars Are Better for the Planet – and Often Your Budget, Too**\
 `New data published Thursday shows that despite the higher sticker price, electric cars may actually save drivers money in the long-run.`\
