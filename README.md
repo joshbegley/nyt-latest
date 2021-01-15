@@ -2,7 +2,7 @@
 `Mr. Kwok, who busked in the Chinese territory for 28 years, was hardly the first Elvis Presley impersonator in Asia. But he may have been the most committed.`\
 https://nytimes.com/2021/01/15/obituaries/melvis-kwok-dead.html?searchResultPosition=1
 
-**At Least 34 Killed and Hundreds Injured as Quake Hits Indonesia**\
+**At Least 35 Killed and Hundreds Injured as Quake Hits Indonesia**\
 `The 6.2-magnitude earthquake, Indonesia’s third deadly disaster in a week, struck Sulawesi island, flattening a hospital, destroying homes and setting off landslides.`\
 https://nytimes.com/2021/01/15/world/asia/indonesia-earthquake-sulawesi.html?searchResultPosition=2
 
