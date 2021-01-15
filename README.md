@@ -24,7 +24,7 @@ https://nytimes.com/2021/01/15/arts/design/brooklyn-academy-music-art-mlk.html?s
 
 **Watch: Biden Rolls Out Vaccination Plan**\
 `U.S. President-elect Joseph R. Biden Jr. delivered remarks in Wilmington, Del. on his plan to administer COVID-19 vaccines to the U.S. population.`\
-https://nytimes.com/video/us/politics/100000007553225/biden-vaccine-rollout.html?searchResultPosition=7
+https://nytimes.com/video/embedded/us/politics/100000007553225/biden-vaccine-rollout.html?searchResultPosition=7
 
 **A ‘Marvel Universe’ for Musicals? Meet the Makers of Averno**\
 `The shows have not been staged, but three concept albums are at the center of a sprawling fictional world created largely by teenagers.`\
