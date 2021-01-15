@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/15/theater/averno-musicals-over-and-out.html?searchResultPosition=1
 
 **A Mix of Pride and Doubts as Modi Launches India’s Covid-19 Vaccine Drive**\
-`The world’s largest inoculation program is set to begin on Saturday, but experts have questioned the data behind one of the country’s two vaccines — and patients don’t get to pick their shot.`\
+`One of the world’s largest inoculation programs is set to begin on Saturday, but experts have questioned the data behind one of the country’s two vaccines — and patients don’t get to pick their shot.`\
 https://nytimes.com/2021/01/15/world/asia/coronavirus-india-vaccine.html?searchResultPosition=2
 
 **The Consequences of the Capitol Attack**\
