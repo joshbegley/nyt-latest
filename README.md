@@ -19,7 +19,7 @@ https://nytimes.com/2021/01/15/business/britain-small-business-insurance-coronav
 https://nytimes.com/2021/01/15/opinion/letters/covid-vaccine-new-york.html?searchResultPosition=5
 
 **Celebrating King the Activist (Not Just the Dreamer) in Art**\
-`A digital tribute to the Rev. Dr. Martin Luther King Jr. joins seven Brooklyn-based artists, and BAM. .`\
+`A digital tribute to the Rev. Dr. Martin Luther King Jr. joins seven Brooklyn-based artists, and BAM.`\
 https://nytimes.com/2021/01/15/arts/design/brooklyn-academy-music-art-mlk.html?searchResultPosition=6
 
 **Watch Live: Biden Rolls Out Vaccination Plan**\
