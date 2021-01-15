@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/15/theater/Philip-J-Smith-dead.html?searchResultPosi
 
 **How the New Variant Could Affect Kids and Schools**\
 `It is expected to become the dominant form of the coronavirus by March in the United States.`\
-https://nytimes.com/2021/01/15/us/how-the-new-variant-could-affect-kids-and-schools.html?searchResultPosition=4
+https://nytimes.com/2021/01/15/us/kids-schools-coronavirus-variant.html?searchResultPosition=4
 
 **In Fleurie, Looking Beyond the Clichés of Beaujolais**\
 `In this esteemed cru of Beaujolais, the descriptions roll out reflexively: It’s floral, it’s soft, it’s easy. The truth is in the drinking.`\
