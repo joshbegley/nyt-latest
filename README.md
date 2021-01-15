@@ -28,7 +28,7 @@ https://nytimes.com/2021/01/14/briefing/joblessness-riot-investigation-hottest-y
 
 **Watch Live: Biden Address on Coronavirus and Economic Recovery**\
 `President-elect Joseph R. Biden Jr. announces his economic stimulus plan as members of his team have begun outlining the proposal to key Democrats in Congress.`\
-https://nytimes.com/video/us/politics/100000007551985/biden-coronavirus-economic-plan-live-stream.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/politics/100000007551985/biden-coronavirus-economic-plan-live-stream.html?searchResultPosition=8
 
 **A Co-Founder of The Intercept Says She Was Fired for Airing Concerns**\
 `The documentary filmmaker Laura Poitras said First Look Media ended its contract with her because of her public criticisms, an accusation the company denied.`\
