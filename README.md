@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2021/01/15/climate/electric-car-cost.html?searchResultPosition=1
 
 **C.D.C. Warns the New Virus Variant Could Fuel Huge Spikes in Covid Cases**\
-`The more contagious version, first identified in Britain, is expected to spread widely and lead to further strains on an already overburded health care system.`\
+`The more contagious version, first identified in Britain, is expected to spread widely and lead to further strains on an already overburdened health care system.`\
 https://nytimes.com/2021/01/15/health/covid-cdc-variant.html?searchResultPosition=2
 
 **Kyrie Irving Fined $50,000 for Attending Indoor Party**\
