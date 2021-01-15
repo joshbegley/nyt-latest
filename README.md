@@ -24,7 +24,7 @@ https://nytimes.com/2021/01/15/learning/word-quiz-traduce.html?searchResultPosit
 
 **Melvis Kwok, Tireless Elvis Impersonator in Hong Kong, Dies at 68**\
 `Mr. Kwok, who busked in the Chinese territory for 28 years, was hardly the first Elvis Presley impersonator in Asia. But he may have been the most committed.`\
-https://nytimes.com/2021/01/15/obituaries/melvis-kwok-dead.html?searchResultPosition=7
+https://nytimes.com/2021/01/15/world/asia/melvis-kwok-dead.html?searchResultPosition=7
 
 **At Least 35 Killed and Hundreds Injured as Quake Hits Indonesia**\
 `The 6.2-magnitude earthquake, Indonesia’s third deadly disaster in a week, struck Sulawesi island, flattening a hospital, destroying homes and setting off landslides.`\
