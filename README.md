@@ -36,5 +36,5 @@ https://nytimes.com/video/us/politics/100000007553683/pelosi-inauguration-securi
 
 **Michigan activates National Guard to help with security at its Capitol in Lansing.**\
 `By Kathleen Gray`\
-https://nytimes.com/2021/01/15/us/politics/michigan-activates-national-guard-to-help-with-security-at-its-capitol-in-lansing.html?searchResultPosition=10
+https://nytimes.com/2021/01/15/us/politics/michigan-national-guard-lansing.html?searchResultPosition=10
 
