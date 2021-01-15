@@ -34,7 +34,7 @@ https://nytimes.com/2021/01/15/world/asia/melvis-kwok-dead.html?searchResultPosi
 `The 6.2-magnitude earthquake, Indonesia’s third deadly disaster in a week, struck Sulawesi island, flattening a hospital, destroying homes and setting off landslides.`\
 https://nytimes.com/2021/01/15/world/asia/indonesia-earthquake-sulawesi.html?searchResultPosition=9
 
-**Why Does Australia Want to Kill a Bird Named Joe (Biden)?**\
-`A racing pigeon that appeared to have traveled from Oregon to a backyard in Melbourne faces death. But there’s a twist.`\
+**Why Does Australia Want to Kill Joe the Pigeon?**\
+`A racing pigeon named after the president-elect appeared to have traveled from Oregon to a backyard in Melbourne. Or did it?`\
 https://nytimes.com/2021/01/15/world/australia/joe-pigeon.html?searchResultPosition=10
 
