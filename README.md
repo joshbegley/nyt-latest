@@ -1,6 +1,6 @@
 **Mexico Exonerates Ex-Defense Chief Who Was Freed by the U.S.**\
 `Gen. Salvador Cienfuegos Zepeda returned to Mexico last year after the Department of Justice abruptly dropped drug-trafficking and corruption charges.`\
-https://nytimes.com/2021/01/14/world/americas/mexico-defense-minister-cienfuegos.html?searchResultPosition=1
+https://nytimes.com/2021/01/15/world/americas/mexico-defense-minister-cienfuegos.html?searchResultPosition=1
 
 **Jets Hire Robert Saleh as Head Coach**\
 `Saleh, believed to be the first Arab-American head coach in the N.F.L. who is Muslim, will take over the franchise with the league’s longest current postseason drought.`\
