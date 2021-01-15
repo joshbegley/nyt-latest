@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/15/world/asia/indonesia-earthquake-sulawesi.html?searchResultPosition=1
 
 **Why Does Australia Want to Kill a Bird Named Joe (Biden)?**\
-`A racing pigeon who appeared to have traveled from Oregon to a backyard in Melbourne faces death. But there’s a twist.`\
+`A racing pigeon that appeared to have traveled from Oregon to a backyard in Melbourne faces death. But there’s a twist.`\
 https://nytimes.com/2021/01/15/world/australia/racing-pigeon-joe-biden.html?searchResultPosition=2
 
 **U.S. Executes Corey Johnson for 7 Murders in 1992**\
