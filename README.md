@@ -22,8 +22,8 @@ https://nytimes.com/2021/01/15/opinion/letters/covid-vaccine-new-york.html?searc
 `A digital tribute to the Rev. Dr. Martin Luther King Jr. joins seven Brooklyn-based artists, and BAM.`\
 https://nytimes.com/2021/01/15/arts/design/brooklyn-academy-music-art-mlk.html?searchResultPosition=6
 
-**Watch Live: Biden Rolls Out Vaccination Plan**\
-`U.S. President-elect Joseph R. Biden Jr. delivers remarks in Wilmington, Del. on his plan to administer COVID-19 vaccines to the U.S. population.`\
+**Watch: Biden Rolls Out Vaccination Plan**\
+`U.S. President-elect Joseph R. Biden Jr. delivered remarks in Wilmington, Del. on his plan to administer COVID-19 vaccines to the U.S. population.`\
 https://nytimes.com/video/us/politics/100000007553225/biden-vaccine-rollout.html?searchResultPosition=7
 
 **A ‘Marvel Universe’ for Musicals? Meet the Makers of Averno**\
