@@ -3,8 +3,8 @@
 https://nytimes.com/2021/01/15/us/tom-lankford-dead.html?searchResultPosition=1
 
 **Joe Biden plans a vaccination blitz, but supplies are scarce.**\
-`By Sheryl Gay Stolberg and Katie Thomas`\
-https://nytimes.com/2021/01/15/world/joe-biden-plans-a-vaccination-blitz-but-supplies-are-scarce.html?searchResultPosition=2
+`President-elect Joe Biden’s vaccination push is colliding with the reality of limited supplies, a scarcity that has dashed hopes for a federal stockpile.`\
+https://nytimes.com/2021/01/15/world/joe-biden-covid-coronavirus-vaccine.html?searchResultPosition=2
 
 **Insurers Must Pay Businesses for Pandemic Claims, British Court Rules**\
 `Hundreds of thousands of insured businesses will be paid for lost earnings after the coronavirus lockdowns forced them to close, ending a long-running battle with insurance companies.`\
