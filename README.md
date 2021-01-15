@@ -26,7 +26,7 @@ https://nytimes.com/2021/01/14/us/umd-hate-crime-stabbing-sentencing.html?search
 `Gen. Salvador Cienfuegos Zepeda returned to Mexico last year after the Department of Justice abruptly dropped drug-trafficking and corruption charges.`\
 https://nytimes.com/2021/01/15/world/americas/mexico-defense-minister-cienfuegos.html?searchResultPosition=7
 
-**Jets Hire Robert Saleh as Head Coach**\
+**Jets Hire Robert Saleh of the 49ers as Head Coach**\
 `Saleh, believed to be the first Arab-American head coach in the N.F.L. who is Muslim, will take over the franchise with the league’s longest current postseason drought.`\
 https://nytimes.com/2021/01/14/sports/football/jets-robert-saleh.html?searchResultPosition=8
 
