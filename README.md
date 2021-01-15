@@ -22,19 +22,19 @@ https://nytimes.com/2021/01/15/world/europe/dutch-government-resignation-rutte-n
 `Friday: The state’s vaccine rollout is not going smoothly. Here’s why.`\
 https://nytimes.com/2021/01/15/us/ca-vaccines.html?searchResultPosition=6
 
+**Banks are starting to release their rainy-day reserves, giving their earnings a boost.**\
+`JP Morgan Chase, Citigroup and Wells Fargo have begun to pare back the enormous reserves they had socked away in case of an economic disaster.`\
+https://nytimes.com/2021/01/15/business/jp-morgan-citigroup-wells-fargo-earnings.html?searchResultPosition=7
+
 **With oxygen running low, a health care system in Brazil nears collapse.**\
 `By Flávia Milhorance`\
-https://nytimes.com/2021/01/15/world/with-oxygen-running-low-a-health-care-system-in-brazil-nears-collapse.html?searchResultPosition=7
+https://nytimes.com/2021/01/15/world/with-oxygen-running-low-a-health-care-system-in-brazil-nears-collapse.html?searchResultPosition=8
 
 **The Pros and Cons of Funds That Mute the Ups and Downs**\
 `Various types of exchange-traded funds aim to reduce stock market volatility; some work well, but there may be better ways to smooth returns`\
-https://nytimes.com/2021/01/15/business/mutfund/mutual-funds-volatility-stability.html?searchResultPosition=8
+https://nytimes.com/2021/01/15/business/mutfund/mutual-funds-volatility-stability.html?searchResultPosition=9
 
 **Feeling Nostalgic for Your Grandmother’s China?**\
 `Two reality shows airing this winter grapple with what to do with our family heirlooms.`\
-https://nytimes.com/2021/01/15/realestate/home-heirlooms.html?searchResultPosition=9
-
-**A Republican senator from Oklahoma apologizes to Black constituents for seeking to disenfranchise them.**\
-`Senator James Lankford said in a letter that he had never intended to “diminish the voice of any Black American” by questioning the election results. Still, he added, “I should have recognized how what I said and what I did could be interpreted by many of you.”`\
-https://nytimes.com/2021/01/15/us/politics/lankford-apology-election.html?searchResultPosition=10
+https://nytimes.com/2021/01/15/realestate/home-heirlooms.html?searchResultPosition=10
 
