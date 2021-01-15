@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/15/world/asia/afghanistan-prisoner-exchange-talbian.
 https://nytimes.com/interactive/2021/01/15/arts/television/best-of-late-night.html?searchResultPosition=3
 
 **Houston, Seattle Feels Your Loss**\
-`It’s had to be loyal and devoted to teams and players with whipsawing trades and movement the story of the N.B.A. these days.`\
+`With whipsawing trades and other player movement routine in the N.B.A. these days, it’s hard to be loyal and devoted to teams and players.`\
 https://nytimes.com/2021/01/15/sports/basketball/harden-durant-nets-sonics.html?searchResultPosition=4
 
 **Partner of Norwegian Ex-Minister Is Sentenced for Staging Attacks**\
