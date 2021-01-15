@@ -31,7 +31,7 @@ https://nytimes.com/2021/01/15/movies/regina-king-one-night-in-miami.html?search
 https://nytimes.com/2021/01/15/business/china-gdp-growth.html?searchResultPosition=8
 
 **Joan Collins Puts Her Midtown Co-op on the Market**\
-`The three-bedroom, three-bath apartment at 10 East 57th Street, which the “Dynasty” star and her husband had used as a pied-à-terre, is being listed for $2.095 million.`\
+`The three-bedroom, three-bath apartment at 110 East 57th Street, which the “Dynasty” star and her husband had used as a pied-à-terre, is being listed for $2.095 million.`\
 https://nytimes.com/2021/01/15/realestate/joan-collins-home-sale.html?searchResultPosition=9
 
 **With Vaccines Arriving, Value Investors Try for a Comeback**\
