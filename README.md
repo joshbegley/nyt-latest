@@ -1,5 +1,5 @@
 **Jets Hire Robert Saleh as Head Coach**\
-`Saleh, believed to be the first Arab American head coach in the N.F.L. who is Muslim, will take over the franchise with the league’s longest current postseason drought.`\
+`Saleh, believed to be the first Arab-American head coach in the N.F.L. who is Muslim, will take over the franchise with the league’s longest current postseason drought.`\
 https://nytimes.com/2021/01/14/sports/football/jets-robert-saleh.html?searchResultPosition=1
 
 **Corrections: Jan. 15, 2021**\
