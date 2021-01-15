@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/15/business/arielle-patrick-work-diary.html?searchRe
 
 **Government in Netherlands Resigns After Benefit Scandal**\
 `A parliamentary report concluded that tax authorities unfairly targeted poor families over child care benefits. Prime Minister Mark Rutte and  his entire cabinet stepped down.`\
-https://nytimes.com/2021/01/15/world/europe/netherlands-government-resigns-mark-rutte.html?searchResultPosition=5
+https://nytimes.com/2021/01/15/world/europe/dutch-government-resignation-rutte-netherlands.html?searchResultPosition=5
 
 **Confused About the Vaccine Rollout? You’re Not Alone**\
 `Friday: The state’s vaccine rollout is not going smoothly. Here’s why.`\
