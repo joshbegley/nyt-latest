@@ -32,7 +32,7 @@ https://nytimes.com/2021/01/15/world/europe/dutch-government-resignation-rutte-n
 
 **Confused About the Vaccine Rollout? You’re Not Alone**\
 `Friday: The state’s vaccine rollout is not going smoothly. Here’s why.`\
-https://nytimes.com/2021/01/15/us/vaccine-california-coronavirus.html?searchResultPosition=9
+https://nytimes.com/2021/01/15/us/vaccine-ca-california-coronavirus.html?searchResultPosition=9
 
 **Banks are starting to release their rainy-day reserves, giving their earnings a boost.**\
 `JP Morgan Chase, Citigroup and Wells Fargo have begun to pare back the enormous reserves they had socked away in case of an economic disaster.`\
