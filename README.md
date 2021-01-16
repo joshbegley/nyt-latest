@@ -1,4 +1,4 @@
-**Last-Minute Rule Seeks to Impose Term Limits on Top Career Health Officials**\
+**Last-Minute Rule Seeks Term Limits on Top Career Health Officials**\
 `The Trump administration wants to mandate job reviews for top government scientists and managers every five years, which could lead to reassignment.`\
 https://nytimes.com/2021/01/15/upshot/trump-term-limits-scientists.html?searchResultPosition=1
 
