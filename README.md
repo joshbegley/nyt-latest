@@ -6,8 +6,8 @@ https://nytimes.com/2021/01/16/us/politics/trump-post-presidency-nixon.html?sear
 `The casting has fueled a debate about structural racism and fanned anger about stereotyping and prejudice in European-language voice-overs, even when films have main characters of color.`\
 https://nytimes.com/2021/01/16/movies/pixar-soul-black-white-dubbing.html?searchResultPosition=2
 
-**Angela Merkel’s Party Chooses a New Leader**\
-`It is nonetheless far from certain that the party’s new leader will succeed her as Germany’s chancellor when she steps down this fall.`\
+**A Step Toward the Post-Merkel World: Her Party Picks a New Leader**\
+`Armin Laschet, a close ally of Germany’s chancellor, is now the favorite to succeed her when she steps down after fall elections. But that succession is far from certain.`\
 https://nytimes.com/2021/01/16/world/europe/angela-merkel-party-leader.html?searchResultPosition=3
 
 **Banner Headlines for Tumultuous Times**\
