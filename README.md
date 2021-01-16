@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007555218/biden-science-team-live.html?searchResultPosition=1
 
 **Capitol Police arrested a man with an ‘unauthorized’ inauguration credential and a gun at a security checkpoint.**\
-`By Nicholas Bogel-Burroughs`\
+`The man was arrested on Friday with more than 500 rounds of ammunition in his truck.`\
 https://nytimes.com/2021/01/16/us/politics/man-arrested-dc-checkpoint.html?searchResultPosition=2
 
 **Biden Seeks Quick Start With Executive Actions and Aggressive Legislation**\
