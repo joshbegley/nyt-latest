@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/16/dining/recipes-to-cook-over-a-long-weekend.html?s
 `By Michael Crowley`\
 https://nytimes.com/2021/01/16/us/politics/biden-harris-science-team.html?searchResultPosition=6
 
-**A Week at the Capitol Like No Other**\
+**Images From the Capitol Under Siege**\
 `The usual bustle of lawmakers moving in and out of offices gave way to a horrific scene.`\
 https://nytimes.com/2021/01/16/opinion/capitol-attack-photos.html?searchResultPosition=7
 
