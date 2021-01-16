@@ -2,7 +2,7 @@
 `Big business breaks with Republicans.`\
 https://nytimes.com/2021/01/16/business/dealbook/ceos-politics-trump.html?searchResultPosition=1
 
-**Uganda’s Leader of 35 Years Is Re-elected After Bitter, Bloody Campaign**\
+**Uganda’s Leader of 35 Years Is Re-elected Amid Accusations of Vote-Rigging**\
 `President Yoweri Kaguta Museveni was declared the winner although his main opponent said the result was “fabricated.”`\
 https://nytimes.com/2021/01/16/world/africa/uganda-election-results.html?searchResultPosition=2
 
