@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/16/magazine/behind-the-cover.html?searchResultPosition=1
 
 **Trump will leave office with his lowest approval rating ever.**\
-`He also appears to be on track to leave office with the lowest approval rating of any modern-day president.`\
+`He also appears to be on track to finish his term with the lowest final approval rating of any modern-day president.`\
 https://nytimes.com/2021/01/16/us/politics/trump-approval-rating.html?searchResultPosition=2
 
 **Nepali Team Says It Has Reached K2 Summit in a Wintertime First**\
