@@ -1,4 +1,4 @@
-**India begins inoculating its 1.3 billion people.**\
+**India begins inoculating its 1.3 billion people, starting with health care workers.**\
 `India’s Covid vaccine campaign is unfolding in a country with more than 150,000 coronavirus deaths, the world’s third-highest tally.`\
 https://nytimes.com/2021/01/15/world/india-covid-vaccine.html?searchResultPosition=1
 
