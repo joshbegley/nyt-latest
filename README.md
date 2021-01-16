@@ -19,7 +19,7 @@ https://nytimes.com/video/us/politics/100000007555218/biden-science-team-live.ht
 https://nytimes.com/2021/01/16/us/politics/sotomayor-swear-in-harris.html?searchResultPosition=5
 
 **Capitol Police arrested a man with an ‘unauthorized’ inauguration credential and a gun at a security checkpoint.**\
-`The man was arrested on Friday with more than 500 rounds of ammunition in his truck.`\
+`The man was arrested on Friday with more than 500 rounds of ammunition in his truck. His father said he works as a security guard at the Capitol.`\
 https://nytimes.com/2021/01/16/us/politics/man-arrested-dc-checkpoint.html?searchResultPosition=6
 
 **What could go wrong during the test?**\
