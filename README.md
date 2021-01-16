@@ -2,7 +2,7 @@
 `President-elect Joseph R. Biden Jr. and Vice President-elect Kamala Harris introduced key members of their White House science team on Saturday.`\
 https://nytimes.com/video/us/politics/100000007555218/biden-science-team-live.html?searchResultPosition=1
 
-**Man with ‘unauthorized’ inauguration credential and gun arrested at Washington checkpoint, police say.**\
+**Capitol Police arrested a man with an ‘unauthorized’ inauguration credential and a gun at a security checkpoint.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/2021/01/16/us/politics/man-arrested-dc-checkpoint.html?searchResultPosition=2
 
