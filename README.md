@@ -35,6 +35,6 @@ https://nytimes.com/2021/01/16/at-home/safely-join-the-inauguration-festivities.
 https://nytimes.com/2021/01/16/at-home/how-to-celebrate-martin-luther-kings-birthday.html?searchResultPosition=9
 
 **NASA’s Mega Rocket to the Moon Faces Setback After Test**\
-`An ground ignition of the engines of the Space Launch System was halted after only about a minute.`\
+`A test firing of the engines of the Space Launch System was halted after only about a minute, meaning NASA astronauts may have to wait longer before setting foot on the moon again.`\
 https://nytimes.com/2021/01/16/science/nasa-rocket-sls-test.html?searchResultPosition=10
 
