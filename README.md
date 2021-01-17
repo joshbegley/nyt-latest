@@ -6,8 +6,8 @@ https://nytimes.com/video/world/europe/100000007556178/navalny-arrested-moscow.h
 `The acting defense secretary ordered the spy agency to appoint Michael Ellis, who has been accused of having a hand in one of the Trump administration’s most contentious legal decisions.`\
 https://nytimes.com/2021/01/17/us/politics/nsa-michael-ellis-trump.html?searchResultPosition=2
 
-**With New Urgency, Arts Groups Hire Diversity Officers**\
-`Cultural institutions are recruiting people of color to lead their transformation efforts. But hiring one leader doesn’t mean the work is done.`\
+**For Diversity Leaders in the Arts, Getting Hired Is Just the First Step**\
+`Cultural institutions are recruiting people of color to lead their transformation efforts. But bringing in one leader doesn’t mean the work is done.`\
 https://nytimes.com/2021/01/17/arts/design/diversity-directors-arts-hiring.html?searchResultPosition=3
 
 **A CBS outage temporarily left some East Coast football fans in the dark.**\
