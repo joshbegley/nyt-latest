@@ -18,8 +18,8 @@ https://nytimes.com/2021/01/17/business/the-week-in-business-biden-plan-trump-co
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2021/01/17/briefing/inauguration-vaccines-regina-king.html?searchResultPosition=5
 
-**Navalny Prepares to Fly to Moscow, Despite Threat of Arrest**\
-`Aleksei Navalny, Russia’s most prominent opposition leader, says he will fly home from Germany on Sunday. The Russian authorities have said they will “take all actions” to detain him.`\
+**Navalny Flies to Moscow, Despite Threat of Arrest**\
+`Aleksei Navalny, Russia’s most prominent opposition leader, boarded a plane leaving Germany on Sunday. The Russian authorities had said they would “take all actions” to detain him.`\
 https://nytimes.com/2021/01/17/world/europe/navalny-russia-return.html?searchResultPosition=6
 
 **Inside a Nursing Home as Vaccine Arrives: ‘I Hope Everybody Takes It’**\
