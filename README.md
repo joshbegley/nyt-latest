@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/17/us/covid-deaths-2020.html?searchResultPosition=1
 
 **The Browns’ fumble for a touchback prompted reaction to controversial rule.**\
 `The rules state that if a team fumbles the ball and it goes out of the opponent’s end zone, the play results in a touchback.`\
-https://nytimes.com/2021/01/17/sports/football/browns-fumble-touchback-rule.html?searchResultPosition=2
+https://nytimes.com/2021/01/17/sports/football/fumble-touchback.html?searchResultPosition=2
 
 **‘I Answered the Call of My President’: Rioters Say Trump Urged Them On**\
 `The defense from Trump supporters arrested in the Capitol assault is emerging in court papers and interviews — and could play a role in impeachment proceedings.`\
