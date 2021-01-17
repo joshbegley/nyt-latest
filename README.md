@@ -6,7 +6,7 @@ https://nytimes.com/2021/01/17/us/politics/nsa-michael-ellis-trump.html?searchRe
 `Cultural institutions are recruiting people of color to lead their transformation efforts. But hiring one leader doesn’t mean the work is done.`\
 https://nytimes.com/2021/01/17/arts/design/diversity-directors-arts-hiring.html?searchResultPosition=2
 
-**A CBS outage is leaving some East Coast fans in the dark.**\
+**A CBS outage temporarily left some East Coast football fans in the dark.**\
 `By Ben Shpigel`\
 https://nytimes.com/2021/01/17/sports/football/cbs-chiefs-browns.html?searchResultPosition=3
 
