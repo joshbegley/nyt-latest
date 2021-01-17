@@ -7,7 +7,7 @@ https://nytimes.com/2021/01/17/us/capitol-checkpoint-arrest.html?searchResultPos
 https://nytimes.com/2021/01/17/movies/martin-luther-king-jr-day-movies-streaming.html?searchResultPosition=2
 
 **Biden’s incoming chief of staff warns that the virus death toll will reach 500,000 by the end of February.**\
-`Ron Klain, who coordinated the Obama administration’s Ebola response, warns,“The virus is going to get worse before it gets better.”`\
+`Ron Klain, who coordinated the Obama administration’s Ebola response, warns, “The virus is going to get worse before it gets better.”`\
 https://nytimes.com/2021/01/17/world/Covid-deaths-Biden.html?searchResultPosition=3
 
 **Cargo Ship Sinks Near Turkey, Leaving at Least 3 Dead, Officials Say**\
