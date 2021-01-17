@@ -1,6 +1,6 @@
 **The Browns’ fumble for a touchback prompted reaction to controversial rule.**\
-`By Ben Shpigel`\
-https://nytimes.com/2021/01/17/sports/football/the-browns-fumble-for-a-touchback-prompted-reaction-to-controversial-rule.html?searchResultPosition=1
+`The rules state that if a team fumbles the ball and it goes out of the opponent’s end zone, the play results in a touchback.`\
+https://nytimes.com/2021/01/17/sports/football/browns-fumble-touchback-rule.html?searchResultPosition=1
 
 **‘I Answered the Call of My President’: Rioters Say Trump Urged Them On**\
 `The defense from Trump supporters arrested in the Capitol assault is emerging in court papers and interviews — and could play a role in impeachment proceedings.`\
