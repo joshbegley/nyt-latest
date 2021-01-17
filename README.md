@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/16/us/politics/josh-hawley-fundraiser-hotel.html?sea
 
 **Here’s how the Green Bay Packers routed the Los Angeles Rams to reach the N.F.C. title game.**\
 `Green Bay amassed 484 total yards of offense against the N.F.L.’s toughest defense.`\
-https://nytimes.com/2021/01/16/sports/football/heres-how-the-green-bay-packers-routed-the-los-angeles-rams-to-reach-the-nfc-title-game.html?searchResultPosition=2
+https://nytimes.com/live/2021/01/16/sports/nfl-playoffs/heres-how-the-green-bay-packers-routed-the-los-angeles-rams-to-reach-the-nfc-title-game?searchResultPosition=2
 
 **Sylvain Sylvain of the Proto-Punk Band New York Dolls Dies at 69**\
 `He was a core member of a group that had limited commercial success in the early 1970s and didn’t last long but proved hugely influential.`\
