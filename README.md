@@ -1,40 +1,40 @@
+**Inside a Nursing Home as Vaccine Arrives: ‘I Hope Everybody Takes It’**\
+`At a Staten Island facility that was hit hard by the coronavirus, residents and staff members lined up to get a dose of the Covid vaccine. Here’s how the day went.`\
+https://nytimes.com/2021/01/17/nyregion/covid-vaccine-nyc-nursing-home.html?searchResultPosition=1
+
+**How a Historian Got Close, Maybe Too Close, to a Nazi Thief**\
+`Over nearly a decade, Jonathan Petropoulos met dozens of times with a man who helped the Nazis loot Jewish art collections, a complicated relationship he explores in “Göring’s Man in Paris.”`\
+https://nytimes.com/2021/01/17/books/jonathan-petropoulos-gorings-man-paris-nazi-art.html?searchResultPosition=2
+
+**How Republicans Are Warping Reality Around the Capitol Attack**\
+`Loyalists to President Trump are increasingly relying on conspiracy theories and misinformation, drawing false equivalence with last summer’s racial protests and blaming outside agitators.`\
+https://nytimes.com/2021/01/17/us/politics/Capitol-conspiracy-theories-blm-antifa.html?searchResultPosition=3
+
+**Prospect of Pardons in Final Days Fuels Market to Buy Access to Trump**\
+`The president’s allies have collected tens of thousands of dollars — and potentially much more — from people seeking pardons.`\
+https://nytimes.com/2021/01/17/us/politics/trump-pardons.html?searchResultPosition=4
+
+**Peloton’s Rapid Rise Is Threatened by Its Slow Delivery**\
+`The company has boomed in popularity during the pandemic but getting its exercise bikes delivered has proved a struggle, one that is angering new customers.`\
+https://nytimes.com/2021/01/17/business/peloton-slow-delivery.html?searchResultPosition=5
+
+**A QAnon ‘Digital Soldier’ Marches On, Undeterred by Theory’s Unraveling**\
+`Valerie Gilbert posts dozens of times a day in support of an unhinged conspiracy theory. The story of this “meme queen” hints at how hard it will be to bring people like her back to reality.`\
+https://nytimes.com/2021/01/17/technology/qanon-meme-queen.html?searchResultPosition=6
+
+**How Biden’s Proposed Paid Leave Would Work**\
+`Paid leave expired in December for illness and caregiving during the pandemic. Biden wants to reinstate and expand it.`\
+https://nytimes.com/2021/01/17/upshot/paid-leave-biden-plan.html?searchResultPosition=7
+
+**Precious Metal to Times Journalists: The Page One Plate**\
+`Carrying out this four-decade tradition at The Times has become more complicated because of the coronavirus pandemic. But it’s no less special.`\
+https://nytimes.com/2021/01/17/insider/front-page-press-plates.html?searchResultPosition=8
+
 **Thai Caves Attract Millions of Bats — and Now Scientists Too**\
 `A cave complex at a temple in Thailand has long drawn tourists, pilgrims and guano collectors. Now, scientists have arrived, looking for any potential links to the coronavirus.`\
-https://nytimes.com/2021/01/17/world/asia/thailand-bats-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2021/01/17/world/asia/thailand-bats-coronavirus.html?searchResultPosition=9
 
 **Kamala Harris Will Make History. So Will Her ‘Big, Blended’ Family.**\
 `Stepkids. Nieces. A doting husband. His ex-wife. What the Harris-Emhoffs can show the country.`\
-https://nytimes.com/2021/01/17/us/kamala-harris-doug-emhoff-family-inauguration.html?searchResultPosition=2
-
-**What’s It Like to Have Kamala Harris As ‘Momala’? We Asked Her Stepkids.**\
-`A Zoom interview with Ella and Cole Emhoff.`\
-https://nytimes.com/2021/01/17/us/politics/kamala-harris-stepmom-cole-ella-emhoff.html?searchResultPosition=3
-
-**‘The Children Shrieked in Delight as the Honking Train Passed Below’**\
-`Waiting on a bridge, getting carried away while dining out and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/01/17/nyregion/metropolitan-diary.html?searchResultPosition=4
-
-**Migrant Caravan, Now in Guatemala, Could Pose Early Test for Biden**\
-`As many as 9,000 migrants from Honduras are hoping to reach the United States to escape poverty intensified by hurricanes and the pandemic. President-elect Joe Biden has pledged to ease asylum rules.`\
-https://nytimes.com/2021/01/17/world/americas/migrant-caravan-us-biden-guatemala-immigration.html?searchResultPosition=5
-
-**Corrections: Jan. 17, 2021**\
-`Corrections that appeared in print on Sunday, Jan. 17, 2021.`\
-https://nytimes.com/2021/01/17/pageoneplus/corrections-jan-17-2021.html?searchResultPosition=6
-
-**Unplug and Craft a Maze From Newspaper**\
-`With some thoughtful folding and a little tape, you can make your own hand-held game.`\
-https://nytimes.com/2021/01/16/at-home/craft-a-maze-from-newspaper.html?searchResultPosition=7
-
-**Attend a Jazz Festival and Take a Superhero Yoga Class**\
-`This week, celebrate Martin Luther King’s Birthday, revisit “The West Wing” and explore a new exhibit from the National Museum of Women in the Arts.`\
-https://nytimes.com/2021/01/16/at-home/things-to-do-this-week.html?searchResultPosition=8
-
-**7 Dead in Military Helicopter Crash in Southern Philippines**\
-`The helicopter had been on a supply run to troops in a remote, mountainous region where a hunt for communist rebels was taking place, the military said.`\
-https://nytimes.com/2021/01/16/world/asia/philippines-helicopter-crash-npa-military.html?searchResultPosition=9
-
-**Six Great Movies About Presidents**\
-`If you’re looking for some escapism, these films are a good reminder that democracy works.`\
-https://nytimes.com/2021/01/16/at-home/six-movies-about-presidents.html?searchResultPosition=10
+https://nytimes.com/2021/01/17/us/kamala-harris-doug-emhoff-family-inauguration.html?searchResultPosition=10
 
