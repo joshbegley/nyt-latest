@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/17/us/twitter-temporarily-suspends-marjorie-taylor-g
 
 **Patrick Mahomes is out with a concussion after third-quarter hit.**\
 `Backup Chad Henne took over with the Browns closing in on the Chiefs’ lead.`\
-https://nytimes.com/2021/01/17/sports/football/mahomes-out.html?searchResultPosition=2
+https://nytimes.com/2021/01/17/sports/football/mahomes-concussion.html?searchResultPosition=2
 
 **One Year, 400,000 Coronavirus Deaths: How the U.S. Guaranteed Its Own Failure**\
 `After the White House declined to pursue a unified national strategy, governors faced off against lobbyists, health experts and a restless public consumed by misinformation.`\
