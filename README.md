@@ -18,8 +18,8 @@ https://nytimes.com/2021/01/17/nyregion/ny-man-arrested-Capitol-riots.html?searc
 `The police and members of the National Guard filled the Capitol and the streets of Washington ahead of possible armed protests on Sunday and the inauguration of President-elect Joseph R. Biden Jr. on Jan. 20.`\
 https://nytimes.com/video/us/100000007555907/washington-national-guard-inauguration.html?searchResultPosition=5
 
-**Phil Spector, Music Producer Known for the ‘Wall of Sound,’ Dies at 81**\
-`One of the most influential figures in popular music, he was serving a prison sentence for the murder of a woman who was fatally shot in his home in 2003.`\
+**Phil Spector, Famed Music Producer Imprisoned in Slaying, Dies at 81**\
+`Known for creating the ‘Wall of Sound,’ he scored hits with the Crystals, the Ronettes and the Righteous Brothers and was one of the most influential figures in popular music.`\
 https://nytimes.com/2021/01/17/arts/music/phil-spector-dead.html?searchResultPosition=6
 
 **More Than 760,000 Pounds of Hot Pockets Recalled**\
