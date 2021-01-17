@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/17/sports/football/cbs-chiefs-browns.html?searchResu
 
 **Phil Spector, the imprisoned music legend, spent his last days suffering with Covid.**\
 `By Matt Richtel`\
-https://nytimes.com/2021/01/17/world/phil-spector-the-imprisoned-music-legend-spent-his-last-days-suffering-with-covid.html?searchResultPosition=2
+https://nytimes.com/2021/01/17/world/spector-covid-death.html?searchResultPosition=2
 
 **A Trip Into the Otherworldly With Adrienne Kennedy as Guide**\
 `A digital four-play retrospective, capped by a world premiere, illuminates this writer’s fascination with doubling, violence and Black identity.`\
