@@ -1,6 +1,6 @@
 **A CBS outage is leaving some East Coast fans in the dark.**\
 `By Ben Shpigel`\
-https://nytimes.com/2021/01/17/sports/football/a-cbs-outage-is-leaving-some-east-coast-fans-in-the-dark.html?searchResultPosition=1
+https://nytimes.com/2021/01/17/sports/football/cbs-chiefs-browns.html?searchResultPosition=1
 
 **Phil Spector, the imprisoned music legend, spent his last days suffering with Covid.**\
 `By Matt Richtel`\
