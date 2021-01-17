@@ -30,7 +30,7 @@ https://nytimes.com/video/us/politics/100000007555218/biden-science-team-live.ht
 `Justice Sotomayor has sworn in a vice president before.`\
 https://nytimes.com/2021/01/16/us/politics/sotomayor-swear-in-harris.html?searchResultPosition=9
 
-**Capitol Police arrested a man with an ‘unauthorized’ inauguration credential and a gun at a security checkpoint.**\
-`The man was arrested on Friday with more than 500 rounds of ammunition in his truck. He told a reporter it was an “honest mistake.”`\
+**Capitol Police arrested a man with an ‘unauthorized’ inauguration credential and a gun. He calls it an ‘honest mistake.’**\
+`The man was arrested on Friday with more than 500 rounds of ammunition in his truck. He told a reporter he had been working a security job in Washington.`\
 https://nytimes.com/2021/01/16/us/politics/man-arrested-dc-checkpoint.html?searchResultPosition=10
 
