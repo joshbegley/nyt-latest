@@ -2,8 +2,8 @@
 `Twitter temporarily suspends Marjorie Taylor Greene’s personal account.`\
 https://nytimes.com/2021/01/17/us/twitter-temporarily-suspends-marjorie-taylor-greenes-personal-account.html?searchResultPosition=1
 
-**Patrick Mahomes out with a concussion after third-quarter hit.**\
-`By Ben Shpigel`\
+**Patrick Mahomes is out with a concussion after third-quarter hit.**\
+`Backup Chad Henne took over with the Browns closing in on the Chiefs’ lead.`\
 https://nytimes.com/2021/01/17/sports/football/mahomes-out.html?searchResultPosition=2
 
 **One Year, 400,000 Coronavirus Deaths: How the U.S. Guaranteed Its Own Failure**\
