@@ -3,8 +3,8 @@
 https://nytimes.com/2021/01/17/movies/martin-luther-king-jr-day-movies-streaming.html?searchResultPosition=1
 
 **Biden’s incoming chief of staff warns that the virus death toll will reach 500,000 by the end of February.**\
-`By Chris Cameron`\
-https://nytimes.com/2021/01/17/world/bidens-incoming-chief-of-staff-warns-that-the-virus-death-toll-will-reach-500000-by-the-end-of-february.html?searchResultPosition=2
+`Ron Klain, who coordinated the Obama administration’s Ebola response, warns,“The virus is going to get worse before it gets better.”`\
+https://nytimes.com/2021/01/17/world/Covid-deaths-Biden.html?searchResultPosition=2
 
 **Cargo Ship Sinks Near Turkey, Leaving at Least 3 Dead, Officials Say**\
 `Emergency workers saved half the 12-member crew after the vessel sank off the Black Sea coast, state media said, but bad weather hindered further rescue efforts.`\
