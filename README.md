@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/100000007555907/washington-national-guard-inauguration.html?searchResultPosition=1
 
 **Phil Spector, Music Producer Known for the ‘Wall of Sound,’ Dies at 81**\
-`Mr. Spector, one of the most influential figures in popular music, was serving a prison sentence for the murder of a woman who was fatally shot in his home in 2003.`\
+`One of the most influential figures in popular music, he was serving a prison sentence for the murder of a woman who was fatally shot in his home in 2003.`\
 https://nytimes.com/2021/01/17/arts/music/phil-spector-dead.html?searchResultPosition=2
 
 **More Than 760,000 Pounds of Hot Pockets Recalled**\
