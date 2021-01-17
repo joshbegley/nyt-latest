@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/17/dining/what-to-cook-this-week.html?searchResultPo
 
 **‘There Is No Safe Area’: In Kabul, Fear Has Taken Over**\
 `A new wave of violence and a growing uncertainty about the country’s future has left Afghans in the capital with a constant sense of fear.`\
-https://nytimes.com/2021/01/17/world/asia/afghanistan-kabul-taliban-violennce.html?searchResultPosition=2
+https://nytimes.com/2021/01/17/world/asia/afghanistan-kabul-taliban-violence.html?searchResultPosition=2
 
 **States are scrambling after the Trump administration’s vaccine promise falls apart.**\
 `The stockpile of doses was nearly empty.`\
