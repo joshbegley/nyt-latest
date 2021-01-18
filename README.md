@@ -10,7 +10,7 @@ https://nytimes.com/2021/01/17/pageoneplus/no-corrections-jan-18-2021.html?searc
 `Quotation of the Day for Monday, January 18, 2021.`\
 https://nytimes.com/2021/01/17/todayspaper/quotation-of-the-day-fear-of-sudden-death-governs-capital-as-attacks-pick-off-afghans.html?searchResultPosition=3
 
-**Fox Settled a Lawsuit Over Its Lies. But It Insisted the Deal Stay Secret.**\
+**Fox Settled a Lawsuit Over Its Lies. But It Insisted on One Unusual Condition.**\
 `Why did the network insist an agreement with the family of a murdered young man remain undisclosed until after the election?`\
 https://nytimes.com/2021/01/17/business/media/fox-news-seth-rich-settlement.html?searchResultPosition=4
 
