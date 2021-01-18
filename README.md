@@ -1,5 +1,5 @@
 **‘It Was a Fraud,’ Cuomo Says of Vaccine Rollout**\
-`Gov. Andrew M. Cuomo of New York said on Monday that he had asked the pharmaceutical giant Pfizer to directly sell doses to the state, so that it does not have to depend on the federal government to distribute doses.`\
+`Gov. Andrew M. Cuomo of New York said on Monday that he had asked the pharmaceutical giant Pfizer to directly sell doses to the state, so that it does not have to depend solely on the federal government to distribute doses.`\
 https://nytimes.com/video/us/politics/100000007557338/cuomo-coronavirus-vaccine-new-york-distribution.html?searchResultPosition=1
 
 **Martinus Veltman, Who Made Key Contribution in Physics, Dies at 89**\
