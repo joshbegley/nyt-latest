@@ -12,7 +12,7 @@ https://nytimes.com/video/us/politics/100000007557660/capitol-hill-inauguration-
 
 **Vaccine Critics Received More Than $1 Million in Pandemic Relief Loans**\
 `The Paycheck Protection Program’s loose rules allowed organizations that have questioned the safety of vaccines to qualify for aid.`\
-https://nytimes.com/2021/01/18/business/vaccine-critics-received-more-than-1-million-in-pandemic-relief-loans.html?searchResultPosition=4
+https://nytimes.com/2021/01/18/business/anti-vaccine-ppp-loans.html?searchResultPosition=4
 
 **Covid Response Was a Global Series of Failures, W.H.O. Panel Says**\
 `An interim report from the World Health Organization is both a bleak recounting of deadly missteps and an early blueprint for repairs: “We have failed in our collective capacity.”`\
