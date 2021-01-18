@@ -31,8 +31,8 @@ https://nytimes.com/2021/01/18/us/census-bureau-director-resigns.html?searchResu
 https://nytimes.com/2021/01/18/us/deborah-rhode-dead.html?searchResultPosition=8
 
 **Anti-vaccine groups received more than $1 million in small-business relief loans.**\
-`By Stacy Cowley`\
-https://nytimes.com/2021/01/18/world/anti-vaccine-groups-received-more-than-1-million-in-small-business-relief-loans.html?searchResultPosition=9
+`Six organizations that have challenged the safety of vaccines and made claims that scientists have called false received loans.`\
+https://nytimes.com/2021/01/18/world/anti-vaccine-groups-ppp-loans.html?searchResultPosition=9
 
 **How Full Employment Became Washington’s Creed**\
 `Policymakers are eager to return to the period of low unemployment that preceded the pandemic and are less concerned than in previous eras about sparking inflation and taking on debt.`\
