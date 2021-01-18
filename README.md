@@ -1,6 +1,6 @@
 **Incest Scandal Sets Off a New #MeToo Movement in France**\
 `A wave of testimonies from people who say they were victims of incest has surfaced on Twitter after a scandal in which a prominent French intellectual was accused of abusing his teenage stepson.`\
-https://nytimes.com/2021/01/18/world/europe/incest-scandal-sets-off-a-new-metoo-movement-in-france.html?searchResultPosition=1
+https://nytimes.com/2021/01/18/world/europe/duhamel-france-incest.html?searchResultPosition=1
 
 **A Theater Serves as a Courthouse, Provoking Drama Offstage**\
 `Black artists and activists in Birmingham, England, say the city’s largest playhouse has sold out by leasing its auditoriums to the criminal justice system.`\
