@@ -1,40 +1,40 @@
+**‘It Was a Fraud,’ Cuomo Says of Vaccine Rollout**\
+`Gov. Andrew M. Cuomo of New York said on Monday that he had asked the pharmaceutical giant Pfizer to directly sell doses to the state, so that it does not have to depend on the federal government to distribute doses.`\
+https://nytimes.com/video/us/politics/100000007557338/cuomo-coronavirus-vaccine-new-york-distribution.html?searchResultPosition=1
+
+**Martinus Veltman, Who Made Key Contribution in Physics, Dies at 89**\
+`He shared a Nobel Prize for research that helped explain the fundamental forces in the universe.`\
+https://nytimes.com/2021/01/18/science/martinus-veltman-dead.html?searchResultPosition=2
+
 **Your Tuesday Briefing**\
 `Some problems in India’s vaccine rollout.`\
-https://nytimes.com/2021/01/18/briefing/virus-india-vaccines-trump-biden-inauguration.html?searchResultPosition=1
+https://nytimes.com/2021/01/18/briefing/virus-india-vaccines-trump-biden-inauguration.html?searchResultPosition=3
 
 **Will Biden’s Stimulus Package Help Reverse the ‘Shecession’?**\
 `Experts say the $1.9 trillion package will help women get back to work. Here’s how.`\
-https://nytimes.com/2021/01/18/us/biden-stimulus-package-shecession.html?searchResultPosition=2
+https://nytimes.com/2021/01/18/us/biden-stimulus-package-shecession.html?searchResultPosition=4
 
 **Alex Padilla, California’s First Latino Senator, on Needing to ‘Walk and Chew Gum’ in Washington**\
 `He was appointed to fill Kamala Harris’s seat, and will take office as his state struggles with record Covid rates, especially in the neighborhood he grew up in.`\
-https://nytimes.com/2021/01/18/us/politics/alex-padilla-california-senate.html?searchResultPosition=3
+https://nytimes.com/2021/01/18/us/politics/alex-padilla-california-senate.html?searchResultPosition=5
 
 **The Devilish Life and Art of Lucian Freud, in Full Detail**\
 `William Feaver’s “The Lives of Lucian Freud: Fame, 1968-2011” completes a two-volume biography of the pioneering realist painter.`\
-https://nytimes.com/2021/01/18/books/review-lives-lucian-freud-fame-william-feaver.html?searchResultPosition=4
+https://nytimes.com/2021/01/18/books/review-lives-lucian-freud-fame-william-feaver.html?searchResultPosition=6
 
 **Paging Through Broadway While the Stages Are Dark**\
 `As she packs her things to make a move, a critic lingers over her memories, many slickly packaged, some not.`\
-https://nytimes.com/2021/01/18/theater/critics-playbills-as-memories.html?searchResultPosition=5
+https://nytimes.com/2021/01/18/theater/critics-playbills-as-memories.html?searchResultPosition=7
 
 **Morgan Wallen Debuts at No. 1 and Smashes a Country Streaming Record**\
 `“Dangerous: The Double Album” had 240 million streams — more than double the previous high set by Luke Combs.`\
-https://nytimes.com/2021/01/18/arts/music/morgan-wallen-dangerous-double-album-billboard.html?searchResultPosition=6
+https://nytimes.com/2021/01/18/arts/music/morgan-wallen-dangerous-double-album-billboard.html?searchResultPosition=8
 
 **Yellen Readies Big Changes for Treasury**\
 `From financial regulation to minority lending, Biden’s pick is poised to change course sharply from the policies of Secretary Steven Mnuchin.`\
-https://nytimes.com/2021/01/18/us/politics/janet-yellen-treasury.html?searchResultPosition=7
+https://nytimes.com/2021/01/18/us/politics/janet-yellen-treasury.html?searchResultPosition=9
 
 **Justice Dept. charges militia members, including military veterans, in Capitol assault.**\
 `The acting U.S. attorney in Washington said that focusing on militia members and other extremists would be a top priority.`\
-https://nytimes.com/2021/01/18/us/militia-capitol-arrested.html?searchResultPosition=8
-
-**Incest Scandal Sets Off a New #MeToo Movement in France**\
-`A wave of testimonies from people who say they were victims of incest has surfaced on Twitter after a scandal in which a prominent French intellectual was accused of abusing his teenage stepson.`\
-https://nytimes.com/2021/01/18/world/europe/duhamel-france-incest.html?searchResultPosition=9
-
-**A Theater Serves as a Courthouse, Provoking Drama Offstage**\
-`Black artists and activists in Birmingham, England, say the city’s largest playhouse has sold out by leasing its auditoriums to the criminal justice system.`\
-https://nytimes.com/2021/01/18/theater/theater-courts-birmingham.html?searchResultPosition=10
+https://nytimes.com/2021/01/18/us/militia-capitol-arrested.html?searchResultPosition=10
 
