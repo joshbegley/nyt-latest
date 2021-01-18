@@ -6,7 +6,7 @@ https://nytimes.com/2021/01/18/sports/football/Patrick-Mahomes-Lamar-Jackson-NFL
 `With several positive tests among people arriving from abroad, and a strict quarantine, the Australian Open is not going the way organizers expected it would.`\
 https://nytimes.com/2021/01/18/sports/tennis/covid-australia-open-tennis.html?searchResultPosition=2
 
-**In farewell address, Melania Trump defends her legacy.**\
+**In farewell video, Melania Trump, who like her husband bristled at White House norms, defends her legacy.**\
 `By Katie Rogers`\
 https://nytimes.com/2021/01/18/us/melania-trump.html?searchResultPosition=3
 
