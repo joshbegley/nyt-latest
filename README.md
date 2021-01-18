@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/17/todayspaper/quotation-of-the-day-fear-of-sudden-d
 
 **Fox Settled a Lawsuit Over Its Lies. But It Insisted the Deal Stay Secret.**\
 `Why did the network insist an agreement with the family of a murdered young man remain undisclosed until after the election?`\
-https://nytimes.com/2021/01/17/business/media/fox-settled-a-lawsuit-over-its-lies-but-it-insisted-the-deal-stay-secret.html?searchResultPosition=4
+https://nytimes.com/2021/01/17/business/media/fox-news-seth-rich-settlement.html?searchResultPosition=4
 
 **Gary Gensler to Be Named Head of S.E.C.**\
 `Mr. Gensler led the Commodity Futures Trading Commission in the aftermath of the 2008 financial crisis, reinvigorating a regulator that at times overshadowed the agency he’s now been tapped to lead.`\
