@@ -2,8 +2,8 @@
 `The nation’s capital has been secured with checkpoints, tens of thousands of National Guard troops and miles of fencing and barricades, security at the cost of normalcy.`\
 https://nytimes.com/2021/01/18/us/washington-inauguration-security.html?searchResultPosition=1
 
-**Mexico’s Leader Forged an Unlikely Bond With Trump. Now He’s Looking Warily at Biden.**\
-`President Andrés Manuel López Obrador came to appreciate President Trump’s hands-off style, and is already making waves with an incoming administration he expects to be more meddlesome.`\
+**Once a Trump-Basher, Mexico’s Leader Misses Him Already**\
+`President Andrés Manuel López Obrador came to appreciate Mr. Trump’s hands-off style, and is already making waves with an incoming administration he expects to be more meddlesome.`\
 https://nytimes.com/2021/01/18/world/americas/mexico-trump-amlo.html?searchResultPosition=2
 
 **Census Bureau director resigns from post one year before term ends after claims that he politicized his role.**\
