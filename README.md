@@ -1,40 +1,40 @@
-**My Father, Martin Luther King Jr., Had Another Dream**\
-`If he saw the issues of poverty and income inequality that exist today he would be greatly disappointed.`\
-https://nytimes.com/video/opinion/100000007544579/my-father-martin-luther-king-jr-had-another-dream.html?searchResultPosition=1
+**Finding a Foothold for Nordic Skiing in Rural Alaska**\
+`The harsh wind-hammered tundra sometimes complicates the prospect, as do the polar bears. But the children are enthusiastic pupils.`\
+https://nytimes.com/2021/01/18/travel/rural-alaska-skiing.html?searchResultPosition=1
 
-**With Another Olympic Chance in View, Nathan Chen Dominates on the Ice**\
-`Chen, 21, claimed his fifth straight U.S. figure skating championship on Sunday, continuing a winning streak that started after a disappointing result at the 2018 Winter Games.`\
-https://nytimes.com/2021/01/18/sports/olympics/nathan-chen-figure-skating-olympics.html?searchResultPosition=2
+**Twins with Covid Help Scientists Untangle the Disease’s Genetic Roots**\
+`“I want to know,” one twin said, “why did she have Covid worse than me?”`\
+https://nytimes.com/2021/01/18/health/covid-twins-genetics.html?searchResultPosition=2
 
-**She Thought the Grizzlies Wanted Hiring Advice. They Wanted Her.**\
-`Sonia Raman had spent years studying N.B.A. games as she coached Division III women’s basketball at M.I.T. Then the Memphis Grizzlies called about an opening for an assistant coach.`\
-https://nytimes.com/2021/01/18/sports/basketball/sonia-raman-memphis-grizzlies.html?searchResultPosition=3
+**Why Rage Over the 2020 Election Could Last Well Past Trump**\
+`The vast majority of Americans do not approve of the riot at the Capitol. But experts warn that the widespread belief there was election fraud, while false, could have dangerous, lasting effects.`\
+https://nytimes.com/2021/01/18/us/supporters-of-donald-trump.html?searchResultPosition=3
 
-**The Words of Martin Luther King Jr. Reverberate in a Tumultuous Time**\
-`Dr. King’s speeches have particular resonance today amid a year of sickness and death, Black Lives Matter protests and the storming of the Capitol.`\
-https://nytimes.com/2021/01/18/us/martin-luther-king-words-protests.html?searchResultPosition=4
+**The Mystery of the Painting Thieves Love**\
+`What is it about a Frans Hals painting housed at a tiny Dutch museum that has made it so popular with thieves, who have stolen it three times since 1988?`\
+https://nytimes.com/2021/01/18/arts/design/frans-hals-stolen-painting.html?searchResultPosition=4
 
-**Samsung Chief Will Return to Prison for Bribery**\
-`Lee Jae-yong was convicted of bribing Park Geun-hye, the former president of South Korea who was impeached in 2017.`\
-https://nytimes.com/2021/01/18/business/south-korea-samsung-prison-lee.html?searchResultPosition=5
+**The Races Are Digital, and So Are the Ads, but the Money Is Real**\
+`When the pandemic shut down motorsports, sim racing filled the gap. Can it hold on to fans and sponsors when sports get back to normal?`\
+https://nytimes.com/2021/01/18/business/sim-racing-enascar.html?searchResultPosition=5
 
-**What’s on TV This Week: ‘Salt-N-Pepa’ and ‘Painting With John’**\
-`Lifetime airs a movie about the all-female rap group. And John Lurie shares his wisdom on HBO.`\
-https://nytimes.com/2021/01/18/arts/television/whats-on-tv-this-week-salt-n-pepa-and-painting-with-john.html?searchResultPosition=6
+**Egypt Denied an Oxygen Failure Killed Covid Patients. We Found That It Did.**\
+`For many Egyptians, a video offered a rare and uncensored view of the coronavirus’s real toll at the peak of Egypt’s second wave of the pandemic.`\
+https://nytimes.com/2021/01/18/world/middleeast/egypt-hospital-oxygen-virus.html?searchResultPosition=6
 
-**He Crusaded Against Gun Violence in Baltimore. Then He Was Shot and Killed.**\
-`Dante Barksdale helped lead Baltimore’s Safe Streets program and was a nephew of Nathan Barksdale, a drug trafficker known as Bodie who was an inspiration for the character Avon Barksdale in “The Wire.”`\
-https://nytimes.com/2021/01/18/us/dante-barksdale-dead-the-wire.html?searchResultPosition=7
+**For One British Industry, Brexit’s Red Tape Is Just Beginning**\
+`Chemical companies, facing costly new regulations and extra tariffs, are looking to the continent.`\
+https://nytimes.com/2021/01/18/business/for-one-british-industry-brexits-red-tape-is-just-beginning.html?searchResultPosition=7
 
-**Drew Brees Considering Retirement After Playoff Ouster**\
-`Brees, 42, said he will weigh ending his 20-year career after the Saints’ loss to Tom Brady’s Buccaneers in the divisional round.`\
-https://nytimes.com/2021/01/17/sports/football/drew-brees-retire.html?searchResultPosition=8
+**Gig Workers Are Employees. Start Treating Them That Way.**\
+`The Biden administration has an opportunity to restore basic labor protections to the people who deliver our groceries and drive for Uber and Lyft.`\
+https://nytimes.com/2021/01/18/opinion/proposition-22-california-biden.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`Biden’s 10-day blitz of executive orders.`\
-https://nytimes.com/2021/01/17/briefing/your-monday-briefing.html?searchResultPosition=9
+**Rivals Mock Andrew Yang: 5 Takeaways From the Mayor’s Race**\
+`Andrew Yang’s visit to a “bodega” drew digs from other contenders, and his entry in the New York City’s race seemed to shake up the contest.`\
+https://nytimes.com/2021/01/18/nyregion/andrew-yang-bodega-mayor.html?searchResultPosition=9
 
-**Most Major Economies Are Shrinking. Not China’s.**\
-`The Chinese economy grew 2.3 percent last year, the country’s National Bureau of Statistics announced on Monday in Beijing.`\
-https://nytimes.com/2021/01/17/business/china-economy-gdp.html?searchResultPosition=10
+**In Minnesota, a G.O.P. Lawmaker’s Death Brings Home the Reality of Covid**\
+`Minnesota Republicans celebrated election victories with a gala party. A state senator’s death from Covid-19 underlined the consequences of the G.O.P.’s rejection of health experts’ guidance.`\
+https://nytimes.com/2021/01/18/us/politics/relph-covid-minnesota.html?searchResultPosition=10
 
