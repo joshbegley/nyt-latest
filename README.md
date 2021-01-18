@@ -22,17 +22,17 @@ https://nytimes.com/2021/01/18/arts/design/frans-hals-stolen-painting.html?searc
 `When the pandemic shut down motorsports, sim racing filled the gap. Can it hold on to fans and sponsors when sports get back to normal?`\
 https://nytimes.com/2021/01/18/business/sim-racing-enascar.html?searchResultPosition=6
 
-**Gig Workers Are Employees. Start Treating Them That Way.**\
-`The Biden administration has an opportunity to restore basic labor protections to the people who deliver our groceries and drive for Uber and Lyft.`\
-https://nytimes.com/2021/01/18/opinion/proposition-22-california-biden.html?searchResultPosition=7
-
 **Egypt Denied an Oxygen Failure Killed Covid Patients. We Found That It Did.**\
 `For many Egyptians, a video offered a rare and uncensored view of the coronavirus’s real toll at the peak of Egypt’s second wave of the pandemic.`\
-https://nytimes.com/2021/01/18/world/middleeast/egypt-hospital-oxygen-virus.html?searchResultPosition=8
+https://nytimes.com/2021/01/18/world/middleeast/egypt-hospital-oxygen-virus.html?searchResultPosition=7
 
 **For One British Industry, Brexit’s Red Tape Is Just Beginning**\
 `Chemical companies, facing costly new regulations and extra tariffs, are looking to the continent.`\
-https://nytimes.com/2021/01/18/business/for-one-british-industry-brexits-red-tape-is-just-beginning.html?searchResultPosition=9
+https://nytimes.com/2021/01/18/business/for-one-british-industry-brexits-red-tape-is-just-beginning.html?searchResultPosition=8
+
+**Gig Workers Are Employees. Start Treating Them That Way.**\
+`The Biden administration has an opportunity to restore basic labor protections to the people who deliver our groceries and drive for Uber and Lyft.`\
+https://nytimes.com/2021/01/18/opinion/proposition-22-california-biden.html?searchResultPosition=9
 
 **Rivals Mock Andrew Yang: 5 Takeaways From the Mayor’s Race**\
 `Andrew Yang’s visit to a “bodega” drew digs from other contenders, and his entry in the New York City’s race seemed to shake up the contest.`\
