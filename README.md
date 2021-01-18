@@ -1,5 +1,5 @@
 **Your Tuesday Briefing**\
-`Bumps in India’s vaccine rollout.`\
+`Some problems in India’s vaccine rollout.`\
 https://nytimes.com/2021/01/18/briefing/virus-india-vaccines-trump-biden-inauguration.html?searchResultPosition=1
 
 **Will Biden’s Stimulus Package Help Reverse the ‘Shecession’?**\
