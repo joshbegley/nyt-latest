@@ -19,7 +19,7 @@ https://nytimes.com/2021/01/17/opinion/martin-luther-king-jr-youth-movement.html
 https://nytimes.com/2021/01/17/sports/football/nfl-playoffs-scores-divisional-round.html?searchResultPosition=5
 
 **How the Kansas City Chiefs beat the Cleveland Browns and reached the A.F.C. championship game.**\
-`With his star quarterback, Pat Mahomes, gone from the game with a concussion, Coach Andy Reid went for it on fourth-and-1 from near midfield and converted, allowing Kansas City to run out the clock and preserve a 22-17 victory.`\
+`With his star quarterback, Patrick Mahomes, gone from the game with a concussion, Coach Andy Reid went for it on fourth-and-1 from near midfield and converted, allowing Kansas City to run out the clock and preserve a 22-17 victory.`\
 https://nytimes.com/2021/01/17/sports/football/how-the-kansas-city-chiefs-beat-the-cleveland-browns-and-reached-the-afc-championship-game.html?searchResultPosition=6
 
 **Family Reaches $3.5 Million Settlement in Death of Maryland Football Player**\
