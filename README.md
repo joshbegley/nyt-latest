@@ -1,4 +1,4 @@
-**Armed Protesters Gather at Michigan Capitol**\
+**Small Group of Armed Protesters Gather at Michigan Capitol**\
 `In Michigan, government officials and law enforcement prepared for the possibility of significant violence ahead of the inauguration, but by Sunday’s end only a small group of armed protesters had ventured to the state capitol.`\
 https://nytimes.com/video/us/politics/100000007556249/armed-protesters-gather-at-michigan-capitol.html?searchResultPosition=1
 
