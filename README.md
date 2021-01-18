@@ -1,4 +1,4 @@
-**Gun Rights rally in Richmond Draws Smaller Crowd**\
+**Gun Rights Rally in Richmond Draws Small Crowd**\
 `Virginia’s State Capitol building was surrounded by police officers and news reporters outnumbering small knots of heavily armed gun-rights supporters.`\
 https://nytimes.com/video/us/politics/100000007557557/gun-rights-rally-richmond-virginia.html?searchResultPosition=1
 
