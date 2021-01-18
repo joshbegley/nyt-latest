@@ -10,9 +10,9 @@ https://nytimes.com/2021/01/17/pageoneplus/no-corrections-jan-18-2021.html?searc
 `Quotation of the Day for Monday, January 18, 2021.`\
 https://nytimes.com/2021/01/17/todayspaper/quotation-of-the-day-fear-of-sudden-death-governs-capital-as-attacks-pick-off-afghans.html?searchResultPosition=3
 
-**Fox Agreed to Pay for Telling Lies. But It Insisted on One Unusual Condition.**\
-`Why did the network insist its hyping of a conspiracy theory stay secret until after the election?`\
-https://nytimes.com/2021/01/17/business/media/fox-agreed-to-pay-for-telling-lies-but-it-insisted-on-one-unusual-condition.html?searchResultPosition=4
+**Fox Settled a Lawsuit Over Its Lies. But It Insisted the Deal Stay Secret.**\
+`Why did the network insist an agreement with the family of a murdered young man remain undisclosed until after the election?`\
+https://nytimes.com/2021/01/17/business/media/fox-settled-a-lawsuit-over-its-lies-but-it-insisted-the-deal-stay-secret.html?searchResultPosition=4
 
 **Gary Gensler to Be Named Head of S.E.C.**\
 `Mr. Gensler led the Commodity Futures Trading Commission in the aftermath of the 2008 financial crisis, reinvigorating a regulator that at times overshadowed the agency he’s now been tapped to lead.`\
