@@ -14,8 +14,8 @@ https://nytimes.com/2021/01/17/todayspaper/quotation-of-the-day-fear-of-sudden-d
 `Why did the network insist an agreement with the family of a murdered young man remain undisclosed until after the election?`\
 https://nytimes.com/2021/01/17/business/media/fox-news-seth-rich-settlement.html?searchResultPosition=4
 
-**Gary Gensler to Be Named Head of S.E.C.**\
-`Mr. Gensler led the Commodity Futures Trading Commission in the aftermath of the 2008 financial crisis, reinvigorating a regulator that at times overshadowed the agency he’s now been tapped to lead.`\
+**Gary Gensler Set to Lead S.E.C.**\
+`The Biden administration is also expected to name Rohit Chopra as the head of the Consumer Financial Protection Bureau, in moves that would bring Obama-era regulators to oversee key financial agencies.`\
 https://nytimes.com/2021/01/17/business/gary-gensler-sec-rohit-chopra-cfpb.html?searchResultPosition=5
 
 **After Capitols Become Fortresses, Far-Right Protesters Are Mostly a No-Show**\
