@@ -32,7 +32,7 @@ https://nytimes.com/2021/01/18/us/deborah-rhode-dead.html?searchResultPosition=8
 
 **Anti-vaccine groups received more than $1 million in small-business relief loans.**\
 `Six organizations that have challenged the safety of vaccines and made claims that scientists have called false received loans.`\
-https://nytimes.com/2021/01/18/world/anti-vaccine-groups-ppp-loans.html?searchResultPosition=9
+https://nytimes.com/2021/01/18/world/covid-anti-vaccine-groups-ppp-loans-coronavirus.html?searchResultPosition=9
 
 **How Full Employment Became Washington’s Creed**\
 `Policymakers are eager to return to the period of low unemployment that preceded the pandemic and are less concerned than in previous eras about sparking inflation and taking on debt.`\
