@@ -10,7 +10,7 @@ https://nytimes.com/2021/01/17/opinion/museum-african-american-music-nashville.h
 `In this moment made so dark by white nationalism and truth denial, Americans should look to the country’s legacy of young leaders with forward-thinking wisdom.`\
 https://nytimes.com/2021/01/17/opinion/martin-luther-king-jr-youth-movement.html?searchResultPosition=3
 
-**What We Learned from the N.F.L.’s Divisional Round**\
+**What We Learned From the N.F.L.’s Divisional Round**\
 `The Buffalo Bills rode their defense to victory while the Green Bay Packers thrived on offense. The Kansas City Chiefs, who lost Patrick Mahomes to a concussion, simply survived.`\
 https://nytimes.com/2021/01/17/sports/football/nfl-playoffs-scores-divisional-round.html?searchResultPosition=4
 
