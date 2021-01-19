@@ -18,13 +18,13 @@ https://nytimes.com/slideshow/2021/01/19/realestate/isiah-whitlock-jr-youve-got-
 `Tunisians are putting their hard-won right to criticize the government to good use. They just wish there were less to protest.`\
 https://nytimes.com/2021/01/19/world/middleeast/tunisia-protests-arab-spring-anniversary.html?searchResultPosition=5
 
-**The Arizona G.O.P. Is Sticking With Trumpism, Whether Arizona Republicans Like It or Not**\
-`Despite losing a Senate seat and seeing Joe Biden win the state, state party leaders in the land of Barry Goldwater and John McCain aren’t switching gears. They’re doubling down.`\
-https://nytimes.com/2021/01/19/us/politics/arizona-republicans-trump.html?searchResultPosition=6
-
 **Why Medical Tourism Is Drawing Patients, Even in a Pandemic**\
 `The coronavirus pandemic has devastated medical tourism, but pent-up demand remains for affordable treatment in foreign lands.`\
-https://nytimes.com/2021/01/19/travel/medical-tourism-coronavirus-pandemic.html?searchResultPosition=7
+https://nytimes.com/2021/01/19/travel/medical-tourism-coronavirus-pandemic.html?searchResultPosition=6
+
+**The Arizona G.O.P. Is Sticking With Trumpism, Whether Arizona Republicans Like It or Not**\
+`Despite losing a Senate seat and seeing Joe Biden win the state, state party leaders in the land of Barry Goldwater and John McCain aren’t switching gears. They’re doubling down.`\
+https://nytimes.com/2021/01/19/us/politics/arizona-republicans-trump.html?searchResultPosition=7
 
 **How Climbers Reached the Summit of K2 in Winter for the First Time**\
 `It was a prideful journey for the Nepalese climbers, who historically haven’t received their due.`\
