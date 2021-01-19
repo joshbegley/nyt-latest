@@ -1,4 +1,4 @@
-**Thai Woman Is Sentenced to 43 Years for Criticizing Former King**\
+**Woman Is Sentenced to 43 Years for Criticizing Thai Monarchy**\
 `Lawyers said it was the longest sentence yet for violating Thailand’s notoriously harsh lèse-majesté law.`\
 https://nytimes.com/2021/01/19/world/asia/thailand-king-lese-majeste.html?searchResultPosition=1
 
