@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/19/fashion/onesies-long-johns-and-union-suits-for-a-
 `The official acknowledgment of wins by Jon Ossoff and the Rev. Raphael Warnock begins the process of seating the upset victors.`\
 https://nytimes.com/2021/01/19/us/warnock-ossoff-senate.html?searchResultPosition=6
 
-**A Chaotic Presidency Comes to an End**\
+**A Look Back at Trump’s Presidency in 6 Minutes**\
 `Today is the last full day of President Trump’s term. We revisit memorable moments from the past four years.`\
 https://nytimes.com/video/us/politics/100000007551464/donald-trump-presidency-moments.html?searchResultPosition=7
 
