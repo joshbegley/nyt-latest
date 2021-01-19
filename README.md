@@ -15,7 +15,7 @@ https://nytimes.com/2021/01/19/realestate/isiah-whitlock-jr-your-honor-gramercy-
 https://nytimes.com/slideshow/2021/01/19/realestate/isiah-whitlock-jr-youve-got-to-live-in-a-place-you-love.html?searchResultPosition=4
 
 **In Tunisia, Some Wonder if the Revolution Was Worth It**\
-`Tunisians are putting their hard-won right to criticize the government to good use. They just wish there was less to protest.`\
+`Tunisians are putting their hard-won right to criticize the government to good use. They just wish there were less to protest.`\
 https://nytimes.com/2021/01/19/world/middleeast/tunisia-protests-arab-spring-anniversary.html?searchResultPosition=5
 
 **The Arizona G.O.P. Is Sticking With Trumpism, Whether Arizona Republicans Like It or Not**\
