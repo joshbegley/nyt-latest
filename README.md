@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/19/briefing/inauguration-joe-biden-baby-names.html?s
 
 **Could a Smell Test Screen People for Covid?**\
 `A new modeling study hints that odor-based screens could quash outbreaks. But some experts are skeptical it would work in the real world.`\
-https://nytimes.com/2021/01/19/health/coronavirus-testing-smell-odor.html?searchResultPosition=5
+https://nytimes.com/2021/01/19/health/smell-test-for-covid.html?searchResultPosition=5
 
 **12 National Guard Members Removed From Inauguration Duties Amid Extremist Threats**\
 `Two of them made threatening comments toward lawmakers, and one expressed support for President Trump. The others were removed for a wide variety of reasons.`\
