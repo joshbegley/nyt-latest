@@ -1,6 +1,6 @@
 **Baseball’s Harassment Issues Extend Far Beyond Jared Porter**\
 `Women around the game endure indignities their male colleagues rarely even consider. Porter’s abhorrent treatment of a reporter is just the latest example.`\
-https://nytimes.com/2021/01/19/sports/baseball/mets-jared-porter.html?searchResultPosition=1
+https://nytimes.com/2021/01/19/sports/baseball/mlb-sexual-harassment-misconduct.html?searchResultPosition=1
 
 **‘To heal, we must remember,’ Biden says at ceremony for coronavirus victims.**\
 `By Peter Baker and Michael D. Shear`\
