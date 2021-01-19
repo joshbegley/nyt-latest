@@ -8,7 +8,7 @@ https://nytimes.com/2021/01/19/dining/laderach-chocolatier.html?searchResultPosi
 
 **Kamala Harris Has Always Worn Pearls. Now, in Sisterhood, So Will They.**\
 `Women across the country are pledging to wear pearls on Inauguration Day to support the country’s first female Vice President-elect.`\
-https://nytimes.com/2021/01/19/style/inaugurations-pearls-women.html?searchResultPosition=3
+https://nytimes.com/2021/01/19/style/inaugurations-pearls-kamala-harris.html?searchResultPosition=3
 
 **10 Challenges Biden Faces in Righting the Economy**\
 `The pandemic has damaged the economy and cost millions of people their livelihoods. These are some of the areas that demand Joe Biden’s attention.`\
