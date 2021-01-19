@@ -1,40 +1,40 @@
+**Baseball’s Harassment Issues Extend Far Beyond Jared Porter**\
+`Women around the game endure indignities their male colleagues rarely even consider. Porter’s abhorrent treatment of a reporter is just the latest example.`\
+https://nytimes.com/2021/01/19/sports/baseball/mets-jared-porter.html?searchResultPosition=1
+
+**‘To heal, we must remember,’ Biden says at ceremony for coronavirus victims.**\
+`By Peter Baker and Michael D. Shear`\
+https://nytimes.com/2021/01/19/world/joe-biden-coronavirus-us-deaths.html?searchResultPosition=2
+
 **Coronavirus Briefing: What Happened Today**\
 `Joe Biden held a ceremony to remember the 400,000 Americans who have died during the pandemic.`\
-https://nytimes.com/2021/01/19/us/coronavirus-today.html?searchResultPosition=1
+https://nytimes.com/2021/01/19/us/coronavirus-today.html?searchResultPosition=3
 
 **In Saudi Arabia, Quiet Changes May Ease Tensions With Biden**\
 `The new president is a Saudi critic, but he takes office as the kingdom scales back beheadings, removes hate speech from text books and limits prison terms for activists.`\
-https://nytimes.com/2021/01/19/world/middleeast/saudi-reforms-biden.html?searchResultPosition=2
+https://nytimes.com/2021/01/19/world/middleeast/saudi-reforms-biden.html?searchResultPosition=4
 
 **A ‘Nerve Center’ for Climate in the Biden White House**\
 `Joseph R. Biden Jr. will bring with him the largest team of climate change experts ever assembled in the White House, and action on global warming is expected quickly.`\
-https://nytimes.com/2021/01/19/climate/biden-climate-change.html?searchResultPosition=3
+https://nytimes.com/2021/01/19/climate/biden-climate-change.html?searchResultPosition=5
 
 **Inauguration, Joe Biden, Baby Names: Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/01/19/briefing/inauguration-joe-biden-baby-names.html?searchResultPosition=4
+https://nytimes.com/2021/01/19/briefing/inauguration-joe-biden-baby-names.html?searchResultPosition=6
 
 **Could a Smell Test Screen People for Covid?**\
 `A new modeling study hints that odor-based screens could quash outbreaks. But some experts are skeptical it would work in the real world.`\
-https://nytimes.com/2021/01/19/health/smell-test-for-covid.html?searchResultPosition=5
+https://nytimes.com/2021/01/19/health/smell-test-for-covid.html?searchResultPosition=7
 
 **12 National Guard Members Removed From Inauguration Duties Amid Extremist Threats**\
 `Two of them made threatening comments toward lawmakers, and one expressed support for President Trump. The others were removed for a wide variety of reasons.`\
-https://nytimes.com/2021/01/19/us/politics/national-guard-capitol-biden-inauguration.html?searchResultPosition=6
+https://nytimes.com/2021/01/19/us/politics/national-guard-capitol-biden-inauguration.html?searchResultPosition=8
 
 **More Capitol Police officers test positive for coronavirus after riot.**\
 `By Ali Watkins`\
-https://nytimes.com/2021/01/19/us/politics/capitol-police-test-positive-covid.html?searchResultPosition=7
+https://nytimes.com/2021/01/19/us/politics/capitol-police-test-positive-covid.html?searchResultPosition=9
 
 **Democrats Are About to Control Congress. What Will They Do?**\
 `For the first time in a decade, they have the power to transform the country.`\
-https://nytimes.com/2021/01/19/opinion/biden-stimulus-inauguration-senate.html?searchResultPosition=8
-
-**Don Sutton, Hall of Fame Right-Hander, Is Dead at 75**\
-`“When you gave him the ball, you knew one thing,” his former manager Tommy Lasorda once said. “Your pitcher was going to give you everything he had.”`\
-https://nytimes.com/2021/01/19/sports/baseball/don-sutton-dead.html?searchResultPosition=9
-
-**Prosecute Trump? Biden Is Wary, but His Voters Are Eager**\
-`Urging unity, the president-elect has tried to focus on his policy plans. But many of those who elected him are still fixated on his predecessor: “He’s a crook and he needs to pay.”`\
-https://nytimes.com/2021/01/19/us/politics/biden-trump-impeachment.html?searchResultPosition=10
+https://nytimes.com/2021/01/19/opinion/biden-stimulus-inauguration-senate.html?searchResultPosition=10
 
