@@ -1,40 +1,40 @@
+**Lesson of the Day: ‘Kamala Harris Will Make History. So Will Her ‘Big, Blended’ Family.’**\
+`In this lesson, students will learn about Kamala Harris and her extended family, and how together they may broaden the nation’s ideas about family dynamics and gender roles.`\
+https://nytimes.com/2021/01/19/learning/lesson-of-the-day-kamala-harris-will-make-history-so-will-her-big-blended-family.html?searchResultPosition=1
+
 **Why T-Shirts Promoting the Capitol Riot Are Still Available Online**\
 `Merchandise with phrases like “Battle for Capitol Hill Veteran” could still be purchased on major e-commerce sites, a sign of how the platforms have struggled to remove the goods.`\
-https://nytimes.com/2021/01/19/business/qanon-maga-merchandise-amazon-etsy-shopify.html?searchResultPosition=1
+https://nytimes.com/2021/01/19/business/qanon-maga-merchandise-amazon-etsy-shopify.html?searchResultPosition=2
 
 **Church of Satan’s ‘Halloween House’ Gutted by Arsonist**\
 `A campy Gothic house in Poughkeepsie’s “Witchcraft District” that served as a gathering place for the atheist group went up in flames.`\
-https://nytimes.com/2021/01/19/nyregion/church-of-satan-poughkeepsie-burned-down.html?searchResultPosition=2
+https://nytimes.com/2021/01/19/nyregion/church-of-satan-poughkeepsie-burned-down.html?searchResultPosition=3
 
 **Fun Virtual Events?**\
 `What’s the best thing you’ve done virtually this year?`\
-https://nytimes.com/2021/01/19/learning/fun-virtual-events.html?searchResultPosition=3
+https://nytimes.com/2021/01/19/learning/fun-virtual-events.html?searchResultPosition=4
 
 **A Bitter Archaeological Feud Over an Ancient Vision of the Cosmos**\
 `The Nebra sky disk, which has been called the oldest known depiction of astronomical phenomena, is a “very emotional object.”`\
-https://nytimes.com/2021/01/19/science/nebra-sky-disk.html?searchResultPosition=4
+https://nytimes.com/2021/01/19/science/nebra-sky-disk.html?searchResultPosition=5
 
 **Missing: One Black Hole With 10 Billion Solar Masses**\
 `One of the biggest galaxies in the universe seems to lack its dark centerpiece.`\
-https://nytimes.com/2021/01/19/science/astronomy-black-hole-abell.html?searchResultPosition=5
+https://nytimes.com/2021/01/19/science/astronomy-black-hole-abell.html?searchResultPosition=6
 
 **Word + Quiz: machination**\
 `This word has appeared in two articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/01/19/learning/word-quiz-machination.html?searchResultPosition=6
+https://nytimes.com/2021/01/19/learning/word-quiz-machination.html?searchResultPosition=7
 
 **Late Night Celebrates the Final 36 Hours of Trump in Charge**\
 `“Normally, after a president’s term, they show before and after photos to prove how much the job aged him. This time, they’re showing before and after photos of all of us,” Jimmy Fallon joked on Monday.`\
-https://nytimes.com/2021/01/19/arts/television/late-night-trump-pardons-leaving-office.html?searchResultPosition=7
+https://nytimes.com/2021/01/19/arts/television/late-night-trump-pardons-leaving-office.html?searchResultPosition=8
 
 **Mets’ New General Manager Accused of Harassing Female Reporter**\
 `Jared Porter reportedly sent dozens of unsolicited text messages — including one with a nude photo — to a reporter in 2016.`\
-https://nytimes.com/2021/01/19/sports/baseball/jared-porter-mets-text-messages.html?searchResultPosition=8
+https://nytimes.com/2021/01/19/sports/baseball/jared-porter-mets-text-messages.html?searchResultPosition=9
 
 **New York Police Arrest Dozens as M.L.K. Day Marchers Gather Near City Hall**\
 `The confrontation came days after the state’s attorney general sued the New York Police Department for its handling of protests following the death of George Floyd.`\
-https://nytimes.com/2021/01/18/nyregion/nypd-arrests-manhattan-march.html?searchResultPosition=9
-
-**More Access, More Anxiety: The Job of Photographing Trump**\
-`In an interview, Doug Mills, a Times photographer in the Washington bureau, reflects on a relentless four years.`\
-https://nytimes.com/2021/01/18/insider/more-access-more-anxiety-the-job-of-photographing-trump.html?searchResultPosition=10
+https://nytimes.com/2021/01/18/nyregion/nypd-arrests-manhattan-march.html?searchResultPosition=10
 
