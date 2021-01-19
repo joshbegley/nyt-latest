@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/19/briefing/inauguration-biden-virus-deaths-indonesi
 
 **Vegan Restaurant Gets Michelin Star in France, a First**\
 `“We want to show you can eat differently,” said Claire Vallée, whose restaurant won the star. A growing number of chefs are eschewing France’s traditional, meat-focused cuisine.`\
-https://nytimes.com/2021/01/19/world/europe/michelin-star-vegan-restaurant-star-france.html?searchResultPosition=2
+https://nytimes.com/2021/01/19/world/europe/ona-michelin-star-france.html?searchResultPosition=2
 
 **The Complete List of Trump’s Twitter Insults (2015-2021)**\
 `This list documents all the verbal attacks Mr. Trump posted on Twitter, from when he declared his candidacy in June 2015 to Jan. 8, when Twitter permanently barred him.`\
