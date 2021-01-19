@@ -14,7 +14,7 @@ https://nytimes.com/2021/01/19/business/dealbook/trump-globalism.html?searchResu
 `And what else you need to know today.`\
 https://nytimes.com/2021/01/19/briefing/trump-biden-brazil-1776-report.html?searchResultPosition=4
 
-**A Mood Check With Trump Supporters**\
+**‘What Kind of Message Is That?’: How Republicans See the Attack on the Capitol**\
 `We spoke to fans of President Trump about the Capitol riot and their feelings before Joe Biden’s inauguration.`\
 https://nytimes.com/2021/01/19/podcasts/the-daily/trump-supporters-biden-transition-capitol-riot.html?searchResultPosition=5
 
