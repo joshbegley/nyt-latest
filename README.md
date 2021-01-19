@@ -1,5 +1,5 @@
 **Your Wednesday Briefing**\
-`Ushering in the Biden administration.`\
+`The Biden inauguration.`\
 https://nytimes.com/2021/01/19/briefing/inauguration-biden-virus-deaths-indonesia-victims.html?searchResultPosition=1
 
 **Vegan Restaurant Gets Michelin Star in France, a First**\
