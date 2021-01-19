@@ -1,5 +1,5 @@
 **Trump lifted coronavirus travel restrictions from Europe and Brazil, Biden team says it won’t last.**\
-`President Trump ordered an end to the ban on travelers from Europe and Brazil that had been aimed at stopping the spread of the coronavirus to the United States, a move that was quickly rejected by aides to President-elect Joseph R. Biden Jr.`\
+`President Trump ordered an end to the ban on travelers from Europe and Brazil to the United States, a move that was quickly rejected by aides to President-elect Joseph R. Biden Jr.`\
 https://nytimes.com/2021/01/18/us/coronavirus-travel-ban-europe-brazil.html?searchResultPosition=1
 
 **Biden Will Kick Off Inaugural Events at a Ceremony Honoring Victims of Covid-19**\
