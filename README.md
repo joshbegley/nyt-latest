@@ -36,5 +36,5 @@ https://nytimes.com/2021/01/19/sports/baseball/don-sutton-dead.html?searchResult
 
 **Prosecute Trump? Biden Is Wary, but His Voters Are Eager**\
 `Urging unity, the president-elect has tried to focus on his policy plans. But many of those who elected him are still fixated on his predecessor: “He’s a crook and he needs to pay.”`\
-https://nytimes.com/2021/01/19/us/politics/democrats-trump-prosecution.html?searchResultPosition=10
+https://nytimes.com/2021/01/19/us/politics/biden-trump-impeachment.html?searchResultPosition=10
 
