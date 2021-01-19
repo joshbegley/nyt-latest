@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/19/sports/baseball/jared-porter-mets-text-messages.html?searchResultPosition=1
 
 **New York Police Arrest Dozens as M.L.K. Day Marchers Gather Near City Hall**\
-`The confrontation came days after the state’s attorney general sued the New York Police Department for its handling of protests after the death of George Floyd.`\
+`The confrontation came days after the state’s attorney general sued the New York Police Department for its handling of protests following the death of George Floyd.`\
 https://nytimes.com/2021/01/18/nyregion/nypd-arrests-manhattan-march.html?searchResultPosition=2
 
 **More Access, More Anxiety: The Job of Photographing Trump**\
