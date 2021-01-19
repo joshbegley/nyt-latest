@@ -28,7 +28,7 @@ https://nytimes.com/2021/01/19/climate/trump-climate-change.html?searchResultPos
 
 **Retailers drop MyPillow amid fallout from comments by its pro-Trump founder.**\
 `Mike Lindell, the company’s founder, has become a prominent supporter of President Trump and MyPillow offered a “Fight forTrump” discount code on the day of the Capitol riots.`\
-https://nytimes.com/2021/01/19/business/mypillow-backlash-mike-lindell.html?searchResultPosition=8
+https://nytimes.com/2021/01/19/business/mypillow-bed-bath-beyond-kohls.html?searchResultPosition=8
 
 **Cuomo Offers Doomsday Proposal to Attack a Possible $15 Billion Deficit**\
 `Without a full federal aid package, the state would have to cut $2.6 billion in school and Medicaid spending, the governor said.`\
