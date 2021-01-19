@@ -2,7 +2,7 @@
 `Europe won’t wait for Biden.`\
 https://nytimes.com/2021/01/18/briefing/coronavirus-joe-biden-aleksei-navalny.html?searchResultPosition=1
 
-**Trump Orders Lifting of Virus Travel Ban, but Biden Aides Vow to Block It**\
+**Trump Orders Lifting of Virus Travel Ban, but Biden Aides Vow to Block Move**\
 `The president’s proclamation, which would not take effect until Jan. 26, after Joe Biden assumes office, was part of a flurry of orders that Mr. Biden is likely to reverse.`\
 https://nytimes.com/2021/01/18/us/politics/trump-biden-coronavirus-travel-ban.html?searchResultPosition=2
 
