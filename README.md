@@ -2,8 +2,8 @@
 `Scientists were surprised to find the insect’s preserved penis, which suggests it was an unknown species.`\
 https://nytimes.com/2021/01/19/science/assassin-bug-penis-fossil.html?searchResultPosition=1
 
-**Rivian Has Been a Tortoise to Tesla’s Hare. Can It Catch Up?**\
-`The electric vehicle company, which has raised another $2.65 billion from investors, plans to sell a pickup truck and S.U.V. it has worked on for more than a decade.`\
+**The Next Tesla? Investors Bet Big on Electric Truck Maker Rivian**\
+`Rivian, which has raised another $2.65 billion, plans to sell a pickup truck and S.U.V. it has worked on for more than a decade.`\
 https://nytimes.com/2021/01/19/business/rivian-tesla-electric-cars.html?searchResultPosition=2
 
 **Baylor Doesn’t Let Kansas Get in the Way of Its Big 12 Title Quest**\
