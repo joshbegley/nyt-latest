@@ -30,7 +30,7 @@ https://nytimes.com/video/world/europe/100000007557797/aleksei-navalny-arrested-
 `Inauguration Day brings with it an awkward transition when one family moves in and another moves out, made all the more so this year by the coronavirus and President Trump’s stormy departure.`\
 https://nytimes.com/2021/01/18/us/politics/white-house-biden-trump.html?searchResultPosition=8
 
-**Trump lifted coronavirus travel restrictions from Europe and Brazil, Biden team says it won’t last.**\
+**Trump lifted coronavirus travel restrictions from Europe and Brazil; Biden team says it won’t last.**\
 `President Trump ordered an end to the ban on travelers from Europe and Brazil to the United States, a move that was quickly rejected by aides to President-elect Joseph R. Biden Jr.`\
 https://nytimes.com/2021/01/18/us/coronavirus-travel-ban-europe-brazil.html?searchResultPosition=9
 
