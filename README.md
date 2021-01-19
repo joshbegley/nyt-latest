@@ -1,4 +1,4 @@
-**‘Field of Flags’ on the National Mall represents the people who cannot attend Biden’s inauguration.**\
+**‘Field of Flags’ on the National Mall represents the people who cannot attend the inauguration.**\
 `By Eileen Sullivan`\
 https://nytimes.com/2021/01/19/us/politics/field-of-flags-national-mall-inauguration.html?searchResultPosition=1
 
