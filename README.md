@@ -28,7 +28,7 @@ https://nytimes.com/2021/01/19/business/dealbook/supreme-court-dark-money.html?s
 
 **When Joe Biden Takes the White House, He’ll Also Take @WhiteHouse**\
 `The transition of official White House social media handles is more complicated now than four years ago.`\
-https://nytimes.com/2021/01/19/technology/white-house-social.html?searchResultPosition=8
+https://nytimes.com/2021/01/19/technology/biden-white-house-twitter-account.html?searchResultPosition=8
 
 **When Evictions Loom, Pets Are Also at Risk**\
 `Adoptions set a record in the U.S. early in the pandemic, but now millions of animals could be in danger of being abandoned or returned to shelters.`\
