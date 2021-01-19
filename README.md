@@ -24,7 +24,7 @@ https://nytimes.com/2021/01/19/us/politics/national-guard-capitol-biden-inaugura
 
 **More Capitol Police officers test positive for coronavirus after riot.**\
 `By Ali Watkins`\
-https://nytimes.com/2021/01/19/us/politics/more-capitol-police-officers-test-positive-for-coronavirus-after-riot.html?searchResultPosition=7
+https://nytimes.com/2021/01/19/us/politics/capitol-police-test-positive-covid.html?searchResultPosition=7
 
 **Democrats Are About to Control Congress. What Will They Do?**\
 `For the first time in a decade, they have the power to transform the country.`\
