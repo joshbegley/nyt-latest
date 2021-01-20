@@ -6,7 +6,7 @@ https://nytimes.com/2021/01/20/world/asia/china-surrogate-baby.html?searchResult
 `With a tiebreaking vote in an evenly divided Senate, Ms. Harris may be returning to the Capitol frequently. But her history-making role is likely to include many more responsibilities.`\
 https://nytimes.com/2021/01/20/us/politics/kamala-harris-vice-president.html?searchResultPosition=2
 
-**Soon to be on the wall in Harris’s office: A Golden State Warriors jersey.**\
+**Soon to be on the wall in Harris’s Office: A Golden State Warriors Jersey**\
 `By Nick Corasaniti`\
 https://nytimes.com/2021/01/20/us/harriss-office-golden-state-warriors-jersey.html?searchResultPosition=3
 
