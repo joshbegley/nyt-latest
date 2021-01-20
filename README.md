@@ -1,5 +1,5 @@
 **Kamala Harris Swears In New Democratic Senators**\
-`Vice President Kamala Harris swore in three new senators Wednesday, Jon Ossoff and the Rev. Raphael Warnock of Georgia, and Alex Padilla of California. Democrats now have narrow control of the Senate.`\
+`Vice President Kamala Harris swore in three new senators Wednesday: Jon Ossoff and the Rev. Raphael Warnock of Georgia, and Alex Padilla of California. Democrats now have narrow control of the Senate.`\
 https://nytimes.com/video/us/politics/100000007562266/harris-swears-in-ossoff-warnock-padilla.html?searchResultPosition=1
 
 **The World Deserves Answers From China**\
