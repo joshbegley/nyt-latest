@@ -18,13 +18,13 @@ https://nytimes.com/2021/01/20/realestate/colonia-nj-a-nice-alternative-to-the-c
 `Good schools and reasonably priced homes have made this Woodbridge Township community popular with New York City buyers during the pandemic.`\
 https://nytimes.com/slideshow/2021/01/20/realestate/living-in-colonia-nj.html?searchResultPosition=5
 
-**Joe Biden Is About to Find Out What’s Left of America**\
-`Have Trump and Trumpism made the United States ungovernable?`\
-https://nytimes.com/2021/01/20/opinion/joe-biden-inauguration.html?searchResultPosition=6
-
 **Suriname Could Be Latest Big Oil Find as Industry Cuts Costs**\
 `The small South American country has become a hot prospect for oil companies looking to produce fossil fuels while spending less.`\
-https://nytimes.com/2021/01/20/business/energy-environment/suriname-oil-discovery.html?searchResultPosition=7
+https://nytimes.com/2021/01/20/business/energy-environment/suriname-oil-discovery.html?searchResultPosition=6
+
+**Joe Biden Is About to Find Out What’s Left of America**\
+`Have Trump and Trumpism made the United States ungovernable?`\
+https://nytimes.com/2021/01/20/opinion/joe-biden-inauguration.html?searchResultPosition=7
 
 **Five Golfers to Watch at Abu Dhabi**\
 `The field seems impressive, and Lee Westwood is back to defend his title.`\
