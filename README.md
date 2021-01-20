@@ -1,4 +1,4 @@
-**‘Call My Agent!’ Puts aHuman Spin on Show Business**\
+**‘Call My Agent!’ Puts a Human Spin on Show Business**\
 `The final season of the French comedy arrives on Netflix with a more sympathetic view of the industry than is usually found in counterparts like “Entourage” and “Extras.”`\
 https://nytimes.com/2021/01/20/arts/television/call-my-agent-netflix-review.html?searchResultPosition=1
 
