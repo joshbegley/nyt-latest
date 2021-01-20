@@ -1,5 +1,5 @@
 **Live Coverage of the Inauguration**\
-`Join New York Times reporters for live coverage of Inauguration Day as President Trump departs the White House and Joseph R. Biden is sworn-in as the 46th President of the United States.`\
+`Join New York Times reporters for live coverage of Inauguration Day as President Trump departs the White House and Joseph R. Biden Jr. is sworn in as the 46th president of the United States.`\
 https://nytimes.com/interactive/2021/01/20/us/politics/live-stream-inauguration.html?searchResultPosition=1
 
 **The Biden Era Begins**\
