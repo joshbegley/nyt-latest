@@ -8,7 +8,7 @@ https://nytimes.com/slideshow/2021/01/20/realestate/a-home-with-views-of-the-roc
 
 **Biden began Inauguration Day by attending Mass with congressional leaders.**\
 `By Megan Specia and Sabrina Tavernise`\
-https://nytimes.com/2021/01/20/us/biden-began-inauguration-day-by-attending-mass-with-congressional-leaders.html?searchResultPosition=3
+https://nytimes.com/2021/01/20/us/biden-inauguration-mass.html?searchResultPosition=3
 
 **George Springer Reaches $150 Million Deal With Toronto**\
 `Believed to have been a target of the Mets, the 2017 World Series M.V.P. signed the largest contract in Blue Jays history.`\
