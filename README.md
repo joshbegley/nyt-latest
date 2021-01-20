@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/20/arts/television/call-my-agent-netflix-review.html
 
 **At four state capitols, only the smallest of anti-Biden protests.**\
 `By Ruth Graham, Kathleen Gray, Eric Adelson and Sean Keenan`\
-https://nytimes.com/2021/01/20/us/at-four-state-capitols-only-the-smallest-of-anti-biden-protests.html?searchResultPosition=5
+https://nytimes.com/2021/01/20/us/anti-biden-protests.html?searchResultPosition=5
 
 **Harris escorted Pence to his motorcade, a symbol of a peaceful transfer of power.**\
 `By Michael Gold`\
