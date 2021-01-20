@@ -2,7 +2,7 @@
 `Joel Fagliano creates and edits the Mini Crossword.`\
 https://nytimes.com/2021/01/20/crosswords/puzzles-games-crossword-fagliano.html?searchResultPosition=1
 
-**TV Captures the End of a Stormy Presidency**\
+**TV Captures the End of a Tumultuous Presidency**\
 `As Trump completes his time in office with made-for-TV images, ABC’s George Stephanopoulos says, “The image in my head is Richard Nixon in 1974.”`\
 https://nytimes.com/2021/01/20/business/media/inauguration-tv-media-trump.html?searchResultPosition=2
 
