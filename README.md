@@ -22,19 +22,19 @@ https://nytimes.com/2021/01/20/learning/word-quiz-rube.html?searchResultPosition
 `Inauguration Eve is “the day before the day we’ve all been waiting for,” Stephen Colbert said on Tuesday night.`\
 https://nytimes.com/2021/01/20/arts/television/late-night-trump-legacy-the-end.html?searchResultPosition=6
 
+**Jack Ma appears in public for the first time since challenging Beijing.**\
+`Mr. Ma, the co-founder of the retailing giant Alibaba, had disappeared after criticizing Chinese regulators late last year.`\
+https://nytimes.com/2021/01/20/business/jack-ma-alibaba-public-appearance.html?searchResultPosition=7
+
 **With Hours Left in Office, Trump Grants Clemency to Bannon and Other Allies**\
 `The president continued using his power to help his supporters, including his former chief strategist and one of his top 2016 fund-raisers.`\
-https://nytimes.com/2021/01/20/us/politics/trump-pardons.html?searchResultPosition=7
+https://nytimes.com/2021/01/20/us/politics/trump-pardons.html?searchResultPosition=8
 
 **Joe Biden’s Long Road to the Presidency**\
 `Joe Biden’s journey from local government to the White House spanned half a century, with political triumphs and devastating personal tragedies along the way.`\
-https://nytimes.com/interactive/2021/01/20/us/politics/joe-biden-photos.html?searchResultPosition=8
+https://nytimes.com/interactive/2021/01/20/us/politics/joe-biden-photos.html?searchResultPosition=9
 
 **How to Watch the 2021 Presidential Inauguration**\
 `Joseph R. Biden Jr. will be sworn in as president of the United States today around 12 p.m. Eastern. In the evening, Tom Hanks will host a prime-time celebration.`\
-https://nytimes.com/2021/01/20/us/watch-biden-inauguration.html?searchResultPosition=9
-
-**Your Wednesday Briefing**\
-`The final day of the Trump presidency.`\
-https://nytimes.com/2021/01/19/briefing/biden-inauguration-coronavirus-uighurs.html?searchResultPosition=10
+https://nytimes.com/2021/01/20/us/watch-biden-inauguration.html?searchResultPosition=10
 
