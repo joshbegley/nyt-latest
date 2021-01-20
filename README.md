@@ -14,8 +14,8 @@ https://nytimes.com/2021/01/20/us/politics/trump-presidency.html?searchResultPos
 `President Donald J. Trump’s clemency actions underscored his animosity toward a justice system seeking to punish corruption and betrayals of public trust.`\
 https://nytimes.com/2021/01/20/us/politics/in-trumps-pardons-disdain-for-accountability.html?searchResultPosition=4
 
-**Biden Rejoins Paris Climate Agreement**\
-`The move was a first step in healing one of the deepest rifts between the United States and the rest of the world after former President Donald J. Trump defiantly rejected the pact.`\
+**Biden, in a Burst of Climate Orders, Rejoins the Paris Agreement**\
+`The president also canceled the Keystone XL pipeline and ordered federal agencies to begin the process of reinstating environmental regulations reversed under the Trump administration.`\
 https://nytimes.com/2021/01/20/climate/biden-paris-agreement-keystone.html?searchResultPosition=5
 
 **Keystone Rejection Tests Trudeau’s Balancing Act on Climate and Energy**\
