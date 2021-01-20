@@ -30,8 +30,8 @@ https://nytimes.com/2021/01/20/business/dealbook/biden-inauguration-trump-pardon
 `Two new art spaces funded by a Spanish regional government showcase the collection of Roberto Polo. But they don’t mention the shadier episodes of his past.`\
 https://nytimes.com/2021/01/20/arts/design/spain-roberto-polo-museum.html?searchResultPosition=8
 
-**Watch Live: President Trump Departs Washington**\
-`Watch live coverage of the inauguration of Joseph R. Biden Jr. as the next president of the United States, and President Trump’s departure from Washington.`\
+**Watch Live: Biden Is Inaugurated as the 46th U.S. President**\
+`Watch live coverage of the inauguration ceremony for Joseph R. Biden as the next president of the United States.`\
 https://nytimes.com/video/us/politics/100000007558606/biden-inauguration-video.html?searchResultPosition=9
 
 **Zimbabwe’s foreign minister dies from Covid-19.**\
