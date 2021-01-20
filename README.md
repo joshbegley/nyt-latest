@@ -26,7 +26,7 @@ https://nytimes.com/2021/01/20/arts/music/trump-pardons-lil-wayne-kodak-black.ht
 `John Lurie’s eccentric HBO series is no Bob Ross how-to. Its lessons are stranger and deeper.`\
 https://nytimes.com/2021/01/20/arts/television/review-painting-with-john-lurie.html?searchResultPosition=7
 
-**When Critics Reject the Film That’s About Your Life**\
+**When Some Critics Reject the Film That’s About Your Life**\
 `After Hollywood optioned his devastating essay about his dying wife, Matthew Teague vowed the movie would do right by her. The reviews landed like a gut punch.`\
 https://nytimes.com/2021/01/20/movies/our-friend-matthew-teague.html?searchResultPosition=8
 
