@@ -14,27 +14,27 @@ https://nytimes.com/2021/01/20/movies/our-friend-matthew-teague.html?searchResul
 `The final season of the French comedy arrives on Netflix with a more sympathetic view of the industry than is usually found in counterparts like “Entourage” and “Extras.”`\
 https://nytimes.com/2021/01/20/arts/television/call-my-agent-netflix-review.html?searchResultPosition=4
 
+**At four state capitols, only the smallest of anti-Biden protests.**\
+`By Ruth Graham, Kathleen Gray and Eric Adelson`\
+https://nytimes.com/2021/01/20/us/at-four-state-capitols-only-the-smallest-of-anti-biden-protests.html?searchResultPosition=5
+
 **Harris escorted Pence to his motorcade, a symbol of a peaceful transfer of power.**\
 `By Michael Gold`\
-https://nytimes.com/2021/01/20/us/kamala-harris-mike-pence-inauguration.html?searchResultPosition=5
+https://nytimes.com/2021/01/20/us/kamala-harris-mike-pence-inauguration.html?searchResultPosition=6
 
 **Trump Pardons Hillel Nahmad, Madison Avenue Art Dealer**\
 `The New York dealer, scion of a powerful art world family, pleaded guilty to running an illegal gambling ring in 2013.`\
-https://nytimes.com/2021/01/20/arts/design/trump-pardons-helly-nahmad.html?searchResultPosition=6
+https://nytimes.com/2021/01/20/arts/design/trump-pardons-helly-nahmad.html?searchResultPosition=7
 
 **Poet Amanda Gorman Says America Can Be the ‘Light’ It Needs**\
 `Amanda Gorman, a 22-year-old poet, recited her poem “The Hill We Climb” at the inauguration of President Joseph R. Biden Jr.`\
-https://nytimes.com/video/us/politics/100000007561374/poet-amanda-gorman-inauguration.html?searchResultPosition=7
+https://nytimes.com/video/us/politics/100000007561374/poet-amanda-gorman-inauguration.html?searchResultPosition=8
 
 **Will Biden Be an Activist President on the World Stage?**\
 `Despite cascading crises at home that will need his urgent attention, some foreign policy experts predict the new U.S. leader will take an energetic role in foreign policy.`\
-https://nytimes.com/2021/01/20/world/americas/biden-world-democracy.html?searchResultPosition=8
+https://nytimes.com/2021/01/20/world/americas/biden-world-democracy.html?searchResultPosition=9
 
 **Theater to Stream: Jerry Herman’s Tunes; Marisa Tomei, Twice**\
 `The Pasadena Playhouse has a new tribute to Herman, the composer of “Hello, Dolly!,” and Tomei turns up in “Beirut” and “Three Hotels.”`\
-https://nytimes.com/2021/01/20/theater/theater-to-stream-jerry-herman-marisa-tomei.html?searchResultPosition=9
-
-**Purple was a popular color at the inauguration and masks were the must-have accessory.**\
-`Vice President Kamala Harris, Hillary Clinton and Michelle Obama all wore shades of purple, bridging the divide between red and blue.`\
-https://nytimes.com/2021/01/20/us/politics/inauguration-fashion-purple.html?searchResultPosition=10
+https://nytimes.com/2021/01/20/theater/theater-to-stream-jerry-herman-marisa-tomei.html?searchResultPosition=10
 
