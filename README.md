@@ -1,5 +1,5 @@
 **N.Y.C. Is Days Away From Running Out of Vaccine**\
-`“We will have literally nothing left to give as of Friday,” Mayor Bill de Blasio said. The next  shipment is expected next Tuesday. `\
+`“We will have literally nothing left to give as of Friday,” Mayor Bill de Blasio said. The next shipment is expected on Tuesday. `\
 https://nytimes.com/2021/01/20/nyregion/covid-vaccine-nyc.html?searchResultPosition=1
 
 **Do You Know Where the Vice President Lives?**\
