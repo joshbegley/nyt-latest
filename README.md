@@ -34,7 +34,7 @@ https://nytimes.com/2021/01/20/us/trump-pardon-robert-zangrillo-varsity-blues.ht
 `It is corrupt and a possible obstruction of justice and should be legally challenged.`\
 https://nytimes.com/2021/01/20/opinion/trump-bannon-pardon.html?searchResultPosition=9
 
-**‘They Have Not Legitimately Won.’ Pro-Trump Media Keeps the Disinformation Flowing.**\
+**‘They Have Not Legitimately Won’: Pro-Trump Media Keeps the Disinformation Flowing**\
 `After Biden's inauguration, right-wing media outlets are pushing false voter-fraud conspiracy theories and predicting more political conflict  ahead.`\
 https://nytimes.com/2021/01/20/business/media/misinformation-trump-media.html?searchResultPosition=10
 
