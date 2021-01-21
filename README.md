@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/20/us/patty-sakal-covid-death-sign-language.html?sea
 
 **Jen Psaki, Biden’s new press secretary, pledges to bring ‘truth and transparency back.’**\
 `Jen Psaki, the White House press secretary, conducted the first news briefing of President Biden’s administration on Wednesday and vowed to bring “truth and transparency back to the briefing room.”`\
-https://nytimes.com/2021/01/20/us/politics/jen-psaki-biden-press-secretary.html?searchResultPosition=5
+https://nytimes.com/2021/01/20/us/politics/jen-psaki-press-secretary-biden.html?searchResultPosition=5
 
 **Trump Financial Disclosure Reveals a Business Upended by the Pandemic**\
 `Revenues for the Trump Organization fell nearly 38 percent in 2020 as the coronavirus took a steep toll on the hospitality industry. Mar-a-Lago was a bright spot.`\
