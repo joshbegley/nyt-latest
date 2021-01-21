@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/21/nyregion/giuliani-trump-law-license.html?searchRe
 
 **Glastonbury Canceled Again, Casting Doubt Over Europe’s Music Festivals**\
 `Britain’s biggest music event won’t taken place for a second year in a row. The decision has sent shock waves across Europe, where festivals have already been asking politicians for help.`\
-https://nytimes.com/2021/01/21/arts/glastonbury-canceled.html?searchResultPosition=2
+https://nytimes.com/2021/01/21/arts/music/glastonbury-canceled.html?searchResultPosition=2
 
 **‘It Will Be Soon,’ Pelosi Says of Trump Impeachment Trial**\
 `Speaker Nancy Pelosi said the impeachment charge against former President Donald J. Trump would be sent to the Senate for trial “soon,” but didn’t pinpoint a date.`\
