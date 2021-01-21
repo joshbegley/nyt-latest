@@ -1,14 +1,14 @@
+**Man Accused of Beating Officer With Hockey Stick in Capitol Riot Is Arrested**\
+`The arrest is the latest in a growing number of prosecutions against people accused of attacking law enforcement officials in the storming of the Capitol.`\
+https://nytimes.com/2021/01/21/us/politics/arrests-capitol-riot.html?searchResultPosition=1
+
 **Tracking the Coronavirus in Winnebago County, Wisconsin**\
 `See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Winnebago County, Wisconsin`\
-https://nytimes.com/interactive/2021/us/winnebago-wisconsin-covid-cases.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/us/winnebago-wisconsin-covid-cases.html?searchResultPosition=2
 
 **Tracking the Coronavirus in Rusk County, Wisconsin**\
 `See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Rusk County, Wisconsin`\
-https://nytimes.com/interactive/2021/us/rusk-wisconsin-covid-cases.html?searchResultPosition=2
-
-**Man Accused of Beating Officer With Hockey Stick in Capitol Riot Is Arrested**\
-`The arrest is the latest in a growing number of prosecutions against people accused of attacking law enforcement officials in the storming of the Capitol.`\
-https://nytimes.com/2021/01/21/us/politics/arrests-capitol-riot.html?searchResultPosition=3
+https://nytimes.com/interactive/2021/us/rusk-wisconsin-covid-cases.html?searchResultPosition=3
 
 **Tracking the Coronavirus in Sheridan County, Wyoming**\
 `See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Sheridan County, Wyoming`\
