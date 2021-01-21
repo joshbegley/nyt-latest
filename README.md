@@ -1,40 +1,40 @@
-**Tracking the Coronavirus in Franklin County, Florida**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Franklin County, Florida`\
-https://nytimes.com/interactive/2021/us/franklin-florida-covid-cases.html?searchResultPosition=1
+**Tracking the Coronavirus in Montmorency County, Michigan**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Montmorency County, Michigan`\
+https://nytimes.com/interactive/2021/us/montmorency-michigan-covid-cases.html?searchResultPosition=1
 
-**Tracking the Coronavirus in Kent County, Delaware**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Dover area`\
-https://nytimes.com/interactive/2021/us/kent-delaware-covid-cases.html?searchResultPosition=2
+**Tracking the Coronavirus in Lake of the Woods County, Minnesota**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Lake of the Woods County, Minnesota`\
+https://nytimes.com/interactive/2021/us/lake-of-the-woods-minnesota-covid-cases.html?searchResultPosition=2
 
-**Tracking the Coronavirus in Hillsborough County, Florida**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Tampa area`\
-https://nytimes.com/interactive/2021/us/hillsborough-florida-covid-cases.html?searchResultPosition=3
+**Tracking the Coronavirus in Marquette County, Michigan**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Marquette area`\
+https://nytimes.com/interactive/2021/us/marquette-michigan-covid-cases.html?searchResultPosition=3
 
-**Tracking the Coronavirus in Jefferson County, Florida**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Jefferson County, Florida`\
-https://nytimes.com/interactive/2021/us/jefferson-florida-covid-cases.html?searchResultPosition=4
+**Tracking the Coronavirus in Goodhue County, Minnesota**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Red Wing area`\
+https://nytimes.com/interactive/2021/us/goodhue-minnesota-covid-cases.html?searchResultPosition=4
 
-**Tracking the Coronavirus in Columbia County, Florida**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Lake City area`\
-https://nytimes.com/interactive/2021/us/columbia-florida-covid-cases.html?searchResultPosition=5
+**Tracking the Coronavirus in Oakland County, Michigan**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Troy area`\
+https://nytimes.com/interactive/2021/us/oakland-michigan-covid-cases.html?searchResultPosition=5
 
-**Tracking the Coronavirus in Alachua County, Florida**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Gainesville area`\
-https://nytimes.com/interactive/2021/us/alachua-florida-covid-cases.html?searchResultPosition=6
+**Tracking the Coronavirus in Koochiching County, Minnesota**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Koochiching County, Minnesota`\
+https://nytimes.com/interactive/2021/us/koochiching-minnesota-covid-cases.html?searchResultPosition=6
 
-**Tracking the Coronavirus in Calhoun County, Florida**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Calhoun County, Florida`\
-https://nytimes.com/interactive/2021/us/calhoun-florida-covid-cases.html?searchResultPosition=7
+**Tracking the Coronavirus in Itasca County, Minnesota**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Grand Rapids area`\
+https://nytimes.com/interactive/2021/us/itasca-minnesota-covid-cases.html?searchResultPosition=7
 
-**Tracking the Coronavirus in Liberty County, Florida**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Liberty County, Florida`\
-https://nytimes.com/interactive/2021/us/liberty-florida-covid-cases.html?searchResultPosition=8
+**Tracking the Coronavirus in St. Clair County, Michigan**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in St. Clair County, Michigan`\
+https://nytimes.com/interactive/2021/us/st-clair-michigan-covid-cases.html?searchResultPosition=8
 
-**Tracking the Coronavirus in Broward County, Florida**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Fort Lauderdale area`\
-https://nytimes.com/interactive/2021/us/broward-florida-covid-cases.html?searchResultPosition=9
+**Tracking the Coronavirus in Saginaw County, Michigan**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Saginaw area`\
+https://nytimes.com/interactive/2021/us/saginaw-michigan-covid-cases.html?searchResultPosition=9
 
-**Tracking the Coronavirus in Leon County, Florida**\
-`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in the Tallahassee area`\
-https://nytimes.com/interactive/2021/us/leon-florida-covid-cases.html?searchResultPosition=10
+**Tracking the Coronavirus in Clearwater County, Minnesota**\
+`See the latest charts and maps of coronavirus cases, deaths and hospitalizations in Clearwater County, Minnesota`\
+https://nytimes.com/interactive/2021/us/clearwater-minnesota-covid-cases.html?searchResultPosition=10
 
