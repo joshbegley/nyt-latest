@@ -30,7 +30,7 @@ https://nytimes.com/2021/01/21/learning/word-quiz-captious.html?searchResultPosi
 `With a trip to the Super Bowl on the line, Tom Brady leads Tampa Bay into Green Bay while Josh Allen and the Bills take on Patrick Mahomes and the Chiefs.`\
 https://nytimes.com/2021/01/21/sports/football/nfl-playoff-picks-conference-championships.html?searchResultPosition=8
 
-**Biden restores ties with the World Health Organization cut by Trump.**\
+**Biden restores ties with the World Health Organization that were cut by Trump.**\
 `By Christina Morales`\
 https://nytimes.com/2021/01/20/world/biden-restores-who-ties.html?searchResultPosition=9
 
