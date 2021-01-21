@@ -2,7 +2,7 @@
 `Two shows introduce a forgotten innovator who fused modernism, folk art and documentary to portray his beloved New York scene.`\
 https://nytimes.com/2021/01/21/arts/design/wood-gaylor-hechscher-art.html?searchResultPosition=1
 
-**A Close Look at Who Attended Biden’s Inauguration**\
+**Who Attended Biden’s Inauguration?**\
 `An annotated photo of the pared-down ceremony to swear in President Biden and Vice President Kamala Harris at the Capitol.`\
 https://nytimes.com/interactive/2021/01/21/us/politics/biden-inauguration-attendees.html?searchResultPosition=2
 
