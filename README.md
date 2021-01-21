@@ -1,5 +1,5 @@
 **California on Inauguration Day**\
-`Thursday: The Golden State was well-represented on Inauguration Day. Here’s what it meant.`\
+`Thursday: The Golden State was well represented on Inauguration Day. Here’s what it meant.`\
 https://nytimes.com/2021/01/21/us/biden-executive-orders.html?searchResultPosition=1
 
 **‘Going From Week to Week,’ Cuomo Warns of Vaccine Supply**\
