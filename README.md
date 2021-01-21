@@ -26,8 +26,8 @@ https://nytimes.com/2021/01/21/nyregion/port-authority-bus-terminal.html?searchR
 `In his remarks before the Senate Committee on Commerce, Science and Transportation, Pete Buttigieg focused on a broad vision for his tenure if confirmed as transportation secretary.`\
 https://nytimes.com/video/us/politics/100000007563813/pete-buttigieg-transportation-department-confirmation-hearing.html?searchResultPosition=7
 
-**Calls Intensify to Censure Giuliani for His Work as Trump’s Lawyer**\
-`Two dozen prominent lawyers, including judges and former federal prosecutors, signed a formal complaint seeking the suspension of Rudolph W. Giuliani’s law license.`\
+**Prominent Lawyers Want Giuliani’s Law License Suspended Over Trump Work**\
+`The move by dozens of lawyers, including judges and former federal prosecutors, was the latest in a series of calls to censure him.`\
 https://nytimes.com/2021/01/21/nyregion/giuliani-trump-law-license.html?searchResultPosition=8
 
 **Glastonbury Canceled Again, Casting Doubt Over Europe’s Music Festivals**\
