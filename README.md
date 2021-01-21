@@ -19,7 +19,7 @@ https://nytimes.com/2021/01/20/us/politics/biden-congress.html?searchResultPosit
 https://nytimes.com/2021/01/20/us/biden-inauguration-photos.html?searchResultPosition=5
 
 **Watch Live: Tom Hanks Hosts ‘Celebrating America’**\
-`President Biden and Vice President Kamala Harris attend “Celebrating America,” a concert hosted by Tom Hanks in honor of the inauguration.`\
+`President Biden and Vice President Kamala Harris participate in “Celebrating America,” a concert hosted by Tom Hanks in honor of the inauguration.`\
 https://nytimes.com/video/us/politics/100000007561834/watch-live-biden-tom-hanks-celebrating-america-parade.html?searchResultPosition=6
 
 **Is Mask-Slipping the New Manspreading?**\
