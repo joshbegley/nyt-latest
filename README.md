@@ -11,8 +11,8 @@ https://nytimes.com/2021/01/21/us/lizzie-borden-museum.html?searchResultPosition
 https://nytimes.com/2021/01/21/us/monkey-whisperer-charged.html?searchResultPosition=3
 
 **Fauci tells the W.H.O. that the U.S. stands ready to work with it.**\
-`By Nick Cumming-Bruce and Sheryl Gay Stolberg`\
-https://nytimes.com/2021/01/21/world/fauci-tells-the-who-that-the-us-stands-ready-to-work-with-it.html?searchResultPosition=4
+`Dr. Anthony S. Fauci addressed the World Health Organization’s board, calling its leader a “dear friend” and pledging wide-ranging support, a day after President Biden moved to rejoin the agency.`\
+https://nytimes.com/2021/01/21/world/fauci-who-covid.html?searchResultPosition=4
 
 **Suicide Bombing in Crowded Baghdad Market Kills at Least 15**\
 `Such attacks, once common in the Iraqi capital, have become rarer in recent years as U.S.-backed Iraqi forces have largely defeated the Islamic State.`\
