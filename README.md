@@ -1,5 +1,5 @@
 **Watch Live: President Biden Delivers Coronavirus Response**\
-`In his first official full day in office, President Biden provide and update on his administration’s Covid-19 response.`\
+`In his first official full day in office, President Biden provides an update on his administration’s Covid-19 response.`\
 https://nytimes.com/video/us/politics/100000007563295/biden-covid-briefing-live-stream.html?searchResultPosition=1
 
 **In Court, Peter Nygard’s Lawyers Fail to Satisfy Judge’s Terms for Bail**\
