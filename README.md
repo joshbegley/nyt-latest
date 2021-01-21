@@ -1,40 +1,40 @@
-**In London’s Deserted Financial District, Police Discover a ‘Cannabis Factory’**\
-`After reports of a strong smell in the area, which is largely empty because of lockdown restrictions, investigators found more than 800 weed plants in a basement near the Bank of England.`\
-https://nytimes.com/2021/01/21/world/europe/cannabis-factory-city-london.html?searchResultPosition=1
+**‘Going From Week to Week,’ Cuomo Warns of Vaccine Supply**\
+`A limited supply of available vaccine doses has affected New York’s Covid-19 vaccination efforts, with Gov. Andrew M. Cuomo saying the state will temporarily run out of vaccine in the next few days.`\
+https://nytimes.com/video/us/politics/100000007563251/cuomo-vaccine-distribution-new-york.html?searchResultPosition=1
 
-**A Promising Star. A Gaggle of Suitors. A Wake of Vultures.**\
-`It did not take long for the performances of a 19-year-old in Ecuador to catch the eyes of Europe’s biggest clubs. In soccer’s cutthroat transfer market, they were not the only ones watching.`\
-https://nytimes.com/2021/01/21/sports/soccer/transfer-market-moises-caicedo.html?searchResultPosition=2
+**Homes for Sale in Brooklyn, Manhattan and Staten Island**\
+`This week’s properties are in Park Slope, the East Village and Park Slope.`\
+https://nytimes.com/2021/01/21/realestate/housing-market-nyc.html?searchResultPosition=2
 
-**‘The White Tiger’ Review: Don’t Call Him a Slumdog**\
-`Ramin Bahrani directs a barbed rags-to-riches tale of modern India.`\
-https://nytimes.com/2021/01/21/movies/the-white-tiger-review-.html?searchResultPosition=3
+**On the Market in New York City**\
+`This week’s properties are in Park Slope, the East Village and Park Slope.`\
+https://nytimes.com/slideshow/2021/01/21/realestate/on-the-market-in-new-york-city.html?searchResultPosition=3
 
-**How Wall Street Reflects the Economy Biden Inherits**\
-`Big banks are sending mixed signals.`\
-https://nytimes.com/2021/01/21/business/dealbook/wall-street-earnings-biden-economy.html?searchResultPosition=4
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are six-bedroom houses in Babylon, N.Y., and Edison, N.J.`\
+https://nytimes.com/2021/01/21/realestate/housing-market-near-nyc.html?searchResultPosition=4
 
-**Buttigieg Looks to Take Over Transportation Dept. at Crucial Juncture**\
-`His confirmation would cap a rise from mayor of South Bend, Ind., to becoming the first openly gay cabinet secretary to be confirmed by the Senate.`\
-https://nytimes.com/2021/01/21/us/politics/pete-buttigieg-transportation.html?searchResultPosition=5
+**Homes for Sale in the New York Region**\
+`This week’s properties are six-bedroom houses in Babylon, N.Y., and Edison, N.J.`\
+https://nytimes.com/slideshow/2021/01/21/realestate/homes-for-sale-in-the-new-york-region.html?searchResultPosition=5
 
-**Former Coach Sentenced to Over 10 Years in Prison for Raping Star Speedskater**\
-`Cho Jae-beom, who had been fired from South Korea’s national team, was accused of sexually assaulting a two-time Olympic gold medalist starting when she was 17.`\
-https://nytimes.com/2021/01/21/world/asia/south-korea-speed-skating-coach-rape.html?searchResultPosition=6
+**Moynihan Train Hall Becomes a Destination: ‘This Gives Us Hope’**\
+`Pandemic-weary visitors are finding uplift in the new station, with its soaring expanses of glass and light. “Perfect quarantine activity,” one says.`\
+https://nytimes.com/2021/01/21/arts/design/moynihan-train-hall.html?searchResultPosition=6
 
-**Biden Rolls Back the Trump Legacy**\
-`The new president aims to signal a return to normalcy: This is your morning tip sheet.`\
-https://nytimes.com/2021/01/21/us/politics/biden-trump-legacy.html?searchResultPosition=7
+**The T List: Five Things We Recommend This Week**\
+`Never-before-seen textiles by Rosie Lee Tompkins, a bed-and-breakfast in Mexico City — and more.`\
+https://nytimes.com/2021/01/21/t-magazine/albers-book-portable-coffee-maker.html?searchResultPosition=7
 
-**‘The Human Factor’ Review: In Peace Talks Trust Is Vital and Elusive**\
-`Negotiators recall their advances and missteps in a quest for an Israeli-Palestinian peace.`\
-https://nytimes.com/2021/01/21/movies/the-human-factor-review.html?searchResultPosition=8
+**Manhattan Lease Signings Are Booming. Is It Enough for a Recovery?**\
+`Looking back through a year of lease-signing data reveals the beginning of something. But what?`\
+https://nytimes.com/2021/01/21/realestate/manhattan-lease-signings-are-booming-is-it-enough-for-a-recovery.html?searchResultPosition=8
 
-**‘Identifying Features’ Review: Lost in Migration**\
-`In this confident drama, a mother searches for her son who went missing while trying to migrate from Mexico to the United States.`\
-https://nytimes.com/2021/01/21/movies/identifying-features-review.html?searchResultPosition=9
+**What Can I Do to End My Family’s Wedding Wars?**\
+`My dad is mad that my half sister eloped, and it’s hurting all of us.`\
+https://nytimes.com/2021/01/21/style/wedding-elopement-social-qs.html?searchResultPosition=9
 
-**‘Atlantis’ Review: A Bleak Apocalypse Love Story**\
-`Ukraine’s official Oscar entry, the movie depicts an all-too-convincing dystopia, with no fancy gadgets or cars.`\
-https://nytimes.com/2021/01/21/movies/atlantis-review-a-bleak-apocalypse-love-story.html?searchResultPosition=10
+**What’s in Our Queue? ‘Best Rhymers of All Time’**\
+`I'm a deputy editor and an art director on the Culture desk at The Times. Here are five things I've been telling friends about lately.`\
+https://nytimes.com/interactive/2021/01/21/arts/editors-recommendations-mfdoom.html?searchResultPosition=10
 
