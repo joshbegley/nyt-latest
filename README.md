@@ -14,27 +14,27 @@ https://nytimes.com/2021/01/22/business/media/nyt-opinion-editor-kathleen-kingsb
 `The late-night hosts celebrated the inauguration of President Biden and Vice President Kamala Harris.`\
 https://nytimes.com/interactive/2021/01/22/arts/television/best-of-late-night.html?searchResultPosition=4
 
+**Murkowski rules out switching parties to join Democrats, saying, ‘I can’t be somebody that I’m not.’**\
+`By Emily Cochrane`\
+https://nytimes.com/2021/01/22/us/murkowski-democrat-republican.html?searchResultPosition=5
+
 **Billie Eilish and Rosalía Join Eccentric Forces, and 12 More New Songs**\
 `Hear tracks by Weezer, Camilo, Deb Never and others.`\
-https://nytimes.com/2021/01/22/arts/music/playlist-billie-eilish-rosalia.html?searchResultPosition=5
+https://nytimes.com/2021/01/22/arts/music/playlist-billie-eilish-rosalia.html?searchResultPosition=6
 
 **Senate Confirms Austin in Historic Vote, Installing First Black Defense Secretary**\
 `The former general was approved overwhelmingly, after Congress granted him a waiver from a law that bars anyone who has been retired from active-duty military service for fewer than seven years from leading the Pentagon.`\
-https://nytimes.com/2021/01/22/us/politics/lloyd-austin-defense-secretary.html?searchResultPosition=6
+https://nytimes.com/2021/01/22/us/politics/lloyd-austin-defense-secretary.html?searchResultPosition=7
 
 **Smugglers Get Long Prison Terms in U.K. for Their Roles in Killing 39 Migrants**\
 `The migrants had paid thousands of dollars to try to reach a better life abroad. Instead, they suffered an excruciating death, suffocating in an airtight container.`\
-https://nytimes.com/2021/01/22/world/europe/smugglers-prison-container-migrants.html?searchResultPosition=7
+https://nytimes.com/2021/01/22/world/europe/smugglers-prison-container-migrants.html?searchResultPosition=8
 
 **Three Books Offer New Ways to Think About Environmental Disaster**\
 `A study of war crimes against nature, a guide for surviving climate change and a call for direct action against fossil fuels.`\
-https://nytimes.com/2021/01/22/books/review/scorched-earth-emmanuel-kreike-how-to-prepare-for-climate-change-david-pogue-how-to-blow-up-a-pipeline-andreas-malm.html?searchResultPosition=8
+https://nytimes.com/2021/01/22/books/review/scorched-earth-emmanuel-kreike-how-to-prepare-for-climate-change-david-pogue-how-to-blow-up-a-pipeline-andreas-malm.html?searchResultPosition=9
 
 **Justin Trudeau to Get Biden’s First Official Call to a Foreign Leader**\
 `Canadians welcome a renewed relationship with the United States after tolerating four years of insults and threats from the Trump administration.`\
-https://nytimes.com/2021/01/22/world/canada/biden-canada.html?searchResultPosition=9
-
-**‘Everybody Loved Blake, Except His Wives. Sometimes, We Hated Him.’**\
-`Cate Quinn’s debut mystery, “Black Widows,” investigates three sister-wives who all had good reasons to wish their controlling husband dead.`\
-https://nytimes.com/2021/01/22/books/review/crime-fiction-anders-roslund.html?searchResultPosition=10
+https://nytimes.com/2021/01/22/world/canada/biden-canada.html?searchResultPosition=10
 
