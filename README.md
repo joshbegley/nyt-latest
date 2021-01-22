@@ -26,9 +26,9 @@ https://nytimes.com/video/us/politics/100000007565626/general-austin-defense-sec
 `As the focus turns to vaccinations, the virus continues to spread, leaving health experts to wonder if officials will mull new steps and restrictions.`\
 https://nytimes.com/2021/01/22/nyregion/new-york-city-coronavirus.html?searchResultPosition=7
 
-**Coronavirus Variant May Have Higher Death Rate, Johnson Says**\
-`British Prime Minister Boris Johnson warned that the new variant of the coronavirus, first detected in England, may be associated with a higher degree of mortality.`\
-https://nytimes.com/video/world/europe/100000007565905/uk-coronavirus-variant-mortality.html?searchResultPosition=8
+**Johnson Hints Variant May Be More Deadly, Though It’s Too Soon to Tell**\
+`Prime Minister Boris Johnson of Britain’s scientific advisers urged restraint in interpreting preliminary evidence about the variant.`\
+https://nytimes.com/video/embedded/world/europe/100000007565905/uk-coronavirus-variant-mortality.html?searchResultPosition=8
 
 **Tesla’s U.S. sales slowed in 22 states in 2020, partly because of the pandemic.**\
 `The pandemic dampened sales for all automakers in the spring and summer, and Tesla’s plant in Fremont, Calif., was idled from late March until the middle of May.`\
