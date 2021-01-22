@@ -1,5 +1,5 @@
 **The Bond film ‘No Time to Die’ is delayed again as the virus stymies Hollywood.**\
-`By Brooks Barnes`\
+`The postponement until Oct. 8 is the surest sign yet that Hollywood does not believe the masses will be ready to return to movie theaters anytime soon. `\
 https://nytimes.com/2021/01/22/business/the-bond-film-no-time-to-die-is-delayed-again-as-the-virus-stymies-hollywood.html?searchResultPosition=1
 
 **When Will Taxes Go Up?**\
