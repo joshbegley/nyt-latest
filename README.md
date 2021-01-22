@@ -18,7 +18,7 @@ https://nytimes.com/2021/01/21/us/politics/butch-bowers-donald-trump-impeachment
 `Julie Payette was Canada’s official head of state, a high-profile but largely ceremonial role. She was accused of publicly humiliating employees.`\
 https://nytimes.com/2021/01/21/world/canada/governor-general-julie-payette-resigns.html?searchResultPosition=5
 
-**What Does Biden Mean by ‘Unity’? Republicans Want More Than Words**\
+**In Biden’s Washington, Democrats and Republicans Are Not United on ‘Unity’**\
 `The new president seeks bipartisanship, but he is caught between Republicans who want tangible concessions and Democrats who are in no mood to compromise.`\
 https://nytimes.com/2021/01/21/us/politics/biden-unity-republicans.html?searchResultPosition=6
 
