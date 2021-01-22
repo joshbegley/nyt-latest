@@ -1,40 +1,40 @@
-**Weekly Health Quiz: Covid Variants, Moderate Exercise and Coffee**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2021/01/22/well/live/22healthquiz-01222021.html?searchResultPosition=1
+**Warm Hearts at an Icy Elopement**\
+`Sarah Bishop and Kacey Harris, who live in San Antonio, opted for a wintry wedding in the Rocky Mountains.`\
+https://nytimes.com/2021/01/22/style/warm-hearts-at-an-icy-elopement.html?searchResultPosition=1
 
-**New in Paperback: ‘Where Reasons End’ and ‘Why We Can’t Sleep’**\
-`Six new paperbacks to check out this week.`\
-https://nytimes.com/2021/01/22/books/review/new-paperbacks.html?searchResultPosition=2
+**Two Artists, Continents Apart, and a Shared Language of Struggle**\
+`The Australian painter Gordon Hookey and the Los Angeles artist Gary Simmons found they had many things in common. Sports is just one of them.`\
+https://nytimes.com/2021/01/22/arts/design/Aboriginal-artist-gallery-racism.html?searchResultPosition=2
 
-**Judge John Hodgman on the Bill Hader ‘Hater’**\
-`Can one sibling accuse another of hating an actor based on little evidence?`\
-https://nytimes.com/2021/01/22/magazine/judge-john-hodgman-on-the-bill-hader-hater.html?searchResultPosition=3
+**A Mentalist Who Reads Minds Over Zoom**\
+`Jason Suran performs magic tricks and other illusions for celebrities, downtown partygoers and other stay-at-home fans.`\
+https://nytimes.com/2021/01/22/style/jason-suran-mentalist-zoom.html?searchResultPosition=3
 
-**The News Quiz, Jan. 22, 2021**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2021/01/22/briefing/news-quiz-biden-inauguration-gorman.html?searchResultPosition=4
+**America’s Salad Bowl Becomes Fertile Ground for Covid-19**\
+`Arizona’s Yuma County, at the juncture of Mexico and California, has the most cases per capita of any metro area over the course of the pandemic.`\
+https://nytimes.com/2021/01/22/us/coronavirus-arizona-yuma-covid.html?searchResultPosition=4
 
-**An Australia With No Google? The Bitter Fight Behind a Drastic Threat**\
-`The big tech platforms are facing a challenge unlike any other as Australia moves to make them pay for news.`\
-https://nytimes.com/2021/01/22/business/australia-google-facebook-news-media.html?searchResultPosition=5
+**The Trump Accusers Are Hanging Out on Zoom**\
+`Seven members of this self-proclaimed ‘strange sorority’ watched President Biden’s inauguration together.`\
+https://nytimes.com/2021/01/22/style/trump-harassment-accusers-inauguration.html?searchResultPosition=5
 
-**Lesson of the Day: ‘13,000 School Districts, 13,000 Approaches to Teaching During Covid’**\
-`In this lesson, students will learn about how schools across the country have responded to teaching during the coronavirus pandemic. Then they will share their own observations about learning during the Covid-19 crisis.`\
-https://nytimes.com/2021/01/22/learning/lesson-of-the-day-13000-school-districts-13000-approaches-to-teaching-during-covid.html?searchResultPosition=6
+**N.Y. Ski Conditions: A Snowslide, Few Lift Tickets, Beer in the Parking Lot**\
+`‘At least we are freaking open,’ one resort owner said.`\
+https://nytimes.com/2021/01/22/nyregion/coronavirus-skiing-new-york.html?searchResultPosition=6
 
-**Big Eraser**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2021/01/22/learning/big-eraser.html?searchResultPosition=7
+**What Zoom Does to Campus Conflicts Over Israel and Free Speech**\
+`As battles over Israel and the Palestinian territories have migrated online, technology has scrambled the debate.`\
+https://nytimes.com/2021/01/22/nyregion/college-anti-semitism-bds.html?searchResultPosition=7
 
-**Late Night Weighs In on Biden’s First Day on the Job**\
-`It’s never easy, “especially when you’re the new manager and the last guy got called into H.R. for inappropriate workplace treasoning,” Stephen Colbert said.`\
-https://nytimes.com/2021/01/22/arts/television/late-night-biden-stephen-colbert.html?searchResultPosition=8
+**Biden Wants to Raise Taxes, Yet Many Trump Tax Cuts Are Here to Stay**\
+`While Democrats have vowed to repeal the former president’s signature 2017 law, his successor is more likely to tinker with it, given constraints.`\
+https://nytimes.com/2021/01/22/business/biden-trump-tax-law.html?searchResultPosition=8
 
-**Word + Quiz: lampoon**\
-`This word has appeared in 32 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/01/22/learning/word-quiz-lampoon.html?searchResultPosition=9
+**The Standing 7-Minute Workout**\
+`A gentler version of a popular workout keeps you moving while keeping your body off the floor.`\
+https://nytimes.com/2021/01/22/well/standing-7-minute-workout.html?searchResultPosition=9
 
-**Saying Goodbye to Melbourne’s Weird and Wonderful Taxidermy**\
-`Donald J. Trump is not the only one departing.`\
-https://nytimes.com/2021/01/22/world/australia/wild-sad-otter-melbourne-taxidermy.html?searchResultPosition=10
+**Corporate America Views Biden With Optimism and Skepticism**\
+`Big business broke with Republicans in the final days of the Trump administration. That doesn’t mean executives are fully ready to embrace President Biden.`\
+https://nytimes.com/2021/01/22/business/corporate-america-biden-administration.html?searchResultPosition=10
 
