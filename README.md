@@ -34,7 +34,7 @@ https://nytimes.com/2021/01/22/style/jason-suran-mentalist-zoom.html?searchResul
 `Arizona’s Yuma County, at the juncture of Mexico and California, has the most cases per capita of any metro area over the course of the pandemic.`\
 https://nytimes.com/2021/01/22/us/coronavirus-arizona-yuma-covid.html?searchResultPosition=9
 
-**N.Y. Ski Conditions: A Snowslide, Few Lift Tickets, Beer in the Parking Lot**\
-`‘At least we are freaking open,’ one resort owner said.`\
-https://nytimes.com/2021/01/22/nyregion/coronavirus-skiing-new-york.html?searchResultPosition=10
+**What Zoom Does to Campus Conflicts Over Israel and Free Speech**\
+`As battles over Israel and the Palestinian territories have migrated online, technology has scrambled the debate.`\
+https://nytimes.com/2021/01/22/nyregion/college-anti-semitism-bds.html?searchResultPosition=10
 
