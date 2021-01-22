@@ -7,7 +7,7 @@ https://nytimes.com/2021/01/22/podcasts/the-daily/joe-biden-covid-environment-im
 https://nytimes.com/2021/01/22/world/dave-chappelle-tests-positive-for-covid-19.html?searchResultPosition=2
 
 **Top Honor for a Tennis Player With Intolerant Views Draws Outrage**\
-`Margaret Court, an Australian record breaker known for her homophobic comments, is set to receive the nation’s highest public service award.`\
+`Margaret Court, an Australian record breaker known for her homophobic comments, is set to receive one of the nation’s highest public service award.`\
 https://nytimes.com/2021/01/22/world/australia/margaret-court-tennis-award.html?searchResultPosition=3
 
 **A Plan to Rebuild the Bus Terminal Everyone Loves to Hate**\
