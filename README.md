@@ -1,40 +1,40 @@
+**How Beijing Turned China’s Covid-19 Tragedy to Its Advantage**\
+`The Communist Party’s success in reclaiming the narrative has proved to the world its ability to rally the people to its side, no matter how stumbling its actions might be.`\
+https://nytimes.com/2021/01/22/business/china-covid-19-beijing.html?searchResultPosition=1
+
+**Voices From China’s Covid Crisis: ‘If I Survive This, What Will I Do?’**\
+`One year after China locked down Wuhan, six people describe how they found courage in adversity, calm amid grief, and meaning in chaos.`\
+https://nytimes.com/2021/01/22/world/asia/wuhan-coronavirus.html?searchResultPosition=2
+
+**Five Songs to Listen to Right Now**\
+`Check out five new and notable songs, including Lana Del Rey’s unsettling latest single, a Taylor Swift bonus track and a salvo in hip-hop’s gender war.`\
+https://nytimes.com/interactive/2021/01/22/arts/music/music-recommendations-lana-del-rey.html?searchResultPosition=3
+
+**The Future of Twitter**\
+`From what’s happening to what’s on the minds of millions, the pulse of the world lives on Twitter. See how Salesforce empowers Twitter to help users remain connected and keep meaningful conversations happening.`\
+https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007564511/the-future-of-twitter.html?searchResultPosition=4
+
+**Does a Red Tie Immediately Scream ‘Donald Trump’ Now?**\
+`Vanessa Friedman, fashion director of The New York Times, takes reader questions.`\
+https://nytimes.com/2021/01/22/style/red-tie-trump.html?searchResultPosition=5
+
+**A Year Later, the First Post-Pandemic City**\
+`A year ago, Wuhan offered a warning about the coronavirus. Now, it heralds a world where relief at the recovery  conceals the emotional aftershocks.`\
+https://nytimes.com/2021/01/22/world/asia/wuhan-china-coronavirus.html?searchResultPosition=6
+
 **Portraits of Strength**\
 `In this work, rendered with ink and fabric, Pierre Mukeba depicts women at various stages of life.`\
-https://nytimes.com/2021/01/22/t-magazine/pierre-mukeba-art.html?searchResultPosition=1
+https://nytimes.com/2021/01/22/t-magazine/pierre-mukeba-art.html?searchResultPosition=7
 
 **Chairwoman of San Francisco Art School Facing Budget Issues Resigns**\
 `The leader of the board at the 150-year-old San Francisco Art Institute said she is confident the college has a plan to address its financial problems, but critics have suggested otherwise.`\
-https://nytimes.com/2021/01/22/arts/design/san-francisco-art-institute-pam-rorke-levy.html?searchResultPosition=2
+https://nytimes.com/2021/01/22/arts/design/san-francisco-art-institute-pam-rorke-levy.html?searchResultPosition=8
 
 **Biden Calls Coronavirus Aid an ‘Economic Imperative’**\
 `President Biden signed two executive orders Friday, directing more federal aid to Americans struggling due to the coronavirus pandemic and laying the groundwork to institute a $15 minimum wage for federal employees.`\
-https://nytimes.com/video/us/politics/100000007566107/biden-virus-economic-aid-minimum-wage.html?searchResultPosition=3
+https://nytimes.com/video/us/politics/100000007566107/biden-virus-economic-aid-minimum-wage.html?searchResultPosition=9
 
 **Janet Yellen Is Unanimously Approved by Senate Committee**\
 `On Friday, Janet Yellen’s nomination as Treasury secretary was approved unanimously by the Senate Finance Committee. It will head for final vote by the full Senate.`\
-https://nytimes.com/video/us/politics/100000007566382/janet-yellen-senate-committee-approval.html?searchResultPosition=4
-
-**Love Letter: The Perfect Pandemic Pair**\
-`Plus: A rocky road to a wedding on ice.`\
-https://nytimes.com/2021/01/22/style/love-letter-the-perfect-pandemic-pair.html?searchResultPosition=5
-
-**The Toll of Fried Foods on Heart Health**\
-`Eating fried foods increased the risk of heart disease, stroke, heart failure and premature death.`\
-https://nytimes.com/2021/01/22/well/eat/the-toll-of-fried-foods-on-heart-health.html?searchResultPosition=6
-
-**Retirement in Florida? Tom Brady’s Next Move Might Be to the Super Bowl**\
-`The inglorious interception at the end of his career in New England seems a distant memory as he leads the Buccaneers into the N.F.C. championship game on Sunday.`\
-https://nytimes.com/2021/01/22/sports/football/tom-brady-bucs-packers.html?searchResultPosition=7
-
-**The Bills Rack Up Wins. Folding Tables Get Wrecked.**\
-`Though the team prohibits it, Bills fans are carrying on a new table-slamming tradition deep into the playoffs.`\
-https://nytimes.com/2021/01/22/sports/football/buffalo-bills-fans-table-slam.html?searchResultPosition=8
-
-**Hank Aaron Was More Than His Stats, but His Stats Were Outrageous**\
-`Known for home runs and longevity, Aaron is the career leader in R.B.I. and total bases. He is also third on the career hits list.`\
-https://nytimes.com/interactive/2021/01/22/sports/baseball/hank-aaron-stats-card.html?searchResultPosition=9
-
-**Ticket Brokers Agree to Pay Millions in Scalping Settlements**\
-`The settlements are the first enforcement actions brought under the Better Online Ticket Sales Act, which was designed to prevent brokers from buying large numbers of tickets.`\
-https://nytimes.com/2021/01/22/arts/music/ticket-scalping-bots.html?searchResultPosition=10
+https://nytimes.com/video/us/politics/100000007566382/janet-yellen-senate-committee-approval.html?searchResultPosition=10
 
