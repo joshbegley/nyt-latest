@@ -34,7 +34,7 @@ https://nytimes.com/2021/01/21/us/politics/trump-impeachment-trial-mcconnell-sen
 `Begun nearly a decade ago, Loon was one of the company’s high-profile, cutting-edge efforts. But it was difficult to turn into a business.`\
 https://nytimes.com/2021/01/21/technology/loon-google-hot-air-balloons.html?searchResultPosition=9
 
-**Forced to vacate the Capitol, National Guard soldiers are now sleeping in a parking garage.**\
+**Lawmakers seek to return National Guard soldiers to the Capitol after they were relocated to sleep in a parking garage.**\
 `By John Ismay`\
-https://nytimes.com/2021/01/21/us/politics/forced-to-vacate-the-capitol-national-guard-soldiers-are-now-sleeping-in-a-parking-garage.html?searchResultPosition=10
+https://nytimes.com/2021/01/21/us/politics/lawmakers-seek-to-return-national-guard-soldiers-to-the-capitol-after-they-were-relocated-to-sleep-in-a-parking-garage.html?searchResultPosition=10
 
