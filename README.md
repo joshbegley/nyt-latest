@@ -2,7 +2,7 @@
 `The Croatian-born actress played Ambassador Delenn on the science fiction TV series “Babylon 5” throughout its five seasons and in two movies.`\
 https://nytimes.com/2021/01/22/arts/television/mira-furlan-dead.html?searchResultPosition=1
 
-**White House orders intelligence assessment of domestic violent extremism.**\
+**White House orders intelligence agencies to look at violent extremism in the U.S.**\
 `By Julian E. Barnes`\
 https://nytimes.com/2021/01/22/us/politics/biden-intelligence-assessment-domestic-extremism.html?searchResultPosition=2
 
