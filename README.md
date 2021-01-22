@@ -26,7 +26,7 @@ https://nytimes.com/2021/01/22/theater/bob-avian-dead.html?searchResultPosition=
 `His crossover appeal landed him on the charts often in the 1950s and ’60s, but a violent incident in 1967 derailed his career.`\
 https://nytimes.com/2021/01/22/arts/music/jimmie-rodgers-dead.html?searchResultPosition=7
 
-**NBC Sports Network Will Shut Down in Bid to Bolster Peacock Streaming Service**\
+**NBC Sports Network Will Shut Down to Bolster Peacock Streaming Service**\
 `NBCSN was the No. 2 sports channel on cable last year, but coverage of the N.H.L., the English Premier League and NASCAR is now moving to Peacock and the USA Network.`\
 https://nytimes.com/2021/01/22/sports/nbcsn-shutting-down.html?searchResultPosition=8
 
