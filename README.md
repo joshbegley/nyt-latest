@@ -30,11 +30,11 @@ https://nytimes.com/2021/01/21/us/politics/trump-impeachment-trial-mcconnell-sen
 `Begun nearly a decade ago, Loon was one of the company’s high-profile, cutting-edge efforts. But it was difficult to turn into a business.`\
 https://nytimes.com/2021/01/21/technology/loon-google-hot-air-balloons.html?searchResultPosition=8
 
+**Forced to vacate the Capitol, National Guard soldiers are now sleeping in a parking garage.**\
+`By John Ismay`\
+https://nytimes.com/2021/01/21/us/politics/forced-to-vacate-the-capitol-national-guard-soldiers-are-now-sleeping-in-a-parking-garage.html?searchResultPosition=9
+
 **For the impeachment trial, Trump settles on a South Carolina lawyer arranged through Lindsey Graham.**\
 `By Maggie Haberman`\
-https://nytimes.com/2021/01/21/us/politics/butch-bowers-donald-trump-impeachment.html?searchResultPosition=9
-
-**Canada’s Governor General Resigns Amid Reports of a Toxic Workplace**\
-`Julie Payette was Canada’s official head of state, a high-profile but largely ceremonial role. She was accused of publicly humiliating employees.`\
-https://nytimes.com/2021/01/21/world/canada/governor-general-julie-payette-resigns.html?searchResultPosition=10
+https://nytimes.com/2021/01/21/us/politics/butch-bowers-donald-trump-impeachment.html?searchResultPosition=10
 
