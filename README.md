@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/22/sports/baseball/hank-aaron-dead.html?searchResult
 https://nytimes.com/2021/01/22/world/asia/conservator-textiles-atrocities.html?searchResultPosition=3
 
 **Lloyd Austin is confirmed, becoming the first Black defense secretary in U.S. history.**\
-`In a 93-2 vote, Senators helped President Biden fill a critical national security positionand elevated the first Black Pentagon chief.`\
+`In a 93-2 vote, Senators helped President Biden fill a critical national security position and elevated the first Black Pentagon chief.`\
 https://nytimes.com/2021/01/22/us/lloyd-austin-confirmed.html?searchResultPosition=4
 
 **Kremlin Welcomes Biden’s Offer to Extend Nuclear Treaty**\
