@@ -8,7 +8,7 @@ https://nytimes.com/2021/01/21/nyregion/kevin-gavin-arrested-brooklyn.html?searc
 
 **Two Masks Are the New Masks**\
 `Double-masking is a sensible and easy way to lower your risk when you have to spend more time around others — in a taxi, on a train or plane, or at an inauguration.`\
-https://nytimes.com/2021/01/21/well/live/double-masking.html?searchResultPosition=3
+https://nytimes.com/2021/01/21/well/live/double-masking-covid.html?searchResultPosition=3
 
 **Pentagon Official Approves Guantánamo Trial of 3 Men for Indonesia Bombings**\
 `The case was dormant throughout the Trump administration, and then a military official suddenly approved it as the first new case at Guantánamo since 2014.`\
