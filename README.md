@@ -36,5 +36,5 @@ https://nytimes.com/2021/01/22/arts/television/mira-furlan-dead.html?searchResul
 
 **New York State will temporarily run out of vaccine doses by the end of the day, Cuomo says.**\
 `By Juliana Kim`\
-https://nytimes.com/2021/01/22/world/new-york-state-will-temporarily-run-out-of-vaccine-doses-by-the-end-of-the-day-cuomo-says.html?searchResultPosition=10
+https://nytimes.com/2021/01/22/world/new-york-runs-out-of-vaccine-doses.html?searchResultPosition=10
 
