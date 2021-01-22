@@ -1,5 +1,5 @@
 **Lloyd Austin is confirmed, becoming the first Black defense secretary in U.S. history.**\
-`By Catie Edmondson`\
+`In a 93-2 vote, Senators helped President Biden fill a critical national security positionand elevated the first Black Pentagon chief.`\
 https://nytimes.com/2021/01/22/us/lloyd-austin-confirmed.html?searchResultPosition=1
 
 **Kremlin Welcomes Biden’s Offer to Extend Nuclear Treaty**\
