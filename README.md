@@ -2,7 +2,7 @@
 `Large swaths of the United States still refuse to follow simple advice from experts.`\
 https://nytimes.com/2021/01/22/us/coronavirus-today.html?searchResultPosition=1
 
-**Sharon Begley, a Top Science Journalist, Dies at 64**\
+**Sharon Begley, a Top Science Journalist, Is Dead at 64**\
 `Long at Newsweek, she was regarded as one of her generation’s pre-eminent science writers. An “Enlightenment-era figure,” Jon Meacham said.`\
 https://nytimes.com/2021/01/22/science/sharon-begley-dead.html?searchResultPosition=2
 
