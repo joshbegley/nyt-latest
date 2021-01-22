@@ -10,7 +10,7 @@ https://nytimes.com/2021/01/21/crosswords/daily-puzzle-2021-01-22.html?searchRes
 `After the Trump White House’s undisguised hostility toward reporters, President Biden’s press secretary promised to “share the truth, even when it’s hard to hear.”`\
 https://nytimes.com/2021/01/21/us/politics/psaki-white-house-briefing-room.html?searchResultPosition=3
 
-**McConnell Seeks Impeachment Trial Delay as Senate Dysfunction Reigns**\
+**McConnell Seeks Impeachment Trial Delay and Slows Senate Rules**\
 `The Republican leader’s call to delay former President Donald J. Trump’s trial left the timetable uncertain as party leaders wrangled over the basics of a functioning Senate.`\
 https://nytimes.com/2021/01/21/us/politics/trump-impeachment-trial-mcconnell-senate.html?searchResultPosition=4
 
