@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/22/learning/word-quiz-lampoon.html?searchResultPosition=1
 
 **Saying Goodbye to Melbourne’s Weird and Wonderful Taxidermy**\
-`Donald J. Trump is not the only one departing`\
+`Donald J. Trump is not the only one departing.`\
 https://nytimes.com/2021/01/22/world/australia/wild-sad-otter-melbourne-taxidermy.html?searchResultPosition=2
 
 **My Unlikely Pandemic Dream Partner**\
