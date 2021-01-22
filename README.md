@@ -18,7 +18,7 @@ https://nytimes.com/2021/01/22/business/media/adam-aron-movie-theaters-amc.html?
 `Jen Psaki, the White House press secretary, will address the latest developments in the Biden administration.`\
 https://nytimes.com/video/us/politics/100000007565692/white-house-press-secretary-update.html?searchResultPosition=5
 
-**State of the Virus: Cases Begin to Drop**\
+**The State of the Virus: Cases Begin to Drop**\
 `A look at this week’s news from the team tracking the coronavirus.`\
 https://nytimes.com/interactive/2021/01/22/us/virus-this-week.html?searchResultPosition=6
 
