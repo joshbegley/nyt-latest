@@ -2,7 +2,7 @@
 `Eating fried foods increased the risk of heart disease, stroke, heart failure and premature death.`\
 https://nytimes.com/2021/01/22/well/eat/the-toll-of-fried-foods-on-heart-health.html?searchResultPosition=1
 
-**Retirement in Florida? Tom Brady’s Next Move Might Be to the Super Bowl.**\
+**Retirement in Florida? Tom Brady’s Next Move Might Be to the Super Bowl**\
 `The inglorious interception at the end of his career in New England seems a distant memory as he leads the Buccaneers into the N.F.C. championship game on Sunday.`\
 https://nytimes.com/2021/01/22/sports/football/tom-brady-bucs-packers.html?searchResultPosition=2
 
