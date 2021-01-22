@@ -1,4 +1,4 @@
-**State of the Virus: Signs of a Hopeful Decline**\
+**State of the Virus: Cases Begin to Drop**\
 `A look at this week’s news from the team tracking the coronavirus.`\
 https://nytimes.com/interactive/2021/01/22/us/virus-this-week.html?searchResultPosition=1
 
