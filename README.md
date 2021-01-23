@@ -1,5 +1,5 @@
 **How Newsmakers and News Hosts Are Remembering Larry King**\
-`CNN colleagues like Wolf Blitzer and Christiane Amanpour were joined by celebrities including Bill Clinton, Oprah Winfrey, Magic Johnson and Celine Dion in mourning the longtime broadcaster.`\
+`CNN colleagues like Wolf Blitzer and Christiane Amanpour were joined by celebrities including Oprah Winfrey, Bill Clinton, Magic Johnson and Celine Dion in mourning the longtime broadcaster.`\
 https://nytimes.com/2021/01/23/business/media/larry-king-reactions.html?searchResultPosition=1
 
 **A Final Interview With Hank Aaron: ‘I Recognized That I Had a Gift’**\
