@@ -23,7 +23,7 @@ https://nytimes.com/2021/01/23/sports/ufc-257-mcgregor-poirier.html?searchResult
 https://nytimes.com/2021/01/22/todayspaper/quotation-of-the-day-uk-variant-may-be-deadlier-johnson-warns.html?searchResultPosition=6
 
 **Hong Kong locks down a neighborhood for the first time since the pandemic began.**\
-`By Mike Ives`\
+`By Mike Ives and Cao Li`\
 https://nytimes.com/2021/01/22/world/hongkong-covid-lockdown.html?searchResultPosition=7
 
 **Pester Playfully**\
