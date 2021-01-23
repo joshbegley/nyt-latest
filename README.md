@@ -22,17 +22,17 @@ https://nytimes.com/2021/01/23/science/six-stars-eclipses.html?searchResultPosit
 `The slugging outfielder was a rock of consistency for 23 seasons. He was a superstar unlike any before him — or any since.`\
 https://nytimes.com/2021/01/23/sports/baseball/hank-aaron-death-baseball-photos.html?searchResultPosition=6
 
+**2 Years After Legalizing Cannabis, Has Canada Kept Its Promises?**\
+`Legal pot has made Canadian justice a little fairer, with “heavily racialized” arrests for possession mostly ending. But vows on amnesty, illicit sales and Indigenous inclusion are works in progress.`\
+https://nytimes.com/2021/01/23/world/canada/marijuana-legalization-promises-made.html?searchResultPosition=7
+
 **If Poor Countries Go Unvaccinated, a Study Says, Rich Ones Will Pay**\
 `A failure to distribute the Covid-19 vaccine in poor nations will worsen economic damage, with half the costs borne by wealthy countries, new research shows.`\
-https://nytimes.com/2021/01/23/business/coronavirus-vaccines-global-economy.html?searchResultPosition=7
+https://nytimes.com/2021/01/23/business/coronavirus-vaccines-global-economy.html?searchResultPosition=8
 
 **In Crises, Vaccines Can Be Stretched, but Not Easily**\
 `Shortages of shots for yellow fever, polio and other diseases have led to innovative solutions even in very poor countries.`\
-https://nytimes.com/2021/01/23/health/coronavirus-polio-vaccination.html?searchResultPosition=8
-
-**2 Years After Legalizing Cannabis, Has Canada Kept Its Promises?**\
-`Legal pot has made Canadian justice a little fairer, with “heavily racialized” arrests for possession mostly ending. But vows on amnesty, illicit sales and Indigenous inclusion are works in progress.`\
-https://nytimes.com/2021/01/23/world/canada/marijuana-legalization-promises-made.html?searchResultPosition=9
+https://nytimes.com/2021/01/23/health/coronavirus-polio-vaccination.html?searchResultPosition=9
 
 **The Vaccinated Class**\
 `“Getting the vaccine is the hottest thing you could be doing on a dating app right now,” said a spokesman for OKCupid.`\
