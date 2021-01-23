@@ -34,7 +34,7 @@ https://nytimes.com/2021/01/23/science/six-stars-eclipses.html?searchResultPosit
 `Legal pot has made Canadian justice a little fairer, with “heavily racialized” arrests for possession mostly ending. But vows on amnesty, illicit sales and Indigenous inclusion are works in progress.`\
 https://nytimes.com/2021/01/23/world/canada/marijuana-legalization-promises-made.html?searchResultPosition=9
 
-**If Poor Countries Go Unvaccinated, a Study Says, Rich Ones Will Pay**\
-`A failure to distribute the Covid-19 vaccine in poor nations will worsen economic damage, with half the costs borne by wealthy countries, new research shows.`\
-https://nytimes.com/2021/01/23/business/coronavirus-vaccines-global-economy.html?searchResultPosition=10
+**The Vaccinated Class**\
+`“Getting the vaccine is the hottest thing you could be doing on a dating app right now,” said a spokesman for OKCupid.`\
+https://nytimes.com/2021/01/23/style/the-vaccinated-class.html?searchResultPosition=10
 
