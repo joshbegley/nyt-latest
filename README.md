@@ -12,7 +12,7 @@ https://nytimes.com/video/world/asia/100000007566899/beijing-china-coronavirus-t
 
 **Trump’s Last-Minute Pardon Frees Man Still Facing Accusations of Violence**\
 `Jonathan Braun’s 10-year sentence for running a drug ring was commuted by the departing president. The White House did not mention that he faces separate accusations of violence and threats.`\
-https://nytimes.com/2021/01/22/us/politics/trump-pardons.html?searchResultPosition=4
+https://nytimes.com/2021/01/22/us/politics/trump-pardons-jonathan-braun.html?searchResultPosition=4
 
 **Senate Leaders Agree on Impeachment Trial Delay, Giving Biden Breathing Room**\
 `The plan would put off the historic proceeding until Feb. 9, giving former President Donald J. Trump time to prepare his defense and allowing President Biden to fill his cabinet and begin work on his agenda.`\
