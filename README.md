@@ -2,8 +2,8 @@
 `The protests moved across time zones and more than 3,000 people were arrested in at least 109 cities, signaling widespread fatigue with the corruption-plagued political order presided over by President Vladimir V. Putin.`\
 https://nytimes.com/2021/01/23/international-home/russia-protests-navalny.html?searchResultPosition=1
 
-**Bomb Explodes at California Church Known for Anti-L.G.B.T.Q. Views**\
-`Officials said no one was injured in the attack on the church, which had been the target of protests in recent weeks.`\
+**Bomb Explodes at California Church Known for Hateful Views**\
+`Officials said no one was injured in the attack. The church had been the target of protests over its messages against women, Jews, L.G.B.T.Q. people and the Black Lives Matter movement.`\
 https://nytimes.com/2021/01/23/us/first-works-baptist-church-explosion.html?searchResultPosition=2
 
 **‘An incredible scale of tragedy’: The U.S. records 25 million virus cases.**\
