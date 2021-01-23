@@ -1,40 +1,40 @@
-**Navalny Protests Live Updates: Russians Demand Opposition Leader’s Release**\
-`The poisoning and arrest of Aleksei A. Navalny set off nationwide protests. The rallies began in the Far East, where people braved temperatures of minus 60 degrees Fahrenheit. Protests in Moscow are also expected.`\
-https://nytimes.com/2021/01/23/world/europe/navalny-protests-russia.html?searchResultPosition=1
+**A Decade On, Silence Fills Egypt’s Field of Broken Dreams**\
+`In 2011, Tahrir Square was at the vanguard of popular uprisings known as the Arab Spring. But hopes for a democratic Egypt were crushed and the historic square given a sterile new look.`\
+https://nytimes.com/2021/01/23/world/middleeast/egypt-arab-spring-tahrir.html?searchResultPosition=1
 
-**Philippine Drug Raid Leaves 13 Dead**\
-`Officials said 12 suspects and a police officer were killed in the shootout, the bloodiest episode in years in President Rodrigo Duterte’s war on drugs.`\
-https://nytimes.com/2021/01/23/world/asia/philippines-drug-raid-duterte.html?searchResultPosition=2
+**High School Grades Could Be Worth $100,000. Time to Tell Your Child?**\
+`Most colleges and universities now use a “merit” aid strategy to solicit teenagers. Your eighth grader probably ought to know how it works.`\
+https://nytimes.com/2021/01/23/business/financial-aid-college-merit-aid.html?searchResultPosition=2
 
-**New Pandemic Plight: Hospitals Are Running Out of Vaccines**\
-`Health officials are frustrated that available doses are going unused while the virus is killing thousands of people each day. Many vaccine appointments have been canceled.`\
-https://nytimes.com/2021/01/23/us/coronavirus-vaccines-canceled-appointments-shortages.html?searchResultPosition=3
+**Six Stars, Six Eclipses: ‘The Fact That It Exists Blows My Mind’**\
+`A handful of other six-star systems have been discovered, but this one is unique.`\
+https://nytimes.com/2021/01/23/science/six-stars-eclipses.html?searchResultPosition=3
 
-**10 Republicans Voted to Impeach Trump. The Backlash Has Been Swift.**\
-`The House Republicans who voted to charge President Donald J. Trump with inciting the Capitol riot are facing a fleet of primary challengers, censures and other rebukes from their party.`\
-https://nytimes.com/2021/01/23/us/politics/republican-who-wont-vote-to-impeach-trump.html?searchResultPosition=4
+**A Quiet Life of Loud Home Runs: Hank Aaron in Photographs**\
+`The slugging outfielder was a rock of consistency for 23 seasons. He was a superstar unlike any before him — or any since.`\
+https://nytimes.com/2021/01/23/sports/baseball/hank-aaron-death-baseball-photos.html?searchResultPosition=4
 
-**The N.W.H.L. Is Coming Back, for Two Weeks Only**\
-`The league, which has been shut down since March because of the coronavirus pandemic, will begin its very brief sixth season with a new team and an agreement to have its playoffs broadcast on NBC Sports.`\
-https://nytimes.com/2021/01/23/sports/nwhl-2021-season-bubble.html?searchResultPosition=5
+**If Poor Countries Go Unvaccinated, a Study Says, Rich Ones Will Pay**\
+`A failure to distribute the Covid-19 vaccine in poor nations will worsen economic damage, with half the costs borne by wealthy countries, new research shows.`\
+https://nytimes.com/2021/01/23/business/coronavirus-vaccines-global-economy.html?searchResultPosition=5
 
-**Biden’s Education Department moves to cut ties with an accrediting body linked to a fraud scandal.**\
-`By Erica L. Green`\
-https://nytimes.com/2021/01/22/us/education-Biden-ITT-corinthian.html?searchResultPosition=6
+**In Crises, Vaccines Can Be Stretched, But Not Easily**\
+`Shortages of shots for yellow fever, polio and other diseases have led to innovative solutions even in very poor countries.`\
+https://nytimes.com/2021/01/23/health/coronavirus-polio-vaccination.html?searchResultPosition=6
 
-**What to Watch as McGregor and Poirier Fight at U.F.C. 257**\
-`McGregor is back in the octagon for the first time in a year.`\
-https://nytimes.com/2021/01/23/sports/ufc-257-mcgregor-poirier.html?searchResultPosition=7
+**2 Years After Legalizing Cannabis, Has Canada Kept Its Promises?**\
+`Legal pot has made Canadian justice a little fairer, with “heavily racialized” arrests for possession mostly ending. But vows on amnesty, illicit sales and Indigenous inclusion are works in progress.`\
+https://nytimes.com/2021/01/23/world/canada/marijuana-legalization-promises-made.html?searchResultPosition=7
 
-**Quotation of the Day: U.K. Variant May Be Deadlier, Johnson Warns**\
-`Quotation of the Day for Saturday, January 23, 2021.`\
-https://nytimes.com/2021/01/22/todayspaper/quotation-of-the-day-uk-variant-may-be-deadlier-johnson-warns.html?searchResultPosition=8
+**The Vaccinated Class**\
+`“Getting the vaccine is the hottest thing you could be doing on a dating app right now,” said a spokesman for OKCupid.`\
+https://nytimes.com/2021/01/23/style/the-vaccinated-class.html?searchResultPosition=8
 
-**Hong Kong locks down a neighborhood for the first time since the pandemic began.**\
-`By Mike Ives and Cao Li`\
-https://nytimes.com/2021/01/22/world/hongkong-covid-lockdown.html?searchResultPosition=9
+**How Alvin the Beagle Helped Usher in a Democratic Senate**\
+`Senator Raphael Warnock was sworn in this week as Georgia’s first Black senator, and he arrived with a canny canine assist.`\
+https://nytimes.com/2021/01/23/us/politics/raphael-warnock-puppy.html?searchResultPosition=9
 
-**Pester Playfully**\
-`Doug Peterson and Brad Wilber are back with a bite.`\
-https://nytimes.com/2021/01/22/crosswords/daily-puzzle-2021-01-23.html?searchResultPosition=10
+**The Maker of the Aeron Chair Grapples with Politics and the Pandemic**\
+`As the C.E.O. of Herman Miller, Andi Owen has had to navigate a polarized work force while thinking about the future of the offices her company makes furniture for.`\
+https://nytimes.com/2021/01/23/business/andi-owen-herman-miller-corner-office.html?searchResultPosition=10
 
