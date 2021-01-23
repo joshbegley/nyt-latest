@@ -26,7 +26,7 @@ https://nytimes.com/2021/01/23/sports/baseball/hank-aaron-death-baseball-photos.
 `A failure to distribute the Covid-19 vaccine in poor nations will worsen economic damage, with half the costs borne by wealthy countries, new research shows.`\
 https://nytimes.com/2021/01/23/business/coronavirus-vaccines-global-economy.html?searchResultPosition=7
 
-**In Crises, Vaccines Can Be Stretched, But Not Easily**\
+**In Crises, Vaccines Can Be Stretched, but Not Easily**\
 `Shortages of shots for yellow fever, polio and other diseases have led to innovative solutions even in very poor countries.`\
 https://nytimes.com/2021/01/23/health/coronavirus-polio-vaccination.html?searchResultPosition=8
 
