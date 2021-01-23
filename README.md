@@ -14,13 +14,13 @@ https://nytimes.com/2021/01/23/world/middleeast/egypt-arab-spring-tahrir.html?se
 `Most colleges and universities now use a “merit” aid strategy to solicit teenagers. Your eighth grader probably ought to know how it works.`\
 https://nytimes.com/2021/01/23/business/financial-aid-college-merit-aid.html?searchResultPosition=4
 
-**Six Stars, Six Eclipses: ‘The Fact That It Exists Blows My Mind’**\
-`A handful of other six-star systems have been discovered, but this one is unique.`\
-https://nytimes.com/2021/01/23/science/six-stars-eclipses.html?searchResultPosition=5
-
 **A Quiet Life of Loud Home Runs: Hank Aaron in Photographs**\
 `The slugging outfielder was a rock of consistency for 23 seasons. He was a superstar unlike any before him — or any since.`\
-https://nytimes.com/2021/01/23/sports/baseball/hank-aaron-death-baseball-photos.html?searchResultPosition=6
+https://nytimes.com/2021/01/23/sports/baseball/hank-aaron-death-baseball-photos.html?searchResultPosition=5
+
+**Six Stars, Six Eclipses: ‘The Fact That It Exists Blows My Mind’**\
+`A handful of other six-star systems have been discovered, but this one is unique.`\
+https://nytimes.com/2021/01/23/science/six-stars-eclipses.html?searchResultPosition=6
 
 **2 Years After Legalizing Cannabis, Has Canada Kept Its Promises?**\
 `Legal pot has made Canadian justice a little fairer, with “heavily racialized” arrests for possession mostly ending. But vows on amnesty, illicit sales and Indigenous inclusion are works in progress.`\
