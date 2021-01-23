@@ -1,5 +1,5 @@
 **Navalny Protests Live Updates: Russians Demand Opposition Leader’s Release**\
-`The poisoning and arrest of Alexei Navalny set off nationwide protests. They began in the Far East, where people braved temperatures of minus 60 degrees Fahrenheit. Protests in Moscow are also expected.`\
+`The poisoning and arrest of Aleksei A. Navalny set off nationwide protests. The rallies began in the Far East, where people braved temperatures of minus 60 degrees Fahrenheit. Protests in Moscow are also expected.`\
 https://nytimes.com/2021/01/23/world/europe/navalny-protests-russia.html?searchResultPosition=1
 
 **Philippine Drug Raid Leaves 13 Dead**\
