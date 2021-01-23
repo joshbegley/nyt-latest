@@ -1,5 +1,5 @@
 **Senate Impeachment Trial to Begin Week of Feb. 8**\
-`Chuck Schumer, the Senate majority leader, laid out the schedule for impeachment proceedings against for former President Donald J. Trump.`\
+`Chuck Schumer, the Senate majority leader, laid out the schedule for impeachment proceedings against former President Donald J. Trump.`\
 https://nytimes.com/video/us/politics/100000007566935/schumer-senate-trump-impeachment-trail.html?searchResultPosition=1
 
 **Giuliani concedes that an associate did ask for $20,000 a day to help Trump post-election.**\
