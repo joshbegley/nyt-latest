@@ -1,14 +1,14 @@
+**Vaccine Producers Must Fulfill Supply Contracts, E.U. Official Says**\
+`Charles Michel, president of the European Council, said the European Union would use “all legal means” to enforce the agreements pharmaceutical companies made to supply Covid-19 vaccines.`\
+https://nytimes.com/video/world/europe/100000007568013/european-union-coronavirus-vaccine.html?searchResultPosition=1
+
 **Fauci on What Working for Trump Was Really Like**\
 `From denialism to death threats, Dr. Anthony S. Fauci describes a fraught year as an adviser to President Donald J. Trump on the Covid-19 pandemic.`\
-https://nytimes.com/2021/01/24/health/fauci-trump-covid.html?searchResultPosition=1
+https://nytimes.com/2021/01/24/health/fauci-trump-covid.html?searchResultPosition=2
 
 **Britain’s Alarm Over Virus Variant Silences Foes of Lockdown**\
 `A warning that the variant could be deadlier is a powerful argument that Britain could be entering a severe new phase of the pandemic and that easing lockdown rules could be calamitous.`\
-https://nytimes.com/2021/01/24/world/europe/britain-virus-variant-lockdown.html?searchResultPosition=2
-
-**Birx, Trump’s coronavirus task force adviser, describes a pattern of misinformation and denial in the White House.**\
-`“There were people who definitely believed that” the pandemic “was a hoax,” she said in an interview on “Face the Nation.”`\
-https://nytimes.com/2021/01/24/world/birx-trump-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2021/01/24/world/europe/britain-virus-variant-lockdown.html?searchResultPosition=3
 
 **Who Is to Blame for the American Diet?**\
 `Readers fault conventional nutrition advice and a lack of education in addition to Big Food.`\
