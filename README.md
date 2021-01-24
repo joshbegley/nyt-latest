@@ -1,40 +1,40 @@
+**For Nicaragua’s Lobstermen, Deadly Dives Are All Too Common**\
+`Catching spiny lobsters is a stunningly dangerous pursuit for the mostly Indigenous fishermen along the country’s Caribbean coast, requiring deep plunges with subpar gear.`\
+https://nytimes.com/2021/01/24/world/nicaragua-lobsters-fishing.html?searchResultPosition=1
+
+**Capitol Riot Puts Spotlight on ‘Apocalyptically Minded’ Global Far Right**\
+`Leaderless but united by racist ideology that has been supercharged by social media, extremists have built a web of real and online connections that worry officials.`\
+https://nytimes.com/2021/01/24/world/europe/capitol-far-right-global.html?searchResultPosition=2
+
+**Just Don’t Call Her a Ghostwriter**\
+`Michelle Burford has carved out a niche helping famous Black women like Cicely Tyson, Alicia Keys and Gabby Douglas write their memoirs. But she can tell many kinds of stories, including her own.`\
+https://nytimes.com/2021/01/24/books/michelle-burford-celebrity-memoir.html?searchResultPosition=3
+
+**How Democrats Planned for Doomsday**\
+`A huge coalition of activist groups had been working together since the spring to make sure that Joe Biden won and that the “election stayed won” amid Donald Trump’s subterfuge.`\
+https://nytimes.com/2021/01/24/us/politics/democrats-trump-election-plan.html?searchResultPosition=4
+
+**Giuliani and Bill O’Reilly Still Have a Major Platform in New York**\
+`A popular radio station in Manhattan has become a haven where  conservative hosts like Rudolph Giuliani can defend Donald Trump.`\
+https://nytimes.com/2021/01/24/nyregion/giuliani-election-fraud.html?searchResultPosition=5
+
+**I Covered Coronavirus Victims. Then My Family Members Became Victims, Too.**\
+`Dealing with the pandemic on two fronts, as a journalist and as a wife and mother, taught me what empathy really means.`\
+https://nytimes.com/2021/01/24/insider/india-reporter-coronavirus-family.html?searchResultPosition=6
+
 **Why Vaccines Alone Will Not End the Pandemic**\
 `New estimates suggest the vaccine rollout is no match for the severity of the U.S. outbreak, and stricter social distancing measures are needed to reduce infections.`\
-https://nytimes.com/interactive/2021/01/24/us/covid-vaccine-rollout.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/01/24/us/covid-vaccine-rollout.html?searchResultPosition=7
 
 **Pro-Navalny Protest Photos: Wave of Anger Rolls Across Russia**\
 `Demonstrators in more than 100 cities rallied in support of the jailed opposition leader Aleksei A. Navalny in the biggest protests the nation has seen in years.`\
-https://nytimes.com/2021/01/24/world/europe/photos-russia-navalny-protest.html?searchResultPosition=2
+https://nytimes.com/2021/01/24/world/europe/photos-russia-navalny-protest.html?searchResultPosition=8
 
 **Asia’s ‘El Chapo’ Is Arrested in Amsterdam**\
 `Tse Chi Lop, said to be the leader of a multibillion-dollar drug syndicate, was arrested in Amsterdam and faces extradition to Australia.`\
-https://nytimes.com/2021/01/24/world/australia/tse-chi-lop-drugs-methamphetamine.html?searchResultPosition=3
+https://nytimes.com/2021/01/24/world/australia/tse-chi-lop-drugs-methamphetamine.html?searchResultPosition=9
 
 **Surge of Student Suicides Pushes Las Vegas Schools to Reopen**\
 `Firmly linking teen suicides to school closings is difficult, but rising mental health emergencies and suicide rates point to the toll the pandemic lockdown is taking.`\
-https://nytimes.com/2021/01/24/us/politics/student-suicides-nevada-coronavirus.html?searchResultPosition=4
-
-**The Craziest Two Weeks of Tennis Practice Ever**\
-`The organizers of the Australian Open promised local residents that the tournament would not set off a coronavirus outbreak. Making good on that promise is very complex.`\
-https://nytimes.com/2021/01/24/sports/tennis/australian-open-practice.html?searchResultPosition=5
-
-**‘One Day, After Several Months of Not Stopping By, He Poked His Head In’**\
-`A man in search of a certain item, a bike bound for the trash heap and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/01/24/nyregion/metropolitan-diary.html?searchResultPosition=6
-
-**Chinese Miners Pulled to Surface 2 Weeks After Underground Explosion**\
-`At least 11 miners who were trapped 2,000 feet below ground in the blast have been rescued. Others are still missing.`\
-https://nytimes.com/2021/01/24/world/asia/china-mine-disaster-explosion-rescue.html?searchResultPosition=7
-
-**University of Michigan suspends athletic activities after finding multiple cases of the British-affiliated variant.**\
-`Athletes, coaches and team staff members have also been told to quarantine in an effort to prevent further spread of the variant.`\
-https://nytimes.com/2021/01/23/world/university-of-michigan-athletics-suspension-variant.html?searchResultPosition=8
-
-**Corrections: Jan. 24, 2021**\
-`Corrections that appeared in print on Sunday, Jan. 24, 2021.`\
-https://nytimes.com/2021/01/24/pageoneplus/corrections-jan-24-2021.html?searchResultPosition=9
-
-**Your Fingers Go In and They Can’t Get Out, Homemade Version**\
-`Weave a classic gag from newspaper, then find someone to fool.`\
-https://nytimes.com/2021/01/23/at-home/make-your-own-finger-trap.html?searchResultPosition=10
+https://nytimes.com/2021/01/24/us/politics/student-suicides-nevada-coronavirus.html?searchResultPosition=10
 
