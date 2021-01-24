@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/23/us/garret-miller-aoc-capitol-police.html?searchResultPosition=1
 
 **Pennsylvania Lawmaker Played Key Role in Trump’s Plot to Oust Acting Attorney General**\
-`The involvement of Representative Scott Perry underlined how far the former president was willing to go in using the government to subvert the election, turning to more junior and relatively unknown figures for help.`\
+`The congressman’s involvement underlined how far the former president was willing to go to overturn the election, and Democratic lawmakers have begun calling for investigations into those efforts.`\
 https://nytimes.com/2021/01/23/us/politics/scott-perry-trump-justice-department-election.html?searchResultPosition=2
 
 **Ted Thompson, Who Helped Revive the Packers, Is Dead at 68**\
