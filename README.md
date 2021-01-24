@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/23/at-home/pandemic-auto-insurance.html?searchResult
 `This week, celebrate Australia Day, make masala chai and listen to Natalie Portman discuss her new children’s book.`\
 https://nytimes.com/2021/01/23/at-home/things-to-do-this-week.html?searchResultPosition=6
 
-**When Dinner is Outdoors, New Rules Apply**\
+**When Dinner Is Outdoors, New Rules Apply**\
 `During the pandemic, wind chill and  loaner blankets are the new considerations (don’t forget your handwarmers).`\
 https://nytimes.com/2021/01/23/at-home/pandemic-dining-outside.html?searchResultPosition=7
 
