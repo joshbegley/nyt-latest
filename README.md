@@ -1,6 +1,6 @@
 **Birx, Trump’s coronavirus task force adviser, describes a pattern of misinformation and denial in the White House.**\
-`By Jan Hoffman`\
-https://nytimes.com/2021/01/24/world/birx-trumps-coronavirus-task-force-adviser-describes-a-pattern-of-misinformation-and-denial-in-the-white-house.html?searchResultPosition=1
+`“There were people who definitely believed that” the pandemic “was a hoax,” she said in an interview on “Face the Nation.”`\
+https://nytimes.com/2021/01/24/world/birx-trump-coronavirus.html?searchResultPosition=1
 
 **Who Is to Blame for the American Diet?**\
 `Readers fault conventional nutrition advice and a lack of education in addition to Big Food.`\
