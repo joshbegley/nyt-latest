@@ -1,4 +1,4 @@
-**Chinese Miner Pulled to Surface 2 Weeks After Underground Explosion**\
+**Chinese Miners Pulled to Surface 2 Weeks After Underground Explosion**\
 `Rescuers have made contact with one group of 10 miners trapped 2,000 feet below ground in the blast. Others are still missing.`\
 https://nytimes.com/2021/01/24/world/asia/china-mine-disaster-explosion-rescue.html?searchResultPosition=1
 
