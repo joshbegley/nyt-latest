@@ -1,4 +1,4 @@
-**What We Learned from the N.F.L.’s Conference Championships**\
+**What We Learned From the N.F.L.’s Conference Championships**\
 `The Chiefs will try to defend their Super Bowl title against Tom Brady and the Buccaneers — who are playing at home.`\
 https://nytimes.com/2021/01/24/sports/football/nfl-super-bowl-chiefs-buccaneers.html?searchResultPosition=1
 
