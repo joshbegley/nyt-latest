@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/25/books/newbery-medal-caldecott-award.html?searchRe
 
 **Watch Live: Biden Delivers Remarks on Manufacturing**\
 `On Monday, President Biden will deliver remarks on strengthening American manufacturing and will sign an executive order.`\
-https://nytimes.com/video/us/politics/100000007569127/biden-speech-manufacturing-live-stream.html?searchResultPosition=4
+https://nytimes.com/video/embedded/us/politics/100000007569127/biden-speech-manufacturing-live-stream.html?searchResultPosition=4
 
 **The Flaming Lips Performed to People in Literal Bubbles. Is It Safer?**\
 `Medical professionals questioned how well the individual plastic bubbles protected band members and concertgoers from the coronavirus.`\
