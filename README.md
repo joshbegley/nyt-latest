@@ -1,5 +1,5 @@
 **Sarah Huckabee Sanders to Run for Arkansas Governor**\
-`The bid by Ms. Sanders, a former press secretary to Donald Trump who is seen as his preferred candidate in the race, will test the former president’s political strength in a divided Republican Party.`\
+`The bid by Ms. Sanders, a former press secretary to Donald J. Trump who is seen as his preferred candidate in the race, will test the former president’s political strength in a divided Republican Party.`\
 https://nytimes.com/2021/01/24/us/politics/sarah-huckabee-sanders-arkansas-governor.html?searchResultPosition=1
 
 **Portugal’s President Wins Re-election, but Far Right Gains**\
