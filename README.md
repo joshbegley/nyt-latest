@@ -1,6 +1,6 @@
 **Senate Confirms Yellen as Treasury Secretary as Stimulus Talks Loom**\
 `Janet L. Yellen won Senate confirmation along bipartisan lines and now faces a big challenge in confronting an economic threat that has caused financial hardship for millions of Americans.`\
-https://nytimes.com/2021/01/25/us/politics/senate-confirms-yellen-as-treasury-secretary-as-stimulus-talks-loom.html?searchResultPosition=1
+https://nytimes.com/2021/01/25/us/politics/senate-yellen-treasury-secretary.html?searchResultPosition=1
 
 **Watch Live: House Delivers Article of Impeachment to the Senate**\
 `On Monday, the House of Representatives will deliver an article of impeachment for former President Donald J. Trump to the Senate.`\
