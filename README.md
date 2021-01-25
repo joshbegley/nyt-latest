@@ -2,7 +2,7 @@
 `Activists say a proposed project is too abstract for a time when Black New Yorkers are eager to see figures that look like them among the city’s statues.`\
 https://nytimes.com/2021/01/25/arts/design/brooklyn-park-abolition-monument.html?searchResultPosition=1
 
-**The White House is extending travel bans on Europe and Brazil, and adding South Africa.**\
+**The White House is extending travel bans on Europe and Brazil, and adding South Africa, because of the virus.**\
 `By Michael D. Shear and Sheryl Gay Stolberg`\
 https://nytimes.com/2021/01/25/world/white-house-travel-ban-europe-brazil-south-africa.html?searchResultPosition=2
 
