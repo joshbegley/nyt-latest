@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2021/01/25/us/politics/senate-impeachment-whip-count.html?searchResultPosition=1
 
 **James R. Flynn, Who Found We Are Getting Smarter, Dies at 86**\
-`A philosopher who moved into psychology and studied I.Q., he showed that as society grows more technical, the human intellect expands to meet the challenge.`\
+`A philosopher who moved into psychology and studied I.Q., he showed that as society grows more technical, human intellectual abilities expand to meet the challenge.`\
 https://nytimes.com/2021/01/25/science/james-r-flynn-dead.html?searchResultPosition=2
 
 **Former T.S.A. Agent Convicted of Tricking Woman Into Showing Her Breasts**\
