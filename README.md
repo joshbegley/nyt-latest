@@ -10,9 +10,9 @@ https://nytimes.com/2021/01/24/us/west-virginia-vaccine.html?searchResultPositio
 `“I put my emotions behind me to do what I thought was right,” said Jackson Reffitt, who weeks before the siege alerted the F.B.I. that his father was planning “something big.”`\
 https://nytimes.com/2021/01/24/us/politics/jackson-reffitt-father-capitol-riot.html?searchResultPosition=3
 
-**Tom Brady and the Buccaneers are heading to the Super Bowl.**\
-`Brady will start in his 10th Super Bowl and the Buccaneers will become the first team to play for the championship in their home stadium.`\
-https://nytimes.com/2021/01/24/sports/football/tom-brady-and-the-buccaneers-are-heading-to-the-super-bowl.html?searchResultPosition=4
+**How Tom Brady and the Buccaneers beat the Packers for a Super Bowl berth.**\
+`Brady will start in his 10th Super Bowl, and the Buccaneers will become the first team to play for the championship in its home stadium.`\
+https://nytimes.com/2021/01/24/sports/football/how-tom-brady-and-the-buccaneers-beat-the-packers-for-a-super-bowl-berth.html?searchResultPosition=4
 
 **Cause of a Sleepless Night**\
 `Kevin Christian and Andrea Carla Michaels have a message for us.`\
