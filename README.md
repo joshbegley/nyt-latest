@@ -10,8 +10,8 @@ https://nytimes.com/2021/01/25/learning/lesson-of-the-day-chinas-oppression-of-m
 `Is there a statute of limitations on attending “Davos in the Desert”?`\
 https://nytimes.com/2021/01/25/business/dealbook/wall-street-saudi-arabia.html?searchResultPosition=3
 
-**Chelsea Fires Frank Lampard**\
-`Lampard, a title-winning player, failed to draw out the same type of success from his team as a manager. The German Thomas Tuchel is the favorite to replace him.`\
+**Hoping to Salvage a Troubled Season, Chelsea Fires Frank Lampard**\
+`Lampard, a title-winning player, failed to draw out the same type of success from his team as a manager. The German Thomas Tuchel is expected to replace him.`\
 https://nytimes.com/2021/01/25/sports/soccer/chelsea-frank-lampard.html?searchResultPosition=4
 
 **Republicans’ Trump Dilemma**\
