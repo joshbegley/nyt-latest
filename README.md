@@ -35,6 +35,6 @@ https://nytimes.com/2021/01/25/business/amazon-union-alabama.html?searchResultPo
 https://nytimes.com/2021/01/25/opinion/trump-biden-media.html?searchResultPosition=9
 
 **Biden Is Vowing to Reopen Schools Quickly. It Won’t Be Easy.**\
-`The slow vaccine roll out, and local fights between districts and unions, could make it hard for the president to fulfill his promise.`\
+`The slow vaccine rollout, and local fights between districts and unions, could make it hard for the president to fulfill his promise.`\
 https://nytimes.com/2021/01/25/us/biden-schools-reopen-coronavirus.html?searchResultPosition=10
 
