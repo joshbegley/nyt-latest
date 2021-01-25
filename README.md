@@ -14,7 +14,7 @@ https://nytimes.com/2021/01/25/business/Europe-bankruptcies.html?searchResultPos
 `Quotation of the Day for Monday, January 25, 2021.`\
 https://nytimes.com/2021/01/24/todayspaper/quotation-of-the-day-dreaming-of-a-magic-lifeline-made-of-steel.html?searchResultPosition=4
 
-**5 Killed in Indianpolis Shooting That Mayor Condemns as ‘Mass Murder’**\
+**5 Killed in Indianapolis Shooting That Mayor Condemns as ‘Mass Murder’**\
 `The victims were targeted, and a pregnant woman was among the dead, the authorities said.`\
 https://nytimes.com/2021/01/24/us/indianapolis-shooting.html?searchResultPosition=5
 
