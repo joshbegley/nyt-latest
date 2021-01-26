@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007570607/senate-confirms-yellen-treasury.html?searchResultPosition=1
 
 **Mexicans Worry That Even Getting Covid Won’t Make Their Leader Take It Seriously**\
-`President López Obrador has played down the pandemic, and many Mexicans wonder if his own illness will change his mind, especially since he can count on the quality care that many struggle to find.`\
+`President Andrés Manuel López Obrador has played down the pandemic, and many Mexicans wonder if his own illness will change his mind, especially since he can count on the quality care that many struggle to find.`\
 https://nytimes.com/2021/01/25/world/americas/amlo-mexico-covid.html?searchResultPosition=2
 
 **Dissidents First: A Foreign Policy Doctrine for the Biden Administration**\
