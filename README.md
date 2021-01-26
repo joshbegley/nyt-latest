@@ -32,7 +32,7 @@ https://nytimes.com/2021/01/26/opinion/covid-vaccine-rumors.html?searchResultPos
 
 **C.D.C. officials say most available evidence indicates schools can be safe if precautions are taken on campus and in the community.**\
 `By Roni Caryn Rabin`\
-https://nytimes.com/2021/01/26/world/cdc-officials-say-most-available-evidence-indicates-schools-can-be-safe-if-precautions-are-taken-on-campus-and-in-the-community.html?searchResultPosition=9
+https://nytimes.com/2021/01/26/world/cdc-schools-reopening.html?searchResultPosition=9
 
 **Biden and Putin Speak, Agreeing to Extend Nuclear Treaty**\
 `The two leaders, who do not have a history of friendliness, spoke just a few weeks before the treaty is set to expire.`\
