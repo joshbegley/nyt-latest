@@ -1,6 +1,6 @@
 **Marty Baron Will Retire From The Washington Post**\
 `The Post’s executive editor, 66, said he would depart on Feb. 28.`\
-https://nytimes.com/2021/01/26/business/marty-baron-retirement-washington-post.html?searchResultPosition=1
+https://nytimes.com/2021/01/26/business/media/marty-baron-retirement-washington-post.html?searchResultPosition=1
 
 **P.O.V.: You’re Geppetto, Missing Your Wooden Son From Inside the Belly of a Fish**\
 `Edward Carey’s “The Swallowed Man” revisits the 19th-century Italian classic from the father’s perspective.`\
