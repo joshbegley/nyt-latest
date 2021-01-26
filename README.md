@@ -2,7 +2,7 @@
 `The BlackRock chief plans to pressure companies to do more to cut carbon emissions, using the weight of his firm’s $9 trillion in assets.`\
 https://nytimes.com/2021/01/26/business/dealbook/larry-fink-blackrock-climate.html?searchResultPosition=1
 
-**BlackRock Chief Pushes a Bold New Climate Goal for the Corporate World**\
+**BlackRock Chief Pushes a Big New Climate Goal for the Corporate World**\
 `Larry Fink is using his firm’s huge influence to pressure companies to eliminate greenhouse gas emissions by 2050.`\
 https://nytimes.com/2021/01/26/business/dealbook/larry-fink-letter-blackrock-climate.html?searchResultPosition=2
 
