@@ -2,7 +2,7 @@
 `An unusual email from the agency’s counterintelligence chief also warned retired officers to carefully weigh their comments on television, social media and podcasts.`\
 https://nytimes.com/2021/01/26/us/politics/intelligence-officers-foreign-governments.html?searchResultPosition=1
 
-**A Witness to History, and Bernie Sanders in His Mittens**\
+**A Witness to History and Bernie Sanders in His Mittens**\
 `Brendan Smialowski, a photojournalist for Agence France-Presse, shot the image of a bundled Mr. Sanders that spawned a multitude of memes on Inauguration Day.`\
 https://nytimes.com/2021/01/26/us/politics/brendan-smialowski-bernie-sanders-mittens.html?searchResultPosition=2
 
