@@ -2,7 +2,7 @@
 `Richard Osman’s TV shows and a best-selling novel are defiantly mainstream, and he is comfortable with how uncool that might make him.`\
 https://nytimes.com/2021/01/26/arts/television/richard-osman-book-pointless.html?searchResultPosition=1
 
-**Weekly News Quiz for Students: Inauguration, Trump Pardons, Bernie Sanders Meme**\
+**Weekly News Quiz for Students: Inauguration, SAT Changes, No. 1 Song**\
 `Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2021/01/26/learning/26-News-Quiz-For-Students.html?searchResultPosition=2
 
