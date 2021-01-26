@@ -7,7 +7,7 @@ https://nytimes.com/2021/01/26/obituaries/diane-fillmore-dead-covid.html?searchR
 https://nytimes.com/2021/01/26/us/politics/military-sexual-assault-lloyd-austin.html?searchResultPosition=2
 
 **Aetna Agrees to Expand Coverage for Gender-Affirming Surgeries**\
-`One of the nation’s largest health insurers is agreeing to pay for breast augmentation for trans women.`\
+`One of the nation’s largest health insurers is agreeing to pay for breast augmentation for some trans women.`\
 https://nytimes.com/2021/01/26/health/transgender-health-insurance.html?searchResultPosition=3
 
 **Watch Live: Trump Impeachment Trial Jurors Are Sworn In**\
