@@ -1,4 +1,4 @@
-**In ‘Losing Alice,’ Ayelet ZurerBurns It All Down**\
+**In ‘Losing Alice,’ Ayelet Zurer Burns It All Down**\
 `The Israeli-American actress discusses her new Apple TV+ thriller and the thin line between creativity and self-destruction.`\
 https://nytimes.com/2021/01/26/arts/television/losing-alice-ayelet-zurer.html?searchResultPosition=1
 
