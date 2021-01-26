@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/26/dining/usda-food-policy-biden.html?searchResultPo
 https://nytimes.com/2021/01/26/us/politics/capitol-police-national-guard.html?searchResultPosition=3
 
 **Marty Baron Will Retire From The Washington Post**\
-`The Post’s executive editor, 66, said he would depart on Feb. 28.`\
+`After a storied journalism career, The Post’s executive editor, 66, said he would depart on Feb. 28.`\
 https://nytimes.com/2021/01/26/business/media/marty-baron-retirement-washington-post.html?searchResultPosition=4
 
 **P.O.V.: You’re Geppetto, Missing Your Wooden Son From Inside the Belly of a Fish**\
