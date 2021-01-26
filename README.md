@@ -10,7 +10,7 @@ https://nytimes.com/2021/01/26/books/review/blood-powder-and-residue-beth-bechky
 `Movies by women and people of color make up all of the contenders for best feature and best director.`\
 https://nytimes.com/2021/01/26/movies/indie-spirits-nominees.html?searchResultPosition=3
 
-**The White House press briefings will include an American Sign Language interpreter in an unprecedented step.**\
+**The White House press briefings will include an American Sign Language interpreter.**\
 `By Eileen Sullivan`\
 https://nytimes.com/2021/01/26/us/politics/asl-interpreters-white-house-briefings.html?searchResultPosition=4
 
