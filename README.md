@@ -1,40 +1,40 @@
-**Late Night Is Unswayed by Republicans’ Excuses**\
-`Trevor Noah says the end of Donald Trump’s term is no reason not to impeach him: “If you get fired at Best Buy, they don’t just let you steal a TV on the way out.”`\
-https://nytimes.com/2021/01/26/arts/television/trevor-noah-trump-impeachment.html?searchResultPosition=1
+**Democrats Should Act Like They Won the Election**\
+`What was the point of putting together a majority in the Senate if they weren’t going to wield it?`\
+https://nytimes.com/2021/01/26/opinion/democrats-schumer-mcconnell-filibuster.html?searchResultPosition=1
 
-**Telegram, Pro-Democracy Tool, Struggles Over New Fans From Far Right**\
-`The app has helped fuel democracy movements in Iran and Belarus but now faces scrutiny as extremists and conspiracy theorists flock to it amid crackdowns by Facebook and Twitter on disinformation.`\
-https://nytimes.com/2021/01/26/world/europe/telegram-app-far-right.html?searchResultPosition=2
+**‘No Heaven for Good Boys,’ by Keisha Bush: An Excerpt**\
+`An excerpt from “No Heaven for Good Boys,” by Keisha Bush`\
+https://nytimes.com/2021/01/26/books/review/no-heaven-for-good-boys-by-keisha-bush-an-excerpt.html?searchResultPosition=2
 
-**The High-Risk Group Left Out of New York’s Vaccine Rollout**\
-`Virus cases are surging among incarcerated people at prisons and jails. But state officials have not announced when they will be vaccinated.`\
-https://nytimes.com/2021/01/26/nyregion/new-york-vaccine-prisons.html?searchResultPosition=3
+**Mona Lisa Is Alone, but Still Smiling**\
+`With the Louvre closed because of the pandemic, museum officials are pushing ahead on a grand restoration and cleanup.`\
+https://nytimes.com/2021/01/26/world/europe/louvre-coronavirus.html?searchResultPosition=3
 
-**Tornado Strikes Alabama City, Trapping Residents in Collapsed Homes**\
-`The funnel caused heavy damage in the city of Fultondale, a northern suburb of Birmingham.`\
-https://nytimes.com/2021/01/26/us/tornado-alabama-fultondale.html?searchResultPosition=4
+**Cooks Turned Instagram Into the World’s Greatest Takeout Menu**\
+`During the pandemic, entrepreneurial chefs have reshaped food culture across the country with tiny, homegrown pop-ups that thrive on social media.`\
+https://nytimes.com/2021/01/26/dining/instagram-chefs-takeout-menus.html?searchResultPosition=4
 
-**Colombians Ask: Who Would Dare Patent Panela?**\
-`Makers of Latin America’s favorite traditional sweetener say a sugar engineer wants exclusive control of their centuries-old product.`\
-https://nytimes.com/2021/01/26/science/colombia-panela-patent-gonzalez.html?searchResultPosition=5
+**A Bay Area Home Ideal for Lockdown**\
+`The house in Orinda, Calif., was designed for entertaining. But it turned out to be just as good for living through a pandemic.`\
+https://nytimes.com/2021/01/26/realestate/a-bay-area-home-ideal-for-lockdown.html?searchResultPosition=5
 
-**Word + Quiz: perspicacious**\
-`This word has appeared in six articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/01/26/learning/word-quiz-perspicacious.html?searchResultPosition=6
+**Lone Wolves Connected Online: A History of Modern White Supremacy**\
+`Forty years ago, Louis Beam had the idea of using the internet to drive a movement. Today, his vision is disturbingly prevalent.`\
+https://nytimes.com/2021/01/26/us/louis-beam-white-supremacy-internet.html?searchResultPosition=6
 
-**Corrections: Jan. 26, 2021**\
-`Corrections that appeared in print on Tuesday, Jan. 26, 2021.`\
-https://nytimes.com/2021/01/25/pageoneplus/corrections-jan-26-2021.html?searchResultPosition=7
+**‘A Place of Serenity’ During a Pandemic**\
+`The house in Orinda, Calif., was designed for entertaining. But it turned out to be just as good for a prolonged lockdown.`\
+https://nytimes.com/slideshow/2021/01/26/realestate/a-place-of-serenity-during-a-pandemic.html?searchResultPosition=7
 
-**6 More Houston Police Officers Charged After Fatal 2019 Raid**\
-`The indictments brought the total number of officers charged after the January 2019 killing of a couple to 12. Two face murder counts.`\
-https://nytimes.com/2021/01/25/us/houston-police-raid-indictment.html?searchResultPosition=8
+**British Auto Industry Risks Slow Decline After Brexit**\
+`Lacking a strong domestic battery industry, Britain may be left behind by the shift to electric cars.`\
+https://nytimes.com/2021/01/26/business/british-auto-industry-brexit.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`New travel bans in the fight against the coronavirus.`\
-https://nytimes.com/2021/01/25/briefing/coronavirus-italy-politics-impeachment.html?searchResultPosition=9
+**Testing Requirement Is the Latest Curveball for the Travel Industry**\
+`The United States now requires a negative coronavirus test for all arriving international travelers, which has hotels adding testing suites and airlines enhancing mobile apps with health features.`\
+https://nytimes.com/2021/01/26/travel/virus-testing-requirement-international.html?searchResultPosition=9
 
-**$200,000 Settlement for Texas Man Pepper-Sprayed While Recording Son’s Traffic Stop**\
-`An alleged racial profiling of a Latino man quickly escalated and led to the demotion of a police sergeant.`\
-https://nytimes.com/2021/01/25/us/marco-puente-texas-police-settlement.html?searchResultPosition=10
+**They Found a Way to Limit Big Tech’s Power: Using the Design of Bitcoin**\
+`Companies inspired by the cryptocurrency are creating social networks, storing online content and hosting websites without any central authority.`\
+https://nytimes.com/2021/01/26/technology/big-tech-power-bitcoin.html?searchResultPosition=10
 
