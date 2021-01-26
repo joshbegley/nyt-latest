@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/26/science/coronavirus-physics-vaccine.html?searchRe
 
 **Italy’s Prime Minister Resigns After Weeks of Infighting**\
 `Intrigue chipped away at Prime Minister Giuseppe Conte’s parliamentary majority even as the country’s coronavirus death toll passed 85,000.`\
-https://nytimes.com/2021/01/26/world/europe/italy-prime-minister-resigns.html?searchResultPosition=2
+https://nytimes.com/2021/01/26/world/europe/italy-prime-minister-giuseppe-conte-resigns.html?searchResultPosition=2
 
 **Tracking the Vocabulary of Sci-Fi, from Aerocar to Zero-Gravity**\
 `The new online Historical Dictionary of Science Fiction probes the speculative corners of the lexicographic universe.`\
