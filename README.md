@@ -1,5 +1,5 @@
 **In first blow to Biden administration’s immigration agenda, federal judge blocks 100-day pause on deportation.**\
-`By Miriam Jordan`\
+`A court in Texas issued a 14-day nationwide temporary restraining order sought by the state’s attorney general that would prevent carrying out the policy, which was issued within hours of the president’s inauguration.`\
 https://nytimes.com/2021/01/26/us/politics/biden-immigration-deportation.html?searchResultPosition=1
 
 **Harris Receives Second Vaccine Dose**\
