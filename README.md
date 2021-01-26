@@ -10,7 +10,7 @@ https://nytimes.com/2021/01/26/us/politics/blinken-state-department.html?searchR
 `Mayor Ted Wheeler used pepper spray on a man who confronted him outside a restaurant on Sunday, according to a police report.`\
 https://nytimes.com/2021/01/26/us/portland-mayor-ted-wheeler-pepper-spray.html?searchResultPosition=3
 
-**Review: Road Tripping with Frankenstein’s Monster in ‘Maery S.’**\
+**Review: Road-Tripping with Frankenstein’s Monster in ‘Maery S.’**\
 `Sibyl Kempson’s unruly audio play takes Mary Shelley and her famed creation from old England to contemporary America. Bigfoot shows up, too.`\
 https://nytimes.com/2021/01/26/theater/review-sibyl-kempson-mary-shelley.html?searchResultPosition=4
 
