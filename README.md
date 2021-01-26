@@ -27,7 +27,7 @@ https://nytimes.com/2021/01/26/world/asia/hong-kong-coronavirus-lockdown-inequal
 https://nytimes.com/2021/01/26/sports/football/could-tampa-bay-be-the-new-titletown.html?searchResultPosition=7
 
 **Tornado Hits Alabama City**\
-`A deadly tornado barreled through a northern suburb of Birmingham, Ala., late Monday night, collapsing buildings and trapping people in their homes.`\
+`A deadly tornado barreled through a northern suburb of Birmingham, Ala., late Monday night, destroying buildings and trapping people in their homes.`\
 https://nytimes.com/video/us/politics/100000007571221/alabama-tornado.html?searchResultPosition=8
 
 **Watch Live: Gina Raimondo Confirmation Hearing**\
