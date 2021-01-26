@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/26/world/middleeast/biden-palestinians-israel.html?searchResultPosition=1
 
 **Biden, With Powerful Allies and Foes, Targets Climate Change**\
-`President Biden is setting his sights on controlling climate change, with some unlikely allies behind him but huge hurdles ahead, some in his own party.`\
+`The president moving rapidly to address climate change, with some unlikely allies behind him and huge hurdles ahead — some in his own party.`\
 https://nytimes.com/2021/01/26/climate/biden-climate-change.html?searchResultPosition=2
 
 **Man Charged With Threatening Congressman’s Family as Riot Raged**\
