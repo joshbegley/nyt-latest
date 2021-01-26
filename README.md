@@ -1,5 +1,5 @@
-**Farmers Protest in New Delhi India**\
-`Thousands of protesting farmers poured into New Delhi on Tuesday and stormed the historic Red Fort in Delhi.`\
+**Farmers Protest in New Delhi**\
+`Thousands of farmers protesting new farm laws poured into New Delhi on Tuesday and stormed the historic Red Fort in Delhi.`\
 https://nytimes.com/video/world/asia/100000007571260/farmers-protest-in-new-delhi-india.html?searchResultPosition=1
 
 **In ‘Losing Alice,’ Ayelet Zurer Burns It All Down**\
