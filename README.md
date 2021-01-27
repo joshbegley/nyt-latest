@@ -1,5 +1,5 @@
 **The U.S. faces heightened threats from violent domestic extremists in the wake of the Capitol breach, D.H.S. says.**\
-`By Zolan Kanno-Youngs`\
+`The attack may have encouraged domestic extremists to target elected officials and government facilities, according to a national terrorism warning.`\
 https://nytimes.com/2021/01/27/us/capitol-riot-domestic-terrorism.html?searchResultPosition=1
 
 **Twitter Troll Tricked 4,900 Democrats in Vote-by-Phone Scheme, U.S. Says**\
