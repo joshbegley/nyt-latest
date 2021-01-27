@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/27/learning/word-quiz-vim.html?searchResultPosition=
 https://nytimes.com/2021/01/27/books/review/peter-sis-nicky-and-vera.html?searchResultPosition=3
 
 **Texas Hostage Standoff Ends With 2 Dead at Austin Medical Office**\
-`The police responded to the standoff with a SWAT team, and gunshots and explosions were heard.`\
+`The police responded with a SWAT team, and gunshots and explosions were heard.`\
 https://nytimes.com/2021/01/27/us/austin-texas-hostage.html?searchResultPosition=4
 
 **Groups Put French State on Legal Notice Over Police Racism**\
