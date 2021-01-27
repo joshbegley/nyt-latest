@@ -35,6 +35,6 @@ https://nytimes.com/2021/01/27/realestate/3-million-homes-south-carolina-new-yor
 https://nytimes.com/slideshow/2021/01/27/realestate/what-you-get-for-3-million.html?searchResultPosition=9
 
 **Pandemic Rescue: It’s ‘And’ Not ‘Or’**\
-`Why you shouldn’t nitpick over the details`\
+`Why you shouldn’t nitpick over the details.`\
 https://nytimes.com/2021/01/27/opinion/pandemic-rescue-its-and-not-or.html?searchResultPosition=10
 
