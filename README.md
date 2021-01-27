@@ -6,8 +6,8 @@ https://nytimes.com/video/us/politics/100000007574044/john-kerry-climate-change-
 `Special occasions are still special.`\
 https://nytimes.com/2021/01/27/at-home/newsletter.html?searchResultPosition=2
 
-**What to Cook This Week**\
-`Dorie Greenspan has a lovely piece in The Times, focusing on savory little quick breads called cakes salés. Make them soonest.`\
+**Editors’ Note**\
+`This article was published prematurely. It will be available on 1/31/2021`\
 https://nytimes.com/2021/01/27/dining/what-to-cook-this-week.html?searchResultPosition=3
 
 **On Keegan-Michael Key’s Podcast, a Provocative Case for Sketch Comedy**\
