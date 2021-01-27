@@ -4,7 +4,7 @@ https://nytimes.com/2021/01/27/movies/academy-awards-history.html?searchResultPo
 
 **Mahwah, N.J.: Plenty of Open Space and Easy Access to Manhattan**\
 `As one resident said of this Bergen County township, ‘The magic is the parkland, and how close it is to the city.’ Also, there’s a ski slope.`\
-https://nytimes.com/2021/01/27/realestate/living-in-mahwah-nj-open-space-skiing-access-to-manhattan.html?searchResultPosition=2
+https://nytimes.com/2021/01/27/realestate/mahwah-nj.html?searchResultPosition=2
 
 **Living In ... Mahwah, N.J.**\
 `As one resident said of this Bergen County township, ‘The magic is the parkland, and how close it is to the city.’ Also, there’s a ski slope.`\
