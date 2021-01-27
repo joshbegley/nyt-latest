@@ -7,7 +7,7 @@ https://nytimes.com/2021/01/27/arts/design/4-art-gallery-shows-to-see-right-now.
 https://nytimes.com/video/us/politics/100000007573563/white-house-coronavirus-briefing.html?searchResultPosition=2
 
 **Britain Will Make Citizens Quarantine at Hotels at Their Own Expense**\
-`The move, which comes as Britain is swamped by a fast-spreading variant of the coronavirus, will require British citizens arriving from 22-high-risk countries to quarantine for 10 days.`\
+`The move, which comes as Britain is swamped by a fast-spreading variant of the coronavirus, will require British citizens arriving from 22 high-risk countries to quarantine for 10 days.`\
 https://nytimes.com/2021/01/27/world/europe/britain-travel-quarantine-hotels.html?searchResultPosition=3
 
 **These Images Tell the Stories of American Blackness**\
