@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2021/01/27/nyregion/nyc-homeless-count.html?sear
 `By Megan Specia`\
 https://nytimes.com/2021/01/27/world/holocaust-remembrance-vaccines.html?searchResultPosition=9
 
-**Watch Live: White House Holds Coronavirus Briefing**\
-`President Biden’s top coronavirus advisers will hold a public briefing on the White House’s response to the pandemic.`\
-https://nytimes.com/video/us/politics/100000007573269/white-house-covid-video.html?searchResultPosition=10
+**Watch: White House Hold Coronavirus Briefing**\
+`President Biden’s top coronavirus advisers held a public briefing on the White House’s response to the pandemic.`\
+https://nytimes.com/video/embedded/us/politics/100000007573269/white-house-covid-video.html?searchResultPosition=10
 
