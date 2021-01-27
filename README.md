@@ -1,40 +1,40 @@
-**How Gov. Kristi Noem Rebranded Her Failures as ‘Freedom’**\
-`South Dakota’s public health isn’t a matter of “personal responsibility.” It’s her job.`\
-https://nytimes.com/video/opinion/100000007491399/kristi-noem-south-dakota-coronavirus.html?searchResultPosition=1
+**The First Oscar Ceremony Lasted 15 Minutes. What Happened?**\
+`There were no cameras or radio mics and just one speech. Even when it moved to TV, the show could be under two hours. When expectations set in, so did bloat.`\
+https://nytimes.com/2021/01/27/movies/academy-awards-history.html?searchResultPosition=1
 
-**Lesson of the Day: ‘To Study Blinking, a Scientist Needed a Literal Bird’s Eye View’**\
-`In this lesson, students will discover how scientists develop questions and design creative ways to answer them. Then they will pose their own queries and hypotheses to test and study.`\
-https://nytimes.com/2021/01/27/learning/lesson-of-the-day-to-study-blinking-a-scientist-needed-a-literal-birds-eye-view.html?searchResultPosition=2
+**Mahwah, N.J.: Plenty of Open Space and Easy Access to Manhattan**\
+`As one resident said of this Bergen County township, ‘The magic is the parkland, and how close it is to the city.’ Also, there’s a ski slope.`\
+https://nytimes.com/2021/01/27/realestate/living-in-mahwah-nj-open-space-skiing-access-to-manhattan.html?searchResultPosition=2
 
-**‘Thinking of You Today’: The Texts That Helped Me Mourn the Oklahoma State Crash**\
-`Reflecting on the 2001 plane crash that killed 10 people, including two players and six others associated with the men’s basketball program.`\
-https://nytimes.com/2021/01/27/sports/ncaabasketball/oklahoma-state-crash.html?searchResultPosition=3
+**Living In ... Mahwah, N.J.**\
+`As one resident said of this Bergen County township, ‘The magic is the parkland, and how close it is to the city.’ Also, there’s a ski slope.`\
+https://nytimes.com/slideshow/2021/01/27/realestate/living-in-mahwah-nj.html?searchResultPosition=3
 
-**Dessert Pile**\
-`What do you think this image is saying?`\
-https://nytimes.com/2021/01/27/learning/dessert-pile.html?searchResultPosition=4
+**13 New Books to Watch For in February**\
+`Show-business biographies of Mike Nichols and Tom Stoppard, environmental treatises by Bill Gates and Elizabeth Kolbert, debut novels of life online and more.`\
+https://nytimes.com/2021/01/27/books/new-february-books.html?searchResultPosition=4
 
-**Late Night Just Can’t Quit Trump**\
-`If America can’t move on until the second impeachment trial is over, then neither can Stephen Colbert and his colleagues.`\
-https://nytimes.com/2021/01/27/arts/television/late-night-trump-impeachment.html?searchResultPosition=5
+**Truckers Shun U.K. Ports to Avoid Brexit Red Tape**\
+`British ports expected gridlock after post-Brexit trade rules began on Jan. 1. Instead, some are nearly empty as truckers stay away, reluctant to spend hours waiting for newly required export documents.`\
+https://nytimes.com/2021/01/27/world/europe/truckers-shun-uk-ports-to-avoid-brexit-red-tape.html?searchResultPosition=5
 
-**Word + Quiz: vim**\
-`This word has appeared in seven articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/01/27/learning/word-quiz-vim.html?searchResultPosition=6
+**The Reality Behind Biden’s Plan to Legalize 11 Million Immigrants**\
+`The proposal for a path to citizenship for undocumented residents has been called “the boldest immigration agenda any administration has put forward in generations.” But is it possible?`\
+https://nytimes.com/2021/01/27/us/biden-undocumented-immigrants-citizenship.html?searchResultPosition=6
 
-**A Captivating New Picture Book Celebrates the ‘British Schindler’**\
-`In “Nicky & Vera,” Peter Sís tells the story of Nicholas Winton, who rescued 669 children from Czechoslovakia as World War II loomed.`\
-https://nytimes.com/2021/01/27/books/review/peter-sis-nicky-and-vera.html?searchResultPosition=7
+**What We Learned From Apple’s New Privacy Labels**\
+`Requiring that app makers list the data they collect reveals a lot about what some apps do with our information (ahem, WhatsApp) but creates confusion about others.`\
+https://nytimes.com/2021/01/27/technology/personaltech/apple-privacy-labels.html?searchResultPosition=7
 
-**Texas Hostage Standoff Ends With 2 Dead at Austin Medical Office**\
-`The police responded with a SWAT team, and gunshots and explosions were heard.`\
-https://nytimes.com/2021/01/27/us/austin-texas-hostage.html?searchResultPosition=8
+**With All Eyes on Covid-19, Drug-Resistant Infections Crept In**\
+`The spread of other dangerous germs is surging — a result, in part, of the chaotic response to the pandemic.`\
+https://nytimes.com/2021/01/27/health/covid-drug-resistant-infections.html?searchResultPosition=8
 
-**Groups Put French State on Legal Notice Over Police Racism**\
-`In a first, six nongovernmental organizations are taking legal steps to force an overhaul of the country’s policing.`\
-https://nytimes.com/2021/01/27/world/europe/france-police-racism.html?searchResultPosition=9
+**While You Weren’t Looking: Revised Airline Policies May Make Flying Better**\
+`Four years after a man was dragged from a plane, amended rules regarding involuntary bumping and oversold flights are about to be enacted. And there are more changes to come.`\
+https://nytimes.com/2021/01/27/travel/airlines-bumping-rules.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`Britain passes a grim pandemic milestone.`\
-https://nytimes.com/2021/01/27/briefing/coronavirus-brexit-putin-biden.html?searchResultPosition=10
+**MyPillow C.E.O.’s Trump Conspiracy Theories Put Company on the Spot**\
+`Retailers have stopped carrying its products, though Mike Lindell, the founder and face of MyPillow, blamed “cancel culture” and said he didn’t think it would last.`\
+https://nytimes.com/2021/01/27/business/mike-lindell-mypillow.html?searchResultPosition=10
 
