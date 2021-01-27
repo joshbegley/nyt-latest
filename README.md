@@ -2,7 +2,7 @@
 `In this lesson, students will discover how scientists develop questions and design creative ways to answer them. Then they will pose their own queries and hypotheses to test and study.`\
 https://nytimes.com/2021/01/27/learning/lesson-of-the-day-to-study-blinking-a-scientist-needed-a-literal-birds-eye-view.html?searchResultPosition=1
 
-**‘Thinking of You Today’: The Texts That Helped Me Grieve the Oklahoma State Crash**\
+**‘Thinking of You Today’: The Texts That Helped Me Mourn the Oklahoma State Crash**\
 `Reflecting on the 2001 plane crash that killed 10 people, including two players and six others associated with the men’s basketball program.`\
 https://nytimes.com/2021/01/27/sports/ncaabasketball/oklahoma-state-crash.html?searchResultPosition=2
 
