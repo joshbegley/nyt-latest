@@ -1,5 +1,5 @@
-**One Year Later, Doomsday Clock Says World Is Still 100 Seconds From Disaster**\
-`The Bulletin of the Atomic Scientists said the clock’s position would remain unchanged from 2020, when its hands were set as close as they had ever been to a catastrophic midnight.`\
+**One Year Later, Doomsday Clock Says World Is Still ‘100 Seconds’ From Disaster**\
+`The Bulletin of the Atomic Scientists said the clock’s position would remain unchanged from 2020, when its hands were set as close as they had ever been to a catastrophic “midnight.”`\
 https://nytimes.com/2021/01/27/us/doomsday-clock-midnight.html?searchResultPosition=1
 
 **Climate Change, Capitol Hill, Cloris Leachman: Your Wednesday Evening Briefing**\
