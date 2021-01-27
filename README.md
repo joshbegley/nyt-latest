@@ -1,5 +1,5 @@
 **India’s Farmer Protests Explained**\
-`Thousands of protesters, many driving tractors and riding horses, took to the streets of New Delhi on Tuesday. Who are they, and what do they want?`\
+`Thousands of protesters, many driving tractors, took to the streets of New Delhi on Tuesday. Who are they, and what do they want?`\
 https://nytimes.com/2021/01/27/world/asia/india-farmer-protest.html?searchResultPosition=1
 
 **New Yorkers Can’t Find Parking. For Bikes.**\
