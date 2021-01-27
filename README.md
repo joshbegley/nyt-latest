@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/26/us/filibuster-senate.html?searchResultPosition=3
 
 **She’s a Chinese Pop Star With Millions of Fans. Her Latest Hit Is About Domestic Abuse.**\
 `A song about real cases of violence against women in China has resonated with millions across the country and sparked an outpouring of stories and discussion on social media.`\
-https://nytimes.com/2021/01/26/us/domestic-violence-China-Tan-Weiwei.html?searchResultPosition=4
+https://nytimes.com/2021/01/26/us/domestic-violence-china-tan-weiwei.html?searchResultPosition=4
 
 **Christina Crosby, 67, Dies; Feminist Scholar Wrote of Becoming Disabled**\
 `After a bicycle accident left her paralyzed, she wrote a memoir, “A Body, Undone,” which refused to draw tidy lessons about overcoming hardship.`\
