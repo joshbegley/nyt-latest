@@ -19,7 +19,7 @@ https://nytimes.com/video/us/politics/100000007572222/senate-impeachment-donald-
 https://nytimes.com/2021/01/26/us/politics/republicans-impeachment-trump.html?searchResultPosition=5
 
 **Biden Pledges to Speed Flow of Vaccines to the States**\
-`President Biden said the amount of coronavirus vaccines reaching the states would rise next week and a deal was near to provide enough shots to vaccinate nearly all Americans by the end of summer.`\
+`President Biden said the number of coronavirus vaccines reaching the states would rise next week and a deal was near to provide enough shots to vaccinate nearly all Americans by the end of summer.`\
 https://nytimes.com/2021/01/26/us/politics/biden-coronavirus-vaccines.html?searchResultPosition=6
 
 **Cheech Marin’s Chicano Art Museum Is to Open This Fall**\
