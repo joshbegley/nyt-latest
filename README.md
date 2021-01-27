@@ -19,7 +19,7 @@ https://nytimes.com/2021/01/27/briefing/coronavirus-brexit-putin-biden.html?sear
 https://nytimes.com/2021/01/27/world/europe/EU-UK-vaccine-fight.html?searchResultPosition=5
 
 **Police Officer Is Shot While Chasing Armed Man in the Bronx**\
-`The officer was in stable condition at Jacobi Medical Center, and a person was in custody, the police said.`\
+`The officer, part of a unit that combats gun violence, was hospitalized in stable condition, and a person was in custody, the police said.`\
 https://nytimes.com/2021/01/27/nyregion/nypd-officer-shot-bronx.html?searchResultPosition=6
 
 **Mellon Foundation to Fund Diversity Programs at Library of Congress**\
