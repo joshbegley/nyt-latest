@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2021/01/27/us/us-coronavirus-deaths-rate.html?searchResultPosition=1
 
 **Tesla reports first full-year profit as sales of electric cars jump.**\
-`By Neal E. Boudette`\
+`Tesla’s transformation from a company that lost large sums of money every year has been made possible in large part by rising sales in China and Europe.`\
 https://nytimes.com/2021/01/27/business/tesla-full-year-profit.html?searchResultPosition=2
 
 **John Kerry Addresses New Role as U.S. Climate Envoy**\
