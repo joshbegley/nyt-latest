@@ -6,7 +6,7 @@ https://nytimes.com/2021/01/27/world/asia/india-farmer-protest.html?searchResult
 `The uptick in cycling during the pandemic has shined a light on the problem.`\
 https://nytimes.com/2021/01/27/nyregion/bike-parking-nyc.html?searchResultPosition=2
 
-**No More Lies. My Grandfather Was a Nazi**\
+**No More Lies. My Grandfather Was a Nazi.**\
 `In Lithuania, he was celebrated as a hero. But we can’t move on until we admit what he really did.`\
 https://nytimes.com/2021/01/27/opinion/jonas-noreika-lithuania-nazi-collaborator.html?searchResultPosition=3
 
