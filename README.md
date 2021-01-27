@@ -6,7 +6,7 @@ https://nytimes.com/2021/01/27/books/christopher-little-dead.html?searchResultPo
 `The president doesn’t want to eliminate the Senate’s 60-vote threshold, an impediment to major legislation. Left-leaning Democrats disagree, but they’re holding their fire for now.`\
 https://nytimes.com/2021/01/27/us/politics/biden-filibuster.html?searchResultPosition=2
 
-**Cloris Leachman, Oscar Winner and TV Comedy Star, Dies**\
+**Cloris Leachman, Oscar Winner and TV Comedy Star, Is Dead at 94**\
 `“The Last Picture Show” made her a star, but she may be best remembered for drawing laughs on “Mary Tyler Moore,” “Phyllis” and “Malcolm in the Middle.”`\
 https://nytimes.com/2021/01/27/arts/television/cloris-leachman-dead.html?searchResultPosition=3
 
