@@ -23,7 +23,7 @@ https://nytimes.com/2021/01/27/climate/jennifer-granholm-senate-confirmation.htm
 https://nytimes.com/2021/01/27/us/california-virus-variant.html?searchResultPosition=6
 
 **GameStop’s stock continues to soar, as small traders team up against big institutions.**\
-`GameStop surges as small traders team up against big institutions`\
+`GameStop’s market capitalization is now more than $10 billion, thanks to an army of small traders spurred on by a Reddit message board`\
 https://nytimes.com/2021/01/27/business/gamestop-stock.html?searchResultPosition=7
 
 **Weston County, Wyoming Covid Case and Risk Tracker**\
