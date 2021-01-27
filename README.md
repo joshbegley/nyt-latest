@@ -2,7 +2,7 @@
 `Britain passes a grim pandemic milestone.`\
 https://nytimes.com/2021/01/27/briefing/coronavirus-brexit-putin-biden.html?searchResultPosition=1
 
-**‘Solidarity is Failing’: E.U. and U.K. Fight Over Scarce Vaccines**\
+**‘Solidarity Is Failing’: E.U. and U.K. Fight Over Scarce Vaccines**\
 `As vaccine production falls behind schedule, and the European Union lags in inoculating people, Brussels and London are lobbing threats and accusations at each other.`\
 https://nytimes.com/2021/01/27/world/europe/EU-UK-vaccine-fight.html?searchResultPosition=2
 
