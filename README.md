@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/28/business/robinhood-gamestop-restrictions.html?sea
 `The Lessingtage theater festival, held online this year because of the pandemic, shows some of Europe’s finest performers, in classic plays by Brecht, Schiller, Ibsen and others.`\
 https://nytimes.com/2021/01/28/theater/lessingtage-digital-thalia-theater-hamburg.html?searchResultPosition=6
 
-**GameStop plunges after platforms place more restrictions on trading.**\
+**GameStop slides after platforms place more restrictions on trading.**\
 `Robinhood said it had placed more restrictions on trades of stocks like GameStop, limiting users to only selling shares they owned and buying shares they had shorted.`\
 https://nytimes.com/2021/01/28/business/gamestop-stock-robinhood-restrictions.html?searchResultPosition=7
 
