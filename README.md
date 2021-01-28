@@ -7,7 +7,7 @@ https://nytimes.com/2021/01/28/arts/design/aperture-foundation-sarah-meister.htm
 https://nytimes.com/2021/01/28/movies/best-cloris-leachman-streaming.html?searchResultPosition=2
 
 **G.M. says it aims to only sell zero-emission vehicles by 2035.**\
-`By Neal E. Boudette`\
+`The move is a piece of a broader plan by the U.S. automaker to become carbon neutral by 2040.`\
 https://nytimes.com/2021/01/28/business/gm-zero-emission-vehicles.html?searchResultPosition=3
 
 **What’s Going On in This Graph? | Feb. 3, 2021**\
