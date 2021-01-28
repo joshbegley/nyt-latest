@@ -1,4 +1,4 @@
-**German Neo-Nazi Sentenced to Life for Murder of Politician**\
+**German Neo-Nazi Sentenced to Life for Murder of Merkel Ally**\
 `The 2019 killing appeared to be the country’s first political assassination by a far-right extremist since the end of World War II.`\
 https://nytimes.com/2021/01/28/world/europe/germany-walter-lubke-murder-sentence.html?searchResultPosition=1
 
