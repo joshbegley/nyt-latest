@@ -22,19 +22,19 @@ https://nytimes.com/2021/01/28/world/americas/biden-immigration-reform.html?sear
 `Speaker Nancy Pelosi condemned House Republican leaders on Thursday after they named Representative Marjorie Taylor Greene to serve on the Education and Labor Committee. Ms. Greene supported the QAnon movement and other conspiracies.`\
 https://nytimes.com/video/us/politics/100000007575649/nancy-pelosi-marjorie-taylor-greene.html?searchResultPosition=6
 
+**The variant that emerged in South Africa is reported in the U.S. for the first time.**\
+`By Karen Zraick`\
+https://nytimes.com/2021/01/28/us/covid-south-africa-variant-south-carolina.html?searchResultPosition=7
+
 **A Famous Prada Print, Back With a Twist**\
 `Inspired by Formica-tiled countertops from the 1950s, one of the motifs from the brand’s spring 1996 show has been put to new use.`\
-https://nytimes.com/2021/01/28/t-magazine/prada-print-formica.html?searchResultPosition=7
+https://nytimes.com/2021/01/28/t-magazine/prada-print-formica.html?searchResultPosition=8
 
 **Overlooked No More: Jay Jaxon, Pioneering Black Designer of French Couture**\
 `He worked in fashion houses like Jean-Louis Scherrer, Yves Saint Laurent and Christian Dior and dressed Annie Lennox, Thelma Houston and other stars.`\
-https://nytimes.com/2021/01/28/obituaries/jay-jaxon-overlooked.html?searchResultPosition=8
+https://nytimes.com/2021/01/28/obituaries/jay-jaxon-overlooked.html?searchResultPosition=9
 
 **Ella Emhoff Gets a Major Modeling Contract**\
 `The second daughter follows the inauguration poet Amanda Gorman to IMG.`\
-https://nytimes.com/2021/01/28/fashion/ella-emhoff-model-img.html?searchResultPosition=9
-
-**Sundance 2021 Guide: Bundle Up and Settle in on Your Sofa**\
-`Now that the film festival has gone virtual, you can watch like an insider. But where do you start? If you liked previous hits from Park City, try these new entries.`\
-https://nytimes.com/2021/01/28/movies/sundance-film-festival-guide.html?searchResultPosition=10
+https://nytimes.com/2021/01/28/fashion/ella-emhoff-model-img.html?searchResultPosition=10
 
