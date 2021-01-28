@@ -27,7 +27,7 @@ https://nytimes.com/2021/01/28/arts/television/stephen-colbert-biden-coronavirus
 https://nytimes.com/2021/01/28/learning/word-quiz-befuddle.html?searchResultPosition=7
 
 **Thailand Legalizes Early-Term Abortions but Keeps Other Restrictions**\
-`Women who end a pregnancy after 12 weeks could still face prison or fines. Abortion rights advocates claimed a partial victory.`\
+`Women who end a pregnancy after 12 weeks could still face prison or fines. Abortion rights advocates say more change is needed.`\
 https://nytimes.com/2021/01/28/world/asia/thailand-abortion-rights.html?searchResultPosition=8
 
 **‘It’s Still Getting Worse.’ Inside Britain’s Vicious Second Wave.**\
