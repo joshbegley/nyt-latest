@@ -7,8 +7,8 @@ https://nytimes.com/2021/01/28/fashion/ella-emhoff-model-img.html?searchResultPo
 https://nytimes.com/2021/01/28/movies/sundance-film-festival-guide.html?searchResultPosition=2
 
 **Robinhood and other brokers curb trading for a second day.**\
-`By Tara Siegel Bernard and Gillian Friedman`\
-https://nytimes.com/2021/01/28/business/robinhood-and-other-brokers-curb-trading-for-a-second-day.html?searchResultPosition=3
+`Several popular trading platforms had already curbed trading activities in certain stocks, including GameStop and AMC Entertainment Holdings, the movie theater chain.`\
+https://nytimes.com/2021/01/28/business/robinhood-gamestop-restrictions.html?searchResultPosition=3
 
 **Great Stage Acting Shines Through, Even From a Laptop Screen**\
 `The Lessingtage theater festival, held online this year because of the pandemic, shows some of Europe’s finest performers, in classic plays by Brecht, Schiller, Ibsen and others.`\
