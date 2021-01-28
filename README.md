@@ -2,7 +2,7 @@
 `Does this kind of positive thinking help you find hope in the face of uncertainty? Or is it just too unrealistic?`\
 https://nytimes.com/2021/01/28/learning/do-you-believe-in-manifesting.html?searchResultPosition=1
 
-**Biathlon’s Report on Its Former Leaders**\
+**Read Biathlon’s Report on Its Former Leaders**\
 `A report commissioned by the International Biathlon Union said its former president, Anders Besseberg, accepted gifts from Russians — including cash, hunting trips and the services of prostitutes — and then publicly defended the country, its athletes and its interests.`\
 https://nytimes.com/interactive/2021/01/28/us/biathlon-report-russia-besseberg.html?searchResultPosition=2
 
