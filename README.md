@@ -12,7 +12,7 @@ https://nytimes.com/2021/01/28/technology/facebook-earnings-reputation.html?sear
 
 **Watch Live: Biden Signs Executive Orders on Health Care**\
 `President Biden is expected to sign executive orders expanding access to health care through the Affordable Care Act and expand abortion access.`\
-https://nytimes.com/video/us/politics/100000007575812/watch-live-biden-health-care.html?searchResultPosition=4
+https://nytimes.com/video/embedded/us/politics/100000007575812/watch-live-biden-health-care.html?searchResultPosition=4
 
 **Monolith Mania Comes to Chelsea**\
 `Why has this relatively simple form of sculpture been so fraught with meaning and symbolism over the centuries? The Kasmin Gallery has some ideas.`\
