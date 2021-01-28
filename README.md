@@ -1,40 +1,40 @@
-**German Neo-Nazi Sentenced to Life for Murder of Merkel Ally**\
-`The 2019 killing appeared to be the country’s first political assassination by a far-right extremist since the end of World War II.`\
-https://nytimes.com/2021/01/28/world/europe/germany-walter-lubke-murder-sentence.html?searchResultPosition=1
+**Vaccination Day at Dodger Stadium: Hours of Traffic and 7,730 Shots**\
+`The lines at Los Angeles’s mass vaccination site are a portrait of the city. Men on motorcycles. Bangladeshi merchants. Retired record-company executives. Latina health care workers. Arnold Schwarzenegger.`\
+https://nytimes.com/2021/01/28/us/los-angeles-vaccinations-garcetti.html?searchResultPosition=1
 
-**Hunting Trips, Sex and Cash: How Grooming Biathlon’s Leader Paid Off for Russia**\
-`An investigation accuses biathlon’s longtime president of accepting gifts from Russians and then doing the country’s bidding as a doping scandal swirled.`\
-https://nytimes.com/2021/01/28/sports/olympics/biathlon-russia-doping-besseberg.html?searchResultPosition=2
+**So You Want to Open a Hotel? Now?**\
+`Some new hotels and inns are thriving during these trying times by doubling-down on the local market, creating escapist atmospheres and employing other, almost unheard-of tactics.`\
+https://nytimes.com/2021/01/28/travel/virus-new-hotels-opening.html?searchResultPosition=2
 
-**To Avoid an Outbreak, China Cancels Lunar New Year for Millions of Migrants**\
-`China has added restrictions, offered incentives and appealed to a sense of filial and national responsibility, in an effort to prevent about 300 million migrant workers from going home for the holiday.`\
-https://nytimes.com/2021/01/28/world/asia/china-coronavirus-new-year.html?searchResultPosition=3
+**The Story of John Young, the Original King of Buffalo Wings**\
+`His restaurants closed and his glory faded, but a historical reclamation effort is bringing new attention to the secret sauce he perfected.`\
+https://nytimes.com/2021/01/28/dining/buffalo-wings-john-young.html?searchResultPosition=3
 
-**With Use of Only One Arm, a Snowboarder Speeds to Success**\
-`Kiana Clay, who lost use of her dominant arm in an accident, is a fast-rising star who is pushing for inclusion in the 2022 Paralympics.`\
-https://nytimes.com/2021/01/28/sports/olympics/kiana-clay-snowboarding-paralympics.html?searchResultPosition=4
+**Why Pennsylvania Republican Leaders Are All-In for Trump More Than Ever**\
+`Pennsylvania G.O.P. leaders have made loyalty to the defeated ex-president the sole organizing principle of the party, and would-be candidates are jockeying to prove they fought the hardest for him.`\
+https://nytimes.com/2021/01/28/us/politics/pennsylvania-republicans-trump.html?searchResultPosition=4
 
-**Is the Salary Cap a Myth?**\
-`A Super Bowl matchup between the Kansas City Chiefs and the Tampa Bay Buccaneers should not be fiscally possible on paper, but here we are.`\
-https://nytimes.com/2021/01/28/sports/football/NFL-salary-cap-chiefs-buccaneers.html?searchResultPosition=5
+**How the Coronavirus Turns the Body Against Itself**\
+`Some patients struggling with Covid-19 develop antibodies against their own tissues, scientists have found.`\
+https://nytimes.com/2021/01/28/health/coronavirus-antibodies-immunity.html?searchResultPosition=5
 
-**Sea Shanty**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2021/01/28/learning/sea-shanty.html?searchResultPosition=6
+**Here’s What We Would Nominate for Best Picture**\
+`It was a weird year for cinema, but there were plenty of great films. It would be an honor to see these get a nod.`\
+https://nytimes.com/2021/01/28/movies/best-picture-oscar.html?searchResultPosition=6
 
-**Stephen Colbert Is Thrilled to Have a President With a Plan**\
-`“Yesterday, President Biden announced a dramatic change to America’s Covid plan: There is one,” Colbert said on Wednesday.`\
-https://nytimes.com/2021/01/28/arts/television/stephen-colbert-biden-coronavirus-vaccine.html?searchResultPosition=7
+**‘The Capitol Insurrection Was as Christian Nationalist as It Gets.’**\
+`Religious resentment has become a potent recruiting tool for the hard right.`\
+https://nytimes.com/2021/01/28/opinion/christian-nationalists-capitol-attack.html?searchResultPosition=7
 
-**Word + Quiz: befuddle**\
-`This word has appeared in four articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/01/28/learning/word-quiz-befuddle.html?searchResultPosition=8
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually.`\
+https://nytimes.com/2021/01/28/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=8
 
-**Thailand Legalizes Early-Term Abortions but Keeps Other Restrictions**\
-`Women who end a pregnancy after 12 weeks could still face prison or fines. Abortion rights advocates say more change is needed.`\
-https://nytimes.com/2021/01/28/world/asia/thailand-abortion-rights.html?searchResultPosition=9
+**The Supreme Court Upheld Trump’s Muslim Ban. Let’s Not Forget That.**\
+`The decision offers a warning for the future.`\
+https://nytimes.com/2021/01/28/opinion/supreme-court-muslim-ban.html?searchResultPosition=9
 
-**‘It’s Still Getting Worse.’ Inside Britain’s Vicious Second Wave.**\
-`By Lynsey Addario`\
-https://nytimes.com/2021/01/28/opinion/britain-covid-deaths-hospitals.html?searchResultPosition=10
+**From Michael Lewis, a ‘Superhero Story’ About the Pandemic**\
+`The author of “The Big Short” and “Moneyball” takes on a frightening subject in his new book “The Premonition”: how to prevent a viral outbreak even worse than Covid-19.`\
+https://nytimes.com/2021/01/28/books/michael-lewis-premonition-coronavirus-pandemic.html?searchResultPosition=10
 
