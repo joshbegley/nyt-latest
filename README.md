@@ -14,8 +14,8 @@ https://nytimes.com/2021/01/28/movies/saint-maud-review.html?searchResultPositio
 `Facebook is embroiled in a different scandal each week, and yet, it’s making So Much Money.`\
 https://nytimes.com/2021/01/28/technology/facebook-earnings-reputation.html?searchResultPosition=4
 
-**Watch Live: Biden Signs Executive Orders on Health Care**\
-`President Biden is expected to sign executive orders expanding access to health care through the Affordable Care Act and expand abortion access.`\
+**Watch: Biden Signs Executive Orders on Health Care**\
+`President Biden signed executive orders expanding access to health care through the Affordable Care Act and expand abortion access.`\
 https://nytimes.com/video/embedded/us/politics/100000007575812/watch-live-biden-health-care.html?searchResultPosition=5
 
 **Monolith Mania Comes to Chelsea**\
