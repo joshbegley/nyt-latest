@@ -6,8 +6,8 @@ https://nytimes.com/2021/01/29/opinion/letters/election-reform.html?searchResult
 `Rangers and Celtic are so focused on beating one another that they may have lost sight of the future. In Brazil, two rivals enter the Copa Libertadores final toying with a new concept: coaching stability.`\
 https://nytimes.com/2021/01/29/sports/soccer/old-rivals-new-ideas-and-why-clubs-are-too-scared-to-try.html?searchResultPosition=2
 
-**Watch Live: White House Coronavirus Briefing**\
-`On Friday, The White House coronavirus response team and federal public health officials will hold a news briefing to discuss the status of the federal government’s pandemic response.`\
+**Watch Full Video: White House Coronavirus Briefing**\
+`On Friday, The White House coronavirus response team and federal public health officials held a news briefing to discuss the status of the federal government’s pandemic response.`\
 https://nytimes.com/video/us/politics/100000007577606/white-house-covid-video.html?searchResultPosition=3
 
 **Seeking Solace in Art**\
