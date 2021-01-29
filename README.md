@@ -26,15 +26,15 @@ https://nytimes.com/video/us/politics/100000007577991/cuomo-indoor-dining-covid-
 `The Metallica musician and our film critic have both spent their careers thinking about the creative process and how it’s received. They compared notes.`\
 https://nytimes.com/2021/01/29/movies/lars-ulrich-ao-scott.html?searchResultPosition=7
 
+**Columbia students go on tuition strike, saying online classes aren’t worth full price.**\
+`By Juliana Kim`\
+https://nytimes.com/2021/01/29/world/columbia-covid-tuition-strike.html?searchResultPosition=8
+
 **‘Likely Innocent’: Judge Frees Woman Jailed 15 Years in Child’s Death**\
 `Rosa Jimenez was imprisoned after being convicted of murder in the death of a toddler who choked on paper towels while she was babysitting him in 2003. Experts now say the death was accidental.`\
-https://nytimes.com/2021/01/29/us/rosa-jimenez-released.html?searchResultPosition=8
+https://nytimes.com/2021/01/29/us/rosa-jimenez-released.html?searchResultPosition=9
 
 **Grape-Nuts, Supermarket Mainstay, Is No Longer So Easy to Find**\
 `A supply shortage of the venerable, if polarizing, cereal has customers scouring online for boxes, sometimes listed at inflated prices.`\
-https://nytimes.com/2021/01/29/business/grape-nuts-shortage.html?searchResultPosition=9
-
-**New York City Sets ‘Aggressive Goal’ of 5 Million Vaccinations by June**\
-`Mayor Bill de Blasio said the city is aiming to vaccinate 5 million New Yorkers against Covid-19 by June. He also announced plans to bring city workers back to offices in May and reopen schools for all students in September.`\
-https://nytimes.com/video/nyregion/100000007577786/new-york-5-million-vaccines.html?searchResultPosition=10
+https://nytimes.com/2021/01/29/business/grape-nuts-shortage.html?searchResultPosition=10
 
