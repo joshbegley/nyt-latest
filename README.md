@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/29/opinion/letters/britain-covid.html?searchResultPosition=1
 
 **Hailed as a Trailblazer, Kim Ng Stands Alone**\
-`Major League Baseball hailed the hiring of a woman as a sign of progress on diversity in its executive ranks. Every comparable hire over the last two years has been a white man.`\
+`Major League Baseball celebrated the hiring of a woman as a sign of progress on diversity in its executive ranks. Every comparable hire over the last two years has been a white man.`\
 https://nytimes.com/2021/01/29/sports/baseball/mlb-diversity-kim-ng.html?searchResultPosition=2
 
 **U.S. Airstrike Kills Top ISIS Leader in Iraq**\
