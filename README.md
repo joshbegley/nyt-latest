@@ -1,4 +1,4 @@
-**Canadian Airlines Suspend Flights to the Caribbeans and Mexico**\
+**Canadian Airlines Suspend Flights to the Caribbean and Mexico**\
 `Prime Minister Justin Trudeau of Canada announced on Friday that major airlines have agreed to suspend flights to sunny vacation spots as new coronavirus quarantine measures are put into place.`\
 https://nytimes.com/video/world/canada/100000007578231/canada-coronavirus-flight-cancellations.html?searchResultPosition=1
 
