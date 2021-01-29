@@ -6,9 +6,9 @@ https://nytimes.com/2021/01/29/arts/television/late-night-jimmy-kimmel-marjorie-
 `For Season 2 of the psychological chiller “Servant,” M. Night Shyamalan brought in his daughter Ishana to help write and direct. Must have been all those family horror-movie nights.`\
 https://nytimes.com/2021/01/29/arts/television/m-night-shyamalan-servant.html?searchResultPosition=2
 
-**Republican Ties to Extremist Groups Under Scrutiny**\
+**Republican Ties to Extremist Groups Are Under Scrutiny**\
 `A number of members of Congress have links to organizations and movements that played a role in the Jan. 6 assault on the Capitol.`\
-https://nytimes.com/2021/01/29/us/republican-ties-to-extremist-groups-under-scrutiny.html?searchResultPosition=3
+https://nytimes.com/2021/01/29/us/republican-ties-to-extremist-groups-are-under-scrutiny.html?searchResultPosition=3
 
 **Still Looking for a New Gaming Console? Here’s Why**\
 `A month after the holiday season, gamers are still contending with scalpers, bots and immense demand as they hunt for elusive devices.`\
