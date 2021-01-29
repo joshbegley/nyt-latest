@@ -1,6 +1,6 @@
 **The Other Coup**\
 `We can have democracy, or we can have a surveillance society, but we cannot have both.`\
-https://nytimes.com/2021/01/29/opinion/sunday/the-other-coup.html?searchResultPosition=1
+https://nytimes.com/2021/01/29/opinion/sunday/surveillance-society-technology.html?searchResultPosition=1
 
 **Who is Aleksei Navalny?**\
 `How we told the story of the Russian opposition leader on one of the most important weeks of his life. Plus, what to listen to this weekend.`\
