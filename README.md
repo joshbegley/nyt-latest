@@ -2,7 +2,7 @@
 `We can have democracy, or we can have a surveillance society, but we cannot have both.`\
 https://nytimes.com/2021/01/29/opinion/sunday/the-other-coup.html?searchResultPosition=1
 
-**The Daily: Who is Aleksei Navalny?**\
+**Who is Aleksei Navalny?**\
 `How we told the story of the Russian opposition leader on one of the most important weeks of his life. Plus, what to listen to this weekend.`\
 https://nytimes.com/2021/01/29/podcasts/podcasts-recommendations-aleksei-navalny.html?searchResultPosition=2
 
@@ -27,7 +27,7 @@ https://nytimes.com/2021/01/29/business/grape-nuts-shortage.html?searchResultPos
 https://nytimes.com/video/nyregion/100000007577786/new-york-5-million-vaccines.html?searchResultPosition=7
 
 **Electric Cars Are Coming, and Fast. Is the Nation’s Grid Up to It?**\
-`GM’s decision this week to phase out gasoline vehicles is the latest in a major shift that will mean dramatic new demands on electric utilities. Here are four things that will need to happen.`\
+`GM’s decision this week to phase out gasoline vehicles is the latest in a major shift that will mean drastic new demands on electric utilities. Here are four things that will need to happen.`\
 https://nytimes.com/2021/01/29/climate/gm-electric-cars-power-grid.html?searchResultPosition=8
 
 **Benefits of Acting Now on Relief ‘Far Outweigh the Costs,’ Yellen Says**\
