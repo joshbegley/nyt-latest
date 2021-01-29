@@ -22,7 +22,7 @@ https://nytimes.com/2021/01/29/opinion/letters/biden-climate.html?searchResultPo
 `A breakneck performance by Joseph Potter as an embittered former prodigy carries this unnerving monologue from Philip Ridley.`\
 https://nytimes.com/2021/01/29/theater/the-poltergeist-review-philip-ridley.html?searchResultPosition=6
 
-**W.H.O Delivers Update on China Visit**\
+**W.H.O. Delivers Update on China Visit**\
 `On Friday, the World Health Organization reviewed the details of its investigation into the origin of the coronavirus in China, and what it hopes to learn from the visit.`\
 https://nytimes.com/video/world/asia/100000007578119/who-china-coronavirus-investigation-orgin.html?searchResultPosition=7
 
