@@ -31,7 +31,7 @@ https://nytimes.com/video/us/politics/100000007577897/fauci-vaccine-virus-strain
 https://nytimes.com/2021/01/29/theater/tony-awards-voting.html?searchResultPosition=8
 
 **Vaccine Rollout Gives U.K. a Rare Win in Battling Pandemic**\
-`“Vaccination is the one thing we’ve gotten right.” How a country that botched so much of its pandemic response has managed one the fastest rollouts in the world.`\
+`“Vaccination is the one thing we’ve gotten right.” How a country that botched so much of its pandemic response has managed one of the fastest rollouts in the world.`\
 https://nytimes.com/2021/01/29/world/vaccine-rollout-gives-uk-a-rare-win-in-battling-pandemic.html?searchResultPosition=9
 
 **Former U.S. Climate Leaders Press Biden on Amazon Deforestation**\
