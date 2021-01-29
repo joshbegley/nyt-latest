@@ -27,7 +27,7 @@ https://nytimes.com/interactive/2021/01/28/espanol/opinion/migrantes-retornados-
 https://nytimes.com/2021/01/28/obituaries/cicely-tyson-dead.html?searchResultPosition=7
 
 **How Mayor de Blasio Plans to Lead the City Out of the Pandemic**\
-`The mayor announced an ambitious plan to help New York City recover,  including vaccinating five million residents by June.`\
+`The mayor announced an ambitious plan to help New York City recover, including vaccinating five million residents by June.`\
 https://nytimes.com/2021/01/28/nyregion/coronavirus-recovery-nyc-mayor.html?searchResultPosition=8
 
 **A Washington hospital system apologizes after offering vaccines to wealthy donors.**\
