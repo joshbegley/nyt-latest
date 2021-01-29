@@ -1,4 +1,4 @@
-**State of the Virus: Cases Decline, but Death Rates Still High**\
+**The State of the Virus: Cases Decline, but Death Rates Are Still High**\
 `A look at this week’s news from the team tracking the coronavirus.`\
 https://nytimes.com/interactive/2021/01/29/us/coronavirus-this-week.html?searchResultPosition=1
 
