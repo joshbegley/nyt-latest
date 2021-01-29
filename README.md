@@ -1,40 +1,40 @@
-**Tracking Coronavirus Vaccinations Around the World**\
-`More than 84,900,000 vaccine doses have been administered worldwide, equal to 1.1 doses for every 100 people.`\
-https://nytimes.com/interactive/2021/world/covid-vaccinations-tracker.html?searchResultPosition=1
+**Art Deco Dominates the High Jewelry Season**\
+`Inspired by an era that was both opulent and radically simple, houses like Van Cleef & Arpels and Boucheron mined their archives for new creations.`\
+https://nytimes.com/2021/01/29/fashion/jewelry-paris-couture.html?searchResultPosition=1
 
-**How The New York Times for Kids Explains the Capitol Attack**\
-`The monthly section devoted to children started by following one of its principles: Don’t sugarcoat the news`\
-https://nytimes.com/2021/01/29/insider/explaining-capitol-attack-kids.html?searchResultPosition=2
+**Spotlight on Old Houses**\
+`Instagram and fans of painstaking renovations have given new life to homes with some history, especially if they’re affordable.`\
+https://nytimes.com/2021/01/29/realestate/instagram-old-houses.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Black, Deaf and Extremely Online’**\
-`In this lesson, students will learn about the history of Black American Sign Language and why it is getting renewed attention today.`\
-https://nytimes.com/2021/01/29/learning/lesson-of-the-day-black-deaf-and-extremely-online.html?searchResultPosition=3
+**Saving Old Houses**\
+`People who restore old houses will tell you that “every slanted floor and ding in the woodwork tells a story.”`\
+https://nytimes.com/slideshow/2021/01/29/realestate/saving-old-houses.html?searchResultPosition=3
 
-**Mexico’s death toll becomes the world’s third highest, surpassing India’s.**\
-`As of Friday, Mexico had recorded 155,145 coronavirus deaths and more than 1.8 million cases. President Andrés Manuel López Obrador has downplayed the threat of the virus.`\
-https://nytimes.com/2021/01/28/world/mexico-coronavirus-deaths.html?searchResultPosition=4
+**Join Us in Miami! Love, Masters of the Universe**\
+`Silicon Valley techies and Wall Street titans have bought homes and moved businesses there in the pandemic, coaxed by an eager mayor.`\
+https://nytimes.com/2021/01/29/technology/join-us-in-miami-love-masters-of-the-universe.html?searchResultPosition=4
 
-**Jimmy Kimmel Thinks Marjorie Taylor Greene Needs an Education**\
-`“If you don’t know who this person is, I wish I didn’t, too,” Kimmel said of the QAnon enthusiast who’s been named to the House Education and Labor Committee.`\
-https://nytimes.com/2021/01/29/arts/television/late-night-jimmy-kimmel-marjorie-taylor-greene.html?searchResultPosition=5
+**‘Bridgerton’ Has Nothing on the Couture**\
+`Men at Valentino and Fendi. Movies at Dior. A horse at Chanel. Thank goodness for the disruption amid the very fancy clothes.`\
+https://nytimes.com/2021/01/29/fashion/bridgerton-has-nothing-on-the-couture.html?searchResultPosition=5
 
-**The Shyamalan Secret to Being Scary? It’s in the Blood**\
-`For Season 2 of the psychological chiller “Servant,” M. Night Shyamalan brought in his daughter Ishana to help write and direct. Must have been all those family horror-movie nights.`\
-https://nytimes.com/2021/01/29/arts/television/m-night-shyamalan-servant.html?searchResultPosition=6
+**How an Eight-Sided ‘Egg’ Ended Up in a Robin’s Nest**\
+`An experiment by evolutionary biologists offers new insights into birds’ brains.`\
+https://nytimes.com/2021/01/29/science/robin-eggs-nest.html?searchResultPosition=6
 
-**Republican Ties to Extremist Groups Are Under Scrutiny**\
-`A number of members of Congress have links to organizations and movements that played a role in the Jan. 6 assault on the Capitol.`\
-https://nytimes.com/2021/01/29/us/republican-ties-to-extremist-groups-are-under-scrutiny.html?searchResultPosition=7
+**Can Cute Windows Resurrect a Depressed Town in Upstate New York?**\
+`A project in Cherry Valley, a longtime artists’ haven, is brightening storefronts and telling the world, “We’re still here!”`\
+https://nytimes.com/2021/01/29/nyregion/cherry-valley-new-york-windows.html?searchResultPosition=7
 
-**Still Looking for a New Gaming Console? Here’s Why**\
-`A month after the holiday season, gamers are still contending with scalpers, bots and immense demand as they hunt for elusive devices.`\
-https://nytimes.com/2021/01/29/business/ps5-xbox-console-shortage.html?searchResultPosition=8
+**An Online Site Emphasizes the Jewelry**\
+`Founders of Finematter.com say gems shouldn’t be sold the same way as T-shirts or shoes.`\
+https://nytimes.com/2021/01/29/fashion/jewelry-online-sales-finematter.html?searchResultPosition=8
 
-**What’s in a Name?**\
-`What are some of your favorite names?`\
-https://nytimes.com/2021/01/29/learning/whats-in-a-name.html?searchResultPosition=9
+**Inside a Pro-Huawei Influence Campaign**\
+`A covert online push to sway telecommunications policy in favor of the Chinese company may presage a new twist in social manipulation.`\
+https://nytimes.com/2021/01/29/technology/commercial-disinformation-huawei-belgium.html?searchResultPosition=9
 
-**Word + Quiz: malarkey**\
-`This word has appeared in 32 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/01/29/learning/word-quiz-malarkey.html?searchResultPosition=10
+**Why Barbara Kavovit, Entrepreneur and Occasional ‘Housewives’ Friend, Is Running for Mayor**\
+`Ms. Kavovit, who struggled at times to win over her castmates on “The Real Housewives of New York City,” aims to have better luck with voters.`\
+https://nytimes.com/2021/01/29/style/barbara-kavovit-mayor-new-york.html?searchResultPosition=10
 
