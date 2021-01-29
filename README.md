@@ -1,5 +1,5 @@
 **Automakers’ Transition to Electric Cars Got a Jolt From G.M.**\
-`Every carmaker is trying to figure out how to make the leap before governments force them and Tesla and other start-ups lure away drivers.`\
+`Every carmaker is trying to figure out how to make the leap before governments force it and Tesla and other start-ups lure away drivers.`\
 https://nytimes.com/2021/01/29/business/general-motors-electric-cars.html?searchResultPosition=1
 
 **Behind the Stock Market’s Wild Ride This Week**\
