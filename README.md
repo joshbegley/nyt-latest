@@ -14,7 +14,7 @@ https://nytimes.com/2021/01/29/books/sharon-kay-penman-dead.html?searchResultPos
 `A judge rebuffed a request by prosecutors to impose a prison sentence on Kevin Clinesmith, who admitted doctoring an email used to help authorize a wiretap on a former Trump campaign aide.`\
 https://nytimes.com/2021/01/29/us/politics/kevin-clinesmith-probation.html?searchResultPosition=4
 
-**Macron Tells Biden that Cooperation With U.S. Cannot Be Dependence**\
+**Macron Tells Biden That Cooperation With U.S. Cannot Be Dependence**\
 `In a “very agreeable call,” the French president told his American counterpart that Europe wanted “strategic autonomy.” In an interview with foreign media, he also reflected on the pandemic and threats to democracy.`\
 https://nytimes.com/2021/01/29/world/europe/macron-biden.html?searchResultPosition=5
 
