@@ -1,6 +1,6 @@
 **Legal Pressure on Trump Increases With Judge’s Order in Fraud Inquiry**\
 `The order, answering a demand for documents by New York’s attorney general, rejected a bid to shield the records with attorney-client privilege.`\
-https://nytimes.com/2021/01/29/nyregion/29nytrump.html?searchResultPosition=1
+https://nytimes.com/2021/01/29/nyregion/trump-fraud-investigation.html?searchResultPosition=1
 
 **Health Providers Worldwide Welcome Biden Reversal of Anti-Abortion Rule**\
 `By restoring funding cut off by his predecessor, President Biden ended four years of what abortion rights advocates called a concerted assault on women’s reproductive health in the developing world.`\
