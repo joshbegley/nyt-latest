@@ -16,7 +16,7 @@ https://nytimes.com/2021/01/29/nyregion/trump-fraud-investigation.html?searchRes
 
 **Health Providers Worldwide Welcome Biden Reversal of Anti-Abortion Rule**\
 `By restoring funding cut off by his predecessor, President Biden ended four years of what abortion rights advocates called a concerted assault on women’s reproductive health in the developing world.`\
-https://nytimes.com/2021/01/29/world/asia/biden-abortion-womens-health.html?searchResultPosition=5
+https://nytimes.com/2021/01/29/world/asia/gag-rule-abortion.html?searchResultPosition=5
 
 **Robert Cohan, 95, Dies; Exported Contemporary Dance to Britain**\
 `A New York-born protégé of Martha Graham, he and a rich patron revolutionized dance in the U.K. with a cutting-edge new form.`\
