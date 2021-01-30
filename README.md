@@ -3,7 +3,7 @@
 https://nytimes.com/2021/01/30/technology/change-my-google-results.html?searchResultPosition=1
 
 **When a hospital refrigerator in Seattle broke, nurses gave 1,600 vaccine shots to anyone they could find.**\
-`By Nicholas Bogel-Burroughs`\
+`The situation highlights the challenge posed by the two vaccines that have so far been approved in the United States — both need to be kept cold.`\
 https://nytimes.com/2021/01/30/world/seattle-hospital-refrigerator-vaccine.html?searchResultPosition=2
 
 **How Trump’s Focus on Antifa Distracted Attention From the Far-Right Threat**\
