@@ -1,4 +1,4 @@
-**Part of Pacific Coast Highway Collapses After Heavy Rain**\
+**Part of California Highway Collapses After Heavy Rain**\
 `A section of Highway 1 near Big Sur, Calif., collapsed into the Pacific Ocean on Thursday evening after the area was battered by heavy rains this past week.`\
 https://nytimes.com/video/us/100000007579413/california-pacific-coast-highway-collapse.html?searchResultPosition=1
 
