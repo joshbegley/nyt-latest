@@ -30,11 +30,11 @@ https://nytimes.com/2021/01/30/world/europe/russia-protests-navalny-putin.html?s
 `The University of California, Davis, is providing free testing, masks and quarantine housing to tens of thousands of people who live nearby.`\
 https://nytimes.com/2021/01/30/us/college-coronavirus-california.html?searchResultPosition=8
 
-**How a Horrifying Cycling Crash Set Up a Battle Over Safety**\
-`A series of crashes in elite road racing has galvanized riders to demand more safety measures, while the sport’s governing body promises changes.`\
-https://nytimes.com/2021/01/30/sports/cycling/riders-crashes-uci-safety.html?searchResultPosition=9
-
 **How the Search for Covid-19 Treatments Faltered While Vaccines Sped Ahead**\
 `Vaccine development exceeded everyone’s expectations. But the next few months will still bring many sick people — and doctors have woefully few drugs with which to treat them.`\
-https://nytimes.com/2021/01/30/health/covid-drugs-antivirals.html?searchResultPosition=10
+https://nytimes.com/2021/01/30/health/covid-drugs-antivirals.html?searchResultPosition=9
+
+**How a Horrifying Cycling Crash Set Up a Battle Over Safety**\
+`A series of crashes in elite road racing has galvanized riders to demand more safety measures, while the sport’s governing body promises changes.`\
+https://nytimes.com/2021/01/30/sports/cycling/riders-crashes-uci-safety.html?searchResultPosition=10
 
