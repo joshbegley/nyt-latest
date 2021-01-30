@@ -1,5 +1,5 @@
 **What’s Next for Crypto Regulation**\
-`A resurgence in market volatility comes with rules in flux as a new U.S. administration takes over.`\
+`The rules are in flux as a new U.S. administration takes over.`\
 https://nytimes.com/2021/01/30/business/dealbook/crypto-regulation-blockchain.html?searchResultPosition=1
 
 **For McCarthy and McConnell, Two Paths on Trumpian Crisis Management**\
