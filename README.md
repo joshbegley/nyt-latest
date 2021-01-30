@@ -1,5 +1,5 @@
 **For McCarthy and McConnell, Two Paths on Trumpian Crisis Management**\
-`Kevin McCarthy and Mitch McConnell want to take back control of Congress in 2022. But first they have to figure out how to handle Donald Trump.`\
+`Kevin McCarthy, the House minority leader, and Mitch McConnell, the Senate minority leader, want to take back control of Congress in 2022. First they have to figure out how to handle Donald Trump.`\
 https://nytimes.com/2021/01/30/us/politics/trump-mcconnell-mccarthy.html?searchResultPosition=1
 
 **As Protests Grip Russia, Putin Critics of Many Stripes Rally Around Navalny**\
