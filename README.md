@@ -22,13 +22,13 @@ https://nytimes.com/2021/01/29/opinion/nypd-crime-murder.html?searchResultPositi
 `The Pentagon raised doubts on Thursday that the U.S. military would withdraw from Afghanistan by May 1 — the deadline set in a February 2020 agreement with the Taliban — after accusing the Taliban of failing to uphold its commitments under the deal.`\
 https://nytimes.com/video/us/politics/100000007578820/pentagon-troops-taliban-afghanistan.html?searchResultPosition=6
 
-**For Dreamers, Action Will Speak Louder Than Words**\
-`President Biden has a bold immigration plan. But will he convince lawmakers to make it work?`\
-https://nytimes.com/2021/01/29/opinion/biden-immigration-reform-dreamers.html?searchResultPosition=7
-
 **It’s Been 10 Months, and I Still Don’t Know When to Replace My Mask!**\
 `Practical pandemic guidance is still a huge problem.`\
-https://nytimes.com/2021/01/29/opinion/coronavirus-masks.html?searchResultPosition=8
+https://nytimes.com/2021/01/29/opinion/coronavirus-masks.html?searchResultPosition=7
+
+**For Dreamers, Action Will Speak Louder Than Words**\
+`President Biden has a bold immigration plan. But will he convince lawmakers to make it work?`\
+https://nytimes.com/2021/01/29/opinion/biden-immigration-reform-dreamers.html?searchResultPosition=8
 
 **G.M. Announcement Shakes Up U.S. Automakers’ Transition to Electric Cars**\
 `Every carmaker is trying to figure out how to make the leap before governments force it and Tesla and other start-ups lure away drivers.`\
