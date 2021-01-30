@@ -1,40 +1,40 @@
-**The Australian Open will allow up to 30,000 spectators a day.**\
-`Such numbers would make the tennis tournament a sports rarity during the pandemic, though attendance would still be down by about half from a normal year.`\
-https://nytimes.com/2021/01/29/world/australian-open-spectators-coronavirus.html?searchResultPosition=1
+**For McCarthy and McConnell, Two Paths on Trumpian Crisis Management**\
+`Kevin McCarthy and Mitch McConnell want to take back control of Congress in 2022. But first they have to figure out how to handle Donald Trump.`\
+https://nytimes.com/2021/01/30/us/politics/trump-mcconnell-mccarthy.html?searchResultPosition=1
 
-**Proud Boys Charged With Conspiracy in Capitol Riot**\
-`The conspiracy charges were the first to emerge against members of the extremist group in connection with the assault on Congress.`\
-https://nytimes.com/2021/01/29/nyregion/proud-boys-charged-with-conspiracy-in-capitol-riot.html?searchResultPosition=2
+**As Protests Grip Russia, Putin Critics of Many Stripes Rally Around Navalny**\
+`While many at the protests are critical of Aleksei A. Navalny, the Kremlin’s treatment of the opposition leader has united a disparate group of Putin’s opponents who say they can no longer tolerate official injustice.`\
+https://nytimes.com/2021/01/30/world/europe/russia-protests-navalny-putin.html?searchResultPosition=2
 
-**One Might Carry a Torch**\
-`Nam Jin Yoon improves our Saturday with an electric puzzle.`\
-https://nytimes.com/2021/01/29/crosswords/daily-puzzle-2021-01-30.html?searchResultPosition=3
+**A California College Tries to Shield an Entire City From Coronavirus**\
+`The University of California, Davis, is providing free testing, masks and quarantine housing to tens of thousands of people who live nearby.`\
+https://nytimes.com/2021/01/30/us/college-coronavirus-california.html?searchResultPosition=3
 
-**Federal Court Lifts Block on Trump Policy Expelling Migrant Children at the Border**\
-`The prospect of border agents again turning away children is likely to renew pressure on the Biden administration.`\
-https://nytimes.com/2021/01/29/us/politics/biden-migrant-children-coronavirus.html?searchResultPosition=4
+**How the Search for Covid-19 Treatments Faltered While Vaccines Sped Ahead**\
+`Vaccine development exceeded everyone’s expectations. But the next few months will still bring many sick people — and doctors have woefully few drugs with which to treat them.`\
+https://nytimes.com/2021/01/30/health/covid-drugs-antivirals.html?searchResultPosition=4
 
-**Quotation of the Day: One Journey Out of the Addictive Grip of QAnon**\
-`Quotation of the Day for Saturday, January 30, 2021.`\
-https://nytimes.com/2021/01/29/todayspaper/quotation-of-the-day-one-journey-out-of-the-addictive-grip-of-qanon.html?searchResultPosition=5
+**How a Horrifying Cycling Crash Set Up a Battle Over Safety**\
+`A series of crashes in elite road racing has galvanized riders to demand more safety measures, while the sport’s governing body promises changes.`\
+https://nytimes.com/2021/01/30/sports/cycling/riders-crashes-uci-safety.html?searchResultPosition=5
 
-**Corrections: Jan. 30, 2021**\
-`Corrections that appeared in print on Saturday, Jan. 30, 2021.`\
-https://nytimes.com/2021/01/29/pageoneplus/corrections-jan-30-2021.html?searchResultPosition=6
+**They Put the Bite in Trilobite**\
+`New research helps explain how some ancient species hunted and fed, and highlights the shell-crushing power of one large trilobite.`\
+https://nytimes.com/2021/01/30/science/trilobites-shells-fossils.html?searchResultPosition=6
 
-**Evidence Builds That Pregnant Women Pass Covid Antibodies to Newborns**\
-`A new study suggests that protective antibodies can be transferred through the placenta, and the baby may receive more of them if a mother is infected with Covid earlier in her pregnancy.`\
-https://nytimes.com/2021/01/29/well/family/covid-antibodies-pregnant-newborn.html?searchResultPosition=7
+**They’re Flocking to America to Make a Fortune Playing Video Games**\
+`League of Legends teams in the U.S. lag behind their competitors in Asia, so they recruit the world’s best players by offering huge salaries.`\
+https://nytimes.com/2021/01/30/technology/esports-league-of-legends-america.html?searchResultPosition=7
 
-**In L.A., the Virus Is Pummeling Those Who Can Least Afford to Fall Ill**\
-`Los Angeles County is one of the worst Covid-19 hotspots in the country. See how hard Angelenos have been hit, neighborhood by neighborhood.`\
-https://nytimes.com/interactive/2021/01/29/us/los-angeles-county-covid-rates.html?searchResultPosition=8
+**Fact-Checking Biden’s First Week in Office**\
+`All but three of 20 claims the president made were accurate, demonstrating his regard for basic facts and his proclivity to err when speaking off the cuff.`\
+https://nytimes.com/2021/01/30/us/politics/fact-checking-biden-first-week.html?searchResultPosition=8
 
-**After Newness Fades, Canada Settles Down to Legal Marijuana**\
-`The national upheaval predicted when Canada became the first major industrialized nation to legalize recreational marijuana has not come to pass.`\
-https://nytimes.com/2021/01/29/world/canada/canada-marijuana-legalized-impact.html?searchResultPosition=9
+**Nitrous Nation**\
+`Hippie crack. Whippets. Laughing gas. A casual party drug endures.`\
+https://nytimes.com/2021/01/30/style/nitrous-oxide-whippets-tony-hsieh.html?searchResultPosition=9
 
-**A Georgia Chicken Town Reels After a Plant Disaster**\
-`A nitrogen leak killed six workers and injured 11, but many in the heavily undocumented work force, advocates said, are too fearful to go in for medical checks.`\
-https://nytimes.com/2021/01/29/us/poultry-plant-nitrogen-gainesville-georgia.html?searchResultPosition=10
+**How Women Are Changing the Philanthropy Game**\
+`They’ve always been big givers, but for a long time men got most of the credit.`\
+https://nytimes.com/2021/01/30/style/mackenzie-scott-prisclila-chan-zuckerberg-melinda-gates-philanthropy.html?searchResultPosition=10
 
