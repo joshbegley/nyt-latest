@@ -7,7 +7,7 @@ https://nytimes.com/2021/01/30/at-home/safe-super-bowl.html?searchResultPosition
 https://nytimes.com/2021/01/30/at-home/downscale-your-super-bowl-spread.html?searchResultPosition=2
 
 **Trump Parts Ways With Lead Impeachment Lawyer**\
-`The move comes a little over a week before the former president’s Senate trial is set to begin and after a frantic search to secure a lead lawyer for his defense team.`\
+`Four other lawyers reported to be joining the defense team are said to be leaving, a little over a week before the former president’s Senate trial is set to begin.`\
 https://nytimes.com/2021/01/30/us/politics/trump-butch-bowers-impeachment.html?searchResultPosition=3
 
 **Savor a Performance Series and Homemade Pizza**\
