@@ -18,8 +18,8 @@ https://nytimes.com/2021/01/30/at-home/safe-super-bowl.html?searchResultPosition
 `You probably won’t be watching with a crowd, but you can still have wings, dip and a sub-style sandwich to eat during the game.`\
 https://nytimes.com/2021/01/30/at-home/downscale-your-super-bowl-spread.html?searchResultPosition=5
 
-**Five Lawyers on Trump’s Defense Team Leave Shortly Before Trial Is to Begin**\
-`The departures come a little over a week before the former president’s Senate trial is set to begin.`\
+**Trump Parts Ways With Five Lawyers Handling Impeachment Defense**\
+`The departures, which include his lead lawyer, Butch Bowers, come more than a week before his Senate trial is set to begin.`\
 https://nytimes.com/2021/01/30/us/politics/trump-butch-bowers-impeachment.html?searchResultPosition=6
 
 **Savor a Performance Series and Homemade Pizza**\
