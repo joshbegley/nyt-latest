@@ -1,5 +1,5 @@
 **Your Monday Briefing**\
-`Thousands detained during protests in Russia.`\
+`Thousands detained in Russia protests.`\
 https://nytimes.com/2021/01/31/briefing/russia-navalny-coronavirus-india-farmers.html?searchResultPosition=1
 
 **The Pop Star Wants to Be an Olympian**\
