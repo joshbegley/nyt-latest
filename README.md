@@ -1,40 +1,40 @@
-**Navalny Protests Live Updates: Russians Defy Kremlin and Rally Across Nation**\
-`Thousands of people took to the streets to show support for the jailed opposition leader Aleksei A. Navalny for a second weekend, despite mass arrests and an imposing show of force by the police.`\
-https://nytimes.com/2021/01/31/world/europe/russia-protests-navalny-live-updates.html?searchResultPosition=1
+**Here’s a Way to Learn if Facial Recognition Systems Used Your Photos**\
+`An online tool targets only a small slice of what’s out there, but may open some eyes to how widely artificial intelligence research fed on personal images.`\
+https://nytimes.com/2021/01/31/technology/facial-recognition-photo-tool.html?searchResultPosition=1
 
-**How a High-Ranking Nissan Executive Escaped His Own Trap**\
-`Hari Nada helped bring down his boss, Carlos Ghosn. In the process, he nearly met his own downfall. But with shrewd maneuvering and the protection of high-ranking allies, he survived and thrived.`\
-https://nytimes.com/2021/01/31/business/nissan-carlos-ghosn-hari-nada.html?searchResultPosition=2
+**Lawmakers Look at GameStop Furor and See a Populist Issue to Seize**\
+`Ted Cruz. Alexandria Ocasio-Cortez. The rush by both parties to side with young traders disrupting the markets reflects the broad recognition of the impulses driving American politics.`\
+https://nytimes.com/2021/01/31/us/politics/gamestop-robinhood-democrats-republicans.html?searchResultPosition=2
 
-**‘We Were Greeted by an Older Woman With Two Small Dogs’**\
-`One way to explain a T-shirt slogan, gambling on concert tickets and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/01/31/nyregion/metropolitan-diary.html?searchResultPosition=3
+**He Can’t Carry a Tune, but Chang-rae Lee Has a Song to Sing**\
+`“My Year Abroad,” his sixth novel, is about letting yourself plunge into the world, even when it hurts. He’s been thinking about that a lot over these past, painful months.`\
+https://nytimes.com/2021/01/31/books/chang-rae-lee-my-year-abroad.html?searchResultPosition=3
 
-**‘S.N.L.’ Takes on Marjorie Taylor Greene and GameStop**\
-`In its first episode of 2021, “Saturday Night Live” and guest host John Krasinski also addressed the Capitol riot, Covid vaccines and the start of the Biden administration.`\
-https://nytimes.com/2021/01/31/arts/television/saturday-night-live.html?searchResultPosition=4
+**As Virus Variants Spread, ‘No One Is Safe Until Everyone Is Safe’**\
+`Rich countries are cornering the market on coronavirus vaccines, leaving poorer regions as potential breeding grounds for variants, like one found in South Africa, that could make vaccines less effective.`\
+https://nytimes.com/2021/01/31/world/africa/coronavirus-south-africa-variant.html?searchResultPosition=4
 
-**Find Original Poetry Hiding in the Pages of Your Paper**\
-`Creating an erasure poem means finding your voice lurking in another’s words. It can be a way to start writing when words fail.`\
-https://nytimes.com/2021/01/30/at-home/at-home-erasure-poetry.html?searchResultPosition=5
+**This Ammonite Was Fossilized Outside Its Shell**\
+`The bizarre fossil is one of very few records of soft tissue in a creature better known as a whorled shell.`\
+https://nytimes.com/2021/01/31/science/ammonite-fossil-jurassic-paleontology.html?searchResultPosition=5
 
-**Catch a Movie About Time Loops**\
-`‘Groundhog Day’ may feel a little too close to home this year. Here are some films you may not need to relive.`\
-https://nytimes.com/2021/01/30/at-home/movies-about-time-loops.html?searchResultPosition=6
+**Ghosts of 2009 Drive Democrats’ Push for Robust Crisis Response**\
+`In their quest for Republican backing, Democrats say they missed opportunities in 2009 for a stronger response to the Great Recession. They’re determined not to repeat the mistake.`\
+https://nytimes.com/2021/01/31/us/democrats-agenda-coronavirus-economy.html?searchResultPosition=6
 
-**Manage Your Divorce Expectations**\
-`Our routines may have stalled during Covid, but the desire to divorce certainly hasn’t. Here, some of the pandemic-age challenges to consider.`\
-https://nytimes.com/2021/01/30/at-home/manage-your-divorce-expectations.html?searchResultPosition=7
+**Napoleon’s Brother Lived in N.J. Here’s What Happened to the Estate.**\
+`The site in Bordentown once harbored Joseph Bonaparte, a former king. A new partnership has ensured that its history won’t be forgotten.`\
+https://nytimes.com/2021/01/31/nyregion/bonaparte-point-breeze-bordentown.html?searchResultPosition=7
 
-**Soak With a D.I.Y. Bath Bomb**\
-`Your first batch of scent, salt and fizz may not be beautiful, but you’ll know exactly what you’re introducing to your tub.`\
-https://nytimes.com/2021/01/30/at-home/diy-bath-bomb.html?searchResultPosition=8
+**Wall Street Makes Unprecedented Push to Get Out the Vote**\
+`Business leaders want their employees to have a say in helping decide who will steer New York City’s economic recovery as its new mayor.`\
+https://nytimes.com/2021/01/31/nyregion/wall-street-voting-mayor.html?searchResultPosition=8
 
-**Corrections: Jan. 31, 2021**\
-`Corrections that appeared in print on Sunday, Jan. 31, 2021.`\
-https://nytimes.com/2021/01/30/pageoneplus/corrections-jan-31-2021.html?searchResultPosition=9
+**Democratic Party Enters 2021 in Power — and Flush With Cash, for a Change**\
+`The Democratic National Committee has a roughly $75 million war chest, raising the party’s hopes of keeping power in 2022 and accelerating a Democratic shift in the Sun Belt states.`\
+https://nytimes.com/2021/01/31/us/politics/democratic-party-finances.html?searchResultPosition=9
 
-**Honor and Learn This Black History Month**\
-`More than ever, this month is a welcome time for the education and celebration of Black American culture.`\
-https://nytimes.com/2021/01/30/at-home/honor-black-history-month.html?searchResultPosition=10
+**How to Improve the Oscars? We Asked Five Culture Journalists**\
+`Yes, even in a year when the show will be held during a pandemic, the question is predictable. But these answers aren’t.`\
+https://nytimes.com/2021/01/31/insider/how-to-improve-oscar-show.html?searchResultPosition=10
 
