@@ -1,4 +1,4 @@
-**Myanmar Leader, Daw Aung San Suu Kyi, Detained Amid Coup Fears**\
+**Myanmar Leader, Daw Aung San Suu Kyi, Is Detained Amid Coup Fears**\
 `The action came after mounting indications of an impending coup in the Southeast Asian nation.`\
 https://nytimes.com/2021/01/31/world/asia/myanmar-coup-suu-kyi.html?searchResultPosition=1
 
