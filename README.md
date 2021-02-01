@@ -1,40 +1,40 @@
+**Evan Rachel Wood Accuses Marilyn Manson of Abuse**\
+`“He started grooming me when I was a teenager and horrifically abused me for years,” Ms. Wood, an actor and singer said, on Instagram.`\
+https://nytimes.com/2021/02/01/arts/evan-rachel-wood-marilyn-manson.html?searchResultPosition=1
+
 **Outdoor subway service in New York will be shut down.**\
 `There were no plans to close down underground service, but officials said those plans could change if the storm worsens.`\
-https://nytimes.com/2021/02/01/us/nyc-mta-subway-trains-shut-down-snow-storm.html?searchResultPosition=1
+https://nytimes.com/2021/02/01/us/nyc-mta-subway-trains-shut-down-snow-storm.html?searchResultPosition=2
 
 **Live Charity Event Will Reveal the Magic Behind Making Cryptic Crosswords**\
 `Proceeds for the Friday, Feb. 5 Zoom event will benefit The New York Times’s Neediest Cases Fund.`\
-https://nytimes.com/2021/02/01/crosswords/shortz-cryptics-neediestcases.html?searchResultPosition=2
+https://nytimes.com/2021/02/01/crosswords/shortz-cryptics-neediestcases.html?searchResultPosition=3
 
 **Robinhood raises another $2.4 billion to meet demand of frenzied trading.**\
 `The capital was in addition to the $1 billion it raised last week amid a trading frenzy over the video-game retailer GameStop and other stocks.`\
-https://nytimes.com/2021/02/01/business/robinhood-fundraising-gamestop.html?searchResultPosition=3
+https://nytimes.com/2021/02/01/business/robinhood-fundraising-gamestop.html?searchResultPosition=4
 
 **N.Y.C. Snowstorm Delays Vaccinations**\
 `On Monday, Mayor Bill de Blasio of New York postponed coronavirus vaccinations to prevent older residents from traveling to appointments in blizzard-like conditions.`\
-https://nytimes.com/video/us/politics/100000007581390/new-york-winter-snow-storm-coronavirus-vaccine.html?searchResultPosition=4
+https://nytimes.com/video/us/politics/100000007581390/new-york-winter-snow-storm-coronavirus-vaccine.html?searchResultPosition=5
 
 **Morgan Wallen’s ‘Dangerous’ Earns a Third Week at No. 1**\
 `The Nashville star’s LP is the first country album since Taylor Swift’s “Red” to top the Billboard 200 for three weeks.`\
-https://nytimes.com/2021/02/01/arts/music/morgan-wallen-dangerous-billboard-chart.html?searchResultPosition=5
+https://nytimes.com/2021/02/01/arts/music/morgan-wallen-dangerous-billboard-chart.html?searchResultPosition=6
 
 **The Best Part of From-Scratch Dumplings May Be Making Them**\
 `For Lunar New Year, shape savory and sweet Chinese dumplings at home.`\
-https://nytimes.com/2021/02/01/dining/lunar-new-year-dumplings.html?searchResultPosition=6
+https://nytimes.com/2021/02/01/dining/lunar-new-year-dumplings.html?searchResultPosition=7
 
 **Football Practices Pose More Concussion Risk Than Games, Study Suggests**\
 `The report will fuel the longstanding debate about safety in college football, but changes do not appear to be imminent.`\
-https://nytimes.com/2021/02/01/sports/concussions-college-football-practice.html?searchResultPosition=7
+https://nytimes.com/2021/02/01/sports/concussions-college-football-practice.html?searchResultPosition=8
 
 **Missing in School Reopening Plans: Black Families’ Trust**\
 `Deep-seated mistrust among Black families toward their public school districts is holding back school reopening, even as Black children suffer inordinately from remote learning.`\
-https://nytimes.com/2021/02/01/us/politics/school-reopening-black-families.html?searchResultPosition=8
+https://nytimes.com/2021/02/01/us/politics/school-reopening-black-families.html?searchResultPosition=9
 
 **Foo Fighters Wanted to Rule Rock. 25 Years Later, They’re Still Roaring.**\
 `Dave Grohl and his bandmates are called upon whenever rock music with joy and gravitas is required. Now they’re releasing an album with a twist.`\
-https://nytimes.com/2021/02/01/arts/music/foo-fighters-dave-grohl.html?searchResultPosition=9
-
-**The economy is improving faster than expected, the U.S. budget office says, adding another twist to stimulus talks.**\
-`Large sectors of the economy are adapting to the pandemic better than originally expected, and December’s economic aid package helped to increase growth.`\
-https://nytimes.com/2021/02/01/business/economy/cbo-economy-estimate.html?searchResultPosition=10
+https://nytimes.com/2021/02/01/arts/music/foo-fighters-dave-grohl.html?searchResultPosition=10
 
