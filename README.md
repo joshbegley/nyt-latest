@@ -31,6 +31,6 @@ https://nytimes.com/2021/02/01/arts/television/i-hate-suzie-sexual-freedom.html?
 https://nytimes.com/video/us/100000007581758/northeast-snowstorm.html?searchResultPosition=9
 
 **What Is GameStop, the Company, Really Worth? Does It Matter?**\
-`The frenzy for the troubled retailer’s stock has been a headscratcher for the analysts who try to determine a company’s value.`\
+`The frenzy for the troubled retailer’s stock has been a head-scratcher for the analysts who try to determine a company’s value.`\
 https://nytimes.com/2021/02/01/business/gamestop-how-much-worth.html?searchResultPosition=10
 
