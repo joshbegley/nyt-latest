@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/01/books/review-my-year-abroad-chang-rae-lee.html?searchResultPosition=1
 
 **Biden Faces Pressure to Make Amends on Family Separation**\
-`Restitution, mental health services and legal permanent residency are among demands to compensate for the harm inflicted on families by the Trump-era border policy.`\
+`Restitution, mental health services and legal permanent residency are among the demands for compensation to families harmed by the Trump-era border policy.`\
 https://nytimes.com/2021/02/01/us/immigration-family-separations-biden.html?searchResultPosition=2
 
 **To Get on This SpaceX Flight, You Don’t Have to Be Rich, Just Lucky**\
