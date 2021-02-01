@@ -1,5 +1,5 @@
 **Trump Official’s Last-Day Deal With ICE Union Ties Biden’s Hands**\
-`A whistle-blower accused Kenneth T. Cuccinelli of an abuse of power in making sweeping concessions to pro-Trump Immigration and Customs Enforcement agents.`\
+`A whistle-blower accused Kenneth T. Cuccinelli II of an abuse of power in making sweeping concessions to pro-Trump Immigration and Customs Enforcement agents.`\
 https://nytimes.com/2021/02/01/us/politics/cuccinelli-biden-ice.html?searchResultPosition=1
 
 **U.S. Aircraft Carrier Returning Home After Long Sea Tour Watching Iran**\
