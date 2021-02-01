@@ -7,7 +7,7 @@ https://nytimes.com/2021/02/01/arts/television/whats-on-tv-this-week-9to5-the-eq
 https://nytimes.com/2021/02/01/us/politics/trump-election-donors-spending.html?searchResultPosition=2
 
 **Key Takeaways From Trump’s Effort to Overturn the Election**\
-`A Times examination of the 77 days between election and inauguration shows how the president waged an extralegal campaign that convinced tens of millions of Americans the election had been stolen.`\
+`A Times examination of the 77 days between election and inauguration shows how a lie the former president had been grooming for years overwhelmed the Republican Party and stoked the assault on the Capitol.`\
 https://nytimes.com/2021/02/01/us/politics/trump-election-lie-takeaways.html?searchResultPosition=3
 
 **Who’s the Front-Runner? 5 Takeaways From the First Mayoral Debate**\
