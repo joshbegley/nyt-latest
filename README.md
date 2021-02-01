@@ -11,7 +11,7 @@ https://nytimes.com/2021/01/31/us/politics/minimum-wage-coronavirus-relief-bill.
 https://nytimes.com/2021/01/31/opinion/marjorie-taylor-greene-gop.html?searchResultPosition=3
 
 **77 Days: Trump’s Campaign to Subvert the Election**\
-`Hours after the United States voted, the president declared the election a sham — putting himself at the center of a movement that would shatter democratic norms and upend the peaceful transfer of power.`\
+`Hours after the United States voted, the president declared the election a fraud — a lie that unleashed a movement that would shatter democratic norms and upend the peaceful transfer of power.`\
 https://nytimes.com/2021/01/31/us/trump-election-lie.html?searchResultPosition=4
 
 **Black Power: Now or Never**\
