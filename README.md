@@ -1,4 +1,4 @@
-**New York City Wakes Up to Major Snow Storm**\
+**New York City Wakes Up to Major Snowstorm**\
 `By early Monday morning, six inches of snow had already fallen in New York City, as officials prepared for widespread power losses and high winds. The winter storm is expected to produce more than a foot of snow in some areas.`\
 https://nytimes.com/video/us/100000007581170/new-york-city-snow-storm.html?searchResultPosition=1
 
