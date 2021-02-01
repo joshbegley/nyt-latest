@@ -20,7 +20,7 @@ https://nytimes.com/2021/01/31/opinion/black-power-us-voting.html?searchResultPo
 
 **Myanmar Leader, Daw Aung San Suu Kyi, Is Detained Amid Coup Fears**\
 `The action came after mounting indications of an impending coup in the Southeast Asian nation.`\
-https://nytimes.com/2021/01/31/world/asia/myanmar-coup-suu-kyi.html?searchResultPosition=6
+https://nytimes.com/2021/01/31/world/asia/myanmar-coup-aung-san-suu-kyi.html?searchResultPosition=6
 
 **The Gerrymander Battles Loom, as G.O.P. Looks to Press Its Advantage**\
 `With new census results coming, Republicans control redistricting in key states, while Democrats prepare for legal challenges and look to redraw some maps of their own.`\
