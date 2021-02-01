@@ -1,5 +1,5 @@
 **Foo Fighters Wanted to Rule Rock. 25 Years Later, They’re Still Roaring.**\
-`Dave Grohl and his bandmates bring joy and gravitas, whether at a coronavirus benefit or an inauguration. Now they’re releasing an album with a twist.`\
+`Dave Grohl and his bandmates are called upon whenever rock music with joy and gravitas is required. Now they’re releasing an album with a twist.`\
 https://nytimes.com/2021/02/01/arts/music/foo-fighters-dave-grohl.html?searchResultPosition=1
 
 **The economy is improving faster than expected, the U.S. budget office says, adding another twist to stimulus talks.**\
