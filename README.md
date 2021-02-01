@@ -1,4 +1,4 @@
-**Who’s the Front-Runner? 5 Takeaways from the First Mayoral Debate**\
+**Who’s the Front-Runner? 5 Takeaways From the First Mayoral Debate**\
 `Questions about the Yang campaign’s treatment of women and Citigroup’s role in the mortgage crisis created moments of friction among the New York City contenders.`\
 https://nytimes.com/2021/02/01/nyregion/debate-mayor-nyc.html?searchResultPosition=1
 
