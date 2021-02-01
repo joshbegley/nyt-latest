@@ -36,5 +36,5 @@ https://nytimes.com/interactive/2021/02/01/learning/Egypt-Geography-Quiz.html?se
 
 **Major Snowstorm Hits New York City**\
 `In all, 18 inches could accumulate, and wind gusts could reach 50 miles per hour. Officials advise that people stay inside and avoid travel.`\
-https://nytimes.com/2021/02/01/nyregion/snowstorm-new-york-city.html?searchResultPosition=10
+https://nytimes.com/2021/02/01/nyregion/nyc-snow-ny-nj.html?searchResultPosition=10
 
