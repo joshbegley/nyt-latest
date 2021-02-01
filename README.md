@@ -16,7 +16,7 @@ https://nytimes.com/2021/02/01/sunday-review/trump-va-racism.html?searchResultPo
 
 **Top E.U. Official Comes Under Fire in Vaccine Wars**\
 `Ursula von der Leyen has largely stayed away from the limelight while driving the handling of a crisis and letting subordinates take the blame.`\
-https://nytimes.com/2021/02/01/world/europe/top-eu-official-comes-under-fire-in-vaccine-wars.html?searchResultPosition=5
+https://nytimes.com/2021/02/01/world/europe/eu-vaccine-von-der-leyen.html?searchResultPosition=5
 
 **Prestigious Istanbul University Fights Erdogan’s Reach**\
 `Students and professors at Bogazici University, one of Turkey’s most well-known institutions, are protesting President Recep Tayyip Erdogan’s appointment of a new rector.`\
