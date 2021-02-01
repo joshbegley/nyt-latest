@@ -26,7 +26,7 @@ https://nytimes.com/2021/01/31/world/asia/myanmar-coup-suu-kyi.html?searchResult
 `With new census results coming, Republicans control redistricting in key states, while Democrats prepare for legal challenges and look to redraw some maps of their own.`\
 https://nytimes.com/2021/01/31/us/politics/gerrymander-census-democrats-republicans.html?searchResultPosition=7
 
-**After the Capitol Riot, a Tradition Is Interrupted**\
+**After the Capitol Riot, a Winter Tradition Is Interrupted**\
 `Washington’s representative in Congress urged the Capitol Police to allow sledding to continue on the complex’s heavily secured grounds.`\
 https://nytimes.com/2021/01/31/us/politics/sledding-ban-capitol-dc-snow.html?searchResultPosition=8
 
