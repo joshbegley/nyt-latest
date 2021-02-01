@@ -23,7 +23,7 @@ https://nytimes.com/2021/02/01/arts/music/tony-bennett-alzheimers.html?searchRes
 https://nytimes.com/2021/02/01/opinion/letters/marjorie-taylor-greene-republicans.html?searchResultPosition=6
 
 **Evan Rachel Wood Accuses Marilyn Manson of Abuse**\
-`“He started grooming me when I was a teenager and horrifically abused me for years,” Ms. Wood, an actor and singer said, on Instagram.`\
+`“He started grooming me when I was a teenager and horrifically abused me for years,” Ms. Wood, an actor and singer, said on Instagram.`\
 https://nytimes.com/2021/02/01/arts/evan-rachel-wood-marilyn-manson.html?searchResultPosition=7
 
 **Outdoor subway service in New York will be shut down.**\
