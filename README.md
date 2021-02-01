@@ -12,7 +12,7 @@ https://nytimes.com/video/us/politics/100000007581642/biden-coronavirus-relief-p
 
 **Had Covid? You May Need Only One Dose of Vaccine, Study Suggests**\
 `People who have already been sick with Covid-19 should still be vaccinated, experts say, but they may experience intense side effects even after one dose.`\
-https://nytimes.com/2021/02/01/health/covid-vaccine-dose.html?searchResultPosition=4
+https://nytimes.com/2021/02/01/health/have-you-had-covid-19-coronavirus.html?searchResultPosition=4
 
 **Keegan-Michael Key Will Do Anything for a Laugh**\
 `His new 10-part podcast, “The History of Sketch Comedy,” is a surprising and earnest defense of a relatively unsung art form.`\
