@@ -27,7 +27,7 @@ https://nytimes.com/2021/02/01/world/asia/turkey-bogazici-university-protests-er
 https://nytimes.com/2021/02/01/arts/television/dustin-diamond-dead.html?searchResultPosition=7
 
 **Biden to Discuss Pandemic Relief Package With Republicans**\
-`President Biden will meet with 10 Republican senators on Monday who have proposed a much smaller Covid-19 relief package. Jen Psaki, the White House press secretary, told reporters that the Mr. Biden’s biggest concern is releasing a package that is too small.`\
+`President Biden will meet with 10 Republican senators on Monday who have proposed a much smaller Covid-19 relief package. Jen Psaki, the White House press secretary, told reporters that Mr. Biden’s biggest concern is releasing a package that is too small.`\
 https://nytimes.com/video/us/politics/100000007581642/biden-coronavirus-relief-package-republicans.html?searchResultPosition=8
 
 **Had Covid? You May Need Only One Dose of Vaccine, Study Suggests**\
