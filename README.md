@@ -18,7 +18,7 @@ https://nytimes.com/2021/01/31/us/trump-election-lie.html?searchResultPosition=4
 `Population shifts mean more political might for relatively fewer people.`\
 https://nytimes.com/2021/01/31/opinion/black-power-us-voting.html?searchResultPosition=5
 
-**Myanmar Leader, Daw Aung San Suu Kyi, Is Detained Amid Coup Fears**\
+**Myanmar’s Leader, Daw Aung San Suu Kyi, Is Detained Amid Coup Fears**\
 `The action came after mounting indications of an impending coup in the Southeast Asian nation.`\
 https://nytimes.com/2021/01/31/world/asia/myanmar-coup-aung-san-suu-kyi.html?searchResultPosition=6
 
