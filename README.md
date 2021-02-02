@@ -15,7 +15,7 @@ https://nytimes.com/2021/02/02/sports/football/super-bowl-2021-covid-coronavirus
 https://nytimes.com/2021/02/01/arts/television/the-best-movies-and-tv-shows-new-to-netflix-amazon-and-stan-in-australia-in-february.html?searchResultPosition=4
 
 **Ocasio-Cortez Says She Is a Sexual Assault Survivor**\
-`“I haven’t told many people that in my life,” the Democratic congresswoman said. “But when we go through trauma, trauma compounds on each other.”`\
+`“I haven’t told many people that in my life,” the Democratic congresswoman said of the revelation, which came during a harrowing recounting of her experiences amid the Capitol riot.`\
 https://nytimes.com/2021/02/01/nyregion/aoc-sexual-assault-abuse.html?searchResultPosition=5
 
 **Your Tuesday Briefing**\
