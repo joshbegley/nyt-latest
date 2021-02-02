@@ -16,7 +16,7 @@ https://nytimes.com/2021/02/02/us/hollywood-sign-prank-hollyboob.html?searchResu
 
 **Democrats Speed Ahead on Economic Aid Package**\
 `As President Biden negotiated with Republicans who want to scale back his $1.9 trillion plan, his party initiated a Senate process to allow for quick passage along party lines.`\
-https://nytimes.com/2021/02/02/business/congress-senate-reconciliation-stimulus.html?searchResultPosition=5
+https://nytimes.com/2021/02/02/business/stimulus.html?searchResultPosition=5
 
 **Automakers Drop Efforts to Derail California Climate Rules**\
 `Momentum is shifting toward a clean-car future as more automakers end their legal efforts to block California’s tough fuel economy standards.`\
