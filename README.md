@@ -1,5 +1,5 @@
 **Becoming Teammates in Life and Business**\
-`Erin and Drew Coles, who own a wedding band company, admit that learning to fight fair and communicate during arguments was a challenge.`\
+`Erin Higgins Coles and Drew Coles, who own a wedding band company, admit that learning to fight fair and communicate during arguments was a challenge.`\
 https://nytimes.com/2021/02/02/style/becoming-teammates-in-life-and-business.html?searchResultPosition=1
 
 **Priyanka Chopra Jonas’s Week: Fireside Chats and ‘Bridgerton’ Episodes**\
