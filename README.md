@@ -26,15 +26,15 @@ https://nytimes.com/2021/02/02/dining/drinks/applejack.html?searchResultPosition
 `Average per-capita case counts in New York City are 64 percent higher than they were in December, when Gov. Andrew M. Cuomo banned indoor dining.`\
 https://nytimes.com/interactive/2021/02/02/nyregion/cuomo-nyc-indoor-dining.html?searchResultPosition=7
 
+**Moderna wants to increase the number of vaccine doses in each vial.**\
+`By Sharon LaFraniere and Noah Weiland`\
+https://nytimes.com/2021/02/02/world/moderna-wants-to-increase-the-number-of-vaccine-doses-in-each-vial.html?searchResultPosition=8
+
 **Tom Moore, Who Cheered Covid-Ravaged U.K. With Charity Walks, Dies at 100**\
 `Nicknamed “Captain Tom,” the veteran raised tens of millions of pounds for Britain’s health workers by walking 100 laps of his garden last spring.`\
-https://nytimes.com/2021/02/02/world/europe/captain-tom-moore-dead.html?searchResultPosition=8
+https://nytimes.com/2021/02/02/world/europe/captain-tom-moore-dead.html?searchResultPosition=9
 
 **The Crossword Stumper**\
 `A look at one of the entries that fooled solvers in last week’s puzzles.`\
-https://nytimes.com/2021/02/02/crosswords/crossword-stumper-steagall.html?searchResultPosition=9
-
-**Jazz at Lincoln Center Focuses on Music’s Role in Social Justice**\
-`A new season of video concerts will feature a tribute to renowned jazz vocalists and include new compositions created in collaboration with Bryan Stevenson.`\
-https://nytimes.com/2021/02/02/arts/music/jazz-lincoln-center-season-2021.html?searchResultPosition=10
+https://nytimes.com/2021/02/02/crosswords/crossword-stumper-steagall.html?searchResultPosition=10
 
