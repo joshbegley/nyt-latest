@@ -22,7 +22,7 @@ https://nytimes.com/video/us/100000007583242/punxsutawney-phil-groundhog-day-win
 `By Maggie Haberman`\
 https://nytimes.com/2021/02/02/us/politics/white-men-trump.html?searchResultPosition=6
 
-**F.B.I. Agents Are Involved in Shooting in Florida**\
+**2 F.B.I. Agents Killed in Shooting in Florida**\
 `The shooting occurred as agents were serving a warrant in the city of Sunrise, west of Fort Lauderdale, the authorities said.`\
 https://nytimes.com/2021/02/02/us/fbi-shooting-sunrise.html?searchResultPosition=7
 
