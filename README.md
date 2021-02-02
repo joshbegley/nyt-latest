@@ -12,7 +12,7 @@ https://nytimes.com/2021/02/02/arts/design/brexit-art-trade.html?searchResultPos
 
 **Tesla will recall 135,000 cars for faulty touch screens.**\
 `The company agreed to recall Model S vehicles from 2012 to 2018 and Model X vehicles from 2016 to 2018,  flagship cars that can cost up to $100,000 or more.`\
-https://nytimes.com/2021/02/02/business/tesla-will-recall-135000-cars-for-faulty-touch-screens.html?searchResultPosition=4
+https://nytimes.com/2021/02/02/business/tesla-recall.html?searchResultPosition=4
 
 **Britain, ravaged by one virus variant, is hunting another.**\
 `By Isabella Kwai`\
