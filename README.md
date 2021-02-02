@@ -1,4 +1,4 @@
-**Is Seeing That Renoir Essential? In the Pandemic, Cities Differ.**\
+**Is Seeing That Renoir Essential? In the Pandemic, Cities Differ**\
 `Arizona has allowed its museums to remain open despite a deadly outbreak, while in cities and states with far fewer cases, the doors have been closed.`\
 https://nytimes.com/2021/02/02/arts/design/museums-coronavirus-closures.html?searchResultPosition=1
 
