@@ -1,5 +1,5 @@
 **Watch SpaceX’s Starship Conduct a Test Launch**\
-`After a defying the F.A.A. during its last test flight in December, the company aims to stick the landing this time.`\
+`After defying the F.A.A. during its last test flight in December, the company aims to stick the landing this time.`\
 https://nytimes.com/2021/02/02/science/spacex-starship-launch.html?searchResultPosition=1
 
 **We Can’t Stop Thinking About Amanda Gorman’s Headband**\
