@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/02/realestate/how-to-design-entryway-organize-winter
 `Neighborhoods in Newark are beginning to see a flurry of redevelopment, a decade after the city’s downtown gained vogue.`\
 https://nytimes.com/2021/02/02/nyregion/new-jersey-newark-redevelopment.html?searchResultPosition=9
 
-**How the Biden Administration Can Help Solve Our Reality Crisis**\
-`These steps, experts say, could prod more people to abandon the scourge of hoaxes and lies.`\
-https://nytimes.com/2021/02/02/technology/biden-reality-crisis-misinformation.html?searchResultPosition=10
+**Even in Poorer Neighborhoods, the Wealthy Are Lining Up for Vaccines**\
+`Officials acknowledge that the coveted shots are disproportionately going to white people and that planners’ efforts to course-correct are having limited effect.`\
+https://nytimes.com/2021/02/02/health/white-people-covid-vaccines-minorities.html?searchResultPosition=10
 
