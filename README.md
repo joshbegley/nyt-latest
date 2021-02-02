@@ -1,5 +1,5 @@
 **What to Know About Covid-19 and the Super Bowl**\
-`Players from the Tampa Bay Buccaneers and the Kansas City Chiefs are being tested for coronavirus more often and just 25,000 fans will attend the game.`\
+`Players from the Tampa Bay Buccaneers and the Kansas City Chiefs are being tested for the coronavirus more often, and just 25,000 fans will attend the game.`\
 https://nytimes.com/2021/02/02/sports/football/super-bowl-2021-covid-coronavirus.html?searchResultPosition=1
 
 **The Best Movies and TV Shows New to Netflix, Amazon and Stan in Australia in February**\
