@@ -4,7 +4,7 @@ https://nytimes.com/2021/02/02/arts/music/classical-music-recordings.html?search
 
 **The storm was among the biggest in New York City’s recent history.**\
 `By Daniel E. Slotnik`\
-https://nytimes.com/2021/02/01/us/nyc-heaviest-snow.html?searchResultPosition=2
+https://nytimes.com/2021/02/02/us/nyc-heaviest-snow.html?searchResultPosition=2
 
 **For Britain’s Art Dealers, Post-Brexit Trade Isn’t So Free**\
 `New taxes, fees and red tape have some in the trade worried they will go out of business. Others see opportunities as the market readjusts.`\
