@@ -35,6 +35,6 @@ https://nytimes.com/2021/02/02/theater/miami-new-drama-seven-deadly-sins.html?se
 https://nytimes.com/2021/02/02/style/tiny-modern-love-stories-he-had-the-nicest-toes.html?searchResultPosition=9
 
 **Your Wednesday Briefing**\
-`Russia jails Aleksei Navalny.`\
+`Russia sentences Aleksei Navalny.`\
 https://nytimes.com/2021/02/02/briefing/myanmar-sanctions-russia-vaccine-results-alibaba.html?searchResultPosition=10
 
