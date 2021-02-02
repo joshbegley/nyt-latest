@@ -26,8 +26,8 @@ https://nytimes.com/2021/02/02/business/tesla-recall.html?searchResultPosition=6
 `By Isabella Kwai`\
 https://nytimes.com/2021/02/02/world/britain-ravaged-by-one-virus-variant-is-hunting-another.html?searchResultPosition=7
 
-**Aleksei Navalny Appears in Court for Decision on Prison Sentence**\
-`The Russian opposition leader, who has long been President Vladimir Putin’s loudest critic, is accused of violating his parole in a 2014 prison sentence.`\
+**Russian Activist Navalny Appears in Court for Decision on Prison Sentence**\
+`The opposition leader has long been President Vladimir Putin’s loudest critic. “You cannot lock up the whole country,” he told the court after large protests in support of him over the past few weeks.`\
 https://nytimes.com/2021/02/02/world/europe/russia-navalny-putin.html?searchResultPosition=8
 
 **As Sports Gambling Grows, So Do Appetite-Whetting Sure Bets**\
