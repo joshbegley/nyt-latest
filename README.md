@@ -28,7 +28,7 @@ https://nytimes.com/2021/02/02/dining/nyc-restaurant-news.html?searchResultPosit
 
 **Watch Live: White House Provides Updates on Coronavirus Response**\
 `Jeffrey Zients, the White House’s coronavirus response coordinator, holds a briefing on the government’s progress.`\
-https://nytimes.com/video/us/politics/100000007583371/white-house-covid-video.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/politics/100000007583371/white-house-covid-video.html?searchResultPosition=8
 
 **U.S. Cities Are Vastly Undercounting Emissions, Researchers Find**\
 `Inconsistent and flawed data is undercutting efforts to reduce greenhouse gas emissions from American cities, according to a new study.`\
