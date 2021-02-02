@@ -24,7 +24,7 @@ https://nytimes.com/2021/02/02/climate/automakers-climate-change.html?searchResu
 
 **People Died at the Capitol. Can Rioters Be Held Accountable?**\
 `Federal law provides a way to charge people in cases of deaths that they did not directly cause. But it is a limited provision that has raised questions about complicity and fairness.`\
-https://nytimes.com/2021/02/02/us/felony-murder-sicknick-capitol.html?searchResultPosition=7
+https://nytimes.com/2021/02/02/us/capitol-riots-brian-sicknick.html?searchResultPosition=7
 
 **After a Bruising Year, the Oil Industry Confronts a Diminished Future**\
 `Big oil companies lost billions in 2020 because of the pandemic and face broad questions about how they will adapt to climate change and regulations.`\
