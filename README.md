@@ -10,7 +10,7 @@ https://nytimes.com/video/us/politics/100000007584056/massachusetts-snow-storm.h
 `A test flight of SpaceX’s Starship, Elon Musk’s next-generation spacecraft which is intended to one day land on Mars, was launched on Tuesday for a brief flight, but came to an explosive end.`\
 https://nytimes.com/video/science/space/100000007584025/spacex-starship-crashes-prototype-launch.html?searchResultPosition=3
 
-**Buttigieg Is Confirmed By Senate**\
+**Buttigieg Is Confirmed by the Senate**\
 `On Tuesday, the Senate confirmed Pete Buttigieg, the former mayor of South Bend, Ind., as transportation secretary for the Biden administration.`\
 https://nytimes.com/video/us/politics/100000007583976/pete-buttigieg-senate-trasnportation-secretary.html?searchResultPosition=4
 
