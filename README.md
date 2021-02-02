@@ -1,5 +1,5 @@
 **Andrew Yang Says He Has Tested Positive for the Coronavirus**\
-`Mr. Yang, a New York mayoral candidate who had suspended in-person events after a campaign staff member tested positive, said he was experiencing mild symptoms.`\
+`Mr. Yang, a New York mayoral candidate who had suspended in-person events after a campaign staff member had tested positive, said he was experiencing mild symptoms.`\
 https://nytimes.com/2021/02/02/nyregion/andrew-yang-covid-positive.html?searchResultPosition=1
 
 **America’s First Moonshine, Applejack, Returns in Sleeker Style**\
