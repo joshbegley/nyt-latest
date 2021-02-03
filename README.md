@@ -1,5 +1,5 @@
 **F.B.I. Agents Killed in Florida Shooting**\
-`Two F.B.I. agents died and three more were injured as they were executing a search warrant in Sunrise, Fla., in a case that involved violent crimes against children.`\
+`Two F.B.I. agents were killed and three more were injured as they were executing a search warrant in Sunrise, Fla., in a case that involved violent crimes against children.`\
 https://nytimes.com/video/us/politics/100000007584456/fbi-agents-killed-sunrise-florida.html?searchResultPosition=1
 
 **Eugenio Martinez, Last of the Watergate Burglars, Dies at 98**\
