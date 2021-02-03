@@ -1,40 +1,8 @@
-**What Do You Do When Your Child Has the Coronavirus?**\
-`Of all the bodies in my household, it slipped into the smallest one.`\
-https://nytimes.com/2021/02/02/opinion/children-covid-positive-test.html?searchResultPosition=1
+**Ricky Powell, 59, Dies; Chronicled Early Hip-Hop and Downtown New York**\
+`Prolific with his point-and-shoot camera, he captured early, essential images of the Beastie Boys, Jean-Michel Basquiat, Run-DMC, Andy Warhol and more.`\
+https://nytimes.com/2021/02/02/arts/music/ricky-powell-dead.html?searchResultPosition=1
 
-**Coronavirus Briefing: What Happened Today**\
-`People from wealthier, largely white neighborhoods are taking an outsized share of vaccines.`\
-https://nytimes.com/2021/02/02/us/coronavirus-today.html?searchResultPosition=2
-
-**Protests Rise After Officer in Tamir Rice Shooting Plays on Football Team**\
-`Timothy Loehmann, who was fired from the Cleveland police force after the shooting death of 12-year-old Tamir Rice, has quietly played with a semipro team in Ohio.`\
-https://nytimes.com/2021/02/02/sports/football/tamir-rice-officer-football.html?searchResultPosition=3
-
-**A Tale of Two Zooms: Arenado Trade Draws Mixed Emotions**\
-`As the St. Louis Cardinals celebrated their trade for Nolan Arenado, the Colorado Rockies were also on a video chat, explaining how they paid another team to take their best player.`\
-https://nytimes.com/2021/02/02/sports/baseball/nolan-arenado-cardinals.html?searchResultPosition=4
-
-**How I Wrote the Pandemic: The Writer of ‘Locked Down’ Explains**\
-`Steven Knight unpacks his new quarantine film, starring Anne Hathaway and Chiwetel Ejiofor, and the process of memorializing very recent history.`\
-https://nytimes.com/2021/02/02/movies/locked-down-anne-hathaway-chiwetel-ejiofor.html?searchResultPosition=5
-
-**Impeachment, Jeff Bezos, Captain Tom: Your Tuesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/02/02/briefing/impeachment-jeff-bezos-captain-tom.html?searchResultPosition=6
-
-**Plunging GameStop Shares Test the Will of Investors to Stick With the Ride**\
-`After a crazy run-up, the price dropped 72 percent over two days, putting it just 18 percent higher than it was at the start of last week.`\
-https://nytimes.com/2021/02/02/business/gamestop-investors-plunging-shares.html?searchResultPosition=7
-
-**Italy’s President Summons Mario Draghi for Talks to Head New Government**\
-`After a last-ditch attempt to revive Prime Minister Giuseppe Conte’s majority failed, President Sergio Mattarella hopes to install a technical government to guide Italy through the pandemic.`\
-https://nytimes.com/2021/02/02/world/europe/italy-mario-draghi-new-government.html?searchResultPosition=8
-
-**Under Pressure to Rebuke Their Own, G.O.P. Leaders Face a Critical Test**\
-`The fates of Representatives Marjorie Taylor Greene and Liz Cheney have become a proxy battle for the soul of the party, prompting a clash among top Republicans.`\
-https://nytimes.com/2021/02/02/us/politics/republicans-marjorie-taylor-greene-liz-cheney.html?searchResultPosition=9
-
-**Barry Lewis, Beloved Guide to New York City, Dies at 75**\
-`His walking tours of the city’s neighborhoods made Mr. Lewis, an architectural historian, a local celebrity with a star spot on a PBS series.`\
-https://nytimes.com/2021/02/02/nyregion/barry-lewis-dead.html?searchResultPosition=10
+**Vladimir Putin Has Become America’s Ex-Boyfriend From Hell**\
+`He’s not very important to us, but he keeps stalking us.`\
+https://nytimes.com/2021/02/02/opinion/vladimir-putin-russia-america.html?searchResultPosition=2
 
