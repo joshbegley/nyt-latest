@@ -26,7 +26,7 @@ https://nytimes.com/2021/02/03/books/review-halfway-home-mass-incarceration-reub
 `Many movie theaters have been closed for almost a year, but the Hollywood awards season begins in earnest on Wednesday morning with the announcement of the Globe nominees.`\
 https://nytimes.com/2021/02/03/movies/golden-globes-nominations-announcement.html?searchResultPosition=7
 
-**Explosion Critically Injures 3 on Movie Set Near Los Angeles**\
+**Explosion Critically Injures 3 Near Los Angeles**\
 `Fire crews used two helicopters to put out a brush fire, which burned an acre of a hillside in Santa Clarita, Calif., the authorities said.`\
 https://nytimes.com/2021/02/02/us/santa-clarita-movie-set-explosion.html?searchResultPosition=8
 
