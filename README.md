@@ -35,6 +35,6 @@ https://nytimes.com/2021/02/03/opinion/letters/trump-senate-impeachment-trial.ht
 https://nytimes.com/2021/02/03/world/canada/canada-proud-boys-terror-group.html?searchResultPosition=9
 
 **Rennie Davis, ‘Chicago Seven’ Antiwar Activist, Dies at 79**\
-`The trial arising from the “police riot” at the 1968  convention thrust him into the spotlight. He later became an unlikely spokesman for a teenage guru.`\
+`The trial arising from the “police riot” at the 1968 convention thrust him into the spotlight. He later became an unlikely spokesman for a teenage guru.`\
 https://nytimes.com/2021/02/03/us/politics/rennie-davis-dead.html?searchResultPosition=10
 
