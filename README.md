@@ -1,4 +1,4 @@
-**Who Wants to be Mayor of New York City?**\
+**Who Wants to Be Mayor of New York City?**\
 `The race for the next mayor of New York City may be one of the most consequential elections in a generation. Here are some of the leading candidates vying to run the nation’s largest city.`\
 https://nytimes.com/interactive/2021/nyregion/nyc-mayor-candidates.html?searchResultPosition=1
 
