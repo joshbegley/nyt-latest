@@ -12,7 +12,7 @@ https://nytimes.com/2021/02/03/t-magazine/jiab-prachakul-art.html?searchResultPo
 
 **A poll shows most Americans, including many Republicans, support $1,400 stimulus checks.**\
 `By Maggie Astor`\
-https://nytimes.com/2021/02/03/us/a-poll-shows-most-americans-including-many-republicans-support-1400-stimulus-checks.html?searchResultPosition=4
+https://nytimes.com/2021/02/03/us/stimulus-check-polls.html?searchResultPosition=4
 
 **Your Thursday Briefing**\
 `Obscure charges in Myanmar.`\
