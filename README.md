@@ -32,7 +32,7 @@ https://nytimes.com/2021/02/03/science/blue-origin-jeff-bezos.html?searchResultP
 
 **Declaring Democracy Won’t Be Subverted, Biden Demands Russia and Myanmar Reverse Course**\
 `The president is about to discover how years of sanctions fatigue — exacerbated in the Trump administration — and a decline in American influence may make it difficult to deliver on his promises.`\
-https://nytimes.com/2021/02/03/us/politics/biden-human-rights-sanctions-myanmar-russia.html?searchResultPosition=9
+https://nytimes.com/2021/02/03/us/politics/biden-myanmar-russia.html?searchResultPosition=9
 
 **How Andy Jassy, Amazon’s Next C.E.O., Was a ‘Brain Double’ for Jeff Bezos**\
 `Mr. Jassy, who will become Amazon’s chief this summer, has spent more than two decades absorbing lessons from Mr. Bezos.`\
