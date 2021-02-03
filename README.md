@@ -36,5 +36,5 @@ https://nytimes.com/2021/02/03/technology/andy-jassy-amazon-ceo-jeff-bezos.html?
 
 **A GameStop Ringleader’s Videos Draw a Regulator’s Attention**\
 `Keith Gill was an early endorser of GameStop on his YouTube channel. But a regulator in Massachusetts wants to know about his day job.`\
-https://nytimes.com/2021/02/03/business/roaring-kitty-gamestop-massmutual.html?searchResultPosition=10
+https://nytimes.com/2021/02/03/business/roaring-kitty-gamestop.html?searchResultPosition=10
 
