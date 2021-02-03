@@ -7,7 +7,7 @@ https://nytimes.com/2021/02/03/business/roaring-kitty-gamestop-massmutual.html?s
 https://nytimes.com/2021/02/03/us/department-public-safety-amber-alert-malfunction.html?searchResultPosition=2
 
 **Suspect in Killing of 2 Florida F.B.I. Agents Is Identified**\
-`As cases of online child sexual abuse explode, the F.B.I. is investigating the case of a Florida technology contractor who they said shot two agents serving a search warrant at his apartment.`\
+`As cases of online child sexual abuse explode, the F.B.I. is investigating the case of a Florida technology contractor who they said shot two agents executing a search warrant at his apartment.`\
 https://nytimes.com/2021/02/03/us/fbi-shooting-florida-david-lee-huber.html?searchResultPosition=3
 
 **Education Secretary Nominee Calls for Investment in Pandemic Recovery**\
