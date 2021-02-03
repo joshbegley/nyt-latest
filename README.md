@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/03/health/covid-vaccines.html?searchResultPosition=1
 
 **Mexico Arrests Police Officers Over Massacre**\
-`The arrest of government agents for the brutal killing of 19 people, including several migrants, is one of the first times local police have been charged with such a crime.`\
+`The arrest of government agents for the brutal killing of 19 people, including several migrants, is a rare instance of local police being charged with such a crime.`\
 https://nytimes.com/2021/02/03/world/americas/mexico-arrests-police-officers-over-massacre.html?searchResultPosition=2
 
 **G.O.P., Vaccines, Golden Globes: Your Wednesday Evening Briefing**\
