@@ -1,40 +1,40 @@
+**Mexico Arrests Police Officers Over Massacre**\
+`The arrest of government agents for the brutal killing of 19 people, including several migrants, is one of the first times local police have been charged with such a crime.`\
+https://nytimes.com/2021/02/03/world/americas/mexico-arrests-police-officers-over-massacre.html?searchResultPosition=1
+
 **G.O.P., Vaccines, Golden Globes: Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/02/03/briefing/gop-vaccines-golden-globes.html?searchResultPosition=1
+https://nytimes.com/2021/02/03/briefing/gop-vaccines-golden-globes.html?searchResultPosition=2
 
 **Justice Department Drops Suit Claiming Yale Discriminated in Admissions**\
 `The Trump administration had claimed that the school’s practices hurt white and Asian-American applicants, violating the Civil Rights Act of 1964.`\
-https://nytimes.com/2021/02/03/us/yale-admissions-affirmative-action.html?searchResultPosition=2
+https://nytimes.com/2021/02/03/us/yale-admissions-affirmative-action.html?searchResultPosition=3
 
 **N.Y.P.D. Anti-Harassment Official Fired Over Racist Online Rants**\
 `An investigation found that Deputy Inspector James F. Kobel had called former President Barack Obama a “Muslim savage” and Mayor Bill de Blasio’s biracial son “a brillohead.”`\
-https://nytimes.com/2021/02/03/nyregion/nypd-james-kobel-racist-fired.html?searchResultPosition=3
+https://nytimes.com/2021/02/03/nyregion/nypd-james-kobel-racist-fired.html?searchResultPosition=4
 
 **Jim Justice, a G.O.P. Governor, on Why Biden Needs to ‘Go Big’ on Covid Aid**\
 `The governor of West Virginia, who supported a bigger relief bill than Senator Joe Manchin, a Democrat, initially did, spoke with us about government spending, Covid-19 vaccinations and climate policy.`\
-https://nytimes.com/2021/02/03/us/politics/jim-justice-manchin-west-virginia.html?searchResultPosition=4
+https://nytimes.com/2021/02/03/us/politics/jim-justice-manchin-west-virginia.html?searchResultPosition=5
 
 **Analysis: The fights over Marjorie Taylor Greene and Liz Cheney have far-reaching implications in post-Trump Washington.**\
 `The ugly fights over the two congresswomen proved that Representative Kevin McCarthy, the Republican leader, remains trapped under former President Donald J. Trump’s shadow.`\
-https://nytimes.com/2021/02/03/us/marjorie-taylor-greene-cheney-trump.html?searchResultPosition=5
+https://nytimes.com/2021/02/03/us/marjorie-taylor-greene-cheney-trump.html?searchResultPosition=6
 
 **Jeff Bezos Renews Focus on Blue Origin, Which Has Been Slower to Launch**\
 `The Amazon founder started his private rocket company in 2000, but its busiest phase could just now be starting.`\
-https://nytimes.com/2021/02/03/science/blue-origin-jeff-bezos.html?searchResultPosition=6
+https://nytimes.com/2021/02/03/science/blue-origin-jeff-bezos.html?searchResultPosition=7
 
 **Declaring Democracy Won’t Be Subverted, Biden Demands Russia and Myanmar Reverse Course**\
 `The president is about to discover how years of sanctions fatigue — exacerbated in the Trump administration — and a decline in American influence may make it difficult to deliver on his promises.`\
-https://nytimes.com/2021/02/03/us/politics/biden-human-rights-sanctions-myanmar-russia.html?searchResultPosition=7
+https://nytimes.com/2021/02/03/us/politics/biden-human-rights-sanctions-myanmar-russia.html?searchResultPosition=8
 
 **How Andy Jassy, Amazon’s Next C.E.O., Was a ‘Brain Double’ for Jeff Bezos**\
 `Mr. Jassy, who will become Amazon’s chief this summer, has spent more than two decades absorbing lessons from Mr. Bezos.`\
-https://nytimes.com/2021/02/03/technology/andy-jassy-amazon-ceo-jeff-bezos.html?searchResultPosition=8
+https://nytimes.com/2021/02/03/technology/andy-jassy-amazon-ceo-jeff-bezos.html?searchResultPosition=9
 
 **A GameStop Ringleader’s Videos Draw a Regulator’s Attention**\
 `Keith Gill was an early endorser of GameStop on his YouTube channel. But a regulator in Massachusetts wants to know about his day job.`\
-https://nytimes.com/2021/02/03/business/roaring-kitty-gamestop-massmutual.html?searchResultPosition=9
-
-**Texas Department Apologizes for ‘Chucky’ Amber Alert**\
-`The alert, which said that the killer doll from the “Child’s Play” horror films was a suspect in a kidnapping, was sent as a “result of a test malfunction,” according to state officials.`\
-https://nytimes.com/2021/02/03/us/department-public-safety-amber-alert-malfunction.html?searchResultPosition=10
+https://nytimes.com/2021/02/03/business/roaring-kitty-gamestop-massmutual.html?searchResultPosition=10
 
