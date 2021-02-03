@@ -15,7 +15,7 @@ https://nytimes.com/2021/02/03/technology/andy-jassy-amazon-ceo-jeff-bezos.html?
 https://nytimes.com/2021/02/03/business/roaring-kitty-gamestop-massmutual.html?searchResultPosition=4
 
 **Texas Department Apologizes for ‘Chucky’ Amber Alert**\
-`The alert, which said that the killer doll from the “Child’s Play” horror films was a suspect in a kidnapping, was sent as the “result of a test malfunction,” according to state officials.`\
+`The alert, which said that the killer doll from the “Child’s Play” horror films was a suspect in a kidnapping, was sent as a “result of a test malfunction,” according to state officials.`\
 https://nytimes.com/2021/02/03/us/department-public-safety-amber-alert-malfunction.html?searchResultPosition=5
 
 **Suspect in Killing of 2 Florida F.B.I. Agents Is Identified**\
