@@ -26,7 +26,7 @@ https://nytimes.com/2021/02/02/us/politics/bidens-brian-sicknick-rotunda.html?se
 `The documentary took home two prizes while “Coda” won several honors for its fictional tale of a hearing teenager in a deaf family.`\
 https://nytimes.com/2021/02/02/movies/sundance-winners-questlove.html?searchResultPosition=7
 
-**How Hong Kong’s Lowliest Politicians Became Its Champions of Freedom**\
+**How Hong Kong’s Local Representatives Became Its Champions of Freedom**\
 `District councilors typically tended to mundane matters like pest control and new bus stops. Now, they’re the last line of defense in keeping the city’s pro-democracy opposition alive.`\
 https://nytimes.com/2021/02/02/world/asia/hong-kong-democracy-councilors.html?searchResultPosition=8
 
