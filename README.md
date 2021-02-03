@@ -1,40 +1,40 @@
-**Lesson of the Day: Myanmar’s Coup, Explained**\
-`In this lesson, students will learn about the military coup d’état ending the fragile democracy in the Southeast Asian nation. Then they will make connections between these events and other threats to democracy across the globe.`\
-https://nytimes.com/2021/02/03/learning/lesson-of-the-day-myanmars-coup-explained.html?searchResultPosition=1
+**Madison, Conn.: A Welcoming Town With Long Stretches of Beach**\
+`The shoreline town, which has seen an influx of buyers during the pandemic, has been praised by new arrivals as ‘neither too hip, nor too boring.’`\
+https://nytimes.com/2021/02/03/realestate/living-in-madison-conn-welcoming-town-long-stretches-of-beach.html?searchResultPosition=1
 
-**Liz Cheney Chooses Her Own Path, and It’s a Perilous One**\
-`Pro-Trump forces in Washington and in her home state of Wyoming view her opposition to Donald Trump as a betrayal. Now she faces a reckoning over her leadership role in the Republican Party.`\
-https://nytimes.com/2021/02/03/us/politics/liz-cheney-trump.html?searchResultPosition=2
+**In the Ozarks, the Pandemic Threatens a Fragile Musical Tradition**\
+`The older fiddlers and rhythm guitar players don’t rely on sheet music, so their weekly jam sessions — now on hiatus — are critical to passing their technique to the next generation.`\
+https://nytimes.com/2021/02/03/us/ozarks-mcclurg-jam.html?searchResultPosition=2
 
-**‘This Kid’s Special’: Candace Parker Owned L.A. From Day 1**\
-`Parker, long the face of the Los Angeles Sparks, opened her W.N.B.A. career with a statement game. Its message has held up for 13 seasons and counting: She deserved the hype.`\
-https://nytimes.com/2021/02/03/sports/basketball/candace-parker-sparks-sky.html?searchResultPosition=3
+**Living In ... Madison, Conn.**\
+`The shoreline town, which has seen an influx of buyers during the pandemic, has been praised by new arrivals as ‘neither too hip, nor too boring.’`\
+https://nytimes.com/slideshow/2021/02/03/realestate/living-in-madison-conn.html?searchResultPosition=3
 
-**Under-Eye Circles**\
-`What are the best and worst social media trends, in your opinion?`\
-https://nytimes.com/2021/02/03/learning/under-eye-circles.html?searchResultPosition=4
+**The QAnon Delusion Has Not Loosened Its Grip**\
+`Millions of Americans continue to actively participate in multiple conspiracy theories. Why?`\
+https://nytimes.com/2021/02/03/opinion/qanon-conspiracy-theories.html?searchResultPosition=4
 
-**Trump’s Being Impeached Again, So It Must Be Groundhog Day**\
-`“His lawyers just copied and pasted his defense from the last impeachment: Control-F ‘Ukraine,’ replace with ‘riot,’” Jimmy Fallon said.`\
-https://nytimes.com/2021/02/03/arts/television/late-night-groundhog-day-impeachment.html?searchResultPosition=5
+**Help! I’m Vaccinated, But What Do I Need to Know to Protect Others?**\
+`A reader plans to hop on a flight two weeks after her second shot of the coronavirus vaccine to see much-missed grandchildren, but wonders what health and safety precautions she still needs to take.`\
+https://nytimes.com/2021/02/03/travel/virus-vaccinated-travel.html?searchResultPosition=5
 
-**Word + Quiz: ambiguous**\
-`This word has appeared in 216 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/03/learning/word-quiz-ambiguous.html?searchResultPosition=6
+**Biden Administration Faces Backlog of 380,000 Waiting to Immigrate**\
+`The suspension of most legal immigration, combined with the pandemic, has left visa applicants in limbo. Even if President Biden ends the bans, it could take years to process everyone.`\
+https://nytimes.com/2021/02/03/us/immigrant-visas-consulates-backlog.html?searchResultPosition=6
 
-**Nearly 20 Million Americans Have a Felony Record. What Happens After They’ve Served Their Time?**\
-`In “Halfway Home,” Reuben Jonathan Miller draws on years of research and personal experience to write about how we understand incarceration and its afterlife.`\
-https://nytimes.com/2021/02/03/books/review-halfway-home-mass-incarceration-reuben-jonathan-miller.html?searchResultPosition=7
+**Are Private Messaging Apps the Next Misinformation Hot Spot?**\
+`Telegram and Signal, the encrypted services that keep conversations confidential, are increasingly popular. Our tech columnists discuss whether this could get ugly.`\
+https://nytimes.com/2021/02/03/technology/personaltech/telegram-signal-misinformation.html?searchResultPosition=7
 
-**Golden Globes 2021 Nominations. Yes, They’re Happening.**\
-`Many movie theaters have been closed for almost a year, but the Hollywood awards season begins in earnest on Wednesday morning with the announcement of the Globe nominees.`\
-https://nytimes.com/2021/02/03/movies/golden-globes-nominations-announcement.html?searchResultPosition=8
+**A Mysterious, Lethal Chimp Disease Is Linked to a Human Illness**\
+`Deaths at a Sierra Leone sanctuary that stumped people for 15 years have now been linked to a bacterium that seems to cause similar ailments in humans.`\
+https://nytimes.com/2021/02/03/science/chimpanzees-fatal-bacteria.html?searchResultPosition=8
 
-**Explosion Critically Injures 3 Near Los Angeles**\
-`Fire crews used two helicopters to put out a brush fire, which burned an acre of a hillside in Santa Clarita, Calif., the authorities said.`\
-https://nytimes.com/2021/02/02/us/santa-clarita-movie-set-explosion.html?searchResultPosition=9
+**The GOAT’s a Hog. Still, I Want Tom Brady to Win.**\
+`In the Super Bowl, Americans need a show of superheroic strength.`\
+https://nytimes.com/2021/02/03/opinion/tom-brady-super-bowl.html?searchResultPosition=9
 
-**Bannon, Pardoned by Trump, Now Faces Manhattan D.A. Investigation**\
-`Stephen K. Bannon got a last-minute pardon from President Donald J. Trump in a federal fraud case, but now state prosecutors are considering bringing charges.`\
-https://nytimes.com/2021/02/02/nyregion/bannon-vance-fraud-border-wall.html?searchResultPosition=10
+**5 Minutes That Will Make You Love String Quartets**\
+`Listen as our writers and some of our favorite artists share music of intimacy, intensity and joy.`\
+https://nytimes.com/2021/02/03/arts/music/five-minutes-string-quartet-classical-music.html?searchResultPosition=10
 
