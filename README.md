@@ -22,7 +22,7 @@ https://nytimes.com/2021/02/03/nyregion/nypd-james-kobel-racist-fired.html?searc
 `The governor of West Virginia, who supported a bigger relief bill than Senator Joe Manchin, a Democrat, initially did, spoke with us about government spending, Covid-19 vaccinations and climate policy.`\
 https://nytimes.com/2021/02/03/us/politics/jim-justice-manchin-west-virginia.html?searchResultPosition=6
 
-**Analysis: The fights over Marjorie Taylor Greene and Liz Cheney have far-reaching implications in post-Trump Washington.**\
+**Analysis: Fights over Greene and Cheney are bad news for a weakened McCarthy, less of a problem for McConnell.**\
 `The ugly fights over the two congresswomen proved that Representative Kevin McCarthy, the Republican leader, remains trapped under former President Donald J. Trump’s shadow.`\
 https://nytimes.com/2021/02/03/us/marjorie-taylor-greene-cheney-trump.html?searchResultPosition=7
 
