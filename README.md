@@ -18,8 +18,8 @@ https://nytimes.com/2021/02/03/world/europe/iceland-disney-language.html?searchR
 `The sudden ascent of the man credited with helping save the euro was a pipe dream for Italians frustrated with a coalition paralyzed by ideological schisms and incompetence.`\
 https://nytimes.com/2021/02/03/world/europe/mario-draghi-italy-government.html?searchResultPosition=6
 
-**Golden Globes 2021 Nominations: What to Expect and Predictions**\
-`Many movie theaters have been closed for almost a year, but the Hollywood awards season begins in earnest on Wednesday morning with the announcement of the Globe nominees.`\
+**Live Updates: Golden Globes 2021 Nominations**\
+`Many movie theaters have been closed for almost a year, but the Hollywood awards season began in earnest on Wednesday morning with the announcement of the Globe nominees.`\
 https://nytimes.com/2021/02/03/movies/live-golden-globes-nominations.html?searchResultPosition=7
 
 **What Jeff Bezos Does Next**\
