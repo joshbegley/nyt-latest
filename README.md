@@ -16,7 +16,7 @@ https://nytimes.com/video/world/asia/100000007585930/myanmar-coup-protest-bangko
 
 **Biden to Welcome More Refugees, but Far From All Will Get In**\
 `Gutted by the Trump administration, the refugee resettlement system is unable to quickly process tens of thousands of the world’s neediest people.`\
-https://nytimes.com/2021/02/03/us/politics/biden-refugees.html?searchResultPosition=5
+https://nytimes.com/2021/02/03/us/politics/biden-immigration-refugee-policy.html?searchResultPosition=5
 
 **What’s in Your Prenatal Vitamin?**\
 `Doctors recommend them before, during and even after a pregnancy. But regulation is spotty and finding the right pill can be hard.`\
