@@ -31,7 +31,7 @@ https://nytimes.com/video/us/politics/100000007584456/fbi-agents-killed-sunrise-
 https://nytimes.com/2021/02/02/us/politics/eugenio-martinez-dead.html?searchResultPosition=8
 
 **Ricky Powell, 59, Dies; Chronicled Early Hip-Hop and Downtown New York**\
-`Prolific with his point-and-shoot camera, he captured early, essential images of the Beastie Boys, Jean-Michel Basquiat, Run-DMC, Andy Warhol and more.`\
+`Prolific with his point-and-shoot camera, he captured essential images of the Beastie Boys, Jean-Michel Basquiat, Run-DMC, Andy Warhol and more.`\
 https://nytimes.com/2021/02/02/arts/music/ricky-powell-dead.html?searchResultPosition=9
 
 **Vladimir Putin Has Become America’s Ex-Boyfriend From Hell**\
