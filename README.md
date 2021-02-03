@@ -2,7 +2,7 @@
 `How we’re celebrating.`\
 https://nytimes.com/2021/02/03/at-home/birthdays-in-quarantine.html?searchResultPosition=1
 
-**New Vaccine Puzzle: Who Should get Which Shot?**\
+**New Vaccine Puzzle: Who Should Get Which Shot?**\
 `Countries are grappling with uncertainties about vaccine supplies and how protective various shots will be, while racing to combat new variants and save lives.`\
 https://nytimes.com/2021/02/03/world/europe/vaccine-coronavirus-variants.html?searchResultPosition=2
 
