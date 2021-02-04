@@ -1,40 +1,40 @@
+**Homes for Sale in Brooklyn, Manhattan and the Bronx**\
+`This week’s properties are in Carroll Gardens, the East Village and Spuyten Duyvil.`\
+https://nytimes.com/2021/02/04/realestate/home-sales-nyc.html?searchResultPosition=1
+
+**On the Market in New York City**\
+`This week’s properties are in Carroll Gardens, the East Village and Spuyten Duyvil.`\
+https://nytimes.com/slideshow/2021/02/04/realestate/on-the-market-in-new-york-city.html?searchResultPosition=2
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties include a two-bedroom condo in Weehawken, N.J., and a six-bedroom house in Garden City, N.Y.`\
+https://nytimes.com/2021/02/04/realestate/home-sales-near-nyc.html?searchResultPosition=3
+
+**On the Market in the New York Region**\
+`This week’s properties include a two-bedroom condo in Weehawken, N.J., and a six-bedroom house in Garden City, N.Y.`\
+https://nytimes.com/slideshow/2021/02/04/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+
+**How the Pandemic Blew Up Rents**\
+`Wild fluctuations in the cost of rental apartments across the country seem to be slowing after a tumultuous year.`\
+https://nytimes.com/2021/02/04/realestate/how-the-pandemic-blew-up-rents.html?searchResultPosition=5
+
+**The T List: Valentine’s Day Gift Guide, Part I**\
+`Decoupaged mementos, artisanal chocolates from Ghana — and more.`\
+https://nytimes.com/2021/02/04/t-magazine/valentines-day-gift-guide.html?searchResultPosition=6
+
 **Will Gavin Newsom Be Recalled?**\
 `Thursday: One expert says numbers show a recall election is “a probability.” But what happens next is complicated.`\
-https://nytimes.com/2021/02/04/us/gavin-newsom-recall.html?searchResultPosition=1
+https://nytimes.com/2021/02/04/us/gavin-newsom-recall.html?searchResultPosition=7
 
 **Some Baby Food May Contain Toxic Metals, U.S. Reports**\
 `Testing found high levels of arsenic, lead and cadmium in some ingredients, congressional investigators said.`\
-https://nytimes.com/2021/02/04/health/baby-food-metals-arsenic.html?searchResultPosition=2
+https://nytimes.com/2021/02/04/health/baby-food-metals-arsenic.html?searchResultPosition=8
 
 **Tampa Bay’s Pass Rush Would Like Your Attention**\
 `Shaquil Barrett, Jason Pierre-Paul and Ndamukong Suh found a home with the Buccaneers after being discarded elsewhere. On Sunday, their mission is clear: Get Patrick Mahomes.`\
-https://nytimes.com/2021/02/04/sports/football/tampa-bay-barrett-suh-pierre-paul.html?searchResultPosition=3
+https://nytimes.com/2021/02/04/sports/football/tampa-bay-barrett-suh-pierre-paul.html?searchResultPosition=9
 
 **Avalanche Kills Three Hikers in Alaska, Officials Say**\
 `The bodies of the hikers were found near Anchorage on Wednesday. An avalanche in Colorado this week also killed three people.`\
-https://nytimes.com/2021/02/04/us/alaska-avalanche-deaths.html?searchResultPosition=4
-
-**It’s Memes vs. Regulators**\
-`Officials are looking for signs of manipulation behind the recent market frenzy.`\
-https://nytimes.com/2021/02/04/business/dealbook/meme-stocks-regulators.html?searchResultPosition=5
-
-**U.K. Regulator Revokes License for China-Backed Broadcaster**\
-`The British regulator, Ofcom, said it would no longer allow China Global Television Network to operate, in part because of its affiliation with China’s Communist Party.`\
-https://nytimes.com/2021/02/04/world/europe/uk-china-cgtn-license.html?searchResultPosition=6
-
-**Iranian Diplomat Is Convicted Over Plot to Bomb Opposition Rally in France**\
-`A court in Belgium sentenced Assadollah Assadi, an envoy based in Vienna, to 20 years in prison for his role in a thwarted attack on a group that seeks to overthrow the Iranian leadership.`\
-https://nytimes.com/2021/02/04/world/europe/iranian-diplomat-convicted-bomb-plot.html?searchResultPosition=7
-
-**The New York Times Tops 7.5 Million Subscriptions as Ads Decline**\
-`In its fourth-quarter earnings report, The New York Times Company said 2020 was its biggest year for adding subscribers.`\
-https://nytimes.com/2021/02/04/business/media/new-york-times-earnings.html?searchResultPosition=8
-
-**‘A Glitch in the Matrix’ Review: Is This All Just a Simulation?**\
-`This documentary, from the director of “Room 237,” is a lively yet superficial exploration of the theory that our reality is actually a computer simulation.`\
-https://nytimes.com/2021/02/04/movies/a-glitch-in-the-matrix-review.html?searchResultPosition=9
-
-**‘Little Fish’ Review: Do You Remember Love?**\
-`This sci-fi romance imagines a world with widespread memory loss through the eyes of one couple.`\
-https://nytimes.com/2021/02/04/movies/little-fish-review.html?searchResultPosition=10
+https://nytimes.com/2021/02/04/us/alaska-avalanche-deaths.html?searchResultPosition=10
 
