@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/04/world/middleeast/lokman-slim-killed-hezbollah.htm
 https://nytimes.com/2021/02/04/style/instagram-account-fraud-ban.html?searchResultPosition=3
 
 **A memoir by Hunter Biden, ‘Beautiful Things,’ will focus on his substance abuse.**\
-`By Alexandra Alter`\
+`President Biden’s oldest surviving child is publishing a memoir about his struggles with addiction and drug abuse.`\
 https://nytimes.com/2021/02/04/us/hunter-biden-memoir.html?searchResultPosition=4
 
 **‘The Equalizer’ Review: Queen Latifah on the CBS Assembly Line**\
