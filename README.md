@@ -1,5 +1,5 @@
-**Clearview AI’s Facial-Recognition App Ruled Illegal in Canada**\
-`Canadian authorities declared that the company needed citizens’ consent to use their biometric information, and ordered the firm to delete facial images from its database.`\
+**Clearview AI’s Facial-Recognition App Called Illegal in Canada**\
+`Canadian authorities declared that the company needed citizens’ consent to use their biometric information, and told the firm to delete facial images from its database.`\
 https://nytimes.com/2021/02/03/technology/clearview-ai-illegal-canada.html?searchResultPosition=1
 
 **Coronavirus Briefing: What Happened Today**\
