@@ -1,40 +1,40 @@
-**Biden’s Early Strategy**\
-`And what else you need to know today.`\
-https://nytimes.com/2021/02/04/briefing/biden-stimulus-mckinsey-opioid-settlement-olympics.html?searchResultPosition=1
+**‘A Glitch in the Matrix’ Review: Is This All Just a Simulation?**\
+`This documentary, from the director of “Room 237,” is a lively yet superficial exploration of the theory that our reality is actually a computer simulation.`\
+https://nytimes.com/2021/02/04/movies/a-glitch-in-the-matrix-review.html?searchResultPosition=1
 
-**Former Uganda Militia Leader Is Convicted of War Crimes**\
-`Dominic Ongwen was abducted by the Lord’s Resistance Army militia as a child, and later rose to be one of its commanders. He was once a victim of some of the same crimes he was accused of later in life.`\
-https://nytimes.com/2021/02/04/world/africa/uganda-ongwen-war-crimes.html?searchResultPosition=2
+**‘Little Fish’ Review: Do You Remember Love?**\
+`This sci-fi romance imagines a world with widespread memory loss through the eyes of one couple.`\
+https://nytimes.com/2021/02/04/movies/little-fish-review.html?searchResultPosition=2
 
-**E.V.s Force Carmakers to Reinvent the Wheel, and Brakes, and Mirrors …**\
-`Building electric cars, and repairing them, will require a huge change for the industry and usher in a new automotive era.`\
-https://nytimes.com/2021/02/04/business/electric-vehicles-gm-tesla.html?searchResultPosition=3
+**‘Rams’ Review: Ailing Sheep and Quirky Characters**\
+`This comedy-drama starring Sam Neill, Michael Caton and Miranda Richardson depicts a catastrophe for a farming community in Western Australia.`\
+https://nytimes.com/2021/02/04/movies/rams-review.html?searchResultPosition=3
 
-**The End of Democracy in Myanmar**\
-`The nation’s political experiment appears to be over, with military generals in control and the civilian leader, Aung San Suu Kyi, under house arrest. We look at her rise and fall.`\
-https://nytimes.com/2021/02/04/podcasts/the-daily/myanmar-military-coup-aung-san-suu-kyi.html?searchResultPosition=4
+**‘Bliss’ Review: A High Concept, Under-Designed**\
+`Not even the charisma of Owen Wilson and Salma Hayek could energize this science-fiction film about telekinetic drifters.`\
+https://nytimes.com/2021/02/04/movies/bliss-review.html?searchResultPosition=4
 
-**Amid Sexual Misconduct Allegations, Another Alaska Attorney General Resigns**\
-`Ed Sniffen’s resignation came less than six months after his predecessor, Kevin G. Clarkson, resigned amid revelations that he had sent hundreds of text messages to a female state employee.`\
-https://nytimes.com/2021/02/04/us/ed-sniffen-Alaska-sexual-misconduct.html?searchResultPosition=5
+**The G.O.P. Walks a Tightrope**\
+`Liz Cheney and a Georgia extremist both claim victories (for now): This is your morning tip sheet.`\
+https://nytimes.com/2021/02/04/us/politics/liz-cheney-republicans-house.html?searchResultPosition=5
 
-**Inside 432 Park, a Pinnacle of the Luxury Condo Boom**\
-`The wealthy people who paid millions to own units at the supertall tower in Midtown Manhattan have complained about design problems.`\
-https://nytimes.com/2021/02/04/nyregion/432-park-condo-tower.html?searchResultPosition=6
+**‘Malcolm & Marie’ Review: Fight Flub**\
+`A gorgeous Hollywood couple has an extended, exhausting argument in this claustrophobic example of pandemic filmmaking from Netflix.`\
+https://nytimes.com/2021/02/04/movies/malcolm-marie-review.html?searchResultPosition=6
 
-**5 Things to Do This Weekend**\
-`Our critics and writers have selected noteworthy cultural events to experience virtually and outdoors in New York City.`\
-https://nytimes.com/2021/02/04/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=7
+**‘M.C. Escher: Journey to Infinity’ Review: Is It Art?**\
+`A documentary examines the methods and interests of this Dutch printmaker, who felt his work was also indebted to mathematics.`\
+https://nytimes.com/2021/02/04/movies/mc-escher-journey-to-infinity-review.html?searchResultPosition=7
 
-**A Parallel Pandemic Hits Health Care Workers: Trauma and Exhaustion**\
-`Vaccines may be on the way, but many on the front-lines are burned out. Has the government done enough to help alleviate their stress?`\
-https://nytimes.com/2021/02/04/science/health-care-workers-burned-out-quitting.html?searchResultPosition=8
+**‘Falling’ Review: Father and Son Reunion**\
+`Viggo Mortensen writes, directs and stars in this lacerating drama about a son dealing with his father’s mental decline.`\
+https://nytimes.com/2021/02/04/movies/falling-review.html?searchResultPosition=8
 
-**Super Bowl Party or Superspreader Event?**\
-`Experts offer tips on how to stay safe. For one, don’t plan on shouting or cheering with your friends.`\
-https://nytimes.com/2021/02/04/well/live/super-bowl-parties-covid.html?searchResultPosition=9
+**‘Two of Us’ Review: Thwarted Love**\
+`An older lesbian couple is met with unexpected devastation in this aching romantic drama by Filippo Meneghetti.`\
+https://nytimes.com/2021/02/04/movies/two-of-us-review-thwarted-love.html?searchResultPosition=9
 
-**Coming Soon: The ‘Vaccine Passport’**\
-`In the near future, travel may require digital documentation showing that passengers have been vaccinated or tested for the coronavirus. Answers to your questions.`\
-https://nytimes.com/2021/02/04/travel/coronavirus-vaccine-passports.html?searchResultPosition=10
+**‘Son of the South’ Review: Tale of an Alabama Activist**\
+`Sometimes absorbing, sometimes mortifyingly tone-deaf, the film dramatizes the memoir of the white civil rights figure Bob Zellner.`\
+https://nytimes.com/2021/02/04/movies/son-of-the-south-review.html?searchResultPosition=10
 
