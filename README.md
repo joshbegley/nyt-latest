@@ -2,7 +2,7 @@
 `Adam Coy fatally shot Andre Hill in December within seconds of approaching him in a garage.`\
 https://nytimes.com/2021/02/03/us/adam-coy-columbus-murder-andre-hill.html?searchResultPosition=1
 
-**Clearview AI’s Facial-Recognition App Called Illegal in Canada**\
+**Clearview AI’s Facial Recognition App Called Illegal in Canada**\
 `Canadian authorities declared that the company needed citizens’ consent to use their biometric information, and told the firm to delete facial images from its database.`\
 https://nytimes.com/2021/02/03/technology/clearview-ai-illegal-canada.html?searchResultPosition=2
 
