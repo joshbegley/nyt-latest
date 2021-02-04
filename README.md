@@ -26,8 +26,8 @@ https://nytimes.com/2021/02/04/podcasts/ezra-klein-podcast-zeynep-tufekci-transc
 `Transcript`\
 https://nytimes.com/2021/02/04/podcasts/ezra-klein-podcast-paul-krugman-transcript.html?searchResultPosition=7
 
-**Party of Personal Responsibility Declines to Hold Person Responsible**\
-`Does the G.O.P. have the spine to rein in Marjorie Taylor Greene?`\
+**Marjorie Taylor Greene Apologized and Got a Standing Ovation. Seriously.**\
+`Once again, the party of personal responsibility declines to hold the person responsible.`\
 https://nytimes.com/2021/02/04/opinion/marjorie-taylor-greene-republicans.html?searchResultPosition=8
 
 **The Man With the Plan to Beat the Pandemic**\
