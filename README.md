@@ -1,5 +1,5 @@
 **Grant Jackson, Relief Pitcher for Six Teams, Dies at 78**\
-`A left-hander, he had a 3-0 record in the postseason, including the victory in Game 7 of the World Series for the Pittsburgh Pirates. He died of ations of Covid-19.`\
+`A left-hander, he had a 3-0 record in the postseason, including the victory in Game 7 of the World Series for the Pittsburgh Pirates. He died of complications of Covid-19.`\
 https://nytimes.com/2021/02/04/obituaries/grant-jackson-dead-coronavirus.html?searchResultPosition=1
 
 **‘America Is Back’: Biden Outlines Vision of Global Leadership**\
