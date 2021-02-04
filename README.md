@@ -22,17 +22,17 @@ https://nytimes.com/2021/02/04/nyregion/432-park-condo-tower.html?searchResultPo
 `Our critics and writers have selected noteworthy cultural events to experience virtually and outdoors in New York City.`\
 https://nytimes.com/2021/02/04/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=6
 
+**A Parallel Pandemic Hits Health Care Workers: Trauma and Exhaustion**\
+`Vaccines may be on the way, but many on the front-lines are burned out. Has the government done enough to help alleviate their stress?`\
+https://nytimes.com/2021/02/04/science/health-care-workers-burned-out-quitting.html?searchResultPosition=7
+
 **Super Bowl Party or Superspreader Event?**\
 `Experts offer tips on how to stay safe. For one, don’t plan on shouting or cheering with your friends.`\
-https://nytimes.com/2021/02/04/well/live/super-bowl-parties-covid.html?searchResultPosition=7
+https://nytimes.com/2021/02/04/well/live/super-bowl-parties-covid.html?searchResultPosition=8
 
 **Coming Soon: The ‘Vaccine Passport’**\
 `In the near future, travel may require digital documentation showing that passengers have been vaccinated or tested for the coronavirus. Answers to your questions.`\
-https://nytimes.com/2021/02/04/travel/coronavirus-vaccine-passports.html?searchResultPosition=8
-
-**A Parallel Pandemic Hits Health Care Workers: Trauma and Exhaustion**\
-`Vaccines may be on the way, but many on the front-lines are burned out. Has the government done enough to help alleviate their stress?`\
-https://nytimes.com/2021/02/04/science/health-care-workers-burned-out-quitting.html?searchResultPosition=9
+https://nytimes.com/2021/02/04/travel/coronavirus-vaccine-passports.html?searchResultPosition=9
 
 **Hitchens Biography Proceeds, Against His Widow’s Wishes**\
 `Carol Blue-Hitchens and her late husband’s literary agent are discouraging friends from participating in a book tentatively titled “Pamphleteer: The Life and Times of Christopher Hitchens.”`\
