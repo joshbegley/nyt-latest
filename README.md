@@ -11,11 +11,11 @@ https://nytimes.com/2021/02/04/arts/the-weeknd-super-bowl-halftime-show.html?sea
 https://nytimes.com/2021/02/04/briefing/vaccines-yemen-biden-climate-change.html?searchResultPosition=3
 
 **17 Super Bowl Recipes for the Tiniest Tailgate**\
-`These dishes will help keep things festive, whether you’re watching alone, with a roommate or just family.`\
+`These dishes will help keep things festive, whether you’re watching the game alone, with a roommate or just family.`\
 https://nytimes.com/2021/02/04/dining/super-bowl-recipes-tailgate.html?searchResultPosition=4
 
 **Paris Hilton Has a Podcast, With a Twist**\
-`The aughts fixture and proto-influencer’s new show aims to stake out a middle ground between podcasting and social media.`\
+`The aughts fixture and proto-influencer’s new show with iHeartMedia aims to stake out a middle ground between podcasting and social media.`\
 https://nytimes.com/2021/02/04/arts/paris-hilton-podcast.html?searchResultPosition=5
 
 **The Art and Education of Owling**\
