@@ -15,7 +15,7 @@ https://nytimes.com/2021/02/03/technology/parler-ceo-fired.html?searchResultPosi
 https://nytimes.com/2021/02/03/us/betty-friedan-feminism-legacy.html?searchResultPosition=4
 
 **House Republicans choose to keep Liz Cheney in leadership post after her vote to impeach Trump.**\
-`The lopsided vote, 145-61, according to two people familiar with the results, came after a fierce and at times painful debate during a private meeting.`\
+`By Catie Edmondson and Nicholas Fandos`\
 https://nytimes.com/2021/02/03/us/liz-cheney-vote.html?searchResultPosition=5
 
 **Lawmaker Promoted Stem Cell Therapy for Covid-19 in Fraud Scheme, U.S. Says**\
