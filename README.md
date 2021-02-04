@@ -15,7 +15,7 @@ https://nytimes.com/2021/02/03/us/politics/capitol-riot-charges.html?searchResul
 https://nytimes.com/2021/02/03/sports/baseball/wayne-terwilliger-dead.html?searchResultPosition=4
 
 **Former Columbus Police Officer Is Charged With Murder**\
-`Adam Coy fatally shot Andre Hill in December within seconds of approaching him in a garage.`\
+`Adam Coy fatally shot Andre Hill in December within seconds of approaching him in a garage. Mr. Coy also faces charges for not activating his body camera until after the shooting.`\
 https://nytimes.com/2021/02/03/us/adam-coy-columbus-murder-andre-hill.html?searchResultPosition=5
 
 **Clearview AI’s Facial Recognition App Called Illegal in Canada**\
