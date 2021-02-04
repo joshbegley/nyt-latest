@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/03/us/coronavirus-today.html?searchResultPosition=2
 https://nytimes.com/video/us/politics/100000007586275/house-rules-committee-marjorie-greene-vote.html?searchResultPosition=3
 
 **Officer Killed in Jan. 6 Assault Is Honored at the Capitol**\
-`Brian D. Sicknick, the Capitol Police officer who died from injuries sustained while engaging with the mob that stormed the Capitol, was the fifth person to lie in honor there.`\
+`Brian D. Sicknick, the Capitol Police officer who died from injuries sustained while clashing with the mob that stormed the Capitol, was the fifth person to lie in honor there.`\
 https://nytimes.com/2021/02/03/us/politics/brian-sicknick-capitol-riot.html?searchResultPosition=4
 
 **Democrats Press Ahead on Stimulus as Biden Signals Openness to Changes**\
