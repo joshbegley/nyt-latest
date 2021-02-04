@@ -2,7 +2,7 @@
 `And what else you need to know today.`\
 https://nytimes.com/2021/02/04/briefing/biden-stimulus-mckinsey-opioid-settlement-olympics.html?searchResultPosition=1
 
-**Former Uganda Militia Commander Is Convicted of War Crimes**\
+**Former Uganda Militia Leader Is Convicted of War Crimes**\
 `Dominic Ongwen was abducted by the Lord’s Resistance Army militia as a child, and later rose to be one of its commanders. He was once a victim of some of the same crimes he was accused of later in life.`\
 https://nytimes.com/2021/02/04/world/africa/uganda-ongwen-war-crimes.html?searchResultPosition=2
 
