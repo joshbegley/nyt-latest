@@ -28,7 +28,7 @@ https://nytimes.com/2021/02/05/briefing/marjorie-taylor-greene-uk-vaccine-biden-
 
 **The $2.7 Billion Case Against Fox News**\
 `Smartmatic, an election technology company, filed a billion-dollar lawsuit against the network over what the company says are false claims about its role in the 2020 election. We hear from Smartmatic’s C.E.O. and lawyer.`\
-https://nytimes.com/2021/02/05/podcasts/the-daily/the-2-7-billion-case-against-fox-news.html?searchResultPosition=8
+https://nytimes.com/2021/02/05/podcasts/the-daily/smartmatic-fox-news.html?searchResultPosition=8
 
 **Marjorie Taylor Greene Knows Exactly What She’s Doing**\
 `The once-porous border between the right and the far right has dissolved.`\
