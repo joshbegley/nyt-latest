@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/05/books/review/podcast-chang-rae-lee-my-year-abroad-maurice-chammah-let-lord-sort-them-death-penalty.html?searchResultPosition=1
 
 **Virginia Schools Must Reopen by Mid-March, Northam Says**\
-`Gov. Ralph Northam of Virginia said on Friday that schools across the state should begin to offer in-person classes by Mach 15, adding that many students were suffering academically and emotionally.`\
+`Gov. Ralph Northam of Virginia said on Friday that schools across the state should begin to offer in-person classes by March 15, adding that many students were suffering academically and emotionally.`\
 https://nytimes.com/video/us/politics/100000007590163/virginia-governor-schools-reopen-march-coronavirus.html?searchResultPosition=2
 
 **Woman, 95, Indicted on 10,000 Counts of Accessory to Murder in Nazi Camp**\
