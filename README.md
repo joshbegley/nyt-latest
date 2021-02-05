@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/05/us/politics/cudd-texas-florist-mexico.html?searchResultPosition=1
 
 **Lou Dobbs’s Show Is Canceled by Fox Business**\
-`Mr. Dobbs, a loyal supporter of former President Donald J. Trump, is named in a lawsuit by the election technology company Smartmatic, against the Fox Corporation and two other Fox anchors.`\
+`Mr. Dobbs, a loyal supporter of former President Donald J. Trump, is named in a lawsuit by the election technology company Smartmatic against the Fox Corporation and two other Fox anchors.`\
 https://nytimes.com/2021/02/05/business/lou-dobbs-fox.html?searchResultPosition=2
 
 **U.S. Will Examine Giving F.B.I. More Resources to Counter Domestic Extremism**\
