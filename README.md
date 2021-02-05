@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/05/sports/soccer/valencia-peter-lim.html?searchResul
 https://nytimes.com/2021/02/05/business/dealbook/senate-stimulus.html?searchResultPosition=3
 
 **The AstraZeneca vaccine is found to be protective against the coronavirus variant first seen in Britain.**\
-`By Benjamin Mueller and Rebecca Robbins`\
+`An encouraging, albeit preliminary, study by Oxford researchers suggests that all five of the leading shots may offer at least some protection against new variants spreading around the globe.`\
 https://nytimes.com/2021/02/05/world/astrazeneca-vaccine-variant-uk.html?searchResultPosition=4
 
 **A Talking Owl and Cheery Sounds: Children’s Video Targets Dissent in Hong Kong**\
