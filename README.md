@@ -19,7 +19,7 @@ https://nytimes.com/2021/02/05/business/my-new-job-did-a-salary-bait-and-switch-
 https://nytimes.com/video/us/politics/100000007589543/marjorie-taylor-greene-reaction.html?searchResultPosition=5
 
 **Christopher Plummer, Whose Résumé Spanned Shakespeare to ‘The Sound of Music,’ Dies at 91**\
-`He was a pre-eminent Shakespearean actor, but it was his performance as Captain von Trapp in the beloved musical that propelled a steady half-century parade of television and film roles.`\
+`His performance as Captain von Trapp in one of the most popular movies of all time propelled a steady half-century parade of television and film roles.`\
 https://nytimes.com/2021/02/05/movies/christopher-plummer-dead.html?searchResultPosition=6
 
 **Low Effort, Big Reward**\
