@@ -1,40 +1,40 @@
+**The MyPillow Guy’s Fever Dream**\
+`In a bizarre, two-hour-plus disinfomercial on OANN, an election conspiracist sells a myth of a victory stolen.`\
+https://nytimes.com/2021/02/05/arts/television/mike-lindell-mypillow.html?searchResultPosition=1
+
 **Intruder Boards Military Plane at Joint Base Andrews, Officials Say**\
 `An unarmed man was given a summons for trespassing after he gained access to the base on Thursday and boarded an aircraft typically used by senior government and military leaders, officials said.`\
-https://nytimes.com/2021/02/05/us/air-force-base-security-breach.html?searchResultPosition=1
+https://nytimes.com/2021/02/05/us/air-force-base-security-breach.html?searchResultPosition=2
 
 **Big Love for Small-Batch Cooking**\
 `During the pandemic, home bakers clamored for scaled-down versions of their favorite recipes.`\
-https://nytimes.com/2021/02/05/dining/small-batch-baking.html?searchResultPosition=2
+https://nytimes.com/2021/02/05/dining/small-batch-baking.html?searchResultPosition=3
 
 **Coronavirus Briefing: What Happened Today**\
 `Should television shows incorporate the pandemic into shows or not?`\
-https://nytimes.com/2021/02/05/us/coronavirus-today.html?searchResultPosition=3
+https://nytimes.com/2021/02/05/us/coronavirus-today.html?searchResultPosition=4
 
 **Tom Brady vs. Patrick Mahomes: A Battle of the Ages**\
 `Much has been made about the nearly 20-year age difference between the two quarterbacks. But Super Bowl LV will come down to other numbers.`\
-https://nytimes.com/2021/02/05/sports/football/tom-brady-patrick-mahomes-super-bowl.html?searchResultPosition=4
+https://nytimes.com/2021/02/05/sports/football/tom-brady-patrick-mahomes-super-bowl.html?searchResultPosition=5
 
 **A Bucket Bag with a Back Story**\
 `Alexander McQueen’s new cross-body borrows from the harnesses the brand has periodically sent down the runway.`\
-https://nytimes.com/2021/02/05/t-magazine/alexander-mcqueen-bucket-bag.html?searchResultPosition=5
+https://nytimes.com/2021/02/05/t-magazine/alexander-mcqueen-bucket-bag.html?searchResultPosition=6
 
 **Hey, Whatever Happened to the Half-Slip?**\
 `Rumors of the death of the half-slip, an undergarment seen as A remnant of an old-fashioned way of dressing, have been greatly exaggerated.`\
-https://nytimes.com/2021/02/05/style/half-slip-fashion.html?searchResultPosition=6
+https://nytimes.com/2021/02/05/style/half-slip-fashion.html?searchResultPosition=7
 
 **144 Constitutional Lawyers Call Trump’s First Amendment Defense ‘Legally Frivolous’**\
 `Taking aim at a key plank of the former president’s impeachment defense, the lawyers argued that the constitutional protections did not apply to an impeachment proceeding.`\
-https://nytimes.com/2021/02/05/us/politics/trump-impeachment-defense.html?searchResultPosition=7
+https://nytimes.com/2021/02/05/us/politics/trump-impeachment-defense.html?searchResultPosition=8
 
 **Audio Journalist Who Worked on Flawed Podcast Leaves The Times**\
 `Andy Mills, who helped make “Caliphate,” about the Islamic State, became the focus of complaints by former colleagues after a corrective editors’ note in December.`\
-https://nytimes.com/2021/02/05/business/media/andy-mills-resigns-nyt.html?searchResultPosition=8
+https://nytimes.com/2021/02/05/business/media/andy-mills-resigns-nyt.html?searchResultPosition=9
 
 **QAnon Believers Are Obsessed With Hillary Clinton. She Has Thoughts.**\
 `The mass execution cult has roots in three decades of demonization.`\
-https://nytimes.com/2021/02/05/opinion/qanon-hillary-clinton.html?searchResultPosition=9
-
-**What Awaits Navalny in Russia’s Brutal Penal Colony System**\
-`Its prison camps, descended from the Soviet gulag, are notoriously harsh. But in a shift from the Stalin era, inmates have treated political prisoners with respect.`\
-https://nytimes.com/2021/02/05/world/europe/navalny-russia-penal-colony.html?searchResultPosition=10
+https://nytimes.com/2021/02/05/opinion/qanon-hillary-clinton.html?searchResultPosition=10
 
