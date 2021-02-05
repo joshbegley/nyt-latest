@@ -1,4 +1,4 @@
-**Chang-rae Lee on His New Novel: ‘It’s Kind of a Crazy Book.’**\
+**Chang-rae Lee on His New Novel: ‘It’s Kind of a Crazy Book’**\
 `Lee discusses “My Year Abroad,” and Maurice Chammah talks about “Let the Lord Sort Them: The Rise and Fall of the Death Penalty.”`\
 https://nytimes.com/2021/02/05/books/review/podcast-chang-rae-lee-my-year-abroad-maurice-chammah-let-lord-sort-them-death-penalty.html?searchResultPosition=1
 
