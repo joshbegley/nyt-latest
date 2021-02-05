@@ -1,6 +1,6 @@
 **The Jobs Crisis Is Broader Than It Seemed**\
 `January employment numbers suggest a stalling of progress toward a full recovery.`\
-https://nytimes.com/2021/02/05/upshot/the-jobs-crisis-is-broader-than-it-seemed.html?searchResultPosition=1
+https://nytimes.com/2021/02/05/upshot/january-jobs-crisis.html?searchResultPosition=1
 
 **Five Songs to Listen to Right Now**\
 `Here are five new and notable songs, including Billie Eilish and Rosalía’s team-up and Kodak Black’s reaction to a Trump pardon.`\
