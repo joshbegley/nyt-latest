@@ -27,7 +27,7 @@ https://nytimes.com/2021/02/05/books/the-people-and-things-you-might-meet-in-a-b
 https://nytimes.com/2021/02/05/nyregion/nypd-officer-hitman.html?searchResultPosition=7
 
 **Biden Ends Military Aid for Saudi War in Yemen. Ending the War Is Harder.**\
-`Nearly six years of war have shattered Yemen in a way that could thwart efforts to make peace, regardless whether American bombs are no longer used.`\
+`Nearly six years of war have shattered Yemen in a way that could thwart efforts to make peace, regardless of whether American bombs are no longer used.`\
 https://nytimes.com/2021/02/05/world/middleeast/yemen-saudi-biden.html?searchResultPosition=8
 
 **N.C.A.A. Women’s Basketball Tournament Will Be Held in Texas**\
