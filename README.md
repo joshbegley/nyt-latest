@@ -1,4 +1,4 @@
-**New Zealand Sentences Woman Caught With Cacti Strapped to Her Body**\
+**New Zealand Sentences Woman Caught With Cacti Tied to Her Body**\
 `The woman, Wenqing Li, pleaded guilty to violating biosecurity laws in two attempts to smuggle nearly 1,000 cacti and succulents into the country.`\
 https://nytimes.com/2021/02/04/us/new-zealand-cacti-succulent.html?searchResultPosition=1
 
