@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/05/briefing/stimulus-vaccines-super-bowl-lv.html?searchResultPosition=1
 
 **Ngozi Okonjo-Iweala Set to Become W.T.O.’s First Female Leader**\
-`Her path was cleared after Yoo Myung-hee, the South Korean trade minister, announced she was withdrawing herself from consideration to head the World Trade Organization.`\
+`Her path was cleared after Yoo Myung-hee, the South Korean trade minister, announced she was withdrawing from consideration to head the World Trade Organization.`\
 https://nytimes.com/2021/02/05/business/ngozi-okonjo-iweala-world-trade-organization.html?searchResultPosition=2
 
 **‘An Affront to Individuals’ Privacy Rights’: Canada’s Growing Online Discomfort**\
