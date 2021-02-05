@@ -1,5 +1,5 @@
 **Christopher Plummer, Whose Résumé Spanned Shakespeare to ‘The Sound of Music,’ Dies at 91**\
-`He was a pre-eminent Shakespearean actor, but it was his performance as Captain von Trapp in the beloved musical that propelled a steady half-century parade television and film roles.`\
+`He was a pre-eminent Shakespearean actor, but it was his performance as Captain von Trapp in the beloved musical that propelled a steady half-century parade of television and film roles.`\
 https://nytimes.com/2021/02/05/movies/christopher-plummer-dead.html?searchResultPosition=1
 
 **Low Effort, Big Reward**\
