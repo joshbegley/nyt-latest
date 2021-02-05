@@ -14,7 +14,7 @@ https://nytimes.com/2021/02/05/arts/television/mike-lindell-mypillow.html?search
 `An unarmed man was given a summons for trespassing after he gained access to the base on Thursday and boarded an aircraft typically used by senior government and military leaders, officials said.`\
 https://nytimes.com/2021/02/05/us/air-force-base-security-breach.html?searchResultPosition=4
 
-**Big Love for Small-Batch Cooking**\
+**Big Love for Small-Batch Baking**\
 `During the pandemic, home bakers clamored for scaled-down versions of their favorite recipes.`\
 https://nytimes.com/2021/02/05/dining/small-batch-baking.html?searchResultPosition=5
 
