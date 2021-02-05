@@ -1,40 +1,40 @@
-**The Handling of Britney Spears**\
-`While looking at the pop star’s legal struggles for a new Times documentary, I was struck by the media culture of a bygone era.`\
-https://nytimes.com/2021/02/05/insider/britney-spears-father-documentary.html?searchResultPosition=1
+**It’s Time to Trust China’s and Russia’s Vaccines**\
+`They, too, work, and they can help fill shortages everywhere.`\
+https://nytimes.com/2021/02/05/opinion/covid-vaccines-china-russia.html?searchResultPosition=1
 
-**Pacific Islands’ Most Important Megaphone Falls Into Discord**\
-`The future of an 18-nation group is in doubt after Palau abandoned it over a leadership dispute.`\
-https://nytimes.com/2021/02/05/world/asia/pacific-islands-forum.html?searchResultPosition=2
+**The Exponential Power of a $15 Wage Floor**\
+`Biden can improve the lives of hundreds of thousands with a single executive order.`\
+https://nytimes.com/2021/02/05/opinion/minimum-wage-fight-for-15.html?searchResultPosition=2
 
-**Power, Patriotism and 1.4 Billion People: How China Beat the Virus and Roared Back**\
-`The Chinese Communist Party reached deep into private business and the broader population to drive a recovery, an authoritarian approach that has emboldened its top leader, Xi Jinping.`\
-https://nytimes.com/2021/02/05/world/asia/china-covid-economy.html?searchResultPosition=3
+**Photographing Life as It’s Seen, Not Staged**\
+`Documentary photography, which fell out of favor with the rise of manipulated images, is making a comeback, on view at the International Center of Photography. Here are some names to watch.`\
+https://nytimes.com/2021/02/05/arts/design/ICP-documentary-photographers.html?searchResultPosition=3
 
-**Stonks**\
-`What do you think this image is saying?`\
-https://nytimes.com/2021/02/05/learning/stonks.html?searchResultPosition=4
+**Students Punished for ‘Vulgar’ Social Media Posts Are Fighting Back**\
+`A lawsuit against the University of Tennessee questions when schools can discipline students because of their online speech.`\
+https://nytimes.com/2021/02/05/us/colleges-social-media-discipline.html?searchResultPosition=4
 
-**Trevor Noah: Marjorie Taylor Greene Deleted Her Browser History IRL**\
-`The congresswoman disavowed some of her outlandish statements. But Noah says she’s “so crazy that her saying that 9/11 happened makes me go, ‘Wait, did it?’”`\
-https://nytimes.com/2021/02/05/arts/television/trevor-noah-marjorie-taylor-greene.html?searchResultPosition=5
+**They Stormed the Capitol. Their Apps Tracked Them.**\
+`Times Opinion was able to identify individuals from a trove of leaked smartphone location data.`\
+https://nytimes.com/2021/02/05/opinion/capitol-attack-cellphone-data.html?searchResultPosition=5
 
-**T Magazine Australia Launching in March**\
-`Australians will get a new luxury magazine from The New York Times in March.`\
-https://nytimes.com/2021/02/05/world/australia/t-magazine-march-food.html?searchResultPosition=6
+**A Plan B for Immigration Reform**\
+`Senate Republicans are likely to block Biden’s proposal, so let’s concentrate on protecting as many people as possible without a comprehensive bill.`\
+https://nytimes.com/2021/02/05/opinion/a-plan-b-for-immigration-reform.html?searchResultPosition=6
 
-**Word + Quiz: hyperbole**\
-`This word has appeared in 93 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/05/learning/word-quiz-hyperbole.html?searchResultPosition=7
+**The Economist Placing Value on Black Women’s Overlooked Work**\
+`Tracing community activism back a hundred years, Nina Banks says this labor by Black women should be counted as part of the economy.`\
+https://nytimes.com/2021/02/05/business/black-women-economists-nina-banks.html?searchResultPosition=7
 
-**2 Picture Books Celebrate the Poetry and Promise of Black Lives**\
-`In “Have I Ever Told You Black Lives Matter” and “The ABCs of Black History,” U is for Unfinished.`\
-https://nytimes.com/2021/02/05/books/review/have-i-ever-told-you-black-lives-matter-shani-mahiri-king-bobby-c-martin-jr.html?searchResultPosition=8
+**Abolish the Racist, Sexist Subminimum Wage**\
+`Biden’s Raise the Wage Act should ensure that tipped workers receive fair pay.`\
+https://nytimes.com/2021/02/05/opinion/minimum-wage-racism.html?searchResultPosition=8
 
-**A ‘Masculinity Crisis’? China Says the Boys Are Not All Right**\
-`The Education Ministry plans to beef up gym classes after a top official said female teachers and pop culture had made boys “weak, inferior and timid.”`\
-https://nytimes.com/2021/02/05/world/asia/china-masculinity-schoolboys.html?searchResultPosition=9
+**Getting to Know You, Again**\
+`The pandemic has sent many people back to their parents’ homes, giving both generations new insight and a chance at a different kind of relationship.`\
+https://nytimes.com/2021/02/05/realestate/moving-in-with-your-parents.html?searchResultPosition=9
 
-**Super Bowl LV Prediction: Why the Chiefs Will Beat the Buccaneers**\
-`No one has won more Super Bowls than Tom Brady, but in a high-scoring game, Patrick Mahomes has a slight advantage.`\
-https://nytimes.com/2021/02/05/sports/football/super-bowl-pick-chiefs-buccaneers.html?searchResultPosition=10
+**Housing Parents in a Pandemic: How About the Backyard?**\
+`Wanting to keep older relatives safe and close, families are taking a harder look at the structures known as accessory dwelling units.`\
+https://nytimes.com/2021/02/05/business/accessory-dwelling-units-parents.html?searchResultPosition=10
 
