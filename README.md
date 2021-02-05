@@ -2,7 +2,7 @@
 `The future of an 18-nation group is in doubt after Palau abandoned it over a leadership dispute.`\
 https://nytimes.com/2021/02/05/world/asia/pacific-islands-forum.html?searchResultPosition=1
 
-**Power, Patriotism and 1.4 Billion People:How China Beat the Virus and Roared Back**\
+**Power, Patriotism and 1.4 Billion People: How China Beat the Virus and Roared Back**\
 `The Chinese Communist Party reached deep into private business and the broader population to drive a recovery, an authoritarian approach that has emboldened its top leader, Xi Jinping.`\
 https://nytimes.com/2021/02/05/world/asia/china-covid-economy.html?searchResultPosition=2
 
