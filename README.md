@@ -6,7 +6,7 @@ https://nytimes.com/2021/02/05/arts/design/met-museum-considers-selling-art.html
 `In a bizarre, two-hour-plus disinfomercial on OANN, an election conspiracist sells a myth of a victory stolen.`\
 https://nytimes.com/2021/02/05/arts/television/mike-lindell-mypillow.html?searchResultPosition=2
 
-**Intruder Boards Military Plane at Joint Base Andrews, Officials Say**\
+**Intruder Boards a Military Plane at Joint Base Andrews**\
 `An unarmed man was given a summons for trespassing after he gained access to the base on Thursday and boarded an aircraft typically used by senior government and military leaders, officials said.`\
 https://nytimes.com/2021/02/05/us/air-force-base-security-breach.html?searchResultPosition=3
 
