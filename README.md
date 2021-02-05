@@ -2,7 +2,7 @@
 `Other countries are plowing cash into homegrown technologies. Should the United States follow?`\
 https://nytimes.com/2021/02/05/technology/computer-chips-government-help.html?searchResultPosition=1
 
-**New York’s Top Judge Demands ‘Zero Tolerance’ After Officer’s Racist Post**\
+**After Officer’s Racist Post, New York’s Top Judge Demands ‘Zero Tolerance’**\
 `A Buffalo area court officer did not face a disciplinary hearing after he wrote a Facebook post saying George Floyd “deserved what he got.”`\
 https://nytimes.com/2021/02/05/nyregion/ny-court-officers-racism.html?searchResultPosition=2
 
