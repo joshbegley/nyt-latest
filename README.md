@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/06/opinion/sunday/costco-chicken-animal-welfare.html
 `The intense but fast-moving storm promises to create havoc for travelers on Super Bowl Sunday and be followed by single-digit temperatures, forecasters said.`\
 https://nytimes.com/2021/02/06/nyregion/snow-storm.html?searchResultPosition=9
 
-**In Beleaguered Babylon, Doing Battle Against Time, Water and Modern Civilization**\
-`The ancient city of Babylon is a World Heritage Site, but it faces threats old and new. As some of its walls crumble, preservationists are fighting to preserve the past.`\
-https://nytimes.com/2021/02/06/world/middleeast/babylon-iraq-archeology-conservation.html?searchResultPosition=10
+**Carmen Vázquez, a longtime force in the world of L.G.B.T.Q. rights, dies at 72.**\
+`By Neil Genzlinger`\
+https://nytimes.com/2021/02/06/world/carmen-vazquez-a-longtime-force-in-the-world-of-lgbtq-rights-dies-at-72.html?searchResultPosition=10
 
