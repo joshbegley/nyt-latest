@@ -18,7 +18,7 @@ https://nytimes.com/2021/02/05/world/middleeast/icc-israel-war-crimes.html?searc
 `Claudia Tenney, a Republican from Central New York, regained a seat she lost in 2018 after a judge ruled that her 109-vote victory was legitimate.`\
 https://nytimes.com/2021/02/05/nyregion/claudia-tenney-brindisi-election.html?searchResultPosition=5
 
-**Facebook’s Supreme Court Needs a Broader Mandate**\
+**People Want Real Change at Facebook. Its ‘Supreme Court’ Isn’t Delivering.**\
 `The first decisions from the new Oversight Board have been issued. The results are underwhelming.`\
 https://nytimes.com/2021/02/05/opinion/facebook-supreme-court.html?searchResultPosition=6
 
