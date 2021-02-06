@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/asia/100000007591201/myanmar-military-protests.html?searchResultPosition=1
 
 **Pushing QAnon and Stolen Election Lies, Flynn Re-emerges**\
-`Recast by President Trump’s most ardent supporters as a MAGA martyr, Mr. Flynn has embraced his role as the man who spent four years unjustly ensnared in the Russian investigation.`\
+`Recast by President Trump’s most ardent supporters as a MAGA martyr, Michael T. Flynn has embraced his role as the man who spent four years unjustly ensnared in the Russian investigation.`\
 https://nytimes.com/2021/02/06/us/politics/michael-flynn-qanon.html?searchResultPosition=2
 
 **Albert Hale, Former President of Navajo Nation, Dies at 70**\
