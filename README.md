@@ -1,40 +1,40 @@
-**How the Pandemic Left the $25 Billion Hudson Yards Eerily Deserted**\
-`The largest private development in U.S. history has attracted marquee companies, but is struggling with unsold luxury condos and a mall barren of shoppers.`\
-https://nytimes.com/2021/02/06/nyregion/hudson-yards-nyc.html?searchResultPosition=1
+**In Afghanistan, a Booming Kidney Trade Preys on the Poor**\
+`Widespread poverty and an ambitious private hospital are helping to fuel an illegal market — a portal to new misery for the country’s most vulnerable.`\
+https://nytimes.com/2021/02/06/world/asia/selling-buying-kidneys-afghanistan.html?searchResultPosition=1
 
-**Supreme Court Partly Backs Religious Challenge to California Virus Restrictions**\
-`The ruling followed a similar one in a case from New York and provided more evidence of a change in the court’s direction after the death of Justice Ruth Bader Ginsburg.`\
-https://nytimes.com/2021/02/06/us/supreme-court-california-church-coronavirus.html?searchResultPosition=2
+**Migrant Families Force Biden to Confront New Border Crisis**\
+`In recent days, hundreds of migrant families have been released into the United States by Border Patrol agents. Thousands more are hoping for a chance to enter under looser policies.`\
+https://nytimes.com/2021/02/06/us/migrants-border-coronavirus-san-diego.html?searchResultPosition=2
 
-**Police Shoot a Street Juggler in Chile, Setting Off Protests**\
-`Buildings were burned in the southern town of Panguipulli after the fatal shooting, which was captured on video.`\
-https://nytimes.com/2021/02/06/world/americas/chile-police-shooting.html?searchResultPosition=3
+**HNA Was Once China’s Biggest Dealmaker. Now It Faces Bankruptcy.**\
+`China is tightening the reins on its economy and looking out for companies that could pose risks to China’s financial system.`\
+https://nytimes.com/2021/02/06/business/hna-was-once-chinas-biggest-dealmaker-now-it-faces-bankruptcy.html?searchResultPosition=3
 
-**Britt Reid, a Chiefs Assistant Coach, Is Involved in a Car Crash**\
-`The team released a statement confirming that Reid, the son of Kansas City’s head coach, Andy Reid, had been in an accident but provided no other details.`\
-https://nytimes.com/2021/02/05/sports/football/britt-reid-chiefs-crash.html?searchResultPosition=4
+**A No-Bid Contract to Track Covid Vaccinations Draws Frustration, and a Cease-and-Desist**\
+`The Trump administration awarded a no-bid contract to Deloitte to develop software to track vaccinations, but the system has flaws. A competitor has accused the C.D.C. and the company of stealing her idea.`\
+https://nytimes.com/2021/02/06/us/politics/coronavirus-vaccines.html?searchResultPosition=4
 
-**Corrections: Feb. 6, 2021**\
-`Corrections that appeared in print on Saturday, Feb. 6, 2021.`\
-https://nytimes.com/2021/02/05/pageoneplus/corrections-feb-6-2021.html?searchResultPosition=5
+**How the United States Lost to Hackers**\
+`America’s biggest vulnerability in cyberwarfare is hubris.`\
+https://nytimes.com/2021/02/06/technology/cybersecurity-hackers-nsa.html?searchResultPosition=5
 
-**Quotation of the Day: Russia Casts Out Diplomats Over Navalny Protests**\
-`Quotation of the Day for Saturday, February 6, 2021.`\
-https://nytimes.com/2021/02/05/todayspaper/quotation-of-the-day-russia-casts-out-diplomats-over-navalny-protests.html?searchResultPosition=6
+**Watch This Billion-Year Journey of Earth’s Tectonic Plates**\
+`A new simulation offers a different view of how the continents we live on drifted into their current configuration.`\
+https://nytimes.com/2021/02/06/science/tectonic-plates-continental-drift.html?searchResultPosition=6
 
-**Big Scoop**\
-`Kameron Austin Collins ends our week with a flourish.`\
-https://nytimes.com/2021/02/05/crosswords/daily-puzzle-2021-02-06.html?searchResultPosition=7
+**‘Bridgerton’ Is Just the Beginning**\
+`In this time of our confinement, fans of period clothing are having a lot of fun on social media.`\
+https://nytimes.com/2021/02/06/style/bridgerton-costumes-historically-accurate.html?searchResultPosition=7
 
-**Feud Between Hollywood Agents and TV Writers Comes to an End**\
-`A fight over conflict-of-interest claims began nearly two years ago. William Morris Endeavor was the last major agency to reach a new agreement.`\
-https://nytimes.com/2021/02/05/business/media/hollywood-writers-agencies-deal.html?searchResultPosition=8
+**To Hear America’s Mothers, We Let Them Scream**\
+`In a special report, Times journalists ventured into the homes of three working parents as they navigated the daily grind of the pandemic. They also gave mothers an outlet to vent.`\
+https://nytimes.com/2021/02/06/insider/primal-scream-section.html?searchResultPosition=8
 
-**Biden Bars Trump From Receiving Intelligence Briefings, Citing ‘Erratic Behavior’**\
-`Mr. Biden said there was “no need” for former President Donald J. Trump to get the briefings, traditionally given to ex-presidents as a courtesy and to keep them informed if their advice is needed.`\
-https://nytimes.com/2021/02/05/us/politics/biden-trump-intelligence-briefings.html?searchResultPosition=9
+**How to Help When Adolescents Have Suicidal Thoughts**\
+`Even when rates of suicidal ideation increase, there are ways to keep kids safe.`\
+https://nytimes.com/2021/02/06/well/family/suicidal-ideation-kids-resilience.html?searchResultPosition=9
 
-**Biden Reverses Trump Terrorist Designation for Houthis in Yemen**\
-`Critics of the Trump administration action said the penalties would punish the millions of starving people in Yemen more than the Houthi rebels.`\
-https://nytimes.com/2021/02/05/us/politics/biden-houthi-yemen-terrorist-designation.html?searchResultPosition=10
+**The Great Pandemic Wedding Boom**\
+`Scary, stressful times tend to lead to increased marriage rates. The coronavirus pandemic is no different.`\
+https://nytimes.com/2021/02/06/style/the-great-pandemic-wedding-boom.html?searchResultPosition=10
 
