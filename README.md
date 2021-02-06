@@ -6,7 +6,7 @@ https://nytimes.com/2021/02/06/realestate/can-my-building-mandate-vaccinations-f
 `A Times editor describes getting the vaccine as a glimmer of joy during a dark and cold winter.`\
 https://nytimes.com/2021/02/06/world/vaccine-first-person.html?searchResultPosition=2
 
-**Why Some Women Don’t Want Antonio Brown in the Super Bowl**\
+**At the Super Bowl, Antonio Brown Tries to Move On. Many Cannot.**\
 `The Buccaneers receiver has been one of the most electrifying players in the N.F.L., but he is facing accusations of sexual assault and harassment.`\
 https://nytimes.com/2021/02/06/sports/football/antonio-brown-women-assault.html?searchResultPosition=3
 
