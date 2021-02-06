@@ -18,13 +18,13 @@ https://nytimes.com/2021/02/06/world/asia/selling-buying-kidneys-afghanistan.htm
 `In recent days, hundreds of migrant families have been released into the United States by Border Patrol agents. Thousands more are hoping for a chance to enter under looser policies.`\
 https://nytimes.com/2021/02/06/us/migrants-border-coronavirus-san-diego.html?searchResultPosition=5
 
-**HNA Was Once China’s Biggest Dealmaker. Now It Faces Bankruptcy.**\
-`China is tightening the reins on its economy and looking out for companies that could pose risks to China’s financial system.`\
-https://nytimes.com/2021/02/06/business/hna-was-once-chinas-biggest-dealmaker-now-it-faces-bankruptcy.html?searchResultPosition=6
-
 **A No-Bid Contract to Track Covid Vaccinations Draws Frustration, and a Cease-and-Desist**\
 `The Trump administration awarded a no-bid contract to Deloitte to develop software to track vaccinations, but the system has flaws. A competitor has accused the C.D.C. and the company of stealing her idea.`\
-https://nytimes.com/2021/02/06/us/politics/coronavirus-vaccines.html?searchResultPosition=7
+https://nytimes.com/2021/02/06/us/politics/coronavirus-vaccines.html?searchResultPosition=6
+
+**HNA Was Once China’s Biggest Dealmaker. Now It Faces Bankruptcy.**\
+`China is tightening the reins on its economy and looking out for companies that could pose risks to China’s financial system.`\
+https://nytimes.com/2021/02/06/business/hna-was-once-chinas-biggest-dealmaker-now-it-faces-bankruptcy.html?searchResultPosition=7
 
 **How the United States Lost to Hackers**\
 `America’s biggest vulnerability in cyberwarfare is hubris.`\
