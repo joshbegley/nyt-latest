@@ -28,7 +28,7 @@ https://nytimes.com/2021/02/06/opinion/fitness-soul-cycle.html?searchResultPosit
 
 **Biden Wants Harris to Have a Major Role. What It Is Hasn’t Been Defined.**\
 `President Biden is rarely seen without Kamala Harris, a tangible result of his efforts to treat her as an equal stakeholder. But for now he does not intend to assign her a specific portfolio.`\
-https://nytimes.com/2021/02/06/us/politics/kamala-harris-biden-vice-president.html?searchResultPosition=8
+https://nytimes.com/2021/02/06/us/politics/kamala-harris-joe-biden.html?searchResultPosition=8
 
 **Abraham Twerski, Who Merged 12 Steps and the Torah, Dies at 90**\
 `A noted psychiatrist, he looked outside his Orthodox tradition to meld an eclectic menu of addiction treatments, including the A.A. idea of a “higher power.”`\
