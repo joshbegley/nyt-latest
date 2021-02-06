@@ -1,4 +1,4 @@
-**Biden Reverses Trump Terror Designation for Houthis in Yemen**\
+**Biden Reverses Trump Terrorism Designation for Houthis in Yemen**\
 `Critics of the Trump administration action said the penalties would punish the millions of starving people in Yemen more than the Houthi rebels.`\
 https://nytimes.com/2021/02/05/us/politics/biden-houthi-yemen-terrorist-designation.html?searchResultPosition=1
 
