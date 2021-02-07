@@ -19,22 +19,3 @@ https://nytimes.com/2021/02/07/science/einsteinium-chemistry-elements.html?searc
 https://nytimes.com/2021/02/07/arts/music/met-opera-anna-netrebko.html?searchResultPosition=5
 
 **With a Mass Funeral, Yazidi Survivors Honor Victims of ISIS**\
-`The bodies of 103 men and boys killed in 2014 were recovered from a mass grave and returned to a shattered community that still fears for its future.`\
-https://nytimes.com/2021/02/07/world/middleeast/yazidi-funeral-isis-iraq.html?searchResultPosition=6
-
-**Why Were So Many Stettheimer Art Works Up for Sale? Not All Were Real**\
-`Five works by the dazzling and seldom-seen painter Florine Stettheimer emerged on the market in 2020. But some stood on shaky ground.`\
-https://nytimes.com/2021/02/07/arts/design/Florine-Stettheimer-auction-market.html?searchResultPosition=7
-
-**Review: The Tulsa Massacre, Remembered by Those Who Survived**\
-`“Goin’ Back to T-Town,” the 1993 PBS documentary about the mass murder of a city’s Black residents and the destruction of their community, returns.`\
-https://nytimes.com/2021/02/07/arts/television/review-tulsa-massacre-remembered.html?searchResultPosition=8
-
-**Where Do Vaccine Doses Go, and Who Gets Them? The Algorithms Decide**\
-`Health agencies and hospitals are using different formulas to allocate the coronavirus shots, exacerbating disparities in vaccine access.`\
-https://nytimes.com/2021/02/07/technology/vaccine-algorithms.html?searchResultPosition=9
-
-**Your Monday Briefing**\
-`Protesters rally across Myanmar.`\
-https://nytimes.com/2021/02/07/briefing/myanmar-india-australia-open-afghanistan.html?searchResultPosition=10
-
