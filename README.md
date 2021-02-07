@@ -6,8 +6,8 @@ https://nytimes.com/2021/02/07/us/white-protestants-ku-klux-klan.html?searchResu
 `Mr. Shultz served in the highest levels of the government, including as Treasury secretary and secretary of state, and was later a fellow at the Hoover Institution.`\
 https://nytimes.com/2021/02/07/obituaries/george-p-shultz-dead.html?searchResultPosition=2
 
-**Fighting Covid is like fighting a war**\
-`Why Biden needs to go big and ignore the worriers`\
+**Fighting Covid Is Like Fighting a War**\
+`Why Biden needs to go big and ignore the worriers.`\
 https://nytimes.com/2021/02/07/opinion/fighting-covid-is-like-fighting-a-war.html?searchResultPosition=3
 
 **Emil Freireich, Groundbreaking Cancer Researcher, Dies at 93**\
