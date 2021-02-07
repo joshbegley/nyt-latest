@@ -1,5 +1,5 @@
 **4 Skiers Killed in Avalanche in Utah, Officials Say**\
-`It was the third such deadly episode in days. Six people were killed in Alaska and Colorado in other avalanches this week.`\
+`It was the third such deadly episode in days and the deadliest avalanche in the United States since May 2014, according to the authorities.`\
 https://nytimes.com/2021/02/06/us/avalanche-salt-lake-city.html?searchResultPosition=1
 
 **Trump Lawyer Asks to Pause Impeachment Trial if It Runs Into Sabbath**\
