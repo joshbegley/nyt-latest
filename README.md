@@ -34,4 +34,7 @@ https://nytimes.com/2021/02/07/science/einsteinium-chemistry-elements.html?searc
 `Anna Netrebko sang a recital live from Vienna as the opera company and its unions remain in a standoff.`\
 https://nytimes.com/2021/02/07/arts/music/met-opera-anna-netrebko.html?searchResultPosition=9
 
-**With a Mass Funeral, Yazidi Survivors Honor Victims of ISIS**\
+**South Africa says AstraZeneca’s vaccine is not very effective at stopping a variant from causing illness.**\
+`By Benjamin Mueller, Rebecca Robbins and Lynsey Chutel`\
+https://nytimes.com/2021/02/07/world/south-africa-astrazeneca-vaccine.html?searchResultPosition=10
+
