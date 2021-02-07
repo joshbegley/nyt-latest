@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/06/us/avalanche-salt-lake-city.html?searchResultPosition=1
 
 **Trump Lawyer Asks to Pause Impeachment Trial if It Runs Into Sabbath**\
-`David Schoen, one of former President Donald J. Trump’s lawyers, has requested that the Senate suspend the impeachment trial at sundown on Friday and on Saturday, potentially upending plans for a fast trial.`\
+`The request by David Schoen, one of former President Donald J. Trump’s lawyers, could upend plans for a fast trial.`\
 https://nytimes.com/2021/02/06/us/politics/trump-impeachment-trial.html?searchResultPosition=2
 
 **Wyoming Republicans Censure Liz Cheney for Impeachment Vote**\
