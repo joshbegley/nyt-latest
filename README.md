@@ -16,7 +16,7 @@ https://nytimes.com/2021/02/07/us/politics/liz-cheney-republicans-trump.html?sea
 
 **For the first time, two women will coach in the Super Bowl. And Sarah Thomas will referee.**\
 `By Kevin Draper`\
-https://nytimes.com/2021/02/07/sports/football/who-is-sarah-thomas-lori-locust.html?searchResultPosition=5
+https://nytimes.com/2021/02/07/sports/football/sarah-thomas-super-bowl-referee.html?searchResultPosition=5
 
 **The choices of fans have public health implications.**\
 `By Ken Belson`\
