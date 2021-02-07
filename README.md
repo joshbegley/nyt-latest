@@ -8,7 +8,7 @@ https://nytimes.com/video/world/asia/100000007591897/india-glacier-break-floods.
 
 **Without a big aid bill like Biden’s, jobs will be slow to rebound, Yellen warns.**\
 `By Alan Rappeport`\
-https://nytimes.com/2021/02/07/us/without-a-big-aid-bill-like-bidens-jobs-will-be-slow-to-rebound-yellen-warns.html?searchResultPosition=3
+https://nytimes.com/2021/02/07/us/yellen-economy.html?searchResultPosition=3
 
 **N.B.A. Players and the Vaccine**\
 `A reader says the players’ parents should get the shot first, rather than the players themselves, to avoid an appearance of impropriety. Also: A bipartisan voting commission; women’s philanthropy.`\
