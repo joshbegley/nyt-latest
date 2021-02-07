@@ -2,7 +2,7 @@
 `It’s hard to solve a problem when you barely know what’s going on.`\
 https://nytimes.com/2021/02/07/opinion/covid-vaccines-mutations.html?searchResultPosition=1
 
-**Marjorie Taylor Greene Didn’t Come Out of Nowhere**\
+**The Women Who Paved the Way for Marjorie Taylor Greene**\
 `She’s the latest descendant in a lineage of Republican women who embrace a boffo radicalism.`\
 https://nytimes.com/2021/02/07/opinion/marjorie-taylor-greene-republican-women.html?searchResultPosition=2
 
