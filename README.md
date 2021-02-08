@@ -1,4 +1,4 @@
-**A Flash Flood Pushed Forward by Climate Change**\
+**India Flood Likely Nudged by Climate Change**\
 `Shrinking and thinning of glaciers is one of the most documented signs of the effects of global warming caused by rising levels of greenhouse gases.`\
 https://nytimes.com/2021/02/08/climate/climate-change-flash-flood-india.html?searchResultPosition=1
 
