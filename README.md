@@ -27,7 +27,7 @@ https://nytimes.com/2021/02/08/briefing/trump-virus-indonesia-dogecoin-bitcoin.h
 https://nytimes.com/2021/02/08/us/politics/julian-assange-indictment.html?searchResultPosition=7
 
 **Achoo! Climate Change Lengthening Pollen Season in U.S., Study Shows**\
-`New research suggests that climate change is responsible for longer pollen seasons in the United States and more pollen in the air, as well`\
+`New research suggests that climate change is responsible for longer pollen seasons in the United States and more pollen in the air, as well.`\
 https://nytimes.com/2021/02/08/climate/climate-change-pollen-hay-fever.html?searchResultPosition=8
 
 **‘Senators, Do Your Duty’**\
