@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2021/02/08/arts/television/deaf-representation-c
 
 **First Ad Blitz in N.Y.C. Mayor’s Race Has an Unlikely Star: Obama**\
 `Shaun Donovan, a former White House budget director, is rolling out his TV ad campaign and hoping his background in Washington will help him emerge from a crowded pack of candidates.`\
-https://nytimes.com/2021/02/08/nyregion/shaun-donovan-mayor.html?searchResultPosition=7
+https://nytimes.com/2021/02/08/nyregion/shaun-donovan-mayor-obama.html?searchResultPosition=7
 
 **Facebook says it plans to remove posts with false vaccine claims.**\
 `The move, which applies to anti-vaccine posts unrelated to Covid as well, targets unpaid posts to the site and particularly Facebook pages and groups.`\
