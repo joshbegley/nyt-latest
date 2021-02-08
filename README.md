@@ -1,36 +1,36 @@
+**From a World Away, One Ageless Wonder Marvels at Another**\
+`“Amazing!” Serena Williams said of Tom Brady’s seventh Super Bowl win. Of course, he’s never won a title while pregnant.`\
+https://nytimes.com/2021/02/08/sports/tennis/serena-williams-tom-brady.html?searchResultPosition=1
+
+**Shelby, Veteran Senator from Alabama, Won’t Seek Seventh Term**\
+`Senator Richard C. Shelby, Alabama’s longest-serving senator, will retire after a career in which he headed four congressional committees and directed billions of dollars to his home state.`\
+https://nytimes.com/2021/02/08/us/senator-richard-shelby-retire.html?searchResultPosition=2
+
 **Germany, Sweden and Poland Expel Russian Diplomats in Retaliatory Move**\
 `The decisions came after the Kremlin announced the ejection of three European envoys last week, saying they had attended rallies in support of the opposition leader Aleksei A. Navalny.`\
-https://nytimes.com/2021/02/08/world/europe/europe-expels-russian-diplomats.html?searchResultPosition=1
+https://nytimes.com/2021/02/08/world/europe/europe-expels-russian-diplomats.html?searchResultPosition=3
 
 **John Fetterman will run for Pennsylvania’s open Senate seat in 2022, in a Rust Belt test for the Democratic left.**\
 `The former mayor of Braddock, Pa., is positioning himself as the rarest of figures in 21st American politics — a populist Democrat hoping to unite the party’s left wing with former Trump supporters.`\
-https://nytimes.com/2021/02/08/us/politics/john-fetterman-pennsylvania.html?searchResultPosition=2
+https://nytimes.com/2021/02/08/us/politics/john-fetterman-pennsylvania.html?searchResultPosition=4
 
 **‘Women in Blue,’ and Redefining What It Means to Protect and Serve**\
 `A new documentary takes viewers inside the Minneapolis Police Department and explores whether more women officers, particularly Black women, could lead to better policing.`\
-https://nytimes.com/2021/02/08/us/women-in-blue-documentary-minneapolis-police.html?searchResultPosition=3
+https://nytimes.com/2021/02/08/us/women-in-blue-documentary-minneapolis-police.html?searchResultPosition=5
 
 **Illegal Walkie-Talkies and Other ‘Crimes’ in Authoritarian Societies**\
 `The most obscure or innocuous-sounding offenses can take on new meaning in justice systems used by autocrats for their own ends.`\
-https://nytimes.com/2021/02/08/world/asia/authoritarians.html?searchResultPosition=5
+https://nytimes.com/2021/02/08/world/asia/authoritarians.html?searchResultPosition=7
 
 **Britt Reid, Son of Chiefs Coach, Drank Alcohol Ahead of Car Crash**\
 `Reid told the police he had “two or three drinks” before slamming into a car that carried two small children last week. One is hospitalized with life-threatening injuries.`\
-https://nytimes.com/2021/02/08/sports/football/britt-reid-chiefs-crash.html?searchResultPosition=6
+https://nytimes.com/2021/02/08/sports/football/britt-reid-chiefs-crash.html?searchResultPosition=8
 
 **Solidarity Is Not an Easy Sell as E.U. Lags in Vaccine Race**\
 `Europe’s collective vaccine purchase is an experiment in deeper integration. Despite a rocky start, many countries still stand to benefit, but it’s the most powerful who have least to gain.`\
-https://nytimes.com/2021/02/08/world/europe/eu-vaccines-germany.html?searchResultPosition=7
+https://nytimes.com/2021/02/08/world/europe/eu-vaccines-germany.html?searchResultPosition=9
 
 **$76,000 Birkinstocks Made From Actual Birkin Bags?**\
 `Warning: Neither Hermès nor Birkenstock has approved this product.`\
-https://nytimes.com/2021/02/08/style/MSCHF-birkenstocks-birkin-bags-hermes.html?searchResultPosition=8
-
-**Read Trump’s Impeachment Defense Memo**\
-`In a 78-page brief submitted to the Senate, former President Donald J. Trump’s lawyers put forward their first sustained legal defense since Mr. Trump was impeached by the House for the second time.`\
-https://nytimes.com/interactive/2021/02/08/us/trump-defense-impeachment-trial.html?searchResultPosition=9
-
-**Robert L. Herbert, 91, Dies; Saw Impressionism With a Fresh Eye**\
-`A distinguished art historian at Yale, he illuminated the paintings of Seurat, Monet and others by regarding them through a social lens.`\
-https://nytimes.com/2021/02/08/arts/robert-herbert-dead.html?searchResultPosition=10
+https://nytimes.com/2021/02/08/style/MSCHF-birkenstocks-birkin-bags-hermes.html?searchResultPosition=10
 
