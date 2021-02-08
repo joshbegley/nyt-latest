@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2021/02/08/arts/television/deaf-representation-c
 https://nytimes.com/2021/02/08/nyregion/shaun-donovan-mayor.html?searchResultPosition=5
 
 **Facebook says it plans to remove posts with false vaccine claims.**\
-`The move targets unpaid posts to the site and particularly Facebook pages and groups.`\
+`The move, which applies to anti-vaccine posts unrelated to Covid as well, targets unpaid posts to the site and particularly Facebook pages and groups.`\
 https://nytimes.com/2021/02/08/technology/facebook-vaccine-misinformation.html?searchResultPosition=6
 
 **‘Black Art: In the Absence of Light’ Reveals a History of Neglect**\
