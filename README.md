@@ -1,5 +1,5 @@
 **SoftBank posts a quarterly profit of $11 billion to end a turbulent 12 months.**\
-`By Ben Dooley`\
+`SoftBank reported more than $11 billion in profit for the three months that ended in December, driven by surging values in its  investments in companies like Uber and  DoorDash.`\
 https://nytimes.com/2021/02/08/business/softbank-posts-a-quarterly-profit-of-11-billion-to-end-a-turbulent-12-months.html?searchResultPosition=1
 
 **Short-Sellers Fear for the Future**\
