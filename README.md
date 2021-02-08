@@ -4,7 +4,7 @@ https://nytimes.com/2021/02/08/world/middleeast/netanyahu-trial-plea.html?search
 
 **2021 Australian Open: What to Watch on Monday Night**\
 `One of the several young Americans taking the court, Sofia Kenin will begin her defense of her 2020 Australian Open title.`\
-https://nytimes.com/2021/02/08/sports/tennis/2021-australian-open-what-to-watch-on-monday-night.html?searchResultPosition=2
+https://nytimes.com/2021/02/08/sports/tennis/2021-australian-open-what-watch-monday.html?searchResultPosition=2
 
 **Full Employment**\
 `And what else you need to know today.`\
