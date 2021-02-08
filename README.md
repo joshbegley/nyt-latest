@@ -1,6 +1,6 @@
 **He Helped End the Cold War With Kindness**\
 `The human touch was at the heart of everything achieved by George Shultz, the former secretary of state who died on Saturday.`\
-https://nytimes.com/2021/02/08/opinion/george-shultz-cold-war.html?searchResultPosition=1
+https://nytimes.com/2021/02/08/opinion/george-shultz-dead.html?searchResultPosition=1
 
 **$1.5 Million Homes in California**\
 `A 1908 Craftsman bungalow in Pasadena, a midcentury house designed by Cliff May in Long Beach and a Mediterranean-style home in Albany.`\
