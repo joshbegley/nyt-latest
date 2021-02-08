@@ -18,7 +18,7 @@ https://nytimes.com/2021/02/07/us/politics/human-rights-council-biden-administra
 `The case of Cheng Lei, a CGTN host who was detained in August, has added to tensions between China and Australia.`\
 https://nytimes.com/2021/02/07/world/asia/china-cheng-lei-australia-state-secrets.html?searchResultPosition=5
 
-**A Key to Brady’s Super Bowl Success? Gronkowski, of Course**\
+**A Key to Brady’s Super Bowl Success? Gronkowski of Course**\
 `The duo set a record for postseason touchdowns, as the tight end who came out of retirement to join Tom Brady in Tampa helped defeat the Kansas City Chiefs.`\
 https://nytimes.com/2021/02/07/sports/football/super-bowl-gronkowski-brady.html?searchResultPosition=6
 
