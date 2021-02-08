@@ -2,7 +2,7 @@
 `This New York Times feature invites readers to tell love stories from their own lives in no more than 100 words. Let your students give it a try.`\
 https://nytimes.com/2021/02/08/learning/teaching-with-tiny-love-stories.html?searchResultPosition=1
 
-**In Tampa, Super Bowl Celebrations Bring Super Spreader Concerns**\
+**In Tampa, Super Bowl Celebrations Bring Superspreader Concerns**\
 `At least one police officer appeared to get knocked to the ground as a large group of fans shoved each other in the city, a video showed.`\
 https://nytimes.com/2021/02/08/sports/tampa-super-bowl-celebration.html?searchResultPosition=2
 
