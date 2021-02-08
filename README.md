@@ -1,4 +1,4 @@
-**Coronavirus Tests May Become Mandatory for Domestic Travel**\
+**Officials Discuss Possible Coronavirus Tests for Domestic Travelers**\
 `On Monday, members of the White House’s coronavirus response team discussed whether federal officials should require airline passengers to have a negative coronavirus test before boarding domestic flights.`\
 https://nytimes.com/video/us/politics/100000007593703/coronavirus-white-house-travel.html?searchResultPosition=1
 
