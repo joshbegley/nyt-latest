@@ -4,7 +4,7 @@ https://nytimes.com/2021/02/08/briefing/impeachment-trial-child-tax-credit-bitco
 
 **The Netanyahu Trial, Explained**\
 `Prime Minister Benjamin Netanyahu of Israel is standing trial on corruption charges. Here’s a look at the context of the trial, the main charges and the political ramifications.`\
-https://nytimes.com/2021/02/08/world/middleeast/benjamin-netanyahu-trial-explained-israel.html?searchResultPosition=2
+https://nytimes.com/2021/02/08/world/middleeast/benjamin-netanyahu-trial.html?searchResultPosition=2
 
 **Karen Lewis, Who Fought for Chicago’s Teachers, Dies at 67**\
 `As the resolute head of the city’s teachers union, she led a seven-day strike in 2012 and often butted heads with Mayor Rahm Emanuel.`\
