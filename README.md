@@ -2,7 +2,7 @@
 `Warning: Neither Hermès nor Birkenstock has approved this product.`\
 https://nytimes.com/2021/02/08/style/MSCHF-birkenstocks-birkin-bags-hermes.html?searchResultPosition=1
 
-**Trump’s Impeachment Defense Files Memo**\
+**Read Trump’s Impeachment Defense Memo**\
 `In a 78-page brief submitted to the Senate, former President Donald J. Trump’s lawyers put forward their first sustained legal defense since Mr. Trump was impeached by the House for the second time.`\
 https://nytimes.com/interactive/2021/02/08/us/trump-defense-impeachment-trial.html?searchResultPosition=2
 
