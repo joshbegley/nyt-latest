@@ -26,7 +26,7 @@ https://nytimes.com/2021/02/07/learning/word-quiz-plethora.html?searchResultPosi
 `President Donald J. Trump withdrew the United States from the council in 2018, but the Biden administration plans to “engage with it in a principled fashion” going forward.`\
 https://nytimes.com/2021/02/07/us/politics/human-rights-council-biden-administration.html?searchResultPosition=7
 
-**China Formally Arrests Australian Journalist on Spying Charge**\
+**China Arrests Australian Journalist on Spying Charge**\
 `The case of Cheng Lei, a CGTN host who was detained in August, has added to tensions between China and Australia.`\
 https://nytimes.com/2021/02/07/world/asia/china-cheng-lei-australia-state-secrets.html?searchResultPosition=8
 
