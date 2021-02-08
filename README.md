@@ -1,5 +1,5 @@
 **Second February Snowfall Blankets New York**\
-`More than six inches  fell on Sunday, and more nasty weather is expected this week, with additional snow and freezing temperatures.`\
+`More than six inches fell on Sunday, and more nasty weather is expected this week, with additional snow and freezing temperatures.`\
 https://nytimes.com/2021/02/08/nyregion/second-snowfall-new-york.html?searchResultPosition=1
 
 **Beauty, Serenity, Stillness: An Ode to the Final Miles of the Mississippi River**\
