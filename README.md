@@ -1,10 +1,10 @@
-**Bucs’ defensive pressure is responsible for Mahomes’s slow start.**\
+**The Bucs’ defensive pressure is responsible for Mahomes’s slow start.**\
 `By Bill Pennington`\
-https://nytimes.com/2021/02/07/sports/football/bucs-defensive-pressure-is-responsible-for-mahomess-slow-start.html?searchResultPosition=1
+https://nytimes.com/2021/02/07/sports/football/the-bucs-defensive-pressure-is-responsible-for-mahomess-slow-start.html?searchResultPosition=1
 
-**Touchdown! Brady to Gronkowski.**\
+**Short passes and a big result: Touchdown! Brady to Gronkowski.**\
 `By Ben Shpigel`\
-https://nytimes.com/2021/02/07/sports/football/touchdown-brady-to-gronkowski.html?searchResultPosition=2
+https://nytimes.com/2021/02/07/sports/football/short-passes-and-a-big-result-touchdown-brady-to-gronkowski.html?searchResultPosition=2
 
 **Bettors experienced delays placing prop bets before kickoff.**\
 `By David Waldstein`\
