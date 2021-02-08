@@ -2,7 +2,7 @@
 `The bassist, bandleader and composer’s 10-disc “Migration of Silence Into and Out of the Tone World” invites you to listen, and let the music do its work.`\
 https://nytimes.com/2021/02/08/arts/music/william-parker-tone-world.html?searchResultPosition=1
 
-**When it comes to their own pandemic precautions, state legislatures are all over the place.**\
+**When it comes to their own pandemic precautions, state legislatures in the U.S. are all over the place.**\
 `By John Yoon, Jordan Allen and Alyssa Burr`\
 https://nytimes.com/2021/02/08/us/mask-mandate-state-legislature-coronavirus.html?searchResultPosition=2
 
