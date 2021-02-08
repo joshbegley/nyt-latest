@@ -1,1 +1,1 @@
-**The fourth quarter begins: 15 minutes to Brady’s seventh title or an all-time comeback.**\
+**FINAL: The Buccaneers beat the Chiefs, and Tom Brady is a champion again.**\
