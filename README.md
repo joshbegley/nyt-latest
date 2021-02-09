@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2021/health/coronavirus-variant-tracker.html?sea
 
 **Denying Incitement, Trump Impeachment Team Says He Cannot Be Tried**\
 `The lengthy legal brief provided the first extended defense of former President Donald J. Trump’s conduct since the Jan. 6 assault on the Capitol. It arrived as senators locked in rules for an exceedingly fast trial.`\
-https://nytimes.com/2021/02/08/us/politics/trump-impeachment.html?searchResultPosition=2
+https://nytimes.com/2021/02/08/us/politics/trump-impeachment-legal-brief.html?searchResultPosition=2
 
 **Minimum Wage Hike Would Help Poverty but Cost Jobs, Budget Office Says**\
 `The Congressional Budget Office said raising the federal minimum wage to $15 would also increase the deficit, potentially helping the proposal’s prospects of being included in relief legislation.`\
