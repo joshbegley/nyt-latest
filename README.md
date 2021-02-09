@@ -1,40 +1,40 @@
-**The Most Serious Security Risk Facing the United States**\
-`Nicole Perlroth’s “This Is How They Tell Me the World Ends” looks at the history of cyberattacks and why they are only likely to get worse.`\
-https://nytimes.com/2021/02/09/books/review/this-is-how-they-tell-me-the-world-ends-nicole-perlroth.html?searchResultPosition=1
+**‘Super Host,’ by Kate Russo: An Excerpt**\
+`An excerpt from “Super Host,” by Kate Russo`\
+https://nytimes.com/2021/02/09/books/review/super-host-by-kate-russo-an-excerpt.html?searchResultPosition=1
 
-**Three of Fiction’s Brightest Stars Have New Books — of Poetry**\
-`Margaret Atwood (with “Dearly”), Barbara Kingsolver (“How to Fly in Ten Thousand Easy Lessons”) and Joyce Carol Oates (“American Melancholy”) return to a form they have embraced before.`\
-https://nytimes.com/2021/02/09/books/review/margaret-atwood-dearly-poems.html?searchResultPosition=2
+**What’s It Like to Sleep in a Hexagon?**\
+`After buying an awkward 1960s house with a clumsy 1980s addition, a couple set about dragging the lakefront property into the 21st century.`\
+https://nytimes.com/2021/02/09/realestate/lake-austin-texas-house.html?searchResultPosition=2
 
-**In Beverly Jenkins’s Romance Novels, Black History Is Front and Center**\
-`Her latest, “Wild Rain,” stars a young woman who defies family and societal expectations by running her own horse ranch in Wyoming Territory.`\
-https://nytimes.com/2021/02/09/books/review/beverly-jenkins-wild-rain.html?searchResultPosition=3
+**Restaurants Find a New Revenue Source: Feeding the Hungry**\
+`What began as an emergency measure in the pandemic’s early days has turned into a long-term business plan that could help many kitchens keep running.`\
+https://nytimes.com/2021/02/09/dining/restaurants-food-insecurity.html?searchResultPosition=3
 
-**Numbers, Speed, Mystery: The World of the Delivery Worker**\
-`Peter Mendelsund’s novel “The Delivery” follows an unnamed courier as he learns a cityscape, language and culture.`\
-https://nytimes.com/2021/02/09/books/review/peter-mendelsund-delivery.html?searchResultPosition=4
+**A Lakefront Home With a Hexagonal Heart**\
+`After buying an awkward 1960s house with a clumsy 1980s addition, a couple set about dragging the lakefront property into the 21st century.`\
+https://nytimes.com/slideshow/2021/02/09/realestate/a-lakefront-home-with-a-hexagonal-heart.html?searchResultPosition=4
 
-**A Portrait of a Stalwart Life, and of America Itself**\
-`Laird Hunt’s novel “Zorrie” is a rich study of a life in rural Indiana, through love and tragedy.`\
-https://nytimes.com/2021/02/09/books/review/laird-hunt-zorrie.html?searchResultPosition=5
+**Ted Ligety, Alpine Skiing Star and Innovator, Is Retiring**\
+`At 36, the only American man to win two Olympic gold medals in Alpine skiing is stepping away from the sport to spend more time with his growing family.`\
+https://nytimes.com/2021/02/09/sports/ted-ligety-retire-skiing.html?searchResultPosition=5
 
-**The Love Triangle That Caused a Religious Panic**\
-`“Doomed Romance,” by Christine Leigh Heyrman, offers a window onto ambition and hypocrisy in the 19th-century American evangelical movement at a critical moment in its history.`\
-https://nytimes.com/2021/02/09/books/review/doomed-romance-christine-leigh-heyrman.html?searchResultPosition=6
+**How Biden United a Fractious Party Under One Tent**\
+`President Biden and progressive Democrats are united by a moment of national crisis and the lingering influence of his predecessor. But the moment of harmony may be fragile.`\
+https://nytimes.com/2021/02/09/us/politics/biden-democrats-bernie-sanders-liberals.html?searchResultPosition=6
 
-**Was Bugsy Siegel the ‘Supreme Gangster’? A Biography Makes the Case**\
-`Michael Shnayerson’s “Bugsy Siegel: The Dark Side of the American Dream” is a rise-and-fall story of the bootlegger and murderer who practically invented Las Vegas.`\
-https://nytimes.com/2021/02/09/books/review/bugsy-siegel-michael-shnayerson.html?searchResultPosition=7
+**France Sees an Existential Threat from American Campuses**\
+`Politicians and prominent intellectuals say social theories from the United States on race, gender and post-colonialism are a threat to French identity and the French republic.`\
+https://nytimes.com/2021/02/09/world/europe/france-threat-american-universities.html?searchResultPosition=7
 
-**Bodies again pile up in Bolivia as Latin America endures a long, deadly coronavirus wave.**\
-`“When 10 or 20 patients die, their beds are full again in a few hours,” one specialist said.`\
-https://nytimes.com/2021/02/09/world/bodies-again-pile-up-in-bolivia-as-latin-america-endures-a-long-deadly-coronavirus-wave.html?searchResultPosition=8
+**Colleges Vowed a Safer Spring. Then Students, and Variants, Arrived.**\
+`Many universities instituted new testing protocols, hoping to avoid the problems of the fall. But coronavirus variants and uncooperative students have already driven outbreaks.`\
+https://nytimes.com/2021/02/09/us/colleges-covid.html?searchResultPosition=8
 
-**A Glimpse of a Bygone Life on Scottish Islands, Plucked From the Trash**\
-`Hundreds of pictures taken decades ago in the Shetlands, off northern Scotland, were saved from being thrown away. Now, they are finding new life online, a rare bright spot during the pandemic.`\
-https://nytimes.com/2021/02/09/world/europe/shetlands-photos-dump.html?searchResultPosition=9
+**The Surprising Ascent of KAWS**\
+`Brian Donnelly — better known as KAWS — went from tagger to blue-chip artist, riding the increasingly blurry line between commercial and fine art.`\
+https://nytimes.com/2021/02/09/magazine/the-surprising-ascent-of-kaws.html?searchResultPosition=9
 
-**Mary Wilson, Motown Legend and Co-Founder of the Supremes, Dies at 76**\
-`Ms. Wilson, with the original members Diana Ross and Florence Ballard, was part of one of the biggest musical acts of the 1960s.`\
-https://nytimes.com/2021/02/09/arts/music/mary-wilson-dead.html?searchResultPosition=10
+**Should We Dim the Sun? Will We Even Have a Choice?**\
+`Elizabeth Kolbert and Ezra Klein discuss what options remain if our political system can’t handle the climate crisis.`\
+https://nytimes.com/2021/02/09/opinion/ezra-klein-podcast-elizabeth-kolbert.html?searchResultPosition=10
 
