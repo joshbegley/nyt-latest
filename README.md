@@ -20,7 +20,7 @@ https://nytimes.com/2021/02/08/insider/super-bowl-reporting.html?searchResultPos
 
 **Housing Boss Is Fired and Faces Criminal Inquiry After Reports of Abuse**\
 `Victor Rivera, the chief executive of the Bronx Parent Housing Network, one of the largest operators of homeless shelters in New York City, was accused of sexual abuse and financial impropriety.`\
-https://nytimes.com/2021/02/08/nyregion/victor-rivera-homeless-shelther-allegations.html?searchResultPosition=7
+https://nytimes.com/2021/02/08/nyregion/victor-rivera-homeless-shelter-allegations.html?searchResultPosition=7
 
 **First Up at Trump’s Impeachment: Can a Former President Stand Trial?**\
 `To avoid having to make a judgment about Donald J. Trump’s conduct in the Jan. 6 riot, Republicans have argued the proceeding is unconstitutional.`\
