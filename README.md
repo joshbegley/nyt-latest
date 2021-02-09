@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2021/02/09/us/politics/impeachment-managers-brie
 https://nytimes.com/2021/02/09/upshot/the-radically-simple-new-approach-to-helping-families-send-parents-money.html?searchResultPosition=2
 
 **Super Bowl Viewership Drop in Line With Wider Decrease for N.F.L. and Sports**\
-`The lack of a competitive game hurt. Still, the Super Bowl is expected to be the most watched television program this year.`\
+`The game that pitted two marquee quarterbacks was not competitive. Still, the Super Bowl is expected to be the most watched television program this year.`\
 https://nytimes.com/2021/02/09/sports/football/super-bowl-television-ratings.html?searchResultPosition=3
 
 **The Blue Bloods Are Missing This College Basketball Season**\
