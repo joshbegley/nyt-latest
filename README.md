@@ -6,8 +6,8 @@ https://nytimes.com/2021/02/09/arts/design/director-of-sfmoma-steps-down.html?se
 `This year, even those who usually go all out on Feb. 14 are reconsidering.`\
 https://nytimes.com/2021/02/09/fashion/weddings/is-valentines-day-canceled.html?searchResultPosition=2
 
-**Was GameStop the Ultimate Expression of ‘Don’t Fight the Fed’?**\
-`Analysts warn that low-interest rate policies are fueling speculative bubbles. The Fed itself has downplayed the possibility that it’s behind asset prices.`\
+**Do Fed Policies Fuel Bubbles? Some See GameStop as a Red Flag**\
+`Analysts warn that low-interest rates are fueling speculative bubbles. The Fed itself has downplayed the possibility that it’s behind asset prices.`\
 https://nytimes.com/2021/02/09/business/economy/gamestop-fed-us-economy-markets.html?searchResultPosition=3
 
 **What’s a Dance Theater Without an Audience?**\
