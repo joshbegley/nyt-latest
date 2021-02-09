@@ -22,8 +22,8 @@ https://nytimes.com/2021/02/09/podcasts/ezra-klein-podcast-elizabeth-kolbert-tra
 `“A barn? A keyboard? A phone? What are you?”`\
 https://nytimes.com/2021/02/09/parenting/toddler/10-annoying-kids-toys.html?searchResultPosition=7
 
-**Cause of Kobe Bryant’s Helicopter Crash Expected to Be Released**\
-`More than a year after the helicopter crash that killed Mr. Bryant, his daughter Gianna and seven others, the federal transportation safety agency will release the findings of its investigation.`\
+**Pilot in Kobe Bryant Crash Became Disoriented in Clouds, N.T.S.B. Finds**\
+`The pilot violated flight standards by flying into clouds, where his actions were consistent with “spatial disorientation,” the federal transportation safety agency said.`\
 https://nytimes.com/2021/02/09/us/kobe-helicopter-crash-investigation.html?searchResultPosition=8
 
 **Peter Madsen, Killer of Kim Wall, Is Sentenced for a Jailbreak**\
