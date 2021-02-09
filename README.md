@@ -10,7 +10,7 @@ https://nytimes.com/2021/02/09/theater/Broadway-memories-joe-allen.html?searchRe
 `The theater district restaurateur was famously reserved, but I caught some close-up glimpses from the next bar stool.`\
 https://nytimes.com/2021/02/09/dining/joe-allen.html?searchResultPosition=3
 
-**The Secret My Mom Told Me to Never Tell**\
+**The Secret My Mom Told Me Never to Tell**\
 `A mother told her daughter to keep her father’s absence a secret. Years later, they look back on the prejudices they encountered as a single-parent family in South Korea.`\
 https://nytimes.com/2021/02/09/opinion/tiger-and-ox-single-mom-korea.html?searchResultPosition=4
 
