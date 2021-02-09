@@ -1,5 +1,5 @@
 **Coronavirus Variants and Mutations**\
-`Tracking recent variants and lineages of the virus.`\
+`Tracking recent mutations, variants and lineages.`\
 https://nytimes.com/interactive/2021/health/coronavirus-variant-tracker.html?searchResultPosition=1
 
 **Denying Incitement, Trump Impeachment Team Says He Cannot Be Tried**\
