@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000007596624/trump-senate-vote-impeachm
 
 **California has the most coronavirus-related deaths in the U.S., surpassing New York.**\
 `California has averaged 500 daily deaths over the past week. On Tuesday, it became the state with the largest number of total coronavirus deaths, surpassing New York.`\
-https://nytimes.com/2021/02/09/world/california-has-the-most-coronavirus-related-deaths-in-the-us-surpassing-new-york.html?searchResultPosition=2
+https://nytimes.com/2021/02/09/world/covid-california-most-deaths.html?searchResultPosition=2
 
 **3 Paths for the Republican Party**\
 `The G.O.P. is in crisis. Is it breaking, or just regrouping?`\
