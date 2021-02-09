@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/09/arts/television/megan-mullally-great-north.html?searchResultPosition=1
 
 **S. Clay Wilson, Taboo-Breaking Underground Cartoonist, Dies at 79**\
-`His drawings were so outrageous that, upon first encountering them, his fellow cartoonist R. Crumb recalled feeling that “suddenly my own work seemed insipid.”`\
+`His drawings were so outrageous that, on first encountering them, his fellow cartoonist R. Crumb recalled feeling that “suddenly my own work seemed insipid.”`\
 https://nytimes.com/2021/02/09/arts/s-clay-wilson-dead.html?searchResultPosition=2
 
 **Review: Fathers, but Not Yet Men, in the Prison Drama ‘Shook’**\
