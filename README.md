@@ -2,39 +2,39 @@
 `Readers offer suggestions for what to do — a secret vote, calling Donald Trump and Mike Pence as witnesses — and liken Mr. Trump’s Jan. 6 speech to Mark Antony’s funeral oration for Caesar.`\
 https://nytimes.com/2021/02/09/opinion/letters/trump-impeachment-trial.html?searchResultPosition=1
 
+**‘This cannot be our future.’ Raskin makes emotional argument, describing his family being at the Capitol riot.**\
+`By Nicholas Fandos`\
+https://nytimes.com/2021/02/09/us/politics/this-cannot-be-our-future-raskin-makes-emotional-argument-describing-his-family-being-at-the-capitol-riot.html?searchResultPosition=2
+
 **‘This Cannot Be the Future of America,’ Raskin Says**\
 `Representative Jamie Raskin, the lead impeachment manager, called on senators to convict former President Donald J. Trump, and not allow a “January exception” where future presidents are not held accountable for their actions in their last days in office.`\
-https://nytimes.com/video/us/politics/100000007596078/jamie-raskin-trump-impeachment-trial.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000007596078/jamie-raskin-trump-impeachment-trial.html?searchResultPosition=3
 
 **Idaho Officer Killed Man at His Home After Mistaking His Identity, Police Say**\
 `The shooting took place in the backyard of a home in Idaho Falls, where police officers were searching for a man who fled a traffic stop on Monday morning.`\
-https://nytimes.com/2021/02/09/us/idaho-police-shooting.html?searchResultPosition=3
+https://nytimes.com/2021/02/09/us/idaho-police-shooting.html?searchResultPosition=4
 
 **‘He Missed Nothing’: Nathan Lane, Chita Rivera and Others on Joe Allen**\
 `The man was taciturn, but his Theater District restaurants were like Broadway clubhouses. Even the posters of flops were placed with affection.`\
-https://nytimes.com/2021/02/09/theater/Broadway-memories-joe-allen.html?searchResultPosition=4
+https://nytimes.com/2021/02/09/theater/Broadway-memories-joe-allen.html?searchResultPosition=5
 
 **Remembering Joe Allen, Who Fed Broadway in Untheatrical Style**\
 `The theater district restaurateur was famously reserved, but I caught some close-up glimpses from the next bar stool.`\
-https://nytimes.com/2021/02/09/dining/joe-allen.html?searchResultPosition=5
+https://nytimes.com/2021/02/09/dining/joe-allen.html?searchResultPosition=6
 
 **The Secret My Mom Told Me Never to Tell**\
 `A mother told her daughter to keep her father’s absence a secret. Years later, they look back on the prejudices they encountered as a single-parent family in South Korea.`\
-https://nytimes.com/2021/02/09/opinion/tiger-and-ox-single-mom-korea.html?searchResultPosition=6
+https://nytimes.com/2021/02/09/opinion/tiger-and-ox-single-mom-korea.html?searchResultPosition=7
 
 **Tiny Love Stories: ‘She Was a Little Weirdo’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2021/02/09/style/tiny-modern-love-stories-she-was-a-little-weirdo.html?searchResultPosition=7
+https://nytimes.com/2021/02/09/style/tiny-modern-love-stories-she-was-a-little-weirdo.html?searchResultPosition=8
 
 **Hi, Alexa, It’s Jeff Bezos. How Should I Spend My Time Now?**\
 `The legacies of John D. Rockefeller and Andrew Carnegie offer hints about what could be next for Amazon’s founder.`\
-https://nytimes.com/2021/02/09/opinion/jeff-bezos-next-act.html?searchResultPosition=8
+https://nytimes.com/2021/02/09/opinion/jeff-bezos-next-act.html?searchResultPosition=9
 
 **The Path to Racial Justice Runs Through This Agency**\
 `President Biden should choose the next director of the U.S. Patent and Trademark Office carefully.`\
-https://nytimes.com/2021/02/09/opinion/biden-patent-office.html?searchResultPosition=9
-
-**Tiger and Ox**\
-`A mother told her daughter to keep her father’s absence a secret. Years later, they look back on the stigma they faced as a single-parent family in South Korea.`\
-https://nytimes.com/video/opinion/100000007491016/tiger-and-ox.html?searchResultPosition=10
+https://nytimes.com/2021/02/09/opinion/biden-patent-office.html?searchResultPosition=10
 
