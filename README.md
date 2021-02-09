@@ -19,7 +19,7 @@ https://nytimes.com/2021/02/08/us/politics/minimum-wage-cbo.html?searchResultPos
 https://nytimes.com/2021/02/08/business/child-tax-credit-congress.html?searchResultPosition=5
 
 **Trump Isn’t the Only One on Trial. The Conservative Media Is, Too.**\
-`The former president’s second impeachment trial begins oral arguments tomorrow. But conservative media organizations face an even more consequential test in the weeks and months ahead.`\
+`The former president’s second impeachment trial begins oral arguments on Tuesday. But conservative media organizations face an even more consequential test in the weeks and months ahead.`\
 https://nytimes.com/2021/02/08/us/politics/trump-conservative-media.html?searchResultPosition=6
 
 **You May Want to Forget Him, but Trump’s Trial Must Be Thorough**\
