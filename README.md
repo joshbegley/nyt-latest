@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/09/world/europe/italy-renzi-interview.html?searchResultPosition=1
 
 **Polish Court Orders Scholars to Apologize Over Holocaust Study**\
-`In a partial victory for nationalists, a closely watched libel case ends with two scholars ordered to make a public apology for saying that a wartime Polish mayor was complicit in Nazi crimes, but not to pay damages.`\
+`In a partial victory for nationalists, a libel case ended with two scholars ordered to make a public apology for saying a wartime Polish mayor was complicit in Nazi crimes, but not to pay damages.`\
 https://nytimes.com/2021/02/09/world/europe/poland-holocaust-jews-libel.html?searchResultPosition=2
 
 **What, Exactly, Is Amazon Web Services?**\
