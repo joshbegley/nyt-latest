@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/09/obituaries/lourdes-rivera-coronavirus-dead.html?s
 https://nytimes.com/2021/02/09/business/lyft-earnings-q4-2020.html?searchResultPosition=3
 
 **Twitter revenue rises 28 percent in the fourth quarter as ad spending rebounds.**\
-`By Kate Conger`\
+`The company lost $1.14 billion for the year even as daily active users who saw ads grew 26 percent to 192 million in the fourth quarter.`\
 https://nytimes.com/2021/02/09/business/twitter-earnings-q4-2020.html?searchResultPosition=4
 
 **Wise Words: The Winners of Our 8th Annual Vocabulary Video Contest**\
