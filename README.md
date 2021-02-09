@@ -35,6 +35,6 @@ https://nytimes.com/2021/02/09/world/europe/france-sciences-po-incest.html?searc
 https://nytimes.com/2021/02/09/us/coronavirus-today.html?searchResultPosition=9
 
 **Britney Spears Conservatorship Case Heads Back to Court**\
-`After a new documentary about Spears by The New York Times was shown, calls to #FreeBritney were joined by a new message: “We Are Sorry, Britney.”`\
+`After a new documentary about Spears by The New York Times was shown, calls to #FreeBritney were joined by a new message: “We are sorry, Britney.”`\
 https://nytimes.com/2021/02/09/arts/music/britney-spears-conservatorship.html?searchResultPosition=10
 
