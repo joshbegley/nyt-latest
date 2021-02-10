@@ -14,27 +14,27 @@ https://nytimes.com/2021/02/10/technology/india-twitter.html?searchResultPositio
 `Running more than 13 minutes, it showed the Capitol riot in searing detail: a police officer screaming in pain; lawmakers taking cover in the House chamber. It also showed Mr. Trump telling his supporters: “Go home. We love you. You’re very special.”`\
 https://nytimes.com/2021/02/10/us/politics/impeachment-graphic-video.html?searchResultPosition=4
 
+**House managers plan to show senators previously unseen Capitol security footage from Jan. 6.**\
+`The new video could allow the managers to flesh out the publicly available record with a richer timeline of events.`\
+https://nytimes.com/2021/02/10/us/politics/impeachment-capitol-security-cameras.html?searchResultPosition=5
+
 **Subtle Ceramics, Modeled After the Simplest of Forms**\
 `Inside a former bottling factory in Brooklyn, the artist Danny Kaplan creates hand-thrown lamps and objects that feel at once ancient and modern.`\
-https://nytimes.com/2021/02/10/t-magazine/danny-kaplan-ceramics-studio.html?searchResultPosition=5
+https://nytimes.com/2021/02/10/t-magazine/danny-kaplan-ceramics-studio.html?searchResultPosition=6
 
 **Barbara Dane’s Life of Defiance and Song**\
 `The 93-year-old musician and co-founder of the political label Paredon Records looks back on a history of resistance.`\
-https://nytimes.com/2021/02/10/arts/music/barbara-dane-paredon-records.html?searchResultPosition=6
+https://nytimes.com/2021/02/10/arts/music/barbara-dane-paredon-records.html?searchResultPosition=7
 
 **Georgia Prosecutors Open Criminal Investigation of Trump Phone Call**\
 `Fulton County prosecutors have sent letters to state officials instructing them to preserve documents related to the January call, in which former President Donald J. Trump’s asked the Georgia secretary of state  to “find” votes.`\
-https://nytimes.com/2021/02/10/us/politics/trump-georgia-investigation.html?searchResultPosition=7
+https://nytimes.com/2021/02/10/us/politics/trump-georgia-investigation.html?searchResultPosition=8
 
 **House looks to move forward with a stimulus package that includes a minimum-wage increase.**\
 `Democrats are poised to advance the stimulus bill as a reconciliation bill, which requires only a simple majority to pass and thus could be enacted, if necessary, without Republican support.`\
-https://nytimes.com/2021/02/10/us/politics/stimulus-minimum-wage.html?searchResultPosition=8
+https://nytimes.com/2021/02/10/us/politics/stimulus-minimum-wage.html?searchResultPosition=9
 
 **19 Easy Recipes for Valentine’s Day**\
 `Love means never having to spend hours cooking a special meal.`\
-https://nytimes.com/2021/02/10/dining/easy-valentines-day-recipes.html?searchResultPosition=9
-
-**How to Have a Wow Wedding for Two**\
-`Top trends that will make your intimate celebration or elopement extraordinary.`\
-https://nytimes.com/2021/02/10/style/intimate-wedding-elopement-trends-2021.html?searchResultPosition=10
+https://nytimes.com/2021/02/10/dining/easy-valentines-day-recipes.html?searchResultPosition=10
 
