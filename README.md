@@ -1,40 +1,40 @@
+**The Pandemic’s Toll on Los Angeles Museums**\
+`Wednesday: Museums in Los Angeles haven’t been allowed to reopen indoors. That means they’ve had a unique challenge.`\
+https://nytimes.com/2021/02/10/us/covid-los-angeles-museums.html?searchResultPosition=1
+
+**$700,000 Homes in Pennsylvania, Missouri and California**\
+`A stone house in horse country outside Philadelphia, a Georgian Revival home in Kansas City and a 1907 cottage in Pasadena.`\
+https://nytimes.com/2021/02/10/realestate/700000-homes-in-pennsylvania-missouri-and-california.html?searchResultPosition=2
+
+**What You Get for $700,000**\
+`A stone house in horse country outside Philadelphia; a Georgian Revival home in Kansas City, Mo.; and a 1907 cottage in Pasadena, Calif.`\
+https://nytimes.com/slideshow/2021/02/10/realestate/what-you-get-for-700000.html?searchResultPosition=3
+
+**Spring Designs That Will Have You Tickled Pink**\
+`The season’s fashion is flush with a hue that can intimate — and challenge — notions of gender and identity like no other.`\
+https://nytimes.com/2021/02/10/t-magazine/spring-fashion-pink-color.html?searchResultPosition=4
+
+**Create a Digital Commonplace Book**\
+`Readers have collected their favorite literary lines for centuries. Now compiling a portable word scrapbook is easier than ever.`\
+https://nytimes.com/2021/02/10/technology/personaltech/make-digital-commonplace-book.html?searchResultPosition=5
+
+**Closed Nearly a Year, Empty Museums in Los Angeles Struggle**\
+`While many museums around the country have resumed operations, those in Los Angeles remain an exception. They have been shut since March.`\
+https://nytimes.com/2021/02/10/arts/design/los-angeles-museums-empty.html?searchResultPosition=6
+
 **San Francisco Rallied to Find a DoorDash Driver’s Missing Children**\
 `Spurred on by social media, residents searched the streets after Jeffrey Fang’s children were taken in a carjacking. The police ultimately found them, unharmed, across town.`\
-https://nytimes.com/2021/02/10/us/doordash-children-van-missing.html?searchResultPosition=1
+https://nytimes.com/2021/02/10/us/doordash-children-van-missing.html?searchResultPosition=7
 
 **Bye-Bye Fenty? Rihanna and LVMH Are Taking a Break**\
 `Rihanna was the first woman to create an original brand at LVMH, among the likes of Dior, Givenchy, Celine and Fendi.`\
-https://nytimes.com/2021/02/10/fashion/fenty-rihanna-lvmh.html?searchResultPosition=2
+https://nytimes.com/2021/02/10/fashion/fenty-rihanna-lvmh.html?searchResultPosition=8
 
 **What Made the Indonesian Plane Crash? New Report Sheds Light**\
 `In a preliminary report on Sriwijaya Air Flight 182, investigators said the crash might have been caused by several factors, including a problem controlling the engines’ thrust.`\
-https://nytimes.com/2021/02/10/world/asia/indonesia-plane-crash-report.html?searchResultPosition=3
+https://nytimes.com/2021/02/10/world/asia/indonesia-plane-crash-report.html?searchResultPosition=9
 
 **Jay-Z and Foo Fighters Are Nominated for the Rock Hall of Fame**\
 `Women on the ballot include Mary J. Blige, the Go-Go’s, Dionne Warwick, Kate Bush, Carole King, Chaka Khan and Tina Turner.`\
-https://nytimes.com/2021/02/10/arts/music/rock-roll-hall-of-fame-nominees.html?searchResultPosition=4
-
-**Facebook Dials Down the Politics for Users**\
-`News feeds will start getting less political content in Canada, Brazil and Indonesia, the social network said, with the change reaching the U.S. in coming weeks.`\
-https://nytimes.com/2021/02/10/technology/facebook-reduces-politics-feeds.html?searchResultPosition=5
-
-**House Republicans Announce 47 Democrats They Hope to Unseat**\
-`The National Republican Congressional Committee released a list of the House Democrats whose seats it is targeting, including moderates like Abigail Spanberger and Conor Lamb.`\
-https://nytimes.com/2021/02/10/us/politics/house-republicans-democrats-midterm-elections.html?searchResultPosition=6
-
-**The Issues With SPACs**\
-`The blank-check boom shows no signs of slowing, but there are reasons to be wary.`\
-https://nytimes.com/2021/02/10/business/dealbook/spacs-blank-check-deals.html?searchResultPosition=7
-
-**A Stumble, a Scream and Venus Williams Is Out**\
-`Williams played through a painful ankle injury in her second-round match against Sara Errani. But her grit could not prevent her latest defeat.`\
-https://nytimes.com/2021/02/10/sports/tennis/venus-williams-australian-open-sara-errani.html?searchResultPosition=8
-
-**‘Twilight’s Kiss’ Review: A Hidden Romance, Late in Life**\
-`In this drama, a married taxi driver and a retiree try to find love together.`\
-https://nytimes.com/2021/02/10/movies/twilights-kiss-review.html?searchResultPosition=9
-
-**2021 Australian Open: What to Watch on Wednesday Night**\
-`Rafael Nadal and Ashleigh Barty will play on Day 4 of the tournament.`\
-https://nytimes.com/2021/02/10/sports/tennis/2021-australian-open-watch-wednesday.html?searchResultPosition=10
+https://nytimes.com/2021/02/10/arts/music/rock-roll-hall-of-fame-nominees.html?searchResultPosition=10
 
