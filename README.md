@@ -8,7 +8,7 @@ https://nytimes.com/2021/02/10/fashion/watches-hublot-takashi-murakami.html?sear
 
 **Chicago’s teachers approve a deal that would send students back to the classroom.**\
 `By Kate Taylor and Derrick Bryson Taylor`\
-https://nytimes.com/2021/02/10/world/chicagos-teachers-approve-a-deal-that-would-send-students-back-to-the-classroom.html?searchResultPosition=3
+https://nytimes.com/2021/02/10/us/chicago-schools.html?searchResultPosition=3
 
 **Heritage Status Gives Watchmaking a Higher Profile**\
 `Experts link UNESCO recognition of the craft in Switzerland and France to preserving special skills.`\
