@@ -2,13 +2,13 @@
 `Donald J. Trump’s lies and calls to action were embraced by his supporters, then amplified by rioters at the Capitol.`\
 https://nytimes.com/interactive/2021/02/09/us/trump-voter-fraud-election.html?searchResultPosition=1
 
-**The First Trial Seemed Abstract. This One Is a Visceral Reckoning Over Trump.**\
-`At issue will be many aspects that defined Donald Trump’s presidency: his relentless assaults on truth, his fomenting of divisions, his shattering of norms and his undermining of an election.`\
-https://nytimes.com/2021/02/09/us/politics/trump-impeachment-trial.html?searchResultPosition=2
-
 **‘Dad, I Don’t Want to Come Back to the Capitol’: Raskin Speaks of the Horror of Jan. 6**\
 `Representative Jamie Raskin, the Maryland Democrat who is the lead prosecutor in the second impeachment trial of Donald J. Trump, choked back tears in his presentation on Tuesday.`\
-https://nytimes.com/2021/02/09/us/raskin-impeachment.html?searchResultPosition=3
+https://nytimes.com/2021/02/09/us/raskin-impeachment.html?searchResultPosition=2
+
+**The First Trial Seemed Abstract. This One Is a Visceral Reckoning Over Trump.**\
+`At issue will be many aspects that defined Donald Trump’s presidency: his relentless assaults on truth, his fomenting of divisions, his shattering of norms and his undermining of an election.`\
+https://nytimes.com/2021/02/09/us/politics/trump-impeachment-trial.html?searchResultPosition=3
 
 **New York City’s First Lady Gets Vaccinated**\
 `Chirlane McCray received a Covid-19 vaccine at Kings County Hospital in Brooklyn as health officials tried to address the racial disparity in the vaccine rollout.`\
