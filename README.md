@@ -1,6 +1,6 @@
 **U.K. residents may not be allowed to travel abroad until all adults are vaccinated.**\
 `Britain’s transportation secretary said it was too early to tell whether people would be allowed to take vacations this year, either at home or abroad.`\
-https://nytimes.com/2021/02/10/world/europe/uk-residents-may-not-be-allowed-to-travel-abroad-until-all-adults-are-vaccinated.html?searchResultPosition=1
+https://nytimes.com/2021/02/10/world/europe/uk-travel.html?searchResultPosition=1
 
 **Broad Coalition of Health Industry Groups Calls for Obamacare Expansion**\
 `Hospitals, doctors, insurers and employers say the Affordable Care Act can help the country achieve universal coverage`\
