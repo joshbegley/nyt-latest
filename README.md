@@ -19,7 +19,7 @@ https://nytimes.com/2021/02/10/world/asia/turkey-monolith.html?searchResultPosit
 https://nytimes.com/2021/02/10/technology/nadire-atas-arrest.html?searchResultPosition=5
 
 **Uber’s fourth-quarter revenue was down 16 percent from the previous year.**\
-`Uber said its overall revenue in the fourth quarter of last year was $3.2 billion, a 16 percent decline from the previous year.`\
+`Uber said its losses for the quarter, $968 million, were a 12 percent improvement.`\
 https://nytimes.com/2021/02/10/business/uber-earnings.html?searchResultPosition=6
 
 **Helen Etuk, Who Planned to be a Pediatrician, Dies at 20**\
