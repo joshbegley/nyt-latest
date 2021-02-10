@@ -1,4 +1,4 @@
-**Bye-Bye Fenty? Rihanna’s Fashion House With LVMH Is Hitting Pause**\
+**Bye-Bye Fenty? Rihanna and LVMH Are Taking a Break**\
 `Rihanna was the first woman to create an original brand at LVMH, among the likes of Dior, Givenchy, Celine and Fendi.`\
 https://nytimes.com/2021/02/10/fashion/fenty-rihanna-lvmh.html?searchResultPosition=1
 
