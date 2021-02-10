@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/09/us/politics/impeachment-briefing-a-video-and-a-vo
 `He endorsed a compromise plan in the House limiting direct payments to high earners as part of his $1.9 trillion proposal, as Democratic leaders fought to salvage a plan for a $15-an-hour wage.`\
 https://nytimes.com/2021/02/09/business/biden-coronavirus-aid-minimum-wage.html?searchResultPosition=9
 
-**The publisher of League of Legends is investigating its C.E.O. for sexual harassment.**\
+**The publisher of League of Legends is investigating its C.E.O. after sexual harassment claims.**\
 `A former executive assistant to Nicolo Laurent filed a lawsuit accusing him of making sexually suggestive remarks to her.`\
 https://nytimes.com/2021/02/09/business/Nicolo-Laurent-Riot-Games.html?searchResultPosition=10
 
