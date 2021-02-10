@@ -1,5 +1,5 @@
 **China’s Emissions of Ozone-Harming Gas Are Declining, Studies Find**\
-`New research confirms that emissions from China of CFCs, a banned gas that harms Earth’s ozone layer, have fallen sharply , reversing a dangerous spike.`\
+`New research confirms that emissions from China of CFCs, a banned gas that harms Earth’s ozone layer, have fallen sharply, reversing a dangerous spike.`\
 https://nytimes.com/2021/02/10/climate/ozone-layer-china-cfcs.html?searchResultPosition=1
 
 **How Right-Wing Radio Stoked Anger Before the Capitol Siege**\
