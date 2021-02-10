@@ -6,7 +6,7 @@ https://nytimes.com/2021/02/10/business/dealbook/spac-wall-street-deals.html?sea
 `What do you think this image is saying?`\
 https://nytimes.com/2021/02/10/learning/shifting-shades.html?searchResultPosition=2
 
-**He Calls It a ‘Colonial Noose.’ Now Parliament Says It’s No Longer Mandatory.**\
+**He Calls the Tie a ‘Colonial Noose.’ Now It’s No Longer Mandatory.**\
 `Rawiri Waititi, a Maori politician in New Zealand, was kicked out of Parliament for refusing to wear a tie as a marker of Indigenous resistance.`\
 https://nytimes.com/2021/02/10/world/asia/new-zealand-Rawiri-Waititi-tie.html?searchResultPosition=3
 
