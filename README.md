@@ -1,6 +1,6 @@
 **He Calls It a ‘Colonial Noose.’ New Zealand’s Parliament Calls It Mandatory.**\
 `Rawiri Waititi was kicked out of the chamber for refusing to wear a necktie. He cast his action as a marker of Indigenous resistance.`\
-https://nytimes.com/2021/02/10/world/asia/new-zealand-maori-politician-necktie.html?searchResultPosition=1
+https://nytimes.com/2021/02/10/world/asia/new-zealand-Rawiri-Waititi-tie.html?searchResultPosition=1
 
 **Word + Quiz: resplendent**\
 `This word has appeared in 42 articles on NYTimes.com in the past year.`\
