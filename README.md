@@ -18,8 +18,8 @@ https://nytimes.com/2021/02/10/t-magazine/danny-kaplan-ceramics-studio.html?sear
 `The 93-year-old musician and co-founder of the political label Paredon Records looks back on a history of resistance.`\
 https://nytimes.com/2021/02/10/arts/music/barbara-dane-paredon-records.html?searchResultPosition=5
 
-**Georgia Prosecutors Open Criminal Investigation of Trump Call**\
-`Fulton County prosecutors have initiated a criminal investigation into former President Donald J. Trump’s January phone call to the Georgia secretary of state asking him to “find” votes.`\
+**Georgia Prosecutors Open Criminal Investigation of Trump Phone Call**\
+`Fulton County prosecutors have sent letters to state officials instructing them to preserve documents related to the January call, win which former President Donald J. Trump’s asked the Georgia secretary of state  to “find” votes.`\
 https://nytimes.com/2021/02/10/us/politics/trump-georgia-investigation.html?searchResultPosition=6
 
 **House looks to move forward with a stimulus package that includes a minimum-wage increase.**\
