@@ -1,6 +1,6 @@
 **Does the U.S. Need a Cyberdefense Czar?**\
 `Recent attacks on government and infrastructure networks reveal the inadequacy of America’s digital defenses.`\
-https://nytimes.com/2021/02/10/opinion/cyber-attack-czar.html?searchResultPosition=1
+https://nytimes.com/2021/02/10/opinion/solarwinds-hacking-cyberdefense.html?searchResultPosition=1
 
 **Arise, Robocall Resistance!**\
 `Whatever you do, don’t press anything.`\
