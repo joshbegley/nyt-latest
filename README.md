@@ -22,7 +22,7 @@ https://nytimes.com/2021/02/10/us/politics/mike-lee.html?searchResultPosition=5
 `Alex Eaton-Salners’s puzzle may repeat on you, but in a good way.`\
 https://nytimes.com/2021/02/10/crosswords/daily-puzzle-2021-02-11.html?searchResultPosition=6
 
-**Biden Speaks With China’s Xi for First Time as President**\
+**Biden Raises Concerns With China’s Xi in First Call Since Election**\
 `The two leaders developed a friendly relationship during the Obama years, but now face a wide range of contentious issues.`\
 https://nytimes.com/2021/02/10/us/politics/biden-xi-jinping-call.html?searchResultPosition=7
 
