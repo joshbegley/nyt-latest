@@ -1,6 +1,6 @@
 **Learjet, once a symbol of luxury that musicians sang about, will end production this year.**\
 `Bombardier said  that it would stop building the plane at the end of the year  as it shifts attention to its more profitable and larger Challenger and Global aircraft. `\
-https://nytimes.com/2021/02/11/business/learjet-once-a-symbol-of-luxury-that-musicians-sang-about-will-end-production-this-year.html?searchResultPosition=1
+https://nytimes.com/2021/02/11/business/Learjet-production-ending.html?searchResultPosition=1
 
 **Los Angeles Temporarily Closes 5 Coronavirus Vaccination Sites**\
 `Mayor Eric Garcetti said on Wednesday the city would close five of its Covid-19 vaccination sites, including Dodger Stadium, because of a supply shortage.`\
