@@ -1,4 +1,4 @@
-**Taylor Swift’s Rerecorded Album Releases Begin With ‘Fearless’**\
+**Taylor Swift’s Rerecorded Album Releases Begin With ‘Fearless’ in April**\
 `After her first six albums were sold to investors, Swift said she would record entirely new versions of her old songs that she would own.`\
 https://nytimes.com/2021/02/11/arts/music/taylor-swift-rerecord-fearless.html?searchResultPosition=1
 
