@@ -10,7 +10,7 @@ https://nytimes.com/2021/02/11/theater/shakespeare-all-the-devils-are-here-revie
 `Stuffed or topped with the likes of sugared coconut, pecan pie filling or salted pretzels, these brownies are not about subtlety.`\
 https://nytimes.com/2021/02/11/dining/valentines-brownie-recipes.html?searchResultPosition=3
 
-**5 People Die in Major Texas Highway Crash, Officials Say**\
+**5 People Die in ‘Massive’ Texas Crash of More Than 70 Vehicles**\
 `The accident, involving up to 100 vehicles, took place along Interstate 35 in Fort Worth, where the authorities warned of dangerous weather conditions.`\
 https://nytimes.com/2021/02/11/us/fort-worth-wreck.html?searchResultPosition=4
 
