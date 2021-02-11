@@ -12,7 +12,7 @@ https://nytimes.com/2021/02/11/business/dealbook/jane-fraser-citigroup.html?sear
 
 **2021 Australian Open: What to Watch on Thursday Night**\
 `The third round of the Australian Open gets underway, featuring Naomi Osaka, Serena Williams, Dominic Thiem and Novak Djokovic.`\
-https://nytimes.com/2021/02/11/sports/tennis/2021-australian-open-what-to-watch-on-thursday-night.html?searchResultPosition=4
+https://nytimes.com/2021/02/11/sports/tennis/australian-open-what-watch-thursday.html?searchResultPosition=4
 
 **The Economic Case for Regulating Social Media**\
 `The core business model of platforms like Facebook and Twitter poses a threat to society and requires retooling, an economist says.`\
