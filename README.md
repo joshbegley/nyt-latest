@@ -12,7 +12,7 @@ https://nytimes.com/2021/02/10/us/politics/videos-impeachment-trump-democrats.ht
 
 **Larry Flynt, Who Built a Porn Empire With Hustler, Dies at 78**\
 `As the publisher of a notorious sexually explicit magazine, he found himself at the nexus of a cultural and legal war and became an unlikely free-speech hero.`\
-https://nytimes.com/2021/02/10/business/media/larry-flynt-who-built-a-porn-empire-with-hustler-dies-at-78.html?searchResultPosition=4
+https://nytimes.com/2021/02/10/business/media/larry-flynt-dies-hustler-magazine.html?searchResultPosition=4
 
 **Biden Charts a New Course in Guatemala**\
 `An emerging multiethnic and multigenerational coalition is reimagining the country’s future. Partnering with them could be the key to lasting change.`\
