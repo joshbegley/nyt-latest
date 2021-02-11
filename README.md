@@ -3,8 +3,8 @@
 https://nytimes.com/2021/02/10/us/Pakistani-woman-sanctuary-Kalamazoo-church.html?searchResultPosition=1
 
 **Australian Open: Sofia Kenin, the Reigning Champ, Is Knocked Out**\
-`Kenin, the fourth seed, lost in the second round to Kaia Kanepi of Estonia.`\
-https://nytimes.com/2021/02/10/sports/tennis/australian-open-sofia-kenin-the-reigning-champ-is-knocked-out.html?searchResultPosition=2
+`The 22-year-old American lost in the second round to an unseeded player, Kaia Kanepi of Estonia.`\
+https://nytimes.com/2021/02/10/sports/tennis/australian-open-sofia-kenin-kaia-kanepi.html?searchResultPosition=2
 
 **Corrections: Feb. 11, 2021**\
 `Corrections that appeared in print on Thursday, Feb. 11, 2021.`\
