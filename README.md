@@ -1,5 +1,5 @@
 **Australian Open: Sofia Kenin, the Reigning Champ, Is Knocked Out**\
-`Kenin, the fourth seed, lost in the second round  to Kaia Kanepi of Estonia.`\
+`Kenin, the fourth seed, lost in the second round to Kaia Kanepi of Estonia.`\
 https://nytimes.com/2021/02/10/sports/tennis/australian-open-sofia-kenin-the-reigning-champ-is-knocked-out.html?searchResultPosition=1
 
 **Corrections: Feb. 11, 2021**\
