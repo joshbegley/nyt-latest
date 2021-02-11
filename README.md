@@ -1,5 +1,5 @@
-**Day 2 ends in procedural chaos as Senator Mike Lee asks for his name to be struck from prosecution’s arguments.**\
-`The Republican senator objected to testimony that had cited him as a source for a conversation that former President Donald J. Trump had during the Capitol attack.`\
+**Day 2 ends in procedural chaos as Senator Mike Lee asks for his name to be struck from the prosecution’s arguments.**\
+`The Republican senator objected to testimony that cited him as a source for a conversation that former President Donald J. Trump had during the Capitol attack.`\
 https://nytimes.com/2021/02/10/us/politics/mike-lee.html?searchResultPosition=1
 
 **A Banana Taped to the Wall**\
