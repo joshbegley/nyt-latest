@@ -1,40 +1,40 @@
-**Pandemic in Retreat**\
-`And what else you need to know today.`\
-https://nytimes.com/2021/02/11/briefing/trump-georgia-obesity-weightloss-nun-covid.html?searchResultPosition=1
+**The Economic Case for Regulating Social Media**\
+`The core business model of platforms like Facebook and Twitter poses a threat to society and requires retooling, an economist says.`\
+https://nytimes.com/2021/02/11/business/social-media-facebook-regulation.html?searchResultPosition=1
 
-**Shell says its oil production has peaked.**\
-`By Stanley Reed`\
-https://nytimes.com/2021/02/11/business/shell-oil-production.html?searchResultPosition=2
+**‘Breaking News in Yuba County’ Review: Lampooning Suburbia**\
+`“Awkwafina head-butts Wanda Sykes” could be a satisfactory one-sentence recap of this movie.`\
+https://nytimes.com/2021/02/11/movies/breaking-news-in-yuba-county-review.html?searchResultPosition=2
 
-**Breaking the Garage’s Glass Ceiling**\
-`Women are vastly outnumbered in the auto trades, but one pioneer, who died in 2019, is still inspiring others to pursue their dreams and lift one another up.`\
-https://nytimes.com/2021/02/11/business/women-automotive-careers.html?searchResultPosition=3
+**‘There Is No “I” in Threesome’ Review: Monogamy Alternatives**\
+`A director and his fiancée chronicle their yearlong open relationship in this documentary that offers a clever examination of perspective.`\
+https://nytimes.com/2021/02/11/movies/there-is-no-i-in-threesome-review.html?searchResultPosition=3
 
-**Homeless and Exploited**\
-`Victor Rivera, the head of a network of shelters in New York, is accused of abusing a system meant to help the most vulnerable.`\
-https://nytimes.com/2021/02/11/podcasts/the-daily/victor-rivera-homeless-shelter-new-york-city.html?searchResultPosition=4
+**‘Music’ Review: A Woefully Misguided View of Disability**\
+`The pop star Sia’s feature directorial debut, about an autistic teenager, at times seems indistinguishable from mockery.`\
+https://nytimes.com/2021/02/11/movies/music-review.html?searchResultPosition=4
 
-**Pandemic Love: Couples Who Found Romance in a Year of Tragedy**\
-`A face mask brought one couple together in Kentucky, an app introduced another, and others nurtured bi-continental relationships that were tested by the pandemic.`\
-https://nytimes.com/2021/02/11/style/covid-love-stories.html?searchResultPosition=5
+**‘Ruth: Justice Ginsburg in Her Own Words’ Review: Still Notorious**\
+`This documentary puts her words front and center, relying on clips to provide a sweeping view of her ideals.`\
+https://nytimes.com/2021/02/11/movies/ruth-justice-ginsburg-in-her-own-words-review-still-notorious.html?searchResultPosition=5
 
-**How New Yorkers Are Shaping the Trump Impeachment Trial**\
-`Helping set the rules is Chuck Schumer, the Senate majority leader, and other lawmakers from the state are lending their voices. `\
-https://nytimes.com/2021/02/11/nyregion/impeachment-chuck-schumer.html?searchResultPosition=6
+**‘The Mauritanian’ Review: A Tale of Truth-Seeking**\
+`Tahar Rahim and Jodie Foster star in this dogged, uninvolving drama based on the story of Mohamedou Ould Slahi.`\
+https://nytimes.com/2021/02/11/movies/the-mauritanian-review.html?searchResultPosition=6
 
-**Robert F. Kennedy Jr. is barred from Instagram over false coronavirus claims.**\
-`By Jennifer Jett`\
-https://nytimes.com/2021/02/11/us/robert-f-kennedy-jr-instagram-covid-vaccine.html?searchResultPosition=7
+**‘The Map of Tiny Perfect Things’ Review: Another Do-Over**\
+`This film from Ian Samuels aspires to be “Groundhog Day” for teenagers.`\
+https://nytimes.com/2021/02/11/movies/map-of-tiny-perfect-things-review.html?searchResultPosition=7
 
-**Los Angeles temporarily shuts five vaccination sites over shortages.**\
-`By Derrick Bryson Taylor`\
-https://nytimes.com/2021/02/11/world/covid-vaccine-shortage-los-angeles.html?searchResultPosition=8
+**‘Young Hearts’ Review: Movie Love by Algorithm**\
+`The brother and sister filmmakers Sarah Sherman and Zachary Ray Sherman deliver romance, unadorned.`\
+https://nytimes.com/2021/02/11/movies/young-hearts-review.html?searchResultPosition=8
 
-**The Newest Diplomatic Currency: Covid-19 Vaccines**\
-`India, China, the U.A.E. and others dole out donations in countries where they seek sway. In some cases, they are sending doses despite pressing needs at home.`\
-https://nytimes.com/2021/02/11/world/asia/vaccine-diplomacy-india-china.html?searchResultPosition=9
+**‘Land’ Review: True Nature**\
+`In her feature directing debut, Robin Wright plays a woman who moves alone to the mountains.`\
+https://nytimes.com/2021/02/11/movies/land-review.html?searchResultPosition=9
 
-**Get Your Front Row Seat to Virtual Fashion Shows**\
-`Here’s what you need to know about what to watch during the New York, London, Milan and Paris digital fashion weeks.`\
-https://nytimes.com/2021/02/11/style/fashion-weeks-new-york-london-milan-paris.html?searchResultPosition=10
+**‘Cowboys’ Review: Abduction on Demand, by Horseback**\
+`Steve Zahn excels as the father of a trans child in this Western-flavored family drama, “Cowboys,” from Anna Kerrigan.`\
+https://nytimes.com/2021/02/11/movies/cowboys-review.html?searchResultPosition=10
 
