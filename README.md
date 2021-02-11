@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/10/arts/television/impeachment-trial-capitol-riot-vi
 `Even if we can’t impeach media companies, we can do more to hold them accountable for sowing sedition.`\
 https://nytimes.com/2021/02/10/opinion/fox-news-accountability.html?searchResultPosition=9
 
-**What Is Incitement? Its Meaning May Differ in a Court Than in an Impeachment Trial**\
+**Impeachment Trial May Hinge on Meaning of ‘Incitement’**\
 `The Supreme Court has placed strict First Amendment limits on incitement charges in court. But many legal scholars say they do not apply in impeachment trials.`\
 https://nytimes.com/2021/02/10/us/incitement-court-senators-impeachment.html?searchResultPosition=10
 
