@@ -6,7 +6,7 @@ https://nytimes.com/2021/02/11/business/Learjet-production-ending.html?searchRes
 `Mayor Eric Garcetti said on Wednesday the city would close five of its Covid-19 vaccination sites, including Dodger Stadium, because of a supply shortage.`\
 https://nytimes.com/video/us/100000007599655/los-angeles-vaccine-site-closure.html?searchResultPosition=2
 
-**Gina Carano Will Not Return to ‘The Mandalorian,’ Lucasfilm Says**\
+**Gina Carano Is Off ‘Mandalorian’ Amid Backlash Over Instagram Post**\
 `The studio’s statement came hours after a new backlash against the actress, who on Instagram compared “hating someone for their political views” to the persecution of Jews during the Holocaust.`\
 https://nytimes.com/2021/02/11/arts/television/gina-carano-lucasfilm.html?searchResultPosition=3
 
