@@ -1,40 +1,40 @@
-**Theaters Go Digital to Talk About Life (and Death) in the Pandemic**\
-`German playhouses are finding innovative ways to forge connections while their doors are closed.`\
-https://nytimes.com/2021/02/11/theater/werther-live-sterberaum.html?searchResultPosition=1
+**The Newest Diplomatic Currency: Covid-19 Vaccines**\
+`India, China, the U.A.E. and others dole out donations in countries where they seek sway. In some cases, they are sending doses despite pressing needs at home.`\
+https://nytimes.com/2021/02/11/world/asia/vaccine-diplomacy-india-china.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Will American Ideas Tear France Apart? Some of Its Leaders Think So’**\
-`In this lesson, students will learn about French people who want to center conversations on race, gender and post-colonialism and those who fear such conversations threaten national identity and unity. Then, they will consider if, and how, these tensions exist in their community.`\
-https://nytimes.com/2021/02/11/learning/lesson-of-the-day-will-american-ideas-tear-france-apart-some-of-its-leaders-think-so.html?searchResultPosition=2
+**Get Your Front Row Seat to Virtual Fashion Shows**\
+`Here’s what you need to know about what to watch during the New York, London, Milan and Paris digital fashion weeks.`\
+https://nytimes.com/2021/02/11/style/fashion-weeks-new-york-london-milan-paris.html?searchResultPosition=2
 
-**Stephen Colbert Gets Serious About New Insurrection Evidence**\
-`“Because only by facing this truth will we have any hope of stopping it from happening again,” Colbert said. “Also, I’m pretty convinced it wasn’t antifa now.”`\
-https://nytimes.com/2021/02/11/arts/television/stephen-colbert-trump-impeachment-trial.html?searchResultPosition=3
+**Bidenomics 101: Inside the White House’s Plans to Bring Jobs Back**\
+`In public and private, Biden and his advisers have signaled some dramatic interventions to revive U.S. manufacturing. Will they really happen?`\
+https://nytimes.com/2021/02/11/magazine/biden-economy.html?searchResultPosition=3
 
-**Why Is Facebook Rejecting These Fashion Ads?**\
-`The automated intelligence systems of Instagram and Facebook have repeatedly denied ads placed by small businesses that make stylish clothing for the disabled.`\
-https://nytimes.com/2021/02/11/style/disabled-fashion-facebook-discrimination.html?searchResultPosition=4
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually.`\
+https://nytimes.com/2021/02/11/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=4
 
-**Word + Quiz: summarily**\
-`This word has appeared in 60 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/11/learning/word-quiz-summarily.html?searchResultPosition=5
+**Love Potion No. 9, or, the Nine Ingredients of a Great Love Story**\
+`What can we learn about romance from 125 years of New York Times book reviews?`\
+https://nytimes.com/2021/02/11/books/love-potion-no-9-or-the-nine-ingredients-of-a-great-love-story.html?searchResultPosition=5
 
-**How Germany Lost Control of the Virus**\
-`The country excelled during the first wave. What went wrong the second time around?`\
-https://nytimes.com/2021/02/11/opinion/germany-covid-second-wave.html?searchResultPosition=6
+**California Is Making Liberals Squirm**\
+`If progressivism can’t work there, why should the country believe it can work anywhere else?`\
+https://nytimes.com/2021/02/11/opinion/california-san-francisco-schools.html?searchResultPosition=6
 
-**After Three Years in a Church Facing Deportation, ‘Today I Have Freedom’**\
-`Saheeda Nadeem, 65, an undocumented immigrant from Pakistan who was given sanctuary by the First Congregational Church in Kalamazoo, Mich., learned this week that she would not be deported, her lawyer said.`\
-https://nytimes.com/2021/02/10/us/Pakistani-woman-sanctuary-Kalamazoo-church.html?searchResultPosition=7
+**National Book Foundation Names New Leader**\
+`Ruth Dickey, the executive director of Seattle Arts & Lectures, is succeeding Lisa Lucas, who left the organization to become the publisher of Pantheon and Schocken.`\
+https://nytimes.com/2021/02/11/books/national-book-foundation-ruth-dickey.html?searchResultPosition=7
 
-**Australian Open: Sofia Kenin, the Reigning Champ, Is Knocked Out**\
-`The 22-year-old American lost in the second round to an unseeded player, Kaia Kanepi of Estonia.`\
-https://nytimes.com/2021/02/10/sports/tennis/australian-open-sofia-kenin-kaia-kanepi.html?searchResultPosition=8
+**A Vision of Asian-American Cinema That Questions the Very Premise**\
+`Lulu Wang, Lee Isaac Chung, Bing Liu, Alan Yang, Justin Chon, Sandi Tan and Mira Nair talk forthrightly about staying true to themselves while navigating Hollywood and issues of identity.`\
+https://nytimes.com/2021/02/11/movies/asian-american-cinema.html?searchResultPosition=8
 
-**Corrections: Feb. 11, 2021**\
-`Corrections that appeared in print on Thursday, Feb. 11, 2021.`\
-https://nytimes.com/2021/02/10/pageoneplus/corrections-feb-11-2021.html?searchResultPosition=9
+**The Wedding Is Postponed. Again.**\
+`Couples who put off their destination nuptials a year ago at the start of the pandemic are facing the prospect of delaying for another year.`\
+https://nytimes.com/2021/02/11/travel/coronavirus-destination-wedding-postponed.html?searchResultPosition=9
 
-**Quotation of the Day: Millions of Coveted Face Coverings Await Buyers**\
-`Quotation of the Day for Thursday, February 11, 2021.`\
-https://nytimes.com/2021/02/10/todayspaper/quotation-of-the-day-millions-of-coveted-face-coverings-await-buyers.html?searchResultPosition=10
+**Democrats Must Make Judgeships a Top Priority**\
+`Under Trump, Republicans reshaped the federal judiciary. Now Democrats have the chance to do the same.`\
+https://nytimes.com/2021/02/11/opinion/biden-senate-judges-courts.html?searchResultPosition=10
 
