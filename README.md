@@ -1,40 +1,40 @@
+**Larry Flynt, Who Built a Porn Empire With Hustler, Dies at 78**\
+`As the publisher of a notorious sexually explicit magazine, he found himself at the nexus of a cultural and legal war and became an unlikely free-speech hero.`\
+https://nytimes.com/2021/02/10/business/media/larry-flynt-who-built-a-porn-empire-with-hustler-dies-at-78.html?searchResultPosition=1
+
+**Biden Charts a New Course in Guatemala**\
+`An emerging multiethnic and multigenerational coalition is reimagining the country’s future. Partnering with them could be the key to lasting change.`\
+https://nytimes.com/2021/02/10/opinion/guatemala-biden.html?searchResultPosition=2
+
 **Trump Justice Department Sought to Block Search of Giuliani Records**\
 `Manhattan prosecutors had been prepared to seek a search warrant for electronic records related to powerful Ukrainians who had helped Rudolph Giuliani dig for dirt on the Biden family.`\
-https://nytimes.com/2021/02/10/nyregion/giuliani-trump-subpoena.html?searchResultPosition=1
+https://nytimes.com/2021/02/10/nyregion/giuliani-trump-subpoena.html?searchResultPosition=3
 
 **Takeaways From Day 2 of Trump’s Impeachment Trial**\
 `Former President Donald J. Trump’s Twitter feed made a prominent appearance, and the House members prosecuting the case leaned on his words and those of his supporters to argue for conviction.`\
-https://nytimes.com/2021/02/10/us/politics/trump-impeachment-takeaways-day-2.html?searchResultPosition=2
+https://nytimes.com/2021/02/10/us/politics/trump-impeachment-takeaways-day-2.html?searchResultPosition=4
 
 **Haiti Needs Help. This Is What the U.S. Sends Instead.**\
 `Our neighbor is in a constitutional crisis, and instead of carrying aid, planes arrived with deportees.`\
-https://nytimes.com/2021/02/10/opinion/haiti-us-deportations.html?searchResultPosition=3
+https://nytimes.com/2021/02/10/opinion/haiti-us-deportations.html?searchResultPosition=5
 
 **Biden Imposes Sanctions on Generals Who Engineered Myanmar Coup**\
 `It was the first concrete step the U.S. government has taken since President Biden demanded that the generals restore democracy and release Myanmar’s civilian leader.`\
-https://nytimes.com/2021/02/10/us/politics/biden-sanctions-myanmar-coup.html?searchResultPosition=4
+https://nytimes.com/2021/02/10/us/politics/biden-sanctions-myanmar-coup.html?searchResultPosition=6
 
 **What Do ‘Right’ and ‘Wrong’ Mean to the G.O.P.?**\
 `These politicians are still bowing to their alpha — Trump.`\
-https://nytimes.com/2021/02/10/opinion/trump-republicans-impeachment-trial.html?searchResultPosition=5
+https://nytimes.com/2021/02/10/opinion/trump-republicans-impeachment-trial.html?searchResultPosition=7
 
 **Coronavirus Briefing: What Happened Today**\
 `But after several dark months, the country is showing some positive signs.`\
-https://nytimes.com/2021/02/10/us/coronavirus-today.html?searchResultPosition=6
+https://nytimes.com/2021/02/10/us/coronavirus-today.html?searchResultPosition=8
 
 **Plaskett Recalls Sept. 11 in Impeachment Trial Speech**\
 `Delegate Stacey Plaskett of the Virgin Islands recalled being at the Capitol during the terrorist attacks of Sept. 11, 2001, as she described scenes of the pro-Trump mob violence at the Capitol on Jan. 6.`\
-https://nytimes.com/video/us/politics/100000007598512/plaskett-impeachment-riot-9-11.html?searchResultPosition=7
+https://nytimes.com/video/us/politics/100000007598512/plaskett-impeachment-riot-9-11.html?searchResultPosition=9
 
 **Capitol Hill, Mask Guidance, Spring Fashion: Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/02/10/briefing/capitol-hill-mask-guidance-spring-fashion.html?searchResultPosition=8
-
-**Why Bill Cassidy Broke With Senate Republicans and Backed Trump’s Trial**\
-`The Louisiana senator, usually a reliable conservative vote, angered Republicans by voting to continue with the impeachment trial. But he has increasingly shown an inclination toward pragmatism.`\
-https://nytimes.com/2021/02/10/us/politics/bill-cassidy-louisiania-impeachment-trump.html?searchResultPosition=9
-
-**Jeep pulls Springsteen Super Bowl ad after news of his drunken-driving charge.**\
-`The two-minute spot featured the singer in the rural middle of the country, urging unity from a white Jeep.`\
-https://nytimes.com/2021/02/10/business/bruce-springsteen-jeep-ad.html?searchResultPosition=10
+https://nytimes.com/2021/02/10/briefing/capitol-hill-mask-guidance-spring-fashion.html?searchResultPosition=10
 
