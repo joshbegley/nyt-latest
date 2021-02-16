@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 **‘Consent,’ a Memoir That Shook France, Recalls Living a ‘Perverse Nightmare’**\
 `Our critic calls this recounting of a middle-age writer preying on a 13-year-old girl a “work of dazzling, highly controlled fury.”`\
 https://nytimes.com/2021/02/16/books/review-consent-memoir-vanessa-springora.html?searchResultPosition=1
@@ -34,3 +35,5 @@ https://nytimes.com/2021/02/16/world/covid-coronavirus-uss-roosevelt.html?search
 `Even after his defeat, Donald Trump is causing fierce infighting among Republicans in a crucial battleground state. Loyalists are rewarded. Dissenters face punishment.`\
 https://nytimes.com/2021/02/16/us/politics/michigan-republicans-trump.html?searchResultPosition=10
 
+=======
+>>>>>>> 319971de078cf1f532e1a41cc8cf6223d90ea2c9
