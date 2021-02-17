@@ -2,8 +2,8 @@
 `After Donald Trump’s acquittal by the Senate, support is growing for a federal inquiry into the events of Jan. 6.`\
 https://nytimes.com/2021/02/16/us/politics/capitol-riot-9-11-commission.html?searchResultPosition=1
 
-**Alden Hedge Fund Reaches a Deal to Buy Tribune Publishing**\
-`The acquisition continues the trend of the financial industry’s taking control of major newspaper chains. The Baltimore Sun, a Tribune paper, will be sold to a Maryland entrepreneur in a separate deal.`\
+**Hedge Fund Reaches a Deal to Buy Tribune Publishing**\
+`The acquisition by Alden Global Capital continues the trend of the financial industry’s taking control of major newspaper chains. The Baltimore Sun, a Tribune paper, will be sold to a Maryland entrepreneur in a separate deal.`\
 https://nytimes.com/2021/02/16/business/media/alden-tribune-newspaper-sale.html?searchResultPosition=2
 
 **What Trump, San Francisco and the Deer in My Backyard Have in Common**\
