@@ -11,7 +11,7 @@ https://nytimes.com/video/us/politics/100000007610284/biden-labor-coronavirus-bi
 https://nytimes.com/2021/02/17/opinion/eviction-housing-biden.html?searchResultPosition=4
 
 **The Future of Work in 7 Questions**\
-`Seven essential workers on what they’ve lived through this last year — and what lies ahead.`\
+`Essential workers on what they’ve lived through this last year — and what lies ahead.`\
 https://nytimes.com/interactive/2021/02/17/magazine/remote-work-return-to-office.html?searchResultPosition=5
 
 **C.D.C. Announces $200 Million ‘Down Payment’ to Track Virus Variants**\
