@@ -1,36 +1,36 @@
+**Paint, Poems and Protest Anthems: Myanmar’s Coup Inspires the Art of Defiance**\
+`The creative classes are providing a mass uprising in the country with an imaginative verve and rebellious spirit that has caught the military generals off guard.`\
+https://nytimes.com/2021/02/17/world/asia/myanmar-coup-protest-art.html?searchResultPosition=1
+
 **Black, Female and Carving Out Their Own Path in Country Music**\
 `Five singer-songwriters discuss the challenges of becoming the change they want to see in a famously homogeneous segment of the music industry.`\
-https://nytimes.com/2021/02/17/arts/music/black-women-country-music.html?searchResultPosition=2
+https://nytimes.com/2021/02/17/arts/music/black-women-country-music.html?searchResultPosition=3
 
 **How Erewhon Became L.A.’s Hottest Hangout**\
 `With a little help from celebrities and influencers, the health food store became the place to see and be seen.`\
-https://nytimes.com/2021/02/17/style/how-erewhon-became-las-hottest-hangout.html?searchResultPosition=3
+https://nytimes.com/2021/02/17/style/how-erewhon-became-las-hottest-hangout.html?searchResultPosition=4
 
 **Theater to Stream: Revisiting ‘Rent’ and ‘Angels in America’**\
 `Presentations include the 30th anniversary of George C. Wolfe’s “The Colored Museum”; Andréa Burns in “Bad Dates”; and a solo show by Riz Ahmed.`\
-https://nytimes.com/2021/02/17/theater/streaming-theater-colored-museum.html?searchResultPosition=4
+https://nytimes.com/2021/02/17/theater/streaming-theater-colored-museum.html?searchResultPosition=5
 
 **Read the letter**\
 `Below is a letter to Representative Adam Kinzinger, Republican of Illinois, from several of his family members who support former President Trump. Mr. Kinzinger provided The Times with the letter. We have redacted the names of some family members who signed the letter but whom we did not interview.`\
-https://nytimes.com/interactive/2021/02/17/us/politics/kinziger-family-letter.html?searchResultPosition=5
+https://nytimes.com/interactive/2021/02/17/us/politics/kinziger-family-letter.html?searchResultPosition=6
 
 **Promotions for Female Generals Were Delayed Over Fears of Trump’s Reaction**\
 `Under a Biden administration, the nominations are expected to go from the Pentagon to the White House within weeks and then to the Senate for approval.`\
-https://nytimes.com/2021/02/17/us/politics/trump-biden-promotions-women-generals.html?searchResultPosition=6
+https://nytimes.com/2021/02/17/us/politics/trump-biden-promotions-women-generals.html?searchResultPosition=7
 
 **Gunmen Attack Nigerian School, Abducting Dozens and Killing a Student**\
 `A teacher at Government Science College in Kagara said the gunmen had entered the school premises in the middle of the night, dressed in military camouflage.`\
-https://nytimes.com/2021/02/17/world/africa/nigeria-school-attack.html?searchResultPosition=7
+https://nytimes.com/2021/02/17/world/africa/nigeria-school-attack.html?searchResultPosition=8
 
-**Fake Doctors, Fake Documents, Fake Hospital: How a Russian Doping Lie Fell Apart**\
+**Fake Doctors, Fake Documents: How a Russian Doping Lie Fell Apart**\
 `With investigators closing in, the high jumper Danil Lysenko needed a paper trail to support his story. Top Russian track officials provided it.`\
-https://nytimes.com/2021/02/17/sports/olympics/Russia-Lysenko-doping.html?searchResultPosition=8
+https://nytimes.com/2021/02/17/sports/olympics/Russia-Lysenko-doping.html?searchResultPosition=9
 
 **House Hunting in Switzerland: A 17th-Century Farm With Bauhaus Updates**\
 `Investors from home and abroad continued to pump money into the Swiss property market last year, keeping demand and prices on the rise.`\
-https://nytimes.com/2021/02/17/realestate/house-hunting-in-switzerland-a-17th-century-farm-with-bauhaus-updates.html?searchResultPosition=9
-
-**A Wine-Making Estate With Lake Views in Switzerland**\
-`This updated 17th-century farmhouse on a former wine-making estate in north-central Switzerland is on the market for $10.6 million.`\
-https://nytimes.com/slideshow/2021/02/17/realestate/a-wine-making-estate-with-lake-views-in-switzerland.html?searchResultPosition=10
+https://nytimes.com/2021/02/17/realestate/house-hunting-in-switzerland-a-17th-century-farm-with-bauhaus-updates.html?searchResultPosition=10
 
