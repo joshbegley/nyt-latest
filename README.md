@@ -1,4 +1,4 @@
-**<strong>Work Will Never Be the Same</strong>**\
+**Work Will Never Be the Same**\
 `Seven essential workers on what they’ve lived through this last year — and what lies ahead.`\
 https://nytimes.com/interactive/2021/02/17/magazine/remote-work-return-to-office.html?searchResultPosition=1
 
