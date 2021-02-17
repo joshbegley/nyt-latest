@@ -22,17 +22,17 @@ https://nytimes.com/2021/02/17/business/ford-says-it-will-phase-out-gasoline-pow
 `Silvia Federici has been warning of what happens when we undervalue domestic labor for decades.`\
 https://nytimes.com/2021/02/17/magazine/waged-housework.html?searchResultPosition=6
 
+**A Different Kind of Land Management: Let the Cows Stomp**\
+`Regenerative grazing can store more carbon in soils in the form of roots and other plant tissues. But how much can it really help the fight against climate change?`\
+https://nytimes.com/2021/02/17/climate/regenerative-grazing-cattle-climate.html?searchResultPosition=7
+
 **Essex Fells, N.J.: ‘It’s Very Norman Rockwell’**\
 `With its highly regarded schools, grand old homes and close-knit community, the borough is one of Essex County’s most desirable areas.`\
-https://nytimes.com/2021/02/17/realestate/essex-fells-nj-its-very-norman-rockwell.html?searchResultPosition=7
+https://nytimes.com/2021/02/17/realestate/essex-fells-nj-its-very-norman-rockwell.html?searchResultPosition=8
 
 **When the Bill Comes Due in Europe, ‘How Are We Going to Pay for All This?’**\
 `Pandemic aid has cushioned workers and businesses from a severe recession. But as governments face trillions in debt, there’s no rush to rein it in.`\
-https://nytimes.com/2021/02/17/business/europe-pandemic-debt.html?searchResultPosition=8
-
-**A Different Kind of Land Management: Let the Cows Stomp**\
-`Regenerative grazing can store more carbon in soils in the form of roots and other plant tissues. But how much can it really help the fight against climate change?`\
-https://nytimes.com/2021/02/17/climate/regenerative-grazing-cattle-climate.html?searchResultPosition=9
+https://nytimes.com/2021/02/17/business/europe-pandemic-debt.html?searchResultPosition=9
 
 **For My Next Trick … Opening a New Musical in Tokyo in a Pandemic**\
 `Our writer’s adaptation of “The Illusionist” was slated for a tryout run. Lockdown, a tragic death, cancer and quarantine got in the way, but didn’t stop the show.`\
