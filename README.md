@@ -1,5 +1,5 @@
 **About 3,500 sea turtles are rescued from the frigid temperatures in Texas.**\
-`By Will Wright`\
+`The turtles are among some of the state’s wildlife that have been threatened during this week’s winter storm.`\
 https://nytimes.com/2021/02/17/us/sea-turtles-texas.html?searchResultPosition=1
 
 **An Artist Exposing Fascism Through Provocation**\
