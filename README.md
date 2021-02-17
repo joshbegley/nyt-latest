@@ -2,7 +2,7 @@
 `The founder of an insiders’ art fair in the Texas town is now planning a bigger cultural center, in the desert, for visitors year-round. It will open in the fall.`\
 https://nytimes.com/2021/02/17/arts/design/marfa-invitational.html?searchResultPosition=1
 
-**He Calls Himself ‘North Korea’s Poet Laureate.’ Two Women Call Him a Rapist**\
+**He Calls Himself ‘North Korea’s Poet Laureate.’ Two Women Call Him a Rapist.**\
 `Jang Jin-sung, the author of “Dear Leader,” has been accused of sexual assault by two women, including a fellow defector from North Korea. He has threatened to sue for defamation.`\
 https://nytimes.com/2021/02/17/world/asia/north-korea-metoo-defector.html?searchResultPosition=2
 
