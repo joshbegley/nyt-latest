@@ -15,7 +15,7 @@ https://nytimes.com/2021/02/16/us/politics/capitol-riot-9-11-commission.html?sea
 https://nytimes.com/2021/02/16/us/politics/brent-bozell-son-capitol-riot.html?searchResultPosition=4
 
 **Hedge Fund Reaches a Deal to Buy Tribune Publishing**\
-`Alden Global Capital’s move continues the financial industry’s acquisition of major newspaper chains. The Baltimore Sun, a Tribune paper, will be sold to a Maryland entrepreneur.`\
+`Alden Global Capital’s move continues the financial industry’s acquisition of major newspaper chains. The Baltimore Sun, a Tribune paper, will be sold to a Maryland hotel executive.`\
 https://nytimes.com/2021/02/16/business/media/alden-tribune-newspaper-sale.html?searchResultPosition=5
 
 **What Trump, San Francisco and the Deer in My Backyard Have in Common**\
