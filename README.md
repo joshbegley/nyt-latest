@@ -2,7 +2,7 @@
 `Cast opposite Daniel Kaluuya, the actress was given a Black Panther love story that she had been manifesting for a really long time.`\
 https://nytimes.com/2021/02/17/movies/dominique-fishback-judas-black-messiah.html?searchResultPosition=1
 
-**Cuomo Vowed to ‘Destroy’ a Democrat Over Nursing Home Criticism**\
+**Cuomo Vowed to ‘Destroy’ a Fellow Democrat Over Nursing Home Criticism**\
 `Gov. Andrew Cuomo attacked Assemblyman Ron Kim, both publicly and in a private phone call, as a war intensified among Democrats over the state’s handling of nursing homes during the pandemic.`\
 https://nytimes.com/2021/02/17/nyregion/nursing-homes-cuomo-ron-kim.html?searchResultPosition=2
 
