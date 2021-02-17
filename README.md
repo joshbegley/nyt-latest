@@ -1,6 +1,6 @@
 **‘Nobody Has Openings’: Mental Health Providers Struggle to Meet Demand**\
 `With anxiety and depression on the rise during the pandemic, it has been challenging for people to get the help they need.`\
-https://nytimes.com/2021/02/17/well/mind/therapy-appointments-shortages-covid-19-pandemic.html?searchResultPosition=2
+https://nytimes.com/2021/02/17/well/mind/therapy-appointments-shortages-pandemic.html?searchResultPosition=2
 
 **Biden Hosts Labor Leaders to Discuss Virus Relief Bill**\
 `President Biden spoke Wednesday with a group of labor leaders about his $1.9 trillion coronavirus relief bill and to get input on investing in the nation’s infrastructure.`\
@@ -10,8 +10,8 @@ https://nytimes.com/video/us/politics/100000007610284/biden-labor-coronavirus-bi
 `For starters, Biden can improve lives right now by recalibrating existing programs.`\
 https://nytimes.com/2021/02/17/opinion/eviction-housing-biden.html?searchResultPosition=4
 
-**The Future of Work in 7 Questions**\
-`Essential workers on what they’ve lived through this last year — and what lies ahead.`\
+**Work Will Never Be the Same**\
+`Seven essential workers on what they’ve lived through this last year — and what lies ahead.`\
 https://nytimes.com/interactive/2021/02/17/magazine/remote-work-return-to-office.html?searchResultPosition=5
 
 **C.D.C. Announces $200 Million ‘Down Payment’ to Track Virus Variants**\
