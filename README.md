@@ -1,5 +1,5 @@
 **A New Pregnancy and an Oprah Interview, Refocus a Spotlight on Harry and Meghan**\
-`Buckingham Palace is steeling itself for embarrassing revelations, and there’s griping a foot in the British press.`\
+`Buckingham Palace is steeling itself for embarrassing revelations, and there’s griping afoot in the British press.`\
 https://nytimes.com/2021/02/17/world/europe/harry-meghan-oprah-interview.html?searchResultPosition=1
 
 **How Do Pop Stars Come to TikTok? Hat in Hand, Grasping at Buzz**\
@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/17/arts/music/pop-stars-tiktok-remixes.html?searchRe
 https://nytimes.com/2021/02/17/movies/dominique-fishback-judas-black-messiah.html?searchResultPosition=3
 
 **Cuomo Vowed to ‘Destroy’ a Fellow Democrat Over Nursing Home Criticism**\
-`Gov. Andrew Cuomo attacked Assemblyman Ron Kim, both publicly and in a private phone call, as a war intensified over the state’s handling of nursing homes during the pandemic.`\
+`Gov. Andrew Cuomo attacked Assemblyman Ron Kim, both publicly and in a private phone call, as a war intensified over the state’s handling of nursing home deaths during the pandemic.`\
 https://nytimes.com/2021/02/17/nyregion/nursing-homes-cuomo-ron-kim.html?searchResultPosition=4
 
 **Winter Storm Delayed Vaccine Shipments to N.Y.C., Mayor Says**\
