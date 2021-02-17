@@ -10,7 +10,7 @@ https://nytimes.com/2021/02/17/us/wisconsin-official-caviar-scheme.html?searchRe
 `The agency has not fully reckoned with airborne transmission of the coronavirus in settings like hospitals, schools and meatpacking plants, experts said.`\
 https://nytimes.com/2021/02/17/health/coronavirus-aerosols-workplaces.html?searchResultPosition=3
 
-**North Korean in Diving Gear Crosses Border into South Korea Undetected**\
+**North Korean in Diving Gear Crosses Border Into South Korea Undetected**\
 `The South Korean military admitted to a lapse in its border security. The crossing marked the second embarrassing breach for the country in recent months.`\
 https://nytimes.com/2021/02/16/world/asia/north-korean-defector-dmz.html?searchResultPosition=4
 
