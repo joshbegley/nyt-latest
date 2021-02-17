@@ -1,5 +1,5 @@
 **Cuomo Vowed to ‘Destroy’ a Democrat Over Nursing Home Criticism**\
-`Gov. Andrew Cuomo publicly attacked Assemblyman Ron Kim as a war intensified among Democrats over the state’s handling of nursing home deaths during the pandemic.`\
+`Gov. Andrew Cuomo attacked Assemblyman Ron Kim, both publicly and in a private phone call, as a war intensified among Democrats over the state’s handling of nursing homes during the pandemic.`\
 https://nytimes.com/2021/02/17/nyregion/nursing-homes-cuomo-ron-kim.html?searchResultPosition=1
 
 **Winter Storm Delayed Vaccine Shipments to N.Y.C., Mayor Says**\
