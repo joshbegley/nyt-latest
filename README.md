@@ -1,6 +1,6 @@
-**F.E.M.A. Sending Relief to Texas After Winter Storm**\
-`Jen Psaki, the White House press secretary, said the Federal Emergency Management Agency sent generators, water and other supplies to Texas to help the state cope with power outages caused by the storm.`\
-https://nytimes.com/video/us/politics/100000007610257/texas-storm-relief.html?searchResultPosition=1
+**F.E.M.A. Sending Relief to Texas**\
+`Jen Psaki, the White House press secretary, said the Federal Emergency Management Agency is sending generators and other supplies to Texas to help the state cope with power outages after a severe winter storm.`\
+https://nytimes.com/video/embedded/us/politics/100000007610257/texas-storm-relief.html?searchResultPosition=1
 
 **No, Wind Farms Aren’t the Main Cause of the Texas Blackouts**\
 `The state’s widespread electricity failure was largely caused by freezing natural gas pipelines. That didn’t stop advocates for fossil fuels from trying to shift blame.`\
