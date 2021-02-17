@@ -6,7 +6,7 @@ https://nytimes.com/2021/02/17/opinion/inflation-federal-reserve.html?searchResu
 `Art and defiance in Myanmar.`\
 https://nytimes.com/2021/02/17/briefing/myanmar-protests-vaccines-japan-olympics.html?searchResultPosition=2
 
-**C.D.C. Concerned by Spread of New Virus Variants**\
+**Spread of New Virus Variants Is Concerning, C.D.C. Says**\
 `Dr. Rochelle Walensky, the director of the C.D.C., said the agency was concerned about the transmission of new coronavirus variants and suggested that relying on U.S. vaccinations alone would not be effective.`\
 https://nytimes.com/video/us/politics/100000007609912/coronavirus-briefing-vaccine-varients.html?searchResultPosition=3
 
