@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/17/briefing/texas-rush-limbaugh-mammoths.html?searchResultPosition=1
 
 **Store in Oregon That Threw Out Food Is Confronted by Angry Activists**\
-`The police responded to a crowd furious that a Fred Meyer grocery store in Portland had tossed its refrigerated food after a winter storm knocked out power throughout the city.`\
+`The police responded to a Fred Meyer grocery store in Portland that had tossed its refrigerated food after a winter storm knocked out power throughout the city, infuriating residents.`\
 https://nytimes.com/2021/02/17/us/oregon-fred-meyer-food-snowstorm.html?searchResultPosition=2
 
 **N.Y. Restaurant Fires Waitress Who Wouldn’t Get Covid-19 Vaccine**\
