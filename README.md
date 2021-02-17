@@ -23,7 +23,7 @@ https://nytimes.com/2021/02/17/us/cold-weather-snow-school-class-teachers.html?s
 https://nytimes.com/2021/02/17/business/keith-gill-roaringkitty-testimony.html?searchResultPosition=6
 
 **Charles Venable Resigns as Head of Indianapolis Museum of Art**\
-`His departure comes in the wake of an insensitive job posting that appeared on a recruiting website, which the museum has since edited and apologized for.`\
+`His departure comes in the wake of a job posting, since corrected, that described the museum’s core audience as “white,” and amid criticism from a trustee, some staff and local artists.`\
 https://nytimes.com/2021/02/17/arts/design/charles-venable-resigning-indianapolis-museum.html?searchResultPosition=7
 
 **NASA Will Listen for Thumps From Its Rover’s Arrival on Mars**\
