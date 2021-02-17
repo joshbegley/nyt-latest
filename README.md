@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘“What’s the Point?” Young People’s Despair Deepens as Covid-19 Crisis Drags On’**\
-`In this lesson, students will learn about the “mental health pandemic” that is affecting many young people around the world. Then, they will make suggestions for better supporting teenagers during this difficult time.`\
-https://nytimes.com/2021/02/17/learning/lesson-of-the-day-whats-the-point-young-peoples-despair-deepens-as-covid-19-crisis-drags-on.html?searchResultPosition=1
+**Ford says it will phase out gasoline-powered vehicles in Europe.**\
+`By Neal E. Boudette and Jack Ewing`\
+https://nytimes.com/2021/02/17/business/ford-says-it-will-phase-out-gasoline-powered-vehicles-in-europe.html?searchResultPosition=1
 
-**Oregon Is Vaccinating Teachers. It Might Not Be Enough to Reopen Schools.**\
-`Oregon is a case study in how Pacific Coast cities are lagging the country in resuming in-person teaching.`\
-https://nytimes.com/2021/02/17/us/schools-reopening-west-coast.html?searchResultPosition=2
+**The Lockdown Showed How the Economy Exploits Women. She Already Knew.**\
+`Silvia Federici has been warning of what happens when we undervalue domestic labor for decades.`\
+https://nytimes.com/2021/02/17/magazine/waged-housework.html?searchResultPosition=2
 
-**Predicting N.B.A. All-Star Picks and Snubs**\
-`The usual All-Star Game debates — who’s in, who’s out — have a new component this year during the coronavirus pandemic: Should the game happen at all?`\
-https://nytimes.com/2021/02/17/sports/basketball/nba-all-star-picks.html?searchResultPosition=3
+**Essex Fells, N.J.: ‘It’s Very Norman Rockwell’**\
+`With its highly regarded schools, grand old homes and close-knit community, the borough is one of Essex County’s most desirable areas.`\
+https://nytimes.com/2021/02/17/realestate/essex-fells-nj-its-very-norman-rockwell.html?searchResultPosition=3
 
-**Calendar**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2021/02/17/learning/calendar.html?searchResultPosition=4
+**When the Bill Comes Due in Europe, ‘How Are We Going to Pay for All This?’**\
+`Pandemic aid has cushioned workers and businesses from a severe recession. But as governments face trillions in debt, there’s no rush to rein it in.`\
+https://nytimes.com/2021/02/17/business/europe-pandemic-debt.html?searchResultPosition=4
 
-**Word + Quiz: stolid**\
-`This word has appeared in 17 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/17/learning/word-quiz-stolid.html?searchResultPosition=5
+**A Different Kind of Land Management: Let the Cows Stomp**\
+`Regenerative grazing can store more carbon in soils in the form of roots and other plant tissues. But how much can it really help the fight against climate change?`\
+https://nytimes.com/2021/02/17/climate/regenerative-grazing-cattle-climate.html?searchResultPosition=5
 
-**2021 Australian Open: What to Watch For in Serena Williams and Naomi Osaka’s Semifinal**\
-`Williams and Osaka will play for the second time at a Grand Slam. Plus, Novak Djokovic faces an unlikely semifinal opponent: a 27-year-old in his first Grand Slam main draw.`\
-https://nytimes.com/2021/02/17/sports/tennis/australian-open-semifinals-serena-williams-naomi-osaka.html?searchResultPosition=6
+**For My Next Trick … Opening a New Musical in Tokyo in a Pandemic**\
+`Our writer’s adaptation of “The Illusionist” was slated for a tryout run. Lockdown, a tragic death, cancer and quarantine got in the way, but didn’t stop the show.`\
+https://nytimes.com/2021/02/17/theater/the-illusionist-musical-tokyo-pandemic.html?searchResultPosition=6
 
-**In Milwaukee, Biden Offers Reassurance, and Tries to Avoid Mention of ‘the Former Guy’**\
-`It was President Biden’s first extended encounter with voters since Inauguration Day and was a rare opportunity for him to practice his signature brand of personal politics.`\
-https://nytimes.com/2021/02/17/us/politics/biden-town-hall-milwaukee.html?searchResultPosition=7
+**Living In ... Essex Fells, N.J.**\
+`With its highly regarded schools, grand old homes and close-knit community, the borough is one of Essex County’s most desirable areas.`\
+https://nytimes.com/slideshow/2021/02/17/realestate/living-in-essex-fells-nj.html?searchResultPosition=7
 
-**Snowstorm Disarmed Texas, Trevor Noah Says**\
-`“They don’t have snow shovels out there. Their best bet is to grab their AR-15s and shoot each snowflake before it lands: ‘Go back to Canada where you belong!’” Noah joked on Tuesday.`\
-https://nytimes.com/2021/02/17/arts/television/snowstorm-disarmed-texas-trevor-noah-says.html?searchResultPosition=8
+**Would Americans Have More Babies if the Government Paid Them?**\
+`One policy goal of a child allowance is to reverse declines in fertility, but some experts say improving families’ well-being is more important.`\
+https://nytimes.com/2021/02/17/upshot/americans-fertility-babies.html?searchResultPosition=8
 
-**Los Angeles School District Eliminates One-Third of Its Police Officers**\
-`The school board also decided to ban the pepper-spraying of students and divert $25 million to programs for students of color.`\
-https://nytimes.com/2021/02/17/us/los-angeles-school-police.html?searchResultPosition=9
+**How to Buy a Real N95 Mask Online**\
+`Fakes and little-known brands still abound, even as health officials have advised us to up our mask game. Here’s what to do.`\
+https://nytimes.com/2021/02/17/technology/personaltech/buy-real-n95-mask.html?searchResultPosition=9
 
-**‘How Many Funerals Will Come Out of This One?’**\
-`Suspicious of secular authority, Israel’s ultra-Orthodox Jews have often flouted antivirus protocols. Wary of hospitals, many prefer to stay home when they do get sick. A look inside an insular culture that has been both a vector for the virus and its victim.`\
-https://nytimes.com/interactive/2021/02/17/world/middleeast/israel-orthodox-jews-haredim.html?searchResultPosition=10
+**A Different Early-Bird Special: Have Vaccine, Will Travel**\
+`People over 65 have been among the first in line to receive Covid-19 vaccinations. And they are leading a wave in new travel bookings.`\
+https://nytimes.com/2021/02/17/travel/seniors-covid-vaccine-travel.html?searchResultPosition=10
 
