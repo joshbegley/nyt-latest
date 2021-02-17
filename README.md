@@ -1,40 +1,40 @@
+**Sotheby’s Christo Auction, Part 1, Nets $9.8 Million**\
+`The 28 most valuable works the couple collected were offered in a live auction on Wednesday; a timed online sale of another 347 lots will end on Thursday.`\
+https://nytimes.com/2021/02/17/arts/design/christo-auction.html?searchResultPosition=1
+
 **Stop Worrying About Inflation**\
 `The evidence that high inflation is coming is weak. It’s too weak, actually.`\
-https://nytimes.com/2021/02/17/opinion/inflation-federal-reserve.html?searchResultPosition=1
+https://nytimes.com/2021/02/17/opinion/inflation-federal-reserve.html?searchResultPosition=2
 
 **Your Thursday Briefing**\
 `Art and defiance in Myanmar.`\
-https://nytimes.com/2021/02/17/briefing/myanmar-protests-vaccines-japan-olympics.html?searchResultPosition=2
+https://nytimes.com/2021/02/17/briefing/myanmar-protests-vaccines-japan-olympics.html?searchResultPosition=3
 
 **Spread of New Virus Variants Is Concerning, C.D.C. Says**\
 `Dr. Rochelle Walensky, the director of the C.D.C., said the agency was concerned about the transmission of new coronavirus variants and suggested that relying on U.S. vaccinations alone would not be effective.`\
-https://nytimes.com/video/us/politics/100000007609912/coronavirus-briefing-vaccine-varients.html?searchResultPosition=3
+https://nytimes.com/video/us/politics/100000007609912/coronavirus-briefing-vaccine-varients.html?searchResultPosition=4
 
 **Israel Is in Talks to Free Woman Who Crossed the Syrian Frontier**\
 `Israel and Syria are working on a prisoner exchange, with Russian mediation, after an Israeli woman slipped over the boundary and was detained in Syria.`\
-https://nytimes.com/2021/02/17/world/middleeast/israel-syria-prisoner-exchange.html?searchResultPosition=4
+https://nytimes.com/2021/02/17/world/middleeast/israel-syria-prisoner-exchange.html?searchResultPosition=5
 
 **Biden on ‘Short Leash’ as Administration Rethinks China Relations**\
 `The Biden administration is under intense pressure to maintain former President Donald J. Trump’s curbs on China, even as it tries to develop a more comprehensive and effective strategy.`\
-https://nytimes.com/2021/02/17/business/economy/biden-china.html?searchResultPosition=5
+https://nytimes.com/2021/02/17/business/economy/biden-china.html?searchResultPosition=6
 
 **Trump’s Attack on McConnell**\
 `“Anyone who does not profess undying loyalty to him gets thrown under the bus,” a reader writes. Also: Supertall buildings in Manhattan.`\
-https://nytimes.com/2021/02/17/opinion/letters/trump-mcconnell.html?searchResultPosition=6
+https://nytimes.com/2021/02/17/opinion/letters/trump-mcconnell.html?searchResultPosition=7
 
 **A New Pregnancy and an Oprah Interview, Refocus a Spotlight on Harry and Meghan**\
 `Buckingham Palace is steeling itself for embarrassing revelations, and there’s griping afoot in the British press.`\
-https://nytimes.com/2021/02/17/world/europe/harry-meghan-oprah-interview.html?searchResultPosition=7
+https://nytimes.com/2021/02/17/world/europe/harry-meghan-oprah-interview.html?searchResultPosition=8
 
 **Facebook restricts the sharing of news on its platform in Australia.**\
 `The decision is in response to a proposed law in the country that would require tech companies to pay publishers for linking to stories across their platforms.`\
-https://nytimes.com/2021/02/17/technology/facebook-restricts-the-sharing-of-news-on-its-platform-in-australia.html?searchResultPosition=8
+https://nytimes.com/2021/02/17/technology/facebook-restricts-the-sharing-of-news-on-its-platform-in-australia.html?searchResultPosition=9
 
 **How Do Pop Stars Come to TikTok? Hat in Hand, Grasping at Buzz**\
 `After a song by an unknown gains attention on the app, a trend-hopping remix with a superstar usually isn’t far behind.`\
-https://nytimes.com/2021/02/17/arts/music/pop-stars-tiktok-remixes.html?searchResultPosition=9
-
-**Dominique Fishback Gave Her Heart to ‘Judas and the Black Messiah’**\
-`Cast opposite Daniel Kaluuya, the actress was given a Black Panther love story that she had been manifesting for a really long time.`\
-https://nytimes.com/2021/02/17/movies/dominique-fishback-judas-black-messiah.html?searchResultPosition=10
+https://nytimes.com/2021/02/17/arts/music/pop-stars-tiktok-remixes.html?searchResultPosition=10
 
