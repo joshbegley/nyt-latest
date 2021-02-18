@@ -3,7 +3,7 @@
 https://nytimes.com/video/business/100000007613071/gamestop-hearing-melvin-capital-plotkin.html?searchResultPosition=1
 
 **Ted Cruz’s Trip to Cancún Draws Fire Amid Texas’ Deep Freeze**\
-`The Texas senator faced fierce blowback for fleeing his state as a disaster unfolded. Text messages sent by his wife revealed a hastily planned trip as the Cruz residence was “FREEZING.”`\
+`The Texas senator faced fierce blowback for fleeing his state as a disaster unfolded. Text messages sent by his wife revealed a hastily planned trip away from their “FREEZING” family home.`\
 https://nytimes.com/2021/02/18/us/politics/ted-cruz-storm-cancun.html?searchResultPosition=2
 
 **Biden Administration Formally Offers to Restart Nuclear Talks With Iran**\
