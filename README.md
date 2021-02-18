@@ -22,7 +22,7 @@ https://nytimes.com/2021/02/17/us/politics/limbaugh-death.html?searchResultPosit
 `Watching the Senate is better than watching reruns.`\
 https://nytimes.com/2021/02/17/opinion/trumps-dreaded-nickname.html?searchResultPosition=6
 
-**‘Now It’s Coming Back to Bite Them’: Democrats See an Opening in GOP Oversight of Texas Grid**\
+**‘Now It’s Coming Back to Bite Them’: Democrats See an Opening in G.O.P. Oversight of Texas Grid**\
 `As the state reels from power outages, Democrats look to turn the tables on the Republicans who dominate state government.`\
 https://nytimes.com/2021/02/17/us/texas-electric-grid-failure.html?searchResultPosition=7
 
