@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/17/pageoneplus/corrections-feb-18-2021.html?searchRe
 `Zachary Spitz’s puzzle is a Thursday treat.`\
 https://nytimes.com/2021/02/17/crosswords/daily-puzzle-2021-02-18.html?searchResultPosition=9
 
-**Fans come back to the stands after a five-day lockdown in Melbourne.**\
+**Fans came back to the stands after a five-day lockdown in Melbourne.**\
 `By Gillian R. Brassil`\
-https://nytimes.com/2021/02/17/sports/tennis/fans-come-back-to-the-stands-after-a-five-day-lockdown-in-melbourne.html?searchResultPosition=10
+https://nytimes.com/2021/02/17/sports/tennis/fans-came-back-to-the-stands-after-a-five-day-lockdown-in-melbourne.html?searchResultPosition=10
 
