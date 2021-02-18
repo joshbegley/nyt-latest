@@ -1,6 +1,6 @@
 **Naomi Osaka Halts Serena Williams’s Run and Heads to the Australian Open Final**\
 `Osaka won the semifinal in straight sets, denying Williams a chance to tie the record for Grand Slam singles titles.`\
-https://nytimes.com/2021/02/18/sports/naomi-osaka-serena-williamss-australian-open-final.html?searchResultPosition=1
+https://nytimes.com/2021/02/18/sports/naomi-osaka-serena-williams-australian-open-final.html?searchResultPosition=1
 
 **A Grim Measure of Covid’s Toll: Life Expectancy Drops Sharply in U.S.**\
 `American life expectancy fell by one year, to 77.8 years, in the first half of 2020. It may rebound as the pandemic’s end approaches.`\
