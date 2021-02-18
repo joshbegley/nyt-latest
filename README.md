@@ -1,6 +1,6 @@
 **Alex Trebek’s Wardrobe Is Donated to Formerly Incarcerated Men**\
 `The gift, which will also benefit formerly homeless men, was in keeping with an appeal that the host of “Jeopardy!” had made when he asked viewers to “build a gentler, kinder society.”`\
-https://nytimes.com/2021/02/18/us/alex-trebek-wardrobe-doe-fund-thankyou-1.html?searchResultPosition=1
+https://nytimes.com/2021/02/18/us/alex-trebek-wardrobe-doe-fund.html?searchResultPosition=1
 
 **In GameStop Saga, Robinhood Is Cast as the Villain**\
 `Lawmakers at a congressional hearing kept coming back to the chief of the stock-trading app with pointed questions and a key argument: “Something very wrong happened here.”`\
