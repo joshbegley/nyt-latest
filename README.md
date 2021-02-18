@@ -1,5 +1,5 @@
 **Ted Cruz’s Trip to Cancún Draws Fire Amid Texas’ Deep Freeze**\
-`The Texas senator faced fierce blowback for fleeing his state as a disaster unfolded. Text messages sent by his wife revealed a hastily planned trip put together because their house was frigid.`\
+`The Texas senator faced fierce blowback for fleeing his state as a disaster unfolded. Text messages sent by his wife revealed a hastily planned trip as the Cruz residence was “FREEZING.”`\
 https://nytimes.com/2021/02/18/us/politics/ted-cruz-storm-cancun.html?searchResultPosition=1
 
 **Biden Administration Formally Offers to Restart Nuclear Talks With Iran**\
