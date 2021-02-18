@@ -2,7 +2,7 @@
 `The virus hastened the rise of online sales, as connoisseurs of vintage vehicles found more time to spend with their socially distanced hobby.`\
 https://nytimes.com/2021/02/18/business/car-collections-pandemic.html?searchResultPosition=1
 
-**A Battle for the Soul of Rwanda**\
+**A Quest for the Soul of Rwanda**\
 `The tale of Paul Rusesabagina, the “Hotel Rwanda” hero who is now accused of terrorism, speaks to the predicament of the African nation.`\
 https://nytimes.com/2021/02/18/podcasts/the-daily/hotel-rwanda-paul-rusesabagina-trial.html?searchResultPosition=2
 
