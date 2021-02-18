@@ -1,40 +1,40 @@
-**A ‘Roman Tragedies’ for the History Books**\
-`The International Theater Amsterdam presented Ivo van Hove’s exhilarating Shakespeare marathon in a one-off, livestreamed production.`\
-https://nytimes.com/2021/02/18/theater/roman-tragedies-ivo-van-hove.html?searchResultPosition=1
+**Communities of color confront many challenges to vaccinations.**\
+`Misinformation and mistrust are not the only issues. Others include lack of access to facilities, and language and technology obstacles.`\
+https://nytimes.com/2021/02/18/world/us-coronavirus-vaccine-minorities.html?searchResultPosition=1
 
-**In Israel, a Rare View of a Community in Crisis**\
-`Photographing the impact of Covid on an ultra-Orthodox group there required unusual access. But that was just the first step.`\
-https://nytimes.com/2021/02/18/insider/israel-ultra-orthodox-pandemic.html?searchResultPosition=2
+**Amazon’s Great Labor Awakening**\
+`Covid-19 has cemented the e-commerce giant’s hold on the economy — but it has also spurred employees all around the country to organize.`\
+https://nytimes.com/2021/02/18/magazine/amazon-workers-employees-covid-19.html?searchResultPosition=2
 
-**The Party Is Paused for Alexander Wang**\
-`The glamour of New York nightlife helped the designer build an empire. Now he is accused of sexual misconduct on the club scene.`\
-https://nytimes.com/2021/02/18/fashion/the-party-is-paused-for-alexander-wang.html?searchResultPosition=3
+**Here’s What Our Food Staff Makes When (Almost) Too Tired to Cook**\
+`It may come as no surprise: The list includes a lot of low-effort pasta, rice, eggs, toast — and anchovies.`\
+https://nytimes.com/2021/02/18/dining/quick-easy-recipes-staff-picks.html?searchResultPosition=3
 
-**When Did Everyone Get Blue-Light Glasses?**\
-`“Computer glasses” are a booming category, thanks to increased screen time, but scientists say they don’t do much.`\
-https://nytimes.com/2021/02/18/style/blue-light-glasses.html?searchResultPosition=4
+**They Thought, ‘Why Not Iran,’ and the Decision Upended Their Lives**\
+`An Iranian-American couple’s relocation to Iran after their daughters went off to college in the United States was a mistake paid for in accusations of spying, murky prosecution and prison.`\
+https://nytimes.com/2021/02/18/world/middleeast/Iran-American-prisoner-Shargi.html?searchResultPosition=4
 
-**After Leader’s Sexist Remark, Tokyo Olympics Makes Symbolic Shift**\
-`The selection of Seiko Hashimoto as president represented an abrupt turn after the Olympic committee had apparently intended to name another man in his 80s.`\
-https://nytimes.com/2021/02/18/world/asia/yoshiro-mori-tokyo-olympics-seiko-hashimoto.html?searchResultPosition=5
+**Meet the Newest Member of the Fluorescent Mammal Club**\
+`The springhare — whose coat glows a patchy pinkish-orange under UV light — joins the platypus and other mammals with this perplexing trait.`\
+https://nytimes.com/2021/02/18/science/fluorescent-mammal-springhare.html?searchResultPosition=5
 
-**Word + Quiz: modus operandi**\
-`This term has appeared in 36 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/18/learning/word-quiz-modus-operandi.html?searchResultPosition=6
+**How a Hardcore Liberal Lawyer Joined the Pro-Trump Mob**\
+`W. McCall Calhoun Jr., who ran for office in Georgia as a Democrat, is a walking embodiment of his state’s political contradictions.`\
+https://nytimes.com/2021/02/18/us/W-McCall-Calhoun-Jr-georgia-capitol-riot.html?searchResultPosition=6
 
-**New Zealand to Roll Out Free Period Products to All Students**\
-`The program, designed to reduce “period poverty,” will begin in June.`\
-https://nytimes.com/2021/02/18/world/asia/new-zealand-period-schools.html?searchResultPosition=7
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and outdoors in New York City.`\
+https://nytimes.com/2021/02/18/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=7
 
-**After Rapper’s Arrest in Spain, His Supporters Clash With Police**\
-`Pablo Hasél had been sentenced to prison after voicing support for insurgents and insulting an ex-king, but barricaded himself in a university. His arrest led to protests in multiple cities.`\
-https://nytimes.com/2021/02/18/world/europe/pablo-hasel-protest-spain.html?searchResultPosition=8
+**Are Addictive Foods Making Us Fat?**\
+`Food researchers debate whether highly processed foods like potato chips and ice cream are addictive, triggering our brains to overeat.`\
+https://nytimes.com/2021/02/18/well/eat/food-addiction-fat.html?searchResultPosition=8
 
-**Late Night Blasts Conservatives Blaming Windmills for Texas Blackouts**\
-`“I know people were praying for Texas to go blue, but not like this,” Trevor Noah joked on Wednesday’s “Daily Show.”`\
-https://nytimes.com/2021/02/18/arts/television/late-night-texas-blackout.html?searchResultPosition=9
+**Pigeon Guys Face Tough Times: ‘Who Has the Money? Who Has the Roof?’**\
+`As New York’s working-class neighborhoods shrink, so does the space for keeping pigeons.`\
+https://nytimes.com/2021/02/18/nyregion/pigeons-rooftop-brooklyn.html?searchResultPosition=9
 
-**Where Do the Rohingya Go After the Coup in Myanmar?**\
-`In the countrywide protests against the coup, nobody is talking about the future of the persecuted Rohingya minority.`\
-https://nytimes.com/2021/02/18/opinion/myanmar-coup-rohingya.html?searchResultPosition=10
+**The Real Story of the ‘Draft Riots’**\
+`In 1863, mobs of white New Yorkers terrorized Black people. The response has something to teach us.`\
+https://nytimes.com/2021/02/18/opinion/draft-riots-racism.html?searchResultPosition=10
 
