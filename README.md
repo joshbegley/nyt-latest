@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/17/opinion/amazon-workers-union.html?searchResultPos
 `I’m inspired by two sisters who stood up to goons with clubs and razors in Egypt.`\
 https://nytimes.com/2021/02/17/opinion/saudi-arabia-biden.html?searchResultPosition=9
 
-**Biden Demands Citizenship for All Undocumented Immigrants, but He Signals Flexibility**\
+**Biden Signals He’s Flexible on Immigration Overhaul**\
 `After two decades of failure, advocates for the broadest possible overhaul of the nation’s immigration laws are considering a new strategy: pressing for piecemeal legislation.`\
 https://nytimes.com/2021/02/17/us/politics/biden-immigration.html?searchResultPosition=10
 
