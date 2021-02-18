@@ -1,40 +1,40 @@
-**Frigid Weather and Global Warming**\
-`And what else you need to know today.`\
-https://nytimes.com/2021/02/18/briefing/texas-blackouts-mars-rover-cuomo-new-york.html?searchResultPosition=1
+**2021 Australian Open: Medvedev and Tsitsipas Chase a Grand Slam Final**\
+`Medvedev has been on a hot streak and has a 5-1 record against Tsitsipas, but he dealt with cramping at the end of his previous match.`\
+https://nytimes.com/2021/02/18/sports/tennis/australian-open-medvedev-tsitsipas.html?searchResultPosition=1
 
-**How Car Collecting Powered Through the Pandemic**\
-`The virus hastened the rise of online sales, as connoisseurs of vintage vehicles found more time to spend with their socially distanced hobby.`\
-https://nytimes.com/2021/02/18/business/car-collections-pandemic.html?searchResultPosition=2
+**Move Over, Honus: A New Era of Million-Dollar Cards Is Here**\
+`As prices soar in the high-end collectibles market, cards of stars like LeBron James and Mike Trout are in the same discussion as those of Honus Wagner and Mickey Mantle.`\
+https://nytimes.com/2021/02/18/sports/sports-trading-cards-millions.html?searchResultPosition=2
 
-**A Quest for the Soul of Rwanda**\
-`The tale of Paul Rusesabagina, the “Hotel Rwanda” hero who is now accused of terrorism, speaks to the predicament of the African nation.`\
-https://nytimes.com/2021/02/18/podcasts/the-daily/hotel-rwanda-paul-rusesabagina-trial.html?searchResultPosition=3
+**‘Days of the Bagnold Summer’ Review:**\
+`Adapted from a graphic novel, this comedy pits a teen against his mother in a battle to get through a long summer together.`\
+https://nytimes.com/2021/02/18/movies/days-of-the-bagnold-summer-review.html?searchResultPosition=3
 
-**Facebook’s New Look in Australia: News and Hospitals Out, Aliens Still In**\
-`The social network’s decision to block journalism rather than pay for it erased more than expected, leaving many outraged and debating what should happen next.`\
-https://nytimes.com/2021/02/18/business/media/facebook-australia-news.html?searchResultPosition=4
+**College Football Is Back Already. Really.**\
+`The Football Championship Subdivision season will begin in earnest this weekend after a long delay because of the pandemic.`\
+https://nytimes.com/2021/02/18/sports/ncaafootball/college-football-championship-subdivision-pandemic.html?searchResultPosition=4
 
-**Woman, 90, Walked Six Miles in the Snow for a Vaccine**\
-`Frances Goldman had struggled for weeks to book a coronavirus vaccination in Seattle. So when she got a Sunday appointment, she didn’t intend to miss it — even if it meant braving the elements alone.`\
-https://nytimes.com/2021/02/18/us/fran-goldman-covid-vaccine-seattle.html?searchResultPosition=5
+**‘Silk Road’ Review: A Digital Drug Kingpin’s Undoing**\
+`Tiller Russell’s new fact-based thriller about Ross W. Ulbricht could have been a nail-biter, but ended up a limp snooze.`\
+https://nytimes.com/2021/02/18/movies/silk-road-review.html?searchResultPosition=5
 
-**What You Need to Know About Avalanche Safety in the Backcountry**\
-`A dangerously unstable snowpack and an influx of people to the backcountry have contributed to a rash of deaths this winter. Here’s what you need to know about avalanche safety.`\
-https://nytimes.com/2021/02/18/sports/backcountry-skiing-safety-avalanche.html?searchResultPosition=6
+**‘Sin’ Review: Man of Marble**\
+`The second feature in recent months from the Russian director Andrei Konchalovsky is a grimy, austere Michelangelo biopic.`\
+https://nytimes.com/2021/02/18/movies/sin-review.html?searchResultPosition=6
 
-**The Fallout for Cuomo Over Nursing Home Deaths**\
-`Lawmakers are moving to strip the governor of pandemic emergency powers in a repercussion from how the deaths were counted.`\
-https://nytimes.com/2021/02/18/nyregion/cuomo-nursing-homes-covid.html?searchResultPosition=7
+**‘Test Pattern’ Review: Refocusing the Lens on Race and Gender**\
+`Shatara Michelle Ford’s lean, smart debut feature confronts us with our presumptions about what rape and victimhood look like — onscreen and in life.`\
+https://nytimes.com/2021/02/18/movies/test-pattern-review.html?searchResultPosition=7
 
-**Don’t Go Down the Rabbit Hole**\
-`Critical thinking, as we’re taught to do it, isn’t helping in the fight against misinformation.`\
-https://nytimes.com/2021/02/18/opinion/fake-news-media-attention.html?searchResultPosition=8
+**‘Blithe Spirit’ Review: Dead, but Not Loving It**\
+`Dan Stevens stars as a writer taunted by the ghost of his dead wife in this grating adaptation of the 1941 play.`\
+https://nytimes.com/2021/02/18/movies/blithe-spirit-review.html?searchResultPosition=8
 
-**Communities of color confront many challenges to vaccinations.**\
-`Misinformation and mistrust are not the only issues. Others include lack of access to facilities, and language and technology obstacles.`\
-https://nytimes.com/2021/02/18/world/us-coronavirus-vaccine-minorities.html?searchResultPosition=9
+**‘Mafia Inc’ Review: The Business They Have Chosen**\
+`This Montreal crime saga is never dull despite a sense of déjà vu.`\
+https://nytimes.com/2021/02/18/movies/mafia-inc-review.html?searchResultPosition=9
 
-**Amazon’s Great Labor Awakening**\
-`Covid-19 has cemented the e-commerce giant’s hold on the economy — but it has also spurred employees all around the country to organize.`\
-https://nytimes.com/2021/02/18/magazine/amazon-workers-employees-covid-19.html?searchResultPosition=10
+**‘I Care a Lot’ Review: The Art of the Steal**\
+`Nasty people do terrible things in this wildly entertaining Netflix caper about guardianship fraud.`\
+https://nytimes.com/2021/02/18/movies/i-care-a-lot-review.html?searchResultPosition=10
 
