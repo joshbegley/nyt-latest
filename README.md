@@ -30,8 +30,8 @@ https://nytimes.com/2021/02/18/science/mars-rover-landing-start-time-streaming-l
 `By Azi Paybarah`\
 https://nytimes.com/2021/02/17/us/heres-how-to-use-snow-when-theres-no-water-flowing-from-the-faucet.html?searchResultPosition=8
 
-**Naomi Osaka Halts Serena Williams’s Run and Heads to the Australian Open Final**\
-`Osaka won the semifinal in straight sets, denying Williams a chance to tie the record for Grand Slam singles titles.`\
+**Naomi Osaka Stopped Serena Williams, and Her Latest Grand Slam Record Hopes**\
+`Osaka won their Australian Open semifinal in straight sets, denying Williams a chance to tie the record for Grand Slam singles titles.`\
 https://nytimes.com/2021/02/18/sports/naomi-osaka-serena-williams-australian-open-final.html?searchResultPosition=9
 
 **A Grim Measure of Covid’s Toll: Life Expectancy Drops Sharply in U.S.**\
