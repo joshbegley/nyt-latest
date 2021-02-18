@@ -1,6 +1,6 @@
-**Walmart will raise pay for 425,000 workers.**\
-`The wage increases mean that about half of Walmart's 1.5 million U.S. workers ]would earn at least $15 an hour, Walmart’s chief executive, Doug McMillon, said.`\
-https://nytimes.com/2021/02/18/business/walmart-will-raise-pay-for-425000-workers.html?searchResultPosition=1
+**Walmart will raise wages for 425,000 workers.**\
+`The wage increases mean that about half of the company's 1.5 million U.S. workers ]would earn at least $15 an hour, Walmart’s chief executive, Doug McMillon, said.`\
+https://nytimes.com/2021/02/18/business/walmart-will-raise-wages-for-425000-workers.html?searchResultPosition=1
 
 **Homes for Sale in Manhattan, Brooklyn and Queens**\
 `This week’s properties are on the Upper West Side, Greenpoint and Bayside.`\
