@@ -7,7 +7,7 @@ https://nytimes.com/2021/02/18/fashion/the-party-is-paused-for-alexander-wang.ht
 https://nytimes.com/2021/02/18/style/blue-light-glasses.html?searchResultPosition=2
 
 **After Leader’s Sexist Remark, Tokyo Olympics Makes Symbolic Shift**\
-`The selection of Seiko Hashimoto represented an abrupt turn after the Olympic committee had apparently intended to name another man in his 80s.`\
+`The selection of Seiko Hashimoto as president represented an abrupt turn after the Olympic committee had apparently intended to name another man in his 80s.`\
 https://nytimes.com/2021/02/18/world/asia/yoshiro-mori-tokyo-olympics-seiko-hashimoto.html?searchResultPosition=3
 
 **Word + Quiz: modus operandi**\
