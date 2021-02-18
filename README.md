@@ -10,7 +10,7 @@ https://nytimes.com/2021/02/18/business/car-collections-pandemic.html?searchResu
 `The tale of Paul Rusesabagina, the “Hotel Rwanda” hero who is now accused of terrorism, speaks to the predicament of the African nation.`\
 https://nytimes.com/2021/02/18/podcasts/the-daily/hotel-rwanda-paul-rusesabagina-trial.html?searchResultPosition=3
 
-**Facebook’s New Look in Australia: News? Out. Hospitals? Gone. Aliens? Still In.**\
+**Facebook’s New Look in Australia: News and Hospitals Out, Aliens Still In**\
 `The social network’s decision to block journalism rather than pay for it erased more than expected, leaving many outraged and debating what should happen next.`\
 https://nytimes.com/2021/02/18/business/media/facebook-australia-news.html?searchResultPosition=4
 
