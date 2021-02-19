@@ -26,7 +26,7 @@ https://nytimes.com/2021/02/19/world/asia/hong-kong-rthk-crackdown.html?searchRe
 `Humans are spreading the coronavirus to other animals. What does that mean for all of us?`\
 https://nytimes.com/2021/02/19/opinion/covid-symptoms-gorillas.html?searchResultPosition=7
 
-**A Year of Unraveling**\
+**‘We Are Going to Keep You Safe, Even if It Kills Your Spirit’**\
 `For the millions of Americans living with dementia, every day during this pandemic can bring a fresh horror.`\
 https://nytimes.com/2021/02/19/opinion/covid-dementia.html?searchResultPosition=8
 
