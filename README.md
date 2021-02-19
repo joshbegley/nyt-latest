@@ -23,7 +23,7 @@ https://nytimes.com/2021/02/18/us/south-dakota-attorney-general-accident-charged
 https://nytimes.com/2021/02/18/us/texas-water-crisis-winter-storm.html?searchResultPosition=6
 
 **Abbott Says Power Is Being Restored but Water Remains a Challenge**\
-`Gov. Greg Abbott of Texas said Thursday that two million homes had power back but that access to clean water was still a problem. He plans to ask for a major federal disaster declaration to release emergency funds.`\
+`Gov. Greg Abbott of Texas said on Thursday that access to clean water remained a problem even as power was restored. He plans to ask for a major federal disaster declaration to release emergency funds.`\
 https://nytimes.com/video/us/politics/100000007613181/texas-greg-abbott-snow-winter-storm.html?searchResultPosition=7
 
 **What Crisis-Communications Experts Would Tell Ted Cruz**\
