@@ -22,7 +22,7 @@ https://nytimes.com/2021/02/19/world/europe/spain-catalonia-independence.html?se
 `A high-profile hearing criticized Robinhood’s business model.`\
 https://nytimes.com/2021/02/19/business/dealbook/robinhood-hearing-congress.html?searchResultPosition=6
 
-**Harry and Meghan to Give Up Official Work for Royal Family**\
+**Harry and Meghan to Give Up Official Royal Family Duties**\
 `Buckingham Palace said the pair’s official duties would be redistributed to other members of Britain’s royal family.`\
 https://nytimes.com/2021/02/19/world/europe/harry-meghan-royal-family.html?searchResultPosition=7
 
