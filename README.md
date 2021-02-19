@@ -26,7 +26,7 @@ https://nytimes.com/2021/02/18/briefing/texas-immigration-mars.html?searchResult
 `In a House Financial Services Committee hearing, Gabe Plotkin, founder and chief executive of the hedge fund Melvin Capital, defended his firm’s long-term strategy in betting that GameStop shares would fall.`\
 https://nytimes.com/video/business/100000007613071/gamestop-hearing-melvin-capital-plotkin.html?searchResultPosition=7
 
-**Ted Cruz’s Trip to Cancún Draws Fire Amid Texas’ Deep Freeze**\
+**Ted Cruz’s Cancún Trip: Family Texts Detail His Political Blunder**\
 `The Texas senator faced fierce blowback for fleeing his state as a disaster unfolded. Text messages sent by his wife revealed a hastily planned trip away from their “FREEZING” family home.`\
 https://nytimes.com/2021/02/18/us/politics/ted-cruz-storm-cancun.html?searchResultPosition=8
 
