@@ -14,7 +14,7 @@ https://nytimes.com/2021/02/18/pageoneplus/corrections-feb-19-2021.html?searchRe
 `Quotation of the Day for Friday, February 19, 2021.`\
 https://nytimes.com/2021/02/18/todayspaper/quotation-of-the-day-using-bottled-water-for-chemo-scarcity-and-chaos-hobble-hospitals.html?searchResultPosition=4
 
-**‘Like an Earthquake’: Explosion Rips Through a Bronx House**\
+**‘Like an Earthquake’: Gas Explosion Rips Through a Bronx House**\
 `Ten people suffered minor injuries in the blast, which knocked a door off its hinges and across the street and blew windows out of their frames.`\
 https://nytimes.com/2021/02/18/nyregion/bronx-house-explosion.html?searchResultPosition=5
 
