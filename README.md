@@ -2,7 +2,7 @@
 `And what else you need to know today.`\
 https://nytimes.com/2021/02/19/briefing/ted-cruz-texas-water-iran-nuclear.html?searchResultPosition=1
 
-**Kids and Covid**\
+**Children and Covid**\
 `When the United States completes its campaign to immunize every eligible American against the coronavirus, about a quarter of the population will remain unvaccinated. So, what happens to children?`\
 https://nytimes.com/2021/02/19/podcasts/the-daily/coronavirus-pandemic-children-vaccinations.html?searchResultPosition=2
 
