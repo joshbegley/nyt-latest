@@ -19,7 +19,7 @@ https://nytimes.com/video/us/politics/100000007613069/gamestop-robinhood-castin-
 https://nytimes.com/2021/02/18/us/winter-stress-sadness-exhaustion.html?searchResultPosition=5
 
 **U.S. and Novavax Will Aid Global Vaccination Campaign**\
-`The Biden administration plans to make good on a promise to donate $4 billion, while the pharmaceutical company Novavax pledged to donate 1.1 billion doses of its vaccine.`\
+`The Biden administration plans to make good on a promise to donate $4 billion, while the pharmaceutical company Novavax pledged to sell 1.1 billion doses of its vaccine.`\
 https://nytimes.com/2021/02/18/us/politics/biden-novavax-covax-vaccinations.html?searchResultPosition=6
 
 **‘Such Dire Straits’: Hobbled Texas Hospitals Are Filling Dialysis Needs**\
