@@ -1,4 +1,4 @@
-**Entire School Board Resigns After Members Are Caught Criticizing Parents Online**\
+**Entire School Board Resigns After Members Are Caught Mocking Parents on Livestream**\
 `Unaware their conversation was public, district trustees in Oakley, Calif., suggested that parents eager for schools to reopen merely wanted “their babysitters back.”`\
 https://nytimes.com/2021/02/20/us/oakley-school-board-hot-mic.html?searchResultPosition=1
 
