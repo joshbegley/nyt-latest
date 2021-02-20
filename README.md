@@ -2,7 +2,7 @@
 `The former president will make his first lengthy remarks since leaving office before the annual conference of conservatives Feb. 28.`\
 https://nytimes.com/2021/02/20/us/politics/trump-cpac.html?searchResultPosition=1
 
-**Justice Dept. Is Said to Be Examining Stone’s Ties to Capitol Rioters**\
+**Justice Dept. Is Said to Be Examining Stone’s Possible Ties to Capitol Rioters**\
 `A full criminal investigation is far from certain, a person familiar with the inquiry said.`\
 https://nytimes.com/2021/02/20/us/politics/justice-dept-roger-stone-capitol-riot.html?searchResultPosition=2
 
@@ -15,7 +15,7 @@ https://nytimes.com/video/us/100000007616041/plane-debris-colorado.html?searchRe
 https://nytimes.com/2021/02/20/crosswords/daily-puzzle-2021-02-21.html?searchResultPosition=4
 
 **United Flight Sheds Debris Over Colorado After Engine Failure**\
-`The airplane, a Boeing 777-200 that had 331 people on board, scattered debris across several neighborhoods outside Boulder, Colo., before landing safely in Denver, according to officials.`\
+`The airplane, which had 331 people on board, scattered debris across several neighborhoods outside Boulder, Colo., before landing safely in Denver, officials said.`\
 https://nytimes.com/2021/02/20/us/broomfield-plane.html?searchResultPosition=5
 
 **A Collision at Anfield Does Little to Slow Liverpool’s Fall**\
