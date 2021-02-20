@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/20/sports/tennis/australian-open-novak-djokovic-daniil-medvedev.html?searchResultPosition=1
 
 **Myanmar Police Open Fire on Protesters, Killing 2**\
-`At least 10 other people protesting the military’s ouster of civilian leaders were wounded in the city of Mandalay, witnesses said.`\
+`At least 40 people protesting the military’s ouster of civilian leaders were wounded in the city of Mandalay, volunteer medics said.`\
 https://nytimes.com/2021/02/20/world/asia/myanmar-protesters-killed.html?searchResultPosition=2
 
 **Rush Limbaugh as Seen by Four Writers**\
