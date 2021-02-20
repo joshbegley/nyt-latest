@@ -1,5 +1,5 @@
-**United Flight With ‘Engine Issue’ Sheds Debris Over Colorado**\
-`The airplane, which had 240 people on board, scattered debris across several neighborhoods outside Boulder, Colo., before landing safely in Denver, according to the authorities.`\
+**United Flight Sheds Debris Over Colorado After Engine Failure**\
+`The airplane, a Boeing 777-200 that had 331 people on board, scattered debris across several neighborhoods outside Boulder, Colo., before landing safely in Denver, according to officials.`\
 https://nytimes.com/2021/02/20/us/broomfield-plane.html?searchResultPosition=1
 
 **A Collision at Anfield Does Little to Slow Liverpool’s Fall**\
