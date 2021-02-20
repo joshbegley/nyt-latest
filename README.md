@@ -1,5 +1,5 @@
-**Russian Court Orders Opposition Leader Navalny to Stay in Prison**\
-`The ruling clears the way to send Aleksei Navalny, the most vocal opponent of President Vladimir V. Putin, to a penal colony.`\
+**Russian Court Ruling Clears the Way to Send Navalny to a Penal Colony**\
+`The fate of Aleksei Navalny, the most vocal opponent of President Vladimir V. Putin, remains unclear, however. He could be held in a high-security prison in Moscow for other pending legal matters.`\
 https://nytimes.com/2021/02/20/world/europe/russia-navalny-prison.html?searchResultPosition=1
 
 **Who Will Be the Next F.D.A. Chief?**\
