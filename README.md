@@ -1,6 +1,6 @@
 **Merrick Garland Faces Resurgent Peril After Years Fighting Extremism**\
 `The fallout from the Capitol attack and the shadow of the 1995 Oklahoma City bombing are likely to take center stage at the confirmation hearings for President Biden’s pick for attorney general.`\
-https://nytimes.com/2021/02/20/us/garland-biden.html?searchResultPosition=1
+https://nytimes.com/2021/02/20/us/merrick-garland-attorney-general.html?searchResultPosition=1
 
 **California Will Reserve Vaccine Doses for Teachers and School Staff**\
 `Gov. Gavin Newsom said on Friday that, starting on March 1, California will set aside 10 percent of the state’s first doses of Covid-19 vaccine for educators and school employees.`\
