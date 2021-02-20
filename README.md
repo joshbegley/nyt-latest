@@ -1,40 +1,40 @@
+**Justice Dept. Is Said to Be Examining Stone’s Ties to Capitol Rioters**\
+`A full criminal investigation is far from certain, a person familiar with the inquiry said.`\
+https://nytimes.com/2021/02/20/us/politics/justice-dept-roger-stone-capitol-riot.html?searchResultPosition=1
+
 **Plane Debris Falls near Boulder, Colo.**\
 `A United Airlines flight with 331 people on board experienced engine failure over a suburb of Boulder, Colo., on Saturday afternoon, dropping debris across three neighborhoods before landing safely in Denver.`\
-https://nytimes.com/video/us/100000007616041/plane-debris-colorado.html?searchResultPosition=1
+https://nytimes.com/video/us/100000007616041/plane-debris-colorado.html?searchResultPosition=2
 
 **Karaoke Bars**\
 `Matthew Stock hits a high note in his Sunday debut.`\
-https://nytimes.com/2021/02/20/crosswords/daily-puzzle-2021-02-21.html?searchResultPosition=2
+https://nytimes.com/2021/02/20/crosswords/daily-puzzle-2021-02-21.html?searchResultPosition=3
 
 **United Flight Sheds Debris Over Colorado After Engine Failure**\
 `The airplane, a Boeing 777-200 that had 331 people on board, scattered debris across several neighborhoods outside Boulder, Colo., before landing safely in Denver, according to officials.`\
-https://nytimes.com/2021/02/20/us/broomfield-plane.html?searchResultPosition=3
+https://nytimes.com/2021/02/20/us/broomfield-plane.html?searchResultPosition=4
 
 **A Collision at Anfield Does Little to Slow Liverpool’s Fall**\
 `Everton’s victory, a cause for deserved celebration, reveals a broken Liverpool team holding tight to a system that has stopped working.`\
-https://nytimes.com/2021/02/20/sports/soccer/liverpool-everton-merseyside-derby.html?searchResultPosition=4
+https://nytimes.com/2021/02/20/sports/soccer/liverpool-everton-merseyside-derby.html?searchResultPosition=5
 
 **Dianna Ortiz, American Nun Tortured in Guatemala, Dies at 62**\
 `She became a champion of survivors of torture and helped compel the release of documents showing U.S. complicity in decades of human rights abuses in Guatemala.`\
-https://nytimes.com/2021/02/20/us/dianna-ortiz-dead.html?searchResultPosition=5
+https://nytimes.com/2021/02/20/us/dianna-ortiz-dead.html?searchResultPosition=6
 
 **Entire School Board Resigns After Members Are Caught Mocking Parents on Livestream**\
 `Unaware their conversation was public, district trustees in Oakley, Calif., suggested that parents eager for schools to reopen merely wanted “their babysitters back.”`\
-https://nytimes.com/2021/02/20/us/oakley-school-board-hot-mic.html?searchResultPosition=6
+https://nytimes.com/2021/02/20/us/oakley-school-board-hot-mic.html?searchResultPosition=7
 
 **Texas Winter Storm: What to Know**\
 `Power outages and no running water have left Texas and other parts of the South still feeling the effects of a deep freeze that swept the region earlier this week.`\
-https://nytimes.com/2021/02/20/us/texas-winter-storm-explainer.html?searchResultPosition=7
+https://nytimes.com/2021/02/20/us/texas-winter-storm-explainer.html?searchResultPosition=8
 
 **The Tale of the Untamable Shrew**\
 `Republicans are still trying to muzzle a smack-talking Trump.`\
-https://nytimes.com/2021/02/20/opinion/sunday/trump-republicans.html?searchResultPosition=8
+https://nytimes.com/2021/02/20/opinion/sunday/trump-republicans.html?searchResultPosition=9
 
 **What Are Sperm Telling Us?**\
 `Scientists are concerned by falling sperm counts and declining egg quality. Endocrine-disrupting chemicals may be the problem.`\
-https://nytimes.com/2021/02/20/opinion/sunday/endocrine-disruptors-sperm.html?searchResultPosition=9
-
-**Ex-Artistic Director of Greece’s National Theater Held After Rape Arrest Warrant**\
-`The case of Dimitris Lignadis is the most high-profile among the numerous directors and actors to have been named in a torrent of accusations that have rocked the Greek arts world.`\
-https://nytimes.com/2021/02/20/world/europe/Greek-national-theater-Metoo.html?searchResultPosition=10
+https://nytimes.com/2021/02/20/opinion/sunday/endocrine-disruptors-sperm.html?searchResultPosition=10
 
