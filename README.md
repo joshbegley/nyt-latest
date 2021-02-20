@@ -4,7 +4,7 @@ https://nytimes.com/video/us/100000007616041/plane-debris-colorado.html?searchRe
 
 **Karaoke Bars**\
 `Matthew Stock hits a high note in his Sunday debut.`\
-https://nytimes.com/2021/02/20/crosswords/karaoke-bars.html?searchResultPosition=2
+https://nytimes.com/2021/02/20/crosswords/daily-puzzle-2021-02-21.html?searchResultPosition=2
 
 **United Flight Sheds Debris Over Colorado After Engine Failure**\
 `The airplane, a Boeing 777-200 that had 331 people on board, scattered debris across several neighborhoods outside Boulder, Colo., before landing safely in Denver, according to officials.`\
