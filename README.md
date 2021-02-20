@@ -1,40 +1,40 @@
-**Russian Court Ruling Clears the Way to Send Navalny to a Penal Colony**\
-`The fate of Aleksei Navalny, the most vocal opponent of President Vladimir V. Putin, remains unclear, however. He could be held in a high-security prison in Moscow for other pending legal matters.`\
-https://nytimes.com/2021/02/20/world/europe/russia-navalny-prison.html?searchResultPosition=1
+**Australian Open 2021: Naomi Osaka Beats Jennifer Brady for Her 4th Grand Slam Title**\
+`Osaka, 23, has won every Grand Slam final she has reached.`\
+https://nytimes.com/2021/02/20/sports/tennis/australian-open-naomi-osaka-jennifer-brady.html?searchResultPosition=1
 
-**Who Will Be the Next F.D.A. Chief?**\
-`Two leading contenders generate wider debate about the leadership needed to restore morale and scientific integrity to an agency battered by the politicized Trump administration.`\
-https://nytimes.com/2021/02/20/health/Covid-FDA-Biden.html?searchResultPosition=2
+**Venezuelan Women Lose Access to Contraception, and Control of Their Lives**\
+`Affordable birth control has disappeared, pushing many women into unplanned pregnancies at a time when they can barely feed the children they already have.`\
+https://nytimes.com/2021/02/20/world/americas/venezuela-birth-control-women.html?searchResultPosition=2
 
-**Corrections: Feb. 20, 2021**\
-`Corrections that appeared in print on Saturday, Feb. 20, 2021.`\
-https://nytimes.com/2021/02/20/pageoneplus/corrections-feb-20-2021.html?searchResultPosition=3
+**Tomb of Joshua, Revered Prophet, Beckons Believers in Baghdad**\
+`No one knows for certain if Joshua, the Old Testament prophet, actually lived or where he might be buried. But for over 1,000 years, the sick and faithful have visited a Baghdad tomb said to be his.`\
+https://nytimes.com/2021/02/20/world/middleeast/baghdad-iraq-joshua-tomb.html?searchResultPosition=3
 
-**Sci-Fi Portals**\
-`Ali Gascoigne draws us in with a galactic Saturday puzzle.`\
-https://nytimes.com/2021/02/19/crosswords/daily-puzzle-2021-02-20.html?searchResultPosition=4
+**Finding Flowers, and Solace, in the Cracks and Grit of an Urban Jungle**\
+`In densely packed Tokyo, flora is abundant in unassuming places. Hunting for it, as I learned, can lighten life’s loads.`\
+https://nytimes.com/2021/02/20/insider/tokyo-japan-flowers.html?searchResultPosition=4
 
-**U.S. Rejoins Paris Climate Agreement**\
-`President Biden told leaders of the Group of 7 nations that climate change was a priority for his administration as the United States formally rejoined the Paris climate agreement on Friday.`\
-https://nytimes.com/video/us/politics/100000007615478/biden-paris-climate-agreement.html?searchResultPosition=5
+**Octopuses Have a Secret Sense to Keep Their 8 Arms Out of Trouble**\
+`Even when an octopus can’t see light with its eyes, its arms seem to know it is there.`\
+https://nytimes.com/2021/02/20/science/octopus-arms-light.html?searchResultPosition=5
 
-**Quotation of the Day: Brutal Cold Kills Texans in Beds, Yards and Cars**\
-`Quotation of the Day for Saturday, February 20, 2021.`\
-https://nytimes.com/2021/02/19/todayspaper/quotation-of-the-day-brutal-cold-kills-texans-in-beds-yards-and-cars.html?searchResultPosition=6
+**Tom Ford on Wearing the Same Ripped Jeans and Allowing Himself to ‘Be Unproductive’**\
+`As New York Fashion Week ends, the designer and film director explains why his show was postponed and how he has been affected by the pandemic.`\
+https://nytimes.com/2021/02/20/style/Tom-Ford-Fashion-Week.html?searchResultPosition=6
 
-**Corrections: Feb. 21, 2021**\
-`Corrections that appeared in print on Sunday, Feb. 21, 2021.`\
-https://nytimes.com/2021/02/19/pageoneplus/corrections-feb-21-2021.html?searchResultPosition=7
+**Democrats Beat Trump in 2020. Now They’re Asking: What Went Wrong?**\
+`Disappointed by down-ballot losses, Democratic interest groups are joining forces to conduct an autopsy of the election results. Republicans do not yet seem willing to reckon with the G.O.P.’s major defeats.`\
+https://nytimes.com/2021/02/20/us/politics/democrats-beat-trump-in-2020-now-theyre-asking-what-went-wrong.html?searchResultPosition=7
 
-**A Texas apartment building burned while firefighters scrambled for water.**\
-`By James Dobbins and Will Wright`\
-https://nytimes.com/2021/02/19/us/san-antonio-fire-hydrants-water.html?searchResultPosition=8
+**Seeking Fresh Start With Iraq, Biden Avoids Setting Red Lines With Iran**\
+`The administration’s measured response to a rocket attack in Erbil sharply contrasts with a Trump-era campaign against Iran that, more often than not, caught Iraq in the crossfire.`\
+https://nytimes.com/2021/02/20/us/politics/biden-iraq-iran.html?searchResultPosition=8
 
-**Boris Johnson Calls for G7 Cooperation on Global Threats**\
-`Boris Johnson, the British prime minister, hosted a virtual meeting with leaders of the Group of 7 nations on Friday and outlined the need for a multilateral approach to global vaccinations and the fight against climate change.`\
-https://nytimes.com/video/world/europe/100000007615452/boris-johnson-coronavirus-climate-change.html?searchResultPosition=9
+**Where Will Rush Limbaugh’s 15 Million Listeners Go Now?**\
+`No one will have a megaphone like his again. But podcasters, “26-year-old conservatives on Instagram” and Sean Hannity all fill the void.`\
+https://nytimes.com/2021/02/20/business/media/rush-limbaugh-conservative-media.html?searchResultPosition=9
 
-**Dutch Officials Urge New Look at Claim on Painting by Jewish Heirs**\
-`The heirs have argued that the work by Wassily Kandinsky was sold under duress by its Jewish owners after the Nazi invasion of the Netherlands.`\
-https://nytimes.com/2021/02/19/arts/dutch-officials-reconsider-claim-on-painting-by-jewish-heirs.html?searchResultPosition=10
+**The Boredom Economy**\
+`The pandemic is terrible. It can also be tedious. And that tedium is shaping what people buy and how productive they are.`\
+https://nytimes.com/2021/02/20/business/gamestop-investing-economy.html?searchResultPosition=10
 
