@@ -22,8 +22,8 @@ https://nytimes.com/video/world/europe/100000007615452/boris-johnson-coronavirus
 `The heirs have argued that the work by Wassily Kandinsky was sold under duress by its Jewish owners after the Nazi invasion of the Netherlands.`\
 https://nytimes.com/2021/02/19/arts/dutch-officials-reconsider-claim-on-painting-by-jewish-heirs.html?searchResultPosition=6
 
-**Military Plane Crashes in Alabama, Killing 2**\
-`The plane was flying from Columbus, Miss., to Tallahassee, Fla., on Friday when it went down in a wooded area near the Montgomery Regional Airport, an airport official said.`\
+**Air Force Training Jet Crashes in Alabama, Killing 2**\
+`The T-38 was assigned to the 14th Flying Training Wing at Columbus Air Force Base in Mississippi and went down in a wooded area near the Montgomery Regional Airport, officials said.`\
 https://nytimes.com/2021/02/19/us/military-plane-crash-montgomery-alabama.html?searchResultPosition=7
 
 **It’s Been a Busy Month on Mars**\
