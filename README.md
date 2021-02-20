@@ -1,5 +1,5 @@
-**Merrick Garland Might Actually Get to Do This Job. It Looks Daunting.**\
-`After the 1995 Oklahoma City bombing — “the most important thing I have ever done in my life” — the spurned Supreme Court nominee has another chance to shape history as threats of domestic terrorism rage.`\
+**Merrick Garland Faces Resurgent Peril After Years Fighting Extremism**\
+`The fallout from the Capitol attack and the shadow of the 1995 Oklahoma City bombing are likely to take center stage at the confirmation hearings for President Biden’s pick for attorney general.`\
 https://nytimes.com/2021/02/20/us/garland-biden.html?searchResultPosition=1
 
 **California Will Reserve Vaccine Doses for Teachers and School Staff**\
