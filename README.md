@@ -19,7 +19,7 @@ https://nytimes.com/2021/02/20/us/politics/trump-cpac.html?searchResultPosition=
 https://nytimes.com/2021/02/20/us/politics/justice-dept-roger-stone-capitol-riot.html?searchResultPosition=6
 
 **Plane Debris Falls Near Boulder, Colo.**\
-`A United Airlines flight with 331 people on board experienced engine failure over a suburb of Boulder, Colo., on Saturday afternoon, dropping debris across three neighborhoods before landing safely in Denver.`\
+`A United Airlines flight with 241 people on board experienced engine failure over a suburb of Boulder, Colo., on Saturday afternoon, dropping debris across three neighborhoods before landing safely in Denver.`\
 https://nytimes.com/video/us/100000007616041/plane-debris-colorado.html?searchResultPosition=7
 
 **Karaoke Bars**\
