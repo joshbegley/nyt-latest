@@ -22,13 +22,13 @@ https://nytimes.com/2021/02/21/us/texas-electricity-ercot-blackouts.html?searchR
 `Viet Thanh Nguyen won the Pulitzer for his debut, “The Sympathizer,” recognition that was great for his career and bad for his writing. Now he’s back with its subversive sequel, “The Committed.”`\
 https://nytimes.com/2021/02/21/books/viet-thanh-nguyen-the-committed.html?searchResultPosition=6
 
+**In Israeli Election, a Chance for Arabs to Gain Influence, or Lose It**\
+`Jewish politicians, including Prime Minister Benjamin Netanyahu, are courting Arab Israeli voters, and some Arab politicians are prepared to work with them.`\
+https://nytimes.com/2021/02/21/world/middleeast/israel-arabs-vote-election.html?searchResultPosition=7
+
 **Democrats’ Big Tent Helped Them Win. Now It Threatens Biden’s Agenda.**\
 `The party’s ideological blend of moderates and progressives carried it to power in Washington, but elements of that coalition could block the most ambitious parts of President Biden’s agenda.`\
-https://nytimes.com/2021/02/21/us/politics/biden-agenda-democrats.html?searchResultPosition=7
-
-**In Israeli Election, a Chance for Arabs to Gain Influence — or Lose It**\
-`Jewish politicians, including Prime Minister Benjamin Netanyahu, are courting Arab Israeli voters, and some Arab politicians are prepared to work with them.`\
-https://nytimes.com/2021/02/21/world/middleeast/israel-arabs-vote-election.html?searchResultPosition=8
+https://nytimes.com/2021/02/21/us/politics/biden-agenda-democrats.html?searchResultPosition=8
 
 **How Democrats Are Already Maneuvering to Shape Biden’s First Supreme Court Pick**\
 `The president’s promise to nominate a Black woman to the court has set off efforts to champion candidates and convince the White House to forego the usual elite credentials.`\
