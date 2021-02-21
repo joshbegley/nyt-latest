@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2021/02/21/us/capitol-riot-attack-militants.html
 `“Saturday Night Live” gave several famous people the chance to say sorry on an episode hosted by Regé-Jean Page of “Bridgerton.”`\
 https://nytimes.com/2021/02/21/arts/television/snl-rege-jean-page-ted-cruz-britney.html?searchResultPosition=9
 
-**Garland Says as Attorney General He Will Combat Domestic Extremism**\
+**Garland Says as Attorney General He Would Combat Domestic Extremism**\
 `The judge is also expected to affirm his commitment to equal justice under the law and to vow to root out widespread discrimination.`\
 https://nytimes.com/2021/02/21/us/politics/merrick-garland-attorney-general.html?searchResultPosition=10
 
