@@ -1,36 +1,40 @@
+**Quotation of the Day: Storm Exposing a Nation Primed for Catastrophe**\
+`Quotation of the Day for Sunday, February 21, 2021.`\
+https://nytimes.com/2021/02/21/todayspaper/quotation-of-the-day-storm-exposing-a-nation-primed-for-catastrophe.html?searchResultPosition=1
+
+**A Ripple Effect of Loss: U.S. Covid Deaths Approach 500,000**\
+`Twice as many Americans have died as early worst-case projections.`\
+https://nytimes.com/2021/02/21/us/coronavirus-deaths-us-half-a-million.html?searchResultPosition=2
+
+**My Wife Was Wary of My Lab-Made Dinner Party. The Faux Whiskey Won Her Over.**\
+`A slew of start-ups are engineering faux meats, eggs and dairy products that conjure a future in which we move from farm-to-table to lab-to-table.`\
+https://nytimes.com/2021/02/21/business/fake-meat-eggs-dairy-products.html?searchResultPosition=3
+
+**China Censors the Internet. So Why Doesn’t Russia?**\
+`The Kremlin has constructed an entire infrastructure of repression but has not displaced Western apps. Instead, it is turning to outright intimidation.`\
+https://nytimes.com/2021/02/21/world/europe/russia-internet-censorship.html?searchResultPosition=4
+
+**Is This the End of Tipping?**\
+`The restaurant industry is in crisis. But some see how bad things are for servers — including “maskual harassment” — as a unique chance to make life better.`\
+https://nytimes.com/2021/02/21/business/pandemic-restaurant-tipping.html?searchResultPosition=5
+
+**‘I Paid It No Mind and Kept My Head Low, Glued to My Music’**\
+`Running late to work, quarters to spare should an emergency arise and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2021/02/21/nyregion/metropolitan-diary.html?searchResultPosition=6
+
+**With Charlie McAvoy, the Bruins Filled a Void From Within**\
+`After the departures of two key defensemen in free agency, McAvoy, 23, is playing more minutes and is tied for the assists lead on first-place Boston.`\
+https://nytimes.com/2021/02/21/sports/hockey/nhl-bruins-mcavoy-chara.html?searchResultPosition=7
+
+**A Small Group of Militants’ Outsize Role in the Capitol Attack**\
+`A “stack” of Oath Keepers and three groups of Proud Boys are charged with conspiracy crimes in last month’s assault. In each of them, former military members played a prominent role.`\
+https://nytimes.com/interactive/2021/02/21/us/capitol-riot-attack-militants.html?searchResultPosition=8
+
+**On ‘S.N.L.’, Britney Spears Seeks Apologies From Cruz, Cuomo and Carano**\
+`“Saturday Night Live” gave several famous people the chance to say sorry on an episode hosted by Regé-Jean Page of “Bridgerton.”`\
+https://nytimes.com/2021/02/21/arts/television/snl-rege-jean-page-ted-cruz-britney.html?searchResultPosition=9
+
 **Garland Says as Attorney General He Will Combat Domestic Extremism**\
 `The judge is also expected to affirm his commitment to equal justice under the law and to vow to root out widespread discrimination.`\
-https://nytimes.com/2021/02/21/us/politics/merrick-garland-attorney-general.html?searchResultPosition=1
-
-**Visit a Botanical Garden and Brew Kombucha**\
-`This week, celebrate the life of Malcolm X, brush up on your photography skills or bake marshmallow brownies.`\
-https://nytimes.com/2021/02/20/at-home/things-to-do-this-week.html?searchResultPosition=2
-
-**How to Stream This Year’s Oscar Hopefuls**\
-`By Noel Murray`\
-https://nytimes.com/2021/02/20/at-home/stream-this-years-oscar-hopefuls.html?searchResultPosition=3
-
-**Thinking of an Electric Car? Take Your Choice**\
-`Even before G.M. announced it would work toward eliminating emissions from its vehicles, more automakers were putting E. V.s in their showrooms. Here’s a roundup.`\
-https://nytimes.com/2021/02/20/at-home/electric-car-models.html?searchResultPosition=4
-
-**Head Back to the Past With Old-Time Radio**\
-`A wealth of radio shows, constructed from dialogue and sound effects, and with a touch of narration and music, is free on the internet.`\
-https://nytimes.com/2021/02/20/at-home/old-time-radio-episodes.html?searchResultPosition=5
-
-**Join Clubhouse! Umm, What is Clubhouse?**\
-`A simple explainer to the newest, buzziest social media app around.`\
-https://nytimes.com/2021/02/20/at-home/clubhouse-app-explainer.html?searchResultPosition=6
-
-**Hot Dish! The Newspaper Makes a Great Trivet**\
-`Once the paper is hot off the presses, use it to cool down your pots.`\
-https://nytimes.com/2021/02/20/at-home/diy-newspaper-pot-holder.html?searchResultPosition=7
-
-**Israel Secretly Agrees to Fund Vaccines for Syria as Part of Prisoner Swap**\
-`To secure the release of an Israeli civilian held in Syria, Israel agreed to finance a supply of Russian-made Covid-19 vaccines for Damascus, an official said.`\
-https://nytimes.com/2021/02/20/world/middleeast/israel-syria-prisoner-swap-vaccines.html?searchResultPosition=8
-
-**His Lights Stayed on During Texas’ Storm. Now He Owes $16,752.**\
-`After a public outcry from people like Scott Willoughby, whose exorbitant electric bill is soon due, Gov. Greg Abbott said lawmakers should ensure Texans “do not get stuck with skyrocketing energy bills” caused by the storm.`\
-https://nytimes.com/2021/02/20/us/texas-storm-electric-bills.html?searchResultPosition=9
+https://nytimes.com/2021/02/21/us/politics/merrick-garland-attorney-general.html?searchResultPosition=10
 
