@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/21/nyregion/trump-skating-rink-central-park.html?sea
 https://nytimes.com/2021/02/21/arts/music/pop-up-concerts-jon-batiste.html?searchResultPosition=3
 
 **They Built Libraries to Honor Loved Ones, Women Felled by Bombings**\
-`As peace talks push forward, there’s a question of whether Afghanistan can achieve peace while preserving gains made on women’s rights and education.`\
+`As negotiations push forward, it is unclear whether Afghanistan can achieve peace with the Taliban while preserving gains made on women’s rights and education.`\
 https://nytimes.com/2021/02/21/world/asia/afghanistan-libraries-women-taliban.html?searchResultPosition=4
 
 **Your Monday Briefing**\
