@@ -23,7 +23,7 @@ https://nytimes.com/video/us/100000007616041/plane-debris-colorado.html?searchRe
 https://nytimes.com/2021/02/20/crosswords/daily-puzzle-2021-02-21.html?searchResultPosition=7
 
 **United Flight Sheds Debris Over Colorado After Engine Failure**\
-`The airplane, which had 331 people on board, scattered debris across several neighborhoods outside Boulder, Colo., before landing safely in Denver, officials said.`\
+`The airplane, which had 241 people on board, scattered debris across several neighborhoods outside Boulder, Colo., before landing safely in Denver, officials said.`\
 https://nytimes.com/2021/02/20/us/broomfield-plane.html?searchResultPosition=8
 
 **A Collision at Anfield Does Little to Slow Liverpool’s Fall**\
