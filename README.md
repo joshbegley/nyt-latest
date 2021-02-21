@@ -1,6 +1,6 @@
 **Officials confirm the first case of the South Africa variant in a New York resident.**\
-`By Mihir Zaveri`\
-https://nytimes.com/2021/02/21/world/officials-confirm-the-first-case-of-the-south-africa-variant-in-a-new-york-resident.html?searchResultPosition=1
+`The variant is more transmissible and may evade antibodies stirred by prior infections or vaccines. One other case has been detected in the state, in a Connecticut man who was hospitalized in New York City.`\
+https://nytimes.com/2021/02/21/world/covid-south-africa-variant-new-york.html?searchResultPosition=1
 
 **Arturo Di Modica, Sculptor of the ‘Charging Bull’, Dies at 80**\
 `A Sicilian-born artist, he installed the artwork in Lower Manhattan without permission. The outpouring of public support persuaded the city to keep it.`\
