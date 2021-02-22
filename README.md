@@ -24,7 +24,7 @@ https://nytimes.com/2021/02/22/us/abolish-ice-minnesota-snowplow.html?searchResu
 
 **A City With Amazon at the Center**\
 `What happened to California’s Inland Empire when Amazon came to town.`\
-https://nytimes.com/2021/02/22/technology/a-city-with-amazon-at-the-center.html?searchResultPosition=8
+https://nytimes.com/2021/02/22/technology/amazon-california-inland-empire.html?searchResultPosition=8
 
 **Muhammad Ali as You’ve Never Seen Him**\
 `A new graphic novel mixes comic book art and rarely seen photography to depict the legendary 1974 fight between Ali and George Foreman.`\
