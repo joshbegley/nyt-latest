@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/21/us/politics/capitol-riot-security-delays.html?searchResultPosition=1
 
 **F.A.A. Orders Inspections on Boeing 777 Jets After Engine Failure**\
-`A plane that shed debris over Colorado brings new scrutiny to a troubled company.`\
+`United said it would temporarily ground the affected planes it operates, and Japan ordered a halt to their flights, as well.`\
 https://nytimes.com/2021/02/21/business/faa-boeing-777-engines.html?searchResultPosition=2
 
 **Texas Governor Promises to Address Skyrocketing Electric Bills**\
