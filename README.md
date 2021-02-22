@@ -2,7 +2,7 @@
 `One reader likens the G.O.P.’s ties to the ex-president to an abusive marriage “doomed to end poorly.” Another cites a joke from “Annie Hall” to describe the Republicans’ dilemma.`\
 https://nytimes.com/2021/02/22/opinion/letters/republican-party-trump.html?searchResultPosition=1
 
-**Daft Punk Announce Breakup After 28 Years**\
+**Daft Punk Announces Breakup After 28 Years**\
 `The enigmatic, influential French electronic-music duo released four albums and collected six Grammys throughout a career marked by a disinterest in fame.`\
 https://nytimes.com/2021/02/22/arts/music/daft-punk-breakup.html?searchResultPosition=2
 
