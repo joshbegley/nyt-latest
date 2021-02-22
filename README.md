@@ -1,5 +1,5 @@
 **Rwanda Opposition Figure Is Killed in South Africa**\
-`South African authorities said that for now they were treating the case as a robbery, but the political allies of the man who was shot, Serge Ndayizeye, had their suspicions of an assassination.`\
+`South African authorities said that for now they were treating the case as a robbery, but the political allies of the man who was shot, Seif Bamporiki , had their suspicions of an assassination.`\
 https://nytimes.com/2021/02/22/world/africa/rwanda-seif-bamporiki-killing.html?searchResultPosition=1
 
 **Portland Welcomes Monument (Origin Unknown) to Black Man Who Reached Pacific in 1805**\
