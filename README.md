@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/22/world/new-jersey-sports-venues.html?searchResultP
 https://nytimes.com/2021/02/22/style/candy.html?searchResultPosition=3
 
 **‘Abolish ICE’? Minnesota Draws Line in Snowplow Naming Contest**\
-`The state Transportation Department excluded the name from an online contest, saying it wanted to avoid politics. Plowy McPlowFace, Raspberry Brrr-et and Minnesota nICE are among the 50 names still in the running.`\
+`The state Transportation Department excluded the name from an online contest, saying it wanted to avoid politics. Plowy McPlowFace, Raspberry Brrr-et and Minnesota nICE are among the 50 finalists.`\
 https://nytimes.com/2021/02/22/us/abolish-ice-minnesota-snowplow.html?searchResultPosition=4
 
 **A City With Amazon at the Center**\
