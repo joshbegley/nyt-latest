@@ -6,7 +6,7 @@ https://nytimes.com/2021/02/22/opinion/letters/republican-party-trump.html?searc
 `The enigmatic, influential French electronic-music duo released four albums and collected six Grammys throughout a career marked by a disinterest in fame.`\
 https://nytimes.com/2021/02/22/arts/music/daft-punk-breakup.html?searchResultPosition=2
 
-**Trump Taxes: Here’s What’s Next in the Manhattan D.A.’s Investigation**\
+**Here’s What’s Next in the Trump Taxes Investigation**\
 `A Supreme Court ruling has paved the way for prosecutors to begin combing through Mr. Trump’s financial records.`\
 https://nytimes.com/2021/02/22/nyregion/trump-taxes-cyrus-vance.html?searchResultPosition=3
 
