@@ -8,7 +8,7 @@ https://nytimes.com/2021/02/22/us/los-angeles-covid.html?searchResultPosition=2
 
 **Dominion sues Mike Lindell, the MyPillow chief, over election fraud claims.**\
 `The complaint alleges that Mr. Lindell “exploited” false claims about election fraud to support sales of his own business.`\
-https://nytimes.com/2021/02/22/business/dominion-sues-mike-lindell-the-mypillow-chief-over-election-fraud-claims.html?searchResultPosition=3
+https://nytimes.com/2021/02/22/business/mike-lindell-mypillow-election-fraud-suit.html?searchResultPosition=3
 
 **How Britain Is Reacting to ‘It’s a Sin’**\
 `The show, which aired last month in the U.K., has broken a viewing record and revived conversations about how the country handled the AIDS crisis in the 1980s.`\
