@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/22/nyregion/gender-reveal-explosion-ny.html?searchRe
 https://nytimes.com/2021/02/22/us/everytown-nra-ad.html?searchResultPosition=3
 
 **Movie theaters in N.Y.C. can reopen with limited capacity late next week, Cuomo says.**\
-`By Michael Gold`\
+`The theaters will only be permitted to operate at 25 percent of their maximum capacity, with no more than 50 people per screening. Masks will be mandatory.`\
 https://nytimes.com/2021/02/22/world/nyc-movie-theaters-opening.html?searchResultPosition=4
 
 **Viet Thanh Nguyen Packs Plenty of Action and Outrage Into ‘The Committed’**\
