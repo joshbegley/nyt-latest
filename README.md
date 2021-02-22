@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Feathers and Female Power: The Costumes of Carnival’**\
-`In this lesson, students will learn about the history and role of costumes in Caribbean Carnival. Then, we invite them to respond artistically to the themes of transformation, history, ancestry and joy.`\
-https://nytimes.com/2021/02/22/learning/lesson-of-the-day-feathers-and-female-power-the-costumes-of-carnival.html?searchResultPosition=1
+**The Pandemic Is Receding in the Worst Hotspots. Will It Last?**\
+`Global cases are at half of their peak a month ago, offering a fragile window of opportunity as vaccinations begin to take effect.`\
+https://nytimes.com/interactive/2021/02/22/world/coronavirus-world-turnaround.html?searchResultPosition=1
 
-**Quotation of the Day: Black Hero With a Marshal’s Badge Rides Into a Classic Comic Book**\
-`Quotation of the Day for Monday, February 22, 2021.`\
-https://nytimes.com/2021/02/22/todayspaper/quotation-of-the-day-black-hero-with-a-marshals-badge-rides-into-a-classic-comic-book.html?searchResultPosition=2
+**On Horseback Among the Eagle Hunters and Herders of the Mongolian Altai**\
+`Deep in the Altai Mountains, where Russia, China, Kazakhstan and Mongolia meet, Kazakh people have for centuries developed and nurtured a special bond with golden eagles.`\
+https://nytimes.com/2021/02/22/travel/mongolia-eagle-hunters.html?searchResultPosition=2
 
-**Lucky Luke, the Comic Book Cowboy, Discovers Race, Belatedly**\
-`For the first time in the Franco-Belgian comic book classic, Black characters have full-fledged roles and are drawn without the racist depictions that marred the genre.`\
-https://nytimes.com/2021/02/22/world/europe/lucky-luke-comic-france.html?searchResultPosition=3
+**The Virus Slammed Her Neighborhood. She Can’t Find Her Father a Vaccine.**\
+`Logistical hurdles, fear and misinformation are threatening to leave some of the city’s immigrant communities behind as the vaccine rollout ramps up.`\
+https://nytimes.com/2021/02/22/nyregion/the-virus-slammed-her-neighborhood-she-cant-find-her-father-a-vaccine.html?searchResultPosition=3
 
-**Why an Animated Flying Cat With a Pop-Tart Body Sold for Almost $600,000**\
-`A fast-growing market for digital art, ephemera and media is marrying the world’s taste for collectibles with cutting-edge technology.`\
-https://nytimes.com/2021/02/22/business/nft-nba-top-shot-crypto.html?searchResultPosition=4
+**Bagel Orders and Vaccine Appointments: 5 Takeaways From the Mayor’s Race**\
+`A former City Council speaker decides not to run, and a current city comptroller becomes the first leading candidate to get the coronavirus vaccine.`\
+https://nytimes.com/2021/02/22/nyregion/nyc-mayor-race-quinn-stringer.html?searchResultPosition=4
 
-**Can Andrew Cuomo’s ‘Bullying’ Style Still Work in Politics?**\
-`The scrutiny of Covid-19 deaths in New York nursing homes has also put the governor’s aggressive behavior in the spotlight.`\
-https://nytimes.com/2021/02/22/nyregion/cuomo-new-york-covid.html?searchResultPosition=5
+**The Australian Open Promised Lessons for Pandemic Sports. Just Not These Ones.**\
+`The goal was to hold a major international sports event without putting public health at risk. Mission accomplished, but pulling it off presented major, unforeseen challenges and many sleepless nights.`\
+https://nytimes.com/2021/02/22/sports/tennis/coronavirus-australian-open.html?searchResultPosition=5
 
-**Word + Quiz: torpor**\
-`This word has appeared in 18 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/22/learning/word-quiz-torpor.html?searchResultPosition=6
+**Shopping for Carafes**\
+`Because even if you’re just drinking tap water, it’s more fun when you pour it out of a carafe.`\
+https://nytimes.com/2021/02/22/realestate/shopping-for-carafes.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘Mr. Soul!’ and the Golden Globes**\
-`A documentary on the pioneering variety show “Soul!” is on PBS. And the Golden Globes air on NBC from both coasts.`\
-https://nytimes.com/2021/02/22/arts/television/tv-this-week.html?searchResultPosition=7
+**Hello, Brains! A Life Spent Helping Others Understand A.D.H.D. Online**\
+`Jessica McCabe used YouTube to teach herself about A.D.H.D. Her videos taught others. Then she built a business.`\
+https://nytimes.com/2021/02/22/style/self-care/adhd-youtube.html?searchResultPosition=7
 
-**Climate Threats Could Mean Big Jumps in Insurance Costs This Year**\
-`The federal government is revising rates for flood coverage on April 1. New data suggests premiums need to increase sharply for some homes.`\
-https://nytimes.com/2021/02/22/climate/flood-insurance-fema.html?searchResultPosition=8
+**Texans Needed Food and Comfort After a Brutal Storm. As Usual, They Found It at H-E-B.**\
+`As state government flounders, has a beloved grocery store chain become “the moral center of Texas”?`\
+https://nytimes.com/2021/02/22/us/texas-heb-winter-storm.html?searchResultPosition=8
 
-**France Hired McKinsey to Help in the Pandemic. Then Came the Questions.**\
-`After previously undisclosed contracts were revealed, the company has become a magnet for criticism in France’s vaccine rollout.`\
-https://nytimes.com/2021/02/22/business/france-mckinsey-consultants-covid-vaccine.html?searchResultPosition=9
+**How to Prevent the Crisis After Covid-19**\
+`A year of missed preventive medical care is endangering minority communities.`\
+https://nytimes.com/2021/02/22/opinion/medical-care-coronavirus.html?searchResultPosition=9
 
-**No Corrections: Feb. 22, 2021**\
-`No corrections appeared in print on Monday, Feb. 22, 2021.`\
-https://nytimes.com/2021/02/21/pageoneplus/no-corrections-feb-22-2021.html?searchResultPosition=10
+**Just When You Thought Politics Couldn’t Unravel Any Further**\
+`What happens when “All the King’s Men” meets “National Lampoon’s Vacation”? Nothing good.`\
+https://nytimes.com/2021/02/22/opinion/cruz-texas-politics.html?searchResultPosition=10
 
