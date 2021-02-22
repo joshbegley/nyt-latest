@@ -1,40 +1,40 @@
+**Quotation of the Day: Black Hero With a Marshal’s Badge Rides Into a Classic Comic Book**\
+`Quotation of the Day for Monday, February 22, 2021.`\
+https://nytimes.com/2021/02/22/todayspaper/quotation-of-the-day-black-hero-with-a-marshals-badge-rides-into-a-classic-comic-book.html?searchResultPosition=1
+
+**Lucky Luke, the Comic Book Cowboy, Discovers Race, Belatedly**\
+`For the first time in the Franco-Belgian comic book classic, Black characters have full-fledged roles and are drawn without the racist depictions that marred the genre.`\
+https://nytimes.com/2021/02/22/world/europe/lucky-luke-comic-france.html?searchResultPosition=2
+
+**Why an Animated Flying Cat With a Pop-Tart Body Sold for Almost $600,000**\
+`A fast-growing market for digital art, ephemera and media is marrying the world’s taste for collectibles with cutting-edge technology.`\
+https://nytimes.com/2021/02/22/business/nft-nba-top-shot-crypto.html?searchResultPosition=3
+
+**Can Andrew Cuomo’s ‘Bullying’ Style Still Work in Politics?**\
+`The scrutiny of Covid-19 deaths in New York nursing homes has also put the governor’s aggressive behavior in the spotlight.`\
+https://nytimes.com/2021/02/22/nyregion/cuomo-new-york-covid.html?searchResultPosition=4
+
 **Word + Quiz: torpor**\
 `This word has appeared in 18 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/22/learning/word-quiz-torpor.html?searchResultPosition=1
+https://nytimes.com/2021/02/22/learning/word-quiz-torpor.html?searchResultPosition=5
 
 **What’s on TV This Week: ‘Mr. Soul!’ and the Golden Globes**\
 `A documentary on the pioneering variety show “Soul!” is on PBS. And the Golden Globes air on NBC from both coasts.`\
-https://nytimes.com/2021/02/22/arts/television/tv-this-week.html?searchResultPosition=2
+https://nytimes.com/2021/02/22/arts/television/tv-this-week.html?searchResultPosition=6
 
 **Climate Threats Could Mean Big Jumps in Insurance Costs This Year**\
 `The federal government is revising rates for flood coverage on April 1. New data suggests premiums need to increase sharply for some homes.`\
-https://nytimes.com/2021/02/22/climate/flood-insurance-fema.html?searchResultPosition=3
+https://nytimes.com/2021/02/22/climate/flood-insurance-fema.html?searchResultPosition=7
 
 **France Hired McKinsey to Help in the Pandemic. Then Came the Questions.**\
 `After previously undisclosed contracts were revealed, the company has become a magnet for criticism in France’s vaccine rollout.`\
-https://nytimes.com/2021/02/22/business/france-mckinsey-consultants-covid-vaccine.html?searchResultPosition=4
+https://nytimes.com/2021/02/22/business/france-mckinsey-consultants-covid-vaccine.html?searchResultPosition=8
 
 **No Corrections: Feb. 22, 2021**\
 `No corrections appeared in print on Monday, Feb. 22, 2021.`\
-https://nytimes.com/2021/02/21/pageoneplus/no-corrections-feb-22-2021.html?searchResultPosition=5
+https://nytimes.com/2021/02/21/pageoneplus/no-corrections-feb-22-2021.html?searchResultPosition=9
 
 **Your Monday Briefing**\
 `The Schengen Area closes up.`\
-https://nytimes.com/2021/02/21/briefing/coronavirus-europe-israel-election.html?searchResultPosition=6
-
-**‘Allen v. Farrow’ Episode 1 Recap: ‘Inappropriately Intense’ Behavior**\
-`The new HBO documentary series takes another look at Dylan Farrow’s sexual abuse allegations against her adoptive father, Woody Allen.`\
-https://nytimes.com/2021/02/21/arts/television/allen-v-farrow-episode-1-recap.html?searchResultPosition=7
-
-**10 Years After Christchurch Quake, a Hush Where 8,000 Homes Once Stood**\
-`The wreckage left in New Zealand’s second-largest city was razed. Now, a swath nearly twice the size of Central Park is being reclaimed by nature.`\
-https://nytimes.com/2021/02/21/world/australia/christchurch-new-zealand-quake-red-zone.html?searchResultPosition=8
-
-**On the West Coast, Avalanche Warnings and an ‘Atmospheric River’**\
-`The danger of avalanche is high in parts of the Cascade Mountains and areas farther south, the Northwest Avalanche Center said.`\
-https://nytimes.com/2021/02/21/us/winter-storm-west-coast.html?searchResultPosition=9
-
-**Iran Curbs Nuclear Inspectors, but Appears to Leave Space for a Deal**\
-`The new limits appeared to be lighter than the country had threatened, giving Western nations three months to see if they can revive the 2015 nuclear agreement.`\
-https://nytimes.com/2021/02/21/us/politics/iran-nuclear-inspections.html?searchResultPosition=10
+https://nytimes.com/2021/02/21/briefing/coronavirus-europe-israel-election.html?searchResultPosition=10
 
