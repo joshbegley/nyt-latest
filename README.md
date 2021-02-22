@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/22/science/mars-landing-nasa-video.html?searchResult
 https://nytimes.com/2021/02/22/world/asia/india-cow-exam-curriculum.html?searchResultPosition=3
 
 **Your Tuesday Briefing**\
-`The U.S. approaches 500,000 deaths.`\
+`Grim U.S. milestone, but global signs of hope.`\
 https://nytimes.com/2021/02/22/briefing/us-500k-deaths-myanmar-protests.html?searchResultPosition=5
 
 **A Donor’s Ties to Epstein Are Criticized at MoMA and Dartmouth**\
