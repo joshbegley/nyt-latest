@@ -1,5 +1,5 @@
 **Congressional Committee Presses Cable Providers on Election Fraud Claims**\
-`Before a hearing scheduled for Wednesday, Democratic members of the House Energy and Commerce Committee asked cable companies what they did to combat “the spread of disinformation.”`\
+`Before a hearing scheduled for Wednesday, Democratic members of the House Energy and Commerce Committee asked cable companies what they did to combat “the spread of misinformation.”`\
 https://nytimes.com/2021/02/22/business/media/disinformation-cable-television.html?searchResultPosition=1
 
 **Fernando Hidalgo, Cuban-Born TV Host, Dies at 78**\
