@@ -32,5 +32,5 @@ https://nytimes.com/2021/02/22/sports/muhammad-ali-graphic-novel.html?searchResu
 
 **Watch Live: Biden Delivers Small Business Announcement**\
 `On Monday, President Biden will deliver an announcement on small businesses, and how to recover from the economic impact of the coronavirus pandemic.`\
-https://nytimes.com/video/us/politics/100000007617713/biden-small-business.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/politics/100000007617713/biden-small-business.html?searchResultPosition=10
 
