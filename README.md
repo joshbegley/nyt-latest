@@ -30,8 +30,8 @@ https://nytimes.com/2021/02/21/opinion/texas-climate-migration.html?searchResult
 `As violence grew out of control on Jan. 6, the head of the Capitol Police made an urgent request for the National Guard. It took nearly two hours to be approved.`\
 https://nytimes.com/2021/02/21/us/politics/capitol-riot-security-delays.html?searchResultPosition=8
 
-**F.A.A. Orders Inspections on Boeing 777 Jets After Engine Failure**\
-`United said it would temporarily ground the affected planes it operates, and Japan ordered a halt to their flights, as well.`\
+**Boeing Calls for Global Grounding of 777s Equipped With One Engine Model**\
+`The company said 128 jets powered by a particular Pratt & Whitney engine should get inspections.`\
 https://nytimes.com/2021/02/21/business/faa-boeing-777-engines.html?searchResultPosition=9
 
 **Texas Governor Promises to Address Skyrocketing Electric Bills**\
