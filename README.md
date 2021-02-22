@@ -19,7 +19,7 @@ https://nytimes.com/2021/02/22/us/politics/neera-tanden-confirmation-omb.html?se
 https://nytimes.com/video/us/politics/100000007618118/biden-paycheck-pandemic-loans.html?searchResultPosition=5
 
 **Why Top Economists Are Citing a Higher-Than-Reported Jobless Rate**\
-`The official rate stood at 6.3% in January, but using an expanded metric, Fed and Treasury officials say it’s closer to 10%.`\
+`The official rate stood at 6.3 percent in January, but using an expanded metric, Fed and Treasury officials say it’s closer to 10 percent.`\
 https://nytimes.com/2021/02/22/business/economy/unemployment-rate-covid.html?searchResultPosition=9
 
 **Boris Johnson Maps Out Plan to Lift Virus Lockdown**\
