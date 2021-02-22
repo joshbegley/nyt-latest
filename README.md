@@ -1,6 +1,6 @@
 **Movie theaters in N.Y.C. can reopen with limited capacity late next week, Cuomo says.**\
 `By Michael Gold`\
-https://nytimes.com/2021/02/22/world/movie-theaters-in-nyc-can-reopen-with-limited-capacity-late-next-week-cuomo-says.html?searchResultPosition=1
+https://nytimes.com/2021/02/22/world/nyc-movie-theaters-opening.html?searchResultPosition=1
 
 **Viet Thanh Nguyen Packs Plenty of Action and Outrage Into ‘The Committed’**\
 `This sequel to the Pulitzer Prize-winning “The Sympathizer” finds its unnamed narrator in France, considering the relationship between that country and Vietnam.`\
