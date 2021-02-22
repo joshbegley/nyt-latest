@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/22/learning/what-old-technology-do-you-think-is-cool
 https://nytimes.com/2021/02/22/world/africa/italy-ambassador-killed-congo-ambush.html?searchResultPosition=3
 
 **Billion-Dollar Paydays in a Pandemic**\
-`The top 25 hedge fund managers earned $32 billion last year, according to Institutional Investors’ latest rankings.`\
+`The top 25 hedge fund managers earned $32 billion last year, according to Institutional Investor’s latest rankings.`\
 https://nytimes.com/2021/02/22/business/dealbook/hedge-fund-rich-list.html?searchResultPosition=4
 
 **Jay-Z and LVMH, Two of the World’s Biggest Brands, Go Into Business**\
