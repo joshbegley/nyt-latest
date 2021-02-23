@@ -8,7 +8,7 @@ https://nytimes.com/2021/02/23/opinion/paradise-next-door-florida-elderly.html?s
 
 **He Lost His Son to an Overdose. Now He’s Taking On the ‘Top Drug Cop.’**\
 `One activist is asking the Biden administration to remember the failures that led to the opioid epidemic as it chooses the next head of the F.D.A.`\
-https://nytimes.com/2021/02/23/opinion/opioid-crisis-bisch-woodcock-fda-oxycontin-purdue.html?searchResultPosition=3
+https://nytimes.com/2021/02/23/opinion/woodcock-fda-opioids.html?searchResultPosition=3
 
 **The GameStop Craze Was Mostly Just Crazy**\
 `The congressional hearing about the “meme stock” frenzy shows it was definitely bizarre, but maybe not as meaningful as we desire it to be.`\
