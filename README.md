@@ -27,7 +27,7 @@ https://nytimes.com/video/us/100000007620508/tiger-woods-car-crash-los-angeles.h
 https://nytimes.com/2021/02/23/arts/design/whitney-museum-layoffs.html?searchResultPosition=7
 
 **‘I’m sick to my stomach,’ Woods’s friend Justin Thomas said.**\
-`By Bill Pennington`\
+`A trusted confidant of Tiger Woods who frequently joins Woods for pretournament practice rounds appeared stunned by the news of Woods’s accident.`\
 https://nytimes.com/2021/02/23/sports/golf/justin-thomas-tiger-accident.html?searchResultPosition=8
 
 **Interior Secretary Nominee Questioned on Fossil Fuel**\
