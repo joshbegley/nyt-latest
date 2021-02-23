@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘A Ripple Effect of Loss: U.S. Covid Deaths Approach 500,000’**\
-`In this lesson, students will read about those we have lost and consider ways they can commemorate and mourn this tragic milestone.`\
-https://nytimes.com/2021/02/23/learning/lesson-of-the-day-a-ripple-effect-of-loss-us-covid-deaths-approach-500000.html?searchResultPosition=1
+**A Perfectly Imperfect House in Miami**\
+`The exterior of the 1930s Mediterranean-style home in Coconut Grove was charming. The interior was anything but. This couple was thrilled.`\
+https://nytimes.com/2021/02/23/realestate/a-perfectly-imperfect-house-in-miami.html?searchResultPosition=1
 
-**Pop-Tart Cat**\
-`What are your favorite works of digital art?`\
-https://nytimes.com/2021/02/23/learning/pop-tart-cat.html?searchResultPosition=2
+**The Antithesis of a ‘White, Modern Box’**\
+`The exterior of the 1930s Mediterranean-style home in Coconut Grove was charming. The interior was anything but. They were thrilled.`\
+https://nytimes.com/slideshow/2021/02/23/realestate/the-antithesis-of-a-white-modern-box.html?searchResultPosition=2
 
-**How Meaningful Is Prediabetes for Older Adults?**\
-`A new study indicates that the condition might be less of a worry than once believed.`\
-https://nytimes.com/2021/02/23/health/elderly-prediabetes-selvin.html?searchResultPosition=3
+**Future Vaccines Depend on Test Subjects in Short Supply: Monkeys**\
+`The pandemic has highlighted the United States’ dependence on China for research animals, reviving calls for a “strategic monkey reserve.”`\
+https://nytimes.com/2021/02/23/business/covid-vaccine-monkeys.html?searchResultPosition=3
 
-**Late Night Blasts Ted Cruz’s Post-Cancún Photo Op**\
-`“On Saturday, he posted photos of himself handing out bottled water with the hashtag ‘Texas strong.’ Sure, dude, we totally believe you,” Seth Meyers joked on Monday.`\
-https://nytimes.com/2021/02/23/arts/television/late-night-ted-cruz-cancun.html?searchResultPosition=4
+**How Plagues Shape the Landscape**\
+`From cholera to AIDS, epidemics have given rise to landmarks around the world, be they sculptures, churches or feats of engineering. In this dire moment, their histories resonate.`\
+https://nytimes.com/2021/02/23/travel/epidemics-landmarks.html?searchResultPosition=4
 
-**Ahmed Zaki Yamani, Former Saudi Oil Minister, Dies at 90**\
-`As Saudi Arabia’s powerful oil minister, he was architect of the Arab world’s drive to control its own energy resources in the 1970s.`\
-https://nytimes.com/2021/02/23/business/ahmed-zaki-yamani-dead.html?searchResultPosition=5
+**A Bristling Standoff Rattles Gun-Friendly Vermont**\
+`In Pawlet, Vt., where a landowner opened a tactical weapons training site, a zoning dispute has escalated into something more dangerous.`\
+https://nytimes.com/2021/02/23/us/vermont-gun-range-pawlet-zoning.html?searchResultPosition=5
 
-**Champions League Adapts to a Fluid Concept: Home and Away**\
-`Coronavirus restrictions have sent multiple games to neutral sites. Will this summer’s European Championship be the next big event to reschedule?`\
-https://nytimes.com/2021/02/23/sports/soccer/champions-league-chelsea-atletico.html?searchResultPosition=6
+**I Fell in Love in the Pandemic. It Was Not Romantic at All.**\
+`At first, it was mutual frustration vented through chaotic late-night texts. But it didn’t stay that way.`\
+https://nytimes.com/2021/02/23/opinion/love-covid-dating.html?searchResultPosition=6
 
-**Word + Quiz: vernacular**\
-`This word has appeared in 122 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/23/learning/word-quiz-vernacular.html?searchResultPosition=7
+**One Question for Manhattan D.A. Candidates: Will You Prosecute Trump?**\
+`The investigation into Donald J. Trump has been the focus of enormous attention, but candidates have mostly avoided talking about the case.`\
+https://nytimes.com/2021/02/23/nyregion/manhattan-district-attorney-trump-investigation.html?searchResultPosition=7
 
-**Afghan Civilian Casualties Soared After Peace Talks’ Start**\
-`Fighting intensified in the last quarter of 2020, after talks between the Afghan government and Taliban began. Before then, it had been a less deadly year than before.`\
-https://nytimes.com/2021/02/23/world/asia/afghanistan-civilian-casualties.html?searchResultPosition=8
+**Kazuo Ishiguro Sees What the Future Is Doing to Us**\
+`With his new novel, the Nobel Prize-winner reaffirms himself as our most profound observer of human fragility in the technological era.`\
+https://nytimes.com/2021/02/23/magazine/kazuo-ishiguro-klara.html?searchResultPosition=8
 
-**Independent Report Is Highly Critical of Colorado Police in Death of Elijah McClain**\
-`A panel commissioned by the Aurora City Council also found “serious concerns” with an internal police investigation into the 2019 death of Mr. McClain.`\
-https://nytimes.com/2021/02/23/us/elijah-mcclain-death-colorado-report.html?searchResultPosition=9
+**A.I. Here, There, Everywhere**\
+`Many of us already live with artificial intelligence now, but researchers say interactions with the technology will become increasingly personalized.`\
+https://nytimes.com/2021/02/23/technology/ai-innovation-privacy-seniors-education.html?searchResultPosition=9
 
-**Luis Suárez Rediscovers His Bite**\
-`After a summer of indignity and humiliation, the striker has been reborn with Atlético Madrid.`\
-https://nytimes.com/2021/02/23/sports/soccer/luis-suarez-champions-league-atletico-madrid.html?searchResultPosition=10
+**The Pandemic Has Diminished Part of Athletes’ Jobs: Signing Autographs**\
+`Even where spectators can attend sports events, physical buffers between them and the athletes often prevent autograph seeking. Players and fans miss the interaction.`\
+https://nytimes.com/2021/02/23/sports/coronavirus-sports-no-autographs.html?searchResultPosition=10
 
