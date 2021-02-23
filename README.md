@@ -1,4 +1,4 @@
-**Managers of Texas Power Grid Resign After Massive Storm Outages**\
+**Managers of Texas Power Grid Resign After Widespread Storm Outages**\
 `The chairwoman and three other board members of the Electric Reliability Council of Texas stepped down after millions were left without electricity during freezing temperatures.`\
 https://nytimes.com/2021/02/23/us/texas-ercot-board-resigned.html?searchResultPosition=1
 
