@@ -14,13 +14,13 @@ https://nytimes.com/2021/02/23/business/ardagh-spac.html?searchResultPosition=3
 `The exterior of the 1930s Mediterranean-style home in Coconut Grove was charming. The interior was anything but. This couple was thrilled.`\
 https://nytimes.com/2021/02/23/realestate/a-perfectly-imperfect-house-in-miami.html?searchResultPosition=4
 
-**The Antithesis of a ‘White, Modern Box’**\
-`The exterior of the 1930s Mediterranean-style home in Coconut Grove was charming. The interior was anything but. They were thrilled.`\
-https://nytimes.com/slideshow/2021/02/23/realestate/the-antithesis-of-a-white-modern-box.html?searchResultPosition=5
-
 **Future Vaccines Depend on Test Subjects in Short Supply: Monkeys**\
 `The pandemic has highlighted the United States’ dependence on China for research animals, reviving calls for a “strategic monkey reserve.”`\
-https://nytimes.com/2021/02/23/business/covid-vaccine-monkeys.html?searchResultPosition=6
+https://nytimes.com/2021/02/23/business/covid-vaccine-monkeys.html?searchResultPosition=5
+
+**The Antithesis of a ‘White, Modern Box’**\
+`The exterior of the 1930s Mediterranean-style home in Coconut Grove was charming. The interior was anything but. They were thrilled.`\
+https://nytimes.com/slideshow/2021/02/23/realestate/the-antithesis-of-a-white-modern-box.html?searchResultPosition=6
 
 **How Plagues Shape the Landscape**\
 `From cholera to AIDS, epidemics have given rise to landmarks around the world, be they sculptures, churches or feats of engineering. In this dire moment, their histories resonate.`\
