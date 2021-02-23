@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/23/arts/music/billie-eilish-favorites.html?searchRes
 https://nytimes.com/2021/02/23/arts/music/anthony-tommasini-contemporary-composers.html?searchResultPosition=3
 
 **Watch Live: Senate Hearing on the Capitol Riot**\
-`the Senate Homeland Security Committee is holding a hearing to examine the security failures that led to a breach of the U.S. Capitol on Jan. 6.`\
+`The Homeland Security Committee and the Rules Committee hold a joint hearing to examine the security failures that led to a breach of the U.S. Capitol on Jan. 6.`\
 https://nytimes.com/video/us/politics/100000007619561/capitol-security-hearing.html?searchResultPosition=4
 
 **Watch Live: Jerome Powell Testifies on the Economy**\
