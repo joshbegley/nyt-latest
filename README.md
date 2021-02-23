@@ -19,7 +19,7 @@ https://nytimes.com/2021/02/22/nyregion/new-jersey-marijuana-legalization.html?s
 https://nytimes.com/2021/02/22/us/trump-tax-returns.html?searchResultPosition=5
 
 **As Pandemic Took Hold, Suicide Rose Among Japanese Women**\
-`Last year saw more women, but fewer men, take their own lives in Japan. For women there, the pressures of Covid-19 have been compounded.`\
+`Job losses, urban isolation, household burdens: Covid-19 has compounded the pressures on women, raising alarms in a country that has worked to reduce some of the world’s highest suicide rates.`\
 https://nytimes.com/2021/02/22/world/asia/japan-women-suicide-coronavirus.html?searchResultPosition=6
 
 **Biden and Harris Honor 500,000 Americans Lost During Pandemic**\
