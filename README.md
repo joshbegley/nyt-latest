@@ -2,7 +2,7 @@
 `Woods was the subject of a recent two-part documentary on HBO called “Tiger,” which chronicles the golfer’s intense relationship with his father and how that shaped his career and personal life.`\
 https://nytimes.com/2021/02/23/sports/golf/tiger-woods-documentary-hbo.html?searchResultPosition=1
 
-**Gucci is Staying in Trump Tower**\
+**Gucci Is Staying in Trump Tower**\
 `Tiffany and other luxury companies have stepped away from deals with the former president’s organization, but not Gucci.`\
 https://nytimes.com/2021/02/23/fashion/trump-gucci.html?searchResultPosition=2
 
