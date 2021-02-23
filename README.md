@@ -2,7 +2,7 @@
 `The decision was a blow to the country’s prime minister, who dissolved the legislature after a protracted internal dispute within his ruling Nepal Communist Party.`\
 https://nytimes.com/2021/02/23/world/asia/nepal-parliament-dissolved.html?searchResultPosition=1
 
-**No New Taxes in N.J. as Pandemic Forecast Turns ‘Less Bad’**\
+**How New Jersey Averted a Pandemic Financial Calamity**\
 `A $44.8 billion spending plan unveiled Tuesday by Gov. Phil Murphy calls for no new taxes and fully funds the state pension program for the first time since 1996.`\
 https://nytimes.com/2021/02/23/nyregion/phil-murphy-nj-budget.html?searchResultPosition=2
 
