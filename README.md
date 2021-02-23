@@ -14,7 +14,7 @@ https://nytimes.com/2021/02/22/us/new-orleans-shooting-joshua-williams.html?sear
 `Legislation signed on Monday decriminalizes the use or possession of up to six ounces of cannabis, ending an era of disproportionate arrests in communities of color.`\
 https://nytimes.com/2021/02/22/nyregion/new-jersey-marijuana-legalization.html?searchResultPosition=4
 
-**Trump’s Tax Returns Are ‘One Piece of the Puzzle.’ Prosecutors Are Getting More.**\
+**Trump’s Tax Returns Aren’t the Only Crucial Records Prosecutors Will Get**\
 `For all that they reveal, tax returns have limitations. Other records from the former president’s accountants may help give a fuller picture of his finances.`\
 https://nytimes.com/2021/02/22/us/trump-tax-returns.html?searchResultPosition=5
 
