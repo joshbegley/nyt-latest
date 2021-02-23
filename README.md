@@ -18,17 +18,17 @@ https://nytimes.com/2021/02/23/opinion/paradise-next-door-florida-elderly.html?s
 `One activist is asking the Biden administration to remember the failures that led to the opioid epidemic as it chooses the next head of the F.D.A.`\
 https://nytimes.com/2021/02/23/opinion/woodcock-fda-opioids.html?searchResultPosition=5
 
+**Humans Are Animals. Let’s Get Over It.**\
+`It’s astonishing how relentlessly Western philosophy has strained to prove we are not squirrels.`\
+https://nytimes.com/2021/02/23/opinion/humans-animals-philosophy.html?searchResultPosition=6
+
 **Tiny Love Stories: ‘I Remove My Wedding Ring’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2021/02/23/style/tiny-modern-love-stories-i-remove-my-wedding-ring.html?searchResultPosition=6
+https://nytimes.com/2021/02/23/style/tiny-modern-love-stories-i-remove-my-wedding-ring.html?searchResultPosition=7
 
 **The GameStop Craze Was Mostly Just Crazy**\
 `The congressional hearing about the “meme stock” frenzy shows it was definitely bizarre, but maybe not as meaningful as we desire it to be.`\
-https://nytimes.com/2021/02/23/opinion/gamestop-price-congress-robinhood.html?searchResultPosition=7
-
-**Humans Are Animals. Let’s Get Over It.**\
-`It’s astonishing how relentlessly Western philosophy has strained to prove we are not squirrels.`\
-https://nytimes.com/2021/02/23/opinion/humans-animals-philosophy.html?searchResultPosition=8
+https://nytimes.com/2021/02/23/opinion/gamestop-price-congress-robinhood.html?searchResultPosition=8
 
 **The Paradise Next Door**\
 `“Why would I want to hear about death and destruction? I’d rather hear somebody made a hole in one yesterday.”`\
