@@ -30,7 +30,7 @@ https://nytimes.com/2021/02/23/business/dealbook/dealbook-dc-project-yellen.html
 `As the military seized power again, the generals moved quickly to take the country offline, criminalize online dissent and block social media.`\
 https://nytimes.com/2021/02/23/world/asia/myanmar-coup-firewall-internet-china.html?searchResultPosition=8
 
-**That Strange Feeling Going Around Is Optimism**\
+**That Strange Feeling Going Around New York Is Optimism**\
 `After two decades of frustration and incompetence broken up by an occasional championship (thanks, Giants), the region’s sports teams all appear headed in the right direction.`\
 https://nytimes.com/2021/02/23/sports/new-york-sports-optimism.html?searchResultPosition=9
 
