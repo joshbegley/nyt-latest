@@ -14,8 +14,8 @@ https://nytimes.com/2021/02/23/crosswords/daily-puzzle-2021-02-24.html?searchRes
 `The Southern Poverty Law Center said more “symbols of hate” were removed from public property last year after the death of George Floyd than in the previous four years combined.`\
 https://nytimes.com/2021/02/23/us/confederate-monuments-george-floyd-protests.html?searchResultPosition=4
 
-**F.A.A. Orders Inspection of Pratt & Whitney Engines on Boeing 777s**\
-`The engine-and-plane combination has experienced a number of failures.`\
+**Pratt & Whitney Engines Must Be Inspected Before Flights Resume, F.A.A. Says**\
+`The engines on certain Boeing 777s have experienced a number of failures.`\
 https://nytimes.com/2021/02/23/business/faa-pratt-whitney-boeing-777.html?searchResultPosition=5
 
 **Southern Baptists Expel 2 Churches Over Sex Abuse and 2 for L.G.B.T.Q. Inclusion**\
