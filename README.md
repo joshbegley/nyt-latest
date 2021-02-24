@@ -4,7 +4,7 @@ https://nytimes.com/2021/02/24/obituaries/luis-fernando-arias-dead-coronavirus.h
 
 **What’s in Our Queue? ‘Nintendo Switch’ and More**\
 `Might not be winning, but still enjoying revamps of classic video games`\
-https://nytimes.com/interactive/2021/02/24/arts/25editors-recommendations.html?searchResultPosition=2
+https://nytimes.com/interactive/2021/02/24/arts/editors-recommendations.html?searchResultPosition=2
 
 **W.H.O. Warns Wealthy Countries Are Undermining Covax Program**\
 `The head of the World Health Organization said some of the vaccine manufacturing deals wealthier countries were entering took away from the number of vaccines available to distribute to poorer countries.`\
