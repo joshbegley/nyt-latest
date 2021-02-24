@@ -1,4 +1,4 @@
-**Deaths Fell in Japan Last Year. Here’s How That Was Possible.**\
+**Deaths Fell in Japan Last Year. How?**\
 `The decline indicated that methods for fighting the coronavirus have also been effective at curbing other illnesses.`\
 https://nytimes.com/2021/02/24/world/asia/japan-deaths.html?searchResultPosition=1
 
