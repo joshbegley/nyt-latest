@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/24/realestate/bellport-ny-a-village-with-extraordina
 `What does it mean to own property there? For starters, automatic membership in the country club and ferry rides to an exclusive beach on Fire Island.`\
 https://nytimes.com/slideshow/2021/02/24/realestate/living-in-bellport-village-ny.html?searchResultPosition=9
 
-**16 New Books to Watch For in March**\
-`Long-awaited novels from Kazuo Ishiguro, Imbolo Mbue and Viet Thanh Nguyen, a publishing-house caper, Stephen King’s latest and more.`\
-https://nytimes.com/2021/02/24/books/march-2021-books.html?searchResultPosition=10
+**‘Climate Change’ Is Back, ‘Illegal Alien’ Is Out. New Administration Changes the Language of Government.**\
+`“The president has been clear to all of us — words matter, tone matters and civility matters,” said Jen Psaki, the White House press secretary.`\
+https://nytimes.com/2021/02/24/us/politics/language-government-biden-trump.html?searchResultPosition=10
 
