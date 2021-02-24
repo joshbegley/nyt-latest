@@ -14,7 +14,7 @@ https://nytimes.com/slideshow/2021/02/24/realestate/what-you-get-for-1-9-million
 `Wednesday: A look at one city’s effort to remake policing. Also: Xavier Becerra’s confirmation hearings; and remembering Lawrence Ferlinghetti.`\
 https://nytimes.com/2021/02/24/us/berkeley-police.html?searchResultPosition=4
 
-**Welcome Back, New York Fans. Please Keep Your Distance.**\
+**Fans Return in New York, Thrilled to Cheer (and Jeer) Again**\
 `The Nets and the Knicks were the first teams to take advantage of New York’s relaxed rules on attendance at sporting events. It was … different, but also a welcome bit of normalcy.`\
 https://nytimes.com/2021/02/24/sports/basketball/nets-knicks-warriors-fans.html?searchResultPosition=5
 
