@@ -2,7 +2,7 @@
 `Motivated by violence inflicted on his family by paramilitaries, he became the leading voice in a coalition of Indigenous peoples. Complications of the coronavirus contributed to his death.`\
 https://nytimes.com/2021/02/24/obituaries/luis-fernando-arias-dead-coronavirus.html?searchResultPosition=1
 
-**What’s in Our Queue? ‘Nintendo Switch’ and More**\
+**What’s in Our Queue? ‘At Home With Amy Sedaris’ and More**\
 `Might not be winning, but still enjoying revamps of classic video games`\
 https://nytimes.com/interactive/2021/02/24/arts/editors-recommendations.html?searchResultPosition=2
 
