@@ -15,7 +15,7 @@ https://nytimes.com/video/us/politics/100000007622602/postmaster-general-dejoy-t
 https://nytimes.com/2021/02/24/at-home/newsletter.html?searchResultPosition=5
 
 **New Findings on 2 Ways Children Become Seriously Ill from the Coronavirus**\
-`A large study found that young people hospitalized with acute Covid-19 infection have symptoms and characteristics that differ from those with a Covid-linked inflammatory syndrome.`\
+`A large study found that young people hospitalized with acute Covid-19 have symptoms and characteristics that differ from those with a Covid-linked inflammatory syndrome.`\
 https://nytimes.com/2021/02/24/health/covid-kids-severe-inflammatory-syndrome.html?searchResultPosition=6
 
 **Luis Fernando Arias, Colombian Indigenous Leader, Dies at 41**\
