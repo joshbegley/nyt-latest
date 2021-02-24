@@ -28,7 +28,7 @@ https://nytimes.com/video/us/politics/100000007622475/us-un-human-rights.html?se
 
 **New Mass Vaccine Sites Target N.Y. Communities Hit Hard by Pandemic**\
 `Gov. Andrew M. Cuomo of New York said two mass vaccination sites, opened on Wednesday in Queens and Brooklyn, would prioritize vaccinating residents of surrounding ZIP codes.`\
-https://nytimes.com/video/nyregion/100000007622417/new-york-mass-vaccination-sites.html?searchResultPosition=9
+https://nytimes.com/video/embedded/nyregion/100000007622417/new-york-mass-vaccination-sites.html?searchResultPosition=9
 
 **White House Coronavirus Team Works to Improve Mask Equitability**\
 `The White House coronavirus task force said on Wednesday that it wants to improve mask equitability by sending more than 25 million masks to vulnerable communities.`\
