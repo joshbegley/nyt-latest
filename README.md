@@ -27,7 +27,7 @@ https://nytimes.com/2021/02/24/briefing/johnson-johnson-hong-kong-sheet-pan-dinn
 https://nytimes.com/2021/02/24/climate/deb-haaland-interior-secretary.html?searchResultPosition=7
 
 **A Recall for Newsom in California? Talk Grows as Governors Come Under Attack**\
-`Fellow Democrats have closed ranks around Gov. Gavin Newsom, lavishly praising his handling of the pandemic. But conservatives say his shutdowns have been destructive.`\
+`Fellow Democrats have defended Gov. Gavin Newsom, lavishly praising his handling of the pandemic. But conservatives say his shutdowns have been destructive.`\
 https://nytimes.com/2021/02/24/us/newsom-recall.html?searchResultPosition=8
 
 **Powell Says Better Child Care Policies Might Lift Women in Work Force**\
