@@ -1,5 +1,5 @@
 **Stephen Colbert Didn’t Realize America Had Been Canceled**\
-`“Although, I’m not surprised — the last season was pretty unbelievable,” Stephen Colbert said of CPAC’s 2021 theme: “America Uncanceled.”`\
+`“Although I’m not surprised — the last season was pretty unbelievable,” Stephen Colbert said of CPAC’s 2021 theme: “America Uncanceled.”`\
 https://nytimes.com/2021/02/24/arts/television/stephen-colbert-cpac.html?searchResultPosition=1
 
 **Fading Sri Lankan Hopes for Justice Rest on U.N. Rights Council**\
