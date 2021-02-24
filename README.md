@@ -6,13 +6,13 @@ https://nytimes.com/video/us/politics/100000007622290/mccarthy-cheney-trump-cpac
 `Maria Stepanova’s “In Memory of Memory” looks to the lives of her ancestors, and celebrates their very “ordinariness.”`\
 https://nytimes.com/2021/02/24/books/review-in-memory-of-memory-maria-stepanova.html?searchResultPosition=2
 
-**A Coming-Out Party for KAWS at the Brooklyn Museum**\
-`The Simpsons, Snoopy and the Smurfs are all here in a survey of the artist Brian Donnelly’s 25-year career.`\
-https://nytimes.com/2021/02/24/arts/design/kaws-brooklyn-museum-review.html?searchResultPosition=3
-
 **17 Freezer-Friendly Desserts for Anytime Sweets**\
 `Your future self will be grateful for instant homemade treats from your own kitchen.`\
-https://nytimes.com/2021/02/24/dining/make-ahead-baking-recipes.html?searchResultPosition=4
+https://nytimes.com/2021/02/24/dining/make-ahead-baking-recipes.html?searchResultPosition=3
+
+**A Coming-Out Party for KAWS at the Brooklyn Museum**\
+`The Simpsons, Snoopy and the Smurfs are all here in a survey of the artist Brian Donnelly’s 25-year career.`\
+https://nytimes.com/2021/02/24/arts/design/kaws-brooklyn-museum-review.html?searchResultPosition=4
 
 **Your Thursday Briefing**\
 `The global vaccine sharing program kicks off.`\
