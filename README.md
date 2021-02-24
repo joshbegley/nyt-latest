@@ -1,5 +1,5 @@
 **After Russian Cyberattack, Looking for Answers and Debating Retaliation**\
-`Key senators and corporate executives warned on Tuesday that the “scope and scale” of the hacking of government agencies and companies, the most sophisticated in history, were still unclear.`\
+`Key senators and corporate executives warned at a hearing on Tuesday that the “scope and scale” of the hacking of government agencies and companies, the most sophisticated in history, were still unclear.`\
 https://nytimes.com/2021/02/23/us/politics/solarwinds-hack-senate-intelligence-russia.html?searchResultPosition=1
 
 **Ex-Security Officials Spread Blame for Failures of Capitol Riot**\
