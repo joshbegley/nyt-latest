@@ -26,7 +26,7 @@ https://nytimes.com/video/us/politics/100000007622602/postmaster-general-dejoy-t
 `Meditative dishwashing and online card games.`\
 https://nytimes.com/2021/02/24/at-home/newsletter.html?searchResultPosition=9
 
-**New Findings on 2 Ways Children Become Seriously Ill from the Coronavirus**\
+**New Findings on 2 Ways Children Become Seriously Ill From the Coronavirus**\
 `A large study found that young people hospitalized with acute Covid-19 have symptoms and characteristics that differ from those with a Covid-linked inflammatory syndrome.`\
 https://nytimes.com/2021/02/24/health/covid-kids-severe-inflammatory-syndrome.html?searchResultPosition=10
 
