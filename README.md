@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/25/movies/til-kingdom-come-review.html?searchResultPosition=1
 
 **Lady Gaga’s Dogs Are Stolen and Dog Walker Is Shot**\
-`The Los Angeles police said that two French bulldogs were taken Wednesday night. Lady Gaga is offering a reward for their safe return, a representative said.`\
+`The Los Angeles police said that two French bulldogs were taken Wednesday night and that a dog walker was critically injured. Lady Gaga is offering a reward for their safe return, a representative said.`\
 https://nytimes.com/2021/02/25/us/lady-gaga-dogs.html?searchResultPosition=2
 
 **Teens and Parents: Are You Grappling With Mental Health Issues?**\
