@@ -7,7 +7,7 @@ https://nytimes.com/2021/02/25/business/dealbook/mckinsey-kevin-sneader.html?sea
 https://nytimes.com/2021/02/25/movies/the-united-states-vs-billie-holiday-review.html?searchResultPosition=2
 
 **Tiger Woods and Another Terrible Turn of Fate**\
-`It is easy to cling to memories of Tiger Woods at his peaks, but his frailties tell as much, if not more, about his powerful hold on sport and culture.`\
+`It is easy to cling to memories of Tiger Woods at his peaks, but his vulnerability tells as much, if not more, about his powerful hold on sport and culture.`\
 https://nytimes.com/2021/02/25/sports/golf/tiger-woods-accident.html?searchResultPosition=3
 
 **‘The Vigil’ Review: What Could Go Wrong Watching Over the Dead?**\
