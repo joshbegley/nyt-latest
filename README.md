@@ -18,7 +18,7 @@ https://nytimes.com/2021/02/25/business/economy/us-trade-biden-katherine-tai.htm
 `“There is no economic recovery in our area unless a working creative engine is driving it,” said Representative Karen Bass of California.`\
 https://nytimes.com/2021/02/25/arts/california-arts-funding.html?searchResultPosition=6
 
-**Mr. Potato Head Goes Gender Neutral**\
+**Mr. Potato Head Brand Goes Gender Neutral**\
 `Hasbro is dropping the Mr. from the Mr. Potato Head brand name and logo “to promote gender equality and inclusion,’’ the company said.`\
 https://nytimes.com/2021/02/25/business/mr-potato-head-gender-neutral.html?searchResultPosition=7
 
