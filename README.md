@@ -2,7 +2,7 @@
 `A bleak reminder that the recent progress the state has made against the pandemic may be fragile.`\
 https://nytimes.com/2021/02/24/world/california-50000-covid-deaths.html?searchResultPosition=1
 
-**Golf Without Tiger Woods? His Fellow Players Can Barely Imagine.**\
+**Golf Without Tiger Woods? His Fellow Players Can Barely Imagine**\
 `Woods, 45, has been sidelined before as he recovered from various ailments. But this time, after a car crash that left him with serious leg injuries, feels different.`\
 https://nytimes.com/2021/02/24/sports/tiger-woods-golf-pga-crash.html?searchResultPosition=2
 
