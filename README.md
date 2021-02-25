@@ -20,7 +20,7 @@ https://nytimes.com/2021/02/25/us/politics/coronavirus-carrier-nimitz-navy-austi
 
 **Biden Announces 50 Million Vaccinations Since Taking Office**\
 `President Biden said on Thursday that 50 million coronavirus vaccines have been administered since Jan. 20, a halfway point toward his goal of administering 100 million in his first 100 days in office.`\
-https://nytimes.com/video/us/politics/100000007624778/biden-administration-50-million-vaccinations.html?searchResultPosition=7
+https://nytimes.com/video/embedded/us/politics/100000007624778/biden-administration-50-million-vaccinations.html?searchResultPosition=7
 
 **Loretta Whitfield, Creator of a Doll With a Difference, Dies at 79**\
 `In the 1980s, amid the craze for Cabbage Patch Kids, she and her husband came up with an alternative: Baby Whitney, a doll with realistic Black features.`\
