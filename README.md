@@ -2,7 +2,7 @@
 `Maya Zinshtein’s revelatory documentary explores the political and philanthropic alliance of American evangelical Christians and Israeli Jews.`\
 https://nytimes.com/2021/02/25/movies/til-kingdom-come-review.html?searchResultPosition=1
 
-**Lady Gaga’s Dogs Are Stolen and Dog Walker is Shot**\
+**Lady Gaga’s Dogs Are Stolen and Dog Walker Is Shot**\
 `The Los Angeles police said that two French bulldogs were taken Wednesday night. Lady Gaga is offering a reward for their safe return, a representative said.`\
 https://nytimes.com/2021/02/25/us/lady-gaga-dogs.html?searchResultPosition=2
 
