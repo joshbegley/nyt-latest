@@ -36,5 +36,5 @@ https://nytimes.com/2021/02/24/us/jimmy-carter-church-georgia.html?searchResultP
 
 **Biden Seeks More Control Over Postal Service With New Appointments**\
 `The president nominated three people to the beleaguered agency’s board on a day when the postmaster general, Louis DeJoy, a major Republican donor, faced questioning on Capitol Hill.`\
-https://nytimes.com/2021/02/24/us/politics/biden-postal-service-appointments.html?searchResultPosition=10
+https://nytimes.com/2021/02/24/us/politics/joe-biden-usps.html?searchResultPosition=10
 
