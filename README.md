@@ -6,7 +6,7 @@ https://nytimes.com/2021/02/25/technology/airbnb-earnings.html?searchResultPosit
 `Some are calling David Dobrik’s new photo app, Dispo, the next Instagram.`\
 https://nytimes.com/2021/02/25/style/dispo-david-dobrik-disposable-camera-app.html?searchResultPosition=3
 
-**How to Clean 7 Surprisingly Gross Things**\
+**How to Clean 6 Surprisingly Gross Things**\
 `You might be shocked by how dirty some of your household items can get. Here's what to do about them.`\
 https://nytimes.com/interactive/2021/02/25/smarter-living/wirecutter/how-to-clean-gross-things.html?searchResultPosition=4
 
