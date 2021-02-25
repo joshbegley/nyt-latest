@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘What Students Are Saying About Race and Racism in America’**\
-`In this lesson, students will read what 36 teenagers think about these important, complicated, personal and often painful topics and then reflect on what they think as well.`\
-https://nytimes.com/2021/02/25/learning/lesson-of-the-day-what-students-are-saying-about-race-and-racism-in-america.html?searchResultPosition=1
+**How the Pandemic Nearly Tore Israel Apart**\
+`Lockdowns brought tensions between secular and ultra-Orthodox communities to the boiling point. The political consequences could be felt for years to come.`\
+https://nytimes.com/2021/02/25/magazine/how-the-pandemic-nearly-tore-israel-apart.html?searchResultPosition=1
 
-**When an Actor Calls With a Poem to Share**\
-`A Paris playhouse has developed a program of one-on-one “consultations,” delivered by its artists while the theater is closed.`\
-https://nytimes.com/2021/02/25/theater/poetic-consultations-theatre-de-la-ville-paris.html?searchResultPosition=2
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually.`\
+https://nytimes.com/2021/02/25/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=2
 
-**Behind the Curtain**\
-`What do you think this image is saying?`\
-https://nytimes.com/2021/02/25/learning/behind-the-curtain.html?searchResultPosition=3
+**The Retired Boys of Summer Play On**\
+`Senior softball leagues remain an essential lifeline for many retirees. I would know: My 83-year-old father is playing through the pandemic.`\
+https://nytimes.com/2021/02/25/sports/the-retired-boys-of-summer-play-on.html?searchResultPosition=3
 
-**This Website Puts Boisterous Children and Noisy Neighbors on the Map**\
-`The crowdsourced guide collects anonymous gripes and pins every grievance on an interactive map, creating a record of the irritating sounds and sights of Japan.`\
-https://nytimes.com/2021/02/25/world/asia/japan-noise-map.html?searchResultPosition=4
+**‘V.I.P. Immunization’ for the Powerful and Their Cronies Rattles South America**\
+`A wave of corruption scandals is exposing how the powerful and well-connected in South America jumped the line to get vaccines early. Public dismay is turning into anger.`\
+https://nytimes.com/2021/02/25/world/americas/vip-immunization-for-the-powerful-and-their-cronies-rattles-south-america.html?searchResultPosition=4
 
-**Word + Quiz: tangible**\
-`This word has appeared in 370 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/25/learning/word-quiz-tangible.html?searchResultPosition=5
+**For Travel, a Sustainable Comeback?**\
+`From a newly certified Whale Heritage Site to scenic byways for electric cars, five new initiatives suggest the travel industry may be envisioning a more responsible future.`\
+https://nytimes.com/2021/02/25/travel/sustainable-travel-environment-pandemic.html?searchResultPosition=5
 
-**Late Night Laughs Off Mike Pence’s Renewed Loyalty to Trump**\
-`“I don’t know where the line is between forgiving and being a doormat, but Mike Pence crossed it a long time ago,” Trevor Noah said.`\
-https://nytimes.com/2021/02/25/arts/television/trevor-noah-mike-pence-donald-trump.html?searchResultPosition=6
+**For Shielding Endangered Neighbors, Pandas Make Flimsy Umbrellas**\
+`A new study challenges a common hypothesis about how protecting charismatic species also conserves animals that are less well known.`\
+https://nytimes.com/2021/02/25/science/pandas-umbrella-species.html?searchResultPosition=6
 
-**When the Romance Ends, but the Brand Goes On**\
-`Tamara Ralph and Michael Russo, who make fantasy dresses for the superrich, had a personal fairy tale narrative. Now, they are writing a new chapter.`\
-https://nytimes.com/2021/02/25/fashion/when-the-romance-ends-but-the-brand-goes-on.html?searchResultPosition=7
+**Podcasting Is Booming. Will Hollywood Help or Hurt Its Future?**\
+`A frothy adaptation market is just one sign of the rapid evolution of the industry. But some worry that big money will stifle the D.I.Y. spirit that has driven much of its success.`\
+https://nytimes.com/2021/02/25/arts/podcasts-hollywood-future.html?searchResultPosition=7
 
-**More Adult Americans Are Identifying as L.G.B.T., Gallup Poll Finds**\
-`A survey found that 5.6 percent of adults described themselves as L.G.B.T. in 2020, up from 4.5 percent in 2017.`\
-https://nytimes.com/2021/02/24/us/lgbt-identification-usa.html?searchResultPosition=8
+**What Happens When a Publisher Becomes a Megapublisher?**\
+`The merger of Penguin Random House and Simon & Schuster has the potential to touch every part of the industry, including how much authors get paid and how bookstores are run.`\
+https://nytimes.com/2021/02/25/books/penguin-random-house-simon-schuster-publishing.html?searchResultPosition=8
 
-**Corrections: Feb. 25, 2021**\
-`Corrections that appeared in print on Thursday, Feb. 25, 2021.`\
-https://nytimes.com/2021/02/24/pageoneplus/corrections-feb-25-2021.html?searchResultPosition=9
+**Want to Be Mayor of New York? Better Know Your Wings and Dumplings**\
+`Food can be a unifying or divisive factor in New York City politics, with people taking sides on pizza slices, deli choices and utensil selection.`\
+https://nytimes.com/2021/02/25/nyregion/food-mayor-race-nyc.html?searchResultPosition=9
 
-**Quotation of the Day: Mental Health and Homeless Crises Collided in Subway Attacks**\
-`Quotation of the Day for Thursday, February 25, 2021.`\
-https://nytimes.com/2021/02/24/todayspaper/quotation-of-the-day-mental-health-and-homeless-crises-collided-in-subway-attacks.html?searchResultPosition=10
+**What to Watch For at CPAC: Trump, Cruz, Pompeo and More**\
+`Even more than usual, the Conservative Political Action Conference this year will be a barometer for the Republican Party, newly out of power in Washington and trying to chart a way back.`\
+https://nytimes.com/2021/02/25/us/politics/cpac-guide-speakers-schedule.html?searchResultPosition=10
 
