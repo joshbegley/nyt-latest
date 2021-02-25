@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/24/business/covid19-vaccine-finder.html?searchResult
 https://nytimes.com/2021/02/24/us/politics/biden-jamal-khashoggi-saudi-arabia.html?searchResultPosition=3
 
 **Jimmy and Rosalynn Carter, Newly Vaccinated, Return to Church in Georgia**\
-`The Carters have long been devoted members of Maranatha Baptist Church in Plains, Ga.— both of them as deacons, and he, for decades, as a Sunday school teacher.`\
+`The Carters have long been devoted members of Maranatha Baptist Church in Plains, Ga. — both of them as deacons, and he, for decades, as a Sunday school teacher.`\
 https://nytimes.com/2021/02/24/us/jimmy-carter-church-georgia.html?searchResultPosition=4
 
 **Biden Seeks More Control Over Postal Service With New Appointments**\
