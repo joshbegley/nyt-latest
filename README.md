@@ -24,7 +24,7 @@ https://nytimes.com/2021/02/24/opinion/us-gun-control.html?searchResultPosition=
 
 **Helping People Find Covid-19 Vaccines Is Aim of C.D.C.-Backed Site**\
 `VaccineFinder.org is an ambitious but limited attempt to simplify Americans’ search for vaccines.`\
-https://nytimes.com/2021/02/24/business/covid19-vaccine-finder.html?searchResultPosition=7
+https://nytimes.com/2021/02/24/business/vaccine-finder-org.html?searchResultPosition=7
 
 **Candidate Biden Called Saudi Arabia a ‘Pariah.’ He Now Has to Deal With It.**\
 `In a coming call with King Salman, the president plans to warn him that the United States will soon make public intelligence about the Saudi crown prince’s role in the killing of Jamal Khashoggi.`\
