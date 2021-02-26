@@ -30,7 +30,7 @@ https://nytimes.com/2021/02/25/us/texas-winter-storm-del-rio.html?searchResultPo
 `Jennifer M. Granholm on Thursday became the second woman to lead the Department of Energy, an agency with a key role in creating a greener economy under the Biden administration.`\
 https://nytimes.com/video/us/politics/100000007625122/granholm-sworn-in-energy-secretary.html?searchResultPosition=8
 
-**U.S. Airstrikes in Syria Target Iran-Backed Militias That Rocketed U.S. Troops in Iraq**\
+**U.S. Airstrikes in Syria Target Iran-Backed Militias That Rocketed American Troops in Iraq**\
 `President Biden ordered retaliatory strikes against the militias whose attacks in Erbil this month killed one civilian contractor and wounded a U.S. service member.`\
 https://nytimes.com/2021/02/25/us/politics/biden-syria-airstrike-iran.html?searchResultPosition=9
 
