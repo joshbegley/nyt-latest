@@ -6,7 +6,7 @@ https://nytimes.com/2021/02/26/books/celebrating-125-years-of-the-book-review-wi
 `Here’s what the late-night hosts had to say about another big week for Trump.`\
 https://nytimes.com/interactive/2021/02/26/arts/television/best-of-late-night.html?searchResultPosition=2
 
-**Want to Buy a Hair-Scrunchie Mask? Great. But Forget About That N95.**\
+**Want to Buy a Scrunchie Mask? Great. But Forget About That N95.**\
 `Scientists are urging Americans to upgrade their face coverings. But Amazon, Google and Facebook restrict the sale of medical-grade masks. Critics say the rules are outdated.`\
 https://nytimes.com/2021/02/26/health/n95-masks-facebook-sale-amazon.html?searchResultPosition=3
 
