@@ -1,5 +1,5 @@
 **Amazon Moves From Film Industry’s Margins to the Mainstream**\
-`With several films competing for Golden Globes on Sunday night and a number of high-priced movies coming this year, the streaming service has altered its reputation in Hollywood.`\
+`With several films competing for Golden Globes on Sunday and a number of high-priced movies coming this year, the streaming service has altered its reputation in Hollywood.`\
 https://nytimes.com/2021/02/26/business/media/amazon-films-jennifer-salke.html?searchResultPosition=1
 
 **How to Help a Teen Out of a Homework Hole**\
