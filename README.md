@@ -16,7 +16,7 @@ https://nytimes.com/video/us/politics/100000007625122/granholm-sworn-in-energy-s
 
 **U.S. Airstrikes in Syria Target Iran-Backed Militias That Rocketed U.S. Troops in Iraq**\
 `President Biden ordered retaliatory strikes against the militias whose attacks in Erbil this month killed one civilian contractor and wounded a U.S. service member.`\
-https://nytimes.com/2021/02/25/us/politics/american-airstrikes-iran-militias-syria-iraq.html?searchResultPosition=5
+https://nytimes.com/2021/02/25/us/politics/biden-syria-airstrike-iran.html?searchResultPosition=5
 
 **D.C.’s Mayor Mourned Covid’s Unequal Toll. Her Sister Is the Latest Victim.**\
 `As the number of coronavirus deaths in the city reached 1,000 this week, three-fourths of the dead were Black.`\
