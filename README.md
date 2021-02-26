@@ -1,40 +1,40 @@
+**How to Help a Teen Out of a Homework Hole**\
+`The more students fall behind in the pandemic, the less likely they are to feel that they can catch up.`\
+https://nytimes.com/2021/02/26/well/family/teens-homework-school.html?searchResultPosition=1
+
+**Decline in Coronavirus Cases ‘May Be Stalling,’ C.D.C. Director Warns**\
+`Dr. Rochelle Walensky, director of the Centers for Disease Control and Prevention, said on Friday that a recent decline in coronavirus cases across the U.S. “may be stalling” and urged governors not to relax restrictions.`\
+https://nytimes.com/video/us/100000007626337/cdc-coronavirus-cases-stalling.html?searchResultPosition=2
+
+**2021 Golden Globes Predictions: Will ‘Borat’ Be the Big Winner?**\
+`Sacha Baron Cohen and his news-making movie could sweep the comedy categories. In drama, “The Trial of the Chicago 7” and “Nomadland” will battle it out.`\
+https://nytimes.com/2021/02/26/movies/golden-globes-predictions.html?searchResultPosition=3
+
+**Biden Won’t Penalize Saudi Crown Prince Over Khashoggi’s Killing, Fearing Relations Breach**\
+`The decision will disappoint the human rights community and members of his own party who complained during the Trump administration that the U.S. was failing to hold Mohammed bin Salman accountable.`\
+https://nytimes.com/2021/02/26/us/politics/biden-mbs-khashoggi.html?searchResultPosition=4
+
 **Claudette White, Innovative Tribal Judge, Dies at 49**\
 `Judge White was an advocate for her people, the Quechan of Southern California. She had been calling out injustice since the third grade. She died of Covid-19.`\
-https://nytimes.com/2021/02/26/obituaries/00claudette-white-dead-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2021/02/26/obituaries/00claudette-white-dead-coronavirus.html?searchResultPosition=5
 
 **Love Letter: Seniors Find Love During the Pandemic**\
 `And: How two babies became husband and wife.`\
-https://nytimes.com/2021/02/26/style/love-letter-newsletter-seniors-find-love-during-the-pandemic.html?searchResultPosition=2
+https://nytimes.com/2021/02/26/style/love-letter-newsletter-seniors-find-love-during-the-pandemic.html?searchResultPosition=6
 
 **Season One, Episode 12: What We Know**\
 `After 15 months of reporting, we take out everything we’ve got and we see what sticks.`\
-https://nytimes.com/article/serial-podcast-season-1-episode-12.html?searchResultPosition=3
+https://nytimes.com/article/serial-podcast-season-1-episode-12.html?searchResultPosition=7
 
 **Season One, Episode 11: Rumors**\
 `Almost everyone described the 17-year-old version of Adnan the same way: good kid, helpful at the mosque, respectful to his elders. But Sarah started hearing stories of a different kind of boy.`\
-https://nytimes.com/article/serial-podcast-season-1-episode-11.html?searchResultPosition=4
+https://nytimes.com/article/serial-podcast-season-1-episode-11.html?searchResultPosition=8
 
 **Season One, Episode 10: The Best Defense Is a Good Defense**\
 `Adnan’s trial lawyer was a renowned defense attorney — tough and savvy and smart. But Adnan was convicted and she was disbarred. What happened?`\
-https://nytimes.com/article/serial-podcast-season-1-episode-10.html?searchResultPosition=5
+https://nytimes.com/article/serial-podcast-season-1-episode-10.html?searchResultPosition=9
 
 **Chancellor of N.Y.C. Schools to Resign**\
 `Richard A. Carranza, chancellor of New York City public schools, said on Friday he would resign in March. The move follows repeated clashes between the chancellor and Mayor Bill de Blasio on school desegregation policy.`\
-https://nytimes.com/video/nyregion/100000007626317/nyc-school-chancellor-carranza-resigns.html?searchResultPosition=6
-
-**Season One, Episode 9: To Be Suspected**\
-`New information is coming in about what maybe didn’t happen on January 13, 1999.`\
-https://nytimes.com/article/serial-podcast-season-1-episode-9.html?searchResultPosition=7
-
-**Season One, Episode 08: The Deal with Jay**\
-`The state’s case against Adnan Syed hinged on Jay’s credibility; he was their star witness and also their chief liability. So how did the jury make sense of Jay?`\
-https://nytimes.com/article/serial-podcast-season-1-episode-8.html?searchResultPosition=8
-
-**Season One, Episode 7: The Opposite of Prosecution**\
-`Sarah learned about another case with striking similarities to Adnan’s: a key witness, cell records, young people, drugs.`\
-https://nytimes.com/article/serial-podcast-season-1-episode-7.html?searchResultPosition=9
-
-**Season One, Episode 6: The Case Against Adnan Syed**\
-`Sarah weighs all the other circumstantial evidence prosecutors had against Adnan, including curious behavior, a dramatic note and an unexplained mid-afternoon phone call.`\
-https://nytimes.com/article/serial-podcast-season-1-episode-6.html?searchResultPosition=10
+https://nytimes.com/video/nyregion/100000007626317/nyc-school-chancellor-carranza-resigns.html?searchResultPosition=10
 
