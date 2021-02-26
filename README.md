@@ -11,7 +11,7 @@ https://nytimes.com/2021/02/26/world/europe/EU-vaccine-hunt.html?searchResultPos
 https://nytimes.com/2021/02/26/business/india-economy-recession-recovery.html?searchResultPosition=3
 
 **As a Weakened Cuomo Looks to a 4th Term, Challengers See Opportunity**\
-`The growing uncertainty over Gov. Andrew Cuomo’s political fortunes is a sharp turnaround from last year, when some supporters dreamed of a presidential bid.`\
+`The growing uncertainty over Gov. Andrew Cuomo’s political fortunes is a sharp turnaround from last year, when some supporters dreamed of a presidential bid. Potential challengers have noticed.`\
 https://nytimes.com/2021/02/26/nyregion/andrew-cuomo-election-challengers.html?searchResultPosition=4
 
 **The Biden administration buys 100,000 doses of a combination antibody treatment for high-risk Covid-19 patients.**\
