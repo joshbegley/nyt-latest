@@ -1,40 +1,40 @@
+**Aliens, Book Organizing Tricks and Other Letters to the Editor**\
+`Readers respond to recent issues of the Sunday Book Review.`\
+https://nytimes.com/2021/02/26/books/review/aliens-book-organizing-tricks-and-other-letters-to-the-editor.html?searchResultPosition=1
+
+**New in Paperback: ‘Real Life’ and ‘A Game of Birds and Wolves’**\
+`Six new paperbacks to check out this week.`\
+https://nytimes.com/2021/02/26/books/review/new-paperbacks.html?searchResultPosition=2
+
+**Murder, Mayhem and Menace: New Crime Fiction**\
+`In these novels, bodies disappear, swallowed by sinkholes and forests.`\
+https://nytimes.com/2021/02/26/books/review/crime-fiction-sarah-weinman.html?searchResultPosition=3
+
+**His Debut Novel Won the Pulitzer. Now It Has an Action-Packed Sequel.**\
+`In “The Committed,” a follow-up to “The Sympathizer,” Viet Thanh Nguyen’s nameless spy navigates a Paris underworld rife with drug deals, violence and colonialism’s ghosts.`\
+https://nytimes.com/2021/02/26/books/review/viet-thanh-nguyen-committed.html?searchResultPosition=4
+
+**Weekly Health Quiz: Diet, Weight and Covid**\
+`Test your knowledge of this week’s health news.`\
+https://nytimes.com/interactive/2021/02/26/well/live/26healthquiz-02262021.html?searchResultPosition=5
+
+**How a Gen-Z Disney Star Wrote a Runaway Hit**\
+`See how the singer-songwriter and actress wrote her chart-topping first single — after a good cry and with TikTok in mind.`\
+https://nytimes.com/video/arts/music/100000007564611/olivia-rodrigo-drivers-license.html?searchResultPosition=6
+
 **An Obituary Series With a Life of Its Own**\
 `The videos in The Last Word collection feature interviews with figures conducted years before their death, frozen in time. And that can be the problem.`\
-https://nytimes.com/2021/02/26/insider/last-word-obituaries.html?searchResultPosition=1
+https://nytimes.com/2021/02/26/insider/last-word-obituaries.html?searchResultPosition=7
 
 **Lesson of the Day: ‘The Other Serena’**\
 `In this lesson, students will learn about a ball kid who was able to work alongside her namesake, Serena Williams, at the Australian Open. Then, they will write a letter to a hero or mentor with whom they would like to collaborate.`\
-https://nytimes.com/2021/02/26/learning/lesson-of-the-day-the-other-serena.html?searchResultPosition=2
+https://nytimes.com/2021/02/26/learning/lesson-of-the-day-the-other-serena.html?searchResultPosition=8
 
 **Nigerian Students Are Abducted in 2nd Kidnapping in Just Over a Week**\
 `The authorities declined to say how many students were taken in an area where a surge in armed militancy has led to a worsening breakdown of security.`\
-https://nytimes.com/2021/02/26/world/africa/nigeria-kidnap-students-schoolchildren.html?searchResultPosition=3
+https://nytimes.com/2021/02/26/world/africa/nigeria-kidnap-students-schoolchildren.html?searchResultPosition=9
 
 **Michael Somare, Papua New Guinea’s ‘Father of the Nation,’ Dies at 84**\
 `Mr. Somare, who played a major role in leading the country to independence from Australia, was its longest-serving prime minister, holding the office three times.`\
-https://nytimes.com/2021/02/26/world/asia/michael-somare-dead.html?searchResultPosition=4
-
-**In a Changing Military, Army Eases Rules for Women’s Hair**\
-`The Army, which is increasingly dependent on female soldiers, has issued new regulations that allow women to wear lipstick and no longer limits their hair to a tight, disciplined bun.`\
-https://nytimes.com/2021/02/26/us/army-haircut-women-grooming-standard.html?searchResultPosition=5
-
-**Street Scavenging**\
-`What are the best things you have obtained for free?`\
-https://nytimes.com/2021/02/26/learning/street-scavenging.html?searchResultPosition=6
-
-**Word + Quiz: punctilious**\
-`This word has appeared in four articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/02/26/learning/word-quiz-punctilious.html?searchResultPosition=7
-
-**Seth Meyers Is Excited to See Trump’s Tax Returns**\
-`Meyers said it shouldn’t be hard for the Manhattan D.A. to find a crime in “the tax records of a guy who claims to be a billionaire, yet paid only $750 in federal income taxes when he was president.”`\
-https://nytimes.com/2021/02/26/arts/television/seth-meyers-trump-tax-returns.html?searchResultPosition=8
-
-**5 Picture Books About the Wonders of Science**\
-`Fossils, flowers, galaxies and a rare “lefty” snail.`\
-https://nytimes.com/2021/02/26/books/review/maria-popova-ping-zhu-the-snail-with-the-right-heart-a-true-story.html?searchResultPosition=9
-
-**North Korea’s borders are closed, but Russia says some of its citizens found a way out by trolley.**\
-`Russia’s Foreign Ministry said some of its citizens, including a diplomat and his 3-year-old, left North Korea on a hand-pushed railroad trolley.`\
-https://nytimes.com/2021/02/25/world/europe/russia-north-korea-covid.html?searchResultPosition=10
+https://nytimes.com/2021/02/26/world/asia/michael-somare-dead.html?searchResultPosition=10
 
