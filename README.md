@@ -14,7 +14,7 @@ https://nytimes.com/2021/02/26/podcasts/odessa-school-reopenings-texas.html?sear
 `Pilots diverted to an airport in Moscow after an indicator warned of a possible engine failure on the airplane, a week after engines failed on two other Boeing jets.`\
 https://nytimes.com/2021/02/26/world/europe/boeing-777-engine-emergency-landing.html?searchResultPosition=4
 
-**Positive Coronavirus Tests Decline in N.Y., but Variants Loom**\
+**Positive Virus Tests Decline in N.Y., but Variants Loom**\
 `The number of people testing positive is dropping slowly, but new variants and a relatively slow vaccination rate  threaten progress.`\
 https://nytimes.com/2021/02/26/nyregion/coronavirus-variants-new-york.html?searchResultPosition=5
 
