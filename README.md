@@ -3,7 +3,7 @@
 https://nytimes.com/2021/02/26/books/celebrating-125-years-of-the-book-review-with-a-quiz.html?searchResultPosition=1
 
 **The Best of Late Night This Week 🌙**\
-`Here's what the late-night hosts had to say about another big week for Trump`\
+`Here’s what the late-night hosts had to say about another big week for Trump.`\
 https://nytimes.com/interactive/2021/02/26/arts/television/best-of-late-night.html?searchResultPosition=2
 
 **Want to Buy a Hair-Scrunchie Mask? Great. But Forget About That N95.**\
