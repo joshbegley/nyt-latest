@@ -1,40 +1,40 @@
-**Aliens, Book Organizing Tricks and Other Letters to the Editor**\
-`Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2021/02/26/books/review/aliens-book-organizing-tricks-and-other-letters-to-the-editor.html?searchResultPosition=1
+**Extreme D.I.Y. for Home Decor**\
+`Since they have spent so much time at home in the last year, some homeowners have taken craft and design projects to a new level.`\
+https://nytimes.com/2021/02/26/realestate/extreme-diy-for-home-decor.html?searchResultPosition=1
 
-**New in Paperback: ‘Real Life’ and ‘A Game of Birds and Wolves’**\
-`Six new paperbacks to check out this week.`\
-https://nytimes.com/2021/02/26/books/review/new-paperbacks.html?searchResultPosition=2
+**Getting Crafty in the Pandemic**\
+`Since they’re spending so much time at home, some homeowners have upped their D.I.Y. game in the last year.`\
+https://nytimes.com/slideshow/2021/02/26/realestate/getting-crafty-in-the-pandemic.html?searchResultPosition=2
 
-**Murder, Mayhem and Menace: New Crime Fiction**\
-`In these novels, bodies disappear, swallowed by sinkholes and forests.`\
-https://nytimes.com/2021/02/26/books/review/crime-fiction-sarah-weinman.html?searchResultPosition=3
+**University Finds 18th-Century Schoolhouse Where Black Children Learned to Read**\
+`The Bray School, which taught Christianity and reading to free and enslaved Black children, was found tucked inside a campus building at William & Mary in Virginia.`\
+https://nytimes.com/2021/02/26/us/william-mary-bray-school-northam.html?searchResultPosition=3
 
-**His Debut Novel Won the Pulitzer. Now It Has an Action-Packed Sequel.**\
-`In “The Committed,” a follow-up to “The Sympathizer,” Viet Thanh Nguyen’s nameless spy navigates a Paris underworld rife with drug deals, violence and colonialism’s ghosts.`\
-https://nytimes.com/2021/02/26/books/review/viet-thanh-nguyen-committed.html?searchResultPosition=4
+**‘Like a Warm Hug From an Angel’**\
+`For a handful of cultures across the globe, the Arab world among them, these distinct blankets deliver not only an impossibly warm, soft hug but a great sense of belonging.`\
+https://nytimes.com/2021/02/26/arts/immigrant-blankets-arab.html?searchResultPosition=4
 
-**Weekly Health Quiz: Diet, Weight and Covid**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2021/02/26/well/live/26healthquiz-02262021.html?searchResultPosition=5
+**Away From Silicon Valley, the Military Is the Ideal Customer**\
+`While much has been made of tech’s unwillingness to work with the Pentagon, start-ups are still plumbing the industry’s decades-long ties to the military.`\
+https://nytimes.com/2021/02/26/technology/anduril-military-palmer-luckey.html?searchResultPosition=5
 
-**How a Gen-Z Disney Star Wrote a Runaway Hit**\
-`See how the singer-songwriter and actress wrote her chart-topping first single — after a good cry and with TikTok in mind.`\
-https://nytimes.com/video/arts/music/100000007564611/olivia-rodrigo-drivers-license.html?searchResultPosition=6
+**These 5 Teenagers Managed to Volunteer This Year. Here’s How.**\
+`They phone banked, painted murals, tutored, and more.`\
+https://nytimes.com/2021/02/26/nyregion/high-school-volunteers-nyc.html?searchResultPosition=6
 
-**An Obituary Series With a Life of Its Own**\
-`The videos in The Last Word collection feature interviews with figures conducted years before their death, frozen in time. And that can be the problem.`\
-https://nytimes.com/2021/02/26/insider/last-word-obituaries.html?searchResultPosition=7
+**Why Common Colds Might Spike When Kids Return to School**\
+`Hong Kong schools reported a surge in colds when students resumed in-person learning. Here’s what it means for kids in the U.S., and what parents can do to prepare.`\
+https://nytimes.com/2021/02/26/parenting/common-cold-rise-in-schools.html?searchResultPosition=7
 
-**Lesson of the Day: ‘The Other Serena’**\
-`In this lesson, students will learn about a ball kid who was able to work alongside her namesake, Serena Williams, at the Australian Open. Then, they will write a letter to a hero or mentor with whom they would like to collaborate.`\
-https://nytimes.com/2021/02/26/learning/lesson-of-the-day-the-other-serena.html?searchResultPosition=8
+**Sourdough on Shabbat? Inside the City’s Kosher Food Revolution**\
+`Young observant Jews are stretching the boundaries of traditional cuisine.`\
+https://nytimes.com/2021/02/26/nyregion/sourdough-on-shabbat-inside-the-citys-kosher-food-revolution.html?searchResultPosition=8
 
-**Nigerian Students Are Abducted in 2nd Kidnapping in Just Over a Week**\
-`The authorities declined to say how many students were taken in an area where a surge in armed militancy has led to a worsening breakdown of security.`\
-https://nytimes.com/2021/02/26/world/africa/nigeria-kidnap-students-schoolchildren.html?searchResultPosition=9
+**A Millennial Woman Takes on the U.N.**\
+`Arora Akanksha, a 34-year-old auditor with no diplomatic experience, has declared her candidacy for secretary general — an audacious bid to shake up an organization that she says badly needs it.`\
+https://nytimes.com/2021/02/26/world/americas/arora-akanksha-united-nations.html?searchResultPosition=9
 
-**Michael Somare, Papua New Guinea’s ‘Father of the Nation,’ Dies at 84**\
-`Mr. Somare, who played a major role in leading the country to independence from Australia, was its longest-serving prime minister, holding the office three times.`\
-https://nytimes.com/2021/02/26/world/asia/michael-somare-dead.html?searchResultPosition=10
+**Bosses Shouldn’t Demand That You Be Vaccinated**\
+`Let the government make the policy.`\
+https://nytimes.com/2021/02/26/opinion/business-economics/company-vaccine-requirements.html?searchResultPosition=10
 
