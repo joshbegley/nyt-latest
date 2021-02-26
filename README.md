@@ -10,7 +10,7 @@ https://nytimes.com/2021/02/26/sports/baseball/singled-out-glenn-burke-excerpt.h
 `Selling digitally isn’t the same, most agree. But that doesn’t mean that bricks-and-mortar exhibition spaces will all return to how they were.`\
 https://nytimes.com/2021/02/26/arts/design/art-galleries-real-estate-pandemic.html?searchResultPosition=3
 
-**A Harvard Professor Called ‘Comfort Women’ Prostitutes. One Pushed Back.**\
+**A Harvard Professor Called Wartime Sex Slaves ‘Prostitutes.’ One Pushed Back.**\
 `The professor was widely criticized for writing that the women served Japanese troops willingly during World War II. A Korean survivor called the uproar a “blessing in disguise.”`\
 https://nytimes.com/2021/02/26/world/asia/harvard-professor-comfort-women.html?searchResultPosition=4
 
