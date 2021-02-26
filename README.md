@@ -22,19 +22,19 @@ https://nytimes.com/2021/02/26/world/asia/bangladesh-mushtaq-ahmed-dead.html?sea
 `Narc-narc, who’s there?`\
 https://nytimes.com/2021/02/26/style/the-season-of-the-snitch.html?searchResultPosition=6
 
+**Canada authorizes the AstraZeneca vaccine.**\
+`The addition of a third vaccine may ease the country’s growing dissatisfaction about the sluggish pace of vaccinations.`\
+https://nytimes.com/2021/02/26/world/canada-astrazeneca-vaccine.html?searchResultPosition=7
+
 **Punish Lawyers for Complicity With Trump?**\
 `“Lawyers have a professional and moral obligation not to represent claims they know are frivolous,” a lawyer writes.`\
-https://nytimes.com/2021/02/26/opinion/letters/lawyers-trump.html?searchResultPosition=7
+https://nytimes.com/2021/02/26/opinion/letters/lawyers-trump.html?searchResultPosition=8
 
 **As Brazil faces record Covid deaths, a variant-fueled surge and lagging vaccinations, Bolsonaro disparages masks.**\
 `The president says that the pandemic precaution can lead to headaches, difficulty concentrating and a “decreased perception of happiness.”`\
-https://nytimes.com/2021/02/26/world/Bolsonaro-face-masks.html?searchResultPosition=8
+https://nytimes.com/2021/02/26/world/Bolsonaro-face-masks.html?searchResultPosition=9
 
 **What to Cook This Weekend**\
 `A Southern caramel cake, pork chops with lemon-caper sauce, or a slow-rising focaccia: Eat well this weekend.`\
-https://nytimes.com/2021/02/26/dining/what-to-cook-this-weekend.html?searchResultPosition=9
-
-**Britain’s Transgender Stand-Ups Find Comedy in a Hostile Climate**\
-`With opposition to transgender issues regularly expressed by mainstream British figures, the country’s trans comedians are often just trying to assert their humanity.`\
-https://nytimes.com/2021/02/26/arts/transgender-comedy-uk.html?searchResultPosition=10
+https://nytimes.com/2021/02/26/dining/what-to-cook-this-weekend.html?searchResultPosition=10
 
