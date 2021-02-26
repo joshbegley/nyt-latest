@@ -22,8 +22,8 @@ https://nytimes.com/2021/02/25/movies/billie-eilish-the-worlds-a-little-blurry-r
 `An Oklahoma man whose prison sentence had been commuted cut out and cooked a woman’s heart and tried to feed it to his relatives before killing two of them, the authorities said.`\
 https://nytimes.com/2021/02/25/us/lawrence-anderson-oklahoma-release-killings.html?searchResultPosition=6
 
-**Seven Killed in Haiti Jail Break Attempt**\
-`Residents said heavily armed men had shot at prison guards before the inmates began to flee from a prison in Port-au-Prince.`\
+**At Least Eight Killed in Haiti Prison Break**\
+`One of Haiti’s most powerful gang leaders was among the inmates who fled the prison in Port-au-Prince.`\
 https://nytimes.com/2021/02/25/world/americas/haiti-jail-break.html?searchResultPosition=7
 
 **‘Victim Blaming’ and Sex Education in the Boys’ Club of Australian Politics**\
