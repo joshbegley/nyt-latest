@@ -27,7 +27,7 @@ https://nytimes.com/2021/02/26/books/review/maria-popova-ping-zhu-the-snail-with
 https://nytimes.com/2021/02/25/world/europe/russia-north-korea-covid.html?searchResultPosition=7
 
 **China Punishes Those Who Question ‘Martyrs.’ A Sleuth Keeps Track.**\
-`An online spreadsheet with an anonymous minder keeps a tally of Xi Jinping’s crackdown on online speech.`\
+`An online spreadsheet with an anonymous minder tabulates Xi Jinping’s crackdown on online speech.`\
 https://nytimes.com/2021/02/26/business/china-online-censorship.html?searchResultPosition=8
 
 **I Met My Husband on the Maternity Ward**\
