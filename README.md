@@ -4,7 +4,7 @@ https://nytimes.com/2021/02/27/realestate/how-to-avoid-scams-when-renting-an-apa
 
 **Some colleges and universities are planning for a ‘more normal’ fall semester.**\
 `Whether they can deliver hinges largely on factors outside their control.`\
-https://nytimes.com/2021/02/26/world/universities-colleges-reopening.html?searchResultPosition=2
+https://nytimes.com/2021/02/26/world/universities-colleges-reopening-covid.html?searchResultPosition=2
 
 **How to Watch the Golden Globes 2021: Date, Time and Streaming**\
 `Here’s a quick guide with everything you need to know for the Hollywood Foreign Press Association film and television awards.`\
