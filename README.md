@@ -7,7 +7,7 @@ https://nytimes.com/2021/02/27/business/china-retirement-homes.html?searchResult
 https://nytimes.com/2021/02/27/crosswords/daily-puzzle-2021-02-28.html?searchResultPosition=2
 
 **Fred Segal, Designer Who Commodified California Cool, Dies at 87**\
-`His laid-back style and namesake jeans made him the curator of California cool, drawing celebrities and tourists alike to his stores.`\
+`His laid-back style and namesake jeans made him a touchstone of 1960s fashion, drawing celebrities and tourists alike to his stores.`\
 https://nytimes.com/2021/02/27/style/fred-segal-dead.html?searchResultPosition=3
 
 **Golden Globes 2021: What to Watch For**\
