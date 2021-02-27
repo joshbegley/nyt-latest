@@ -1,32 +1,40 @@
+**A Gymnastics Coach Was Charged With Human Trafficking. What Does That Mean?**\
+`Experts say the filing of human trafficking charges against John Geddert, who died on Thursday, could have major ramifications for future prosecutions of coaches in the high-pressure world of elite sports.`\
+https://nytimes.com/2021/02/26/sports/human-trafficking-john-geddert-gymnastics.html?searchResultPosition=1
+
+**Biden Visits Storm-Battered Texas and Vows Federal Help ‘For the Long Haul’**\
+`The overwhelming nature of grief has been the unofficial theme this week for a White House confronted with a disaster in the nation’s second largest state amid a pandemic.`\
+https://nytimes.com/2021/02/26/us/politics/biden-texas-storm-recovery.html?searchResultPosition=2
+
 **Why Opening Windows Is a Key to Reopening Schools**\
 `A simulation of airflow in a real New York City classroom shows the risks of coronavirus infection and how simple ventilation and filtration can reduce the probability of exposure.`\
-https://nytimes.com/interactive/2021/02/26/science/reopen-schools-safety-ventilation.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/02/26/science/reopen-schools-safety-ventilation.html?searchResultPosition=3
 
 **Texans Demand Answers as They Grapple With Storm’s Lingering Wrath**\
 `After millions lost power during a winter storm, lawmakers have held marathon hearings, prosecutors have started criminal investigations and residents have asked for accountability.`\
-https://nytimes.com/2021/02/26/us/ercot-texas-storm.html?searchResultPosition=2
+https://nytimes.com/2021/02/26/us/ercot-texas-storm.html?searchResultPosition=4
 
 **Federal Scientists Plead for Pandemic Controls as Infection Declines Stall**\
 `“Now is not the time to relax restrictions,” the C.D.C. director, Rochelle Walensky, said, pointing to a leveling of coronavirus infections as governors move to lift pandemic restrictions.`\
-https://nytimes.com/2021/02/26/us/politics/coronavirus-infection-rates.html?searchResultPosition=3
+https://nytimes.com/2021/02/26/us/politics/coronavirus-infection-rates.html?searchResultPosition=5
 
 **Democrats Toil to Salvage Wage Increase With Stimulus Plan on Brink of Passage**\
 `As the House prepared to pass President Biden’s $1.9 trillion stimulus package as early as Friday night, Democrats were searching for a Plan B to raise the minimum wage.`\
-https://nytimes.com/2021/02/26/us/politics/minimum-wage-stimulus-democrats.html?searchResultPosition=4
+https://nytimes.com/2021/02/26/us/politics/minimum-wage-stimulus-democrats.html?searchResultPosition=6
 
 **CPAC Crowd Cheers Josh Hawley’s Vote Against Election Results**\
 `Senator Josh Hawley received a standing ovation at the Conservative Political Action Conference when he reminded the crowd that he had objected to certifying Joe Biden’s Electoral College victory.`\
-https://nytimes.com/video/us/politics/100000007627275/cpac-josh-hawley-2020-election.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000007627275/cpac-josh-hawley-2020-election.html?searchResultPosition=7
 
 **The Final Push to End the Coronavirus Pandemic in the U.S.**\
 `At last, shots are going into arms in significant numbers, but too many people could still fall through the cracks.`\
-https://nytimes.com/2021/02/26/opinion/vaccine-covid-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2021/02/26/opinion/vaccine-covid-coronavirus.html?searchResultPosition=8
 
 **I Will Not Rest Until This Garden Grows**\
 `Letting nature take its course is getting harder to do.`\
-https://nytimes.com/2021/02/26/opinion/winter-gardening-wildlife.html?searchResultPosition=7
+https://nytimes.com/2021/02/26/opinion/winter-gardening-wildlife.html?searchResultPosition=9
 
 **Unity Proves Elusive in Democrats’ Fight for $15**\
 `If the Democrats have a problem, it’s with the working class.`\
-https://nytimes.com/2021/02/26/us/politics/democrats-minimum-wage.html?searchResultPosition=8
+https://nytimes.com/2021/02/26/us/politics/democrats-minimum-wage.html?searchResultPosition=10
 
