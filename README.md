@@ -1,24 +1,28 @@
+**Texans Demand Answers as They Grapple With Storm’s Lingering Wrath**\
+`After millions lost power during a winter storm, lawmakers have held marathon hearings, prosecutors have started criminal investigations and residents have asked for accountability.`\
+https://nytimes.com/2021/02/26/us/ercot-texas-storm.html?searchResultPosition=1
+
+**Federal Scientists Plead for Pandemic Controls as Infection Declines Stall**\
+`“Now is not the time to relax restrictions,” the C.D.C. director, Rochelle Walensky, said, pointing to a leveling of coronavirus infections as governors move to lift pandemic restrictions.`\
+https://nytimes.com/2021/02/26/us/politics/coronavirus-infection-rates.html?searchResultPosition=2
+
 **Democrats Toil to Salvage Wage Increase With Stimulus Plan on Brink of Passage**\
 `As the House prepared to pass President Biden’s $1.9 trillion stimulus package as early as Friday night, Democrats were searching for a Plan B to raise the minimum wage.`\
-https://nytimes.com/2021/02/26/us/politics/minimum-wage-stimulus-democrats.html?searchResultPosition=1
+https://nytimes.com/2021/02/26/us/politics/minimum-wage-stimulus-democrats.html?searchResultPosition=3
 
 **CPAC Crowd Cheers Josh Hawley’s Vote Against Election Results**\
 `Senator Josh Hawley received a standing ovation at the Conservative Political Action Conference when he reminded the crowd that he had objected to certifying Joe Biden’s Electoral College victory.`\
-https://nytimes.com/video/us/politics/100000007627275/cpac-josh-hawley-2020-election.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000007627275/cpac-josh-hawley-2020-election.html?searchResultPosition=4
 
 **The Final Push to End the Coronavirus Pandemic in the U.S.**\
 `At last, shots are going into arms in significant numbers, but too many people could still fall through the cracks.`\
-https://nytimes.com/2021/02/26/opinion/vaccine-covid-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2021/02/26/opinion/vaccine-covid-coronavirus.html?searchResultPosition=5
 
 **I Will Not Rest Until This Garden Grows**\
 `Letting nature take its course is getting harder to do.`\
-https://nytimes.com/2021/02/26/opinion/winter-gardening-wildlife.html?searchResultPosition=4
+https://nytimes.com/2021/02/26/opinion/winter-gardening-wildlife.html?searchResultPosition=6
 
 **Unity Proves Elusive in Democrats’ Fight for $15**\
 `If the Democrats have a problem, it’s with the working class.`\
-https://nytimes.com/2021/02/26/us/politics/democrats-minimum-wage.html?searchResultPosition=5
-
-**Ethiopia’s War Leads to Ethnic Cleansing in Tigray Region, U.S. Report Says**\
-`A confidential U.S. government report found that people in Tigray are being driven from their homes in a war begun by Ethiopia, an American ally — posing President Biden’s first major test in Africa.`\
-https://nytimes.com/2021/02/26/world/middleeast/ethiopia-tigray-ethnic-cleansing.html?searchResultPosition=9
+https://nytimes.com/2021/02/26/us/politics/democrats-minimum-wage.html?searchResultPosition=7
 
