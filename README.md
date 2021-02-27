@@ -1,4 +1,4 @@
-**How to Watch Golden Globes 2021: Date, Time and Streaming**\
+**How to Watch the Golden Globes 2021: Date, Time and Streaming**\
 `Here’s a quick guide with everything you need to know for the Hollywood Foreign Press Association film and television awards.`\
 https://nytimes.com/2021/02/27/movies/golden-globes-how-to-watch.html?searchResultPosition=1
 
