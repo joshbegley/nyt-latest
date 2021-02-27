@@ -8,7 +8,7 @@ https://nytimes.com/2021/02/27/arts/desert-x-judy-chicago-smoke.html?searchResul
 
 **Cuomo Is Accused of Sexual Harassment by a 2nd Former Aide**\
 `The woman, 25, said that when they were alone in his office, Gov. Andrew Cuomo asked if she “had ever been with an older man.”`\
-https://nytimes.com/2021/02/27/nyregion/cuomo-sexual-harassment.html?searchResultPosition=3
+https://nytimes.com/2021/02/27/nyregion/cuomo-charlotte-bennett-sexual-harassment.html?searchResultPosition=3
 
 **F.D.A. Clears Johnson & Johnson’s Shot, the Third Vaccine for U.S.**\
 `The authorization of a third Covid-19 vaccine will bring millions more doses within days. But health officials worry that some people will see the vaccine as the inferior choice.`\
