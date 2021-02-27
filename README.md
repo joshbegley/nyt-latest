@@ -30,11 +30,11 @@ https://nytimes.com/2021/02/27/technology/Massachusetts-facial-recognition-rules
 `The celebrated editor is ending his tenure at the helm of a very different newspaper than the one he originally signed on to run.`\
 https://nytimes.com/2021/02/27/business/marty-baron-jeff-bezos-washington-post.html?searchResultPosition=8
 
-**Assessing Claims in the Coronavirus Stimulus Debate**\
-`Lawmakers have made an array of misleading claims about “Pelosi’s subway,” unauthorized immigrants receiving checks, school funding and the minimum wage as they debate the $1.9 trillion relief bill.`\
-https://nytimes.com/2021/02/27/us/politics/assessing-claims-in-the-coronavirus-stimulus-debate.html?searchResultPosition=9
-
 **Younger Military Personnel Reject Vaccine, in Warning for Commanders and the Nation**\
 `About one-third of the troops have declined to take the vaccine. Many say they worry the vaccines are unsafe or were developed too quickly. Others want a sense of independence, even in uniform.`\
-https://nytimes.com/2021/02/27/us/politics/coronavirus-vaccine-refusal-military.html?searchResultPosition=10
+https://nytimes.com/2021/02/27/us/politics/coronavirus-vaccine-refusal-military.html?searchResultPosition=9
+
+**Assessing Claims in the Coronavirus Stimulus Debate**\
+`Lawmakers have made an array of misleading claims about “Pelosi’s subway,” unauthorized immigrants receiving checks, school funding and the minimum wage as they debate the $1.9 trillion relief bill.`\
+https://nytimes.com/2021/02/27/us/politics/assessing-claims-in-the-coronavirus-stimulus-debate.html?searchResultPosition=10
 
