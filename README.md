@@ -2,13 +2,13 @@
 `Senator Josh Hawley received a standing ovation at the Conservative Political Action Conference when he reminded the crowd that he had objected to certifying Joe Biden’s Electoral College victory.`\
 https://nytimes.com/video/us/politics/100000007627275/cpac-josh-hawley-2020-election.html?searchResultPosition=1
 
-**I Will Not Rest Until This Garden Grows**\
-`Letting nature take its course is getting harder to do.`\
-https://nytimes.com/2021/02/26/opinion/winter-gardening-wildlife.html?searchResultPosition=2
-
 **The Final Push to End the Coronavirus Pandemic in the U.S.**\
 `At last, shots are going into arms in significant numbers, but too many people could still fall through the cracks.`\
-https://nytimes.com/2021/02/26/opinion/vaccine-covid-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2021/02/26/opinion/vaccine-covid-coronavirus.html?searchResultPosition=2
+
+**I Will Not Rest Until This Garden Grows**\
+`Letting nature take its course is getting harder to do.`\
+https://nytimes.com/2021/02/26/opinion/winter-gardening-wildlife.html?searchResultPosition=3
 
 **Unity Proves Elusive in Democrats’ Fight for $15**\
 `If the Democrats have a problem, it’s with the working class.`\
