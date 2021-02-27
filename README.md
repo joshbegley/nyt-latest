@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/26/world/universities-colleges-reopening-covid.html?
 `Here’s a quick guide with everything you need to know for the Hollywood Foreign Press Association film and television awards.`\
 https://nytimes.com/2021/02/27/movies/golden-globes-how-to-watch.html?searchResultPosition=9
 
-**Brutal Attack on Thai Man Becomes a Rallying Cry**\
-`Among Asian-Americans, many of whom have endured racist taunts, rants and worse during the pandemic, the fatal assault on a defenseless older man spurred a unified response.`\
+**He Came From Thailand to Care For Family. Then Came a Brutal Attack.**\
+`The fatal assault in San Francisco on a defenseless older man was the latest terrifying episode for Asian-Americans, many of whom have endured racist taunts, rants and worse during the pandemic.`\
 https://nytimes.com/2021/02/27/us/asian-american-hate-crimes.html?searchResultPosition=10
 
