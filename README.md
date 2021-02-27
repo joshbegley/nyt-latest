@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/27/obituaries/antoine-hodge-dead-coronavirus.html?se
 `By urging travelers to visit, the Maldives is reviving its luxury resorts. It’s also risking new outbreaks and courting controversy on social media.`\
 https://nytimes.com/2021/02/27/world/asia/maldives-influencers-covid.html?searchResultPosition=9
 
-**Broadway is Dark. London is Quiet. But in Australia, It’s Showtime.**\
+**Broadway Is Dark. London Is Quiet. But in Australia, It’s Showtime.**\
 `Temperature-taking robots, scanning codes for contact tracing, and generous refund policies are helping shows like “Frozen,” “Come From Away” and “Hamilton” get back onstage.`\
 https://nytimes.com/2021/02/27/theater/australia-theater-reopens-coronavirus.html?searchResultPosition=10
 
