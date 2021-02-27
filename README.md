@@ -16,7 +16,7 @@ https://nytimes.com/2021/02/27/books/review/latinitas-juliet-menendez.html?searc
 
 **China Tried to Slow Divorces by Making Couples Wait. Instead, They Rushed.**\
 `A new rule requiring a cooling-off period before a divorce could be granted led to an outcry, as well as a surge of applications to beat the deadline.`\
-https://nytimes.com/2021/02/26/business/international/china-slowing-divorces.html?searchResultPosition=5
+https://nytimes.com/2021/02/26/business/china-slowing-divorces.html?searchResultPosition=5
 
 **Lady Gaga’s Dogs Are Returned Safely**\
 `Thieves in Los Angeles stole the French bulldogs two days earlier, shooting the man who had been walking them on a Hollywood avenue.`\
