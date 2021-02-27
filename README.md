@@ -2,13 +2,13 @@
 `Among Asian-Americans, many of whom have endured racist taunts, rants and worse during the pandemic, the fatal assault on a defenseless older man became a rallying cry.`\
 https://nytimes.com/2021/02/27/us/asian-american-hate-crimes.html?searchResultPosition=1
 
-**‘I Wake Up and Scream’: Secret Taliban Prisons Terrorize Thousands**\
-`A potential U.S. withdrawal from Afghanistan, coupled with a weak Afghan security force, mean the Taliban will likely continue to capture, condemn and torture thousands.`\
-https://nytimes.com/2021/02/27/world/asia/afghanistan-taliban-prison.html?searchResultPosition=2
-
 **At Last, Democrats Get Chance to Engineer Obamacare 2.0**\
 `The Biden administration is trying to make the health care law more generous and closer to its original design, but may disappoint progressive allies hoping for more.`\
-https://nytimes.com/2021/02/27/upshot/biden-health-plan-obamacare.html?searchResultPosition=3
+https://nytimes.com/2021/02/27/upshot/biden-health-plan-obamacare.html?searchResultPosition=2
+
+**‘I Wake Up and Scream’: Secret Taliban Prisons Terrorize Thousands**\
+`A potential U.S. withdrawal from Afghanistan, coupled with a weak Afghan security force, mean the Taliban will likely continue to capture, condemn and torture thousands.`\
+https://nytimes.com/2021/02/27/world/asia/afghanistan-taliban-prison.html?searchResultPosition=3
 
 **Berkshire Hathaway’s Earnings Slowed Last Year**\
 `But its results were bolstered by a soaring stock market in the fourth quarter, Warren Buffett said in his annual letter to investors.`\
