@@ -1,5 +1,5 @@
 **The impact of the storm in Texas could lead to more virus cases, experts say.**\
-`Texas' Recent Storm Eyed as Possible Superspreader `\
+`Texas' recent storm eyed as possible superspreader `\
 https://nytimes.com/2021/02/28/us/texas-storms-covid-superspreader.html?searchResultPosition=1
 
 **Cuomo Attacked Over His Plan for Review of Sex Harassment Claims**\
