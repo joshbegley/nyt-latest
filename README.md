@@ -3,8 +3,8 @@
 https://nytimes.com/2021/02/28/us/politics/cpac-straw-poll-2024-presidential-race.html?searchResultPosition=1
 
 **As expected, a C.D.C. panel of experts endorsed the Johnson & Johnson vaccine.**\
-`By Sharon LaFraniere`\
-https://nytimes.com/2021/02/28/world/as-expected-a-cdc-panel-of-experts-endorsed-the-johnson-johnson-vaccine.html?searchResultPosition=2
+`The committee’s approval echoed the Food & Drug Administration’s decision on Saturday to authorize the vaccine for emergency use.`\
+https://nytimes.com/2021/02/28/world/cdc-johnson-and-johnson-vaccine.html?searchResultPosition=2
 
 **In Confronting Saudi Arabia, Biden Tiptoes With a Close Ally**\
 `The U.S. has accused Saudi Arabia’s crown prince of ordering the killing of the dissident Saudi writer Jamal Khashoggi but is wary of causing a break with an important Arab partner.`\
