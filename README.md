@@ -7,7 +7,7 @@ https://nytimes.com/2021/02/28/sports/basketball/knicks-leon-rose.html?searchRes
 https://nytimes.com/2021/02/28/crosswords/daily-puzzle-2021-03-01.html?searchResultPosition=2
 
 **Trump and DeSantis Top 2024 CPAC Straw Polls**\
-`Former President Donald J. Trump and Gov. Ron DeSantis of Florida led two straw polls conducted on Sunday by the Conservative Political Action Conference, now largely made up of far-right supporters of Trump.`\
+`Former President Donald J. Trump and Gov. Ron DeSantis of Florida led two straw polls conducted on Sunday by the Conservative Political Action Conference, which now includes many far-right supporters of Trump.`\
 https://nytimes.com/video/us/politics/100000007628742/cpac-straw-poll-desantis-trump.html?searchResultPosition=3
 
 **As School Closures Near First Anniversary, a Diverse Parent Movement Demands Action**\
