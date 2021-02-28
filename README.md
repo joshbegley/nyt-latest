@@ -20,7 +20,7 @@ https://nytimes.com/2021/02/28/learning/whats-going-on-in-this-picture-march-22-
 
 **On TV, a Rare Realistic Look at Breastfeeding**\
 `A commercial from the parent products company Frida, to be broadcast during the Golden Globes, is part of a wider effort to show the struggles of the “fourth trimester.”`\
-https://nytimes.com/2021/02/28/business/media/breastfeeding-ads-tv.html?searchResultPosition=6
+https://nytimes.com/2021/02/28/business/media/breastfeeding-ad-frida-golden-globes.html?searchResultPosition=6
 
 **Review: Kafka Meets Twitch in ‘Letter to My Father’**\
 `Audience members can shift from camera to camera in this streaming solo show, like security guards keeping watch.`\
