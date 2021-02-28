@@ -19,7 +19,7 @@ https://nytimes.com/2021/02/28/nyregion/tom-ammiano-gay-varsity-letter.html?sear
 https://nytimes.com/2021/02/28/us/politics/cpac-trump-statue.html?searchResultPosition=5
 
 **Hong Kong Charges 47 Democracy Supporters With Violating Security Law**\
-`Before Sunday, only a handful of people had been formally charged with breaking the law China imposed last year, which is punishable by life in prison.`\
+`Before Sunday, only a handful of people had been formally charged with breaking the law that China imposed last year, which carries a potential sentence of life in prison.`\
 https://nytimes.com/2021/02/28/world/asia/hong-kong-security-law-arrests.html?searchResultPosition=6
 
 **In Quest for Herd Immunity, Giant Vaccination Sites Proliferate**\
