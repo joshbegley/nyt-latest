@@ -1,5 +1,5 @@
-**Trump Wins CPAC Straw Poll, But Only 68 Percent Want Him to Run Again**\
-`The Conservative Political Action Conference, made up largely of far-right Trump supporters, held two 2024 presidential polls. Gov. Ron DeSantis of Florida won a straw poll that did not include Mr. Trump.`\
+**Trump Wins CPAC Straw Poll, but Only 68 Percent Want Him to Run Again**\
+`The Conservative Political Action Conference, made up largely of far-right Trump supporters, held two 2024 presidential straw polls. Gov. Ron DeSantis of Florida won one that did not include Mr. Trump.`\
 https://nytimes.com/2021/02/28/us/politics/cpac-straw-poll-2024-presidential-race.html?searchResultPosition=1
 
 **As expected, a C.D.C. panel of experts endorsed the Johnson & Johnson vaccine.**\
