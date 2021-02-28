@@ -16,7 +16,7 @@ https://nytimes.com/2021/02/28/briefing/myanmar-hongkong-vaccine.html?searchResu
 
 **Here is how Johnson & Johnson’s vaccine differs from Pfizer’s and Moderna’s.**\
 `By Patrick J. Lyons`\
-https://nytimes.com/2021/02/28/us/here-is-how-johnson-johnsons-vaccine-differs-from-pfizers-and-modernas.html?searchResultPosition=5
+https://nytimes.com/2021/02/28/us/jj-vaccine-pfizer-moderna-differences.html?searchResultPosition=5
 
 **Lawyer Seeks Criminal Investigation of T.I. and Tiny on Behalf of Multiple Women**\
 `The Atlanta superstar rapper and his wife have denied allegations that they drugged and sexually assaulted women, and their lawyer called it a “shakedown.”`\
