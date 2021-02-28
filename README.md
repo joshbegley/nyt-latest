@@ -8,7 +8,7 @@ https://nytimes.com/2021/02/28/theater/letter-to-my-father-review.html?searchRes
 
 **Iran Rejects Nuclear Deal Talks With U.S. Proposed by Europe**\
 `The rejection came days after President Biden ordered retaliatory strikes against Iranian-backed militias in eastern Syria.`\
-https://nytimes.com/2021/02/28/world/middleeast/iran-nuiclear-talks-united-states.html?searchResultPosition=3
+https://nytimes.com/2021/02/28/world/middleeast/iran-nuclear-talks-united-states.html?searchResultPosition=3
 
 **Making Black Lives, Not Just Black Deaths, Matter Onstage**\
 `The tragedy of racism is only part of the story in two very different plays from London that carry a dimension of meaning not usually seen in this country.`\
