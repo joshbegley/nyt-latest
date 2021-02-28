@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/28/dining/what-to-cook-this-week.html?searchResultPo
 `Texas' recent storm eyed as possible superspreader `\
 https://nytimes.com/2021/02/28/us/texas-storms-covid-superspreader.html?searchResultPosition=9
 
-**Cuomo Attacked Over His Plan for Review of Sex Harassment Claims**\
-`Democratic leaders in Albany questioned the impartiality of Gov. Andrew Cuomo’s choice to lead the inquiry, while others called for his immediate resignation.`\
+**Under Siege, Cuomo Revises Plan to Review Sex Harassment Claims**\
+`Governor Cuomo said on Sunday that the state’s attorney general and chief judge will determine who will lead the inquiry into sexual harassment claims against him.`\
 https://nytimes.com/2021/02/28/nyregion/cuomo-investigation-sex-harassment.html?searchResultPosition=10
 
