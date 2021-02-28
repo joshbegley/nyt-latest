@@ -20,7 +20,7 @@ https://nytimes.com/2021/02/28/world/americas/el-salvador-election-bukele.html?s
 
 **The Ugly Divorce Between Britain and Brussels Is Just Getting Started**\
 `As trade disputes pile up, the blame game evident in the early months of the split suits domestic political needs on both sides.`\
-https://nytimes.com/2021/02/28/world/europe/brexit-uk-eu.html?searchResultPosition=6
+https://nytimes.com/2021/02/28/world/europe/brexit-uk-brussels.html?searchResultPosition=6
 
 **The Week in Business: A Snag in the Fight for $15**\
 `Democrats may lose their fight to raise the minimum wage to $15 an hour as part of their sweeping stimulus package.`\
