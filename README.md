@@ -2,7 +2,7 @@
 `Texas' Recent Storm Eyed as Possible Superspreader `\
 https://nytimes.com/2021/02/28/us/texas-storms-covid-superspreader.html?searchResultPosition=1
 
-**Cuomo Attacked Over His ‘Independent Review’ of Sex Harassment Claims**\
+**Cuomo Attacked Over His Plan for Review of Sex Harassment Claims**\
 `Democratic leaders in Albany questioned the impartiality of Gov. Andrew Cuomo’s choice to lead the inquiry, while others called for his immediate resignation.`\
 https://nytimes.com/2021/02/28/nyregion/cuomo-investigation-sex-harassment.html?searchResultPosition=2
 
