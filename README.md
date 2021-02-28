@@ -28,7 +28,7 @@ https://nytimes.com/2021/02/28/nyregion/new-york-city-manhole-fires.html?searchR
 
 **After harsh criticism, Israel says it will vaccinate Palestinians who hold work permits.**\
 `By Adam Rasgon`\
-https://nytimes.com/2021/02/28/world/after-harsh-criticism-israel-says-it-will-vaccinate-palestinians-who-hold-work-permits.html?searchResultPosition=8
+https://nytimes.com/2021/02/28/world/israel-vaccine-palestine.html?searchResultPosition=8
 
 **The Era of Vaccine Diplomacy Is Here**\
 `The coronavirus threat is global. So is the remedy.`\
