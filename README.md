@@ -1,40 +1,40 @@
+**The City Where Cars Are Not Welcome**\
+`As automakers promise to get rid of internal combustion engines, Heidelberg is trying to get rid of autos.`\
+https://nytimes.com/2021/02/28/business/heidelberg-cars-environment.html?searchResultPosition=1
+
+**Spike Lee’s Children Are This Year’s Golden Globe Ambassadors**\
+`Jackson Lewis Lee and Satchel Lee are the first Black siblings selected to represent “Hollywood’s next generation.”`\
+https://nytimes.com/2021/02/28/style/spike-lee-children-satchel-jackson-golden-globe-ambassadors.html?searchResultPosition=2
+
+**Seniors Seeking Vaccines Have a Problem: They Can’t Use the Internet**\
+`Older adults living alone often lack access or an understanding of technology, and many are unsure how to sign up for an appointment.`\
+https://nytimes.com/2021/02/28/technology/seniors-vaccines-technology.html?searchResultPosition=3
+
+**He Won a Varsity Letter at 16. He Finally Got It When He Was 79.**\
+`Tom Ammiano, a well-known gay leader in San Francisco, believed his effeminate mannerisms led his New Jersey high school to deny him his letter.`\
+https://nytimes.com/2021/02/28/nyregion/tom-ammiano-gay-varsity-letter.html?searchResultPosition=4
+
+**At CPAC, a Golden Image, a Magic Wand and Reverence for Trump**\
+`The faithful who flocked to the annual conference of conservatives made it clear that their allegiance was to the former president far more than to the Republican Party.`\
+https://nytimes.com/2021/02/28/us/politics/cpac-trump-statue.html?searchResultPosition=5
+
 **Hong Kong Charges 47 Democracy Supporters With Violating Security Law**\
 `Before Sunday, only a handful of people had been formally charged with breaking the law China imposed last year, which is punishable by life in prison.`\
-https://nytimes.com/2021/02/28/world/asia/hong-kong-security-law-arrests.html?searchResultPosition=1
+https://nytimes.com/2021/02/28/world/asia/hong-kong-security-law-arrests.html?searchResultPosition=6
 
 **In Quest for Herd Immunity, Giant Vaccination Sites Proliferate**\
 `A day at one mass site in Connecticut shows both the promise and the shortcomings of the approach, which is at the center of President Biden’s plan to bring the pandemic to an end.`\
-https://nytimes.com/2021/02/28/health/covid-vaccine-sites.html?searchResultPosition=2
+https://nytimes.com/2021/02/28/health/covid-vaccine-sites.html?searchResultPosition=7
 
 **‘I Checked the Counter and the Floor, but I Couldn’t Find It Anywhere’**\
 `Cutting corners while making lattes, an unusual offer and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/02/28/nyregion/metropolitan-diary.html?searchResultPosition=3
+https://nytimes.com/2021/02/28/nyregion/metropolitan-diary.html?searchResultPosition=8
 
 **Quotation of the Day: U.S. Slow to Shield Its Inmates From Virus**\
 `Quotation of the Day for Sunday, February 28, 2021.`\
-https://nytimes.com/2021/02/28/todayspaper/quotation-of-the-day-us-slow-to-shield-its-inmates-from-virus.html?searchResultPosition=4
+https://nytimes.com/2021/02/28/todayspaper/quotation-of-the-day-us-slow-to-shield-its-inmates-from-virus.html?searchResultPosition=9
 
 **On ‘S.N.L.,’ Dr. Fauci Hosts ‘So You Think You Can Get the Vaccine’**\
 `The satirical game show on “Saturday Night Live” also lampooned Gov. Andrew M. Cuomo of New York and Gov. Gavin Newsom of California.`\
-https://nytimes.com/2021/02/28/arts/television/saturday-night-live-nick-jonas.html?searchResultPosition=5
-
-**Corrections: Feb. 28, 2021**\
-`Corrections that appeared in print on Sunday, Feb. 28, 2021.`\
-https://nytimes.com/2021/02/28/pageoneplus/corrections-feb-28-2021.html?searchResultPosition=6
-
-**At Least 3 Killed as Myanmar Police Crack Down on Protests**\
-`The police opened fire on a crowd of hundreds in the southern city of Dawei, witnesses said.`\
-https://nytimes.com/2021/02/28/world/asia/myanmar-protests.html?searchResultPosition=7
-
-**Settle In for a Cuppa**\
-`Tea might be the perfect drink for the pandemic winter malaise. Here’s how to start your own ritual.`\
-https://nytimes.com/2021/02/27/at-home/tea-time-at-home.html?searchResultPosition=8
-
-**Think You Can’t Dance?**\
-`Online tutorials for TikTok and music-video routines can help prove you wrong. The “WAP” dance is within your reach.`\
-https://nytimes.com/2021/02/27/at-home/learn-dance-routines-at-home.html?searchResultPosition=9
-
-**Cook With Cabbage and Sing a Sea Shanty**\
-`This week, get a tarot reading, unwind with a yoga class or learn about pendulums.`\
-https://nytimes.com/2021/02/27/at-home/things-to-do-this-week.html?searchResultPosition=10
+https://nytimes.com/2021/02/28/arts/television/saturday-night-live-nick-jonas.html?searchResultPosition=10
 
