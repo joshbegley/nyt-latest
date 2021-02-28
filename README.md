@@ -10,31 +10,31 @@ https://nytimes.com/2021/02/28/us/politics/trump-cpac-republicans.html?searchRes
 `At least 18 protesters were killed in Myanmar.`\
 https://nytimes.com/2021/02/28/briefing/myanmar-hongkong-vaccine.html?searchResultPosition=3
 
+**Here is how Johnson & Johnson’s vaccine differs from Pfizer’s and Moderna’s.**\
+`By Patrick J. Lyons`\
+https://nytimes.com/2021/02/28/us/here-is-how-johnson-johnsons-vaccine-differs-from-pfizers-and-modernas.html?searchResultPosition=4
+
 **Lawyer Seeks Criminal Investigation of T.I. and Tiny on Behalf of Multiple Women**\
 `The Atlanta superstar rapper and his wife have denied allegations that they drugged and sexually assaulted women, and their lawyer called it a “shakedown.”`\
-https://nytimes.com/2021/02/28/arts/music/ti-tiny-allegations-sexual-assault.html?searchResultPosition=4
+https://nytimes.com/2021/02/28/arts/music/ti-tiny-allegations-sexual-assault.html?searchResultPosition=5
 
 **Several Protesters Killed in Myanmar Military Crackdown**\
 `The military on Sunday used live ammunition and tear gas in cities across Myanmar, attacking protesters who have been calling for a return to democracy since a Feb. 1 coup. At least 18 were killed, the United Nations said.`\
-https://nytimes.com/video/world/asia/100000007628367/myanmar-crackdown-protesters-killed.html?searchResultPosition=5
+https://nytimes.com/video/world/asia/100000007628367/myanmar-crackdown-protesters-killed.html?searchResultPosition=6
 
 **Two Sluggers Aren’t Quite Done, but the End Is Near**\
 `Albert Pujols and Miguel Cabrera, two of the greatest hitters in baseball history, will be back for 2021. Whenever they retire, they will leave an enormous void.`\
-https://nytimes.com/2021/02/28/sports/baseball/albert-pujols-miguel-cabrera.html?searchResultPosition=6
+https://nytimes.com/2021/02/28/sports/baseball/albert-pujols-miguel-cabrera.html?searchResultPosition=7
 
 **Derek Khan, Onetime Stylist for Hip-Hop Stars, Dies at 63**\
 `He was an architect of the over-the-top look known as “ghetto fabulous.” Later, unable to support his own lavish lifestyle, he fell from grace.`\
-https://nytimes.com/2021/02/28/fashion/derek-khan-dead.html?searchResultPosition=7
+https://nytimes.com/2021/02/28/fashion/derek-khan-dead.html?searchResultPosition=8
 
 **A Supreme Court Test for What’s Left of the Voting Rights Act**\
 `While state legislatures consider new voting restrictions to address claims of election fraud, the justices will hear arguments on what kind of legal scrutiny such laws should face.`\
-https://nytimes.com/2021/02/28/us/politics/supreme-court-voting-rights-act.html?searchResultPosition=8
+https://nytimes.com/2021/02/28/us/politics/supreme-court-voting-rights-act.html?searchResultPosition=9
 
 **African-American Sacrifice in the Killing Fields of France**\
 `They fought and died as heroes for their country in World War I, only for segregation to persist.`\
-https://nytimes.com/2021/02/28/world/europe/france-world-war-1.html?searchResultPosition=9
-
-**Manhole Fire and Explosion in Manhattan Injures 3**\
-`The explosion damaged cars and storefronts and caused power failures on Manhattan’s East Side, the authorities said.`\
-https://nytimes.com/2021/02/28/nyregion/new-york-city-manhole-fires.html?searchResultPosition=10
+https://nytimes.com/2021/02/28/world/europe/france-world-war-1.html?searchResultPosition=10
 
