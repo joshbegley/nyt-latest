@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000007627935/spain-rapper-protests-pablo-hasel.html?searchResultPosition=1
 
 **Smoky Artwork by Judy Chicago at Desert Zoo Is Canceled**\
-`“Living Smoke” was scheduled for April at Desert X in California, but the venue withdrew its support after an activist said the colorful smoke display could harm the environment.`\
+`“Living Smoke” was scheduled for April but the California venue withdrew after an activist said the colorful smoke display could harm the environment.`\
 https://nytimes.com/2021/02/27/arts/desert-x-judy-chicago-smoke.html?searchResultPosition=2
 
 **Cuomo Is Accused of Sexual Harassment by a 2nd Former Aide**\
