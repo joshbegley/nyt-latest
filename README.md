@@ -24,7 +24,7 @@ https://nytimes.com/2021/02/27/us/wichita-police-explosion.html?searchResultPosi
 
 **A Day Before He Speaks, Conservative Gathering Is Mostly About Trump**\
 `At CPAC on Saturday, the focus was on praise for Mr. Trump in advance of his speech there on Sunday.`\
-https://nytimes.com/2021/02/27/us/CPAC-republicans-pompeo.html?searchResultPosition=7
+https://nytimes.com/2021/02/27/us/politics/CPAC-republicans-pompeo.html?searchResultPosition=7
 
 **Protests in Barcelona Over Rapper’s Arrest**\
 `Demonstrators shattered glass and set fires in Barcelona on Saturday. It was the latest in nearly two weeks of protests led by young people opposing the arrest of rapper Pablo Hasél over provocative tweets.`\
