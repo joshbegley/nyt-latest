@@ -16,7 +16,7 @@ https://nytimes.com/2021/03/01/business/united-airlines-boeing-737-max.html?sear
 
 **Police Raid F.C. Barcelona, a European Soccer Powerhouse**\
 `The authorities are investigating the club’s relationship with a company that produced disparaging content about Lionel Messi, Gerard Piqué and other star players.`\
-https://nytimes.com/2021/03/01/sports/soccer/barcelona-bartomeu-arrests.html?searchResultPosition=5
+https://nytimes.com/2021/03/01/sports/soccer/barcelona-barcagate-bartomeu.html?searchResultPosition=5
 
 **Lesson of the Day: ‘The C.D.C. Has New School Guidelines. Here’s What You Need to Know.’**\
 `In this lesson, students will learn what the guidelines from the Centers for Disease Control and Prevention mean for the nation’s schools and their own. Then, they will be invited to hold a classroom debate on school reopenings.`\
