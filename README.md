@@ -2,7 +2,7 @@
 `Beset by onscreen and offscreen problems, this year’s show was not the same boozy escape.`\
 https://nytimes.com/2021/02/28/arts/television/review-golden-globes.html?searchResultPosition=1
 
-**Chadwick Boseman Wins Best Actor Golden Globe; His Widow Accepts in Emotional Speech**\
+**Chadwick Boseman wins best actor Golden Globe and his widow accepts in an emotional speech.**\
 `It was the final role — and first win — for the late star of “Ma Rainey’s Black Bottom,” who died in August from colon cancer at age 43.`\
 https://nytimes.com/2021/02/28/movies/chadwick-boseman-golden-globes.html?searchResultPosition=2
 
