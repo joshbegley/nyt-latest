@@ -30,7 +30,7 @@ https://nytimes.com/video/us/100000007630214/johnson-johnson-coronavirus-vaccine
 `The Digital Green Pass would allow Europeans who have been vaccinated to travel more freely.`\
 https://nytimes.com/2021/03/01/world/the-eu-will-propose-a-vaccine-passport-system-for-europe.html?searchResultPosition=8
 
-**Arkansas School Shooting Leaves One Student Injured**\
+**Pine Bluff, Ark., School Shooting Leaves One Student Injured**\
 `The shooting took place at Watson Chapel Junior High School in Pine Bluff, Ark. The injured student’s condition was not immediately clear.`\
 https://nytimes.com/2021/03/01/us/watson-chapel-shooting-pine-bluff.html?searchResultPosition=9
 
