@@ -10,7 +10,7 @@ https://nytimes.com/2021/02/28/todayspaper/quotation-of-the-day-salvadors-combat
 `Corrections that appeared in print on Monday, March 1, 2021.`\
 https://nytimes.com/2021/02/28/pageoneplus/corrections-march-1-2021.html?searchResultPosition=3
 
-**Transcript: Amy Poehler and Tina Fey, Skewer the H.F.P.A.’s Lack of Diversity**\
+**Transcript: Amy Poehler and Tina Fey Skewer the H.F.P.A.’s Lack of Diversity**\
 `From opposite coasts, their split-screen opening of the Golden Globes took on the turn to streaming in the pandemic.`\
 https://nytimes.com/2021/02/28/movies/tina-fey-amy-poehler-golden-globes.html?searchResultPosition=4
 
