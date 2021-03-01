@@ -3,8 +3,8 @@
 https://nytimes.com/2021/03/01/us/politics/durbin-senate-judiciary-garland.html?searchResultPosition=1
 
 **The Capitol Police union endorses recommendations for adding officers, fencing and an urgent response force.**\
-`By Luke Broadwater`\
-https://nytimes.com/2021/03/01/us/politics/the-capitol-police-union-endorses-recommendations-for-adding-officers-fencing-and-an-urgent-response-force.html?searchResultPosition=2
+`Retired Lt. Gen. Russel L. Honoré is recommending an array of security enhancements in response to the Jan. 6 assault at the Capitol.`\
+https://nytimes.com/2021/03/01/us/politics/capitol-police-union-security.html?searchResultPosition=2
 
 **Major Evangelical Adoption Agency Will Now Serve Gay Parents**\
 `The decision comes as more cities and states require organizations to accept applications from L.G.B.T.Q. couples or risk losing government contracts.`\
