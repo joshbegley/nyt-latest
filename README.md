@@ -18,7 +18,7 @@ https://nytimes.com/2021/03/01/us/california-covid-19-relief.html?searchResultPo
 `Buckingham Palace says the husband of Queen Elizabeth is being treated for an infection and testing for a pre-existing heart condition.`\
 https://nytimes.com/2021/03/01/world/europe/prince-philip-moved-hospital-heart-condition.html?searchResultPosition=5
 
-**‘Your Personality Deforms.’ Navalny Sent to Notoriously Harsh Prison**\
+**‘Your Personality Deforms’: Navalny Sent to Notoriously Harsh Prison**\
 `Convicts in the isolation unit at Penal Colony No. 2 are forced to stand for hours with their hands clasped behind their backs, forbidden to make eye contact with the guards.`\
 https://nytimes.com/2021/03/01/world/europe/navalny-prison-russia.html?searchResultPosition=6
 
