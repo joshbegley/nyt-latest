@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/01/dining/winner-restaurant-review.html?searchResult
 https://nytimes.com/slideshow/2021/03/01/dining/winner-chicken-dinner-brooklyn.html?searchResultPosition=5
 
 **With Seven Weeks at No. 1, Morgan Wallen Breaks a Chart Record**\
-`With little competition, the singer-songwriter, who was rebuked in January for using a racial slur, is now the first country artist to spend his first seven weeks in the top spot of the Billboard 200.`\
+`With little competition, the singer-songwriter, who was rebuked in February for using a racial slur, is now the first country artist to spend his first seven weeks in the top spot of the Billboard 200.`\
 https://nytimes.com/2021/03/01/arts/music/morgan-wallen-dangerous-album-no-1.html?searchResultPosition=6
 
 **Johnson & Johnson Begins Covid-19 Vaccine Distribution**\
