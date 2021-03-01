@@ -26,8 +26,8 @@ https://nytimes.com/2021/02/28/us/politics/china-india-hacking-electricity.html?
 `Spring training started with a loss to Toronto, but Yankees players were just happy to have fans back. “It felt a lot more normal.”`\
 https://nytimes.com/2021/02/28/sports/baseball/yankees-spring-training-fans.html?searchResultPosition=7
 
-**Leon Rose’s Quiet Effect: Knicks’ Good Vibes Come Ahead of Schedule**\
-`As team president for the past year, Rose has let the Knicks’ on-court flickers of progress do most of his talking.`\
+**The Leon Rose Approach: Way Too Quiet, But Effective for Knicks (So Far)**\
+`As the team president for the past year, Rose has let the Knicks’ on-court flickers of progress do most of his talking.`\
 https://nytimes.com/2021/02/28/sports/basketball/knicks-leon-rose.html?searchResultPosition=8
 
 **‘And You?’**\
