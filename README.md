@@ -23,7 +23,7 @@ https://nytimes.com/2021/03/01/arts/music/morgan-wallen-dangerous-album-no-1.htm
 https://nytimes.com/video/us/100000007630214/johnson-johnson-coronavirus-vaccine.html?searchResultPosition=6
 
 **The E.U. will propose a vaccine passport system for Europe.**\
-`By Monika Pronczuk`\
+`The Digital Green Pass would allow Europeans who have been vaccinated to travel more freely.`\
 https://nytimes.com/2021/03/01/world/the-eu-will-propose-a-vaccine-passport-system-for-europe.html?searchResultPosition=7
 
 **Arkansas School Shooting Leaves One Student Injured**\
