@@ -2,7 +2,7 @@
 `Here are some of the more memorable moments from Sunday night's Golden Globes ceremony.`\
 https://nytimes.com/interactive/2021/03/01/movies/golden-globes-moments.html?searchResultPosition=2
 
-**How Do Influencers Get Jobs? It’s Changing.**\
+**How Do Influencers Get Jobs? It’s Changing**\
 `A new service is designed to help formalize relationships that are typically forged through personal connections or cold DMs.`\
 https://nytimes.com/2021/03/01/style/influencer-jobs-fohr-ambassador-platform.html?searchResultPosition=4
 
