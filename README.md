@@ -19,7 +19,7 @@ https://nytimes.com/2021/02/28/business/media/cable-tv-streaming-discovery.html?
 https://nytimes.com/2021/02/28/nyregion/full-text-of-cuomos-statement-in-response-to-harassment-accusations.html?searchResultPosition=5
 
 **Black actors were recognized with show’s first two awards.**\
-`Daniel Kaluuya won for his role in “Judas and the Black Messiah,” and  John Boyega won for his in “Small Axe.”Amid criticism for the lack of Black representation on the Hollywood Foreign Press`\
+`Daniel Kaluuya won for his performance as the Black Panther leader Fred Hampton in “Judas and the Black Messiah,” and John Boyega won for his role in the Amazon series “Small Axe.”`\
 https://nytimes.com/2021/02/28/movies/daniel-kaluuya-john-boyega.html?searchResultPosition=6
 
 **China Appears to Warn India: Push Too Hard and the Lights Could Go Out**\
