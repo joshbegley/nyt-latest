@@ -1,40 +1,40 @@
-**Cuomo Under Fire Over Sexual Harassment Allegations**\
-`The governor acknowledged that “some of the things I have said have been misinterpreted as an unwanted flirtation.”`\
-https://nytimes.com/2021/03/01/nyregion/cuomo-sexual-harassment.html?searchResultPosition=1
+**Surf’s Up. The Temperature Isn’t.**\
+`Growing numbers of surfers are taking to the Great Lakes — even when the weather is well below freezing.`\
+https://nytimes.com/2021/03/01/travel/winter-lake-surfers-canada.html?searchResultPosition=1
 
-**How Pro-Trump Forces Pushed a Lie About Antifa at the Capitol Riot**\
-`On social media, cable networks and even in the halls of Congress, supporters of Donald J. Trump tried to rewrite history in real time, pushing the fiction that left-wing agitators were to blame for the violence on Jan. 6.`\
-https://nytimes.com/2021/03/01/us/politics/antifa-conspiracy-capitol-riot.html?searchResultPosition=2
+**Cuomo in Crisis, Republicans Emerging: Updates From New York’s Mayoral Race**\
+`Several major candidates called for an investigation into Gov. Andrew M. Cuomo, as two Republicans vied for key endorsements.`\
+https://nytimes.com/2021/03/01/nyregion/mayor-race-nyc-takeaways.html?searchResultPosition=2
 
-**Thousands of Farmworkers Are Prioritized for the Coronavirus Vaccine**\
-`A landmark initiative in California is taking vaccines to the fields, targeting an immigrant work force that is at high risk for Covid-19. Many of the workers are undocumented, raising questions about whether they should have priority.`\
-https://nytimes.com/2021/03/01/us/coronavirus-vaccine-farmworkers-california.html?searchResultPosition=3
+**Sexual Harassment Claims Against Cuomo: What We Know So Far**\
+`Two former state employees have accused Gov. Andrew Cuomo of sexual harassment, prompting calls for an independent investigation.`\
+https://nytimes.com/article/cuomo-sexual-harassment-nursing-homes-covid-19.html?searchResultPosition=3
 
-**Ron Johnson Says He Still Has Many Unanswered Questions**\
-`The Republican senator from Wisconsin is known for regularly promoting fringe theories favored by the right, most recently questioning the fact that pro-Trump rioters attacked the Capitol.`\
-https://nytimes.com/2021/03/01/us/politics/ron-johnson-capitol-riot.html?searchResultPosition=4
+**A Texas Couple Try a Rent-to-Own Apartment on the Lower East Side**\
+`Most apartments are either for sale or for rent. The one they chose was both.`\
+https://nytimes.com/2021/03/01/realestate/renters-lower-east-side.html?searchResultPosition=4
 
-**Word of the Day: abate**\
-`This word has appeared in 72 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/03/01/learning/word-of-the-day-abate.html?searchResultPosition=5
+**China Charges Ahead With a National Digital Currency**\
+`The electronic Chinese yuan is now being tested in cities such as Shenzhen, Shanghai and Beijing. No other major power is as far along with a homegrown digital currency.`\
+https://nytimes.com/2021/03/01/technology/china-national-digital-currency.html?searchResultPosition=5
 
-**What’s on TV This Week: ‘Soul of a Nation’ and ‘Ghostbusters’**\
-`A newsmagazine featuring a look at Black life in America premieres on ABC. And the “Back to the Future” trilogy airs on AMC.`\
-https://nytimes.com/2021/03/01/arts/television/whats-on-tv-this-week.html?searchResultPosition=6
+**Biden to Discuss Border and Other Issues With Mexican President**\
+`As President Biden looks to undo his predecessor’s immigration policies, he is seeking to work with a Mexican counterpart who was a surprise contributor to them.`\
+https://nytimes.com/2021/03/01/us/politics/biden-amlo-mexico.html?searchResultPosition=6
 
-**Behind the Lines of Britain’s Covid War**\
-`The government has laid out plans for gradual reopening. But in cramped intensive care wards, teeming with patients and doctors near despair, the battle is unrelenting.`\
-https://nytimes.com/interactive/2021/03/01/world/europe/uk-covid-pandemic.html?searchResultPosition=7
+**Warren Revives Wealth Tax, Citing Pandemic Inequalities**\
+`A tax on the net worth of America’s wealthiest individuals remains popular with voters, but has yet to be embraced by President Biden.`\
+https://nytimes.com/2021/03/01/business/elizabeth-warren-wealth-tax.html?searchResultPosition=7
 
-**C. Vivian Stringer Is the Thread Between the W.N.B.A.’s Emerging Stars**\
-`The Liberty’s Betnijah Laney and Erica Wheeler of the Los Angeles Sparks are coming into their own after winding paths with a key intersection: Stringer’s coaching at Rutgers.`\
-https://nytimes.com/2021/03/01/sports/basketball/c-vivian-stringer-rutgers.html?searchResultPosition=8
+**Why I Overcame My Vaccine Hesitancy**\
+`The more people who become immune to the virus, the less this scourge will be able to mutate and evade the vaccines already available`\
+https://nytimes.com/2021/03/01/well/live/vaccine-hesitancy.html?searchResultPosition=8
 
-**How One Sports Season Fell Apart, Even in a Bubble**\
-`Players in the National Women’s Hockey League left Lake Placid, N.Y., wishing there had been better communication as positive tests increased.`\
-https://nytimes.com/2021/03/01/sports/hockey/how-the-nwhl-bubble-fell-apart.html?searchResultPosition=9
+**She Was Seen as a Victim in the Sarah Lawrence Cult Case. Now She’s Charged.**\
+`Isabella Pollok was one of the students at Sarah Lawrence College who prosecutors said was exploited by a classmate’s father, Lawrence V. Ray. Now she is under indictment, too.`\
+https://nytimes.com/2021/03/01/nyregion/lawrence-ray-sarah-lawrence-cult.html?searchResultPosition=9
 
-**Trump Revives Familiar Falsehoods in CPAC Speech**\
-`The former president attacked his successor and continued to claim that he won the 2020 election.`\
-https://nytimes.com/2021/02/28/us/politics/trump-cpac-fact-check.html?searchResultPosition=10
+**Diagnosing Autism in the Pandemic**\
+`Autism spectrum disorder is often suspected when young children stand out as being different from their peers. That can be much harder in this isolated time.`\
+https://nytimes.com/2021/03/01/well/family/diagnosing-autism-in-the-pandemic.html?searchResultPosition=10
 
