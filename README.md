@@ -1,5 +1,5 @@
 **Behind the Lines of Britain’s Covid War**\
-`The  government has laid out plans for gradual reopening. But in cramped intensive care wards, teeming with patients and doctors near despair, the battle is unrelenting.`\
+`The government has laid out plans for gradual reopening. But in cramped intensive care wards, teeming with patients and doctors near despair, the battle is unrelenting.`\
 https://nytimes.com/interactive/2021/03/01/world/europe/uk-covid-pandemic.html?searchResultPosition=1
 
 **C. Vivian Stringer Is the Thread Between the W.N.B.A.’s Emerging Stars**\
@@ -26,8 +26,8 @@ https://nytimes.com/2021/02/28/movies/chadwick-boseman-golden-globes.html?search
 `The winner of the Cecil B. DeMille Award for lifetime achievement cited “I May Destroy You” and other productions that “deepened my empathy for what being Black has meant.”`\
 https://nytimes.com/2021/02/28/movies/jane-fonda-golden-globes.html?searchResultPosition=7
 
-**Chloé Zhao Becomes the first Asian-American Woman to win the Golden Globe for Best Director**\
-`By Matt Stevens`\
+**Chloé Zhao becomes the first Asian-American woman to win the Golden Globe for best director.**\
+`Zhao also became the first woman to be named best director since Barbra Streisand won for “Yentl” almost 40 years ago.`\
 https://nytimes.com/2021/02/28/movies/chloe-zhao-asian-american-director.html?searchResultPosition=8
 
 **‘Allen v. Farrow’ Episode 2 Recap: A Family Torn Apart**\
