@@ -34,7 +34,7 @@ https://nytimes.com/2021/02/28/movies/chloe-zhao-asian-american-director.html?se
 `Seven months after the shocking discovery of Woody Allen’s relationship with Soon-Yi Previn, he was accused of sexually abusing Dylan Farrow.`\
 https://nytimes.com/2021/02/28/arts/television/allen-v-farrow-episode-2-recap.html?searchResultPosition=9
 
-**‘Minari’ wins best foreign language film, but not without controversy.**\
+**‘Minari’ wins best foreign-language film, but not without controversy.**\
 `The movie competed in the category even though it was filmed in the United States and its director, Lee Isaac Chung, is American.`\
 https://nytimes.com/2021/02/28/movies/minari-foreign-language-film.html?searchResultPosition=10
 
