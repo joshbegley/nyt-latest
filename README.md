@@ -30,8 +30,8 @@ https://nytimes.com/2021/03/01/world/europe/prince-philip-moved-hospital-heart-c
 `Convicts in the isolation unit at Penal Colony No. 2 are forced to stand for hours with their hands clasped behind their backs, forbidden to make eye contact with the guards.`\
 https://nytimes.com/2021/03/01/world/europe/navalny-prison-russia.html?searchResultPosition=8
 
-**Ex-President Sarkozy Found Guilty of Corruption in France**\
-`Nicolas Sarkozy was accused of trying to obtain confidential information from a judge by offering to help him land a job.`\
+**Ex-President Sarkozy Gets Jail Sentence for Corruption in France**\
+`Nicolas Sarkozy was accused of trying to obtain confidential information from a judge by offering to help him land a job. He received a sentence of at least one year, but is likely to appeal.`\
 https://nytimes.com/2021/03/01/world/europe/france-sarkozy-trial-guilty.html?searchResultPosition=9
 
 **Hello, Golden Globes Red Carpet — We Missed You**\
