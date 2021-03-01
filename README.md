@@ -6,7 +6,7 @@ https://nytimes.com/2021/02/28/arts/television/review-golden-globes.html?searchR
 `It was the final role — and first win — for the late star of “Ma Rainey’s Black Bottom,” who died in August from colon cancer at age 43.`\
 https://nytimes.com/2021/02/28/movies/chadwick-boseman-golden-globes.html?searchResultPosition=2
 
-**Transcript: Jane Fonda Calls for Diversity in Golden Globe Nominees and Voters**\
+**Transcript: Jane Fonda calls for diversity in Golden Globe nominees and voters.**\
 `The winner of the Cecil B. DeMille Award for lifetime achievement cited “I May Destroy You” and other productions that “deepened my empathy for what being Black has meant.”`\
 https://nytimes.com/2021/02/28/movies/jane-fonda-golden-globes.html?searchResultPosition=3
 
