@@ -32,7 +32,7 @@ https://nytimes.com/2021/02/28/movies/jane-fonda-golden-globes.html?searchResult
 
 **Chloé Zhao becomes the first Asian woman to win the Golden Globe for best director.**\
 `Zhao also became the first woman to be named best director since Barbra Streisand won for “Yentl” almost 40 years ago.`\
-https://nytimes.com/2021/02/28/movies/chloe-zhao-asian-american-director.html?searchResultPosition=9
+https://nytimes.com/2021/02/28/movies/chloe-zhao-asian-director.html?searchResultPosition=9
 
 **‘Allen v. Farrow’ Episode 2 Recap: A Family Torn Apart**\
 `Seven months after the shocking discovery of Woody Allen’s relationship with Soon-Yi Previn, he was accused of sexually abusing Dylan Farrow.`\
