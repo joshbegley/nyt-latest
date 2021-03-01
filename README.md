@@ -19,3 +19,22 @@ https://nytimes.com/2021/02/28/business/media/cable-tv-streaming-discovery.html?
 https://nytimes.com/2021/02/28/nyregion/full-text-of-cuomos-statement-in-response-to-harassment-accusations.html?searchResultPosition=5
 
 **Black actors were recognized with show’s first two awards.**\
+`Daniel Kaluuya won for his role in “Judas and the Black Messiah,” and  John Boyega won for his in “Small Axe.”Amid criticism for the lack of Black representation on the Hollywood Foreign Press`\
+https://nytimes.com/2021/02/28/movies/daniel-kaluuya-john-boyega.html?searchResultPosition=6
+
+**China Appears to Warn India: Push Too Hard and the Lights Could Go Out**\
+`As border skirmishing increased last year, malware began to flow into the Indian electric grid, a new study shows, and a blackout hit Mumbai. It now looks like a warning.`\
+https://nytimes.com/2021/02/28/us/politics/china-india-hacking-electricity.html?searchResultPosition=7
+
+**Yankees Feel Butterflies Before Playing in Front of a Crowd**\
+`Spring training started with a loss to Toronto, but Yankees players were just happy to have fans back. “It felt a lot more normal.”`\
+https://nytimes.com/2021/02/28/sports/baseball/yankees-spring-training-fans.html?searchResultPosition=8
+
+**The Leon Rose Approach: Way Too Quiet, But Effective for Knicks (So Far)**\
+`As the team president for the past year, Rose has let the Knicks’ on-court flickers of progress do most of his talking.`\
+https://nytimes.com/2021/02/28/sports/basketball/knicks-leon-rose.html?searchResultPosition=9
+
+**‘And You?’**\
+`Michael Lieberman makes his New York Times Crossword debut.`\
+https://nytimes.com/2021/02/28/crosswords/daily-puzzle-2021-03-01.html?searchResultPosition=10
+
