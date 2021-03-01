@@ -1,5 +1,5 @@
 **Supreme Court Considers Whether Patent Judges Were Properly Appointed**\
-`Several justices seemed concerned that judges should have been appointed by the president and confirmed by the Senate. But there was no consensus about how to fix the that flaw.`\
+`Several justices seemed concerned that judges should have been appointed by the president and confirmed by the Senate. But there was no consensus about how to fix that flaw.`\
 https://nytimes.com/2021/03/01/us/politics/supreme-court-patent-judges.html?searchResultPosition=1
 
 **Mayorkas Vows to Replace Trump Era Immigration Policies**\
