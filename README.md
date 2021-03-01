@@ -1,6 +1,6 @@
 **Why Is China Still Going After Hong Kong So Hard?**\
 `The president may be putting personal ambition ahead of his country’s best interests.`\
-https://nytimes.com/2021/03/01/opinion/hong-kong-security-law-security-law.html?searchResultPosition=1
+https://nytimes.com/2021/03/01/opinion/hong-kong-security-law.html?searchResultPosition=1
 
 **The $1.9 Trillion Question in the Senate**\
 `And what else you need to know today.`\
