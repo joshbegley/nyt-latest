@@ -30,7 +30,7 @@ https://nytimes.com/2021/02/28/movies/chadwick-boseman-golden-globes.html?search
 `The winner of the Cecil B. DeMille Award for lifetime achievement cited “I May Destroy You” and other productions that “deepened my empathy for what being Black has meant.”`\
 https://nytimes.com/2021/02/28/movies/jane-fonda-golden-globes.html?searchResultPosition=8
 
-**Chloé Zhao becomes the first Asian-American woman to win the Golden Globe for best director.**\
+**Chloé Zhao becomes the first Chinese woman to win the Golden Globe for best director.**\
 `Zhao also became the first woman to be named best director since Barbra Streisand won for “Yentl” almost 40 years ago.`\
 https://nytimes.com/2021/02/28/movies/chloe-zhao-asian-american-director.html?searchResultPosition=9
 
