@@ -1,5 +1,5 @@
 **Texas After the Storm**\
-`Even as the cold has lifted and the ice has melted, the true depth of the devastation remains hidden.`\
+`Even as the cold has lifted and the ice has melted, the true depth of the devastation remains hidden. We look at the aftermath of the storm through the eyes of three women.`\
 https://nytimes.com/2021/03/01/podcasts/the-daily/texas-winter-storm-blackouts-electricity.html?searchResultPosition=1
 
 **March Vocabulary Challenge**\
