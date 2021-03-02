@@ -10,7 +10,7 @@ https://nytimes.com/2021/03/02/technology/instacart-raises-265-million.html?sear
 `A new crop of timepieces marries peppy dials and sophisticated straps in alligator and leather.`\
 https://nytimes.com/2021/03/02/t-magazine/bright-watches-color-spring.html?searchResultPosition=3
 
-**As Senate Debates Interior Nominee, the Department Moves on Climate Change**\
+**Reversing Trump, Interior Department Moves Swiftly on Climate Change**\
 `As Deb Haaland, President Biden's choice for Interior secretary, heads toward a showdown vote, the department she would head is moving ahead on environmental policies.`\
 https://nytimes.com/2021/03/02/climate/biden-interior-department-haaland.html?searchResultPosition=4
 
