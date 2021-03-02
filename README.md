@@ -4,7 +4,7 @@ https://nytimes.com/2021/03/02/us/mothers-daughters-letters.html?searchResultPos
 
 **The Best Movies and TV Shows Coming to Amazon, HBO, Hulu and More in March**\
 `Every month, streaming services add a new batch of titles to their libraries. Here are our picks for March.`\
-https://nytimes.com/2021/03/02/arts/march-streaming-hulu-disney.html?searchResultPosition=2
+https://nytimes.com/2021/03/02/arts/best-movies-tv-hulu-disney.html?searchResultPosition=2
 
 **A Wave of Reopenings Takes Hold as Americans Ask Whether the Worst Is Over**\
 `As coronavirus cases drop, states are reopening businesses and schools, prompting people to emerge after months of isolation despite uncertainty about the pandemic’s future.`\
