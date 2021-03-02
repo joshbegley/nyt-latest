@@ -1,4 +1,4 @@
-**A Virus Variant by Any Other Name …Please**\
+**A Virus Variant by Any Other Name … Please**\
 `B.1.351 may sound sweet to a molecular epidemiologist, but what’s the alternative, other than stigmatizing geographical names?`\
 https://nytimes.com/2021/03/02/health/virus-variant-names.html?searchResultPosition=1
 
