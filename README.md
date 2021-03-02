@@ -1,4 +1,4 @@
-**Three Woman Working for a News Outlet Gunned Down in Afghanistan**\
+**Three Women Working for a News Outlet Gunned Down in Afghanistan**\
 `The women, the latest victims in a wave of targeted attacks, were killed on their way home from their jobs at Enikass Radio and TV in Jalalabad.`\
 https://nytimes.com/2021/03/02/world/asia/afghanistan-women-journalists-killed.html?searchResultPosition=1
 
