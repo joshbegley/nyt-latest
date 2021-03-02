@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/02/learning/word-of-the-day-hitherto.html?searchResultPosition=1
 
 **Hundreds of Girls Abducted From Nigerian School Are Freed, Official Says**\
-`The return of more than 300 girls marked the second time in less than a week that gunmen in the country had released kidnapped schoolchildren.`\
+`The girls’ return marked the second time in less than a week that gunmen in the country had released kidnapped schoolchildren.`\
 https://nytimes.com/2021/03/02/world/africa/nigeria-kidnapped-students.html?searchResultPosition=2
 
 **The Best Movies and TV Shows New to Netflix, Amazon and Stan in Australia in March**\
