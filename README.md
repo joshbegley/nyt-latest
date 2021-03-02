@@ -1,6 +1,6 @@
 **Crash in Southern California Kills ‘Multiple People,’ Authorities Say**\
 `The crash, involving an S.U.V. and a tractor-trailer, took place in the area of El Centro, Calif., about 60 miles west of the Arizona border.`\
-https://nytimes.com/2021/03/02/us/bus-crash-imperial-california.html?searchResultPosition=1
+https://nytimes.com/2021/03/02/us/fatal-crash-imperial-california.html?searchResultPosition=1
 
 **Four Takeout-Only Restaurants From Franklin Becker Open in SoHo**\
 `A new outpost of Mimi Cheng’s, chances to cook virtually with a chef and more restaurant news.`\
