@@ -6,8 +6,8 @@ https://nytimes.com/2021/03/02/us/mothers-daughters-letters.html?searchResultPos
 `Every month, streaming services add a new batch of titles to their libraries. Here are our picks for March.`\
 https://nytimes.com/2021/03/02/arts/best-movies-tv-hulu-disney.html?searchResultPosition=2
 
-**A Wave of Reopenings Takes Hold as Americans Ask Whether the Worst Is Over**\
-`As coronavirus cases drop, states are reopening businesses and schools, prompting people to emerge after months of isolation despite uncertainty about the pandemic’s future.`\
+**Texas Drops Its Virus Restrictions as a Wave of Reopenings Takes Hold**\
+`As coronavirus cases fall, states are rescinding mask mandates and reopening businesses and schools, prompting people to emerge after months of isolation despite uncertainty about the pandemic’s future.`\
 https://nytimes.com/2021/03/02/us/coronavirus-reopening.html?searchResultPosition=3
 
 **Videos Show Aftermath of Southern California Crash**\
