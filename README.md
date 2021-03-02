@@ -14,7 +14,7 @@ https://nytimes.com/2021/03/01/us/extremism-capitol-riot.html?searchResultPositi
 `A reconstructed Neanderthal ear adds a new piece to the puzzle of whether the early humans could speak.`\
 https://nytimes.com/2021/03/01/science/neanderthals-hearing-language.html?searchResultPosition=4
 
-**Irv Cross, First Black Network TV Sport Analyst, Dies at 81**\
+**Irv Cross, First Black Network TV Sports Analyst, Dies at 81**\
 `After playing defensive back in the N.F.L., he made history when he joined CBS Sports’ pregame show, “The NFL Today.”`\
 https://nytimes.com/2021/03/01/sports/football/irv-cross-dead.html?searchResultPosition=5
 
