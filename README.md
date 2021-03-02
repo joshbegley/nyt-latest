@@ -23,7 +23,7 @@ https://nytimes.com/2021/03/02/sports/womens-sports-coverage.html?searchResultPo
 https://nytimes.com/2021/03/02/nyregion/coronavirus-anniversary-new-york.html?searchResultPosition=6
 
 **Volvo says it will stop selling gasoline-powered cars by 2030.**\
-`It plans to convert its entire lineup to battery power by 2030, phasing out internal combustion engine vehicles faster than other automakers.`\
+`The company plans to convert its entire lineup to battery power by 2030, phasing out internal combustion engine vehicles faster than other automakers.`\
 https://nytimes.com/2021/03/02/business/volvo-electric-cars.html?searchResultPosition=7
 
 **The Military’s Extremism Problem Is Our Problem**\
