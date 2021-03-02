@@ -22,7 +22,7 @@ https://nytimes.com/2021/03/02/books/review/ibram-x-kendi-four-hundred-souls-geo
 `While the estate continues to dispute the amount sought by the I.R.S., it has agreed to pay or put aside the bulk of its earnings from royalties and other revenue streams.`\
 https://nytimes.com/2021/03/02/arts/music/aretha-franklin-taxes.html?searchResultPosition=7
 
-**At Least 15 Killed in Crash in Southern California, Authorities Say**\
+**At Least 15 Killed in Crash in Southern California, Officials Say**\
 `The crash, involving an S.U.V. and a tractor-trailer, took place in the area of El Centro, Calif., about 60 miles west of the Arizona border.`\
 https://nytimes.com/2021/03/02/us/fatal-crash-imperial-california.html?searchResultPosition=8
 
