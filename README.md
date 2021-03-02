@@ -1,4 +1,4 @@
-**Virus Variant in Brazil Infected Many Who Had Already Recovered from Covid-19**\
+**Virus Variant in Brazil Infected Many Who Had Already Recovered From Covid-19**\
 `The first detailed studies of the so-called P.1 variant show how it devastated a Brazilian city. Now scientists want to know what it will do elsewhere.`\
 https://nytimes.com/2021/03/01/health/covid-19-coronavirus-brazil-variant.html?searchResultPosition=2
 
