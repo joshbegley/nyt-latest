@@ -1,6 +1,6 @@
 **A Wave of Reopenings Takes Hold as Americans Ask Whether the Worst Is Over**\
 `As coronavirus cases drop, states are reopening businesses and schools, prompting people to emerge after months of isolation despite uncertainty about the pandemic’s future.`\
-https://nytimes.com/2021/03/02/us/coronavirus-reopenings.html?searchResultPosition=1
+https://nytimes.com/2021/03/02/us/coronavirus-reopening.html?searchResultPosition=1
 
 **Videos Show Aftermath Of Southern California Crash**\
 `A tractor-trailer slammed into the side of an S.U.V. on a Holtville, Calif., highway Tuesday. Area hospital officials said that more than a dozen people are dead as a result of the collision.`\
