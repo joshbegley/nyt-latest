@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/02/us/02pandemic-anniversary-callout.html?searchResu
 https://nytimes.com/2021/03/02/us/politics/biden-progressives-wage-increase.html?searchResultPosition=5
 
 **Bunny Wailer, Reggae Pioneer With the Wailers, Dies at 73**\
-`He was the last surviving original member of the group, which also featured Bob Marley and Peter Tosh, that helped spread the music of Jamaica worldwide.`\
+`He was the last surviving original member of the group, which also featured Bob Marley and Peter Tosh. Together they helped spread the music of Jamaica worldwide.`\
 https://nytimes.com/2021/03/02/arts/music/bunny-wailer-dead.html?searchResultPosition=6
 
 **Biden: Enough Vaccines for All Adults by End of May**\
