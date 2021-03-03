@@ -31,7 +31,7 @@ https://nytimes.com/2021/03/03/arts/keanu-reeves-comic-book.html?searchResultPos
 https://nytimes.com/2021/03/03/nyregion/covid-19-mutual-aid-nyc.html?searchResultPosition=8
 
 **Britney Spears’s Father Says He Hopes She Won’t Need a Conservatorship**\
-`The father’s lawyer shared that opinion on CNN recently, almost a month after a documentary examining the arrangement was released.`\
+`The father’s lawyer shared his opinions on the conservatorship on CNN and NBC News recently, almost a month after a documentary examining the arrangement was released.`\
 https://nytimes.com/2021/03/03/arts/music/britney-spears-conservatorship.html?searchResultPosition=9
 
 **I.C.C. Will Investigate Accusations of War Crimes in Israeli-Occupied Territories**\
