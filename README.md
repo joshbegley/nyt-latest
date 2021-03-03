@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘On Horseback Among the Eagle Hunters and Herders of the Mongolian Altai’**\
-`In this lesson, students will explore a photo essay on the Kazakh people who have for centuries developed and nurtured a special bond with golden eagles. Then, they will act as photojournalists and document family traditions in their own life.`\
-https://nytimes.com/2021/03/03/learning/lesson-of-the-day-on-horseback-among-the-eagle-hunters-and-herders-of-the-mongolian-altai.html?searchResultPosition=1
+**5 Minutes That Will Make You Love Tenors**\
+`Rufus Wainwright, Josh Groban, Andrea Bocelli and others choose opera’s most passionate, golden voices.`\
+https://nytimes.com/2021/03/03/arts/music/five-minutes-tenors-classical-music-opera.html?searchResultPosition=1
 
-**The Hottest Amenity From Developers? A Power Plant Made of Batteries.**\
-`Charged via rooftop solar panels, the cells form a network that provides a building with backup electricity and that utilities can tap during peak periods.`\
-https://nytimes.com/2021/03/03/business/energy-storage-batteries-developers.html?searchResultPosition=2
+**Return-to-Office Plans Are Set in Motion, but Virus Uncertainty Remains**\
+`Many employers are not making a decision until many workers are vaccinated. And some are making plans for “hybrid” work arrangements.`\
+https://nytimes.com/2021/03/03/business/return-to-work-coronavirus.html?searchResultPosition=2
 
-**World Records**\
-`If you could set a world record, what would it be?`\
-https://nytimes.com/2021/03/03/learning/world-records.html?searchResultPosition=3
+**How to Get a Peloton-Style Workout Without Splurging**\
+`Don’t want to pay $1,900 for a Peloton bike, plus a subscription fee for classes? Here are ways to reduce the cost of using tech to exercise at home.`\
+https://nytimes.com/2021/03/03/technology/personaltech/peloton-style-workout-without-splurging.html?searchResultPosition=3
 
-**Jimmy Kimmel Skewers Andrew Cuomo Over Sexual Harassment Allegations**\
-`“In the span of one month, Andrew Cuomo has somehow done the impossible: He made Bill de Blasio the second-most-hated politician in New York,” Kimmel said.`\
-https://nytimes.com/2021/03/03/arts/television/jimmy-kimmel-andrew-cuomo-sexual-harassment.html?searchResultPosition=4
+**Empty Office Buildings Squeeze City Budgets as Property Values Fall**\
+`A looming hit to tax revenues puts pressure on Congress to deliver relief.`\
+https://nytimes.com/2021/03/03/us/politics/pandemic-city-budgets.html?searchResultPosition=4
 
-**Word of the Day: nascent**\
-`This word has appeared in 231 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/03/03/learning/word-of-the-day-nascent.html?searchResultPosition=5
+**Oakland, N.J.: A Rustic Version of Suburbia, 30 Miles From Midtown**\
+`Less pricey than surrounding areas of Bergen County, the borough has a secluded feeling, but highways make it accessible to the city.`\
+https://nytimes.com/2021/03/03/realestate/living-in-oakland-new-jersey.html?searchResultPosition=5
 
-**James Harden Is Headed Back to Houston. Too Bad He’s Not Staying.**\
-`Harden is in a groove with the Nets as they head to face his former Rockets team, which is struggling.`\
-https://nytimes.com/2021/03/03/sports/basketball/james-harden-nets-rockets.html?searchResultPosition=6
+**Living In ... Oakland, N.J.**\
+`Less pricey than surrounding areas of Bergen County, the borough has a secluded feeling, although highways make it accessible to the city.`\
+https://nytimes.com/slideshow/2021/03/03/realestate/living-in-oakland-nj.html?searchResultPosition=6
 
-**U.S. Infrastructure Earns a C– Ahead of a Biden Investment Plan**\
-`By Niraj Chokshi`\
-https://nytimes.com/2021/03/03/business/infrastructure-grade.html?searchResultPosition=7
+**Georgia Takes Center Stage in Battle Over Voting Rights**\
+`Two bills moving through the Republican-controlled Legislature would place new restrictions on voting access, in ways Democrats say would have an outsize impact on Black voters.`\
+https://nytimes.com/2021/03/03/us/politics/georgia-voting-laws.html?searchResultPosition=7
 
-**Videos Show Extent of Myanmar Military’s Bloody Crackdown**\
-`A trove of visual evidence reveals how soldiers and the police used rifles and other lethal weapons against anti-coup protests across the country.`\
-https://nytimes.com/2021/03/03/world/asia/myanmar-protests-violence.html?searchResultPosition=8
+**If Mom Could See Her Now**\
+`Bianca Smith, the first Black woman to coach in professional baseball, learned the language of the game from her mother.`\
+https://nytimes.com/2021/03/03/sports/baseball/bianca-smith-red.html?searchResultPosition=8
 
-**Boy Scouts Will Sell Nearly 60 Norman Rockwell Works to Pay Sex-Abuse Claims**\
-`The Boy Scouts of America, which is facing more than 82,000 sex-abuse claims, said in a court filing that it would establish a settlement fund of at least $300 million.`\
-https://nytimes.com/2021/03/02/us/boy-scouts-bankruptcy-norman-rockwell.html?searchResultPosition=9
+**America’s Most Prized Leftovers: Covid Vaccines**\
+`Throngs of people languishing without appointments are cold-calling pharmacies and driving from clinic to clinic, hunting for an extra dose.`\
+https://nytimes.com/2021/03/03/us/americas-most-prized-leftovers-covid-vaccines.html?searchResultPosition=9
 
-**Without Backpackers to Pick Them, Crops Rot by the Ton in Australia**\
-`The pandemic has exposed the shaky labor foundation of the country’s agriculture industry, spurring calls for an immigration overhaul.`\
-https://nytimes.com/2021/03/02/world/australia/agriculture-backpackers.html?searchResultPosition=10
+**New York Mayoral Candidates Weigh How Hard to Hit Cuomo**\
+`The feud between Mayor Bill de Blasio and Gov. Andrew Cuomo has hurt New York City, but Mr. Cuomo’s recent troubles may alter the dynamic for the next mayor.`\
+https://nytimes.com/2021/03/03/nyregion/cuomo-mayor-relationship.html?searchResultPosition=10
 
