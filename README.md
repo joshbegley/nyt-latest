@@ -1,40 +1,40 @@
+**Socially Distant Wedding Activities**\
+`From talent shows to trivia quizzes, here are a few creative ways to keep guests entertained and engaged, while observing health and safety protocols whatever your state’s restrictions are.`\
+https://nytimes.com/2021/03/03/style/socially-distant-wedding-activities.html?searchResultPosition=1
+
 **At three mass vaccination sites, New York will start administering doses overnight.**\
 `Three mass vaccination sites across New York State will begin administering doses overnight, Gov. Andrew M. Cuomo said this week, as officials seek to use an influx of new vaccines manufactured by Johnson & Johnson to significantly expand the vaccination effort.`\
-https://nytimes.com/2021/03/03/world/get-new-york-vaccine-overnight.html?searchResultPosition=1
+https://nytimes.com/2021/03/03/world/get-new-york-vaccine-overnight.html?searchResultPosition=2
 
 **What Our Food Staff Cooked Last Month**\
 `In February, we leaned into comfort food: Winter squash curry, crispy tofu, the creamiest scrambled eggs and more.`\
-https://nytimes.com/2021/03/03/dining/most-cooked-recipes-staff.html?searchResultPosition=2
+https://nytimes.com/2021/03/03/dining/most-cooked-recipes-staff.html?searchResultPosition=3
 
 **Alamo Drafthouse files for Chapter 11 bankruptcy protection.**\
 `The company said the move would provide the company with the financing needed to weather the pandemic.`\
-https://nytimes.com/2021/03/03/business/alamo-drafthouse-files-for-chapter-11-bankruptcy-protection.html?searchResultPosition=3
+https://nytimes.com/2021/03/03/business/alamo-drafthouse-files-for-chapter-11-bankruptcy-protection.html?searchResultPosition=4
 
 **U.S. Prosecutors Call Him a Murderer. To Ukraine He’s an Asylum Seeker.**\
 `A complex legal battle in Kyiv is shedding light on the Americans who seek battle experience with far-right paramilitary units in Ukraine — and on the F.B.I.’s efforts to monitor them.`\
-https://nytimes.com/2021/03/03/world/europe/ukraine-right-wing-rmilitias.html?searchResultPosition=4
+https://nytimes.com/2021/03/03/world/europe/ukraine-right-wing-rmilitias.html?searchResultPosition=5
 
 **Teyonah Parris Didn’t Get ‘WandaVision’ at First, Either**\
 `The actress was thrilled to join the Marvel series as the agent Monica Rambeau, after memorable roles in “Chi-Raq” and “Mad Men.” But early on, she was just as confused as the rest of us.`\
-https://nytimes.com/2021/03/03/arts/television/wandavision-monica-rambeau-teyonah-parris.html?searchResultPosition=5
+https://nytimes.com/2021/03/03/arts/television/wandavision-monica-rambeau-teyonah-parris.html?searchResultPosition=6
 
 **D.C. National Guard Commander Testifies Before Congress Following Capitol Riot**\
 `D.C. National Guard Commander, Maj. Gen. William J. Walker, testified on Wednesday that he was not given the approval to mobilize troops during the Jan. 6 assault on the Capitol until hours after his initial request.`\
-https://nytimes.com/video/us/politics/100000007634136/national-guard-capitol-riot-testimony.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000007634136/national-guard-capitol-riot-testimony.html?searchResultPosition=7
 
 **California Condors Get an Assist From an Unlikely Source: A Wind Power Company**\
 `Federal wildlife authorities in California are working with a wind energy company to breed the endangered birds in captivity to replace any that may be killed by turbine blades. Conservationists are skeptical.`\
-https://nytimes.com/2021/03/03/climate/california-condor-wind-power.html?searchResultPosition=7
+https://nytimes.com/2021/03/03/climate/california-condor-wind-power.html?searchResultPosition=8
 
 **Top House Democrats recommend Shalanda Young to lead the budget office after Tanden’s nomination failed.**\
 `Multiple Republicans also signaled their support for Ms. Young, who helped negotiate in 2019 the end to the nation’s longest government shutdown.`\
-https://nytimes.com/2021/03/03/us/top-house-democrats-recommend-shalanda-young-to-lead-the-budget-office-after-tandens-nomination-failed.html?searchResultPosition=8
+https://nytimes.com/2021/03/03/us/top-house-democrats-recommend-shalanda-young-to-lead-the-budget-office-after-tandens-nomination-failed.html?searchResultPosition=9
 
 **When I Lost My Sense of Taste to Covid, Anorexia Stepped In**\
 `With flavor gone, my old eating disorder came roaring back.`\
-https://nytimes.com/2021/03/03/well/mind/covid-anorexia-eating-disorder.html?searchResultPosition=9
-
-**What Is a Ballet Body?**\
-`With performances on pause, many dancers are rethinking their relationship to weight.`\
-https://nytimes.com/2021/03/03/arts/dance/what-is-a-ballet-body.html?searchResultPosition=10
+https://nytimes.com/2021/03/03/well/mind/covid-anorexia-eating-disorder.html?searchResultPosition=10
 
