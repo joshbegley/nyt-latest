@@ -1,6 +1,6 @@
-**The Alamo Drafthouse movie theater chain files for bankruptcy protection.**\
+**Alamo Drafthouse files for Chapter 11 bankruptcy protection.**\
 `The company said the move would provide the company with the financing needed to weather the pandemic.`\
-https://nytimes.com/2021/03/03/business/the-alamo-drafthouse-movie-theater-chain-files-for-bankruptcy-protection.html?searchResultPosition=1
+https://nytimes.com/2021/03/03/business/alamo-drafthouse-files-for-chapter-11-bankruptcy-protection.html?searchResultPosition=1
 
 **U.S. Prosecutors Call Him a Murderer. To Ukraine He’s an Asylum Seeker.**\
 `A complex legal battle in Kyiv is shedding light on the Americans who seek battle experience with far-right paramilitary units in Ukraine — and on the F.B.I.’s efforts to monitor them.`\
