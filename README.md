@@ -1,10 +1,10 @@
-**Why You Need a Wildlife Camera**\
-`Without one, you may never know who else lives on your property. Or who’s eating your bush beans.`\
-https://nytimes.com/2021/03/03/realestate/why-you-need-a-wildlife-camera.html?searchResultPosition=1
-
 **Can Bill Gates Vaccinate the World?**\
 `How the Microsoft founder is changing the way the world is vaccinated and, potentially, the course of the pandemic.`\
-https://nytimes.com/2021/03/03/podcasts/the-daily/coroanvirus-vaccine-bill-gates-covax.html?searchResultPosition=2
+https://nytimes.com/2021/03/03/podcasts/the-daily/coroanvirus-vaccine-bill-gates-covax.html?searchResultPosition=1
+
+**Why You Need a Wildlife Camera**\
+`Without one, you may never know who else lives on your property. Or who’s eating your bush beans.`\
+https://nytimes.com/2021/03/03/realestate/why-you-need-a-wildlife-camera.html?searchResultPosition=2
 
 **In ‘Who Is Maud Dixon?,’ a Dream Job Leads to a Twisty Nightmare**\
 `Alexandra Andrews’s debut novel follows a Machiavellian aspiring writer who becomes entangled in her work for a best-selling fiction writer.`\
@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/03/nyregion/nyc-mayor-race-cuomo.html?searchResultPo
 https://nytimes.com/2021/03/03/opinion/trump-republican-party.html?searchResultPosition=5
 
 **‘The East Is Rising’: Xi Maps Out China’s Post-Covid Ascent**\
-`But as Beijing rolls out a long-term plan, its top leader has also warned that “the United States is the biggest threat.’”`\
+`But as Beijing rolls out a long-term plan, its top leader has also warned that “the United States is the biggest threat.”`\
 https://nytimes.com/2021/03/03/world/asia/xi-china-congress.html?searchResultPosition=6
 
 **5 Minutes That Will Make You Love Tenors**\
