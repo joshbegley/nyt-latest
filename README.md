@@ -4,7 +4,7 @@ https://nytimes.com/2021/03/03/us/ercot-bill-magness-fired-texas.html?searchResu
 
 **Transgender Woman Expelled From South Korean Army Is Found Dead**\
 `Byeon Hee-su, who was declared unfit to serve last year after her gender-reassignment surgery, had sued to be reinstated.`\
-https://nytimes.com/2021/03/03/world/asia/south-korea-military-transgender.html?searchResultPosition=2
+https://nytimes.com/2021/03/04/world/asia/south-korea-military-transgender.html?searchResultPosition=2
 
 **Your Thursday Briefing**\
 `Germany’s AfD under surveillance.`\
