@@ -1,40 +1,40 @@
-**A Digital Festival, in the Spirit of Bertolt Brecht**\
-`The directors of the Brecht Festival Augsburg have curated an online-only event that runs the gamut from experimental films to poetry slams and puppetry.`\
-https://nytimes.com/2021/03/04/theater/augsburg-brecht-festival-digital.html?searchResultPosition=1
+**‘A Nightmare Every Day’: Inside an Overwhelmed Funeral Home**\
+`Those at Continental Funeral Home in East Los Angeles view themselves as working-class emergency workers. They have always done the work no one wants to, but now it’s to an extreme.`\
+https://nytimes.com/2021/03/04/us/covid-los-angeles-funeral-home.html?searchResultPosition=1
 
-**OPEC and Russia will discuss raising oil production.**\
-`The group is expected to weigh a potential but by no means certain production increase of as much as 1.5 million barrels a day.`\
-https://nytimes.com/2021/03/04/business/opec-russia-oil-production.html?searchResultPosition=2
+**As Online Shopping Surged, Amazon Planned Its New York Takeover**\
+`The e-commerce giant added at least nine new warehouses in the city over the past year as 2.4 million packages a day strained the nation’s largest urban delivery system.`\
+https://nytimes.com/2021/03/04/nyregion/amazon-in-new-york.html?searchResultPosition=2
 
-**How Our At Home Writer Is Coping at Home**\
-`We asked Melissa Kirsch to talk about ways she keeps her spirits up and her day meaningful. For her, it starts with a movie night.`\
-https://nytimes.com/2021/03/04/insider/tips-coping-at-home.html?searchResultPosition=3
+**How One Looted Artifact Tells the Story of Modern Afghanistan**\
+`Many of the country’s finest antiquities were stolen under cover of war, ending up in elite museums all over the globe. Should they be returned?`\
+https://nytimes.com/2021/03/04/magazine/ghazni-panels-afghanistan-art.html?searchResultPosition=3
 
-**Pope’s Planned Visit to Iraq, Amid Pandemic, Raises Questions of Timing**\
-`Pope Francis has said he is determined to visit the war-torn country. But some worry that the visit will become a superspreader event in a land where the virus still rages.`\
-https://nytimes.com/2021/03/04/world/europe/pope-iraq-coronavirus.html?searchResultPosition=4
+**Finding Refuge, and a Snowy Owl, in Central Park**\
+`When pandemic New York seemed at its most surreal, the park, with its abundant wildlife and familiar progression of the seasons, offered a vision of normal life to a book critic who wandered it daily.`\
+https://nytimes.com/2021/03/04/travel/finding-refuge-and-a-snowy-owl-in-central-park.html?searchResultPosition=4
 
-**Is Fashion Changing?**\
-`Tracking an industry where Black representation has been rare.`\
-https://nytimes.com/2021/03/04/style/Black-representation-fashion.html?searchResultPosition=5
+**Republicans Won Blue-Collar Votes. They’re Not Offering Much in Return.**\
+`Party leaders want to capitalize on Donald Trump’s appeal to the white working class. But in recent weeks, they’ve offered very little to advance working people’s economic interests.`\
+https://nytimes.com/2021/03/04/us/politics/republicans-workers-covid-bill.html?searchResultPosition=5
 
-**Stephen Colbert: QAnon Supporters Suffer From ‘March Madness’**\
-`Colbert poked fun at the group’s latest conspiracy theory that March 4 would be Donald Trump’s true Inauguration Day.`\
-https://nytimes.com/2021/03/04/arts/television/late-night-stephen-colbert-qanon-trump-inauguration-day.html?searchResultPosition=6
+**A College President Worried About the Risks of Dorm Isolation. So He Moved In.**\
+`Col. Mark Anarumo, the president of Norwich University, had been through suicides of students during in-room lockdown. He thought he could help by moving into the dorm.`\
+https://nytimes.com/2021/03/04/us/norwich-university-president-dormitory.html?searchResultPosition=6
 
-**Word of the Day: redress**\
-`This word has appeared in 94 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2021/03/04/learning/word-of-the-day-redress.html?searchResultPosition=7
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/03/04/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=7
 
-**How Did Boris Johnson Get Covid Vaccines So Right?**\
-`Just a few weeks ago, Britain looked sickly and alone. Then things started to go very well indeed.`\
-https://nytimes.com/2021/03/04/opinion/uk-covid-vaccines.html?searchResultPosition=8
+**Dr. Seuss Books Are Pulled, and a ‘Cancel Culture’ Controversy Erupts**\
+`The beloved author’s most famous books, like “Green Eggs and Ham,” were untouched, but his estate’s decision nevertheless prompted a backlash and raised questions about what should be preserved as part of the cultural record.`\
+https://nytimes.com/2021/03/04/books/dr-seuss-books.html?searchResultPosition=8
 
-**Executive Overseeing Texas’ Power Grid Is Forced Out From Within**\
-`Seven board members of the Electric Reliability Council of Texas had resigned in the wake of widespread outages. Those who remained decided to fire the agency’s chief executive.`\
-https://nytimes.com/2021/03/03/us/ercot-bill-magness-fired-texas.html?searchResultPosition=9
+**How Daniel Kaluuya Makes His Characters Come Alive**\
+`The “Get Out” and “Judas and the Black Messiah” actor combines deep preparation and a hunger for spontaneity. “I don’t think I’m entitled to your attention.”`\
+https://nytimes.com/2021/03/04/movies/daniel-kaluuya.html?searchResultPosition=9
 
-**Transgender Woman Expelled From South Korean Army Is Found Dead**\
-`Byeon Hee-su, who was declared unfit to serve last year after her gender-reassignment surgery, had sued to be reinstated.`\
-https://nytimes.com/2021/03/04/world/asia/south-korea-military-transgender.html?searchResultPosition=10
+**Texas Farmers Tally Up the Damage From a Winter Storm ‘Massacre’**\
+`The state’s agriculture sector has lost an estimated $600 million or more. Crop and livestock damage could mean shortages and higher prices beyond Texas.`\
+https://nytimes.com/2021/03/04/dining/texas-farms-storm-damage.html?searchResultPosition=10
 
