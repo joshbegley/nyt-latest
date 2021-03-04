@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/04/t-magazine/rap-hip-hop-poetry.html?searchResultPo
 `Rap and poetry have long been intertwined. Here, a handful of writers share some of the tracks that have helped them hone their own craft.`\
 https://nytimes.com/2021/03/04/t-magazine/rap-poetry-hip-hop-playlist.html?searchResultPosition=2
 
-**Square acquires Tidal, Jay-Z’s streaming service, in $297 million deal.**\
+**Square acquires majority of Tidal, Jay-Z’s streaming service, in $297 million deal.**\
 `Jay-Z bought Tidal in partnership with other artists in 2015 for $56 million. It will be led by an interim director from Square under Jack Dorsey.`\
 https://nytimes.com/2021/03/04/business/media/tidal-square-jay-z-dorsey.html?searchResultPosition=3
 
