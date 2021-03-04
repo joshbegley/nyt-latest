@@ -18,23 +18,23 @@ https://nytimes.com/2021/03/03/todayspaper/quotation-of-the-day-biden-denounces-
 `Corrections that appeared in print on Thursday, March 4, 2021.`\
 https://nytimes.com/2021/03/03/pageoneplus/corrections-march-4-2021.html?searchResultPosition=5
 
+**Master Chef**\
+`Our producer’s partner tried to learn how to chop like the table-side chefs at Benihana.`\
+https://nytimes.com/audio/2021/03/03/podcasts/05daily-newsletter-benihana.html?searchResultPosition=6
+
 **A Summer Streetscape**\
 `With most socializing happening outside, our producer found her street get louder on sunny days.`\
-https://nytimes.com/audio/2021/03/03/podcasts/05daily-newsletter-street.html?searchResultPosition=6
+https://nytimes.com/audio/2021/03/03/podcasts/05daily-newsletter-street.html?searchResultPosition=7
 
 **Taradiddle**\
 `Blake Slonecker makes his New York Times Crossword debut and cannot tell a lie.`\
-https://nytimes.com/2021/03/03/crosswords/daily-puzzle-2021-03-04.html?searchResultPosition=7
+https://nytimes.com/2021/03/03/crosswords/daily-puzzle-2021-03-04.html?searchResultPosition=8
 
 **Kellen Winslow II, Once N.F.L.’s Highest-Paid Tight End, Gets 14 Years for Rapes**\
 `The sentencing judge called the former Cleveland Browns player a sexual predator who preyed on marginalized women.`\
-https://nytimes.com/2021/03/03/sports/kellen-winslow-sentenced-sexual-assault.html?searchResultPosition=8
+https://nytimes.com/2021/03/03/sports/kellen-winslow-sentenced-sexual-assault.html?searchResultPosition=9
 
 **Washington Football Team Will Replace Cheerleaders With a Coed Dance Team**\
 `The change came after many accusations of sexual harassment from the women on the cheerleading squad.`\
-https://nytimes.com/2021/03/03/sports/football/washington-football-team-cheerleaders.html?searchResultPosition=9
-
-**House Democrats Prepare to Pass Sweeping Voting Rights Bill**\
-`House Democrats are set to pass the largest federal expansion of voting rights in decades as Republicans try to limit ballot access in states across the country following the 2020 election.`\
-https://nytimes.com/video/us/politics/100000007635415/congress-voting-rights-hr1.html?searchResultPosition=10
+https://nytimes.com/2021/03/03/sports/football/washington-football-team-cheerleaders.html?searchResultPosition=10
 
