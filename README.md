@@ -10,7 +10,7 @@ https://nytimes.com/2021/03/04/your-money/college-application-essays.html?search
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2021/03/04/books/review/10-new-books-we-recommend-this-week.html?searchResultPosition=3
 
-**In Iceland, 18,000 Earthquakes in Over a Week Indicate Eruption Could Be Imminent**\
+**In Iceland, 18,000 Earthquakes in Over a Week Indicate Possible Eruption on the Horizon**\
 `The earthquake swarm is the culmination of more than a year of intense seismic activity. It could also herald decades of intermittent volcanic eruptions.`\
 https://nytimes.com/2021/03/04/world/europe/earthquakes-eruption-iceland.html?searchResultPosition=4
 
