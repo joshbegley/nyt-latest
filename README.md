@@ -1,40 +1,40 @@
+**Mounting federal debt puts the U.S. at risk of a fiscal crisis, Congressional Budget Office warns.**\
+`The nonpartisan office forecast a challenging long-term outlook, as interest costs rise and federal spending on health programs swells along with an aging population.`\
+https://nytimes.com/2021/03/04/business/cbo-deficit-projection.html?searchResultPosition=1
+
+**The Great Art Behind Hunter S. Thompson’s Run for Sheriff**\
+`A new show in Manhattan displays the visceral posters for the gonzo journalist’s “Freak Power” campaign in 1970.`\
+https://nytimes.com/2021/03/04/arts/design/freak-power-poster-house-hunter-s-thompson.html?searchResultPosition=2
+
+**This Creature Is Blind, but Somehow It Knows the Color Blue**\
+`Eyeless roundworms may have hacked other forms of cellular warning systems to give themselves a form of color vision.`\
+https://nytimes.com/2021/03/04/science/worms-colors-blind.html?searchResultPosition=3
+
+**North Carolina Officer Slams Dog Into Car, Prompting Investigation**\
+`A video obtained by a TV station appears to show an officer in Salisbury, N.C., hoisting a police dog off the ground by its leash and shoving it into the side of an S.U.V.`\
+https://nytimes.com/2021/03/04/us/salisbury-north-carolina-k9.html?searchResultPosition=4
+
+**Work Out in Under 10 Minutes**\
+`Our slate of home workouts is beginner-friendly, research-proven and efficient. Try one.`\
+https://nytimes.com/interactive/2021/03/04/well/move/quick-at-home-workout.html?searchResultPosition=5
+
 **Proposed E.U. Law Aims to Rectify Gender Pay Gap**\
 `Under a proposed law, companies in Europe could be sanctioned if they fail to pay men and women the same salaries.`\
-https://nytimes.com/2021/03/04/world/europe/european-union-pay-gap-equity.html?searchResultPosition=1
+https://nytimes.com/2021/03/04/world/europe/european-union-pay-gap-equity.html?searchResultPosition=6
 
 **Carol Bove’s Light-Touch Heavy Metal Faces Down the Met**\
 `The American sculptor is the second artist invited to occupy the sculptural niches on Fifth Avenue.`\
-https://nytimes.com/2021/03/04/arts/design/carol-bove-the-met.html?searchResultPosition=2
+https://nytimes.com/2021/03/04/arts/design/carol-bove-the-met.html?searchResultPosition=7
 
 **Justice Amy Coney Barrett Issues Her First Majority Opinion**\
 `The 7-to-2 ruling rejected an environmental group’s Freedom of Information Act request.`\
-https://nytimes.com/2021/03/04/us/amy-coney-barrett-supreme-court.html?searchResultPosition=3
+https://nytimes.com/2021/03/04/us/amy-coney-barrett-supreme-court.html?searchResultPosition=8
 
 **The House passes a policing overhaul bill named for George Floyd, whose death spurred nationwide protests.**\
 `The bill is aimed at combating racial discrimination and excessive use of force in law enforcement. But its prospects are dim in the Senate.`\
-https://nytimes.com/2021/03/04/us/george-floyd-act.html?searchResultPosition=4
+https://nytimes.com/2021/03/04/us/george-floyd-act.html?searchResultPosition=9
 
 **Treasury to Invest $9 Billion in Minority Communities**\
 `Treasury Secretary Janet Yellen is making Community Development Financial Institutions central to achieving an inclusive economy.`\
-https://nytimes.com/2021/03/04/us/politics/treasury-minority-loans.html?searchResultPosition=5
-
-**What’s Going On in This Graph? | March 10, 2021**\
-`How can we get to herd immunity faster but with fewer people dying?`\
-https://nytimes.com/2021/03/04/learning/whats-going-on-in-this-graph-march-10-2021.html?searchResultPosition=6
-
-**What Students Are Saying About Supporting Struggling Students, Connecting With Their Heritage and Hidden Truths**\
-`Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
-https://nytimes.com/2021/03/04/learning/what-students-are-saying-about-supporting-struggling-students-connecting-with-their-heritage-and-hidden-truths.html?searchResultPosition=7
-
-**‘Party Down,’ a Cult Hit, Is Getting a Revival on Starz**\
-`The short-lived but beloved sitcom about a team of misanthropic cater-waiters will be revived with a six-episode limited series.`\
-https://nytimes.com/2021/03/04/arts/television/party-down-starz.html?searchResultPosition=8
-
-**Dallas Museum of Art to Return Sacred Statue to Nepal**\
-`The museum is returning the sculpture, which was looted from a temple in the 1980s. The move comes after researchers raised concerns about its provenance.`\
-https://nytimes.com/2021/03/04/arts/design/dallas-museum-nepali-structure-returned.html?searchResultPosition=9
-
-**‘Nobody Is in Charge’: Capitol’s Secretive Police Board Faces Overhaul After Riot**\
-`Top lawmakers say the Capitol Police Board, which is beholden to House and Senate leaders, needs significant changes after the shocking security failures of Jan. 6.`\
-https://nytimes.com/2021/03/04/us/capitol-riot-police-board.html?searchResultPosition=10
+https://nytimes.com/2021/03/04/us/politics/treasury-minority-loans.html?searchResultPosition=10
 
