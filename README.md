@@ -22,8 +22,8 @@ https://nytimes.com/2021/03/04/science/worms-colors-blind.html?searchResultPosit
 `A video obtained by a TV station appears to show an officer in Salisbury, N.C., hoisting a police dog off the ground by its leash and shoving it into the side of an S.U.V.`\
 https://nytimes.com/2021/03/04/us/salisbury-north-carolina-k9.html?searchResultPosition=6
 
-**Work Out in Under 10 Minutes**\
-`Our slate of home workouts is beginner-friendly, research-proven and efficient. Try one.`\
+**5 Workouts You Can Do in Under 10 Minutes**\
+`Science shows that small, quick workouts of 10 minutes or less can elicit aerobic and metabolic benefits.`\
 https://nytimes.com/interactive/2021/03/04/well/move/quick-at-home-workout.html?searchResultPosition=7
 
 **Proposed E.U. Law Aims to Rectify Gender Pay Gap**\
