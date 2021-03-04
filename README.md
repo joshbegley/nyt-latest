@@ -1,4 +1,4 @@
-**Kellen Winslow II, Once N.F.L.’s Top-Paid Tight End, Gets 14 Years for Rapes**\
+**Kellen Winslow II, Once N.F.L.’s Highest-Paid Tight End, Gets 14 Years for Rapes**\
 `The sentencing judge called the former Cleveland Browns player a sexual predator who preyed on marginalized women.`\
 https://nytimes.com/2021/03/03/sports/kellen-winslow-sentenced-sexual-assault.html?searchResultPosition=1
 
