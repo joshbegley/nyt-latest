@@ -2,7 +2,7 @@
 `The Dallas police chief announced on Thursday that Officer Bryan Riser was arrested and charged with two counts of capital murder, after a witness said Officer Riser instructed him to kill two people in 2017.`\
 https://nytimes.com/video/us/100000007637217/bryan-riser-dallas-police.html?searchResultPosition=1
 
-**There’s a New Pregnancy Discrimination Bill in the House. This Time It Might Actually Pass.**\
+**There’s a New Pregnancy Discrimination Bill in the House. This Time It Might Pass.**\
 `After eight years of stops and starts, a new ‘common sense’ bill will provide pregnant women with clear protections at work.`\
 https://nytimes.com/2021/03/04/us/pregnancy-discrimination-congress-women.html?searchResultPosition=2
 
