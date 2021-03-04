@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/03/todayspaper/quotation-of-the-day-biden-denounces-
 https://nytimes.com/2021/03/03/pageoneplus/corrections-march-4-2021.html?searchResultPosition=5
 
 **A Summer Streetscape**\
-`With all socializing happening outside, our producer found her street get much louder on sunny days.`\
+`With most socializing happening outside, our producer found her street get louder on sunny days.`\
 https://nytimes.com/audio/2021/03/03/podcasts/05daily-newsletter-street.html?searchResultPosition=6
 
 **Taradiddle**\
