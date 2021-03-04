@@ -1,5 +1,5 @@
 **Cuomo: Remorse, but No Resignation**\
-`Two former aides who have accused the governor of sexual harassment expressed dissatisfaction with the his comments.`\
+`Two former aides who have accused the governor of sexual harassment expressed dissatisfaction with  his comments.`\
 https://nytimes.com/2021/03/04/nyregion/cuomo-sex-harassment-investigation.html?searchResultPosition=1
 
 **‘A Nightmare Every Day’: Inside an Overwhelmed Funeral Home**\
