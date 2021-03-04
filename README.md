@@ -1,5 +1,5 @@
 **A New League’s Shot at the N.C.A.A.: $100,000 Salaries for High School Players**\
-`The Overtime Elite league proposes that providing a salary and a focus toward a pro basketball career might be more appealing than college and the allure of March Madness.`\
+`The Overtime Elite league proposes that providing a salary and a focus toward a pro career might be more appealing than college basketball’s biggest programs.`\
 https://nytimes.com/2021/03/04/sports/basketball/overtime-league-high-school-pay.html?searchResultPosition=1
 
 **‘Boogie’ Review: There’s No Laughing in Basketball**\
