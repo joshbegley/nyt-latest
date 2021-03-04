@@ -26,7 +26,7 @@ https://nytimes.com/2021/03/04/learning/lesson-of-the-day-can-this-new-map-fix-o
 `The network issued a correction and said it was looking into the matter, calling the interview a “deliberate hoax.”`\
 https://nytimes.com/2021/03/04/business/media/bbc-cory-booker-impersonator.html?searchResultPosition=7
 
-**Report on unemployment claims will offer new insight into the recovery.**\
+**Unemployment claims remain high, even as reopenings gain pace.**\
 `With caseloads dropping and restrictions on business activity being eased in many places, filings for unemployment benefits have come down. But the pace of reopenings has been uneven.`\
 https://nytimes.com/2021/03/04/business/jobless-claims.html?searchResultPosition=8
 
