@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/03/sports/golf/golf-pga-spieth-fowler.html?searchRes
 https://nytimes.com/2021/03/03/us/politics/house-voting-rights-bill.html?searchResultPosition=3
 
 **How to Reach People Who Are Wrong**\
-`In a post-Trump era, the perils of being righteous. Or even right.`\
+`In the post-Trump era, research suggests the best ways to win people over.`\
 https://nytimes.com/2021/03/03/opinion/progressives-conservatives-think-again.html?searchResultPosition=4
 
 **Migrants in Deadly Crash Had Crossed Through Border Wall, Officials Say**\
