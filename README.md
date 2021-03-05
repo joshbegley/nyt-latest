@@ -22,8 +22,8 @@ https://nytimes.com/2021/03/04/world/asia/china-economy.html?searchResultPositio
 `The formal request came only after a disconnect between the chief and the board that oversees her agency, underscoring the bureaucracy and communication breakdowns that have hampered security.`\
 https://nytimes.com/2021/03/04/us/politics/capitol-national-guard.html?searchResultPosition=6
 
-**Johnson Halts Action on Stimulus Bill With a Demand to Read it Aloud**\
-`Senator Ron Johnson, Republican of Wisconsin, used rules that called on legislative clerks to perform an hourslong reading of the 628-page text.`\
+**Action on Stimulus Bill Halts as Senate Clerks Read All 628 Pages Aloud**\
+`Senator Ron Johnson delayed proceedings on the nearly $2 trillion relief package by demanding that legislative clerks recite the plan word for word.`\
 https://nytimes.com/2021/03/04/us/politics/stimulus-senate.html?searchResultPosition=8
 
 **For Biden, Deliberation and Caution, Maybe Overcaution, on the World Stage**\
