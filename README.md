@@ -11,7 +11,7 @@ https://nytimes.com/2021/03/05/world/americans-vaccinations-survey.html?searchRe
 https://nytimes.com/2021/03/05/arts/television/netflix-expiring-march.html?searchResultPosition=3
 
 **Tony Hendra, a Multiplatform Humorist, Is Dead at 79**\
-`He took his British brand of satire to nightclubs, TV, film (“Spinal Tap”) and National Lampoon. But a memoir led to a sex-abuse accusation.`\
+`He took his British brand of satire to nightclubs, TV, film (“This Is Spinal Tap”) and National Lampoon. But a memoir led to a sex-abuse accusation.`\
 https://nytimes.com/2021/03/05/arts/television/tony-hendra-dead.html?searchResultPosition=4
 
 **Top Women’s Hockey Players Renew Their Olympic Journey**\
