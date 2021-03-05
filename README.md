@@ -26,7 +26,7 @@ https://nytimes.com/2021/03/05/sports/basketball/knicks-randle-quickley.html?sea
 `The suit by Representative Eric Swalwell accuses Donald J. Trump of inciting the Jan. 6 attack and conspiring to prevent Congress from formalizing President Biden’s victory.`\
 https://nytimes.com/2021/03/05/us/politics/eric-swalwell-trump-capitol-riot.html?searchResultPosition=7
 
-**The Virus Spread Where Restaurants Reopened or Mask Mandates Were Missing**\
+**The Virus Spread Where Restaurants Reopened or Mask Mandates Were Absent**\
 `C.D.C. researchers found that coronavirus infections and death rates rose in U.S. counties permitting in-person dining or not requiring masks.`\
 https://nytimes.com/2021/03/05/health/coronavirus-restaurant-dining-masks.html?searchResultPosition=8
 
