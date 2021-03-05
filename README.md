@@ -23,7 +23,7 @@ https://nytimes.com/2021/03/04/world/asia/china-economy.html?searchResultPositio
 https://nytimes.com/2021/03/04/us/politics/capitol-national-guard.html?searchResultPosition=6
 
 **Action on Stimulus Bill Halts as Senate Clerks Read All 628 Pages Aloud**\
-`Senator Ron Johnson delayed proceedings on the nearly $2 trillion relief package by demanding that legislative clerks recite the plan word for word.`\
+`Senator Ron Johnson delayed proceedings on the nearly $2 trillion relief package by demanding that the legislative clerks recite the plan word for word.`\
 https://nytimes.com/2021/03/04/us/politics/stimulus-senate.html?searchResultPosition=8
 
 **For Biden, Deliberation and Caution, Maybe Overcaution, on the World Stage**\
