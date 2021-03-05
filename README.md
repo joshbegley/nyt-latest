@@ -36,5 +36,5 @@ https://nytimes.com/2021/03/05/opinion/letters/republicans-trump.html?searchResu
 
 **L.G.B.T.Q. People Face Increased Risks From Covid, but Many Don’t Want the Vaccine**\
 `Evidence suggests that some sexual and gender minorities — especially people of color — are hesitant to get vaccinated due to mistrust of the medical establishment.`\
-https://nytimes.com/2021/03/05/well/covid-vaccine-lgbtq-hesitancy.html?searchResultPosition=10
+https://nytimes.com/2021/03/05/well/lgbtq-covid-19-vaccine.html?searchResultPosition=10
 
