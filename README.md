@@ -32,5 +32,5 @@ https://nytimes.com/2021/03/05/arts/television/the-real-world-homecoming.html?se
 
 **Teen Vogue Selects Its Next Top Editor, the Political Reporter Alexi McCammond**\
 `Ms. McCammond’s relationship with a former Biden press aide, T.J. Ducklo, recently made news after he threatened a reporter and was forced to resign.`\
-https://nytimes.com/2021/03/05/business/media/teen-vogue-selects-its-next-top-editor-the-political-reporter-alexi-mccammond.html?searchResultPosition=10
+https://nytimes.com/2021/03/05/business/media/teen-vogue-alexi-mccammond.html?searchResultPosition=10
 
