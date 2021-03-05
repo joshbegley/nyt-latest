@@ -27,7 +27,7 @@ https://nytimes.com/2021/03/05/sports/basketball/knicks-randle-quickley.html?sea
 https://nytimes.com/2021/03/05/us/politics/eric-swalwell-trump-capitol-riot.html?searchResultPosition=7
 
 **The Virus Spread Where Restaurants Reopened or Mask Mandates Were Missing**\
-`In U.S. counties without mask requirements last year, or in which restaurants reopened, infections and death rates rose.`\
+`C.D.C. researchers found that coronavirus infections and death rates rose in U.S. counties permitting in-person dining or not requiring masks.`\
 https://nytimes.com/2021/03/05/health/coronavirus-restaurant-dining-masks.html?searchResultPosition=8
 
 **Hockey Legend Wayne Gretzky Shared His Father With a Nation**\
