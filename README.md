@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/05/world/europe/ramallah-palestinian-music-techno-sa
 https://nytimes.com/2021/03/05/world/asia/indonesia-schools-head-scarves.html?searchResultPosition=5
 
 **February jobs report is expected to show only modest gains.**\
-`By Patricia Cohen`\
+`Economists surveyed by Bloomberg expect only small improvements. The February report is also expected to show a decline in state and local government payrolls.`\
 https://nytimes.com/2021/03/05/business/economy/february-2021-jobs-report.html?searchResultPosition=6
 
 **How Rhode Island Fell to the Coronavirus**\
