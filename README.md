@@ -6,9 +6,9 @@ https://nytimes.com/2021/03/05/technology/sports-are-the-internets-secret-key.ht
 `The Romanian director Radu Jude’s “Bad Luck Banging or Loony Porn” took the top prize in an online-only edition that lacked the magic of in-person moviegoing.`\
 https://nytimes.com/2021/03/05/movies/berlin-film-festival-bad-luck-banging-or-loony-porn.html?searchResultPosition=2
 
-**Tesla’s once-surging stock price is tumbling.**\
-`By Neal E. Boudette and Peter Eavis`\
-https://nytimes.com/2021/03/05/business/teslas-once-surging-stock-price-is-tumbling.html?searchResultPosition=3
+**Tesla’s once surging stock price is tumbling.**\
+`The share price fell by more than 10 percent on Friday morning, a drop that comes as the company faces more competition in the United States and China.`\
+https://nytimes.com/2021/03/05/business/tesla-stock-price.html?searchResultPosition=3
 
 **U.S. and Europe will suspend tariffs on wine, food and airplanes.**\
 `The governments agreed to temporarily suspend tariffs on billions of dollars of products as they search for a settlement to a long-running clash over subsidies given to Airbus and Boeing.`\
