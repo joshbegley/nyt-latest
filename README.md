@@ -1,4 +1,4 @@
-**YouTube Bars Myanmar Military Channels as Violence Rises**\
+**YouTube Bans Myanmar Military Channels as Violence Rises**\
 `The video platform became the latest American internet giant to take down the military’s content since the coup last month.`\
 https://nytimes.com/2021/03/05/business/youtube-myanmar.html?searchResultPosition=1
 
