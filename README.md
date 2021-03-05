@@ -15,7 +15,7 @@ https://nytimes.com/2021/03/04/us/malcom-x-home-boston.html?searchResultPosition
 https://nytimes.com/2021/03/04/crosswords/daily-puzzle-2021-03-05.html?searchResultPosition=4
 
 **Cuomo Aides Rewrote Nursing Home Report to Hide Higher Death Toll**\
-`The central role played by Gov. Andrew M. Cuomo’s top staff members reflects the lengths he has gone to brush aside public health expertise and bolster his position as a national leader in the fight against the coronavirus.`\
+`The intervention was the earliest action yet known in an effort by Gov. Andrew M. Cuomo that concealed how many nursing home residents died in the pandemic.`\
 https://nytimes.com/2021/03/04/nyregion/cuomo-nursing-home-deaths.html?searchResultPosition=5
 
 **Images of Slaves Are Property of Harvard, Not a Descendant, Judge Rules**\
