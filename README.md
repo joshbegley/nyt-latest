@@ -18,7 +18,7 @@ https://nytimes.com/2021/03/05/sports/baseball/trea-turner-nationals.html?search
 `Frank Grillo gets to die another day — again and again and again — in the time-loop action comedy.`\
 https://nytimes.com/2021/03/05/movies/boss-level-review-game-never-over.html?searchResultPosition=5
 
-**China’s Plan to Win in a Post-Pandemic World: What You Need to Know**\
+**China’s Plan to Win in a Post-Pandemic World**\
 `The message at the National People’s Congress was one of optimism about the strength of its economy and of struggle against an array of internal and external challenges.`\
 https://nytimes.com/2021/03/05/world/asia/china-national-peoples-congress.html?searchResultPosition=6
 
