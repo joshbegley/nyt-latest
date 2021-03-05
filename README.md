@@ -6,8 +6,8 @@ https://nytimes.com/2021/03/05/sports/basketball/knicks-randle-quickley.html?sea
 `The suit by Representative Eric Swalwell accuses Donald J. Trump of inciting the Jan. 6 attack and conspiring to prevent Congress from formalizing President Biden’s victory.`\
 https://nytimes.com/2021/03/05/us/politics/eric-swalwell-trump-capitol-riot.html?searchResultPosition=2
 
-**Restaurant Dining and Mask Mandates Linked to Virus Spread**\
-`In U.S. counties without mask requirements last year, or in which restaurants reopened, infection and death rates rose.`\
+**Restaurant Dining and Mask Use Linked to Virus Spread**\
+`In U.S. counties without mask requirements last year, or in which restaurants reopened, infections and death rates rose.`\
 https://nytimes.com/2021/03/05/health/coronavirus-restaurant-dining-masks.html?searchResultPosition=3
 
 **Hockey Legend Wayne Gretzky Shared His Father With a Nation**\
