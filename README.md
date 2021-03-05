@@ -4,7 +4,7 @@ https://nytimes.com/2021/03/05/technology/sports-are-the-internets-secret-key.ht
 
 **A Dirty Winner at a Lonely Berlin Film Festival**\
 `The Romanian director Radu Jude’s “Bad Luck Banging or Loony Porn” took the top prize in an online-only edition that lacked the magic of in-person moviegoing.`\
-https://nytimes.com/2021/03/05/movies/berlin-film-festival-bad-luck-banking-or-loony-porn.html?searchResultPosition=2
+https://nytimes.com/2021/03/05/movies/berlin-film-festival-bad-luck-banging-or-loony-porn.html?searchResultPosition=2
 
 **U.S. and Europe will suspend tariffs on wine, food and airplanes.**\
 `The governments agreed to temporarily suspend tariffs on billions of dollars of products as they search for a settlement to a long-running clash over subsidies given to Airbus and Boeing.`\
