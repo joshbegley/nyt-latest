@@ -1,12 +1,16 @@
+**Johnson Halts Action on Stimulus Bill With a Demand to Read it Aloud**\
+`Senator Ron Johnson, Republican of Wisconsin, used rules that called on legislative clerks to perform an hourslong reading of the 628-page text.`\
+https://nytimes.com/2021/03/04/us/politics/stimulus-senate.html?searchResultPosition=2
+
+**For Biden, Deliberation and Caution, Maybe Overcaution, on the World Stage**\
+`But decisions come more quickly than they did in the Obama administration, when Mr. Biden, as vice president, complained about the endless meetings.`\
+https://nytimes.com/2021/03/04/us/politics/biden-foreign-policy.html?searchResultPosition=3
+
 **As Biden Urges Caution on Covid, Governors Split on How Fast to Reopen**\
 `Even within political parties, governors were taking different approaches as they tried to balance public health guidance with residents’ eagerness to get back to normal life.`\
-https://nytimes.com/2021/03/04/us/covid-states-reopening-governors.html?searchResultPosition=3
+https://nytimes.com/2021/03/04/us/covid-states-reopening-governors.html?searchResultPosition=6
 
 **Biden Administration Says It Will Shorten Detention of Migrant Families**\
 `A new plan calls for releasing parents and their children after no more than 72 hours. Researchers say children can show symptoms of trauma after spending long periods in custody.`\
-https://nytimes.com/2021/03/04/us/migrant-families-biden-plan.html?searchResultPosition=6
-
-**Elaine Chao’s Mix of Work and Family Drew Early Ethics Scrutiny**\
-`An inspector general’s report provided new details of how ethics lawyers at the Transportation Department raised flags starting in 2017 about efforts to promote her family and its shipping business.`\
-https://nytimes.com/2021/03/04/us/politics/elaine-chao-transportation-ethics.html?searchResultPosition=10
+https://nytimes.com/2021/03/04/us/migrant-families-biden-plan.html?searchResultPosition=9
 
