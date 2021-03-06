@@ -10,8 +10,8 @@ https://nytimes.com/2021/03/05/us/politics/capitol-riot-trump.html?searchResultP
 `Bowing to moderates who said the jobless aid was too generous, Democrats dropped their bid to raise a weekly federal unemployment benefit to $400 from $300.`\
 https://nytimes.com/2021/03/05/us/politics/senate-stimulus-bill.html?searchResultPosition=3
 
-**Read the document**\
-`A task force that investigated the Jan. 6 riots at the Capitol have made a series of recommendations to prevent future breaches.`\
+**Task Force Report on Security Shortcomings During Capitol Riot**\
+`A task force that investigated the Jan. 6 riots at the Capitol made a series of recommendations to prevent future breaches.`\
 https://nytimes.com/interactive/2021/03/05/us/capitol-security-review.html?searchResultPosition=4
 
 **Trump Official Arrested in Storming of Capitol Left Little Mark Before Riot**\
