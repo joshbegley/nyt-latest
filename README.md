@@ -2,7 +2,7 @@
 `Security forces used rubber bullets and tear gas against demonstrators in the capital as fury rose over the government’s handling of the health crisis.`\
 https://nytimes.com/2021/03/05/world/americas/paraguay-protests.html?searchResultPosition=1
 
-**I lost my**\
+**Who I Lost**\
 `One in three Americans knows someone who died from the coronavirus. We spoke to the people the pandemic left behind.`\
 https://nytimes.com/interactive/2021/03/05/us/covid-deaths.html?searchResultPosition=2
 
