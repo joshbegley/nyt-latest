@@ -6,8 +6,8 @@ https://nytimes.com/video/us/politics/100000007639983/arizona-coronavirus-restri
 `A leader of the far-right group separately said he had been in touch with Roger Stone, but an official said it was not the same contact investigators found through electronic communications records.`\
 https://nytimes.com/2021/03/05/us/politics/capitol-riot-trump.html?searchResultPosition=2
 
-**Democrats Seek to Trim Jobless Aid to Keep Stimulus Plan on Track**\
-`President Biden’s $1.9 trillion stimulus package ground to a halt in the Senate as a crucial moderate balked at a compromise on jobless aid, highlighting the difficulties of governing in a 50-50 chamber.`\
+**Democrats Agree to Trim Jobless Aid to Keep Stimulus Plan on Track**\
+`Bowing to moderates who said the jobless aid was too generous, Democrats dropped their bid to raise a weekly federal unemployment benefit to $400 from $300.`\
 https://nytimes.com/2021/03/05/us/politics/senate-stimulus-bill.html?searchResultPosition=3
 
 **Read the document**\
