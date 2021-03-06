@@ -30,11 +30,11 @@ https://nytimes.com/2021/03/06/opinion/asian-american-violence-race.html?searchR
 `Just 50 or so remain, eking it out in the Gulf of Mexico off the Florida coast.`\
 https://nytimes.com/2021/03/06/opinion/discovery-whale-extinction.html?searchResultPosition=8
 
+**My Music Muscles Were Going Weak**\
+`I turned to Randy Newman to help me through this pandemic.`\
+https://nytimes.com/2021/03/06/opinion/culture/adam-schatz-learning-randy-newman.html?searchResultPosition=9
+
 **Jason Polan, Flâneur**\
 `The artist understood pre-pandemic New York in a way few others do.`\
-https://nytimes.com/2021/03/06/opinion/jason-polan-flaneur.html?searchResultPosition=9
-
-**America, Your Privacy Settings Are All Wrong**\
-`Using an opt-in approach will help curb the excesses of Big Tech.`\
-https://nytimes.com/2021/03/06/opinion/data-tech-privacy-opt-in.html?searchResultPosition=10
+https://nytimes.com/2021/03/06/opinion/jason-polan-flaneur.html?searchResultPosition=10
 
