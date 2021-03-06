@@ -1,40 +1,40 @@
-**After Coup in Myanmar, a Career Diplomat Takes a Stand**\
-`At the United Nations, U Kyaw Moe Tun declared his new military masters illegitimate. They fired him, but he has no intention of leaving.`\
-https://nytimes.com/2021/03/06/world/asia/myanmar-protests-un-ambassador.html?searchResultPosition=1
+**In Hong Kong, Foreign Tourists Are Replaced by a Local Variety**\
+`Bored and trapped in an area one-third the size of Rhode Island, Hong Kongers have sought out the most far-flung corners of their city, mobbing parklands with crowds typically seen downtown.`\
+https://nytimes.com/2021/03/06/world/asia/hong-kong-tourists-pandemic.html?searchResultPosition=1
 
-**In a Land Dominated by Ex-Rebels, Kosovo Women Find Power at the Ballot Box**\
-`Women are winning greater political representation in Kosovo, raising hopes of more equality in a country still living with the scars of the war against Serbian rule in the 1990s.`\
-https://nytimes.com/2021/03/06/world/europe/kosovo-women-parliament.html?searchResultPosition=2
+**Seth Rogen Is All Fired Up**\
+`We already knew about the weed and the tweeting, but when did Hollywood’s most affable schlub get so into ceramics?`\
+https://nytimes.com/2021/03/06/style/seth-rogen-pot.html?searchResultPosition=2
 
-**Hanging With the Mythbusters at Mount Olympus Junior High**\
-`In “Oh My Gods!” by Stephanie Cooke, Insha Fitzpatrick and Juliana Moon, the new girl gets to sit at the cool kids’ table. (Her father is Zeus.)`\
-https://nytimes.com/2021/03/06/books/review/oh-my-gods-stephanie-cooke-insha-fitzpatrick-juliana-moon.html?searchResultPosition=3
+**Triangulating Math, Mozart and ‘Moby-Dick’**\
+`Sarah Hart, the first woman to hold England’s distinguished Gresham professorship of geometry, explores the intersections of music, literature and mathematics.`\
+https://nytimes.com/2021/03/06/science/math-gresham-sarah-hart.html?searchResultPosition=3
 
-**Star-Crossed Friends in Ancient Greece**\
-`Unbeknown to them, a spoiled girl and an enslaved boy share an immutable connection in Laura Amy Schlitz’s “Amber & Clay.”`\
-https://nytimes.com/2021/03/06/books/review/amber-and-clay-laura-amy-schlitz.html?searchResultPosition=4
+**The Robots Are Coming for Phil in Accounting**\
+`Workers with college degrees and specialized training once felt relatively safe from automation. They aren’t.`\
+https://nytimes.com/2021/03/06/business/the-robots-are-coming-for-phil-in-accounting.html?searchResultPosition=4
 
-**Corrections: March 6, 2021**\
-`Corrections that appeared in print on Saturday, March 6, 2021.`\
-https://nytimes.com/2021/03/06/pageoneplus/corrections-march-6-2021.html?searchResultPosition=5
+**‘I’ve Never Seen Anything Like This’: Chaos Strikes Global Shipping**\
+`The pandemic has disrupted international trade, driving up the cost of shipping goods and adding a fresh challenge to the global economic recovery.`\
+https://nytimes.com/2021/03/06/business/global-shipping.html?searchResultPosition=5
 
-**Quotation of the Day: Pope Francis Retakes World Stage With a ‘Long-Awaited’ Visit to Iraq**\
-`Quotation of the Day for Saturday, March 6, 2021.`\
-https://nytimes.com/2021/03/06/todayspaper/quotation-of-the-day-pope-francis-retakes-world-stage-with-a-long-awaited-visit-to-iraq.html?searchResultPosition=6
+**In Georgia, Republicans Take Aim at Role of Black Churches in Elections**\
+`New proposals by the G.O.P.-controlled Legislature have targeted Sunday voting, part of a raft of measures that could reduce the impact of Black voters in the state.`\
+https://nytimes.com/2021/03/06/us/politics/churches-black-voters-georgia.html?searchResultPosition=6
 
-**Anger at Coronavirus Response Boils Over in Paraguay**\
-`The police in the Paraguayan capital, Asunción, fired tear gas and rubber bullets on Friday to disperse crowds protesting record numbers of coronavirus cases and the country’s troubled health care system.`\
-https://nytimes.com/video/world/americas/100000007640179/paraguay-protest-coronavirus-police.html?searchResultPosition=7
+**Democrats Want a Stronger Edge in the Senate. Ohio Could Be Crucial.**\
+`The retirement of a moderate Republican senator and conservative infighting have raised Democratic ambitions in the state, a longtime political bellwether that is increasingly tilting red.`\
+https://nytimes.com/2021/03/06/us/politics/ohio-senate-race.html?searchResultPosition=7
 
-**Amanda Gorman Says Security Guard Confronted Her, Saying She Looked ‘Suspicious’**\
-`Ms. Gorman, who recited a stirring poem at President Biden’s inauguration, said the guard had followed her as she walked home.`\
-https://nytimes.com/2021/03/05/us/amanda-gorman-security-guard.html?searchResultPosition=8
+**DeSantis Is Ascendant and Cuomo Is Faltering**\
+`For both men, their political fortunes and the tests imposed by their parties seem disconnected from the central question of this moment: How did they govern through a challenging year?`\
+https://nytimes.com/2021/03/06/us/politics/desantis-cuomo-political-future.html?searchResultPosition=8
 
-**Cuomo Discovers #MeToo Means #HimToo**\
-`Democrats agonize over the fate of a falling star.`\
-https://nytimes.com/2021/03/05/opinion/sunday/andrew-cuomo-sexual-harassment.html?searchResultPosition=9
+**Amtrak Wants to Expand Across the Nation. Local Politics Might Intervene.**\
+`Extending nationwide service has been an elusive goal for Amtrak. Since 1971 — when the publicly funded, privately operated rail agency was created — routes have largely remained unchanged.`\
+https://nytimes.com/2021/03/06/us/amtrak-route-expansion.html?searchResultPosition=9
 
-**Bedizen**\
-`Sid Sivakumar returns with an eclectic (and electric) Saturday puzzle.`\
-https://nytimes.com/2021/03/05/crosswords/daily-puzzle-2021-03-06.html?searchResultPosition=10
+**If You Live to 100, You’ll Need More Than Money**\
+`The number of centenarians in the U.S. is growing steadily. If you join them, you’ll need not just a robust retirement fund but also a plan, and a purpose.`\
+https://nytimes.com/2021/03/06/business/living-to-100-retirement.html?searchResultPosition=10
 
