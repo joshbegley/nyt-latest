@@ -1,10 +1,10 @@
-**America’s New Whale Is Now at Extinction’s Doorstep**\
-`Just 50 or so remain, eking it out in the Gulf of Mexico off the Florida coast.`\
-https://nytimes.com/2021/03/06/opinion/discovery-whale-extinction.html?searchResultPosition=1
-
 **We Need to Put a Name to This Violence**\
 `The recent attacks on Asian-Americans have unearthed the contradictions and questions beneath America’s impoverished understanding of race. To solve the problem, we must first learn how to talk about it.`\
-https://nytimes.com/2021/03/06/opinion/asian-american-violence-race.html?searchResultPosition=2
+https://nytimes.com/2021/03/06/opinion/asian-american-violence-race.html?searchResultPosition=1
+
+**America’s New Whale Is Now at Extinction’s Doorstep**\
+`Just 50 or so remain, eking it out in the Gulf of Mexico off the Florida coast.`\
+https://nytimes.com/2021/03/06/opinion/discovery-whale-extinction.html?searchResultPosition=2
 
 **Jason Polan, Flâneur**\
 `The artist understood pre-pandemic New York in a way few others do.`\
