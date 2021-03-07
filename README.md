@@ -14,7 +14,7 @@ https://nytimes.com/2021/03/07/movies/nyc-movie-theaters-reopen.html?searchResul
 `Players were again questioning the decision to stage an exhibition amid the pandemic after Joel Embiid and Ben Simmons of the Philadelphia 76ers were ruled out of Sunday’s game in Atlanta.`\
 https://nytimes.com/2021/03/07/sports/basketball/nba-all-star-game-embiiid-simmons.html?searchResultPosition=4
 
-**Barcelona Elects a President, and Hands Him a Financial Crisis**\
+**Barcelona Elects a President, and Hands Him a Crisis**\
 `Joan Laporta appeared set to prevail in a vote of Barcelona’s membership. The new president will face thorny issues on and off the field.`\
 https://nytimes.com/2021/03/07/sports/soccer/barcelona-joan-laporta-president.html?searchResultPosition=5
 
