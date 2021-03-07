@@ -11,7 +11,7 @@ https://nytimes.com/2021/03/07/us/jennifer-mack-watkins-children-of-the-sun.html
 https://nytimes.com/2021/03/07/world/asia/us-pushes-un-led-peace-conference-in-letter-to-afghan-leader.html?searchResultPosition=3
 
 **Mexico Set to Reshape Power Sector to Favor the State**\
-`A bill that the Mexican president is expected to approve soon would curtail private investors in the energy industry and possibly reverse gains in lowering carbon emissions.`\
+`Legislation that the Mexican president has pushed would curtail private investors in the energy industry and possibly reverse gains in lowering carbon emissions.`\
 https://nytimes.com/2021/03/07/world/americas/mexico-energy-sector-privatization.html?searchResultPosition=4
 
 **Immersive van Gogh Experiences Bloom Like Sunflowers**\
