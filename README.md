@@ -31,8 +31,8 @@ https://nytimes.com/2021/03/07/nyregion/cuomo-sex-harassment.html?searchResultPo
 https://nytimes.com/2021/03/07/sports/soccer/manchester-united-city-derby.html?searchResultPosition=8
 
 **Pope Francis wraps up his mission to Iraq, having raised both hopes of religious unity and fears of viral contagion.**\
-`By Jane Arraf`\
-https://nytimes.com/2021/03/07/world/pope-francis-wraps-up-his-mission-to-iraq-having-raised-both-hopes-of-religious-unity-and-fears-of-viral-contagion.html?searchResultPosition=9
+`Crowds gathered over Francis’ three-day visit, sporting high spirits but few masks. Few in the country have been vaccinated.`\
+https://nytimes.com/2021/03/07/world/Pope-Francis-coronavirus-Iraq.html?searchResultPosition=9
 
 **Thousands Gather to Watch Pope Francis Lead Mass in Erbil, Iraq**\
 `Despite coronavirus concerns, thousands of people convened at a stadium in Erbil, Iraq, on Sunday as Pope Francis said Mass. The service capped the first papal visit to Iraq.`\
