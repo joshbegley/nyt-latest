@@ -22,7 +22,7 @@ https://nytimes.com/2021/03/07/arts/design/van-gogh-immersive-experiences.html?s
 `He has 20 Grand Slam titles, but he is 39 and has not played competitively in more than a year. That changes this week in Qatar.`\
 https://nytimes.com/2021/03/07/sports/tennis/tennis-atp-federer-return.html?searchResultPosition=6
 
-**Cuomo Casts Doubt on Accusations, Says There’s ‘No Way I Resign’**\
+**Top State Leader Says ‘Cuomo Must Resign.’ Governor Says ‘No Way.’**\
 `Gov. Andrew Cuomo said that honoring calls for his resignation because of unproven allegations would be “anti-democratic.”`\
 https://nytimes.com/2021/03/07/nyregion/cuomo-sex-harassment.html?searchResultPosition=7
 
