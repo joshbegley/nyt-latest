@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/07/arts/music/grammy-performers-taylor-swift-bts.htm
 `On his last full day in Iraq, the pope on Sunday was surrounded by rubble on his visit to the once-vibrant city of Mosul. He prayed for victims of all faiths who had endured war and armed conflict.`\
 https://nytimes.com/video/world/middleeast/100000007641240/pope-mosul-iraq-prayer.html?searchResultPosition=2
 
-**Three Alabama Professors on Leave After Halloween Photos Surface**\
+**3 Alabama Professors on Leave After ‘Offensive’ Halloween Photos Surface**\
 `The photos were taken at a campus party at the University of South Alabama in 2014. One professor wore a Confederate uniform. Two others posed with a whip and a noose.`\
 https://nytimes.com/2021/03/07/us/university-south-alabama-professors.html?searchResultPosition=3
 
