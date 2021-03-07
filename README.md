@@ -15,7 +15,7 @@ https://nytimes.com/2021/03/07/movies/nyc-movie-theaters-reopen.html?searchResul
 https://nytimes.com/2021/03/07/sports/basketball/nba-all-star-game-embiiid-simmons.html?searchResultPosition=4
 
 **Barcelona Elects a President, and Hands Him a Crisis**\
-`Joan Laporta appeared set to prevail in a vote of Barcelona’s membership. The new president will face thorny issues on and off the field.`\
+`Joan Laporta appeared set to win easily in a vote of Barcelona’s membership. But the new president will face thorny issues on and off the field almost immediately.`\
 https://nytimes.com/2021/03/07/sports/soccer/barcelona-joan-laporta-president.html?searchResultPosition=5
 
 **Biden Signs Executive Order to Make Voting Easier**\
