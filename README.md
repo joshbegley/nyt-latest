@@ -1,5 +1,5 @@
-**Blasts Hit Military Barracks in Equatorial Guinea**\
-`Many people were feared injured when a succession of explosions rocked the Central African nation.`\
+**Blasts Hit Military Barracks in Equatorial Guinea, With Many Feared Dead**\
+`Officials feared that the number of injured could be in the hundreds as a result of the succession of explosions that rocked the Central African nation.`\
 https://nytimes.com/2021/03/07/world/africa/equatorial-guinea-explosions.html?searchResultPosition=1
 
 **Taylor Swift, BTS, Megan Thee Stallion Will Perform at the Grammys**\
