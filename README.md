@@ -10,7 +10,7 @@ https://nytimes.com/2021/03/07/briefing/pope-iraq-israel-covid-meghan.html?searc
 `The document provides a window into the jury selection process for the highly anticipated trial of four police officers charged in the killing.`\
 https://nytimes.com/interactive/2021/03/07/us/george-floyd-derek-chauvin-jury-questions.html?searchResultPosition=3
 
-**Blasts Hit Military Barracks in Equatorial Guinea, With Many Feared Dead**\
+**Blasts Hit Military Base in Equatorial Guinea, and Many Are Feared Dead**\
 `Officials feared that the number of injured could be in the hundreds as a result of the succession of explosions that rocked the Central African nation.`\
 https://nytimes.com/2021/03/07/world/africa/equatorial-guinea-explosions.html?searchResultPosition=4
 
