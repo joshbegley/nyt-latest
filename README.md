@@ -20,7 +20,7 @@ https://nytimes.com/2021/03/08/opinion/letters/stimulus-bill.html?searchResultPo
 
 **Biden will deliver a prime time address on Thursday, marking the first anniversary of the pandemic in the U.S.**\
 `The speech will be forward-looking, a spokeswoman said, and Mr. Biden plans to highlight “the role that Americans will play” in getting the country “back to normal.”`\
-https://nytimes.com/2021/03/08/us/politics/biden-pandemic-anniversary.html?searchResultPosition=6
+https://nytimes.com/2021/03/08/us/politics/biden-speech-thursday.html?searchResultPosition=6
 
 **The Party Is Coming. Here’s What to Wear.**\
 `Designers have looked into their crystal balls and predicted the future. It’s fancy. Ideas from Loewe, Versace and Thom Browne — plus a hard-core Givenchy.`\
