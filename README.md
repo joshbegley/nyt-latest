@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/08/nyregion/nyc-high-schools-reopen.html?searchResul
 https://nytimes.com/2021/03/08/us/michigan-state-trooper-k-9-attack.html?searchResultPosition=5
 
 **Pope Francis Defends Iraq Trip During Coronavirus Pandemic**\
-`The pontiff said that he had wrestled with the decision to go, but put the fate of the Iraqis who flocked to see him in God’s hands.`\
+`The pontiff said that he had wrestled with the decision to travel, but put the fate of the Iraqis who flocked to see him in God’s hands.`\
 https://nytimes.com/2021/03/08/world/europe/pope-francis-iraq-covid.html?searchResultPosition=6
 
 **$1.7 Million Homes in California**\
