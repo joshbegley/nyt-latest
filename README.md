@@ -22,7 +22,7 @@ https://nytimes.com/2021/03/07/sports/golf/golf-pga-palmer-bryson-dechambeau.htm
 `Meghan told Oprah that there were “concerns and conversations about how dark his skin might be.”`\
 https://nytimes.com/2021/03/07/world/meghan-archie-skin-tone.html?searchResultPosition=6
 
-**Meghan Says Life With the U.K. Royals Almost Drove Her to Suicide**\
+**‘I Just Didn’t Want to Be Alive Anymore’: Meghan Says Life as Royal Made Her Suicidal**\
 `In a bombshell interview with Oprah Winfrey, the Duchess of Sussex said she had asked officials at Buckingham Palace for medical help but was told it would damage the institution.`\
 https://nytimes.com/2021/03/07/world/europe/oprah-interview-harry-meghan.html?searchResultPosition=7
 
