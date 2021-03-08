@@ -11,7 +11,7 @@ https://nytimes.com/2021/03/08/sports/soccer/juventus-champions-league-weston-mc
 https://nytimes.com/2021/03/08/dining/beans-beans-beans.html?searchResultPosition=3
 
 **Myanmar Military Storms Universities and Hospitals, Revokes Press Licenses**\
-`The military said members of the public had requested that the generals take more control “for the benefit of the people.”  At least three protesters were killed in further crackdowns.`\
+`The military said the public had requested that the generals take more control “for the benefit of the people.”  At least three protesters were killed in further crackdowns.`\
 https://nytimes.com/2021/03/08/world/asia/myanmar-coup-violence.html?searchResultPosition=4
 
 **For Britain, Meghan and Harry Interview Resurfaces Issues of Race and Royal Tradition**\
