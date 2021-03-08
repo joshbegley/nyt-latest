@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/08/us/cornel-west-leaving-harvard-union.html?searchR
 https://nytimes.com/2021/03/08/dining/schnitzel.html?searchResultPosition=5
 
 **Cuomo Inquiry to Be Led by 2 Lawyers, Including Ex-U.S. Attorney**\
-`The state attorney general named a former federal prosecutor, Joon H. Kim, and an employment lawyer, Anne L. Clark, to lead the investigation that may determine the governor’s future.`\
+`Attorney General Letitia James named a former federal prosecutor, Joon H. Kim, and an employment lawyer, Anne L. Clark, to lead the investigation that may determine the governor’s future.`\
 https://nytimes.com/2021/03/08/nyregion/andrew-cuomo-investigation-lawyers.html?searchResultPosition=6
 
 **N.Y.C. to Commemorate One Year Since First Covid-19 Death**\
