@@ -18,21 +18,21 @@ https://nytimes.com/2021/03/08/science/math-crumple-fragmentation-andrejevic.htm
 `Climate concerns push BP and other firms to seek new roles as pollution fighters.`\
 https://nytimes.com/2021/03/08/business/carbon-capture-bp.html?searchResultPosition=5
 
+**This Is Not the Coronavirus Anniversary Cuomo Planned On**\
+`Besieged on multiple fronts, the governor is no longer holding forth; he’s just trying to hold on.`\
+https://nytimes.com/2021/03/08/opinion/cuomo-covid.html?searchResultPosition=6
+
 **Shopping for Toilet Brushes**\
 `Because everyone needs one — and it doesn’t have to be ugly.`\
-https://nytimes.com/2021/03/08/realestate/shopping-for-toilet-brushes.html?searchResultPosition=6
+https://nytimes.com/2021/03/08/realestate/shopping-for-toilet-brushes.html?searchResultPosition=7
 
 **The A Train and the Macarena: 5 Highlights From the Mayor’s Race**\
 `Candidates sparred over their subway smarts and did some virtual dancing, while the former sanitation commissioner got support from influential women.`\
-https://nytimes.com/2021/03/08/nyregion/mayor-race-nyc-takeaways.html?searchResultPosition=7
+https://nytimes.com/2021/03/08/nyregion/mayor-race-nyc-takeaways.html?searchResultPosition=8
 
 **Cracks in a Legal Shield for Officers’ Misconduct**\
 `The Supreme Court has hinted that it is ready to trim the doctrine of qualified immunity, which makes it difficult to sue government officials for violence and cruelty.`\
-https://nytimes.com/2021/03/08/us/supreme-court-qualified-immunity.html?searchResultPosition=8
-
-**This Is Not the Coronavirus Anniversary Cuomo Planned On**\
-`Besieged on multiple fronts, the governor is no longer holding forth; he’s just trying to hold on.`\
-https://nytimes.com/2021/03/08/opinion/cuomo-covid-anniversary.html?searchResultPosition=9
+https://nytimes.com/2021/03/08/us/supreme-court-qualified-immunity.html?searchResultPosition=9
 
 **Who Says Pocket Watches Are Only for Men?**\
 `Women are wearing them as necklaces and on fobs. As one fan says, they generate “feelings of power.”`\
