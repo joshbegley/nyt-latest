@@ -1,5 +1,5 @@
 **Olivia Rodrigo and Morgan Wallen Dominate the Charts After Eight Weeks**\
-`The 18-year-old singer and actresses’s song “Drivers License” holds at the top of Billboard’s Hot 100 chart, and the country star’s LP repeats at No. 1 on the Top 200.`\
+`The 18-year-old singer and actress’s song “Drivers License” holds at the top of Billboard’s Hot 100 chart, and the country star’s LP repeats at No. 1 on the Top 200.`\
 https://nytimes.com/2021/03/08/arts/music/morgan-wallen-olivia-rodrigo-chart.html?searchResultPosition=1
 
 **N.Y.P.D. Releases Secret Misconduct Records After Repeal of Shield Law**\
