@@ -22,19 +22,19 @@ https://nytimes.com/2021/03/08/us/michigan-state-trooper-k-9-attack.html?searchR
 `The pontiff said that he had wrestled with the decision to travel, but put the fate of the Iraqis who flocked to see him in God’s hands.`\
 https://nytimes.com/2021/03/08/world/europe/pope-francis-iraq-covid.html?searchResultPosition=6
 
+**Biden plans to undo Trump’s changes to Title IX, including how colleges investigate sexual assault.**\
+`President Biden is expected to detail his directives in a speech on Monday afternoon to celebrate International Women’s Day.`\
+https://nytimes.com/2021/03/08/us/politics/biden-title-ix.html?searchResultPosition=7
+
 **$1.7 Million Homes in California**\
 `A 1928 Tudor Revival in Sacramento, an updated ranch house in Topanga and a circa-1900 cottage in San Francisco.`\
-https://nytimes.com/2021/03/08/realestate/home-prices-california.html?searchResultPosition=7
+https://nytimes.com/2021/03/08/realestate/home-prices-california.html?searchResultPosition=8
 
 **What You Get for $1.7 Million in California**\
 `A 1928 Tudor Revival in Sacramento, an updated ranch house in Topanga and a circa-1900 cottage in San Francisco.`\
-https://nytimes.com/slideshow/2021/03/08/realestate/what-you-get-for-1-7-million-in-california.html?searchResultPosition=8
+https://nytimes.com/slideshow/2021/03/08/realestate/what-you-get-for-1-7-million-in-california.html?searchResultPosition=9
 
 **For Women in Music, Equality Remains Out of Reach**\
 `The latest study by the Annenberg Inclusion Initiative at the University of Southern California found that women’s representation in music has not improved in the last decade.`\
-https://nytimes.com/2021/03/08/arts/music/music-industry-gender-study.html?searchResultPosition=9
-
-**Taking the Vaccine Into the Fields to Help Vulnerable Farmworkers**\
-`Monday: A mobile clinic brings the vaccine to workers deemed essential. Also: Another reopening update.`\
-https://nytimes.com/2021/03/08/us/farmworkers-vaccine-california.html?searchResultPosition=10
+https://nytimes.com/2021/03/08/arts/music/music-industry-gender-study.html?searchResultPosition=10
 
