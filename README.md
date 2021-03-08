@@ -1,40 +1,40 @@
-**A Biography of the Woman Who Will Re-Engineer Humans**\
-`In “The Code Breaker,” Walter Isaacson turns to the life and work of Jennifer Doudna, the Nobel-winning scientist who has revolutionized gene editing.`\
-https://nytimes.com/2021/03/08/books/review/walter-isaacson-the-code-breaker.html?searchResultPosition=1
+**She Got So Hooked on Watches That She Started a Website**\
+`The more Elizabeth Doerr learned about timepieces, the more she was enthralled. Now she’s editor of an online magazine.`\
+https://nytimes.com/2021/03/08/fashion/watches-elizabeth-doerr-quill-and-pad.html?searchResultPosition=1
 
-**Has a School Assignment or Activity Ever Made You Uncomfortable?**\
-`Have you encountered lesson plans, class activities or school traditions that should be recognized as outdated, sexist or racist?`\
-https://nytimes.com/2021/03/08/learning/has-a-school-assignment-or-activity-ever-made-you-uncomfortable.html?searchResultPosition=2
+**The Latest Wrinkle in Crumple Theory**\
+`From studies of “geometric frustration,” scientists learn how paper folds under pressure.`\
+https://nytimes.com/2021/03/08/science/math-crumple-fragmentation-andrejevic.html?searchResultPosition=2
 
-**Imbolo Mbue’s ‘How Beautiful We Were’ Exposes the Human Cost of Capital**\
-`The author of “Behold the Dreamers” sets her second novel in a fictional African village ravaged by an American oil conglomerate.`\
-https://nytimes.com/2021/03/08/books/review/imbolo-mbue-how-beautiful-we-were.html?searchResultPosition=3
+**Oil Giants Prepare to Put Carbon Back in the Ground**\
+`Climate concerns push BP and other firms to seek new roles as pollution fighters.`\
+https://nytimes.com/2021/03/08/business/carbon-capture-bp.html?searchResultPosition=3
 
-**Teaching and Learning With the Coming of Age Project**\
-`Teens across the U.S. showed us how this pandemic year has challenged and changed them. Here are some ways to use their work in the classroom.`\
-https://nytimes.com/2021/03/08/learning/teaching-and-learning-with-the-coming-of-age-project.html?searchResultPosition=4
+**Shopping for Toilet Brushes**\
+`Because everyone needs one — and it doesn’t have to be ugly.`\
+https://nytimes.com/2021/03/08/realestate/shopping-for-toilet-brushes.html?searchResultPosition=4
 
-**How the Dead Hand of Imperialism Continues to Influence World Politics**\
-`Samir Puri’s “The Shadows of Empire” examines how the legacies of empires remain important in the “first empire-free millennium.”`\
-https://nytimes.com/2021/03/08/books/review/the-shadows-of-empire-samir-puri.html?searchResultPosition=5
+**The A Train and the Macarena: 5 Highlights From the Mayor’s Race**\
+`Candidates sparred over their subway smarts and did some virtual dancing, while the former sanitation commissioner got support from influential women.`\
+https://nytimes.com/2021/03/08/nyregion/mayor-race-nyc-takeaways.html?searchResultPosition=5
 
-**How Coronavirus Has Changed New York City Transit, in One Chart**\
-`Public transit ridership fell sharply and still hasn’t recovered.`\
-https://nytimes.com/interactive/2021/03/08/climate/nyc-transit-covid.html?searchResultPosition=6
+**Cracks in a Legal Shield for Officers’ Misconduct**\
+`The Supreme Court has hinted that it is ready to trim the doctrine of qualified immunity, which makes it difficult to sue government officials for violence and cruelty.`\
+https://nytimes.com/2021/03/08/us/supreme-court-qualified-immunity.html?searchResultPosition=6
 
-**Diary of a Song Breaks Down the Grammys**\
-`Beyoncé, Megan Thee Stallion, Billie Eilish, Dua Lipa and more will face off this weekend for record of the year. In this special Diary of a Song episode, The New York Times’ pop music team dissects the award show’s premiere category.`\
-https://nytimes.com/video/arts/music/100000007532509/diary-of-a-song-breaks-down-the-grammys.html?searchResultPosition=7
+**This Is Not the Coronavirus Anniversary Cuomo Planned On**\
+`Besieged on multiple fronts, the governor is no longer holding forth; he’s just trying to hold on.`\
+https://nytimes.com/2021/03/08/opinion/cuomo-covid-anniversary.html?searchResultPosition=7
 
-**The Joys of Post-Pandemic Life Await. But We’re Not There Yet.**\
-`You’ll be back on the dance floor soon enough, just hold on a little longer.`\
-https://nytimes.com/video/opinion/100000007636735/covid-reopening-responsibility.html?searchResultPosition=8
+**Who Says Pocket Watches Are Only for Men?**\
+`Women are wearing them as necklaces and on fobs. As one fan says, they generate “feelings of power.”`\
+https://nytimes.com/2021/03/08/fashion/pocket-watches-women.html?searchResultPosition=8
 
-**Lesson of the Day: ‘A Teenager Was Bullied. His Ancestors Saved Him.’**\
-`In this lesson, students will reflect on their relationships to their family history as they learn about one young person’s search for, and connection to, his family’s story.`\
-https://nytimes.com/2021/03/08/learning/lesson-of-the-day-a-teenager-was-bullied-his-ancestors-saved-him.html?searchResultPosition=9
+**These Y.M.C.A. Camps Served Children for 100 Years. Now They Are Shut.**\
+`The Y.M.C.A. of Greater New York is selling three summer camps that have been a bucolic retreat for generations of poor children from the city, part of the pandemic’s economic fallout.`\
+https://nytimes.com/2021/03/08/nyregion/ymca-summer-camps-closed.html?searchResultPosition=9
 
-**How Do Silicon Valley Techies Celebrate Getting Rich in a Pandemic?**\
-`Not by buying airplanes. Instead, the newest start-up millionaires are proceeding cautiously.`\
-https://nytimes.com/2021/03/08/technology/silicon-valley-techies-rich-pandemic.html?searchResultPosition=10
+**There Is a Generational Divide Among Republicans**\
+`It shows up most clearly in the debate over whether parents should get federal money for their children.`\
+https://nytimes.com/2021/03/08/opinion/romney-republicans-child-allowance.html?searchResultPosition=10
 
