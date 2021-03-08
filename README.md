@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/08/business/restaurants-drive-thru-pickup-lanes.html
 https://nytimes.com/2021/03/08/climate/climate-change-heat-tropics.html?searchResultPosition=5
 
 **Fully vaccinated Americans can have small gatherings indoors with other vaccinated people but need to wear masks in public, the C.D.C. says.**\
-`By Roni Caryn Rabin`\
+`The Centers for Disease Control and Prevention on Monday issued long-awaited guidance to Americans fully vaccinated against Covid-19, freeing them to take some liberties that the unvaccinated should not.`\
 https://nytimes.com/2021/03/08/health/covid-vaccine-cdc-guidelines.html?searchResultPosition=6
 
 **Making Chess Sing: ‘Queen’s Gambit’ to Be Adapted for the Stage**\
