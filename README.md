@@ -1,4 +1,4 @@
-**Oprah Winfrey, Meghan Markle and Prince Harry Draws 17.1 Million to CBS**\
+**Oprah Winfrey, Meghan Markle and Prince Harry Draw 17.1 Million to CBS**\
 `A two-hour special revives a faded TV genre, the ‘big-get’ prime-time interview that once drew tens of millions for exclusive sit-downs with people like Michael Jackson and Monica Lewinsky.`\
 https://nytimes.com/2021/03/08/business/media/oprah-winfrey-meghan-markle-prince-harry.html?searchResultPosition=1
 
@@ -10,7 +10,7 @@ https://nytimes.com/2021/03/08/business/restaurants-drive-thru-pickup-lanes.html
 `A new study suggests that large swaths of the tropics will experience dangerous living and working conditions if global warming isn’t limited to 1.5 degrees Celsius.`\
 https://nytimes.com/2021/03/08/climate/climate-change-heat-tropics.html?searchResultPosition=3
 
-**Fully vaccinated people can have small gatherings indoors with other vaccinated people but need to wear masks in public, the C.D.C. says.**\
+**Fully vaccinated Americans can have small gatherings indoors with other vaccinated people but need to wear masks in public, the C.D.C. says.**\
 `By Roni Caryn Rabin`\
 https://nytimes.com/2021/03/08/health/covid-vaccine-cdc-guidelines.html?searchResultPosition=4
 
