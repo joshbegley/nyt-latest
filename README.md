@@ -1,4 +1,4 @@
-**Oprah Winfrey, Meghan Markle and Prince Harry Bring 17.1 Million to CBS**\
+**Oprah Winfrey, Meghan Markle and Prince Harry Draws 17.1 Million to CBS**\
 `A two-hour special revives a faded TV genre, the ‘big-get’ prime-time interview that once drew tens of millions for exclusive sit-downs with people like Michael Jackson and Monica Lewinsky.`\
 https://nytimes.com/2021/03/08/business/media/oprah-winfrey-meghan-markle-prince-harry.html?searchResultPosition=1
 
