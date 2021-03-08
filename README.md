@@ -1,4 +1,4 @@
-**Drive-Throughs That Predict Your Order? Restaurants Are Thinking Fast.**\
+**Drive-Throughs That Predict Your Order? Restaurants Are Thinking Fast**\
 `Inspired by pandemic lessons that kept customers in cars, chains are adding more lanes and curbside pickup, improving apps and testing menu boards that use artificial intelligence.`\
 https://nytimes.com/2021/03/08/business/restaurants-drive-thru-pickup-lanes.html?searchResultPosition=1
 
