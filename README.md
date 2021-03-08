@@ -1,4 +1,4 @@
-**Meghan Markle recounts conversations with royals about her son’s skin tone**\
+**Meghan recounts conversations with royals about her son’s skin tone**\
 `She told Oprah that there were “concerns and conversations about how dark his skin might be.”`\
 https://nytimes.com/2021/03/07/world/meghan-archie-skin-tone.html?searchResultPosition=1
 
