@@ -1,40 +1,40 @@
+**Biden Tours Hardware Store to Promote Small Business Loans**\
+`On Tuesday, President Biden toured a hardware store in Washington to encourage small business loans to promote his administration’s efforts to help the economy.`\
+https://nytimes.com/video/us/politics/100000007645190/biden-hardware-store-visit-ppp-loans.html?searchResultPosition=1
+
+**A Trauma Expert Puts the Meghan and Harry Interview in Context**\
+`Commentators describe the couple’s experience as “trauma.” But strictly speaking, trauma is an event that alters your mind, leaving you helpless and terrified.`\
+https://nytimes.com/2021/03/09/health/meghan-harry-mental-health-trauma.html?searchResultPosition=2
+
+**Live Webinar: Writing for Podcasts**\
+`Join us on March 25 as we discuss mentor texts and resources for engaging students in audio storytelling.`\
+https://nytimes.com/2021/03/09/learning/live-webinar-writing-for-podcasts.html?searchResultPosition=3
+
+**Disneyland will reopen in late April, Disney’s chief executive says.**\
+`Bob Chapek, the chief executive of the Walt Disney Company, announced the time frame on Tuesday but did not give a specific date.`\
+https://nytimes.com/2021/03/09/business/disneyland-reopen-april.html?searchResultPosition=4
+
+**Down With the British Monarchy**\
+`Any nation that still has a monarchy in 2021 is proving itself to have a mortifying lack of revolutionary gumption.`\
+https://nytimes.com/2021/03/09/opinion/meghan-harry-abolish-monarchy.html?searchResultPosition=5
+
+**The Virus Cost Performers Their Work, Then Their Health Coverage**\
+`As the entertainment industry collapsed during the pandemic, several major health plans made it harder to qualify for insurance. Thousands lost it.`\
+https://nytimes.com/2021/03/09/arts/coronavirus-actors.html?searchResultPosition=6
+
 **10 Years After Fukushima Disaster, This Nurse May Be the Region’s Best Hope**\
 `Many of Rina Tsugawa’s peers have left for jobs in cities, an outflow common to rural Japan but accelerated by the tsunami and nuclear meltdowns in Fukushima. Ms. Tsugawa has different plans.`\
-https://nytimes.com/2021/03/09/world/asia/japan-fukushima-anniversary.html?searchResultPosition=1
+https://nytimes.com/2021/03/09/world/asia/japan-fukushima-anniversary.html?searchResultPosition=7
 
 **The Country I Fled Needs Biden’s Help Now**\
 `Economic sanctions and an arms embargo can help pressure the Burmese military to restore democracy in Myanmar.`\
-https://nytimes.com/2021/03/09/opinion/myanmar-biden-help.html?searchResultPosition=2
+https://nytimes.com/2021/03/09/opinion/myanmar-biden-help.html?searchResultPosition=8
 
 **White House ‘Aware’ of Russian Vaccine Disinformation Efforts**\
 `The White House press secretary, Jen Psaki, said on Monday that “we will fight with every tool” to combat Russia’s efforts to spread disinformation about the Moderna and Pfizer coronavirus vaccines.`\
-https://nytimes.com/video/us/politics/100000007645147/white-house-russia-disinformation-moderna-pfizer.html?searchResultPosition=3
+https://nytimes.com/video/us/politics/100000007645147/white-house-russia-disinformation-moderna-pfizer.html?searchResultPosition=9
 
 **Looming Deadline and Last-Minute Changes Hinder Small-Business Relief**\
 `Lenders are struggling with a new Paycheck Protection Program rule intended to get more money to sole proprietors — and some banks are simply refusing to make the change.`\
-https://nytimes.com/2021/03/09/business/ppp-small-business-deadline.html?searchResultPosition=4
-
-**Inside the Big-Business Plan to Influence New York’s Mayoral Race**\
-`Stephen Ross, the head of the Related Companies, is organizing a meeting of business leaders to “help us get this mayoral election right.”`\
-https://nytimes.com/2021/03/09/nyregion/stephen-ross-mayor-money.html?searchResultPosition=5
-
-**Jury Selection Begins After Initial Delay in Chauvin Trial**\
-`On Tuesday, after a delayed start, official jury selection began in the trial of Derek Chauvin, the former Minneapolis police officer facing second-degree murder and manslaughter charges in the death of George Floyd.`\
-https://nytimes.com/video/us/politics/100000007645055/chauvin-jury-selection-george-floyd.html?searchResultPosition=6
-
-**Directors Guild Nominations Make History With Two Female Contenders**\
-`The group has never nominated more than one woman in a year. Emerald Fennell and Chloé Zhao made the cut, along with Lee Isaac Chung, Aaron Sorkin and David Fincher.`\
-https://nytimes.com/2021/03/09/movies/directors-guild-award-nominations.html?searchResultPosition=7
-
-**A Model and Her Norman Rockwell Meet Again**\
-`The illustrator’s paintings told his stories. Now a teenage subject reveals her own, 67 years later.`\
-https://nytimes.com/2021/03/09/arts/design/rockwell-painting-model-teenager.html?searchResultPosition=8
-
-**Your Wednesday Briefing**\
-`The Myanmar military’s brutal practices.`\
-https://nytimes.com/2021/03/09/briefing/myanmar-military-rohingya-china-vaccine-passport.html?searchResultPosition=9
-
-**I Sang Through Labor to Manage the Pain**\
-`Turns out, women have been singing, chanting and humming through childbirth for centuries. But can it actually provide relief?`\
-https://nytimes.com/2021/03/09/parenting/pregnancy/singing-during-childbirth.html?searchResultPosition=10
+https://nytimes.com/2021/03/09/business/ppp-small-business-deadline.html?searchResultPosition=10
 
