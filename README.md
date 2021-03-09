@@ -1,36 +1,40 @@
+**‘Nomadland’ and ‘Rocks’ Lead Diverse BAFTA Nominations**\
+`But the nominees include many independent films, after BAFTA overhauled its voting processes to rectify all-white, all-male shortlists.`\
+https://nytimes.com/2021/03/09/movies/bafta-nominations.html?searchResultPosition=1
+
+**Laws used to fight pandemic are in some cases weakening democracies, report says.**\
+`On Tuesday, a human rights group warned against increasing threats to journalists, limits on freedom to protest, and the weakening independence of the judicial systems, among other developments.`\
+https://nytimes.com/2021/03/09/world/europe/laws-used-to-fight-pandemic-are-in-some-cases-weakening-democracies-report-says.html?searchResultPosition=2
+
+**‘Jackie Brown’ and Tangerine Dream: What ‘I Care a Lot’ Is Made Of**\
+`The writer-director J Blakeson behind the blade-sharp Netflix thriller shares the films, images and sounds that guided him in crafting the movie.`\
+https://nytimes.com/2021/03/09/movies/i-care-a-lot-netflix-inspirations.html?searchResultPosition=3
+
+**I Miss Being Part of an Audience**\
+`Crowds can be mindless, even dangerous. But that feeling of losing yourself as you experience art together hasn’t been replicated since live entertainment went online.`\
+https://nytimes.com/2021/03/09/arts/television/live-audience-pandemic.html?searchResultPosition=4
+
+**‘Blindness’ Sets Opening, Off Broadway and Indoors**\
+`An audio adaptation of the celebrated novel has no live actors and was a pandemic hit in London. In New York it will play to 50 people per show.`\
+https://nytimes.com/2021/03/09/theater/blindness-off-broadway-opening.html?searchResultPosition=5
+
 **After 80 Years, Still Smiling on the Job**\
 `The Fred Marcus Studio, a family business in New York, has taken thousands and thousands of photos of brides, grooms and their celebrations.`\
-https://nytimes.com/2021/03/09/fashion/weddings/after-80-years-still-smiling-on-the-job.html?searchResultPosition=1
+https://nytimes.com/2021/03/09/fashion/weddings/after-80-years-still-smiling-on-the-job.html?searchResultPosition=6
 
 **Maker of Dove Soap Will Drop the Word ‘Normal’ From Beauty Products**\
 `Unilever, which owns brands like Dove and Sunsilk, said a study had found that the word “normal” makes most people feel excluded. A spokeswoman said it would remove it from more than 200 products.`\
-https://nytimes.com/2021/03/09/business/unilever-normal-positive-beauty.html?searchResultPosition=2
+https://nytimes.com/2021/03/09/business/unilever-normal-positive-beauty.html?searchResultPosition=7
 
 **New & Noteworthy, From Vivian Gornick’s Essays to No-Recipe Recipes**\
 `A selection of recent titles of interest; plus, a peek at what our colleagues around the newsroom are reading.`\
-https://nytimes.com/2021/03/09/books/review/new-this-week.html?searchResultPosition=3
+https://nytimes.com/2021/03/09/books/review/new-this-week.html?searchResultPosition=8
 
 **A Conversation With Gray Davis**\
 `Tuesday: Almost 20 years after becoming California’s first governor to be recalled from office, he talked about the pandemic and Gavin Newsom.`\
-https://nytimes.com/2021/03/09/us/gray-davis-california-recall.html?searchResultPosition=4
+https://nytimes.com/2021/03/09/us/gray-davis-california-recall.html?searchResultPosition=9
 
 **How LeBron James Uses His Influence to Improve Community Development**\
 `Mr. James has joined an expanding national movement that mixes community needs into the formula for socially responsible projects.`\
-https://nytimes.com/2021/03/09/business/lebron-james-community-development.html?searchResultPosition=5
-
-**Recent Commercial Real Estate Transactions**\
-`Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2021/03/09/business/new-york-commercial-real-estate.html?searchResultPosition=6
-
-**A Conversation on ‘Passing’**\
-`The author Brit Bennett speaks about Nella Larsen’s 1929 classic.`\
-https://nytimes.com/2021/03/09/t-magazine/passing-book-club.html?searchResultPosition=7
-
-**Lawsuit Challenging N.Y.C. School Segregation Targets Gifted Programs**\
-`The sweeping complaint accuses New York City of maintaining a segregated school system and seeks to establish the right to an anti-racist education.`\
-https://nytimes.com/2021/03/09/nyregion/nyc-schools-segregation-lawsuit.html?searchResultPosition=9
-
-**Transcript: Ezra Klein Interviews Nadine Burke Harris**\
-`The March 9 episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2021/03/09/podcasts/ezra-klein-podcast-nadine-burke-harris-transcript.html?searchResultPosition=10
+https://nytimes.com/2021/03/09/business/lebron-james-community-development.html?searchResultPosition=10
 
