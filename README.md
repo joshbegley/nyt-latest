@@ -14,7 +14,7 @@ https://nytimes.com/2021/03/08/us/politics/dan-gertler-sanctions.html?searchResu
 `Students aged 5 to 11 returned to school on Monday for the first time since January, as the country’s lockdown eases. Older students will return in the coming weeks.`\
 https://nytimes.com/video/world/europe/100000007643768/england-schools-reopen.html?searchResultPosition=4
 
-**What to Do If You’re Worried About Someone**\
+**What to Do if You’re Worried About Someone**\
 `Even those who don’t speak up may show signs that they are struggling.`\
 https://nytimes.com/interactive/2021/03/08/well/mind/suicidal-thinking-signs.html?searchResultPosition=5
 
