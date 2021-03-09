@@ -2,7 +2,7 @@
 `Readers discuss Nicholas Kristof’s column urging liberals to be less self-righteous if they want to win people over.`\
 https://nytimes.com/2021/03/09/opinion/letters/liberals-conservatives-persuasion.html?searchResultPosition=1
 
-**Move Over, Nerds. It’s the Politicians’ Economy Now**\
+**Move Over, Nerds. It’s the Politicians’ Economy Now.**\
 `Leaders of both parties have become willing to act directly to extract the nation from economic crisis, taking that role back from the central bank.`\
 https://nytimes.com/2021/03/09/upshot/politicians-not-central-bankers-economy-policy.html?searchResultPosition=2
 
