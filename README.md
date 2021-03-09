@@ -1,4 +1,4 @@
-**Anger Fuels Protest in Mexico City on International Women’s Day,**\
+**Anger Fuels Protest in Mexico City on International Women’s Day**\
 `A demonstration turned violent as hundreds of women marched and pulled down parts of a barricade outside the residence of President Andrés Manuel López Obrador, who has supported a politician accused of rape.`\
 https://nytimes.com/video/world/100000007643962/mexico-women-protestors-march.html?searchResultPosition=1
 
