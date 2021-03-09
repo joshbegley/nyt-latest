@@ -23,7 +23,7 @@ https://nytimes.com/2021/03/09/sports/ncaabasketball/coronavirus-college-basketb
 https://nytimes.com/2021/03/09/books/norton-juster-dead.html?searchResultPosition=6
 
 **New York will allow anyone over 60 to get vaccinated starting Wednesday.**\
-`By Michael Gold`\
+`The state will also expand its eligibility requirement the following week to open vaccination to a large number of public-facing workers, including government employees, nonprofit workers and essential building services workers.`\
 https://nytimes.com/2021/03/09/world/vaccine-age-ny-60.html?searchResultPosition=7
 
 **Is Humility, Not Righteousness, the Key to Persuasion?**\
