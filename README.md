@@ -14,7 +14,7 @@ https://nytimes.com/2021/03/09/business/media/teen-vogue-editor-racist-tweets.ht
 `We want to hear what readers hope, fear and predict for a gradually post-pandemic world.`\
 https://nytimes.com/2021/03/09/style/post-coronavirus-pandemic-world.html?searchResultPosition=4
 
-**R.N.C. ‘has every right’ to use Trump’s name to raise money, but after warnings, won’t do so without his OK.**\
+**R.N.C. says it ‘has every right’ to use Trump’s name to raise money but won’t do so without his OK.**\
 `Lawyers for Mr. Trump had sent cease-and-desist letters to the Republican National Committee and other groups, warning them to stop relying on him in their fund-raising appeals.`\
 https://nytimes.com/2021/03/09/us/trump-rnc.html?searchResultPosition=5
 
