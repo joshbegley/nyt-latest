@@ -14,8 +14,8 @@ https://nytimes.com/2021/03/09/briefing/myanmar-military-rohingya-china-vaccine-
 `Turns out, women have been singing, chanting and humming through childbirth for centuries. But can it actually provide relief?`\
 https://nytimes.com/2021/03/09/parenting/pregnancy/singing-during-childbirth.html?searchResultPosition=4
 
-**France Eases Declassification Rules, Opening Up Secret Algerian War Archives**\
-`But historians say there are still impediments to their research on a subject that remains sensitive in France, pointing to the resealing of tens of thousands of once-public documents last year.`\
+**France Eases Access to Secret Historical Archives, but Obstacles Remain**\
+`Historians say there are still impediments to their research on the Algerian War, which remains sensitive in France, and point to the resealing of tens of thousands of once-public documents last year.`\
 https://nytimes.com/2021/03/09/world/europe/france-declassification-algerian-war-archives.html?searchResultPosition=5
 
 **Jimmy Carter is ‘disheartened, saddened and angry’ by the G.O.P. push to curb voting rights in Georgia.**\
