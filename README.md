@@ -1,5 +1,5 @@
 **Looming Deadline and Last-Minute Changes Hinder Small-Business Relief**\
-`Lenders are struggling to implement a new Paycheck Protection Program rule intended to get more money to sole proprietors — and some banks are simply refusing to make the change.`\
+`Lenders are struggling with a new Paycheck Protection Program rule intended to get more money to sole proprietors — and some banks are simply refusing to make the change.`\
 https://nytimes.com/2021/03/09/business/ppp-small-business-deadline.html?searchResultPosition=1
 
 **Inside the Big-Business Plan to Influence New York’s Mayoral Race**\
