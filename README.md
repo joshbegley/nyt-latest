@@ -22,8 +22,8 @@ https://nytimes.com/2021/03/09/us/politics/trump-republican-fundraising.html?sea
 `The appointment  would be the latest sign that the Biden administration planned to take an aggressive posture toward tech giants,`\
 https://nytimes.com/2021/03/09/business/lina-khan-ftc.html?searchResultPosition=6
 
-**For Schumer, a Dream Job Comes With Tall Orders**\
-`After ascending to the top Senate job during the assault on the Capitol, Chuck Schumer faces a different kind of challenge: steering President Biden’s agenda with no margin for error.`\
+**For Chuck Schumer, a Dream Job Comes With Tall Orders**\
+`After ascending to the top Senate job during the assault on the Capitol, Mr. Schumer faces a different kind of challenge: steering President Biden’s agenda with no margin for error.`\
 https://nytimes.com/2021/03/09/us/politics/chuck-schumer-senate-majority-leader.html?searchResultPosition=7
 
 **Cuomo Faces New Accusation of Inappropriate Touching**\
