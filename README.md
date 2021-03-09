@@ -6,9 +6,9 @@ https://nytimes.com/2021/03/09/health/lung-cancer-smoking-screenings-black-women
 `Phillip Kennedy Johnson begins his run on Superman this week. First up: a two-part story about the hero, his son and his succession.`\
 https://nytimes.com/2021/03/09/arts/superman-phillip-kennedy-johnson.html?searchResultPosition=2
 
-**Boeing sold more planes than were canceled last month, signaling a recovery.**\
-`By Niraj Chokshi`\
-https://nytimes.com/2021/03/09/business/boeing-sold-more-planes-than-were-canceled-last-month-signaling-a-recovery.html?searchResultPosition=3
+**Boeing sold more planes than were canceled last month as it regains its footing.**\
+`The aircraft maker said it had received 82 new airplane orders in February, about half of them for the 737 Max.`\
+https://nytimes.com/2021/03/09/business/boeing-sold-more-planes-than-were-canceled-last-month-as-it-regains-its-footing.html?searchResultPosition=3
 
 **One Novel. Three Generations. All of Life’s Challenges and Joys.**\
 `In Thomas Grattan’s “The Recent East,” three generations of one family sort through the muck of life — challenges, joys and all — as they move from Germany and back.`\
