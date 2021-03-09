@@ -32,7 +32,7 @@ https://nytimes.com/2021/03/08/us/stewart-allen-clark-pastor-melania-trump.html?
 
 **Biden Faces Challenge From Surge of Migrants at the Border**\
 `The president’s promise of a more humane policy is being tested as more unaccompanied children seek to enter the United States from Mexico.`\
-https://nytimes.com/2021/03/08/us/politics/biden-migrants-immigration-border.html?searchResultPosition=9
+https://nytimes.com/2021/03/08/us/politics/immigration-mexico-border-biden.html?searchResultPosition=9
 
 **Man Threatened to Lynch 2 Congressmen, U.S. Says**\
 `A judge on Monday ordered Kenneth R. Hubert of Missouri held in jail, saying his words rose to the level of posing danger.`\
