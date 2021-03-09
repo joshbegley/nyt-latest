@@ -27,7 +27,7 @@ https://nytimes.com/video/world/europe/100000007643768/england-schools-reopen.ht
 https://nytimes.com/interactive/2021/03/08/well/mind/suicidal-thinking-signs.html?searchResultPosition=7
 
 **Pandemic Relief Bill Fulfills Biden’s Promise to Expand Obamacare, for Two Years**\
-`With its expanded subsidies for health plans under the Affordable Care Act, the coronavirus relief bill makes plans more affordable, and puts health care on the ballot in 2022.`\
+`With its expanded subsidies for health plans under the Affordable Care Act, the coronavirus relief bill makes insurance more affordable, and puts health care on the ballot in 2022.`\
 https://nytimes.com/2021/03/08/us/politics/obamacare-biden-pandemic-relief.html?searchResultPosition=8
 
 **A Tale Old and New as Another Royal Wife Breaks Free**\
