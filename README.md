@@ -12,7 +12,7 @@ https://nytimes.com/2021/03/10/business/dealbook/lina-khan-antitrust.html?search
 
 **Is a Long-Dismissed Forgery Actually the Oldest Known Biblical Manuscript?**\
 `In 1883, a manuscript found near the Dead Sea caused an international sensation. It was denounced as a fake, and soon vanished. But what if it was the only known source text for the Hebrew Bible?`\
-https://nytimes.com/2021/03/10/arts/bible-deuteronomy-dicovery.html?searchResultPosition=4
+https://nytimes.com/2021/03/10/arts/bible-deuteronomy-discovery.html?searchResultPosition=4
 
 **He Quit the Internet 2 Months Before the Pandemic**\
 `When Aron Rosenberg decided to try living offline for a year, he thought his sabbatical might be painful. It turned out to be easier than his return.`\
