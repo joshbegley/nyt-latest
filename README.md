@@ -22,8 +22,8 @@ https://nytimes.com/2021/03/09/opinion/meghan-harry-monarchy-royalty.html?search
 `Residents on the island of Maui in Hawaii were forced to evacuate after torrential rainfall caused a dam to overflow, damaging at least half a dozen homes in the area.`\
 https://nytimes.com/video/us/100000007645819/maui-hawaii-dam-flood.html?searchResultPosition=6
 
-**As House Pushes Labor Rights Expansion, Senate Chances Are Slim**\
-`The House was poised to pass the most significant enhancement of labor rights since the New Deal, but the measure appeared headed for a Senate filibuster amid widespread Republican opposition.`\
+**House Passes Labor Rights Expansion, but Senate Chances Are Slim**\
+`The House approved the most significant enhancement of labor rights since the New Deal, but the measure appeared headed for a Senate filibuster amid widespread Republican opposition.`\
 https://nytimes.com/2021/03/09/us/politics/house-labor-rights-bill.html?searchResultPosition=7
 
 **What happened on the first day of jury selection at the Derek Chauvin trial?**\
