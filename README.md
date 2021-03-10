@@ -31,7 +31,7 @@ https://nytimes.com/2021/03/10/nyregion/indoor-dining-nyc-nj.html?searchResultPo
 https://nytimes.com/2021/03/10/briefing/stimulus-fukushima-russia.html?searchResultPosition=8
 
 **Watch Live: Biden Delivers Stimulus Plan Remarks**\
-`President Biden is expected to speak following the House passage of the $1.9 trillion coronavirus relief plan, a major victory for Mr. Biden seven weeks into his term.`\
+`President Biden discusses the House passage of the $1.9 trillion coronavirus relief plan, a major victory for Mr. Biden seven weeks into his term.`\
 https://nytimes.com/video/us/politics/100000007646540/biden-stimulus-speech-live-video.html?searchResultPosition=9
 
 **Louis Valray Made Only 2 Movies. But Both Are Incredible.**\
