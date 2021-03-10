@@ -31,7 +31,7 @@ https://nytimes.com/2021/03/10/crosswords/crossword-constructor-saintcyr.html?se
 https://nytimes.com/2021/03/10/technology/ancestor-deepfake-tom-cruise.html?searchResultPosition=8
 
 **Russia Says It Is Slowing Access to Twitter**\
-`Moscow accused the social network of failing to remove content it deemed illegal, escalating its offensive against U.S. companies that have provided an outlet for free speech.`\
+`Moscow accused the social network of failing to remove content it deemed illegal. Soon after, a raft of government websites suffered a short outage.`\
 https://nytimes.com/2021/03/10/world/europe/russia-twitter.html?searchResultPosition=9
 
 **The Dangerous Job of Making Deliveries in N.Y.C.**\
