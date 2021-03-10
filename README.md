@@ -28,7 +28,7 @@ https://nytimes.com/2021/03/10/arts/charles-hill-dead.html?searchResultPosition=
 
 **Watch Live: House Votes on Stimulus Bill**\
 `House lawmakers are expected to give final approval to President Biden’s sweeping, nearly $1.9 trillion coronavirus relief package.`\
-https://nytimes.com/video/us/politics/100000007646997/stimulus-bill-live-video.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/politics/100000007646997/stimulus-bill-live-video.html?searchResultPosition=8
 
 **It’s Fraudulent Seduction, but Is It Rape?**\
 `Readers discuss an Op-Ed about whether lying about whether one is married before sleeping with someone should constitute sexual assault.`\
