@@ -1,5 +1,5 @@
 **Roblox Soars 43% on First Day of Trading as Gaming Booms**\
-`The gaming site, a tween favorite, began trading at $64.50 a share, up from its reference price of $45.`\
+`The gaming site, a tween favorite, began trading at $64.50 a share, up from its reference price of $45. The opening trade values it at nearly $42 billion.`\
 https://nytimes.com/2021/03/10/technology/roblox-stock-price.html?searchResultPosition=1
 
 **How One Church is Vaccinating the Neighborhood**\
