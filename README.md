@@ -1,4 +1,4 @@
-**E.U. Exports Millions of Vaccine Doses Despite a Supply Crunch at Home**\
+**E.U. Exports Millions of Vaccine Doses Despite Supply Crunch at Home**\
 `The bloc is a major producer of shots but has struggled with its rollout, fueling disputes with Britain and other allies. In a sign of the frustration, Italy recently blocked a shipment to Australia.`\
 https://nytimes.com/2021/03/10/world/europe/eu-exports-vaccines.html?searchResultPosition=1
 
