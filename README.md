@@ -18,8 +18,8 @@ https://nytimes.com/2021/03/10/books/review/in-search-of-a-kingdom-laurence-berg
 `The production, which examines the work’s colonial legacy, opened after the far right accused the Paris Opera of “antiracism gone mad.”`\
 https://nytimes.com/2021/03/10/arts/music/aida-paris-opera-lotte-de-beer.html?searchResultPosition=5
 
-**Youths Killed by Colombian Military Were ‘Machines of War,’ Official Says**\
-`The defense minister refused to confirm reports that several of the dead were children, an allegation that outraged a war-weary public. He blamed “criminal actors” for recruiting young fighters.`\
+**Colombian Official Refuses to Say if Children Were Killed in Attack on Rebels**\
+`Youths were present, the defense minister said, calling them “machines of war,” but he would not give the ages of the dead. Reports that minors that minors were killed outraged a war-weary public.`\
 https://nytimes.com/2021/03/10/world/americas/colombia-children-military.html?searchResultPosition=6
 
 **Roblox Soars 43% on First Day of Trading as Gaming Booms**\
