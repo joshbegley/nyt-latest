@@ -12,7 +12,7 @@ https://nytimes.com/2021/03/10/arts/design/3-art-gallery-shows-to-see-right-now.
 
 **$1.1 Million Homes in Rhode Island, Virginia and Indiana**\
 `A two-bedroom condo in a Gilded Age mansion in Newport, a modernized 1945 house in Charlottesville and a Victorian in Crown Point.`\
-https://nytimes.com/2021/03/10/realestate/1-1-million-homes-in-rhode-island-virginia-and-indiana.html?searchResultPosition=4
+https://nytimes.com/2021/03/10/realestate/home-prices-rhode-island-virginia-and-indiana.html?searchResultPosition=4
 
 **Police Officer Is Arrested Over London Woman’s Disappearance**\
 `Sarah Everard, 33, went missing after leaving a friend’s house on March 3. The police called the arrest a significant development, but did not provide details.`\
