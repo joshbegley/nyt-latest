@@ -27,7 +27,7 @@ https://nytimes.com/video/world/europe/100000007646652/greece-police-violence-pr
 https://nytimes.com/2021/03/10/world/europe/johnson-harry-meghan-interview-starmer.html?searchResultPosition=7
 
 **‘A Ticking Time Bomb’: City Jails Are Crowded Again, Stoking Covid Fears**\
-`New York City released hundreds from jail as the pandemic raged. Now jails are full again, and an increase in infections could spread the virus beyond their walls.`\
+`New York City released hundreds of people as the pandemic raged. Now jails are full again, and an increase in infections could spread the virus beyond their walls.`\
 https://nytimes.com/2021/03/10/nyregion/nyc-jail-covid.html?searchResultPosition=8
 
 **N.F.L. Sets Salary Cap at $182.5 Million in 2021**\
