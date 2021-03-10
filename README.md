@@ -22,9 +22,9 @@ https://nytimes.com/video/us/politics/100000007647639/biden-johnson-johnson-vacc
 `G.M.s will have to work extra hard to add talent in a salary cap-crunched 2021. It’s still a bad way for most teams to improve.`\
 https://nytimes.com/2021/03/10/sports/football/nfl-free-agency.html?searchResultPosition=6
 
-**Maryland lifts some Covid restrictions, to cheers, criticism and confusion**\
-`By Campbell Robertson`\
-https://nytimes.com/2021/03/10/world/maryland-lifts-some-covid-restrictions-to-cheers-criticism-and-confusion.html?searchResultPosition=7
+**Maryland lifts some Covid restrictions, to cheers, criticism and confusion.**\
+`Some business owners applauded Gov. Larry Hogan’s surprise announcement this week, but some public health experts were shocked.`\
+https://nytimes.com/2021/03/10/world/maryland-covid-restrictions.html?searchResultPosition=7
 
 **Georgia Sheriff Reopens Case Into Teenager Found Dead in a Gym Mat**\
 `The body of Kendrick Johnson, 17, was found upside-down in a large mat in his high school gym in 2013. The county sheriff said the death, initially ruled an accident, should be investigated again.`\
