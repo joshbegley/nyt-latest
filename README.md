@@ -18,7 +18,7 @@ https://nytimes.com/video/world/europe/100000007646652/greece-police-violence-pr
 `Prime Minister Boris Johnson has yet to comment on a bombshell that has rocked the monarchy, jolted the Commonwealth and divided British society.`\
 https://nytimes.com/2021/03/10/world/europe/johnson-harry-meghan-interview-starmer.html?searchResultPosition=5
 
-**City Jails Are Crowded Again, Stoking Covid Fears: ‘It’s a Ticking Time Bomb’**\
+**‘A Ticking Time Bomb’: City Jails Are Crowded Again, Stoking Covid Fears**\
 `As the pandemic raged last spring, New York City released hundreds of people from jail. A year later, the jails are just as full, and the virus is showing signs of returning.`\
 https://nytimes.com/2021/03/10/nyregion/nyc-jail-covid.html?searchResultPosition=6
 
