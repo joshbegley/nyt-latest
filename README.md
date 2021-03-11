@@ -18,7 +18,7 @@ https://nytimes.com/video/us/politics/100000007649211/biden-stimulus-bill-signin
 `The decision amounted to an embarrassing admission by the government that Britain was still not prepared to implement the terms of its withdrawal from the European Union.`\
 https://nytimes.com/2021/03/11/world/europe/britain-brexit-border-checks.html?searchResultPosition=9
 
-**Latest Accusation Against Cuomo Is Referred to Albany Police**\
+**Latest Accusation Against Cuomo Is Reported to Albany Police**\
 `The police characterized the alleged groping by the governor of a female aide as something that may rise “to the level of a crime.”`\
 https://nytimes.com/2021/03/11/nyregion/cuomo-groping-accusation-albany-police.html?searchResultPosition=10
 
