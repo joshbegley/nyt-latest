@@ -11,7 +11,7 @@ https://nytimes.com/video/us/politics/100000007649211/biden-stimulus-bill-signin
 https://nytimes.com/2021/03/11/world/europe/britain-brexit-border-checks.html?searchResultPosition=3
 
 **Latest Accusation Against Cuomo Is Referred to Albany Police**\
-`The police characterized the alleged groping by the governor of a female aide as something that may rise “to the level of a crime,” but said it had not opened an investigation.`\
+`The police characterized the alleged groping by the governor of a female aide as something that may rise “to the level of a crime.”`\
 https://nytimes.com/2021/03/11/nyregion/cuomo-groping-accusation-albany-police.html?searchResultPosition=4
 
 **Planting, ‘Plogging’ and Sunsets: How to Enjoy That Extra Hour of Daylight**\
