@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/11/us/coronavirus-briefing-what-happened-today.html?
 https://nytimes.com/2021/03/11/us/politics/merrick-garland-attorney-general.html?searchResultPosition=2
 
 **The U.S. Is Sitting on Tens of Millions of Vaccine Doses the World Needs**\
-`Doses from the drug maker AstraZeneca sit in U.S. manufacturing plants, awaiting regulatory approval as the world goes begging.`\
+`Doses from the drug maker AstraZeneca sit in U.S. manufacturing plants, awaiting regulatory authorization as the world goes begging.`\
 https://nytimes.com/2021/03/11/us/politics/coronavirus-astrazeneca-united-states.html?searchResultPosition=3
 
 **Congress Closes Loophole That Made Veterans a Target of For-Profit Schools**\
