@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/11/theater/dench-smith-mckellen-jacobi.html?searchRe
 `    Hundreds of climbers are set to return to Mount Everest for the first time next month under strict conditions, government officials and mountaineers said, as the world's tallest peak reopens after a year closed due to the coronavirus pandemic.`\
 https://nytimes.com/reuters/2021/03/11/world/asia/11reuters-nepal-everest.html?searchResultPosition=2
 
-**With Relief Plan, a Champion of the Middle Class Comes to Aid the Poor**\
+**With Relief Plan, Biden Takes on a New Role: Crusader for the Poor**\
 `President Biden’s new role as a crusader for Americans in poverty is an evolution for a politician who has focused on the working class and his Senate work on the judiciary and foreign relations.`\
 https://nytimes.com/2021/03/11/us/politics/biden-stimulus.html?searchResultPosition=3
 
