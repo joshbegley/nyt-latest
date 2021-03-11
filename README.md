@@ -1,6 +1,6 @@
 **E.U. regulator approves Johnson & Johnson’s one-shot vaccine.**\
 `By Monika Pronczuk`\
-https://nytimes.com/2021/03/11/world/eu-regulator-approves-johnson-johnsons-one-shot-vaccine.html?searchResultPosition=1
+https://nytimes.com/2021/03/11/world/eu-johnson-johnsons-covid-vaccine.html?searchResultPosition=1
 
 **A Small Town and a Spray of Bullets in Myanmar**\
 `Police officers shot into a cluster of unarmed civilians in a tiny town on Thursday, killing at least eight people and injuring more than 20.`\
