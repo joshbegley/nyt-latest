@@ -18,7 +18,7 @@ https://nytimes.com/2021/03/11/business/stimulus-bill-airline-jobs.html?searchRe
 `A new collective of Black architects and artists, formed out of a show now at MoMA, aims to “reclaim the larger civic promise of architecture.”`\
 https://nytimes.com/2021/03/11/arts/design/black-architecture-moma.html?searchResultPosition=5
 
-**Man Sues Hertz Over Receipt That Led to Dismissal of Murder Charge**\
+**Man Sues Hertz Over Lost Receipt That Was His Murder Alibi**\
 `The company produced a receipt in 2018 showing that Herbert Alford was renting a car around the time of the fatal 2011 shooting in Lansing, Mich., for which he had been found guilty.`\
 https://nytimes.com/2021/03/11/us/herbert-alford-hertz-lawsuit-receipt.html?searchResultPosition=6
 
