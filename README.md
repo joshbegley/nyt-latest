@@ -2,7 +2,7 @@
 `He hungered to paddle across an ocean so vast it seemed infinite. He did it three times, setting records and becoming a national hero in Poland.`\
 https://nytimes.com/2021/03/11/world/europe/aleksander-doba-dead.html?searchResultPosition=1
 
-**Georgetown Law Terminates Professor for ‘Abhorrent’ Remarks About Black Students**\
+**Georgetown Law Fires Professor for ‘Abhorrent’ Remarks About Black Students**\
 `The law school said Sandra A. Sellers, an adjunct professor, had been terminated, and David C. Batson, another adjunct, had been placed on administrative leave.`\
 https://nytimes.com/2021/03/11/us/georgetown-university-sandra-sellers.html?searchResultPosition=2
 
