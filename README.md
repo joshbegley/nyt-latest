@@ -35,6 +35,6 @@ https://nytimes.com/2021/03/11/style/Chanel-Louis-Vuitton-Balmain-fashion-shows.
 https://nytimes.com/2021/03/11/world/vaccine-vial-smithsonian-museum.html?searchResultPosition=9
 
 **Prince William Calls Royals ‘Not a Racist Family’ After Meghan and Harry Interview**\
-`Prince William’s response, after remarks made by the couple in their interview with Oprah that aired this week, was the first from a member of the royal family in a public appearance.`\
+`His comment, after remarks made by the couple in their interview with Oprah Winfrey that aired this week, was the first from a member of the royal family in a public appearance.`\
 https://nytimes.com/2021/03/11/world/europe/prince-william-royals-race-meghan-harry.html?searchResultPosition=10
 
