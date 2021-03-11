@@ -18,7 +18,7 @@ https://nytimes.com/2021/03/11/climate/nature-conservation-30-percent.html?searc
 `A deed for the sale has yet to be recorded, but one of the estate’s lawyers said that funds from the sale were being transferred to a compensation program for Mr. Epstein’s victims.`\
 https://nytimes.com/2021/03/11/business/jeffrey-epstein-manhattan-mansion-sold.html?searchResultPosition=9
 
-**Watch Live: Biden Signs Stimulus Package**\
-`On Thursday, President Biden will sign a historic economic stimulus package, the bill sends direct payments to many Americans, expands a child tax credit, and extends the weekly unemployment supplement.`\
-https://nytimes.com/video/us/politics/100000007649211/biden-stimulus-bill-signing.html?searchResultPosition=10
+**Watch Full Video: Biden Signs Stimulus Package**\
+`On Thursday, President Biden signed a historic economic stimulus package, the bill sends direct payments to many Americans, expands a child tax credit, and extends the weekly unemployment supplement.`\
+https://nytimes.com/video/embedded/us/politics/100000007649211/biden-stimulus-bill-signing.html?searchResultPosition=10
 
