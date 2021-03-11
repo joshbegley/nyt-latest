@@ -1,40 +1,40 @@
-**Students’ Pilgrimage Ends in Tragedy in an Indonesian Ravine**\
-`The brakes on a bus carrying 66 students, teachers and relatives who had visited an Islamic missionary’s tomb appear to have malfunctioned, killing 27.`\
-https://nytimes.com/2021/03/11/world/asia/indonesia-bus-crash-pilgrims.html?searchResultPosition=1
+**I Was an E.M.T. in New York Last Spring**\
+`The losses emergency responders witnessed are beyond what human minds can grasp.`\
+https://nytimes.com/2021/03/11/opinion/covid-new-york-emt.html?searchResultPosition=1
 
-**Dench, Smith, McKellen, Jacobi: On a Vanishing Era of Theater Greats**\
-`With British venues closed and years advancing, there’s even less time to see some of the finest actors in their 80s onstage.`\
-https://nytimes.com/2021/03/11/theater/dench-smith-mckellen-jacobi.html?searchResultPosition=2
+**He Went to 105 Shows in One Season. Now He Watches TV.**\
+`What has this year been like for the most voracious of culture vultures? A super fan in Chicago lets us into his life without the arts.`\
+https://nytimes.com/2021/03/11/theater/performing-arts-super-fan-lockdown.html?searchResultPosition=2
 
-**Unafraid but Cautious: Climbers Return to Everest After COVID-19 Closure**\
-`    Hundreds of climbers are set to return to Mount Everest for the first time next month under strict conditions, government officials and mountaineers said, as the world's tallest peak reopens after a year closed due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2021/03/11/world/asia/11reuters-nepal-everest.html?searchResultPosition=3
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually.`\
+https://nytimes.com/2021/03/11/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=3
 
-**With Relief Plan, Biden Takes on a New Role: Crusader for the Poor**\
-`President Biden’s new role as a crusader for Americans in poverty is an evolution for a politician who has focused on the working class and his Senate work on the judiciary and foreign relations.`\
-https://nytimes.com/2021/03/11/us/politics/biden-stimulus.html?searchResultPosition=4
+**Seattle’s Virus Success Shows What Could Have Been**\
+`The Seattle area once had more coronavirus deaths than anywhere else in the United States. A year later, the region’s deaths per capita are lower than any other large metropolitan area.`\
+https://nytimes.com/2021/03/11/us/coronavirus-seattle-success.html?searchResultPosition=4
 
-**Am I in Manhattan? Or Another Sequel to ‘Blade Runner’?**\
-`Flickering screens, whizzing helicopters and repurposed patches of pavement have transformed the scene.`\
-https://nytimes.com/2021/03/11/style/blade-runner-manhattan.html?searchResultPosition=5
+**A Village Erased**\
+`The earthquake and tsunami of March 11, 2011, wiped away the ancient Japanese village of Kesen. In the past decade, a small group of survivors has valiantly tried to rebuild the community, but a grim reality has set in: This emptiness will last forever.`\
+https://nytimes.com/2021/03/11/world/asia/japan-fukushima-kesen.html?searchResultPosition=5
 
-**Atop The Hill**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2021/03/11/learning/atop-the-hill.html?searchResultPosition=6
+**Where Fitness Is the Job, Army Struggles to Be a Fair Boss With Female Troops**\
+`As the Army revises its physical test and otherwise rethinks fitness, it faces difficult questions: Do current requirements penalize women? Do they overshadow expertise and intellectual preparation?`\
+https://nytimes.com/2021/03/11/us/politics/army-fitness-women.html?searchResultPosition=6
 
-**Three Are Killed in Houston Shooting**\
-`A fourth person was wounded in a parking lot, the police said early Thursday. Information on a suspect or a motive was not immediately available.`\
-https://nytimes.com/2021/03/11/us/houston-shooting.html?searchResultPosition=7
+**March 12, 2020: The Night the City Sighed to Sleep**\
+`Chocolate fountains, Debbie Harry and an artist’s swan song cut short. We gathered scenes from the New York City cultural landscape in the last moments before lockdown.`\
+https://nytimes.com/2021/03/11/arts/new-york-shut-down.html?searchResultPosition=7
 
-**Stephen Colbert Celebrates the Passing of the Stimulus Bill**\
-`“There you go, baby. You’re rich! Buy yourself something nice, like rent or medicine,” Colbert said on Wednesday’s “Late Show.”`\
-https://nytimes.com/2021/03/11/arts/television/stephen-colbert-stimulus-bill.html?searchResultPosition=8
+**As Oil Prices Rise, Executives Aim to Keep Them High**\
+`An industry known for dramatic boom-bust cycles is resisting the temptation to pump more oil — for now.`\
+https://nytimes.com/2021/03/11/business/energy-environment/oil-prices-opec-shale.html?searchResultPosition=8
 
-**Word of the Day: acquiesce**\
-`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/03/11/learning/word-of-the-day-acquiesce.html?searchResultPosition=9
+**Why Black Women Are Rejecting Hospitals in Search of Better Births**\
+`Some mothers are seeking alternatives, worried about Covid-19 and racial inequities in health care.`\
+https://nytimes.com/2021/03/11/nyregion/birth-centers-new-jersey.html?searchResultPosition=9
 
-**Ohio Medical Board Reopens 91 Sexual Assault Cases Involving Doctors**\
-`The review was prompted by an investigation into how Richard H. Strauss, a former team doctor at Ohio State who was implicated in at least 177 sex-abuse cases, had gone undetected for so long.`\
-https://nytimes.com/2021/03/11/us/ohio-medical-board-sexual-assault-doctors.html?searchResultPosition=10
+**Joe Manchin and Stacey Abrams Can Meet on Common Ground**\
+`True democracy is within our grasp.`\
+https://nytimes.com/2021/03/11/opinion/manchin-filibuster-voting-rights.html?searchResultPosition=10
 
