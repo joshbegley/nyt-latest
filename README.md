@@ -14,19 +14,15 @@ https://nytimes.com/video/us/politics/100000007647693/blinken-china-alaska-meeti
 `In his first foreign trip, the secretary of state will visit Japan and South Korea before the first in-person diplomatic encounter between the United States and China in several months.`\
 https://nytimes.com/2021/03/10/us/politics/blinken-china-korea-japan.html?searchResultPosition=5
 
-**The Biden administration released new Covid-19 guidance for nursing homes, allowing indoor visits.**\
-`Guests have the freedom to see residents regardless of whether they or the residents have been vaccinated.`\
-https://nytimes.com/2021/03/10/world/biden-covid-nursing-homes.html?searchResultPosition=6
-
 **Biden Plans Messaging Blitz to Sell Economic Aid Plan**\
 `Drawing on a lesson from early in the Obama administration, the White House wants to tell voters how the legislation will help them and keep Republicans from defining it on their terms.`\
-https://nytimes.com/2021/03/10/us/politics/biden-covid-relief-bill.html?searchResultPosition=7
+https://nytimes.com/2021/03/10/us/politics/biden-covid-relief-bill.html?searchResultPosition=6
 
 **On Covid Relief, Democrats Deserve a Victory Lap**\
 `A giant aid package is what the country badly needed and what voters wanted.`\
-https://nytimes.com/2021/03/10/opinion/biden-covid-bill-stimulus.html?searchResultPosition=9
+https://nytimes.com/2021/03/10/opinion/biden-covid-bill-stimulus.html?searchResultPosition=8
 
 **With Texas’ Mask Mandate Over, Workers Worry About Encroaching Virus**\
 `Gov. Greg Abbott cited personal freedom and economic pain while relaxing coronavirus restrictions. But many are upset, especially those who take precautions and work with the public.`\
-https://nytimes.com/2021/03/10/us/texas-mask-mandate-ends.html?searchResultPosition=10
+https://nytimes.com/2021/03/10/us/texas-mask-mandate-ends.html?searchResultPosition=9
 
