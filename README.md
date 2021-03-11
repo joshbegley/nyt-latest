@@ -6,9 +6,9 @@ https://nytimes.com/2021/03/11/learning/whats-going-on-in-this-graph-march-17-20
 `Paraguay escaped the worst of the pandemic for almost a year, but no longer. For many people, the crisis has made the country’s longstanding problems intolerable.`\
 https://nytimes.com/2021/03/11/world/americas/paraguay-covid-protests.html?searchResultPosition=2
 
-**T Mag Pandemic Roundup**\
+**T Magazine Stories From a Surreal Year**\
 `The beauty tips, travel fantasies and thoughts on art, books and more that got us through.`\
-https://nytimes.com/interactive/2021/03/11/t-magazine/coronavirus-pandemic-lockdown-stories.html?searchResultPosition=3
+https://nytimes.com/interactive/2021/03/10/t-magazine/coronavirus-pandemic-lockdown-stories.html?searchResultPosition=3
 
 **Police Misconduct & Racial Injustice in 2020**\
 ` `\
