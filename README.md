@@ -10,7 +10,7 @@ https://nytimes.com/2021/03/11/us/congressional-aides-capitol-riot.html?searchRe
 `President Donald J. Trump lost his job in large part for mishandling a crisis he at first denied. President Biden knows his legacy depends on bringing the catastrophe to a swift conclusion.`\
 https://nytimes.com/2021/03/11/us/politics/biden-coronavirus-trump.html?searchResultPosition=3
 
-**European Countries Suspend Use of AstraZeneca Shots over Worries About Blood Clots**\
+**European Countries Suspend Use of AstraZeneca Shots Over Worries About Blood Clots**\
 `Millions of people have received the vaccine without safety problems, and there is no evidence of any causal link between the vaccine and blood clots.`\
 https://nytimes.com/2021/03/11/business/astrazeneca-vaccine-denmark-blood-clots.html?searchResultPosition=4
 
