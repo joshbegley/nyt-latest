@@ -27,7 +27,7 @@ https://nytimes.com/2021/03/12/nyregion/who-is-kathy-hochul.html?searchResultPos
 https://nytimes.com/2021/03/12/us/politics/bidens-stimulus-promise-july.html?searchResultPosition=7
 
 **The $69 Million Beeple NFT Was Bought With Cryptocurrency**\
-`“It feel like I got a steal,” the buyer, who calls himself Metakovan, said in an interview of the “nonfungible token,” or NFT, he bought at an online auction.`\
+`“It feel like I got a steal,” the buyer, who calls himself Metakovan, said in an interview about the “nonfungible token,” or NFT, he bought at an online auction.`\
 https://nytimes.com/2021/03/12/arts/beeple-nft-buyer-ether.html?searchResultPosition=8
 
 **Stimulus payments should begin arriving this weekend, Treasury Department says.**\
