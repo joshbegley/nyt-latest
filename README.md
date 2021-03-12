@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘How Some States Are Moving to Restrict Transgender Women in Sports’**\
-`In this lesson, students will learn about a wave of legislation that seeks to prevent transgender women and girls from competing in women’s sports — and about the student athletes who are fighting against it.`\
-https://nytimes.com/2021/03/12/learning/lesson-of-the-day-how-some-states-are-moving-to-restrict-transgender-women-in-sports.html?searchResultPosition=1
+**In Nigeria, ‘Feminist’ Was a Common Insult. Then Came the Feminist Coalition.**\
+`Protests against police brutality brought the nation’s attention to the Feminist Coalition. Now its members want to change life for Nigerian women.`\
+https://nytimes.com/2021/03/12/world/africa/nigeria-feminist-coalition.html?searchResultPosition=1
 
-**Trump as You’ve Never Seen Him Before**\
-`A furniture maker and decorator in China created a stir — and inspired copycats — by casting a ceramic sculpture of the former president in a meditative pose that evokes the Buddha.`\
-https://nytimes.com/2021/03/12/world/asia/china-trump-buddha.html?searchResultPosition=2
+**The Secret Stunt Doubles of the Art World**\
+`To prepare an exhibition of Alexander Calder’s large-scale sculptures, MoMA created a set of elaborate stand-ins.`\
+https://nytimes.com/2021/03/12/arts/design/moma-sculptures-alexander-calder.html?searchResultPosition=2
 
-**Drawing a Crowd**\
-`What concerts, sports or other live events do you look forward to attending again?`\
-https://nytimes.com/2021/03/12/learning/drawing-a-crowd.html?searchResultPosition=3
+**Get Outside and Safely Visit a National Park**\
+`Now is the time to start looking ahead, to spring and summer excursions in the great outdoors.`\
+https://nytimes.com/2021/03/12/travel/national-park-vacations.html?searchResultPosition=3
 
-**In Hungary, a Chinese vaccine maker charges twice what Pfizer does in the European Union.**\
-`Hungary has agreed to pay $36 per dose of the Sinopharm vaccine, according to contracts that were leaked by a Hungarian official.`\
-https://nytimes.com/2021/03/11/world/hungary-sinopharm-covid.html?searchResultPosition=4
+**How a British Gardening Show Got People Through the Pandemic**\
+`By Steven Kurutz`\
+https://nytimes.com/2021/03/12/realestate/gardening-monty-don-pandemic.html?searchResultPosition=4
 
-**Word of the Day: ilk**\
-`This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/03/12/learning/word-of-the-day-ilk.html?searchResultPosition=5
+**‘Fraught With Issues’: Faulty Software Snarls Vaccine Sign-Ups**\
+`Health departments continue to grapple with delays caused by technical problems with numerous websites used for making appointments.`\
+https://nytimes.com/2021/03/12/technology/fraught-with-issues-faulty-software-snarls-vaccine-sign-ups.html?searchResultPosition=5
 
-**Jimmy Kimmel Reminisces About One Year of ‘Living Contagiously’**\
-`“If somebody said ‘N95’ to you one year ago, you’d think they were a bingo caller,” Kimmel joked on America’s “coronaversary.”`\
-https://nytimes.com/2021/03/12/arts/television/jimmy-kimmel-coronavirus-anniversary.html?searchResultPosition=6
+**In Nevada, Unemployed Workers Wait for Aid That Will Still Not Be Enough**\
+`Stimulus checks may be on their way, but those struggling to get by worry that the money will soon be gone. “Every morning I wake up thinking about where my help is going to come from,” one woman said.`\
+https://nytimes.com/2021/03/12/us/politics/nevada-las-vegas-pandemic-jobs.html?searchResultPosition=6
 
-**Germany’s Main Opposition Became an Anti-Lockdown Party. It Didn’t Work.**\
-`The far-right Alternative for Germany party’s stance seems to have further limited its appeal.`\
-https://nytimes.com/2021/03/12/opinion/germany-afd-covid.html?searchResultPosition=7
+**‘I Just Wanted To Disappear’: Women Saw Themselves in Meghan’s Pregnancy Struggle**\
+`A wave of responses from women who have experienced depression and suicidal thoughts is shedding light on the stark differences between how pregnancy is perceived and lived.`\
+https://nytimes.com/2021/03/12/world/asia/meghan-markle-pregnancy-depression.html?searchResultPosition=7
 
-**Why I Took a Vow of Celibacy**\
-`In my life, sex and love have been twisted up with childhood trauma. Time for a break.`\
-https://nytimes.com/2021/03/12/style/modern-love-why-i-took-a-vow-of-celibacy.html?searchResultPosition=8
+**How a Rockaways Pizza Chef Spends Her Sundays**\
+`Nicole Russell makes all sorts of pies — with toppings ranging from tandoori to jerk chicken — in her home kitchen.`\
+https://nytimes.com/2021/03/12/nyregion/last-dragon-pizza-nicole-russell.html?searchResultPosition=8
 
-**Corrections: March 12, 2021**\
-`Corrections that appeared in print on Friday, March 12, 2021.`\
-https://nytimes.com/2021/03/11/pageoneplus/corrections-march-12-2021.html?searchResultPosition=9
+**In a Fearful China, Its Dr. Fauci Wins Hearts With Restraint**\
+`Zhang Wenhong has drawn a huge public following with a human touch and candid advice that sometimes runs counter to the government’s authoritarian instincts.`\
+https://nytimes.com/2021/03/12/business/china-covid19-zhang-wenhong.html?searchResultPosition=9
 
-**Quotation of the Day: Junior Mushers Hit the Alaskan Trail**\
-`Quotation of the Day for Friday, March 12, 2021.`\
-https://nytimes.com/2021/03/11/pageoneplus/quotation-of-the-day-junior-mushers-hit-the-alaskan-trail.html?searchResultPosition=10
+**Finding Common Ground and Love in Harlem**\
+`April Hunt and June Berry come from different worlds. Ms. Hunt is an art-world fixture and D.J., and Ms. Berry is a child welfare consultant and chef. The two bonded over their mutual love for music and food.`\
+https://nytimes.com/2021/03/12/style/finding-common-ground-and-love-in-harlem.html?searchResultPosition=10
 
