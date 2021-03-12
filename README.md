@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/12/dining/roasted-asparagus-passover.html?searchResu
 https://nytimes.com/2021/03/12/sports/soccer/champions-league-reform-juventus.html?searchResultPosition=2
 
 **Nadler, Ocasio-Cortez and Others in Congress Call on Cuomo to Resign**\
-`At least nine Democrats in New York’s congressional delegation said Friday that Gov. Andrew Cuomo, who has become engulfed by scandals, had lost the ability to govern.`\
+`At least 12 Democrats in New York’s congressional delegation said Friday that Gov. Andrew Cuomo, who has become engulfed by scandals, had lost the ability to govern.`\
 https://nytimes.com/2021/03/12/nyregion/cuomo-resign-congress.html?searchResultPosition=4
 
 **Biden’s ‘I Need You’: A Welcome Change**\
