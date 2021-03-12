@@ -12,7 +12,7 @@ https://nytimes.com/2021/03/11/us/beth-moore-evangelical-women.html?searchResult
 
 **Watch Live: Biden Delivers Remarks on the Anniversary of the Covid-19 Shutdown**\
 `On Thursday, President Biden addresses the nation on the anniversary of the Covid-19 shutdown.`\
-https://nytimes.com/video/us/politics/100000007649746/biden-speech-stimulus-live-video.html?searchResultPosition=4
+https://nytimes.com/video/embedded/us/politics/100000007649746/biden-speech-stimulus-live-video.html?searchResultPosition=4
 
 **Congressional Aides Unite to Push for Change at the Capitol After the Riot**\
 `Shaken by the assault on Jan. 6, about 1,000 congressional aides, mostly people of color, have joined forces to press for changes in their workplace. It is the closest they can get to a union.`\
