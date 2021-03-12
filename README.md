@@ -15,7 +15,7 @@ https://nytimes.com/2021/03/12/us/global-vaccine-supply.html?searchResultPositio
 https://nytimes.com/2021/03/12/dining/roasted-asparagus-passover.html?searchResultPosition=5
 
 **Don’t Reject the Champion League’s Changes Out of Hand**\
-`The latest proposals to restructure the Champions League show that there may be sense even in dumb ideas.`\
+`The latest proposals to reallocate European soccer’s riches show that there may be sense even in dumb ideas.`\
 https://nytimes.com/2021/03/12/sports/soccer/champions-league-reform-juventus.html?searchResultPosition=6
 
 **Nadler, Ocasio-Cortez and Others in Congress Call on Cuomo to Resign**\
