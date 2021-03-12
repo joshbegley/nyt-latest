@@ -1,6 +1,6 @@
 **The Pandemic Happiness Gap**\
 `New surveys show that in the last year, older adults tended to be more positive than younger ones, suggesting that the ability to cope improves with age.`\
-https://nytimes.com/2021/03/12/science/covid-pandemic-happiness-age.html?searchResultPosition=2
+https://nytimes.com/2021/03/12/health/covid-pandemic-happiness-age.html?searchResultPosition=2
 
 **SZA Teases What’s Next, and 11 More New Songs**\
 `Hear tracks by Lucy Dacus, Jorja Smith, Charles Lloyd and the Marvels, and others.`\
@@ -14,7 +14,7 @@ https://nytimes.com/2021/03/12/us/global-vaccine-supply.html?searchResultPositio
 `Wondering what to do with those stalks? Roast them with sweet slivered leeks and salty capers.`\
 https://nytimes.com/2021/03/12/dining/roasted-asparagus-passover.html?searchResultPosition=5
 
-**Don’t Reject the Champion League’s Changes Out of Hand**\
+**Don’t Reject the Champions League’s Changes Out of Hand**\
 `The latest proposals to reallocate European soccer’s riches show that there may be sense even in dumb ideas.`\
 https://nytimes.com/2021/03/12/sports/soccer/champions-league-reform-juventus.html?searchResultPosition=6
 
