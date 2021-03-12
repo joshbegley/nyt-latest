@@ -1,5 +1,5 @@
 **Sale of Mansion Builds on a Myth Born of the Great Chicago Fire**\
-`Much like the legend that Catherine O’Leary’s cow started the deadly blaze in 1871, historians doubt the story that an Englewood home that is listed for sale was built for her — or that she ever lived there.`\
+`Much like the legend that Catherine O’Leary’s cow started the deadly blaze in 1871, historians doubt the story that a home that is listed for sale was built for her — or that she ever lived there.`\
 https://nytimes.com/2021/03/12/us/oleary-cow-fire-chicago-house.html?searchResultPosition=1
 
 **Desperate for a Trip? Here Are the Questions to Ask Before You Go.**\
