@@ -28,7 +28,7 @@ https://nytimes.com/2021/03/12/arts/design/desert-x-preview.html?searchResultPos
 
 **Watch Live: Biden Addresses Covid-19 Relief Plan**\
 `President Biden delivers remarks following the passage of the American Rescue Plan, an economic relief package in response to the impact of the Covid-19 pandemic.`\
-https://nytimes.com/video/us/politics/100000007651465/biden-harris-speech-stimulus-live-video.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/politics/100000007651465/biden-harris-speech-stimulus-live-video.html?searchResultPosition=9
 
 **George Floyd’s Family Settles Suit Against Minneapolis for $27 Million**\
 `The City Council voted unanimously to approve the settlement, which is one of the largest in a case of police misconduct.`\
