@@ -12,7 +12,7 @@ https://nytimes.com/2021/03/12/us/colorado-snowstorm-forecast.html?searchResultP
 
 **Body Found in Southeast England Is Sarah Everard’s, Police Say**\
 `Her disappearance last week in South London touched off a national outcry against gender violence. A police officer has been arrested on suspicion of kidnapping and murder in the case.`\
-https://nytimes.com/2021/03/12/world/europe/body-found-in-southeast-england-is-sarah-everards-police-say.html?searchResultPosition=4
+https://nytimes.com/2021/03/12/world/europe/uk-sarah-everard.html?searchResultPosition=4
 
 **A Year of Risk, Fear and Loss for Families in Medicine**\
 `For many nurses and doctors, medicine was an inherited calling and one that bound couples. Then the virus threatened the ones they love.`\
