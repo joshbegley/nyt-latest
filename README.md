@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/12/health/covid-pandemic-happiness-age.html?searchRe
 https://nytimes.com/2021/03/12/arts/music/playlist-sza-jorja-smith-rose.html?searchResultPosition=3
 
 **The U.S. will partner with Japan, India and Australia to expand global vaccine supply.**\
-`By Sheryl Gay Stolberg`\
+`The move comes amid calls for the Biden administration to donate excess U.S. vaccine supplies to nations facing shortages.`\
 https://nytimes.com/2021/03/12/us/global-vaccine-supply.html?searchResultPosition=4
 
 **Getting the Best Out of Thick Asparagus**\
