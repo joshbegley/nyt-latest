@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/12/world/europe/europe-us-sanctions.html?searchResultPosition=1
 
 **Hope as a Public Health Tool**\
-`President Biden, speaking from the White House, reached for a little optimism`\
+`President Biden, speaking from the White House, reached for a little optimism.`\
 https://nytimes.com/2021/03/12/briefing/biden-speech-astrazeneca-vaccine-beeple-nfts.html?searchResultPosition=2
 
 **The Image and the Intrigue: Covering the Royal Family**\
