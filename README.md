@@ -1,4 +1,4 @@
-**Chris Harrison Is Replaced as Host of ‘The Bachelorette’**\
+**Chris Harrison Replaced as ‘Bachelorette’ Host by 2 Former Contestants**\
 `Mr. Harrison, who acknowledged making comments dismissive of racism, will be replaced on the coming season by the first women to host the franchise, Tayshia Adams and Kaitlyn Bristowe.`\
 https://nytimes.com/2021/03/13/arts/television/chris-harrison-bachelor-bachelorette.html?searchResultPosition=1
 
