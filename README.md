@@ -1,40 +1,40 @@
-**Will Republicans Pay a Price for Opposing the Stimulus?**\
-`It’s complicated. But so far, their messaging has been scattershot.`\
-https://nytimes.com/2021/03/13/us/politics/republicans-stimulus.html?searchResultPosition=1
+**One Year Together, Apart**\
+`The pandemic redefined relationships and self-reliance.`\
+https://nytimes.com/2021/03/13/style/covid-19-one-year-anniversary.html?searchResultPosition=1
 
-**Despite Encouraging Downward Trend, U.S. Covid Deaths Remain High**\
-`Nearly 1,500 people are still dying of Covid-19 every day in the United States, a number that is lower than peaks seen last spring and early this year but exceeds the highest rate in July.`\
-https://nytimes.com/interactive/2021/03/13/us/coronavirus-march-summer-peak.html?searchResultPosition=2
+**A Political Hurricane Blew Through Georgia. Now It’s Bracing for More.**\
+`The country’s most hotly contested state has calmed down after months of drama, court fights and national attention (even the death threats have slowed). But new storms are on the horizon.`\
+https://nytimes.com/2021/03/13/us/politics/georgia-republicans-voting-rights.html?searchResultPosition=2
 
-**China asks visa applicants to get inoculated with Chinese-made vaccines.**\
-`A new rule for foreigners applying in Hong Kong for visas gives preference to those who choose shots produced in China.`\
-https://nytimes.com/2021/03/12/world/china-vaccines-hong-kong.html?searchResultPosition=3
+**Despite Covid Outbreaks, Youth Sports Played On**\
+`The coronavirus has spread at hockey rinks, basketball games and wrestling tournaments. But many experts, parents and participants believe that the benefits outweigh the risks.`\
+https://nytimes.com/2021/03/13/us/covid-youth-sports.html?searchResultPosition=3
 
-**Sorry About Your Sleep**\
-`A group of U.S. senators has joined the ranks of those who want to abolish daylight saving time, which has roots in cost-cutting strategies of the late 19th century.`\
-https://nytimes.com/article/daylight-saving-time-questions.html?searchResultPosition=4
+**Maggots, Rape and Yet Five Stars: How U.S. Ratings of Nursing Homes Mislead the Public**\
+`Nursing homes have manipulated the influential star system in ways that have masked deep problems — and left them unprepared for Covid-19.`\
+https://nytimes.com/2021/03/13/business/nursing-homes-ratings-medicare-covid.html?searchResultPosition=4
 
-**Corrections: March 13, 2021**\
-`Corrections that appeared in print on Saturday, March 13, 2021.`\
-https://nytimes.com/2021/03/12/pageoneplus/corrections-march-13-2021.html?searchResultPosition=5
+**From Crypto Art to Trading Cards, Investment Manias Abound**\
+`Each market frenzy seems crazier than the last. But all have the same roots.`\
+https://nytimes.com/2021/03/13/technology/crypto-art-NFTs-trading-cards-investment-manias.html?searchResultPosition=5
 
-**Ebola Survivor Infected Years Ago May Have Started New Outbreak**\
-`Genetic sequencing of virus samples from patients in Guinea suggest that the new outbreak is a continuation of the 2014-16 epidemic.`\
-https://nytimes.com/2021/03/12/health/ebola-old-infection-new-outbreak.html?searchResultPosition=6
+**The ‘21’ Club Isn’t Dead. Yet.**\
+`Its owner, LVMH, promises a reimagining of the space. But in the meantime almost 150 unionized employees have been laid off.`\
+https://nytimes.com/2021/03/13/style/21-club.html?searchResultPosition=6
 
-**Quotation of the Day: U.S. Takes Step to Use Vaccine for Diplomacy**\
-`Quotation of the Day for Saturday, March 13, 2021.`\
-https://nytimes.com/2021/03/12/todayspaper/quotation-of-the-day-us-takes-step-to-use-vaccine-for-diplomacy.html?searchResultPosition=7
+**Covid? What Covid? Taiwan Thrives as a Bubble of Normality**\
+`The island has used its pandemic success to sell something scarce: life without fear of the coronavirus. Citizens have flocked home from abroad, helping to fuel an economic boom.`\
+https://nytimes.com/2021/03/13/world/asia/taiwan-covid.html?searchResultPosition=7
 
-**Statement of Inevitability**\
-`Rise, shine and dig in to what John Guzzetta’s whipped up.`\
-https://nytimes.com/2021/03/12/crosswords/daily-puzzle-2021-03-13.html?searchResultPosition=8
+**Lions Are Lovely, but Petite Carnivores Need Affection, Too**\
+`The assumption that adding apex predators to wildlife parks in South Africa benefits smaller animals is in need of more testing, scientists say.`\
+https://nytimes.com/2021/03/13/science/lions-south-africa-wildlife-parks.html?searchResultPosition=8
 
-**George Floyd’s Family Settles Suit for $27 Million**\
-`Minneapolis agreed on Friday to pay $27 million to the family of George Floyd, the Black man whose killing by a white police officer was caught on video and ignited months of nationwide protests.`\
-https://nytimes.com/video/us/100000007652421/george-floyd-settlement.html?searchResultPosition=9
+**A Times Writer on Missing … The Times**\
+`Incredibly, we have all worked remotely for a year. But I’m homesick for our office.`\
+https://nytimes.com/2021/03/13/insider/empty-times-office.html?searchResultPosition=9
 
-**Bryson DeChambeau Keeps the Crowd Riveted at the Players Championship**\
-`The question of whether the big-hitting DeChambeau would pull out his driver seemed as compelling as the actual competition.`\
-https://nytimes.com/2021/03/12/sports/golf/golf-pga-players.html?searchResultPosition=10
+**17 Reasons to Let the Economic Optimism Begin**\
+`A reporter who has tracked decades of gloomy trends sees things lining up for roaring growth.`\
+https://nytimes.com/2021/03/13/upshot/economy-optimism-boom.html?searchResultPosition=10
 
