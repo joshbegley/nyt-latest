@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/13/world/europe/at-kosovo-monastery-nationalist-clam
 `Even as he tries to plot a political survival strategy in the face of sexual misconduct allegations, Mr. Cuomo is an object lesson on the dangers of kicking people on the way up.`\
 https://nytimes.com/2021/03/13/us/politics/andrew-cuomo-scandals.html?searchResultPosition=2
 
-**Despite Covid Limits, Mourners Rally for Slain London Woman**\
+**Protesters Defy Covid Restrictions to Rally for Slain London Woman**\
 `Thousands of people gathered at Clapham Common on Saturday, the London park near where Sarah Everard, 33, was last seen alive. Her death led to an outpouring of anger and solidarity over violence against women.`\
 https://nytimes.com/video/world/europe/100000007652762/sarah-everard-memorial.html?searchResultPosition=3
 
