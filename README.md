@@ -8,7 +8,7 @@ https://nytimes.com/2021/03/13/us/alabama-yoga-ban-bill.html?searchResultPositio
 
 **A Vigil for a Slain London Woman Moves Ahead**\
 `With modifications for the pandemic, the tribute to Sarah Everard, 33, who went missing in London last week, is moving ahead after having been canceled.`\
-https://nytimes.com/2021/03/13/world/europe/sarah-everhard.html?searchResultPosition=3
+https://nytimes.com/2021/03/13/world/europe/sarah-everard.html?searchResultPosition=3
 
 **How a Longstanding Rivalry Spiraled Into 5 Deaths Between 2 Families**\
 `In Afghanistan, a rise in targeted attacks that the governments seems unable to stop has also encouraged the settling of old scores through vendetta killings.`\
