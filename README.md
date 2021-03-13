@@ -1,40 +1,40 @@
+**Patrick Dupond, French Ballet Virtuoso, Dies at 61**\
+`Renowned as both a star dancer and the director of the Paris Opera Ballet, he was a household name in France from an early age.`\
+https://nytimes.com/2021/03/13/arts/dance/patrick-dupond-dead.html?searchResultPosition=1
+
+**Whistle-Blower Says Credit Suisse Helped Clients Skip Taxes After Promising to Stop**\
+`A former bank employee contends that the Swiss bank continued to help American clients avoid taxes long after its 2014 plea deal with the U.S. government`\
+https://nytimes.com/2021/03/13/business/whistle-blower-credit-suisse-taxes.html?searchResultPosition=2
+
+**‘I’d Much Rather Be in Florida’**\
+`Floridians are out and about and pandemic restrictions have been lifted. There’s just one problem: The virus never went away.`\
+https://nytimes.com/2021/03/13/us/coronavirus-florida-booming.html?searchResultPosition=3
+
+**After Breonna Taylor’s Death, Black Engagement in Kentucky Politics Soared**\
+`“Her door being kicked in was our door being kicked in,” a former state representative said as the first anniversary of Ms. Taylor’s death approached. “It really has transformed everything.”`\
+https://nytimes.com/2021/03/13/us/breonna-taylor-death-anniversary.html?searchResultPosition=4
+
+**Variety: Acrostic**\
+`You’ll have to get up pretty early in the morning, in the dark, to solve this Emily Cox and Henry Rathvon acrostic.`\
+https://nytimes.com/2021/03/13/crosswords/variety-acrostic.html?searchResultPosition=5
+
 **How Shifting Politics Re-energized the Fight Against Poverty**\
 `The pandemic and a set of other economic and social forces changed the calculation for Democrats when it comes to government aid. The question now is how long the moment will last.`\
-https://nytimes.com/2021/03/13/business/economy/child-poverty-stimulus.html?searchResultPosition=1
+https://nytimes.com/2021/03/13/business/economy/child-poverty-stimulus.html?searchResultPosition=6
 
 **TikTok and the Pop Music Rough Draft**\
 `The wildly popular platform has reshaped pop during the coronavirus pandemic, and changed how record labels grapple with unpredictable virality.`\
-https://nytimes.com/2021/03/13/arts/music/popcast-tiktok-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2021/03/13/arts/music/popcast-tiktok-coronavirus.html?searchResultPosition=7
 
 **A Vaccine Maker’s Investment: Emergent BioSolutions Responds**\
 `The company takes issue with an article in The Times.`\
-https://nytimes.com/2021/03/13/opinion/letters/emergent-biosolutions-vaccine.html?searchResultPosition=3
+https://nytimes.com/2021/03/13/opinion/letters/emergent-biosolutions-vaccine.html?searchResultPosition=8
 
 **Spring Is Coming**\
 `Asparagus tarts and stir-fries are on the horizon.`\
-https://nytimes.com/2021/03/13/admin/spring-is-coming.html?searchResultPosition=4
+https://nytimes.com/2021/03/13/admin/spring-is-coming.html?searchResultPosition=9
 
 **Can You Have a Puppy and Nice Furniture?**\
 `People with nice furniture do have dogs. So how do they do it?`\
-https://nytimes.com/2021/03/13/realestate/can-you-have-a-puppy-and-nice-furniture.html?searchResultPosition=5
-
-**After a 28-Year Ban, Alabama Could Allow Yoga in Public Schools**\
-`“It’s just exercise,” said Jeremy Gray, a state lawmaker whose bill is making its way through the Legislature. But some people still say the practice has no place in the classroom.`\
-https://nytimes.com/2021/03/13/us/alabama-yoga-ban-bill.html?searchResultPosition=6
-
-**A Vigil for a Slain London Woman Moves Ahead**\
-`With modifications for the pandemic, the tribute to Sarah Everard, 33, who went missing in London last week, is moving ahead after having been canceled. A police officer is now charged in her killing.`\
-https://nytimes.com/2021/03/13/world/europe/sarah-everard-vigil.html?searchResultPosition=7
-
-**How a Longstanding Rivalry Spiraled Into 5 Deaths Between 2 Families**\
-`In Afghanistan, a rise in targeted attacks that the governments seems unable to stop has also encouraged the settling of old scores through vendetta killings.`\
-https://nytimes.com/2021/03/13/world/asia/afghan-journalist-vendetta-killings.html?searchResultPosition=8
-
-**Global vaccination rates are on the rise, but many countries have yet to start.**\
-`North America and Europe are far outpacing most countries in Asia and Africa.`\
-https://nytimes.com/2021/03/13/us/covid-19-coronavirus-global-vaccinations.html?searchResultPosition=9
-
-**In a Crucial South African Vaccine Trial, a Cautionary Tale**\
-`Before alerting the world to a dangerous new virus variant, the country struggled with the financial and logistical pressures that often forestall trials in less developed nations.`\
-https://nytimes.com/2021/03/13/world/africa/south-africa-vaccine-virus.html?searchResultPosition=10
+https://nytimes.com/2021/03/13/realestate/can-you-have-a-puppy-and-nice-furniture.html?searchResultPosition=10
 
