@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/12/us/refugees-biden.html?searchResultPosition=1
 `Brad Smith, Microsoft’s president, told Congress he supports the Journalism Competition and Protection Act, which empowers news publishers to collectively bargain with online platforms like Facebook and Google.`\
 https://nytimes.com/video/us/politics/100000007652363/microsoft-journalism-tech-hearing.html?searchResultPosition=2
 
-**Coyote That Attacked Five in Bay Area is Finally Caught**\
+**Coyote That Attacked Five in Bay Area Is Finally Caught**\
 `The animal, which had bitten five people, including two young children, near San Francisco over nearly eight months, was euthanized on Thursday.`\
 https://nytimes.com/2021/03/12/us/coyote-killed-california-bay-area.html?searchResultPosition=3
 
