@@ -11,7 +11,7 @@ https://nytimes.com/2021/03/14/nyregion/cuomo-sexual-harassment-vaccines.html?se
 https://nytimes.com/2021/03/14/world/astrazeneca-ireland.html?searchResultPosition=3
 
 **In Rage Over Sarah Everard Killing, ‘Women’s Bargain’ Is Put on Notice**\
-`The ‘Reclaim These Streets’ movement in Britain asks why the police demand sacrifices of women rather than forcing men to change to end violence. ‘It makes my stomach rot,’ one organizer said.`\
+`The “Reclaim These Streets” movement in Britain asks why the police demand sacrifices of women rather than forcing men to change to end violence. “It makes my stomach rot,” one organizer said.`\
 https://nytimes.com/2021/03/14/world/europe/sarah-everard-women-protest.html?searchResultPosition=4
 
 **Carmel Quinn, Irish Singer and Storyteller, Dies at 95**\
