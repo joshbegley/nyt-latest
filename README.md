@@ -14,7 +14,7 @@ https://nytimes.com/2021/03/14/us/postal-service-workers-covid-vaccine.html?sear
 `By Aidan Gardiner`\
 https://nytimes.com/2021/03/14/world/for-families-in-medicine-its-been-a-year-of-fear-and-loss.html?searchResultPosition=6
 
-**Policing at Sarah Everard Vigil Faces Official Scrutiny**\
+**Policing at Sarah Everard Vigil in London Faces Official Scrutiny**\
 `The killing of Ms. Everard, 33, has prompted soul-searching over violence against women in Britain. And the breaking up of a banned vigil in her memory has focused criticism on London’s police.`\
 https://nytimes.com/2021/03/14/world/europe/uk-sarah-everard-vigil-police.html?searchResultPosition=7
 
