@@ -2,7 +2,7 @@
 `The agency will help provide basic care as criticism mounts over the treatment of the increasing number of young migrants who have filled detention facilities at the southwest border.`\
 https://nytimes.com/2021/03/14/us/politics/fema-migrant-children-border-biden.html?searchResultPosition=1
 
-**London Police Criticized for Tactics in Breaking Up Vigil**\
+**London Police Respond to Criticism Over Sarah Everard Vigil Tactics**\
 `London’s Metropolitan Police commissioner on Sunday said she welcomed an independent review of how police disbanded a vigil for Sarah Everard, after officers drew outrage for clashing with women protesting.`\
 https://nytimes.com/video/world/europe/100000007653529/london-police-sarah-everard-vigil-review.html?searchResultPosition=2
 
