@@ -35,6 +35,6 @@ https://nytimes.com/2021/03/14/podcasts/the-daily/subway-new-york-city.html?sear
 https://nytimes.com/2021/03/14/realestate/homes-that-sold-for-around-1-5-million.html?searchResultPosition=9
 
 **Days of Killings and Defiance in Myanmar, With Neither Side Relenting**\
-`At least 18 people were fatally shot over the weekend, but the nationwide protest movement shows no sign of waning.`\
+`At least 20 people were fatally shot over the weekend, but the nationwide protest movement shows no sign of waning.`\
 https://nytimes.com/2021/03/14/world/asia/myanmar-protests-killings.html?searchResultPosition=10
 
