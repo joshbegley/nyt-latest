@@ -2,13 +2,13 @@
 `A 2,000-year-old artifact that had ended up in the home of a Manhattan antiquities dealer is now in an Italian museum.`\
 https://nytimes.com/2021/03/14/world/europe/caligula-mosaic-ship-italy.html?searchResultPosition=1
 
-**Homes That Sold for Around $1.5 Million**\
-`Recent residential sales in New York City and the region.`\
-https://nytimes.com/2021/03/14/realestate/homes-that-sold-for-around-1-5-million.html?searchResultPosition=2
-
 **The Sunday Read: ‘The Case for the Subway’**\
 `It built New York City. One writer on why, no matter the cost, the city must rebuild it to survive.`\
-https://nytimes.com/2021/03/14/podcasts/the-daily/subway-new-york-city.html?searchResultPosition=3
+https://nytimes.com/2021/03/14/podcasts/the-daily/subway-new-york-city.html?searchResultPosition=2
+
+**Homes That Sold for Around $1.5 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2021/03/14/realestate/homes-that-sold-for-around-1-5-million.html?searchResultPosition=3
 
 **Days of Killings and Defiance in Myanmar, With Neither Side Relenting**\
 `At least 18 people were fatally shot over the weekend, but the nationwide protest movement shows no sign of waning.`\
