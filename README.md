@@ -1,6 +1,6 @@
 **Women’s Basketball Makes Room for New Stars, and New Contenders**\
 `The usual elites are still great, but the rest of the college field has a real shot to win the championship this year. Star power isn’t concentrated at the top anymore.`\
-https://nytimes.com/2021/03/14/sports/basketball/womens-basketball-makes-room-for-new-stars-and-new-contenders.html?searchResultPosition=1
+https://nytimes.com/2021/03/14/sports/basketball/ncaa-womens-basketball.html?searchResultPosition=1
 
 **N.C.A.A. Tournament: Things to Know Going Into Selection Sunday**\
 `The field of 68 teams for the men’s N.C.A.A. tournament will include 37 at-large bids and 31 automatic qualifiers.`\
