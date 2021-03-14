@@ -1,4 +1,4 @@
-**Payments Start-up Stripe Surges to $95 Billion Valuation**\
+**Payments Start-Up Stripe Surges to $95 Billion Valuation**\
 `The company has benefited in the pandemic as people turn to online shopping. It is now the most valuable start-up in the U.S.`\
 https://nytimes.com/2021/03/14/technology/payments-start-up-stripe-pandemic.html?searchResultPosition=1
 
