@@ -1,5 +1,5 @@
 **Drew Brees Retires, His Focus on the Details Until the End**\
-`Brees, who won seven division titles as the Saints’ quarterback, including in the last four seasons, retired after 20 seasons with the most completions and passing yards in N.F.L. history.`\
+`Brees, who won seven division titles as the Saints’ quarterback, including the most recent four, retired after 20 seasons with the most completions and passing yards in N.F.L. history.`\
 https://nytimes.com/2021/03/14/sports/football/drew-brees-retires-NFL.html?searchResultPosition=1
 
 **Colorado Snowstorm Knocks Out Power to Thousands and Snarls Travel**\
