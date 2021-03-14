@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/14/world/europe/uk-sarah-everard-vigil-police.html?s
 `Larry Schwartz, whom Gov. Andrew M. Cuomo put in charge of the state’s vaccination efforts, called some county executives about support for the governor.`\
 https://nytimes.com/2021/03/14/nyregion/cuomo-sexual-harassment-vaccines.html?searchResultPosition=2
 
-**Ireland suspends use of AstraZeneca vaccine, citing blood clot reports.**\
+**Ireland suspends use of AstraZeneca’s vaccine, citing blood clot reports.**\
 `Major public health agencies have offered reassurances, noting that millions of people have received the vaccine without problems and that no causative link has been found between the vaccine and clots.`\
 https://nytimes.com/2021/03/14/world/astrazeneca-ireland.html?searchResultPosition=3
 
