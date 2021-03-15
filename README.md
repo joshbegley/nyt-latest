@@ -8,7 +8,7 @@ https://nytimes.com/2021/03/15/world/asia/myanmar-authorities-declare-martial-la
 
 **Those Who Died Trying to Save Others**\
 `Medical workers are called heroes. But there hasn’t been a national reckoning over the many thousands lost to Covid. Here are a few of the people who gave their lives while on the front lines of the pandemic.`\
-https://nytimes.com/2021/03/15/science/covid-medical-workers-deaths.html?searchResultPosition=3
+https://nytimes.com/2021/03/15/health/covid-medical-workers-deaths.html?searchResultPosition=3
 
 **U.K. Podcast Companies Want What the U.S. Has, Looking Past the BBC**\
 `The public broadcaster has long dominated audio production in Britain. But new podcast companies are taking inspiration from America and finding investors to shake up the industry.`\
