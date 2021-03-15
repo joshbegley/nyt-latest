@@ -23,7 +23,7 @@ https://nytimes.com/2021/03/15/arts/american-history-book-prize.html?searchResul
 https://nytimes.com/2021/03/15/movies/emerald-fennell-promising-young-woman-oscars.html?searchResultPosition=6
 
 **Two are charged in the assault of a Capitol Police officer who died after the Jan. 6 riot.**\
-`The Justice Department has charged two men in the assault on Brian D. Sicknick, a Capitol Police officer who died the day after he fought rioters storming the Capitol, according to a law enforcement official.`\
+`The Justice Department has charged two men in the assault on Brian D. Sicknick, a Capitol Police officer who died the day after he fought rioters storming the Capitol, according to a law enforcement official and court documents.`\
 https://nytimes.com/2021/03/15/us/politics/brian-sicknick-jan-6-capitol-police.html?searchResultPosition=7
 
 **Derek Chauvin’s lawyer asks for a delay in the trial.**\
