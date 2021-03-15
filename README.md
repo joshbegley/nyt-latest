@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/15/us/grand-rapids-instagram-surgery-photos.html?searchResultPosition=1
 
 **Oscar Nominations 2021: Riz Ahmed and Steven Yeun Make History**\
-`For the first time, two men of Asian heritage are up for best actor.`\
+`For the first time, two men of Asian heritage are up for best actor. Their films, “Sound of Metal” and “Minari,” are also up for best picture.`\
 https://nytimes.com/2021/03/15/movies/steven-yeun-riz-ahmed-best-actor-asian-nominees.html?searchResultPosition=2
 
 **$700,000 Homes in California**\
