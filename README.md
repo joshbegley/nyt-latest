@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2021/03/15/books/books-review-anniversary.html?searchResultPosition=1
 
 **Half of New York Voters Say Cuomo Shouldn’t Resign, Poll Shows**\
-`A Siena College poll showed that roughly a third of voters believed Gov. Andrew Cuomo committed sexual harassment, and a slight majority wanted “someone else” to run for governor next year.`\
+`A Siena College poll showed that more than a third of voters believed Gov. Andrew Cuomo committed sexual harassment, and a slight majority wanted “someone else” to run for governor next year.`\
 https://nytimes.com/2021/03/15/nyregion/cuomo-resign-sexual-harrassment-poll.html?searchResultPosition=2
 
 **Don Lemon Organizes His Books by Color**\
