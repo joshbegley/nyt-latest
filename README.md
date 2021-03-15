@@ -15,7 +15,7 @@ https://nytimes.com/2021/03/15/briefing/beyonce-grammy-winners-joe-manchin.html?
 https://nytimes.com/2021/03/15/podcasts/the-daily/israel-vaccinations-coronavirus.html?searchResultPosition=4
 
 **A Sandstorm in China Revives Memories of ‘Airpocalypses’ Past**\
-`China’s Communist Party has made great strides in reducing the country’s choking pollution, but a perfect storm of winds from the north and a post-pandemic industrial rebound created dangerously high levels of pollution across the country.`\
+`The Communist Party has made great strides in reducing China’s pollution, but a perfect storm of northern winds and an industrial rebound has created dangerously high levels of pollution countrywide.`\
 https://nytimes.com/2021/03/15/world/asia/china-sandstorm.html?searchResultPosition=5
 
 **Vaccine Czar Asks County Officials About Loyalty to Cuomo**\
