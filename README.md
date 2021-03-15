@@ -1,4 +1,4 @@
-**N.C.A.A. Quietly Eases a Virus Safety Rule for March Madness**\
+**N.C.A.A. Quietly Eases a Virus Safety Rule for Tournament**\
 `Teams arriving in Indiana for the men’s basketball tournament were supposed to quarantine for two days. Iona, with the N.C.A.A.’s blessing, held a practice on its first day.`\
 https://nytimes.com/2021/03/15/sports/ncaabasketball/coronavirus-ncaa-tournament.html?searchResultPosition=1
 
