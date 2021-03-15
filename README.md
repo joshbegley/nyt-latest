@@ -1,6 +1,6 @@
 **Two are arrested in the death of a Capitol Police officer after the riot.**\
-`By Katie Benner and Adam Goldman`\
-https://nytimes.com/2021/03/15/us/politics/two-are-arrested-in-the-death-of-a-capitol-police-officer-after-the-riot.html?searchResultPosition=1
+`The Justice Department has charged two men in the assault on Brian D. Sicknick, a Capitol Police officer who died the day after he fought rioters storming the Capitol on Jan. 6, according to a law enforcement official.`\
+https://nytimes.com/2021/03/15/us/politics/brian-sicknick-jan-6-capitol-police.html?searchResultPosition=1
 
 **Derek Chauvin’s lawyer asks for a delay in the trial.**\
 `The lawyer also asked the judge on Monday to move the trial outside of the city and that the seven jurors already picked to serve on the case be brought back in for further questioning.`\
