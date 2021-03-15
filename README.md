@@ -1,5 +1,5 @@
-**Two are arrested in the death of a Capitol Police officer after the riot.**\
-`The Justice Department has charged two men in the assault on Brian D. Sicknick, a Capitol Police officer who died the day after he fought rioters storming the Capitol on Jan. 6, according to a law enforcement official.`\
+**Two are arrested in the death of a Capitol Police officer injured in the Jan. 6 riot.**\
+`The Justice Department has charged two men in the assault on Brian D. Sicknick, a Capitol Police officer who died the day after he fought rioters storming the Capitol, according to a law enforcement official.`\
 https://nytimes.com/2021/03/15/us/politics/brian-sicknick-jan-6-capitol-police.html?searchResultPosition=1
 
 **Derek Chauvin’s lawyer asks for a delay in the trial.**\
