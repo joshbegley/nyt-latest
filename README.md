@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/15/world/europe/russia-syria-mercenaries.html?search
 https://nytimes.com/2021/03/15/world/europe/vatican-same-sex-unions.html?searchResultPosition=5
 
 **Daniel Kaluuya and Glenn Close are nominated in supporting categories.**\
-`Sacha Baron Cohen and Maria Bakalova were also nominated for their performances in “Borat Subsequent Moviefilm.”`\
+`Sacha Baron Cohen was nominated for “The Trial of the Chicago 7” and Maria Bakalova was nominated for her performance in “Borat Subsequent Moviefilm.”`\
 https://nytimes.com/2021/03/15/movies/daniel-kaluuya-glenn-close-oscars.html?searchResultPosition=6
 
 **2021 Oscars Nominees List**\
