@@ -1,40 +1,40 @@
+**The Pandemic and the Future City**\
+`Lessons from Alexander Hamilton and the book trade.`\
+https://nytimes.com/2021/03/15/opinion/cities-covid-remote-work.html?searchResultPosition=1
+
 **Will Democrats Nix (or Weaken) the Filibuster?**\
 `Many of their priorities have little chance of becoming law — unless they shake up Senate procedure.`\
-https://nytimes.com/2021/03/15/us/politics/democrats-filibuster-manchin-sinema.html?searchResultPosition=1
+https://nytimes.com/2021/03/15/us/politics/democrats-filibuster-manchin-sinema.html?searchResultPosition=2
 
 **Sally Grossman, Immortalized on a Dylan Album Cover, Dies at 81**\
 `She picked out a red outfit and struck a relaxed pose on the cover of “Bringing It All Back Home,” leaving much for fans to guess about.`\
-https://nytimes.com/2021/03/15/arts/music/sally-grossman-dead.html?searchResultPosition=2
+https://nytimes.com/2021/03/15/arts/music/sally-grossman-dead.html?searchResultPosition=3
 
 **AstraZeneca Concerns Throw Europe’s Vaccine Rollout Into Deeper Disarray**\
 `Germany, France and Italy became the latest countries to suspend use of the vaccine even as a third wave of the pandemic threatens the continent.`\
-https://nytimes.com/2021/03/15/world/europe/coronavirus-vaccine-astra-zeneca-covid.html?searchResultPosition=3
+https://nytimes.com/2021/03/15/world/europe/coronavirus-vaccine-astra-zeneca-covid.html?searchResultPosition=4
 
 **It’s OK to Grieve for the Small Losses of a Lost Year**\
 `There is a name for grief that isn’t routinely acknowledged: disenfranchised grief. `\
-https://nytimes.com/2021/03/15/well/mind/grief-pandemic-losses.html?searchResultPosition=4
+https://nytimes.com/2021/03/15/well/mind/grief-pandemic-losses.html?searchResultPosition=5
 
 **Catholic Order Pledges $100 Million to Atone for Slave Labor and Sales**\
 `The move by Jesuit priests is the largest such effort by the Roman Catholic Church and comes amid growing calls for reparations across the United States.`\
-https://nytimes.com/2021/03/15/us/jesuits-georgetown-reparations-slavery.html?searchResultPosition=5
+https://nytimes.com/2021/03/15/us/jesuits-georgetown-reparations-slavery.html?searchResultPosition=6
 
 **Ronald DeFeo, Whose Murder Spree Inspired ‘The Amityville Horror,’ Dies at 69**\
 `Mr. DeFeo confessed to killing his parents and four siblings in 1974 at their home in Amityville, N.Y. The house became the subject of books and movies.`\
-https://nytimes.com/2021/03/15/nyregion/ronald-defeo-amityville-dead.html?searchResultPosition=6
+https://nytimes.com/2021/03/15/nyregion/ronald-defeo-amityville-dead.html?searchResultPosition=7
 
 **Coronavirus Briefing: What Happened Today**\
 `Europe is struggling with a third wave.`\
-https://nytimes.com/2021/03/15/us/coronavirus-today.html?searchResultPosition=7
+https://nytimes.com/2021/03/15/us/coronavirus-today.html?searchResultPosition=8
 
 **Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/03/15/briefing/your-monday-evening-briefing.html?searchResultPosition=8
+https://nytimes.com/2021/03/15/briefing/your-monday-evening-briefing.html?searchResultPosition=9
 
 **Deb Haaland Becomes First Native American Cabinet Secretary**\
 `The Senate confirmed Ms. Haaland to lead the Interior Department. She’ll be charged with essentially reversing the agency’s course over the past four years.`\
-https://nytimes.com/2021/03/15/climate/Deb-Haaland-Interior.html?searchResultPosition=9
-
-**In 100 Years, People Will Say …**\
-`We asked scientists, community leaders and public health experts to predict what might be said a century from now.`\
-https://nytimes.com/interactive/2021/03/15/science/covid-pandemic-future.html?searchResultPosition=10
+https://nytimes.com/2021/03/15/climate/Deb-Haaland-Interior.html?searchResultPosition=10
 
