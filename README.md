@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/15/briefing/astrazeneca-shots-china-policy.html?searchResultPosition=1
 
 **C.D.C. Examining Evidence for 3 Feet of Distancing in Schools**\
-`Dr. Rochelle Walensky, Director of the Centers for Disease Control and Prevention discussed the findings of a new study that suggests three feet, not six feet, was sufficient distance for students if they adhere to safety precautions.`\
+`Dr. Rochelle Walensky, director of the Centers for Disease Control and Prevention, discussed the findings of a new study that suggests three feet, not six feet, was sufficient distance for students if they adhere to safety precautions.`\
 https://nytimes.com/video/us/politics/100000007655543/cdc-schools-social-distance-3-feet.html?searchResultPosition=2
 
 **Derek Chauvin’s Defense Team Requests Trial Delay**\
