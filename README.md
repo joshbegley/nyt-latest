@@ -26,13 +26,13 @@ https://nytimes.com/2021/03/15/technology/artificial-intelligence-google-bias.ht
 `President Biden is not the only one who wants to celebrate Independence Day.`\
 https://nytimes.com/2021/03/15/opinion/harry-meghan-biden-cuomo.html?searchResultPosition=7
 
-**Landing a One-Bedroom, With a Little Help From Her Friends**\
-`The power of community helped a longtime Park Slope, Brooklyn, resident find a new home.`\
-https://nytimes.com/2021/03/15/realestate/renting-sunset-park-brooklyn.html?searchResultPosition=8
-
 **The Pandemic as a Wake-Up Call for Personal Health**\
 `Too many Americans fail to take measures to combat obesity, the second leading risk factor for death from Covid-19.`\
-https://nytimes.com/2021/03/15/well/live/pandemic-health-obesity.html?searchResultPosition=9
+https://nytimes.com/2021/03/15/well/live/pandemic-health-obesity.html?searchResultPosition=8
+
+**Landing a One-Bedroom, With a Little Help From Her Friends**\
+`The power of community helped a longtime Park Slope, Brooklyn, resident find a new home.`\
+https://nytimes.com/2021/03/15/realestate/renting-sunset-park-brooklyn.html?searchResultPosition=9
 
 **Joe Biden, Union Guy?**\
 `He promised to be “the most pro-union president you’ve ever seen.” Following through on that might mean acting without Congress.`\
