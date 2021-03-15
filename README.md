@@ -15,7 +15,7 @@ https://nytimes.com/video/world/europe/100000007655815/italy-coronavirus-lockdow
 https://nytimes.com/2021/03/15/climate/epa-climate-regulations.html?searchResultPosition=4
 
 **UConn Coach Geno Auriemma Tests Positive for the Coronavirus**\
-`Auriemma tested positive on Sunday, the university said on Monday, just hours before the N.C.A.A. was to select and place teams in the women’s national basketball tournament.`\
+`The top-ranked Huskies will travel to San Antonio on Tuesday for the women’s national basketball tournament, the university said, and Auriemma is expected to rejoin the team on March 24.`\
 https://nytimes.com/2021/03/15/sports/ncaabasketball/uconn-geno-auriemma-coronavirus.html?searchResultPosition=5
 
 **Biden, Pitching Stimulus, Promises Milestones for Vaccines and Checks**\
