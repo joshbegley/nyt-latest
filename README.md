@@ -6,13 +6,13 @@ https://nytimes.com/2021/03/14/arts/music/billie-eilish-megan-thee-stallion-gram
 `Financially, the N.C.A.A. needs its men’s basketball tournament to happen. Here’s how it hopes to pull it, and the women’s competition, off during a pandemic.`\
 https://nytimes.com/2021/03/15/sports/ncaabasketball/tournament-covid-questions-guide.html?searchResultPosition=2
 
-**Sports Are Returning to Normal. So Is Their Role in Political Fights.**\
-`American society is redrawing cultural norms and protections for citizens’ rights. It shouldn’t be a shock that sports is the most visible battleground.`\
-https://nytimes.com/2021/03/15/sports/transgender-sports-mcdermott-leonard.html?searchResultPosition=3
-
 **N.C.A.A. Women’s Basketball: What You Need to Know**\
 `A possible showdown between Baylor and UConn. A spotlight on Maryland’s sophomore stars. A little bit of chaos among the bubble teams.`\
-https://nytimes.com/2021/03/15/sports/ncaabasketball/ncaa-womens-basketball-tournament.html?searchResultPosition=4
+https://nytimes.com/2021/03/15/sports/ncaabasketball/ncaa-womens-basketball-tournament.html?searchResultPosition=3
+
+**Sports Are Returning to Normal. So Is Their Role in Political Fights.**\
+`American society is redrawing cultural norms and protections for citizens’ rights. It shouldn’t be a shock that sports is the most visible battleground.`\
+https://nytimes.com/2021/03/15/sports/transgender-sports-mcdermott-leonard.html?searchResultPosition=4
 
 **Word of the Day: bereft**\
 `This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
