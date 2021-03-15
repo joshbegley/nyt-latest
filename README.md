@@ -1,40 +1,40 @@
+**$700,000 Homes in California**\
+`A 1949 cottage in Fresno, a midcentury-modern-inspired house in Idyllwild and a two-bedroom bungalow in Los Angeles.`\
+https://nytimes.com/2021/03/15/realestate/home-prices-california.html?searchResultPosition=1
+
+**What You Get for $700,000 in California**\
+`A 1949 cottage in Fresno, a midcentury-modern-inspired house in Idyllwild and a two-bedroom bungalow in Los Angeles.`\
+https://nytimes.com/slideshow/2021/03/15/realestate/what-you-get-for-700000-in-california.html?searchResultPosition=2
+
 **Afraid of Needles? Don’t Let It Keep You From a Covid-19 Vaccine.**\
 `There are ways to overcome a fear of needles. Here’s how.`\
-https://nytimes.com/2021/03/15/health/covid-vaccine-needle-fear.html?searchResultPosition=1
+https://nytimes.com/2021/03/15/health/covid-vaccine-needle-fear.html?searchResultPosition=3
 
 **The Day the Bay Area Shut Down**\
 `Monday: A year into the pandemic, California is reopening. Here’s a look back at the day it started shutting down.`\
-https://nytimes.com/2021/03/15/us/ca-shutdown.html?searchResultPosition=2
+https://nytimes.com/2021/03/15/us/ca-shutdown.html?searchResultPosition=4
 
 **Oscars Nominations 2021: For the First Time, Two Women Are Up for Best Director**\
 `Chloé Zhao and Emerald Fennell were selected alongside Lee Isaac Chung, Thomas Vinterberg and David Fincher, the first time the academy has honored more than one woman in a year.`\
-https://nytimes.com/2021/03/15/movies/best-director-women-oscars.html?searchResultPosition=3
+https://nytimes.com/2021/03/15/movies/best-director-women-oscars.html?searchResultPosition=5
 
 **Grisly Killing in Syria Spawns Legal Case Against Russian Mercenaries**\
 `Rights groups filed the litigation, linked to footage of a captive being dismembered, in an effort to close loopholes that enable nonstate militias to evade the rules of war.`\
-https://nytimes.com/2021/03/15/world/europe/russia-syria-mercenaries.html?searchResultPosition=4
+https://nytimes.com/2021/03/15/world/europe/russia-syria-mercenaries.html?searchResultPosition=6
 
 **Vatican Says Priests Can’t Bless Same-Sex Unions**\
 `In a ruling made public on Monday, the Vatican said the Roman Catholic Church should be welcoming toward gay people, but not their unions.`\
-https://nytimes.com/2021/03/15/world/europe/vatican-same-sex-unions.html?searchResultPosition=5
+https://nytimes.com/2021/03/15/world/europe/vatican-same-sex-unions.html?searchResultPosition=7
 
 **Daniel Kaluuya and Glenn Close are nominated in supporting categories.**\
 `Sacha Baron Cohen was nominated for “The Trial of the Chicago 7” and Maria Bakalova was nominated for her performance in “Borat Subsequent Moviefilm.”`\
-https://nytimes.com/2021/03/15/movies/daniel-kaluuya-glenn-close-oscars.html?searchResultPosition=6
+https://nytimes.com/2021/03/15/movies/daniel-kaluuya-glenn-close-oscars.html?searchResultPosition=8
 
 **2021 Oscars Nominees List**\
 `The complete list of Academy Award nominees for 2021.`\
-https://nytimes.com/2021/03/15/movies/oscars-nominees-list.html?searchResultPosition=7
+https://nytimes.com/2021/03/15/movies/oscars-nominees-list.html?searchResultPosition=9
 
 **Beyoncé and the Grammys’ Breakout Fashion Star**\
 `The singer made history, and Schiaparelli dressed her for it.`\
-https://nytimes.com/2021/03/15/style/beyonce-grammys-schiaparelli.html?searchResultPosition=8
-
-**U.K. Policing Bill Examined After Sarah Everard Vigil**\
-`Proposed legislation that would grant the British police more powers to control protests is being debated this week, and it faces renewed scrutiny after an outcry over the breaking up of a memorial event.`\
-https://nytimes.com/2021/03/15/world/europe/uk-police-sarah-everard-vigil.html?searchResultPosition=9
-
-**The Architects Who, After a Devastating Earthquake, Rebuilt a Town**\
-`Jojutla, Mexico, now home to an array of inventively reimagined public spaces, has become a paradigm for rural revitalization.`\
-https://nytimes.com/2021/03/15/t-magazine/jojutla-mexico-earthquake-architecture.html?searchResultPosition=10
+https://nytimes.com/2021/03/15/style/beyonce-grammys-schiaparelli.html?searchResultPosition=10
 
