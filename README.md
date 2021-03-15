@@ -1,6 +1,6 @@
 **Derek Chauvin’s lawyer asks for a delay in the trial.**\
 `The lawyer also asked the judge on Monday to move the trial outside of the city and that the seven jurors already picked to serve on the case be brought back in for further questioning.`\
-https://nytimes.com/2021/03/15/us/derek-chauvins-lawyer-asks-for-a-delay-in-the-trial.html?searchResultPosition=1
+https://nytimes.com/2021/03/15/us/derek-chauvin-trial-delay-george-floyd-settlement.html?searchResultPosition=1
 
 **125 Years of The New York Times Book Review**\
 `Over the years, both the Book Review and the U.S. have evolved, and very often, history was made in our pages. Here’s a timeline of some of the most historic moments in the Book Review’s 125 years.`\
