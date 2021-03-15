@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/15/world/europe/vatican-same-sex-unions.html?searchR
 https://nytimes.com/2021/03/15/movies/daniel-kaluuya-glenn-close-oscars.html?searchResultPosition=2
 
 **2021 Oscars Nominees List**\
-`A list of the Academy Award nominees for 2021.`\
+`The complete list of  Academy Award nominees for 2021.`\
 https://nytimes.com/2021/03/15/movies/oscars-nominees-list.html?searchResultPosition=3
 
 **Beyoncé and the Grammys’ Breakout Fashion Star**\
