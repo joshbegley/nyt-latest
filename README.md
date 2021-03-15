@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/14/learning/word-of-the-day-bereft.html?searchResult
 `An outcry against gender violence.`\
 https://nytimes.com/2021/03/14/briefing/germany-sarah-everard-italy-lockdown.html?searchResultPosition=2
 
-**Beyoncé not only came to the Grammys, she won them and made history.**\
+**Beyoncé not only came to the Grammys, she won four and made history.**\
 `After winning for best rap song with Megan Thee Stallion and for best R&B performance, Beyoncé has won more Grammys than any other female artist.`\
 https://nytimes.com/2021/03/14/arts/music/beyonce-megan-thee-stallion-grammys.html?searchResultPosition=3
 
