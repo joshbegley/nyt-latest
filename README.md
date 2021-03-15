@@ -1,4 +1,4 @@
-**Brazil Needs Vaccines. China is Benefiting.**\
+**Brazil Needs Vaccines. China Is Benefiting.**\
 `China is a major supplier of coronavirus vaccine, giving it enormous leverage in pandemic-ravaged nations. Brazil, recently hostile to the Chinese company Huawei, has suddenly changed its stance.`\
 https://nytimes.com/2021/03/15/world/americas/brazil-vaccine-china.html?searchResultPosition=1
 
