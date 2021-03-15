@@ -10,8 +10,8 @@ https://nytimes.com/2021/03/15/us/ca-shutdown.html?searchResultPosition=2
 `Chloé Zhao and Emerald Fennell were selected alongside Lee Isaac Chung, Thomas Vinterberg and David Fincher, the first time the academy has honored more than one woman in a year.`\
 https://nytimes.com/2021/03/15/movies/best-director-women-oscars.html?searchResultPosition=3
 
-**Rights Groups File Case Against Russian Mercenaries Accused of War Crimes**\
-`The ultimate aim of the litigation, which is linked to a grisly killing in Syria, is to close loopholes that enable nonstate militia groups to operate outside the legal rules of combat.`\
+**Grisly Killing in Syria Spawns Legal Case Against Russian Mercenaries**\
+`Rights groups filed the litigation, linked to footage of a captive being dismembered, in an effort to close loopholes that enable nonstate militias to evade the rules of war.`\
 https://nytimes.com/2021/03/15/world/europe/russia-syria-mercenaries.html?searchResultPosition=4
 
 **Vatican Says Priests Can’t Bless Same-Sex Unions**\
