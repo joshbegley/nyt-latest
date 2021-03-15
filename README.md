@@ -1,5 +1,5 @@
 **Cardi B and Megan Thee Stallion present a (slightly) PG version of ‘WAP.’**\
-`By Julia Jacobs`\
+`The rappers brought a spectacle to the Grammys stage with the first televised performance of their raunchy, blockbuster hit.`\
 https://nytimes.com/2021/03/14/arts/music/cardi-b-megan-thee-stallion-wap.html?searchResultPosition=1
 
 **No Corrections: March 15, 2021**\
