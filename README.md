@@ -2,7 +2,7 @@
 `For the first time, two women are up for best director, but a daylight-saving time mix-up almost kept the filmmaker from the announcement.`\
 https://nytimes.com/2021/03/15/movies/emerald-fennell-promising-young-woman-oscars.html?searchResultPosition=1
 
-**Two are arrested in the death of a Capitol Police officer injured in the Jan. 6 riot.**\
+**Two are charged in the death of a Capitol Police officer injured in the Jan. 6 riot.**\
 `The Justice Department has charged two men in the assault on Brian D. Sicknick, a Capitol Police officer who died the day after he fought rioters storming the Capitol, according to a law enforcement official.`\
 https://nytimes.com/2021/03/15/us/politics/brian-sicknick-jan-6-capitol-police.html?searchResultPosition=2
 
