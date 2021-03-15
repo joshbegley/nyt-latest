@@ -2,7 +2,7 @@
 `The medical residents, who are employed by Spectrum Health in Grand Rapids, Mich., asked people on Instagram to guess how much a surgically removed organ weighed.`\
 https://nytimes.com/2021/03/15/us/grand-rapids-instagram-surgery-photos.html?searchResultPosition=1
 
-**Oscar Nominations 2021: Riz Ahmed and Steven Yeun Make History**\
+**Riz Ahmed and Steven Yeun Make History at the 2021 Oscar Nominations**\
 `For the first time, two men of Asian heritage are up for best actor. Their films, “Sound of Metal” and “Minari,” are also up for best picture.`\
 https://nytimes.com/2021/03/15/movies/steven-yeun-riz-ahmed-best-actor-asian-nominees.html?searchResultPosition=2
 
