@@ -16,7 +16,7 @@ https://nytimes.com/2021/03/16/sports/football/drew-brees-kneeling-protest-anthe
 
 **In First, Uber Agrees to Classify British Drivers as ‘Workers’**\
 `The new legal classification, which follows a U.K. court ruling last month, will entitle the workers to more pay and benefits, but stops short of making them employees.`\
-https://nytimes.com/2021/03/16/technology/in-first-uber-agrees-to-classify-british-drivers-as-workers.html?searchResultPosition=6
+https://nytimes.com/2021/03/16/technology/uber-uk-drivers-worker-status.html?searchResultPosition=6
 
 **Biden Touts Rescue Plan During Pennsylvania Visit**\
 `President Biden visited small businesses in Pennsylvania on Tuesday to promote the benefits of his $1.9 trillion coronavirus relief bill, stressing the disproportionate impact of the pandemic on communities of color.`\
