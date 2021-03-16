@@ -15,7 +15,7 @@ https://nytimes.com/2021/03/16/world/middleeast/dead-sea-scrolls.html?searchResu
 https://nytimes.com/2021/03/16/business/dealbook/amazon-unions-fight.html?searchResultPosition=4
 
 **Prince Philip Leaves London Hospital**\
-`The 99-year-old husband of Queen Elizabeth spent 28 days in the hospital, amid increasing concerns about his health.`\
+`The 99-year-old husband of Queen Elizabeth was admitted after feeling ill and was hospitalized for 28 days, during which he had surgery for a pre-existing heart condition.`\
 https://nytimes.com/2021/03/16/world/europe/prince-philip-hospital-released.html?searchResultPosition=5
 
 **Moderna begins testing Covid vaccine in babies and young children.**\
