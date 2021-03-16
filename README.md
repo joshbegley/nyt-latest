@@ -20,7 +20,7 @@ https://nytimes.com/2021/03/16/books/review/new-this-week.html?searchResultPosit
 
 **Johnson Pins U.K. Future on U.S. Ties, as European Bonds Loosen**\
 `Prime Minister Boris Johnson’s blueprint for Britain’s economic, security and diplomatic future is a tighter embrace of Washington, with policies aligning London with President Biden.`\
-https://nytimes.com/2021/03/16/world/europe/uk-global-strategy-US.html?searchResultPosition=7
+https://nytimes.com/2021/03/16/world/europe/boris-johnson-uk-usa.html?searchResultPosition=7
 
 **Newly Discovered Dead Sea Scroll Fragments Revealed**\
 `On Tuesday, Israeli researchers unveiled dozens of newly discovered Dead Sea Scroll fragments containing biblical texts dating back nearly 2,000 years.`\
