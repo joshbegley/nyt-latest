@@ -1,5 +1,5 @@
 **Purdue Pharma Offers Plan to End Sackler Control and Mounting Lawsuits**\
-`The OxyContin maker filed its long-awaited restructuring plan in bankruptcy court. Profits from the new company would go exclusively to abating the opioid crisis.`\
+`The OxyContin maker filed its long-awaited restructuring plan in bankruptcy court. Revenue from the new company would go exclusively to abating the opioid crisis.`\
 https://nytimes.com/2021/03/16/health/purdue-sacklers-bankruptcy-opioids.html?searchResultPosition=1
 
 **North Korea Accuses Washington of Raising ‘a Stink’ in First Comments on Biden**\
