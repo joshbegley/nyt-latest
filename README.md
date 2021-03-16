@@ -8,7 +8,7 @@ https://nytimes.com/2021/03/16/podcasts/the-daily/wind-power-wyoming-climate-cha
 
 **Poll Finds Public Support for Cuomo in Spite of Scandals**\
 `About half of the registered voters surveyed said they believed that Gov. Andrew Cuomo could still effectively lead New York.`\
-https://nytimes.com/2021/03/16/nyregion/cuomo-new-york-voters-poll.html?searchResultPosition=3
+https://nytimes.com/2021/03/16/nyregion/governor-cuomo-polls-sexual-harassment.html?searchResultPosition=3
 
 **‘Festival Days,’ by Jo Ann Beard: An Excerpt**\
 `An excerpt from “Festival Days,” by Jo Ann Beard`\
