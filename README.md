@@ -32,7 +32,7 @@ https://nytimes.com/2021/03/15/sports/ncaabasketball/womens-ncaa-tournament.html
 
 **As Biden Confronts Vaccine Hesitancy, Republicans Are a Particular Challenge**\
 `The administration is seeking help in urging Republicans to get inoculated. But the president said he was not sure how much value there was in enlisting his predecessor.`\
-https://nytimes.com/2021/03/15/us/politics/biden-vaccine-hesitancy-republicans.html?searchResultPosition=9
+https://nytimes.com/2021/03/15/us/politics/joe-biden-vaccine-republicans.html?searchResultPosition=9
 
 **Corrections: March 16, 2021**\
 `Corrections that appeared in print on Tuesday, March 16, 2021.`\
