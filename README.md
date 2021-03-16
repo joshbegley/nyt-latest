@@ -16,7 +16,7 @@ https://nytimes.com/2021/03/15/health/astra-zeneca-vaccine-blood-clots-bleeding.
 
 **House Tackles Biden’s Immigration Plans Amid Migrant Influx**\
 `Democrats are preparing to push the first pieces of President Biden’s immigration plan through the House this week as a migrant surge threatens to unravel an already delicate coalition.`\
-https://nytimes.com/2021/03/15/us/politics/house-immigration-bills-biden.html?searchResultPosition=5
+https://nytimes.com/2021/03/15/us/politics/biden-immigration-plan-bill.html?searchResultPosition=5
 
 **Children Are Sleeping on Mats in Overcrowded Border Facilities**\
 `The Biden administration is struggling to find space for a surge of migrant children and teenagers that is almost three times the level seen early last year.`\
