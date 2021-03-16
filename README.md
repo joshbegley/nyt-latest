@@ -10,7 +10,7 @@ https://nytimes.com/2021/03/16/world/asia/us-japan-china-talks.html?searchResult
 `Members of the World Health Organization backed the AstraZeneca vaccine, despite a growing number of countries that have suspended the use of the vaccine.`\
 https://nytimes.com/video/world/europe/100000007656847/world-health-organization-astrazeneca.html?searchResultPosition=3
 
-**The Arts Are Coming Back This Summer. Just Step Outside**\
+**The Arts Are Coming Back This Summer. Just Step Outside.**\
 `The return of Shakespeare to Central Park is among the most visible signs that theaters, orchestras and opera companies aim to return to the stage — outdoors.`\
 https://nytimes.com/2021/03/16/theater/summer-outdoor-performances.html?searchResultPosition=4
 
