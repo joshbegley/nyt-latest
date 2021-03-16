@@ -20,7 +20,7 @@ https://nytimes.com/2021/03/16/realestate/sarah-stiles-the-crew-netflix-billions
 
 **How Amazon Crushes Unions**\
 `In a secret settlement in Virginia, Amazon swore off threatening and intimidating workers. As the company confronts increased labor unrest, its tactics are under scrutiny.`\
-https://nytimes.com/2021/03/16/technology/how-amazon-crushes-unions.html?searchResultPosition=6
+https://nytimes.com/2021/03/16/technology/amazon-unions-virginia.html?searchResultPosition=6
 
 **Sarah Stiles’s Otherworldly Style**\
 `The actor, who stars in the Netflix series ‘The Crew’ and is a regular on ‘Billions,’ is like a slightly goofy sitcom neighbor with an earthy home.`\
