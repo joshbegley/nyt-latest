@@ -1,5 +1,5 @@
 **Poll Finds Public Support for Cuomo in Spite of Scandals**\
-`About half of the registered voters surveyed said they believed that the governor could still effectively lead New York.`\
+`About half of the registered voters surveyed said they believed that Gov. Andrew Cuomo could still effectively lead New York.`\
 https://nytimes.com/2021/03/16/nyregion/cuomo-new-york-voters-poll.html?searchResultPosition=1
 
 **‘Festival Days,’ by Jo Ann Beard: An Excerpt**\
