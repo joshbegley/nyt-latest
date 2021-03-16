@@ -15,7 +15,7 @@ https://nytimes.com/2021/03/16/arts/television/nicola-pagett-dead.html?searchRes
 https://nytimes.com/2021/03/16/opinion/cuomo-metoo.html?searchResultPosition=4
 
 **A Meat War Is Waged Across State Lines**\
-`In a ceremonial effort to discourage meat consumption, Gov. Jared Polis of Colorado declared March 20 to be MeatOut Day. Then Gov. Pete Ricketts of Nebraska announced Meat on the Menu Day, seeking to do just the opposite.`\
+`In a ceremonial effort to discourage meat consumption, the governor of Colorado declared March 20 “MeatOut Day.” Then Nebraska’s governor announced “Meat on the Menu Day,” seeking to do just the opposite.`\
 https://nytimes.com/2021/03/16/us/meatout-day-colorado-nebraska.html?searchResultPosition=5
 
 **Were the Airline Bailouts Really Needed?**\
