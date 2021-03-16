@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/16/t-magazine/paper-houses-craft-architecture-design
 `Part craft project and part meditation on the evolution of domestic space, these miniature paper dwellings can be assembled with just scissors and glue.`\
 https://nytimes.com/interactive/2021/03/16/t-magazine/architect-designed-paper-houses.html?searchResultPosition=2
 
-**JPMorgan Chase is planning for summer interns to go to the office.**\
+**Seeking return to normal, JPMorgan Chase is planning for summer interns to go to the office.**\
 `The plan to bring back in-person internships in July is another sign that corporate giants believe a version of pre-pandemic working life is near.`\
 https://nytimes.com/2021/03/16/business/jpmorgan-interns-return-to-office.html?searchResultPosition=3
 
