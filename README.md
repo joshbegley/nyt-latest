@@ -12,7 +12,7 @@ https://nytimes.com/2021/03/16/business/jpmorgan-interns-return-to-office.html?s
 
 **‘I Have No Money for Food’: Among the Young, Hunger Is Rising**\
 `In France and across Europe, more students are facing food insecurity as the pandemic enters its second year, and job cuts in their families take a widening toll.`\
-https://nytimes.com/2021/03/16/business/food-insecurity-covid-france-europe.html?searchResultPosition=4
+https://nytimes.com/2021/03/16/business/hunger-food-insecurity-europe.html?searchResultPosition=4
 
 **New & Noteworthy, From Jazz-Age Cairo to a Catholic Memoir**\
 `A selection of recent titles of interest; plus, a peek at what our colleagues around the newsroom are reading.`\
