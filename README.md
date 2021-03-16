@@ -28,7 +28,7 @@ https://nytimes.com/2021/03/16/opinion/facebook-trump-ban.html?searchResultPosit
 
 **My Research Into the History of Catholic Slaveholding Transformed My Understanding of My Church.**\
 `I have spent years poring over archives to illuminate the lives of those bought and sold by a prominent order of Jesuit priests.`\
-https://nytimes.com/2021/03/16/us/catholic-church-enslavement-race-related.html?searchResultPosition=9
+https://nytimes.com/2021/03/16/us/catholic-church-enslavement.html?searchResultPosition=9
 
 **I Lived Through the AIDS Crisis and Now Covid. N.Y.C. Got Me Through.**\
 `In this new short film, an artist finds hope in an unlikely place — the city’s storefront gates, rolling up day after day.`\
