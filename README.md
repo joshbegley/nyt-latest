@@ -1,6 +1,6 @@
 **How the Harp Got Hip**\
 `An instrument long associated with angels and virtue surfaces across musical genres, on TikTok and even in pornography.`\
-https://nytimes.com/2021/03/16/style/how-the-harp-got-hip.html?searchResultPosition=1
+https://nytimes.com/2021/03/16/style/harps.html?searchResultPosition=1
 
 **Steven Spurrier, Who Upended Wine World With a Tasting, Dies at 79**\
 `In what came to be called the Judgment of Paris, he arranged for California and French wines to be compared in a blind tasting. The verdict was a shocker.`\
