@@ -1,40 +1,40 @@
-**Landmark Ruling Cracks Door Open for Same-Sex Marriage in Japan**\
-`A court found that it was unconstitutional for the country not to recognize the unions. But change would come only if Parliament passes legislation.`\
-https://nytimes.com/2021/03/17/world/asia/japan-gay-marriage.html?searchResultPosition=1
+**‘This Is the Fire: What I Say to My Friends About Racism,’ by Don Lemon: An Excerpt**\
+`An excerpt from “This Is the Fire: What I Say to My Friends About Racism,” by Don Lemon`\
+https://nytimes.com/2021/03/17/books/review/this-is-the-fire-what-i-say-to-my-friends-about-racism-by-don-lemon-an-excerpt.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Your Loved Ones, and Eerie Tom Cruise Videos, Reanimate Unease With Deepfakes’**\
-`In this lesson, students will learn about deepfake technology and consider the implications of computer-generated forgeries for society: Can we still trust what we see and hear?`\
-https://nytimes.com/2021/03/17/learning/lesson-of-the-day-your-loved-ones-and-eerie-tom-cruise-videos-reanimate-unease-with-deepfakes.html?searchResultPosition=2
+**A Close-Up Picture of Partisan Segregation, Among 180 Million Voters**\
+`Democrats and Republicans increasingly live apart, all the way down to the neighborhood level.`\
+https://nytimes.com/interactive/2021/03/17/upshot/partisan-segregation-maps.html?searchResultPosition=2
 
-**U.S. Punishes 24 Chinese Officials on Eve of First Talks Under Biden**\
-`Setting a confrontational tone ahead of meetings in Alaska, the United States punished Chinese officials involved in eroding democracy in Hong Kong.`\
-https://nytimes.com/2021/03/17/world/asia/us-china-sanctions-biden.html?searchResultPosition=3
+**‘When Normal Life Stopped’: College Essays Reflect a Turbulent Year**\
+`This year’s admissions essays became a platform for high school seniors to reflect on the pandemic, race and loss.`\
+https://nytimes.com/2021/03/17/us/covid-college-admissions.html?searchResultPosition=3
 
-**To Help Black Developers, Programs Start With Access to Capital**\
-`Several banks have announced initiatives totaling billions of dollars that are aimed at addressing racial inequalities, but observers say the programs need to be carefully tailored.`\
-https://nytimes.com/2021/03/17/business/to-help-black-developers-programs-start-with-access-to-capital.html?searchResultPosition=4
+**Our 21 Most Popular Recipes on Instagram**\
+`The most-viewed posts on our social media accounts tell the story of what our readers cooked this past year.`\
+https://nytimes.com/2021/03/17/dining/most-popular-recipes-instagram.html?searchResultPosition=4
 
-**Judges Juggle Over 2,700 Cases Each as Families Wait for Day in Court**\
-`Short-handed and deluged by complex cases, New Jersey’s federal court is in a crisis. The backlog of cases has only gotten worse in the pandemic.`\
-https://nytimes.com/2021/03/17/nyregion/federal-court-nj-judges.html?searchResultPosition=5
+**How to Clean Up Steel? Bacteria, Hydrogen and a Lot of Cash.**\
+`With climate concerns growing, steel companies face an inevitable crunch. ArcelorMittal sees solutions, but the costs are likely to run into tens of billions of dollars in Europe alone.`\
+https://nytimes.com/2021/03/17/business/steel-emissions-arcelor-mittal.html?searchResultPosition=5
 
-**March Madness**\
-`Can the N.C.A.A. pull off a successful tournament during a pandemic?`\
-https://nytimes.com/2021/03/17/learning/march-madness.html?searchResultPosition=6
+**Shelton, Conn.: More Living Space and Lower Taxes**\
+`The up-and-coming city in Fairfield County is part suburb, part gritty downtown, with more residential and commercial development in the works.`\
+https://nytimes.com/2021/03/17/realestate/living-in-shelton-conn-more-space-lower-taxes.html?searchResultPosition=6
 
-**Girl Reporter Exposes Town’s Dirty (Water) Secret**\
-`In “The Leak,” a budding journalist uncovers a Flint-like scandal in her own backyard.`\
-https://nytimes.com/2021/03/17/books/review/kate-reed-petty-andrea-bell-the-leak.html?searchResultPosition=7
+**Learning Apps Have Boomed in the Pandemic. Now Comes the Real Test.**\
+`Start-ups hope there’s no turning back for online learning, even as more students return to the classroom.`\
+https://nytimes.com/2021/03/17/technology/Zoom-school-remote-learning-apps.html?searchResultPosition=7
 
-**Word of the Day: genial**\
-`This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/03/17/learning/word-of-the-day-genial.html?searchResultPosition=8
+**As Vaccinations Speed Along in Serbia, the Country Basks in the Glow of a Successful Campaign**\
+`The Balkan nation has Europe’s second-highest rate of inoculations after embracing vaccines from all suppliers, including Russian and Chinese.`\
+https://nytimes.com/2021/03/17/world/europe/as-vaccinations-speed-along-in-serbia-the-country-basks-in-the-glow-of-a-successful-campaign.html?searchResultPosition=8
 
-**Stephen Colbert Mocks Republicans’ Suspicious Minds on Vaccines**\
-`“Despite vaccines becoming more available, there’s still one thing holding Americans back: Americans,” Colbert lamented on Tuesday.`\
-https://nytimes.com/2021/03/17/arts/television/stephen-colbert-republicans-vaccine.html?searchResultPosition=9
+**Living In ... Shelton, Conn.**\
+`The up-and-coming city in Fairfield County is part suburb, part gritty downtown, with more residential and commercial development in the works.`\
+https://nytimes.com/slideshow/2021/03/17/realestate/living-in-shelton-conn.html?searchResultPosition=9
 
-**Team New Zealand Beats Luna Rossa to Win America’s Cup**\
-`A syndicate representing the Royal New Zealand Yacht Squadron won sailing’s biggest prize for the second time in a row.`\
-https://nytimes.com/2021/03/17/sports/sailing/americas-cup-new-zealand-luna-rossa.html?searchResultPosition=10
+**Sarah Everard Death Set Off a Movement, but for Friends the Grief Is Personal**\
+`Her killing, allegedly at the hands of a police officer, has energized a national effort to combat pervasive violence against women in Britain. For those closest to her, though, the loss is profoundly intimate.`\
+https://nytimes.com/2021/03/17/world/europe/sarah-everard-london-clapham.html?searchResultPosition=10
 
