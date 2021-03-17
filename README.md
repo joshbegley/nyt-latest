@@ -11,7 +11,7 @@ https://nytimes.com/2021/03/17/realestate/thailand-house-hunting.html?searchResu
 https://nytimes.com/slideshow/2021/03/17/realestate/a-tropical-hideaway-nestled-in-the-trees.html?searchResultPosition=3
 
 **Atlanta-Area Shootings Target Massage Parlors, Killing 8**\
-`A string of shootings took place at massage parlors in the Atlanta area Tuesday evening, leaving eight people dead. Six victims were Asian, and two were white, according to officials, raising fears that the crimes may have targeted people of Asian descent.`\
+`A string of shootings took place at massage parlors in the Atlanta area Tuesday night, leaving eight people dead.`\
 https://nytimes.com/video/us/politics/100000007658855/atlanta-massage-parlor-shooting-asian-victims.html?searchResultPosition=4
 
 **$2.8 Million Homes in California, Connecticut and Washington**\
