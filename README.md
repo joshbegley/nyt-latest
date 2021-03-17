@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/17/arts/music/elliott-carter-ballets-boston-modern-o
 https://nytimes.com/2021/03/17/climate/climate-change-oceans.html?searchResultPosition=2
 
 **Proud Boys Leaders in Four States Are Charged in Capitol Riot**\
-`Prosecutors accused prominent members of the far-right nationalist group of conspiring together in connection with the Capitol Hill riots of Jan. 6.`\
+`Prosecutors accused prominent members of the far-right nationalist group of conspiring together in connection with the Jan. 6 attack.`\
 https://nytimes.com/2021/03/17/us/politics/proud-boys-charges-capitol-riot.html?searchResultPosition=3
 
 **Will Classroom Social Distancing Rules Change?**\
