@@ -1,40 +1,40 @@
+**Tornado Watch Warns South of ‘Particularly Dangerous’ Storms**\
+`The storms were expected to bring damaging winds over 100 miles per hour and large hail to parts of the South on Wednesday evening.`\
+https://nytimes.com/2021/03/17/us/tornado-south-weather.html?searchResultPosition=1
+
 **Sabine Schmitz, Racing Driver and TV Personality, Dies at 51**\
 `She was the only woman to win the epic 24-hour race at the storied Nürburgring track in Germany. She became a spirited presenter on the BBC show “Top Gear.”`\
-https://nytimes.com/2021/03/17/sports/autoracing/sabine-schmitz-obituary.html?searchResultPosition=1
+https://nytimes.com/2021/03/17/sports/autoracing/sabine-schmitz-obituary.html?searchResultPosition=2
 
 **The Amazon Unionization Vote: What You Need to Know**\
 `The unionization effort, which began last summer, is the largest and most viable organizing campaign among Amazon workers in the United States.`\
-https://nytimes.com/2021/03/17/technology/amazon-union-vote.html?searchResultPosition=2
+https://nytimes.com/2021/03/17/technology/amazon-union-vote.html?searchResultPosition=3
 
 **C.D.C. Addresses Virus Testing Inequality**\
 `On Wednesday, Dr. Rochelle Walensky, the director of the Centers for Disease Control and Prevention, announced a new initiative to address inequalities in testing, which she argued will be key to halting community transmission of the coronavirus.`\
-https://nytimes.com/video/us/politics/100000007659946/cdc-testing-inequality-walensky.html?searchResultPosition=3
+https://nytimes.com/video/us/politics/100000007659946/cdc-testing-inequality-walensky.html?searchResultPosition=4
 
 **What We Miss**\
 `Live music, bookstores, and more.`\
-https://nytimes.com/2021/03/17/at-home/newsletter.html?searchResultPosition=4
+https://nytimes.com/2021/03/17/at-home/newsletter.html?searchResultPosition=5
 
 **Deshaun Watson Accused of Sexual Assault in Civil Suit**\
 `A lawsuit filed late Tuesday accused the Houston Texans quarterback of misconduct during a massage in March 2020. He has denied the account.`\
-https://nytimes.com/2021/03/17/sports/football/deshaun-watson-accused-of-sexual-assault-in-civil-suit.html?searchResultPosition=5
+https://nytimes.com/2021/03/17/sports/football/deshaun-watson-accused-of-sexual-assault-in-civil-suit.html?searchResultPosition=6
 
 **A Powerful New Framing of America’s First Civil Rights Movement**\
 `Kate Masur’s “Until Justice Be Done” looks back at the fight for Black people’s freedom and equality, from the Revolutionary War to Reconstruction.`\
-https://nytimes.com/2021/03/17/books/review-until-justice-be-done-kate-masur.html?searchResultPosition=6
+https://nytimes.com/2021/03/17/books/review-until-justice-be-done-kate-masur.html?searchResultPosition=7
 
 **Two Jurors Dropped From Chauvin Trial**\
 `Two jurors were dismissed from the murder trial of the former officer Derek Chauvin, in the death of George Floyd, saying they could not be impartial after news of a $27 million settlement with Mr. Floyd’s family.`\
-https://nytimes.com/video/us/100000007659726/jurors-dismissed-chauvin-floyd-trial.html?searchResultPosition=7
+https://nytimes.com/video/us/100000007659726/jurors-dismissed-chauvin-floyd-trial.html?searchResultPosition=8
 
 **Vice President Harris Expresses Sympathy for Families of Victims**\
 `On Wednesday, Vice President Kamala Harris offered condolences to the families of the victims of the Atlanta killings, and condemned the surge in attacks against Asian-Americans.`\
-https://nytimes.com/video/us/politics/100000007659740/harris-atlanta-victims-asian-killings.html?searchResultPosition=8
+https://nytimes.com/video/us/politics/100000007659740/harris-atlanta-victims-asian-killings.html?searchResultPosition=9
 
 **Modernist Horse Sculptures Removed by City Housing Agency**\
 `Some art historians and the museum dedicated to the artist’s legacy say the Costantino Nivola artwork has been damaged. NYCHA says it will restore the works.`\
-https://nytimes.com/2021/03/17/arts/design/costantino-nivola-sculpture-nycha-removed.html?searchResultPosition=9
-
-**A Father’s Gift to a Mayoral Candidate: A $1 Million Super PAC**\
-`Super PACs for two candidates raised millions of dollars to help their chances in the New York City mayor’s race. One, for Shaun Donovan, was bankrolled by his father.`\
-https://nytimes.com/2021/03/17/nyregion/nyc-mayor-shaun-donovan.html?searchResultPosition=10
+https://nytimes.com/2021/03/17/arts/design/costantino-nivola-sculpture-nycha-removed.html?searchResultPosition=10
 
