@@ -23,6 +23,6 @@ https://nytimes.com/2021/03/16/world/covid-vaccine-trump.html?searchResultPositi
 https://nytimes.com/2021/03/16/sports/golf/tiger-woods-hospital.html?searchResultPosition=6
 
 **8 People Killed in Atlanta-Area Massage Parlor Shootings**\
-`Four people were killed in the Buckhead neighborhood hours after four were killed in the suburb of Acworth. It is not clear whether the shootings are connected.`\
+`Four people were killed in the Buckhead neighborhood hours after four were killed in the suburb of Acworth. A suspect was in custody.`\
 https://nytimes.com/2021/03/16/us/atlanta-shootings-massage-parlor.html?searchResultPosition=7
 
