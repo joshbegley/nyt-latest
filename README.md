@@ -36,5 +36,5 @@ https://nytimes.com/2021/03/17/world/europe/as-vaccinations-speed-along-in-serbi
 
 **Sarah Everard Death Set Off a Movement, but for Friends the Grief Is Personal**\
 `Her killing, allegedly at the hands of a police officer, has energized a national effort to combat pervasive violence against women in Britain. For those closest to her, though, the loss is profoundly intimate.`\
-https://nytimes.com/2021/03/17/world/europe/sarah-everard-london-clapham.html?searchResultPosition=10
+https://nytimes.com/2021/03/17/world/europe/sarah-everard-uk.html?searchResultPosition=10
 
