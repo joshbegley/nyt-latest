@@ -22,7 +22,7 @@ https://nytimes.com/2021/03/17/world/middleeast/israel-election-netanyahu.html?s
 `Mr. Biden said “the question of motivation is still to be determined” in the Georgia shootings, while renewing his concerns over a recent surge in violence against Asian-Americans.`\
 https://nytimes.com/2021/03/17/us/biden-atlanta-shootings.html?searchResultPosition=6
 
-**Walmart joins effort to let people vaccinated at its stores verify their status with mobile apps.**\
+**Walmart becomes largest U.S. vaccine provider to join push for digital vaccination credentials.**\
 `The retail giant joined an international push to provide standardized digital vaccination credentials.`\
 https://nytimes.com/2021/03/17/technology/walmart-vaccine-verification-app.html?searchResultPosition=7
 
