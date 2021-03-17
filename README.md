@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/17/us/tornado-south-weather.html?searchResultPositio
 `She was the only woman to win the epic 24-hour race at the storied Nürburgring track in Germany. She became a spirited presenter on the BBC show “Top Gear.”`\
 https://nytimes.com/2021/03/17/sports/autoracing/sabine-schmitz-obituary.html?searchResultPosition=2
 
-**The Amazon Unionization Vote: What You Need to Know**\
+**The Amazon Unionization Vote: What to Know**\
 `The unionization effort, which began last summer, is the largest and most viable organizing campaign among Amazon workers in the United States.`\
 https://nytimes.com/2021/03/17/technology/amazon-union-vote.html?searchResultPosition=3
 
