@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007660230/trump-asian-americans-georgia.html?searchResultPosition=1
 
 **Biden Administration Faces Legal Fight Over State Aid Restrictions on Tax Cuts**\
-`The litigation came amid growing pushback from Republican lawmakers and state officials. The Treasury Department said the provision was constitutional.`\
+`The litigation came amid growing pushback from Republican lawmakers and state officials to a provision in the relief package that the Treasury Department said was constitutional.`\
 https://nytimes.com/2021/03/17/us/politics/stimulus-states-lawsuit-tax-cuts.html?searchResultPosition=2
 
 **Satoko Fujii, a Pianist Who Finds Music Hidden in the Details of Life**\
