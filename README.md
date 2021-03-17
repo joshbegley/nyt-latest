@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/17/briefing/georgia-stimulus-payments-march-madness.html?searchResultPosition=1
 
 **Call Out Racial Violence ‘for Exactly What it Is,’ Congresswoman Says**\
-`Representative Marilyn Strickland of Washington said on Wednesday that people “must stop making excuses” for racial violence, a day after a white man killed eight people, including six Asian women, in Atlanta.`\
+`Representative Marilyn Strickland of Washington said on Wednesday that people “must stop making excuses” for racial violence, a day after a white man killed eight people, including six women of Asian descent, in Atlanta.`\
 https://nytimes.com/video/us/politics/100000007660108/strickland-racial-violence-atlanta-shooting.html?searchResultPosition=2
 
 **Psaki: Trump Administration Rhetoric Contributed to Anti-Asian Threats**\
