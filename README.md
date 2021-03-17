@@ -18,13 +18,13 @@ https://nytimes.com/2021/03/17/parenting/diaper-bank-coronavirus.html?searchResu
 `New generations of a critically endangered species of songbird are failing to learn the tunes they need for courtship. It could lead to extinction.`\
 https://nytimes.com/2021/03/17/science/bird-honeyeater-australia.html?searchResultPosition=5
 
-**The Fed must chart a new course as the economy strengthens.**\
-`The Federal Reserve is meeting as vaccines and a nearly $1.9 trillion recovery package raise expectations for growth, and analysts want to see how that changes policy forecasts.`\
-https://nytimes.com/2021/03/17/business/federal-reserve-meeting.html?searchResultPosition=6
-
 **Congress hears testimony again on GameStop, focusing on the financial plumbing behind the frenzy.**\
 `Prepared testimony suggests the witnesses will focus on what — if any — deficiencies in the American stock trading system were revealed by the surge of trading in GameStop.`\
-https://nytimes.com/2021/03/17/business/gamestop-hearing.html?searchResultPosition=7
+https://nytimes.com/2021/03/17/business/gamestop-hearing.html?searchResultPosition=6
+
+**The Fed must chart a new course as the economy strengthens.**\
+`The Federal Reserve is meeting as vaccines and a nearly $1.9 trillion recovery package raise expectations for growth, and analysts want to see how that changes policy forecasts.`\
+https://nytimes.com/2021/03/17/business/federal-reserve-meeting.html?searchResultPosition=7
 
 **Why Shop at a Specialty Nursery?**\
 `If you buy all your plants at a big-box store, you’re missing out on a wealth of botanical treasures you’ll never find anywhere else.`\
