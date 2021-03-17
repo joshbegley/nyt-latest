@@ -24,7 +24,7 @@ https://nytimes.com/2021/03/17/at-home/newsletter.html?searchResultPosition=6
 
 **Deshaun Watson Accused of Sexual Assault in Civil Suit**\
 `A lawsuit filed late Tuesday accused the Houston Texans quarterback of misconduct during a massage in March 2020. He has denied the account.`\
-https://nytimes.com/2021/03/17/sports/football/deshaun-watson-accused-of-sexual-assault-in-civil-suit.html?searchResultPosition=7
+https://nytimes.com/2021/03/17/sports/football/deshaun-watson-sexual-assault-lawsuit-allegations.html?searchResultPosition=7
 
 **A Powerful New Framing of America’s First Civil Rights Movement**\
 `Kate Masur’s “Until Justice Be Done” looks back at the fight for Black people’s freedom and equality, from the Revolutionary War to Reconstruction.`\
