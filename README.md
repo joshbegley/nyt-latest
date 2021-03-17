@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/17/sports/ncaabasketball/ncaa-tournament-frozen-repl
 https://nytimes.com/2021/03/17/world/asia/hong-kong-coronavirus-quarantine.html?searchResultPosition=4
 
 **Europe’s Plan to Save Summer: A Travel Certificate**\
-`The document would allow European residents to travel within the border-free Schengen area with proof of Covid-19 vaccination, a negative test result or evidence of recovery.`\
+`The document would allow European residents to travel across the bloc with proof of Covid-19 vaccination, a negative test result or evidence of recovery.`\
 https://nytimes.com/2021/03/17/world/europe/eu-covid-travel-certificate.html?searchResultPosition=5
 
 **Making a Movie About a Genocide That Some Still Deny**\
