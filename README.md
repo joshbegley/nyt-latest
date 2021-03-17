@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2021/03/17/upshot/partisan-segregation-maps.html
 `This year’s admissions essays became a platform for high school seniors to reflect on the pandemic, race and loss.`\
 https://nytimes.com/2021/03/17/us/covid-college-admissions.html?searchResultPosition=9
 
-**Our 21 Most Popular Recipes on Instagram**\
-`The most-viewed posts on our social media accounts tell the story of what our readers cooked this past year.`\
-https://nytimes.com/2021/03/17/dining/most-popular-recipes-instagram.html?searchResultPosition=10
+**How to Clean Up Steel? Bacteria, Hydrogen and a Lot of Cash.**\
+`With climate concerns growing, steel companies face an inevitable crunch. ArcelorMittal sees solutions, but the costs are likely to run into tens of billions of dollars in Europe alone.`\
+https://nytimes.com/2021/03/17/business/steel-emissions-arcelor-mittal.html?searchResultPosition=10
 
