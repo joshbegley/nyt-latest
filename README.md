@@ -2,7 +2,7 @@
 `This word has appeared in 105 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2021/03/17/learning/word-of-the-day-genial.html?searchResultPosition=1
 
-**Stephen Colbert Wonders if Republicans Would Take Vaccines From AR-15s**\
+**Stephen Colbert Mocks Republicans’ Suspicious Minds on Vaccines**\
 `“Despite vaccines becoming more available, there’s still one thing holding Americans back: Americans,” Colbert lamented on Tuesday.`\
 https://nytimes.com/2021/03/17/arts/television/stephen-colbert-republicans-vaccine.html?searchResultPosition=2
 
