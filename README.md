@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/17/nyregion/st-patricks-day-parade-coronavirus.html?searchResultPosition=1
 
 **She Was Just Walking Home**\
-`The killing of Sarah Everard, suspected to be at the hands of a police officer, has exposed the deadly truth of violence in Britain.`\
+`The killing of Sarah Everard has exposed the deadly truth of violence in Britain.`\
 https://nytimes.com/2021/03/17/opinion/sarah-everard-uk-police.html?searchResultPosition=2
 
 **‘This Is the Fire: What I Say to My Friends About Racism,’ by Don Lemon: An Excerpt**\
