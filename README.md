@@ -10,9 +10,9 @@ https://nytimes.com/2021/03/17/movies/quo-vadis-aida-jasmila-zbanic.html?searchR
 `Presentations include a star-studded reading of “The Thanksgiving Play,” musicals crossing the Atlantic and the Oregon Shakespeare Festival.`\
 https://nytimes.com/2021/03/17/theater/streaming-theater.html?searchResultPosition=3
 
-**Gasoline use has probably peaked, energy agency says.**\
+**Gasoline use has probably topped out as consumer habits shift.**\
 `Although gasoline consumption may have peaked, a report predicted that oil demand would probably increase in the coming five years.`\
-https://nytimes.com/2021/03/17/business/gasoline-use-has-probably-peaked-energy-agency-says.html?searchResultPosition=4
+https://nytimes.com/2021/03/17/business/gasoline-use-has-probably-topped-out-as-consumer-habits-shift.html?searchResultPosition=4
 
 **Advanced Cancers Are Emerging, Doctors Warn, Citing Pandemic Drop in Screenings**\
 `People have skipped their cancer screenings and ignored possible symptoms as a result of the pandemic. In some cases, the delay has come at a great cost.`\
