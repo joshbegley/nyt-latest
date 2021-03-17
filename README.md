@@ -22,17 +22,17 @@ https://nytimes.com/2021/03/17/business/steel-emissions-arcelor-mittal.html?sear
 `The up-and-coming city in Fairfield County is part suburb, part gritty downtown, with more residential and commercial development in the works.`\
 https://nytimes.com/2021/03/17/realestate/living-in-shelton-conn-more-space-lower-taxes.html?searchResultPosition=6
 
+**Living In ... Shelton, Conn.**\
+`The up-and-coming city in Fairfield County is part suburb, part gritty downtown, with more residential and commercial development in the works.`\
+https://nytimes.com/slideshow/2021/03/17/realestate/living-in-shelton-conn.html?searchResultPosition=7
+
 **Learning Apps Have Boomed in the Pandemic. Now Comes the Real Test.**\
 `Start-ups hope there’s no turning back for online learning, even as more students return to the classroom.`\
-https://nytimes.com/2021/03/17/technology/Zoom-school-remote-learning-apps.html?searchResultPosition=7
+https://nytimes.com/2021/03/17/technology/Zoom-school-remote-learning-apps.html?searchResultPosition=8
 
 **As Vaccinations Speed Along in Serbia, the Country Basks in the Glow of a Successful Campaign**\
 `The Balkan nation has Europe’s second-highest rate of inoculations after embracing vaccines from all suppliers, including Russian and Chinese.`\
-https://nytimes.com/2021/03/17/world/europe/as-vaccinations-speed-along-in-serbia-the-country-basks-in-the-glow-of-a-successful-campaign.html?searchResultPosition=8
-
-**Living In ... Shelton, Conn.**\
-`The up-and-coming city in Fairfield County is part suburb, part gritty downtown, with more residential and commercial development in the works.`\
-https://nytimes.com/slideshow/2021/03/17/realestate/living-in-shelton-conn.html?searchResultPosition=9
+https://nytimes.com/2021/03/17/world/europe/as-vaccinations-speed-along-in-serbia-the-country-basks-in-the-glow-of-a-successful-campaign.html?searchResultPosition=9
 
 **Sarah Everard Death Set Off a Movement, but for Friends the Grief Is Personal**\
 `Her killing, allegedly at the hands of a police officer, has energized a national effort to combat pervasive violence against women in Britain. For those closest to her, though, the loss is profoundly intimate.`\
