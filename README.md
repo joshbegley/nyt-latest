@@ -4,7 +4,7 @@ https://nytimes.com/2021/03/16/sports/basketball/jeremy-lin-asian-attacks-racism
 
 **‘I Had to Prove That I Exist’: Transgender Anchor Makes History in Bangladesh**\
 `Tashnuva Anan Shishir’s triumphant moment came after a long fight for equality that included harassment, bullying and suicide attempts.`\
-https://nytimes.com/2021/03/16/world/asia/bangladesh-transgender-tv-anchor.html?searchResultPosition=2
+https://nytimes.com/2021/03/17/world/asia/bangladesh-transgender-tv-anchor.html?searchResultPosition=2
 
 **Your Wednesday Briefing**\
 `Pushback on AstraZeneca vaccine doubts.`\
