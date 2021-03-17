@@ -1,5 +1,5 @@
 **James Levine’s Final Years: A Timeline**\
-`The conductor’s last years at the Metropolitan Opera included a comeback, health woes, and the sexual misconduct allegations that ended his career.`\
+`The conductor’s last years at the Metropolitan Opera included a comeback, health woes and the sexual misconduct allegations that ended his career.`\
 https://nytimes.com/2021/03/17/arts/music/james-levine-career.html?searchResultPosition=1
 
 **How Wide Open Is the Best-Picture Race?**\
