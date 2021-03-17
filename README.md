@@ -15,7 +15,7 @@ https://nytimes.com/2021/03/16/world/covid-vaccine-china-hamster-ovaries.html?se
 https://nytimes.com/2021/03/16/world/covid-vaccine-trump.html?searchResultPosition=4
 
 **Tiger Woods Has Gone Home From the Hospital**\
-`Woods was hospitalized three weeks ago in Los Angeles after a car crash that left him with severe injuries to his right leg.`\
+`Woods was hospitalized three weeks ago in Los Angeles after a car crash that left him with severe injuries to his right leg. Here is what we know.`\
 https://nytimes.com/2021/03/16/sports/golf/tiger-woods-hospital.html?searchResultPosition=5
 
 **8 People Killed in Atlanta-Area Massage Parlor Shootings**\
