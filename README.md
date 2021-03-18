@@ -14,7 +14,7 @@ https://nytimes.com/2021/03/18/us/politics/biden-domestic-violence.html?searchRe
 `A claim that the company illegally prohibits employees from discussing pay has been added to a lawsuit accusing it of paying women less than men. Disney has aggressively pushed back.`\
 https://nytimes.com/2021/03/18/business/media/disney-pay-discrimination-lawsuit.html?searchResultPosition=4
 
-**Asian-American Women Say Racism and Sexism Are Inseparable**\
+**How Racism and Sexism Intertwine to Torment Asian-American Women**\
 `Many viewed the shooting rampage in Atlanta that left eight people dead as the culmination of a racialized misogyny that they say has long been directed at them.`\
 https://nytimes.com/2021/03/18/us/racism-sexism-atlanta-spa-shooting.html?searchResultPosition=5
 
