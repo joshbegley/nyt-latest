@@ -1,4 +1,4 @@
-**Teen Vogue Editor Resigns Before Her First Day After Fury Over Racist Tweets**\
+**Teen Vogue Editor Resigns After Fury Over Racist Tweets**\
 `The hiring of Alexi McCammond, who was supposed to start at the Condé Nast publication next week, drew complaints because of racist and homophobic tweets she had posted a decade ago.`\
 https://nytimes.com/2021/03/18/business/media/teen-vogue-editor-alexi-mccammond.html?searchResultPosition=1
 
