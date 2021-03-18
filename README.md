@@ -1,6 +1,6 @@
 **Twelve Jurors Seated in Chauvin Case**\
 `The court has selected 12 jurors in the case of Derek Chauvin, the former police officer accused of murder in the death of George Floyd. Opening statements are scheduled for March 29.`\
-https://nytimes.com/2021/03/18/us/chauvin-trial-jury.html?searchResultPosition=1
+https://nytimes.com/2021/03/18/us/Chauvin-jury-selection-George-Floyd.html?searchResultPosition=1
 
 **College Athletes Seek to Use March Stage to Pressure N.C.A.A.**\
 `The #NotNCAAProperty movement is the latest iteration of long-held criticisms of how benefits for athletes have not kept up with the profits in college sports.`\
