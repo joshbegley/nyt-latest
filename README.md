@@ -7,11 +7,11 @@ https://nytimes.com/video/world/europe/100000007662226/france-coronavirus-lockdo
 https://nytimes.com/2021/03/18/us/asian-bias-atlanta-shooting.html?searchResultPosition=2
 
 **New York Man Kept Sharks in Pool in His Basement**\
-`Investigators found seven sandbar sharks an aboveground pool in a house in Dutchess County, the authorities said. The case spotlighted an underground market for exotic and protected fish.`\
+`Investigators found seven sandbar sharks in an aboveground pool in a house in Dutchess County, the authorities said. The case spotlighted an underground market for exotic and protected fish.`\
 https://nytimes.com/2021/03/18/nyregion/joshua-seguine-sandbar-sharks-pool.html?searchResultPosition=3
 
 **I.R.S. urges taxpayers not to amend already-filed returns to take new tax break.**\
-`By Alan Rappeport`\
+`The Internal Revenue Service will automatically send refunds to early-filing taxpayers who qualify for the new break on unemployment income, the agency’s commissioner said Thursday.`\
 https://nytimes.com/2021/03/18/business/irs-unemployment-tax-credit-amend-return.html?searchResultPosition=4
 
 **Biden’s Policies on Domestic Violence**\
