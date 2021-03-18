@@ -18,8 +18,8 @@ https://nytimes.com/2021/03/18/us/congress-hearing-asian-american-discrimination
 `Readers view “white male rage,” a “country awash in guns” and Asian women trafficked as sex workers as factors in the rampage.`\
 https://nytimes.com/2021/03/18/opinion/letters/georgia-spa-shootings-asians.html?searchResultPosition=6
 
-**Europe’s Drug Regulator Says AstraZeneca Vaccine Is Safe, but Adds a Warning Label**\
-`Millions of people have received the shot without safety problems. The European Medicines Agency found it did not increase blood clots, but warned doctors to watch for possible rare abnormal bleeding.`\
+**Europe’s Drug Regulator Says AstraZeneca Vaccine Is Safe**\
+`The European Medicines Agency will add a label to the shot, warning doctors to watch for possible rare, abnormal bleeding in the brain. But it found that the vaccine does not increase blood clots.`\
 https://nytimes.com/2021/03/18/world/europe/astrazeneca-vaccine-europe.html?searchResultPosition=7
 
 **Cologne Catholic Church Failed in Handling Sex Abuse Claims, Report Finds**\
