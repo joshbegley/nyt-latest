@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/18/nyregion/mayor-women-cuomo-nyc.html?searchResultP
 https://nytimes.com/2021/03/18/business/model-trains-pandemic.html?searchResultPosition=2
 
 **France Is Ready to Save the Planet. But Not at the Expense of Meat.**\
-`The Green Party mayor of Lyon, a gastronomic capital, introduced no-meat menus in schools. Let the anguish begin.`\
+`The Green party mayor of Lyon, a gastronomic capital, introduced no-meat menus in schools. Let the anguish begin.`\
 https://nytimes.com/2021/03/18/world/europe/france-lyon-school-meat.html?searchResultPosition=3
 
 **Asian-Americans Are Being Attacked. Why Are Hate Crime Charges So Rare?**\
