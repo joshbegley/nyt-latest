@@ -12,7 +12,7 @@ https://nytimes.com/2021/03/18/technology/china-linkedin-censorship.html?searchR
 
 **What we know so far about the victims of the shooting spree.**\
 `Six of the eight people killed at Atlanta-area spas on Tuesday were women of Asian descent.`\
-https://nytimes.com/2021/03/18/us/what-we-know-so-far-about-the-victims-of-the-shooting-spree.html?searchResultPosition=4
+https://nytimes.com/2021/03/18/us/atlanta-shooting-victims.html?searchResultPosition=4
 
 **Twyla Tharp and Her Body of Perpetual Motion**\
 `“American Masters: Twyla Moves,” a new PBS documentary, is also a portrait of a singular dancer over time.`\
