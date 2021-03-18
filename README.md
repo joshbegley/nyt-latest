@@ -1,36 +1,40 @@
-**Unemployment claims remain a distress signal, even as recovery takes hold.**\
-`Data from the Labor Department is expected to show that more than 700,000 people filed first-time applications for state unemployment benefits last week.`\
-https://nytimes.com/2021/03/18/business/unemployment-claims.html?searchResultPosition=1
+**‘Guru, Genius, Gentleman, Scout’**\
+`Tom Konchalski, who died last month, influenced college basketball recruiting for more than four decades.`\
+https://nytimes.com/2021/03/18/sports/ncaabasketball/basketball-tom-konchalski-ncaa.html?searchResultPosition=1
 
-**Covid’s Partisan Errors**\
-`Republicans tend to underestimate Covid risks — and Democrats tend to exaggerate them.`\
-https://nytimes.com/2021/03/18/briefing/atlanta-shootings-kamala-harris-tax-deadline-2021.html?searchResultPosition=2
+**‘Wojnarowicz’ Review: A Revolutionary Provocateur**\
+`A documentary on the artist David Wojnarowicz shows the ways that the rebel was a prophet, and honors him appropriately.`\
+https://nytimes.com/2021/03/18/movies/wojnarowicz-review.html?searchResultPosition=2
 
-**Canadians to Stand Trial in China for Spying: What We Know**\
-`Secrecy and politics will likely hang over the cases involving two Canadian men, who have been held largely in isolation for more than two years.`\
-https://nytimes.com/2021/03/18/world/asia/canadians-trial-spying-china.html?searchResultPosition=4
+**‘Before the Dying of the Light’ Review: Moroccan Cinema’s Attempted Revolution**\
+`This Ali Essafi documentary presents an inspiring view of the roiling visual-arts scene in 1970s Morocco.`\
+https://nytimes.com/2021/03/18/movies/before-the-dying-of-the-light-review.html?searchResultPosition=3
 
-**Carmakers Strive to Stay Ahead of Hackers**\
-`The effects of a breach of a car, or fleet, could be devastating. Auto manufacturers and suppliers have aggressive plans, and a lot of firewalls.`\
-https://nytimes.com/2021/03/18/business/hacking-cars-cybersecurity.html?searchResultPosition=5
+**For Kim Ng, Getting the Job Wasn’t the Point. ‘I’ve Got to Do It Well.’**\
+`The Marlins G.M.’s hiring was a breakthrough, but her focus has been building a bullpen and competing against richer teams.`\
+https://nytimes.com/2021/03/18/sports/baseball/kim-ng-marlins.html?searchResultPosition=4
 
-**A Murderous Rampage in Georgia**\
-`A shooting at three spas in the Atlanta area left eight people dead, including six women of Asian descent. Many Asian-Americans fear it’s part of an upsurge of racist violence that the legal system has struggled to recognize.`\
-https://nytimes.com/2021/03/18/podcasts/the-daily/asian-american-hate-crime-atlanta-shooting.html?searchResultPosition=6
+**‘Luz’ Review: Love In and Out of Lockup**\
+`In this romantic drama from Jon Garcia, two men find love in prison, then try to make it work on the outside.`\
+https://nytimes.com/2021/03/18/movies/luz-review.html?searchResultPosition=5
 
-**A Woman Leading N.Y.C.? This Could Be the Year.**\
-`Female candidates in the mayoral primary argue that the governor's sexual harassment scandal makes the case for why they should be elected.`\
-https://nytimes.com/2021/03/18/nyregion/mayor-women-cuomo-nyc.html?searchResultPosition=7
+**‘Happily’ Review: Does Long-Lived Love Mean You Need Treatment?**\
+`In this keeps-you-guessing comedy, Joel McHale and Kelly Bishé play a couple married for 14 years whose mutual passion is undimmed, to the annoyance of their friends.`\
+https://nytimes.com/2021/03/18/movies/happily-review-does-long-lived-love-mean-you-need-treatment.html?searchResultPosition=6
 
-**‘A Perfect World’ Around Every Miniature Bend**\
-`The pandemic has helped Märklin, a 162-year-old company that makes model trains, discover a new audience.`\
-https://nytimes.com/2021/03/18/business/model-trains-pandemic.html?searchResultPosition=8
+**‘The Courier’ Review: Secrets and Spies**\
+`Benedict Cumberbatch plays a salesman-turned-secret agent in this stuffy Cold War drama.`\
+https://nytimes.com/2021/03/18/movies/the-courier-review.html?searchResultPosition=7
 
-**France Is Ready to Save the Planet. But Not at the Expense of Meat.**\
-`The Green party mayor of Lyon, a gastronomic capital, introduced no-meat menus in schools. Let the anguish begin.`\
-https://nytimes.com/2021/03/18/world/europe/france-lyon-school-meat.html?searchResultPosition=9
+**‘Rose Plays Julie’ Review: An Eerie Thriller With Mirrored Traumas**\
+`Sexual violence and adoption bracket the life of a young woman seeking a family connection and finding a #MeToo legacy instead.`\
+https://nytimes.com/2021/03/18/movies/rose-plays-julie-review.html?searchResultPosition=8
 
-**Asian-Americans Are Being Attacked. Why Are Hate Crime Charges So Rare?**\
-`Several recent attacks have not been charged as hate crimes, fueling protests and outrage among many Asian-Americans.`\
-https://nytimes.com/2021/03/18/nyregion/asian-hate-crimes.html?searchResultPosition=10
+**‘City of Lies’ Review: Dirty Cops and a Dangerous Conspiracy**\
+`Johnny Depp and Forest Whitaker head up this artless procedural about the murders of two rap artists.`\
+https://nytimes.com/2021/03/18/movies/city-of-lies-review.html?searchResultPosition=9
+
+**‘The Fever’ Review: Tropical Maladies**\
+`Maya Da-Rin’s extraordinary film details the intimate life of an Indigenous family in the Brazilian city of Manaus.`\
+https://nytimes.com/2021/03/18/movies/the-fever-review.html?searchResultPosition=10
 
