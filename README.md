@@ -1,40 +1,40 @@
-**Tokyo Olympics Official Resigns After Calling Plus-Size Celebrity ‘Olympig’**\
-`The departure came just a month after the president of the Tokyo organizing committee stepped down over a sexist remark.`\
-https://nytimes.com/2021/03/18/world/asia/tokyo-olympics-resigns-naomi-watanabe.html?searchResultPosition=1
+**‘A Perfect World’ Around Every Miniature Bend**\
+`The pandemic has helped Märklin, a 162-year-old company that makes model trains, discover a new audience.`\
+https://nytimes.com/2021/03/18/business/model-trains-pandemic.html?searchResultPosition=1
 
-**What Happens When Our Faces Are Tracked Everywhere We Go?**\
-`When a secretive start-up scraped the internet to build a facial-recognition tool, it tested a legal and ethical limit — and blew the future of privacy in America wide open.`\
-https://nytimes.com/interactive/2021/03/18/magazine/facial-recognition-clearview-ai.html?searchResultPosition=2
+**France Is Ready to Save the Planet. But Not at the Expense of Meat.**\
+`The Green party mayor of Lyon, a gastronomic capital, introduces no-meat menus in schools. Let the anguish begin.`\
+https://nytimes.com/2021/03/18/world/europe/france-lyon-school-meat.html?searchResultPosition=2
 
-**Lesson of the Day: ‘On Mexico’s Border With U.S., Desperation as Migrant Traffic Piles Up’**\
-`In this lesson, students will learn about the Biden administration’s attempt to find space for a rising number of young migrants entering the United States. Then, they will reflect on what the situation means to them and what action, if any, they would take.`\
-https://nytimes.com/2021/03/18/learning/lesson-of-the-day-on-mexicos-border-with-us-desperation-as-migrant-traffic-piles-up.html?searchResultPosition=3
+**Asian-Americans Are Being Attacked. Why Are Hate Crime Charges So Rare?**\
+`Several recent attacks have not been charged as hate crimes, fueling protests and outrage among many Asian-Americans.`\
+https://nytimes.com/2021/03/18/nyregion/asian-hate-crimes.html?searchResultPosition=3
 
-**Will Cuomo’s Scandals Pave the Way for N.Y.C.’s First Female Mayor?**\
-`The women running for mayor have sharply criticized the governor as sexual harassment allegations pile up against him, and say they offer a different style of leadership.`\
-https://nytimes.com/2021/03/18/nyregion/nyc-mayor-women-cuomo.html?searchResultPosition=4
+**Senate Leader Stalls Climate Overhaul of Flood Insurance Program**\
+`Senator Chuck Schumer is objecting to a plan that would raise costs for some of his constituents by bringing flood insurance rates in line with climate risks.`\
+https://nytimes.com/2021/03/18/climate/chuck-schumer-fema-flood-insurance.html?searchResultPosition=4
 
-**Rolling Dice**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2021/03/18/learning/rolling-dice.html?searchResultPosition=5
+**How Two Lonely Generations Are Helping Each Other Heal**\
+`Young adults and the elderly were especially isolated in the pandemic. There are efforts underway to help connect them.`\
+https://nytimes.com/2021/03/18/well/family/lonely-generations-young-adults-seniors.html?searchResultPosition=5
 
-**North Korean Threat Forces Biden Into Balancing Act With China**\
-`Washington’s recent attempts to communicate with Pyongyang were rebuffed, leaving American officials to appeal to countries in the region to help pressure North Korea.`\
-https://nytimes.com/2021/03/18/world/asia/biden-north-korea-china.html?searchResultPosition=6
+**If You Look at Your Phone While Walking, You’re an Agent of Chaos**\
+`An experiment by Japanese researchers revealed how just a few distracted walkers really can throw off the movements of a whole crowd.`\
+https://nytimes.com/2021/03/18/science/distracted-walking-phone.html?searchResultPosition=6
 
-**‘Yellow’ Is a Play That Looks Great on Film. What Will It Be Like Onstage?**\
-`Theaters have been closed in Belgium since October. An on-camera production was born out of necessity, but its look at Nazi history offers a fascinating blend of theater and cinematography.`\
-https://nytimes.com/2021/03/18/theater/yellow-sorrows-of-belgium.html?searchResultPosition=7
+**Help! Will All My Travel Vouchers Expire Before I Can Use Them?**\
+`Vouchers and trip credits emerged as a major consumer flash point at the start of the pandemic. Here’s a look at what some major travel companies are offering in the way of flexibility.`\
+https://nytimes.com/2021/03/18/travel/virus-travel-vouchers-credits.html?searchResultPosition=7
 
-**Late Night Gets Serious About the Georgia Shootings**\
-`“Your murder speaks louder than your words,” Trevor Noah said of the man accused of killing eight people, most of them women of Asian descent.`\
-https://nytimes.com/2021/03/18/arts/television/late-night-trevor-noah-atlanta-shootings.html?searchResultPosition=8
+**Still Stuck at Home? It Might Be Time to Work on That Novel.**\
+`Online writing groups have thrived during the pandemic, with membership fueled by more time at home and fewer to no social obligations.`\
+https://nytimes.com/2021/03/18/books/coronavirus-pandemic-writing-groups.html?searchResultPosition=8
 
-**Word of the Day: nuance**\
-`This word has appeared in 207 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/03/18/learning/word-of-the-day-nuance.html?searchResultPosition=9
+**Rising to the Challenge of China**\
+`To counter Beijing’s growing economic and military might, the United States must get its own house in order.`\
+https://nytimes.com/2021/03/18/opinion/biden-china.html?searchResultPosition=9
 
-**Napoleon Isn’t a Hero to Celebrate**\
-`Institutions in France should pay more attention to their country’s history of slavery instead of honoring an icon of white supremacy.`\
-https://nytimes.com/2021/03/18/opinion/france-year-of-napoleon.html?searchResultPosition=10
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/03/18/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=10
 
