@@ -1,40 +1,40 @@
+**Tired of Filling Out March Madness Brackets? Try This Prediction Challenge Instead**\
+`No brackets necessary! To compete in our N.C.A.A. tournament challenge, you only need to answer a few simple questions.`\
+https://nytimes.com/interactive/2021/03/17/sports/ncaabasketball/march-madness-bracket-predictions.html?searchResultPosition=1
+
 **The Growing Power of Asian-Americans in Georgia Now Comes With Fear**\
 `The killing of eight people in Atlanta and suburban Cherokee County has come amid a rising tide of anti-Asian incidents nationwide.`\
-https://nytimes.com/2021/03/17/us/georgia-asian-population.html?searchResultPosition=1
+https://nytimes.com/2021/03/17/us/georgia-asian-population.html?searchResultPosition=2
 
 **As Biden and Xi Begin a Careful Dance, a New American Policy Takes Shape**\
 `Top administration officials will meet with their Chinese counterparts for the first time on Thursday as the United States shifts to a more competitive posture with Beijing.`\
-https://nytimes.com/2021/03/17/us/politics/us-china-relations.html?searchResultPosition=2
+https://nytimes.com/2021/03/17/us/politics/us-china-relations.html?searchResultPosition=3
 
 **Times Readers Reflect on the Atlanta Spa Shootings**\
 `In hundreds of comments following the shooting deaths of eight people in the Atlanta-area, six of whom were of Asian descent, New York Times readers shared their fears and concerns.`\
-https://nytimes.com/interactive/2021/03/17/us/atlanta-commenters.html?searchResultPosition=3
+https://nytimes.com/interactive/2021/03/17/us/atlanta-commenters.html?searchResultPosition=4
 
 **Coronavirus Reinfections Are Rare, Danish Researchers Report**\
 `People over 65 are more likely to experience a second bout with the virus, according to a large study of medical records.`\
-https://nytimes.com/2021/03/17/health/coronavirus-reinfections.html?searchResultPosition=4
+https://nytimes.com/2021/03/17/health/coronavirus-reinfections.html?searchResultPosition=5
 
 **White House to Spend Billions to Increase Virus Testing and Ease Reopening**\
 `As coronavirus infection rates decline, fewer are getting tested for the virus. The Biden administration wants to reverse that to ensure that schools and workplaces can reopen safely.`\
-https://nytimes.com/2021/03/17/us/politics/coronavirus-testing-schools.html?searchResultPosition=5
+https://nytimes.com/2021/03/17/us/politics/coronavirus-testing-schools.html?searchResultPosition=6
 
 **Poverty as a Proxy for Race in Voter Suppression**\
 `Because Black people vote overwhelmingly for Democrats, Republicans don’t want as many Black people to vote.`\
-https://nytimes.com/2021/03/17/opinion/republican-voter-suppression.html?searchResultPosition=6
+https://nytimes.com/2021/03/17/opinion/republican-voter-suppression.html?searchResultPosition=7
 
 **The Intelligence on Russia Was Clear. It Was Not Always Presented That Way.**\
 `A newly declassified intelligence report made clear that government agencies long knew of Russia’s work to aid Donald Trump, but he and allies muddied the waters.`\
-https://nytimes.com/2021/03/17/us/politics/russia-elections-trump-intelligence.html?searchResultPosition=7
+https://nytimes.com/2021/03/17/us/politics/russia-elections-trump-intelligence.html?searchResultPosition=8
 
 **Coronavirus Briefing: What Happened Today**\
 `Some sufferers of long Covid reported improvement after receiving the vaccine.`\
-https://nytimes.com/2021/03/17/us/coronavirus-today.html?searchResultPosition=8
+https://nytimes.com/2021/03/17/us/coronavirus-today.html?searchResultPosition=9
 
 **Women of Asian Descent Were 6 of the 8 Victims in Atlanta Shootings**\
 `One man who was seriously injured called his wife before collapsing: ‘I’ve been shot! Please come.’`\
-https://nytimes.com/2021/03/17/us/asian-women-victims-atlanta-shootings.html?searchResultPosition=9
-
-**Many Iowans Are Uncomfortable With a New Voting Restriction, Poll Finds**\
-`A new survey by one of the country’s top pollsters hinted at discomfort among voters in the state about new balloting restrictions.`\
-https://nytimes.com/2021/03/17/us/politics/iowa-voting-rights.html?searchResultPosition=10
+https://nytimes.com/2021/03/17/us/asian-women-victims-atlanta-shootings.html?searchResultPosition=10
 
