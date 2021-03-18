@@ -34,7 +34,7 @@ https://nytimes.com/2021/03/18/us/asian-hate-crimes-ca.html?searchResultPosition
 `After the Rangers’ entire coaching staff was sidelined by the N.H.L.’s virus protocols, they called up replacements for behind the bench and then rained goals on Philadelphia.`\
 https://nytimes.com/2021/03/18/sports/hockey/zibanejad-rangers-coaches-virus.html?searchResultPosition=9
 
-**What We Learned About Clearview AI and Its Secret ‘Co-founder’**\
+**What We Learned About Clearview AI and Its Secret ‘Co-Founder’**\
 `Charles Johnson, a notorious conservative provocateur, played a pivotal role at the start of the facial recognition company.`\
 https://nytimes.com/2021/03/18/technology/clearview-facial-recognition-ai.html?searchResultPosition=10
 
