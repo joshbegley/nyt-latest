@@ -28,7 +28,7 @@ https://nytimes.com/2021/03/18/nyregion/cuomo-black-leaders.html?searchResultPos
 
 **Liberals Grow Impatient With Biden’s Foreign Policy Decisions**\
 `A recent endorsement of his Iran policy from Jared Kushner inflamed frustrations among Democratic allies calling for bolder action abroad.`\
-https://nytimes.com/2021/03/18/us/politics/liberals-biden-foreign-policy.html?searchResultPosition=8
+https://nytimes.com/2021/03/18/us/politics/biden-foreign-policy-decisions-liberal-reaction.html?searchResultPosition=8
 
 **What Students Are Saying About Guaranteed Income, Team Sports in a Pandemic and the Return of Live Events**\
 `Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
