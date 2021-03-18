@@ -12,7 +12,7 @@ https://nytimes.com/video/us/politics/100000007662227/psaki-mexico-border-crisis
 
 **Yankees and Mets Get Word They Can Put Fans in the Stands**\
 `Both teams will be permitted to operate their stadiums at 20 percent of capacity, expanding New York’s reintroduction of spectators at sports events.`\
-https://nytimes.com/2021/03/18/sports/baseball/yankees-mets-fans.html?searchResultPosition=4
+https://nytimes.com/2021/03/18/sports/baseball/yankees-mets-stadium-open-fans.html?searchResultPosition=4
 
 **Our Fourth Annual Student Podcast Contest**\
 `We invite middle and high schoolers to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 8 to May 18.`\
