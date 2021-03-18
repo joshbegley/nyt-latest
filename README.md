@@ -32,9 +32,9 @@ https://nytimes.com/2021/03/18/us/racism-sexism-atlanta-spa-shooting.html?search
 
 **Tabloid Used Improperly Obtained Leads on Meghan Markle, Investigator Says**\
 `The private investigator says the British tabloid The Sun paid him $2,055 in 2016 for private information about the couple, their family and friends that had been taken from a restricted database.`\
-https://nytimes.com/2021/03/18/world/europe/meghan-harry-sun.html?searchResultPosition=9
+https://nytimes.com/2021/03/18/world/europe/the-sun-meghan-markle-harry.html?searchResultPosition=9
 
-**William J. Burns is confirmed as C.I.A. director.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2021/03/18/us/biden-news-today/william-j-burns-is-confirmed-as-cia-director?searchResultPosition=10
+**Senate Approves Burns to Lead C.I.A.**\
+`William J. Burns, a veteran diplomat, has vowed to rebuild morale at the C.I.A. after it deteriorated during the Trump administration and to intensify its spying on China.`\
+https://nytimes.com/2021/03/18/us/politics/william-burns-cia-senate-confirmation.html?searchResultPosition=10
 
