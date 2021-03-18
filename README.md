@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/18/science/sls-engine-test-nasa.html?searchResultPosition=1
 
 **Joe Biden and Kamala Harris plan to visit with Asian-American leaders in Atlanta.**\
-`By Jim Tankersley and Marie Fazio`\
+`The president and vice president had already been scheduled to visit the city to promote the new economic relief package that Mr. Biden signed last week.`\
 https://nytimes.com/2021/03/18/us/biden-harris-atlanta.html?searchResultPosition=2
 
 **What’s Going On in This Graph? | March 24, 2021**\
