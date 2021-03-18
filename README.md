@@ -1,5 +1,5 @@
-**Zibanejad Scores Hat Trick as Rangers Win Without Their Coaches**\
-`After the Rangers’ entire coaching staff was sidelined by the N.H.L.’s virus protocols, they called up replacements and rained goals on the Flyers.`\
+**Rangers Totals Against the Flyers: 9 Goals, 0 Coaches**\
+`After the Rangers’ entire coaching staff was sidelined by the N.H.L.’s virus protocols, they called up replacements for behind the bench and then rained goals on Philadelphia.`\
 https://nytimes.com/2021/03/18/sports/hockey/zibanejad-rangers-coaches-virus.html?searchResultPosition=1
 
 **What We Learned About Clearview AI and Its Secret ‘Co-founder’**\
