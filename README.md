@@ -2,8 +2,8 @@
 `Legend Smalls was shot in the head by an officer on March 3 as the police were trying to stop an armed man wanted in several robberies, officials said.`\
 https://nytimes.com/2021/03/18/us/houston-police-shooting-legend-smalls.html?searchResultPosition=1
 
-**U.S. on Track for 100 Million Vaccinations by Friday Biden Says**\
-`President Biden announced that by Friday the United States would reach his goal of administering 100 million Covid-19 vaccine doses “way ahead of schedule.”`\
+**Biden: U.S. on Track for 100 Million Vaccinations Since Jan. 20**\
+`President Biden said Thursday the U.S. would on Friday reach his Covid-19 vaccine goal of 100 million shots in 100 days, though he had earlier conceded they should aim higher.`\
 https://nytimes.com/video/us/politics/100000007662340/biden-100-million-vaccinations.html?searchResultPosition=2
 
 **Carola Eisenberg Dies at 103; Helped Start Physicians for Human Rights**\
