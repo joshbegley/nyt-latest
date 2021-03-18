@@ -1,4 +1,4 @@
-**U.S. on Track for 100 million Vaccinations by Friday Biden Says**\
+**U.S. on Track for 100 Million Vaccinations by Friday Biden Says**\
 `President Biden announced that by Friday the United States would reach his goal of administering 100 million Covid-19 vaccine doses “way ahead of schedule.”`\
 https://nytimes.com/video/us/politics/100000007662340/biden-100-million-vaccinations.html?searchResultPosition=1
 
@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/18/learning/film-club-love-factory.html?searchResult
 https://nytimes.com/2021/03/18/briefing/us-china-talks-astrazeneca-vaccine.html?searchResultPosition=5
 
 **Police Say Atlanta Shooting Suspect Frequented 2 Spas He Targeted**\
-`The Atlanta Police said on Thursday that Robert Aaron Long, charged with killing eight people at Atlanta-area massage parlors, including six women of Asian descent, had been a customer of at least two of the spas.`\
+`The Atlanta Police said on Thursday that Robert Aaron Long, charged with killing eight people at Atlanta-area spas, including six women of Asian descent, had been a customer of at least two of the three businesses.`\
 https://nytimes.com/video/us/100000007662248/atlanta-spa-shooting-update.html?searchResultPosition=6
 
 **With Biden Endorsement, Push to Weaken Filibuster Gains Traction**\
