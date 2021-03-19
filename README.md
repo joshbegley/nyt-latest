@@ -1,40 +1,40 @@
+**Suspect’s Church Calls Spa Attacks ‘the Result of a Sinful Heart’**\
+`Atlanta police records showed that, between 2011 and 2014, at least 11 people had been charged with prostitution-related offenses at one of the businesses where three women were killed.`\
+https://nytimes.com/2021/03/19/us/robert-aaron-long-church-atlanta.html?searchResultPosition=1
+
 **The U.S. Parts With Some of a Vaccine Stockpile It Currently Can’t Use**\
 `The Biden administration said it would send Canada 1.5 million doses of the AstraZeneca vaccine from an inventory measured in tens of millions.`\
-https://nytimes.com/2021/03/19/world/canada/canada-vaccine-stockpile-united-states.html?searchResultPosition=1
+https://nytimes.com/2021/03/19/world/canada/canada-vaccine-stockpile-united-states.html?searchResultPosition=2
 
 **A former Green Beret used a flagpole to attack an officer in the Capitol riot, authorities say.**\
 `Jeffrey McKellop is the first known Capitol rioter to have served in the elite Special Operations division of the military.`\
-https://nytimes.com/2021/03/19/us/jeffrey-mckellop-green-beret-capitol-riot.html?searchResultPosition=2
+https://nytimes.com/2021/03/19/us/jeffrey-mckellop-green-beret-capitol-riot.html?searchResultPosition=3
 
 **Coronavirus Briefing: What Happened Today**\
 `More states said they will open vaccine appointments for the public in March or April.`\
-https://nytimes.com/2021/03/19/us/coronavirus-today.html?searchResultPosition=3
+https://nytimes.com/2021/03/19/us/coronavirus-today.html?searchResultPosition=4
 
 **Tales of Racism and Sexism, From 3 Leading Asian-American Women**\
 `Tina Tchen, Min Jin Lee, and Sung Yeon Choimorrow discuss the ‘unique way that Asian-American women experience sexual harassment.’`\
-https://nytimes.com/2021/03/19/us/racism-sexism-asian-american-women.html?searchResultPosition=4
+https://nytimes.com/2021/03/19/us/racism-sexism-asian-american-women.html?searchResultPosition=5
 
 **It’s My Idea. She’s Taking Credit.**\
 `What to do about copycats on Zoom calls, a rival’s resentment and managing an intern.`\
-https://nytimes.com/2021/03/19/business/roxane-gay-work-friend-managing-interns.html?searchResultPosition=5
+https://nytimes.com/2021/03/19/business/roxane-gay-work-friend-managing-interns.html?searchResultPosition=6
 
 **Andrew Cuomo, Tigray, March Madness: Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/03/19/briefing/andrew-cuomo-tigray-march-madness.html?searchResultPosition=6
+https://nytimes.com/2021/03/19/briefing/andrew-cuomo-tigray-march-madness.html?searchResultPosition=7
 
 **George Bass, Archaeologist of the Ocean Floor, Dies at 88**\
 `He was called the father of underwater archaeology, finding treasures in shipwrecks around the world that illuminated ancient history.`\
-https://nytimes.com/2021/03/19/us/george-bass-dead.html?searchResultPosition=7
+https://nytimes.com/2021/03/19/us/george-bass-dead.html?searchResultPosition=8
 
 **Kenneth Cooper, Harpsichordist With Improviser’s Gift, Dies at 79**\
 `He excelled in the Baroque repertoire, but this interests were eclectic. He was also an accomplished musicologist.`\
-https://nytimes.com/2021/03/19/arts/music/kenneth-cooper-dead.html?searchResultPosition=8
+https://nytimes.com/2021/03/19/arts/music/kenneth-cooper-dead.html?searchResultPosition=9
 
 **Justin Bieber, Still Seeking a Sound**\
 `His sixth album, “Justice,” tries out several production styles, but never nails a mood.`\
-https://nytimes.com/2021/03/19/arts/music/justin-bieber-justice-review.html?searchResultPosition=9
-
-**Reed Disputes Groping Allegation, Calling Woman’s Account ‘Not Accurate’**\
-`The congressman from New York, who has been eyeing a run against Gov. Andrew Cuomo, did not specify what parts of the account of his actions in a bar in 2017 were inaccurate.`\
-https://nytimes.com/2021/03/19/us/politics/tom-reed-groping-allegation.html?searchResultPosition=10
+https://nytimes.com/2021/03/19/arts/music/justin-bieber-justice-review.html?searchResultPosition=10
 
