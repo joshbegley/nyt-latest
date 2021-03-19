@@ -2,7 +2,7 @@
 `When 149 migrants were escorted onto a bridge by U.S. Border Patrol agents, they had no idea where they were being taken. Many collapsed, crying, when they learned they were back in Mexico.`\
 https://nytimes.com/2021/03/19/world/americas/mexico-border-deportations.html?searchResultPosition=1
 
-**Five Will Exit White House Over Past Drug Use, Calling New Guidelines Into Question**\
+**Five Who Used Marijuana in Past Will Exit White House, Calling New Guidelines Into Question**\
 `The episode highlighted how murky new guidelines toward past use are, particularly for a White House that has pledged to embrace progressive positions.`\
 https://nytimes.com/2021/03/19/us/politics/biden-white-house-marijuana.html?searchResultPosition=2
 
