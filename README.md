@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/19/opinion/NFTs-beeple-crypto.html?searchResultPosit
 https://nytimes.com/2021/03/19/obituaries/dennis-mileti-dead-coronavirus.html?searchResultPosition=5
 
 **A DeVos System Allowed 12 Minutes to Decide Student Loan Forgiveness**\
-`Education Dept. documents filed in federal court describe a process that denied 130,000 claims from borrowers who say they were misled by their schools.`\
+`Education Dept. documents filed in federal court describe a process that denied 130,000 claims from borrowers who say schools misled them.`\
 https://nytimes.com/2021/03/19/business/student-loan-forgiveness-betsy-devos.html?searchResultPosition=6
 
 **White House Easter Egg Roll is canceled again because of the pandemic.**\
