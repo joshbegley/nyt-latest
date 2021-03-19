@@ -1,6 +1,6 @@
 **Judge denies motion to delay Derek Chauvin trial.**\
-`By Tim Arango`\
-https://nytimes.com/2021/03/19/us/judge-denies-motion-to-delay-derek-chauvin-trial.html?searchResultPosition=1
+`Judge Peter A. Cahill of Hennepin County District Court on Friday ruled against motions by Mr. Chauvin’s lawyer for a continuance and change of venue, setting the stage for opening statements to begin March 29.`\
+https://nytimes.com/2021/03/19/us/derek-chauvin-trial-judge-george-floyd.html?searchResultPosition=1
 
 **‘I Have Shut a Lot of People Up’**\
 `Long denied his dream of an N.B.A. coaching job, Patrick Ewing has gained respect by leading the Georgetown Hoyas back to the N.C.A.A. men’s tournament.`\
