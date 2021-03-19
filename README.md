@@ -2,9 +2,9 @@
 `The Biden administration said it would send Canada 1.5 million doses of the AstraZeneca vaccine from an inventory measured in tens of millions.`\
 https://nytimes.com/2021/03/19/world/canada/canada-vaccine-stockpile-united-states.html?searchResultPosition=1
 
-**A former Green Beret used a flagpole as a spear against an officer in the Capitol riot, authorities say.**\
-`By Hailey Fuchs`\
-https://nytimes.com/2021/03/19/us/a-former-green-beret-used-a-flagpole-as-a-spear-against-an-officer-in-the-capitol-riot-authorities-say.html?searchResultPosition=2
+**A former Green Beret used a flagpole to attack an officer in the Capitol riot, authorities say.**\
+`Jeffrey McKellop is the first known Capitol rioter to have served in the elite Special Operations division of the military.`\
+https://nytimes.com/2021/03/19/us/jeffrey-mckellop-green-beret-capitol-riot.html?searchResultPosition=2
 
 **Coronavirus Briefing: What Happened Today**\
 `More states said they will open vaccine appointments for the public in March or April.`\
