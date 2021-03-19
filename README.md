@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/19/us/politics/proud-boys-indictment.html?searchResu
 https://nytimes.com/2021/03/19/podcasts/the-daily-climate-change-israel-still-processing.html?searchResultPosition=5
 
 **Watch Live: Biden Speaks at Emory University in Atlanta**\
-`President Biden speaking on Friday after he and Vice President Harris held a meeting with Asian American community leaders about the killings of eight people, six of them of Asian descent, in Georgia this week.`\
+`President Biden speaking on Friday after he and Vice President Kamala Harris met with Asian-American community leaders in Atlanta.`\
 https://nytimes.com/video/us/politics/100000007663667/biden-asian-american-atlanta-live.html?searchResultPosition=6
 
 **Greg Steltenpohl, Pioneer in Plant-Based Drinks, Dies at 67**\
