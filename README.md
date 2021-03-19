@@ -1,5 +1,5 @@
 **‘A long line of hate’ against Asian-Americans in N.Y.C.**\
-`The community is grappling with the reality that the law is not designed to account for the ways in which they experience racism.`\
+`The community is grappling with the reality that the law is not designed for the ways in which people of Asian descent experience racism.`\
 https://nytimes.com/2021/03/19/nyregion/asian-american-attacks-nyc.html?searchResultPosition=1
 
 **The Senate’s ‘Talking Filibuster’ Might Rise Again**\
