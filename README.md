@@ -1,40 +1,40 @@
+**Will Israel’s Strong Vaccination Campaign Give Netanyahu an Edge?**\
+`Prime Minister Benjamin Netanyahu is banking on voters crediting him for beating the pandemic. But many worry that the country’s reopening may be premature and politically driven.`\
+https://nytimes.com/2021/03/19/world/middleeast/israel-vaccination-netanyahu-election.html?searchResultPosition=1
+
 **6 Jazz Songs to Listen to Right Now**\
 `Here are six new and noteworthy tracks, from a recently unearthed Don Cherry radio broadcast to Angel Bat Dawid’s remix of Alan Braufman.`\
-https://nytimes.com/interactive/2021/03/19/arts/music/jazz-recommendations.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/03/19/arts/music/jazz-recommendations.html?searchResultPosition=2
 
 **‘Stupid’ DoorDash Deliveries Get Pennsylvania Prosecutor Demoted**\
 `The district attorney for Bucks County, Pa., said Gregg Shore, a high-ranking prosecutor, had been making food deliveries during work hours for the county. “I don’t know why he did this,” he said.`\
-https://nytimes.com/2021/03/19/us/bucks-county-da-doordash.html?searchResultPosition=2
+https://nytimes.com/2021/03/19/us/bucks-county-da-doordash.html?searchResultPosition=3
 
 **Theater Actors Step Up Push for Union to Allow Them to Work**\
 `Nearly 2,000 performers have petitioned Actors’ Equity for guidelines that will speed up a return to the stage.`\
-https://nytimes.com/2021/03/19/theater/actors-equity-frustration-petition.html?searchResultPosition=3
+https://nytimes.com/2021/03/19/theater/actors-equity-frustration-petition.html?searchResultPosition=4
 
 **The Making of an Especially Intricate Fendi Baguette Bag**\
 `A new limited edition of the iconic style was hand-embroidered with a centuries-old technique.`\
-https://nytimes.com/2021/03/19/t-magazine/fendi-baguette-bag.html?searchResultPosition=4
+https://nytimes.com/2021/03/19/t-magazine/fendi-baguette-bag.html?searchResultPosition=5
 
 **A Home Away From the Virus, However You Can Find It**\
 `Whether hitting the road or sailing out to sea, restless families are packing up and ‘slow traveling’ to new destinations.`\
-https://nytimes.com/2021/03/19/realestate/a-home-away-from-the-virus-however-you-can-find-it.html?searchResultPosition=5
+https://nytimes.com/2021/03/19/realestate/a-home-away-from-the-virus-however-you-can-find-it.html?searchResultPosition=6
 
 **The Triple Tax Break You May Be Missing: A Health Savings Account**\
 `For eligible people, H.S.A.s accept pretax contributions that grow tax-free and aren’t taxed if spent on qualifying expenses. But they’re underused, experts say.`\
-https://nytimes.com/2021/03/19/business/health-savings-accounts-tax-break.html?searchResultPosition=6
+https://nytimes.com/2021/03/19/business/health-savings-accounts-tax-break.html?searchResultPosition=7
 
 **The Making of a Fendi Baguette Bag**\
 `Watch as one of the bags comes together, with much care and skill.`\
-https://nytimes.com/video/t-magazine/100000007649670/the-making-of-a-fendi-baguette-bag.html?searchResultPosition=7
+https://nytimes.com/video/t-magazine/100000007649670/the-making-of-a-fendi-baguette-bag.html?searchResultPosition=8
 
 **Looking at the Rise of Anti-Asian Racism in the Pandemic**\
 `Friday: One expert discusses how anti-Asian sentiment tends to rise in times of national crisis. Also: Pandemic updates.`\
-https://nytimes.com/2021/03/19/us/anti-asian-racism-pandemic.html?searchResultPosition=8
+https://nytimes.com/2021/03/19/us/anti-asian-racism-pandemic.html?searchResultPosition=9
 
 **Europe Lifts Vaccine Suspension as Virus Surge Brings New Lockdowns**\
 `France, Germany and other countries resumed use of the AstraZeneca shots after concerns about side effects, but the pace of inoculation remained too slow to blunt the latest wave of infection.`\
-https://nytimes.com/2021/03/19/world/europe/coronavirus-vaccine-europe-astrazeneca.html?searchResultPosition=9
-
-**There Was Nothing Trivial About Their First Date**\
-`An early sign that Adam Eversole and Kyle Fulton were compatible came when they attended a pub trivia night. They discovered they had complementary strengths.`\
-https://nytimes.com/2021/03/19/style/there-was-nothing-trivial-about-their-first-date.html?searchResultPosition=10
+https://nytimes.com/2021/03/19/world/europe/coronavirus-vaccine-europe-astrazeneca.html?searchResultPosition=10
 
