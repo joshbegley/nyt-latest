@@ -1,5 +1,5 @@
 **Children in elementary schools don’t need to be kept six feet apart, the C.D.C. said.**\
-`In a major policy revision, federal health officials said that only three feet distance is required between young children in classrooms so long as everyone is masked.`\
+`In a major policy revision, federal health officials said that only three feet of distance is required between young children in classrooms so long as everyone is masked.`\
 https://nytimes.com/2021/03/19/science/cdc-guidelines-schools-distancing.html?searchResultPosition=1
 
 **Biden Nominates Former Florida Senator to Lead NASA**\
