@@ -1,40 +1,40 @@
-**What Do You Think Are the Secrets to Happiness?**\
-`In a popular course at Yale University, students learn that the keys to happiness are sleep, gratitude and helping other people. Do you agree?`\
-https://nytimes.com/2021/03/19/learning/what-do-you-think-are-the-secrets-to-happiness.html?searchResultPosition=1
+**Who Can and Can’t Get Vaccinated Right Now**\
+`Some countries have stockpiles. Others have nothing. Getting a vaccine means living in the right place — or knowing the right people.`\
+https://nytimes.com/interactive/2021/03/19/world/covid-vaccine-inequality.html?searchResultPosition=1
 
-**New in Paperback: ‘Minor Feelings’ and ‘Bubblegum’**\
-`Six new paperbacks to check out this week.`\
-https://nytimes.com/2021/03/19/books/review/new-paperbacks.html?searchResultPosition=2
+**Joe Biden and Kamala Harris are set to meet with Asian-American leaders in Atlanta.**\
+`The president has ordered that American flags be flown at half-staff to honor the victims of the Atlanta spa shootings.`\
+https://nytimes.com/2021/03/19/us/joe-biden-and-kamala-harris-are-set-to-meet-with-asian-american-leaders-in-atlanta.html?searchResultPosition=2
 
-**Can Data Make Life Better? And Other Letters to the Editor**\
-`Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2021/03/19/books/review/can-data-make-life-better-and-other-letters-to-the-editor.html?searchResultPosition=3
+**Myanmar Protesters Answer Military’s Bullets With an Economic Shutdown**\
+`From hospitals, railways and dockyards to schools, shops and trading houses, the country is at a standstill. Strikers hope their actions will force the army to return power after its coup on Feb. 1.`\
+https://nytimes.com/2021/03/19/world/asia/myanmar-workers-strike.html?searchResultPosition=3
 
-**Weekly Health Quiz: Covid Vaccines, Microbiomes and How We Move**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2021/03/19/well/live/19healthquiz-03192021.html?searchResultPosition=4
+**For Rohingya Survivors, Art Bears Witness**\
+`They escaped traumatic circumstances in Myanmar and now live in harsh conditions. But refugees are creating murals drawn from their flourishing cultural traditions, reborn in Bangladesh camps.`\
+https://nytimes.com/2021/03/19/arts/design/rohingya-survivors-art-bangladesh.html?searchResultPosition=4
 
-**In Russia, a Virus Lockdown Targets the Opposition**\
-`A court has confined 10 prominent opposition politicians and dissidents to house arrest, ostensibly for violating coronavirus safety rules.`\
-https://nytimes.com/2021/03/19/world/europe/russia-covid-opposition.html?searchResultPosition=5
+**What Would Make Someone the Worst Reader?**\
+`Do you watch the movie fist? Have opinions on books you’ve never read? Flip to the last page? This might be you.`\
+https://nytimes.com/2021/03/19/books/what-would-make-someone-the-worst-reader.html?searchResultPosition=5
 
-**U.S. Rushes to Expand Covid Vaccine Eligibility in a ‘Race Against Time’**\
-`As coronavirus cases nationwide have plateaued, at least 17 states have committed in recent days to widening the list of people who may get a vaccine.`\
-https://nytimes.com/2021/03/19/us/vaccine-eligibility-states.html?searchResultPosition=6
+**Lesson of the Day: ‘The Growing Power of Asian-Americans in Georgia Now Comes With Fear’**\
+`In this lesson, students will learn about the recent shootings in Atlanta, the history of anti-Asian sentiment around disease and how the violence has affected Asian-Americans in Georgia.`\
+https://nytimes.com/2021/03/19/learning/lesson-of-the-day-the-growing-power-of-asian-americans-in-georgia-now-comes-with-fear.html?searchResultPosition=6
 
-**Looking Out**\
-`What do you think this image is saying?`\
-https://nytimes.com/2021/03/19/learning/looking-out.html?searchResultPosition=7
+**Why Child Care Staff Had to Show Up While Teachers Worked Remotely**\
+`The pandemic has spotlighted disparities in working conditions between child care workers and teachers.`\
+https://nytimes.com/2021/03/19/nyregion/child-care-teachers-schools-covid.html?searchResultPosition=7
 
-**Stephen Colbert Is Skeptical of Putin’s Best Wishes for Biden**\
-`“That is ominous,” Colbert said of Vladimir Putin’s wishing the president “good health” on Thursday. “But then again, when Putin says anything, it kind of sounds ominous.”`\
-https://nytimes.com/2021/03/19/arts/television/late-night-stephen-colbert-putin-biden.html?searchResultPosition=8
+**The Pay TV Model Is Declining. The N.F.L. Is Still Banking on It.**\
+`In their agreements with the league, networks promoted their digital rights. But the structure of the deals allows consumers to watch most games without subscribing to a streaming service.`\
+https://nytimes.com/2021/03/19/sports/nfl-media-rights-deal-espn-amazon-fox-nbc-cbs.html?searchResultPosition=8
 
-**Canadian Businessman Accused of Spying Is Tried in China**\
-`The trial of Michael Spavor escalates China’s punitive campaign against Canada over the arrest of a top executive of Huawei.`\
-https://nytimes.com/2021/03/19/world/asia/canada-michael-spavor-trial-china.html?searchResultPosition=9
+**Hudson Valley Real Estate Market Still Overheated**\
+`New Yorkers scouring northern towns for second homes have pushed prices up and made it harder for locals to find affordable homes.`\
+https://nytimes.com/2021/03/19/realestate/hudson-valley-home-sales.html?searchResultPosition=9
 
-**Word of the Day: grimace**\
-`This word has appeared in 55 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/03/19/learning/word-of-the-day-grimace.html?searchResultPosition=10
+**I Got My Covid Vaccine. Now Can I Hug My Mom?**\
+`Three experts respond to questions from readers about what they can do after getting vaccinated.`\
+https://nytimes.com/2021/03/19/opinion/covid-vaccine-guidelines.html?searchResultPosition=10
 
