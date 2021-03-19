@@ -1,6 +1,6 @@
 **Mass shootings in public spaces had become less frequent during the pandemic.**\
 `By Maria Cramer`\
-https://nytimes.com/2021/03/19/us/mass-shootings-in-public-spaces-had-become-less-frequent-during-the-pandemic.html?searchResultPosition=1
+https://nytimes.com/2021/03/19/us/mass-shootings.html?searchResultPosition=1
 
 **Biden is ‘doing 100 percent fine’ after tripping while boarding Air Force One.**\
 `The president was on his way to Atlanta when he stumbled about midway up the stairs to board the plane.`\
