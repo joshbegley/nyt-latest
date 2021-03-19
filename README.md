@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/19/well/family/Talking-to-children-anti-Asian-bias.h
 https://nytimes.com/2021/03/19/dining/lemon-pudding-cakes.html?searchResultPosition=5
 
 **The Weekender**\
-`NASA’s last rocket. Demi Lovato’s comeback. The appeal of Peloton. An endangered gazelle’s survival on the edge of a war zone. And more.`\
+`NASA’s last rocket. Demi Lovato’s comeback. An endangered gazelle’s survival on the edge of a war zone. And more.`\
 https://nytimes.com/interactive/2021/03/19/briefing/the-weekender.html?searchResultPosition=6
 
 **Anger Erupts Over Facilities for Women at N.C.A.A. Tournament**\
