@@ -1,40 +1,40 @@
+**The U.S. Parts With Some of a Vaccine Stockpile It Currently Can’t Use**\
+`The Biden administration said it would send Canada 1.5 million doses of the AstraZeneca vaccine from an inventory measured in tens of millions.`\
+https://nytimes.com/2021/03/19/world/canada/canada-vaccine-stockpile-united-states.html?searchResultPosition=1
+
+**A former Green Beret used a flagpole as a spear against an officer in the Capitol riot, authorities say.**\
+`By Hailey Fuchs`\
+https://nytimes.com/2021/03/19/us/a-former-green-beret-used-a-flagpole-as-a-spear-against-an-officer-in-the-capitol-riot-authorities-say.html?searchResultPosition=2
+
 **Coronavirus Briefing: What Happened Today**\
 `More states said they will open vaccine appointments for the public in March or April.`\
-https://nytimes.com/2021/03/19/us/coronavirus-today.html?searchResultPosition=1
+https://nytimes.com/2021/03/19/us/coronavirus-today.html?searchResultPosition=3
 
 **Tales of Racism and Sexism, From 3 Leading Asian-American Women**\
 `Tina Tchen, Min Jin Lee, and Sung Yeon Choimorrow discuss the ‘unique way that Asian-American women experience sexual harassment.’`\
-https://nytimes.com/2021/03/19/us/racism-sexism-asian-american-women.html?searchResultPosition=2
+https://nytimes.com/2021/03/19/us/racism-sexism-asian-american-women.html?searchResultPosition=4
 
 **It’s My Idea. She’s Taking Credit.**\
 `What to do about copycats on Zoom calls, a rival’s resentment and managing an intern.`\
-https://nytimes.com/2021/03/19/business/roxane-gay-work-friend-managing-interns.html?searchResultPosition=3
+https://nytimes.com/2021/03/19/business/roxane-gay-work-friend-managing-interns.html?searchResultPosition=5
 
 **Andrew Cuomo, Tigray, March Madness: Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/03/19/briefing/andrew-cuomo-tigray-march-madness.html?searchResultPosition=4
+https://nytimes.com/2021/03/19/briefing/andrew-cuomo-tigray-march-madness.html?searchResultPosition=6
 
 **George Bass, Archaeologist of the Ocean Floor, Dies at 88**\
 `He was called the father of underwater archaeology, finding treasures in shipwrecks around the world that illuminated ancient history.`\
-https://nytimes.com/2021/03/19/us/george-bass-dead.html?searchResultPosition=5
+https://nytimes.com/2021/03/19/us/george-bass-dead.html?searchResultPosition=7
 
 **Kenneth Cooper, Harpsichordist With Improviser’s Gift, Dies at 79**\
 `He excelled in the Baroque repertoire, but this interests were eclectic. He was also an accomplished musicologist.`\
-https://nytimes.com/2021/03/19/arts/music/kenneth-cooper-dead.html?searchResultPosition=6
+https://nytimes.com/2021/03/19/arts/music/kenneth-cooper-dead.html?searchResultPosition=8
 
 **Justin Bieber, Still Seeking a Sound**\
 `His sixth album, “Justice,” tries out several production styles, but never nails a mood.`\
-https://nytimes.com/2021/03/19/arts/music/justin-bieber-justice-review.html?searchResultPosition=7
+https://nytimes.com/2021/03/19/arts/music/justin-bieber-justice-review.html?searchResultPosition=9
 
 **Reed Disputes Groping Allegation, Calling Woman’s Account ‘Not Accurate’**\
 `The congressman from New York, who has been eyeing a run against Gov. Andrew Cuomo, did not specify what parts of the account of his actions in a bar in 2017 were inaccurate.`\
-https://nytimes.com/2021/03/19/us/politics/tom-reed-groping-allegation.html?searchResultPosition=8
-
-**Insiders Jockey for Whittled-Down Ambassadorship Slots**\
-`Hundreds of donors and former lawmakers, who have not been Foreign Service officers but are close to the president, are said to be clamoring for about 35 ambassadorship slots available.`\
-https://nytimes.com/2021/03/19/us/politics/biden-ambassadors-diplomacy.html?searchResultPosition=9
-
-**Sours That Walk the Line**\
-`The drink has countless variations, but a simple spirit-citrus-sweetener formula is at the heart of all of them.`\
-https://nytimes.com/2021/03/19/dining/drinks/sour-cocktails.html?searchResultPosition=10
+https://nytimes.com/2021/03/19/us/politics/tom-reed-groping-allegation.html?searchResultPosition=10
 
