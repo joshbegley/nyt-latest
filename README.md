@@ -28,7 +28,7 @@ https://nytimes.com/2021/03/20/world/najib-razak-covid-regulation.html?searchRes
 
 **Protest Planned in Atlanta to #StopAsianHate**\
 `The event, set for 1 p.m. in a park next to the State Capitol, is being billed as way for people to “come together to grieve, heal and support.”`\
-https://nytimes.com/2021/03/20/us/protest-planned-in-atlanta-to-stopasianhate.html?searchResultPosition=8
+https://nytimes.com/2021/03/20/us/stopasianhate-protest-atlanta.html?searchResultPosition=8
 
 **Sexual Anguish of Atlanta Suspect Is Familiar Thorn for Evangelicals**\
 `The man accused of killing eight people at spas was a churchgoer who told officers he was addicted to sex. Parts of evangelical culture imply that sexual sins are more serious than others.`\
