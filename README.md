@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/20/sports/ncaabasketball/coronavirus-ncaa-tournament
 `Protesters marched in Atlanta on Saturday to condemn anti-Asian violence. On Tuesday, a white gunman killed eight people, including six women of Asian descent, at three Atlanta-area spas.`\
 https://nytimes.com/video/us/100000007665674/atlanta-shooting-stop-asian-hate-march-rally.html?searchResultPosition=2
 
-**Virginia Commonwealth was forced out of the tournament by the coronavirus.**\
+**Virginia Commonwealth was forced out of the N.C.A.A. tournament by the coronavirus.**\
 `Oregon will move on to the second round of the tournament.`\
 https://nytimes.com/2021/03/20/sports/ncaabasketball/ncaa-tournament-coronavirus-vcu-oregon.html?searchResultPosition=3
 
