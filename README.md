@@ -6,8 +6,8 @@ https://nytimes.com/2021/03/20/world/asia/tokyo-olympics-spectators.html?searchR
 `The promise of universal suffrage has animated the city’s politics for decades. Beijing’s latest moves could finally extinguish that hope.`\
 https://nytimes.com/2021/03/20/world/asia/hong-kong-elections-democracy.html?searchResultPosition=2
 
-**Earthquake in Japan’s Northeast Prompts a Tsunami Warning**\
-`The 7.2-magnitude earthquake, off the coast of Miyagi Prefecture, could be felt hundreds of miles away in Tokyo.`\
+**Strong Earthquake Shakes Japan’s Northeast**\
+`The 7.2-magnitude quake, which could be felt hundreds of miles away in Tokyo, briefly prompted a tsunami warning.`\
 https://nytimes.com/2021/03/20/world/asia/japan-quake-tsunami.html?searchResultPosition=3
 
 **Man Says He Lived in Philadelphia’s Veterans Stadium for Years**\
