@@ -23,7 +23,7 @@ https://nytimes.com/2021/03/19/sports/ncaabasketball/ncaa-tournament-arenas.html
 https://nytimes.com/2021/03/19/us/politics/democrats-biden-border-immigration.html?searchResultPosition=6
 
 **Suspect’s Church Calls Spa Attacks ‘the Result of a Sinful Heart’**\
-`Atlanta police records showed that, between 2011 and 2014, at least 11 people had been charged with prostitution-related offenses at one of the businesses where three women were killed.`\
+`The church said the killing of eight people at Atlanta spas was “an extreme and wicked act.” Police records show prostitution-related arrests at one of the targeted businesses between 2011 and 2014.`\
 https://nytimes.com/2021/03/19/us/robert-aaron-long-church-atlanta.html?searchResultPosition=7
 
 **The U.S. Parts With Some of a Vaccine Stockpile It Currently Can’t Use**\
