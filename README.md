@@ -2,7 +2,7 @@
 `The move is likely to please President Recep Tayyip Erdogan’s conservative followers. He also removed the head of the central bank.`\
 https://nytimes.com/2021/03/20/world/europe/turkey-erdogan-women-violence.html?searchResultPosition=1
 
-**What is Work Worth?**\
+**What Is Work Worth?**\
 `Big ideas for rethinking pay.`\
 https://nytimes.com/2021/03/20/business/dealbook/minimum-wage-pay.html?searchResultPosition=2
 
