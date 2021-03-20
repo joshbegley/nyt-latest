@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/20/world/asia/asia-reaction-atlanta.html?searchResultPosition=1
 
 **Virus Cases Delay Effort to Bring Indoor Dance Back to New York**\
-`The Park Avenue Armory is postponing “Afterwardsness” after three members of the Bill T. Jones/Arnie Zane dance company tested positive for the coronavirus`\
+`The Park Avenue Armory is postponing “Afterwardsness” after three members of the Bill T. Jones/Arnie Zane dance company tested positive for the coronavirus.`\
 https://nytimes.com/2021/03/20/arts/dance/coronavirus-dance-performance.html?searchResultPosition=2
 
 **Earthquake Rattles Japan’s Northeast**\
