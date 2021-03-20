@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/19/sports/ncaabasketball/dawn-staley-south-carolina-
 https://nytimes.com/2021/03/19/crosswords/daily-puzzle-2021-03-20.html?searchResultPosition=2
 
 **China Talks Were Challenging but ‘Candid,’ Blinken Says**\
-`Secretary of State Anthony Blinken and Jake Sullivan, the national security adviser, said Friday that they had raised contentious matters with their Chinese counterparts over two days but had also agreed on some points.`\
+`Secretary of State Antony J. Blinken and Jake Sullivan, the national security adviser, said Friday that they had raised contentious matters with their Chinese counterparts over two days.`\
 https://nytimes.com/video/us/politics/100000007665077/blinken-sullivan-china-us.html?searchResultPosition=3
 
 **‘All I Can Think About Is Her’: Families Grieve for Victims of Atlanta Attacks**\
