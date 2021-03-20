@@ -23,7 +23,7 @@ https://nytimes.com/2021/03/19/world/trump-covid-mar-a-lago.html?searchResultPos
 https://nytimes.com/video/us/politics/100000007665031/biden-harris-atlanta-asian-americans.html?searchResultPosition=6
 
 **Confronting Violence Against Asians, Biden Says That ‘We Cannot Be Complicit’**\
-`Vice President Kamala Harris joined the president in forcefully condemning the killings in Atlanta. “Racism is real in America, and it has alway been,” she said.`\
+`Vice President Kamala Harris joined the president in forcefully condemning the killings in Atlanta. “Racism is real in America, and it has always been,” she said.`\
 https://nytimes.com/2021/03/19/us/politics/biden-harris-atlanta.html?searchResultPosition=7
 
 **Lawyer for Deshaun Watson’s Accusers Addresses Skeptics**\
