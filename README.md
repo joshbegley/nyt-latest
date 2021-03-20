@@ -1,40 +1,40 @@
-**1946: Dutch Workers Protest Franco Without Using His Name**\
-`After they were forbidden by Rotterdam’s mayor from mentioning Franco, dock workers used banners proclaiming “Down with …”`\
-https://nytimes.com/2021/03/20/world/europe/1946-dutch-workers-protest-franco-without-using-his-name.html?searchResultPosition=1
+**Canadian Snowbirds Find Refuge in Their Mythical Miami**\
+`In this retirement community celebrating all things Florida, Quebec snowbirds hunkered down this winter to ride out the pandemic.`\
+https://nytimes.com/2021/03/20/world/canada/canadian-snowbirds-la-florida.html?searchResultPosition=1
 
-**Was 1925 Literary Modernism’s Most Important Year?**\
-`“Ulysses” and “The Waste Land” appeared in 1922. But three years later, masterworks by Virginia Woolf, F. Scott Fitzgerald, Ernest Hemingway and John Dos Passos gave the movement its signature forms — and influence.`\
-https://nytimes.com/2021/03/20/books/review/woolf-dos-passos-hemingway-fitzgerald-1925-manhattan-transfer-great-gatsby-mrs-dalloway.html?searchResultPosition=2
+**Arrests Shake Up a Soccer Scene in Serbia Ruled by Gangsters and ‘Gravediggers’**\
+`A reputed gangster and leader of an “ultras” fan group, who also reportedly had ties to the government, has been arrested following a series of gruesome murders connected to a Belgrade soccer stadium.`\
+https://nytimes.com/2021/03/20/world/europe/serbia-soccer-hooligans.html?searchResultPosition=2
 
-**Palestinian Hamlet Embodies Fight for the West Bank’s Future**\
-`Israel suspended a decision to annex a section of the territory last year, but its military still exerts tight control over Palestinians in the area.`\
-https://nytimes.com/2021/03/20/world/middleeast/palestinian-hamlet-embodies-fight-for-the-west-banks-future.html?searchResultPosition=3
+**Rooting for Your Home Team in Person? Here’s What You Need to Know.**\
+`This spring, big-league games are luring fans to stadiums and arenas. Expect varying levels of mask-wearing, social distancing and pregame testing.`\
+https://nytimes.com/2021/03/20/travel/spring-big-league-games-rules-covid.html?searchResultPosition=3
 
-**A Volcano Erupted in Iceland. Björk Was ‘Sooo Excited.’**\
-`No injuries were reported after the rare eruption near Reykjavik — only joy, on the part of the singer and other Icelanders.`\
-https://nytimes.com/2021/03/20/world/europe/iceland-volcano-eruption.html?searchResultPosition=4
+**Mixed Virus Data Has Some Experts Questioning Pace of N.Y.C. Reopening**\
+`Gov. Andrew M. Cuomo announced this week that businesses like indoor fitness studios would be allowed to reopen.`\
+https://nytimes.com/2021/03/20/nyregion/new-york-city-coronavirus-reopening.html?searchResultPosition=4
 
-**Where Europe Went Wrong in Its Vaccine Rollout, and Why**\
-`While Washington went into business with the drug companies, Europe was more fiscally conservative and trusted the free market.`\
-https://nytimes.com/2021/03/20/world/europe/europe-vaccine-rollout-astrazeneca.html?searchResultPosition=5
+**Here’s How Bored Rich People Are Spending Their Extra Cash**\
+`The value of collectibles — like coffee tables, whiskey, Air Jordans and Pokémon cards — has soared.`\
+https://nytimes.com/2021/03/20/style/spending-rich-people.html?searchResultPosition=5
 
-**Louisiana House Race Sets Up a Democratic Showdown in New Orleans**\
-`The first competitive special congressional election of 2021 will unfold on Saturday, with two rival Democrats poised for a runoff to succeed the Biden adviser Cedric Richmond.`\
-https://nytimes.com/2021/03/20/us/politics/louisiana-house-special-election.html?searchResultPosition=6
+**That Was Fast: Blowups With China and Russia in Biden’s First 60 Days**\
+`It may look like the bad old days of the Cold War, but today’s bitter superpower competition is about technology, cyberconflict and influence operations.`\
+https://nytimes.com/2021/03/20/us/politics/china-russia-biden.html?searchResultPosition=6
 
-**Corrections: March 20, 2021**\
-`Corrections that appeared in print on Saturday, March 20, 2021.`\
-https://nytimes.com/2021/03/19/pageoneplus/corrections-march-20-2021.html?searchResultPosition=7
+**There Is No Rung on the Ladder That Protects You From Hate**\
+`Asian-Americans are reeling from the killings in Georgia and a rising number of attacks nationwide. Could confronting racism bring solidarity across their class divides?`\
+https://nytimes.com/2021/03/20/technology/personaltech/asian-american-wealth-gap.html?searchResultPosition=7
 
-**Quotation of the Day: She’s 89. She Doesn’t Wear Glasses. And She’s a World-Class Sharpshooter.**\
-`Quotation of the Day for Saturday, March 20, 2021.`\
-https://nytimes.com/2021/03/19/todayspaper/quotation-of-the-day-shes-89-she-doesnt-wear-glasses-and-shes-a-world-class-sharpshooter.html?searchResultPosition=8
+**Fact-Checking Claims on the Migrant Surge at the U.S.-Mexico Border**\
+`As migrants arrive at the southwestern border in increasing numbers, lawmakers and officials are misleading about border policies, migrants, the coronavirus and immigration flows.`\
+https://nytimes.com/2021/03/20/us/politics/fact-check-immigration-border.html?searchResultPosition=8
 
-**Europe Begins Administering AstraZeneca Vaccines Again**\
-`On Friday, governments across Europe raced to restart use of AstraZeneca’s coronavirus vaccine after the announcement from the European Union’s top drug regulator on Thursday that the shots were safe and effective.`\
-https://nytimes.com/video/world/europe/100000007665134/astrazeneca-coronavirus-europe.html?searchResultPosition=9
+**Wedding Makeup Artists Are Putting Safety First**\
+`Beauty professionals are back to work and implementing strategies to stay safe while on a different pandemic frontline.`\
+https://nytimes.com/2021/03/20/style/wedding-makeup-artists-are-putting-safety-first.html?searchResultPosition=9
 
-**Dawn Staley, South Carolina’s respected coach, sharply criticizes N.C.A.A. leaders.**\
-`After it became clear that the women’s basketball tournament had been given inferior resources, Staley called on the leaders to “re-evaluate the value they place on women.”`\
-https://nytimes.com/2021/03/19/sports/ncaabasketball/dawn-staley-south-carolina-ncaa.html?searchResultPosition=10
+**How the Pandemic Changed Your Politics**\
+`Worry, anxiety, hope: Readers shared how they experienced a wild year in American life and politics.`\
+https://nytimes.com/2021/03/20/us/politics/coronavirus-politics.html?searchResultPosition=10
 
