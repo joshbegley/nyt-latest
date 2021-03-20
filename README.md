@@ -1,5 +1,5 @@
-**More Steals, No Shifts and Robot Umps:‘Our Fans Want the Action’**\
-`Raul Ibanez, Michael Hill and Morgan Sword sat down (virtually) to discuss the changes baseball is implementing in the minors in hopes of spicing up things in the majors.`\
+**More Steals, No Shifts and Robot Umps: ‘Our Fans Want the Action’**\
+`Raul Ibanez, Michael Hill and Morgan Sword discuss the changes baseball is implementing in the minors in hopes of spicing up things in the majors.`\
 https://nytimes.com/2021/03/20/sports/baseball/rule-changes-shifts-steals.html?searchResultPosition=1
 
 **Spectators From Overseas Are Barred From Tokyo Olympics**\
