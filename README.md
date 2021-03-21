@@ -1,14 +1,14 @@
+**No March Madness? For Those Headed to the N.B.A., That’s Just Fine.**\
+`The N.C.A.A. basketball tournament has sometimes been a great showcase for future N.B.A. talent, but history suggests that the biggest stage of college hoops isn’t a make-or-break deal for the pros.`\
+https://nytimes.com/2021/03/21/sports/ncaabasketball/march-madness-nba-draft.html?searchResultPosition=1
+
 **Patriots, 49ers Among N.F.L. Free Agency’s Biggest Spenders**\
 `The 2021 N.F.L. salary cap has crunched some teams looking to shore up their rosters. Others have opened up their wallets.`\
-https://nytimes.com/2021/03/21/sports/football/nfl-free-agency-patriots.html?searchResultPosition=1
+https://nytimes.com/2021/03/21/sports/football/nfl-free-agency-patriots.html?searchResultPosition=2
 
 **After 30 Years, Rutgers Finds Its Way Back to the N.C.A.A. Tournament**\
 `Steve Pikiell revived the Rutgers men's basketball program using a trusted blueprint borrowed from his former UConn coach, John Calhoun.`\
-https://nytimes.com/2021/03/21/sports/ncaabasketball/rutgers-ncaa-tournament.html?searchResultPosition=2
-
-**No March Madness? For Those Headed to the N.B.A., That’s Just Fine.**\
-`The N.C.A.A. basketball tournament has sometimes been a great showcase for future N.B.A. talent, but history suggests that the biggest stage of college hoops isn’t a make-or-break deal for the pros.`\
-https://nytimes.com/2021/03/21/sports/ncaabasketball/march-madness-nba-draft.html?searchResultPosition=3
+https://nytimes.com/2021/03/21/sports/ncaabasketball/rutgers-ncaa-tournament.html?searchResultPosition=3
 
 **The N.C.A.A. Women’s Tournament Is Overloaded With Talent**\
 `Freshman players like UConn’s Paige Bueckers, Iowa’s Caitlin Clark and Maryland’s Angel Reese help shine the spotlight on San Antonio.`\
