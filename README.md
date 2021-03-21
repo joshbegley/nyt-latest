@@ -1,4 +1,4 @@
-**N.C.A.A. Gets Its Worst Fear: A Canceled Tournament Game**\
+**N.C.A.A.’s Fear of a Canceled Tournament Game Arrives**\
 `Virginia Commonwealth was bounced from the men’s basketball tournament after what its coach described as “multiple positive tests.”`\
 https://nytimes.com/2021/03/20/sports/ncaabasketball/coronavirus-ncaa-tournament-vcu-oregon-canceled.html?searchResultPosition=1
 
