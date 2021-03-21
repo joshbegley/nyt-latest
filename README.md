@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/21/business/media/boston-globe-ibram-kendi.html?sear
 `“I personally believe the evidence is trending toward that, and probably meets those elements,” said Michael Sherwin, who had led the Justice Department’s inquiry into the riot.`\
 https://nytimes.com/2021/03/21/us/politics/capitol-riot-sedition.html?searchResultPosition=2
 
-**Loyola-Chicago, and Sister Jean, Return to the Round of 16**\
+**The Loyola-Chicago Ramblers, and Sister Jean, Return to the Round of 16**\
 `The Ramblers, who went to the Final Four in 2018, knocked off No. 1-seeded Illinois, the latest upset in the N.C.A.A. men’s basketball tournament, which has been rife with them.`\
 https://nytimes.com/2021/03/21/sports/ncaabasketball/loyola-chicago-illinois-ncaa-tournament.html?searchResultPosition=3
 
