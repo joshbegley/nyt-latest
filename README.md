@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/20/sports/ncaabasketball/ncaa-tournament-canceled-ga
 https://nytimes.com/2021/03/20/sports/ncaabasketball/coronavirus-ncaa-tournament-vcu-oregon-canceled.html?searchResultPosition=5
 
 **Miami Beach to spring breakers: No more late-night partying.**\
-`Law enforcement began dispersing crowds and blocking roads after city officials implemented an evening curfew to curtail public safety and coronavirus concerns.`\
+`Law enforcement began dispersing crowds and blocking roads after city officials imposed an evening curfew to curtail public safety and coronavirus concerns.`\
 https://nytimes.com/2021/03/20/world/miami-beach-spring-break.html?searchResultPosition=6
 
 **Rally in Atlanta to #StopAsianHate**\
