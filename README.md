@@ -12,7 +12,7 @@ https://nytimes.com/2021/03/21/us/politics/georgia-hate-crime-atlanta-shootings.
 
 **After Spa Attacks, Officers Handcuffed Victim’s Anguished Husband for Four Hours**\
 `In an interview with a Spanish-language news outlet, Mario González described his confusion and frustration as sheriff’s deputies detained him after the shooting.`\
-https://nytimes.com/2021/03/21/us/after-spa-attacks-officers-handcuffed-victims-anguished-husband-for-four-hours.html?searchResultPosition=4
+https://nytimes.com/2021/03/21/us/atlanta-spa-attacks-mario-gonzalez.html?searchResultPosition=4
 
 **Hugh Newell Jacobsen, Famed Modernist Architect, Dies at 91**\
 `Mentored by Louis Kahn, he created designs for clients like Meryl Streep and Jacqueline Kennedy Onassis, as well as colleges and museums.`\
