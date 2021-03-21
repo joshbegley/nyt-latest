@@ -8,7 +8,7 @@ https://nytimes.com/2021/03/21/business/railroad-merger-us-mexico-canada.html?se
 
 **Assaulting the Truth, Ron Johnson Helps Erode Confidence in Government**\
 `Pushing false theories on the virus, the vaccine and the Jan. 6 attack on the Capitol, Mr. Johnson, the Republican senator from Wisconsin, has absorbed his party’s transformation under Donald Trump.`\
-https://nytimes.com/2021/03/21/us/politics/ron-johnson-misinformation.html?searchResultPosition=3
+https://nytimes.com/2021/03/21/us/politics/ron-johnson-wisconsin-misinformation.html?searchResultPosition=3
 
 **Kent Taylor, Texas Roadhouse Founder and C.E.O., Dies at 65**\
 `Mr. Taylor died by suicide after suffering from post-Covid-19 symptoms, including severe tinnitus, the company said.`\
