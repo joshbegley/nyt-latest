@@ -31,7 +31,7 @@ https://nytimes.com/2021/03/21/dining/what-to-cook-this-week.html?searchResultPo
 https://nytimes.com/2021/03/21/world/miami-beach-curfew-state-of-emergency.html?searchResultPosition=8
 
 **U.S. Defense Secretary Makes Secret Visit to Afghanistan**\
-`The trip makes Lloyd J. Austin III the first member of President Biden’s cabinet to visit the country. He met with the Afghan president, Ashraf Ghani.`\
+`Lloyd J. Austin III is the first member of President Biden’s cabinet to travel to the country, where he met with the Afghan president, Ashraf Ghani.`\
 https://nytimes.com/2021/03/21/world/asia/afghanistan-lloyd-austin.html?searchResultPosition=9
 
 **Fully Vaccinated and Time to Party: If You Are 70**\
