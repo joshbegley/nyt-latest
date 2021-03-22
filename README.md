@@ -18,7 +18,7 @@ https://nytimes.com/2021/03/22/arts/trump-administration-historians.html?searchR
 `The authorities said they were investigating at least four of the attacks as possible hate crimes, including one that left a man in critical condition.`\
 https://nytimes.com/2021/03/22/nyregion/nyc-asian-hate-crimes.html?searchResultPosition=5
 
-**The Senate votes to confirm Martin Walsh, Boston’s mayor, as Biden’s labor secretary.**\
+**The Senate confirms Martin Walsh, Boston’s mayor, as Biden’s labor secretary.**\
 `The nomination of Mr. Walsh, a former leader of Boston’s powerful building trades council, was embraced by a range of national union officials.`\
 https://nytimes.com/2021/03/22/us/politics/martin-walsh-labor-secretary-biden.html?searchResultPosition=6
 
