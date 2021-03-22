@@ -11,7 +11,7 @@ https://nytimes.com/2021/03/22/sports/basketball/elgin-baylor-dead.html?searchRe
 https://nytimes.com/2021/03/22/opinion/atlanta-shootings-asian-american.html?searchResultPosition=3
 
 **A Year After Ending Her Presidential Bid, Warren Wields Soft Power in Washington**\
-`The progressive Democrat’s proposals for taxing the rich will take center stage as talks over paying for an infrastructure bill ramp up.`\
+`The progressive Democrat’s proposals for taxing the rich will take center stage as talks on paying for an infrastructure bill ramp up.`\
 https://nytimes.com/2021/03/22/us/politics/elizabeth-warren-taxes-infrastructure.html?searchResultPosition=4
 
 **N.Y.C. Mayor Announces New Opt-In Period for In-Person Learning**\
