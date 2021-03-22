@@ -1,5 +1,5 @@
 **Leon Black will step down from Apollo three months sooner than expected.**\
-`The Wall Street billionaire, who was the main client of the disgraced financier Jeffrey Epstein, decided to leave for health reasons.`\
+`The Wall Street billionaire, who was the main client of the disgraced financier Jeffrey Epstein in recent years, decided to leave for health reasons.`\
 https://nytimes.com/2021/03/22/business/leon-black-apollo.html?searchResultPosition=1
 
 **The Democrats’ Immigration Problem**\
