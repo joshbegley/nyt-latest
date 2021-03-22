@@ -18,7 +18,7 @@ https://nytimes.com/2021/03/22/us/coronavirus-today.html?searchResultPosition=4
 `A group of academics gathered to write a first scholarly history of the Trump administration. How do you contextualize a presidency that, as one put it, may have “jumped the shark”?`\
 https://nytimes.com/2021/03/22/arts/trump-administration-historians.html?searchResultPosition=5
 
-**As Protesters Rally Against Anti-Asian Hate, N.Y.C. Records 5 Attacks**\
+**Protesters Rally Against Anti-Asian Attacks, and New York Has 5 More**\
 `The authorities said they were investigating at least four of the attacks as possible hate crimes, including one that left a man in critical condition.`\
 https://nytimes.com/2021/03/22/nyregion/nyc-asian-hate-crimes.html?searchResultPosition=6
 
