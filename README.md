@@ -1,40 +1,40 @@
+**Word of the Day: squalid**\
+`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2021/03/21/learning/word-of-the-day-squalid.html?searchResultPosition=1
+
 **Your Monday Briefing**\
 `Vaccine inequity that threatens us all.`\
-https://nytimes.com/2021/03/21/briefing/vaccine-diplomacy-israel-palestine-election.html?searchResultPosition=1
+https://nytimes.com/2021/03/21/briefing/vaccine-diplomacy-israel-palestine-election.html?searchResultPosition=2
 
 **LaMelo Ball Is Out Indefinitely With a Wrist Injury**\
 `Ball, a rookie guard for the Charlotte Hornets, had been considered the leading candidate for the Rookie of the Year Award.`\
-https://nytimes.com/2021/03/21/sports/basketball/lamelo-ball-wrist-injury.html?searchResultPosition=2
+https://nytimes.com/2021/03/21/sports/basketball/lamelo-ball-wrist-injury.html?searchResultPosition=3
 
 **Miami Beach, Overwhelmed by Spring Break, Extends Emergency Curfew**\
 `The city has been criticized for its enforcement of the curfew in South Beach over the weekend, when the police used pepper balls to try to disperse crowds.`\
-https://nytimes.com/2021/03/21/us/miami-beach-curfew-spring-break.html?searchResultPosition=3
+https://nytimes.com/2021/03/21/us/miami-beach-curfew-spring-break.html?searchResultPosition=4
 
 **No Corrections: March 22, 2021**\
 `No corrections appeared in print on Monday, March 22, 2021.`\
-https://nytimes.com/2021/03/21/pageoneplus/no-corrections-march-22-2021.html?searchResultPosition=4
+https://nytimes.com/2021/03/21/pageoneplus/no-corrections-march-22-2021.html?searchResultPosition=5
 
 **Quotation of the Day: Elections? Israelis Groan. Palestinians Rejoice.**\
 `Quotation of the Day for Monday, March 22, 2021.`\
-https://nytimes.com/2021/03/21/todayspaper/quotation-of-the-day-elections-israelis-groan-palestinians-rejoice.html?searchResultPosition=5
+https://nytimes.com/2021/03/21/todayspaper/quotation-of-the-day-elections-israelis-groan-palestinians-rejoice.html?searchResultPosition=6
 
 **‘Promising Young Woman’ and ‘Borat’ Win at Writers Guild Awards**\
 `In three of the last five years WGA winners have gone on to take the screenplay Oscars. But union rules mean that not all of the Academy Award nominees were eligible here.`\
-https://nytimes.com/2021/03/21/movies/promising-young-woman-borat-writers-guild-awards.html?searchResultPosition=6
+https://nytimes.com/2021/03/21/movies/promising-young-woman-borat-writers-guild-awards.html?searchResultPosition=7
 
 **Tom Reed, Apologizing Over Groping Allegation, Says He Won’t Run in 2022**\
 `The New York congressman, who said he took “full responsibility” for the episode, won’t seek re-election or run for governor.`\
-https://nytimes.com/2021/03/21/us/politics/tom-reed-groping-reelection.html?searchResultPosition=7
+https://nytimes.com/2021/03/21/us/politics/tom-reed-groping-reelection.html?searchResultPosition=8
 
 **San Antonio Is Quiet at Outset of Women’s Basketball Tournament**\
 `With fans not allowed in games until the round of 16, players walking to virus tests made up most of the people wearing basketball merchandise in public.`\
-https://nytimes.com/2021/03/21/sports/san-antonio-is-quiet-at-outset-of-womens-basketball-tournament.html?searchResultPosition=8
+https://nytimes.com/2021/03/21/sports/san-antonio-is-quiet-at-outset-of-womens-basketball-tournament.html?searchResultPosition=9
 
 **He Redefined ‘Racist.’ Now He’s Trying to Build a Newsroom.**\
 `The author Ibram Kendi and The Boston Globe team up to cover racism, inspired by Boston’s 19th century abolitionist newspapers.`\
-https://nytimes.com/2021/03/21/business/media/boston-globe-ibram-kendi.html?searchResultPosition=9
-
-**Evidence in Capitol Attack Most Likely Supports Sedition Charges, Prosecutor Says**\
-`“I personally believe the evidence is trending toward that, and probably meets those elements,” said Michael Sherwin, who had led the Justice Department’s inquiry into the riot.`\
-https://nytimes.com/2021/03/21/us/politics/capitol-riot-sedition.html?searchResultPosition=10
+https://nytimes.com/2021/03/21/business/media/boston-globe-ibram-kendi.html?searchResultPosition=10
 
