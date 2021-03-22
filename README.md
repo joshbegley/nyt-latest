@@ -8,7 +8,7 @@ https://nytimes.com/2021/03/22/opinion/letters/children-poverty.html?searchResul
 
 **New York Expands Vaccine Eligibility to Those 50 and Older**\
 `On Monday, Gov. Andrew M. Cuomo announced that residents of New York, ages 50 and older, would be eligible for the Covid-19 vaccine starting Tuesday.`\
-https://nytimes.com/video/us/politics/100000007667729/cuomo-coronavirus-vaccination-fifty.html?searchResultPosition=3
+https://nytimes.com/video/embedded/us/politics/100000007667729/cuomo-coronavirus-vaccination-fifty.html?searchResultPosition=3
 
 **Biden Team Preparing Up to $3 Trillion in New Spending for the Economy**\
 `A pair of proposals would invest in infrastructure, education, work force development and fighting climate change, with the aim of making the economy more productive.`\
