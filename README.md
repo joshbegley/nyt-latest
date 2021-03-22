@@ -16,7 +16,7 @@ https://nytimes.com/2021/03/22/t-magazine/maharam-wall-tapestry.html?searchResul
 
 **Microsoft announces a move back to the office for some workers.**\
 `Microsoft plans to open its office without restrictions only once the virus acts “more like an endemic virus such as the seasonal flu,” an executive vice president at the tech giant wrote.`\
-https://nytimes.com/2021/03/22/business/microsoft-announces-a-move-back-to-the-office-for-some-workers.html?searchResultPosition=5
+https://nytimes.com/2021/03/22/business/microsoft-back-to-the-office.html?searchResultPosition=5
 
 **Current and former investment bankers react to claims of workplace abuse by junior analysts at Goldman Sachs.**\
 `The DealBook newsletter’s inbox has been overflowing with reactions to a presentation by employees at Goldman Sachs.`\
