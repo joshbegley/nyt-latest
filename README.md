@@ -1,5 +1,5 @@
-**Tom Reed, Facing Groping Allegation, Says He Won’t Seek Re-election in 2022**\
-`The New York congressman, who apologized to a former lobbyist who accused him of touching her inappropriately, also said he wouldn’t run for governor.`\
+**Tom Reed, Apologizing Over Groping Allegation, Says He Won’t Run in 2022**\
+`The New York congressman, who said he took “full responsibility” for the episode, won’t seek re-election or run for governor.`\
 https://nytimes.com/2021/03/21/us/politics/tom-reed-groping-reelection.html?searchResultPosition=1
 
 **San Antonio Is Quiet at Outset of Women’s Basketball Tournament**\
