@@ -2,7 +2,7 @@
 `With fans not allowed in games until the round of 16, players walking to virus tests made up most of the people wearing basketball merchandise in public.`\
 https://nytimes.com/2021/03/21/sports/san-antonio-is-quiet-at-outset-of-womens-basketball-tournament.html?searchResultPosition=1
 
-**He Redefined ‘Racist.’ Now He’s Trying to Build a Newsroom**\
+**He Redefined ‘Racist.’ Now He’s Trying to Build a Newsroom.**\
 `The author Ibram Kendi and The Boston Globe team up to cover racism, inspired by Boston’s 19th century abolitionist newspapers.`\
 https://nytimes.com/2021/03/21/business/media/boston-globe-ibram-kendi.html?searchResultPosition=2
 
