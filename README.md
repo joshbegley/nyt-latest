@@ -14,7 +14,7 @@ https://nytimes.com/2021/03/22/business/dealbook/tax-loophole-wealthy.html?searc
 `Japanese prosecutors said that the two men, Michael Taylor, 60, a former Green Beret, and his son Peter Maxwell Taylor, 27, assisted Mr. Ghosn’s efforts to escape the country.`\
 https://nytimes.com/2021/03/22/business/carlos-ghosn-escape-indictment.html?searchResultPosition=4
 
-**Leon Black will step down from Apollo three months sooner than expected.**\
+**Leon Black to Leave Apollo Sooner Than Expected**\
 `The Wall Street billionaire, who was the main client of the disgraced financier Jeffrey Epstein in recent years, decided to leave for health reasons.`\
 https://nytimes.com/2021/03/22/business/leon-black-apollo.html?searchResultPosition=5
 
