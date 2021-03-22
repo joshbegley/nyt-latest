@@ -14,27 +14,27 @@ https://nytimes.com/slideshow/2021/03/22/realestate/what-you-get-for-3-8-million
 `The textile maker Maharam and the design firm 2x4 have conceived a vibrant wall covering that collapses time and space.`\
 https://nytimes.com/2021/03/22/t-magazine/maharam-wall-tapestry.html?searchResultPosition=4
 
+**Microsoft announces a move back to the office for some workers.**\
+`Microsoft plans to open its office without restrictions only once the virus acts “more like an endemic virus such as the seasonal flu,” an executive vice president at the tech giant wrote.`\
+https://nytimes.com/2021/03/22/business/microsoft-announces-a-move-back-to-the-office-for-some-workers.html?searchResultPosition=5
+
 **Current and former investment bankers react to claims of workplace abuse by junior analysts at Goldman Sachs.**\
 `The DealBook newsletter’s inbox has been overflowing with reactions to a presentation by employees at Goldman Sachs.`\
-https://nytimes.com/2021/03/22/business/goldman-sachs-junior-bankers.html?searchResultPosition=5
+https://nytimes.com/2021/03/22/business/goldman-sachs-junior-bankers.html?searchResultPosition=6
 
 **Who Wants ‘A Touch of Disney’? A Lot of People.**\
 `Monday: The demand to walk around and buy food at a Disney park is astronomical. Also: A recall update.`\
-https://nytimes.com/2021/03/22/us/ca-disney-park.html?searchResultPosition=6
+https://nytimes.com/2021/03/22/us/ca-disney-park.html?searchResultPosition=7
+
+**Turkey’s currency plunges after the head of the country’s central bank is fired.**\
+`Turkey’s president, Recep Tayyip Erdogan, has repeatedly meddled in the central bank’s activities and over the years traders have dumped the lira.`\
+https://nytimes.com/2021/03/22/business/turkeys-lira-plunges.html?searchResultPosition=8
 
 **In Southampton, a Beach House Not Like the Others**\
 `Designed in the 1960s by the underrecognized talent Ward Bennett, this Modernist home remains a paragon of minimalism and grace.`\
-https://nytimes.com/2021/03/22/t-magazine/southampton-beach-house-design.html?searchResultPosition=7
+https://nytimes.com/2021/03/22/t-magazine/southampton-beach-house-design.html?searchResultPosition=9
 
 **How Do You Find New Books, Music, Movies or Television Shows?**\
 `Who do you trust to give you good suggestions about what to read, watch or listen to next? Do you make recommendations to others?`\
-https://nytimes.com/2021/03/22/learning/how-do-you-find-new-books-music-movies-or-television-shows.html?searchResultPosition=8
-
-**How to Fight an ‘Epidemic’ of Tax Fraud**\
-`Here’s a novel way to raise more revenue.`\
-https://nytimes.com/2021/03/22/business/dealbook/tax-loophole-wealthy.html?searchResultPosition=9
-
-**Japan indicts two Americans tied to Carlos Ghosn’s escape.**\
-`Japanese prosecutors said that the two men, Michael Taylor, 60, a former Green Beret, and his son Peter Maxwell Taylor, 27, assisted Mr. Ghosn’s efforts to escape the country.`\
-https://nytimes.com/2021/03/22/business/carlos-ghosn-escape-indictment.html?searchResultPosition=10
+https://nytimes.com/2021/03/22/learning/how-do-you-find-new-books-music-movies-or-television-shows.html?searchResultPosition=10
 
