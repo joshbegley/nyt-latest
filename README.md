@@ -1,5 +1,5 @@
 **Current and former investment bankers react to claims of workplace abuse by junior analysts at Goldman Sachs.**\
-`The DealBook newsletter’s inbox has been overflowing with reactions to a presentation by employees at Goldman Sachs that went viral on social media last week.`\
+`The DealBook newsletter’s inbox has been overflowing with reactions to a presentation by employees at Goldman Sachs.`\
 https://nytimes.com/2021/03/22/business/goldman-sachs-junior-bankers.html?searchResultPosition=1
 
 **Who Wants ‘A Touch of Disney’? A Lot of People.**\
