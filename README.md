@@ -30,8 +30,8 @@ https://nytimes.com/2021/03/22/technology/streaming-music-economics.html?searchR
 `Readers discuss an Op-Ed by a woman “drowning” in debt and whether there should be loan forgiveness.`\
 https://nytimes.com/2021/03/22/opinion/letters/student-debt.html?searchResultPosition=8
 
-**Israel’s Budding Ties With U.A.E. Are Soured by Electioneering**\
-`Prime Minister Benjamin Netanyahu’s pre-election plans to visit the United Arab Emirates and bombast about Emirati investments turned into a diplomatic debacle.`\
+**Tensions With Arab Allies Undermine a Netanyahu Pitch to Israeli Voters**\
+`The Israeli prime minister has presented himself as a global leader, but that image has been dented by tensions with Jordan and the United Arab Emirates as Israeli voters head to the polls on Tuesday.`\
 https://nytimes.com/2021/03/22/world/middleeast/israel-election-uae.html?searchResultPosition=9
 
 **The Crossword Stumper**\
