@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/23/nyregion/damian-williams-schumer-us-attorney.html
 https://nytimes.com/2021/03/23/technology/big-tech-jobs-politics.html?searchResultPosition=5
 
 **No. 3 in the Mets’ Rotation, and Leading the Way in NFTs**\
-`Taijuan Walker explains how he beat the rest of Major League Baseball to the market, auctioning off his own digital art using blockchain technology.`\
+`Taijuan Walker explained how he beat the rest of Major League Baseball to the market, auctioning off his own digital art using blockchain technology.`\
 https://nytimes.com/2021/03/23/sports/baseball/taijuan-walker-mets-nft.html?searchResultPosition=6
 
 **Vaccinated People Can Get Covid, but It’s Most Likely Very Rare**\
