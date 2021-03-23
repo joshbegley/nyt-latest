@@ -1,40 +1,40 @@
-**A Life Spent Focused on What Computers Are Doing to Us**\
-`In her memoir, “The Empathy Diaries,” Sherry Turkle describes her own intellectual journey toward her specialty: the erosion of human feeling in our digital age.`\
-https://nytimes.com/2021/03/23/books/review/sherry-turkle-the-empathy-diaries.html?searchResultPosition=1
+**‘Red Island House,’ by Andrea Lee: An Excerpt**\
+`An excerpt from “Red Island House,” by Andrea Lee`\
+https://nytimes.com/2021/03/23/books/review/red-island-house-by-andrea-lee-an-excerpt.html?searchResultPosition=1
 
-**The Patient Is Obsessed With Sex. But How Reliable Is Her Therapist?**\
-`“My Friend Natalia,” by the Finnish novelist Laura Lindstedt, delivers an intriguing portrait of an unorthodox therapeutic relationship.`\
-https://nytimes.com/2021/03/23/books/review/my-friend-natalia-laura-lindstedt.html?searchResultPosition=2
+**Organizing Gravediggers, Cereal Makers and, Maybe, Amazon Employees**\
+`The Retail, Wholesale and Department Store Union may be one of the most eclectic labor unions in the U.S. And it is on the cusp of breaking into the e-commerce behemoth.`\
+https://nytimes.com/2021/03/23/business/amazon-union-bessemer-alabama.html?searchResultPosition=2
 
-**Intrigued by a Mysterious Customer, a Young Bookseller Sets Out to Find Him**\
-`In Nicola DeRobertis-Theye’s debut novel, “The Vietri Project,” curiosity propels a bibliophile across the globe in search of her own story.`\
-https://nytimes.com/2021/03/23/books/review/the-vietri-project-nicola-derobertis-theye.html?searchResultPosition=3
+**What Does Home Mean to Us? Not the Same Thing It Did Before the Pandemic**\
+`We’re tired, and so are our living spaces. As we emerge from lockdown, architects, writers and others reflect on how we’ll reinvent them — and what matters now.`\
+https://nytimes.com/2021/03/23/realestate/what-does-home-mean-to-us-not-the-same-thing-it-did-before-the-pandemic.html?searchResultPosition=3
 
-**Gunman Kills 10 People in Grocery Store Shooting in Boulder, Colo.**\
-`The shooting comes only six days after another deadly mass shooting in the Atlanta area, which left eight people dead.`\
-https://nytimes.com/2021/03/23/us/boulder-colorado-shooting.html?searchResultPosition=4
+**Why Oumuamua, the Interstellar Visitor, Looks Eerily Familiar**\
+`A piece of an extrasolar Pluto may have passed through our cosmic neighborhood, a new study suggests.`\
+https://nytimes.com/2021/03/23/science/astronomy-oumuamua-comet.html?searchResultPosition=4
 
-**Lesson of the Day: ‘In Statehouses, Stolen-Election Myth Fuels a G.O.P. Drive to Rewrite Rules’**\
-`In this lesson, students will examine voting laws being put forth in Republican-led legislatures across the country and make connections to civil rights-era voting history.`\
-https://nytimes.com/2021/03/23/learning/lesson-of-the-day-in-statehouses-stolen-election-myth-fuels-a-gop-drive-to-rewrite-rules.html?searchResultPosition=5
+**The ‘Old American Dream,’ a Trap As the Floods Keep Coming**\
+`In Houston’s poorest neighborhoods, an unfamiliar winter storm stoked a familiar anguish, one fueled by recurring floods and what residents see as a pattern of neglect.`\
+https://nytimes.com/2021/03/23/us/texas-winter-storm-hurricane-harvey-houston.html?searchResultPosition=5
 
-**Tesla’s Autopilot Technology Faces Fresh Scrutiny**\
-`Federal regulators are investigating 23 recent accidents in which drivers were, or may have been, using the automatic steering and braking system.`\
-https://nytimes.com/2021/03/23/business/teslas-autopilot-safety-investigations.html?searchResultPosition=6
+**How Small Restaurants Leveraged Their Pain to Win Stimulus Money**\
+`The Independent Restaurant Coalition turned tears into cheers, urging owners to share their angst and use that emotion to lobby Congress.`\
+https://nytimes.com/2021/03/23/dining/independent-restaurant-coalition-stimulus-money.html?searchResultPosition=6
 
-**Pandemic Pets**\
-`What memories have you made with your pets this year?`\
-https://nytimes.com/2021/03/23/learning/pandemic-pets.html?searchResultPosition=7
+**‘I’ve Lost a Lot of Faith’: Suburban Parents Push Schools to Reopen Faster**\
+`Frustration over pandemic reopening plans is growing in New Jersey’s affluent suburbs, where taxes are high and many students are barely in classrooms.`\
+https://nytimes.com/2021/03/23/nyregion/new-jersey-schools-reopening.html?searchResultPosition=7
 
-**How to Virtually Become a Doctor**\
-`Medical schools and students alike have had to adapt to remote cadaver dissections and bedside-manner training via Zoom.`\
-https://nytimes.com/2021/03/23/health/coronavirus-medical-school-remote-learning.html?searchResultPosition=8
+**March Weirdness: Covering the N.C.A.A. Basketball Tournaments**\
+`From Indianapolis, San Antonio and home, writers are watching for upsets on the court, and whatever may happen off it.`\
+https://nytimes.com/2021/03/23/insider/ncaa-basketball-reporting.html?searchResultPosition=8
 
-**U.S. health officials question results from AstraZeneca’s vaccine trial, less than a day after they came out.**\
-`By Rebecca Robbins and Sheila Kaplan`\
-https://nytimes.com/2021/03/22/world/us-health-officials-question-results-from-astrazenecas-vaccine-trial-less-than-a-day-after-they-came-out.html?searchResultPosition=9
+**They Had Mild Covid. Then Their Serious Symptoms Kicked In.**\
+`A new study illuminates the complex array of neurological issues experienced by people months after their coronavirus infections.`\
+https://nytimes.com/2021/03/23/health/long-covid-symptoms.html?searchResultPosition=9
 
-**Study results strengthen the case for using Regeneron’s antibody cocktail in high-risk Covid patients.**\
-`By Rebecca Robbins`\
-https://nytimes.com/2021/03/22/world/study-results-strengthen-the-case-for-using-regenerons-antibody-cocktail-in-high-risk-covid-patients.html?searchResultPosition=10
+**5 Things We Know About Flying This Summer**\
+`Planes will be more crowded, meals may return, but don’t remove your mask just yet.`\
+https://nytimes.com/2021/03/23/travel/summer-flights.html?searchResultPosition=10
 
