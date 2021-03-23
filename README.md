@@ -7,7 +7,7 @@ https://nytimes.com/video/us/100000007669020/boulder-police-shooting-suspect.htm
 https://nytimes.com/video/world/australia/100000007668989/australia-flood.html?searchResultPosition=2
 
 **A judge recently blocked Boulder from enforcing its assault-weapon ban.**\
-`By Patrick J. Lyons`\
+`Boulder enacted bans on assault-style weapons and large-capacity magazines following the Parkland shooting. But a state district court judge ruled in March that the city couldn’t enforce them.`\
 https://nytimes.com/2021/03/22/us/boulder-colorado-gun-laws.html?searchResultPosition=3
 
 **Starts Hearts, Say**\
