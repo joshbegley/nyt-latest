@@ -1,5 +1,5 @@
 **Vaccinated People Can Get Covid, but It’s Most Likely Very Rare**\
-`“Breakthrough” cases, though quite uncommon, are a sharp reminder that vaccinated people may want to wear masks while the virus is circulating widely.`\
+`“Breakthrough” cases, though quite uncommon, are a sharp reminder that vaccinated people should wear masks while the virus is circulating widely.`\
 https://nytimes.com/2021/03/23/health/covid-cases-vaccinated-people.html?searchResultPosition=1
 
 **AstraZeneca’s Latest Stumble Again Clouds European Vaccinations**\
