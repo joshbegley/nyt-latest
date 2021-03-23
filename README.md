@@ -1,5 +1,5 @@
 **Netanyahu has a path to a majority and sixth term, exit polls show.**\
-`By Patrick Kingsley and Isabel Kershner`\
+`Prime Minister Benjamin Netanyahu’s party held a lead in Israel’s fourth election in two years, exit polls projected Tuesday night, giving him a chance of forming a fragile coalition government.`\
 https://nytimes.com/2021/03/23/world/middleeast/israel-election-netanyahu-path.html?searchResultPosition=1
 
 **Powell Downplays Inflation Risks as Yellen Foreshadows Future Spending**\
