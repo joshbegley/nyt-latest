@@ -1,4 +1,4 @@
-**Famous Robert Capa Photo Brings New Life to a Tenement and its Residents**\
+**Famous Robert Capa Photo Brings New Life to a Tenement and Its Residents**\
 `The bomb-scarred building in a picture of children during the Spanish Civil War will be turned into a cultural center.`\
 https://nytimes.com/2021/03/23/world/europe/robert-capa-madrid-photo.html?searchResultPosition=1
 
