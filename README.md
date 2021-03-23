@@ -10,8 +10,8 @@ https://nytimes.com/2021/03/23/style/vladimir-putin-siberia-photos.html?searchRe
 `Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2021/03/23/learning/23Student-News-Quiz.html?searchResultPosition=3
 
-**Fire at Assisted Living Home in Spring Valley Sends Several to Hospital**\
-`“Numerous” residents and firefighters were injured in the Rockland County fire, the police said. More than 100 residents were evacuated.`\
+**Several Injured in Large Fire at New York Assisted Living Home**\
+`More than 100 residents were evacuated from the facility in Spring Valley, N.Y. “Numerous” residents and firefighters were injured and some were hospitalized, the police said.`\
 https://nytimes.com/2021/03/23/nyregion/evergreen-nursing-home-fire-spring-valley.html?searchResultPosition=4
 
 **Miami Wants to Be the Hub for Bitcoin**\
