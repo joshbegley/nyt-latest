@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/23/books/review/eat-the-mouth-that-feeds-you-carribean-fragoza.html?searchResultPosition=1
 
 **Basquiat Brings $41.9 Million, Even Amid Digital Gold Rush**\
-`“Warrior,” a 1982 painting by Jean-Michel Basquiat, leads a week of 20th and 21st century live-streamed auctions at Christie’s and Sotheby’s.`\
+`“Warrior,” a 1982 painting by Jean-Michel Basquiat, leads a week of 20th and 21st century livestreamed auctions at Christie’s and Sotheby’s.`\
 https://nytimes.com/2021/03/23/arts/design/basquiat-hong-kong-auction.html?searchResultPosition=2
 
 **Fire Tears Through New York Assisted Living Home**\
