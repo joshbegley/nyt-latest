@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/23/briefing/astrazeneca-trial-south-korea-housing.ht
 https://nytimes.com/2021/03/23/arts/david-mccabe-dead.html?searchResultPosition=2
 
 **‘Colossal,’ ‘The Past’ and More Hidden Streaming Gems**\
-`From oddball genre movies to complex indie genres, recommendations to help you get creative with your home viewing.`\
+`From oddball genre movies to complex indie dramas, recommendations to help you get creative with your home viewing.`\
 https://nytimes.com/2021/03/23/movies/colossal-the-past-offbeat-streaming-options.html?searchResultPosition=3
 
 **‘Why Are We Stuck?’ Stage Actors Challenge Their Union Over Safety**\
