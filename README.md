@@ -1,6 +1,6 @@
 **Get Ready for the First Flight of NASA’s Mars Helicopter**\
 `The experimental vehicle named Ingenuity traveled to the red planet with the Perseverance rover, which is also preparing for its main science mission.`\
-https://nytimes.com/2021/03/23/science/nasas-mars-helicopter.html?searchResultPosition=1
+https://nytimes.com/2021/03/23/science/nasa-mars-helicopter.html?searchResultPosition=1
 
 **Biden’s Recovery Plan Bets Big on Clean Energy**\
 `The president’s plan, worth up to $4 trillion, represents a fundamental shift in the way Democrats talk about tackling climate change: It’s no longer a side element.`\
