@@ -1,6 +1,6 @@
 **Watch Live: Boulder Police Give Update on Shooting**\
 `Dozens of police officers in Boulder, Colo., responded to reports of a shooting on Monday at a grocery store, where witnesses reported seeing several people wounded in and around the building.`\
-https://nytimes.com/video/us/100000007668901/live-boulder-colorado-shooting-police.html?searchResultPosition=1
+https://nytimes.com/video/embedded/us/100000007668901/live-boulder-colorado-shooting-police.html?searchResultPosition=1
 
 **The Atlanta Massacre and the Media’s Morality Plays**\
 `Journalists should give readers the facts, not play to fears.`\
