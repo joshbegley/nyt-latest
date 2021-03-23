@@ -4,7 +4,7 @@ https://nytimes.com/2021/03/23/us/boulder-shooting-what-we-know.html?searchResul
 
 **What We Learned From the First Weekend of the N.C.A.A. Basketball Men’s Tournament**\
 `The Big Ten’s teams have faltered, the Pac-12’s have excelled and the upsets have been steady.`\
-https://nytimes.com/2021/03/23/sports/ncaa-mens-basketball-tournament-sweet-16-preview.html?searchResultPosition=2
+https://nytimes.com/2021/03/23/sports/ncaabasketball/ncaa-mens-basketball-tournament-sweet-16-preview.html?searchResultPosition=2
 
 **N.H.L. Hopes to Extend Its Reach to Latino Audiences**\
 `The league’s recent agreement with ESPN grants the network media rights in Latin America, and some teams already regularly broadcast games on the radio in Spanish.`\
