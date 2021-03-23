@@ -14,4 +14,8 @@ https://nytimes.com/2021/03/23/arts/music/paul-jackson-dead.html?searchResultPos
 `Scientists are examining a possible link to tinnitus. A businessman’s suicide has lent urgency to the research.`\
 https://nytimes.com/2021/03/23/health/coronavirus-tinnitus.html?searchResultPosition=4
 
+**Putin, months after becoming eligible, has finally gotten a vaccine shot.**\
+`The president’s injection was not shown on television, an exception to the usual wall-to-wall coverage of Mr. Putin’s daily activities on state television.`\
+https://nytimes.com/2021/03/23/world/covid-vaccine-putin.html?searchResultPosition=5
+
 **Looking to stream the games? Here’s how.**\
