@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/23/opinion/asian-hate-crimes.html?searchResultPositi
 `The Sri Lankan government tried to block the inquiry into abuses committed by both Tamil Tigers guerrillas and security forces during the 30-year war.`\
 https://nytimes.com/2021/03/23/world/asia/sri-lanka-civil-war-un-investigation.html?searchResultPosition=3
 
-**Boulder Shooting, AstraZeneca, Israel Elections: Your Tuesday Evening Briefing**\
+**Boulder, AstraZeneca, Israel Elections: Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2021/03/23/briefing/boulder-shooting-astrazeneca-israel-elections.html?searchResultPosition=4
 
