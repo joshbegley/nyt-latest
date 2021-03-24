@@ -35,6 +35,6 @@ https://nytimes.com/2021/03/24/briefing/boulder-shooting-george-segal-astrazenec
 https://nytimes.com/2021/03/24/parenting/moms-coronavirus-mental-health.html?searchResultPosition=9
 
 **14 Arrested at Protest Over U.K. Policing Bill**\
-`The rally in Bristol, England, followed violent clashes on Sunday. The demonstrations are part of a broader movement against a proposed law that would bolster the authorities’ power to disperse protests.`\
+`The rally in Bristol followed violent clashes on Sunday. The demonstrations are part of a broader movement against a proposed law that would bolster the authorities’ power to disperse protests.`\
 https://nytimes.com/2021/03/24/world/europe/uk-bristol-protest-police-bill.html?searchResultPosition=10
 
