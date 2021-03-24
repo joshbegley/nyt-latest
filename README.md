@@ -20,7 +20,7 @@ https://nytimes.com/2021/03/24/movies/bob-odenkirk-nobody.html?searchResultPosit
 
 **Divorce Rates Are Now Dropping. Here Are Some Reasons Why.**\
 `Some divorce lawyers and relationship experts said that the uncertainty of the pandemic and financial concerns are two reasons couples are staying together.`\
-https://nytimes.com/2021/03/24/style/divorce-rates-are-now-dropping-here-are-some-reasons-why.html?searchResultPosition=6
+https://nytimes.com/2021/03/24/style/divorce-rates-dropping.html?searchResultPosition=6
 
 **Watch Live: Senate Panel Focuses on Voting Rights**\
 `The Senate Rules Committee is hearing testimony on a federal elections overhaul to expand voting rights.`\
