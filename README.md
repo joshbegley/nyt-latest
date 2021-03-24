@@ -1,5 +1,5 @@
-**A Defiant North Korea Launches Its 1st Missile Test Under Biden**\
-`The test took place off the west coast of North Korea on Sunday, just days after the country accused the United States and South Korea of raising “a stink” on the Korean Peninsula.`\
+**North Korea Launches Missile Test As Tensions Rise With U.S.**\
+`The test was the first by Pyongyang since President Biden took office and came after it accused the United States and South Korea of raising “a stink” on the Korean Peninsula.`\
 https://nytimes.com/2021/03/24/world/asia/north-korea-missile-tests-biden.html?searchResultPosition=1
 
 **Stephen Colbert Suggests Guns Be Regulated Like Cars and Alcohol**\
