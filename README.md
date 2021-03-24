@@ -16,7 +16,7 @@ https://nytimes.com/2021/03/24/business/dealbook/bull-market-bubble.html?searchR
 
 **After 4th Vote in 2 Years, Israelis Wonder: When Will the Political Morass End?**\
 `With 90 percent of ballots counted, the results of the latest election point to another possible stalemate. That has prompted some soul-searching about the state of the country’s democracy.`\
-https://nytimes.com/2021/03/24/world/israel-election-netanyahu.html?searchResultPosition=5
+https://nytimes.com/2021/03/24/world/middleeast/israel-election-netanyahu.html?searchResultPosition=5
 
 **Alphonso Davies Wants to Share His Story**\
 `The Bayern Munich star didn’t learn his own refugee story until his parents talked about it in a team video. He has come to embrace its power, and its effect on others.`\
