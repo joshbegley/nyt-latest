@@ -26,15 +26,15 @@ https://nytimes.com/2021/03/24/sports/ncaabasketball/louisville-gets-another-com
 `The pharmaceutical industry doesn’t want things to change, but Americans can have both lower prices and innovation.`\
 https://nytimes.com/2021/03/24/opinion/coronavirus-vaccine-cost-pfizer-moderna.html?searchResultPosition=7
 
+**A heavily armed man has been arrested at an Atlanta grocery store.**\
+`A man was charged with reckless conduct after walking into an Atlanta grocery store wearing body armor and carrying five guns, the police said.`\
+https://nytimes.com/2021/03/24/us/atlanta-publix-arrest.html?searchResultPosition=8
+
 **White House Weighs Executive Orders on Gun Control**\
 `A day after President Biden called on Congress to pass a new assault weapons ban and tougher background checks, the administration was considering steps it could take without legislation.`\
-https://nytimes.com/2021/03/24/us/politics/white-house-gun-control-executive-orders.html?searchResultPosition=8
+https://nytimes.com/2021/03/24/us/politics/white-house-gun-control-executive-orders.html?searchResultPosition=9
 
 **In-Game Video Returns to Baseball, With Some Changes**\
 `Video rooms played a key role in a cheating scandal, but they were closed last year to encourage social distancing. Their return is welcome news for many hitters who struggled without them.`\
-https://nytimes.com/2021/03/24/sports/baseball/in-game-video.html?searchResultPosition=9
-
-**Biden Plots a Revolution for America’s Children**\
-`National pre-K and affordable day care don’t have to be a dream.`\
-https://nytimes.com/2021/03/24/opinion/biden-child-poverty.html?searchResultPosition=10
+https://nytimes.com/2021/03/24/sports/baseball/in-game-video.html?searchResultPosition=10
 
