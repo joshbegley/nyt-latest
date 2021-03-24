@@ -1,5 +1,5 @@
 **Suez Canal Blocked After Container Ship Gets Stuck**\
-`The ship, the Ever Given, was packed with containers when high winds and poor visibility caused it to run aground in one of the world’s most vital trading routes, blocking traffic in both directions.`\
+`By Wednesday morning, more than 100 ships were stuck at each end of the canal, which carries roughly 10 percent of worldwide shipping traffic.`\
 https://nytimes.com/2021/03/24/world/middleeast/suez-canal-blocked-ship.html?searchResultPosition=1
 
 **The Long Road to Impeachment in New York**\
