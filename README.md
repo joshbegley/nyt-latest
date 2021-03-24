@@ -30,11 +30,11 @@ https://nytimes.com/2021/03/24/books/sharon-stone-beauty-of-living-twice.html?se
 `After the city struggled to contain large crowds with its police force, Black leaders questioned the tactics.`\
 https://nytimes.com/2021/03/24/us/florida-miami-spring-break-black-tourists.html?searchResultPosition=8
 
-**The Biggest Influencers of the Pandemic May Not Be Who You Assume**\
-`Forget Instagram. Cherchez the costume designers. It’s time they got their due.`\
-https://nytimes.com/2021/03/24/fashion/ruth-carter-fashion-influencers.html?searchResultPosition=9
-
 **The Next Trick: Pulling Coronavirus Out of Thin Air**\
 `Thermo Fisher Scientific’s new air sampler can help monitor for airborne pathogens, and signals renewed interest in bioaerosol surveillance.`\
-https://nytimes.com/2021/03/24/health/coronavirus-testing-airborne-aerosol-indoor.html?searchResultPosition=10
+https://nytimes.com/2021/03/24/health/coronavirus-testing-airborne-aerosol-indoor.html?searchResultPosition=9
+
+**The Biggest Influencers of the Pandemic May Not Be Who You Assume**\
+`Forget Instagram. Cherchez the costume designers. It’s time they got their due.`\
+https://nytimes.com/2021/03/24/fashion/ruth-carter-fashion-influencers.html?searchResultPosition=10
 
