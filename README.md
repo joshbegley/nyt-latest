@@ -1,4 +1,4 @@
-**A Community Mourns 10 Lives Lost in Boulder**\
+**‘Beyond Comprehension:’ 10 Lives Lost in Boulder**\
 `Ten people were shot to death at a Colorado grocery store on Monday. The victims included a police officer who was among the first to arrive on the scene.`\
 https://nytimes.com/2021/03/23/us/colorado-shooting-victims.html?searchResultPosition=1
 
