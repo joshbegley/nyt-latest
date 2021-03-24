@@ -1,4 +1,4 @@
-**Housing Boss Accused of Sexual Abuse Is Arrested in Bribery Scheme**\
+**Housing Boss Who Was Accused of Sexual Abuse Now Faces Bribery Charges**\
 `Prosecutors accused Victor Rivera of enriching himself through kickbacks as he led one of the largest homeless shelter operations in New York City.`\
 https://nytimes.com/2021/03/24/nyregion/victor-rivera-arrested-bronx.html?searchResultPosition=1
 
