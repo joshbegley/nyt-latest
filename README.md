@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/24/sports/baseball/foreign-substance-ball-doctoring.
 `A reader recounts an unexpected experience of relief and euphoria. Also: The Afghan war; a family tribute in Ireland.`\
 https://nytimes.com/2021/03/24/opinion/letters/covid-vaccine.html?searchResultPosition=2
 
-**Harris is tasked with helping to stem the flow of migrants by working with Central American countries.**\
+**Harris will work with Central American countries to reduce migration.**\
 `The announcement puts Vice President Kamala Harris in the middle of one of the most charged and contentious issues for the White House.`\
 https://nytimes.com/2021/03/24/us/politics/harris-immigration-central-america.html?searchResultPosition=3
 
