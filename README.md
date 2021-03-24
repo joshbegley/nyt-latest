@@ -22,8 +22,8 @@ https://nytimes.com/2021/03/24/movies/bob-odenkirk-nobody.html?searchResultPosit
 `Some divorce lawyers and relationship experts said that the uncertainty of the pandemic and financial concerns are two reasons couples are staying together.`\
 https://nytimes.com/2021/03/24/style/divorce-rates-are-now-dropping-here-are-some-reasons-why.html?searchResultPosition=6
 
-**Watch Live: Senate Debates Voting Rights Bill**\
-`On Wednesday, the Senate will debate the For the People Act, a bill to expand voting rights, change campaign finance laws and limit gerrymandering.`\
+**Watch Live: Senate Panel Focuses on Voting Rights**\
+`The Senate Rules Committee is hearing testimony on a federal elections overhaul to expand voting rights.`\
 https://nytimes.com/video/us/politics/100000007671878/people-act-live-voting-rights.html?searchResultPosition=7
 
 **How 10 Prominent Economists Think About Overheating**\
