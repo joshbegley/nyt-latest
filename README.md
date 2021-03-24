@@ -28,7 +28,7 @@ https://nytimes.com/video/us/politics/100000007671878/people-act-live-voting-rig
 
 **How 10 Prominent Economists Think About Overheating**\
 `Some notable participants in the debate over the Biden stimulus tell us, in their words, what a too-hot economy would look like.`\
-https://nytimes.com/2021/03/24/upshot/how-10-prominent-economists-think-about-overheating.html?searchResultPosition=8
+https://nytimes.com/2021/03/24/upshot/economy-inflation.html?searchResultPosition=8
 
 **If the Economy Overheats, How Will We Know?**\
 `We asked some prominent participants in the Great Overheating Debate of 2021 to explain what inflationary trends they’re afraid of (or not, as the case may be).`\
