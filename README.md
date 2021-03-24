@@ -22,15 +22,15 @@ https://nytimes.com/2021/03/24/business/media/tribune-alden-global-bainum.html?s
 `Read the statement Dr. Levine released in response to her confirmation as assistant secretary of health.`\
 https://nytimes.com/interactive/2021/03/24/us/rachel-levine-statement.html?searchResultPosition=7
 
-**Rachel Levine, Biden’s pick for health post, is first openly transgender official to be confirmed by Senate.**\
-`The Senate vote, 52 to 48, followed a contentious confirmation hearing that became a flash point in the battle over transgender rights.`\
-https://nytimes.com/2021/03/24/us/politics/rachel-levine-transgender-senate.html?searchResultPosition=8
-
 **U.S. and Allies Must ‘Stand Together,’ Blinken Says**\
 `Secretary of State Antony J. Blinken sought to mend strained relations during a visit to NATO and the European Union this week, promising a more inclusive approach while encouraging members to stand strong against threats from China and Russia.`\
-https://nytimes.com/video/us/politics/100000007672909/blinken-nato-china-russia.html?searchResultPosition=9
+https://nytimes.com/video/us/politics/100000007672909/blinken-nato-china-russia.html?searchResultPosition=8
 
 **Oregon fights its way past Georgia into the Sweet 16.**\
 `By Gillian R. Brassil`\
-https://nytimes.com/2021/03/24/sports/ncaabasketball/oregon-beats-georgia.html?searchResultPosition=10
+https://nytimes.com/2021/03/24/sports/ncaabasketball/oregon-beats-georgia.html?searchResultPosition=9
+
+**Adam Zagajewski, Poet of the Past’s Presence, Dies at 75**\
+`A dissident in Communist Poland in the late 1960s — his writing was banned for a time — he found wider fame as an exile in Paris and taught in the U.S.`\
+https://nytimes.com/2021/03/24/books/adam-zagajewski-dead.html?searchResultPosition=10
 
