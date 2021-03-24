@@ -4,7 +4,7 @@ https://nytimes.com/2021/03/24/dining/passover-recipes.html?searchResultPosition
 
 **Free With Your Covid Shot: Beer, Arcade Tokens and Krispy Kreme Doughnuts**\
 `Businesses across the United States and beyond are offering free stuff to people who have been vaccinated. The perks include movie popcorn, alcohol and even marijuana.`\
-https://nytimes.com/2021/03/24/us/vaccine-freebies.html?searchResultPosition=2
+https://nytimes.com/2021/03/24/business/vaccine-freebies.html?searchResultPosition=2
 
 **Her Film on Sex Assault Depicts Her Own and Fuels a #MeToo Moment**\
 `Danijela Stajnfeld included her account of being assaulted in a film that has led to contentious debate in Serbia and prompted other women to come forward to say they were sexually abused.`\
