@@ -24,7 +24,7 @@ https://nytimes.com/2021/03/24/style/divorce-rates-dropping.html?searchResultPos
 
 **Watch Live: Senate Panel Focuses on Voting Rights**\
 `The Senate Rules Committee is hearing testimony on a federal elections overhaul to expand voting rights.`\
-https://nytimes.com/video/us/politics/100000007671878/people-act-live-voting-rights.html?searchResultPosition=7
+https://nytimes.com/video/embedded/us/politics/100000007671878/people-act-live-voting-rights.html?searchResultPosition=7
 
 **How 10 Prominent Economists Think About Overheating**\
 `Some notable participants in the debate over the Biden stimulus tell us, in their words, what a too-hot economy would look like.`\
