@@ -1,6 +1,6 @@
 **That Salmon on Your Plate Might Have Been a Vegetarian**\
 `Pescatarians take note: Farmed fish are eating more veggies and less wild fish, according to new research. That’s good news for nature.`\
-https://nytimes.com/2021/03/24/climate/fish-farms-aquaculture.html?searchResultPosition=1
+https://nytimes.com/2021/03/24/climate/salmon-vegetarian-fish.html?searchResultPosition=1
 
 **How Lonnie Smith Found an Unlikely New Collaborator: Iggy Pop**\
 `The soul-jazz organist and the punk frontman worked together on a pair of covers and discovered a musical kinship.`\
