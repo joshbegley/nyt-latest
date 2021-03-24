@@ -32,7 +32,7 @@ https://nytimes.com/2021/03/24/upshot/how-10-prominent-economists-think-about-ov
 
 **If the Economy Overheats, How Will We Know?**\
 `We asked some prominent participants in the Great Overheating Debate of 2021 to explain what inflationary trends they’re afraid of (or not, as the case may be).`\
-https://nytimes.com/2021/03/24/upshot/economy-inflation-overheating.html?searchResultPosition=9
+https://nytimes.com/2021/03/24/upshot/economy-overheat.html?searchResultPosition=9
 
 **Germany’s last-minute Easter shutdown gets an even more last-minute reversal.**\
 `The abandonment of a plan for an extended spring holiday is the latest in a series of chaotic moves as Chancellor Angela Merkel’s government confronts a third wave of coronavirus cases.`\
