@@ -1,4 +1,4 @@
-**E.U. Set to Curb Vaccine Exports for 6 Weeks**\
+**E.U. Set to Curb Covid Vaccine Exports for 6 Weeks**\
 `The European Union has drafted new emergency rules that will most likely severely cut exports to Britain and other countries to ease supply shortages at home.`\
 https://nytimes.com/2021/03/23/world/europe/eu-curbs-vaccine-exports.html?searchResultPosition=1
 
