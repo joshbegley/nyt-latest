@@ -34,7 +34,7 @@ https://nytimes.com/slideshow/2021/03/24/realestate/a-former-general-store-in-so
 `Lawyers, judges and lawmakers are advancing a bold idea: The powerful algorithms used by Facebook, YouTube and Twitter could make them complicit in offline crimes.`\
 https://nytimes.com/2021/03/24/technology/section-230-hearing-facebook.html?searchResultPosition=9
 
-**The Brooch Is Back, Baby**\
-`“These days, better than a tweet,” as one stylist put it.`\
-https://nytimes.com/2021/03/24/style/lady-gaga-brooch-brooches-pins-gucci-schiaparelli.html?searchResultPosition=10
+**Watch live: Jerome Powell and Janet Yellen testify on the pandemic recovery.**\
+`By Jeanna Smialek and Alan Rappeport`\
+https://nytimes.com/2021/03/24/business/powell-yellen-testify-congress.html?searchResultPosition=10
 
