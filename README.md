@@ -1,4 +1,4 @@
-**Severe Storms Threaten the Southeast With an Outbreak of Tornadoes**\
+**Violent Tornadoes Are a Threat as Thunderstorms Hit Southeast**\
 `Portions of Mississippi, Alabama, Tennessee and Georgia faced the highest risk of tornadoes, forecasters said.`\
 https://nytimes.com/2021/03/25/us/tornadoes-southeast.html?searchResultPosition=1
 
