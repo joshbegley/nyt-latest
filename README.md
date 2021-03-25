@@ -1,40 +1,40 @@
+**On Google Podcasts, a Buffet of Hate**\
+`The platform’s tolerance of white supremacist, pro-Nazi and conspiracy theory content pushes the boundaries of the medium.`\
+https://nytimes.com/2021/03/25/arts/google-podcasts-extremism.html?searchResultPosition=1
+
 **N.C.A.A. Orders Review of Gender Inequity of Tournaments**\
 `The governing body of college sports turned to a civil rights lawyer, Roberta A. Kaplan, after criticism of its management of the women’s basketball tournament.`\
-https://nytimes.com/2021/03/25/sports/ncaabasketball/ncaa-womens-tournament-gender-equity.html?searchResultPosition=1
+https://nytimes.com/2021/03/25/sports/ncaabasketball/ncaa-womens-tournament-gender-equity.html?searchResultPosition=2
 
 **Pharoah Sanders and Floating Points Meet in the Atmosphere**\
 `On “Promises,” their new collaborative album, Sanders’s tenor saxophone becomes one with the electronic composer’s web of humming synthesizers.`\
-https://nytimes.com/2021/03/25/arts/music/floating-points-pharoah-sanders-promises-review.html?searchResultPosition=2
+https://nytimes.com/2021/03/25/arts/music/floating-points-pharoah-sanders-promises-review.html?searchResultPosition=3
 
 **Biden expects to run for re-election in 2024, and says ‘I have no idea whether there will be a Republican Party, do you?’**\
 `President Biden added that he was confident that Vice President Kamala Harris would also be on the ticket.`\
-https://nytimes.com/2021/03/25/us/biden-reelection-2024.html?searchResultPosition=3
+https://nytimes.com/2021/03/25/us/biden-reelection-2024.html?searchResultPosition=4
 
 **American Ballet Theater’s Leader to Step Down After 30 Years**\
 `Kevin McKenzie, the company’s artistic director, will leave his job after the 2022 season.`\
-https://nytimes.com/2021/03/25/arts/dance/american-ballet-theater-mckenzie-retirement.html?searchResultPosition=4
+https://nytimes.com/2021/03/25/arts/dance/american-ballet-theater-mckenzie-retirement.html?searchResultPosition=5
 
 **A Novel Way to Finance School May Penalize Students from H.B.C.U.s, Study Finds**\
 `Income-share agreements are gaining popularity, but a new analysis highlights how calculations of what borrowers owe can disadvantage minorities.`\
-https://nytimes.com/2021/03/25/business/student-loans-black-students-hbcu.html?searchResultPosition=5
+https://nytimes.com/2021/03/25/business/student-loans-black-students-hbcu.html?searchResultPosition=6
 
 **Covid Tests for Cuomo’s Family**\
 `Readers differ on whether the governor abused his power in giving family members access to early testing. Also: Spending a stimulus check; why poor nutrition exists; the drop in medical screenings.`\
-https://nytimes.com/2021/03/25/opinion/letters/cuomo-covid.html?searchResultPosition=6
+https://nytimes.com/2021/03/25/opinion/letters/cuomo-covid.html?searchResultPosition=7
 
 **U.S. troops to withdraw from Afghanistan within a year, Biden suggests.**\
 `President Biden also warned North Korea that if they choose to escalate their violations of U.N. resolutions that the U.S. “will respond accordingly.”`\
-https://nytimes.com/2021/03/25/us/biden-afghanistan-north-korea.html?searchResultPosition=7
+https://nytimes.com/2021/03/25/us/biden-afghanistan-north-korea.html?searchResultPosition=8
 
 **Canada Supreme Court Rules Federal Carbon Tax Is Constitutional**\
 `In rejecting a request from some provinces to strike down national carbon pricing, the court declared that the measure meets an important national need.`\
-https://nytimes.com/2021/03/25/world/canada/canada-supreme-court-carbon-pricing.html?searchResultPosition=8
+https://nytimes.com/2021/03/25/world/canada/canada-supreme-court-carbon-pricing.html?searchResultPosition=9
 
 **What’s Going On in This Graph? | March 31, 2021**\
 `What are the primary climate risks around the world that could be faced by 2040 if greenhouse-gas emissions are not cut drastically?`\
-https://nytimes.com/2021/03/25/learning/whats-going-on-in-this-graph-march-31-2021.html?searchResultPosition=9
-
-**Violent Tornadoes Are a Threat as Thunderstorms Hit Southeast**\
-`Portions of Mississippi, Alabama, Tennessee and Georgia faced the highest risk of tornadoes, forecasters said.`\
-https://nytimes.com/2021/03/25/us/tornadoes-southeast.html?searchResultPosition=10
+https://nytimes.com/2021/03/25/learning/whats-going-on-in-this-graph-march-31-2021.html?searchResultPosition=10
 
