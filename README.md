@@ -11,7 +11,7 @@ https://nytimes.com/2021/03/25/learning/word-of-the-day-imbue.html?searchResultP
 https://nytimes.com/2021/03/25/arts/television/jimmy-fallon-suez-canal.html?searchResultPosition=3
 
 **South Africa Court Set to Rule on Jacob Zuma, and an Era of Impunity**\
-`‘He is now running out of legal runway,’ one law expert says, as the country’s highest court will decide whether the former president can be jailed for contempt.`\
+`“He is now running out of legal runway,” one law expert says, as the country’s highest court will decide whether the former president can be jailed for contempt.`\
 https://nytimes.com/2021/03/25/world/africa/jacob-zuma-south-africa-court.html?searchResultPosition=4
 
 **New Zealand Approves Paid Leave After Miscarriage**\
