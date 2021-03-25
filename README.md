@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/25/health/coronavirus-children-vaccinations-pfizer.h
 `Gov. Ron DeSantis said on Thursday that Florida would open Covid-19 vaccine eligibility to residents 40 or older on Monday, then to those 18 and older on April 5.`\
 https://nytimes.com/video/us/politics/100000007674304/florida-vaccine-eligibility.html?searchResultPosition=2
 
-**German Publisher Reinstates Editor Accused of Misconduct**\
+**Accused German Editor Is Reinstated, but With a Co-Editor**\
 `The chief of the tabloid-style Bild newspaper ‘made mistakes’ but does not deserve to lose his job, an inquiry found. He will share power with a female colleague.`\
 https://nytimes.com/2021/03/25/business/springer-reinstates-bild-editor.html?searchResultPosition=4
 
