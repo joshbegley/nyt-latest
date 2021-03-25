@@ -1,40 +1,40 @@
-**This Island Nation Had Zero Covid Cases for Months. Now It’s Overwhelmed.**\
-`The crisis in Papua New Guinea is a reminder that the virus will keep wreaking havoc until the whole world is vaccinated.`\
-https://nytimes.com/2021/03/25/world/australia/papua-new-guinea-coronavirus.html?searchResultPosition=1
+**15 New Books to Watch For in April**\
+`Dive into a long-awaited biography of Philip Roth, an exposé of the Sackler family and novels from Cynthia D’Aprix Sweeney, Jhumpa Lahiri and Katherine Heiny.`\
+https://nytimes.com/2021/03/25/books/april-2021-books.html?searchResultPosition=1
 
-**Word of the Day: imbue**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/03/25/learning/word-of-the-day-imbue.html?searchResultPosition=2
+**Longing for a Shot at the Majors, but Sitting Out the Sabbath**\
+`Elie Kligman can do anything on a baseball field, but his strict observance of the Jewish sabbath complicates his future.`\
+https://nytimes.com/2021/03/25/sports/baseball/elie-kligman-jewish-sabbath.html?searchResultPosition=2
 
-**Jimmy Fallon Pities the Suez Canal’s ‘Dockblocker’**\
-`“If you look closely, the ship has a tiny bumper sticker that says ‘student driver,’” Fallon said of the vessel that’s causing a world-class traffic jam.`\
-https://nytimes.com/2021/03/25/arts/television/jimmy-fallon-suez-canal.html?searchResultPosition=3
+**Searching for Roger Federer**\
+`In 2019, a fan traveled to the Swiss tennis star’s birthplace: ‘The fact that I was able to walk in Mr. Federer’s footsteps, and sit in a packed arena with 10,000 unmasked fans and watch him play feels like a dream to me now.’`\
+https://nytimes.com/2021/03/25/travel/roger-federer-switzerland.html?searchResultPosition=3
 
-**South Africa Court Set to Rule on Jacob Zuma, and an Era of Impunity**\
-`“He is now running out of legal runway,” one law expert says, as the country’s highest court will decide whether the former president can be jailed for contempt.`\
-https://nytimes.com/2021/03/25/world/africa/jacob-zuma-south-africa-court.html?searchResultPosition=4
+**Amazon Walks a Political Tightrope in Its Union Fight**\
+`The company has always opposed efforts by its workers to organize, but its regulatory fate rests largely with Democrats in Washington.`\
+https://nytimes.com/2021/03/25/technology/amazon-union-politics.html?searchResultPosition=4
 
-**New Zealand Approves Paid Leave After Miscarriage**\
-`The measure, believed to be among the first in the world, would apply to couples who lose a pregnancy at any point.`\
-https://nytimes.com/2021/03/25/world/asia/new-zealand-miscarriage-paid-leave.html?searchResultPosition=5
+**In Indianapolis, Checking the Bracket Means Looking Up**\
+`Line by line, workers update this avatar for March Madness.`\
+https://nytimes.com/2021/03/25/sports/ncaabasketball/ncaa-tournament-indianapolis-bracket.html?searchResultPosition=5
 
-**Texas rolls past U.C.L.A. and into the Sweet 16.**\
-`By Gillian R. Brassil`\
-https://nytimes.com/2021/03/24/sports/ncaabasketball/texas-rolls-past-ucla-and-into-the-sweet-16.html?searchResultPosition=6
+**8 Candidates Compete for a Job That May Involve Prosecuting Trump**\
+`Who will be the next Manhattan district attorney? The race is dominated by low-profile progressives who could reshape law enforcement in New York City.`\
+https://nytimes.com/2021/03/25/nyregion/manhattan-district-attorney-election.html?searchResultPosition=6
 
-**Supply Isn’t the Only Thing Stymying Europe’s Vaccine Rollout**\
-`Bureaucratic inertia, a diffusion of responsibility and logistical problems have seriously undercut vaccination efforts. In Italy, it’s the older population that bears the brunt.`\
-https://nytimes.com/2021/03/25/world/europe/italy-vaccine-astrazeneca-coronavirus.html?searchResultPosition=7
+**Johnson Hopes Vaccine Success Can Inoculate Him Against Brexit Critics**\
+`The British prime minister is riding high on a strong vaccine rollout, despite a bumpy departure from the European Union and earlier pandemic missteps.`\
+https://nytimes.com/2021/03/25/world/europe/boris-johnson-vaccine-brexit.html?searchResultPosition=7
 
-**Your Thursday Briefing**\
-`Italy’s vaccine missteps.`\
-https://nytimes.com/2021/03/24/briefing/vaccinations-italy-myanmar-israel-election.html?searchResultPosition=8
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/03/25/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=8
 
-**Corrections: March 25, 2021**\
-`Corrections that appeared in print on Thursday, March 25, 2021.`\
-https://nytimes.com/2021/03/24/pageoneplus/corrections-march-25-2021.html?searchResultPosition=9
+**What Is Life Without Burlesque?**\
+`Their venues are closed and their stages are dark, but New York City’s burlesque performers are itching for the return of feathers, tassles and harnesses.`\
+https://nytimes.com/2021/03/25/nyregion/nightlife-burlesque-nyc.html?searchResultPosition=9
 
-**Quotation of the Day: ‘I Will Die Protecting My Country’: Myanmar’s Coup Resisters**\
-`Quotation of the Day for Thursday, March 25, 2021.`\
-https://nytimes.com/2021/03/24/todayspaper/quotation-of-the-day-i-will-die-protecting-my-country-myanmars-coup-resisters.html?searchResultPosition=10
+**Biden May Be the Most Pro-Labor President Ever; That May Not Save Unions**\
+`Labor leaders are effusive in praising the new president, but experts worry that he may be powerless to reverse unions’ long-term decline.`\
+https://nytimes.com/2021/03/25/business/economy/biden-union-labor-amazon.html?searchResultPosition=10
 
