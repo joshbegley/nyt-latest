@@ -1,4 +1,4 @@
-**The race for mayor is still wide open**\
+**The Race for Mayor Is Still Wide Open**\
 `Only two New York City candidates garnered double-digit support in a poll of Democrats. A crowded field and the pandemic are complications.`\
 https://nytimes.com/2021/03/25/nyregion/nyc-mayoral-race-undecided.html?searchResultPosition=1
 
