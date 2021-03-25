@@ -1,4 +1,4 @@
-**Texas rolls past U.C.L.A. and Into the Sweet 16.**\
+**Texas rolls past U.C.L.A. and into the Sweet 16.**\
 `By Gillian R. Brassil`\
 https://nytimes.com/2021/03/24/sports/ncaabasketball/texas-rolls-past-ucla-and-into-the-sweet-16.html?searchResultPosition=1
 
