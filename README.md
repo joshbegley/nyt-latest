@@ -1,6 +1,6 @@
 **Here’s how to watch Biden’s news conference.**\
 `President Biden will hold his first formal news conference as president on Thursday.`\
-https://nytimes.com/2021/03/25/us/biden-how-to-watch.html?searchResultPosition=1
+https://nytimes.com/2021/03/25/us/biden-news-conference-streaming-time-details.html?searchResultPosition=1
 
 **American Sign Language Finds Its Spotlight**\
 `Across all performative mediums, today’s Deaf creatives are celebrating, protecting and sharing their distinct mode of communication.`\
