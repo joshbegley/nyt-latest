@@ -1,4 +1,4 @@
-**This Island Nation Had Zero Covid Cases as of June. Now It’s Overwhelmed.**\
+**This Island Nation Had Zero Covid Cases for Months. Now It’s Overwhelmed.**\
 `The crisis in Papua New Guinea is a reminder that the virus will keep wreaking havoc until the whole world is vaccinated.`\
 https://nytimes.com/2021/03/25/world/australia/papua-new-guinea-coronavirus.html?searchResultPosition=1
 
