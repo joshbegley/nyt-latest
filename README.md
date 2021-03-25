@@ -24,7 +24,7 @@ https://nytimes.com/2021/03/25/style/checking-in-social-qs.html?searchResultPosi
 
 **200 million vaccines in 100 days is the new goal, Biden to say, though the U.S. is already on track to meet that.**\
 `The U.S. has been averaging about 2.5 million doses a day during the last week. If that pace continues, the nation would surpass the 200 million shots goal before April 30, the president’s 100th day.`\
-https://nytimes.com/2021/03/25/us/200-million-vaccines.html?searchResultPosition=7
+https://nytimes.com/2021/03/25/us/biden-vaccines-goal.html?searchResultPosition=7
 
 **Watch Live: Biden Holds First News Conference**\
 `On Thursday, President Biden will take questions from reporters at his first news conference.`\
