@@ -1,36 +1,40 @@
-**Five Facts About Gun Violence**\
-`We look at five key facts about gun violence — and the politics of the issue.`\
-https://nytimes.com/2021/03/25/briefing/gun-control-suez-canal-ship-vaccine-astrazeneca.html?searchResultPosition=2
+**With Captivating Performances, Black Figure Skaters Strike More Than Gold**\
+`As the Black Lives Matter movement advanced, the ice became a platform for athletes who are also artists.`\
+https://nytimes.com/2021/03/25/sports/figure-skating-worlds.html?searchResultPosition=1
 
-**United Airlines will add more than two dozen flights as leisure travel picks up.**\
-`Airports have been consistently busier in recent weeks than at any point in the past year, although passenger screenings are still down more than 40 percent compared with the same period in 2019.`\
-https://nytimes.com/2021/03/25/business/united-airlines-flights.html?searchResultPosition=3
+**The ‘Solar Opposites’ Creators Apologize for Their Clairvoyance**\
+`Who knew an animated series about misanthropic space aliens could feel so relevant? Mike McMahan and Justin Roiland explained ahead of Season 2 why it isn’t their fault.`\
+https://nytimes.com/2021/03/25/arts/television/solar-opposites-season-2-roiland-mcmahan.html?searchResultPosition=2
 
-**Unemployment claims will indicate the recovery’s traction.**\
-`The labor market has lagged behind other measures of recovery, with the unemployment rate still nearly three percentage points above where it was a year ago.`\
-https://nytimes.com/2021/03/25/business/weekly-unemployment-claims.html?searchResultPosition=4
+**‘Six Minutes to Midnight’ Review: A Finishing School for the Nazi Elite**\
+`In this suspense thriller set in the 1930s, Judi Dench and Eddie Izzard are stalwart Brits at a sinister girl’s school in England.`\
+https://nytimes.com/2021/03/25/movies/six-minutes-to-midnight-review.html?searchResultPosition=3
 
-**Beige on an S.U.V. Will Cost You, but for Pickups It’s Golden**\
-`The paint job on your car is crucial to its resale value.`\
-https://nytimes.com/2021/03/25/business/car-paint-color-value.html?searchResultPosition=5
+**‘Miracle Fishing: Kidnapped Abroad’ Review: Harrowing Home Videos**\
+`The documentary is a unique record of the abduction that inspired the Hollywood thriller “Proof of Life.”`\
+https://nytimes.com/2021/03/25/movies/miracle-fishing-kidnapped-abroad-review.html?searchResultPosition=4
 
-**The State of Vaccinations**\
-`A look at the rapid expansion of shots, the people who are still holding out, and the rules of the road for those who are inoculated.`\
-https://nytimes.com/2021/03/25/podcasts/the-daily/coronavirus-vaccinations-joe-biden.html?searchResultPosition=6
+**‘Francesco’ Review: The Pope, Up Close, but Not That Close**\
+`The new documentary on Pope Francis is a missed opportunity to demystify elements of the papacy.`\
+https://nytimes.com/2021/03/25/movies/francesco-review-the-pope-up-close-but-not-that-close.html?searchResultPosition=5
 
-**By Zeus! Who Hath Angered the Theatrical Gods?**\
-`The drama behind the scenes at the Volksbühne in Berlin has surpassed any onstage. A series of premieres involving vengeful gods, inescapable fates and tragic flaws seems apt.`\
-https://nytimes.com/2021/03/25/theater/volksbuhne-theater-polis-reset.html?searchResultPosition=7
+**‘Tina’ Review: A Music Icon Looks Back With Grace**\
+`The documentary about Tina Turner, who is now in her 80s, is not just a summing up of her life, but a kind of farewell.`\
+https://nytimes.com/2021/03/25/movies/tina-review.html?searchResultPosition=6
 
-**The Race for Mayor Is Still Wide Open**\
-`Only two New York City candidates garnered double-digit support in a poll of Democrats. A crowded field and the pandemic are complications.`\
-https://nytimes.com/2021/03/25/nyregion/nyc-mayoral-race-undecided.html?searchResultPosition=8
+**‘Senior Moment’ Review: A Romance That Wouldn’t Hurt a Flea**\
+`This Giorgio Serafini movie takes us to a retirement center, a drag race and the DMV, not to mention a dizzying encounter on public transportation.`\
+https://nytimes.com/2021/03/25/movies/senior-moment-review.html?searchResultPosition=7
 
-**‘Essential’ Migrant Farmworkers Risk Infection and Deportation**\
-`In California, undocumented farmworkers have been labeled essential by the government and prioritized for vaccines. But public health officials face several challenges in reaching an unprotected population.`\
-https://nytimes.com/video/us/politics/100000007583626/covid-vaccine-undocumented-farm-workers.html?searchResultPosition=9
+**‘Shoplifters of the World’ Review: Breaking Up Is Hard to Do**\
+`Four friends process the breakup of their musical idols, The Smiths, in this gentle tale of teenage self-discovery.`\
+https://nytimes.com/2021/03/25/movies/shoplifters-of-the-world-review.html?searchResultPosition=8
 
-**After a rebuke, AstraZeneca releases new data that shows its vaccine is still highly effective.**\
-`The company said its shot was 76 percent effective at preventing Covid-19, a hair lower than the number it announced earlier this week.`\
-https://nytimes.com/2021/03/25/world/astrazeneca-vaccine.html?searchResultPosition=10
+**‘Bad Trip’ Review: On the Road, Leaking Fluid**\
+`Two pranksters, and a brace of hidden cameras, travel across country in this jauntily gross comedy.`\
+https://nytimes.com/2021/03/25/movies/bad-trip-review.html?searchResultPosition=9
+
+**‘Nobody’ Review: A Wolf in Wimp’s Clothing**\
+`Bob Odenkirk plays a family man with a secret past in this slick, shallow thriller.`\
+https://nytimes.com/2021/03/25/movies/nobody-review.html?searchResultPosition=10
 
