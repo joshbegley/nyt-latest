@@ -26,8 +26,8 @@ https://nytimes.com/2021/03/25/us/tornadoes-southeast.html?searchResultPosition=
 `Wildfires, refugee camps and the Arab Spring might be her primary sources. But a retrospective at the Whitney affirms she is an abstract painter, first and always.`\
 https://nytimes.com/2021/03/25/arts/design/julie-mehretu-whitney-review.html?searchResultPosition=7
 
-**G.O.P. attempts to restrict voting are ‘un-American,’ Biden says.**\
-`President Biden vowed to “do everything in my power, along with my friends in the House and the Senate, to keep that from becoming the law.”`\
+**‘This makes Jim Crow look like Jim Eagle,’ Biden says of G.O.P. efforts to curtail voting.**\
+`By Thomas Kaplan`\
 https://nytimes.com/2021/03/25/us/voting-rights-biden.html?searchResultPosition=8
 
 **India Cuts Back on Vaccine Exports as Infections Surge at Home**\
