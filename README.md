@@ -15,7 +15,7 @@ https://nytimes.com/2021/03/25/health/coronavirus-children-vaccinations-pfizer.h
 https://nytimes.com/video/us/politics/100000007674304/florida-vaccine-eligibility.html?searchResultPosition=5
 
 **Accused German Editor Is Reinstated, but With a Co-Editor**\
-`The chief of the tabloid-style Bild newspaper ‘made mistakes’ but does not deserve to lose his job, an inquiry found. He will share power with a female colleague.`\
+`The chief of the tabloid-style Bild newspaper “made mistakes” but does not deserve to lose his job, an inquiry found. He will share power with a female colleague.`\
 https://nytimes.com/2021/03/25/business/springer-reinstates-bild-editor.html?searchResultPosition=7
 
 **Boulder Shooting Suspect Appears in Court**\
