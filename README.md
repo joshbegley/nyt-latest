@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/25/business/rupert-murdoch-investors-business-daily.
 `A queasiness has set in among some people who have made ads promoting fossil fuels. One executive likened the shift to the ad industry’s move away from tobacco.`\
 https://nytimes.com/2021/03/25/business/media/climate-ad-agencies-fossil-fuels.html?searchResultPosition=3
 
-**Scientists Boost an Idea Long Thought Outlandish: Reflecting the Sun’s Rays**\
+**Scientists Support an Idea Long Thought Outlandish: Reflecting the Sun’s Rays**\
 `The National Academies said the United States must study technologies that would artificially cool the planet by blocking sunlight, citing the lack of progress fighting global warming.`\
 https://nytimes.com/2021/03/25/climate/geoengineering-sunlight.html?searchResultPosition=5
 
