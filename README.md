@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Decolonizing the Hunt for Dinosaurs and Other Fossils’**\
-`In this lesson, students will learn about attempts to make paleontology more inclusive and consider what should happen to artifacts that were stolen or taken by force during colonial rule.`\
-https://nytimes.com/2021/03/26/learning/lesson-of-the-day-decolonizing-the-hunt-for-dinosaurs-and-other-fossils.html?searchResultPosition=1
+**How The Times Covers Mass Shootings**\
+`Marc Lacey, an editor who manages live news coverage, shares the organization’s approach in handling extremely sensitive information.`\
+https://nytimes.com/2021/03/26/insider/reporters-mass-shootings.html?searchResultPosition=1
 
-**Seth Meyers Recaps Biden’s First Press Conference**\
-`The “Late Night” host says the president is at his best “when he’s got the vibe of an old-timer football coach giving his young squad an inspirational halftime speech.”`\
-https://nytimes.com/2021/03/26/arts/television/seth-meyers-biden-press-conference.html?searchResultPosition=2
+**‘How Did You Qualify?’ For the Young and Vaccinated, Rude Questions and Raised Eyebrows**\
+`Medical privacy has become the latest casualty of vaccination efforts, as friends, co-workers and even total strangers ask intrusive questions about personal health conditions.`\
+https://nytimes.com/2021/03/26/well/live/vaccine-shaming-medical-privacy.html?searchResultPosition=2
 
-**In Suez Canal, Stuck Ship Is a Warning About Excessive Globalization**\
-`The shutdown of the vital waterway and its impact on trade underscore the world’s reliance on global supply chains.`\
-https://nytimes.com/2021/03/26/business/ship-suez-canal.html?searchResultPosition=3
+**Jokes and Pranks Pave the Way For Love**\
+`Caroline Gholson and Andrew Fallon’s relationship was filled with “gotcha” moments from the start. But, Mr. Fallon’s bedroom proposal made his high jinks next level.`\
+https://nytimes.com/2021/03/26/style/weddings-marriage-love.html?searchResultPosition=3
 
-**Open Mouth**\
-`What do you think this image is saying?`\
-https://nytimes.com/2021/03/26/learning/open-mouth.html?searchResultPosition=4
+**How a Javits Center Vaccine Nurse Spends Her Sundays**\
+`‘This job makes me feel like I’m part of history.’`\
+https://nytimes.com/2021/03/26/nyregion/javits-center-vaccine-nyc.html?searchResultPosition=4
 
-**Those Mystery Lights Above Seattle and Portland? They Weren’t Meteors.**\
-`A Harvard astronomer said the objects were debris — or  “space junk” — from a SpaceX rocket. Not everyone got the memo.`\
-https://nytimes.com/2021/03/26/us/seattle-rocket-spacex.html?searchResultPosition=5
+**How Do You Stage a Global Art Show Now? In South Korea, Curators Press On.**\
+`The Gwangju Biennale, on tap for April 1, is the most closely watched art event in Asia.`\
+https://nytimes.com/2021/03/26/arts/design/gwangju-biennale-south-korea.html?searchResultPosition=5
 
-**Word of the Day: paradigm**\
-`This word has appeared in 167 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/03/26/learning/word-of-the-day-paradigm.html?searchResultPosition=6
+**Pitchers Are Hitting Again, So Injuries Will Follow**\
+`Players and owners want the D.H. Agents like Scott Boras think it is a safety issue. But N.L. pitchers will bat anyway — for now.`\
+https://nytimes.com/2021/03/26/sports/baseball/mlb-universal-designated-hitter.html?searchResultPosition=6
 
-**Australia Is Returning to Normal. But Should Everything?**\
-`From JobSeeker to working from home to … online menus?`\
-https://nytimes.com/2021/03/26/world/australia/australia-is-returning-to-normal-but-should-everything.html?searchResultPosition=7
+**Using Shame, Lending Apps in India Squeeze Billions Out of the Desperate**\
+`With techniques honed in China, a new breed of company offers expensive loans to people devastated by the pandemic. If they can’t repay, family and friends hear all about it.`\
+https://nytimes.com/2021/03/26/business/india-lending-apps.html?searchResultPosition=7
 
-**Why QAnon Flopped in Japan**\
-`It failed the test for conspiracy connoisseurs, and the public.`\
-https://nytimes.com/2021/03/26/opinion/qanon-japan-janon.html?searchResultPosition=8
+**For Biden, a New Virus Dilemma: How to Handle a Looming Glut of Vaccine**\
+`As U.S. manufacturers hit their stride, vaccine scarcity will soon turn to plenty as much of the world goes begging. And vaccine makers need answers now about what to do with the coming surplus.`\
+https://nytimes.com/2021/03/26/us/biden-coronavirus-vaccine.html?searchResultPosition=8
 
-**If I Expect It to End, Will It Hurt Less?**\
-`I kept telling myself not to believe in him. And yet, believe I did.`\
-https://nytimes.com/2021/03/26/style/modern-love-long-distance-friend-zone.html?searchResultPosition=9
+**Far-Right Extremists Move From ‘Stop the Steal’ to Stop the Vaccine**\
+`Extremist organizations are now bashing the safety and efficacy of coronavirus vaccines in an effort to try to undermine the government.`\
+https://nytimes.com/2021/03/26/us/far-right-extremism-anti-vaccine.html?searchResultPosition=9
 
-**Your Friday Briefing**\
-`President Biden’s first news conference.`\
-https://nytimes.com/2021/03/25/briefing/biden-filibuster-suez-canal.html?searchResultPosition=10
+**Talk Politics? Some Brokers Are Only Too Happy to Do So**\
+`Some real estate agents seem eager to post their political views on social media. But, especially in the last year, some of those messages veered toward hate speech, leading the industry to sharpen its ethics rules.`\
+https://nytimes.com/2021/03/26/realestate/brokers-politics-hate-speech.html?searchResultPosition=10
 
