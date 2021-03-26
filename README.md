@@ -4,7 +4,7 @@ https://nytimes.com/2021/03/26/us/florida-boat-stuck.html?searchResultPosition=1
 
 **Biden invites world leaders, including Putin and Xi, to a climate summit.**\
 `By David E. Sanger`\
-https://nytimes.com/2021/03/26/us/biden-invites-world-leaders-including-putin-and-xi-to-a-climate-summit.html?searchResultPosition=2
+https://nytimes.com/2021/03/26/us/biden-putin-xi-climate-summit.html?searchResultPosition=2
 
 **Kenya Places Stringent Restrictions on Nairobi and Surrounding Areas**\
 `President Uhuru Kenyatta of Kenya said on Friday that travel in and out of Nairobi and four surrounding counties would be prohibited as part of new measures to combat a third wave of Covid-19.`\
