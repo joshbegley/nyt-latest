@@ -8,7 +8,7 @@ https://nytimes.com/2021/03/26/world/asia/bretton-sciaroni-dead.html?searchResul
 
 **‘The Falcon and the Winter Soldier’ Season 1, Episode 2 Recap: Freedom Isn’t Free**\
 `It’s a big job being asked to symbolize an entire nation’s ideals, as the new Captain America is about to find out. But is he the best person for the job?`\
-https://nytimes.com/2021/03/26/arts/falcon-winter-soldier-recap.html?searchResultPosition=3
+https://nytimes.com/2021/03/26/arts/television/falcon-winter-soldier-recap.html?searchResultPosition=3
 
 **Volkswagen will seek damages from former executives accused in emissions fraud.**\
 `Volkswagen had been reluctant to publicly accuse former top managers of complicity in the emissions fraud, which has cost Volkswagen tens of billions of euros in fines, settlements and legal fees.`\
