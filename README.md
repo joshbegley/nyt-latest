@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/26/world/canada/Winnipeg-Art-Gallery-Inuit.html?sear
 `At his news conference on Thursday, the president provided a revealing look into how he viewed the threat from Beijing.`\
 https://nytimes.com/2021/03/26/us/politics/biden-china-democracy.html?searchResultPosition=2
 
-**Michael Bennett, Small Town Doctor Who Pushed for Masks, Dies at 52**\
+**Michael Bennett, Small-Town Doctor Who Pushed for Masks, Dies at 52**\
 `His death leaves only one family physician in Greenfield, Mo. He died of complications of Covid-19.`\
 https://nytimes.com/2021/03/26/obituaries/michael-bennett-dead-covid.html?searchResultPosition=3
 
