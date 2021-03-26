@@ -1,5 +1,5 @@
 **House Taps Military Official to Lead Security**\
-`The selection Maj. Gen. William J. Walker as House sergeant-in-arms will place the security of both chambers of Congress in the hands of accomplished military leaders after the Jan. 6 riot.`\
+`The selection of Maj. Gen. William J. Walker as House sergeant-in-arms will place the security of both chambers of Congress in the hands of accomplished military leaders after the Jan. 6 riot.`\
 https://nytimes.com/2021/03/26/us/politics/william-walker-sergeant-at-arms.html?searchResultPosition=1
 
 **Amanda Gorman’s Poetry United Critics. It’s Dividing Translators.**\
