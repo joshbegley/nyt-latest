@@ -10,7 +10,7 @@ https://nytimes.com/2021/03/26/nyregion/alan-dershowitz-yale.html?searchResultPo
 `Powerful tornadoes tore through Georgia and Alabama on Thursday night, leaving residents to clear through the wreckage on Friday. Newnan, Ga., was one of the hardest hit areas.`\
 https://nytimes.com/video/us/100000007676875/georgia-storm-tornado-drone-footage.html?searchResultPosition=3
 
-**Drillers Burned Off Gas at a Staggering Rate as Blackout Hit Texas**\
+**Drillers Burned Off Gas at a Staggering Rate as Winter Storm Hit Texas**\
 `Frigid temperatures last month froze pipelines and forced companies to flare vast amounts of planet-warming gases that they suddenly had nowhere to send.`\
 https://nytimes.com/2021/03/26/climate/texas-blackout-flaring-natural-gas.html?searchResultPosition=4
 
