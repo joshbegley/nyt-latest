@@ -1,6 +1,6 @@
 **Hinkle Fieldhouse Is Still Ready for Its Closeup**\
 `The aging movie star in Indianapolis, which was featured in the film “Hoosiers,” is too small to host national tournament games these days, but the pandemic has put it back in the spotlight.`\
-https://nytimes.com/2021/03/26/sports/ncaabasketball/hinkle-fieldhouse-is-still-ready-for-its-closeup.html?searchResultPosition=1
+https://nytimes.com/2021/03/26/sports/ncaabasketball/hinkle-fieldhouse-indiana-basketball.html?searchResultPosition=1
 
 **A Yale Psychiatrist’s Tweet About Dershowitz, Her Dismissal, and a Lawsuit**\
 `The psychiatrist, Bandy X. Lee, said she was let go after the lawyer Alan M. Dershowitz complained to the university. Yale said she violated ethics rules against diagnosing public figures, her lawsuit claims.`\
