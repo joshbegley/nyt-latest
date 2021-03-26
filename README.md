@@ -11,7 +11,7 @@ https://nytimes.com/2021/03/26/business/ship-suez-canal.html?searchResultPositio
 https://nytimes.com/2021/03/26/learning/open-mouth.html?searchResultPosition=3
 
 **Those Mystery Lights Above Seattle and Portland? They Weren’t Meteors.**\
-`Astronomers said the objects were debris from a SpaceX rocket. Not everyone got the memo.`\
+`A Harvard astronomer said the objects were debris — or  “space junk” — from a SpaceX rocket. Not everyone got the memo.`\
 https://nytimes.com/2021/03/26/us/seattle-rocket-spacex.html?searchResultPosition=4
 
 **Word of the Day: paradigm**\
