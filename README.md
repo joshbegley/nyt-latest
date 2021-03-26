@@ -1,40 +1,40 @@
+**When the Publicists Are Away, the Stars Will Play**\
+`Unbridled and untamed, celebrities are doing whatever they want.`\
+https://nytimes.com/2021/03/26/style/when-the-publicists-are-away-the-stars-will-play.html?searchResultPosition=1
+
+**What to Cook This Weekend**\
+`Put Naoko Takei Moore’s recipe for tsukune miso nabe, a gingery chicken-meatball hot pot, on your must-make list.`\
+https://nytimes.com/2021/03/26/dining/what-to-cook-this-weekend.html?searchResultPosition=2
+
 **‘Insult to the Country’: Hong Kong Targets Art Deemed Critical of China**\
 `Pro-Beijing lawmakers have called for work by the dissident artist Ai Weiwei to be removed from a new museum, and accused local arts groups of undermining national security.`\
-https://nytimes.com/2021/03/26/world/asia/hong-kong-china-art-national-security-law.html?searchResultPosition=1
+https://nytimes.com/2021/03/26/world/asia/hong-kong-china-art-national-security-law.html?searchResultPosition=3
 
-**New York is Likely to Legalize Marijuana. Here’s What to Know.**\
+**New York Is Likely to Legalize Marijuana. Here’s What to Know.**\
 `New Yorkers would be allowed up to 3 ounces of cannabis for recreational use. And millions in tax revenue would be reinvested in communities affected by unequal policing.`\
-https://nytimes.com/article/marijuana-laws.html?searchResultPosition=2
+https://nytimes.com/article/marijuana-laws.html?searchResultPosition=4
 
 **Scientists plan to track possible virus spread in vaccinated college students.**\
 `More than 12,000 students are being recruited at more than 20 universities across the United States.`\
-https://nytimes.com/2021/03/26/science/covid-spread-universities-study.html?searchResultPosition=3
+https://nytimes.com/2021/03/26/science/covid-spread-universities-study.html?searchResultPosition=5
 
 **See Who Has Been Vaccinated So Far in New York City**\
 `About 30 percent of adults in the city have gotten at least one dose, but there are significant disparities in vaccination rates across neighborhoods and demographics.`\
-https://nytimes.com/interactive/2021/03/26/nyregion/nyc-vaccination-rates-map.html?searchResultPosition=4
+https://nytimes.com/interactive/2021/03/26/nyregion/nyc-vaccination-rates-map.html?searchResultPosition=6
 
 **Cristin Milioti Is No One’s Accessory**\
 `In HBO Max’s “Made for Love,” the “Palm Springs” actress again dismantles romantic clichés. “I didn’t get into this to be a handbag to a man’s story,” she said.`\
-https://nytimes.com/2021/03/26/arts/television/cristin-milioti-made-for-love.html?searchResultPosition=5
+https://nytimes.com/2021/03/26/arts/television/cristin-milioti-made-for-love.html?searchResultPosition=7
 
 **In ‘Invincible,’ a Young Hero Arrives for a Mature Audience**\
 `The animated version of the comic book series cocreated by Robert Kirkman premieres — with mayhem, destruction and gore — on Amazon Prime Video on Friday.`\
-https://nytimes.com/2021/03/26/arts/television/robert-kirkman-invincible.html?searchResultPosition=6
+https://nytimes.com/2021/03/26/arts/television/robert-kirkman-invincible.html?searchResultPosition=8
 
 **The Boom and Bust of TikTok Artists**\
 `When a 60-second video can make you famous, is it any surprise that young creators would bypass art school? But what’s left of their careers when fans move on and copycats encroach?`\
-https://nytimes.com/2021/03/26/arts/design/boom-bust-tiktok-artists.html?searchResultPosition=7
+https://nytimes.com/2021/03/26/arts/design/boom-bust-tiktok-artists.html?searchResultPosition=9
 
 **The Pandemic Work Diary of Margo Price, Nashville Rebel**\
 `The musician has spent her year at home, writing, recording new music, cooking and more, until she can tour again.`\
-https://nytimes.com/2021/03/26/business/margo-price-like-a-boss.html?searchResultPosition=8
-
-**Janice McLaughlin, Nun Who Exposed Abuse in Africa, Dies at 79**\
-`In a life dedicated to social justice, she was jailed in Rhodesia but later returned to a liberated Zimbabwe to help build its school system.`\
-https://nytimes.com/2021/03/26/world/africa/janice-mclaughlin-dead.html?searchResultPosition=9
-
-**Trains Collide in Egypt, Killing at Least 32**\
-`The national rail authority said “unknown actors” had engaged brakes on one train, which was hit by another behind it. The country’s railways have been plagued by poor maintenance and mismanagement.`\
-https://nytimes.com/2021/03/26/world/middleeast/train-crash-egypt.html?searchResultPosition=10
+https://nytimes.com/2021/03/26/business/margo-price-like-a-boss.html?searchResultPosition=10
 
