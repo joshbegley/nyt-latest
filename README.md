@@ -1,5 +1,5 @@
 **What to Watch: Philip K. Dick on Film**\
-`The things that draw readers to the science-fiction novels of Philip K. Dick are the same ones that make them hard to adapt. Here are five that captured his strange worlds.`\
+`The things that draw readers to the science-fiction novels of Philip K. Dick are the same ones that make them hard to adapt. Here are five projects that captured his strange worlds.`\
 https://nytimes.com/interactive/2021/03/26/movies/philip-k-dick-movies-tv.html?searchResultPosition=1
 
 **Winnipeg’s New Showcase and Meeting Place for Inuit Art and Artists**\
