@@ -6,8 +6,8 @@ https://nytimes.com/2021/03/26/us/politics/gavin-newsom-recall.html?searchResult
 `With case numbers still high, coronavirus testing remains essential, experts say, but the goals and approach will change as vaccines roll out.`\
 https://nytimes.com/2021/03/26/health/coronavirus-covid-testing.html?searchResultPosition=2
 
-**Michigan G.O.P. Chair Calls State’s Top Democratic Officials ‘Witches’**\
-`Ron Weiser, who leads the state’s Republican Party, drew swift criticism after a video surfaced in which he also joked about assassination when discussing two G.O.P. congressmen.`\
+**Michigan G.O.P. Chair Is Criticized After Calling State’s Top Democrats ‘Witches’**\
+`Ron Weiser, who leads the state’s Republican Party, was swiftly denounced after a video surfaced in which he also joked about assassination when discussing two G.O.P. congressmen.`\
 https://nytimes.com/2021/03/26/us/politics/ron-weiser-comments-gop.html?searchResultPosition=3
 
 **Morris Dickstein, Critic and Cultural Historian, Dies at 81**\
