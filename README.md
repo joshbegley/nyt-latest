@@ -8,7 +8,7 @@ https://nytimes.com/2021/03/27/business/dealbook/banker-burnout.html?searchResul
 
 **Sharon Osbourne Leaves ‘The Talk,’ CBS Says**\
 `The television host had defended Piers Morgan, a journalist who questioned an account by Meghan, Duchess of Sussex, about life in Britain’s royal family.`\
-https://nytimes.com/2021/03/27/business/media/sharon-osbourne-leaves-the-talk-cbs-says.html?searchResultPosition=3
+https://nytimes.com/2021/03/27/business/media/sharon-osbourne-leaves-the-talk-cbs.html?searchResultPosition=3
 
 **China, With $400 Billion Iran Deal, Could Deepen Influence in Mideast**\
 `The countries signed a sweeping pact on Saturday that calls for heavy Chinese investments in Iran over 25 years in exchange for oil — a step that could ease Iran’s international isolation.`\
