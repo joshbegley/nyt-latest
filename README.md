@@ -16,7 +16,7 @@ https://nytimes.com/2021/03/27/business/biden-taxes-business-rich.html?searchRes
 
 **The Original 20 Guantánamo Detainees: A Roster, and Where They Are Now**\
 `Starting with the Bush administration, the United States has gradually transferred all but two of the first 20 prisoners at the wartime detention facility to other nations. Here’s who, and where, they are.`\
-https://nytimes.com/2021/03/27/us/politics/guantanamo-detainees-history.html?searchResultPosition=5
+https://nytimes.com/2021/03/27/us/politics/guantanamo-bay-detainees-history.html?searchResultPosition=5
 
 **They Were Guantánamo’s First Detainees. Here’s Where They Are Now.**\
 `The Pentagon called the first 20 prisoners sent to Guantánamo in 2002 “the worst of the worst.” Just two remain there. Others are spread around the world — including four senior Taliban figures.`\
