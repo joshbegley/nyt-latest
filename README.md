@@ -18,8 +18,8 @@ https://nytimes.com/2021/03/27/crosswords/daily-puzzle-2021-03-28.html?searchRes
 `Peacock, NBCUniversal’s streaming service, is now showing old and new episodes of WWE Network wrestling. Some troubling segments in the network’s history disappeared in the transfer.`\
 https://nytimes.com/2021/03/27/arts/television/wwe-peacock-nbc-streaming.html?searchResultPosition=5
 
-**Oregon State Gets Past Loyola, Extending a Surprise March Run**\
-`Oregon State’s zone defense and plenty of good shooting by Ethan Thompson lifted the Beavers into the Elite Eight.`\
+**Baylor Passes Biggest Test of Tournament So Far in Villanova**\
+`The Bears won a tight, physical game to reach a regional final.`\
 https://nytimes.com/2021/03/27/sports/ncaabasketball/ncaa-tournament-sweet-16.html?searchResultPosition=6
 
 **Craig muMs Grant, Actor and Slam Poet, Dies at 52**\
