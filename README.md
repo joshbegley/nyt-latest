@@ -1,40 +1,40 @@
-**Quotation of the Day: Children Trapped in Crossfire as War Drags On in Colombia**\
-`Quotation of the Day for Saturday, March 27, 2021.`\
-https://nytimes.com/2021/03/27/todayspaper/quotation-of-the-day-children-trapped-in-crossfire-as-war-drags-on-in-colombia.html?searchResultPosition=1
+**A Collapse Foretold: How Brazil’s Covid-19 Outbreak Overwhelmed Hospitals**\
+`The virus has killed more than 300,000 people in Brazil, its spread aided by a highly contagious variant, political infighting and distrust of science.`\
+https://nytimes.com/2021/03/27/world/americas/virus-brazil-bolsonaro.html?searchResultPosition=1
 
-**Children Trapped by Colombia’s War, Five Years After Peace Deal**\
-`Despite a 2016 peace deal with the FARC, Colombia’s long internal conflict continues. Seldom has that been as evident as this month, when the government bombed a rebel camp full of young people.`\
-https://nytimes.com/2021/03/27/world/americas/colombia-children-war-FARC.html?searchResultPosition=2
+**Skiing in Himalayas Is ‘Like a Beautiful Dream,’ Despite Conflict and Coronavirus**\
+`A Kashmir resort is welcoming the highest number of skiers in decades as Indians eager to get outdoors after lockdowns flock there even amid a simmering separatist movement and a security clampdown.`\
+https://nytimes.com/2021/03/27/world/asia/gulmarg-kashmir-himalaya-skiing.html?searchResultPosition=2
 
-**10 People Shot, 2 Fatally, in Virginia Beach, Police Say**\
-`The police chief described a “chaotic” night involving what appeared to be three instances of gunfire.`\
-https://nytimes.com/2021/03/27/us/virginia-beach-shootings.html?searchResultPosition=3
+**Was Keeping Tourists Out the Only Way to Survive?**\
+`On the Blackfeet Reservation, at the border of Glacier National Park, businesses needed visitors. The tribe needed to protect people from Covid.`\
+https://nytimes.com/2021/03/27/business/blackfeet-reservation-tourism-covid.html?searchResultPosition=3
 
-**Charli Collier of Texas Honors Her Father’s Memory With Resilience**\
-`The Texas center, projected to be the No. 1 pick in the 2021 W.N.B.A. draft, got through a difficult year by drawing strength from her family.`\
-https://nytimes.com/2021/03/27/sports/ncaabasketball/charli-collier-texas-ncaa-tournament.html?searchResultPosition=4
+**We Want Our Friends Back! (But Which Ones?)**\
+`The pandemic shrank many social circles to a skeleton crew. Maybe that’s not such a bad thing.`\
+https://nytimes.com/2021/03/27/style/coronavirus-friends-winnowing.html?searchResultPosition=4
 
-**Expecting N.C.A.A. Miracles, the Oral Roberts Golden Eagles Make a Run**\
-`The team from Tulsa, Okla., would be only the second No. 15 seed to advance to the tournament’s round of 16 if it were to upset No. 3 Arkansas.`\
-https://nytimes.com/2021/03/27/sports/ncaabasketball/oral-roberts-ncaa-basketball.html?searchResultPosition=5
+**Can New Gun Violence Research Find a Path Around the Political Stalemate?**\
+`As the C.D.C. funds gun violence studies for the first time in a generation, public health experts are hopeful it will eventually guide lawmakers through the partisan gridlock — and save thousands of lives.`\
+https://nytimes.com/2021/03/27/us/politics/gun-violence-research-cdc.html?searchResultPosition=5
 
-**For Michigan’s Players, Activism Has Been Season’s Theme**\
-`Forward Naz Hillmon and Coach Kim Barnes Arico determined that it was important to have frank, open, difficult conversations as a team about racism, which hadn’t happened before.`\
-https://nytimes.com/2021/03/27/sports/ncaabasketball/michigan-ncaa-women.html?searchResultPosition=6
+**In Washington, Policy Revolves Around Joe Manchin. He Likes It That Way.**\
+`Mr. Manchin’s belief in the need to keep the filibuster has set the stage for a collision between Democrats eager to use its majorities to pass sweeping legislation and a political throwback determined to restore bipartisanship.`\
+https://nytimes.com/2021/03/27/us/politics/in-washington-policy-revolves-around-joe-manchin-he-likes-it-that-way.html?searchResultPosition=6
 
-**Modi’s Visit to Bangladesh Sets Off Violent Protests**\
-`At least four people were killed in clashes between the police and demonstrators, who have denounced Prime Minister Sheikh Hasina for inviting India’s leader.`\
-https://nytimes.com/2021/03/26/world/asia/bangladesh-protests-narendra-modi.html?searchResultPosition=7
+**As Pandemic Upends Teaching, Fewer Students Want to Pursue It**\
+`Disruptions to education during the pandemic are turning people away from a profession that was already struggling to attract new recruits.`\
+https://nytimes.com/2021/03/27/us/covid-school-teaching.html?searchResultPosition=7
 
-**Corrections: March 27, 2021**\
-`Corrections that appeared in print on Saturday, March 27, 2021.`\
-https://nytimes.com/2021/03/26/pageoneplus/corrections-march-27-2021.html?searchResultPosition=8
+**For Them, New York City Will Never Be The Same**\
+`The city may be only months from seeming like its old self. But the pandemic has changed many lives.`\
+https://nytimes.com/2021/03/27/nyregion/pandemic-nyc.html?searchResultPosition=8
 
-**No Small Favor**\
-`You might need a hand with this Michael Hawkins puzzle.`\
-https://nytimes.com/2021/03/26/crosswords/daily-puzzle-2021-03-27.html?searchResultPosition=9
+**Broadcasting ‘the Shock, the Horror, the Outrage’ Live, Again and Again**\
+`After Columbine, the media faced criticism for focusing on the assailants rather than on the victims. A lot has changed since 1999 — except the need to cover the tragedies in the first place.`\
+https://nytimes.com/2021/03/27/business/media/shootings-atlanta-boulder-media.html?searchResultPosition=9
 
-**Stop the Executions, President Biden**\
-`Virginia’s move to end the death penalty was a welcome step. The administration can do more.`\
-https://nytimes.com/2021/03/26/opinion/stop-executions-biden-virginia.html?searchResultPosition=10
+**Google Aims to Be the Anti-Amazon of E-Commerce. It Has a Long Way to Go.**\
+`Google presents itself to independent sellers as cheaper and less restrictive. But it is not clear whether it can change people’s habits of going straight to Amazon.`\
+https://nytimes.com/2021/03/27/technology/google-shopping-amazon.html?searchResultPosition=10
 
