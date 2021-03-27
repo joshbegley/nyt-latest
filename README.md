@@ -26,8 +26,8 @@ https://nytimes.com/2021/03/27/world/asia/india-covid-surge.html?searchResultPos
 `Officials said a driver fired multiple times into the passenger door of a couple’s car after they came close to a vehicle while merging into a lane in North Carolina.`\
 https://nytimes.com/2021/03/27/us/nc-road-rage-shooting-julie-eberly.html?searchResultPosition=7
 
-**UConn Routs Iowa in Round of 16, Contains Clark**\
-`The first round of 16 matchup in the N.C.A.A. women’s basketball tournament was the first to welcome paying spectators. Huskies fans made sure the rest of the crowd in San Antonio knew who won.`\
+**UConn Routs Iowa in Round of 16, Will Meet Baylor**\
+`The round of 16 games were the first in this N.C.A.A. women’s tournament to welcome paying spectators. UConn and Baylor fans made clear which teams won.`\
 https://nytimes.com/2021/03/27/sports/ncaabasketball/womens-sweet-16-uconn.html?searchResultPosition=8
 
 **At Least 10 Killed in Protests Against Modi’s Visit to Bangladesh**\
