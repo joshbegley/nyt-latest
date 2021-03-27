@@ -11,7 +11,7 @@ https://nytimes.com/2021/03/27/sports/ncaabasketball/womens-sweet-16-uconn.html?
 https://nytimes.com/2021/03/27/world/asia/bangladesh-protests-modi.html?searchResultPosition=3
 
 **A district judge in Texas rules that Austin can keep its mask mandate for now.**\
-`The state’s attorney general, Ken Braxton, is expected to appeal.`\
+`The state’s attorney general, Ken Paxton, is expected to appeal.`\
 https://nytimes.com/2021/03/27/world/Austin-Texas-mask-mandate-ruling.html?searchResultPosition=4
 
 **Swiss Billionaire Joins the Bidding for Tribune Publishing**\
