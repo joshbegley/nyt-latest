@@ -22,7 +22,7 @@ https://nytimes.com/2021/03/27/opinion/sunday/fertility-population-baby-bust.htm
 `Language matters. This language doesn’t help.`\
 https://nytimes.com/2021/03/27/opinion/sunday/gun-control-safety.html?searchResultPosition=6
 
-**Cargo Ship Still Stuck in Suez Canal, Days After Running Aground**\
+**Vessels Accumulate as Cargo Ship Remains Lodged in Suez Canal**\
 `The Ever Given container ship on Saturday remained lodged in the Suez Canal in Egypt, where it had been stuck since Tuesday. Authorities said the jam has caused a backlog of more than 300 ships waiting to cross.`\
 https://nytimes.com/video/world/middleeast/100000007678221/suez-canal-stuck-ship.html?searchResultPosition=7
 
