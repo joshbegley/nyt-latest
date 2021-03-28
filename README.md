@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/27/world/covid-colleges-universities-commencement-graduation.html?searchResultPosition=1
 
 **Insurgents Seize Mozambique Town, Killing Several People; Fate of Hundreds Unknown**\
-`The attack by hundreds of suspected Islamist insurgents trapped nearly 200 people, including foreign workers, in a hotel in Palma, Mozambique, site of a major gas project.`\
+`The attack by hundreds of militants trapped nearly 200 people, including foreign workers, in a hotel in Palma, Mozambique, site of a major gas project.`\
 https://nytimes.com/2021/03/27/world/africa/27mozambique-insurgents-attack.html?searchResultPosition=3
 
 **Dozens Killed in One of Myanmar’s Deadliest Days Since February Coup**\
