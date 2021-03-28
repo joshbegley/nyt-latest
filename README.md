@@ -15,7 +15,7 @@ https://nytimes.com/2021/03/28/opinion/letters/guns-shootings.html?searchResultP
 https://nytimes.com/2021/03/28/opinion/immigrant-plants-ecosystem.html?searchResultPosition=4
 
 **Inside Myanmar’s Army: ‘They See Protesters as Criminals’**\
-`Four officers spoke about life in the feared Tatmadaw, which has turned its guns on civilians again. For most soldiers, one said, “The Tatmadaw is the only world.”`\
+`Four officers spoke about life in the feared Tatmadaw, which has turned its guns on civilians again. “The Tatmadaw is the only world” for most soldiers, one said.`\
 https://nytimes.com/2021/03/28/world/asia/myanmar-army-protests.html?searchResultPosition=5
 
 **Journalist Cleared of Defamation Charge Revives India’s #MeToo**\
