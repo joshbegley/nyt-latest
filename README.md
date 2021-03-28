@@ -1,4 +1,4 @@
-**Testing, One, Two. Fans Flock to an Experimental Indoor Rock Concert**\
+**Testing, One, Two. Fans Flock to an Experimental Indoor Rock Concert.**\
 `An organizer said this Barcelona event, one of several planned in Europe, was “a small but important step toward normality.” The listeners there basked in being part of an audience again.`\
 https://nytimes.com/2021/03/28/arts/music/biggest-indoor-rock-concert-barcelona.html?searchResultPosition=1
 
