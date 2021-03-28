@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/28/pageoneplus/corrections-march-28-2021.html?searchResultPosition=1
 
 **Explosion Rocks Indonesian Church Compound on Palm Sunday**\
-`A priest described the blast in the city of Makassar as a suicide bombing. The mayor said no churchgoers were killed.`\
+`No churchgoers were killed, but at least 14 people were injured, the police said. A priest said two suspicious-looking people had been stopped by security just before the blast.`\
 https://nytimes.com/2021/03/28/world/asia/indonesia-church-bombing.html?searchResultPosition=2
 
 **Quotation of the Day: Under Biden, Foreign Diplomacy Has Become a Coveted Career Again**\
