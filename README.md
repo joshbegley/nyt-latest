@@ -16,7 +16,7 @@ https://nytimes.com/2021/03/28/arts/design/designers-global-challenges.html?sear
 
 **A Volunteer Army’s Mission: Vaccinate Black People in the Rural South**\
 `In the face of limited transportation, patchy internet service and threadbare medical care, community leaders in Alabama and Mississippi are trying to shrink the racial disparities in vaccine access.`\
-https://nytimes.com/2021/03/28/health/vaccine-black-americans.html?searchResultPosition=5
+https://nytimes.com/2021/03/28/health/covid-19-vaccine-african-americans.html?searchResultPosition=5
 
 **Ten Months After George Floyd’s Death, Minneapolis Residents Are at War Over Policing**\
 `As the trial of a former officer accused of murdering Mr. Floyd kicks off, residents and community leaders have struggled to reach consensus on how to radically change public safety, and the role the police should play in that.`\
