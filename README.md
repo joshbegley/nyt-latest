@@ -19,7 +19,7 @@ https://nytimes.com/2021/03/29/arts/music/sasha-velour-drag-opera.html?searchRes
 https://nytimes.com/2021/03/29/opinion/letters/george-floyd-killing.html?searchResultPosition=6
 
 **What we know about Eric J. Nelson, the lawyer presenting opening arguments for Derek Chauvin.**\
-`Mr. Chauvin’s lawyer is one of a dozen defense attorneys in Minneapolis who represent police officers charged with misconduct and work on a rotation basis.`\
+`Mr. Nelson is one of a dozen defense lawyers in Minneapolis who represent police officers charged with misconduct and work on a rotation basis.`\
 https://nytimes.com/2021/03/29/us/eric-j-nelson-lawyer-derek-chauvin.html?searchResultPosition=9
 
 **Biden’s Lesson From Past Green Stimulus Failures: Go Even Bigger**\
