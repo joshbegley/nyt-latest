@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/29/world/europe/britain-europe-lockdown-rules.html?s
 `The pandemic, racial reckonings, economic hardship and a next-to-impossible year have made this March particularly fraught.`\
 https://nytimes.com/2021/03/29/us/womens-history-month-march.html?searchResultPosition=2
 
-**The C.D.C. director warns of an the ‘impending doom’ of a potential 4th surge in virus cases.**\
+**The C.D.C. director warns of an‘impending doom’ of a potential 4th surge in virus cases.**\
 `“I am asking you to just hold on a little longer, to get vaccinated when you can, so that all of those people that we all love will still be here when this pandemic ends,” the director, Dr. Rochelle Walensky said.`\
 https://nytimes.com/2021/03/29/us/covid-cases-vaccines-eligible.html?searchResultPosition=3
 
