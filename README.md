@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2021/03/29/world/middleeast/suez-canal-photos.html?searchResultPosition=1
 
 **Ship Stuck in the Suez Canal Is Now Partially Refloated**\
-`After blocking the Suez Canal for almost a week, the Ever Given container ship has been partially dislodged. However, efforts to fully refloat the large ship are likely to continue for some time, according to the authorities.`\
+`After blocking the Suez Canal for almost a week, the Ever Given container ship has been partially dislodged.`\
 https://nytimes.com/video/world/middleeast/100000007679905/suez-canal-shipping-container-partially-refloated.html?searchResultPosition=2
 
 **Watch Live: Day 1 of the Derek Chauvin Trial**\
@@ -11,7 +11,7 @@ https://nytimes.com/video/world/middleeast/100000007679905/suez-canal-shipping-c
 https://nytimes.com/video/us/100000007676922/derek-chauvin-trial-live-video.html?searchResultPosition=3
 
 **Meet the New U.C.L.A.: Plucky Underdog**\
-`After barely making the N.C.A.A. tournament field, the Bruins are enjoying a revival under Coach Mick Cronin. Now they’re one win from the Final Four.`\
+`After barely making the field of the N.C.A.A. men’s basketball tournament, the Bruins are enjoying a revival under Coach Mick Cronin. Now they’re one win from the Final Four.`\
 https://nytimes.com/2021/03/29/sports/ncaabasketball/ucla-michigan-ncaa-tournament.html?searchResultPosition=4
 
 **HarperCollins will acquire the trade division of Houghton Mifflin Harcourt.**\
