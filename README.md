@@ -16,7 +16,7 @@ https://nytimes.com/2021/03/28/sports/soccer/us-honduras-olympic-qualifying.html
 
 **Getting to Yes: A Nursing Home’s Mission to Vaccinate Its Hesitant Staff**\
 `Almost all of the residents at Forest Hills of D.C. got their initial Covid-19 shots in January. But nearly half of the staff there had declined. Would an effort to change their minds succeed?`\
-https://nytimes.com/2021/03/28/health/covid-vaccine-nursinghome-hesitancy.html?searchResultPosition=5
+https://nytimes.com/2021/03/28/health/nursing-home-covid-19-vaccine.html?searchResultPosition=5
 
 **On Hallowed Ground**\
 `The spot in Minneapolis where George Floyd was killed speaks to those who visit.`\
