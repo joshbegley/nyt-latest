@@ -2,7 +2,7 @@
 `Monday: An update on California’s water situation. Also: A stair-walking love story.`\
 https://nytimes.com/2021/03/29/us/california-water.html?searchResultPosition=1
 
-**A leaked W.H.O. report sheds light on the origin of the pandemic.**\
+**A leaked W.H.O. report points to animals as the source of the pandemic.**\
 `By Javier C. Hernández`\
 https://nytimes.com/2021/03/29/world/asia/who-report-pandemic-china.html?searchResultPosition=2
 
