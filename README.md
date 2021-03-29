@@ -1,4 +1,4 @@
-**Trial draws protests and gavel-to-gavel coverage.**\
+**Trial draws protests, TV coverage and a bonfire at George Floyd Square.**\
 `By Tim Arango and Matt Furber`\
 https://nytimes.com/2021/03/29/us/chauvin-trial-protests-gavel-to-gavel-coverage.html?searchResultPosition=2
 
