@@ -15,7 +15,7 @@ https://nytimes.com/video/us/100000007676922/derek-chauvin-trial-live-video.html
 https://nytimes.com/2021/03/29/sports/ncaabasketball/ucla-michigan-ncaa-tournament.html?searchResultPosition=4
 
 **HarperCollins will acquire the trade division of Houghton Mifflin Harcourt.**\
-`By Alexandra Alter`\
+`The $349 million deal will help the publisher expand its back catalog at a moment of growing consolidation in the book business.`\
 https://nytimes.com/2021/03/29/business/harpercollins-houghton-mifflin-harcourt.html?searchResultPosition=5
 
 **The Champions League Is Changing. Here’s How It Will Work.**\
