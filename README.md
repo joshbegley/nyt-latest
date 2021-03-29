@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/29/briefing/suez-canal-biden-covid-passport-mozambiq
 https://nytimes.com/2021/03/29/world/suez-canal-ship-memes.html?searchResultPosition=2
 
 **The Trial of Derek Chauvin**\
-`What we know about the prosecution, defense and jury in the trial of the former police officer accused of murdering a Black man in Minneapolis.`\
+`What we know about the prosecution, defense and jury in the trial of the former police officer accused of murdering George Floyd in Minneapolis.`\
 https://nytimes.com/2021/03/29/podcasts/the-daily/george-floyd-derek-chauvin-trial.html?searchResultPosition=3
 
 **‘There’s just a sense of entitlement’: Hawaiians worry about a flood of heedless tourists.**\
