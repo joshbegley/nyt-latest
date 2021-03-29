@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2021/upshot/trump-biden-geography-quiz.html?sear
 https://nytimes.com/2021/03/28/business/media/harpers-magazine-macarthur.html?searchResultPosition=3
 
 **U.S. Men Fail to Qualify for Olympic Soccer Tournament**\
-`Honduras dashes the Americans’ hopes of a trip to Tokyo, the latest in a string of qualifying frustrations for the U.S. men.`\
+`Honduras dashes the Americans’ hopes of a trip to Tokyo, the latest in a string of qualifying failures for U.S. Soccer.`\
 https://nytimes.com/2021/03/28/sports/soccer/us-honduras-olympic-qualifying.html?searchResultPosition=4
 
 **Getting to Yes: A Nursing Home’s Mission to Vaccinate Its Hesitant Staff**\
