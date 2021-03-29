@@ -2,9 +2,9 @@
 `A sobering nature program with David Attenborough airs on PBS. And FX debuts a documentary about women in comedy.`\
 https://nytimes.com/2021/03/29/arts/television/whats-on-tv-this-week.html?searchResultPosition=1
 
-**The Ever Given is once again afloat, raising hopes traffic can soon resume.**\
+**The Ever Given is partially afloat and almost free, raising hopes traffic can soon resume.**\
 `After five days of struggling to free the shipping vessel from where it ran aground in the Suez Canal, the vessel was partially refloated, according to officials.`\
-https://nytimes.com/2021/03/29/world/the-ever-given-is-once-again-afloat-raising-hopes-traffic-can-soon-resume.html?searchResultPosition=2
+https://nytimes.com/2021/03/29/world/the-ever-given-is-partially-afloat-and-almost-free-raising-hopes-traffic-can-soon-resume.html?searchResultPosition=2
 
 **Your Monday Briefing**\
 `The Ever Given is partially freed.`\
