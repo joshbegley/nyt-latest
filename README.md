@@ -14,7 +14,7 @@ https://nytimes.com/2021/03/29/technology/amazon-union-vote.html?searchResultPos
 `New York City, long buoyed by the flow of commuters into its towering office buildings, faces a cataclysmic challenge, even when the pandemic ends.`\
 https://nytimes.com/2021/03/29/nyregion/nyc-office-workers-coronavirus-pandemic.html?searchResultPosition=4
 
-**Yang and Adams Clash, Councilman Exits: 5 Takeaways from Mayor’s Race**\
+**Yang and Adams Clash, Councilman Exits: 5 Takeaways From Mayor’s Race**\
 `The campaigns of Andrew Yang and Eric Adams exchanged harsh attacks, and Carlos Menchaca, a city councilman from Brooklyn, dropped out of the race for New York City mayor.`\
 https://nytimes.com/2021/03/29/nyregion/mayor-race-nyc.html?searchResultPosition=5
 
