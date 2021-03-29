@@ -1,4 +1,4 @@
-**Key takeaways from the first day of the Derek Chauvin trial.**\
+**Takeaways from the first day of the Derek Chauvin trial.**\
 `The prosecution’s opening remarks focused on nine minutes and 29 seconds of bystander video.`\
 https://nytimes.com/2021/03/29/us/derek-chauvin-trial-takeaways.html?searchResultPosition=1
 
