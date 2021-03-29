@@ -10,8 +10,8 @@ https://nytimes.com/2021/03/29/climate/galapagos-tortoises-smuggling.html?search
 `More states are opening up vaccine eligibility to include all adults.`\
 https://nytimes.com/2021/03/29/us/coronavirus-today.html?searchResultPosition=3
 
-**A ‘major technical glitch’ brings an abrupt end to the first day of the Derek Chauvin trial.**\
-`The television feed is provided to news outlets by Court TV, which won approval from the judge to exclusively operate the cameras inside the courtroom.`\
+**A ‘major technical glitch’ brings an abrupt end to the first day in court.**\
+`The television feed of the Derek Chauvin trial is provided to news outlets by Court TV, which won approval from the judge to exclusively operate the cameras inside the courtroom.`\
 https://nytimes.com/2021/03/29/us/derek-chauvin-trial-video-glitch.html?searchResultPosition=4
 
 **Chauvin Trial, Infrastructure, Vaccines: Your Monday Evening Briefing**\
