@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/29/briefing/suez-canal-biden-covid-passport-mozambiq
 `In the five days since the Ever Given blocked the Suez Canal, it has snarled global trade and cost billions of dollars. But it has also brought millions on the internet a bit of light relief.`\
 https://nytimes.com/2021/03/29/world/suez-canal-ship-memes.html?searchResultPosition=2
 
-**The George Floyd Case Goes to Court**\
+**The Trial of Derek Chauvin**\
 `What we know about the prosecution, defense and jury in the trial of the former police officer accused of murdering a Black man in Minneapolis.`\
 https://nytimes.com/2021/03/29/podcasts/the-daily/george-floyd-derek-chauvin-trial.html?searchResultPosition=3
 
