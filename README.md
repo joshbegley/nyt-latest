@@ -1,6 +1,6 @@
 **Trial draws protests, TV coverage and a bonfire at George Floyd Square.**\
-`By Tim Arango and Matt Furber`\
-https://nytimes.com/2021/03/29/us/chauvin-trial-protests-gavel-to-gavel-coverage.html?searchResultPosition=2
+`At the intersection in South Minneapolis where George Floyd died, people sat around a bonfire, discussing what would be unfolding a few miles away in the courtroom where Mr. Chauvin, the former police officer charged with murder in Mr. Floyd’s death, is on trial.`\
+https://nytimes.com/2021/03/29/us/chauvin-trial-george-floyd-square.html?searchResultPosition=2
 
 **Review: In ‘Crowns, Kinks and Curls,’ Getting to the Roots of Black Hair**\
 `Keli Goff’s series of vignettes feature Black women recounting how their hair affected their school lives, relationships or careers.`\
