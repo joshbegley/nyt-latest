@@ -2,35 +2,35 @@
 `Add a bit of seaweed to your weeknight pasta, as Eric Kim recommends, for subtle umami.`\
 https://nytimes.com/2021/03/29/dining/the-creamiest-asparagus-pasta.html?searchResultPosition=2
 
+**The C.D.C. extends its moratorium on evictions until June 30 to ease hardships caused by the virus.**\
+`The C.D.C. issued the moratorium last fall, citing its jurisdictional authority to implement measures needed to promote public health.`\
+https://nytimes.com/2021/03/29/us/cdc-moratorium-evictions-pandemic.html?searchResultPosition=3
+
 **On the Scene at the Suez Canal**\
 `I was there over the weekend as authorities tried to pry the ship free. Here’s what I saw.`\
-https://nytimes.com/interactive/2021/03/29/world/middleeast/suez-canal-photos.html?searchResultPosition=3
+https://nytimes.com/interactive/2021/03/29/world/middleeast/suez-canal-photos.html?searchResultPosition=4
 
 **Ship Stuck in the Suez Canal Is Now Partially Refloated**\
 `After blocking the Suez Canal for almost a week, the Ever Given container ship has been partially dislodged.`\
-https://nytimes.com/video/world/middleeast/100000007679905/suez-canal-shipping-container-partially-refloated.html?searchResultPosition=4
+https://nytimes.com/video/world/middleeast/100000007679905/suez-canal-shipping-container-partially-refloated.html?searchResultPosition=5
 
 **Watch Live: Day 1 of the Derek Chauvin Trial**\
 `The trial begins for Derek Chauvin, a former Minneapolis police officer facing charges of manslaughter, second-degree murder and third-degree murder in the death of George Floyd.`\
-https://nytimes.com/video/us/100000007676922/derek-chauvin-trial-live-video.html?searchResultPosition=5
+https://nytimes.com/video/us/100000007676922/derek-chauvin-trial-live-video.html?searchResultPosition=6
 
 **Meet the New U.C.L.A.: Plucky Underdog**\
 `After barely making the field of the N.C.A.A. men’s basketball tournament, the Bruins are enjoying a revival under Coach Mick Cronin. Now they’re one win from the Final Four.`\
-https://nytimes.com/2021/03/29/sports/ncaabasketball/ucla-michigan-ncaa-tournament.html?searchResultPosition=6
+https://nytimes.com/2021/03/29/sports/ncaabasketball/ucla-michigan-ncaa-tournament.html?searchResultPosition=7
 
 **HarperCollins will acquire the trade division of Houghton Mifflin Harcourt.**\
 `The $349 million deal will help the publisher expand its back catalog at a moment of growing consolidation in the book business.`\
-https://nytimes.com/2021/03/29/business/harpercollins-houghton-mifflin-harcourt.html?searchResultPosition=7
+https://nytimes.com/2021/03/29/business/harpercollins-houghton-mifflin-harcourt.html?searchResultPosition=8
 
 **The Champions League Is Changing. Here’s How It Will Work.**\
 `After more than a generation in its current form, the Champions League is remaking itself, and about to become an actual league for the first time.`\
-https://nytimes.com/interactive/2021/03/29/sports/soccer/champions-league-new-format.html?searchResultPosition=8
+https://nytimes.com/interactive/2021/03/29/sports/soccer/champions-league-new-format.html?searchResultPosition=9
 
 **Water Shortages and Fires Loom After a Dry Winter**\
 `Monday: An update on California’s water situation. Also: A stair-walking love story.`\
-https://nytimes.com/2021/03/29/us/california-water.html?searchResultPosition=9
-
-**A leaked W.H.O. report points to animals as the source of the pandemic.**\
-`By Javier C. Hernández`\
-https://nytimes.com/2021/03/29/world/asia/coronavirus-bats-who-china.html?searchResultPosition=10
+https://nytimes.com/2021/03/29/us/california-water.html?searchResultPosition=10
 
