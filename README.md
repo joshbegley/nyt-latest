@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/29/briefing/suez-canal-biden-covid-passport-mozambique.html?searchResultPosition=1
 
 **As crews make progress in freeing the ship, the internet demands they ‘put it back.’**\
-`By Anna Schaverien`\
+`In the five days since the Ever Given has blocked the Suez Canal, it has snarled global trade and cost billions of dollars. But it has also brought millions on the internet a bit of light relief.`\
 https://nytimes.com/2021/03/29/world/suez-canal-ship-memes.html?searchResultPosition=2
 
 **The George Floyd Case Goes to Court**\
