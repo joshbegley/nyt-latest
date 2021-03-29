@@ -30,8 +30,8 @@ https://nytimes.com/video/world/europe/100000007679032/barcelona-concert-coronav
 `As a follow-up to its Jesus Shoes, the company MSCHF will sell 666 pairs of Satan Shoes in collaboration with the rapper Lil Nas X.`\
 https://nytimes.com/2021/03/28/style/nike-satan-shoes-lil-Nas-x.html?searchResultPosition=8
 
-**Another Laugher as Gonzaga Reaches the Round of 8**\
-`The three N.C.A.A. tournament victories by Gonzaga, which is trying to become the first unbeaten men’s basketball champion since Indiana in 1976, have been by 43, 16 and 18 points.`\
+**As Gonzaga Dominates, U.C.L.A Tops Alabama in a Thriller**\
+`Gonzaga is moving smoothly in its chase of an undefeated season. U.C.L.A. is also in the round of 8 after surging past Alabama in overtime.`\
 https://nytimes.com/2021/03/28/sports/ncaabasketball/ncaa-tournament-gonzaga-creighton.html?searchResultPosition=9
 
 **In the Name of Love**\
