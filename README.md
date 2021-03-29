@@ -23,7 +23,7 @@ https://nytimes.com/2021/03/28/books/dav-pilkey-ook-gluk-racism.html?searchResul
 https://nytimes.com/video/world/europe/100000007679032/barcelona-concert-coronavirus-pandemic.html?searchResultPosition=6
 
 **These Shoes Contain a Drop of Human Blood. Nike Does Not Approve.**\
-`As a follow-up to its “Jesus Shoes,” the company MSCHF will sell 666 pairs of “Satan Shoes” in collaboration with the rapper Lil Nas X.`\
+`As a follow-up to its Jesus Shoes, the company MSCHF will sell 666 pairs of Satan Shoes in collaboration with the rapper Lil Nas X.`\
 https://nytimes.com/2021/03/28/style/nike-satan-shoes-lil-Nas-x.html?searchResultPosition=7
 
 **Another Laugher as Gonzaga Reaches the Round of 8**\
