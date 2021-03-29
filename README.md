@@ -1,6 +1,6 @@
 **Key takeaways from the first day of the Derek Chauvin trial.**\
 `The prosecution’s opening remarks focused on nine minutes and 29 seconds of bystander video.`\
-https://nytimes.com/2021/03/29/us/key-takeaways-from-the-first-day-of-the-derek-chauvin-trial.html?searchResultPosition=1
+https://nytimes.com/2021/03/29/us/derek-chauvin-trial-takeaways.html?searchResultPosition=1
 
 **Nearly 200 Baby Tortoises Are Seized at Galápagos Airport**\
 `The tortoises were found on Sunday wrapped in plastic inside a red suitcase that was bound for mainland Ecuador. A police officer has been taken into custody, the authorities said.`\
@@ -12,7 +12,7 @@ https://nytimes.com/2021/03/29/us/coronavirus-today.html?searchResultPosition=3
 
 **A ‘major technical glitch’ brings an abrupt end to the first day of the Derek Chauvin trial.**\
 `The television feed is provided to news outlets by Court TV, which won approval from the judge to exclusively operate the cameras inside the courtroom.`\
-https://nytimes.com/2021/03/29/us/a-major-technical-glitch-brings-an-abrupt-end-to-the-first-day-of-the-derek-chauvin-trial.html?searchResultPosition=4
+https://nytimes.com/2021/03/29/us/derek-chauvin-trial-video-glitch.html?searchResultPosition=4
 
 **Chauvin Trial, Infrastructure, Vaccines: Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
