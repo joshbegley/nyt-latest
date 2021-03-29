@@ -8,7 +8,7 @@ https://nytimes.com/2021/03/29/us/california-water.html?searchResultPosition=2
 
 **A leaked W.H.O. report points to animals as the source of the pandemic.**\
 `By Javier C. Hernández`\
-https://nytimes.com/2021/03/29/world/asia/who-report-pandemic-china.html?searchResultPosition=3
+https://nytimes.com/2021/03/29/world/asia/coronavirus-bats-who-china.html?searchResultPosition=3
 
 **Sarah Onyango Obama, Ex-President’s Stepgrandmother, Dies at 99**\
 `Known widely among Kenyans as Mama Sarah, Ms. Obama was seen as the matriarch of Barack Obama’s extended family in Africa.`\
