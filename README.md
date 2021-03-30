@@ -26,8 +26,8 @@ https://nytimes.com/2021/03/30/world/europe/uk-police-response-sarah-everard-vig
 `Activists threaten boycotts over companies’ silence on new Georgia voting laws.`\
 https://nytimes.com/2021/03/30/business/dealbook/georgia-voting-boycotts.html?searchResultPosition=7
 
-**China’s Overhaul of Hong Kong Elections Gives Security Bodies a Key Role**\
-`New rules give the bodies power to investigate all potential candidates, meaning opposition politicians face steep odds of even being allowed to run.`\
+**How China Plans to Control Hong Kong’s Elections**\
+`New rules give Chinese security bodies power to investigate all potential candidates, meaning that opposition politicians face steep odds of even being allowed to run.`\
 https://nytimes.com/2021/03/30/world/asia/china-hong-kong-elections.html?searchResultPosition=8
 
 **The Dodgers Made It to the Top. They Want to Stay There**\
