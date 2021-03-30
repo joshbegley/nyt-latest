@@ -7,7 +7,7 @@ https://nytimes.com/2021/03/30/style/tiny-modern-love-stories-i-didnt-want-her-t
 https://nytimes.com/2021/03/30/arts/design/bootlegs-art-canal-street.html?searchResultPosition=2
 
 **N.F.L. Officially Adds 17th Regular Season Game**\
-`The measure passed by team owners Tuesday is the first expansion of the N.F.L.’s regular season since 1978 and will force the league to push the Super Bowl back one week.`\
+`The measure passed by team owners Tuesday is the first expansion of the N.F.L.’s regular season schedule since 1978 and will force the league to push the Super Bowl back one week.`\
 https://nytimes.com/2021/03/30/sports/football/nfl-adds-17th-regular-season-game.html?searchResultPosition=3
 
 **Deliveroo Heads to I.P.O. as Challenges Pile Up**\
