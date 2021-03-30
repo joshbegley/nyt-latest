@@ -26,15 +26,15 @@ https://nytimes.com/2021/03/30/opinion/letters/police-george-floyd.html?searchRe
 `For a forensic cleaner in Mexico City, helping grieving families heal is at the core of his service.`\
 https://nytimes.com/2021/03/30/opinion/the-death-cleaner-mexico.html?searchResultPosition=7
 
+**Biden administration announces plans to address violence against Asian-Americans.**\
+`“These attacks are wrong, un-American, and must stop,” the president wrote in a tweet on Tuesday.`\
+https://nytimes.com/2021/03/30/us/biden-asian-americans-violence.html?searchResultPosition=8
+
 **Stimulus payments may arrive next week for millions of federal beneficiaries.**\
 `The I.R.S. said that many people who receive federal benefits but do not file tax returns because they don’t meet the income thresholds could receive their stimulus payments by April 7.`\
-https://nytimes.com/2021/03/30/business/stimulus-payments-federal-beneficiaries.html?searchResultPosition=8
+https://nytimes.com/2021/03/30/business/stimulus-payments-federal-beneficiaries.html?searchResultPosition=9
 
 **The Death Cleaner**\
 `For a forensic cleaner in Mexico City, healing is at the core of his service.`\
-https://nytimes.com/video/opinion/100000007491010/the-death-cleaner.html?searchResultPosition=9
-
-**A Better Term Than ‘Gun Control’?**\
-`Readers offer their suggestions or argue that a change in semantics won’t make a difference, in response to a column by Frank Bruni.`\
-https://nytimes.com/2021/03/30/opinion/letters/gun-control.html?searchResultPosition=10
+https://nytimes.com/video/opinion/100000007491010/the-death-cleaner.html?searchResultPosition=10
 
