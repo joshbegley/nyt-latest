@@ -1,14 +1,14 @@
 **Police-University Partnerships**\
 `Readers propose research to address police killings of civilians. Also: Why menthol cigarettes should be banned; The Nation magazine’s history; the Republicans’ problem; museum finances.`\
-https://nytimes.com/2021/03/30/opinion/letters/police-floyd.html?searchResultPosition=1
+https://nytimes.com/2021/03/30/opinion/letters/police-george-floyd.html?searchResultPosition=1
 
 **The Death Cleaner**\
 `For a forensic cleaner in Mexico City, helping grieving families heal is at the core of his service.`\
 https://nytimes.com/2021/03/30/opinion/the-death-cleaner-mexico.html?searchResultPosition=2
 
 **Stimulus payments may arrive next week for millions of federal beneficiaries.**\
-`By Tara Siegel Bernard`\
-https://nytimes.com/2021/03/30/business/stimulus-payments-may-arrive-next-week-for-millions-of-federal-beneficiaries.html?searchResultPosition=3
+`The I.R.S. said that many people who receive federal benefits but do not file tax returns because they don’t meet the income thresholds could receive their stimulus payments by April 7.`\
+https://nytimes.com/2021/03/30/business/stimulus-payments-federal-beneficiaries.html?searchResultPosition=3
 
 **The Death Cleaner**\
 `For a forensic cleaner in Mexico City, healing is at the core of his service.`\
