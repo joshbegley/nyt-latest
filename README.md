@@ -1,40 +1,40 @@
-**How to Get an Essential Product to Market, STAT**\
-`As the Covid-19 pandemic took hold in 2020, companies around the world rushed to find new ways to operate. Here’s how one manufacturer transformed to make a new product and get it to market as quickly as possible.`\
-https://nytimes.com/paidpost/celonis/how-to-get-an-essential-product-to-market-stat.html?searchResultPosition=1
+**Members of the Paris Opera Take Their Talents to a Different Stage**\
+`The singers, dancers and musicians played on, serenading their phones, pirouetting in masks and performing, faceless, on the radio.`\
+https://nytimes.com/2021/03/30/arts/music/paris-opera-performers-pandemic.html?searchResultPosition=1
 
-**World leaders call for an international treaty to combat future pandemics.**\
-`A letter published in newspapers around the globe pressed for a cross-border understanding, similar to the one that followed World War II, to prepare for widespread health emergencies.`\
-https://nytimes.com/2021/03/30/world/europe/world-health-treaty-pandemics.html?searchResultPosition=2
+**Smoke in the Mexican Food and Fire in the Mezcal**\
+`The Midtown bar Under the Volcano has no fire pit, but its literary-minded chef still conjures the tastes of his native Puebla.`\
+https://nytimes.com/2021/03/30/dining/mezcal-bar-under-the-volcano-review.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Listen to Five of the World’s Newest, Wildest Instruments’**\
-`In this lesson, students will learn about how these instruments came to life and consider how they can draw on the inventors’ creative processes to make their own musical inventions.`\
-https://nytimes.com/2021/03/30/learning/lesson-of-the-day-listen-to-five-of-the-worlds-newest-wildest-instruments.html?searchResultPosition=3
+**Under the Volcano in Midtown Is Breathing Fire Again**\
+`After a 12-year hiatus followed by pandemic closings, the mezcal-focused bar has a new menu of food inspired by the spirit.`\
+https://nytimes.com/slideshow/2021/03/30/dining/mezcal-bar-nyc.html?searchResultPosition=3
 
-**As Mask Mandates Lift, Retail Workers Again Feel Vulnerable**\
-`“It’s no different now than it was a year ago,” one Kroger employee said, as states like Texas and Mississippi end mask requirements.`\
-https://nytimes.com/2021/03/30/business/as-mask-mandates-lift-retail-workers-again-feel-vulnerable.html?searchResultPosition=4
+**The Taliban Think They Have Already Won, Peace Deal or Not**\
+`“We have defeated the enemy.” The international community is scrambling to secure peace in Afghanistan, but the Taliban believe they have the upper hand — and are saying as much.`\
+https://nytimes.com/2021/03/30/world/asia/taliban-victory-afghanistan.html?searchResultPosition=4
 
-**Fashion Predictions**\
-`How will we want to dress when the world opens back up? Tell us both how you feel and what you predict we’ll see on the streets.`\
-https://nytimes.com/2021/03/30/learning/fashion-predictions.html?searchResultPosition=5
+**How to Pretend You’re in New Orleans Tonight**\
+`The Crescent City is the kind of place you daydream about long after you’re gone. Here are a few ways to be there in spirit.`\
+https://nytimes.com/2021/03/30/travel/new-orleans-vacation-at-home.html?searchResultPosition=5
 
-**Hunting Ghost Particles Beneath the World’s Deepest Lake**\
-`A neutrino-spotting telescope beneath Russia’s frozen Lake Baikal in Russia is close to delivering scientific results after four decades of setbacks.`\
-https://nytimes.com/2021/03/30/science/neutrinos-lake-baikal.html?searchResultPosition=6
+**The Black Woman Artist Who Crafted a Life She Was Told She Couldn’t Have**\
+`At the dawn of the Harlem Renaissance, Augusta Savage fought racism to earn acclaim as a sculptor, showing her work alongside de Kooning and Dalí. But the path she forged is also her legacy.`\
+https://nytimes.com/2021/03/30/us/augusta-savage-black-woman-artist-harlem-renaissance.html?searchResultPosition=6
 
-**Attack on Asian Woman in Midtown Prompts Another Hate Crime Investigation**\
-`The New York Police Department’s hate crimes task force said it was searching for a man who kicked a 65-year-old woman, stomped on her and made anti-Asian statements toward her on a sidewalk.`\
-https://nytimes.com/2021/03/30/nyregion/attack-asian-woman-midtown.html?searchResultPosition=7
+**Here Come Hot Desks and Zoom Rooms. And Holograms?**\
+`As more companies consider plans to bring workers back to the office, experts say to expect expanded gathering spaces and fewer personal workstations.`\
+https://nytimes.com/2021/03/30/business/office-return-space.html?searchResultPosition=7
 
-**Word of the Day: quell**\
-`This word has appeared in 391 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/03/30/learning/word-of-the-day-quell.html?searchResultPosition=8
+**Maryland’s State Song, a Nod to the Confederacy, Nears Repeal**\
+`The lyrics of “Maryland, My Maryland,” long criticized as sympathetic to the Confederacy, refer to Abraham Lincoln as a “despot” and Union soldiers as “Northern scum!”`\
+https://nytimes.com/2021/03/30/us/maryland-state-song.html?searchResultPosition=8
 
-**Corrections: March 30, 2021**\
-`Corrections that appeared in print on Tuesday, March 30, 2021.`\
-https://nytimes.com/2021/03/30/pageoneplus/corrections-march-30-2021.html?searchResultPosition=9
+**How to Get Your Closet Under Control**\
+`With all due respect to Marie Kondo, it isn’t just about getting rid of things. Here’s what the experts know that you may not.`\
+https://nytimes.com/2021/03/30/realestate/closet-design-organization-kondo.html?searchResultPosition=9
 
-**Your Tuesday Briefing**\
-`The first day of the murder trial of Derek Chauvin.`\
-https://nytimes.com/2021/03/30/briefing/derek-chauvin-biden-climate-coronavirus.html?searchResultPosition=10
+**A French Monument Remains Every Bit as Grand on Film**\
+`The Palais Garnier, which inspired the first “Phantom” in 1910, is silent at the moment, but it continues to hold the imagination.`\
+https://nytimes.com/2021/03/30/arts/dance/palais-garnier-movies.html?searchResultPosition=10
 
