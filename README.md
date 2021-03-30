@@ -35,6 +35,6 @@ https://nytimes.com/2021/03/30/arts/music/lil-nas-x-twitter-sneakers-outrage.htm
 https://nytimes.com/2021/03/30/books/review/kaitlyn-greenidge-libertie.html?searchResultPosition=9
 
 **‘He Was Suffering’: Teenager Who Filmed Floyd’s Arrest Testifies at Trial**\
-`Darnella Frazier, who was 17-years-old when she filmed video of George Floyd’s arrest, testified on Tuesday in the murder trial of Derek Chauvin, the former Minneapolis police officer charged in Mr. Floyd’s death.`\
+`Darnella Frazier, who was 17 years old when she filmed video of George Floyd’s arrest, testified on Tuesday in the murder trial of Derek Chauvin, the former Minneapolis police officer charged in Mr. Floyd’s death.`\
 https://nytimes.com/video/us/politics/100000007682497/chavin-trial-darnella-frazier-testimony.html?searchResultPosition=10
 
