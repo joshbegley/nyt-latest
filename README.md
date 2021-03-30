@@ -1,5 +1,5 @@
 **No, Volkswagen is not renaming itself Voltswagen.**\
-`By Neal E. Boudette`\
+`“At the end of the day, it was a bit of fun with the name and the brand,” a Volkswagen spokesman said.`\
 https://nytimes.com/2021/03/30/business/volkswagen-voltswagen.html?searchResultPosition=1
 
 **Confidence in Covid-19 vaccination keeps rising significantly in the U.S., but pockets of resistance remain, a survey shows.**\
