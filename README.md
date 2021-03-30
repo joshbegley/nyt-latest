@@ -22,8 +22,8 @@ https://nytimes.com/video/opinion/100000007491010/the-death-cleaner.html?searchR
 `Readers offer their suggestions or argue that a change in semantics won’t make a difference, in response to a column by Frank Bruni.`\
 https://nytimes.com/2021/03/30/opinion/letters/gun-control.html?searchResultPosition=6
 
-**One Vaccine Is Good. How About Mixing Two?**\
-`Researchers are exploring the possible benefits of combining doses from two different Covid-19 vaccines.`\
+**One Vaccine Is Good. How About Mix-and-Match?**\
+`Researchers are exploring the possible benefits of pairing doses from two different Covid-19 vaccines.`\
 https://nytimes.com/2021/03/30/health/coronavirus-vaccines-mixing-astrazeneca-pfizer.html?searchResultPosition=7
 
 **America Has a Ruling Class**\
