@@ -23,8 +23,8 @@ https://nytimes.com/2021/03/29/arts/television/sean-bean-talks-about-derailing-s
 https://nytimes.com/2021/03/29/sports/baseball/texas-rangers-fans.html?searchResultPosition=6
 
 **Houston Hangs On and Reaches the Final Four**\
-`The Cougars dominated Oregon State early and then fended the Beavers off in the second half, reaching the national semifinals for the first time since 1984.`\
-https://nytimes.com/2021/03/29/sports/houston-hangs-on-and-reaches-the-final-four.html?searchResultPosition=7
+`For the first time since 1984, the Cougars advanced to the national semifinals. They will face Baylor, which is making its first Final Four appearance since 1950.`\
+https://nytimes.com/2021/03/29/sports/ncaabasketball/houston-hangs-on-and-reaches-the-final-four.html?searchResultPosition=7
 
 **Climber in Academia**\
 `Alex Rosen and Brad Wilber bring out the entertainers, one by one.`\
