@@ -1,6 +1,6 @@
 **Teenager who filmed widely seen video of George Floyd’s arrest testifies at trial.**\
 `Darnella Frazier was just 17 when she recorded the video in May and uploaded it to Facebook.`\
-https://nytimes.com/2021/03/30/us/teenager-who-filmed-widely-seen-video-of-george-floyds-arrest-testifies-at-trial.html?searchResultPosition=1
+https://nytimes.com/2021/03/30/us/darnella-frazier-video-george-floyd.html?searchResultPosition=1
 
 **Three Women Working to Vaccinate Children Shot Dead in Afghanistan**\
 `The health workers were part of the government’s polio vaccine campaign in Jalalabad, a city which has seen numerous attacks on women in recent months.`\
