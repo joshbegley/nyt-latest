@@ -3,7 +3,7 @@
 https://nytimes.com/2021/03/30/nyregion/vaccines-coronavirus-new-york.html?searchResultPosition=1
 
 **Members of the Paris Opera Take Their Talents to a Different Stage**\
-`The singers, dancers and musicians played on, serenading their phones, pirouetting in masks and performing, faceless, on the radio.`\
+`PARIS — For the past year, opera lovers worldwide have had little choice but to revisit favorite productions and performances via their screens at home, but the singers, musicians and dancers at the Paris Opera have continued, all while making their peace with pandemic life.`\
 https://nytimes.com/2021/03/30/arts/music/paris-opera-performers-pandemic.html?searchResultPosition=2
 
 **Smoke in the Mexican Food and Fire in the Mezcal**\
