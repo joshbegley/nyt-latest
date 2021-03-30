@@ -27,7 +27,7 @@ https://nytimes.com/2021/03/30/books/review/new-this-week.html?searchResultPosit
 https://nytimes.com/2021/03/30/arts/music/flock-of-dimes-head-of-roses.html?searchResultPosition=7
 
 **‘Godzilla vs. Kong’ Review: Let’s You and Him Fight**\
-`Ape and lizard go toe-to-toe, with a cast of talented humans to comment on the action`\
+`Ape and lizard go toe-to-toe, with a cast of talented humans to comment on the action.`\
 https://nytimes.com/2021/03/30/movies/godzilla-vs-kong-review.html?searchResultPosition=8
 
 **Why the World’s Container Ships Grew So Big**\
