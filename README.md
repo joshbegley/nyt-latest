@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/31/books/review-next-shift-health-care-gabriel-winan
 `Prime Minister Mario Draghi is expected to require that workers in health care facilities be vaccinated, a move that will test the legal limits of his government’s efforts to stem coronavirus outbreaks.`\
 https://nytimes.com/2021/03/31/world/europe/italy-covid-vaccines-health-workers.html?searchResultPosition=4
 
-**What role do journalists play in the courtroom?**\
+**What role do journalists play inside the courtroom?**\
 `Two seats for the trial of Derek Chauvin are reserved for reporters and various journalists, including from The New York Times, who take on the role of pool reporter.`\
 https://nytimes.com/2021/03/31/us/pool-reporters-derek-chauvin-trial.html?searchResultPosition=5
 
