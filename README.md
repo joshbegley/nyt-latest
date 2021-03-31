@@ -20,7 +20,7 @@ https://nytimes.com/2021/03/31/well/mind/covid-eating-disorders.html?searchResul
 
 **Prosecutors show surveillance footage of George Floyd in Cup Foods for the first time.**\
 `An employee of Cup Foods testified on Wednesday that he had spoken briefly about sports with Mr. Floyd when he entered the store and that Mr. Floyd had appeared to be on a drug of some kind.`\
-https://nytimes.com/2021/03/31/us/george-floyd-cup-foods.html?searchResultPosition=9
+https://nytimes.com/2021/03/31/us/christopher-martin-cup-foods.html?searchResultPosition=9
 
 **Man Arrested in Anti-Asian Attack Was on Parole for Killing Mother**\
 `Brandon Elliot, who killed his mother two decades ago, was arrested early Wednesday and charged with the brutal assault on a Filipino woman near Times Square.`\
