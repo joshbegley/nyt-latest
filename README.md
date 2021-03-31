@@ -2,7 +2,7 @@
 `The president is hoping to make electric vehicles more affordable to turn a niche product into one with mass appeal.`\
 https://nytimes.com/2021/03/31/business/biden-electric-vehicles-infrastructure.html?searchResultPosition=1
 
-**‘Don’t shoot me.’ Body camera video shows the encounter between police officers and George Floyd.**\
+**‘Don’t shoot me.’ Body camera video shows the fatal encounter between police officers and George Floyd.**\
 `The chilling footage provides a new, up-close perspective on the encounter with the police that ended Mr. Floyd’s life.`\
 https://nytimes.com/2021/03/31/us/police-body-camera-video.html?searchResultPosition=2
 
