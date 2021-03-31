@@ -1,4 +1,4 @@
-**Johnson & Johnson vaccine is delayed by a U.S. factory mixup.**\
+**Johnson & Johnson Covid-19 vaccine is delayed by a U.S. factory mixup.**\
 `A manufacturer in Baltimore accidentally conflated the ingredients for two different coronavirus vaccines, officials say.`\
 https://nytimes.com/2021/03/31/world/johnson-and-johnson-vaccine-mixup.html?searchResultPosition=1
 
