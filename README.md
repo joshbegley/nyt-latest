@@ -2,7 +2,7 @@
 `Texas was held scoreless in the fourth quarter as the Gamecocks started their celebration early.`\
 https://nytimes.com/2021/03/30/sports/ncaabasketball/ncaa-womens-tournament-final-four.html?searchResultPosition=1
 
-**Bloomberg Workers Get Access to New York University Vaccine Slots**\
+**Bloomberg Employees Get Access to Hospital’s Vaccine Slots**\
 `A company memo on Tuesday informed the staff that NYU Langone would “provide vaccines for Bloomberg employees who meet the eligibility requirements.”`\
 https://nytimes.com/2021/03/30/business/media/bloomberg-covid-vaccines-nyu.html?searchResultPosition=2
 
