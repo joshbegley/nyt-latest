@@ -1,40 +1,40 @@
+**State Department Reverses Trump Policies on Women’s Health Rights**\
+`Secretary of State Antony J. Blinken said on Tuesday that women’s reproductive rights would be monitored by the United States, reversing a Trump policy that overlooked barriers for women seeking sexual health services worldwide.`\
+https://nytimes.com/video/us/politics/100000007684121/blinken-human-rights-report.html?searchResultPosition=1
+
 **$950,000 Homes in North Carolina, California and Vermont**\
 `A 1912 showplace with a wraparound porch in New Bern, a midcentury-modern house in Los Angeles and a Dutch Colonial Revival home in Burlington.`\
-https://nytimes.com/2021/03/31/realestate/950000-homes-in-north-carolina-california-and-vermont.html?searchResultPosition=1
+https://nytimes.com/2021/03/31/realestate/950000-homes-in-north-carolina-california-and-vermont.html?searchResultPosition=2
 
 **What You Get for $950,000**\
 `A 1912 showplace in New Bern, N.C.; a midcentury-modern house in Los Angeles; and a Dutch Colonial Revival home in Burlington, Vt.`\
-https://nytimes.com/slideshow/2021/03/31/realestate/what-you-get-for-950000.html?searchResultPosition=2
+https://nytimes.com/slideshow/2021/03/31/realestate/what-you-get-for-950000.html?searchResultPosition=3
 
 **Listening to Music in the Desert at Dawn**\
 `Terry Tempest Williams, an author and environmental activist, on bird song, Keith Jarrett and slowing down.`\
-https://nytimes.com/2021/03/31/arts/music/terry-tempest-williams-music.html?searchResultPosition=3
+https://nytimes.com/2021/03/31/arts/music/terry-tempest-williams-music.html?searchResultPosition=4
 
 **Godzilla, Kong, Predator, Jason: Everybody Fight!**\
 `Franchise movie crossovers have a rich history of pitting adversary against adversary. Here’s a guide to some of those battles.`\
-https://nytimes.com/2021/03/31/movies/godzilla-kong-duels.html?searchResultPosition=4
+https://nytimes.com/2021/03/31/movies/godzilla-kong-duels.html?searchResultPosition=5
 
 **N.B.A. Trade Deadline Fallout: Uncertainty for the Lakers and Raptors**\
 `After more than a dozen trades at the deadline, there are still many moves to be made, with lingering free agents, buyouts and executive contracts in the balance.`\
-https://nytimes.com/2021/03/31/sports/basketball/nba-trades.html?searchResultPosition=5
+https://nytimes.com/2021/03/31/sports/basketball/nba-trades.html?searchResultPosition=6
 
 **How Each Baseball Stadium Will Handle Fans to Start 2021**\
 `Every major league stadium will let in fans to start the season, but capacities vary, ranging from just over 1,000 to 40,300.`\
-https://nytimes.com/2021/03/31/sports/baseball/mlb-stadium-capacity-2021.html?searchResultPosition=6
+https://nytimes.com/2021/03/31/sports/baseball/mlb-stadium-capacity-2021.html?searchResultPosition=7
 
 **In Orban’s Hungary, Some ‘Migrants’ Are Treated With Reverence**\
 `While Prime Minister Viktor Orban has demonized recent arrivals, a court ruled against a journalist who disparaged the nomads who settled in what is now Hungary a millennium ago.`\
-https://nytimes.com/2021/03/31/world/europe/hungary-migrants-magyars-court.html?searchResultPosition=7
+https://nytimes.com/2021/03/31/world/europe/hungary-migrants-magyars-court.html?searchResultPosition=8
 
 **Do Californians Support a Newsom Recall?**\
 `Wednesday: Here’s what recent surveys show. Also: A Cesar Chavez Day visit from the first lady.`\
-https://nytimes.com/2021/03/31/us/gavin-newsom-recall.html?searchResultPosition=8
+https://nytimes.com/2021/03/31/us/gavin-newsom-recall.html?searchResultPosition=9
 
 **Kevin Shields on My Bloody Valentine’s Return: Time Is ‘More Precious’**\
 `Eight years after the shoegaze pioneers’ last album, the band is bringing its catalog to streaming services, reissuing records on vinyl and recording two new albums.`\
-https://nytimes.com/2021/03/31/arts/music/my-bloody-valentine-shields.html?searchResultPosition=9
-
-**Was Connor McDavid’s Big Hit a Dirty Play?**\
-`After the Oilers captain elbowed Montreal’s Jesperi Kotkaniemi on Tuesday, there were calls for a suspension, or at least a fine. But McDavid had his defenders, too.`\
-https://nytimes.com/2021/03/31/sports/hockey/connor-mcdavid-jesperi-kotkaniemi-hit.html?searchResultPosition=10
+https://nytimes.com/2021/03/31/arts/music/my-bloody-valentine-shields.html?searchResultPosition=10
 
