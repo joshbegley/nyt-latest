@@ -32,7 +32,7 @@ https://nytimes.com/2021/03/31/at-home/newsletter.html?searchResultPosition=8
 
 **Watch Live: Biden Delivers Remarks on the Economy**\
 `President Biden is outside Pittsburgh to outline his infrastructure plan, which includes an increase in corporate taxes and plans to address longstanding social and economic problems.`\
-https://nytimes.com/video/us/politics/100000007684835/biden-economy.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/politics/100000007684835/biden-economy.html?searchResultPosition=9
 
 **Navalny Declares a Hunger Strike in Prison Over Medical Care**\
 `Aleksei A. Navalny, one of Russia’s most prominent opposition leaders, said he would not end the strike until he receives proper medical treatment and asked to see a doctor of his choice.`\
