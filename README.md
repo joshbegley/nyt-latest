@@ -32,7 +32,7 @@ https://nytimes.com/2021/03/31/briefing/vaccine-children-yemen-famine.html?searc
 
 **Charles McMillian, who saw the police pin George Floyd, breaks down on the stand.**\
 `Charles McMillian, 61, who saw the police trying to get George Floyd into the police car and begged him to cooperate, broke down in sobs as he watched video in court of Mr. Floyd calling for his mother.`\
-https://nytimes.com/2021/03/31/us/charles-mcmillian-who-saw-the-police-pin-george-floyd-breaks-down-on-the-stand.html?searchResultPosition=9
+https://nytimes.com/2021/03/31/us/charles-mcmillian-witness-breaks-down.html?searchResultPosition=9
 
 **My Patients Need Treatment for Covid-19. Why Can’t They Get It?**\
 `Doctors like me want monoclonal antibodies for our high-risk patients, but the medicine is hard to come by.`\
