@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Speaking of Britney … What About All Those Other Women?’**\
-`In this media literacy lesson, students will learn about past coverage of women in the public eye, and practice evaluating articles for bias.`\
-https://nytimes.com/2021/03/31/learning/lesson-of-the-day-speaking-of-britney-what-about-all-those-other-women.html?searchResultPosition=1
+**Orient, N.Y.: A Historic Hamlet With a Low-Key Reputation**\
+`Once called ‘the place old people go to visit their parents,’ the North Fork community now skews younger, with a new generation moving in.`\
+https://nytimes.com/2021/03/31/realestate/living-in-orient-ny-historic-hamlet-low-key.html?searchResultPosition=1
 
-**Deliveroo shares tumble 30 percent as trading begins.**\
-`By Eshe Nelson`\
-https://nytimes.com/2021/03/31/business/deliveroo-shares-tumble-30-percent-as-trading-begins.html?searchResultPosition=2
+**How Food Banks Succeeded and What They Need Now**\
+`Fatigue among donors and workers is a concern. `\
+https://nytimes.com/2021/03/31/upshot/how-food-banks-succeeded-and-what-they-need-now.html?searchResultPosition=2
 
-**Cockpit Recorder From Indonesian Crash Is Finally Recovered**\
-`After months of searching, Indonesian officials say they have found the crucial memory unit from Sriwijaya Air Flight 182. Investigators hope it will help explain why the plane crashed in January.`\
-https://nytimes.com/2021/03/31/world/asia/indonesia-crash-sriwijaya-voice-recorder.html?searchResultPosition=3
+**The City Losing Its Children to H.I.V.**\
+`A pediatric outbreak in a remote Pakistan city shows the urgency of global health after Covid.`\
+https://nytimes.com/2021/03/31/magazine/pakistan-hiv.html?searchResultPosition=3
 
-**Black Executives Call on Corporations to Fight Restrictive Voting Laws**\
-`Dozens responded after companies in Georgia said little against state legislation that put strict rules in place.`\
-https://nytimes.com/2021/03/31/business/voting-rights-georgia-corporations.html?searchResultPosition=4
+**Biden Details $2 Trillion Plan to Rebuild Infrastructure and Reshape the Economy**\
+`The president will begin selling his proposal on Wednesday, saying it would fix 20,000 miles of roads and 10,000 bridges, while also addressing climate change and racial inequities and raising corporate taxes.`\
+https://nytimes.com/2021/03/31/business/economy/biden-infrastructure-plan.html?searchResultPosition=4
 
-**Home-Schooling**\
-`Do you wish you had been educated at home as a younger child? Why or why not?`\
-https://nytimes.com/2021/03/31/learning/home-schooling.html?searchResultPosition=5
+**Living In ... Orient, N.Y.**\
+`Once known as ‘the place old people go to visit their parents,’ the North Fork community now skews younger, with a new generation moving in.`\
+https://nytimes.com/slideshow/2021/03/31/realestate/living-in-orient-ny.html?searchResultPosition=5
 
-**Word of the Day: stringent**\
-`This word has appeared in 558 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/03/31/learning/word-of-the-day-stringent.html?searchResultPosition=6
+**In Empty Amsterdam, Reconsidering Tourism**\
+`Before Covid-19, the city was packed with visitors. Now efforts to rein in the expected post-pandemic crowds are ramping up, but not without controversy.`\
+https://nytimes.com/2021/03/31/travel/amsterdam-tourism-post-pandemic.html?searchResultPosition=6
 
-**A Terrifying Disease Stalks Seaside Australia: Flesh-Eating Ulcers**\
-`As Buruli ulcer cases have risen, they have taken a physical and psychological toll but also offered hope that scientists can solve the bacteria’s many mysteries.`\
-https://nytimes.com/2021/03/31/world/australia/buruli-flesh-eating-disease.html?searchResultPosition=7
+**‘Mom Is Really Different’: Nursing Homes Reopen to Joy and Grief**\
+`Nursing homes, one of the most restricted settings in America during the pandemic, are allowing visitors again. But opening the doors has brought new complications.`\
+https://nytimes.com/2021/03/31/us/coronavirus-nursing-homes-reopening.html?searchResultPosition=7
 
-**Two Ex-Deputies Face Manslaughter Charges in Black Man’s Death in Texas**\
-`The former Williamson County deputies were indicted on charges that they repeatedly shot Javier Ambler with a Taser during a traffic stop despite his pleas that he could not breathe.`\
-https://nytimes.com/2021/03/31/us/live-pd-sheriffs-charged.html?searchResultPosition=8
+**Is It Time for an Enid Collins Revival?**\
+`Generation Etsy has dusted off the wooden box handbags she designed in the 1960s. And now her son, Jeep, is publishing a memoir.`\
+https://nytimes.com/2021/03/31/style/enid-collins-bags.html?searchResultPosition=8
 
-**3 Picture Books Get the Royal Treatment**\
-`Leo Timmers, Mylo Freeman and Klaas Verplancke take us inside the minds of two loony kings and a once blue princess.`\
-https://nytimes.com/2021/03/31/books/review/leo-timmers-where-is-the-dragon.html?searchResultPosition=9
+**Building a Mosque in France, Never Easy, May Get Even Harder**\
+`The country’s principle of secularism has long disadvantaged Muslim communities, experts say, and President Emmanuel Macron’s new law against Islamism could deepen the disparities.`\
+https://nytimes.com/2021/03/31/world/europe/france-islam-law-mosques.html?searchResultPosition=9
 
-**With 17 Games, the N.F.L. Evolves for Streaming Generation**\
-`The last time the league expanded its regular season 43 years ago, it was evolving for TV broadcasts and priming for an offensive era.`\
-https://nytimes.com/2021/03/31/sports/football/nfl-17-games-records.html?searchResultPosition=10
+**Supreme Court Arguments May Be Turning Point for N.C.A.A.**\
+`The justices will consider whether limits on payments to student-athletes violate antitrust laws.`\
+https://nytimes.com/2021/03/31/us/supreme-court-ncaa.html?searchResultPosition=10
 
