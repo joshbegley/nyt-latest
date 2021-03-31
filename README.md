@@ -1,28 +1,28 @@
+**Why Amazon’s Union Vote Matters**\
+`The vote in Alabama is a temperature check on beliefs about Amazon and labor unions in the United States.`\
+https://nytimes.com/2021/03/31/technology/amazon-union-vote.html?searchResultPosition=1
+
+**Asian-American Victims of Violence, and the Bystanders**\
+`“The behavior of the onlookers was just as shocking, if not more so, than the outright violence of the attacker,” a reader says of a brutal attack on a Filipino woman in Manhattan.`\
+https://nytimes.com/2021/03/31/opinion/letters/asian-americans-hate-crimes.html?searchResultPosition=2
+
 **How Health Care Became the Big Industry in Steel City**\
 `Pittsburgh’s once strong unions are part of the answer, Gabriel Winant explains in his book “The Next Shift,” but the change hasn’t come without complications.`\
-https://nytimes.com/2021/03/31/books/review-next-shift-health-care-gabriel-winant.html?searchResultPosition=1
+https://nytimes.com/2021/03/31/books/review-next-shift-health-care-gabriel-winant.html?searchResultPosition=3
 
 **Italy Pushes Back as Health Care Workers Shun Covid Vaccines**\
 `Prime Minister Mario Draghi is expected to require that workers in health care facilities be vaccinated, a move that will test the legal limits of his government’s efforts to stem coronavirus outbreaks.`\
-https://nytimes.com/2021/03/31/world/europe/italy-covid-vaccines-health-workers.html?searchResultPosition=4
+https://nytimes.com/2021/03/31/world/europe/italy-covid-vaccines-health-workers.html?searchResultPosition=6
 
 **Inside the courtroom, a rotating pool of journalists is monitoring the action.**\
 `Two seats for the trial of Derek Chauvin are reserved for journalists. Outside the courtroom, many other members of the media are standing by.`\
-https://nytimes.com/2021/03/31/us/pool-reporters-derek-chauvin-trial.html?searchResultPosition=5
+https://nytimes.com/2021/03/31/us/pool-reporters-derek-chauvin-trial.html?searchResultPosition=7
 
 **Since the Oscar-Nominated ‘Collective,’ Much and Little Has Changed**\
 `The documentary revisits a deadly 2015 fire that brought down the Romanian government and exposed the catastrophic health care system. But not all the troubles are in the past.`\
-https://nytimes.com/2021/03/31/movies/collective-romania.html?searchResultPosition=6
+https://nytimes.com/2021/03/31/movies/collective-romania.html?searchResultPosition=8
 
 **Trapped in the House With an Eating Disorder**\
 `Anxiety, disrupted routines and loneliness are fueling people’s food issues as they hunker down during the Covid-19 crisis.`\
-https://nytimes.com/2021/03/31/well/mind/covid-eating-disorders.html?searchResultPosition=7
-
-**Prosecutors show surveillance footage of George Floyd in Cup Foods for the first time.**\
-`An employee of Cup Foods testified on Wednesday that he had spoken briefly about sports with Mr. Floyd when he entered the store and that Mr. Floyd had appeared to be on a drug of some kind.`\
-https://nytimes.com/2021/03/31/us/christopher-martin-cup-foods.html?searchResultPosition=9
-
-**Man Arrested in Anti-Asian Attack Was on Parole for Killing Mother**\
-`Brandon Elliot, who killed his mother two decades ago, was arrested early Wednesday and charged with the brutal assault on a Filipino woman near Times Square.`\
-https://nytimes.com/2021/03/31/nyregion/brandon-elliot-asian-attack-nyc.html?searchResultPosition=10
+https://nytimes.com/2021/03/31/well/mind/covid-eating-disorders.html?searchResultPosition=9
 
