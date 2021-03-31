@@ -14,8 +14,8 @@ https://nytimes.com/2021/03/30/crosswords/daily-puzzle-2021-03-31.html?searchRes
 `The Zags’ pursuit of an undefeated season has often come on the undercard for other games during this N.C.A.A. men’s tournament.`\
 https://nytimes.com/2021/03/30/sports/ncaabasketball/march-madness-final-four-gonzaga.html?searchResultPosition=4
 
-**South Carolina Rolls Past Texas Into the Final Four**\
-`Texas was held scoreless in the fourth quarter as the Gamecocks started their celebration early.`\
+**South Carolina and Stanford Round Out Women’s Final Four**\
+`The Gamecocks got an early celebration as Texas was held scoreless in the fourth quarter. Stanford mounted a comeback over Louisville.`\
 https://nytimes.com/2021/03/30/sports/ncaabasketball/ncaa-womens-tournament-final-four.html?searchResultPosition=5
 
 **Bloomberg Employees Get Access to Hospital’s Vaccine Slots**\
