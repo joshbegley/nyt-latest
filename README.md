@@ -14,8 +14,8 @@ https://nytimes.com/2021/03/30/us/politics/biden-anti-asian-violence.html?search
 `Under Betsy DeVos, the Education Department sold out to predatory for-profit colleges. It’s welcome news that Washington is taking steps to protect students.`\
 https://nytimes.com/2021/03/30/opinion/devos-for-profit-colleges.html?searchResultPosition=7
 
-**A Dollop of F.D.R. and a Dash of Reagan Equal a Biden Boom**\
-`The president needs to maximize his multitrillion-dollar plans.`\
+**The Biden Boom**\
+`The president has a chance to supercharge the economy.`\
 https://nytimes.com/2021/03/30/opinion/biden-stimulus-infrastructure.html?searchResultPosition=8
 
 **Brutal Attack on Filipino Woman Sparks Outrage: ‘Everybody Is on Edge’**\
