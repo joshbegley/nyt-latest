@@ -10,6 +10,10 @@ https://nytimes.com/2021/03/31/arts/design/kkk-philip-guston-art.html?searchResu
 `Some Americans who received unemployment benefits last year may have filed their federal tax returns before a new tax break became available.`\
 https://nytimes.com/2021/03/31/business/irs-tax-refund-unemployment.html?searchResultPosition=3
 
+**Infrastructure, France, ‘Follies’: Your Wednesday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2021/03/31/briefing/infrastructure-france-follies.html?searchResultPosition=5
+
 **Georgia to Weaken Citizen’s Arrest Law Cited in Ahmaud Arbery’s Death**\
 `The governor supports a bill passed on Wednesday that repeals language allowing people to arrest someone who they witnessed committing a crime.`\
 https://nytimes.com/2021/03/31/us/georgia-citizens-arrest-law.html?searchResultPosition=6
