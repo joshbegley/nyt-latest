@@ -1,4 +1,4 @@
-**More states race to make all adults eligible for vaccines.**\
+**Wyoming and other states race to make all adults eligible for vaccines.**\
 `Wyoming said anyone 16 or over would now be able to get a shot. New Mexico and South Dakota said they would do the same on Monday.`\
 https://nytimes.com/2021/03/31/us/covid-vaccine-wyoming-new-mexico.html?searchResultPosition=1
 
