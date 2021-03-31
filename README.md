@@ -22,8 +22,8 @@ https://nytimes.com/2021/03/30/pageoneplus/corrections-march-31-2021.html?search
 `Trenton Charlson constructs a solid midweek puzzle.`\
 https://nytimes.com/2021/03/30/crosswords/daily-puzzle-2021-03-31.html?searchResultPosition=6
 
-**Gonzaga Makes Final Four With Another (Expected) Rout**\
-`The Zags’ pursuit of an undefeated season has often come on the undercard for other games during this N.C.A.A. men’s tournament.`\
+**Gonzaga Awaits U.C.L.A. in the Final Four After Bruins Stun Michigan**\
+`The Zags’ pursuit of an undefeated season has often come on the undercard during this N.C.A.A. men’s tournament. U.C.L.A. has emerged as an unexpected star.`\
 https://nytimes.com/2021/03/30/sports/ncaabasketball/march-madness-final-four-gonzaga.html?searchResultPosition=7
 
 **South Carolina and Stanford Round Out Women’s Final Four**\
