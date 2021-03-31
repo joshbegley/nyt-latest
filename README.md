@@ -6,7 +6,7 @@ https://nytimes.com/2021/03/31/us/politics/infrastructure-crisis-united-states-p
 `On the third day of the Derek Chauvin murder trial, the prosecution and the defense questioned a teenage store clerk about his interactions with George Floyd before the police were called over Mr. Floyd’s use of a fake $20 bill.`\
 https://nytimes.com/video/us/politics/100000007685404/chauvin-trial-day-3-key-moments.html?searchResultPosition=2
 
-**New York Gallery Will Exhibit Philip Guston Paintings That Show Klansmen**\
+**New York Show of Philip Guston Work to Include Klan Images**\
 `The fall retrospective will include some of the same pieces that led to the postponement of planned Guston exhibitions at four major museums last year.`\
 https://nytimes.com/2021/03/31/arts/design/kkk-philip-guston-art.html?searchResultPosition=3
 
