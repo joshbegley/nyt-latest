@@ -1,6 +1,6 @@
-**Johnson and Johnson vaccine is delayed by a U.S. factory mixup.**\
+**Johnson & Johnson vaccine is delayed by a U.S. factory mixup.**\
 `A manufacturer in Baltimore accidentally conflated the ingredients for two different coronavirus vaccines, officials say.`\
-https://nytimes.com/2021/03/31/world/johnson-and-johnson-vaccine-is-delayed-by-a-us-factory-mixup.html?searchResultPosition=1
+https://nytimes.com/2021/03/31/world/johnson-and-johnson-vaccine-mixup.html?searchResultPosition=1
 
 **Biden’s Push for Electric Cars: $174 Billion, 10 Years and a Bit of Luck**\
 `The president is hoping to make electric vehicles more affordable to turn a niche product into one with mass appeal.`\
