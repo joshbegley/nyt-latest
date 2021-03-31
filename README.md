@@ -30,11 +30,11 @@ https://nytimes.com/2021/03/31/world/europe/navalny-hunger-strike-prison.html?se
 `Good news for vaccinating children.`\
 https://nytimes.com/2021/03/31/briefing/vaccine-children-yemen-famine.html?searchResultPosition=8
 
+**Charles McMillian, who saw the police pin George Floyd, breaks down on the stand.**\
+`Charles McMillian, 61, who saw the police trying to get George Floyd into the police car and begged him to cooperate, broke down in sobs as he watched video in court of Mr. Floyd calling for his mother.`\
+https://nytimes.com/2021/03/31/us/charles-mcmillian-who-saw-the-police-pin-george-floyd-breaks-down-on-the-stand.html?searchResultPosition=9
+
 **My Patients Need Treatment for Covid-19. Why Can’t They Get It?**\
 `Doctors like me want monoclonal antibodies for our high-risk patients, but the medicine is hard to come by.`\
-https://nytimes.com/2021/03/31/opinion/covid-monoclonal-antibodies-treatment.html?searchResultPosition=9
-
-**N.Y. Seeks Trump Insider’s Records, in Apparent Bid to Gain Cooperation**\
-`State prosecutors in Manhattan subpoenaed the personal bank records of the Trump Organization’s longtime C.F.O. and are scrutinizing gifts he received from the former president.`\
-https://nytimes.com/2021/03/31/nyregion/trump-vance-investigation.html?searchResultPosition=10
+https://nytimes.com/2021/03/31/opinion/covid-monoclonal-antibodies-treatment.html?searchResultPosition=10
 
