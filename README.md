@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/01/well/family/depression-young-children.html?search
 https://nytimes.com/2021/04/01/books/review/11-new-books-we-recommend-this-week.html?searchResultPosition=2
 
 **A Code to Live By: What Is Yours?**\
-`We invite readers to tell us the guiding philosophy of their life.`\
+`We invite readers to tell us the guiding philosophy of their lives.`\
 https://nytimes.com/2021/04/01/opinion/letters/personal-philosophy.html?searchResultPosition=3
 
 **‘The 2021 Oscar Nominated Short Films’ Review: Major Issues in Brief**\
