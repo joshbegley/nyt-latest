@@ -1,40 +1,36 @@
-**Biden’s Afghanistan Dilemma**\
-`The deadline for the U.S. to leave Afghanistan is a month away. Here’s where things stand.`\
-https://nytimes.com/2021/04/01/briefing/california-shooting-new-york-weed-biden-infrastructure.html?searchResultPosition=1
+**When Ian Desmond Opted Out, His Work Was Just Starting**\
+`Moved by tragedies to confront the complicated nature of being biracial, Desmond, a Colorado Rockies outfielder, is still away from the game, focusing on his family and his nonprofit.`\
+https://nytimes.com/2021/04/01/sports/baseball/ian-desmond-opt-out.html?searchResultPosition=2
 
-**It Looks Like a Vespa, Rides Like a Vespa, but Doesn’t Smell Like a Vespa**\
-`An Irish mechanic in London has developed a kit to transform classic Italian scooters into clean-riding electric machines.`\
-https://nytimes.com/2021/04/01/business/electric-vespa-scooter.html?searchResultPosition=2
+**‘Every Breath You Take’ Review: The Therapist as Trauma Victim**\
+`Casey Affleck plays a vaunted psychiatrist whose life and career are derailed after he boasts about a miraculous new technique, which then fails tragically.`\
+https://nytimes.com/2021/04/01/movies/every-breath-you-take-review.html?searchResultPosition=3
 
-**Biden Administration Announces Ad Campaign to Combat Vaccine Hesitancy**\
-`The public awareness push includes 275 participating organizations that will speak to communities where skepticism of the coronavirus vaccine remains high.`\
-https://nytimes.com/2021/04/01/us/politics/coronavirus-vaccine-hesitancy.html?searchResultPosition=3
+**‘The Human Voice’ Review: Almodóvar Meets Cocteau Meets Swinton**\
+`The first English-language film from the Spanish director Pedro Almodóvar stars Tilda Swinton and adapts Jean Cocteau to sublime results.`\
+https://nytimes.com/2021/04/01/movies/the-human-voice-review.html?searchResultPosition=4
 
-**A Union Drive at Amazon**\
-`How a small group of workers in Alabama are taking on one of the most powerful companies in the world.`\
-https://nytimes.com/2021/04/01/podcasts/the-daily/amazon-union-vote-alabama.html?searchResultPosition=4
+**In Tennis, Tough Decisions as Players Adjust to Shrunken Paydays**\
+`With less money to be won, many players are working harder than ever, especially those not lucky enough to have million-dollar endorsement portfolios.`\
+https://nytimes.com/2021/04/01/sports/tennis/tennis-atp-wta-money.html?searchResultPosition=5
 
-**Setting the Stage Once Again for Shakespeare, and Live Theater**\
-`With coronavirus restrictions easing in England, several venues have plans to give classic plays new life.`\
-https://nytimes.com/2021/04/01/theater/london-shakespeare.html?searchResultPosition=5
+**‘WeWork’ Review: The Sharing Economy or a Shared Delusion?**\
+`This documentary on the workspace start-up is a fast-paced, entertaining saga of relentless self-selling and a curious corporate culture.`\
+https://nytimes.com/2021/04/01/movies/WeWork-Or-the-Making-and-Breaking-of-a-47-Billion-Unicorn-review.html?searchResultPosition=6
 
-**150,000 Painted Hearts, Each for a Life Lost to Covid-19 in Britain**\
-`The National Covid Memorial Wall in London aims to remember those who die during the pandemic. “It’s therapeutic,” said a volunteering painter who lost her grandmother to the disease.`\
-https://nytimes.com/2021/04/01/world/europe/uk-coronavirus-deaths-memorial-hearts.html?searchResultPosition=6
+**‘Malni — Towards the Ocean, Towards the Shore’ Review: Embracing Our Ghosts**\
+`This ethereal experimental documentary by Sky Hopinka is an essential portrait of contemporary Indigenous life.`\
+https://nytimes.com/2021/04/01/movies/malni-towards-the-ocean-towards-the-shore-review.html?searchResultPosition=7
 
-**What Will Legal Cannabis Look Like in New York?**\
-`The state will become one of the largest markets of the drug in the nation. Here's what you can do now, and what will take some time.`\
-https://nytimes.com/2021/04/01/nyregion/marijuana-legalization-new-york.html?searchResultPosition=7
+**‘Concrete Cowboy’ Review: Acquiring Horse Sense on the Philly Streets**\
+`Idris Elba leads us through the long-buried heritage of America’s Black cowboys, manifested in their modern-day urban descendants.`\
+https://nytimes.com/2021/04/01/movies/concrete-cowboy-review-acquiring-horse-sense-on-the-philly-streets.html?searchResultPosition=8
 
-**That Spotty Wi-Fi? There’s $100 Billion to Fix It.**\
-`President Biden's infrastructure proposal aims to close the digital divide, which has existed since the Clinton administration.`\
-https://nytimes.com/2021/04/01/technology/digital-divide-rural-wifi.html?searchResultPosition=8
+**‘Amundsen: The Greatest Expedition’ Review: Ice, Ice, Baby**\
+`This overstuffed trek through the chilly life of the famed Norwegian explorer Roald Amundsen is a handsome snooze.`\
+https://nytimes.com/2021/04/01/movies/amundsen-the-greatest-expedition-review.html?searchResultPosition=9
 
-**What the History of Pandemics Can Teach Us About Resilience**\
-`Widespread disease outbreaks have the potential to shock societies into new ways of living.`\
-https://nytimes.com/2021/04/01/health/pandemics-plague-history-resilience.html?searchResultPosition=9
-
-**Brandi Carlile Has Always Seen Herself Clearly. Now It’s Our Turn.**\
-`In her new memoir, “Broken Horses,” the singer-songwriter takes a deep look at how “a mean, scrappy little trailer girl with the wrong clothes” became a six-time Grammy winner.`\
-https://nytimes.com/2021/04/01/arts/music/brandi-carlile-broken-horses.html?searchResultPosition=10
+**‘This Is Not a Burial, It’s a Resurrection’ Review: Bringing Out the Dead**\
+`In this drama, a widow rises out of grief to protest a threat to her village.`\
+https://nytimes.com/2021/04/01/movies/this-is-not-a-burial-its-a-resurrection-review.html?searchResultPosition=10
 
