@@ -6,8 +6,8 @@ https://nytimes.com/2021/04/01/nyregion/solitary-confinement-restricted.html?sea
 `Determined to make good on the nativist promise of Brexit, it has embraced anti-migrant authoritarianism.`\
 https://nytimes.com/2021/04/01/opinion/uk-immigration-boris-johnson.html?searchResultPosition=2
 
-**Francisco Lindor Agrees to $341 Million Extension With Mets**\
-`The superstar shortstop is committed to Queens through 2031 after adding 10 years to his previous one-year deal.`\
+**Francisco Lindor and Mets Agree on $341 Million Contract Extension**\
+`The superstar shortstop is committed to Queens through 2031 after adding 10 years to his previous deal.`\
 https://nytimes.com/2021/04/01/sports/baseball/francisco-lindor-mets-extension.html?searchResultPosition=3
 
 **Your Thursday Briefing**\
