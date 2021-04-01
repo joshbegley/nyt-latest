@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2021/04/01/arts/editors-recommendations-lous-and
 `Six easy steps to ease your way into deeper introspection.`\
 https://nytimes.com/2021/04/01/style/self-care/tarot-guide-for-beginners.html?searchResultPosition=2
 
-**A key witness for the state will likely plead the fifth.**\
+**A key witness in the state’s case against Derek Chauvin will likely plead the fifth.**\
 `The witness, Morries Lester Hall, was seated in the passenger seat of Mr. Floyd’s car when Minneapolis police officers approached him.`\
 https://nytimes.com/2021/04/01/us/witness-chauvin-trial-plead-fifth.html?searchResultPosition=3
 
