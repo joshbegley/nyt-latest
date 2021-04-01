@@ -1,6 +1,6 @@
-**Shooting in Southern California Results in Multiple Fatalities, Officials Say**\
-`The police in Orange, Calif., said that “the situation has been stabilized” and that there was no longer a threat to the public.`\
-https://nytimes.com/2021/03/31/us/shooting-in-southern-california-results-in-multiple-fatalities-officials-say.html?searchResultPosition=1
+**4 Killed in Shooting in Southern California, Officials Say**\
+`A child was among the victims in the shooting, which took place at an office building in Orange, Calif., the authorities said.`\
+https://nytimes.com/2021/03/31/us/4-killed-in-shooting-in-southern-california-officials-say.html?searchResultPosition=1
 
 **Hong Kong Court Convicts Democracy Leaders Over Protest March**\
 `The defendants, including the media tycoon Jimmy Lai and the barristers Martin Lee and Margaret Ng, are some of the city’s most prominent activists.`\
