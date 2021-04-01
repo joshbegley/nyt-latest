@@ -12,7 +12,7 @@ https://nytimes.com/2021/04/01/movies/oscar-shorts-review.html?searchResultPosit
 
 **Lawyers for George Floyd’s family say jurors should look past his drug use after hearing testimony about his addiction.**\
 `Many people who are addicted to drugs “are treated with dignity, respect and support, not brutality,” the lawyers said.`\
-https://nytimes.com/2021/04/01/us/lawyers-for-george-floyds-family-say-jurors-should-look-past-his-drug-use-after-hearing-testimony-about-his-addiction.html?searchResultPosition=4
+https://nytimes.com/2021/04/01/us/lawyers-george-floyd-drug-use.html?searchResultPosition=4
 
 **Esperanza Spalding’s Quest to Find Healing in Music**\
 `The bassist, vocalist and producer’s latest project is a therapeutic suite of songs sparked at an artists’ retreat she started during the pandemic.`\
