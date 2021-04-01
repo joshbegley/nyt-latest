@@ -28,7 +28,7 @@ https://nytimes.com/article/covid-vaccine-card.html?searchResultPosition=7
 
 **Tiger Woods Update: Sheriff Says Crash Investigation Is Done**\
 `Alex Villanueva, the sheriff of Los Angeles County, said that the authorities would need Woods’s permission to release the results of the investigation.`\
-https://nytimes.com/2021/03/31/sports/tiger-woods-crash-investigation.html?searchResultPosition=8
+https://nytimes.com/2021/03/31/sports/golf/tiger-woods-crash-investigation.html?searchResultPosition=8
 
 **4 Killed in Shooting at a Southern California Office Building**\
 `A child was among the victims as gunfire erupted in Orange County, the authorities said.`\
