@@ -1,40 +1,40 @@
-**The Best Movies and TV Shows New to Netflix, Amazon and Stan in Australia in April**\
-`Our streaming picks for April, including ‘Concrete Cowboy,’ ‘Made for Love’ and ‘Them’`\
-https://nytimes.com/2021/04/01/arts/television/the-best-movies-and-tv-shows-new-to-netflix-amazon-and-stan-in-australia-in-april.html?searchResultPosition=1
+**Billions in New Obamacare Subsidies Are Now Available on Healthcare.gov**\
+`Nearly everyone with a marketplace health plan can seek more financial help. Many uninsured Americans and people who buy their insurance elsewhere can also benefit.`\
+https://nytimes.com/2021/04/01/upshot/obamacare-subsidies-available-healthcaregov.html?searchResultPosition=1
 
-**Laura Wasser, She Who Will Cleave the Union of Kim and Kanye**\
-`A Hollywood divorce lawyer with lots of practice.`\
-https://nytimes.com/2021/04/01/style/laura-wasser-kim-kardashian-divorce.html?searchResultPosition=2
+**What if the Pain Never Ends?**\
+`I will still have to face it with dignity.`\
+https://nytimes.com/2021/04/01/opinion/back-pain.html?searchResultPosition=2
 
-**Biden Says He Would Support Moving All-Star Game Over Georgia Voting Law**\
-`In an interview on ESPN, President Biden discussed the restrictions passed by the state’s Republicans last week and encouraged baseball fans to abide by social-distancing protocols.`\
-https://nytimes.com/2021/04/01/us/politics/biden-espn-baseball-georgia.html?searchResultPosition=3
+**How N.Y.C.’s Population Expert Says the City Will Bounce Back**\
+`Joseph J. Salvo, who is retiring after nearly 30 years as New York City’s chief demographer, is optimistic about New York City’s recovery after the pandemic.`\
+https://nytimes.com/2021/04/01/nyregion/nyc-population-pandemic-recovery.html?searchResultPosition=3
 
-**Word of the Day: jeopardy**\
-`This word has appeared in 342 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/01/learning/word-of-the-day-jeopardy.html?searchResultPosition=4
+**The Push to Vaccinate 20,000 Holocaust Survivors in New York**\
+`One survivor who got her vaccine, Eva Rose, 96, said the last year has been “lousy,” but added: “I am still here, thank God.”`\
+https://nytimes.com/2021/04/01/nyregion/holocaust-survivor-vaccination.html?searchResultPosition=4
 
-**New York Will End Long-Term Solitary Confinement in Prisons and Jails**\
-`Isolation for more than 15 consecutive days will be barred in prisons and jails starting next March after years of efforts to restrict the practice.`\
-https://nytimes.com/2021/04/01/nyregion/solitary-confinement-restricted.html?searchResultPosition=5
+**Are You Shopping for Obamacare? Tell Us About It.**\
+`We want to hear from people who enrolled for health insurance about their experiences signing up.`\
+https://nytimes.com/2021/04/01/upshot/enroll-in-aca.html?searchResultPosition=5
 
-**Boris Johnson’s Government Is Built on Cruelty**\
-`Determined to make good on the nativist promise of Brexit, it has embraced anti-migrant authoritarianism.`\
-https://nytimes.com/2021/04/01/opinion/uk-immigration-boris-johnson.html?searchResultPosition=6
+**Black Friendship, Broadcasted**\
+`The hosts of the “OK Now Listen” podcast want to reflect the best parts of chatting with your buds. “I have a tribe of women that hold me down,” Deanii Scott said.`\
+https://nytimes.com/2021/04/01/style/oknowlisten-sylvia-obell-scottie-beam.html?searchResultPosition=6
 
-**Francisco Lindor and Mets Agree on $341 Million Contract Extension**\
-`The superstar shortstop is committed to Queens through 2031 after adding 10 years to his previous deal.`\
-https://nytimes.com/2021/04/01/sports/baseball/francisco-lindor-mets-extension.html?searchResultPosition=7
+**Why It’s Taken Us So Long to Talk About Anti-Asian Racism**\
+`The writer and poet Cathy Park Hong discusses Asian outrage and why she’s seeking power, not assimilation.`\
+https://nytimes.com/2021/04/01/opinion/sway-kara-swisher-cathy-park-hong.html?searchResultPosition=7
 
-**Your Thursday Briefing**\
-`‘Rape culture’ in U.K. schools.`\
-https://nytimes.com/2021/04/01/briefing/sexual-violence-coronavirus-yemen.html?searchResultPosition=8
+**Lesson of the Day: ‘Rich Countries Signed Away a Chance to Vaccinate the World’**\
+`In this his lesson, students will learn about the stark inequalities in vaccine access across the globe, then consider what the United States should do to close the gap.`\
+https://nytimes.com/2021/04/01/learning/lesson-of-the-day-rich-countries-signed-away-a-chance-to-vaccinate-the-world.html?searchResultPosition=8
 
-**Women Are Calling Out ‘Rape Culture’ in U.K. Schools**\
-`Thousands of anonymous online accounts have shone a spotlight on sexual violence against young women and girls.`\
-https://nytimes.com/2021/04/01/world/europe/schools-uk-rape-culture.html?searchResultPosition=9
+**Dogs Can Have a Little Charcuterie, as a Treat**\
+`“Barkuterie” boards are a new way to spoil your beloved pets.`\
+https://nytimes.com/2021/04/01/style/barkuterie-boards-dog-treats.html?searchResultPosition=9
 
-**The Sabres’ Losing Streak Ends at 18**\
-`Buffalo had been on a dry spell, going 0-15-3 since late February, before beating Philadelphia on Wednesday.`\
-https://nytimes.com/2021/04/01/sports/hockey/sabres-losing-streak-ends.html?searchResultPosition=10
+**Elizabeth Acevedo Understands That ‘People Read Like They Eat’**\
+`“Sometimes we want comfort, sometimes we want to work to crack something open.”`\
+https://nytimes.com/2021/04/01/books/review/elizabeth-acevedo-by-the-book-interview.html?searchResultPosition=10
 
