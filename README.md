@@ -3,8 +3,8 @@
 https://nytimes.com/2021/04/01/arts/design/alice-neel-metropolitan-museum-review.html?searchResultPosition=1
 
 **George Floyd was dead by the time medical help arrived, a paramedic testified.**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/2021/04/01/us/george-floyd-dead-when-medical-help-arrived-paramedic-testified.html?searchResultPosition=2
+`Derek Smith, the paramedic, said that he had first felt Mr. Floyd’s neck for a pulse while police officers were still on top of him and that he could not find one.`\
+https://nytimes.com/2021/04/01/us/paramedic-testimony-floyd-dead.html?searchResultPosition=2
 
 **Police Provide Update on Southern California Office Shooting**\
 `A gunman opened fire at a Southern California real estate office on Wednesday, killing four people. In an update on Thursday, law enforcement officials said they recovered several items believed to have belonged to the suspect.`\
