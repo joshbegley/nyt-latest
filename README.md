@@ -6,23 +6,27 @@ https://nytimes.com/video/us/politics/100000007686982/southern-california-office
 `The state is wrestling with most of the issues and trade-offs that come with such a giant undertaking.`\
 https://nytimes.com/2021/04/01/health/covid-vaccine-eligibility-maryland.html?searchResultPosition=2
 
+**Interior Department chief of staff is demoted after ignoring coronavirus guidance and planning an indoor party.**\
+`Jennifer Van der Heide will remain at the Interior Department as a senior counselor to Secretary of Interior Deb Haaland.`\
+https://nytimes.com/2021/04/01/us/interior-department-chief-staff-party.html?searchResultPosition=3
+
 **Merkel’s Latest Pandemic Challenge: Leading as a Lame Duck**\
 `The German chancellor, known for her cool, solution-oriented response in the pandemic’s early stages, faces her greatest challenge yet as cases rise and patience plummets months before her final term ends.`\
-https://nytimes.com/2021/04/01/world/europe/merkel-coronavirus-germany.html?searchResultPosition=3
+https://nytimes.com/2021/04/01/world/europe/merkel-coronavirus-germany.html?searchResultPosition=4
 
 **Your Friday Briefing**\
 `Threats to pandemic progress everywhere.`\
-https://nytimes.com/2021/04/01/briefing/virus-vaccines-hong-kong-uyghurs.html?searchResultPosition=4
+https://nytimes.com/2021/04/01/briefing/virus-vaccines-hong-kong-uyghurs.html?searchResultPosition=5
 
 **‘Malmkrog’ Review: Now You’re Talking**\
 `Welcome to a three-hour, multilingual 19th-century house party, organized by the Romanian filmmaker Cristi Puiu.`\
-https://nytimes.com/2021/04/01/movies/malmkrog-review.html?searchResultPosition=5
+https://nytimes.com/2021/04/01/movies/malmkrog-review.html?searchResultPosition=6
 
 **Solitary Confinement of Teenagers**\
 `The American Academy of Pediatrics says its use “remains common in juvenile detention facilities.” Also: Restoring the Everglades; better treatment of female athletes.`\
-https://nytimes.com/2021/04/01/opinion/letters/solitary-confinement-teenagers.html?searchResultPosition=7
+https://nytimes.com/2021/04/01/opinion/letters/solitary-confinement-teenagers.html?searchResultPosition=8
 
 **The Best Movies and TV Shows Coming to Amazon, HBO Max, Hulu and More in April**\
 `Every month, streaming services add movies and TV shows to its library. Here are our picks for some of April’s most promising new titles.`\
-https://nytimes.com/2021/04/01/arts/television/best-movies-tv-shows-amazon-hbo-max-hulu.html?searchResultPosition=9
+https://nytimes.com/2021/04/01/arts/television/best-movies-tv-shows-amazon-hbo-max-hulu.html?searchResultPosition=10
 
