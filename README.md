@@ -8,7 +8,7 @@ https://nytimes.com/2021/04/01/style/self-care/tarot-guide-for-beginners.html?se
 
 **A key witness in the state’s case against Derek Chauvin will likely plead the fifth.**\
 `The witness, Morries Lester Hall, was seated in the passenger seat of Mr. Floyd’s car when Minneapolis police officers approached him.`\
-https://nytimes.com/2021/04/01/us/witness-chauvin-trial-plead-fifth.html?searchResultPosition=3
+https://nytimes.com/2021/04/01/us/morries-hall-witness-testimony.html?searchResultPosition=3
 
 **North Carolina Coach Roy Williams Retires After 3 National Titles**\
 `Williams won three N.C.A.A. men’s tournament championships in 18 seasons with the Tar Heels. At North Carolina and Kansas, he took 30 teams to the tournament in 33 seasons and reached the Final Four nine times.`\
