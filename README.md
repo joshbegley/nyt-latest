@@ -12,7 +12,7 @@ https://nytimes.com/2021/04/02/technology/pinterest-vsco.html?searchResultPositi
 
 **These Sacred Jewish Books Were Abandoned. Could I Save Them?**\
 `Finding them in a trash bin saddened me. I couldn’t just put them back.`\
-https://nytimes.com/2021/04/02/opinion/these-sacred-jewish-books-were-abandoned-could-i-save-them.html?searchResultPosition=4
+https://nytimes.com/2021/04/02/opinion/jewish-prayer-books.html?searchResultPosition=4
 
 **Fully Vaccinated Americans Can Travel With Low Risk, C.D.C. Says**\
 `They should still wear masks but no quarantines are necessary, the agency said in new guidance that cited growing data about the effectiveness of the shots.`\
