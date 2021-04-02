@@ -1,40 +1,40 @@
-**Jobs report for March is expected to be a strong one, with more to come.**\
-`Forecasters surveyed by FactSet expect the report to show that U.S. employers added more than 600,000 jobs last month, up from 379,000 in February and the most since October.`\
-https://nytimes.com/2021/04/02/business/economy/march-2021-jobs-report.html?searchResultPosition=1
+**A Home Buyers’ Bonanza in Manhattan**\
+`Housing sales in New York City are finally picking up — along with deep discounts.`\
+https://nytimes.com/2021/04/02/realestate/nyc-apartments-condos-sales.html?searchResultPosition=1
 
-**A Rapper, Hitting His 30s, Reinvents Himself as a Scion of Spanish Pop**\
-`C. Tangana was a provocative star of trap music. Now, his songs are played in supermarkets and praised by 50- and 60-somethings on YouTube.`\
-https://nytimes.com/2021/04/02/arts/music/c-tangana-rosalia-madrileno.html?searchResultPosition=2
+**Following the Pandemic-Era Deals in New Development**\
+`Sales are increasing in Manhattan, but so are the discounts.`\
+https://nytimes.com/slideshow/2021/04/02/realestate/following-the-pandemic-era-deals-in-new-development.html?searchResultPosition=2
 
-**Vaccine ‘Fiasco’ Damages Europe’s Credibility**\
-`The European Union’s failure to secure adequate vaccine supplies, followed by an export ban, has dented the reputation of the bloc’s leaders. It may also hurt their ability to act in other areas.`\
-https://nytimes.com/2021/04/02/world/europe/europe-coronavirus-vaccine-credibility.html?searchResultPosition=3
+**‘Mommy, I Have Bad News’: For Child Migrants, Mexico Can Be the End of the Road**\
+`Thousands of children, most from Central America, are making their way to the border, many hoping to meet parents in the United States. But for those caught in Mexico, there is only near-certain deportation.`\
+https://nytimes.com/2021/04/02/world/americas/migrant-children-Mexico.html?searchResultPosition=3
 
-**Lesson of the Day: ‘Losing a Loved One Twice: First to Prison, Then to Covid’**\
-`In this lesson, students will learn about the unique risks the coronavirus pandemic poses to correctional facilities and consider the disease’s effects on incarcerated people and their families.`\
-https://nytimes.com/2021/04/02/learning/lesson-of-the-day-losing-a-loved-one-twice-first-to-prison-then-to-covid.html?searchResultPosition=4
+**The Ghosts of Brooks Brothers**\
+`After the retailer filed for bankruptcy one couple was left with a warehouse full of abandoned mannequins and a price tag of nearly $250,000 to dispose of it.`\
+https://nytimes.com/2021/04/02/business/brooks-brothers-retail-bankruptcy.html?searchResultPosition=4
 
-**Is the Fight Against Sexism in Australia’s Politics Different This Time?**\
-`Six weeks after Brittany Higgins spoke up with her allegation of rape in the defense minister’s office, some things have changed and some things have not.`\
-https://nytimes.com/2021/04/02/world/australia/fighting-sexism-in-politics.html?searchResultPosition=5
+**Boomers Are Vaccinated and Down to Party**\
+`The Roaring Twenties are back in Southern Florida and other spots where older Americans gather.`\
+https://nytimes.com/2021/04/02/style/boomers-are-vaccinated-and-down-to-party.html?searchResultPosition=5
 
-**Old Tunnels and Rusting Bridges: America’s Creaking Infrastructure**\
-`The Biden administration has pledged a $2 trillion investment in the nation’s infrastructure. With century-old water systems and schools vulnerable to earthquakes, there is no shortage of need.`\
-https://nytimes.com/2021/04/02/us/infrastructure-projects-joe-biden.html?searchResultPosition=6
+**Your ‘Maskne’ Might Not Be Acne at All**\
+`Perioral dermatitis, a complex facial rash that is often mistaken for acne, is becoming more common, some experts say. Here’s how to spot, treat and prevent this irritating condition.`\
+https://nytimes.com/2021/04/02/well/perioral-dermatitis-pandemic.html?searchResultPosition=6
 
-**Shut Out on Vaccines, Tiny San Marino Turns to Old Friend: Russia**\
-`A microstate surrounded by Italy, San Marino feared being left behind in Europe’s inoculation campaign. Now it has jumped ahead, with the Sputnik vaccine sent by an unlikely, faraway friend.`\
-https://nytimes.com/2021/04/02/world/europe/italy-san-marino-sputnik-vaccine.html?searchResultPosition=7
+**Literature’s Most Ubiquitous Hat**\
+`The bowler, beloved by Jeeves, Leopold Bloom and Babar.`\
+https://nytimes.com/2021/04/02/books/literatures-most-ubiquitous-hat.html?searchResultPosition=7
 
-**Virginia, the Old Confederacy’s Heart, Becomes a Voting Rights Bastion**\
-`For nearly 50 years, the state was subject to Voting Rights Act rules meant to deter racial discrimination. Those federal guidelines are now shredded, but Virginia just recreated them on its own.`\
-https://nytimes.com/2021/04/02/us/politics/virginia-voting-rights-northam.html?searchResultPosition=8
+**The Unmitigated Chaos of America’s Attempt at Color-Coded Covid Guidance**\
+`Many states use color-coded tiers to signal coronavirus restrictions. Why are they all wildly different?`\
+https://nytimes.com/2021/04/02/style/coronavirus-safety-colors-states.html?searchResultPosition=8
 
-**Collage**\
-`What do you think this image is saying?`\
-https://nytimes.com/2021/04/02/learning/collage.html?searchResultPosition=9
+**How a Radio Host, Broadcasting Live From Home, Spends Sundays**\
+`It’s been a year — and many pots of beans — since Kai Wright abandoned his on-air studio in Manhattan. But the show has gone on.`\
+https://nytimes.com/2021/04/02/nyregion/how-a-radio-host-broadcasting-live-from-home-spends-sundays.html?searchResultPosition=9
 
-**Word of the Day: uncanny**\
-`This word has appeared in 237 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/02/learning/word-of-the-day-uncanny.html?searchResultPosition=10
+**Up on the Met Roof, an Artist Is Taking Big Bird to New Heights**\
+`Alex Da Corte, known for provocative, brightly colored installations, will showcase the beloved “Sesame Street’” character at the top of the Met this spring — but with a twist.`\
+https://nytimes.com/2021/04/02/arts/design/Alex-Da-Corte-Met-Rooftop.html?searchResultPosition=10
 
