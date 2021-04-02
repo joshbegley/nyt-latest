@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/02/movies/yuh-jung-youn-minari.html?searchResultPosition=1
 
 **Olivia Rodrigo’s Emotional Road Trip, and 8 More New Songs**\
-`Hear tracks by Westside Gunn, Roseanne Cash, Dry Cleaning and others.`\
+`Hear tracks by Westside Gunn, Rosanne Cash, Dry Cleaning and others.`\
 https://nytimes.com/2021/04/02/arts/music/playlist-olivia-rodrigo-westside-gunn.html?searchResultPosition=2
 
 **America Has Long Favored Cars Over Trains and Buses. Can Biden Change That?**\
