@@ -10,9 +10,9 @@ https://nytimes.com/2021/04/02/books/review/crime-fiction-caroline-kepnes-you-lo
 `A labor battle in Alabama is a referendum on Amazon’s strategy.`\
 https://nytimes.com/2021/04/02/opinion/bezos-politicians-tech-regulations.html?searchResultPosition=3
 
-**Baseball Pulls All-Star Game from Georgia in Response to Voting Law**\
-`Major League Baseball said it would remove its midsummer showcase and its annual entry draft as a response to the state’s new voting law.`\
-https://nytimes.com/2021/04/02/sports/baseball/mlb-all-star-game-moved.html?searchResultPosition=4
+**M.L.B. Pulls All-Star Game From Georgia in Response to Voting Law**\
+`The league said it would remove its midsummer showcase and its annual entry draft as a response to the state’s new voting law.`\
+https://nytimes.com/2021/04/02/us/politics/mlb-all-star-game-moved.html?searchResultPosition=4
 
 **The Daily: A Postcard From the Future**\
 `To envision a post-pandemic world, we called Betty Lou and Zita. Plus, we have a new show!`\
