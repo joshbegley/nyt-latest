@@ -23,7 +23,7 @@ https://nytimes.com/2021/04/02/us/politics/trump-latino-voters-2020.html?searchR
 https://nytimes.com/2021/04/02/us/kenneth-c-kelly-dead.html?searchResultPosition=6
 
 **Malcolm Cecil, Synthesizer Pioneer, Is Dead at 84**\
-`His massive synthesizer, known as TONTO, helped transform the music in Stevie Wonder’s mind into classic albums like “Innervisions.”`\
+`His massive machine, known as TONTO, helped transform the music in Stevie Wonder’s mind into classic albums like “Innervisions.”`\
 https://nytimes.com/2021/04/02/arts/music/malcolm-cecil-dead.html?searchResultPosition=7
 
 **Suspect in Capitol attack appears to have been a follower of Louis Farrakhan.**\
