@@ -1,6 +1,6 @@
 **Grand Opening for a Casino**\
 `Kyra Wilson makes her New York Times Crossword, in collaboration with Sophia Maymudes.`\
-https://nytimes.com/2021/04/01/crosswords/grand-opening-for-a-casino.html?searchResultPosition=1
+https://nytimes.com/2021/04/01/crosswords/daily-puzzle-2021-04-02.html?searchResultPosition=1
 
 **Justice Dept. Inquiry Into Matt Gaetz Said to Be Focused on Cash Paid to Women**\
 `The congressman and a former official in Florida sent money to the women using cash apps, receipts showed.`\
