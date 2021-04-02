@@ -10,7 +10,7 @@ https://nytimes.com/2021/04/02/arts/music/popcast-music-documentaries.html?searc
 `An April Fool’s Day prank ended in clashes with the police.`\
 https://nytimes.com/2021/04/02/world/brussels-festival-concert.html?searchResultPosition=3
 
-**Russian Ex-Con of U.S. Penal System Meets, Taunts, Imprisoned Navalny**\
+**Russian Ex-Con of U.S. Penal System Meets, Taunts Imprisoned Navalny**\
 `The meeting between Maria Butina and Aleksei A. Navalny came after the Russian opposition leader had declared a hunger strike to demand access to a doctor because of deteriorating health.`\
 https://nytimes.com/2021/04/02/world/europe/navalny-butina-prison-taunt.html?searchResultPosition=4
 
