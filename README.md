@@ -4,7 +4,7 @@ https://nytimes.com/2021/04/02/us/california-vaccine-rollout.html?searchResultPo
 
 **U.K. reports more blood-clotting cases in people who received the AstraZeneca shot.**\
 `Some countries, including Germany, have restricted use over the issue, but British and European regulators say that incidences are rare and that the vaccine should continue to be given.`\
-https://nytimes.com/2021/04/02/world/uk-reports-more-blood-clotting-cases-in-people-who-received-the-astrazeneca-shot.html?searchResultPosition=2
+https://nytimes.com/2021/04/02/world/uk-astrazeneca-blood-clots.html?searchResultPosition=2
 
 **Transcript: Ezra Klein Interviews Walter Isaacson**\
 `The April 2 episode of “The Ezra Klein Show.”`\
