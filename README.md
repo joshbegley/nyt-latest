@@ -23,7 +23,7 @@ https://nytimes.com/2021/04/01/us/marvin-scott-texas-jail.html?searchResultPosit
 https://nytimes.com/2021/04/01/briefing/coronavirus-mural-tigray-myanmar.html?searchResultPosition=6
 
 **Taiwan Train Derails in Tunnel, Killing at Least 34 People**\
-`Several carriages of the train hit the walls of the tunnel on Friday, reportedly after a collision with a vehicle.`\
+`It was the island’s deadliest railway accident in decades and reportedly happened after the train collided with a construction vehicle.`\
 https://nytimes.com/2021/04/01/world/asia/taiwan-train-derails.html?searchResultPosition=7
 
 **Grand Opening for a Casino**\
