@@ -12,7 +12,7 @@ https://nytimes.com/2021/04/02/style/love-letter-newsletter-love-without-limitat
 
 **Billy Evans, the officer who died in the Capitol attack, is an 18-year veteran of the force.**\
 `A 25-year-old man drove his car into Evans and another officer, then lunged at them with a knife`\
-https://nytimes.com/2021/04/02/us/capitol-officer-killed.html?searchResultPosition=4
+https://nytimes.com/2021/04/02/us/billy-evans.html?searchResultPosition=4
 
 **Coronavirus Briefing: What Happened Today**\
 `Economists say that the latest economic data is a turning point in the U.S. recovery.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2021/04/02/us/coronavirus-today-vaccines.html?searchResultPo
 
 **National Guard deploys ‘immediate reaction force’ in response to Capitol attack.**\
 `By John Ismay`\
-https://nytimes.com/2021/04/02/us/national-guard-deploys-immediate-reaction-force-in-response-to-capitol-attack.html?searchResultPosition=7
+https://nytimes.com/2021/04/02/us/national-guard-capitol.html?searchResultPosition=7
 
 **What to Do This Weekend**\
 `Signs of spring.`\
