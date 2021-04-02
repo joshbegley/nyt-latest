@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/01/us/politics/biden-infrastructure-racial-equity.ht
 https://nytimes.com/2021/04/01/obituaries/daniel-laske-dead-coronavirus.html?searchResultPosition=4
 
 **Chauvin Trial: Day 4 Key Moments**\
-`As the murder trial of Derek Chauvin continued for a fourth day on Thursday, those who testified included George Floyd’s girlfriend and emergency responders who were on duty the day Floyd died.`\
+`As the murder trial of Derek Chauvin continued for a fourth day on Thursday, those who testified included George Floyd’s girlfriend and emergency responders who were on duty the day Mr. Floyd died.`\
 https://nytimes.com/video/us/100000007687810/chauvin-trial-day-4-key-moments.html?searchResultPosition=5
 
 **Baseball and Its Fans Are Back. Just Not Way, Way Back.**\
