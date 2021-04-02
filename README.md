@@ -22,8 +22,8 @@ https://nytimes.com/2021/04/01/us/marvin-scott-texas-jail.html?searchResultPosit
 `The challenging latest chapter of the pandemic.`\
 https://nytimes.com/2021/04/01/briefing/coronavirus-mural-tigray-myanmar.html?searchResultPosition=6
 
-**Taiwan Train Derails in Tunnel, Killing at Least 1 Person**\
-`Many more deaths were feared after the derailment on Friday morning, a government-run news agency reported.`\
+**Taiwan Train Derails in Tunnel, Killing at Least 4 People**\
+`Many more deaths were feared after the accident on Friday morning, a government-run news agency reported.`\
 https://nytimes.com/2021/04/01/world/asia/taiwan-train-derails.html?searchResultPosition=7
 
 **Grand Opening for a Casino**\
