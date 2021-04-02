@@ -8,7 +8,7 @@ https://nytimes.com/2021/04/02/arts/music/malcolm-cecil-dead.html?searchResultPo
 
 **Suspect in Capitol attack appears to have been a follower of Louis Farrakhan.**\
 `Officials identified the suspect as Noah R. Green, 25. He had posted on Facebook about Mr. Farrakhan and the “end times.”`\
-https://nytimes.com/2021/04/02/us/noah-green-capitol-attack-louis-farrakhan.html?searchResultPosition=3
+https://nytimes.com/2021/04/02/us/noah-green-farrakhan.html?searchResultPosition=3
 
 **Reversing Trump, Biden Repeals Sanctions on Human Rights Prosecutor**\
 `The move revokes an executive order that put the United States at odds with many of its European allies.`\
