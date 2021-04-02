@@ -24,7 +24,7 @@ https://nytimes.com/2021/04/02/world/americas/venezuela-colombia-military-campai
 
 **Takeaways from Day 5 of the Derek Chauvin trial.**\
 `Friday’s proceedings ended with critical testimony from the longest-serving officer in the Minneapolis Police Department, who testified that Mr. Chauvin’s actions were “totally unnecessary.”`\
-https://nytimes.com/2021/04/02/us/takeaways-day-5-derek-chauvin-trial.html?searchResultPosition=7
+https://nytimes.com/2021/04/02/us/george-floyd-day-5.html?searchResultPosition=7
 
 **Two Capitol Police officers are injured in a vehicle attack; a suspect was shot and killed.**\
 `A suspect was in custody and two police officers were injured in the attack on Friday afternoon, according to the Capitol Police.`\
