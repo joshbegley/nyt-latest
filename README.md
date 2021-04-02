@@ -1,40 +1,40 @@
+**These Sacred Jewish Books Were Abandoned. Could I Save Them?**\
+`Finding them in a trash bin saddened me. I couldn’t just put them back.`\
+https://nytimes.com/2021/04/02/opinion/these-sacred-jewish-books-were-abandoned-could-i-save-them.html?searchResultPosition=1
+
 **Fully Vaccinated Americans Can Travel With Low Risk, C.D.C. Says**\
 `They should still wear masks but no quarantines are necessary, the agency said in new guidance that cited growing data about the effectiveness of the shots.`\
-https://nytimes.com/2021/04/02/health/cdc-travel-vaccinations.html?searchResultPosition=1
+https://nytimes.com/2021/04/02/health/cdc-travel-vaccinations.html?searchResultPosition=2
 
 **How Matt Gaetz Got Here**\
 `A prominent young Republican and Trump ally faces a head-spinning scandal.`\
-https://nytimes.com/2021/04/02/us/politics/gaetz-florida-trump.html?searchResultPosition=2
+https://nytimes.com/2021/04/02/us/politics/gaetz-florida-trump.html?searchResultPosition=3
 
 **Is It Wrong to Wear Expensive Designer Clothes to a New Job?**\
 `Vanessa Friedman, fashion director of The New York Times, takes reader questions.`\
-https://nytimes.com/2021/04/02/style/new-job-clothes.html?searchResultPosition=3
+https://nytimes.com/2021/04/02/style/new-job-clothes.html?searchResultPosition=4
 
 **When Ancient Rome Meets Minimalism**\
 `Brioni’s Norbert Stumpfl has approached his family’s home with characteristic patience and attention to detail.`\
-https://nytimes.com/2021/04/02/t-magazine/brioni-rome-minimalism-design.html?searchResultPosition=4
+https://nytimes.com/2021/04/02/t-magazine/brioni-rome-minimalism-design.html?searchResultPosition=5
 
 **Trump’s Latino Support Was More Widespread Than Thought, Report Finds**\
 `While Latinos played a major role in Democratic victories last year, Donald Trump’s outreach to them proved successful in states around the country, not just in certain geographic areas.`\
-https://nytimes.com/2021/04/02/us/politics/trump-latino-voters-2020.html?searchResultPosition=5
+https://nytimes.com/2021/04/02/us/politics/trump-latino-voters-2020.html?searchResultPosition=6
 
 **Kenneth C. Kelly, Champion of Desegregation in California, Dies at 94**\
 `When Mr. Kelly, an engineer, wasn’t designing ways to communicate with spacecraft, he was opening doors for Black families to move into the San Fernando Valley.`\
-https://nytimes.com/2021/04/02/us/kenneth-c-kelly-dead.html?searchResultPosition=6
+https://nytimes.com/2021/04/02/us/kenneth-c-kelly-dead.html?searchResultPosition=7
 
 **Malcolm Cecil, Synthesizer Pioneer, Is Dead at 84**\
 `His massive machine, known as TONTO, helped transform the music in Stevie Wonder’s mind into classic albums like “Innervisions.”`\
-https://nytimes.com/2021/04/02/arts/music/malcolm-cecil-dead.html?searchResultPosition=7
+https://nytimes.com/2021/04/02/arts/music/malcolm-cecil-dead.html?searchResultPosition=8
 
 **Suspect in Capitol attack appears to have been a follower of Louis Farrakhan.**\
 `Officials identified the suspect as Noah R. Green, 25. He had posted on Facebook about Mr. Farrakhan and the “end times.”`\
-https://nytimes.com/2021/04/02/us/noah-green-farrakhan.html?searchResultPosition=8
+https://nytimes.com/2021/04/02/us/noah-green-farrakhan.html?searchResultPosition=9
 
 **Reversing Trump, Biden Repeals Sanctions on Human Rights Prosecutor**\
 `The move revokes an executive order that put the United States at odds with many of its European allies.`\
-https://nytimes.com/2021/04/02/us/politics/biden-international-criminal-court-sanctions.html?searchResultPosition=9
-
-**Capitol Attack, Voting Rights, Easter: Your Friday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/04/02/briefing/capitol-attack-voting-rights-easter.html?searchResultPosition=10
+https://nytimes.com/2021/04/02/us/politics/biden-international-criminal-court-sanctions.html?searchResultPosition=10
 
