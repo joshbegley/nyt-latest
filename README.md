@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/01/opinion/latino-vote-midterms-2022.html?searchResultPosition=1
 
 **George Floyd’s Girlfriend Says Opioid Addiction Was a Struggle They Shared**\
-`The testimony was partly an effort by the prosecution to show that Mr. Floyd had a high tolerance for fentanyl, which could undercut the defense’s argument that he died of a drug overdose.`\
+`The testimony was partly an effort by the prosecution to show that Mr. Floyd had a high tolerance for fentanyl, which could undercut any argument that he died of a drug overdose.`\
 https://nytimes.com/2021/04/01/us/george-floyd-girlfriend-courteney-ross.html?searchResultPosition=2
 
 **Biden Seeks to Use Infrastructure Plan to Address Racial Inequities**\
