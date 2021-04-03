@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/03/admin/your-new-favorite-weeknight-pasta.html?sear
 https://nytimes.com/2021/04/03/theater/arthur-kopit-dead.html?searchResultPosition=2
 
 **They Survived Taiwan’s Train Crash. Their Loved Ones Did Not.**\
-`A woman lost her husband and their two children, who were athletes at a university. A man held his 6-year-old daughter in his arms in the minutes before she died.`\
+`A woman lost her husband and their two children, who were athletes at a university. A man held his 5-year-old daughter in his arms in the minutes before she died.`\
 https://nytimes.com/2021/04/03/world/asia/taiwan-train-crash.html?searchResultPosition=3
 
 **With U.S. shots nearing an average of 3 million a day, the country faces another threat: complacency.**\
