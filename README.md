@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/asia/100000007690284/taiwan-hualien-train-crash-relatives.html?searchResultPosition=1
 
 **In Moving All-Star Game, Another Sport Flexes Its Activist Muscles**\
-`Pulled by public opinion and sometimes their own players, leagues and teams are wading in to divisive political fights as never before.`\
+`Pulled by public opinion and sometimes their own players, leagues and teams are wading in to issues around race and social activism as never before.`\
 https://nytimes.com/2021/04/03/sports/baseball/all-star-georgia-voting-law.html?searchResultPosition=2
 
 **Argentina’s President Has Preliminary Positive Virus Test Despite Vaccination**\
