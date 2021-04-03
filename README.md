@@ -1,5 +1,5 @@
 **Gary Sanchez Homers Again as Yankees Top Blue Jays**\
-`Sanchez’s hot start, and Corey Kluber’s solid first start in pinstripes helped the Yankees get their first win of the season.`\
+`Sanchez’s homer and Corey Kluber’s solid first start in pinstripes helped the Yankees get their first win of the season.`\
 https://nytimes.com/2021/04/03/sports/baseball/yankees-blue-jays.html?searchResultPosition=1
 
 **Game Changers**\
