@@ -2,8 +2,8 @@
 `The families of trainee pilots sentenced to life in prison broke their silence to protest the men’s innocence. The pilots are among more than 600 trainees and conscripts swept up in prosecutions.`\
 https://nytimes.com/2021/04/03/world/europe/turkey-coup-trainee-pilots.html?searchResultPosition=1
 
-**With Swarms of Ships, Beijing Tightens Its Grip on the South China Sea**\
-`After building artificial islands, China is now using large fleets of ostensibly civilian boats to press other countries’ vessels out of disputed waters.`\
+**With Swarms of Ships, Beijing Tightens Its Grip on South China Sea**\
+`After building artificial islands, China is using large fleets of ostensibly civilian boats to press other countries’ vessels out of disputed waters.`\
 https://nytimes.com/2021/04/03/world/asia/swarms-ships-south-china-sea.html?searchResultPosition=2
 
 **The Virus Drove Churchgoers Away. Will Easter Bring Them Back?**\
