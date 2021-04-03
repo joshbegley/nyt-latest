@@ -2,7 +2,7 @@
 `A not-so-secret ingredient packs Eric Kim’s new creamy pasta with umami.`\
 https://nytimes.com/2021/04/03/admin/your-new-favorite-weeknight-pasta.html?searchResultPosition=1
 
-**Arthur Kopit, Whose ‘Oh Dad’ Shook Up the Theater, Dies at 81**\
+**Arthur Kopit, Whose ‘Oh Dad’ Shook Up the Theater, Dies at 83**\
 `A three-time Tony nominee, he first became known for avant-garde works, many of them christened with rambling titles, that sparked spirited reactions.`\
 https://nytimes.com/2021/04/03/theater/arthur-kopit-dead.html?searchResultPosition=2
 
