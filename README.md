@@ -1,40 +1,40 @@
+**Kenya, expressing concern about counterfeit vaccines, blocks private imports of doses.**\
+`The move comes after private health facilities started administering Russia’s Sputnik V vaccine, charging up to $70 for a shot.`\
+https://nytimes.com/2021/04/03/world/kenya-covid-vaccine.html?searchResultPosition=1
+
+**Forgotten Copy of Super Mario Bros. Sets Record at Auction**\
+`The game was bought as a Christmas gift in 1986 but was left in a desk drawer for 35 years. It sold for $660,000 at an auction on Friday.`\
+https://nytimes.com/2021/04/03/business/super-mario-bros-nintendo-auction.html?searchResultPosition=2
+
 **Virus Variants Threaten to Draw Out the Pandemic, Scientists Say**\
 `Declining infection rates over all masked a rise in more contagious forms of the coronavirus. Vaccines will stop the spread, if Americans postpone celebration just a bit longer.`\
-https://nytimes.com/2021/04/03/health/coronavirus-variants-vaccines.html?searchResultPosition=1
+https://nytimes.com/2021/04/03/health/coronavirus-variants-vaccines.html?searchResultPosition=3
 
 **Mourners Gather at Site of Taiwan Train Crash**\
 `Relatives of the 51 people killed on Friday in a train derailment in Hualien, Taiwan, came together on Saturday to grieve near the crash site.`\
-https://nytimes.com/video/world/asia/100000007690284/taiwan-hualien-train-crash-relatives.html?searchResultPosition=2
+https://nytimes.com/video/world/asia/100000007690284/taiwan-hualien-train-crash-relatives.html?searchResultPosition=4
 
 **In Moving All-Star Game, Another Sport Flexes Its Activist Muscles**\
 `Pulled by public opinion and sometimes their own players, leagues and teams are wading in to issues around race and social activism as never before.`\
-https://nytimes.com/2021/04/03/sports/baseball/all-star-georgia-voting-law.html?searchResultPosition=3
+https://nytimes.com/2021/04/03/sports/baseball/all-star-georgia-voting-law.html?searchResultPosition=5
 
 **Argentina’s President Has Preliminary Positive Virus Test Despite Vaccination**\
 `The president, who received the test result on his 62nd birthday, said he will remain in isolation while waiting for the results of the more rigorous PCR test`\
-https://nytimes.com/2021/04/03/world/americas/argentina-president-coronavirus.html?searchResultPosition=4
+https://nytimes.com/2021/04/03/world/americas/argentina-president-coronavirus.html?searchResultPosition=6
 
 **How Trump Steered Supporters Into Unwitting Donations**\
 `Online donors were guided into weekly recurring contributions. Demands for refunds spiked. Complaints to banks and credit card companies soared. But the money helped keep Donald Trump’s struggling campaign afloat.`\
-https://nytimes.com/2021/04/03/us/politics/trump-donations.html?searchResultPosition=5
+https://nytimes.com/2021/04/03/us/politics/trump-donations.html?searchResultPosition=7
 
 **Variety: Split Decisions**\
 `Fred Piscop drives a massive herd of difficult words our way.`\
-https://nytimes.com/2021/04/03/crosswords/variety-split-decisions.html?searchResultPosition=6
+https://nytimes.com/2021/04/03/crosswords/variety-split-decisions.html?searchResultPosition=8
 
 **Her Ballot Didn’t Count. She Faces 5 Years in Prison for Casting It.**\
 `A Texas woman is appealing her conviction of voting illegally in the 2016 election. A lawyer says her prosecution “guts the entire purpose of the provisional ballot system.”`\
-https://nytimes.com/2021/04/03/us/texas-provisional-ballot-appeal.html?searchResultPosition=7
+https://nytimes.com/2021/04/03/us/texas-provisional-ballot-appeal.html?searchResultPosition=9
 
 **‘I Was Failing’: Bystanders Carry Guilt From Watching George Floyd Die**\
 `Their pain has been mostly hidden for the last 10 months. But over the first week of Derek Chauvin’s murder trial, it spilled tearfully into the open as witnesses testified to their shared trauma.`\
-https://nytimes.com/2021/04/03/us/george-floyd-derek-chauvin-trial.html?searchResultPosition=8
-
-**Fed Up With Remote Learning, Governors Make a Push to Reopen Schools**\
-`A bipartisan group of governors decided to flex its muscle and get students back into classrooms, despite union resistance and bureaucratic hesitancy.`\
-https://nytimes.com/2021/04/03/us/covid-schools-governors-reopening.html?searchResultPosition=9
-
-**Bangladesh and parts of India look to lockdowns as a wave of cases hits South Asia, and more news around the world.**\
-`Some countries in the densely populated region, home to one-quarter of the world’s population, are facing “a storm” of virus infections.`\
-https://nytimes.com/2021/04/03/world/asia/india-bangladesh-covid.html?searchResultPosition=10
+https://nytimes.com/2021/04/03/us/george-floyd-derek-chauvin-trial.html?searchResultPosition=10
 
