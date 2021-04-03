@@ -34,7 +34,7 @@ https://nytimes.com/2021/04/03/upshot/georgia-election-law-turnout.html?searchRe
 `A recent video showed several men seeming to ignore an anti-Asian attack in Midtown. Yet research shows that most people are more than willing to intervene and help someone.`\
 https://nytimes.com/2021/04/03/science/bystander-effect.html?searchResultPosition=9
 
-**Here’s What Readers Told Us About Feeling Burned Out**\
-`By Sophia June`\
-https://nytimes.com/2021/04/03/business/readers-pandemic-burnout.html?searchResultPosition=10
+**Is Biden Missing His Chance on Guns?**\
+`President Biden spent decades pushing for gun control. In the early days of his presidency, he’s taking a far less aggressive approach.`\
+https://nytimes.com/2021/04/03/us/politics/biden-gun-control.html?searchResultPosition=10
 
