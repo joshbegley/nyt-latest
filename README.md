@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/03/us/politics/mlb-georgia-voting-kemp.html?searchRe
 https://nytimes.com/2021/04/03/opinion/sunday/gun-deaths-united-states.html?searchResultPosition=4
 
 **Jordan Arrests High-Profile Figures, Citing Security Reasons**\
-`Those arrested included a member of the royal family and a former minister who was longtime confidante of King Abdullah II.`\
+`High-profile figures in the kingdom were arrested, including a longtime confidante of King Abdullah II.`\
 https://nytimes.com/2021/04/03/world/middleeast/jordan-security-arrests.html?searchResultPosition=5
 
 **How Lower-Income Americans Get Cheated on Property Taxes**\
