@@ -14,17 +14,17 @@ https://nytimes.com/2021/04/03/world/europe/turkey-coup-trainee-pilots.html?sear
 `After building artificial islands, China is using large fleets of ostensibly civilian boats to press other countries’ vessels out of disputed waters.`\
 https://nytimes.com/2021/04/03/world/asia/swarms-ships-south-china-sea.html?searchResultPosition=4
 
+**How Brexit Ruined Easter for Britain’s Chocolate Makers**\
+`Exports of chocolate to Europe have turned into a nightmare of paperwork and delays, making fine British chocolate scarce in Europe.`\
+https://nytimes.com/2021/04/03/business/brexit-easter-chocolate.html?searchResultPosition=5
+
 **The Virus Drove Churchgoers Away. Will Easter Bring Them Back?**\
 `Churches across New York are hoping increased attendance for Holy Week services will help bring back lost donations that have led to financial hardship during the pandemic.`\
-https://nytimes.com/2021/04/03/nyregion/new-york-covid-church-easter.html?searchResultPosition=5
+https://nytimes.com/2021/04/03/nyregion/new-york-covid-church-easter.html?searchResultPosition=6
 
 **One Republican’s Lonely Fight Against a Flood of Disinformation**\
 `After losing an ugly congressional race last year, Denver Riggleman is leading a charge against the conspiracy-mongering coursing through his party. He doesn’t have many allies.`\
-https://nytimes.com/2021/04/03/us/politics/denver-riggleman-republican-disinformation.html?searchResultPosition=6
-
-**How Brexit Ruined Easter for Britain’s Chocolate Makers**\
-`Exports of chocolate to Europe have turned into a nightmare of paperwork and delays, making fine British chocolate scarce in Europe.`\
-https://nytimes.com/2021/04/03/business/brexit-easter-chocolate.html?searchResultPosition=7
+https://nytimes.com/2021/04/03/us/politics/denver-riggleman-republican-disinformation.html?searchResultPosition=7
 
 **We Have All Hit a Wall**\
 `Confronting late-stage pandemic burnout, with everything from edibles to Exodus.`\
