@@ -1,5 +1,5 @@
 **Argentina’s President Has Preliminary Positive Virus Test Despite Vaccination**\
-`The president, who received the test result on his 62d birthday, said he will remain in isolation while waiting for the results of the more rigorous PCR test`\
+`The president, who received the test result on his 62nd birthday, said he will remain in isolation while waiting for the results of the more rigorous PCR test`\
 https://nytimes.com/2021/04/03/world/americas/argentina-president-coronavirus.html?searchResultPosition=1
 
 **How Trump Steered Supporters Into Unwitting Donations**\
