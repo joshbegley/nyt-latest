@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/03/us/george-floyd-derek-chauvin-trial.html?searchRe
 `A bipartisan group of governors decided to flex its muscle and get students back into classrooms, despite union resistance and bureaucratic hesitancy.`\
 https://nytimes.com/2021/04/03/us/covid-schools-governors-reopening.html?searchResultPosition=4
 
-**Bangladesh and parts of India look to lockdowns as a wave of cases hits South Asia.**\
+**Bangladesh and parts of India look to lockdowns as a wave of cases hits South Asia, and more news around the world.**\
 `Some countries in the densely populated region, home to one-quarter of the world’s population, are facing “a storm” of virus infections.`\
 https://nytimes.com/2021/04/03/world/asia/india-bangladesh-covid.html?searchResultPosition=5
 
