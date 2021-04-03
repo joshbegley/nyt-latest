@@ -22,7 +22,7 @@ https://nytimes.com/2021/04/03/world/asia/india-bangladesh-covid.html?searchResu
 `“The risen but scarred body of Christ is the ultimate signifier of divine empathy.”`\
 https://nytimes.com/2021/04/03/opinion/christ-resurrection-easter.html?searchResultPosition=6
 
-**Nonstop Depravity**\
+**Hunter Biden, Matt Gaetz and Nonstop Depravity**\
 `In a memoir of his vices, Hunter Biden sends a love letter to his brother.`\
 https://nytimes.com/2021/04/03/opinion/matt-gaetz-hunter-biden-memoir.html?searchResultPosition=7
 
