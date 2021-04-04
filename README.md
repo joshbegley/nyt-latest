@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/04/us/migrants-crash-california-imperial-valley.html
 https://nytimes.com/2021/04/04/world/asia/mount-everest-covid-19.html?searchResultPosition=2
 
 **Pope Francis’s Easter message urges world leaders to ensure universal access to vaccines.**\
-`By Elisabetta Povoledo`\
+`He also noted the economic and social hardships of the pandemic, especially for the young.`\
 https://nytimes.com/2021/04/04/world/pope-easter-vaccines.html?searchResultPosition=3
 
 **Meet the New Cuomo. Same as the Old Cuomo.**\
