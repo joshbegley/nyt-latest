@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/04/world/asia/india-maoist-insurgents-ambush.html?se
 `Chicken yassa! Shakshuka with feta! Picadillo tacos! Whatever you choose, set yourself up to eat well this week.`\
 https://nytimes.com/2021/04/04/dining/what-to-cook-this-week.html?searchResultPosition=2
 
-**U.S. Looks to Build On Secret Portions of Taliban Deal to Reduce Violence**\
+**U.S. Looks to Build on Secret Portions of Taliban Deal to Reduce Violence**\
 `In the final weeks before the U.S. is set to withdraw from Afghanistan, officials are trying to negotiate with the insurgent group and stave off a Taliban spring offensive.`\
 https://nytimes.com/2021/04/04/world/asia/afghanistan-reduction-violence-biden.html?searchResultPosition=3
 
