@@ -1,5 +1,5 @@
 **U.S. Taps Johnson & Johnson to Run Troubled Vaccine Plant**\
-`The extraordinary move came just days after the plant had ruined 15 million doses of Johnson & Johnson’s coronavirus vaccine.`\
+`The extraordinary move came just days after officials learned the plant had ruined 15 million doses of Johnson & Johnson’s coronavirus vaccine.`\
 https://nytimes.com/2021/04/03/us/politics/emergent-vaccine-plant-johnson-johnson.html?searchResultPosition=1
 
 **Capitol Suspect Struggled Before Attack, but Motive Remains Unclear**\
