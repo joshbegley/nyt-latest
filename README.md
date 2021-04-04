@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/04/sports/ncaabasketball/ncaa-womens-tournament-fina
 https://nytimes.com/2021/04/03/at-home/newspaper-flower-activity.html?searchResultPosition=4
 
 **Gonzaga Was Finally, Truly Tested. It Passed With a Buzzer-Beater Over U.C.L.A.**\
-`The Zags will play Baylor for the N.C.A.A. men’s tournament championship on Monday night.`\
+`The Bulldogs will play Baylor for the N.C.A.A. men’s tournament championship on Monday night.`\
 https://nytimes.com/2021/04/03/sports/ncaabasketball/gonzaga-ucla-final-four-buzzer-beater.html?searchResultPosition=5
 
 **Driving Less? Make Sure Your Car Hasn’t Deteriorated During Lockdown**\
