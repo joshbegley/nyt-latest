@@ -1,40 +1,40 @@
+**Review: Live Theater Returns, With Mike Daisey and His Beefs**\
+`The monologuist appeared onstage, indoors, in front of a real audience, on the first day possible. Maybe he shouldn’t have rushed.`\
+https://nytimes.com/2021/04/04/theater/mike-daisey-review.html?searchResultPosition=1
+
+**‘Godzilla vs. Kong’ Roars at the Box Office With $48.5 Million**\
+`Even though it was streaming at the same time, moviegoers flocked to theaters. But with caps on seating capacity, analysts said, the take was about half of what was normal.`\
+https://nytimes.com/2021/04/04/movies/godzilla-vs-kong-box-office.html?searchResultPosition=2
+
+**Biden Steps Up Federal Efforts to Combat Domestic Extremism**\
+`The administration has taken a series of steps to prioritize dealing with white supremacists and militias, especially after the Capitol riot on Jan. 6.`\
+https://nytimes.com/2021/04/04/us/politics/domestic-terrorism-biden.html?searchResultPosition=3
+
 **Florida Officials Warn of 20-Foot ‘Wall of Water’ if Reservoir Breaches**\
 `The authorities on Sunday said they were making progress in draining a leaking wastewater pond south of Tampa but urged residents to heed evacuation warnings.`\
-https://nytimes.com/2021/04/04/us/piney-plant-reservoir-evacuation-manatee-county.html?searchResultPosition=1
+https://nytimes.com/2021/04/04/us/piney-plant-reservoir-evacuation-manatee-county.html?searchResultPosition=4
 
 **Winfred Rembert, 75, Dies; Turned Painful Memories Into Art**\
 `Decades after nearly being lynched in rural Georgia, he began recreating vivid scenes from his life by carving figures into leather.`\
-https://nytimes.com/2021/04/04/us/winfred-rembert-dead.html?searchResultPosition=2
+https://nytimes.com/2021/04/04/us/winfred-rembert-dead.html?searchResultPosition=5
 
 **Florida Reservoir Breach Could Cause Severe Flooding, Officials Say**\
 `The authorities in Florida said on Sunday that they were working to drain a leaking reservoir at a former phosphate mine in Manatee County, warning that a full breach could result in a 20-foot wall of water.`\
-https://nytimes.com/video/us/100000007690989/wastewater-leak-florida-phosphate-mine.html?searchResultPosition=3
+https://nytimes.com/video/us/100000007690989/wastewater-leak-florida-phosphate-mine.html?searchResultPosition=6
 
 **Performing Arts Make a Cautious Return in New York**\
 `More than a year after the pandemic abruptly shuttered theaters and concert halls across the city, limited audiences were welcomed back inside.`\
-https://nytimes.com/2021/04/04/theater/new-york-city-performing-arts-return.html?searchResultPosition=4
+https://nytimes.com/2021/04/04/theater/new-york-city-performing-arts-return.html?searchResultPosition=7
 
 **Salmonella Outbreak Is Linked to Wild Birds and Feeders, C.D.C. Says**\
 `The Centers for Disease Control and Prevention said 19 people had been sickened in eight states.`\
-https://nytimes.com/2021/04/04/health/bird-feeders-salmonella-cdc.html?searchResultPosition=5
+https://nytimes.com/2021/04/04/health/bird-feeders-salmonella-cdc.html?searchResultPosition=8
 
 **Kristofer Schipper, Influential China Scholar, Dies at 86**\
 `A native of Holland, he helped change the understanding of Chinese religion and became a Taoist priest in the process.`\
-https://nytimes.com/2021/04/04/world/kristofer-schipper-dead.html?searchResultPosition=6
+https://nytimes.com/2021/04/04/world/kristofer-schipper-dead.html?searchResultPosition=9
 
 **A Car Crash in the California Desert: How 13 Died Riding in One S.U.V.**\
 `In one of the deadliest border-related crashes in decades, many who died illustrate a new dynamic on the border: more migrants from Mexico.`\
-https://nytimes.com/2021/04/04/us/migrants-crash-california-imperial-valley.html?searchResultPosition=7
-
-**As Climbers Return to Everest, an Already Dangerous Ascent Becomes Extra Perilous**\
-`Nepal, desperate for tourist money, says it has taken steps to prevent a coronavirus outbreak, including social distancing at base camp and  evacuation plans in case Covid-19 flares up.`\
-https://nytimes.com/2021/04/04/world/asia/mount-everest-covid-19.html?searchResultPosition=8
-
-**Pope Francis’s Easter message urges world leaders to ensure universal access to vaccines.**\
-`He also noted the economic and social hardships of the pandemic, especially for the young.`\
-https://nytimes.com/2021/04/04/world/pope-easter-vaccines.html?searchResultPosition=9
-
-**Meet the New Cuomo. Same as the Old Cuomo.**\
-`We should have known who he was all along.`\
-https://nytimes.com/2021/04/04/opinion/cuomo-power-sexual-harassment.html?searchResultPosition=10
+https://nytimes.com/2021/04/04/us/migrants-crash-california-imperial-valley.html?searchResultPosition=10
 
