@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘A Union Drive at Amazon’**\
-`In this lesson, students will listen to an episode of “The Daily” to learn about Amazon warehouse workers trying to organize a union.`\
-https://nytimes.com/2021/04/05/learning/lesson-of-the-day-a-union-drive-at-amazon.html?searchResultPosition=1
+**Making Gifts for Those Who Have Everything**\
+`A group of wealthy friends and some specialty artisans turn out one over-the-top design each year.`\
+https://nytimes.com/2021/04/05/fashion/craftsmanship-watches-gifts-switzerland.html?searchResultPosition=1
 
-**Yang Drives the Bus, Republicans Joust: 5 Takeaways From Mayor’s Race**\
-`The Democratic candidates vowed to stop Zooming and get out more, and a rap video earned mixed reviews.`\
-https://nytimes.com/2021/04/05/nyregion/yang-mayor-candidates-nyc.html?searchResultPosition=2
+**Let Us Now Praise Tiny Ants**\
+`Even in the densest human habitations, there are orders of magnitude more ants than there are of us, doing the hard work of making our crumbs disappear.`\
+https://nytimes.com/2021/04/05/science/ants-wilson-photography-niga-rice.html?searchResultPosition=2
 
-**How White Evangelicals’ Vaccine Refusal Could Prolong the Pandemic**\
-`Millions of white evangelical adults in the U.S. do not intend to get vaccinated against Covid-19. Tenets of faith and mistrust of science play a role; so does politics.`\
-https://nytimes.com/2021/04/05/us/covid-vaccine-evangelicals.html?searchResultPosition=3
+**A Cyclist on the English Landscape**\
+`Grounded by the pandemic, a travel photographer spent the year pedaling the roads around his home, resulting in a series of poetic self-portraits.`\
+https://nytimes.com/2021/04/05/travel/sussex-bicycle-portraits.html?searchResultPosition=3
 
-**Inside Corporate America’s Frantic Response to the Georgia Voting Law**\
-`Companies like Delta are caught between Democrats focused on social justice and populist Republicans. They face major political consequences no matter what they do.`\
-https://nytimes.com/2021/04/05/business/voting-rights-ceos.html?searchResultPosition=4
+**Researchers Are Hatching a Low-Cost Coronavirus Vaccine**\
+`A new formulation entering clinical trials in Brazil, Mexico, Thailand and Vietnam could change how the world fights the pandemic.`\
+https://nytimes.com/2021/04/05/health/coronavirus-vaccines-hexapro-mclellan.html?searchResultPosition=4
 
-**A Soccer Official Proved Her Discrimination Case. No One Was Punished.**\
-`A court confirmed claims about a tainted election for a FIFA post, but while the woman who filed the case was vindicated, there have been no consequences for the men involved.`\
-https://nytimes.com/2021/04/05/sports/soccer/fifa-afc-mariyam-mohamed.html?searchResultPosition=5
+**Lena Dunham and the Spanx Liberation Movement**\
+`The actor-writer-director-controversy creator is back with a new project: a plus-size clothing line. The whole body positivity thing? She has thoughts.`\
+https://nytimes.com/2021/04/05/style/lena-dunham-body-positivity-11-honore.html?searchResultPosition=5
 
-**Your Monday Briefing**\
-`Debate in France over its student union.`\
-https://nytimes.com/2021/04/05/briefing/unef-coronavirus-israel-taliban.html?searchResultPosition=6
+**Shopping for Kitchen Range Hoods**\
+`Whether you choose a showstopper or one that’s virtually invisible, a range hood is essential. Otherwise, you’ll be smelling that fish for days.`\
+https://nytimes.com/2021/04/05/realestate/shopping-for-kitchen-range-hoods.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘Hemingway’ and ‘The People v. the Klan’**\
-`Lynn Novick and Ken Burns revisit the life of Ernest Hemingway on PBS. And a documentary about a civil suit against the Ku Klux Klan airs on CNN.`\
-https://nytimes.com/2021/04/05/arts/television/whats-on-tv-this-week-hemingway-and-people-v-the-klan.html?searchResultPosition=7
+**An Extraordinary Winning Streak for Religion at the Supreme Court**\
+`More broadly, one new study found, “the politicization of religious freedom has infiltrated every level of the federal judiciary.”`\
+https://nytimes.com/2021/04/05/us/politics/supreme-court-religion.html?searchResultPosition=7
 
-**My Life in Israel’s Brave New Post-Pandemic Future**\
-`A Green Pass allows us, the vaccinated, to go to concerts, restaurants and sporting events. But Israel’s real-time experiment in post-lockdown living leaves many questions unanswered.`\
-https://nytimes.com/2021/04/05/world/middleeast/israels-vaccinate-pandemic.html?searchResultPosition=8
+**Ceramics Are in Fashion**\
+`Jonathan Anderson and Kris Van Assche are among the designers inspired by contemporary creations.`\
+https://nytimes.com/2021/04/05/fashion/craftsmanship-ceramics-fashion-jonathan-anderson.html?searchResultPosition=8
 
-**Bat Used by Lou Gehrig in 1938 Sells at Auction for $715,120**\
-`The 34-inch, 36-ounce Bill Dickey model Louisville Slugger had been owned by the family of Earle Combs, a onetime teammate of Gehrig’s and coach with the New York Yankees, auctioneers said.`\
-https://nytimes.com/2021/04/05/sports/lou-gehrig-bat.html?searchResultPosition=9
+**Amazon’s Clashes With Labor: Days of Conflict and Control**\
+`Amazon was built on an underdog philosophy, but its workers are finding a voice. That presents a problem for the company that goes far beyond the union vote in Alabama.`\
+https://nytimes.com/2021/04/05/technology/amazon-control-bathroom-breaks.html?searchResultPosition=9
 
-**No Corrections: April 5, 2021**\
-`No corrections appeared in print on Monday, April 5, 2021.`\
-https://nytimes.com/2021/04/05/pageoneplus/no-corrections-april-5-2021.html?searchResultPosition=10
+**When Patients Choose to End Their Lives**\
+`For some, the decision to die is more complicated than a wish to reduce pain.`\
+https://nytimes.com/2021/04/05/well/live/aid-in-dying.html?searchResultPosition=10
 
