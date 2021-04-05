@@ -2,7 +2,7 @@
 `The fight over voting rights shows corporate leaders face pressure to speak out even in the post-Trump era.`\
 https://nytimes.com/2021/04/05/business/dealbook/georgia-voting-delta.html?searchResultPosition=1
 
-**Ohtani Throws 101 M.P.H. Fastball and Hits 115 M.P.H. Homer**\
+**Ohtani Throws 101 M.P.H. Fastball and Hits 451-Foot Homer**\
 `The Angels star was the first starting pitcher to homer in an American League game since 1972, but left after a collision at home plate.`\
 https://nytimes.com/2021/04/05/sports/baseball/shohei-ohtani-angels.html?searchResultPosition=2
 
