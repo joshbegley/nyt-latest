@@ -35,6 +35,6 @@ https://nytimes.com/2021/04/05/world/australia/parliament-women-rape-metoo.html?
 https://nytimes.com/2021/04/05/sports/football/sam-darnold-trade-jets-panthers.html?searchResultPosition=9
 
 **Boris Johnson Eases Covid-19 Restrictions**\
-`On Monday, Prime Minister Boris Johnson of Britain announced that lockdown restrictions would be eased to allow non-essential businesses to reopen following a period of lockdown due to a highly transmissible virus strain.`\
+`On Monday, Prime Minister Boris Johnson of Britain announced that lockdown restrictions would be eased in England to allow non-essential businesses to reopen following a period of lockdown due to a highly transmissible virus variant.`\
 https://nytimes.com/video/us/politics/100000007692839/boris-johnson-virus-restrictions.html?searchResultPosition=10
 
