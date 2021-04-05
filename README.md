@@ -8,7 +8,7 @@ https://nytimes.com/2021/04/05/us/what-is-excited-delirium.html?searchResultPosi
 
 **Democrats Prepare Plan to Raise Taxes on Multinational Corporations**\
 `The proposal from Senators Ron Wyden, Mark Warner and Sherrod Brown could be a blueprint for financing part of President Biden’s infrastructure plan.`\
-https://nytimes.com/2021/04/05/business/democrats-prepare-plan-to-raise-taxes-on-multinational-corporations.html?searchResultPosition=3
+https://nytimes.com/2021/04/05/business/raising-taxes-corporations.html?searchResultPosition=3
 
 **Harvey Weinstein Appeals Sex Crimes Conviction Over Accusers’ Testimony**\
 `The filing marks the beginning of what is likely to be a lengthy effort by Mr. Weinstein, who was accused of sexual assault or misconduct by dozens of women, to overturn his conviction.`\
