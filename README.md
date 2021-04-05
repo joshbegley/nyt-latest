@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/05/sports/baseball/mets-cohen-phillies.html?searchRe
 https://nytimes.com/2021/04/05/briefing/taxes-chauvin-trial-ncaa-your-monday-evening-briefing.html?searchResultPosition=2
 
 **Here are the takeaways from Day 6 of the Derek Chauvin trial.**\
-`Jurors heard from two key witnesses, including the chief of police. He said Mr. Chauvin ‘absolutely’ violated department policies.`\
+`Jurors heard from two key witnesses, including the chief of police. He said Mr. Chauvin “absolutely” violated department policies.`\
 https://nytimes.com/2021/04/05/us/day-six-derek-chauvin-trial.html?searchResultPosition=3
 
 **Robert A. Mundell, a Father of the Euro and Reaganomics, Dies at 88**\
