@@ -23,7 +23,7 @@ https://nytimes.com/2021/04/05/us/california-infrastructure-plan.html?searchResu
 https://nytimes.com/2021/04/05/us/los-angeles-earthquake-california.html?searchResultPosition=6
 
 **Climbers return to Mount Everest, with social distancing and Covid-19 insurance.**\
-`By Bhadra Sharma and Emily Schmall`\
+`Local officials have instituted testing, mask and social-distancing requirements, stationed medical personnel at the Mount Everest Base Camp, and made plans to swoop in and pick up infected climbers.`\
 https://nytimes.com/2021/04/05/world/climbers-return-to-mount-everest-with-social-distancing-and-covid-19-insurance.html?searchResultPosition=7
 
 **Key Moments as Derek Chauvin Trial Enters Day 6**\
