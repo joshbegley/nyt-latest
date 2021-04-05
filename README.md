@@ -1,5 +1,5 @@
 **New York State Is Set to Raise Taxes on Those Earning Over $1 Million**\
-`Under the new rates, New York City’s millionaires would pay the highest combined local tax rate in the nation. Gov. Andrew Cuomo had opposed the increase in past years.`\
+`The deal, a sign of Gov. Andrew Cuomo’s weakened influence, would mean wealthy New York City residents would pay the highest combined local tax rate in the nation.`\
 https://nytimes.com/2021/04/05/nyregion/taxes-rich-budget-new-york.html?searchResultPosition=1
 
 **Gianluigi Colalucci, Who Showed Michelangelo’s True Colors, Dies at 92**\
