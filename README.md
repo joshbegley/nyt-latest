@@ -1,5 +1,5 @@
 **Jets Trade Sam Darnold to Carolina Ahead of N.F.L. Draft**\
-`Darnold was the third overall pick in the 2018 N.F.L. draft, taken ahead of Josh Allen and Lamar Jackson to be a cornerstone of the Jets’ offense.`\
+`Darnold was the third overall pick in the 2018 N.F.L. draft, and now the Jets have the No. 2 overall pick to use in finding his replacement.`\
 https://nytimes.com/2021/04/05/sports/football/sam-darnold-trade-jets-panthers.html?searchResultPosition=1
 
 **Boris Johnson Eases Covid-19 Restrictions**\
