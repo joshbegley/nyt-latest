@@ -32,7 +32,7 @@ https://nytimes.com/2021/04/05/sports/hockey/hockey-canucks-covid.html?searchRes
 
 **The Crossword Stumper**\
 `A look at one of the entries that fooled solvers in last week’s puzzles.`\
-https://nytimes.com/2021/04/05/crosswords/crossword-stumper-satyr.html?searchResultPosition=9
+https://nytimes.com/2021/04/05/crosswords/crossword-stumper-trey-songz.html?searchResultPosition=9
 
 **Transgender Childhood Is Not a ‘Trend’**\
 `As far back as historians have found evidence of transgender people, they’ve found transgender children.`\
