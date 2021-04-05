@@ -22,7 +22,7 @@ https://nytimes.com/2021/04/05/business/media/new-york-times-james-dao.html?sear
 `Long-awaited guidance from the C.D.C. brings cruise lines one step closer to sailing again in United States waters.`\
 https://nytimes.com/2021/04/05/business/cruise-lines-guidance.html?searchResultPosition=6
 
-**Yellen to call for a global minimum corporate tax rate.**\
+**Yellen calls for a global minimum corporate tax rate.**\
 `The pitch comes as the Biden administration looks for ways to pay for a multi-trillion dollar infrastructure package.`\
 https://nytimes.com/2021/04/05/business/yellen-global-minimum-corporate-tax-rate.html?searchResultPosition=7
 
