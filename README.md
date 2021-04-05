@@ -4,7 +4,7 @@ https://nytimes.com/2021/04/04/sports/ncaabasketball/stanford-arizona-ncaa-women
 
 **The Lawyer Behind the Throne at Fox**\
 `Even before the company’s C.E.O., Lachlan Murdoch, moved to Australia, Viet Dinh was seen as Fox’s power center.`\
-https://nytimes.com/2021/04/04/business/media/the-lawyer-behind-the-throne-at-fox.html?searchResultPosition=2
+https://nytimes.com/2021/04/04/business/media/fox-news-viet-dinh.html?searchResultPosition=2
 
 **Gonzaga’s Buzzer-Beater a Reminder of the Hoopla That’s Missing**\
 `The noise of a capacity crowd erupting as Jalen Suggs’s overtime heave beat U.C.L.A. was only one of the many things absent from this tournament.`\
