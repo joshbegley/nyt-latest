@@ -27,7 +27,7 @@ https://nytimes.com/2021/04/05/briefing/taxes-chauvin-trial-ncaa-your-monday-eve
 https://nytimes.com/2021/04/05/us/day-six-derek-chauvin-trial.html?searchResultPosition=7
 
 **Robert A. Mundell, a Father of the Euro and Reaganomics, Dies at 88**\
-`His insights on global finance earned him a Nobel, while his more iconoclastic theories fostered the adoption of a single European currency and -side economics.`\
+`His insights on global finance earned him a Nobel, while his more iconoclastic theories fostered the adoption of a single European currency and supply-side economics.`\
 https://nytimes.com/2021/04/05/business/economy/robert-mundell-dead.html?searchResultPosition=8
 
 **Gayle Smith Appointed to Lead Global Covid-19 Response**\
