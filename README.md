@@ -1,40 +1,40 @@
+**Biden Plan Spurs Fight Over What ‘Infrastructure’ Really Means**\
+`Republicans say the White House is tucking liberal social programs into legislation that should be focused on roads and bridges. Administration officials say their approach invests in the future.`\
+https://nytimes.com/2021/04/05/business/economy/biden-infrastructure.html?searchResultPosition=1
+
 **Asa Hutchinson, G.O.P. Governor of Arkansas, Vetoes Anti-Transgender Bill**\
 `The bill, which could still be enacted if state legislators override the governor’s veto, would make it illegal for transgender minors to receive gender-affirming medication or surgery.`\
-https://nytimes.com/2021/04/05/us/politics/asa-hutchinson-veto-transgender-bill.html?searchResultPosition=1
+https://nytimes.com/2021/04/05/us/politics/asa-hutchinson-veto-transgender-bill.html?searchResultPosition=2
 
 **Embracing the Softer Side of Infrastructure**\
 `Investments in the future don’t always involve concrete.`\
-https://nytimes.com/2021/04/05/opinion/biden-infrastructure.html?searchResultPosition=2
+https://nytimes.com/2021/04/05/opinion/biden-infrastructure.html?searchResultPosition=3
 
 **As N.C.A.A. Tournament Ends, So Does Life in Basketball Bubble**\
 `The travails of athletes underscore the burdens on athletes in pulling off the three-week basketball bonanza.`\
-https://nytimes.com/2021/04/05/sports/ncaabasketball/ncaa-tournament-bubble.html?searchResultPosition=3
+https://nytimes.com/2021/04/05/sports/ncaabasketball/ncaa-tournament-bubble.html?searchResultPosition=4
 
 **Review: Mean Streets ‘Underneath the Freeways of Los Angeles’**\
 `This interactive play gives voice to marginalized people, while also asking its audience to mistrust them.`\
-https://nytimes.com/2021/04/05/theater/under-the-freeways-of-los-angeles-review.html?searchResultPosition=4
+https://nytimes.com/2021/04/05/theater/under-the-freeways-of-los-angeles-review.html?searchResultPosition=5
 
 **What’s Driving the Surge at the Southern Border?**\
 `Blaming the increase in arrivals on current immigration policy only papers over harder truths, experts say.`\
-https://nytimes.com/2021/04/05/us/politics/biden-immigration-crisis.html?searchResultPosition=5
+https://nytimes.com/2021/04/05/us/politics/biden-immigration-crisis.html?searchResultPosition=6
 
 **The Rangers Play Baseball in Front of a Packed House**\
 `Playing without capacity restrictions for their home opener, Texas hosted the largest American sports crowd of the pandemic.`\
-https://nytimes.com/2021/04/05/sports/baseball/rangers-blue-jays-capacity-photos.html?searchResultPosition=6
+https://nytimes.com/2021/04/05/sports/baseball/rangers-blue-jays-capacity-photos.html?searchResultPosition=7
 
 **Coronavirus Briefing: What Happened Today**\
 `The Navajo Nation reached a milestone.`\
-https://nytimes.com/2021/04/05/us/coronavirus-today-vaccines.html?searchResultPosition=7
+https://nytimes.com/2021/04/05/us/coronavirus-today-vaccines.html?searchResultPosition=8
 
 **‘When It Is Summer in the Light, and Winter in the Shade’**\
 `Charles Dickens was right about March. And the last year has been one long early March.`\
-https://nytimes.com/2021/04/05/opinion/katherine-may-winter-covid.html?searchResultPosition=8
+https://nytimes.com/2021/04/05/opinion/katherine-may-winter-covid.html?searchResultPosition=9
 
 **Minneapolis Police Chief Says Chauvin Violated Policy**\
 `Chief Medaria Arradondo testified Monday that the former officer Derek Chauvin should have halted his use of force to restrain George Floyd after Mr. Floyd had stopped resisting.`\
-https://nytimes.com/video/us/100000007693136/chauvin-police-chief-george-floyd.html?searchResultPosition=9
-
-**Steven Cohen Sets High Expectations for the Mets. Very High.**\
-`Cohen believes shortstop Francisco Lindor is the cornerstone for a championship team and he was willing to break the bank to keep him in New York.`\
-https://nytimes.com/2021/04/05/sports/baseball/mets-cohen-phillies.html?searchResultPosition=10
+https://nytimes.com/video/us/100000007693136/chauvin-police-chief-george-floyd.html?searchResultPosition=10
 
