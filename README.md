@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/06/dining/chocolate-doughnuts-la-newyorkina.html?searchResultPosition=1
 
 **Brooklyn Man Kills Woman and Her Two Daughters, Then Himself**\
-`A nine-year-old girl returning home from a birthday celebration found her mother and two sisters had been murdered, the police said.`\
+`A 9-year-old girl returning home from a birthday celebration found her mother and two sisters had been murdered, the police said.`\
 https://nytimes.com/2021/04/06/nyregion/brooklyn-brownsville-murder-suicide.html?searchResultPosition=2
 
 **Wisconsin’s Barry Alvarez Says He Will Retire**\
