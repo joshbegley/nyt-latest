@@ -27,7 +27,7 @@ https://nytimes.com/2021/04/06/sports/golf/masters-woods-mcilroy-crash.html?sear
 https://nytimes.com/2021/04/06/us/virginia-school-chauvin-floyd-knee-football-celebration.html?searchResultPosition=7
 
 **Manchester City Grabs a Winner but Knows It’s Not Across the Line**\
-`A late Phil Foden goal beats Dortmund in the Champions League but danger lurks in next week’s second leg.`\
+`A late Phil Foden goal beat Dortmund in the Champions League, but danger lurks in next week’s second leg.`\
 https://nytimes.com/2021/04/06/sports/soccer/manchester-city-dortmund-champions-league.html?searchResultPosition=8
 
 **Chauvin’s Use of Neck Restraint Was Unauthorized, Trainer Says**\
