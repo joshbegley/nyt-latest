@@ -10,8 +10,8 @@ https://nytimes.com/2021/04/06/us/politics/biden-vaccine-all-adults-eligible.htm
 `Mitch McConnell wants corporate America to stop being “stupid” about the ongoing battle over voting rights.`\
 https://nytimes.com/2021/04/06/opinion/republicans-georgia-voting-law.html?searchResultPosition=3
 
-**Israelis and Americans Are Asking, Whose Country Is This Anyway?**\
-`Both Israel and the U.S. are trying to define anew what it means to be a pluralistic democracy.`\
+**Israelis and Americans Both Are Asking, Whose Country Is This Anyway?**\
+`Israel and the U.S. are trying to define anew what it means to be a pluralistic democracy.`\
 https://nytimes.com/2021/04/06/opinion/us-israel-elections.html?searchResultPosition=4
 
 **Chauvin’s Use of Force Was ‘Excessive,’ L.A.P.D. Sergeant Says**\
