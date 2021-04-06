@@ -1,40 +1,40 @@
+**Lois Sasson, Quiet Force in Gay and Women’s Rights, Dies at 80**\
+`Ms. Sasson, a jewelry designer and the partner of the singer Lesley Gore, was an advocate for feminism, gay rights and more. She died of Covid-19.`\
+https://nytimes.com/2021/04/06/obituaries/lois-sasson-dead-covid.html?searchResultPosition=1
+
 **How an Abstinence Pledge in the ’90s Shamed a Generation of Evangelicals**\
 `The Christian “purity” movement promoted a strict view of abstinence before marriage. But two decades later, some followers are grappling with unforeseen aftershocks.`\
-https://nytimes.com/2021/04/06/us/abstinence-pledge-evangelicals.html?searchResultPosition=1
+https://nytimes.com/2021/04/06/us/abstinence-pledge-evangelicals.html?searchResultPosition=2
 
 **Shamed Over Sex, a Generation of Evangelicals Confronts the Past | Retro Report**\
 `A Christian “purity” movement in the 90s promoted a biblical view of abstinence before marriage. But two decades later, followers are grappling with unforeseen aftershocks.`\
-https://nytimes.com/video/world/100000007020320/shamed-over-sex-a-generation-of-evangelicals-confronts-the-past-retro-report.html?searchResultPosition=2
+https://nytimes.com/video/world/100000007020320/shamed-over-sex-a-generation-of-evangelicals-confronts-the-past-retro-report.html?searchResultPosition=3
 
 **Tiny Love Stories: ‘Relieved About a Friend’s Failure’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words`\
-https://nytimes.com/2021/04/06/style/tiny-love-stories-relieved-about-a-friends-failure.html?searchResultPosition=3
+https://nytimes.com/2021/04/06/style/tiny-love-stories-relieved-about-a-friends-failure.html?searchResultPosition=4
 
 **Democrats Push Biden to Take Harder Line on Saudi Arabia**\
 `Lawmakers have continued to press for harsher action and a wholesale rethinking of the American stance toward the kingdom.`\
-https://nytimes.com/2021/04/06/us/politics/democrats-biden-saudi-arabia.html?searchResultPosition=4
+https://nytimes.com/2021/04/06/us/politics/democrats-biden-saudi-arabia.html?searchResultPosition=5
 
 **Your Wednesday Briefing**\
 `Freebies and warnings in China’s vaccine push.`\
-https://nytimes.com/2021/04/06/briefing/chinese-vaccines-iran-nuclear-deal.html?searchResultPosition=5
+https://nytimes.com/2021/04/06/briefing/chinese-vaccines-iran-nuclear-deal.html?searchResultPosition=6
 
 **Morries Hall, George Floyd’s Friend, Hopes to Avoid Chauvin Trial Testimony**\
 `Morries Hall, a friend of George Floyd who was with him when he was arrested, is hoping to avoid testifying. On Tuesday, Mr. Hall’s legal team stated he planned to invoke his Fifth Amendment right against self-incrimination.`\
-https://nytimes.com/video/us/politics/100000007694958/morries-hall-george-floyd.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000007694958/morries-hall-george-floyd.html?searchResultPosition=7
 
 **Hans Küng, Catholic Theologian Critical of the Church, Dies at 93**\
 `A prolific writer and a prominent speaker, he promoted dialogue among religions and challenged Vatican doctrine on many fronts, provoking its censure.`\
-https://nytimes.com/2021/04/06/world/europe/hans-kung-dead.html?searchResultPosition=7
+https://nytimes.com/2021/04/06/world/europe/hans-kung-dead.html?searchResultPosition=8
 
 **United Voices Against Covid-19**\
 `There’s no country in the world that hasn’t felt the impact of Covid-19.`\
-https://nytimes.com/paidpost/one19/united-voices-against-covid-19.html?searchResultPosition=8
+https://nytimes.com/paidpost/one19/united-voices-against-covid-19.html?searchResultPosition=9
 
 **Al Sharpton and the Floyd family pray for ‘justice’ outside of the courthouse.**\
 `By Nicholas Bogel-Burroughs`\
-https://nytimes.com/2021/04/06/us/al-sharpton-george-floyd-family.html?searchResultPosition=9
-
-**‘We Cannot Picture Auschwitz’**\
-`A Holocaust researcher says art can bring us closer to the terror. Also: Figure skating for Black girls; remote work; transgender children and sports.`\
-https://nytimes.com/2021/04/06/opinion/letters/auschwitz-paintings.html?searchResultPosition=10
+https://nytimes.com/2021/04/06/us/al-sharpton-george-floyd-family.html?searchResultPosition=10
 
