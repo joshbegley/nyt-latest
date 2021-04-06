@@ -22,9 +22,9 @@ https://nytimes.com/2021/04/06/arts/music/damon-locks-black-monument-ensemble-no
 `Watch live video of the trial of Derek Chauvin, the former police officer charged in the death of George Floyd. Warning: The video may include graphic images.`\
 https://nytimes.com/video/us/politics/100000007694047/derek-chauvin-trial-live-video.html?searchResultPosition=7
 
-**George Floyd’s friend who was with him when he was arrested is trying to avoid testifying.**\
-`Morries Lester Hall, who is in jail on charges unrelated to Mr. Floyd’s death, appeared in court by video conference on Tuesday for a hearing over whether he can be forced by prosecutors to testify.`\
-https://nytimes.com/2021/04/06/us/morries-lester-hall-testimony.html?searchResultPosition=8
+**Morries Hall, a friend of George Floyd’s who was with him when he was arrested, is trying to avoid testifying.**\
+`A judge ordered Derek Chauvin’s lawyer to draft a list of questions that Mr. Hall might be able to answer without incriminating himself.`\
+https://nytimes.com/2021/04/06/us/morries-hall-testimony.html?searchResultPosition=8
 
 **Nets, Missing Two Stars, Get 40 Points From Their Third**\
 `With Kevin Durant out and James Harden departing early with a sore hamstring, Kyrie Irving took over in a win against the Knicks.`\
