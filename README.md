@@ -1,6 +1,6 @@
-**The lawyer leading a review of N.C.A.A. tournaments vowed to be independent.**\
+**The lawyer leading a review of N.C.A.A. championships vowed to be independent.**\
 `By Alan Blinder`\
-https://nytimes.com/2021/04/05/sports/ncaabasketball/the-lawyer-leading-a-review-of-ncaa-tournaments-vowed-to-be-independent.html?searchResultPosition=1
+https://nytimes.com/2021/04/05/sports/ncaabasketball/the-lawyer-leading-a-review-of-ncaa-championships-vowed-to-be-independent.html?searchResultPosition=1
 
 **In Rare Testimony, Chief Says Chauvin ‘Should Have Stopped’ Pinning Floyd**\
 `“To continue to apply that level of force to a person proned out, handcuffed behind their back — that in no way, shape or form is anything that is by policy,” Chief Medaria Arradondo testified.`\
