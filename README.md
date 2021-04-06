@@ -24,7 +24,7 @@ https://nytimes.com/video/us/100000007695602/chauvin-excessive-force-stiger.html
 
 **Alcee Hastings, Longtime Florida Congressman, Dies at 84**\
 `As a federal judge, he was impeached and removed from the bench. He was then elected to the House, where he became known as a strong liberal voice.`\
-https://nytimes.com/2021/04/06/us/politics/alcee-hastings-longtime-florida-congressman-dies-at-84.html?searchResultPosition=7
+https://nytimes.com/2021/04/06/us/politics/alcee-hastings-dead.html?searchResultPosition=7
 
 **Why Modern Medicine Keeps Overlooking Menopause**\
 `Brain fog, brittle nails, allergies, hair loss: There are at least 34 symptoms of perimenopause. Still, medical providers keep missing them.`\
