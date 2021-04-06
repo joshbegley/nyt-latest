@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007694047/derek-chauvin-trial-live-video.html?searchResultPosition=2
 
 **George Floyd’s friend who was with him when he was arrested is trying to avoid testifying.**\
-`Morries Lester Hall, who is in jail on charges unrelated to Mr. Floyd’s death, is expected to appear in court by video conference on Tuesday for a hearing over whether he can be forced by prosecutors to testify.`\
+`Morries Lester Hall, who is in jail on charges unrelated to Mr. Floyd’s death, appeared in court by video conference on Tuesday for a hearing over whether he can be forced by prosecutors to testify.`\
 https://nytimes.com/2021/04/06/us/morries-lester-hall-testimony.html?searchResultPosition=3
 
 **Nets, Missing Two Stars, Get 40 Points From Their Third**\
