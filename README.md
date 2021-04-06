@@ -19,7 +19,7 @@ https://nytimes.com/video/us/politics/100000007694843/mayland-navy-shooting.html
 https://nytimes.com/2021/04/06/arts/save-weeksville-cig.html?searchResultPosition=5
 
 **Yahoo Answers, a Haven for the Confused, Is Shutting Down**\
-`Some might argue there were a few strange questions on the service, but it offered “real human reaction, for better or for worse,” one longtime observer said.`\
+`People used Yahoo Answers to ask weird questions, seek help and make jokes. But the service offered “real human reaction, for better or for worse,” one longtime observer said.`\
 https://nytimes.com/2021/04/06/technology/yahoo-answers-shutting-down.html?searchResultPosition=6
 
 **The Teenager Who Hacked Twitter**\
