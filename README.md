@@ -1,5 +1,5 @@
 **Nielsen data shows strong viewer interest in the Derek Chauvin trial.**\
-`An audience of 3.7 million watched Sgt. David Pleoger’s testimony last week on CNN, MSNBC and HLN.`\
+`An audience of 3.7 million watched  a former supervisor of Mr. Chauvin’s testify last week on CNN, MSNBC and HLN.`\
 https://nytimes.com/2021/04/06/us/derek-chauvin-trial-ratings.html?searchResultPosition=1
 
 **Champions Crowned, N.C.A.A. Returns to Its Pre-Covid Problems**\
