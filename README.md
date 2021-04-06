@@ -28,7 +28,7 @@ https://nytimes.com/video/us/politics/100000007694047/derek-chauvin-trial-live-v
 
 **Morries Hall, a friend of George Floyd’s who was with him when he was arrested, is trying to avoid testifying.**\
 `A judge ordered Derek Chauvin’s lawyer to draft a list of questions that Mr. Hall might be able to answer without incriminating himself.`\
-https://nytimes.com/2021/04/06/us/morries-hall-testimony.html?searchResultPosition=9
+https://nytimes.com/2021/04/06/us/morries-hall-testimony-george-floyd.html?searchResultPosition=9
 
 **Nets, Missing Two Stars, Get 40 Points From Their Third**\
 `With Kevin Durant out and James Harden departing early with a sore hamstring, Kyrie Irving took over in a win against the Knicks.`\
