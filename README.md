@@ -1,40 +1,40 @@
+**In Japan, a Watch Collection May Include an Alias**\
+`Security concerns and a cultural preference for discretion produced a community known only by usernames. “It’s just common sense,” one fan said.`\
+https://nytimes.com/2021/04/06/fashion/watches-japan-collectors-usernames.html?searchResultPosition=1
+
+**An Auctioneer Who Can Sell Almost Anything, at Record Prices**\
+`Rahul Kadakia of Christie’s has sold the most expensive wristwatch, the priciest blue diamond and even, early on, a salad.`\
+https://nytimes.com/2021/04/06/fashion/watches-christies-rahul-kadakia.html?searchResultPosition=2
+
+**20 Years. 100 Watches, and Counting.**\
+`The British watchmaker Roger W. Smith considers the future.`\
+https://nytimes.com/2021/04/06/fashion/watches-roger-w-smith-isle-of-man-britain.html?searchResultPosition=3
+
+**Breitling Gets Its Game On**\
+`A fashion app may have been the Swiss watch brand’s first venture into gaming, but it definitely won’t be the last.`\
+https://nytimes.com/2021/04/06/fashion/watches-breitling-mobile-gaming.html?searchResultPosition=4
+
+**A New Watch Brand Tells a Story**\
+`Furlan Marri intends to honor Swiss horology, but at affordable prices.`\
+https://nytimes.com/2021/04/06/fashion/watches-furlan-marri-geneva.html?searchResultPosition=5
+
 **Man-Made Diamonds Grow, but Not on Watch Brands**\
 `Production has increased sharply in recent years, yet just two new timepieces include the gems.`\
-https://nytimes.com/2021/04/06/fashion/watches-laboratory-grown-diamonds.html?searchResultPosition=1
+https://nytimes.com/2021/04/06/fashion/watches-laboratory-grown-diamonds.html?searchResultPosition=6
 
 **‘Blow Your House Down: A Story of Family, Feminism and Treason,’ by Gina Frangello: An Excerpt**\
 `An excerpt from “Blow Your House Down: A Story of Family, Feminism and Treason,” by Gina Frangello`\
-https://nytimes.com/2021/04/06/books/review/blow-your-house-down-a-story-of-family-feminism-and-treason-by-gina-frangello-an-excerpt.html?searchResultPosition=2
+https://nytimes.com/2021/04/06/books/review/blow-your-house-down-a-story-of-family-feminism-and-treason-by-gina-frangello-an-excerpt.html?searchResultPosition=7
 
 **‘Broken Horses: A Memoir,’ by Brandi Carlile: An Excerpt**\
 `An excerpt from “Broken Horses: A Memoir,” by Brandi Carlile`\
-https://nytimes.com/2021/04/06/books/review/broken-horses-a-memoir-by-brandi-carlile-an-excerpt.html?searchResultPosition=3
+https://nytimes.com/2021/04/06/books/review/broken-horses-a-memoir-by-brandi-carlile-an-excerpt.html?searchResultPosition=8
 
 **American Flags Are Not Useful Political Clues, And Other Lessons From Google Street View**\
 `What 15 million Street View guesses can tell us about politics.`\
-https://nytimes.com/interactive/2021/04/06/upshot/trump-biden-quiz-photos.html?searchResultPosition=4
+https://nytimes.com/interactive/2021/04/06/upshot/trump-biden-quiz-photos.html?searchResultPosition=9
 
 **Garment Workers Who Lost Jobs in Pandemic Still Wait for Severance Pay**\
 `A new report says millions of dollars in wages have been withheld from garment workers around the world by factories contracted by major fashion brands.`\
-https://nytimes.com/2021/04/06/fashion/garment-workers-severance-pay-theft.html?searchResultPosition=5
-
-**For a Brooklyn Heights Townhouse, a Divine Reinvention**\
-`The Greek Revival house, once home to the Franciscan Sisters of the Poor, needed more than just a simple renovation to function in the 21st century.`\
-https://nytimes.com/2021/04/06/realestate/brooklyn-heights-greek-revival-townhouse-renovation.html?searchResultPosition=6
-
-**Imagining the Timeless Childhood of Beverly Cleary’s Portland**\
-`In the winter of 2019, a family traveled on a literary pilgrimage to the Oregon city that left its mark on the celebrated author’s imagination.`\
-https://nytimes.com/2021/04/06/travel/beverly-cleary-portland-oregon.html?searchResultPosition=7
-
-**An Updated Take on Greek Revival Style in Brooklyn**\
-`The 1834 townhouse, once home to the Franciscan Sisters of the Poor, needed more than just a simple renovation to function in the 21st century.`\
-https://nytimes.com/slideshow/2021/04/06/realestate/an-updated-take-on-greek-revival-style-in-brooklyn.html?searchResultPosition=8
-
-**As China Targets H&M and Nike, Local Brands See Their Chance**\
-`Chinese rivals to Western names have improved quality and marketing. Now the country’s defiance could give them an edge with young patriots.`\
-https://nytimes.com/2021/04/06/business/china-xinjiang-local-brands.html?searchResultPosition=9
-
-**A Rage-Fueled Memoir of a Marriage-Ending Affair**\
-`In “Blow Your House Down,” Gina Frangello examines her experience of loss, lust, pain and longing with angry intensity.`\
-https://nytimes.com/2021/04/06/books/review/blow-your-house-down-gina-frangello.html?searchResultPosition=10
+https://nytimes.com/2021/04/06/fashion/garment-workers-severance-pay-theft.html?searchResultPosition=10
 
