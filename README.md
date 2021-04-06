@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/06/us/bill-gamson-dead.html?searchResultPosition=3
 `At a time when we may not be able to honor our loved ones together, these images and interviews form a virtual memorial.`\
 https://nytimes.com/interactive/2021/well/covid-death-grief-loss.html?searchResultPosition=4
 
-**Capitol Rioters Face the Consequences of Their ‘Selfie Sabotage’**\
+**Capitol Rioters Face the Consequences of Their Selfie Sabotage**\
 `Joe Biggs and his fellow Proud Boys left an incriminating social media trail for federal investigators before and during the Capitol attack on Jan. 6.`\
 https://nytimes.com/2021/04/06/us/politics/capitol-riot-joe-biggs-proud-boys.html?searchResultPosition=5
 
