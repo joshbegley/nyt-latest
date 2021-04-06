@@ -1,4 +1,4 @@
-**N.C.A.A. Sweeps Up the Confetti and Returns to Its Pre-Covid Problems**\
+**Champions Crowned, N.C.A.A. Returns to Its Pre-Covid Problems**\
 `If anything, the coronavirus pandemic only deferred, highlighted or exacerbated the issues confronting college sports.`\
 https://nytimes.com/2021/04/06/sports/ncaabasketball/ncaa-tournament.html?searchResultPosition=1
 
