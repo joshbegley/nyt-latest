@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/06/books/review-twelve-lives-of-alfred-hitchcock-edw
 `A coronavirus outbreak has the team severely short-handed for its opener, which has been delayed since last week.`\
 https://nytimes.com/2021/04/06/sports/baseball/washington-nationals-opener.html?searchResultPosition=2
 
-**New York Agrees on $212 Billion Budget to Spur Pandemic Recovery**\
+**New York Agrees on $212 Billion Budget to Aid Pandemic Recovery**\
 `Gov. Andrew M. Cuomo and the Legislature have announced a deal that would raise taxes on the wealthy and give aid to undocumented immigrants.`\
 https://nytimes.com/2021/04/06/nyregion/budget-taxes-coronavirus-relief-ny.html?searchResultPosition=3
 
