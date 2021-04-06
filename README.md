@@ -10,7 +10,7 @@ https://nytimes.com/2021/04/05/world/europe/franz-josef-huber-gestapo-nazi.html?
 `The Bears’ stifling defense powered them to an 86-70 victory over Gonzaga, which was one win away from being the first undefeated champion since 1976.`\
 https://nytimes.com/2021/04/05/sports/baylor-gonzaga-2021-mens-national-basketball-championship.html?searchResultPosition=3
 
-**Coors Field Chosen as Replacement Host for 2021 All-Star Game**\
+**Coors Field in Denver Is Chosen as Replacement Host for 2021 All-Star Game**\
 `The home of the Colorado Rockies replaces the Braves’ suburban Atlanta stadium after M.L.B. pulled the game out of Georgia in response to a voting law.`\
 https://nytimes.com/2021/04/05/sports/baseball/all-star-game-colorado.html?searchResultPosition=4
 
