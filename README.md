@@ -32,7 +32,7 @@ https://nytimes.com/2021/04/06/nyregion/brooklyn-brownsville-murder-suicide.html
 
 **Wisconsin’s Barry Alvarez Says He Will Retire**\
 `No coach won more football games at Wisconsin, but Alvarez’s final act was an even longer stint as the athletic director in Madison.`\
-https://nytimes.com/2021/04/06/sports/ncaafootball/wisconsin-barry-alvarez-retires.html?searchResultPosition=9
+https://nytimes.com/2021/04/06/sports/ncaafootball/barry-alvarez-retires-wisconsin-football.html?searchResultPosition=9
 
 **Laura Donnelly’s Week: ‘Dora the Explorer’ and a Poetry Prescription**\
 `When she’s not promoting HBO Max’s ‘The Nevers,’ the actress listens to Judi Dench’s desert island playlist and watches ‘Harry Potter’ with her kids.`\
