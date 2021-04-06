@@ -6,8 +6,8 @@ https://nytimes.com/2021/04/06/opinion/crystal-mason-texas-voting.html?searchRes
 `Gov. Gavin Newsom of California announced on Tuesday that the state would lift all its coronavirus restrictions on June 15 as long as new infections remained low and stable.`\
 https://nytimes.com/video/us/politics/100000007695649/california-virus-restrictions-june.html?searchResultPosition=2
 
-**Biden Says All Adults Will Be Eligible for Vaccine by April 19**\
-`The president moved up his target date by two weeks, matching the timetable already being put in place by many states.`\
+**Biden Moves Up Vaccine Eligibility Deadline for All Adults to April 19**\
+`The president pushed up his target date by two weeks, matching the timetable already being put in place by many states.`\
 https://nytimes.com/2021/04/06/us/politics/biden-vaccine-all-adults-eligible.html?searchResultPosition=3
 
 **Republicans Have Declared War on Coca-Cola and Baseball**\
