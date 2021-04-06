@@ -1,36 +1,36 @@
+**Relationship Podcasts Reveal the Truth About Marriage**\
+`Married hosts offer honest conversations about their personal issues and the challenges that can arise in any partnership.`\
+https://nytimes.com/2021/04/06/style/marriage-advice-podcasts.html?searchResultPosition=1
+
 **Chocolate Doughnuts Inspired by Global Flavors**\
 `Fany Gerson of La Newyorkina will sell them at Fan-Fan Doughnuts in Brooklyn.`\
-https://nytimes.com/2021/04/06/dining/chocolate-doughnuts-la-newyorkina.html?searchResultPosition=1
+https://nytimes.com/2021/04/06/dining/chocolate-doughnuts-la-newyorkina.html?searchResultPosition=2
 
 **Brooklyn Man Kills Woman and Her Two Daughters, Then Himself**\
 `A 9-year-old girl returning home from a birthday celebration found her mother and two sisters had been murdered, the police said.`\
-https://nytimes.com/2021/04/06/nyregion/brooklyn-brownsville-murder-suicide.html?searchResultPosition=2
+https://nytimes.com/2021/04/06/nyregion/brooklyn-brownsville-murder-suicide.html?searchResultPosition=3
 
 **Wisconsin’s Barry Alvarez Says He Will Retire**\
 `No coach won more football games at Wisconsin, but Alvarez’s final act was an even longer stint as the athletic director in Madison.`\
-https://nytimes.com/2021/04/06/sports/ncaafootball/wisconsin-barry-alvarez-retires.html?searchResultPosition=3
+https://nytimes.com/2021/04/06/sports/ncaafootball/wisconsin-barry-alvarez-retires.html?searchResultPosition=4
 
 **Laura Donnelly’s Week: ‘Dora the Explorer’ and a Poetry Prescription**\
 `When she’s not promoting HBO Max’s ‘The Nevers,’ the actress listens to Judi Dench’s desert island playlist and watches ‘Harry Potter’ with her kids.`\
-https://nytimes.com/2021/04/06/arts/television/laura-donnelly-nevers.html?searchResultPosition=4
+https://nytimes.com/2021/04/06/arts/television/laura-donnelly-nevers.html?searchResultPosition=5
 
 **Damon Locks and the Black Monument Ensemble’s Spiritual, Funky Escape**\
 `The Chicago musician’s group is following up its 2019 album, “Where Future Unfolds,” with an LP reacting to the events of 2020 titled “Now.”`\
-https://nytimes.com/2021/04/06/arts/music/damon-locks-black-monument-ensemble-now.html?searchResultPosition=5
+https://nytimes.com/2021/04/06/arts/music/damon-locks-black-monument-ensemble-now.html?searchResultPosition=6
 
 **Watch Live: Day 7 of the Derek Chauvin Trial**\
 `Watch live video of the trial of Derek Chauvin, the former police officer charged in the death of George Floyd. Warning: The video may include graphic images.`\
-https://nytimes.com/video/us/politics/100000007694047/derek-chauvin-trial-live-video.html?searchResultPosition=7
+https://nytimes.com/video/us/politics/100000007694047/derek-chauvin-trial-live-video.html?searchResultPosition=8
 
 **Morries Hall, a friend of George Floyd’s who was with him when he was arrested, is trying to avoid testifying.**\
 `A judge ordered Derek Chauvin’s lawyer to draft a list of questions that Mr. Hall might be able to answer without incriminating himself.`\
-https://nytimes.com/2021/04/06/us/morries-hall-testimony.html?searchResultPosition=8
+https://nytimes.com/2021/04/06/us/morries-hall-testimony.html?searchResultPosition=9
 
 **Nets, Missing Two Stars, Get 40 Points From Their Third**\
 `With Kevin Durant out and James Harden departing early with a sore hamstring, Kyrie Irving took over in a win against the Knicks.`\
-https://nytimes.com/2021/04/06/sports/basketball/nets-knicks-kyrie-irving.html?searchResultPosition=9
-
-**In a Syrian Rebel Bastion, Millions Are Trapped in Murky, Violent Limbo**\
-`Millions of people displaced during Syria’s 10-year war are impoverished, insecure and crowded into an area of the country’s northwest controlled by a rebel group once linked to Al Qaeda.`\
-https://nytimes.com/2021/04/06/world/middleeast/in-a-syrian-rebel-bastion-millions-are-trapped-in-murky-violent-limbo.html?searchResultPosition=10
+https://nytimes.com/2021/04/06/sports/basketball/nets-knicks-kyrie-irving.html?searchResultPosition=10
 
