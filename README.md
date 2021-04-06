@@ -18,8 +18,8 @@ https://nytimes.com/2021/04/06/opinion/vaccine-passports-covid.html?searchResult
 `M.L.B. is not known for activism, but former stars say pulling the All-Star Game from Georgia honors the legacies of Hank Aaron, Roberto Clemente and others.`\
 https://nytimes.com/2021/04/06/sports/baseball/all-star-game-move.html?searchResultPosition=5
 
-**Biden: All U.S. Adults Will Be Eligible for Vaccine by April 19**\
-`President Biden said on Tuesday that he was moving up his deadline for states to make all adults eligible for the coronavirus vaccine by April 19 instead of his original deadline of May 1.`\
+**Biden Moves Up Vaccine Eligibility Goal for Adults**\
+`President Biden said on Tuesday he was speeding up his deadline for states to make all adults eligible for Covid-19 vaccination, to April 19, a goal that most states have already met or will beat.`\
 https://nytimes.com/video/us/politics/100000007695468/biden-adults-coronavirus-vaccine.html?searchResultPosition=6
 
 **A K-Shaped Recovery, This Time on a Global Scale**\
