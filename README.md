@@ -22,8 +22,8 @@ https://nytimes.com/2021/04/06/podcasts/the-daily/a-vast-web-of-vengeance.html?s
 `As some people start to shake off coronavirus precautions, those who are waiting their turn for a vaccine say the FOMO is real. “It’s like when every friend is getting engaged before you.”`\
 https://nytimes.com/2021/04/06/health/covid-vaccine-jealousy.html?searchResultPosition=7
 
-**Netanyahu Gets First Crack at Forming New Government in Israel**\
-`After a fourth inconclusive election in two years, Prime Minister Benjamin Netanyahu still has no easy path back into office. But he has more of a chance than his opponents.`\
+**Netanyahu Gets the First Crack at Forming a New Government in Israel**\
+`After a fourth inconclusive election in two years, Prime Minister Benjamin Netanyahu now has a possible path to stay in office even as he stands trial on corruption charges.`\
 https://nytimes.com/2021/04/06/world/middleeast/netanyahu-israel-new-government.html?searchResultPosition=8
 
 **Time Seemed to Stand Still, but Watch Fans Certainly Didn’t**\
