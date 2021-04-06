@@ -1,40 +1,40 @@
-**Credit Suisse replaces executives after reporting big loss from Archegos.**\
-`The Swiss bank is in turmoil after a series of financial disasters that have battered its reputation and are likely to diminish its global clout.`\
-https://nytimes.com/2021/04/06/business/credit-suisse-replaces-executives-after-reporting-big-loss-from-archegos.html?searchResultPosition=1
+**‘Blow Your House Down: A Story of Family, Feminism and Treason,’ by Gina Frangello: An Excerpt**\
+`An excerpt from “Blow Your House Down: A Story of Family, Feminism and Treason,” by Gina Frangello`\
+https://nytimes.com/2021/04/06/books/review/blow-your-house-down-a-story-of-family-feminism-and-treason-by-gina-frangello-an-excerpt.html?searchResultPosition=1
 
-**Helping Homeless People in N.Y.C. Get Stimulus Payments**\
-`Many homeless people in the city did not receive their stimulus checks, but it's not too late.`\
-https://nytimes.com/2021/04/06/nyregion/homeless-people-stimulus.html?searchResultPosition=2
+**‘Broken Horses: A Memoir,’ by Brandi Carlile: An Excerpt**\
+`An excerpt from “Broken Horses: A Memoir,” by Brandi Carlile`\
+https://nytimes.com/2021/04/06/books/review/broken-horses-a-memoir-by-brandi-carlile-an-excerpt.html?searchResultPosition=2
 
-**Air France gets more state support to cope with mounting debts.**\
-`Air France on Tuesday said it would receive a new bailout from the French government worth 4 billion euros.`\
-https://nytimes.com/2021/04/06/business/air-france-aid.html?searchResultPosition=3
+**American Flags Are Not Useful Political Clues, And Other Lessons From Google Street View**\
+`What 15 million Street View guesses can tell us about politics.`\
+https://nytimes.com/interactive/2021/04/06/upshot/trump-biden-quiz-photos.html?searchResultPosition=3
 
-**Lesson of the Day: ‘If You Look at Your Phone While Walking, You’re an Agent of Chaos’**\
-`In this lesson, students will learn about an experiment that reveals how just a few distracted walkers can throw off the movements of a crowd. Then they evaluate solutions for combating the problem.`\
-https://nytimes.com/2021/04/06/learning/lesson-of-the-day-if-you-look-at-your-phone-while-walking-youre-an-agent-of-chaos.html?searchResultPosition=4
+**Garment Workers Who Lost Jobs in Pandemic Still Wait for Severance Pay**\
+`A new report says millions of dollars in wages have been withheld from garment workers around the world by factories contracted by major fashion brands.`\
+https://nytimes.com/2021/04/06/fashion/garment-workers-severance-pay-theft.html?searchResultPosition=4
 
-**Global Brands Find It Hard to Untangle Themselves From Xinjiang Cotton**\
-`Under pressure to renounce cotton harvested in a Chinese region marked by gruesome repression, they face a backlash from nationalist Chinese consumers.`\
-https://nytimes.com/2021/04/06/business/xinjiang-china-cotton-brands.html?searchResultPosition=5
+**For a Brooklyn Heights Townhouse, a Divine Reinvention**\
+`The Greek Revival house, once home to the Franciscan Sisters of the Poor, needed more than just a simple renovation to function in the 21st century.`\
+https://nytimes.com/2021/04/06/realestate/brooklyn-heights-greek-revival-townhouse-renovation.html?searchResultPosition=5
 
-**‘There Was Nothing Anybody Could Do for These Patients.’ Now There Is.**\
-`The first successful direct transplant of a trachea is a medical milestone that could help thousands of people with airways damaged by ventilators and other causes.`\
-https://nytimes.com/2021/04/06/health/trachea-transplant-genden.html?searchResultPosition=6
+**Imagining the Timeless Childhood of Beverly Cleary’s Portland**\
+`In the winter of 2019, a family traveled on a literary pilgrimage to the Oregon city that left its mark on the celebrated author’s imagination.`\
+https://nytimes.com/2021/04/06/travel/beverly-cleary-portland-oregon.html?searchResultPosition=6
 
-**Popular Podcasts**\
-`What are some of your favorite podcasts?`\
-https://nytimes.com/2021/04/06/learning/popular-podcasts.html?searchResultPosition=7
+**An Updated Take on Greek Revival Style in Brooklyn**\
+`The 1834 townhouse, once home to the Franciscan Sisters of the Poor, needed more than just a simple renovation to function in the 21st century.`\
+https://nytimes.com/slideshow/2021/04/06/realestate/an-updated-take-on-greek-revival-style-in-brooklyn.html?searchResultPosition=7
 
-**Late Night Doesn’t Buy Republicans’ Corporate Boycotts**\
-`Stephen Colbert suggested Donald Trump’s followers get comfortable with going generic: “I hope you like Great Value Bat and Ball Product and Kirkland Signature Airlines.”`\
-https://nytimes.com/2021/04/06/arts/television/late-night-stephen-colbert-republican-boycotts.html?searchResultPosition=8
+**As China Targets H&M and Nike, Local Brands See Their Chance**\
+`Chinese rivals to Western names have improved quality and marketing. Now the country’s defiance could give them an edge with young patriots.`\
+https://nytimes.com/2021/04/06/business/china-xinjiang-local-brands.html?searchResultPosition=8
 
-**Word of the Day: impervious**\
-`This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/06/learning/word-of-the-day-impervious.html?searchResultPosition=9
+**A Rage-Fueled Memoir of a Marriage-Ending Affair**\
+`In “Blow Your House Down,” Gina Frangello examines her experience of loss, lust, pain and longing with angry intensity.`\
+https://nytimes.com/2021/04/06/books/review/blow-your-house-down-gina-frangello.html?searchResultPosition=9
 
-**The All-New Mets Follow an All-Too-Familiar Script in Loss**\
-`Jacob deGrom’s strong start was wasted as the Mets’ new-look bullpen melted down in the eighth inning.`\
-https://nytimes.com/2021/04/06/sports/baseball/mets-phillies-degrom.html?searchResultPosition=10
+**Helen Oyeyemi’s New Novel Is Not a Fairy Tale**\
+`In “Peaces,” young lovers and their pet mongooses take a WesAnderson-style ride on a train to nowhere.`\
+https://nytimes.com/2021/04/06/books/review/peaces-helen-oyeyemi.html?searchResultPosition=10
 
