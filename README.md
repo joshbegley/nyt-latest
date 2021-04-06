@@ -10,31 +10,31 @@ https://nytimes.com/2021/04/06/world/europe/hans-kung-dead.html?searchResultPosi
 `There’s no country in the world that hasn’t felt the impact of Covid-19.`\
 https://nytimes.com/paidpost/one19/united-voices-against-covid-19.html?searchResultPosition=3
 
+**Al Sharpton and the Floyd family pray for ‘justice’ outside of the courthouse.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/2021/04/06/us/al-sharpton-george-floyd-family.html?searchResultPosition=4
+
 **‘We Cannot Picture Auschwitz’**\
 `A Holocaust researcher says art can bring us closer to the terror. Also: Figure skating for Black girls; remote work; transgender children and sports.`\
-https://nytimes.com/2021/04/06/opinion/letters/auschwitz-paintings.html?searchResultPosition=4
+https://nytimes.com/2021/04/06/opinion/letters/auschwitz-paintings.html?searchResultPosition=5
 
 **Report of Secret Dinner Parties for the Elite Sets Off Outrage in France**\
 `A television channel said the dinner parties were being held in defiance of coronavirus restrictions. One organizer initially said that government ministers had participated, setting off outrage online.`\
-https://nytimes.com/2021/04/06/world/europe/france-coronavirus-secret-dinners.html?searchResultPosition=5
+https://nytimes.com/2021/04/06/world/europe/france-coronavirus-secret-dinners.html?searchResultPosition=6
 
 **Florida’s Crisis Highlights a Nationwide Risk From Toxic Ponds**\
 `Thousands of open-air waste pools near power plants, mines and industrial farms can pose safety dangers from poor management and, increasingly, the effects of climate change.`\
-https://nytimes.com/2021/04/06/climate/ponds-toxic-industrial-waste.html?searchResultPosition=6
+https://nytimes.com/2021/04/06/climate/ponds-toxic-industrial-waste.html?searchResultPosition=7
 
 **California plans to lift virus restrictions in June if certain benchmarks are met.**\
 `Other states have already eased health restrictions at a time when the Biden administration is pleading with them not make those changes just yet.`\
-https://nytimes.com/2021/04/06/us/california-reopen-covid.html?searchResultPosition=7
+https://nytimes.com/2021/04/06/us/california-reopen-covid.html?searchResultPosition=8
 
 **Testing an Opaque Security Power, Michigan Man Challenges ‘No-Fly List’**\
 `The plaintiff, a Lebanese-American, says he was barred from flying after refusing to become an F.B.I. informant.`\
-https://nytimes.com/2021/04/06/us/politics/no-fly-list-lawsuit.html?searchResultPosition=8
+https://nytimes.com/2021/04/06/us/politics/no-fly-list-lawsuit.html?searchResultPosition=9
 
 **More Than 1,800 Prisoners Break Out of Jail in Nigeria**\
 `Gunmen arrived at a prison in Nigeria’s southeast early Monday morning and let loose all who wanted to flee.`\
-https://nytimes.com/2021/04/06/world/africa/nigeria-jail-break-biafra.html?searchResultPosition=9
-
-**Police Respond to Gunfire Near Maryland Army Base**\
-`A Navy hospital corpsman shot and injured two people in Frederick, Md., on Tuesday before driving to Fort Detrick, an Army base, where he was shot and killed.`\
-https://nytimes.com/video/us/politics/100000007694843/mayland-navy-shooting.html?searchResultPosition=10
+https://nytimes.com/2021/04/06/world/africa/nigeria-jail-break-biafra.html?searchResultPosition=10
 
