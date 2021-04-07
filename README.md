@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/07/us/coronavirus-today.html?searchResultPosition=1
 `A woman who has accused Gov. Andrew Cuomo of groping her in the Executive Mansion said that she warned him, “You’re going to get us in trouble.”`\
 https://nytimes.com/2021/04/07/nyregion/cuomo-sexual-harassment.html?searchResultPosition=2
 
-**‘Have You Watched the Derek Chauvin Trial?’: How Teachers Employ the Case**\
+**How Teachers Are Exploring the Derek Chauvin Trial With Students**\
 `In Minneapolis, where George Floyd was killed, educators have used the trial as an opportunity to help their students examine the complex issues of race, policing and the criminal justice system.`\
 https://nytimes.com/2021/04/07/us/derek-chauvin-trial-students-minneapolis.html?searchResultPosition=3
 
