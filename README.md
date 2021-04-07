@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/07/movies/people-of-color-acting-oscars.html?searchResultPosition=1
 
 **Police Expert Describes Derek Chauvin’s Use of ‘Pain Compliance’**\
-`Sgt. Jody Stiger of the Los Angeles Police Department testified on Wednesday as an outside expert on police training and use of force. In his testimony, Sergeant Stiger explained a training policy to rewarded an individual complying during an arrest with a reduction of pain.`\
+`In his testimony, Sergeant Stiger explained a training policy to rewarded an individual complying during an arrest with a reduction of pain.`\
 https://nytimes.com/video/us/politics/100000007696848/sgt-jody-stiger-george-floyd-deadly-force-pain-compliance.html?searchResultPosition=2
 
 **Mario Schifano’s Excellent New York Adventure**\
