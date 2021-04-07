@@ -20,7 +20,7 @@ https://nytimes.com/2021/04/07/books/review/min-jin-lee-writer.html?searchResult
 
 **What is proportional force?**\
 `Proportional force is the idea that the force that an officer is supposed to use on an person under arrest, including the use of chokeholds or other neck restraints, should not be more intense than necessary.`\
-https://nytimes.com/2021/04/07/us/proportional-force-police.html?searchResultPosition=6
+https://nytimes.com/2021/04/07/us/proportional-force-minneapolis-police-derek-chauvin.html?searchResultPosition=6
 
 **Tiger Woods Crash: Sheriff to Release Details of Cause**\
 `The Los Angeles County sheriff planned a news conference to release details of the February crash in which Woods was seriously injured.`\
