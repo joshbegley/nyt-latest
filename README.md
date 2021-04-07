@@ -6,31 +6,31 @@ https://nytimes.com/video/us/100000007697355/cdc-coronavirus-uk-variant.html?sea
 `President Biden said he’s willing to compromise on his $2.3 trillion infrastructure proposal, but pushed back at critics who have argued that parts of the plan are not necessary infrastructure, including broadband internet expansion.`\
 https://nytimes.com/video/us/politics/100000007697033/biden-infrastructure-plan.html?searchResultPosition=2
 
+**In the Chauvin trial, an argument emerges over whether George Floyd said he ‘ate too many drugs’ or ‘ain’t do no drugs.’**\
+`Prosecutors have spent considerable time during their presentation dealing with the defense’s assertions that drugs played a role in Mr. Floyd’s death.`\
+https://nytimes.com/2021/04/07/us/chauvin-trial-reyerson-george-floyd-drugs.html?searchResultPosition=3
+
 **Defense focuses on George Floyd’s prior arrest and drug use.**\
 `Judge Peter Cahill, who has maintained that Mr. Floyd’s past actions are largely irrelevant to the case, initially said that the prior arrest could not be introduced in court.`\
-https://nytimes.com/2021/04/07/us/george-floyds-prior-arrest-drug-use.html?searchResultPosition=4
+https://nytimes.com/2021/04/07/us/george-floyds-prior-arrest-drug-use.html?searchResultPosition=5
 
 **Minnesota Law Enforcement Agent James Reyerson Testifies**\
 `On Wednesday, James Reyerson, the Minnesota law enforcement agent in charge of investigating George Floyd’s death, testified about how he collected information at the scene of the arrest.`\
-https://nytimes.com/video/us/politics/100000007697358/derek-chauvin-reyerson-testimony.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000007697358/derek-chauvin-reyerson-testimony.html?searchResultPosition=6
 
 **After the Capitol Riot, Democrats Are Torn Over Working With the G.O.P.**\
 `An uneasy détente has emerged between congressional Republicans and Democrats after the Jan. 6 attack, but relationships are badly frayed.`\
-https://nytimes.com/2021/04/07/us/politics/house-democrats-republicans-capitol-riot.html?searchResultPosition=6
+https://nytimes.com/2021/04/07/us/politics/house-democrats-republicans-capitol-riot.html?searchResultPosition=7
 
 **Biden’s Tax Plan Aims to Raise $2.5 Trillion and End Profit-Shifting**\
 `The plan detailed by the Treasury Department would make it harder for companies to avoid paying taxes on both U.S. income and profits stashed abroad.`\
-https://nytimes.com/2021/04/07/business/biden-tax-plan.html?searchResultPosition=7
+https://nytimes.com/2021/04/07/business/biden-tax-plan.html?searchResultPosition=8
 
 **What’s It Like to Hug Again?**\
 `Share your videos of your first physical contact with a loved one or friend post-vaccination.`\
-https://nytimes.com/2021/04/07/opinion/covid-vaccination-hugs.html?searchResultPosition=8
+https://nytimes.com/2021/04/07/opinion/covid-vaccination-hugs.html?searchResultPosition=9
 
 **Erika Dickerson-Despenza Wins Blackburn Prize for ‘cullud wattah’**\
 `The play is about the effect of the Flint, Mich., water crisis on three generations of women.`\
-https://nytimes.com/2021/04/07/theater/erika-dickerson-despenza-blackburn-prize-cullud-wattah.html?searchResultPosition=9
-
-**Andrew Giuliani, Political Novice, Is Considering a Run for Governor**\
-`Mr. Giuliani, 35, has never been elected to public office, and his most prominent government job was as a public liaison assistant and special assistant to the president for the Trump White House.`\
-https://nytimes.com/2021/04/07/nyregion/andrew-giuliani-governor-ny.html?searchResultPosition=10
+https://nytimes.com/2021/04/07/theater/erika-dickerson-despenza-blackburn-prize-cullud-wattah.html?searchResultPosition=10
 
