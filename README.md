@@ -1,40 +1,40 @@
+**Video Shows Presidential Protocol Mishap in Turkey**\
+`Ursula von der Leyen, the European Commission president, stood as her colleagues President Recep Tayyip Erdogan of Turkey and Charles Michel, took the only two available chairs during a photo opportunity in Ankara, Turkey, on Tuesday.`\
+https://nytimes.com/video/world/europe/100000007696602/turkey-erdogan-president-meeting-snub.html?searchResultPosition=1
+
+**The 17 Best Recipes Our Food Staff Cooked Last Month**\
+`In March, the staff of the Food section and NYT Cooking made the most of early spring produce, while leaning in to easy and hearty favorites.`\
+https://nytimes.com/2021/04/07/dining/best-recipes-staff-cooked.html?searchResultPosition=2
+
+**FEMA will offer more financial aid for Covid funeral expenses starting next week.**\
+`Billions of dollars from two Covid relief measures will be used to soften the financial blow for grieving families by reimbursing funeral and related expenses.`\
+https://nytimes.com/2021/04/07/us/politics/fema-covid-funeral-assistance.html?searchResultPosition=3
+
 **A Lifetime of Reading Taught Min Jin Lee How to Write About Her Immigrant World**\
 `As a child, the novelist found consolation in books that embraced American rugged individualism and the Korean quest for knowledge. Those same books showed her how to honor the stories of the people she grew up with.`\
-https://nytimes.com/2021/04/07/books/review/min-jin-lee-writer.html?searchResultPosition=1
+https://nytimes.com/2021/04/07/books/review/min-jin-lee-writer.html?searchResultPosition=4
 
 **What is proportional force?**\
 `Proportional force is the idea that the force that an officer is supposed to use on an person under arrest, including the use of chokeholds or other neck restraints, should not be more intense than necessary.`\
-https://nytimes.com/2021/04/07/us/proportional-force-police.html?searchResultPosition=2
+https://nytimes.com/2021/04/07/us/proportional-force-police.html?searchResultPosition=5
 
 **Tiger Woods Crash: Sheriff to Release Details of Cause**\
 `The Los Angeles County sheriff planned a news conference to release details of the February crash in which Woods was seriously injured.`\
-https://nytimes.com/2021/04/07/sports/golf/tiger-woods-crash-update.html?searchResultPosition=3
+https://nytimes.com/2021/04/07/sports/golf/tiger-woods-crash-update.html?searchResultPosition=6
 
 **America’s Toxic Disasters-in-Waiting**\
 `A giant pool of industrial waste almost burst in Florida this week. There are thousands more around the country.`\
-https://nytimes.com/2021/04/07/climate/climate-disasters-waste-pools.html?searchResultPosition=4
+https://nytimes.com/2021/04/07/climate/climate-disasters-waste-pools.html?searchResultPosition=7
 
 **Finding From Particle Research Could Break Known Laws of Physics**\
 `It’s not the next Higgs boson — yet. But the best explanation, physicists say, involves forms of matter and energy not currently known to science.`\
-https://nytimes.com/2021/04/07/science/particle-physics-muon-fermilab-brookhaven.html?searchResultPosition=5
+https://nytimes.com/2021/04/07/science/particle-physics-muon-fermilab-brookhaven.html?searchResultPosition=8
 
 **Richard Thompson on Fairport Convention, Linda Thompson and London in the Late ’60s**\
 `In “Beeswing,” one of the great pioneers of folk-rock looks back on his early years.`\
-https://nytimes.com/2021/04/07/books/review/beeswing-richard-thompson.html?searchResultPosition=6
+https://nytimes.com/2021/04/07/books/review/beeswing-richard-thompson.html?searchResultPosition=9
 
 **A Fierce Election Tests Modi’s Campaign to Remake India**\
 `The prime minister’s party is vying to dethrone a powerful politician in West Bengal. Even a close race could demonstrate the growing reach of his Hindu nationalist movement.`\
-https://nytimes.com/2021/04/07/world/asia/india-modi-west-bengal.html?searchResultPosition=7
-
-**What to Cook Tonight**\
-`Set yourself up to eat well this evening, whether you make a tofu scramble, or an improvisational spicy pasta with tomatoes, olives and capers.`\
-https://nytimes.com/2021/04/07/dining/what-to-cook-tonight.html?searchResultPosition=8
-
-**New enrollees in Obamacare exceed half a million.**\
-`The number rose sharply from previous years, probably a result of more outreach, less stringent criteria for signing up, and the pandemic.`\
-https://nytimes.com/2021/04/07/us/obamacare-enrollment.html?searchResultPosition=9
-
-**Why Kentucky Just Became the Only Red State to Expand Voting Rights**\
-`At a time when states with Republican-led legislatures are rushing to restrict ballot access, Kentucky proved the exception to the rule. The reasons are both political and logistical.`\
-https://nytimes.com/2021/04/07/us/politics/kentucky-voting-law.html?searchResultPosition=10
+https://nytimes.com/2021/04/07/world/asia/india-modi-west-bengal.html?searchResultPosition=10
 
