@@ -1,6 +1,6 @@
 **Your Wednesday Briefing**\
 `AstraZeneca’s vaccine troubles.`\
-https://nytimes.com/2021/04/06/briefing/astrazeneca-netenyahu-ikea-france.html?searchResultPosition=1
+https://nytimes.com/2021/04/06/briefing/astrazeneca-netanyahu-ikea-france.html?searchResultPosition=1
 
 **Quotation of the Day: Fight Brewing on ‘Passports’ for Vaccinated**\
 `Quotation of the Day for Wednesday, April 7, 2021.`\
