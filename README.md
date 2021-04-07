@@ -11,7 +11,7 @@ https://nytimes.com/video/us/politics/100000007697033/biden-infrastructure-plan.
 https://nytimes.com/2021/04/07/us/george-floyds-prior-arrest-drug-use.html?searchResultPosition=4
 
 **Minnesota Law Enforcement Agent James Reyerson Testifies**\
-`On Wednesday, James Reyerson the Minnesota law enforcement agent in charge of investigating George Floyd’s death, testified about how he collected information at the scene of the arrest.`\
+`On Wednesday, James Reyerson, the Minnesota law enforcement agent in charge of investigating George Floyd’s death, testified about how he collected information at the scene of the arrest.`\
 https://nytimes.com/video/us/politics/100000007697358/derek-chauvin-reyerson-testimony.html?searchResultPosition=5
 
 **After the Capitol Riot, Democrats Are Torn Over Working With the G.O.P.**\
