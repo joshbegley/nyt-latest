@@ -16,7 +16,7 @@ https://nytimes.com/2021/04/07/style/share-your-poetry-renewal.html?searchResult
 
 **When will there be a verdict in the Derek Chauvin trial?**\
 `Midway through the second week, more than 20 witnesses have taken the stand for the prosecution. Next, the defense will present their case, before the trial moves into closing arguments and jury deliberation.`\
-https://nytimes.com/2021/04/07/us/derek-chauvin-george-floyd-verdict.html?searchResultPosition=5
+https://nytimes.com/2021/04/07/us/derek-chauvin-trial-verdict.html?searchResultPosition=5
 
 **Review: The Brooklyn Academy Dips a Toe Back in With Live Skating**\
 `The Brooklyn Academy of Music presented its first live performance in more than a year: Le Patin Libre, a contemporary skating company.`\
