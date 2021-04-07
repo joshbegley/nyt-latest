@@ -35,6 +35,6 @@ https://nytimes.com/2021/04/07/arts/music/dmx-life-support.html?searchResultPosi
 https://nytimes.com/2021/04/07/movies/people-of-color-acting-oscars.html?searchResultPosition=9
 
 **Police Expert Describes Derek Chauvin’s Use of ‘Pain Compliance’**\
-`In his testimony, Sergeant Stiger explained a training policy to rewarded an individual complying during an arrest with a reduction of pain.`\
+`In his testimony, Sergeant Stiger explained a training policy to reward an individual complying during an arrest with a reduction of pain.`\
 https://nytimes.com/video/us/politics/100000007696848/sgt-jody-stiger-george-floyd-deadly-force-pain-compliance.html?searchResultPosition=10
 
