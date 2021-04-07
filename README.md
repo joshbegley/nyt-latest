@@ -30,7 +30,7 @@ https://nytimes.com/2021/04/07/us/st-louis-mayoral-election-tishaura-jones.html?
 `A Brooklyn artist uses sports iconography to commemorate Trayvon Martin, George Floyd and other Black victims of violence.`\
 https://nytimes.com/2021/04/07/sports/unarmed-sports-jerseys-george-floyd.html?searchResultPosition=9
 
-**Target says it will increase spending with and support for Black-owned businesses.**\
-`The retailer, which said it would spend more than $2 billion with Black-owned businesses by 2025, joins others that have pledged to increase their economic support of such companies.`\
+**Target says it will spend more than $2 billion with Black-owned businesses.**\
+`The company joins a growing list of retailers that have pledged to increase their economic support of companies owned by Black entrepreneurs.`\
 https://nytimes.com/2021/04/07/business/target-black-owned-businesses.html?searchResultPosition=10
 
