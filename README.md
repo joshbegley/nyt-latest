@@ -1,4 +1,4 @@
-**St. Louis Elects Its First Black Woman Mayor**\
+**St. Louis Elects Its First Black Woman as Mayor**\
 `Tishaura Jones, the city’s treasurer, promised on Tuesday night not to stay silent on racial injustices and vowed to bring “fresh air” to the city.`\
 https://nytimes.com/2021/04/07/us/st-louis-mayoral-election-tishaura-jones.html?searchResultPosition=1
 
