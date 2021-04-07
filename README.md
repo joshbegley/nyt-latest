@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/07/business/veterans-stimulus-checks.html?searchResu
 https://nytimes.com/2021/04/07/business/biden-corporate-tax-increases.html?searchResultPosition=4
 
 **Video Shows Presidential Protocol Mishap in Turkey**\
-`Ursula von der Leyen, the European Commission president, stood as her colleagues President Recep Tayyip Erdogan of Turkey and Charles Michel, took the only two available chairs during a photo opportunity in Ankara, Turkey, on Tuesday.`\
+`Ursula von der Leyen, the European Commission president, stood as her colleagues President Recep Tayyip Erdogan of Turkey and Charles Michel took the only two available chairs during a photo opportunity in Ankara, Turkey, on Tuesday.`\
 https://nytimes.com/video/world/europe/100000007696602/turkey-erdogan-president-meeting-snub.html?searchResultPosition=5
 
 **The 17 Best Recipes Our Food Staff Cooked Last Month**\
