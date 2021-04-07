@@ -2,7 +2,7 @@
 `A look inside France, where new cases are surging and the vaccination campaign continues at a sluggish pace.`\
 https://nytimes.com/2021/04/07/us/coronavirus-today.html?searchResultPosition=1
 
-**Cuomo Aide Says Governor Groomed Her for Months Before Groping**\
+**Cuomo Aide Says Governor ‘Groomed’ Her for Months Before Groping**\
 `A woman who has accused Gov. Andrew Cuomo of groping her in the Executive Mansion said that she warned him, “You’re going to get us in trouble.”`\
 https://nytimes.com/2021/04/07/nyregion/cuomo-sexual-harassment.html?searchResultPosition=2
 
