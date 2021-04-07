@@ -1,6 +1,6 @@
 **Track Coach Tricked Students Into Sending Him Nude Photos, U.S. Says**\
 `Steve Waithe, 28, was charged with cyberstalking and fraud in a scheme to get female track-and-field athletes at Northeastern University to send him nude or seminude photos, federal prosecutors said.`\
-https://nytimes.com/2021/04/07/us/northwestern-track-coach-nude-photos.html?searchResultPosition=1
+https://nytimes.com/2021/04/07/us/northeastern-track-coach-nude-photos.html?searchResultPosition=1
 
 **Your Thursday Briefing**\
 `Losses for President Moon’s party.`\
