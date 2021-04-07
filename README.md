@@ -12,7 +12,7 @@ https://nytimes.com/2021/04/07/us/chattahoochee-national-forest-vandalism.html?s
 
 **Watchdog group claims Cruz improperly spent campaign funds to promote his book.**\
 `The Campaign Legal Center claims that Senator Ted Cruz improperly used donations to his campaign committee to spend $18,000 on Facebook ads promoting his book.`\
-https://nytimes.com/2021/04/07/us/cruz-watchdog-.html?searchResultPosition=4
+https://nytimes.com/2021/04/07/us/cruz-campaign-funds-campaign-legal-center.html?searchResultPosition=4
 
 **Track Coach Tricked Students Into Sending Him Nude Photos, U.S. Says**\
 `Steve Waithe, 28, was charged with cyberstalking and fraud in a scheme to get female track-and-field athletes at Northeastern University to send him nude or seminude photos, federal prosecutors said.`\
