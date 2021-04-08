@@ -1,4 +1,4 @@
-**Prince’s ‘Welcome 2 America,’ an Unreleased Album, Due Out in July**\
+**Prince’s ‘Welcome 2 America,’ an Unreleased Album, Is Due Out in July**\
 `The politically minded, never-before-heard 2010 album will be the first complete project released from Prince’s storied vault.`\
 https://nytimes.com/2021/04/08/arts/music/prince-new-album-welcome-2-america.html?searchResultPosition=1
 
