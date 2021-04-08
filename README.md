@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/08/style/home-design-curtains-up-for-the-one-percent
 `Will starting injections in your 20s and 30s make you look older? Preventive Botox explained.`\
 https://nytimes.com/2021/04/08/style/self-care-how-barely-there-botox-became-the-norm.html?searchResultPosition=4
 
-**$2.1 Billion to Aid Undocumented Workers Signals N.Y.’s Progressive Shift**\
+**$2.1 Billion for Undocumented Workers Signals New York’s Progressive Shift**\
 `The fund, which could provide payments to hundreds of thousands of people excluded from other pandemic relief, ignited a battle among state lawmakers before it was approved this week.`\
 https://nytimes.com/2021/04/08/nyregion/covid-relief-undocumented-workers-nyc.html?searchResultPosition=5
 
