@@ -18,13 +18,13 @@ https://nytimes.com/2021/04/08/technology/amazon-union-vote.html?searchResultPos
 `As a short-term bet, gold has been risky. It has done better over some, but not all, extended periods.`\
 https://nytimes.com/2021/04/08/business/inflation-gold-investing-funds.html?searchResultPosition=5
 
-**As Investors Switch to E.T.F.s, So Do Managers**\
-`The conversion of the first few mutual funds into cheaper, simpler exchange-traded vehicles could herald a broader trend.`\
-https://nytimes.com/2021/04/08/business/mutfund/fund-stock-etf-conversion.html?searchResultPosition=6
-
 **‘Moffie’ Review: A Bleak Coming-of-Age**\
 `This grueling film about the South African military going to war with Angola is replete with vicious, stark depictions of racism and homophobia.`\
-https://nytimes.com/2021/04/08/movies/moffie-review.html?searchResultPosition=8
+https://nytimes.com/2021/04/08/movies/moffie-review.html?searchResultPosition=6
+
+**As Investors Switch to E.T.F.s, So Do Managers**\
+`The conversion of the first few mutual funds into cheaper, simpler exchange-traded vehicles could herald a broader trend.`\
+https://nytimes.com/2021/04/08/business/mutfund/fund-stock-etf-conversion.html?searchResultPosition=7
 
 **‘The Tunnel’ Review: Fire in the Hole**\
 `Painfully cliché but sufficiently diverting, this is the latest in a string of disaster movies from Norway.`\
