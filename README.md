@@ -22,8 +22,8 @@ https://nytimes.com/2021/04/08/us/does-it-matter-whether-chauvin-knelt-on-floyds
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2021/04/08/books/review/11-new-books-we-recommend-this-week.html?searchResultPosition=6
 
-**Music Venues Scramble for $16 Billion in Federal Pandemic Aid**\
-`As the U.S. government began taking applications, nightclubs, movie theaters and other arts organizations clamored for aid that they say they need to survive.`\
+**Music Venues’ Quest for Billions in Federal Aid Is Stalled by Glitch**\
+`On the first day the government invited applications for $16 billion in aid for nightclubs, movie theaters and other arts organizations hurt by the pandemic, the system crashed.`\
 https://nytimes.com/2021/04/08/arts/music/svog-grant-application.html?searchResultPosition=7
 
 **Possible Caravaggio Is Withdrawn From Auction; Spain Announces Export Ban**\
