@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2021/04/08/arts/editors-recommendations-wolfwalk
 `A new book argues that you can become better at investing by borrowing ideas from those who do it best.`\
 https://nytimes.com/2021/04/08/business/learning-how-to-invest-from-the-pros.html?searchResultPosition=9
 
-**Tanglewood Will Have a Summer, With Beethoven and Yo-Yo Ma**\
+**Tanglewood Is Back This Summer, With Beethoven and Yo-Yo Ma**\
 `Closed last year, the Boston Symphony’s warm-weather home in the Berkshires will host an abbreviated six-week season.`\
 https://nytimes.com/2021/04/08/arts/music/boston-symphony-reopening-tanglewood.html?searchResultPosition=10
 
