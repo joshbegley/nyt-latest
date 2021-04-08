@@ -1,4 +1,4 @@
-**In New Testimony From Holocaust Survivors, Hate Speech Is a Dangerous Seed**\
+**In New Holocaust Survivor Testimony, Hate Speech Is a Dangerous Seed**\
 `A new campaign called #ItStartedWithWords features short videos from Holocaust survivors on the origins of World War II and offers a timely message amid an outbreak of anti-Asian hate.`\
 https://nytimes.com/2021/04/08/world/holocaust-survivor-campaign.html?searchResultPosition=1
 
