@@ -4,7 +4,7 @@ https://nytimes.com/2021/04/07/opinion/matt-gaetz-scandal.html?searchResultPosit
 
 **Biden to Announce Several Executive Actions to Tackle Gun Violence**\
 `President Biden is expected to announce his plan, including a measure to try to stop the proliferation of so-called ghost guns, on Thursday.`\
-https://nytimes.com/2021/04/07/us/politics/biden-gun-violence.html?searchResultPosition=2
+https://nytimes.com/2021/04/07/us/politics/biden-gun-laws.html?searchResultPosition=2
 
 **Hollywood Actor Charged With Running Film-Distribution Ponzi Scheme**\
 `Zach Avery convinced clients, to the tune of $227 million, that he had a deal with HBO and Netflix that would help net them speedy 35 percent returns, the S.E.C. said.`\
