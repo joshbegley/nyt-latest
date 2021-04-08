@@ -20,7 +20,7 @@ https://nytimes.com/2021/04/07/opinion/us-police-killings-law.html?searchResultP
 
 **Myanmar Envoy Who Critiqued Coup Is Locked Out of London Embassy**\
 `After Myanmar’s military seized power, its ambassador to Britain had called for the release of political leaders who were detained in the coup.`\
-https://nytimes.com/2021/04/07/world/europe/myanmar-ambassador-embassy.html?searchResultPosition=6
+https://nytimes.com/2021/04/07/world/europe/myanmar-ambassador-coup-london-embassy.html?searchResultPosition=6
 
 **No, Georgia’s voting laws are not like Colorado’s.**\
 `Here are four key differences between the voting systems in the two states.`\
