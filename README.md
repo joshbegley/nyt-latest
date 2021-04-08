@@ -1,40 +1,40 @@
-**Poems! Songs! Demands! It’s Not Theater, but It’s … Something**\
-`Performing-arts protesters locked out by the pandemic have occupied playhouses across France, but drama is not allowed. Cue the “agoras.”`\
-https://nytimes.com/2021/04/08/theater/france-protests-agoras.html?searchResultPosition=1
+**Drought in Taiwan Pits Chip Makers Against Farmers**\
+`The island is going to great lengths to keep water flowing to its all-important semiconductor industry, including shutting off irrigation to legions of rice growers.`\
+https://nytimes.com/2021/04/08/technology/taiwan-drought-tsmc-semiconductors.html?searchResultPosition=1
 
-**How the Skagit Valley Chorale Learned to Sing Again Amid Covid**\
-`A year ago, their rehearsal was one of the first documented superspreader events. But tragedy and isolation couldn’t keep their voices apart.`\
-https://nytimes.com/interactive/2021/04/08/magazine/skagit-valley-chorale-covid-superspreader.html?searchResultPosition=2
+**Why Students Are Logging In to Class From 7,000 Miles Away**\
+`Students are joining remote classes from outside the country. In one New Jersey school district, computers were traced to 24 countries on a day last month.`\
+https://nytimes.com/2021/04/08/nyregion/new-jersey-school-online.html?searchResultPosition=2
 
-**A Destroyed Village and 10 Years of Hope**\
-`After an earthquake and a tsunami hit Japan in 2011, Hiroko Masuike, a Times photographer, spent a decade documenting the attempts by 15 people to rebuild their community.`\
-https://nytimes.com/2021/04/08/insider/earthquake-tsunami-kesen-japan.html?searchResultPosition=3
+**As Diners Return, Restaurants Face a New Hurdle: Finding Workers**\
+`Owners across the country report a shortage in help, as rebounding business forces them to compete for a shrunken pool of applicants.`\
+https://nytimes.com/2021/04/08/dining/restaurant-worker-shortage.html?searchResultPosition=3
 
-**‘No More Parties’: Mexico’s Piñata Makers Badly Bruised by Pandemic**\
-`The piñata industry, dependent on social gatherings, has seen sales plummet. Some artisans, in a creative bid to survive, have added coronavirus figures to their lineups of superheros and princesses.`\
-https://nytimes.com/2021/04/08/world/americas/mexico-pinata-makers-pandemic.html?searchResultPosition=4
+**The World’s Best Golfers Disagree on How to Grip a Putter**\
+`The claw. The two thumbs. The alternative reverse overlap. Every golfer at this week’s Masters Tournament has a preferred way to putt and a reason for doing it.`\
+https://nytimes.com/2021/04/08/sports/golf/putting-grips.html?searchResultPosition=4
 
-**Curtains Up for the One Percent**\
-`While many Americans were stockpiling toilet paper and Clorox, the rich bought houses, sparking a gold rush in the decorating trades.`\
-https://nytimes.com/2021/04/08/style/home-design-curtains-up-for-the-one-percent.html?searchResultPosition=5
+**After Pandemic, Shrinking Need for Office Space Could Crush Landlords**\
+`Some big employers are giving up square footage as they juggle remote work. That could devastate building owners and cities.`\
+https://nytimes.com/2021/04/08/business/economy/office-buildings-remote-work.html?searchResultPosition=5
 
-**How Barely-There Botox Became the Norm**\
-`Will starting injections in your 20s and 30s make you look older? Preventive Botox explained.`\
-https://nytimes.com/2021/04/08/style/self-care-how-barely-there-botox-became-the-norm.html?searchResultPosition=6
+**Kemp Seizes on Georgia Voting Law to Try to Win Back Trump and His Base**\
+`After resisting Donald Trump’s demands to overturn the state’s election results, Gov. Brian Kemp was an outcast in his own party. Now he’s embraced the state’s new voting bill as a way to rebuild his standing.`\
+https://nytimes.com/2021/04/08/us/politics/brian-kemp-trump-georgia.html?searchResultPosition=6
 
-**$2.1 Billion for Undocumented Workers Signals New York’s Progressive Shift**\
-`The fund, which could provide payments to hundreds of thousands of people excluded from other pandemic relief, ignited a battle among state lawmakers before it was approved this week.`\
-https://nytimes.com/2021/04/08/nyregion/covid-relief-undocumented-workers-nyc.html?searchResultPosition=7
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/04/08/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=7
 
-**Doctor and His Grandchildren Among 5 Fatally Shot in South Carolina**\
-`The victims included the doctor’s wife and two of their eight grandchildren. A suspect was in custody, but the motive was unclear.`\
-https://nytimes.com/2021/04/08/us/south-carolina-shooting.html?searchResultPosition=8
+**To Combat Anti-Asian Attacks, New Yorkers Join Neighborhood Watch Patrols**\
+`Alarmed and outraged by a surge in racist violence, citizens band together to make city streets safer.`\
+https://nytimes.com/2021/04/08/nyregion/anti-asian-violence-neighborhood-watch.html?searchResultPosition=8
 
-**Jimmy Kimmel Takes On Matt Gaetz Over His Bid for a Pre-emptive Pardon**\
-`Trump aides denied him a blanket pardon for fear it would set a bad precedent, Kimmel said: “At the time, they were only interested in setting terrible precedents.”`\
-https://nytimes.com/2021/04/08/arts/television/jimmy-kimmel-matt-gaetz-pardon.html?searchResultPosition=9
+**Online Scammers Have a New Offer For You: Vaccine Cards**\
+`Hundreds of sellers are offering false and stolen vaccine cards, as businesses and states weigh proof of vaccinations for getting people back to work and play.`\
+https://nytimes.com/2021/04/08/technology/online-scammers-have-a-new-offer-for-you-vaccine-cards.html?searchResultPosition=9
 
-**Word of the Day: warily**\
-`This word has appeared in 110 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/08/learning/word-of-the-day-warily.html?searchResultPosition=10
+**Forensic Pathologists Decipher Courtroom Dispute Over Floyd’s Cause of Death**\
+`The prosecution in Derek Chauvin’s trial is trying to establish that George Floyd died from a lack of oxygen. Here, experts break down the key medical terminology surrounding his autopsies.`\
+https://nytimes.com/2021/04/08/us/george-floyd-cause-of-death.html?searchResultPosition=10
 
