@@ -24,7 +24,7 @@ https://nytimes.com/2021/04/07/us/politics/biden-executive-actions-gun-control.h
 
 **Hollywood Actor Charged With Running Film-Distribution Ponzi Scheme**\
 `Zach Avery convinced clients, to the tune of $227 million, that he had a deal with HBO and Netflix that would help net them speedy 35 percent returns, the S.E.C. said.`\
-https://nytimes.com/2021/04/07/arts/ponzi-scheme-Zach-Avery.html?searchResultPosition=7
+https://nytimes.com/2021/04/07/arts/ponzi-scheme-zach-avery.html?searchResultPosition=7
 
 **Hawaii just became the 50th state to broaden vaccine eligibility.**\
 `Every state has now heeded President Biden’s call to begin opening vaccinations to all adults by April 19.`\
