@@ -26,8 +26,8 @@ https://nytimes.com/video/world/asia/100000007697932/myanmar-ambassador-locked-o
 `“We will not solve our nation’s problems in one Congress if we seek only partisan solutions,” Mr. Manchin wrote in an op-ed in The Washington Post.`\
 https://nytimes.com/2021/04/07/us/politics/joe-manchin-filibuster-reconciliation.html?searchResultPosition=7
 
-**Bohm and Realmuto Power Phillies Past Mets**\
-`Philadelphia’s offense made up for lost time, leading the team to a series win over a division rival.`\
+**Phillies Power Up to Beat Mets and Yankees Lose in Extra Innings**\
+`Bohm and Realmuto both hit three-run homers for Philadelphia, leading to a series win over a division rival.`\
 https://nytimes.com/2021/04/07/sports/baseball/mets-yankees.html?searchResultPosition=8
 
 **Williamstown Festival Will Take the Shows Outside**\
