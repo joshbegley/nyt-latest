@@ -6,35 +6,35 @@ https://nytimes.com/2021/04/08/us/politics/caitlyn-jenner-governor-california.ht
 `“If you feel low, talk to your doctor,” a psychiatrist writes. “You can feel better, even now!`\
 https://nytimes.com/2021/04/08/opinion/letters/covid-mental-health.html?searchResultPosition=2
 
+**Dr. Martin J. Tobin, a pulmonologist, says George Floyd ‘died from a low level of oxygen.’**\
+`During his testimony, Dr. Tobin said Mr. Floyd’s prone position and being handcuffed and Mr. Chauvin’s knee on his neck and back contributed to his shallow breathing.`\
+https://nytimes.com/2021/04/08/us/dr-martin-tobin-pulmonologist-testimony.html?searchResultPosition=3
+
 **U.S. Intelligence Report Warns of Global Consequences of Social Fragmentation**\
 `The coronavirus pandemic has highlighted weaknesses of the international order, said the report, which is issued every four years.`\
-https://nytimes.com/2021/04/08/us/politics/intelligence-global-trends-report-pandemic.html?searchResultPosition=3
+https://nytimes.com/2021/04/08/us/politics/intelligence-global-trends-report-pandemic.html?searchResultPosition=4
 
 **The Disruption of Weddings, Then and Now**\
 `During World War II and over the past year, couples learned to be resilient and flexible. A New Orleans museum keeps some memories from wartime alive.`\
-https://nytimes.com/2021/04/08/style/the-disruption-of-weddings-then-and-now.html?searchResultPosition=4
+https://nytimes.com/2021/04/08/style/the-disruption-of-weddings-then-and-now.html?searchResultPosition=5
 
 **For Bonds, Add Safety by Venturing Abroad**\
 `Investors often neglect to add international bond funds to their investments. That failure can increase overall risk and raise the chance of missing savings goals.`\
-https://nytimes.com/2021/04/08/business/bonds-safety-international-risk.html?searchResultPosition=5
+https://nytimes.com/2021/04/08/business/bonds-safety-international-risk.html?searchResultPosition=6
 
 **In ‘Them,’ a Black Family Is Haunted by Real-Life Monsters**\
 `Created by Little Marvin and produced by Lena Waithe, the new series uses genre-style horror to unearth a racist and lasting relic from America’s past.`\
-https://nytimes.com/2021/04/08/arts/television/them-amazon-series.html?searchResultPosition=6
+https://nytimes.com/2021/04/08/arts/television/them-amazon-series.html?searchResultPosition=7
 
 **For Him, the Delight Is in the Digging**\
 `Patrick Radden Keefe has investigated human smuggling, government espionage and the Northern Ireland conflict. With “Empire of Pain,” he takes on the Sackler family and the opioid crisis.`\
-https://nytimes.com/2021/04/08/books/patrick-radden-keefe-empire-of-pain.html?searchResultPosition=7
+https://nytimes.com/2021/04/08/books/patrick-radden-keefe-empire-of-pain.html?searchResultPosition=8
 
 **Pakistan’s Prime Minister Links Rape to ‘Vulgarity’ and How Women Dress**\
 `Activists have accused Prime Minister Imran Khan of “baffling ignorance” and victim-blaming after he said rape cases had risen because of “vulgarity.”`\
-https://nytimes.com/2021/04/08/world/asia/pakistan-rape.html?searchResultPosition=8
+https://nytimes.com/2021/04/08/world/asia/pakistan-rape.html?searchResultPosition=9
 
 **Is it Covid-19 or Allergies?**\
 `Here’s how to tell the difference.`\
-https://nytimes.com/interactive/2021/04/08/well/allergies-covid-symptoms.html?searchResultPosition=9
-
-**N.Y.C.’s mayor says a new virus rule will reduce temporary public school closures.**\
-`Public schools had previously closed for 10 days if two unlinked cases were detected there, regardless of the source of infection.`\
-https://nytimes.com/2021/04/08/nyregion/new-york-school-closure-rules.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/04/08/well/allergies-covid-symptoms.html?searchResultPosition=10
 
