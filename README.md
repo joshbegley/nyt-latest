@@ -1,32 +1,32 @@
-**Corporate Taxes Are Wealth Taxes**\
-`And their decline has led to a steep drop in tax rates for the affluent.`\
-https://nytimes.com/2021/04/08/briefing/biden-corporate-tax-astrazeneca-vaccine-particle-physics.html?searchResultPosition=2
+**As Talk Turns to Inflation, Some Investors Look to Gold**\
+`As a short-term bet, gold has been risky. It has done better over some, but not all, extended periods.`\
+https://nytimes.com/2021/04/08/business/inflation-gold-investing-funds.html?searchResultPosition=1
 
-**Unemployment claims data will shed new light on the economy.**\
-`The increasing pace of vaccinations — combined with the easing of restrictions on business and consumer activity in many states, and the arrival of stimulus funds — has helped lift hiring in recent weeks.`\
-https://nytimes.com/2021/04/08/business/economy/weekly-unemployment-claims.html?searchResultPosition=4
+**As Investors Switch to E.T.F.s, So Do Managers**\
+`The conversion of the first few mutual funds into cheaper, simpler exchange-traded vehicles could herald a broader trend.`\
+https://nytimes.com/2021/04/08/business/mutfund/fund-stock-etf-conversion.html?searchResultPosition=2
 
-**Celebrity Zookeeper Jack Hanna Has Dementia, His Family Says**\
-`The 74-year-old is believed to have developed Alzheimer’s disease and will retire from public life, his daughters said in a letter.`\
-https://nytimes.com/2021/04/08/us/jack-hanna-dementia.html?searchResultPosition=5
+**‘Moffie’ Review: A Bleak Coming-of-Age**\
+`This grueling film about the South African military going to war with Angola is replete with vicious, stark depictions of racism and homophobia.`\
+https://nytimes.com/2021/04/08/movies/moffie-review.html?searchResultPosition=4
 
-**From the Charred Wreck of a Lamborghini, a D.I.Y. Supercar**\
-`It’s still not cheap, and it’ll take some skill, but finding the totaled car of your dreams and rebuilding it can give you bragging rights, and a sweet new ride.`\
-https://nytimes.com/2021/04/08/business/salvage-lamborghini-ferrari.html?searchResultPosition=6
+**‘The Tunnel’ Review: Fire in the Hole**\
+`Painfully cliché but sufficiently diverting, this is the latest in a string of disaster movies from Norway.`\
+https://nytimes.com/2021/04/08/movies/the-tunnel-review-fire-in-the-hole.html?searchResultPosition=5
 
-**The Case Against Derek Chauvin**\
-`A look at the arguments made so far in the closely watched trial of the former police officer accused of murdering George Floyd.`\
-https://nytimes.com/2021/04/08/podcasts/the-daily/derek-chauvin-trial-george-floyd.html?searchResultPosition=7
+**‘Slalom’ Review: First, Abuse, Then a Steep Downhill**\
+`This French drama from Charlène Favier presents a sensitive and discomforting view of sexual abuse within alpine sports.`\
+https://nytimes.com/2021/04/08/movies/slalom-review.html?searchResultPosition=6
 
-**Investing Made Simple for Beginners and Everyone Else**\
-`Managing your money for the long run can be easier than you might imagine.`\
-https://nytimes.com/2021/04/08/business/investing-made-simple-for-beginners-and-everyone-else.html?searchResultPosition=8
+**‘The Power’ Review: Night Terrors During a London Blackout**\
+`The writer and director Corinna Faith doesn’t wait for the lights to dim to unleash a creaky, eerie atmosphere.`\
+https://nytimes.com/2021/04/08/movies/the-power-review.html?searchResultPosition=7
 
-**South Korean Man Gets 34 Years for Running Sexual Exploitation Chat Room**\
-`Moon Hyeong-wook, 25, was accused of luring young women with promises of high-paying jobs and then forcing them into pornography.`\
-https://nytimes.com/2021/04/08/world/asia/korea-sex-crime-chat-rooms.html?searchResultPosition=9
+**‘Voyagers’ Review: In Space, Everyone Can Hear You Scream**\
+`Emotional anarchy derails a space mission in this insipid sci-fi drama.`\
+https://nytimes.com/2021/04/08/movies/voyagers-review-in-space-everyone-can-hear-you-scream.html?searchResultPosition=8
 
-**A Bright Future for New York City’s Summer**\
-`The city's beach and outdoor pool season is starting on schedule after a partial and delayed reopening last summer.`\
-https://nytimes.com/2021/04/08/nyregion/new-york-city-pools-beaches-open.html?searchResultPosition=10
+**‘Looking for a Lady with Fangs and a Moustache’ Review: Beyond Belief**\
+`In this drama from Khyentse Norbu, a Kathmandu entrepreneur searches for spiritual enlightenment after receiving unnerving visions.`\
+https://nytimes.com/2021/04/08/movies/looking-for-a-lady-with-fangs-and-a-moustache-review.html?searchResultPosition=9
 
