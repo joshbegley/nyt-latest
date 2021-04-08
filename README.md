@@ -18,7 +18,7 @@ https://nytimes.com/2021/04/08/nyregion/covid-relief-undocumented-workers-nyc.ht
 `The victims included the doctor’s wife and two of their eight grandchildren. A suspect was in custody, but the motive was unclear.`\
 https://nytimes.com/2021/04/08/us/south-carolina-shooting.html?searchResultPosition=5
 
-**Jimmy Kimmel Takes on Matt Gaetz Over His Bid for a Pre-emptive Pardon**\
+**Jimmy Kimmel Takes On Matt Gaetz Over His Bid for a Pre-emptive Pardon**\
 `Trump aides denied him a blanket pardon for fear it would set a bad precedent, Kimmel said: “At the time, they were only interested in setting terrible precedents.”`\
 https://nytimes.com/2021/04/08/arts/television/jimmy-kimmel-matt-gaetz-pardon.html?searchResultPosition=6
 
