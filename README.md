@@ -1,40 +1,40 @@
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a four-bedroom houses in Katonah, N.Y., and Stamford, Conn.`\
+https://nytimes.com/2021/04/08/realestate/housing-market-near-nyc.html?searchResultPosition=1
+
+**Homes for Sale in Brooklyn, Queens and Manhattan**\
+`This week’s properties are in Astoria, South Harlem and Bay Ridge.`\
+https://nytimes.com/2021/04/08/realestate/housing-market-nyc.html?searchResultPosition=2
+
+**On the Market in New York City**\
+`This week’s properties are in Astoria, South Harlem and Bay Ridge.`\
+https://nytimes.com/slideshow/2021/04/08/realestate/on-the-market-in-new-york-city.html?searchResultPosition=3
+
+**On the Market in the New York Region**\
+`This week’s properties are a four-bedroom houses in Katonah, N.Y., and Stamford, Conn.`\
+https://nytimes.com/slideshow/2021/04/08/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+
+**The T List: Five Things We Recommend This Week**\
+`Charlotte Mensah’s beauty routine, drawings by David Hockney — and more.`\
+https://nytimes.com/2021/04/08/t-magazine/charlotte-mensah-david-hockney.html?searchResultPosition=5
+
+**Where Are Real Estate Taxes Lowest (and Highest)?**\
+`A guide to median real estate taxes in all 50 states and Washington D.C.`\
+https://nytimes.com/2021/04/08/realestate/real-estate-taxes-50-states.html?searchResultPosition=6
+
 **Should I Have Spoken Up?**\
 `A reader wonders what she could have done to stop some troubling behavior she saw at a vaccine site.`\
-https://nytimes.com/2021/04/08/style/social-qs-harassment-bystander.html?searchResultPosition=1
+https://nytimes.com/2021/04/08/style/social-qs-harassment-bystander.html?searchResultPosition=7
 
 **How to Catch This Year’s California Blooms**\
 `Thursday: While drought conditions won’t allow a super bloom, you can still enjoy the state’s wildflowers this season.`\
-https://nytimes.com/2021/04/08/us/california-wildflowers.html?searchResultPosition=2
+https://nytimes.com/2021/04/08/us/california-wildflowers.html?searchResultPosition=8
 
 **Gabrielle Giffords’s group will install a memorial to gun violence victims on the National Mall.**\
 `The gun violence prevention organization plans to place 38,000 silk white roses in 4,000 vases on the National Mall to commemorate the Americans killed each year by guns.`\
-https://nytimes.com/2021/04/08/us/gabriel-giffords-gun-victims-national-mall.html?searchResultPosition=3
+https://nytimes.com/2021/04/08/us/gabriel-giffords-gun-victims-national-mall.html?searchResultPosition=9
 
 **‘Worn Stories’ Treats Clothing as the Fabric of Memory. I Can Relate.**\
 `Inspired by the new Netflix documentary series, a writer takes a journey through his own closet as a means of processing grief.`\
-https://nytimes.com/2021/04/08/arts/television/worn-stories-treats-clothing-as-the-fabric-of-memory-i-can-relate.html?searchResultPosition=4
-
-**Rep. Lee Zeldin, a Staunch Conservative, Will Run for N.Y. Governor**\
-`Mr. Zeldin, a Republican congressman and avid supporter of former President Donald Trump, said that to “save New York, Andrew Cuomo’s gotta go.”`\
-https://nytimes.com/2021/04/08/nyregion/lee-zeldin-governor.html?searchResultPosition=5
-
-**French Open Is Delayed a Week**\
-`The tournament will begin May 30, about two weeks after France is expected to ease its current national lockdown.`\
-https://nytimes.com/2021/04/08/sports/tennis/french-open-delay.html?searchResultPosition=6
-
-**Judge Frees Former Dallas Police Officer Charged With Capital Murder**\
-`The decision came after a prosecutor conceded that he did not have enough evidence, “as we sit here today,” to pursue the charges against Bryan Riser.`\
-https://nytimes.com/2021/04/08/us/dallas-police-murder-charges.html?searchResultPosition=7
-
-**A Tax Change Is Coming, Maybe**\
-`President Biden unveils his corporate tax overhaul.`\
-https://nytimes.com/2021/04/08/business/dealbook/biden-corporate-taxes.html?searchResultPosition=8
-
-**Amazon union drive in Alabama gathers 3,215 votes.**\
-`The ballots cast represent about 55 percent of the roughly 5,800 workers who were eligible to vote, the union representing the workers said.`\
-https://nytimes.com/2021/04/08/technology/amazon-union-vote.html?searchResultPosition=9
-
-**As Talk Turns to Inflation, Some Investors Look to Gold**\
-`As a short-term bet, gold has been risky. It has done better over some, but not all, extended periods.`\
-https://nytimes.com/2021/04/08/business/inflation-gold-investing-funds.html?searchResultPosition=10
+https://nytimes.com/2021/04/08/arts/television/worn-stories-treats-clothing-as-the-fabric-of-memory-i-can-relate.html?searchResultPosition=10
 
