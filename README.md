@@ -4,7 +4,7 @@ https://nytimes.com/video/world/asia/100000007697932/myanmar-ambassador-locked-o
 
 **Joe Manchin says there is ‘no circumstance’ in which he would back weakening the filibuster.**\
 `“We will not solve our nation’s problems in one Congress if we seek only partisan solutions,” Mr. Manchin wrote in an op-ed in The Washington Post.`\
-https://nytimes.com/2021/04/07/us/joe-manchin-filibuster-reconciliation.html?searchResultPosition=2
+https://nytimes.com/2021/04/07/us/politics/joe-manchin-filibuster-reconciliation.html?searchResultPosition=2
 
 **Bohm and Realmuto Power Phillies Past Mets**\
 `Philadelphia’s offense made up for lost time, leading the team to a series win over a division rival.`\
