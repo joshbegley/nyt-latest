@@ -1,40 +1,40 @@
-**The New York Times News Quiz, April 9, 2021**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2021/04/09/briefing/news-quiz-godzilla-georgia-yahoo.html?searchResultPosition=1
+**Reverse Migration: Moving to Cities While Others Flee**\
+`Suburban homeowners who have profited from the urban exodus during the pandemic are leaving small-town life behind to find out what they have been missing.`\
+https://nytimes.com/2021/04/09/realestate/suburb-to-city.html?searchResultPosition=1
 
-**Landing in California, Remembering Tolstoy and Other Letters to the Editor**\
-`Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2021/04/09/books/review/landing-in-california-remembering-tolstoy-and-other-letters-to-the-editor.html?searchResultPosition=2
+**Starting Over in an Urban Setting**\
+`These homeowners were quick to sell when their suburban houses became valuable during the pandemic.`\
+https://nytimes.com/slideshow/2021/04/09/realestate/suburbs-city.html?searchResultPosition=2
 
-**Iran Releases South Korean Oil Tanker**\
-`The vessel was seized in January. Iran said the ship had been polluting its waters, but the move was seen as an effort to force South Korea to unlock billions in funds caught up in U.S. sanctions.`\
-https://nytimes.com/2021/04/09/world/middleeast/iran-south-korea-ship-released.html?searchResultPosition=3
+**Republicans Take Up Trump’s Fight, Leaving Policymaking Behind**\
+`The former president’s instincts for red-meat political fights over governing and policymaking have left party leaders in a state of confusion over what they stand for.`\
+https://nytimes.com/2021/04/09/us/politics/trump-republicans-issues.html?searchResultPosition=3
 
-**Does an ‘Asian-Australian’ Accent Exist?**\
-`Is there something a little bit different about the way Asian-Australian native English speakers, like myself, talk?`\
-https://nytimes.com/2021/04/09/world/asia/does-an-asian-australian-accent-exist.html?searchResultPosition=4
+**Why This Toxic Canal Zone Is a Litmus Test for N.Y.C. Development**\
+`The Gowanus Canal in Brooklyn is notorious for its century-old filth. Now that the cleanup of the waterway has begun, a thorny question emerges. Who gets to live there?`\
+https://nytimes.com/2021/04/09/nyregion/gowanus-canal-brooklyn-development.html?searchResultPosition=4
 
-**‘Thunder Force’ Review: Saving Chicago, One Mutant at a Time**\
-`Melissa McCarthy and Octavia Spencer don superhero suits in this painfully lazy Netflix comedy.`\
-https://nytimes.com/2021/04/09/movies/thunder-force-review.html?searchResultPosition=5
+**How Covid Turned Food Pantries Into ‘Mini-Costcos’**\
+`Hunger activists are using phrases like ‘warehouse optimization’ and ‘streamlined inventory management.’`\
+https://nytimes.com/2021/04/09/nyregion/coronavirus-nyc-food-pantries.html?searchResultPosition=5
 
-**Where Boars Hog the Streets**\
-`Groups of boars have become an unavoidable presence in Haifa. Some human residents are charmed, but others are annoyed or frightened and now carry sticks on walks.`\
-https://nytimes.com/2021/04/09/world/middleeast/haifa-israel-wild-boars.html?searchResultPosition=6
+**‘I Have No Idea Where My Daughter Is’: Migrant Parents Are Desperate for News**\
+`With a record 20,000 migrant children in shelters and detention facilities, many parents have waited weeks to learn what happened to their children after they crossed the border.`\
+https://nytimes.com/2021/04/09/us/migrant-children-border-parents.html?searchResultPosition=6
 
-**Terse Truths**\
-`What are some of your favorite sayings or aphorisms? Why?`\
-https://nytimes.com/2021/04/09/learning/terse-truths.html?searchResultPosition=7
+**In Mississippi, 73,000 Vaccine Slots and Few Takers**\
+`The good news: There are more shots available. The challenge is getting people to take them.`\
+https://nytimes.com/2021/04/09/health/vaccine-mississippi-demand.html?searchResultPosition=7
 
-**Chinese Shows Blur Western Brands Over Xinjiang Dispute**\
-`Online platforms that stream dance, singing and comedy shows are pixelating performers’ T-shirts and sneakers amid a nationalistic fervor.`\
-https://nytimes.com/2021/04/09/world/asia/china-blur-brands-xinjiang-cotton.html?searchResultPosition=8
+**When Boston Ruled the Music World**\
+`Three recent recordings conjure the mid-20th-century moment when the city was a center of innovative composition.`\
+https://nytimes.com/2021/04/09/arts/music/boston-classical-music.html?searchResultPosition=8
 
-**Word of the Day: transient**\
-`This word has appeared in 91 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/09/learning/word-of-the-day-transient.html?searchResultPosition=9
+**How a Brooklyn Arts and Food Activist Spends Her Sundays**\
+`Tiffiney Davis has known hunger, so she’s doing something about it.`\
+https://nytimes.com/2021/04/09/nyregion/coronavirus-Tiffiney-Davis.html?searchResultPosition=9
 
-**Matt Gaetz Is ‘Almost Too Florida,’ Says Stephen Colbert**\
-`Allegations of “Bahamas sex trafficking with a weed-peddling hand surgeon” make the congressman a nearly too-perfect representative of his state, Colbert said.`\
-https://nytimes.com/2021/04/09/arts/television/matt-gaetz-stephen-colbert-florida.html?searchResultPosition=10
+**Can This Amusement Park Be Saved?**\
+`A longtime recreation destination across the river from Philadelphia was being auctioned for parts. Then a man with a plan swooped in.`\
+https://nytimes.com/2021/04/09/style/clementon-park-and-splash-world-auction-amusement-parks.html?searchResultPosition=10
 
