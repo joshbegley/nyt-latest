@@ -18,7 +18,7 @@ https://nytimes.com/2021/04/09/world/middleeast/haifa-israel-wild-boars.html?sea
 `What are some of your favorite sayings or aphorisms? Why?`\
 https://nytimes.com/2021/04/09/learning/terse-truths.html?searchResultPosition=5
 
-**It’s All a Blur: Chinese Shows Censor Western Brands Over Xinjiang Dispute**\
+**Chinese Shows Blur Western Brands Over Xinjiang Dispute**\
 `Online platforms that stream dance, singing and comedy shows are pixelating performers’ T-shirts and sneakers amid a nationalistic fervor.`\
 https://nytimes.com/2021/04/09/world/asia/china-blur-brands-xinjiang-cotton.html?searchResultPosition=6
 
