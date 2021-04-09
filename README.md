@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/09/world/asia/india-covid-vaccine-variant.html?searc
 https://nytimes.com/2021/04/09/technology/amazon-defeats-union.html?searchResultPosition=2
 
 **Biden Details $1.52 Trillion Spending Request**\
-`The White House spending request includes increases in funding to address climate change, along with beefing up education, health research and the Internal Revenue Service.`\
+`The request includes increases in funding to address climate change, along with beefing up education, health research and the Internal Revenue Service.`\
 https://nytimes.com/2021/04/09/business/biden-details-1-52-trillion-spending-request.html?searchResultPosition=3
 
 **Rachel Kushner Remembers Her Hard-Rocking Friends, Many of Whom Are Gone**\
