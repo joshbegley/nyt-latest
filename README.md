@@ -28,7 +28,7 @@ https://nytimes.com/2021/04/09/arts/music/ethel-gabriel-dead.html?searchResultPo
 
 **White House Warns of Johnson & Johnson Vaccine Scarcity**\
 `Johnson & Johnson will allocate 86 percent fewer doses across the United States next week than are now being allocated, according to C.D.C. data, dealing a setback to a national vaccination campaign that has just found its footing.`\
-https://nytimes.com/2021/04/09/science/white-house-warns-of-johnson-johnson-vaccine-scarcity.html?searchResultPosition=8
+https://nytimes.com/2021/04/09/science/johnson-and-johnson-vaccine.html?searchResultPosition=8
 
 **Your Thoughts on Muons Upending Physics**\
 `A story this week that involved wobbling muons, particle colliders, a Costco parking lot and the possible rewriting of the laws of physics drew an array of enthusiastic comments.`\
