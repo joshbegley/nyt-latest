@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/09/business/biden-details-1-52-trillion-spending-pro
 https://nytimes.com/2021/04/09/books/review/the-hard-crowd-rachel-kushner.html?searchResultPosition=4
 
 **Biden Creating Commission to Study Expanding the Supreme Court**\
-`The White House is taking action after progressives pushed to add seats to the court to balance the conservative stamp put on it by President Trump.`\
+`The commission will also examine other potential changes such as term limits for justices. Progressives are pushing President Biden to add seats to balance the conservative stamp by President Trump.`\
 https://nytimes.com/2021/04/09/us/politics/biden-supreme-court-packing.html?searchResultPosition=5
 
 **Jon Klassen Meets Samuel Beckett in a Hilariously Dark Picture Book**\
