@@ -6,9 +6,9 @@ https://nytimes.com/2021/04/09/world/asia/india-covid-vaccine-variant.html?searc
 `The company’s victory deals a crushing blow to organized labor, which had hoped the time was ripe to start making inroads.`\
 https://nytimes.com/2021/04/09/technology/amazon-defeats-union.html?searchResultPosition=2
 
-**Biden Details $1.52 Trillion Spending Proposal to Fund Domestic Priorities**\
+**Biden Details $1.52 Trillion Spending Request**\
 `The White House spending request includes increases in funding to address climate change, along with beefing up education, health research and the Internal Revenue Service.`\
-https://nytimes.com/2021/04/09/business/biden-details-1-52-trillion-spending-proposal-to-fund-domestic-priorities.html?searchResultPosition=3
+https://nytimes.com/2021/04/09/business/biden-details-1-52-trillion-spending-request.html?searchResultPosition=3
 
 **Rachel Kushner Remembers Her Hard-Rocking Friends, Many of Whom Are Gone**\
 `Kushner’s latest book, “The Hard Crowd,” contains essays written over the past 20 years.`\
