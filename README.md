@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/09/t-magazine/calida-rawles-portrait.html?searchResultPosition=1
 
 **They Are Not Alone: U.F.O. Reports Surged in the Pandemic**\
-`With skies free of light pollution and most nights free, New Yorkers reported nearly twice as many mysterious sightings last year.`\
+`With skies lacking light pollution and most nights free, New Yorkers reported nearly twice as many mysterious sightings last year.`\
 https://nytimes.com/2021/04/09/nyregion/ufo-sightings-recent.html?searchResultPosition=2
 
 **The Best of Late Night This Week 🌙**\
@@ -18,7 +18,7 @@ https://nytimes.com/2021/04/09/business/lee-delaney-bjs-ceo-dies.html?searchResu
 `The new wave will hurt global efforts and vaccine supplies, experts say. Researchers are scrambling to assess whether new coronavirus variants are playing a role in India.`\
 https://nytimes.com/2021/04/09/world/asia/india-covid-vaccine-variant.html?searchResultPosition=5
 
-**Amazon Appears to Defeat Union Drive at Alabama Warehouse**\
+**Amazon Workers Appear to Defeat Union Drive at Alabama Warehouse**\
 `The company’s victory deals a crushing blow to organized labor, which had hoped the time was ripe to start making inroads.`\
 https://nytimes.com/2021/04/09/technology/amazon-defeats-union.html?searchResultPosition=6
 
