@@ -1,6 +1,6 @@
 **Amazon Appears to Defeat Union Drive at Alabama Warehouse**\
 `The company’s victory deals a crushing blow to organized labor, which had hoped the time was ripe to start making inroads.`\
-https://nytimes.com/2021/04/09/technology/amazon-appears-to-defeat-union-drive-at-alabama-warehouse.html?searchResultPosition=1
+https://nytimes.com/2021/04/09/technology/amazon-defeats-union-drive-at-alabama-warehouse.html?searchResultPosition=1
 
 **Biden Details $1.52 Trillion Spending Proposal to Fund Domestic Priorities**\
 `The White House spending request includes increases in funding to address climate change, along with beefing up education, health research and the Internal Revenue Service.`\
