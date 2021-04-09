@@ -20,7 +20,7 @@ https://nytimes.com/2021/04/08/learning/live-panel-for-students-covering-the-cli
 
 **When Two People Miss Each Other a Lot**\
 `Jamey Smith seems to be making a habit out of building Friday crossword puzzles.`\
-https://nytimes.com/2021/04/08/crosswords/daily-puzzle-2021-04-9.html?searchResultPosition=6
+https://nytimes.com/2021/04/08/crosswords/daily-puzzle-2021-04-09.html?searchResultPosition=6
 
 **Police Surgeon Says George Floyd Died of Asphyxia**\
 `Dr. Bill Smock, a surgeon for the Louisville Metropolitan Police Department, testified on Thursday that he had found no evidence to support claims that George Floyd died of an overdose.`\
