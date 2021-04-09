@@ -24,7 +24,7 @@ https://nytimes.com/2021/04/09/sports/soccer/real-madrid-barcelona-clasico.html?
 
 **Prince Philip, the Man Who Walked Two Paces Behind the Queen**\
 `The Duke of Edinburgh understood that the rituals of monarchy were both ridiculous and necessary.`\
-https://nytimes.com/2021/04/09/opinion/prince-philip-obit.html?searchResultPosition=7
+https://nytimes.com/2021/04/09/opinion/prince-philip-dead.html?searchResultPosition=7
 
 **A Rough Ride for N.Y.C. Cabbies**\
 `“This business will never be good again,” said one New York City taxi driver struggling to pay off his medallion debt, which was made worse by the pandemic. `\
