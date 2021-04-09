@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/09/arts/music/playlist-prince-doja-cat-twenty-one-pi
 `Roberta S. Jacobson’s departure comes amid the administration’s efforts to reduce the flow of immigration from Central America.`\
 https://nytimes.com/2021/04/09/us/politics/biden-border-czar.html?searchResultPosition=4
 
-**Pfizer and BioNTech requested the F.D.A.’s approval to use their vaccine in 12- to 15-year-olds.**\
+**Pfizer and BioNTech requested the F.D.A.’s authorization to use their vaccine in 12- to 15-year-olds.**\
 `If approved, it could allow young adolescents to start getting vaccinated before school starts in the fall.`\
 https://nytimes.com/2021/04/09/world/pfizer-covid-vaccine-young-teens.html?searchResultPosition=5
 
