@@ -2,7 +2,7 @@
 `The choreographer’s “When We Fell,” for New York City Ballet, is among the most beautiful dance films of the pandemic.`\
 https://nytimes.com/2021/04/09/arts/dance/review-kyle-abraham-new-york-city-ballet.html?searchResultPosition=1
 
-**Forensic Pathologist Testifies that Police Actions Caused Floyd’s Death**\
+**Forensic Pathologist Testifies That Police Actions Caused Floyd’s Death**\
 `Dr. Lindsey Thomas, a forensic pathologist, testified on Friday in Derek Chauvin’s murder trial that George Floyd died from low oxygen caused by law enforcement’s subdual restraint and compression to the neck.`\
 https://nytimes.com/video/us/100000007701285/george-floyd-death-low-oxygen-forensic-pathologist.html?searchResultPosition=2
 
