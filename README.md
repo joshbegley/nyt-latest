@@ -22,19 +22,19 @@ https://nytimes.com/2021/04/09/arts/music/asl-music-deaf-culture.html?searchResu
 `Experts say that, instead of avoiding the topic, parents like me should shoot for ‘age-appropriate honesty.’`\
 https://nytimes.com/2021/04/09/well/mind/depression-parents-advice.html?searchResultPosition=6
 
-**Prince Philip in Photos: The Life of a Patriarch**\
-`He occupied a peculiar place on the world stage as the husband of a queen whose powers were largely ceremonial. Yet he embraced his royal role and worked to preserve the crown.`\
-https://nytimes.com/2021/04/09/obituaries/prince-philip-in-photos-the-life-of-a-patriarch.html?searchResultPosition=7
-
 **How to Resolve a Conflict When You Hate Your Opponent’s Guts**\
 `Amanda Ripley’s “High Conflict” explores the kind of disputes that are so bad they feel existential — and how to get out of them.`\
-https://nytimes.com/2021/04/09/books/review/high-conflict-amanda-ripley.html?searchResultPosition=8
+https://nytimes.com/2021/04/09/books/review/high-conflict-amanda-ripley.html?searchResultPosition=7
 
 **Police officers, not drugs, caused George Floyd’s death, a pathologist testifies.**\
 `Dr. Lindsey C. Thomas said Mr. Floyd died of a lack of oxygen and that there was “no evidence” he would have died that day if he had not been pressed to the ground by police officers.`\
-https://nytimes.com/2021/04/09/us/chauvin-trial-pathologist-testimony-george-floyd.html?searchResultPosition=9
+https://nytimes.com/2021/04/09/us/chauvin-trial-pathologist-testimony-george-floyd.html?searchResultPosition=8
 
 **Horse Riders, a City Street and a History Now Captured on Film**\
 `The coming-of-age drama “Concrete Cowboy” is set amid the stables of Philadelphia’s Fletcher Street, a hub for Black equestrians for decades.`\
-https://nytimes.com/2021/04/09/movies/concrete-cowboy-philadelphia-fletcher-street.html?searchResultPosition=10
+https://nytimes.com/2021/04/09/movies/concrete-cowboy-philadelphia-fletcher-street.html?searchResultPosition=9
+
+**Love Letter: A Royal Love Story’s Final Chapter**\
+`And: Want to improve your love life? Try a spreadsheet.`\
+https://nytimes.com/2021/04/09/style/love-letter-newsletter-a-royal-love-storys-final-chapter.html?searchResultPosition=10
 
