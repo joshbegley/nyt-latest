@@ -1,4 +1,4 @@
-**Philip, the Man Who Walked Two Paces Behind the Queen**\
+**Prince Philip, the Man Who Walked Two Paces Behind the Queen**\
 `The Duke of Edinburgh understood that the rituals of monarchy were both ridiculous and necessary.`\
 https://nytimes.com/2021/04/09/opinion/prince-philip-obit.html?searchResultPosition=1
 
