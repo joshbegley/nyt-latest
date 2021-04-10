@@ -1,40 +1,40 @@
+**Man Who Boasted He Was at Capitol Riot Is Charged in Bomb Plot**\
+`Seth Aaron Pendley was arrested on Thursday and charged with plotting to blow up an Amazon data center in Virginia, prosecutors said.`\
+https://nytimes.com/2021/04/10/us/amazon-data-center-bomb-threat.html?searchResultPosition=1
+
+**Quake Strikes Java in Indonesia, Killing at Least 6 People**\
+`Television reports showed people running in panic from malls and buildings in several cities in East Java Province. The earthquake shook the tourist hot spot of Bali.`\
+https://nytimes.com/2021/04/10/world/asia/indonesia-earthquake.html?searchResultPosition=2
+
 **Afghan President in ‘Desperate Situation’ as His Power Is Undermined**\
 `Ashraf Ghani has few remaining allies, the Taliban are gaining militarily, and his international supporters are impatient with him and the stumbling peace process.`\
-https://nytimes.com/2021/04/10/world/asia/afghanistan-ashraf-ghani.html?searchResultPosition=1
+https://nytimes.com/2021/04/10/world/asia/afghanistan-ashraf-ghani.html?searchResultPosition=3
 
 **5 Takeaways From the Second Week of the Derek Chauvin Trial**\
 `Witnesses addressed two key issues: What caused George Floyd’s death, and whether Mr. Chauvin violated police policies on the use of force.`\
-https://nytimes.com/2021/04/10/us/derek-chauvin-trial-takeaways.html?searchResultPosition=2
+https://nytimes.com/2021/04/10/us/derek-chauvin-trial-takeaways.html?searchResultPosition=4
 
 **A Love Letter to Black Women**\
 `A first solo exhibition by the Bahamian artist Gio Swaby aims to redefine the often politicized Black body.`\
-https://nytimes.com/2021/04/10/us/a-love-letter-to-black-women.html?searchResultPosition=3
+https://nytimes.com/2021/04/10/us/a-love-letter-to-black-women.html?searchResultPosition=5
 
 **A Soviet ‘Lord of the Rings’ Is Unearthed, Epic in Its Own Way**\
 `Tolkien fans received an unexpected gift with the rediscovery of an all-but-forgotten 1991 production. They were also left with questions, like “why is Gollum wearing a lettuce on his head?”`\
-https://nytimes.com/2021/04/10/world/europe/youtube-fellowship-of-the-ring-russia-5tv.html?searchResultPosition=4
+https://nytimes.com/2021/04/10/world/europe/youtube-fellowship-of-the-ring-russia-5tv.html?searchResultPosition=6
 
 **Turn the Lights Out. Here Come the Birds.**\
 `Buildings, landmarks and monuments are turning off lights to prevent fatal impacts as birds set off on spring migration.`\
-https://nytimes.com/2021/04/10/us/bird-migration-lights-out.html?searchResultPosition=5
+https://nytimes.com/2021/04/10/us/bird-migration-lights-out.html?searchResultPosition=7
 
 **Companies Can’t Stop Overworking**\
 `Excess work isn’t good for anyone, employers included. So why are we still doing it?`\
-https://nytimes.com/2021/04/10/business/dealbook/overwork-health.html?searchResultPosition=6
+https://nytimes.com/2021/04/10/business/dealbook/overwork-health.html?searchResultPosition=8
 
 **Scenes from the First Rounds of the Masters**\
 `Our staff photographer Doug Mills brings us an inside look at Augusta National.`\
-https://nytimes.com/2021/04/10/sports/golf/masters-golf-georgia-photos.html?searchResultPosition=7
+https://nytimes.com/2021/04/10/sports/golf/masters-golf-georgia-photos.html?searchResultPosition=9
 
 **The Oddities That Make the Masters Unique**\
 `The Masters Tournament, played annually at Augusta National Golf Club in Georgia, is one of the South’s grandest spring traditions. It also has its quirks.`\
-https://nytimes.com/interactive/2021/04/10/sports/golf/masters-quirks.html?searchResultPosition=8
-
-**‘You Can’t Trust Anyone’: Russia’s Hidden Covid Toll Is an Open Secret**\
-`The country’s official coronavirus death toll is 102,649. But at least 300,000 more people died last year during the pandemic than were reported in Russia’s most widely cited official statistics.`\
-https://nytimes.com/2021/04/10/world/europe/covid-russia-death.html?searchResultPosition=9
-
-**Staying Afloat as Interest Rates Rise**\
-`The low rates that propelled the stock market’s boom are starting to rise, putting investors in a precarious position.`\
-https://nytimes.com/2021/04/10/business/interest-rates-stocks.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/04/10/sports/golf/masters-quirks.html?searchResultPosition=10
 
