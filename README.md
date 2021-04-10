@@ -11,7 +11,7 @@ https://nytimes.com/2021/04/10/climate/john-topping-dead.html?searchResultPositi
 https://nytimes.com/video/us/100000007702868/army-lietenant-police-assault-traffic-stop.html?searchResultPosition=3
 
 **2 Salt Lake County Deputies Shot Outside Sheriff’s Office, Officials Say**\
-`The gunman was dead, said Rosie Rivera, the county sheriff. The shooting happened after “some type of altercation,” she said.`\
+`The gunman was dead, Sheriff Rosie Rivera said, adding that the shooting happened after “some type of altercation.”`\
 https://nytimes.com/2021/04/10/us/salt-lake-city-shooting.html?searchResultPosition=4
 
 **‘My Dear Papa Was a Very Special Person,’ Prince Charles Says**\
