@@ -6,8 +6,8 @@ https://nytimes.com/2021/04/10/us/supreme-court-coronavirus-prayer-meetings.html
 `Since March 2020, New York Times reporters have tracked every known coronavirus case in every correctional setting in the nation. More than 2,700 inmates have died.`\
 https://nytimes.com/interactive/2021/04/10/us/covid-prison-outbreak.html?searchResultPosition=2
 
-**Joe Musgrove Throws First No-Hitter in Padres History**\
-`The right-hander allowed only one base runner, on a hit-by-pitch. San Diego had been the last team without a no-hitter.`\
+**A ‘San Diego Kid’ Gives the Padres Their First No-Hitter**\
+`Joe Musgrove allowed only one base runner, on a hit-by-pitch. San Diego had been the last team without a no-hitter.`\
 https://nytimes.com/2021/04/09/sports/baseball/joe-musgrove-padres-no-hitter.html?searchResultPosition=3
 
 **Woman Who Coughed on Pier 1 Shopper’s Face Is Sentenced to 30 Days**\
