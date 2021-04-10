@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/09/sports/golf/masters-2021-jordan-spieth.html?searc
 https://nytimes.com/video/us/100000007702452/chauvin-trial-baker-floyd-heart-condition.html?searchResultPosition=4
 
 **Plunging Johnson & Johnson Vaccine Supply Dents State Inoculation Efforts**\
-`With supplies from Johnson & Johnson set to fall 86 percent, a White House official warned that the vaccine would be scarce until a troubled Baltimore plant gains regulatory approval.`\
+`With deliveries from Johnson & Johnson set to fall 86 percent, a White House official warned that the vaccine would be scarce until a troubled Baltimore plant gains regulatory approval.`\
 https://nytimes.com/2021/04/09/us/politics/johnson-johnson-coronavirus-vaccine.html?searchResultPosition=5
 
 **The Anti-Defamation League calls for Tucker Carlson to be fired over ‘replacement theory’ remarks.**\
