@@ -1,5 +1,5 @@
 **Breonna Taylor Show Points Art Museums to a Faster Track**\
-`Assembled in a mere four months,  pivoting off an important event in our national history, and with a clear effort to reach a changing audience, “Promise, Witness, Remembrance” at the Speed Museum offers a new model for aging institutions.`\
+`Assembled in a mere four months,  pivoting off an important national event,  the Speed Museum offers a new, relevant model for aging institutions.`\
 https://nytimes.com/2021/04/11/arts/design/breonna-taylor-review-museum-louisville.html?searchResultPosition=1
 
 **Homes That Sold for Around $440,000**\
