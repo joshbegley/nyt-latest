@@ -30,7 +30,7 @@ https://nytimes.com/2021/04/11/business/dealbook/battery-dispute-electric-vehicl
 `Teenagers and tweens will be fine, experts say — if adults model resilience.`\
 https://nytimes.com/2021/04/11/health/pandemic-middle-school-mental-health.html?searchResultPosition=8
 
-**Secretary of state calls for more thorough investigation of Covid origins in China**\
+**U.S. Secretary of state calls for more thorough investigation of Covid origins in China**\
 `“We need to get to the bottom of this,” Antony J. Blinken said of the origins of Covid-19.`\
 https://nytimes.com/2021/04/11/world/blinken-covid-investigation-china-origins.html?searchResultPosition=9
 
