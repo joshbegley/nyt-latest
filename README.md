@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/11/sports/golf/watch-masters-stream.html?searchResultPosition=1
 
 **2 Korean Battery Makers Settle Dispute That Threatened Biden’s Green Agenda**\
-`The settlement between LG Energy Solutions and SK Innovation ensures that a battery plant in Georgia will go forward without hampering electric vehicle production.`\
+`The settlement between LG Energy Solution and SK Innovation ensures that a battery plant in Georgia will go forward without hampering electric vehicle production.`\
 https://nytimes.com/2021/04/11/business/dealbook/battery-dispute-electric-vehicles.html?searchResultPosition=2
 
 **Parents, Stop Talking About the ‘Lost Year’**\
