@@ -10,8 +10,8 @@ https://nytimes.com/2021/04/11/opinion/letters/abortion-conservatives.html?searc
 `“Mr. Biden, tear down this wall,” one reader writes. Another urges legislation to address immigration issues, as the wall is a “xenophobic symbol.”`\
 https://nytimes.com/2021/04/11/opinion/letters/biden-border-wall.html?searchResultPosition=3
 
-**Blackout Strikes Natanz Nuclear Facility in Iran**\
-`The power outage comes at a delicate time, with talks underway in Vienna to restore the 2015 nuclear deal.`\
+**Blackout Strikes Natanz Nuclear Facility and Iran Calls It Sabotage**\
+`The power failure comes at a delicate time, with talks underway in Vienna to restore the 2015 nuclear deal.`\
 https://nytimes.com/2021/04/11/world/middleeast/iran-nuclear-natanz.html?searchResultPosition=4
 
 **Drained by a Year of Covid, Many Mayors Head for the Exit**\
