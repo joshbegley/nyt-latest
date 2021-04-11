@@ -2,7 +2,7 @@
 `With the primary weeks away, candidates are sharpening their attacks, ramping up in-person events and preparing to spend the millions of dollars that they have stockpiled.`\
 https://nytimes.com/2021/04/11/nyregion/mayor-race-nyc.html?searchResultPosition=1
 
-**Yankees Finally Get Past Rays With Four-Run Tenth**\
+**Yankees Finally Get Past Rays With Four-Run 10th**\
 `A rough series against a division rival ended with a win in extra innings. The Mets’ game against the Marlins was suspended.`\
 https://nytimes.com/2021/04/11/sports/baseball/yankees-mets.html?searchResultPosition=2
 
