@@ -1,5 +1,5 @@
 **Del Posto, the Lauded Italian Restaurant, Will Permanently Close**\
-`The New York restaurant’s executive chef, Melissa J. Rodriguez, has purchased the space with a group of investors, with plans to open a similarly ambitious Italian restaurant.`\
+`Its executive chef, Melissa J. Rodriguez, has purchased the restaurant with a group of investors, with plans to open a similarly ambitious Italian restaurant.`\
 https://nytimes.com/2021/04/11/dining/del-posto-closed.html?searchResultPosition=1
 
 **Howard Weitzman, Defense Lawyer for the Famous, Dies at 81**\
