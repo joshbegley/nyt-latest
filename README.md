@@ -10,7 +10,7 @@ https://nytimes.com/2021/04/11/podcasts/the-daily/philip-roth-biography-blake-ba
 `The show’s final season was delayed by the pandemic and shot on the streets of a still-recovering New York, but its enchanting vision of the city remains intact.`\
 https://nytimes.com/2021/04/11/arts/television/younger-final-season.html?searchResultPosition=3
 
-**In Peru’s Presidential Election, The Most Popular Choice Is No One**\
+**In Peru’s Presidential Election, the Most Popular Choice Is No One**\
 `Peruvians head to the polls at a moment that many are calling one of the lowest points in the country’s young democracy, and many plan to cast empty ballots.`\
 https://nytimes.com/2021/04/11/world/americas/peru-election.html?searchResultPosition=4
 
