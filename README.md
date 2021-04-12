@@ -30,7 +30,7 @@ https://nytimes.com/2021/04/12/dining/drinks/cherry-blossom-cocktails.html?searc
 `Nancy Silverton helped design the new French bakeware line from Made In.`\
 https://nytimes.com/2021/04/12/dining/french-porcelain-bakeware.html?searchResultPosition=8
 
-**Albany’s Toxic Culture for Women: From ‘Bond Girl’ Talk to Groping**\
+**‘Bond Girl’ Talk and Groping: Albany’s Toxic Culture for Women**\
 `As allegations against Gov. Andrew Cuomo put a new spotlight on sexual misconduct in New York’s capital, numerous women there described an enduring predatory and misogynistic environment.`\
 https://nytimes.com/2021/04/12/us/politics/cuomo-sexual-harassment-culture-albany.html?searchResultPosition=9
 
