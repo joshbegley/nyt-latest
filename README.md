@@ -7,7 +7,7 @@ https://nytimes.com/video/us/politics/100000007705788/blinken-diversity-gina-abe
 https://nytimes.com/2021/04/12/us/politics/chris-inglis-cyber-director.html?searchResultPosition=2
 
 **Former Pentagon official chosen to run the National Counterterrorism Center.**\
-`Biden’s pick, Christine S. Abizaid, was a deputy assistant secretary of defense during the Obama administration.`\
+`President Biden’s pick, Christine S. Abizaid, was a deputy assistant secretary of defense during the Obama administration.`\
 https://nytimes.com/2021/04/12/us/politics/christine-abizaid-national-counterterrorism-center.html?searchResultPosition=3
 
 **‘We Have to Step Up Our Game,’ Biden Says on Chip Shortage**\
