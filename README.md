@@ -30,7 +30,7 @@ https://nytimes.com/2021/04/12/sports/golf/japan-hideki-matsuyama-masters.html?s
 `The manager Scooter Braun’s clients battled for the Billboard 200’s top spot, while Rod Wave slipped to third place.`\
 https://nytimes.com/2021/04/12/arts/music/justin-bieber-demi-lovato-billboard-chart.html?searchResultPosition=9
 
-**Major, one of Biden’s German shepherds, will be sent away for training after biting incidents.**\
-`The younger of the Bidens’ two dogs will undergo “a few weeks” of training at a facility in the Washington area after biting at least two people at the White House.`\
-https://nytimes.com/2021/04/12/us/politics/major-bidens-dog.html?searchResultPosition=10
+**In their own words, ‘George Floyd did not die from a primary cardiac event and he did not die from a drug overdose.’**\
+`Jonathan Rich, a cardiologist for the state, testifies that George Floyd had an ‘exceptionally strong heart.’`\
+https://nytimes.com/2021/04/12/us/george-floyd-heart-cardiologist.html?searchResultPosition=10
 
