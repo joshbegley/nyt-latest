@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/11/arts/television/shameless-series-finale.html?searchResultPosition=1
 
 **Officer Near Minneapolis Kills Motorist, and a Crowd Confronts the Police**\
-`A young man pulled over for a traffic violation was shot in Brooklyn Center, near where an officer is on trial in the death of George Floyd.`\
+`A young man pulled over for a traffic violation was shot in Brooklyn Center, near where Derek Chauvin is on trial in the death of George Floyd.`\
 https://nytimes.com/2021/04/11/us/brooklyn-center-minnesota-police-shooting.html?searchResultPosition=2
 
 **Alibaba Will Lower Merchant Fees After Antitrust Fine**\
