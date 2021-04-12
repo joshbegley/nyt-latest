@@ -22,7 +22,7 @@ https://nytimes.com/2021/04/12/briefing/iran-minneapolis-officer-the-masters.htm
 `The European Union’s coronavirus inoculation campaign started slowly, and the picture is worsening still.`\
 https://nytimes.com/2021/04/12/podcasts/the-daily/covid-vaccines-europe.html?searchResultPosition=7
 
-**When Anti-Asian Jokes Targeted BTS, the Boy Band’s Fan Army Mobilized**\
+**When Anti-Asian Parody Targeted BTS, the Boy Band’s Fan Army Mobilized**\
 `A global outcry fueled by a sketch on a Chilean comedy show reflected a growing sensitivity to racist, particularly anti-Asian, speech.`\
 https://nytimes.com/2021/04/12/world/asia/chile-bts-racism-comedy.html?searchResultPosition=8
 
