@@ -23,7 +23,7 @@ https://nytimes.com/2021/04/12/fashion/watches-swiss-fairs-collections.html?sear
 https://nytimes.com/2021/04/12/fashion/watches-online-exhibition-the-hour-glass-singapore.html?searchResultPosition=6
 
 **Old Friends**\
-`By Michael Snyder`\
+`The celebrated filmmaker Pedro Almodóvar has relied on a stable of loyal collaborators for the past three decades. Along the way, their relationships have only deepened.`\
 https://nytimes.com/2021/04/12/t-magazine/pedro-almodovar-penelope-cruz.html?searchResultPosition=7
 
 **How Friendship Helps Us Transcend Ourselves**\
