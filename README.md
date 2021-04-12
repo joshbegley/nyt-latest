@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/12/books/how-do-you-rebound-from-tragedy-begin-by-we
 https://nytimes.com/2021/04/12/us/derek-chauvin-trial-takeaways.html?searchResultPosition=2
 
 **Watch Live: Day 11 of the Derek Chauvin Trial**\
-`Watch live video of the trial of Derek Chauvin, the former police officer charged in the death of George Floyd. Warning: The video may include graphic images.`\
+`London re-opened Monday after months of lockdown due to coronavirus. Lockdown came after a particularly contagious strain of coronavirus spread through the region.`\
 https://nytimes.com/video/us/100000007704426/chauvin-trial-live.html?searchResultPosition=3
 
 **Microsoft will buy Nuance, an A.I. company, for $16 billion to focus on health care tech.**\
