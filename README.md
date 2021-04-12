@@ -6,13 +6,13 @@ https://nytimes.com/2021/04/12/opinion/biden-climate-plan.html?searchResultPosit
 `Unions aren’t obsolete, and we need to get them back.`\
 https://nytimes.com/2021/04/12/opinion/us-unions-amazon.html?searchResultPosition=2
 
-**Why the G.O.P. Can’t Quit Trump**\
-`The former president is antagonizing Republican leaders, but he’s still the party’s most popular figure.`\
-https://nytimes.com/2021/04/12/us/politics/trump-republican-donors.html?searchResultPosition=3
-
 **Liberals for Ron DeSantis***\
 `*Unwittingly, as usual.`\
-https://nytimes.com/2021/04/12/opinion/desantis-pandemic-political-future.html?searchResultPosition=4
+https://nytimes.com/2021/04/12/opinion/ron-desantis-2024.html?searchResultPosition=3
+
+**Why the G.O.P. Can’t Quit Trump**\
+`The former president is antagonizing Republican leaders, but he’s still the party’s most popular figure.`\
+https://nytimes.com/2021/04/12/us/politics/trump-republican-donors.html?searchResultPosition=4
 
 **State Department Names Chief Diversity Officer**\
 `Gina Abercrombie-Winstanley was named the State Department’s first chief diversity officer on Monday, a role that Secretary of State Antony J. Blinken hopes will address discrimination in the workforce.`\
