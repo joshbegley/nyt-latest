@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/12/science/fairy-circles-australia.html?searchResult
 https://nytimes.com/2021/04/12/style/trivia-coronavirus.html?searchResultPosition=2
 
 **Over 50,000 N.Y.C. public school students will return to classrooms, including in middle and high school.**\
-`The change follows recent federal guidance that schools could reduce social distancing between students in classrooms to three feet from six.`\
+`The change follows recent federal guidance that schools could reduce social distancing between students in some classrooms to three feet from six.`\
 https://nytimes.com/2021/04/12/nyregion/nyc-public-schools-students.html?searchResultPosition=3
 
 **Asparagus Season!**\
