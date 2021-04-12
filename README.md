@@ -2,7 +2,7 @@
 `Officials from Brooklyn Center, Minn., a suburb outside of Minneapolis, held a news conference after an officer fired her gun on Sunday during a traffic stop, killing a Black man. Brooklyn Center is less than 10 miles away from the trial of Derek Chauvin.`\
 https://nytimes.com/video/us/100000007705408/officer-accidentally-fired-gun-traffic-stop-brooklyn-center.html?searchResultPosition=1
 
-**‘He showed us how to treat our mom,’ George Floyd’s brother breaks down during testimony.**\
+**‘He showed us how to treat our mom,’ George Floyd’s brother breaks down during his testimony.**\
 `Philonise Floyd described his oldest brother as a “leader in the household” who had a close relationship with their mother.`\
 https://nytimes.com/2021/04/12/us/george-floyd-brother.html?searchResultPosition=3
 
