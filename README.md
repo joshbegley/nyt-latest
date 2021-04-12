@@ -1,4 +1,4 @@
-**Top Spots at the Masters Becoming Familiar to First-Year Players**\
+**High Finishes at the Masters Are Becoming Familiar to First-Year Players**\
 `Will Zalatoris, who finished second at the Masters, one stroke behind the winner, is only the latest first-year player to contend for a green jacket.`\
 https://nytimes.com/2021/04/11/sports/golf/masters-2021-zalatoris.html?searchResultPosition=1
 
