@@ -30,7 +30,7 @@ https://nytimes.com/2021/04/12/realestate/600000-homes-in-california.html?search
 `A one-bedroom condominium in the Village Green complex in Los Angeles, a 1944 bungalow in Richmond and a 1965 ranch house in Santa Rosa.`\
 https://nytimes.com/slideshow/2021/04/12/realestate/what-you-get-for-600000-in-california.html?searchResultPosition=8
 
-**Biden nominates a police chief who criticized Trump as head of Customs and Border Protection.**\
+**Biden will nominate a police chief who criticized Trump as head of Customs and Border Protection.**\
 `If confirmed, Chris Magnus would step into a major challenge facing the Biden administration: how to handle a record number of border crossings that are projected to increase in the coming months.`\
 https://nytimes.com/2021/04/12/us/politics/biden-border-magnus.html?searchResultPosition=9
 
