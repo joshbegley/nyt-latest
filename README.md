@@ -35,6 +35,6 @@ https://nytimes.com/2021/04/12/us/politics/biden-border-magnus.html?searchResult
 https://nytimes.com/2021/04/12/us/ca-wildfire-smoke.html?searchResultPosition=9
 
 **Corporate leaders discuss their next move in the debate over restrictive voting laws.**\
-`By Lauren Hirsch`\
-https://nytimes.com/2021/04/12/business/corporate-leaders-discuss-their-next-move-in-the-debate-over-restrictive-voting-laws.html?searchResultPosition=10
+`Senior business leaders spoke over the weekend about the need for companies to use their clout to oppose state legislation that would make it harder to vote.`\
+https://nytimes.com/2021/04/12/business/corporate-leaders-voting-laws.html?searchResultPosition=10
 
