@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/12/us/coronavirus-today-vaccines.html?searchResultPo
 `After a divorce in her early 20s, Ms. Coburn raised her son and launched herself on a succession of careers. She died of Covid-19.`\
 https://nytimes.com/2021/04/12/obituaries/gail-coburn-dead-coronavirus.html?searchResultPosition=4
 
-**Takeaways from Day 11 of the Derek Chauvin trial.**\
+**Here are the takeaways from Day 11 of the Derek Chauvin trial.**\
 `George Floyd’s brother testified tearfully about their childhood. The trial continued with the backdrop of a fatal police shooting that kicked off protests in a Minneapolis suburb on Sunday.`\
 https://nytimes.com/2021/04/12/us/takeaways-day-11-derek-chauvin-trial.html?searchResultPosition=5
 
