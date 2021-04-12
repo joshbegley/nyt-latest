@@ -30,7 +30,7 @@ https://nytimes.com/2021/04/11/learning/word-of-the-day-quandary.html?searchResu
 `John Wells discussed the impact of the pandemic and police protests on Sunday’s series finale.`\
 https://nytimes.com/2021/04/11/arts/television/shameless-series-finale.html?searchResultPosition=8
 
-**Officer Near Minneapolis Kills Motorist, and a Crowd Confronts the Police**\
+**Officer Near Minneapolis Shoots Motorist, Who Dies, and a Crowd Confronts the Police**\
 `A young man pulled over for a traffic violation was shot in Brooklyn Center, near where Derek Chauvin is on trial in the death of George Floyd.`\
 https://nytimes.com/2021/04/11/us/brooklyn-center-minnesota-police-shooting.html?searchResultPosition=9
 
