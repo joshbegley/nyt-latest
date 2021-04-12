@@ -1,4 +1,4 @@
-**When Anti-Asian Jokes Targeted BTS, the Boy Band’s Fan Army Mobilized**\
+**When Anti-Asian Jokes Targeted the Boy Band BTS, Its Fan Army Mobilized**\
 `A global outcry fueled by a sketch on a Chilean comedy show reflected a growing sensitivity to racist, particularly anti-Asian, speech.`\
 https://nytimes.com/2021/04/12/world/asia/chile-bts-racism-comedy.html?searchResultPosition=1
 
