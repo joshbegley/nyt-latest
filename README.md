@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/12/obituaries/gail-coburn-dead-coronavirus.html?searchResultPosition=1
 
 **Takeaways from Day 11 of the Derek Chauvin trial.**\
-`The trial continued with the backdrop of a fatal police shooting that kicked off protests in a Minneapolis suburb on Sunday.`\
+`George Floyd’s brother testified tearfully about their childhood. The trial continued with the backdrop of a fatal police shooting that kicked off protests in a Minneapolis suburb on Sunday.`\
 https://nytimes.com/2021/04/12/us/takeaways-day-11-derek-chauvin-trial.html?searchResultPosition=2
 
 **‘I’m Prepared to Negotiate,’ Biden Says on Infrastructure Plan**\
