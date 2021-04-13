@@ -1,40 +1,40 @@
+**Defense Calls Retired Paramedic to the Stand in the Derek Chauvin Trial**\
+`Michelle Moseng, a retired paramedic, testified about George Floyd’s condition after a prior arrest in 2019, saying Mr. Floyd told her he had been taking some form of opioid. Her testimony was limited to the physical effects of opioids on Mr. Floyd.`\
+https://nytimes.com/video/us/100000007707289/george-floyd-paramedic-michelle-moseng-derek-chauvin-trial.html?searchResultPosition=1
+
+**Counseling Is Not Only for Couples in Crisis**\
+`Therapy doesn’t always mean a relationship is at its breaking point. Many couples are seeking to address difficult issues before conflict arises.`\
+https://nytimes.com/2021/04/13/style/couples-therapy-not-always-a-breaking-point.html?searchResultPosition=2
+
+**A Softball Pitcher Struck Out Every Batter? She Hadn’t Noticed.**\
+`Hope Trautwein of North Texas threw a perfect game that outdid all the others, striking out 21 in seven flawless innings.`\
+https://nytimes.com/2021/04/13/sports/hope-trautwein-21-strikeout-perfect-game.html?searchResultPosition=3
+
+**The White House issues its first-ever proclamation on Black maternal health.**\
+`The proclamation is part of a broader effort to address the vast racial disparities in pregnancy and childbirth-related deaths and complications in the United States.`\
+https://nytimes.com/2021/04/13/us/politics/black-maternal-health-kamala-harris.html?searchResultPosition=4
+
+**Shawanda Hill, George Floyd’s Associate, Testifies in Derek Chauvin Trial**\
+`Shawanda Hill, an associate of George Floyd’s who was sitting in the back seat of the car when Mr. Folyd was arrested, testified on his demeanor before the arrest.`\
+https://nytimes.com/video/us/politics/100000007707381/george-floyd-shawanda-hill-testimony-derek-chauvin-trial.html?searchResultPosition=5
+
 **Tax cheats cost the U.S. $1 trillion per year, I.R.S chief says.**\
 `Charles Rettig, the I.R.S. commissioner, attributed the growing tax gap to the rise of the cryptocurrency and the abuse of pass-through provisions in the tax code by companies.`\
-https://nytimes.com/2021/04/13/business/irs-tax-gap.html?searchResultPosition=1
+https://nytimes.com/2021/04/13/business/irs-tax-gap.html?searchResultPosition=6
 
 **Iran Vows to Increase Uranium Enrichment After Attack on Nuclear Site**\
 `Iran also attacked an Israeli cargo ship at sea, raising tensions but causing little or no damage.`\
-https://nytimes.com/2021/04/13/world/middleeast/iran-nuclear-natanz.html?searchResultPosition=2
+https://nytimes.com/2021/04/13/world/middleeast/iran-nuclear-natanz.html?searchResultPosition=7
 
 **How the Coronavirus Variants Are Spreading in New York City**\
 `New, searchable ZIP code-level data provides a close look at how contagious variants have kept New York’s case levels alarmingly high.`\
-https://nytimes.com/2021/04/13/nyregion/coronavirus-variants.html?searchResultPosition=3
+https://nytimes.com/2021/04/13/nyregion/coronavirus-variants.html?searchResultPosition=8
 
 **Built for Change**\
 `Subscribe to Built for Change, a new podcast by Accenture. `\
-https://nytimes.com/paidpost/accenture/built-for-change.html?searchResultPosition=4
+https://nytimes.com/paidpost/accenture/built-for-change.html?searchResultPosition=9
 
 **The officer who fatally shot Daunte Wright just resigned, as did the chief of police.**\
 `In a letter sent to city officials on Tuesday, Officer Kim Potter said she was resigning immediately, her union said.`\
-https://nytimes.com/2021/04/13/us/kim-potter-daunte-wright-resigns.html?searchResultPosition=5
-
-**What to Do About Killings by the Police**\
-`After the death of a second Black man, readers call for federal action and suggest ending most traffic stops.`\
-https://nytimes.com/2021/04/13/opinion/letters/minnesota-police-killing.html?searchResultPosition=6
-
-**Art Institute of Chicago Names Its Next Board Chief**\
-`Denise Gardner, who will start in the post in November, is believed to be the country’s first Black woman to lead a major museum board.`\
-https://nytimes.com/2021/04/13/arts/design/denise-gardner-board-leader-art-institute-of-chicago.html?searchResultPosition=7
-
-**Anti-Gay Bias Hindered Toronto Police as Serial Killer Roamed**\
-`An inquiry found that systemic discrimination within the Toronto police interfered with efforts to catch a serial killer who targeted gay men, mostly of Middle Eastern or South Asian descent.`\
-https://nytimes.com/2021/04/13/world/canada/toronto-serial-killer-bruce-mcarthur.html?searchResultPosition=8
-
-**Evolving the Customer Experience**\
-`Meet the C.E.O.s who are transforming customer experience. A forward-thinking conversation about the ways legacy customer service models no longer deliver what customers want in a post-pandemic world — and how businesses can evolve their strategies and succeed.`\
-https://nytimes.com/paidpost/accenture/built-for-change/evolving-the-customer-experience.html?searchResultPosition=9
-
-**A Ramadan Closer to Normal for 2021**\
-`Compared with last year, when mosques around the world were closed because of the coronavirus, this Holy Month has limits, but friends and family, too.`\
-https://nytimes.com/2021/04/13/world/middleeast/ramadan-coronavirus-2021.html?searchResultPosition=10
+https://nytimes.com/2021/04/13/us/kim-potter-daunte-wright-resigns.html?searchResultPosition=10
 
