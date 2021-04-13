@@ -10,7 +10,7 @@ https://nytimes.com/2021/04/12/business/media/smartmatic-fox-news-lawsuit.html?s
 `The unusual review of the conclusions of the initial inquiry comes more than a year after the attack by the Shabab revealed security lapses at the base.`\
 https://nytimes.com/2021/04/12/us/politics/kenya-attack-pentagon.html?searchResultPosition=3
 
-**Biden nominates former New Jersey attorney general to head D.E.A.**\
+**Biden nominates former New Jersey attorney general to lead D.E.A.**\
 `Anne Milgram built her reputation fighting crime in the city of Camden.`\
 https://nytimes.com/2021/04/12/us/politics/anne-milgram-dea.html?searchResultPosition=4
 
