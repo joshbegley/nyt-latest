@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/13/us/politics/biden-census-robert-santos.html?searc
 https://nytimes.com/2021/04/13/us/politics/capitol-police-william-evans.html?searchResultPosition=4
 
 **Ray Lambert, an American Hero on D-Day, Dies at 100**\
-`A medic, he pulled wounded comrades out of the water one after another while suffering grievous wounds. President Trump honored him in a ceremony at Normandy.`\
+`A medic, he pulled wounded comrades out of the water one after another while suffering grievous wounds. President Trump honored him in a ceremony.`\
 https://nytimes.com/2021/04/13/us/ray-lambert-dead.html?searchResultPosition=5
 
 **Johnson & Johnson, Minnesota, Big Ben: Your Tuesday Evening Briefing**\
