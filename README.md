@@ -2,8 +2,8 @@
 `A Dutch artist worked with former plantation employees to create a “white cube” that they hope will one day display works returned from European museums.`\
 https://nytimes.com/2021/04/13/arts/design/white-cube-renzo-martens.html?searchResultPosition=1
 
-**Several states swiftly pause use of Johnson & Johnson’s vaccine after a federal advisory.**\
-`The authorities in four states said on Tuesday that they would follow the call from federal health agencies to pause use of Johnson & Johnson’s vaccine.`\
+**Several states swiftly pause the use of Johnson & Johnson’s vaccine after a federal advisory.**\
+`The authorities in multiple states said on Tuesday that they would follow the call from federal health agencies to pause the administration of Johnson & Johnson’s vaccine.`\
 https://nytimes.com/2021/04/13/us/state-reaction-johnson-covid-vaccine.html?searchResultPosition=2
 
 **Watch Live: Day 12 of the Derek Chauvin Trial**\
