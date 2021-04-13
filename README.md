@@ -4,7 +4,7 @@ https://nytimes.com/2021/04/13/business/tesla-gigafactory-wild-horses.html?searc
 
 **Hungry for Investors, Some Companies Woo the Little Guy**\
 `Small investors are becoming a force in the stock market, and company executives are beginning to take notice.`\
-https://nytimes.com/2021/04/13/business/small-investors-influence.html?searchResultPosition=2
+https://nytimes.com/2021/04/13/business/stock-market-investors.html?searchResultPosition=2
 
 **What Kristine Hostetter’s Story Says About Orange County**\
 `Tuesday: When a teacher marched to the Capitol, it started a story that tells us a lot about the shifting political dynamics of Orange County.`\
