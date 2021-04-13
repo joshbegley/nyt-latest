@@ -35,6 +35,6 @@ https://nytimes.com/2021/04/13/business/media/susan-zirinsky-cbs-president.html?
 https://nytimes.com/2021/04/13/business/economy/biden-inflation-stimulus.html?searchResultPosition=9
 
 **Moderna reports its vaccine remains more than 90 percent effective after six months.**\
-`The vaccine, after both doses are given, has been more than 90 percent effective at protecting against Covid-19 and 95 percent effective at protecting against severe disease.`\
+`By Emily Anthes`\
 https://nytimes.com/2021/04/13/world/covid-vaccine-moderan-variants.html?searchResultPosition=10
 
