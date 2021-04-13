@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/13/business/irs-tax-gap.html?searchResultPosition=1
 https://nytimes.com/2021/04/13/world/middleeast/iran-nuclear-natanz.html?searchResultPosition=2
 
 **How the Coronavirus Variants Are Spreading in New York City**\
-`New ZIP code data provides a close look at how contagious and deadly variants have kept New York’s case levels alarmingly high.`\
+`New, searchable ZIP code-level data provides a close look at how contagious variants have kept New York’s case levels alarmingly high.`\
 https://nytimes.com/2021/04/13/nyregion/new-york-city-coronavirus-variants.html?searchResultPosition=3
 
 **Built for Change**\
