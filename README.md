@@ -28,7 +28,7 @@ https://nytimes.com/2021/04/13/technology/health-care-voice-recognition.html?sea
 
 **F.D.A. Will Allow Abortion Pills By Mail During the Pandemic**\
 `The agency said it would stop enforcing a rule requiring women to get the first of two pills in person at a medical clinic or hospital.`\
-https://nytimes.com/2021/04/13/health/fda-allows-abortion-pills-mail.html?searchResultPosition=8
+https://nytimes.com/2021/04/13/health/abortion-pills-mailed.html?searchResultPosition=8
 
 **Cleveland’s Yu Chang Receives Racist Messages After Costly Error**\
 `The 25-year-old infielder tweeted about messages he received after a throwing mistake that handed Chicago a win.`\
