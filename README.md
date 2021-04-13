@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/13/arts/design/frank-gehry.html?searchResultPosition
 https://nytimes.com/2021/04/13/business/economy/consumer-price-index.html?searchResultPosition=3
 
 **U.S. Calls for Pause on Johnson & Johnson Vaccine After Clotting Cases**\
-`The Food and Drug Administration and the Centers for Disease Control will stop using the vaccine at federal sites and urge states to do so as well while they investigate the safety issues.`\
+`The Food and Drug Administration and the Centers for Disease Control will stop using the vaccine at federal sites and urge states to do so as well while they examine the safety issues.`\
 https://nytimes.com/2021/04/13/us/politics/johnson-johnson-vaccine-blood-clots-fda-cdc.html?searchResultPosition=5
 
 **How to Double the Vaccination Pace**\
