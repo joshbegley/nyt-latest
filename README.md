@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/13/us/politics/johnson-vaccine-risk.html?searchResul
 `After years of arguing against an extended military presence in Afghanistan, President Biden is doing things his way, with the deadline for withdrawal set for the 20th anniversary of the terrorist attacks.`\
 https://nytimes.com/2021/04/13/us/politics/biden-afghanistan-withdraw.html?searchResultPosition=5
 
-**Amazon Does Not Care About the Little Guy**\
+**Amazon’s Big Win Over the Little Guy**\
 `Corporate America keeps squeezing the humanity out of the workplace.`\
 https://nytimes.com/2021/04/13/opinion/amazon-alabama-union.html?searchResultPosition=6
 
