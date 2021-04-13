@@ -32,5 +32,5 @@ https://nytimes.com/2021/04/13/health/covid-children-inflammatory-syndrome.html?
 
 **After Another Police Shooting, Biden Urges Calm. Activists Want Answers.**\
 `The police shooting of Daunte Wright in Minnesota has renewed questions about what the administration will be able to accomplish on policing.`\
-https://nytimes.com/2021/04/13/us/politics/biden-police-shooting.html?searchResultPosition=10
+https://nytimes.com/2021/04/13/us/politics/biden-daunte-wright-police-shooting.html?searchResultPosition=10
 
