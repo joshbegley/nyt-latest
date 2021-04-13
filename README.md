@@ -1,5 +1,5 @@
-**How Could Police Have Mistaken a Gun for a Taser?**\
-`The police say the officer who fatally shot Daunte Wright intended to fire a Taser. But the weapons look and feel different, and most forces have standard precautions and protocols to prevent the sort of mix-up that can be deadly.`\
+**How Could the Police Have Mistaken a Gun for a Taser?**\
+`The police say the officer who fatally shot Daunte Wright intended to fire a Taser. The weapon looks different from a gun, and officers are trained not to confuse the two. But tragic errors occur anyway.`\
 https://nytimes.com/interactive/2021/04/13/us/daunte-wright-taser-gun.html?searchResultPosition=1
 
 **Her Killer Sidestep Is Clearing a Path to the W.N.B.A.**\
