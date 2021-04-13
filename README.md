@@ -8,7 +8,7 @@ https://nytimes.com/video/us/100000007707289/george-floyd-paramedic-michelle-mos
 
 **Counseling Is Not Only for Couples in Crisis**\
 `Therapy doesn’t always mean a relationship is at its breaking point. Many couples are seeking to address difficult issues before conflict arises.`\
-https://nytimes.com/2021/04/13/style/couples-therapy-not-always-a-breaking-point.html?searchResultPosition=3
+https://nytimes.com/2021/04/13/style/couples-therapy.html?searchResultPosition=3
 
 **A Softball Pitcher Struck Out Every Batter? She Hadn’t Noticed.**\
 `Hope Trautwein of North Texas threw a perfect game that outdid all the others, striking out 21 in seven flawless innings.`\
