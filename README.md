@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/13/nyregion/new-york-city-coronavirus-variants.html?
 `Subscribe to Built for Change, a new podcast by Accenture. `\
 https://nytimes.com/paidpost/accenture/built-for-change.html?searchResultPosition=4
 
-**The officer who fatally shot Daunte Wright and the chief of police both resign.**\
+**The officer who fatally shot Daunte Wright just resigned, as did the chief of police.**\
 `In a letter sent to city officials on Tuesday, Officer Kim Potter said she was resigning immediately, her union said.`\
 https://nytimes.com/2021/04/13/us/kim-potter-daunte-wright-resigns.html?searchResultPosition=5
 
