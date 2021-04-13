@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/13/health/women-stem-pandemic.html?searchResultPosit
 `This word has appeared in 76 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2021/04/13/learning/word-of-the-day-zeitgeist.html?searchResultPosition=2
 
-**How Could the Police Have Mistaken a Gun for a Taser?**\
+**How Could an Officer Mistake a Gun for a Taser?**\
 `The police say the officer who fatally shot Daunte Wright intended to fire a Taser. The weapon looks different from a gun, and officers are trained not to confuse the two. But tragic errors occur anyway.`\
 https://nytimes.com/interactive/2021/04/13/us/daunte-wright-taser-gun.html?searchResultPosition=3
 
