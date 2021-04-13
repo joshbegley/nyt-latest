@@ -1,6 +1,6 @@
 **Fukushima Wastewater Will Be Released Into the Ocean, Japan Says**\
 `The government says the plan is the best way to dispose of water used to prevent the ruined nuclear plant’s damaged reactor cores from melting.`\
-https://nytimes.com/2021/04/12/world/asia/japan-fukushima-wastewater-ocean.html?searchResultPosition=2
+https://nytimes.com/2021/04/13/world/asia/japan-fukushima-wastewater-ocean.html?searchResultPosition=2
 
 **The Biden Boom Is Already Wild**\
 `When lots of money is sloshing around, culture changes.`\
