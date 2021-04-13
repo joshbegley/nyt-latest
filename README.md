@@ -18,7 +18,7 @@ https://nytimes.com/2021/04/13/us/kristine-hostetter-capitol-orange-county.html?
 `The April 13 episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2021/04/13/podcasts/ezra-klein-podcast-tressie-mcmillan-cottom-transcript.html?searchResultPosition=5
 
-**Darius, ‘World’s Longest Rabbit,’ Goes Missing**\
+**Darius, ‘World’s Longest Rabbit,’ Is Missing**\
 `Measuring more than four feet, the furry giant should be easy to spot. But he vanished from an English garden last weekend, and the police are treating his disappearance as an abduction.`\
 https://nytimes.com/2021/04/13/world/europe/darius-worlds-longest-rabbit-stolen.html?searchResultPosition=6
 
