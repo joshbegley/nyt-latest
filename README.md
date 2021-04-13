@@ -16,7 +16,7 @@ https://nytimes.com/video/us/100000007705910/george-floyd-chauvin-trial-stoughto
 
 **Not Your Usual Police Chief: Biden Picks Trump Critic to Run Border Agency**\
 `Chris Magnus, the Tucson police chief who carried a Black Lives Matter sign at a protest, was chosen to lead Customs and Border Protection.`\
-https://nytimes.com/2021/04/12/us/politics/trump-border-biden.html?searchResultPosition=5
+https://nytimes.com/2021/04/12/us/politics/chris-magnus.html?searchResultPosition=5
 
 **Corrections: April 13, 2021**\
 `Corrections that appeared in print on Tuesday, April 13, 2021.`\
