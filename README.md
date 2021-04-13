@@ -36,5 +36,5 @@ https://nytimes.com/2021/04/13/sports/baseball/yu-chang-cleveland.html?searchRes
 
 **Biden to announce full withdrawal of U.S. troops in Afghanistan by Sept. 11.**\
 `The decision will keep more than 3,000 American troops in Afghanistan beyond the May 1 deadline that was announced under the Trump administration.`\
-https://nytimes.com/2021/04/13/us/politics/biden-afghanistan-withdrawal.html?searchResultPosition=10
+https://nytimes.com/2021/04/13/us/politics/afghanistan-troops-withdrawal.html?searchResultPosition=10
 
