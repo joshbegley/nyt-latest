@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/13/opinion/amazon-alabama-union.html?searchResultPosition=1
 
 **We Need a High Wall With a Big Gate on the Southern Border**\
-`Without a workable system, we could end up with a Congress that chokes off all immigration, which is the country’s lifeblood.`\
+`Immigration is America’s lifeblood, so we can’t risk losing it.`\
 https://nytimes.com/2021/04/13/opinion/immigration-border-wall.html?searchResultPosition=2
 
 **These Ants Shrink Their Brains for a Chance to Become Queen**\
