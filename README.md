@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Making Music Visible: Singing in Sign’**\
-`In this lesson, students will learn how music is interpreted into American Sign Language and what the greater visibility of signed singing means for the deaf community.`\
-https://nytimes.com/2021/04/13/learning/lesson-of-the-day-making-music-visible-singing-in-sign.html?searchResultPosition=1
+**‘Early Morning Riser,’ by Katherine Heiny: An Excerpt**\
+`An excerpt from “Early Morning Riser,” by Katherine Heiny`\
+https://nytimes.com/2021/04/13/books/review/early-morning-riser-by-katherine-heiny-an-excerpt.html?searchResultPosition=1
 
-**Taiwan Hunters Contend With Taboos, and Trials, to Uphold Tradition**\
-`The island’s Indigenous hunting cultures are circumscribed by ancient rituals and modern legal restrictions. We join a hunt as Taiwan’s constitutional court considers a case on Indigenous rights.`\
-https://nytimes.com/2021/04/13/world/asia/taiwan-Indigenous-hunters.html?searchResultPosition=2
+**‘Under the Wave at Waimea,’ by Paul Theroux: An Excerpt**\
+`An excerpt from “Under the Wave at Waimea,” by Paul Theroux`\
+https://nytimes.com/2021/04/13/books/review/under-the-wave-at-waimea-by-paul-theroux-an-excerpt.html?searchResultPosition=2
 
-**‘Master,’ ‘Slave’ and the Fight Over Offensive Terms in Computing**\
-`Nearly a year after the Internet Engineering Task Force took up a plan to replace words that could be considered racist, the debate is still raging.`\
-https://nytimes.com/2021/04/13/technology/ietf-racist-computer-terms.html?searchResultPosition=3
+**The Times in Which We Live**\
+`With loads of gems or lots of steel, new watch models display brands’ confidence in recovery.`\
+https://nytimes.com/2021/04/13/fashion/watches-and-wonders-switzerland-shanghai.html?searchResultPosition=3
 
-**Summer Vacation?**\
-`Are you and your family planning a trip this summer?`\
-https://nytimes.com/2021/04/13/learning/summer-vacation.html?searchResultPosition=4
+**A ‘Blue Bloods’ Regular on the Importance of ‘Yes’**\
+`For the actor Vanessa Ray, what makes a one-bedroom near Lincoln Center home are a few essentials: Bill Nye, blankets and one three-letter word.`\
+https://nytimes.com/2021/04/13/realestate/vanessa-ray-blue-bloods-lincoln-center-home.html?searchResultPosition=4
 
-**Late Night Gets Serious About Police Brutality**\
-`Trevor Noah and Stephen Colbert criticized officers’ use of force against Black men, citing two cases in which traffic stops turned violent.`\
-https://nytimes.com/2021/04/13/arts/television/trevor-noah-daunte-wright-caron-nazario.html?searchResultPosition=5
+**Vanessa Ray, of ‘Blue Bloods,’ on What Makes a Home**\
+`For the actor Vanessa Ray, what makes a one-bedroom near Lincoln Center feel homey are a few essentials: Bill Nye, blankets and one three-letter word.`\
+https://nytimes.com/slideshow/2021/04/13/realestate/vanessa-ray-of-blue-bloods-on-what-makes-a-home.html?searchResultPosition=5
 
-**Could the Pandemic Prompt an ‘Epidemic of Loss’ of Women in the Sciences?**\
-`Even before the pandemic, many female scientists felt unsupported in their fields. Now, some are hitting a breaking point.`\
-https://nytimes.com/2021/04/13/health/women-stem-pandemic.html?searchResultPosition=6
+**Andrew Cuomo’s White-Knuckle Ride**\
+`Amid scandals, accusations and calls for his resignation, the New York governor seems determined to prove that the instincts that have gotten him into trouble can get him out of it too.`\
+https://nytimes.com/2021/04/13/magazine/andrew-cuomo.html?searchResultPosition=6
 
-**Word of the Day: zeitgeist**\
-`This word has appeared in 76 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/13/learning/word-of-the-day-zeitgeist.html?searchResultPosition=7
+**The Only Ones Arrested After a Child’s Rape: The Women Who Helped Her**\
+`The assault of a 13-year-old girl in Venezuela and the arrest of her mother and a teacher who helped her end the pregnancy have forced a national debate about legalizing abortion.`\
+https://nytimes.com/2021/04/13/world/americas/venezuela-abortion-assault.html?searchResultPosition=7
 
-**How Could an Officer Mistake a Gun for a Taser?**\
-`The police say the officer who fatally shot Daunte Wright intended to fire a Taser. The weapon looks different from a gun, and officers are trained not to confuse the two. But tragic errors occur anyway.`\
-https://nytimes.com/interactive/2021/04/13/us/daunte-wright-taser-gun.html?searchResultPosition=8
+**Midtown Has Been Empty, but Other Retail Zones Have Bounced Back**\
+`Shopping locally has helped foot traffic in some commercial districts across the city return almost to prepandemic levels.`\
+https://nytimes.com/2021/04/13/realestate/new-york-city-retail.html?searchResultPosition=8
 
-**Her Killer Sidestep Is Clearing a Path to the W.N.B.A.**\
-`Arella Guirantes, the star Rutgers guard, hopes to be drafted by her hometown team, the Liberty, this week. But no matter where she ends up, she said she’ll be ready.`\
-https://nytimes.com/2021/04/13/sports/basketball/arella-guirantes-wnba-draft.html?searchResultPosition=9
+**NFTs Are Selling for Millions.Are They Warming the Planet, Too?**\
+`Making the digital artworks requires colossal amounts of computing power, and that means greenhouse gases.`\
+https://nytimes.com/2021/04/13/climate/nft-climate-change.html?searchResultPosition=9
 
-**Your Tuesday Briefing**\
-`England eases out of lockdown.`\
-https://nytimes.com/2021/04/12/briefing/northern-ireland-britain-lockdown-iran.html?searchResultPosition=10
+**A Disastrous Year for Brooklyn’s Chinatown: ‘It’s Just So Hard’**\
+`Signs of life have returned to Sunset Park, but businesses are struggling and racism and hate crimes have made things worse. “The neighborhood hasn’t recovered,” a restaurant manager said.`\
+https://nytimes.com/2021/04/13/nyregion/brooklyn-sunset-park-covid.html?searchResultPosition=10
 
