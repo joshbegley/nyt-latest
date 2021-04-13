@@ -24,7 +24,7 @@ https://nytimes.com/2021/04/13/arts/edinburgh-international-festival-coronavirus
 
 **Cambodians Demand Apology for Khmer Rouge Images with Smiling Faces**\
 `An Irish artist colorized portraits of Cambodian prisoners who were tortured, starved, beaten and killed. In some cases, he doctored the images to put smiles on their faces.`\
-https://nytimes.com/2021/04/13/world/asia/khmer-rouge-portraits-vice.html?searchResultPosition=7
+https://nytimes.com/2021/04/13/world/asia/cambodia-khmer-rouge.html?searchResultPosition=7
 
 **The officer killed when a driver rammed into him at the Capitol will lie in honor in the Rotunda.**\
 `Officer William F. Evans will be the second Capitol Police officer to be so honored after dying in the line of duty this year.`\
