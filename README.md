@@ -24,7 +24,7 @@ https://nytimes.com/2021/04/12/sports/ncaabasketball/ncaa-transgender-athletes.h
 
 **Britain Rejoices and Asks: Are Lockdowns Finally Finished?**\
 `Experience with the pandemic has taught Britons to be wary of setbacks, but as some pubs and stores reopened and the coronavirus abated, it was hard not to hope.`\
-https://nytimes.com/2021/04/12/world/europe/uk-lockdown-lifted-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2021/04/12/world/europe/uk-lockdown.html?searchResultPosition=8
 
 **Surging Virus Has Michigan’s Democratic Governor at Loggerheads With Biden**\
 `As Gov. Gretchen Whitmer pleads for more coronavirus vaccine, the Biden administration on Monday urged her to shut Michigan down, something she wants to avoid.`\
