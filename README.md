@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/13/dining/nyc-restaurant-news.html?searchResultPosit
 `Federal health agencies made the decision to halt the use of the Johnson and Johnson vaccine after six women between the ages of 18 and 48 experienced blood clots within one to three weeks of vaccination.`\
 https://nytimes.com/video/us/100000007707002/covid-vaccine-coronavirus-pause-johnson-johnson-vaccine-rare-blood-clotting.html?searchResultPosition=2
 
-**From Pushing Military Force to Leading Aid Efforts, Biden Nominee Embraces Soft Power**\
+**In Leading Aid Efforts Abroad, Biden Nominee Embraces Soft Power**\
 `If confirmed to oversee the U.S. Agency for International Development, Samantha Power will confront adversaries by bolstering democracy and human rights. China is an early focus.`\
 https://nytimes.com/2021/04/13/us/politics/samantha-power-biden.html?searchResultPosition=3
 
