@@ -8,7 +8,7 @@ https://nytimes.com/2021/04/13/world/middleeast/iran-nuclear-natanz.html?searchR
 
 **How the Coronavirus Variants Are Spreading in New York City**\
 `New, searchable ZIP code-level data provides a close look at how contagious variants have kept New York’s case levels alarmingly high.`\
-https://nytimes.com/2021/04/13/nyregion/new-york-city-coronavirus-variants.html?searchResultPosition=3
+https://nytimes.com/2021/04/13/nyregion/coronavirus-variants.html?searchResultPosition=3
 
 **Built for Change**\
 `Subscribe to Built for Change, a new podcast by Accenture. `\
