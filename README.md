@@ -10,8 +10,8 @@ https://nytimes.com/2021/04/13/crosswords/daily-puzzle-2021-04-14.html?searchRes
 `Protesters gathered for a third day outside the police station in Brooklyn Center, Minn., after a white officer fatally shot Duante Wright, a Black man, during a traffic stop on Sunday.`\
 https://nytimes.com/video/us/100000007708406/duante-wright-brooklyn-center-protest.html?searchResultPosition=3
 
-**Nancy Pelosi invites President Biden to address a joint session of Congress**\
-`The session on April 28 would lay out the president’s plan after his first 100 days in office.`\
+**Pelosi invites Biden to address a joint session of Congress on April 28.**\
+`The session would lay out the president’s plan after his first 100 days in office.`\
 https://nytimes.com/2021/04/13/us/politics/pelosi-biden-joint-session-congress.html?searchResultPosition=4
 
 **Florida Plans to Close Wastewater Reservoir Where Leak Forced Evacuations**\
