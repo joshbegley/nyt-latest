@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/14/world/australia/brian-robson-crate-australia.html
 `Technology has moved beyond staged product events. We should, too.`\
 https://nytimes.com/2021/04/14/technology/apple-tech-event.html?searchResultPosition=3
 
-**The Critical Questions for Afghanistan**\
+**The Crucial Questions for Afghanistan**\
 `What will happen to women and minorities? Can the Afghan president hold on to power? These and other pressing questions face a fearful country as the United States military withdraws.`\
 https://nytimes.com/2021/04/14/world/asia/afghanistan-troop-withdrawal.html?searchResultPosition=4
 
