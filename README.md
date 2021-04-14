@@ -20,7 +20,7 @@ https://nytimes.com/2021/04/14/opinion/opioids-us.html?searchResultPosition=5
 
 **Their London Pub Was Reduced to Rubble. They Fought to Bring It Back.**\
 `Developers knocked down the Carlton Tavern six years ago to make way for luxury apartments. After a legal fight, they were ordered to rebuild it, brick by brick.`\
-https://nytimes.com/2021/04/14/world/london-pub-carlton-reopened.html?searchResultPosition=6
+https://nytimes.com/2021/04/14/world/carlton-tavern-london-pub.html?searchResultPosition=6
 
 **The Woman Who Made van Gogh**\
 `Neglected by art history for decades, Jo van Gogh-Bonger, the painter’s sister-in-law, is finally being recognized as the force who opened the world’s eyes to his genius.`\
