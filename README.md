@@ -2,7 +2,7 @@
 `A potential deluge of millions of gallons of water from a former phosphate mine had threatened homes south of Tampa.`\
 https://nytimes.com/2021/04/13/us/piney-point-wastewater-reservoir-closure.html?searchResultPosition=2
 
-**Republicans in two rural Georgia counties censure Gov. Brian Kemp and others.**\
+**Republicans in two rural Georgia counties censure Gov. Brian Kemp and others**\
 `The actions were driven by anger over the governor’s refusal to overturn the state’s 2020 primary results in favor of Trump.`\
 https://nytimes.com/2021/04/13/us/politics/georgia-kemp-raffensperger-trump-republicans.html?searchResultPosition=3
 
