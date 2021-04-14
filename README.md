@@ -1,40 +1,40 @@
-**I’m in a Police Union That Holds Bad Cops Accountable**\
-`The Ethical Society of Police isn’t afraid to speak out against police misconduct.`\
-https://nytimes.com/video/opinion/100000007479617/police-officer-unions.html?searchResultPosition=1
+**Their London Pub Was Reduced to Rubble. They Fought to Bring It Back.**\
+`Developers knocked down the Carlton Tavern six years ago to make way for luxury apartments. After a legal fight, they were ordered to rebuild it, brick by brick.`\
+https://nytimes.com/2021/04/14/world/london-pub-carlton-reopened.html?searchResultPosition=1
 
-**They ‘Bombed My Dream’: Denmark Strips Some Syrians of Residency Status**\
-`The country is the first E.U. nation to make such a move. Many Syrians say that returning to their native country isn’t an option, and rights groups warn that the policy will tear some families apart.`\
-https://nytimes.com/2021/04/14/world/europe/denmark-syrian-residence-permits.html?searchResultPosition=2
+**The Woman Who Made van Gogh**\
+`Neglected by art history for decades, Jo van Gogh-Bonger, the painter’s sister-in-law, is finally being recognized as the force who opened the world’s eyes to his genius.`\
+https://nytimes.com/2021/04/14/magazine/jo-van-gogh-bonger.html?searchResultPosition=2
 
-**Covid-19 in New York: Variants and Johnson & Johnson**\
-`More contagious variants of the Covid-19 virus account for three-quarters of new cases in the city.`\
-https://nytimes.com/2021/04/14/nyregion/new-york-variants-johnson.html?searchResultPosition=3
+**5 Health Care Jobs on the Rise**\
+`Occupations in the industry are increasingly in demand because of an aging population and longer life spans.`\
+https://nytimes.com/2021/04/14/health/health-care-jobs.html?searchResultPosition=3
 
-**Lesson of the Day: ‘Art Without Borders’**\
-`In this lesson, students will learn how the muralists of El Paso tell the story of a vibrant city on the United States-Mexico border. Then they will design a mural to represent their own community.`\
-https://nytimes.com/2021/04/14/learning/lesson-of-the-day-art-without-borders.html?searchResultPosition=4
+**New Target for New York’s Ascendant Left: Rep. Carolyn Maloney**\
+`Justice Democrats, a left-wing group that fueled the rise of Representative Alexandria Ocasio-Cortez, is backing Rana Abdelhamid’s primary bid.`\
+https://nytimes.com/2021/04/14/nyregion/maloney-challenger-justice-democrats.html?searchResultPosition=4
 
-**Reanimating ‘Cabaret,’ One Frame at a Time**\
-`A first look at extraordinary images from the groundbreaking 1966 musical turns Broadway history into something that’s (literally) moving.`\
-https://nytimes.com/interactive/2021/04/14/arts/recreating-cabaret.html?searchResultPosition=5
+**Decades After His Death, Richard Wright Has a New Book Out**\
+`“The Man Who Lived Underground,” a novel publishers rejected in the 1940s, is about an innocent Black man forced to confess to the murder of a white couple.`\
+https://nytimes.com/2021/04/14/books/richard-wright-man-who-lived-underground.html?searchResultPosition=5
 
-**Word of the Day: gnarled**\
-`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/14/learning/word-of-the-day-gnarled.html?searchResultPosition=6
+**How to Use Tech to Prepare for Travel in a Pandemic**\
+`Even as vaccines make it safer to travel, planning a trip is becoming increasingly complicated.`\
+https://nytimes.com/2021/04/14/technology/personaltech/travel-in-a-pandemic-tech.html?searchResultPosition=6
 
-**Jimmy Fallon Pokes Fun at Johnson & Johnson’s Vaccine Pause**\
-`“That’s right, they’re recommending a pause. Then anyone who’s ever been dumped was like: ‘Oh, boy. We know what “pause” means,’” Fallon said.`\
-https://nytimes.com/2021/04/14/arts/television/late-night-jimmy-fallon-johnson-johnson-vaccine.html?searchResultPosition=7
+**Coinbase’s Public Listing Is a Cryptocurrency Coming-Out Party**\
+`With acceptance from traditional investors, a profitable start-up that eases transactions is offering proof of the industry’s staying power.`\
+https://nytimes.com/2021/04/14/business/coinbase-ipo-stock.html?searchResultPosition=7
 
-**Injuries Are Raining on the N.B.A.’s Championship Parade**\
-`Pick a big-name N.B.A. star, and he’s probably been injured this season: LeBron, Giannis, LaMelo, A.D., K.D. and, now, Jamal Murray. What’s going on?`\
-https://nytimes.com/2021/04/14/sports/basketball/nba-injuries-jamal-murray.html?searchResultPosition=8
+**A Key Tool in Covid Tracking: The Freedom of Information Act**\
+`Through open-records laws, Times reporters have acquired data on coronavirus cases that revealed racial inequalities, pinpointed hot spots and uncovered other critical facts.`\
+https://nytimes.com/2021/04/14/insider/freedom-of-information-covid.html?searchResultPosition=8
 
-**15 Favorite Episodes as the Book Review Podcast Turns 15**\
-`Pamela Paul, the editor of the Book Review, highlights memorable episodes from her eight years hosting the show, including conversations with Robert Caro, Isabel Wilkerson, James McBride and others.`\
-https://nytimes.com/2021/04/14/books/book-review-podcast-favorite-episodes.html?searchResultPosition=9
+**At Least 15 Officers Mistook Guns for Tasers. Three Were Convicted.**\
+`Prosecuting police in cases of so-called weapon confusion has happened before, but the legal landscape is complex.`\
+https://nytimes.com/2021/04/14/nyregion/taser-manslaughter-cases-kim-potter.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`A fresh blow to Europe’s vaccination efforts.`\
-https://nytimes.com/2021/04/14/briefing/vaccine-blood-clots-iran-afghanistan.html?searchResultPosition=10
+**Regular Exercise May Help Protect Against Severe Covid**\
+`People who tended to be sedentary were far more likely to be hospitalized, and to die, from Covid than those who exercised regularly.`\
+https://nytimes.com/2021/04/14/well/move/covid-19-prevention-exercise.html?searchResultPosition=10
 
