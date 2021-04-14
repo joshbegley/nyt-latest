@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007709880/biden-speech-afghanistan.html?searchResultPosition=1
 
 **ABC News names Kimberly Godwin as its new president.**\
-`By Michael M. Grynbaum and John Koblin`\
+`Her new role is just one of several changes in the world of broadcast news as the industry adjusts to a drastically changed news cycle`\
 https://nytimes.com/2021/04/14/business/media/abc-news-president-kimberly-godwin.html?searchResultPosition=2
 
 **Red Carpet or Not, Film Festivals Roll On**\
