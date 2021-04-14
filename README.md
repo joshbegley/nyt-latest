@@ -1,6 +1,6 @@
 **Afghans Wonder ‘What About Me?’ as American Troops Prepare to Withdraw**\
 `Many Afghans fear that without the umbrella of American protection, the country will be unable to preserve its modest gains toward democracy and women’s rights.`\
-https://nytimes.com/2021/04/14/world/asia/afghanistan-taliban-us-withdrawal.html?searchResultPosition=1
+https://nytimes.com/2021/04/14/world/asia/afghanistan-taliban-usa-troop-withdrawal.html?searchResultPosition=1
 
 **Other People’s Kids Are Annoying**\
 `How to enforce house rules when you’ve got company.`\
