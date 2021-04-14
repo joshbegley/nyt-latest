@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/14/business/dealbook/ceos-voting-rights.html?searchR
 `Highlights include a virtual production of Adam Rapp’s “The Sound Inside” and a new reading series by Roundabout Theater Company.`\
 https://nytimes.com/2021/04/14/theater/streaming-theater-assassins-romeo-juliet.html?searchResultPosition=4
 
-**Afghans Wonder ‘What About Me?’ as American Troops Prepare to Withdraw**\
+**Afghans Wonder ‘What About Me?’ as U.S. Troops Prepare to Withdraw**\
 `Many Afghans fear that without the umbrella of American protection, the country will be unable to preserve its modest gains toward democracy and women’s rights.`\
 https://nytimes.com/2021/04/14/world/asia/afghanistan-taliban-usa-troop-withdrawal.html?searchResultPosition=5
 
