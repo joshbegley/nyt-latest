@@ -1,4 +1,4 @@
-**Afghans Wonder ‘What About Me’ as American Troops Prepare to Withdraw**\
+**Afghans Wonder ‘What About Me?’ as American Troops Prepare to Withdraw**\
 `Many Afghans fear that without the umbrella of American protection, the country will be unable to preserve its modest gains toward democracy and women’s rights.`\
 https://nytimes.com/2021/04/14/world/asia/afghanistan-taliban-us-withdrawal.html?searchResultPosition=1
 
