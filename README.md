@@ -22,8 +22,8 @@ https://nytimes.com/2021/04/14/technology/apple-tech-event.html?searchResultPosi
 `What will happen to women and minorities? Can the Afghan president hold on to power? These and other pressing questions face a fearful country as the United States military withdraws.`\
 https://nytimes.com/2021/04/14/world/asia/afghanistan-troop-withdrawal.html?searchResultPosition=7
 
-**The Minnesota officer who killed Daunte Wright will be charged with manslaughter.**\
-`Kimberly A. Potter, who resigned from the Brooklyn Center Police Department on Wednesday, will be charged with second-degree manslaughter, a prosecutor said.`\
+**Minnesota officer who killed Daunte Wright will be charged with manslaughter.**\
+`Kimberly A. Potter, who resigned from the Brooklyn Center Police Department, was arrested on Wednesday.`\
 https://nytimes.com/2021/04/14/us/kim-potter-charged-daunte-wright.html?searchResultPosition=8
 
 **Burt Pugach, Protagonist of a Strange Tabloid Love Story, Dies at 93**\
