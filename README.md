@@ -27,7 +27,7 @@ https://nytimes.com/2021/04/14/podcasts/the-daily/supreme-court-religious-cases.
 https://nytimes.com/2021/04/14/crosswords/crosswords-puzzles-constructor-quigley.html?searchResultPosition=7
 
 **In My Hometown, Opioids Are Still Stealing Lives**\
-`A decade ago, it was already a crisis. But it feels like its getting worse.`\
+`A decade ago, it was already a crisis. But it feels like it’s getting worse.`\
 https://nytimes.com/2021/04/14/opinion/opioids-us.html?searchResultPosition=8
 
 **Their London Pub Was Reduced to Rubble. They Fought to Bring It Back.**\
