@@ -30,7 +30,7 @@ https://nytimes.com/2021/04/14/movies/oscars-short-films-history.html?searchResu
 `An archival release marks the technical debut of a band that helped build a scene, 44 years later.`\
 https://nytimes.com/2021/04/14/arts/music/screamers-los-angeles-punk.html?searchResultPosition=8
 
-**Bernie Madoff, Architect of Largest Ponzi Scheme in History, Is Dead at 82**\
+**Bernard Madoff, Architect of Largest Ponzi Scheme in History, Is Dead at 82**\
 `His enormous fraud left behind a devastating human toll and paper losses totaling $64.8 billion.`\
 https://nytimes.com/2021/04/14/business/bernie-madoff-dead.html?searchResultPosition=9
 
