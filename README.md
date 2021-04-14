@@ -35,6 +35,6 @@ https://nytimes.com/2021/04/14/business/bernie-madoff-dead.html?searchResultPosi
 https://nytimes.com/2021/04/14/learning/justice-for-daunte-wright.html?searchResultPosition=9
 
 **Wall Street banks post big profits on the resiliency of the American consumer.**\
-`By Kate Kelly, Stacy Cowley and Matt Phillips`\
-https://nytimes.com/2021/04/14/business/wall-street-banks-post-big-profits-on-the-resiliency-of-the-american-consumer.html?searchResultPosition=10
+`The banks said they released large chunks of money that had been set aside to cushion themselves from losses caused by the pandemic.`\
+https://nytimes.com/2021/04/14/business/wall-street-banks-earnings.html?searchResultPosition=10
 
