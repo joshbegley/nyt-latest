@@ -30,7 +30,7 @@ https://nytimes.com/2021/04/14/learning/justice-for-daunte-wright.html?searchRes
 `Watch live video of the trial of Derek Chauvin, the former police officer charged in the death of George Floyd. Warning: The video may include graphic images.`\
 https://nytimes.com/video/us/100000007708903/chauvin-trial-live.html?searchResultPosition=8
 
-**Key Moments Entering Day 13 of the Derek Chauvin Trial**\
+**Key Moments on Day 13 of the Derek Chauvin Trial**\
 `The defense began calling witnesses this week, including a use-of-force expert who said Mr. Chauvin’s actions were justified when he pinned George Floyd to the ground.`\
 https://nytimes.com/2021/04/14/us/derek-chauvin-trial-takeways.html?searchResultPosition=9
 
