@@ -34,7 +34,7 @@ https://nytimes.com/2021/04/14/opinion/letters/afghanistan-war-us-exit.html?sear
 `Ms. Smart, 19, was a freshman at California Polytechnic State University in San Luis Obispo when she disappeared in 1996. She was declared legally dead in 2002.`\
 https://nytimes.com/2021/04/14/us/kristin-smart-case-timeline.html?searchResultPosition=9
 
-**Watch Live: Biden Delivers Remarks On Afghanistan**\
-`President Biden is expected to announce his decision to withdraw troops from Afghanistan, ending a war that spanned multiple decades.`\
-https://nytimes.com/video/us/politics/100000007709180/biden-speech.html?searchResultPosition=10
+**Watch Full Video: Biden Delivers Remarks On Afghanistan**\
+`President Biden announced his decision to withdraw troops from Afghanistan, ending a war that spanned multiple decades.`\
+https://nytimes.com/video/embedded/us/politics/100000007709180/biden-speech.html?searchResultPosition=10
 
