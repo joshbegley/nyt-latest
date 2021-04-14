@@ -1,4 +1,4 @@
-**Overdose Deaths Have Surged During the Pandemic, C.D.C. Says**\
+**Overdose Deaths Have Surged During the Pandemic, C.D.C. Data Shows**\
 `The latest numbers surpass even the yearly tolls during the height of the opioid epidemic and mark a reversal of progress against addiction in recent years.`\
 https://nytimes.com/2021/04/14/health/overdose-deaths-fentanyl-opiods-coronaviurs-pandemic.html?searchResultPosition=1
 
