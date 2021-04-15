@@ -30,7 +30,7 @@ https://nytimes.com/video/us/politics/100000007712811/biden-russia-putin-sanctio
 `It’s more about listening than talking.`\
 https://nytimes.com/2021/04/15/opinion/wisdom-attention-listening.html?searchResultPosition=8
 
-**An N.F.L. Player Killed Seven People. C.T.E. May Not Explain Why.**\
+**An N.F.L. Player Killed 7 People. C.T.E. May Not Fully Explain Why.**\
 `A finding of C.T.E. can help explain violence and erratic behavior by former football players, but it will not give a clear picture of why Adams fatally shot seven people, including himself.`\
 https://nytimes.com/2021/04/15/sports/football/phillip-adams-cte-shooting.html?searchResultPosition=9
 
