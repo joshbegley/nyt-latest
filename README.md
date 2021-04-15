@@ -1,4 +1,4 @@
-**Derek Chauvin declines to testify.**\
+**Derek Chauvin declines to testify in his trial.**\
 `For the first time in nearly three weeks of testimony, the jury got to hear from the former officer Derek Chauvin, who said he was invoking his Fifth Amendment right not to testify at his trial.`\
 https://nytimes.com/2021/04/15/us/derek-chauvin-testify-fifth-amendment.html?searchResultPosition=1
 
