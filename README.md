@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/15/us/adam-toledo-chicago-shooting-video.html?search
 `For some who marched after George Floyd’s death, the murder trial of Derek Chauvin has been difficult to watch.`\
 https://nytimes.com/2021/04/15/us/minneapolis-protesters-george-floyd-verdict.html?searchResultPosition=2
 
-**How Many Tyrannosaurus Rexes Ever Lived on Earth? Here’s a New Clue**\
+**How Many Tyrannosaurus Rexes Ever Lived on Earth? Here’s a New Clue.**\
 `An estimation of the iconic predator’s total population can teach us things about dinosaurs that fossils cannot.`\
 https://nytimes.com/2021/04/15/science/tyrannosaurus-rex-population.html?searchResultPosition=3
 
