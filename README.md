@@ -1,4 +1,4 @@
-**C.D.C. Panel Keeps Pause on Use of J&J Vaccine, Citing Need to Assess Risks**\
+**C.D.C. Panel Keeps Pause on Use of J&J Vaccine, Citing Need to Assess Potential Risks**\
 `An advisory committee debated the very few cases of a rare blood disorder and worried about the suspension’s effect on global needs for a one-shot, easy-to-ship vaccine.`\
 https://nytimes.com/2021/04/14/health/cdc-johnson-vaccine-pause.html?searchResultPosition=1
 
