@@ -1,40 +1,40 @@
-**A top politician in Japan talked of canceling the Olympics. Then he walked it back.**\
-`A leading member of Japan’s governing party said the country might have to “completely cancel” the Games if coronavirus infections continue to surge.`\
-https://nytimes.com/2021/04/15/world/japan-olympics.html?searchResultPosition=1
+**Binge-Watching ‘Gilmore Girls’ Got My Family Through an Epically Bad Year**\
+`The perfect refuge from Covid and cancer is a fictional town where nothing really happens and the diner is always open.`\
+https://nytimes.com/2021/04/15/opinion/binge-watching-gilmore-girls-pandemic.html?searchResultPosition=1
 
-**The Mayoral Race Heats Up for Top Contenders**\
-`The Working Families Party endorsed three candidates, and Andrew Yang encountered some animosity.`\
-https://nytimes.com/2021/04/15/nyregion/mayoral-race-new-york.html?searchResultPosition=2
+**Birds by the Billions: A Guide to Spring’s Avian Parade**\
+`For birders across the United States, it’s a rite of spring: heading out to woodlands and waterways to track down a favorite warbler, vireo, tanager or other bird, many of them migratory.`\
+https://nytimes.com/2021/04/15/travel/birding-america.html?searchResultPosition=2
 
-**How Working From Home Changed Wardrobes Around the World**\
-`It wasn’t all sweats and leggings. A whirlwind tour of how the pandemic affected what we wore, from India to Italy.`\
-https://nytimes.com/2021/04/15/style/working-from-home-wardrobes.html?searchResultPosition=3
+**The Books That Made Me: 8 Writers on Their Literary Inspirations**\
+`In decades past, the Book Review occasionally asked young authors about their biggest influences. For our 125th anniversary, we put the question to a new generation.`\
+https://nytimes.com/2021/04/15/books/the-books-that-made-me-8-writers-on-their-literary-inspirations.html?searchResultPosition=3
 
-**Some New Yorkers Don’t Want the Superrich to Return**\
-`Sure, the tax revenue is nice. But ….`\
-https://nytimes.com/2021/04/15/style/rich-people-fled-new-yrok.html?searchResultPosition=4
+**Movies Survived 2020. The Oscars Diversified. There’s More to Do.**\
+`At the pandemic Oscars, anything could happen. Here are the lessons from the nominations: The good, the bad and what needs fixing.`\
+https://nytimes.com/2021/04/15/movies/oscar-nominations.html?searchResultPosition=4
 
-**‘It’s a Roller-Coaster Ride’: Global Chip Shortage Is Making Industries Sweat**\
-`The internet-connected world is completely dependent on the production of semiconductors. That’s become a problem now that supplies are running short.`\
-https://nytimes.com/2021/04/15/technology/computer-chip-semiconductor-shortage.html?searchResultPosition=5
+**U.S. Suicides Declined Over All in 2020 but May Have Risen Among People of Color**\
+`Despite dire predictions, the number of suicides fell by 5 percent over all. Still, smaller studies suggested the trends were much worse among nonwhite Americans.`\
+https://nytimes.com/2021/04/15/health/coronavirus-suicide-cdc.html?searchResultPosition=5
 
-**Stephen Colbert Applauds Biden’s ‘Endgame’ for Afghanistan’s ‘Infinity War’**\
-`Colbert pointed out that the conflict “has been going on so long, the first ‘Iron Man’ movie opens with Tony Stark in Afghanistan.”`\
-https://nytimes.com/2021/04/15/arts/television/stephen-colbert-afghanistan-withdrawal.html?searchResultPosition=6
+**A Cemetery’s Big Secret: Lots of Weird Mushrooms**\
+`Green-Wood Cemetery in Brooklyn is a treasure trove for amateur fungi hunters. Just don’t pick any.`\
+https://nytimes.com/2021/04/15/style/greenwood-cemetery-mushrooms.html?searchResultPosition=6
 
-**Word of the Day: replete**\
-`This word has appeared in 114 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/15/learning/word-of-the-day-replete.html?searchResultPosition=7
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/04/15/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=7
 
-**Your Thursday Briefing**\
-`Global vaccine worries.`\
-https://nytimes.com/2021/04/15/briefing/coronavirus-vaccines-afghanistan-mario-draghi.html?searchResultPosition=8
+**How Are There Only Three Lesbian Bars in New York City?**\
+`As the effects of the pandemic unfurl, lesbians are worried about losing their few brick-and-mortar spaces.`\
+https://nytimes.com/2021/04/15/nyregion/lesbian-bars-new-york-city.html?searchResultPosition=8
 
-**How Mario Draghi Made Italy a Power Player in Europe**\
-`The new prime minister is leveraging his European relationships and his solid reputation to make Italy a force on the continent in a way it has not been in decades.`\
-https://nytimes.com/2021/04/15/world/europe/italy-draghi-eu.html?searchResultPosition=9
+**Raw Sewage Flooded Their Homes. They’re Still Waiting for Help.**\
+`New York City accepted responsibility for a collapsed pipe that flooded 127 homes in Queens in 2019, but it has been slow to pay homeowners.`\
+https://nytimes.com/2021/04/15/nyregion/sewage-pipe-flood-queens.html?searchResultPosition=9
 
-**5 W.N.B.A. Draft Hopefuls to Watch**\
-`A deep run in the N.C.A.A. tournament isn’t required for a basketball player to become a star or make it to the pros. These five women aim to prove it.`\
-https://nytimes.com/2021/04/15/sports/basketball/wnba-draft.html?searchResultPosition=10
+**The Sweater Vest Returns, and It’s Sexy**\
+`Why the humble sweater vest is the perfect garment for these in-between times.`\
+https://nytimes.com/2021/04/15/fashion/mens-style-the-return-of-the-sweater-vest.html?searchResultPosition=10
 
