@@ -1,4 +1,4 @@
-**Watch Live: C.D.C Director and Fauci Testify on ‘Ending the Pandemic’**\
+**Watch Live: C.D.C Director and Fauci Testify About the Pandemic**\
 `Dr. Rochelle Walensky, the C.D.C. director, and Dr. Anthony Fauci, the nation’s leading infectious disease expert, testify on Capitol Hill before a House Select Committee overseeing the government’s coronavirus response.`\
 https://nytimes.com/video/us/100000007711413/dr-fauci-testimony.html?searchResultPosition=1
 
