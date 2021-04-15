@@ -22,7 +22,7 @@ https://nytimes.com/2021/04/15/learning/word-of-the-day-replete.html?searchResul
 `Global vaccine worries.`\
 https://nytimes.com/2021/04/15/briefing/coronavirus-vaccines-afghanistan-mario-draghi.html?searchResultPosition=6
 
-**How Mario Draghi Has Made Italy a Power Player in Europe**\
+**How Mario Draghi Made Italy a Power Player in Europe**\
 `The new prime minister is leveraging his European relationships and his solid reputation to make Italy a force on the continent in a way it has not been in decades.`\
 https://nytimes.com/2021/04/15/world/europe/italy-draghi-eu.html?searchResultPosition=7
 
