@@ -11,7 +11,7 @@ https://nytimes.com/2021/04/15/style/carol-prisant-dead.html?searchResultPositio
 https://nytimes.com/2021/04/15/us/politics/johnson-johnson-vaccine-pause.html?searchResultPosition=3
 
 **‘Framing Britney Spears’**\
-`The New York Times documentary that highlighted the “Free Britney” movement, which supports the pop star Britney Spears’s efforts to get out of a 13-year court-sanctioned conservatorship.`\
+`Watch The New York Times documentary that highlighted the “Free Britney” movement, which supports the pop star Britney Spears’s efforts to get out of a 13-year court-sanctioned conservatorship.`\
 https://nytimes.com/video/NYT-Presents/100000007712697/framing-britney-spears.html?searchResultPosition=4
 
 **Biden Announces Sanctions Against Russia**\
