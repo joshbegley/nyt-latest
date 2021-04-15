@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/15/business/biden-russia-sanctions-debt.html?searchR
 https://nytimes.com/video/us/100000007712491/chicago-mayor-adam-toledo-video.html?searchResultPosition=4
 
 **Vernon Jones, a Pro-Trump Republican, Will Challenge Kemp in Georgia**\
-`Vernon Jones, a Democrat-turned-Republican and onetime state representative who has called Georgia’s presidential election “fixed,” will oppose Gov. Brian Kemp, one of Donald Trump’s top targets.`\
+`Vernon Jones, a Democrat-turned-Republican and former state representative who has called Georgia’s presidential election “fixed,” will oppose Gov. Brian Kemp, one of Donald Trump’s top targets.`\
 https://nytimes.com/2021/04/15/us/vernon-jones-georgia-brian-kemp.html?searchResultPosition=5
 
 **Democrats’ Supreme Court Expansion Plan Draws Resistance**\
