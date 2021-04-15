@@ -2,7 +2,7 @@
 `Two glistening superstars have decoupled. It’s springtime in New York.`\
 https://nytimes.com/2021/04/15/style/jennifer-lopez-alex-rodriguez-breakup.html?searchResultPosition=1
 
-**Coronavirus Vaccines Highly Effective Against U.K. Variant, Says Dr. Fauci**\
+**Fauci Says Coronavirus Vaccines Are Highly Effective Against U.K. Variant**\
 `Dr. Anthony S. Fauci, the nation’s leading infectious disease expert, testified before Congress that the current vaccines on the market would be effective at preventing against the U.K. coronavirus variant, which is considered particularly contagious.`\
 https://nytimes.com/video/us/politics/100000007711921/Fauci-vaccines-highly-effective-against-UK-coronavirus-variant.html?searchResultPosition=3
 
