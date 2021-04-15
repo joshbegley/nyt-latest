@@ -1,5 +1,5 @@
 **Hiker Rescued After Man Uses Photo to Pinpoint His Location**\
-`Rene Compean, 45, who had been missing in the mountains of Southern California, was found on Tuesday after a stranger deduced his location from a photo posted by the authorities.`\
+`Rene Compean, who had been missing in the mountains of Southern California, was found on Tuesday after a stranger deduced his location from a photo posted by the authorities.`\
 https://nytimes.com/2021/04/15/us/missing-hiker-found.html?searchResultPosition=1
 
 **A No-Sweat Family Camping Trip? Yes, It’s Possible.**\
