@@ -1,36 +1,36 @@
+**Real Progress on Mental Health Treatments**\
+`The National Institute of Mental Health discusses research into medicines with near-term impact. Also: Harassment in Albany.`\
+https://nytimes.com/2021/04/15/opinion/letters/mental-health.html?searchResultPosition=1
+
 **Giancarlo DiTrapano, Defiantly Independent Book Publisher, Dies at 47**\
 `Mr. DiTrapano championed avant-garde work and relished taking chances on young, untested authors. His Tyrant Books produced some unexpected hits.`\
-https://nytimes.com/2021/04/15/books/giancarlo-ditrapano-dead.html?searchResultPosition=1
+https://nytimes.com/2021/04/15/books/giancarlo-ditrapano-dead.html?searchResultPosition=2
 
 **Vaccines Won’t Protect Millions of Patients With Crippled Immune Systems**\
 `Many cannot produce enough infection-fighting cells to fend off the coronavirus. But researchers are testing one therapy that may help: monoclonal antibodies.`\
-https://nytimes.com/2021/04/15/health/coronavirus-immune-system.html?searchResultPosition=2
+https://nytimes.com/2021/04/15/health/coronavirus-immune-system.html?searchResultPosition=3
 
 **What you need to know about the defense of Derek Chauvin.**\
 `The presentation of evidence concluded on Thursday without testimony from Mr. Chauvin himself.`\
-https://nytimes.com/2021/04/15/us/defense-of-derek-chauvin.html?searchResultPosition=4
+https://nytimes.com/2021/04/15/us/defense-of-derek-chauvin.html?searchResultPosition=5
 
 **Five Things to Know as M.L.S. Starts Its Season**\
 `A new team, a new star, new protocols, new stadiums and maybe a new winner await in a season that finally starts on Friday.`\
-https://nytimes.com/2021/04/15/sports/soccer/mls-brenner-austin.html?searchResultPosition=5
+https://nytimes.com/2021/04/15/sports/soccer/mls-brenner-austin.html?searchResultPosition=6
 
 **Can the Covid Vaccine Protect Me Against Virus Variants?**\
 `Vaccines do a good job of protecting us from coronavirus, but fear and confusion about the rise of variants have muddled the message. Here are answers to common questions.`\
-https://nytimes.com/2021/04/15/well/live/covid-variants-vaccine.html?searchResultPosition=6
+https://nytimes.com/2021/04/15/well/live/covid-variants-vaccine.html?searchResultPosition=7
 
 **Mayor Calls for Calm as Chicago Awaits Video of Police Fatally Shooting 13-Year-Old**\
 `The body camera footage was expected to be released on Thursday.`\
-https://nytimes.com/2021/04/15/us/adam-toledo-chicago-shooting-video.html?searchResultPosition=7
+https://nytimes.com/2021/04/15/us/adam-toledo-chicago-shooting-video.html?searchResultPosition=8
 
 **‘I constantly get emotional.’ After a year of protests, Minneapolis activists await justice.**\
 `For some who marched after George Floyd’s death, the murder trial of Derek Chauvin has been difficult to watch.`\
-https://nytimes.com/2021/04/15/us/minneapolis-protesters-george-floyd-verdict.html?searchResultPosition=8
+https://nytimes.com/2021/04/15/us/minneapolis-protesters-george-floyd-verdict.html?searchResultPosition=9
 
 **How Many Tyrannosaurus Rexes Ever Lived on Earth? Here’s a New Clue.**\
 `An estimation of the iconic predator’s total population can teach us things about dinosaurs that fossils cannot.`\
-https://nytimes.com/2021/04/15/science/tyrannosaurus-rex-population.html?searchResultPosition=9
-
-**The BBC covered Prince Philip’s death for hours. Cue the complaints.**\
-`By Eshe Nelson`\
-https://nytimes.com/2021/04/15/business/bbc-prince-philip-complaints.html?searchResultPosition=10
+https://nytimes.com/2021/04/15/science/tyrannosaurus-rex-population.html?searchResultPosition=10
 
