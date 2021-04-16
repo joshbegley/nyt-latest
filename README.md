@@ -1,5 +1,5 @@
 **Family members are gathered at a nearby hotel.**\
-`Relatives of workers at the FedEx facility in Indianapolis where a gunman killed at least eight people waited for news.`\
+`Relatives of workers at the FedEx warehouse in Indianapolis where a gunman killed at least eight people waited for news.`\
 https://nytimes.com/2021/04/16/us/indianapolis-shooting-family-members.html?searchResultPosition=1
 
 **Booster shots and re-vaccinations could be needed. Drug companies are planning for it.**\
