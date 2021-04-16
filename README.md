@@ -22,8 +22,8 @@ https://nytimes.com/2021/04/15/us/politics/florida-public-disorder-bill-police.h
 `Here’s how to think about the federal investigation into rare but severe blood clots associated with the vaccine.`\
 https://nytimes.com/2021/04/15/opinion/johnson-and-johnson-vaccine-covid.html?searchResultPosition=6
 
-**A Louisville Officer Who Shot Breonna Taylor Lands a Book Deal**\
-`Plans to publish the book, written by Sgt. Jonathan Mattingly, have drawn sharp criticism.`\
+**Simon & Schuster Says It Won’t Distribute Book by Officer Who Shot Breonna Taylor**\
+`Plans by Post Hill Press to publish the book, written by Sgt. Jonathan Mattingly, have drawn sharp criticism.`\
 https://nytimes.com/2021/04/15/us/jonathan-mattingly-breonna-taylor-book.html?searchResultPosition=7
 
 **Biden’s approval rating rises, helped by the vaccine distribution push.**\
