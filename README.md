@@ -1,4 +1,4 @@
-**Shooting Is Reported at FedEx Warehouse in Indiana**\
+**Shooting Is Reported at FedEx Warehouse in Indianapolis**\
 `The authorities said the warehouse was on the southwest side of Indianapolis, the state capital.`\
 https://nytimes.com/2021/04/16/us/indianapolis-shooting-fedex.html?searchResultPosition=1
 
