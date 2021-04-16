@@ -1,40 +1,40 @@
-**How a Podcaster Unearthed His Story—and Found a New Family**\
-`Corey Cambridge was always curious about his past. A few clicks on Ancestry changed his life.`\
-https://nytimes.com/paidpost/ancestry/how-a-podcaster-unearthed-his-story-and-found-a-new-family.html?searchResultPosition=1
+**Gustavo Dudamel, Superstar Conductor, Is to Lead Paris Opera**\
+`In a coup, the venerable company has hired as its next music director the rare classical artist to have crossed into pop-culture celebrity.`\
+https://nytimes.com/2021/04/16/arts/music/gustavo-dudamel-paris-opera.html?searchResultPosition=1
 
-**A Letter to XVideos**\
-`When I was 14, someone recorded a video of me naked without my knowledge or consent. It ended up on XVideos.`\
-https://nytimes.com/video/opinion/100000007583710/xvideo-consent-minor.html?searchResultPosition=2
+**What Will Happen to All the Empty Office Buildings and Hotels?**\
+`Commercial real estate has been hit hard by the pandemic, but there are plans to convert some of the now empty spaces into apartment buildings.`\
+https://nytimes.com/2021/04/16/realestate/empty-office-buildings-hotels.html?searchResultPosition=2
 
-**Hong Kong Court Sentences Pro-Democracy Leaders to Prison**\
-`Prison sentences for prominent pro-democracy leaders over unauthorized peaceful protest point to what critics say is the shrinking space for dissent in Hong Kong.`\
-https://nytimes.com/2021/04/16/world/asia/hong-kong-martin-lee-jimmy-lai.html?searchResultPosition=3
+**Art of the Dealer: Paula Cooper Shores Up Her Legacy**\
+`She opened the first gallery in SoHo and was a part of Chelsea’s initial wave. Now, at 83, the dean of ‘tough art’ will bring in new partners and start a year-round branch in Palm Beach.`\
+https://nytimes.com/2021/04/16/arts/design/paula-cooper-gallery.html?searchResultPosition=3
 
-**How a Sewage Flood Upended Lives in Queens**\
-`More than 16 months after a sewage flood wrecked their homes, some South Ozone Park residents say they’re still waiting for help from the city.`\
-https://nytimes.com/2021/04/16/nyregion/sewage-flood-queens.html?searchResultPosition=4
+**Why Reopening Ceremonies in NYC Are So Important Right Now**\
+`Movie theaters, hotels, restaurants and other businesses are putting a lot of thought into the process.`\
+https://nytimes.com/2021/04/16/nyregion/coronavirus-nyc-reopening.html?searchResultPosition=4
 
-**When Our Presses Rocked: A Music Video Starring a Beatle and The Times**\
-`Paul McCartney and the newspaper both make special appearances in Dominic Fike’s cover of “The Kiss of Venus.”`\
-https://nytimes.com/2021/04/16/insider/fike-mccartney-video.html?searchResultPosition=5
+**Unemployment Is High. Why Are Businesses Struggling to Hire?**\
+`Health concerns, expanded jobless benefits and still being needed at home are among the reasons would-be workers might be staying away.`\
+https://nytimes.com/2021/04/16/upshot/unemployment-pandemic-worker-shortages.html?searchResultPosition=5
 
-**Lesson of the Day: ‘A Tiny Particle’s Wobble Could Upend the Known Laws of Physics’**\
-`In this lesson, students will learn about muons and why scientists are carefully tracking how they spin inside a magnetic field. Are physicists on the verge of discovering new subatomic particles?`\
-https://nytimes.com/2021/04/16/learning/lesson-of-the-day-a-tiny-particles-wobble-could-upend-the-known-laws-of-physics.html?searchResultPosition=6
+**It’s Less a Hotel Than a New York Legend. And Now, a Battleground.**\
+`Mark Twain and Bob Dylan slept at the Chelsea. Now, developers hope to lure tourists, but they have to soothe some frustrated tenants.`\
+https://nytimes.com/2021/04/16/nyregion/chelsea-hotel-nyc.html?searchResultPosition=6
 
-**Paraguay’s ‘Life and Death’ Covid Crisis Gives China Diplomatic Opening**\
-`Paraguay desperately needs Covid-19 vaccines, which China could supply. That has led the South American nation to reconsider its relationship with Taiwan, which precludes it from dealing with Beijing.`\
-https://nytimes.com/2021/04/16/world/americas/paraguay-china-vaccine-diplomacy.html?searchResultPosition=7
+**How George Hahn, Urban Raconteur, Spends His Sundays**\
+`He is devoted to his dogs, his tiny apartment and most of all these days, his city.`\
+https://nytimes.com/2021/04/16/nyregion/george-hahn.html?searchResultPosition=7
 
-**Tarot Tales**\
-`What story — real or made up — does this image inspire for you?`\
-https://nytimes.com/2021/04/16/learning/tarot-tales.html?searchResultPosition=8
+**Covid-19 Pushes India’s Middle Class Toward Poverty**\
+`The pandemic sent 32 million people in India from the middle class last year. Now a second wave is threatening the dreams of millions more looking for a better life.`\
+https://nytimes.com/2021/04/16/business/economy/india-covid19-middle-class.html?searchResultPosition=8
 
-**Disappearing Slang and Cultural Variants: How Australian English Is Changing**\
-`Readers reflect on the country’s many different accents.`\
-https://nytimes.com/2021/04/16/world/asia/disappearing-slang-and-cultural-variants-how-australian-english-is-changing.html?searchResultPosition=9
+**After Years of Wrangling, World War I Memorial Raises First Flag**\
+`As the United States withdraws from its longest war, a memorial that recognizes one of its most complicated ones officially opens in Washington, D.C., on Friday.`\
+https://nytimes.com/2021/04/16/us/politics/world-war-i-memorial.html?searchResultPosition=9
 
-**Word of the Day: wend**\
-`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/16/learning/word-of-the-day-wend.html?searchResultPosition=10
+**Gauging the Prospects for International Travel**\
+`Roadblocks abound, but airlines, hotels and tour companies are trying to balance optimism with caution.`\
+https://nytimes.com/2021/04/16/travel/international-summer-travel-coronavirus.html?searchResultPosition=10
 
