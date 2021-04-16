@@ -1,5 +1,5 @@
 **Shooting Is Reported at FedEx Warehouse in Indianapolis**\
-`The authorities said the warehouse was on the southwest side of Indianapolis, the state capital.`\
+`The authorities said the warehouse was on the southwest side of the city. Few details were immediately available.`\
 https://nytimes.com/2021/04/16/us/indianapolis-shooting-fedex.html?searchResultPosition=1
 
 **What to Know About the Police Shooting of Adam Toledo, 13**\
