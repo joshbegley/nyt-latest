@@ -36,5 +36,5 @@ https://nytimes.com/2021/04/16/nyregion/west-point-cheating-scandal.html?searchR
 
 **Raúl Castro to Step Down as Head of Cuba’s Communist Party**\
 `Mr. Castro announced that he will step down and pass on control of the party to Cuba’s younger generation. His departure will leave Cuba without a Castro at its helm for the first time in 60 years.`\
-https://nytimes.com/2021/04/16/world/americas/raul-castro-cuba.html?searchResultPosition=10
+https://nytimes.com/2021/04/16/world/raul-castro-cuba.html?searchResultPosition=10
 
