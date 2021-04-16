@@ -14,13 +14,13 @@ https://nytimes.com/2021/04/16/arts/television/9-1-1-lone-star.html?searchResult
 `The drama dares to show sympathy for an emotionally distant patriarch and his relatively powerless wife — figures familiar to this child of immigrants.`\
 https://nytimes.com/2021/04/16/movies/minari-korean-americans.html?searchResultPosition=4
 
-**Why I Fear Movies Won’t Be the Same Without the ArcLight**\
-`For the director Gina Prince-Bythewood, seeing her movie premiere there or just a poster for it on display was a sign that her work mattered. News of the closure hit hard.`\
-https://nytimes.com/2021/04/16/movies/arclight-gina-prince-bythewood.html?searchResultPosition=5
-
 **Comfort Viewing: 3 Reasons I Love ‘Billy on the Street’**\
 `Filmed almost entirely outdoors in Manhattan, the gonzo game show serves as a time capsule of the city before the pandemic.`\
-https://nytimes.com/2021/04/16/arts/television/billy-on-the-street-netflix.html?searchResultPosition=6
+https://nytimes.com/2021/04/16/arts/television/billy-on-the-street-netflix.html?searchResultPosition=5
+
+**Why I Fear Movies Won’t Be the Same Without the ArcLight**\
+`For the director Gina Prince-Bythewood, seeing her movie premiere there or just a poster for it on display was a sign that her work mattered. News of the closure hit hard.`\
+https://nytimes.com/2021/04/16/movies/arclight-gina-prince-bythewood.html?searchResultPosition=6
 
 **Iran Says It Began Enriching Uranium to 60 Percent. How Important Is That?**\
 `A highly purified form of uranium is needed to make an atomic bomb, but the main point of Tehran’s action may be to give it leverage in nuclear talks.`\
