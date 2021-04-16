@@ -18,8 +18,8 @@ https://nytimes.com/2021/04/16/learning/word-of-the-day-wend.html?searchResultPo
 `Kimmel poked fun at Gaetz and his friend Joel Greenberg for making their Venmo transactions public: “One of those ‘salads’ cost more than $1,000 — I guess they added avocado.”`\
 https://nytimes.com/2021/04/16/arts/television/late-night-jimmy-kimmel-matt-gaetz.html?searchResultPosition=5
 
-**8 Killed in Mass Shooting at FedEx Warehouse in Indianapolis**\
-`The police said the gunman was believed to have taken his own life.`\
+**What We Know About the Shooting in Indianapolis**\
+`8 people were killed at a FedEx warehouse, the police said.`\
 https://nytimes.com/2021/04/16/us/indianapolis-shooting-fedex.html?searchResultPosition=6
 
 **What to Know About the Police Shooting of Adam Toledo, 13**\
