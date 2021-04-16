@@ -1,6 +1,6 @@
 **As protests against police violence surge, Florida passes a bill to combat ‘public disorder.’**\
 `Critics call the measure racist and anti-democratic, and say it could criminalize peaceful demonstrations.`\
-https://nytimes.com/2021/04/15/us/politics/florida-riot-law.html?searchResultPosition=1
+https://nytimes.com/2021/04/15/us/politics/florida-public-disorder-bill-police.html?searchResultPosition=1
 
 **I’m a Virus Expert Who Got the J & J Vaccine. I’m Not Losing Sleep.**\
 `Here’s how to think about the federal investigation into rare but severe blood clots associated with the vaccine.`\
