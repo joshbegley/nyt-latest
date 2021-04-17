@@ -36,5 +36,5 @@ https://nytimes.com/2021/04/17/books/michelle-zauner-japanese-breakfast-crying-i
 
 **Philip’s funeral, a nod to a life of service, is scaled back in a time of pandemic.**\
 `By Megan Specia`\
-https://nytimes.com/2021/04/17/world/europe/philips-funeral-a-nod-to-a-life-of-service-is-scaled-back-in-a-time-of-pandemic.html?searchResultPosition=10
+https://nytimes.com/2021/04/17/world/europe/prince-philip-funeral-arrangements.html?searchResultPosition=10
 
