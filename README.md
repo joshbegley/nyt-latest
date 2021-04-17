@@ -8,7 +8,7 @@ https://nytimes.com/2021/04/17/world/asia/myanmar-protests-coup-slingshots.html?
 
 **A War Is Ending. A Pennsylvania Town Exhales.**\
 `In Canonsburg, known for its big Fourth of July parade, many people say they are proud of America and its military but weary of the two-decade war in Afghanistan.`\
-https://nytimes.com/2021/04/17/us/politics/pennsylvania-voters-afghanistan-war.html?searchResultPosition=3
+https://nytimes.com/2021/04/17/us/politics/pennsylvania-afghanistan-war.html?searchResultPosition=3
 
 **One Way to Get People Off the Streets: Buy Hotels**\
 `For homeless people, a place to live is life changing to a degree that almost no other intervention can provide.`\
