@@ -35,6 +35,6 @@ https://nytimes.com/2021/04/17/opinion/sunday/ron-desantis-republicans.html?sear
 https://nytimes.com/2021/04/17/world/b117-covid-variant-pennsylvania.html?searchResultPosition=9
 
 **The Biden Administration Ends Limits on the Use of Fetal Tissue for Research**\
-`The decision reverses Trump administration rules and allows scientists to use tissue derived from elective abortions to develop treatments for diseases like cancer and AIDS.`\
+`The decision reverses Trump administration rules and allows scientists to use tissue derived from elective abortions to develop treatments for diseases including cancer and AIDS.`\
 https://nytimes.com/2021/04/17/health/fetal-tissue-research-abortion.html?searchResultPosition=10
 
