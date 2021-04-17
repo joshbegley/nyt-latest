@@ -1,40 +1,40 @@
-**Why Police Can Stop Motorists With Air Fresheners Hanging in Their Cars**\
-`A majority of states have laws making it illegal to hang anything from a rearview mirror that obscures a driver’s view. But critics say the laws are often used as pretexts.`\
-https://nytimes.com/2021/04/17/us/police-air-fresheners.html?searchResultPosition=1
+**Throughout Trial Over George Floyd’s Death, Killings by Police Mount**\
+`Since testimony in Derek Chauvin’s trial began on March 29, more than three people a day have died at the hands of law enforcement.`\
+https://nytimes.com/2021/04/17/us/police-shootings-killings.html?searchResultPosition=1
 
-**In a Changing Boston, a New Mayor Challenges the Police**\
-`Three weeks into her tenure as Boston’s acting mayor, Kim Janey has done something her predecessor did not: order the police to release documents about a leader accused of sexual abuse.`\
-https://nytimes.com/2021/04/17/us/boston-police-abuse.html?searchResultPosition=2
+**Myanmar’s Protesters Face Down the Military With Slingshots and Rocks**\
+`What began as peaceful demonstrations against the military coup has rapidly grown into a resistance movement in which citizens use improvised weapons to fight the junta.`\
+https://nytimes.com/2021/04/17/world/asia/myanmar-protests-coup-slingshots.html?searchResultPosition=2
 
-**Realtors Want to Sell You a Home. Their Trade Group Backs Evicting Others.**\
-`The National Association of Realtors is advocating an end to a pandemic-era order meant to keep renters in their homes.`\
-https://nytimes.com/2021/04/17/your-money/realtors-pandemic-eviction-ban.html?searchResultPosition=3
+**A War Is Ending. A Pennsylvania Town Exhales.**\
+`In Canonsburg, known for its big Fourth of July parade, many people say they are proud of America and its military but weary of the two-decade war in Afghanistan.`\
+https://nytimes.com/2021/04/17/us/politics/pennsylvania-voters-afghanistan-war.html?searchResultPosition=3
 
-**When Harry Met Harry**\
-`In Dan Gutman’s “Houdini and Me,” a boy named Harry who lives in Houdini’s old house is getting text messages from the long-dead magician’s ghost.`\
-https://nytimes.com/2021/04/17/books/review/dan-gutman-houdini-and-me.html?searchResultPosition=4
+**One Way to Get People Off the Streets: Buy Hotels**\
+`For homeless people, a place to live is life changing to a degree that almost no other intervention can provide.`\
+https://nytimes.com/2021/04/17/business/california-homeless-hotels.html?searchResultPosition=4
 
-**Pseudonymous Bosch’s First Book Under His Real Name**\
-`In “The Anti-Book,” Raphael Simon explores what happens when a bubble gum prize enables an angry boy to erase everything he hates about his life.`\
-https://nytimes.com/2021/04/17/books/review/pseudonymous-bosch-raphael-simon-the-anti-book.html?searchResultPosition=5
+**100 Days Without Trump on Twitter: A Nation Scrolls More Calmly**\
+`Democrats are breathing easier. Republicans are crying censorship. For all of the country’s news consumers, a strange quiet has descended after a four-year bombardment of presidential verbiage.`\
+https://nytimes.com/2021/04/17/us/politics/trump-twitter.html?searchResultPosition=5
 
-**Rays Continue Their Domination of Struggling Yankees**\
-`Tampa Bay’s latest victory dropped the Yankees to 5-8. Meanwhile the Mets had yet another game postponed.`\
-https://nytimes.com/2021/04/16/sports/baseball/yankees-mets.html?searchResultPosition=6
+**These Countries Did Well With Covid. So Why Are They Slow on Vaccines?**\
+`Japan, South Korea and Australia have inoculated tiny percentages of their populations. The delays risk unwinding their relative successes.`\
+https://nytimes.com/2021/04/17/world/asia/japan-south-korea-australia-vaccines.html?searchResultPosition=6
 
-**In a Spasm of Violence, Indianapolis Faces the Country’s Latest Mass Shooting**\
-`The country grappled with yet another bloody rampage, only weeks after back-to-back mass shootings last month in Atlanta and Boulder, Colo.`\
-https://nytimes.com/2021/04/16/us/indianapolis-mass-shooting-fedex.html?searchResultPosition=7
+**Rising Debt, Falling Income: How to Dig Out**\
+`More Americans over age 55 are carrying debt loads, and their nonmortgage debt grew significantly during the pandemic.`\
+https://nytimes.com/2021/04/17/business/retirement/rising-debt-falling-income-how-to-dig-out.html?searchResultPosition=7
 
-**Hundreds March in Chicago, Protesting Police Shooting of Adam Toledo, 13**\
-`The boy was fatally shot in March after a police chase in Chicago’s Little Village neighborhood.`\
-https://nytimes.com/2021/04/16/us/chicago-police-shooting-protests.html?searchResultPosition=8
+**Democrats Aim to Revive a Campaign Finance Watchdog**\
+`Republicans denounced the proposed overhaul as an attempt to mount a partisan takeover of what critics consider a moribund Federal Election Commission.`\
+https://nytimes.com/2021/04/17/us/democrats-aim-to-revive-a-campaign-finance-watchdog.html?searchResultPosition=8
 
-**Something Opened With a Click**\
-`Leslie Rogers takes us aloft on a Saturday.`\
-https://nytimes.com/2021/04/16/crosswords/daily-puzzle-2021-04-17.html?searchResultPosition=9
+**When Her Mother Died, She Found Solace at a Korean Grocery**\
+`Michelle Zauner, a musician who performs under the name Japanese Breakfast, is making her book debut with “Crying in H Mart.”`\
+https://nytimes.com/2021/04/17/books/michelle-zauner-japanese-breakfast-crying-in-h-mart.html?searchResultPosition=9
 
-**U.S. and Japan Pledge to Advance Democratic Values**\
-`President Biden welcomed Prime Minister Yoshihide Suga of Japan to the White House, where they pledged to work together to counter authoritarianism and advance “shared democratic norms.”`\
-https://nytimes.com/video/us/politics/100000007715163/biden-japan-prime-minister-suga.html?searchResultPosition=10
+**Can Covid Research Help Solve the Mysteries of Other Viruses?**\
+`The coronavirus may help scientists understand why some people with common viral infections develop severe complications, like heart damage or blood clots.`\
+https://nytimes.com/2021/04/17/health/long-covid-heart-research.html?searchResultPosition=10
 
