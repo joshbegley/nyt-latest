@@ -2,7 +2,7 @@
 `Tampa Bay’s latest victory dropped the Yankees to 5-8. Meanwhile the Mets had yet another game postponed.`\
 https://nytimes.com/2021/04/16/sports/baseball/yankees-mets.html?searchResultPosition=1
 
-**In a Spasm of Violence, Indianapolis Faces Its Third Mass Shooting in 2021**\
+**In a Spasm of Violence, Indianapolis Faces the Country’s Latest Mass Shooting**\
 `The country grappled with yet another bloody rampage, only weeks after back-to-back mass shootings last month in Atlanta and Boulder, Colo.`\
 https://nytimes.com/2021/04/16/us/indianapolis-mass-shooting-fedex.html?searchResultPosition=2
 
