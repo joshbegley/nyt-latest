@@ -16,7 +16,7 @@ https://nytimes.com/2021/04/17/world/europe/funeral-prince-philip-uk.html?search
 
 **After a Year of Turmoil, Elite Universities Welcome More Diverse Freshman Classes**\
 `The aftermath of the George Floyd protests and a decreased reliance on standardized tests have led to more diverse admissions at elite universities.`\
-https://nytimes.com/2021/04/17/us/minority-acceptance-rate-university-college.html?searchResultPosition=5
+https://nytimes.com/2021/04/17/us/minority-acceptance-ivy-league-cornell.html?searchResultPosition=5
 
 **Biden Choice for Justice Dept.’s No. 2 Is Seen as a Consensus Builder**\
 `Lisa Monaco, a veteran of national security posts, is expected to be a key player in the administration’s push to combat domestic extremism, embodied most publicly in the department’s inquiry into the Capitol attack.`\
