@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/17/arts/dance/liam-scarlett-dead.html?searchResultPo
 https://nytimes.com/2021/04/17/theater/helen-mccrory-appraisal.html?searchResultPosition=2
 
 **Aleksei Navalny Needs His Doctors**\
-`Vladimir Putin may be able to save his nemesis’s life. He must.`\
+`Vladimir Putin may be able to save his nemesis’ life. He must.`\
 https://nytimes.com/2021/04/17/opinion/navalny-poisoning-prison-doctors.html?searchResultPosition=3
 
 **Peloton Fights Back Against U.S. Warnings of Treadmill Dangers**\
