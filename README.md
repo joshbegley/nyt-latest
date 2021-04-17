@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/17/crosswords/variety-special-cryptic.html?searchResultPosition=1
 
 **Prince Philip Is Laid to Rest in a Somber 50-Minute Ceremony**\
-`The televised and live-streamed rite afforded Britons a chance to witness a slight easing in the strained relations between Princes William and Harry after reports of their feuding.`\
+`The televised and live-streamed rite afforded Britons a chance to witness a seeming slight easing in the strained relations between Princes William and Harry.`\
 https://nytimes.com/2021/04/17/world/europe/funeral-prince-philip-uk.html?searchResultPosition=2
 
 **After a Year of Turmoil, Elite Universities Welcome More Diverse Freshman Classes**\
