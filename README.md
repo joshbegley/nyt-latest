@@ -14,13 +14,13 @@ https://nytimes.com/2021/04/17/world/europe/germany-green-party-merkel.html?sear
 `Qualms about the vaccines’ development are not entirely misguided. But we can make amends for past injustice.`\
 https://nytimes.com/2021/04/17/opinion/vaccines-abortion-catholics.html?searchResultPosition=4
 
-**I Have Read Thousands of Résumés and I Have Some Advice**\
-`The history of this strange document can tell job-seekers what works and what doesn’t.`\
-https://nytimes.com/2021/04/17/opinion/resume-advice.html?searchResultPosition=5
-
 **I’m the Head of Planned Parenthood. We’re Done Making Excuses for Our Founder.**\
 `We must reckon with Margaret Sanger’s association with white supremacist groups and eugenics.`\
-https://nytimes.com/2021/04/17/opinion/planned-parenthood-Karen.html?searchResultPosition=6
+https://nytimes.com/2021/04/17/opinion/planned-parenthood-margaret-sanger.html?searchResultPosition=5
+
+**I Have Read Thousands of Résumés and I Have Some Advice**\
+`The history of this strange document can tell job-seekers what works and what doesn’t.`\
+https://nytimes.com/2021/04/17/opinion/resume-advice.html?searchResultPosition=6
 
 **‘Be Kind Whenever Possible. It Is Always Possible.’**\
 `We asked readers about their life philosophies. We published a selection of their responses last weekend, and now are highlighting several more.`\
