@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/17/world/covid-deaths-3-million.html?searchResultPosition=1
 
 **Watch Live: Prince Philip’s Funeral**\
-`The funeral of Prince Philip, the Duke of Edinburgh, is underway at St. George’s Chapel in Windsor Castle. Philip, the husband of Queen Elizabeth II, died last week at age 99.`\
+`The funeral of Prince Philip, the Duke of Edinburgh, is underway at Windsor Castle. Philip, the husband of Queen Elizabeth II, died last week at age 99.`\
 https://nytimes.com/video/world/europe/100000007715477/live-stream-prince-phillip-funeral.html?searchResultPosition=2
 
 **Crypto is Minting Lobbyists**\
