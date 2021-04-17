@@ -34,7 +34,7 @@ https://nytimes.com/2021/04/17/opinion/sunday/ron-desantis-republicans.html?sear
 `The U.S. vaccination campaign’s race against the spread of variants — especially B.1.1.7 — is being hobbled by rebounding U.S. tourism and entrenched vaccine hesitancy.`\
 https://nytimes.com/2021/04/17/world/b117-covid-variant-pennsylvania.html?searchResultPosition=9
 
-**The Biden Administration Ends Limits on the Use of Fetal Tissue for Research**\
+**Biden Administration Ends Limits on Use of Fetal Tissue for Research**\
 `The decision reverses Trump administration rules and allows scientists to use tissue derived from elective abortions to develop treatments for diseases including cancer and AIDS.`\
 https://nytimes.com/2021/04/17/health/fetal-tissue-research-abortion.html?searchResultPosition=10
 
