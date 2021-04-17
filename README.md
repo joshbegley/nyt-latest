@@ -28,7 +28,7 @@ https://nytimes.com/2021/04/17/business/retirement/rising-debt-falling-income-ho
 
 **Democrats Aim to Revive a Campaign Finance Watchdog**\
 `Republicans denounced the proposed overhaul as an attempt to mount a partisan takeover of what critics consider a moribund Federal Election Commission.`\
-https://nytimes.com/2021/04/17/us/democrats-aim-to-revive-a-campaign-finance-watchdog.html?searchResultPosition=8
+https://nytimes.com/2021/04/17/us/federal-election-commission.html?searchResultPosition=8
 
 **When Her Mother Died, She Found Solace at a Korean Grocery**\
 `Michelle Zauner, a musician who performs under the name Japanese Breakfast, is making her book debut with “Crying in H Mart.”`\
