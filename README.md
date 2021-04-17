@@ -34,7 +34,7 @@ https://nytimes.com/2021/04/17/us/federal-election-commission.html?searchResultP
 `Michelle Zauner, a musician who performs under the name Japanese Breakfast, is making her book debut with “Crying in H Mart.”`\
 https://nytimes.com/2021/04/17/books/michelle-zauner-japanese-breakfast-crying-in-h-mart.html?searchResultPosition=9
 
-**Can Covid Research Help Solve the Mysteries of Other Viruses?**\
-`The coronavirus may help scientists understand why some people with common viral infections develop severe complications, like heart damage or blood clots.`\
-https://nytimes.com/2021/04/17/health/long-covid-heart-research.html?searchResultPosition=10
+**Philip’s funeral, a nod to a life of service, is scaled back in a time of pandemic.**\
+`By Megan Specia`\
+https://nytimes.com/2021/04/17/world/europe/philips-funeral-a-nod-to-a-life-of-service-is-scaled-back-in-a-time-of-pandemic.html?searchResultPosition=10
 
