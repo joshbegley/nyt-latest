@@ -8,7 +8,7 @@ https://nytimes.com/video/world/europe/100000007715658/prince-philip-funeral-win
 
 **In a bid to curb the virus, Zimbabwe releases hundreds of prisoners.**\
 `At least 320 prisoners were released on Saturday in an effort to ease congestion in the country’s notoriously crowded jails.`\
-https://nytimes.com/2021/04/17/world/in-a-bid-to-curb-the-virus-zimbabwe-releases-hundreds-of-prisoners.html?searchResultPosition=3
+https://nytimes.com/2021/04/17/world/zimbabwe-coronavirus-prisoners.html?searchResultPosition=3
 
 **Seeing the queen alone adds a painful note for many watching from home.**\
 `By Louis Lucero II`\
