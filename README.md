@@ -1,5 +1,5 @@
 **Aleksei Navalny Should Be in Intensive Care, His Doctors Say**\
-`Doctors said recent blood tests indicated that the Russian opposition leader, who is nearly three weeks into a hunger strike, was at risk of heart failure and ‘could die at any moment.’`\
+`Doctors said recent blood tests indicated that the Russian opposition leader, who is nearly three weeks into a hunger strike, was at risk of heart failure and “could die at any moment.”`\
 https://nytimes.com/2021/04/18/world/europe/navalny-russia-doctors.html?searchResultPosition=1
 
 **Asian-American Artists, Now Activists, Push Back Against Hate**\
