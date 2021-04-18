@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/18/world/covid-vaccines-tourism-alask.html?searchRes
 https://nytimes.com/2021/04/18/us/bruces-beach-manhattan-california.html?searchResultPosition=6
 
 **Top European Soccer Teams Agree to Join Breakaway League**\
-`A group led by Juventus, Manchester United, Liverpool and Real Madrid has agreed in principle on a plan that would upend the sport’s structures and economics.`\
+`A group that includes Juventus, Manchester United, Liverpool and Real Madrid has agreed in principle on a plan that would upend the sport’s structures and economics.`\
 https://nytimes.com/2021/04/18/sports/soccer/super-league-united-liverpool-juventus-madrid.html?searchResultPosition=7
 
 **The Sunday Read: ‘Voices Carry’**\
