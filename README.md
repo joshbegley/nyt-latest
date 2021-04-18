@@ -1,4 +1,4 @@
-**Train Crash in Egypt Leaves at Least 11 Dead**\
+**At Least 11 Dead in Egyptian Rail Accident**\
 `A passenger train derailed north of Cairo on Sunday, the Egyptian authorities said. It was the latest of several deadly train accidents in Egypt in recent years.`\
 https://nytimes.com/video/world/middleeast/100000007716496/egypt-train-derailment.html?searchResultPosition=1
 
