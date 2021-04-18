@@ -14,8 +14,8 @@ https://nytimes.com/2021/04/17/world/asia/china-us-emissions.html?searchResultPo
 `In a National desk project, people across the country describe, in their own words, how the pandemic has transformed the way they live, work and think.`\
 https://nytimes.com/2021/04/17/insider/pandemic-life-transformations.html?searchResultPosition=4
 
-**Jacob deGrom Fans Nine in a Row as Mets Beat Rockies**\
-`The Mets’ ace fell one short of Tom Seaver’s major league record. The Yankees dropped to an A.L.-worst record of 5-9.`\
+**Jacob deGrom Fans Nine in a Row as Mets Split Doubleheader**\
+`The Mets’ ace fell one short of Tom Seaver’s major league record in a win over the Rockies. The Yankees dropped to an A.L.-worst record of 5-9.`\
 https://nytimes.com/2021/04/17/sports/baseball/degrom-mets-yankees.html?searchResultPosition=5
 
 **Czechs Blame 2014 Blasts at Ammunition Depots on Elite Russian Spy Unit**\
