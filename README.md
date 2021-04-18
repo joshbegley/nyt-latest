@@ -22,8 +22,8 @@ https://nytimes.com/2021/04/17/world/europe/czech-republic-skirpal-russia-gru.ht
 `Quotation of the Day for Sunday, April 18, 2021.`\
 https://nytimes.com/2021/04/17/todayspaper/quotation-of-the-day-deadly-run-ins-with-the-police-show-no-pause.html?searchResultPosition=6
 
-**Indianapolis Sikhs Mourn FedEx Shooting Victims as Questions About Motive Linger**\
-`Four of the eight people killed on Thursday night were from Indiana’s growing Sikh community.`\
+**FedEx Gunman Bought 2 Rifles After Police Seized His Shotgun, Chief Says**\
+`Brandon Hole, 19, had his shotgun taken away in March 2020 after his mother raised concerns about his mental state, records show. But he was able to legally make gun purchases just months later.`\
 https://nytimes.com/2021/04/17/us/indianapolis-shooting-victims.html?searchResultPosition=8
 
 **Indianapolis police chief says gunman bought weapons legally despite earlier warning.**\
