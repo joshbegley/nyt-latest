@@ -12,7 +12,7 @@ https://nytimes.com/2021/04/18/world/pope-francis-sunday-blessing.html?searchRes
 
 **Sinn Fein Leader Apologizes for 1979 Killing of Prince Philip’s Uncle**\
 `Mary Lou McDonald, leader of the party that was once the political wing of the paramilitary Irish Republican Army, said she was sorry for its assassination of Louis Mountbatten.`\
-https://nytimes.com/2021/04/18/world/europe/sinn-fein-apology-mountbatten.html?searchResultPosition=6
+https://nytimes.com/2021/04/18/world/europe/sinn-fein-louis-mountbatten-prince-philip.html?searchResultPosition=6
 
 **Revisiting the Unusual Celebrity of Stephen Hawking**\
 `In “Hawking Hawking,” Charles Seife offers a portrait of the famous theoretical physicist and tries to unpack his place in popular culture.`\
