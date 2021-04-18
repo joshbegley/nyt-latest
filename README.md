@@ -26,11 +26,11 @@ https://nytimes.com/2021/04/18/opinion/letters/climate-plastics.html?searchResul
 `Sean Kazmar Jr., who pinch-hit for Atlanta on Saturday, had been in the minors since a brief call-up in 2008.`\
 https://nytimes.com/2021/04/18/sports/baseball/sean-kazmar-atlanta.html?searchResultPosition=8
 
-**What Joe Biden and I Saw After the U.S. Invaded Afghanistan**\
-`Back when we visited in 2002, there was hope that America could help make the country better.`\
-https://nytimes.com/2021/04/18/opinion/joe-biden-afghanistan-2002.html?searchResultPosition=9
-
 **A Different Way of Thinking About Cancel Culture**\
 `Social media companies and other organizations are looking out for themselves.`\
-https://nytimes.com/2021/04/18/opinion/cancel-culture-social-media.html?searchResultPosition=10
+https://nytimes.com/2021/04/18/opinion/cancel-culture-social-media.html?searchResultPosition=9
+
+**What Joe Biden and I Saw After the U.S. Invaded Afghanistan**\
+`Back when we visited in 2002, there was hope that America could help make the country better.`\
+https://nytimes.com/2021/04/18/opinion/joe-biden-afghanistan-2002.html?searchResultPosition=10
 
