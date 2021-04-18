@@ -12,7 +12,7 @@ https://nytimes.com/2021/04/18/arts/design/asian-american-artists-activism.html?
 
 **Airport vaccinations are just a flight away. To Alaska.**\
 `Alaska is the 22d state to announce plans to vaccinate nonresidents against the coronavirus.`\
-https://nytimes.com/2021/04/18/world/covid-vaccines-tourism-alask.html?searchResultPosition=5
+https://nytimes.com/2021/04/18/world/covid-vaccines-tourism-alaska.html?searchResultPosition=5
 
 **California Beach Seized in 1924 From a Black Family Could Be Returned**\
 `Nearly a century ago, the city of Manhattan Beach shuttered a resort that belonged to Willa and Charles Bruce. Though the county is trying to give the land back, the city has declined to apologize.`\
