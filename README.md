@@ -22,15 +22,15 @@ https://nytimes.com/2021/04/17/todayspaper/quotation-of-the-day-deadly-run-ins-w
 `Four of the eight people killed on Thursday night were from Indiana’s growing Sikh community.`\
 https://nytimes.com/2021/04/17/us/indianapolis-shooting-victims.html?searchResultPosition=7
 
+**Indianapolis police chief says gunman bought weapons legally despite earlier warning.**\
+`Chief Randal Taylor said the gunman in the attack bought two assault-style weapons in July and August. Months earlier, his mother had warned the police about his mental state.`\
+https://nytimes.com/2021/04/17/us/Indianapolis-gunman-weapons.html?searchResultPosition=8
+
 **The shooting in Indianapolis adds to a grim toll of workplace violence in the U.S.**\
 `Mass shootings in American workplaces are not a new phenomenon.`\
-https://nytimes.com/2021/04/17/us/the-shooting-in-indianapolis-adds-to-a-grim-toll-of-workplace-violence-in-the-us.html?searchResultPosition=8
+https://nytimes.com/2021/04/17/us/the-shooting-in-indianapolis-adds-to-a-grim-toll-of-workplace-violence-in-the-us.html?searchResultPosition=9
 
-**Ontario, hit with a virus surge, gives police sweeping new powers.**\
+**Ontario, hit with a virus surge, backtracks on sweeping new police powers.**\
 `Canada has inched ahead of the United States in new daily coronavirus cases per capita, and officials warned that worse is to come.`\
-https://nytimes.com/2021/04/17/world/ontario-covid-cases-police-canada.html?searchResultPosition=9
-
-**A Rare Find**\
-`Johan Vass tilts toward genius in his enchanting Times crossword debut.`\
-https://nytimes.com/2021/04/17/crosswords/daily-puzzle-2021-04-18.html?searchResultPosition=10
+https://nytimes.com/2021/04/17/world/ontario-covid-cases-police-canada.html?searchResultPosition=10
 
