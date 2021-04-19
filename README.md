@@ -18,8 +18,8 @@ https://nytimes.com/interactive/2021/04/19/us/derek-chauvin-police-killings.html
 `The criticism adds to a scathing backlash against findings by the Johnson government that called Britain a ‘model for other white-majority countries.’`\
 https://nytimes.com/2021/04/19/world/europe/britain-race-united-nations-boris-johnson.html?searchResultPosition=5
 
-**India faces new lockdowns, as well as oxygen and drug shortages, as cases spiral.**\
-`The city of Delhi is beginning a week of restrictions as local governments there and elsewhere struggle to cope with a second wave of the coronavirus.`\
+**India faces new lockdowns plus oxygen and drug shortages as cases spiral.**\
+`The city of Delhi is beginning a week of restrictions, as local governments there and elsewhere struggle to cope with a second wave of the coronavirus.`\
 https://nytimes.com/2021/04/19/world/india-delhi-lockdown.html?searchResultPosition=6
 
 **How Corporate Donations Changed After the Capitol Riot**\
