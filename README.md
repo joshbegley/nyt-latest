@@ -22,7 +22,7 @@ https://nytimes.com/2021/04/19/us/louisiana-boat-capsize.html?searchResultPositi
 `Mr. Albin put drugs, prison and biker gangs behind him, started a construction business and counseled prisoners. He died of complications of the coronavirus.`\
 https://nytimes.com/2021/04/19/obituaries/Jerry-lee-albin-dead-coronavirus.html?searchResultPosition=7
 
-**Emergent BioSolutions temporarily shutters its Baltimore plant, where J.&J. doses were ruined, at the F.D.A.’s request.**\
+**Emergent BioSolutions halts operations at its Baltimore plant, where J.&J. doses were ruined, at the F.D.A.’s request.**\
 `The Times had reported that production of new batches of the Johnson & Johnson vaccine would be put on hold while the review was underway.`\
 https://nytimes.com/2021/04/19/us/emergent-johnson-covid-vaccine.html?searchResultPosition=8
 
