@@ -18,8 +18,8 @@ https://nytimes.com/2021/04/18/sports/baseball/mets-rockies-bieber.html?searchRe
 `Red flag laws are supposed to keep guns away from people who should not have them. That did not happen with the gunman who killed eight people in Indianapolis.`\
 https://nytimes.com/2021/04/18/us/fedex-shooting-indianapolis-gun-laws.html?searchResultPosition=5
 
-**Rage Against European Super League Is Muffled by Our Cheers**\
-`A breakaway league would remake European soccer to benefit a few rich teams, but would we watch it anyway?`\
+**Outrage About European Super League Is Muffled by Our Cheers**\
+`A breakaway league would remake European soccer to benefit a few rich teams, but we will watch it anyway.`\
 https://nytimes.com/2021/04/18/sports/soccer/super-league-real-madrid-liverpool.html?searchResultPosition=6
 
 **What Snoop Dogg’s Success Says About the Book Industry**\
