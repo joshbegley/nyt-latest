@@ -14,8 +14,8 @@ https://nytimes.com/2021/04/19/business/media/the-village-voice-returns.html?sea
 `Attorney General Merrick B. Garland commemorated the 26th anniversary of the Oklahoma City bombing on Monday, vowing to combat domestic extremism. Mr. Garland led the investigation into the 1995 attack on the Alfred P. Murrah Federal Building as a young Justice Department official.`\
 https://nytimes.com/video/us/politics/100000007718193/merrick-garland-oklahoma-city-bombing-domestic-extremism.html?searchResultPosition=4
 
-**Coast Guard to Suspend Search for 8 Missing From Capsized Vessel**\
-`The Seacor Power, a lift boat carrying 19 people, capsized last week, eight miles from a Louisiana port during stormy weather.`\
+**With Search Ending, 13 Are Dead in Capsized Vessel**\
+`The Seacor Power, a lift boat carrying 19 people, capsized last week, eight miles from a Louisiana port in stormy weather. Six crew members were quickly rescued. The bodies of five others have been recovered.`\
 https://nytimes.com/2021/04/19/us/louisiana-boat-capsize.html?searchResultPosition=6
 
 **Jerry Lee Albin, Who Found Sobriety After a Hard Life, Dies at 75**\
