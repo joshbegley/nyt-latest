@@ -1,6 +1,6 @@
 **Journalists at Insider join union wave.**\
 `Journalists at the  site, formerly called Business Insider, joined a unionization wave that has swept digital media companies.`\
-https://nytimes.com/2021/04/19/business/media/journalists-at-insider-join-union-wave.html?searchResultPosition=1
+https://nytimes.com/2021/04/19/business/media/insider-union.html?searchResultPosition=1
 
 **A New Source for Smoked Trout**\
 `Idaho rainbow trout is the latest release from Fishwife Tinned Seafood Co.`\
