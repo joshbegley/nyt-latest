@@ -2,7 +2,7 @@
 `Officials are trying to determine whether the reports might be cases of a rare, serious blood clotting disorder. It’s unclear whether the vaccine was responsible for the original cases.`\
 https://nytimes.com/2021/04/19/us/johnson-vaccine-pause.html?searchResultPosition=1
 
-**U.S. Readies Small Business Grants as P.P.P. Nears End**\
+**U.S. Readies Small-Business Grants as P.P.P. Nears End**\
 `New programs for restaurants and live-event businesses will soon start taking applications as the Paycheck Protection Program winds down.`\
 https://nytimes.com/2021/04/19/business/us-readies-small-business-grants-as-ppp-nears-end.html?searchResultPosition=2
 
