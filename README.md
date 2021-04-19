@@ -1,40 +1,40 @@
-**Breakaway European Soccer League Starts Legal Action to Defend Itself**\
-`The founding members of a league that would reshape the sport have warned its authorities that they have filed motions in multiple courts to stymie any efforts to block their plans.`\
-https://nytimes.com/2021/04/19/sports/soccer/european-super-league-football.html?searchResultPosition=1
+**Adults in all U.S. states are now eligible for vaccination, hitting Biden’s target. Half have had at least one dose.**\
+`Hawaii, Massachusetts, New Jersey, Oregon, Rhode Island and Vermont were the last states to expand eligibility on Monday. More than 131 million Americans have received at least one shot of a Covid-19 vaccine.`\
+https://nytimes.com/2021/04/19/world/adults-eligible-covid-vaccine.html?searchResultPosition=1
 
-**A Cuba Without a Castro? A Country Steps Into the Unknown.**\
-`Raúl Castro is preparing to step down as head of Cuba’s Communist Party, leaving Cubans without a Castro to lead them for the first time in over 60 years.`\
-https://nytimes.com/2021/04/19/world/americas/cuba-castro.html?searchResultPosition=2
+**On the Water in Alaska, Where Salmon Fishing Dreams Live On**\
+`Each summer, salmon begin their journey back to the rivers where they were spawned. Alaskan fishermen, along with whales, eagles and bears, share in the abundance.`\
+https://nytimes.com/2021/04/19/travel/alaska-salmon-fishing.html?searchResultPosition=2
 
-**A Quiet Arms Race Is Rapidly Heating Up Between the Two Koreas**\
-`The buildup over the last few years has threatened the delicate balance of peace on the Korean Peninsula.`\
-https://nytimes.com/2021/04/19/world/asia/korea-missiles-arms-race.html?searchResultPosition=3
+**There’s a Booming Business in America’s Forests. Some Aren’t Happy About It.**\
+`The fuel pellet industry is thriving. Supporters see it as a climate-friendly source of rural jobs. For others, it’s a polluter and destroyer of nature.`\
+https://nytimes.com/2021/04/19/climate/wood-pellet-industry-climate.html?searchResultPosition=3
 
-**Ray McGuire Wants to Show He’s Not Just the Wall Street Candidate**\
-`Mr. McGuire has landed endorsements from Representative Gregory W. Meeks and three hip-hop giants as his campaign for New York mayor enters a crucial phase.`\
-https://nytimes.com/2021/04/19/nyregion/ray-mcguire-jay-z-nas-mayor.html?searchResultPosition=4
+**‘We Were Left With Nothing.’ Argentina’s Misery Deepens in the Pandemic.**\
+`The economy contracted by nearly 10 percent last year, and the country faces a reckoning with the I.M.F. over $45 billion in debts.`\
+https://nytimes.com/2021/04/19/business/argentina-economy.html?searchResultPosition=4
 
-**The Fed Faces Criticism as It Wades Into Climate and Equity Issues**\
-`The Federal Reserve is proudly politically independent. That makes key discussions around climate change and racial inequity a balancing act.`\
-https://nytimes.com/2021/04/19/business/economy/federal-reserve-politics.html?searchResultPosition=5
+**Fleeing a Modern War, Syrians Seek Refuge in Ancient Ruins**\
+`So many people have fled to Syria’s crowded northwest that families have settled in important archaeological sites. “We, too, have become ruins.”`\
+https://nytimes.com/2021/04/19/world/middleeast/fleeing-a-modern-war-syrians-seek-refuge-in-ancient-ruins.html?searchResultPosition=5
 
-**They Told Her Women Couldn’t Join the Ambulance Corps. So She Started Her Own.**\
-`Judge Rachel Freier has helped dozens of Orthodox Jewish women in New York City get training and start work as emergency medical technicians. In doing so, she challenged her community’s conception of the role women can play in public and professional life.`\
-https://nytimes.com/2021/04/19/us/ezras-nashim-womens-EMT.html?searchResultPosition=6
+**Progressive Lawmakers to Unveil Legislation on Energy and Public Housing**\
+`The proposal, billed as the Green New Deal for Public Housing Act, offers a clear policy marker for liberals as Democrats seek to influence President Biden’s $2.3 trillion infrastructure plan.`\
+https://nytimes.com/2021/04/19/us/politics/progressives-infrastructure-legislation.html?searchResultPosition=6
 
-**‘God Knows What’s Going to Happen’: Minneapolis Braces for Verdict in Floyd’s Death**\
-`Businesses boarded up and residents held their breath, fearing a repeat of last year’s unrest if the jury brings back a decision that the public sees as unjust.`\
-https://nytimes.com/2021/04/19/us/derek-chauvin-trial-verdict-george-floyd.html?searchResultPosition=7
+**Brooklyn Man Finds New Life in Crime (Writing)**\
+`Jonathan Ames, known for his confessional essays and TV shows like “Bored to Death,” tries his hand at a detective novel with “A Man Named Doll.”`\
+https://nytimes.com/2021/04/19/books/jonathan-ames-man-named-doll.html?searchResultPosition=7
 
-**Yang Lands Last Place on Ballot: 5 Takeaways From the Mayor’s Race**\
-`The ballot order for the June 22 New York mayoral primary was decided by lottery, not alphabetical order, but Andrew Yang will still appear last.`\
-https://nytimes.com/2021/04/19/nyregion/mayor-race-yang-video-ballot.html?searchResultPosition=8
+**The Supreme Court’s Increasingly Dim View of the News Media**\
+`A comprehensive look at references to the press in justices’ opinions revealed “a marked and previously undocumented uptick in negative depictions.”`\
+https://nytimes.com/2021/04/19/us/supreme-court-news-media.html?searchResultPosition=8
 
-**Word of the Day: lamentable**\
-`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/19/learning/word-of-the-day-lamentable.html?searchResultPosition=9
+**Shopping for Kitchen Stools**\
+`You know you need at least a couple, but which ones? Here’s how to choose — without making the ‘rookie designer mistake.’`\
+https://nytimes.com/2021/04/19/realestate/shopping-kitchen-stools.html?searchResultPosition=9
 
-**What’s on TV This Week: The Oscars and a Greta Thunberg Documentary**\
-`This year’s Academy Awards ceremony airs on ABC. And PBS airs a three-part documentary pegged to Earth Day.`\
-https://nytimes.com/2021/04/19/arts/television/whats-on-tv-this-week-oscars-greta-thunberg-documentary.html?searchResultPosition=10
+**With ‘Knives Out’ Deal, Netflix Signals It’s in the Franchise Business**\
+`The streaming gold rush of 2017-18, when Netflix scooped up big-name television creators, now seems to have migrated to the film world.`\
+https://nytimes.com/2021/04/19/business/media/netflix-knives-out-deal.html?searchResultPosition=10
 
