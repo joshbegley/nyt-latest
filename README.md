@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/19/opinion/cancel-culture-trevor-noah-event.html?searchResultPosition=1
 
 **This Vegan Ramen Maximizes Flavor and Time**\
-`This take on tantanmen relies on mildly sweet soy milk for its rich, creamy base, which tastes like it’s been cooked much longer.`\
+`The rich, creamy broth in this tantanmen tastes like it’s been cooked much longer.`\
 https://nytimes.com/2021/04/19/dining/vegan-ramen-tantanmen.html?searchResultPosition=2
 
 **Michael Musto, Lynn Yaeger and Mickey Boardman: Friends for Life**\
