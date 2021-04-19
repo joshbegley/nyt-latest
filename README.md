@@ -1,5 +1,5 @@
-**Prosecutor Describes George Floyd’s Last Moments In Closing Statement**\
-`Steve Schleicher, a prosecutor for the Derek Chauvin trial, the officer accused of killing George Floyd, focused his closing statements on describing in vivid detail the last moments of Mr. Floyd’s life.`\
+**Prosecutor Describes George Floyd’s Last Moments in Closing Statement**\
+`Steve Schleicher, a prosecutor for the Derek Chauvin trial, the former police officer accused of killing George Floyd, focused his closing statements on describing in vivid detail the last moments of Mr. Floyd’s life.`\
 https://nytimes.com/video/us/100000007717686/chauvin-trial-prosecutor-clsoing-statement.html?searchResultPosition=1
 
 **Authorities Did Not Try to Use ‘Red Flag’ Law for Indianapolis Gunman**\
