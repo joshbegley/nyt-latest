@@ -10,8 +10,8 @@ https://nytimes.com/2021/04/19/us/chauvin-trial-closing-arguments.html?searchRes
 `Giuseppe Santoni updates the craft of traditional Italian shoemaking.`\
 https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007718670/the-modern-art-of-classic-italian-footwear.html?searchResultPosition=4
 
-**Teachers’ Union Endorses Scott Stringer, Offering Much-Needed Boost**\
-`It is unclear how much the United Federation of Teachers’ backing will actually sway voters two months before the Democratic primary.`\
+**Teachers’ Union Backs Stringer for N.Y.C. Mayor, Giving Him a Boost**\
+`The endorsement comes at a critical time for the city comptroller, who has struggled to gain traction in the race.`\
 https://nytimes.com/2021/04/19/nyregion/scott-stringer-uft-endorsement-mayor.html?searchResultPosition=5
 
 **Coronavirus Briefing: What Happened Today**\
