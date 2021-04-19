@@ -1,5 +1,5 @@
 **A defense lawyer and the judge suggest a congresswoman’s comments could offer grounds for appeal.**\
-`By Catie Edmondson`\
+`Representative Maxine Waters said that demonstrators should “get more confrontational” if the jury doesn’t return a guilty verdict.`\
 https://nytimes.com/2021/04/19/us/maxine-waters-comments.html?searchResultPosition=1
 
 **A Helicopter Flies on Mars**\
