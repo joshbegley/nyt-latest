@@ -1,32 +1,40 @@
+**The Solitary Queen Elizabeth: An Iconic Image**\
+`A reader says no other picture has captured our experience as a world since the onset of Covid. Also: Leave Karen alone; yoga as a path to wisdom.`\
+https://nytimes.com/2021/04/19/opinion/letters/covid-queen-elizabeth-britain.html?searchResultPosition=1
+
+**This Singer is Using Her Voice in a New Way**\
+`Meet Robin Barnes. The pandemic upended her music career but she gathered the courage to pivot and to redefine her goals and discovered a greater purpose.`\
+https://nytimes.com/paidpost/us-bank/the-power-of-the-pivot-vpp3/this-singer-is-using-her-voice-in-a-new-way.html?searchResultPosition=2
+
+**These Two Nurses Fought Covid and Found Each Other**\
+`Meet Angelica Wilson and Jamie Harrell. The pandemic hit just as they were embarking on their new beginnings in life and career. But they found optimism and hope in each other through it all.`\
+https://nytimes.com/paidpost/us-bank/the-power-of-the-pivot-vpp2/these-two-nurses-fought-covid-and-found-each-other.html?searchResultPosition=3
+
+**This Mom Took Her Business Sense to New Heights**\
+`Meet Shernay Williams Delice. Before the pandemic hit, her life’s focus had already shifted from career to family. But amid the added uncertainty, she discovered new ventures and found something great.`\
+https://nytimes.com/paidpost/us-bank/the-power-of-the-pivot-vpp1/this-mom-took-her-business-sense-to-new-heights.html?searchResultPosition=4
+
+**U.S. to Begin Offering Vaccines to Detainees at Guantánamo Bay**\
+`The plan, initiated during the Trump administration, had been delayed after a political and public outcry.`\
+https://nytimes.com/2021/04/19/us/politics/covid-vaccine-guantanamo-bay.html?searchResultPosition=5
+
 **American Airlines’ chief explains his opposition to restrictive voting laws.**\
 `Doug Parker, the C.E.O., said in a meeting with employees that voting rights was “an equity issue,” according to a recording of the conversation.`\
-https://nytimes.com/2021/04/19/business/american-airlines-voting-laws.html?searchResultPosition=1
+https://nytimes.com/2021/04/19/business/american-airlines-voting-laws.html?searchResultPosition=6
 
 **Little has been said about the $20 bill that brought officers to the scene.**\
 `George Floyd used it to buy cigarettes, but a store clerk thought it was fake. Neither side in the trial has spent much time addressing it.`\
-https://nytimes.com/2021/04/19/us/george-floyd-bill-counterfeit.html?searchResultPosition=2
+https://nytimes.com/2021/04/19/us/george-floyd-bill-counterfeit.html?searchResultPosition=7
 
 **Prosecutor Describes George Floyd’s Last Moments in Closing Statement**\
 `Steve Schleicher, a prosecutor for the Derek Chauvin trial, the former police officer accused of killing George Floyd, focused his closing statements on describing in vivid detail the last moments of Mr. Floyd’s life.`\
-https://nytimes.com/video/us/100000007717686/chauvin-trial-prosecutor-clsoing-statement.html?searchResultPosition=3
+https://nytimes.com/video/us/100000007717686/chauvin-trial-prosecutor-clsoing-statement.html?searchResultPosition=8
 
 **Authorities Did Not Try to Use ‘Red Flag’ Law for Indianapolis Gunman**\
 `Citing shortcomings of the state’s “red flag” law, the local prosecutor explained why he did not seek a ruling last year that would have barred Brandon Hole from possessing guns.`\
-https://nytimes.com/2021/04/19/us/indianapolis-shooting-red-flag-law.html?searchResultPosition=4
+https://nytimes.com/2021/04/19/us/indianapolis-shooting-red-flag-law.html?searchResultPosition=9
 
 **LaDonna Allard Dies at 64; Led Dakota Pipeline Protests**\
 `She started a resistance camp that turned into a movement that opposed fossil fuels while it embraced tribal sovereignty and environmental justice.`\
-https://nytimes.com/2021/04/19/us/ladonna-allard-dead.html?searchResultPosition=5
-
-**Taylor Swift’s Rerecorded ‘Fearless’ Is the Year’s Biggest Debut So Far**\
-`“Fearless (Taylor’s Version)” opened with the equivalent of 291,000 sales in the United States, giving her a third No. 1 album in just under nine months.`\
-https://nytimes.com/2021/04/19/arts/music/taylor-swift-fearless-taylors-version-billboard-chart.html?searchResultPosition=6
-
-**Can Tech Make the Roads Safer?**\
-`We know the dangers of surveillance, but people are dying. Maybe we need more cameras on the roads.`\
-https://nytimes.com/2021/04/19/technology/tech-road-safety.html?searchResultPosition=8
-
-**Facebook, preparing for Chauvin verdict, to limit posts that might incite violence.**\
-`The company said it planned to limit posts that contain misinformation and hate speech related to the trial to keep them from spilling over into real-world harm.`\
-https://nytimes.com/2021/04/19/technology/facebook-chauvin-verdict-violence.html?searchResultPosition=10
+https://nytimes.com/2021/04/19/us/ladonna-allard-dead.html?searchResultPosition=10
 
