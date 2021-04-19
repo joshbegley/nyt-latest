@@ -34,7 +34,7 @@ https://nytimes.com/2021/04/19/us/politics/supreme-court-green-cards.html?search
 `Jen Psaki says the Biden administration is trying to figure out how to process more refugees.`\
 https://nytimes.com/2021/04/19/us/biden-refugees-psaki.html?searchResultPosition=9
 
-**U.S. health officials are examining ‘a handful’ of new, unconfirmed reports after Johnson & Johnson vaccine pause, the C.D.C. director says.**\
+**U.S. health officials are examining ‘a handful’ of new, unconfirmed reports after J.& J. vaccine pause, the C.D.C. director says.**\
 `Officials are trying to determine whether the reports might be cases of a rare, serious blood clotting disorder. It’s unclear whether the vaccine was responsible for the original cases.`\
 https://nytimes.com/2021/04/19/us/johnson-vaccine-pause.html?searchResultPosition=10
 
