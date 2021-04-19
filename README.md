@@ -2,8 +2,8 @@
 `The Portuguese coach’s 17 months in charge at the North London club failed to deliver the successes that marked his career at teams like Chelsea and Real Madrid.`\
 https://nytimes.com/2021/04/19/sports/soccer/tottenham-hotspur-jose-mourinho-sacked.html?searchResultPosition=1
 
-**Aleksei Navalny Is Transferred to Hospital for Vitamin Treatment**\
-`The high-profile Russian opposition leader has been on hunger strike for nearly three weeks. The U.S. has warned of “consequences” should he die.`\
+**Aleksei Navalny Is Transferred to Hospital After Long Hunger Strike**\
+`The imprisoned Russian opposition leader was moved for what the authorities described as vitamin treatment. The U.S. has warned of “consequences” should he die.`\
 https://nytimes.com/2021/04/19/world/europe/navalny-hospital-prison-russia.html?searchResultPosition=2
 
 **Irrational Covid Fears**\
