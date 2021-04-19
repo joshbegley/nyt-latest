@@ -1,6 +1,6 @@
 **Here’s how to watch the closing arguments in the Derek Chauvin trial.**\
 `The trial of Derek Chauvin in the death of George Floyd is being livestreamed from Minneapolis.`\
-https://nytimes.com/2021/04/19/us/heres-how-to-watch-the-closing-arguments-in-the-derek-chauvin-trial.html?searchResultPosition=1
+https://nytimes.com/2021/04/19/us/watch-closing-arguments-derek-chauvin-trial.html?searchResultPosition=1
 
 **Few Charges, Fewer Convictions: The Chauvin Trial and the History of Police Violence**\
 `A review of 18 deaths of Black Americans involving police officers shows that, despite public outrage, guilty verdicts are rare.`\
