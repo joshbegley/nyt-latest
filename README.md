@@ -31,6 +31,6 @@ https://nytimes.com/2021/04/19/us/emergent-johnson-covid-vaccine.html?searchResu
 https://nytimes.com/interactive/2021/04/19/us/cuomo-book-investigation.html?searchResultPosition=9
 
 **France Enabled 1994 Rwanda Genocide, Report Says**\
-`A report commissioned by the Rwandan government accuses France of enabling the genocide of at least 800,000 people, and withholding “critical documents and testimony.”`\
+`A report commissioned by the Rwandan government accuses France of enabling the genocide of at least 800,000 people and of withholding “critical documents and testimony.”`\
 https://nytimes.com/2021/04/19/world/africa/france-rwanda-genocide-report.html?searchResultPosition=10
 
