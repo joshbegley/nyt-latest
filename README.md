@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/20/us/president-biden-comments-derek-chauvin-verdict.html?searchResultPosition=1
 
 **Idriss Déby Dies at 68; Poor Herder’s Son Became Chad’s Longtime Autocrat**\
-`Mr. Déby who was aiming for a fourth decade in power, died from what the government called wounds sustained at a battlefront with rebels.`\
+`Mr. Déby, who was aiming for a fourth decade in power, died from what the government called wounds sustained at a battlefront with rebels.`\
 https://nytimes.com/2021/04/20/world/africa/idriss-deby-chad-obituary.html?searchResultPosition=2
 
 **House Democrats Defeat G.O.P. Attempt to Censure Maxine Waters**\
