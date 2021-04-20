@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2021/04/20/learning/20Student-News-Quiz.html?sea
 https://nytimes.com/2021/04/20/business/dealbook/dimon-lebron-super-league.html?searchResultPosition=2
 
 **President of Chad Is Killed as Soldiers Clash With Rebels**\
-`Idriss Déby, who had ruled for three decades and had just secured his sixth term in office, had been visiting the front lines in the north of the country, his spokesman said.`\
+`Idriss Déby, who ruled for three decades and had just secured his sixth term in office, had been visiting the front lines in the north of the country.`\
 https://nytimes.com/2021/04/20/world/africa/president-chad-killed.html?searchResultPosition=3
 
 **Dogecoin fans push ‘Doge Day’ while global stocks fall.**\
