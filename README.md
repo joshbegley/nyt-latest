@@ -1,4 +1,4 @@
-**A Year After ‘Tiger King,’ Bill Aims to Protect Big Cats**\
+**One Year After ‘Tiger King,’ Bill Aims to Protect Big Cats**\
 `The Big Cat Public Safety Act has been introduced before, but a bipartisan group of lawmakers hopes the public outcry from the Netflix documentary series will finally help it become law.`\
 https://nytimes.com/2021/04/20/us/politics/tiger-king-bill.html?searchResultPosition=2
 
