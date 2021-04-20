@@ -26,15 +26,15 @@ https://nytimes.com/2021/04/20/climate/biden-climate-change.html?searchResultPos
 `Democrats pushing a giant federal elections overhaul summoned leaders from the state, which has passed new voting restrictions, to spar over Republican efforts.`\
 https://nytimes.com/2021/04/20/us/politics/senate-voting-rights-hearing.html?searchResultPosition=7
 
+**On TV, a tense wait, and then an emotional response.**\
+`Every major broadcast and cable news network — and even ESPN — broke into regular programming on Tuesday for live coverage of the Derek Chauvin verdict.`\
+https://nytimes.com/2021/04/20/us/television-derek-chauvin-verdict.html?searchResultPosition=8
+
 **Lawmakers and activists react to the Derek Chauvin verdict.**\
 `“Today, a jury did the right thing,” former President Barack Obama said. “But true justice requires much more.”`\
-https://nytimes.com/2021/04/20/us/chauvin-verdict-reaction-obama.html?searchResultPosition=8
+https://nytimes.com/2021/04/20/us/chauvin-verdict-reaction-obama.html?searchResultPosition=9
 
 **Darnella Frazier captured George Floyd’s death on her cellphone. The teenager’s video shaped the Chauvin trial.**\
 `Ms. Frazier was 17 when she recorded the cellphone video in May and uploaded it to Facebook. ‘When I look at George Floyd, I look at my dad,’ she said in court.`\
-https://nytimes.com/2021/04/20/us/darnella-frazier-video.html?searchResultPosition=9
-
-**Bush Says G.O.P. Has Become ‘to Some Degree Nativist’**\
-`The former president also assailed the Trump-era Republican Party as “isolationist, protectionist,” and expressed concern about the fate of girls in Afghanistan if the Taliban take over.`\
-https://nytimes.com/2021/04/20/us/politics/george-w-bush-republican-party.html?searchResultPosition=10
+https://nytimes.com/2021/04/20/us/darnella-frazier-video.html?searchResultPosition=10
 
