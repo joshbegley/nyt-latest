@@ -1,5 +1,5 @@
 **Arrest of Colorado Woman With Dementia Prompts Investigation**\
-`Karen Garner, 73, of Loveland, Colo., walked out of a Walmart without paying for $13.88 worth of items. Police officers broke a bone in her arm and dislocated her left shoulder, a lawsuit says.`\
+`Karen Garner, 73, of Loveland, Colo., walked out of a Walmart without paying for $13.88 worth of items. Police officers broke a bone in her arm and dislocated her shoulder, a lawsuit says.`\
 https://nytimes.com/2021/04/20/us/karen-garner-loveland-police-dementia.html?searchResultPosition=1
 
 **Apple shows off new devices and sets release date for disputed iPhone software.**\
