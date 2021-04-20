@@ -22,7 +22,7 @@ https://nytimes.com/2021/04/20/books/spite-simon-mccarthy-jones.html?searchResul
 `How much prison time Mr. Chauvin, the former Minneapolis police officer charged in the killing of George Floyd, would have to serve if he is found guilty will not be decided until several weeks later.`\
 https://nytimes.com/2021/04/20/us/chauvin-trial-sentencing-verdict.html?searchResultPosition=9
 
-**Netflix’s dominance in streaming starts to slow as rivals gain ground.**\
+**Netflix’s Dominance Starts to Slow as Rivals Gain**\
 `The streaming service reported the addition of four million new customers for the first quarter, below the six million it had forecast.`\
 https://nytimes.com/2021/04/20/business/media/netflix-subscribers-earnings.html?searchResultPosition=10
 
