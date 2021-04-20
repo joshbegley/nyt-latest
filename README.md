@@ -2,7 +2,7 @@
 `The psychologist Simon McCarthy-Jones writes about the different varieties of spite, and argues that the emotion “can be a force for good,” if deployed strategically.`\
 https://nytimes.com/2021/04/20/books/spite-simon-mccarthy-jones.html?searchResultPosition=1
 
-**Derek Chauvin faces three charges. Here’s how he could be sentenced for each.**\
+**Derek Chauvin faces three charges. Here’s how his sentencing could unfold.**\
 `How much prison time Mr. Chauvin, the former Minneapolis police officer charged in the killing of George Floyd, would have to serve if he is found guilty will not be decided until several weeks later.`\
 https://nytimes.com/2021/04/20/us/chauvin-trial-sentencing-verdict.html?searchResultPosition=3
 
