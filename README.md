@@ -11,7 +11,7 @@ https://nytimes.com/2021/04/20/us/chauvin-sentencing-murder.html?searchResultPos
 https://nytimes.com/2021/04/20/arts/harriet-tubman-cabin.html?searchResultPosition=3
 
 **Reaction to the Guilty Verdict in Chauvin Trial**\
-`Crowds cheered and chanted George Floyd’s name as the verdict was read out in Minneapolis.`\
+`Crowds cheered and chanted George Floyd’s name outside the Hennepin County Courthouse in Minneapolis.`\
 https://nytimes.com/video/us/100000007718223/chauvin-trial-verdict-reaction-video.html?searchResultPosition=4
 
 **Biden Is Pushing a Climate Agenda. Gina McCarthy Has to Make It Stick.**\
