@@ -12,7 +12,7 @@ https://nytimes.com/video/us/100000007720608/long-island-west-hempstead-grocery-
 
 **The jury in the Derek Chauvin trial has reached a verdict.**\
 `If convicted of second-degree murder, the former Minneapolis police officer could face a 40-year sentence.`\
-https://nytimes.com/2021/04/20/us/the-jury-in-the-derek-chauvin-trial-has-reached-a-verdict.html?searchResultPosition=4
+https://nytimes.com/2021/04/20/us/derek-chauvin-jury-reached-verdict.html?searchResultPosition=4
 
 **How the Artists Behind ‘Shtisel’ Brought Akiva’s Journey to Life**\
 `To capture the tensions faced by a young ultra-Orthodox artist, the creative team behind the hit Israeli TV show hired two painters who understood the stakes.`\
