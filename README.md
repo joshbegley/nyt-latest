@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/20/business/dealbook/dimon-lebron-super-league.html?searchResultPosition=1
 
 **President of Chad Is Killed as Soldiers Clash With Rebels**\
-`Idriss Déby, who had ruled for three decades and had just secured his sixth term in office, had been visiting the front lines in the north of the country.`\
+`Idriss Déby, who had ruled for three decades and had just secured his sixth term in office, had been visiting the front lines in the north of the country, his spokesman said.`\
 https://nytimes.com/2021/04/20/world/africa/president-chad-killed.html?searchResultPosition=2
 
 **Caving to Islamists, Pakistan’s Parliament Debates Expelling French Ambassador**\
