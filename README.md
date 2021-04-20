@@ -11,8 +11,8 @@ https://nytimes.com/2021/04/20/movies/the-marijuana-conspiracy-review.html?searc
 https://nytimes.com/2021/04/20/movies/red-moon-tide-review.html?searchResultPosition=3
 
 **China’s Xi delivers a message of openness, and a veiled warning to the U.S.**\
-`By Alexandra Stevenson`\
-https://nytimes.com/2021/04/20/business/chinas-xi-delivers-a-message-of-openness-and-a-veiled-warning-to-the-us.html?searchResultPosition=4
+`The country’s top leader warned that the world should not allow “unilateralism pursued by certain countries to set the pace for the whole world.”`\
+https://nytimes.com/2021/04/20/business/xi-china-message-warning.html?searchResultPosition=4
 
 **On the Menu at a Lunch in Italy: Protected Songbirds**\
 `The Italian police were called to investigate a luncheon for a potential violation of coronavirus rules. They found a feast of migrating finches.`\
