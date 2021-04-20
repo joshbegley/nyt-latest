@@ -11,15 +11,15 @@ https://nytimes.com/2021/04/20/us/chauvin-sentencing-murder.html?searchResultPos
 https://nytimes.com/2021/04/20/arts/harriet-tubman-cabin.html?searchResultPosition=3
 
 **Reaction to the Guilty Verdict in Chauvin Trial**\
-`Crowds cheered and chanted George Floyd’s name outside the Hennepin County Courthouse in Minneapolis.`\
+`Crowds in downtown Minneapolis cheered and chanted George Floyd’s name after the verdict was announced.`\
 https://nytimes.com/video/us/100000007718223/chauvin-trial-verdict-reaction-video.html?searchResultPosition=4
 
 **Biden Is Pushing a Climate Agenda. Gina McCarthy Has to Make It Stick.**\
 `Gina McCarthy, Barack Obama’s E.P.A. chief, could only watch as the Trump administration dismantled her climate work. Now, she’s back with another chance to build a lasting legacy.`\
 https://nytimes.com/2021/04/20/climate/gina-mccarthy-climate.html?searchResultPosition=5
 
-**Watch Live: Minnesota Attorney General and George Floyd’s Family React to Verdict**\
-`Keith Ellison, the attorney general of Minnesota, and the family of George Floyd hold a news conference after the jury announced the verdict in the trial of the former Minneapolis police officer Derek Chauvin.`\
+**Watch Live: George Floyd’s Family Reacts to Verdict**\
+`The family of George Floyd hold a news conference after the jury announced the guilty verdict in the trial of the former Minneapolis police officer Derek Chauvin.`\
 https://nytimes.com/video/us/100000007720876/george-floyd-chauvin-verdict-live.html?searchResultPosition=6
 
 **Coal Is Set to Roar Back, and So Are Its Climate Risks**\
