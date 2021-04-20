@@ -1,6 +1,6 @@
 **Derek Chauvin is found guilty of murdering George Floyd.**\
 `The jury convicted Mr. Chauvin of second- and third-degree murder, as well as manslaughter. He faces up to 40 years in prison but is likely to be sentenced to far less time, based on state guidelines.`\
-https://nytimes.com/2021/04/20/us/chauvin-guilty-murder.html?searchResultPosition=1
+https://nytimes.com/2021/04/20/us/chauvin-guilty-murder-george-floyd.html?searchResultPosition=1
 
 **Chuck Geschke, Father of Desktop Publishing, Dies at 81**\
 `In 1980, he and a fellow researcher created a way of sending documents between a computer and a printer. Apple showed an interest. The rest is history.`\
