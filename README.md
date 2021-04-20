@@ -10,9 +10,9 @@ https://nytimes.com/2021/04/20/business/dealbook/dimon-lebron-super-league.html?
 `Idriss Déby, who had ruled for three decades and had just secured his sixth term in office, had been visiting the front lines in the north of the country, his spokesman said.`\
 https://nytimes.com/2021/04/20/world/africa/president-chad-killed.html?searchResultPosition=3
 
-**Dogecoin fans push ‘DogeDay’ while global stocks fall.**\
-`By Eshe Nelson`\
-https://nytimes.com/2021/04/20/business/dogecoin-fans-push-dogeday-while-global-stocks-fall.html?searchResultPosition=5
+**Dogecoin fans push ‘Doge Day’ while global stocks fall.**\
+`Traders of the cryptocurrency, which has a market value of more than $50 billion, were trying to push up the price to coincide with April 20, or 4/20.`\
+https://nytimes.com/2021/04/20/business/dogecoin-dogeday-markets.html?searchResultPosition=5
 
 **Caving to Islamists, Pakistan’s Parliament Debates Expelling French Ambassador**\
 `Just a week ago, the government declared Tehreek-e-Labaik Pakistan a terrorist organization. But after a wave of violent protests spurred by the publication of caricatures in France, the government acquiesced to the Islamist party’s demands.`\
