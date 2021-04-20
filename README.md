@@ -1,5 +1,5 @@
 **‘A Threat From the Russian State’: Ukrainians Alarmed as Troops Mass on Their Doorstep**\
-`Few analysts believe Moscow intends to invade. But as Russia’s military buildup proceeds, the tension is rising in war-weary Eastern Ukraine.`\
+`Few analysts believe that Moscow intends to invade. But as Russia’s military buildup proceeds, the tension is rising in war-weary Eastern Ukraine.`\
 https://nytimes.com/2021/04/20/world/europe/-ukraine-russia-putin-invasion.html?searchResultPosition=1
 
 **Celebrating Ramadan**\
