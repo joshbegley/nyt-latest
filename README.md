@@ -2,8 +2,8 @@
 `State and federal officials announced on Tuesday that they had located the site of the Maryland cabin where the Underground Railroad conductor lived as a young adult.`\
 https://nytimes.com/2021/04/20/arts/harriet-tubman-cabin.html?searchResultPosition=1
 
-**Reaction to the Guilty Verdicts in Chauvin Trial**\
-`Watch the immediate reaction to the Derek Chauvin verdict outside Hennepin County Courthouse in Minneapolis.`\
+**Reaction to the Guilty Verdict in Chauvin Trial**\
+`Crowds cheered and chanted George Floyd’s name as the verdict was read out in Minneapolis.`\
 https://nytimes.com/video/us/100000007718223/chauvin-trial-verdict-reaction-video.html?searchResultPosition=2
 
 **Biden Is Pushing a Climate Agenda. Gina McCarthy Has to Make It Stick.**\
