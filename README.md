@@ -10,8 +10,8 @@ https://nytimes.com/2021/04/20/dining/nyc-restaurant-news.html?searchResultPosit
 `A new study shows the role of the super rich in politics since the Supreme Court loosened restrictions on political spending more than a decade ago.`\
 https://nytimes.com/2021/04/20/us/politics/megadonors-political-spending.html?searchResultPosition=3
 
-**Jewel Box Dining at the Barclays Center**\
-`The Crown Club, from Major Food Group, will cater to V.I.P.s at the arena, namely Nets fans with courtside seats.`\
+**Jewel Box Dining Comes to Barclays Center**\
+`Crown Club, from Major Food Group, will cater to V.I.P.s at the arena, namely Nets fans with courtside seats.`\
 https://nytimes.com/2021/04/20/dining/crown-club-barclays-center.html?searchResultPosition=4
 
 **Watch Live: Senate Judiciary Hearing on Voting Rights**\
