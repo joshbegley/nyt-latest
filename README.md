@@ -1,40 +1,40 @@
-**The Cant-Free Elegance of Jenny Diski’s Irresistible Mind**\
-`“Why Didn’t You Just Do What You Were Told?,” by the British critic and novelist who died in 2016, features essays originally published in The London Review of Books that showcase her keen wit, incisive observations and intimate voice.`\
-https://nytimes.com/2021/04/20/books/review/why-didnt-you-just-do-what-you-were-told-jenny-diski.html?searchResultPosition=1
+**Iran Rattled as Israel Repeatedly Strikes Key Targets**\
+`Recent attacks suggest that Israel has a clandestine network inside Iran and that Iranian security services have been powerless to break it.`\
+https://nytimes.com/2021/04/20/world/middleeast/iran-israeli-attacks.html?searchResultPosition=1
 
-**Cuomo’s Pandemic Book Leads to an Investigation**\
-`Gov. Cuomo is already weathering investigations into his professional conduct and personal behavior — and now his work as an author will be scrutinized as well.`\
-https://nytimes.com/2021/04/20/nyregion/cuomo-pandemic-book-investigation.html?searchResultPosition=2
+**What Makes a Home ‘Sexy’?**\
+`For one Chicago entrepreneur, it was a design that felt as if it had been pulled straight from her unconscious. (And there are lots of chains.)`\
+https://nytimes.com/2021/04/20/realestate/what-makes-a-home-sexy.html?searchResultPosition=2
 
-**Lesson of the Day: ‘How Working From Home Changed Wardrobes Around the World’**\
-`In this lesson, students travel from India to Italy to see how months of self-isolation, lockdown and working and learning from home have affected what we wore.`\
-https://nytimes.com/2021/04/20/learning/lesson-of-the-day-how-working-from-home-changed-wardrobes-around-the-world.html?searchResultPosition=3
+**A Chicago Apartment That’s ‘Super Moody’**\
+`To the owner, the design felt as if it had been pulled straight from her unconscious.`\
+https://nytimes.com/slideshow/2021/04/20/realestate/a-chicago-apartment-thats-super-moody.html?searchResultPosition=3
 
-**The Improvement Association, Chapter Three: The Ballad of the Nursing Home Ballots**\
-`Which stories stick?`\
-https://nytimes.com/2021/04/20/podcasts/the-improvement-association-election-fraud.html?searchResultPosition=4
+**A Global Tipping Point for Reining In Tech Has Arrived**\
+`Never before have so many countries, including China, moved with such vigor at the same time to limit the power of a single industry.`\
+https://nytimes.com/2021/04/20/technology/global-tipping-point-tech.html?searchResultPosition=4
 
-**Japanese Businessmen Brighten Makeup Industry Amid Pandemic**\
-`The coronavirus pandemic has pushed many businesses in Japan to the edge of financial ruin, but Takumi Tezuka, who owns a makeup and hair salon for men in Tokyo, has seen his customer base expand.`\
-https://nytimes.com/aponline/2021/04/20/business/ap-as-japan-mens-makeup.html?searchResultPosition=5
+**17 Restaurants Where New Yorkers Can Make Up for Lost Time**\
+`Spring blossoms and vaccinations are bringing the city out of hibernation. Pete Wells shares his favorite places that opened while many of us were staying home.`\
+https://nytimes.com/2021/04/20/dining/restaurants-nyc-return.html?searchResultPosition=5
 
-**‘A Threat From the Russian State’: Ukrainians Alarmed as Troops Mass on Their Doorstep**\
-`Few analysts believe that Moscow intends to invade. But as Russia’s military buildup proceeds, the tension is rising in war-weary Eastern Ukraine.`\
-https://nytimes.com/2021/04/20/world/europe/-ukraine-russia-putin-invasion.html?searchResultPosition=6
+**Seth Rogen and the Secret to Happiness**\
+`How the comedian (and director, writer, ceramist and weed entrepreneur) has made a career out of mining the pitfalls and possibilities of adolescence.`\
+https://nytimes.com/2021/04/20/magazine/seth-rogen.html?searchResultPosition=6
 
-**Celebrating Ramadan**\
-`How are you celebrating the Holy Month?`\
-https://nytimes.com/2021/04/20/learning/celebrating-ramadan.html?searchResultPosition=7
+**Newer Planes Are Providing Airlines a Trove of Useful Data**\
+`During the pandemic, older aircraft have been retired, resulting in a fleet that can collect more information about emissions and safety.`\
+https://nytimes.com/2021/04/20/business/airplanes-technology-data.html?searchResultPosition=7
 
-**Jimmy Kimmel to Mike Lindell: The Obsession Is Mutual**\
-`“Mike Lindell doesn’t seem to understand I’m his biggest fan,” Kimmel said of the MyPillow C.E.O. “I have no idea what he is doing, but I love it.”`\
-https://nytimes.com/2021/04/20/arts/television/jimmy-kimmel-mike-lindell.html?searchResultPosition=8
+**Why Is It So Hard to Show Black Women’s Musical Genius Onscreen?**\
+`Oscar-nominated performances this season put the emphasis on the trauma, not the artistry, of Billie Holiday and Ma Rainey. The most insightful movie might just be “Soul.”`\
+https://nytimes.com/2021/04/20/movies/ma-rainey-billie-holiday.html?searchResultPosition=8
 
-**Word of the Day: effigy**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/20/learning/word-of-the-day-effigy.html?searchResultPosition=9
+**Restaurants Fought for Covid Survival, With Some Tech Helpers**\
+`Being “online” in the pandemic, many chefs learned, meant much more than having an Instagram account.`\
+https://nytimes.com/2021/04/20/business/small-business-restaurants-covid.html?searchResultPosition=9
 
-**Your Tuesday Briefing**\
-`Wider vaccine eligibility in the U.S.`\
-https://nytimes.com/2021/04/19/briefing/your-tuesday-briefing.html?searchResultPosition=10
+**5 Things to Know About Booking a Summer Rental**\
+`Property owners, agencies and management companies are predicting a busy, if not outright bonkers, summer.`\
+https://nytimes.com/2021/04/20/travel/summer-vacation-rental-covid.html?searchResultPosition=10
 
