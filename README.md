@@ -1,4 +1,4 @@
-**Caving to Islamists, Pakistan Will Vote to Expel the French Ambassador**\
+**Caving to Islamists, Pakistan’s Parliament Debates Expelling French Ambassador**\
 `Just a week ago, the government declared Tehreek-e-Labaik Pakistan a terrorist organization. But after a wave of violent protests spurred by the publication of caricatures in France, the government acquiesced to the Islamist party’s demands.`\
 https://nytimes.com/2021/04/20/world/asia/pakistan-france-ambassador.html?searchResultPosition=2
 
