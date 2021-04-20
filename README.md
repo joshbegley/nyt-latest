@@ -18,8 +18,8 @@ https://nytimes.com/2021/04/20/business/media/netflix-subscribers-earnings.html?
 `Complacency and lack of preparation by the Indian government pushed the country into an unprecedented crisis.`\
 https://nytimes.com/2021/04/20/opinion/india-covid-crisis.html?searchResultPosition=8
 
-**House Minority Leader Kevin McCarthy moves to force a vote to censure Maxine Waters.**\
-`Democrats moved to kill Mr. McCarthy’s measure, which party leaders condemned as hypocritical.`\
+**House Democrats squelch a Republican effort to censure Maxine Waters for saying protesters should get more ‘confrontational.’**\
+`Democrats killed a measure by Representative Kevin McCarthy, the minority leader, condemning it as hypocritical.`\
 https://nytimes.com/2021/04/20/us/politics/chauvin-censure-maxine-waters.html?searchResultPosition=9
 
 **Are American Values Ruining European Football?**\
