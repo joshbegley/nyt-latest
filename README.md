@@ -1,4 +1,4 @@
-**Florida Bill Adding New Restrictions to Voting Heads to Legislature**\
+**Florida Voting Restrictions Bill Heads to Legislature**\
 `The bill, which was recently softened, still includes measures like a ban on giving water to voters near polling places, and it would also empower partisan observers during the ballot-counting process.`\
 https://nytimes.com/2021/04/20/us/politics/florida-voting-bill.html?searchResultPosition=1
 
