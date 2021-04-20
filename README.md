@@ -23,7 +23,7 @@ https://nytimes.com/2021/04/20/world/africa/president-chad-killed.html?searchRes
 https://nytimes.com/2021/04/20/business/dogecoin-dogeday-markets.html?searchResultPosition=7
 
 **Caving to Islamists, Pakistan’s Parliament Debates Expelling French Ambassador**\
-`Just a week ago, the government declared Tehreek-e-Labaik Pakistan a terrorist organization. But after a wave of violent protests spurred by the publication of caricatures in France, the government acquiesced to the Islamist party’s demands.`\
+`Just a week ago, the government declared Tehreek-e-Labaik Pakistan a terrorist group. But after violent protests spurred by the publication of caricatures in France, the government acquiesced to the Islamist party’s demands.`\
 https://nytimes.com/2021/04/20/world/asia/pakistan-france-ambassador.html?searchResultPosition=8
 
 **Fending Off the Package Pirates**\
