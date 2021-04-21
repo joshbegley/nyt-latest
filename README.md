@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/21/world/asia/indonesian-navy-submarine-missing.html?searchResultPosition=1
 
 **Trudeau Was a Global Climate Hero. Now Canada Risks Falling Behind.**\
-`Canada is the only G7 nation whose greenhouse gas emissions have increased since the Paris agreement. The main reason: Its oil sands.`\
+`Canada is the only G7 nation whose greenhouse gas emissions have increased since the Paris agreement. The main reason: its oil sands.`\
 https://nytimes.com/2021/04/21/world/canada/trudeau-climate-oil-sands.html?searchResultPosition=2
 
 **George Floyd ‘Changed the World,’ and Other Reflections**\
