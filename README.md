@@ -6,13 +6,13 @@ https://nytimes.com/2021/04/21/business/economy/gensler-wall-street-sec.html?sea
 `New Yorkers celebrated the first 4/20 since the legalization of personal use.`\
 https://nytimes.com/interactive/2021/04/21/nyregion/new-yorkers-celebrate-marijuana-legislation.html?searchResultPosition=3
 
-**Why Don’t Some TV Shows Sound the Way They Used To?**\
-`Licensing issues have gutted the soundtracks of many beloved series on streaming services, resulting in bewildering music cues and missing theme songs.`\
-https://nytimes.com/2021/04/21/arts/television/tv-soundtracks-dawsons-creek-freaks-and-geeks.html?searchResultPosition=4
-
 **When Co-Stars Compete at the Oscars, Who Wins?**\
 `Daniel Kaluuya and Lakeith Stanfield of “Judas and the Black Messiah” are going head-to-head for best supporting actor. Here’s how they might fare.`\
-https://nytimes.com/2021/04/21/movies/oscars-best-supporting-actor.html?searchResultPosition=5
+https://nytimes.com/2021/04/21/movies/oscars-best-supporting-actor.html?searchResultPosition=4
+
+**Why Don’t Some TV Shows Sound the Way They Used To?**\
+`Licensing issues have gutted the soundtracks of many beloved series on streaming services, resulting in bewildering music cues and missing theme songs.`\
+https://nytimes.com/2021/04/21/arts/television/tv-soundtracks-dawsons-creek-freaks-and-geeks.html?searchResultPosition=5
 
 **‘Skate Kitchen,’ ‘Night Moves’ and More Streaming Gems**\
 `Enjoy these options that are off the beaten path.`\
