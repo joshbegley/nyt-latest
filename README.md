@@ -19,7 +19,7 @@ https://nytimes.com/video/us/100000007722454/merrick-garland-minneapolis-police-
 https://nytimes.com/2021/04/21/style/james-charles-youtube-demonetized.html?searchResultPosition=5
 
 **Bolsonaro’s Sudden Pledge to Protect the Amazon Met With Skepticism**\
-`Under Biden, Brazil has taken steps to burnish its environmental record — for which it’s seeking billions of dollars from the international community.`\
+`The Biden era has prompted Brazil to take steps to burnish its record as an environmental scoundrel — for which it’s seeking billions of dollars from the international community.`\
 https://nytimes.com/2021/04/21/world/americas/bolsonaro-climate-amazon.html?searchResultPosition=6
 
 **Ice for Sore Muscles? Think Again.**\
