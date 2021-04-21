@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/21/arts/television/late-night-derek-chauvin.html?sea
 `The organizers of a European soccer league didn’t believe in their idea enough to defend it.`\
 https://nytimes.com/2021/04/21/sports/soccer/super-league-florentino-perez.html?searchResultPosition=2
 
-**They Pretended to Be Investigators. Then They Scammed Her Out of $33 Million.**\
+**Phone Scammers Talked Her Into Handing Over $33 Million**\
 `In one of the most staggering phone scams in Hong Kong memory, a 90-year-old woman was robbed over five months by swindlers who accused her of money laundering.`\
 https://nytimes.com/2021/04/21/world/asia/hong-kong-phone-scam.html?searchResultPosition=3
 
