@@ -1,40 +1,40 @@
-**Late Night Addresses the Derek Chauvin Verdict**\
-`“It’s hard to celebrate, because a man is still dead, but there is a sense of relief that at least this one injustice was not compounded with indifference,” said a somber Stephen Colbert.`\
-https://nytimes.com/2021/04/21/arts/television/late-night-derek-chauvin.html?searchResultPosition=1
+**New Yorkers React to Derek Chauvin Verdict**\
+`New York residents and public figures responded with surprise, elation and resignation. `\
+https://nytimes.com/2021/04/21/nyregion/george-floyd-derek-chauvin-new-york.html?searchResultPosition=1
 
-**Billions and Bluster and the Super League That Wasn’t**\
-`The organizers of a European soccer league didn’t believe in their idea enough to defend it.`\
-https://nytimes.com/2021/04/21/sports/soccer/super-league-florentino-perez.html?searchResultPosition=2
+**‘He Was Our Dreams’: A College Basketball Star’s Wrenching Death**\
+`Days after leading his college team to its first men’s N.C.A.A. tournament, Oscar Frayer was killed in a highway crash. Loved ones said he had finally found his footing in life.`\
+https://nytimes.com/2021/04/21/sports/ncaabasketball/oscar-frayer-grand-canyon-car-crash.html?searchResultPosition=2
 
-**Phone Scammers Talked Her Into Handing Over $33 Million**\
-`In one of the most staggering Hong Kong phone cons in recent memory, a 90-year-old woman was swindled over five months.`\
-https://nytimes.com/2021/04/21/world/asia/hong-kong-phone-scam.html?searchResultPosition=3
+**Antibody rates among Black and Hispanic New Yorkers are double those of others, new estimates show.**\
+`A study found at least a third of Black and Hispanic New York City residents had antibodies after the first wave a year ago, but only 16 percent of white New Yorkers did.`\
+https://nytimes.com/2021/04/21/nyregion/new-york-city-antibody-rates.html?searchResultPosition=3
 
-**Stars and Stripes Scaffolding**\
-`What do you think this image is saying?`\
-https://nytimes.com/2021/04/21/learning/stars-and-stripes-scaffolding.html?searchResultPosition=4
+**House Hunting in France: A Medieval Estate Near Provence for $3 Million**\
+`In the South of France, where vacation homes dominate much of the housing market, demand is rising for serenity and outdoor space.`\
+https://nytimes.com/2021/04/21/realestate/house-hunting-in-france-a-medieval-estate-near-provence-for-3-million.html?searchResultPosition=4
 
-**After Trump ‘Failed,’ South Korean Leader Hopes Biden Can Salvage Nuclear Deal**\
-`In an interview with The New York Times, President Moon Jae-in of South Korea urged the United States to sit down with North Korea.`\
-https://nytimes.com/2021/04/21/world/asia/biden-north-korea-nuclear-deal-president-moon.html?searchResultPosition=5
+**War, Peace and Taliban Spreadsheets**\
+`The Taliban have been recording and contesting every perceived U.S. violation of the troop withdrawal deal.`\
+https://nytimes.com/2021/04/21/world/asia/afghanistan-taliban-spreadsheets.html?searchResultPosition=5
 
-**Word of the Day: beseech**\
-`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/21/learning/word-of-the-day-beseech.html?searchResultPosition=6
+**Some Male Birds Fly Under False Colors to Attract Mates, Study Suggests**\
+`Elaborate feather microstructures allow male tanagers to enhance their colors, making them seem as if they are higher quality mates.`\
+https://nytimes.com/2021/04/21/science/birds-tanagers-mating-color.html?searchResultPosition=6
 
-**Monte Hellman, Cult Director of ‘Two-Lane Blacktop,’ Dies at 91**\
-`Part of Roger Corman’s army of young and hungry actors and filmmakers, he made terse, spare action movies and became a cult hero of the American independent film movement.`\
-https://nytimes.com/2021/04/21/movies/monte-hellman-dead.html?searchResultPosition=7
+**Dark. Messy. Assaultive. Inscrutable. Even From Your Couch.**\
+`Without international tours, streaming high-concept, director-driven European theater is the next best thing to being there.`\
+https://nytimes.com/2021/04/21/theater/streaming-european-festivals.html?searchResultPosition=7
 
-**Kobe Bryant’s Nike Contract Expired. The Implications Are Complex.**\
-`The end of the deal has no analogue in basketball or sneaker history, opening a hole in the market as Bryant’s shoes have been used heavily by N.B.A. athletes and have seen high demand among the public since his death.`\
-https://nytimes.com/2021/04/21/sports/basketball/kobe-bryant-nike-deal.html?searchResultPosition=8
+**One of the World’s Oldest Science Experiments Comes Up From the Dirt**\
+`Every 20 years under the cover of darkness, scientists dig up seeds that were stashed 142 years ago beneath a college campus.`\
+https://nytimes.com/2021/04/21/science/beal-seeds-experiment.html?searchResultPosition=8
 
-**Nobody Saw the Knicks Coming**\
-`Behind Julius Randle, the Knicks have become one of the N.B.A.’s most surprising — and best defensive — teams. Kristaps Porzingis, who?`\
-https://nytimes.com/2021/04/21/sports/basketball/julius-randle-knicks-winning-streak.html?searchResultPosition=9
+**An 11th-Century Knight’s Tower in the South of France**\
+`This centuries-old estate on nearly 47 acres outside the medieval city of Uzes, in southern France, is on the market for $2.99 million.`\
+https://nytimes.com/slideshow/2021/04/21/realestate/an-11th-century-knights-tower-in-the-south-of-france.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`A jury finds Derek Chauvin guilty.`\
-https://nytimes.com/2021/04/20/briefing/your-wednesday-briefing.html?searchResultPosition=10
+**Writing in Italian, Jhumpa Lahiri Found a New Voice**\
+`In an unusual literary and linguistic feat, the Pulitzer-winning author of “Interpreter of Maladies” and “The Namesake” wrote her latest novel, “Whereabouts,” in Italian and translated it to English.`\
+https://nytimes.com/2021/04/21/books/jhumpa-lahiri-whereabouts.html?searchResultPosition=10
 
