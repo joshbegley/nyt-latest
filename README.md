@@ -1,4 +1,4 @@
-**After Trump ‘Failed’, South Korean Leader Hopes Biden Can Salvage Nuclear Deal**\
+**After Trump ‘Failed,’ South Korean Leader Hopes Biden Can Salvage Nuclear Deal**\
 `In an interview with The New York Times, President Moon Jae-in of South Korea urged the United States to sit down with North Korea.`\
 https://nytimes.com/2021/04/21/world/asia/biden-north-korea-nuclear-deal-president-moon.html?searchResultPosition=1
 
