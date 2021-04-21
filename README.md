@@ -12,7 +12,7 @@ https://nytimes.com/2021/04/21/arts/television/tv-soundtracks-dawsons-creek-frea
 
 **When Co-Stars Compete at the Oscars, Who Wins?**\
 `Daniel Kaluuya and Lakeith Stanfield of “Judas and the Black Messiah” are going head-to-head for best supporting actor. Here’s how they might fare.`\
-https://nytimes.com/2021/04/21/movies/when-co-stars-compete-at-the-oscars-who-wins.html?searchResultPosition=5
+https://nytimes.com/2021/04/21/movies/oscars-best-supporting-actor.html?searchResultPosition=5
 
 **‘Skate Kitchen,’ ‘Night Moves’ and More Streaming Gems**\
 `Enjoy these options that are off the beaten path.`\
