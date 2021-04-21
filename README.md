@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/21/arts/television/late-night-derek-chauvin.html?sea
 https://nytimes.com/2021/04/21/sports/soccer/super-league-florentino-perez.html?searchResultPosition=2
 
 **Phone Scammers Talked Her Into Handing Over $33 Million**\
-`In one of the most staggering phone scams in Hong Kong memory, a 90-year-old woman was robbed over five months by swindlers who accused her of money laundering.`\
+`In one of the most staggering Hong Kong phone cons in recent memory, a 90-year-old woman was swindled over five months.`\
 https://nytimes.com/2021/04/21/world/asia/hong-kong-phone-scam.html?searchResultPosition=3
 
 **Stars and Stripes Scaffolding**\
