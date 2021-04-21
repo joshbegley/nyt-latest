@@ -18,8 +18,8 @@ https://nytimes.com/2021/04/21/opinion/letters/george-floyd-derek-chauvin.html?s
 `“The Burmese military regime continues to ignore the will of the people of Burma to restore the country’s path to democracy,” Secretary of State Antony J. Blinken said.`\
 https://nytimes.com/2021/04/21/us/myanmar-sanctions.html?searchResultPosition=5
 
-**A British Man Took Stock of His Life After a Heart Attack. His Epiphany Resonated in a Big Way.**\
-`Jonathan Frostick, an investment bank program manager, was still in the hospital when he went on LinkedIn and vowed to step away from work and spend more time with his family. Thousands of people responded.`\
+**After His Heart Attack, a British Man’s Rules for Living Take Off on LinkedIn**\
+`Jonathan Frostick, a program manager at an investment bank, was still in the hospital when wrote a LinkedIn post vowing to step away from work and spend more time with his family. Thousands responded.`\
 https://nytimes.com/2021/04/21/business/jonathan-frostick-heart-attack-vows.html?searchResultPosition=7
 
 **Half a Century Later, John Lennon’s ‘Plastic Ono Band’ Still Hits Hard**\
