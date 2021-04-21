@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/20/crosswords/daily-puzzle-2021-04-21.html?searchRes
 `The president and the vice president addressed the nation on Tuesday evening.`\
 https://nytimes.com/2021/04/20/us/politics/biden-harris-chauvin-verdict-transcript.html?searchResultPosition=2
 
-**Teenage Girl Fatally Shot by the Police in Columbus, Officials Say**\
+**Teenage Girl Is Fatally Shot by the Police in Columbus, Officials Say**\
 `The use of deadly force in Ohio happened just before the former Minneapolis police officer Derek Chauvin was convicted of murdering George Floyd.`\
 https://nytimes.com/2021/04/20/us/columbus-ohio-shooting.html?searchResultPosition=3
 
