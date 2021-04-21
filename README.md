@@ -15,8 +15,8 @@ https://nytimes.com/2021/04/21/us/politics/republican-voting-laws.html?searchRes
 https://nytimes.com/2021/04/21/arts/music/sisters-with-transistors-women-synths.html?searchResultPosition=4
 
 **More than 18 million tuned in for the Chauvin verdict.**\
-`By John Koblin`\
-https://nytimes.com/2021/04/21/business/media/more-than-18-million-tuned-in-for-the-chauvin-verdict.html?searchResultPosition=5
+`Interest was strong throughout the three-week trial, and the reading of the verdict on Tuesday drew a huge viewership total for a late afternoon.`\
+https://nytimes.com/2021/04/21/business/media/chauvin-verdict-viewers.html?searchResultPosition=5
 
 **Indonesian Navy Submarine Goes Missing With 53 People on Board**\
 `The last request made by the submarine was for permission to descend to a deeper part of the Bali Sea.`\
