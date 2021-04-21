@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/20/us/verdict-reaction-chauvin-trial.html?searchResultPosition=7
 
 **‘It was a murder in full light of day,’ President Biden says of George Floyd’s death.**\
-`Mr. Biden delivered his remarks after weighing in on the trial’s outcome, telling reporters that he was “praying” for the “right verdict.”`\
+`Mr. Biden delivered his nationwide address hours after weighing in on the trial’s outcome and telling reporters that he had been “praying” for the “right verdict.”`\
 https://nytimes.com/2021/04/20/us/president-biden-comments-derek-chauvin-verdict.html?searchResultPosition=8
 
 **Idriss Déby Dies at 68; Poor Herder’s Son Became Chad’s Longtime Autocrat**\
