@@ -1,6 +1,6 @@
 **Federal Inspectors Say More Vaccines at Troubled Plant May Be Contaminated**\
 `Last month, up to 15 million doses of Johnson & Johnson’s vaccine had to be discarded at Emergent’s factory in Baltimore. A new report says problems were not fully investigated and other doses may be compromised.`\
-https://nytimes.com/2021/04/21/us/politics/emergent-johnson-covid-vaccine.html?searchResultPosition=1
+https://nytimes.com/2021/04/21/us/politics/emergent-johnson-johnson-covid-vaccine.html?searchResultPosition=1
 
 **Putin’s Tough Talk**\
 `Russian troops massed on the border of Ukraine, a dissident gravely ill, new sanctions. What’s it all mean?`\
