@@ -22,19 +22,19 @@ https://nytimes.com/2021/04/21/crosswords/daily-puzzle-2021-04-22.html?searchRes
 `W.W. Norton, citing the accusations that the author, Blake Bailey, faces, said it would stop shipping and promoting his new best-selling book.`\
 https://nytimes.com/2021/04/21/books/philip-roth-blake-bailey.html?searchResultPosition=6
 
+**A league of their own (or a section, anyway) for baseball fans who are fully vaccinated.**\
+`By Allyson Waller`\
+https://nytimes.com/2021/04/21/world/dodger-stadium-vaccinated-section.html?searchResultPosition=7
+
 **Lydia Ko Stops Worrying About Winning, and Starts to Win Again**\
 `Sean Foley, who coached Tiger Woods for four years, has helped Ko, a former world No. 1, connect her body with her mind. She’s playing her best golf in years.`\
-https://nytimes.com/2021/04/21/sports/golf/golf-women-lydia-ko.html?searchResultPosition=7
+https://nytimes.com/2021/04/21/sports/golf/golf-women-lydia-ko.html?searchResultPosition=8
 
 **Federal Inspectors Fear More Vaccines Were Exposed to Contamination**\
 `Last month, up to 15 million doses of Johnson & Johnson’s vaccine had to be discarded at Emergent’s factory in Baltimore. A new report says problems were not fully investigated and other doses may be compromised.`\
-https://nytimes.com/2021/04/21/us/politics/emergent-johnson-johnson-covid-vaccine.html?searchResultPosition=8
+https://nytimes.com/2021/04/21/us/politics/emergent-johnson-johnson-covid-vaccine.html?searchResultPosition=9
 
 **Putin’s Tough Talk**\
 `Russian troops massed on the border of Ukraine, a dissident gravely ill, new sanctions. What’s it all mean?`\
-https://nytimes.com/2021/04/21/opinion/vladimir-putin-russia.html?searchResultPosition=9
-
-**Justice Dept. Opens Broad Inquiry Into Minneapolis Police**\
-`The investigation was a sign that President Biden intends to wield federal law enforcement as a tool to combat police abuses.`\
-https://nytimes.com/2021/04/21/us/politics/justice-department-minneapolis-police.html?searchResultPosition=10
+https://nytimes.com/2021/04/21/opinion/vladimir-putin-russia.html?searchResultPosition=10
 
