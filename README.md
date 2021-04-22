@@ -20,7 +20,7 @@ https://nytimes.com/2021/04/21/us/george-floyd-verdict-police-reaction.html?sear
 
 **House Votes to Restrict Future Travel Bans, Moving to Undo Trump’s Legacy**\
 `The No Ban Act would curb the president’s expansive power to control immigration and bar restrictions on the basis of religion. It faces steep obstacles in the Senate.`\
-https://nytimes.com/2021/04/21/us/congress-travel-ban-presidents.html?searchResultPosition=6
+https://nytimes.com/2021/04/21/us/congress-travel-ban-trump.html?searchResultPosition=6
 
 **Arizona Governor Vetoes Bill Restricting L.G.B.T.Q. Education**\
 `The Republican governor said the legislation, which would restrict lessons on sexual orientation and gender identity, was “overly broad and vague.”`\
