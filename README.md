@@ -1,32 +1,36 @@
-**Russian Defense Minister Orders Partial Pullback From Ukraine Border Region**\
-`Sergei K. Shoigu said troops would withdraw from the area by May 1, citing a training exercise there that had ended. But the plan includes leaving some armored vehicles in field camps near Ukraine.`\
-https://nytimes.com/2021/04/22/world/europe/russia-ukraine-military-pullback.html?searchResultPosition=2
+**$10,000 Flute Left in Cab Nine Years Ago Is Finally Returned**\
+`Heidi Slyker, a Boston area musician, said the disappearance had consequences beyond the mere loss of property.`\
+https://nytimes.com/2021/04/22/us/missing-flute-boston-returned.html?searchResultPosition=2
 
-**How You Can Help the Climate This Earth Day**\
-`Thursday: Reducing and recycling can still go a long way. Plus, a surprising pandemic shortage.`\
-https://nytimes.com/2021/04/22/us/earth-day-recycling.html?searchResultPosition=3
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Yorkville, Midtown and Prospect-Lefferts Gardens.`\
+https://nytimes.com/2021/04/22/realestate/housing-market-nyc.html?searchResultPosition=3
 
-**Preparing for a Surreal Oscar Night**\
-`A Times journalist gives a sneak preview of the Academy Awards on Sunday and offers insights on a changing film industry.`\
-https://nytimes.com/2021/04/22/insider/Oscars-Covid-pandemic.html?searchResultPosition=4
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are four-bedroom homes in Larchmont, N.Y., and Wilton, Conn.`\
+https://nytimes.com/2021/04/22/realestate/housing-market-near-nyc.html?searchResultPosition=4
 
-**‘The worst is behind us’: Airlines see signs of continued recovery.**\
-`American Airlines and Southwest Airlines, the last two major U.S. airlines to report first-quarter earnings, were optimistic about a rebound in air travel.`\
-https://nytimes.com/2021/04/22/business/airlines-recovery-american-southwest.html?searchResultPosition=5
+**On the Market in New York City**\
+`This week’s properties are in Yorkville, Midtown and Prospect-Lefferts Gardens.`\
+https://nytimes.com/slideshow/2021/04/22/realestate/on-the-market-in-new-york-city.html?searchResultPosition=5
 
-**Protests Continue Overnight in Columbus**\
-`On Wednesday night, protests continued in Columbus, Ohio, over the death of Ma’Khia Bryant, who was shot and killed by a police officer on Tuesday.`\
-https://nytimes.com/video/us/100000007724316/columbus-ohio-overnight-protests.html?searchResultPosition=7
+**On the Market in the New York Region**\
+`This week’s properties are four-bedroom homes in Larchmont, N.Y., and Wilton, Conn.`\
+https://nytimes.com/slideshow/2021/04/22/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=6
 
-**Lesson of the Day: ‘One of the World’s Oldest Science Experiments Comes Up From the Dirt’**\
-`In this lesson, students will learn about one of the world’s longest-running seed storage experiments.`\
-https://nytimes.com/2021/04/22/learning/lesson-of-the-day-one-of-the-worlds-oldest-science-experiments-comes-up-from-the-dirt.html?searchResultPosition=8
+**The Pianist Hasaan Ibn Ali’s Lone Album Arrives, 56 Years Later**\
+`The Philadelphia musician’s only album as a bandleader was long thought lost in a fire. Now his legacy could undergo a reassessment.`\
+https://nytimes.com/2021/04/22/arts/music/hasaan-ibn-ali-metaphysics.html?searchResultPosition=7
 
-**A New York road race suggests that competitive runners can start lacing up again.**\
-`It will be the first regularly scheduled race for New York Road Runners since the beginning of the pandemic.`\
-https://nytimes.com/2021/04/22/world/NYRR-race-announcement-new-york.html?searchResultPosition=9
+**The T List: Five Things We Recommend This Week**\
+`A James Welling exhibition, strawberry-flavored bubble waffles — and more.`\
+https://nytimes.com/2021/04/22/t-magazine/james-welling-italy-travel.html?searchResultPosition=8
 
-**Michael Kors Doubles Down on the Return of New York**\
-`And gives his regards to Broadway for his 40th anniversary collection. Burberry flies the flag.`\
-https://nytimes.com/2021/04/22/style/kors-burberry-fall-2021-review.html?searchResultPosition=10
+**Should Our Sons Play With Toy Guns Outdoors?**\
+`A reader worries that allowing her sons to play-fight in the yard sends the wrong message to neighbors.`\
+https://nytimes.com/2021/04/22/style/children-toy-guns-violence-social-qs.html?searchResultPosition=9
+
+**What’s in Our Queue? Tony Hawk and More**\
+`I’m a senior news assistant on the Culture desk. Here are five things I’ve been watching, playing and listening to lately.`\
+https://nytimes.com/interactive/2021/04/22/arts/editors-recommendations-tony-hawk-pro-skater.html?searchResultPosition=10
 
