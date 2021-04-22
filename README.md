@@ -1,40 +1,40 @@
-**Are Masks Necessary Outdoors?**\
-`We’re looking at two Covid questions people may have heading into summer.`\
-https://nytimes.com/2021/04/22/briefing/police-shooting-putin-russia-blake-bailey.html?searchResultPosition=1
+**‘Tu Me Manques’ Review: Traces of a Lost Love**\
+`A conservative father who could not accept his son’s sexuality is led on a contemplative tour of queer life in New York in this Bolivian film.`\
+https://nytimes.com/2021/04/22/movies/tu-me-manques-review.html?searchResultPosition=1
 
-**Three Electric S.U.V.s With Tesla in Their Sights**\
-`Test-driving Volkswagen’s ID.4, Ford’s Mustang Mach-E and Volvo’s XC40 Recharge: The green turf where Tesla has dominated for so long is poised to grow crowded.`\
-https://nytimes.com/2021/04/22/business/electric-suvs-ford-volkswagen-volvo.html?searchResultPosition=2
+**‘Sisters With Transistors’ Review: How Women Pioneered Electronic Music**\
+`This far-reaching documentary from Lisa Rovner looks back at the female composers and artists who shaped modern music.`\
+https://nytimes.com/2021/04/22/movies/sisters-with-transistors-review.html?searchResultPosition=2
 
-**How a ‘Red Flag’ Law Failed in Indiana**\
-`A gunman killed eight people at a FedEx facility last week, despite legislation that sought to prevent people like him from acquiring weapons. What went wrong?`\
-https://nytimes.com/2021/04/22/podcasts/the-daily/fedex-shooting-gun-laws.html?searchResultPosition=3
+**‘Wet Season’ Review: Teacher’s Pet**\
+`An immigrant schoolteacher finds solace in a relationship with one of her students in this suggestive drama from Singapore.`\
+https://nytimes.com/2021/04/22/movies/wet-season-review.html?searchResultPosition=3
 
-**The U.S. Has a New Climate Goal. How Does It Stack Up Globally?**\
-`President Biden’s new pledge to cut emissions at least 50 percent below 2005 levels by 2030 is one of the more aggressive near-term targets among advanced economies.`\
-https://nytimes.com/interactive/2021/04/22/climate/new-climate-pledge.html?searchResultPosition=4
+**‘Paris Calligrammes’ Review: Recalling the 1960s With Fondness and Passion**\
+`The German artist and filmmaker Ulrike Ottinger takes us on an unhurried journey through her past.`\
+https://nytimes.com/2021/04/22/movies/paris-calligrammes-review.html?searchResultPosition=4
 
-**The Improvement Association, Chapter Four: ‘Let Them Pull the Red Wagon’**\
-`Everyone hopes everyone else is learning a lesson. They aren’t.`\
-https://nytimes.com/2021/04/22/podcasts/the-improvement-association-election-fraud.html?searchResultPosition=5
+**A Conversation on ‘The Talented Mr. Ripley’**\
+`The writer Edmund White speaks about Patricia Highsmith’s 1955 classic.`\
+https://nytimes.com/2021/04/22/t-magazine/talented-mr-ripley-book-club-event.html?searchResultPosition=5
 
-**This Couple Had 4 Weddings and 3 Divorces. Was It for the Days Off?**\
-`A bank in Taiwan said an employee had a rapid succession of nuptials in 37 days to the same woman to take advantage of the country’s marriage leave policy.`\
-https://nytimes.com/2021/04/22/world/asia/taiwan-marriage-leave-scam.html?searchResultPosition=6
+**‘My Wonderful Wanda’ Review: The Secret Life of a Caretaker**\
+`The writer/director Bettina Oberli weaves a satirical family drama knotted with infidelity, among other complications.`\
+https://nytimes.com/2021/04/22/movies/my-wonderful-wanda-review.html?searchResultPosition=6
 
-**Will the unemployment claims report offer new hope on the economy?**\
-`A slight rise in initial filings is expected after the previous week’s total hit a pandemic low. But economists still see healing in the labor market.`\
-https://nytimes.com/2021/04/22/business/economy/weekly-jobless-claims.html?searchResultPosition=7
+**‘Street Gang: How We Got to Sesame Street’ Review: Making of a Sunny Day**\
+`Even nostalgia-resistant viewers can learn something from this documentary version of a book on the making of the show.`\
+https://nytimes.com/2021/04/22/movies/street-gang-how-we-got-to-sesame-street-review.html?searchResultPosition=7
 
-**Jobs for Homeless L.G.B.T.Q. Youth**\
-`New York City struggles to support L.G.B.T.Q. youth who are experiencing homelessness and unemployment. `\
-https://nytimes.com/2021/04/22/nyregion/jobs-lgbtq-youth-nyc.html?searchResultPosition=8
+**‘Together Together’ Review: A Conceivable Plan**\
+`A man and his surrogate navigate a bumpy road to fatherhood in this endearing dramatic comedy.`\
+https://nytimes.com/2021/04/22/movies/together-together-review.html?searchResultPosition=8
 
-**News of Our Age Comes to Life in the Rooms of a Theater**\
-`Tired of reading the headlines? You can watch artistic interpretations of the stories of our era by trailing actors in a Living Newspaper production, section by section.`\
-https://nytimes.com/2021/04/22/theater/living-newspaper-royal-court.html?searchResultPosition=9
+**‘8 Billion Angels’ Review: Giving Earth Top Billing**\
+`This documentary about climate injustice feels defanged by its unfocused structure.`\
+https://nytimes.com/2021/04/22/movies/8-billion-angels-review.html?searchResultPosition=9
 
-**‘I Wish I Got Pregnant in March!’ Inside the Dance Baby Boom.**\
-`Many dancers have taken advantage of a byproduct of the pandemic — time away from performing — to try out a new role: motherhood.`\
-https://nytimes.com/2021/04/22/arts/dance/ballet-baby-boom.html?searchResultPosition=10
+**‘Stowaway’ Review: An Outer-Space Drama, Lacking Gravity**\
+`This Netflix film pushes a crew of space explorers to moral and physical extremes when an unexpected passenger accidentally compromises their oxygen supply.`\
+https://nytimes.com/2021/04/22/movies/stowaway-review.html?searchResultPosition=10
 
