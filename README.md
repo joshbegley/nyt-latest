@@ -1,5 +1,5 @@
 **Funeral for Daunte Wright Held in Minneapolis**\
-`The family of Daunte Wright joined with faith leaders, politicians and the relatives of other Black Americans killed by police to honor his memory at a funeral service in Minneapolis on Thursday.`\
+`The family of Daunte Wright joined faith leaders, politicians and the relatives of other Black Americans killed by the police to honor his memory at a funeral service in Minneapolis on Thursday.`\
 https://nytimes.com/video/us/100000007724831/daunte-wright-funeral.html?searchResultPosition=1
 
 **Climate, Taxes, Johnson & Johnson: Your Thursday Evening Briefing**\
