@@ -19,7 +19,7 @@ https://nytimes.com/2021/04/22/style/kors-burberry-fall-2021-review.html?searchR
 https://nytimes.com/2021/04/22/business/dealbook/tech-giants-dc.html?searchResultPosition=5
 
 **Watch Live: Biden Administration Holds Climate Summit**\
-`President Biden is hosting 40 world leaders in a conference on climate on April 22 and 23. The event is expected to underscore the urgency and the economic benefits of stronger action to tackle global warming.`\
+`President Biden is hosting 40 world leaders in a conference on climate. The event is expected to underscore the urgency and the economic benefits of stronger action to tackle global warming.`\
 https://nytimes.com/video/us/politics/100000007723239/biden-climate-live-video.html?searchResultPosition=6
 
 **‘Tu Me Manques’ Review: Traces of a Lost Love**\
