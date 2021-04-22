@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2021/04/22/climate/new-climate-pledge.html?searc
 https://nytimes.com/2021/04/22/podcasts/the-improvement-association-election-fraud.html?searchResultPosition=5
 
 **This Couple Had 4 Weddings and 3 Divorces. Was It for the Days Off?**\
-`A bank in Taiwan said an employee had a rapid succession of nuptials in two months to the same woman to take advantage of the country’s marriage leave policy.`\
+`A bank in Taiwan said an employee had a rapid succession of nuptials in 37 days to the same woman to take advantage of the country’s marriage leave policy.`\
 https://nytimes.com/2021/04/22/world/asia/taiwan-marriage-leave-scam.html?searchResultPosition=6
 
 **Will the unemployment claims report offer new hope on the economy?**\
