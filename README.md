@@ -11,7 +11,7 @@ https://nytimes.com/2021/04/22/briefing/climate-taxes-johnson-johnson.html?searc
 https://nytimes.com/2021/04/22/obituaries/richard-k-kim-dead.html?searchResultPosition=3
 
 **How Does Ranked-Choice Voting Work in New York?**\
-`New York City began using ranked-choice voting for primary elections this year. The first major test comes on June 22. Here’s how it works.`\
+`New Yorkers voting in the June 22 primary for mayor will used ranked-choice voting for the first time this year. Confused? We can help.`\
 https://nytimes.com/interactive/2021/nyregion/ranked-choice-voting-nyc.html?searchResultPosition=4
 
 **Bob Porter, Jazz Producer and Broadcaster, Dies at 80**\
