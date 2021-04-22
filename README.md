@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/22/science/astronauts-food-space-station.html?search
 https://nytimes.com/2021/04/22/briefing/climate-summit-india-surge-ukraine-russia.html?searchResultPosition=2
 
 **We’re Asking Rich Countries to Keep Their Vaccine Promises**\
-`As head of the W.H.O, I believe this is the best chance we have to end the pandemic.`\
+`As head of the W.H.O., I believe this is the best chance we have to end the pandemic.`\
 https://nytimes.com/2021/04/22/opinion/who-covid-vaccines.html?searchResultPosition=3
 
 **An Acorn Jelly That Brings Michelle Zauner Back**\
