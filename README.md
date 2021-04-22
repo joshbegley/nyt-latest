@@ -31,7 +31,7 @@ https://nytimes.com/interactive/2021/04/21/opinion/us-politics-quiz.html?searchR
 https://nytimes.com/2021/04/21/world/asia/Pakistan-quetta-china-ambassador.html?searchResultPosition=8
 
 **Biden picks technology expert and first Black woman to be the No. 2 U.S. intelligence official.**\
-`By Julian E. Barnes`\
+`Stacey A. Dixon is currently the deputy director of the Defense Department’s National Geospatial-Intelligence Agency.`\
 https://nytimes.com/2021/04/21/us/biden-intelligence-stacey-dixon.html?searchResultPosition=9
 
 **Deadly Explosion Hits Luxury Hotel in Pakistan**\
