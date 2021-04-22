@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/22/us/andrew-hall-laudemer-arboleda-shooting.html?se
 `As the Biden administration seeks to get most adults vaccinated by summer, men are holding back.`\
 https://nytimes.com/2021/04/22/health/covid-vaccines-gender.html?searchResultPosition=4
 
-**The virtual summit makes history, but proves even world leaders aren’t immune from tech issues.**\
+**The virtual summit makes history, but proves even world leaders aren’t immune to tech issues.**\
 `By Coral Davenport`\
 https://nytimes.com/2021/04/22/us/politics/climate-summit-tech-problems.html?searchResultPosition=5
 
