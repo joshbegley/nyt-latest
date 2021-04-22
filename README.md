@@ -1,5 +1,5 @@
-**Philip Roth’s Biographer Is Accused of Sexual Assault**\
-`W.W. Norton, citing the allegations that the author, Blake Bailey, faces, said it would stop shipping and promoting his new, best-selling book.`\
+**Sexual Assault Allegations Against Biographer Halt Shipping of His Roth Book**\
+`W.W. Norton, citing the accusations that the author, Blake Bailey, faces, said it would stop shipping and promoting his new best-selling book.`\
 https://nytimes.com/2021/04/21/books/philip-roth-blake-bailey.html?searchResultPosition=1
 
 **Lydia Ko Stops Worrying About Winning, and Starts to Win Again**\
