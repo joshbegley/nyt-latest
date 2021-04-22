@@ -1,4 +1,4 @@
-**Patients with Long Covid Face Lingering Worrisome Health Risks, Study Finds**\
+**Patients With Long Covid Face Lingering Worrisome Health Risks, Study Finds**\
 `Patients who were not sick enough to be hospitalized still had a significantly greater risk of dying within six months than people who were not infected.`\
 https://nytimes.com/2021/04/22/health/long-covid-risks.html?searchResultPosition=1
 
