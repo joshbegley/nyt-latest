@@ -1,40 +1,40 @@
-**Credit Suisse reports a loss as regulators open an investigation.**\
-`Switzerland’s financial regulator said it would look into whether Credit Suisse was doing a poor job monitoring the riskiness of its investments.`\
-https://nytimes.com/2021/04/22/business/credit-suisse-reports-a-loss-as-regulators-open-an-investigation.html?searchResultPosition=1
+**News of Our Age Comes to Life in the Rooms of a Theater**\
+`Tired of reading the headlines? You can watch artistic interpretations of the stories of our era by trailing actors in a Living Newspaper production, section by section.`\
+https://nytimes.com/2021/04/22/theater/living-newspaper-royal-court.html?searchResultPosition=1
 
-**Climate Change Could Cut World Economy by $23 Trillion in 2050, Insurance Giant Warns**\
-`Poor nations would be particularly hard hit, but few would escape, Swiss Re said. The findings could influence how the industry prices insurance and invests its mammoth portfolios.`\
-https://nytimes.com/2021/04/22/climate/world-economy-swiss-re-insurance.html?searchResultPosition=2
+**‘I Wish I Got Pregnant in March!’ Inside the Dance Baby Boom.**\
+`Many dancers have taken advantage of a byproduct of the pandemic — time away from performing — to try out a new role: motherhood.`\
+https://nytimes.com/2021/04/22/arts/dance/ballet-baby-boom.html?searchResultPosition=2
 
-**Guilty Verdict for Hong Kong Journalist as Media Faces ‘Frontal Assault’**\
-`As China stifles dissent in the city, news outlets have found themselves in the authorities’ cross hairs.`\
-https://nytimes.com/2021/04/22/world/asia/hong-kong-free-press-rthk.html?searchResultPosition=3
+**They Have Alzheimer’s. This Clinical Trial May Be a Last Hope.**\
+`In the narrow window in which patients are aware of their disease, they have sought help in clinical trials. But enrolling enough participants to make these trials count is not easy.`\
+https://nytimes.com/2021/04/22/health/alzheimers-clinical-trials.html?searchResultPosition=3
 
-**New York, It’s Time to Shop! (Masks on, Please)**\
-`After a challenging and dispiriting year in the city’s retail landscape, new stores are blooming`\
-https://nytimes.com/2021/04/22/style/new-york-its-time-to-shop-masks-on-please.html?searchResultPosition=4
+**Jack Ma Shows Why China’s Tycoons Keep Quiet**\
+`High-profile business leaders have been detained, sidelined or silenced as the Communist Party moves forcefully to keep companies in line. Today, the best strategy is to lie low.`\
+https://nytimes.com/2021/04/22/technology/jack-ma-alibaba-tycoons.html?searchResultPosition=4
 
-**Where Did Chad Rebels Prepare for Their Own War? In Libya.**\
-`Fighting as mercenaries for years, the rebels were ready to pull off their own stunning feat: an invasion that resulted in the death of Chad’s strongman ruler.`\
-https://nytimes.com/2021/04/22/world/africa/chad-rebels.html?searchResultPosition=5
+**What Do You Call a Bunch of Black Holes: A Crush? A Scream?**\
+`There are pods of whales and gaggles of geese. Now astronomers are wondering which plural term would best suit the most enigmatic entity in the cosmos.`\
+https://nytimes.com/2021/04/22/science/black-holes-astrophysics-names.html?searchResultPosition=5
 
-**Fabrics From Your Fridge**\
-`What does the food in your fridge have to do with the clothes on your back? More than you may think. It’s something to dine out on, on Earth Day.`\
-https://nytimes.com/interactive/2021/04/22/style/fabrics-from-your-fridge.html?searchResultPosition=6
+**How to Travel More Sustainably**\
+`Don’t skimp on doing your own research, and be aware that ‘green’ certificates aren’t always all they’re cracked up to be.`\
+https://nytimes.com/2021/04/22/travel/sustainable-travel.html?searchResultPosition=6
 
-**Seth Meyers: Chauvin Verdict Confirms ‘What We Saw With Our Own Eyes’**\
-`“As we’ve explained on this show many times before, the culture and system of policing in this country must be dismantled and reformed,” Meyers said on Wednesday.`\
-https://nytimes.com/2021/04/22/arts/television/seth-meyers-derek-chauvin.html?searchResultPosition=7
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually.`\
+https://nytimes.com/2021/04/22/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=7
 
-**Word of the Day: empirical**\
-`This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/22/learning/word-of-the-day-empirical.html?searchResultPosition=8
+**Jury Duty Is Back, and It Looks a Lot Different**\
+`With reconfigured courtrooms and new uses of technology, New York’s court systems have geared up to clear a looming backlog of cases.`\
+https://nytimes.com/2021/04/22/nyregion/new-york-courts-pandemic-jury-duty.html?searchResultPosition=8
 
-**India sets a new global record for daily infections.**\
-`More than 312,000 cases were recorded in just 24 hours, after two months in which the virus has exploded.`\
-https://nytimes.com/2021/04/22/world/india-coronavirus-record.html?searchResultPosition=9
+**Jake Paul Promised Them Fame. Was It Worth the Price?**\
+`A look behind the scenes at life in the Team 10 house.`\
+https://nytimes.com/2021/04/22/style/jake-paul-team-10.html?searchResultPosition=9
 
-**Your Thursday Morning**\
-`Biden’s ambitious climate goal.`\
-https://nytimes.com/2021/04/21/briefing/earth-day-putin-coronavirus.html?searchResultPosition=10
+**U.S. Home Sales Are Surging. When Does the Music Stop?**\
+`Nervous buyers and sellers are asking: ‘When is the housing market going to crash?’ Here’s what to expect this year.`\
+https://nytimes.com/2021/04/22/realestate/us-home-sales-surge.html?searchResultPosition=10
 
