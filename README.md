@@ -10,7 +10,7 @@ https://nytimes.com/2021/04/22/us/elizabeth-city-shooting-nc.html?searchResultPo
 `Readers share how environmental issues are changing their lives.`\
 https://nytimes.com/2021/04/22/opinion/local-effects-climate-change-crisis.html?searchResultPosition=3
 
-****\
+**Editor’s Note**\
 `This article was published prematurely.`\
 https://nytimes.com/2021/04/22/health/surgery-scar.html?searchResultPosition=4
 
