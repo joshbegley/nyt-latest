@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/21/books/philip-roth-blake-bailey.html?searchResultP
 `Sean Foley, who coached Tiger Woods for four years, has helped Ko, a former world No. 1, connect her body with her mind. She’s playing her best golf in years.`\
 https://nytimes.com/2021/04/21/sports/golf/golf-women-lydia-ko.html?searchResultPosition=2
 
-**Federal Inspectors Say More Vaccines at Troubled Plant May Be Contaminated**\
+**Federal Inspectors Fear More Vaccines Exposed to Contamination**\
 `Last month, up to 15 million doses of Johnson & Johnson’s vaccine had to be discarded at Emergent’s factory in Baltimore. A new report says problems were not fully investigated and other doses may be compromised.`\
 https://nytimes.com/2021/04/21/us/politics/emergent-johnson-johnson-covid-vaccine.html?searchResultPosition=3
 
