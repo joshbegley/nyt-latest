@@ -22,7 +22,7 @@ https://nytimes.com/2021/04/22/world/europe/uk-soldiers-racism-inquiry.html?sear
 `Even with violence escalating in the country, President Biden is bringing American troops home after nearly 20 years of war.`\
 https://nytimes.com/article/afghanistan-war-us.html?searchResultPosition=6
 
-**What’s in a Number? The N.F.L. Is About to Find Out.**\
+**N.F.L. Loosens Uniform Rules, Setting Up Race for No. 1. And No. 2.**\
 `A relaxing of jersey number regulations may cause stars at certain positions to make changes. How that will play out on the field is an open question.`\
 https://nytimes.com/2021/04/22/sports/football/nfl-jersey-numbers.html?searchResultPosition=7
 
