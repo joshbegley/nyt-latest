@@ -10,8 +10,8 @@ https://nytimes.com/2021/04/22/us/elizabeth-city-shooting-nc.html?searchResultPo
 `Readers share how environmental issues are changing their lives.`\
 https://nytimes.com/2021/04/22/opinion/local-effects-climate-change-crisis.html?searchResultPosition=3
 
-**Imagine, Surgery Without a Scar**\
-`A new study shows that a 20-year-old drug prevents scarring in mice. If it works on humans, it could change the lives of those with disfiguring wounds.`\
+****\
+`This article was published prematurely.`\
 https://nytimes.com/2021/04/22/health/surgery-scar.html?searchResultPosition=4
 
 **The Nervous Person’s Guide to Re-Entering Society**\
