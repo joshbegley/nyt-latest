@@ -2,9 +2,9 @@
 `How to cope with a less cautious world as pandemic restrictions loosen.`\
 https://nytimes.com/2021/04/22/well/mind/covid-back-to-normal.html?searchResultPosition=1
 
-**Britain, Norway, the United States and businesses join forces to protect tropical forests.**\
+**Britain, Norway and the United States join forces with businesses to protect tropical forests.**\
 `The effort seeks to rally more than $1 billion for countries that can show they are lowering emissions by protecting tropical forests`\
-https://nytimes.com/2021/04/22/climate/britain-norway-the-united-states-and-businesses-join-forces-to-protect-tropical-forests.html?searchResultPosition=2
+https://nytimes.com/2021/04/22/climate/britain-norway-and-the-united-states-join-forces-with-businesses-to-protect-tropical-forests.html?searchResultPosition=2
 
 **What’s Going On in This Graph? | April 28, 2021**\
 `What categories of skills are projected to be in greater and in less demand because of the pandemic and its aftermath?`\
