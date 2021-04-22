@@ -1,5 +1,5 @@
 **Biden Wants to Slash Emissions. Success Would Mean a Very Different America.**\
-`Hitting the targets could require a rapid shift to electric vehicles, the expansion of forests nationwide, development of complex new carbon-capture technology and many other changes, researchers said.`\
+`Hitting the targets could require a rapid shift to elecQtric vehicles, the expansion of forests nationwide, development of complex new carbon-capture technology and many other changes, researchers said.`\
 https://nytimes.com/2021/04/22/climate/biden-emissions-target-economy.html?searchResultPosition=1
 
 **Russia’s Ties With West Fray Further After Czech Republic Expels Its Diplomats**\
