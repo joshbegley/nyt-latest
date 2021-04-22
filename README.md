@@ -1,5 +1,5 @@
 **Lesson of the Day: ‘One of the World’s Oldest Science Experiments Comes Up From the Dirt’**\
-`In this lesson, students will learn about one of the world’s longest-running seed storage experiments. Then they will research similar projects, or experiment with seed storage and germination themselves.`\
+`In this lesson, students will learn about one of the world’s longest-running seed storage experiments.`\
 https://nytimes.com/2021/04/22/learning/lesson-of-the-day-one-of-the-worlds-oldest-science-experiments-comes-up-from-the-dirt.html?searchResultPosition=1
 
 **A New York road race suggests that competitive runners can start lacing up again.**\
