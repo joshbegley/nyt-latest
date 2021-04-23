@@ -30,11 +30,11 @@ https://nytimes.com/2021/04/23/health/johnson-covid-vaccine-bloot-clots.html?sea
 `Boryana Straubel, founder of Generation Collection, calls recycled gold a way to clean up electronic waste — and a canny investment.`\
 https://nytimes.com/2021/04/23/fashion/jewelry-recycled-gold.html?searchResultPosition=8
 
+**Have the astronauts been vaccinated against Covid-19?**\
+`All four members of SpaceX's Crew-2 mission got their shots recently.`\
+https://nytimes.com/2021/04/23/science/astronauts-covid-vaccine.html?searchResultPosition=9
+
 **San Francisco Contends With a Different Sort of Epidemic: Drug Deaths**\
 `More people died from overdoses than from the coronavirus in San Francisco last year. Some think the toll, tied to homelessness, should force the city to re-examine its approach to illicit drugs.`\
-https://nytimes.com/2021/04/23/us/fentanyl-overdoses-san-francisco.html?searchResultPosition=9
-
-**Opera’s Biggest Fan Leaves Behind a Sprawling Time Capsule**\
-`Pavarotti, Domingo, Sills, Fleming and many more: Perhaps 200,000 autographs are piled in a vacant East Village apartment.`\
-https://nytimes.com/2021/04/23/arts/music/lois-kirschenbaum-metropolitan-opera.html?searchResultPosition=10
+https://nytimes.com/2021/04/23/us/fentanyl-overdoses-san-francisco.html?searchResultPosition=10
 
