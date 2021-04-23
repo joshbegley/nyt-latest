@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007727192/vaccine-distribution-white-house-coronavirus-response.html?searchResultPosition=1
 
 **Iowa Woman Admits to Hitting Children With Car Because of Their Ethnicity**\
-`Nicole Poole Franklin, 43, pleaded guilty to federal hate crime charges and state attempted murder charges after striking two children with her Jeep Grand Cherokee in 2019.`\
+`Nicole Poole Franklin, 43, pleaded guilty to hate crime and attempted murder charges after striking two children with her Jeep Grand Cherokee in 2019.`\
 https://nytimes.com/2021/04/23/us/nicole-poole-franklin-iowa.html?searchResultPosition=2
 
 **The Daily: Radio Nostalgia**\
