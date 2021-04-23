@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/23/health/astrazeneca-johnson-covid-vaccine-blood-clots.html?searchResultPosition=1
 
 **Manhattan’s New Policy on Prostitution**\
-`Readers agree that sex workers should no longer be prosecuted, but disagree about whether their clients should be. Also: The opioid crisis; cleanliness, everywhere.`\
+`Readers agree that sex workers should no longer be prosecuted, but disagree about whether their clients should be. Also: The opioid crisis; cleanliness; protests in Pakistan.`\
 https://nytimes.com/2021/04/23/opinion/letters/prostitution-manhattan.html?searchResultPosition=2
 
 **Netanyahu Pledges to Reduce Israel’s Carbon Footprint**\
