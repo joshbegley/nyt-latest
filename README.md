@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/23/arts/television/late-night-celebrates-earth-day.h
 `This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2021/04/23/learning/word-of-the-day-sinew.html?searchResultPosition=2
 
-**China’s Best Mixed Martial Arts Fighter Hits Like a Girl**\
+**China’s Top Mixed Martial Arts Star Isn’t Fighting for a Cause**\
 `In China, she’s a symbol of women’s rights and a national hero. But Zhang Weili, who defends her U.F.C. title in Florida on Saturday, only cares about one label: champion.`\
 https://nytimes.com/2021/04/23/world/asia/zhang-weili-ufc-china.html?searchResultPosition=3
 
