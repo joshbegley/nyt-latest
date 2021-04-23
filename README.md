@@ -34,7 +34,7 @@ https://nytimes.com/2021/04/23/us/coronavirus-puerto-rico.html?searchResultPosit
 `Looking for some high-octane thrills? We scour the streaming services to find the right options for you.`\
 https://nytimes.com/2021/04/23/movies/streaming-action-movies.html?searchResultPosition=9
 
-**More Than 100 Migrants Are Feared Dead as Boat Capsizes in Mediterranean**\
-`The shipwreck off Libya comes as the number of attempts to cross the sea from Africa to Europe increases in the warmer weather.`\
-https://nytimes.com/2021/04/23/world/europe/migrants-dead-mediterranean-libya.html?searchResultPosition=10
+**The White House warns that the U.S. lags behind China on developing clean technologies.**\
+`A new report warns that, without a significant investment in research and development, America could become dependent on its competitors.`\
+https://nytimes.com/2021/04/23/opinion/politics/white-house-clean-technology-china.html?searchResultPosition=10
 
