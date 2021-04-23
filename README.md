@@ -23,7 +23,7 @@ https://nytimes.com/2021/04/22/todayspaper/quotation-of-the-day-in-minneapolis-a
 https://nytimes.com/2021/04/22/pageoneplus/corrections-april-23-2021.html?searchResultPosition=6
 
 **Newborn Twins Are Found Dead in an Apartment in Queens**\
-`The mother of the infants, a boy and a girl, was in custody but had not been charged in the deaths, officials said.`\
+`The mother of the infants was in custody but had not been charged in the deaths of the twins, a boy and a girl, officials said.`\
 https://nytimes.com/2021/04/22/nyregion/infant-deaths-nyc.html?searchResultPosition=7
 
 **Columbus Grapples With Police Shootings That Have Taken Black Lives**\
