@@ -1,6 +1,6 @@
 **The U.K. Spy Agency MI5 Has Joined Instagram. It’s Not for the Likes.**\
 `MI5’s new account is an effort to appeal to job applicants. It joins other intelligence agencies on social media, where results are anything but guaranteed.`\
-https://nytimes.com/2021/04/23/technology/mi5-british-intelligence-instagram.html?searchResultPosition=1
+https://nytimes.com/2021/04/23/world/europe/mi5-british-intelligence-instagram.html?searchResultPosition=1
 
 **The Super League That Wasn’t**\
 `What the spectacular fall of a breakaway tournament for European soccer says about the future of the world’s biggest sport.`\
