@@ -6,8 +6,8 @@ https://nytimes.com/2021/04/23/arts/television/mosquito-coast-paul-justin-therou
 `An excerpt from “The Free World: Art and Thought in the Cold War,” by Louis Menand`\
 https://nytimes.com/2021/04/23/books/review/the-free-world-art-and-thought-in-the-cold-war-by-louis-menand-an-excerpt.html?searchResultPosition=2
 
-**Caitlyn Jenner to Run for California Governor**\
-`Ms. Jenner, a Republican former Olympian and transgender activist, will announce on Friday that she is running to topple Gov. Gavin Newsom, a Democrat facing an all but certain recall election.`\
+**Caitlyn Jenner Announces Run for California Governor**\
+`Ms. Jenner, a Republican former Olympian and transgender activist, announced on Friday that she was running to topple Gov. Gavin Newsom, a Democrat facing an all but certain recall election.`\
 https://nytimes.com/2021/04/23/us/politics/caitlyn-jenner-california-governor.html?searchResultPosition=3
 
 **India Scrambles to Supply Oxygen as Covid-19 Patients Gasp for Breath**\
