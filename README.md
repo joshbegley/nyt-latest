@@ -1,5 +1,5 @@
 **Columbus Grapples With Police Shootings That Have Taken Black Lives**\
-`With four killings in the past four months, many residents in Ohio’s capital feel victimized by a Police Department that looks nothing like the neighborhoods it patrols.`\
+`With four killings in the past four months, many residents in Ohio’s capital feel victimized by their Police Department, which has received a litany of misconduct complaints.`\
 https://nytimes.com/2021/04/22/us/columbus-police-makhia-bryant.html?searchResultPosition=1
 
 **The G.O.P. Is Getting Even Worse**\
