@@ -1,40 +1,40 @@
-**New in Paperback: ‘Why We Swim’ and ‘The End of October’**\
-`Six new paperbacks to check out this week.`\
-https://nytimes.com/2021/04/23/books/review/new-paperbacks.html?searchResultPosition=1
+**Mapplethorpe Jewelry Inspires a New Collection**\
+`The designer Gaia Repossi said she set out to revive “the young Robert,” better known for his photographic work, in an eight-piece offering.`\
+https://nytimes.com/2021/04/23/style/jewelry-mapplethorpe-repossi.html?searchResultPosition=1
 
-**How Covid Upended a Century of Patterns in U.S. Deaths**\
-`The pandemic brought a record uptick in deaths, interrupted a downward trend in death rates and spurred the highest death rate above normal ever recorded in the country.`\
-https://nytimes.com/interactive/2021/04/23/us/covid-19-death-toll.html?searchResultPosition=2
+**Patients and hospitals beg for help as a catastrophic second wave batters India.**\
+`Prime Minister Narendra Modi canceled campaign rallies as India set a global record for new infections for the second straight day.`\
+https://nytimes.com/2021/04/23/world/patients-and-hospitals-beg-for-help-as-a-catastrophic-second-wave-batters-india.html?searchResultPosition=2
 
-**Philip Roth, “Middlemarch” and Other Letters to the Editor**\
-`Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2021/04/23/books/review/philip-roth-middlemarch-and-other-letters-to-the-editor.html?searchResultPosition=3
+**Flying While Black: Two Creators on Inventing (and Reinventing) Black Superheroes**\
+`We asked Eve L. Ewing and Evan Narcisse to share perspectives on the politics of being a Black comic-book writer and the Black superheroes you may have missed.`\
+https://nytimes.com/2021/04/23/arts/black-superheroes-comic-books.html?searchResultPosition=3
 
-**Here’s what’s on the schedule for the last day of Biden’s climate summit.**\
-`Top business leaders will join world leaders, and Biden administration officials will later participate in a CNN town hall.`\
-https://nytimes.com/2021/04/23/us/politics/climate-summit-recap-highlights.html?searchResultPosition=4
+**A C.D.C. panel will meet today on the Johnson & Johnson vaccine pause.**\
+`The U.S. government is likely to end the pause if the panel says the vaccine’s benefits outweigh the potential risk.`\
+https://nytimes.com/2021/04/23/health/johnson-covid-vaccine-bloot-clots.html?searchResultPosition=4
 
-**Shock G, Frontman for Hip-Hop Group Digital Underground, Dies at 57**\
-`The group had a string of hits in the 1990s, including “The Humpty Dance,” and helped introduce a little-known rapper named Tupac Shakur.`\
-https://nytimes.com/2021/04/23/arts/music/shock-g-dead.html?searchResultPosition=5
+**Does Recycled Gold Herald a Greener Future for Jewelry?**\
+`Boryana Straubel, founder of Generation Collection, calls recycled gold a way to clean up electronic waste — and a canny investment.`\
+https://nytimes.com/2021/04/23/fashion/jewelry-recycled-gold.html?searchResultPosition=5
 
-**Is Russia leaving the International Space Station?**\
-`By Kenneth Chang`\
-https://nytimes.com/2021/04/23/science/is-russia-leaving-the-international-space-station.html?searchResultPosition=6
+**San Francisco Contends With a Different Sort of Epidemic: Drug Deaths**\
+`More people died from overdoses than from the coronavirus in San Francisco last year. Some think the toll, tied to homelessness, should force the city to re-examine its approach to illicit drugs.`\
+https://nytimes.com/2021/04/23/us/fentanyl-overdoses-san-francisco.html?searchResultPosition=6
 
-**Teaching With ‘Letters to the Editor’**\
-`In this lesson, we invite students to write a letter responding to an article in The New York Times and submit it to an upcoming contest.`\
-https://nytimes.com/2021/04/23/learning/teaching-with-letters-to-the-editor.html?searchResultPosition=7
+**Opera’s Biggest Fan Leaves Behind a Sprawling Time Capsule**\
+`Pavarotti, Domingo, Sills, Fleming and many more: Perhaps 200,000 autographs are piled in a vacant East Village apartment.`\
+https://nytimes.com/2021/04/23/arts/music/lois-kirschenbaum-metropolitan-opera.html?searchResultPosition=7
 
-**How New York’s Mayoral Hopefuls Would Change the N.Y.P.D.**\
-`Some candidates in the Democratic primary want to cut $1 billion or more from the police budget, while others have more moderate proposals, frustrating activists.`\
-https://nytimes.com/2021/04/23/nyregion/police-mayor-floyd-nyc.html?searchResultPosition=8
+**Ravaged by Covid, Brazil Faces a Hunger Epidemic**\
+`Tens of millions of Brazilians are facing hunger or food insecurity as the country’s Covid-19 crisis drags on, killing thousands of people every day.`\
+https://nytimes.com/2021/04/23/world/americas/covid-brazil-hunger.html?searchResultPosition=8
 
-**Flying Over Water**\
-`What story does this video inspire for you?`\
-https://nytimes.com/2021/04/23/learning/flying-over-water.html?searchResultPosition=9
+**Many Older Adults Lack Even Simple, Helpful Equipment**\
+`Railings, grab bars, shower chairs and other inexpensive devices can make it easier to continue living at home, but not enough older people acquire them.`\
+https://nytimes.com/2021/04/23/health/elderly-medical-equipment.html?searchResultPosition=9
 
-**Late Night Celebrates Earth Day**\
-`“Earth Day started back in the ’70s with very lofty goals and has kind of turned into, ‘Guys, please, just for one day try not to light garbage on or near a panda bear, OK?’” Jimmy Kimmel said.`\
-https://nytimes.com/2021/04/23/arts/television/late-night-celebrates-earth-day.html?searchResultPosition=10
+**Dia 2.0: Facing the Future**\
+`Jessica Morgan moves the art foundation beyond the sometimes swaggering heart of its Minimalist collection.`\
+https://nytimes.com/2021/04/23/arts/design/dia-foundation.html?searchResultPosition=10
 
