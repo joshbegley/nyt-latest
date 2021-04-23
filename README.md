@@ -10,7 +10,7 @@ https://nytimes.com/2021/04/23/world/europe/navalny-hunger-strike.html?searchRes
 `Her books are filled with insights into art world types and their relationships to the wider world.`\
 https://nytimes.com/2021/04/23/arts/design/rachel-kushner-artists.html?searchResultPosition=3
 
-**JP Morgan Apologizes for Its Role in Super League**\
+**JPMorgan Apologizes for Its Role in Super League**\
 `The bank that was to provide billions of dollars in financing for a breakaway European soccer league said it “misjudged” how fans would react.`\
 https://nytimes.com/2021/04/23/sports/soccer/jpmorgan-super-league.html?searchResultPosition=4
 
