@@ -12,7 +12,7 @@ https://nytimes.com/2021/04/23/world/asia/zhang-weili-ufc-china.html?searchResul
 
 **Independent Spirit Awards Continue ‘Nomadland’ Winning Streak**\
 `Meanwhile, Riz Ahmed (“Sound of Metal”) and Carey Mulligan (“Promising Young Woman”) won lead acting trophies.`\
-https://nytimes.com/2021/04/23/movies/independent-spirit-awards-continue-nomadland-winning-streak.html?searchResultPosition=4
+https://nytimes.com/2021/04/23/movies/independent-spirit-awards-nomadland.html?searchResultPosition=4
 
 **From Mao Zedong to Xi Jinping**\
 `A former Beijing bureau chief shares insights from her time in China.`\
