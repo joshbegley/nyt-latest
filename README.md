@@ -2,7 +2,7 @@
 `In March 2020, the Federal Reserve had to step in to save the mutual funds, which seem safe until there’s a crisis. Regulation may be coming.`\
 https://nytimes.com/2021/04/23/business/economy/money-market-funds-reform.html?searchResultPosition=1
 
-**An Arizona judge halts a G.O.P. effort to recount 2020 ballots, but it’s likely to resume.**\
+**An Arizona judge temporarily halts a G.O.P. effort to recount 2020 ballots.**\
 `Republican officials in the state have hired a private vendor to review nearly 2.1 million ballots cast in its largest county, though there is no substantiated evidence of significant fraud or errors.`\
 https://nytimes.com/2021/04/23/us/politics/arizona-republican-recount.html?searchResultPosition=2
 
