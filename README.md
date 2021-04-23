@@ -18,8 +18,8 @@ https://nytimes.com/2021/04/23/world/the-us-begins-closing-mass-vaccination-site
 `A hospital worker in Italy’s south was allegedly paid for 15 years without working a single day. Investigators blame the inefficiency of checks at all levels.`\
 https://nytimes.com/2021/04/23/world/europe/italy-hospital-worker-15-years.html?searchResultPosition=6
 
-**Irish and Spanish Cities Lose Euro 2020 Games Because of Coronavirus**\
-`Dublin and Bilbao were said to have been removed from a list of cities that will host the delayed soccer tournament this summer.`\
+**Dublin and Bilbao Lose Euro 2020 Games Over Coronavirus Rules**\
+`The Irish and Spanish cities were said to have been removed from a list of cities that will host the delayed soccer tournament this summer.`\
 https://nytimes.com/2021/04/23/sports/soccer/euro-2020-host-cities.html?searchResultPosition=7
 
 **China and the Climate**\
