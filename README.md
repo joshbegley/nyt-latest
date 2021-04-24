@@ -1,40 +1,40 @@
+**Africa’s already slow vaccine drive is threatened as supplies from a stricken India are halted.**\
+`India’s dire Covid crisis is having global ripple effects, especially in Africa, which has 17 percent of the world’s people but is far behind in vaccinations.`\
+https://nytimes.com/2021/04/24/world/africa/africa-india-vaccine-threat.html?searchResultPosition=1
+
+**Pet Project**\
+`In the graphic novel “Allergic,” a young girl is relentless in her quest for a furry friend.`\
+https://nytimes.com/2021/04/24/books/review/allergic-megan-wagner-lloyd-michelle-mee-nutter.html?searchResultPosition=2
+
 **C.E.O. Pay Remains Stratospheric, Even at Companies Battered by Pandemic**\
 `While millions of people struggled to make ends meet, many of the companies hit hardest in 2020 showered their executives with riches.`\
-https://nytimes.com/2021/04/24/business/ceos-pandemic-compensation.html?searchResultPosition=1
+https://nytimes.com/2021/04/24/business/ceos-pandemic-compensation.html?searchResultPosition=3
 
 **4 Astronauts Float Into the International Space Station and Open Arms**\
 `The crew arrived on Saturday on the Dragon Endeavour, a spacecraft built by SpaceX, Elon Musk’s space exploration company.`\
-https://nytimes.com/2021/04/24/science/space/spacex-dragon-nasa.html?searchResultPosition=2
+https://nytimes.com/2021/04/24/science/space/spacex-dragon-nasa.html?searchResultPosition=4
 
 **Breaking With Predecessors, Biden Declares Mass Killings of Armenians a Genocide**\
 `The Turkish government, as well as human rights activists and ethnic Armenians, had a muted response to the news, describing the move as largely symbolic.`\
-https://nytimes.com/2021/04/24/us/politics/armenia-genocide-joe-biden.html?searchResultPosition=3
+https://nytimes.com/2021/04/24/us/politics/armenia-genocide-joe-biden.html?searchResultPosition=5
 
 **Variety: Acrostic**\
 `Emily Cox and Henry Rathvon bring us the forest; can we see the trees?`\
-https://nytimes.com/2021/04/24/crosswords/variety-acrostic.html?searchResultPosition=4
+https://nytimes.com/2021/04/24/crosswords/variety-acrostic.html?searchResultPosition=6
 
 **Hollywood’s Anti-Black Bias Costs It $10 Billion a Year**\
 `If the industry won’t change on principle, it can at least change for the money. Reform would enrich people of color, and everyone else.`\
-https://nytimes.com/2021/04/24/opinion/hollywood-oscars-racism.html?searchResultPosition=5
+https://nytimes.com/2021/04/24/opinion/hollywood-oscars-racism.html?searchResultPosition=7
 
 **Let’s Launch a Moonshot for Meatless Meat**\
 `It wouldn’t actually take that much of an investment for Biden to get us headed in the right direction.`\
-https://nytimes.com/2021/04/24/opinion/climate-change-meatless-meat.html?searchResultPosition=6
+https://nytimes.com/2021/04/24/opinion/climate-change-meatless-meat.html?searchResultPosition=8
 
 **What ‘Nomadland’ Exposes About Fear in America**\
 `People who live in homes-on-wheels should not have to be in constant fear of “the knock.”`\
-https://nytimes.com/2021/04/24/opinion/nomadland-oscars.html?searchResultPosition=7
+https://nytimes.com/2021/04/24/opinion/nomadland-oscars.html?searchResultPosition=9
 
 **Chauvin Was Convicted. Something Is Still Very Wrong.**\
 `What can be done about all of the suffering that remains?`\
-https://nytimes.com/2021/04/24/opinion/derek-chauvin-suffering.html?searchResultPosition=8
-
-**The Woman Who Shattered the Myth of the Free Market**\
-`Joan Robinson upended the misogynistic good-old-boys’ network of economists and devised theories around competition and labor vital to the antitrust debates of today.`\
-https://nytimes.com/2021/04/24/opinion/joan-robinson-economy-monopoly-labor.html?searchResultPosition=9
-
-**Crushed Dream Factory**\
-`Craving escapism from the Oscar contenders that reflect our sad reality.`\
-https://nytimes.com/2021/04/24/opinion/academy-awards-oscars-hollywood.html?searchResultPosition=10
+https://nytimes.com/2021/04/24/opinion/derek-chauvin-suffering.html?searchResultPosition=10
 
