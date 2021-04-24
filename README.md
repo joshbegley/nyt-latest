@@ -27,7 +27,7 @@ https://nytimes.com/2021/04/24/business/mackenzie-scott-giving-scams.html?search
 https://nytimes.com/2021/04/24/us/politics/texas-republicans-voting.html?searchResultPosition=7
 
 **In Poland, an L.G.B.T.Q. Migration As Homophobia Deepens**\
-`An escalation in verbal attacks by the Polish government, with the support of the church, as well as the threat of physical violence on the streets of many cities, has triggered an exodus of gay people.`\
+`An escalation in verbal attacks by the Polish government, with the support of the Roman Catholic Church, as well as the threat of physical violence on the streets of many cities, has triggered an exodus of gay people.`\
 https://nytimes.com/2021/04/24/world/europe/poland-lgbtq-gay-migration.html?searchResultPosition=8
 
 **Frigid Waters: A Fleeting Balm for a Mother’s Unspeakable Grief**\
