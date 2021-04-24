@@ -32,7 +32,7 @@ https://nytimes.com/2021/04/24/science/cahokia-mounds-floods.html?searchResultPo
 
 **How to Reserve a Campsite, Even at the Last Minute**\
 `Who says you can’t get a  reservation for the great outdoors this weekend?`\
-https://nytimes.com/2021/04/24/travel/reserve-last-minute-campsite.html?searchResultPosition=9
+https://nytimes.com/2021/04/24/travel/camping-campsite-reserve-reservation.html?searchResultPosition=9
 
 **MacKenzie Scott Gave Away Billions. The Scam Artists Followed.**\
 `She has no large foundation, headquarters or public website. That makes it easier to dispense money on her own terms — and for others to prey on the vulnerable in her name.`\
