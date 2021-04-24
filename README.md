@@ -26,15 +26,15 @@ https://nytimes.com/2021/04/24/business/mackenzie-scott-giving-scams.html?search
 `In Houston, election officials found creative ways to help a struggling and diverse work force vote in a pandemic. Record turnout resulted. Now the G.O.P. is targeting those very measures.`\
 https://nytimes.com/2021/04/24/us/politics/texas-republicans-voting.html?searchResultPosition=7
 
+**In Poland, an L.G.B.T.Q. Migration As Homophobia Deepens**\
+`An escalation in verbal attacks by the Polish government, with the support of the church, as well as the threat of physical violence on the streets of many cities, has triggered an exodus of gay people.`\
+https://nytimes.com/2021/04/24/world/europe/poland-lgbtq-gay-migration.html?searchResultPosition=8
+
 **Frigid Waters: A Fleeting Balm for a Mother’s Unspeakable Grief**\
 `To shake up the tedium of quarantine, I started doing polar plunges with Stephanie Reece, who was driven by something else entirely.`\
-https://nytimes.com/2021/04/24/nyregion/frigid-waters-a-fleeting-balm-for-a-mothers-unspeakable-grief.html?searchResultPosition=8
+https://nytimes.com/2021/04/24/nyregion/frigid-waters-a-fleeting-balm-for-a-mothers-unspeakable-grief.html?searchResultPosition=9
 
 **Voting Rights Standoff Stalls Trump-Inspired Ethics Measures**\
 `After the Trump presidency, democracy activists and many Democrats seized a moment to rebuild constitutional guardrails, but the effort could die in the face of a larger fight over voting rights.`\
-https://nytimes.com/2021/04/24/us/politics/trump-ethics-voting-rights.html?searchResultPosition=9
-
-**Biden’s Sky-High Promises on Racial Justice**\
-`A president evolves on civil rights along with the country.`\
-https://nytimes.com/2021/04/24/us/politics/biden-racial-justice.html?searchResultPosition=10
+https://nytimes.com/2021/04/24/us/politics/trump-ethics-voting-rights.html?searchResultPosition=10
 
