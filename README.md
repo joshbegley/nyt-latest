@@ -35,6 +35,6 @@ https://nytimes.com/2021/04/23/sports/olympics/simone-biles-athleta-nike.html?se
 https://nytimes.com/2021/04/23/us/coronavirus-today.html?searchResultPosition=9
 
 **Murdoch’s Pick to Run The New York Post Bets On the Web and Celebs**\
-`Keith Poole arrived last month with plans to make the tabloid more digital. Many of his staff have yet to hear from him.`\
+`Keith Poole arrived last month with plans to make the tabloid more digital. Many on his staff have yet to hear from him.`\
 https://nytimes.com/2021/04/23/business/media/new-york-post-editor.html?searchResultPosition=10
 
