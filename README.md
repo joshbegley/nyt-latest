@@ -1,40 +1,40 @@
-**In N.Y.C. Jail System, Guards Often Lie About Excessive Force**\
-`More than half of the roughly 270 correction officers disciplined over a 20-month period lied to investigators or filed incomplete or inaccurate reports.`\
-https://nytimes.com/2021/04/24/nyregion/rikers-guards-lie-nyc-jails.html?searchResultPosition=1
+**Debris From Indonesian Submarine Is Found, Ending Hopes of Rescue**\
+`Search teams from several countries had been looking for the navy vessel, which disappeared this week with 53 people aboard.`\
+https://nytimes.com/2021/04/24/world/asia/indonesia-submarine-missing.html?searchResultPosition=1
 
-**General Who Led Myanmar’s Coup Arrives for Regional Talks on the Crisis**\
-`Critics feared that Senior Gen. Min Aung Hlaing’s presence at the meeting in Indonesia would give his regime the appearance of legitimacy.`\
-https://nytimes.com/2021/04/24/world/asia/myanmar-asean-general-indonesia.html?searchResultPosition=2
+**There Is a Lot of Fungus Among Us**\
+`Coffee for immune support. Supplements for inflammation. And psychedelics promising relief from serious ailments. Mushrooms are everywhere, and investors are paying attention.`\
+https://nytimes.com/2021/04/24/business/there-is-a-lot-of-fungus-among-us.html?searchResultPosition=2
 
-**The Short, Unhappy Life of Europe’s Super League**\
-`A timeline of the Super League, which was designed to reshape European soccer and instead rained only grief on its 12 clubs in the two days before it imploded.`\
-https://nytimes.com/2021/04/24/sports/soccer/super-league-timeline.html?searchResultPosition=3
+**What Doomed the Great City of Cahokia? Not Ecological Hubris, Study Says**\
+`Excavations at the city, famous for its pre-Columbian mounds, challenge the idea that residents destroyed the city through wood clearing.`\
+https://nytimes.com/2021/04/24/science/cahokia-mounds-floods.html?searchResultPosition=3
 
-**Anthony Edwards Will Dunk on You. And Beat You in Ping-Pong?**\
-`The Minnesota Timberwolves are not good this season. But Edwards, their rookie No. 1 draft pick? He is giving fans many reasons to watch (and listen).`\
-https://nytimes.com/2021/04/24/sports/basketball/anthony-edwards-timberwolves.html?searchResultPosition=4
+**How to Reserve a Campsite, Even at the Last Minute**\
+`Who says you can’t get a  reservation for the great outdoors this weekend?`\
+https://nytimes.com/2021/04/24/travel/reserve-last-minute-campsite.html?searchResultPosition=4
 
-**DeGrom Shuts Out the Nationals and Sets a Strikeout Record**\
-`The Mets’ ace has 50 strikeouts in four starts. The Yankees, meanwhile, won again thanks to Giancarlo Stanton.`\
-https://nytimes.com/2021/04/23/sports/baseball/mets-yankees.html?searchResultPosition=5
+**MacKenzie Scott Gave Away Billions. The Scam Artists Followed.**\
+`She has no large foundation, headquarters or public website. That makes it easier to dispense money on her own terms — and for others to prey on the vulnerable in her name.`\
+https://nytimes.com/2021/04/24/business/mackenzie-scott-giving-scams.html?searchResultPosition=5
 
-**7 Deputies Placed on Leave After Fatal Shooting of Black Man in North Carolina**\
-`Gov. Roy Cooper on Friday joined growing calls for the release of body-camera footage of the fatal shooting of Andrew Brown Jr. in Elizabeth City.`\
-https://nytimes.com/2021/04/23/us/elizabeth-city-shooting-sherrifs-deputy.html?searchResultPosition=6
+**Texas Republicans Targeting Voting Access Find Their Bull’s-Eye: Cities**\
+`In Houston, election officials found creative ways to help a struggling and diverse work force vote in a pandemic. Record turnout resulted. Now the G.O.P. is targeting those very measures.`\
+https://nytimes.com/2021/04/24/us/politics/texas-republicans-voting.html?searchResultPosition=6
 
-**India Faces Record-Breaking Virus Surge**\
-`India set a global record for new daily coronavirus infections on Friday, beating the previous record from the day before, while oxygen supplies dwindled.`\
-https://nytimes.com/video/world/asia/100000007728040/india-virus-surge.html?searchResultPosition=7
+**Frigid Waters: A Fleeting Balm for a Mother’s Unspeakable Grief**\
+`To shake up the tedium of quarantine, I started doing polar plunges with Stephanie Reece, who was driven by something else entirely.`\
+https://nytimes.com/2021/04/24/nyregion/frigid-waters-a-fleeting-balm-for-a-mothers-unspeakable-grief.html?searchResultPosition=7
 
-**When?**\
-`Kristian House and Mike Dockins nudge us on our weekend.`\
-https://nytimes.com/2021/04/23/crosswords/daily-puzzle-2021-04-24.html?searchResultPosition=8
+**Voting Rights Standoff Stalls Trump-Inspired Ethics Measures**\
+`After the Trump presidency, democracy activists and many Democrats seized a moment to rebuild constitutional guardrails, but the effort could die in the face of a larger fight over voting rights.`\
+https://nytimes.com/2021/04/24/us/politics/trump-ethics-voting-rights.html?searchResultPosition=8
 
-**J.&.J. Vaccine Will Be Available Again Soon**\
-`U.S. experts weigh the risks for younger women and cases of a rare blood-clotting disorder, and lift the pause in giving the one-shot vaccine.`\
-https://nytimes.com/2021/04/23/health/johnson-vaccine-resume.html?searchResultPosition=9
+**Biden’s Sky-High Promises on Racial Justice**\
+`A president evolves on civil rights along with the country.`\
+https://nytimes.com/2021/04/24/us/politics/biden-racial-justice.html?searchResultPosition=9
 
-**Quotation of the Day: A Crisis in San Francisco as Fentanyl Deaths Soar**\
-`Quotation of the Day for Saturday, April 24, 2021.`\
-https://nytimes.com/2021/04/23/todayspaper/quotation-of-the-day-a-crisis-in-san-francisco-as-fentanyl-deaths-soar.html?searchResultPosition=10
+**In Poland, an L.G.B.T.Q. Migration As Homophobia Deepens**\
+`An escalation in verbal attacks by the Polish government, with the support of the church, as well as the threat of physical violence on the streets of many cities, has triggered an exodus of gay people.`\
+https://nytimes.com/2021/04/24/world/europe/poland-lgbtq-gay-migration.html?searchResultPosition=10
 
