@@ -1,6 +1,6 @@
 **Breaking With Predecessors, Biden Declares Mass Killings of Armenians a Genocide**\
 `The Turkish government, as well as human rights activists and ethnic Armenians, had a muted response to the news, describing the move as largely symbolic.`\
-https://nytimes.com/2021/04/24/us/politics/biden-genocide-armenia-turkey.html?searchResultPosition=1
+https://nytimes.com/2021/04/24/us/politics/armenia-genocide-joe-biden.html?searchResultPosition=1
 
 **Variety: Acrostic**\
 `Emily Cox and Henry Rathvon bring us the forest; can we see the trees?`\
