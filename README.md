@@ -1,5 +1,5 @@
 **Fauci and other top U.S. health officials stress the urgency of vaccinations and their safety.**\
-`Now that the J&J pause has lifted, the government is pushing to get 80 percent of adult Americans inoculated by summer.`\
+`Now that the J&J pause has lifted, the government is pushing to get most adult Americans inoculated this summer.`\
 https://nytimes.com/2021/04/25/health/fauci-vaccines-safety.html?searchResultPosition=1
 
 **$1 Million in Toxic Bleach Sold as ‘Miracle’ Cure, Officials Say**\
