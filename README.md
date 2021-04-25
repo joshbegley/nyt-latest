@@ -14,7 +14,7 @@ https://nytimes.com/2021/04/25/us/politics/rental-assistance-pandemic.html?searc
 `Tensions had been rising since the president, a former American citizen, failed to hold scheduled elections, then extended his term in office by two years.`\
 https://nytimes.com/2021/04/25/world/middleeast/somalia-fighting.html?searchResultPosition=4
 
-**All the Best Oscars Red Carpet Dresses**\
+**What The Stars Wore on the Oscars Red Carpet**\
 `A socially distanced promenade: nominees posed without their usual entourages, and were interviewed at a remove of six feet.`\
 https://nytimes.com/slideshow/2021/04/25/style/all-the-best-oscars-red-carpet-dresses.html?searchResultPosition=5
 
