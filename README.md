@@ -34,7 +34,7 @@ https://nytimes.com/2021/04/25/obituaries/alber-elbaz-dead.html?searchResultPosi
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2021/04/25/briefing/johnson-johnson-india-mushrooms.html?searchResultPosition=9
 
-**Oscars 2021: What to Watch For**\
+**‘Nomadland,’ ‘Minari’ and Chadwick Boseman: What to Expect at the 2021 Oscars**\
 `It has been a surreal time in Hollywood, but Sunday night’s Academy Awards, which begin at 8 p.m. Eastern, could go down in movie industry history for several reasons.`\
 https://nytimes.com/2021/04/25/movies/oscars-2021-academy-awards.html?searchResultPosition=10
 
