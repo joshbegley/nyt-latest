@@ -1,6 +1,6 @@
 **$1 Million in Toxic Bleach Sold as ‘Miracle’ Cure, Officials Say**\
 `A Florida grand jury indicted a man and his three sons, accusing them of marketing an “unproven and potentially harmful” solution as a remedy for Covid-19, cancer, autism and more.`\
-https://nytimes.com/2021/04/25/us/bleach-florida-covid-mark-grenon.html?searchResultPosition=1
+https://nytimes.com/2021/04/25/us/miracle-bleach-cure-covid-19.html?searchResultPosition=1
 
 **Summer camp advice — keep masks and distancing — gets an update from the C.D.C.**\
 `The updated guidance was issued just weeks before many U.S. camps resume operations in mid-May.`\
