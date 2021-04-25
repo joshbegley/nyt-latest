@@ -27,7 +27,7 @@ https://nytimes.com/2021/04/25/business/the-week-in-business-housing-sales.html?
 https://nytimes.com/2021/04/25/style/oscars-red-carpet-time.html?searchResultPosition=7
 
 **Alber Elbaz, Fashion Designer, Dies of Covid at 59**\
-`The chairman of the company that backed his latest venture called the designer “one of the industry’s brightest and most beloved figures.”`\
+`He rejuvenated Lanvin and had launched his own firm. An associate called him “one of the industry’s brightest and most beloved figures.”`\
 https://nytimes.com/2021/04/25/obituaries/alber-elbaz-dead.html?searchResultPosition=8
 
 **Johnson & Johnson, India, Mushrooms: Your Weekend Briefing**\
