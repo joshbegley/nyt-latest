@@ -26,8 +26,8 @@ https://nytimes.com/2021/04/25/briefing/johnson-johnson-india-mushrooms.html?sea
 `It has been a surreal time in Hollywood, but Sunday night’s Academy Awards, which begin at 8 p.m. Eastern, could go down in movie industry history for several reasons.`\
 https://nytimes.com/2021/04/25/movies/oscars-2021-academy-awards.html?searchResultPosition=7
 
-**Baghdad Hospital Fire Kills at Least 82, Many of Them Older Covid Patients**\
-`A blast caused by an exploding oxygen cylinder swept through a hospital that lacked smoke detectors and spread partly because of flammable false ceilings, an official said.`\
+**Baghdad Hospital Fire Kills at Least 82, Many of Them Covid Patients**\
+`A blast caused by an exploding oxygen cylinder swept through a hospital that lacked smoke detectors and spread partly because of flammable false ceilings.`\
 https://nytimes.com/2021/04/25/world/middleeast/iraq-hospital-fire.html?searchResultPosition=8
 
 **4 Takeaways From Our Investigation Into ICE’s Mishandling of Covid-19**\
