@@ -2,7 +2,7 @@
 `A Florida grand jury indicted a man and his three sons, accusing them of marketing an “unproven and potentially harmful” solution as a remedy for Covid-19, cancer, autism and more.`\
 https://nytimes.com/2021/04/25/us/bleach-florida-covid-mark-grenon.html?searchResultPosition=1
 
-**Summer camp advice — masks and distancing — gets an update from the C.D.C.**\
+**Summer camp advice — keep masks and distancing — gets an update from the C.D.C.**\
 `The updated guidance was issued just weeks before many U.S. camps resume operations in mid-May.`\
 https://nytimes.com/2021/04/25/health/covid-summercamp-cdc.html?searchResultPosition=2
 
