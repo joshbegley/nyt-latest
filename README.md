@@ -11,7 +11,7 @@ https://nytimes.com/2021/04/25/opinion/salt-deduction-democrats.html?searchResul
 https://nytimes.com/2021/04/25/world/us-vaccines-india-covid.html?searchResultPosition=3
 
 **Overdue VHS Tape From 1999 Leads to Warrant for Embezzlement**\
-`The charge against Caron Scarborough Davis, who learned of the warrant after she tried to change her name on her driver’s license, was dropped last week.`\
+`The charge was related to a “Sabrina the Teenage Witch” tape that had been rented from a video store in Norman, Okla. Prosecutors dismissed the case on Wednesday.`\
 https://nytimes.com/2021/04/25/us/caron-scarborough-davis-vhs-return-warrant.html?searchResultPosition=4
 
 **Arlene Pieper Stine, 90, Dies; First Woman to Finish a Marathon**\
