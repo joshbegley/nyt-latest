@@ -20,7 +20,7 @@ https://nytimes.com/2021/04/25/business/the-week-in-business-housing-sales.html?
 
 **The Oscars Are Here. Who Will Show Up on the Red Carpet?**\
 `The Academy Awards are back. But they may look a little different.`\
-https://nytimes.com/2021/04/25/style/oscars-2021-red-carpet-time.html?searchResultPosition=6
+https://nytimes.com/2021/04/25/style/oscars-red-carpet-time.html?searchResultPosition=6
 
 **Alber Elbaz, Fashion Designer, Dies of Covid at 59**\
 `The chairman of the company that backed his latest venture called the designer “one of the industry’s brightest and most beloved figures.”`\
