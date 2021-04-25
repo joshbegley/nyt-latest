@@ -24,7 +24,7 @@ https://nytimes.com/2021/04/25/dining/what-to-cook-this-week.html?searchResultPo
 
 **U.S. Military Begins Final Withdrawal From Afghanistan**\
 `The top American commander, Gen. Austin S. Miller, says he is often asked whether the Afghan forces are ready to fight the Taliban alone. His answer? ‘They must be ready.’`\
-https://nytimes.com/2021/04/25/world/asia/us-military-begins-final-withdrawal-from-afghanistan.html?searchResultPosition=7
+https://nytimes.com/2021/04/25/world/asia/usa-military-withdrawal-afghanistan.html?searchResultPosition=7
 
 **Bob Fass, Pioneer of Underground Radio, Dies at 87**\
 `His provocative “Radio Unnameable,” long a staple of the New York station WBAI, offered a home on the FM dial to everyone from Abbie Hoffman to Tiny Tim.`\
