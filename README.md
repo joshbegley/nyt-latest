@@ -10,7 +10,7 @@ https://nytimes.com/2021/04/25/business/the-week-in-business-housing-sales.html?
 `The Academy Awards are back. But they may look a little different.`\
 https://nytimes.com/2021/04/25/style/oscars-2021-red-carpet-time.html?searchResultPosition=3
 
-**Alber Elbaz, Fashion Designer, Dies**\
+**Alber Elbaz, Fashion Designer, Dies of Covid at 59**\
 `The chairman of the company that backed his latest venture called the designer “one of the industry’s brightest and most beloved figures.”`\
 https://nytimes.com/2021/04/25/obituaries/alber-elbaz-dead.html?searchResultPosition=4
 
