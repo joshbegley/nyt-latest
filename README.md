@@ -1,6 +1,6 @@
 **The Best (and Weirdest) Oscar Moments**\
 `“It felt like it was more about the human sinew that connects us.”`\
-https://nytimes.com/2021/04/26/opinion/oscars-2021-best-moments.html?searchResultPosition=1
+https://nytimes.com/2021/04/26/opinion/oscars-academy-awards-2021-best-moments.html?searchResultPosition=1
 
 **Prince Philip’s Death Adds New Urgency to U.K. Monarchy’s Transition Plans**\
 `Queen Elizabeth II is increasingly withdrawing to Windsor Castle, royal watchers say, while Prince Charles is stepping forward.`\
