@@ -22,7 +22,7 @@ https://nytimes.com/2021/04/25/movies/academy-awards-oscars.html?searchResultPos
 `Mohammad Javad Zarif, the Iranian foreign minister, described a rivalry with a powerful and widely revered military leader, Qassim Suleimani.`\
 https://nytimes.com/2021/04/25/world/asia/iran-suleimani-zarif.html?searchResultPosition=6
 
-**Daniel Kaluuya wins best supporting actor**\
+**Daniel Kaluuya wins best supporting actor.**\
 `The British actor played a Chicago leader of the Black Panther Party in “Judas and the Black Messiah.”`\
 https://nytimes.com/2021/04/25/movies/daniel-kaluuya-oscars-best-supporting-actor.html?searchResultPosition=7
 
