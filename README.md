@@ -16,7 +16,7 @@ https://nytimes.com/2021/04/26/opinion/oscars-academy-awards-2021-best-moments.h
 
 **Prince Philip’s Death Adds New Urgency to U.K. Monarchy’s Transition Plans**\
 `Queen Elizabeth II is increasingly withdrawing to Windsor Castle, royal watchers say, while Prince Charles is stepping forward.`\
-https://nytimes.com/2021/04/26/world/europe/uk-royal-family-succession.html?searchResultPosition=5
+https://nytimes.com/2021/04/26/world/europe/prince-charles-queen-elizabeth-royal-family-uk.html?searchResultPosition=5
 
 **Amy Klobuchar on Breaking Up Giant Corporations**\
 `Klobuchar’s “Antitrust” looks at the history of policy toward trusts and monopolies, and calls for revitalized efforts to bring economic titans under control.`\
