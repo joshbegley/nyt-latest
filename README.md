@@ -1,6 +1,6 @@
 **With U.K. cases low, Scotland and Wales reopen restaurants and stores.**\
 `By Isabella Kwai`\
-https://nytimes.com/2021/04/26/world/scotland-wales-covid.html?searchResultPosition=1
+https://nytimes.com/2021/04/26/world/europe/scotland-wales-covid.html?searchResultPosition=1
 
 **Long Before Her ‘Minari’ Oscar, Youn Yuh-jung Won South Korea’s Heart**\
 `Ms. Youn is the first Asian woman to win the best supporting actress Oscar since 1957. But it’s her life story — as well her characters — that made her award resonate among Koreans.`\
