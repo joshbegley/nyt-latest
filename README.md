@@ -27,11 +27,11 @@ https://nytimes.com/2021/04/26/world/europe/france-anti-semitic-killing-drugs.ht
 https://nytimes.com/2021/04/26/business/tesla-earnings.html?searchResultPosition=7
 
 **The Justice Department will investigate the Louisville police, Garland says.**\
-`The Louisville police came under fire after officers mistakenly raided the home of a Black medical worker named Breonna Taylor last March and shot her to death.`\
+`The Louisville police came under fire after officers raided the home of a Black medical worker named Breonna Taylor last March and shot her to death.`\
 https://nytimes.com/2021/04/26/us/louisville-police-justice-dept-investigation.html?searchResultPosition=8
 
 **The Biden administration is expected to share AstraZeneca doses with other nations after a safety review.**\
-`AstraZeneca’s coronavirus vaccine has also not been granted emergency use authorization by the Food and Drug Administration. And the administration would not specify which countries will receive the vaccine.`\
+`AstraZeneca’s vaccine has also not been granted emergency use authorization by the Food and Drug Administration. And the administration would not specify which countries will receive the vaccine.`\
 https://nytimes.com/2021/04/26/us/politics/astrazeneca-covid-vaccine-biden.html?searchResultPosition=9
 
 **What Our Food Staff Listens To in the Kitchen**\
