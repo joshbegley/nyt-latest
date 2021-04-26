@@ -1,5 +1,5 @@
 **Madison Bumgarner Throws a No-Hitter. Kind Of.**\
-`In a game limited to seven innings as part of a doubleheader, Arizona’s ace gets a shutout but won’t be credited with a no-no.`\
+`In a game limited to seven innings as part of a doubleheader, the Arizona lefty gets a shutout but won’t be credited with a no-no.`\
 https://nytimes.com/2021/04/25/sports/baseball/madison-bumgarner-no-hitter.html?searchResultPosition=1
 
 **Chloé Zhao becomes the first woman of color to win best director.**\
