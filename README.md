@@ -1,40 +1,40 @@
+**The Covid-19 Oscars: Not Masked but Still Muffled**\
+`A stripped-down ceremony stripped out too much of what makes the show, for better or worse, worth watching.`\
+https://nytimes.com/2021/04/25/arts/television/covid-19-oscars-2021.html?searchResultPosition=1
+
 **The Academy Has Spoken. Now It’s Your Turn.**\
 `Tell us what you think about this year’s Oscars.`\
-https://nytimes.com/2021/04/25/opinion/oscars-ceremony-2021.html?searchResultPosition=1
+https://nytimes.com/2021/04/25/opinion/oscars-ceremony-2021.html?searchResultPosition=2
 
 **‘Nomadland’ is named best picture as expected.**\
 `The movie, about a widow who hits the road in the recession-struck American West, also won best director.`\
-https://nytimes.com/2021/04/25/movies/nomadland-best-picture-chloe-zhao.html?searchResultPosition=2
+https://nytimes.com/2021/04/25/movies/nomadland-best-picture-chloe-zhao.html?searchResultPosition=3
+
+**Anthony Hopkins shocks by winning best actor over Chadwick Boseman.**\
+`By Matt Stevens`\
+https://nytimes.com/2021/04/25/movies/anthony-hopkins-chadwick-boseman.html?searchResultPosition=4
 
 **Tyler Perry gets an honorary Oscar.**\
 `The creator of the popular “Madea” films was recognized for his “cultural influence.”`\
-https://nytimes.com/2021/04/25/movies/tyler-perry-honorary-oscar.html?searchResultPosition=3
+https://nytimes.com/2021/04/25/movies/tyler-perry-honorary-oscar.html?searchResultPosition=5
 
 **Yuh-Jung Youn becomes the first Korean woman in Oscar history to win best supporting actress.**\
 `“How can I win over Glenn Close?” Youn said while accepting the award for her role in “Minari.” “Tonight, I have just a little bit luck, I think, maybe.”`\
-https://nytimes.com/2021/04/25/movies/yuh-jung-youn-minari-oscars-win.html?searchResultPosition=4
+https://nytimes.com/2021/04/25/movies/yuh-jung-youn-minari-oscars-win.html?searchResultPosition=6
 
 **Madison Bumgarner Throws a No-Hitter. Kind Of.**\
 `In a game limited to seven innings as part of a doubleheader, the Arizona lefty gets a shutout but won’t be credited with a no-no.`\
-https://nytimes.com/2021/04/25/sports/baseball/madison-bumgarner-no-hitter.html?searchResultPosition=5
+https://nytimes.com/2021/04/25/sports/baseball/madison-bumgarner-no-hitter.html?searchResultPosition=7
 
 **‘Soul’ continues Pixar’s dominance in awards season.**\
 `The movie featured the studio’s first Black protagonist (voiced by Jamie Foxx).`\
-https://nytimes.com/2021/04/25/movies/soul-pixar-oscars.html?searchResultPosition=6
+https://nytimes.com/2021/04/25/movies/soul-pixar-oscars.html?searchResultPosition=8
 
 **Chloé Zhao becomes the first woman of color to win best director.**\
 `The filmmaker behind “Nomadland” has been winning all season long and is already at work on her next project, the superhero team-up “Eternals.”`\
-https://nytimes.com/2021/04/25/movies/chloe-zhao-nomadland-best-director.html?searchResultPosition=7
+https://nytimes.com/2021/04/25/movies/chloe-zhao-nomadland-best-director.html?searchResultPosition=9
 
 **Mia Neal and Jamika Wilson are the first Black women to win for hair and makeup.**\
 `They are also the first ever to be nominated in the category since it was introduced in 1981.`\
-https://nytimes.com/2021/04/25/movies/ma-raineys-black-bottom-mia-neal-jamika-wilson.html?searchResultPosition=8
-
-**Chloé Zhao and ‘Nomadland’ Win at 2021 Oscars**\
-`Daniel Kaluuya and Yuh-Jung Youn won acting awards and Emerald Fennell’s script for “Promising Young Woman” was recognized in a singular Oscars telecast.`\
-https://nytimes.com/2021/04/25/movies/academy-awards-oscars.html?searchResultPosition=9
-
-**Iran’s Foreign Minister, in Leaked Tape, Says Revolutionary Guards Set Policies**\
-`Mohammad Javad Zarif, the Iranian foreign minister, described a rivalry with a powerful and widely revered military leader, Qassim Suleimani.`\
-https://nytimes.com/2021/04/25/world/asia/iran-suleimani-zarif.html?searchResultPosition=10
+https://nytimes.com/2021/04/25/movies/ma-raineys-black-bottom-mia-neal-jamika-wilson.html?searchResultPosition=10
 
