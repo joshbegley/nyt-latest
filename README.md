@@ -2,7 +2,7 @@
 `Mulkey, who won three national titles in 21 seasons with the Bears, will return to the state where she made her name.`\
 https://nytimes.com/2021/04/26/sports/ncaabasketball/kim-mulkey-lsu-baylor.html?searchResultPosition=1
 
-**With Navalny in Prison, Russia Moves to Thwart His Movement**\
+**With Navalny in Prison, Russia Turns to Thwarting His Movement**\
 `Prosecutors have banned the opposition leader’s political groups from carrying out any public activity.`\
 https://nytimes.com/2021/04/26/world/europe/russia-navalny-movement.html?searchResultPosition=2
 
