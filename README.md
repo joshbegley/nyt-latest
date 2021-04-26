@@ -1,6 +1,6 @@
 **In California, it’s official: Gov. Gavin Newsom will face a recall election.**\
 `A Republican-led campaign to oust Mr. Newsom officially qualified for the ballot, triggering the second recall election in the state’s history.`\
-https://nytimes.com/2021/04/26/us/gavin-newsom-recall-california.html?searchResultPosition=1
+https://nytimes.com/2021/04/26/us/gavin-newsom-recall.html?searchResultPosition=1
 
 **The Triumph of the Anti-Legislator**\
 `Representatives Mo Brooks and Marjorie Taylor Greene care more about culture warring than lawmaking. Will Mark McCloskey join them?`\
