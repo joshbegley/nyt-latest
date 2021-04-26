@@ -2,8 +2,8 @@
 `Ms. Youn is the first Asian woman to win the best supporting actress Oscar since 1957. But it’s her life story — as well her characters — that made her award resonate among Koreans.`\
 https://nytimes.com/2021/04/26/world/asia/south-korea-oscar-minari.html?searchResultPosition=1
 
-**Why These C.E.O.s Got Paid More in the Pandemic**\
-`Companies defend pay hikes for their leaders.`\
+**Why These C.E.O.s Got Paid So Much in the Pandemic**\
+`Companies defend stratospheric pay for their leaders.`\
 https://nytimes.com/2021/04/26/business/dealbook/ceo-pay-pandemic.html?searchResultPosition=2
 
 **China opens an inquiry into Meituan, a takeout-delivery titan.**\
