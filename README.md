@@ -1,40 +1,40 @@
-**Hester Ford, Oldest American, Dies**\
-`She was believed to be either 115 or 116. She experienced two pandemics and two world wars and lived under 21 presidents.`\
-https://nytimes.com/2021/04/26/us/hester-ford-dead.html?searchResultPosition=1
-
 **A Surprise Ending for the Oscars’ Inclusive Night**\
 `Six years after #OscarsSoWhite, a diverse roster of artists won awards, though Anthony Hopkins’ winning best actor over Chadwick Boseman surprised many.`\
-https://nytimes.com/2021/04/26/movies/academy-awards-chadwick-boseman-oscars-diversity.html?searchResultPosition=2
+https://nytimes.com/2021/04/26/movies/academy-awards-chadwick-boseman-oscars-diversity.html?searchResultPosition=1
 
 **A private school in Miami, citing false claims, bars vaccinated teachers from contact with students.**\
 `Centner Academy advertises its support for “medical freedom from mandated vaccines,” and has recently hosted talks by antivaccine advocates.`\
-https://nytimes.com/2021/04/26/us/florida-centner-academy-vaccine.html?searchResultPosition=3
+https://nytimes.com/2021/04/26/us/florida-centner-academy-vaccine.html?searchResultPosition=2
 
 **Supreme Court Wary of Donor Disclosure Requirement for Charities**\
 `The case, from California, could affect the regulation of “dark money” in political contests.`\
-https://nytimes.com/2021/04/26/us/supreme-court-charities-donors.html?searchResultPosition=4
+https://nytimes.com/2021/04/26/us/supreme-court-charities-donors.html?searchResultPosition=3
 
 **New York Loses House Seat After Coming Up 89 People Short on Census**\
 `New population figures released on Monday confirmed that after the latest census, New York would lose a congressional seat, but only by the narrowest of margins.`\
-https://nytimes.com/2021/04/26/nyregion/new-york-census-congress.html?searchResultPosition=5
+https://nytimes.com/2021/04/26/nyregion/new-york-census-congress.html?searchResultPosition=4
 
 **Which States Will Gain or Lose Seats in the Next Congress**\
 `Texas and Florida will get more House representatives. California and New York will lose slots. Here’s how the 2020 census redistributes political power.`\
-https://nytimes.com/interactive/2021/04/26/us/politics/congress-house-seats-census.html?searchResultPosition=6
+https://nytimes.com/interactive/2021/04/26/us/politics/congress-house-seats-census.html?searchResultPosition=5
 
 **Guard Watched as Man Hanged Himself in Jail, Prosecutors Say**\
 `Captain Rebecca Hillman was charged with criminally negligent homicide in the death of a prisoner, an incident that led to criticism of New York City’s jail system.`\
-https://nytimes.com/2021/04/26/nyregion/prison-guard-charged-rebecca-hillman-ryan-wilson.html?searchResultPosition=7
+https://nytimes.com/2021/04/26/nyregion/prison-guard-charged-rebecca-hillman-ryan-wilson.html?searchResultPosition=6
 
 **Still Getting Your Head Around Digital Currency? So Are Central Bankers.**\
 `If you are trying to grasp Bitcoin and understand what China’s digital yuan means, America’s Federal Reserve is right there with you.`\
-https://nytimes.com/2021/04/26/business/economy/fed-digital-currency.html?searchResultPosition=8
+https://nytimes.com/2021/04/26/business/economy/fed-digital-currency.html?searchResultPosition=7
 
 **The Sing-Rap Generation Branches Out**\
 `How melody has continued to reshape hip-hop via the work of Polo G, Rod Wave, Lil Tjay and more rising artists.`\
-https://nytimes.com/2021/04/26/arts/music/popcast-sing-rap-polo-g-rod-wave-lil-tjay.html?searchResultPosition=9
+https://nytimes.com/2021/04/26/arts/music/popcast-sing-rap-polo-g-rod-wave-lil-tjay.html?searchResultPosition=8
 
 **Airline Bans Alaska State Senator Over Mask Policy Violation**\
 `Alaska Airlines said it would not allow State Senator Lora Reinbold to fly because she refused to comply with its mask rules.`\
-https://nytimes.com/2021/04/26/us/alaska-airlines-senator-banned-lora-reinbold.html?searchResultPosition=10
+https://nytimes.com/2021/04/26/us/alaska-airlines-senator-banned-lora-reinbold.html?searchResultPosition=9
+
+**U.S. Population Over Last Decade Grew at Slowest Rate Since 1930s**\
+`With immigration leveling off and a declining birthrate, the United States may be entering an era of substantially lower population growth, demographers said.`\
+https://nytimes.com/2021/04/26/us/us-census-numbers.html?searchResultPosition=10
 
