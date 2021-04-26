@@ -14,13 +14,13 @@ https://nytimes.com/2021/04/26/briefing/coronavirus-india-iraq-hospital-oscars.h
 `Once a season, Marc Stein provides a more detailed assessment of the N.B.A.’s 1-to-30 landscape than the standings do.`\
 https://nytimes.com/2021/04/26/sports/basketball/nba-power-rankings-utah-jazz-suns.html?searchResultPosition=4
 
-**A Minneapolis High School Football Team and Its Coach Move On**\
-`Charles Adams, a former police officer, and the Minneapolis North team are warily moving forward after the Derek Chauvin verdict offered a rebuke to one police killing in their community.`\
-https://nytimes.com/2021/04/26/sports/football/minneapolis-george-floyd-police-schools-coach.html?searchResultPosition=5
-
 **Urban Meyer’s Renewal in Jacksonville**\
 `After years of disarray, the Jaguars have what the team’s owner called “a once-in-a-lifetime opportunity in football” — the No. 1 pick in the N.F.L. draft and a coach who knows what to do with him.`\
-https://nytimes.com/2021/04/26/sports/football/jacksonville-jaguars-urban-meyer.html?searchResultPosition=6
+https://nytimes.com/2021/04/26/sports/football/jacksonville-jaguars-urban-meyer.html?searchResultPosition=5
+
+**A Minneapolis High School Football Team and Its Coach Move On**\
+`Charles Adams, a former police officer, and the Minneapolis North team are warily moving forward after the Derek Chauvin verdict offered a rebuke to one police killing in their community.`\
+https://nytimes.com/2021/04/26/sports/football/minneapolis-george-floyd-police-schools-coach.html?searchResultPosition=6
 
 **No Corrections: April 26, 2021**\
 `No corrections appeared in print on Monday, April 26, 2021.`\
