@@ -1,5 +1,5 @@
-**Biden administration is expected to share AstraZeneca doses with other nations after a safety review.**\
-`AstraZeneca’s vaccine has also not been granted emergency use authorization by the Food and Drug Administration. And the administration would not specify which countries will receive the vaccine.`\
+**The Biden administration is expected to share AstraZeneca doses with other nations after a safety review.**\
+`AstraZeneca’s coronavirus vaccine has also not been granted emergency use authorization by the Food and Drug Administration. And the administration would not specify which countries will receive the vaccine.`\
 https://nytimes.com/2021/04/26/us/politics/astrazeneca-covid-vaccine-biden.html?searchResultPosition=1
 
 **What Our Food Staff Listens To in the Kitchen**\
