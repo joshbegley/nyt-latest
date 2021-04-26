@@ -1,6 +1,6 @@
 **China Censors Chloé Zhao’s Oscar Win, but Fans Find Ways to Rejoice**\
 `On social media, the director’s fans blurred out her name and turned images on their sides to evade the censors. “People should be celebrating,” one writer said.`\
-https://nytimes.com/2021/04/26/world/asia/china-censors-chloe-zhaos-oscar-win-but-fans-find-ways-to-rejoice.html?searchResultPosition=1
+https://nytimes.com/2021/04/26/world/asia/china-chloe-zhao-oscars.html?searchResultPosition=1
 
 **Why Russia Is Exporting So Much Vaccine**\
 `Millions of doses of Russia’s pioneering coronavirus vaccine have gone abroad, strengthening the country’s influence at the expense of its people.`\
