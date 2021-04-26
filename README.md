@@ -11,7 +11,7 @@ https://nytimes.com/2021/04/26/world/europe/uk-royal-family-succession.html?sear
 https://nytimes.com/2021/04/26/books/review/antitrust-amy-klobuchar.html?searchResultPosition=3
 
 **Asian Man Who Was Stomped and Kicked in Harlem Is in Critical Condition**\
-`A Chinese man collecting bottles and cans was stomped on and kicked in the head, part of a wave of assaults on Asian New Yorkers.`\
+`A Chinese man collecting bottles and cans was kicked in the head, part of a wave of assaults on Asian New Yorkers.`\
 https://nytimes.com/2021/04/26/nyregion/yao-pan-ma-attacked-harlem.html?searchResultPosition=4
 
 **And the Oscar Goes to … a Film From a Video Game**\
