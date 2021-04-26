@@ -1,4 +1,4 @@
-**Man Who Killed Hiker on Appalachian Trail Found Not Guilty**\
+**Appalachian Trail Killer Found Not Guilty by Reason of Insanity**\
 `A judge found James L. Jordan not guilty by reason of insanity in the fatal stabbing of Ronald S. Sanchez Jr. along the trail in 2019.`\
 https://nytimes.com/2021/04/26/us/appalachian-trail-attack-james-l-jordan.html?searchResultPosition=1
 
