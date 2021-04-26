@@ -22,8 +22,8 @@ https://nytimes.com/2021/04/25/movies/chloe-zhao-nomadland-best-director.html?se
 `They are also the first ever to be nominated in the category since it was introduced in 1981.`\
 https://nytimes.com/2021/04/25/movies/ma-raineys-black-bottom-mia-neal-jamika-wilson.html?searchResultPosition=6
 
-**Chloé Zhao and Yuh-Jung Youn Make History at 2021 Oscars**\
-`Daniel Kaluuya also won best supporting actor and Emerald Fennell’s script for “Promising Young Woman” was recognized in a singular Oscars telecast.`\
+**Chloé Zhao and ‘Nomadland’ Win at 2021 Oscars**\
+`Daniel Kaluuya and Yuh-Jung Youn won acting awards and Emerald Fennell’s script for “Promising Young Woman” was recognized in a singular Oscars telecast.`\
 https://nytimes.com/2021/04/25/movies/academy-awards-oscars.html?searchResultPosition=7
 
 **Iran’s Foreign Minister, in Leaked Tape, Says Revolutionary Guards Set Policies**\
