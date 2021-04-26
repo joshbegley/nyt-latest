@@ -1,40 +1,40 @@
-**Women’s Groups Back Wiley, and McGuire Shows His Worth**\
-`The New York City mayor’s race has eight weeks to go before the June 22 primary, and endorsements and donations are beginning to help it take shape.`\
-https://nytimes.com/2021/04/26/nyregion/wiley-takeaways-mayor-nyc.html?searchResultPosition=1
+**Sweden, Dressed in Summer**\
+`We’ve shown you Sweden in snow. Now see it in bloom.`\
+https://nytimes.com/2021/04/26/travel/sweden-spring-summer.html?searchResultPosition=1
 
-**Armed Groups Step Into Venezuela as Lawlessness Grows**\
-`With Venezuela in shambles, criminals and insurgents run large stretches of the nation’s territory. We traveled through one of the regions under their control.`\
-https://nytimes.com/2021/04/26/world/americas/venezuela-terrorist-colombia-ELN.html?searchResultPosition=2
+**With No Frills or Celebrities, Cookpad Is a Global Go-To for Recipes**\
+`Born in Japan and a hit around the world, the recipe-sharing site has been less successful in America. Yet it has a small, fervent following among immigrants.`\
+https://nytimes.com/2021/04/26/dining/with-no-frills-or-celebrities-cookpad-is-a-global-go-to-for-recipes.html?searchResultPosition=2
 
-**What’s on TV This Week: ‘United Shades of America’ and a Presidential Address**\
-`W. Kamau Bell’s documentary series returns with an episode on policing. And President Biden addresses a joint session of Congress.`\
-https://nytimes.com/2021/04/26/arts/television/whats-on-tv-this-week-united-shades-of-america.html?searchResultPosition=3
+**Black Democrats, Conflicted on a Voting Rights Push, Fear It’s Too Late**\
+`In the South, Black Democrats describe a party too slow in combating Republican voting limits. And Black lawmakers are wary that a major elections bill could reduce their power in Congress.`\
+https://nytimes.com/2021/04/26/us/politics/democrats-voting-rights.html?searchResultPosition=3
 
-**Angela Merkel Has Been in Power for 15 Years. What Comes Next?**\
-`In Armin Laschet and Annalena Baerbock, voters have a stark choice between continuity and change.`\
-https://nytimes.com/2021/04/26/opinion/merkel-laschet-baerbock.html?searchResultPosition=4
+**To Be Tracked or Not? Apple Is Now Giving Us the Choice.**\
+`With Apple’s latest mobile software update, we can decide whether apps monitor and share our activities with others. Here’s what to know.`\
+https://nytimes.com/2021/04/26/technology/personaltech/apple-app-tracking-transparency.html?searchResultPosition=4
 
-**Your Monday Briefing**\
-`India’s deadly coronavirus surge.`\
-https://nytimes.com/2021/04/26/briefing/coronavirus-india-iraq-hospital-oscars.html?searchResultPosition=5
+**Where Does a Candle Go When It Burns?**\
+`Just saying, maybe go easy with the candelabras.`\
+https://nytimes.com/2021/04/26/science/randall-munroe-candle-xkcd.html?searchResultPosition=5
 
-**N.B.A. Power Rankings: The Utah Jazz Are Hitting All the Right Notes**\
-`Once a season, Marc Stein provides a more detailed assessment of the N.B.A.’s 1-to-30 landscape than the standings do.`\
-https://nytimes.com/2021/04/26/sports/basketball/nba-power-rankings-utah-jazz-suns.html?searchResultPosition=6
+**Breaking Point: How Mark Zuckerberg and Tim Cook Became Foes**\
+`The chief executives of Facebook and Apple have opposing visions for the future of the internet. Their differences are set to escalate this week.`\
+https://nytimes.com/2021/04/26/technology/tim-cook-mark-zuckerberg-facebook-apple-fight.html?searchResultPosition=6
 
-**Urban Meyer’s Renewal in Jacksonville**\
-`After years of disarray, the Jaguars have what the team’s owner called “a once-in-a-lifetime opportunity in football” — the No. 1 pick in the N.F.L. draft and a coach who knows what to do with him.`\
-https://nytimes.com/2021/04/26/sports/football/jacksonville-jaguars-urban-meyer.html?searchResultPosition=7
+**A New Benefit Raises an Old Question: Which Mothers Should Work?**\
+`A groundbreaking child allowance stirs a debate among Republicans between promoting work and promoting traditional families.`\
+https://nytimes.com/2021/04/26/upshot/mothers-child-allowance-biden.html?searchResultPosition=7
 
-**A Minneapolis High School Football Team and Its Coach Move On**\
-`Charles Adams, a former police officer, and the Minneapolis North team are warily moving forward after the Derek Chauvin verdict offered a rebuke to one police killing in their community.`\
-https://nytimes.com/2021/04/26/sports/football/minneapolis-george-floyd-police-schools-coach.html?searchResultPosition=8
+**The Picassos of the American South**\
+`William Edmonson and other self-taught artists remind us of how genius somehow finds a way.`\
+https://nytimes.com/2021/04/26/opinion/picasso-nashville-southern-art.html?searchResultPosition=8
 
-**No Corrections: April 26, 2021**\
-`No corrections appeared in print on Monday, April 26, 2021.`\
-https://nytimes.com/2021/04/25/pageoneplus/no-corrections-april-26-2021.html?searchResultPosition=9
+**Joe Biden Has Something Else He’d Like to Transform**\
+`Next up? Early childhood education.`\
+https://nytimes.com/2021/04/26/opinion/biden-early-childhood-education.html?searchResultPosition=9
 
-**Word of the Day: jaunty**\
-`This word has appeared in 75 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/25/learning/word-of-the-day-jaunty.html?searchResultPosition=10
+**The Preachers ’n’ Sneakers Trend is Alive and Well and Spawning Merch**\
+`Also a new book that examines the relationship between spirituality and stuff. Here’s what to expect.`\
+https://nytimes.com/2021/04/26/style/preachers-n-sneakers-book.html?searchResultPosition=10
 
