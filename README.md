@@ -11,7 +11,7 @@ https://nytimes.com/2021/04/25/opinion/oscars-ceremony-2021.html?searchResultPos
 https://nytimes.com/2021/04/25/movies/nomadland-best-picture-chloe-zhao.html?searchResultPosition=3
 
 **Anthony Hopkins shocks by winning best actor over Chadwick Boseman.**\
-`By Matt Stevens`\
+`The Welsh actor delivered a memorable performance in “The Father” as a man suffering dementia.`\
 https://nytimes.com/2021/04/25/movies/anthony-hopkins-chadwick-boseman.html?searchResultPosition=4
 
 **Tyler Perry gets an honorary Oscar.**\
