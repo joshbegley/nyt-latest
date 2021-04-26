@@ -1,40 +1,40 @@
+**D.H.S. to review how it identifies and addresses extremism and white supremacy in its ranks.**\
+`The review means that the department tasked with preventing domestic terrorism threats will now turn inward to assess if such ideology is coursing through its various agencies.`\
+https://nytimes.com/2021/04/26/us/dhs-extremism-white-surpemacy-review.html?searchResultPosition=1
+
+**Merrick Garland Opens Investigation Into Louisville Police**\
+`Attorney General Merrick B. Garland announced a Justice Department investigation into the police in Louisville, Ky., and the county government on Monday. The inquiries show the Biden administration seeking stricter oversight of local departments amid a national outcry over police abuse.`\
+https://nytimes.com/video/us/100000007731043/merrick-garland-louisville-police-justice-dept-investigation.html?searchResultPosition=2
+
+**In Praise of Fauci and Other Public Servants**\
+`Readers hail him as a hero, and say there are dedicated others like him in government. Also: Calibrating vaccine doses; grief; liability insurance for police officers; organizing a closet.`\
+https://nytimes.com/2021/04/26/opinion/letters/fauci-pandemic.html?searchResultPosition=3
+
+**Less Is (Considerably) More for Vladimir Guerrero Jr.**\
+`The Blue Jays star sought help from a trainer — and his grandmother — to reimagine his body. He’s down 42 pounds and his O.P.S. is up 244 points.`\
+https://nytimes.com/2021/04/26/sports/baseball/vladimir-guerrero-jr-weight-loss.html?searchResultPosition=4
+
 **Pandemic Lockdowns Cut Pollution, Slowing Snowmelt in South Asia**\
 `Last year’s lockdowns reduced emissions of soot and other pollutants that accelerate melting, which could make water supplies last longer throughout the coming year.`\
-https://nytimes.com/2021/04/26/climate/air-pollution-coronavirus-snowmelt.html?searchResultPosition=1
+https://nytimes.com/2021/04/26/climate/air-pollution-coronavirus-snowmelt.html?searchResultPosition=5
 
 **Amid Second Virus Wave, the World Responds to India’s Distress Call**\
 `Countries, companies and powerful members of the diaspora have all pledged to pitch in, but it likely won’t be enough to stop the unfolding catastrophe.`\
-https://nytimes.com/2021/04/26/world/asia/india-covid-vaccine-world-response.html?searchResultPosition=2
+https://nytimes.com/2021/04/26/world/asia/india-covid-vaccine-world-response.html?searchResultPosition=6
 
 **Infrastructure Isn’t Really About Roads. It’s About the Society We Want.**\
 `By that standard, even President Biden’s $2 trillion proposal falls short.`\
-https://nytimes.com/2021/04/26/opinion/infrastructure-biden.html?searchResultPosition=3
+https://nytimes.com/2021/04/26/opinion/infrastructure-biden.html?searchResultPosition=7
 
 **Appalachian Trail Killer Found Not Guilty by Reason of Insanity**\
 `A judge found James L. Jordan not guilty by reason of insanity in the fatal stabbing of Ronald S. Sanchez Jr. along the trail in 2019.`\
-https://nytimes.com/2021/04/26/us/appalachian-trail-attack-james-l-jordan.html?searchResultPosition=4
+https://nytimes.com/2021/04/26/us/appalachian-trail-attack-james-l-jordan.html?searchResultPosition=8
 
 **Oscars Ratings Plummet, With Fewer Than 10 Million Tuning In**\
 `Sunday night’s pandemic-restricted telecast saw a 58 percent plunge in viewers from last year’s record low.`\
-https://nytimes.com/2021/04/26/business/media/oscars-ratings.html?searchResultPosition=5
+https://nytimes.com/2021/04/26/business/media/oscars-ratings.html?searchResultPosition=9
 
 **Hundreds Are Forced to Evacuate From Western Arizona Wildfire**\
 `The Flag Fire has consumed 600 acres in the Hualapai Mountains in northwestern Arizona and prompted the evacuation of about 200 households, the authorities said.`\
-https://nytimes.com/2021/04/26/us/kingman-wildfire-pine-lake-arizona.html?searchResultPosition=6
-
-**Supreme Court to Rule on Whether C.I.A. Black Sites Are State Secrets**\
-`A Guantánamo detainee is seeking information from two former government contractors in connection with a Polish criminal inquiry into a facility there.`\
-https://nytimes.com/2021/04/26/us/politics/supreme-court-cia-black-sites-guantanamo.html?searchResultPosition=7
-
-**What Did That Oscars Show Say About Movies? Our Critics Puzzle It Out.**\
-`The anticlimactic night was in many ways not too different from previous Academy Awards, and it showed the organization was willing to change only so much.`\
-https://nytimes.com/2021/04/26/movies/academy-awards-history-oscars.html?searchResultPosition=8
-
-**Salsa Macha Hecho en Los Angeles**\
-`The masa purveyor Masienda has released a line of three potent salsas machas.`\
-https://nytimes.com/2021/04/26/dining/masienda-salsa-macha.html?searchResultPosition=9
-
-**This Scoop Is Summer Ready**\
-`This cast aluminum ice cream scoop looks like a cone.`\
-https://nytimes.com/2021/04/26/dining/gift-ice-cream-scoop.html?searchResultPosition=10
+https://nytimes.com/2021/04/26/us/kingman-wildfire-pine-lake-arizona.html?searchResultPosition=10
 
