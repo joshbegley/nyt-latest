@@ -1,4 +1,4 @@
-**Rachel Cusk‘s New Novel Turns Up the Heat at a Private Artist’s Retreat**\
+**Rachel Cusk’s New Novel Turns Up the Heat at a Private Artist’s Retreat**\
 `“Second Place” borrows its story line from a 1930s-era memoir about D.H. Lawrence, but its themes are quintessential Cusk.`\
 https://nytimes.com/2021/04/26/books/review-rachel-cusk-second-place.html?searchResultPosition=1
 
