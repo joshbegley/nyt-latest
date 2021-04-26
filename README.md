@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/26/t-magazine/majorca-wellness-retreat.html?searchRe
 `After months of holding virtual news conferences, Gov. Andrew Cuomo took reporters’ questions in Syracuse, N.Y., and rejected accusations of harassment.`\
 https://nytimes.com/2021/04/26/nyregion/andrew-cuomo-scandal.html?searchResultPosition=2
 
-**Paul Oscher, Blues Musician in Muddy Waters’ Band, Dies at 74**\
+**Paul Oscher, Blues Musician in Muddy Waters’s Band, Dies at 74**\
 `He played harmonic, guitar and piano, often all at the same time. He died of complications of the coronavirus.`\
 https://nytimes.com/2021/04/26/obituaries/-2021-04-26-obituaries-paul-oscher-dead-coronavirus.html?searchResultPosition=3
 
