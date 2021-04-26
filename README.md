@@ -11,11 +11,11 @@ https://nytimes.com/2021/04/25/movies/soul-pixar-oscars.html?searchResultPositio
 https://nytimes.com/2021/04/25/movies/chloe-zhao-nomadland-best-director.html?searchResultPosition=3
 
 **Mia Neal and Jamika Wilson are the first Black women to win for hair and makeup.**\
-`By Sarah Bahr`\
+`They are also the first ever to be nominated in the category since it was introduced in 1981.`\
 https://nytimes.com/2021/04/25/movies/ma-raineys-black-bottom-mia-neal-jamika-wilson.html?searchResultPosition=4
 
-**Transformed by Covid and Industry Shifts, the 2021 Academy Awards Sets Off**\
-`Daniel Kaluuya won best supporting actor and Emerald Fennell’s script for “Promising Young Woman” was recognized in a singular Oscar telecast.`\
+**Chloé Zhao and Yuh-Jung Youn Make History at 2021 Oscars**\
+`Daniel Kaluuya also won best supporting actor and Emerald Fennell’s script for “Promising Young Woman” was recognized in a singular Oscars telecast.`\
 https://nytimes.com/2021/04/25/movies/academy-awards-oscars.html?searchResultPosition=5
 
 **Iran’s Foreign Minister, in Leaked Tape, Says Revolutionary Guards Set Policies**\
