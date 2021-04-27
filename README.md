@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/27/insider/girls-politics-four-years.html?searchResu
 https://nytimes.com/2021/04/27/briefing/vaccines-gavin-newsom-ransomware-attack.html?searchResultPosition=2
 
 **Weeks Before Fatal Descent, Indonesia Submarine Crew Sang Unwitting Farewell**\
-`A video of the song has gone viral on social media, an example of “cocoklogi,” a phrase that describes looking back at people’s lives to find clues to explain seemingly random events.`\
+`A video of the sailors singing went viral on social media,  prompting many to infer a hidden meaning in the pop song’s lyrics.`\
 https://nytimes.com/2021/04/27/world/asia/indonesia-submarine-song.html?searchResultPosition=3
 
 **VHS and Chill**\
