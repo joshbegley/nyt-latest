@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/27/us/politics/coronavirus-masks-outdoors.html?searchResultPosition=1
 
 **Biden Underpromises, Overdelivers**\
-`President Biden spent his first 100 days focused on the pandemic and the economy — and not much on Twitter.`\
+`President Biden has spent his first 100 days focused on the pandemic and the economy — and not much on Twitter.`\
 https://nytimes.com/2021/04/27/opinion/biden-100-days.html?searchResultPosition=2
 
 **Times Event: How to Save Ourselves From Disinformation**\
