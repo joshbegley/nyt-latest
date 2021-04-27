@@ -1,4 +1,4 @@
-**Biden Speaks Following C.D.C Easing Mask Guidelines**\
+**Biden Speaks Following C.D.C. Easing Mask Guidelines**\
 `President Biden reiterated the Centers for Disease Control and Prevention’s new mask guidelines, which do not require fully vaccinated people to wear masks outdoors if they’re walking, running, hiking or biking, either alone or with members of their household, and in small outdoor gatherings.`\
 https://nytimes.com/video/us/politics/100000007733061/biden-masks-cdc-rule.html?searchResultPosition=1
 
