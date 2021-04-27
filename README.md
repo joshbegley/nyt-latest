@@ -2,7 +2,7 @@
 `“Salswing!,” his new project with the Panamanian big band leader Roberto Delgado, celebrates the connections between Afro-Cuban music and jazz.`\
 https://nytimes.com/2021/04/27/arts/music/ruben-blades-salswing.html?searchResultPosition=1
 
-**For U.K.’s Johnson, Plenty of Mud but Will it Stick?**\
+**For U.K.’s Johnson, Plenty of Mud but Will It Stick?**\
 `Accusations of lying, cronyism and intemperate talk emerge seemingly on a daily basis, but there’s little evidence yet that Britons care.`\
 https://nytimes.com/2021/04/27/world/europe/uk-johnson-flat-sleaze.html?searchResultPosition=2
 
