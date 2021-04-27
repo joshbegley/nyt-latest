@@ -26,9 +26,9 @@ https://nytimes.com/video/us/politics/100000007732653/andrew-brown-jr-shooting-a
 `Fox is asking a court to dismiss a suit filed by Smartmatic, which accused it and three of its anchors of promoting falsehoods about the company.`\
 https://nytimes.com/2021/04/27/business/media/fox-news-defamation-suit.html?searchResultPosition=8
 
-**Watch Live: Biden Delivers Remarks on Coronavirus**\
-`President Biden will deliver remarks on the coronavirus response. He is expected to speak about outdoor mask mandates.`\
-https://nytimes.com/video/us/100000007732207/biden-live.html?searchResultPosition=9
+**Watch Full Video: Biden Delivers Remarks on Coronavirus**\
+`President Biden will delivered remarks on the coronavirus response. He is expected to speak about outdoor mask mandates.`\
+https://nytimes.com/video/embedded/us/100000007732207/biden-live.html?searchResultPosition=9
 
 **Transgender and Nonbinary Teens Share Their Stories in New Book Series**\
 `Written by four teenagers, the books aim to open up conversations about young people who are transgender or nonbinary.`\
