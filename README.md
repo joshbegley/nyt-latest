@@ -1,6 +1,6 @@
 **Brazil’s health authority rejected importing Russia’s Sputnik V vaccine.**\
-`By Bryan Pietsch`\
-https://nytimes.com/2021/04/26/world/brazils-health-authority-rejected-importing-russias-sputnik-v-vaccine.html?searchResultPosition=1
+`The vaccine has been approved for emergency use in dozens of countries, but its rollout has been entangled in politics and propaganda.`\
+https://nytimes.com/2021/04/26/world/covid-vaccine-brazil-russia-sputnik.html?searchResultPosition=1
 
 **Inside Anthony Hopkins’s Unexpected Win at the Oscars**\
 `The actor offered to accept via Zoom but the academy said no. Still, he won because of a release strategy that ensured his film would peak at the last minute.`\
