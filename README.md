@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/27/business/media/fox-news-defamation-suit.html?sear
 https://nytimes.com/video/us/100000007732207/biden-live.html?searchResultPosition=2
 
 **Transgender and Nonbinary Teens Share Their Stories in New Book Series**\
-`Written by four teenagers, the books aim to open up conversations about young people who identify as transgender or nonbinary.`\
+`Written by four teenagers, the books aim to open up conversations about young people who are transgender or nonbinary.`\
 https://nytimes.com/2021/04/27/us/transgender-teens-books.html?searchResultPosition=3
 
 **Veranda, From George Mendes of Aldea, Opens in SoHo**\
