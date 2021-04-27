@@ -4,7 +4,7 @@ https://nytimes.com/2021/04/26/us/recall-gavin-newsom-california.html?searchResu
 
 **Race and the Coming Liberal Crackup**\
 `Our racialized politics will produce a conservative resurgence. `\
-https://nytimes.com/2021/04/26/opinion/race-and-the-coming-liberal-crackup.html?searchResultPosition=2
+https://nytimes.com/2021/04/26/opinion/race-police-violence-liberalism.html?searchResultPosition=2
 
 **Marco Rubio’s ‘Woke Capital’ Tantrum**\
 `Republicans are mad at big business, but not mad enough to raise taxes.`\
