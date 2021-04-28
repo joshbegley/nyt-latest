@@ -7,7 +7,7 @@ https://nytimes.com/2021/04/28/us/politics/florida-voting.html?searchResultPosit
 https://nytimes.com/2021/04/28/us/politics/biden-address-congress-spending.html?searchResultPosition=2
 
 **Over 25,000 DDT-Tainted Barrels Are Discovered on Seafloor Off California**\
-`One researcher said the number of drums containing the pesticide far exceeded his expectations. “It was hard to wrap my head around the density of targets,” he said.`\
+`One researcher said the number of drums laced with the pesticide far exceeded his expectations. “It was hard to wrap my head around the density of targets,” he said.`\
 https://nytimes.com/2021/04/28/us/ddt-barrels-california.html?searchResultPosition=3
 
 **A Lively Supreme Court Argument Over a Cheerleader’s Vulgar Rant**\
