@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/28/theater/taxilandia-review.html?searchResultPositi
 https://nytimes.com/2021/04/28/business/economy/the-fed-leaves-rates-unchanged-as-economic-risks-remain.html?searchResultPosition=4
 
 **People of Color Breathe More Hazardous Air. The Sources Are Everywhere.**\
-`Researchers uncovered stark disparities between whites and minorities across thousands of categories of pollution, including trucks, industry, agriculture and even restaurants.`\
+`Researchers uncovered stark disparities between white people and minorities across thousands of categories of pollution, including trucks, industry, agriculture and even restaurants.`\
 https://nytimes.com/2021/04/28/climate/air-pollution-minorities.html?searchResultPosition=5
 
 **Prancer, the ‘Demonic Chihuahua,’ Finds a Home**\
