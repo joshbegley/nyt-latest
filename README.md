@@ -27,7 +27,7 @@ https://nytimes.com/2021/04/28/us/prancer-chihuahua-adopted-connecticut.html?sea
 https://nytimes.com/video/us/100000007734908/andrew-brown-jr-judge-body-camera-video-north-carolina.html?searchResultPosition=7
 
 **Watch Live: Federal Reserve Chair Speaks on Interest Rates**\
-`Jerome H. Powell, the Federal Reserve chair, holds a news conference after the Federal Open Market Committee’s announcement on interest rates.`\
+`Jerome H. Powell, the Federal Reserve chair, holds a news conference after interest rates were left near zero on Wednesday.`\
 https://nytimes.com/video/us/100000007734442/fed-speech-jerome-powell-live.html?searchResultPosition=8
 
 **Charles Strum, Versatile Editor for The Times, Dies at 73**\
