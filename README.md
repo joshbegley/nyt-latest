@@ -2,7 +2,7 @@
 `Allbirds and Panera are looking to cash in on investor interest in business models pitched for postpandemic habits.`\
 https://nytimes.com/2021/04/28/business/dealbook/allbirds-panera-markets.html?searchResultPosition=1
 
-**A key question facing the Fed: How much inflation is too much?**\
+**A key question: How much inflation is too much?**\
 `The central bank thinks price increases will be temporary. Some economists are worried they won’t be.`\
 https://nytimes.com/2021/04/28/business/federal-reserve-inflation.html?searchResultPosition=2
 
