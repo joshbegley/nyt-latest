@@ -1,6 +1,6 @@
 **A key question facing the Fed: How much inflation is too much?**\
 `The central bank thinks price increases will be temporary. Some economists are worried they won’t be.`\
-https://nytimes.com/2021/04/28/business/a-key-question-facing-the-fed-how-much-inflation-is-too-much.html?searchResultPosition=1
+https://nytimes.com/2021/04/28/business/federal-reserve-inflation.html?searchResultPosition=1
 
 **The Florida Panthers Are Winning, Both on and Off the Ice**\
 `A franchise that had faltered after showing early promise is in a tight playoff race, and has committed to growing youth hockey in an untraditional market for the sport.`\
