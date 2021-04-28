@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/28/us/politics/biden-republicans-rebuttal.html?searc
 `Money directed at families is added to an earlier proposal on infrastructure.`\
 https://nytimes.com/2021/04/28/upshot/biden-economic-plan-chart.html?searchResultPosition=2
 
-**Clara Lamore Walker, 94, Dies; Thwarted Olympian Redeemed in Her 50s**\
+**Clara Lamore Walker, 94, Thwarted Olympian Redeemed in Her 50s, Dies**\
 `She gave up competitive swimming after the 1948 Games in London — until her doctor prescribed the pool for back pain. She staged an astonishing comeback.`\
 https://nytimes.com/2021/04/28/sports/clara-lamore-walker-dead.html?searchResultPosition=3
 
