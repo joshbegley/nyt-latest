@@ -31,7 +31,7 @@ https://nytimes.com/2021/04/28/technology/trump-jedi-pentagon-microsoft-amazon.h
 https://nytimes.com/2021/04/28/us/politics/biden-judicial-nominees.html?searchResultPosition=8
 
 **6 Art Gallery Shows to See Right Now**\
-`Daisy May Sheff’s new paintings; Precious Okoyomon’s reimagined ecosystem; Damien Davis’s sculptures; Beverly Buchanan’s “shacks”; and more.`\
+`Gerald Jackson’s collages; Precious Okoyomon’s reimagined ecosystem; Damien Davis’s sculptures; Beverly Buchanan’s “shacks”; and more.`\
 https://nytimes.com/2021/04/28/arts/design/6-art-gallery-shows-to-see-right-now.html?searchResultPosition=9
 
 **Leaving Home, and Returning to It**\
