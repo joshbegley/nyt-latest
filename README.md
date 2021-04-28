@@ -11,7 +11,7 @@ https://nytimes.com/2021/04/28/world/europe/germany-coronavirus-deniers-surveill
 https://nytimes.com/2021/04/28/sports/ncaabasketball/ncaa-mark-emmert-deal.html?searchResultPosition=3
 
 **N.Y.P.D. Robot Dog’s Run Is Cut Short After Fierce Backlash**\
-`The Police Department has canceled its $94,000 contract to lease the robotic dog from Boston Dynamics, officials said, after the machine drew fierce backlash about police tactics.`\
+`The Police Department will return the device earlier than planned after critics seized on it as a dystopian example of overly aggressive policing.`\
 https://nytimes.com/2021/04/28/nyregion/nypd-robot-dog-backlash.html?searchResultPosition=4
 
 **Court Could Consider Whether Trump Interfered in Cloud Computing Contract**\
