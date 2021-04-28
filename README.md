@@ -18,7 +18,7 @@ https://nytimes.com/2021/04/28/podcasts/joe-biden-infrastructure-stimulus-congre
 `Behind the scenes from starter cells to a finished vaccine.`\
 https://nytimes.com/interactive/2021/health/pfizer-coronavirus-vaccine.html?searchResultPosition=5
 
-**The U.S. Built the Afghan Military Over 20 Years. Will It Last One More?**\
+**U.S. Built the Afghan Military Over 20 Years. Will It Last One More?**\
 `As the United States withdraws from Afghanistan, it leaves behind broken and battered Afghan security forces to defend the country from the Taliban and other threats.`\
 https://nytimes.com/2021/04/28/world/asia/afghanistan-security-forces.html?searchResultPosition=6
 
