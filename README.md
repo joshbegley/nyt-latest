@@ -36,5 +36,5 @@ https://nytimes.com/2021/04/28/crosswords/crosswords-puzzles-solverstories-sosin
 
 **Tim Scott, the Senate’s only Black Republican, will deliver the G.O.P. rebuttal to Biden.**\
 `Mr. Scott has said he does not intend his rebuttal to be an excoriation of the president’s agenda.`\
-https://nytimes.com/2021/04/28/us/politics/tim-scott-republican-rebuttal.html?searchResultPosition=10
+https://nytimes.com/2021/04/28/us/politics/tim-scott-biden-republican-rebuttal.html?searchResultPosition=10
 
