@@ -1,4 +1,4 @@
-**‘There Is a Tension There’: Publishers Draw Fire Signing Trump Officials**\
+**‘There Is a Tension There’: Publishers Draw Fire for Signing Trump Officials**\
 `Kellyanne Conway, Mike Pence and William Barr have book deals. That is raising new challenges for publishers trying to balance ideological lines with a desire to continue representing the political spectrum.`\
 https://nytimes.com/2021/04/27/books/publishing-trump-conservatives-kellyanne-conway.html?searchResultPosition=4
 
