@@ -26,7 +26,7 @@ https://nytimes.com/2021/04/28/sports/soccer/real-madrid-marcelo-election.html?s
 `Starting in the late 1960s, the textile artist and the trumpeter taught classes, held concerts and made work in a Swedish schoolhouse. This period is the focus of a new celebration by Blank Forms.`\
 https://nytimes.com/2021/04/28/arts/music/don-cherry-moki-cherry.html?searchResultPosition=7
 
-**India Blames a Virus Variant as its Covid-19 Crisis Deepens**\
+**India Blames a Virus Variant as Its Covid-19 Crisis Deepens**\
 `Doctors, the public and the media point to anecdotal evidence of infections even among the vaccinated. Scientists say the data is too thin and cite other reasons behind the country’s second wave.`\
 https://nytimes.com/2021/04/28/world/asia/india-covid19-variant.html?searchResultPosition=8
 
