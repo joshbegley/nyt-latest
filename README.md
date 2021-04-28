@@ -1,6 +1,6 @@
 **Jimmy Fallon: Vaccinated Americans Are ‘Flashing Their Mouths Like It’s Mardi Gras’**\
 `“I’ve got to be honest: I’m going to miss wearing a mask.” Fallon joked on Tuesday. “The adult acne made me feel young, you know?”`\
-https://nytimes.com/2021/04/28/arts/television/jimmy-fallon-vaccinated-americans-are-flashing-their-mouths-like-its-mardi-gras.html?searchResultPosition=1
+https://nytimes.com/2021/04/28/arts/television/late-night-cdc-guidelines.html?searchResultPosition=1
 
 **Ten Years Ago, Ed Balls Tweeted ‘Ed Balls.’ How Is It Still Funny?**\
 `A decade is an eternity in internet years. But people still haven’t forgotten the British politician’s errant tweet, and he’s still playing along.`\
