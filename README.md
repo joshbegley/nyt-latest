@@ -1,5 +1,5 @@
-**Star of ‘Disaster Girl’ Meme Sells Image as an NFT for $500,000**\
-`Zoë Roth, now a college senior in North Carolina, plans to use the proceeds from this month’s auction to pay off student loans and donate to charity.`\
+**The World Knows Her as ‘Disaster Girl.’ She Just Made $500,000 Off the Meme.**\
+`Zoë Roth, now a college senior in North Carolina, plans to use the proceeds from this month’s NFT auction to pay off student loans and donate to charity.`\
 https://nytimes.com/2021/04/29/arts/disaster-girl-meme-nft.html?searchResultPosition=1
 
 **Biden Calls for U.S. to Enter a New Superpower Struggle**\
