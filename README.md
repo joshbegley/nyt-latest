@@ -26,8 +26,8 @@ https://nytimes.com/2021/04/29/world/europe/germany-high-court-climate-change-yo
 `Government payments made wallets fatter, and consumers took advantage.`\
 https://nytimes.com/2021/04/29/business/gdp-economy-consumer-spending.html?searchResultPosition=7
 
-**France prepares to lift lockdown measures.**\
-`European governments are looking to ease restrictions as vaccinations ramp up.`\
+**France sets timeline to emerge from third lockdown.**\
+`European governments are looking to ease restrictions as vaccinations ramp up and the number of new cases falls.`\
 https://nytimes.com/2021/04/29/world/france-covid-lockdown.html?searchResultPosition=8
 
 **When Are the Olympics? Here’s the Schedule for Tokyo.**\
