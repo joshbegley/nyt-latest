@@ -1,40 +1,40 @@
-**As India’s virus caseload reaches new highs, its vaccination drive is faltering.**\
-`Every adult in the country — some 940 million people — will be eligible for shots starting on Saturday, but doctors say there aren’t enough to go around.`\
-https://nytimes.com/2021/04/29/world/india-covid-cases-vaccine.html?searchResultPosition=1
+**‘The Virtuoso’ Review: A Paid Killer, Hitting Bum Notes**\
+`Anson Mount plays the title character, who gets his assignments from Anthony Hopkins. But he keeps messing things up.`\
+https://nytimes.com/2021/04/29/movies/the-virtuoso-review.html?searchResultPosition=1
 
-**The Departed Could Soon Become Compost in Colorado**\
-`If the governor signs the bill, Colorado would be the second state to legalize the composting of human remains.`\
-https://nytimes.com/2021/04/29/climate/colorado-bill-compost-body.html?searchResultPosition=2
+**‘Things Heard & Seen’ Review: Another Real Estate Nightmare**\
+`Amanda Seyfried and James Norton move into a haunted house in this busy, creaky Netflix thriller.`\
+https://nytimes.com/2021/04/29/movies/things-heard-and-seen-review.html?searchResultPosition=2
 
-**Navalny’s Group Is Shutting all Its Offices in Russia**\
-`Associates of the imprisoned opposition leader say they had no choice, given the Kremlin’s latest move to stifle political dissent.`\
-https://nytimes.com/2021/04/29/world/europe/navalnys-group-is-shutting-all-its-offices-in-russia.html?searchResultPosition=3
+**‘About Endlessness’ Review: Heaven Knows I’m Miserable Now**\
+`Roy Andersson’s latest feature is a somber, exhilarating collection of self-defeating human specimens.`\
+https://nytimes.com/2021/04/29/movies/about-endlessness-review.html?searchResultPosition=3
 
-**Biden and the Vaccination Slowdown**\
-`President Biden speaks to the nation when much of the Covid news is good — but the pace of vaccination has slowed.`\
-https://nytimes.com/2021/04/29/briefing/rudy-giuliani-covid-india-michael-collins.html?searchResultPosition=4
+**‘Berlin Alexanderplatz’ Review: Reframing an Urban Classic**\
+`Burhan Qurbani’s film reinterprets a classic German novel into the story of a 21st-century immigrant from Guinea-Bissau surviving under the thumb of a brutal drug dealer.`\
+https://nytimes.com/2021/04/29/movies/berlin-alexanderplatz-review.html?searchResultPosition=4
 
-**‘We Have to Prove Democracy Still Works’**\
-`In his first address to Congress, President Biden made a case for vastly expanding the role of government — and taxing the wealthiest to pay for it.`\
-https://nytimes.com/2021/04/29/podcasts/the-daily/biden-speech-congress-infrastructure-spending.html?searchResultPosition=5
+**‘The Outside Story’ Review: Brooklyn as No One Has Ever Known It**\
+`In this listless comedy by Casimir Nozkowski, a moping homebody locks himself out, but the resulting interaction with others helps to change his outlook.`\
+https://nytimes.com/2021/04/29/movies/the-outside-story-review-brooklyn-as-no-one-has-ever-known-it.html?searchResultPosition=5
 
-**New David Hockney Billboards to Brighten 4 Cities in May**\
-`His chrysanthemum-like depictions of the sun will light up digital platforms in New York, London, Tokyo and Seoul.`\
-https://nytimes.com/2021/04/29/arts/design/david-hockney-billboards.html?searchResultPosition=6
+**‘Four Good Days’ Review: Repairing a Mother-Daughter Relationship**\
+`In this drama, Mila Kunis plays a heroin addict and Glenn Close the mother trying to help her get clean.`\
+https://nytimes.com/2021/04/29/movies/four-good-days-review.html?searchResultPosition=6
 
-**Airbus returns to profit but warns crisis is not over.**\
-`The company delivered 125 commercial aircraft to airlines in the three-month period, up from 122 a year earlier.`\
-https://nytimes.com/2021/04/29/business/airbus-earnings-profit-warning.html?searchResultPosition=7
+**‘Limbo’ Review: A Musician in Exile Tunes Out**\
+`A Syrian refugee deposited on a remote Scottish isle seeks meaning in his isolated surroundings, with wryly funny results.`\
+https://nytimes.com/2021/04/29/movies/limbo-review.html?searchResultPosition=7
 
-**A Candidate for N.Y.C. Mayor Is Accused of Sexual Assault**\
-`A woman who worked on a campaign decades ago with Scott M. Stringer, the comptroller, said she had feared retribution if she spoke out.`\
-https://nytimes.com/2021/04/29/nyregion/scott-stringer-jean-kim-sexual-assault.html?searchResultPosition=8
+**‘Lucy, the Human Chimp’ Review: Far From Home**\
+`A domesticated chimpanzee is disastrously relocated to the wild in this deeply troubling documentary.`\
+https://nytimes.com/2021/04/29/movies/lucy-the-human-chimp-review-far-from-home.html?searchResultPosition=8
 
-**How to Recognize and Treat Perimenopause and Menopause Symptoms**\
-`Copy for the sidebar!`\
-https://nytimes.com/2021/04/29/well/perimenopause-menopause-symptoms.html?searchResultPosition=9
+**‘Tom Clancy’s Without Remorse’ Review: A Routine Mission**\
+`Aside from a few set pieces, this action film, starring Michael B. Jordan, is a surprisingly dull adaptation of Clancy’s 1993 novel.`\
+https://nytimes.com/2021/04/29/movies/tom-clancys-without-remorse-review.html?searchResultPosition=9
 
-**Together Again: Documenting Nursing Home Reunions After One Long Year**\
-`The pandemic kept nursing home residents and their families apart. Photographers for The New York Times were there when they finally reunited.`\
-https://nytimes.com/2021/04/29/us/coronavirus-nursing-home-reunion.html?searchResultPosition=10
+**‘Percy vs Goliath’ Review: Growing Pains**\
+`Christopher Walken plays a beleaguered farmer in this understated environmental drama.`\
+https://nytimes.com/2021/04/29/movies/percy-vs-goliath-review.html?searchResultPosition=10
 
