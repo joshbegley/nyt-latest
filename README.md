@@ -22,8 +22,8 @@ https://nytimes.com/2021/04/29/world/covid-turkey-lockdown.html?searchResultPosi
 `President Biden, who has vowed to restore the independence of the Justice Department, said in an interview with NBC that it is “not the role of the president to say who should be prosecuted.”`\
 https://nytimes.com/2021/04/29/us/politics/biden-giuliani-fbi.html?searchResultPosition=6
 
-**4 People, Including 2 Deputies, Killed in North Carolina Standoff**\
-`A 13-hour standoff with a gunman, who barricaded himself inside a house in Boone, N.C., ended at about 11 p.m. on Wednesday. Officials said the gunman had also died.`\
+**5 People, Including 2 Deputies, Killed in North Carolina Standoff**\
+`A 13-hour standoff with a gunman, who barricaded himself inside a house in Boone, N.C., ended at about 11 p.m. on Wednesday. Officials said the gunman was one of the dead.`\
 https://nytimes.com/2021/04/29/us/boone-north-carolina-shooting.html?searchResultPosition=7
 
 **Pakistan warns of new strictures as its daily Covid death toll sets a record.**\
