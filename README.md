@@ -1,4 +1,4 @@
-**As India’s virus caseload reaches new highs, its vaccination drive is slowing.**\
+**As India’s virus caseload reaches new highs, its vaccination drive is faltering.**\
 `Every adult in the country — some 940 million people — will be eligible for shots starting on Saturday, but doctors say there aren’t enough to go around.`\
 https://nytimes.com/2021/04/29/world/india-covid-cases-vaccine.html?searchResultPosition=1
 
