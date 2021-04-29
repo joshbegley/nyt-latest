@@ -23,7 +23,7 @@ https://nytimes.com/2021/04/29/nyregion/larry-schwartz-vaccine-covid.html?search
 https://nytimes.com/2021/04/29/world/covid-turkey-lockdown.html?searchResultPosition=6
 
 **Biden says he was not told the F.B.I. planned to search Giuliani’s office and home.**\
-`President Biden, who has vowed to restore the independence of the Justice Department, said in an interview with NBC that it is “not the role of the president to say who should be prosecuted.”`\
+`President Biden, who has vowed to restore the independence of the Justice Department, said in an interview with NBC that it was “not the role of the president to say who should be prosecuted.”`\
 https://nytimes.com/2021/04/29/us/politics/biden-giuliani-fbi.html?searchResultPosition=7
 
 **5 People, Including 2 Deputies, Killed in North Carolina Standoff**\
