@@ -1,40 +1,40 @@
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s properties are in Park Slope, the East Village and on the Upper East Side.`\
+https://nytimes.com/2021/04/29/realestate/housing-market-nyc.html?searchResultPosition=1
+
+**On the Market in New York City**\
+`This week’s properties are in Park Slope, the East Village and on the Upper East Side.`\
+https://nytimes.com/slideshow/2021/04/29/realestate/on-the-market-in-new-york-city.html?searchResultPosition=2
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a four-bedroom house in Skillman, N.J., and a six-bedroom house in Briarcliff Manor, N.Y.`\
+https://nytimes.com/2021/04/29/realestate/home-sales-near-nyc.html?searchResultPosition=3
+
+**On the Market in the New York Region**\
+`This week’s properties are a four-bedroom house in Skillman, N.J., and a six-bedroom house in Briarcliff Manor, N.Y.`\
+https://nytimes.com/slideshow/2021/04/29/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+
+**She Bought a Truck on eBay, Then Forgot It. A Dementia Diagnosis Came Later.**\
+`Impulsive purchases, out-of-control spending: These behaviors can be early signs of Alzheimer’s disease or other cognitive decline.`\
+https://nytimes.com/2021/04/29/business/alzheimers-personal-finance.html?searchResultPosition=5
+
+**Do I Really Need to State My Pronouns?**\
+`A reader asks whether a workplace policy actually makes trans and nonbinary people feel more included.`\
+https://nytimes.com/2021/04/29/style/pronouns-gender-work-social-qs.html?searchResultPosition=6
+
+**The T List: Five Things We Recommend This Week**\
+`Never-before-seen drawings by Kenny Rivero, a new tableware line from Yotam Ottolenghi — and more.`\
+https://nytimes.com/2021/04/29/t-magazine/kenny-rivero-yotam-ottolenghi.html?searchResultPosition=7
+
+**‘The Mitchells vs. the Machines’ Review: When Bots Attack**\
+`A family of lovable kooks are the last hope against a robot apocalypse in this hilarious animated Netflix film.`\
+https://nytimes.com/2021/04/29/movies/the-mitchells-vs-the-machines-review.html?searchResultPosition=8
+
+**Microsoft plans to take a smaller cut from developers in its games store.**\
+`The fee will drop to 12 percent of revenue, from 30 percent, starting in August, the company said.`\
+https://nytimes.com/2021/04/29/technology/microsoft-cut-of-app-revenue.html?searchResultPosition=9
+
 **Here’s How to Claim Your Stimulus Payments: File Your Tax Return**\
 `Thursday: In addition to three federal stimulus payments, some Californians also qualify for the Golden State Stimulus.`\
-https://nytimes.com/2021/04/29/us/stimulus-payments-california.html?searchResultPosition=1
-
-**What’s Going On in This Graph? | May 5, 2021**\
-`How do Covid-19 infection rates in state prisons compare to rates in  state populations?`\
-https://nytimes.com/2021/04/29/learning/whats-going-on-in-this-graph-may-5-2021.html?searchResultPosition=2
-
-**Sotheby’s and Phillips Announce Departures and Arrivals**\
-`The executive turnover in the auction world signals a market shift after the pandemic, an industry expert says.`\
-https://nytimes.com/2021/04/29/arts/design/sothebys-phillips-auction-cappellazzo.html?searchResultPosition=3
-
-**Comcast pleases Wall Street with costly shift to streaming.**\
-`The cable operator’s first-quarter results beat investors’ estimates as it attempted to transform itself from a TV giant into a streaming start-up.`\
-https://nytimes.com/2021/04/29/business/media/comcast-earnings-peacock.html?searchResultPosition=4
-
-**President Biden Gives a Pep Talk for Still-Unusual Times**\
-`This address was “just a little bit different” from last year, because of the pandemic — and the change of speaker.`\
-https://nytimes.com/2021/04/29/arts/television/president-biden-speech.html?searchResultPosition=5
-
-**What to Expect in the First Round of the N.F.L. Draft**\
-`Five quarterbacks could go in the top 10 for the first time, according to mock drafts produced by several analysts, while the first round could pass without the selection of a running back.`\
-https://nytimes.com/2021/04/29/sports/mock-draft-expert-picks.html?searchResultPosition=6
-
-**In a Dark Time, This Music Will Make You Smile**\
-`Three albums by young British composers on the label NMC show a wide-ranging, antic experimentalism.`\
-https://nytimes.com/2021/04/29/arts/music/classical-music-britain.html?searchResultPosition=7
-
-**Profits surge at Shell and Total, reflecting higher oil and gas prices.**\
-`Both companies are investing in renewable energy, but fossil fuels still drive their earnings.`\
-https://nytimes.com/2021/04/29/business/profits-surge-at-shell-and-total-reflecting-higher-oil-and-gas-prices.html?searchResultPosition=8
-
-**Biden’s Big Speech, by the Numbers**\
-`Here’s how he plans to spend $4 trillion.`\
-https://nytimes.com/2021/04/29/business/dealbook/biden-speech-taxes.html?searchResultPosition=9
-
-**The Lesson of Tony Blair’s Long Hair**\
-`The former British prime minister appeared in a recent television interview with a whole different look. It pushed a lot of buttons.`\
-https://nytimes.com/2021/04/29/style/tony-blair-hair.html?searchResultPosition=10
+https://nytimes.com/2021/04/29/us/stimulus-payments-california.html?searchResultPosition=10
 
