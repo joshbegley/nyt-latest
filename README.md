@@ -28,7 +28,7 @@ https://nytimes.com/2021/04/28/opinion/desantis-cruise-lines-covid.html?searchRe
 
 **Did the 2020 Census Undercount the Hispanic Population?**\
 `Officials from both parties say the census numbers released this week raise questions about the totals, with Democrats contending that the Hispanic population was undercounted.`\
-https://nytimes.com/2021/04/28/us/politics/did-the-2020-census-undercount-the-hispanic-population.html?searchResultPosition=8
+https://nytimes.com/2021/04/28/us/politics/2020-census-hispanics-latinos.html?searchResultPosition=8
 
 **Biden Makes His Pitch to Congress**\
 `The president’s “human infrastructure” plan has the support of most Americans, but it’s a tougher sell to lawmakers.`\
