@@ -35,6 +35,6 @@ https://nytimes.com/2021/04/29/us/politics/senate-water-infrastructure-bill.html
 https://nytimes.com/2021/04/29/arts/michelle-t-boone-president-poetry-foundation.html?searchResultPosition=9
 
 **Biden, in Georgia to Promote Economic Agenda, Visits Carter**\
-`A day after his first address to Congress, President Biden met with former President Jimmy Carter and was set to mark his 100th day in office.`\
+`A day after his first address to Congress, President Biden met with former President Jimmy Carter and held a drive-in rally for his 100th day in office.`\
 https://nytimes.com/2021/04/29/business/economy/biden-georgia-carter.html?searchResultPosition=10
 
