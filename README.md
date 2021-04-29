@@ -30,8 +30,8 @@ https://nytimes.com/2021/04/28/us/politics/biden-speech-to-congress.html?searchR
 `The Justice Department’s announcement of the charges was the latest in a string of moves to make civil rights protections a priority.`\
 https://nytimes.com/2021/04/28/us/politics/ahmaud-arbery-shooting-hate-crime-charges.html?searchResultPosition=8
 
-**Watch Live: President Biden Addresses a Joint Session of Congress**\
-`President Biden addresses a joint session of Congress to mark his first 100 days in office.`\
+**Watch Live: Sen. Tim Scott Delivers G.O.P. Response to Biden**\
+`Senator Tim Scott of South Carolina delivers the G.O.P. rebuttal to President Biden’s remarks to a joint session of Congress.`\
 https://nytimes.com/video/us/politics/100000007731226/biden-congress-live-video.html?searchResultPosition=9
 
 **Amazon to raise pay for 500,000 workers.**\
