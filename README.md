@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/29/world/covid-turkey-lockdown.html?searchResultPosition=1
 
 **4 People, Including 2 Deputies, Killed in North Carolina Standoff**\
-`A 13-hour standoff with a gunman who had barricaded himself inside a house in Boone, N.C., ended with five people dead, the authorities said.`\
+`A 13-hour standoff with a gunman, who barricaded himself inside a house in Boone, N.C., ended at about 11 p.m. on Wednesday. Officials said the gunman had also died.`\
 https://nytimes.com/2021/04/29/us/boone-north-carolina-shooting.html?searchResultPosition=2
 
 **Pakistan warns of new strictures as its daily Covid death toll sets a record.**\
