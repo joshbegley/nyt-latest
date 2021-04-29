@@ -35,6 +35,6 @@ https://nytimes.com/2021/04/29/us/politics/biden-democrats.html?searchResultPosi
 https://nytimes.com/2021/04/29/business/china-internet-monopoly-online.html?searchResultPosition=9
 
 **After Thoughts**\
-`18 plans and proposals for when we emerge again.`\
+`18 plans and proposals for when we emerge from the pandemic.`\
 https://nytimes.com/2021/04/29/style/re-enter-society-after-covid.html?searchResultPosition=10
 
