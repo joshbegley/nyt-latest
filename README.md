@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/29/world/asia/india-coronavirus-vaccines.html?search
 https://nytimes.com/interactive/2021/04/29/well/live/29healthquiz-04292021.html?searchResultPosition=4
 
 **Inside the Chauvin Jury Room: 11 of 12 Jurors Were Ready to Convict Right Away**\
-`One juror described the closed-door deliberations over Derek Chauvin in one of the most closely watched trials in a generation.`\
+`One juror described the seven hours of closed-door deliberations that led to Derek Chauvin’s murder conviction.`\
 https://nytimes.com/2021/04/29/us/chauvin-jury-brandon-mitchell.html?searchResultPosition=5
 
 **President Biden’s first formal address drew nearly 27 million viewers.**\
