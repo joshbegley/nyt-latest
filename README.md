@@ -23,7 +23,7 @@ https://nytimes.com/interactive/2021/04/29/well/live/29healthquiz-04292021.html?
 https://nytimes.com/2021/04/29/us/chauvin-jury-brandon-mitchell.html?searchResultPosition=6
 
 **President Biden’s first formal address drew nearly 27 million viewers.**\
-`Mr. Biden’s speech came later in his presidency than those delivered by his recent predecessors, which all took place in February.`\
+`His speech came later in his presidency than those delivered by his recent predecessors, which all took place in February.`\
 https://nytimes.com/2021/04/29/business/media/biden-speech-ratings.html?searchResultPosition=7
 
 **Give Power to the Parents!**\
