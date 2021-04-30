@@ -27,7 +27,7 @@ https://nytimes.com/2021/04/30/style/modern-love-he-delivered-for-me.html?search
 https://nytimes.com/2021/04/29/world/asia/india-coronavirus-cases-deaths.html?searchResultPosition=7
 
 **One Dead as Car Hits Scooter and Slams Into Outdoor Dining Structure in Queens**\
-`The crash occurred on a block in Astoria known for its outdoor dining and sidewalk cafes.`\
+`The driver and a woman who was dining at the restaurant were injured in the crash, on a block in Astoria known for outdoor dining and sidewalk cafes.`\
 https://nytimes.com/2021/04/29/nyregion/restaurant-astoria-crash-scooter.html?searchResultPosition=8
 
 **Giants fans seemed confused by receiver pick.**\
