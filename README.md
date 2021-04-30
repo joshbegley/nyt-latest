@@ -1,6 +1,6 @@
-**Police Find More Than 90 People Crammed Into Houston Home**\
+**Police Find More Than 90 People Crammed Into a Houston Home**\
 `Houston police officers found more than 90 people — some showing symptoms of Covid-19 — “all huddled together” on Friday in what they believe may be a case of human smuggling.`\
-https://nytimes.com/2021/04/30/us/police-find-more-than-90-people-crammed-into-houston-home.html?searchResultPosition=1
+https://nytimes.com/2021/04/30/us/houston-smuggling.html?searchResultPosition=1
 
 **Stringer, Facing Sexual Harassment Accusation, Loses Key Endorsement**\
 `The Working Families Party, a major left-leaning institution, withdrew its backing of Scott Stringer for mayor of New York City.`\
