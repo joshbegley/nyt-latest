@@ -1,5 +1,5 @@
 **Shake-Up at Covid Vaccine Manufacturer That Tossed Millions of Doses**\
-`Emergent BioSolutions’ C.E.O. announced several executive changes but vigorously defended the company, which is on track for record revenue.`\
+`Emergent BioSolutions’ C.E.O. announced several executive changes but vigorously defended the company, which is on track for record revenues.`\
 https://nytimes.com/2021/04/29/us/emergent-biosolutions-covid-vaccine-manufacturing.html?searchResultPosition=1
 
 **Film Club: ‘Sensations of Sound’**\
