@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/29/opinion/biden-speech-child-care.html?searchResultPosition=1
 
 **Many Dead in Stampede at Israel Religious Celebration**\
-`A terrible disaster” declared Prime Minister Benjamin Netanyahu. By some estimates, about 100,000 people were crammed together near midnight to celebrate the feast of Lag b’Omer`\
+`“A terrible disaster” declared Prime Minister Benjamin Netanyahu. By some estimates, about 100,000 people were crammed together near midnight to celebrate the feast of Lag b’Omer`\
 https://nytimes.com/2021/04/29/world/middleeast/israel-mount-meron-stampede.html?searchResultPosition=2
 
 **Palestinian Vote Delayed, Prolonging Split for West Bank and Gaza**\
