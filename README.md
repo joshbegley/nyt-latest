@@ -1,4 +1,4 @@
-**Burned by Losses, Credit Suisse Faces Reckoning Under New Chairman**\
+**Hurt by Losses, Credit Suisse Faces Reckoning Under New Chairman**\
 `The nearly $5 billion loss from the collapse of Archegos Capital Management was just the latest problem for Credit Suisse’s beleaguered investment bank.`\
 https://nytimes.com/2021/04/30/business/credit-suisse-Antonio-Horta-Osorio-archegos-greensill.html?searchResultPosition=1
 
