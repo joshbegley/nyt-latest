@@ -2,7 +2,7 @@
 `What is behind the explosion of new coronavirus cases that is overwhelming the South Asian country?`\
 https://nytimes.com/2021/04/29/world/asia/india-coronavirus-cases-deaths.html?searchResultPosition=1
 
-**One Dead as Vehicle Hits Scooter and Crashes Into Outdoor Dining Structure in Queens**\
+**One Dead as Car Hits Scooter and Slams Into Outdoor Dining Structure in Queens**\
 `The crash occurred on a block in Astoria known for its outdoor dining and sidewalk cafes.`\
 https://nytimes.com/2021/04/29/nyregion/restaurant-astoria-crash-scooter.html?searchResultPosition=2
 
