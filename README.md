@@ -22,8 +22,8 @@ https://nytimes.com/2021/04/30/us/politics/covid-vaccination-rates.html?searchRe
 `Houston police officers found more than 90 people — some showing symptoms of Covid-19 — “all huddled together” on Friday in what they believe may be a case of human smuggling.`\
 https://nytimes.com/2021/04/30/us/houston-smuggling.html?searchResultPosition=6
 
-**Stringer, Facing Sexual Harassment Accusation, Loses Key Endorsement**\
-`The Working Families Party, a major left-leaning institution, withdrew its backing of Scott Stringer for mayor of New York City.`\
+**Stringer, Facing Sexual Harassment Accusation, Loses Key Endorsements**\
+`The Working Families Party, a major left-leaning institution, and several lawmakers withdrew their backing of Scott Stringer for mayor of New York City.`\
 https://nytimes.com/2021/04/30/nyregion/scott-stringer-sexual-harassment-endorsement.html?searchResultPosition=7
 
 **Biden Celebrates Amtrak’s 50th Anniversary**\
