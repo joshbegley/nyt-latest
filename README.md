@@ -15,7 +15,7 @@ https://nytimes.com/2021/04/29/sports/football/nfl-draft-order-picks-tracker.htm
 https://nytimes.com/2021/04/29/opinion/biden-speech-child-care.html?searchResultPosition=4
 
 **Many Dead in Stampede at Israel Religious Celebration**\
-`“A terrible disaster,” declared Prime Minister Benjamin Netanyahu. By some estimates, about 100,000 people were crammed together near midnight to celebrate the feast of Lag b’Omer.`\
+`An estimated 100,000 people had gathered to celebrate the feast of Lag b’Omer. Prime Minister Benjamin Netanyahu called the episode a “terrible disaster.”`\
 https://nytimes.com/2021/04/29/world/middleeast/israel-mount-meron-stampede.html?searchResultPosition=5
 
 **Palestinian Vote Delayed, Prolonging Split for West Bank and Gaza**\
