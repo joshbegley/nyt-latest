@@ -3,7 +3,7 @@
 https://nytimes.com/2021/04/30/climate/net-zero-circular-economy-climate-event.html?searchResultPosition=1
 
 **A Model Steps Behind the Camera**\
-`Miles Garber, a former runway fixture, is married, a new father and started his own studio.`\
+`Miles Garber, a former runway fixture, is married, a new father and has started his own studio.`\
 https://nytimes.com/2021/04/30/fashion/mens-style/a-model-steps-behind-the-camera.html?searchResultPosition=2
 
 **Weinstein to Face Sexual Assault Charges in L.A. as Early as May 30**\
