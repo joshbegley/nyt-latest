@@ -1,40 +1,40 @@
-**Frank Bowling’s New Paintings Are Family Affairs**\
-`With help from close relatives, the 87-year-old artist is still working, even if he doesn’t apply the paint himself.`\
-https://nytimes.com/2021/04/30/arts/design/frank-bowling.html?searchResultPosition=1
+**The Googleplex of the Future Has Privacy Robots, Meeting Tents and Your Very Own Balloon Wall**\
+`The company that helped popularize open office plans and lavish employee perks is trying to reinvent office spaces to cope with workplace sensibilities changed by the pandemic.`\
+https://nytimes.com/2021/04/30/technology/google-back-to-office-workers.html?searchResultPosition=1
 
-**In Opposing Climate and Diversity Proposals, Buffett Risks Looking Out of Step**\
-`Berkshire Hathaway’s shareholders are expected to follow the chairman’s lead and reject demands for more disclosures.`\
-https://nytimes.com/2021/04/30/business/dealbook/buffett-berkshire-climate-diversity.html?searchResultPosition=2
+**In Person or Virtual? Covid Complicates College Commencements**\
+`With vaccinations on the rise, many colleges are planning in-person commencements, sowing frustration on campuses sticking to online ones.`\
+https://nytimes.com/2021/04/30/us/virtual-graduation-coronavirus.html?searchResultPosition=2
 
-**AstraZeneca’s Covid-19 vaccine has generated $275 million in sales so far this year.**\
-`The company has pledged not to profit from its vaccine during the pandemic. Governments have been paying several dollars per dose.`\
-https://nytimes.com/2021/04/30/business/virus-astrazeneca-vaccine-revenue.html?searchResultPosition=3
+**‘Now We Are United’: Myanmar’s Ethnic Divisions Soften After Coup**\
+`Amid the resistance to military rule, some are saying that democracy can’t flourish without respecting the minorities that have been persecuted for decades.`\
+https://nytimes.com/2021/04/30/world/asia/myanmar-ethnic-minority-coup.html?searchResultPosition=3
 
-**What is Australian Food? A New Cookbook Provides Some Answers.**\
-`An ambitious new book from Phaidon chronicles three periods of Australian cuisine, from the ancient past to the Anglo era after colonization to the multicultural present.`\
-https://nytimes.com/2021/04/30/world/australia/food-cookbook-phaidon.html?searchResultPosition=4
+**Alexia’s Lifelong Nurse Has to Leave Her. Here’s Why.**\
+`For the most fragile New Yorkers and those who care for them, turning 23 brings enormous consequences.`\
+https://nytimes.com/2021/04/30/nyregion/medically-fragile-nurses-salary.html?searchResultPosition=4
 
-**Word of the Day: magnanimity**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/04/30/learning/word-of-the-day-magnanimity.html?searchResultPosition=5
+**Thunderous Plunges and Mossy Trickles: A Spring Guide to Waterfalls**\
+`Across the United States, a glorious array of waterfalls awaits nature lovers. And what better time to admire them than now, when snowmelt and spring rains add to the drama?`\
+https://nytimes.com/2021/04/30/travel/30spring-waterfalls.html?searchResultPosition=5
 
-**Stephen Colbert Can Relate to Ted Cruz**\
-`“Now that Joe’s president, I find it much easier to sleep, too,” Colbert joked on Thursday.`\
-https://nytimes.com/2021/04/30/arts/television/late-night-ted-cruz.html?searchResultPosition=6
+**After the Pandemic and Protests, a British Rapper Spotlights Black Businesses**\
+`Black Pound Day was created to find a sustainable way to support Black-owned businesses after the Black Lives Matter street protests faded.`\
+https://nytimes.com/2021/04/30/business/pandemic-black-pound-day-uk.html?searchResultPosition=6
 
-**It’s a Dog’s Life — or Is It?**\
-`In Remy Lai’s graphic novel, “Pawcasso,” a dog that crashes an art class may not be who he seems.`\
-https://nytimes.com/2021/04/30/books/review/remy-lai-pawcasso.html?searchResultPosition=7
+**Pro-Biden Group to Begin Ad Campaign Promoting His Agenda in Swing States**\
+`Building Back Together will highlight the president’s coronavirus response and his economic plan and will contrast his measured approach to his bombastic predecessor’s.`\
+https://nytimes.com/2021/04/30/us/politics/pro-biden-ads-swing-states.html?searchResultPosition=7
 
-**Europe’s economy is expected to shrink while the U.S.’s grows.**\
-`The performance for the first three months of the year could show that Europe has been in a recession, though recent signs suggest that fortunes are already improving.`\
-https://nytimes.com/2021/04/30/business/europe-gdp.html?searchResultPosition=8
+**Want to Move to Our Town? Here’s $10,000 and a Free Bike.**\
+`With offers of cash, housing and a budding talent pool, smaller cities and states hope to get in on the ground floor of a new era for remote workers.`\
+https://nytimes.com/2021/04/30/realestate/want-to-move-to-our-town-heres-10000-and-a-free-bike.html?searchResultPosition=8
 
-**Expert Picks: Who Will Win the Kentucky Derby**\
-`Joe Drape and Melissa Hoppert weigh in on the contenders for the 147th running of the Kentucky Derby.`\
-https://nytimes.com/2021/04/30/sports/horse-racing/kentucky-derby-odds-picks-predictions.html?searchResultPosition=9
+**Where Should You Buy Your Books?**\
+`Bookstore or Amazon? Curbside pickup or delivery? We answer common questions readers might have.`\
+https://nytimes.com/2021/04/30/books/books-to-buy-price-selection-authors.html?searchResultPosition=9
 
-**As Underclassmen Flood the N.F.L. Draft, Landing Places Dry Up**\
-`Since the league began allowing underclassmen to enter the draft in 1990, the number who do so has ballooned more than threefold. There are fewer options for those who go undrafted.`\
-https://nytimes.com/2021/04/30/sports/football/early-nfl-draft-entrants.html?searchResultPosition=10
+**Finding Love and All Its Quirks, Even If 2,654 Miles Away**\
+`“Radical honesty” on Sarah Lenz’s dating profile, along with no geographical restrictions, led to Stephen Paskey road tripping for love.`\
+https://nytimes.com/2021/04/30/fashion/weddings/sarah-lenz-stephen-paskey-wedding.html?searchResultPosition=10
 
