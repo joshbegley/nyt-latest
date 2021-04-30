@@ -8,7 +8,7 @@ https://nytimes.com/2021/04/29/us/aaron-von-ehlinger-rape-allegation.html?search
 
 **Patriots take pocket-passer Mac Jones.**\
 `By Emmanuel Morgan`\
-https://nytimes.com/2021/04/29/sports/football/patriots-take-pocket-passer-mac-jones.html?searchResultPosition=3
+https://nytimes.com/2021/04/29/sports/football/patriots-mac-jones.html?searchResultPosition=3
 
 **Appropriate Name for That Woman’s Husband**\
 `Kate Hawkins opens our solving weekend.`\
