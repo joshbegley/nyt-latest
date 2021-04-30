@@ -1,6 +1,6 @@
 **Apple’s App Store Draws E.U. Antitrust Charge**\
 `By forcing app developers to use its payment system and comply with other rules, regulators said Apple broke European Union competition laws.`\
-https://nytimes.com/2021/04/30/business/apples-app-store-draws-eu-antitrust-charge.html?searchResultPosition=1
+https://nytimes.com/2021/04/30/business/apple-antitrust-eu-app-store.html?searchResultPosition=1
 
 **Odessa, Part 4: Wellness Check**\
 `A mental health crisis has set in at Odessa High School and some students struggle to envision a world beyond the pandemic. But for one night, the marching band tried to forget about the coronavirus.`\
