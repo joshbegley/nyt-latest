@@ -36,5 +36,5 @@ https://nytimes.com/2021/04/30/learning/lesson-of-the-day-as-covid-19-devastates
 
 **Israel Mourns After a Religious Festival Turns Into Disaster**\
 `At least 45 people died in what witnesses described as a “human avalanche” after some slipped on a wet floor in a narrow passageway where people were pouring out of one area of the celebrations.`\
-https://nytimes.com/2021/04/30/world/middleeast/israel-mourns-after-a-religious-festival-turns-into-disaster.html?searchResultPosition=10
+https://nytimes.com/2021/04/30/world/middleeast/israel-stampede.html?searchResultPosition=10
 
