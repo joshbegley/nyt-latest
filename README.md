@@ -1,4 +1,4 @@
-**Canada’s regulator holds Johnson & Johnson vaccine for safety review of U.S. plant.**\
+**Canada’s regulator holds Johnson & Johnson vaccine for safety review.**\
 `The step was taken after Health Canada learned that an active ingredient was made in a Baltimore plant with contamination problems.`\
 https://nytimes.com/2021/04/30/world/canada-johnson-johnson-vaccine.html?searchResultPosition=1
 
