@@ -7,7 +7,7 @@ https://nytimes.com/2021/05/01/us/politics/elizabeth-warren-book-perist.html?sea
 https://nytimes.com/2021/05/01/sports/horse-racing/kentucky-derby-horses-stream.html?searchResultPosition=2
 
 **Olympia Dukakis, Oscar Winner for ‘Moonstruck,’ Dies at 89**\
-`A veteran of the stage known for playing worldly wise and world-weary characters, she was cast in mature roles as early as her late 30s.`\
+`A veteran of the stage who also had a long list of film and TV credits, she was best known for playing characters who were worldly wise and world-weary.`\
 https://nytimes.com/2021/05/01/movies/olympia-dukakis-dead.html?searchResultPosition=3
 
 **Oregon Lawmaker Who Let Protesters Into State Capitol Is Charged in Breach**\
