@@ -1,40 +1,40 @@
-**As New York City Reopens, Its Recovery Will Hinge on the Next Mayor**\
-`The Democratic candidates are making radically different bets about the mood and priorities of New Yorkers as the city moves toward reopening after the pandemic.`\
-https://nytimes.com/2021/05/01/nyregion/reopening-covid-nyc-mayor.html?searchResultPosition=1
+**G.O.P. Seeks to Empower Poll Watchers, Raising Intimidation Worries**\
+`Republicans in several states are pushing bills to give poll watchers more autonomy. Alarmed election officials and voting rights activists say it’s a new attempt to target voters of color.`\
+https://nytimes.com/2021/05/01/us/politics/republican-pollwatchers.html?searchResultPosition=1
 
-**23 Candidates Are on Ballot for Open Texas Congressional Seat**\
-`The front-runner in Saturday’s election is Susan Wright, who has been endorsed by Donald J. Trump and is the widow of Representative Ron Wright, who died of Covid-19 in February.`\
-https://nytimes.com/2021/05/01/us/house-election-texas-susan-wright.html?searchResultPosition=2
+**A Search for Remembrance After the Sandy Hook Massacre**\
+`The residents of Newtown, Conn., have approved a memorial to the children and staff killed at Sandy Hook Elementary School, but the sadness has yet to abate.`\
+https://nytimes.com/2021/05/01/us/politics/newtown-sandy-hook-elementary.html?searchResultPosition=2
 
-**Pandemic Inspector General Warns of Oversight Breakdown**\
-`An internal dispute at the Treasury Department shows the challenge of tracking trillions of dollars of economic relief money.`\
-https://nytimes.com/2021/05/01/us/politics/brian-miller-coronavirus-relief.html?searchResultPosition=3
+**‘Every Time I’m Calling, Someone Has Died’: The Anguish of India’s Diaspora**\
+`In WhatsApp chats, video calls, Facebook groups and forums, a global community has scrambled to save, and sometimes mourn, Covid-stricken loved ones.`\
+https://nytimes.com/2021/05/01/world/europe/uk-india-diaspora-Covid.html?searchResultPosition=3
 
-**Tom Brady Charted a New Path. Aaron Rodgers Struggles to Do the Same.**\
-`When Super Bowl-winning quarterbacks like Brady, Rodgers and Russell Wilson grow frustrated with their teams, the nature of N.F.L. contracts makes it hard to scramble away. Brady ultimately succeeded by running out the clock.`\
-https://nytimes.com/2021/05/01/sports/football/aaron-rodgers-trade-packers.html?searchResultPosition=4
+**Joe Biden, the Reverse Ronald Reagan**\
+`Four decades later, another elder statesman seeks to transform Americans’ ideas about the size of government.`\
+https://nytimes.com/2021/05/01/us/politics/joe-biden-the-reverse-ronald-reagan.html?searchResultPosition=4
 
-**What to Know About the 147th Kentucky Derby**\
-`The post time for the race is 6:57 p.m. Eastern time on Saturday.`\
-https://nytimes.com/2021/05/01/sports/horse-racing/kentucky-derby-start-time.html?searchResultPosition=5
+**Fierce Foes, Iran and Saudi Arabia Secretly Explore Defusing Tensions**\
+`Talks between the two regional powers, if successful, could start to lower the temperature on several conflicts across the Middle East.`\
+https://nytimes.com/2021/05/01/world/middleeast/Saudi-Iran-talks.html?searchResultPosition=5
 
-**Judge and Cole Dominate as Yankees Crush Tigers**\
-`Judge’s two homers held lead a blowout. The Mets, meanwhile, had tempers flare in a loss to Philadelphia.`\
-https://nytimes.com/2021/04/30/sports/baseball/yankees-mets.html?searchResultPosition=6
+**N.J. Teacher Suspended After Calling George Floyd a ‘Criminal’**\
+`The New Jersey high school teacher, Howard Zlotkin, has been suspended with pay after appearing to target Black students in an online class.`\
+https://nytimes.com/2021/05/01/nyregion/zoom-teacher-racist.html?searchResultPosition=6
 
-**Looking for a Weekend Excursion? Try Craft Shop Hopping**\
-`A wealth of stores and studios in Connecticut and upstate New York offer lovely handmade wares that you’ll have forever.`\
-https://nytimes.com/2021/04/30/t-magazine/craft-shops-connecticut-new-york.html?searchResultPosition=7
+**Arnold Schwarzenegger Is No Longer the Governor of California. Right?**\
+`Amid a pandemic and a recall, Mr. Schwarzenegger has been in demand at his Los Angeles mansion, embracing his unlikely role as California’s “elderly statesman.”`\
+https://nytimes.com/2021/05/01/us/arnold-schwarzenegger-california.html?searchResultPosition=7
 
-**Screwballs**\
-`All’s fair in love, war and Ryan McCarty’s Saturday puzzle.`\
-https://nytimes.com/2021/04/30/crosswords/daily-puzzle-2021-05-01.html?searchResultPosition=8
+**Should You Renovate the Kitchen Before You Sell?**\
+`One outdated room can stand out and hurt a sale. But before you do any last-minute work, set a budget and make sure you finish what you start.`\
+https://nytimes.com/2021/05/01/realestate/renovations-before-a-sale.html?searchResultPosition=8
 
-**Canada’s regulator holds Johnson & Johnson vaccine over Emergent link.**\
-`The step was taken after Health Canada learned that an active ingredient was made in a Baltimore plant with contamination problems.`\
-https://nytimes.com/2021/04/30/world/canada-johnson-johnson-vaccine.html?searchResultPosition=9
+**Brie Larson Pivoted to Video**\
+`The Oscar-winning actress has found therapeutic refuge on YouTube.`\
+https://nytimes.com/2021/05/01/style/brie-larson.html?searchResultPosition=9
 
-**Quotation of the Day: Soul-Searching in Israel After Deadly Stampede at Religious Site**\
-`Quotation of the Day for Saturday, May 1, 2021.`\
-https://nytimes.com/2021/04/30/todayspaper/quotation-of-the-day-soul-searching-in-israel-after-deadly-stampede-at-religious-site.html?searchResultPosition=10
+**After Years of Protests, a New Jersey County Ends Its ICE Jail Contract**\
+`The Essex County executive said the decision to stop holding undocumented immigrants for ICE in the county jail was based on money, not politics.`\
+https://nytimes.com/2021/05/01/nyregion/essex-ice.html?searchResultPosition=10
 
