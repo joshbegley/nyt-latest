@@ -18,7 +18,7 @@ https://nytimes.com/2021/05/01/nyregion/andrew-yang-venture-for-america-jobs.htm
 `Scientists have found intergenerational care may be the key to thriving mothers, and children.`\
 https://nytimes.com/2021/05/01/opinion/sunday/mothers-grandmothers-mental-health-whales-nature.html?searchResultPosition=5
 
-**Trump’s Secret Rules for Drone Strikes Outside War Zones Are (Partly) Disclosed**\
+**Trump’s Secret Rules for Drone Strikes Outside War Zones Are Disclosed**\
 `The release of the 2017 policy — with redactions — stemmed from open-records lawsuits by The Times and the A.C.L.U.`\
 https://nytimes.com/2021/05/01/us/politics/trump-drone-strike-rules.html?searchResultPosition=6
 
