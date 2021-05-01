@@ -1,5 +1,5 @@
 **Berkshire Hathaway Shows a Rebound From the Pandemic**\
-`The company reported a nearly 19 percent year-on-year gain in the first quarter, as its subsidiaries — from railroads to energy companies to consumer brands — improved their performances.`\
+`The company reported a nearly 19 percent year-on-year gain in the first quarter, as its subsidiaries — from a railroad to energy companies to consumer brands — improved their performances.`\
 https://nytimes.com/2021/05/01/business/dealbook/berkshire-hathaway-earnings.html?searchResultPosition=1
 
 **Celebrities Are Endorsing Covid Vaccines. Does It Help?**\
