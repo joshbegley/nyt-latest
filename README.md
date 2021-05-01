@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/01/crosswords/variety-vowel-less-crossword.html?sear
 `Workers found the bones, which could be up to 14,000 years old, during the construction of a pool.`\
 https://nytimes.com/2021/05/01/us/las-vegas-horse-fossil.html?searchResultPosition=3
 
-**Afghan Blast on Eve of U.S. Pullout Deadline Kills at Least 21**\
+**Afghan Blast on Eve of U.S. Pullout Deadline Kills at Least 27**\
 `If the blast was the work of the Taliban, as the Afghan government asserts, it would be the most overt signal yet that the peace deal is off.`\
 https://nytimes.com/2021/05/01/world/europe/us-withdrawal-afghanistan-blast.html?searchResultPosition=4
 
