@@ -22,9 +22,9 @@ https://nytimes.com/2021/04/30/pageoneplus/corrections-may-1-2021.html?searchRes
 `The businessman, who made a fortune in home-building and insurance, spent lavishly to try to make the city a cultural capital.`\
 https://nytimes.com/2021/04/30/us/eli-broad-dead.html?searchResultPosition=6
 
-**MoMA Locks Out Protesters Who Planned to Demonstrate Inside**\
-`The museum closed its doors to the protesters who say it caters too much to the interests of its wealthy donors.`\
-https://nytimes.com/2021/04/30/arts/moma-locks-out-protesters-who-planned-to-demonstrate-inside.html?searchResultPosition=7
+**MoMA Blocks Protesters Who Planned to Demonstrate Inside**\
+`The museum, citing safety concerns, closed its doors to the protesters who say MoMA caters too much to the interests of its wealthy donors.`\
+https://nytimes.com/2021/04/30/arts/moma-blocks-protesters-who-planned-to-demonstrate-inside.html?searchResultPosition=7
 
 **Manchin says he won’t support a D.C. statehood bill.**\
 `Senator Joe Manchin III, Democrat of West Virginia, told local news reporters that he believed making Washington, D.C., a state would require a constitutional amendment.`\
