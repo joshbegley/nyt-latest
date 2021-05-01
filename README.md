@@ -22,7 +22,7 @@ https://nytimes.com/2021/05/01/world/adar-poonawalla-vaccine-india-uk.html?searc
 `See full results and maps from the Texas special election.`\
 https://nytimes.com/interactive/2021/05/01/us/elections/results-texas-house-district-6-special-election.html?searchResultPosition=6
 
-**Malathaat wins the Kentucky Oaks and could meet the boys in the Belmont.**\
+**Malathaat won the Kentucky Oaks and could meet the boys in the Belmont.**\
 `The favorite Malathaat won the Kentucky Oaks by a neck at Churchill Downs on Friday, and her connections are not ruling out a matchup against the boys in the Belmont.`\
 https://nytimes.com/2021/05/01/sports/horse-racing/malathaat-kentucky-oaks-belmont.html?searchResultPosition=7
 
