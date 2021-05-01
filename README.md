@@ -6,7 +6,7 @@ https://nytimes.com/2021/04/30/t-magazine/craft-shops-connecticut-new-york.html?
 `All’s fair in love, war and Ryan McCarty’s Saturday puzzle.`\
 https://nytimes.com/2021/04/30/crosswords/daily-puzzle-2021-05-01.html?searchResultPosition=2
 
-**Canada’s regulator holds Johnson & Johnson vaccine for safety review.**\
+**Canada’s regulator holds Johnson & Johnson vaccine over Emergent link.**\
 `The step was taken after Health Canada learned that an active ingredient was made in a Baltimore plant with contamination problems.`\
 https://nytimes.com/2021/04/30/world/canada-johnson-johnson-vaccine.html?searchResultPosition=3
 
