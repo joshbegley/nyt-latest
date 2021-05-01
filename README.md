@@ -22,9 +22,9 @@ https://nytimes.com/2021/05/01/sports/horse-racing/malathaat-kentucky-oaks-belmo
 `In “Persist,” the Massachusetts senator delves into gender issues and her own shortcomings after her failed bid for the Democratic nomination.`\
 https://nytimes.com/2021/05/01/us/politics/elizabeth-warren-book-perist.html?searchResultPosition=6
 
-**How to watch and bet the Derby.**\
+**These were the morning-line odds.**\
 `Coverage of the race is on NBC, and a livestream is available. Here are the horses and the morning-line odds.`\
-https://nytimes.com/2021/05/01/sports/horse-racing/kentucky-derby-horses-stream.html?searchResultPosition=7
+https://nytimes.com/live/2021/05/01/sports/kentucky-derby/kentucky-derby-horses-stream?searchResultPosition=7
 
 **Olympia Dukakis, Oscar Winner for ‘Moonstruck,’ Dies at 89**\
 `A veteran of the stage who also had a long list of film and TV credits, she was best known for playing characters who were worldly wise and world-weary.`\
