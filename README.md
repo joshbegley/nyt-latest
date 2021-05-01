@@ -22,19 +22,19 @@ https://nytimes.com/2021/05/01/sports/horse-racing/malathaat-kentucky-oaks-belmo
 `In “Persist,” the Massachusetts senator delves into gender issues and her own shortcomings after her failed bid for the Democratic nomination.`\
 https://nytimes.com/2021/05/01/us/politics/elizabeth-warren-book-perist.html?searchResultPosition=6
 
-**These were the morning-line odds.**\
-`Coverage of the race is on NBC, and a livestream is available. Here are the horses and the morning-line odds.`\
-https://nytimes.com/live/2021/05/01/sports/kentucky-derby/kentucky-derby-horses-stream?searchResultPosition=7
-
 **Olympia Dukakis, Oscar Winner for ‘Moonstruck,’ Dies at 89**\
 `A veteran of the stage who also had a long list of film and TV credits, she was best known for playing characters who were worldly wise and world-weary.`\
-https://nytimes.com/2021/05/01/movies/olympia-dukakis-dead.html?searchResultPosition=8
+https://nytimes.com/2021/05/01/movies/olympia-dukakis-dead.html?searchResultPosition=7
 
 **Oregon Lawmaker Who Let Protesters Into State Capitol Is Charged in Breach**\
 `Surveillance footage shows State Representative Mike Nearman opening a door to let protesters into the Capitol, in Salem, last year.`\
-https://nytimes.com/2021/05/01/us/mike-nearman-oregon-charged-protesters.html?searchResultPosition=9
+https://nytimes.com/2021/05/01/us/mike-nearman-oregon-charged-protesters.html?searchResultPosition=8
 
 **Netflix Chronicles Byron Bay’s ‘Hot Instagrammers.’ Will Paradise Survive?**\
 `Tensions between protecting and capitalizing on the image of the famous Australian beach town have exploded over a new reality show.`\
-https://nytimes.com/2021/05/01/world/australia/byron-bay-baes-netflix.html?searchResultPosition=10
+https://nytimes.com/2021/05/01/world/australia/byron-bay-baes-netflix.html?searchResultPosition=9
+
+**James Prigoff, Who Documented Street Art, Dies at 93**\
+`In thousands of pictures, Mr. Prigoff captured the often ephemeral but complex works that were once dismissed as vandalism.`\
+https://nytimes.com/2021/05/01/arts/james-prigoff-dead.html?searchResultPosition=10
 
