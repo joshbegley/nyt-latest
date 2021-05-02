@@ -18,7 +18,7 @@ https://nytimes.com/2021/05/02/pageoneplus/editors-note-may-2-2021.html?searchRe
 `Quotation of the Day for Sunday, May 2, 2021.`\
 https://nytimes.com/2021/05/02/todayspaper/quotation-of-the-day-9-years-after-tragedy-a-search-for-remembrance.html?searchResultPosition=5
 
-**SpaceX Makes First Nighttime Splash Down With Astronauts Since 1968**\
+**SpaceX Completes First Nighttime Splash Down With Astronauts Since 1968**\
 `Crew-1, which launched to the space station in November, will head home in the capsule called Resilience.`\
 https://nytimes.com/2021/05/02/science/spacex-nasa-landing.html?searchResultPosition=6
 
