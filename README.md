@@ -1,6 +1,6 @@
 **Pete Lammons, Who Helped the Jets Win ’69 Super Bowl, Dies at 77**\
 `After his football career, he bred racehorses and competed in professional fishing tournaments. He died after falling out of a boat in East Texas.`\
-https://nytimes.com/2021/05/02/sports/pete-lammons-who-helped-the-jets-win-69-super-bowl-dies-at-77.html?searchResultPosition=1
+https://nytimes.com/2021/05/02/sports/pete-lammons-dead.html?searchResultPosition=1
 
 **Biden’s Proposals Aim to Give Sturdier Support to the Middle Class**\
 `His message is that the private sector alone cannot provide security and comfort to the vast majority of Americans.`\
