@@ -1,40 +1,40 @@
+**Puerto Rican Boxer Is Questioned in Woman’s Disappearance**\
+`The body of Keishla Rodríguez Ortiz was found on Saturday. Félix Verdejo, who represented the island at the 2012 Olympic Games, has not cooperated with the investigation, the authorities said.`\
+https://nytimes.com/2021/05/02/sports/rodriguez-ortiz-felix-verjedo-puerto-rico.html?searchResultPosition=1
+
+**India Vaccination Drive Stifled by Supply Shortages**\
+`As vaccine eligibility opened to people 18 and older on Saturday, several states reported shortages. India has faced global records for daily coronavirus cases, limited oxygen supplies and a series of deadly hospital accidents.`\
+https://nytimes.com/video/world/asia/100000007741362/india-coronavirus-vaccination-drive.html?searchResultPosition=2
+
 **With Her Final Album, Rebecca Luker Bids a Fond Farewell**\
 `The much-loved Broadway soprano, who died in December, had one more miracle up her sleeve.`\
-https://nytimes.com/2021/05/02/theater/rebecca-luker-Sally-Wilfert-album.html?searchResultPosition=1
+https://nytimes.com/2021/05/02/theater/rebecca-luker-Sally-Wilfert-album.html?searchResultPosition=3
 
 **Pete Lammons, Who Helped the Jets Win ’69 Super Bowl, Dies at 77**\
 `After his football career, he bred racehorses and competed in professional fishing tournaments. He died after falling out of a boat in East Texas.`\
-https://nytimes.com/2021/05/02/sports/pete-lammons-dead.html?searchResultPosition=2
+https://nytimes.com/2021/05/02/sports/pete-lammons-dead.html?searchResultPosition=4
 
 **Biden’s Proposals Aim to Give Sturdier Support to the Middle Class**\
 `His message is that the private sector alone cannot provide security and comfort to the vast majority of Americans.`\
-https://nytimes.com/2021/05/02/business/economy/middle-class-biden-economy.html?searchResultPosition=3
+https://nytimes.com/2021/05/02/business/economy/middle-class-biden-economy.html?searchResultPosition=5
 
 **NASA Astronauts Land SpaceX Capsule Overnight**\
 `Four astronauts splashed down off the coast of Panama City, Fla., early Sunday in a Crew Dragon spacecraft, named Resilience, returning safely to Earth from a mission in November to the International Space Station.`\
-https://nytimes.com/video/science/100000007741326/spacex-astronauts-night-splashdown.html?searchResultPosition=4
+https://nytimes.com/video/science/100000007741326/spacex-astronauts-night-splashdown.html?searchResultPosition=6
 
 **Russian Attempts to Expand Sputnik Vaccine Set Off Discord in Europe**\
 `Political turmoil in Slovakia is an example of how Russia’s vaccine diplomacy, which has divided politicians across Europe, can have negative side effects for a recipient country.`\
-https://nytimes.com/2021/05/02/world/europe/russia-slovakia-europe-coronavirus-sputnik-vaccine.html?searchResultPosition=5
+https://nytimes.com/2021/05/02/world/europe/russia-slovakia-europe-coronavirus-sputnik-vaccine.html?searchResultPosition=7
 
 **Love or Spycraft: What Landed an American Teacher in a Cuban Prison?**\
 `It was a romance steeped in international intrigue, and it landed Alina López Miyares in a Cuban prison. How much did she know about the web that entangled her?`\
-https://nytimes.com/2021/05/02/world/americas/american-teacher-cuba-prison.html?searchResultPosition=6
+https://nytimes.com/2021/05/02/world/americas/american-teacher-cuba-prison.html?searchResultPosition=8
 
 **$18 Million Refit of Colosseum Will Give Visitors a Gladiator’s View**\
 `The winning design for a new floor for the Roman landmark, planned to be ready for 2023, will cover the exposed subterranean chambers and reconnect “the thread of time.”`\
-https://nytimes.com/2021/05/02/world/europe/italy-colosseum-floor.html?searchResultPosition=7
+https://nytimes.com/2021/05/02/world/europe/italy-colosseum-floor.html?searchResultPosition=9
 
 **Jason Matthews, C.I.A. Officer Turned Novelist, Dies at 69**\
 `After 33 years at the agency, he turned out three well-received novels that included realistic details of espionage — and appearances by Vladimir Putin.`\
-https://nytimes.com/2021/05/02/books/jason-matthews-dead.html?searchResultPosition=8
-
-**Fred Jordan, Publisher of Taboo-Breaking Books, Dies at 95**\
-`At Grove Press, he and Barney Rosset challenged censors as they popularized D.H. Lawrence, Henry Miller, William S. Burroughs, Allen Ginsberg and others.`\
-https://nytimes.com/2021/05/02/books/fred-jordan-dead.html?searchResultPosition=9
-
-**There’s No Classics ‘Catastrophe’ at Howard University**\
-`Our students will still be studying Plato and Aristotle, but we can't afford a whole department.`\
-https://nytimes.com/2021/05/02/opinion/howard-university-classics-department.html?searchResultPosition=10
+https://nytimes.com/2021/05/02/books/jason-matthews-dead.html?searchResultPosition=10
 
