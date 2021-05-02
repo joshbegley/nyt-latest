@@ -15,7 +15,7 @@ https://nytimes.com/2021/05/02/opinion/joe-biden-100-days.html?searchResultPosit
 https://nytimes.com/2021/05/02/opinion/letters/libraries-funding.html?searchResultPosition=4
 
 **How a Miami School Became a Beacon for Anti-Vaxxers**\
-`The Centner Academy barred teachers newly vaccinated against the coronavirus from being near students. Some parents threatened to withdraw their children. Others clamored to enroll.`\
+`Centner Academy barred teachers newly vaccinated against the coronavirus from being near students. Some parents threatened to withdraw their children. Others clamored to enroll.`\
 https://nytimes.com/2021/05/02/us/miami-centner-academy-coronavirus-vaccine.html?searchResultPosition=5
 
 **What to Cook This Week**\
