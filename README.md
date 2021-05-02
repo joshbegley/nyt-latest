@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/02/business/economy/middle-class-biden-economy.html?
 `Four astronauts splashed down off the coast of Panama City, Fla., early Sunday in a Crew Dragon spacecraft, named Resilience, returning safely to Earth from a mission in November to the International Space Station.`\
 https://nytimes.com/video/science/100000007741326/spacex-astronauts-night-splashdown.html?searchResultPosition=2
 
-**Russian Attempts to Expand Sputnik Vaccine Sets Off Discord in Europe**\
+**Russian Attempts to Expand Sputnik Vaccine Set Off Discord in Europe**\
 `Political turmoil in Slovakia is an example of how Russia’s vaccine diplomacy, which has divided politicians across Europe, can have negative side effects for a recipient country.`\
 https://nytimes.com/2021/05/02/world/europe/russia-slovakia-europe-coronavirus-sputnik-vaccine.html?searchResultPosition=3
 
