@@ -1,5 +1,5 @@
 **Puerto Rican Boxer Is Questioned in Woman’s Disappearance**\
-`The body of Keishla Rodríguez Ortiz was found on Saturday. Félix Verdejo, who represented the island at the 2012 Olympic Games, has not cooperated with the investigation, the authorities said.`\
+`The body of Keishla Rodríguez Ortiz was found on Saturday. Félix Verdejo, who competed at the 2012 Olympic Games, has not cooperated with the investigation, the authorities said.`\
 https://nytimes.com/2021/05/02/sports/rodriguez-ortiz-felix-verjedo-puerto-rico.html?searchResultPosition=1
 
 **India Vaccination Drive Stifled by Supply Shortages**\
