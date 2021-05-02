@@ -1,40 +1,40 @@
-**Lucha Libre, Yoga, Dancing: Welcome to Mexico City’s Vaccination Sites**\
-`To calm Mexico City’s elderly, who were arriving “really scared” at vaccination sites, officials cued up the bands and masked wrestlers.`\
-https://nytimes.com/2021/05/02/world/americas/mexico-city-vaccinations.html?searchResultPosition=1
+**How Can the Olympics Protect 78,000 Volunteers From the Coronavirus?**\
+`They are being offered little more than a couple of masks, some hand sanitizer and social-distancing guidance that may be hard to abide by.`\
+https://nytimes.com/2021/05/02/world/asia/olympics-volunteers-coronavirus.html?searchResultPosition=1
 
-**Has Online Retail’s Biggest Bully Returned?**\
-`Outraged customers of Eyeglassesdepot.com sound like the victims of a man who’s already spent years in prison for terrorizing consumers.`\
-https://nytimes.com/2021/05/02/business/has-online-retails-biggest-bully-returned.html?searchResultPosition=2
+**Denied a Season, Some Ivy League Athletes Craft a Baseball Gap Year**\
+`The Ivy League, unlike most Division I conferences, decided against spring sports. That has led some athletes, like baseball players at Brown, to find outside ways to train.`\
+https://nytimes.com/2021/05/02/sports/brown-baseball-season-lost.html?searchResultPosition=2
 
-**‘Once Aboard, We Noticed Some Groups of People Sticking Together’**\
-`A ride on the Circle Line, picking out produce and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/05/02/nyregion/metropolitan-diary.html?searchResultPosition=3
+**Clubhouse App Creates Space for Open Talk in Middle East**\
+`The social networking app is booming in authoritarian countries, where users are speaking freely about otherwise taboo topics.`\
+https://nytimes.com/2021/05/02/world/middleeast/clubhouse-iran-egypt-mideast.html?searchResultPosition=3
 
-**Editors’ Note: May 2, 2021**\
-`A note and corrections that appeared in print on Sunday, May 2, 2021.`\
-https://nytimes.com/2021/05/02/pageoneplus/editors-note-may-2-2021.html?searchResultPosition=4
+**Why Kristi Noem Is Rising Quickly as a Republican Prospect for 2024**\
+`Ms. Noem, the governor of South Dakota, has defied coronavirus restrictions and eagerly projects a rugged Great Plainswoman image. But some of her political moves prompt eye rolls.`\
+https://nytimes.com/2021/05/02/us/politics/kristi-noem-south-dakota-republicans.html?searchResultPosition=4
 
-**Quotation of the Day: 9 Years After Tragedy, a Search for Remembrance**\
-`Quotation of the Day for Sunday, May 2, 2021.`\
-https://nytimes.com/2021/05/02/todayspaper/quotation-of-the-day-9-years-after-tragedy-a-search-for-remembrance.html?searchResultPosition=5
+**Homes That Sold for Around $750,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2021/05/02/realestate/home-sales-750000-dollars.html?searchResultPosition=5
 
-**SpaceX Makes First Nighttime Splash Down With Astronauts Since 1968**\
-`Crew-1, which launched to the space station in November, left the space station in the capsule called Resilience.`\
-https://nytimes.com/2021/05/02/science/spacex-nasa-landing.html?searchResultPosition=6
+**Indian Health Service Settles Dispute Over Care in New Mexico**\
+`The federal agency agreed to postpone for a year its proposal to cut service at a hospital serving 9,100 tribal citizens.`\
+https://nytimes.com/2021/05/02/us/politics/indian-health-service-new-mexico.html?searchResultPosition=6
 
-**Make a Card That Blooms**\
-`A card decorated with pop-up flowers can serve as a perfect spring greeting. (Just in case you forgot, Mother’s Day is around the corner.)`\
-https://nytimes.com/2021/05/01/at-home/mothers-day-card-newspaper.html?searchResultPosition=7
+**Mercedes EQS Electric Sedan: The S Stands for Stunning**\
+`The automaker should be able to win back some customers who drifted to Tesla, and hold onto the Tesla-curious.`\
+https://nytimes.com/2021/05/02/business/mercedes-eqs-electric-vehicles.html?searchResultPosition=7
 
-**This Spring, Get the Balls Rolling**\
-`In this era of social distancing, lawn games like croquet, badminton and horseshoes offer a great way to spend some time outside.`\
-https://nytimes.com/2021/05/01/at-home/lawn-games.html?searchResultPosition=8
+**When The Times Didn’t Print on Sundays**\
+`The breakout of the Civil War created a huge demand for news and allowed The Times to vault over a taboo and put out a daily paper on Sundays.`\
+https://nytimes.com/2021/05/02/insider/sunday-newspapers.html?searchResultPosition=8
 
-**Surprise Mom With a Floral Cocktail**\
-`Flowers are magic. They are beautiful, uplifting and, when added to a drink, incredibly refreshing.`\
-https://nytimes.com/2021/05/01/travel/floral-cocktails.html?searchResultPosition=9
+**An Ambitious Novel Takes Flight**\
+`In “The Great Circle,” Maggie Shipstead crosses centuries and time zones to deliver an epic story of women whose lives are up in the air.`\
+https://nytimes.com/2021/05/02/books/review/the-great-circle-maggie-shipstead.html?searchResultPosition=9
 
-**With 23 Candidates, Special Election in Texas Is Headed for Runoff**\
-`The front-runner was Susan Wright, who was endorsed by Donald J. Trump and is the widow of Representative Ron Wright, who died of Covid-19 in February.`\
-https://nytimes.com/2021/05/01/us/susan-wright-sixth-district-texas.html?searchResultPosition=10
+**Gunman Kills 2 at Wisconsin Casino**\
+`Police said officers killed the assailant in the shooting outside a casino and hotel complex in Green Bay.`\
+https://nytimes.com/2021/05/02/us/wisconsin-green-bay-shooting-casino.html?searchResultPosition=10
 
