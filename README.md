@@ -23,7 +23,7 @@ https://nytimes.com/2021/05/03/dining/alaskan-salmon-co.html?searchResultPositio
 https://nytimes.com/2021/05/03/dining/reggie-nadelson-new-york-city.html?searchResultPosition=6
 
 **Biden, in reversal, raises the refugee admission cap to 62,500 in the next six months.**\
-`The move eliminates the sharp limits that the Trump administration imposed, but the president a on people seeking refuge from war, violence or natural disasters.`\
+`The move eliminates the Trump administration’s strict limit, but the president acknowledged that the U.S. was unlikely to resettle the full number because of budget and staffing cuts at federal agencies.`\
 https://nytimes.com/2021/05/03/us/politics/biden-refugee-numbers.html?searchResultPosition=7
 
 **A Spice Mill Designed by Michel Bras**\
