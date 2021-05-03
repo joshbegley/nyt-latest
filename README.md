@@ -22,8 +22,8 @@ https://nytimes.com/interactive/2021/05/03/dining/popular-april-recipes.html?sea
 `On Sunday, the United States delivered the third of six aid shipments to New Delhi, including 1,000 oxygen cylinders. Britain donated more than 400 oxygen concentrators, and France sent eight oxygen generators, each of which can serve 250 hospitalized patients.`\
 https://nytimes.com/video/world/100000007742432/india-coronavirus-foreign-aid.html?searchResultPosition=6
 
-**N.Y.C.’s subway will resume 24-hour service on May 17.**\
-`The restoration of subway hours are the latest sign of New York’s recovery as more people have gotten vaccinated and city life has slowly begun to pick up.`\
+**N.Y., N.J. and Connecticut will let many businesses fully reopen in mid-May and N.Y.C.’s subway will resume 24-hour service.**\
+`Restaurants, offices, retail stores, theaters, museums, barber shops, amusement parks and gyms and fitness centers will all be allowed to operate at full capacity for the first time since restrictions were adopted last year to prevent the spread of the virus.`\
 https://nytimes.com/2021/05/03/nyregion/new-york-city-subway-reopen.html?searchResultPosition=7
 
 **How to Plan a Summer Getaway**\
