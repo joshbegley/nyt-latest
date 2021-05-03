@@ -15,7 +15,7 @@ https://nytimes.com/video/world/americas/100000007743240/colombia-tax-protest.ht
 https://nytimes.com/2021/05/03/briefing/new-york-vaccines-refugees.html?searchResultPosition=4
 
 **Apple and Epic Trial Opens With a Tour of the Fortnite ‘Metaverse’**\
-`Epic has accused Apple of unfairly using its App Store’s power to take an undeserved cut of the money made in Fortnite, a popular online game.`\
+`Epic has accused Apple of unfairly using its App Store’s power to take a cut of the money made in Fortnite, a popular online game.`\
 https://nytimes.com/2021/05/03/business/apple-epic-fortnite-trial.html?searchResultPosition=5
 
 **Canlis Hires Its First Female Executive Chef**\
