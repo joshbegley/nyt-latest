@@ -1,4 +1,4 @@
-**Yankees’ Kluber is Dominant in 100th Career Victory**\
+**Yankees’ Kluber Is Dominant in 100th Career Victory**\
 `After a rough start, the Yankees rotation is showing progress.`\
 https://nytimes.com/2021/05/02/sports/baseball/yankees-mets.html?searchResultPosition=1
 
