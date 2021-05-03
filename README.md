@@ -26,7 +26,7 @@ https://nytimes.com/2021/05/03/briefing/schools-reopening-working-mothers.html?s
 `Some countries, like Greece, Spain and France, had already said they would allow vaccinated visitors or those who could show a proof of a negative test.`\
 https://nytimes.com/2021/05/03/world/european-union-travel.html?searchResultPosition=7
 
-**E.P.A. to Sharply Cut Powerful Greenhouse Gases**\
+**E.P.A. to Announce Sharp Limits on Powerful Greenhouse Gases**\
 `The Biden administration is moving quickly to limit hydrofluorocarbons, which are Earth-warming chemicals used in air-conditioning and refrigeration.`\
 https://nytimes.com/2021/05/03/climate/EPA-HFCs-hydrofluorocarbons.html?searchResultPosition=8
 
