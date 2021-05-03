@@ -35,6 +35,6 @@ https://nytimes.com/2021/05/03/world/asia/India-coronavirus-deaths-oxygen.html?s
 https://nytimes.com/2021/05/03/us/politics/liz-cheney-trump.html?searchResultPosition=9
 
 **Damage Reported as Tornadoes Tear Across the South**\
-`The National Weather Service planned to survey damage in four Mississippi counties on Monday. Tornadoes were also reported in Georgia and Kentucky.`\
+`The National Weather Service planned to survey damage in four Mississippi counties on Monday. Tornadoes were also reported in Georgia, Kentucky and South Carolina.`\
 https://nytimes.com/2021/05/03/us/tornadoes-mississippi-atlanta.html?searchResultPosition=10
 
