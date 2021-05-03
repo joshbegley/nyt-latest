@@ -2,7 +2,7 @@
 `On Sunday, the United States delivered the third of six aid shipments to New Delhi, including 1,000 oxygen cylinders. Britain donated more than 400 oxygen concentrators, and France sent eight oxygen generators, each of which can serve 250 hospitalized patients.`\
 https://nytimes.com/video/world/100000007742432/india-coronavirus-foreign-aid.html?searchResultPosition=1
 
-**N.Y.C.’s subway will resume 24-hour service on May 17, the governor says.**\
+**N.Y.C.’s subway will resume 24-hour service on May 17.**\
 `The restoration of subway hours are the latest sign of New York’s recovery as more people have gotten vaccinated and city life has slowly begun to pick up.`\
 https://nytimes.com/2021/05/03/nyregion/new-york-city-subway-reopen.html?searchResultPosition=2
 
