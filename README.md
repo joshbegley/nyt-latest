@@ -1,6 +1,6 @@
 **‘We Feel Lost in Time’: Covid Transforms Teen Milestones**\
 `As Sweet Sixteens, proms and graduation ceremonies were disrupted or canceled, kids turned their losses into opportunities for new traditions with friends.`\
-https://nytimes.com/2021/05/03/well/family/teenage-milestones-pandemic.html?searchResultPosition=1
+https://nytimes.com/2021/05/03/well/family/teen-milestones-prom-graduation.html?searchResultPosition=1
 
 **Vaccinated Tourists Could Soon Be Allowed to Visit Again, E.U. Says**\
 `The bloc’s executive branch laid out plans for welcoming back leisure and business travelers in time for the summer, with inoculation certificates playing a crucial role.`\
