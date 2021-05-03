@@ -19,7 +19,7 @@ https://nytimes.com/2021/05/03/nyregion/stringer-jean-kim-sexual-harassment.html
 https://nytimes.com/2021/05/03/business/tax-increase-stock-market.html?searchResultPosition=5
 
 **At Least 26 Killed in Bangladesh Speedboat Crash**\
-`An overcrowded speedboat collided with a sand-laden bulk carrier and sank on the Padma River, the police said.`\
+`An overcrowded speedboat collided with a sand-laden bulk carrier and sank in the Padma River, the police said.`\
 https://nytimes.com/2021/05/03/world/asia/bangladesh-boat-accident.html?searchResultPosition=6
 
 **What’s on TV This Week: ‘Amy Tan — Unintended Memoir’ and ‘Vax Live’**\
