@@ -1,4 +1,4 @@
-**A Growing Summertime Risk for U.S. Cities: Power Failures During Heat Waves**\
+**A Growing Summertime Risk for Cities: Power Failures During Heat Waves**\
 `The author of a new study said the combination of blackouts and extreme heat “may be the deadliest climate-related event we can imagine.”`\
 https://nytimes.com/2021/05/03/climate/heat-climate-health-risks.html?searchResultPosition=1
 
