@@ -1,5 +1,5 @@
 **Yankees’ Kluber Is Dominant in 100th Career Victory**\
-`After a rough start, the Yankees rotation is showing progress.`\
+`After a rough start, the Yankees rotation is showing progress. An overturned homer let the Mets hang on to win.`\
 https://nytimes.com/2021/05/02/sports/baseball/yankees-mets.html?searchResultPosition=1
 
 **India’s outbreak is a danger to the world. Here’s why.**\
