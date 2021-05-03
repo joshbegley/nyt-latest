@@ -22,7 +22,7 @@ https://nytimes.com/video/us/politics/100000007742948/biden-tax-plan-community-c
 `History suggests Trout may struggle to win the batting title, let alone hit .400, but baseball’s best player has shifted into a higher gear.`\
 https://nytimes.com/2021/05/03/sports/baseball/mike-trout-400.html?searchResultPosition=6
 
-**Advocate of Revamping Student Loan System Will Head Federal Aid Office**\
+**Meet the Man Now at the Center of the Debate Over Student Debt**\
 `Richard Cordray, the consumer financial protection chief under President Obama, will now head the federal student aid office in the Education Department.`\
 https://nytimes.com/2021/05/03/us/richard-cordray-federal-student-aid.html?searchResultPosition=7
 
