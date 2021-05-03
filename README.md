@@ -1,4 +1,4 @@
-**Nikola Jokic Takes a Pass at the N.B.A. M.V.P. Award**\
+**How Nikola Jokic Became the Favorite for the N.B.A. M.V.P. Award**\
 `Jokic, the Nuggets center, has increased his scoring, and he conducts Denver’s offense with outlet tosses that take advantage of his background in water polo.`\
 https://nytimes.com/2021/05/03/sports/nikola-jokic-nba-mvp.html?searchResultPosition=1
 
