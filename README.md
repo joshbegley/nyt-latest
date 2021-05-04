@@ -11,7 +11,7 @@ https://nytimes.com/video/us/politics/100000007744555/biden-speech-live.html?sea
 https://nytimes.com/2021/05/04/theater/melissa-errico-costume-fitting.html?searchResultPosition=3
 
 **‘Pass Over,’ About Black Men Trapped by Dread, Heads to Broadway**\
-`The play, by Antoinette Nwandu, has previously been staged at several prominent theaters and filmed by Spike Lee for Amazon.`\
+`The play, by Antoinette Chinonye Nwandu, has previously been staged at several prominent theaters and filmed by Spike Lee for Amazon.`\
 https://nytimes.com/2021/05/04/theater/pass-over-about-black-men-trapped-by-dread-heads-to-broadway.html?searchResultPosition=4
 
 **Motherless Mothers Can Be Good Moms, Too**\
@@ -24,7 +24,7 @@ https://nytimes.com/2021/05/04/us/biden-covid-vaccine-strategy.html?searchResult
 
 **People searched for missing loved ones, including children.**\
 `At least 15 of the crash victims had yet to be identified, as family members frantically scoured hospitals and social media for news of the missing.`\
-https://nytimes.com/2021/05/04/world/americas/people-searched-for-missing-loved-ones-including-children.html?searchResultPosition=7
+https://nytimes.com/2021/05/04/world/americas/mexico-city-train-collapse-missing.html?searchResultPosition=7
 
 **Dodie Can’t Resist Sharing. It’s Made Her Music Soar.**\
 `The 26-year-old British singer and songwriter puts all her vulnerability into her songs — and onto YouTube. Her debut album, “Build a Problem,” is due May 7.`\
