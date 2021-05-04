@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘The U.K. Spy Agency MI5 Joined Instagram. It Wasn’t for the Likes.’**\
-`In this lesson, students will explore the world of espionage on social media. Can these accounts help us gain a better understanding of spies and the art of spying?`\
-https://nytimes.com/2021/05/04/learning/lesson-of-the-day-the-uk-spy-agency-mi5-joined-instagram-it-wasnt-for-the-likes.html?searchResultPosition=1
+**‘Secrets of Happiness,’ by Joan Silber: An Excerpt**\
+`An excerpt from “Secrets of Happiness,” by Joan Silber`\
+https://nytimes.com/2021/05/04/books/review/secrets-of-happiness-by-joan-silber-an-excerpt.html?searchResultPosition=1
 
-**Years After Deadly Shooting, Tree of Life Synagogue Plans a New Beginning**\
-`Daniel Libeskind, an architect known for memorializing historical trauma, will turn the site of 11 deaths back into a home for worship as well as a place to learn about confronting hatred.`\
-https://nytimes.com/2021/05/04/us/tree-of-life-synagogue-libeskind.html?searchResultPosition=2
+**Vaccination Can Be Relaxing. Just Ask These Museum Visitors.**\
+`A contemporary art museum joined Italy’s inoculation drive last week, a way of healing the soul and the mind along with the body, its director said.`\
+https://nytimes.com/2021/05/04/arts/design/italy-museum-vaccination.html?searchResultPosition=2
 
-**Why Rising Diversity Might Not Help Democrats as Much as They Hope**\
-`Voters of color make up an increasing percentage of the United States electorate, but that trend isn’t hurting Republicans as much as conservatives fear.`\
-https://nytimes.com/2021/05/04/us/census-news-republicans-democrats.html?searchResultPosition=3
+**In Miami, a Sculpture Built to Live In**\
+`Christopher Carter, an artist who works with salvaged materials, set out to create his biggest work ever. Now it’s his home, and the subject of a new exhibit.`\
+https://nytimes.com/2021/05/04/realestate/the-carter-project-miami-sculpture-christopher-carter.html?searchResultPosition=3
 
-**Yamiche Alcindor Is Named Host of ‘Washington Week’ on PBS**\
-`She succeeds Robert Costa at a program best known as the longtime home of the anchor Gwen Ifill.`\
-https://nytimes.com/2021/05/04/business/media/yamiche-alcindor-washington-week-pbs.html?searchResultPosition=4
+**Mr. Beast, YouTube Star, Wants to Take Over the Business World**\
+`Jimmy Donaldson, 22, is out to become the Elon Musk of online creators.`\
+https://nytimes.com/2021/05/04/technology/mr-beast-youtube.html?searchResultPosition=4
 
-**Forging Friendships**\
-`Tell us about your best friends — and why they hold that place in your life.`\
-https://nytimes.com/2021/05/04/learning/forging-friendships.html?searchResultPosition=5
+**Christopher Carter’s ‘Largest Sculpture’: His Home**\
+`The Miami-based artist, who works with salvaged materials, set out to create his biggest work ever. Now it’s the subject of an exhibition.`\
+https://nytimes.com/slideshow/2021/05/04/realestate/christopher-carters-largest-sculpture-his-home.html?searchResultPosition=5
 
-**Life and Death on the Lighthouse of the Mediterranean**\
-`Stromboli’s volcano is always active, always at the brink of devastating paroxysms. For those who visit the island as tourists or scientists, it is a spectacle like no other.`\
-https://nytimes.com/2021/05/04/science/stromboli-volcano-photos.html?searchResultPosition=6
+**8 Items for Your Home That Do More Than One Thing**\
+`The pandemic has redoubled the need for flexible furnishings.`\
+https://nytimes.com/2021/05/04/style/home-design-furniture.html?searchResultPosition=6
 
-**Word of the Day: vestige**\
-`This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/04/learning/word-of-the-day-vestige.html?searchResultPosition=7
+**Business Coalitions to Speak Out Against Voting Restrictions in Texas**\
+`Companies including Hewlett-Packard, Microsoft and Unilever are set to call for expanded voting access in the state after weeks of silence from national businesses on Republicans’ voting bills there.`\
+https://nytimes.com/2021/05/04/us/politics/microsoft-hp-patagonia-texas-voting-rights.html?searchResultPosition=7
 
-**Conan O’Brien Says No More Trump Jokes for Final Two Months on TBS**\
-`O’Brien said the last episodes of “Conan” will feature special guests and clips of his favorite moments on the show before he moves to HBO Max.`\
-https://nytimes.com/2021/05/04/arts/television/conan-obrien-to-leave-tbs.html?searchResultPosition=8
+**6 Design Books That Celebrate a World of Artifacts**\
+`New titles offer insight into some often-overlooked creators and creations in England, Austria, Japan and the United States.`\
+https://nytimes.com/2021/05/04/books/new-design-books.html?searchResultPosition=8
 
-**Where the Other Wild Things Are**\
-`Liniers’s “Wildflowers” feels like an older sister to Maurice Sendak’s work, maybe taking place on the next island over from Max’s rumpus.`\
-https://nytimes.com/2021/05/04/books/review/liniers-wildflowers.html?searchResultPosition=9
+**What Lies Beneath**\
+`In the pandemic, basements have offered up new territory for hobbies, work and even glamour.`\
+https://nytimes.com/2021/05/04/style/what-lies-beneath.html?searchResultPosition=9
 
-**What We Know About the Deadly Mexico City Train Crash**\
-`The accident occurred in the city’s southeast, killing more than 20 and injuring at least 70 others, the authorities said.`\
-https://nytimes.com/2021/05/04/world/americas/mexico-city-train-derailment.html?searchResultPosition=10
+**Why New York State’s Population Growth Surprised Experts**\
+`The details of how and where the census counts can make a big difference.`\
+https://nytimes.com/2021/05/04/upshot/census-new-york-surprise.html?searchResultPosition=10
 
