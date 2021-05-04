@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/04/sports/basketball/eric-collins-lamelo-ball-hornets.html?searchResultPosition=1
 
 **Wainwright and Cardinals Fight Through Deficit to Beat Mets**\
-`St. Louis has won five straight. The Ball Hall of Fame, meanwhile, announced that Roberto Alomar had resigned from its board.`\
+`After the loss, the Mets announced the firing of their hitting coaches. The Ball Hall of Fame, meanwhile, announced Roberto Alomar had resigned from its board.`\
 https://nytimes.com/2021/05/03/sports/baseball/mets-cardinals.html?searchResultPosition=2
 
 **Michael Jackson’s Estate Is Winner in Tax Judge’s Ruling**\
