@@ -1,5 +1,5 @@
 **On That Bombshell Billie Eilish Cover for British Vogue**\
-`The pop star known for defying gender stereotypes got a glamour makeover with corset. Not everyone is happy about it.`\
+`The pop star known for defying gender stereotypes got a glamour makeover with a corset. Not everyone is happy about it.`\
 https://nytimes.com/2021/05/04/style/billie-eilish-british-vogue.html?searchResultPosition=1
 
 **Your Wednesday Briefing**\
