@@ -2,7 +2,7 @@
 `The action comes about two weeks after President Biden announced that he was leaving the Trump administration’s limit of 15,000 refugees in place, prompting a swift backlash.`\
 https://nytimes.com/2021/05/03/us/politics/biden-refugee-limit.html?searchResultPosition=1
 
-**An armed man is wounded in an exchange with an F.B.I. agent outside the C.I.A.’s headquarters in Virginia.**\
+**An armed man was wounded in an exchange with an F.B.I. agent outside the C.I.A.’s headquarters in Virginia.**\
 `An F.B.I. statement said the man emerged from his vehicle, was wounded and was taken to a hospital.`\
 https://nytimes.com/2021/05/03/us/politics/shooting-cia-fbi.html?searchResultPosition=2
 
