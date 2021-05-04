@@ -19,7 +19,7 @@ https://nytimes.com/2021/05/04/world/middleeast/netanyahu-government-israel-elec
 https://nytimes.com/2021/05/04/sports/stony-brook-lacrosse.html?searchResultPosition=5
 
 **Years of Unheeded Warnings. Then the Subway Crash Mexico City Had Feared.**\
-`Mexico City’s subway system has been plagued with problems for years. On Monday, an overpass collapsed, and the newest subway line plunged some 50 feet, killing at least 24 people and setting off a political firestorm.`\
+`Mexico City’s subway system has been plagued with problems for years. On Monday, an overpass collapsed, and a train plunged some 50 feet, killing at least 24 people and setting off a political firestorm.`\
 https://nytimes.com/2021/05/04/world/americas/mexico-city-subway-accident.html?searchResultPosition=6
 
 **A New Testament to the Fury and Beauty of Activism During the AIDS Crisis**\
