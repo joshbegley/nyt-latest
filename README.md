@@ -1,5 +1,5 @@
 **India’s reported infections surge past 20 million, though the number is likely higher.**\
-`The Indian Premier League suspended its season after several teams reported infections. It had drawn intense criticism for going ahead with games in hard-hit cities.`\
+`The Indian Premier League suspended its cricket season after several teams reported infections. It had drawn intense criticism for going ahead with games in hard-hit cities.`\
 https://nytimes.com/2021/05/04/world/indian-premier-league-cricket.html?searchResultPosition=1
 
 **Biden’s Modest Tax Plan**\
