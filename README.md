@@ -35,6 +35,6 @@ https://nytimes.com/2021/05/04/arts/television/conan-obrien-to-leave-tbs.html?se
 https://nytimes.com/2021/05/04/books/review/liniers-wildflowers.html?searchResultPosition=9
 
 **What We Know About the Deadly Mexico City Train Crash**\
-`The accident occurred in the city’s southeast, killing at least 20 and injuring at least 70 others, the authorities said.`\
+`The accident occurred in the city’s southeast, killing more than 20 and injuring at least 70 others, the authorities said.`\
 https://nytimes.com/2021/05/04/world/americas/mexico-city-train-derailment.html?searchResultPosition=10
 
