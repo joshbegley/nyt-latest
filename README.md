@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/04/us/politics/biden-refugee-cap-border.html?searchR
 `John Cameron Denton, 27, and his co-conspirators, who targeted journalists, a cabinet secretary and a Black church, were fueled by racial animosity, federal prosecutors said.`\
 https://nytimes.com/2021/05/04/us/john-cameron-denton-atomwaffen-division.html?searchResultPosition=2
 
-**Crist Will Face DeSantis in Florida, With More Democrats Likely to Follow**\
+**Crist Enters Race to Face DeSantis, With More Democrats Likely to Follow**\
 `Charlie Crist has an extensive political history in Florida and is widely known throughout the state. But his candidacy is not likely to deter other Democrats like Val Demings and Nikki Fried.`\
 https://nytimes.com/2021/05/04/us/politics/charlie-crist-florida-governor-desantis.html?searchResultPosition=3
 
