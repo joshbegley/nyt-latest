@@ -1,4 +1,4 @@
-**Judge Rebukes Barr Justice Dept. as Misleading on Decision Not to Charge Trump**\
+**Judge Rebukes Barr’s Justice Dept. as Misleading on Decision Not to Charge Trump**\
 `Judge Amy Berman Jackson said in a ruling that the misleading statements were similar to others that William P. Barr, the former attorney general, had made about the Mueller investigation.`\
 https://nytimes.com/2021/05/04/us/politics/barr-trump-obstruction-russia-inquiry.html?searchResultPosition=1
 
