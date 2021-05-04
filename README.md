@@ -30,8 +30,8 @@ https://nytimes.com/2021/05/04/arts/television/conan-obrien-to-leave-tbs.html?se
 `Liniers’s “Wildflowers” feels like an older sister to Maurice Sendak’s work, maybe taking place on the next island over from Max’s rumpus.`\
 https://nytimes.com/2021/05/04/books/review/liniers-wildflowers.html?searchResultPosition=8
 
-**Mexico City Train Crashes After Overpass Collapses, Killing at Least 20**\
-`The accident occurred in the city’s southeast, injuring at least 70 others, the authorities said.`\
+**What We Know About the Deadly Mexico City Train Crash**\
+`The accident occurred in the city’s southeast, killing at least 20 and injuring at least 70 others, the authorities said.`\
 https://nytimes.com/2021/05/04/world/americas/mexico-city-train-derailment.html?searchResultPosition=9
 
 **Your Tuesday Briefing**\
