@@ -22,7 +22,7 @@ https://nytimes.com/2021/05/04/theater/pass-over-antoinette-chinonye-nwandu-broa
 `A researcher says women without the benefit of maternal support can be good mothers, too. Also: Renewable energy; Indigenous women; chip production.`\
 https://nytimes.com/2021/05/04/opinion/letters/mothers-parenting.html?searchResultPosition=6
 
-**Biden will announce a strategy change as the pace of vaccination slows.**\
+**Biden announces a strategy change as the pace of vaccination slows.**\
 `The goal is vaccinating 70 percent of American adults at least partially by July 4.`\
 https://nytimes.com/2021/05/04/us/biden-covid-vaccine-strategy.html?searchResultPosition=7
 
