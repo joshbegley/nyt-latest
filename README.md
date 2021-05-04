@@ -26,15 +26,15 @@ https://nytimes.com/2021/05/04/books/review/great-circle-by-maggie-shipstead-an-
 `Ms. Le Pen, head of the National Rally, posted graphic pictures in 2015 to protest comparisons between the terrorist group and her party.`\
 https://nytimes.com/2021/05/04/world/europe/france-marine-le-pen-acquitted-isis.html?searchResultPosition=7
 
+**Goldman Sachs plans to end remote work for most employees.**\
+`Most employees at the big banks have been working from home since the pandemic began last year, but Goldman’s plans signal that some executives are eager to attempt a return to office life.`\
+https://nytimes.com/2021/05/04/business/goldman-sachs-return-to-office.html?searchResultPosition=8
+
 **Transcript: Ezra Klein Interviews Anna Sale**\
 `The May 4 episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2021/05/04/podcasts/ezra-klein-podcast-anna-sale-transcript.html?searchResultPosition=8
+https://nytimes.com/2021/05/04/podcasts/ezra-klein-podcast-anna-sale-transcript.html?searchResultPosition=9
 
 **Amid a Rival’s Crisis, Kathryn Garcia Makes a Push**\
 `A sexual harassment allegation against Scott Stringer may open a lane in the New York City mayor’s race for Ms. Garcia, a former sanitation commissioner.`\
-https://nytimes.com/2021/05/04/nyregion/kathryn-garcia-mayor-nyc.html?searchResultPosition=9
-
-**Weekly News Quiz for Students: Biden Speech, Census Results, 'Disaster Girl'**\
-`Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2021/05/04/learning/04Student-News-Quiz.html?searchResultPosition=10
+https://nytimes.com/2021/05/04/nyregion/kathryn-garcia-mayor-nyc.html?searchResultPosition=10
 
