@@ -4,7 +4,7 @@ https://nytimes.com/2021/05/04/world/middleeast/israel-stampede-meron.html?searc
 
 **New York extends its eviction moratorium through August.**\
 `Residential and commercial tenants would be protected from evictions through August 31.`\
-https://nytimes.com/2021/05/04/nyregion/new-york-city-evictions-moratorium.html?searchResultPosition=2
+https://nytimes.com/2021/05/04/nyregion/new-york-city-eviction-moratorium.html?searchResultPosition=2
 
 **Frieze New York Returns Live, Bringing Hope and Precautions**\
 `Now a hybrid affair, booths at the Shed at Hudson Yards will be home to optimistic dealers and fresh art.`\
