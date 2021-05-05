@@ -1,6 +1,6 @@
 **Dogecoin continues its scarcely believable surge.**\
 `By Jason Karaian`\
-https://nytimes.com/2021/05/05/business/dogecoin-continues-its-scarcely-believable-surge.html?searchResultPosition=1
+https://nytimes.com/2021/05/05/business/dogecoin-crypto-price.html?searchResultPosition=1
 
 **U.K. Vote Is Likely to Back Boris Johnson, and an Independent Scotland**\
 `The prime minister’s Conservative Party stands to make gains at the polls on Thursday, despite ethical accusations against him. But growth in support for the Scottish Nationalist Party could create turmoil in the rest of his term.`\
