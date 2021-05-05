@@ -1,5 +1,5 @@
 **What the Extended Eviction Moratorium Means for New York**\
-`Hundreds of thousands of New Yorkers are still struggling to pay rent.`\
+`Hundreds of thousands of tenants are still struggling to pay rent.`\
 https://nytimes.com/2021/05/05/nyregion/eviction-moratorium-new-york.html?searchResultPosition=1
 
 **Hopewell Borough, N.J.: Historic Homes and Open Spaces**\
