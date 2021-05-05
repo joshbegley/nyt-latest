@@ -2,7 +2,7 @@
 `Judy Wang and Nina Nzekwe, winners of our 2020 Summer Reading Contest, show us how to respond to texts both personally and critically.`\
 https://nytimes.com/2021/05/05/learning/annotated-by-the-author-writing-reader-responses.html?searchResultPosition=1
 
-**Wide Angle Oddity: Giant Bidens Meet Tiny Carters**\
+**Wide-Angle Oddity: Giant Bidens Meet Tiny Carters**\
 `A picture of two presidents and first ladies led to many Hobbit jokes online. We explain what happened.`\
 https://nytimes.com/2021/05/05/us/politics/biden-carters-photo.html?searchResultPosition=2
 
