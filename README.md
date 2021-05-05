@@ -18,7 +18,7 @@ https://nytimes.com/2021/05/05/learning/word-of-the-day-wily.html?searchResultPo
 `An unequal global recovery.`\
 https://nytimes.com/2021/05/05/briefing/netanyahu-vaccines-mexico-subway.html?searchResultPosition=5
 
-**As the Virus Ravages Poorer Countries, Rich Nations Are Springing Back to Life**\
+**As Covid Ravages Poorer Countries, Rich Nations Spring Back to Life**\
 `Despite early vows, the developed world has done little to promote global vaccination, in what analysts call both a moral and epidemiological failure.`\
 https://nytimes.com/2021/05/05/world/europe/coronavirus-covax-vaccination.html?searchResultPosition=6
 
