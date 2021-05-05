@@ -22,7 +22,7 @@ https://nytimes.com/2021/05/05/world/middleeast/israel-election-yair-lapid.html?
 `The state says revenue from the new towers can finance the rebuilding of the rail terminal. But the pandemic has upended the need for office space.`\
 https://nytimes.com/2021/05/05/nyregion/penn-station-redevelopment.html?searchResultPosition=6
 
-**Peloton Recalls Treadmills After Safety Warnings**\
+**Peloton Recalls Treadmills After Injuries and a Child’s Death**\
 `The chief executive of Peloton said the company “made a mistake” by initially resisting a U.S. safety agency’s warning about the devices last month.`\
 https://nytimes.com/2021/05/05/business/peloton-recall-tread-plus.html?searchResultPosition=7
 
