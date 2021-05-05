@@ -1,6 +1,6 @@
 **Fry in a Shallow Pan**\
 `A trio of debut constructors dazzle.`\
-https://nytimes.com/2021/05/04/crosswords/daily-puzzle-05-05.html?searchResultPosition=1
+https://nytimes.com/2021/05/04/crosswords/daily-puzzle-2021-05-05.html?searchResultPosition=1
 
 **Sheldon Silver, Disgraced Assembly Speaker, Is Furloughed From Prison**\
 `The longtime Democratic leader was released to home confinement after less than a year of a six-and-a-half year sentence on corruption charges.`\
