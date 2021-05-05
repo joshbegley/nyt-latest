@@ -1,40 +1,40 @@
+**Trump Is a Problem Facebook’s Oversight Board Was Built Not to Solve**\
+`Wednesday's ruling throws the fate of the former president back to Mark Zuckerberg — exactly what he doesn't want.`\
+https://nytimes.com/2021/05/05/opinion/facebook-oversight-trump-jan-6.html?searchResultPosition=1
+
+**Stacey Abrams Contains Multitudes**\
+`Her obsessions with public policy and pop culture came together in the new Supreme Court thriller “While Justice Sleeps,” the first time she has used her own name on one of her novels.`\
+https://nytimes.com/2021/05/05/books/stacey-abrams-while-justice-sleeps.html?searchResultPosition=2
+
+**A ‘Right Stuff’ for Our Moment of Space Travel**\
+`In “Test Gods,” Nicholas Schmidle tells the story of Virgin Galactic’s space program, with a focus on the astronauts who are charting new frontiers.`\
+https://nytimes.com/2021/05/05/books/review/test-gods-nicholas-schmidle.html?searchResultPosition=3
+
+**The 17 Best Recipes Our Food Staff Cooked Last Month**\
+`In April, we felt inspired to try new recipes and to safely gather with family and friends over good food.`\
+https://nytimes.com/2021/05/05/dining/best-recipes-staff-cooked.html?searchResultPosition=4
+
 **Child’s Grave Is Earliest Known Burial Site in Africa**\
 `A child laid to rest in 78,000 years ago, yields clues to early human burials in East Africa.`\
-https://nytimes.com/2021/05/05/science/earliest-human-burial-africa.html?searchResultPosition=1
+https://nytimes.com/2021/05/05/science/earliest-human-burial-africa.html?searchResultPosition=5
 
 **‘Girls5Eva,’ ‘Rutherford Falls’ and the Nostalgia Trap**\
 `Peacock, the streaming platform, relies on must-see reminiscing in two shows that are also warnings about living in the past.`\
-https://nytimes.com/2021/05/05/arts/television/review-girls5eva-rutherford-falls.html?searchResultPosition=2
+https://nytimes.com/2021/05/05/arts/television/review-girls5eva-rutherford-falls.html?searchResultPosition=6
 
 **Lawmakers slam Facebook’s Oversight Board decision to uphold Trump ban.**\
 `“What’s to stop them from silencing you?” Senator Ted Cruz, Republican of Texas, replied on Twitter.`\
-https://nytimes.com/2021/05/05/technology/facebook-oversight-board-decision-reaction.html?searchResultPosition=3
+https://nytimes.com/2021/05/05/technology/facebook-oversight-board-decision-reaction.html?searchResultPosition=7
 
 **What Teen Vaccines Mean for School Reopenings**\
 `Adolescents could soon be eligible for Covid-19 vaccines, making full, in-person school even more likely.`\
-https://nytimes.com/2021/05/05/us/what-teen-vaccines-mean-for-school-reopenings.html?searchResultPosition=4
+https://nytimes.com/2021/05/05/us/what-teen-vaccines-mean-for-school-reopenings.html?searchResultPosition=8
 
 **Israeli President Taps the Opposition Leader Lapid to Form Government**\
 `Yair Lapid has four weeks to cobble together a coalition, after Prime Minister Benjamin Netanyahu failed in his attempt. But the process could end in another election.`\
-https://nytimes.com/2021/05/05/world/middleeast/israel-election-yair-lapid.html?searchResultPosition=5
+https://nytimes.com/2021/05/05/world/middleeast/israel-election-yair-lapid.html?searchResultPosition=9
 
 **To Save Penn Station, New York Wants to Build 10 Skyscrapers**\
 `The state says revenue from the new towers can finance the rebuilding of the rail terminal. But the pandemic has upended the need for office space.`\
-https://nytimes.com/2021/05/05/nyregion/penn-station-redevelopment.html?searchResultPosition=6
-
-**Peloton Recalls Treadmills After Injuries and a Child’s Death**\
-`The chief executive of Peloton said the company “made a mistake” by initially resisting a U.S. safety agency’s warning about the devices last month.`\
-https://nytimes.com/2021/05/05/business/peloton-recall-tread-plus.html?searchResultPosition=7
-
-**What if We Can’t Reach Herd Immunity?**\
-`Readers express frustration that those who refuse to get the vaccine are putting others at risk.`\
-https://nytimes.com/2021/05/05/opinion/letters/covid-herd-immunity.html?searchResultPosition=8
-
-**Emissions Cuts Could Halve the Impact of Melting Ice on Oceans**\
-`A new study said that limiting warming to 1.5 degrees Celsius could reduce sea level rise from melting ice sheets from about 10 inches to about five by 2100.`\
-https://nytimes.com/2021/05/05/climate/climate-change-sea-level-rise.html?searchResultPosition=9
-
-**Watch the Eta Aquariids Meteor Shower Peak in Night Skies**\
-`Meteor showers can light up night skies from dusk to dawn, and if you’re lucky you might be able to catch a glimpse.`\
-https://nytimes.com/2021/05/05/science/eta-aquarids-meteor-shower.html?searchResultPosition=10
+https://nytimes.com/2021/05/05/nyregion/penn-station-redevelopment.html?searchResultPosition=10
 
