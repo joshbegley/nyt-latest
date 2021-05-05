@@ -1,5 +1,5 @@
 **Dogecoin continues its scarcely believable surge.**\
-`By Jason Karaian`\
+`The cryptocurrency that started as a joke is up by roughly 14,000 percent this year.`\
 https://nytimes.com/2021/05/05/business/dogecoin-crypto-price.html?searchResultPosition=1
 
 **U.K. Vote Is Likely to Back Boris Johnson, and an Independent Scotland**\
