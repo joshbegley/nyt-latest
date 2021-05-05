@@ -1,5 +1,5 @@
 **House Republicans Have Had Enough of Liz Cheney’s Truth-Telling**\
-`Conservative lawmakers are plotting a fresh bid to dethrone Ms. Cheney from her leadership post. Her transgression: continued repudiation of Donald J. Trump and his false election claims.`\
+`G.O.P. House members are plotting a fresh bid to dethrone Ms. Cheney from her leadership post. Her transgression: continued repudiation of Donald J. Trump and his false election claims.`\
 https://nytimes.com/2021/05/04/us/politics/liz-cheney-trump-republicans.html?searchResultPosition=1
 
 **Examining the Math and Ethics of Covid-19 in Prisons**\
