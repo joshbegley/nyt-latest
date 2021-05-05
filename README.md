@@ -1,5 +1,5 @@
 **Facebook Oversight Board Upholds Social Network’s Ban of Trump**\
-`A company-appointed panel ruled that  the ban was justified at the time but added that the company should reassess the decision to make the ban “indefinite.”`\
+`A company-appointed panel ruled that the ban was justified at the time but added that the company should reassess the decision to make the ban “indefinite.”`\
 https://nytimes.com/2021/05/05/technology/facebook-trump-ban-upheld.html?searchResultPosition=1
 
 **Texas Lawyer Gets 15 Years for Scheme to Defraud Cocaine Traffickers**\
