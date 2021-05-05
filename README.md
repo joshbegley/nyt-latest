@@ -31,7 +31,7 @@ https://nytimes.com/2021/05/05/briefing/vaccine-patents-china-trade.html?searchR
 https://nytimes.com/2021/05/05/world/europe/Antony-blinken-ukraine-trip.html?searchResultPosition=8
 
 **Vaccinated 12- to 15-year-olds at U.S. camps will be able to remove masks outdoors, the C.D.C. director says.**\
-`The agency was criticized over its guidance last week that campers should wear masks except when eating, drinking, swimming or napping.`\
+`The agency was criticized over its guidance that campers should wear masks except when eating, drinking, swimming or napping.`\
 https://nytimes.com/2021/05/05/us/politics/cdc-vaccine-mask-outdoor-camp.html?searchResultPosition=9
 
 **Bidding Opens for a Seat on Blue Origin’s First Passenger Space Flight**\
