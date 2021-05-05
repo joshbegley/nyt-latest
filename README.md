@@ -26,7 +26,7 @@ https://nytimes.com/2021/05/05/arts/television/johnny-crawford-dead.html?searchR
 `The vaccine divide.`\
 https://nytimes.com/2021/05/05/briefing/vaccine-patents-china-trade.html?searchResultPosition=7
 
-**Blinken, on Ukraine Trip, Will Offer Support on Russia but also Pressure on Corruption**\
+**Blinken, on Ukraine Trip, Will Offer Support on Russia but Also Pressure on Corruption**\
 `The secretary of state will reassure Kyiv of backing against Russian hostilities, but call for more determined efforts to clean up the political system.`\
 https://nytimes.com/2021/05/05/world/europe/Antony-blinken-ukraine-trip.html?searchResultPosition=8
 
