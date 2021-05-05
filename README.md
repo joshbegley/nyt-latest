@@ -1,40 +1,40 @@
-**‘Climate Change Is Not a Subjective Thing.’ How Does the U.S. Approach to the Environment Look From Abroad?**\
-`We asked 10 people from around the world what they thought of America’s approach to the environment. It didn’t go well.`\
-https://nytimes.com/video/opinion/100000007674226/climate-change-recycling-america.html?searchResultPosition=1
+**Hopewell Borough, N.J.: Historic Homes and Open Spaces**\
+`Residents praise the Mercer County borough’s ‘idyllic feeling.’ It’s no surprise that the housing market is very competitive.`\
+https://nytimes.com/2021/05/05/realestate/hopewell-borough-nj-historic-homes-and-open-spaces.html?searchResultPosition=1
 
-**‘I Used to Like School’: An 11-Year-Old’s Struggle With Pandemic Learning**\
-`Without home internet, Jordyn Coleman has had trouble learning during the coronavirus pandemic. He may have to repeat fifth grade because of absences and poor results.`\
-https://nytimes.com/2021/05/05/us/remote-learning-education-pandemic.html?searchResultPosition=2
+**Living In ... Hopewell, N.J.**\
+`Residents praise the Mercer County borough’s ‘small-town charm’ and ‘idyllic feeling.’ It’s no surprise that the housing market is very competitive.`\
+https://nytimes.com/slideshow/2021/05/05/realestate/living-in-hopewell-nj.html?searchResultPosition=2
 
-**Lounging Around**\
-`What story does this image inspire for you?`\
-https://nytimes.com/2021/05/05/learning/lounging-around.html?searchResultPosition=3
+**5 Minutes That Will Make You Love Choral Music**\
+`Listen to the gorgeous sound of a mass of voices: ancient, contemporary, gospel, opera, sacred, romantic.`\
+https://nytimes.com/2021/05/05/arts/music/five-minutes-classical-music-choral.html?searchResultPosition=3
 
-**Late Night Has a New Contender for Weirdest Presidential Photo Ever**\
-`The Bidens visited the Carters the other day, and Jimmy Fallon, Seth Meyers and Trevor Noah are still trying to get their minds around the result.`\
-https://nytimes.com/2021/05/05/arts/television/late-night-biden-carter-photo.html?searchResultPosition=4
+**Constitutional Challenges Loom Over Proposed Voting Bill**\
+`The sprawling legislation, known as H.R. 1, could result in lawsuits leading to a dozen Supreme Court cases, legal experts said.`\
+https://nytimes.com/2021/05/05/us/voting-rights-bill-legal.html?searchResultPosition=4
 
-**Word of the Day: wily**\
-`This word has appeared in 59 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/05/learning/word-of-the-day-wily.html?searchResultPosition=5
+**Can the Biden Agenda Fix Middle America’s Deepest Problem?**\
+`One key economic goal is to create the virtuous cycles of innovation and jobs that already occur in many coastal cities.`\
+https://nytimes.com/2021/05/05/upshot/biden-agenda-middle-america.html?searchResultPosition=5
 
-**Your Wednesday Briefing**\
-`An unequal global recovery.`\
-https://nytimes.com/2021/05/05/briefing/netanyahu-vaccines-mexico-subway.html?searchResultPosition=6
+**The Dream: International Travel. The Reality: Chaos and Confusion.**\
+`The world beckons, especially for those who have been vaccinated, but would-be travelers face a difficult moment when travel possibilities are at odds with the facts of a still reeling world.`\
+https://nytimes.com/2021/05/05/travel/covid-vaccinated-travel-reality.html?searchResultPosition=6
 
-**As Covid Ravages Poorer Countries, Rich Nations Spring Back to Life**\
-`Despite early vows, the developed world has done little to promote global vaccination, in what analysts call both a moral and epidemiological failure.`\
-https://nytimes.com/2021/05/05/world/europe/coronavirus-covax-vaccination.html?searchResultPosition=7
+**Will Nayib Bukele Be Latin America’s Next Strongman?**\
+`Nayib Bukele’s style is a stress test for his country’s democracy and raises challenges about how the Biden administration should engage with him — but his success shines light on  past failures to stop gang violence.`\
+https://nytimes.com/2021/05/05/opinion/international-world/nayib-bukele-el-salvador-biden.html?searchResultPosition=7
 
-**France Battles Over Whether to Cancel or Celebrate Napoleon**\
-`President Emmanuel Macron will lay a wreath on the emperor’s tomb on the 200th anniversary of his death, stepping into a national debate over the legacy of Napoleon.`\
-https://nytimes.com/2021/05/05/world/europe/france-napoleon-macron.html?searchResultPosition=8
+**‘There Was a Big Battle in Here’: Lawyers Tour Capitol as a Crime Scene**\
+`Defense lawyers representing suspects in the riot are being given tours of the Capitol to help them visualize what took place on Jan. 6.`\
+https://nytimes.com/2021/05/05/us/politics/capitol-riot-tour.html?searchResultPosition=8
 
-**The Art in the Oval Office Tells a Story. Here’s How to See It.**\
-`What if the paintings and sculptures in the Oval Office could talk? What if they already are?`\
-https://nytimes.com/interactive/2021/05/05/arts/design/oval-office-art.html?searchResultPosition=9
+**Why Democratic Departures From the House Have Republicans Salivating**\
+`A growing number of Democrats in battleground districts are retiring or leaving to seek higher office, imperiling the party’s slim House majority and President Biden’s expansive agenda.`\
+https://nytimes.com/2021/05/05/us/politics/democrats-house-retirements.html?searchResultPosition=9
 
-**The N.B.A.’s Play-In Tournament Isn’t the Problem**\
-`Though stars like LeBron James and Luka Doncic have complained about the pre-playoff hurdle, the stress of the play-in matters less than injuries and the compressed season.`\
-https://nytimes.com/2021/05/05/sports/basketball/nba-play-in-tournament-lebron-james.html?searchResultPosition=10
+**How One Graphic Novel Looks at Anti-Asian Hate**\
+`In “Cyclopedia Exotica,” the artist and writer Aminder Dhaliwal created a fictitious community facing xenophobia, fetishization and media misrepresentation. It’s resonating with her thousands of Instagram followers.`\
+https://nytimes.com/2021/05/05/books/aminder-dhaliwal-cyclopedia-exotica.html?searchResultPosition=10
 
