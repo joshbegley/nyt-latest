@@ -16,7 +16,7 @@ https://nytimes.com/2021/05/06/fashion/the-designers-who-are-making-knitwear-coo
 
 **Facebook’s ‘Supreme Court’ Tells Zuckerberg He’s the Decider**\
 `The company tried to punt its Trump dilemma to a panel of experts. On Wednesday, the experts punted back.`\
-https://nytimes.com/2021/05/06/technology/facebooks-supreme-court-tells-zuckerberg-hes-the-decider.html?searchResultPosition=5
+https://nytimes.com/2021/05/06/technology/facebook-oversight-board-trump.html?searchResultPosition=5
 
 **Word of the Day: benefactor**\
 `This word has appeared in 68 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
