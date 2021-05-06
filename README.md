@@ -18,8 +18,8 @@ https://nytimes.com/2021/05/05/us/politics/tenant-moratorium-ruling.html?searchR
 `“We’re not going to deprive any of these executives of their second or third home, travel privately by jet,” the president said at the White House.`\
 https://nytimes.com/2021/05/05/business/biden-tax-increases-wealthy.html?searchResultPosition=5
 
-**Rangers Fire President and General Manager**\
-`The president, John Davidson, was in only his second season in the role. The team was eliminated from playoff contention this week.`\
+**Rangers in Turmoil: On-Ice Brawls Follow Front Office Firings**\
+`President John Davidson and General Manager Jeff Gorton lost their jobs, and then the team started settling scores with the Washington Capitals two days after Tom Wilson attacked two Rangers forwards.`\
 https://nytimes.com/2021/05/05/sports/hockey/rangers-fire-john-davidson-jeff-gorton.html?searchResultPosition=6
 
 **William T. Wiley, ‘Funk Artist’ Who Spurned Convention, Dies at 83**\
