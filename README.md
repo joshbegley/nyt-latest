@@ -7,7 +7,7 @@ https://nytimes.com/video/us/politics/100000007749010/antony-blinken-ukraine-rus
 https://nytimes.com/2021/05/06/us/coronavirus-inmates-parole.html?searchResultPosition=2
 
 **F.E.C. Asks Congress to Ban Prechecked Recurring Donation Boxes**\
-`The recommendation came a month after a Times investigation showed that Donald Trump’s political operation had steered many unwitting supporters into repeated donations through the tactic.`\
+`The recommendation by the election commission came a month after a Times investigation showed that Donald J. Trump’s political operation had steered many unwitting supporters into repeated donations through the tactic.`\
 https://nytimes.com/2021/05/06/us/politics/fec-trump-donations.html?searchResultPosition=3
 
 **Watch Live: S.E.C. Chair Testifies on Meme Stocks and Market Structure**\
