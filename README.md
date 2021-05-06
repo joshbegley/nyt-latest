@@ -31,7 +31,7 @@ https://nytimes.com/2021/05/06/opinion/us-inflation-federal-reserve.html?searchR
 https://nytimes.com/interactive/2021/05/06/dining/mothers-day-dinners.html?searchResultPosition=8
 
 **S.E.C. Chair Gensler Emphasizes Transparency in Markets**\
-`In a hearing focused on the frenzied trading of GameStop stock, the new S.E.C. chairman suggests more disclosure is needed`\
+`In a hearing focused on the frenzied trading of GameStop stock, the new S.E.C. chairman suggests more disclosure is needed.`\
 https://nytimes.com/2021/05/06/business/gary-gensler-priorities-gamestop.html?searchResultPosition=9
 
 **Sheldon Silver, Disgraced Assembly Speaker, Is Sent Back to Prison**\
