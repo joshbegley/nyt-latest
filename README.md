@@ -32,7 +32,7 @@ https://nytimes.com/2021/05/06/arts/music/girl-in-red-chloe-moriondo-review.html
 
 **On Governors Island, Art Interventions Are Everywhere**\
 `NADA House hosts 66 galleries, nonprofits and artist-run spaces arrayed in and around stately officers’ residences. Expect the refreshingly unfamiliar.`\
-https://nytimes.com/2021/05/06/arts/design/on-governors-island-art-interventions-are-everywhere.html?searchResultPosition=9
+https://nytimes.com/2021/05/06/arts/design/nada-house-2021-governors-island.html?searchResultPosition=9
 
 **Somalia Moves to Defuse Tensions Both at Home and Abroad**\
 `The Somali leader dropped his divisive bid to extend his term, and the country also moved to mend fences with its neighbor Kenya, restoring diplomatic relations.`\
