@@ -1,5 +1,5 @@
 **Stanton Continues to Surge, Leading Yankees Past Astros**\
-`A fifth straight win has the team on a hot streak and two games above .500 for the first time this season.`\
+`A fifth straight win has the team on a hot streak. The Mets split a doubleheader with St. Louis.`\
 https://nytimes.com/2021/05/05/sports/baseball/yankees-mets.html?searchResultPosition=1
 
 **With No-Hitter, John Means Opens Up a World of Possibilities**\
