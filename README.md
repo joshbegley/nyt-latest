@@ -1,5 +1,5 @@
-**U.K. Sends Ships to Island After French Fishing Crews Threaten Blockade**\
-`Britain dispatched two naval vessels to one of the Channel Islands, Jersey, in a tense dispute over post-Brexit fishing rights in the waters nearby.`\
+**U.K. and France Send Naval Ships to Channel Island in Tense Fishing Dispute**\
+`French fishing crews are threatening to blockade a port on the island of Jersey in a standoff over post-Brexit fishing rights in the waters nearby.`\
 https://nytimes.com/2021/05/06/world/europe/uk-france-jersey-fishing.html?searchResultPosition=1
 
 **Facebook Ducks the Big Issue**\
