@@ -1,6 +1,6 @@
 **Taking ‘Extraordinary Measures,’ Biden Backs Suspending Patents on Vaccines**\
 `The Biden administration, siding with some world leaders over the U.S. pharmaceutical industry, came out in favor of waiving intellectual property protections for coronavirus vaccines.`\
-https://nytimes.com/2021/05/05/us/politics/biden-vaccines-patents.html?searchResultPosition=1
+https://nytimes.com/2021/05/05/us/politics/biden-covid-vaccine-patents.html?searchResultPosition=1
 
 **SpaceX Successfully Lands Starship Prototype**\
 `The SN15 Starship prototype touched down in one piece after a brief test flight over Texas on Wednesday. Several previous landings had ended in fiery explosions.`\
