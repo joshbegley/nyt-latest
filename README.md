@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/05/crosswords/daily-puzzle-05-06.html?searchResultPo
 `Doing the right thing now doesn't erase your past.`\
 https://nytimes.com/2021/05/05/opinion/liz-cheney-republicans.html?searchResultPosition=3
 
-**Republicans Move to Oust Cheney, Elevating a Trump Loyalist Instead**\
+**In Turning on Liz Cheney, G.O.P. Bows to Trump’s Election Lies**\
 `House Republicans were lobbying to replace Representative Liz Cheney, who has vocally called out Donald J. Trump’s lies, with Representative Elise Stefanik, who has embraced them.`\
 https://nytimes.com/2021/05/05/us/politics/liz-cheney-elise-stefanik.html?searchResultPosition=4
 
