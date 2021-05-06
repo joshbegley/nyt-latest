@@ -2,7 +2,7 @@
 `New York officials announced a new program on Thursday that would employ artists and performers to create public works throughout the city, in an effort to support artists whose incomes plummeted during the pandemic.`\
 https://nytimes.com/video/nyregion/100000007748930/new-york-city-artists-pay-coronavirus.html?searchResultPosition=1
 
-**Germany will allow anyone older than 18 to get the AstraZeneca vaccine.**\
+**Germany will allow anyone 18 and older to get the AstraZeneca vaccine.**\
 `The government is also recommending that doctors be allowed to give a second dose before the recommended 12 weeks in order to speed up vaccinations.`\
 https://nytimes.com/2021/05/06/world/germany-astrazeneca.html?searchResultPosition=2
 
