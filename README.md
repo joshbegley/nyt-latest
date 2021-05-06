@@ -35,6 +35,6 @@ https://nytimes.com/2021/05/06/style/parents-moving-in-pandemic-social-qs.html?s
 https://nytimes.com/interactive/2021/05/06/obituaries/mothers-day.html?searchResultPosition=9
 
 **DeSantis shuts out reporters as he signs voting restrictions into Florida law.**\
-`The law will make it more difficult for people to vote by mail and use popular ballot drop boxes.`\
+`By Patricia Mazzei and Glenn Thrush`\
 https://nytimes.com/2021/05/06/us/politics/desantis-florida-voting-law.html?searchResultPosition=10
 
