@@ -26,8 +26,8 @@ https://nytimes.com/2021/05/05/us/politics/eviction-moratorium-biden.html?search
 `“We’re not going to deprive any of these executives of their second or third home, travel privately by jet,” the president said at the White House.`\
 https://nytimes.com/2021/05/05/business/biden-tax-increases-wealthy.html?searchResultPosition=7
 
-**Rangers in Turmoil: On-Ice Brawls Follow Front Office Firings**\
-`President John Davidson and General Manager Jeff Gorton lost their jobs, and then the team started settling scores with the Washington Capitals two days after Tom Wilson attacked two Rangers forwards.`\
+**Rangers in Turmoil: Brawls on the Ice Follow Front Office Firings**\
+`President John Davidson and General Manager Jeff Gorton lost their jobs, and then the team started settling scores with the Washington Capitals two days after Tom Wilson attacked two Rangers.`\
 https://nytimes.com/2021/05/05/sports/hockey/rangers-fire-john-davidson-jeff-gorton.html?searchResultPosition=8
 
 **William T. Wiley, ‘Funk Artist’ Who Spurned Convention, Dies at 83**\
