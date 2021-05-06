@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/06/business/economy/meme-stocks-and-archegos-fed-cal
 
 **Brazil Police Raid in Rio de Janeiro Leaves at Least 25 Dead**\
 `In a state, and a country, where the police kill often and with impunity, the death toll from the operation may be one for the record books.`\
-https://nytimes.com/2021/05/06/world/americas/rio-police-brazil-deaths.html?searchResultPosition=3
+https://nytimes.com/2021/05/06/world/americas/brazil-rio-police-shootout.html?searchResultPosition=3
 
 **Bob Abernethy, Longtime Host of PBS Show on Religion, Dies at 93**\
 `He conceived and produced “Religion & Ethics NewsWeekly” and was its face for 20 years, after four decades as an NBC News correspondent.`\
