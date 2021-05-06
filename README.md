@@ -1,40 +1,40 @@
-**A Simple Exercise For Encouraging Independent Reading**\
-`Four teachers across the U.S. challenged their students to choose two Times pieces — one on a topic within their comfort zone, another on a topic outside it — and read both. It was a success everywhere.`\
-https://nytimes.com/2021/05/06/learning/a-simple-exercise-for-encouraging-independent-reading.html?searchResultPosition=1
+**‘The Columnist’ Review: Confessions of a Female Troll Hunter**\
+`A writer slaughters her online nemeses in this low-stakes serial killer movie from the Netherlands.`\
+https://nytimes.com/2021/05/06/movies/the-columnist-review.html?searchResultPosition=1
 
-**How Often Do You Read, Watch or Listen to Things Outside of Your Comfort Zone?**\
-`We challenge you to find two pieces in The Times — one on a topic that already interests you, and one on a topic that’s new — and tell us what happens when you read both.`\
-https://nytimes.com/2021/05/06/learning/how-often-do-you-read-watch-or-listen-to-things-outside-of-your-comfort-zone.html?searchResultPosition=2
+**‘Paper Spiders’ Review: Maternal Melodramatics**\
+`Lili Taylor plays a mother who spirals into madness in this unfortunately bland melodrama.`\
+https://nytimes.com/2021/05/06/movies/paper-spiders-review-maternal-melodramatics.html?searchResultPosition=2
 
-**U.K. and France Send Naval Ships to Channel Island in Tense Fishing Dispute**\
-`French fishing crews are threatening to blockade a port on the island of Jersey in a standoff over post-Brexit fishing rights in the waters nearby.`\
-https://nytimes.com/2021/05/06/world/europe/uk-france-jersey-fishing.html?searchResultPosition=3
+**‘Silo’ Review: When Life on a Farm Is Far From Wholesome**\
+`A mainstay of American agriculture, corn can become a suffocating trap when a human comes up against tons of it in a vertical storage bin.`\
+https://nytimes.com/2021/05/06/movies/silo-review-when-life-on-a-farm-is-far-from-wholesome.html?searchResultPosition=3
 
-**Facebook Ducks the Big Issue**\
-`We explain Facebook’s decision to extend Trump’s suspension — and why he may soon be back.`\
-https://nytimes.com/2021/05/06/briefing/facebook-suspension-trump-mark-zuckerberg.html?searchResultPosition=4
+**‘In Our Mothers’ Gardens’ Review: Creating Space for Black Women**\
+`The Netflix documentary sets out to show how maternal lineages have shaped generations of Black women.`\
+https://nytimes.com/2021/05/06/movies/in-our-mothers-gardens-review.html?searchResultPosition=4
 
-**Cars From Fridges and Boats: Making Autos Out of Scrap**\
-`These tinkerers make the most of castoff materials to build an array of wild and impressive cars.`\
-https://nytimes.com/2021/05/06/business/scrap-cars.html?searchResultPosition=5
+**‘The Paper Tigers’ Review: Reliving the Glory Days**\
+`A trio of aging martial artists reunite in this fresh, if uneven, debut by the director Tran Quoc Bao.`\
+https://nytimes.com/2021/05/06/movies/the-paper-tigers-review.html?searchResultPosition=5
 
-**A Major Ruling From Facebook’s ‘Supreme Court’**\
-`What does the decision about the barring of former President Donald Trump tell us about the platform’s oversight board?`\
-https://nytimes.com/2021/05/06/podcasts/the-daily/facebook-donald-trump-ban.html?searchResultPosition=6
+**‘Queen Marie’ Review: Border Talks**\
+`Alexis Sweet Cahill’s biopic about the Romanian queen is weighed down by stodgy exposition.`\
+https://nytimes.com/2021/05/06/movies/queen-marie-review.html?searchResultPosition=6
 
-**Online or In-Person? Soon, British Theatergoers Can Decide**\
-`Live theater is set to return in England starting May 17, but many online offerings will remain.`\
-https://nytimes.com/2021/05/06/theater/live-theater-returns-britain.html?searchResultPosition=7
+**‘Citizen Penn’ Review: A Portrait of Sean Penn as an Advocate**\
+`The documentary follows the actor’s work helping Haiti, starting in 2011.`\
+https://nytimes.com/2021/05/06/movies/citizen-penn-review-a-portrait-of-sean-penn-as-an-advocate.html?searchResultPosition=7
 
-**Vaccination Rate Lags in N.Y.C. as Disparities Persist**\
-`The number of daily doses administered has fallen from more than 100,000 on some days in April to below 40,000 on some days this month.`\
-https://nytimes.com/2021/05/06/nyregion/coronavirus-nyc-vaccines.html?searchResultPosition=8
+**‘The Boy From Medellín’ Review: A Dizzying Week in J Balvin’s World**\
+`A documentary about the reggaeton star from Colombia is a relatively sophisticated form of celebrity publicity.`\
+https://nytimes.com/2021/05/06/movies/the-boy-from-medellin-review.html?searchResultPosition=8
 
-**See Fewer People. Take Fewer Showers.**\
-`Some people said they started bathing less during the pandemic. As long as no one complains, they say they plan to keep the new habit.`\
-https://nytimes.com/2021/05/06/health/shower-bathing-pandemic.html?searchResultPosition=9
+**‘Pink Skies Ahead’ Review: Partying Through Anxiety**\
+`Kelly Oxford’s ’90s-set coming-of-age story follows a college dropout as she navigates a new romance and a new medical diagnosis.`\
+https://nytimes.com/2021/05/06/movies/pink-skies-ahead-review.html?searchResultPosition=9
 
-**The Birthrate Is Dropping. Tell Us: Do You Want Children? And if Not, Why?**\
-`If you are in your 20s, 30s or 40s, we want to hear your thoughts on becoming a parent.`\
-https://nytimes.com/2021/05/06/podcasts/us-census-birthrate.html?searchResultPosition=10
+**‘The Water Man’ Review: Oyelowo Directs With a Touch of Magic**\
+`As a newly transplanted family tries to adjust to the countryside, the son is desperately pulling strings to cure his seriously ill mother.`\
+https://nytimes.com/2021/05/06/movies/water-man-review-david-oyelowo.html?searchResultPosition=10
 
