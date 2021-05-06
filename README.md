@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/05/us/asian-attack-san-francisco.html?searchResultPo
 
 **Federal Judge Strikes Down Moratorium on Evicting Renters**\
 `The Biden administration will appeal the ruling against the policy, which has been the subject of legal challenges by landlords.`\
-https://nytimes.com/2021/05/05/us/politics/tenant-moratorium-ruling.html?searchResultPosition=6
+https://nytimes.com/2021/05/05/us/politics/eviction-moratorium-biden.html?searchResultPosition=6
 
 **Biden Leans Into Plans to Tax the Rich**\
 `“We’re not going to deprive any of these executives of their second or third home, travel privately by jet,” the president said at the White House.`\
