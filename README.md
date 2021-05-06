@@ -7,7 +7,7 @@ https://nytimes.com/2021/05/06/movies/wrath-of-man-review.html?searchResultPosit
 https://nytimes.com/2021/05/06/opinion/office-hybrid-work.html?searchResultPosition=2
 
 **Biden Aides Quietly Say His Tax Increases Would Help Charities**\
-`The administration has been making the case to allies that to avoid paying the additional taxes the president has proposed, wealthy Americans would give more to nonprofits`\
+`The administration has been making the case to allies that to avoid paying the additional taxes the president has proposed, wealthy Americans would give more to nonprofits.`\
 https://nytimes.com/2021/05/06/business/biden-tax-increases.html?searchResultPosition=3
 
 **Nuclear Talks With Iran Could Reach Agreement Within Weeks, U.S. Says**\
