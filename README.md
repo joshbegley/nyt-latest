@@ -30,11 +30,11 @@ https://nytimes.com/slideshow/2021/05/06/realestate/on-the-market-in-the-new-yor
 `This week’s properties are in Red Hook, NoHo and Long Island City.`\
 https://nytimes.com/slideshow/2021/05/06/realestate/on-the-market-in-new-york-city.html?searchResultPosition=8
 
+**isMichelin Announces Stars for New York Restaurants**\
+`The French producer of guides announced the awards, with a few additions and no subtractions.`\
+https://nytimes.com/2021/05/06/dining/michelin-stars-new-york.html?searchResultPosition=9
+
 **The T List: Five Things We Recommend This Week**\
 `Parker Kit Hill’s beauty routine, James Barnor’s first major retrospective — and more.`\
-https://nytimes.com/2021/05/06/t-magazine/parker-kit-hill-beauty.html?searchResultPosition=9
-
-**Michelin Announces Stars for New York Restaurants**\
-`The French producer of guides announced the awards, with a few additions and no subtractions.`\
-https://nytimes.com/2021/05/06/dining/michelin-stars-new-york.html?searchResultPosition=10
+https://nytimes.com/2021/05/06/t-magazine/parker-kit-hill-beauty.html?searchResultPosition=10
 
