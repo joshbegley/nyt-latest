@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/07/arts/design/chakaia-booker-art.html?searchResultP
 `Services like Spotify and Apple Music pulled the business back from the brink. But artists say they can’t make a living. And their complaints are getting louder.`\
 https://nytimes.com/2021/05/07/arts/music/streaming-music-payments.html?searchResultPosition=3
 
-**Can Songwriting Survive Streaming? Abba’s Bjorn Ulvaeus Is Worried.**\
+**Will Songwriting Survive Streaming? Abba’s Bjorn Ulvaeus Is Worried.**\
 `One of pop’s most successful songwriters on fighting for the value of his craft, and on the young talents he admires most.`\
 https://nytimes.com/2021/05/07/arts/music/abba-bjorn-ulvaeus-songwriting-streaming.html?searchResultPosition=4
 
