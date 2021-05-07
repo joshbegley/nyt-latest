@@ -15,7 +15,7 @@ https://nytimes.com/2021/05/06/todayspaper/quotation-of-the-day-junta-restores-r
 https://nytimes.com/2021/05/06/crosswords/daily-puzzle-2021-05-07.html?searchResultPosition=4
 
 **Keisha Lance Bottoms Won’t Seek Second Term as Atlanta Mayor**\
-`Ms. Bottoms, who was mentioned briefly as a potential running mate with President Biden, is the latest mayor to move on after a year of pandemic challenges and social justice protests.`\
+`Ms. Bottoms, who was mentioned briefly as a potential running mate for President Biden, is the latest mayor to move on after a year of pandemic challenges and racial justice protests.`\
 https://nytimes.com/2021/05/06/us/keisha-lance-bottoms-atlanta-mayor.html?searchResultPosition=5
 
 **Taijuan Walker Is Dominant in Win Over Cardinals**\
