@@ -1,40 +1,40 @@
-**Japan extends emergency measures, further imperiling the Olympics.**\
-`The expanded restrictions come 11 weeks before the scheduled start of Tokyo’s Summer Games, as a fourth wave of coronavirus infections continues.`\
-https://nytimes.com/2021/05/07/world/asia/japan-covid-emergency-olympics.html?searchResultPosition=1
+**Old Buildings, New Views**\
+`Recent renovations around town have uncovered views of Manhattan that had been hiding in plain sight.`\
+https://nytimes.com/2021/05/07/realestate/old-buildings-new-views.html?searchResultPosition=1
 
-**A Heavy in the Insect World Makes a Rare Appearance**\
-`A giant wood moth, the heaviest of all known moths, appeared on the side of a school building in Queensland, Australia, enthralling students who are used to diverse wildlife.`\
-https://nytimes.com/2021/05/07/world/australia/giant-moth-australia.html?searchResultPosition=2
+**New Views of Old Manhattan**\
+`Some recent construction has opened up sightlines that did not previously exist.`\
+https://nytimes.com/slideshow/2021/05/07/realestate/new-views-of-old-manhattan.html?searchResultPosition=2
 
-**Jobs report for April is expected to show another big gain.**\
-`Vaccinations, declining Covid-19 infection rates and an easing of business restrictions are helping the labor market to heal.`\
-https://nytimes.com/2021/05/07/business/economy/jobs-report-april-2021.html?searchResultPosition=3
+**From the Wastewater Drain, Solid Pandemic Data**\
+`The coronavirus could turn sewage surveillance into a mainstream public health practice.`\
+https://nytimes.com/2021/05/07/health/coronavirus-testing-wastewater-sewage.html?searchResultPosition=3
 
-**Here We Go Again: Another Covid Case Brings More Uncertainty**\
-`These outbreaks should be getting less significant as more Australians get vaccinated. But that has been a slow, ungainly process.`\
-https://nytimes.com/2021/05/07/world/australia/covid-uncertainty-travel.html?searchResultPosition=4
+**‘Belonging Is Stronger Than Facts’: The Age of Misinformation**\
+`Social and psychological forces are combining to make the sharing and believing of misinformation an endemic problem with no easy solution.`\
+https://nytimes.com/2021/05/07/world/asia/why-misinformation-spreads.html?searchResultPosition=4
 
-**Lesson of the Day: ‘France Battles Over Whether to Cancel or Celebrate Napoleon’**\
-`In this lesson, students will learn about the legacy of the former French emperor and debate to what extent he should be commemorated or criticized.`\
-https://nytimes.com/2021/05/07/learning/lesson-of-the-day-france-battles-over-whether-to-cancel-or-celebrate-napoleon.html?searchResultPosition=5
+**The Tailor, the Florist, the Violin Maker: Improvising to Survive**\
+`Shops in Hamburg, Germany, have been pushed to the brink by lockdowns and curfews in the pandemic and the uncertainty of when a return to something like normal may happen.`\
+https://nytimes.com/2021/05/07/business/coronavirus-hamburg-germany-small-businesses.html?searchResultPosition=5
 
-**Health Advocate or Big Brother? Companies Weigh Requiring Vaccines.**\
-`It is a delicate decision balancing employee health and personal privacy. Some companies are sidestepping the issue by offering incentives to those who get shots.`\
-https://nytimes.com/2021/05/07/business/companies-employees-vaccine-requirements.html?searchResultPosition=6
+**Sandra Bernhard Talks to Her Neighborhood Trees**\
+`And how Thelma Golden and Isaac Mizrahi have stayed sane and creative during the pandemic.`\
+https://nytimes.com/2021/05/07/style/sandra-bernhard-talks-to-her-neighborhood-trees.html?searchResultPosition=6
 
-**Russian Spy Team Left Traces That Bolstered C.I.A.’s Bounty Judgment**\
-`But the U.S. lacked “evidence that the Kremlin directed this operation,” newly declassified information about the Russian team showed.`\
-https://nytimes.com/2021/05/07/us/politics/russian-bounties-nsc.html?searchResultPosition=7
+**Virginia G.O.P.’s Choices for Governor: ‘Trumpy, Trumpier, Trumpiest’**\
+`As the party prepares to pick its nominee this weekend, the race embodies the collapse of Republican power in a state that has tilted more sharply to Democrats than perhaps any other.`\
+https://nytimes.com/2021/05/07/us/politics/virginia-republican-governor-convention.html?searchResultPosition=7
 
-**After a Decade Without Executions, South Carolina’s Solution: Bring Out the Firing Squad**\
-`State lawmakers have voted to add the firing squad as an alternative to the electric chair or lethal injection, with the drugs used for capital punishment in short supply.`\
-https://nytimes.com/2021/05/07/us/firing-squad-south-carolina.html?searchResultPosition=8
+**G.O.P. Focuses on Polarizing Cultural Issues in Drive to Regain Power**\
+`As Democrats prepare to run on an ambitious economic agenda, Republicans are working to caricature them as liberal extremists out of touch with voters’ values.`\
+https://nytimes.com/2021/05/07/us/politics/republicans-culture-war.html?searchResultPosition=8
 
-**Flaming Phone**\
-`What do you think this GIF is saying?`\
-https://nytimes.com/2021/05/07/learning/flaming-phone.html?searchResultPosition=9
+**Meet the Other Social Influencers of the Animal Kingdom**\
+`Culture, once considered exclusive to humans, turns out to be widespread in nature.`\
+https://nytimes.com/2021/05/07/science/animals-chimps-whales-culture.html?searchResultPosition=9
 
-**Seth Meyers Doesn’t Want to Have to Support Liz Cheney**\
-`Meyers made a “M*A*S*H” reference about the Republican who denounces Donald Trump: “I feel like B.J. Hunnicutt speaking up in support of Charles Winchester.”`\
-https://nytimes.com/2021/05/07/arts/television/seth-meyers-liz-cheney.html?searchResultPosition=10
+**Ewan McGregor: Dahling, He’s Halston!**\
+`For a new Netflix series, the actor dropped his lightsaber and picked up the cigarettes and scissors.`\
+https://nytimes.com/2021/05/07/style/ewan-mcgregor-halston-netflix.html?searchResultPosition=10
 
