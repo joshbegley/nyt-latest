@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/07/sports/soccer/chelsea-man-city-wsl.html?searchResultPosition=1
 
 **White House sticks to its economic strategy as jobs report disappoints.**\
-`Biden administration officials say there is no evidence that hiring has been slowed by the additional $300 per week that unemployed Americans are currently eligible to receive.`\
+`Administration officials say there is no evidence that hiring has been slowed by the extra $300 per week that unemployed Americans are eligible to receive.`\
 https://nytimes.com/2021/05/07/business/biden-economy.html?searchResultPosition=2
 
 **Former Maldives President Is Critically Injured in Bombing**\
