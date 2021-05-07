@@ -1,6 +1,6 @@
 **Four former Minneapolis police officers are indicted on charges of violating George Floyd’s civil rights.**\
 `The charges are another extraordinary censuring of law enforcement officials, who rarely face criminal charges for using deadly force.`\
-https://nytimes.com/2021/05/07/us/four-former-minneapolis-police-officers-are-indicted-on-charges-of-violating-george-floyds-civil-rights.html?searchResultPosition=1
+https://nytimes.com/2021/05/07/us/chauvin-george-floyd-civil-rights.html?searchResultPosition=1
 
 **Krugman Wonks Out: Braking Bad? When the Fed Fights Inflation.**\
 `If you don’t think Janet Yellen was right, ask yourself why. `\
