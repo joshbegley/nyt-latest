@@ -4,7 +4,7 @@ https://nytimes.com/2021/05/07/us/ledell-lee-dna-testing-arkansas.html?searchRes
 
 **Get Your Kicks Out**\
 `With more people getting vaccinated and back into the swing of things, a little advice from a self-proclaimed “outfit architect”: Buy yourself a pair of nice sneakers.`\
-https://nytimes.com/2021/05/07/business/get-your-kicks-out.html?searchResultPosition=2
+https://nytimes.com/2021/05/07/business/sneaker-heads.html?searchResultPosition=2
 
 **April’s Biggest Closing Takes Place at 15 Central Park West**\
 `A duplex penthouse owned by Lindsay A. Rosenwald, a bio pharmaceuticals investor, sold for nearly $46.7 million after nearly three years on the market.`\
