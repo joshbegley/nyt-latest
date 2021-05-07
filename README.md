@@ -1,40 +1,40 @@
+**High Schools Are Posting Their College Lists. Don’t Be Misled.**\
+`The rosters showing where seniors are headed say little about the role that money and value played in their decisions.`\
+https://nytimes.com/2021/05/07/your-money/high-schools-college-lists.html?searchResultPosition=1
+
+**Liechtenstein Royal Is Accused in Bear Killing in Romania**\
+`The unauthorized killing of a bear called Arthur in the Carpathian Mountains has set off a wave of anger in Romania.`\
+https://nytimes.com/2021/05/07/world/europe/romania-bear-killed-liechenstein-prince.html?searchResultPosition=2
+
+**What to do this weekend.**\
+`Mother’s Day, ‘Shrill’ and Philip Glass.`\
+https://nytimes.com/2021/05/07/at-home/newsletter.html?searchResultPosition=3
+
 **University of Texas Faces New Outcry Over Old Song With Minstrel Roots**\
 `Many students want “The Eyes of Texas” to go. Wealthy alumni insist it should stay. The dispute has become a flash point as universities struggle to deal with traditions spawned in earlier eras.`\
-https://nytimes.com/2021/05/07/us/eyes-of-texas-song-university.html?searchResultPosition=1
+https://nytimes.com/2021/05/07/us/eyes-of-texas-song-university.html?searchResultPosition=4
 
 **Boris Johnson Celebrates Conservative Party Victory**\
 `In Britain, Prime Minister Boris Johnson’s Conservative Party won a special election for a parliamentary seat in the town of Hartlepool, which had been held by the opposition Labour Party.`\
-https://nytimes.com/video/world/europe/100000007751862/boris-johnson-elections.html?searchResultPosition=2
+https://nytimes.com/video/world/europe/100000007751862/boris-johnson-elections.html?searchResultPosition=5
 
 **Yellen Says ‘Recovery Will Remain On Track,’ After Weak Jobs Report**\
 `Treasury Secretary Janet L. Yellen said on Friday that April’s jobs report, which cited an addition of 266,000 jobs last month, was an indicator that the U.S. has a long road to economic recovery, but described the growth as continued progress.`\
-https://nytimes.com/video/us/100000007751724/janet-yellen-treasury-secretary-april-jobs-report.html?searchResultPosition=3
+https://nytimes.com/video/us/100000007751724/janet-yellen-treasury-secretary-april-jobs-report.html?searchResultPosition=6
 
 **Former Maldives President Injured in Bombing**\
 `An explosion in the capital, Malé, on Thursday night left the former President Mohamed Nasheed in critical condition. Police said the attack was an assassination attempt.`\
-https://nytimes.com/video/world/asia/100000007751788/maldives-attack-president.html?searchResultPosition=4
+https://nytimes.com/video/world/asia/100000007751788/maldives-attack-president.html?searchResultPosition=7
 
 **Sixteen Ways to Structure Your Novel**\
 `Liana Finck gets from A to B to C in many more ways than you could imagine.`\
-https://nytimes.com/2021/05/07/books/sixteen-ways-to-structure-your-novel.html?searchResultPosition=5
+https://nytimes.com/2021/05/07/books/sixteen-ways-to-structure-your-novel.html?searchResultPosition=8
 
 **I Became a Mother at 25, and I’m Not Sorry I Didn’t Wait**\
 `More women are delaying parenthood because they think having kids early will be hard. It is. It's also great. `\
-https://nytimes.com/2021/05/07/opinion/motherhood-baby-bust-early-parenthood.html?searchResultPosition=6
+https://nytimes.com/2021/05/07/opinion/motherhood-baby-bust-early-parenthood.html?searchResultPosition=9
 
 **Zion Williamson’s Year in College Was Worth More Than He Got**\
 `His name surfaces again in a lawsuit over shoe company payments to college players. But the surprising part is the paltry sums involved.`\
-https://nytimes.com/2021/05/07/sports/ncaabasketball/zion-williamson-adidas-lawsuit.html?searchResultPosition=7
-
-**The Art Market Often Works in Secret. Here’s a Look Inside.**\
-`These maps reveal patterns of ownership for NFT-based creations.`\
-https://nytimes.com/2021/05/07/opinion/nft-art-market.html?searchResultPosition=8
-
-**Michael Lewis on ‘The Premonition’**\
-`Lewis discusses his new book about the pandemic, and Annette Gordon-Reed talks about “On Juneteenth.”`\
-https://nytimes.com/2021/05/07/books/review/podcast-michael-lewis-premonition-annette-gordon-reed-on-juneteenth.html?searchResultPosition=9
-
-**The virus is an airborne threat, the C.D.C. acknowledges.**\
-`The new focus underscores the need for the federal Occupational Safety and Health Administration to issue standards for employers to address potential hazards in the workplace, multiple experts say.`\
-https://nytimes.com/2021/05/07/health/coronavirus-airborne-threat.html?searchResultPosition=10
+https://nytimes.com/2021/05/07/sports/ncaabasketball/zion-williamson-adidas-lawsuit.html?searchResultPosition=10
 
