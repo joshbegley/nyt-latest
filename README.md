@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/07/us/white-house-visitor-logs-biden-obama.html?sear
 `The proposal came in response to a directive from President Biden to find a way to help combat gun deaths.`\
 https://nytimes.com/2021/05/07/us/politics/justice-department-ghost-guns.html?searchResultPosition=3
 
-**Inside Democrats’ Scramble to Resist G.O.P. Voting Laws**\
+**Inside Democrats’ Scramble to Repel the G.O.P. Voting Push**\
 `Lacking effective legislative or legal ways to stop Republicans from introducing new voting limits, Democrats are applying pressure on their allies in Washington and trying to energize supporters.`\
 https://nytimes.com/2021/05/07/us/politics/democrats-republican-voting-rights.html?searchResultPosition=4
 
