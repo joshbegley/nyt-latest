@@ -16,7 +16,7 @@ https://nytimes.com/2021/05/07/us/grand-canyon-national-park-bison-hunting.html?
 
 **Pfizer and BioNTech apply for full U.S. approval for their Covid vaccine.**\
 `The vaccine has been used under an emergency authorization since December. A decision by the Food and Drug Administration could take months.`\
-https://nytimes.com/2021/05/07/world/pfizer-covid-vaccine-fda-approval.html?searchResultPosition=5
+https://nytimes.com/2021/05/07/world/pfizer-vaccine.html?searchResultPosition=5
 
 **Five Collectives Compete for the Turner Prize**\
 `The jurors were drawn to politically and socially engaged art, which was often about representing minority groups, the chair of the judges said.`\
