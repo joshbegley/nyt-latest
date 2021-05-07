@@ -28,7 +28,7 @@ https://nytimes.com/video/us/politics/100000007751025/keisha-lance-bottoms-atlan
 
 **Computer Chips Are the New Toilet Paper**\
 `Really.`\
-https://nytimes.com/2021/05/07/technology/computer-chip-shortages.html?searchResultPosition=8
+https://nytimes.com/2021/05/07/technology/computer-chip-shortages-toilet-paper-pandemic.html?searchResultPosition=8
 
 **Blinken Jousts With China and Russia in United Nations Meeting**\
 `President Biden’s top diplomat said the United States would uphold international rules and “push back forcefully” against those who don’t, a sharp contrast to the Trump years.`\
