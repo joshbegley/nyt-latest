@@ -1,10 +1,10 @@
-**Former Infantryman Convicted of Threatening Right-Wing Protesters**\
-`Prosecutors said that Daniel Alan Baker had issued a “call to arms” asking people to violently confront demonstrators at the Florida State Capitol.`\
-https://nytimes.com/2021/05/06/us/trump-daniel-baker-florida-capitol-plot.html?searchResultPosition=1
-
 **Taijuan Walker Is Dominant in Win Over Cardinals**\
 `The Mets starter allowed just one hit in seven innings. In Cincinnati, Tony La Russa admitted a mistake.`\
-https://nytimes.com/2021/05/06/sports/baseball/mets-cardinals.html?searchResultPosition=2
+https://nytimes.com/2021/05/06/sports/baseball/mets-cardinals.html?searchResultPosition=1
+
+**Former Infantryman Convicted of Threatening Right-Wing Protesters**\
+`Prosecutors said that Daniel Alan Baker had issued a “call to arms” asking people to violently confront demonstrators at the Florida State Capitol.`\
+https://nytimes.com/2021/05/06/us/trump-daniel-baker-florida-capitol-plot.html?searchResultPosition=2
 
 **Florida and Texas Join the March as Republicans Press Voting Limits**\
 `The efforts in two critical battleground states with booming populations and 70 Electoral College votes between them represent the apex of the Republican effort to roll back access to voting.`\
