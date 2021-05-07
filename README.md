@@ -1,6 +1,6 @@
 **Florida and Texas Join the March as Republicans Press Voting Limits**\
 `The efforts in two critical battleground states with booming populations and 70 Electoral College votes between them represent the apex of the Republican effort to roll back access to voting.`\
-https://nytimes.com/2021/05/06/us/politics/florida-and-texas-join-the-march-as-republicans-press-voting-limits.html?searchResultPosition=1
+https://nytimes.com/2021/05/06/us/politics/florida-texas-voting-rights-bills.html?searchResultPosition=1
 
 **‘Sesame Street’ looks to sunny days with vaccine ad campaign.**\
 `The ads are part of a promotional effort to combat Covid-19 vaccine skepticism.`\
