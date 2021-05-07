@@ -2,7 +2,7 @@
 `Lawyers’ request to conduct additional DNA testing before Ledell Lee was executed had been denied.`\
 https://nytimes.com/2021/05/07/us/ledell-lee-dna-testing-arkansas.html?searchResultPosition=1
 
-**Get Your Kicks Out**\
+**Best Foot Forward**\
 `With more people getting vaccinated and back into the swing of things, a little advice from a self-proclaimed “outfit architect”: Buy yourself a pair of nice sneakers.`\
 https://nytimes.com/2021/05/07/business/sneaker-heads.html?searchResultPosition=2
 
