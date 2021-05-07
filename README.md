@@ -1,6 +1,6 @@
 **‘Sesame Street’ looks to sunny days with vaccine ad campaign.**\
 `The ads are part of a promotional effort to combat Covid-19 vaccine skepticism.`\
-https://nytimes.com/2021/05/06/world/sesame-street-vaccine.html?searchResultPosition=1
+https://nytimes.com/2021/05/06/world/sesame-street-vaccine-covid.html?searchResultPosition=1
 
 **Signs of an improving pandemic outlook may be emerging for younger Americans.**\
 `The Pfizer-BioNTech coronavirus vaccine is expected to be approved next week for children 12 to 15, and the federal government says more than half of K-8 schools are open full-time for in-person learning.`\
