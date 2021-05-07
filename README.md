@@ -18,7 +18,7 @@ https://nytimes.com/2021/05/06/us/keisha-lance-bottoms-atlanta-mayor.html?search
 `The Mets starter allowed just one hit in seven innings. In Cincinnati, Tony La Russa admitted a mistake.`\
 https://nytimes.com/2021/05/06/sports/baseball/mets-cardinals.html?searchResultPosition=5
 
-**Former Infantryman Convicted of Threatening Right-Wing Protesters**\
+**Former Infantryman Is Convicted of Threatening Right-Wing Protesters**\
 `Prosecutors said that Daniel Alan Baker had issued a “call to arms” asking people to violently confront demonstrators at the Florida State Capitol.`\
 https://nytimes.com/2021/05/06/us/trump-daniel-baker-florida-capitol-plot.html?searchResultPosition=6
 
