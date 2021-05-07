@@ -1,4 +1,4 @@
-**An Anthem About Hugging Your Friends Again, and 8 More New Songs**\
+**An Anthem About Hugging Your Friends Again, and 9 More New Songs**\
 `Hear tracks by Rostam, Marcellus Juvann, Gogo Penguin and others.`\
 https://nytimes.com/2021/05/07/arts/music/playlist-trippie-red-rostam-big-freedia.html?searchResultPosition=1
 
