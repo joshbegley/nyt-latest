@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/07/world/canada/ontario-doug-ford-border.html?search
 `The indictment was a rare instance of police officers facing accusations of federal civil rights violations.`\
 https://nytimes.com/2021/05/07/us/politics/george-floyd-death-civil-rights-charges.html?searchResultPosition=3
 
-**Finding Beauty in the**\
+**Finding Beauty in the Ordinary**\
 `A selection of street photography from female artists around the world.`\
 https://nytimes.com/2021/05/07/opinion/street-photography-women.html?searchResultPosition=4
 
