@@ -10,13 +10,13 @@ https://nytimes.com/2021/05/08/us/cyberattack-colonial-pipeline.html?searchResul
 `Artifacts from the White War — a battle between Italian and Austro-Hungarian troops that took place in the forbidding heights of the Alps — are on their way to a museum.`\
 https://nytimes.com/2021/05/08/world/europe/italy-glacier-wwi-artifacts.html?searchResultPosition=3
 
-**Do Restrictions on H-1B Visas Create American Jobs?**\
-`Demand for the visas has increased despite Trump administration policies that made them less likely to be approved.`\
-https://nytimes.com/2021/05/08/business/dealbook/h1b-visas-us-jobs.html?searchResultPosition=4
-
 **Jaleel White Wants to Sell You ‘Purple Urkle’**\
 `Mr. White hopes to see more Black and Latino people leading cannabis brands and businesses.`\
-https://nytimes.com/2021/05/08/us/jaleel-white-purple-urkle.html?searchResultPosition=5
+https://nytimes.com/2021/05/08/us/jaleel-white-purple-urkle.html?searchResultPosition=4
+
+**Do Restrictions on H-1B Visas Create American Jobs?**\
+`Demand for the visas has increased despite Trump administration policies that made them less likely to be approved.`\
+https://nytimes.com/2021/05/08/business/dealbook/h1b-visas-us-jobs.html?searchResultPosition=5
 
 **Where Ukrainians Are Preparing for All-Out War With Russia**\
 `A dried-up canal running from Ukraine into Russian-occupied Crimea is emerging as one of Europe’s main flash points.`\
