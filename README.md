@@ -1,4 +1,4 @@
-**Alabama Officer Is Convicted of Murdering a Suicidal Man**\
+**Alabama Police Officer Is Convicted of Murdering a Suicidal Man**\
 `Jeffrey Parker had called 911 to report that he was suicidal and was holding a gun to his head when he was fatally shot by Officer William Darby, prosecutors said.`\
 https://nytimes.com/2021/05/07/us/huntsville-police-convicted-murder-suicidal-man.html?searchResultPosition=1
 
