@@ -32,7 +32,7 @@ https://nytimes.com/2021/05/07/world/canada/ontario-doug-ford-border.html?search
 
 **Former Police Officers Indicted on Civil Rights Charges in George Floyd’s Death**\
 `The indictment was a rare instance of police officers facing accusations of federal civil rights violations.`\
-https://nytimes.com/2021/05/07/us/politics/george-floyd-death-civil-rights-charges.html?searchResultPosition=9
+https://nytimes.com/2021/05/07/us/politics/george-floyd-death-minneapolis-officers-civil-rights-charges.html?searchResultPosition=9
 
 **Finding Beauty in the Ordinary**\
 `A selection of street photography from female artists around the world.`\
