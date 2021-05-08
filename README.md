@@ -34,7 +34,7 @@ https://nytimes.com/2021/05/08/sports/ncaabasketball/ncaa-endorsements-mark-emme
 `They built an empire that was essential in the pandemic. Now, their impending divorce makes personal a shift that confidants say was well underway in their philanthropic roles.`\
 https://nytimes.com/2021/05/08/business/bill-melinda-gates-divorce-foundation.html?searchResultPosition=9
 
-**7 Steps to Take Now to Catch Up on Retirement Savings**\
-`Even if your finances weren’t devastated by the pandemic recession, many Americans have not yet started saving. Here’s what you can do.`\
-https://nytimes.com/2021/05/08/business/retirement-savings-catch-up-covid.html?searchResultPosition=10
+**Marooned at Mar-a-Lago, Trump Still Has Iron Grip on Republicans**\
+`The vilification of Liz Cheney and a bizarre vote recount in Arizona showed the damage from his assault on a bedrock of democracy: election integrity.`\
+https://nytimes.com/2021/05/08/us/politics/trump-republicans-liz-cheney.html?searchResultPosition=10
 
