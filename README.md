@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/07/science/mars-helicopter-nasa.html?searchResultPos
 
 **Evictions in Jerusalem Become Focus of Israeli-Palestinian Conflict**\
 `The effort to evict six Arab families from a contested neighborhood has drawn attention to the Israeli effort to remove Palestinians from parts of East Jerusalem and led to protests.`\
-https://nytimes.com/2021/05/07/world/middleeast/evictions-jerusalem-israeli-palestinian-protest.html?searchResultPosition=3
+https://nytimes.com/2021/05/07/world/middleeast/evictions-jerusalem-israel-palestinian-protest.html?searchResultPosition=3
 
 **Overcrowded Border Jails Give Way to Packed Migrant Child Shelters**\
 `Federal documents indicate that while the Biden administration has cleared migrant children from border detention centers, now shelters run by the Department of Health and Human Services are strained.`\
