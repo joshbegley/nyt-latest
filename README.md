@@ -19,7 +19,7 @@ https://nytimes.com/2021/05/08/opinion/germany-v-e-day-liberation-nazi-history.h
 https://nytimes.com/interactive/2021/05/08/multimedia/mothers-day-flowers.html?searchResultPosition=5
 
 **Bombing Outside School Kills at Least 20 in Afghanistan**\
-`Students were among the casualties. The attack came at the end of a particularly violent week in the country, and amid growing concerns about the looming American troop withdrawal.`\
+`Female students were among the casualties. The attack came at the end of a particularly violent week in the country, and amid growing concerns about the looming American troop withdrawal.`\
 https://nytimes.com/2021/05/08/world/asia/bombing-school-afghanistan.html?searchResultPosition=6
 
 **Recipes to Knock Out in Under an Hour**\
