@@ -1,6 +1,6 @@
 **Lloyd Price, ‘Personality’ Hitmaker, Is Dead at 88**\
 `His “Lawdy Miss Clawdy” was a rhythm-and-blues smash that hooked white listeners in 1952, anticipating the rise of rock ’n’ roll. Even bigger records would follow.`\
-https://nytimes.com/2021/05/08/arts/music/lloyd-price-dead.html?searchResultPosition=1
+https://nytimes.com/2021/05/08/arts/music/lloyd-price-personality-hitmaker-is-dead-at-88.html?searchResultPosition=1
 
 **They Save the Day. (Every Day.) Six Moms on Their Super Powers.**\
 `A collection of essays curated by the Well desk features mothers acknowledging their special talents. Here, some of the team members join in.`\
