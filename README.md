@@ -1,5 +1,5 @@
-**2 Shot, Including a 4-Year-Old, in Times Square, Police Say**\
-`The police said that the child and the other victim, a woman, were expected to survive.`\
+**3 Shot, Including a 4-Year-Old, in Times Square, Police Say**\
+`The police said that the child and two other victims, both women, were expected to survive.`\
 https://nytimes.com/2021/05/08/nyregion/times-square-shooting-child.html?searchResultPosition=1
 
 **As Texas Voting Restrictions Near Passage, Democrats Stage Protest**\
