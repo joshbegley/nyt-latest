@@ -1,40 +1,40 @@
-**Seeing the Real Faces of Silicon Valley**\
-`For many midlevel engineers and food truck workers and longtime residents, a region filled with extremes has become increasingly inhospitable.`\
-https://nytimes.com/2021/05/08/business/economy/seeing-the-real-faces-of-silicon-valley.html?searchResultPosition=1
+**At India’s Funeral Pyres, Covid Sunders the Rites of Grief**\
+`Mourners in protective gear, or watching from home. Long waits at the cremation grounds. The trauma of loss has become both lonely and public.`\
+https://nytimes.com/2021/05/08/world/asia/india-covid-deaths-crematories.html?searchResultPosition=1
 
-**Canelo Álvarez Is Back, and Boxing Is Back to Its Usual Uncertainty**\
-`Beyond Álvarez’s bout on Saturday night with Billy Joe Saunders, it is not very clear where boxing is headed. Thank the sport’s usual gamesmanship.`\
-https://nytimes.com/2021/05/08/sports/canelo-alvarez-billy-joe-saunders.html?searchResultPosition=2
+**The Art Party Circuit Comes Roaring Back at Frieze New York**\
+`But even Michael R. Bloomberg, whose name graces the building, got stuck outside the Shed until he provided the proper Covid documentation.`\
+https://nytimes.com/2021/05/08/style/the-art-party-circuit-comes-roaring-back-at-frieze-new-york.html?searchResultPosition=2
 
-**Wade Miley Waits Out Delay and Throws Season’s Fourth No-Hitter**\
-`The Reds scored three runs in 9th to break 0-0 tie. The Mets won in extra innings and the Yankees got crushed.`\
-https://nytimes.com/2021/05/07/sports/baseball/wade-miley-no-hitter.html?searchResultPosition=3
+**N.C.A.A. Chief, Pressured by State Laws, Pushes to Let Athletes Cash In**\
+`Five states are poised to allow college athletes to profit from their fame starting on July 1, and the N.C.A.A.’s leader says the association is preparing to respond.`\
+https://nytimes.com/2021/05/08/sports/ncaabasketball/ncaa-endorsements-mark-emmert.html?searchResultPosition=3
 
-**India and Its Vaccine Maker Stumble Over Their Pandemic Promises**\
-`The Serum Institute vowed to protect the country from Covid-19 and inoculate the world’s poor, but India’s crisis has pushed it past its limits.`\
-https://nytimes.com/2021/05/07/world/india-serum-institute-covid19.html?searchResultPosition=4
+**The Separate Worlds of Bill and Melinda Gates**\
+`They built an empire that was essential in the pandemic. Now, their impending divorce makes personal a shift that confidants say was well underway in their philanthropic roles.`\
+https://nytimes.com/2021/05/08/business/bill-melinda-gates-divorce-foundation.html?searchResultPosition=4
 
-**Alabama Police Officer Is Convicted of Murdering a Suicidal Man**\
-`Jeffrey Parker had called 911 to report that he was suicidal and was holding a gun to his head when he was fatally shot by Officer William Darby, prosecutors said.`\
-https://nytimes.com/2021/05/07/us/huntsville-police-convicted-murder-suicidal-man.html?searchResultPosition=5
+**7 Steps to Take Now to Catch Up on Retirement Savings**\
+`Even if your finances weren’t devastated by the pandemic recession, many Americans have not yet started saving. Here’s what you can do.`\
+https://nytimes.com/2021/05/08/business/retirement-savings-catch-up-covid.html?searchResultPosition=5
 
-**Cheap Cab, Perhaps**\
-`David Steinberg returns to us with an intoxicating Saturday puzzle.`\
-https://nytimes.com/2021/05/07/crosswords/daily-puzzle-2021-05-08.html?searchResultPosition=6
+**Marooned at Mar-a-Lago, Trump Still Has Iron Grip on Republicans**\
+`The vilification of Liz Cheney and a bizarre vote recount in Arizona showed the damage from his assault on a bedrock of democracy: election integrity.`\
+https://nytimes.com/2021/05/08/us/politics/trump-republicans-liz-cheney.html?searchResultPosition=6
 
-**Justice Dept. Seizes Washington Post’s Phone Records**\
-`Federal prosecutors sought phone records for three Washington Post journalists as part of an investigation into the publication of classified information in 2017.`\
-https://nytimes.com/2021/05/07/us/politics/justice-department-washington-post-phone-records.html?searchResultPosition=7
+**Roger Federer on His New Gig: Swiss Tourism Spokesman**\
+`In his new role, the tennis champion and avowed chocolate lover, shares favorite places to hike, play tennis and eat in his home country.`\
+https://nytimes.com/2021/05/08/travel/roger-federer-swiss-tourism.html?searchResultPosition=7
 
-**Corrections: May 8, 2021**\
-`Corrections that appeared in print on Saturday, May 8, 2021.`\
-https://nytimes.com/2021/05/07/pageoneplus/corrections-may-8-2021.html?searchResultPosition=8
+**What Will We Do With Our Masks Now?**\
+`As more people are vaccinated and guidelines around mask wearing are easing, some are finding ways to preserve, repurpose and recycle their face coverings.`\
+https://nytimes.com/2021/05/08/style/masks-after-covid.html?searchResultPosition=8
 
-**Quotation of the Day: Confusing Signals in April’s Labor Data**\
-`Quotation of the Day for Saturday, May 8, 2021.`\
-https://nytimes.com/2021/05/07/todayspaper/quotation-of-the-day-confusing-signals-inaprils-labor-data.html?searchResultPosition=9
+**‘This Is Politics’: Dr. Rachel Levine’s Rise as Transgender Issues Gain Prominence.**\
+`President Biden’s assistant secretary of health is the highest-ranking openly transgender person ever to serve in the federal government.`\
+https://nytimes.com/2021/05/08/us/politics/rachel-levine-transgender.html?searchResultPosition=9
 
-**Palestinians Protest Over Jerusalem Evictions**\
-`Palestinians protested ahead of a decision that will come from the Israeli Supreme Court on whether to uphold the eviction of six families from a neighborhood in East Jerusalem in favor of Jewish settlers.`\
-https://nytimes.com/video/world/middleeast/100000007752387/palestinians-protest-evictions-east-jerusalem.html?searchResultPosition=10
+**Jake Tapper’s Hero Is Embedded With the Rat Pack, Hoping to Catch a Rat**\
+`Tapper’s new thriller, “The Devil May Dance,” plumbs the connections among Hollywood, the Mafia and the Kennedy administration.`\
+https://nytimes.com/2021/05/08/books/jake-tapper-devil-may-dance.html?searchResultPosition=10
 
