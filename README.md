@@ -2,7 +2,7 @@
 `Brad Wiegmann delivers a tuneful puzzle performance.`\
 https://nytimes.com/2021/05/08/crosswords/daily-puzzle-2021-05-09.html?searchResultPosition=1
 
-**4 Dead in a Shooting and Fire Near Baltimore, Police Say**\
+**4 Dead in Shooting and Fire Near Baltimore, Police Say**\
 `Two men and one woman died after a shooting and a townhouse fire, which were related, officials said. The police fatally shot the gunman.`\
 https://nytimes.com/2021/05/08/us/baltimore-county-shooting-fire.html?searchResultPosition=2
 
