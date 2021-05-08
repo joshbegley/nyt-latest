@@ -4,7 +4,7 @@ https://nytimes.com/video/world/middleeast/100000007752387/palestinians-protest-
 
 **NASA Mars Helicopter Makes One-Way Flight to New Mission**\
 `Ingenuity has flown almost flawlessly through the red planet’s thin air and will now assist the science mission of the Perseverance rover.`\
-https://nytimes.com/2021/05/07/science/mars-helicopter-nasa.html?searchResultPosition=2
+https://nytimes.com/2021/05/07/science/mars-helicopter-nasa-ingenuity.html?searchResultPosition=2
 
 **Evictions in Jerusalem Become Focus of Israeli-Palestinian Conflict**\
 `The effort to evict six Arab families from a contested neighborhood has drawn attention to the Israeli effort to remove Palestinians from parts of East Jerusalem and led to protests.`\
