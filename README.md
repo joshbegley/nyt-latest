@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/09/arts/music/nyphil-bandwagon-community-future.html
 
 **Pete du Pont, Ex-Delaware Governor Who Ran for President, Dies at 86**\
 `Bored with working at his family’s chemical company, Mr. du Pont entered politics and led an economic turnaround of his debt-ridden home state.`\
-https://nytimes.com/2021/05/09/obituaries/pete-du-pont-ex-delaware-governor-who-ran-for-president-dies-at-86.html?searchResultPosition=6
+https://nytimes.com/2021/05/09/obituaries/pete-du-pont-dead.html?searchResultPosition=6
 
 **Ukraine’s Burial Mounds Offer Meaning in a Heap of History**\
 `The Scythians, marijuana-smoking nomadic warriors of ancient Ukraine, built thousands of burial mounds that are at risk today. A preservation group finds resonance in them for a country at war.`\
