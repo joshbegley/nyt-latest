@@ -4,7 +4,7 @@ https://nytimes.com/2021/05/09/arts/music/country-music-women-tiktok.html?search
 
 **Ed Ward, Rock Critic and Historian, Is Dead at 72**\
 `His reviews for Crawdaddy, Rolling Stone and Creem were admired. But his tough criticism at The Austin American-Statesman inspired a “Dump Ed Ward” movement.`\
-https://nytimes.com/2021/05/09/business/media/ed-ward-rock-critic-and-historian-is-dead-at-72.html?searchResultPosition=2
+https://nytimes.com/2021/05/09/business/media/ed-ward-dead.html?searchResultPosition=2
 
 **What to Cook This Week**\
 `Start off with a baked rajma, move into tofu, and finish off the week with pork tenderloin.`\
