@@ -2,8 +2,8 @@
 `Mike Daisey takes sluggish aim at juicy targets: the disgraced Broadway producer Scott Rudin and the New York governor, Andrew M. Cuomo.`\
 https://nytimes.com/2021/05/09/theater/scott-and-andy-and-all-the-boys-review.html?searchResultPosition=1
 
-**In Arizona, a Carnival Ends, But a Troubled Voting Review Plods On**\
-`Questions keep growing about the review of the state’s votes, which has pleased followers of former President Donald J. Trump but is being widely criticized as an inept, partisan exercise.`\
+**In Arizona, a Troubled Voting Review Plods On as Questions Mount**\
+`A makeshift review of the vote in the state’s largest county has pleased followers of former President Donald J. Trump but is being widely criticized as a partisan exercise.`\
 https://nytimes.com/2021/05/09/us/arizona-vote-count-republicans.html?searchResultPosition=2
 
 **Connor McDavid Hits 100 Points in 53 Games. He’s Not Done Yet.**\
