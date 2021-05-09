@@ -1,6 +1,6 @@
 **Israeli Court Delays Expulsion of Palestinian Families in East Jerusalem**\
 `The threat to evict six families from the East Jerusalem neighborhood of Sheikh Jarrah had become a rallying cry for Palestinians.`\
-https://nytimes.com/2021/05/09/world/middleeast/israeli-court-delays-expulsion-of-palestinian-families-in-east-jerusalem.html?searchResultPosition=1
+https://nytimes.com/2021/05/09/world/middleeast/israeli-court-palestinian-families-east-jerusalem.html?searchResultPosition=1
 
 **George Jung, Who Made Millions Smuggling Cocaine, Dies at 78**\
 `Part of the Medellín drug cartel, he was imprisoned multiple times and was later played by Johnny Depp in the 2001 movie “Blow.”`\
