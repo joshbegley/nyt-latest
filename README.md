@@ -6,13 +6,13 @@ https://nytimes.com/2021/05/09/us/black-lives-matter-shirt-oklahoma-school.html?
 `How Presidents Biden and Franklin D. Roosevelt both seized moments of crisis to do big things. Also: Park Avenue in bloom.`\
 https://nytimes.com/2021/05/09/opinion/letters/joe-biden-franklin-roosevelt.html?searchResultPosition=2
 
-**Examining the Use of the N-Word**\
-`Readers discuss a Sunday Review essay that spells out the slur and whether its use is acceptable in any context.`\
-https://nytimes.com/2021/05/09/opinion/letters/n-word.html?searchResultPosition=3
-
 **Could Matthew McConaughey Be All Right, All Right, All Right for Texas?**\
 `Maybe Texas needs a philosopher-king to lead it? `\
-https://nytimes.com/2021/05/09/opinion/matthew-mcconaughey-governor-texas.html?searchResultPosition=4
+https://nytimes.com/2021/05/09/opinion/matthew-mcconaughey-governor-texas.html?searchResultPosition=3
+
+**Examining the Use of the N-Word**\
+`Readers discuss a Sunday Review essay that spells out the slur and whether its use is acceptable in any context.`\
+https://nytimes.com/2021/05/09/opinion/letters/n-word.html?searchResultPosition=4
 
 **When I Applied to College, I Didn’t Want to ‘Sell My Pain’**\
 `Yes, I'm a student from the "hood." But we have more to offer than our adversity. `\
