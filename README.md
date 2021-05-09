@@ -1,5 +1,5 @@
 **2 Oklahoma Boys Pulled From Class for ‘Black Lives Matter’ T-Shirts**\
-`In addition to the disciplinary action they have faced, the boys’ mother said that at least one her three sons has been bullied because of the shirts.`\
+`In addition to the disciplinary action they have faced, the boys’ mother said that at least one of her three sons has been bullied because of the shirts.`\
 https://nytimes.com/2021/05/09/us/black-lives-matter-shirt-oklahoma-school.html?searchResultPosition=1
 
 **Going Big: How Joe Biden Is Like F.D.R.**\
