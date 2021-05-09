@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/08/arts/music/martin-bookspan-dead.html?searchResultPosition=2
 
 **3 Shot, Including a 4-Year-Old, in Times Square, Police Say**\
-`The police said that the child and two other victims, both women, were expected to survive.`\
+`The police said that the child, who was shot in the leg, as well as two other victims, both women, were expected to survive.`\
 https://nytimes.com/2021/05/08/nyregion/times-square-shooting-child.html?searchResultPosition=3
 
 **As Texas Voting Restrictions Near Passage, Democrats Stage Protest**\
