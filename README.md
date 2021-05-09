@@ -1,5 +1,5 @@
 **After a Traumatizing Year, Black People Turn to Therapy**\
-`The death of George Floyd and other high-profile police killings have helped encourage African-Americans to seek treatment, mental health experts say.`\
+`The death of George Floyd and other high-profile police killings have prompted African-Americans to seek help, mental health experts say.`\
 https://nytimes.com/2021/05/09/us/trauma-therapy-black-community.html?searchResultPosition=1
 
 **From The Sunday Read Archive: ‘The Accusation’**\
