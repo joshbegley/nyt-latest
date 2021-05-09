@@ -31,7 +31,7 @@ https://nytimes.com/2021/05/09/sports/canelo-alvarez-billy-joe-saunders-caleb-pl
 https://nytimes.com/2021/05/09/us/quarters-maya-angelou-sally-ride.html?searchResultPosition=8
 
 **The Psychedelic Revolution Is Coming. Psychiatry May Never Be the Same.**\
-`Psilocybin and MDMA are poised to be the hottest new therapeutics since Prozac. Universities want in, and so does Wall Street. But some researchers are wary about this going too far.`\
+`Psilocybin and MDMA are poised to be the hottest new therapeutics since Prozac. Universities want in, and so does Wall Street.   But some researchers worry a push to loosen access to the drugs could bring unintended consequences.`\
 https://nytimes.com/2021/05/09/health/psychedelics-mdma-psilocybin-molly-mental-health.html?searchResultPosition=9
 
 **‘Why Do We Deserve to Die?’ Kabul’s Hazaras Bury Their Daughters.**\
