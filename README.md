@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/09/world/middleeast/biden-iran-nuclear.html?searchRe
 
 **Pipeline Shutdown Has Had Little Impact on Supplies So Far**\
 `But some energy analysts warned of possible shortages and higher prices if the suspension continues into the week.`\
-https://nytimes.com/2021/05/09/business/colonial-pipeline-shutdown-gasoline.html?searchResultPosition=4
+https://nytimes.com/2021/05/09/business/energy-environment/colonial-pipeline-shutdown-gasoline.html?searchResultPosition=4
 
 **The Philharmonic Grows in a Shipping Container in Brooklyn**\
 `With a focus on community partnerships, the orchestra’s Bandwagon 2 is traveling around New York City this month.`\
