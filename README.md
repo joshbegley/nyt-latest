@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/09/health/psychedelics-mdma-psilocybin-molly-mental-health.html?searchResultPosition=1
 
 **‘Why Do We Deserve to Die?’ Kabul’s Hazaras Bury Their Daughters.**\
-`A bomb attack that killed scores of schoolgirls, members of a long-persecuted minority, offered still more evidence that Afghanistan may be on the verge unraveling.`\
+`A bomb attack that killed scores of schoolgirls, members of a long-persecuted minority, offered still more evidence that Afghanistan may be on the verge of unraveling.`\
 https://nytimes.com/2021/05/09/world/europe/afghanistan-school-attack-hazaras.html?searchResultPosition=2
 
 **Your Monday Briefing**\
