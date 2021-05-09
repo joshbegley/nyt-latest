@@ -1,5 +1,5 @@
 **Kentucky Derby Winner Medina Spirit Fails Drug Test**\
-`The Hall of Fame trainer Bob Baffert, whose horses have failed five tests in six months, denied wrongdoing: “We didn’t do it.”`\
+`The Hall of Fame trainer Bob Baffert, whose horses have failed five tests in a little more than a year, denied wrongdoing: “We didn’t do it.”`\
 https://nytimes.com/2021/05/09/sports/horse-racing/bob-baffert-kentucky-derby-medina-spirit-drug-test.html?searchResultPosition=1
 
 **Vaccinations are rising in the European Union after a long, slow start.**\
