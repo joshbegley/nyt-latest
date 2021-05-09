@@ -2,8 +2,8 @@
 `Bored with working at his family’s chemical company, Mr. du Pont entered politics and led an economic turnaround of his debt-ridden home state.`\
 https://nytimes.com/2021/05/09/obituaries/pete-du-pont-ex-delaware-governor-who-ran-for-president-dies-at-86.html?searchResultPosition=1
 
-**For Ukraine’s Burial Mounds, a Heap of Trouble**\
-`The Scythians, marijuana-smoking nomadic warriors of ancient Ukraine, built thousands of burial mounds that are at risk today. A preservation group sees meaning in them for a country at war.`\
+**Ukraine’s Burial Mounds Offer Meaning in a Heap of History**\
+`The Scythians, marijuana-smoking nomadic warriors of ancient Ukraine, built thousands of burial mounds that are at risk today. A preservation group finds resonance in them for a country at war.`\
 https://nytimes.com/2021/05/09/world/europe/ukraine-burial-mounds.html?searchResultPosition=2
 
 **‘No Doubt in My Mind’: Scott Stringer’s Accuser Details Harassment Claims**\
