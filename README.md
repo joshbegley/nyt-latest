@@ -27,7 +27,7 @@ https://nytimes.com/2021/05/09/us/george-jung-dead.html?searchResultPosition=6
 https://nytimes.com/2021/05/09/world/middleeast/biden-iran-nuclear.html?searchResultPosition=7
 
 **Pipeline Shutdown Has Had Little Impact on Supplies So Far**\
-`But some energy warned of possible shortages and higher prices if the suspension continues into the week.`\
+`But some energy analysts warned of possible shortages and higher prices if the suspension continues into the week.`\
 https://nytimes.com/2021/05/09/business/energy-environment/colonial-pipeline-shutdown-gasoline.html?searchResultPosition=8
 
 **The Philharmonic Grows in a Shipping Container in Brooklyn**\
