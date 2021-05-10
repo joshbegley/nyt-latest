@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/10/us/politics/transgender-discrimination-biden.html?searchResultPosition=1
 
 **Hundreds of Palestinians Hurt After Israeli Police Enter Aqsa Mosque**\
-`More than 330 Palestinians were injured on Monday after the Israeli police entered the Aqsa mosque compound in Jerusalem. The police fired rubber-tipped bullets and stun gernades, while Palestinians threw rocks at officers.`\
+`More than 330 Palestinians were injured on Monday after the Israeli police entered the Aqsa mosque compound in Jerusalem. The police fired rubber-tipped bullets and stun grenades, while Palestinians threw rocks at officers.`\
 https://nytimes.com/video/world/middleeast/100000007754341/aqsa-mosque-jerusalem-clash.html?searchResultPosition=2
 
 **Iraq’s F-16s Grounded After U.S. Contractor Pulls Maintenance Crews**\
