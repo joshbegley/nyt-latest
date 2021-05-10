@@ -28,7 +28,7 @@ https://nytimes.com/2021/05/10/opinion/scott-stringer-endorsement-interview.html
 
 **U.S. Defends Detention of Afghan at Guantánamo Despite Pullout**\
 `In the first Guantánamo habeas corpus case under the Biden administration, the government said U.S. forces’ withdrawal from Afghanistan did not erode its detention authority.`\
-https://nytimes.com/2021/05/10/us/politics/guantanamo-detainee-afghanistan.html?searchResultPosition=8
+https://nytimes.com/2021/05/10/us/politics/asadullah-haroon-gul.html?searchResultPosition=8
 
 **Shaun Donovan Mayoral Endorsement Interview**\
 `Shaun Donovan served as housing secretary and budget director under President Obama and as housing commissioner under Mayor Bloomberg.`\
