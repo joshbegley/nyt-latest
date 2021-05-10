@@ -26,8 +26,8 @@ https://nytimes.com/video/us/politics/100000007755076/biden-economy-speech.html?
 `The party leader, Keir Starmer, was seen as scapegoating a key aide, causing more turmoil in an already divided party after a disappointing performance in local elections.`\
 https://nytimes.com/2021/05/10/world/europe/uk-labour-starmer-election.html?searchResultPosition=7
 
-**New York will offer vaccines to people at some subway stations later this week.**\
-`The state will offer free subway and rail tickets as an incentive, joining a broader nationwide push to speed up the flagging pace of vaccinations.`\
+**New York will offer vaccines at subway stops, and SUNY may require students to have shots.**\
+`The state will offer free subway and rail tickets as an incentive. And the State University of New York planned to require that returning students be fully vaccinated.`\
 https://nytimes.com/2021/05/10/nyregion/nyc-vaccine-subway.html?searchResultPosition=8
 
 **England Eases More Coronavirus Restrictions**\
