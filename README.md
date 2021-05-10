@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/10/sports/baseball/jacob-degrom-mets.html?searchResu
 
 **F.D.A. Authorizes Pfizer-BioNTech Vaccine for Children 12 to 15**\
 `The shots may allow millions of youngsters to get back to school, camps, sleepovers and hangouts with friends.`\
-https://nytimes.com/2021/05/10/health/covid-vaccine-teenagers.html?searchResultPosition=6
+https://nytimes.com/2021/05/10/health/pfizer-vaccine-children-kids.html?searchResultPosition=6
 
 **Virus Variant in India May Be More Transmissible, Says W.H.O.**\
 `The World Health Organization said Monday that the B.1.617 variant of the coronavirus, which has spread throughout India is now a “variant of concern,” and may be fueling a rise in infections.`\
