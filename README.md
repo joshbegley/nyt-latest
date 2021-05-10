@@ -1,6 +1,6 @@
 **California’s Middle-Class Taxpayers Could Get a Rebate Under Newsom Plan**\
 `Faced with a large state surplus and a looming recall election, Gov. Gavin Newsom has proposed giving at least $600 to two-thirds of California taxpayers.`\
-https://nytimes.com/2021/05/10/us/california-rebate-newsom-budget.html?searchResultPosition=1
+https://nytimes.com/2021/05/10/us/newsom-plan-rebate-california.html?searchResultPosition=1
 
 **Biden Vows to ‘Disrupt and Prosecute’ Hackers Who Forced Shutdown of U.S. Pipeline**\
 `The attack by a relatively new criminal group believed to have roots in Eastern Europe exposed the remarkable vulnerability of key American infrastructure.`\
