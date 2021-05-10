@@ -15,7 +15,7 @@ https://nytimes.com/2021/05/10/us/politics/biden-transgender-patient-protections
 https://nytimes.com/2021/05/10/sports/baseball/amber-sabathia-agent.html?searchResultPosition=4
 
 **Mets Sending Jacob deGrom to Injured List After a ‘Clean’ M.R.I.**\
-`The team said that the test had shown no structural damage to deGrom’s lower back but that deGrom would go on the 10-day injured list as a precaution.`\
+`The team said that the test had shown no structural damage to deGrom’s lower back but that he would go on the 10-day injured list as a precaution.`\
 https://nytimes.com/2021/05/10/sports/baseball/jacob-degrom-mets.html?searchResultPosition=5
 
 **F.D.A. Authorizes Pfizer-BioNTech Vaccine for Children 12 to 15**\
