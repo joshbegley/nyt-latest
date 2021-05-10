@@ -1,6 +1,6 @@
 **How I Hold It Together**\
 `Six ways I'm staying healthy and happy.`\
-https://nytimes.com/interactive/2021/05/10/well/live/self-care-tips-yoga-magnesium.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/05/10/well/live/self-care-tips-yoga.html?searchResultPosition=1
 
 **The Crossword Stumper**\
 `A look at one of the entries that fooled solvers in last week’s puzzles.`\
