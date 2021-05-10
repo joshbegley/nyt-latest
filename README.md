@@ -1,5 +1,5 @@
 **The Accusations Against Scott Stringer**\
-`Jean Kim talks about her allegations against the New York City comptroller, who is running for mayor.`\
+`Jean Kim talks about her sexual misconduct allegations against the New York City comptroller, who is running for mayor.`\
 https://nytimes.com/2021/05/10/nyregion/scott-stringer-sexual-misconduct.html?searchResultPosition=1
 
 **How Much Do You Know About Algeria?**\
