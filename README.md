@@ -4,7 +4,7 @@ https://nytimes.com/article/olympic-sports-explained.html?searchResultPosition=1
 
 **Your Monday Briefing**\
 `Rising vaccination rates in Europe.`\
-https://nytimes.com/2021/05/09/briefing/your-monday-briefing.html?searchResultPosition=2
+https://nytimes.com/2021/05/09/briefing/vaccinations-afghanistan-israel-settlers.html?searchResultPosition=2
 
 **Word of the Day: topography**\
 `This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
