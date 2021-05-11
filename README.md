@@ -1,5 +1,5 @@
 **Mayoral Candidates Respond to the Shooting in Times Square**\
-`The contenders said the episode was emblematic of a growing crime problem and moved quickly to showcase how they would address the issue.`\
+`The contenders said the episode was emblematic of a growing crime problem and moved quickly to describe how they would address the issue.`\
 https://nytimes.com/2021/05/11/nyregion/mayoral-candidates-shooting-times-square.html?searchResultPosition=1
 
 **Final OK Expected for Nation’s First Major Offshore Wind Farm**\
