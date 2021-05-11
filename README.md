@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/10/us/newsom-plan-rebate-california.html?searchResul
 `The attack by a relatively new criminal group believed to have roots in Eastern Europe exposed the remarkable vulnerability of key American infrastructure.`\
 https://nytimes.com/2021/05/10/us/politics/biden-pipeline-hack.html?searchResultPosition=2
 
-**Young People Are Unsure of What Happened on 9/11. An Award Will Try to Fix That.**\
+**Keeping the Memory of 9/11 Alive at the Site Where Flight 93 Went Down**\
 `Families of Flight 93’s passengers and crew members, who died while fighting back against hijackers, are looking to honor a hero to raise awareness about Sept. 11.`\
 https://nytimes.com/2021/05/10/us/9-11-hero-award.html?searchResultPosition=3
 
