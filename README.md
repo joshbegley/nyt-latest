@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/10/crosswords/daily-puzzle-2021-05-11.html?searchRes
 https://nytimes.com/2021/05/10/sports/hockey/rangers-season-recap.html?searchResultPosition=3
 
 **A Wandering Tiger Unnerved Houston. The Man Who Fled With It Is a Murder Suspect.**\
-`A man fled with a Bengal tiger after the police responded to complaints from a Houston neighborhood where the wandering cat had startled homeowners, the authorities said.`\
+`A man fled with a Bengal tiger after the wandering cat startled homeowners. The man was taken into custody on Monday night, the police said. The tiger’s whereabouts remained unknown.`\
 https://nytimes.com/2021/05/10/us/bengal-tiger-murder-suspect.html?searchResultPosition=4
 
 **California’s Middle-Class Taxpayers Could Get a Rebate Under Newsom Plan**\
