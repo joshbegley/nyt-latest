@@ -2,7 +2,7 @@
 `As the Boy Scouts of America goes through a massive and contentious bankruptcy, dozens of lawyers are working on the case. Many are charging more than $1,000 an hour.`\
 https://nytimes.com/2021/05/11/us/boy-scouts-bankruptcy-legal-fees.html?searchResultPosition=1
 
-**Hindu Sect is Accused of Using Forced Labor to Build N.J. Temple**\
+**Hindu Sect Is Accused of Using Forced Labor to Build N.J. Temple**\
 `Federal agents descended on the massive temple in Robbinsville, N.J., as a lawsuit claimed low-caste men had been lured from India to work for about $1 an hour.`\
 https://nytimes.com/2021/05/11/nyregion/nj-hindu-temple-india-baps.html?searchResultPosition=2
 
