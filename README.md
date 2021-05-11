@@ -14,7 +14,7 @@ https://nytimes.com/2021/05/11/us/politics/undocumented-students-pandemic-aid.ht
 `How a routine-looking software update became a major confrontation in the long-running conflict between two of the world’s largest tech companies.`\
 https://nytimes.com/2021/05/11/podcasts/the-daily/mark-zuckerberg-tim-cook-facebook-apple.html?searchResultPosition=4
 
-**Key Takeaways from China’s Census Results**\
+**Key Takeaways From China’s Census Results**\
 `The country is locked in a demographic crisis. But the figures also showed rising education and urbanization levels.`\
 https://nytimes.com/2021/05/11/world/asia/china-census-population-one-child-policy.html?searchResultPosition=5
 
