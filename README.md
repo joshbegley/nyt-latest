@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/10/us/newsom-plan-rebate-california.html?searchResul
 
 **F.B.I. Identifies Group Behind Pipeline Hack**\
 `The attack by DarkSide, a relatively new criminal group believed to have roots in Eastern Europe, exposed the remarkable vulnerability of key American infrastructure.`\
-https://nytimes.com/2021/05/10/us/politics/biden-pipeline-hack.html?searchResultPosition=4
+https://nytimes.com/2021/05/10/us/politics/pipeline-hack-darkside.html?searchResultPosition=4
 
 **Keeping the Memory of 9/11 Alive at the Site Where Flight 93 Went Down**\
 `Families of Flight 93’s passengers and crew members, who died while fighting back against hijackers, are looking to honor a hero to raise awareness about Sept. 11.`\
