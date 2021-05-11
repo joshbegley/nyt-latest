@@ -1,5 +1,5 @@
 **Dermatitis Ointment Caused Positive Drug Test, Baffert Says**\
-`The trainer acknowledged that it was neither cancel culture nor a conspiracy that caused Kentucky Derby winner Medina Spirit to fail the test.`\
+`The trainer acknowledged that it was neither cancel culture nor a conspiracy that caused the Kentucky Derby winner Medina Spirit’s positive drug test.`\
 https://nytimes.com/2021/05/11/sports/horse-racing/baffert-medina-spirit-preakness-drug-test.html?searchResultPosition=1
 
 **Queen Elizabeth Opens Her 67th Parliament**\
