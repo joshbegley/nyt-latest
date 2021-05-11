@@ -1,5 +1,5 @@
 **L Brands Plans to Spin Off Victoria’s Secret**\
-`The move came after takeover bids for the retailer came below expectations.`\
+`The move came after takeover bids for the retailer were lower than expectations for a separate listing.`\
 https://nytimes.com/2021/05/11/business/dealbook/l-brands-victorias-secret.html?searchResultPosition=1
 
 **Weekly News Quiz for Students: Presidential Photo, Colombia Protests, China Rocket**\
