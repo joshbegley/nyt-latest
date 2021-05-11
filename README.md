@@ -1,4 +1,4 @@
-**Semiconductor firms and big companies form a new group to push for chip funding.**\
+**Semiconductor makers and users form a group to push for chip funding.**\
 `By Thomas Kaplan`\
 https://nytimes.com/2021/05/11/business/semiconductor-shortage.html?searchResultPosition=1
 
