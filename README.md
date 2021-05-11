@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/11/movies/haifaa-al-mansour-favorites.html?searchRes
 https://nytimes.com/2021/05/11/world/chandro-tomar-dead.html?searchResultPosition=3
 
 **Washington Post Names A.P. Editor, Sally Buzbee, as Its Top Editor**\
-`After more than three decades at the respected news service, Ms. Buzbee becomes the successor to the star editor Martin Baron.`\
+`After more than three decades at respected news service, Ms. Buzbee becomes the successor to the star editor Martin Baron.`\
 https://nytimes.com/2021/05/11/business/media/washington-post-sally-buzbee-editor.html?searchResultPosition=4
 
 **Il Divo Tenor’s Ex-Wife Sues Him, Citing Sexual and Physical Abuse**\
@@ -26,15 +26,15 @@ https://nytimes.com/2021/05/11/movies/golden-globes-hfpa-controversy.html?search
 `Gusts blew out parts of a glass bridge’s flooring in northeast China, trapping a man and raising questions about the safety of similar hair-raising tourist attractions in the country.`\
 https://nytimes.com/2021/05/11/world/asia/china-glass-bridge-stranded.html?searchResultPosition=7
 
+**Colonial Pipeline shutdown: Here’s the latest.**\
+`By Clifford Krauss and Niraj Chokshi`\
+https://nytimes.com/2021/05/11/business/colonial-pipeline-shutdown-latest-news.html?searchResultPosition=8
+
 **A Rare Tiffany Building Owned by a Nonprofit May Be Sold**\
 `Preservationists fear that the Ayer Mansion, a “national treasure” with landmark status, which has been painstakingly preserved, may be cut off from public access.`\
-https://nytimes.com/2021/05/11/arts/design/ayer-mansion-tiffany-boston.html?searchResultPosition=8
+https://nytimes.com/2021/05/11/arts/design/ayer-mansion-tiffany-boston.html?searchResultPosition=9
 
 **What to Know About Newsom’s Big Budget Surplus Plan**\
 `Tuesday: Gov. Gavin Newsom has proposed giving at least $600 to millions of California taxpayers.`\
-https://nytimes.com/2021/05/11/us/california-golden-state-stimulus.html?searchResultPosition=9
-
-**Second Life for Shipping Containers: Selling Bao Buns and Baked Goods**\
-`The brightly colored steel boxes are being repurposed by developers in an effort to liven up bars, cafes and restaurants inside food halls.`\
-https://nytimes.com/2021/05/11/business/shipping-containers-food-halls.html?searchResultPosition=10
+https://nytimes.com/2021/05/11/us/california-golden-state-stimulus.html?searchResultPosition=10
 
