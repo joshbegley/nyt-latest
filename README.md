@@ -1,32 +1,32 @@
+**‘Staggering’ Legal Fees in Boy Scouts Bankruptcy Case**\
+`As the Boy Scouts of America goes through a massive and contentious bankruptcy, dozens of lawyers are working on the case. Many are charging more than $1,000 an hour.`\
+https://nytimes.com/2021/05/11/us/boy-scouts-bankruptcy-legal-fees.html?searchResultPosition=1
+
+**Hindu Sect is Accused of Using Forced Labor to Build N.J. Temple**\
+`Federal agents descended on the massive temple in Robbinsville, N.J., as a lawsuit claimed low-caste men had been lured from India to work for about $1 an hour.`\
+https://nytimes.com/2021/05/11/nyregion/nj-hindu-temple-india-baps.html?searchResultPosition=2
+
 **New York City Libraries Are Open ... Sort Of**\
 `The city's library systems are slowly opening up, and at some you can even browse freely among the stacks.`\
-https://nytimes.com/interactive/2021/05/11/nyregion/nyc-libraries-open.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/05/11/nyregion/nyc-libraries-open.html?searchResultPosition=3
 
 **For Clean Energy, Buy American or Buy It Quick and Cheap?**\
 `President Biden says slowing climate change will create jobs. Tension between unions and environmentalists shows it’s not so simple.`\
-https://nytimes.com/2021/05/11/business/economy/clean-energy-unions-biden.html?searchResultPosition=2
+https://nytimes.com/2021/05/11/business/economy/clean-energy-unions-biden.html?searchResultPosition=4
 
 **Puppets, Purses and Paintings, Too: An Overlooked Artist With Range**\
 `Sophie Taeuber-Arp blurred the boundaries between fine art and applied art, but died early without the recognition she deserved. A major new exhibition aims to fix that.`\
-https://nytimes.com/2021/05/11/arts/design/sophie-taueber-arp.html?searchResultPosition=3
+https://nytimes.com/2021/05/11/arts/design/sophie-taueber-arp.html?searchResultPosition=5
 
 **Can’s Live Shows Will Be Heard at Last, Thanks to a Bootlegger in Big Pants**\
 `A series of concert albums by the influential German band were made possible by Andrew Hall, a fan who followed the group around in the 1970s with a Sony cassette recorder hidden in his trousers.`\
-https://nytimes.com/2021/05/11/arts/music/can-live-albums.html?searchResultPosition=4
+https://nytimes.com/2021/05/11/arts/music/can-live-albums.html?searchResultPosition=6
 
 **Transcript: Ezra Klein Interviews Michael Lewis**\
 `The [DATE] episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2021/05/11/podcasts/ezra-klein-podcast-michael-lewis-transcript.html?searchResultPosition=6
+https://nytimes.com/2021/05/11/podcasts/ezra-klein-podcast-michael-lewis-transcript.html?searchResultPosition=8
 
 **Pat Bond, a Sexual-Subculture Pioneer, Dies at 94**\
 `Mr. Bond was a 44-year-old music teacher when he founded an organization for masochists. After a few meetings, sadists were also invited.`\
-https://nytimes.com/2021/05/11/us/pat-bond-dead.html?searchResultPosition=8
-
-**Require a Year of National Service?**\
-`Readers offer praise for such a plan, citing their own experiences in the Peace Corps and the military, and raise objections.`\
-https://nytimes.com/2021/05/11/opinion/letters/national-service.html?searchResultPosition=9
-
-**How Did We Get So Stuck on Here?**\
-`Our complicated relationship with social media might be simpler than it feels. Just remember how it started.`\
-https://nytimes.com/2021/05/11/style/social-media-stuck.html?searchResultPosition=10
+https://nytimes.com/2021/05/11/us/pat-bond-dead.html?searchResultPosition=10
 
