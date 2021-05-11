@@ -1,5 +1,5 @@
 **Semiconductor makers and users form a group to push for chip funding.**\
-`By Thomas Kaplan`\
+`The new coalition comes amid a global semiconductor shortage that has caused disruptions throughout the economy.`\
 https://nytimes.com/2021/05/11/business/semiconductor-shortage.html?searchResultPosition=1
 
 **Remember Picnics? Here Are Five Great Items to Make Yours Better.**\
