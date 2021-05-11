@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/10/pageoneplus/corrections-may-11-2021.html?searchRe
 `Quotation of the Day for Tuesday, May 11, 2021.`\
 https://nytimes.com/2021/05/10/todayspaper/quotation-of-the-day-china-is-forcing-birth-control-on-muslim-women-in-xinjiang.html?searchResultPosition=3
 
-**Glenn Youngkin Declares Victory as G.O.P. Nominee for Virginia Governor**\
+**Glenn Youngkin Wins G.O.P. Nomination for Virginia Governor**\
 `Mr. Youngkin, a wealthy newcomer to politics who walked a line between the Trump base of the G.O.P. and business interests, will look to test Democrats’ strength in the blue-leaning state in November.`\
 https://nytimes.com/2021/05/10/us/politics/glenn-youngkin-virginia-governor-republicans.html?searchResultPosition=4
 
