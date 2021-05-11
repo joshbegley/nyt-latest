@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/10/todayspaper/quotation-of-the-day-china-is-forcing
 https://nytimes.com/2021/05/10/us/politics/glenn-youngkin-virginia-governor-republicans.html?searchResultPosition=3
 
 **China’s ‘Long-Term Time Bomb’: Falling Births Drive Slow Population Growth**\
-`A census shows the most sluggish growth in the population since the 1960s, fresh evidence of a looming demographic crisis that could complicate Beijing’s ambitions.`\
+`Only 12 million babies were born last year, the lowest number of births since 1961, providing fresh evidence of a looming demographic crisis that could complicate Beijing’s ambitions.`\
 https://nytimes.com/2021/05/10/china-census-births-fall.html?searchResultPosition=4
 
 **Checker That Makes it to the Other Side of the Board**\
