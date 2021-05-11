@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/11/arts/design/keith-haring-art-auction-refrigerator
 https://nytimes.com/2021/05/11/nyregion/nypd-officers-arrested-bribes.html?searchResultPosition=3
 
 **The Biggest Dance Show in Town? At a Basketball Game.**\
-`Since March, the Brooklynettes have performed live at Barclays Center to crowds that are smaller than usual — but huge for dance.`\
+`Since February, the Brooklynettes have performed live at Barclays Center to crowds that are smaller than usual — but huge for dance.`\
 https://nytimes.com/2021/05/11/arts/dance/brooklynettes-nets-pandemic.html?searchResultPosition=4
 
 **Covid Desperation Is Spreading Across India**\
