@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/11/world/chandro-tomar-dead.html?searchResultPosition=1
 
 **Washington Post Names A.P. Editor, Sally Buzbee, as Its Top Editor**\
-`After more than three decades at respected news service, Ms. Buzbee becomes the successor to the star editor Martin Baron.`\
+`After more than three decades at the respected news service, Ms. Buzbee becomes the successor to the star editor Martin Baron.`\
 https://nytimes.com/2021/05/11/business/media/washington-post-sally-buzbee-editor.html?searchResultPosition=2
 
 **Il Divo Tenor’s Ex-Wife Sues Him, Citing Sexual and Physical Abuse**\
