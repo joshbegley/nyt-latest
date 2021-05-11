@@ -1,4 +1,4 @@
-**Russia School Shooting Leaves 11 Dead**\
+**Russia School Shooting Leaves Several Dead**\
 `The state news media reported shots and an explosion at a school in Kazan, a provincial capital east of Moscow, in what appeared to be a rare mass shooting in the country.`\
 https://nytimes.com/2021/05/11/world/europe/russia-school-shooting.html?searchResultPosition=1
 
