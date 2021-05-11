@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/10/todayspaper/quotation-of-the-day-china-is-forcing
 `Mr. Youngkin, a wealthy newcomer to politics who walked a line between the Trump base of the G.O.P. and business interests, will look to test Democrats’ strength in the blue-leaning state in November.`\
 https://nytimes.com/2021/05/10/us/politics/glenn-youngkin-virginia-governor-republicans.html?searchResultPosition=3
 
-**China’s ‘Long Term Time Bomb’: Falling Births Drive Slow Population Growth**\
+**China’s ‘Long-Term Time Bomb’: Falling Births Drive Slow Population Growth**\
 `A census shows the most sluggish growth in the population since the 1960s, fresh evidence of a looming demographic crisis that could complicate Beijing’s ambitions.`\
 https://nytimes.com/2021/05/10/china-census-births-fall.html?searchResultPosition=4
 
