@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Colombia Police Respond to Protests With Bullets, and Death Toll Mounts’**\
-`In this lesson, you will learn why people are demonstrating, as well as why experts say these protests could “presage unrest across Latin America.”`\
-https://nytimes.com/2021/05/11/learning/lesson-of-the-day-colombia-police-respond-to-protests-with-bullets-and-death-toll-mounts.html?searchResultPosition=1
+**‘Mary Jane,’ by Jessica Anya Blau: An Excerpt**\
+`An excerpt from “Mary Jane,” by Jessica Anya Blau`\
+https://nytimes.com/2021/05/11/books/review/mary-jane-by-jessica-anya-blau-an-excerpt.html?searchResultPosition=1
 
-**The Strange New Life of Vaccine Sites**\
-`How a crisis can help us rethink space and reimagine the future.`\
-https://nytimes.com/interactive/2021/05/11/arts/design/covid-vaccine-sites.html?searchResultPosition=2
+**The Lure of H Mart, Where the Shelves Can Seem as Wide as Asia**\
+`The huge grocery chain and other megastores like it have revolutionized the way many Asian-Americans shop and eat.`\
+https://nytimes.com/2021/05/11/dining/h-mart.html?searchResultPosition=2
 
-**I.P.A. Signing Bonuses and Free Subs: Luring Labor as a Beach Economy Booms**\
-`Restaurants are cutting lunch hours and gas stations are paying signing bonuses as a beach town’s boom serves as a possible preview to the nation.`\
-https://nytimes.com/2021/05/11/business/economy/beach-jobs-rehoboth-summer-economy.html?searchResultPosition=3
+**Efforts to Weed Out Extremists in Law Enforcement Meet Resistance**\
+`Oregon, California, Minnesota, Tennessee and Washington, D.C., are seeking to give law enforcement agencies more power to exclude officers with ties to extremist groups.`\
+https://nytimes.com/2021/05/11/us/police-extremists-state-laws.html?searchResultPosition=3
 
-**Humans Have Been Sharing Food With Animals for Centuries. Why Is That?**\
-`Researchers want to learn more about the connections between humans and the feeding of birds, beasts and other fauna.`\
-https://nytimes.com/2021/05/11/science/animal-feeding-humans.html?searchResultPosition=4
+**To Vaccinate Younger Teens, States and Cities Look to Schools, Camps, Even Beaches**\
+`The F.D.A.’s authorization of Pfizer’s Covid shot for 12- to 15-year-olds is a milestone in battling the coronavirus, but actually getting them vaccinated involves new challenges.`\
+https://nytimes.com/2021/05/11/health/covid-vaccination-younger-teens.html?searchResultPosition=4
 
-**Shootings and Subway Attacks Put Crime at Center of N.Y.C. Mayor’s Race**\
-`Rising concerns over crime have led candidates to issue strong appeals for public safety, less than a year after the city was under pressure to defund the police.`\
-https://nytimes.com/2021/05/11/nyregion/mayor-race-nyc-crime-police.html?searchResultPosition=5
+**Krysta With a Y Plays Liza With a Z**\
+`For Krysta Rodriguez, who stars as Liza Minnelli in the new Netflix series ‘Halston,’ acting and decorating aren’t that far apart.`\
+https://nytimes.com/2021/05/11/realestate/krysta-rodriguez-halston-netflix-liza-minnelli.html?searchResultPosition=5
 
-**Need a Reset? The End of Pandemic Life Can Be a Fresh Start.**\
-`Studies show that moments of disruption offer a unique opportunity to set and achieve new goals. The 10-day Well challenge will help you get started.`\
-https://nytimes.com/2021/05/11/well/mind/pandemic-coronavirus-wellness-challenge.html?searchResultPosition=6
+**‘My Apartment Is an Homage to Halston and Liza’**\
+`For Krysta Rodriguez, who stars as Liza Minnelli in the new Netflix series “Halston,” acting and decorating aren’t that far apart.`\
+https://nytimes.com/slideshow/2021/05/11/realestate/my-apartment-is-an-homage-to-halston-and-liza.html?searchResultPosition=6
 
-**The Price They Pay for Your Perfect Vacation Photo**\
-`Scientists are concerned about unregulated feeding of ocean wildlife by tour operators.`\
-https://nytimes.com/2021/05/11/science/tourists-turtles-sharks-photography.html?searchResultPosition=7
+**Is It Covid or the Flu? New Combo Tests Can Find Out.**\
+`New tests for respiratory illnesses can look for more than 20 pathogens at a time.`\
+https://nytimes.com/2021/05/11/health/covid-tests-flu.html?searchResultPosition=7
 
-**Late Night Can’t Help but Laugh at Trump’s Calling Horse a ‘Junkie’**\
-`Jimmy Kimmel called the former president “our own Triple Clown winner” in his monologue about a drug scandal involving the Kentucky Derby winner, Medina Spirit.`\
-https://nytimes.com/2021/05/11/arts/television/late-night-trump-medina-spirit.html?searchResultPosition=8
+**New Drugs Could Help Treat Obesity. Could They End the Stigma, Too?**\
+`The hope is that new treatments will encourage people to think of obesity as a chronic disease, like high blood pressure or diabetes.`\
+https://nytimes.com/2021/05/11/health/obesity-drugs.html?searchResultPosition=8
 
-**Word of the Day: parable**\
-`This word has appeared in 94 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/11/learning/word-of-the-day-parable.html?searchResultPosition=9
+**Heading Home for the Vaccine: One Expat’s Trans-Atlantic Journey**\
+`With Europe’s vaccine campaign stymied, the Madrid-based author, along with his husband and children, boarded a plane for the U.S. “The act of taking matters into one’s own hands,” he writes, “can feel daunting.”`\
+https://nytimes.com/2021/05/11/travel/expats-coronavirus-vaccine.html?searchResultPosition=9
 
-**Israelis, Palestinians and Their Neighbors Worry: Is This the Big One?**\
-`The clashes could quickly blow over, or the unrest could blow up into another Intifada.`\
-https://nytimes.com/2021/05/11/opinion/jerusalem-rockets-israel.html?searchResultPosition=10
+**What Are Puberty Blockers?**\
+`Recent conservative legislation has targeted a class of drugs used to treat transgender adolescents. But what do these drugs actually do?`\
+https://nytimes.com/2021/05/11/well/family/what-are-puberty-blockers.html?searchResultPosition=10
 
