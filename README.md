@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/11/nyregion/mayoral-candidates-shooting-times-square
 https://nytimes.com/2021/05/11/climate/climate-wind-farm.html?searchResultPosition=3
 
 **Can You Have More Than 150 Friends?**\
-`A new study questions that figure, known as Dunbar’s number. The Oxford professor for whom it is named, Robin Dunbar, dismissed the new findings as “absolutely bonkers.”`\
+`A new study questions that figure, known as Dunbar’s number. The Oxford professor for whom it is named, Robin Dunbar, dismissed the  findings as “absolutely bonkers.”`\
 https://nytimes.com/2021/05/11/science/dunbars-number-debunked.html?searchResultPosition=4
 
 **Russia School Shooting Leaves Several Dead**\
