@@ -2,8 +2,8 @@
 `Faced with a large state surplus and a looming recall election, Gov. Gavin Newsom has proposed giving at least $600 to two-thirds of California taxpayers.`\
 https://nytimes.com/2021/05/10/us/newsom-plan-rebate-california.html?searchResultPosition=1
 
-**Biden Vows to ‘Disrupt and Prosecute’ Hackers Who Forced Shutdown of U.S. Pipeline**\
-`The attack by a relatively new criminal group believed to have roots in Eastern Europe exposed the remarkable vulnerability of key American infrastructure.`\
+**F.B.I. Identifies Group Behind Pipeline Hack**\
+`The attack by DarkSide, a relatively new criminal group believed to have roots in Eastern Europe, exposed the remarkable vulnerability of key American infrastructure.`\
 https://nytimes.com/2021/05/10/us/politics/biden-pipeline-hack.html?searchResultPosition=2
 
 **Keeping the Memory of 9/11 Alive at the Site Where Flight 93 Went Down**\
