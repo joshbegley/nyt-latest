@@ -1,40 +1,40 @@
+**Semiconductor firms and big companies form a new group to push for chip funding.**\
+`By Thomas Kaplan`\
+https://nytimes.com/2021/05/11/business/semiconductor-shortage.html?searchResultPosition=1
+
+**Remember Picnics? Here Are Five Great Items to Make Yours Better.**\
+`Now that we’re starting to gather outdoors again, you can grill a better burger and keep the bugs at bay with these useful upgrades.`\
+https://nytimes.com/2021/05/11/realestate/five-best-picnic-items.html?searchResultPosition=2
+
+**The White House will allow undocumented college students access to emergency pandemic aid.**\
+`A new rule coming from the Biden administration will allow “all students” to tap into some $36 billion in emergency stimulus funds flowing to colleges, including direct grants for those most in need.`\
+https://nytimes.com/2021/05/11/us/politics/undocumented-students-pandemic-aid.html?searchResultPosition=3
+
+**Apple vs. Facebook**\
+`How a routine-looking software update became a major confrontation in the long-running conflict between two of the world’s largest tech companies.`\
+https://nytimes.com/2021/05/11/podcasts/the-daily/mark-zuckerberg-tim-cook-facebook-apple.html?searchResultPosition=4
+
 **Key Takeaways from China’s Census Results**\
 `The country is locked in a demographic crisis. But the figures also showed rising education and urbanization levels.`\
-https://nytimes.com/2021/05/11/world/asia/china-census-population-one-child-policy.html?searchResultPosition=1
+https://nytimes.com/2021/05/11/world/asia/china-census-population-one-child-policy.html?searchResultPosition=5
 
 **Mayoral Candidates Respond to the Shooting in Times Square**\
 `The contenders said the episode was emblematic of a growing crime problem and moved quickly to describe how they would address the issue.`\
-https://nytimes.com/2021/05/11/nyregion/mayoral-candidates-shooting-times-square.html?searchResultPosition=2
+https://nytimes.com/2021/05/11/nyregion/mayoral-candidates-shooting-times-square.html?searchResultPosition=6
 
 **Final OK Expected for Nation’s First Major Offshore Wind Farm**\
 `The Vineyard Wind project, off the coast of Massachusetts, is slated to generate enough electricity to power 400,000 homes.`\
-https://nytimes.com/2021/05/11/climate/climate-wind-farm.html?searchResultPosition=3
+https://nytimes.com/2021/05/11/climate/climate-wind-farm.html?searchResultPosition=7
 
 **Can You Have More Than 150 Friends?**\
 `A new study questions that figure, known as Dunbar’s number. The Oxford professor for whom it is named, Robin Dunbar, dismissed the  findings as “absolutely bonkers.”`\
-https://nytimes.com/2021/05/11/science/dunbars-number-debunked.html?searchResultPosition=4
+https://nytimes.com/2021/05/11/science/dunbars-number-debunked.html?searchResultPosition=8
 
 **Russia School Shooting Leaves Several Dead**\
 `The state news media reported shots and an explosion at a school in Kazan, a provincial capital east of Moscow, in what appeared to be a rare mass shooting in the country.`\
-https://nytimes.com/2021/05/11/world/europe/russia-school-shooting.html?searchResultPosition=5
+https://nytimes.com/2021/05/11/world/europe/russia-school-shooting.html?searchResultPosition=9
 
 **‘Mary Jane,’ by Jessica Anya Blau: An Excerpt**\
 `An excerpt from “Mary Jane,” by Jessica Anya Blau`\
-https://nytimes.com/2021/05/11/books/review/mary-jane-by-jessica-anya-blau-an-excerpt.html?searchResultPosition=6
-
-**The Lure of H Mart, Where the Shelves Can Seem as Wide as Asia**\
-`The huge grocery chain and other megastores like it have revolutionized the way many Asian-Americans shop and eat.`\
-https://nytimes.com/2021/05/11/dining/h-mart.html?searchResultPosition=7
-
-**Efforts to Weed Out Extremists in Law Enforcement Meet Resistance**\
-`Oregon, California, Minnesota, Tennessee and Washington, D.C., are seeking to give law enforcement agencies more power to exclude officers with ties to extremist groups.`\
-https://nytimes.com/2021/05/11/us/police-extremists-state-laws.html?searchResultPosition=8
-
-**To Vaccinate Younger Teens, States and Cities Look to Schools, Camps, Even Beaches**\
-`The F.D.A.’s authorization of Pfizer’s Covid shot for 12- to 15-year-olds is a milestone in battling the coronavirus, but actually getting them vaccinated involves new challenges.`\
-https://nytimes.com/2021/05/11/health/covid-vaccination-younger-teens.html?searchResultPosition=9
-
-**Krysta With a Y Plays Liza With a Z**\
-`For Krysta Rodriguez, who stars as Liza Minnelli in the new Netflix series ‘Halston,’ acting and decorating aren’t that far apart.`\
-https://nytimes.com/2021/05/11/realestate/krysta-rodriguez-halston-netflix-liza-minnelli.html?searchResultPosition=10
+https://nytimes.com/2021/05/11/books/review/mary-jane-by-jessica-anya-blau-an-excerpt.html?searchResultPosition=10
 
