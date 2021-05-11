@@ -1,36 +1,32 @@
+**LaMelo Ball Talks Wild Passes, Rookie of the Year and ‘Space Jam’**\
+`Ball, the Charlotte Hornets guard, is one of the season’s standout players, and not just among rookies. The secret to his shot? “Just shoot it with confidence.”`\
+https://nytimes.com/2021/05/11/sports/basketball/lamelo-ball-rookie-of-the-year.html?searchResultPosition=2
+
 **Coronavirus Briefing: What Happened Today**\
 `The push to vaccinate teens.`\
-https://nytimes.com/2021/05/11/us/coronavirus-today-pfizer-teens-camp.html?searchResultPosition=1
+https://nytimes.com/2021/05/11/us/coronavirus-today-pfizer-teens-camp.html?searchResultPosition=3
 
 **Hispanic Democrats run ads targeting four House Republicans over their Jan. 6 votes.**\
 `The advertisements from the Congressional Hispanic Caucus focus on Republican members who represent heavily Latino districts and won close elections last year.`\
-https://nytimes.com/2021/05/11/us/politics/capitol-riot-ad-hispanic-republicans.html?searchResultPosition=2
+https://nytimes.com/2021/05/11/us/politics/capitol-riot-ad-hispanic-republicans.html?searchResultPosition=4
 
 **Trump’s acting attorney general to affirm there was no evidence of widespread voter fraud in 2020.**\
 `Jeffrey A. Rosen, who served for the final month Trump was in office, is scheduled to testify on Wednesday about the Jan. 6 attack on the Capitol.`\
-https://nytimes.com/2021/05/11/us/politics/rosen-fraud-congress-testimony-trump.html?searchResultPosition=4
+https://nytimes.com/2021/05/11/us/politics/rosen-fraud-congress-testimony-trump.html?searchResultPosition=6
 
 **These Three Feminists Are Changing Argentina From the Inside**\
 `Paying women for unpaid work at home. Delivering food to trans people. Building day care centers. Bit by bit, these women, appointed by the president to high-ranking positions, are restructuring society.`\
-https://nytimes.com/2021/05/11/world/feminists-argentina-government.html?searchResultPosition=5
+https://nytimes.com/2021/05/11/world/feminists-argentina-government.html?searchResultPosition=7
 
 **Your Wednesday Briefing**\
 `Israel-Gaza fighting escalates.`\
-https://nytimes.com/2021/05/11/briefing/gaza-israel-strikes-india-virus-crisis.html?searchResultPosition=6
+https://nytimes.com/2021/05/11/briefing/gaza-israel-strikes-india-virus-crisis.html?searchResultPosition=8
 
 **It’s a Home in Brooklyn. What Could It Cost? $100,000?**\
 `Shaun Donovan and Raymond J. McGuire, candidates for mayor of New York, were way, way off when asked to estimate the median home price in the borough.`\
-https://nytimes.com/2021/05/11/nyregion/median-home-brooklyn-mayor.html?searchResultPosition=7
+https://nytimes.com/2021/05/11/nyregion/median-home-brooklyn-mayor.html?searchResultPosition=9
 
 **In Rebuke to N.R.A., Federal Judge Dismisses Bankruptcy Case**\
 `The N.R.A. filed for bankruptcy this year as it sought to end run regulatory action in New York, but a judge rejected the strategy.`\
-https://nytimes.com/2021/05/11/us/nra-bankruptcy.html?searchResultPosition=8
-
-**The Beauty Stores, Near and Far, That Are Destinations in Their Own Right**\
-`Sought-out spots for picking up finely milled soaps, hand-sculpted makeup brushes, exquisite scents and more.`\
-https://nytimes.com/2021/05/11/t-magazine/beauty-shops-fragrance-skincare.html?searchResultPosition=9
-
-**Republican Senators Tear Into C.D.C. During Hearing**\
-`Republican senators criticized the Centers for Disease Control and Prevention policies and funding at a hearing on Tuesday. Dr. Anthony S. Fauci had a particularly fiery exchange with Senator Rand Paul.`\
-https://nytimes.com/video/us/100000007757323/cdc-pandeminc-guidance.html?searchResultPosition=10
+https://nytimes.com/2021/05/11/us/nra-bankruptcy.html?searchResultPosition=10
 
