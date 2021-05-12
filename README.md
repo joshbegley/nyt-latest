@@ -1,5 +1,5 @@
 **Claiming the Summit Without Reaching the Top**\
-`Only 44 people have claimed to reach the summit of all 14 of the world’s highest mountains. Now, researchers are questioning whether any of them have really done it.`\
+`Only 44 people have said they’ve reached the summit of all 14 of the world’s highest mountains. Now, researchers are questioning whether any of them have really done it.`\
 https://nytimes.com/interactive/2021/sports/tallest-mountain-summit.html?searchResultPosition=1
 
 **Corrections: May 12, 2021**\
