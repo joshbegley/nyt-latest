@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/12/us/politics/cheney-vote.html?searchResultPosition
 
 **She Used a Male Doll in a Joke. Now She’s Accused of Sexual Harassment.**\
 `Male critics in South Korea say they were offended by Park Na-rae’s comedy on YouTube. Her supporters say she’s a victim of double standards. The police say they are investigating.`\
-https://nytimes.com/2021/05/12/world/asia/south-korea-comedian-sexism.html?searchResultPosition=4
+https://nytimes.com/2021/05/12/world/asia/park-na-rae.html?searchResultPosition=4
 
 **World’s Most Vaccinated Nation Is Spooked by Covid Spike**\
 `Seychelles has seen a surge in coronavirus cases despite much of its population being inoculated with China’s Sinopharm vaccine.`\
