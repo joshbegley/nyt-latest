@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/11/us/politics/border-detentions-april-migrants-mexi
 
 **House Democrats and White House Reach Deal Over Testimony by Ex-Trump Aide**\
 `A terse announcement signaled a possible end to a long-running constitutional lawsuit. But former President Donald J. Trump is not a party to the arrangement.`\
-https://nytimes.com/2021/05/11/us/politics/house-democrats-white-house-mcgahn.html?searchResultPosition=3
+https://nytimes.com/2021/05/11/us/politics/mcgahn-testimony.html?searchResultPosition=3
 
 **Metropolitan Opera Reaches Deal With Union Representing Chorus**\
 `Labor troubles have cast the company’s planned reopening in September in doubt; two other major unions have yet to reach deals.`\
