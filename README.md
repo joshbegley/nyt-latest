@@ -1,6 +1,6 @@
 **Why the Wine Industry Has Long Been a ‘Boys’ Club’**\
 `Wednesday: Accusations of sexual assault against a wine country mayor shine a light on the culture of an exclusive industry.`\
-https://nytimes.com/2021/05/12/us/wine-industry-allegations.html?searchResultPosition=1
+https://nytimes.com/2021/05/12/us/california-wine-industry-allegations.html?searchResultPosition=1
 
 **$450,000 Homes in Wisconsin, Florida and Kentucky**\
 `A 1925 cottage in Madison, a two-bedroom waterfront condo in Fort Lauderdale and a Craftsman bungalow in Louisville.`\
