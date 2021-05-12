@@ -31,7 +31,7 @@ https://nytimes.com/2021/05/12/technology/jeff-bezos-ideas.html?searchResultPosi
 https://nytimes.com/2021/05/12/style/masks-outdoors-new-york.html?searchResultPosition=8
 
 **Champions League Final Is Moving to Portugal**\
-`Istanbul is in lockdown and England wouldn’t bend on travel restrictions, so European soccer’s governing body will take its showcase game to Porto, Portugal.`\
+`Istanbul is in lockdown and England wouldn’t bend on coronavirus travel restrictions, so European soccer’s governing body will take its showcase game to Porto, Portugal.`\
 https://nytimes.com/2021/05/12/sports/soccer/champions-league-final-porto.html?searchResultPosition=9
 
 **‘Oxygen’ Review: The Thrill of Claustrophobia**\
