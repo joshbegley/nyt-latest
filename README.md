@@ -32,7 +32,7 @@ https://nytimes.com/2021/05/12/us/covid-pandemic.html?searchResultPosition=8
 
 **What You May Not Know About Poison Ivy**\
 `Sure, it’s irritating. But this unpopular native plant also has underappreciated superpowers. Here’s how to deal with it.`\
-https://nytimes.com/2021/05/12/realestate/poison-ivy-how-to-recognize-and-get-rid-of.html?searchResultPosition=9
+https://nytimes.com/2021/05/12/realestate/poison-ivy.html?searchResultPosition=9
 
 **‘Ignoring the Lie Emboldens the Liar’**\
 `Liz Cheney is expected to be ousted from the Republican leadership. What does this say about current requirements for party leaders?`\
