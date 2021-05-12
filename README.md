@@ -22,8 +22,8 @@ https://nytimes.com/2021/05/12/climate/climate-change-EPA.html?searchResultPosit
 `Israeli-Palestinian violence flares.`\
 https://nytimes.com/2021/05/12/briefing/israel-gaza-seychelles-surge-cases.html?searchResultPosition=6
 
-**Former U.S. Olympic Coach Under Scrutiny, but Not for What You Think**\
-`Kevin Mazeika has been accused of not reporting an injury at his Texas gym. He says U.S.A. Gymnastics has damaged his reputation by mishandling his case.`\
+**Former Olympic Coach Says U.S.A. Gymnastics Mishandled a Complaint Against Him**\
+`Kevin Mazeika has been accused of not reporting an injury at his Texas gym. He says U.S.A. Gymnastics has damaged his reputation by mishandling the case.`\
 https://nytimes.com/2021/05/12/sports/olympics/gymnastics-coach-abuse-allegation.html?searchResultPosition=7
 
 **Mayorkas and Garland Testify on ‘Violent’ Domestic Extremism**\
