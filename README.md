@@ -1,6 +1,6 @@
 **Officials urge customers not to panic buy gas as fears of shortage lead to long lines.**\
 `Several thousand gas stations across the nation have run out of fuel, and hundreds of others are limiting sales. “The oil and gasoline is there,” one energy expert said.`\
-https://nytimes.com/2021/05/12/business/energy-environment/panic-buying-gas-shortage.html?searchResultPosition=1
+https://nytimes.com/2021/05/12/business/energy-environment/gas-shortage.html?searchResultPosition=1
 
 **A U.S. envoy is heading to the Middle East to urge calm between Israel and Palestinians.**\
 `American officials voice support for Israel, but the secretary of state says it “has an extra burden” to prevent civilian deaths.`\
