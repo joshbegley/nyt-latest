@@ -18,21 +18,21 @@ https://nytimes.com/2021/05/12/podcasts/the-daily/liz-cheney-republican-party-do
 `This month’s spotlight shines on John Guzzetta.`\
 https://nytimes.com/2021/05/12/crosswords/Crosswords-puzzles-constructor-guzzetta.html?searchResultPosition=5
 
+**In Nepal, oxygen cylinders from Mount Everest could soon be used by Covid patients.**\
+`With hundreds reportedly dying because of a shortage, relief groups are attempting to repurpose tanks used by climbers in the Himalayas.`\
+https://nytimes.com/2021/05/12/world/asia/nepal-everest-oxygen-covid.html?searchResultPosition=6
+
 **Everything Was Canceled in 2020. What About 2021?**\
 `From the French Open and the Tokyo Olympics to New York Pride, a look at which global events are canceled, postponed or moving ahead (with altered plans) in 2021.`\
-https://nytimes.com/2021/05/12/travel/canceled-events-2021-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2021/05/12/travel/canceled-events-2021-coronavirus.html?searchResultPosition=7
 
 **What to Know About Vaccinations for Children 12 to 15 in N.Y.**\
 `Gov. Andrew M. Cuomo said  that the Pfizer-BioNTech coronavirus shot could be cleared for the younger age group as soon as Thursday.`\
-https://nytimes.com/2021/05/12/nyregion/nyc-vaccine-12-15-year-olds.html?searchResultPosition=7
+https://nytimes.com/2021/05/12/nyregion/nyc-vaccine-12-15-year-olds.html?searchResultPosition=8
 
 **Biden Can’t Decide What Counts as a ‘Democracy’**\
 `As the president tries to assemble an anti-authoritarian alliance, he faces a choice: hypocrisy or realism?`\
-https://nytimes.com/2021/05/12/opinion/biden-democracy-alliance.html?searchResultPosition=8
-
-**As investors worry about inflation, consumer prices are set to jump. Don’t panic.**\
-`The Consumer Price Index rose about 3.6 percent in April, compared with a year earlier, economists expect. A data quirk would explain much of that rise.`\
-https://nytimes.com/2021/05/12/business/consumer-price-inflation-April.html?searchResultPosition=9
+https://nytimes.com/2021/05/12/opinion/biden-democracy-alliance.html?searchResultPosition=9
 
 **The latest news on the Colonial Pipeline shutdown.**\
 `Analysts said the impact of the shutdown would be relatively minor as long as the artery was reopened soon, but some drivers scrambled to fuel their vehicles.`\
