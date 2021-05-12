@@ -24,7 +24,7 @@ https://nytimes.com/2021/05/12/world/europe/france-letter-military-civil-war-war
 
 **Top law enforcement officials say the biggest domestic terror threat comes from white supremacists.**\
 `“The department is taking a new approach to addressing domestic violent extremism, both internally and externally,” Homeland Security Secretary Alejandro N. Mayorkas told senators.`\
-https://nytimes.com/2021/05/12/us/politics/domestic-terror-threat.html?searchResultPosition=7
+https://nytimes.com/2021/05/12/us/politics/domestic-terror-white-supremacists.html?searchResultPosition=7
 
 **A breakthrough for U.S. wind power**\
 `After long delays, the nation’s first big offshore project has won approval`\
