@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/12/arts/elizabeth-hinton-america-on-fire.html?search
 https://nytimes.com/2021/05/12/opinion/letters/liz-cheney-republicans.html?searchResultPosition=3
 
 **Man Riding in Driverless Tesla Is Arrested in California**\
-`Param Sharma, 25, was arrested on charges of reckless driving and disobeying a peace officer, the California Highway Patrol said.`\
+`Param Sharma, 25, was arrested on charges of reckless driving. “I’m about to go in the back seat right now,” he said after being released from jail.`\
 https://nytimes.com/2021/05/12/us/california-tesla-backseat-driver.html?searchResultPosition=4
 
 **C.D.C. Advisers Endorse Pfizer Vaccine for Children Ages 12 to 15**\
