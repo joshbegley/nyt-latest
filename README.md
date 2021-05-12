@@ -34,7 +34,7 @@ https://nytimes.com/2021/05/12/us/politics/biden-mcconnell-pelosi-mccarthy-schum
 `Foo Fighters, the Go-Go’s, Carole King and Todd Rundgren were also voted in, meaning nearly half of the 15 individuals in this year’s class are women.`\
 https://nytimes.com/2021/05/12/arts/music/rock-and-roll-hall-of-fame-tina-turner.html?searchResultPosition=9
 
-**House Republicans prepare to oust a defiant Liz Cheney.**\
-`The secret-ballot vote on Wednesday is expected to remove Ms. Cheney as the chair of the House Republican Conference.`\
+**House Republicans oust a defiant Liz Cheney for her repudiation of Trump’s election lies.**\
+`The decision took place by voice vote during a brief but raucous closed-door meeting in an auditorium on Capitol Hill on Wednesday morning, after Ms. Cheney made a defiant final speech.`\
 https://nytimes.com/2021/05/12/us/politics/cheney-vote.html?searchResultPosition=10
 
