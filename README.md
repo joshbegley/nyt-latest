@@ -31,7 +31,7 @@ https://nytimes.com/slideshow/2021/05/12/realestate/a-light-filled-riad-in-the-h
 https://nytimes.com/2021/05/12/style/fashion-week-ny.html?searchResultPosition=8
 
 **‘I Will Not Sit Back,’ Liz Cheney Says Before House Vote**\
-`Hours before facing a vote on whether she can remain in House Republican leadership, Representative Liz Cheney of Wyoming said she would not sit quietly as the party abandoned the rule of law in favor of supporting former President Donald Trump.`\
+`Representative Liz Cheney of Wyoming said she would not sit quietly as the party abandoned the rule of law.`\
 https://nytimes.com/video/us/politics/100000007758590/liz-cheney-speech-house-trump.html?searchResultPosition=9
 
 **Why the Wine Industry Has Long Been a ‘Boys’ Club’**\
