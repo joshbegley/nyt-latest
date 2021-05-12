@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/12/opinion/israel-palestinians-gaza.html?searchResultPosition=1
 
 **Many states with the worst recent outbreaks in the U.S. show notable drops in new cases and hospitalizations.**\
-`The director of the Centers for Disease Control and Prevention said this week while she was encouraged by the gains against the pandemic, she urged Americans to remain vigilant to the threat of the virus around the world.`\
+`The director of the Centers for Disease Control and Prevention said this week that while she was encouraged by the gains against the pandemic, Americans must remain vigilant to the threat of the virus around the world.`\
 https://nytimes.com/2021/05/12/us/covid-hospital-cases-decline.html?searchResultPosition=2
 
 **Coronavirus Briefing: What Happened Today**\
