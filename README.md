@@ -15,7 +15,7 @@ https://nytimes.com/2021/05/12/podcasts/the-daily/liz-cheney-republican-party-do
 https://nytimes.com/2021/05/12/crosswords/Crosswords-puzzles-constructor-guzzetta.html?searchResultPosition=4
 
 **Everything Was Canceled in 2020. What About 2021?**\
-`From the French Open and the Toyko Olympics to New York Pride, a look at which global events are canceled, postponed or moving ahead (with altered plans) in 2021.`\
+`From the French Open and the Tokyo Olympics to New York Pride, a look at which global events are canceled, postponed or moving ahead (with altered plans) in 2021.`\
 https://nytimes.com/2021/05/12/travel/canceled-events-2021-coronavirus.html?searchResultPosition=5
 
 **What to Know About Vaccinations for Children 12 to 15 in N.Y.**\
