@@ -34,7 +34,7 @@ https://nytimes.com/2021/05/12/opinion/biden-democracy-alliance.html?searchResul
 `The Consumer Price Index rose about 3.6 percent in April, compared with a year earlier, economists expect. A data quirk would explain much of that rise.`\
 https://nytimes.com/2021/05/12/business/consumer-price-inflation-April.html?searchResultPosition=9
 
-**Catch up: The latest news on the Colonial Pipeline shutdown.**\
+**The latest news on the Colonial Pipeline shutdown.**\
 `Analysts said the impact of the shutdown would be relatively minor as long as the artery was reopened soon, but some drivers scrambled to fuel their vehicles.`\
 https://nytimes.com/2021/05/12/business/colonial-pipeline-shutdown.html?searchResultPosition=10
 
