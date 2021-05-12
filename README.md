@@ -14,8 +14,8 @@ https://nytimes.com/2021/05/12/sports/hockey/nhl-rangers-quinn-fired.html?search
 `The police said Farrakhan Muhammad opened fire during an argument with his brother, shooting bystanders including a 4-year-old girl.`\
 https://nytimes.com/2021/05/12/nyregion/times-square-shooting-arrest.html?searchResultPosition=4
 
-**U.S. Envoy Headed to Middle East to Urge De-escalation of Violence**\
-`Secretary of State Antony J. Blinken said on Wednesday that the United States was concerned about escalating conflict between the Israelis and Palestinians, and would send a representative to the region.`\
+**U.S. Envoy Headed to Middle East**\
+`Secretary of State Antony J. Blinken said Wednesday that the U.S. was concerned about the escalating conflict.`\
 https://nytimes.com/video/us/politics/100000007759160/israel-palestine-conflict-blinken.html?searchResultPosition=5
 
 **Hannah Einbinder: Portrait of a Young Comic on the Cusp**\
