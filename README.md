@@ -14,8 +14,8 @@ https://nytimes.com/video/world/middleeast/100000007757999/gaza-rockets-israel-a
 `Tracy Gray’s gonna wash that grid right outta her hair.`\
 https://nytimes.com/2021/05/11/crosswords/daily-puzzle-2021-05-12.html?searchResultPosition=4
 
-**Detentions at southwest border rose in April to highest in at least 20 years.**\
-`The number of immigrants detained at the southwest border has risen for 12 straight months, according to Customs and Border Protection data.`\
+**Detentions at southwestern border rose in April to highest in at least 20 years.**\
+`The number of immigrants detained at the southwestern border has risen for 12 straight months, according to Customs and Border Protection data.`\
 https://nytimes.com/2021/05/11/us/politics/border-detentions-april-migrants-mexico.html?searchResultPosition=5
 
 **House Democrats and White House Reach Deal Over Testimony by Ex-Trump Aide**\
