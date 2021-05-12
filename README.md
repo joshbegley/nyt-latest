@@ -1,40 +1,40 @@
-**‘I’m Speechless.’ We Asked Law-Enforcement Officers Around the World How American Policing Looks From Abroad.**\
-`How did it go? Well, you might say that American law enforcement didn’t exactly win any fans.`\
-https://nytimes.com/video/opinion/100000007674225/police-officers-usa-global.html?searchResultPosition=1
+**The PawSox Moved, but Pawtucket Has Yet to Move On**\
+`As the Red Sox’ top minor league team took the field in Massachusetts on Tuesday, a proud old stadium in Rhode Island sat empty. A symbol of a fading era.`\
+https://nytimes.com/2021/05/12/sports/baseball/pawtucket-worcester-red-sox.html?searchResultPosition=1
 
-**Word of the Day: elated**\
-`This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/12/learning/word-of-the-day-elated.html?searchResultPosition=2
+**India’s Strict Rules on Foreign Aid Snarl Covid Donations**\
+`International donors are raising millions, but the Modi administration has erected hurdles for overseas organizations and guided money toward officially endorsed groups.`\
+https://nytimes.com/2021/05/12/business/india-covid-donations.html?searchResultPosition=2
 
-**Stephen Colbert Roasts Jeff Bezos for His ‘Support Yacht’**\
-`The founder of Amazon has a new superyacht that is so big, it requires a second yacht with a helipad. “I mean, who hasn’t needed a separate yacht just for his helicopter?” Colbert joked on Tuesday.`\
-https://nytimes.com/2021/05/12/arts/television/stephen-colbert-jeff-bezos-yacht.html?searchResultPosition=3
+**Woodbury, Conn.: Peace and Rustic Beauty, With a Sense of History**\
+`Settled in the late 1600s, this Litchfield County town is more densely populated than its neighbors, with a quaint downtown and more full-time residents.`\
+https://nytimes.com/2021/05/12/realestate/woodbury-connecticut.html?searchResultPosition=3
 
-**W.N.B.A. Braces for ‘Fierce Competition’ in New Season**\
-`A wave of talented rookies could make for tense battles as new faces like Aari McDonald and Charli Collier take on perennial All-Stars like Diana Taurasi and Candace Parker.`\
-https://nytimes.com/2021/05/12/sports/basketball/wnba-season.html?searchResultPosition=4
+**How to Plan a D.I.Y. Alaska Trip**\
+`In a state the size of Texas, California and Montana combined, planning an affordable itinerary can be a challenge, especially with this summer’s lack of cheap cruises.`\
+https://nytimes.com/2021/05/12/travel/alaska-budget-travel.html?searchResultPosition=4
 
-**What Rudy Tomjanovich Learned by Coaching the Greats**\
-`Tomjanovich led the Houston Rockets to two championships (Hakeem Olajuwon), briefly coached the Lakers (Kobe Bryant) and oversaw an Olympic team (Kevin Garnett).`\
-https://nytimes.com/2021/05/12/sports/basketball/nba-hall-of-fame-tomjanovich-kobe.html?searchResultPosition=5
+**They Haven’t Gotten a Covid Vaccine Yet. But They Aren’t ‘Hesitant’ Either.**\
+`Much has been said about people opposed to or skeptical of coronavirus vaccines. But there’s another group that has yet to get shots, and their reasons are more complex.`\
+https://nytimes.com/2021/05/12/us/covid-vaccines-vulnerable.html?searchResultPosition=5
 
-**Patrick Mazeika Continues to Be Magic for Mets**\
-`The third-string catcher has two walk-offs in four career games. The Yankees got past positive coronavirus tests and beat the Rays.`\
-https://nytimes.com/2021/05/11/sports/baseball/mets-yankees.html?searchResultPosition=6
+**China Wants to Boost Births. But It’s Wary of Losing Control.**\
+`Some local governments are allowing couples to have more children without penalties, but the ruling Communist Party seems reluctant to lift restrictions altogether.`\
+https://nytimes.com/2021/05/12/business/china-births-limits.html?searchResultPosition=6
 
-**Your Wednesday Briefing**\
-`The Israeli-Gaza conflict intensifies.`\
-https://nytimes.com/2021/05/11/briefing/gaza-israel-coronavirus-china.html?searchResultPosition=7
+**Living In ... Woodbury, Conn.**\
+`Settled in the 1600s, the Litchfield County town is more densely populated than its neighbors, with a quaint downtown and more full-time residents.`\
+https://nytimes.com/slideshow/2021/05/12/realestate/living-in-woodbury-conn.html?searchResultPosition=7
 
-**Claiming the Summit Without Reaching the Top**\
-`Only 44 people have said they’ve reached the summit of all 14 of the world’s highest mountains. Now, researchers are questioning whether any of them have really done it.`\
-https://nytimes.com/interactive/2021/sports/tallest-mountain-summit.html?searchResultPosition=8
+**How Would the Mayoral Candidates Get Guns Off New York Streets?**\
+`Three more mayoral candidates highlighted fresh plans to address a recent spate of shootings that has overtaken the contest just six weeks before the primary.`\
+https://nytimes.com/2021/05/12/nyregion/mayor-crime-nyc-times-square.html?searchResultPosition=8
 
-**Corrections: May 12, 2021**\
-`Corrections that appeared in print on Wednesday, May 12, 2021.`\
-https://nytimes.com/2021/05/11/pageoneplus/corrections-may-12-2021.html?searchResultPosition=9
+**For West End’s Return, Cleansing Spirits and an Aching for Change**\
+`On May 17, after two failed tries, London’s theaters hope to reopen for good. Meet a director, a producer, an actor and a costumer, nervously raring to go.`\
+https://nytimes.com/2021/05/12/theater/west-end-reopening.html?searchResultPosition=9
 
-**Quotation of the Day: Getting Clever in Inoculating Youths in U.S.**\
-`Quotation of the Day for Wednesday, May 12, 2021.`\
-https://nytimes.com/2021/05/11/todayspaper/quotation-of-the-day-getting-clever-in-inoculating-youths-in-us.html?searchResultPosition=10
+**Bottom Drops Out of the Red-Hot Market for Electric Vehicle Start-Ups**\
+`Lordstown Motors said it would start producing and selling electric pickup trucks this year, but there is little evidence it is ready to do so. Its stock has tumbled from a high of about $30 last year to around $8.`\
+https://nytimes.com/2021/05/12/business/lordstown-stock-price.html?searchResultPosition=10
 
