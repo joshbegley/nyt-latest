@@ -1,6 +1,6 @@
 **The leaders of Emergent, whose factory spoiled vaccine doses, will testify before a U.S. House panel.**\
 `The Maryland biotech firm has been accused of using its links with the Trump administration to land hundreds of millions of dollars in contracts for coronavirus shots.`\
-https://nytimes.com/2021/05/12/us/politics/emergent-house-hearing.html?searchResultPosition=1
+https://nytimes.com/2021/05/12/us/politics/emergent-vaccine-house-hearing.html?searchResultPosition=1
 
 **Colombia’s Police Force, Built for War, Finds a New One**\
 `Police spent decades fighting left-wing guerrillas and paramilitaries. Now, they’re cracking down on protesters, and igniting a wider demonstration movement in response.`\
