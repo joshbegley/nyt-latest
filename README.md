@@ -4,7 +4,7 @@ https://nytimes.com/2021/05/12/business/energy-environment/panic-buying-gas-shor
 
 **A U.S. envoy is heading to the Middle East to urge calm between Israel and Palestinians.**\
 `American officials voice support for Israel, but the secretary of state says it “has an extra burden” to prevent civilian deaths.`\
-https://nytimes.com/2021/05/12/world/middleeast/israel-palestinians-us-blinken.html?searchResultPosition=2
+https://nytimes.com/2021/05/12/world/middleeast/israel-palestine-blinken.html?searchResultPosition=2
 
 **Inside Jeff Bezos’s Obsessions**\
 `Amazon has had a boss with big ideas and incredible persistence. That hasn’t always been helpful.`\
