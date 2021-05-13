@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/13/business/spencer-silver-dead.html?searchResultPos
 
 **Showing Little Contrition, David Cameron Faces U.K. Parliament in Lobbying Scandal**\
 `The former prime minister’s frenetic work for a failing finance company cast a harsh glare on both his character and ethics in British public life.`\
-https://nytimes.com/2021/05/13/world/europe/13uk-cameron-greensill-lobbying.html?searchResultPosition=3
+https://nytimes.com/2021/05/13/world/europe/david-cameron-greensill-lobbying.html?searchResultPosition=3
 
 **‘Spiral: From the Book of Saw’ Review: Slicing Up Bad Apples**\
 `This addition to the “Saw” universe stars Chris Rock as a misanthropic detective pitted against a Jigsaw copycat.`\
