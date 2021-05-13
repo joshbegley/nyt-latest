@@ -1,5 +1,5 @@
 **Biden Administration to Repeal Trump Rule Aimed at Curbing E.P.A.’s Power**\
-`The cost-benefit rule limited the way E.P.A. could justify clean air regulations. Its repeal will take effect within 30 days.`\
+`The cost-benefit rule limited the way the E.P.A. could justify clean air regulations. Its repeal will take effect within 30 days.`\
 https://nytimes.com/2021/05/13/climate/EPA-cost-benefit-pollution.html?searchResultPosition=1
 
 **4 Art Gallery Shows to See Right Now**\
