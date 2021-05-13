@@ -30,7 +30,7 @@ https://nytimes.com/2021/05/12/opinion/gun-laws-firearm.html?searchResultPositio
 `Because the judge ruled there were aggravating factors in the murder of George Floyd, he is allowed to sentence Derek Chauvin to up to double the 15-year state guideline.`\
 https://nytimes.com/2021/05/12/us/chauvin-sentence-george-floyd.html?searchResultPosition=9
 
-**Ohio Lottery to Give 5 People $1 Million Each to Promote Vaccination**\
+**Ohio Lottery to Give 5 People $1 Million Each to Encourage Vaccination**\
 `To bolster slumping demand for the vaccine, the state will use federal coronavirus relief funds to pay for a weekly lottery beginning May 26.`\
 https://nytimes.com/2021/05/12/us/ohio-lottery-coronavirus-vaccine.html?searchResultPosition=10
 
