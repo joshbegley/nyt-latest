@@ -7,7 +7,7 @@ https://nytimes.com/2021/05/12/us/politics/biden-cybersecurity-executive-order.h
 https://nytimes.com/2021/05/12/opinion/republicans-politics-trump.html?searchResultPosition=2
 
 **Yankees’ Virus Case Count Rises to Seven**\
-`Three coaches and four support staff members have tested positive as breakthrough cases among fully vaccinated people.`\
+`The team announced that three coaches and four support staff members had tested positive as breakthrough cases ahead of Wednesday’s win over Tampa Bay.`\
 https://nytimes.com/2021/05/12/sports/baseball/yankees-covid-cases.html?searchResultPosition=3
 
 **Tesla stops accepting Bitcoin as payment for its cars.**\
