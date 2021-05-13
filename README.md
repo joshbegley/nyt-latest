@@ -1,4 +1,4 @@
-**A Lingering Effectof the Pandemic: ‘Never-Ending’ Guilt**\
+**A Lingering Effect of the Pandemic: ‘Never-Ending’ Guilt**\
 `Many have felt unwarranted remorse over things they can’t control. Here’s how to stop the spiral.`\
 https://nytimes.com/2021/05/13/well/mind/covid-pandemic-guilt.html?searchResultPosition=1
 
