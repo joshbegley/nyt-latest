@@ -1,40 +1,40 @@
-**Mystery Boxes With Mail-Order Pets Set Off a Backlash in China**\
-`Puppies and kittens shipped in packages across the country have ended up dead, distressed or infected, spurring outrage.`\
-https://nytimes.com/2021/05/13/world/asia/china-live-animal-mystery-box.html?searchResultPosition=1
+**As India’s Covid Crisis Rages, Its Neighbors Brace for the Worst**\
+`Vaccine shortages, porous borders and fleeing migrant workers have nearby countries fearing that they will share India’s fate.`\
+https://nytimes.com/2021/05/13/world/asia/covid19-india-nepal-bangladesh-sri-lanka.html?searchResultPosition=1
 
-**Boeing Says F.A.A. Has Approved New Fix for 737 Max**\
-`The troubled jet resumed flying commercially in the United States late last year. But Boeing asked some airlines last month to stop flying some planes because of a potential electrical problem.`\
-https://nytimes.com/2021/05/13/business/boeing-737-max.html?searchResultPosition=2
+**‘I Feel Like I’m Just Drowning’: Surviving Sophomore Year 2020**\
+`A group of high school students try desperately to make it through an isolated and dire year.`\
+https://nytimes.com/2021/05/13/magazine/high-school-students-coronavirus-pandemic.html?searchResultPosition=2
 
-**Lesson of the Day: ‘‘‘Belonging Is Stronger Than Facts”: The Age of Misinformation’**\
-`In this lesson, students will learn about how social and psychological factors contribute to the spread of misinformation.`\
-https://nytimes.com/2021/05/13/learning/lesson-of-the-day-belonging-is-stronger-than-facts-the-age-of-misinformation.html?searchResultPosition=3
+**‘I Should Have Known Better’**\
+`Or perhaps not. We are navigating a new world of travel where planning for the unpredictable, more than ever, is part of the itinerary.`\
+https://nytimes.com/2021/05/13/travel/travel-planning-pandemic.html?searchResultPosition=3
 
-**New York Is Reawakening. It Just Needs Its Tourists Back.**\
-`After a year of staying away, visitors are trickling back. Now, city officials and business leaders are plotting ways to lure them in large numbers.`\
-https://nytimes.com/2021/05/13/nyregion/nyc-tourism-covid.html?searchResultPosition=4
+**A City Under Siege: What the War Looks Like on Afghanistan’s Front Line**\
+`As bullets from a Taliban machine gun ricocheted through the street below, an Afghan soldier wearing an “I Heart Kabul” T-shirt took a brief rest. “There has been fighting day and night.”`\
+https://nytimes.com/2021/05/13/world/afghanistan-helmand-taliban.html?searchResultPosition=4
 
-**Is He the Next Martha Stewart? ‘Not So Fast,’ Says Martha.**\
-`With a new book about a year at his stylish upstate farm, the ceramist Christopher Spitzmiller tries on the mantle of the lifestyle pundit.`\
-https://nytimes.com/2021/05/13/fashion/is-he-the-next-martha-stewart-not-so-fast-says-martha.html?searchResultPosition=5
+**When Sources Stand Together: Reporting on the Willows Inn**\
+`A Times food journalist who revealed accusations of misconduct at the restaurant in Washington State discusses how employees came to tell their story.`\
+https://nytimes.com/2021/05/13/insider/willows-inn-reporter.html?searchResultPosition=5
 
-**That ‘Ziwe’ Look**\
-`On her new Showtime series, Ziwe Fumudoh’s feminine-with-a-wink style enables her sharp comedy.`\
-https://nytimes.com/2021/05/13/fashion/that-ziwe-look.html?searchResultPosition=6
+**What I Learned About Democracy From the Movies**\
+`Seven films that paint a portrait of America in all its contradictions, inconsistencies and outright delusions.`\
+https://nytimes.com/2021/05/13/movies/democracy-dark-knight-wolf-wall-street.html?searchResultPosition=6
 
-**What We Learned From a Year of Crafting**\
-`Making things — masks, quilts, ceramics, mandalas — was a practical and sometimes political response to the moment.`\
-https://nytimes.com/2021/05/13/style/craft-boom.html?searchResultPosition=7
+**How Klobuchar and Hawley See Things When It Comes to Technology**\
+`The senators are on opposite sides of the aisle, but both speak out on the dangers of big tech in their new books. It’s weird, really, how alike they sound.`\
+https://nytimes.com/2021/05/13/books/amy-klobuchar-antitrust-josh-hawley-tyranny-big-tech.html?searchResultPosition=7
 
-**Talking to Strangers**\
-`Tell us a story, real or made up, inspired by this image and theme.`\
-https://nytimes.com/2021/05/13/learning/talking-to-strangers.html?searchResultPosition=8
+**White House Is Said to Quietly Push Change to D.C. Statehood Bill**\
+`The deliberations over the long-shot bill center on three Electoral College votes the Constitution gives to the seat of government.`\
+https://nytimes.com/2021/05/13/us/politics/biden-dc-statehood.html?searchResultPosition=8
 
-**A Selection of Crafts Made by Times Readers**\
-`We asked readers to send photos of the things they made over the pandemic. Here is a sampling.`\
-https://nytimes.com/slideshow/2021/05/13/style/crafts.html?searchResultPosition=9
+**Antidepressants Almost Cost This Olympian Her Career**\
+`Brenda Martinez, one of the top track and field athletes in the United States, inadvertently tested positive for a banned substance under World Anti-Doping Agency rules.`\
+https://nytimes.com/2021/05/13/opinion/brenda-martinez-doping-depression-olympics.html?searchResultPosition=9
 
-**In This Trippy Family Drama, Trauma Runs Deep**\
-`After two canceled Paris runs, a highly awaited production of Robert Walser’s “The Pond,” starring Adèle Haenel, finally made it to the stage in Switzerland.`\
-https://nytimes.com/2021/05/13/theater/drama-the-pond-switzerland.html?searchResultPosition=10
+**As Trillions Flow Out the Door, Stimulus Oversight Faces Challenges**\
+`A sprawling system meant to police trillions of dollars is showing signs of strain as watchdogs warn of waste, fraud and abuse.`\
+https://nytimes.com/2021/05/13/us/politics/pandemic-relief-funds-oversight.html?searchResultPosition=10
 
