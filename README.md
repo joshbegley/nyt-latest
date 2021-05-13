@@ -1,9 +1,9 @@
 **Coinbase made $771 million in profit in the first quarter, benefiting from cryptocurrency mania.**\
-`By Kellen Browning`\
+`The company said rivals were swarming the market and increasing competition and that it was spending heavily on marketing and development to keep ahead of its competitors.`\
 https://nytimes.com/2021/05/13/technology/coinbase-profit.html?searchResultPosition=1
 
-**Disney’s streaming service slows, coloring company’s profitable quarter**\
-`By Brooks Barnes`\
+**Disney’s streaming service slows, coloring the company’s profitable quarter.**\
+`Disney’s theme parks lost $400 million even as the company made close to a billion dollars in profit.`\
 https://nytimes.com/2021/05/13/business/disney-plus-earnings.html?searchResultPosition=2
 
 **One by one, Washington begins to unmask.**\
