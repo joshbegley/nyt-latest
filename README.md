@@ -1,5 +1,5 @@
 **Tiger That Startled a West Houston Neighborhood Remains Missing**\
-`The man linked to the missing tiger, Victor Hugo Cuevas, was released from jail on Wednesday after being charged with evading arrest.`\
+`A man linked to the tiger, which was last seen on Sunday, was released from jail on Wednesday after being charged with evading arrest.`\
 https://nytimes.com/2021/05/13/us/tiger-missing-houston.html?searchResultPosition=1
 
 **As Economy Wobbles, Biden Stays Focused on Longer Term**\
