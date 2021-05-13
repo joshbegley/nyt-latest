@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/13/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=1
 
 **As Ethiopia Fights in Tigray Region, a Crackdown on Journalists**\
-`Authorities have detained journalists without charges and revoked the accreditation of a New York Times reporter.`\
+`Authorities have detained journalists without charges and revoked the accreditation of a reporter for The New York Times.`\
 https://nytimes.com/2021/05/13/world/africa/ethiopia-tigray-journalists.html?searchResultPosition=2
 
 **Scientists Urge Air Quality Changes in the Workplace, in Wake of Pandemic**\
