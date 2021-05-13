@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/12/opinion/gun-laws-firearm.html?searchResultPositio
 
 **Chauvin May Face Longer Sentence Over ‘Cruel’ Actions and Abuse of Power**\
 `Because the judge ruled there were aggravating factors in the murder of George Floyd, he is allowed to sentence Derek Chauvin to up to double the 15-year state guideline.`\
-https://nytimes.com/2021/05/12/us/chauvin-sentence-aggravating-factors.html?searchResultPosition=5
+https://nytimes.com/2021/05/12/us/chauvin-sentence-george-floyd.html?searchResultPosition=5
 
 **Ohio Lottery Will Give Five People $1 Million Each to Get Vaccinated**\
 `To bolster slumping demand for the vaccine, the state will use federal coronavirus relief funds to pay for a weekly lottery beginning May 26.`\
