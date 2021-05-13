@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/13/us/eid-al-fitr-traditions-recipes.html?searchResultPosition=1
 
 **Activists and Ex-Spy Said to Have Plotted to Discredit Trump ‘Enemies’ in Government**\
-`The campaign included planned operations against President Trump’s national security at the time, H.R. McMaster, and F.B.I. employees, according to documents and interviews.`\
+`The campaign included planned operations against President Trump’s national security adviser at the time, H.R. McMaster, and F.B.I. employees, according to documents and interviews.`\
 https://nytimes.com/2021/05/13/us/politics/mcmaster-fbi-trump-project-veritas.html?searchResultPosition=2
 
 **Clashing Views on Israel and Gaza**\
