@@ -18,7 +18,7 @@ https://nytimes.com/2021/05/13/technology/colonial-pipeline-ransom.html?searchRe
 `Republicans are scheduled to meet Friday morning to select Ms. Cheney’s replacement as chair of the House Republican Conference.`\
 https://nytimes.com/2021/05/13/us/politics/chip-roy-stefanik-cheney.html?searchResultPosition=5
 
-**Coinbase made $771 million in profit in the first quarter, benefiting from cryptocurrency mania.**\
+**Coinbase made $771 million in profit in the first quarter, benefiting from crypto mania.**\
 `The company said rivals were swarming the market and increasing competition and that it was spending heavily on marketing and development to keep ahead of its competitors.`\
 https://nytimes.com/2021/05/13/technology/coinbase-profit.html?searchResultPosition=6
 
