@@ -32,5 +32,5 @@ https://nytimes.com/2021/05/12/opinion/international-world/colombia-protests-bid
 
 **Crime and Controversy: Candidates Prepare to Face Off in Mayoral Debate**\
 `The two-hour debate is unfolding in a moment of economic uncertainty for New York City, and against a backdrop of a spike in gun violence.`\
-https://nytimes.com/2021/05/12/nyregion/nyc-mayor-debate-preview.html?searchResultPosition=10
+https://nytimes.com/2021/05/12/nyregion/nyc-mayor-debate.html?searchResultPosition=10
 
