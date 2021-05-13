@@ -26,15 +26,15 @@ https://nytimes.com/slideshow/2021/05/13/style/crafts.html?searchResultPosition=
 `After two canceled Paris runs, a highly awaited production of Robert Walser’s “The Pond,” starring Adèle Haenel, finally made it to the stage in Switzerland.`\
 https://nytimes.com/2021/05/13/theater/drama-the-pond-switzerland.html?searchResultPosition=7
 
+**Instagram blocked posts about the Aqsa Mosque in a terrorism screening error.**\
+`The social media network said it had mistakenly associated hashtags linked to the Jerusalem site with a terrorist organization.`\
+https://nytimes.com/2021/05/13/world/middleeast/instagram-aqsa-mosque.html?searchResultPosition=8
+
 **Word of the Day: quintessence**\
 `This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/13/learning/word-of-the-day-quintessence.html?searchResultPosition=8
+https://nytimes.com/2021/05/13/learning/word-of-the-day-quintessence.html?searchResultPosition=9
 
 **Jimmy Kimmel Finds Irony in the G.O.P. Vote to Cancel Liz Cheney**\
 `“I’m confused — I thought these guys hated cancel culture,” Kimmel said after the Republicans ousted Cheney from her leadership position in the House on Wednesday.`\
-https://nytimes.com/2021/05/13/arts/television/late-night-republicans-liz-cheney.html?searchResultPosition=9
-
-**Police Officer Is Shot While Responding to Gunfire in Brooklyn**\
-`The officer was in stable condition and a suspect was in custody after a confrontation on Howard Avenue near the border of Bushwick and Bedford-Stuyvesant, the authorities said.`\
-https://nytimes.com/2021/05/13/nyregion/nypd-officer-shot-brooklyn.html?searchResultPosition=10
+https://nytimes.com/2021/05/13/arts/television/late-night-republicans-liz-cheney.html?searchResultPosition=10
 
