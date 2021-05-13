@@ -6,9 +6,9 @@ https://nytimes.com/2021/05/13/nyregion/trump-employee-gifts.html?searchResultPo
 `Having fueled mistrust in elections, Republicans are pointing to voters’ fears to justify new voting laws.`\
 https://nytimes.com/2021/05/13/us/politics/republican-voting-laws.html?searchResultPosition=2
 
-**In Survey, Epidemiologists Saw Continued Need for Masks**\
-`The C.D.C. said Thursday that vaccinated Americans no longer needed masks in most places. Other disease experts recently a different message: that masks were necessary in public for at least another year.`\
-https://nytimes.com/2021/05/13/upshot/in-survey-epidemiologists-saw-continued-need-for-masks.html?searchResultPosition=3
+**Hundreds of Epidemiologists Expected Mask-Wearing in Public for at Least a Year**\
+`The C.D.C. said Thursday that vaccinated Americans no longer needed masks in most places. Other disease experts recently had a different message: that masks were necessary in public.`\
+https://nytimes.com/2021/05/13/upshot/hundreds-of-epidemiologists-expected-mask-wearing-in-public-for-at-least-a-year.html?searchResultPosition=3
 
 **Tensions Remain High Between Arabs and Jews in Israel**\
 `Fighting has broken out in the streets between Israeli Jews and members of the Arab minority with warnings from Israeli leaders that the conflict risks spiraling out of control.`\
