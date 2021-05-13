@@ -14,23 +14,23 @@ https://nytimes.com/2021/05/12/opinion/republicans-politics-trump.html?searchRes
 `The team announced that three coaches and four support staff members had tested positive as breakthrough cases ahead of Wednesday’s win over Tampa Bay.`\
 https://nytimes.com/2021/05/12/sports/baseball/yankees-covid-cases.html?searchResultPosition=4
 
+**WeWork’s CEO says ‘least engaged’ employees enjoy working from home.**\
+`Sandeep Mathrani’s comments at a Wall Street Journal event prompted intense debate on Twitter.`\
+https://nytimes.com/2021/05/12/world/wework-ceo-work-from-home.html?searchResultPosition=5
+
 **Tesla stops accepting Bitcoin as payment for its cars.**\
 `Elon Musk, Tesla’s chief executive, blamed the amount of energy, increasingly generated from fossil fuels, used by Bitcoin.`\
-https://nytimes.com/2021/05/12/automobiles/tesla-bitcoin.html?searchResultPosition=5
+https://nytimes.com/2021/05/12/automobiles/tesla-bitcoin.html?searchResultPosition=6
 
 **Communal Anger Boils Over in Israel**\
 `Anger has escalated into street violence in parts of the country as Palestinian citizens have protested against the military operation in Gaza and systemic discrimination, clashing with the police and Israeli Jews.`\
-https://nytimes.com/video/world/middleeast/100000007760146/israel-palestinians-protest.html?searchResultPosition=6
+https://nytimes.com/video/world/middleeast/100000007760146/israel-palestinians-protest.html?searchResultPosition=7
 
 **Who Sold That Gun? Nobody’s Telling.**\
 `Amazing the things our government keeps secret.`\
-https://nytimes.com/2021/05/12/opinion/gun-laws-firearm.html?searchResultPosition=8
+https://nytimes.com/2021/05/12/opinion/gun-laws-firearm.html?searchResultPosition=9
 
 **Chauvin May Face Longer Sentence Over ‘Cruel’ Actions and Abuse of Power**\
 `Because the judge ruled there were aggravating factors in the murder of George Floyd, he is allowed to sentence Derek Chauvin to up to double the 15-year state guideline.`\
-https://nytimes.com/2021/05/12/us/chauvin-sentence-george-floyd.html?searchResultPosition=9
-
-**Ohio Lottery to Give 5 People $1 Million Each to Encourage Vaccination**\
-`To bolster slumping demand for the vaccine, the state will use federal coronavirus relief funds to pay for a weekly lottery beginning May 26.`\
-https://nytimes.com/2021/05/12/us/ohio-lottery-coronavirus-vaccine.html?searchResultPosition=10
+https://nytimes.com/2021/05/12/us/chauvin-sentence-george-floyd.html?searchResultPosition=10
 
