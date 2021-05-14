@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/14/sports/baseball/mlb-players-union-grievance.html?
 
 **In Stefanik, G.O.P. Installs a Trump Convert Who Reflects the Party’s Shift**\
 `Once a moderate, Representative Elise Stefanik of New York, the party’s new No. 3 in the House, tacked to the right as her party and district rallied behind Donald J. Trump.`\
-https://nytimes.com/2021/05/14/us/politics/stefanik-trump-republican.html?searchResultPosition=4
+https://nytimes.com/2021/05/14/us/politics/stefanik-trump.html?searchResultPosition=4
 
 **Arab World Condemns Israeli Violence but Takes Little Action**\
 `By saying it is defending Jerusalem, Hamas has made it harder for Arab countries not to denounce Israel. But in a changed region, the response so far has been rhetorical only.`\
@@ -23,7 +23,7 @@ https://nytimes.com/2021/05/14/world/europe/arab-condemnation-israeli-violence.h
 https://nytimes.com/2021/05/14/us/martin-bashir-bbc-princess-diana.html?searchResultPosition=6
 
 **In Israel’s Rising Violence, Ripples From 1948**\
-`The town of Lydda posed an early test of how the Israeli state would treat Palestinians. It is a legacy playing out today in communal violence in Lod, as it’s now known.`\
+`The town of Lydda posed an early test of how the Israeli state would treat Palestinians. It is a legacy playing out today in violence between Jews and Arabs in Lod, as it’s now known.`\
 https://nytimes.com/2021/05/14/world/asia/israel-palestinian-Lydda.html?searchResultPosition=7
 
 **Biden meets with DACA recipients as his administration grapples with the border surge.**\
