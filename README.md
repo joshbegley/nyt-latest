@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/14/us/politics/stefanik-trump.html?searchResultPosit
 
 **Arab World Condemns Israeli Violence but Takes Little Action**\
 `By saying it is defending Jerusalem, Hamas has made it harder for Arab countries not to denounce Israel. But in a changed region, the response so far has been rhetorical only.`\
-https://nytimes.com/2021/05/14/world/middleeast/arab-condemnation-israeli-violence.html?searchResultPosition=6
+https://nytimes.com/2021/05/14/world/middleeast/israel-arab.html?searchResultPosition=6
 
 **Martin Bashir Leaves BBC Amid Inquiry Into His Interview With Princess Diana**\
 `Mr. Bashir’s departure from the nation’s public broadcaster comes as it prepares to publish the findings of an investigation into accusations that he used deceptive tactics to land a major interview with Diana in 1995.`\
