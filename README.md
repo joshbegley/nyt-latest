@@ -1,5 +1,5 @@
 **A Younger Set of New Yorkers Get Their First Shots**\
-`What 12-to-15-year-olds had to say as they received their first doses: “I’ll tell generations after me how we got through this.” `\
+`What 12-to-15-year-olds had to say as they received their  doses: “I’ll tell generations after me how we got through this.” `\
 https://nytimes.com/2021/05/14/nyregion/vaccination-coronavirus-children-nyc.html?searchResultPosition=1
 
 **Uruguay has the world’s highest death toll per capita as the virus slams South America.**\
