@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/14/world/asia/singapore-covid-restrictions.html?sear
 `Ma Thuzar Wint Lwin hopes to use her international platform as a pageant contestant to criticize the country’s military coup and support the pro-democracy movement.`\
 https://nytimes.com/2021/05/14/world/asia/myanmar-coup-miss-universe.html?searchResultPosition=3
 
-**A Younger Set of New Yorkers Get Their First Shots**\
+**First Shots for a Younger Set of New Yorkers**\
 `What 12-to-15-year-olds had to say as they received their  doses: “I’ll tell generations after me how we got through this.” `\
 https://nytimes.com/2021/05/14/nyregion/vaccination-coronavirus-children-nyc.html?searchResultPosition=4
 
