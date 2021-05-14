@@ -1,6 +1,6 @@
 **Biden revokes more of Trump’s executive actions, including moves on immigration and monuments.**\
 `The actions represented a broad repudiation of former President Donald J. Trump, and his practice of using executive orders to advance his political agenda.`\
-https://nytimes.com/2021/05/14/us/politics/rollback-trump-executive-orders-biden.html?searchResultPosition=1
+https://nytimes.com/2021/05/14/us/politics/biden-executive-orders-trump.html?searchResultPosition=1
 
 **M.L.B. and Players’ Union File Grievances Against Each Other**\
 `With their collective bargaining agreement expiring in December, the players are seeking $500 million for the shortened 2020 season.`\
@@ -18,8 +18,8 @@ https://nytimes.com/2021/05/14/world/europe/arab-condemnation-israeli-violence.h
 `Mr. Bashir’s departure from the nation’s public broadcaster comes as it prepares to publish the findings of an investigation into accusations that he used deceptive tactics to land a major interview with Diana in 1995.`\
 https://nytimes.com/2021/05/14/us/martin-bashir-bbc-princess-diana.html?searchResultPosition=5
 
-**In Clash of Israeli Arabs and Jews, Ripples From 1948**\
-`Just after Israel’s modern birth, the town of Lydda posed a test of how the state would treat some Palestinian communities. It is a legacy playing out today in mob attacks in Lod, as it’s now known.`\
+**In Israel’s Rising Violence, Ripples From 1948**\
+`The town of Lydda posed an early test of how the Israeli state would treat Palestinians. It is a legacy playing out today in communal violence in Lod, as it’s now known.`\
 https://nytimes.com/2021/05/14/world/asia/israel-palestinian-Lydda.html?searchResultPosition=6
 
 **Biden meets with DACA recipients as his administration grapples with the border surge.**\
