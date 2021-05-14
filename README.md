@@ -36,5 +36,5 @@ https://nytimes.com/2021/05/14/science/betta-fish-breeds.html?searchResultPositi
 
 **The variant first detected in India is forcing the U.K. to rethink its approach.**\
 `British officials are considering targeted vaccinations and renewed restrictions after the number of cases of the variant tripled in just over a week.`\
-https://nytimes.com/2021/05/14/world/the-variant-first-detected-in-india-is-forcing-the-uk-to-rethink-its-approach.html?searchResultPosition=10
+https://nytimes.com/2021/05/14/world/uk-covid-india.html?searchResultPosition=10
 
