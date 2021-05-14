@@ -1,40 +1,40 @@
-**A Barcelona Star on Style, Substance and Another Champions League Final**\
-`Lieke Martens and Barcelona will face Chelsea on Sunday. Both have their sights set on raising the standard for success in the women’s game.`\
-https://nytimes.com/2021/05/14/sports/soccer/champions-league-women-barcelona-chelsea-lieke-martens.html?searchResultPosition=1
+**Uruguay has the world’s highest death toll per capita as the virus slams South America.**\
+`Contagion rates in the country began inching up in November and soared in recent months, apparently fueled by a highly contagious variant first identified in Brazil.`\
+https://nytimes.com/2021/05/14/world/americas/uruguay-covid-south-america.html?searchResultPosition=1
 
-**The Math of Ending the Pandemic: Exponential Growth and Decay**\
-`In this lesson, students will explore how the mathematical concepts of exponential growth and exponential decay help to explain the spread and slowdown of the coronavirus.`\
-https://nytimes.com/2021/05/14/learning/the-math-of-ending-the-pandemic-exponential-growth-and-decay.html?searchResultPosition=2
+**The Hamptons Boom Continues**\
+`Home sales and rentals on the East End of Long Island picked up at the beginning of the pandemic and are still going strong.`\
+https://nytimes.com/2021/05/14/realestate/hamptons-real-estate-sales.html?searchResultPosition=2
 
-**From Newsroom to Classroom: When Times Staff Members Double as Professors**\
-`While teaching important skills and values to the next generation, they also find opportunities to learn.`\
-https://nytimes.com/2021/05/14/insider/journalists-professors-teaching.html?searchResultPosition=3
+**The Busy East End**\
+`Many second home owners in the Hamptons have spent most of the pandemic out east.`\
+https://nytimes.com/slideshow/2021/05/14/realestate/the-busy-east-end.html?searchResultPosition=3
 
-**The Moon, Mars and Beyond: China’s Ambitious Plans in Space**\
-`An upcoming Mars landing is one of many high-profile missions on the country’s schedule as it seeks to challenge American dominance of space exploration.`\
-https://nytimes.com/article/china-mars-space.html?searchResultPosition=4
+**Spy Agencies Seek New Afghan Allies as U.S. Withdraws**\
+`The move signals an acknowledgment by Western intelligence agencies that they are preparing for the likely collapse of the central government and a return to civil war.`\
+https://nytimes.com/2021/05/14/world/asia/afghanistan-massoud-cia.html?searchResultPosition=4
 
-**Beneath Joe Biden’s Folksy Demeanor, a Short Fuse and an Obsession With Details**\
-`As Mr. Biden settles into the office he has chased for more than three decades, aides say he demands hours of debate from scores of policy experts.`\
-https://nytimes.com/2021/05/14/us/politics/joe-biden-policy-decisions.html?searchResultPosition=5
+**Forget Back Stage Passes or V.I.P. Bracelets. Vaccination Cards Are the New Ticket.**\
+`Tossing their masks, jumping on side-by-side treadmills, sharing peanuts next to fellow sports fans, the vaccinated find special freedoms await.`\
+https://nytimes.com/2021/05/14/health/vaccine-requirement-business-perks.html?searchResultPosition=5
 
-**He’s a Dogecoin Millionaire. And He’s Not Selling.**\
-`Glauber Contessoto went looking for something that could change his fortunes overnight. He found it in a joke cryptocurrency.`\
-https://nytimes.com/2021/05/14/technology/hes-a-dogecoin-millionaire-and-hes-not-selling.html?searchResultPosition=6
+**Meet the Nun Who Wants You to Remember You Will Die**\
+`Suffering and death are facts of life: “Everyone dies, their bodies rot, and every face becomes a skull.”`\
+https://nytimes.com/2021/05/14/us/memento-mori-nun.html?searchResultPosition=6
 
-**Expert Picks: Who Will Win the Preakness?**\
-`Joe Drape and Melissa Hoppert look at the contenders for the 146th Preakness Stakes.`\
-https://nytimes.com/2021/05/14/sports/horse-racing/preakness-odds-picks-predictions.html?searchResultPosition=7
+**Lies on Social Media Inflame Israeli-Palestinian Conflict**\
+`Misinformation has flourished on Twitter, TikTok, Facebook and other social media about the violence between Israelis and Palestinians.`\
+https://nytimes.com/2021/05/14/technology/misinformation-israeli-palestinian-conflict.html?searchResultPosition=7
 
-**Packing**\
-`What do you think this image is saying?`\
-https://nytimes.com/2021/05/14/learning/packing.html?searchResultPosition=8
+**What You Didn’t Know About Barkley L. Hendricks**\
+`The less celebrated side of the artist’s career, his photographs, receive deserved attention in a new book.`\
+https://nytimes.com/2021/05/14/arts/design/barkley-l-hendricks-photography-book.html?searchResultPosition=8
 
-**Word of the Day: rescind**\
-`This word has appeared in 115 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/14/learning/word-of-the-day-rescind.html?searchResultPosition=9
+**Immerse Yourself in Indigenous Culture**\
+`From Virginia to California, these eight parks, heritage centers and open-air exhibits offer fresh opportunities to confront the history and the present-day realities of Native Americans.`\
+https://nytimes.com/2021/05/14/travel/immerse-yourself-in-indigenous-culture.html?searchResultPosition=9
 
-**Jimmy Fallon Is Psyched About Going Maskless**\
-`“Yeah, if you are fully vaccinated, you can go back to doing the things you did before the pandemic,” Fallon said. “Well, not everything — if you’re Trump, you still can’t tweet.”`\
-https://nytimes.com/2021/05/14/arts/television/late-night-jimmy-fallon-masks-vaccine-lottery.html?searchResultPosition=10
+**A ‘Friend of Tom’ or ‘Can’t Be Bothered’: One Man’s Rules at Bank of America**\
+`Thomas K. Montag, the bank’s No. 2 executive, has long run its markets and corporate banking division with favoritism and an iron fist, employees say.`\
+https://nytimes.com/2021/05/14/business/bank-of-america-tom-montag.html?searchResultPosition=10
 
