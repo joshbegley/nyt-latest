@@ -1,5 +1,5 @@
 **N.Y.C. Mayoral Candidates Keep Focus on Crime After a Feisty Debate**\
-`Back on the campaign trail, the leading Democrats in the race continued to trade barbs over who had the best plan for ensuring public safety.`\
+`Back on the campaign trail, the leading Democrats traded barbs over their competing visions for public safety.`\
 https://nytimes.com/2021/05/14/nyregion/nyc-crime-mayoral-race.html?searchResultPosition=1
 
 **Democrats Move Closer to Setting Up Jan. 6 Commission, With or Without G.O.P.**\
