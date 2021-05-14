@@ -36,5 +36,5 @@ https://nytimes.com/video/world/middleeast/100000007763471/gaza-destruction-isra
 
 **Rash of Subway Attacks Raises Worries With 24-Hour Service Set to Return**\
 `Hours after mayoral candidates clashed over how to address crime in the transit system, the police reported a series of early-morning assaults.`\
-https://nytimes.com/2021/05/14/nyregion/subway-crime-mayoral-race.html?searchResultPosition=10
+https://nytimes.com/2021/05/14/nyregion/train-attacks-subway-mta.html?searchResultPosition=10
 
