@@ -19,7 +19,7 @@ https://nytimes.com/2021/05/15/world/asia/afghanistan-ceasefire-eid.html?searchR
 https://nytimes.com/2021/05/15/us/politics/republican-voting-bills-poll-workers.html?searchResultPosition=5
 
 **An Everest expedition abandons base camp after several climbers test positive for coronavirus.**\
-`As many as 150 people at base camp have been diagnosed with the virus this month, a climbing company official estimated.`\
+`Anyone who becomes infected “at high altitude, then develops symptoms and becomes ill, is very difficult to help,” a climbing company official said.`\
 https://nytimes.com/2021/05/15/world/covid-test-positive-everest-climbers.html?searchResultPosition=6
 
 **Should We Really Embrace ’90s Fashion?**\
