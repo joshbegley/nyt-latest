@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/15/sports/preakness-party-infield-jack-harlow.html?s
 
 **Fall River Ex-Mayor, Who Impressed Voters With His Zeal, Is Convicted of Corruption**\
 `Jasiel F. Correia II, who at 24 was the Massachusetts city’s youngest mayor, was convicted of charges related to extorting marijuana vendors and defrauding investors.`\
-https://nytimes.com/2021/05/15/us/massachusetts-mayor-bribes-marijuana.html?searchResultPosition=3
+https://nytimes.com/2021/05/15/us/jasiel-correia-massachusetts-mayor-corruption.html?searchResultPosition=3
 
 **Leigh Perkins, Who Built Orvis Into a Lifestyle Brand, Dies at 93**\
 `In 28 years at the company’s helm, he turned a small mail-order fishing tackle shop into a sporting brand with stores all over the country.`\
