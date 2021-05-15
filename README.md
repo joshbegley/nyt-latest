@@ -1,6 +1,6 @@
 **Violence in an Israeli town carries bitter echoes of 1948 for Palestinians.**\
 `By Max Fisher`\
-https://nytimes.com/2021/05/15/world/middleeast/violence-in-an-israeli-town-carries-bitter-echoes-of-1948-for-palestinians.html?searchResultPosition=1
+https://nytimes.com/2021/05/15/world/middleeast/lydda-israel-palestine-conflict.html?searchResultPosition=1
 
 **Variety: Puns and Anagrams**\
 `Andrew J. Ries disarms us with an inventive variety crossword.`\
