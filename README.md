@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/15/us/SAT-scores-uc-university-of-california.html?se
 `Andre Hill’s family announced the settlement with the city of Columbus, Ohio, on Friday. Mr. Hill, a Black man, was fatally shot in December by a police officer while in a garage. The officer has been charged with murder.`\
 https://nytimes.com/video/us/100000007764683/andre-hill-family-settlement-columbus-police.html?searchResultPosition=2
 
-**Biden pleads for protection of civilians and journalists in calls with Israel and Palestinian leaders.**\
+**Biden calls for protection of civilians and journalists in calls with Israel and Palestinian leaders.**\
 `President Biden backed Israel’s right to defend itself while urging the nation to protect civilians after the Israeli military destroyed a building housing the offices of journalists.`\
 https://nytimes.com/2021/05/15/world/middleeast/biden-netanyahu-abbas-palestine-gaza-israel.html?searchResultPosition=3
 
