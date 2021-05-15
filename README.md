@@ -34,7 +34,7 @@ https://nytimes.com/2021/05/15/world/middleeast/biden-netanyahu-abbas-palestine-
 `These are the morning-line odds for the 146th running of the race.`\
 https://nytimes.com/2021/05/15/sports/preakness-watch-odds.html?searchResultPosition=9
 
-**Stores, Parks and Restaurants Are Relaxing Their Mask Policies: Here’s the Latest**\
-`The new C.D.C. rules caught businesses by surprise, but in a matter of days, some moved to change their requirements.`\
-https://nytimes.com/2021/05/15/business/starbucks-mask-mandate.html?searchResultPosition=10
+**Fans are back, but Preakness attendance is capped at 10,000.**\
+`Despite the latest C.D.C. guidance, masks were required when not eating and drinking at the Preakness, and “Covid compliance officers” were reminding guests to adhere to the policies.`\
+https://nytimes.com/2021/05/15/sports/preakness-fans-attendance-cap-covid.html?searchResultPosition=10
 
