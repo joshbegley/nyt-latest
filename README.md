@@ -1,5 +1,5 @@
 **After Years of Quiet, Israeli-Palestinian Conflict Exploded. Why Now?**\
-`A little-noticed police action in Jerusalem last month was one of several actions that led to the current crisis.`\
+`A little-noticed police action in Jerusalem last month was one of several incidents that led to the current crisis.`\
 https://nytimes.com/2021/05/15/world/middleeast/israel-palestinian-gaza-war.html?searchResultPosition=1
 
 **Israel Strikes Gaza Tower Housing A.P. and Other News Media**\
