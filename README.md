@@ -2,7 +2,7 @@
 `A reader wonders about wearing 1990s trends today.`\
 https://nytimes.com/2021/05/15/style/90s-fashion.html?searchResultPosition=1
 
-**Greek Neo-Nazi, a Member of Europe’s Parliament, Sent to Face Prison**\
+**Greek Neo-Nazi, a Member of Europe’s Parliament, Sent to Prison**\
 `Ioannis Lagos was a leading member of the extreme-right and now-defunct Golden Dawn, which rose to prominence in Greece’s Parliament in 2012 at the peak of the country’s financial crisis.`\
 https://nytimes.com/2021/05/15/world/europe/greece-neo-nazi-golden-dawn.html?searchResultPosition=2
 
