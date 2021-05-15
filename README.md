@@ -18,7 +18,7 @@ https://nytimes.com/2021/05/15/world/asia/afghanistan-ceasefire-eid.html?searchR
 `Heavy fines, felony charges and jail sentences: Republicans seeking to restrict voting are proposing strict punishments for election officials and workers who make errors or violate the rules.`\
 https://nytimes.com/2021/05/15/us/politics/republican-voting-bills-poll-workers.html?searchResultPosition=5
 
-**An Everest expedition abandons base camp after several climbers test positive for coronavirus.**\
+**An Everest expedition abandons base camp after several climbers test positive for the coronavirus.**\
 `Anyone who becomes infected “at high altitude, then develops symptoms and becomes ill, is very difficult to help,” a climbing company official said.`\
 https://nytimes.com/2021/05/15/world/covid-test-positive-everest-climbers.html?searchResultPosition=6
 
