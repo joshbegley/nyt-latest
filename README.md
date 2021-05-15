@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/15/opinion/noise-bias-kahneman.html?searchResultPosi
 `Afghanistan shows that change comes through teachers as well as troops.`\
 https://nytimes.com/2021/05/15/opinion/sunday/afghanistan-girls-education.html?searchResultPosition=3
 
-**Hacked Pipeline is Now Delivering ‘Millions of Gallons’ an Hour, Owner Says**\
+**Hacked Pipeline Is Now Delivering ‘Millions of Gallons’ an Hour, Owner Says**\
 `But it will still take days for gas stations in the Southeast to restock after panic buying depleted their supplies.`\
 https://nytimes.com/2021/05/15/business/colonial-pipeline-hack-southeast.html?searchResultPosition=4
 
