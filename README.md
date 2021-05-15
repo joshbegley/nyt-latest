@@ -1,5 +1,5 @@
 **The sport is waiting for a second Medina Spirit test result. Why is it taking so long?**\
-`The wait could set up an awkward situation if Medina Spirit were to win the Preakness, the second leg of the Triple Crown, and move on to the Belmont Stakes on June 5.`\
+`The wait could have set up an awkward situation if Medina Spirit had won the Preakness, the second leg of the Triple Crown.`\
 https://nytimes.com/2021/05/15/sports/horse-racing/medina-spirit-drug-test-bob-baffert.html?searchResultPosition=1
 
 **Mask? No Mask? New Rules Leave Americans Recalibrating, Hour by Hour**\
