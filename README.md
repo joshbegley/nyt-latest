@@ -10,8 +10,8 @@ https://nytimes.com/2021/05/16/world/cdc-director-unvaccinated-masks.html?search
 `Mr. Adams, the Brooklyn borough president, has called money the “enemy of politics.” But his fund-raising has repeatedly pushed the boundaries of campaign-finance and ethics laws.`\
 https://nytimes.com/2021/05/16/nyregion/eric-adams-fund-raising.html?searchResultPosition=3
 
-**Civilians Pay a High Price as Israel and Hamas Fight**\
-`The deaths raise urgent questions about which military actions are legal, what war crimes are being committed and who, if anyone, will be held to account.`\
+**When Fighting Erupts Between Israel and Gaza, Charges of War Crimes Follow**\
+`Civilian deaths on both sides raise urgent questions about which military actions are legal, what war crimes are being committed and who, if anyone, will be held to account.`\
 https://nytimes.com/2021/05/16/world/middleeast/israel-gaza-hamas-civilian-casualties.html?searchResultPosition=4
 
 **Bleachers collapsed inside a crowded synagogue, injuring about 100.**\
