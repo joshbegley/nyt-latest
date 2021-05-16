@@ -1,5 +1,5 @@
-**The fighting halted Covid shots in Gaza and could spread the virus, the U.N. warns.**\
-`U.N. officials see the possibility of the virus spreading among Gazans cramming into shelters during Israeli airstrikes.`\
+**The assault on Gaza halts Covid shots and could spread the virus, U.N. officials warn.**\
+`The officials see the possibility of the virus spreading among unvaccinated Gazans cramming into shelters during Israeli airstrikes.`\
 https://nytimes.com/2021/05/16/world/middleeast/israel-gaza-covid-vaccines-un.html?searchResultPosition=1
 
 **Homes That Sold for Under $500,000**\
