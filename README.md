@@ -22,7 +22,7 @@ https://nytimes.com/2021/05/16/opinion/israel-netanyahu-hamas.html?searchResultP
 `Players can customize their own worlds on the platform. Many illegally upload songs — called “bypassing audio” — and some make intense tracks in a new genre, robloxcore.`\
 https://nytimes.com/2021/05/16/arts/music/roblox-video-game-music.html?searchResultPosition=6
 
-**Dozens More Killed in Israeli Airstrike as Gaza Violence Escalates Overnight**\
+**Dozens More Killed in Israeli Airstrike as Gaza Violence Escalates**\
 `An Israeli airstrike in Gaza killed at least 33 people and a separate strike bombed the home of Hamas’s leader. The militant group Hamas also fired rockets into Israel, as conflict continued into Sunday.`\
 https://nytimes.com/video/world/middleeast/100000007765262/gaza-sunday-israeli-airstrikes.html?searchResultPosition=7
 
