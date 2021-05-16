@@ -1,4 +1,4 @@
-**In Washington, thousands take part in pro-Palestinian protests.**\
+**In Washington, hundreds take part in pro-Palestinian protests.**\
 `News of the march to the U.S. Capitol spread largely through social media and word of mouth, including during Friday prayers at local mosques.`\
 https://nytimes.com/2021/05/15/world/protests-israel-washington.html?searchResultPosition=1
 
