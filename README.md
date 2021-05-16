@@ -30,11 +30,11 @@ https://nytimes.com/2021/05/16/arts/music/jack-terricloth-dead.html?searchResult
 `Gatlin was one of nine international athletes invited to participate in a test event in the Olympic Stadium. He came away with a win, and confidence that the Games could go ahead successfully.`\
 https://nytimes.com/2021/05/16/sports/tokyo-olympics-justin-gatlin.html?searchResultPosition=8
 
+**Netanyahu says there is no clear end in sight.**\
+`By Will Wright`\
+https://nytimes.com/2021/05/16/world/middleeast/netanyahu.html?searchResultPosition=9
+
 **From India, Brazil and Beyond: Pandemic Refugees at the Border**\
 `Fleeing virus-devastated economies, migrants are traveling long distances to reach the United States and then walking through gaps in the border wall. The Arizona desert has become a favorite crossing point.`\
-https://nytimes.com/2021/05/16/us/migrants-border-coronavirus-pandemic.html?searchResultPosition=9
-
-**Hollywood Has Finally Deemed Black Women Worthy of Feel-Good TV**\
-`The depiction of empowered, loving Black women in “Run the World” should not feel radical, but it is. `\
-https://nytimes.com/2021/05/16/opinion/culture/Run-the-World-Black-Women-TV.html?searchResultPosition=10
+https://nytimes.com/2021/05/16/us/migrants-border-coronavirus-pandemic.html?searchResultPosition=10
 
