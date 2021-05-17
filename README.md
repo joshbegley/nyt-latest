@@ -22,19 +22,19 @@ https://nytimes.com/2021/05/17/us/politics/child-tax-credit-payments.html?search
 `Kamala Harris, the first vice president of Asian descent, will talk about her heritage and call attention to recent hate crimes in a keynote speech.`\
 https://nytimes.com/2021/05/17/us/politics/harris-senators-aapi-voters.html?searchResultPosition=6
 
+**Yes, it is Tax Day. Here’s what you need to know.**\
+`The I.R.S. said tax filers who needed more time could have an extra month. The federal tax deadline has arrived.`\
+https://nytimes.com/2021/05/17/business/tax-deadline-2021.html?searchResultPosition=7
+
 **AT&T Unwinds Billions’ Worth of Deal-Making**\
 `Spinning out WarnerMedia and merging it with Discovery caps a reversal on years of big acquisitions.`\
-https://nytimes.com/2021/05/17/business/dealbook/att-discovery-deal.html?searchResultPosition=7
+https://nytimes.com/2021/05/17/business/dealbook/att-discovery-deal.html?searchResultPosition=8
 
 **New York City Subway Returns to 24-Hour Service**\
 `M.T.A. officials restored round-the-clock trains more than a year after the system was closed during overnight hours for cleaning.`\
-https://nytimes.com/2021/05/17/nyregion/nyc-subway-full-service-24-hours.html?searchResultPosition=8
+https://nytimes.com/2021/05/17/nyregion/nyc-subway-full-service-24-hours.html?searchResultPosition=9
 
 **AT&T, in Abrupt Turn, Will Shed Media Business in Deal With Discovery**\
 `The telecommunications giant will spin off WarnerMedia in a transaction that will combine HBO and CNN with Oprah Winfrey’s OWN and HGTV.`\
-https://nytimes.com/2021/05/17/business/att-discovery-merger.html?searchResultPosition=9
-
-**How Much Do You Know About Vanuatu?**\
-`Can you find Vanuatu on a map? What else do you know about this South Pacific island nation with about 300,000 people.`\
-https://nytimes.com/interactive/2021/05/17/learning/Vanuatu-Geography-Quiz.html?searchResultPosition=10
+https://nytimes.com/2021/05/17/business/att-discovery-merger.html?searchResultPosition=10
 
