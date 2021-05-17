@@ -18,13 +18,13 @@ https://nytimes.com/2021/05/17/travel/pyramiden-svalbard-mining-town.html?search
 `U.S. Olympic surfers from Hawaii — the proud home of the sport — would prefer to compete under their own red, white and blue banner.`\
 https://nytimes.com/2021/05/17/sports/olympics/olympic-surfing-hawaii-flag.html?searchResultPosition=5
 
+**Recovery, Restaurants, Policing: Where the Mayoral Candidates Stand**\
+`We interviewed the eight leading Democrats running for mayor of New York City. Here’s what we learned.`\
+https://nytimes.com/2021/05/17/nyregion/nyc-mayors-race-7-takeaways.html?searchResultPosition=6
+
 **In Taliban-Controlled Areas, Girls Are Fleeing for One Thing: an Education**\
 `Two districts in Afghanistan’s northwest offer a glimpse into life under the Taliban, who have completely cut off education for teenage girls.`\
-https://nytimes.com/2021/05/17/world/asia/afghanistan-taliban-girls-school.html?searchResultPosition=6
-
-**Recovery. Restaurants. Policing: Where the Mayoral Candidates Stand**\
-`We interviewed the eight leading Democrats running for mayor of New York City. Here’s what we learned.`\
-https://nytimes.com/2021/05/17/nyregion/nyc-mayors-race-7-takeaways.html?searchResultPosition=7
+https://nytimes.com/2021/05/17/world/asia/afghanistan-taliban-girls-school.html?searchResultPosition=7
 
 **Shopping for Outdoor Chaises Longues**\
 `Because nothing says summer like a chaise longue.`\
