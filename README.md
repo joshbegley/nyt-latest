@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/17/us/politics/texas-voting-bill.html?searchResultPosition=1
 
 **Cuomo Set to Receive $5.1 Million from Pandemic Book Deal**\
-`The New York governor reported earning $3.1 million last year from his pandemic memoir, with additional payments coming in the next two years.`\
+`The New York governor reported earning $3.1 million last year from his leadership memoir, with additional payments coming in the next two years.`\
 https://nytimes.com/2021/05/17/nyregion/cuomo-tax-returns-pandemic-book.html?searchResultPosition=2
 
 **Biden Says U.S. Will Be an ‘Arsenal of Vaccines’ for the World**\
