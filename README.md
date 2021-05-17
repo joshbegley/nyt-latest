@@ -26,7 +26,7 @@ https://nytimes.com/2021/05/17/books/review/spooked-barry-meier.html?searchResul
 `Tens of thousands of people were evacuated from western India as a powerful cyclone approached. The severe weather threatened to divert resources from combating a deadly wave of coronavirus.`\
 https://nytimes.com/video/world/asia/100000007766297/cyclone-india-storm.html?searchResultPosition=7
 
-**‘We Can’t Indulge These Insane Lies’: Arizona G.O.P. Split on Vote Review**\
+**Arizona G.O.P. Split on Vote Review: ‘We Can’t Indulge These Insane Lies’**\
 `Top local Republicans are hitting back at Donald J. Trump and fellow party members in the State Senate over a review of Arizona ballots.`\
 https://nytimes.com/2021/05/17/us/arizona-audit-trump.html?searchResultPosition=8
 
