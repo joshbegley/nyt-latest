@@ -1,40 +1,40 @@
+**These 8 Democrats Want to Be Mayor of New York City. We Have Questions.**\
+`We asked leading candidates for mayor questions about everything from police reform and climate change to their favorite bagel order and workout routine. Here’s what they said.`\
+https://nytimes.com/interactive/2021/nyregion/nyc-mayor-candidates-video.html?searchResultPosition=1
+
+**She Cleaned Up N.Y.C.’s Sanitation Department. Now She Wants to Be Mayor.**\
+`A respected expert in city operations, Kathryn Garcia is focused on combating climate change and helping small businesses.`\
+https://nytimes.com/interactive/2021/nyregion/kathryn-garcia-video-interview.html?searchResultPosition=2
+
+**She Wants to Be Mayor to Transform How New York City Operates**\
+`A former non-profit executive, Dianne Morales said she wants to cut the police budget to divert money to social services.`\
+https://nytimes.com/interactive/2021/nyregion/dianne-morales-video-interview.html?searchResultPosition=3
+
+**He Worked for Obama. Now He Wants to Be Mayor of New York.**\
+`A veteran of the Obama and Bloomberg administrations, Shaun Donovan has released a bevvy of policy proposals, including one to create “15-minute neighborhoods.”`\
+https://nytimes.com/interactive/2021/nyregion/shaun-donovan-video-interview.html?searchResultPosition=4
+
+**He Created Wealth on Wall Street. Now He Wants to Do the Same for New York.**\
+`A former Wall Street executive, Ray McGuire is focused on helping the city recover from economic woes caused by the pandemic.`\
+https://nytimes.com/interactive/2021/nyregion/raymond-mcguire-video-interview.html?searchResultPosition=5
+
+**He’s a Veteran of New York City Government. Now He Wants to Run It.**\
+`A veteran of city government, Scott Stringer is running on progressive issues like climate and affordable housing.`\
+https://nytimes.com/interactive/2021/nyregion/scott-stringer-video-interview.html?searchResultPosition=6
+
+**First He Ran for President. Now He Wants to Be Mayor of New York.**\
+`Andrew Yang wants to implement a version of his universal basic proposal to help the city’s poorest residents.`\
+https://nytimes.com/interactive/2021/nyregion/andrew-yang-video-interview.html?searchResultPosition=7
+
+**She Gained a National Following on MSNBC. Now She Wants to Run New York City.**\
+`A former civil rights lawyer, Maya Wiley is running as a progressive but who has distanced herself from her former boss, Mayor Bill de Blasio.`\
+https://nytimes.com/interactive/2021/nyregion/maya-wiley-video-interview.html?searchResultPosition=8
+
+**He Wanted to Reform the N.Y.P.D. from Within. Now He Wants to Be Mayor.**\
+`A former police officer, Eric Adams is running as a blue collar New Yorker focused on public safety.`\
+https://nytimes.com/interactive/2021/nyregion/eric-adams-video-interview.html?searchResultPosition=9
+
 **Evan Peters on That Explosive End of This Week’s ‘Mare of Easttown’**\
 `The actor talked about the shocking events of Sunday’s episode, about working alongside Kate Winslet and about those delicious Wawa hoagies.`\
-https://nytimes.com/2021/05/16/arts/television/evan-peters-mare-of-easttown-episode-5.html?searchResultPosition=1
-
-**Corrections: May 17, 2021**\
-`No corrections appeared in print on Monday, May 17, 2021.`\
-https://nytimes.com/2021/05/16/pageoneplus/corrections-may-17-2021.html?searchResultPosition=2
-
-**Train in Iowa Hauling Hazardous Materials Derails and Catches Fire**\
-`About 80 people in Sibley, Iowa, were ordered to evacuate. It was unclear what exactly the train was carrying or what was burning.`\
-https://nytimes.com/2021/05/16/us/train-derailment-iowa.html?searchResultPosition=3
-
-**Rays Muscle Up Against Mets as Marcus Stroman Loses Again**\
-`Michael Conforto and Jeff McNeil left with hamstring injuries. The Yankees, meanwhile, lost to Baltimore and had another positive coronavirus test.`\
-https://nytimes.com/2021/05/16/sports/mets-yankees.html?searchResultPosition=4
-
-**I’ll Take ‘White Supremacist Hand Gestures’ for $1,000**\
-`How hundreds of “Jeopardy!” contestants talked themselves into a baseless conspiracy theory — and won’t be talked out of it.`\
-https://nytimes.com/2021/05/16/business/media/jeopardy-hand-gesture-maga-conspiracy.html?searchResultPosition=5
-
-**Bucknell Investigating ‘Horrific’ Harassment of L.G.B.T.Q. Students**\
-`The university said a group of men tried to enter a house for gay, lesbian, bisexual and transgender students last week. Residents said they were terrified and traumatized by the episode.`\
-https://nytimes.com/2021/05/16/us/bucknell-university-lgbtq-harassment.html?searchResultPosition=6
-
-**‘Fighting Must Stop’: U.N. Holds First Public Meeting on Gaza Conflict**\
-`The United Nations Security Council met to discuss the crisis in Gaza and Israel on Sunday but took no action, even as members decried the violence. Palestinian and Israeli diplomats spoke at the meeting.`\
-https://nytimes.com/video/world/middleeast/100000007765244/united-nations-open-meeting-gaza-conflict.html?searchResultPosition=7
-
-**The Long Tail of Covid-19**\
-`Many are ready for the country to reach a pre-Covid-19 normal, but  others may never reach that point. `\
-https://nytimes.com/2021/05/16/opinion/covid-lasting-effects.html?searchResultPosition=8
-
-**Fresh Hope at Long Last for Libyans**\
-`The Biden administration is making the right moves in war-ravaged Libya.`\
-https://nytimes.com/2021/05/16/opinion/libya-biden-elections.html?searchResultPosition=9
-
-**Katherine Barber, Who Defined Canadian English, Is Dead at 61**\
-`As the founding editor of the Canadian Oxford Dictionary, she turned to “trashy novels” and parliamentary debates to find Canada’s version of the language.`\
-https://nytimes.com/2021/05/16/books/katherine-barber-dead.html?searchResultPosition=10
+https://nytimes.com/2021/05/16/arts/television/evan-peters-mare-of-easttown-episode-5.html?searchResultPosition=10
 
