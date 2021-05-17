@@ -2,7 +2,7 @@
 `A Federal Reserve household survey underlined how much Americans with less formal education and minority groups struggled in the pandemic.`\
 https://nytimes.com/2021/05/17/business/pandemic-economy-household-survey.html?searchResultPosition=1
 
-**New York City Marathon Will Return in November, With Smaller Field**\
+**New York City Marathon Will Return in November, With Fewer Runners**\
 `The race will have 33,000 entrants, instead of the usual 55,000. But staging it will satisfy runners desperate to run again.`\
 https://nytimes.com/2021/05/17/sports/nyc-marathon-2021.html?searchResultPosition=2
 
@@ -26,15 +26,15 @@ https://nytimes.com/2021/05/17/books/review/spooked-barry-meier.html?searchResul
 `Tens of thousands of people were evacuated from western India as a powerful cyclone approached. The severe weather threatened to divert resources from combating a deadly wave of coronavirus.`\
 https://nytimes.com/video/world/asia/100000007766297/cyclone-india-storm.html?searchResultPosition=7
 
+**Israel is targeting Hamas naval forces. So what can Hamas do by sea?**\
+`By Dan Bilefsky`\
+https://nytimes.com/2021/05/17/world/middleeast/israel-is-targeting-hamas-naval-forces-so-what-can-hamas-do-by-sea.html?searchResultPosition=8
+
 **Arizona G.O.P. Split on Vote Review: ‘We Can’t Indulge These Insane Lies’**\
 `Top local Republicans are hitting back at Donald J. Trump and fellow party members in the State Senate over a review of Arizona ballots.`\
-https://nytimes.com/2021/05/17/us/arizona-audit-trump.html?searchResultPosition=8
+https://nytimes.com/2021/05/17/us/arizona-audit-trump.html?searchResultPosition=9
 
 **Hot New Recipes**\
 `For the lemon lovers, give creamy chive pasta with lemon, lemon-tahini slaw or spaghetti al limone with shrimp a try this week.`\
-https://nytimes.com/2021/05/17/dining/hot-new-recipes.html?searchResultPosition=9
-
-**The Supreme Court will hear a major abortion case.**\
-`The case, arising from a Mississippi law that bans most abortions after 15 weeks, could undermine the constitutional right to abortion established in Roe v. Wade.`\
-https://nytimes.com/2021/05/17/us/politics/supreme-court-abortion.html?searchResultPosition=10
+https://nytimes.com/2021/05/17/dining/hot-new-recipes.html?searchResultPosition=10
 
