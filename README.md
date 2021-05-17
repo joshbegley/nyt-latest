@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/17/us/politics/harris-senators-aapi-voters.html?sear
 
 **Yes, it is Tax Day. Here’s what you need to know.**\
 `The I.R.S. said tax filers who needed more time could have an extra month. The federal tax deadline has arrived.`\
-https://nytimes.com/2021/05/17/business/tax-deadline-2021.html?searchResultPosition=6
+https://nytimes.com/live/2021/05/17/business/economy-stock-market-news/tax-deadline-2021?searchResultPosition=6
 
 **AT&T Unwinds Billions’ Worth of Deal-Making**\
 `Spinning out WarnerMedia and merging it with Discovery caps a reversal on years of big acquisitions.`\
