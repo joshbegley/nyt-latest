@@ -4,7 +4,7 @@ https://nytimes.com/article/israel-gaza-what-we-know.html?searchResultPosition=1
 
 **New York Racing Officials Suspend Baffert From Belmont Stakes**\
 `The Hall of Fame trainer was already under suspension at Churchill Downs, where he won his seventh Kentucky Derby before his horse failed a drug test.`\
-https://nytimes.com/2021/05/17/sports/horse-racing/baffert-suspended-belmont.html?searchResultPosition=2
+https://nytimes.com/2021/05/17/sports/horse-racing/bob-baffert-suspended-belmont.html?searchResultPosition=2
 
 **A Wine With Whispers of History**\
 `To celebrate its 60th anniversary, Heitz Cellars has reintroduced its Lot C-91.`\
