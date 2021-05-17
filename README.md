@@ -8,7 +8,7 @@ https://nytimes.com/video/us/politics/100000007766842/new-york-cdc-mask-guidelin
 
 **United States plans to send 20 million vaccination doses to help world battle coronavirus.**\
 `The World Health Organization says that countries in which the virus is declining need to do more to help countries that are struggling.`\
-https://nytimes.com/2021/05/17/world/united-states-vaccination-global-doses.html?searchResultPosition=3
+https://nytimes.com/2021/05/17/world/covid-vaccine-global-doses.html?searchResultPosition=3
 
 **Giuliani Seeks to Block Review of Evidence From His Phones**\
 `Prosecutors investigating Rudolph W. Giuliani’s work in Ukraine have seized his electronic devices, a move his lawyers are now questioning.`\
