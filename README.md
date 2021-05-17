@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/17/world/europe/france-migrants-asylum-housing.html?searchResultPosition=1
 
 **The Triple Crown’s Next Question: Who Will Win the Belmont?**\
-`The Kentucky Derby winner Medina Spirit may not run at Belmont Park, and the Preakness champion, Rombauer, may not be the favorite.`\
+`The 2021 Kentucky Derby winner, Medina Spirit, may not run at Belmont Park, and the Preakness champion, Rombauer, may not be the favorite.`\
 https://nytimes.com/2021/05/17/sports/horse-racing/belmont-picks-triple-crown.html?searchResultPosition=2
 
 **Destruction in Gaza Continues as Conflict Enters Second Week**\
