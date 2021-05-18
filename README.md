@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/18/arts/dance/Being-a-Ballerina-Gavin-Larsen.html?se
 
 **Marvel Announces a New Black Panther Series**\
 `The writer Ta-Nehisi Coates ends his run this month and the screenwriter John Ridley begins in August.`\
-https://nytimes.com/2021/05/18/arts/new-black-panther-series.html?searchResultPosition=6
+https://nytimes.com/2021/05/18/arts/marvel-black-panther-john-ridley.html?searchResultPosition=6
 
 **Macy’s first-quarter sales jump 56 percent as shoppers return.**\
 `The retailer expressed optimism for the year, raising its sales forecast to a range of $21.7 billion to $22.2 billion, as consumers begin to buy apparel for casual events and weddings.`\
