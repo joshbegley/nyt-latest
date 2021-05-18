@@ -2,7 +2,7 @@
 `The legislation is the first action Congress has taken to bolster law enforcement’s response to attacks on people of Asian descent amid an uptick in discrimination and violence during the pandemic.`\
 https://nytimes.com/2021/05/18/us/house-anti-asian-hate-crimes-biden.html?searchResultPosition=1
 
-**Who Is Behind the Global Surge in Single-Use Plastic?**\
+**Here Is Who’s Behind the Global Surge in Single-Use Plastic**\
 `A new report shows that a surprisingly small number of big companies and banks are behind the manufacturing and financing of much of the world’s single-use plastic.`\
 https://nytimes.com/2021/05/18/climate/single-use-plastic.html?searchResultPosition=2
 
