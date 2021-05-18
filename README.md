@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/18/opinion/covid-vaccine-resistance.html?searchResul
 `Rosters for the delayed European soccer championship are due June 1, but rules changes have set the stage for bigger squads and coronavirus replacements.`\
 https://nytimes.com/2021/05/18/sports/soccer/uefa-euro-2020-rosters.html?searchResultPosition=2
 
-**Former Brooks Brothers minority shareholder sues, claiming ‘sabotage.’**\
+**Former Brooks Brothers minority shareholder sues, claiming ‘bad faith.’**\
 `By Vanessa Friedman`\
 https://nytimes.com/2021/05/18/business/brooks-brothers-lawsuit.html?searchResultPosition=3
 
