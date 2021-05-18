@@ -3,8 +3,8 @@
 https://nytimes.com/2021/05/18/movies/georgetown-review.html?searchResultPosition=1
 
 **To reach climate goals, new oil and gas investment must be stopped, energy agency says.**\
-`By Stanley Reed`\
-https://nytimes.com/2021/05/18/business/to-reach-climate-goals-new-oil-and-gas-investment-must-be-stopped-energy-agency-says.html?searchResultPosition=2
+`The stark message is intended to address the gap between ambitious commitments on climate change and the reality that global emissions are rising, the agency’s leader said.`\
+https://nytimes.com/2021/05/18/business/climate-change-report.html?searchResultPosition=2
 
 **An Israeli airstrike damaged Gaza’s only lab for processing Covid tests, officials said.**\
 `Health officials temporarily suspended coronavirus screening. Experts have warned that the conflict with Israel could worsen the pandemic in the territory.`\
