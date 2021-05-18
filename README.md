@@ -30,11 +30,11 @@ https://nytimes.com/2021/05/18/us/weed-california.html?searchResultPosition=7
 `Working in finance in Manhattan made him homesick for the beach in California. So he recreated what he missed on an unlikely site in Amagansett.`\
 https://nytimes.com/2021/05/18/realestate/all-he-wanted-was-a-surf-shack-he-got-a-lot-more.html?searchResultPosition=8
 
-**A Modern Surf Shack on Long Island**\
-`Working in finance in Manhattan made him homesick for the beach in California. So he recreated what he missed on an unlikely site in Amagansett, N.Y.`\
-https://nytimes.com/slideshow/2021/05/18/realestate/a-modern-surf-shack-on-long-island.html?searchResultPosition=9
-
 **Children of the Holocaust Who Are Anonymous No More**\
 `Researchers using enhanced, rare footage of a transport to a Nazi death camp have been able to identify some passengers, including children who survived.`\
-https://nytimes.com/2021/05/18/arts/children-of-the-holocaust-who-are-anonymous-no-more.html?searchResultPosition=10
+https://nytimes.com/2021/05/18/arts/children-of-the-holocaust-who-are-anonymous-no-more.html?searchResultPosition=9
+
+**A Modern Surf Shack on Long Island**\
+`Working in finance in Manhattan made him homesick for the beach in California. So he recreated what he missed on an unlikely site in Amagansett, N.Y.`\
+https://nytimes.com/slideshow/2021/05/18/realestate/a-modern-surf-shack-on-long-island.html?searchResultPosition=10
 
