@@ -16,7 +16,7 @@ https://nytimes.com/2021/05/18/briefing/israel-gaza-humanitarian-ceasefire-coron
 
 **Did You Join a Protest for the First Time Last Year? Share Your Story**\
 `The protests that followed the killing of George Floyd were the largest in U.S. history. We want to hear from people who were moved to demonstrate for the first time.`\
-https://nytimes.com/2021/05/18/us/did-you-join-a-protest-for-the-first-time-last-year-share-your-story.html?searchResultPosition=5
+https://nytimes.com/2021/05/18/us/protest-share-your-story.html?searchResultPosition=5
 
 **Stanford, in Reversal, to Keep 11 Sports It Had Planned to Cut**\
 `The change of plans came within weeks of the teams potentially dissolving.`\
