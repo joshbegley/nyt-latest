@@ -15,7 +15,7 @@ https://nytimes.com/2021/05/17/crosswords/daily-puzzle-2021-05-18.html?searchRes
 https://nytimes.com/2021/05/17/arts/whitney-museum-forming-union.html?searchResultPosition=4
 
 **The Toll of Eight Days of Conflict in Gaza and Israel**\
-`A week of fighting has left more than 200 people dead in Israel and the Palestinian territories.`\
+`Maps show the extent of the fighting that has killed more than 200 people.`\
 https://nytimes.com/interactive/2021/05/17/world/middleeast/israel-palestine-gaza-conflict-death-toll.html?searchResultPosition=5
 
 **Arizona Republican Leaders Criticize Election Audit**\
