@@ -1,5 +1,5 @@
 **Inspector Who Twice Missed Crack in Bridge Is Fired, Arkansas Officials Say**\
-`The inspector “didn’t see it because he wasn’t following proper protocol,” the director of the Arkansas Department of Transportation said.`\
+`The inspector didn’t see the crack “because he wasn’t following proper protocol,” the director of the Arkansas Department of Transportation said.`\
 https://nytimes.com/2021/05/17/us/memphis-i40-bridge-crack-inspector-fired.html?searchResultPosition=1
 
 **What the Letters of ‘Roy G. Biv’ Stand For**\
