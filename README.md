@@ -1,40 +1,40 @@
-**Nottingham’s Dilemma: Robin Hood or High Tech?**\
-`An unlamented mall in the heart of the English city is being demolished. But what should go in its place?`\
-https://nytimes.com/2021/05/18/world/europe/nottingham-broadmarsh-centre.html?searchResultPosition=1
+**I’m an E.R. Doctor in Israel. In My Hospital, We Are in This Together.**\
+`To me, this hospital — with its diverse staff and free medical care — represents everything that is beautiful and possible in this place.`\
+https://nytimes.com/2021/05/18/opinion/israel-palestinians-conflict-injuries-hospital.html?searchResultPosition=1
 
-**Teaching With ‘The Playlist’**\
-`In this column, music critics weigh in on the week’s most notable new songs and videos. We invite students to use it as a model for their own annotated playlists around a topic, theme or event.`\
-https://nytimes.com/2021/05/18/learning/teaching-with-the-playlist.html?searchResultPosition=2
+**No Longer the ‘Devil’s Lettuce’: How the Town of Weed Embraced Weed**\
+`For decades, a rural California city winced at the puns. Now it’s cashing in.`\
+https://nytimes.com/2021/05/18/us/weed-california.html?searchResultPosition=2
 
-**The New Arab Street: Online, Global and Growing**\
-`As Israeli airstrikes pummel Gaza, the reaction from Arab capitals has been muted and protests scattered. But the voices on social media have been loud and clear.`\
-https://nytimes.com/2021/05/18/world/middleeast/palestinian-arab-protest-internet.html?searchResultPosition=3
+**All He Wanted Was a Surf Shack. He Got a Lot More.**\
+`Working in finance in Manhattan made him homesick for the beach in California. So he recreated what he missed on an unlikely site in Amagansett.`\
+https://nytimes.com/2021/05/18/realestate/all-he-wanted-was-a-surf-shack-he-got-a-lot-more.html?searchResultPosition=3
 
-**China’s Biggest ‘Bad Bank’ Tests Beijing’s Resolve on Financial Reform**\
-`Chinese regulators say they want to clean up the country’s financial system, but a state-owned conglomerate may ultimately get in the way.`\
-https://nytimes.com/2021/05/18/business/economy/china-bank-debt-huarong.html?searchResultPosition=4
+**A Modern Surf Shack on Long Island**\
+`Working in finance in Manhattan made him homesick for the beach in California. So he recreated what he missed on an unlikely site in Amagansett, N.Y.`\
+https://nytimes.com/slideshow/2021/05/18/realestate/a-modern-surf-shack-on-long-island.html?searchResultPosition=4
 
-**Beach Days**\
-`Do you enjoy going to the beach?`\
-https://nytimes.com/2021/05/18/learning/beach-days.html?searchResultPosition=5
+**Children of the Holocaust Who Are Anonymous No More**\
+`Researchers using enhanced, rare footage of a transport to a Nazi death camp have been able to identify some passengers, including children who survived.`\
+https://nytimes.com/2021/05/18/arts/children-of-the-holocaust-who-are-anonymous-no-more.html?searchResultPosition=5
 
-**Trevor Noah Can’t Believe Biden Has a Venmo Account**\
-`“Joe Biden has a Venmo account? How? The dude is, like, 150 years old,” Noah joked, saying he assumed Biden “paid for everything with silver dollars.”`\
-https://nytimes.com/2021/05/18/arts/television/trevor-noah-biden-venmo.html?searchResultPosition=6
+**A ‘Community for All’? Not So Fast, This Wisconsin County Says**\
+`In Wausau, Wis., the county board has debated a resolution aimed at embracing inclusion for nearly a year, with no agreement. Racial tensions that had simmered beneath the surface are now roiling the community.`\
+https://nytimes.com/2021/05/18/us/politics/race-inclusion-wasau-wisconsin.html?searchResultPosition=6
 
-**Word of the Day: kinship**\
-`This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/18/learning/word-of-the-day-kinship.html?searchResultPosition=7
+**Behind Every Hero or Villain, There Is Tech Support**\
+`Cutting-edge technology is often used in comics by the able assistants who fall under the trope “the guy in the chair.” But they are not always men and are not always helping the hero.`\
+https://nytimes.com/2021/05/18/arts/comic-book-technology-superhero.html?searchResultPosition=7
 
-**Nations Must Drop Fossil Fuels, Fast, World Energy Body Warns**\
-`A landmark report from the International Energy Agency says countries need to move faster and more aggressively to cut planet-warming pollution.`\
-https://nytimes.com/2021/05/18/climate/climate-change-emissions-IEA.html?searchResultPosition=8
+**Japan Is Shaken After a Detainee, Wasting Away, Dies Alone in Her Cell**\
+`Critics of the country’s immigration system say the death reveals an opaque and capricious bureaucracy with nearly unchecked power over foreigners caught inside it.`\
+https://nytimes.com/2021/05/18/world/asia/japan-refugee-wishma-rathnayake.html?searchResultPosition=8
 
-**2 South Carolina Deputies Are Fired for Their Role in Death of Black Man in Jail**\
-`The deputies, Sgt. Lindsay Fickett and Detention Deputy Brian Houle, used pepper spray and Tasers on Jamal Sutherland on Jan. 5 at the detention center in Charleston County.`\
-https://nytimes.com/2021/05/18/us/deputies-fired-jamal-sutherland-death.html?searchResultPosition=9
+**Liz Cheney: The Model of a Modern Never-Trumper**\
+`The representative from Wyoming embodies a different kind of Republican female power player tradition.`\
+https://nytimes.com/2021/05/18/style/liz-cheney-trump-image.html?searchResultPosition=9
 
-**The Ocean Course, Long Absent From Golf’s Spotlight, Is Back**\
-`The masterpiece on Kiawah Island, designed by Pete and Alice Dye to be as challenging as it is breathtaking, has not been the site of a major tournament in almost a decade.`\
-https://nytimes.com/2021/05/18/sports/golf/pga-championship-ocean-course-dye.html?searchResultPosition=10
+**Capri — First Choice of the Jet Set — Gets First Dibs on Vaccines**\
+`Eager to jump-start the lagging tourist economy and compete with Greece and Spain, Italy allows residents of its island playgrounds to get first in line for inoculations.`\
+https://nytimes.com/2021/05/18/world/europe/italy-capri-coronavirus-vaccinations-tourism.html?searchResultPosition=10
 
