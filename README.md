@@ -1,6 +1,6 @@
 **Dino Gaudio, a Longtime College Basketball Coach, Is Accused of Extorting Louisville**\
 `Gaudio was charged in federal court, where a filing signaled a plea agreement had been reached.`\
-https://nytimes.com/2021/05/18/sports/ncaabasketball/dino-gaudio-louisville-extorsion.html?searchResultPosition=1
+https://nytimes.com/2021/05/18/sports/ncaabasketball/dino-gaudio-louisville-extortion.html?searchResultPosition=1
 
 **CNN’s Zucker, Reunited With a Powerful Friend, Sees His Fortunes Change**\
 `Phone buddies and golf partners, Jeff Zucker and David Zaslav have a 30-year history. Now Zucker may be open to working for the man he calls a “best friend.”`\
