@@ -4,7 +4,7 @@ https://nytimes.com/2021/05/18/style/how-will-you-look-when-you-emerge-from-the-
 
 **Long working hours are leading to a rise in premature deaths, the W.H.O. says.**\
 `Physiological stress responses and changes in behavior are “conceivable” reasons that long hours have a negative impact on health.`\
-https://nytimes.com/2021/05/18/business/death-from-overwork.html?searchResultPosition=2
+https://nytimes.com/2021/05/18/business/overwork-premature-death.html?searchResultPosition=2
 
 **U.S. Energy Independence Threatened by Hackers and Climate Change**\
 `The country relies less on foreign oil than it used to, but pipelines and grids are increasingly vulnerable to cyberattacks and extreme weather.`\
