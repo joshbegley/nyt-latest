@@ -1,6 +1,6 @@
 **Val Demings is planning to challenge Marco Rubio for one of Florida’s Senate seats.**\
 `Representative Val B. Demings, a former police chief who represents a district in Orlando, had been weighing whether to run for Senate or for governor.`\
-https://nytimes.com/2021/05/18/us/val-demings-florida-senate.html?searchResultPosition=1
+https://nytimes.com/2021/05/18/us/val-demings-marco-rubio-florida.html?searchResultPosition=1
 
 **For India’s Medical Workers, Danger and ‘Heartbreaking Decisions’**\
 `More than 1,000 doctors, and an untold number of medical personnel, have died after coronavirus infections. Many suffer an emotional toll as they make tough decisions about who gets treated.`\
