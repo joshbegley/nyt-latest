@@ -7,7 +7,7 @@ https://nytimes.com/2021/05/18/sports/golf/pga-championship-ocean-course-dye.htm
 https://nytimes.com/2021/05/17/briefing/biden-gaza-lockdown-corruption.html?searchResultPosition=2
 
 **Gerrit Cole Falters as Yankees Lose to Rangers**\
-`A rare bad outing by Cole included his first walk in more than 40 innings. The Mets beat Atlanta but Kevin Pillar left the game after being hit in the head.`\
+`A rare bad outing by Cole included his first walk in more than 40 innings. The Mets beat Atlanta, but Kevin Pillar left the game after being hit in the head.`\
 https://nytimes.com/2021/05/17/sports/baseball/mets-yankees.html?searchResultPosition=3
 
 **Biden Administration Clears 3 Guantánamo Detainees for Release**\
