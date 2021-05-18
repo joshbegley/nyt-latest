@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/18/books/review/goodbye-again-jonny-sun-the-window-s
 `Treasury Secretary Janet L. Yellen urged business leaders to support the Biden administration’s proposals for making investments that would raise taxes on corporations to benefit the U.S. economy.`\
 https://nytimes.com/video/us/politics/100000007768947/janet-yellen-business-leaders-bidens-corporate-tax-increase.html?searchResultPosition=2
 
-**Jim Klobuchar, Minnesota Newspaperman and Amy’s Father, Dies at 93**\
+**Jim Klobuchar Dies at 93, Minnesota Newspaperman and Amy’s Father**\
 `He rose to folk hero status with his derring-do as a journalist and came to national attention when his daughter, Senator Amy Klobuchar, spoke openly about his struggles with alcoholism.`\
 https://nytimes.com/2021/05/18/us/jim-klobuchar-dead.html?searchResultPosition=3
 
