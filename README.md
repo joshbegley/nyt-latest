@@ -26,7 +26,7 @@ https://nytimes.com/2021/05/18/style/mask-skincare-makeup.html?searchResultPosit
 `Physiological stress responses and changes in behavior are “conceivable” reasons that long hours have a negative impact on health.`\
 https://nytimes.com/2021/05/18/business/overwork-premature-death.html?searchResultPosition=7
 
-**U.S. Energy Independence Threatened by Hackers and Climate Change**\
+**Hackers and Climate Change Threaten U.S. Energy Independence**\
 `The country relies less on foreign oil than it used to, but pipelines and grids are increasingly vulnerable to cyberattacks and extreme weather.`\
 https://nytimes.com/2021/05/18/business/energy-environment/colonial-pipeline-energy-system.html?searchResultPosition=8
 
