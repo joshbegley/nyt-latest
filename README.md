@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/18/climate/climate-change-emissions-IEA.html?searchResultPosition=1
 
 **2 South Carolina Deputies Are Fired for Their Role in Death of Black Man in Jail**\
-`The deputies, Sgt. Lindsay Fickett and Detention Deputy Brian Houle, used pepper spray and Tasers on Jamal Sutherland on Jan. 5  at the detention center in Charleston County.`\
+`The deputies, Sgt. Lindsay Fickett and Detention Deputy Brian Houle, used pepper spray and Tasers on Jamal Sutherland on Jan. 5 at the detention center in Charleston County.`\
 https://nytimes.com/2021/05/18/us/deputies-fired-jamal-sutherland-death.html?searchResultPosition=2
 
 **The Ocean Course, Long Absent From Golf’s Spotlight, Is Back**\
