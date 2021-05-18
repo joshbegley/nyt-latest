@@ -18,7 +18,7 @@ https://nytimes.com/2021/05/18/world/asia/hong-kong-domestic-worker-discriminati
 `The  Democratic hopefuls offered insight about how they would lead the city.`\
 https://nytimes.com/2021/05/18/nyregion/mayoral-candidates-nyc.html?searchResultPosition=5
 
-**I’m an E.R. Doctor in Israel. In My Hospital, We Are in This Together.**\
+**I’m a Trauma Surgeon in Israel. In My Hospital, We Are in This Together.**\
 `To me, this hospital — with its diverse staff and free medical care — represents everything that is beautiful and possible in this place.`\
 https://nytimes.com/2021/05/18/opinion/israel-palestinians-conflict-injuries-hospital.html?searchResultPosition=6
 
