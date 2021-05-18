@@ -12,7 +12,7 @@ https://nytimes.com/video/world/middleeast/100000007768452/palestinian-strike.ht
 
 **McCarthy opposes Jan. 6 commission because it would not study ‘political violence’ by the left.**\
 `Representative Kevin McCarthy had been pushing for any outside investigation to look at violence by anti-fascists and Black Lives Matter, rather than focus narrowly on the actions of former President Donald J. Trump.`\
-https://nytimes.com/2021/05/18/us/mccarthy-riot-commission.html?searchResultPosition=4
+https://nytimes.com/2021/05/18/us/kevin-mccarthy-capitol-riot-commission.html?searchResultPosition=4
 
 **8 Breakup Gifts That Soothe and Celebrate**\
 `Products include clothing, accessories, books, décor and even desserts.`\
