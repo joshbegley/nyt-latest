@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/19/sports/olympics/lee-evans-olympic-runner-who-prot
 
 **‘The Underground Railroad’ Is Not a History Lesson. It’s a Mirror.**\
 `In his Amazon show, Barry Jenkins doesn't present a story of slavery for the white gaze.`\
-https://nytimes.com/2021/05/19/opinion/amazon-underground-railroad-slavery.html?searchResultPosition=4
+https://nytimes.com/2021/05/19/opinion/underground-railroad-amazon-slavery.html?searchResultPosition=4
 
 **How Do We Build Our Homes and Cities for a Sustainable Future?**\
 `The Covid-19 pandemic has driven changes in how people live and work. On June 24, join The Times and experts as we discuss how this shift can present new opportunities.`\
