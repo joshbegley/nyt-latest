@@ -26,7 +26,7 @@ https://nytimes.com/2021/05/19/business/saks-return-to-office.html?searchResultP
 `Here are four articles to listen to about our current moods.`\
 https://nytimes.com/interactive/2021/05/19/podcasts/languishing-flourishing-pandemic.html?searchResultPosition=7
 
-**Hate Crime Is Eyed in Chinese-American Teen’s 2017 Murder, Authorities Say**\
+**Hate Crime Is Eyed in Chinese-American Teen’s 2017 Killing, Authorities Say**\
 `The killing of Maggie Long, 17, who was set on fire and burned alive in her family’s Bailey, Colo., home, remains unsolved.`\
 https://nytimes.com/2021/05/19/us/maggie-long-murder-hate-crime.html?searchResultPosition=8
 
