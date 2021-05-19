@@ -1,40 +1,40 @@
+**A Fed vice chair says trying to choke off inflation could ‘constrain’ the recovery.**\
+`Randal K. Quarles, the Federal Reserve’s vice chair for supervision, said that the Fed needs to balance risks and that slowing down the recovery early would be a bad idea.`\
+https://nytimes.com/2021/05/19/business/economy/federal-reserve-quarles-inflation.html?searchResultPosition=1
+
+**The Guggenheim Is Proving That Museums Aren’t Just to Be Seen**\
+`The famed institution — and others — are reaching out to audiences who cannot connect to art in typical ways.`\
+https://nytimes.com/2021/05/19/arts/design/guggenheim-new-york.html?searchResultPosition=2
+
+**Talking Across the Centuries to the Medici Family**\
+`If anyone understood the power of art to influence the course of history, the Renaissance-boosters did.`\
+https://nytimes.com/2021/05/19/arts/medici-portraits-metropolitan-museum-exhibit.html?searchResultPosition=3
+
+**A New York Museum Staple Gets a New Glimmer**\
+`At the redesigned Allison and Roberto Mignone Halls of Gems and Minerals, which opens June 12, the evolution of minerals is front and center.`\
+https://nytimes.com/2021/05/19/arts/museum-of-natural-history-minerals-gems-halls.html?searchResultPosition=4
+
+**The Broad Museum Reopens With a Celebration of Basquiat**\
+`A presentation of all 13 works in the collection, together for the first time and delayed by the pandemic shutdown, attests to the Broads’ early and abiding interest in the artist.`\
+https://nytimes.com/2021/05/19/arts/broad-museum-basquiat.html?searchResultPosition=5
+
+**In New York and More, Public Art Is Taking on Thorny Social Issues**\
+`Supported by government programs and private donors, art is proliferating in the public square.`\
+https://nytimes.com/2021/05/19/business/rockefeller-public-art.html?searchResultPosition=6
+
+**Examining Katharine Graham’s Groundbreaking Life**\
+`“Cover Story,” at the New-York Historical Society, illustrates the Washington Post publisher’s courage and tenacity as the first woman to lead a Fortune 500 company.`\
+https://nytimes.com/2021/05/19/arts/design/katharine-graham-new-york-historical-society.html?searchResultPosition=7
+
+**Louise Bourgeois Shares Her Deepest Secrets**\
+`Writings by the artist, exhibited for the first time in the United States, reveal the psychological trauma that fueled her creativity.`\
+https://nytimes.com/2021/05/19/arts/louise-bourgeois-jewish-museum.html?searchResultPosition=8
+
 **Severe Drought, Worsened by Climate Change, Ravages the American West**\
 `Heat and shifting weather patterns have intensified wildfires and sharply reduced water supplies across the Southwest, the Pacific Coast and North Dakota.`\
-https://nytimes.com/2021/05/19/climate/western-drought-wildfires.html?searchResultPosition=1
+https://nytimes.com/2021/05/19/climate/western-drought-wildfires.html?searchResultPosition=9
 
 **More than 100 million J.&J. doses are on hold as U.S. regulators inspect them, an executive testifies.**\
 `The chief executive of Emergent BioSolutions, whose Baltimore plant ruined millions of doses coronavirus vaccine doses, also apologized during his first testimony before Congress.`\
-https://nytimes.com/2021/05/19/us/politics/emergent-johnson-covid-vaccine.html?searchResultPosition=2
-
-**Paul Mooney, Trailblazing Comedian, Dies at 79**\
-`Mr. Mooney, a comic writer and performer known for his work with Richard Pryor and Dave Chappelle, died of a heart attack on Wednesday, his publicist said.`\
-https://nytimes.com/2021/05/19/arts/paul-mooney-dead.html?searchResultPosition=3
-
-**Georgia Anne Muldrow Builds a Musical World of Her Own**\
-`The prolific and proudly woke songwriter and producer has made 21 albums in 15 years. Her latest, “Vweto III,” is due on Friday.`\
-https://nytimes.com/2021/05/19/arts/music/georgia-anne-muldrow-vweto-III.html?searchResultPosition=4
-
-**Biden Addresses U.S. Coast Guard Academy Graduates**\
-`President Biden gave the keynote speech at a graduation ceremony for the United States Coast Guard Academy on Wednesday. In the speech, he praised the Coast Guard’s role during the Covid-19 pandemic and its efforts to combat global warming.`\
-https://nytimes.com/video/us/politics/100000007771052/biden-coast-guard-commencement.html?searchResultPosition=5
-
-**Should Alexa Read Our Moods?**\
-`The time to debate the power of voice technology is now. (Before Alexa starts suggesting comfort foods.)`\
-https://nytimes.com/2021/05/19/technology/alexa.html?searchResultPosition=6
-
-**Silk Sonic or J. Cole Has the No. 1 Song, Depending on the Chart**\
-`In a rare but not unheard-of discrepancy, Billboard and Rolling Stone named two different singles as the week’s biggest.`\
-https://nytimes.com/2021/05/19/arts/music/silk-sonic-j-cole-billboard-rolling-stone-charts.html?searchResultPosition=7
-
-**New York, Scrap the New Penn Station Plan**\
-`Readers instead call for a regional unified transit system and offer the Grand Central Terminal of today as a blueprint.`\
-https://nytimes.com/2021/05/19/opinion/letters/penn-station-redevelopment.html?searchResultPosition=8
-
-**Thousands of French Police Protest in Call for More Protection**\
-`The protesters declared that police work has become increasingly dangerous because of the government’s failure to fix the country’s social problems.`\
-https://nytimes.com/2021/05/19/world/europe/france-police-protest.html?searchResultPosition=9
-
-**Dr. Aaron Stern, Who Enforced the Movie Ratings Code, Dies at 96**\
-`He was a New York psychiatrist who went to Hollywood to help lay down guidelines for sex and violence in films. Not everyone was pleased.`\
-https://nytimes.com/2021/05/19/arts/aaron-stern-dead.html?searchResultPosition=10
+https://nytimes.com/2021/05/19/us/politics/emergent-johnson-covid-vaccine.html?searchResultPosition=10
 
