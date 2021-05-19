@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/18/us/Boat-capsized-port-fourchon-louisiana.html?sea
 
 **Publicly Supportive, Biden Is Said to Sharpen His Tone With Netanyahu in Private**\
 `Mr. Biden has spoken publicly about how he once sent Mr. Netanyahu a photograph with the inscription, “Bibi, I don’t agree with a damn thing you say, but I love you.”`\
-https://nytimes.com/2021/05/18/us/politics/biden-netanyahu-gaza-hamas.html?searchResultPosition=3
+https://nytimes.com/2021/05/18/us/politics/biden-netanyahu.html?searchResultPosition=3
 
 **Virginia Doctor Gets 59 Years for Unneeded Surgery and Improper Sterilizations**\
 `Dr. Javaid Perwaiz’s procedures over nearly a decade caused insurance programs to lose more than $20 million, federal prosecutors said.`\
