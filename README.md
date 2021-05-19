@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/18/us/politics/troubled-vaccine-maker-and-its-founde
 `The transition to an electric-car future will be an uphill battle, with the president and Republicans in Congress at odds over his $4 trillion economic agenda.`\
 https://nytimes.com/2021/05/18/business/biden-ford-electric-truck.html?searchResultPosition=8
 
-**Texas governor will bar government entities there from requiring masks.**\
+**Texas governor will bar local governments from requiring masks.**\
 `Gov. Greg Abbott, a Republican, issued an executive order on Tuesday that will prohibit cities and counties from enforcing mask mandates.`\
 https://nytimes.com/2021/05/18/world/texas-governor-local-mask-mandates.html?searchResultPosition=9
 
