@@ -18,7 +18,7 @@ https://nytimes.com/2021/05/19/dining/what-to-cook-right-now.html?searchResultPo
 `Readers debate whether the replacement of Liz Cheney will reinvigorate the party or disenfranchise traditional Republicans.`\
 https://nytimes.com/2021/05/19/opinion/letters/elise-stefanik-republicans.html?searchResultPosition=6
 
-**Challenger Poised to Become Pittsburgh’s First Black Mayor After Defeating Incumbent**\
+**Pittsburgh Is Poised to Have Its First Black Mayor**\
 `Ed Gainey won the Democratic primary in a city that is roughly a quarter Black. The incumbent, Bill Peduto, is the first Pittsburgh mayor to lose a bid to stay in office since 1933.`\
 https://nytimes.com/2021/05/19/us/ed-gainey-pittsburgh-mayor.html?searchResultPosition=7
 
