@@ -10,8 +10,8 @@ https://nytimes.com/2021/05/19/realestate/house-hunting-in-the-czech-republic-a-
 `This renovated two-bedroom apartment in the historic center of Prague, Czech Republic, is on the market for $2.45 million.`\
 https://nytimes.com/slideshow/2021/05/19/realestate/restored-elegance-in-the-heart-of-prague.html?searchResultPosition=3
 
-**A seller of erectile dysfunction pills is moving into women’s health.**\
-`Ro, the parent company of Roman, announced that it would acquire Modern Fertility, a start-up that offers at-home fertility tests for women.`\
+**Ro, a health care start-up, will acquire Modern Fertility.**\
+`The parent of Roman, a digital health clinic for men, announced that it would acquire a firm that offers at-home fertility tests for women.`\
 https://nytimes.com/2021/05/19/business/modern-fertility-ro-roman.html?searchResultPosition=4
 
 **Company that ruined vaccine doses gave its top executives hundreds of thousands of dollars in bonuses.**\
