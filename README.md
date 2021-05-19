@@ -26,7 +26,7 @@ https://nytimes.com/2021/05/18/us/arizona-audit-2020-election.html?searchResultP
 `A selection of recent titles of interest; plus, a peek at what our colleagues around the newsroom are reading.`\
 https://nytimes.com/2021/05/18/books/review/new-this-week.html?searchResultPosition=7
 
-**Colombia Rebel Commander ‘Jesus Santrich’ Killed, Venezuelan Officials Say**\
+**Colombia Rebel Commander ‘Jesús Santrich’ Killed, Venezuelan Officials Say**\
 `The guerrilla leader, once a supporter of Colombia’s historic peace deal, then a strong opponent, had become a symbol of the country’s fraught path to peace.`\
 https://nytimes.com/2021/05/18/world/americas/jesus-santrich-killed-colombia-venezuela.html?searchResultPosition=8
 
