@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/18/business/fox-news-dominion-election.html?searchRe
 
 **In Arizona, G.O.P. senators defend their vote review but retract claims of deleted election data.**\
 `The 70-minute meeting on the audit convened by Republican senators raised only minor questions about the November election.`\
-https://nytimes.com/2021/05/18/us/arizona-audit-2020-election.html?searchResultPosition=6
+https://nytimes.com/2021/05/18/us/arizona-election.html?searchResultPosition=6
 
 **New & Noteworthy, From Bob Dylan to the Bay Area**\
 `A selection of recent titles of interest; plus, a peek at what our colleagues around the newsroom are reading.`\
