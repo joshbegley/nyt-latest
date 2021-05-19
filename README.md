@@ -18,7 +18,7 @@ https://nytimes.com/slideshow/2021/05/19/realestate/what-you-get-for-1-7-million
 `Viking plans to release “Silverview,” a spy novel set in an English seaside town, nearly a year after the famed writer’s death.`\
 https://nytimes.com/2021/05/19/books/john-le-carre-silverview.html?searchResultPosition=5
 
-**Binge-Viewing Movies? Netflix Bets on ‘Fear Street’ Trilogy**\
+**Binge-Viewing Movies? Netflix Bets on the ‘Fear Street’ Trilogy.**\
 `The streamer hopes that by turning adaptations of the R.L. Stine series into weekly film events, audiences will stay glued to the screen.`\
 https://nytimes.com/2021/05/19/movies/fear-street-trilogy-netflix.html?searchResultPosition=6
 
