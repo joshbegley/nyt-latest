@@ -1,5 +1,5 @@
 **U.S. Inquiry Into Cuomo Widens to Examine Virus Tests for ‘Specials’**\
-`Gov. Andrew M. Cuomo is already under fire after members of his family received expedited testing in the pandemic’s early weeks.`\
+`Gov. Andrew M. Cuomo was already under fire after members of his family received expedited testing in the pandemic’s early weeks.`\
 https://nytimes.com/2021/05/19/nyregion/cuomo-covid-test-investigation.html?searchResultPosition=1
 
 **We’re Being Trampled by a Candidate Stampede**\
