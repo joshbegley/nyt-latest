@@ -1,40 +1,40 @@
-**Teaching About the Current Conflict in Gaza and Israel**\
-`In this lesson, students will learn about the roots, causes and impact of the violence in Israel and the occupied Palestinian territories.`\
-https://nytimes.com/2021/05/19/learning/teaching-about-the-current-conflict-in-gaza-and-israel.html?searchResultPosition=1
+**10 Memorable Moments From P.G.A. Championships**\
+`The tournament’s history includes brilliant play from the stars Tiger Woods and Gary Player, and the surprising winners Bob Tway and John Daly.`\
+https://nytimes.com/2021/05/19/sports/golf/pga-championship-history.html?searchResultPosition=1
 
-**Maya Wiley Has ‘50 Ideas’ and One Goal: To Make History as Mayor**\
-`Ms. Wiley has unveiled an array of policies to fight inequality as she seeks to become the first woman elected mayor of New York. Can she break out of the pack?`\
-https://nytimes.com/2021/05/19/nyregion/maya-wiley-mayor-nyc.html?searchResultPosition=2
+**What Defines a P.G.A. Championship Golf Course? Excitement.**\
+`Unlike the other majors, the tournament has been moving around looking for compelling play for more than 100 years.`\
+https://nytimes.com/2021/05/19/sports/golf/pga-championship-courses.html?searchResultPosition=2
 
-**New York Is Reopening. Here’s What That Actually Means.**\
-`Most businesses will be able to operate at 100 percent capacity, but it’s not a full return to normal.`\
-https://nytimes.com/2021/05/19/nyregion/nyc-reopening-restrictions-masks-vaccines.html?searchResultPosition=3
+**Pandemic Status: Almost ‘Normal,’ but Not OK**\
+`The  invisible scars of critical illness will be with us for some time. `\
+https://nytimes.com/2021/05/19/opinion/pandemic-mental-health.html?searchResultPosition=3
 
-**Twisted Needle**\
-`What do you think this image is saying?`\
-https://nytimes.com/2021/05/19/learning/twisted-needle.html?searchResultPosition=4
+**Saugerties, N.Y.: A Congenial Place With a Colorful History**\
+`The Ulster County town with its quaint village has attracted creative urban transplants for decades with the promise of new beginnings.`\
+https://nytimes.com/2021/05/19/realestate/saugerties-ny-a-congenial-place-with-a-colorful-history.html?searchResultPosition=4
 
-**Trevor Noah Wonders if America Is Ready for a Giuliani Dynasty**\
-`Rudy Giuliani’s son, Andrew, announced his candidacy for governor of New York on Tuesday. The “Daily Show” host is surprised that he wants the job.`\
-https://nytimes.com/2021/05/19/arts/television/trevor-noah-andrew-giuliani.html?searchResultPosition=5
+**Living In ... Saugerties, N.Y.**\
+`The Ulster County town and quaint 19th-century village have been attracting creative urban transplants for decades with the promise of new beginnings.`\
+https://nytimes.com/slideshow/2021/05/19/realestate/living-in-saugerties-ny.html?searchResultPosition=5
 
-**Word of the Day: unkempt**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/19/learning/word-of-the-day-unkempt.html?searchResultPosition=6
+**‘In Treatment’ Is Back. How Does That Make You Feel?**\
+`Pandemic tensions led HBO to make a new version of the therapy drama, which stars Uzo Aduba and aims to reduce stigmas about mental health care.`\
+https://nytimes.com/2021/05/19/arts/television/in-treatment-uzo-aduba.html?searchResultPosition=6
 
-**How to Build a Bird Kite**\
-`Step zero: Notice the wind.`\
-https://nytimes.com/interactive/2021/05/19/style/how-to-build-a-bird-kite.html?searchResultPosition=7
+**The Week-by-Week Race for Biggest Sports Crowd**\
+`Because games can’t just be games, even in a public health crisis.`\
+https://nytimes.com/2021/05/19/sports/coronavirus-sports-attendance.html?searchResultPosition=7
 
-**Philadelphia’s Progressive District Attorney Fends Off Democratic Challenger**\
-`Larry Krasner, part of a new breed of prosecutors, easily defeated Carlos Vega in Tuesday’s primary in spite of a rise in gun crime.`\
-https://nytimes.com/2021/05/19/us/krasner-vega-philadelphia.html?searchResultPosition=8
+**Banks Fight $4 Billion Debt Relief Plan for Black Farmers**\
+`Lenders are pressuring the Agriculture Department to give them more money, saying quick repayments will cut into profits.`\
+https://nytimes.com/2021/05/19/us/politics/black-farmers-debt-relief.html?searchResultPosition=8
 
-**Ja Morant Is Showing How Much Better He Can Be**\
-`Morant, who won last season’s Rookie of the Year Award, avoided a sophomore slump. Still, amid his high-flying dunks and fearsome drives, there is room for him to grow.`\
-https://nytimes.com/2021/05/19/sports/basketball/ja-morant-grizzlies.html?searchResultPosition=9
+**From Colombia to U.S., Police Violence Pushes Protests Into Mass Movements**\
+`In Colombia, and many other countries, security forces’ attacks on protesters have led to nationwide reckonings with injustice.`\
+https://nytimes.com/2021/05/19/world/colombia-protests-police.html?searchResultPosition=9
 
-**Rory McIlroy, With a New Coach and Returning Galleries, Has Rebounded**\
-`His world ranking dropped to as low as 13th this spring. But coming off a victory, McIlroy has returned to the Ocean Course on Kiawah Island, where he ran away with the P.G.A. Championship in 2012.`\
-https://nytimes.com/2021/05/19/sports/golf/rory-mcilroy-pga-championship.html?searchResultPosition=10
+**Mob Violence Against Palestinians in Israel Is Fueled by Groups on WhatsApp**\
+`Jewish extremists have formed more than 100 new groups on the Facebook-owned encrypted messaging app in recent days to target attacks.`\
+https://nytimes.com/2021/05/19/technology/israeli-clashes-pro-violence-groups-whatsapp.html?searchResultPosition=10
 
