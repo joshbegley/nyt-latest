@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2021/05/19/upshot/texas-abortion-news.html?searc
 `Readers find flaws in the testing system. “There was no reason to hold a typical exam under the extraordinary circumstances of the pandemic,” one reader says.`\
 https://nytimes.com/2021/05/19/opinion/letters/dartmouth-medical-school-cheating.html?searchResultPosition=5
 
-**McConnell Opposes Comission to Investigate Capitol Riot**\
+**McConnell Opposes Commission to Investigate Capitol Riot**\
 `Senator Mitch McConnell, the minority leader, said Wednesday that he opposed a bipartisan plan to create a 9/11-style commission to investigate the Jan. 6 insurrection at the U.S. Capitol.`\
 https://nytimes.com/video/us/politics/100000007771361/mcconnell-january-6th-riot-commission.html?searchResultPosition=6
 
