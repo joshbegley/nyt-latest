@@ -28,7 +28,7 @@ https://nytimes.com/2021/05/19/technology/bytedance-tiktok-zhang-yiming-resign.h
 
 **Corey Kluber Joins the Short List of Yankees With a No-Hitter**\
 `Kluber, 35, already had two Cy Young Awards on his résumé. It was the sixth no-hitter this season in the majors, and it came a day after the fifth.`\
-https://nytimes.com/2021/05/19/sports/baseball/corey-kluber-joins-the-short-list-of-yankees-with-a-no-hitter.html?searchResultPosition=8
+https://nytimes.com/2021/05/19/sports/baseball/corey-kluber-yankees-no-hitter.html?searchResultPosition=8
 
 **Israeli officials say cease-fire may be reached within two days.**\
 `By Ronen Bergman`\
