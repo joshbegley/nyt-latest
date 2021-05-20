@@ -2,8 +2,8 @@
 `Test your knowledge of this week’s health news.`\
 https://nytimes.com/interactive/2021/05/20/well/live/20healthquiz-05202021.html?searchResultPosition=1
 
-**The Treasury Department defends its plan to beef up I.R.S. enforcement.**\
-`By Alan Rappeport`\
+**Treasury defends its plan to narrow the tax gap by beefing up I.R.S. enforcement.**\
+`A new report details the Biden administration’s aim to raise revenue to help pay for its infrastructure proposal.`\
 https://nytimes.com/2021/05/20/business/IRS-tax-gap.html?searchResultPosition=2
 
 **Italy’s Vaccine Drive Runs Up Against a Sacred Institution: Summer Vacation**\
