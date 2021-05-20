@@ -1,40 +1,40 @@
-**When Your Name Is Sunny (Hostin), Your Beach Read Belongs on the Best-Seller List**\
-`The co-host of “The View” talks about why she wrote “Summer on the Bluffs” and why Martha’s Vineyard is important to her.`\
-https://nytimes.com/2021/05/20/books/review/summer-on-the-bluffs-sunny-hostin.html?searchResultPosition=1
+**How Plywood From Last Year’s Protests Became Art**\
+`During the George Floyd marches last year, businesses boarded up. This year, hundreds of those boards will be displayed in exhibitions in Minneapolis, New York and Chicago.`\
+https://nytimes.com/2021/05/20/arts/design/george-floyd-memorialize-the-movement.html?searchResultPosition=1
 
-**From the Ice of Greenland, a Deadly Virus and a Familiar Doom**\
-`In “Phase Six,” by Jim Shepard, pathogens released from excavated permafrost set off a global pandemic.`\
-https://nytimes.com/2021/05/20/books/review/jim-shepard-phase-six.html?searchResultPosition=2
+**8 Ways a Modern Civil Rights Movement Moved the Culture**\
+`From music to movies, canceled podcasts to toppled monuments, our writers take stock of the culture we shared in the year after George Floyd’s murder.`\
+https://nytimes.com/2021/05/20/arts/george-floyd-death.html?searchResultPosition=2
 
-**How to Talk to Someone Who Doesn’t Want the Vaccine**\
-`Use our chatbot and learn the techniques that change minds.`\
-https://nytimes.com/interactive/2021/05/20/opinion/covid-19-vaccine-chatbot.html?searchResultPosition=3
+**Along the Columbia River, Making a Monument of the Land**\
+`In the Pacific Northwest, Maya Lin’s ‘art landscapes’ celebrate the river’s partnership with Native American tribes.`\
+https://nytimes.com/2021/05/20/arts/maya-lin-tribal-monuments-pacific-northwest.html?searchResultPosition=3
 
-**The Super League Thought It Had a Silent Partner: FIFA**\
-`Publicly, soccer’s global governing body criticized a breakaway European Super League. Privately, it had held talks for months with the founders about endorsing the competition.`\
-https://nytimes.com/2021/05/20/sports/soccer/super-league-fifa-infantino.html?searchResultPosition=4
+**A Utopian Art School in Michigan Looks Back and Ahead**\
+`The Cranbrook Academy of Art’s history is about to be captured by a new exhibition emphasizing the school’s interdisciplinary spirit and its many untold stories.`\
+https://nytimes.com/2021/05/20/arts/design/michigan-cranbook-art.html?searchResultPosition=4
 
-**The Next Great Image Makers**\
-`Four young photographers talk creativity, opportunity and race.`\
-https://nytimes.com/2021/05/20/style/new-Black-fashion-photographers.html?searchResultPosition=5
+**Bamboo Entwined With Moroccan Textiles**\
+`A structure at the Venice Biennale unites local craftsmanship, farming and architecture.`\
+https://nytimes.com/2021/05/20/arts/venice-biennale-majlis-bamboo-simon-velez.html?searchResultPosition=5
 
-**Countries Are Scrambling for Vaccines. Mongolia Has Plenty.**\
-`By playing off its big neighbors, Russia and China, Mongolia has emerged as a positive outlier among developing nations on the hunt for shots.`\
-https://nytimes.com/2021/05/20/business/coronavirus-vaccine-mongolia.html?searchResultPosition=6
+**Venice Honors Lina Bo Bardi With a Golden Lion in Memoriam. Finalmente, Many Say.**\
+`The multitalented 20th-century architect’s work is especially pertinent to our times, and to the theme of a pandemic biennale, its curator says.`\
+https://nytimes.com/2021/05/20/arts/lina-bo-bardi-honored-venice-biennale.html?searchResultPosition=6
 
-**The Rise of the Climatarian**\
-`Never mind tracking steps. What about your carbon footprint?`\
-https://nytimes.com/2021/05/20/style/what-is-climatarian.html?searchResultPosition=7
+**Playing the Role of New York? Toronto. That View of Paris? It’s Montreal.**\
+`At the Venice Biennale, Canada examines its cities’ ability to stand in for television and film locations.`\
+https://nytimes.com/2021/05/20/arts/canada-movies-cities-venice-biennale.html?searchResultPosition=7
 
-**The Philippines says it will stop sending migrant workers to Israel until it’s safe.**\
-`The announcement came a day after a rocket attack by Hamas militants killed two Thai agricultural workers and wounded at least seven others.`\
-https://nytimes.com/2021/05/20/world/middleeast/israel-hamas-philippines-workers.html?searchResultPosition=8
+**A New $260 Million Park Floats on the Hudson. It’s a Charmer.**\
+`Little Island, developed by Barry Diller, with an amphitheater and dramatic views, opens on Hudson River Park. Opponents battled it for years.`\
+https://nytimes.com/2021/05/20/arts/little-island-barry-diller.html?searchResultPosition=8
 
-**Jimmy Kimmel Rakes Republicans for Downplaying the Capitol Attack**\
-`“You know, when a violent mob attacked our embassy in Benghazi, Republicans in Congress investigated it eight times,” Kimmel said. “A violent mob attacked the U.S. Capitol, they’re like: ‘Tourists! What are you gonna do?’”`\
-https://nytimes.com/2021/05/20/arts/television/jimmy-kimmel-capitol-riot.html?searchResultPosition=9
+**At Storm King, 2 New Works Faced a Challenging Birth**\
+`The pandemic complicated production of Sarah Sze’s outdoor sculpture and influenced her indoor multimedia installation.`\
+https://nytimes.com/2021/05/20/arts/sarah-sze-storm-king.html?searchResultPosition=9
 
-**Word of the Day: feasible**\
-`This word has appeared in 301 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/20/learning/word-of-the-day-feasible.html?searchResultPosition=10
+**A Wedding in Hawaii for Sade’s Son**\
+`Growing up, Sade’s music had always given Emily Shakeshaft a feeling of comfort. Years later, when she met the recording artist’s son, Izaak Adu-Watts, their connection felt familiar.`\
+https://nytimes.com/2021/05/20/style/Sade-son-Izaak-Adu-Watts-marries-Emily-Shakeshaft.html?searchResultPosition=10
 
