@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/19/us/Ronald-Greene-Louisiana-State-Police.html?sear
 
 **The Gaza Conflict Is Stoking an ‘Identity Crisis’ for Some Young American Jews**\
 `A new generation is confronting the region’s longstanding conflict in a very different context, with very different pressures, from their parents’ and grandparents’ generations.`\
-https://nytimes.com/2021/05/19/us/israel-gaza-american-jews.html?searchResultPosition=6
+https://nytimes.com/2021/05/19/us/jews-israel-palestine.html?searchResultPosition=6
 
 **Why Are Tech Companies Pretending to Be Governments?**\
 `The decision-making theatrics of Amazon, Facebook and other tech companies underscore the need for government to play a larger role.`\
