@@ -22,13 +22,13 @@ https://nytimes.com/2021/05/20/movies/dream-horse-review.html?searchResultPositi
 `An alienated teenager finds questionable companionship in this playful coming-of-age romance by Suzanne Lindon, who was in her teens when she wrote, directed and starred in the film.`\
 https://nytimes.com/2021/05/20/movies/spring-blossom-review.html?searchResultPosition=6
 
-**‘Army of the Dead’ Review: Thieving Las Vegas**\
-`Zack Snyder’s zombies-in-Vegas extravaganza is an exhausting pivot from brilliant to boring, accomplished to shambolic.`\
-https://nytimes.com/2021/05/20/movies/army-of-the-dead-review.html?searchResultPosition=7
-
 **‘Into the Darkness’ Review: Making Excuses for Collaboration**\
 `This film from Anders Refn shows how a Danish family in the 1940s justifies its complicity with the Nazis.`\
-https://nytimes.com/2021/05/20/movies/into-the-darkness-review-making-excuses-for-collaboration.html?searchResultPosition=8
+https://nytimes.com/2021/05/20/movies/into-the-darkness-review-making-excuses-for-collaboration.html?searchResultPosition=7
+
+**‘Army of the Dead’ Review: Thieving Las Vegas**\
+`Zack Snyder’s zombies-in-Vegas extravaganza is an exhausting pivot from brilliant to boring, accomplished to shambolic.`\
+https://nytimes.com/2021/05/20/movies/army-of-the-dead-review.html?searchResultPosition=8
 
 **Americans Actually Want Privacy. Shocking.**\
 `A new operating system gives users more privacy. That’s bad news for Facebook.`\
