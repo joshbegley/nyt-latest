@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/20/arts/television/review-the-bite.html?searchResult
 https://nytimes.com/video/us/politics/100000007773153/abortion-law-texas-governor-greg-abbott.html?searchResultPosition=3
 
 **Scientists Predict an ‘Above Normal’ Atlantic Hurricane Season**\
-`The outlook comes after a record-setting  season in 2020 and as storms have become more devastating with a changing climate.`\
+`The forecast, which follows a record season in 2020, arrives as hurricanes are becoming more destructive over time.`\
 https://nytimes.com/2021/05/20/climate/atlantic-hurricane-outlook.html?searchResultPosition=4
 
 **‘When Hitler Stole Pink Rabbit’ Review: Growing Up, Far From Home**\
