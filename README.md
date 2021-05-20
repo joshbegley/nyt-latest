@@ -1,40 +1,40 @@
+**A Complaint Against Liberal Modernity, and a Solution: Faith**\
+`In “The Unbroken Thread,” Sohrab Ahmari sees Western society as having overreached on freedom and lost a sense of rootedness in tradition and community.`\
+https://nytimes.com/2021/05/20/books/review/the-unbroken-thread-sohrab-ahmari.html?searchResultPosition=1
+
 **Global Cactus Traffickers Are Cleaning Out the Deserts**\
 `A recent raid in Italy involving rare Chilean species highlights the growing scale of a black market in the thorny plants.`\
-https://nytimes.com/2021/05/20/science/cactus-trafficking-chile.html?searchResultPosition=1
+https://nytimes.com/2021/05/20/science/cactus-trafficking-chile.html?searchResultPosition=2
 
 **Signs That It’s Time for Therapy**\
 `We asked a clinical psychologist, a therapist and two psychiatrists about who can most benefit from seeing a mental health professional.`\
-https://nytimes.com/interactive/2021/05/20/well/mind/therapy-advice.html?searchResultPosition=2
+https://nytimes.com/interactive/2021/05/20/well/mind/therapy-advice.html?searchResultPosition=3
 
 **Weekly Health Quiz: Calories, Exercise and an 80th Birthday**\
 `Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2021/05/20/well/live/20healthquiz-05202021.html?searchResultPosition=3
+https://nytimes.com/interactive/2021/05/20/well/live/20healthquiz-05202021.html?searchResultPosition=4
+
+**Treasury defends its plan to narrow the tax gap by beefing up I.R.S. enforcement.**\
+`A new report details the Biden administration’s aim to raise revenue to help pay for its infrastructure proposal.`\
+https://nytimes.com/2021/05/20/business/IRS-tax-gap.html?searchResultPosition=5
 
 **Italy’s Vaccine Drive Runs Up Against a Sacred Institution: Summer Vacation**\
 `The inoculation campaign in the country is speeding up, but it is heading smack into the holiday period, prompting fears among officials that some would rather get away than get a shot.`\
-https://nytimes.com/2021/05/20/world/europe/vaccinations-italy-vacation.html?searchResultPosition=4
+https://nytimes.com/2021/05/20/world/europe/vaccinations-italy-vacation.html?searchResultPosition=6
 
 **As Paycheck Protection Program Runs Dry, Desperation Grows**\
 `Overwhelmed lenders and panicking borrowers are in a frenzy to grab the remaining money in the small business relief program.`\
-https://nytimes.com/2021/05/20/business/paycheck-protection-program.html?searchResultPosition=5
+https://nytimes.com/2021/05/20/business/paycheck-protection-program.html?searchResultPosition=7
 
 **If you’ve always wanted a Twitter blue check, now you can apply for one.**\
 `The company is changing the verification process after confusion and contention, making it easier for select users to request to be verified.`\
-https://nytimes.com/2021/05/20/business/twitter-verified-accounts.html?searchResultPosition=6
+https://nytimes.com/2021/05/20/business/twitter-verified-accounts.html?searchResultPosition=8
 
 **Hong Kong Protests, Silenced on the Streets, Surface in Artworks**\
 `Even as the authorities restrict speech in the Chinese territory, local artists are subtly rendering the 2019 pro-democracy demonstrations in paintings, installations and other media.`\
-https://nytimes.com/2021/05/20/world/asia/hong-kong-protests-art.html?searchResultPosition=7
+https://nytimes.com/2021/05/20/world/asia/hong-kong-protests-art.html?searchResultPosition=9
 
 **When a Summer Day Calls for a Beer**\
 `As outdoor life returns, the warm weather calls for brisk, energetic styles that specialize in cold, straightforward refreshment.`\
-https://nytimes.com/2021/05/20/dining/drinks/summer-beer.html?searchResultPosition=8
-
-**‘The Dry’ Review: Small Town Blues**\
-`Eric Bana stars as a cop visiting his hometown and getting embroiled in new murders and old traumas.`\
-https://nytimes.com/2021/05/20/movies/the-dry-review.html?searchResultPosition=9
-
-**The New York Police and the Gay Pride Parade**\
-`Readers disagree about whether the decision to bar police groups from New York’s Pride celebration was the right move.`\
-https://nytimes.com/2021/05/20/opinion/letters/gay-pride-parade-nyc-police.html?searchResultPosition=10
+https://nytimes.com/2021/05/20/dining/drinks/summer-beer.html?searchResultPosition=10
 
