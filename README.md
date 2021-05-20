@@ -1,40 +1,40 @@
+**As Velocity Increases, So Does Danger to Batters**\
+`Batters are being hit at a rate unseen since the 1890s. Kevin Pillar’s beaning showed how devastating one pitch can be.`\
+https://nytimes.com/2021/05/20/sports/baseball/kevin-pillar-hit-by-pitch.html?searchResultPosition=1
+
+**‘Final Account’ Review: The Banality of Evil**\
+`The filmmaker Luke Holland interviews a series of former Nazi functionaries in this unsettling study of complicity.`\
+https://nytimes.com/2021/05/20/arts/final-account-review-the-banality-of-evil.html?searchResultPosition=2
+
+**‘New Order’ Review: A Revolutionary Nightmare or a Recurring Dream?**\
+`The Mexican director Michel Franco delivers a harsh film that doubles back on itself, inverting assumptions about the forces at play.`\
+https://nytimes.com/2021/05/20/movies/new-order-review.html?searchResultPosition=3
+
+**‘Two Lottery Tickets’ Review: Bumbling Friends Win (and Lose) Big**\
+`This Romanian comedy takes an unpromising premise and turns it into a humble and humorous journey.`\
+https://nytimes.com/2021/05/20/movies/two-lottery-tickets-review.html?searchResultPosition=4
+
+**‘Dream Horse’ Review: A Familiar Bet**\
+`Toni Collette and Damian Lewis play two underdogs in Wales who invest in a race horse in this comedy-drama ripped from the headlines.`\
+https://nytimes.com/2021/05/20/movies/dream-horse-review.html?searchResultPosition=5
+
+**‘Spring Blossom’ Review: Youth’s Fickle Desires**\
+`An alienated teenager finds questionable companionship in this playful coming-of-age romance by Suzanne Lindon, who was in her teens when she wrote, directed and starred in the film.`\
+https://nytimes.com/2021/05/20/movies/spring-blossom-review.html?searchResultPosition=6
+
+**‘Army of the Dead’ Review: Thieving Las Vegas**\
+`Zack Snyder’s zombies-in-Vegas extravaganza is an exhausting pivot from brilliant to boring, accomplished to shambolic.`\
+https://nytimes.com/2021/05/20/movies/army-of-the-dead-review.html?searchResultPosition=7
+
+**‘Into the Darkness’ Review: Making Excuses for Collaboration**\
+`This film from Anders Refn shows how a Danish family in the 1940s justifies its complicity with the Nazis.`\
+https://nytimes.com/2021/05/20/movies/into-the-darkness-review-making-excuses-for-collaboration.html?searchResultPosition=8
+
+**Americans Actually Want Privacy. Shocking.**\
+`A new operating system gives users more privacy. That’s bad news for Facebook.`\
+https://nytimes.com/2021/05/20/opinion/apple-facebook-ios-privacy.html?searchResultPosition=9
+
 **The Myth of Labor Shortages**\
 `Is the U.S. suffering from a labor shortage? If so, capitalism has an answer.`\
-https://nytimes.com/2021/05/20/briefing/labor-shortages-covid-wages.html?searchResultPosition=1
-
-**Past cease-fire periods between Israel and Hamas have not always held up.**\
-`In all, nine truces came and went before the 2014 conflict ended.`\
-https://nytimes.com/2021/05/20/world/middleeast/israel-hamas-ceasefire-history.html?searchResultPosition=2
-
-**‘This Day Was Bound to Come’: Taiwan Confronts a Covid Flare-Up**\
-`The island’s border controls had shielded it from the worst of the pandemic. But new variants and a slow vaccine rollout gave the virus an opening.`\
-https://nytimes.com/2021/05/20/world/asia/taiwan-covid-outbreak.html?searchResultPosition=3
-
-**Odometer Rollbacks: A Hard-to-Spot Nuisance for Car Shoppers**\
-`Nearly half a million vehicles with illegally altered mileage are sold each year, according to federal estimates.`\
-https://nytimes.com/2021/05/20/business/odometer-fraud.html?searchResultPosition=4
-
-**Netanyahu and Biden: A History**\
-`The complicated relationship and delicate diplomacy between President Biden and Prime Minister Benjamin Netanyahu of Israel.`\
-https://nytimes.com/2021/05/20/podcasts/the-daily/israel-palestine-hamas-biden-netanyahu.html?searchResultPosition=5
-
-**Trying to Reach Unvaccinated New Yorkers**\
-`The city's public health officials are urging community groups to start knocking on doors to reach  people who might be hesitant.`\
-https://nytimes.com/2021/05/20/nyregion/nyc-vaccinations-hesitancy.html?searchResultPosition=6
-
-**A German Festival Takes Stock of Pandemic-Era Theater**\
-`Online for a second year, Theatertreffen showcases the highs and lows of recent innovations in German-language digital dramaturgy.`\
-https://nytimes.com/2021/05/20/theater/a-german-festival-takes-stock-of-pandemic-era-theater.html?searchResultPosition=7
-
-**How Plywood From Last Year’s Protests Became Art**\
-`During the George Floyd marches last year, businesses boarded up. This year, hundreds of those boards will be displayed in exhibitions in Minneapolis, New York and Chicago.`\
-https://nytimes.com/2021/05/20/arts/design/george-floyd-memorialize-the-movement.html?searchResultPosition=8
-
-**8 Ways a Modern Civil Rights Movement Moved the Culture**\
-`From music to movies, canceled podcasts to toppled monuments, our writers take stock of the culture we shared in the year after George Floyd’s murder.`\
-https://nytimes.com/2021/05/20/arts/george-floyd-death.html?searchResultPosition=9
-
-**Along the Columbia River, Making a Monument of the Land**\
-`In the Pacific Northwest, Maya Lin’s ‘art landscapes’ celebrate the river’s partnership with Native American tribes.`\
-https://nytimes.com/2021/05/20/arts/maya-lin-tribal-monuments-pacific-northwest.html?searchResultPosition=10
+https://nytimes.com/2021/05/20/briefing/labor-shortages-covid-wages.html?searchResultPosition=10
 
