@@ -18,8 +18,8 @@ https://nytimes.com/2021/05/20/movies/the-dry-review.html?searchResultPosition=4
 `Readers disagree about whether the decision to bar police groups from New York’s Pride celebration was the right move.`\
 https://nytimes.com/2021/05/20/opinion/letters/gay-pride-parade-nyc-police.html?searchResultPosition=5
 
-**Destruction in Gaza Continues After Overnight Airstrikes**\
-`Israel unleashed another wave of airstrikes across the Gaza Strip early Thursday and Hamas fired more rockets, despite expectations that a cease-fire could be coming.`\
+**Aftermath of Overnight Airstrikes in Gaza**\
+`Bombings in Gaza eased overnight amid expectations that a cease-fire could be coming.`\
 https://nytimes.com/video/world/middleeast/100000007772651/israel-hamas-conflict-ceasefire.html?searchResultPosition=6
 
 **5 Art Gallery Shows to See Right Now**\
