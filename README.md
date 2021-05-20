@@ -1,6 +1,6 @@
 **‘Get your shot for a shot to win,’ Maryland’s governor tells residents.**\
 `Gov. Larry Hogan announced that Maryland would partner with the state’s lottery to provide $2 million in prize money for residents who get vaccinated.`\
-https://nytimes.com/2021/05/20/us/maryland-virus-vaccine-lottery.html?searchResultPosition=1
+https://nytimes.com/2021/05/20/us/maryland-coronavirus-vaccine-lottery.html?searchResultPosition=1
 
 **Indian Wells Tennis Tournament Will Return This Year**\
 `The BNP Paribas Open, one of the sport's most prestigious events, is to be staged in October, about seven months later than usual. The 2020 version was canceled because of the pandemic.`\
