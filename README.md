@@ -28,7 +28,7 @@ https://nytimes.com/2021/05/21/nyregion/mark-levitan-dead.html?searchResultPosit
 
 **Inside the Discovery-AT&T Deal: Cute Emails, a Big Loan and Now, a Media Giant**\
 `An early-morning meeting at a Greenwich Village townhouse, under the watchful eye of Steve McQueen, was part of a monthslong campaign.`\
-https://nytimes.com/2021/05/21/business/media/att-discovery-warnermedia-deal-ticktock.html?searchResultPosition=8
+https://nytimes.com/2021/05/21/business/media/att-discovery-warnermedia-deal.html?searchResultPosition=8
 
 **Palestinian Anger With Israel Is Undimmed, Even With Battle Paused**\
 `Unrest broke out in Jerusalem and the West Bank again on Friday, and Palestinians across Israel and the occupied territories expressed the need for common cause against injustice.`\
