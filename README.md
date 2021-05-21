@@ -4,7 +4,7 @@ https://nytimes.com/2021/05/20/us/politics/arizona-recount-voting-machines.html?
 
 **Trump Justice Dept. Seized CNN Reporter’s Email and Phone Records**\
 `In a wide-ranging request, federal prosecutors obtained records for Barbara Starr’s email accounts and multiple phone lines, the network said.`\
-https://nytimes.com/2021/05/20/us/politics/cnn-phone-records-trump-justice.html?searchResultPosition=2
+https://nytimes.com/2021/05/20/us/politics/cnn-trump-barbara-starr.html?searchResultPosition=2
 
 **‘A Dozen Dreams’ Review: Eerie Memories Bring Magic to the Mall**\
 `Twelve exquisitely designed installations capture the fears, hopes and reveries shared on audio by 12 women playwrights.`\
