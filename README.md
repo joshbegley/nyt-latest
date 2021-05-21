@@ -34,7 +34,7 @@ https://nytimes.com/2021/05/21/learning/sounds-of-serenity.html?searchResultPosi
 `A Chinese influencer was barred from a video-sharing app after luring viewers to a livestreamed engagement, where he promoted makeup, perfume and mobile phones.`\
 https://nytimes.com/2021/05/21/world/asia/china-influencer-wedding-proposal-sales.html?searchResultPosition=9
 
-**Japan approves the Moderna and AstraZeneca shots, hoping to speed up its vaccination campaign.**\
+**Japan approves the Moderna and AstraZeneca shots, hoping to speed up vaccinations.**\
 `The move gives the country much-needed options as it deals with a fourth wave, two months before the start of the Tokyo Olympics.`\
 https://nytimes.com/2021/05/21/world/asia/japan-moderna-astrazeneca-vaccine.html?searchResultPosition=10
 
