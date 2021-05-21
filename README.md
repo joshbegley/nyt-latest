@@ -1,4 +1,4 @@
-**Navajo Nation Becomes Largest Tribe in U.S. After Pandemic Surge**\
+**Navajo Nation Becomes Largest Tribe in U.S. After Pandemic Enrollment Surge**\
 `A rush to secure federal benefits during the coronavirus pandemic accelerated enrollment in the Navajo Nation, pushing its population past the Cherokee Nation’s to nearly 400,000.`\
 https://nytimes.com/2021/05/21/us/navajo-cherokee-population.html?searchResultPosition=1
 
