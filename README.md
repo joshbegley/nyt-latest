@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/21/sports/baseball/yermin-mercedes-tony-la-russa.htm
 `A Harvard psychologist, he originally attributed personality traits to nurturing only. Then he concluded, We’re largely born this way.`\
 https://nytimes.com/2021/05/21/science/jerome-kagan-dead.html?searchResultPosition=3
 
-**Dozens Arrested After Pro-Israeli and Palestinian Protesters Clash in N.Y.C.**\
+**Dozens Arrested After Conflict in Gaza Leads to Clashes in Times Square**\
 `At least 27 people were arrested after demonstrations in Times Square and the Diamond District in Midtown Manhattan. Several lawmakers have denounced the clashes.`\
 https://nytimes.com/2021/05/21/nyregion/times-square-protest-diamond-district.html?searchResultPosition=4
 
