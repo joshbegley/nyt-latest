@@ -24,7 +24,7 @@ https://nytimes.com/2021/05/20/sports/pga-championship-first-round-brooks-koepka
 
 **Texas’ First Execution in Nearly a Year Had No Reporters Present**\
 `Quintin Jones, 41, had been convicted of killing a great-aunt and drew national attention when his relatives sought clemency.`\
-https://nytimes.com/2021/05/20/us/texas-execution-reporters.html?searchResultPosition=7
+https://nytimes.com/2021/05/20/us/texas-execution-quintin-jones-reporter.html?searchResultPosition=7
 
 **Biden Welcomes Cease-Fire Between Israel and Hamas**\
 `President Biden said on Thursday that Israel and Hamas had agreed to a “mutual, unconditional” cease-fire and expressed condolences to the families of the victims of the worst fighting in years in the region.`\
