@@ -7,7 +7,7 @@ https://nytimes.com/2021/05/21/briefing/gaza-texas-summer-drinks.html?searchResu
 https://nytimes.com/2021/05/21/nyregion/amazon-nooses-connecticut.html?searchResultPosition=2
 
 **What We Know About Ronald Greene’s Death**\
-`The Louisiana State Police said Mr. Greene died in 2019 from crashing his S.U.V., but video footage shows troopers shocking, choking and beating him.`\
+`The Louisiana State Police said Mr. Greene died in 2019 from crashing his S.U.V. during a police chase, but video footage shows troopers shocking, choking and beating him.`\
 https://nytimes.com/2021/05/21/us/ronald-greene-video-louisiana.html?searchResultPosition=3
 
 **White House Says Dating Apps Can Help Vaccinated (and Frisky) Find Love**\
