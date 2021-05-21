@@ -26,7 +26,7 @@ https://nytimes.com/2021/05/21/opinion/needle-fear-vaccine-covid.html?searchResu
 `We can criticize Netanyahu and still recognize our allies.`\
 https://nytimes.com/2021/05/21/opinion/israel-democrats-netanyahu-hamas-nadler.html?searchResultPosition=7
 
-**Police’s Use of Force Would Face New Limits Under New York Proposal**\
+**How a Sweeping New Proposal Would Limit Police Use of Force in N.Y.**\
 `The state’s attorney general seeks to create a “last resort” rule for officers’ use of physical force, and to impose new criminal penalties for those who break it.`\
 https://nytimes.com/2021/05/21/nyregion/new-york-police-reform.html?searchResultPosition=8
 
