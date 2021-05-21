@@ -24,7 +24,7 @@ https://nytimes.com/2021/05/21/arts/music/olivia-rodrigo-sour-review.html?search
 
 **‘The Mission Wasn’t Completed.’ Cease-Fire Prompts Israelis’ Disappointment.**\
 `The shared dissatisfaction throughout the country signaled Israelis’ growing impatience for what they see as hastily arranged, unconditional cease-fires.`\
-https://nytimes.com/2021/05/21/world/middleeast/israel-ceasefire-gaza.html?searchResultPosition=7
+https://nytimes.com/2021/05/21/world/middleeast/israel-ceasefire-gaza-hamas.html?searchResultPosition=7
 
 **If You Plan to Visit Aging Parents, Bring a To-Do List**\
 `During quarantine, medical, financial and household issues may have cropped up. Preparing before your visit can ease tensions and get to what your really want — a joyful visit.`\
