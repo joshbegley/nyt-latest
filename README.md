@@ -1,40 +1,40 @@
+**Vaccinated? The White House highlights a plan to encourage singles to swipe right.**\
+`With a non-zero amount of awkwardness, the Biden administration highlighted a new plan to encourage more people — particularly the young and frisky ones — to get vaccinated.`\
+https://nytimes.com/2021/05/21/us/politics/biden-covid-vaccine-dating-apps.html?searchResultPosition=1
+
+**It Might Be Time to Break Up Your Pandemic Pod**\
+`Yes, you really need to start seeing other people.`\
+https://nytimes.com/2021/05/21/well/live/pandemic-pod-break-up.html?searchResultPosition=2
+
 **Maggie O’Farrell on ‘Hamnet’**\
 `O’Farrell discusses her novel about Shakespeare and his family, and Judith Shulevitz talks about Rachel Cusk’s “Second Place.”`\
-https://nytimes.com/2021/05/21/books/review/podcast-hamnet-maggie-ofarrell-judith-shulevitz-rachel-cusk-second-place.html?searchResultPosition=1
+https://nytimes.com/2021/05/21/books/review/podcast-hamnet-maggie-ofarrell-judith-shulevitz-rachel-cusk-second-place.html?searchResultPosition=3
 
 **For Better Bakes, Perfect This Versatile Dough**\
 `At home in sweet and savory buns alike, enriched dough is a baking utility player. Let Claire Saffitz lead you to flawless results every time.`\
-https://nytimes.com/2021/05/21/dining/enriched-bread-dough-recipe.html?searchResultPosition=2
+https://nytimes.com/2021/05/21/dining/enriched-bread-dough-recipe.html?searchResultPosition=4
 
 **A Deceptively Beautiful Tapestry About Mourning**\
 `The artist Ebony G. Patterson shares an intricately embellished work that asks what it means to grieve.`\
-https://nytimes.com/2021/05/21/t-magazine/ebony-patterson-art-tapestry.html?searchResultPosition=3
+https://nytimes.com/2021/05/21/t-magazine/ebony-patterson-art-tapestry.html?searchResultPosition=5
 
 **Scoot Henderson Has Options. He’s Choosing G League Ignite.**\
 `Henderson, 17, will bypass college to play for the Ignite, an N.B.A. developmental team for elite prospects. “You know how every kid has their own path?” he said.`\
-https://nytimes.com/2021/05/21/sports/basketball/scoot-henderson-g-league-ignite.html?searchResultPosition=4
+https://nytimes.com/2021/05/21/sports/basketball/scoot-henderson-g-league-ignite.html?searchResultPosition=6
 
 **Look, Just Keep Filling the Chocolate Dish**\
 `A reminder to mind your own business and know your worth.`\
-https://nytimes.com/2021/05/21/business/roxane-gay-work-friend-chocolate.html?searchResultPosition=5
+https://nytimes.com/2021/05/21/business/roxane-gay-work-friend-chocolate.html?searchResultPosition=7
 
 **In Antitrust Trial, Tim Cook Argues Apple Doesn’t Hurt App Makers**\
 `The chief executive of Apple, which was sued by the gaming company Epic, said his company had invested heavily on security and had lowered some fees in its App Store.`\
-https://nytimes.com/2021/05/21/technology/apple-vs-epic-tim-cook.html?searchResultPosition=6
+https://nytimes.com/2021/05/21/technology/apple-vs-epic-tim-cook.html?searchResultPosition=8
 
 **Review: A Synergistic Duo Takes Back the Power of ‘Gloria’**\
 `Molly Lieber and Eleanor Smith present their latest work, a fierce, feminist look at objectification at Abrons Arts Center’s outdoor Amphitheater.`\
-https://nytimes.com/2021/05/21/arts/dance/molly-lieber-eleanor-smith-gloria-review.html?searchResultPosition=7
+https://nytimes.com/2021/05/21/arts/dance/molly-lieber-eleanor-smith-gloria-review.html?searchResultPosition=9
 
 **The Gala Season Restarts with Hats Galore**\
 `Philanthropists, billionaires and society swans flocked to the Central Park hat luncheon, the first major charity event held in person since the pandemic.`\
-https://nytimes.com/2021/05/21/style/central-park-hat-luncheon-gala-season-returns.html?searchResultPosition=8
-
-**Biden Administration Incentivizes Vaccination Through Dating Apps**\
-`The Biden administration announced on Friday that they will partner with a number of popular dating apps like Tinder, OkCupid, Hinge, BLK and Chispa, to promote vaccination status among single people.`\
-https://nytimes.com/video/us/politics/100000007775520/vaccinated-dating-apps.html?searchResultPosition=9
-
-**The Captain of Everything**\
-`Liverpool’s Jordan Henderson has not played in months. But the art of being a captain is not limited to soccer, and for Henderson, leading is not limited to his team.`\
-https://nytimes.com/2021/05/21/sports/soccer/liverpool-premier-league-jordan-henderson.html?searchResultPosition=10
+https://nytimes.com/2021/05/21/style/central-park-hat-luncheon-gala-season-returns.html?searchResultPosition=10
 
