@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/21/us/coronavirus-today.html?searchResultPosition=1
 `On her excellent debut album, “Sour,” the 18-year-old singer and actress expresses just how challenging it is to arrive at who you are.`\
 https://nytimes.com/2021/05/21/arts/music/olivia-rodrigo-sour-review.html?searchResultPosition=2
 
-**‘The Mission Wasn’t Completed.’ Cease-Fire Prompts Israelis’ Disappointment**\
+**‘The Mission Wasn’t Completed.’ Cease-Fire Prompts Israelis’ Disappointment.**\
 `The shared dissatisfaction throughout the country signaled Israelis’ growing impatience for what they see as hastily arranged, unconditional cease-fires.`\
 https://nytimes.com/2021/05/21/world/middleeast/israel-ceasefire-gaza.html?searchResultPosition=3
 
