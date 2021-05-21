@@ -1,6 +1,6 @@
 **Succulent Sausage, and a Standout Couscous Salad**\
 `Crisp, brawny merguez runs through this summery, vegetable-packed grain dish.`\
-https://nytimes.com/2021/05/21/dining/couscous-salad-mergeuz.html?searchResultPosition=1
+https://nytimes.com/2021/05/21/dining/couscous-salad-merguez.html?searchResultPosition=1
 
 **A Cease-Fire, and New Ideas in Israel and the Palestinian Territories**\
 `The cease-fire between Hamas and Israel didn’t come a second too soon.`\
