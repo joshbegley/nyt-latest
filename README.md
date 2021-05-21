@@ -31,7 +31,7 @@ https://nytimes.com/2021/05/21/arts/music/olivia-rodrigo-sour-review.html?search
 https://nytimes.com/2021/05/21/world/middleeast/israel-ceasefire-gaza-hamas.html?searchResultPosition=8
 
 **If You Plan to Visit Aging Parents, Bring a To-Do List**\
-`During quarantine, medical, financial and household issues may have cropped up. Preparing before your visit can ease tensions and get to what your really want — a joyful visit.`\
+`During quarantine, medical, financial and household issues may have cropped up. Preparing before your visit can ease tensions and get to what your parents really want — a joyful visit.`\
 https://nytimes.com/2021/05/21/well/visit-aging-parents.html?searchResultPosition=9
 
 **Joan Schenkar, Biographer of Patricia Highsmith, Dies at 78**\
