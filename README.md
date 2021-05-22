@@ -1,10 +1,10 @@
-**We Took Down the Monuments to the Lost Cause. Now We Build.**\
-`The monuments to the Lost Cause no longer define our city. But we must build something new in their place.`\
-https://nytimes.com/2021/05/22/opinion/confederate-monuments-richmond-levar-stoney.html?searchResultPosition=1
-
 **Who Was This Racial Reckoning Really For?**\
 `Acknowledging people's humanity is interesting. It’s not necessarily justice. Improving their lives, keeping them alive, may be.`\
-https://nytimes.com/2021/05/22/opinion/george-floyd-duante-wright-police-race-class.html?searchResultPosition=2
+https://nytimes.com/2021/05/22/opinion/george-floyd-duante-wright-police-race-class.html?searchResultPosition=1
+
+**We Took Down the Monuments to the Lost Cause. Now We Build.**\
+`The monuments to the Lost Cause no longer define our city. But we must build something new in their place.`\
+https://nytimes.com/2021/05/22/opinion/confederate-monuments-richmond-levar-stoney.html?searchResultPosition=2
 
 **Holding Cops Accountable, a Year Later**\
 `The courts created qualified immunity for police. Reform means getting rid of it.`\
