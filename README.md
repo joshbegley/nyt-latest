@@ -1,6 +1,6 @@
 **A Look Inside Israel’s ‘Fortress of Zion’ Military Command Beneath Tel Aviv**\
 `The country’s military and intelligence commanded the recent assault on Hamas in Gaza from an underground bunker made for high-tech air wars.`\
-https://nytimes.com/2021/05/22/world/middleeast/israel-fortress-of-zion-military-command.html?searchResultPosition=1
+https://nytimes.com/2021/05/22/world/middleeast/israel-fortress-of-zion.html?searchResultPosition=1
 
 **Defying Critics, Biden and the Fed Insist the Economic Recovery Is on Track**\
 `Confidence from the White House runs counter to warnings from Republicans, some investors and even a few liberal economists.`\
