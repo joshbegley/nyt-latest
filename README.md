@@ -1,6 +1,6 @@
 **‘You Can Feel the Tension’: A Windfall for Minority Farmers Divides Rural America**\
 `A $4 billion federal fund meant to confront how racial injustice has shaped American farming has angered white farmers who say they are being unfairly excluded.`\
-https://nytimes.com/2021/05/22/us/black-farmers-debt-relif.html?searchResultPosition=1
+https://nytimes.com/2021/05/22/us/black-farmers.html?searchResultPosition=1
 
 **A Late-Night Proclamation Blocks a Woman From Leading Samoa**\
 `Fiame Naomi Mata’afa was set to be sworn in Monday as the country’s first new prime minister in 22 years, until the head of state suspended Parliament.`\
