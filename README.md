@@ -1,6 +1,6 @@
 **Our reporter has one of the hottest tickets in town.**\
-`By Thomas Erdbrink`\
-https://nytimes.com/2021/05/22/world/europe/our-reporter-has-one-of-the-hottest-tickets-in-town.html?searchResultPosition=1
+`After a year of coronavirus letdowns, more than 3,500 mainly Dutch fans were in to see the show, and they were filled with exuberance.`\
+https://nytimes.com/2021/05/22/world/europe/eurovision-tickets.html?searchResultPosition=1
 
 **Kathleen Andrews Dies at 84; Helped Give Ziggy and Others Their Start**\
 `As a top executive at the Andrews McMeel syndicate, she played a key role in the careers of Tom Wilson, Cathy Guisewite and Garry Trudeau.`\
