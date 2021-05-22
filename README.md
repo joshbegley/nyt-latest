@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/22/admin/just-add-lemon.html?searchResultPosition=2
 
 **The N.B.A. vs. the Coronavirus May Be the Toughest Playoff Matchup**\
 `There’s no bubble for the postseason, and players don’t have to get vaccinated. Some players have lingering effects from infections. The league acknowledged that it is “worried” others will get sick, too.`\
-https://nytimes.com/2021/05/22/sports/basketball/nba-playoffs-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2021/05/22/sports/basketball/covid-nba.html?searchResultPosition=3
 
 **The Co-op Board Letter: Do I Have To?**\
 `In the quirky world of New York City real estate, there really is no way around it. But it’s not quite the heavy lift it might seem.`\
