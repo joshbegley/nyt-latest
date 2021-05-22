@@ -1,40 +1,40 @@
+**A Late-Night Proclamation Blocks a Woman From Leading Samoa**\
+`Fiame Naomi Mata’afa was set to be sworn in Monday as the country’s first new prime minister in 22 years, until the head of state suspended Parliament.`\
+https://nytimes.com/2021/05/22/world/asia/samoa-election-crisis.html?searchResultPosition=1
+
 **Holding Your Friend’s Hand May Feel Strange. Do It Anyway.**\
 `As Americans emerge from the pandemic, we should get comfortable with a wider range of platonic touch.`\
-https://nytimes.com/2021/05/22/opinion/friends-holding-hands-touch.html?searchResultPosition=1
+https://nytimes.com/2021/05/22/opinion/friends-holding-hands-touch.html?searchResultPosition=2
 
 **In the Race for a Covid-19 Pill, a Little Lab Plays a Big Role**\
 `The Big Pharma drug model is inefficient and unsustainable. There is an alternative.`\
-https://nytimes.com/2021/05/22/opinion/drug-developed-covid-19-pill.html?searchResultPosition=2
+https://nytimes.com/2021/05/22/opinion/drug-developed-covid-19-pill.html?searchResultPosition=3
 
 **The pandemic is ebbing, but what about governors’ emergency powers?**\
 `State legislators this week have been asking about the necessity for restrictions and many are calling for emergency action to draw down.`\
-https://nytimes.com/2021/05/22/world/covid-19-governor-emergency-powers.html?searchResultPosition=3
+https://nytimes.com/2021/05/22/world/covid-19-governor-emergency-powers.html?searchResultPosition=4
 
 **Just Add Lemon**\
 `Cook with tangy citrus this weekend in a slaw, a pasta or a sheet-pan meal.`\
-https://nytimes.com/2021/05/22/admin/just-add-lemon.html?searchResultPosition=4
+https://nytimes.com/2021/05/22/admin/just-add-lemon.html?searchResultPosition=5
 
 **The N.B.A. vs. the Coronavirus May Be the Toughest Playoff Matchup**\
 `There’s no bubble for the postseason, and players don’t have to get vaccinated. Some players have lingering effects from infections. The league acknowledged that it is “worried” others will get sick, too.`\
-https://nytimes.com/2021/05/22/sports/basketball/covid-nba.html?searchResultPosition=5
+https://nytimes.com/2021/05/22/sports/basketball/covid-nba.html?searchResultPosition=6
 
 **The Co-op Board Letter: Do I Have To?**\
 `In the quirky world of New York City real estate, there really is no way around it. But it’s not quite the heavy lift it might seem.`\
-https://nytimes.com/2021/05/22/realestate/the-co-op-board-letter-do-i-have-to.html?searchResultPosition=6
+https://nytimes.com/2021/05/22/realestate/the-co-op-board-letter-do-i-have-to.html?searchResultPosition=7
 
 **Vaccinations are lagging at many U.S. prisons, where major virus outbreaks have been common.**\
 `Only two in five federal inmates have gotten at least one shot so far, compared with three-fifths of adults nationwide. Despite the elevated risk behind bars, mistrust and refusal rates run high.`\
-https://nytimes.com/2021/05/22/us/covid-prison-vaccine.html?searchResultPosition=7
+https://nytimes.com/2021/05/22/us/covid-prison-vaccine.html?searchResultPosition=8
 
 **No, People Are Not Returning Pandemic Dogs in Droves**\
 `Despite alarmist headlines, the happy truth is most people are keeping their newly adopted pets, animal welfare groups say.`\
-https://nytimes.com/2021/05/22/us/dog-adoptions-pandemic.html?searchResultPosition=8
+https://nytimes.com/2021/05/22/us/dog-adoptions-pandemic.html?searchResultPosition=9
 
 **Pakistan’s Private Vaccine Sales Highlight Rich-Poor Divide**\
 `An inoculation push, plagued with limited supplies and red tape, makes doses available to those who can pay for them. In a country with a struggling economy, most can’t.`\
-https://nytimes.com/2021/05/22/world/asia/pakistan-private-vaccines.html?searchResultPosition=9
-
-**Germany suspends travel from the U.K. amid concerns of a variant’s spread.**\
-`The move came just days after Britain reopened its museums and cinemas and resumed allowing indoor service in pubs and restaurants.`\
-https://nytimes.com/2021/05/22/world/europe/covid-germany-uk-travel.html?searchResultPosition=10
+https://nytimes.com/2021/05/22/world/asia/pakistan-private-vaccines.html?searchResultPosition=10
 
