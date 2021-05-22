@@ -14,7 +14,7 @@ https://nytimes.com/2021/05/21/nyregion/jeffrey-epstein-suicide-guards.html?sear
 `Standing next to the leader of South Korea at the White House on Friday, President Biden said he was “deeply concerned” about the nuclear threat from North Korea and said he wouldn’t repeat the mistakes of past administrations.`\
 https://nytimes.com/video/us/politics/100000007776506/biden-north-korea-nuclear-program.html?searchResultPosition=4
 
-**Their Own Private Idaho: Five Oregon Counties Back a Plan to Secede**\
+**ruraTheir Own Private Idaho: Five Oregon Counties Back a Plan to Secede**\
 `In nonbinding elections, parts of eastern Oregon said they wanted to join Idaho. The conservative region has long felt alienated from the liberal politics of Oregon’s population centers.`\
 https://nytimes.com/2021/05/21/us/oregon-idaho-secession.html?searchResultPosition=5
 
