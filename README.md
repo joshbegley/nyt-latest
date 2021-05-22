@@ -1,40 +1,40 @@
-**Conflict Strengthens Netanyahu, but the Price is High**\
-`The battle with Hamas may benefit Prime Minister Netanyahu politically in the short term but leaves his underlying problems unresolved.`\
-https://nytimes.com/2021/05/22/world/middleeast/netanyahu-israel-gaza.html?searchResultPosition=1
+**‘We Always Rise.’ A Black-Owned Bookstore Navigates the Pandemic**\
+`Source of Knowledge has been a Newark mainstay for decades. It survived the past year thanks to the generosity of its customers and an owner who provides more than just books.`\
+https://nytimes.com/2021/05/22/business/source-of-knowledge-bookstore-newark.html?searchResultPosition=1
 
-**Republicans Move to Limit a Grass-Roots Tradition of Direct Democracy**\
-`Through ballot initiatives, voters in red states have defied legislators’ wishes and produced liberal outcomes in recent years. Republicans want to make the practice harder, or even eliminate it.`\
-https://nytimes.com/2021/05/22/us/politics/republican-ballot-initiatives-democrats.html?searchResultPosition=2
+**In the Russian Arctic, the First Stirrings of a Very Cold War**\
+`Though the Russian military has little in common with liberal Western politicians or environmental groups like Greenpeace, it is taking ice melt in the Far North seriously.`\
+https://nytimes.com/2021/05/22/world/russia-us-arctic-military.html?searchResultPosition=2
 
-**In the N.B.A. Playoffs, the Scariest Teams Aren’t at the Top**\
-`Injuries and illness dragged down the records of several teams, including the defending champion Los Angeles Lakers. That could mean early postseason exits for the season’s best.`\
-https://nytimes.com/2021/05/22/sports/basketball/nba-playoff-preview.html?searchResultPosition=3
+**Yes, Pot Is Legal. But It’s Also in Short Supply.**\
+`Cannabis corporations are rushing to meet what is expected to be a “tidal wave” of demand in New York and New Jersey.`\
+https://nytimes.com/2021/05/22/nyregion/marijuana-shortage-ny-nj.html?searchResultPosition=3
 
-**Yankees Turn a Triple Play and Get a Walk-Off Win**\
-`The starting pitchers combined for 24 strikeouts in a showdown between the Yankees and the White Sox. Khalil Lee’s first major league hit propelled the Mets to victory.`\
-https://nytimes.com/2021/05/21/sports/baseball/yankees-mets.html?searchResultPosition=4
+**U.S. Activists Try to Halt an Australian Way of Life: Killing Kangaroos**\
+`A bill in Congress aims to ban all kangaroo products from Australia, setting up a clash between two very different kinds of people on opposite ends of the earth.`\
+https://nytimes.com/2021/05/22/world/australia/us-australia-kangaroo-ban.html?searchResultPosition=4
 
-**Corrections: May 22, 2021**\
-`Corrections that appeared in print on Saturday, May 22, 2021.`\
-https://nytimes.com/2021/05/21/pageoneplus/corrections-may-22-2021.html?searchResultPosition=5
+**Risk of Nuclear War Over Taiwan in 1958 Said to Be Greater Than Publicly Known**\
+`The famed source of the Pentagon Papers, Daniel Ellsberg, has made another unauthorized disclosure — and wants to be prosecuted for it.`\
+https://nytimes.com/2021/05/22/us/politics/nuclear-war-risk-1958-us-china.html?searchResultPosition=5
 
-**Quotation of the Day: Rural Oregon Votes to Quit Its Own State**\
-`Quotation of the Day for Saturday, May 22, 2021.`\
-https://nytimes.com/2021/05/21/todayspaper/quotation-of-the-day-rural-oregon-votes-to-quit-its-own-state.html?searchResultPosition=6
+**Life Under Occupation:The Misery at the Heart of the Conflict**\
+`An eviction in East Jerusalem lies at the center of a conflict that led to war between Israel and Hamas. But for millions of Palestinians, the routine indignities of occupation are part of daily life.`\
+https://nytimes.com/2021/05/22/us/israel-palestinian-jerusalem.html?searchResultPosition=6
 
-**Jail Guards Charged in Epstein Suicide Could Avoid Prosecution**\
-`Two jail guards accused of browsing the internet and napping while Jeffrey Epstein killed himself reached a deal with prosecutors.`\
-https://nytimes.com/2021/05/21/nyregion/jeffrey-epstein-suicide-guards.html?searchResultPosition=7
+**For Colleges, Vaccine Mandates Often Depend on Which Party Is in Power**\
+`Hoping for a return to normal, more than 400 colleges and universities are requiring students to be vaccinated for Covid-19. Almost all are in states that voted for President Biden.`\
+https://nytimes.com/2021/05/22/us/coronavirus-college-vaccine-mandates.html?searchResultPosition=7
 
-**Biden Expresses Deep Concern Over North Korea’s Nuclear Program**\
-`Standing next to the leader of South Korea at the White House on Friday, President Biden said he was “deeply concerned” about the nuclear threat from North Korea and said he wouldn’t repeat the mistakes of past administrations.`\
-https://nytimes.com/video/us/politics/100000007776506/biden-north-korea-nuclear-program.html?searchResultPosition=8
+**Inside the Secretive Legal Process That Can Shield Police From Charges**\
+`Grand jury minutes in the investigation into Daniel Prude’s death reveal the many ways the criminal justice system struggles when prosecuting the police.`\
+https://nytimes.com/2021/05/22/nyregion/daniel-prude-death-letitia-james.html?searchResultPosition=8
 
-**Their Own Private Idaho: Five Oregon Counties Back a Plan to Secede**\
-`In nonbinding elections, parts of eastern Oregon said they wanted to join Idaho. The conservative region has long felt alienated from the liberal politics of Oregon’s population centers.`\
-https://nytimes.com/2021/05/21/us/oregon-idaho-secession.html?searchResultPosition=9
+**The Reopening of America, in Pictures**\
+`A National desk project documented scenes in every state. Two photo editors discuss their thoughts on the more than 600 images they reviewed.`\
+https://nytimes.com/2021/05/22/insider/pictures-reopening-america.html?searchResultPosition=9
 
-**After High-Wire Act, Biden Faces Tough New Middle East Tests**\
-`The administration is considering how to recalibrate its policy in the region in light of the cease-fire between Israel and the Palestinians without distracting from other priorities.`\
-https://nytimes.com/2021/05/21/us/politics/biden-israel-diplomacy.html?searchResultPosition=10
+**The Woman Behind Iconic Beyoncé Looks and ‘Black Owned Everything’**\
+`Zerika Akers wants widespread interest in Black brands to be more than a trend.`\
+https://nytimes.com/2021/05/22/business/zerina-akers-beyonce.html?searchResultPosition=10
 
