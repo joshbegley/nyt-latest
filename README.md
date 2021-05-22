@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/22/sports/basketball/nba-playoff-preview.html?searchResultPosition=1
 
 **Yankees Turn a Triple Play and Get a Walk-Off Win**\
-`The starting pitchers for the Yankees and the White Sox combined for 24 strikeouts, no walks and no runs.`\
+`The starting pitchers combined for 24 strikeouts in a showdown between the Yankees and the White Sox. Khalil Lee’s first major league hit propelled the Mets to victory.`\
 https://nytimes.com/2021/05/21/sports/baseball/yankees-mets.html?searchResultPosition=2
 
 **Corrections: May 22, 2021**\
