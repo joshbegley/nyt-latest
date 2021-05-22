@@ -30,7 +30,7 @@ https://nytimes.com/2021/05/22/opinion/george-floyd-duante-wright-police-race-cl
 `The monuments to the Lost Cause no longer define our city. But we must build something new in their place.`\
 https://nytimes.com/2021/05/22/opinion/confederate-monuments-richmond-levar-stoney.html?searchResultPosition=8
 
-**Holding Cops Accountable, a Year Later**\
+**End the Court Doctrine That Enables Police Brutality**\
 `The courts created qualified immunity for police. Reform means getting rid of it.`\
 https://nytimes.com/2021/05/22/opinion/qualified-immunity-police-brutality-misconduct.html?searchResultPosition=9
 
