@@ -1,6 +1,6 @@
 **Italy wins the 2021 Eurovision Song Contest.**\
 `The first major global cultural event to be held since the coronavirus pandemic hit last year, ended in a triumph for Italy’s Maneskin, who won with a hard-rocking song called “Zitti E Buoni.”`\
-https://nytimes.com/2021/05/22/world/europe/italy-wins-2021-eurovision.html?searchResultPosition=1
+https://nytimes.com/2021/05/22/world/europe/italy-maneskin-wins-2021-eurovision.html?searchResultPosition=1
 
 **Volcanic Eruption in Congo Causes Panic in City of 2 Million**\
 `There was no immediate word on any casualties, but witnesses said that lava from Mount Nyiragongo already had engulfed one highway that connects Goma with a nearby city.`\
