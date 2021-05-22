@@ -18,7 +18,7 @@ https://nytimes.com/2021/05/21/us/politics/biden-israel-diplomacy.html?searchRes
 `An expert on astronomy, she spent nearly a half-century at the Library of Congress and helped Isaac Asimov and Carl Sagan with research.`\
 https://nytimes.com/2021/05/21/books/ruth-freitag-dead.html?searchResultPosition=5
 
-**Phil Mickelson Muscles His Way Up the P.G.A. Championship Leaderboard**\
+**Phil Mickelson Moves to the Top of the P.G.A. Championship Leaderboard**\
 `If he triumphs at the Ocean Course on Kiawah Island this weekend, Mickelson, 50, will become the oldest winner of a major golf tournament.`\
 https://nytimes.com/2021/05/21/sports/golf/pga-championship-phil-mickelson.html?searchResultPosition=6
 
