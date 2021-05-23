@@ -16,7 +16,7 @@ https://nytimes.com/2021/05/23/opinion/letters/weight-diets.html?searchResultPos
 
 **2 Dead and 12 Wounded in House Party Shooting in New Jersey, Police Say**\
 `The New Jersey State Police responded to report of a shooting at a house party late on Saturday night.`\
-https://nytimes.com/2021/05/23/nyregion/house-party-shooting-bridgeton-nj.html?searchResultPosition=5
+https://nytimes.com/2021/05/23/nyregion/nj-shooting-bridgeton.html?searchResultPosition=5
 
 **What to Cook This Week**\
 `A dry run this weekend of whatever you plan to cook on Memorial Day — maybe Korean beef burgers with sesame-cucumber pickles — is worth the effort.`\
