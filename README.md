@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/23/sports/soccer/liverpool-champions-league.html?searchResultPosition=1
 
 **A Year After George Floyd: Police Reform Struggles Amid a Surge in Homicides**\
-`A year after the police killing of George Floyd in Minneapolis inspired a mass movement for racial justice, Los Angeles, like other cities across the nation, is facing a rise in gun violence. That is forcing leaders to reassess how far they are willing to go to reimagine public safety.`\
+`Los Angeles, like other cities across the nation, is facing a rise in gun violence. And the police budget is growing.`\
 https://nytimes.com/2021/05/23/us/george-floyd-police-reform-struggles-amid-surge-in-homicides.html?searchResultPosition=2
 
 **Iran, a Longtime Backer of Hamas, Cheers Attacks on Israel**\
