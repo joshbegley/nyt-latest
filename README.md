@@ -2,7 +2,7 @@
 `Aaron Judge won Sunday’s game with a walk-off walk, but a dominant stretch by Yankees starters should have opponents alarmed.`\
 https://nytimes.com/2021/05/23/sports/baseball/yankees-white-sox.html?searchResultPosition=1
 
-**Joe Biden’s Sudden Opportunity to Make Peace**\
+**How Joe Biden Can Win a Nobel Peace Prize**\
 `The latest Israel-Palestinian conflict could result in a peace deal — if the Americans are willing to broker it.`\
 https://nytimes.com/2021/05/23/opinion/israel-hamas-biden.html?searchResultPosition=2
 
