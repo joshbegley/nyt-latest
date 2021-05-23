@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/23/world/middleeast/iran-a-longtime-backer-of-hamas-
 
 **Before Rage Flared, a Push to Make Israel’s Mixed Towns More Jewish**\
 `An eruption of Arab-Jewish violence inside Israeli cities has focused attention on a movement of religious nationalists seeking to strengthen the Jewish presence in areas with large Arab populations.`\
-https://nytimes.com/2021/05/23/world/middleeast/before-rage-flared-a-push-to-make-israels-mixed-towns-more-jewish.html?searchResultPosition=4
+https://nytimes.com/2021/05/23/world/middleeast/arabs-jewish-israel-palestine.html?searchResultPosition=4
 
 **Hail Kevin McCarthy, People Pleaser and Trump Appeaser**\
 `Kevin McCarthy will do anything to be speaker of the House. `\
