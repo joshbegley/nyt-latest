@@ -1,4 +1,4 @@
-**‘Saturday Night Live’ Looks Back on Its Pandemic Year**\
+**‘Saturday Night Live’ Season Finale Looks Back on a Pandemic Year**\
 `The episode, hosted by Anya Taylor-Joy and featuring the musical guest Lil Nas X, let “S.N.L.” cast members (and the surprise guest Chris Rock) reflect on a challenging season.`\
 https://nytimes.com/2021/05/23/arts/television/snl-season-finale-lil-nas-x.html?searchResultPosition=1
 
