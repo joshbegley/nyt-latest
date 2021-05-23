@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/23/opinion/kevin-mccarthy-trump-republicans.html?sea
 https://nytimes.com/2021/05/23/us/covid-cases-vaccinations-united-states.html?searchResultPosition=3
 
 **At Least 14 People Killed After Cable Car Plummets in Italy**\
-`A cable car plunged from a height of nearly 40 feet as it was traveling from the Lake Maggiore area to Mottarone mountain in northern Italy on Sunday. The accident also seriously injured a minor.`\
+`A cable car plunged from a height of nearly 40 feet as it was traveling from the Lake Maggiore area to Mottarone mountain in northern Italy on Sunday.`\
 https://nytimes.com/video/world/europe/100000007777544/italy-cable-car-crash.html?searchResultPosition=4
 
 **Lava Recedes After Volcanic Eruption in Congo**\
