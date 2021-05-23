@@ -1,10 +1,10 @@
+**So You Want to End the Conversation?**\
+`So do most people, a recent study found. Plus: amblypigids, a company called Covid, and other staff recommendations in the weekend edition of the Science Times newsletter.`\
+https://nytimes.com/2021/05/23/science/psychology-conversation-mastroianni.html?searchResultPosition=1
+
 **The Sunday Read: ‘Neanderthals Were People, Too’**\
 `Research has shown that they shared many behaviors that we long believed to be uniquely human. Why did science get them so wrong?`\
-https://nytimes.com/2021/05/23/podcasts/the-daily/neanderthals-were-people-too.html?searchResultPosition=1
-
-**So You Want to End the Conversation?**\
-`So do most people, a recent study found. Plus: amblypigids, a company called Covid and other staff recommendations in the weekend edition of the Science Times newsletter.`\
-https://nytimes.com/2021/05/23/science/psychology-conversation-mastroianni.html?searchResultPosition=2
+https://nytimes.com/2021/05/23/podcasts/the-daily/neanderthals-were-people-too.html?searchResultPosition=2
 
 **Homes That Sold for Around $1.5 Million**\
 `Recent residential sales in New York City and the region.`\
