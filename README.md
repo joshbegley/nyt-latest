@@ -2,9 +2,9 @@
 `A win at Anfield guaranteed the club a place in the Champions League next season, but only a brief respite before it plunges into soccer’s new reality.`\
 https://nytimes.com/2021/05/23/sports/soccer/liverpool-champions-league.html?searchResultPosition=1
 
-**A Year After George Floyd: Police Reform Struggles Amid a Surge in Homicides**\
+**A Year After George Floyd: Pressure to Add Police Amid Rising Crime**\
 `Los Angeles, like other cities across the nation, is facing a rise in gun violence. And the police budget is growing.`\
-https://nytimes.com/2021/05/23/us/george-floyd-police-reform-struggles-amid-surge-in-homicides.html?searchResultPosition=2
+https://nytimes.com/2021/05/23/us/george-floyd-police.html?searchResultPosition=2
 
 **Iran, a Longtime Backer of Hamas, Cheers Attacks on Israel**\
 `Tehran jumped at the chance to portray militants’ barrages on Israel as revenge for Israeli attacks on Iran. But Israel says Tehran played no role in the latest conflict.`\
