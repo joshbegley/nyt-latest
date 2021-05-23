@@ -1,5 +1,5 @@
-**After Stumbling to Finish Line, Liverpool Struts Across It**\
-`A win at Anfield guaranteed a place in the Champions League next season, but only a brief respite before it plunges into soccer’s new reality.`\
+**After Stumbling to the Finish Line, Liverpool Struts Across It**\
+`A win at Anfield guaranteed the club a place in the Champions League next season, but only a brief respite before it plunges into soccer’s new reality.`\
 https://nytimes.com/2021/05/23/sports/soccer/liverpool-champions-league.html?searchResultPosition=1
 
 **A Year After George Floyd: Police Reform Struggles Amid a Surge in Homicides**\
