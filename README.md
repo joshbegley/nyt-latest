@@ -6,7 +6,7 @@ https://nytimes.com/video/world/europe/100000007777544/italy-cable-car-crash.htm
 `People returned to areas in the eastern Democratic Republic of Congo on Sunday that were threatened by an eruption from Mount Nyiragongo. Thousands had been forced to evacuate nearby neighborhoods overnight.`\
 https://nytimes.com/video/world/africa/100000007777479/congo-volcano-eruption-goma-nyiragongo.html?searchResultPosition=2
 
-**Belarus Forces Down Plane Carrying Dissident and Seizes Him**\
+**Belarus Forces Down Plane to Seize Dissident; Europe Calls It ‘State Hijacking’**\
 `The dissident, Roman Protasevich, co-founded a Telegram channel that is a popular opposition outlet in Belarus. The plane was flying from Athens to Lithuania when it was forced down.`\
 https://nytimes.com/2021/05/23/world/europe/ryanair-belarus.html?searchResultPosition=3
 
