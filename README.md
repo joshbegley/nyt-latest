@@ -22,7 +22,7 @@ https://nytimes.com/2021/05/23/sports/nyc-marathon-vaccination.html?searchResult
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2021/05/23/learning/whats-going-on-in-this-picture-may-24-2021.html?searchResultPosition=6
 
-**Lava From Erupting Volcano Halts Outside City in Congo**\
+**Lava From Erupting Volcano Panics City in Congo**\
 `After a night of panic and chaos that caused tens of thousands to flee their homes, officials in Goma cautiously declared the emergency over.`\
 https://nytimes.com/2021/05/23/world/asia/congo-volcano-eruption.html?searchResultPosition=7
 
