@@ -1,6 +1,6 @@
 **Belarus Scrambles Jet to Force Down Plane Carrying Dissident**\
 `The dissident, Roman Protasevich, co-founded a Telegram channel that is a popular opposition outlet in Belarus. The plane was flying from Athens to Lithuania when it was forced down.`\
-https://nytimes.com/2021/05/23/world/europe/belarus-scrambles-jet-to-force-down-plane-carrying-dissident.html?searchResultPosition=1
+https://nytimes.com/2021/05/23/world/europe/ryanair-belarus.html?searchResultPosition=1
 
 **Yearbook Photos of Girls Were Altered to Hide Their Chests**\
 `Parents and students said they were outraged that photos of at least 80 female students at Bartram Trail High School in St. Johns County, Fla., had been digitally edited.`\
