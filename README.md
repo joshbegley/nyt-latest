@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/23/us/george-floyd-police-reform-struggles-amid-surg
 
 **Iran, a Longtime Backer of Hamas, Cheers Attacks on Israel**\
 `Tehran jumped at the chance to portray militants’ barrages on Israel as revenge for Israeli attacks on Iran. But Israel says Tehran played no role in the latest conflict.`\
-https://nytimes.com/2021/05/23/world/middleeast/iran-a-longtime-backer-of-hamas-cheers-attacks-on-israel.html?searchResultPosition=3
+https://nytimes.com/2021/05/23/world/middleeast/iran-israel.html?searchResultPosition=3
 
 **Before Rage Flared, a Push to Make Israel’s Mixed Towns More Jewish**\
 `An eruption of Arab-Jewish violence inside Israeli cities has focused attention on a movement of religious nationalists seeking to strengthen the Jewish presence in areas with large Arab populations.`\
