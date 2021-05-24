@@ -22,7 +22,7 @@ https://nytimes.com/2021/05/24/business/economy/belarus-buttigieg.html?searchRes
 `Start your week off with an old favorite (chipotle-rubbed steaks with cilantro-lime butter) or a brand-new recipe (tahini-Parmesan pasta salad).`\
 https://nytimes.com/2021/05/24/dining/what-to-cook-right-now.html?searchResultPosition=6
 
-**Beautiful Coast. Quiet Escape. And SpaceX Rockets in Your Backyard.**\
+**A Serene Shore Resort, Except for the SpaceX ‘Ball of Fire’**\
 `For years, those in a rural Texas village cherished living among nature and wildlife. Elon Musk’s SpaceX has brought new fears and the promise of an economic boost to one of America’s poorest corners.`\
 https://nytimes.com/2021/05/24/us/space-x-boca-chica-texas.html?searchResultPosition=7
 
