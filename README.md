@@ -1,40 +1,40 @@
-**Aung San Suu Kyi Makes First Court Appearance Since Coup**\
-`Ms. Aung San Suu Kyi, 75, is facing a raft of charges after being detained by Myanmar’s military. If she is found guilty, she could be imprisoned for the rest of her life.`\
-https://nytimes.com/2021/05/24/world/asia/myanmar-court-assk.html?searchResultPosition=1
+**‘Delayed Prescribing’ May Help Cut Down on Antibiotic Use**\
+`Most respiratory illnesses don’t require antibiotics, which can have harmful side effects.`\
+https://nytimes.com/2021/05/24/well/delayed-prescription-antibiotics.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Scenes From America’s Reopening’**\
-`In this lesson, students will learn what reopening in America looks like — the joys, the relief, the uncertainties. Then they will document what reopening looks like in their communities.`\
-https://nytimes.com/2021/05/24/learning/lesson-of-the-day-scenes-from-americas-reopening.html?searchResultPosition=2
+**The Perilous Hunt for Coconut Crabs on a Remote Polynesian Island**\
+`On Makatea, an uplifted coral atoll marred by decades of mining, searching for crabs often requires gambling with the treacherous terrain.`\
+https://nytimes.com/2021/05/24/travel/makatea-crab-hunters-french-polynesia.html?searchResultPosition=2
 
-**New York City Mayor’s Race Intensifies**\
-`The temperature on the campaign trail is rising as the primary race enters its final month. `\
-https://nytimes.com/2021/05/24/nyregion/new-york-city-mayors-race-intensifies.html?searchResultPosition=3
+**The Costly Pursuit of Self-Driving Cars Continues On. And On. And On.**\
+`Many in Silicon Valley promised that self-driving cars would be a common sight by 2021. Now the industry is resetting expectations and settling in for years of more work.`\
+https://nytimes.com/2021/05/24/technology/the-costly-pursuit-of-self-driving-cars-continues-on-and-on-and-on.html?searchResultPosition=3
 
-**Scrounging for Hits, Hollywood Goes Back to the Video Game Well**\
-`After decades of game-to-film flops, a new effort, led by Sony, aims to adapt big PlayStation and Xbox franchises for movies and TV.`\
-https://nytimes.com/2021/05/24/business/media/video-game-movies-sony-playstation.html?searchResultPosition=4
+**Just How Far Will Republican Attacks on Institutions Go?**\
+`For the G.O.P., overturning Roe v. Wade is a live possibility. Taking Jan. 6 seriously is not.`\
+https://nytimes.com/2021/05/24/opinion/abortion-republicans-jan-6.html?searchResultPosition=4
 
-**Why Arkansas Is a Test Case for a Post-Trump Republican Party**\
-`Sarah Huckabee Sanders seems likely to bring the Trump brand to Arkansas politics in a big way. But the state is a testing ground for different possible futures for the party.`\
-https://nytimes.com/2021/05/24/us/politics/arkansas-republicans-sarah-sanders.html?searchResultPosition=5
+**How Food Trucks Endured and Succeeded During the Pandemic**\
+`Embracing technology, scaling down costs and general flexibility has helped them through a difficult time.`\
+https://nytimes.com/2021/05/24/business/food-trucks-pandemic-covid.html?searchResultPosition=5
 
-**Adams Gets Boost With Latino Voters: 5 Takeaways From Mayor’s Race**\
-`Adriano Espaillat, who had backed Scott Stringer, switched to supporting Eric Adams, while Andrew Yang had a rocky week on the campaign trail.`\
-https://nytimes.com/2021/05/24/nyregion/nyc-mayors-race.html?searchResultPosition=6
+**The Stories We Love Make Us Who We Are**\
+`The literature of the fantastic has always embodied our profound truths, our finest attributes and our deepest prejudices.`\
+https://nytimes.com/2021/05/24/opinion/sunday/salman-rushdie-world-literature.html?searchResultPosition=6
 
-**Candidates Escalate Attacks as Mayoral Race Enters Final Month**\
-`With less than a month before the June 22 primary, Democratic candidates are trying to steal momentum from the perceived front-runners, Eric Adams and Andrew Yang.`\
-https://nytimes.com/2021/05/24/nyregion/nyc-mayor-race.html?searchResultPosition=7
+**The Secret Psychology of Sneaker Colors**\
+`You think they randomly choose those glaring shades of Nike, Adidas and New Balance? Think again.`\
+https://nytimes.com/2021/05/24/style/sneaker-color-psychology.html?searchResultPosition=7
 
-**What the Tulsa Race Massacre Destroyed**\
-`We created a 3D model of Greenwood, home of “Black Wall Street,” as it was before a white mob set it on fire 100 years ago.`\
-https://nytimes.com/interactive/2021/05/24/us/tulsa-race-massacre.html?searchResultPosition=8
+**I’m a Vaccinated Transplant Recipient. I Don’t Have Antibodies. Now What?**\
+`As the vaccinated prepare to move on, the future for many of us is uncertain.`\
+https://nytimes.com/2021/05/24/opinion/organ-transplant-covid-vaccine.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘Oslo’ and Specials Honoring George Floyd**\
-`A film adaptation of J.T. Rogers’s Tony-winning play airs on HBO. And several specials recognize the anniversary of George Floyd’s murder.`\
-https://nytimes.com/2021/05/24/arts/television/whats-on-tv-this-week-oslo-george-floyd.html?searchResultPosition=9
+**‘No One’s Ever Talked to Me About This Before’**\
+`Social media creators are helping women and people of color identify possible symptoms of A.D.H.D., a disorder most often diagnosed in white boys.`\
+https://nytimes.com/2021/05/24/style/adhd-online-creators-diagnosis.html?searchResultPosition=9
 
-**New Zealanders Are Flooding Home. Will the Old Problems Push Them Back Out?**\
-`More than 50,000 have escaped the pandemic by moving back, offering the country a rare chance to regain talented citizens. But they are confronting entrenched housing and employment challenges.`\
-https://nytimes.com/2021/05/24/world/asia/new-zealand-return-covid.html?searchResultPosition=10
+**Small Businesses Have Surged in Black Communities. Was It the Stimulus?**\
+`New research finds a big rise in new businesses despite the pandemic, particularly in predominantly Black neighborhoods.`\
+https://nytimes.com/2021/05/24/upshot/stimulus-covid-startups-increase.html?searchResultPosition=10
 
