@@ -15,7 +15,7 @@ https://nytimes.com/2021/05/23/sports/golf/pga-championship-final-round-phil-mic
 https://nytimes.com/2021/05/23/sports/baseball/mets-marlins.html?searchResultPosition=4
 
 **Yankees Flex Their (Pitching) Muscles in Sweep of White Sox**\
-`Aaron Judge won Sunday’s game with a walk-off walk, but a dominant stretch by Yankees starters should have opponents alarmed.`\
+`Aaron Judge won the series finale with a walk-off walk, but a dominant stretch by Yankees starters should have opponents alarmed.`\
 https://nytimes.com/2021/05/23/sports/baseball/yankees-white-sox.html?searchResultPosition=5
 
 **How Joe Biden Can Win a Nobel Peace Prize**\
