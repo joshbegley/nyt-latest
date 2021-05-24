@@ -20,7 +20,7 @@ https://nytimes.com/video/us/politics/100000007779648/new-jersey-indoor-masks.ht
 
 **McGahn Is Likely to Testify Next Week on Trump’s Efforts to Obstruct Russia Inquiry**\
 `A delay is said to have stemmed from an initial threat by former President Donald J. Trump to intervene, but he apparently reversed course.`\
-https://nytimes.com/2021/05/24/us/politics/donald-mcgahn-judiciary-testimony.html?searchResultPosition=7
+https://nytimes.com/2021/05/24/us/politics/donald-mcgahn-trump-russia.html?searchResultPosition=7
 
 **Coronavirus Briefing: What Happened Today**\
 `New York City will not offer remote learning this fall.`\
