@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/23/opinion/ronald-greene-video.html?searchResultPosi
 `In public radio, there is either an epidemic of bullying or an epidemic of whining, depending on whom you ask.`\
 https://nytimes.com/2021/05/23/business/media/its-the-medias-mean-too-moment-stop-yelling-and-go-to-human-resources.html?searchResultPosition=3
 
-**Phil Mickelson, Fabulous at 50, Wins P.G.A. Championship**\
+**Phil Mickelson, at 50, Wins P.G.A. Championship**\
 `Mickelson, who will turn 51 next month, became the oldest winner of a major golf tournament.`\
 https://nytimes.com/2021/05/23/sports/golf/pga-championship-final-round-phil-mickelson.html?searchResultPosition=4
 
