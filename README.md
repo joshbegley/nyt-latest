@@ -30,7 +30,7 @@ https://nytimes.com/2021/05/24/business/economy/crypto-bitcoin-prices.html?searc
 `Some carriers in Eastern Europe begin diverting flights to avoid Belarus airspace.`\
 https://nytimes.com/2021/05/24/business/economy/belarus-ryanair.html?searchResultPosition=8
 
-**Simone Biles Dials Up the Difficulty. ‘Because I Can.’**\
+**Simone Biles Dials Up the Difficulty, ‘Because I Can’**\
 `The Olympic gold medalist’s new vault is so dangerous that gymnastics, for now, limits the scoring rewards for trying it. Biles says that’s unfair.`\
 https://nytimes.com/2021/05/24/sports/olympics/simone-biles-yurchenko-double-pike.html?searchResultPosition=9
 
