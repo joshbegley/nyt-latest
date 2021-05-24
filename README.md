@@ -2,8 +2,8 @@
 `After 21 runners died when high winds and freezing rain struck an ultramarathon race, one competitor said he had survived only because a shepherd carried his unconscious body to shelter.`\
 https://nytimes.com/2021/05/24/world/asia/china-ultramarathon-survivor.html?searchResultPosition=1
 
-**Watch Live: Mayor de Blasio Holds Briefing on School Re-opening**\
-`Mayor Bill de Blasio of New York holds a briefing on the re-opening of schools in the city and remote education opportunities, after more than a year of remote and hybrid schooling due to the coronavirus pandemic.`\
+**Watch Live: Mayor de Blasio Holds Briefing on School Reopening**\
+`Mayor Bill de Blasio of New York holds a briefing on the reopening of schools in the city and remote education opportunities, after more than a year of remote and hybrid schooling due to the coronavirus pandemic.`\
 https://nytimes.com/video/us/politics/100000007778597/live-stream-deblasio-ny-schools.html?searchResultPosition=2
 
 **John Updike on Parenting, Agatha Christie in the Gossip Pages: First Mentions of Famous Authors in The Times**\
