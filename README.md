@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/23/opinion/ronald-greene-video.html?searchResultPosi
 https://nytimes.com/2021/05/23/business/media/its-the-medias-mean-too-moment-stop-yelling-and-go-to-human-resources.html?searchResultPosition=3
 
 **Phil Mickelson, at 50, Wins P.G.A. Championship**\
-`Mickelson, who will turn 51 next month, became the oldest winner of a major golf tournament.`\
+`Mickelson, who will turn 51 next month, became the oldest winner of a major golf tournament after a tense final round on the treacherous Ocean Course at Kiawah Island.`\
 https://nytimes.com/2021/05/23/sports/golf/pga-championship-final-round-phil-mickelson.html?searchResultPosition=4
 
 **With Loss, Injury-Riddled Mets Finish Road Trip 3-6**\
