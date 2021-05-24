@@ -2,8 +2,8 @@
 `In an interview, the creator and star of the Netflix comedy discusses the hazy line between fact and fiction, the value of uncertainty and the joy of finally getting to be a leading man.`\
 https://nytimes.com/2021/05/24/arts/television/mae-martin-feel-good-netflix.html?searchResultPosition=1
 
-**Locked Out of Samoa Parliament, Election Winner Is ‘Sworn In’ Under a Tent**\
-`A constitutional crisis deepened in the Pacific Island nation, which now has two competing governments and two claimants to the prime ministership.`\
+**She Was Supposed to Become Prime Minister. Instead She Was Locked Out of Parliament.**\
+`A constitutional crisis deepened in the Pacific Island nation of Samoa, which now has two competing governments and two claimants to the prime ministership.`\
 https://nytimes.com/2021/05/24/world/asia/samoa-election-parliament.html?searchResultPosition=2
 
 **The Vaccine Class Gap**\
