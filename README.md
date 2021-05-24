@@ -1,40 +1,40 @@
+**Brigitte Bardot and the Beatles: What ‘Serpent’ Is Made of**\
+`The executive producer of the true crime series names the people, movies and music that inspired the sexy, stylish Netflix show.`\
+https://nytimes.com/2021/05/24/arts/television/serpent-netflix-inspirations.html?searchResultPosition=1
+
 **States and cities across the U.S. debate the future of online learning.**\
 `Some school systems may follow New York City’s lead and stop offering remote instruction in the fall, while others retain the option for at least some families.`\
-https://nytimes.com/2021/05/24/us/schools-reopening-remote-learning-covid.html?searchResultPosition=1
+https://nytimes.com/2021/05/24/us/schools-reopening-remote-learning-covid.html?searchResultPosition=2
 
 **Mayor de Blasio Announces In-Person Learning for N.Y.C. Schools**\
 `Mayor Bill de Blasio announced full in-person learning for all New York City public schools after a year of hybrid options. This move comes as vaccinations in the city rise and a return to normal is expected.`\
-https://nytimes.com/video/us/100000007778842/deblasio-school-reopening-nyc.html?searchResultPosition=2
+https://nytimes.com/video/us/100000007778842/deblasio-school-reopening-nyc.html?searchResultPosition=3
 
 **TikTok, the Fastest Way on Earth to Become a Food Star**\
 `The app offers explosive growth for content creators. Gen Z cooks are taking advantage.`\
-https://nytimes.com/2021/05/24/dining/tiktok-food.html?searchResultPosition=3
+https://nytimes.com/2021/05/24/dining/tiktok-food.html?searchResultPosition=4
 
 **Toronto’s Corrugated Fan Base Is on the Move Yet Again**\
 `The Blue Jays are still barred from playing in Canada, but as they decamp from Florida, their fans — in plastic cutout form — will make the trip to Buffalo.`\
-https://nytimes.com/2021/05/24/sports/baseball/toronto-blue-jays-dunedin-cutouts.html?searchResultPosition=4
+https://nytimes.com/2021/05/24/sports/baseball/toronto-blue-jays-dunedin-cutouts.html?searchResultPosition=5
 
 **Stop Kissing and Snuggling Chickens, C.D.C. Says After Salmonella Outbreak**\
 `More than 160 illnesses and dozens of hospitalizations have been reported across 43 states, officials said. “These are not house pets and a lot of people confuse that,” a poultry educator said.`\
-https://nytimes.com/2021/05/24/health/cdc-chickens-salmonella-outbreak.html?searchResultPosition=5
+https://nytimes.com/2021/05/24/health/cdc-chickens-salmonella-outbreak.html?searchResultPosition=6
 
 **Thieves Steal Artifacts Worth $1.4 Million From English Castle**\
 `The treasures, including rosary beads carried by Mary, Queen of Scots, at her execution in 1587, were stolen from a display cabinet at Arundel Castle.`\
-https://nytimes.com/2021/05/24/world/europe/mary-queen-of-scots-rosary-theft.html?searchResultPosition=6
+https://nytimes.com/2021/05/24/world/europe/mary-queen-of-scots-rosary-theft.html?searchResultPosition=7
 
 **Scientists Partially Restored a Blind Man’s Sight With New Gene Therapy**\
 `Using a technique called optogenetics, researchers added light-sensitive proteins to the man’s retina, giving him a blurry view of objects.`\
-https://nytimes.com/2021/05/24/science/blindness-therapy-optogenetics.html?searchResultPosition=7
+https://nytimes.com/2021/05/24/science/blindness-therapy-optogenetics.html?searchResultPosition=8
 
 **Mike Schur and Todd May: What We Believe About Freedom**\
 `We have a moral obligation to others. Refusing to recognize that endangers all of us.`\
-https://nytimes.com/2021/05/24/special-series/mike-schur-and-todd-may-what-we-believe-about-freedom.html?searchResultPosition=8
+https://nytimes.com/2021/05/24/special-series/mike-schur-and-todd-may-what-we-believe-about-freedom.html?searchResultPosition=9
 
 **Paying the Price for Sun Damage**\
 `I’ve failed to practice what I preached about limiting sun exposure, but a new report has prompted me to reform.`\
-https://nytimes.com/2021/05/24/well/live/sun-damage-skin-cancer.html?searchResultPosition=9
-
-**A Wrenching Knicks Loss, but an Electric Night at the Garden**\
-`Playoff basketball returned to Manhattan as a cultural event with a loud, spirited crowd and a new archenemy, the Hawks’ Trae Young.`\
-https://nytimes.com/2021/05/24/sports/basketball/knicks-hawks-trae-young.html?searchResultPosition=10
+https://nytimes.com/2021/05/24/well/live/sun-damage-skin-cancer.html?searchResultPosition=10
 
