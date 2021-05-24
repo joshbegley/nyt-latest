@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/24/business/economy/belarus-buttigieg.html?searchRes
 `Start your week off with an old favorite (chipotle-rubbed steaks with cilantro-lime butter) or a brand-new recipe (tahini-Parmesan pasta salad).`\
 https://nytimes.com/2021/05/24/dining/what-to-cook-right-now.html?searchResultPosition=3
 
-**It’s Not a Bird or a Plane. It’s a Rocket Ship Roaring in the Backyard.**\
+**Beautiful Coasts. Quiet Escape. And SpaceX Rockets in Your Backyard.**\
 `For years, those in a rural Texas village cherished living among nature and wildlife. Elon Musk’s SpaceX has brought new fears and the promise of an economic boost to one of America’s poorest corners.`\
 https://nytimes.com/2021/05/24/us/space-x-boca-chica-texas.html?searchResultPosition=4
 
