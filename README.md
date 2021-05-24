@@ -14,7 +14,7 @@ https://nytimes.com/2021/05/24/technology/florida-twitter-facebook-ban-politicia
 `Starting June 14, about 400 people who present proof of vaccination against the coronavirus will be allowed to attend live tapings of the show, CBS said.`\
 https://nytimes.com/2021/05/24/arts/television/stephen-colbert-late-night-filming-vaccinated-audience.html?searchResultPosition=4
 
-**Biden Doubles FEMA Program to Prepare for Natural Disasters**\
+**Biden Doubles FEMA Program to Prepare for Extreme Weather**\
 `At the outset of hurricane and wildfire season, the Biden administration is doubling to $1 billion a fund that helps communities prepare for disasters.`\
 https://nytimes.com/2021/05/24/climate/biden-fema-disasters.html?searchResultPosition=5
 
