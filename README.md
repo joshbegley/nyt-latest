@@ -18,8 +18,8 @@ https://nytimes.com/2021/05/24/us/minnesota-officer-brett-palkowitsch-sentenced.
 `Charges including manslaughter and negligence are being considered following the accident in northern Italy that killed 14 people on Sunday.`\
 https://nytimes.com/2021/05/24/world/europe/Italy-cable-car-accident.html?searchResultPosition=5
 
-**Florida, in a First, to Fine Social Media Companies That Ban Candidates**\
-`The new law, a direct response to Facebook and Twitter’s suspension of former President Donald J. Trump, affects candidates for statewide offices.`\
+**Florida, in a First, Will Fine Social Media Companies That Bar Candidates**\
+`The new law, a direct response to Facebook’s and Twitter’s suspensions of former President Donald J. Trump, affects candidates for statewide offices.`\
 https://nytimes.com/2021/05/24/technology/florida-twitter-facebook-ban-politicians.html?searchResultPosition=6
 
 **Stephen Colbert’s late-night show will resume filming soon before a vaccinated live audience.**\
