@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/25/business/rent-the-runway-clothing-covid.html?sear
 `In “The Devil’s Playbook,” Lauren Etter tells the story of the rise and fall of the start-up that tried to upend the cigarette industry.`\
 https://nytimes.com/2021/05/25/books/review/the-devils-playbook-lauren-etter.html?searchResultPosition=2
 
-**Union Square Hospitality Group’s Ci Siamo to Open in Midtown West**\
+**Union Square Hospitality Group’s Ci Siamo to Open**\
 `Rick Bayless makes his New York debut; a rotating cast of chefs work from a former Greenpoint laundromat; and more restaurant news.`\
 https://nytimes.com/2021/05/25/dining/nyc-restaurant-news.html?searchResultPosition=3
 
