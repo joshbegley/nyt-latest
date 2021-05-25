@@ -2,8 +2,8 @@
 `It’s now in a judge’s hands.`\
 https://nytimes.com/2021/05/25/business/apple-epic-case.html?searchResultPosition=1
 
-**Moderna says that its vaccine is effective for 12- to 17-year-olds and that it will seek F.D.A. approval.**\
-`If authorized, Moderna’s vaccine would become the second Covid-19 vaccine available to U.S. adolescents.`\
+**Moderna says that its vaccine is effective for 12- to 17-year-olds and that it will seek F.D.A. authorization.**\
+`If approved, Moderna’s vaccine would become the second Covid-19 vaccine available to U.S. adolescents.`\
 https://nytimes.com/2021/05/25/science/moderna-vaccine-teens-efficacy.html?searchResultPosition=2
 
 **With ‘Younger’ and ‘The Bold Type’ Ending, Will TV Turn the Page?**\
