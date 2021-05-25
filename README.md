@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/24/us/father-pfleger-sexual-abuse.html?searchResultP
 
 **Party Line**\
 `Kristian House and Mike Dockins just can’t believe it.`\
-https://nytimes.com/2021/05/24/crosswords/daily-puzzle-05-25.html?searchResultPosition=3
+https://nytimes.com/2021/05/24/crosswords/daily-puzzle-2021-05-25.html?searchResultPosition=3
 
 **Suspicious package delivered to Rand Paul’s home is under investigation.**\
 `Senator Rand Paul condemned the package on Twitter, saying he took the “threats immensely seriously.”`\
