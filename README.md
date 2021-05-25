@@ -1,6 +1,6 @@
 **Giant Confederate Monument Will Remain at Revamped Stone Mountain**\
 `Officials at the Georgia park voted to move flags and create exhibits to put the Civil War into fuller context. But the likeness of three Confederate leaders carved into stone isn’t going anywhere.`\
-https://nytimes.com/2021/05/24/us/stone-mountain-confederate-monument.html?searchResultPosition=2
+https://nytimes.com/2021/05/24/us/stone-mountain-confederate-monument-georgia.html?searchResultPosition=2
 
 **Anti-Zionism Isn’t Anti-Semitism? Someone Didn’t Get the Memo.**\
 `An omen for Jews on America’s streets.`\
