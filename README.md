@@ -12,7 +12,7 @@ https://nytimes.com/video/us/100000007781460/shots-fired-george-floyd-square-ann
 
 **The Cummings Chronicles: The Can’t-Miss Sequel**\
 `Once Boris Johnson’s closest adviser, Dominic Cummings is expected to deliver scorching testimony in Parliament on Wednesday about the government’s handling of the pandemic.`\
-https://nytimes.com/2021/05/25/world/europe/cummings-johnson-uk-coronavirus.html?searchResultPosition=4
+https://nytimes.com/2021/05/25/world/europe/dominic-cummings-boris-johnson-uk.html?searchResultPosition=4
 
 **Biden Opens California Coast to Wind Farm Development**\
 `The idea of building wind farms along the Pacific coast has long been dismissed as impractical. But the administration says it’s feasible.`\
