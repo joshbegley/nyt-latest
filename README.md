@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/25/todayspaper/quotation-of-the-day-poets-risk-their
 https://nytimes.com/2021/05/25/arts/music/taiwan-covid-shutdown-music.html?searchResultPosition=3
 
 **Biden will meet Putin in Geneva in mid-June.**\
-`The meeting is the first face-to-face session between the two men at a time of extraordinary tension over Ukraine, cyberattacks and a raft of new nuclear weapons Mr. Putin is deploying.`\
+`The meeting is the first face-to-face session between the two presidents at a time of extraordinary tension over Ukraine, cyberattacks and a raft of new nuclear weapons Mr. Putin is deploying.`\
 https://nytimes.com/2021/05/25/us/politics/biden-putin-meeting.html?searchResultPosition=4
 
 **European airlines respond to the forced landing of a commercial flight in Belarus.**\
