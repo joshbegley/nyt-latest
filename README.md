@@ -18,7 +18,7 @@ https://nytimes.com/video/us/100000007782154/coronavirus-memorial-day-cdc.html?s
 `The meeting comes at the worst point in Russian-American relations since the fall of the Soviet Union about 30 years ago.`\
 https://nytimes.com/2021/05/25/us/politics/biden-putin-summit.html?searchResultPosition=5
 
-**Associated Press Begins Review of Social Media Policy**\
+**A.P. Begins Review of Social Media Policy After Journalist’s Firing**\
 `The news agency known for unbiased journalism faces criticism from its own staff after a young news associate was dismissed.`\
 https://nytimes.com/2021/05/25/business/media/ap-emily-wilder-social-media.html?searchResultPosition=6
 
