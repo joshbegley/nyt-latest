@@ -1,40 +1,40 @@
+**Mount Sinai Seeks to Expand School Virus Testing Program**\
+`The health system, which is preparing to open a new laboratory that could process 100,000 tests a day, wants to take its program to public schools this fall.`\
+https://nytimes.com/2021/05/25/health/coronavirus-mount-sinai-kipp-schools.html?searchResultPosition=1
+
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2021/05/25/business/new-york-commercial-real-estate.html?searchResultPosition=2
+
+**Gillibrand teams up with Hawley on a measure to combat sexual assault in the military.**\
+`The lawmakers are on opposite ends of nearly all things political, but they are working together on a bill designed to improve the military’s response to sexual assault.`\
+https://nytimes.com/2021/05/25/us/politics/gillibrand-hawley-sexual-assault-military.html?searchResultPosition=3
+
 **Weekly News Quiz for Students: Covid Decline, Viral Video, Giant Iceberg**\
 `Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2021/05/25/learning/25Student-News-Quiz.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/05/25/learning/25Student-News-Quiz.html?searchResultPosition=4
 
 **The Epic Case Against Apple Wraps Up**\
 `It’s now in a judge’s hands.`\
-https://nytimes.com/2021/05/25/business/dealbook/apple-epic-case.html?searchResultPosition=2
+https://nytimes.com/2021/05/25/business/dealbook/apple-epic-case.html?searchResultPosition=5
 
 **Moderna says that its vaccine is effective for 12- to 17-year-olds and that it will seek F.D.A. authorization.**\
 `If approved, Moderna’s vaccine would become the second Covid-19 vaccine available to U.S. adolescents.`\
-https://nytimes.com/2021/05/25/science/moderna-vaccine-teens-efficacy.html?searchResultPosition=3
+https://nytimes.com/2021/05/25/science/moderna-vaccine-teens-efficacy.html?searchResultPosition=6
 
 **With ‘Younger’ and ‘The Bold Type’ Ending, Will TV Turn the Page?**\
 `Series have long depicted media jobs as glitzy and aspirational. But with several such shows wrapping up as much of the news and publishing business craters, is this the end of an era?`\
-https://nytimes.com/2021/05/25/arts/television/bold-type-younger-final-season.html?searchResultPosition=4
+https://nytimes.com/2021/05/25/arts/television/bold-type-younger-final-season.html?searchResultPosition=7
 
 **One Year Later**\
 `On the anniversary of George Floyd’s murder, we examine its legacy so far.`\
-https://nytimes.com/2021/05/25/briefing/george-floyd-legacy-anniversary.html?searchResultPosition=5
+https://nytimes.com/2021/05/25/briefing/george-floyd-legacy-anniversary.html?searchResultPosition=8
 
 **A Lost Brontë Library Surfaces**\
 `A trove of manuscripts acquired from the Brontë family in the 19th century, all but unseen for the past century, will be auctioned at Sotheby’s.`\
-https://nytimes.com/2021/05/25/arts/bronte-library-sothebys-auction.html?searchResultPosition=6
+https://nytimes.com/2021/05/25/arts/bronte-library-sothebys-auction.html?searchResultPosition=9
 
 **A Cheerleader, a Snapchat Post and the Supreme Court**\
 `Inside the unusual sequence of events behind one of the most important student free speech cases for 50 years.`\
-https://nytimes.com/2021/05/25/podcasts/the-daily/free-speech-first-amendment-supreme-court.html?searchResultPosition=7
-
-**Biden will meet with George Floyd’s family on the anniversary of his death.**\
-`The George Floyd Justice in Policing Act is languishing in Congress, but the White House is optimistic that legislative talks will help move it forward.`\
-https://nytimes.com/2021/05/25/us/politics/biden-george-floyd-anniversary.html?searchResultPosition=8
-
-**A Timeline of What Has Happened in the Year Since George Floyd’s Death**\
-`A look back at what has transpired in the year since Mr. Floyd’s murder reveals a country both struggling to confront it history of racial division and continuing to succumb to it.`\
-https://nytimes.com/2021/05/25/us/george-floyd-protests-unrest-events-timeline.html?searchResultPosition=9
-
-**The End of Online Classes**\
-`Masks will still be required, and schools will follow social-distancing guidelines, but vaccinations are not yet mandatory.`\
-https://nytimes.com/2021/05/25/nyregion/the-end-of-online-classes.html?searchResultPosition=10
+https://nytimes.com/2021/05/25/podcasts/the-daily/free-speech-first-amendment-supreme-court.html?searchResultPosition=10
 
