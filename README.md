@@ -34,7 +34,7 @@ https://nytimes.com/2021/05/25/us/texas-guns-law-permits.html?searchResultPositi
 `Traditionally a federal backwater, the agency has stumbled while shepherding $1 trillion in emergency aid. Its leader vows “a more customer-first approach.”`\
 https://nytimes.com/2021/05/25/business/sba-administrator-guzman.html?searchResultPosition=9
 
-**The Senate confirms Chiquita Brooks-LaSure, the first Black woman to lead Medicare and Medicaid.**\
+**Chiquita Brooks-LaSure becomes the first Black administrator confirmed to lead Medicare and Medicaid.**\
 `The vote was 55 to 44, with five Republicans joining Democrats to support her confirmation.`\
 https://nytimes.com/2021/05/25/us/politics/chiquita-brooks-lasure-medicare-medicaid.html?searchResultPosition=10
 
