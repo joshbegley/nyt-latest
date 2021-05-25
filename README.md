@@ -1,6 +1,6 @@
 **Gunshots Ring Out in George Floyd Square on Anniversary of His Death**\
 `A series of gunshots sparked panic on Tuesday morning as people gathered to pay respects at the site of where George Floyd was killed in Minneapolis a year ago.`\
-https://nytimes.com/video/us/100000007781184/hots-fired-george-floyd-square-anniversary.html?searchResultPosition=1
+https://nytimes.com/video/embedded/us/100000007781184/hots-fired-george-floyd-square-anniversary.html?searchResultPosition=1
 
 **The Big Deal in Amazon’s Antitrust Case**\
 `The claim that Amazon is crushing competition is both novel and railroad baron-style old-school.`\
