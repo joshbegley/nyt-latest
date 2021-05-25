@@ -1,6 +1,6 @@
 **The Epic Case Against Apple Wraps Up**\
 `It’s now in a judge’s hands.`\
-https://nytimes.com/2021/05/25/business/apple-epic-case.html?searchResultPosition=1
+https://nytimes.com/2021/05/25/business/dealbook/apple-epic-case.html?searchResultPosition=1
 
 **Moderna says that its vaccine is effective for 12- to 17-year-olds and that it will seek F.D.A. authorization.**\
 `If approved, Moderna’s vaccine would become the second Covid-19 vaccine available to U.S. adolescents.`\
