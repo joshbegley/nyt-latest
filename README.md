@@ -1,40 +1,40 @@
+**How the Mideast Conflict Is Blowing Up the Region, the Democratic Party and Every Synagogue in America**\
+`President Biden must  re-energize the possibility of a two-state solution.`\
+https://nytimes.com/2021/05/25/opinion/israel-palestine-two-state-solution.html?searchResultPosition=1
+
+**Unvaccinated Are Still At Risk, C.D.C. Says**\
+`Dr. Rochelle P. Walensky, the director of the Centers for Disease Control and Prevention, warned unvaccinated Americans that despite a drop in coronavirus cases, they would be at risk over Memorial Day weekend.`\
+https://nytimes.com/video/us/100000007782154/coronavirus-memorial-day-cdc.html?searchResultPosition=2
+
+**Biden and Putin to Meet in Mid-June, in a Summit Fraught With Tensions**\
+`The meeting comes at the worst point in Russian-American relations since the fall of the Soviet Union about 30 years ago.`\
+https://nytimes.com/2021/05/25/us/politics/biden-putin-summit.html?searchResultPosition=3
+
 **Associated Press Begins Review of Social Media Policy**\
 `The news agency known for unbiased journalism faces criticism from its own staff after a young news associate was dismissed.`\
-https://nytimes.com/2021/05/25/business/media/ap-emily-wilder-social-media.html?searchResultPosition=1
+https://nytimes.com/2021/05/25/business/media/ap-emily-wilder-social-media.html?searchResultPosition=4
 
 **Robbie McCauley, Stage Artist Who Explored Race, Dies at 78**\
 `Ms. McCauley often put race at the center of plays and other works that sought to alter perspectives and foster dialogue.`\
-https://nytimes.com/2021/05/25/obituaries/robbie-mccauley-dead.html?searchResultPosition=2
+https://nytimes.com/2021/05/25/obituaries/robbie-mccauley-dead.html?searchResultPosition=5
 
 **Darnella Frazier, the teenager who recorded George Floyd’s murder, speaks out.**\
 `“I still hold the weight and trauma of what I witnessed a year ago,” she said. “A part of my childhood was taken from me.”`\
-https://nytimes.com/2021/05/25/us/darnella-frazier.html?searchResultPosition=3
+https://nytimes.com/2021/05/25/us/darnella-frazier.html?searchResultPosition=6
 
 **Is the Bitcoin Craze Coming for Your 401(k)?**\
 `Cryptocurrencies haven’t quite delivered on their revolutionary promises. But they are messing with the stock market.`\
-https://nytimes.com/2021/05/25/opinion/bitcoin-cryptocurrency.html?searchResultPosition=4
+https://nytimes.com/2021/05/25/opinion/bitcoin-cryptocurrency.html?searchResultPosition=7
 
 **A Delaware Senator Turns D.C. Power Broker (That’s Right: Chris Coons)**\
 `A top ally of President Biden’s has major responsibilities as the clock ticks on the White House’s agenda and bipartisanship proves elusive.`\
-https://nytimes.com/2021/05/25/us/politics/joe-biden-senate-chris-coons.html?searchResultPosition=5
+https://nytimes.com/2021/05/25/us/politics/joe-biden-senate-chris-coons.html?searchResultPosition=8
 
 **Asian Homeowners Were Targeted in Burglary Ring, Prosecutors Say**\
 `Eight men were charged in federal court with burglarizing 50 homes in four states after identifying the residents as Asian.`\
-https://nytimes.com/2021/05/25/nyregion/asian-bias-burglary-ring.html?searchResultPosition=6
+https://nytimes.com/2021/05/25/nyregion/asian-bias-burglary-ring.html?searchResultPosition=9
 
 **Nikole Hannah-Jones Receives Support in Tenure Dispute**\
 `More than 200 writers and cultural figures signed a letter opposing the University of North Carolina’s failure to give the Times Magazine correspondent tenure with her position there.`\
-https://nytimes.com/2021/05/25/business/media/nikole-hannah-jones-tenure-letter.html?searchResultPosition=7
-
-**George Floyd, Moderna, Brood X: Your Tuesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/05/25/briefing/george-floyd-moderna-brood-x.html?searchResultPosition=8
-
-**Blinken Visits Israel and the West Bank**\
-`Secretary of State Antony J. Blinken met with Israeli Prime Minister Benjamin Netanyahu and President Mahmoud Abbas of the Palestinian Authority on Tuesday saying that Israelis and Palestinians both deserve peace and dignity.`\
-https://nytimes.com/video/us/politics/100000007781738/blinken-israel-netanyahu-abbas.html?searchResultPosition=9
-
-**George Floyd’s Family Hopeful After Meeting with Biden**\
-`Family members of George Floyd expressed optimism for police reform following a meeting with President Biden and Vice President Kamala Harris on the one-year anniversary of Mr. Floyd’s murder.`\
-https://nytimes.com/video/us/politics/100000007781820/floyd-family-biden-meeting-police-reform-bill.html?searchResultPosition=10
+https://nytimes.com/2021/05/25/business/media/nikole-hannah-jones-tenure-letter.html?searchResultPosition=10
 
