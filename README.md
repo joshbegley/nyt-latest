@@ -27,7 +27,7 @@ https://nytimes.com/video/opinion/100000007719956/bob-of-the-park.html?searchRes
 https://nytimes.com/2021/05/25/style/tiny-modern-love-stories-sex-is-our-antidote-to-loss.html?searchResultPosition=7
 
 **Even as Floyd family meets with Biden, police reform legislation languishes.**\
-`By Michael D. Shear`\
+`President Biden promised George Floyd’s family that he would win passage of a police reform bill. He has so far failed to make good on that promise.`\
 https://nytimes.com/2021/05/25/us/biden-police-reform-george-floyd.html?searchResultPosition=8
 
 **Americans abroad can now enter the U.S. on expired passports.**\
