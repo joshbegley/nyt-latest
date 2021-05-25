@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘An Invitation to the Cicada Party’**\
-`Billions of cicadas, part of a group called Brood X, have begun to emerge after spending 17 years underground. In this lesson, students will learn more about these insects and why they’ve chosen this moment to make their debut.`\
-https://nytimes.com/2021/05/25/learning/lesson-of-the-day-an-invitation-to-the-cicada-party.html?searchResultPosition=1
+**‘The Living Sea of Waking Dreams,’ by Richard Flanagan: An Excerpt**\
+`An excerpt from “The Living Sea of Waking Dreams,” by Richard Flanagan`\
+https://nytimes.com/2021/05/25/books/review/the-living-sea-of-waking-dreams-by-richard-flanagan-an-excerpt.html?searchResultPosition=1
 
-**State Revenues Pour In, Raising Pressure on Biden to Divert Federal Aid**\
-`Unexpected receipts, driven in part by taxes on high earners riding a hot stock market, have prompted Republicans to push the president to spend on infrastructure instead.`\
-https://nytimes.com/2021/05/25/business/economy/republicans-biden-infrastructure-federal-aid.html?searchResultPosition=2
+**‘Revival Season,’ by Monica West: An Excerpt**\
+`An excerpt from “Revival Season,” by Monica West`\
+https://nytimes.com/2021/05/25/books/review/revival-season-by-monica-west-an-excerpt.html?searchResultPosition=2
 
-**Countering the Coup, One Verse at a Time**\
-`More than 30 poets have been imprisoned since the military seized power in Myanmar, a country where politics and poetry are intimately connected.`\
-https://nytimes.com/2021/05/25/world/asia/myanmar-poets.html?searchResultPosition=3
+**Vets Go Upscale to Care for Pets (and Their Owners)**\
+`The pet boom spurred by the pandemic has brought more attention to care for our four-legged friends. Veterinary companies are opening clinics, drawing more investors to vet real estate.`\
+https://nytimes.com/2021/05/25/business/vets-pet-care-pandemic.html?searchResultPosition=3
 
-**Punk Rock Teens**\
-`Are you in a band? If you’re not, can you imagine yourself joining one?`\
-https://nytimes.com/2021/05/25/learning/punk-rock-teens.html?searchResultPosition=4
+**‘An Out-of-Body Experience’: Inside India’s Covid Crisis**\
+`Fear, grief and boredom pervade the lives of those contending with the country’s severe outbreak. Their solace: family, friends and their own efforts to help others.`\
+https://nytimes.com/2021/05/25/world/asia/india-covid-experience.html?searchResultPosition=4
 
-**When to Watch a Lunar Eclipse and Supermoon in Late Night Skies**\
-`People out west in the United States and in Australia and East Asia will have a good view of an event some call a “super blood moon.”`\
-https://nytimes.com/2021/05/25/science/lunar-eclipse-blood-moon-how-to-watch.html?searchResultPosition=5
+**The Native Scholar Who Wasn’t**\
+`More than a decade ago, a prominent academic was exposed for having faked her Cherokee ancestry. Why has her career continued to thrive?`\
+https://nytimes.com/2021/05/25/magazine/cherokee-native-american-andrea-smith.html?searchResultPosition=5
 
-**Stephen Colbert: Rand Paul ‘Randsplained’ His Vaccine Refusal**\
-`“Senator Paul has been a bit of a skeptic of how bad Covid really is, which is probably why he got Covid,” Colbert said on Monday.`\
-https://nytimes.com/2021/05/25/arts/television/stephen-colbert-rand-paul-vaccine.html?searchResultPosition=6
+**100 Years After the Tulsa Massacre, What Does Justice Look Like?**\
+`In 1921, a white mob attacked the Greenwood district of Tulsa, killing hundreds of Black people and destroying the neighborhood. Justice has never been served. Can it still be today?`\
+https://nytimes.com/2021/05/25/magazine/tulsa-race-massacre-1921-greenwood.html?searchResultPosition=6
 
-**Scientists Drove Mice to Bond by Zapping Their Brains With Light**\
-`The study, a tour de force in bioengineering, comes after two decades of research on brain-to-brain synchrony in people.`\
-https://nytimes.com/2021/05/25/science/optogenetics-brain-social-behavior.html?searchResultPosition=7
+**The Caribbean Conundrum: United by Tourists, Divided by Covid**\
+`The pandemic struck these islands unequally. What does this mean for tourism, a major economic driver for the entire region? The answer is unique, just like the islands.`\
+https://nytimes.com/2021/05/25/travel/caribbean-vacation-coronavirus.html?searchResultPosition=7
 
-**Word of the Day: deforestation**\
-`This word has appeared in 104 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/25/learning/word-of-the-day-deforestation.html?searchResultPosition=8
+**She Built a Baltimore Restaurant Empire, but Still Works the Stove**\
+`Cindy Wolf is a rarity — a seasoned chef focused on her flagship and a style of white-linen dining that’s been endangered by the pandemic.`\
+https://nytimes.com/2021/05/25/dining/chef-cindy-wolf-charleston-restaurant-baltimore.html?searchResultPosition=8
 
-**Malaysia Train Collision Injures Over 200 People**\
-`A light rail train carrying passengers in Kuala Lumpur collided in a tunnel with an empty train on a test run. Officials promised a full investigation.`\
-https://nytimes.com/2021/05/25/world/asia/malaysia-train-collision.html?searchResultPosition=9
+**Going to the Moon via the Cloud**\
+`High-performance cloud computing has allowed start-ups to develop prototypes and run simulations — including one to the moon — that were previously done on supercomputers.`\
+https://nytimes.com/2021/05/25/technology/cloud-computing-simulations-startups.html?searchResultPosition=9
 
-**What Happened to Novak Djokovic’s Mission to Transform Pro Tennis?**\
-`The Professional Tennis Players Association had a flashy introduction last summer, but it has done little else. The players who created the sport’s original unions have some advice.`\
-https://nytimes.com/2021/05/25/sports/tennis/novak-djokovic-professional-players-association.html?searchResultPosition=10
+**The Curious World of NFT Real Estate and Design**\
+`People are selling and buying art, furniture and even houses and land  that exist only virtually.`\
+https://nytimes.com/2021/05/25/fashion/selling-virtual-real-estate.html?searchResultPosition=10
 
