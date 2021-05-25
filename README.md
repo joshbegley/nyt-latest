@@ -26,15 +26,15 @@ https://nytimes.com/video/opinion/100000007719956/bob-of-the-park.html?searchRes
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2021/05/25/style/tiny-modern-love-stories-sex-is-our-antidote-to-loss.html?searchResultPosition=7
 
+**Even as Floyd family meets with Biden, police reform legislation languishes.**\
+`By Michael D. Shear`\
+https://nytimes.com/2021/05/25/us/biden-police-reform-george-floyd.html?searchResultPosition=8
+
 **Americans abroad can now enter the U.S. on expired passports.**\
 `The State Department said it would allow many Americans who have been unable to renew their travel documents overseas to use their old ones to enter the country.`\
-https://nytimes.com/2021/05/25/travel/americans-expired-passports.html?searchResultPosition=8
+https://nytimes.com/2021/05/25/travel/americans-expired-passports.html?searchResultPosition=9
 
 **Biden Seeks to Oust Several Trump Appointees on Arts Commission**\
 `Several members of the Commission of Fine Arts were asked to step down, including its chairman, who promoted classical architecture as the preferred style for federal buildings.`\
-https://nytimes.com/2021/05/25/arts/design/biden-trump-arts-commission.html?searchResultPosition=9
-
-**Gunshots Ring Out in George Floyd Square on Anniversary of His Death**\
-`A series of gunshots sparked panic on Tuesday morning as people gathered to pay respects at the site of where George Floyd was killed in Minneapolis a year ago.`\
-https://nytimes.com/video/us/100000007781460/shots-fired-george-floyd-square-anniversary.html?searchResultPosition=10
+https://nytimes.com/2021/05/25/arts/design/biden-trump-arts-commission.html?searchResultPosition=10
 
