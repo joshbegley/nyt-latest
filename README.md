@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/26/us/politics/senator-john-warner-dead.html?searchR
 https://nytimes.com/2021/05/26/business/dealbook/amazon-annual-meeting.html?searchResultPosition=3
 
 **A Super Blood Moon Dazzles Earthlings**\
-`A supermoon and total lunar eclipse have combined to put on a big red show.`\
+`A supermoon and total lunar eclipse combined to put on a big red show.`\
 https://nytimes.com/2021/05/26/world/super-blood-moon-lunar-eclipse.html?searchResultPosition=4
 
 **‘Baggio: The Divine Ponytail’ Review: Dribbling Through a Career**\
