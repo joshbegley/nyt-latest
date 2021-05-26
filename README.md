@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/26/technology/amazon-prime-video.html?searchResultPo
 
 **Anna Halprin, Choreographer Committed to Experimenting, Dies at 100**\
 `Her work, which stressed improvisation, attracted students, disciples and enthusiasts fascinated by the creative issues she explored and the way she explored them.`\
-https://nytimes.com/2021/05/26/arts/dance/anna-halprin-choreographer-committed-to-experimenting-dies-at-100.html?searchResultPosition=6
+https://nytimes.com/2021/05/26/arts/dance/anna-halprin-dead.html?searchResultPosition=6
 
 **One Confirmed Death, 3 Missing in Deadly Florida Helicopter Crash**\
 `A helicopter crashed near a Florida airport on Tuesday night, and left one dead and three others unaccounted for.`\
