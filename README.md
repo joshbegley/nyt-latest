@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/25/sports/basketball/knicks-julius-randle-most-impro
 
 **Greene’s Holocaust Comparisons Cause New Headaches for G.O.P.**\
 `Republican leaders condemned the latest anti-Semitic statements by Representative Marjorie Taylor Greene, but their slow response and refusal to punish her reflected tacit backing.`\
-https://nytimes.com/2021/05/25/us/politics/marjorie-taylor-greene-holocaust-republicans.html?searchResultPosition=8
+https://nytimes.com/2021/05/25/us/politics/greene-holocaust.html?searchResultPosition=8
 
 **To Prevent Evictions, End Moratoriums**\
 `Philadelphia is demonstrating how cities can help tenants and landlords.`\
