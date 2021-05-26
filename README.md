@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/26/world/astrazeneca-vaccine-european-union.html?sea
 
 **John Warner, Genteel Senator From Virginia, Dies at 94**\
 `In his 30 years in the Senate, the former Navy secretary was a leading Republican voice on military policy. He was also once married to Elizabeth Taylor.`\
-https://nytimes.com/2021/05/26/us/politics/john-warner-genteel-senator-from-virginia-dies-at-94.html?searchResultPosition=4
+https://nytimes.com/2021/05/26/us/politics/senator-john-warner-dead.html?searchResultPosition=4
 
 **Amazon’s Big Day**\
 `Deals, votes and lawsuits loom over its annual shareholder meeting.`\
