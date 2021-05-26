@@ -16,7 +16,7 @@ https://nytimes.com/2021/05/26/world/africa/nigeria-boat-capsizes-kebbi.html?sea
 
 **Watch Live: Law Enforcement Update on San Jose Shooting**\
 `The Santa Clara County Sheriff’s Office office provides an update on the mass shooting at a rail yard in San Jose, Calif., which left nine people dead including the gunman.`\
-https://nytimes.com/video/us/100000007783921/sj-shooting-live-video.html?searchResultPosition=7
+https://nytimes.com/video/embedded/us/100000007783921/sj-shooting-live-video.html?searchResultPosition=7
 
 **Modern Love Podcast: Meet Cute at Zero Years Old**\
 `These two stories will make you audibly gasp.`\
