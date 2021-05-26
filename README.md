@@ -1,40 +1,40 @@
-**Your Body Survived a Pandemic. Don’t Punish It With Diet Fads.**\
-`Don’t let the weight-loss industry shame you into thinking “back to normal” means a return to intermittent fasting and appetite suppressant lollipops.`\
-https://nytimes.com/video/opinion/100000007737331/dieting-covid-weight-gain.html?searchResultPosition=1
+**Denville, N.J.: Lakefront Living With an Eclectic Downtown**\
+`In a Morris County township 35 miles west of Manhattan, where summer colonies were developed a century ago, many residents find a boat comes in handy.`\
+https://nytimes.com/2021/05/26/realestate/denville-nj-lakefront-living-with-an-eclectic-downtown.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Why Your Kid Likes Comparing Neptune to a Dust Mite’**\
-`In this lesson, students will learn about the importance of scale and relative size in understanding the universe. Then they will create a visual representation of a compelling comparison.`\
-https://nytimes.com/2021/05/26/learning/lesson-of-the-day-why-your-kid-likes-comparing-neptune-to-a-dust-mite.html?searchResultPosition=2
+**15 New Books Coming in June**\
+`This month brings new ways of thinking about American history, from slavery to the Alamo to same-sex marriage, as well as fiction from Rivka Galchen and Brandon Taylor, and a second thriller by Bill Clinton and James Patterson.`\
+https://nytimes.com/2021/05/26/books/new-june-books.html?searchResultPosition=2
 
-**A New Crop in Pennsylvania: Warehouses**\
-`Huge facilities have sprouted up in and around the Lehigh Valley, fueled by the astonishing growth of e-commerce. Some residents say the area’s landscape and long-term economic health could be threatened.`\
-https://nytimes.com/2021/05/26/business/lehigh-valley-warehouses-ecommerce.html?searchResultPosition=3
+**Living In ... Denville, N.J.**\
+`In a Morris County township 35 miles west of Manhattan, where summer colonies were developed a century ago, many residents find a boat comes in handy.`\
+https://nytimes.com/slideshow/2021/05/26/realestate/living-in-denville-nj.html?searchResultPosition=3
 
-**Andrew Yang Believes in New York and Himself. Is That Enough?**\
-`Mr. Yang has brought political star power and a dose of optimism to the New York City mayor’s race. But his gaps in knowledge about how the city functions have led to the perception among critics that he is out of his depth.`\
-https://nytimes.com/2021/05/26/nyregion/andrew-yang-mayor-nyc.html?searchResultPosition=4
+**New Yorkers Are Crazy About Roller-Skating (Again)**\
+`The Roxy might be long gone, but skating meet-ups are everywhere. And some of them predate the pandemic by decades.`\
+https://nytimes.com/2021/05/26/nyregion/roller-skating-new-york-covid.html?searchResultPosition=4
 
-**Summer Pleasures**\
-`What are you most looking forward to doing this summer?`\
-https://nytimes.com/2021/05/26/learning/summer-pleasures.html?searchResultPosition=5
+**They’ve Given $6 Million to the Arts. No One Knew Them, Until Now.**\
+`Moving quickly in the pandemic, a wealthy money manager underwrote performances via a new foundation, with a little help from a violin-obsessed adviser.`\
+https://nytimes.com/2021/05/26/arts/music/alphadyne-foundation-storefront-concerts.html?searchResultPosition=5
 
-**Word of the Day: tenable**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/05/26/learning/word-of-the-day-tenable.html?searchResultPosition=6
+**Biden and Moon Are Getting North Korea Wrong**\
+`The U.S. and the South Korean presidents’ approach to solving the North Korean nuclear crisis is doomed to failure.`\
+https://nytimes.com/2021/05/26/opinion/north-korea-biden-moon-jae-in.html?searchResultPosition=6
 
-**Jimmy Kimmel and Ted Cruz Rekindle an Old Feud**\
-`Kimmel wouldn’t let Senator Cruz call the military “woke” and “emasculated,” so the Texas Republican reminded the comedian of his loss in their 2018 basketball game.`\
-https://nytimes.com/2021/05/26/arts/television/jimmy-kimmel-ted-cruz-feud.html?searchResultPosition=7
+**Roxane Gay Starts Publishing Imprint With Grove Atlantic**\
+`Roxane Gay Books will focus on underrepresented fiction, nonfiction and memoir writers, with or without agents.`\
+https://nytimes.com/2021/05/26/books/roxane-gay-books-grove-atlantic.html?searchResultPosition=7
 
-**County Reaches $10 Million Settlement in Jailed Black Man’s Death**\
-`Officials in Charleston County, S.C., unanimously approved a settlement with the family of Jamal Sutherland, who died in January after sheriff’s deputies used pepper spray and Tasers on him.`\
-https://nytimes.com/2021/05/26/us/jamal-sutherland-south-carolina-settlement.html?searchResultPosition=8
+**Beyond Peril: How The Times Responds When a Journalist’s Safety Is Compromised**\
+`After situations involving forceful detentions or worse, the organization seeks prompt accountability and change.`\
+https://nytimes.com/2021/05/26/insider/journalists-safety-response.html?searchResultPosition=8
 
-**A Playoff Homecoming, and Swan Song, for the Islanders**\
-`Fans have returned to Nassau Coliseum to cheer on the Islanders in the postseason, in the arena’s last year. The team can clinch its first series win in the venue since 1993 on Wednesday.`\
-https://nytimes.com/2021/05/26/sports/hockey/islanders-penguins-nassau-coliseum.html?searchResultPosition=9
+**The Persistent Grip of Social Class on College Admissions**\
+`The SAT is falling out of favor, but factors like the essay have their own issues.`\
+https://nytimes.com/2021/05/26/upshot/college-admissions-essay-sat.html?searchResultPosition=9
 
-**WhatsApp Sues India’s Government to Stop New Internet Rules**\
-`The rules, which would require WhatsApp to make people’s messages traceable, would violate people’s privacy, the messaging service said.`\
-https://nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html?searchResultPosition=10
+**He Fought Trump’s 2020 Lies. He Also Backs New Scrutiny of Ballots.**\
+`Brad Raffensperger, the Republican secretary of state in Georgia, told The Times that a new, disinformation-driven attempt to inspect 2020 ballots wouldn’t unearth wrongdoing, and would help restore voter confidence.`\
+https://nytimes.com/2021/05/26/us/politics/brad-raffensperger-georgia-trump.html?searchResultPosition=10
 
