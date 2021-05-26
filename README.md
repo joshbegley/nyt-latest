@@ -1,5 +1,5 @@
 **Jimmy Kimmel and Ted Cruz Rekindle an Old Feud**\
-`Kimmel wouldn’t let Senator Cruz call the military “woke” and “emasculated, so the Texas Republican reminded the comedian of his loss in their 2018 basketball game.`\
+`Kimmel wouldn’t let Senator Cruz call the military “woke” and “emasculated,” so the Texas Republican reminded the comedian of his loss in their 2018 basketball game.`\
 https://nytimes.com/2021/05/26/arts/television/jimmy-kimmel-ted-cruz-feud.html?searchResultPosition=1
 
 **County Reaches $10 Million Settlement in Jailed Black Man’s Death**\
