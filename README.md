@@ -2,8 +2,8 @@
 `Its campaign is part of a global wave of actions by governments that are testing how far they can go to control online speech.`\
 https://nytimes.com/2021/05/26/technology/russia-twitter-google-facebook-censorship.html?searchResultPosition=1
 
-**Watch Live: Hearing on Oversight of Wall Street Firms**\
-`The Senate Banking Committee will hold a remote hearing on “Annual Oversight of Wall Street Firms,” with testimony from Wells Fargo, Goldman Sachs, Citigroup, JPMorgan Chase and others.`\
+**Wall Street Chiefs Testify Before Senate**\
+`The chief executives of the six biggest American lenders testify before the Senate Banking Committee.`\
 https://nytimes.com/video/us/politics/100000007782888/senate-committee-hearing-live.html?searchResultPosition=2
 
 **House Hunting in Wales: A Historic Farmhouse for $1.2 Million**\
