@@ -1,5 +1,5 @@
 **Eric Carle, Author of ‘The Very Hungry Caterpillar,’ Dies at 91**\
-`A self-described “picture writer,” he wrote and illustrated more than 70 books for young children.`\
+`A self-described “picture writer,” he wrote and illustrated more than 70 books for young children, selling more than 170 million copies.`\
 https://nytimes.com/2021/05/26/books/eric-carle-dead.html?searchResultPosition=1
 
 **Gov. Gavin Newsom asks: ‘What the hell is wrong with us?’**\
