@@ -6,8 +6,8 @@ https://nytimes.com/2021/05/26/dining/your-new-summer-salad.html?searchResultPos
 `Procedures used to be done in secret, but in the post-Kardashian world, transparency is just part of the process.`\
 https://nytimes.com/2021/05/26/style/plastic-surgery.html?searchResultPosition=2
 
-**Watch Live: Biden’s A.T.F. Pick Faces Confirmation Hearing**\
-`The Senate will hold a confirmation hearing for David Chipman, the Biden administration’s nominee for director of the Bureau of Alcohol, Tobacco, Firearms and Explosives.`\
+**Watch Live: Biden Nominations Face Confirmation Hearing**\
+`The Senate holds a series of confirmation hearings.`\
 https://nytimes.com/video/us/politics/100000007782925/david-chipman-live-hearing.html?searchResultPosition=3
 
 **Theater to Stream: Concert Sets and Reimagined Classics**\
