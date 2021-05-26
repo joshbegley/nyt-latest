@@ -12,7 +12,7 @@ https://nytimes.com/2021/05/26/dining/your-new-summer-salad.html?searchResultPos
 
 **The Mesmerizing Pull of Plastic Surgery Videos**\
 `Procedures used to be done in secret, but in the post-Kardashian world, transparency is just part of the process.`\
-https://nytimes.com/2021/05/26/style/plastic-surgery.html?searchResultPosition=4
+https://nytimes.com/2021/05/26/style/plastic-surgery-videos.html?searchResultPosition=4
 
 **Watch Live: Biden Nominations Face Confirmation Hearing**\
 `The Senate holds a series of confirmation hearings.`\
