@@ -10,31 +10,31 @@ https://nytimes.com/interactive/2021/05/26/world/asia/orphan-girl-china-chinese.
 `Melissa Clark’s new recipe for grilled merguez and onions with mint-lemon couscous is a standout grain salad.`\
 https://nytimes.com/2021/05/26/dining/your-new-summer-salad.html?searchResultPosition=3
 
+**Ford will spend $30 billion on electric vehicles, a big increase from earlier plans.**\
+`Ford has gone from being a relative latecomer to battery-powered vehicles to making them a central focus. Last week it introduced the F-150 Lightning, an electric truck.`\
+https://nytimes.com/2021/05/26/business/ford-electric-vehicles.html?searchResultPosition=4
+
 **The Mesmerizing Pull of Plastic Surgery Videos**\
 `Procedures used to be done in secret, but in the post-Kardashian world, transparency is just part of the process.`\
-https://nytimes.com/2021/05/26/style/plastic-surgery-videos.html?searchResultPosition=4
+https://nytimes.com/2021/05/26/style/plastic-surgery-videos.html?searchResultPosition=5
 
 **Watch Live: Biden Nominations Face Confirmation Hearing**\
 `The Senate holds a series of confirmation hearings.`\
-https://nytimes.com/video/us/politics/100000007782925/david-chipman-live-hearing.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000007782925/david-chipman-live-hearing.html?searchResultPosition=6
 
 **Theater to Stream: Concert Sets and Reimagined Classics**\
 `Highlights include “A Midsummer Night’s Dream” at Shakespeare’s Globe, the rising stars of LaGuardia High School and “Uncle Vanya” on PBS.`\
-https://nytimes.com/2021/05/26/theater/streaming-theater.html?searchResultPosition=6
+https://nytimes.com/2021/05/26/theater/streaming-theater.html?searchResultPosition=7
 
 **Roland Petit: A French Choreographer, Most Savored in France**\
 `Ten years after his death, Petit is still considered an important figure in France, though his works haven’t been performed with great regularity.`\
-https://nytimes.com/2021/05/26/arts/dance/roland-petit-paris-opera-ballet.html?searchResultPosition=7
+https://nytimes.com/2021/05/26/arts/dance/roland-petit-paris-opera-ballet.html?searchResultPosition=8
 
 **Russia Raises Heat on Twitter, Google and Facebook in Online Crackdown**\
 `Its campaign is part of a global wave of actions by governments that are testing how far they can go to control online speech.`\
-https://nytimes.com/2021/05/26/technology/russia-twitter-google-facebook-censorship.html?searchResultPosition=8
+https://nytimes.com/2021/05/26/technology/russia-twitter-google-facebook-censorship.html?searchResultPosition=9
 
 **Wall Street Chiefs Testify Before Senate**\
 `The chief executives of the six biggest American lenders testify before the Senate Banking Committee.`\
-https://nytimes.com/video/us/politics/100000007782888/senate-committee-hearing-live.html?searchResultPosition=9
-
-**House Hunting in Wales: A Historic Farmhouse for $1.2 Million**\
-`The housing market in England’s bucolic neighbor has been ‘absolutely bonkers,’ with comparatively low prices luring foreigners during the pandemic.`\
-https://nytimes.com/2021/05/26/realestate/house-hunting-in-wales-a-historic-farmhouse-for-1-2-million.html?searchResultPosition=10
+https://nytimes.com/video/us/politics/100000007782888/senate-committee-hearing-live.html?searchResultPosition=10
 
