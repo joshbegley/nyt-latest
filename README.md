@@ -1,6 +1,6 @@
-**California’s gun laws are some of the most restrictive in the nation.**\
-`Politicians including President Biden and Gov. Gavin Newsom urged further action from lawmakers on Wednesday.`\
-https://nytimes.com/2021/05/27/us/california-gun-laws.html?searchResultPosition=1
+**Where to Appreciate the Joys of Naked Gardening**\
+`Grab the sunscreen: Here are the best (and worst) cities to tend your plants in the nude.`\
+https://nytimes.com/2021/05/27/realestate/naked-gardening.html?searchResultPosition=1
 
 **Homes for Sale in Manhattan, Brooklyn and the Bronx**\
 `This week’s properties are in TriBeCa and Williamsburg, and on City Island.`\
