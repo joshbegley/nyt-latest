@@ -1,40 +1,40 @@
-**Hoboken or Jersey City? A Couple Tested Their $625,000 Budget in Each. Which Home Would You Choose?**\
-`When the pandemic forced them to rethink their living situation, two Manhattanites went looking for a two-bedroom they could afford — as long as it was an easy commute back into the city.`\
-https://nytimes.com/interactive/2021/05/27/realestate/27hunt-monnin2.html?searchResultPosition=1
+**Goodbye to a Yankee Farmer, the Ghost of Exit 8**\
+`In 1964, a Vermont farmer burned himself and his farm, rather than surrender his land. His neighbors can’t let him go.`\
+https://nytimes.com/2021/05/27/us/vermont-farmer-tree.html?searchResultPosition=1
 
-**Claylike Models and Beamed Actors: London Theater Is Back, in Unusual Ways**\
-`One “play” uses only voice-overs. Another features a main actor only on video. And under Covid rules, an 11-person Shakespeare cast counts as an army.`\
-https://nytimes.com/2021/05/27/theater/london-theater-unusual-return.html?searchResultPosition=2
+**Hong Kong Has a New Type of Prisoner: Pro-Democracy Activists**\
+`Hundreds of protesters, many students or college-educated, face potentially stiff sentences after Beijing’s crackdown. Those behind bars already battle isolation and disillusionment.`\
+https://nytimes.com/2021/05/27/world/asia/hong-kong-protests-prison.html?searchResultPosition=2
 
-**Teaching About the Tulsa Race Massacre With The New York Times**\
-`In this lesson, students will explore a 3-D model of historical Greenwood — home of “Black Wall Street” — and then learn about how a white mob destroyed a prosperous Black community 100 years ago.`\
-https://nytimes.com/2021/05/27/learning/teaching-about-the-tulsa-race-massacre-with-the-new-york-times.html?searchResultPosition=3
+**5 Things to Do on Memorial Day Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/05/27/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=3
 
-**A Wave of Afghan Surrenders to the Taliban Picks Up Speed**\
-`Dozens of besieged outposts or bases, and four district centers, have given up to the insurgents this month, in an accelerating rural collapse as American troops leave.`\
-https://nytimes.com/2021/05/27/world/asia/afghan-surrender-taliban.html?searchResultPosition=4
+**What to Name a Bunch of Black Holes? You Had Some Ideas.**\
+`Recently, astronomers asked aloud which plural term would best suit the most enigmatic entity in the cosmos. The responses were plentiful.`\
+https://nytimes.com/2021/05/27/science/black-hole-names-holley-bockelmann.html?searchResultPosition=4
 
-**In ‘Cruella,’ Fashion Is Toxic**\
-`The new Disney movie is the latest in a long line of Hollywood films that demonizes the industry. Why?`\
-https://nytimes.com/2021/05/27/style/cruella-movie-fashion-villains.html?searchResultPosition=5
+**Biden’s Silence on Abortion Rights at a Key Moment Worries Liberals**\
+`As a case before the Supreme Court threatens Roe v. Wade and Democrats’ urgency grows, many activists believe the president needs to be bolder in defending reproductive rights.`\
+https://nytimes.com/2021/05/27/us/politics/biden-abortion-democrats.html?searchResultPosition=5
 
-**Broad Coalition of Democrats Presses Biden to Expand Medicare**\
-`Over 150 House Democrats are pushing the president to include a plan in his infrastructure package to lower the eligibility age, expand benefits and negotiate drug prices.`\
-https://nytimes.com/2021/05/27/us/politics/medicare-expansion-democrats-biden.html?searchResultPosition=6
+**A Temporary U.S.-China Trade Truce Starts to Look Durable**\
+`Last year’s deal could set the rules for global commerce for years to come, leaving the door open to lavish Chinese subsidies and unilateral American tariffs.`\
+https://nytimes.com/2021/05/27/business/us-china-trade-deal.html?searchResultPosition=6
 
-**The ‘Talking’ Dog of TikTok**\
-`Bunny, an internet-famous sheepadoodle, has brought attention to a new area of study within animal cognition: the use of assistive technology for language acquisition.`\
-https://nytimes.com/2021/05/27/style/bunny-the-dog-animal-communication.html?searchResultPosition=7
+**Why Apple and Google’s Virus Alert Apps Had Limited Success**\
+`The virus-tracing effort raises questions about the power of Big Tech to set global standards for public health tools.`\
+https://nytimes.com/2021/05/27/business/apple-google-virus-tracing-app.html?searchResultPosition=7
 
-**A Cap on Friends?**\
-`How many friends can one person realistically have? Weigh in on what a recent research study shows.`\
-https://nytimes.com/2021/05/27/learning/a-cap-on-friends.html?searchResultPosition=8
+**To Test Covid Protocols, Cruise Lines Turn to Volunteer Guinea Pigs**\
+`Hundreds of thousands of cruise lovers have signed up to take part in sailings designed to test new health and safety measures.`\
+https://nytimes.com/2021/05/27/travel/cruise-lines-covid.html?searchResultPosition=8
 
-**Twitter Calls on Indian Government to Respect Free Speech**\
-`The social media platform criticized what it called “intimidation tactics,” saying it would push back on new rules that it said could rein in free speech online.`\
-https://nytimes.com/2021/05/27/business/india-twitter.html?searchResultPosition=9
+**Colman Domingo’s Crooked Summer**\
+`He’s proud to have appeared in, and championed, films that show off Black men at their soulful best. His roles in “Candyman” and “Zola” are different.`\
+https://nytimes.com/2021/05/27/movies/colman-domingo-candyman-zola.html?searchResultPosition=9
 
-**Seth Meyers Calls Trump the ‘David Blaine of Crime’**\
-`“If he ever goes to trial, he’ll just regurgitate a frog that has ‘not guilty’ written on its back,” Meyers joked on Wednesday night.`\
-https://nytimes.com/2021/05/27/arts/television/seth-meyers-calls-trump-the-david-blaine-of-crime.html?searchResultPosition=10
+**A Funny Thing Happened While Researching Algorithms**\
+`Carrington Moore signed up for a dating app to better understand user preferences for a start-up business. Then he came across Schnelle Shelby’s profile.`\
+https://nytimes.com/2021/05/27/style/schnelle-shelby-carrington-moore-wedding.html?searchResultPosition=10
 
