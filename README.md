@@ -1,6 +1,6 @@
-**简报：拜登命令情报机构重查新冠起源；一个家庭的悲剧与“中国梦”的破灭**\
-`美国寻求与巴勒斯坦重新建立关系；白俄罗斯危机给普京带来难题；亚马逊宣布收购米高梅公司；加州圣何塞发生枪击案，八人死亡……这里是今日要闻。`\
-https://nytimes.com/zh-hans/2021/05/26/world/asia/biden-coronavirus-origins.html?searchResultPosition=1
+**Producer of the Jacksons**\
+`Barb Lin returns with her sixth New York Times Crossword puzzle.`\
+https://nytimes.com/2021/05/26/crosswords/daily-puzzle-2021-05-27.html?searchResultPosition=1
 
 **F.D.A. authorizes another antibody treatment for high-risk Covid patients.**\
 `The drug, from GlaxoSmithKline and Vir, aims to keep Covid patients out of the hospital.`\
