@@ -1,36 +1,40 @@
-**The president will pitch his spending plans during a visit to an Ohio community college.**\
-`The president is scheduled to tour the Cuyahoga Community College Manufacturing Technology Center in Cleveland.`\
-https://nytimes.com/2021/05/27/us/biden-ohio-community-college.html?searchResultPosition=1
+**What Makes a Musical Genius?**\
+`Books about everything from Tupac Shakur to Latin music and memoirs by Sinead O’Connor and Rickie Lee Jones offer an answer.`\
+https://nytimes.com/2021/05/27/books/new-music-books.html?searchResultPosition=1
 
-**‘A Midsummer Night’s Dream’ Onstage. A Nightmare Off It.**\
-`Shakespeare’s Globe survived Elizabethan plagues. Today’s version got through the coronavirus pandemic, but tough times lie ahead.`\
-https://nytimes.com/2021/05/27/theater/globe-shakespeare-coronavirus.html?searchResultPosition=2
+**Sweet, Sexy and Rebellious: Summer’s New Romance Novels**\
+`Mainstream publishers are fully embracing queer love stories, our columnist writes: “I would call it an embarrassment of riches but what it really is, of course, is pride.”`\
+https://nytimes.com/2021/05/27/books/new-romance-novels.html?searchResultPosition=2
 
-**As U.S. vaccinations slump, CVS offers cruises, money and a Super Bowl trip to get a shot.**\
-`The prizes are part of a wave of incentives to persuade the unvaccinated to go to pharmacies to get their shots.`\
-https://nytimes.com/2021/05/27/world/cvs-coronavirus-vaccines.html?searchResultPosition=3
+**New Audiobooks for Your Summer Road Trip**\
+`From funny women to Yo-Yo Ma, self-reflection to civil rights, there’s something in the queue for everyone.`\
+https://nytimes.com/2021/05/27/books/new-audiobooks.html?searchResultPosition=3
 
-**Sheriff: The gunman was ‘very deliberate, very fast.’**\
-`By Daniel Victor`\
-https://nytimes.com/2021/05/27/us/sheriff-the-gunman-was-very-deliberate-very-fast.html?searchResultPosition=4
+**Summer Reads Guaranteed to Make Your Heart Thump and Your Skin Crawl**\
+`If your idea of a beach read involves abject terror, we’ve got some new novels to recommend.`\
+https://nytimes.com/2021/05/27/books/new-horror-novels.html?searchResultPosition=4
 
-**Where to Appreciate the Joys of Naked Gardening**\
-`Grab the sunscreen: Here are the best (and worst) cities to tend your plants in the nude.`\
-https://nytimes.com/2021/05/27/realestate/naked-gardening.html?searchResultPosition=5
+**Showbiz Books for Summer**\
+`New titles — about Lorraine Hansberry, “Midnight Cowboy” and more — get to the heart of our enduring obsessions with Hollywood and the performing arts.`\
+https://nytimes.com/2021/05/27/books/new-hollywood-broadway-books.html?searchResultPosition=5
 
-**Homes for Sale in Manhattan, Brooklyn and the Bronx**\
-`This week’s properties are in TriBeCa and Williamsburg, and on City Island.`\
-https://nytimes.com/2021/05/27/realestate/housing-market-nyc.html?searchResultPosition=6
+**Barbecued, Battered, Boiled and Baked: Cookbooks for Summer**\
+`The season’s newest cookbooks celebrate feel-good dishes from around the globe.`\
+https://nytimes.com/2021/05/27/books/summer-cookbooks.html?searchResultPosition=6
 
-**On the Market in New York City**\
-`This week’s properties are in TriBeCa and Williamsburg, and on City Island.`\
-https://nytimes.com/slideshow/2021/05/27/realestate/on-the-market-in-new-york-city.html?searchResultPosition=7
+**The Ultimate Summer Escape: Historical Fiction**\
+`New novels — by turns salty, sweeping and sweet — will transport you to 1930s Italy, 19th-century England and San Francisco a hundred years ago.`\
+https://nytimes.com/2021/05/27/books/new-historical-fiction.html?searchResultPosition=7
 
-**The T List: Five Things We Recommend This Week**\
-`A new season of “Special,” Carole Wantz’s debut exhibition — and more.`\
-https://nytimes.com/2021/05/27/t-magazine/special-netflix-carole-wantz.html?searchResultPosition=8
+**A Sense of Belonging: New Science Fiction and Fantasy**\
+`Six novels feature characters who hunger for connection so strongly that they transform their environments.`\
+https://nytimes.com/2021/05/27/books/new-science-fiction-fantasy.html?searchResultPosition=8
 
-**A Fire, and Then a Deadly Attack in San Jose**\
-`Thursday: In San Jose’s Evergreen neighborhood, residents reeled as they learned the gunman in the mass shooting at a nearby rail yard was their neighbor.`\
-https://nytimes.com/2021/05/27/us/san-jose-suspect-evergreen-neighbors.html?searchResultPosition=10
+**Game On! Great New Sports Books**\
+`Just in time for summer, these titles offer a variety of surprises — like the members of the 1986 Boston Red Sox discussing their famous collapse and Kevin Garnett offering his prescriptions for success..`\
+https://nytimes.com/2021/05/27/books/new-sports-books.html?searchResultPosition=9
+
+**Nail-biting, Nerve-shredding Novels That Will Keep You Up at Night**\
+`Alex Michaelides’s long-awaited next novel, “The Maidens,” is finally here, and so are new books from Catherine Steadman, Ben Winters and Geling Yan.`\
+https://nytimes.com/2021/05/27/books/new-thrillers.html?searchResultPosition=10
 
