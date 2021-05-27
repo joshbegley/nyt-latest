@@ -1,10 +1,10 @@
 **At His Moment of Triumph, Arthur Jafa Is Looking for Trouble**\
 `With a survey in Europe and stark new sculptures in New York, he is bringing to the fore darker, more personal themes. “I’m an undertaker,” he said. “I don’t do the uplift thing.”`\
-https://nytimes.com/2021/05/27/arts/arthur-jafa-gladstone-love-message-video.html?searchResultPosition=1
+https://nytimes.com/2021/05/27/arts/design/arthur-jafa-gladstone-love-message-video.html?searchResultPosition=1
 
 **Nina Katchadourian’s Eccentric Existentialism**\
 `In her first show at Pace, an artist driven by curiosity and a penchant for the absurd tries to understand the world. The results are touching and sometimes hilarious.`\
-https://nytimes.com/2021/05/27/arts/nina-katchadourian-pace-artist.html?searchResultPosition=2
+https://nytimes.com/2021/05/27/arts/design/nina-katchadourian-pace-artist.html?searchResultPosition=2
 
 **Howard University Renames College of Fine Arts After Chadwick Boseman**\
 `The actress and alumna Phylicia Rashad will serve as dean, and Robert A. Iger, the Walt Disney Company’s executive chairman, will lead fund-raising efforts to build a new facility.`\
