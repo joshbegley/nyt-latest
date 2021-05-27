@@ -19,7 +19,7 @@ https://nytimes.com/2021/05/27/opinion/alvin-bragg-for-manhattan-da.html?searchR
 https://nytimes.com/video/world/australia/100000007785990/tasmanian-devils-australia.html?searchResultPosition=5
 
 **N.Y.C. Lawmakers Take Dramatic Step to Stem Homelessness**\
-`The City Council overwhelmingly passed a measure to increase a city housing subsidy, in hopes of making tens of thousands of apartments more affordable to those who are homeless or facing eviction.`\
+`The City Council overwhelmingly passed a bill aimed at making tens of thousands of apartments affordable to people who are homeless or facing eviction.`\
 https://nytimes.com/2021/05/27/nyregion/nyc-homelessness-vouchers.html?searchResultPosition=6
 
 **Overlooked No More: Si-lan Chen, Whose Dances Encompassed Worlds**\
