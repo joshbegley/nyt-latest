@@ -19,7 +19,7 @@ https://nytimes.com/2021/05/26/climate/biden-alaska-drilling.html?searchResultPo
 https://nytimes.com/2021/05/26/arts/samuel-e-wright-dead-sebastian-little-mermaid-mufasa-lion-king.html?searchResultPosition=5
 
 **Gunman Kills 8 People at San Jose Rail Yard**\
-`The gunman, who killed himself, was an employee of the Santa Clara Valley Transportation Authority, a regional transit agency for Silicon Valley.`\
+`The gunman, who apparently killed himself, was an employee of the Santa Clara Valley Transportation Authority, a regional transit agency for Silicon Valley.`\
 https://nytimes.com/2021/05/26/us/san-jose-mass-shooting.html?searchResultPosition=6
 
 **Amy Cooper, White Woman Who Called 911 on Black Birder, Sues Over Firing**\
