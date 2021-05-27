@@ -1,5 +1,5 @@
 **Janet Yellen says the Treasury needs more funds to oversee the economic recovery.**\
-`The Treasury secretary called on Congress to provide more funding for her agency, which oversees a sprawling set of relief programs.`\
+`By Alan Rappeport`\
 https://nytimes.com/2021/05/27/business/treasury-funding-yellen.html?searchResultPosition=1
 
 **Champions League Ponders Big Change: A Final Four in One City**\
