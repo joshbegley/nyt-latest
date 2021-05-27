@@ -18,8 +18,8 @@ https://nytimes.com/video/world/africa/100000007785423/congo-africa-volcano-evac
 `This low-A.B.V. cocktail is easy to make and riff on once you know where to start.`\
 https://nytimes.com/interactive/2021/05/27/dining/spritz-recipe.html?searchResultPosition=5
 
-**The intelligence agencies’ inquiry into the virus’ origins is likely to take longer than 90 days.**\
-`A spokesman for the director of national intelligence said that officials are expected to complete an initial report in three months’ time but work is likely to continue for longer.`\
+**Biden says he will release the results of an inquiry into the virus’ origin.**\
+`An initial report is expected to be completed in three months’ time but officials said work is likely to continue for longer.`\
 https://nytimes.com/2021/05/27/us/covid-intelligence-china.html?searchResultPosition=6
 
 **Homes for Sale in New York and New Jersey**\
