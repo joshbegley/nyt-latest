@@ -1,40 +1,40 @@
-**Macron Arrives in Rwanda to Turn ‘New Page’ in Relations**\
-`The two-day visit by Emmanuel Macron is the first by a French president to the central African country in 11 years and extends efforts to recognize France’s role in the 1994 genocide.`\
-https://nytimes.com/2021/05/27/world/africa/france-rwanda-macron.html?searchResultPosition=1
+**To Fish These Big Trout, Bring a Ladder**\
+`Landing the highly coveted Lahontan cutthroat trout requires special skill — and equipment.`\
+https://nytimes.com/2021/05/27/sports/lahontan-trout-pyramid-lake.html?searchResultPosition=1
 
-**Hong Kong police, citing the pandemic, block Tiananmen anniversary events.**\
-`The city has recorded just 24 infections over the past two weeks. It is the second straight year that the authorities have blocked the memorial observances.`\
-https://nytimes.com/2021/05/27/world/asia/hong-kong-tiananmen-covid.html?searchResultPosition=2
+**‘Moby Doc’ Review: He Understands How He’s an Unlikely Pop Star**\
+`The movie is directed by Robert Gordon Bralver, but it’s a late-life self-realization project for the musician.`\
+https://nytimes.com/2021/05/27/movies/moby-doc-review.html?searchResultPosition=2
 
-**The Lab-Leak Theory**\
-`We have an explainer.`\
-https://nytimes.com/2021/05/27/briefing/lab-leak-theory-covid-origins.html?searchResultPosition=3
+**‘A Quiet Place Part II’ Review: Pump Up the Volume**\
+`This sequel to John Krasinski’s alien-invasion blockbuster is brasher, louder and less focused than its predecessor.`\
+https://nytimes.com/2021/05/27/movies/a-quiet-place-part-ii-review.html?searchResultPosition=3
 
-**A surge of cases in Malaysia is partly linked to prayer gatherings.**\
-`With more new infections per capita than almost anywhere else in Asia, the country reimposed restrictions as the prime minister called on Malaysians to observe “a self-lockdown.”`\
-https://nytimes.com/2021/05/27/world/asia/malaysia-covid-ramadan-vaccine.html?searchResultPosition=4
+**‘Plan B’ Review: A Joy Ride in Search of Emergency Contraception**\
+`Two teenagers embark on a madcap road trip to Planned Parenthood in this comedy from Natalie Morales.`\
+https://nytimes.com/2021/05/27/movies/plan-b-review.html?searchResultPosition=4
 
-**The Saga of Ryanair Flight 4978**\
-`Why did the leader of Belarus force a commercial airplane to land? Who was he after? And what might happen next?`\
-https://nytimes.com/2021/05/27/podcasts/the-daily/belarus-ryanair-lukashenko-roman-protasevich.html?searchResultPosition=5
+**‘Blue Miracle’ Review: Fishing Lessons**\
+`Mexican orphans find hope through a fishing tournament in this cloying underdog Netflix drama.`\
+https://nytimes.com/2021/05/27/movies/blue-miracle-review.html?searchResultPosition=5
 
-**Biden Administration to Require Pipeline Companies to Report Cyberattacks**\
-`The move, which will require companies to report to the government any significant attacks, is a response to the Colonial Pipeline ransomware attacks.`\
-https://nytimes.com/2021/05/27/us/politics/biden-pipelines-cyberattacks.html?searchResultPosition=6
+**‘American Traitor: The Trial of Axis Sally’ Review: Prosecuting a Propagandist**\
+`Meadow Williams plays Mildred Gillars in this plodding and ultimately infuriatingly noncommittal movie.`\
+https://nytimes.com/2021/05/27/movies/review-american-traitor-axis-sally.html?searchResultPosition=6
 
-**How Mazda Rode Out the Pandemic While Rivals Slipped**\
-`Its sales climbed, and it racked up awards for safety and more.`\
-https://nytimes.com/2021/05/27/business/mazda-sales-pandemic.html?searchResultPosition=7
+**‘The Mercy of the Jungle’ Review: Soldiers Lost Among the Enemy**\
+`In this immersive portrait of ethnic conflict by the Rwandan filmmaker Joel Karekezi, two men also take on the jungle and the savage elements.`\
+https://nytimes.com/2021/05/27/movies/mercy-of-the-jungle-review.html?searchResultPosition=7
 
-**In Australia, Births of Tasmanian Devils Are a Milestone After 3,000 Years**\
-`Seven babies were born in the semi-wild of a nature preserve, millenniums after the animals were wiped out on the Australian mainland. Whether they can survive is another question.`\
-https://nytimes.com/2021/05/27/world/australia/tasmanian-devils.html?searchResultPosition=8
+**‘Five Years North’ Review: Opposite Sides of Immigration**\
+`This frustratingly sentimental documentary looks at the parallel lives of an undocumented teenager and an ICE agent in New York.`\
+https://nytimes.com/2021/05/27/movies/five-years-north-review.html?searchResultPosition=8
 
-**A lockdown in Victoria State, Australia, follows a variant-fueled outbreak.**\
-`After nearly three months without an infection, health officials have found 26 cases in the Melbourne area. Critics blamed ill-equipped quarantine facilities and a slow vaccine rollout.`\
-https://nytimes.com/2021/05/27/world/australia/victoria-melbourne-covid-lockdown-australia.html?searchResultPosition=9
+**‘Ahead of the Curve’ Review: The Business of Lesbian Identity**\
+`A 30-year-old lesbian magazine faces an existential crisis in this documentary.`\
+https://nytimes.com/2021/05/27/movies/ahead-of-the-curve-review.html?searchResultPosition=9
 
-**The Disparities in Access to New York’s Parks**\
-`Low-income residents and people of color have  significantly less  space available to them than residents of white and wealthy areas.`\
-https://nytimes.com/2021/05/27/nyregion/parks-access-nyc.html?searchResultPosition=10
+**‘Dog Gone Trouble’ Review: New Dog, Same Tricks**\
+`A pampered dog finds himself on the streets in this routine animated comedy.`\
+https://nytimes.com/2021/05/27/movies/dog-gone-trouble-review.html?searchResultPosition=10
 
