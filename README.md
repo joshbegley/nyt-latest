@@ -2,7 +2,7 @@
 `Executives at major financial institutions testified for a second day to Congress about how they were helping aid economic recovery.`\
 https://nytimes.com/video/us/politics/100000007786341/finance-bank-ceos-testimony.html?searchResultPosition=1
 
-**With sales rebounding, Gap sees its post-pandemic future outside of malls.**\
+**With sales rebounding, Gap sees its post-pandemic future outside malls.**\
 `The retailer’s first-quarter sales jumped 89 percent to $4 billion from a year earlier as its e-commerce continues to grow.`\
 https://nytimes.com/2021/05/27/business/gap-earnings.html?searchResultPosition=2
 
