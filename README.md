@@ -31,7 +31,7 @@ https://nytimes.com/2021/05/26/nyregion/Sliwa-Mateo-debate-republican-mayor.html
 https://nytimes.com/2021/05/26/us/politics/biden-ambassadors-burns-garcetti.html?searchResultPosition=8
 
 **Biden Administration Defends Huge Alaska Oil Drilling Project**\
-`The administration says the country must pivot away from fossil fuels but backed a project set to produce 590 million barrels of oil over 30 years.`\
+`The administration says the country must pivot away from fossil fuels but backed a project set to produce more than 100,000 barrels of oil each day for 30 years.`\
 https://nytimes.com/2021/05/26/climate/biden-alaska-drilling.html?searchResultPosition=9
 
 **Samuel E. Wright, the Voice of Sebastian in ‘The Little Mermaid,’ Dies at 72**\
