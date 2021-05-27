@@ -2,11 +2,11 @@
 `Curtis Sliwa, the founder of the Guardian Angels, and Fernando Mateo, a restaurateur, yelled at each other repeatedly during the free-wheeling virtual debate.`\
 https://nytimes.com/2021/05/26/nyregion/Sliwa-Mateo-debate-republican-mayor.html?searchResultPosition=1
 
-**Biden Is Said to Be Planning to Nominate Burns and Garcetti for Ambassadorships**\
+**Biden is said to be planning to nominate Burns and Garcetti for ambassadorships.**\
 `The president has also selected Thomas R. Nides, Rahm Emanuel and Ken Salazar for posts, according to people familiar with the process.`\
 https://nytimes.com/2021/05/26/us/politics/biden-ambassadors-burns-garcetti.html?searchResultPosition=2
 
-**Biden Administration Defends Massive Alaska Oil Drilling Project**\
+**Biden Administration Defends Huge Alaska Oil Drilling Project**\
 `The administration says the country must pivot away from fossil fuels but backs a project set to produce 590 million barrels of oil over 30 years.`\
 https://nytimes.com/2021/05/26/climate/biden-alaska-drilling.html?searchResultPosition=3
 
