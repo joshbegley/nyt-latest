@@ -1,28 +1,32 @@
+**California’s gun laws are some of the most restrictive in the nation.**\
+`Politicians including President Biden and Gov. Gavin Newsom urged further action from lawmakers on Wednesday.`\
+https://nytimes.com/2021/05/27/us/california-gun-laws.html?searchResultPosition=1
+
+**Homes for Sale in Manhattan, Brooklyn and the Bronx**\
+`This week’s properties are in TriBeCa and Williamsburg, and on City Island.`\
+https://nytimes.com/2021/05/27/realestate/housing-market-nyc.html?searchResultPosition=2
+
+**On the Market in New York City**\
+`This week’s properties are in TriBeCa and Williamsburg, and on City Island.`\
+https://nytimes.com/slideshow/2021/05/27/realestate/on-the-market-in-new-york-city.html?searchResultPosition=3
+
+**The T List: Five Things We Recommend This Week**\
+`A new season of “Special,” Carole Wantz’s debut exhibition — and more.`\
+https://nytimes.com/2021/05/27/t-magazine/special-netflix-carole-wantz.html?searchResultPosition=4
+
 **A Fire, and Then a Deadly Attack in San Jose**\
 `Thursday: In San Jose’s Evergreen neighborhood, residents reeled as they learned the gunman in the mass shooting at a nearby rail yard was their neighbor.`\
-https://nytimes.com/2021/05/27/us/san-jose-suspect-evergreen-neighbors.html?searchResultPosition=2
+https://nytimes.com/2021/05/27/us/san-jose-suspect-evergreen-neighbors.html?searchResultPosition=6
 
 **Knicks Change Their Lineup, and Their Series Against Hawks**\
 `The Knicks head to Atlanta tied with the Hawks, 1-1, thanks to a halftime switch and 26 points from Derrick Rose.`\
-https://nytimes.com/2021/05/27/sports/basketball/knicks-hawks-derrick-rose.html?searchResultPosition=4
+https://nytimes.com/2021/05/27/sports/basketball/knicks-hawks-derrick-rose.html?searchResultPosition=8
 
 **An Indonesian cleric is sentenced to prison for Covid rule violations.**\
 `A three-judge panel in Jakarta, the capital, found Rizieq Shihab guilty of attracting thousands of followers to two large events after he returned in November from Saudi Arabia.`\
-https://nytimes.com/2021/05/27/world/asia/rizieq-shihab-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2021/05/27/world/asia/rizieq-shihab-coronavirus.html?searchResultPosition=9
 
 **Man Rescued in Colorado Mountain Pass Is Accused in 1982 Murders**\
 `Alan Lee Phillips was rescued from a snowdrift in 1982 after he signaled SOS with his headlights. The police now say he became trapped on the road after killing two women.`\
-https://nytimes.com/2021/05/27/us/phillips-colorado-sos-murder.html?searchResultPosition=6
-
-**Biden to Propose $6 Trillion Budget to Boost Middle Class and Infrastructure**\
-`The president’s plans to invest in infrastructure, education, health care and more would push federal spending to its highest sustained levels since World War II.`\
-https://nytimes.com/2021/05/27/business/biden-plan.html?searchResultPosition=8
-
-**Wall Street Rebels Against Exxon**\
-`A small activist investment fund scored a huge win.`\
-https://nytimes.com/2021/05/27/business/dealbook/exxon-mobil-engine-no-1.html?searchResultPosition=9
-
-**Lionel Shriver Warns Readers Not to Meet Their Favorite Authors**\
-`“The warts-and-all version is almost always a disappointment, and they risk a retroactive taint.”`\
-https://nytimes.com/2021/05/27/books/review/lionel-shriver-by-the-book-interview.html?searchResultPosition=10
+https://nytimes.com/2021/05/27/us/phillips-colorado-sos-murder.html?searchResultPosition=10
 
