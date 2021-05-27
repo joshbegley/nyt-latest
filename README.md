@@ -28,7 +28,7 @@ https://nytimes.com/2021/05/27/us/howard-chadwick-boseman.html?searchResultPosit
 
 **Rescuing Artists of Vision**\
 `The unrivaled Art Preserve in Sheboygan, Wis., opening soon, is collecting and showing artist-built environments found along rural byways, in city lofts — and even at Manhattan’s Chelsea Hotel.`\
-https://nytimes.com/2021/05/27/arts/Art-Preserve-Sheboygan.html?searchResultPosition=8
+https://nytimes.com/2021/05/27/arts/design/Art-Preserve-Sheboygan.html?searchResultPosition=8
 
 **4 Art Gallery Shows to See Right Now**\
 `Alice Mackler’s ceramic sculptures; Carol Bove’s monumental works and tabletop pieces; Deborah Remington’s drawings and paintings; and James Yaya Hough’s drawings of prison life.`\
