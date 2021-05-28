@@ -22,8 +22,8 @@ https://nytimes.com/2021/05/28/arts/music/mustafa-when-smoke-rises.html?searchRe
 `Internet companies are making it harder for those with big followings to spread misinformation. Finally!`\
 https://nytimes.com/2021/05/28/technology/facebook-superspreaders-misinformation.html?searchResultPosition=6
 
-**4.1 Magnitude Earthquake Shakes Lake Tahoe and Carson City**\
-`It was enough to shake people up but unlikely to cause major damage, experts said.`\
+**Multiple Earthquakes Rattle Lake Tahoe, Carson City and Reno**\
+`The biggest, with a magnitude of 4.2, briefly startled lawmakers in session in the Nevada capital. There were no immediate reports of damage.`\
 https://nytimes.com/2021/05/28/us/lake-tahoe-earthquake.html?searchResultPosition=7
 
 **Harris Delivers Naval Academy Commencement Speech**\
