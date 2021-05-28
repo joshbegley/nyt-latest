@@ -35,6 +35,6 @@ https://nytimes.com/2021/05/28/us/politics/china-competitiveness-republicans.htm
 https://nytimes.com/2021/05/28/arts/music/alix-dobkin-dead.html?searchResultPosition=9
 
 **A Worker-Owned Cooperative Tries to Compete With Uber and Lyft**\
-`About 2,500 drivers in New York are organizing to create what they say is a better deal for drivers than what is offered by ride-hailing giants.`\
+`About 2,500 drivers in New York are organizing to create what they say is a better deal for drivers than what the ride-hailing giants offer.`\
 https://nytimes.com/2021/05/28/technology/cooperative-uber-lyft.html?searchResultPosition=10
 
