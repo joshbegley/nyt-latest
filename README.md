@@ -19,7 +19,7 @@ https://nytimes.com/2021/05/27/us/san-jose-shooting.html?searchResultPosition=4
 https://nytimes.com/2021/05/27/us/politics/coronavirus-origins-intelligence.html?searchResultPosition=5
 
 **2 Dead and Up to 10 Missing After Boat Carrying Cuban Migrants Overturns**\
-`Eight people were rescued by the Coast Guard, which said that the boat ran into trouble about 18 miles southwest of Key West, Fla., officials said.`\
+`Eight people were rescued by the Coast Guard, which said that the boat ran into trouble about 16 miles southwest of Key West, Fla., officials said.`\
 https://nytimes.com/2021/05/27/us/key-west-boat-accident.html?searchResultPosition=6
 
 **Dianne Morales Tries to Calm a Sudden Crisis in Her Campaign**\
