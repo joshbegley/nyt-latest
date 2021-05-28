@@ -7,7 +7,7 @@ https://nytimes.com/2021/05/28/style/model-shaun-ross-charts-a-musical-path.html
 https://nytimes.com/2021/05/28/fashion/mens-style/a-summer-of-the-thirst-trap-short-shorts.html?searchResultPosition=2
 
 **Canadian Lawmaker Is Exposed on Camera for a Second Time**\
-`After appearing naked during a virtual House of Commons session in April, a parliamentarian said that he urinated while on video this week.`\
+`After appearing naked during a virtual House of Commons session in April, a member of Parliament said that he urinated while on video this week.`\
 https://nytimes.com/2021/05/28/world/canada/canada-lawmaker-urinate.html?searchResultPosition=3
 
 **Your Friday Briefing**\
