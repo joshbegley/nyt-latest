@@ -1,9 +1,9 @@
 **A Look at What’s Inside Biden’s $6 Trillion Budget Request**\
 `President Biden’s funding request to Congress lays out his economic ambitions, with proposals for significant new spending in areas like infrastructure, education and the environment.`\
-https://nytimes.com/2021/05/28/us/politics/a-look-at-whats-inside-bidens-6-trillion-budget-request.html?searchResultPosition=1
+https://nytimes.com/2021/05/28/us/politics/trillion-budget-plan-joe-biden.html?searchResultPosition=1
 
-**Biden’s $6 Trillion Budget Aims For Path to Middle Class, Financed by the Rich**\
-`The president’s budget envisions a redistribution of wealth that will allow more Americans to enjoy a prosperous life, while also investing heavily in climate change, education and infrastructure.`\
+**Biden’s $6 Trillion Budget Aims for Path to Middle Class, Financed by the Rich**\
+`The president’s budget envisions a redistribution of wealth that will allow more Americans to enjoy prosperity, and it invests in climate change, education and infrastructure.`\
 https://nytimes.com/2021/05/28/business/bidens-6-trillion-budget-aims-for-path-to-middle-class-financed-by-the-rich.html?searchResultPosition=2
 
 **A Brilliant Burger and Other Inspired Recipes**\
