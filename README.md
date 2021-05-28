@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2021/05/28/travel/europe-travel-tips.html?search
 https://nytimes.com/2021/05/28/us/dalee-sullivan-gpa-alpine.html?searchResultPosition=3
 
 **National Endowment for the Arts Funding Would Rise Under Biden Plan**\
-`The president’ calls for a 20 percent increase in the national arts budget, a departure from the Trump administration’s efforts to eliminate the agency.`\
+`The president called for a 20 percent increase in the national arts budget, a departure from the Trump administration’s efforts to eliminate the agency.`\
 https://nytimes.com/2021/05/28/arts/national-endowment-for-the-arts-funding.html?searchResultPosition=4
 
 **Coronavirus Briefing: What Happened Today**\
