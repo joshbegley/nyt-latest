@@ -1,36 +1,36 @@
+**Faye Schulman Dies; Fought Nazis With a Rifle and a Camera**\
+`She joined the Resistance brigade after her family was executed and used her photographs as proof of German barbarity and Jews’ determination to fight back.`\
+https://nytimes.com/2021/05/28/world/europe/faye-schulman-dead.html?searchResultPosition=1
+
+**Lobbyist Closely Tied to N.Y. Assembly Speaker Draws Federal Scrutiny**\
+`The public corruption unit of the U.S. attorney’s office in Manhattan is examining Patrick Jenkins, a former aide to Carl Heastie and a top state lobbyist.`\
+https://nytimes.com/2021/05/28/nyregion/carl-heastie-investigation-patrick-jenkins.html?searchResultPosition=2
+
+**Senate Republicans Filibuster Jan. 6 Inquiry Bill, Blocking an Investigation**\
+`The vote killed the best chance for an independent accounting of the deadly Capitol attack, which Republicans feared would damage them politically.`\
+https://nytimes.com/2021/05/28/us/politics/capitol-riot-commission-republicans.html?searchResultPosition=3
+
+**The Daily: Where’s Michael?**\
+`We explain why we’ve had so many guest hosts lately, and introduce you to one of them.`\
+https://nytimes.com/2021/05/28/podcasts/the-daily-newsletter-michael-barbaro-astead-herndon.html?searchResultPosition=4
+
 **Iran Clears Way for Hard-line Judiciary Chief to Become President**\
 `Potential rivals to Ebrahim Raisi, Ayatollah Khamenei’s favored choice, were barred from the June 18 election, and the remaining candidates do not present a serious challenge.`\
-https://nytimes.com/2021/05/28/world/middleeast/iran-election-khamenei-raisi.html?searchResultPosition=1
+https://nytimes.com/2021/05/28/world/middleeast/iran-election-khamenei-raisi.html?searchResultPosition=5
 
 **Fears for Bangladesh Garment Workers as Safety Agreement Nears an End**\
 `The Rana Plaza collapse led to the agreement, which improved factory safety for workers. Despite a last-minute extension, its legacy may be in jeopardy.`\
-https://nytimes.com/2021/05/28/business/bangladesh-worker-safety-accord.html?searchResultPosition=2
+https://nytimes.com/2021/05/28/business/bangladesh-worker-safety-accord.html?searchResultPosition=6
 
 **Broadway Creative Teams Head to … Indiana?**\
 `Discovering Broadway, a nonprofit founded in 2019, brings actors and writers to Central Indiana for weeklong retreats to workshop their new musicals.`\
-https://nytimes.com/2021/05/28/theater/ever-after-indiana-broadway.html?searchResultPosition=4
+https://nytimes.com/2021/05/28/theater/ever-after-indiana-broadway.html?searchResultPosition=8
 
 **What to Do This Weekend**\
 `Summer’s here.`\
-https://nytimes.com/2021/05/28/at-home/newsletter.html?searchResultPosition=5
+https://nytimes.com/2021/05/28/at-home/newsletter.html?searchResultPosition=9
 
 **Equity Firm Founder Sentenced to Two Months in College Admissions Scandal**\
 `Lawyers for Lori Loughlin and Mossimo Giannulli said Mark Hauser, a private equity executive, recommended the services of a central figure in the admissions scandal.`\
-https://nytimes.com/2021/05/28/us/college-admissions-scandal-mark-hauser.html?searchResultPosition=6
-
-**Times Journalist Weighs Legal Action Against University of North Carolina**\
-`Nikole Hannah-Jones, a creator of the 1619 Project who is scheduled to start as a professor at the university this summer, has retained lawyers to represent her in a dispute over tenure.`\
-https://nytimes.com/2021/05/28/business/media/Nikole-Hannah-Jones-UNC-tenure.html?searchResultPosition=7
-
-**Real Peace Depends on Recognizing Israel’s Right to Exist**\
-`Accepting Israel's right to exist is a prerequisite for a lasting peace.`\
-https://nytimes.com/2021/05/28/opinion/israel-palestine-peace-process.html?searchResultPosition=8
-
-**San Jose Holds Vigil for Victims of Rail Yard Shooting**\
-`Hundreds gathered outside City Hall in San Jose, Calif., on Thursday evening to memorialize the nine transit authority employees who were killed by a co-worker at the rail yard the day before.`\
-https://nytimes.com/video/us/100000007788338/san-jose-shooting-vigil.html?searchResultPosition=9
-
-**People Want an Alzheimer’s Drug. This Isn’t the One.**\
-`An F.D.A. sign-off for aducanumab would make finding a good treatment harder.`\
-https://nytimes.com/2021/05/28/opinion/alzheimer-treatment-FDA-aducanumab.html?searchResultPosition=10
+https://nytimes.com/2021/05/28/us/college-admissions-scandal-mark-hauser.html?searchResultPosition=10
 
