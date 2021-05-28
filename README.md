@@ -1,5 +1,5 @@
 **Farmworker Convicted of Fatally Stabbing Iowa College Student**\
-`Cristhian Bahena Rivera was found guilty of first-degree murder in the killing Mollie Tibbetts in 2018. Donald J. Trump had seized on her death to rail against illegal immigration.`\
+`Cristhian Bahena Rivera was found guilty of first-degree murder in the killing of Mollie Tibbetts in 2018. Donald J. Trump had seized on her death to rail against illegal immigration.`\
 https://nytimes.com/2021/05/28/us/mollie-tibbetts-murder-guilty-sentence.html?searchResultPosition=1
 
 **Biden Honors Service Members Ahead of Memorial Day**\
