@@ -23,7 +23,7 @@ https://nytimes.com/2021/05/28/us/migrant-children-legal-rights.html?searchResul
 https://nytimes.com/2021/05/28/business/inflation-consumer-prices.html?searchResultPosition=6
 
 **AMC shares jump again as retail investors swarm.**\
-`Retail traders piling into AMC says aim, in part, to push up the stock and force losses on hedge funds that have bet against it.`\
+`Retail traders piling into AMC aim, in part, to force losses on hedge funds that have bet against it.`\
 https://nytimes.com/2021/05/28/business/amc-stock-today.html?searchResultPosition=7
 
 **‘Friends’ Reunion: The One Where They Get Censored in China**\
