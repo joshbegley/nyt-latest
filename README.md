@@ -1,40 +1,40 @@
-**Germany Recognizes Mass Killings in Colonial Namibia as Genocide**\
-`The German government agreed after years of negotiations with Namibia to recognize the killings of Herero and Nama. It said it would ask for forgiveness and establish a fund of more than 1 billion euros.`\
-https://nytimes.com/2021/05/28/world/europe/germany-namibia-genocide.html?searchResultPosition=1
+**The U.S. heads into another pandemic summer, but this time with optimism.**\
+`Ahead of Memorial Day weekend, one epidemiologist said, “We’re kind of at the beginning of the end” of the fight against the coronavirus.`\
+https://nytimes.com/2021/05/28/us/covid-vaccine-memorial-day.html?searchResultPosition=1
 
-**The Eerie Familiarity of a Melbourne Lockdown**\
-`In Victoria, a return to the drudgery and uncertainty of strict Covid regulations.`\
-https://nytimes.com/2021/05/28/world/australia/melbourne-lockdown-2021.html?searchResultPosition=2
+**On the Tennis Court, Lefties Can Be ‘Annoying’**\
+`Some players say southpaws have an advantage, and many righties must prepare to play them.`\
+https://nytimes.com/2021/05/28/sports/tennis/left-handed-players.html?searchResultPosition=2
 
-**Lesson of the Day: ‘TikTok, the Fastest Way on Earth to Become a Food Star’**\
-`In this lesson, students will learn about Gen Z food celebrities and the appeal of 60-second cooking videos. Then, they will create their own short cooking videos.`\
-https://nytimes.com/2021/05/28/learning/lesson-of-the-day-tiktok-the-fastest-way-on-earth-to-become-a-food-star.html?searchResultPosition=3
+**This Andrey Rublev Is a Master With a Racket**\
+`Andrei Rublev was a renowned 15th-century icon painter, but the tennis player is an artist in his own way.`\
+https://nytimes.com/2021/05/28/sports/tennis/andrey-rublev.html?searchResultPosition=3
 
-**Here’s Where Wind and Solar Power Need to Grow in America**\
-`A broad shift toward renewable energy could transform landscapes and coastlines all over the United States.`\
-https://nytimes.com/interactive/2021/05/28/climate/climate-wind-solar-energy-map.html?searchResultPosition=4
+**Summer Movies 2021: Here’s What’s Coming to the Big (and Small) Screen**\
+`From an urban musical to a demonic possession to a hectic first date, here’s everything you need to know about this season in film.`\
+https://nytimes.com/2021/05/28/movies/summer-movies-2021.html?searchResultPosition=4
 
-**A New Zealand Fugitive Wanted to Turn Himself In. So He Hired a Helicopter.**\
-`James Matthew Bryant spent weeks on the run, doing yoga in the middle of the forest and plotting his next move. Then his face appeared on a TV crime show.`\
-https://nytimes.com/2021/05/28/world/asia/new-zealand-fugitive.html?searchResultPosition=5
+**Mmmm, Tastes Like America**\
+`Sno-balls in sweaty New Orleans. Fudge cake on the Outer Banks. Spicy fruit on a Los Angeles street corner. This is what an American summer tastes like.`\
+https://nytimes.com/2021/05/28/us/best-summer-treats.html?searchResultPosition=5
 
-**A Sexual Abuse Lawsuit Splits the Gucci Family**\
-`One of Guccio Gucci’s great-granddaughters went public with alleged wrongdoing, and now her younger sister is involved too.`\
-https://nytimes.com/2021/05/28/style/child-sexual-abuse-lawsuit-gucci-family.html?searchResultPosition=6
+**A Big Climate Problem With Few Easy Solutions: Planes**\
+`The airline industry might not be able to reduce greenhouse gas emissions for decades because most solutions are not yet viable.`\
+https://nytimes.com/2021/05/28/business/energy-environment/airlines-climate-planes-emissions.html?searchResultPosition=6
 
-**As Yang’s New York Ties Are Questioned, He Cites Anti-Asian Bias**\
-`Mr. Yang, who is seeking to make history as the city’s first Asian American mayor, says anti-Asian sentiment has crept into the campaign.`\
-https://nytimes.com/2021/05/28/nyregion/andrew-yang-cartoon-bias.html?searchResultPosition=7
+**For ‘F9,’ Making Stunts That Stick**\
+`The concept of electromagnets factor heavily into the new film, creating the impression of cars stuck together and leaving stacks of wreckage in a way only the “Fast and the Furious” films know how.`\
+https://nytimes.com/2021/05/28/movies/F9-stunts-Fast-and-the-Furious.html?searchResultPosition=7
 
-**How a Cozy Neighborhood Restaurant Became a Celebrity Hide-Out**\
-`Rihanna has been seen leaving Giorgio Baldi in Los Angeles almost weekly. Fans have noticed.`\
-https://nytimes.com/2021/05/28/style/giorgio-baldi.html?searchResultPosition=8
+**She Galloped Into History, and Then Oblivion**\
+`Fifty years ago, Cheryl White became America’s first licensed Black female jockey when she was just 17 years old. So why doesn’t the world know her name?`\
+https://nytimes.com/2021/05/28/sports/horse-racing/black-woman-jockey-horse-racing.html?searchResultPosition=8
 
-**Phones and Fingers**\
-`Tell us a story, real or made up, inspired by this image and theme.`\
-https://nytimes.com/2021/05/28/learning/phones-and-fingers.html?searchResultPosition=9
+**Europe’s Dilemma: Take In ISIS Families, or Leave Them in Syria?**\
+`Many countries have resisted allowing the return of families of ISIS members. Security experts say that leaving the women and their children in Syria is a greater risk.`\
+https://nytimes.com/2021/05/28/world/europe/isis-women-children-repatriation.html?searchResultPosition=9
 
-**Stephen Colbert Parodies Brian Kemp’s Version of the National Anthem**\
-`“Land of the home and freedom reigns! It’s as American as pie-ball and the mom and bars,” Colbert joked of Kemp’s blunder during a recent Fox News interview.`\
-https://nytimes.com/2021/05/28/arts/television/stephen-colbert-brian-kemp.html?searchResultPosition=10
+**The Market Tectonics of California Real Estate**\
+`Some residents have left the state, but many others have just moved out of big cities in search of more space and lower prices, creating hot spots in the suburbs and the once-sleepy exurbs.`\
+https://nytimes.com/2021/05/28/realestate/california-real-estate.html?searchResultPosition=10
 
