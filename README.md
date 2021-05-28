@@ -4,7 +4,7 @@ https://nytimes.com/2021/05/27/us/james-halsell-nasa-sentenced.html?searchResult
 
 **Taiwan Prays for Rain and Scrambles to Save Water**\
 `Some of the island’s lakes and reservoirs have nearly run dry. And water restrictions have forced many residents to modify how they shower, wash dishes and flush.`\
-https://nytimes.com/2021/05/27/world/asia/taiwan-drought.html?searchResultPosition=2
+https://nytimes.com/2021/05/28/world/asia/taiwan-drought.html?searchResultPosition=2
 
 **Nike Says It Ended Deal With Neymar Amid Investigation of Sexual Abuse**\
 `Nike said that Neymar, the soccer superstar, had refused to cooperate with an investigation into “credible allegations of wrongdoing” made by one of the company’s employees.`\
