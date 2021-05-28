@@ -11,7 +11,7 @@ https://nytimes.com/2021/05/28/us/christopher-stone-dead.html?searchResultPositi
 https://nytimes.com/2021/05/28/health/summer-camps-masks-covid-19.html?searchResultPosition=3
 
 **I Want to Invest in My Wardrobe. Help!**\
-`A readers wonders what they can buy that lasts.`\
+`A reader wonders what they can buy that lasts.`\
 https://nytimes.com/2021/05/28/style/i-want-to-invest-in-my-wardrobe-help.html?searchResultPosition=4
 
 **Reading Dan Frank, Book Editor and ‘Champion of the Unexampled’**\
