@@ -1,40 +1,40 @@
+**Before She Was C.E.O., She Cleaned Toilets. ‘How Wonderful Is That?’**\
+`Beth Ford has spent much of her career working on supply chain issues, which has served her well as the leader of Land O’ Lakes.`\
+https://nytimes.com/2021/05/29/business/beth-ford-land-o-lakes-corner-office.html?searchResultPosition=1
+
+**Wimar Witoelar, Puckish Spokesman for Indonesian President, Dies at 75**\
+`As a college student, he was briefly imprisoned for his activism. He later served President Abdurrahman Wahid and had a thriving career as a media figure.`\
+https://nytimes.com/2021/05/29/world/asia/wimar-witoelar-dead.html?searchResultPosition=2
+
+**At the Indianapolis 500, Scott Dixon Has the Pole Position. And More.**\
+`At 40, Dixon has won six IndyCar Series titles but just one Indianapolis 500, back in 2008. “This is our year,” says the person many consider Dixon’s secret weapon.`\
+https://nytimes.com/2021/05/29/sports/autoracing/scott-dixon-indianapolis-500.html?searchResultPosition=3
+
 **After Erdogan Angers a Loyal Province, His Opponents See an Opportunity**\
 `President Recep Tayyip Erdogan of Turkey set off protests in his home province, the heart of his political base, with plans to build a quarry that would destroy a pristine woodland.`\
-https://nytimes.com/2021/05/29/world/europe/turkey-erdogan-quarry-opposition.html?searchResultPosition=1
+https://nytimes.com/2021/05/29/world/europe/turkey-erdogan-quarry-opposition.html?searchResultPosition=4
 
 **10 Y.A. Books to Add to Your Reading List This Summer**\
 `From high school thrillers to fairy tale retellings, here are 10 Y.A. books you won’t want to miss this season.`\
-https://nytimes.com/2021/05/29/books/summer-ya-book-preview.html?searchResultPosition=2
+https://nytimes.com/2021/05/29/books/summer-ya-book-preview.html?searchResultPosition=5
 
 **How ‘Friends’ Helps People Around the World Learn English**\
 `Language teachers say the show is a near-perfect amalgam of easy-to-understand English and real-life scenarios that feel familiar even to people who live worlds away from the West Village.`\
-https://nytimes.com/2021/05/29/arts/television/friends-reunion-english.html?searchResultPosition=3
+https://nytimes.com/2021/05/29/arts/television/friends-reunion-english.html?searchResultPosition=6
 
 **How to Take a Break**\
 `Developing a “rest ethic” can make work time more productive.`\
-https://nytimes.com/2021/05/29/business/dealbook/quality-work-breaks.html?searchResultPosition=4
+https://nytimes.com/2021/05/29/business/dealbook/quality-work-breaks.html?searchResultPosition=7
 
 **Where Do Ultramarathons Go From Here?**\
 `More than 600,000 people ran an ultramarathon in 2018, a jump of nearly 350 percent in the last decade.`\
-https://nytimes.com/2021/05/29/sports/ultramarathon-danger.html?searchResultPosition=5
+https://nytimes.com/2021/05/29/sports/ultramarathon-danger.html?searchResultPosition=8
 
 **Plague of Mice in Australia Overruns Farms, Shops and Bedrooms**\
 `For half a year, the rodents have been chewing their way around the country’s eastern grain belt, leaving economic and psychological scars.`\
-https://nytimes.com/2021/05/29/world/australia/mouse-plague.html?searchResultPosition=6
+https://nytimes.com/2021/05/29/world/australia/mouse-plague.html?searchResultPosition=9
 
 **They Call It ‘Insane’: Where Myanmar Sends Political Prisoners**\
 `For 134 years, Insein Prison has stood as a monument to brutality. Since the Feb. 1 coup, journalists, elected leaders and pro-democracy protesters have been held in the aging facility.`\
-https://nytimes.com/2021/05/29/world/asia/myanmar-prison-coup.html?searchResultPosition=7
-
-**‘I Knew That I Couldn’t Stay Quiet’**\
-`Millions of Americans took part in street demonstrations after the killing of George Floyd in Minneapolis. A year later, first-time protesters reflect on what happened — and what is next.`\
-https://nytimes.com/2021/05/29/us/george-floyd-protest.html?searchResultPosition=8
-
-**‘What Do I Do Next?’: Orphaned by Covid, Two Teens Find Their Way**\
-`The virus took their mother. Now, as the city reopens, a brother and a sister are rebuilding their lives.`\
-https://nytimes.com/2021/05/29/nyregion/covid-death-mom-teens.html?searchResultPosition=9
-
-**Unleashed but (Mostly) Masked, British Tourists Return to Portugal**\
-`Sorely in need of sun and a change of scene, British travelers returned to the newly “green-listed” country and were met by relief, exasperation — and hardly anyone.`\
-https://nytimes.com/2021/05/29/travel/portugal-britain.html?searchResultPosition=10
+https://nytimes.com/2021/05/29/world/asia/myanmar-prison-coup.html?searchResultPosition=10
 
