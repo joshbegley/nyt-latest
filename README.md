@@ -2,7 +2,7 @@
 `Uncover the grill and dust off the picnic table.`\
 https://nytimes.com/2021/05/29/admin/cookout-season-is-here.html?searchResultPosition=1
 
-**Hong Kong exempts corporate executives from its strict quarantine rules.**\
+**Hong Kong exempts corporate executives from its strict quarantine rules, and other news from around the world.**\
 `Fully vaccinated “senior executives” can ask to skip compulsory hotel stays. It’s not the first time that the city has applied its rules differently to certain segments of society.`\
 https://nytimes.com/2021/05/29/world/hong-kong-covid-executives-quarantine.html?searchResultPosition=2
 
