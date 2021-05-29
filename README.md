@@ -18,12 +18,12 @@ https://nytimes.com/2021/05/29/us/danny-croteau-richard-levigne.html?searchResul
 `The rapper’s sixth No. 1 album is here. Listen to a conversation about his career, and the long exchange between hip-hop and basketball.`\
 https://nytimes.com/2021/05/29/arts/music/popcast-j-cole.html?searchResultPosition=5
 
-**Texas Republicans Prepare to Unveil Major Bill of Voting Limits**\
+**Texas Republicans Finalize Major Bill of Voting Limits**\
 `The bill, which would make already stringent voting rules in Texas even tougher, is likely to pass both chambers of the Legislature. Gov. Greg Abbott is expected to sign it.`\
 https://nytimes.com/2021/05/29/us/politics/texas-voting-bill.html?searchResultPosition=6
 
 **Is the final Christian Pulisic’s big moment?**\
-`The American midfielder helped deliver Chelsea to the Champions League final. But will he play in the game that matters most?`\
+`The American midfielder helped deliver Chelsea to the Champions League final. But how much will he play in the game that matters most?`\
 https://nytimes.com/2021/05/29/sports/soccer/christian-pulisic-champions-league.html?searchResultPosition=7
 
 **Secret Chats Show How Cybergang Became a Ransomware Powerhouse**\
