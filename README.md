@@ -20,7 +20,7 @@ https://nytimes.com/2021/05/28/us/coronavirus-today-summer.html?searchResultPosi
 
 **Biden Banks on $3.6 Trillion Tax Hike on the Rich and Corporations**\
 `The White House is proposing substantial increases in personal income tax rates for those earning about a half-million dollars and higher tax rates on large corporations.`\
-https://nytimes.com/2021/05/28/us/politics/biden-tax-hike.html?searchResultPosition=6
+https://nytimes.com/2021/05/28/us/politics/tax-rising-on-rich-corporations.html?searchResultPosition=6
 
 **Carla Fracci, Expressive Doyenne of Italian Ballet, Dies at 84**\
 `A major figure in 20th-century dance, she was acclaimed for her directness and emotional naturalness onstage, especially in the title role of “Giselle.”`\
