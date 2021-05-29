@@ -1,6 +1,6 @@
 **A Week of Big Blows for Big Oil**\
 `Two victories by environmental activists added to the uncertainty surrounding the industry and Canada’s oil sands.`\
-https://nytimes.com/2021/05/29/world/canada/a-week-of-big-blows-for-big-oil.html?searchResultPosition=1
+https://nytimes.com/2021/05/29/world/canada/letter-oil.html?searchResultPosition=1
 
 **Champions League Final: What You Need to Know**\
 `Manchester City is chasing its first European club soccer title, and Chelsea its trying to win its second. Here’s how to watch.`\
