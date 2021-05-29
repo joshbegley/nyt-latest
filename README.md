@@ -6,9 +6,9 @@ https://nytimes.com/2021/05/28/world/africa/zimbabwe-jeffrey-moyo-arrest.html?se
 `A centennial commission that raised $30 million for a history exhibit center said the government should be responsible for repaying survivors and their descendants.`\
 https://nytimes.com/2021/05/28/us/tulsa-race-massacre-commission.html?searchResultPosition=2
 
-**Guilty Verdict in the Killing of Mollie Tibbietts**\
+**Guilty Verdict in the Killing of Mollie Tibbetts**\
 `A jury found Cristhian Bahena Rivera guilty of first-degree murder in the death of Ms. Tibbetts, a University of Iowa student who vanished while jogging in 2018.`\
-https://nytimes.com/video/us/100000007788989/mollie-tibbittes-guilty-verdict.html?searchResultPosition=3
+https://nytimes.com/video/embedded/us/100000007788989/mollie-tibbittes-guilty-verdict.html?searchResultPosition=3
 
 **Democrat or Republican, You Probably Love the Post Office**\
 `A new bipartisan bill could help fix the U.S. Postal Service.`\
