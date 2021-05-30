@@ -23,7 +23,7 @@ https://nytimes.com/2021/05/30/us/capitol-riot-boyland-qanon.html?searchResultPo
 https://nytimes.com/2021/05/30/arts/cruella-de-vil-101-dalmatians.html?searchResultPosition=6
 
 **Naomi Osaka Skips News Conference, Drawing Tennis Officials’ Ire**\
-`The heads of the Grand Slam events warned Osaka of escalating penalties, including default, if she continued to not “do press,” as she promised last week.`\
+`The heads of the Grand Slam events warned Osaka of escalating penalties, including default, if she continued not to do “any press,” as she promised last week.`\
 https://nytimes.com/2021/05/30/sports/tennis/french-open-naomi-osaka-media.html?searchResultPosition=7
 
 **A Vaccine Side Effect Leaves Women Wondering: Why Isn’t the Pill Safer?**\
