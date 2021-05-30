@@ -3,7 +3,7 @@
 https://nytimes.com/2021/05/30/books/lois-ehlert-dead.html?searchResultPosition=1
 
 **Bouncy Castles and Grenades: Gangs Erode Maduro’s Grip on Caracas**\
-`As Venezuela collapses, armed gangs are taking over parts of the capital, exposing the vulnerability of President Maduro’s control even in his seat of power.`\
+`As Venezuela collapses, armed gangs are taking over parts of the capital, exposing President Maduro’s vulnerability even in his seat of power.`\
 https://nytimes.com/2021/05/30/world/americas/venezuela-gang-maduro.html?searchResultPosition=2
 
 **In a World Let Loose, Video Game Makers Are ‘Doubling Down’**\
