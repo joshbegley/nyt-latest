@@ -1,5 +1,5 @@
 **Naomi Osaka Fined $15,000 for Skipping News Conference**\
-`The world No. 2, Osaka won her opening match, but tennis officials warned her that she risks escalating penalties, including default, if she fails to fulfill her media obligations.`\
+`Osaka won her opening match at the French Open, but was warned that she risked escalating penalties, including default, if she failed to fulfill her media obligations.`\
 https://nytimes.com/2021/05/30/sports/tennis/french-open-naomi-osaka-media.html?searchResultPosition=1
 
 **A Vaccine Side Effect Leaves Women Wondering: Why Isn’t the Pill Safer?**\
