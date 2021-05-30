@@ -10,7 +10,7 @@ https://nytimes.com/2021/05/30/nyregion/memorial-day-nyc.html?searchResultPositi
 `The teen, Khaled al-Qanou, was one of 67 children killed in Gaza during the latest war between Israel and militants. It is against international law to recruit children to fight.`\
 https://nytimes.com/2021/05/30/world/middleeast/gaza.html?searchResultPosition=3
 
-**What Has Happened to Dominic Thiem? He Has No Idea**\
+**What Has Happened to Dominic Thiem? He Has No Idea.**\
 `The 2020 U.S. Open champion and the No. 4 seed at the French Open goes out in the first round as his post-Grand Slam breakthrough malaise continues.`\
 https://nytimes.com/2021/05/30/sports/french-open-dominic-thiem.html?searchResultPosition=4
 
