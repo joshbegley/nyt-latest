@@ -1,5 +1,5 @@
 **Justice for Tulsa Race Massacre Survivors**\
-`Readers discuss past litigation and the need for reparations. Also: Fear of needles;  movies about democracy.`\
+`Readers discuss past litigation and the need for reparations. Also: Fear of needles; movies about democracy.`\
 https://nytimes.com/2021/05/30/opinion/letters/tulsa-race-massacre.html?searchResultPosition=1
 
 **The Week in Business: Biden’s Big Budget**\
