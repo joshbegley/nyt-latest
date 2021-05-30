@@ -26,11 +26,11 @@ https://nytimes.com/2021/05/30/briefing/israel-netanyahu-coalition-coronavirus-v
 `Suspicions have focused on the Wuhan Institute of Virology, which long gathered bat viruses and whose laboratories conducted experiments on them.`\
 https://nytimes.com/2021/05/30/science/china-covid-origin-wuhan.html?searchResultPosition=7
 
-**N’Golo Kanté Against the System**\
+**N’Golo Kanté, Chelsea and Beating the System**\
 `Every coach has a plan. But players still decide games, and only Chelsea has Kanté. In the Champions League final, that made all the difference.`\
 https://nytimes.com/2021/05/30/sports/soccer/ngolo-kante-chelsea.html?searchResultPosition=8
 
-**Dispute Over a Coal Mine Pits Poland Against Its Neighbors**\
+**Dispute Over a Coal Industry Pits Poland Against Its Neighbors**\
 `The Czech Republic has sued Poland over a lignite coal mine it says violates European environmental laws. Poles say it’s crucial for jobs and the local economy.`\
 https://nytimes.com/2021/05/30/world/europe/poland-czech-coal-mine-environment.html?searchResultPosition=9
 
