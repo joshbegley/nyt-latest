@@ -1,6 +1,6 @@
 **Mark Eaton, Shot-Blocking Star for the Utah Jazz, Dies at 64**\
 `At 7-foot-4, Eaton was a two-time N.B.A. defensive player of the year, and his career shot-blocking average was the best in league history.`\
-https://nytimes.com/2021/05/30/obituaries/mark-eaton-utah-jazz-dies.html?searchResultPosition=1
+https://nytimes.com/2021/05/30/obituaries/mark-eaton-utah-jazz-dead.html?searchResultPosition=1
 
 **‘A Cowardly Act,’ 2 Dead and At Least 20 Injured in Florida Shooting**\
 `Three people pulled up in a white S.U.V. outside a banquet hall in Hialeah, where a concert was being held early Sunday, and fired indiscriminately into the crowd before fleeing the scene, the Miami-Dade police said.`\
