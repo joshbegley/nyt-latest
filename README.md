@@ -6,8 +6,8 @@ https://nytimes.com/2021/05/29/at-home/reassess-your-spending-and-saving.html?se
 `Marcell Ozuna faces two charges, including strangulation. His team says it will cooperate with an M.L.B. investigation.`\
 https://nytimes.com/2021/05/29/sports/baseball/marcell-ozuna-arrested.html?searchResultPosition=2
 
-**Plane With 7 Aboard Crashes Into Tennessee Lake**\
-`Officials said that one person had been confirmed dead and that operations had shifted from rescue to recovery for the remaining victims after a plane crashed into Percy Priest Lake near Smyrna, Tenn.`\
+**7 Presumed Dead After Plane Crashes Into Tennessee Lake, Officials Say**\
+`The authorities said operations had shifted from rescue to recovery for those aboard a plane that crashed into Percy Priest Lake near Smyrna, Tenn., on Saturday.`\
 https://nytimes.com/2021/05/29/us/plane-crash-tennessee.html?searchResultPosition=3
 
 **Transport Yourself With a Literary Escape This Summer**\
