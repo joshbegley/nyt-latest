@@ -1,4 +1,4 @@
-**In Minnesota, a Resort Area Still Feels Like it Has the Lockdown Blues.**\
+**Caught Between Two Countries, a Minnesota Resort Area Still Feels Lockdown Blues.**\
 `Covid may be waning. But businesses at the Northwest Angle, a tourist-dependent slice of Minnesota accessible by land only from Canada, still feel the pain.`\
 https://nytimes.com/2021/05/30/us/minnesota-covid-tourism.html?searchResultPosition=1
 
