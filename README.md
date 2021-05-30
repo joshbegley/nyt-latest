@@ -8,7 +8,7 @@ https://nytimes.com/2021/05/30/world/france-vaccine-submarine-base.html?searchRe
 
 **2 Dead and 20 Hurt in Shooting at a Florida Banquet Hall**\
 `The police were searching for three people who fired into a crowd outside a Hialeah, Fla., banquet hall on Sunday in what was described as a targeted shooting.`\
-https://nytimes.com/2021/05/30/us/miami-shooting-el-mula-banquet-hall.html?searchResultPosition=3
+https://nytimes.com/2021/05/30/us/miami-dade-shooting.html?searchResultPosition=3
 
 **A 6-Year-Old Was Chained and Hungry in a Syrian Camp. Then She Died.**\
 `Nahla al-Othman lived in a tent camp for displaced Syrians where her father often chained her to stop her from wandering. She was malnourished and choked to death while eating too quickly.`\
