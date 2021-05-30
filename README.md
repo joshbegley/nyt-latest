@@ -22,8 +22,8 @@ https://nytimes.com/2021/05/30/us/capitol-riot-boyland-qanon.html?searchResultPo
 `From a calm socialite, she morphed into an unhinged puppy kidnapper and then a vindictive glamourpuss. Why don’t we hate her?`\
 https://nytimes.com/2021/05/30/arts/cruella-de-vil-101-dalmatians.html?searchResultPosition=6
 
-**Naomi Osaka Fined $15,000 for Skipping News Conference**\
-`Osaka won her opening match at the French Open, but was warned that she risked escalating penalties, including default, if she failed to fulfill her media obligations.`\
+**Naomi Osaka Skips News Conference, Drawing Tennis Officials’ Ire**\
+`The heads of the Grand Slam events warned Osaka of escalating penalties, including default, if she continued to not “do press,” as she promised last week.`\
 https://nytimes.com/2021/05/30/sports/tennis/french-open-naomi-osaka-media.html?searchResultPosition=7
 
 **A Vaccine Side Effect Leaves Women Wondering: Why Isn’t the Pill Safer?**\
