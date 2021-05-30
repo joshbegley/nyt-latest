@@ -1,40 +1,40 @@
-**B.J. Thomas, ‘Raindrops Keep Fallin’ on My Head’ Singer, Dies at 78**\
-`Mr. Thomas, who won five Grammys, helped introduce a smooth, down-home sensibility to the AM radio airwaves in the 1960s and ’70s.`\
-https://nytimes.com/2021/05/30/obituaries/bj-thomas-dead.html?searchResultPosition=1
+**Send in the Bugs. The Michelangelos Need Cleaning.**\
+`Last fall, with the Medici Chapel in Florence operating on reduced hours because of Covid-19, scientists and restorers completed a secret experiment: They unleashed grime-eating bacteria on the artist’s masterpiece marbles.`\
+https://nytimes.com/2021/05/30/arts/bacteria-cleaning-michelangelo-medici-restoration.html?searchResultPosition=1
 
-**‘She and Her Roommate Had Bought a Sofa From a Woman in Queens’**\
-`Unexpected help with a move, a trip to Radio Row and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/05/30/nyregion/metropolitan-diary.html?searchResultPosition=2
+**‘On That Edge of Fear’: One Woman’s Struggle With Sickle Cell Pain**\
+`Cures for a disease that mostly afflicts Black people seem near, but may come too late for Lisa Craig, who lives with an agony like knives stabbing her bones.`\
+https://nytimes.com/2021/05/30/us/sickle-cell-black-women.html?searchResultPosition=2
 
-**Ready to Recruit in Person, College Coaches Move Toward Normal**\
-`In March 2020, the N.C.A.A. barred face-to-face meetings between coaches and prospects. The restrictions end on June 1, and the recruiting landscape looks much different than it did before the pandemic.`\
-https://nytimes.com/2021/05/30/sports/ncaabasketball/ncaa-college-sports-recruiting.html?searchResultPosition=3
+**‘Good for the Soul’: Giant Murals Turn São Paulo Into Open Air Gallery**\
+`Officials in São Paulo, Brazil, once hounded graffiti artists and muralists, treating them as vandals. Now the city champions, and even funds, their art, and it’s everywhere and supersized.`\
+https://nytimes.com/2021/05/30/world/americas/brazil-sao-paulo-murals.html?searchResultPosition=3
 
-**Plan Your Summer**\
-`In-person events are returning. You can attend a rodeo, watch the Perseid meteor shower or immerse yourself in the art of Vincent van Gogh. Here are suggestions for three months of fun.`\
-https://nytimes.com/2021/05/29/at-home/things-to-do-this-summer.html?searchResultPosition=4
+**He Is Senegalese and French, With Nothing to Reconcile**\
+`David Diop, an International Booker Prize finalist for his novel “At Night All Blood Is Black,” is among the writers whose work is helping France face its history with Africa.`\
+https://nytimes.com/2021/05/30/books/david-diop-at-night-all-blood-is-black.html?searchResultPosition=4
 
-**Make Memories With Paper**\
-`Celebrate Asian Pacific American Heritage Month with these activities inspired by traditional games and crafts.`\
-https://nytimes.com/2021/05/29/at-home/make-memories-with-paper.html?searchResultPosition=5
+**The Big Three Vie at the French Open, Each With His Own Motivation**\
+`Rafael Nadal, Novak Djokovic and Roger Federer are all playing for history, and are almost guaranteed to meet on the way to the men’s final at Roland Garros.`\
+https://nytimes.com/2021/05/30/sports/tennis/french-open-djokovic-federer-nadal.html?searchResultPosition=5
 
-**Quotation of the Day: With No Panel, Riot Questions Sure to Linger**\
-`Quotation of the Day for Sunday, May 30, 2021.`\
-https://nytimes.com/2021/05/29/todayspaper/quotation-of-the-day-with-no-panel-riot-questions-sure-to-linger.html?searchResultPosition=6
+**Nepal’s Covid Crisis Worsens as Workers Pay the Price**\
+`The Himalayan country is considering declaring a health emergency to help contain a second wave that experts say migrant laborers brought back from India.`\
+https://nytimes.com/2021/05/30/world/asia/nepal-covid19-migrants.html?searchResultPosition=6
 
-**Enjoy 8 Classic Summer Drinks, With a Twist**\
-`You can’t go wrong with a gin and tonic or a caipirinha. But many summer cocktails could stand a spark of whimsy without compromising their honest appeal.`\
-https://nytimes.com/2021/05/29/at-home/summer-drink-recipes.html?searchResultPosition=7
+**Prepare to Pay More for Uber and Lyft Rides**\
+`The companies say they are charging extra because they don’t have enough drivers to match rebounding customer demand.`\
+https://nytimes.com/2021/05/30/technology/uber-lyft-surge.html?searchResultPosition=7
 
-**Corrections: May 30, 2021**\
-`Corrections that appeared in print on Sunday, May 30, 2021.`\
-https://nytimes.com/2021/05/29/pageoneplus/corrections-may-30-2021.html?searchResultPosition=8
+**‘It’s Going to Be a Big Summer for Hard Seltzer’**\
+`Sales exploded to $4 billion last year, from about $500 million in 2018. Dozens of brands will compete to be the boozy, bubbly drink of the season.`\
+https://nytimes.com/2021/05/30/business/white-claw-hard-seltzer-sales.html?searchResultPosition=8
 
-**Reassess Your Spending and Saving**\
-`Whether your bank account grew or shrank during the long months of lockdown, now is the time to take stock of your financial situation and decide your next steps.`\
-https://nytimes.com/2021/05/29/at-home/reassess-your-spending-and-saving.html?searchResultPosition=9
+**Reconstructing the Neighborhood Destroyed in the Tulsa Race Massacre**\
+`Using maps, newspaper clippings, testimonies and more, a team of graphics editors created an interactive 3-D portrait of the community that was burned down in 1921.`\
+https://nytimes.com/2021/05/30/insider/greenwood-tulsa-massacre-3d.html?searchResultPosition=9
 
-**Atlanta Outfielder Is Arrested on Domestic Violence Charges**\
-`Marcell Ozuna faces two charges, including strangulation. His team says it will cooperate with an M.L.B. investigation.`\
-https://nytimes.com/2021/05/29/sports/baseball/marcell-ozuna-arrested.html?searchResultPosition=10
+**Kendama, Sungka, Sipa: Asian Pastimes That Shaped Times Games Creators**\
+`An Asian-influenced activity project for the At Home section reminded staff members of how games connect them with their heritage.`\
+https://nytimes.com/2021/05/30/insider/asian-games-culture.html?searchResultPosition=10
 
