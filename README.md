@@ -36,5 +36,5 @@ https://nytimes.com/2021/05/31/science/dna-law-maryland-genetic-genealogy.html?s
 
 **Looking Beyond the Ayatollah to the Treasures of Iran**\
 `The organizers of a major London exhibition wanted to put politics aside and showcase the country’s rich 5,000-year-old culture. But politics kept getting in the way.`\
-https://nytimes.com/2021/05/31/arts/design/epic-iran-victoria-and-albert-museum.html?searchResultPosition=10
+https://nytimes.com/2021/05/31/arts/design/iran-ayatollah.html?searchResultPosition=10
 
