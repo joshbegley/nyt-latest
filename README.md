@@ -35,6 +35,6 @@ https://nytimes.com/2021/05/30/sports/basketball/nets-boston-celtics-kyrie-irvin
 https://nytimes.com/2021/05/30/sports/baseball/yankees-tigers.html?searchResultPosition=9
 
 **The Copa América soccer tournament won’t be played in Argentina, where the virus is raging.**\
-`Argentines and their government officials had been torn over the wisdom of hosting the championship.`\
+`By Jennifer Jett`\
 https://nytimes.com/2021/05/30/sports/copa-america-argentina-covid.html?searchResultPosition=10
 
