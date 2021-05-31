@@ -1,6 +1,6 @@
 **Can I Ask Co-Workers if They’ve Had the Covid Vaccine?**\
 `The magazine’s Ethicist columnist on why asking about vaccine status isn’t a question of etiquette but of public health.`\
-https://nytimes.com/2021/05/31/magazine/can-i-ask-co-workers-if-theyve-had-the-covid-vaccine.html?searchResultPosition=1
+https://nytimes.com/2021/05/31/magazine/co-workers-vaccine-yes-or-no.html?searchResultPosition=1
 
 **Ancient Rome Will Never Get Old. Take It From Mary Beard.**\
 `“What the Romans are teaching is always at that meta level of what it might be like to take a view different from your own.”`\
