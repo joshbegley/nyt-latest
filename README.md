@@ -14,8 +14,8 @@ https://nytimes.com/2021/05/31/us/seminary-built-on-slavery-and-jim-crow-labor-h
 `Documents obtained by The New York Times show far-reaching efforts by President Biden to remake the immigration system and undo much of his predecessor’s legacy.`\
 https://nytimes.com/2021/05/31/us/politics/biden-immigration.html?searchResultPosition=4
 
-**Key Question in N.Y.C. Mayor’s Race: Who Gets the Latino Vote?**\
-`The Hispanic vote, which may account for a fifth of voter turnout, is considered to be up for grabs.`\
+**Key Question in Mayoral Race: Who Will Get Latino New Yorkers’ Votes?**\
+`Hispanic voters, who may account for a fifth of  turnout, are considered to be up for grabs.`\
 https://nytimes.com/2021/05/31/nyregion/latinos-nyc-mayor-race.html?searchResultPosition=5
 
 **Garcia Rises, and Yang Changes His Tune: 5 Takeaways From Mayor’s Race**\
