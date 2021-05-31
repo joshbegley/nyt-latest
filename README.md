@@ -22,7 +22,7 @@ https://nytimes.com/2021/05/31/nyregion/latinos-nyc-mayor-race.html?searchResult
 `A new survey put Kathryn Garcia in the lead, shaking up the mayoral race with just weeks to go before Primary Day.`\
 https://nytimes.com/2021/05/31/nyregion/new-york-mayor-takeaways.html?searchResultPosition=6
 
-**​North Korea Accuses Washington of ‘Shameful Double-Dealing’**\
+**​North Korea Accuses U.S. of ‘Shameful Double-Dealing’ on Missile Policy**\
 `In its first reaction to President Biden’s summit with President Moon Jae-in of South Korea, North Korean state media warned of an arms race.`\
 https://nytimes.com/2021/05/31/world/asia/north-korea-missile-summit.html?searchResultPosition=7
 
