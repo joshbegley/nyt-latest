@@ -19,7 +19,7 @@ https://nytimes.com/2021/05/31/briefing/china-family-india-reopening-israel.html
 https://nytimes.com/2021/05/31/world/peru-coronavirus-death-revised.html?searchResultPosition=5
 
 **How the ‘Wandering Meatloaf’ Got Its Rock-Hard Teeth**\
-`The dentition of the gumboot chiton, a lumbering mollusk, contains a super-hard mineral never before seen in a living animal.`\
+`The dentition of the gumboot chiton, a lumbering mollusk, contains a rare mineral never before seen in a living animal.`\
 https://nytimes.com/2021/05/31/science/mollusk-wandering-meatloaf-santabarbaraite.html?searchResultPosition=6
 
 **Lines Never Felt So Good: Crowds Herald New York’s Reopening**\
