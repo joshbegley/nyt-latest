@@ -4,7 +4,7 @@ https://nytimes.com/2021/05/31/us/coronavirus-deaths-vaccine.html?searchResultPo
 
 **More Than a Third of Heat Deaths Are Tied to Climate Change, Study Says**\
 `Sweeping new research found that heat-related deaths in warm seasons were boosted by climate change by an average of 37 percent.`\
-https://nytimes.com/2021/05/31/climate/climate-change-heat-mortality.html?searchResultPosition=2
+https://nytimes.com/2021/05/31/climate/heat-deaths-climate-change.html?searchResultPosition=2
 
 **Can I Ask Co-Workers if They’ve Had the Covid Vaccine?**\
 `The magazine’s Ethicist columnist on why asking about vaccine status isn’t a question of etiquette but of public health.`\
