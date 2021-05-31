@@ -6,7 +6,7 @@ https://nytimes.com/2021/05/30/business/media/atlas-obscura-travel-media.html?se
 `Hughes, tied for the third most wins in league history, handed control to Noelle Quinn, who won a title with Seattle as a player.`\
 https://nytimes.com/2021/05/30/sports/basketball/seattle-storm-coach-dan-hughes-retires.html?searchResultPosition=2
 
-**Chipping Away at Democracy**\
+**Is America’s Democracy Slipping Away?**\
 ` Republicans are attempting to maintain power by redefining democracy backward.`\
 https://nytimes.com/2021/05/30/opinion/republicans-congress-democracy.html?searchResultPosition=3
 
