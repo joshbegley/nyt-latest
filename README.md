@@ -7,7 +7,7 @@ https://nytimes.com/2021/05/31/arts/memorial-day-new-york-reopening.html?searchR
 https://nytimes.com/video/world/middleeast/100000007790247/israel-bennett-netanyahu-coalition-government.html?searchResultPosition=2
 
 **Naomi Osaka Quits the French Open**\
-`The four-time Grand Slam tournament winner took a stand about mandatory appearances at news conferences. She wrote on Instagram that she had suffered from bouts of depression since 2018.`\
+`The four-time Grand Slam winner was fined after refusing to appear at a news conference. She wrote on Instagram that she had suffered from bouts of depression since 2018.`\
 https://nytimes.com/2021/05/31/sports/tennis/naomi-osaka-quits-the-french-open.html?searchResultPosition=3
 
 **Delhi Reopens a Crack Amid Gloomy Economic Forecast for India**\
