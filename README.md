@@ -15,7 +15,7 @@ https://nytimes.com/2021/05/31/theater/chekhovos-an-experimental-game-review.htm
 https://nytimes.com/2021/05/31/briefing/china-family-india-reopening-israel.html?searchResultPosition=4
 
 **Peru says its true Covid death toll is almost triple its official count.**\
-`Peru has struggled to contain the coronavirus since the pandemic began, and its official death toll before the revised estimate was already the ninth-highest per capita in the world.`\
+`By Andrés R. Martínez`\
 https://nytimes.com/2021/05/31/world/peru-coronavirus-death-revised.html?searchResultPosition=5
 
 **How the ‘Wandering Meatloaf’ Got Its Rock-Hard Teeth**\
