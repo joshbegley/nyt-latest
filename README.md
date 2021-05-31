@@ -23,7 +23,7 @@ https://nytimes.com/2021/05/31/world/peru-coronavirus-death-revised.html?searchR
 https://nytimes.com/2021/05/31/science/mollusk-wandering-meatloaf-santabarbaraite.html?searchResultPosition=6
 
 **Lines Never Felt So Good: Crowds Herald New York’s Reopening**\
-`Museums broke attendance records, movie theaters sold out and jazz fans packed clubs on a rainy Memorial Day weekend that felt far removed from the prior year’s pandemic traumas.`\
+`Museums broke attendance records, movie theaters sold out and jazz fans packed clubs on a Memorial Day weekend that felt far removed from the prior year’s pandemic traumas.`\
 https://nytimes.com/2021/05/31/arts/memorial-day-new-york-reopening.html?searchResultPosition=7
 
 **Israeli Ultranationalist Aims to Oust Netanyahu**\
