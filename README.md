@@ -32,7 +32,7 @@ https://nytimes.com/video/world/middleeast/100000007790247/israel-bennett-netany
 
 **Naomi Osaka Quits the French Open After News Conference Dispute**\
 `The four-time Grand Slam tournament winner wrote on Instagram that she had suffered from bouts of depression since 2018 and will “take some time” away from the tennis court.`\
-https://nytimes.com/2021/05/31/sports/tennis/naomi-osaka-quits-the-french-open-after-news-conference-dispute.html?searchResultPosition=9
+https://nytimes.com/2021/05/31/sports/tennis/naomi-osaka-quits-french-open-depression.html?searchResultPosition=9
 
 **Delhi Reopens a Crack Amid Gloomy Economic Forecast for India**\
 `The Indian capital lifted restrictions on manufacturing and construction, critical drivers of an economy that has been battered by the pandemic.`\
