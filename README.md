@@ -32,7 +32,7 @@ https://nytimes.com/2021/05/31/us/fbi-drug-scheme-charge.html?searchResultPositi
 
 **Two New Laws Restrict Police Use of DNA Search Method**\
 `Maryland and Montana have passed the nation’s first laws limiting forensic genealogy, the method that found the Golden State Killer.`\
-https://nytimes.com/2021/05/31/science/dna-law-maryland-genetic-genealogy.html?searchResultPosition=9
+https://nytimes.com/2021/05/31/science/dna-police-laws.html?searchResultPosition=9
 
 **Looking Beyond the Ayatollah to the Treasures of Iran**\
 `The organizers of a major London exhibition wanted to put politics aside and showcase the country’s rich 5,000-year-old culture. But politics kept getting in the way.`\
