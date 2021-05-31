@@ -15,26 +15,3 @@ https://nytimes.com/2021/05/31/science/dna-law-maryland-genetic-genealogy.html?s
 https://nytimes.com/2021/05/31/arts/design/epic-iran-victoria-and-albert-museum.html?searchResultPosition=4
 
 **Thinking About Death, and End-of-Life Care**\
-`Summary summary summary`\
-https://nytimes.com/2021/05/31/opinion/letters/death-planning.html?searchResultPosition=5
-
-**$3.6 Million Homes in California**\
-`A 1925 Spanish-style house in Los Angeles, an 1890 Victorian in San Luis Obispo and a brand-new contemporary home in Cardiff-by-the-Sea.`\
-https://nytimes.com/2021/05/31/realestate/3-million-homes-in-california.html?searchResultPosition=6
-
-**What You Get for $3.6 Million in California**\
-`A 1925 Spanish-style house in Los Angeles, an 1890 Victorian in San Luis Obispo and a brand-new home in Encinitas.`\
-https://nytimes.com/slideshow/2021/05/31/realestate/what-you-get-for-3-6-million-in-california.html?searchResultPosition=7
-
-**The New Detectorists**\
-`As an old outdoor hobby draws new followers, metal detectors are sweeping the country.`\
-https://nytimes.com/2021/05/31/style/metal-detectorists-ring-finders.html?searchResultPosition=8
-
-**Lance Loud Was an Early Reality Star. He Was Also a Gay Punk Pioneer.**\
-`Loud was part of “An American Family” in 1973, but his wild band, Mumps, never signed a record deal. Now their songs are being released on the 20th anniversary of his death.`\
-https://nytimes.com/2021/05/31/arts/music/lance-loud-mumps.html?searchResultPosition=9
-
-**O.E.C.D. Raises Global Growth Forecast Sharply, Citing Vaccines**\
-`The world economy is expected to expand by 5.8 percent this year, but success depends on beating down variants of the virus, the group said.`\
-https://nytimes.com/2021/05/31/business/oecd-global-economy.html?searchResultPosition=10
-
