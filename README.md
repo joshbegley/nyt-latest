@@ -16,7 +16,7 @@ https://nytimes.com/2021/05/31/arts/music/olivia-rodrigo-sour-billboard-chart.ht
 
 **For China’s Single Mothers, a Road to Recognition Paved With False Starts**\
 `Unmarried mothers are often denied government benefits. A debate over the policy is being propelled by a declining birthrate and a new generation of independent Chinese women.`\
-https://nytimes.com/2021/05/31/world/asia/china-single-mothers.html?searchResultPosition=5
+https://nytimes.com/2021/05/31/world/asia/china-mothers-children-birth.html?searchResultPosition=5
 
 **Chris Paul Won’t Be Kept Off the Court**\
 `His coach had been inclined to sideline him as he deals with a shoulder injury. But he talked his way into the lineup and helped Phoenix tie its series with the Lakers.`\
