@@ -36,5 +36,5 @@ https://nytimes.com/2021/05/31/sports/tennis/naomi-osaka-quits-french-open-depre
 
 **Delhi Reopens a Crack Amid Gloomy Economic Forecast for India**\
 `The Indian capital lifted restrictions on manufacturing and construction, critical drivers of an economy that has been battered by the pandemic.`\
-https://nytimes.com/2021/05/31/world/asia/india-delhi-lockdown-covid19.html?searchResultPosition=10
+https://nytimes.com/2021/05/31/world/asia/india-covid.html?searchResultPosition=10
 
