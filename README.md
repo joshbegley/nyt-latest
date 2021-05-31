@@ -1,5 +1,5 @@
 **Kate Winslet Has No Filter**\
-`The star of ‘Mare of Easttown’ on researching grief, mastering a Philly accent and how she got back on the sides of buses — no airbrushing allowed.`\
+`The star of ‘Mare of Easttown’ is back on the sides of buses. Without airbrushing.`\
 https://nytimes.com/2021/05/31/style/mare-of-easttown-kate-winslet.html?searchResultPosition=1
 
 **‘chekhovOS /an experimental game/’ Review: Life on a Merry-Go-Round**\
