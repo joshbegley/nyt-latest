@@ -10,13 +10,13 @@ https://nytimes.com/2021/05/31/nyregion/shaun-donovan-nyc-mayor.html?searchResul
 `By Will Wright`\
 https://nytimes.com/2021/05/31/us/seminary-built-on-slavery-and-jim-crow-labor-has-begun-paying-reparations.html?searchResultPosition=3
 
-**Biden Aims to Rebuild and Expand Legal Immigration**\
-`Documents obtained by The New York Times show far-reaching efforts by President Biden to remake the immigration system and undo much of his predecessor’s legacy.`\
-https://nytimes.com/2021/05/31/us/politics/biden-immigration.html?searchResultPosition=4
-
 **Key Question in Mayoral Race: Who Will Get Latino New Yorkers’ Votes?**\
 `Hispanic voters, who may account for a fifth of  turnout, are considered to be up for grabs.`\
-https://nytimes.com/2021/05/31/nyregion/latinos-nyc-mayor-race.html?searchResultPosition=5
+https://nytimes.com/2021/05/31/nyregion/latinos-nyc-mayor-race.html?searchResultPosition=4
+
+**Biden Aims to Rebuild and Expand Legal Immigration**\
+`Documents obtained by The New York Times show far-reaching efforts by President Biden to remake the immigration system and undo much of his predecessor’s legacy.`\
+https://nytimes.com/2021/05/31/us/politics/biden-immigration.html?searchResultPosition=5
 
 **Garcia Rises, and Yang Changes His Tune: 5 Takeaways From Mayor’s Race**\
 `A new survey put Kathryn Garcia in the lead, shaking up the mayoral race with just weeks to go before Primary Day.`\
