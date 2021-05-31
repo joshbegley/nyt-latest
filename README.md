@@ -1,6 +1,6 @@
 **As Virus Toll Grows, Brazil’s Political Divisions Spill Onto the Streets**\
 `Opponents of President Jair Bolsonaro have mounted the largest protests since the beginning of the pandemic, suggesting new volatility before next year’s elections.`\
-https://nytimes.com/2021/05/31/world/americas/brazil-protests-bolsonaro-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2021/05/31/world/americas/brazil-protests-covid-19.html?searchResultPosition=1
 
 **Kate Winslet Has No Filter**\
 `The star of ‘Mare of Easttown’ is back on the sides of buses. Without airbrushing.`\
