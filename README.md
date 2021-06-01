@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/01/us/politics/vaccine-passports-republicans.html?se
 https://nytimes.com/2021/06/01/world/europe/belarus-court-suicide-attempt.html?searchResultPosition=4
 
 **Biden Promises Tulsa Massacre Survivors Their Story Will Be ‘Known in Full View’**\
-`The president, who has made racial equity and justice central themes of his administration, was in Tulsa to commemorate a painful part of the country’s history.`\
+`The president, who has made racial equity and justice central themes of his administration, was in Tulsa, Okla., to commemorate a painful part of the country’s history.`\
 https://nytimes.com/2021/06/01/us/politics/biden-tulsa-race-massacre.html?searchResultPosition=5
 
 **Biden Memorializes Victims of the Tulsa Race Massacre**\
