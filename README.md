@@ -1,40 +1,40 @@
+**New & Noteworthy, From Hidden Treasure to a Relic of Slavery**\
+`A selection of recent titles of interest; plus, a peek at what our colleagues around the newsroom are reading.`\
+https://nytimes.com/2021/06/01/books/review/new-this-week.html?searchResultPosition=1
+
 **Covid has killed over 5 percent of lawmakers in Congo’s Parliament.**\
 `The rising toll comes as the country struggles with a difficult vaccine rollout, the presence of other deadly diseases and eruption of one of the world’s most dangerous volcanoes.`\
-https://nytimes.com/2021/06/01/world/africa/covid-congo-parliament.html?searchResultPosition=1
+https://nytimes.com/2021/06/01/world/africa/covid-congo-parliament.html?searchResultPosition=2
 
 **8 Comic Books in Honor of Pride**\
 `Romance, self-discovery and a celebration of identity: Magic is in the air in these comic books and graphic novels, out now through September.`\
-https://nytimes.com/2021/06/01/arts/lgbt-comic-books-pride.html?searchResultPosition=2
+https://nytimes.com/2021/06/01/arts/lgbt-comic-books-pride.html?searchResultPosition=3
 
 **Stocks, oil and bond yields all climb as economic data improves.**\
 `But data also showed that manufacturers are struggling to meet rising demand, which could add to inflationary pressures.`\
-https://nytimes.com/2021/06/01/business/stock-market-today.html?searchResultPosition=3
+https://nytimes.com/2021/06/01/business/stock-market-today.html?searchResultPosition=4
 
 **Opinion: An Interview With Barack Obama**\
 `For my latest episode, I spoke with former President Barack Obama about how he believes America has changed since his time in office.`\
-https://nytimes.com/interactive/2021/06/01/opinion/obama-ezra-klein-takeaways.html?searchResultPosition=4
+https://nytimes.com/interactive/2021/06/01/opinion/obama-ezra-klein-takeaways.html?searchResultPosition=5
 
 **When Work Takes a Toll on Mental Health**\
 `Tennis stars and regular people alike struggle with wellness at work.`\
-https://nytimes.com/2021/06/01/business/dealbook/naomi-osaka-french-open.html?searchResultPosition=5
+https://nytimes.com/2021/06/01/business/dealbook/naomi-osaka-french-open.html?searchResultPosition=6
 
 **Pope Extends Church Law to Target Sexual Abuse of Adults by Priests**\
 `The new rules explicitly criminalize sexual exploitation of adults by priests who abuse their authority and also apply to lay people with power in the church.`\
-https://nytimes.com/2021/06/01/world/europe/vatican-priests-sexual-abuse.html?searchResultPosition=6
+https://nytimes.com/2021/06/01/world/europe/vatican-priests-sexual-abuse.html?searchResultPosition=7
 
 **With most adults vaccinated and case numbers low, Israel removes many restrictions.**\
 `About 81 percent of Israel’s adult population has been fully vaccinated. People must still wear masks in closed, public spaces.`\
-https://nytimes.com/2021/06/01/world/middleeast/israel-covid-restrictions.html?searchResultPosition=7
+https://nytimes.com/2021/06/01/world/middleeast/israel-covid-restrictions.html?searchResultPosition=8
 
 **OPEC Plus is expected to continue slowly raising output as oil prices climb.**\
 `Under an agreement reached in April, the member states would add 350,000 barrels per day in June and 441,000 barrels per day in July.`\
-https://nytimes.com/2021/06/01/business/Opec-plus-oil-prices.html?searchResultPosition=8
+https://nytimes.com/2021/06/01/business/Opec-plus-oil-prices.html?searchResultPosition=9
 
 **As M.L.B. Honors Lou Gehrig, It Shines a Spotlight on A.L.S.**\
 `Gwen Peterson, who has Lou Gehrig’s Disease, is one of the many advocates who view the league’s new event as a chance to raise awareness and funding.`\
-https://nytimes.com/2021/06/01/sports/baseball/lou-gehrig-day.html?searchResultPosition=9
-
-**A Black Whiskey Entrepreneur Will Help Bankroll Others Like Her**\
-`Fawn Weaver, the founder of Uncle Nearest Premium Whiskey, has amassed a $50 million venture capital fund to seed minority-owned spirits businesses.`\
-https://nytimes.com/2021/06/01/dining/drinks/uncle-nearest-whiskey-black-owned.html?searchResultPosition=10
+https://nytimes.com/2021/06/01/sports/baseball/lou-gehrig-day.html?searchResultPosition=10
 
