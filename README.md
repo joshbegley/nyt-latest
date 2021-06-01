@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/01/us/dissecting-the-california-recall.html?searchRe
 `Recent commercial real estate transactions in New York.`\
 https://nytimes.com/2021/06/01/business/new-york-commercial-real-estate.html?searchResultPosition=2
 
-**Broadway’s Rebound Advances Again: ‘Pass Over’ to Start in August**\
+**Broadway’s Rebound Advances Again: ‘Pass Over’ Is to Start in August**\
 `The acclaimed drama by Antoinette Chinonye Nwandu is planning to start performances nearly a month before the big musicals begin.`\
 https://nytimes.com/2021/06/01/theater/broadway-reopening-pass-over-nwandu.html?searchResultPosition=3
 
