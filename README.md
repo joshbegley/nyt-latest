@@ -18,7 +18,7 @@ https://nytimes.com/2021/06/01/us/coronavirus-today-vaccines-work-office.html?se
 `See full results and maps from the New Mexico special election.`\
 https://nytimes.com/interactive/2021/06/01/us/elections/results-new-mexico-house-district-1-special-election.html?searchResultPosition=5
 
-**The Crossword Stumper**\
+****\
 `A look at one of the entries that fooled solvers in last week’s puzzles.`\
 https://nytimes.com/2021/06/01/crosswords/crossword-stumper-trans-icon.html?searchResultPosition=6
 
