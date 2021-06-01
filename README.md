@@ -1,40 +1,40 @@
-**There’s a Sexual Assault Crisis in the Military. Congress Can Stop It.**\
-`Service members are more likely to be sexually assaulted by a fellow soldier than shot by an enemy at war.`\
-https://nytimes.com/video/opinion/100000007737321/sexual-assault-military-ernst-gillibrand.html?searchResultPosition=1
+**Some U.S. states have higher vaccination rates inside prisons than outside.**\
+`Many states are slow to vaccinate incarcerated people despite the high risk of outbreaks in prisons and jails. But some are doing better with inmates than with the wider public.`\
+https://nytimes.com/2021/06/01/us/vaccine-prison-covid.html?searchResultPosition=1
 
-**China Wants More Babies. Some Men Choose Vasectomies.**\
-`As the Chinese government tries to increase the country’s falling birthrate, some millennials are striving for a lifestyle commonly known as “Double Income, No Kids.”`\
-https://nytimes.com/2021/06/01/world/asia/china-vasectomies.html?searchResultPosition=2
+**Barbecues, Birthdays and Tangos: New York Parks Are Bustling Again**\
+`While Memorial Day is the unofficial start to summer in the city, New Yorkers have already been filling the city’s green spaces, celebrating the joy of being together.`\
+https://nytimes.com/2021/06/01/nyregion/barbecues-birthdays-and-tangos-new-york-parks-are-bustling-again.html?searchResultPosition=2
 
-**New York’s ‘Excelsior Pass’ Is the Country’s First Vaccine Passport**\
-`New Yorkers can download an app that they can use to show proof of their vaccination.`\
-https://nytimes.com/2021/06/01/nyregion/new-york-vaccine-passport.html?searchResultPosition=3
+**Tokyo Olympics: Athletes to Watch This Summer**\
+`Looking for some names to root for? Start here.`\
+https://nytimes.com/article/tokyo-olympics-athletes.html?searchResultPosition=3
 
-**Why a New Mexico House Race Is a Crucial Test of the G.O.P. Focus on Crime**\
-`In a special election to replace Deb Haaland, Democrats are bolstering their nominee, taking no chances that a law-and-order argument against her will cost them what should be a safe House seat.`\
-https://nytimes.com/2021/06/01/us/politics/new-mexico-crime-haaland.html?searchResultPosition=4
+**The Fantasy of a Cotswolds Country Home Meets Reality in Westchester**\
+`The plan was to do a quick cosmetic update. Then a couple found out the plumbing, electrical and septic systems were shot. And the house was sinking.`\
+https://nytimes.com/2021/06/01/realestate/cotswolds-country-home-in-westchester.html?searchResultPosition=4
 
-**Four Lessons From Your Anxious Brain**\
-`Pandemic life has saddled us with lots of conflicting emotions. Here’s how to cope with feelings of uncertainty and make a fresh start.`\
-https://nytimes.com/2021/06/01/well/mind/anxiety-brain.html?searchResultPosition=5
+**A Cotswolds Country House, in Pound Ridge, N.Y.**\
+`The plan was to do a quick cosmetic update. Then they found out the plumbing, electrical and septic systems were shot. And the house was sinking.`\
+https://nytimes.com/slideshow/2021/06/01/realestate/a-cotswolds-country-house-in-pound-ridge-ny.html?searchResultPosition=5
 
-**Something Bothering You? Tell It to Woebot.**\
-`When your therapist is a bot, you can reach it at 2 a.m. But will it really understand your problems?`\
-https://nytimes.com/2021/06/01/health/artificial-intelligence-therapy-woebot.html?searchResultPosition=6
+**Want Your Nails Done? Let a Robot Do It.**\
+`Start-ups are using technology to take a robotic approach to manicures, offering a simple way to provide foolproof nail polish.`\
+https://nytimes.com/2021/06/01/technology/robot-manicure-nails.html?searchResultPosition=6
 
-**Australia’s softball players are the first Olympic athletes to arrive in Japan.**\
-`The team will be confined to one floor of a hotel as it prepares for the Tokyo Games, which are scheduled to begin July 23 despite a coronavirus outbreak and growing public opposition.`\
-https://nytimes.com/2021/06/01/world/asia/australia-olympics-tokyo-japan-softball.html?searchResultPosition=7
+**Disputing Racism’s Reach, Republicans Rattle American Schools**\
+`In a culture-war brawl that has spilled into the country’s educational system, Republicans at the local, state and national levels are trying to block curriculums that emphasize systemic racism.`\
+https://nytimes.com/2021/06/01/us/politics/critical-race-theory.html?searchResultPosition=7
 
-**‘For My People’: A Transgender Woman Pursues an Olympic Dream**\
-`CeCe Telfer, the first openly transgender woman to win an N.C.A.A. title, is aiming to qualify for the U.S. Olympic trials in the 400-meter hurdles. Her biggest obstacle, for now, is a lack of training facilities.`\
-https://nytimes.com/2021/06/01/sports/olympics/cece-telfer-olympic-trials.html?searchResultPosition=8
+**How the World Ran Out of Everything**\
+`Global shortages of many goods reflect the disruption of the pandemic combined with decades of companies limiting their inventories.`\
+https://nytimes.com/2021/06/01/business/coronavirus-global-shortages.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`A new kind of pandemic grief.`\
-https://nytimes.com/2021/05/31/briefing/pandemic-recovery-china-children.html?searchResultPosition=9
+**Amid Historic Drought, a New Water War in the West**\
+`A drought crisis has erupted in the Klamath Basin along the California-Oregon border, with fish dying en masse and farmers infuriated that they have been cut off from their main water source.`\
+https://nytimes.com/2021/06/01/us/klamath-oregon-water-drought-bundy.html?searchResultPosition=9
 
-**Corrections: June 1, 2021**\
-`Corrections that appeared in print on Tuesday, June 1, 2021.`\
-https://nytimes.com/2021/05/31/pageoneplus/corrections-june-1-2021.html?searchResultPosition=10
+**A Rural-Urban Broadband Divide, but Not the One You Think Of**\
+`Many more people in cities lack broadband access than in rural areas, but lawmakers are primarily focused on extending high-speed access to remote areas.`\
+https://nytimes.com/2021/06/01/business/rural-urban-broadband-biden.html?searchResultPosition=10
 
