@@ -36,5 +36,5 @@ https://nytimes.com/2021/06/01/us/politics/biden-pride-lgbtq.html?searchResultPo
 
 **‘Contested, Heated Culture Wars’ Mark Ultraconservative Texas Session**\
 `This was the session that pushed Texas further to the right, at a time when it seemed least likely to do so — as the state becomes younger, less white and less Republican.`\
-https://nytimes.com/2021/06/01/us/texas-legislative-session-conservative.html?searchResultPosition=10
+https://nytimes.com/2021/06/01/us/texas-republicans.html?searchResultPosition=10
 
