@@ -32,7 +32,7 @@ https://nytimes.com/2021/06/01/world/europe/boris-johnson-married-catholic-churc
 
 **Watch Live: Biden Commemorates 100th Anniversary of Tulsa Race Massacre**\
 `President Biden travels to Tulsa, Okla., on Tuesday to commemorate the 1921 massacre in Greenwood, the city’s African American community that was destroyed by a white mob 100 years ago.`\
-https://nytimes.com/video/us/politics/100000007792635/biden-tulsa.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/politics/100000007792635/biden-tulsa.html?searchResultPosition=9
 
 **The Biden administration plans to suspend Arctic drilling leases issued during the last days of Trump’s term.**\
 `The move was widely expected and follows President Biden’s executive order to place a moratorium on new Arctic drilling.`\
