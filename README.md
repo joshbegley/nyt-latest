@@ -1,4 +1,4 @@
-**Biden Suspends Drilling in Arctic National Wildlife Refuge**\
+**Biden Suspends Drilling Leases in Arctic National Wildlife Refuge**\
 `The decision effectively blocks oil and gas drilling in one of the largest tracts of undeveloped wilderness in the United States.`\
 https://nytimes.com/2021/06/01/climate/ANWR-Biden-drilling.html?searchResultPosition=1
 
