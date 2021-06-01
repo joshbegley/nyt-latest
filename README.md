@@ -12,7 +12,7 @@ https://nytimes.com/video/world/europe/100000007792648/world-health-organization
 
 **The World Health Organization authorizes the Sinovac vaccine for emergency use.**\
 `The clearance means that the vaccine could be distributed as part of Covax, the global effort to share shots with hard-hit, undersupplied nations.`\
-https://nytimes.com/2021/06/01/world/world-health-organization-sinovac.html?searchResultPosition=4
+https://nytimes.com/2021/06/01/world/sinovac-who.html?searchResultPosition=4
 
 **Republican Efforts to Restrict Voting, in Texas and Beyond**\
 `Readers decry a Texas bill that they view as an undemocratic attempt to suppress the vote. Also: Naomi Osaka; the At Home section; kids with autism.`\
