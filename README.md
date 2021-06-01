@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/01/climate/ANWR-Biden-drilling.html?searchResultPosi
 https://nytimes.com/2021/06/01/style/tiny-modern-love-stories-i-was-right-love-can-never-be-compared.html?searchResultPosition=2
 
 **The Discovery chief David Zaslav greets his WarnerMedia troops.**\
-`A company name is unveiled — Discovery Warner Bros. And a tagline to go with it: “The stuff that dreams are made of.”`\
+`A company name is unveiled — Warner Bros. Discovery . And a tagline to go with it: “The stuff that dreams are made of.”`\
 https://nytimes.com/2021/06/01/business/media/the-discovery-chief-david-zaslav-greets-his-warnermedia-troops.html?searchResultPosition=3
 
 **Your Wednesday Briefing**\
