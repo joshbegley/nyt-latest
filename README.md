@@ -2,7 +2,7 @@
 `President Biden travels to Tulsa, Okla., on Tuesday to commemorate the 1921 massacre in Greenwood, the city’s African American community that was destroyed by a white mob 100 years ago.`\
 https://nytimes.com/video/us/politics/100000007792635/biden-tulsa.html?searchResultPosition=1
 
-**The Biden administration plans to suspend Arctic drilling leases issued during last days of Trump’s term.**\
+**The Biden administration plans to suspend Arctic drilling leases issued during the last days of Trump’s term.**\
 `The move was widely expected and follows President Biden’s executive order to place a moratorium on new Arctic drilling.`\
 https://nytimes.com/2021/06/01/us/politics/biden-drilling.html?searchResultPosition=2
 
