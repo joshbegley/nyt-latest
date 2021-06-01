@@ -36,5 +36,5 @@ https://nytimes.com/2021/06/01/t-magazine/compton-communicative-arts-academy.htm
 
 **Where Wilde Once Slept (in Prison Garb)**\
 `Activists are trying to preserve the prison he was sent to after his conviction for “indecency,” saying his life is an important part of Britain’s history.`\
-https://nytimes.com/2021/06/01/world/europe/jail-oscar-wilde-reading-england.html?searchResultPosition=10
+https://nytimes.com/2021/06/01/world/europe/oscar-wilde-prison-jail.html?searchResultPosition=10
 
