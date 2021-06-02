@@ -11,7 +11,7 @@ https://nytimes.com/2021/06/02/us/coronavirus-today-vaccines.html?searchResultPo
 https://nytimes.com/2021/06/02/world/americas/virus-surges-vaccines.html?searchResultPosition=3
 
 **2 Nevada Men Ordered to Stop Selling Bottled Waters Linked to Hepatitis**\
-`According to prosecutors, the F.D.A. learned that at least five children had experienced acute non-viral hepatitis, which can lead to liver failure, after drinking the father and son’s “Re²al Water” products.`\
+`According to prosecutors, the F.D.A. learned that at least five children had experienced acute non-viral hepatitis, which can lead to liver failure, after drinking the father and son’s Re²al Water products.`\
 https://nytimes.com/2021/06/02/us/nevada-bottled-water-fda.html?searchResultPosition=4
 
 **Khaby Lame, the Everyman of the Internet**\
