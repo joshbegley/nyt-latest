@@ -2,7 +2,7 @@
 `How to vaccinate the world`\
 https://nytimes.com/2021/06/02/us/coronavirus-today-vaccines.html?searchResultPosition=1
 
-**A Return to Normal? Not for Countries With Covid Surges and Few Vaccines**\
+**A Return to Normal? Not for Countries With Covid Surges and Few Vaccines.**\
 `As nations like the United States prepare for a summer of hugs, gatherings and other activities safe for the vaccinated, nations still scrambling for shots are seeing some of their worst outbreaks.`\
 https://nytimes.com/2021/06/02/world/americas/virus-surges-vaccines.html?searchResultPosition=2
 
