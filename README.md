@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/02/world/sri-lanka-zoo-animals-covid.html?searchResu
 https://nytimes.com/2021/06/02/nyregion/how-to-apply-for-rent-relief-in-new-york.html?searchResultPosition=7
 
 **Spared for Months, Vietnam Faces a Wave of New Infections**\
-`The Southeast Asian nation has prided itself on successfully containing the coronavirus. But an outbreak at a church in Ho Chi Minh City and the emergence of a deadly new variant suggest its luck may be running out.`\
+`The nation has prided itself on containing the coronavirus. But an outbreak at a church in Ho Chi Minh City and the emergence of a deadly new variant suggest its luck may be running out.`\
 https://nytimes.com/2021/06/02/world/asia/vietnam-covid-ho-chi-minh.html?searchResultPosition=8
 
 **A man in China is found to have H10N3 bird flu, a reminder of a continued ‘concern for pandemic flu.’**\
