@@ -20,7 +20,7 @@ https://nytimes.com/2021/06/02/podcasts/the-daily/joe-manchin-joe-biden-democrat
 
 **Etsy is buying the fashion resale app Depop for $1.6 billion.**\
 `The acquisition is the latest to underscore the skyrocketing popularity of secondhand fashion platforms amid the pandemic.`\
-https://nytimes.com/2021/06/02/business/etsy-is-buying-the-fashion-resale-app-depop-for-1-6-billion.html?searchResultPosition=6
+https://nytimes.com/2021/06/02/business/etsy-depop.html?searchResultPosition=6
 
 **Without humans around, Sri Lanka’s zoo animals enjoy a pandemic baby boom.**\
 `Births at the island nation’s zoos are up 25 percent, a rare bright spot as Covid-19 ravages an economy closely tied to tourism.`\
