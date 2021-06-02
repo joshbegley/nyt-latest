@@ -2,8 +2,8 @@
 `The E.U.’s new vaccine passports.`\
 https://nytimes.com/2021/06/01/briefing/vaccine-passports-palestinian-rights.html?searchResultPosition=1
 
-**Melanie Stansbury, a Democrat, Wins House Race in New Mexico**\
-`Ms. Stansbury, a state lawmaker, prevailed in a special election to fill the seat vacated by Interior Secretary Deb Haaland. She beat Mark Moores, a Republican, in a race centered on issues of crime.`\
+**Melanie Stansbury, a Democrat, Cruises in New Mexico House Race**\
+`Ms. Stansbury, a state representative, won a landslide victory in a special election to fill the seat vacated by Interior Secretary Deb Haaland. She beat Mark Moores, a Republican state senator.`\
 https://nytimes.com/2021/06/01/us/politics/melanie-stansbury-new-mexico-house.html?searchResultPosition=2
 
 **Commemorated During Pride Month**\
