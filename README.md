@@ -15,7 +15,7 @@ https://nytimes.com/video/us/politics/100000007794862/biden-vaccine-initiative.h
 https://nytimes.com/2021/06/02/arts/design/3-art-gallery-shows-to-see-right-now.html?searchResultPosition=4
 
 **Why The Pandemic Was Terrible For Working Moms**\
-`The pandemic has been rough for mothers everywhere. But a new study found the employment gender gap was widest in the U.S. and Canada, compared with 26 other developed countries.`\
+`The pandemic has been rough for mothers everywhere. But a new study found the employment gender gap was widest in the U.S. and Canada, compared with 26 other developed countries. `\
 https://nytimes.com/interactive/2021/06/02/us/global-shecession-child-care.html?searchResultPosition=5
 
 **France Is Becoming More Like America. It’s Terrible.**\
