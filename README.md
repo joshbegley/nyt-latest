@@ -35,6 +35,6 @@ https://nytimes.com/2021/06/02/nyregion/ifeoma-ike-maya-wiley-campaign.html?sear
 https://nytimes.com/2021/06/02/world/low-income-nations-covid-vaccine.html?searchResultPosition=9
 
 **Mike Krzyzewski, Celebrated Duke Coach, Will Retire After Coming Season**\
-`With 1,097 career wins so far, the winningest coach in college basketball is planning his farewell following the 2021-22 season.`\
+`With 1,097 career wins so far with the Blue Devils, the winningest coach in college basketball is planning his farewell following the 2021-22 season.`\
 https://nytimes.com/2021/06/02/sports/ncaabasketball/mike-krzyzewski-retires.html?searchResultPosition=10
 
