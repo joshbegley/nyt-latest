@@ -1,4 +1,4 @@
-**The Republican Filibuster of a Jan. 6 Inquiry**\
+**The Republican Filibuster of a Jan. 6 Commission**\
 `Readers call for a presidential commission and the elimination or reform of the filibuster. Also: Caregivers; evictions; a special graduate.`\
 https://nytimes.com/2021/06/02/opinion/letters/republicans-jan-6-commission.html?searchResultPosition=1
 
