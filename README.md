@@ -1,5 +1,5 @@
 **Outrage Greets Report of Arizona Plan to Use ‘Holocaust Gas’ in Executions**\
-`Global headlines reflected the dismay of Holocaust survivors and others, after The Guardian published documents showing the state had purchased materials for hydrogen cyanide, a gas used in past executions and associated with the Nazis’ Zyklon B.`\
+`Global headlines reflected the anger of death camp survivors and others, after The Guardian published documents showing the state planned to return to the use of hydrogen cyanide, a gas associated with what the Nazis’ called Zyklon B.`\
 https://nytimes.com/2021/06/02/us/arizona-zyklon-b-gas-chamber.html?searchResultPosition=1
 
 **The Fed announces plans to sell off its corporate bond holdings.**\
