@@ -1,6 +1,6 @@
 **Naomi Osaka’s Uneasy Rush Into the Spotlight**\
 `Since emerging as an elite tennis player and Grand Slam tournament champion in 2018, Osaka has experienced success and anguish, both of which played out in public. It is “a lot to put on anyone’s plate.”`\
-https://nytimes.com/2021/06/02/sports/tennis/noami-osaka-french-open.html?searchResultPosition=1
+https://nytimes.com/2021/06/02/sports/tennis/naomi-osaka-french-open.html?searchResultPosition=1
 
 **Covid Hope Over Fear**\
 `We look at the effects of the C.D.C.’s new mask guidance on Covid cases and vaccinations.`\
