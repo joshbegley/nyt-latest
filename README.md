@@ -6,8 +6,8 @@ https://nytimes.com/2021/06/02/style/khaby-lame-tiktok.html?searchResultPosition
 `President Biden announced on Tuesday during his visit to Tulsa, Okla., that he had asked Vice President Kamala Harris to lead the Democratic Party’s efforts to protect and expand voting rights.`\
 https://nytimes.com/video/us/politics/100000007795108/biden-tulsa-harris-voting-rights.html?searchResultPosition=2
 
-**Oil Leasing in the Arctic Refuge in Alaska Is Dead. Or Is It?**\
-`The Biden administration suspended leases that were sold in the waning days of the Trump White House. But a 2017 law could force another sale.`\
+**Biden Aims to End Arctic Drilling. A Trump-Era Law Could Foil His Plans.**\
+`The administration suspended leases that were auctioned in the waning days of the Trump White House. But a 2017 law could force another sale.`\
 https://nytimes.com/2021/06/02/climate/ANWR-drilling-Biden.html?searchResultPosition=3
 
 **Your Thursday Briefing**\
