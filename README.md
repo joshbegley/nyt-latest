@@ -1,5 +1,5 @@
-**Dan Frank, Adventurous Book Editor, Dies at 67**\
-`He nurtured prize winners and best sellers, rescued Joseph Mitchell from obscurity and helped establish graphic novels as a literary genre.`\
+**Dan Frank, Adventurous Book Editor, Is Dead at 67**\
+`As head of Pantheon, he nurtured prize winners and best sellers, rescued Joseph Mitchell from obscurity and helped establish graphic novels as a literary genre.`\
 https://nytimes.com/2021/06/02/books/dan-frank-dead.html?searchResultPosition=1
 
 **Modern Love Podcast: Trapped in a Romance Scam**\
