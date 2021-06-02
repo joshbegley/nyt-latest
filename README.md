@@ -18,8 +18,8 @@ https://nytimes.com/2021/06/02/nyregion/ifeoma-ike-maya-wiley-campaign.html?sear
 `The funds were pledged by wealthier countries, foundations and private companies during a virtual summit hosted by Japan and Gavi, the Vaccine Alliance.`\
 https://nytimes.com/2021/06/02/world/low-income-nations-covid-vaccine.html?searchResultPosition=5
 
-**Mike Krzyzewski, Celebrated Duke Coach, Is Said to Plan Retirement**\
-`With 1,097 career wins so far, the winningest coach in college basketball is planning his farewell.`\
+**Mike Krzyzewski, Celebrated Duke Coach, Will Retire After Coming Season**\
+`With 1,097 career wins so far, the winningest coach in college basketball is planning his farewell following the 2021-22 season.`\
 https://nytimes.com/2021/06/02/sports/ncaabasketball/mike-krzyzewski-retires.html?searchResultPosition=6
 
 **How Many Americans Support the Death Penalty? Depends How You Ask.**\
