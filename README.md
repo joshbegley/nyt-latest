@@ -2,8 +2,8 @@
 `States are building more dedicated highway crossings for animals. That means fewer collisions — and a lot of animal videos.`\
 https://nytimes.com/2021/06/02/climate/making-way-for-wildlife.html?searchResultPosition=1
 
-**The U.S. imposes tariffs on six countries over digital taxes.**\
-`The 25 percent levies, which were applied to goods from Austria, Britain, India, Italy, Spain and Turkey, were suspended for 180 days while talks proceeded.`\
+**The U.S. imposes — and suspends — tariffs on six countries over digital taxes.**\
+`The 25 percent levies, which were applied to goods from Austria, Britain, India, Italy, Spain and Turkey, were immediately postponed for 180 days while talks proceeded.`\
 https://nytimes.com/2021/06/02/business/us-tariffs-digital-tax.html?searchResultPosition=2
 
 **Biden will announce free child care through major providers for vaccination appointments.**\
