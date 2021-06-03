@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/03/arts/television/netflix-expiring-june.html?search
 `The president offered new concessions this week, including dropping his plan to reverse some of the 2017 tax cuts, as he tries to win support from Senate Republicans.`\
 https://nytimes.com/2021/06/03/business/economy/biden-infrastructure.html?searchResultPosition=2
 
-**Here’s How to Understand Tomorrow’s Jobs Report**\
+**Here’s How to Understand the Next Jobs Report**\
 `Hint: The  employment figures only tell part of the story.`\
 https://nytimes.com/2021/06/03/opinion/may-jobs-report-biden-economy.html?searchResultPosition=3
 
