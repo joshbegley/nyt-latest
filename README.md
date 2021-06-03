@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/03/podcasts/the-daily/texas-legislature-voting-right
 `To understand the far-right extremism still lurking in Germany’s shadows, we talk with two of the alleged targets of a plot to kill.`\
 https://nytimes.com/2021/06/03/podcasts/day-x-franco-a-german-extremism.html?searchResultPosition=2
 
-**China Suspends Mountain Races as Grieving Families Seek Answers**\
+**China Suspends Ultramarathons After Death of 21 Runners**\
 `Some relatives of the 21 runners who died in an ultramarathon last month are quietly asking whether their loved ones could have been saved.`\
 https://nytimes.com/2021/06/03/world/asia/china-ultramarathon-deaths.html?searchResultPosition=3
 
