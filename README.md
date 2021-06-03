@@ -2,8 +2,8 @@
 `Kyra Wilson and Sophia Maymudes team up once again.`\
 https://nytimes.com/2021/06/02/crosswords/daily-puzzle-06-03.html?searchResultPosition=1
 
-**Personal Attacks Ignite New York City Mayoral Debate**\
-`The eight Democratic contenders jousted over crime, education and the fundamental question of who among them was qualified to run New York City.`\
+**Crime and Qualifications at Issue in Heated N.Y.C. Mayoral Debate**\
+`The eight Democratic contenders jousted in contentious exchanges over the fundamental question of who among them was qualified to run New York City.`\
 https://nytimes.com/2021/06/02/nyregion/mayoral-debate-nyc.html?searchResultPosition=2
 
 **N.Y.C. Mayoral Candidates Clash Over Policing**\
