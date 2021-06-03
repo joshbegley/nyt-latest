@@ -26,7 +26,7 @@ https://nytimes.com/2021/06/03/us/politics/dejoy-investigation.html?searchResult
 `A reader asks for recommendations for domestic travel destinations, particularly places that rely on tourism — and encourage vaccinations.`\
 https://nytimes.com/2021/06/03/travel/local-tourism-destinations.html?searchResultPosition=7
 
-**Biden issues an order barring U.S. investment in firms that aid surveillance and repression.**\
+**Biden issues an order banning U.S. investment in firms that aid surveillance and repression.**\
 `The new order, which initially lists 59 Chinese firms, substantially expands an order issued in November by President Donald J. Trump.`\
 https://nytimes.com/2021/06/03/us/politics/biden-china-surveillance-order.html?searchResultPosition=8
 
