@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/03/world/africa/africa-coronavirus-cases.html?search
 https://nytimes.com/2021/06/03/science/sharks-extinction-oceans.html?searchResultPosition=2
 
 **In Hong Kong, Short-Lived Censorship Hints at a Deeper Standoff**\
-`Authorities succeeded in shuttering an activist site for three days. The takedown, and its reversal, presage a looming battle over internet freedoms.`\
+`Authorities succeeded in shuttering an activist site for three days. The takedown, and its reversal, presage a battle over internet freedoms.`\
 https://nytimes.com/2021/06/03/technology/hong-kong-internet-censorship.html?searchResultPosition=3
 
 **U.S. to Distribute an Initial 25 Million Vaccine Doses Worldwide**\
