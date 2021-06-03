@@ -20,7 +20,7 @@ https://nytimes.com/2021/06/02/us/politics/biden-capito-infrastructure.html?sear
 
 **High School Football Coaches Suspended After Teen Is Forced to Eat Pork, Lawyer Says**\
 `A 17-year-old in Canton, Ohio, was forced to eat a pepperoni pizza even though the coaches were aware he does not eat pork because he is a Hebrew Israelite, a lawyer for the boy’s family said. The Police Department is investigating.`\
-https://nytimes.com/2021/06/02/us/marcus-wattley-canton-mckinley.html?searchResultPosition=6
+https://nytimes.com/2021/06/02/us/marcus-wattley-canton-ohio-mckinley.html?searchResultPosition=6
 
 **At the French Open, Serena Williams Wins While Roger Federer Waits**\
 `Both players are 39 years old, and both are rounding into form as they eye another Grand Slam, whether on Paris’s clay or Wimbledon’s grass.`\
