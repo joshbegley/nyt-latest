@@ -1,40 +1,40 @@
-**When the Gunman’s Motive Remains a Mystery: Does It Matter?**\
-`Even when they try to explain themselves, perpetrators are unlikely to help make sense out of the senseless.`\
-https://nytimes.com/2021/06/03/us/motive-shooting-gunman.html?searchResultPosition=1
+**Vienna’s Stages Reopen, With Schmaltz and Cynicism**\
+`Works by Austrian writers performed in the city’s playhouses run a gamut from sentimental to incomprehensible.`\
+https://nytimes.com/2021/06/03/arts/vienna-theater-reopen.html?searchResultPosition=1
 
-**The Life and Death of Your Jeans**\
-`A new book enters that category known as “fashion horror stories.” Something to consider before you shop.`\
-https://nytimes.com/2021/06/03/style/jeans-fashion-sustainability-.html?searchResultPosition=2
+**About 10,000 volunteers for the Tokyo Olympics have quit, organizers say.**\
+`The departures were the latest sign of opposition among the Japanese public to hosting the Games during the pandemic.`\
+https://nytimes.com/2021/06/03/world/asia/japan-tokyo-olympics-volunteers-covid.html?searchResultPosition=2
 
-**Getting by With a Little Help Finding Friends**\
-`Lonely after emerging from quarantine or in a new city? Apps, private clubs and social networks are ready to fix you up with a new bestie.`\
-https://nytimes.com/2021/06/03/style/getting-by-with-a-little-help-finding-friends.html?searchResultPosition=3
+**The Disease Detective**\
+`Joe DeRisi invented a way to find pathogens that scientists didn’t even know to look for. Can it help prevent the next pandemic?`\
+https://nytimes.com/2021/06/03/magazine/metagenomic-sequencing.html?searchResultPosition=3
 
-**Israeli Opposition Reaches Coalition Agreement**\
-`Israelis reacted with happiness and frustration to news that opposition parties had agreed to form a coalition government that would end Benjamin Netanyahu’s 12-year tenure as prime minister.`\
-https://nytimes.com/video/world/middleeast/100000007795771/israel-prime-minister.html?searchResultPosition=4
+**India and Israel Inflame Facebook’s Fights With Its Own Employees**\
+`The social network wrongly bowed to government demands to take down content in the countries, employees said, in more signs of internal dissent.`\
+https://nytimes.com/2021/06/03/technology/india-israel-facebook-employees.html?searchResultPosition=4
 
-**Next Big Advancement in Women's Healthcare**\
-`A new global women’s healthcare company launches commitment to women around the world to listen to health needs.`\
-https://nytimes.com/paidpost/organon/next-big-advancement-in-womens-healthcare.html?searchResultPosition=5
+**26 Summer Shows, No Mask Required**\
+`If you’re still not ready to leave the house, TV has you covered.`\
+https://nytimes.com/2021/06/03/arts/television/summer-tv-shows-premiere.html?searchResultPosition=5
 
-**Michelle Wie West Was Ready to Retire. Then She Got Mad.**\
-`A golf phenom since she was 10, Michelle Wie West was ready to focus on motherhood. Rudy Giuliani’s vulgar remarks convinced her to keep fighting and playing.`\
-https://nytimes.com/2021/06/03/sports/golf/lpga-michelle-wie-us-open.html?searchResultPosition=6
+**Art Blooms Alongside Nature in Riverside Park**\
+`In an exhibition that sprawls across nearly 100 blocks of park, 24 contemporary artists address literal, metaphoric and poetic ideas of regrowth.`\
+https://nytimes.com/2021/06/03/arts/riverside-park-art-show.html?searchResultPosition=6
 
-**The Nets Aren’t Unbeatable, but It’s OK to Be Impressed**\
-`The Boston Celtics tried in their first-round series but were too depleted to compete. The Nets’ next opponent, the Milwaukee Bucks, may have a better shot.`\
-https://nytimes.com/2021/06/03/sports/basketball/nets-celtics-takeaways.html?searchResultPosition=7
+**Old-Guard Senators Defy Changes in How Military Treats Sex Assault Cases**\
+`Senator Kirsten Gillibrand has won broad backing for legislation that would cut out the military chain of command in such cases. Now she faces another big hurdle.`\
+https://nytimes.com/2021/06/03/us/politics/gillibrand-military-sexual-assault.html?searchResultPosition=7
 
-**‘You Can’t Run From the City … if You Want to Run the City’: Winners and Losers of New York’s Second Mayoral Debate**\
-`Our columnists and contributors give their rankings.`\
-https://nytimes.com/2021/06/02/opinion/nyc-mayor-debate-who-won.html?searchResultPosition=8
+**With ‘In the Heights,’ Anthony Ramos Finds Stardom on His Own Terms**\
+`Teachers urged him to cultivate a more ethnically ambiguous image. He refused, and now he’s having a breakout moment.`\
+https://nytimes.com/2021/06/03/movies/anthony-ramos-in-the-heights.html?searchResultPosition=8
 
-**N.Y.C. Mayoral Candidates Debate Subway Crime**\
-`Candidates for New York mayor addressed rising subway crime in a debate on Wednesday, suggesting solutions such as more police officers and mental health interventions.`\
-https://nytimes.com/video/us/elections/100000007795697/nyc-mayoral-candidates-debate-subway-crime.html?searchResultPosition=9
+**Virtual Reality Therapy Plunges Patients Back Into Trauma. Here Is Why Some Swear by It.**\
+`An experimental treatment seems poised to address a dire mental health crisis.`\
+https://nytimes.com/2021/06/03/well/mind/vr-therapy.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`A coalition of Netanyahu’s foes.`\
-https://nytimes.com/2021/06/02/briefing/israel-coalition-coronavirus-tax.html?searchResultPosition=10
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/06/03/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=10
 
