@@ -3,7 +3,7 @@
 https://nytimes.com/article/euro-2020-schedule-times.html?searchResultPosition=1
 
 **Hip Injury Forces Ashleigh Barty Out of French Open**\
-`Barty, the world’s No. 1 tennis player, had to leave the court for medical treatment during her second-round match.`\
+`Barty, the world’s No. 1 player, had to leave the court for medical treatment during her second-round match.`\
 https://nytimes.com/2021/06/03/sports/tennis/ashleigh-barty-french-open-withdraw.html?searchResultPosition=2
 
 **Why Are We All Talking About U.F.O.s Right Now?**\
