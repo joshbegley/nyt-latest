@@ -16,7 +16,7 @@ https://nytimes.com/2021/06/03/us/f-lee-bailey-dead.html?searchResultPosition=4
 
 **High School Valedictorian Takes Aim at Texas Abortion Law**\
 `In a graduation speech, Paxton Smith, 18, of Dallas said the new law, which bans abortion after six weeks of pregnancy, was “a war on my body and a war on my rights.”`\
-https://nytimes.com/2021/06/03/us/valedictorian-texas-abortion-law-speech.html?searchResultPosition=5
+https://nytimes.com/2021/06/03/us/valedictorian-texas-abortion-law-paxton-smith.html?searchResultPosition=5
 
 **For Years, Netanyahu Outfoxed His Rivals. What Changed This Week?**\
 `Prime Minister Benjamin Netanyahu of Israel failed to win a majority in the past three elections — but still held onto power. That might be about to change.`\
