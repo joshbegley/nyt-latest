@@ -2,7 +2,7 @@
 `A lack of inventory across the country helps explain why home prices are through the roof.`\
 https://nytimes.com/2021/06/03/realestate/where-are-home-listings-shrinking-most.html?searchResultPosition=1
 
-**Don’t Eat Cicadas if You’re Allergic to Seafood, F.D.A.Warns**\
+**Don’t Eat Cicadas if You’re Allergic to Seafood, F.D.A. Warns**\
 `The insects have emerged by the billions this year across the Eastern United States and have curious foodies salivating. But their similarities to crustaceans makes them an allergy risk, health officials warned.`\
 https://nytimes.com/2021/06/03/us/fda-cicadas-seafood-allergy.html?searchResultPosition=2
 
