@@ -1,40 +1,40 @@
-**Strange Political Bedfellows**\
-`Why the Israeli right and left are teaming up to unseat Benjamin Netanyahu.`\
-https://nytimes.com/2021/06/03/briefing/israel-coalition-netanyahu-bennett.html?searchResultPosition=1
+**‘Spirit Untamed’ Review: Horse Girls Unite**\
+`This spinoff of “Spirit: Stallion of the Cimarron” is a bland, bubbly romp through the Wild West, with a heavy dose of girl power.`\
+https://nytimes.com/2021/06/03/movies/spirit-untamed-review.html?searchResultPosition=1
 
-**Inside the Texas Legislature**\
-`Why did lawmakers in a state growing less Republican embark on the most ultraconservative legislative session in modern memory?`\
-https://nytimes.com/2021/06/03/podcasts/the-daily/texas-legislature-voting-rights-conservatism.html?searchResultPosition=2
+**It’s Not Your Imagination: Baseball Players Are Getting Hurt a Lot**\
+`Even accounting for virus-related stints, trips to the injured list are up as the sport lags behind others in injury prevention.`\
+https://nytimes.com/2021/06/03/sports/baseball/its-not-your-imagination-baseball-players-are-getting-hurt-a-lot.html?searchResultPosition=2
 
-**Day X, Part 2: In the Stomach**\
-`To understand the far-right extremism still lurking in Germany’s shadows, we talk with two of the alleged targets of a plot to kill.`\
-https://nytimes.com/2021/06/03/podcasts/day-x-franco-a-german-extremism.html?searchResultPosition=3
+**United Airlines Wants to Bring Back Supersonic Air Travel**\
+`The airline, which plans to buy planes from Boom Supersonic, a start-up, could become the first to offer ultrafast commercial flights since the Concorde stopped flying in 2003.`\
+https://nytimes.com/2021/06/03/business/economy/united-supersonic-planes-boom.html?searchResultPosition=3
 
-**China Suspends Ultramarathons After Death of 21 Runners**\
-`Some relatives of the runners who died in an recent race are quietly asking whether their loved ones could have been saved.`\
-https://nytimes.com/2021/06/03/world/asia/china-ultramarathon-deaths.html?searchResultPosition=4
+**‘All Light, Everywhere’ Review: Watching the Watchers**\
+`Theo Anthony’s new documentary surveys the history and ethics of surveillance.`\
+https://nytimes.com/2021/06/03/movies/all-light-everywhere-review.html?searchResultPosition=4
 
-**Tasked to Fight Climate Change, a Secretive U.N. Agency Does the Opposite**\
-`Behind closed doors, shipbuilders and miners can speak on behalf of governments while regulating an industry that pollutes as much as all of America’s coal plants.`\
-https://nytimes.com/2021/06/03/world/europe/climate-change-un-international-maritime-organization.html?searchResultPosition=5
+**‘Undine’ Review: Love In and Out of the Water**\
+`Paula Beer and Franz Rogowski, who made an impression in 2019’s “Transit,” are reunited by the director Christian Petzold for this adaptation of a European myth.`\
+https://nytimes.com/2021/06/03/movies/undine-review.html?searchResultPosition=5
 
-**A Law Student Mocked the Federalist Society. It Jeopardized His Graduation.**\
-`The Stanford student sent a satirical flier that drew a complaint from the conservative group. The university then placed a hold on his diploma.`\
-https://nytimes.com/2021/06/03/us/stanford-federalist-society-nicholas-wallace.html?searchResultPosition=6
+**‘City of Ali’ Review: A Final Round for a Champ**\
+`This documentary makes for an extremely minor addition to the Muhammad Ali cinematic universe.`\
+https://nytimes.com/2021/06/03/movies/city-of-ali-review.html?searchResultPosition=6
 
-**Standout Moments from the First In-Person Democratic Debate**\
-`Here are a few things to know about the biggest clashes among candidates for mayor as they attacked one another in more personal terms.`\
-https://nytimes.com/2021/06/03/nyregion/moments-from-debate.html?searchResultPosition=7
+**‘Chasing Wonders’ Review: Divining Secrets of a Past Vintage**\
+`A young man tries to learn why his family left Spain for Australia in this picturesque drama with Edward James Olmos, Paz Vega and Carmen Maura.`\
+https://nytimes.com/2021/06/03/movies/chasing-wonders-review.html?searchResultPosition=7
 
-**Vienna’s Stages Reopen, With Schmaltz and Cynicism**\
-`Works by Austrian writers performed in the city’s playhouses run a gamut from sentimental to incomprehensible.`\
-https://nytimes.com/2021/06/03/arts/vienna-theater-reopen.html?searchResultPosition=8
+**‘Tove’ Review: The Life of a Sharp Illustrator in Soft Focus**\
+`This biopic examines the creator of the Moomins, Tove Jansson, but it skimps on artistic insight in favor of unsatisfying romances.`\
+https://nytimes.com/2021/06/03/movies/tove-review.html?searchResultPosition=8
 
-**About 10,000 volunteers for the Tokyo Olympics have quit, organizers say.**\
-`The departures were the latest sign of opposition among the Japanese public to hosting the Games during the pandemic.`\
-https://nytimes.com/2021/06/03/world/asia/japan-tokyo-olympics-volunteers-covid.html?searchResultPosition=9
+**‘Slow Machine’ Review: What Do Paranoid Actresses Dream Of?**\
+`Joe DeNardo and Paul Felten craft a mysterious New York thriller with mumblecore sensibilities.`\
+https://nytimes.com/2021/06/03/movies/slow-machine-review.html?searchResultPosition=9
 
-**The Disease Detective**\
-`Joe DeRisi invented a way to find pathogens that scientists didn’t even know to look for. Can it help prevent the next pandemic?`\
-https://nytimes.com/2021/06/03/magazine/metagenomic-sequencing.html?searchResultPosition=10
+**‘The Conjuring: The Devil Made Me Do It’ Review: Church, Meet State**\
+`In the third “Conjuring” movie, Ed and Lorraine Warren tirelessly work to convince a court of law — thus, the audience — that Satanism exists.`\
+https://nytimes.com/2021/06/03/movies/the-conjuring-the-devil-made-me-do-it-review.html?searchResultPosition=10
 
