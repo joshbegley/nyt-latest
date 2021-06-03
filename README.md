@@ -24,7 +24,7 @@ https://nytimes.com/2021/06/03/world/europe/italy-covid-vaccines-migrants.html?s
 
 **Libyan Fighters Attacked by a Potentially Unaided Drone, U.N. Says**\
 `A United Nations report suggested that a drone, used against militia fighters in Libya’s civil war, may have selected a target autonomously.`\
-https://nytimes.com/2021/06/03/world/africa/kargu-2-drone-attack.html?searchResultPosition=7
+https://nytimes.com/2021/06/03/world/africa/libya-drone.html?searchResultPosition=7
 
 **‘Bad Tales’ Review: Suburban Dysfunction, Italian Style**\
 `The new film from the D’Innocenzo brothers is stocked with unhappy families and unfortunate haircuts.`\
