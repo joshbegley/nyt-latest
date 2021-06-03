@@ -6,13 +6,13 @@ https://nytimes.com/2021/06/03/us/ufos-report.html?searchResultPosition=1
 `Even accounting for virus-related stints, trips to the injured list are up as the sport lags behind others in injury prevention.`\
 https://nytimes.com/2021/06/03/sports/baseball/mlb-soft-tissue-injuries.html?searchResultPosition=2
 
-**‘Spirit Untamed’ Review: Horse Girls Unite**\
-`This spinoff of “Spirit: Stallion of the Cimarron” is a bland, bubbly romp through the Wild West, with a heavy dose of girl power.`\
-https://nytimes.com/2021/06/03/movies/spirit-untamed-review.html?searchResultPosition=3
-
 **United Airlines Wants to Bring Back Supersonic Air Travel**\
 `The airline, which plans to buy planes from Boom Supersonic, a start-up, could become the first to offer ultrafast commercial flights since the Concorde stopped flying in 2003.`\
-https://nytimes.com/2021/06/03/business/economy/united-supersonic-planes-boom.html?searchResultPosition=4
+https://nytimes.com/2021/06/03/business/economy/united-airlines-supersonic-planes.html?searchResultPosition=3
+
+**‘Spirit Untamed’ Review: Horse Girls Unite**\
+`This spinoff of “Spirit: Stallion of the Cimarron” is a bland, bubbly romp through the Wild West, with a heavy dose of girl power.`\
+https://nytimes.com/2021/06/03/movies/spirit-untamed-review.html?searchResultPosition=4
 
 **‘All Light, Everywhere’ Review: Watching the Watchers**\
 `Theo Anthony’s new documentary surveys the history and ethics of surveillance.`\
