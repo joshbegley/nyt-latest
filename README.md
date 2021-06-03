@@ -26,7 +26,7 @@ https://nytimes.com/2021/06/03/sports/golf/lpga-michelle-wie-us-open.html?search
 `The Boston Celtics tried in their first-round series but were too depleted to compete. The Nets’ next opponent, the Milwaukee Bucks, may have a better shot.`\
 https://nytimes.com/2021/06/03/sports/basketball/nets-celtics-takeaways.html?searchResultPosition=7
 
-**“You Can’t Run From the City … if You Want to Run the City”: Winners and Losers of New York’s Second Mayoral Debate**\
+**‘You Can’t Run From the City … if You Want to Run the City’: Winners and Losers of New York’s Second Mayoral Debate**\
 `Our columnists and contributors give their rankings.`\
 https://nytimes.com/2021/06/02/opinion/nyc-mayor-debate-who-won.html?searchResultPosition=8
 
