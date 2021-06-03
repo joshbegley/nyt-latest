@@ -1,4 +1,4 @@
-**Libyan Fighters Attacked by a Potentially Unaided Drone, U.N. says**\
+**Libyan Fighters Attacked by a Potentially Unaided Drone, U.N. Says**\
 `A United Nations report suggested that a drone, used against militia fighters in Libya’s civil war, may have selected a target autonomously.`\
 https://nytimes.com/2021/06/03/world/africa/kargu-2-drone-attack.html?searchResultPosition=1
 
