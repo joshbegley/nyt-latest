@@ -2,8 +2,8 @@
 `11 cities, 24 teams and hundreds of headaches: The European soccer championship is here after a year’s delay. Here’s what you need to know.`\
 https://nytimes.com/article/euro-2020-schedule-times.html?searchResultPosition=1
 
-**Injury Forces Ashleigh Barty to Withdraw From French Open**\
-`Barty, the world’s No. 1 female tennis player, had to leave the court for medical treatment during her second-round match.`\
+**Hip Injury Forces Ashleigh Barty Out French Open**\
+`Barty, the world’s No. 1 tennis player, had to leave the court for medical treatment during her second-round match.`\
 https://nytimes.com/2021/06/03/sports/tennis/ashleigh-barty-french-open-withdraw.html?searchResultPosition=2
 
 **Why Are We All Talking About U.F.O.s Right Now?**\
