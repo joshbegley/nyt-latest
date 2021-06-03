@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/02/sports/basketball/knicks-hawks-eliminated.html?se
 https://nytimes.com/2021/06/02/crosswords/daily-puzzle-06-03.html?searchResultPosition=7
 
 **Crime and Qualifications at Issue in Heated N.Y.C. Mayoral Debate**\
-`The eight Democratic contenders jousted in contentious exchanges over the fundamental question of who among them was qualified to run New York City.`\
+`The eight Democratic contenders jousted over the economy, education and the fundamental question of who among them was qualified to run New York City.`\
 https://nytimes.com/2021/06/02/nyregion/mayoral-debate-nyc.html?searchResultPosition=8
 
 **N.Y.C. Mayoral Candidates Clash Over Policing**\
