@@ -1,10 +1,10 @@
-**‘Spirit Untamed’ Review: Horse Girls Unite**\
-`This spinoff of “Spirit: Stallion of the Cimarron” is a bland, bubbly romp through the Wild West, with a heavy dose of girl power.`\
-https://nytimes.com/2021/06/03/movies/spirit-untamed-review.html?searchResultPosition=1
-
 **It’s Not Your Imagination: Baseball Players Are Getting Hurt a Lot**\
 `Even accounting for virus-related stints, trips to the injured list are up as the sport lags behind others in injury prevention.`\
-https://nytimes.com/2021/06/03/sports/baseball/its-not-your-imagination-baseball-players-are-getting-hurt-a-lot.html?searchResultPosition=2
+https://nytimes.com/2021/06/03/sports/baseball/mlb-soft-tissue-injuries.html?searchResultPosition=1
+
+**‘Spirit Untamed’ Review: Horse Girls Unite**\
+`This spinoff of “Spirit: Stallion of the Cimarron” is a bland, bubbly romp through the Wild West, with a heavy dose of girl power.`\
+https://nytimes.com/2021/06/03/movies/spirit-untamed-review.html?searchResultPosition=2
 
 **United Airlines Wants to Bring Back Supersonic Air Travel**\
 `The airline, which plans to buy planes from Boom Supersonic, a start-up, could become the first to offer ultrafast commercial flights since the Concorde stopped flying in 2003.`\
