@@ -18,7 +18,7 @@ https://nytimes.com/2021/06/03/nyregion/andrew-yang-eric-adams-nyc-mayor-debate.
 `More than 6,900 households have been severely affected by flooding across the small South American country in the past several weeks, according to official estimates.`\
 https://nytimes.com/2021/06/03/us/severe-flooding-prompts-extensive-relief-effort-in-guyana.html?searchResultPosition=5
 
-**Mike Krzyzewski’s Finish at Duke Comes On His Terms**\
+**Mike Krzyzewski’s Finish at Duke Comes on His Terms**\
 `Some signs that the end might be near came last season. But Krzyzewski has remained steadfast in his program’s tenets even as his teams adapted to the game.`\
 https://nytimes.com/2021/06/03/sports/ncaabasketball/mike-krzyzewski-duke.html?searchResultPosition=6
 
