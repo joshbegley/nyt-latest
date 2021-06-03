@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/03/podcasts/the-daily/texas-legislature-voting-right
 https://nytimes.com/2021/06/03/podcasts/day-x-franco-a-german-extremism.html?searchResultPosition=2
 
 **China Suspends Ultramarathons After Death of 21 Runners**\
-`Some relatives of the 21 runners who died in an ultramarathon last month are quietly asking whether their loved ones could have been saved.`\
+`Some relatives of the runners who died in an recent race are quietly asking whether their loved ones could have been saved.`\
 https://nytimes.com/2021/06/03/world/asia/china-ultramarathon-deaths.html?searchResultPosition=3
 
 **Tasked to Fight Climate Change, a Secretive U.N. Agency Does the Opposite**\
