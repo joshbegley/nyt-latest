@@ -1,40 +1,40 @@
-**The jobs report may signal whether workers are staying on the sidelines.**\
-`Many employers report having trouble finding applicants. Economists say the labor market may simply need time to get sorted out.`\
-https://nytimes.com/2021/06/04/business/jobs-report-may-2021.html?searchResultPosition=1
+**A safe return to U.S. schools seems closer with vaccines and testing improvements.**\
+`Until vaccines are approved for children of all ages, rapid antigen testing could be critical for a return to in-person learning.`\
+https://nytimes.com/2021/06/04/us/covid-schools-in-person-learning.html?searchResultPosition=1
 
-**The Guardians of Australia’s Memory Try Crowdfunding**\
-`The National Archives’ funding crisis has sparked a discussion about whether we undervalue our country’s history.`\
-https://nytimes.com/2021/06/04/world/australia/the-guardians-of-australias-memory-try-crowdfunding.html?searchResultPosition=2
+**What Has Four Legs, a Trunk and a Behavioral Database?**\
+`From tens of thousands of hours of observation, scientists have compiled a detailed library of African elephant behavior.`\
+https://nytimes.com/2021/06/04/science/african-elephants-ethogram-behavior-poole.html?searchResultPosition=2
 
-**New Zealand Court Clears Way for Murder Suspect’s Extradition to China**\
-`The Supreme Court insisted on assurances from Beijing that the man, accused of killing a Chinese woman in 2009, would not be tortured and would get a fair trial.`\
-https://nytimes.com/2021/06/04/world/asia/new-zealand-extradition-china.html?searchResultPosition=3
+**The Hunt for Clarity About van Gogh’s Last Days Leads to Maine**\
+`Experts are examining a watercolor found in an antiques shop that may be a rare work by Edmund Walpole Brooke, who painted with van Gogh during his final months.`\
+https://nytimes.com/2021/06/04/arts/van-gogh-painting-maine.html?searchResultPosition=3
 
-**For These Guys, a Face-Lift Is Like a Car Tuneup**\
-`Some men, unhappy with their Zoom faces, got fillers, Botox and plastic surgery during the pandemic.`\
-https://nytimes.com/2021/06/04/style/for-these-guys-a-face-lift-is-like-a-car-tuneup.html?searchResultPosition=4
+**A Rogue Climber Running From the Law Was Fleeing His Own Trauma**\
+`A former paratrooper became an “urban explorer,” scaling the tops of bridges and buildings to help ease his PTSD. He now faces criminal charges in several states.`\
+https://nytimes.com/2021/06/04/us/isaac-wright-driftershoots-ptsd.html?searchResultPosition=4
 
-**Lakers Eliminated from Playoffs With Game 6 Loss to Suns**\
-`The Los Angeles Lakers, the defending N.B.A. champions led by LeBron James, struggled with injuries all season.`\
-https://nytimes.com/2021/06/04/sports/basketball/nba-lakers-suns-eliminated-lebron-james.html?searchResultPosition=5
+**Buildings With Sections that Seem to Hover in Midair**\
+`Cantilevered towers help deal with space limitations in New York City. They start narrow at the street but expand as they rise, more lollipop than traditional wedding cake.`\
+https://nytimes.com/2021/06/04/realestate/cantilever-skyscraper.html?searchResultPosition=5
 
-**Subdued but Not Silenced, Hong Kong Tries to Remember Tiananmen Massacre**\
-`Officials have banned the annual June 4 vigil, as a new security law looms over commemorations of the 1989 crackdown. Hong Kongers wonder how long the memory will remain.`\
-https://nytimes.com/2021/06/04/world/asia/china-tiananmen-massacre.html?searchResultPosition=6
+**What the Covid Rookies Saw**\
+`As coronavirus tore through New York, a group of medical students graduated early to help the hospitals under siege and found courage they didn’t know they had.`\
+https://nytimes.com/2021/06/04/opinion/covid-new-doctors-healthcare-workers.html?searchResultPosition=6
 
-**Expert Picks: Who Will Win the Belmont Stakes?**\
-`Joe Drape and Melissa Hoppert weighed in on the contenders for the 153rd Belmont Stakes on Saturday.`\
-https://nytimes.com/2021/06/04/sports/belmont-stakes-picks-odds-predictions.html?searchResultPosition=7
+**How an ‘Open Streets’ Operative Spends His Sundays**\
+`Kyle Gorman spends much of the day touring parts of the city that are participating in the popular outdoor program.`\
+https://nytimes.com/2021/06/04/nyregion/how-an-open-streets-operative-spends-his-sundays.html?searchResultPosition=7
 
-**Oh, Dewey, Where Would You Put Me?**\
-`A librarian who identifies as queer wrestles with our tendency to classify both books and people.`\
-https://nytimes.com/2021/06/04/style/modern-love-oh-dewey-where-would-you-put-me.html?searchResultPosition=8
+**Want More Diverse Conductors? Orchestras Should Look to Assistants.**\
+`At top American ensembles, young assistant conductors are a far more varied group than the reigning music directors. How can the next generation come to power?`\
+https://nytimes.com/2021/06/04/arts/music/orchestras-diversity.html?searchResultPosition=8
 
-**Your Friday Briefing**\
-`Italy’s uneven vaccine coverage.`\
-https://nytimes.com/2021/06/03/briefing/italy-vaccinations-shipping-facebook.html?searchResultPosition=9
+**Far From Paris, the Pompidou Plans an Outpost in Jersey City**\
+`Out: the Metro and the Seine. In: the PATH and the Hudson. The Pompidou Center plans to open its first North American satellite museum in a renovated industrial building.`\
+https://nytimes.com/2021/06/04/arts/design/pompidou-center-jersey-city.html?searchResultPosition=9
 
-**Corrections: June 4, 2021**\
-`Corrections that appeared in print on Friday, June 4, 2021.`\
-https://nytimes.com/2021/06/03/pageoneplus/corrections-june-4-2021.html?searchResultPosition=10
+**A Historic Moment for Israeli Arabs, but With a Question Mark**\
+`An Arab party’s decision to join a right-leaning Israeli government would be an important, if uncertain, step toward inclusion rather than perpetual opposition.`\
+https://nytimes.com/2021/06/04/world/middleeast/raam-palestinian-israel-government.html?searchResultPosition=10
 
