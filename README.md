@@ -2,7 +2,7 @@
 `Friday: As California reopens, lawmakers are trying to preserve coronavirus pandemic measures that have worked well.`\
 https://nytimes.com/2021/06/04/us/outdoor-dining-covid-california.html?searchResultPosition=1
 
-**A Pro E-sports Team Is Getting $210 Million to Change Its Name**\
+**A Pro E-Sports Team Is Getting $210 Million to Change Its Name**\
 `The deal between TSM, which fields competitive video game teams, and the Hong Kong-based FTX exchange, rivals the kinds of deals top sports franchises land to name arenas and stadiums.`\
 https://nytimes.com/2021/06/04/sports/esports-name-change-tsm-ftx.html?searchResultPosition=2
 
