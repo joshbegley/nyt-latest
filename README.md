@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2021/06/04/arts/design/bronte-sothebys-auction.h
 `Six years after they were first reported, debilitating neurological symptoms have shaken the province of New Brunswick and still have doctors in Canada stumped.`\
 https://nytimes.com/2021/06/04/world/canada/canada-brain-disease-mystery.html?searchResultPosition=4
 
-**President Biden calls May’s job gains ‘historic progress.’**\
+**President Biden praises ‘historic progress’ in job gains, crediting his policies.**\
 `But hiring in May fell short of analyst expectations for the second straight month, providing fodder for Republican critics of the president.`\
 https://nytimes.com/2021/06/04/business/biden-economy-jobs.html?searchResultPosition=5
 
