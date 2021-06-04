@@ -10,13 +10,13 @@ https://nytimes.com/2021/06/04/realestate/building-a-cantilever.html?searchResul
 `Until vaccines are approved for children of all ages, rapid antigen testing could be critical for a return to in-person learning.`\
 https://nytimes.com/2021/06/04/us/covid-schools-in-person-learning.html?searchResultPosition=3
 
-**What Has Four Legs, a Trunk and a Behavioral Database?**\
-`From tens of thousands of hours of observation, scientists have compiled a detailed library of African elephant behavior.`\
-https://nytimes.com/2021/06/04/science/african-elephants-ethogram-behavior-poole.html?searchResultPosition=4
-
 **The Hunt for Clarity About van Gogh’s Last Days Leads to Maine**\
 `Experts are examining a watercolor found in an antiques shop that may be a rare work by Edmund Walpole Brooke, who painted with van Gogh during his final months.`\
-https://nytimes.com/2021/06/04/arts/van-gogh-painting-maine.html?searchResultPosition=5
+https://nytimes.com/2021/06/04/arts/van-gogh-painting-maine.html?searchResultPosition=4
+
+**What Has Four Legs, a Trunk and a Behavioral Database?**\
+`From tens of thousands of hours of observation, scientists have compiled a detailed library of African elephant behavior.`\
+https://nytimes.com/2021/06/04/science/african-elephants-ethogram-behavior-poole.html?searchResultPosition=5
 
 **A Rogue Climber Running From the Law Was Fleeing His Own Trauma**\
 `A former paratrooper became an “urban explorer,” scaling the tops of bridges and buildings to help ease his PTSD. He now faces criminal charges in several states.`\
