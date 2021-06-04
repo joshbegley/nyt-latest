@@ -6,17 +6,17 @@ https://nytimes.com/2021/06/04/us/outdoor-dining-covid-california.html?searchRes
 `The deal between TSM, which fields competitive video game teams, and the Hong Kong-based FTX exchange, rivals the kinds of deals top sports franchises land to name arenas and stadiums.`\
 https://nytimes.com/2021/06/04/sports/esports-name-change-tsm-ftx.html?searchResultPosition=2
 
+**In ‘Little Birds,’ Anaïs Nin Erotica Gets a Revolutionary New Context**\
+`Created by the artist Sophia Al-Maria, the new series resituates Nin’s erotic short story collection in 1955 Morocco, a year before the country threw off its colonialist yoke.`\
+https://nytimes.com/2021/06/04/arts/television/little-birds-starz-anais-nin-sophia-almaria.html?searchResultPosition=3
+
 **Resales Begin at the Ultra-Pricey 220 Central Park South**\
 `A three-bedroom apartment sold for $33 million, which was New York City’s biggest closing during the month of May.`\
-https://nytimes.com/2021/06/04/realestate/top-nyc-real-estate-sales.html?searchResultPosition=3
+https://nytimes.com/2021/06/04/realestate/top-nyc-real-estate-sales.html?searchResultPosition=4
 
 **Tips for Teenagers on Landing a Summer Job**\
 `Openings abound now but may go quickly, so it’s wise to submit applications soon. And don’t wear jeans and a T-shirt to the interview.`\
-https://nytimes.com/2021/06/04/your-money/getting-a-summer-job.html?searchResultPosition=4
-
-**In ‘Little Birds,’ Anaïs Nin Erotica Gets a Revolutionary New Context**\
-`Created by the artist Sophia Al-Maria, the new series resituates Nin’s erotic short story collection in 1955 Morocco, a year before the country threw off its colonialist yoke.`\
-https://nytimes.com/2021/06/04/arts/television/little-birds-starz-anais-nin-sophia-almaria.html?searchResultPosition=5
+https://nytimes.com/2021/06/04/your-money/getting-a-summer-job.html?searchResultPosition=5
 
 **Inflation Is Real Enough to Take Seriously**\
 `While economists debate whether the current spike is “transitory” or longer lasting, investors may want to review their inflation playbook, just in case.`\
