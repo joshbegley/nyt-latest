@@ -1,6 +1,6 @@
 **The Fed wanted a string of strong jobs reports. It’s getting bumpy progress instead.**\
 `The labor market is healing, but in fits and starts, as the central bank tries to assess progress toward its goals and chart a course on policy.`\
-https://nytimes.com/2021/06/04/business/the-fed-wanted-a-string-of-strong-jobs-reports-its-getting-bumpy-progress-instead.html?searchResultPosition=1
+https://nytimes.com/2021/06/04/business/federal-reserve-jobs-report.html?searchResultPosition=1
 
 **A Push to Make Outdoor Dining Spaces Permanent**\
 `Friday: As California reopens, lawmakers are trying to preserve coronavirus pandemic measures that have worked well.`\
