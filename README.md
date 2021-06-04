@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/04/dining/weeknight-pasta-recipe.html?searchResultPo
 https://nytimes.com/2021/06/04/technology/microsoft-windows.html?searchResultPosition=4
 
 **Facebook Says Trump’s Ban Will Last at Least 2 Years**\
-`The decision puts a time frame on the former president’s suspension for the first time since Facebook cut him off in January.`\
+`The decision puts a time frame on the former president’s suspension, which was put in place after the Capitol riots in January.`\
 https://nytimes.com/2021/06/04/technology/facebook-trump-ban.html?searchResultPosition=5
 
 **In ‘Sweet Tooth,’ a Taste of Fantasy Rooted in Reality**\
