@@ -34,7 +34,7 @@ https://nytimes.com/2021/06/03/us/politics/pence-trump-systemic-racism.html?sear
 `Just eight of the top 16 women’s seeds at Roland Garros remained after Barty withdrew during the second round because of an injury, but the defending champion, Iga Swiatek, has looked very strong.`\
 https://nytimes.com/2021/06/03/sports/tennis/french-open-barty-osaka-federer-williams.html?searchResultPosition=9
 
-**Bill Ackman’s SPAC is close to a $40 billion deal with Universal Music**\
+**Bill Ackman’s SPAC is close to a deal valuing Universal Music at $40 billion.**\
 `It would be the largest special purpose acquisition company transaction to date.`\
 https://nytimes.com/2021/06/03/business/dealbook/universal-spac-ackman.html?searchResultPosition=10
 
