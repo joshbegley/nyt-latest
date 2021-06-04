@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2021/06/04/arts/design/bronte-sothebys-auction.h
 https://nytimes.com/2021/06/04/world/canada/canada-brain-disease-mystery.html?searchResultPosition=4
 
 **President Biden calls May’s job gains ‘historic progress.’**\
-`Hiring in May fell short of analyst expectations for the second straight month, providing fodder for Republican critics of the president.`\
+`But hiring in May fell short of analyst expectations for the second straight month, providing fodder for Republican critics of the president.`\
 https://nytimes.com/2021/06/04/business/biden-economy-jobs.html?searchResultPosition=5
 
 **What to Cook This Weekend**\
