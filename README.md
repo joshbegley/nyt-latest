@@ -1,6 +1,6 @@
 **The Guardians of Australia’s Memory Try Crowdfunding**\
 `The National Archives’ funding crisis has sparked a discussion about whether we undervalue our country’s history.`\
-https://nytimes.com/2021/06/04/world/asia/the-guardians-of-australias-memory-try-crowdfunding.html?searchResultPosition=1
+https://nytimes.com/2021/06/04/world/australia/the-guardians-of-australias-memory-try-crowdfunding.html?searchResultPosition=1
 
 **New Zealand Court Clears Way for Murder Suspect’s Extradition to China**\
 `The Supreme Court insisted on assurances from Beijing that the man, accused of killing a Chinese woman in 2009, would not be tortured and would get a fair trial.`\
