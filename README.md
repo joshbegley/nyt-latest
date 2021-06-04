@@ -35,6 +35,6 @@ https://nytimes.com/2021/06/04/world/canada/indigenous-music-summit.html?searchR
 https://nytimes.com/2021/06/04/sports/tennis/2021-french-open-what-to-watch-saturday.html?searchResultPosition=9
 
 **The Terrible Cost of Mark Zuckerberg’s Naïveté**\
-`The CEO -- and the rest of us -- are paying the price.`\
+`The C.E.O. — and the rest of us — are paying the price.`\
 https://nytimes.com/2021/06/04/opinion/zuckerberg-trump-facebook-jan-6.html?searchResultPosition=10
 
