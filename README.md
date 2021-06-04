@@ -1,40 +1,40 @@
+**What to Watch: Sports Shows**\
+`You can only watch so much sports on TV. After all, you need time to watch TV shows about sports, like these five series.`\
+https://nytimes.com/interactive/2021/06/04/arts/television/what-to-watch-sports-shows.html?searchResultPosition=1
+
 **Coronavirus Briefing: What Happened Today**\
 `Will the Olympics happen?`\
-https://nytimes.com/2021/06/04/us/coronavirus-today-olympics.html?searchResultPosition=1
+https://nytimes.com/2021/06/04/us/coronavirus-today-olympics.html?searchResultPosition=2
 
 **With a lottery wheel and gold lamé, California selected its first vaccinated prize winners.**\
 `The 15 recipients of $50,000 each were pulled from the state’s registry of residents who have received at least one Covid vaccine dose.`\
-https://nytimes.com/2021/06/04/us/covid-vaccine-lottery-california.html?searchResultPosition=2
+https://nytimes.com/2021/06/04/us/covid-vaccine-lottery-california.html?searchResultPosition=3
 
 **Love Letter: A Real-Life Romance Novel**\
 `And: Finding pride in being queer.`\
-https://nytimes.com/2021/06/04/style/love-letter-newsletter-a-real-life-romance-novel.html?searchResultPosition=3
+https://nytimes.com/2021/06/04/style/love-letter-newsletter-a-real-life-romance-novel.html?searchResultPosition=4
 
 **The 17 Best Recipes Our Food Staff Cooked Last Month**\
 `In May, it was all about bright, bold and bombastic flavors.`\
-https://nytimes.com/2021/06/04/dining/staff-cooked-recipes.html?searchResultPosition=4
+https://nytimes.com/2021/06/04/dining/staff-cooked-recipes.html?searchResultPosition=5
 
 **As Dictators Target Citizens Abroad, Few Safe Spaces Remain**\
 `For émigrés and exiles, pressure on families back home, social media intimidation, even kidnapping, have become a regular part of life.`\
-https://nytimes.com/2021/06/04/world/europe/repression-uyghurs-belarus.html?searchResultPosition=5
+https://nytimes.com/2021/06/04/world/europe/repression-uyghurs-belarus.html?searchResultPosition=6
 
 **Cardinal Offers Resignation Over Church Sexual Abuse**\
 `Cardinal Reinhard Marx, a leading figure in Germany’s Roman Catholic Church, said on Friday that he had offered his resignation to share in taking collective responsibility for sexual abuses by priests.`\
-https://nytimes.com/video/world/europe/100000007799171/cardinal-reinhard-marx-resign.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000007799171/cardinal-reinhard-marx-resign.html?searchResultPosition=7
 
 **Essential Strategies to Prevent Drowning**\
 `It’s an important safety issue to review every summer, and this may be an especially good moment to brush up.`\
-https://nytimes.com/2021/06/04/well/family/kids-drowning-prevention-tips.html?searchResultPosition=7
+https://nytimes.com/2021/06/04/well/family/kids-drowning-prevention-tips.html?searchResultPosition=8
 
 **What to Do This Weekend**\
 `Swimming pools and summer TV.`\
-https://nytimes.com/2021/06/04/at-home/newsletter.html?searchResultPosition=8
+https://nytimes.com/2021/06/04/at-home/newsletter.html?searchResultPosition=9
 
 **Teens Are Rarely Hospitalized With Covid, but Cases Can Be Severe**\
 `Adolescents were hospitalized with Covid three times as often as with flu, researchers reported. Nearly one-third wound up in I.C.U.s.`\
-https://nytimes.com/2021/06/04/health/coronavirus-teenagers-hospitalizations.html?searchResultPosition=9
-
-**Staples returns to Office Depot with a $1 billion offer for its consumer business.**\
-`By Lauren Hirsch`\
-https://nytimes.com/2021/06/04/business/staples-office-depot-deal.html?searchResultPosition=10
+https://nytimes.com/2021/06/04/health/coronavirus-teenagers-hospitalizations.html?searchResultPosition=10
 
