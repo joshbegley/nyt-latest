@@ -1,4 +1,4 @@
-**After a ‘Terrible Silence,’ Many of N.Y.C.’s Subway Musicians are Back**\
+**After a ‘Terrible Silence,’ Many of N.Y.C.’s Subway Musicians Are Back**\
 `After 14 months away, authorized performers returned to train platforms to play for a reduced ridership.`\
 https://nytimes.com/2021/06/04/nyregion/mta-nyc-subway-musicians.html?searchResultPosition=1
 
