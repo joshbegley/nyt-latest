@@ -1,5 +1,5 @@
 **Even LeBron James Isn’t Eternal**\
-`At 36, with his team’s future is in doubt, James faces basketball mortality.`\
+`At 36, with his team’s future in doubt, James faces basketball mortality.`\
 https://nytimes.com/2021/06/04/sports/basketball/nba-lakers-lebron-james.html?searchResultPosition=1
 
 **McGahn is set to testify about Trump’s efforts to obstruct the Russia inquiry.**\
