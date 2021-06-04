@@ -1,6 +1,6 @@
 **Sometimes the Grass Really Is Greener at Another Job**\
 `A list of pros and cons works in most situations, but there are no pros to telling your boss about your co-worker’s old D.U.I.`\
-https://nytimes.com/2021/06/04/business/sometimes-the-grass-really-is-greener-at-another-job.html?searchResultPosition=1
+https://nytimes.com/2021/06/04/business/roxane-gay-work-friend-job-change.html?searchResultPosition=1
 
 **Five International Movies to Stream Right Now**\
 `Explore the world on your screen with these new selections.`\
