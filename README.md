@@ -24,7 +24,7 @@ https://nytimes.com/2021/06/04/world/middleeast/iran-drones-iraq.html?searchResu
 
 **Black and Hispanic women are still behind as jobs rebound.**\
 `The labor market recovery is uneven. Teenagers are flooding back into jobs, while those older than 55 are less likely to work than before the pandemic.`\
-https://nytimes.com/2021/06/04/business/economy/black-and-hispanic-women-are-still-behind-as-jobs-rebound.html?searchResultPosition=7
+https://nytimes.com/2021/06/04/business/economy/black-hispanic-women-jobs.html?searchResultPosition=7
 
 **The Impressionist Art of Seeing and Being Seen**\
 `It looks like a gentle scene of a seaside vacation. But this painting by Berthe Morisot, perhaps the most underrated Impressionist, is a layered vision of a dawning modern age.`\
