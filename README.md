@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/05/business/economy/unemployment-benefits-cutoff.htm
 https://nytimes.com/2021/06/05/nyregion/LEAF-Flower-Show-NYC.html?searchResultPosition=7
 
 **As Vaccines Turn Pandemic’s Tide, U.S. and Europe Diverge on Path Forward**\
-`While America has essentially lifted all rules for those who are vaccinated, the emergence of a new variant is leading Britain and the E.U. to move with more caution.`\
+`The split is particularly stark in Britain, which is facing the spread of a new variant, while America has essentially lifted all rules for people who are vaccinated.`\
 https://nytimes.com/2021/06/05/world/europe/us-covid-vaccines.html?searchResultPosition=8
 
 **The End of the Wonder Rug**\
