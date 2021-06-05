@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/04/us/politics/ransomware-cyberattacks-sept-11-fbi.h
 https://nytimes.com/2021/06/04/us/black-lives-matter.html?searchResultPosition=7
 
 **At U.S. Women’s Open, a 17-Year-Old Amateur Puts Herself in Contention**\
-`Megha Ganne seemed at ease as she moved to the top of the leaderboard during her second round at the Olympic Club. She held a share of first place after the early wave of competitors finished.`\
+`Megha Ganne seemed at ease during her second round at the Olympic Club, and she finished the day with a share of third place.`\
 https://nytimes.com/2021/06/04/sports/golf/us-womens-open-megha-ganne.html?searchResultPosition=8
 
 **Patrick Sky, ’60s Folk Star and Later a Piper, Dies at 80**\
