@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/05/business/dealbook/voting-rights-companies.html?se
 https://nytimes.com/2021/06/05/world/asia/olympics-japan-lgbtq.html?searchResultPosition=7
 
 **Finance Leaders Reach Global Tax Deal Aimed at Ending Profit Shifting**\
-`The Group of 7 nations reached an agreement over a global minimum tax that companies would pay regardless of where they are based.`\
+`The Group of 7 nations agreed to back a new minimum global minimum tax rate that companies would have to pay regardless of where they are based.`\
 https://nytimes.com/2021/06/05/us/politics/g7-global-tax-deal.html?searchResultPosition=8
 
 **Microsoft’s Bing Briefly Blocked ‘Tank Man’ on Tiananmen Anniversary**\
