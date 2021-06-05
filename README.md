@@ -14,7 +14,7 @@ https://nytimes.com/2021/06/05/science/ai-woebot-deroy-empathy.html?searchResult
 `The remains of Nathan Bedford Forrest, a slave trader and leader of the Ku Klux Klan, will be moved from Memphis to a Confederate museum 200 miles away.`\
 https://nytimes.com/2021/06/05/us/memphis-nathan-bedford-forrest-remains.html?searchResultPosition=4
 
-**On Voting Rights, it Can Cost Companies to Take Both Sides**\
+**On Voting Rights, It Can Cost Companies to Take Both Sides**\
 `Investors are on alert for companies that take one position and make donations that support another.`\
 https://nytimes.com/2021/06/05/business/dealbook/voting-rights-companies.html?searchResultPosition=5
 
