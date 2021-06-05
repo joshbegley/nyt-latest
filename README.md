@@ -1,6 +1,6 @@
 **Alzheimer’s Drug Poses a Dilemma for the F.D.A.**\
 `If the agency approves it, aducanumab would be the first new Alzheimer’s treatment since 2003. Patients are desperate for new options, but some scientists say there isn’t enough evidence it works.`\
-https://nytimes.com/2021/06/05/health/alzheimers-drug-poses-a-dilemma-for-the-fda.html?searchResultPosition=1
+https://nytimes.com/2021/06/05/health/alzheimers-aducanumab-fda.html?searchResultPosition=1
 
 **Thousands Descend on Miami to Glorify Bitcoin**\
 `It was the largest Bitcoin event in the world and the first major in-person crypto conference since the pandemic started. The jargon, the liquor and the millionaire talk flowed.`\
