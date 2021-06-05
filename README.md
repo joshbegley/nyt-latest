@@ -1,40 +1,40 @@
-**Election in East Germany Will Test the Far Right’s Power**\
-`Voting on Sunday may hint at how strong the Alternative for Germany party is in the east, and what that means for national elections in September.`\
-https://nytimes.com/2021/06/05/world/europe/germany-election-afd-saxony-anhalt-merkel.html?searchResultPosition=1
+**After Lavish Nights of Clubbing in Bangkok, a Covid Outbreak**\
+`Thailand went for months without a single confirmed case of local transmission, but the epidemic has now radiated from nightclubs to areas where social distancing is all but impossible.`\
+https://nytimes.com/2021/06/05/world/asia/thailand-covid-clubs.html?searchResultPosition=1
 
-**What to Know About the 153rd Belmont Stakes**\
-`The post time for the race is 6:49 p.m. Eastern time on Saturday. A Triple Crown will not be at stake.`\
-https://nytimes.com/2021/06/05/sports/horse-racing/belmont-stakes-2021.html?searchResultPosition=2
+**Meet the People Who Make New York City’s Summer Hustle Happen**\
+`After a stalled season last year, the beach buskers, bait sellers and heladeros embody the spirit of a city scrambling back.`\
+https://nytimes.com/2021/06/05/nyregion/nyc-summer-business.html?searchResultPosition=2
 
-**The Best Investment of All: The People You Love the Most**\
-`If you’re emerging from the pandemic in better financial shape than before, ask yourself this: What will you spend to renew your bonds, and how will you do it?`\
-https://nytimes.com/2021/06/05/your-money/best-investment-people-you-love.html?searchResultPosition=3
+**Pandemic or Not, Proms Are Back**\
+`Four California high schools. Four Covid-influenced proms. The more rituals of growing up change, the more they stay the same.`\
+https://nytimes.com/2021/06/05/us/high-school-prom-covid.html?searchResultPosition=3
 
-**Federal Judge Overturns California’s 32-Year Assault Weapons Ban**\
-`The judge said the ban was a “failed experiment.” California’s governor called the ruling “a direct threat to public safety.”`\
-https://nytimes.com/2021/06/05/us/california-assault-weapons-ban.html?searchResultPosition=4
+**Are We Waiting for Everyone to Get Hacked?**\
+`It’s been almost a decade since Leon Panetta, then the secretary of defense, warned of an impending “Cyber Pearl Harbor.” He didn’t want to be right.`\
+https://nytimes.com/2021/06/05/business/leon-panetta-cyber-attacks.html?searchResultPosition=4
 
-**Corrections: June 5, 2021**\
-`Corrections that appeared in print on Saturday, June 5, 2021.`\
-https://nytimes.com/2021/06/04/pageoneplus/corrections-june-5-2021.html?searchResultPosition=5
+**Federal Unemployment Aid Is Now a Political Lightning Rod**\
+`Republican-led states are cutting off relief months ahead of schedule, citing openings aplenty. Some jobless workers face hardships and tough choices.`\
+https://nytimes.com/2021/06/05/business/economy/unemployment-benefits-cutoff.html?searchResultPosition=5
 
-**Quotation of the Day: Hong Kong Finds Its Ways to Honor Tiananmen**\
-`Quotation of the Day for Saturday, June 5, 2021.`\
-https://nytimes.com/2021/06/04/todayspaper/quotation-of-the-day-hong-kong-finds-its-ways-to-honor-tiananmen.html?searchResultPosition=6
+**Two Days, 100 Florists, 1 Million Flowers: A Festival Blooms in N.Y.C.**\
+`There’s a new event in town, inspired by the great flower shows of Europe. The timing couldn’t be better for struggling floral designers.`\
+https://nytimes.com/2021/06/05/nyregion/LEAF-Flower-Show-NYC.html?searchResultPosition=6
 
-**U.S. Waged Secret Legal Battle to Obtain Emails of 4 Times Reporters**\
-`The push began in the Trump administration and continued under President Biden, and the Justice Department obtained a gag order to keep it from public view.`\
-https://nytimes.com/2021/06/04/us/politics/times-reporter-emails-gag-order-trump-google.html?searchResultPosition=7
+**The End of the Wonder Rug**\
+`It sold the so-called Oriental rug to America’s middle class. But after nearly a century, the Karastan factory is shutting down.`\
+https://nytimes.com/2021/06/05/style/karastan-rugs-oriental-where-made.html?searchResultPosition=7
 
-**Climactic Court Moment**\
-`Peter Wentz runs us ragged with a slammin’ Saturday puzzle.`\
-https://nytimes.com/2021/06/04/crosswords/daily-puzzle-2021-06-05.html?searchResultPosition=8
+**As Vaccines Turn Pandemic’s Tide, U.S. and Europe Diverge on Path Forward**\
+`While America has essentially lifted all rules for those who are vaccinated, the emergence of a new variant is leading Britain and the E.U. to move with more caution.`\
+https://nytimes.com/2021/06/05/world/europe/us-covid-vaccines.html?searchResultPosition=8
 
-**That Brooks Koepka Feud Won’t Leave Bryson DeChambeau Alone**\
-`At the Memorial Tournament, where Koepka is not even playing, fan chants of “Brooks!” and Brooks-y!” followed DeChambeau as well as Jordan Spieth, who was playing in the same group.`\
-https://nytimes.com/2021/06/04/sports/golf/spieth-dechambeau-koepka-memorial-pga.html?searchResultPosition=9
+**Symone Is a Love Letter to Blackness and Queerness**\
+`“I had to learn to love my Blackness,” said the winner of this season's ‘RuPaul’s Drag Race.’ “I’ve learned to love my queerness. I had to learn to love myself.”`\
+https://nytimes.com/2021/06/05/style/symone-is-a-love-letter-to-blackness-and-queerness.html?searchResultPosition=9
 
-**Florida will no longer publish daily coronavirus reports.**\
-`By Isabella Grullón Paz`\
-https://nytimes.com/2021/06/04/world/florida-covid-19-cases-vaccine.html?searchResultPosition=10
+**As Life Slowed Down, They Got Creative**\
+`The actor and comedian Niecy Nash and her wife, Jessica Betts, a musician, reveal how crab legs, skinny dipping and therapy improved their life as newlyweds.`\
+https://nytimes.com/2021/06/05/style/as-life-slowed-down-they-got-creative.html?searchResultPosition=10
 
