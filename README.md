@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/05/nyregion/ferry-runs-aground-in-brooklyn.html?sear
 https://nytimes.com/2021/06/05/crosswords/daily-puzzle-2021-06-06.html?searchResultPosition=4
 
 **School District Agrees to Pay $3 Million After a Bullied Boy, 8, Killed Himself**\
-`Cincinnati Public Schools reached the settlement on Friday, more than three years after Gabriel Taye died by suicide.`\
+`Cincinnati Public Schools reached the settlement on Friday, more than four years after Gabriel Taye died by suicide.`\
 https://nytimes.com/2021/06/05/us/gabriel-taye-cincinnati-bullying.html?searchResultPosition=5
 
 **Raymond Donovan, 90, Dies; Labor Secretary Quit Under a Cloud**\
