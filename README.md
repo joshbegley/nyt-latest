@@ -1,5 +1,5 @@
 **Justice Dept. Obtained Gag Order on Times Executives in Secret Fight Over Email Logs**\
-`A push by prosecutors to secretly seize data about four Times reporters’ emails began in the Trump administration and continued under Biden.`\
+`A push by prosecutors to secretly seize data about four Times reporters’ emails began in the Trump administration and continued under President Biden.`\
 https://nytimes.com/2021/06/04/us/politics/times-reporter-emails-gag-order-trump-google.html?searchResultPosition=1
 
 **Climactic Court Moment**\
