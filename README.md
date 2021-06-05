@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/05/us/mask-mandate-kkk-coronavirus-pandemic.html?searchResultPosition=1
 
 **Yoshi Wada, Inventive Creator of Sound Worlds, Dies at 77**\
-`A member of the Fluxus movement of performance art, he incorporated disparate elements in his music, including bagpipes, plumber’s materials and electronics.`\
+`A member of the Fluxus performance art movement (and a contractor by trade), he incorporated bagpipes, electronics and, yes, plumber’s materials in his music.`\
 https://nytimes.com/2021/06/05/arts/music/yoshi-wada-dead.html?searchResultPosition=2
 
 **Workers Are Gaining Leverage Over Employers Right Before Our Eyes**\
