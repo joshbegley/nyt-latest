@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/05/opinion/sunday/kamala-harris-vp.html?searchResult
 https://nytimes.com/2021/06/05/opinion/sunday/trump-2024.html?searchResultPosition=6
 
 **Richard Rubenstein, 97, Dies; Theologian Challenged Ideas of God**\
-`A rabbi, educator and author of a landmark book, he asked, “How can Jews believe in an omnipotent, beneficent God after Auschwitz.”`\
+`A rabbi, educator and author of a landmark book, he asked, “How can Jews believe in an omnipotent, beneficent God after Auschwitz?”`\
 https://nytimes.com/2021/06/05/us/richard-rubenstein-dead.html?searchResultPosition=7
 
 **Cancel Culture Works. We Wouldn’t Have Marriage Equality Without It.**\
