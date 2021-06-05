@@ -2,7 +2,7 @@
 `It was the largest Bitcoin event in the world and the first major in-person crypto conference since the pandemic started. The jargon, the liquor and the millionaire talk flowed.`\
 https://nytimes.com/2021/06/05/technology/miami-worship-bitcoin.html?searchResultPosition=1
 
-**Maya Wiley Is Endorsed by Alexandria Ocasio-Cortez for Mayor**\
+**Alexandria Ocasio-Cortez Endorses Maya Wiley for N.Y.C. Mayor**\
 `Ms. Ocasio-Cortez’s endorsement on Saturday may cement Ms. Wiley as the left-wing standard-bearer in the New York City mayor’s race.`\
 https://nytimes.com/2021/06/05/nyregion/aoc-maya-wiley-endorsement-nyc-mayor.html?searchResultPosition=2
 
