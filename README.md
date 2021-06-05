@@ -6,9 +6,9 @@ https://nytimes.com/video/nyregion/100000007800475/ferry-runs-aground-brooklyn.h
 `Jennifer Brady, unable to play through pain caused by plantar fasciitis, had to retire from the third-round match after just one set and 19 minutes.`\
 https://nytimes.com/2021/06/05/sports/french-open-coco-gauff-jennifer-brady.html?searchResultPosition=2
 
-**Ferry Runs Aground in Brooklyn**\
-`A Seastreak ferry with about 100 on board ran aground near Bushwick Inlet Park in Brooklyn on Saturday, officials said. It was not immediately clear if there were injuries.`\
-https://nytimes.com/2021/06/05/nyregion/ferry-runs-aground-in-brooklyn.html?searchResultPosition=3
+**Ferry Runs Aground in Brooklyn, Injuring a Crew Member**\
+`A Seastreak ferry with about 100 on board ran aground near Bushwick Inlet Park in Brooklyn on Saturday, officials said.`\
+https://nytimes.com/2021/06/05/nyregion/ferry-runs-aground-in-brooklyn-injuring-a-crew-member.html?searchResultPosition=3
 
 **Olio**\
 `Ooh — Lucky you! Solving Robyn Weintraub’s Sunday debut (who knew?)!`\
