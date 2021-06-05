@@ -10,7 +10,7 @@ https://nytimes.com/2021/06/05/sports/horse-racing/belmont-stakes-2021.html?sear
 `If you’re emerging from the pandemic in better financial shape than before, ask yourself this: What will you spend to renew your bonds, and how will you do it?`\
 https://nytimes.com/2021/06/05/your-money/best-investment-people-you-love.html?searchResultPosition=3
 
-**Federal Judge Overturns California’s 3-Decade-Old Assault Weapons Ban**\
+**Federal Judge Overturns California’s 32-Year Assault Weapons Ban**\
 `The judge said the ban was a “failed experiment.” California’s governor called the ruling “a direct threat to public safety.”`\
 https://nytimes.com/2021/06/05/us/california-assault-weapons-ban.html?searchResultPosition=4
 
