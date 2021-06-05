@@ -22,9 +22,9 @@ https://nytimes.com/2021/06/05/us/politics/donald-trump-republican-convention-sp
 `The rising use of light-emitting diodes and the popularity of pickups and S.U.V.s have prompted complaints about the glare and intensity of headlights.`\
 https://nytimes.com/2021/06/05/business/led-hid-headlights-blinding.html?searchResultPosition=6
 
-**Attackers Kill Civilians in Burkina Faso**\
-`Burkina Faso’s government said that about 100 people were killed in the attack by armed assailants in the north of the country Friday night.`\
-https://nytimes.com/2021/06/05/world/africa/attackers-kill-civilians-in-burkina-faso.html?searchResultPosition=7
+**More than 100 People Killed in Attack in Burkina Faso**\
+`Burkina Faso’s government said that about 100 people were killed by armed assailants in the north of the country Friday night, in one the deadliest attacks in year.`\
+https://nytimes.com/2021/06/05/world/africa/more-than-100-people-killed-in-attack-in-burkina-faso.html?searchResultPosition=7
 
 **Nigeria Bans Twitter After President’s Tweet Is Deleted**\
 `The popular social media site had removed a post by President Muhammadu Buhari threatening secessionists in the southeast of the country.`\
