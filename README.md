@@ -1,4 +1,4 @@
-**Coca Gauff Catches a Break as Her French Open Run Continues**\
+**Coco Gauff Catches a Break as Her French Open Run Continues**\
 `Jennifer Brady, unable to play through pain caused by plantar fasciitis, had to retire from the third-round match after just one set and 19 minutes.`\
 https://nytimes.com/2021/06/05/sports/french-open-coco-gauff-jennifer-brady.html?searchResultPosition=1
 
