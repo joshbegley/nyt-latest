@@ -22,8 +22,8 @@ https://nytimes.com/2021/06/06/world/americas/nicaragua-daniel-ortega-crackdown.
 `The director of the Shin Bet, Nadav Argaman, made a rare public appeal amid fears that a new round of turmoil might disrupt attempts to form a new government.`\
 https://nytimes.com/2021/06/06/world/israel-security-chief-warning-incitement.html?searchResultPosition=6
 
-**Serena Williams’s French Open Run Comes to an End**\
-`Elena Rybakina defeated the 23-time Grand Slam tournament winner in straight sets, 6-3, 7-5, to move on to the quarterfinals at Roland Garros.`\
+**Serena Williams’s Difficult Season on Clay Catches Up to Her at the French Open**\
+`Elena Rybakina, the No. 21 seed from Kazakhstan, defeated the 23-time Grand Slam tournament winner in their fourth-round match, 6-3, 7-5.`\
 https://nytimes.com/2021/06/06/sports/tennis/2021-french-open-serena-williams.html?searchResultPosition=7
 
 **Mississippi has the country’s lowest vaccination rates. The governor says that’s not a problem.**\
