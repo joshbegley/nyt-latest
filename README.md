@@ -1,5 +1,5 @@
 **Movie Museum Rethinks Exhibitions in Response to a Changing World**\
-`The Academy Museum of Motion Pictures, opening in September, has redesigned its galleries in the wake of social movements like Black Lives Matter.`\
+`The Academy Museum of Motion Pictures, opening in September, has redesigned its galleries amid social movements like Black Lives Matter.`\
 https://nytimes.com/2021/06/06/movies/academy-museum-oscars-diversity.html?searchResultPosition=1
 
 **Homes That Sold for Around $750,000**\
