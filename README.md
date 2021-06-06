@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/06/business/fisher-price-baby-glider-recall.html?sea
 https://nytimes.com/video/world/europe/100000007800976/britain-portugal-travelers-quarantine.html?searchResultPosition=2
 
 **Clarence Williams III, a Star of ‘Mod Squad’ Is Dead at 81**\
-`He portrayed Linc Hayes, a hip undercover police officer with a perfect Afro, who was teamed with Peggy Lipton and Michael Cole.`\
+`He portrayed Linc Hayes, a hip undercover police officer who was teamed with Peggy Lipton and Michael Cole.`\
 https://nytimes.com/2021/06/06/obituaries/clarence-williams-iii-dead.html?searchResultPosition=3
 
 **Student Is Denied High School Diploma for Wearing Mexican Flag**\
