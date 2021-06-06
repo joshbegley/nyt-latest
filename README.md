@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/06/world/mississippi-covid-vaccination-rate.html?searchResultPosition=1
 
 **Once a Bastion of Free Speech, the A.C.L.U. Faces an Identity Crisis**\
-`An organization that has defended the First Amendment rights of Nazis and the Ku Klux Klan is rived by an internal debate over whether supporting progressive causes is more important.`\
+`An organization that has defended the First Amendment rights of Nazis and the Ku Klux Klan is split by an internal debate over whether supporting progressive causes is more important.`\
 https://nytimes.com/2021/06/06/us/aclu-free-speech.html?searchResultPosition=2
 
 **Republicans, Don’t Ignore the Evidence on ‘Labor Shortages’**\
