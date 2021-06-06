@@ -1,36 +1,40 @@
+**Martina Navratilova Has Plenty to Say**\
+`One of the most dominant players in tennis history, Navratilova was a cultural pioneer when the world wasn’t prepared for an outspoken lesbian. Finally, the world is catching up, and she’s still here.`\
+https://nytimes.com/2021/06/06/sports/martina-navratilova-french-open.html?searchResultPosition=1
+
+**U.S. Aid to Central America Hasn’t Slowed Migration. Can Kamala Harris?**\
+`A stark reality faces the vice president as she visits the region: Expanding aid programs have failed to stem migration.`\
+https://nytimes.com/2021/06/06/world/americas/central-america-migration-kamala-harris.html?searchResultPosition=2
+
+**The Cost of Being an ‘Interchangeable Asian’**\
+`At some top companies, Asian Americans are overrepresented in midlevel roles and underrepresented in leadership. The root of this workplace inequality could stem from the all-too-common experience of being confused for someone else.`\
+https://nytimes.com/2021/06/06/business/the-cost-of-being-an-interchangeable-asian.html?searchResultPosition=3
+
+**These Catholic Parishes Welcome New York’s L.G.B.T.Q. Community**\
+`Many of New York City’s most outwardly gay-friendly parishes are concentrated in Manhattan, a center of both gay culture and efforts to build a gay-friendly Catholicism.`\
+https://nytimes.com/2021/06/06/nyregion/gay-parish-new-york-city.html?searchResultPosition=4
+
+**‘I Wasn’t Quite Finished With the Cigarette When My Car Pulled Up’**\
+`Getting through a low moment, embracing an alternate-side lifestyle and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2021/06/06/nyregion/metropolitan-diary.html?searchResultPosition=5
+
+**Biden Is Embracing Europe, but Then What? NATO and the E.U. Have Concerns.**\
+`After the Trump trauma, Europe will welcome Biden’s warm words, but tough topics remain, from China and Russia to trade disputes, Covid-19 vaccine diplomacy and transitions to carbon-neutral economies.`\
+https://nytimes.com/2021/06/06/world/europe/biden-nato-eu-trump.html?searchResultPosition=6
+
 **With Pride on the Line, U.S.A. Baseball Qualifies for Olympics**\
 `A mix of unemployed veterans and minor league prospects propelled the United States to a 4-0 record in the Americas Qualifier.`\
-https://nytimes.com/2021/06/06/sports/baseball/usa-olympics.html?searchResultPosition=1
+https://nytimes.com/2021/06/06/sports/baseball/usa-olympics.html?searchResultPosition=7
 
 **Boy, 10, Is Killed in Queens Shooting**\
 `A 29-year-old man was also injured by gunfire at a house in the Edgemere neighborhood of the Rockaways, the police said.`\
-https://nytimes.com/2021/06/06/nyregion/queens-shooting.html?searchResultPosition=2
+https://nytimes.com/2021/06/06/nyregion/queens-shooting.html?searchResultPosition=8
 
 **Corrections: June 6, 2021**\
 `Corrections that appeared in print on Sunday, June 6, 2021.`\
-https://nytimes.com/2021/06/06/pageoneplus/corrections-june-6-2021.html?searchResultPosition=3
+https://nytimes.com/2021/06/06/pageoneplus/corrections-june-6-2021.html?searchResultPosition=9
 
 **Floyd Mayweather vs. Logan Paul: What to Watch in the Fight**\
 `Here’s what to keep an eye on as the undefeated boxer Floyd Mayweather Jr. takes on the social media star Logan Paul in an exhibition in Florida.`\
-https://nytimes.com/2021/06/06/sports/mayweather-vs-paul-logan-date-time-ppv-price.html?searchResultPosition=4
-
-**Hernandez Snaps Hitless Skid in Win Over Yankees**\
-`Kiké Hernandez was hitless in 27 straight at-bats before putting Boston ahead in the eighth as the Red Sox came back to win — again.`\
-https://nytimes.com/2021/06/05/sports/baseball/yankees-red-sox.html?searchResultPosition=5
-
-**Jon Rahm Withdraws From Memorial Tournament After Positive Coronavirus Test**\
-`The golfer broke down in tears when he was told that he had tested positive. He had just finished the third round with a six-shot lead.`\
-https://nytimes.com/2021/06/05/sports/golf/jon-rahm-memorial-covid-coronavirus.html?searchResultPosition=6
-
-**Federer Escapes With a Win in a French Open Night Match**\
-`Still, he expressed doubt about his ability to play his fourth-round match Monday against Matteo Berrettini.`\
-https://nytimes.com/2021/06/05/sports/tennis/french-open-roger-federer.html?searchResultPosition=7
-
-**John M. Patterson, Segregationist Alabama Governor, Dies at 99**\
-`He welcomed the Klan and refused to integrate schools, forging a path that would be followed by Gov. George C. Wallace.`\
-https://nytimes.com/2021/06/05/us/politics/john-patterson-dead.html?searchResultPosition=9
-
-**A Gun Rights Win in California With Sights Set on the Supreme Court**\
-`A federal judge overturned California’s assault weapons ban. State officials vowed to win on appeal, but gun advocates are emboldened by a shifting Supreme Court.`\
-https://nytimes.com/2021/06/05/us/assault-weapons-ban-california.html?searchResultPosition=10
+https://nytimes.com/2021/06/06/sports/mayweather-vs-paul-logan-date-time-ppv-price.html?searchResultPosition=10
 
