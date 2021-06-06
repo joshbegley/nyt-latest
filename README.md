@@ -11,7 +11,7 @@ https://nytimes.com/2021/06/06/opinion/Naomi-Osaka-ambition-women.html?searchRes
 https://nytimes.com/2021/06/06/opinion/amlo-lopez-obrador-election-mexico.html?searchResultPosition=3
 
 **Roger Federer Pulls Out of French Open**\
-`The 20-time Grand Slam event champion withdrew after a brutal third-round match that lasted until early Sunday morning.`\
+`The 20-time Grand Slam champion withdrew after a brutal third-round match that lasted until early Sunday morning.`\
 https://nytimes.com/2021/06/06/sports/tennis/roger-federer-french-open-withdraws.html?searchResultPosition=4
 
 **Cholera ‘Forever Destroyed’ U.N.’s Image in Haiti, Ban Ki-moon Says**\
