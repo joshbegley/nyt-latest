@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/06/sports/mayweather-vs-paul-logan-date-time-ppv-pri
 `Kiké Hernandez was hitless in 27 straight at-bats before putting Boston ahead in the eighth as the Red Sox came back to win — again.`\
 https://nytimes.com/2021/06/05/sports/baseball/yankees-red-sox.html?searchResultPosition=2
 
-**Jon Rahm Withdraws From Memorial Tournament After Positive Covid Test**\
+**Jon Rahm Withdraws From Memorial Tournament After Positive Coronavirus Test**\
 `The golfer broke down in tears when he was told that he had tested positive. He had just finished the third round with a six-shot lead.`\
 https://nytimes.com/2021/06/05/sports/golf/jon-rahm-memorial-covid-coronavirus.html?searchResultPosition=3
 
