@@ -1,6 +1,6 @@
-**The rush to vaccinate the world stalls as funds and doses fall short.**\
-`Billion-dollar pledges — and the news that the United States will distribute an initial 25 million doses  — will do little to curb the explosive outbreaks in poor countries, experts said`\
-https://nytimes.com/live/2021/06/05/world/covid-vaccine-coronavirus-mask/vaccine-coronavirus-global-stalls?searchResultPosition=1
+**Movie Museum Rethinks Exhibitions in Response to a Changing World**\
+`The Academy Museum of Motion Pictures, opening in September, has redesigned its galleries in the wake of social movements like Black Lives Matter.`\
+https://nytimes.com/2021/06/06/movies/academy-museum-oscars-diversity.html?searchResultPosition=1
 
 **Homes That Sold for Around $750,000**\
 `Recent residential sales in New York City and the region.`\
