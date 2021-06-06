@@ -1,5 +1,5 @@
 **Read the report**\
-`Three prominent Democrat groups, Third Way, the Collective PAC and the Latino Victory Fund, conducted a review of the 2020 election.`\
+`Three prominent Democratic groups, Third Way, the Collective PAC and the Latino Victory Fund, conducted a review of the 2020 election.`\
 https://nytimes.com/interactive/2021/06/06/us/politics/2020-postelection-analysis.html?searchResultPosition=1
 
 **In Praise of Patrick Wilson, Scream King**\
