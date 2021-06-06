@@ -18,23 +18,23 @@ https://nytimes.com/2021/06/06/world/europe/italy-confetti.html?searchResultPosi
 `The Academy Museum of Motion Pictures, opening in September, has redesigned its galleries amid social movements like Black Lives Matter.`\
 https://nytimes.com/2021/06/06/movies/academy-museum-oscars-diversity.html?searchResultPosition=5
 
+**The rush to vaccinate the world stalls as funds and doses fall short.**\
+`Billion-dollar pledges — and the news that the United States will distribute an initial 25 million doses  — will do little to curb the explosive outbreaks in poor countries, experts said`\
+https://nytimes.com/2021/06/06/world/vaccine-coronavirus-global-stalls.html?searchResultPosition=6
+
 **Homes That Sold for Around $750,000**\
 `Recent residential sales in New York City and the region.`\
-https://nytimes.com/2021/06/06/realestate/homes-that-sold-for-around-750000.html?searchResultPosition=6
+https://nytimes.com/2021/06/06/realestate/homes-that-sold-for-around-750000.html?searchResultPosition=7
 
 **The Sunday Read: ‘The Native Scholar Who Wasn’t’**\
 `More than a decade ago, a prominent academic was exposed for having faked her Cherokee ancestry. Why has her career continued to thrive?`\
-https://nytimes.com/2021/06/06/podcasts/the-daily/andrea-smith-native-american.html?searchResultPosition=7
+https://nytimes.com/2021/06/06/podcasts/the-daily/andrea-smith-native-american.html?searchResultPosition=8
 
 **N.Y.C. Mayoral Candidates on Police Reform**\
 `We interviewed the eight leading Democratic candidates for mayor about the biggest issues facing the city. Here’s what they said.`\
-https://nytimes.com/2021/06/06/nyregion/nyc-mayor-defund-police-reform-nypd.html?searchResultPosition=8
+https://nytimes.com/2021/06/06/nyregion/nyc-mayor-defund-police-reform-nypd.html?searchResultPosition=9
 
 **N.Y.C. Mayoral Candidates on Pandemic Recovery**\
 `We interviewed the eight leading Democratic candidates for mayor about the biggest issues facing the city. Here’s what they said.`\
-https://nytimes.com/2021/06/06/nyregion/nyc-mayor-economic-recovery-business.html?searchResultPosition=9
-
-**Read the report**\
-`Three prominent Democratic groups, Third Way, the Collective PAC and the Latino Victory Fund, conducted a review of the 2020 election.`\
-https://nytimes.com/interactive/2021/06/06/us/politics/2020-postelection-analysis.html?searchResultPosition=10
+https://nytimes.com/2021/06/06/nyregion/nyc-mayor-economic-recovery-business.html?searchResultPosition=10
 
