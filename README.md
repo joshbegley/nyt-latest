@@ -30,7 +30,7 @@ https://nytimes.com/2021/06/06/obituaries/clarence-williams-iii-dead.html?search
 `Ever Lopez said he wanted to represent his Mexican roots as he graduated from high school in Asheboro, N.C. The school said the flag violated the ceremony’s dress code.`\
 https://nytimes.com/2021/06/06/us/asheboro-high-school-mexican-flag.html?searchResultPosition=8
 
-**British tourists scramble to return from Portugal after new quarantine imposed.**\
+**British tourists scramble to return from Portugal after a new quarantine is announced.**\
 `Thousands of British tourists paid extra to rebook early return flights. British Airways and other airlines added flight capacity to help bring them home.`\
 https://nytimes.com/2021/06/06/world/uk-portugal-covid-quarantine.html?searchResultPosition=9
 
