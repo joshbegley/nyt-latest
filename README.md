@@ -4,7 +4,7 @@ https://nytimes.com/2021/06/06/business/graeme-ferguson-dead.html?searchResultPo
 
 **Harry and Meghan Announce Birth of Lilibet Diana**\
 `The name pays tribute to Harry’s mother, Diana, Princess of Wales, and grandmother, Queen Elizabeth II, after a year of estrangement between the couple and the royal family.`\
-https://nytimes.com/2021/06/06/world/harry-meghan-lilibet-diana.html?searchResultPosition=2
+https://nytimes.com/2021/06/06/world/europe/harry-meghan-lilibet-diana.html?searchResultPosition=2
 
 **New York Turns to Smart Thermometers for Disease Detection in Schools**\
 `The technology company Kinsa will distribute as many as 100,000 internet-connected thermometers through the city’s elementary schools.`\
