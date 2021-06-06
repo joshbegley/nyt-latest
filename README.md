@@ -19,7 +19,7 @@ https://nytimes.com/video/world/asia/100000007800900/taiwan-coronavirus-vaccine-
 https://nytimes.com/2021/06/06/theater/drama-book-shop-lin-manuel-miranda.html?searchResultPosition=5
 
 **Nicaragua’s Democracy Hangs by Thread as Crackdown Deepens**\
-`The president, Daniel Ortega, has brought his country a step away from becoming a one-party state. His main rival, the daughter of a former president, was arrested on money-laundering charges.`\
+`Under President Daniel Ortega, the country is a step away from becoming a one-party state. Money-laundering charges against his main rival have heightened concerns.`\
 https://nytimes.com/2021/06/06/world/americas/nicaragua-daniel-ortega-crackdown.html?searchResultPosition=6
 
 **Israel Security Chief Warns Against Incitement of Conflict as Tensions Mount Before Key Vote**\
