@@ -4,7 +4,7 @@ https://nytimes.com/2021/06/06/opinion/Naomi-Osaka-ambition-women.html?searchRes
 
 **Despite It All, López Obrador Has My Vote**\
 `He is not a threat to the country, as his adversaries claim. The real threat is the social discontent that made him president.`\
-https://nytimes.com/2021/06/06/opinion/despite-it-all-lopez-obrador-has-my-vote.html?searchResultPosition=2
+https://nytimes.com/2021/06/06/opinion/amlo-lopez-obrador-election-mexico.html?searchResultPosition=2
 
 **Roger Federer Pulls Out of French Open**\
 `The 20-time Grand Slam event champion withdrew after a brutal third-round match that lasted until early Sunday morning.`\
