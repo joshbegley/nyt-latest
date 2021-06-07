@@ -11,7 +11,7 @@ https://nytimes.com/2021/06/07/style/wedding-bells-for-two-95-year-olds.html?sea
 https://nytimes.com/2021/06/07/technology/apple-wwdc-facetime.html?searchResultPosition=3
 
 **High School Student Fatally Shot Near Soccer Field Where He Excelled**\
-`Moussa Fofana, 18, a junior at Columbia High School in Maplewood, and another student were hit by gunfire on Sunday night.`\
+`Moussa Fofana, 18, a junior at Columbia High School in Maplewood, N.J., and another student were hit by gunfire on Sunday night.`\
 https://nytimes.com/2021/06/07/nyregion/maplewood-shooting.html?searchResultPosition=4
 
 **Boko Haram Leader Really Did Blow Himself Up, Audio Message Says**\
