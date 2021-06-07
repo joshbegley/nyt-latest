@@ -8,7 +8,7 @@ https://nytimes.com/2021/06/07/world/canada/mass-graves-residential-schools.html
 
 **F.D.A. Approves Alzheimer’s Drug Despite Fierce Debate Over Whether It Works**\
 `Aducanumab is the first new Alzheimer’s treatment in 18 years and the first to attack the disease process. But some prominent experts say there’s not enough evidence it can address cognitive symptoms.`\
-https://nytimes.com/2021/06/07/health/fda-approves-alzheimers-drug-despite-fierce-debate-over-whether-it-works.html?searchResultPosition=3
+https://nytimes.com/2021/06/07/health/fda-approves-alzheimers-drug.html?searchResultPosition=3
 
 **Pakistan Train Crash Kills at Least 33 People**\
 `Two express passenger trains collided on Monday in Ghotki, Pakistan, leaving at least 33 people dead and 100 others injured.`\
