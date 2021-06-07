@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/07/style/wedding-bells-for-two-95-year-olds.html?searchResultPosition=1
 
 **Apple unveils new privacy features, digital IDs and changes to FaceTime.**\
-`Apple’s privacy push has put the company at odds with some big rivals. Despite protests from some corners of Silicon Valley, Monday’s announcements show that Apple has doubled down on privacy features.`\
+`Apple’s privacy push has put the company at odds with rivals. Despite protests from some corners of Silicon Valley, Monday’s announcements show that Apple has doubled down on privacy features.`\
 https://nytimes.com/2021/06/07/technology/apple-wwdc-facetime.html?searchResultPosition=2
 
 **High School Student Fatally Shot Near Soccer Field Where He Excelled**\
