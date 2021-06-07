@@ -30,11 +30,11 @@ https://nytimes.com/2021/06/07/us/fire-telegraph-mescal-arizona.html?searchResul
 `Boston had not had a three-game sweep in New York since 2011. Marcus Stroman led the Mets over the Padres.`\
 https://nytimes.com/2021/06/07/sports/baseball/yankees-mets.html?searchResultPosition=8
 
-**‘Run the World’ Is an Ode to ‘Enviable Friendships’ and Black Harlem**\
-`This Starz series about four women “walking into real adulthood,” as the creator described it, is broadly appealing but unmistakably based in Black women’s perspectives.`\
-https://nytimes.com/2021/06/07/arts/television/run-the-world.html?searchResultPosition=9
-
 **New Musical About 19th-Century New York Plans Broadway Run**\
 `“Paradise Square,” a comeback bid by a scandal-scarred producer, is the first previously unscheduled musical to announce its Broadway opening since the pandemic began.`\
-https://nytimes.com/2021/06/07/theater/paradise-square-broadway.html?searchResultPosition=10
+https://nytimes.com/2021/06/07/theater/paradise-square-broadway.html?searchResultPosition=9
+
+**‘Run the World’ Is an Ode to ‘Enviable Friendships’ and Black Harlem**\
+`This Starz series about four women “walking into real adulthood,” as the creator described it, is broadly appealing but unmistakably based in Black women’s perspectives.`\
+https://nytimes.com/2021/06/07/arts/television/run-the-world.html?searchResultPosition=10
 
