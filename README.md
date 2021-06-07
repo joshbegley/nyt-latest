@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/07/sports/soccer/usa-mexico-nations-league-final.htm
 https://nytimes.com/2021/06/07/world/australia/new-dinosaur-species.html?searchResultPosition=5
 
 **How Thousands of Indigenous Children Vanished in Canada**\
-`The discovery of the remains of 215 children at the former site of a boarding school in British Columbia has rekindled discussion of a sinister time in Canada’s history.`\
+`The discovery of the remains of 215 children at the site of a defunct boarding school in British Columbia has rekindled discussion of a sinister time in Canada’s history.`\
 https://nytimes.com/2021/06/07/world/canada/mass-graves-residential-schools.html?searchResultPosition=6
 
 **F.D.A. Approves Alzheimer’s Drug Despite Fierce Debate Over Whether It Works**\
