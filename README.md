@@ -1,4 +1,4 @@
-**A New Agreement to Tax the World**\
+**A Pact to Tax the World**\
 `A “historic” agreement by the G7 is a big step toward global tax coordination.`\
 https://nytimes.com/2021/06/07/business/dealbook/g7-tax-yellen.html?searchResultPosition=1
 
