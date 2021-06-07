@@ -10,8 +10,8 @@ https://nytimes.com/2021/06/07/climate/line-3-pipeline-protest-native-americans.
 `“Springsteen on Broadway” opens on June 26 at the St. James Theater; audience members will be required to show proof of full Covid-19 vaccination to enter.`\
 https://nytimes.com/2021/06/07/arts/music/bruce-springsteen-broadway.html?searchResultPosition=3
 
-**N.Y. will end most remaining capacity and distancing limits after 70 percent of adults have gotten one shot.**\
-`Without offering many details, the governor said broadly that reaching the threshold would signify the end of restrictions on capacity limits, social distancing, disinfection protocols and health screenings.`\
+**N.Y. businesses can choose to end most remaining limits after 70 percent of adults have gotten one shot, the governor says.**\
+`It would become optional for retail establishments, restaurants, offices, gyms, hair salons and other businesses to impose health precautions on their premises, though the state would abide by mask guidance from the C.D.C.`\
 https://nytimes.com/2021/06/07/nyregion/new-york-covid-vaccine.html?searchResultPosition=4
 
 **Why All the Fury at Apple?**\
