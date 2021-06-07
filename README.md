@@ -30,7 +30,7 @@ https://nytimes.com/video/world/middleeast/100000007801942/pakistan-train-crash.
 `The microscopic animals were frozen when woolly mammoths still roamed the planet, but were restored as though no time had passed.`\
 https://nytimes.com/2021/06/07/science/frozen-rotifers-siberia.html?searchResultPosition=9
 
-**India will take over vaccine program from states amid criticism.**\
+**India will take over the vaccine program from states amid criticism over the handling of the outbreak.**\
 `Prime Minister Narendra Modi, who has been criticized over his handling of the pandemic, also said shots would be free for all those over 18.`\
 https://nytimes.com/2021/06/07/world/india-vaccine-criticism.html?searchResultPosition=10
 
