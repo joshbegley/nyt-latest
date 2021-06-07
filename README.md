@@ -14,7 +14,7 @@ https://nytimes.com/2021/06/07/us/politics/senate-china-semiconductors.html?sear
 `With just two weeks to go before the primary, Maya Wiley is consolidating support from the left wing of the Democratic Party.`\
 https://nytimes.com/2021/06/07/nyregion/progressives-wiley-mayor-nyc.html?searchResultPosition=4
 
-**2 Trains Collide in Pakistan, Killing at Least 30**\
+**2 Trains Collide in Pakistan, Killing at Least 32**\
 `Most of the passengers on an express train were asleep when it derailed and its cars fell across the track into the path of another.`\
 https://nytimes.com/2021/06/07/world/asia/pakistan-train-collision.html?searchResultPosition=5
 
