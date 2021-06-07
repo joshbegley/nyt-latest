@@ -14,7 +14,7 @@ https://nytimes.com/2021/06/07/theater/bills-44th-review-streaming.html?searchRe
 `Alex Rodriguez shredded the team’s lineup for being so one-dimensional. They’ll have to adjust to become contenders.`\
 https://nytimes.com/2021/06/07/sports/baseball/yankees-offense.html?searchResultPosition=4
 
-**Like It or Not, You Have to Make Your Own Pandemic Decisions**\
+**You Can’t Rely on the C.D.C. to Make Your Pandemic Decisions**\
 `With the coronavirus ebbing, people can't rely on the C.D.C. to answer all their  questions. That's OK.`\
 https://nytimes.com/2021/06/07/opinion/pandemic-decision-making.html?searchResultPosition=5
 
