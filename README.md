@@ -3,8 +3,8 @@
 https://nytimes.com/2021/06/06/business/media/anthony-weiner-nyc-mayor-race.html?searchResultPosition=1
 
 **U.S. Women’s Open: Yuka Saso Wins, Extending a Majors Drought by Americans**\
-`Yuka Saso of the Philippines won her first major, beating Nasa Hataoka of Japan in the first sudden-death hole of a playoff that went three holes.`\
-https://nytimes.com/2021/06/06/sports/golf/lpga-us-open-final.html?searchResultPosition=2
+`Yuka Saso of the Philippines won her first major, beating Nasa Hataoka of Japan in the first sudden-death playoff hole after they remained tied after two-hole aggregate playoff.`\
+https://nytimes.com/2021/06/06/sports/golf/lpga-us-womens-open-yuka-saso.html?searchResultPosition=2
 
 **Patrick Cantlay Wins the Memorial Tournament in a One-Hole Playoff**\
 `Cantlay, who won the event in 2019, bested Collin Morikawa, but the weekend will be remembered for Jon Rahm’s withdrawal after he tested positive for coronavirus.`\
