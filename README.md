@@ -1,40 +1,40 @@
-**Offshore Wind Farms Show What Biden’s Climate Plan Is Up Against**\
-`The U.S. has fallen way behind Europe partly because of an old shipping law and opposition from homeowners and fishing groups.`\
-https://nytimes.com/2021/06/07/business/energy-environment/offshore-wind-biden-climate-change.html?searchResultPosition=1
+**The South may see a Covid surge this summer as vaccination rates lag.**\
+`In 15 states, including Arkansas, the Carolinas, Georgia and Louisiana, about half of adults or fewer have received a vaccine dose.`\
+https://nytimes.com/2021/06/07/world/us-south-covid-vaccine.html?searchResultPosition=1
 
-**Kathryn Garcia Doesn’t Want to Be Anyone’s No. 2**\
-`Ms. Garcia, a former sanitation commissioner, was regarded as New York City’s problem solver. Now she faces her own challenge: persuading voters to elect a newcomer to politics.`\
-https://nytimes.com/2021/06/07/nyregion/kathryn-garcia-mayor-nyc.html?searchResultPosition=2
+**Look Inside Philip Roth’s Personal Library**\
+`The author of “Goodbye, Columbus” and “The Human Stain” left several thousand books, many of them with notes or letters, to the Newark Public Library. The collection will soon open to the public.`\
+https://nytimes.com/2021/06/07/books/philip-roth-newark-library.html?searchResultPosition=2
 
-**Senate Poised to Pass Huge Industrial Policy Bill to Counter China**\
-`The broad support for the bill highlights how competition with Beijing is one of the few issues that can still unite both political parties.`\
-https://nytimes.com/2021/06/07/us/politics/senate-china-semiconductors.html?searchResultPosition=3
+**Living on the Margins, ‘Surfing’ on the Buses**\
+`In the Brazilian city of Olinda, a group of thrill seekers has taken up an illegal and death-defying hobby: riding on the outside of public buses.`\
+https://nytimes.com/2021/06/07/travel/brazil-bus-surfing.html?searchResultPosition=3
 
-**Wiley Wins the Progressives: 5 Takeaways From the N.Y.C. Mayor’s Race**\
-`With just two weeks to go before the primary, Maya Wiley is consolidating support from the left wing of the Democratic Party.`\
-https://nytimes.com/2021/06/07/nyregion/progressives-wiley-mayor-nyc.html?searchResultPosition=4
+**For Small Gyms, Handling the Pandemic Meant Expanding**\
+`From on-demand video libraries to rooftop classes, boutique workout spots broadened beyond their tight spaces.`\
+https://nytimes.com/2021/06/07/business/small-gyms-boutique-covid-closure.html?searchResultPosition=4
 
-**2 Trains Collide in Pakistan, Killing at Least 32**\
-`Most of the passengers on an express train were asleep when it derailed and its cars fell across the track into the path of another.`\
-https://nytimes.com/2021/06/07/world/asia/pakistan-train-collision.html?searchResultPosition=5
+**In Arizona 2020 Election Review, Risks for Republicans, and Democracy**\
+`Experts call it a circus. Polls say it will hurt the G.O.P. in 2022. But Republicans are on board in Arizona and elsewhere, despite warnings of lasting damage to the political system.`\
+https://nytimes.com/2021/06/07/us/arizona-recount-audit-republicans.html?searchResultPosition=5
 
-**2 Arrested in California Road-Rage Shooting That Killed a 6-Year-Old**\
-`Eriz Marcus Anthony, 24, and Lee Wynne, 23, are expected to be charged with murder in the May 21 killing of Aiden Leos.`\
-https://nytimes.com/2021/06/07/us/aiden-leos-road-rage-arrests.html?searchResultPosition=6
+**Why Amazon Is Confronting the Richest Man in India**\
+`The American company sees big potential in the country’s nascent e-commerce market. Both sides view a troubled grocery store chain as the key to success.`\
+https://nytimes.com/2021/06/07/business/amazon-reliance-ambani-future.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘Blindspotting’ and ‘Betty’**\
-`A TV adaptation of Daveed Diggs and Rafael Casal’s “Blindspotting” debuts on Starz. And Crystal Moselle’s “Betty” returns for a second season on HBO.`\
-https://nytimes.com/2021/06/07/arts/television/whats-on-tv-this-week-blindspotting-and-betty.html?searchResultPosition=7
+**From Doomsday Preppers to Doomsday Plotters**\
+`Far-right movements have long dreamed of a moment that ends society as we’ve known it. Now, experts say, so-called accelerationist thinking is proliferating in ways that could destabilize democracy.`\
+https://nytimes.com/2021/06/07/world/accelerationism-qanon-day-x.html?searchResultPosition=7
 
-**Mayweather called this a ‘legalized bank robbery.’ Who knows how big the heist was.**\
-`By Kevin Draper`\
-https://nytimes.com/2021/06/07/sports/how-much-did-mayweather-and-paul-make.html?searchResultPosition=8
+**Gymnastics Learns a New Trick: Athletes Talk and Coaches Listen**\
+`Changes in the sport, which is still struggling to recover from a sexual abuse scandal, were evident at a championship event in Texas.`\
+https://nytimes.com/2021/06/07/sports/olympics/usa-gymnastics-sexual-abuse-scandal.html?searchResultPosition=8
 
-**N.B.A. Fans Wanted a Show. They’re Also Getting a Reckoning.**\
-`The entertainment of the playoffs has been coupled with a pressing message from players that fans have disrespected them for too long.`\
-https://nytimes.com/2021/06/07/sports/basketball/nba-fans-playoffs.html?searchResultPosition=9
+**Silicon Valley’s Thin Skins and Giant Egos**\
+`Ellen Pao, the former C.E.O. of Reddit, talks Big Tech boys clubs, content moderation and workplace culture.`\
+https://nytimes.com/2021/06/07/opinion/sway-kara-swisher-ellen-pao.html?searchResultPosition=9
 
-**Coach K’s Retirement and the End of the College ‘Supercoach’**\
-`Mike Krzyzewski of Duke announced his retirement shortly after his Tobacco Road nemesis, Roy Williams, announced his, as the N.C.A.A prepares to grant athletes greater agency.`\
-https://nytimes.com/2021/06/07/sports/basketball/mike-krzyzewski-duke-retire.html?searchResultPosition=10
+**Rome Gets Its First Pizza Vending Machine. Will Romans Bite?**\
+`In a city with no shortage of pizza — or self-appointed food critics — an entrepreneur is betting on diners with a sense of adventure.`\
+https://nytimes.com/2021/06/07/world/europe/rome-pizza-vending-machines.html?searchResultPosition=10
 
