@@ -1,5 +1,5 @@
 **High School Student Fatally Shot Near Soccer Field Where He Excelled**\
-`Moussa Fofana, 18, a junior at Columbia High School, and another student were hit by gunfire on Sunday night.`\
+`Moussa Fofana, 18, a junior at Columbia High School in Maplewood, and another student were hit by gunfire on Sunday night.`\
 https://nytimes.com/2021/06/07/nyregion/maplewood-shooting.html?searchResultPosition=1
 
 **Boko Haram Leader Really Did Blow Himself Up, Audio Message Says**\
