@@ -1,6 +1,6 @@
 **Senate Confirms First Biden Judges, Beginning Push to Rebalance Courts**\
 `The votes were the start of an effort by Democrats to confirm liberals and people of color to the federal courts after Donald J. Trump moved aggressively to install conservative white men.`\
-https://nytimes.com/2021/06/08/us/politics/senate-biden-judges.html?searchResultPosition=1
+https://nytimes.com/2021/06/08/us/politics/federal-judges-biden.html?searchResultPosition=1
 
 **Wealth Tax, Capitol Hill, Watermelon Season: Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
