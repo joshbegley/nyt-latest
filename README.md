@@ -14,9 +14,9 @@ https://nytimes.com/video/us/100000007803406/minnesota-enbridge-pipeline-protest
 `Investigators traced 75 Bitcoins worth more than $4 million through nearly two dozen cryptocurrency accounts.`\
 https://nytimes.com/2021/06/07/us/politics/pipeline-attack.html?searchResultPosition=4
 
-**Texas hospital workers plan a walkout to protest a mandatory vaccine policy.**\
+**Texas hospital workers walk out to protest a mandatory vaccine policy.**\
 `Some employees at Houston Methodist Hospital object to the hospital’s policy, which requires staff to be vaccinated against Covid-19.`\
-https://nytimes.com/2021/06/07/us/texas-hospital-workers-plan-a-walkout-to-protest-a-mandatory-vaccine-policy.html?searchResultPosition=5
+https://nytimes.com/2021/06/07/us/texas-hospital-workers-walk-out-to-protest-a-mandatory-vaccine-policy.html?searchResultPosition=5
 
 **F.B.I. Investigates Cyber Attack That Targeted N.Y.C. Law Department**\
 `City lawyers’ computer network was disabled after the attack, which the police and federal officials believe was the work of hackers.`\
