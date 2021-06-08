@@ -1,5 +1,5 @@
 **A Curfew and Clashes With Police in Washington Square Park**\
-`The confrontation over a new curfew at the Greenwich Village gathering spot once again raised tensions about officers' conduct.`\
+`The confrontation over a new restriction at the Greenwich Village gathering spot has raised tensions over officers' conduct.`\
 https://nytimes.com/2021/06/08/nyregion/a-curfew-and-clashes-with-police-in-washington-square-park.html?searchResultPosition=1
 
 **Protected Habitat, for a Population of One**\
