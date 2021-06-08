@@ -2,7 +2,7 @@
 `Officials have refused to refer a dispute over the work held by the state painting collections to a national commission created to review claims of art lost in the Nazi era.`\
 https://nytimes.com/2021/06/08/arts/design/picasso-nazi-bavaria.html?searchResultPosition=1
 
-**Pilots in India Plead for Better Compensation for Colleagues Who Died of Covid.**\
+**Pilots in India plead for better compensation for colleagues who died of Covid.**\
 `Air India pilots had their salaries reduced during the pandemic, a union says, and many came to India’s aid when people and vaccines needed to be transported, though they were not vaccinated themselves.`\
 https://nytimes.com/2021/06/08/world/pilots-india-covid-compensation.html?searchResultPosition=2
 
