@@ -1,5 +1,5 @@
 **What is Fastly, the company behind the worldwide internet outage?**\
-`The little-known cloud computing company had a problem that put sent many popular websites offline on Tuesday.`\
+`The little-known cloud computing company had a problem that put many popular websites offline on Tuesday.`\
 https://nytimes.com/2021/06/08/business/fastly-internet-outage.html?searchResultPosition=1
 
 **Trouble in Los Angeles County: Too Many Peacocks**\
