@@ -22,7 +22,7 @@ https://nytimes.com/slideshow/2021/06/08/realestate/a-high-rise-building-for-an-
 `A swath of recommendations calls for more investments, new supply chains and less reliance on other countries for crucial goods.`\
 https://nytimes.com/2021/06/08/us/politics/biden-supply-chain.html?searchResultPosition=6
 
-**An U.N. Declaration on Ending AIDS Should Have Been Easy. It Wasn’t.**\
+**A U.N. Declaration on Ending AIDS Should Have Been Easy. It Wasn’t.**\
 `Even with U.N.’s previous goals unmet, delegates tried to water down provisions regarding protections for vulnerable populations and patents for essential drugs.`\
 https://nytimes.com/2021/06/08/health/unaids-declaration-patents.html?searchResultPosition=7
 
