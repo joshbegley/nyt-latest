@@ -34,7 +34,7 @@ https://nytimes.com/video/us/100000007803406/minnesota-enbridge-pipeline-protest
 `Investigators traced 75 Bitcoins worth more than $4 million through nearly two dozen cryptocurrency accounts.`\
 https://nytimes.com/2021/06/07/us/politics/pipeline-attack.html?searchResultPosition=9
 
-**Texas hospital workers protest a mandatory vaccine policy.**\
-`Some employees at Houston Methodist Hospital object to the hospital’s policy, which requires staff to be vaccinated against Covid-19.`\
-https://nytimes.com/2021/06/07/us/texas-hospital-workers-protest-a-mandatory-vaccine-policy.html?searchResultPosition=10
+**Hospital workers in Texas protest a mandatory vaccine policy.**\
+`Some employees at Houston Methodist object to the hospital’s requirement that staff members be vaccinated against Covid-19.`\
+https://nytimes.com/2021/06/07/us/hospital-workers-in-texas-protest-a-mandatory-vaccine-policy.html?searchResultPosition=10
 
