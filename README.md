@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/08/world/americas/Mexico-Kamala-Harris-Lopez-Obrado.
 https://nytimes.com/interactive/2021/06/08/magazine/nyc-inequality.html?searchResultPosition=2
 
 **Ohio’s attorney general wants Google to be declared a public utility.**\
-`By Daisuke Wakabayashi and Cecilia Kang`\
+`If Google were declared a so-called common carrier like a utility company, it would prevent the company from prioritizing its own products, services and websites in search results.`\
 https://nytimes.com/2021/06/08/technology/google-ohio-public-utility.html?searchResultPosition=3
 
 **Judd Architecture Office in Marfa Severely Damaged in Fire**\
