@@ -19,7 +19,7 @@ https://nytimes.com/2021/06/08/world/europe/macron-slap.html?searchResultPositio
 https://nytimes.com/2021/06/08/business/moviepass-settlement-ftc.html?searchResultPosition=5
 
 **Sarah Feinberg Chosen to Lead M.T.A.; Would Be First Woman in Role**\
-`Governor Andrew M. Cuomo will nominate Sarah Feinberg, a close ally, to oversee the largest transit system in North America.`\
+`Governor Andrew M. Cuomo will nominate  Ms. Feinberg, a close ally, to oversee the largest transit system in North America.`\
 https://nytimes.com/2021/06/08/nyregion/sarah-feinberg-mta.html?searchResultPosition=6
 
 **Police in Riot Gear Clear Washington Square Park After New Curfew**\
