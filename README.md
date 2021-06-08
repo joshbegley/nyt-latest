@@ -10,7 +10,7 @@ https://nytimes.com/2021/06/08/world/europe/macron-slap.html?searchResultPositio
 `Federal regulators detailed tactics the company, which settled accusations against it, used to try to make its most active users go to the movies less.`\
 https://nytimes.com/2021/06/08/business/moviepass-settlement-ftc.html?searchResultPosition=3
 
-**First Woman Is Named to Run New York’s Transit Agency**\
+**Sarah Feinberg Chosen to Lead M.T.A.; Would Be First Woman in Role**\
 `Governor Andrew M. Cuomo will nominate Sarah Feinberg, a close ally, to oversee the largest transit system in North America.`\
 https://nytimes.com/2021/06/08/nyregion/sarah-feinberg-mta.html?searchResultPosition=4
 
