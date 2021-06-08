@@ -22,13 +22,13 @@ https://nytimes.com/slideshow/2021/06/08/realestate/a-high-rise-building-for-an-
 `A swath of recommendations calls for more investments, new supply chains and less reliance on other countries for crucial goods.`\
 https://nytimes.com/2021/06/08/us/politics/biden-supply-chain.html?searchResultPosition=6
 
-**Farewell, Millennial Lifestyle Subsidy**\
-`The price for Ubers, scooters and Airbnb rentals is going up as tech companies aim for profitability.`\
-https://nytimes.com/2021/06/08/technology/farewell-millennial-lifestyle-subsidy.html?searchResultPosition=7
-
 **An U.N. Declaration on Ending AIDS Should Have Been Easy. It Wasn’t.**\
 `Even with U.N.’s previous goals unmet, delegates tried to water down provisions regarding protections for vulnerable populations and patents for essential drugs.`\
-https://nytimes.com/2021/06/08/health/unaids-declaration-patents.html?searchResultPosition=8
+https://nytimes.com/2021/06/08/health/unaids-declaration-patents.html?searchResultPosition=7
+
+**Farewell, Millennial Lifestyle Subsidy**\
+`The price for Ubers, scooters and Airbnb rentals is going up as tech companies aim for profitability.`\
+https://nytimes.com/2021/06/08/technology/farewell-millennial-lifestyle-subsidy.html?searchResultPosition=8
 
 **Amid Global Inflation Worries, China Moves to Tame Prices**\
 `Rising costs at its factories could trickle out into the rest of the world economy.`\
