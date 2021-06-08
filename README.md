@@ -1,40 +1,40 @@
+**A Curfew and Clashes With Police in Washington Square Park**\
+`The confrontation over a new curfew at the Greenwich Village gathering spot once again raised tensions about officers' conduct.`\
+https://nytimes.com/2021/06/08/nyregion/a-curfew-and-clashes-with-police-in-washington-square-park.html?searchResultPosition=1
+
 **Protected Habitat, for a Population of One**\
 `Fifty years ago, Marty Bluewater fought to keep his home among the nesting birds of Protection Island. Now he’s fighting for the birds.`\
-https://nytimes.com/2021/06/08/us/protection-island-washington.html?searchResultPosition=1
+https://nytimes.com/2021/06/08/us/protection-island-washington.html?searchResultPosition=2
 
 **For Chloe Flower, the Décor Always Serves the Music**\
 `With a few exceptions, the composer and social media influencer’s walls are bare. But who needs art when you have Liberace’s piano?`\
-https://nytimes.com/2021/06/08/realestate/chloe-flower-new-york.html?searchResultPosition=2
+https://nytimes.com/2021/06/08/realestate/chloe-flower-new-york.html?searchResultPosition=3
 
 **China’s Leader Wants a ‘Lovable’ Country. That Doesn’t Mean He’s Making Nice.**\
 `Xi Jinping’s remarks to top Communist Party leaders suggest Beijing will focus on courting allies rather than easing its rhetoric against the U.S. and Europe.`\
-https://nytimes.com/2021/06/08/world/asia/china-diplomacy.html?searchResultPosition=3
+https://nytimes.com/2021/06/08/world/asia/china-diplomacy.html?searchResultPosition=4
 
 **Remote Work’s Last Hurrah: 6 Spots to Make Your Summer Office**\
 `As workers prepare to return to the office in coming months, here are six towns and cities to consider squeezing in a working vacation or two.`\
-https://nytimes.com/2021/06/08/travel/remote-work-destinations.html?searchResultPosition=4
+https://nytimes.com/2021/06/08/travel/remote-work-destinations.html?searchResultPosition=5
 
 **A High-Rise Building for an Influencer Afraid of Heights**\
 `With a few exceptions, the composer and social media influencer’s walls are bare. But who needs art when you have Liberace’s piano?`\
-https://nytimes.com/slideshow/2021/06/08/realestate/a-high-rise-building-for-an-influencer-afraid-of-heights.html?searchResultPosition=5
+https://nytimes.com/slideshow/2021/06/08/realestate/a-high-rise-building-for-an-influencer-afraid-of-heights.html?searchResultPosition=6
 
 **Biden Administration Moves to Unkink Supply Chain Bottlenecks**\
 `A swath of recommendations calls for more investments, new supply chains and less reliance on other countries for crucial goods.`\
-https://nytimes.com/2021/06/08/us/politics/biden-supply-chain.html?searchResultPosition=6
+https://nytimes.com/2021/06/08/us/politics/biden-supply-chain.html?searchResultPosition=7
 
 **A U.N. Declaration on Ending AIDS Should Have Been Easy. It Wasn’t.**\
 `Even with U.N.’s previous goals unmet, delegates tried to water down provisions regarding protections for vulnerable populations and patents for essential drugs.`\
-https://nytimes.com/2021/06/08/health/unaids-declaration-patents.html?searchResultPosition=7
-
-**Farewell, Millennial Lifestyle Subsidy**\
-`The price for Ubers, scooters and Airbnb rentals is going up as tech companies aim for profitability.`\
-https://nytimes.com/2021/06/08/technology/farewell-millennial-lifestyle-subsidy.html?searchResultPosition=8
+https://nytimes.com/2021/06/08/health/unaids-declaration-patents.html?searchResultPosition=8
 
 **Amid Global Inflation Worries, China Moves to Tame Prices**\
 `Rising costs at its factories could trickle out into the rest of the world economy.`\
 https://nytimes.com/2021/06/08/business/economy/china-inflation.html?searchResultPosition=9
 
-**Unloved by Generations of Soldiers, the M.R.E. Finds a Fan Base**\
-`The rations often derided as ‘Meals, Rarely Edible’ have gotten (somewhat) better and become objects of fascination for millions of civilians.`\
-https://nytimes.com/2021/06/08/dining/mre-meals-ready-to-eat.html?searchResultPosition=10
+**Farewell, Millennial Lifestyle Subsidy**\
+`The price for Ubers, scooters and Airbnb rentals is going up as tech companies aim for profitability.`\
+https://nytimes.com/2021/06/08/technology/farewell-millennial-lifestyle-subsidy.html?searchResultPosition=10
 
