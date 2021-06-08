@@ -1,40 +1,40 @@
-**‘For Those I Love’ Sets Sad Stories to Electronic Beats**\
-`David Balfe never thought the public would hear his deeply personal debut album. But it became a runaway success in his native Ireland.`\
-https://nytimes.com/2021/06/08/arts/music/for-those-i-love.html?searchResultPosition=1
+**Protected Habitat, for a Population of One**\
+`Fifty years ago, Marty Bluewater fought to keep his home among the nesting birds of Protection Island. Now he’s fighting for the birds.`\
+https://nytimes.com/2021/06/08/us/protection-island-washington.html?searchResultPosition=1
 
-**Virginia’s Democratic Primary Races: What to Watch For**\
-`Former Gov. Terry McAuliffe is seeking his old job, and Democrats will square off in races for lieutenant governor and attorney general.`\
-https://nytimes.com/2021/06/08/us/politics/virginia-democratic-primary-preview.html?searchResultPosition=2
+**For Chloe Flower, the Décor Always Serves the Music**\
+`With a few exceptions, the composer and social media influencer’s walls are bare. But who needs art when you have Liberace’s piano?`\
+https://nytimes.com/2021/06/08/realestate/chloe-flower-new-york.html?searchResultPosition=2
 
-**Many People Have a Vivid ‘Mind’s Eye,’ While Others Have None at All**\
-`Scientists are finding new ways to probe two not-so-rare conditions to better understand the links between vision, perception and memory.`\
-https://nytimes.com/2021/06/08/science/minds-eye-mental-pictures-psychology.html?searchResultPosition=3
+**China’s Leader Wants a ‘Lovable’ Country. That Doesn’t Mean He’s Making Nice.**\
+`Xi Jinping’s remarks to top Communist Party leaders suggest Beijing will focus on courting allies rather than easing its rhetoric against the U.S. and Europe.`\
+https://nytimes.com/2021/06/08/world/asia/china-diplomacy.html?searchResultPosition=3
 
-**Late Night Is Tickled by Trump’s Pants**\
-`“You know, usually if you got this close to Trump’s crotch, he’d pay you $130,000,” Jimmy Kimmel joked of rumors that the former president had worn his pants backward.`\
-https://nytimes.com/2021/06/08/arts/television/late-night-jimmy-kimmel-trump-pants.html?searchResultPosition=4
+**Remote Work’s Last Hurrah: 6 Spots to Make Your Summer Office**\
+`As workers prepare to return to the office in coming months, here are six towns and cities to consider squeezing in a working vacation or two.`\
+https://nytimes.com/2021/06/08/travel/remote-work-destinations.html?searchResultPosition=4
 
-**Retired New York Police Officer Dies After Brooklyn Shooting**\
-`The 57-year-old officer appeared to have been shot by accident after a scuffle broke out near a pizzeria in Kensington.`\
-https://nytimes.com/2021/06/08/nyregion/nypd-brooklyn-shooting.html?searchResultPosition=5
+**A High-Rise Building for an Influencer Afraid of Heights**\
+`With a few exceptions, the composer and social media influencer’s walls are bare. But who needs art when you have Liberace’s piano?`\
+https://nytimes.com/slideshow/2021/06/08/realestate/a-high-rise-building-for-an-influencer-afraid-of-heights.html?searchResultPosition=5
 
-**The Cat Came Back — All the Way From 16th-Century Rome**\
-`A time-traveling feline helps solve a Renaissance art mystery in “Da Vinci’s Cat,” by Catherine Gilbert Murdock.`\
-https://nytimes.com/2021/06/08/books/review/da-vincis-cat-catherine-gilbert-murdock-paul-zelinsky.html?searchResultPosition=6
+**Biden Administration Moves to Unkink Supply Chain Bottlenecks**\
+`A swath of recommendations calls for more investments, new supply chains and less reliance on other countries for crucial goods.`\
+https://nytimes.com/2021/06/08/us/politics/biden-supply-chain.html?searchResultPosition=6
 
-**Erin Entrada Kelly Draws (Literally) From Her Life in a New Illustrated Middle Grade Series**\
-`A Filipino American girl who’s afraid of falling tackles the tree in her new backyard in “Maybe Maybe Marisol Rainey.”`\
-https://nytimes.com/2021/06/08/books/review/erin-entrada-kelly-maybe-maybe-marisol-rainey.html?searchResultPosition=7
+**Farewell, Millennial Lifestyle Subsidy**\
+`The price for Ubers, scooters and Airbnb rentals is going up as tech companies aim for profitability.`\
+https://nytimes.com/2021/06/08/technology/farewell-millennial-lifestyle-subsidy.html?searchResultPosition=7
 
-**Your Tuesday Briefing**\
-`A tense summer for Northern Ireland.`\
-https://nytimes.com/2021/06/08/briefing/northern-ireland-canada-coronavirus.html?searchResultPosition=8
+**An U.N. Declaration on Ending AIDS Should Have Been Easy. It Wasn’t.**\
+`Even with U.N.’s previous goals unmet, delegates tried to water down provisions regarding protections for vulnerable populations and patents for essential drugs.`\
+https://nytimes.com/2021/06/08/health/unaids-declaration-patents.html?searchResultPosition=8
 
-**Corrections: June 8, 2021**\
-`Corrections that appeared in print on Tuesday, June 8, 2021.`\
-https://nytimes.com/2021/06/07/pageoneplus/corrections-june-8-2021.html?searchResultPosition=9
+**Amid Global Inflation Worries, China Moves to Tame Prices**\
+`Rising costs at its factories could trickle out into the rest of the world economy.`\
+https://nytimes.com/2021/06/08/business/economy/china-inflation.html?searchResultPosition=9
 
-**Quotation of the Day: F.D.A. Approves New Medication for Alzheimer’s**\
-`Quotation of the Day for Tuesday, June 8, 2021.`\
-https://nytimes.com/2021/06/07/todayspaper/quotation-of-the-day-fda-approves-new-medication-for-alzheimers.html?searchResultPosition=10
+**Unloved by Generations of Soldiers, the M.R.E. Finds a Fan Base**\
+`The rations often derided as ‘Meals, Rarely Edible’ have gotten (somewhat) better and become objects of fascination for millions of civilians.`\
+https://nytimes.com/2021/06/08/dining/mre-meals-ready-to-eat.html?searchResultPosition=10
 
