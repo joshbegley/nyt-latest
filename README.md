@@ -1,40 +1,40 @@
+**A Very Strange Version of the Paris Night**\
+`The pandemic may be ebbing, but Paris still has a curfew, which feels completely unnatural in the City of Light.`\
+https://nytimes.com/2021/06/08/sports/tennis/french-open-paris-pandemic-covid.html?searchResultPosition=1
+
 **Ratko Mladic to Hear Final Ruling in Genocide Conviction**\
 `The last court appearance by the Bosnian Serb former commander, convicted in 2017 of crimes against humanity for his role in the Balkan wars, will close a grim chapter in European history.`\
-https://nytimes.com/2021/06/08/world/europe/ratko-mladic-trial.html?searchResultPosition=1
+https://nytimes.com/2021/06/08/world/europe/ratko-mladic-trial.html?searchResultPosition=2
 
 **Nets Brush Aside the Bucks to Lead Series, 2-0**\
 `A 39-point drubbing sends the series back to Milwaukee, and the Bucks back to the drawing board.`\
-https://nytimes.com/2021/06/08/sports/basketball/nets-bucks-game-2.html?searchResultPosition=2
+https://nytimes.com/2021/06/08/sports/basketball/nets-bucks-game-2.html?searchResultPosition=3
 
 **Bring the sushi bar home: A Japanese chain rents conveyor belts for takeout.**\
 `To survive a prolonged state of emergency, restaurants in Japan are getting creative.`\
-https://nytimes.com/2021/06/08/world/japan-covid-sushi.html?searchResultPosition=3
+https://nytimes.com/2021/06/08/world/japan-covid-sushi.html?searchResultPosition=4
 
 **The Debate Over Hacking Ransomware Hackers**\
 `The recovery of ransom paid by the Colonial Pipeline operator allays some worries about cryptocurrency — but worries others.`\
-https://nytimes.com/2021/06/08/business/dealbook/fbi-ransomware-crypto.html?searchResultPosition=4
+https://nytimes.com/2021/06/08/business/dealbook/fbi-ransomware-crypto.html?searchResultPosition=5
 
 **The Criminals Thought the Devices Were Secure. But the Seller Was the F.B.I.**\
 `Global law enforcement officials revealed a three-year operation in which they said they intercepted over 20 million messages. Hundreds of arrests were made in more than a dozen countries.`\
-https://nytimes.com/2021/06/08/world/australia/operation-trojan-horse-anom.html?searchResultPosition=5
+https://nytimes.com/2021/06/08/world/australia/operation-trojan-horse-anom.html?searchResultPosition=6
 
 **‘Dear Senthuran: A Black Spirit Memoir,’ by Akwaeke Emezi: An Excerpt**\
 `An excerpt from “Dear Senthuran: A Black Spirit Memoir,” by Akwaeke Emezi`\
-https://nytimes.com/2021/06/08/books/review/dear-senthuran-a-black-spirit-memoir-by-akwaeke-emezi-an-excerpt.html?searchResultPosition=6
+https://nytimes.com/2021/06/08/books/review/dear-senthuran-a-black-spirit-memoir-by-akwaeke-emezi-an-excerpt.html?searchResultPosition=7
 
 **‘Animal,’ by Lisa Taddeo: An Excerpt**\
 `An excerpt from “Animal,” by Lisa Taddeo`\
-https://nytimes.com/2021/06/08/books/review/animal-by-lisa-taddeo-an-excerpt.html?searchResultPosition=7
+https://nytimes.com/2021/06/08/books/review/animal-by-lisa-taddeo-an-excerpt.html?searchResultPosition=8
 
 **An Investment With a Big Return**\
 `Alarmed by China’s rise, the Senate is on the verge of increasing research funding to help American companies.`\
-https://nytimes.com/2021/06/08/briefing/investment-senate-china-bill.html?searchResultPosition=8
+https://nytimes.com/2021/06/08/briefing/investment-senate-china-bill.html?searchResultPosition=9
 
 **Israel’s Parliament to Vote on New Government on Sunday**\
 `If lawmakers approve a fragile new coalition government, Israel will be led by someone other than Benjamin Netanyahu for the first time in 12 years.`\
-https://nytimes.com/2021/06/08/world/middleeast/israel-government-parliament.html?searchResultPosition=9
-
-**A widespread internet outage affects major websites.**\
-`The sites of the British government, The New York Times and Twitter were among those that were briefly inaccessible for some users.`\
-https://nytimes.com/2021/06/08/technology/internet-down.html?searchResultPosition=10
+https://nytimes.com/2021/06/08/world/middleeast/israel-government-parliament.html?searchResultPosition=10
 
