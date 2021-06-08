@@ -1,6 +1,6 @@
 **2021 French Open: What to Watch on Tuesday**\
 `Stefanos Tsitsipas and Daniil Medvedev will clash as the quarterfinal matches begin at Roland Garros.`\
-https://nytimes.com/2021/06/07/sports/tennis/2021-french-open-what-to-watch-tuesday.html?searchResultPosition=1
+https://nytimes.com/2021/06/07/sports/tennis/french-open-tuesday.html?searchResultPosition=1
 
 **Knicks’ Tom Thibodeau Wins Coach of the Year Award**\
 `In a narrow vote, Thibodeau won the award for the second time in his career after taking the franchise to its first playoff appearance since 2013.`\
