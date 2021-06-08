@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2021/well/sleep-questions.html?searchResultPosit
 `Senate Democrats intend to sprint to fill scores of federal vacancies and rebalance the ideological makeup of the courts after the Trump era.`\
 https://nytimes.com/2021/06/08/us/Senate-confirms-Biden-judges.html?searchResultPosition=3
 
-**Jim Fassel, Who Coached Giants to Super Bowl, Dies at 71**\
+**Jim Fassel, Who Coached Giants to SuperBowl, Dies at 71**\
 `He predicted that New York would make the playoffs when no one gave them much of a chance. Then they marched to the championship game, only to lose to the Ravens.`\
 https://nytimes.com/2021/06/08/sports/football/jim-fassel-dead.html?searchResultPosition=4
 
