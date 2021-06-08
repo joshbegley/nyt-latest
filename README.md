@@ -32,7 +32,7 @@ https://nytimes.com/2021/06/08/us/politics/el-chapos-wife-guilty-plea.html?searc
 
 **For Netanyahu, like Trump, Only ‘Fraud’ Can Explain His Defeat**\
 `Israel’s democratic transition is set for Sunday, but nothing is certain amid the prime minister’s scorched-earth campaign to wreck his opponents’ coalition.`\
-https://nytimes.com/2021/06/08/world/middleeast/netanyahu-trump-defeat-comparison.html?searchResultPosition=9
+https://nytimes.com/2021/06/08/world/middleeast/netanyahu-trump-israel.html?searchResultPosition=9
 
 **Kamala Harris, With Blunt Language on Border, Forges Immigration Image**\
 `The vice president concluded her first trip abroad, a high-stakes trip to Mexico and Guatemala during which she took on the politically volatile issue.`\
