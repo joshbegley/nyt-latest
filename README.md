@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/08/briefing/investment-senate-china-bill.html?search
 https://nytimes.com/2021/06/08/world/middleeast/israel-government-parliament.html?searchResultPosition=7
 
 **A widespread internet outage affects major websites.**\
-`The sites of the British government, The New York Times and Twitter were among those that were inaccessible for some users.`\
+`The sites of the British government, The New York Times and Twitter were among those that were briefly inaccessible for some users.`\
 https://nytimes.com/2021/06/08/technology/internet-down.html?searchResultPosition=8
 
 **The Mayor, the Teacher and a Fight over a ‘Lost Territory’ of France**\
