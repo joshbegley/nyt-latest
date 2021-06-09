@@ -1,40 +1,40 @@
-**The Day Facebook Ruined the Internet**\
-`Before the News Feed, we navigated the internet at our leisure. But one day in 2006, it started organizing itself around us.`\
-https://nytimes.com/video/opinion/100000007785730/facebook-news-feed-zuckerberg.html?searchResultPosition=1
+**Yes, You Can Surf Where You Live**\
+`Although it hasn’t quite caught up with golf, surfer-friendly real estate is attracting more buyers.`\
+https://nytimes.com/2021/06/09/realestate/surfing.html?searchResultPosition=1
 
-**Dianne Morales Faced a Campaign Uprising. Will It Matter to Voters?**\
-`Ms. Morales is running for New York City mayor on a platform of tackling inequality and shifting resources away from policing. But her campaign has been marred by defections and dysfunction.`\
-https://nytimes.com/2021/06/09/nyregion/dianne-morales-nyc-mayor.html?searchResultPosition=2
+**House Hunting in Canada: A Lakeside Super-Cottage in the Muskoka District**\
+`Pent-up demand has exploded in Ontario’s ‘cottage country,’ with pandemic buyers seeking turnkey or newly built homes.`\
+https://nytimes.com/2021/06/09/realestate/house-hunting-in-canada-muskoka-district.html?searchResultPosition=2
 
-**Biden Aims to Bolster U.S. Alliances in Europe, but Challenges Loom**\
-`The good will President Biden brings on his first trip abroad papers over lingering doubts about U.S. reliability and the cost that Europe will be expected to pay.`\
-https://nytimes.com/2021/06/09/us/politics/biden-europe-g7.html?searchResultPosition=3
+**A Wood Palace on Ontario’s Manitouwabing Lake**\
+`This 10,185-square-foot house, anchoring a wooded seven-acre property in Ontario’s lake country, is on the market for $4.96 million.`\
+https://nytimes.com/slideshow/2021/06/09/realestate/a-wood-palace-on-ontarios-manitouwabing-lake.html?searchResultPosition=3
 
-**The Boys in Their Summer Dresses**\
-`Gender fluidity enters its next phase as men increasingly step out in skirts and frocks.`\
-https://nytimes.com/2021/06/09/style/gender-the-boys-in-their-summer-dresses.html?searchResultPosition=4
+**On a Kentucky Riverbank, a Path to Remembrance**\
+`Hannah Drake’s Un(Known) Project in Louisville is both a memorial to enslaved people whose stories will never be uncovered, and a challenge to unearth narratives hidden in attics and archives.`\
+https://nytimes.com/2021/06/09/arts/design/hannah-drake-unknown-project.html?searchResultPosition=4
 
-**Health Care Workers Deserve Fashion, Too**\
-`After masks, medical scrubs get the designer treatment. It’s the next big market no one expected.`\
-https://nytimes.com/2021/06/09/fashion/healthcare-workers-scrubs-fashion.html?searchResultPosition=5
+**Warwick, N.Y.: An Upstate Community That’s Under the Radar**\
+`The Orange County town may lack the ‘cool factor’ of other parts of the Hudson Valley, but residents are fine with that.`\
+https://nytimes.com/2021/06/09/realestate/warwick-ny-an-upstate-community-thats-under-the-radar.html?searchResultPosition=5
 
-**How Long Should It Take to Give Away Millions?**\
-`The promise of philanthropy was that the wealthy could enjoy tax breaks for their charitable contributions. The pandemic laid bare how accumulation can trump getting money to those in need. A Senate bill aims to change that.`\
-https://nytimes.com/2021/06/09/business/donor-advised-funds-philanthropy.html?searchResultPosition=6
+**Living In ... Warwick, N.Y.**\
+`This Orange County town may lack the ‘cool factor’ of other parts of the Hudson Valley, but residents are fine with that.`\
+https://nytimes.com/slideshow/2021/06/09/realestate/living-in-warwick-ny.html?searchResultPosition=6
 
-**Debbie Gibson Is Not Going to Get Stuck in the Past**\
-`The pioneering pop singer on her beauty and wellness journey.`\
-https://nytimes.com/2021/06/09/fashion/debbie-gibson-beauty-regimen.html?searchResultPosition=7
+**After a Year of Protests, Portland Is Ready to Move On. But Where?**\
+`The demonstrations that swept the country after George Floyd’s death lived on for much of the year in Portland, a city now engaged in finger-pointing and a debate over what comes next.`\
+https://nytimes.com/2021/06/09/us/portland-protests.html?searchResultPosition=7
 
-**Attack in Afghanistan Kills 10 From Charity That Clears Land Mines**\
-`The government blamed the Taliban for the attack on the British-American charity, the HALO Trust. The militant group denied any responsibility.`\
-https://nytimes.com/2021/06/09/world/asia/afghanistan-land-mines-halo-trust.html?searchResultPosition=8
+**Where to Watch the Ring of Fire Solar Eclipse at Sunrise**\
+`An annular eclipse will start in Canada and end in a remote part of Russia. People in areas of the United States will see a partial eclipse.`\
+https://nytimes.com/2021/06/09/science/solar-eclipse-june-10.html?searchResultPosition=8
 
-**Jimmy Fallon Throws Jabs at Trump’s New Tour With Bill O’Reilly**\
-`“Backstage passes automatically come with a hush money payment of $130,000. Isn’t that nice?” Jimmy Fallon joked.`\
-https://nytimes.com/2021/06/09/arts/television/late-night-trump-oreilly.html?searchResultPosition=9
+**Stunning Soccer Moments in European Championship History**\
+`UEFA Euro 2020, delayed by the pandemic, will sweep across the continent into July.`\
+https://nytimes.com/2021/06/09/sports/soccer/stunning-soccer-moments-in-european-championship-history.html?searchResultPosition=9
 
-**Cicadas Took On Biden’s Press Plane. They Won.**\
-`The omnipresent insects filled the engines of a flight set to accompany the president on his trip to Europe, forcing a delay and a new plane and pilot to be called in.`\
-https://nytimes.com/2021/06/09/us/politics/cicadas-biden.html?searchResultPosition=10
+**How I Learned to Overcome Fear — And Bring the Hurt**\
+`Many Asian women in America are discovering new confidence through self-defense training.`\
+https://nytimes.com/2021/06/09/well/Asian-women-self-defense-training.html?searchResultPosition=10
 
