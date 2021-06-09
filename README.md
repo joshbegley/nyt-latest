@@ -1,6 +1,6 @@
 **Coco Gauff Eliminated in French Open Quarterfinals**\
 `The American teenager, playing her first Grand Slam quarterfinal, was frustrated and defeated by the unseeded Barbora Krejcikova.`\
-https://nytimes.com/2021/06/09/sports/tennis/french-open-coco-gauff.html?searchResultPosition=1
+https://nytimes.com/2021/06/09/sports/tennis/coco-gauff-eliminated-loses.html?searchResultPosition=1
 
 **$200,000 Homes in Maryland, Minnesota and New York**\
 `A 1940 colonial-style house in Salisbury, a two-bedroom condo in Minneapolis and a 1900 home in the Catskills.`\
