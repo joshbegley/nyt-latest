@@ -1,36 +1,36 @@
+**14 Strawberry Recipes Our Readers Make Over and Over Again**\
+`There are so many ways to enjoy the ruby-red summer berry, but these are the recipes that received top marks from our readers.`\
+https://nytimes.com/2021/06/09/dining/strawberry-recipes.html?searchResultPosition=1
+
+**Biden, en route to Europe, said he will unveil a global vaccination plan.**\
+`The White House said it hopes the United States can lead the way in creating an “arsenal of vaccines,” and drive momentum to get them to countries in crisis.`\
+https://nytimes.com/2021/06/09/us/politics/biden-global-vaccine-plan.html?searchResultPosition=2
+
+**As a Family Is Mourned, Canada Grapples With Anti-Muslim Bias**\
+`After a driver intentionally ran down and killed a mother, father, daughter and grandmother in Ontario, orphaning a boy, there were calls for action against Islamophobia.`\
+https://nytimes.com/2021/06/09/world/canada/muslim-family-london.html?searchResultPosition=3
+
+**A Curator’s Vision for a Post-Pandemic Venice Biennale**\
+`Cecilia Alemani, who will lead next year’s art extravaganza, wants a Biennale that grabs attention beyond the opening-week parties.`\
+https://nytimes.com/2021/06/09/arts/design/ceceilia-alemani-venice-biennale.html?searchResultPosition=4
+
 **The State of Schools as the Pandemic Wanes**\
 `Most classrooms are open as the school year comes to a close.`\
-https://nytimes.com/2021/06/09/us/schools-covid.html?searchResultPosition=1
+https://nytimes.com/2021/06/09/us/schools-covid.html?searchResultPosition=5
 
 **How Disaster Aid Favors White People**\
 `Federal money is widening racial inequality as climate change gets worse.`\
-https://nytimes.com/2021/06/09/climate/nyt-climate-newsletter-fema.html?searchResultPosition=2
+https://nytimes.com/2021/06/09/climate/nyt-climate-newsletter-fema.html?searchResultPosition=6
 
 **Exxon’s Board Defeat Signals the Rise of Social-Good Activists**\
 `The energy giant’s stunning loss was the work of a tiny hedge fund that believes investing for social good is also good for the bottom line.`\
-https://nytimes.com/2021/06/09/business/exxon-mobil-engine-no1-activist.html?searchResultPosition=4
+https://nytimes.com/2021/06/09/business/exxon-mobil-engine-no1-activist.html?searchResultPosition=8
+
+**Val Demings, a Democratic Florida congresswoman, announces a bid to unseat Rubio.**\
+`The challenge to Senator Marco Rubio is likely to be fought over the legacy of a third Sunshine Stater — former President Donald J. Trump.`\
+https://nytimes.com/2021/06/09/us/politics/val-demings-rubio-senate-florida.html?searchResultPosition=9
 
 **Watermelon Season!**\
 `Heritage and commodity varieties are here, and they are refreshing.`\
-https://nytimes.com/2021/06/09/dining/watermelon-season.html?searchResultPosition=5
-
-**China Returns to Its Strict Covid Limits to Fight a New Outbreak**\
-`Foreign businesses worry that tough quarantines and restrictions could persist into next year as Beijing struggles with variants and questions about its vaccines.`\
-https://nytimes.com/2021/06/09/world/asia/china-covid-lockdown.html?searchResultPosition=6
-
-**Meet the Ceramic Innovators Firing Up an Age-Old Craft**\
-`The ceramicists Aneta Regel, Andile Dyalvane and Shigekazu Nagae are injecting future-facing innovation into one of the oldest art forms.`\
-https://nytimes.com/paidpost/audemars-piguet/meet-the-ceramic-innovators-firing-up-an-age-old-craft.html?searchResultPosition=7
-
-**New York Times Names Stella Bugbee as Styles Editor**\
-`Ms. Bugbee, who expanded The Cut into a top site for fashion and social issues, is scheduled to start later this month.`\
-https://nytimes.com/2021/06/09/business/stella-bugbee-new-york-times-styles-editor.html?searchResultPosition=8
-
-**Tenement Museum Makes Room for Black History**\
-`Reopening after a tumultuous year, this Lower East Side institution is addressing the omissions and erasures in the neighborhood’s history — and its own.`\
-https://nytimes.com/2021/06/09/arts/design/tenement-museum-black-history.html?searchResultPosition=9
-
-**Theater to Stream: Pride Goes Online**\
-`Highlights include the latest edition of “Broadway Bares,” Jackie Sibblies Drury’s “Marys Seacole” and a new play by Caryl Churchill.`\
-https://nytimes.com/2021/06/09/theater/streaming-theater-pride-month.html?searchResultPosition=10
+https://nytimes.com/2021/06/09/dining/watermelon-season.html?searchResultPosition=10
 
