@@ -2,7 +2,7 @@
 `There are so many ways to enjoy the ruby-red summer berry, but these are the recipes that received top marks from our readers.`\
 https://nytimes.com/2021/06/09/dining/strawberry-recipes.html?searchResultPosition=1
 
-**Biden, en route to Europe, said he will unveil a global vaccination plan.**\
+**Biden, en route to Europe, says he will unveil a global vaccination plan.**\
 `The White House said it hopes the United States can lead the way in creating an “arsenal of vaccines,” and drive momentum to get them to countries in crisis.`\
 https://nytimes.com/2021/06/09/us/politics/biden-global-vaccine-plan.html?searchResultPosition=2
 
