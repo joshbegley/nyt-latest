@@ -7,7 +7,7 @@ https://nytimes.com/article/how-to-sleep-better.html?searchResultPosition=1
 https://nytimes.com/2021/06/08/us/politics/times-leak-investigation-seized-records.html?searchResultPosition=2
 
 **Ciattarelli Defeats Trump Loyalists in G.O.P. Primary to Take on Murphy**\
-`Jack Ciattarelli won New Jersey’s Republican primary and will face Phil Murphy, the Democratic incumbent, in November.`\
+`Jack Ciattarelli won New Jersey’s Republican primary and will face Philip D. Murphy, the Democratic incumbent, in November.`\
 https://nytimes.com/2021/06/08/nyregion/nj-primary-election-results.html?searchResultPosition=3
 
 **Known to Enjoy Water Slides**\
