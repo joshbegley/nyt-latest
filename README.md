@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/09/world/covid-vaccine-latin-america-who.html?search
 `The report by the Interior Department’s inspector general did not investigate what other law enforcement agencies knew and who might have ordered them to use force to clear Lafayette Square.`\
 https://nytimes.com/2021/06/09/us/politics/park-police-trump-lafayette-square.html?searchResultPosition=2
 
-**It’s Nadal vs. Djokovic in French Open, but One Round Early**\
+**It’s Nadal vs. Djokovic in the French Open, but One Round Early**\
 `Rafael Nadal, the 13-time champion at Roland Garros, is set for yet another showdown with Novak Djokovic, the world No. 1 and his longtime rival. But the title won’t be on the line.`\
 https://nytimes.com/2021/06/09/sports/tennis/french-open-nadal-djokovic.html?searchResultPosition=3
 
