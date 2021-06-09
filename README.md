@@ -15,7 +15,7 @@ https://nytimes.com/video/us/politics/100000007806753/ncaa-pay-student-athletes-
 https://nytimes.com/2021/06/09/nyregion/r-kelly-lawyers-case.html?searchResultPosition=4
 
 **Submerged in Van Gogh: Would Absinthe Make the Art Grow Fonder?**\
-`Individual absorption is the order of the day at two touring spectacles devoted to the painter’s greatest hits. .`\
+`Individual absorption is the order of the day at two touring spectacles devoted to the painter’s greatest hits.`\
 https://nytimes.com/2021/06/09/arts/design/van-gogh-immersive-manhattan.html?searchResultPosition=5
 
 **The Enduring Appeal of Italian Composers’ Dramatic ‘Library Music’**\
