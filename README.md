@@ -11,7 +11,7 @@ https://nytimes.com/2021/06/09/arts/tenement-museum-black-history.html?searchRes
 https://nytimes.com/2021/06/09/theater/streaming-theater-pride-month.html?searchResultPosition=3
 
 **Kevins Can Score Improbably Attractive TV Wives**\
-`In 1998, during the second episode of the CBS sitcom “The King of Queens,” the husband, Doug (Kevin James), learns that the women in his wife’s family put on weight as they age.`\
+`A new AMC+ satire mocks the family sitcom cliché of schlubby husbands paired with beautiful wives. Here are a few of the more egregious examples.`\
 https://nytimes.com/2021/06/09/arts/television/kevin-sitcom-attractive-wife.html?searchResultPosition=4
 
 **In a New AMC Satire, a Sitcom Wife Gets the Last Laugh**\
