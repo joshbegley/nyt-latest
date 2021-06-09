@@ -4,7 +4,7 @@ https://nytimes.com/2021/06/08/us/politics/infrastructure-biden-republicans.html
 
 **2021 French Open: What to Watch on Wednesday**\
 `Novak Djokovic, Rafael Nadal and Iga Swiatek all feature on the second day of quarterfinals at Roland Garros.`\
-https://nytimes.com/2021/06/08/sports/tennis/2021-french-open-what-to-watch-wednesday.html?searchResultPosition=7
+https://nytimes.com/2021/06/08/sports/tennis/french-open-time-schedule-wednesday.html?searchResultPosition=7
 
 **Terry McAuliffe Wins Democratic Nomination for Governor in Virginia**\
 `Mr. McAuliffe, who previously served as governor, overcame four rivals, benefiting from the support of the party establishment. His victory set up a general election race against a wealthy Republican, Glenn Youngkin.`\
