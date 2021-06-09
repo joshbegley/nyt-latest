@@ -24,7 +24,7 @@ https://nytimes.com/2021/06/09/business/stella-bugbee-new-york-times-styles-edit
 
 **Tenement Museum Makes Room for Black History**\
 `Reopening after a tumultuous year, this Lower East Side institution is addressing the omissions and erasures in the neighborhood’s history — and its own.`\
-https://nytimes.com/2021/06/09/arts/tenement-museum-black-history.html?searchResultPosition=8
+https://nytimes.com/2021/06/09/arts/design/tenement-museum-black-history.html?searchResultPosition=8
 
 **Theater to Stream: Pride Goes Online**\
 `Highlights include the latest edition of “Broadway Bares,” Jackie Sibblies Drury’s “Marys Seacole” and a new play by Caryl Churchill.`\
