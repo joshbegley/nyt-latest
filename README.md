@@ -1,40 +1,40 @@
+**Dianne Morales Faced a Campaign Uprising. Will It Matter to Voters?**\
+`Ms. Morales is running for New York City mayor on a platform of tackling inequality and shifting resources away from policing. But her campaign has been marred by defections and dysfunction.`\
+https://nytimes.com/2021/06/09/nyregion/dianne-morales-nyc-mayor.html?searchResultPosition=1
+
+**Biden Aims to Bolster U.S. Alliances in Europe, but Challenges Loom**\
+`The good will President Biden brings on his first trip abroad papers over lingering doubts about U.S. reliability and the cost that Europe will be expected to pay.`\
+https://nytimes.com/2021/06/09/us/politics/biden-europe-g7.html?searchResultPosition=2
+
+**The Boys in Their Summer Dresses**\
+`Gender fluidity enters its next phase as men increasingly step out in skirts and frocks.`\
+https://nytimes.com/2021/06/09/style/gender-the-boys-in-their-summer-dresses.html?searchResultPosition=3
+
+**Health Care Workers Deserve Fashion, Too**\
+`After masks, medical scrubs get the designer treatment. It’s the next big market no one expected.`\
+https://nytimes.com/2021/06/09/fashion/healthcare-workers-scrubs-fashion.html?searchResultPosition=4
+
+**How Long Should It Take to Give Away Millions?**\
+`The promise of philanthropy was that the wealthy could enjoy tax breaks for their charitable contributions. The pandemic laid bare how accumulation can trump getting money to those in need. A Senate bill aims to change that.`\
+https://nytimes.com/2021/06/09/business/donor-advised-funds-philanthropy.html?searchResultPosition=5
+
+**Debbie Gibson Is Not Going to Get Stuck in the Past**\
+`The pioneering pop singer on her beauty and wellness journey.`\
+https://nytimes.com/2021/06/09/fashion/debbie-gibson-beauty-regimen.html?searchResultPosition=6
+
 **Attack in Afghanistan Kills 10 From Charity That Clears Land Mines**\
 `The government blamed the Taliban for the attack on the British-American charity, the HALO Trust. The militant group denied any responsibility.`\
-https://nytimes.com/2021/06/09/world/asia/afghanistan-land-mines-halo-trust.html?searchResultPosition=1
+https://nytimes.com/2021/06/09/world/asia/afghanistan-land-mines-halo-trust.html?searchResultPosition=7
 
 **Jimmy Fallon Throws Jabs at Trump’s New Tour With Bill O’Reilly**\
 `“Backstage passes automatically come with a hush money payment of $130,000. Isn’t that nice?” Jimmy Fallon joked.`\
-https://nytimes.com/2021/06/09/arts/television/late-night-trump-oreilly.html?searchResultPosition=2
+https://nytimes.com/2021/06/09/arts/television/late-night-trump-oreilly.html?searchResultPosition=8
 
 **Cicadas Took On Biden’s Press Plane. They Won.**\
 `The omnipresent insects filled the engines of a flight set to accompany the president on his trip to Europe, forcing a delay and a new plane and pilot to be called in.`\
-https://nytimes.com/2021/06/09/us/politics/cicadas-biden.html?searchResultPosition=3
+https://nytimes.com/2021/06/09/us/politics/cicadas-biden.html?searchResultPosition=9
 
 **A New Executive Takes Over, and Things Quickly Get Complicated**\
 `Gilles Moretton, the president of the French Tennis Federation, has faced several challenges during the first French Open of his term.`\
-https://nytimes.com/2021/06/09/sports/tennis/french-open-gilles-moretton.html?searchResultPosition=4
-
-**Orioles Offense Stays Hot in Blowout of Mets**\
-`David Peterson was shelled in a brief outing. “We need to get him right,” Luis Rojas said.`\
-https://nytimes.com/2021/06/08/sports/baseball/mets-yankees.html?searchResultPosition=5
-
-**Your Wednesday Briefing**\
-`A crucial vote in Israel.`\
-https://nytimes.com/2021/06/08/briefing/israel-politics-police-coronavirus.html?searchResultPosition=6
-
-**Queens Man Charged With Murder in Shooting Death of 10-Year-Old**\
-`Justin Wallace, who would have turned 11 on Tuesday, was shot as he walked out of his aunt’s home on Saturday.`\
-https://nytimes.com/2021/06/08/nyregion/justin-wallace-murder.html?searchResultPosition=7
-
-**An Innocent Man Went to Prison for Murder. Now, It’s the Real Killer’s Turn.**\
-`Brian Leigh Dripps Sr. was sentenced to life in prison on Tuesday in the 1996 killing of Angie Dodge in Idaho, a crime for which Christopher Tapp was exonerated.`\
-https://nytimes.com/2021/06/08/us/angie-dodge-murder.html?searchResultPosition=8
-
-**Corrections: June 9, 2021**\
-`Corrections that appeared in print on Wednesday, June 9, 2021.`\
-https://nytimes.com/2021/06/08/pageoneplus/corrections-june-9-2021.html?searchResultPosition=9
-
-**Quotation of the Day: Back to Normal? Not for Many Asian Americans.**\
-`Quotation of the Day for Wednesday, June 9, 2021.`\
-https://nytimes.com/2021/06/08/todayspaper/quotation-of-the-day-back-to-normal-not-for-many-asian-americans.html?searchResultPosition=10
+https://nytimes.com/2021/06/09/sports/tennis/french-open-gilles-moretton.html?searchResultPosition=10
 
