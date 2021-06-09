@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/09/style/modern-love-podcast-Hindu-horoscopes-astrol
 `There’s no need to rush.`\
 https://nytimes.com/2021/06/09/at-home/newsletter.html?searchResultPosition=2
 
-**Nun Confessed to Stealing Over $800,000 From School, Prosecutors Say**\
+**Nun Stole Over $800,000 to Support Gambling Habit, Prosecutors Say**\
 `Sister Mary Margaret Kreuper has agreed to plead guilty to charges that she embezzled the money while she was the principal at a Catholic school in Torrance, Calif., prosecutors said.`\
 https://nytimes.com/2021/06/09/us/california-nun-guilty-gambling.html?searchResultPosition=3
 
