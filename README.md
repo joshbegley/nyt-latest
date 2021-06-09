@@ -1,4 +1,4 @@
-**In Nicaragua, Repression Deepens as More Opposition Leaders are Detained**\
+**In Nicaragua, Repression Deepens as More Opposition Leaders Are Detained**\
 `With a stunning wave of arrests of political opponents and civil society leaders, President Daniel Ortega will practically be unopposed in November elections.`\
 https://nytimes.com/2021/06/09/world/americas/nicaragua-ortega-opposition-leaders.html?searchResultPosition=1
 
