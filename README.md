@@ -10,27 +10,27 @@ https://nytimes.com/2021/06/09/us/politics/biden-global-vaccine-plan.html?search
 `After a driver intentionally ran down and killed a mother, father, daughter and grandmother in Ontario, orphaning a boy, there were calls for action against Islamophobia.`\
 https://nytimes.com/2021/06/09/world/canada/muslim-family-london.html?searchResultPosition=3
 
+**A bipartisan group of House lawmakers unveils an infrastructure proposal.**\
+`The so-called Problems Solvers Caucus, a group of 29 Democrats and 29 Republicans, put forward a plan for $761.8 billion in new spending, as part of a $1.2 trillion plan.`\
+https://nytimes.com/2021/06/09/us/politics/house-infrastructure-proposal.html?searchResultPosition=4
+
 **A Curator’s Vision for a Post-Pandemic Venice Biennale**\
 `Cecilia Alemani, who will lead next year’s art extravaganza, wants a Biennale that grabs attention beyond the opening-week parties.`\
-https://nytimes.com/2021/06/09/arts/design/ceceilia-alemani-venice-biennale.html?searchResultPosition=4
+https://nytimes.com/2021/06/09/arts/design/ceceilia-alemani-venice-biennale.html?searchResultPosition=5
 
 **The State of Schools as the Pandemic Wanes**\
 `Most classrooms are open as the school year comes to a close.`\
-https://nytimes.com/2021/06/09/us/schools-covid.html?searchResultPosition=5
+https://nytimes.com/2021/06/09/us/schools-covid.html?searchResultPosition=6
 
 **How Disaster Aid Favors White People**\
 `Federal money is widening racial inequality as climate change gets worse.`\
-https://nytimes.com/2021/06/09/climate/nyt-climate-newsletter-fema.html?searchResultPosition=6
+https://nytimes.com/2021/06/09/climate/nyt-climate-newsletter-fema.html?searchResultPosition=7
 
 **Exxon’s Board Defeat Signals the Rise of Social-Good Activists**\
 `The energy giant’s stunning loss was the work of a tiny hedge fund that believes investing for social good is also good for the bottom line.`\
-https://nytimes.com/2021/06/09/business/exxon-mobil-engine-no1-activist.html?searchResultPosition=8
+https://nytimes.com/2021/06/09/business/exxon-mobil-engine-no1-activist.html?searchResultPosition=9
 
 **Val Demings, a Democratic Florida congresswoman, announces a bid to unseat Rubio.**\
 `The challenge to Senator Marco Rubio is likely to be fought over the legacy of a third Sunshine Stater — former President Donald J. Trump.`\
-https://nytimes.com/2021/06/09/us/politics/val-demings-rubio-senate-florida.html?searchResultPosition=9
-
-**Watermelon Season!**\
-`Heritage and commodity varieties are here, and they are refreshing.`\
-https://nytimes.com/2021/06/09/dining/watermelon-season.html?searchResultPosition=10
+https://nytimes.com/2021/06/09/us/politics/val-demings-rubio-senate-florida.html?searchResultPosition=10
 
