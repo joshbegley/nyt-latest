@@ -1,6 +1,6 @@
 **An Innocent Man Went to Prison for Murder. Now, It’s the Real Killer’s Turn.**\
 `Brian Leigh Dripps Sr. was sentenced to life in prison on Tuesday in the 1996 killing of Angie Dodge in Idaho, a crime for which Christopher Tapp was exonerated.`\
-https://nytimes.com/2021/06/08/us/Angie-dodge-murder.html?searchResultPosition=1
+https://nytimes.com/2021/06/08/us/angie-dodge-murder.html?searchResultPosition=1
 
 **Corrections: June 9, 2021**\
 `Corrections that appeared in print on Wednesday, June 9, 2021.`\
