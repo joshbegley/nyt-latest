@@ -2,7 +2,7 @@
 `Low partisanship, not high ideals, is what propels the Democrats' vision for voting reform.`\
 https://nytimes.com/2021/06/10/opinion/joe-manchin-voting-reform.html?searchResultPosition=1
 
-**The Real Star of the French Open The Real Star of the French Open The Real Star of the French Open The Real Star of the French Open**\
+**The Real Star of the French Open**\
 `Our photographer takes an inside look at where the clay for the world famous Roland Garros tennis courts comes from.`\
 https://nytimes.com/interactive/2021/06/10/sports/tennis/french-open-clay-courts.html?searchResultPosition=2
 
