@@ -28,7 +28,7 @@ https://nytimes.com/2021/06/10/health/aduhelm-fda-resign-alzheimers.html?searchR
 
 **Dartmouth Medical School Drops Online Cheating Cases Against Students**\
 `The Ivy League school said it was dismissing allegations that students had looked up online course materials during remote exams.`\
-https://nytimes.com/2021/06/10/technology/dartmouth-drops-cheating-charges.html?searchResultPosition=8
+https://nytimes.com/2021/06/10/technology/dartmouth-cheating-charges.html?searchResultPosition=8
 
 **Read the Indictment**\
 `The federal government charged six men said to be connected to the Three Percenter movement in the Jan. 6 assault on the Capitol.`\
