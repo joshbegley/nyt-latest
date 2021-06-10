@@ -1,5 +1,5 @@
 **Venus Will Have a Fleet of Spacecraft as Europe Adds Orbiter Mission**\
-`The EnVision spacecraft will complement two NASA missions announced last week, ending the relatively loneliness of a planet sometimes thought of as Earth’s twin.`\
+`The EnVision spacecraft will complement two NASA missions announced last week, ending the relative loneliness of a planet sometimes thought of as Earth’s twin.`\
 https://nytimes.com/2021/06/10/science/venus-europe-envision.html?searchResultPosition=1
 
 **I Shouldn’t Have to Choose Between My Judaism and My Queerness**\
