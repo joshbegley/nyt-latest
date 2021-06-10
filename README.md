@@ -1,40 +1,40 @@
-**Free of Protesters, Paris Theaters Reopen With Little Imagination**\
-`After more than two months of occupation by arts workers, the Odéon Theater returned to business with a prepandemic production that feels out of step with the current moment.`\
-https://nytimes.com/2021/06/10/theater/paris-theaters-protests-reopen.html?searchResultPosition=1
+**Headliners and Headdresses Return to Las Vegas. Will Tourists Follow?**\
+`The first shows to reopen face a challenge: It is hard to draw audiences without tourists, but hard to draw tourists without shows.`\
+https://nytimes.com/2021/06/10/theater/las-vegas-shows-reopening.html?searchResultPosition=1
 
-**Dreaming of ‘Global Britain,’ Johnson Is Attacked for Cutting Foreign Aid**\
-`As Prime Minister Boris Johnson prepares to host the Group of 7 meeting, he faces a battle over efforts to cut foreign aid by a third to help make up for the costs of fighting the coronavirus.`\
-https://nytimes.com/2021/06/10/world/europe/g7-uk-foreign-aid-coronavirus.html?searchResultPosition=2
+**‘She Died Working for Us’: Sons of Atlanta Victim Struggle to Move Forward**\
+`Randy and Eric Park’s mother was among eight people killed in the spa shootings. They have been largely left to navigate the world by themselves.`\
+https://nytimes.com/2021/06/10/us/atlanta-shooting-victims.html?searchResultPosition=2
 
-**The Pill Helped Start the Sexual Revolution. What Will Phexxi Do?**\
-`Saundra Pelletier is marketing a new form of birth control to women wary of hormones.`\
-https://nytimes.com/2021/06/10/style/what-is-phexxi.html?searchResultPosition=3
+**The Brooklyn Man Who Set Out to Track Every Jew Lost to Covid**\
+`The coronavirus hit some Jewish communities especially hard. As he followed his own odyssey during the pandemic, Tzali Reicher tallied the dead — and learned about the lives they lived.`\
+https://nytimes.com/2021/06/10/nyregion/covid-death-list-jewish.html?searchResultPosition=3
 
-**The Show Is Fake. The Fandom Is Real.**\
-`How “Ships of the Northern Fleet,” a crowdsourced sci-fi project, navigated from TikTok all the way to the convention circuit.`\
-https://nytimes.com/2021/06/10/style/ships-of-the-northern-fleet-fandom.html?searchResultPosition=4
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/06/10/arts/things-to-do-weekend.html?searchResultPosition=4
 
-**Stephen Colbert Thinks President Biden Can Win Europe Back**\
-`“Come on, Europe, you can’t judge us. You had fascists; we had fascists. You have rulers that marry their cousins; we have Rudy, who married his cousin,” Colbert joked.`\
-https://nytimes.com/2021/06/10/arts/television/colbert-biden-europe.html?searchResultPosition=5
+**Google Seeks to Break Vicious Cycle of Online Slander**\
+`In response to Times articles, the search giant is changing its algorithm, part of a major shift in how Google polices harmful content.`\
+https://nytimes.com/2021/06/10/technology/google-seeks-to-break-vicious-cycle-of-online-slander.html?searchResultPosition=5
 
-**Your Thursday Briefing**\
-`Biden’s trip to Europe.`\
-https://nytimes.com/2021/06/10/briefing/biden-europe-navalny-coronavirus-testing.html?searchResultPosition=6
+**In the N.Y.C. Mayor’s Race, Being Second Might Be Good Enough to Win**\
+`Political campaigns are considering cross-endorsements and vying for the No. 2 spot on voters’ ballots.`\
+https://nytimes.com/2021/06/10/nyregion/ranked-choice-mayor-nyc.html?searchResultPosition=6
 
-**Solar Eclipse at Sunrise: Where and When to Watch the ‘Ring of Fire’**\
-`Weather and geography may make it difficult to see the rare spectacle, but those in the path or experiencing clear skies may get a show worth waking up early for.`\
-https://nytimes.com/2021/06/10/science/solar-eclipse-ring-of-fire.html?searchResultPosition=7
+**In Covid’s Early Days, Her Loss Resonated. She Hopes Her Hope Does, Too.**\
+`Amanda Kloots grieved in public when her husband Nick Cordero died. Now she is sharing the rest of her story in “Live Your Life.”`\
+https://nytimes.com/2021/06/10/books/amanda-kloots-nick-cordero-live-your-life.html?searchResultPosition=7
 
-**Truck Driver Who Killed 5 Cyclists Is Sentenced to 40 Years**\
-`Jordan A. Barson, 45, was under the influence of methamphetamine when he plowed into a group of cyclists on a Nevada highway in December, prosecutors said.`\
-https://nytimes.com/2021/06/09/us/truck-driver-crash-5-bicyclists-nevada.html?searchResultPosition=8
+**How Trump’s Political Legacy Is on the Ballot in the Virginia Governor’s Race**\
+`Terry McAuliffe, the Democrat, will try to tie his opponent, Glenn Youngkin, to former President Donald Trump, while Mr. Youngkin will try to sidestep Mr. Trump but not reject him.`\
+https://nytimes.com/2021/06/10/us/politics/virginia-governor.html?searchResultPosition=8
 
-**Mets Stay Hot With Blowout of Matt Harvey and the Orioles**\
-`Taijuan Walker was dominant against Baltimore and his teammates battered Harvey, a former Mets star.`\
-https://nytimes.com/2021/06/09/sports/baseball/mets-orioles.html?searchResultPosition=9
+**Bobby Rush Lived the Blues. Six Decades On, He’s Still Playing Them.**\
+`On the heels of winning his second Grammy, and on the verge of publishing a memoir, the singer, guitarist and harmonica player is enjoying a long-delayed moment of recognition.`\
+https://nytimes.com/2021/06/10/arts/music/bobby-rush.html?searchResultPosition=9
 
-**Museum to Create a National Archives of Game Show History**\
-`The Strong National Museum of Play in Rochester, N.Y., will house the archives, which it hopes will include set pieces, audience tickets, press photos and other memorabilia.`\
-https://nytimes.com/2021/06/09/arts/game-show-museum-jeopardy-new-york.html?searchResultPosition=10
+**As Military Addresses Diversity, Republicans See Culture War Target**\
+`The Pentagon’s leadership is taking steps to promote inclusion in the military, prompting a political backlash.`\
+https://nytimes.com/2021/06/10/us/politics/military-diversity.html?searchResultPosition=10
 
