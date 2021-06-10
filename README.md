@@ -24,7 +24,7 @@ https://nytimes.com/2021/06/09/us/tulsa-burial-race-massacre.html?searchResultPo
 
 **Biden to Send 500 Million Doses of Pfizer Vaccine to 100 Countries Over a Year**\
 `The White House’s move is part of a nascent campaign to inoculate the world, and came as President Biden faced intense pressure to do more.`\
-https://nytimes.com/2021/06/09/us/politics/biden-vaccine-doses.html?searchResultPosition=7
+https://nytimes.com/2021/06/09/us/politics/biden-pfizer-vaccine-doses.html?searchResultPosition=7
 
 **U.S. Weighs Possibility of Airstrikes if Afghan Forces Face Crisis**\
 `The Pentagon is considering whether to intervene with warplanes or drones in the event that Kabul is in danger of falling to the Taliban, though no decisions have been made.`\
