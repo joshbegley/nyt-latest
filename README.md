@@ -1,6 +1,6 @@
 **Goldman Sachs requires employees to report their vaccination status.**\
-`By Lauren Hirsch`\
-https://nytimes.com/2021/06/10/business/goldman-sachs-requires-employees-to-report-their-vaccination-status.html?searchResultPosition=1
+`Employees of the Wall Street bank will be asked to record the date they received their shots and the maker of the vaccine.`\
+https://nytimes.com/2021/06/10/business/goldman-sachs-vaccination-status.html?searchResultPosition=1
 
 **Sexual Harassment and Online Abuse Pervasive in British Schools, Review Finds**\
 `The investigation, which relied on accounts from 900 students, found that sexual harassment — from sexist name-calling to requests for explicit photos — was endemic.`\
