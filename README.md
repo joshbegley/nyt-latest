@@ -2,7 +2,7 @@
 `The president is in Cornwall, England to meet with other leaders of wealthy democracies.`\
 https://nytimes.com/2021/06/10/world/europe/biden-europe-pictures.html?searchResultPosition=1
 
-**3 Dead in Shooting at Florida Supermarket**\
+**3 Dead in Shooting at Publix Supermarket in Florida**\
 `A woman, a child and a man were found dead from gunshot wounds inside a Publix grocery store in Palm Beach County on Thursday morning, the authorities said. The dead included the person with the gun, they said.`\
 https://nytimes.com/2021/06/10/us/publix-royal-palm-beach-shooting.html?searchResultPosition=2
 
