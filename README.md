@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2021/06/10/sports/olympics/simone-biles-floor-va
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2021/06/10/books/review/12-new-books-we-recommend-this-week.html?searchResultPosition=4
 
-**Workplace safety rule on Covid risks is limited to the health care industry.**\
+**OSHA’s new workplace safety rule on Covid is limited to the health care industry.**\
 `The Labor Department says it will issue optional guidance to other employers. Some advocacy groups say more is needed.`\
 https://nytimes.com/2021/06/10/business/economy/osha-covid-rule.html?searchResultPosition=5
 
