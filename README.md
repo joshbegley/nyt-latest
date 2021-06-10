@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/10/world/afghanistan-sinopharm-covid-vaccine.html?searchResultPosition=1
 
 **Without a big boost soon, many African nations may not meet a W.H.O. vaccination goal, the agency says.**\
-`The World Health Organization’s goal that each country across the world be able to vaccinate 10 percent of its people against the coronavirus by September.`\
+`The World Health Organization set a goal that each country across the world be able to vaccinate 10 percent of its people against the coronavirus by September.`\
 https://nytimes.com/2021/06/10/world/africa/africa-covid-vaccine-who.html?searchResultPosition=2
 
 **‘Peter Rabbit 2: The Runaway’ Review: Rabbit Redux**\
