@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/10/dining/drinks/wine-bottles-climate-change.html?searchResultPosition=1
 
 **Watch Full Video: President Biden Meets With Prime Minister Boris Johnson**\
-`President Biden meets with Prime Minister Boris Johnson of Britain ahead of Friday’s meeting of the Group of 7 leading industrial nations. The bilateral meeting kicks off Mr. Biden’s first international trip as president.`\
+`President Biden met with Prime Minister Boris Johnson of Britain ahead of Friday’s meeting of the Group of 7 leading industrial nations. The bilateral meeting kicks off Mr. Biden’s first international trip as president.`\
 https://nytimes.com/video/embedded/world/100000007808355/biden-boris-johnson-meeting.html?searchResultPosition=3
 
 **‘The People That Are Within These Frames’: A Community Offers Self-Portraits**\
