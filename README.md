@@ -1,6 +1,6 @@
 **Ambassador Tai to Outline Biden’s Goal of Worker-Focused Trade Policy**\
 `The U.S. trade representative will call for stronger worker protections in trade policy as the administration looks to curb the negative impact of globalization.`\
-https://nytimes.com/2021/06/10/business/economy/ambassador-tai-to-outline-bidens-goal-of-worker-focused-trade-policy.html?searchResultPosition=1
+https://nytimes.com/2021/06/10/business/economy/us-trade-katherine-tai.html?searchResultPosition=1
 
 **Outcry Forces UnitedHealthcare to Delay Plan to Deny Coverage for Some E.R. Visits**\
 `Within days of announcing a policy shift aimed at cutting back on reimbursements for emergency room care, the major insurer retreated — for now.`\
