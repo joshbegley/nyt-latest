@@ -1,4 +1,4 @@
-**Goldman Sachs requires employees to report their vaccination status.**\
+**Goldman Sachs requires its U.S. employees to report their vaccination status.**\
 `Employees of the Wall Street bank will be asked to record the date they received their shots and the maker of the vaccine.`\
 https://nytimes.com/2021/06/10/business/goldman-sachs-vaccination-status.html?searchResultPosition=1
 
