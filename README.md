@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/09/us/politics/mcgahn-mueller-report-testimony.html?searchResultPosition=1
 
 **More vaccines cannot come too soon for stricken regions, including Latin America, a W.H.O. official says.**\
-`By Ernesto Londoño`\
+`Eight of the 10 countries with the highest rate of Covid deaths per capita rate are in Latin America and the Caribbean, where vaccines are sorely lacking.`\
 https://nytimes.com/2021/06/09/world/covid-vaccine-latin-america-who.html?searchResultPosition=2
 
 **Park Police Had Planned to Clear Area Before Trump’s Walk to Church, Watchdog Says**\
