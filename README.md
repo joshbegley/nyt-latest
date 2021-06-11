@@ -34,7 +34,7 @@ https://nytimes.com/video/us/elections/100000007809977/nyc-mayor-marijuana-regul
 `Leading candidates for mayor of New York City agreed in a debate on Thursday that the city should examine renaming sites named after slaveholders.`\
 https://nytimes.com/video/us/elections/100000007809971/new-york-mayor-slaveholders-name.html?searchResultPosition=9
 
-**Kim Jong-un Calls K-Pop a ‘Vicious Cancer’ in the New Culture War**\
-`South Korean music, movies and dramas are winning the hearts of young North Koreans. Their influence is seen as a threat to Mr. Kim’s grip on society.`\
-https://nytimes.com/2021/06/11/world/asia/kim-jong-un-k-pop.html?searchResultPosition=10
+**A cruise ship required all aboard to be vaccinated. Then two passengers tested positive for the virus.**\
+`As large gatherings resume in the U.S., infections on a cruise ship and at a Bitcoin conference show the challenges of reopening.`\
+https://nytimes.com/2021/06/10/travel/covid-cruise-ship.html?searchResultPosition=10
 
