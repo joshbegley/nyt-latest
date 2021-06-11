@@ -8,7 +8,7 @@ https://nytimes.com/video/us/elections/100000007809971/new-york-mayor-slaveholde
 
 **Kim Jong-un Calls K-Pop a ‘Vicious Cancer’ in the New Culture War**\
 `South Korean music, movies and dramas are winning the hearts of young North Koreans. Their influence is seen as a threat to Mr. Kim’s grip on society.`\
-https://nytimes.com/2021/06/10/world/asia/kim-jong-un-k-pop.html?searchResultPosition=3
+https://nytimes.com/2021/06/11/world/asia/kim-jong-un-k-pop.html?searchResultPosition=3
 
 **Texas Says It Will Build Border Wall With Mexico**\
 `“Texas will not sit idly by as this crisis grows,” Gov. Greg Abbott said of border crossings, while offering few details about the wall.`\
