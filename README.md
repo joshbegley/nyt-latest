@@ -8,7 +8,7 @@ https://nytimes.com/2021/06/11/world/middleeast/israel-government-coalition.html
 
 **The value of Rupert Murdoch’s racy The Sun newspaper is written down to nothing.**\
 `One of Britain’s most-read tabloids, it suffered in the pandemic because of a decline in print advertising and lost circulation.`\
-https://nytimes.com/2021/06/11/business/the-value-of-rupert-murdochs-racy-the-sun-newspaper-is-written-down-to-nothing.html?searchResultPosition=3
+https://nytimes.com/2021/06/11/business/rupert-murdoch-sun-newspaper.html?searchResultPosition=3
 
 **‘Freedom Day’ for England Is Looking Like a Mirage**\
 `All coronavirus restrictions were supposed to end on June 21, but with the new Delta variant, the long-anticipated opening is increasingly problematic.`\
