@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/11/briefing/justice-dept-johnson-johnson-euro-2020.h
 https://nytimes.com/video/world/europe/100000007811753/recyclemore-g7-summit.html?searchResultPosition=6
 
 **In Leak Investigation, Tech Giants Are Caught Between Courts and Customers**\
-`Apple, Google and Microsoft have been plunged into a political firestorm as they have contended with law enforcement requests to hand over information.`\
+`Apple, under fire for turning over the data of two lawmakers to the Trump Justice Dept., said it did so unknowingly, while Google fought a request for New York Times data because it related to a corporate client.`\
 https://nytimes.com/2021/06/11/technology/apple-google-leak-investigation-data-requests.html?searchResultPosition=7
 
 **Reimagined Georgia O’Keeffe Museum Will Triple Its Gallery Space**\
