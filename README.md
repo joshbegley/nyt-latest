@@ -18,17 +18,17 @@ https://nytimes.com/2021/06/11/arts/design/tate-mural-rex-whistler-racism.html?s
 `Organizers of the May race, which claimed 21 lives, face criminal charges and disciplinary action. The man said to bear primary responsibility died in a fall from a high-rise this week.`\
 https://nytimes.com/2021/06/11/world/asia/china-ultramarathon-criminal-charges.html?searchResultPosition=5
 
+**For Lease: Windmill Space in the Atlantic Between Long Island and New Jersey**\
+`The proposed lease sale is part of the Biden administration's push to develop 30,000 megawatts of offshore wind power by 2030.`\
+https://nytimes.com/2021/06/11/climate/wind-energy-Atlantic-Biden.html?searchResultPosition=6
+
 **A West Village Home With a Gated Courtyard Is Up for Sale**\
 `The mixed-use property currently has two units and the atelier for Makarian, the fashion brand that designed Dr. Jill Biden’s Inauguration Day outfit. The asking price is $11.95 million.`\
-https://nytimes.com/2021/06/11/realestate/west-village-townhouse-sale.html?searchResultPosition=6
+https://nytimes.com/2021/06/11/realestate/west-village-townhouse-sale.html?searchResultPosition=7
 
 **With Start of Hurricane Season, It’s Time to Consider Flood Insurance**\
 `Most policies are issued by the government, which plans to change the way it prices its policies in the fall to better reflect climate risks.`\
-https://nytimes.com/2021/06/11/your-money/flood-insurance-cost-coverage.html?searchResultPosition=7
-
-**For Lease: Windmill Space in the Atlantic Between Long Island and New Jersey**\
-`The proposed lease sale is part of the Biden administration's push to develop 30,000 megawatts of offshore wind power by 2030.`\
-https://nytimes.com/2021/06/11/climate/wind-energy-Atlantic-Biden.html?searchResultPosition=8
+https://nytimes.com/2021/06/11/your-money/flood-insurance-cost-coverage.html?searchResultPosition=8
 
 **Plan to Revive I.R.S. ‘Wealth Squad’ Puts the Richest on Notice**\
 `President Biden has proposed a big increase in the I.R.S. budget for enforcement. So the best advice in dealing with the new scrutiny? Keep better records.`\
