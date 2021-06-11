@@ -8,7 +8,7 @@ https://nytimes.com/2021/06/10/climate/soot-pollution-EPA.html?searchResultPosit
 
 **Candidates agree that New York City should rename sites named for slaveholders.**\
 `By Dana Rubinstein`\
-https://nytimes.com/2021/06/10/nyregion/candidates-agree-that-new-york-city-should-rename-sites-named-for-slaveholders.html?searchResultPosition=3
+https://nytimes.com/2021/06/10/nyregion/slaveholder-site-names-nuyc.html?searchResultPosition=3
 
 **The debate was civil, but there were still some fireworks.**\
 `By Michael Gold`\
