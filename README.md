@@ -1,5 +1,5 @@
-**First Lady and Duchess Kate Middleton Attend School Tour**\
-`The first lady, Dr. Jill Biden, and Kate Middleton, the Duchess of Cambridge, toured a primary school in England on Friday. The first lady has a particular interest in global education.`\
+**First Lady and Duchess of Cambridge Tour School**\
+`The first lady, Dr. Jill Biden, and Kate, the Duchess of Cambridge, toured a primary school in England on Friday. The first lady has a particular interest in global education.`\
 https://nytimes.com/video/world/europe/100000007811056/jill-biden-kate-middleton-attend-school-tour.html?searchResultPosition=1
 
 **Wonking Out: Economic Nationalism, Biden-Style**\
