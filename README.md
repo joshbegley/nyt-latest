@@ -14,7 +14,7 @@ https://nytimes.com/2021/06/11/dining/yogurt-chicken-marinade.html?searchResultP
 `Hear tracks by Ava Max, Clairo, PmBata and others.`\
 https://nytimes.com/2021/06/11/arts/music/playlist-lorde-sza-pmbata.html?searchResultPosition=4
 
-**Democrats demand investigation of the Trump Justice Department’s secret seizure of lawmakers’ data.**\
+**Democrats demand that Barr testify about the Justice Department’s secret seizure of lawmakers’ data.**\
 `Officials at the Justice Department and in Congress said seizing data on lawmakers is nearly unheard-of outside of corruption investigations.`\
 https://nytimes.com/2021/06/11/us/politics/democrats-trump-leak-investigations.html?searchResultPosition=5
 
