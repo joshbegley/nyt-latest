@@ -1,6 +1,6 @@
 **Top Mayoral Rivals Attack Adams and Clash on Policing and Ethics**\
 `The debaters’ focus on Mr. Adams, centering on questions of his residency, reflected his front-runner status in the race for New York City mayor.`\
-https://nytimes.com/2021/06/10/nyregion/debate-mayor-eric-adams.html?searchResultPosition=1
+https://nytimes.com/2021/06/10/nyregion/debate-nyc-mayor-eric-adams.html?searchResultPosition=1
 
 **Military Officials Discuss Sexual Assault in Testimony to Congress**\
 `Defense Secretary Lloyd J. Austin III and Gen. Mark A. Milley, the chairman of the Joint Chiefs of Staff, testified to Congress on Thursday about how the military was responding to complaints of sexual misconduct.`\
