@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/11/opinion/zoos-animal-cruelty.html?searchResultPosi
 https://nytimes.com/2021/06/11/upshot/rush-hour-remote-work.html?searchResultPosition=6
 
 **Meager Rewards for Workers, Exceptionally Rich Pay for C.E.O.s**\
-`The gap between workers and C.E.O.s widened during the pandemic, as public companies granted top executives some of the richest pay packages ever.`\
+`The gap between workers and C.E.O.s widened during the pandemic as public companies granted top executives some of the richest pay packages ever.`\
 https://nytimes.com/2021/06/11/business/ceo-pay-compensation-stock.html?searchResultPosition=7
 
 **Want to Go to Hawaii? Be Prepared.**\
