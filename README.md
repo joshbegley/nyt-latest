@@ -1,40 +1,40 @@
+**The Cost of Being an ‘Interchangeable Asian’ and How to Advocate for Your Well-Being at Work: The Week in Narrated Articles**\
+`Five articles from around The Times, narrated just for you.`\
+https://nytimes.com/2021/06/11/podcasts/asian-american-naomi-osaka-virtual-reality-narrated-articles.html?searchResultPosition=1
+
 **For Australia’s prime minister, his visit to Cornwall is a homecoming — of sorts.**\
 `One of the leader’s ancestors was sent from the area in southwestern England to Australia two centuries ago with hundreds of other convicts.`\
-https://nytimes.com/2021/06/11/world/australia/australia-scott-morrison-cornwall.html?searchResultPosition=1
+https://nytimes.com/2021/06/11/world/australia/australia-scott-morrison-cornwall.html?searchResultPosition=2
 
 **Two Montana Sweethearts Were Fatally Shot in 1956. The Case Was Just Solved.**\
 `The Cascade County Sheriff’s Office said it appeared to be the oldest homicide case in the United States to be solved with genetic genealogy.`\
-https://nytimes.com/2021/06/11/us/great-falls-montana-2007-homicide-dna.html?searchResultPosition=2
+https://nytimes.com/2021/06/11/us/great-falls-montana-2007-homicide-dna.html?searchResultPosition=3
 
 **Finally Making It to Manhattan**\
 `For those who have long dreamed of escaping the other boroughs, there was a silver lining to the pandemic: lower rents in Manhattan.`\
-https://nytimes.com/2021/06/11/realestate/renting-manhattan.html?searchResultPosition=3
+https://nytimes.com/2021/06/11/realestate/renting-manhattan.html?searchResultPosition=4
 
 **When Manhattan is Cheaper than Brooklyn**\
 `With rents dropping and landlords offering concessions, some renters who couldn’t afford Manhattan before the pandemic have finally made the move.`\
-https://nytimes.com/slideshow/2021/06/11/realestate/when-manhattan-is-cheaper-than-brooklyn.html?searchResultPosition=4
+https://nytimes.com/slideshow/2021/06/11/realestate/when-manhattan-is-cheaper-than-brooklyn.html?searchResultPosition=5
 
 **The Case Against Zoos**\
 `Many of them aspire to be good civic institutions that care for animals on their grounds and in the wild. But is it really worth their captivity?`\
-https://nytimes.com/2021/06/11/opinion/zoos-animal-cruelty.html?searchResultPosition=5
+https://nytimes.com/2021/06/11/opinion/zoos-animal-cruelty.html?searchResultPosition=6
 
 **A Little More Remote Work Could Change Rush Hour a Lot**\
 `Peak commute time rules our lives, our cities, our tax dollars. But it doesn’t have to.`\
-https://nytimes.com/2021/06/11/upshot/rush-hour-remote-work.html?searchResultPosition=6
+https://nytimes.com/2021/06/11/upshot/rush-hour-remote-work.html?searchResultPosition=7
 
 **Meager Rewards for Workers, Exceptionally Rich Pay for C.E.O.s**\
 `The gap between workers and C.E.O.s widened during the pandemic as public companies granted top executives some of the richest pay packages ever.`\
-https://nytimes.com/2021/06/11/business/ceo-pay-compensation-stock.html?searchResultPosition=7
+https://nytimes.com/2021/06/11/business/ceo-pay-compensation-stock.html?searchResultPosition=8
 
 **Want to Go to Hawaii? Be Prepared.**\
 `Interest in visiting the islands is running high, but the price of paradise can be multiple Covid tests, expensive stints in quarantine, long waits in line and more.`\
-https://nytimes.com/2021/06/11/travel/covid-hawaii-travel.html?searchResultPosition=8
+https://nytimes.com/2021/06/11/travel/covid-hawaii-travel.html?searchResultPosition=9
 
 **Consider the $34 Lobster Roll**\
 `The pandemic has exacerbated a price spike in the iconic New England summer sandwich.`\
-https://nytimes.com/2021/06/11/style/lobster-roll-spike.html?searchResultPosition=9
-
-**How to Reopen Offices Safely**\
-`Flush the taps, focus on indoor air quality and consider getting creative about staff schedules.`\
-https://nytimes.com/2021/06/11/health/coronavirus-reopening-office.html?searchResultPosition=10
+https://nytimes.com/2021/06/11/style/lobster-roll-spike.html?searchResultPosition=10
 
