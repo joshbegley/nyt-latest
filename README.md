@@ -1,40 +1,40 @@
-**In Australia, a New Look at Immigration: ‘It’s About Our Friends’**\
-`In a country inured to criticism over its migrant policies, a case involving a 3-year-old detainee who ended up hospitalized has drawn outrage.`\
-https://nytimes.com/2021/06/11/world/asia/in-australia-a-new-look-at-immigration-its-about-our-friends.html?searchResultPosition=1
+**Finally Making It to Manhattan**\
+`For those who have long dreamed of escaping the other boroughs, there was a silver lining to the pandemic: lower rents in Manhattan.`\
+https://nytimes.com/2021/06/11/realestate/renting-manhattan.html?searchResultPosition=1
 
-**How Severe Is the Western Drought? See For Yourself.**\
-`Maps show that drought conditions are the most widespread and severe in at least 20 years, with reservoirs running dry.`\
-https://nytimes.com/interactive/2021/06/11/climate/california-western-drought-map.html?searchResultPosition=2
+**When Manhattan is Cheaper than Brooklyn**\
+`With rents dropping and landlords offering concessions, some renters who couldn’t afford Manhattan before the pandemic have finally made the move.`\
+https://nytimes.com/slideshow/2021/06/11/realestate/when-manhattan-is-cheaper-than-brooklyn.html?searchResultPosition=2
 
-**Tackling Vaccine Complacency Close to Home**\
-`People like my parents could help speed up Australia’s vaccine rollout — if they ever stop putting it off.`\
-https://nytimes.com/2021/06/11/world/australia/tackling-vaccine-complacency-close-to-home.html?searchResultPosition=3
+**The Case Against Zoos**\
+`Many of them aspire to be good civic institutions that care for animals on their grounds and in the wild. But is it really worth their captivity?`\
+https://nytimes.com/2021/06/11/opinion/zoos-animal-cruelty.html?searchResultPosition=3
 
-**China Still Buys American DNA Equipment for Xinjiang Despite Blocks**\
-`The U.S. government has long tried to prevent the sales over concerns about rights abuses and surveillance. Documents show those efforts have failed.`\
-https://nytimes.com/2021/06/11/business/china-dna-xinjiang-american.html?searchResultPosition=4
+**A Little More Remote Work Could Change Rush Hour a Lot**\
+`Peak commute time rules our lives, our cities, our tax dollars. But it doesn’t have to.`\
+https://nytimes.com/2021/06/11/upshot/rush-hour-remote-work.html?searchResultPosition=4
 
-**Trevor Noah Thanks Anti-Vaxxers on Behalf of Other Countries**\
-`“Seems generous until you remember that Biden can’t get anyone else in America to take them, right?” Noah said of the president’s plan to donate 500 million Covid-19 vaccine doses to 100 countries.`\
-https://nytimes.com/2021/06/11/arts/television/late-night-biden-covid-vaccines.html?searchResultPosition=5
+**Meager Rewards for Workers, Exceptionally Rich Pay for C.E.O.s**\
+`The gap between workers and C.E.O.s widened during the pandemic, as public companies granted top executives some of the richest pay packages ever.`\
+https://nytimes.com/2021/06/11/business/ceo-pay-compensation-stock.html?searchResultPosition=5
 
-**U.S. Senate Confirms First Muslim Federal District Judge**\
-`The judge, Zahid N. Quraishi of New Jersey, said after his selection by President Biden, “Candidly, I would prefer to be the hundredth, if not the thousandth.”`\
-https://nytimes.com/2021/06/11/nyregion/zahid-quraishi-first-muslim-federal-district-judge.html?searchResultPosition=6
+**Consider the $34 Lobster Roll**\
+`The pandemic has exacerbated a price spike in the iconic New England summer sandwich.`\
+https://nytimes.com/2021/06/11/style/lobster-roll-spike.html?searchResultPosition=6
 
-**Boris Johnson Is a Terrible Leader. It Doesn’t Matter.**\
-`Britain’s prime minister is slapdash, venal, incompetent — and unassailably popular.`\
-https://nytimes.com/2021/06/11/opinion/boris-johnson-g7-biden.html?searchResultPosition=7
+**How to Reopen Offices Safely**\
+`Flush the taps, focus on indoor air quality and consider getting creative about staff schedules.`\
+https://nytimes.com/2021/06/11/health/coronavirus-reopening-office.html?searchResultPosition=7
 
-**An Oregon lawmaker is ejected from office for helping a crowd breach the State Capitol.**\
-`The Oregon House voted 59 to 1 to remove Representative Mike Nearman, a Republican, for his actions in December.`\
-https://nytimes.com/2021/06/11/us/politics/mike-nearman-oregon-ejected.html?searchResultPosition=8
+**Want to Go to Hawaii? Be Prepared.**\
+`Interest in visiting the islands is running high, but the price of paradise can be multiple Covid tests, expensive stints in quarantine, long waits in line and more.`\
+https://nytimes.com/2021/06/11/travel/covid-hawaii-travel.html?searchResultPosition=8
 
-**Your Friday Briefing**\
-`Biden’s approaches to Europe.`\
-https://nytimes.com/2021/06/11/briefing/biden-europe-coronavirus-tigray.html?searchResultPosition=9
+**A Recharged New York, Through Young Eyes**\
+`For a special project of The Times Magazine, 15 photographers ages 25 and under captured an electric, joyous, anxious city slowly becoming itself again.`\
+https://nytimes.com/2021/06/11/insider/new-york-young-photographers.html?searchResultPosition=9
 
-**Perceived Grievances Drove Virginia Beach Gunman to Kill 12, F.B.I. Finds**\
-`DeWayne Craddock, a city engineer who went on a shooting rampage in 2019, had been “fixated for years” on criticism at work, the F.B.I. said.`\
-https://nytimes.com/2021/06/11/us/virginia-beach-shooting-dewayne-craddock-motive.html?searchResultPosition=10
+**This Is the Story of a Man Who Jumped Into Lake Michigan Every Day for Nearly a Year**\
+`He started one Saturday as the pandemic was raging. Then he just kept going, never mind Chicago’s winter.`\
+https://nytimes.com/2021/06/11/us/lake-michigan-coronavirus.html?searchResultPosition=10
 
