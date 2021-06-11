@@ -18,17 +18,17 @@ https://nytimes.com/2021/06/11/upshot/rush-hour-remote-work.html?searchResultPos
 `The gap between workers and C.E.O.s widened during the pandemic, as public companies granted top executives some of the richest pay packages ever.`\
 https://nytimes.com/2021/06/11/business/ceo-pay-compensation-stock.html?searchResultPosition=5
 
+**Want to Go to Hawaii? Be Prepared.**\
+`Interest in visiting the islands is running high, but the price of paradise can be multiple Covid tests, expensive stints in quarantine, long waits in line and more.`\
+https://nytimes.com/2021/06/11/travel/covid-hawaii-travel.html?searchResultPosition=6
+
 **Consider the $34 Lobster Roll**\
 `The pandemic has exacerbated a price spike in the iconic New England summer sandwich.`\
-https://nytimes.com/2021/06/11/style/lobster-roll-spike.html?searchResultPosition=6
+https://nytimes.com/2021/06/11/style/lobster-roll-spike.html?searchResultPosition=7
 
 **How to Reopen Offices Safely**\
 `Flush the taps, focus on indoor air quality and consider getting creative about staff schedules.`\
-https://nytimes.com/2021/06/11/health/coronavirus-reopening-office.html?searchResultPosition=7
-
-**Want to Go to Hawaii? Be Prepared.**\
-`Interest in visiting the islands is running high, but the price of paradise can be multiple Covid tests, expensive stints in quarantine, long waits in line and more.`\
-https://nytimes.com/2021/06/11/travel/covid-hawaii-travel.html?searchResultPosition=8
+https://nytimes.com/2021/06/11/health/coronavirus-reopening-office.html?searchResultPosition=8
 
 **A Recharged New York, Through Young Eyes**\
 `For a special project of The Times Magazine, 15 photographers ages 25 and under captured an electric, joyous, anxious city slowly becoming itself again.`\
