@@ -1,6 +1,6 @@
 **Trevor Noah Thanks Anti-Vaxxers on Behalf of Other Countries**\
 `“Seems generous until you remember that Biden can’t get anyone else in America to take them, right?” Noah said of the president’s plan to donate 500 million Covid-19 vaccine doses to 100 countries.`\
-https://nytimes.com/2021/06/11/arts/television/trevor-noah-covid-vaccines.html?searchResultPosition=1
+https://nytimes.com/2021/06/11/arts/television/late-night-biden-covid-vaccines.html?searchResultPosition=1
 
 **U.S. Senate Confirms First Muslim Federal District Judge**\
 `The judge, Zahid N. Quraishi of New Jersey, said after his selection by President Biden, “Candidly, I would prefer to be the hundredth, if not the thousandth.”`\
