@@ -1,4 +1,4 @@
-**F.D.A. Tells Johnson & Johnson60 Million Vaccine Doses Cannot Be Used**\
+**F.D.A. Tells Johnson & Johnson 60 Million Vaccine Doses Cannot Be Used**\
 `The agency has not decided whether to allow a troubled vaccine factory in Baltimore to reopen.`\
 https://nytimes.com/2021/06/11/us/politics/covid-vaccine-emergent-johnson-johnson.html?searchResultPosition=1
 
