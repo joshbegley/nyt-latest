@@ -32,7 +32,7 @@ https://nytimes.com/2021/06/11/obituaries/jobriath-overlooked.html?searchResultP
 
 **‘It’s All Ruined’: Young Woman Caught Up in Belarus Clampdown**\
 `Sofia Sapega looked forward to finishing law school and was not particularly political, friends said. But in Belarus, having a relationship with a dissident can now mean jail.`\
-https://nytimes.com/2021/06/11/world/europe/belarus-ryanair-friend-detain.html?searchResultPosition=9
+https://nytimes.com/2021/06/11/world/europe/belarus-roman-protasevich-friend-detained.html?searchResultPosition=9
 
 **Iran Pays Delinquent U.N. Dues, Getting Its Vote Back**\
 `The $16.2 million was drawn from Iranian money in a Korean bank that had been frozen by U.S. sanctions but was freed to pay the dues — apparently a conciliatory signal by the Biden administration.`\
