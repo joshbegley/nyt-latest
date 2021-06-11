@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/11/world/australia/australia-scott-morrison-cornwall
 https://nytimes.com/2021/06/11/us/great-falls-montana-2007-homicide-dna.html?searchResultPosition=7
 
 **Finally Making It to Manhattan**\
-`For those who have long dreamed of escaping the other boroughs, there was a silver lining to the pandemic: lower rents in Manhattan.`\
+`For those in other boroughs who dreamed of Manhattan, there was a silver lining to the pandemic: lower rents.`\
 https://nytimes.com/2021/06/11/realestate/renting-manhattan.html?searchResultPosition=8
 
 **When Manhattan is Cheaper than Brooklyn**\
