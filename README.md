@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/11/world/asia/china-ultramarathon-criminal-charges.h
 https://nytimes.com/2021/06/11/climate/wind-energy-Atlantic-Biden.html?searchResultPosition=7
 
 **A West Village Home With a Gated Courtyard Is Up for Sale**\
-`The mixed-use property currently has two units and the atelier for Makarian, the fashion brand that designed Dr. Jill Biden’s Inauguration Day outfit. The asking price is $11.95 million.`\
+`The mixed-use property currently has two units and the atelier for Markarian, the fashion brand that designed Dr. Jill Biden’s Inauguration Day outfit. The asking price is $11.95 million.`\
 https://nytimes.com/2021/06/11/realestate/west-village-townhouse-sale.html?searchResultPosition=8
 
 **With Start of Hurricane Season, It’s Time to Consider Flood Insurance**\
