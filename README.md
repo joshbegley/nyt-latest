@@ -1,5 +1,5 @@
 **A C.D.C. report finds a pandemic spike in E.R. visits related to suspected suicide attempts among teen girls.**\
-`“The findings from this study suggest more severe distress among young females than has been identified in previous reports,” the new study said.`\
+`The findings “suggest more severe distress among young females than has been identified in previous reports,” the new study said.`\
 https://nytimes.com/2021/06/11/world/cdc-covid-suicide.html?searchResultPosition=1
 
 **‘Lupin’ Took the World by Stealth. Part 2 Can’t Be so Sneaky.**\
