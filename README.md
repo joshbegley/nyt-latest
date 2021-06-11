@@ -31,7 +31,7 @@ https://nytimes.com/slideshow/2021/06/11/realestate/when-manhattan-is-cheaper-th
 https://nytimes.com/2021/06/11/opinion/zoos-animal-cruelty.html?searchResultPosition=8
 
 **A Little More Remote Work Could Change Rush Hour a Lot**\
-`Peak commute time rules our lives, our cities, our tax dollars. But it doesn’t have to.`\
+`Peak commute time has long ruled our lives, our cities, our tax dollars. But it doesn’t have to.`\
 https://nytimes.com/2021/06/11/upshot/rush-hour-remote-work.html?searchResultPosition=9
 
 **Meager Rewards for Workers, Exceptionally Rich Pay for C.E.O.s**\
