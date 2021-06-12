@@ -10,8 +10,8 @@ https://nytimes.com/2021/06/12/movies/milton-moses-ginsberg-dead.html?searchResu
 `Michael Packard, a lobster diver in Provincetown, Mass., found himself inside the mouth of a whale on Friday morning, then was spit out.`\
 https://nytimes.com/2021/06/12/us/humpback-whale-lobster-diver-cape-cod.html?searchResultPosition=3
 
-**Climate Protesters Rally on the Streets and Sea Amid G7 Summit**\
-`Groups of demonstrators rallied in Falmouth, England, on Saturday to protest the effects of climate change as world leaders gathered for the Group of 7 summit.`\
+**Climate Protesters Rally on the Streets and at Sea Amid G7 Summit**\
+`Groups of demonstrators gathered in Falmouth, England, on Saturday to protest the effects of climate change as world leaders met for the G7 summit.`\
 https://nytimes.com/video/world/europe/100000007812405/g7-climate-protests.html?searchResultPosition=4
 
 **Yair Lapid Won’t Be Israel’s Next Leader. But He’s the Power Behind the Throne.**\
