@@ -10,7 +10,7 @@ https://nytimes.com/2021/06/11/world/canada/muslims-afzaal-islamophobic-killing.
 `Do you need to be vaccinated or have a negative Covid-19 test for your next trip? Check this guide before traveling domestically or abroad.`\
 https://nytimes.com/article/travel-testing-vaccine-requirements.html?searchResultPosition=3
 
-**Justice Dept. Watchdog and Senate Open Inquiries Into Seizure of Democrats’ Data**\
+**Justice Dept. Watchdog to Investigate Seizure of Democrats’ Data**\
 `Democrats denounced the Trump administration’s seizure of lawmakers’ data as an abuse of power and called on Republicans to back the congressional inquiry.`\
 https://nytimes.com/2021/06/11/us/politics/leaks-investigation-justice-department-trump.html?searchResultPosition=4
 
