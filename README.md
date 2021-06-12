@@ -8,7 +8,7 @@ https://nytimes.com/video/world/europe/100000007812405/g7-climate-protests.html?
 
 **Yair Lapid Won’t Be Israel’s Next Leader. But He’s the Power Behind the Throne.**\
 `If a new coalition government wins a confidence vote in Parliament on Sunday, Naftali Bennett will be Israel’s next prime minister. He wouldn’t be there without Yair Lapid.`\
-https://nytimes.com/2021/06/12/world/middleeast/yair-lapid-coalition.html?searchResultPosition=3
+https://nytimes.com/2021/06/12/world/middleeast/yair-lapid-israel-coalition.html?searchResultPosition=3
 
 **An Unlikely Champion Wins the French Open, and Thanks a Mentor**\
 `Barbora Krejcikova developed her multifaceted game with the help of the former Wimbledon champion Jana Novotna, who died in 2017.`\
