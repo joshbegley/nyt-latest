@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/12/world/russia-covid-surge.html?searchResultPositio
 `Since the February coup, many physicians have refused to work at state-run hospitals. “I will never blame the doctors,” said a patient whose treatment stopped.`\
 https://nytimes.com/2021/06/12/world/asia/myanmar-coup-doctors-health.html?searchResultPosition=2
 
-**Denmark’s Christian Eriksen collapsed on the field against Finland.**\
+**Denmark’s Christian Eriksen collapsed on the field. He is responsive and awake.**\
 `The midfielder was walking near the sideline when he fell over. Medical teams offered urgent treatment on the field.`\
 https://nytimes.com/2021/06/12/sports/soccer/denmark-christian-eriksen-collapse.html?searchResultPosition=3
 
