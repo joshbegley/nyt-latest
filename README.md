@@ -3,11 +3,11 @@
 https://nytimes.com/2021/06/12/world/europe/france-melenchon-flour-protest.html?searchResultPosition=1
 
 **Barbora Krejcikova Wins the French Open**\
-`Unseeded but the sentimental favorite, Krejcikova defeated Anastasia Pavlyuchenkova in three sets to win the women’s singles title in Paris.`\
+`Unseeded but the sentimental favorite, Krejcikova defeated Anastasia Pavlyuchenkova 6-1, 2-6, 6-4, to win the women’s singles title in Paris.`\
 https://nytimes.com/2021/06/12/sports/tennis/barbora-krejcikova-wins-french-open.html?searchResultPosition=2
 
 **Canada rejects 300,000 doses of the J&J vaccine made in the U.S. because of contamination issues.**\
-`The Canadian regulator also banned the use of all products made at Emergent BioSolutions’  plant in Baltimore, Md., until it conducts an on-site inspection.T`\
+`The Canadian regulator also banned the use of all products made at Emergent BioSolutions’ plant in Baltimore, Md., until it conducts an on-site inspection.T`\
 https://nytimes.com/2021/06/12/world/canada-jj-vaccine.html?searchResultPosition=3
 
 **Bitcoin and Encryption: A Race Between Criminals and the F.B.I.**\
