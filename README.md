@@ -1,6 +1,6 @@
 **Barbora Krejcikova Wins the French Open**\
 `Unseeded but the sentimental favorite, Krejcikova defeated Anastasia Pavlyuchenkova in three sets to win the women’s singles title in Paris.`\
-https://nytimes.com/2021/06/12/sports/tennis/barbora-krejcikova-wins-the-french-open.html?searchResultPosition=1
+https://nytimes.com/2021/06/12/sports/tennis/barbora-krejcikova-wins-french-open.html?searchResultPosition=1
 
 **Canada rejects 300,000 doses of the J&J vaccine made in the U.S. because of contamination issues.**\
 `The Canadian regulator also banned the use of all products made at Emergent BioSolutions’  plant in Baltimore, Md., until it conducts an on-site inspection.T`\
