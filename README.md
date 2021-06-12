@@ -12,7 +12,7 @@ https://nytimes.com/2021/06/12/world/canada-jj-vaccine.html?searchResultPosition
 
 **Bitcoin and Encryption: A Race Between Criminals and the F.B.I.**\
 `The F.B.I. scored two major victories, recovering a Bitcoin ransom and tricking lawbreakers with an encryption app. But criminals may still have the upper hand.`\
-https://nytimes.com/2021/06/12/technology/technology-fbi-bitcoin-encryption.html?searchResultPosition=4
+https://nytimes.com/2021/06/12/technology/fbi-bitcoin-ransom-encryption.html?searchResultPosition=4
 
 **Fat Cats on a Hot Tin Roof**\
 `Pay up, Monopoly Men; freeloading isn't cool. `\
