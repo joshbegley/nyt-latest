@@ -14,27 +14,27 @@ https://nytimes.com/2021/06/12/opinion/sunday/china-xinjiang-uyghur-muslims-geno
 `Friday was the first time more than two million people boarded flights. Air travel was still below prepandemic levels.`\
 https://nytimes.com/2021/06/12/us/us-air-travel-coronavirus-pandemic.html?searchResultPosition=4
 
-**President Biden and Jill Biden will meet with the queen at Windsor Castle.**\
-`The royal family’s presence around the Group of 7 summit meeting is unusually strong this year.`\
-https://nytimes.com/2021/06/12/world/europe/biden-queen-windsor-castle.html?searchResultPosition=5
-
 **One Way Forward on Iran: A Nuclear-Weapons-Free Persian Gulf**\
 `Regional rivalries lie at the heart of opposition to the nuclear pact. Could a revived agreement chart a better path?`\
-https://nytimes.com/2021/06/12/opinion/sunday/iran-nuclear-deal.html?searchResultPosition=6
+https://nytimes.com/2021/06/12/opinion/sunday/iran-nuclear-deal.html?searchResultPosition=5
 
 **Donald Trump Is Starving**\
 `A glutton for attention is yanked away from the buffet. `\
-https://nytimes.com/2021/06/12/opinion/sunday/donald-trump.html?searchResultPosition=7
+https://nytimes.com/2021/06/12/opinion/sunday/donald-trump.html?searchResultPosition=6
 
 **How Joe Manchin Can Fix the Filibuster**\
 ` In mending rather than ending the rule, he might get us a little closer to a workable middle ground.`\
-https://nytimes.com/2021/06/12/opinion/sunday/joe-manchin-filibuster.html?searchResultPosition=8
+https://nytimes.com/2021/06/12/opinion/sunday/joe-manchin-filibuster.html?searchResultPosition=7
 
 **The House lifts its mask mandate for fully vaccinated individuals.**\
 `House officials distributed new guidelines issued by the attending physician of Congress, which preserves mask requirements for the unvaccinated.`\
-https://nytimes.com/2021/06/12/us/mask-mandate-fully-vaccinated-congress.html?searchResultPosition=9
+https://nytimes.com/2021/06/12/us/mask-mandate-fully-vaccinated-congress.html?searchResultPosition=8
 
 **Russia scrambles to contain a new surge, as most of its people appear to be avoiding the Sputnik vaccine.**\
 `Moscow’s mayor said the city’s situation had “sharply worsened” in the past week.`\
-https://nytimes.com/2021/06/12/world/russia-covid-surge.html?searchResultPosition=10
+https://nytimes.com/2021/06/12/world/russia-covid-surge.html?searchResultPosition=9
+
+**In Myanmar, Health Care’s Collapse Takes Its Own Toll**\
+`Since the February coup, many physicians have refused to work at state-run hospitals. “I will never blame the doctors,” said a patient whose treatment stopped.`\
+https://nytimes.com/2021/06/12/world/asia/myanmar-coup-doctors-health.html?searchResultPosition=10
 
