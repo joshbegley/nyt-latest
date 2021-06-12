@@ -36,5 +36,5 @@ https://nytimes.com/2021/06/12/sports/baseball/jacob-degrom-mets.html?searchResu
 
 **Biden will hold a solo news conference rather than pairing with Putin after their summit.**\
 `By Michael D. Shear`\
-https://nytimes.com/2021/06/12/world/europe/biden-will-hold-a-solo-news-conference-rather-than-pairing-with-putin-after-their-summit.html?searchResultPosition=10
+https://nytimes.com/2021/06/12/world/europe/biden-putin-g7-summit.html?searchResultPosition=10
 
