@@ -2,7 +2,7 @@
 `These complex takeover vehicles serve an important purpose that’s worth protecting.`\
 https://nytimes.com/2021/06/12/business/dealbook/SPACs-defense.html?searchResultPosition=1
 
-**Jacob DeGrom Stays Calm After Leaving Start With Elbow Pain**\
+**Jacob deGrom Stays Calm After Leaving Start With Elbow Pain**\
 `The Mets ace allowed just one hit in six innings before exiting. “My level of concern is not too high,” deGrom said.`\
 https://nytimes.com/2021/06/12/sports/baseball/jacob-degrom-mets.html?searchResultPosition=2
 
