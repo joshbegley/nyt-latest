@@ -1,4 +1,4 @@
-**Venezuela faces a coronavirus outbreak a day before it is to play Brazil in the Copa América.**\
+**Venezuela faces a coronavirus outbreak a day before the start of the Copa América.**\
 `At least a dozen Venezuela players and staff members tested positive, raising new doubts about the decision to hold the tournament in Brazil.`\
 https://nytimes.com/2021/06/12/sports/soccer/venezuela-brazil-copa-america-cornavirus.html?searchResultPosition=1
 
