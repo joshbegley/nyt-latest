@@ -2,7 +2,7 @@
 `The German chancellor, known for her commitment to compromise, is eager to revive deal-making on multilateral policy, joining the world’s top democratic leaders one last time. Can she be replaced?`\
 https://nytimes.com/2021/06/12/world/europe/angela-merkel-germany-g7.html?searchResultPosition=1
 
-**This is the Summer the Youth Own New York**\
+**This Is the Summer the Youth Own New York**\
 `For decades, certain corners of the city were so smoothed by money they seemed off-limits to those just starting out as adults. But for one brief shining moment, it all belongs to the young.`\
 https://nytimes.com/2021/06/12/style/nyc-summer.html?searchResultPosition=2
 
