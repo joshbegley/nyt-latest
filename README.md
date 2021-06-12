@@ -30,7 +30,7 @@ https://nytimes.com/2021/06/11/us/police-retirements-resignations-recruits.html?
 `The former N.B.A. star’s first movie, “Domino: Battle of the Bones,” is as in-your-face as his playing style. And he’s got plenty more big-screen ideas.`\
 https://nytimes.com/2021/06/11/movies/baron-davis-domino-battle-of-the-bones.html?searchResultPosition=8
 
-**F.D.A. Tells Johnson & Johnson That60 Million Vaccine Doses Cannot Be Used**\
+**F.D.A. Tells Johnson & Johnson That 60 Million Vaccine Doses Cannot Be Used**\
 `The agency has not decided whether to allow a troubled vaccine factory in Baltimore to reopen.`\
 https://nytimes.com/2021/06/11/us/politics/covid-vaccine-emergent-johnson-johnson.html?searchResultPosition=9
 
