@@ -34,7 +34,7 @@ https://nytimes.com/2021/06/12/technology/fbi-bitcoin-ransom-encryption.html?sea
 `Pay up, Monopoly Men; freeloading isn't cool. `\
 https://nytimes.com/2021/06/12/opinion/billionaires-taxes.html?searchResultPosition=9
 
-**AT&T Bet Big on Synergy. It Lost.**\
+**Why AT&T Is Retreating From Its ‘Synergy’ Gamble**\
 `In acquiring WarnerMedia, it believed  pairing distribution with content was the key to the future. Apparently not.`\
 https://nytimes.com/2021/06/12/opinion/att-warner-bros-discovery.html?searchResultPosition=10
 
