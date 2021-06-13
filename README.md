@@ -35,6 +35,6 @@ https://nytimes.com/2021/06/13/world/middleeast/netanyahu-israel-parliament-spee
 https://nytimes.com/2021/06/13/world/swiss-pesticide-referendum-ban.html?searchResultPosition=9
 
 **Denmark’s team doctor on Christian Eriksen: ‘He was gone.’**\
-`Eriksen went into cardiac arrest on the field during a game at Euro 2020, team officials said, but was well enough Sunday to speak to his coach.`\
+`Eriksen went into cardiac arrest on the field during a game at Euro 2020, team officials said. His teammates will return to training on Monday.`\
 https://nytimes.com/2021/06/13/sports/soccer/christian-eriksen-he-was-gone.html?searchResultPosition=10
 
