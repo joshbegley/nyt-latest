@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/13/world/middleeast/israel-netanyahu-bennett.html?searchResultPosition=1
 
 **Here’s how to watch the 2021 Westminster dog show.**\
-`By Victor Mather and Jonathan Ellis`\
+`Winners from three groups will be named on Sunday night. They’ll join four other group winners to compete for Best in Show.`\
 https://nytimes.com/2021/06/13/sports/how-to-watch-westminster-dog-show-2021.html?searchResultPosition=2
 
 **Your Monday Briefing**\
