@@ -19,7 +19,7 @@ https://nytimes.com/2021/06/13/us/maine-browntail-moth-caterpillar.html?searchRe
 https://nytimes.com/2021/06/13/world/europe/biden-queen-elizabeth.html?searchResultPosition=5
 
 **Netanyahu loses office for the first time in 12 years, making way for Naftali Bennett.**\
-`Supporters of the new governing coalition hold together with a thin margin.`\
+`Supporters of the new governing coalition win by just a single vote, 60-59 with one abstention.`\
 https://nytimes.com/2021/06/13/world/middleeast/knesset-vote-netanyahu-bennett.html?searchResultPosition=6
 
 **In Adesanya, U.F.C. Has a Champion It Can Depend On**\
