@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/13/nyregion/long-buried-secrets-the-serial-killer-an
 `Encountering an East Village character, an unusual question and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2021/06/13/nyregion/metropolitan-diary.html?searchResultPosition=2
 
-**Explosion in Residential Area Kills at Least 11 in China**\
+**Explosion in Residential Area Kills at Least 12 in China**\
 `The cause of the blast, which took place in the central city of Shiyan, was still being investigated.`\
 https://nytimes.com/2021/06/13/world/asia/china-shiyan-gas-explosion.html?searchResultPosition=3
 
