@@ -10,8 +10,8 @@ https://nytimes.com/2021/06/13/world/middleeast/netanyahu-israel-parliament-spee
 `The referendum would have barred the use of the synthetic pesticides in farms and gardens.`\
 https://nytimes.com/2021/06/13/world/swiss-pesticide-referendum-ban.html?searchResultPosition=3
 
-**No One Forces Us to Leave Millions in Poverty**\
-`So why do we let it happen? The answer should make us uncomfortable.`\
+**What the Rich Don’t Want to Admit About the Poor**\
+`Why do we leave millions of people in poverty? The answer should make us uncomfortable.`\
 https://nytimes.com/2021/06/13/opinion/stimulus-unemployment-republicans-poverty.html?searchResultPosition=4
 
 **Without vaccines, Haiti struggles to contain its latest Covid wave.**\
