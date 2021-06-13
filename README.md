@@ -18,7 +18,7 @@ https://nytimes.com/2021/06/13/opinion/warren-buffett-billionaire-taxes.html?sea
 `Wrap fried chicken and biscuits in wax paper to share, and head outside.`\
 https://nytimes.com/2021/06/13/dining/what-to-cook-this-week.html?searchResultPosition=5
 
-**Netanyahu angrily vows to lawmakers that he will lead the opposition.**\
+**Netanyahu angrily vows to his supporters, ‘I will lead you in a daily battle.’**\
 `By Patrick Kingsley`\
 https://nytimes.com/2021/06/13/world/middleeast/netanyahu-israel-parliament-speech.html?searchResultPosition=6
 
