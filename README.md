@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/13/us/politics/g7-summit-ends.html?searchResultPosition=1
 
 **Thousands Rally in Brooklyn to Protest ‘State of Emergency’ for Trans Youth**\
-`The rally was held against the backdrop of a wave of legislation targeting transgender children and violence that disproportionately affects Black trans women. “We are here to claim space,” one speaker said.`\
+`The Brooklyn Liberation march was held against the backdrop of a wave of legislation targeting transgender children and violence that disproportionately affects Black trans women. “We are here to claim space,” one speaker said.`\
 https://nytimes.com/2021/06/13/nyregion/black-trans-lives-march-pride.html?searchResultPosition=2
 
 **Tumult Disrupts Israeli Parliament as Netanyahu Era Ends**\
