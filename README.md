@@ -1,4 +1,4 @@
-**Tumult Disrupts the Israeli Parliament as Netanyahu Era Ends**\
+**Tumult Disrupts Israeli Parliament as Netanyahu Era Ends**\
 `Naftali Bennett, heckled and insulted, replaced Benjamin Netanyahu as prime minister by the narrowest of margins.`\
 https://nytimes.com/2021/06/13/world/middleeast/israel-netanyahu-bennett.html?searchResultPosition=1
 
