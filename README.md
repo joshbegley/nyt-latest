@@ -1,5 +1,5 @@
-**The Met Museum Sees More Clay in its Future**\
-`An abstract painter found his place as a great collector of American ceramics. His latest gift ushers the Metropolitan Museum of Art  into the 21st century.`\
+**The Met Museum Sees More Clay in Its Future**\
+`An abstract painter found his place as a great collector of American ceramics. His latest gift ushers the Metropolitan Museum of Art into the 21st century.`\
 https://nytimes.com/2021/06/13/arts/design/robert-ellison-ceramics-met-museum.html?searchResultPosition=1
 
 **$4.5 Million Settlement in Police Killing of Alton Sterling, Lawyers Say**\
