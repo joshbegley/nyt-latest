@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/13/crosswords/daily-puzzle-2021-06-14.html?searchRes
 https://nytimes.com/video/world/middleeast/100000007813239/israel-bennett-vote-coalition-government-ousts-netanyahu.html?searchResultPosition=2
 
 **Tsitsipas Is the Latest to Come Close, and Learn How Far He Must Go**\
-`Stefanos Tsitsipas took a two-set lead over Novak Djokovic. But in his loss he found that “two sets doesn’t really mean anything.”`\
+`Stefanos Tsitsipas took a two-set lead over Novak Djokovic in the French Open men’s final. But in his loss he found that “two sets doesn’t really mean anything.”`\
 https://nytimes.com/2021/06/13/sports/tennis/stefanos-tsitsipas-novak-djokovic-french-open-final.html?searchResultPosition=3
 
 **G7 Leaders Offer United Front as Summit Ends, but Cracks Are Clear**\
