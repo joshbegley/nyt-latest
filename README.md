@@ -35,6 +35,6 @@ https://nytimes.com/2021/06/12/sports/westminster-dog-show-photos.html?searchRes
 https://nytimes.com/video/world/europe/100000007812485/g7-biden-macron.html?searchResultPosition=9
 
 **Milton Moses Ginsberg, Unconventional Filmmaker, Dies at 85**\
-`His movies about a psychiatrist’s disintegration and a werewolf working in the White House bombed. But they both drew favorable attention many years later.`\
+`His movies about a psychiatrist’s disintegration and a werewolf in the White House originally bombed, but they both drew favorable attention many years later.`\
 https://nytimes.com/2021/06/12/movies/milton-moses-ginsberg-dead.html?searchResultPosition=10
 
