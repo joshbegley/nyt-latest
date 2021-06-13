@@ -26,15 +26,15 @@ https://nytimes.com/2021/06/13/world/middleeast/netanyahu-israel-parliament-spee
 `The referendum would have barred the use of the synthetic pesticides in farms and gardens.`\
 https://nytimes.com/2021/06/13/world/swiss-pesticide-referendum-ban.html?searchResultPosition=7
 
+**Denmark’s team doctor on Christian Eriksen: ‘He was gone.’**\
+`Eriksen went into cardiac arrest on the field during a game at Euro 2020, team officials said, but was well enough Sunday to speak to his coach.`\
+https://nytimes.com/2021/06/13/sports/soccer/christian-eriksen-he-was-gone.html?searchResultPosition=8
+
 **What the Rich Don’t Want to Admit About the Poor**\
 `Why do we leave millions of people in poverty? The answer should make us uncomfortable.`\
-https://nytimes.com/2021/06/13/opinion/stimulus-unemployment-republicans-poverty.html?searchResultPosition=8
+https://nytimes.com/2021/06/13/opinion/stimulus-unemployment-republicans-poverty.html?searchResultPosition=9
 
 **Without vaccines, Haiti struggles to contain its latest Covid wave.**\
 `One hospital near the capital, Port-au-Prince, issued an alert telling patients not to come because its wards were full.`\
-https://nytimes.com/2021/06/13/world/haiti-covid-cases-vaccine.html?searchResultPosition=9
-
-**Experts warn that the drop in U.S. testing will make it harder to track outbreaks.**\
-`Dangerous variants are spreading, and only 43 percent of the population has been fully vaccinated, as states reopen and travel resumes.`\
-https://nytimes.com/2021/06/13/world/us-covid-testing-coronavirus-outbreak.html?searchResultPosition=10
+https://nytimes.com/2021/06/13/world/haiti-covid-cases-vaccine.html?searchResultPosition=10
 
