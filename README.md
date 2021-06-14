@@ -34,7 +34,7 @@ https://nytimes.com/2021/06/14/us/politics/reality-winner-is-released.html?searc
 `As the risk-taking publisher of the Dial Press, he also released the satirical hoax “Report From Iron Mountain,” a “leaked” government report on the dangers of peace.`\
 https://nytimes.com/2021/06/14/books/richard-baron-dead.html?searchResultPosition=9
 
-**Carol Jarecki, Respected Chess Arbiter, Dies at 86**\
-`She was known for her practical, no-nonsense approach at tournaments. She was also a pilot and a nurse and, with her husband, conquered the game of roulette.`\
+**Carol Jarecki, Respected Chess Referee, Dies at 86**\
+`She was known for her practical, no-nonsense approach at scores of major tournaments. She was also a pilot and a nurse and, with her husband, conquered the game of roulette.`\
 https://nytimes.com/2021/06/14/us/carol-jarecki-dead.html?searchResultPosition=10
 
