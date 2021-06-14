@@ -1,4 +1,4 @@
-**China’s ‘Bat Woman,’ at the Center of a Pandemic Storm, Speaks**\
+**China’s ‘Bat Woman,’ at the Center of a Pandemic Storm, Speaks Out**\
 `Shi Zhengli, a top virologist, says in a rare interview that speculation about her lab in Wuhan is baseless. But China’s habitual secrecy makes her claims hard to validate.`\
 https://nytimes.com/2021/06/14/world/asia/china-wuhan-lab-leak.html?searchResultPosition=1
 
