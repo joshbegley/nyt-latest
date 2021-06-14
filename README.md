@@ -26,7 +26,7 @@ https://nytimes.com/2021/06/14/business/survey-consumer-expectations-inflation-m
 `NASA’s Juno probe is beginning an extended mission that may not have been possible if it hadn’t experienced engine trouble when it first arrived at the giant planet.`\
 https://nytimes.com/2021/06/14/science/jupiter-juno-nasa-ganymede.html?searchResultPosition=9
 
-**Best in Show? You Be the Judge**\
+**Best in Show? You Be the Judge.**\
 `Wasabi the Pekingese won the Westminster dog show, but not everyone’s happy about it. Particularly these dogs.`\
 https://nytimes.com/interactive/2021/06/14/sports/westminster-dog-show-runners-up.html?searchResultPosition=10
 
