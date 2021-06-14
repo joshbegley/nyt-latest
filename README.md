@@ -23,7 +23,7 @@ https://nytimes.com/interactive/2021/06/14/arts/music/pop-recommendations-john-m
 https://nytimes.com/video/world/100000007814739/world-health-coronavirus-deaths-africa.html?searchResultPosition=6
 
 **Judges Halt Race and Gender Priority for Restaurant Relief Grants**\
-`Thousands of Restaurant Revitalization Fund applicants had their grant approvals rescinded after court orders struck down a policy that favored historically underserved groups.`\
+`Approvals for thousands of Restaurant Revitalization Fund applicants were rescinded after court orders struck down a policy that favored historically underserved groups.`\
 https://nytimes.com/2021/06/14/business/restaurant-relief-fund-covid-sba.html?searchResultPosition=7
 
 **Daniel Ellsberg’s ‘Heroic Conduct’ in Leaking the Pentagon Papers**\
