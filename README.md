@@ -16,7 +16,7 @@ https://nytimes.com/2021/06/14/books/review/george-packer-last-best-hope-jonatha
 
 **Vatican Warns U.S. Bishops: Don’t Deny Biden Communion Over Abortion**\
 `Conservative American Catholic bishops are pressing for a debate over whether Catholics who support the right to an abortion should be allowed to take Communion.`\
-https://nytimes.com/2021/06/14/world/europe/vatican-warns-us-bishops-dont-deny-biden-communion-over-abortion.html?searchResultPosition=7
+https://nytimes.com/2021/06/14/world/europe/biden-vatican-communion-abortion.html?searchResultPosition=7
 
 **‘C Is for Code Switching’ and Other Lessons**\
 `The artist Topaz Jones mined his personal education to create an award-winning visual album.`\
