@@ -14,7 +14,7 @@ https://nytimes.com/slideshow/2021/06/14/realestate/what-you-get-for-5-million-i
 `The delay in rapidly distributing large amounts of vaccine was also said to have hampered efforts in neighboring countries, which had been counting on receiving doses.`\
 https://nytimes.com/2021/06/14/world/thailand-shortage.html?searchResultPosition=4
 
-**Lordstown Motors’ top executives resign after an inquiry into a critical report.**\
+**Lordstown Motors’ chief executive and chief financial officer resign.**\
 `The resignations were announced after the struggling carmaker released the results of an investigation into an investor’s report on the company’s viability.`\
 https://nytimes.com/2021/06/14/business/lordstown-motors-steve-burns-julio-rodriguez.html?searchResultPosition=5
 
