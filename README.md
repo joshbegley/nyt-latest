@@ -14,8 +14,8 @@ https://nytimes.com/2021/06/14/t-magazine/new-artists-to-know.html?searchResultP
 `Olivier Duhamel was accused of sexually abusing his teenage stepson. Prosecutors said they had closed the case because the statute of limitations had expired.`\
 https://nytimes.com/2021/06/14/world/europe/olivier-duhamel-france.html?searchResultPosition=4
 
-**French Companies Cite Issues at Nuclear Power Plant in China**\
-`One of the companies said there had been a buildup of gases at the heart of a nuclear reactor. They say the plant is still safe.`\
+**French Companies Admit Problems at Nuclear Plant in China**\
+`One of the companies said there had been a buildup of gases at the heart of a reactor. They say the plant is still safe.`\
 https://nytimes.com/2021/06/14/business/china-nuclear-power-problem.html?searchResultPosition=5
 
 **This Modest New York Apartment Holds One of the Best Art Collections in Town**\
