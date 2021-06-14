@@ -1,6 +1,6 @@
 **Reality Winner, the former intelligence contractor found guilty of leaking, is released to a halfway house.**\
 `Ms. Winner’s more than five-year sentence was shortened because of good behavior, but the government will continue to restrict her public comments.`\
-https://nytimes.com/live/2021/06/14/us/politics-news/reality-winner-released?searchResultPosition=1
+https://nytimes.com/2021/06/14/us/politics/reality-winner-released.html?searchResultPosition=1
 
 **England Extends Covid Restrictions, Delaying Opening One Month**\
 `The prime minister of Britain, Boris Johnson, announced Monday he would delay lifting coronavirus restrictions by four weeks in order to allow the National Health Service to administer more vaccinations.`\
