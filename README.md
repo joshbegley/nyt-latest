@@ -1,6 +1,6 @@
-**Lordstown Motors’ chief executive and chief financial officer resign.**\
+**Lordstown Motors’ top executives resign after an inquiry into a critical report.**\
 `The resignations were announced after the struggling carmaker released the results of an investigation into an investor’s report on the company’s viability.`\
-https://nytimes.com/2021/06/14/business/lordstown-motors-chief-executive-and-chief-financial-officer-resign.html?searchResultPosition=1
+https://nytimes.com/2021/06/14/business/lordstown-motors-steve-burns-julio-rodriguez.html?searchResultPosition=1
 
 **Woman Dies After Driver Hits Crowd in Minneapolis**\
 `The group was gathered on Sunday night to protest police brutality. Two other people were injured, the police said.`\
