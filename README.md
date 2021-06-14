@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/14/business/lordstown-motors-steve-burns-julio-rodriguez.html?searchResultPosition=1
 
 **Woman Dies After Driver Hits Crowd in Minneapolis**\
-`The group was gathered on Sunday night to protest police brutality. Two other people were injured, the police said.`\
+`The group was gathered on Sunday night to protest police brutality. Three other people were injured, the police said.`\
 https://nytimes.com/2021/06/14/us/minneapolis-protest-car-death.html?searchResultPosition=2
 
 **England’s delayed reopening is expected to have a ‘minor’ economic impact.**\
