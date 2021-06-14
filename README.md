@@ -1,40 +1,40 @@
-**Sorry, Liberals. But You Really Shouldn’t Love NATO.**\
-`It antagonizes Russia, keeps Europe subservient and facilitates endless wars. What's there to love?`\
-https://nytimes.com/2021/06/14/opinion/biden-nato-summit.html?searchResultPosition=1
+**England’s plan to reopen on June 21 could be delayed by four weeks.**\
+`Prime Minister Boris Johnson is expected to pause the lifting of all coronavirus restrictions as scientists study the danger posed by the spread of the Delta variant.`\
+https://nytimes.com/2021/06/14/world/uk-lockdown-delay.html?searchResultPosition=1
 
-**Americans Plead Guilty in Japan to Aiding Carlos Ghosn’s Escape**\
-`Michael Taylor, a former Green Beret, and his son Peter Maxwell Taylor helped the former Nissan chief flee to Lebanon and sidestep the Japanese justice system.`\
-https://nytimes.com/2021/06/14/business/taylor-plead-guilty-japan-ghosn.html?searchResultPosition=2
+**Exploring Greece’s Unseen Corners**\
+`For several years, a photographer has documented local Greek customs and attire, turning his lens toward his country’s vibrant traditional culture.`\
+https://nytimes.com/2021/06/14/travel/greece-traditions.html?searchResultPosition=2
 
-**Black Virginians Took Ralph Northam Back. Neither Has Forgotten.**\
-`Virginia’s governor survived a blackface scandal with the help of Black Democrats, who saw a chance for policy concessions. Both got more from the relationship than they could have imagined.`\
-https://nytimes.com/2021/06/14/us/politics/ralph-northam-virginia.html?searchResultPosition=3
+**Weddings Took a Big Hit in 2020. Enter the Micro-Wedding.**\
+`As nuptials were canceled across the country, wedding planners have downscaled — and in some cases their new offerings will stick.`\
+https://nytimes.com/2021/06/14/business/wedding-planning-pandemic.html?searchResultPosition=3
 
-**As Battle Against Virus Ends, Mayors Confront a New Villain: Criminals**\
-`Most city leaders, eager to rejuvenate downtown economies, have lifted coronavirus restrictions. But rising violent crime has kept both residents and tourists at home.`\
-https://nytimes.com/2021/06/14/us/rising-crime-homicides-mayors.html?searchResultPosition=4
+**There Will Be Another Pandemic — Are We Prepared For It?**\
+`We need a commission to study America's Covid-19 response.`\
+https://nytimes.com/2021/06/14/opinion/collins-menendez-covid-commission.html?searchResultPosition=4
 
-**To Fill Millions of Open Jobs, Many Workers Need More Than Skills**\
-`Helping people land good jobs with career paths takes more than skills training, labor experts say. Coaching, mentoring and other assistance are also needed.`\
-https://nytimes.com/2021/06/14/business/workers-jobs-coaching.html?searchResultPosition=5
+**Win, Lose or Song: Scotland Returns, Trailed by Its Tartan Army**\
+`One of soccer’s most celebrated fan groups is reveling in a rare chance to support its team in a major tournament.`\
+https://nytimes.com/2021/06/14/sports/soccer/scotland-czech-republic-tartan-army.html?searchResultPosition=5
 
-**With Cuomo Weakened, N.Y. Lawmakers End Session With Flex of Power**\
-`State lawmakers passed several progressive priorities to cap the 2021 session, but clashed with Gov. Andrew Cuomo as impeachment inquiries continued.`\
-https://nytimes.com/2021/06/14/nyregion/cuomo-legislature-albany.html?searchResultPosition=6
+**Shopping for Trays**\
+`Why do you need a tray? To serve drinks, collect the mail, organize the bathroom — they’re useful almost anywhere.`\
+https://nytimes.com/2021/06/14/realestate/shopping-trays.html?searchResultPosition=6
 
-**Garcia Rakes in Donations: 5 Takeaways From the N.Y.C. Mayor’s Race**\
-`Eric Adams takes heat for a comment on schools, while Curtis Sliwa gets Rudy Giuliani’s endorsement for the Republican nomination.`\
-https://nytimes.com/2021/06/14/us/garcia-money-mayor-nyc.html?searchResultPosition=7
+**Special IDs for Sex Offenders: Safety Measures or Scarlet Letters?**\
+`The Supreme Court will soon consider whether to hear a First Amendment challenge to a Louisiana law that required driver’s licenses to identify sex offenders.`\
+https://nytimes.com/2021/06/14/us/politics/sex-offender-id-louisiana.html?searchResultPosition=7
 
-**What’s on TV This Week: ‘The Celebrity Dating Game’ and a Father’s Day Special**\
-`“The Dating Game” gets a celebrity revival, “Rick and Morty” returns and Oprah Winfrey hosts a Black Father’s Day special with Sterling K. Brown.`\
-https://nytimes.com/2021/06/14/arts/television/whats-on-tv-this-week-celebrity-dating-and-fathers-day.html?searchResultPosition=8
+**The Recession Isn’t Over Till They Say It’s Over. (But Who Are They?)**\
+`The contraction in the U.S. seemed to end quickly in April 2020, but the committee charged with determining an endpoint has been quiet.`\
+https://nytimes.com/2021/06/14/upshot/pandemic-recession-endpoint.html?searchResultPosition=8
 
-**Did Israel Just Have a Constitutional Revolution?**\
-`This isn’t just a new government. It’s an entirely new way of governing.`\
-https://nytimes.com/2021/06/14/opinion/israel-government.html?searchResultPosition=9
+**In Congress, Republicans Shrug at Warnings of Democracy in Peril**\
+`As G.O.P. legislatures move to curtail voting rules, congressional Democrats say authoritarianism looms, but Republicans dismiss the concerns as politics as usual.`\
+https://nytimes.com/2021/06/14/us/politics/democracy-in-peril.html?searchResultPosition=9
 
-**‘I Surely Can Stand in Front of Men and Lead Them’**\
-`With women being mentioned for open head coaching vacancies, the N.B.A. seems primed to break one glass ceiling in sports.`\
-https://nytimes.com/2021/06/14/sports/basketball/dawn-staley-becky-hammon-nba-coach.html?searchResultPosition=10
+**Contested Elections Are a Danger to Our Military**\
+`If intense political partisanship is allowed to creep into the ranks, it could fracture the chain of command. `\
+https://nytimes.com/2021/06/14/opinion/contested-elections-military.html?searchResultPosition=10
 
