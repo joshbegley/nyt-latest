@@ -1,32 +1,32 @@
+**Jailed Belarusian Activist Again Claims to Have Renounced His Views**\
+`Roman Protasevich, who recently compared the country’s autocratic leader to Hitler, is far from the first dissident to have a change of heart in a Belarus prison.`\
+https://nytimes.com/2021/06/14/world/europe/jailed-belarus-activist-protasevich.html?searchResultPosition=1
+
 **The Changing Face of Female Leadership, a Times Event**\
 `What is different when women lead? Hillary Clinton, Greta Thunberg and others discuss women’s role in shaping the future.`\
-https://nytimes.com/2021/06/14/world/europe/hilary-clinton-greta-thunberg-women-leaders-event.html?searchResultPosition=2
+https://nytimes.com/2021/06/14/world/europe/hilary-clinton-greta-thunberg-women-leaders-event.html?searchResultPosition=3
 
 **Christian Eriksen’s Teammates Question Call to Resume Play**\
 `“We made the least bad decision,” one Denmark player said of the choice to continue a Euro 2020 match after Eriksen collapsed and went into cardiac arrest.`\
-https://nytimes.com/2021/06/14/sports/soccer/christian-eriksens-denmark-uefa.html?searchResultPosition=3
+https://nytimes.com/2021/06/14/sports/soccer/christian-eriksens-denmark-uefa.html?searchResultPosition=4
 
 **Celebrations Erupt in Israel After Netanyahu’s Ouster**\
 `Crowds celebrated in Tel Aviv and Jerusalem Sunday night after Israel’s Parliament approved a new coalition government, ending the reign of its longtime prime minister, Benjamin Netanyahu.`\
-https://nytimes.com/video/world/middleeast/100000007814269/israel-celebrations-netanyahu-opponents.html?searchResultPosition=4
+https://nytimes.com/video/world/middleeast/100000007814269/israel-celebrations-netanyahu-opponents.html?searchResultPosition=5
 
 **Inflation expectations jump, another data point for the Fed to keep watch on.**\
 `Year-ahead figures surged, and expectations for price gains three years from now also moved higher.`\
-https://nytimes.com/2021/06/14/business/survey-consumer-expectations-inflation-may-2021.html?searchResultPosition=6
+https://nytimes.com/2021/06/14/business/survey-consumer-expectations-inflation-may-2021.html?searchResultPosition=7
 
 **Mushballs and a Great Blue Spot: What Lies Beneath Jupiter’s Pretty Clouds**\
 `NASA’s Juno probe is beginning an extended mission that may not have been possible if it hadn’t experienced engine trouble when it first arrived at the giant planet.`\
-https://nytimes.com/2021/06/14/science/jupiter-juno-nasa-ganymede.html?searchResultPosition=7
+https://nytimes.com/2021/06/14/science/jupiter-juno-nasa-ganymede.html?searchResultPosition=8
 
 **Best in Show? You Be the Judge**\
 `Wasabi the Pekingese won the Westminster dog show, but not everyone’s happy about it. Particularly these dogs.`\
-https://nytimes.com/interactive/2021/06/14/sports/westminster-dog-show-runners-up.html?searchResultPosition=8
+https://nytimes.com/interactive/2021/06/14/sports/westminster-dog-show-runners-up.html?searchResultPosition=9
 
 **Boris Johnson’s ‘Global Britain’ Makes Shaky Start at G7 Summit**\
 `The prime minister’s plan to introduce his vision of a nimble, trade-savvy U.K. was upended by a spat over Northern Ireland.`\
-https://nytimes.com/2021/06/14/world/europe/boris-johnson-global-britain-northern-ireland.html?searchResultPosition=9
-
-**Garland will meet with news executives Monday to discuss new protections for reporters.**\
-`The news executives are expected to raise concerns about the investigative steps affecting reporters, and to discuss the details of the new policy the attorney general is working on.`\
-https://nytimes.com/2021/06/14/us/politics/garland-reporter-records-leak-investigation.html?searchResultPosition=10
+https://nytimes.com/2021/06/14/world/europe/boris-johnson-global-britain-northern-ireland.html?searchResultPosition=10
 
