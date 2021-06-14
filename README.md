@@ -1,40 +1,40 @@
+**Artists on Artists to Watch, and Maybe Even Collect**\
+`We asked 16 established names to suggest a fellow talent they feel should be better known.`\
+https://nytimes.com/2021/06/14/t-magazine/new-artists-to-know.html?searchResultPosition=1
+
+**France Drops Rape Investigation of Prominent Intellectual**\
+`Olivier Duhamel was accused of sexually abusing his teenage stepson. Prosecutors said they had closed the case because the statute of limitations had expired.`\
+https://nytimes.com/2021/06/14/world/europe/olivier-duhamel-france.html?searchResultPosition=2
+
+**French Companies Cite Issues at Nuclear Power Plant in China**\
+`One of the companies said there had been a buildup of gases at the heart of a nuclear reactor. They say the plant is still safe.`\
+https://nytimes.com/2021/06/14/business/china-nuclear-power-problem.html?searchResultPosition=3
+
+**This Modest New York Apartment Holds One of the Best Art Collections in Town**\
+`Over the course of 40 years, Alvin Hall has amassed a trove of blue-chip artists merely by trusting his eye.`\
+https://nytimes.com/2021/06/14/t-magazine/alvin-hall-art-collection.html?searchResultPosition=4
+
+**The Art World Returns to a New Normal**\
+`At a crucial moment in time, some things have changed, and others likely never will.`\
+https://nytimes.com/2021/06/14/t-magazine/art-issue-new-normal.html?searchResultPosition=5
+
 **Jill Biden Models Love and Sustainability at the G7**\
 `In her debut international trip as first lady, Dr. Biden played her part with style. Literally.`\
-https://nytimes.com/2021/06/14/style/Joe-Jill-Biden-G7-style.html?searchResultPosition=1
+https://nytimes.com/2021/06/14/style/Joe-Jill-Biden-G7-style.html?searchResultPosition=6
 
 **Finally, California Is About to Reopen**\
 `Monday: Here’s what you need to know about the lifting of coronavirus pandemic restrictions.`\
-https://nytimes.com/2021/06/14/us/ca-reopening-june-15.html?searchResultPosition=2
+https://nytimes.com/2021/06/14/us/ca-reopening-june-15.html?searchResultPosition=7
 
 **$5 Million Homes in California**\
 `A Tudor Revival house in Los Angeles, a modern farmhouse in Healdsburg and a Mediterranean-style home near Mission Viejo.`\
-https://nytimes.com/2021/06/14/realestate/5-million-homes-in-california.html?searchResultPosition=3
+https://nytimes.com/2021/06/14/realestate/5-million-homes-in-california.html?searchResultPosition=8
 
 **What You Get for $5 Million in California**\
 `A Tudor Revival home in Los Angeles, a modern farmhouse in Healdsburg and a Mediterranean-style house near Mission Viejo.`\
-https://nytimes.com/slideshow/2021/06/14/realestate/what-you-get-for-5-million-in-california.html?searchResultPosition=4
+https://nytimes.com/slideshow/2021/06/14/realestate/what-you-get-for-5-million-in-california.html?searchResultPosition=9
 
 **A mass inoculation campaign in Thailand stumbles amid a severe outbreak.**\
 `The delay in rapidly distributing large amounts of vaccine was also said to have hampered efforts in neighboring countries, which had been counting on receiving doses.`\
-https://nytimes.com/2021/06/14/world/thailand-shortage.html?searchResultPosition=5
-
-**Lordstown Motors’ chief executive and chief financial officer resign.**\
-`The resignations were announced after the struggling carmaker released the results of an investigation into an investor’s report on the company’s viability.`\
-https://nytimes.com/2021/06/14/business/lordstown-motors-steve-burns-julio-rodriguez.html?searchResultPosition=6
-
-**Woman Dies After Driver Hits Crowd in Minneapolis**\
-`The group was gathered on Sunday night to protest police brutality. Three other people were injured, the police said.`\
-https://nytimes.com/2021/06/14/us/minneapolis-protest-car-death.html?searchResultPosition=7
-
-**England’s delayed reopening is expected to have a ‘minor’ economic impact.**\
-`Prime Minister Boris Johnson is expected to announce a four-week delay of the third phase of reopening, which would have allowed businesses to operate without capacity restrictions.`\
-https://nytimes.com/2021/06/14/business/england-reopening-delay-pandemic.html?searchResultPosition=8
-
-**Private Equity’s Biggest Tax Tactics**\
-`How a powerful industry conquered the U.S. tax system.`\
-https://nytimes.com/2021/06/14/business/dealbook/private-equity-taxes.html?searchResultPosition=9
-
-**Israel’s Frail New Coalition Gets a Quick First Test**\
-`Less than a day after taking over from Benjamin Netanyahu, the new government was set to decide whether to postpone a far-right march that risks provoking Hamas.`\
-https://nytimes.com/2021/06/14/world/middleeast/israel-coalition-march-hamas.html?searchResultPosition=10
+https://nytimes.com/2021/06/14/world/thailand-shortage.html?searchResultPosition=10
 
