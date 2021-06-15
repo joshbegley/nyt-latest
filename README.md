@@ -16,7 +16,7 @@ https://nytimes.com/2021/06/15/arts/television/review-dave-lil-dicky.html?search
 
 **William vanden Heuvel, Diplomat and a Kennedy Confidant, Dies at 91**\
 `A lawyer, he was an adviser to Robert F. Kennedy, led Jimmy Carter’s New York campaign and targeted jail conditions as head of New York City’s corrections board.`\
-https://nytimes.com/2021/06/15/obituaries/william-vanden-heuvel-dead.html?searchResultPosition=5
+https://nytimes.com/2021/06/15/obituaries/william-vanden-heuvel-diplomat-and-a-kennedy-confidant-dies-at-91.html?searchResultPosition=5
 
 **Confrontation, but not lunch, is on the menu of Wednesday’s Biden-Putin meeting in Geneva.**\
 `President Biden plans to confront President Vladimir V. Putin of Russia about recent ransomware attacks on U.S. companies and government agencies.`\
