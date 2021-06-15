@@ -2,8 +2,8 @@
 `This HBO documentary follows Andy Señor Jr. as he directs a production of “Rent” in Cuba.`\
 https://nytimes.com/2021/06/15/movies/revolution-rent-review.html?searchResultPosition=1
 
-**Did a German Player Bite a French One? An In-Game Investigation.**\
-`Paul Pogba reacted and Antonio Rüdiger has video deniability, experts say. But what exactly happened in the 45th minute of France vs. Germany?`\
+**Did a German Player Bite a French One? A Brief Investigation.**\
+`Paul Pogba reacted and Antonio Rüdiger has video deniability, experts say. But what exactly happened in the 45th minute of Frances win against Germany?`\
 https://nytimes.com/2021/06/15/sports/soccer/germany-france-bite-pogba-rudiger.html?searchResultPosition=2
 
 **Child Marriage Doesn’t Actually Happen Here, Right?**\
