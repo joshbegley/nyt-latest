@@ -18,7 +18,7 @@ https://nytimes.com/video/world/100000007816254/biden-brussels-eu-us-summit-meet
 `The bipartisan dinner marks the first social event Vice President Kamala Harris has hosted since coming into office six months ago.`\
 https://nytimes.com/2021/06/15/us/politics/harris-female-senators-dinner.html?searchResultPosition=5
 
-**Charitable giving rose in 2020, with civil rights and environmental groups benefiting the most.**\
+**Charitable giving rose in 2020, with civil rights and environmental groups benefiting.**\
 `Donations climbed to a record $471.4 billion, bolstered by an increase in the stock market and the rollout of government stimulus spending.`\
 https://nytimes.com/2021/06/15/business/philanthropy-2020-pandemic.html?searchResultPosition=6
 
