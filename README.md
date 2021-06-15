@@ -1,6 +1,6 @@
 **Lin-Manuel Miranda Addresses ‘In the Heights’ Casting Criticism**\
 `Since the film’s release last week, there have been complaints about the lack of dark-skinned Afro-Latino actors in prominent roles.`\
-https://nytimes.com/2021/06/15/movies/lin-manuel-miranda-in-the-heights-colorism.html?searchResultPosition=1
+https://nytimes.com/2021/06/15/movies/in-the-heights-colorism-afro-latino-latina.html?searchResultPosition=1
 
 **Attorney General Details New Domestic Terrorism Strategy**\
 `Merrick B. Garland, the attorney general, outlined a strategy released by the Biden administration on Tuesday to counter heightened domestic terrorism threats in the United States, especially violence by white supremacists and militia groups.`\
