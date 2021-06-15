@@ -1,5 +1,5 @@
-**Peterson Is Dominant as Mets Get Rare Home Win Against Cubs**\
-`It had been exactly four years since the Mets had beat Chicago at Citi Field.`\
+**Peterson Is Dominant as Mets Get Rare Home Win Over Cubs**\
+`It had been exactly four years since the Mets beat Chicago at Citi Field. David Peterson and Dominic Smith led the way.`\
 https://nytimes.com/2021/06/14/sports/baseball/mets-cubs.html?searchResultPosition=1
 
 **Stephen Colbert Returns to ‘Late Show’ Stage Before Vaccinated Fans**\
