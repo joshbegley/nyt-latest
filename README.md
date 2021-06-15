@@ -1,40 +1,40 @@
-**Power and Peril: 5 Takeaways on Amazon’s Employment Machine**\
-`Outsiders see a business success story for the ages. Many insiders see an employment system under strain.`\
-https://nytimes.com/2021/06/15/us/politics/amazon-warehouse-workers.html?searchResultPosition=1
+**The Most Exciting Place to Eat in Los Angeles Is Chinatown**\
+`Through the trying 18 months of the pandemic, the neighborhood has had an influx of dynamic new dining options — from stone-fruit panna cotta to crackling Cantonese pork.`\
+https://nytimes.com/2021/06/15/dining/chinatown-los-angeles-restaurants.html?searchResultPosition=1
 
-**The Original Ugly Sneaker Is Back**\
-`Remember the Isabel Marant wedge sneakers? Everyone wore them — inexplicably. Now the designer has a new version, with an even higher heel.`\
-https://nytimes.com/2021/06/15/style/Isabel-marant-wedge-sneaker.html?searchResultPosition=2
+**A Mountain Escape Turned Four-Season Home**\
+`They bought the house in Mammoth Lakes, Calif., thinking it would be nice for weekends in the winter. But Covid changed that.`\
+https://nytimes.com/2021/06/15/realestate/Mammoth-California-mountain-escape-four-season-home.html?searchResultPosition=2
 
-**You May Not Want to Get Your Beauty Tips From TikTok**\
-`TikTok is bringing in big business for doctors, but they’d kindly like it to stop.`\
-https://nytimes.com/2021/06/15/style/you-may-not-want-to-get-your-beauty-tips-from-tiktok.html?searchResultPosition=3
+**A Four-Season Retreat in the Mountains**\
+`They bought the house in Mammoth Lakes, Calif., thinking it would be nice for weekends in the winter. But Covid changed that.`\
+https://nytimes.com/slideshow/2021/06/15/realestate/a-four-season-retreat-in-the-mountains.html?searchResultPosition=3
 
-**The Amazon That Customers Don’t See**\
-`Each year, hundreds of thousands of workers churn through a vast mechanism that hires and monitors, disciplines and fires. Amid the pandemic, the already strained system lurched.`\
-https://nytimes.com/interactive/2021/06/15/us/amazon-workers.html?searchResultPosition=4
+**A Second Life for North Carolina’s Shuttered Factories**\
+`With the rise of remote work, developers are betting they can lure young talent and raise economic prospects for the state’s depressed areas.`\
+https://nytimes.com/2021/06/15/business/north-carolina-factories-redevelopment.html?searchResultPosition=4
 
-**Seth Meyers Sums Up Biden’s Time at G7**\
-`“Biden’s message at these meetings has been simple: America is back. You know, like the McRib, America’s back for a limited time only, offer not valid in Florida,” Meyers joked.`\
-https://nytimes.com/2021/06/15/arts/television/seth-meyers-biden-g7.html?searchResultPosition=5
+**Why Asia, the Pandemic Champion, Remains Miles Away From the Finish Line**\
+`While the United States edges toward normalcy, countries like Japan, South Korea and Australia are still facing months of uncertainty and isolation as their vaccination campaigns just start to gain steam.`\
+https://nytimes.com/2021/06/15/world/asia/asia-vaccines-covid.html?searchResultPosition=5
 
-**Your Tuesday Briefing**\
-`NATO eyes China’s growing influence.`\
-https://nytimes.com/2021/06/15/briefing/nato-china-israel-britain-coronavirus.html?searchResultPosition=6
+**My Search for My Father. And for Myself.**\
+`My dad was a mystery to me, made even more so after he vanished when I was 7 years old. For a long time, who he was – and by extension who I was – seemed to be a puzzle I would never solve.`\
+https://nytimes.com/2021/06/15/magazine/my-search-for-my-father-and-for-myself.html?searchResultPosition=6
 
-**Corrections: June 15, 2021**\
-`Corrections that appeared in print on Tuesday, June 15, 2021.`\
-https://nytimes.com/2021/06/15/pageoneplus/corrections-june-15-2021.html?searchResultPosition=7
+**New York’s Hottest New Gallery District Looks Familiar**\
+`What’s the latest neighborhood offering affordable rents and decent foot traffic to young and emerging galleries? TriBeCa, one of the most expensive ZIP codes in the country.`\
+https://nytimes.com/2021/06/15/t-magazine/tribeca-art-galleries.html?searchResultPosition=7
 
-**Quotation of the Day: Chinese Might Pushes NATO to Raise Alarm**\
-`Quotation of the Day for Tuesday, June 15, 2021.`\
-https://nytimes.com/2021/06/15/todayspaper/quotation-of-the-day-chinese-might-pushes-nato-to-raise-alarm.html?searchResultPosition=8
+**Alex Da Corte, Puppet Master**\
+`A great and unlikely success story, the artist creates funny and therapeutic works in the hope of easing the “exquisite pain” of modern life.`\
+https://nytimes.com/2021/06/15/t-magazine/alex-da-corte.html?searchResultPosition=8
 
-**For Novak Djokovic, Two Down and Two, Maybe Three, to Go**\
-`He has won the Australian and French Opens but a Grand Slam won’t be easy. He must defend Wimbledon. Then there’s the U.S. Open. And don’t forget about the Olympics.`\
-https://nytimes.com/2021/06/15/sports/tennis/novak-djokovic-grand-slam-2021.html?searchResultPosition=9
+**A major revamp at PwC is all about trust.**\
+`The shift is part of the accounting and consulting giant’s effort to remake itself for the times — and then charge to help others do it, too.`\
+https://nytimes.com/2021/06/15/business/dealbook/pwc-trust-leadership.html?searchResultPosition=9
 
-**Peterson Is Dominant as Mets Get Rare Home Win Over Cubs**\
-`It had been exactly four years since the Mets beat Chicago at Citi Field. David Peterson and Dominic Smith led the way.`\
-https://nytimes.com/2021/06/14/sports/baseball/mets-cubs.html?searchResultPosition=10
+**The Quiet Strength of an Old-Growth Forest**\
+`When you have survived for hundreds or even thousands of years, there’s a strong chance you have seen it all before.`\
+https://nytimes.com/2021/06/15/travel/california-redwoods-oldgrowth.html?searchResultPosition=10
 
