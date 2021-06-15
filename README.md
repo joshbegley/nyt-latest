@@ -36,5 +36,5 @@ https://nytimes.com/2021/06/15/world/asia/china-russia-space.html?searchResultPo
 
 **Far-Right March Tests New Israeli Coalition, Amid Hamas Threats**\
 `Just two days after taking office, Israel’s new government is split about a decision to allow a procession through Palestinian areas of Jerusalem.`\
-https://nytimes.com/2021/06/15/world/middleeast/far-right-march-israeli-coalition-hamas.html?searchResultPosition=10
+https://nytimes.com/2021/06/15/world/middleeast/israel-coalition-hamas.html?searchResultPosition=10
 
