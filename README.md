@@ -15,8 +15,8 @@ https://nytimes.com/interactive/2021/06/15/us/biden-s-strategy-for-combating-dom
 https://nytimes.com/2021/06/15/business/dealbook/lordstown-spacs-sec.html?searchResultPosition=4
 
 **Britain signs its first major post-Brexit trade deal with Australia.**\
-`By Eshe Nelson and Yan Zhuang`\
-https://nytimes.com/2021/06/15/business/britain-signs-its-first-major-post-brexit-trade-deal-with-australia.html?searchResultPosition=5
+`The agreement will include a cap on tariff-free imports for 15 years, a measure intended to appease British farmers concerned about a flood of beef and sheep imports.`\
+https://nytimes.com/2021/06/15/business/britain-australia-trade-deal.html?searchResultPosition=5
 
 **The Amazon Customers Don’t See**\
 `The Times is publishing a new investigation of life inside an Amazon warehouse.`\
