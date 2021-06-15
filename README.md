@@ -1,5 +1,5 @@
 **Runners-Up From Our 8th Annual Student Editorial Contest**\
-`Periods, prisons, political division and poetry. Teenagers tackle these issues and more in the 16 runners-up essays below.`\
+`Periods, prisons, political division and poetry. Teenagers tackle these issues and more in these 16 runners-up essays.`\
 https://nytimes.com/2021/06/15/learning/runners-up-from-our-8th-annual-student-editorial-contest.html?searchResultPosition=1
 
 **Once, Superpower Summits Were About Nukes. Now, It’s Cyberweapons.**\
