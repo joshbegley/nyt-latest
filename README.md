@@ -2,7 +2,7 @@
 `Despite Naftali Bennett’s extremist positions, he sees himself as a bridge between clashing world views.`\
 https://nytimes.com/2021/06/15/opinion/naftali-bennett-israel-prime-minister.html?searchResultPosition=1
 
-**Serena Shahidi is Redefining the ‘Girlboss’**\
+**Serena Shahidi Is Redefining the ‘Girlboss’**\
 `The TikTok creator speaks frankly about dating and navigating life in New York City in your early 20s.`\
 https://nytimes.com/2021/06/15/style/serena-shahidi-glamdemon2004-tiktok.html?searchResultPosition=2
 
