@@ -32,7 +32,7 @@ https://nytimes.com/2021/06/16/realestate/ticks-gardening-2021.html?searchResult
 
 **Here is where inflation stands as the Federal Reserve meets.**\
 `A jump in consumer prices is sure to come up at a news conference on Wednesday after the central bank’s meeting.`\
-https://nytimes.com/2021/06/16/business/here-is-where-inflation-stands-as-the-federal-reserve-meets.html?searchResultPosition=9
+https://nytimes.com/2021/06/16/business/inflation-federal-reserve.html?searchResultPosition=9
 
 **TikTok takes over the top sponsor spot at VidCon, edging out YouTube.**\
 `YouTube, which had been VidCon’s top sponsor since 2013, and in years past, YouTubers dominated the convention. But the creator economy has changed substantially in the last year.`\
