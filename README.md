@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/16/science/richard-r-ernst-dead.html?searchResultPos
 https://nytimes.com/2021/06/16/opinion/letters/covid-reopening.html?searchResultPosition=2
 
 **Brigitte Gerney, ‘Crane Lady’ Who Survived Collapse, Dies at 85**\
-`Her legs were crushed when she was trapped for six hours in Manhattan in 1985. Miraculously, she was able to walk again.`\
+`Her legs were crushed when she was trapped for six hours in Manhattan in 1985, touching off a media frenzy. Miraculously, she was able to walk again.`\
 https://nytimes.com/2021/06/16/nyregion/brigitte-gerney-dead.html?searchResultPosition=4
 
 **He Likes ‘Staying Under the Radar,’ but His Art Is Getting Noticed**\
