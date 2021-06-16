@@ -2,8 +2,8 @@
 `The latest news and data from the team tracking the coronavirus.`\
 https://nytimes.com/interactive/2021/06/16/us/virus-this-week-600k.html?searchResultPosition=1
 
-**Justice Dept. Ends Criminal Inquiry Into John Bolton’s Book**\
-`The department is also finalizing a deal to drop a lawsuit that sought to seize the proceeds from his book.`\
+**Justice Dept. Ends Criminal Inquiry, Lawsuit on John Bolton’s Book**\
+`President Donald J. Trump had pressured the department to use its legal powers to stop his former national security adviser from publishing embarrassing details about him.`\
 https://nytimes.com/2021/06/16/us/politics/john-bolton-book-justice-department.html?searchResultPosition=2
 
 **‘A Family Like Ours’: Portraits of Gay Fatherhood**\
@@ -19,7 +19,7 @@ https://nytimes.com/2021/06/16/at-home/newsletter.html?searchResultPosition=4
 https://nytimes.com/2021/06/16/books/chimamanda-ngozi-adichie-essay-tweets.html?searchResultPosition=5
 
 **Putin Calls Meeting With Biden ‘Constructive’**\
-`President Vladimir V. Putin of Russia told reporters Wednesday that there was “no hostility” in his first meeting with President Biden.`\
+`Mr. Putin told reporters Wednesday that there had been “no hostility” in his first meeting with Mr. Biden.`\
 https://nytimes.com/video/world/europe/100000007819054/putin-biden-meeting-press-conference.html?searchResultPosition=6
 
 **The U.S. will buy 200 million more Moderna doses, in case Covid vaccine boosters are needed.**\
