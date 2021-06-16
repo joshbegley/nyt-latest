@@ -1,40 +1,40 @@
-**Biden is expected to raise issues of human rights and digital disruption.**\
-`The American leader is aiming to look strong on human rights and security while also not making too many waves.`\
-https://nytimes.com/2021/06/16/world/europe/biden-putin-summit-goals.html?searchResultPosition=1
+**$1.25 Million Homes in Connecticut, the District of Columbia and Indiana**\
+`A historic estate in Old Lyme, a two-bedroom condo in a 19th-century townhouse in Washington and a brick house in a gated community in Indianapolis.`\
+https://nytimes.com/2021/06/16/realestate/home-prices-connecticut-washington-dc-indiana.html?searchResultPosition=1
 
-**‘Life Without Parole Isn’t Making Us Any Safer’**\
-`Excessive prison sentences waste taxpayers’ money and harm families.`\
-https://nytimes.com/video/opinion/100000007778956/louisiana-criminal-justice-reform.html?searchResultPosition=2
+**Cape May, N.J.: Salt Air and Cultural Riches**\
+`The Victorian seaside resort has long attracted those with primary homes in Philadelphia. But now more New Yorkers are moving in.`\
+https://nytimes.com/2021/06/16/realestate/cape-may-nj-new-yorkers-living.html?searchResultPosition=2
 
-**Zimbabwe Releases Local Reporter Working for The New York Times**\
-`The government said that it would not oppose bail for Jeffrey Moyo, a freelance journalist in the capital, Harare, adding that there was evidence to show he had believed he was acting legally.`\
-https://nytimes.com/2021/06/16/world/africa/zimbabwe-jeffrey-moyo-reporter-released.html?searchResultPosition=3
+**What You Get for $1.25 Million**\
+`A historic estate in Old Lyme, Conn.; a two-bedroom condo in a 19th-century townhouse in Washington; and a brick house in Indianapolis.`\
+https://nytimes.com/slideshow/2021/06/16/realestate/what-you-get-for-1-25-million.html?searchResultPosition=3
 
-**What’s at Stake for the Mayoral Candidates in the Final Debate**\
-`The two-hour debate on Wednesday will be one of the last opportunities for the candidates to redefine the New York City mayor’s race.`\
-https://nytimes.com/2021/06/16/nyregion/mayor-debate-nyc.html?searchResultPosition=4
+**Living In ... Cape May, N.J.**\
+`The Victorian seaside resort has long attracted those with primary homes in Philadelphia. But now more New Yorkers are moving in.`\
+https://nytimes.com/slideshow/2021/06/16/realestate/living-in-cape-may-nj.html?searchResultPosition=4
 
-**North Korea Is Facing a ‘Tense’ Food Shortage**\
-`Kim Jong-un said addressing food insecurity was “a top priority” in the country, where millions died in a famine during the ’90s.`\
-https://nytimes.com/2021/06/16/world/asia/north-korea-food-shortage.html?searchResultPosition=5
+**A Vermont Runner Takes Her Show on the Road**\
+`Elle Purrier St. Pierre is a local celebrity. But her talent is taking her all over the world. Next stop, Tokyo?`\
+https://nytimes.com/2021/06/16/sports/olympics/elle-purrier-st-pierre-olympic-trials.html?searchResultPosition=5
 
-**Trevor Noah: Marjorie Taylor Greene Has a Lot to Learn**\
-`Late-night hosts were unimpressed with the Georgia congresswoman’s apology for comparing pandemic restrictions to the Holocaust.`\
-https://nytimes.com/2021/06/16/arts/television/trevor-noah-marjorie-taylor-greene.html?searchResultPosition=6
+**The Last Downtown Gallery**\
+`PPOW has been a fixture of New York’s art world for nearly four decades, managing not only to survive but also to stay ahead of the curve.`\
+https://nytimes.com/2021/06/16/t-magazine/ppow-art-gallery.html?searchResultPosition=6
 
-**Where Did Hideki Tojo’s Body Go After His Execution? A Mystery Is Solved.**\
-`For more than 70 years, the location of the remains of the wartime Japanese prime minister had been a puzzle. Now, documents reveal that U.S. forces secretly scattered his ashes into the Pacific Ocean.`\
-https://nytimes.com/2021/06/16/world/asia/japan-tojo-remains.html?searchResultPosition=7
+**The Fed Meets as Economic Data Offers Surprises and Mixed Signals**\
+`The central bank will release its policy statement on Wednesday, followed by a news conference with Chair Jerome H. Powell.`\
+https://nytimes.com/2021/06/16/business/economy/fed-meeting-inflation.html?searchResultPosition=7
 
-**Ferrari Is Racing Into Fashion**\
-`The Italian carmaker just had its first runway show. Was it any good? And what is the company thinking anyway?`\
-https://nytimes.com/2021/06/16/style/ferrari-fashion-collection.html?searchResultPosition=8
+**Over Hill, Over Dale: Driving an E.V. on Colorado’s Scenic Byways**\
+`Will the battery hold out crossing a 10,666-foot pass? Where is the next charging station? Overcoming ‘range anxiety’ on Colorado’s highest mountains.`\
+https://nytimes.com/2021/06/16/travel/electric-cars-colorado-scenic-byways.html?searchResultPosition=8
 
-**Putin Has Nothing to Fear From Biden**\
-`Freshly buoyed by his quashing of the opposition, Russia’s president has ample cause to feel secure.`\
-https://nytimes.com/2021/06/16/opinion/putin-biden-summit.html?searchResultPosition=9
+**Who Wants a Hotel With a Hallway Anyway?**\
+`“Motor lodges.” “High-end motels.” “Exterior-corridor hotels.” Whatever you call them, the “motorist’s hotel” has gotten a boost these past 15 months. Now about that reputation …`\
+https://nytimes.com/2021/06/16/travel/motel-hotel-demand-reputation.html?searchResultPosition=9
 
-**What if Wendy and Lily Voted Peter Off the Island?**\
-`In Cynthia Leitich Smith’s “Sisters of the Neversea,” the Darlings have been transported to Tulsa, Okla., and Lily is Wendy’s Native stepsister.`\
-https://nytimes.com/2021/06/16/books/review/sisters-of-the-neversea-cynthia-leitich-smith.html?searchResultPosition=10
+**‘How Much Is a Little Girl Worth?’**\
+`The sexual abuse scandal in Mali basketball is the latest example of how global sports organizations are failing to curb the mistreatment of women.`\
+https://nytimes.com/2021/06/16/sports/olympics/how-much-is-a-little-girl-worth.html?searchResultPosition=10
 
