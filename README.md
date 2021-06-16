@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/16/reader-center/never-too-late-callout.html?searchR
 https://nytimes.com/2021/06/16/podcasts/franco-a-trial-germany-terrorism.html?searchResultPosition=2
 
 **Watch Live: Putin Provides Update After Meeting With Biden**\
-`President Vladimir V. Putin of Russia delivers an update after his meeting with President Biden. The two met for the first time as tensions escalate between the foreign leaders.`\
+`President Vladimir V. Putin of Russia delivers an update after his meeting with President Biden. The two met for the first time as tensions escalate between the leaders.`\
 https://nytimes.com/video/world/europe/100000007818549/putin-live-video-biden.html?searchResultPosition=3
 
 **Wielding Twitter, Europe’s ‘Marshal Twito’ Takes Aim at the Media**\
