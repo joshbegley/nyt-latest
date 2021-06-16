@@ -10,21 +10,21 @@ https://nytimes.com/2021/06/16/books/review/pamela-erens-matasha.html?searchResu
 `In an interview, the actor discussed the end of Season 4, the future of the show and the emotional toll of playing “an ugly, pathetic, misogynist monster.”`\
 https://nytimes.com/2021/06/16/arts/television/joseph-fiennes-the-handmaids-tale-season-finale.html?searchResultPosition=3
 
+**Scholarly Groups Condemn Laws Limiting Teaching on Race**\
+`More than 20 states have introduced legislation restricting lessons on racism and other so-called “divisive concepts.”`\
+https://nytimes.com/2021/06/16/arts/critical-race-theory-scholars.html?searchResultPosition=4
+
 **Brooks Koepka and Bryson DeChambeau Are Still at It. But Is Their Spat for Real?**\
 `The golfers continued their playful war of words at this week’s U.S. Open, insisting it is good for the sport. One wily pro suggested that it might mostly be good for Koepka and DeChambeau themselves.`\
-https://nytimes.com/2021/06/16/sports/golf/brooks-koepka-bryson-dechambeau.html?searchResultPosition=4
+https://nytimes.com/2021/06/16/sports/golf/brooks-koepka-bryson-dechambeau.html?searchResultPosition=5
 
 **The Atlanta Hawks’ Secret Weapon Says He’s Always Been This Good**\
 `Bogdan Bogdanovic said he keeps improving, but he’s had these shooting skills. People are only noticing now, he said, because he’s winning.`\
-https://nytimes.com/2021/06/16/sports/basketball/atlanta-hawks-bogdan-bogdanovic.html?searchResultPosition=5
+https://nytimes.com/2021/06/16/sports/basketball/atlanta-hawks-bogdan-bogdanovic.html?searchResultPosition=6
 
 **The U.S. Averted One Housing Crisis, but Another Is in the Wings**\
 `A moratorium on evictions did little to address the bigger problem: The country is running out of affordable places for people to live.`\
-https://nytimes.com/2021/06/16/business/affordable-housing-crisis.html?searchResultPosition=6
-
-**Scholarly Groups Condemn Laws Limiting Teaching on Race**\
-`More than 20 states have introduced legislation restricting lessons on racism and other so-called “divisive concepts.”`\
-https://nytimes.com/2021/06/16/arts/scholars-race-teaching.html?searchResultPosition=7
+https://nytimes.com/2021/06/16/business/affordable-housing-crisis.html?searchResultPosition=7
 
 **Your Wednesday Briefing**\
 `Airstrikes on Gaza.`\
