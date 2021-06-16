@@ -10,7 +10,7 @@ https://nytimes.com/video/us/100000007819172/jerome-powell-fed-live.html?searchR
 `Treasury Secretary Janet L. Yellen testified to Congress on Wednesday about economic recovery in the wake of the coronavirus. Yellen promoted Biden’s policies on paid family leave and education as the best way to fix long-existing disparities.`\
 https://nytimes.com/video/us/politics/100000007819237/yellen-covid-economic-recovery-biden-infrastructure-jobs-plans.html?searchResultPosition=3
 
-**The Education Department cancels $500 million in student debt for defrauded ITT students.**\
+**The Education Department cancels $500 million in debt for defrauded ITT students.**\
 `The department canceled debts for 18,000 applicants who attended ITT Technical Institute. It was the first time new grounds for claims had been approved in more than four years.`\
 https://nytimes.com/2021/06/16/business/student-loans-canceled-itt.html?searchResultPosition=4
 
