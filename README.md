@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/16/opinion/capitol-attack-political-donations.html?s
 https://nytimes.com/2021/06/16/opinion/nyc-mayor-race-primary-da.html?searchResultPosition=4
 
 **Biden Discusses Human Rights and Cybersecurity With Putin**\
-`President Biden delivered an update on the bilateral meeting he held with President Vladimir V. Putin of Russia on Wednesday. In the meeting, Mr. Biden said he discussed human rights violations committed by Russia as well as Russian attacks on U.S. cybersecurity.`\
+`President Biden discussing the meeting he just had with President Vladimir V. Putin of Russia on Wednesday.`\
 https://nytimes.com/video/us/politics/100000007819329/biden-putin-geneva-summit.html?searchResultPosition=5
 
 **How to Help Prepare Your Home for the Threat of Wildfires**\
