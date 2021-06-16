@@ -11,7 +11,7 @@ https://nytimes.com/2021/06/16/world/new-york-homeless-hotels.html?searchResultP
 https://nytimes.com/interactive/2021/arts/television/best-tv-comedies-shows.html?searchResultPosition=3
 
 **New Yorker Union Reaches Deal With Condé Nast After Threatening to Strike**\
-`Condé Nast, the venerable magazine’s parent company, agreed to a minimum salary of $60,000 by April 2023, the union said. The deal also covers workers at the digital publications Ars Technica and Pitchfork.`\
+`Condé Nast, the venerable magazine’s parent company, agreed to a minimum salary of $60,000 by April 2023, the union said. The deal also covers workers at Ars Technica and Pitchfork.`\
 https://nytimes.com/2021/06/16/business/media/conde-nast-new-yorker-union-deal.html?searchResultPosition=4
 
 **U.S. Economy Is Rebounding, Powell Says**\
