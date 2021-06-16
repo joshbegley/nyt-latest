@@ -1,4 +1,4 @@
-**For Biden, modest goals, but a chance for a reset.**\
+**Biden is expected to raise issues of human rights and digital disruption.**\
 `The American leader is aiming to look strong on human rights and security while also not making too many waves.`\
 https://nytimes.com/2021/06/16/world/europe/biden-putin-summit-goals.html?searchResultPosition=1
 
