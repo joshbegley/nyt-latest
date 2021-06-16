@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/16/nyregion/mayor-debate-nyc.html?searchResultPosition=1
 
 **North Korea Is Facing a ‘Tense’ Food Shortage**\
-`During a ruling Workers’ Party meeting, Kim Jong-un said addressing the country’s food insecurity was “a top priority.”`\
+`Kim Jong-un said addressing food insecurity was “a top priority” in the country, where millions died in a famine during the ’90s.`\
 https://nytimes.com/2021/06/16/world/asia/north-korea-food-shortage.html?searchResultPosition=2
 
 **Trevor Noah: Marjorie Taylor Greene Has a Lot to Learn**\
