@@ -1,5 +1,5 @@
 **Putin Calls Meeting With Biden ‘Constructive’**\
-`President Vladimir V. Putin of Russia told reporters on Wednesday that there was “no hostility” in his first meeting with President Biden. He also repeated denials of Russian mischief and tropes about American failings.`\
+`President Vladimir V. Putin of Russia told reporters Wednesday that there was “no hostility” in his first meeting with President Biden.`\
 https://nytimes.com/video/world/europe/100000007819054/putin-biden-meeting-press-conference.html?searchResultPosition=1
 
 **The U.S. will buy 200 million more Moderna doses, in case Covid vaccine boosters are needed.**\
@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/16/us/politics/manchin-voting-rights.html?searchResu
 https://nytimes.com/video/world/europe/100000007819141/biden-putin-geneva-summit-press-scuffle.html?searchResultPosition=4
 
 **Corporate America Forgives the Sedition Caucus**\
-`Corporate donations flow to lawmakers who tried to overturn the election.`\
+`Donations flow to lawmakers who tried to overturn the election.`\
 https://nytimes.com/2021/06/16/opinion/capitol-attack-political-donations.html?searchResultPosition=5
 
 **In New York City, Democracy Is a One-Party Affair**\
