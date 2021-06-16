@@ -22,8 +22,8 @@ https://nytimes.com/2021/06/16/magazine/cdc-covid-response.html?searchResultPosi
 `This Juneteenth, we’re reflecting on people whose lives were impacted by slavery, but who then went on to change the world`\
 https://nytimes.com/interactive/2021/06/16/us/Juneteenth-obituaries.html?searchResultPosition=6
 
-**CureVac’s vaccine performed poorly in a clinical trial, in part because of virus variants.**\
-`A preliminary analysis estimated that CureVac’s mRNA vaccine had an efficacy of just 47 percent. “This is pretty devastating for them,” one expert said.`\
+**CureVac’s mRNA vaccine reaches an efficacy of just 47 percent in a clinical trial.**\
+`The results were a blow to hopes that the vaccine could help meet the world’s urgent need. “This is pretty devastating” for the company, one expert said.`\
 https://nytimes.com/2021/06/16/health/curevac-vaccine.html?searchResultPosition=7
 
 **What’s in Our Queue? Paloma Mami and More**\
