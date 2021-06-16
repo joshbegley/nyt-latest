@@ -19,7 +19,7 @@ https://nytimes.com/2021/06/16/podcasts/the-daily/ethiopia-tigray.html?searchRes
 https://nytimes.com/2021/06/16/realestate/ticks-gardening-2021.html?searchResultPosition=5
 
 **TikTok takes over the top sponsor spot at VidCon, edging out YouTube.**\
-`YouTube, which had been VidCon’s top sponsor since 2013, and in years past, YouTubers dominated the convention. But the creator economy has changed dramatically in the last year.`\
+`YouTube, which had been VidCon’s top sponsor since 2013, and in years past, YouTubers dominated the convention. But the creator economy has changed substantially in the last year.`\
 https://nytimes.com/2021/06/16/business/tiktok-vidcon.html?searchResultPosition=6
 
 **American tourists could soon be allowed freer travel to Europe.**\
