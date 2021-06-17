@@ -24,7 +24,7 @@ https://nytimes.com/2021/06/16/opinion/putin-winning.html?searchResultPosition=6
 
 **Watch Live: China Sends Astronauts to Space Station**\
 `China launches the Shenzhou-12 spacecraft carrying three astronauts from Jiuquan Satellite Launch Center to the partially constructed Tianhe space station where they will stay for three months.`\
-https://nytimes.com/video/world/asia/100000007819834/china-space-station.html?searchResultPosition=7
+https://nytimes.com/video/embedded/world/asia/100000007819834/china-space-station.html?searchResultPosition=7
 
 **Asked to name their rivals’ worst idea, mayoral candidates fight over defunding the police.**\
 `By Michael Gold`\
