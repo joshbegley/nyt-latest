@@ -10,7 +10,7 @@ https://nytimes.com/video/us/politics/100000007821823/biden-juneteenth-signing.h
 `An official notice said that more than 115 people associated with the embassy had been infected, and that despite access to vaccines, most of those stricken were un- or only partially vaccinated.`\
 https://nytimes.com/2021/06/17/world/us-embassy-kabul-covid-lockdown.html?searchResultPosition=3
 
-**Canadian Couple Who Flew to Small Town for Vaccine Plead Guilty**\
+**Canadian Couple Who Flew to Indigenous Town for Vaccine Plead Guilty**\
 `The couple, a gambling executive and an actress, were fined $2,300 for violating coronavirus restrictions but won’t face jail time, court records show.`\
 https://nytimes.com/2021/06/17/world/americas/vancouver-couple-vaccine-guilty.html?searchResultPosition=4
 
