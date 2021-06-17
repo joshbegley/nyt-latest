@@ -12,7 +12,7 @@ https://nytimes.com/2021/06/17/science/bats-guano-cave-art.html?searchResultPosi
 
 **Janet Malcolm, Provocative Journalist With a Piercing Eye, Dies at 86**\
 `Her subjects ranged widely, but she took special aim at journalism itself, writing that every journalist “knows that what he does is morally indefensible.”`\
-https://nytimes.com/2021/06/17/business/media/janet-malcolm.html?searchResultPosition=4
+https://nytimes.com/2021/06/17/business/media/janet-malcolm-dead.html?searchResultPosition=4
 
 **Father and Son Return to the Stage, Together. Again. No Regrets.**\
 `Reed and Ephraim Birney are in the Berkshires, reprising their roles in “Chester Bailey.” They discuss what it’s like to play off — and fight — each other.`\
