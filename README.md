@@ -1,6 +1,6 @@
 **‘Mediocre’ men get ahead in finance more easily, say women in the industry.**\
-`By Sarah Kessler`\
-https://nytimes.com/2021/06/17/business/mediocre-men-get-ahead-in-finance-more-easily-say-women-in-the-industry.html?searchResultPosition=1
+`Women said they had to find an innovative niche to succeed while men were welcome on more traditional paths, according to a recent qualitative study.`\
+https://nytimes.com/2021/06/17/business/gender-equality-finance-industry.html?searchResultPosition=1
 
 **The ‘Divas’ Who Serenaded and Seduced the Arab World**\
 `A multimedia exhibition in Paris offers a rich flashback to a period between the 1920s and the 1970s when many female performers took center stage.`\
