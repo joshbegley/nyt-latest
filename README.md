@@ -4,7 +4,7 @@ https://nytimes.com/2021/06/17/world/americas/nicaragua-ortega-press-crackdown.h
 
 **What to Watch For in the U.S.A. Track & Field Olympic Trials**\
 `The top three finishers in each event qualify for the Tokyo Games, provided they have reached the Olympic standard.`\
-https://nytimes.com/2021/06/17/sports/what-to-watch-for-in-the-usa-track-field-olympic-trials.html?searchResultPosition=2
+https://nytimes.com/2021/06/17/sports/usa-track-field-olympics-trials-schedule.html?searchResultPosition=2
 
 **Is the U.S. in Crisis? Republicans Want Voters to Think So.**\
 `Looking ahead to the midterms, the G.O.P. is pushing a message that the country is in peril on numerous fronts.`\
