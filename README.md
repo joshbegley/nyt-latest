@@ -1,40 +1,40 @@
+**With Sale to Blackstone, China’s Property Power Couple Cements Exit**\
+`The husband-and-wife team atop Soho China had already been keeping a lower profile than they did during an earlier, freer era of the country’s economic revival.`\
+https://nytimes.com/2021/06/17/business/soho-china-blackstone-sale.html?searchResultPosition=1
+
 **MSNBC employees are forming a union.**\
-`Workers at the cable network have told management that the union will represent more than 300 workers, including producers, bookers and writers.`\
-https://nytimes.com/2021/06/17/business/media/msnbc-union.html?searchResultPosition=1
+`Workers at the cable network say the union will represent more than 300 workers, including producers, bookers and writers.`\
+https://nytimes.com/2021/06/17/business/media/msnbc-union.html?searchResultPosition=2
 
 **Democrats weigh a plan as large as $6 trillion as a bipartisan group pursues a narrower infrastructure deal.**\
 `The details of both plans are in flux, as lawmakers work to maneuver some, if not all, of President Biden’s economic agenda around the razor-thin margins in Congress.`\
-https://nytimes.com/2021/06/17/us/politics/infrastructure-congress.html?searchResultPosition=2
+https://nytimes.com/2021/06/17/us/politics/infrastructure-congress.html?searchResultPosition=3
 
 **A Small Brazilian Photo Club That Reached for the Skyline**\
 `How a group of mostly amateur photographers helped develop Brazil’s modernist aesthetic.`\
-https://nytimes.com/2021/06/17/arts/design/brazil-photo-club-MoMA.html?searchResultPosition=3
+https://nytimes.com/2021/06/17/arts/design/brazil-photo-club-MoMA.html?searchResultPosition=4
 
 **‘Mediocre’ men get ahead in finance more easily, say women in the industry.**\
 `Women said they had to find an innovative niche to succeed while men were welcome on more traditional paths, according to a recent qualitative study.`\
-https://nytimes.com/2021/06/17/business/gender-equality-finance-industry.html?searchResultPosition=4
+https://nytimes.com/2021/06/17/business/gender-equality-finance-industry.html?searchResultPosition=5
 
 **The ‘Divas’ Who Serenaded and Seduced the Arab World**\
 `A multimedia exhibition in Paris offers a rich flashback to a period between the 1920s and the 1970s when many female performers took center stage.`\
-https://nytimes.com/2021/06/17/arts/music/arab-divas.html?searchResultPosition=5
+https://nytimes.com/2021/06/17/arts/music/arab-divas.html?searchResultPosition=6
 
 **A Conversation on ‘Invisible Man’**\
 `The writer and scholar Adam Bradley speaks about Ralph Ellison’s 1952 classic.`\
-https://nytimes.com/2021/06/17/t-magazine/invisible-man-ralph-ellison.html?searchResultPosition=6
+https://nytimes.com/2021/06/17/t-magazine/invisible-man-ralph-ellison.html?searchResultPosition=7
 
 **The Enslaved Artist Whose Pottery Was an Act of Resistance**\
 `Poetic jars by David Drake are setting records at auction and starring in art museums, showcasing the artistry of enslaved African Americans.`\
-https://nytimes.com/2021/06/17/arts/design/-enslaved-potter-david-drake-museum.html?searchResultPosition=7
+https://nytimes.com/2021/06/17/arts/design/-enslaved-potter-david-drake-museum.html?searchResultPosition=8
 
 **Supreme Court Limits Human Rights Suits Against Corporations**\
 `Six citizens of Mali had sued Nestlé USA and Cargill, accusing the companies of profiting from child slavery on Ivory Coast cocoa farms.`\
-https://nytimes.com/2021/06/17/us/supreme-court-human-rights-nestle.html?searchResultPosition=8
+https://nytimes.com/2021/06/17/us/supreme-court-human-rights-nestle.html?searchResultPosition=9
 
 **Biden is set to sign a law making Juneteenth a federal holiday.**\
 `The law takes effect immediately, making Friday the first federal Juneteenth holiday in American history.`\
-https://nytimes.com/2021/06/17/us/politics/biden-juneteenth-holiday.html?searchResultPosition=9
-
-**Andrew Yang Comments on Mental Illness During Debate**\
-`The Democratic candidates for mayor of New York were asked during Wednesday’s debate how they would address mental health and homelessness. Andrew Yang’s response differed from his rivals’.`\
-https://nytimes.com/video/us/politics/100000007821109/nyc-mayor-yang-mental-illness-initiative.html?searchResultPosition=10
+https://nytimes.com/2021/06/17/us/politics/biden-juneteenth-holiday.html?searchResultPosition=10
 
