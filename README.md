@@ -19,7 +19,7 @@ https://nytimes.com/2021/06/17/arts/design/-enslaved-potter-david-drake-museum.h
 https://nytimes.com/2021/06/17/us/supreme-court-human-rights-nestle.html?searchResultPosition=5
 
 **Biden is set to sign a law making Juneteenth a federal holiday.**\
-`President Biden is expected to sign the legislation at a ceremony Thursday afternoon where he and Vice President Kamala Harris are slated to speak.`\
+`The law takes effect immediately, making Friday the first federal Juneteenth holiday in American history.`\
 https://nytimes.com/2021/06/17/us/politics/biden-juneteenth-holiday.html?searchResultPosition=6
 
 **Andrew Yang Comments on Mental Illness During Debate**\
