@@ -14,7 +14,7 @@ https://nytimes.com/article/what-is-a-megadrought.html?searchResultPosition=3
 `New state laws are scheduled to take effect on July 1, but there are vanishingly low expectations for a deal in Washington in the coming days.`\
 https://nytimes.com/2021/06/17/sports/ncaafootball/ncaa-federal-bill.html?searchResultPosition=4
 
-**They’re Furry and They Fly, and They Ruin Ancient Cave Art**\
+**What Has Wings and Fur and Can Erase Ancient Cave Art?**\
 `Bats roosting in caves produce ample guano, which may explain why prehistoric marks left by humans cannot be found in some places where they are expected.`\
 https://nytimes.com/2021/06/17/science/bats-guano-cave-art.html?searchResultPosition=5
 
