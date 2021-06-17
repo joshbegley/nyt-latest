@@ -1,10 +1,10 @@
-**For a Composer, the Final Minutes Are Critical**\
-`Flowering into lushly affecting patterns, Christopher Cerrone’s new album is part of a burst of activity over the past year.`\
-https://nytimes.com/2021/06/17/arts/music/christopher-cerrone-music-composer.html?searchResultPosition=1
-
 **Affordable Care Act Survives Latest Supreme Court Challenge**\
 `The court sidestepped the larger issue in the case, whether the 2010 health care law can stand without a provision that required most Americans to obtain insurance or pay a penalty.`\
-https://nytimes.com/2021/06/17/us/obamacare-supreme-court.html?searchResultPosition=2
+https://nytimes.com/2021/06/17/us/obamacare-supreme-court.html?searchResultPosition=1
+
+**For a Composer, the Final Minutes Are Critical**\
+`Flowering into lushly affecting patterns, Christopher Cerrone’s new album is part of a burst of activity over the past year.`\
+https://nytimes.com/2021/06/17/arts/music/christopher-cerrone-music-composer.html?searchResultPosition=2
 
 **Five Pioneering Black Ballerinas: ‘We Have to Have a Voice’**\
 `These early Dance Theater of Harlem stars met weekly on Zoom — to survive the isolation of the pandemic and to reclaim their role in dance history.`\
