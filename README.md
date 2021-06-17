@@ -1,5 +1,5 @@
 **Nielsen Now Knows When You Are Streaming**\
-`The company known for measuring traditional TV ratings unveils a new metric, ‘The Gauge,’ to help track viewing of Netflix, Amazon and others.`\
+`The company known for measuring television ratings said Netflix and YouTube are far ahead of their digital competitors in terms of time spent watching on TVs, but viewers spend more time with cable and network TV, for now.`\
 https://nytimes.com/2021/06/17/business/media/nielsen-streaming-metrics.html?searchResultPosition=1
 
 **‘Physical’ Review: Feeling the Sick Burn**\
