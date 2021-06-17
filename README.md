@@ -1,40 +1,40 @@
+**Homes for Sale in Brooklyn, Queens and Manhattan**\
+`This week’s properties are in Brooklyn Heights, Jackson Heights and Manhattan Valley.`\
+https://nytimes.com/2021/06/17/realestate/housing-market-nyc.html?searchResultPosition=1
+
+**On the Market in New York City**\
+`This week’s properties are in Brooklyn Heights, Jackson Heights and Manhattan Valley.`\
+https://nytimes.com/slideshow/2021/06/17/realestate/on-the-market-in-new-york-city.html?searchResultPosition=2
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are in Oyster Bay Cove, N.Y., and Fairfield, Conn.`\
+https://nytimes.com/2021/06/17/realestate/housing-market-near-nyc.html?searchResultPosition=3
+
+**On the Market in the New York Region**\
+`This week’s properties are in Oyster Bay Cove, N.Y., and Fairfield, Conn.`\
+https://nytimes.com/slideshow/2021/06/17/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+
+**Happy to Shun Showrooms, Millennials Storm the Car Market**\
+`Younger buyers are helping feed a growing field of app- and web-based services. Last year, millennials topped baby boomers for the first time as new-car buyers.`\
+https://nytimes.com/2021/06/17/business/buying-a-car-online-carvana.html?searchResultPosition=5
+
+**The T List: Five Things We Recommend This Week**\
+`An exhibition of work by Hurvin Anderson, silk scarves from Como — and more.`\
+https://nytimes.com/2021/06/17/t-magazine/hurvin-anderson-adam-selman.html?searchResultPosition=6
+
+**My Son Is Being Bullied, and I Don’t Know What to Do**\
+`A reader weighs her teenager’s shame against her own silence.`\
+https://nytimes.com/2021/06/17/style/children-bullying-social-qs.html?searchResultPosition=7
+
 **What’s Going On With Illegal Fireworks in California?**\
 `Thursday: Agencies across the state are cracking down ahead of the Fourth of July.`\
-https://nytimes.com/2021/06/17/us/illegal-fireworks-california.html?searchResultPosition=1
+https://nytimes.com/2021/06/17/us/illegal-fireworks-california.html?searchResultPosition=8
 
 **Rafael Nadal Says He Will Skip Wimbledon and the Olympics**\
 `The Spanish star said a short turnaround between the French Open and Wimbledon did not allow enough time for his body to recover.`\
-https://nytimes.com/2021/06/17/sports/tennis/rafael-nadal-wimbledon-olympics.html?searchResultPosition=2
+https://nytimes.com/2021/06/17/sports/tennis/rafael-nadal-wimbledon-olympics.html?searchResultPosition=9
 
 **State unemployment claims increased last week.**\
 `In four states, it was the final week in which some or all federal pandemic benefits were to be paid.`\
-https://nytimes.com/2021/06/17/business/economy/state-unemployment-claims-increased-last-week.html?searchResultPosition=3
-
-**Nations weigh mandates and incentives to drive up vaccination rates.**\
-`While some parts of the world have used lures such as free lottery tickets to lift inoculation rates, officials in a few places may go straight to requiring shots.`\
-https://nytimes.com/2021/06/17/world/moscow-vaccine-mandates.html?searchResultPosition=4
-
-**Ex-Mayor on Duterte’s ‘Narco Politician’ List Is Killed**\
-`The death came three days after the International Criminal Court’s departing chief prosecutor requested a full investigation into the bloody war on drugs in the Philippines.`\
-https://nytimes.com/2021/06/17/world/asia/philippines-mayor-dead-drugs.html?searchResultPosition=5
-
-**Mattel joins the NFT frenzy with Hot Wheels digital art.**\
-`“We need to be on top of current conversations,” Mattel’s president said.`\
-https://nytimes.com/2021/06/17/business/mattel-nft-hot-wheels.html?searchResultPosition=6
-
-**Juneteenth: 7 Events for Celebrating the Holiday in New York**\
-`On Saturday, many of the city’s cultural venues are holding performances and parties to mark the emancipation of enslaved African Americans.`\
-https://nytimes.com/2021/06/17/arts/music/juneteenth-new-york-events.html?searchResultPosition=7
-
-**The U.S. and Britain end their aircraft subsidy dispute, mirroring an E.U. deal.**\
-`The agreement suspends the threat of tariffs related to a spat over subsidies for Airbus and Boeing and turns attention to China’s growing aircraft industry.`\
-https://nytimes.com/2021/06/17/business/us-britain-tariffs-airbus-boeing.html?searchResultPosition=8
-
-**Trustbusting Kicks Into Higher Gear**\
-`Two more signs that antitrust is a big focus on both sides of the aisle.`\
-https://nytimes.com/2021/06/17/business/dealbook/antitrust-aon-khan.html?searchResultPosition=9
-
-**‘The French’ Review: A Candid Look at the French Open**\
-`This documentary by William Klein relies on the unspoken or spontaneous moments to tell the tale of the 1981 Open, off court and on.`\
-https://nytimes.com/2021/06/17/movies/the-french-review.html?searchResultPosition=10
+https://nytimes.com/2021/06/17/business/economy/state-unemployment-claims-increased-last-week.html?searchResultPosition=10
 
