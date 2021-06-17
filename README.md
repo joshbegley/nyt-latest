@@ -1,40 +1,40 @@
-**After Pandemic and Brexit, U.K. Begins to See Gaps Left by European Workers**\
-`As the country’s economy restarts after months of closures, staffing shortages have emerged in some industries. The impact of leaving the European Union could be part of the problem.`\
-https://nytimes.com/2021/06/17/world/europe/pandemic-brexit-uk.html?searchResultPosition=1
+**‘The French’ Review: A Candid Look at the French Open**\
+`This documentary by William Klein relies on the unspoken or spontaneous moments to tell the tale of the 1981 Open, off court and on.`\
+https://nytimes.com/2021/06/17/movies/the-french-review.html?searchResultPosition=1
 
-**The Specter of Inflation**\
-`Is it haunting the U.S. economy?`\
-https://nytimes.com/2021/06/17/briefing/inflation-us-economy-covid-pandemic.html?searchResultPosition=2
+**‘Truman & Tennessee: An Intimate Conversation’ Review: Friendship in Focus**\
+`The director deftly constructs a dialogue between Truman Capote and Tennessee Williams.`\
+https://nytimes.com/2021/06/17/movies/truman-tennessee-an-intimate-conversation-review-friendship-in-focus.html?searchResultPosition=2
 
-**The Transformation of Ralph Northam**\
-`How the Virginia governor who was embroiled in a blackface scandal became the most racially progressive leader in the state’s history.`\
-https://nytimes.com/2021/06/17/podcasts/the-daily/ralph-northam.html?searchResultPosition=3
+**‘Rita Moreno: Just a Girl Who Decided to Go for It’ Review: An Icon’s Growing Pains**\
+`This paean to the trailblazing Puerto Rican actress is also a case study in the highs and lows of showbiz for a woman of color.`\
+https://nytimes.com/2021/06/17/business/rita-moreno-just-a-girl-who-decided-to-go-for-it-review.html?searchResultPosition=3
 
-**Major Moments From the Final Democratic Mayoral Debate**\
-`As the June 22 primary approaches, Democratic candidates  sparred over matters of public safety, schooling and homelessness.`\
-https://nytimes.com/2021/06/17/nyregion/major-moments-from-the-final-democratic-mayoral-debate.html?searchResultPosition=4
+**‘The Sparks Brothers’ Review: Yes, They’re Real. And Inexplicable.**\
+`Edward Wright knows Sparks and you will too, once you see his documentary about this singular cultural phenomenon.`\
+https://nytimes.com/2021/06/17/movies/sparks-brothers-documentary-review.html?searchResultPosition=4
 
-**Challenges Aplenty Onstage in London, With Some Fun Along the Way**\
-`As London venues reopen, theatergoers can choose to reckon with works like “The Death of a Black Man” or enjoy frothier fare from George Bernard Shaw.`\
-https://nytimes.com/2021/06/17/theater/london-after-life.html?searchResultPosition=5
+**‘Les Nôtres’ Review: Hidden Suffering in Plain Sight**\
+`In this moody film, a 13-year-old girl in a Quebec town hides her pregnancy, but her trauma deepens as the identity of the father emerges.`\
+https://nytimes.com/2021/06/17/movies/les-notres-review.html?searchResultPosition=5
 
-**Honolulu Police Officer Is Charged With Murder in the Shooting of a 16-Year-Old**\
-`Geoffrey H.L. Thom shot Iremamber Sykap eight times after a high-speed chase on April 5, prosecutors said. Two other officers were charged with attempted murder.`\
-https://nytimes.com/2021/06/17/us/iremamber-sykap-shooting.html?searchResultPosition=6
+**‘Summer of 85’ Review: Denim Embraces and Stolen Kisses**\
+`A gay teenagers’s fleeting romance goes off the rails in this coming-of-age story from the French director François Ozon.`\
+https://nytimes.com/2021/06/17/movies/summer-of-85-review.html?searchResultPosition=6
 
-**The Story of Modern Art and Design, Housed in a Suburban Detroit Basement**\
-`The storage facility of the Cranbrook Academy of Art, in the unlikely enclave of Bloomfield Hills, Mich., is a treasure trove of iconic objects.`\
-https://nytimes.com/interactive/2021/06/17/multimedia/cranbrook-art-gallery.html?searchResultPosition=7
+**‘A Crime on the Bayou’ Review: Race on Trial**\
+`Nancy Buirski’s documentary deals with a civil rights case in 1960s Louisiana that wound up before the Supreme Court.`\
+https://nytimes.com/2021/06/17/movies/a-crime-on-the-bayou-review.html?searchResultPosition=7
 
-**The Photographer Who Captured the Beauty in Blackness**\
-`Kwame Brathwaite, who shot some of the great icons of the 1960s and ’70s, has spent his career largely underrecognized. That is, until now.`\
-https://nytimes.com/2021/06/17/t-magazine/kwame-brathwaite-photographer.html?searchResultPosition=8
+**‘Sweet Thing’ Review: Little Caregivers, Little Fugitives**\
+`The filmmaker Alexandre Rockwell cast his wife as a negligent mother and his children as runaways in this shimmering black-and-white drama.`\
+https://nytimes.com/2021/06/17/movies/sweet-thing-review.html?searchResultPosition=8
 
-**A Quiet Demonstration and a Long Shadow**\
-`Few noticed Wyomia Tyus’s subtle gesture in support of human rights at the 1968 Olympics. But her act is part of a rich history of athlete protest.`\
-https://nytimes.com/2021/06/17/sports/olympics/wyomia-tyus-athlete-protests-racism.html?searchResultPosition=9
+**‘The Birthday Cake’ Review: Baked Hoods**\
+`This mob drama folds family secrets and fading power into a story of operatic vengeance.`\
+https://nytimes.com/2021/06/17/business/the-birthday-cake-review.html?searchResultPosition=9
 
-**Touring Alaska in an R.V.**\
-`For a photographer based in Juneau, two Alaskan roads — the Glenn Highway and the Richardson Highway — formed the backbone of a stunning late-spring road trip.`\
-https://nytimes.com/2021/06/17/travel/rv-rental-alaska.html?searchResultPosition=10
+**‘My Name Is Bulger’ Review: A Boston Saga**\
+`The documentary tells the tale of two brothers who rose to the top of very different professions: a politician, William, and a mob boss, Whitey.`\
+https://nytimes.com/2021/06/17/movies/my-name-is-bulger-review.html?searchResultPosition=10
 
