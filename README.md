@@ -1,6 +1,6 @@
 **Sticks in the Water**\
 `Blake Slonecker may wind up all wet.`\
-https://nytimes.com/2021/06/16/crosswords/nyt-crossword-sticks-in-the-water.html?searchResultPosition=1
+https://nytimes.com/2021/06/16/crosswords/daily-puzzle-2021-06-17.html?searchResultPosition=1
 
 **Yang and Adams Clash Over Police Union Endorsement**\
 `Andrew Yang and Eric Adams had a fiery exchange during Wednesday’s mayoral debate over whether Mr. Adams had sought and failed to receive the endorsement of his former police union.`\
