@@ -14,8 +14,8 @@ https://nytimes.com/2021/06/17/sports/olympics/katie-and-jon-ledecky-us-swimming
 `Biden and Putin meet in Geneva.`\
 https://nytimes.com/2021/06/16/briefing/biden-putin-coronavirus-birthrate.html?searchResultPosition=4
 
-**‘Springsteen on Broadway’ is coming back, but not for guests who can’t prove F.D.A.-approved vaccinations.**\
-`The venue, the St. James Theatre, is offering no exceptions for people who are unable or unwilling to be vaccinated.`\
+**‘Springsteen on Broadway’ is returning, but not for guests who can’t prove F.D.A.-approved vaccinations.**\
+`The venue, New York’s St. James Theatre, is making no exceptions for people who are unable or unwilling to be vaccinated.`\
 https://nytimes.com/2021/06/16/world/bruce-springsteen-broadway-vaccine.html?searchResultPosition=5
 
 **‘A Spicy Exchange’: Who Won the Final New York City Mayoral Debate?**\
