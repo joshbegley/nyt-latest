@@ -1,5 +1,5 @@
-**Andrew Yang Gives Controversial Comments on Mental Illness**\
-`The Democratic candidates for mayor of New York were asked during Wednesday’s debate how they would address mental health and homelessness. Andrew Yang’s response differed from his rivals.`\
+**Andrew Yang Comments on Mental Illness During Debate**\
+`The Democratic candidates for mayor of New York were asked during Wednesday’s debate how they would address mental health and homelessness. Andrew Yang’s response differed from his rivals’.`\
 https://nytimes.com/video/us/politics/100000007821109/nyc-mayor-yang-mental-illness-initiative.html?searchResultPosition=1
 
 **What to Avoid on Amazon Prime Day**\
