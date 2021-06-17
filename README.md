@@ -1,6 +1,6 @@
-**Kenneth Kaunda, Zambia’s First President, Is Dead at 97**\
-`He dominated the politics of his country for a generation, outliving many of his peers among the so-called frontline leaders who had sponsored southern Africa’s guerrilla wars.`\
-https://nytimes.com/2021/06/17/world/africa/kenneth-kaunda-dead.html?searchResultPosition=1
+**Kenneth Kaunda, Patriarch of African Independence, Is Dead at 97**\
+`As Zambia’s first president, he dominated his country, outliving many of the other frontline leaders who had sponsored southern Africa’s guerrilla wars.`\
+https://nytimes.com/2021/06/17/world/africa/kenneth-kaunda-patriarch-of-african-independence-is-dead-at-97.html?searchResultPosition=1
 
 **Eva Sereny, Who Photographed Film Stars at Work, Dies at 86**\
 `She captured De Niro, Streep, Eastwood and many others, often in unguarded moments. Working with directors like Fellini and Spielberg inspired her to make movies herself.`\
