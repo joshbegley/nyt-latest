@@ -30,9 +30,9 @@ https://nytimes.com/2021/06/16/us/politics/biden-putin.html?searchResultPosition
 `They are not completely wrong.`\
 https://nytimes.com/2021/06/16/opinion/world-dictators-american-racism.html?searchResultPosition=8
 
-**Candidates differ over how to address homelessness and mental illness.**\
+**Candidates differ over how to solve the homelessness crisis.**\
 `By Andy Newman`\
-https://nytimes.com/2021/06/16/nyregion/candidates-differ-over-how-to-address-homelessness-and-mental-illness.html?searchResultPosition=9
+https://nytimes.com/2021/06/16/nyregion/candidates-differ-over-how-to-solve-the-homelessness-crisis.html?searchResultPosition=9
 
 **Driver Who Plowed Into Protesters in Minneapolis Is Charged With Murder**\
 `Nicholas Kraus of St. Paul, Minn., was drunk at the time of the crash, the authorities said. Deona Marie Erickson, 31, a social justice advocate, was killed in the episode.`\
