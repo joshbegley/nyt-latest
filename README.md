@@ -35,6 +35,6 @@ https://nytimes.com/2021/06/18/world/europe/britain-rape-apology-prosecutions.ht
 https://nytimes.com/2021/06/18/world/uk-vaccine-eligibility.html?searchResultPosition=9
 
 **At Least 3 Dead After Tubers Go Over North Carolina Dam**\
-`Officials are still searching for two from a group of nine who tracked out to the Dan River around nightfall on Wednesday, the authorities said.`\
+`Officials are still searching for two from a group of nine who trekked out to the Dan River around nightfall on Wednesday, the authorities said.`\
 https://nytimes.com/2021/06/18/us/dan-river-dam-tubers.html?searchResultPosition=10
 
