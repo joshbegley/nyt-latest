@@ -8,7 +8,7 @@ https://nytimes.com/2021/06/17/books/review/its-life-as-i-see-it-charles-johnson
 
 **Kim Jong-un Says He’s Ready for ‘Dialogue and Confrontation’ With Biden**\
 `During a Workers’ Party meeting, the North Korean leader reviewed the new U.S. policy on his country and ordered “counteraction,” state news media reported.`\
-https://nytimes.com/2021/06/17/world/asia/north-korea-kim-jong-un-biden.html?searchResultPosition=3
+https://nytimes.com/2021/06/18/world/asia/north-korea-kim-jong-un-biden.html?searchResultPosition=3
 
 **At the U.S. Open, Matthew Wolff Is Having Fun Again**\
 `The promising young golfer took two months off the PGA Tour when he stopped enjoying the game and was worried about his mental health. He says he’s thrilled to be back.`\
