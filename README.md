@@ -1,40 +1,40 @@
+**Love Letter: Overcoming Challenges, Together.**\
+`And: preparing a child for a dying world.`\
+https://nytimes.com/2021/06/18/style/love-letter-newsletter-overcoming-challenges-together.html?searchResultPosition=1
+
+**My Night in a Quarantine Hotel**\
+`“I was beginning a prison sentence at a Canadian Alcatraz.” A Times reporter returning from Europe experiences isolation, panic and a touch of luxury at a quarantine hotel near Toronto’s airport.`\
+https://nytimes.com/2021/06/18/world/canada/toronto-quarantine-hotel.html?searchResultPosition=2
+
 **Traveling This Summer? Here’s What You Should Know About the Delta Variant.**\
 `It’s the most contagious form of the coronavirus so far. Here’s what you need to know before traveling.`\
-https://nytimes.com/2021/06/18/travel/delta-variant-summer-travel.html?searchResultPosition=1
+https://nytimes.com/2021/06/18/travel/delta-variant-summer-travel.html?searchResultPosition=3
 
 **What to Do This Weekend**\
 `Juneteenth and Father’s Day.`\
-https://nytimes.com/2021/06/18/at-home/newsletter.html?searchResultPosition=2
+https://nytimes.com/2021/06/18/at-home/newsletter.html?searchResultPosition=4
 
 **Frank Bonner, Brash Salesman on ‘WKRP in Cincinnati,’ Dies at 79**\
 `He played the memorably obnoxious Herb Tarlek for all four seasons of the popular sitcom set at a radio station, and reprised the role on a sequel show a decade later.`\
-https://nytimes.com/2021/06/18/arts/television/frank-bonner-dead.html?searchResultPosition=3
+https://nytimes.com/2021/06/18/arts/television/frank-bonner-dead.html?searchResultPosition=5
 
 **Trump endorses Kelly Tshibaka, Murkowski’s challenger in Alaska’s Senate race.**\
 `Donald J. Trump has been following the race closely, his advisers said, hoping to unseat Senator Lisa Murkowski after she voted to convict him in his second impeachment trial.`\
-https://nytimes.com/2021/06/18/us/politics/trump-kelly-tshibaka-murkowski.html?searchResultPosition=4
+https://nytimes.com/2021/06/18/us/politics/trump-kelly-tshibaka-murkowski.html?searchResultPosition=6
 
 **Will Christian America Withstand the Pull of QAnon?**\
 `The Southern Baptist Convention appeared more concerned with combating critical race theory than conspiracy theories. `\
-https://nytimes.com/2021/06/18/opinion/southern-baptist-convention-christianity.html?searchResultPosition=5
+https://nytimes.com/2021/06/18/opinion/southern-baptist-convention-christianity.html?searchResultPosition=7
 
 **Switzerland Finds Liberian Rebel Leader Guilty of Wartime Atrocities**\
 `In a landmark case, Alieu Kosiah was sentenced to 20 years in prison for crimes committed during Liberia’s civil war.`\
-https://nytimes.com/2021/06/18/world/africa/liberia-war-crimes-sentencing.html?searchResultPosition=6
+https://nytimes.com/2021/06/18/world/africa/liberia-war-crimes-sentencing.html?searchResultPosition=8
 
 **Catholic Church Advances Ruling to Deny Biden Communion**\
 `The Roman Catholic bishops of the United States voted overwhelmingly to draft a statement on the sacrament of the Eucharist, which would not allow President Biden to take communion because of his views on abortion.`\
-https://nytimes.com/video/us/politics/100000007823788/catholic-church-biden-communion.html?searchResultPosition=7
+https://nytimes.com/video/us/politics/100000007823788/catholic-church-biden-communion.html?searchResultPosition=9
 
 **In the Weeds of ‘In the Heights’**\
 `A conversation about bringing musicals to the big screen, Lin-Manuel Miranda’s artistic choices and the critical blowback to the film’s casting.`\
-https://nytimes.com/2021/06/18/arts/music/popcast-in-the-heights.html?searchResultPosition=8
-
-**A Millennial Economist Helps Power a Tax Evasion ‘Brain Trust’**\
-`Natasha Sarin, a protégé of Larry Summers, is taking a leading role developing tax policy at the Treasury Department — to some progressive Democrats’ chagrin.`\
-https://nytimes.com/2021/06/18/us/politics/taxes-wealthy-natasha-sarin-treasury.html?searchResultPosition=9
-
-**No, there is no evidence that the F.B.I. organized the Jan. 6 Capitol riot.**\
-`The term “unindicted co-conspirators” generally refers to individuals for whom there is insufficient evidence to bring charges or who have cut a deal. “Legally, it wouldn’t make sense to call informants co-conspirators,” said one legal expert.`\
-https://nytimes.com/2021/06/18/technology/misinformation-unindicted-co-conspirators-capitol-riot.html?searchResultPosition=10
+https://nytimes.com/2021/06/18/arts/music/popcast-in-the-heights.html?searchResultPosition=10
 
