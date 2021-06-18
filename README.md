@@ -30,8 +30,8 @@ https://nytimes.com/2021/06/18/us/emory-university-apology-marion-hood.html?sear
 `After months of resisting sending vaccine doses to the Palestinian Authority, Israel on Friday morning said it would deliver a million or more. Hours later, the authority rejected the first shipment.`\
 https://nytimes.com/2021/06/18/world/middleeast/israel-palestine-vaccine-deal.html?searchResultPosition=8
 
-**Eric Adams’s Mantra as Rivals Apply Pressure: ‘Stay Focused and Grind’**\
-`When not assailing Mr. Adams, his Democratic rivals kept their focus on public safety and policing as the mayoral primary entered its final weekend.`\
+**Yang and Garcia Announce Plans to Campaign Together**\
+`Their plan to appear together over the last weekend before the primary, appears aimed at creating a bloc against the presumed front-runner, Eric Adams.`\
 https://nytimes.com/2021/06/18/nyregion/eric-adams-mayor-primary.html?searchResultPosition=9
 
 **The Supreme Court’s Newest Justices Produce Some Unexpected Results**\
