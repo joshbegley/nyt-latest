@@ -1,5 +1,5 @@
 **Targeting Biden, Catholic Bishops Advance Controversial Communion Plan**\
-`The decision was a rebuke of the nation’s second Catholic president and exposed bitter divisions in American Catholicism.`\
+`The decision was aimed at the nation’s second Catholic president and exposed bitter divisions in American Catholicism.`\
 https://nytimes.com/2021/06/18/us/targeting-biden-catholic-bishops-advance-controversial-communion-plan.html?searchResultPosition=1
 
 **The Best of Late Night This Week 🌙**\
