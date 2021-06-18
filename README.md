@@ -20,7 +20,7 @@ https://nytimes.com/2021/06/18/your-money/fake-rental-car-sites.html?searchResul
 
 **Control of New York’s Stages Remains in White Hands, a Study Finds**\
 `The Asian American Performers Action Coalition is hoping for a season of change when theaters reopen.`\
-https://nytimes.com/2021/06/18/theater/new-york-stages-remain-in-white-hands-study-finds.html?searchResultPosition=6
+https://nytimes.com/2021/06/18/theater/aapac-theater-diversity-study.html?searchResultPosition=6
 
 **Talking to Newsom About Tourism**\
 `Friday: A conversation with Gov. Gavin Newsom about the return of visitors to California. Also: Juneteenth.`\
