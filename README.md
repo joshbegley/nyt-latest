@@ -14,7 +14,7 @@ https://nytimes.com/2021/06/18/arts/dance/natalia-osipova-mikhailovsky-feud.html
 `A guide to help parents.`\
 https://nytimes.com/2021/06/18/briefing/kids-covid-and-delta.html?searchResultPosition=4
 
-**Israel is to bolster the Palestinian vaccination drive, trading a million doses.**\
+**Israel will bolster the Palestinian vaccination drive, trading a million doses.**\
 `The announcement follows months of debate about whether the country has a moral or legal responsibility to give spare shots to Palestinians in the West Bank and Gaza Strip.`\
 https://nytimes.com/2021/06/18/world/israel-palestinians-vaccines.html?searchResultPosition=5
 
