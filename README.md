@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/18/arts/television/stephen-colbert-juneteenth.html?searchResultPosition=1
 
 **These Iranians Want a Boycott. The Regime Will Still Win.**\
-`Low turnout would signal a rejection of the election. But not voting gives the regime a near-certain assurance that their candidate is victorious.`\
+`Low turnout would signal a rejection of the election. But not voting gives the regime a near-certain assurance that their candidate will be victorious.`\
 https://nytimes.com/2021/06/18/opinion/activists-iran-election-boycott.html?searchResultPosition=2
 
 **The Maldives Lured Tourists Back. Now It Needs Nurses.**\
