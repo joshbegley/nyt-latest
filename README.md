@@ -8,7 +8,7 @@ https://nytimes.com/2021/06/18/movies/streaming-action-movies.html?searchResultP
 
 **Whose Park Is It? Residents and Revelers Clash Over Washington Square.**\
 `As the pandemic eases, the park has attracted crowds of young people who regard it as a place to let loose. Residents say the scene is out of control.`\
-https://nytimes.com/2021/06/18/nyregion/washington-square-park-rave-pandemic.html?searchResultPosition=3
+https://nytimes.com/2021/06/18/nyregion/washington-square-park-police.html?searchResultPosition=3
 
 **This Show Sets the Direction of Art. Its Past Mirrored a Changing World.**\
 `The trajectory of Documenta, a once-every-five-years exhibition that carries huge weight in the contemporary art world, is highlighted in a new display in Berlin.`\
