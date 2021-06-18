@@ -20,7 +20,7 @@ https://nytimes.com/2021/06/17/us/politics/guantanamo-detainees-transfer.html?se
 
 **Democrats Float $6 Trillion Plan Amid Talks on Narrower Infrastructure Deal**\
 `Democrats are considering moving unilaterally on a sweeping economic package even as bipartisan talks continue on a smaller infrastructure bill.`\
-https://nytimes.com/2021/06/17/us/politics/infrastructure-deal-congress.html?searchResultPosition=6
+https://nytimes.com/2021/06/17/us/politics/democrats-infrastructure-deal-congress.html?searchResultPosition=6
 
 **St. Louis Couple Who Aimed Guns at Protesters Plead Guilty to Misdemeanors**\
 `Mark McCloskey and Patricia McCloskey of Missouri will pay a total of nearly $3,000 in fines and give up the weapons used in the confrontation.`\
