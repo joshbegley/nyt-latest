@@ -1,5 +1,5 @@
 **Farhadian Weinstein a Lightning Rod in Manhattan D.A. Race’s Lone Debate**\
-`Tali Farhadian Weinstein, who, along with Alvin Bragg, appears to be leading the Democratic field, was attacked over her finances and ads.,`\
+`Tali Farhadian Weinstein, who, along with Alvin Bragg, appears to be leading the Democratic field, was attacked over her finances and ads.`\
 https://nytimes.com/2021/06/17/nyregion/farhadian-weinstein-a-lightning-rod-in-manhattan-da-races-lone-debate.html?searchResultPosition=1
 
 **Chinese Astronauts Arrive at Space Station**\
