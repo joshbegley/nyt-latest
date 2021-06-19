@@ -18,7 +18,7 @@ https://nytimes.com/2021/06/19/books/janet-malcolm-appraisal.html?searchResultPo
 `The statue and a reproduction of her French sculptor’s model will stand close to each other, just as some are asking whose freedom she celebrates.`\
 https://nytimes.com/2021/06/19/world/europe/france-statue-liberty-model.html?searchResultPosition=5
 
-**Will Senators Inhofe and Reed Stand Against a Bill to Protect Service Members?**\
+**The Two Men Blocking Military Sexual Assault Reform**\
 `The military justice system is in dire need of an overhaul. Two senators are standing athwart a bipartisan fix.`\
 https://nytimes.com/2021/06/19/opinion/sunday/inhofe-reed-military-sexual-assault-gillibrand.html?searchResultPosition=6
 
