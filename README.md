@@ -12,7 +12,7 @@ https://nytimes.com/2021/06/19/nyregion/yang-garcia-endorsement.html?searchResul
 
 **Pope’s Silence Speaks Volumes on Controversial Communion Vote by U.S. Bishops**\
 `The divergence of the conservative American church from Francis’ agenda is now so obvious as to be unremarkable, even when U.S. bishops ignore a Vatican warning.`\
-https://nytimes.com/2021/06/19/world/europe/vatican-francis-biden-communion.html?searchResultPosition=4
+https://nytimes.com/2021/06/19/world/europe/pope-francis-vatican.html?searchResultPosition=4
 
 **Police Shoot Driver Who Struck Cyclists at Arizona Bike Race**\
 `Six people were seriously injured after a man driving a pickup truck plowed into cyclists at a bike race in Show Low, Ariz., the police said. The driver was then shot and wounded by the police.`\
