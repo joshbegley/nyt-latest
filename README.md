@@ -30,7 +30,7 @@ https://nytimes.com/2021/06/19/opinion/sunday/child-marriage-rape.html?searchRes
 `An ever-changing spit of sand on the Carolina coast is a haven for multitudes of shorebirds. But nature and humans threaten it.`\
 https://nytimes.com/interactive/2021/06/19/opinion/carolina-coast-whimbrel-deveaux.html?searchResultPosition=8
 
-**Biden’s Bet: Iranian Hard-liner May Be Best Path to Restoring Nuclear Deal**\
+**For Biden, Iranian Hard-liner May Be Best Path to Restoring Nuclear Deal**\
 `The next six weeks before a new government takes office in Tehran may be a unique window for clinching an agreement that Iran’s leadership has been delaying.`\
 https://nytimes.com/2021/06/19/world/middleeast/iran-nuclear-deal-Ebrahim-Raisi.html?searchResultPosition=9
 
