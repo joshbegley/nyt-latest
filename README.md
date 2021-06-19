@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/19/sports/baseball/george-mason-university-pitcher-d
 https://nytimes.com/2021/06/19/us/juneteenth-photos.html?searchResultPosition=6
 
 **Yang and Garcia Form Late Alliance in Mayor’s Race, Drawing Adams’s Ire**\
-`Andrew Yang and Kathryn Garcia campaigned together on Saturday in a show of unity that their top rival, Eric Adams, viewed as racially driven politics.`\
+`Andrew Yang and Kathryn Garcia campaigned together on Saturday in a show of unity that their top rival, Eric Adams, sought to portray as racially motivated.`\
 https://nytimes.com/2021/06/19/nyregion/yang-garcia-endorsement.html?searchResultPosition=7
 
 **Pope’s Silence Speaks Volumes on Controversial Communion Vote by U.S. Bishops**\
