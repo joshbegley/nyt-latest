@@ -1,6 +1,6 @@
 **College Baseball Player in Virginia Dies After Joint Surgery**\
 `Sang Ho Baek, 20, “had been battling injuries throughout the season,” a teammate said, and underwent Tommy John surgery, a relatively common procedure for pitchers.`\
-https://nytimes.com/2021/06/19/us/george-mason-university-pitcher-dies-tommy-john-surgery.html?searchResultPosition=1
+https://nytimes.com/2021/06/19/sports/baseball/george-mason-university-pitcher-dies-tommy-john-surgery.html?searchResultPosition=1
 
 **Scenes From Juneteenth: America’s Newest Holiday, 156 Years in the Making**\
 `From Brooklyn to Galveston, there were scenes of joy and reflections on the meaning of the holiday. “We have to celebrate that we survived,” one man said.`\
