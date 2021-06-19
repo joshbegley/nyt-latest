@@ -2,8 +2,8 @@
 `Mr. Adams’s police credentials have helped him rise to the top of this year’s mayoral field. But his relationship with the department is complex.`\
 https://nytimes.com/2021/06/19/nyregion/eric-adams-nyc-police-mayor.html?searchResultPosition=1
 
-**Iranian Hard-Liner, Ebrahim Raisi, Is Headed to Presidency**\
-`Rival candidates conceded the election to Mr. Raisi, Iran’s judiciary chief, a close ally of the supreme leader who has a record of grave human rights violations.`\
+**Iranian Hard-Liner Ebrahim Raisi Looks Set to Win Presidential Vote**\
+`Mr. Raisi, Iran’s judiciary chief, had an overwhelming lead with 90 percent of the votes counted, according to the Iranian news media. Many voters skipped the election, viewing it as rigged.`\
 https://nytimes.com/2021/06/19/world/middleeast/iran-election-president-raisi.html?searchResultPosition=2
 
 **Quotation of the Day: Autocrats Use London Courts to Batter Enemies**\
