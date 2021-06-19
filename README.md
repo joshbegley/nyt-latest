@@ -11,7 +11,7 @@ https://nytimes.com/video/world/asia/100000007824321/united-nations-myanmar-coup
 https://nytimes.com/2021/06/18/nyregion/bronx-shooting-video-children.html?searchResultPosition=3
 
 **For Richard Bland, the 478th Try Was a Charm. Now He’s at the U.S. Open.**\
-`The 48-year-old English golfer, whose first tour victory came last month, is in contention after two rounds of the Open at Torrey Pines.`\
+`The 48-year-old English golfer, whose first tour victory came last month, shared the lead after two rounds of the Open at Torrey Pines.`\
 https://nytimes.com/2021/06/18/sports/golf/us-open-second-round-richard-bland.html?searchResultPosition=4
 
 **Eyeing One Big Economic Bill, Democrats Face Myriad Challenges**\
