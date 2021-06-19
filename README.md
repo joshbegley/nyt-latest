@@ -1,5 +1,5 @@
 **For Richard Bland, the 478th Try Was a Charm. Now He’s at the U.S. Open.**\
-`Playing in his first U.S. Open, and with no PGA Tour wins to his name, the 48-year-old English golfer is in contention after two rounds.`\
+`With no PGA Tour wins to his name, the 48-year-old English golfer is in contention after two rounds.`\
 https://nytimes.com/2021/06/18/sports/golf/us-open-second-round-richard-bland.html?searchResultPosition=1
 
 **Eyeing One Big Economic Bill, Democrats Face Myriad Challenges**\
