@@ -31,7 +31,7 @@ https://nytimes.com/2021/06/19/nyregion/yang-garcia-endorsement.html?searchResul
 https://nytimes.com/2021/06/19/world/europe/pope-francis-vatican.html?searchResultPosition=8
 
 **Police Shoot Driver Who Struck Cyclists at Arizona Bike Race**\
-`Six people were seriously injured after a man driving a pickup truck plowed into cyclists at a bike race in Show Low, Ariz., the police said. The driver was then shot and wounded by the police.`\
+`Six people were seriously injured when a man driving a pickup truck plowed into cyclists at a bike race in Show Low, Ariz., the police said. The driver was then shot and wounded by the police.`\
 https://nytimes.com/2021/06/19/us/show-low-bike-race-crash-shooting-arizona.html?searchResultPosition=9
 
 **Edward Diener, Psychologist Known as Dr. Happiness, Dies at 74**\
