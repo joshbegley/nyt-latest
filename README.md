@@ -31,7 +31,7 @@ https://nytimes.com/2021/06/19/nyregion/nyc-comptroller-race.html?searchResultPo
 https://nytimes.com/2021/06/19/us/politics/georgia-republicans-trump-election-power.html?searchResultPosition=8
 
 **A Dad and an Audience of One**\
-`I had to share my father with millions of readers, but they never got hear the back stories over a Wendy’s hamburger coming home from Shea Stadium in the middle of the night.`\
+`I had to share my father with millions of readers, but they never got to hear the back stories over a Wendy’s hamburger coming home from Shea Stadium in the middle of the night.`\
 https://nytimes.com/2021/06/19/insider/george-vecsey-fathers-day.html?searchResultPosition=9
 
 **Your Guide to Voting in New York’s Mayoral Primary**\
