@@ -1,5 +1,5 @@
 **Champ, the Bidens’ German Shepherd, Dies at 13**\
-`President Biden said Champ was the family’s constant cherished companion.`\
+`Champ, who was the family’s cherished companion, “died peacefully at home,” President Biden and the first lady said.`\
 https://nytimes.com/2021/06/19/us/politics/champ-biden-dog-dies.html?searchResultPosition=1
 
 **Frances Stein, a Fashion Force at Several Companies, Dies at 83**\
