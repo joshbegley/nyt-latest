@@ -1,5 +1,5 @@
 **Ryan Lochte Fails to Make U.S. Olympic Swim Team**\
-`At age 36, Lochte tried to make the team for the fifth time, five years after his turn at the 2016 Games was marred by an altercation at a Rio de Janeiro gas station.`\
+`At age 36, Lochte tried to make the team for the fifth time, five years after his turn at the 2016 Games was marred by his false claim about being robbed at gunpoint.`\
 https://nytimes.com/2021/06/19/sports/olympics/ryan-lochte-olympics-tokyo.html?searchResultPosition=1
 
 **An Old Yankees Draft Pick Comes Back to Haunt Them**\
