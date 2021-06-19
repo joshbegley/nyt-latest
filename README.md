@@ -14,7 +14,7 @@ https://nytimes.com/2021/06/19/us/juneteenth-photos.html?searchResultPosition=3
 `Andrew Yang and Kathryn Garcia campaigned together on Saturday in a show of unity that their top rival, Eric Adams, viewed as racially driven politics.`\
 https://nytimes.com/2021/06/19/nyregion/yang-garcia-endorsement.html?searchResultPosition=4
 
-**90Pope’s Silence Speaks Volumes on Controversial Communion Vote by U.S. Bishops**\
+**Pope’s Silence Speaks Volumes on Controversial Communion Vote by U.S. Bishops**\
 `The divergence of the conservative American church from Francis’ agenda is now so obvious as to be unremarkable, even when U.S. bishops ignore a Vatican warning.`\
 https://nytimes.com/2021/06/19/world/europe/pope-francis-vatican.html?searchResultPosition=5
 
