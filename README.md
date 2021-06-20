@@ -18,7 +18,7 @@ https://nytimes.com/2021/06/20/us/alabama-van-crash-fire-victims.html?searchResu
 `Mr. Adams did not seem particularly pleased and suggested it was an attempt by the former mayor to sabotage the campaign of a sometimes former critic.`\
 https://nytimes.com/2021/06/20/nyregion/giuliani-eric-adams-endorsement.html?searchResultPosition=5
 
-**After 35-Day Manhunt for Missing Far-Right Soldier, Body Is Found in Belgium**\
+**After 35-Day Manhunt for Far-Right Soldier, Body Is Found in Belgium**\
 `Jürgen Conings, 46, disappeared after threatening the government and virologists responsible for the country’s pandemic response.`\
 https://nytimes.com/2021/06/20/world/europe/belgium-far-right-soldier.html?searchResultPosition=6
 
