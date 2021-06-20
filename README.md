@@ -8,7 +8,7 @@ https://nytimes.com/2021/06/20/nyregion/adams-yang-race-garcia.html?searchResult
 
 **Scorching Hot in Phoenix: What it’s Like to Work in 115 Degrees**\
 `Phoenix is facing a double heat and housing crisis that is falling hardest on people who have to suffer the sun.`\
-https://nytimes.com/2021/06/20/us/scorching-hot-in-phoenix-what-its-like-to-work-in-115-degrees.html?searchResultPosition=3
+https://nytimes.com/2021/06/20/us/100-degree-weather.html?searchResultPosition=3
 
 **Liz Cheney’s Unlikely Journey From G.O.P. Royalty to Republican Outcast**\
 `Dick Cheney always saw doomsday threats from America’s enemies. His daughter is in a lonely battle against what both see as a danger to American democracy: Donald J. Trump.`\
