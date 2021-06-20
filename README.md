@@ -12,7 +12,7 @@ https://nytimes.com/2021/06/20/nyregion/adams-early-election-results.html?search
 
 **Bipartisan Infrastructure Talks Collide With Democrats’ Goal to Tax the Rich**\
 `Many Democrats see the push for an infrastructure package as an opportunity to raise taxes on rich individuals and corporations. But resistance is coming from multiple directions.`\
-https://nytimes.com/2021/06/20/us/politics/taxes-infrastructure.html?searchResultPosition=4
+https://nytimes.com/2021/06/20/us/politics/infrastructure-bill-taxes-rich.html?searchResultPosition=4
 
 **Taliban Enter Key Cities in Afghanistan’s North After Swift Offensive**\
 `The setbacks come at a harrowing moment for Afghanistan, just as American and international troops are set to leave the country in coming weeks.`\
