@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/20/podcasts/the-daily/cuba-mexico-fatherhood-sunday-
 https://nytimes.com/2021/06/20/sports/soccer/france-canal-plus-euro-2020.html?searchResultPosition=6
 
 **John Bercow, Central Figure in Brexit Drama as U.K. Speaker, Switches to Labour**\
-`Mr. Bercow was a lawmaker with the governing Conservatives before being elected Speaker, a role in which he irked the governments of both Theresa May and Boris Johnson.`\
+`Mr. Bercow was a lawmaker with the governing Conservatives before being elected speaker, a role in which he irked the governments of both Theresa May and Boris Johnson.`\
 https://nytimes.com/2021/06/20/world/europe/john-bercow-uk-labour.html?searchResultPosition=7
 
 **The Week in Business: Here Come the Trustbusters**\
