@@ -1,4 +1,4 @@
-**As France Raises the Bar, Its League Faces a $400 Million Hole**\
+**As France Raises Bar, Its League Faces a $400 Million Hole**\
 `French soccer teams could face economic disaster after a television partner said it would refuse to honor its contract. Transfers, salaries and budgets hang in the balance.`\
 https://nytimes.com/2021/06/20/sports/soccer/france-canal-plus-euro-2020.html?searchResultPosition=1
 
