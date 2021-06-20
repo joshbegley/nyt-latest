@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/20/opinion/republicans-democrats-manchin-filibuster.html?searchResultPosition=1
 
 **Yankees Turn Their Third Triple Play of the Season**\
-`Two days after turning a first-of-its-kind triple play, the team went around the horn in the ninth inning to finish a win against Oakland.`\
+`Three days after turning a first-of-its-kind triple play, the team went around the horn in the ninth inning to finish a win against Oakland.`\
 https://nytimes.com/2021/06/20/sports/baseball/yankees-triple-play.html?searchResultPosition=2
 
 **‘We’re Not Back to Normal,’ but New Yorkers Savor Reopening Weekend**\
