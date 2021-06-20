@@ -36,5 +36,5 @@ https://nytimes.com/2021/06/20/business/economy/new-york-city-economy-coronaviru
 
 **Soviets Once Denied a Deadly Anthrax Lab Leak. U.S. Scientists Backed the Story.**\
 `The accident and a subsequent cover-up have renewed relevance as scientists search for the origins of Covid-19.`\
-https://nytimes.com/2021/06/20/world/europe/anthrax-lab-leak-soviet-covid.html?searchResultPosition=10
+https://nytimes.com/2021/06/20/world/europe/coronavirus-lab-anthrax.html?searchResultPosition=10
 
