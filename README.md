@@ -20,7 +20,7 @@ https://nytimes.com/2021/06/20/us/eastland-covid-lgbtq-flag-homeowners-associati
 
 **The Making of Team U.S.A. Track and Field**\
 `The stakes couldn’t be higher for participating athletes. Finishing in the top three — provided you have hit the time standard — means you’re headed to Tokyo. One misstep or miscalculation and you’re out.`\
-https://nytimes.com/2021/06/20/sports/usa-track-field-olympics-trials-athletes.html?searchResultPosition=6
+https://nytimes.com/2021/06/20/sports/olympics/usa-track-field-shaCarri-richardson.html?searchResultPosition=6
 
 **9 Children and 1 Adult Are Killed in Alabama Crash**\
 `A sheriff said the crash was the worst he’s responded to in more than 30 years in law enforcement.`\
