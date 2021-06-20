@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/20/dining/what-to-cook-this-week.html?searchResultPo
 https://nytimes.com/2021/06/20/opinion/rich-musk-gates-bezos-comics.html?searchResultPosition=2
 
 **Man’s Long-Delayed Quest for Degree Leads to Joint Graduation With Son**\
-`A man just a few credits from graduating college nearly 30 years ago shared the commencement stage with his son last week.`\
+`A man who was just a few credits from graduating from college nearly 30 years ago shared the commencement stage with his son last week.`\
 https://nytimes.com/2021/06/20/nyregion/union-college-father-son-graduation.html?searchResultPosition=3
 
 **‘Here We Are, Again’: The Giants Stick to a Formula That Works**\
