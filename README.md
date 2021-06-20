@@ -1,5 +1,5 @@
 **Some Catholic Leaders Deserve to Have Biden’s Ear, and Some Do Not**\
-`The efforts by conservative bishops to arbitrate who receives communion reinforces why the American bishops so often stand alone.`\
+`The efforts by conservative bishops to arbitrate who receives communion reinforce why the American bishops so often stand alone.`\
 https://nytimes.com/2021/06/19/opinion/bishops-biden-communion.html?searchResultPosition=2
 
 **Rising From Pandemic, New York Seeks a New Mayor to Face Looming Crises**\
