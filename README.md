@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/21/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=1
 
 **Denmark Advances at Euro 2020, Winning Where Eriksen Fell**\
-`A 4-1 victory over Russia sent Denmark to the knockout stages, a stunning turn in a tournament that began with the collapse of their star, Christian Eriksen.`\
+`A 4-1 victory over Russia sent Denmark to the knockout stages, a stunning turn in a tournament that began with the collapse of its star, Christian Eriksen.`\
 https://nytimes.com/2021/06/21/sports/soccer/denmark-russia-christian-eriksen.html?searchResultPosition=2
 
 **More Than ‘Just Takeout’**\
