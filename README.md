@@ -1,5 +1,5 @@
 **More Than ‘Just Takeout’**\
-`A new generation of Chinese American chefs are celebrating the inventiveness, resourcefulness and deliciousness of American Chinese food with menus dedicated to the classics.`\
+`A new generation of Chinese American chefs is celebrating the inventiveness, resourcefulness and deliciousness of American Chinese food with menus dedicated to the classics.`\
 https://nytimes.com/2021/06/21/dining/american-chinese-food.html?searchResultPosition=1
 
 **Medicaid enrollment jumped during the pandemic, a new report says.**\
