@@ -26,7 +26,7 @@ https://nytimes.com/2021/06/20/business/media/tucker-carlson.html?searchResultPo
 `The secretary of veterans affairs announced the shift in care at a Pride event over the weekend, but the process for changing benefits could take years.`\
 https://nytimes.com/2021/06/20/us/politics/veterans-transgender-surgery.html?searchResultPosition=7
 
-**Who is already on Team U.S.A.?**\
+**Who has qualified for Team U.S.A.?**\
 `By Kevin Draper`\
 https://nytimes.com/2021/06/20/sports/team-usa-athletes-track.html?searchResultPosition=8
 
