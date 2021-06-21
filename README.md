@@ -1,4 +1,4 @@
-**Raiders Carl Nassib Announces He’s Gay, an N.F.L. First**\
+**Raiders’ Carl Nassib Announces He’s Gay, an N.F.L. First**\
 `The Raiders defensive lineman came out in a statement posted to his Instagram account on Monday, becoming the first active player in the league to publicly identify as gay.`\
 https://nytimes.com/2021/06/21/sports/football/carl-nassib-gay-nfl.html?searchResultPosition=1
 
