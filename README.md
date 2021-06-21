@@ -10,9 +10,9 @@ https://nytimes.com/2021/06/20/business/media/tucker-carlson.html?searchResultPo
 `The secretary of veterans affairs announced the shift in care at a Pride event over the weekend, but the process for changing benefits could take years.`\
 https://nytimes.com/2021/06/20/us/politics/veterans-transgender-surgery.html?searchResultPosition=3
 
-**Jon Rahm Wins the U.S. Open, His First Major Championship**\
-`In his first tournament back after testing positive for the coronavirus, the Spaniard, 26, birded the final two holes to overtake Louis Oosthuizen and finish at six under par.`\
-https://nytimes.com/2021/06/20/sports/golf/us-open-final-round-jon-rahm-louis-oosthuizen.html?searchResultPosition=4
+**Jon Rahm, With Drama on His Side at Last, Wins the U.S. Open**\
+`In his first tournament back after testing positive for the coronavirus, the Spaniard, 26, birded the final two holes to overtake Louis Oosthuizen and claim his first major title.`\
+https://nytimes.com/2021/06/20/sports/golf/us-open-jon-rahm-wins.html?searchResultPosition=4
 
 **5 Takeaways from the final Sunday of campaigning in N.Y.C.**\
 `The leading Democratic candidates for mayor braved broiling heat as they visited churches, parks and barbecues in a last push before Tuesday’s primary.`\
