@@ -34,7 +34,7 @@ https://nytimes.com/2021/06/21/nyregion/nyc-mayor-primary.html?searchResultPosit
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2021/06/21/briefing/california-ncaa-inflation.html?searchResultPosition=9
 
-**Raiders’ Carl Nassib Announces He’s Gay, an N.F.L. First**\
+**Raiders Carl Nassib Announces He’s Gay, an N.F.L. First**\
 `The Raiders defensive lineman came out in a statement posted to his Instagram account on Monday, becoming the first active player in the league to publicly identify as gay.`\
 https://nytimes.com/2021/06/21/sports/football/carl-nassib-gay-nfl.html?searchResultPosition=10
 
