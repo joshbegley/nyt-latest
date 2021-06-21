@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/21/business/shenzhen-port-delays.html?searchResultPo
 https://nytimes.com/2021/06/21/science/landmines-glowing-bacteria.html?searchResultPosition=2
 
 **Iran’s Incoming President Vows Tough Line on Missiles and Militias**\
-`Ebrahim Raisi, Iran’s ultraconservative president-elect, said he would not meet with President Biden and that Tehran’s position on its ballistic missile program was “nonnegotiable.”`\
+`Ebrahim Raisi, Iran’s ultraconservative president-elect, said that he would not meet with President Biden, and that Tehran’s position on its ballistic missile program was “nonnegotiable.”`\
 https://nytimes.com/2021/06/21/world/middleeast/iran-raisi-biden-ballistic-missile.html?searchResultPosition=3
 
 **Fight Over a Gentle Stream Distills Israel’s Political Divide**\
