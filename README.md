@@ -1,6 +1,6 @@
 **‘Just Epic’: Foo Fighters Bring Arena Rock Back, to the Vaccinated**\
 `Over the weekend, Foo Fighters played Madison Square Garden, the first full-capacity concert in a New York arena since March of 2020.`\
-https://nytimes.com/2021/06/21/arts/foo-fighters-madison-square-garden.html?searchResultPosition=1
+https://nytimes.com/2021/06/21/arts/music/foo-fighters-madison-square-garden.html?searchResultPosition=1
 
 **Robert Quackenbush, Creator of Animal Detective Stories, Dies at 91**\
 `His many characters included Detective Mole, Sherlock Chick and Miss Mallard, a crime-solving duck who got her own television series.`\
