@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/21/dining/how-to-grill-oysters.html?searchResultPosition=1
 
 **Yang makes a final lap of the city, undeterred by a van with broken A.C.**\
-`By Michael Gold`\
+`Andrew Yang and his campaign vehicle dubbed the Yangatron are leaving no borough unvisited today in his search for votes.`\
 https://nytimes.com/2021/06/21/nyregion/yang-van-campaign.html?searchResultPosition=2
 
 **Populist Leaders in Eastern Europe Run Into a Little Problem: Unpopularity**\
