@@ -1,40 +1,40 @@
+**A Rare Look Inside a Hedge Fund Mogul’s Tax Returns**\
+`The multimillionaire Boaz Weinstein disclosed why he paid no or little taxes for several years.`\
+https://nytimes.com/2021/06/21/business/dealbook/boaz-weinstein-taxes.html?searchResultPosition=1
+
 **Belarus Faces Expanded E.U. Sanctions, Targeting Economy**\
 `In a new effort to punish the Lukashenko government for repression, European foreign ministers were expected to focus on industries crucial to the country, including potash and finance.`\
-https://nytimes.com/2021/06/21/world/europe/eu-belarus-sanctions.html?searchResultPosition=1
+https://nytimes.com/2021/06/21/world/europe/eu-belarus-sanctions.html?searchResultPosition=2
 
 **U.S. Swim Team Will Take 11 Teenagers to Tokyo Olympics**\
 `The roster reflected a generational shift as the U.S. adjusted to life after Michael Phelps.`\
-https://nytimes.com/2021/06/21/sports/olympics/swimming-manuel-dressel-ledecky.html?searchResultPosition=2
+https://nytimes.com/2021/06/21/sports/olympics/swimming-manuel-dressel-ledecky.html?searchResultPosition=3
 
 **The Future of New York City**\
 `We have a primer for tomorrow’s mayoral primaries.`\
-https://nytimes.com/2021/06/21/briefing/new-york-city-mayoral-primary-ranked-choice.html?searchResultPosition=3
+https://nytimes.com/2021/06/21/briefing/new-york-city-mayoral-primary-ranked-choice.html?searchResultPosition=4
 
 **A Crucial Voting Rights Decision**\
 `Is the Supreme Court willing to step in and settle the fight over restrictive voter laws?`\
-https://nytimes.com/2021/06/21/podcasts/the-daily/supreme-court-voting-rights-act.html?searchResultPosition=4
+https://nytimes.com/2021/06/21/podcasts/the-daily/supreme-court-voting-rights-act.html?searchResultPosition=5
 
 **Scenes From the Final Day of Early Voting**\
 `The candidates make their last pitches, with Andrew Yang and Kathryn Garcia appearing together and Eric Adams denouncing gun violence.`\
-https://nytimes.com/2021/06/21/nyregion/scenes-from-the-final-day-of-early-voting.html?searchResultPosition=5
+https://nytimes.com/2021/06/21/nyregion/scenes-from-the-final-day-of-early-voting.html?searchResultPosition=6
 
 **The Tokyo Olympics will allow spectators who live in Japan, but with restrictions.**\
 `The decision indicates a growing certainty that the Games will go ahead, despite months of concern that they could become a superspreader event.`\
-https://nytimes.com/2021/06/21/world/tokyo-olympics-spectators.html?searchResultPosition=6
+https://nytimes.com/2021/06/21/world/tokyo-olympics-spectators.html?searchResultPosition=7
 
 **Grocery-to-Table Is a Challenge for Restaurants in the Pandemic**\
 `Looking for new ways to get their food to customers, chefs are reinventing their dishes as retail offerings — and it can be tricky.`\
-https://nytimes.com/2021/06/21/dining/levain-bakery-little-sesame-grocery-store-products.html?searchResultPosition=7
+https://nytimes.com/2021/06/21/dining/levain-bakery-little-sesame-grocery-store-products.html?searchResultPosition=8
 
 **Google’s Hidden Monopoly**\
 `The absence of stringent regulation has allowed the search giant to dominate the powerful market for online advertising. Here's how to fix it.  `\
-https://nytimes.com/2021/06/21/opinion/google-monopoly-regulation-antitrust.html?searchResultPosition=8
+https://nytimes.com/2021/06/21/opinion/google-monopoly-regulation-antitrust.html?searchResultPosition=9
 
 **I’ve Recovered From Long Covid. I’m One of the Lucky Ones.**\
 `Much of the country is moving past the pandemic. But many people still can’t, and I know exactly how that feels.`\
-https://nytimes.com/2021/06/21/insider/long-covid-reporter.html?searchResultPosition=9
-
-**George Clooney’s Next Project: A Public High School in Los Angeles**\
-`The actor and other stars will start a school to train teenagers for jobs in Hollywood, the latest in a series of entertainment industry donations to city schools.`\
-https://nytimes.com/2021/06/21/education/lausd-hollywood-school-money.html?searchResultPosition=10
+https://nytimes.com/2021/06/21/insider/long-covid-reporter.html?searchResultPosition=10
 
