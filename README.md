@@ -11,7 +11,7 @@ https://nytimes.com/2021/06/20/business/media/tucker-carlson.html?searchResultPo
 https://nytimes.com/2021/06/20/us/politics/veterans-transgender-surgery.html?searchResultPosition=3
 
 **Jon Rahm Wins the U.S. Open, His First Major Championship**\
-`In his first tournament back after testing positive for the coronavirus, the Spaniard, 26, birded the final two holes to overtake Louis Oosthuizen, finishing at six under par.`\
+`In his first tournament back after testing positive for the coronavirus, the Spaniard, 26, birded the final two holes to overtake Louis Oosthuizen and finish at six under par.`\
 https://nytimes.com/2021/06/20/sports/golf/us-open-final-round-jon-rahm-louis-oosthuizen.html?searchResultPosition=4
 
 **5 Takeaways from the final Sunday of campaigning in N.Y.C.**\
