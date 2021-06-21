@@ -1,40 +1,40 @@
-**From Nobel Hero to Driver of War, Ethiopia’s Leader Faces Voters**\
-`Prime Minister Abiy Ahmed plunged Ethiopia into a war in the Tigray region that spawned atrocities and famine. On Monday, his country goes to the polls.`\
-https://nytimes.com/2021/06/21/world/africa/Ethiopia-election-Abiy-Ahmed.html?searchResultPosition=1
+**The Tokyo Olympics will allow spectators who live in Japan, but with restrictions.**\
+`The decision indicates a growing certainty that the Games will go ahead, despite months of concern that they could become a superspreader event.`\
+https://nytimes.com/2021/06/21/world/tokyo-olympics-spectators.html?searchResultPosition=1
 
-**As Lumber Prices Fall, the Threat of Inflation Loses Its Bite**\
-`Costs soared partly because of do-it-yourselfers spending stimulus checks, but a month of declines show that consumers aren’t about to trigger runaway increases.`\
-https://nytimes.com/2021/06/21/business/lumber-price.html?searchResultPosition=2
+**Grocery-to-Table Is a Challenge for Restaurants in the Pandemic**\
+`Looking for new ways to get their food to customers, chefs are reinventing their dishes as retail offerings — and it can be tricky.`\
+https://nytimes.com/2021/06/21/dining/levain-bakery-little-sesame-grocery-store-products.html?searchResultPosition=2
 
-**Whom Do the Billionaires Want for Mayor? Follow Their Money.**\
-`Ultrawealthy donors have given $16 million to super PACs dedicated to the New York City mayor’s race. Half of that money has gone to three moderate candidates.`\
-https://nytimes.com/2021/06/21/nyregion/mayor-super-pacs-money.html?searchResultPosition=3
+**Google’s Hidden Monopoly**\
+`The absence of stringent regulation has allowed the search giant to dominate the powerful market for online advertising. Here's how to fix it.  `\
+https://nytimes.com/2021/06/21/opinion/google-monopoly-regulation-antitrust.html?searchResultPosition=3
 
-**What’s on TV This Week: ‘Two Gods’ and ‘Conan’**\
-`PBS airs a documentary about a New Jersey coffin maker and his mentees. And the final episode of “Conan” airs on TBS.`\
-https://nytimes.com/2021/06/21/arts/television/whats-on-tv-this-week-two-gods-and-conan.html?searchResultPosition=4
+**I’ve Recovered From Long Covid. I’m One of the Lucky Ones.**\
+`Much of the country is moving past the pandemic. But many people still can’t, and I know exactly how that feels.`\
+https://nytimes.com/2021/06/21/insider/long-covid-reporter.html?searchResultPosition=4
 
-**He Promised Peace. Then He Tore His Country Apart.**\
-`Prime Minister Abiy Ahmed is preparing to govern an Ethiopia neither respected nor whole.`\
-https://nytimes.com/2021/06/21/opinion/ethiopia-election-tigray-abiy.html?searchResultPosition=5
+**George Clooney’s Next Project: A Public High School in Los Angeles**\
+`The actor and other stars will start a school to train teenagers for jobs in Hollywood, the latest in a series of entertainment industry donations to city schools.`\
+https://nytimes.com/2021/06/21/education/lausd-hollywood-school-money-.html?searchResultPosition=5
 
-**It’s Novak Djokovic’s Wimbledon. Don’t Roll Your Eyes.**\
-`The fiery star’s march toward history could force his detractors into an uncomfortable position: giving him his due.`\
-https://nytimes.com/2021/06/21/sports/tennis/novak-djokovic-wimbledon-grand-slam.html?searchResultPosition=6
+**For the Butterflies — and the Rest of Us**\
+`Stop using pesticides, in your butterfly garden and everywhere else.`\
+https://nytimes.com/2021/06/21/opinion/butterflies-bees-pollination.html?searchResultPosition=6
 
-**Summer Solstice Brings a Day of the Sun Working Overtime**\
-`For those in the Northern Hemisphere, the astronomical beginning of summer brought more hours of daylight than during any other day of the year.`\
-https://nytimes.com/2021/06/20/us/summer-solstice-longest-day.html?searchResultPosition=7
+**Joe Biden Is as Puzzled by the Senate as You Are**\
+`And he was a senator for 36 years. `\
+https://nytimes.com/2021/06/21/opinion/biden-senate-communion.html?searchResultPosition=7
 
-**Karl Wirsum, Dynamic and Eclectic Chicago Artist, Dies at 81**\
-`A member of the small but influential group known as the Hairy Who, he built his art on a highly original synthesis of multiple sources.`\
-https://nytimes.com/2021/06/20/arts/karl-wirsum-dead.html?searchResultPosition=8
+**The Debate Over Policing Is About to Get Some Real Answers**\
+`In Tuesday's primary for mayor of New York City, Democrats have a choice between two distinctly different paths on policing, crime and civil rights.`\
+https://nytimes.com/2021/06/21/opinion/nyc-mayor-eric-adams-maya-wiley-police.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`Regional elections in France.`\
-https://nytimes.com/2021/06/20/briefing/france-elections-coronavirus-biden-communion.html?searchResultPosition=9
+**Getting Married and Leaving a Roommate Behind**\
+`A Brooklyn couple find their own home, but saying goodbye to their roommate is ‘bittersweet.’`\
+https://nytimes.com/2021/06/21/realestate/getting-married-and-leaving-a-roommate-behind.html?searchResultPosition=9
 
-**No Corrections: June 21, 2021**\
-`No corrections appeared in print on Monday, June 21, 2021.`\
-https://nytimes.com/2021/06/20/pageoneplus/no-corrections-june-21-2021.html?searchResultPosition=10
+**The Pandemic Stimulus Was Front-Loaded. That Could Mean a Bumpy Year.**\
+`When government support fades away, there’s a risk that the affluent will sit on their cash rather than spend it.`\
+https://nytimes.com/2021/06/21/upshot/pandemic-economy-stimulus.html?searchResultPosition=10
 
