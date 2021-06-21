@@ -26,15 +26,15 @@ https://nytimes.com/2021/06/21/us/supreme-court-ncaa-student-athletes.html?searc
 `Critics called the piece, which shows thousands of unsuspecting college students, a misogynistic affront, eight years after it was on display in a different museum to little reaction.`\
 https://nytimes.com/2021/06/21/world/asia/china-artwork-ranking-women.html?searchResultPosition=7
 
+**Five highlights from the final weekend of campaigning.**\
+`By Alexandra Petri`\
+https://nytimes.com/2021/06/21/nyregion/five-highlights-from-the-final-weekend-of-campaigning.html?searchResultPosition=8
+
 **This Season’s Wedding Crashers: Cicadas**\
 `The insects, which surface every 17 years, have invaded outdoor weddings in several states and the District of Columbia. They’re expected to be gone by early July.`\
-https://nytimes.com/2021/06/21/style/this-seasons-wedding-crashers-cicadas.html?searchResultPosition=8
+https://nytimes.com/2021/06/21/style/this-seasons-wedding-crashers-cicadas.html?searchResultPosition=9
 
 **Armenia’s Governing Party Wins Election Seen as Vote on Peace Deal**\
 `The party of Prime Minister Nikol Pashinyan won a snap parliamentary election in which rivals had talked of renegotiating his unpopular settlement with Azerbaijan.`\
-https://nytimes.com/2021/06/21/world/europe/armenia-election-peace-deal-nagorno-karabakh.html?searchResultPosition=9
-
-**$2.2 Million Homes in California**\
-`A Spanish-style house in Altadena, a two-bedroom loft in San Francisco and a contemporary home in Fairfax.`\
-https://nytimes.com/2021/06/21/realestate/2-million-dollar-homes-in-california.html?searchResultPosition=10
+https://nytimes.com/2021/06/21/world/europe/armenia-election-peace-deal-nagorno-karabakh.html?searchResultPosition=10
 
