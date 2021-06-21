@@ -20,7 +20,7 @@ https://nytimes.com/2021/06/21/insider/long-covid-reporter.html?searchResultPosi
 
 **George Clooney’s Next Project: A Public High School in Los Angeles**\
 `The actor and other stars will start a school to train teenagers for jobs in Hollywood, the latest in a series of entertainment industry donations to city schools.`\
-https://nytimes.com/2021/06/21/education/lausd-hollywood-school-money-.html?searchResultPosition=6
+https://nytimes.com/2021/06/21/education/lausd-hollywood-school-money.html?searchResultPosition=6
 
 **For the Butterflies — and the Rest of Us**\
 `Stop using pesticides, in your butterfly garden and everywhere else.`\
