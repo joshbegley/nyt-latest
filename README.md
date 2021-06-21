@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/20/todayspaper/quotation-of-the-day-theres-so-much-e
 https://nytimes.com/2021/06/20/sports/baseball/mets-nationals.html?searchResultPosition=4
 
 **Allyson Felix qualifies for her fifth Olympic Games.**\
-`Allyson Felix will take aim at becoming the second most decorated track and field athlete in Olympic history.`\
+`Allyson Felix will take aim at becoming the most decorated track and field athlete in Olympic history.`\
 https://nytimes.com/2021/06/20/sports/allyson-felix-olympics-qualifies.html?searchResultPosition=5
 
 **Here is how to watch the U.S. track and field trials.**\
