@@ -8,7 +8,7 @@ https://nytimes.com/2021/06/21/nyregion/manhattan-da-candidates.html?searchResul
 
 **Do You Have a Love Story About Being Separated by National Borders?**\
 `The Modern Love podcast wants to hear from you.`\
-https://nytimes.com/2021/06/21/style/modern-love-separated-by-national-borders-callout.html?searchResultPosition=3
+https://nytimes.com/2021/06/21/style/modern-love-separated-national-borders-relationships.html?searchResultPosition=3
 
 **When It Comes to Big City Elections, Republicans Are in the Wilderness**\
 `The party’s growing irrelevance in urban and suburban areas comes at a considerable cost, sidelining conservatives in centers of innovation and economic might.`\
