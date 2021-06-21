@@ -1,5 +1,5 @@
 **Scenes From the Final Day of Early Voting**\
-`The candidates make their final pitch, with Andrew Yang and Kathryn Garcia appearing together and Eric Adams denouncing gun violence.`\
+`The candidates make their last pitches, with Andrew Yang and Kathryn Garcia appearing together and Eric Adams denouncing gun violence.`\
 https://nytimes.com/2021/06/21/nyregion/scenes-from-the-final-day-of-early-voting.html?searchResultPosition=1
 
 **The Tokyo Olympics will allow spectators who live in Japan, but with restrictions.**\
