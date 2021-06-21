@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/21/world/africa/Ethiopia-election-Abiy-Ahmed.html?se
 `Costs soared partly because of do-it-yourselfers spending stimulus checks, but a month of declines show that consumers aren’t about to trigger runaway increases.`\
 https://nytimes.com/2021/06/21/business/lumber-price.html?searchResultPosition=2
 
-**Who Do the Billionaires Want for Mayor? Follow Their Money.**\
+**Whom Do the Billionaires Want for Mayor? Follow Their Money.**\
 `Ultrawealthy donors have given $16 million to super PACs dedicated to the New York City mayor’s race. Half of that money has gone to three moderate candidates.`\
 https://nytimes.com/2021/06/21/nyregion/mayor-super-pacs-money.html?searchResultPosition=3
 
