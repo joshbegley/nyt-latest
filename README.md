@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/22/books/review/the-true-story-of-a-mouse-who-never-
 https://nytimes.com/2021/06/22/world/asia/pakistan-inline-skating-police.html?searchResultPosition=4
 
 **Appeals Court Blocks Ruling That Overturned California’s Assault Weapons Ban**\
-`The state’s attorney general, Rob Bonta, said the decision of a U.S. Circuit Court panel would leave the three-decade-old ban in place while litigation continues.`\
+`The decision by a three-judge panel of the U.S. Court of Appeals for the Ninth Circuit leaves the three-decade-old ban in place while litigation continues.`\
 https://nytimes.com/2021/06/22/us/assault-weapons-ban-california.html?searchResultPosition=5
 
 **‘Glove, Hat and Belt’: M.L.B. Begins a New Era of Enforcement**\
