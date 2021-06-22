@@ -14,8 +14,8 @@ https://nytimes.com/2021/06/22/theater/music-man-producer-rudin-horton.html?sear
 `Abel Ferrara’s latest psychodrama sends an ever-intense Willem Dafoe into the Arctic wilderness on a visionary reckoning with his memories and sense of self.`\
 https://nytimes.com/2021/06/22/movies/siberia-review.html?searchResultPosition=4
 
-**Spain Expected to Pardon Jailed Catalan Separatist Leaders**\
-`A major step toward defusing tensions in a conflict that has long divided Spain has prompted mixed reactions from an independence movement.`\
+**Spain Pardons Jailed Catalan Separatist Leaders**\
+`A major step toward defusing tensions in a conflict that has long divided Spain prompted mixed reactions from an independence movement.`\
 https://nytimes.com/2021/06/22/world/europe/spain-catalan-pardon.html?searchResultPosition=5
 
 **Google’s internet advertising dominance draws a fresh E.U. antitrust inquiry.**\
