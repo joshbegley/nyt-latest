@@ -1,40 +1,40 @@
-**U.N. Says Great Barrier Reef Is ‘in Danger.’ Australia Bitterly Disagrees.**\
-`UNESCO has called on the government to quickly mitigate the effects of climate change on the natural wonder and tourist destination, but officials say they are already doing plenty.`\
-https://nytimes.com/2021/06/22/world/australia/unesco-great-barrier-reef-danger.html?searchResultPosition=1
+**With eight million shots in a day, India tries to energize its vaccination effort.**\
+`The total, the most administered in 24 hours in any country apart from China, comes as a second Covid wave recedes.`\
+https://nytimes.com/2021/06/22/world/india-covid-vaccination.html?searchResultPosition=1
 
-**Attacked and Vulnerable, Some Afghans Are Forming Their Own Armies**\
-`With U.S. troops leaving, the Taliban advancing, and a steady collapse of security force bases and outposts, the Hazara and other ethnic groups in Afghanistan are raising militias.`\
-https://nytimes.com/2021/06/22/world/asia/vulnerable-afghans-forming-militias.html?searchResultPosition=2
+**An Earthquake in Japan Speaks to a Sea Wall in San Francisco**\
+`The challenges of climate change are everywhere but maybe no more so than in coastal cities that face dual threats of seismic activity and rising seas.`\
+https://nytimes.com/2021/06/22/climate/san-francisco-sea-wall-earthquake.html?searchResultPosition=2
 
-**Banks Slowly Offer Alternatives to Overdraft Fees, a Bane of Struggling Spenders**\
-`Aggressive overdraft fees are worth tens of billions of dollars a year to the banking industry. Account holders are finally getting some better options.`\
-https://nytimes.com/2021/06/22/your-money/overdraft-fees-banks.html?searchResultPosition=3
+**Sarah Schulman’s Radical Approach to Conflict, Communication and Change**\
+`The writer and activist discusses ACT UP, Israel-Palestine and the dangers of consensus in political movements.`\
+https://nytimes.com/2021/06/22/opinion/ezra-klein-podcast-sarah-schulman.html?searchResultPosition=3
 
-**Democratic Group Will Pour $20 Million Into Voting Rights Efforts**\
-`Priorities USA, one of the largest liberal super PACs, is hoping to counteract Republican-driven voting restrictions through both digital ad campaigns and legal efforts.`\
-https://nytimes.com/2021/06/22/us/politics/priorities-usa-voting-rights.html?searchResultPosition=4
+**It’s Summer in the Ski Towns, 2.0**\
+`Last year, mountain resorts were overrun by travelers in search of space and fresh air. The visitors are expected back, but now the towns have expanded activities and plans in place to deal with the crowds.`\
+https://nytimes.com/2021/06/22/travel/summer-travel-ski-resorts.html?searchResultPosition=4
 
-**Rick Owens on Corrupting the Classics**\
-`The goth designer has developed a thing for distorting iconic shoes.`\
-https://nytimes.com/2021/06/22/fashion/rick-owens-on-corrupting-the-classics.html?searchResultPosition=5
+**Why the Best Gardens Have Something Extra**\
+`Accessories like garden ornaments, furniture and firepits can make a beautiful landscape even more appealing. Here’s where to start.`\
+https://nytimes.com/2021/06/22/realestate/garden-accessories-planters-ornaments-statuary.html?searchResultPosition=5
 
-**Why Geology Is Our Destiny**\
-`A visit to the renovated hall of gems and minerals at the American Museum of Natural History reveals how the cosmos works in the real world.`\
-https://nytimes.com/2021/06/22/science/natural-history-museum-gems-minerals.html?searchResultPosition=6
+**An Architect With an Eye on the Environment**\
+`Increasingly, architects and builders are thinking about how their creations affect the health of the planet. Kunle Adeyemi has built his career around that question.`\
+https://nytimes.com/2021/06/22/climate/architecture-environment-Kunle-Adeyemi.html?searchResultPosition=6
 
-**Stephen Colbert Skewers Trump’s Covid Response**\
-`Colbert joked on Monday night about a forthcoming book on the former president’s pandemic plan: “The main detail: There wasn’t one.”`\
-https://nytimes.com/2021/06/22/arts/television/colbert-trump-pandemic-response.html?searchResultPosition=7
+**When an Eel Climbs a Ramp to Eat Squid From a Clamp, That’s a Moray**\
+`Moray eels can hunt on land, and footage from a recent study highlights how they accomplish this feat with a sneaky second set of jaws.`\
+https://nytimes.com/2021/06/22/science/moray-eels-eat-land.html?searchResultPosition=7
 
-**Quotation of the Day: Why Are the Games Still Happening? These Numbers Explain It.**\
-`Quotation of the Day for Tuesday, June 22, 2021.`\
-https://nytimes.com/2021/06/22/todayspaper/quotation-of-the-day-why-are-the-games-still-happening-these-numbers-explain-it.html?searchResultPosition=8
+**She Fought to Reopen Schools, Becoming a Hero and a Villain**\
+`The economist Emily Oster offers loads of data-driven advice about children and Covid-19. Many parents live by her words. Others say she’s dangerous.`\
+https://nytimes.com/2021/06/22/us/emily-oster-school-reopening.html?searchResultPosition=8
 
-**Editors’ Note: June 22, 2021**\
-`Corrections that appeared in print on Tuesday, June 22, 2021.`\
-https://nytimes.com/2021/06/22/pageoneplus/editors-note-june-22-2021.html?searchResultPosition=9
+**A Front-Row Seat on the Spectacle of Ice**\
+`Above the Arctic Circle, in Greenland, a new building dramatizes the impact of climate change.`\
+https://nytimes.com/2021/06/22/climate/Ilulissat-Icefjord-Centre-greenland-glacier-sustainable.html?searchResultPosition=9
 
-**The House That Mouse Built**\
-`This young adult version of a Spanish folk tale redefines what picture books can be. Reader discretion is advised.`\
-https://nytimes.com/2021/06/22/books/review/the-true-story-of-a-mouse-who-never-asked-for-it-ana-cristina-herreros-violeta-lopiz.html?searchResultPosition=10
+**Behind One Pulitzer, Hundreds of Hands**\
+`When The New York Times was honored with the prestigious prize in the category of public service for its coverage of the coronavirus pandemic, it reflected the contributions of the entire newsroom.`\
+https://nytimes.com/2021/06/22/insider/pulitzer-public-service-covid.html?searchResultPosition=10
 
