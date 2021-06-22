@@ -14,8 +14,8 @@ https://nytimes.com/2021/06/22/sports/soccer/spain-morata-slovakia-euro-2020.htm
 `Ms. Ahuja returns to the personnel agency where she served as chief of staff during the final two years of the Obama administration.`\
 https://nytimes.com/2021/06/22/us/kiran-ahuja-office-personnel-management.html?searchResultPosition=4
 
-**White House Says U.S. Will Not Meet Vaccination Goal**\
-`The White House coronavirus task force said the United States will not reach President Biden’s initial goal of having 70 percent of the adult population at least partially vaccinated by July 4.`\
+**White House Says U.S. iI Not Expected to Meet Vaccination Goal**\
+`The White House coronavirus task force said the United States is not expected to reach President Biden’s initial goal of having 70 percent of the adult population at least partially vaccinated by July 4.`\
 https://nytimes.com/video/us/politics/100000007828942/biden-covid-vaccination-july-4-goal.html?searchResultPosition=5
 
 **Ei-ichi Negishi, Nobel Prize Winner in Chemistry, Dies at 85**\
