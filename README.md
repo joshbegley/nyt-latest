@@ -19,7 +19,7 @@ https://nytimes.com/2021/06/22/nyregion/primary-day-mayor-nyc.html?searchResultP
 https://nytimes.com/2021/06/22/world/asia/north-korea-washington-talks.html?searchResultPosition=5
 
 **With eight million shots in a day, India tries to energize its vaccination effort.**\
-`The total, the most administered in 24 hours in any country apart from China, comes as a second Covid wave recedes.`\
+`As the country’s second Covid wave recedes, Monday’s  was the most Covid shots administered in one day in any country outside China.`\
 https://nytimes.com/2021/06/22/world/india-covid-vaccination.html?searchResultPosition=6
 
 **An Earthquake in Japan Speaks to a Sea Wall in San Francisco**\
