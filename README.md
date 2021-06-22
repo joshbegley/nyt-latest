@@ -14,9 +14,9 @@ https://nytimes.com/2021/06/22/opinion/iran-election-raisi-nuclear-deal.html?sea
 `Restrictions on mifepristone mean patients are not getting the best treatment.`\
 https://nytimes.com/2021/06/22/opinion/miscarriage-abortion.html?searchResultPosition=4
 
-**Six moments that shaped the race.**\
+**Six moments that shaped the N.Y.C. mayoral primary.**\
 `Sexual assault allegations, an alliance between candidates, a tour of a contender’s basement apartment: the race for mayor has had no shortage of drama.`\
-https://nytimes.com/2021/06/22/nyregion/six-moments-that-shaped-the-race.html?searchResultPosition=5
+https://nytimes.com/2021/06/22/nyregion/mayoral-race-nyc.html?searchResultPosition=5
 
 **Home sales are slowing as climbing prices and a shortage of houses limit buyers.**\
 `A spike in demand has exacerbated a shortage in available homes that was already problem before the pandemic. Economists don’t expect the dynamics to shift anytime soon.`\
