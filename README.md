@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/22/travel/summer-travel-ski-resorts.html?searchResul
 https://nytimes.com/2021/06/22/realestate/garden-accessories-planters-ornaments-statuary.html?searchResultPosition=6
 
 **An Architect With an Eye on the Environment**\
-`Increasingly, architects and builders are thinking about how their creations affect the health of the planet. Kunle Adeyemi has built his career around that question.`\
+`This article is part of a special report on Climate Solutions, which focuses on the changing relationship between the people and the planet.`\
 https://nytimes.com/2021/06/22/climate/architecture-environment-Kunle-Adeyemi.html?searchResultPosition=7
 
 **When an Eel Climbs a Ramp to Eat Squid From a Clamp, That’s a Moray**\
