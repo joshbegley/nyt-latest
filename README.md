@@ -1,5 +1,5 @@
-**‘Filthy Animals,’ by Brandon Taylor: An Excerpt**\
-`An excerpt from “Filthy Animals,” by Brandon Taylor`\
+**‘Filthy Animals: Stories,’ by Brandon Taylor: An Excerpt**\
+`An excerpt from “Filthy Animals: Stories,” by Brandon Taylor`\
 https://nytimes.com/2021/06/22/books/review/filthy-animals-by-brandon-taylor-an-excerpt.html?searchResultPosition=1
 
 **Airlines Face a Bailout Backlash**\
