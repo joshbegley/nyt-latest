@@ -34,7 +34,7 @@ https://nytimes.com/2021/06/22/world/europe/france-zodiac-killer-cipher.html?sea
 `A shootout in Myanmar’s second-biggest city was the first time the military and a group of armed civilians known as the People’s Defense Force clashed in a major urban area.`\
 https://nytimes.com/2021/06/22/world/asia/myanmar-army-clashes-mandalay.html?searchResultPosition=9
 
-**Carl Nassib Was an N.F.L. Everyman. Then He Came Out as Gay.**\
+**Carl Nassib, the First Openly Gay N.F.L. Player, Has Been a Football Everyman**\
 `“I’ve been meaning to do this for a while now,” the N.F.L. lineman said. He comes from a football family, was a standout at Penn State and has taught his teammates about personal finance.`\
 https://nytimes.com/2021/06/22/sports/football/who-is-carl-nassib.html?searchResultPosition=10
 
