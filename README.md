@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/22/sports/football/who-is-carl-nassib.html?searchRes
 https://nytimes.com/2021/06/22/nyregion/andrew-yang-election.html?searchResultPosition=6
 
 **Can I vote today?**\
-`If you are a United States citizen who has been a New York City resident for at least 30 days, and are not currently incarcerated for a felony, you can vote today.`\
+`If you are a United States citizen who has been a New York City resident for at least 30 days, and are not currently incarcerated for a felony, you can vote today — if you registered by the May 28 deadline.`\
 https://nytimes.com/2021/06/22/nyregion/who-vote-nyc-primary.html?searchResultPosition=7
 
 **Bitcoin tumbles below $30,000 for the first time since January.**\
