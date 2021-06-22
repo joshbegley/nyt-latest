@@ -1,4 +1,4 @@
-**China’s Sun Yang Banned for Four Years**\
+**China’s Sun Yang Barred for Four Years**\
 `A champion swimmer was suspended (again) for a violation of doping rules, but his four-year penalty will expire in only three.`\
 https://nytimes.com/2021/06/22/sports/olympics/sun-yang-tokyo-olympics.html?searchResultPosition=1
 
