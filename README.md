@@ -1,40 +1,40 @@
+**Appeals Court Blocks Ruling That Overturned California’s Assault Weapons Ban**\
+`The state’s attorney general, Rob Bonta, said the decision of a U.S. Circuit Court panel would leave the three-decade-old ban in place while litigation continues.`\
+https://nytimes.com/2021/06/22/us/assault-weapons-ban-california.html?searchResultPosition=1
+
 **‘Glove, Hat and Belt’: M.L.B. Begins a New Era of Enforcement**\
 `Jacob deGrom was the first pitcher inspected as part of baseball’s crackdown on foreign substances. It did not stop him from dominating Atlanta.`\
-https://nytimes.com/2021/06/22/sports/baseball/jacob-degrom-umpire-inspection.html?searchResultPosition=1
+https://nytimes.com/2021/06/22/sports/baseball/jacob-degrom-umpire-inspection.html?searchResultPosition=2
 
 **Asian Americans on the L.P.G.A. Tour Lift Silence on Racism and Sexism**\
 `The Women’s P.G.A. Championship this week in Atlanta, just minutes from the fatal shootings of six Asian women this year, has surfaced fears and feelings about what it means to be Asian in the United States at a time of pervasive discrimination.`\
-https://nytimes.com/2021/06/22/sports/golf/lpga-women-pga-championship-atlanta-anti-asian-bias.html?searchResultPosition=2
+https://nytimes.com/2021/06/22/sports/golf/lpga-women-pga-championship-atlanta-anti-asian-bias.html?searchResultPosition=3
 
 **Your Tuesday Briefing**\
 `Eastern Europe’s troubled populist leaders.`\
-https://nytimes.com/2021/06/21/briefing/populism-europe-olympics-ethiopia.html?searchResultPosition=3
+https://nytimes.com/2021/06/21/briefing/populism-europe-olympics-ethiopia.html?searchResultPosition=4
 
 **The virus is ravaging Colombia, where the death toll surpassed 100,000.**\
 `Colombia’s surge has been steadily worsening since spring and less than 10 percent of its population is fully vaccinated.`\
-https://nytimes.com/2021/06/21/world/colombia-covid-coronavirus-deaths-100000.html?searchResultPosition=4
+https://nytimes.com/2021/06/21/world/colombia-covid-coronavirus-deaths-100000.html?searchResultPosition=5
 
 **Judge Narrows Suits Over Clearing of Protesters Before Trump Photo Op**\
 `The judge said that federal officials had immunity, and that claims of a conspiracy to clear Lafayette Square for President Donald J. Trump’s walk across it were “simply too speculative.”`\
-https://nytimes.com/2021/06/21/us/politics/lawsuit-lafayette-square-protest-trump.html?searchResultPosition=5
+https://nytimes.com/2021/06/21/us/politics/lawsuit-lafayette-square-protest-trump.html?searchResultPosition=6
 
 **Many Alzheimer’s Experts Say Use of Aduhelm Should Be Sharply Limited**\
 `Even those who supported the F.D.A.’s approval of the controversial new drug said authorizing it for anyone with Alzheimer’s disease was much too broad.`\
-https://nytimes.com/2021/06/21/health/aduhelm-alzheimers-drug.html?searchResultPosition=6
+https://nytimes.com/2021/06/21/health/aduhelm-alzheimers-drug.html?searchResultPosition=7
 
 **Sounds a Lot Like You**\
 `Matt Frederick rocks out.`\
-https://nytimes.com/2021/06/21/crosswords/daily-puzzle-2021-06-22.html?searchResultPosition=7
+https://nytimes.com/2021/06/21/crosswords/daily-puzzle-2021-06-22.html?searchResultPosition=8
 
 **Here’s How New Yorkers Feel About Ranked-Choice Voting**\
 `New Yorkers are using a new voting system citywide for the first time, but in interviews, many seemed characteristically unfazed: “It’s real easy if people just learn how to read.”`\
-https://nytimes.com/2021/06/21/nyregion/nyc-voters-ranked-choice.html?searchResultPosition=8
+https://nytimes.com/2021/06/21/nyregion/nyc-voters-ranked-choice.html?searchResultPosition=9
 
 **A Truckload of Evidence: 42,000 Pounds of Pistachios Are Stolen in California**\
 `A man who worked for a trucking contractor was charged with stealing 21 tons of nuts from a pistachio grower, the Tulare County Sheriff’s Office said.`\
-https://nytimes.com/2021/06/21/us/pistachios-stolen-California.html?searchResultPosition=9
-
-**Can Geometry Be as Soul-Stirring as Poetry?**\
-`In “Shape,” Jordan Ellenberg argues for the importance of geometry as the underlying structure of reality.`\
-https://nytimes.com/2021/06/21/books/review/jordan-ellenberg-shape.html?searchResultPosition=10
+https://nytimes.com/2021/06/21/us/pistachios-stolen-California.html?searchResultPosition=10
 
