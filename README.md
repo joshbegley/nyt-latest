@@ -26,15 +26,4 @@ https://nytimes.com/2021/06/22/us/clooney-los-angeles-schools.html?searchResultP
 `An excerpt from “Filthy Animals: Stories,” by Brandon Taylor`\
 https://nytimes.com/2021/06/22/books/review/filthy-animals-by-brandon-taylor-an-excerpt.html?searchResultPosition=7
 
-**Airlines Face a Bailout Backlash**\
-`They, and other companies that took pandemic rescue money, face new demands in return for their rescues.`\
-https://nytimes.com/2021/06/22/business/dealbook/airlines-bailouts-backlash.html?searchResultPosition=8
-
-**Broadway’s ‘Music Man’ Names British Producer to Replace Rudin**\
-`Kate Horton will become executive producer of the show, which stars Hugh Jackman and Sutton Foster. It is scheduled to begin performances on Dec. 20.`\
-https://nytimes.com/2021/06/22/theater/music-man-producer-rudin-horton.html?searchResultPosition=9
-
-**‘Siberia’ Review: Beast of the Northern Wilds**\
-`Abel Ferrara’s latest psychodrama sends an ever-intense Willem Dafoe into the Arctic wilderness on a visionary reckoning with his memories and sense of self.`\
-https://nytimes.com/2021/06/22/movies/siberia-review.html?searchResultPosition=10
-
+**Lumber prices show why some economists aren’t worried about lasting inflation.**\
