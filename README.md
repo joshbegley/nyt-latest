@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/22/sports/olympics/baseball-qualifier-australia-taiw
 `A champion swimmer was suspended (again) for a violation of doping rules, but his four-year penalty will expire in only three.`\
 https://nytimes.com/2021/06/22/sports/olympics/sun-yang-tokyo-olympics.html?searchResultPosition=2
 
-**Senate panel discusses legislation on Washington, D.C. statehood.**\
+**Senate panel discusses legislation on statehood for Washington, D.C.**\
 `Senator Tom Carper, Democrat of Delaware, pushed for the Homeland Security Committee to hold the hearing, just the second on the topic in the chamber’s history.`\
 https://nytimes.com/2021/06/22/us/washington-dc-statehood.html?searchResultPosition=3
 
