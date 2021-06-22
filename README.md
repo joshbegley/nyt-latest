@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/22/world/europe/france-zodiac-killer-cipher.html?sea
 https://nytimes.com/2021/06/22/world/asia/myanmar-army-clashes-mandalay.html?searchResultPosition=2
 
 **Carl Nassib Was an N.F.L. Everyman. Then He Came Out as Gay.**\
-`“I’ve been meaning to do this for a while now,” the N.F.L. lineman said. He is the first active player in the league to identify as gay.`\
+`“I’ve been meaning to do this for a while now,” the N.F.L. lineman said. He comes from a football family, was a standout at Penn State and has taught his teammates about personal finance.`\
 https://nytimes.com/2021/06/22/sports/football/who-is-carl-nassib.html?searchResultPosition=3
 
 **Andrew Yang gets an early start.**\
