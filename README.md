@@ -34,7 +34,7 @@ https://nytimes.com/2021/06/23/opinion/trans-children-parenting.html?searchResul
 `Despite a few notable incidents on day two of baseball’s enhanced enforcement for foreign substances, Rob Manfred believes things are going well.`\
 https://nytimes.com/2021/06/23/sports/baseball/rob-manfred-inspections.html?searchResultPosition=9
 
-**Can Maya Wiley or Kathryn Garcia Still Beat Eric Adams? Yes, but…**\
+**Can Maya Wiley or Kathryn Garcia Still Beat Eric Adams? Yes, but …**\
 `Under ranked-choice voting, it is mathematically possible for the second- and third-place finishers in Tuesday’s Democratic primary to overtake the front-runner — but it will be tough.`\
 https://nytimes.com/2021/06/23/nyregion/ranked-choice-voting-nyc-mayor.html?searchResultPosition=10
 
