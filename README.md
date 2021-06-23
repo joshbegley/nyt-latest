@@ -10,3 +10,7 @@ https://nytimes.com/2021/06/22/opinion/voting-rights-john-lewis-act.html?searchR
 `Andrew Yang greeted voters in the rain outside a polling site in Brooklyn in a final push to win the Democratic primary race for mayor of New York.`\
 https://nytimes.com/video/us/100000007829591/andrew-yang-election.html?searchResultPosition=3
 
+**Morgan Stanley says no vaccine, no entry.**\
+`By Lananh Nguyen`\
+https://nytimes.com/2021/06/22/business/morgan-stanley-vaccination-requirement.html?searchResultPosition=4
+
