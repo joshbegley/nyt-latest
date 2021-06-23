@@ -8,7 +8,7 @@ https://nytimes.com/2021/06/22/nyregion/andrew-yang-concedes.html?searchResultPo
 
 **Hong Kong Protester Who Crashed Into Police Faces First Security Law Trial**\
 `Tong Ying-kit, who hit officers while riding a motorcycle with a protest flag, is accused of terrorism and inciting secession. He could be sentenced to life in prison.`\
-https://nytimes.com/2021/06/22/world/asia/hong-kong-security-law-trial.html?searchResultPosition=3
+https://nytimes.com/2021/06/23/world/asia/hong-kong-security-law-trial.html?searchResultPosition=3
 
 **Scott Stringer stops short of conceding while acknowledging race appears lost.**\
 `The candidate’s campaign was hurt by sexual harassment accusations.`\
