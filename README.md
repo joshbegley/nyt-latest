@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/23/business/john-mcafee-dead.html?searchResultPosition=1
 
 **Indiana Woman Is First Person to Be Sentenced in Capitol Riot**\
-`The woman, who will serve no prison time, said she realized that she and others who breached the Capitol may have helped encourage the violence by other Trump supporters.`\
+`Anna Morgan-Lloyd, who will serve no prison time, said she realized that she and others who breached the Capitol may have helped encourage the violence by other Trump supporters.`\
 https://nytimes.com/2021/06/23/us/politics/capitol-riot-sentencing.html?searchResultPosition=2
 
 **Modern Love Podcast: The Right to Fail at Marriage**\
