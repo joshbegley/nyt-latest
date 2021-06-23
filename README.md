@@ -28,7 +28,7 @@ https://nytimes.com/2021/06/23/theater/robert-ohara-torrey-townsend-off-broadway
 
 **Scientist Finds Early Virus Sequences That Had Been Mysteriously Deleted**\
 `By rooting through files stored on Google Cloud, a researcher says he recovered 13 early coronavirus sequences that had disappeared from a database last year.`\
-https://nytimes.com/2021/06/23/science/coronavirus-lab-leak-genetic-sequences.html?searchResultPosition=8
+https://nytimes.com/2021/06/23/science/coronavirus-sequences.html?searchResultPosition=8
 
 **U.S. to Search Former Native American Schools for Children’s Remains**\
 `Secretary of the Interior Deb Haaland announced a new initiative that would delve into the records of the federal schools to which Native American children were forcibly relocated for 150 years.`\
