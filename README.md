@@ -4,7 +4,7 @@ https://nytimes.com/2021/06/23/us/politics/lloyd-austin-military-law-sexual-assa
 
 **Staving Off G.O.P. Attacks, Democrats Show New Urgency on Crime**\
 `A strong showing by Eric Adams in the New York mayoral race and President Biden’s announcement of a new crime-fighting agenda signal a shift by Democrats toward themes of public safety.`\
-https://nytimes.com/2021/06/23/us/politics/gop-democrats-biden-police.html?searchResultPosition=2
+https://nytimes.com/2021/06/23/us/politics/gop-democrats-defund-police-biden.html?searchResultPosition=2
 
 **Gianna Rolandi, Spirited Soprano With a Radiant Voice, Dies at 68**\
 `Ms. Rolandi, an acclaimed Vixen and Lucia, made her mark at the New York City Opera and the Lyric Opera of Chicago.`\
