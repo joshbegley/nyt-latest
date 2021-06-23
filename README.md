@@ -1,4 +1,4 @@
-**Supporters Rally As Hong Kong Newspaper Prints Final Edition**\
+**Supporters Rally as Hong Kong Newspaper Prints Final Edition**\
 `People cheered for staff outside the headquarters of Apple Daily on Wednesday. The pro-democracy newspaper said it would be forced to close after the government froze its assets and arrested top editors.`\
 https://nytimes.com/video/world/asia/100000007830660/apple-daily-hong-kong-newspaper.html?searchResultPosition=1
 
