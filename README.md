@@ -2,7 +2,7 @@
 `By rooting through files stored on Google Cloud, a researcher says he recovered 13 early coronavirus sequences that had disappeared from a database last year.`\
 https://nytimes.com/2021/06/23/science/coronavirus-lab-leak-genetic-sequences.html?searchResultPosition=1
 
-**Former Boarding Schools to Be Searched for Remains of Indigenous Students**\
+**Former Boarding Schools in U.S. to Be Searched for Remains of Indigenous Students**\
 `Secretary of the Interior Deb Haaland announced a new initiative that would delve into the records of the federal schools to which Native American children were forcibly relocated for 150 years.`\
 https://nytimes.com/2021/06/23/us/indigenous-children-indian-civilization-act-1819.html?searchResultPosition=2
 
