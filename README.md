@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/23/us/murdaugh-murder-south-carolina.html?searchResu
 https://nytimes.com/2021/06/23/opinion/america-security-competitiveness.html?searchResultPosition=2
 
 **Where in the World Are All the Trans Children? Everywhere.**\
-`The trans experience isn’t a liberal Western fad. `\
+`Being trans  isn’t a liberal Western fad. `\
 https://nytimes.com/2021/06/23/opinion/trans-children-parenting.html?searchResultPosition=3
 
 **M.L.B. Commissioner: ‘We’re Moving the Game in the Right Direction’**\
