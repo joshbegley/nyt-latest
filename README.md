@@ -1,36 +1,36 @@
+**John McAfee, software pioneer wanted in the U.S., dies in a Spanish prison.**\
+`Mr. McAfee, who has not been associated with the company that bears his name for more than two decades, was fighting extradition to the United States after his arrest in Spain.`\
+https://nytimes.com/2021/06/23/business/john-mcafee-dead.html?searchResultPosition=1
+
 **Indiana Woman Is First Person to Be Sentenced in Capitol Riot**\
-`The woman said she realized that she and others who breached the Capitol may have helped encourage the violence by other Trump supporters during the assault.`\
-https://nytimes.com/2021/06/23/us/politics/capitol-riot-sentencing.html?searchResultPosition=1
+`The woman, who will serve no prison time, said she realized that she and others who breached the Capitol may have helped encourage the violence by other Trump supporters.`\
+https://nytimes.com/2021/06/23/us/politics/capitol-riot-sentencing.html?searchResultPosition=2
 
 **Modern Love Podcast: The Right to Fail at Marriage**\
 `The queer comedian Cameron Esposito on how the equality of love can also lead to the equality of heartbreak.`\
-https://nytimes.com/2021/06/23/style/modern-love-podcast-cameron-esposito-right-to-fail-at-marriage.html?searchResultPosition=2
+https://nytimes.com/2021/06/23/style/modern-love-podcast-cameron-esposito-right-to-fail-at-marriage.html?searchResultPosition=3
 
 **Your Thursday Briefing**\
 `The first Hong Kong trial under the national security law.`\
-https://nytimes.com/2021/06/23/briefing/hong-kong-security-trial-virus-sequences.html?searchResultPosition=3
+https://nytimes.com/2021/06/23/briefing/hong-kong-security-trial-virus-sequences.html?searchResultPosition=4
 
 **Leonard Crow Dog, Spiritual Leader at Wounded Knee, Dies at 78**\
 `He served time in prison after the 1973 occupation on the Pine Ridge reservation and dedicated his life to preserving the traditions of the Sicangu Lakota.`\
-https://nytimes.com/2021/06/23/us/leonard-crow-dog-dead.html?searchResultPosition=4
+https://nytimes.com/2021/06/23/us/leonard-crow-dog-dead.html?searchResultPosition=5
 
 **When Summer Begins**\
 `Inside and out.`\
-https://nytimes.com/2021/06/23/at-home/newsletter.html?searchResultPosition=5
+https://nytimes.com/2021/06/23/at-home/newsletter.html?searchResultPosition=6
 
 **White House Defends Timing of Harris Trip to Southern Border**\
 `Jen Psaki, the White House press secretary, on Wednesday defended Vice President Kamala Harris’s upcoming trip to the Southern border. The vice president’s travel plans come amid pressure from Republicans who have seized on a surge of border crossings to criticize the Biden administration.`\
-https://nytimes.com/video/us/politics/100000007831245/kamala-harris-border-visit-us-mexico-border.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000007831245/kamala-harris-border-visit-us-mexico-border.html?searchResultPosition=7
 
 **Michigan Republicans Debunk Voter Fraud Claims in Unsparing Report**\
 `The report, produced by a G.O.P.-led committee in the State Senate, exposes false claims made about the 2020 election by Trump allies in Michigan and other states.`\
-https://nytimes.com/2021/06/23/us/politics/michigan-2020-election.html?searchResultPosition=7
+https://nytimes.com/2021/06/23/us/politics/michigan-2020-election.html?searchResultPosition=8
 
 **When the ‘Change of Life’ Means It’s Time to Change Your Life**\
 `For the restless heroine of Dana Spiotta’s novel “Wayward,” menopause is reason enough to re-evaluate everything.`\
-https://nytimes.com/2021/06/23/books/review-wayward-dana-spiotta.html?searchResultPosition=9
-
-**Will Wiley concede? ‘No,’ she said. ‘Because I’m winning.’**\
-`Her campaign said she won more first-place votes than expected and will likely pick up more support as second- and third-place votes are retabulated.`\
-https://nytimes.com/2021/06/23/nyregion/wiley-nyc-mayor.html?searchResultPosition=10
+https://nytimes.com/2021/06/23/books/review-wayward-dana-spiotta.html?searchResultPosition=10
 
