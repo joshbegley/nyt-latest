@@ -10,7 +10,7 @@ https://nytimes.com/2021/06/22/nyregion/manhattan-district-attorney.html?searchR
 `Mr. Yang, a former presidential candidate, seemed to be the leader early in the race, but faded after facing questions about his lack of experience.`\
 https://nytimes.com/2021/06/22/nyregion/andrew-yang-concedes.html?searchResultPosition=3
 
-**Hong Kong Protester Who Crashed Into Police Faces First Security Law Trial**\
+**Protester Who Crashed Into Police Faces Hong Kong’s First Security Law Trial**\
 `Tong Ying-kit, who hit officers while riding a motorcycle with a protest flag, is accused of terrorism and inciting secession. He could be sentenced to life in prison.`\
 https://nytimes.com/2021/06/23/world/asia/hong-kong-security-law-trial.html?searchResultPosition=4
 
