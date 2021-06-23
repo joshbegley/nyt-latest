@@ -12,7 +12,7 @@ https://nytimes.com/2021/06/23/world/ivory-coast-opposition-leader-sentenced.htm
 
 **Musical Chairs? Swapping Seats Could Reduce Orchestra Aerosols.**\
 `Moving super-spreading instruments, like the trumpet, closer to air vents could limit the aerosol buildup on stage, according to a new study.`\
-https://nytimes.com/2021/06/23/health/coronavirus-orchestra-aerosols-instruments.html?searchResultPosition=4
+https://nytimes.com/2021/06/23/health/coronavirus-orchestra.html?searchResultPosition=4
 
 **‘I Was an Outcast’**\
 `Carl Nassib’s coming-out announcement has been met with largely positive responses, a reception other football players who publicly identified as gay did not experience.`\
