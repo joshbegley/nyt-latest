@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/23/us/can-i-get-covid-after-the-vaccine.html?searchR
 `Lloyd and the injured Julie Ertz and Tobin Heath had been among the few question marks for the scaled-down roster for the Tokyo Games. All three made the team.`\
 https://nytimes.com/2021/06/23/sports/olympics/uswnt-olympics-carli-lloyd-julie-ertz.html?searchResultPosition=2
 
-**The inquiry into Emergent and its troubled Maryland vaccine plant is extended.**\
+**The inquiry into Emergent and its troubled Maryland vaccine plant is expanded.**\
 `Congressional investigators are expanding their inquiry of Emergent BioSolutions to encompass the firm’s relationship with the two companies that hired it to produce their Covid shots.`\
 https://nytimes.com/2021/06/23/us/politics/emergent-covid-vaccine-investigation.html?searchResultPosition=3
 
@@ -32,7 +32,7 @@ https://nytimes.com/2021/06/23/us/california-electricity-flex-alerts.html?search
 
 **Biden is set to address rising gun violence, amid continued calls for police reform.**\
 `The president is expected on Wednesday to detail efforts to use federal resources to assist the police as well as community-based groups.`\
-https://nytimes.com/2021/06/23/us/politics/biden-crime.html?searchResultPosition=9
+https://nytimes.com/2021/06/23/us/politics/biden-guns.html?searchResultPosition=9
 
 **Dozens Killed in Market Airstrike in Ethiopia, Witnesses Say**\
 `The attack hit a busy market in Tigray, where there has been fierce fighting as Ethiopian forces pursue the region’s former leaders.`\
