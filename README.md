@@ -11,6 +11,6 @@ https://nytimes.com/2021/06/22/opinion/voting-rights-john-lewis-act.html?searchR
 https://nytimes.com/video/us/100000007829591/andrew-yang-election.html?searchResultPosition=3
 
 **Morgan Stanley says no vaccine, no entry.**\
-`By Lananh Nguyen`\
+`Employees, clients and visitors at Morgan Stanley’s buildings in New York City and Westchester County must attest that they are fully vaccinated starting July 12.`\
 https://nytimes.com/2021/06/22/business/morgan-stanley-vaccination-requirement.html?searchResultPosition=4
 
