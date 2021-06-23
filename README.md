@@ -12,7 +12,7 @@ https://nytimes.com/2021/06/23/sports/football/carl-nassib-dave-kopay-gay-nfl.ht
 
 **Facing mounting pressure, Harris will travel to the southern border Friday.**\
 `The visit will come just days before former President Donald J. Trump is set to visit the border with House Republicans.`\
-https://nytimes.com/2021/06/23/us/politics/harris-visit-border-immigration.html?searchResultPosition=4
+https://nytimes.com/2021/06/23/us/politics/kamala-harris-border.html?searchResultPosition=4
 
 **Iowa Workshop Whose Pipe Organs Shook the World Burns to the Ground**\
 `Fire destroyed the Lake City company founded by Lynn A. Dobson, who built his first organ in the shed of his family’s farm and went on to make instruments for leading concert halls and churches.`\
