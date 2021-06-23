@@ -34,7 +34,7 @@ https://nytimes.com/2021/06/22/sports/basketball/vanessa-bryant-settlement-kobe-
 `The cap primarily increases the tax bills of higher-income residents of high-tax states like New York and California.`\
 https://nytimes.com/2021/06/22/us/politics/sanders-salt-cap-biden.html?searchResultPosition=9
 
-**Unanimous Vote Is Final Step Toward Removing Roosevelt Statue**\
-`The American Museum of Natural History’s sculpture of the ex-president, flanked by a Native American man and an African man, will be sent to an institution dedicated to his life.`\
-https://nytimes.com/2021/06/22/arts/design/theodore-roosevelt-statue-museum-natural-history-removal.html?searchResultPosition=10
+**Dianne Morales addresses her supporters: ‘The path has not been easy.’**\
+`By Jazmine Hughes`\
+https://nytimes.com/2021/06/22/nyregion/dianne-morales-addresses-her-supporters-the-path-has-not-been-easy.html?searchResultPosition=10
 
