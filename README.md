@@ -30,7 +30,7 @@ https://nytimes.com/2021/06/23/us/politics/michigan-2020-election.html?searchRes
 `For the restless heroine of Dana Spiotta’s novel “Wayward,” menopause is reason enough to re-evaluate everything.`\
 https://nytimes.com/2021/06/23/books/review-wayward-dana-spiotta.html?searchResultPosition=9
 
-**A Culture War Between Hungary and Europe Escalates Over L.G.B.T. Bill**\
-`E.U. leaders say that they will do all they can to thwart a proposed new law in Hungary that would, they say, equate homosexuality with pedophilia.`\
-https://nytimes.com/2021/06/23/world/europe/hungary-europe-lgbt-culture-war.html?searchResultPosition=10
+**Will Wiley concede? ‘No,’ she said. ‘Because I’m winning.’**\
+`Her campaign said she won more first-place votes than expected and will likely pick up more support as second- and third-place votes are retabulated.`\
+https://nytimes.com/2021/06/23/nyregion/wiley-nyc-mayor.html?searchResultPosition=10
 
