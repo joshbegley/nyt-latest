@@ -1,40 +1,40 @@
-**Thanks to Modi, India Had a ‘State-Orchestrated Covid Massacre’**\
-`He kicked off 2021 by declaring India had defeated Covid-19. Then came the second wave — and a record-breaking death toll.`\
-https://nytimes.com/video/opinion/100000007778939/modi-covid-kunal-kamra.html?searchResultPosition=1
+**Alcohol will be banned at the Tokyo Olympics.**\
+`The decision bowed to pressure from a Japanese public that is already deeply skeptical of hosting the Games amid the pandemic.`\
+https://nytimes.com/2021/06/23/world/tokyo-olympics-alcohol.html?searchResultPosition=1
 
-**Apple Daily, Pro-Democracy Newspaper in Hong Kong, Says It Will Close**\
-`The police also arrested an editorial writer as part of an expanding national security investigation into the newspaper that has triggered concerns about free speech.`\
-https://nytimes.com/2021/06/23/world/asia/apple-daily-hong-kong.html?searchResultPosition=2
+**C.D.C. advisers are expected to discuss rare heart problems in vaccinated younger people.**\
+`The majority of cases have been mild, with symptoms like fatigue, chest pain and disturbances in heart rhythm that quickly clear up.`\
+https://nytimes.com/2021/06/23/health/cdc-advisers-are-expected-to-discuss-rare-heart-problems-in-vaccinated-younger-people.html?searchResultPosition=2
 
-**A Joyful Surprise at Japan’s Oldest Zoo: The Birth of Twin Pandas**\
-`After a four-year hiatus, two 15-year-old giant pandas at last found the mood and added a new draw for one of Tokyo’s biggest tourist attractions.`\
-https://nytimes.com/2021/06/23/world/asia/tokyo-zoo-panda-twins.html?searchResultPosition=3
+**Climate Change Is Destroying My Country. The Rich World Must Help.**\
+`Islands like the Bahamas are paying the price for wealthier nations’ emissions — an injustice crying out for a global remedy.`\
+https://nytimes.com/2021/06/23/magazine/climate-change-impact-bahamas.html?searchResultPosition=3
 
-**Your Steak Is More Expensive, but Cattle Ranchers Are Missing Out**\
-`Demand for beef is spiking as people dine out and grill, but the profits aren’t being evenly distributed. Ranchers blame the big meatpacking companies.`\
-https://nytimes.com/2021/06/23/business/beef-prices.html?searchResultPosition=4
+**Lacey Township, N.J.: A Waterfront Community With a Working-Class Vibe**\
+`In this Ocean County township, where housing prices are substantially less than in surrounding areas, ‘everybody’s so nice and down to earth.’`\
+https://nytimes.com/2021/06/23/realestate/lacey-township-nj-a-waterfront-community-with-a-working-class-vibe.html?searchResultPosition=4
 
-**The Gospel of Rebecca Minkoff**\
-`The fashion designer who always felt like an outsider shares a bit of tough love in her new book, “Fearless.”`\
-https://nytimes.com/2021/06/23/fashion/the-gospel-of-rebecca-minkoff.html?searchResultPosition=5
+**In the West the Looted Bronzes Are Museum Pieces. In Nigeria ‘They Are Our Ancestors.’**\
+`When British soldiers stole the treasured works in 1897, it left a gaping hole in an ancient culture. With a few set to return to Nigeria, can their meaning be restored, too?`\
+https://nytimes.com/2021/06/23/world/africa/benin-bronzes-Nigeria-stolen.html?searchResultPosition=5
 
-**Milan Men’s Wear Shows Signs of a Renaissance**\
-`As the city creeps back to normal, designers at Armani, Prada, Zegna, Tod’s and Etro show their grit.`\
-https://nytimes.com/2021/06/23/fashion/mens-style/milan-mens-wear-shows-signs-of-a-renaissance.html?searchResultPosition=6
+**Living In ... Lacey Township, N.J.**\
+`In this Ocean County township, where housing prices are substantially less than in surrounding areas, ‘everybody’s so nice and down to earth.’`\
+https://nytimes.com/slideshow/2021/06/23/realestate/living-in-lacey-township-nj.html?searchResultPosition=6
 
-**Jimmy Kimmel: Trump Can’t Take a Joke**\
-`The former president denied reports that he tried to use his office to keep late-night shows from poking fun at him. “Not only that, he wanted Guillermo to pay for the wall,” Kimmel said on Tuesday.`\
-https://nytimes.com/2021/06/23/arts/television/jimmy-kimmel-trump-snl.html?searchResultPosition=7
+**‘It’s Like Coming Home to Family’: Disneyland Paris Reopens**\
+`Hopes are high that the most popular theme park in Europe will kickstart a tourism recovery in France.`\
+https://nytimes.com/2021/06/23/travel/paris-disneyland-reopening.html?searchResultPosition=7
 
-**Rembrandt’s Damaged Masterpiece Is Whole Again, With A.I.’s Help**\
-`Sections of “The Night Watch” were cut off in the 18th century and lost. Now, new technology lets viewers imagine how the original work might have looked.`\
-https://nytimes.com/2021/06/23/arts/design/rembrandt-night-watch-artificial-intelligence.html?searchResultPosition=8
+**Has the Carbontech Revolution Begun?**\
+`Science can now pull carbon out of the air. For that to make a difference, though, businesses need to find profitable places to put it.`\
+https://nytimes.com/2021/06/23/magazine/interface-carpet-carbon.html?searchResultPosition=8
 
-**Nikole Hannah-Jones Says She Won’t Join U.N.C. Faculty Without Tenure**\
-`A letter from Ms. Hannah-Jones’s lawyers said an unnamed “powerful donor” had contributed to the University of North Carolina Board of Trustees’ failure to grant her tenure.`\
-https://nytimes.com/2021/06/23/business/media/nikole-hannah-jones-university-of-north-carolina-tenure.html?searchResultPosition=9
+**14 New Books Coming in July**\
+`Buzzy novels from Katie Kitamura and S.A. Cosby, Shirley Jackson’s letters, and two tales of mysterious death, one from the Victorian era, the other from India in the 1980s.`\
+https://nytimes.com/2021/06/23/books/july-2021-new-books.html?searchResultPosition=9
 
-**5 takeaways from the New York City mayoral primary.**\
-`Eric Adams paced the field, while Maya Wiley was in second and Kathryn Garcia in third. Andrew Yang fizzled and dropped out of the race.`\
-https://nytimes.com/2021/06/23/nyregion/election-results.html?searchResultPosition=10
+**Do Chance Meetings at the Office Boost Innovation? There’s No Evidence of It.**\
+`For some, the office even stifles creativity. As the pandemic eases in the U.S., a few companies seek to reimagine what work might look like.`\
+https://nytimes.com/2021/06/23/upshot/remote-work-innovation-office.html?searchResultPosition=10
 
