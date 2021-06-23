@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/22/nyregion/new-york-city-council.html?searchResultP
 https://nytimes.com/2021/06/22/nyregion/lovely-warren-rochester-mayor-malik-evans.html?searchResultPosition=4
 
 **Bragg Holds Lead in Manhattan District Attorney Primary**\
-`Alvin Bragg, a federal prosecutor, maintained a four-point lead over Tali Farhadian Weinstein. If elected, he would the first Black person to hold the office.`\
+`Alvin Bragg, a former federal prosecutor, maintained a four-point lead over Tali Farhadian Weinstein. If elected, he would the first Black person to hold the office.`\
 https://nytimes.com/2021/06/22/nyregion/manhattan-district-attorney.html?searchResultPosition=5
 
 **Andrew Yang ends his campaign after a poor showing.**\
