@@ -22,15 +22,15 @@ https://nytimes.com/2021/06/23/sports/olympics/Rudy-Garcia-Tolson-paralympics-sw
 `A live theatrical event in the Meatpacking district, featuring several playwrights and sets by David Rockwell, “turns New York itself into the playhouse.”`\
 https://nytimes.com/2021/06/23/theater/seven-deadly-sins-meatpacking-district.html?searchResultPosition=7
 
-**Tuesday’s vote shows Adams won over Black and Latino voters.**\
-`Early results show he captured much of the vote in Harlem and the Bronx, as well as sections of Brooklyn and Queens.`\
-https://nytimes.com/2021/06/23/nyregion/tuesdays-vote-shows-adams-won-over-black-and-latino-voters.html?searchResultPosition=8
-
 **20 Summer Potluck Ideas Our Food Staff Swears By**\
 `Don’t be stumped by what to take to the picnic: Here are the recipes the staff of the Food section and NYT Cooking turn to again and again.`\
-https://nytimes.com/2021/06/23/dining/summer-potluck-recipes.html?searchResultPosition=9
+https://nytimes.com/2021/06/23/dining/summer-potluck-recipes.html?searchResultPosition=8
 
 **A Shift on Climate for Some G.O.P. Leaders**\
 `A small but growing number of Republicans say it shows the party is done with denial and is ready to debate solutions.`\
-https://nytimes.com/2021/06/23/climate/nyt-climate-newsletter.html?searchResultPosition=10
+https://nytimes.com/2021/06/23/climate/nyt-climate-newsletter.html?searchResultPosition=9
+
+**What Is Facebook?**\
+`Facebook keeps dabbling in new things. Is it now an overstuffed mess, or a genius idea factory?`\
+https://nytimes.com/2021/06/23/technology/what-is-facebook.html?searchResultPosition=10
 
