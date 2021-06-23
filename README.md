@@ -22,7 +22,7 @@ https://nytimes.com/interactive/2021/06/23/world/asia/japan-coronavirus-olympics
 `See neighborhood-level election results from the first round of the mayoral race.`\
 https://nytimes.com/interactive/2021/06/23/nyregion/nyc-mayor-primary-results-precinct-map.html?searchResultPosition=6
 
-**The Covid-19 pandemic affected mental health and college plans for high schoolers.**\
+**The pandemic affected mental health and college plans for U.S. high schoolers.**\
 `By Dana Goldstein`\
 https://nytimes.com/2021/06/23/world/americas/covid-mental-health-high-school.html?searchResultPosition=7
 
