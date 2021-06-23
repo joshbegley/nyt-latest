@@ -1,4 +1,4 @@
-**Apple Daily, Pro-Democracy Newspaper in Hong Kong, Says it Will Close**\
+**Apple Daily, Pro-Democracy Newspaper in Hong Kong, Says It Will Close**\
 `The police also arrested an editorial writer as part of an expanding national security investigation into the newspaper that has triggered concerns about free speech.`\
 https://nytimes.com/2021/06/23/world/asia/apple-daily-hong-kong.html?searchResultPosition=1
 
