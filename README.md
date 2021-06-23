@@ -1,4 +1,4 @@
-**Yellen Steers the Economy with Brooklyn on her Mind**\
+**Yellen Steers the Economy With Brooklyn on Her Mind**\
 `The Treasury secretary’s economic philosophy was shaped by her youth in Bay Ridge.`\
 https://nytimes.com/2021/06/23/us/politics/yellen-brooklyn-commencement.html?searchResultPosition=1
 
@@ -18,23 +18,23 @@ https://nytimes.com/2021/06/23/theater/streaming-theater.html?searchResultPositi
 `Keep your home viewing interesting with these options off the beaten path.`\
 https://nytimes.com/2021/06/23/movies/stoker-synchronic-streaming-movies.html?searchResultPosition=5
 
+**Adams won big outside Manhattan in New York City mayoral primary.**\
+`Runners-up Maya Wiley and Kathryn Garcia captured significant parts of the city, too, and it make take weeks to declare a winner.`\
+https://nytimes.com/2021/06/23/nyregion/garcia-wiley-adams-ny-mayor.html?searchResultPosition=6
+
 **Russia Says It Fired Warning Shots at a U.K. Warship Near Crimea**\
 `Moscow said the Royal Navy destroyer was in its territorial waters. Britain said that no shots were aimed at the ship and that Russia had warned it was conducting a gunnery exercise.`\
-https://nytimes.com/2021/06/23/world/europe/russia-uk-destroyer-crimea.html?searchResultPosition=6
+https://nytimes.com/2021/06/23/world/europe/russia-uk-destroyer-crimea.html?searchResultPosition=7
 
 **Meet the Women Who Give ‘Central Park’ Its Sunny Sound**\
 `The songwriters Elyssa Samsel and Kate Anderson say their strength lies in being themselves in a field still dominated by men.`\
-https://nytimes.com/2021/06/23/arts/television/central-park-season-2-apple-tv.html?searchResultPosition=7
+https://nytimes.com/2021/06/23/arts/television/central-park-season-2-apple-tv.html?searchResultPosition=8
 
 **Southwest Airlines names a new chief executive, who will start next year.**\
 `Gary Kelly, the longtime chief executive of the airline, will be replaced by Robert Jordan on Feb. 1, 2022.`\
-https://nytimes.com/2021/06/23/business/southwest-airlines-gary-kelly-chief-executive.html?searchResultPosition=8
+https://nytimes.com/2021/06/23/business/southwest-airlines-gary-kelly-chief-executive.html?searchResultPosition=9
 
 **House Hunting in the Bahamas: A Remote Beachfront Bungalow**\
 `The region’s housing market is recovering not just from the pandemic, but from Hurricane Dorian in 2019. And that recovery is in full swing.`\
-https://nytimes.com/2021/06/23/realestate/bahamas-house-hunting.html?searchResultPosition=9
-
-**A Barrier Island Paradise in the Bahamas**\
-`This two-bedroom villa on a barrier island off the east coast of Andros, the largest of the Bahamas islands, is on the market for $2.85 million.`\
-https://nytimes.com/slideshow/2021/06/23/realestate/a-barrier-island-paradise-in-the-bahamas.html?searchResultPosition=10
+https://nytimes.com/2021/06/23/realestate/bahamas-house-hunting.html?searchResultPosition=10
 
