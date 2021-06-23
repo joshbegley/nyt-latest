@@ -20,7 +20,7 @@ https://nytimes.com/2021/06/23/opinion/letters/mayor-new-york-city.html?searchRe
 
 **New Gagosian Director Spotlights Black Artists Involved in Social Change**\
 `In his first show at the gallery, Antwaun Sargent seeks to expand the ways people can engage with art.`\
-https://nytimes.com/2021/06/23/arts/design/gagosian-sargent-black-social-change.html?searchResultPosition=7
+https://nytimes.com/2021/06/23/arts/design/gagosian-antwaun-sargent-social-works.html?searchResultPosition=7
 
 **Milkha Singh, Track Star of Post-Colonial India, Is Dead**\
 `Through the late 1950s and early ’60s, the man known as the Flying Sikh blazed through tracks in India and abroad, representing the hopes of a young nation.`\
