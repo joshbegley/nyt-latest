@@ -1,5 +1,5 @@
 **‘Fire Monks’ Defend Tassajara Zen Monastery From Wildfire**\
-`Eight Buddhist monks protecting the Buddhist center near Big Sur, Calif., are relying not only on training from professional firefighters but also on their Zen practice.`\
+`Eight monks protecting the Buddhist center near Big Sur, Calif., are relying not only on training from professional firefighters but also on their Zen practice.`\
 https://nytimes.com/2021/06/23/us/monks-wildfires-tassajara-big-sur.html?searchResultPosition=1
 
 **Spears said that she wanted to have a baby, but the conservatorship would not let her.**\
