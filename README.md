@@ -1,6 +1,6 @@
 **Antitrust Overhaul Passes Its First Tests. Now, the Hard Parts.**\
 `When the Judiciary Committee began approving a suite of bills on Wednesday, it exposed the fault lines that could make final passage difficult.`\
-https://nytimes.com/2021/06/24/technology/antitrust-overhaul-passes-its-first-tests-now-the-hard-parts.html?searchResultPosition=1
+https://nytimes.com/2021/06/24/technology/antitrust-overhaul-congress.html?searchResultPosition=1
 
 **Brazil Passes 500,000 Covid Deaths, a Tragedy With No Sign of Letup**\
 `With 2.7 percent of the world’s population, Brazil has suffered 13 percent of the Covid-19 fatalities, and the pandemic there is not abating.`\
