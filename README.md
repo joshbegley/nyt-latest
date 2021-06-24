@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/24/style/how-does-it-feel-to-be-dating-again.html?se
 https://nytimes.com/interactive/2021/06/24/your-money/interest-rates-federal-student-loans.html?searchResultPosition=2
 
 **Court Suspends Giuliani’s Law License, Citing Trump Election Lies**\
-`A state appellate court concluded that as Donald J. Trump’s personal lawyer, Rudolph Giuliani, had lied about election fraud.`\
+`The former mayor of New York, who was once the top federal prosecutor in Manhattan, is now barred from practicing law in the state.`\
 https://nytimes.com/2021/06/24/nyregion/giuliani-law-license-suspended-trump.html?searchResultPosition=3
 
 **Priest Is Held in an Acid Attack in Greece**\
