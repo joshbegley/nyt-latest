@@ -7,7 +7,7 @@ https://nytimes.com/2021/06/24/realestate/the-best-cities-for-cyclists.html?sear
 https://nytimes.com/video/us/100000007832680/miami-building-collapse-press-conference.html?searchResultPosition=2
 
 **Partial Building Collapse Near Miami**\
-`A search-and-rescue effort is underway on Thursday after a high-rise residential building just north of Miami Beach partially collapsed. At least one person was killed.`\
+`A search-and-rescue effort is underway on Thursday after a high-rise residential building just north of Miami Beach partially collapsed.`\
 https://nytimes.com/video/us/100000007832634/miami-building-collapse-press-conference.html?searchResultPosition=3
 
 **A Museum Where Every Object Helped a Child Endure War**\
