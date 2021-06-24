@@ -1,6 +1,6 @@
 **Biden Aims to Bolster Police Departments as Homicides Increase**\
 `The president made clear that he intends to approach crime prevention by investing in, rather than defunding, the police as he waded into an urgent national debate over policing.`\
-https://nytimes.com/2021/06/23/us/politics/biden-crime.html?searchResultPosition=1
+https://nytimes.com/2021/06/23/us/politics/crime-biden.html?searchResultPosition=1
 
 **Modest Rent Increases Approved for 2.3 Million N.Y.C. Tenants**\
 `The Rent Guidelines Board voted to allow 1.5 percent increases for the second six months of one-year leases. Tenants had pushed for rent reductions.`\
