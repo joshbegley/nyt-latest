@@ -34,7 +34,7 @@ https://nytimes.com/video/us/politics/100000007833203/pelosi-select-committee-ja
 `On Thursday, officials from Miami-Dade County will hold a news conference with updates on a building in the area that collapsed.`\
 https://nytimes.com/video/embedded/us/politics/100000007833313/miami-beach-building-press-conference.html?searchResultPosition=9
 
-**British Warship Deliberately Sailed Close to Crimea, U.K. Officials Say**\
-`The action, meant to demonstrate support for Ukraine, incited an international incident after Russia scrambled warplanes and Coast Guard vessels.`\
-https://nytimes.com/2021/06/24/world/europe/25russia-uk-defender-crimea.html?searchResultPosition=10
+**‘Like it had been hit by a missile’: Residents who survived the collapse describe being inside.**\
+`Surviving residents of the 12-story building that collapsed near Miami Beach explain what happened.`\
+https://nytimes.com/2021/06/24/us/miami-building-collapse-residents.html?searchResultPosition=10
 
