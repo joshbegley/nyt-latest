@@ -26,9 +26,9 @@ https://nytimes.com/2021/06/24/movies/against-the-current-review.html?searchResu
 `Speaker Nancy Pelosi announced on Thursday that she would create a select committee to further investigate the Jan. 6 Capitol riot. About 140 police officers were injured during the violent assault and seven people died in connection with the siege.`\
 https://nytimes.com/video/us/politics/100000007833203/pelosi-select-committee-jan-6-capitol.html?searchResultPosition=7
 
-**Watch Live: Miami Officials Hold Afternoon News Conference**\
+**Watch Full Video: Miami Officials Hold Afternoon News Conference**\
 `On Thursday, officials from Miami-Dade County will hold a news conference with updates on a building in the area that collapsed.`\
-https://nytimes.com/video/us/politics/100000007833313/miami-beach-building-press-conference.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/politics/100000007833313/miami-beach-building-press-conference.html?searchResultPosition=8
 
 **British Warship Deliberately Sailed Close to Crimea, U.K. Officials Say**\
 `The action, meant to demonstrate support for Ukraine, incited an international incident after Russia scrambled warplanes and Coast Guard vessels.`\
