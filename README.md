@@ -1,40 +1,40 @@
-**Rescue Teams Respond to a Building Collapse in Miami**\
-`The building, in the Surfside area of Miami, appeared to be partially collapsed. It is unclear if there are any deaths or injuries.`\
-https://nytimes.com/2021/06/24/us/miami-surfside-building-collapse.html?searchResultPosition=1
+**Brazil Passes 500,000 Covid Deaths, a Tragedy With No Sign of Letup**\
+`With 2.7 percent of the world’s population, Brazil has suffered 13 percent of the Covid-19 fatalities, and the pandemic there is not abating.`\
+https://nytimes.com/2021/06/24/world/americas/brazil-500000-covid-deaths.html?searchResultPosition=1
 
-**This Is the Plan to Rescue Poor Countries From the Pandemic**\
-`A proposal advanced by the International Monetary Fund aims to supply the developing world with extra money to buy vaccines, pay down debt and expand relief programs.`\
-https://nytimes.com/2021/06/24/business/international-monetary-fund-sdr.html?searchResultPosition=2
+**Why Police Have Been Quitting in Droves in the Last Year**\
+`Asheville, N.C., has been among the hardest hit by police departures in the wake of last year’s George Floyd protests. About a third of the force quit or retired.`\
+https://nytimes.com/2021/06/24/us/police-resignations-protests-asheville.html?searchResultPosition=2
 
-**In Paris, Brexit Takes to the Stage**\
-`“Exit,” a new musical production, uses the political drama both as a metaphor and as a backdrop for a cross-continental love triangle.`\
-https://nytimes.com/2021/06/24/theater/brexit-paris.html?searchResultPosition=3
+**Wildfires Threaten Urban Water Supplies, Long After the Flames Are Out**\
+`After a forest burns, the resulting erosion can contaminate drinking water supplies for up to a decade.`\
+https://nytimes.com/2021/06/24/climate/wildfire-water-quality.html?searchResultPosition=3
 
-**The Abandoned Houses of Instagram**\
-`People lived in these places once. What mysteries did they leave behind?`\
-https://nytimes.com/2021/06/24/style/abandoned-houses-instagram.html?searchResultPosition=4
+**Why More People Are Getting Two Different Coronavirus Vaccines**\
+`Several countries are allowing mix-and-match inoculation, which scientists hope will have benefits, and Chancellor Angela Merkel of Germany is among those to get it.`\
+https://nytimes.com/2021/06/24/world/europe/covid-vaccine-mix-and-match-pfizer-moderna.html?searchResultPosition=4
 
-**Climate watchdog says Britain lacks a strategy to meet its goals.**\
-`The British government is failing to take necessary steps to meet “historic” climate promises, an advisory panel said.`\
-https://nytimes.com/2021/06/24/business/energy-environment/britain-climate-goals.html?searchResultPosition=5
+**For Pride This Weekend, You Do You**\
+`There are plenty of ways to celebrate, from several grass-roots marches to a 10K run with beer tastings.`\
+https://nytimes.com/2021/06/24/nyregion/pride-weekend-events-nyc.html?searchResultPosition=5
 
-**In Canada, Another ‘Horrific’ Discovery of Indigenous Children’s Remains**\
-`An Indigenous group said the remains of hundreds of children had been found in unmarked graves on the site of a former boarding school in Saskatchewan.`\
-https://nytimes.com/2021/06/24/world/canada/unmarked-graves-residential-schools-saskatchewan.html?searchResultPosition=6
+**Hold the Tequila. The Sunrise Is All Some Travelers Need.**\
+`As vaccination levels rise and Americans head back to the roads and skies, sober travel, a subset of vacations once relegated to 12-steppers and recovering addicts, is going mainstream.`\
+https://nytimes.com/2021/06/24/travel/alcohol-free-vacation.html?searchResultPosition=6
 
-**Late Night Reams Republicans for Blocking the For the People Act**\
-`“The Republicans instead supported the ‘For Some of the People — We Can’t Say It Out Loud, but You Know Which Ones We Mean — Act,’” Stephen Colbert said of the voting rights bill.`\
-https://nytimes.com/2021/06/24/arts/television/stephen-colbert-for-the-people-act.html?searchResultPosition=7
+**10 Million Data Requests: How Our Covid Team Tracked the Pandemic**\
+`The project began 18 months ago as a simple concept: Count every known U.S. case at the time. When the virus grew exponentially, so did the efforts to document it.`\
+https://nytimes.com/2021/06/24/insider/covid-tracking-data.html?searchResultPosition=7
 
-**11 Summer Graphic Novels for Early and Middle-Grade Readers**\
-`From flashlight-under-the-blanket page-turners and music-infused time travel to a campy book about camp, here are 11 summer novels for comics-hungry kids.`\
-https://nytimes.com/2021/06/24/books/11-summer-graphic-novels-for-early-and-middle-grade-readers.html?searchResultPosition=8
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/06/24/arts/things-to-do-this-weekend.html?searchResultPosition=8
 
-**San Francisco will require all city employees to be vaccinated.**\
-`The city is one of the largest U.S. municipalities to impose a Covid vaccine mandate for public workers, who could lose their jobs if they decline.`\
-https://nytimes.com/2021/06/24/world/san-francisco-vaccine-mandate.html?searchResultPosition=9
+**Your Summer Binge List: 10 Shows You Might Have Missed**\
+`Now there’s time for some things that flew under the school-year radar.`\
+https://nytimes.com/2021/06/24/arts/television/10-shows-to-watch-this-summer.html?searchResultPosition=9
 
-**L.P.G.A. Elites Embrace Olympic Golf. P.G.A. Stars, Not So Much.**\
-`This year, as in 2016, golf’s shallow roots in the Games are being exposed by the men’s limited interest. The women are a different story.`\
-https://nytimes.com/2021/06/24/sports/golf/olympic-golf-men-women.html?searchResultPosition=10
+**What Did New York’s Primaries Mean for Progressives? It’s Complicated.**\
+`Progressives cheered the results in down-ballot races and in Buffalo, even as the outcome of the mayoral primary appeared less rosy.`\
+https://nytimes.com/2021/06/24/us/politics/maya-wiley-progressive-nyc-primary.html?searchResultPosition=10
 
