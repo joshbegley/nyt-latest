@@ -1,6 +1,6 @@
 **The U.S. bans imports of some Chinese solar panel materials tied to forced labor.**\
 `By Thomas Kaplan`\
-https://nytimes.com/2021/06/24/us/politics/the-us-bans-imports-of-some-chinese-solar-panel-materials-tied-to-forced-labor.html?searchResultPosition=1
+https://nytimes.com/2021/06/24/us/politics/china-forced-labor-solar.html?searchResultPosition=1
 
 **Buffett Weighs In on Tax-Free Philanthropy**\
 `The Berkshire Hathaway chief, who has given away billions, asks whether donations should keep their special status.`\
