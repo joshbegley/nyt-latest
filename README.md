@@ -32,7 +32,7 @@ https://nytimes.com/2021/06/24/us/coronavirus-briefing-what-happened-today.html?
 
 **A Riot of Color**\
 `When Euro 2020 organizers blocked a Pride display at a soccer stadium in Munich, arenas in other cities silently rallied to the cause.`\
-https://nytimes.com/2021/06/24/sports/soccer/Germay-UEFA-Pride.html?searchResultPosition=9
+https://nytimes.com/2021/06/24/sports/soccer/Germany-UEFA-Pride.html?searchResultPosition=9
 
 **Pelosi Will Move to Create a Select Panel to Investigate the Capitol Riot**\
 `The top Democrat had signaled for weeks that she would take matters into her own hands after Republicans blocked an independent bipartisan commission to scrutinize the storming of the Capitol.`\
