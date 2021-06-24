@@ -1,4 +1,4 @@
-**Biden Administration Sides With Tar-Sands Pipeline Plan**\
+**Biden Administration Backs Oil Sands Pipeline Plan**\
 `The administration urged a court to throw out a challenge brought by tribal and environmental groups, backing a pipeline that would carry Canadian oil across Minnesota and Wisconsin.`\
 https://nytimes.com/2021/06/24/climate/line-3-pipeline-biden.html?searchResultPosition=1
 
