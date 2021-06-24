@@ -19,7 +19,7 @@ https://nytimes.com/2021/06/23/world/secret-service-covid-trump.html?searchResul
 https://nytimes.com/2021/06/23/briefing/coronavirus-tigray-hong-kong.html?searchResultPosition=5
 
 **Benigno S. Aquino III, Former President of the Philippines, Is Dead at 61**\
-`A scion to the country’s most prominent pro-democracy political family, he was celebrated early in his administration for stabilizing the country’s faltering economy.`\
+`A scion of the country’s most prominent pro-democracy political family, he was celebrated early in his administration for stabilizing the country’s faltering economy.`\
 https://nytimes.com/2021/06/23/world/asia/benigno-aquino-III-dead.html?searchResultPosition=6
 
 **Quotation of the Day: To ‘Outcast,’ Change Was Long Time Coming**\
