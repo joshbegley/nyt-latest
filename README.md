@@ -1,6 +1,6 @@
-**N.Y.C. Mayor Updates: Could the Top 3 Change Places?**\
-` Eric Adams is leading the  race, but the standings could still change as ranked-choice votes are tabulated — though a turnaround would be tough.`\
-https://nytimes.com/2021/06/24/nyregion/nyc-mayor-updates-could-the-top-3-change-places.html?searchResultPosition=1
+**N.Y.C. Mayor’s Race: Could the Top 3 Change Places?**\
+` Eric Adams is leading the  race, but the standings could  change as ranked-choice votes are tabulated — though a turnaround would be tough.`\
+https://nytimes.com/2021/06/24/nyregion/nyc-mayors-race-could-the-top-3-change-places.html?searchResultPosition=1
 
 **Antitrust Overhaul Passes Its First Tests. Now, the Hard Parts.**\
 `When the Judiciary Committee began approving a suite of bills on Wednesday, it exposed the fault lines that could make final passage difficult.`\
