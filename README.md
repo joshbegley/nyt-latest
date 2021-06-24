@@ -2,9 +2,9 @@
 `Bicycle riding has exploded in popularity, but the quality of your rides will vary depending on where you live.`\
 https://nytimes.com/2021/06/24/realestate/the-best-cities-for-cyclists.html?searchResultPosition=1
 
-**Watch Live: Florida Authorities Provide Update on Building Collapse**\
-`The authorities in Surfside, Fla., hold a briefing as a large rescue effort is underway after a building collapsed.`\
-https://nytimes.com/video/us/100000007832680/miami-building-collapse-press-conference.html?searchResultPosition=2
+**Watch Full Video: Florida Authorities Provide Update on Building Collapse**\
+`The authorities in Surfside, Fla., held a briefing as a large rescue effort is underway after a building collapsed.`\
+https://nytimes.com/video/embedded/us/100000007832680/miami-building-collapse-press-conference.html?searchResultPosition=2
 
 **Partial Building Collapse Near Miami**\
 `A search-and-rescue effort is underway on Thursday after a high-rise residential building just north of Miami Beach partially collapsed.`\
