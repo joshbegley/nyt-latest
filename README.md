@@ -1,5 +1,5 @@
 **Biden Administration Forces Out Trump-Era Border Patrol Chief**\
-`The chief, Rodney S. Scott, had become known for support former President Donald J. Trump’s signature border wall, and had resisted a Biden initiative to stop using “illegal alien.”`\
+`The chief, Rodney S. Scott, had become known for his support of President Donald J. Trump’s signature border wall, and had resisted a Biden initiative to stop using the phrase “illegal alien.”`\
 https://nytimes.com/2021/06/23/us/politics/rodney-scott-immigration-trump.html?searchResultPosition=1
 
 **In N.Y.C., Black Is Back**\
