@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/24/business/media/david-choe-show-artist.html?search
 https://nytimes.com/2021/06/24/world/asia/japan-abe-scandal-dossier.html?searchResultPosition=6
 
 **With New Show, a Broadway Rarity: Season Has 7 Plays by Black Writers**\
-`The latest entrant is “Chicken & Biscuits,” which ran for two weeks at Queens Theater before the pandemic forced it to close.`\
+`“Chicken & Biscuits,” a new comedy by Douglas Lyons, will star Norm Lewis and Michael Urie. Performances will begin on Sept. 23.`\
 https://nytimes.com/2021/06/24/theater/chicken-biscuits-broadway-lyons-lewis-urie.html?searchResultPosition=7
 
 **Florida Officials Detail Efforts to Find Residents After Building Collapse**\
