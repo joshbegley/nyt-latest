@@ -1,5 +1,5 @@
 **The U.S. bans imports of some Chinese solar panel materials tied to forced labor.**\
-`A significant portion of the world’s polysilicon, used to make solar panels, comes from Xinjiang, where the United States has accused China of committing genocide through its repression of Uyghurs.`\
+`Much of the world’s polysilicon, used to make solar panels, comes from Xinjiang, where the United States has accused China of committing genocide through its repression of Uyghurs.`\
 https://nytimes.com/2021/06/24/us/politics/china-forced-labor-solar.html?searchResultPosition=1
 
 **Buffett Weighs In on Tax-Free Philanthropy**\
