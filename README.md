@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/25/us/ca-wildfire-season.html?searchResultPosition=1
 `Rep. Veronica Escobar, whose district includes El Paso, said the vice president “will be able to get a very broad perspective” for her work addressing the root causes of migration.`\
 https://nytimes.com/2021/06/25/us/politics/harris-visits-border.html?searchResultPosition=2
 
-**The Federal Reserve’s favorite inflation gauge again jumps the most since 2008.**\
+**The Federal Reserve’s inflation gauge again jumps to the highest since 2008.**\
 `A key index picked up 3.9 percent over the year, though a lower-than-expected monthly gain suggested price jumps may be moderating.`\
 https://nytimes.com/2021/06/25/business/inflation-federal-reserve.html?searchResultPosition=3
 
