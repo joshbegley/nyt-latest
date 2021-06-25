@@ -12,7 +12,7 @@ https://nytimes.com/2021/06/24/opinion/india-walton-progressive.html?searchResul
 
 **Watch Live: Authorities Give Update on Miami Building Collapse**\
 `Officials give an update on rescue operations underway at the site of a residential building which collapsed near Miami early Thursday morning.`\
-https://nytimes.com/video/us/100000007834355/miami-building-collapse-live.html?searchResultPosition=4
+https://nytimes.com/video/embedded/us/100000007834355/miami-building-collapse-live.html?searchResultPosition=4
 
 **Biden Officials Consider Phasing Out Rule That Blocked Migrants During Pandemic**\
 `Among the plans under consideration is whether to give migrant families a chance to apply for protections, and to possibly lifting the public health rule for single adults this summer.`\
