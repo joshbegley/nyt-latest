@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/25/arts/dance/manpreet-toor-bhangra.html?searchResul
 https://nytimes.com/2021/06/25/arts/design/rome-museums-tourists.html?searchResultPosition=4
 
 **Rescue Operations Continue in Surfside After Building Collapse**\
-`After a night of searching, Miami-Dade County officials provided an update Friday morning on the ongoing rescue efforts following a 12-story building that collapsed due to unknown causes on Thursday.`\
+`After a night of searching, Miami-Dade County officials provided an update Friday morning on the ongoing rescue efforts following a 13-story building that collapsed due to unknown causes on Thursday.`\
 https://nytimes.com/video/us/100000007835076/miami-building-collapse-presser.html?searchResultPosition=5
 
 **Prosecutors Drop Rape Investigation Against French TV News Anchor**\
