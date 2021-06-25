@@ -1,5 +1,5 @@
 **The Federal Reserve’s favorite inflation gauge jumps the most since 2008.**\
-`The personal consumption expenditures index picked up 3.9 percent over the year, the latest evidence of price gains amid the reopening.`\
+`A key index picked up 3.9 percent over the year, though a lower-than-expected monthly gain suggested price jumps may be moderating.`\
 https://nytimes.com/2021/06/25/business/inflation-federal-reserve.html?searchResultPosition=1
 
 **Summer Reading Contest Week 3: What Got Your Attention in The Times This Week?**\
