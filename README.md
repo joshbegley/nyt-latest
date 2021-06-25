@@ -10,7 +10,7 @@ https://nytimes.com/2021/06/25/podcasts/night-golfing-flying-cars-southern-bapti
 `The annual Pride March in Manhattan will be held virtually without a large in-person component. But many other events are planned. `\
 https://nytimes.com/2021/06/25/nyregion/pride-in-nyc.html?searchResultPosition=3
 
-**Indonesia’s Doctors Got Vaccinated, and Got Sick**\
+**Indonesia’s Doctors Got Vaccinated with Sinovac, and Got Sick**\
 `Facing increased cases and a deadly variant, the Indonesian health system is under strain, as doctors become patients.`\
 https://nytimes.com/2021/06/25/world/asia/indonesia-covid-sinovac.html?searchResultPosition=4
 
