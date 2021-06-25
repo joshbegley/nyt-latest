@@ -1,40 +1,40 @@
-**They Seemed Like Democratic Activists. They Were Secretly Conservative Spies.**\
-`Operatives infiltrated progressive groups across the West to try to manipulate politics and reshape the national electoral map. They targeted moderate Republicans, too — anyone seen as threats to hard-line conservatives.`\
-https://nytimes.com/2021/06/25/us/politics/spies-conservatives-left-political-enemies.html?searchResultPosition=1
+**‘Red Tourism’ Flourishes in China Ahead of Party Centennial**\
+`New and improved attractions dedicated to the Communist Party’s history, or a sanitized version of it, are drawing crowds.`\
+https://nytimes.com/2021/06/25/business/china-centennial-red-tourism.html?searchResultPosition=1
 
-**Why Are Australian Homes So Cold?**\
-`Another issue the pandemic has thrown into sharp relief: our houses’ lack of insulation.`\
-https://nytimes.com/2021/06/25/world/australia/why-are-australian-homes-so-cold.html?searchResultPosition=2
+**‘No Shortcuts?’: A 40-Mile Rite of Passage for High School Freshmen**\
+`A year after the pandemic canceled a nearly 50-year-old tradition, a New Jersey Catholic school brought back a mandatory hike across the Appalachian Trail.`\
+https://nytimes.com/2021/06/25/nyregion/newark-hike-catholic-school.html?searchResultPosition=2
 
-**Conan O’Brien Bids Farewell to Late Night**\
-`After 28 years on late-night television and 11 years on TBS, O’Brien is moving on to HBO Max.`\
-https://nytimes.com/2021/06/25/arts/television/conan-obrien-late-night-rudy-giuliani.html?searchResultPosition=3
+**21 Easy Summer Dinners You’ll Cook (or Throw Together) on Repeat**\
+`Some assembly — but no oven — required.`\
+https://nytimes.com/2021/06/25/dining/easy-summer-dinners.html?searchResultPosition=3
 
-**Ousting Toshiba Chairman, Foreign Investors Score Breakthrough in Japan**\
-`While Japan’s corporations have long resisted the entreaties of activist shareholders, Toshiba had come under intense pressure after a series of scandals.`\
-https://nytimes.com/2021/06/25/business/japan-toshiba-chair.html?searchResultPosition=4
+**My Pandemic Hobby? Making Money.**\
+`During Covid, many people found solace in a new pastime. A few found profit.`\
+https://nytimes.com/2021/06/25/realestate/my-pandemic-hobby-making-money.html?searchResultPosition=4
 
-**He Created the Sports Theme Song You Didn’t Know You Knew**\
-`It’s a little bit “aggressive” and a little bit “light.” The theme song for TNT’s “Inside the N.B.A.” is as much a character as the show’s popular hosts.`\
-https://nytimes.com/2021/06/25/sports/basketball/tnt-inside-the-nba-theme-song.html?searchResultPosition=5
+**These Typefaces Are Truly Puzzling**\
+`Erik and Martin Demaine, a father-and-son team of “algorithmic typographers,” have confected an entire suite of mathematically inspired fonts.`\
+https://nytimes.com/2021/06/25/science/puzzles-fonts-math-demaine.html?searchResultPosition=5
 
-**Why Won’t Anyone Help Me in This Sex Shop?**\
-`At 83, and legally blind, I could use some assistance.`\
-https://nytimes.com/2021/06/25/style/modern-love-why-wont-anyone-help-me-in-this-sex-shop.html?searchResultPosition=6
+**A Brooklyn Ice Cream Shop and the Make-or-Break Summer Ahead**\
+`Crème and Cocoa Creamery survived the pandemic. But like many small businesses in New York, its future is hardly secure.`\
+https://nytimes.com/2021/06/25/nyregion/ny-covid-small-business.html?searchResultPosition=6
 
-**Confident in Its Impunity, the Myanmar Junta Ignores Diplomacy**\
-`The generals who seized power five months ago have shown no inclination to heed international pleas to reverse themselves, even as Myanmar slides into a failed state.`\
-https://nytimes.com/2021/06/24/world/asia/myanmar-junta-democracy-explainer.html?searchResultPosition=7
+**Why Washington Can’t Quit Listening to Larry Summers**\
+`A longtime leading man of economics is no longer making America’s policies. He’s still driving a critical conversation around them.`\
+https://nytimes.com/2021/06/25/business/economy/larry-summers-washington.html?searchResultPosition=7
 
-**Investing in the Future of Sustainability**\
-`Fidelity portfolio manager Nicole Connolly takes a deeper look at the companies in Fidelity’s ESG funds.`\
-https://nytimes.com/paidpost/fidelity/fidelity-focused-insights/investing-in-the-future-of-sustainability.html?searchResultPosition=8
+**Derek Chauvin to Be Sentenced Today for Murder of George Floyd**\
+`Mr. Chauvin, the former Minneapolis police officer, may choose to speak at his hearing. He could face decades in prison.`\
+https://nytimes.com/2021/06/25/us/derek-chauvin-sentence.html?searchResultPosition=8
 
-**Your Friday Briefing**\
-`Dozens missing after Florida building collapse.`\
-https://nytimes.com/2021/06/24/briefing/miami-collapse-canada-indigenous-coronavirus.html?searchResultPosition=9
+**Not All Cyclists Wear Lycra**\
+`The biking world can be intimidating, even for those who grew up in it. But that’s no reason to let your pandemic wheels gather dust.`\
+https://nytimes.com/2021/06/25/well/move/not-all-cyclists-wear-lycra.html?searchResultPosition=9
 
-**An Iowa County Chooses to Be Named for a Black Professor, Not a Slaveowner**\
-`Johnson County selected Lulu Merle Johnson, a Black educator and historian, as its official eponym, replacing Richard Mentor Johnson, the ninth U.S. vice president.`\
-https://nytimes.com/2021/06/24/us/iowa-lulu-merle-johnson-county.html?searchResultPosition=10
+**A Labor of Love Side by Side**\
+`Dr. Jessica Fields, an obstetrician-gynecologist, and Maggie Sensenig, a labor and delivery nurse, met on the job.`\
+https://nytimes.com/2021/06/25/style/jessica-fields-maggie-sensenig-wedding.html?searchResultPosition=10
 
