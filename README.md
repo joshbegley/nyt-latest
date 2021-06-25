@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/25/style/black-tiktok-strike.html?searchResultPositi
 https://nytimes.com/2021/06/25/world/europe/eu-summit-hungary-russia.html?searchResultPosition=6
 
 **Discovery of ‘Dragon Man’ Skull in China May Add Species to Human Family Tree**\
-`A laborer discovered the fossil and hid it in a well for 85 years. Scientists say it could help sort out the human family tree and how our  species emerged.`\
+`A laborer discovered the fossil and hid it in a well for 85 years. Scientists say it could help sort out the human family tree and how our species emerged.`\
 https://nytimes.com/2021/06/25/science/dragon-man-skull-china.html?searchResultPosition=7
 
 **Five Horror Movies to Stream Now**\
