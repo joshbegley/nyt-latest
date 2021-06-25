@@ -12,7 +12,7 @@ https://nytimes.com/2021/06/25/movies/wolfgang-review.html?searchResultPosition=
 
 **‘Fathom’ Review: A Whale of a Conversation**\
 `Scientists attempt to communicate with humpback whales in this Apple TV+ documentary.`\
-https://nytimes.com/2021/06/25/arts/fathom-review.html?searchResultPosition=4
+https://nytimes.com/2021/06/25/movies/fathom-review.html?searchResultPosition=4
 
 **A Road Map to Infrastructure**\
 `President Biden and a bipartisan group of senators reached an infrastructure deal. We look at what’s next.`\
