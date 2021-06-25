@@ -1,14 +1,14 @@
+**Supreme Court sides with Alaskan Natives in dispute over coronavirus aid.**\
+`Tribal government in the lower 48 states had sued to challenge the federal government’s allocation of about $500 million in virus aid to Alaska Native corporations, arguing that the corporations do not meet the definition of “Indian tribes.”`\
+https://nytimes.com/2021/06/25/us/politics/supreme-court-alaska-tribes-virus.html?searchResultPosition=1
+
 **Pig Sculpture in Rome Defaced in Response to Animal Rights**\
 `A sculpture of a roasted pig, a new public artwork instillation paying tribute to the Italian capital, was removed on Friday after the statue was vandalized with cherry-red paint.`\
-https://nytimes.com/video/world/europe/100000007835309/rome-pig-sculpture-porchetta-animal-rights-protests.html?searchResultPosition=1
+https://nytimes.com/video/world/europe/100000007835309/rome-pig-sculpture-porchetta-animal-rights-protests.html?searchResultPosition=2
 
 **‘F9’ | Anatomy of a Scene**\
 `Justin Lin narrates an explosive sequence from the latest film in the “Fast and Furious” franchise.`\
-https://nytimes.com/video/movies/100000007835082/f9-scene.html?searchResultPosition=2
-
-**Supreme Court sides with Alaskan Natives in dispute over coronavirus aid.**\
-`Tribal government in the lower 48 states had sued to challenge the federal government’s allocation of about $500 million in virus aid to Alaska Native corporations, arguing that the corporations do not meet the definition of “Indian tribes.”`\
-https://nytimes.com/2021/06/25/us/politics/supreme-court-alaska-tribes.html?searchResultPosition=3
+https://nytimes.com/video/movies/100000007835082/f9-scene.html?searchResultPosition=3
 
 **Your Own Backyard Movies, on a Budget**\
 `How you can build an outdoor cinema experience.`\
