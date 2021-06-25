@@ -1,4 +1,4 @@
-**On the Scene in Surfside, Fla.**\
+**Scenes From the Tragic Condo Collapse**\
 `Ninety-nine people were still unaccounted for after a residential building collapsed in the beachfront community.`\
 https://nytimes.com/2021/06/24/us/miami-building-collapse-photos.html?searchResultPosition=1
 
