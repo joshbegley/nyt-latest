@@ -1,5 +1,5 @@
 **Pence, Diverging From Trump, Says He Was ‘Proud’ to Certify Election**\
-`In a speech, former Vice President Mike Pence went the farthest he has gone yet in distancing himself from Donald Trump and the Capitol riot. But he still praised the former president and his agenda.`\
+`In a speech, former Vice President Mike Pence went the furthest he has gone yet in distancing himself from Donald Trump and the Capitol riot. But he still praised the former president and his agenda.`\
 https://nytimes.com/2021/06/24/us/politics/mike-pence-trump.html?searchResultPosition=1
 
 **Final Half Friday: Or, How I Got Myself Unstuck**\
