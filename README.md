@@ -1,40 +1,40 @@
+**Summer’s Bounty**\
+`Make the most of the season’s produce with a light pasta salad or a simple cobbler.`\
+https://nytimes.com/2021/06/26/admin/summers-bounty.html?searchResultPosition=1
+
 **Can My Building Ask Residents for Proof of Vaccination?**\
 `It’s noble for co-op boards to try to keep their shareholders safe, but they are not in a good position to police residents.`\
-https://nytimes.com/2021/06/26/realestate/can-my-building-ask-residents-for-proof-of-vaccination.html?searchResultPosition=1
+https://nytimes.com/2021/06/26/realestate/can-my-building-ask-residents-for-proof-of-vaccination.html?searchResultPosition=2
 
 **Supreme Court Rulings: N.C.A.A., Student Speech and Gay Parents**\
 `Readers offer their perspectives on recent decisions.`\
-https://nytimes.com/2021/06/26/opinion/letters/supreme-court-ncaa-speech-gay.html?searchResultPosition=2
+https://nytimes.com/2021/06/26/opinion/letters/supreme-court-ncaa-speech-gay.html?searchResultPosition=3
 
 **Sydney, Australia, enters full lockdown for the first time in the pandemic to fight the Delta variant.**\
 `A cluster that began with an airport limousine driver has jumped to nearly 100 cases, with dozens more expected over the coming days.`\
-https://nytimes.com/2021/06/26/world/sydney-lockdown-covid.html?searchResultPosition=3
+https://nytimes.com/2021/06/26/world/sydney-lockdown-covid.html?searchResultPosition=4
 
 **Vaccines are a tough sell in the sparsely populated, skeptical Mountain West.**\
 `The U.S. region includes states with some of the lowest vaccination rates in the country, rivaling the South. Many factors are at work, experts say.`\
-https://nytimes.com/2021/06/26/us/western-us-vaccine-covid.html?searchResultPosition=4
+https://nytimes.com/2021/06/26/us/western-us-vaccine-covid.html?searchResultPosition=5
 
 **Fight and Flight: T.S.A. to Resume Self-Defense Classes for Airline Crews**\
 `The classes, which will resume in July, come as crew members struggle with a surge in cases of unruly passengers.`\
-https://nytimes.com/2021/06/26/business/self-defense-course-tsa.html?searchResultPosition=5
+https://nytimes.com/2021/06/26/business/self-defense-course-tsa.html?searchResultPosition=6
 
 **$730,000 Homes in California**\
 `A 1914 cottage in Sonoma, a bungalow in Oakland and a one-bedroom condominium in Santa Monica.`\
-https://nytimes.com/2021/06/26/realestate/home-prices-california.html?searchResultPosition=6
+https://nytimes.com/2021/06/26/realestate/home-prices-california.html?searchResultPosition=7
 
 **What You Get for $730,000 in California**\
 `A 1914 cottage in Sonoma, a bungalow in Oakland and a one-bedroom condominium in Santa Monica.`\
-https://nytimes.com/slideshow/2021/06/26/realestate/what-you-get-for-730000-in-california.html?searchResultPosition=7
+https://nytimes.com/slideshow/2021/06/26/realestate/what-you-get-for-730000-in-california.html?searchResultPosition=8
 
 **Crypto’s Top V.C. Is Playing the Long Game**\
 `Katie Haun, a co-chair of Andreessen Horowitz’s new $2.2 billion crypto fund, is betting that the blockchain will be as big as the internet.`\
-https://nytimes.com/2021/06/26/business/dealbook/katie-haun-crypto.html?searchResultPosition=8
+https://nytimes.com/2021/06/26/business/dealbook/katie-haun-crypto.html?searchResultPosition=9
 
 **Amber Tamblyn: Britney Spears’s Raw Anger, and Mine**\
 `What I know about the toxic combination of money and fame for young women.`\
-https://nytimes.com/2021/06/26/opinion/britney-spears-amber-tamblyn.html?searchResultPosition=9
-
-**Engineer Warned of ‘Major Structural Damage’ at Florida Condo Complex**\
-`A consultant in 2018 urged the managers to repair cracked columns and crumbling concrete. The work was finally about to get underway when the building collapsed.`\
-https://nytimes.com/2021/06/26/us/miami-building-collapse-investigation.html?searchResultPosition=10
+https://nytimes.com/2021/06/26/opinion/britney-spears-amber-tamblyn.html?searchResultPosition=10
 
