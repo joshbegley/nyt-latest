@@ -18,17 +18,17 @@ https://nytimes.com/2021/06/26/world/americas/latin-america-pandemic-education.h
 `The business of cryopreservation — storing bodies at deep freeze until well into the future — got a whole lot more complicated during the pandemic.`\
 https://nytimes.com/2021/06/26/style/cryonics-freezing-bodies.html?searchResultPosition=5
 
+**They Came to Slay: L.G.B.T.Q. Trailblazers**\
+`These artists, activists, entrepreneurs and mentors have been leading the way and opening doors for other L.G.B.T.Q. people of color for more than 30 years. And they have no plans to stop.`\
+https://nytimes.com/2021/06/26/style/lgbtq-activists-artists-trailblazers.html?searchResultPosition=6
+
 **What Does Eric Adams, Working-Class Champion, Mean for the Democrats?**\
 `Mr. Adams, who ran a campaign focused on appealing to blue-collar Black and Latino voters, said America does not “want fancy candidates.”`\
-https://nytimes.com/2021/06/26/nyregion/what-does-eric-adams-working-class-champion-mean-for-the-democrats.html?searchResultPosition=6
+https://nytimes.com/2021/06/26/nyregion/what-does-eric-adams-working-class-champion-mean-for-the-democrats.html?searchResultPosition=7
 
 **Next Year, Brits Will Fly Abroad. For Now, It’s Bognor Bingo.**\
 `With flying discouraged, vacation spots that had been fading and unfashionable are having a moment.`\
-https://nytimes.com/2021/06/26/business/tourism-britain-coronavirus-bognor-regis.html?searchResultPosition=7
-
-**They Came to Slay: L.G.B.T.Q. Trailblazers**\
-`These artists, activists, entrepreneurs and mentors have been leading the way and opening doors for other L.G.B.T.Q. people of color for more than 30 years. And they have no plans to stop.`\
-https://nytimes.com/2021/06/26/style/lgbtq-activists-artists-trailblazers.html?searchResultPosition=8
+https://nytimes.com/2021/06/26/business/tourism-britain-coronavirus-bognor-regis.html?searchResultPosition=8
 
 **There Are Jobs in the Hamptons. If Only Workers Could Afford The Rent.**\
 `Unable to staff shifts, some restaurants and shops, already reeling from lockdown closures, are suspending service during the lucrative summer season.`\
