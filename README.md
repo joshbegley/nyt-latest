@@ -10,8 +10,8 @@ https://nytimes.com/2021/06/25/us/miami-collapsed-building-search-and-rescue.htm
 `Officer Michael Fanone, who was seriously injured by the pro-Trump mob, said he came away disappointed from his meeting with the top House Republican.`\
 https://nytimes.com/2021/06/25/us/kevin-mccarthy-capitol-riot-officer.html?searchResultPosition=3
 
-**Among the Missing: Retirees, Families and a Tourist on Her First Trip Abroad**\
-`Those unaccounted for after this week’s condominium collapse reflect Miami’s cultural and global reach, and the losses that may touch so many parts of the world.`\
+**Among the Missing: Retirees, Families and a Woman on Her First Trip Abroad**\
+`Those unaccounted for after this week’s condominium collapse reflect Miami’s cultural and global reach, losses that may touch so many parts of the world.`\
 https://nytimes.com/2021/06/25/us/missing-victims-miami-condo-collapse.html?searchResultPosition=4
 
 **Bipartisan Deal Would Only Meet Some of Nation’s Infrastructure Needs**\
