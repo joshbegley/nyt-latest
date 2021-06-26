@@ -35,6 +35,6 @@ https://nytimes.com/2021/06/26/style/cryonics-freezing-bodies.html?searchResultP
 https://nytimes.com/2021/06/26/style/lgbtq-activists-artists-trailblazers.html?searchResultPosition=9
 
 **What Does Eric Adams, Working-Class Champion, Mean for the Democrats?**\
-`Mr. Adams, who ran a campaign focused on appealing to blue-collar Black and Latino voters, said America does not “want fancy candidates.”`\
+`Mr. Adams, who ran a campaign focused on appealing to blue-collar Black and Latino voters, said America does not want “fancy candidates.”`\
 https://nytimes.com/2021/06/26/nyregion/what-does-eric-adams-working-class-champion-mean-for-the-democrats.html?searchResultPosition=10
 
