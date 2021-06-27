@@ -31,7 +31,7 @@ https://nytimes.com/2021/06/27/us/hope-for-survivors-is-quickly-fading-at-collap
 https://nytimes.com/2021/06/27/sports/baseball/yankees-red-sox-garrit-cole.html?searchResultPosition=8
 
 **Relief for Belgium Comes at Ronaldo’s Expense**\
-`A failed strategy sends defending champion Portugal out early at Euro 2020, and keeps alive the title hopes of Belgium’s golden generation.`\
+`A failed strategy sent defending champion Portugal out early at Euro 2020 and kept alive the title hopes of Belgium’s golden generation.`\
 https://nytimes.com/2021/06/27/sports/soccer/euro-2020-ronaldo-belgium-portugal.html?searchResultPosition=9
 
 **Frederic Rzewski, Politically Committed Composer and Pianist, Dies at 83**\
