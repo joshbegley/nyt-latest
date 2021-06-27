@@ -1,4 +1,4 @@
-**Track trials delayed for hours due to excessive heat.**\
+**Track trials delayed for hours because of excessive heat.**\
 `Several marquee finals are scheduled for today — or tonight, rather — including the men’s 1,500, the men’s 200 and the women’s 400 hurdles.`\
 https://nytimes.com/2021/06/27/sports/track-trials-postponed-heat.html?searchResultPosition=1
 
