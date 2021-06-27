@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/26/business/media/F9-fast-furious-film-movie-crowd.h
 https://nytimes.com/2021/06/26/crosswords/daily-puzzle-2021-06-27.html?searchResultPosition=8
 
 **‘Not My Intent’: How Biden’s Impromptu Comments Upended a Political Win**\
-`President Biden walked back his stray remarks in a bid to salvage what had been a signature success that could cement his legacy as a bipartisan deal maker.`\
+`President Biden walked back his stray remarks in a bid to salvage an infrastructure agreement that could cement his legacy as a bipartisan deal maker.`\
 https://nytimes.com/2021/06/26/us/politics/biden-infrastructure.html?searchResultPosition=9
 
 **Jeanne Lamon, Who Led an Early-Music Ensemble, Dies at 71**\
