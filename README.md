@@ -22,8 +22,8 @@ https://nytimes.com/2021/06/26/business/media/F9-fast-furious-film-movie-crowd.h
 `Ross Trudeau and Lindsey Hobbs conspire in vivid colors; we’ll find the right answers.`\
 https://nytimes.com/2021/06/26/crosswords/daily-puzzle-2021-06-27.html?searchResultPosition=7
 
-**Biden Walks Back Impromptu Comments That Imperiled Bipartisan Deal**\
-`The admission was an attempt by the White House to salvage what had been one of the signature successes for a president who hopes to cement a legacy as a bipartisan deal maker.`\
+**‘Not My Intent’: How Biden’s Impromptu Comments Upended a Political Win**\
+`President Biden’s attempts to deliver a bipartisan deal alongside a bold, progressive legislative package threatened to jeopardize his agenda.`\
 https://nytimes.com/2021/06/26/us/politics/biden-infrastructure.html?searchResultPosition=8
 
 **Jeanne Lamon, Who Led an Early-Music Ensemble, Dies at 71**\
