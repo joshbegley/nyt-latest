@@ -1,40 +1,40 @@
+**Why rescuers appear to move so slowly at the collapsed building near Miami.**\
+`The dangers to the rescuers and missing residents are clear and dictate that the process must be slow and deliberate, experts and officials say.`\
+https://nytimes.com/2021/06/27/us/rescuers-miami-beach-building-collapse.html?searchResultPosition=1
+
 **Meeting Blinken, Israel’s Top Diplomat Aims to Fix Netanyahu ‘Mistakes’**\
 `Israel’s foreign minister, Yair Lapid, is determined to repair his government’s fraught relationship with Washington Democrats, but he does not necessarily speak for his own right-wing prime minister, Naftali Bennett.`\
-https://nytimes.com/2021/06/27/world/middleeast/Antony-Blinken-Israel-Yair-Lapid.html?searchResultPosition=1
+https://nytimes.com/2021/06/27/world/middleeast/Antony-Blinken-Israel-Yair-Lapid.html?searchResultPosition=2
 
 **Pacific Northwest Bakes in Heat Dome That Is Behind Record Temperatures**\
 `A high of 102 degrees was recorded on Saturday at Seattle-Tacoma International Airport, only the third time since 1945 that the high reached triple digits, the National Weather Service said.`\
-https://nytimes.com/2021/06/27/us/heat-wave-seattle-portland.html?searchResultPosition=2
+https://nytimes.com/2021/06/27/us/heat-wave-seattle-portland.html?searchResultPosition=3
 
 **Infrastructure Deal Is Back on Track After Biden’s Assurances**\
 `Moderate Republicans said they believed that the $1.2 trillion bill, which they suggested they could now begin drafting, would have enough G.O.P. support to pass the Senate.`\
-https://nytimes.com/2021/06/27/us/politics/infrastructure-republicans-biden.html?searchResultPosition=3
+https://nytimes.com/2021/06/27/us/politics/infrastructure-republicans-biden.html?searchResultPosition=4
 
 **Heavy Rains Flood Detroit Roadways**\
 `Officials said about 50 drivers were rescued after hundreds of vehicles became stranded on flooded freeways in parts of Detroit and Wayne County, Mich., early on Saturday.`\
-https://nytimes.com/video/us/100000007837446/detroit-roads-flooding.html?searchResultPosition=4
+https://nytimes.com/video/us/100000007837446/detroit-roads-flooding.html?searchResultPosition=5
 
 **Russian Mercenaries Are Driving War Crimes in Africa, U.N. Says**\
 `An investigative report says that Russian operatives in the Central African Republic who had been billed as unarmed advisers are actually leading the fighting, including massacres of civilians.`\
-https://nytimes.com/2021/06/27/world/asia/russia-mercenaries-central-african-republic.html?searchResultPosition=5
+https://nytimes.com/2021/06/27/world/asia/russia-mercenaries-central-african-republic.html?searchResultPosition=6
 
 **‘You Beat My Record, Bro’: Notable Performances at the U.S. Track Trials**\
 `Donavan Brazier failed to qualify, Abbey Cooper took a big gamble, Elle Purrier St. Pierre recovered from a near fall and Raven Saunders lived up to her “Hulk” nickname.`\
-https://nytimes.com/2021/06/27/sports/olympics/team-usa-track-field-qualifiers.html?searchResultPosition=6
+https://nytimes.com/2021/06/27/sports/olympics/team-usa-track-field-qualifiers.html?searchResultPosition=7
 
 **Condo Collapse Death Toll Rises to Nine as Crews Continue Search**\
 `Mayor Daniella Levine Cava of Miami-Dade County said on Sunday that four additional bodies and other human remains were recovered overnight in the debris of the Surfside, Fla., condominium that collapsed on Thursday.`\
-https://nytimes.com/video/us/100000007837442/miami-surfside-collapse-death-toll.html?searchResultPosition=7
+https://nytimes.com/video/us/100000007837442/miami-surfside-collapse-death-toll.html?searchResultPosition=8
 
 **Where Jobless Benefits Were Cut, Jobs Are Still Hard to Fill**\
 `Missouri scrapped federal pay to the unemployed, saying it kept people out of the labor market. But so far, workers still seem to be choosy.`\
-https://nytimes.com/2021/06/27/business/economy/jobs-workers-unemployment-benefits.html?searchResultPosition=8
+https://nytimes.com/2021/06/27/business/economy/jobs-workers-unemployment-benefits.html?searchResultPosition=9
 
 **Hiatus Kaiyote’s Life-Affirming, Genre-Defying Cosmic Soul**\
 `In the six years between the Australian band’s albums, its singer and guitarist, Naomi Saalfield, was treated for breast cancer, and recovered.`\
-https://nytimes.com/2021/06/27/arts/music/hiatus-kaiyote-mood-valiant.html?searchResultPosition=9
-
-**Helping Drug Users Survive, Not Abstain: ‘Harm Reduction’ Gains Federal Support**\
-`Overdoses have surged during the pandemic. Now, for the first time, Congress has appropriated funds specifically for programs that distribute clean syringes and other supplies meant to protect users.`\
-https://nytimes.com/2021/06/27/health/overdose-harm-reduction-covid.html?searchResultPosition=10
+https://nytimes.com/2021/06/27/arts/music/hiatus-kaiyote-mood-valiant.html?searchResultPosition=10
 
