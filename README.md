@@ -31,7 +31,7 @@ https://nytimes.com/2021/06/27/us/rescuers-miami-beach-building-collapse.html?se
 https://nytimes.com/2021/06/27/world/middleeast/Antony-Blinken-Israel-Yair-Lapid.html?searchResultPosition=8
 
 **Pacific Northwest Heat Wave Sets Record Temperatures**\
-`A high of 102 degrees was recorded on Saturday at Seattle-Tacoma International Airport, only the third time since 1945 that the high reached triple digits, the National Weather Service said.`\
+`It reached 110 degrees at Portland International Airport in Oregon on Sunday. That was the highest temperature recorded there since historical records began in 1940, forecasters said.`\
 https://nytimes.com/2021/06/27/us/heat-wave-seattle-portland.html?searchResultPosition=9
 
 **Infrastructure Deal Is Back on Track After Biden’s Assurances**\
