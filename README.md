@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/27/nyregion/new-jersey-valedictorian-lgbtq-speech.ht
 https://nytimes.com/2021/06/27/us/death-toll-rises-surfside.html?searchResultPosition=4
 
 **Surfside’s mayor says search teams ‘don’t have a resource problem, we’ve had a luck problem.’**\
-`Mayor Charles Burkett said that officials were focusing all efforts on search and rescue and that answers about structural problems would come later.`\
+`Mayor Charles W. Burkett said that officials were focusing all efforts on search and rescue and that answers about structural problems would come later.`\
 https://nytimes.com/2021/06/27/us/surfside-luck-search-collapse.html?searchResultPosition=5
 
 **Talking With Children About Race and Sex**\
