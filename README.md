@@ -2,7 +2,7 @@
 `Criminal justice advocates say the pandemic offers a case study for a different type of punitive system in America, one that relies far less on incarceration.`\
 https://nytimes.com/2021/06/27/us/politics/biden-prison-coronavirus.html?searchResultPosition=1
 
-**Gervonta Davis’s Win Was Its Own Novelty: A True Test of Undefeateds**\
+**Gervonta Davis’s Win Was Itself a Novelty: A True Test of Undefeateds**\
 `Davis won an old-school, high-stakes matchup at a time when boxing is figuring out whether a recent wave of popular novelty fights will boost the sport or threaten it.`\
 https://nytimes.com/2021/06/27/sports/gervonta-davis-mario-barrios-wba.html?searchResultPosition=2
 
