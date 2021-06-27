@@ -1,5 +1,5 @@
 **U.S. Carries Out Airstrikes in Iraq and Syria**\
-`The attacks were against weapons storage facilities used by Iranian-backed militias to conduct drone strikes against locations where American military are.`\
+`The attacks were against weapons storage facilities used by Iranian-backed militias to conduct drone strikes against locations where the American military is.`\
 https://nytimes.com/2021/06/27/us/politics/us-airstrikes-iraq-syria.html?searchResultPosition=1
 
 **Possible Failure Point Emerges in Miami Building Collapse**\
