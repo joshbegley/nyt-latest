@@ -1,5 +1,5 @@
 **‘You Beat My Record, Bro’: Notable Performances at the U.S. Track Trials**\
-`Donavan Brazier fails to qualify, Abbey Cooper takes a big gamble, Elle Purrier St. Pierre recovers from a near fall and Raven Saunders lives up to her “Hulk” nickname.`\
+`Donavan Brazier failed to qualify, Abbey Cooper took a big gamble, Elle Purrier St. Pierre recovered from a near fall and Raven Saunders lived up to her “Hulk” nickname.`\
 https://nytimes.com/2021/06/27/sports/olympics/team-usa-track-field-qualifiers.html?searchResultPosition=1
 
 **Condo Collapse Death Toll Rises to Nine as Crews Continue Search**\
@@ -22,7 +22,7 @@ https://nytimes.com/2021/06/27/health/overdose-harm-reduction-covid.html?searchR
 `The principal also took away the valedictorian’s prepared remarks, so the student recited the speech from memory.`\
 https://nytimes.com/2021/06/27/nyregion/new-jersey-valedictorian-lgbtq-speech.html?searchResultPosition=6
 
-**The death toll rises to nine at site of collapsed building.**\
+**Rescuers find more bodies at Surfside building site as hope of discovering survivors dwindles.**\
 `More bodies and remains were recovered when rescuers began to dig a trench into the pile of debris overnight.`\
 https://nytimes.com/2021/06/27/us/death-toll-rises-surfside.html?searchResultPosition=7
 
