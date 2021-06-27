@@ -10,7 +10,7 @@ https://nytimes.com/2021/06/27/us/rescuers-miami-beach-building-collapse.html?se
 `Israel’s foreign minister, Yair Lapid, is determined to repair his government’s fraught relationship with Washington Democrats, but he does not necessarily speak for his own right-wing prime minister, Naftali Bennett.`\
 https://nytimes.com/2021/06/27/world/middleeast/Antony-Blinken-Israel-Yair-Lapid.html?searchResultPosition=3
 
-**Pacific Northwest Bakes in Heat Dome That Is Behind Record Temperatures**\
+**Pacific Northwest Heat Wave Sets Record Temperatures**\
 `A high of 102 degrees was recorded on Saturday at Seattle-Tacoma International Airport, only the third time since 1945 that the high reached triple digits, the National Weather Service said.`\
 https://nytimes.com/2021/06/27/us/heat-wave-seattle-portland.html?searchResultPosition=4
 
