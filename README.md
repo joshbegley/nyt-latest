@@ -27,7 +27,7 @@ https://nytimes.com/2021/06/27/business/media/an-accusation-blew-up-a-campaign-t
 https://nytimes.com/2021/06/27/sports/tennis/wimbledon-danielle-lao.html?searchResultPosition=7
 
 **A Final Word Before Mr. Bezos Blasts Off**\
-`Mr. Bezos has a complicated legacy of towering ambition, extraordinary success, unimaginable personal wealth and a scorched earth business approach`\
+`Mr. Bezos has a complicated legacy of towering ambition, extraordinary success, unimaginable personal wealth and a scorched earth business approach.`\
 https://nytimes.com/2021/06/27/opinion/jeff-bezos-amazon-ceo.html?searchResultPosition=8
 
 **For the Revitalized Islanders, Another ‘Heartache,’ Another Almost**\
