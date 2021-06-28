@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/28/sports/noah-lyles-erriyon-knighton.html?searchResultPosition=1
 
 **Cole Hocker outkicks Matthew Centrowitz in the 1500-meters.**\
-`By Talya Minsberg`\
+`By Scott Cacciola`\
 https://nytimes.com/2021/06/28/sports/cole-hocker-matthew-centrowitz.html?searchResultPosition=2
 
 **What’s on TV This Week: ‘The People vs. Agent Orange’ and Macy’s Fireworks**\
