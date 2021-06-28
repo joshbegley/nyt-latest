@@ -1,40 +1,40 @@
-**He Felt Like Running: 100 Days, 100 Ironman-Length Triathlons**\
-`James Lawrence completed 100 Ironman-distance races in 100 days. He brought a whole community — and a nonprofit that has come under scrutiny — along with him.`\
-https://nytimes.com/2021/06/28/sports/iron-cowboy-endurance.html?searchResultPosition=1
+**Inside a Turkish Camel-Wrestling Festival**\
+`Held annually on the country’s Aegean coast, the Selcuk camel-wrestling festival is part of a nomadic legacy rooted in ancient Turkic tribes.`\
+https://nytimes.com/2021/06/28/travel/turkey-camel-wrestling.html?searchResultPosition=1
 
-**Black Workers Stopped Making Progress on Pay. Is It Racism?**\
-`Economists are grappling with how much to blame bias or a changing economy for the widening wage gap over the last 40 years.`\
-https://nytimes.com/2021/06/28/business/economy/black-workers-racial-pay-gap.html?searchResultPosition=2
+**The Mike Pence Saga Tells Us More Than We Want to Know**\
+`But he is not the only politician who shows which way the wind is blowing. `\
+https://nytimes.com/2021/06/28/opinion/trump-pence-biden-eric-adams.html?searchResultPosition=2
 
-**Noah Lyles wins again. Erriyon Knighton wasn’t far behind.**\
-`By Kevin Draper`\
-https://nytimes.com/2021/06/28/sports/noah-lyles-erriyon-knighton.html?searchResultPosition=3
+**An Unmarried Catholic Schoolteacher Got Pregnant. She Was Fired.**\
+`A lawsuit that she filed in New Jersey is testing the First Amendment limits of religious freedom.`\
+https://nytimes.com/2021/06/28/nyregion/pregnant-catholic-school-teacher.html?searchResultPosition=3
 
-**Cole Hocker outkicks Matthew Centrowitz in the 1500-meters.**\
-`By Scott Cacciola`\
-https://nytimes.com/2021/06/28/sports/cole-hocker-matthew-centrowitz.html?searchResultPosition=4
+**Why Young Adults Are Among the Biggest Barriers to Mass Immunity**\
+`Many young adults are foregoing Covid vaccines for a complex mix of reasons. Health officials are racing to find ways to change their minds.`\
+https://nytimes.com/2021/06/28/us/covid-vaccine-young-adults.html?searchResultPosition=4
 
-**What’s on TV This Week: ‘The People vs. Agent Orange’ and Macy’s Fireworks**\
-`PBS airs a documentary about the enduring effects of Agent Orange. And the Macy’s annual fireworks display returns to New York in full force.`\
-https://nytimes.com/2021/06/28/arts/television/whats-on-tv-this-week-macys-fireworks.html?searchResultPosition=5
+**Shopping for Grilling Tools**\
+`If you’re planning to do some grilling this summer, you’ll need the right tools. Here are the basics.`\
+https://nytimes.com/2021/06/28/realestate/shopping-for-grilling-tools.html?searchResultPosition=5
 
-**Athing Mu easily wins the 800-meter race.**\
-`By Kevin Draper`\
-https://nytimes.com/2021/06/28/sports/athing-mu-tokyo-olympics.html?searchResultPosition=6
+**A Woman’s Guide to Making the Most of Social Security**\
+`Women tend to live longer than men, so they need as much retirement income as possible. Whether you’re 30 or 60, here’s what you need to know.`\
+https://nytimes.com/2021/06/28/business/retirement/women-social-security-retirement.html?searchResultPosition=6
 
-**No Corrections: June 28, 2021**\
-`No corrections appeared in print on Monday, June 28, 2021.`\
-https://nytimes.com/2021/06/28/pageoneplus/no-corrections-june-28-2021.html?searchResultPosition=7
+**Air Pollution’s Invisible Toll on Your Health**\
+`Children, pregnant women, the elderly and those with pre-existing heart or lung disease are the most vulnerable.`\
+https://nytimes.com/2021/06/28/well/live/air-pollution-health.html?searchResultPosition=7
 
-**Sydney McLaughlin sets a new world record in the 400-meter hurdles.**\
-`In one of the most anticipated finals of the trials, Sydney McLaughlin outsprinted Dalilah Muhammad to win the women’s 400-meter hurdles.`\
-https://nytimes.com/2021/06/28/sports/sydney-mclaughlin-Dalilah-Muhammad.html?searchResultPosition=8
+**Pfizer and Moderna Vaccines Are Likely to Produce Long-Lasting Immunity, Study Suggests**\
+`Close examinations of more than a dozen vaccinated people found that immune cells were still organizing to fight the coronavirus months after inoculation.`\
+https://nytimes.com/2021/06/28/health/coronavirus-vaccines-immunity.html?searchResultPosition=8
 
-**Crossing the Red Line: Behind China’s Takeover of Hong Kong**\
-`One year ago, the city’s freedoms were curtailed with breathtaking speed. But the clampdown was years in the making, and many signals were missed.`\
-https://nytimes.com/2021/06/28/world/asia/china-hong-kong-security-law.html?searchResultPosition=9
+**‘I’m Easily Bored by Books,’ Says Writer of 22 Novels**\
+`The latest from the aptly named Francine Prose is “The Vixen,” a surprisingly funny tale involving Ethel Rosenberg and the C.I.A.`\
+https://nytimes.com/2021/06/28/books/francine-prose-vixen.html?searchResultPosition=9
 
-**Teenage Ballers Can Cash in Earlier Than Ever. But at What Cost?**\
-`Male players as young as 16 have many options to play high-level basketball before the N.B.A. without going to college — and get paid big money to do it.`\
-https://nytimes.com/2021/06/28/sports/basketball/overtime-elite-g-league-ignite.html?searchResultPosition=10
+**Dear Class of 2021: Don’t Do Your Homework. Live Your Life.**\
+`Kara Swisher with a lesson for young people on the value of risk-taking and digital responsibility.`\
+https://nytimes.com/2021/06/28/opinion/covid-graduation-apple-steve-jobs.html?searchResultPosition=10
 
