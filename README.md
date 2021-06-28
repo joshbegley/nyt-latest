@@ -1,4 +1,4 @@
-**Read the document**\
+**Read the Petition to N.J. Supreme Court**\
 `St. Theresa School argued in a court document that it was the school’s First Amendment right to fire the pregnant teacher.`\
 https://nytimes.com/interactive/2021/06/28/nyregion/petition-nj-supreme-court.html?searchResultPosition=1
 
