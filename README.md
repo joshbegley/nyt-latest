@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2021/06/28/nyregion/petition-nj-supreme-court.ht
 https://nytimes.com/2021/06/28/nyregion/nyc-pride-photos.html?searchResultPosition=2
 
 **Ditch Marinating for Delicious (and Faster) Summer Grilling**\
-`Quickly cook main ingredients over direct heat, then flavor afterward with bright, fresh seasonings.`\
+`Quickly cook main ingredients over direct heat, then flavor them with bright, fresh seasonings.`\
 https://nytimes.com/2021/06/28/dining/summer-grilling-ideas-steps.html?searchResultPosition=3
 
 **The Largest Comet Ever Found Is Making Its Move Into a Sky Near You**\
