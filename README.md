@@ -12,7 +12,7 @@ https://nytimes.com/2021/06/28/world/australia/sydney-australia-coronavirus-delt
 
 **Trump’s Lawyers Make Late Bid to Fend Off Charges Against His Business**\
 `An indictment against the business, the Trump Organization, and a top executive, Allen Weisselberg, could come as soon as this week in Manhattan.`\
-https://nytimes.com/2021/06/28/business/trump-organization-charges.html?searchResultPosition=4
+https://nytimes.com/2021/06/28/nyregion/trump-organization-charges.html?searchResultPosition=4
 
 **The Right Goes All In on Ignorance**\
 `Why Tucker Carlson called General Milley a pig.`\
