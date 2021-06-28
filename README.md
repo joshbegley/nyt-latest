@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/27/opinion/jeff-bezos-amazon-ceo.html?searchResultPo
 https://nytimes.com/2021/06/27/sports/hockey/nhl-islanders-barry-trotz-playoffs.html?searchResultPosition=6
 
 **U.S. Carries Out Airstrikes in Iraq and Syria**\
-`The attacks were against weapons storage facilities used by Iranian-backed militias to conduct drone strikes against locations where the American military is.`\
+`The attacks were against weapons storage facilities used by Iranian-backed militias that the Pentagon said had conducted drone strikes against places in Iraq where American troops, spies and diplomats were located.`\
 https://nytimes.com/2021/06/27/us/politics/us-airstrikes-iraq-syria.html?searchResultPosition=7
 
 **Possible Failure Point Emerges in Miami Building Collapse**\
