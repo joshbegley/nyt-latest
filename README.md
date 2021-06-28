@@ -2,8 +2,8 @@
 `Baghdad said the attacks overnight were a violation of its sovereignty. One of the targeted militias threatened to wage “open war” on American interests in Iraq.`\
 https://nytimes.com/2021/06/28/world/middleeast/iraq-us-airstrikes-militias-iran.html?searchResultPosition=1
 
-**Lawmakers Sue N.Y.P.D., Saying They Were Pepper-Sprayed and Beaten**\
-`State Senator Zellnor Myrie and Assemblywoman Diana Richardson say police used illegal tactics against them during last year’s protests.`\
+**Lawmakers Sue N.Y.P.D., Saying They Were Beaten With Bicycles at Protest**\
+`State Senator Zellnor Myrie and Assemblywoman Diana Richardson say they were assaulted and pepper-sprayed by the police during last year’s Black Lives Matter protests.`\
 https://nytimes.com/2021/06/28/nyregion/zellnor-myrie-diana-richardson-lawsuit-nypd-protests.html?searchResultPosition=2
 
 **Escapist, Easygoing Pieces for Unstructured Days**\
