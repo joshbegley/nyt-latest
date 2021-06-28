@@ -18,9 +18,9 @@ https://nytimes.com/2021/06/28/nyregion/gateway-tunnel-ny-nj.html?searchResultPo
 `Xavier Becerra urged Congress to overhaul the nation’s immigration system after visiting an emergency shelter for migrant children.`\
 https://nytimes.com/2021/06/28/us/politics/xavier-becerra-fort-bliss-immigration.html?searchResultPosition=5
 
-**The Day Euro 2020 Came Alive**\
+**France Falls and Spain Survives on the Day Euro 2020 Came Alive**\
 `Spain was cruising against Croatia, until suddenly it wasn’t. France was out, then back in, then out for good after a penalty shootout against Switzerland.`\
-https://nytimes.com/2021/06/28/sports/soccer/the-day-euro-2020-came-alive.html?searchResultPosition=6
+https://nytimes.com/2021/06/28/sports/soccer/france-falls-and-spain-survives-on-the-day-euro-2020-came-alive.html?searchResultPosition=6
 
 **Three Studies, One Result: Vaccines Point the Way Out of the Pandemic**\
 `New scientific research underscores the effectiveness of vaccines and their versatility in the fight against the coronavirus.`\
