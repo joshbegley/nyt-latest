@@ -15,7 +15,7 @@ https://nytimes.com/2021/06/28/world/americas/canada-day-indigenous-graves.html?
 https://nytimes.com/2021/06/28/business/economy/lumber-prices-canadian-trade.html?searchResultPosition=4
 
 **Judge Throws Out State and Federal Cases Against Facebook**\
-`The judge, James E. Boasberg, said that the Federal Trade Commission’s complaint lacked facts, and that the agency needed to refile the it within 30 days.`\
+`The judge, James E. Boasberg, said that the Federal Trade Commission’s complaint lacked facts, and that the agency needed to refile it within 30 days.`\
 https://nytimes.com/2021/06/28/technology/facebook-ftc-lawsuit.html?searchResultPosition=5
 
 **A Black Scholar’s Path From Drug Dealing to ‘30 Under 30’**\
