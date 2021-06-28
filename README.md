@@ -6,8 +6,8 @@ https://nytimes.com/2021/06/28/movies/helen-mirren-vin-diesel-f9.html?searchResu
 `Heeding calls from Indigenous people, some places have canceled plans to mark the holiday, after hundreds of children’s remains were discovered at former boarding schools for Indigenous children.`\
 https://nytimes.com/2021/06/28/world/americas/canada-day-indigenous-graves.html?searchResultPosition=2
 
-**High Lumber Prices Bring New Urgency to Old Trade Fight**\
-`Facing high costs for wood, home builders want the Biden administration to settle a long-running trade dispute over Canadian lumber imports. It won’t be easy.`\
+**High Lumber Prices Add Urgency to a Decades-Old Trade Fight**\
+`Forced to pay more for wood, home builders want the Biden administration to settle a long-running dispute over Canadian imports. It won’t be easy.`\
 https://nytimes.com/2021/06/28/business/economy/lumber-prices-canadian-trade.html?searchResultPosition=3
 
 **A federal judge says an F.T.C. complaint against Facebook lacks facts.**\
