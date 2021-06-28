@@ -1,40 +1,40 @@
+**Facebook Goes Boring. Yes!**\
+`Bringing the rest of the world online requires a million different tactics, and Facebook is on it.`\
+https://nytimes.com/2021/06/28/technology/facebook-internet-access.html?searchResultPosition=1
+
+**Video Shows Dramatic Crash at Tour de France**\
+`A Tour de France spectator on the side of the road held up a sign that hit the German rider Tony Martin. He fell and caused a pile-up of dozens of more riders. The French police are looking for the spectator.`\
+https://nytimes.com/video/world/europe/100000007838739/tour-de-france-crash.html?searchResultPosition=2
+
+**Campus in Hungary is Flagship of Orban’s Bid to Create a Conservative Elite**\
+`A residential college was granted about $1.7 billion by Prime Minister Viktor Orban, part of his plan to create a more nationalistic society. Critics say it is legalized theft of public funds.`\
+https://nytimes.com/2021/06/28/world/europe/hungary-orban-university.html?searchResultPosition=3
+
+**At Nearly 116 Degrees, Heat in Western Canada Shatters National Record**\
+`The heat is expected to continue for several days in some parts of British Columbia, according to Environment Canada weather warnings.`\
+https://nytimes.com/2021/06/28/world/canada/canada-heat-wave-record.html?searchResultPosition=4
+
 **Read the Petition to N.J. Supreme Court**\
 `St. Theresa School argued in a court document that it was the school’s First Amendment right to fire the pregnant teacher.`\
-https://nytimes.com/interactive/2021/06/28/nyregion/petition-nj-supreme-court.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/06/28/nyregion/petition-nj-supreme-court.html?searchResultPosition=5
 
 **Pride Parties and Protests Bring Excitement Back to N.Y.C. Streets**\
 `After a more cautious Pride last year, many New Yorkers were eager to be together again: “Bro, the energy is amazing.”`\
-https://nytimes.com/2021/06/28/nyregion/nyc-pride-photos.html?searchResultPosition=2
+https://nytimes.com/2021/06/28/nyregion/nyc-pride-photos.html?searchResultPosition=6
 
 **Ditch Marinating for Delicious (and Faster) Summer Grilling**\
 `Quickly cook main ingredients over direct heat, then flavor them with bright, fresh seasonings.`\
-https://nytimes.com/2021/06/28/dining/summer-grilling-ideas-steps.html?searchResultPosition=3
+https://nytimes.com/2021/06/28/dining/summer-grilling-ideas-steps.html?searchResultPosition=7
 
 **The Largest Comet Ever Found Is Making Its Move Into a Sky Near You**\
 `By 2031, you may be able to spot the icy object in night skies with a good telescope.`\
-https://nytimes.com/2021/06/28/science/comet-largest-ever-seen.html?searchResultPosition=4
+https://nytimes.com/2021/06/28/science/comet-largest-ever-seen.html?searchResultPosition=8
 
 **The Translucent History of Wine**\
 `The Corning Museum of Glass in western New York features a new exhibition on wine.`\
-https://nytimes.com/2021/06/28/dining/wine-history.html?searchResultPosition=5
+https://nytimes.com/2021/06/28/dining/wine-history.html?searchResultPosition=9
 
 **Cocktail Bites With a European Twist**\
 `Cheesy gratins are the latest in Savorly’s line of frozen hors d’oeuvres.`\
-https://nytimes.com/2021/06/28/dining/savorly.html?searchResultPosition=6
-
-**An Everyday Upgrade to Your Dinner Table**\
-`Bklyn Clay has added a pop of color to its dinnerware line.`\
-https://nytimes.com/2021/06/28/dining/bklyn-clay-made-saturn-dinnerware.html?searchResultPosition=7
-
-**Olivia Rodrigo’s ‘Sour’ Returns to No. 1, Four Weeks Later**\
-`The Disney star’s debut album circles back to the top of the Billboard 200 with the equivalent of 105,000 sales in the United States.`\
-https://nytimes.com/2021/06/28/arts/music/olivia-rodrigo-sour-billboard-chart.html?searchResultPosition=8
-
-**Gin from Cachaça Country**\
-`Amázzoni makes use of the Brazil nut and cocoa in its London dry-style spirit.`\
-https://nytimes.com/2021/06/28/dining/drinks/gin-brazil.html?searchResultPosition=9
-
-**The Supreme Court won’t hear a case challenging transgender bathroom rights.**\
-`An appeals court had ruled that a Virginia school board’s policy barring a transgender boy from using the boys’ bathroom was unlawful.`\
-https://nytimes.com/2021/06/28/us/politics/supreme-court-transgender-bathroom-rights.html?searchResultPosition=10
+https://nytimes.com/2021/06/28/dining/savorly.html?searchResultPosition=10
 
