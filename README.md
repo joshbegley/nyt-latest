@@ -1,5 +1,5 @@
 **Gunfire in Times Square on a Weekend Afternoon Leaves a Man Wounded**\
-`The man, who was shot once in the back, was listed in stable condition at Bellevue Hospital, the police said.`\
+`The man, who was struck once in the back by a stray bullet, was listed in stable condition at Bellevue Hospital, the police said.`\
 https://nytimes.com/2021/06/27/nyregion/shooting-times-square-new-york.html?searchResultPosition=1
 
 **Migrants on U.S. Border Share Journey in Self-Portraits**\
