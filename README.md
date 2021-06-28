@@ -11,7 +11,7 @@ https://nytimes.com/2021/06/28/opinion/race-america-defund-police.html?searchRes
 https://nytimes.com/2021/06/28/briefing/hong-kong-anniversary-mrna-vaccines.html?searchResultPosition=3
 
 **Honk if Helen Mirren and Vin Diesel Should Have Kissed in ‘F9’**\
-`The Oscar winner’s cameo involves a car chase and some crackling chemistry. But could things turn romantic? We put the question to the actress herself.`\
+`The Oscar winner’s cameo involves a car chase and some crackling chemistry. But could things turn romantic? We put the question to Mirren herself.`\
 https://nytimes.com/2021/06/28/movies/helen-mirren-vin-diesel-f9.html?searchResultPosition=4
 
 **After Bodies Are Found, Some Say Canada Day Is Nothing to Celebrate**\
