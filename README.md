@@ -1,4 +1,4 @@
-**A federal judge says an F.T.C. complaint against facebook lacks facts.**\
+**A federal judge says an F.T.C. complaint against Facebook lacks facts.**\
 `The judge, James E. Boasberg, said that the case was not dismissed. But he said that the agency needed to refile the complaint within 30 days.`\
 https://nytimes.com/2021/06/28/technology/facebook-ftc-lawsuit.html?searchResultPosition=1
 
