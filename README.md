@@ -1,5 +1,5 @@
 **5 First-Time Olympians to Watch in Tokyo**\
-`Here are a few track and field Olympians to know.`\
+`Here are a few track and field Olympians to know. `\
 https://nytimes.com/interactive/2021/06/28/sports/olympics/olympic-track-trials.html?searchResultPosition=1
 
 **John Clem Clarke, Painter in SoHo for Five Decades, Dies at 83**\
