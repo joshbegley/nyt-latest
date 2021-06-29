@@ -23,7 +23,7 @@ https://nytimes.com/2021/06/29/opinion/heat-dome-climate-change.html?searchResul
 https://nytimes.com/2021/06/29/world/africa/ethiopia-eritrea-tigray-conflict.html?searchResultPosition=6
 
 **‘Nobody’s Giving Up Hope Here’: Surfside Officials Provide Update**\
-`City officials provided an update on the Surfside Condo collapse and the ongoing effort to locate the victims. In their update, officials discussed current difficulties in their rescue effort`\
+`City officials provided an update on the Surfside Condo collapse and the ongoing effort to locate the victims. In their update, officials discussed current difficulties in their rescue effort.`\
 https://nytimes.com/video/us/politics/100000007841365/miami-condo-collapse-update.html?searchResultPosition=7
 
 **Tiny Love Stories: ‘She Adored Having a Gay Son’**\
