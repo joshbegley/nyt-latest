@@ -23,7 +23,7 @@ https://nytimes.com/interactive/2021/06/29/nyregion/29njgaybars-2-doc.html?searc
 https://nytimes.com/interactive/2021/06/29/nyregion/29njgaybars-1-doc.html?searchResultPosition=6
 
 **Here are the antitrust arguments against Facebook and why a judge rejected them.**\
-`A federal judge said the Federal Trade Commission had not made its case that Facebook holds a monopoly over social networking. And he said states had waited too long to sue.`\
+`A federal judge said the Federal Trade Commission had not made its case that Facebook held a monopoly over social networking. And he said states had waited too long to sue.`\
 https://nytimes.com/2021/06/29/business/facebook-antitrust-arguments.html?searchResultPosition=7
 
 **New York’s Lesson for Democrats**\
