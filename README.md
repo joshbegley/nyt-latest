@@ -20,7 +20,7 @@ https://nytimes.com/2021/06/29/business/media/fox-news-fined-sexual-harassment.h
 
 **Watch Live: Florida Officials Provide Search and Rescue Update**\
 `Local officials hold a news conference discussing the ongoing search for people unaccounted for after the collapse of the Surfside, Fla., condominium tower.`\
-https://nytimes.com/video/us/100000007841800/surfside-condo-collapse-live-video.html?searchResultPosition=6
+https://nytimes.com/video/embedded/us/100000007841800/surfside-condo-collapse-live-video.html?searchResultPosition=6
 
 **Britney Spears and the Last Resort of Mental Health Care**\
 `When it comes to involuntary treatment, the  line between life-saving and abusive can be thin.`\
