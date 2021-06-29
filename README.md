@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000007841800/surfside-condo-collapse-live-video.
 https://nytimes.com/2021/06/29/opinion/britney-spears-conservatorship.html?searchResultPosition=3
 
 **What to Know About the Heat Wave**\
-`The triple-digit temperatures in Oregon, Washington State and Canada have been exacerbated by an intense drought.`\
+`The recent triple-digit temperatures in Oregon, Washington State and Canada were exacerbated by an intense drought.`\
 https://nytimes.com/2021/06/29/us/heat-wave-cause.html?searchResultPosition=4
 
 **Caveh Zahedi Has So Many Stories to Tell**\
