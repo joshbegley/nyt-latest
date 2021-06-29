@@ -1,5 +1,5 @@
 **No. 3 House Democrat Steps Into Ohio Race to Head Off a Sanders Acolyte**\
-`The decision by Representative James Clyburn to back an outspoken ally of Senator Bernie Sanders in a special election in Cleveland highlights the generational and ideological gulf in the Democratic Party.`\
+`The decision by Representative James Clyburn to oppose an outspoken ally of Senator Bernie Sanders in a special election in Cleveland highlights the generational and ideological gulf in the Democratic Party.`\
 https://nytimes.com/2021/06/29/us/politics/jim-clyburn-nina-turner.html?searchResultPosition=1
 
 **Your Wednesday Briefing**\
