@@ -1,9 +1,9 @@
 **Read the document**\
-`NJ attorney general Gurbir Singh Grewal is trying to right old wrongs related to the enforcement of liquor laws at gay bars as a pretext for discriminating against gay patrons.`\
+`A “bulletin” from 1939 describes the reasons a bar in Newark had its liquor license suspended for a month.`\
 https://nytimes.com/interactive/2021/06/29/nyregion/29njgaybars-2-doc.html?searchResultPosition=1
 
 **Read the document**\
-`NJ attorney general Gurbir Singh Grewal is trying to right old wrongs related to the enforcement of liquor laws at gay bars as a pretext for discriminating against gay patrons.`\
+`A bar in Paterson, N.J., lost its liquor license in 1955 after inspectors concluded that owners “suffered female impersonators” on eight occasions.`\
 https://nytimes.com/interactive/2021/06/29/nyregion/29njgaybars-1-doc.html?searchResultPosition=2
 
 **Here are the antitrust arguments against Facebook and why a judge rejected them.**\
