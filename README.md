@@ -1,4 +1,4 @@
-**Eric Adams’s Lead in Mayor’s Race Shrinks After Ranked-Choice Tally**\
+**Eric Adams’s Lead in Mayor’s Race Shrinks After First Ranked-Choice Tally**\
 `After voters’ ranked choices were tabulated, Mr. Adams led Kathryn Garcia by two percentage points, with nearly 125,000 absentee ballots still to be counted.`\
 https://nytimes.com/2021/06/29/nyregion/adams-garcia-wiley-mayor-ranked-choice.html?searchResultPosition=1
 
