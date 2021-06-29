@@ -3,7 +3,7 @@
 https://nytimes.com/2021/06/29/arts/music/ellen-mcilwaine-dead.html?searchResultPosition=1
 
 **Serena Williams Exits Wimbledon With a Leg Injury**\
-`Williams started her first-round match against Aliaksandra Sasnovich aggressively, but she slipped on the grass court and later fell, before retiring.`\
+`Williams started her first-round match against Aliaksandra Sasnovich aggressively, but she slipped on the grass court and later fell, before leaving the match.`\
 https://nytimes.com/2021/06/29/sports/tennis/serena-williams-exits-wimbledon-with-a-leg-injury.html?searchResultPosition=2
 
 **That Heat Dome? Yeah, It’s Climate Change.**\
