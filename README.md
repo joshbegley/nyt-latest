@@ -1,6 +1,6 @@
 **‘A Form of Brainwashing’: China Remakes Hong Kong**\
 `Neighbors are urged to report on one another. Children are taught to look for traitors. Officials are pressed to pledge their loyalty.`\
-https://nytimes.com/2021/06/29/world/asia/china-hong-kong-security.html?searchResultPosition=1
+https://nytimes.com/2021/06/29/world/asia/hong-kong-security-law-anniversary.html?searchResultPosition=1
 
 **Boom Times for Lawyers as Washington Pursues Big Tech**\
 `Not since the government sued to break up Microsoft in the late 1990s has there been greater demand for people who know the ins and outs of corporate competition law.`\
