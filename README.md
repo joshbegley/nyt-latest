@@ -1,6 +1,6 @@
 **The chief executive of Teneo, an influential advisory firm, steps down.**\
-`By Lauren Hirsch`\
-https://nytimes.com/2021/06/29/business/the-chief-executive-of-teneo-an-influential-advisory-firm-steps-down.html?searchResultPosition=1
+`The firm’s chief operating officer, Paul Keary, will replace Mr. Kelly, effective immediately, the company’s board said on Tuesday.`\
+https://nytimes.com/2021/06/29/business/teneo-chief-executive-resign.html?searchResultPosition=1
 
 **Why California Banned State-Funded Travel to Florida and Elsewhere**\
 `Tuesday: Officials are expanding a ban on taxpayer-funded travel to places that have enacted anti-L.G.B.T.Q. legislation.`\
