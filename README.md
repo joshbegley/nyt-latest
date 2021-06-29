@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2021/06/29/nyregion/restaurant-reopenings.html?s
 https://nytimes.com/2021/06/29/us/politics/jim-clyburn-nina-turner.html?searchResultPosition=2
 
 **Your Wednesday Briefing**\
-`Some Asia Pacific countries lock down.`\
+`Some Asia-Pacific countries lock down.`\
 https://nytimes.com/2021/06/29/briefing/asia-australia-lockdowns-tigray-fighting.html?searchResultPosition=3
 
 **Biafra Separatist, After Years on Run, Is Held in Nigeria**\
