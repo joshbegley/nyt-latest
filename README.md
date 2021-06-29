@@ -22,8 +22,8 @@ https://nytimes.com/2021/06/29/us/politics/house-vote-visas-afghans.html?searchR
 `Another sign the return has begun.`\
 https://nytimes.com/2021/06/29/style/fashion-marc-jacobs-show.html?searchResultPosition=6
 
-**Astronomers Find Two Black Hole-Neutron Star Collisions**\
-`Scientists had long sought signs of such mergers, and then detected two within 10 days of each other.`\
+**A Black Hole Feasted on a Neutron Star. 10 Days Later, It Happened Again.**\
+`Astronomers had long suspected that collisions between black holes and dead stars occurred, but they had no evidence until a pair of recent detections.`\
 https://nytimes.com/2021/06/29/science/black-holes.html?searchResultPosition=7
 
 **California’s Red-Hot Real Estate Market Cools Just a Bit**\
