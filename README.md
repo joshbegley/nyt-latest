@@ -1,4 +1,4 @@
-**Funny or Racist? A Food Bit on James Corden’s Late Show Draws Ire**\
+**Funny or Racist? A Food Bit on James Corden’s Late Show Draws Ire.**\
 `For years, the late-night TV host has dared celebrities to eat choice foods, but an online petition is calling for it to end.`\
 https://nytimes.com/2021/06/29/dining/james-corden-asian-food.html?searchResultPosition=1
 
