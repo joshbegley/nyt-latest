@@ -11,7 +11,7 @@ https://nytimes.com/2021/06/29/business/minor-league-baseball-stadiums.html?sear
 https://nytimes.com/2021/06/29/business/new-york-commercial-real-estate.html?searchResultPosition=3
 
 **The chief executive of Teneo, an influential advisory firm, steps down.**\
-`The firm’s chief operating officer, Paul Keary, will replace Mr. Kelly, effective immediately, the company’s board said on Tuesday.`\
+`Declan Kelly, who “behaved inappropriately” at a charity event last month, will quit the firm he helped found, effective immediately.`\
 https://nytimes.com/2021/06/29/business/teneo-chief-executive-resign.html?searchResultPosition=4
 
 **Why California Banned State-Funded Travel to Florida and Elsewhere**\
