@@ -1,5 +1,5 @@
-**The condo board’s president warned residents of worsening damage in April.**\
-`The president of the condominium association warned in a letter that the damage in the building had “gotten significantly worse” since it was highlighted in a 2018 inspection.`\
+**Months before the building’s collapse, a condo official warned that damage had ‘gotten significantly worse’ in recent years.**\
+`The president of the condominium association wrote to residents in April, explaining why they were being asked to pay for $15 million in construction projects.`\
 https://nytimes.com/2021/06/29/us/surfside-building-collapse-warning-letter.html?searchResultPosition=1
 
 **Read the document**\
