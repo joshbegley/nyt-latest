@@ -24,7 +24,7 @@ https://nytimes.com/2021/06/29/style/fashion-marc-jacobs-show.html?searchResultP
 
 **Astronomers Find Two Black Hole-Neutron Star Collisions**\
 `Scientists had long sought signs of such mergers, and then detected two within 10 days of each other.`\
-https://nytimes.com/2021/06/29/science/black-hole-neutron-star.html?searchResultPosition=7
+https://nytimes.com/2021/06/29/science/black-holes.html?searchResultPosition=7
 
 **California’s Red-Hot Real Estate Market Cools Just a Bit**\
 `Buyers’ fatigue may have helped stabilize sales figures in May, but brokers expect a renewed frenzy in coming months.`\
