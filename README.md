@@ -6,7 +6,7 @@ https://nytimes.com/2021/06/29/nyregion/what-next-with-rcv.html?searchResultPosi
 `North Koreans say they were “heartbroken” when they saw Kim Jong-un looking “emaciated.” The regime has turned the weight loss into a propaganda victory.`\
 https://nytimes.com/2021/06/29/world/asia/north-korea-kim-jong-un-weight.html?searchResultPosition=2
 
-**Concern over the Delta variant triggers lockdowns in the Asia-Pacific region.**\
+**Concern over the Delta variant triggers lockdowns in Asian and Pacific countries.**\
 `Australia, Bangladesh and Malaysia are among the nations scrambling to contain outbreaks as sluggish vaccination drives leave populations vulnerable.`\
 https://nytimes.com/2021/06/29/world/asia/australia-lockdown-delta.html?searchResultPosition=3
 
