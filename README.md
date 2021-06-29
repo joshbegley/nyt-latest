@@ -1,40 +1,40 @@
-**South African Court Orders Arrest of Ex-President Jacob Zuma for Contempt**\
-`The former president, whose tenure was tainted by financial scandals, was a comrade of Nelson Mandela and a dominant figure for decades in the governing African National Congress party.`\
-https://nytimes.com/2021/06/29/world/africa/jacob-zuma-prison.html?searchResultPosition=1
+**‘The Vixen,’ by Francine Prose: An Excerpt**\
+`An excerpt from “The Vixen,” by Francine Prose`\
+https://nytimes.com/2021/06/29/books/review/the-vixen-by-francine-prose-an-excerpt.html?searchResultPosition=1
 
-**The Queen of Basketball**\
-`Lusia Harris led her team to three national championships, scored the first basket in women’s Olympic history and was officially drafted by the New Orleans Jazz in 1977.`\
-https://nytimes.com/video/opinion/100000007768848/the-queen-of-basketball.html?searchResultPosition=2
+**How Weird Is the Heat in Portland, Seattle and Vancouver? Off the Charts.**\
+`The heat smothering the Pacific Northwest has little precedent in four decades of record-keeping.`\
+https://nytimes.com/interactive/2021/06/29/upshot/portland-seattle-vancouver-weather.html?searchResultPosition=2
 
-**OPEC and Allies Hold the Cards as Prices and Demand Rise**\
-`In the short run, trends in the oil market may be favoring large producers like Saudi Arabia and Russia.`\
-https://nytimes.com/2021/06/29/business/opec-plus-meeting-preview.html?searchResultPosition=3
+**The War on History Is a War on Democracy**\
+`A scholar of totalitarianism argues that new laws restricting the discussion of race in American schools have dire precedents in Europe.`\
+https://nytimes.com/2021/06/29/magazine/memory-laws.html?searchResultPosition=3
 
-**‘A Form of Brainwashing’: China Remakes Hong Kong**\
-`Neighbors are urged to report on one another. Children are taught to look for traitors. Officials are pressed to pledge their loyalty.`\
-https://nytimes.com/2021/06/29/world/asia/hong-kong-security-law-anniversary.html?searchResultPosition=4
+**What Should I Do With My Grandfather’s Cringey Canvases?**\
+`The magazine’s Ethicist columnist on the nudes that are no longer socially acceptable.`\
+https://nytimes.com/2021/06/29/magazine/art-ethics-vaccination.html?searchResultPosition=4
 
-**Boom Times for Lawyers as Washington Pursues Big Tech**\
-`Not since the government sued to break up Microsoft in the late 1990s has there been greater demand for people who know the ins and outs of corporate competition law.`\
-https://nytimes.com/2021/06/29/technology/boom-times-for-lawyers-as-washington-pursues-big-tech.html?searchResultPosition=5
+**Liquor Laws Once Targeted Gay Bars. Now, One State Is Apologizing.**\
+`New Jersey’s attorney general will apologize and vacate penalties against bars shuttered in the 20th century for allowing gay patrons to congregate.`\
+https://nytimes.com/2021/06/29/nyregion/nj-gay-bars-liquor-laws-.html?searchResultPosition=5
 
-**Dry Run for Ranked-Choice Count May Hint at How N.Y.C. Mayor’s Race Ends**\
-`Absentee ballots won’t be included, but data to be released Tuesday could signal the way vote totals shift as the field is officially winnowed.`\
-https://nytimes.com/2021/06/29/nyregion/ranked-choice-voting-mayor.html?searchResultPosition=6
+**As Infrastructure Deal Gathers Steam, Democratic Cracks Begin to Show**\
+`House progressives say they can bring down the bipartisan bill if they do not get their priorities too, but as White House lobbying steps up, other Democrats have different ideas.`\
+https://nytimes.com/2021/06/29/us/politics/infrastructure-democrats.html?searchResultPosition=6
 
-**Training the Next Generation of Indigenous Data Scientists**\
-`A new workshop explores the right of Indigenous people to govern the collection, ownership and use of their biological and cultural data.`\
-https://nytimes.com/2021/06/29/science/indigenous-data-microbiome-science.html?searchResultPosition=7
+**An Opioid Case Like No Other: N.Y. vs. the Entire Supply Chain**\
+`New York’s sweeping lawsuit is the first opioid case in which a jury rather than a judge will decide the outcome.`\
+https://nytimes.com/2021/06/29/nyregion/opioids-in-new-york.html?searchResultPosition=7
 
-**‘It’s Tough to Get Out’: How Caribbean Medical Schools Fail Their Students**\
-`The institutions are expensive, often operated for profit and eager to accept applicants. But graduates have trouble landing residencies and jobs.`\
-https://nytimes.com/2021/06/29/health/caribbean-medical-school.html?searchResultPosition=8
+**Meet the First Woman Officially Drafted by the N.B.A.**\
+`Lusia Harris led her team to three national championships, scored the first basket in women’s Olympic history and was an official draft pick in 1977.`\
+https://nytimes.com/2021/06/29/opinion/lusia-harris-basketball-nba.html?searchResultPosition=8
 
-**Quotation of the Day: Supreme Court Acts Cautiously in Cases on Transgender Rights and Police**\
-`Quotation of the Day for Tuesday, June 29, 2021.`\
-https://nytimes.com/2021/06/29/todayspaper/quotation-of-the-day-supreme-court-acts-cautiously-in-cases-on-transgender-rights-and-police.html?searchResultPosition=9
+**A Few Tennis Pros Make a Fortune. Most Barely Scrape By.**\
+`The superstars of pro tennis get paid staggeringly more than everyone else. Can a new players’ association help level the court?`\
+https://nytimes.com/2021/06/29/magazine/tennis-players-association.html?searchResultPosition=9
 
-**Corrections: June 29, 2021**\
-`Corrections that appeared in print on Tuesday, June 29, 2021.`\
-https://nytimes.com/2021/06/29/pageoneplus/corrections-june-29-2021.html?searchResultPosition=10
+**Why Do We Work So Damn Much?**\
+`Hunter-gatherers worked 15-hour weeks. Why don’t we?`\
+https://nytimes.com/2021/06/29/opinion/ezra-klein-podcast-james-suzman.html?searchResultPosition=10
 
