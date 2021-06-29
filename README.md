@@ -1,5 +1,5 @@
 **International Court Rules in Favor of Trans Rights in Honduras**\
-`The landmark decision from the Inter-American Court of Human Rights, born out of a brutal murder, could have far-reaching implications for L.G.B.T. rights across Latin America.`\
+`The landmark decision from the Inter-American Court of Human Rights, born out of a brutal murder, could have far-reaching implications for L.G.B.T.Q. rights across Latin America.`\
 https://nytimes.com/2021/06/28/world/americas/honduras-trans-rights-ruling.html?searchResultPosition=1
 
 **Biden Faces Intense Cross Currents in Iran Policy**\
