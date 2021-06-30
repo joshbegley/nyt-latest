@@ -22,17 +22,17 @@ https://nytimes.com/2021/06/30/realestate/washington-heights-last-bastion-of-aff
 `The neighborhood, celebrated for its large Dominican community, is also known for spacious apartments, moderate rents and ample green spaces.`\
 https://nytimes.com/slideshow/2021/06/30/realestate/living-in-washington-heights-manhattan.html?searchResultPosition=6
 
+**How Andrew Yang Went from Front-Runner to Fourth Place**\
+`He seemed on a path to be New York’s next mayor, but a parade of self-inflicted wounds, and a refocusing of the city’s priorities, doomed his chances.`\
+https://nytimes.com/2021/06/30/nyregion/andrew-yang-mayor.html?searchResultPosition=7
+
 **Tennis Balls and Boxed Wine: What You Bought After the Covid Shot**\
 `We asked readers who were vaccinated at pharmacies if they impulsively treated themselves before they left. Here are some of their stories.`\
-https://nytimes.com/2021/06/30/business/covid-shot-impulse-buy.html?searchResultPosition=7
+https://nytimes.com/2021/06/30/business/covid-shot-impulse-buy.html?searchResultPosition=8
 
 **Hong Kong Philosopher Taught Life’s Meaning. Now He Visits Students in Jail.**\
 `Chow Po Chung pushed his students to participate in public affairs — idealism that he worries could cost them their freedom.`\
-https://nytimes.com/2021/06/30/business/hong-kong-chow-po-chung.html?searchResultPosition=8
-
-**How Andrew Yang Went from Front-Runner to Fourth Place**\
-`He seemed on a path to be New York’s next mayor, but a parade of self-inflicted wounds, and a refocusing of the city’s priorities, doomed his chances.`\
-https://nytimes.com/2021/06/30/nyregion/andrew-yang-mayor.html?searchResultPosition=9
+https://nytimes.com/2021/06/30/business/hong-kong-chow-po-chung.html?searchResultPosition=9
 
 **Target Store Closings Show Limits of Pledge to Black Communities**\
 `The shuttering of a store in Baltimore is a sobering reminder of the realities of capitalism in a moment when corporations are promising to support Black Americans.`\
