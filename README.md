@@ -30,11 +30,11 @@ https://nytimes.com/2021/06/30/nyregion/andrew-yang-mayor.html?searchResultPosit
 `We asked readers who were vaccinated at pharmacies if they impulsively treated themselves before they left. Here are some of their stories.`\
 https://nytimes.com/2021/06/30/business/covid-shot-impulse-buy.html?searchResultPosition=8
 
-**Target Store Closings Show Limits of Pledge to Black Communities**\
-`The shuttering of a store in Baltimore is a sobering reminder of the realities of capitalism in a moment when corporations are promising to support Black Americans.`\
-https://nytimes.com/2021/06/30/business/target-baltimore-store-closings.html?searchResultPosition=9
-
 **Hong Kong Philosopher Taught Life’s Meaning. Now He Visits Students in Jail.**\
 `Chow Po Chung pushed his students to participate in public affairs — idealism that he worries could cost them their freedom.`\
-https://nytimes.com/2021/06/30/business/hong-kong-chow-po-chung.html?searchResultPosition=10
+https://nytimes.com/2021/06/30/business/hong-kong-chow-po-chung.html?searchResultPosition=9
+
+**Target Store Closings Show Limits of Pledge to Black Communities**\
+`The shuttering of a store in Baltimore is a sobering reminder of the realities of capitalism in a moment when corporations are promising to support Black Americans.`\
+https://nytimes.com/2021/06/30/business/target-baltimore-store-closings.html?searchResultPosition=10
 
