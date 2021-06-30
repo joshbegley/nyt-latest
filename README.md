@@ -1,4 +1,4 @@
-**After Injury to Serena Williams, Wimbledon Defends Court Conditions**\
+**After Serena Williams is Injured, Wimbledon Defends Court Conditions**\
 `Slippery grass caused tournament-ending injuries in back-to-back matches, as many stars wiped out during the first two days of the tournament.`\
 https://nytimes.com/2021/06/30/sports/tennis/wimbledon-grass-court-safety-serena-williams.html?searchResultPosition=1
 
