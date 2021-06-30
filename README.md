@@ -1,5 +1,5 @@
 **Jack Downing, C.I.A. Chief in Cold War Capitals, Dies at 80**\
-`He was the agency’s only official to have served as station head in both Moscow and Beijing. Then he was drawn out retirement in 1997 to save its espionage operations.`\
+`He was the agency’s only official to have served as station head in both Moscow and Beijing. Then he was drawn out of retirement in 1997 to save its espionage operations.`\
 https://nytimes.com/2021/06/30/us/jack-downing-dead.html?searchResultPosition=1
 
 **Biden Made Gains With Moderate and Conservative Voters, New Data Shows**\
