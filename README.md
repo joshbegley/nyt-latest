@@ -1,6 +1,6 @@
 **Building Inspectors Among 4 Arrested in Fatal Fire at Adult Care Home**\
 `Two officials are accused of filing false reports, and a father and son face arson and manslaughter charges in a blaze that killed two men.`\
-https://nytimes.com/2021/06/29/nyregion/4-arrested-fire-assisted-living-home-spring-valley.html?searchResultPosition=1
+https://nytimes.com/2021/06/29/nyregion/spring-valley-fire-arrests.html?searchResultPosition=1
 
 **Clickbait giant Outbrain files for I.P.O.**\
 `The company said it had $767 million in revenue last year.`\
