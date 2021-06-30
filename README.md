@@ -1,4 +1,4 @@
-**Donald Rumsfeld, Defense Secretary Under 2 Presidents, Dies at 88**\
+**Donald Rumsfeld, Defense Secretary Under 2 Presidents, Is Dead at 88**\
 `Mr. Rumsfeld, who served under Gerald Ford and George W. Bush, was in charge of the invasion of Iraq and later said that the removal of Saddam Hussein had “created a more stable and secure world.”`\
 https://nytimes.com/2021/06/30/us/politics/donald-rumsfeld-dead.html?searchResultPosition=1
 
