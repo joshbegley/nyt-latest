@@ -15,7 +15,7 @@ https://nytimes.com/slideshow/2021/06/30/realestate/a-three-sided-house-on-the-c
 https://nytimes.com/2021/06/30/theater/yale-drama-david-geffen-tuition.html?searchResultPosition=4
 
 **Trevor Bauer of the Dodgers Is Accused of Assaulting a Woman**\
-`The police said they were investigating the allegation against the star pitcher. Bauer denied any wrongdoing.`\
+`The police said they were investigating the allegation against the star pitcher. Bauer denied wrongdoing.`\
 https://nytimes.com/2021/06/30/sports/baseball/trevor-bauer-dodgers-assault.html?searchResultPosition=5
 
 **$950,000 Homes in New York, New Jersey and California**\
