@@ -20,7 +20,7 @@ https://nytimes.com/interactive/2021/06/30/dining/recipe-suggestions.html?search
 
 **Candidates react to Board of Elections error: ‘Sadly, it is impossible to be surprised.’**\
 `Eric Adams called it “unfortunate,” Kathryn Garcia characterized it as “deeply troubling,” and Maya Wiley said it was simply a “failure.”`\
-https://nytimes.com/2021/06/30/nyregion/nyc-mayor-vote-election-results.html?searchResultPosition=6
+https://nytimes.com/2021/06/30/nyregion/nyc-mayor-candidates-election-results.html?searchResultPosition=6
 
 **A New View of the Auroras All Over Mars**\
 `The Hope orbiter, built by the United Arab Emirates, was able to use its scientific instruments to capture an improved picture of the red planet’s night lights.`\
