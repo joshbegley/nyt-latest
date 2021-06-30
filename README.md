@@ -1,4 +1,4 @@
-**North Korea reports a ‘great crisis’ caused by quarantine lapses.**\
+**North Korea reports a ‘great crisis’ in its Covid response.**\
 `Kim Jong-un called a party meeting to criticize “ignorance” and reshuffle the leadership, but state media did not say if there had been an outbreak.`\
 https://nytimes.com/2021/06/29/world/asia/north-korea-covid.html?searchResultPosition=1
 
