@@ -19,7 +19,7 @@ https://nytimes.com/video/us/politics/100000007606996/capitol-riot-trump-support
 https://nytimes.com/interactive/2021/06/30/dining/recipe-suggestions.html?searchResultPosition=5
 
 **Candidates react to Board of Elections error: ‘Sadly, it is impossible to be surprised.’**\
-`Eric Adams called it ‘unfortunate;’ Kathryn Garcia characterized it as a ‘deeply troubling’; and Maya Wiley said the mistake was simply a ‘failure.’`\
+`Eric Adams called it “unfortunate,” Kathryn Garcia characterized it as “deeply troubling,” and Maya Wiley said it was simply a “failure.”`\
 https://nytimes.com/2021/06/30/nyregion/nyc-mayor-vote-election-results.html?searchResultPosition=6
 
 **A New View of the Auroras All Over Mars**\
