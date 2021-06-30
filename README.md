@@ -19,7 +19,7 @@ https://nytimes.com/2021/06/30/opinion/letters/covid-vaccines.html?searchResultP
 https://nytimes.com/2021/06/30/climate/heat-pumps-climate.html?searchResultPosition=5
 
 **The Oldest Museum in New York Is Expanding**\
-`The New-York Historical Society is making way for the first L.G.B.T.Q. museum in the city.`\
+`The New-York Historical Society is making way for the first L.G.B.T.Q. history and culture museum in the city.`\
 https://nytimes.com/2021/06/30/arts/design/new-york-historical-society-lgbtq-museum.html?searchResultPosition=6
 
 **The At Home and Away Summer Playlist**\
