@@ -1,4 +1,4 @@
-**College Athletes Capitalize as a Marketplace Opens for First Time**\
+**College Athletes Score, Cutting Deals as a New Marketplace Is Born**\
 `From hurdlers to quarterbacks, students signed contracts and began to pull in some of the millions that could be made this year alone.`\
 https://nytimes.com/2021/07/01/sports/college-athletes-endorsements.html?searchResultPosition=1
 
