@@ -2,7 +2,7 @@
 `At newly reopened playhouses, once-legendary and younger directors take very different approaches to their mammoth productions.`\
 https://nytimes.com/2021/07/01/theater/castorf-montag-berlin.html?searchResultPosition=1
 
-**Israel’s New Leaders Tilt Right With Settler Deal, a Hint at Governance**\
+**Israel’s New Leader Tilts Right in Settler Deal, a Hint at His Approach**\
 `Prime Minister Naftali Bennett’s decision about an unauthorized settlement has provided an early idea of how he hopes to manage his unlikely coalition.`\
 https://nytimes.com/2021/07/01/world/middleeast/israel-settler-deal-bennett.html?searchResultPosition=2
 
