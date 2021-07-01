@@ -1,6 +1,6 @@
 **College Athletes Score, Cutting Deals as a New Marketplace Is Born**\
 `From hurdlers to quarterbacks, students signed contracts and began to pull in some of the millions that could be made this year alone.`\
-https://nytimes.com/2021/07/01/sports/college-athletes-endorsements.html?searchResultPosition=1
+https://nytimes.com/2021/07/01/sports/ncaa-athletes-endorsements.html?searchResultPosition=1
 
 **The Supreme Court Abandons Voting Rights**\
 `The Roberts court continues its attack against the Voting Rights Act. `\
