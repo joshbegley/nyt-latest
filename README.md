@@ -14,7 +14,7 @@ https://nytimes.com/2021/07/01/business/opec-plus-meeting.html?searchResultPosit
 `A man was arrested after improvised explosives and more than 5,000 pounds of illegal fireworks were confiscated from a residence, the authorities said.`\
 https://nytimes.com/2021/07/01/us/la-fireworks-explosion.html?searchResultPosition=4
 
-**Bare Feet, Beer and Heavy Metal Bangers. Golf Chills Out and Gets Cool.**\
+**Bare Feet, Beer and Heavy Metal Bangers: Golf Chills Out and Gets Cool.**\
 `Traditional golf is increasingly seen as old and stuck in its ways. But imaginative takes on the sport are making it more fun and attracting new players.`\
 https://nytimes.com/2021/07/01/sports/golf/top-golf-modern-variations.html?searchResultPosition=5
 
