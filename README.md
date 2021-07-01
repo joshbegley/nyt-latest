@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/01/movies/till-death-review.html?searchResultPositio
 https://nytimes.com/2021/07/01/movies/the-forever-purge-review.html?searchResultPosition=5
 
 **Lincoln Center Names Its First Poet in Residence**\
-`Mahogany Browne, the author of “Black Girl Magic” and “Chlorine Sky,” will develop in-person and virtual programming from July to August at the performing-arts center.`\
+`Mahogany Browne, the author of “Black Girl Magic” and “Chlorine Sky,” will develop in-person and virtual programming from July to September at the performing-arts center.`\
 https://nytimes.com/2021/07/01/books/lincoln-center-poet-mahogany-browne.html?searchResultPosition=6
 
 **Supreme Court Backs Donor Privacy for California Charities**\
