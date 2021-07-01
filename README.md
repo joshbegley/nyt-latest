@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/01/sports/ncaafootball/ncaa-college-athletes-endorse
 https://nytimes.com/2021/06/30/sports/hockey/nhl-montreal-canadiens-tampa-lightning.html?searchResultPosition=2
 
 **Phoenix Suns Headed to First N.B.A. Finals in Almost 30 Years**\
-`This will be the first trip to the finals for the Suns’ veteran leader, Chris Paul.`\
+`This will be the first trip to the finals for the Suns’ veteran leader, Chris Paul, who scored 41 points in the series-clinching Game 6 victory over the Los Angeles Clippers.`\
 https://nytimes.com/2021/06/30/sports/basketball/nba-phoenix-suns-finals.html?searchResultPosition=3
 
 **Your Thursday Briefing**\
