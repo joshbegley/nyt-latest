@@ -34,7 +34,7 @@ https://nytimes.com/2021/07/01/sports/golf/top-golf-modern-variations.html?searc
 `Don Cheadle and Benicio Del Toro star in Steven Soderbergh’s new film, a Detroit-set period thriller with a lot on its mind.`\
 https://nytimes.com/2021/07/01/movies/no-sudden-move-review.html?searchResultPosition=9
 
-**‘Cousins’ Review: The Ties That Bind**\
-`This sprawling drama breathes cinematic life into the 1992 novel by Patricia Grace about the diverging paths of three Maori cousins in New Zealand.`\
-https://nytimes.com/2021/07/01/movies/cousins-review-the-ties-that-bind.html?searchResultPosition=10
+**‘Some of Our Stallions’ Review: At Least They Don’t Shoot Horses**\
+`The film that poses the cause-and-effect question about toxic masculinity and unhinged behavior.`\
+https://nytimes.com/2021/07/01/movies/some-of-our-stallions-review.html?searchResultPosition=10
 
