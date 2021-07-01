@@ -7,8 +7,8 @@ https://nytimes.com/video/us/100000007845394/surfside-condo-collapse-update.html
 https://nytimes.com/2021/07/01/movies/let-us-in-review.html?searchResultPosition=2
 
 **Krispy Kreme and Didi Chuxing are part of a blockbuster week for public listings.**\
-`By Michael J. de la Merced and Lauren Hirsch`\
-https://nytimes.com/2021/07/01/business/krispy-kreme-and-didi-chuxing-are-part-of-a-blockbuster-week-for-public-listings.html?searchResultPosition=3
+`Eighteen initial public offerings hit the stock market this week, making it the busiest since December 2004.`\
+https://nytimes.com/2021/07/01/business/krispy-kreme-ipo.html?searchResultPosition=3
 
 **‘The Phantom’ Review: The Death Penalty for a Doppelgänger**\
 `This documentary examines the circumstances of a 1983 killing in Texas, for which it contends the wrong man was convicted and executed.`\
