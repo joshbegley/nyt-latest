@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/01/nyregion/trump-organization-indictment-explained.
 `There’s a chill show for preschoolers and a jewelry-making competition series. Or is it just time to watch “Hannibal”?`\
 https://nytimes.com/2021/07/01/arts/television/hannibal-hulu-streaming-gumboot-kids.html?searchResultPosition=9
 
-**Available office space in Manhattan climbs to another record high.**\
-`Manhattan’s office vacancy rate of 18.7 percent is the highest in half a century and underscores the challenges New York faces in its recovery.`\
-https://nytimes.com/2021/07/01/business/manhattan-commercial-real-estate.html?searchResultPosition=10
+**Louis Andriessen, Lionized Composer With Radical Roots, Dies at 82**\
+`After challenging the Dutch musical establishment as a young man, he went on to write a series of large and loud symphonic works that grappled with big ideas.`\
+https://nytimes.com/2021/07/01/arts/music/louis-andriessen-dead.html?searchResultPosition=10
 
