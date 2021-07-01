@@ -28,7 +28,7 @@ https://nytimes.com/2021/07/01/world/asia/afghanistan-war-veterans.html?searchRe
 
 **Watch Live: Florida Officials Give Update as Death Toll Stands at 18**\
 `Miami-Dade County officials hold a news conference on Thursday amid the ongoing search for survivors after the collapse of the Champlain Towers South condo complex in Surfside, Fla.`\
-https://nytimes.com/video/us/100000007845394/surfside-condo-collapse-update.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/100000007845394/surfside-condo-collapse-update.html?searchResultPosition=8
 
 **‘Let Us In’ Review: The Eyes Have it**\
 `Disappearing teens and mysterious strangers fuel this generic blend of urban legend and science fiction.`\
