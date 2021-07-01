@@ -7,7 +7,7 @@ https://nytimes.com/article/tropical-storm-elsa-hurricane.html?searchResultPosit
 https://nytimes.com/2021/07/01/business/dealbook/robinhood-fine-ipo.html?searchResultPosition=2
 
 **Time to increase oil production? OPEC and its allies will meet to decide.**\
-`By Stanley Reed`\
+`For more than a year, OPEC Plus has kept a tight grip on oil production, helping to lift prices by around 85 percent since November.`\
 https://nytimes.com/2021/07/01/business/opec-plus-meeting.html?searchResultPosition=3
 
 **17 Are Wounded After Seized Explosives Blow Up in Los Angeles**\
