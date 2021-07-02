@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2021/07/02/dining/drinks/frozen-margarita-how-to
 
 **A Pandemic Lifeline for Restaurants, Delivery Is ‘Here to Stay’**\
 `As in-person dining returns, home delivery is holding up. For restaurants, services like DoorDash and Uber Eats could become a permanent part of their business.`\
-https://nytimes.com/2021/07/02/technology/restaurant-delivery-pandemic.html?searchResultPosition=7
+https://nytimes.com/2021/07/02/technology/restaurant-delivery-takeout-orders-covid-coronavirus.html?searchResultPosition=7
 
 **Taylor Swift Rejoins Her ‘Folklore’ Crew, and 8 More New Songs**\
 `Hear tracks by Brent Faiyaz featuring Drake, J. Balvin and Skrillex, Chicano Batman and others.`\
