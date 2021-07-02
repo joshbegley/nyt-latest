@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/02/realestate/manhattan-real-estate-sales.html?searc
 https://nytimes.com/2021/07/02/style/modern-love-some-people-flip-real-estate-i-flip-men.html?searchResultPosition=4
 
 **Sha’Carri Richardson, a Track Sensation, Tests Positive for Marijuana**\
-`It was unclear whether the sprinter, who won the women’s 100-meter race at the U.S. Olympic trials, will be allowed to compete in the Tokyo Games.`\
+`It was unclear whether the sprinter, who won the women’s 100-meter race at the U.S. Olympic trials, would be allowed to compete in the Tokyo Games.`\
 https://nytimes.com/2021/07/01/sports/olympics/olympics-doping-marijuana-richardson.html?searchResultPosition=5
 
 **The Best Movies and TV Shows New to Netflix, Amazon and Stan in Australia in July**\
