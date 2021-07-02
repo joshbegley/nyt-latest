@@ -1,40 +1,40 @@
-**U.S. Leaves Largest Afghan Base as Full Withdrawal Nears**\
-`With little fanfare, Bagram Air Base was handed over to the Afghan government, ending nearly two decades in which the Americans waged war from there.`\
-https://nytimes.com/2021/07/02/world/asia/afghanistan-bagram-us-withdrawal.html?searchResultPosition=1
+**With Kuba Kings and Kehinde, a Painter Rises Above the Fray**\
+`In Kinshasa, art is everywhere. Hilary Balu finds his focus uncovering the West’s powerful influences on African life.`\
+https://nytimes.com/2021/07/02/arts/design/hilary-balu-congo-art-kinshasa.html?searchResultPosition=1
 
-**Australia’s Path Out of the Pandemic: Will it Make You Scream With Anger or Joy?**\
-`The prime minister has finally acknowledged that Australia will eventually have to learn to live with Covid.`\
-https://nytimes.com/2021/07/02/world/australia/australias-path-out-of-the-pandemic-will-it-make-you-scream-with-anger-or-joy.html?searchResultPosition=2
+**No Place to Go When You Need to Go? These New Yorkers Have Ideas**\
+`The pandemic ignited a conversation about the use of public space, but the city’s lack of public restrooms has led to long lines and some uncomfortable situations.`\
+https://nytimes.com/2021/07/02/nyregion/nyc-bathrooms.html?searchResultPosition=2
 
-**Labour Holds on to U.K. Parliament Seat, Easing Pressure on Its Leader**\
-`The by-election in northern England was seen as a victory for the party’s leader, Keir Starmer, in a region where Prime Minister Boris Johnson’s Conservatives had made big inroads.`\
-https://nytimes.com/2021/07/02/world/europe/labor-by-election-victory-batley-and-spen.html?searchResultPosition=3
+**Her Book Described Bringing Bill Cosby to Justice. Then He Was Freed.**\
+`Months before Andrea Constand’s memoir about the Cosby case and its aftermath was set to be published, a Pennsylvania Court overturned his conviction for assaulting her and released him.`\
+https://nytimes.com/2021/07/02/arts/television/andrea-constand-bill-cosby.html?searchResultPosition=3
 
-**In Chaotic Mayor’s Race, It’s All Down to the Absentee Ballots**\
-`The Democratic primary for mayor of New York City, now a tight race among Eric Adams, Kathryn Garcia and Maya Wiley, will be decided by absentee ballots.`\
-https://nytimes.com/2021/07/02/nyregion/absentee-ballots-nyc-boe.html?searchResultPosition=4
+**The Troubles of 1776**\
+`Plans for America’s 250th birthday in 2026 are getting underway. But can the spirit of 1776 survive the battles of 2021?`\
+https://nytimes.com/2021/07/02/arts/1776-2026-A-DIFFERENT-STORY.html?searchResultPosition=4
 
-**Your Friday Briefing**\
-`Criminal charges against the Trump Organization.`\
-https://nytimes.com/2021/07/02/briefing/tax-crime-trump-vaccine-cards.html?searchResultPosition=5
+**They Didn’t Expect to Retire Early. The Pandemic Changed Their Plans.**\
+`After years in which Americans worked later in life, the latest economic disruption has driven many out of the work force prematurely.`\
+https://nytimes.com/2021/07/02/business/economy/retire-early-pandemic-social-security.html?searchResultPosition=5
 
-**With a Scalloped Skort, Ashleigh Barty Salutes a Big Anniversary**\
-`Barty, the top women’s seed at Wimbledon, asked her apparel sponsor to design an outfit that paid tribute to Evonne Goolagong Cawley, the first Indigenous Australian woman to win the tournament.`\
-https://nytimes.com/2021/07/02/sports/tennis/wimbledon-ashleigh-barty.html?searchResultPosition=6
+**The Maori Vision of Antarctica’s Future**\
+`Maori may have been first to reach Antarctica, in the seventh century. But the past matters less than what lies ahead, Indigenous scholars say.`\
+https://nytimes.com/2021/07/02/science/antarctica-maori-exploration.html?searchResultPosition=6
 
-**Manhattan Real Estate Finally Bounces Back to Normal**\
-`The volume of sales surges back to pre-pandemic levels, but prices are up just slightly.`\
-https://nytimes.com/2021/07/02/realestate/manhattan-real-estate-sales.html?searchResultPosition=7
+**Manhattan Listings That Have Lingered**\
+`Some properties have been unable to find buyers for several years, predating the pandemic slump.`\
+https://nytimes.com/2021/07/02/realestate/manhattan-listings-that-have-lingered.html?searchResultPosition=7
 
-**Some People Flip Real Estate. I Flip Men.**\
-`Give me a fixer-upper and I’ll turn him into someone desirable — for someone else.`\
-https://nytimes.com/2021/07/02/style/modern-love-some-people-flip-real-estate-i-flip-men.html?searchResultPosition=8
+**Finding a Home in This Overheated Market**\
+`Listings that seem to linger on the market sometimes can turn out to be diamonds in the rough.`\
+https://nytimes.com/2021/07/02/realestate/market-home-buying-tips.html?searchResultPosition=8
 
-**Sha’Carri Richardson, a Track Sensation, Tests Positive for Marijuana**\
-`It was unclear whether the sprinter, who won the women’s 100-meter race at the U.S. Olympic trials, would be allowed to compete in the Tokyo Games.`\
-https://nytimes.com/2021/07/01/sports/olympics/olympics-doping-marijuana-richardson.html?searchResultPosition=9
+**Staghorn Ferns Act Like Bees in a Hive**\
+`The plants seem to divide labor to maximize the health of their colonies that grow up the sides of trees.`\
+https://nytimes.com/2021/07/02/science/ferns-social.html?searchResultPosition=9
 
-**The Best Movies and TV Shows New to Netflix, Amazon and Stan in Australia in July**\
-`Our streaming picks for July, including ‘Fear Street,’ ‘The Comeback Trail’ and ‘The Tomorrow War’`\
-https://nytimes.com/2021/07/01/arts/television/best-movies-tv-streaming-netflix-amazon-july.html?searchResultPosition=10
+**‘Our Menu Is Very Darwinian.’ Leading McDonald’s in 2021.**\
+`Chris Kempczinski faces pressure to raise wages, offer healthier choices and make McDonald’s more vocal politically. Meanwhile, business is booming.`\
+https://nytimes.com/2021/07/02/business/chris-kempczinski-mcdonalds-corner-office.html?searchResultPosition=10
 
