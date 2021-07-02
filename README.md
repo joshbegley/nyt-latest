@@ -2,9 +2,9 @@
 `Fans chant his name at Wembley and pressure his coach to play him. But what does England really know about Grealish? And what does it want from him?`\
 https://nytimes.com/2021/07/02/sports/soccer/jack-grealish-england-euro-2020.html?searchResultPosition=1
 
-**Tesla sales more than double in the second quarter.**\
-`By The New York Times`\
-https://nytimes.com/2021/07/02/business/tesla-sales-more-than-double-in-the-second-quarter.html?searchResultPosition=2
+**Tesla’s sales more than doubled in the second quarter.**\
+`The company sold nearly 91,000 cars in a period when auto sales around the world were kept low by the pandemic.`\
+https://nytimes.com/2021/07/02/business/tesla-second-quarter-sales.html?searchResultPosition=2
 
 **Going to the Beach? Here’s How to Check if It’s Polluted**\
 `Friday: Heal the Bay’s annual beach report card is out. Here’s what to know. Also, the recall election now has a date.`\
