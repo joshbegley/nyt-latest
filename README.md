@@ -1,5 +1,5 @@
 **Watch Live: Officials Deliver Update on Florida Condo Collapse**\
-`Officials discuss ongoing search and rescue efforts at the site of the condominium building in Surfside, Fla., where a partial collapse last week has killed at least 18 people and left more than 100 missing`\
+`Officials discuss ongoing search and rescue efforts at the site of the condominium building in Surfside, Fla., where a partial collapse last week has killed at least 18 people and left more than 100 missing.`\
 https://nytimes.com/video/us/100000007847601/condo-collapse-search-rescue-live.html?searchResultPosition=1
 
 **Why the Delta Variant Could End Australia’s Pursuit of ‘Covid Zero’**\
