@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/02/climate/congress-exxon-climate.html?searchResultP
 https://nytimes.com/2021/07/02/us/supreme-court-conservative-voting-rights.html?searchResultPosition=2
 
 **Proving Racist Intent: Democrats Face High New Bar in Opposing Voting Laws**\
-`Democrats and voting rights groups say can they no longer count on the federal courts, including the Supreme Court, to serve as a backstop for preventing racially discriminatory voting restrictions.`\
+`Democrats and voting rights groups say they can no longer count on the federal courts, including the Supreme Court, to serve as a backstop for preventing racially discriminatory voting restrictions.`\
 https://nytimes.com/2021/07/02/us/politics/supreme-court-arizona-voting.html?searchResultPosition=3
 
 **Belgium’s Golden Team Searches for a Silver Lining**\
