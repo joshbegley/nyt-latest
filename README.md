@@ -27,7 +27,7 @@ https://nytimes.com/2021/07/02/business/didi-china-inquiry.html?searchResultPosi
 https://nytimes.com/2021/07/02/sports/soccer/jack-grealish-england-euro-2020.html?searchResultPosition=7
 
 **Tesla’s sales more than doubled in the second quarter.**\
-`The company sold nearly 91,000 cars in a period when auto sales around the world were kept low by the pandemic.`\
+`The company sold 201,250 cars in the period, a sign that the automaker was not affected as badly by the global chip shortage.`\
 https://nytimes.com/2021/07/02/business/tesla-second-quarter-sales.html?searchResultPosition=8
 
 **Going to the Beach? Here’s How to Check if It’s Polluted**\
