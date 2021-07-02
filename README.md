@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/02/nyregion/after-a-brutal-year-queens-is-slowly-ret
 `Five articles from around The Times, narrated just for you.`\
 https://nytimes.com/2021/07/02/podcasts/money-laundering-art-david-chao-narrated-articles.html?searchResultPosition=6
 
-**The June jobs report arrives today, offering a reading on economic momentum.**\
+**The June jobs report will offer a reading on economic momentum.**\
 `“This is a trickier phase of the recovery” in the labor market, one economist said.`\
 https://nytimes.com/2021/07/02/business/economy/june-2021-jobs-report.html?searchResultPosition=7
 
