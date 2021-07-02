@@ -1,6 +1,6 @@
 **The Deadliness of Hot Nights in a Heat Wave**\
 `Climate change is contributing to worsening heat waves. One result is that people can no longer count on a reprieve: cooler evening temperatures. Here’s how high overnight temperatures can make heat waves deadlier.`\
-https://nytimes.com/interactive/2021/07/02/climate/02-hotnights.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/07/02/climate/hot-nights.html?searchResultPosition=1
 
 **Bragg Set to Be Manhattan’s Next D.A., and a Potential Trump Scourge**\
 `With his main rival, Tali Farhadian Weinstein, conceding, Alvin Bragg is poised to lead the investigation into Donald J. Trump’s family business.`\
