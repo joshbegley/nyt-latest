@@ -1,6 +1,6 @@
 **U.S. Leaves Largest Afghan Base as Full Withdrawal Nears**\
 `With little fanfare, Bagram Air Base was handed over to the Afghan government, ending nearly two decades in which the Americans waged war from there.`\
-https://nytimes.com/2021/07/02/world/asia/afghanistan-bagram-us-withdrawl.html?searchResultPosition=1
+https://nytimes.com/2021/07/02/world/asia/afghanistan-bagram-us-withdrawal.html?searchResultPosition=1
 
 **Australia’s Path Out of the Pandemic: Will it Make You Scream With Anger or Joy?**\
 `The prime minister has finally acknowledged that Australia will eventually have to learn to live with Covid.`\
