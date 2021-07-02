@@ -1,5 +1,5 @@
 **Can One Florida Man Wrest Control of the G.O.P. From Another?**\
-`Ron DeSantis and Donald Trump may be headed for a 2024 showdown.`\
+`Florida’s governor and the former president may be headed for a 2024 showdown.`\
 https://nytimes.com/2021/07/02/opinion/donald-trump-ron-desantis-republican-party.html?searchResultPosition=1
 
 **June Jobs Report Delivers Good News and Big Questions for Washington**\
