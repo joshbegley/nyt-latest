@@ -1,40 +1,40 @@
+**Love of the Game**\
+`It’s hot outside, but Brooke Husic and Adam Nicolle’s puzzle sizzles even more.`\
+https://nytimes.com/2021/07/01/crosswords/daily-puzzle-2021-07-02.html?searchResultPosition=1
+
+**Teenager in ‘Slender Man’ Stabbing Is Ordered Released From Mental Hospital**\
+`Anissa Weier does not pose a threat to herself or others, a judge said, ruling in a case involving an attack on a 12-year-old by 12-year-old friends.`\
+https://nytimes.com/2021/07/01/us/slender-man-stabbing-anissa-weier-released.html?searchResultPosition=2
+
 **Richard Branson Will Try to Beat Jeff Bezos to Space With July 11 Flight**\
 `The Virgin Galactic founder hopes to edge out, by nine days, Blue Origin’s first flight with a crew aboard.`\
-https://nytimes.com/2021/07/01/science/richard-branson-jeff-bezos-space.html?searchResultPosition=1
+https://nytimes.com/2021/07/01/science/richard-branson-jeff-bezos-space.html?searchResultPosition=3
 
 **No Charges for Honolulu Police Officers Who Fatally Shot South African Man**\
 `The death of Lindani Myeni became a cause célèbre in South Africa, intensifying criticism there of racism in the United States and a feeling of solidarity with African Americans.`\
-https://nytimes.com/2021/07/01/us/police-shooting-lindani-myeni-honolulu.html?searchResultPosition=2
+https://nytimes.com/2021/07/01/us/police-shooting-lindani-myeni-honolulu.html?searchResultPosition=4
 
 **Johnson & Johnson Vaccine Protects Against Delta Variant, Company Reports**\
 `The vaccine also produced long-lasting immune responses, researchers said. Booster shots seem unnecessary, at least for now.`\
-https://nytimes.com/2021/07/01/health/coronavirus-johnson-vaccine-delta.html?searchResultPosition=3
+https://nytimes.com/2021/07/01/health/coronavirus-johnson-vaccine-delta.html?searchResultPosition=5
 
 **Inspector Who Said Florida Tower Appeared in ‘Good Shape’ Is Now Under Scrutiny**\
 `The chief building official of Surfside, Fla., had worked in at least six South Florida cities.`\
-https://nytimes.com/2021/07/01/us/ross-prieto-surfside.html?searchResultPosition=4
+https://nytimes.com/2021/07/01/us/ross-prieto-surfside.html?searchResultPosition=6
 
 **Merrick Garland pauses federal executions a year after his predecessor resumed them.**\
 `As a candidate, President Biden said that he would work to abolish federal executions and incentivize states to follow suit.`\
-https://nytimes.com/2021/07/01/us/politics/executions-pause-merrick-garland.html?searchResultPosition=5
+https://nytimes.com/2021/07/01/us/politics/executions-pause-merrick-garland.html?searchResultPosition=7
 
 **Only the Incompetent Need Apply**\
 `On the right, actual expertise is disqualifying.`\
-https://nytimes.com/2021/07/01/opinion/republicans-incompetence.html?searchResultPosition=6
+https://nytimes.com/2021/07/01/opinion/republicans-incompetence.html?searchResultPosition=8
 
 **Military and V.A. Struggle With Vaccination Rates in Their Ranks**\
 `President Biden could legally require members of the military to get vaccinated, but so far he has declined to do so.`\
-https://nytimes.com/2021/07/01/us/politics/military-va-vaccines.html?searchResultPosition=7
+https://nytimes.com/2021/07/01/us/politics/military-va-vaccines.html?searchResultPosition=9
 
 **‘We’re Here for You’: Biden Meets With Florida Families as Rescue Pauses**\
 `Mr. Biden said chances are fading that anyone else would be found alive under the mass of concrete and steel.`\
-https://nytimes.com/2021/07/01/us/politics/miami-building-collapse-biden.html?searchResultPosition=8
-
-**California finally has a date for Gov. Gavin Newsom’s recall election. It’s Sept. 14.**\
-`The date, just 75 days away, is the soonest that county officials said they could manage to pull together a special election.`\
-https://nytimes.com/2021/07/01/us/politics/california-gavin-newsom-recall-election.html?searchResultPosition=9
-
-**Bill Cosby, Free but Not Exonerated, Faces an Uncertain Future**\
-`Though his conviction was overturned, and his team is discussing future work, experts say it’s not likely the ruling will change the public perception of the former star.`\
-https://nytimes.com/2021/07/01/arts/television/bill-cosby-conviction-overturned-career-future.html?searchResultPosition=10
+https://nytimes.com/2021/07/01/us/politics/miami-building-collapse-biden.html?searchResultPosition=10
 
