@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/02/nyregion/hash-halper-dead.html?searchResultPositi
 https://nytimes.com/2021/07/02/nyregion/nyc-mayor-race-voting-count-eric-adams.html?searchResultPosition=4
 
 **The 7-year-old daughter of a Miami firefighter is among the victims.**\
-`Rescue crews found the girl's body while searching the wreckage of Champlain Towers South, officials said Friday.`\
+`Rescue crews found the girl’s body while searching the wreckage of Champlain Towers South, officials said on Friday.`\
 https://nytimes.com/2021/07/02/us/miami-surfside-collapse-victim-7-year-old-girl.html?searchResultPosition=5
 
 **Map: Tracking Hurricane Elsa’s Path**\
