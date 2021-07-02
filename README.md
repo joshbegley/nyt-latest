@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2021/07/02/briefing/the-weekender.html?searchRes
 https://nytimes.com/article/chlorophyll-water-supplement-benefits.html?searchResultPosition=6
 
 **After a Nightmare Year, Election Officials Are Quitting**\
-`The draining work of 2020 has spurred resignations and retirements. In a recent survey, one in three officials said they felt unsafe in the jobs`\
+`The draining work of 2020 has spurred resignations and retirements. In a recent survey, one in three officials said they felt unsafe in the jobs.`\
 https://nytimes.com/2021/07/02/us/politics/2020-election-voting-officials.html?searchResultPosition=7
 
 **Opinion: Talking With Biden’s Chief of Staff**\
