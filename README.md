@@ -28,5 +28,5 @@ https://nytimes.com/video/us/100000007848730/hurricane-elsa-florida-condominium-
 
 **Tran Thien Khiem, 95, Dies; a Power in South Vietnam Before Its Fall**\
 `For six years he was the nation’s second in command, a master of political intrigue who had plotted and thwarted coups before fleeing the Communist victory in 1945.`\
-https://nytimes.com/2021/07/02/world/asia/tran-thien-khiem-dead.html?searchResultPosition=9
+https://nytimes.com/2021/07/02/world/asia/tran-thien-khiem-95-dies-a-power-in-south-vietnam-before-its-fall.html?searchResultPosition=9
 
