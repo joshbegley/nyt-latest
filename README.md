@@ -28,7 +28,7 @@ https://nytimes.com/interactive/2021/07/02/opinion/ron-klain-interview.html?sear
 
 **As Afghan Forces Crumble, an Air of Unreality Grips the Capital**\
 `With the Taliban advancing and U.S. troops leaving, President Ashraf Ghani and his aides have become increasingly insular, and Kabul is slipping into shock.`\
-https://nytimes.com/2021/07/02/world/asia/afghanistan-ghani-withdrawal-taliban.html?searchResultPosition=9
+https://nytimes.com/2021/07/02/world/asia/afghanistan-withdrawal-taliban.html?searchResultPosition=9
 
 **Tears at Work? Just Own Your Cry**\
 `Crying in the workplace can be embarrassing, but it’s also a sign that you care. Here’s advice on what to do if you get weepy in the office.`\
