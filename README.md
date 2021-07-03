@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/03/world/asia/japan-myanmar-soccer-asylum.html?searc
 `Just a mile from Bagram Air Base, where U.S. forces departed on Thursday, shops sell items left over from two decades of fighting. Each one tells a story.`\
 https://nytimes.com/2021/07/03/world/asia/bagram-afghanistan.html?searchResultPosition=8
 
-**Chinese Millennials Are ‘Chilling,’ and Beijing Isn’t Happy About It**\
+**These Chinese Millennials Are ‘Chilling,’ and Beijing Isn’t Happy**\
 `Young people in China have set off a nascent counterculture movement that involves lying down and doing as little as possible.`\
 https://nytimes.com/2021/07/03/world/asia/china-slackers-tangping.html?searchResultPosition=9
 
