@@ -1,40 +1,40 @@
-**Journalist’s Monthslong Hunger Strike Points to Perils of Reporting in Morocco**\
-`Soulaimane Raissouni, who has been held without trial for over a year, is more than 80 days into a hunger strike.`\
-https://nytimes.com/2021/07/03/world/africa/morocco-journalists-jailings.html?searchResultPosition=1
+**The Relics of America’s War in Afghanistan**\
+`Just a mile from Bagram Air Base, where U.S. forces departed on Thursday, shops sell items left over from two decades of fighting. Each one tells a story.`\
+https://nytimes.com/2021/07/03/world/asia/bagram-afghanistan.html?searchResultPosition=1
 
-**Landslide in Japanese Resort Town Leaves at Least 19 Missing**\
-`A torrent of mud and debris washed away homes in Atami, about 60 miles southwest of Tokyo, after more than a foot of rain fell in 48 hours.`\
-https://nytimes.com/2021/07/03/world/asia/japan-landslide-atami.html?searchResultPosition=2
+**Chinese Millennials Are ‘Chilling,’ and Beijing Isn’t Happy About It**\
+`Young people in China have set off a nascent counterculture movement that involves lying down and doing as little as possible.`\
+https://nytimes.com/2021/07/03/world/asia/china-slackers-tangping.html?searchResultPosition=2
 
-**Kaseya, a Software Provider, Investigates Potential Cyberattack**\
-`At least eight companies have been affected, and some were asked for $5 million in ransom. Russian criminals may be behind it, security researchers said.`\
-https://nytimes.com/2021/07/02/technology/kaseya-a-software-provider-investigates-potential-cyberattack.html?searchResultPosition=3
+**Having an Outdoor Wedding? Here’s How to Prepare Your Skin.**\
+`From foundations and pressed powders to eye serums and lipsticks, these beauty products can help you withstand heat and other environmental elements.`\
+https://nytimes.com/2021/07/03/style/self-care/having-an-outdoor-wedding-heres-how-to-prepare-your-skin.html?searchResultPosition=3
 
-**Corrections: July 3, 2021**\
-`Corrections that appeared in print on Saturday, July 3, 2021.`\
-https://nytimes.com/2021/07/02/pageoneplus/corrections-july-3-2021.html?searchResultPosition=4
+**How Indian Americans Came to Love the Spelling Bee**\
+`Since 2008, a South Asian American child has been named a champion at every Scripps National Spelling Bee.`\
+https://nytimes.com/2021/07/03/style/spelling-bee-south-asian-americans.html?searchResultPosition=4
 
-**Quotation of the Day: In Kabul, High Tension and an Air of Unreality**\
-`Quotation of the Day for Saturday, July 3, 2021.`\
-https://nytimes.com/2021/07/02/todayspaper/quotation-of-the-day-in-kabul-high-tension-and-an-air-of-unreality.html?searchResultPosition=5
+**Are Masks a New Signifier of Social Class?**\
+`Face coverings are coming off, though not for everyone.`\
+https://nytimes.com/2021/07/03/style/are-masks-a-new-signifier-of-social-class.html?searchResultPosition=5
 
-**Took Shots With?**\
-`Come party on a Saturday with Kameron Austin Collins.`\
-https://nytimes.com/2021/07/02/crosswords/daily-puzzle-2021-07-03.html?searchResultPosition=6
+**Back at the Barre, Lessons Learned**\
+`Students at the Royal Ballet School, having fled to homes around the world for months of virtual training, are reuniting for their annual showcase.`\
+https://nytimes.com/2021/07/03/arts/dance/london-royal-ballet-school-pandemic.html?searchResultPosition=6
 
-**Why We Hold Olympic Athletes to Such Ridiculous and Cruel Standards**\
-`A system that punishes athletes for being human is not a just system.`\
-https://nytimes.com/2021/07/02/opinion/shacarri-richardson-drug-test-marijuana.html?searchResultPosition=7
+**In Case Against Trump’s Company, Echoes of His Father’s Tactics on Taxes**\
+`The first criminal prosecution involving the former president’s business hearkens back to Fred Trump’s $16,135 purchase of boilers in the 1990s.`\
+https://nytimes.com/2021/07/03/us/weisselberg-fred-trump-invoice-scheme.html?searchResultPosition=7
 
-**A North Miami Beach condo tower was evacuated over safety concerns.**\
-`By Giulia Heyward and Zach Montague`\
-https://nytimes.com/2021/07/02/us/north-miami-beach-condo-evacuated.html?searchResultPosition=8
+**Retooling ‘La Bohème’ for Pandemic Performances**\
+`Opera has been forced to forgo its love of packed stages, large orchestras and sold-out crowds, for now.`\
+https://nytimes.com/2021/07/03/arts/music/royal-opera-house-london-la-boheme-pandemic.html?searchResultPosition=8
 
-**Trump Is Said to Have Called Arizona Official After Election Loss**\
-`Donald Trump tried to reach the top Republican in metropolitan Phoenix as his allies were trying to overturn the state’s 2020 results, according to the official, who said he did not pick up the calls.`\
-https://nytimes.com/2021/07/02/us/politics/trump-arizona-hickman-2020-election.html?searchResultPosition=9
+**How to Keep an Opera From Bursting at the Seams**\
+`The head of costuming for the English National Opera shares a few tricks of her trade.`\
+https://nytimes.com/2021/07/03/arts/costumes-english-national-opera.html?searchResultPosition=9
 
-**Mayor Orders Demolition of Standing Portion of Surfside Condo**\
-`Daniella Levine Cava, mayor of Miami-Dade County, said that the death toll in the Champlain Towers South collapse rose to 22 on Friday, with more than 100 still unaccounted for. She also ordered that the rest of the building be demolished.`\
-https://nytimes.com/video/us/100000007849088/surfside-condo-collapse-demolition-miami-mayor.html?searchResultPosition=10
+**Hot Dinosaur Summer**\
+`Plus: Antarctica as a person, recycling bowling balls and "Jeff Who?"`\
+https://nytimes.com/2021/07/03/science/hot-dinosaur-summer.html?searchResultPosition=10
 
