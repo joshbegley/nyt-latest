@@ -1,6 +1,6 @@
 **‘Let the Birds Eat Them’: Crops Shrivel as Heat Wave Hits Washington**\
 `Farmers in eastern Washington, a leading agricultural region, face a blow to harvests. Amid the heat wave, others trying to cool down are diving into canals or just seeking refuge in the shade.`\
-https://nytimes.com/2021/07/03/us/let-the-birds-eat-them-crops-shrivel-as-heat-wave-hits-washington.html?searchResultPosition=1
+https://nytimes.com/2021/07/03/us/washington-state-heat-farmers.html?searchResultPosition=1
 
 **Roger Federer’s Gift to Tennis: A Shot That Players Love to Hit**\
 `The squash shot may be a last-resort play, but it’s fun to unleash and spectacular to watch. Federer made it his own, but many other players, especially women, are adopting it.`\
