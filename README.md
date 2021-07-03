@@ -1,5 +1,5 @@
 **A North Miami Beach condo tower was evacuated over safety concerns.**\
-`By Zach Montague`\
+`By Giulia Heyward and Zach Montague`\
 https://nytimes.com/2021/07/02/us/north-miami-beach-condo-evacuated.html?searchResultPosition=1
 
 **Trump Is Said to Have Called Arizona Official After Election Loss**\
