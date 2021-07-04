@@ -14,8 +14,8 @@ https://nytimes.com/2021/07/03/sports/mets-yankees-subway-series.html?searchResu
 `Her focus was on immunology and how to predict and diagnose the outcomes of transplants. She was, a colleague said, “a great researcher and a great mentor to many people.”`\
 https://nytimes.com/2021/07/03/health/dr-barbara-murphy-dead.html?searchResultPosition=5
 
-**Cargo Ship, Recently Israeli-Led, Struck in High Seas Encounter**\
-`The attack could be the latest aggressive act tied to a shadow war between Iran and Israel playing out on the high seas.`\
+**Cargo Ship, Recently Israeli-Led, Is Struck in High Seas Encounter**\
+`The attack, which did little if any damage, appeared to be the latest act in the shadow war between Iran and Israel.`\
 https://nytimes.com/2021/07/03/world/middleeast/israel-ship-iran-gulf.html?searchResultPosition=6
 
 **Search and rescue work is stopped temporarily as engineers prepare for demolition.**\
