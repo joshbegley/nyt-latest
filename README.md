@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/04/business/tyson-chicken-recall.html?searchResultPo
 `Their relationship has been a constant through wins and losses, reinvention and raising a family. At 96 and 93, they have come to rely on their bond more now than ever.`\
 https://nytimes.com/2021/07/04/us/jimmy-rosalynn-carter-anniversary.html?searchResultPosition=2
 
-**A Glowing Shrine to Books**\
+**A Glowing Shrine to the Printed Word**\
 `A mighty wall of books impresses in the Stavros Niarchos Foundation Library, a transformed branch that bursts with new services and technology.`\
 https://nytimes.com/2021/07/04/arts/design/Stavros-Niarchos-Foundation-Library-review.html?searchResultPosition=3
 
