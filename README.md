@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/04/business/tyson-chicken-recall.html?searchResultPo
 
 **Jimmy and Rosalynn Carter Reflect on 75 Years of Marriage**\
 `Their relationship has been a constant through wins and losses, reinvention and raising a family. At 96 and 93, they have come to rely on their bond more now than ever.`\
-https://nytimes.com/2021/07/04/us/jimmy-and-rosalynn-carter-reflect-on-75-years-of-marriage.html?searchResultPosition=2
+https://nytimes.com/2021/07/04/us/jimmy-rosalynn-carter-anniversary.html?searchResultPosition=2
 
 **A Glowing Shrine to Books**\
 `A mighty wall of books impresses in the Stavros Niarchos Foundation Library, a transformed branch that bursts with new services and technology.`\
