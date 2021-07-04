@@ -22,8 +22,8 @@ https://nytimes.com/2021/07/04/opinion/covid-vaccine-kids-risks.html?searchResul
 `Clear due dates are a powerful tool in our quest to get things done.`\
 https://nytimes.com/2021/07/04/opinion/deadlines-psychology-biden.html?searchResultPosition=6
 
-**For the Bucks, the Jrue Holiday Gamble Yielded a Jackpot**\
-`When Milwaukee traded for Holiday, it wasn’t clear that he could fill gaps that had kept the team out of the N.B.A. finals and that threatened the franchise’s future with Giannis Antetokounmpo. Now, both problems are solved.`\
+**For the Milwaukee Bucks, the Jrue Holiday Gamble Yielded a Jackpot**\
+`When the Bucks acquired Holiday, it was hardly clear that they had solved their problems and improved their chances of enticing Giannis Antetokounmpo to stay.`\
 https://nytimes.com/2021/07/04/sports/basketball/milwaukee-bucks-finals-jrue-holiday.html?searchResultPosition=7
 
 **The Tech Cold War’s ‘Most Complicated Machine’ That’s Out of China’s Reach**\
