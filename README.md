@@ -23,7 +23,7 @@ https://nytimes.com/2021/07/03/health/dr-barbara-murphy-dead.html?searchResultPo
 https://nytimes.com/2021/07/03/world/middleeast/israel-ship-iran-gulf.html?searchResultPosition=7
 
 **Search and rescue work is stopped temporarily as engineers prepare for demolition.**\
-`Once sections of the site are cleared as safe, the work will resume, the mayor of Miami-Dade County told reporters.`\
+`Once sections of the site are safe, search and rescue work will resume, the mayor of Miami-Dade County told reporters.`\
 https://nytimes.com/2021/07/03/us/miami-collapse-building-demolition.html?searchResultPosition=8
 
 **William Fagaly, Curator Who Focused on African Art, Dies at 83**\
