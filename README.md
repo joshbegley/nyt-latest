@@ -1,4 +1,4 @@
-**Lax Enforcement Let South Florida Towers Skirt Repairs for Years**\
+**Lax Enforcement Let South Florida Towers Skirt Inspections for Years**\
 `The collapse of Champlain Towers South has prompted a review of hundreds of older high-rises. Some buildings ignored or delayed action on serious maintenance issues.`\
 https://nytimes.com/2021/07/04/us/south-florida-condo-maintenance-violations.html?searchResultPosition=1
 
