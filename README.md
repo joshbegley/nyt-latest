@@ -35,6 +35,6 @@ https://nytimes.com/2021/07/04/books/review/the-paper-palace-miranda-cowley-hell
 https://nytimes.com/2021/07/04/nyregion/metropolitan-diary.html?searchResultPosition=9
 
 **Philippine Military Plane Crashes With 96 People Aboard**\
-`More than 80 soldiers were on the C-130 plane, officials said. At least 29 people were killed, and it was feared that the toll would climb.`\
+`More than 80 soldiers were on the C-130 plane, officials said. At least 31 people were killed, including two civilians on the ground, and it was feared that the toll would climb.`\
 https://nytimes.com/2021/07/04/world/asia/philippines-plane-crash.html?searchResultPosition=10
 
