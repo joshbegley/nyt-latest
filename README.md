@@ -12,7 +12,7 @@ https://nytimes.com/video/us/100000007850813/surfside-condo-demolition.html?sear
 
 **American Internet Giants Hit Back at Hong Kong Doxxing Law**\
 `A trade group representing Google, Facebook, Amazon, Apple and others said changes to a Hong Kong privacy law could stop firms from providing services in the city.`\
-https://nytimes.com/2021/07/05/business/hong-kong-doxxing-national-security-law.html?searchResultPosition=4
+https://nytimes.com/2021/07/05/technology/hong-kong-doxxing-national-security-law.html?searchResultPosition=4
 
 **He’s Heir to a Fruit-Juice Empire, but His Main Focus Is Art**\
 `Eugenio López Alonso divides his time between Los Angeles and Mexico, filling both homes with paintings and sculpture.`\
