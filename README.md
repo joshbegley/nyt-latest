@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/05/dining/what-to-cook-right-now.html?searchResultPo
 https://nytimes.com/2021/07/05/opinion/letters/appearance-bias.html?searchResultPosition=2
 
 **China’s Crackdown on Didi Is a Reminder That Beijing Is in Charge**\
-`After targeting the ride-hailing platform days after its I.P.O., regulators on Monday moved against more companies that had recently listed on Wall Street.`\
+`After targeting the ride-hailing platform days after its I.P.O., regulators on Monday moved against more companies that had recently been listed on Wall Street.`\
 https://nytimes.com/2021/07/05/technology/china-didi-crackdown.html?searchResultPosition=3
 
 **England’s restrictions will end this month, Boris Johnson is expected to announce on Monday.**\
