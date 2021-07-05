@@ -1,6 +1,6 @@
 **A Closer Look at the Colon Condition that Hospitalized the Pope**\
 `Francis suffered a disorder that is relatively common and treatable, and doctors expect him to make a full recovery.`\
-https://nytimes.com/2021/07/05/world/europe/a-closer-look-at-the-colon-condition-that-hospitalized-the-pope.html?searchResultPosition=1
+https://nytimes.com/2021/07/05/world/europe/pope-francis-diverticulitis.html?searchResultPosition=1
 
 **England to Lift Most Virus Restrictions, Including Those for Masks**\
 `Critics dismissed as “absolutely ridiculous” the idea that people will continue to wear masks voluntarily on trains and in crowded indoor spaces.`\
