@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/05/business/hong-kong-doxxing-national-security-law.
 `Eugenio López Alonso divides his time between Los Angeles and Mexico, filling both homes with paintings and sculpture.`\
 https://nytimes.com/2021/07/05/arts/design/eugenio-lopez-alonso-jumex-art-collection.html?searchResultPosition=2
 
-**As Lebanon’s Crisis Deepens, Lines for Fuel Grow, Food and Medicine Are Scarce**\
+**As Lebanon’s Crisis Deepens, Lines for Fuel Grow, and Food and Medicine Are Scarce**\
 `The World Bank said the financial crisis could rank among the world’s three worst since the mid-1800s. The currency has lost more than 90 percent of its value and unemployment has skyrocketed.`\
 https://nytimes.com/2021/07/05/world/middleeast/lebanon-economic-crisis.html?searchResultPosition=3
 
