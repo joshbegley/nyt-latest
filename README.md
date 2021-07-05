@@ -1,5 +1,5 @@
-**Officials Prepare to Demolish What’s Left of South Florida Building That Collapsed**\
-`An arriving tropical storm made demolition using controlled explosives unavoidable, the authorities said.`\
+**The Remains of a South Florida Condo Building Was Demolished Overnight**\
+`An arriving tropical storm made demolition using controlled explosives unavoidable following the building collapse, the authorities said.`\
 https://nytimes.com/2021/07/04/us/surfside-building-collapse-demolition.html?searchResultPosition=1
 
 **Golf Pro Among 3 Dead After Shooting at Georgia Country Club, Police Say**\
