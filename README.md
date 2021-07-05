@@ -1,40 +1,40 @@
-**Hello, Paris Fashion! Couture Returns With Pieter Mulier’s Alaïa Debut**\
-`Four years after its founder’s death, the cult brand has a new designer. How did he do?`\
-https://nytimes.com/2021/07/05/style/pieter-mulier-azzedine-alaia-couture.html?searchResultPosition=1
+**Brilliant, Marquise or Even Pear. What’s Your Favorite Diamond Cut?**\
+`Over the centuries, diamond cutters’ skill has had a big impact on the gem’s popularity. Probably even influencing your own taste.`\
+https://nytimes.com/2021/07/05/fashion/jewelry-diamond-cutting-antwerp-belgium.html?searchResultPosition=1
 
-**Japanese Resort Town Searching for 80 People After Mudslide**\
-`Three victims have been declared dead, and the authorities are trying to determine whether the dozens of missing were caught up in a disaster set off by record rains.`\
-https://nytimes.com/2021/07/05/world/asia/atami-japan-mudslide.html?searchResultPosition=2
+**Inked Mummies, Linking Tattoo Artists With Their Ancestors**\
+`As scientists find more tattoos on preserved remains from Indigenous cultures, artists living today are drawing from them to revive cultural traditions.`\
+https://nytimes.com/2021/07/05/science/mummies-tattoos-archaeology.html?searchResultPosition=2
 
-**Climate Change Is Making It Harder for Campers to Beat the Heat**\
-`Burn bans, flashlight campfires, extreme heat and stronger rainstorms: Today’s campers are experiencing their summer fun against the backdrop of climate change.`\
-https://nytimes.com/2021/07/05/climate/global-warming-summer-camp.html?searchResultPosition=3
+**Inside a Peyote Pilgrimage**\
+`Drug tourists, mining companies and farming encroachment are threatening the Wixárika people’s annual hunt for the psychedelic plant in the Mexican desert.`\
+https://nytimes.com/2021/07/05/travel/mexico-peyote-pilgrimage.html?searchResultPosition=3
 
-**What’s on TV This Week: ‘Judas and the Black Messiah’ and Shark Week**\
-`Shaka King’s historical drama about the Black Panthers airs on HBO. And Discovery spends a week with sharks once again.`\
-https://nytimes.com/2021/07/05/arts/television/whats-on-tv-judas-and-the-black-messiah-shark-week.html?searchResultPosition=4
+**Amazon Transformed Seattle. Now, Its Workers Are Poised to Take It Back.**\
+`With the failure of the union campaign in Bessemer still fresh on their minds, labor organizers are looking to retool their strategy to.`\
+https://nytimes.com/2021/07/05/opinion/bezos-amazon-bessmer-labor.html?searchResultPosition=4
 
-**Your Monday Briefing**\
-`America celebrates July 4.`\
-https://nytimes.com/2021/07/05/briefing/independence-day-coronavirus-plane-crash.html?searchResultPosition=5
+**Who Needs the Grand Canyon? Try a Microadventure.**\
+`How to find a sense of awe and discover a miraculous world right outside your door.`\
+https://nytimes.com/2021/07/05/well/live/awe-microadventure-exploration.html?searchResultPosition=5
 
-**Quotation of the Day: Prospect of Demolishing Complex That Crumbled Creates New Distress**\
-`Quotation of the Day for Monday, July 5, 2021.`\
-https://nytimes.com/2021/07/05/todayspaper/quotation-of-the-day-prospect-of-demolishing-complex-that-crumbled-creates-new-distress.html?searchResultPosition=6
+**Gems Cut Like a Kite Fly High**\
+`Jewelry buyers looking for something distinctive have turned the Art Deco-inspired cut into a trend.`\
+https://nytimes.com/2021/07/05/fashion/jewelry-gem-cutting-kite-shape.html?searchResultPosition=6
 
-**At Wimbledon One Final Day of Rest, and One Last Manic Monday**\
-`Starting in 2022, the tournament will eliminate its traditional “middle Sunday” off and instead spread fourth-round matches across Sunday and Monday.`\
-https://nytimes.com/2021/07/05/sports/tennis/wimbledon-round-of-16.html?searchResultPosition=7
+**Birthday Parties as Virus Vector**\
+`Just how much Covid was spreading behind closed doors last year? Quite a lot, as a new study with a simple yet creative approach found out.`\
+https://nytimes.com/2021/07/05/upshot/birthday-parties-as-virus-vector.html?searchResultPosition=7
 
-**Wimbledon, and British Tennis Fans, See a Rising Star in Emma Raducanu**\
-`The teenager, a wild-card entry, delighted and surprised in the tournament’s first week. She is part of a growing trend of young women who are showing that experience isn’t everything.`\
-https://nytimes.com/2021/07/05/sports/tennis/wimbledon-emma-raducanu.html?searchResultPosition=8
+**Moving Downtown, to the Center of the Action**\
+`A breakup during the pandemic sent him home to Long Island, where he recharged and decided the Upper East Side was just too quiet.`\
+https://nytimes.com/2021/07/05/realestate/renter-new-york-city-downtown.html?searchResultPosition=8
 
-**‘They Need to Realize It’s Not All About the Money’**\
-`When our columnist asked how the Olympics could be revamped, readers responded with calls to focus on the competition and do away with the corruption and excess that have bloated the Games.`\
-https://nytimes.com/2021/07/05/sports/tokyo-olympics-pandemic-rethink.html?searchResultPosition=9
+**They Were the Nice, Older Couple Next Door. Then the First Body Turned Up.**\
+`An Iranian couple has confessed to murdering and dismembering their son, years after killing a daughter and her husband. They are not sorry.`\
+https://nytimes.com/2021/07/05/world/middleeast/iran-parents-murders.html?searchResultPosition=9
 
-**The Liberty’s Role in Making W.N.B.A. Players ‘Top Dogs’ of Activism**\
-`Five years ago, players were fined for wearing unapproved shirts to protest the fatal shootings of two Black men. The league has since embraced players’ desire to speak out against social injustice.`\
-https://nytimes.com/2021/07/05/sports/wnba-social-activism-protests-new-york-liberty.html?searchResultPosition=10
+**Miracle Cures and Magnetic People. Brazil’s Fake News Is Utterly Bizarre.**\
+`There’s something special about the country’s delirious disinformation.`\
+https://nytimes.com/2021/07/05/opinion/brazil-fake-news-bolsonaro.html?searchResultPosition=10
 
