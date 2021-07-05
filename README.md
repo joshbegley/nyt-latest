@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/04/us/pinetree-country-club-shooting.html?searchResu
 https://nytimes.com/2021/07/04/business/media/naomi-osaka-tennis-journalism.html?searchResultPosition=3
 
 **In Another Yankees Collapse, No Mercy From the Mets or the Home Crowd**\
-`In the first game of a doubleheader on Sunday, the Mets rallied for six runs in the final inning for a 10-5 victory at Yankee Stadium.`\
+`In the first game of a doubleheader on Sunday, the Mets rallied for six runs in the final inning for a 10-5 victory at Yankee Stadium. The Yankees got a much-needed win in the second game.`\
 https://nytimes.com/2021/07/04/sports/baseball/yankees-mets.html?searchResultPosition=4
 
 **Lax Enforcement Let South Florida Towers Skirt Inspections for Years**\
