@@ -1,4 +1,4 @@
-**A Closer Look at the Colon Condition that Hospitalized the Pope**\
+**A Closer Look at the Colon Condition That Hospitalized the Pope**\
 `Francis suffered a disorder that is relatively common and treatable, and doctors expect him to make a full recovery.`\
 https://nytimes.com/2021/07/05/world/europe/pope-francis-diverticulitis.html?searchResultPosition=1
 
