@@ -1,4 +1,4 @@
-**The Remains of a South Florida Condo Building Was Demolished Overnight**\
+**Remainder of a South Florida Condo Building Was Demolished Overnight**\
 `An arriving tropical storm made demolition using controlled explosives unavoidable following the building collapse, the authorities said.`\
 https://nytimes.com/2021/07/04/us/surfside-building-collapse-demolition.html?searchResultPosition=1
 
