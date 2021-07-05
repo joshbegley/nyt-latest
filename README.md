@@ -1,5 +1,5 @@
 **Richard Donner, Director of ‘Superman’ and ‘Lethal Weapon’ Films, Dies at 91**\
-`The Bronx-born Mr. Donner was in his late 40s when he made his first megahit, about the Man of Steel, but others soon followed, including “Goonies” and “Scrooged.”`\
+`The Bronx-born Mr. Donner was in his late 40s when he made his first megahit, about the Man of Steel, but others soon followed, including “The Goonies” and “Scrooged.”`\
 https://nytimes.com/2021/07/05/movies/richard-donner-dead.html?searchResultPosition=1
 
 **Terry Donahue, Who Led U.C.L.A. to Bowl Victories, Dies at 77**\
