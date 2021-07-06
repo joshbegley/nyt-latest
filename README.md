@@ -14,7 +14,7 @@ https://nytimes.com/2021/07/06/podcasts/the-daily/delta-variant-coronavirus-vacc
 `New York senior communities take advantage of the city’s cultural institutions by inviting artists and experts to their facilities.`\
 https://nytimes.com/2021/07/06/realestate/new-york-city-senior-housing.html?searchResultPosition=4
 
-**Plane Disappears in Russia With 28 People Aboard**\
+**Plane Crashes in Russia With 28 People Aboard**\
 `The aircraft, flying a regional route in the far eastern peninsula of Kamchatka, lost contact with air traffic control about 10 minutes before it was expected to land.`\
 https://nytimes.com/2021/07/06/world/europe/russia-plane.html?searchResultPosition=5
 
