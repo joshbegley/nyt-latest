@@ -24,7 +24,7 @@ https://nytimes.com/2021/07/06/world/canada/indigenous-governor-general-mary-sim
 
 **Watch Live: Biden Outlines Vaccination Strategy**\
 `President Biden delivers remarks on his administration’s coronavirus vaccination campaign to reach the tens of millions of Americans who remain unvaccinated.`\
-https://nytimes.com/video/us/politics/100000007852778/biden-covid-live.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/politics/100000007852778/biden-covid-live.html?searchResultPosition=8
 
 **Steeped in Soccer Heartbreak, England Holds Its Breath**\
 `Raised on 55 years of disappointment, English fans are daring to hope this might be their year for a major championship.`\
