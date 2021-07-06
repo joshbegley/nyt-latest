@@ -1,5 +1,5 @@
 **Trudeau Appoints Canada’s First Indigenous Governor General**\
-`The appointment of Mary Simon, a former ambassador, comes as Canada grapples with the discovery of hundreds unmarked graves, mainly of Indigenous children.`\
+`The appointment of Mary Simon, a former ambassador, comes as Canada grapples with the discovery of hundreds of unmarked graves, mainly of Indigenous children.`\
 https://nytimes.com/2021/07/06/world/canada/indigenous-governor-general-mary-simon.html?searchResultPosition=1
 
 **Watch Live: Biden Outlines Vaccination Strategy**\
