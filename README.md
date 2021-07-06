@@ -23,7 +23,7 @@ https://nytimes.com/2021/07/06/technology/china-business-politics-didi.html?sear
 https://nytimes.com/2021/07/06/technology/JEDI-contract-cancelled.html?searchResultPosition=6
 
 **To try to spur shots, Biden will again outline strategies to reach those who remain unvaccinated.**\
-`President Biden will discuss five areas of focus, all avenues it has already pursued including for employers to set up clinics at work and to offer paid time off for workers.`\
+`President Biden will discuss five areas of focus, all avenues it has already pursued including calling for employers to set up clinics at work and to offer paid time off for workers.`\
 https://nytimes.com/2021/07/06/us/politics/biden-vaccinations-strategy.html?searchResultPosition=7
 
 **Vatican History of Obfuscation Clouds News on Francis’ Health**\
