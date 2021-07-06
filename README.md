@@ -1,40 +1,40 @@
+**Self-Described Virginia Militiaman Is Arrested in Capitol Breach**\
+`Prosecutors did not charge the suspect, Fi Duong, with crimes of violence but accused him of planning to use Molotov cocktails and of conducting surveillance at the Capitol after Jan. 6.`\
+https://nytimes.com/2021/07/06/us/politics/fi-duong-jan-6-riot.html?searchResultPosition=1
+
 **In Disaster City, Texas, Rescues Are a Way of Life**\
 `Emergency workers like those combing through the remains of the condo building in Surfside, Fla, come to East Texas to learn how to save people trapped in rubble.`\
-https://nytimes.com/2021/07/06/us/disaster-city-texas.html?searchResultPosition=1
+https://nytimes.com/2021/07/06/us/disaster-city-texas.html?searchResultPosition=2
 
 **Biden Pleads With Americans to Get Vaccinated**\
 `President Biden announced that nearly 160 million Americans will be fully vaccinated by the end of the week and implored all unvaccinated people to get shots, saying that they were putting their communities at risk.`\
-https://nytimes.com/video/us/politics/100000007853025/biden-coronavirus-vaccine.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000007853025/biden-coronavirus-vaccine.html?searchResultPosition=3
 
 **Do We Really Need to Take 10,000 Steps a Day for Our Health?**\
 `The advice that we take 10,000 steps a day is more a marketing accident than based on science. Taking far fewer may have notable benefits.`\
-https://nytimes.com/2021/07/06/well/move/10000-steps-health.html?searchResultPosition=3
+https://nytimes.com/2021/07/06/well/move/10000-steps-health.html?searchResultPosition=4
 
 **Should America Invest More in Amtrak?**\
 `Readers recount their travel experiences, good and bad. Also: Clemency and the pandemic.`\
-https://nytimes.com/2021/07/06/opinion/letters/amtrak-trains-transportation.html?searchResultPosition=4
+https://nytimes.com/2021/07/06/opinion/letters/amtrak-trains-transportation.html?searchResultPosition=5
 
 **Behind the Clash at OPEC: Growing Competition in the Gulf**\
 `The United Arab Emirates wants to pump more oil, annoying its giant rival, Saudi Arabia.`\
-https://nytimes.com/2021/07/06/business/Saudi-Arabia-UAE-OPEC.html?searchResultPosition=5
+https://nytimes.com/2021/07/06/business/Saudi-Arabia-UAE-OPEC.html?searchResultPosition=6
 
 **Your Wednesday Briefing**\
 `Divided views on Hong Kong violence.`\
-https://nytimes.com/2021/07/06/briefing/hong-kong-taj-mahal-reopening-opec.html?searchResultPosition=6
+https://nytimes.com/2021/07/06/briefing/hong-kong-taj-mahal-reopening-opec.html?searchResultPosition=7
 
 **In Praise of Sweat**\
 `In many cultures, perspiring is seen as integral to physical and spiritual well-being. The latest related holistic products respect this natural process, and smell good, too.`\
-https://nytimes.com/2021/07/06/t-magazine/sweat-deodorant-soap-beauty.html?searchResultPosition=7
+https://nytimes.com/2021/07/06/t-magazine/sweat-deodorant-soap-beauty.html?searchResultPosition=8
 
 **Scott Walker’s Wisconsin Paved the Way for Donald Trump’s America**\
 `If Democrats want to create an enduring coalition to prevent the unraveling of democracy, they must return to their labor roots.`\
-https://nytimes.com/2021/07/06/opinion/wisconsin-act-10-trump.html?searchResultPosition=8
+https://nytimes.com/2021/07/06/opinion/wisconsin-act-10-trump.html?searchResultPosition=9
 
 **France Drops Plans to Enshrine Climate Fight in Constitution**\
 `The announcement marked a setback for President Emmanuel Macron, who had framed the constitutional change as the symbolic backbone of his environmental policies.`\
-https://nytimes.com/2021/07/06/world/europe/france-climate-change-constitution.html?searchResultPosition=9
-
-**White House Says Combatting Ransomware Attacks Is a ‘Priority’**\
-`Last week, a number of small- and medium-sized businesses were hit by a major cyberattack, causing other companies around the world to fear the same. The Biden administration said it’s working to prevent further cyberattacks.`\
-https://nytimes.com/video/us/politics/100000007852875/psaki-washington-ransomware-biden.html?searchResultPosition=10
+https://nytimes.com/2021/07/06/world/europe/france-climate-change-constitution.html?searchResultPosition=10
 
