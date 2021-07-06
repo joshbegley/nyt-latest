@@ -1,4 +1,4 @@
-**Watch Live: Officials Give Update as Tropical Storm Elsa Nears**\
+**Watch Live: Florida Officials Give Update on Recovery Efforts**\
 `Officials in Surfside, Fla., provide an update on search-and-rescue efforts as Tropical Storm Elsa barrels toward the state, complicating rescue efforts.`\
 https://nytimes.com/video/us/100000007853165/condo-collapse-live.html?searchResultPosition=1
 
