@@ -23,7 +23,7 @@ https://nytimes.com/2021/07/06/us/alcohol-drinking-health.html?searchResultPosit
 https://nytimes.com/2021/07/06/us/politics/fi-duong-jan-6-riot.html?searchResultPosition=6
 
 **In Disaster City, Texas, Rescues Are a Way of Life**\
-`Emergency workers like those combing through the remains of the condo building in Surfside, Fla, come to East Texas to learn how to save people trapped in rubble.`\
+`Emergency workers like those combing through the remains of the condo building in Surfside, Fla., come to East Texas to learn how to save people trapped in rubble.`\
 https://nytimes.com/2021/07/06/us/disaster-city-texas.html?searchResultPosition=7
 
 **Biden Pleads With Americans to Get Vaccinated**\
