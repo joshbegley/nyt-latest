@@ -34,7 +34,7 @@ https://nytimes.com/2021/07/06/dining/momofuku-soy-sauce.html?searchResultPositi
 `Chandon’s new Garden Spritz is a citrusy, bubbly drink made in South America.`\
 https://nytimes.com/2021/07/06/dining/drinks/chandon-garden-spritz.html?searchResultPosition=9
 
-**Watch Live: Surfside Officials Give Update as Tropical Storm Elsa Nears**\
-`Officials in Surfside, Fla., provide an update on search-and-rescue efforts at the site of a condo building collapse. Efforts at the site have grown even more urgent as a tropical storm barrels toward the state.`\
-https://nytimes.com/video/us/100000007852038/surfside-building-press-conference-live.html?searchResultPosition=10
+**Watch Full Video: Surfside Officials Give Update as Tropical Storm Elsa Nears**\
+`Officials in Surfside, Fla., provided an update on search-and-rescue efforts at the site of a condo building collapse. Efforts at the site have grown even more urgent as a tropical storm barrels toward the state.`\
+https://nytimes.com/video/embedded/us/100000007852038/surfside-building-press-conference-live.html?searchResultPosition=10
 
