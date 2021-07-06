@@ -1,5 +1,5 @@
 **Italy Bars the Door and Keeps the Party Going**\
-`Reverting to type after a Euro 2020 filled with fun, Italy defeats Spain on penalties to reach the final.`\
+`Reverting to type after a Euro 2020 filled with fun, Italy locked down on defense and then defeated Spain on penalties to reach the final.`\
 https://nytimes.com/2021/07/06/sports/soccer/euro-2020-italy-spain.html?searchResultPosition=1
 
 **Man Charged With Hate Crimes After Racist Tirade Is Caught on Video**\
