@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/06/nyregion/edward-cagney-mathews-nj-racist-man.html?searchResultPosition=1
 
 **Britney Spears’s Lawyer Asks to Step Down from Court-Appointed Role**\
-`The lawyer filed papers to withdraw after the singer said at a court hearing that she wanted new counsel to represent her and get her out the conservatorship that rules her life.`\
+`The lawyer filed papers to withdraw after the singer said at a court hearing that she wanted new counsel to represent her and get her out of the conservatorship that rules her life.`\
 https://nytimes.com/2021/07/06/arts/music/britney-spears-lawyer-conservatorship.html?searchResultPosition=2
 
 **Democratic primary turnout, the strongest in years, was just 26 percent. The Republican vote was even tinier.**\
