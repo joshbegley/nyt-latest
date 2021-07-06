@@ -22,19 +22,19 @@ https://nytimes.com/2021/07/06/us/politics/states-cities-stimulus-relief.html?se
 `For many advocates, last week's decision upholding two voting restrictions  could scarcely have come at a worse time.`\
 https://nytimes.com/2021/07/06/opinion/supreme-court-voter-suppression.html?searchResultPosition=6
 
+**The Elections Board resets its deadline (again), promising results by 7:30 p.m. Eastern.**\
+`By Michael Gold`\
+https://nytimes.com/2021/07/06/nyregion/the-elections-board-resets-its-deadline-again-promising-results-by-730-pm-eastern.html?searchResultPosition=7
+
 **At Wimbledon, the Women’s Final Four Is Set**\
 `No. 8 seed Karolina Pliskova will face No. 2 Aryna Sabalenka, and No. 1 Ashleigh Barty will play No. 25 Angelique Kerber on Thursday, for a chance to make the women’s singles final at Wimbledon.`\
-https://nytimes.com/2021/07/06/sports/tennis/wimbledon-karolina-pliskova-women-semifinal.html?searchResultPosition=7
+https://nytimes.com/2021/07/06/sports/tennis/wimbledon-karolina-pliskova-women-semifinal.html?searchResultPosition=8
 
 **Rising Oil and Gas Prices Add to U.S. Economic Challenges**\
 `Experts say a period of costlier fuel is likely to be brief. But if consumers start to assume otherwise, it could mean problems for Biden and the Fed.`\
-https://nytimes.com/2021/07/06/business/economy/gas-oil-biden-economy.html?searchResultPosition=8
+https://nytimes.com/2021/07/06/business/economy/gas-oil-biden-economy.html?searchResultPosition=9
 
 **Sha’Carri Richardson Will Miss Olympics After Not Being Chosen for Relays**\
 `The star sprinter, who lost a chance to run in the 100-meter individual event after failing a drug test for marijuana, could have been chosen for the relay team. But officials decided not to include her.`\
-https://nytimes.com/2021/07/06/sports/olympics/shacarri-richardson-olympics-team.html?searchResultPosition=9
-
-**Up to 1,500 businesses could be affected by a cyberattack carried out by a Russian group.**\
-`“It totally sucks,” said the chief executive of the software company Kaseya, which was compromised Friday along with some of its customers.`\
-https://nytimes.com/2021/07/06/technology/kaseya-cyberattack-ransomware-revil.html?searchResultPosition=10
+https://nytimes.com/2021/07/06/sports/olympics/shacarri-richardson-olympics-team.html?searchResultPosition=10
 
