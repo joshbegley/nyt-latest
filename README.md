@@ -1,40 +1,40 @@
-**Reunited (at Dior) and It Feels So Good?**\
-`We’re back to body parts, discos and sky dives. Yes, it’s showtime, in a mix of digital and physical, at Schiaparelli, Iris van Herpen and Giambattista Valli.`\
-https://nytimes.com/2021/07/06/style/dior-iris-van-herpen-couture.html?searchResultPosition=1
+**Virus cases are surging at crowded immigration detention centers in the U.S.**\
+`With more migrants being detained at the borders, centers run by ICE are seeing a rise in infections. Few detainees are vaccinated.`\
+https://nytimes.com/2021/07/06/us/covid-immigration-detention.html?searchResultPosition=1
 
-**Work at Home or the Office? Either Way, There’s a Start-Up for That.**\
-`As more Americans return to an office a few days a week, start-ups providing tools for hybrid work are trying to cash in.`\
-https://nytimes.com/2021/07/06/technology/hybrid-work-startups.html?searchResultPosition=2
+**Constructing the Perfect Villain: The Bad Contractor.**\
+`In her latest crime novel, Megan Abbott takes on the contractor-client relationship. In her Queens apartment, she’s avoided renovation altogether.`\
+https://nytimes.com/2021/07/06/realestate/megan-abbott-the-turnout-queens-apartment.html?searchResultPosition=2
 
-**How G.O.P. Laws in Montana Could Complicate Voting for Native Americans**\
-`Restrictions passed by the Republican-led Montana Legislature could have stark effects on Native American reservations, where voting in person can mean a two-hour drive.`\
-https://nytimes.com/2021/07/06/us/politics/montana-native-americans-voting-rights.html?searchResultPosition=3
+**A Crime Writer’s Midcentury-Modern Retreat in Queens**\
+`In her latest crime novel, Megan Abbott takes on the contractor-client relationship. In her Queens apartment, she’s avoided renovation altogether.`\
+https://nytimes.com/slideshow/2021/07/06/realestate/a-crime-writers-midcentury-modern-retreat-in-queens.html?searchResultPosition=3
 
-**A French Teenager’s Anti-Islam Rant Unleashed Death Threats. Now 13 Are on Trial.**\
-`The court case is about online harassment, but it also touches on some of France’s most sensitive issues: freedom of expression and blasphemy.`\
-https://nytimes.com/2021/07/06/world/europe/france-online-harassment-trial.html?searchResultPosition=4
+**‘Should We Sell?’ After Collapse, Hot Florida Market Faces Uncertainty**\
+`The partial collapse of the Champlain Towers South in Surfside, Fla., has plunged older beachside condos and high-rise buildings like it into a swirl of apprehension.`\
+https://nytimes.com/2021/07/06/us/florida-condos-insurance.html?searchResultPosition=4
 
-**Biotech Company That Botched Vaccines Faces Investor Revolt**\
-`In the latest shareholder lawsuit, a pension fund accused executives at Emergent BioSolutions of insider trading. The company, under investigation by Congress, has halted manufacturing of Covid-19 vaccines at its Baltimore factory at regulators’ request.`\
-https://nytimes.com/2021/07/06/us/biotech-company-that-botched-vaccines-faces-investor-revolt.html?searchResultPosition=5
+**The Continuing Confusion Over Airline Travel Credits**\
+`“Who has eight hours to call an online travel agent?” asked one of many frustrated would-be travelers encountering delays and confusing rules when rebooking flights.`\
+https://nytimes.com/2021/07/06/travel/airline-travel-credits.html?searchResultPosition=5
 
-**They Resurrected MGM. Amazon Bought the Studio. Now What?**\
-`Michael De Luca and Pamela Abdy have reinvigorated a once-storied Hollywood institution. Now it needs to figure out its place in a streaming company.`\
-https://nytimes.com/2021/07/06/business/media/mgm-amazon-michael-deluca-pamela-abdy.html?searchResultPosition=6
+**New Rules on Olympics Protests Already Causing Discord**\
+`The International Olympic Committee has loosened its rules on political speech at the Games. Olympic leaders in the United States and plenty of athletes say the changes don’t go far enough.`\
+https://nytimes.com/2021/07/06/sports/olympics/berry-podium-anthem-protest.html?searchResultPosition=6
 
-**Fox’s New Channel Changes the Climate for Weather TV**\
-`As viewers tune out cable news, Rupert Murdoch is preparing the debut of Fox Weather, a potentially powerful new player in a sphere long dominated by the Weather Channel.`\
-https://nytimes.com/2021/07/06/business/media/fox-weather-channel-plus.html?searchResultPosition=7
+**What it Means to Be Clutch in Basketball’s Biggest Moments**\
+`Legends are made in the N.B.A. finals, which begin Tuesday. Basketball players who have come through in high-stakes moments like this explain how they did it.`\
+https://nytimes.com/2021/07/06/sports/basketball/nba-finals-suns-bucks.html?searchResultPosition=7
 
-**Israel’s New Government Fails to Extend Contentious Citizenship Law**\
-`In an early setback for Prime Minister Naftali Bennett, parts of his coalition opposed the law. The opposition refused to come to the rescue.`\
-https://nytimes.com/2021/07/06/world/middleeast/israel-citizenship-law-failure.html?searchResultPosition=8
+**No Soil. No Growing Seasons. Just Add Water and Technology.**\
+`A new breed of hydroponic farm, huge and high-tech, is popping up in indoor spaces all over America, drawing celebrity investors and critics.`\
+https://nytimes.com/2021/07/06/dining/hydroponic-farming.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`England’s plan to remove restrictions.`\
-https://nytimes.com/2021/07/06/briefing/coronavirus-england-lebanon-miami-collapse.html?searchResultPosition=9
+**How Much Must I Give Up for My Schizophrenic Brother?**\
+`The magazine’s Ethicist columnist on weighing a sibling’s needs against your own — and more.`\
+https://nytimes.com/2021/07/06/magazine/ethics-schizophrenic-family.html?searchResultPosition=9
 
-**Quotation of the Day: As Wildfires Surge, Even Lush Hawaii Faces a Different World**\
-`Quotation of the Day for Tuesday, July 6, 2021.`\
-https://nytimes.com/2021/07/06/todayspaper/quotation-of-the-day-as-wildfires-surge-even-lush-hawaii-faces-a-different-world.html?searchResultPosition=10
+**Congress Can’t End Police Violence, but There’s a Lot It Can Do**\
+`Let's start by giving cities and towns more ways to respond to people undergoing a mental health crisis. `\
+https://nytimes.com/2021/07/06/opinion/mental-health-police-violence-congress.html?searchResultPosition=10
 
