@@ -18,7 +18,7 @@ https://nytimes.com/video/us/100000007854752/surfside-condo-collapse-death-toll.
 `You can believe your eyes because lightning bugs really are coordinating their nightly glows.`\
 https://nytimes.com/2021/07/07/science/fireflies-sync-flashes.html?searchResultPosition=6
 
-**Delta is now the dominant virus variant in the U.S., the C.D.C. estimates.**\
+**Delta, as expected, is now the dominant virus variant in the U.S., the C.D.C. estimates.**\
 `Research suggests that most vaccines still provide good protection against it and remain highly effective at preventing hospitalizations and deaths.`\
 https://nytimes.com/2021/07/07/health/delta-variant-cdc.html?searchResultPosition=7
 
