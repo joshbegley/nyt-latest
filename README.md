@@ -32,7 +32,7 @@ https://nytimes.com/2021/07/07/business/media/cryptocurrency-seeks-the-spotlight
 
 **‘Waitress’ Is Returning to Broadway. So Is Sara Bareilles.**\
 `The popular musical secured a limited engagement at the Ethel Barrymore Theater this fall. The singer and songwriter will reprise her role for six weeks.`\
-https://nytimes.com/2021/07/07/arts/waitress-returning-broadway-sara-bareilles.html?searchResultPosition=9
+https://nytimes.com/2021/07/07/theater/waitress-returning-broadway-sara-bareilles.html?searchResultPosition=9
 
 **Why the Recall Vote Will Be on Sept. 14**\
 `Wednesday: Here’s what to know about the date of the special election that will allow voters to decide whether to recall Gov. Gavin Newsom.`\
