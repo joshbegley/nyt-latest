@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000007853599/cuomo-new-york-gun-violenc
 
 **Georgia Golf Pro Was Gunned Down After He Witnessed a Crime, Police Say**\
 `Three days after a shooting on a golf course near Atlanta turned into a triple homicide, the gunman was still at large, and a motive still eluded the police.`\
-https://nytimes.com/2021/07/06/us/georgia-country-club-shooting-golf.html?searchResultPosition=2
+https://nytimes.com/2021/07/06/us/gene-siller-shooting-killing.html?searchResultPosition=2
 
 **Biden Makes New Push for Vaccinations, but Experts Say More Is Needed**\
 `Some public health experts worry that the administration is not being aggressive enough in waging what the president calls a “wartime effort” to vaccinate the country.`\
