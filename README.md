@@ -1,5 +1,5 @@
 **Haiti’s President Is Assassinated in His Home, Prime Minister Says**\
-`Jovenel Moise died in an attack on his private residence in the capital, Port-au-Prince. His wife was also shot. The prime minister said a group of attackers was involved.`\
+`Jovenel Moïse died in an attack on his private residence in the capital, Port-au-Prince. His wife was also shot. The prime minister said a group of attackers was involved.`\
 https://nytimes.com/2021/07/07/world/americas/haiti-president-jovenel-moise-killed.html?searchResultPosition=1
 
 **More Red-State Trouble**\
