@@ -1,6 +1,6 @@
 **A Star’s Return Is Not Enough**\
 `Giannis Antetokounmpo came back from injury, but the Suns beat the Bucks.`\
-https://nytimes.com/2021/07/07/sports/giannis-antetokounmpo-nba-finals.html?searchResultPosition=1
+https://nytimes.com/2021/07/07/sports/basketball/giannis-antetokounmpo-nba-finals.html?searchResultPosition=1
 
 **The Key Ingredient for a Team on the Rise**\
 `A trade for Willy Adames transformed both team and player as the Milwaukee Brewers surged to the top of the N.L. Central.`\
