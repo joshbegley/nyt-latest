@@ -16,7 +16,7 @@ https://nytimes.com/2021/07/07/world/americas/haiti-president-killing.html?searc
 
 **The Key Ingredient for a Team on the Rise**\
 `A trade for Willy Adames transformed both team and player as the Milwaukee Brewers surged to the top of the N.L. Central.`\
-https://nytimes.com/2021/07/07/sports/baseball/the-key-ingredient-for-a-team-on-the-rise.html?searchResultPosition=5
+https://nytimes.com/2021/07/07/sports/baseball/willy-adames-milwaukee-brewers.html?searchResultPosition=5
 
 **European Commission sees the economy recovering faster than expected.**\
 `Nineteen countries in the eurozone are expected to grow 4.8 percent in 2021, half a percentage point more than previously forecast.`\
