@@ -26,8 +26,8 @@ https://nytimes.com/2021/07/07/business/biden-infrastructure-economy.html?search
 `Scarlett Johansson plays the latest Avenger to get her own movie, but she’s overshadowed by Florence Pugh in this Cate Shortland-directed entry in the Marvel Cinematic Universe.`\
 https://nytimes.com/2021/07/07/movies/black-widow-review.html?searchResultPosition=7
 
-**Officials end the search for survivors in the Surfside condo collapse, shifting to recovery efforts.**\
-`Officials told families of the missing in a private briefing that the operation would transition from search and rescue to search and recovery.`\
+**Officials end the search for survivors in the Surfside condo collapse.**\
+`Families of the missing were told in a private briefing that the operation would transition to recovery efforts.`\
 https://nytimes.com/2021/07/07/us/surfside-condo-recovery-mission.html?searchResultPosition=8
 
 **N.Y.C. Mayoral Candidates Kathryn Garcia and Maya Wiley Concede**\
