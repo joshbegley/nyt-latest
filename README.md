@@ -14,7 +14,7 @@ https://nytimes.com/2021/07/07/us/darnella-frazier-uncle-minneapolis-police.html
 `A rapid analysis of last week’s record-breaking heat found that it would have been virtually impossible without the influence of human-caused climate change.`\
 https://nytimes.com/2021/07/07/climate/climate-change-heat-wave.html?searchResultPosition=4
 
-**Dozens of States Are Suing Google Over App Store Fees**\
+**Dozens of States Sue Google Over App Store Fees**\
 `Software developers have accused the company of harsh policies and taking a large cut of financial transactions in their apps.`\
 https://nytimes.com/2021/07/07/technology/google-play-store-antitrust-suit.html?searchResultPosition=5
 
