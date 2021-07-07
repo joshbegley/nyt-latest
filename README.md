@@ -10,8 +10,8 @@ https://nytimes.com/2021/07/06/nyregion/eric-adams-mayor-nyc.html?searchResultPo
 `“We can say unequivocally that democracy did prevail,” the president said in a statement.`\
 https://nytimes.com/2021/07/06/us/politics/biden-capitol-riot-six-months.html?searchResultPosition=3
 
-**Attempted Hack of R.N.C., Likely of Russian Origin, Tests Biden**\
-`The breach of a Republican National Committee contractor and a global ransomware attack, also tied to Russians, occurred weeks after a U.S.-Russian summit.`\
+**Attempted Hack of R.N.C. and Russian Ransomware Attack Test Biden**\
+`The breach of a Republican National Committee contractor, also linked to Russia, and the global ransomware attack occurred weeks after a U.S.-Russian summit.`\
 https://nytimes.com/2021/07/06/technology/rnc-hacked-cyberattack-russia.html?searchResultPosition=8
 
 **Italy Bars the Door and Keeps the Party Going**\
