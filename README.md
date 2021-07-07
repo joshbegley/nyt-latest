@@ -20,7 +20,7 @@ https://nytimes.com/2021/07/07/health/delta-variant-cdc.html?searchResultPositio
 
 **Roger Federer Loses at Wimbledon, Maybe for the Last Time**\
 `The tournament’s eight-time champion was overpowered in his quarterfinal match on Centre Court, losing in straight sets to 14th-seeded Hubert Hurkacz of Poland.`\
-https://nytimes.com/2021/07/07/sports/tennis/wimbledon.html?searchResultPosition=8
+https://nytimes.com/2021/07/07/sports/tennis/federer-loses-at-wimbledon.html?searchResultPosition=8
 
 **5 Y.A. Graphic Novels to Dive Into This Summer**\
 `A high school romance, a flashback to the ’90s and other Y.A. graphic novels to read this season.`\
