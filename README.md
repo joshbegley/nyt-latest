@@ -16,7 +16,7 @@ https://nytimes.com/2021/07/06/technology/rnc-hacked-cyberattack-russia.html?sea
 
 **Italy Bars the Door and Keeps the Party Going**\
 `Reverting to type after a Euro 2020 filled with fun, Italy locked down on defense and then defeated Spain on penalties to reach the final.`\
-https://nytimes.com/2021/07/06/sports/soccer/euro-2020-italy-spain.html?searchResultPosition=9
+https://nytimes.com/2021/07/06/sports/soccer/italy-soccer.html?searchResultPosition=9
 
 **Man Charged With Hate Crimes After Racist Tirade Is Caught on Video**\
 `Edward Cagney Mathews was recorded hurling racist harassment and challenging people to “come see me.” On Monday, his neighbors did just that, staging a protest outside his home.`\
