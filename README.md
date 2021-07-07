@@ -1,5 +1,5 @@
 **Tropical Storm Elsa Makes Landfall in Florida**\
-`The first major storm of this year’s Atlantic hurricane season hit Florida’s mainland on Wednesday morning.`\
+`Elsa became the first major storm of this year’s Atlantic hurricane season to hit Florida’s mainland when it moved over Taylor County, southeast of Tallahassee, on Wednesday morning.`\
 https://nytimes.com/2021/07/07/us/hurricane-elsa-florida.html?searchResultPosition=1
 
 **Finding Love Behind Bars Might Look Different Than You Think**\
