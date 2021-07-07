@@ -2,7 +2,7 @@
 `Haiti is rocked by Moïse’s assassination.`\
 https://nytimes.com/2021/07/07/briefing/haiti-president-moise-didi-wechat.html?searchResultPosition=1
 
-**Air Force Is Mostly to Blame for 2017 Church Shooting, Judge Rules**\
+**Air Force Is Most to Blame for 2017 Church Shooting, Judge Rules**\
 `The ruling in the case, which was brought by the families of the victims, found that the Air Force was “60 percent responsible” for the massacre in Sutherland Springs, Texas.`\
 https://nytimes.com/2021/07/07/us/sutherland-springs-shooting-air-force.html?searchResultPosition=2
 
