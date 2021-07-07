@@ -1,6 +1,6 @@
 **Haiti’s President Assassinated in Nighttime Raid, Shaking a Fragile Nation**\
 `A group of unknown assailants had stormed Mr. Moïse’s residence early on Wednesday, shooting him and wounding his wife. The interim prime minister declared a “state of siege.”`\
-https://nytimes.com/2021/07/07/world/haiti-president-assassinated-killed.html?searchResultPosition=1
+https://nytimes.com/2021/07/07/world/americas/haiti-president-assassinated-killed.html?searchResultPosition=1
 
 **England Suffers, Then Survives, to Reach the Euro 2020 Final**\
 `A 55-year wait for a place in a major final was always going to be agonizing. The final step did not disappoint.`\
