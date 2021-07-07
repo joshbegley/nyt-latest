@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/07/movies/cannes-film-festival-annette-opening.html?
 `Some people recovering from a coronavirus infection had an elevated heart rate for months, according to a new study.`\
 https://nytimes.com/2021/07/07/health/covid-fitbit-wearables.html?searchResultPosition=2
 
-**Bill Gates Can Remove Melinda French Gates From Foundation Work in Two Years**\
+**Bill Gates Can Remove Melinda French Gates From Foundation in Two Years**\
 `Following their divorce, they will continue to work together for now at the foundation, which they gave an additional $15 billion in resources, and will add new independent trustees.`\
 https://nytimes.com/2021/07/07/business/gates-foundation-divorce.html?searchResultPosition=3
 
