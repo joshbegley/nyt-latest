@@ -27,6 +27,6 @@ https://nytimes.com/2021/07/07/world/africa/jacob-zuma-arrested-south-africa.htm
 https://nytimes.com/2021/07/07/theater/wallace-shawn-plays-as-podcasts.html?searchResultPosition=8
 
 **A magnet for exploitation: Haiti over the centuries.**\
-`It sometimes seems as if only one thing has stood between Haiti and economic success: the rest of the world.`\
+`What often stands between Haiti and economic success is the rest of the world.`\
 https://nytimes.com/2021/07/07/world/americas/haiti-poverty-history.html?searchResultPosition=10
 
