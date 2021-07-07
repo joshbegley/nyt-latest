@@ -26,7 +26,7 @@ https://nytimes.com/interactive/2021/07/07/movies/cannes-film-festival.html?sear
 `A group of unknown assailants had stormed Mr. Moïse’s residence early on Wednesday, shooting him and wounding his wife. The interim prime minister declared a “state of siege.”`\
 https://nytimes.com/2021/07/07/world/americas/haiti-president-assassinated-killed.html?searchResultPosition=8
 
-**England Suffers, Then Survives, to Reach Euro 2020 Final**\
+**Before England Could Celebrate, It Had to Suffer**\
 `A 55-year wait for a place in a major final was always going to be agonizing. The final step did not disappoint.`\
 https://nytimes.com/2021/07/07/sports/soccer/england-denmark-euro-2020-final.html?searchResultPosition=9
 
