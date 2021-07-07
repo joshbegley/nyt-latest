@@ -1,32 +1,32 @@
+**Haiti’s President Assassinated in Nighttime Raid, Shaking a Fragile Nation**\
+`A group of unknown assailants had stormed Mr. Moïse’s residence early on Wednesday, shooting him and wounding his wife. The interim prime minister declared a “state of siege.”`\
+https://nytimes.com/2021/07/07/world/haiti-president-assassinated-killed.html?searchResultPosition=1
+
+**England Suffers, Then Survives, to Reach the Euro 2020 Final**\
+`A 55-year wait for a place in a major final was always going to be agonizing. The final step did not disappoint.`\
+https://nytimes.com/2021/07/07/sports/soccer/england-denmark-euro-2020-final.html?searchResultPosition=2
+
+**Haiti, Miami, Euro 2020: Your Wednesday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2021/07/07/briefing/haiti-miami-euro-2020.html?searchResultPosition=3
+
+**Richard C. Lewontin, Eminent Geneticist With a Sharp Pen, Dies at 92**\
+`He demonstrated that differences in DNA between groups of people were far smaller than originally believed. He was also a noted opponent of aspects of sociobiology.`\
+https://nytimes.com/2021/07/07/science/richard-c-lewontin-dead.html?searchResultPosition=4
+
 **The New Yorker’s Go-To for Spices and So Much More**\
 `For decades, Kalustyan’s has carried those hard-to-find ingredients, and plenty of others that you didn’t even know you were looking for.`\
-https://nytimes.com/2021/07/07/t-magazine/kalustyans-new-york.html?searchResultPosition=2
+https://nytimes.com/2021/07/07/t-magazine/kalustyans-new-york.html?searchResultPosition=6
 
 **Jacob Zuma, Former South African President, Is Arrested**\
 `The Constitutional Court had found him guilty of contempt for failing to appear before a commission investigating corruption accusations that tainted a president once best known for fighting apartheid.`\
-https://nytimes.com/2021/07/07/world/africa/jacob-zuma-arrested-south-africa.html?searchResultPosition=3
+https://nytimes.com/2021/07/07/world/africa/jacob-zuma-arrested-south-africa.html?searchResultPosition=7
 
 **From the Schlump With the Shiv, Two Plays Turned Podcasts**\
 `In new versions of “The Designated Mourner” and “Grasses of Many Colors,” Wallace Shawn brings moral horror right to your ear.`\
-https://nytimes.com/2021/07/07/theater/wallace-shawn-plays-as-podcasts.html?searchResultPosition=4
+https://nytimes.com/2021/07/07/theater/wallace-shawn-plays-as-podcasts.html?searchResultPosition=8
 
-**The fencing built around the Capitol after the Jan. 6 riot is coming down.**\
-`The fence was viewed by many as a physical manifestation of the consequences of the Capitol riot.`\
-https://nytimes.com/2021/07/07/us/politics/capitol-fence-january-6-riot.html?searchResultPosition=6
-
-**In the Haitian Diaspora: Shock, Sadness and a Fear of What Comes Next**\
-`Both opponents and supporters of the Haitian president saw his assassination as a worrisome sign that the already fragile country was descending into greater turmoil.`\
-https://nytimes.com/2021/07/07/world/americas/haitian-diaspora-assassination-reaction.html?searchResultPosition=7
-
-**Haitian Ambassador Says Assassination Was By Professionals**\
-`Haiti’s Ambassador to the U.S., Bocchit Edmond, said the murder of President Jovenel Moïse “was carried out by well-trained professional killers.”`\
-https://nytimes.com/video/world/americas/100000007855371/haiti-ambassador-jovenel-moise-assasination.html?searchResultPosition=8
-
-**Watch Live: Officials Give Surfside Search-and-Rescue Update**\
-`Florida officials provide an update after recovering the bodies of 10 more victims from the debris of the collapsed condominium.`\
-https://nytimes.com/video/us/100000007855109/surfside-press-conference.html?searchResultPosition=9
-
-**Haiti’s President Is Assassinated**\
-`President Jovenel Moïse of Haiti was killed in an attack at his private residence on the outskirts of the capital, Port-au-Prince.`\
-https://nytimes.com/video/world/americas/100000007855396/haiti-assassination-president.html?searchResultPosition=10
+**A magnet for exploitation: Haiti over the centuries.**\
+`It sometimes seems as if only one thing has stood between Haiti and economic success: the rest of the world.`\
+https://nytimes.com/2021/07/07/world/americas/haiti-poverty-history.html?searchResultPosition=10
 
