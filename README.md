@@ -8,7 +8,7 @@ https://nytimes.com/2021/07/07/business/eu-european-economy.html?searchResultPos
 
 **Haiti’s President Is Assassinated in His Home, Prime Minister Says**\
 `Jovenel Moïse died in an attack on his private residence on the outskirts of the capital, Port-au-Prince. His wife was also shot. The prime minister said a group of attackers was involved.`\
-https://nytimes.com/2021/07/07/world/americas/haiti-president-jovenel-moise-killed.html?searchResultPosition=3
+https://nytimes.com/2021/07/07/world/americas/haiti-president-killed.html?searchResultPosition=3
 
 **More Red-State Trouble**\
 `On Covid, the U.S. looks increasingly like two different countries.`\
