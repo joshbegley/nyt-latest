@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/06/us/politics/biden-vaccines.html?searchResultPosit
 
 **Eric Adams Wins Democratic Primary for New York City Mayor**\
 `Mr. Adams held off Kathryn Garcia after a count of 118,000 absentee ballots saw his substantial lead on primary night narrow to a single percentage point.`\
-https://nytimes.com/2021/07/06/nyregion/eric-adams-mayor-nyc.html?searchResultPosition=2
+https://nytimes.com/2021/07/06/nyregion/eric-adams-wins.html?searchResultPosition=2
 
 **Six months after the Capitol riot, Biden says U.S. survived ‘an existential crisis.’**\
 `“We can say unequivocally that democracy did prevail,” the president said in a statement.`\
