@@ -1,5 +1,5 @@
 **European Commission sees the economy recovering faster than expected.**\
-`By Jack Ewing`\
+`Nineteen countries in the eurozone are expected to grow 4.8 percent in 2021, half a percentage point more than previously forecast.`\
 https://nytimes.com/2021/07/07/business/eu-european-economy.html?searchResultPosition=1
 
 **Haiti’s President Is Assassinated in His Home, Prime Minister Says**\
