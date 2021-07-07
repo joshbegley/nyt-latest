@@ -26,13 +26,13 @@ https://nytimes.com/slideshow/2021/07/07/realestate/living-in-fairfield-conn.htm
 `India, Pakistan and Bangladesh alike enjoy the sweet and herbal taste of Rooh Afza, a beverage that has endured the region’s turbulent history. Now it is aiming for the palates of a new generation.`\
 https://nytimes.com/2021/07/07/business/india-drink-rooh-afza.html?searchResultPosition=7
 
-**Slow-Wheeling to the Sea**\
-`Using a hand-powered recumbent trike, the disabled author retraces the 35 miles of a pioneering cycling tour of Boston’s North Shore taken more than a century ago.`\
-https://nytimes.com/2021/07/07/travel/minna-caroline-smith-cycling-tour.html?searchResultPosition=8
-
 **‘In the End We Felt Betrayed’: Vietnamese Veterans See Echoes in Afghanistan**\
 `Those who continued fighting for South Vietnam in 1975 know what it’s like when an American-made military is suddenly left with little support.`\
-https://nytimes.com/2021/07/07/us/vietnam-war-veterans-us-afghanistan.html?searchResultPosition=9
+https://nytimes.com/2021/07/07/us/vietnam-war-veterans-us-afghanistan.html?searchResultPosition=8
+
+**Slow-Wheeling to the Sea**\
+`Using a hand-powered recumbent trike, the disabled author retraces the 35 miles of a pioneering cycling tour of Boston’s North Shore taken more than a century ago.`\
+https://nytimes.com/2021/07/07/travel/minna-caroline-smith-cycling-tour.html?searchResultPosition=9
 
 **The Ruins of a Venezuelan Landmark Reflect a Country in Shambles**\
 `The Central University of Venezuela, once the vibrant epicenter of the country’s higher education, is a victim of Hugo Chávez and Nicolás Maduro regimes.`\
