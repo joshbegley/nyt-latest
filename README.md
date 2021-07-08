@@ -1,5 +1,5 @@
 **Stocks tumble as growth concerns grip Wall Street.**\
-`The S&P 500 was poised for a drop of more than 1 percent, futures trading indicated, while the yield on the 10-year U.S. Treasury bond fell to 1.28 percent.`\
+`The S&P 500 was poised for a drop of more than 1 percent, futures trading indicated, while the yield on 10-year U.S. Treasury notes fell to 1.28 percent.`\
 https://nytimes.com/2021/07/08/business/stock-market-today.html?searchResultPosition=1
 
 **How California Will Investigate Police Killings**\
