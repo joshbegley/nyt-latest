@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/08/us/boston-rabbi-stabbing-charges.html?searchResul
 https://nytimes.com/2021/07/08/us/politics/biden-climate-agenda.html?searchResultPosition=2
 
 **Feeding Thousands After the Building Collapse**\
-`Food donations began pouring in soon after the apartment building collapse in Surfside, Fla. Now restaurants are mobilizing a long-term effort to feed the community.`\
+`Food donations began pouring in soon after the apartment building fell in Surfside, Fla. Now restaurants are mobilizing a long-term effort to feed the community.`\
 https://nytimes.com/2021/07/08/dining/miami-surfside-food-community.html?searchResultPosition=3
 
 **California Braces for Dangerous Weekend of Record-Setting Heat**\
