@@ -1,4 +1,4 @@
-**A Leonardo da Vinci the Size of a Post-it Sells For $12.2 Million**\
+**A Leonardo da Vinci the Size of a Post-it Sells for $12.2 Million**\
 `“Leonardo is the magic name,” a dealer said as the Renaissance master’s works, and even copies of his works, continue to fetch eye-popping prices.`\
 https://nytimes.com/2021/07/08/arts/design/leonardo-da-vinci-drawing-sold-christies.html?searchResultPosition=1
 
