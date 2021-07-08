@@ -1,40 +1,40 @@
+**Ireland Fights for Its Tax Breaks**\
+`It and others are pushing back on a global agreement to make companies pay more in taxes.`\
+https://nytimes.com/2021/07/08/business/dealbook/ireland-tax-havens.html?searchResultPosition=1
+
+**‘The Witches of the Orient’ Review: Symphony of a Sports Team**\
+`This experimental documentary shows the anime-worthy triumphs of the 1964 Japanese Olympic volleyball team.`\
+https://nytimes.com/2021/07/08/movies/the-witches-of-the-orient-review.html?searchResultPosition=2
+
+**‘Her Socialist Smile’ Review: Helen Keller, Radical**\
+`This new documentary is a fascinating and challenging exploration of Keller’s political thought.`\
+https://nytimes.com/2021/07/08/movies/her-socialist-smile-review.html?searchResultPosition=3
+
+**‘Scales’ Review: A Sensual Fable With a Feminist Bent**\
+`From Saudi Arabia, this dystopian tale is heavy on evocative visuals at the expense of a more satisfying story.`\
+https://nytimes.com/2021/07/08/movies/scales-review.html?searchResultPosition=4
+
+**‘Summertime’ Review: Poetry and Motion in Los Angeles**\
+`In this film that uses spoken word poetry as its guiding light, the camera only stops long enough for its new subject to enter a recitation.`\
+https://nytimes.com/2021/07/08/movies/summertime-review.html?searchResultPosition=5
+
+**‘The Loneliest Whale: The Search for 52’ Review: Sea Hunt**\
+`The documentary filmmaker Joshua Zeman assembles a team to look for a solitary whale who calls out at a particular frequency.`\
+https://nytimes.com/2021/07/08/movies/the-loneliest-whale-the-search-for-52-review.html?searchResultPosition=6
+
+**‘Running Against the Wind’ Review: Love and Friendship in Addis Ababa**\
+`Two childhood best friends reunite in this unfocused yet uplifting sports drama by the filmmaker Jan Philipp Weyl.`\
+https://nytimes.com/2021/07/08/movies/running-against-the-wind-review.html?searchResultPosition=7
+
+**‘Rock, Paper and Scissors’ Review: There’s No Place Like Home**\
+`In this Argentine drama, two unhinged siblings trap and torture their half sister after she pursues her share of their father’s inheritance.`\
+https://nytimes.com/2021/07/08/movies/rock-paper-and-scissors-review.html?searchResultPosition=8
+
 **Chicago’s Strange Problem**\
 `Water levels that may be both too high and too low.`\
-https://nytimes.com/2021/07/08/briefing/climate-change-chicago-lake-michigan.html?searchResultPosition=1
+https://nytimes.com/2021/07/08/briefing/climate-change-chicago-lake-michigan.html?searchResultPosition=9
 
 **A Digital Cat Is Melting Hearts (and Napping a Lot) in Japan**\
 `The calico prances and dozes on a 26-by-62-foot LED billboard in Tokyo. It has drawn crowds in real life and sparked joy on social media.`\
-https://nytimes.com/2021/07/08/world/asia/japan-cat-billboard.html?searchResultPosition=2
-
-**Fears of political chaos grow in the wake of the assassination.**\
-`Two prime ministers, one interim and one newly appointed, are jockeying for power in Haiti.`\
-https://nytimes.com/2021/07/08/world/americas/haiti-president-assassination-politics.html?searchResultPosition=3
-
-**The Parking Garage of the Future**\
-`Entrepreneurs envision a “mobility hub” that can save you a spot, help with dinner reservations and offer a place to plug in an E.V. Yes, apps are involved.`\
-https://nytimes.com/2021/07/08/business/parking-garage-apps.html?searchResultPosition=4
-
-**The End of America’s 20-Year War**\
-`What does the United States’ withdrawal from Afghanistan look like?`\
-https://nytimes.com/2021/07/08/podcasts/the-daily/afghanistan-withdrawal-us-military-bases.html?searchResultPosition=5
-
-**How to Watch the National Spelling Bee**\
-`The New York Times, which has covered spelling bees large and small for almost 150 years, will continue that tradition on Thursday.`\
-https://nytimes.com/2021/07/08/us/how-to-watch-national-spelling-bee.html?searchResultPosition=6
-
-**A New Look for New York’s City Council**\
-`The legislative body is expected become more diverse, with women  holding a majority of the  seats for the first time.`\
-https://nytimes.com/2021/07/08/nyregion/a-new-look-for-new-yorks-city-council.html?searchResultPosition=7
-
-**The world’s reported Covid death toll passes four million.**\
-`The World Health Organization’ director-general said the toll was continuing to rise largely because of dangerous virus variants and inequities in vaccine distribution.`\
-https://nytimes.com/2021/07/08/world/covid-death-toll-four-million.html?searchResultPosition=8
-
-**‘Who Are Our Enemies?’ China’s Bitter Youths Embrace Mao.**\
-`The chairman’s call for struggle and violence against capitalists is winning over a new audience of young people frustrated with long work hours and dwindling opportunities.`\
-https://nytimes.com/2021/07/08/business/china-mao.html?searchResultPosition=9
-
-**In Michigan, Pro-Impeachment Republicans Face Voters’ Wrath**\
-`Representative Peter Meijer, a Republican who voted to impeach Donald J. Trump, seeks “decency and humility” in Western Michigan, but has found anger, fear and misinformation.`\
-https://nytimes.com/2021/07/08/us/politics/michigan-trump-impeachment.html?searchResultPosition=10
+https://nytimes.com/2021/07/08/world/asia/japan-cat-billboard.html?searchResultPosition=10
 
