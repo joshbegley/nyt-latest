@@ -1,4 +1,4 @@
-**Texas Republicans Reveal Details of Far-Reaching Voting Restrictions**\
+**Texas Republicans Reveal Bills of Far-Reaching Voting Restrictions**\
 `In their second attempt to pass a sweeping elections overhaul, Republican lawmakers followed the broad outlines of the first, including a wide range of measures to limit voting access.`\
 https://nytimes.com/2021/07/08/us/politics/texas-voting-bill-restrictions.html?searchResultPosition=1
 
