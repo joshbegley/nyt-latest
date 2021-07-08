@@ -1,6 +1,6 @@
 **How does the Delta variant dodge the immune system? Scientists find clues.**\
 `One dose of vaccine is not enough to protect against the Delta and Beta variants, new research suggests, and even people who have had Covid-19 should be immunized.`\
-https://nytimes.com/2021/07/08/health/how-does-the-delta-variant-dodge-the-immune-system-scientists-find-clues.html?searchResultPosition=1
+https://nytimes.com/2021/07/08/health/delta-variant-covid-vaccine-immunity.html?searchResultPosition=1
 
 **From Savoie, White Wines That Refresh Like Mountain Air**\
 `This Alpine region in eastern France was little known until recently. Its gorgeous wines are distinctive and immediately appealing.`\
