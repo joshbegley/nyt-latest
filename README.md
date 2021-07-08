@@ -1,6 +1,6 @@
 **As a Covid outbreak worsens, Fiji’s athletes board a plane loaded with fish to the Olympics.**\
 `Almost all passenger flights from the country were suspended until the end of July. So the team hopped a ride to Tokyo on a cargo plane carrying a shipment of frozen fish.`\
-https://nytimes.com/2021/07/08/world/asia/fiji-covid-olympic-athletes-freight-plane-fish.html?searchResultPosition=1
+https://nytimes.com/2021/07/08/world/asia/fiji-covid-olympic-athletes.html?searchResultPosition=1
 
 **Biden is set to speak on the end of the war in Afghanistan as the Taliban gains ground.**\
 `The president's remarks will follow a meeting where his national security team will update him on the progress of the withdrawal.`\
