@@ -32,7 +32,7 @@ https://nytimes.com/2021/07/08/sports/tennis/wimbledon-matteo-berrettini-semifin
 
 **Watch Live: Officials Give Recovery Update on Surfside Condo Collapse**\
 `Authorities in Surfside, Fla., hold a news conference after their first full day of recovery operations after transitioning from the search-and-rescue mission.`\
-https://nytimes.com/video/us/100000007857419/surfside-collapse-update-live.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/100000007857419/surfside-collapse-update-live.html?searchResultPosition=9
 
 **Cannes Film Festival: ‘Val,’ ‘The Velvet Underground’ and Famous Jerks**\
 `Two documentaries take different approaches to their star subjects. One, about the actor Val Kilmer, prefers to be hands-off. The other, about Lou Reed, welcomes complications.`\
