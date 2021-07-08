@@ -8,7 +8,7 @@ https://nytimes.com/2021/07/08/world/asia/japan-cat-billboard.html?searchResultP
 
 **Fears of political chaos grow in the wake of the assassination.**\
 `Two prime ministers, one interim and one newly appointed, are jockeying for power in Haiti.`\
-https://nytimes.com/2021/07/08/world/americas/haiti-assassination-politics.html?searchResultPosition=3
+https://nytimes.com/2021/07/08/world/americas/haiti-president-assassination-politics.html?searchResultPosition=3
 
 **The Parking Garage of the Future**\
 `Entrepreneurs envision a “mobility hub” that can save you a spot, help with dinner reservations and offer a place to plug in an E.V. Yes, apps are involved.`\
