@@ -1,36 +1,36 @@
+**The Lincoln Project targets Toyota over its donations to Republicans.**\
+`A new campaign from the anti-Trump group criticizes companies that gave money to politicians who resisted the certification of the 2020 election results or trivialized the Capitol attack.`\
+https://nytimes.com/2021/07/08/business/lincoln-project-ad-campaign.html?searchResultPosition=1
+
 **Volkswagen and BMW are fined nearly $1 billion for colluding on emissions technology.**\
 `Daimler, which blew the whistle on the scandal, avoided a big fine from European antitrust officials.`\
-https://nytimes.com/2021/07/08/business/volkswagen-bmw-daimler-emissions-scandal.html?searchResultPosition=1
+https://nytimes.com/2021/07/08/business/volkswagen-bmw-daimler-emissions-scandal.html?searchResultPosition=2
 
 **Denis Shapovalov Is Having a Wimbledon to Remember**\
 `The young Canadian, who plays Novak Djokovic in their men’s singles semifinal on Friday, is expected to give the world No. 1 his toughest test yet on the grass.`\
-https://nytimes.com/2021/07/08/sports/tennis/wimbledon-denis-shapovalov.html?searchResultPosition=2
+https://nytimes.com/2021/07/08/sports/tennis/wimbledon-denis-shapovalov.html?searchResultPosition=3
 
 **How does the Delta variant dodge the immune system? Scientists find clues.**\
 `One dose of vaccine is not enough to protect against the Delta and Beta variants, new research suggests, and even people who have had Covid-19 should be immunized.`\
-https://nytimes.com/2021/07/08/health/delta-variant-covid-vaccine-immunity.html?searchResultPosition=4
+https://nytimes.com/2021/07/08/health/delta-variant-covid-vaccine-immunity.html?searchResultPosition=5
 
 **From Savoie, White Wines That Refresh Like Mountain Air**\
 `This Alpine region in eastern France was little known until recently. Its gorgeous wines are distinctive and immediately appealing.`\
-https://nytimes.com/2021/07/08/dining/drinks/savoie-white-wines.html?searchResultPosition=5
+https://nytimes.com/2021/07/08/dining/drinks/savoie-white-wines.html?searchResultPosition=6
 
 **Donald Trump Just Can’t Quit Zuckerberg and Dorsey**\
 `His latest stunt shows how badly he still misunderstands speech and platforms.`\
-https://nytimes.com/2021/07/08/opinion/trump-twitter-facebook-lawsuit.html?searchResultPosition=6
+https://nytimes.com/2021/07/08/opinion/trump-twitter-facebook-lawsuit.html?searchResultPosition=7
 
 **Theater Is in the Streets of New York, if You Listen**\
 `Recent audio and walking tours provide a gentle return to spectatorship while also revealing overlooked corners of the city.`\
-https://nytimes.com/2021/07/08/theater/new-york-city-audio-tours.html?searchResultPosition=7
+https://nytimes.com/2021/07/08/theater/new-york-city-audio-tours.html?searchResultPosition=8
 
 **Lynn Hershman Leeson: The Artist Is Prescient**\
 `The new media pioneer explores the technology and science shaping our lives in her solo show at the New Museum.`\
-https://nytimes.com/2021/07/08/arts/design/hershman-leeson-review-art-museum.html?searchResultPosition=8
+https://nytimes.com/2021/07/08/arts/design/hershman-leeson-review-art-museum.html?searchResultPosition=9
 
 **Africa marks its ‘worst pandemic week’ yet, with cases surging and vaccine scarce, the W.H.O. says.**\
 `A third wave of the pandemic is ripping through countries mainly in southern and eastern Africa, and one country in North Africa — Tunisia — is experiencing its fourth wave.`\
-https://nytimes.com/2021/07/08/world/africa-coronavirus-cases-who.html?searchResultPosition=9
-
-**The Russia Inquiry Ended a Democratic Lobbyist’s Career. He Wants It Back.**\
-`Tony Podesta turned to art dealing after becoming ensnared in the Trump-Russia scandal. With his friends running Washington, he is eying a return to lobbying.`\
-https://nytimes.com/2021/07/08/us/politics/tony-podesta-lobbying-democrats.html?searchResultPosition=10
+https://nytimes.com/2021/07/08/world/africa-coronavirus-cases-who.html?searchResultPosition=10
 
