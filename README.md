@@ -2,7 +2,7 @@
 `The legislative body is expected become more diverse, with women  holding a majority of the  seats for the first time.`\
 https://nytimes.com/2021/07/08/nyregion/a-new-look-for-new-yorks-city-council.html?searchResultPosition=1
 
-**The world’s reported Covid death toll nears four million.**\
+**The world’s reported Covid death toll passes four million.**\
 `The World Health Organization’ director-general said the toll was continuing to rise largely because of dangerous virus variants and inequities in vaccine distribution.`\
 https://nytimes.com/2021/07/08/world/covid-death-toll-four-million.html?searchResultPosition=2
 
