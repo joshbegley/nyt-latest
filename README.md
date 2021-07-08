@@ -1,6 +1,6 @@
 **Inside the Tokyo Olympic Games, a Times Virtual Event**\
 `From protests and Covid-related bans on most fans, to new sports like surfing and skateboarding, Times journalists discuss what makes Tokyo 2020 unique.`\
-https://nytimes.com/2021/07/08/sports/tokyo-olympics-explained-event.html?searchResultPosition=1
+https://nytimes.com/2021/07/08/sports/olympics/tokyo-olympics-explained-event.html?searchResultPosition=1
 
 **For Matteo Berrettini, This Wimbledon Was Years in the Making**\
 `As a teenager, he and his coach emphasized playing an aggressive style with big serves. Berrettini, in the semifinals with that same coach, is confident he can win the tournament.`\
