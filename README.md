@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/08/books/review/starfish-lisa-fipps.html?searchResul
 https://nytimes.com/2021/07/07/us/indiana-ambush-greg-ferency-fbi.html?searchResultPosition=5
 
 **Haiti’s political turmoil may hamper efforts to contain the virus, the W.H.O. says.**\
-`The pandemic has grown worse in recent weeks in Haiti, an impoverished Caribbean country which has yet to begin vaccinating its citizens.`\
+`The pandemic has grown worse in recent weeks in Haiti, which has yet to begin vaccinating its citizens.`\
 https://nytimes.com/2021/07/07/world/Haiti-covid-Jovenel-Moise-turmoil.html?searchResultPosition=6
 
 **Corrections: July 8, 2021**\
