@@ -34,7 +34,7 @@ https://nytimes.com/2021/07/08/books/review/this-is-your-mind-on-plants-michael-
 `Officials in Surfside, Fla., provide an update after abandoning the search for survivors and turning their efforts toward recovery. At least 54 people were killed in the collapse, with dozens still officially missing.`\
 https://nytimes.com/video/us/100000007856437/miami-surfside-condo-collapse-live-video.html?searchResultPosition=9
 
-**Stocks and bonds tumble as growth concerns grip Wall Street.**\
+**Stocks tumble as growth concerns grip Wall Street.**\
 `Tourism and travel companies, which have become a proxy for investor sentiment about the risk of the pandemic, fell sharply.`\
 https://nytimes.com/2021/07/08/business/stock-market-today.html?searchResultPosition=10
 
