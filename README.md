@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/08/arts/design/tomashi-jackson-parrish-hamptons.html
 https://nytimes.com/2021/07/08/us/politics/prechecked-boxes-donations-winred-act-blue.html?searchResultPosition=4
 
 **FedLoan, a handler of millions of federal student loans, won’t renew its contract.**\
-`The oft-maligned loan servicer’s decision will almost certainly complicate matters for borrowers, who will soon have to start making payments again.`\
+`The oft-maligned loan servicer’s decision could complicate matters for borrowers, who will soon have to start making payments again.`\
 https://nytimes.com/2021/07/08/business/fedloan-pheaa-student-loans.html?searchResultPosition=5
 
 **It’s Ashleigh Barty vs. Karolina Pliskova in Wimbledon Final**\
