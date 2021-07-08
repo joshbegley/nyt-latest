@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/100000007856437/miami-surfside-condo-collapse-live-video.html?searchResultPosition=1
 
 **Stocks tumble as growth concerns grip Wall Street.**\
-`The S&P 500 was poised for a drop of more than 1 percent, futures trading indicated, while the yield on 10-year U.S. Treasury notes fell to 1.28 percent.`\
+`Tourism and travel companies, which have become a proxy for investor sentiment about the risk of the pandemic, fell sharply.`\
 https://nytimes.com/2021/07/08/business/stock-market-today.html?searchResultPosition=2
 
 **How California Will Investigate Police Killings**\
