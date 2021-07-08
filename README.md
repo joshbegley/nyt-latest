@@ -1,4 +1,4 @@
-**Watch Live: Recovery Efforts Continue in Miami Condo Collapse**\
+**Watch Live: Recovery Efforts Continue in Surfside Condo Collapse**\
 `Officials in Surfside, Fla., provide an update after abandoning the search for survivors and turning their efforts toward recovery. At least 54 people were killed in the collapse, with dozens still officially missing.`\
 https://nytimes.com/video/us/100000007856437/miami-surfside-condo-collapse-live-video.html?searchResultPosition=1
 
