@@ -1,4 +1,4 @@
-**The European Central Bank tweaks its strategy to allow more room to fight inflation.**\
+**The European Central Bank changes its strategy to allow more room to fight inflation.**\
 `The central bank said it would tolerate inflation above the official target of 2 percent if the jump seemed temporary.`\
 https://nytimes.com/2021/07/08/business/economy/european-central-bank-inflation.html?searchResultPosition=1
 
