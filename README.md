@@ -12,7 +12,7 @@ https://nytimes.com/2021/07/09/books/turning-to-ovid-in-a-moment-of-transition.h
 
 **Chief Guantánamo Prosecutor Retiring Before Sept. 11 Trial Begins**\
 `Army Brig. Gen. Mark Martins had held the job longest, and was for many years the public face of military commissions.`\
-https://nytimes.com/2021/07/09/us/politics/chief-guantanamo-prosecutor-retiring-before-sept-11-trial-begins.html?searchResultPosition=5
+https://nytimes.com/2021/07/09/us/politics/chief-guantanamo-prosecutor-retiring.html?searchResultPosition=5
 
 **The F.D.A. on the Vaccine Reviews: ‘We Want to Assure the Public’**\
 `The agency says full vaccine approval rests on high-quality review. Also: Leaving Afghanistan; the trauma of loss; children's screen time; jobs and automation; cultured meat.`\
