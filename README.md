@@ -22,13 +22,13 @@ https://nytimes.com/2021/07/09/your-money/pandemic-working-from-home-retire.html
 `A little professional advice goes a long way, making it a worthy investment whether someone is emerging from high school, graduate school or somewhere in between.`\
 https://nytimes.com/2021/07/09/your-money/financial-advisers-new-grads.html?searchResultPosition=6
 
-**President Biden Wants to Pour Money Into Infrastructure. Should You?**\
-`The world’s highways, ports, electric wires and roads need repair and upgrades. That could be an opportunity for funds investing in infrastructure.`\
-https://nytimes.com/2021/07/09/business/mutfund/infrastructure-investing-funds-biden.html?searchResultPosition=7
-
 **How to Manage Your Money if Inflation Flares**\
 `While long-term investors may want to stick with standard diversified stock and bond funds, hedges are available for those who worry that inflation will get out of control.`\
-https://nytimes.com/2021/07/09/business/how-to-manage-your-money-if-inflation-flares.html?searchResultPosition=8
+https://nytimes.com/2021/07/09/business/money-management-inflation.html?searchResultPosition=7
+
+**President Biden Wants to Pour Money Into Infrastructure. Should You?**\
+`The world’s highways, ports, electric wires and roads need repair and upgrades. That could be an opportunity for funds investing in infrastructure.`\
+https://nytimes.com/2021/07/09/business/mutfund/infrastructure-investing-funds-biden.html?searchResultPosition=8
 
 **Lionel Messi Tries to Slay His Ghosts**\
 `Saturday’s Copa América final against Brazil feels like Messi’s chance to deliver the title he and Argentina have chased for a generation.`\
