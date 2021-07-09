@@ -1,4 +1,4 @@
-**Britain’s economy grew for the fourth straight month, but slower than expected.**\
+**Britain’s economy grew for the fourth straight month, but more slowly than expected.**\
 `The 0.8 percent growth in May was nearly half the rate expected by economists, who warned that continued expansion would become harder.`\
 https://nytimes.com/2021/07/09/business/britain-economy-may-2021.html?searchResultPosition=1
 
