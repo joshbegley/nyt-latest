@@ -1,4 +1,4 @@
-**Like a ‘Postapocalyptic Movie’: Heat Wave Killed Marine Wildlife en Masse**\
+**Just Like ‘Postapocalyptic Movies’: Heat Wave Killed Marine Wildlife en Masse**\
 `An early estimate points to a huge die-off along the Pacific Coast, and scientists say rivers farther inland are warming to levels that could be lethal for some kinds of salmon.`\
 https://nytimes.com/2021/07/09/climate/marine-heat-wave.html?searchResultPosition=1
 
