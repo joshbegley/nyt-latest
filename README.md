@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/09/movies/last-summer-review-Turkey.html?searchResul
 https://nytimes.com/2021/07/09/business/dealbook/martin-shkreli-pharma-control.html?searchResultPosition=5
 
 **I.M.F. Board Backs $650 Billion Aid Plan to Help Poor Countries**\
-`The expansion of emergency reserves to fund vaccines and pay down debt has emerged as a political flash point in the United States.`\
+`The expansion of emergency reserves to help fund vaccines and pay down debt has emerged as a political flash point in the United States.`\
 https://nytimes.com/2021/07/09/us/politics/g20-imf-vaccines.html?searchResultPosition=6
 
 **Biden’s New Push**\
