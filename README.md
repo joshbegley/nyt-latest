@@ -32,5 +32,5 @@ https://nytimes.com/2021/07/09/dining/eid-al-adha.html?searchResultPosition=9
 
 **Biden’s order includes 72 initiatives that take aim at very specific practices the White House wants changed.**\
 `The White House will ask more than a dozen federal agencies for input and action on initiatives designed to increase competition and limit the power of large corporations.`\
-https://nytimes.com/2021/07/09/us/biden-executive-order-competition.html?searchResultPosition=10
+https://nytimes.com/2021/07/09/us/politics/biden-executive-order-competition.html?searchResultPosition=10
 
