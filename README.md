@@ -14,27 +14,27 @@ https://nytimes.com/2021/07/08/us/surfside-collapse-families-guara.html?searchRe
 `In videos filmed from nearby buildings and synchronized by the The New York Times, the group of commandos who appeared to be arriving to assassinate President Jovenel Moïse shouted that they were part of a U.S. Drug Enforcement Agency operation.`\
 https://nytimes.com/video/world/americas/100000007857564/haiti-jovenel-moise-assassinated-dea.html?searchResultPosition=4
 
+**White House offers assistance after Haiti’s president is assassinated.**\
+`Jen Psaki, White House press secretary, also called for Haiti’s legislative and presidential elections to go forward in September, as scheduled.`\
+https://nytimes.com/2021/07/08/us/politics/haiti-assassination-white-house.html?searchResultPosition=5
+
+**Meet this year’s finalists.**\
+`The finalists in the 2019 Scripps National Spelling Bee come from seven states and the Bahamas.`\
+https://nytimes.com/2021/07/08/us/spelling-bee-finalists.html?searchResultPosition=6
+
 **Political Crisis in Haiti Deepens Over Rival Claims to Power**\
 `Despite the interim prime minister’s claim that he is in charge after the president’s assassination, a volatile political situation poses yet another challenge to democracies in the Western Hemisphere.`\
-https://nytimes.com/2021/07/08/world/americas/haiti-prime-minister.html?searchResultPosition=5
+https://nytimes.com/2021/07/08/world/americas/haiti-prime-minister.html?searchResultPosition=7
 
 **How Crowded Are America’s National Parks? See for Yourself.**\
 `Americans are flocking to national parks in record numbers, in many cases leading to long lines and overcrowded facilities. Here’s what four parks looked like over the holiday weekend.`\
-https://nytimes.com/2021/07/08/travel/crowded-national-parks.html?searchResultPosition=6
+https://nytimes.com/2021/07/08/travel/crowded-national-parks.html?searchResultPosition=8
 
 **The Trumpian Roots of the Chip Crisis**\
 `We’re still paying the price of tantrum-based policy.`\
-https://nytimes.com/2021/07/08/opinion/trump-trade-chips.html?searchResultPosition=7
+https://nytimes.com/2021/07/08/opinion/trump-trade-chips.html?searchResultPosition=9
 
 **Man Charged With Hate Crimes in Stabbing of Rabbi in Boston**\
 `Rabbi Shlomo Noginski was wearing a skullcap and standing in front of a large menorah on the steps of a Jewish school when he was attacked by Khaled Awad, 24, prosecutors said.`\
-https://nytimes.com/2021/07/08/us/boston-rabbi-stabbing-charges.html?searchResultPosition=8
-
-**A Crucial Test Is Coming for Biden’s Climate Agenda**\
-`We spoke with Coral Davenport, a climate reporter for The Times, about the steps the president has taken and the obstacles he faces.`\
-https://nytimes.com/2021/07/08/us/politics/biden-climate-agenda.html?searchResultPosition=9
-
-**Feeding Thousands After the Building Collapse**\
-`Food donations began pouring in soon after the apartment building fell in Surfside, Fla. Now restaurants are mobilizing a long-term effort to feed the community.`\
-https://nytimes.com/2021/07/08/dining/miami-surfside-food-community.html?searchResultPosition=10
+https://nytimes.com/2021/07/08/us/boston-rabbi-stabbing-charges.html?searchResultPosition=10
 
