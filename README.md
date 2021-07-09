@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/08/nyregion/flooding-subways-nyc.html?searchResultPosition=1
 
 **Home of the Polka Hall of Fame**\
-`Robin Weintraub whirls us around the dance floor.`\
+`Robyn Weintraub whirls us around the dance floor.`\
 https://nytimes.com/2021/07/08/crosswords/daily-puzzle-2021-07-09.html?searchResultPosition=2
 
 **Citing the Delta Variant, Pfizer Will Pursue Booster Shots and a New Vaccine**\
