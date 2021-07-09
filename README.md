@@ -1,5 +1,5 @@
-**I.M.F. Board Backs $650 Billion Aid Plan**\
-`The expansion of emergency reserves to help poor countries has emerged as a political flash point in the United States.`\
+**I.M.F. Board Backs $650 Billion Aid Plan to Help Poor Countries**\
+`The expansion of emergency reserves to fund vaccines and pay down debt has emerged as a political flash point in the United States.`\
 https://nytimes.com/2021/07/09/us/politics/g20-imf-vaccines.html?searchResultPosition=1
 
 **Biden’s New Push**\
