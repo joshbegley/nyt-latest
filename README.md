@@ -26,7 +26,7 @@ https://nytimes.com/2021/07/09/us/heat-wave-deaths.html?searchResultPosition=6
 `Americans are suddenly feeling good. Why?`\
 https://nytimes.com/2021/07/09/opinion/us-covid-mrna-vaccines.html?searchResultPosition=7
 
-**A Moth, Now by Any Other Name**\
+**This Moth’s Name Is a Slur. Scientists Won’t Use It Anymore.**\
 `The Entomological Society of America will no longer refer to common species of insects as “gypsy moths” and “gypsy ants,” because their names are derogatory to the Romani people.`\
 https://nytimes.com/2021/07/09/science/gypsy-moth-romani-entomological-society.html?searchResultPosition=8
 
