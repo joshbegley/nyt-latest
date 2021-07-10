@@ -2,13 +2,13 @@
 `In London, Novak Djokovic’s attempt at a third Grand Slam title on Sunday is but an opening act for the European Championship match starring England and Italy.`\
 https://nytimes.com/2021/07/10/sports/tennis/wimbledon-finals-euro-england-soccer.html?searchResultPosition=1
 
-**The Suns Have Gone Old School at Center. It’s Working.**\
-`The center matchup between Milwaukee’s Brook Lopez and Phoenix’s Deandre Ayton is pitting two eras of basketball against each other.`\
-https://nytimes.com/2021/07/10/sports/basketball/nba-finals-lopez-ayton.html?searchResultPosition=2
-
 **U.F.C. 264: What to Watch as Conor McGregor Fights Dustin Poirier**\
 `The third fight between McGregor and Poirier could be the Ultimate Fighting Championship’s biggest spectacle of the year.`\
-https://nytimes.com/2021/07/10/sports/streaming-mcgregor-poirier-ufc.html?searchResultPosition=3
+https://nytimes.com/2021/07/10/sports/streaming-mcgregor-poirier-ufc.html?searchResultPosition=2
+
+**The Suns Have Gone Old School at Center. It’s Working.**\
+`The center matchup between Milwaukee’s Brook Lopez and Phoenix’s Deandre Ayton is pitting two eras of basketball against each other.`\
+https://nytimes.com/2021/07/10/sports/basketball/nba-finals-lopez-ayton.html?searchResultPosition=3
 
 **Corrections: July 10, 2021**\
 `Corrections that appeared in print on Saturday, July 10, 2021.`\
