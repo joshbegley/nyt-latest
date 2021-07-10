@@ -35,6 +35,6 @@ https://nytimes.com/2021/07/09/us/politics/texas-voting-legislature-democrats.ht
 https://nytimes.com/2021/07/09/us/charlottesville-confederate-monuments-lee.html?searchResultPosition=9
 
 **At the All-Star Game, a Dimmer Stage for Black Players**\
-`Dave Parker and Al Oliver recall a time when the Midsummer Classic was a celebration of the game’s many African American stars. At this year’s game, the National League’s side will have just one.`\
+`Dave Parker and Al Oliver recall a time when the Midsummer Classic was a celebration of the game’s many African American stars. At this year’s game, the National League will have just one.`\
 https://nytimes.com/2021/07/09/sports/baseball/dave-parker-all-star-game.html?searchResultPosition=10
 
