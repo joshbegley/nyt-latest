@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/10/us/politics/athan-theoharis-dead.html?searchResul
 https://nytimes.com/2021/07/10/books/thomas-cleary-dead.html?searchResultPosition=2
 
 **Here’s how to watch and stream the fight.**\
-`By Emmanuel Morgan`\
+`The third fight between McGregor and Poirier could be the Ultimate Fighting Championship’s biggest spectacle of the year.`\
 https://nytimes.com/2021/07/10/sports/ufc-264-mcgregor-poirier-time-stream.html?searchResultPosition=3
 
 **In Wimbledon Loss, Karolina Pliskova Sees a Silver Lining**\
