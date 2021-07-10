@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/10/world/europe/rape-britain-metoo.html?searchResult
 https://nytimes.com/2021/07/10/crosswords/variety-puns-and-anagrams.html?searchResultPosition=4
 
 **Heat Wave Spread Fire That ‘Erased’ Canadian Town**\
-`Busloads of residents went to tour the charred town of Lytonn, British Columbia, this week and found it almost unrecognizable.`\
+`Busloads of residents went to tour the charred town of Lytton, British Columbia, this week and found it almost unrecognizable.`\
 https://nytimes.com/2021/07/10/world/canada/canadian-wildfire-british-columbia.html?searchResultPosition=5
 
 **Global Tax Overhaul Gains Steam as G20 Backs New Levies**\
