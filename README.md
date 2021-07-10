@@ -30,8 +30,8 @@ https://nytimes.com/2021/07/10/world/americas/haiti-president-assassination.html
 `Paul Verhoeven defends “Benedetta,” which is based on a nonfiction book and set in the 17th century: “I don’t really understand how you can blaspheme about something that happened.”`\
 https://nytimes.com/2021/07/10/movies/paul-verhoeven-benedetta-cannes.html?searchResultPosition=8
 
-**Charlottesville Takes Down Robert E. Lee Statue**\
-`The bronze of the Confederate general came down nearly four years after a woman was killed, and dozens injured, at a white nationalist rally in Charlottesville, Va., that was held in response to its planned removal.`\
+**Charlottesville Takes Down Statues of 2 Confederate Generals**\
+`A bronze statue of Robert E. Lee was removed nearly four years after a woman was killed and dozens were injured at a white nationalist rally in Charlottesville, Va., opposing its planned removal. Later in the day, a nearby statue of Stonewall Jackson was also taken down.`\
 https://nytimes.com/video/us/100000007860167/charlottesville-confederate-statue-removal.html?searchResultPosition=9
 
 **On This German Farm, Cows Are in Charge. Or at Least Coequals.**\
