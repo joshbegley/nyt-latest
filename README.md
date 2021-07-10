@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/10/us/maggie-hassan-new-hampshire-sununu.html?search
 `Mr. Adams, the Democratic mayoral nominee, has stances on policing, transportation and education that suggest a shift from Mayor Bill de Blasio.`\
 https://nytimes.com/2021/07/10/nyregion/eric-adams-issues-mayor.html?searchResultPosition=5
 
-**A Canadian Mansion Becomes a Symbol of Haiti’s Disintegration**\
+**Who Paid for That Mansion? Haitians Demand Answers**\
 `Valued at $3.4 million, a Haitian senator’s Montreal villa has become a potent emblem of the growing gap between Haiti’s impoverished citizens and its wealthy political elite.`\
 https://nytimes.com/2021/07/10/world/canada/Haiti-Canada-Celestin-corruption.html?searchResultPosition=6
 
