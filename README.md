@@ -1,5 +1,5 @@
 **Haunani-Kay Trask, Champion of Native Rights in Hawaii, Dies at 71**\
-`She was a pioneer in the academic field of Hawaiian studies and devoted her life to the promotion of Indigenous sovereignty within the state.`\
+`She helped found the field of Hawaiian studies and pressed for Indigenous sovereignty. “We will die as Hawaiians,” she said. “We will never be Americans.”`\
 https://nytimes.com/2021/07/09/us/haunani-kay-trask-dead.html?searchResultPosition=1
 
 **Investigating a Building Collapse by Studying Clues From One Still Standing**\
