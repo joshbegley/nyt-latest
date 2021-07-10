@@ -1,5 +1,5 @@
 **Texas Man Who Waited Hours to Vote Is Arrested on Charges of Illegal Voting**\
-`According to the state’s attorney general, Hervis Rogers was ineligible to cast a ballot in the 2020 presidential primary because he was still on parole. He now faces two decades in prison.`\
+`Hervis Rogers was ineligible to cast a ballot in the 2020 presidential primary because he was still on parole, according to the state’s attorney general. He now faces four decades in prison.`\
 https://nytimes.com/2021/07/10/us/texas-primary-voter-arrested.html?searchResultPosition=1
 
 **Hiring, Firing, Setting the Culture: Black Women at the Top of TV News**\
