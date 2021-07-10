@@ -14,13 +14,13 @@ https://nytimes.com/2021/07/10/sports/tennis/wimbledon-ashleigh-barty-karolina-p
 `News organizations are belatedly apologizing for racist journalism that alienated generations of  African-Americans`\
 https://nytimes.com/2021/07/10/opinion/sunday/white-newspapers-african-americans.html?searchResultPosition=4
 
+**There’s a Specific Kind of Joy We’ve Been Missing**\
+`We find our greatest bliss in moments of “collective effervescence.”`\
+https://nytimes.com/2021/07/10/opinion/sunday/covid-group-emotions-happiness.html?searchResultPosition=5
+
 **Sorry, We Aren’t Going Back to the Movies**\
 `The pandemic forced Hollywood to fully embrace the home-theater experience, leaving struggling cine in the dust. `\
-https://nytimes.com/2021/07/10/opinion/sunday/hbo-max-streaming-covid-diesel.html?searchResultPosition=5
-
-**There’s a Specific Kind of Joy We’ve Been Missing**\
-`Happiness is often viewed as an individual emotion, but we’re most likely to find it in group activities with a shared purpose.`\
-https://nytimes.com/2021/07/10/opinion/sunday/covid-group-emotions-happiness.html?searchResultPosition=6
+https://nytimes.com/2021/07/10/opinion/sunday/hbo-max-streaming-covid-diesel.html?searchResultPosition=6
 
 **When a Preacher Doesn’t Credit His Sources**\
 `Ministers and a rabbi discuss “Sermongate” in the Southern Baptist Convention.`\
