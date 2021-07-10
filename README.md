@@ -22,19 +22,19 @@ https://nytimes.com/2021/07/10/business/gen-z-email.html?searchResultPosition=5
 `Legal oversight arrangements are seen as protection for some, but advocates for people with disabilities question the need for them in many cases.`\
 https://nytimes.com/2021/07/10/us/britney-spears-conservatorships-guardianships.html?searchResultPosition=6
 
+**To Kill a Swan? Dispute Over a Bird’s Fate Ends With a Twist.**\
+`A mute swan, beloved by some, was set to be euthanized after wildlife officials deemed him dangerously aggressive. Then something unexpected happened.`\
+https://nytimes.com/2021/07/10/nyregion/alfie-swan-brick-nj.html?searchResultPosition=7
+
 **When a No-Pet Policy Isn’t Really a No-Pet Policy**\
 `Pet policies are not always as straightforward as they seem. Sometimes they apply to some tenants but not others in the same building.`\
-https://nytimes.com/2021/07/10/realestate/rentals-no-pet-policy.html?searchResultPosition=7
+https://nytimes.com/2021/07/10/realestate/rentals-no-pet-policy.html?searchResultPosition=8
 
 **Falling for Couture’s Gravitational Pull**\
 `Everything you need to know from the first post-pandemic in-person couture week, including the biggest debut, most viral moments and non-influencer trends.`\
-https://nytimes.com/2021/07/10/style/couture-chanel-dior-balenciaga.html?searchResultPosition=8
+https://nytimes.com/2021/07/10/style/couture-chanel-dior-balenciaga.html?searchResultPosition=9
 
 **Is It Art? You May Have to Ask a Neanderthal Critic**\
 `A bone to pick from Germany’s Unicorn Cave. Plus fireflies in sync, peer review in crisis and China’s astronauts at work in their spacesuits.`\
-https://nytimes.com/2021/07/10/science/neanderthal-deer-bone.html?searchResultPosition=9
-
-**To Kill a Swan? Dispute Over a Bird’s Fate Ends With a Twist.**\
-`A mute swan, beloved by some, was set to be euthanized after wildlife officials deemed him dangerously aggressive. Then something unexpected happened.`\
-https://nytimes.com/2021/07/10/nyregion/alfie-swan-brick-nj.html?searchResultPosition=10
+https://nytimes.com/2021/07/10/science/neanderthal-deer-bone.html?searchResultPosition=10
 
