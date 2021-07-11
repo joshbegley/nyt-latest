@@ -10,7 +10,7 @@ https://nytimes.com/2021/07/11/sports/soccer/why-england-sweet-caroline-euro-202
 `How one man completed a third trans-Atlantic kayak trip just shy of his 71st birthday.`\
 https://nytimes.com/2021/07/11/podcasts/the-daily/travel-aleksander-doba-sunday-read.html?searchResultPosition=3
 
-**I Love England’s Football Team. I’m More Conflicted About England.**\
+**The Big Game Is Today, England vs. Italy. I Know the England I am Rooting For.**\
 `Who really represents the country?`\
 https://nytimes.com/2021/07/11/opinion/england-italy-euros-2021.html?searchResultPosition=4
 
