@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/11/world/americas/joseph-lambert-senate-president.html?searchResultPosition=1
 
 **Can Marijuana Make You a Better Athlete?**\
-`When Sha’Carri Richardson was denied a spot in the Tokyo Olympics after testing positive for marijuana, it ignited a debate about using cannabis to aid in sports. Does it actually help?`\
+`When Sha’Carri Richardson was denied a spot in the Tokyo Olympics after testing positive for marijuana, it reignited a debate about using cannabis to aid in sports. Does it actually help?`\
 https://nytimes.com/2021/07/11/well/move/marijuana-olympics-ban.html?searchResultPosition=2
 
 **Short of vaccines, Asia grapples with Delta-driven outbreaks.**\
