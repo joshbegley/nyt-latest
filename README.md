@@ -23,7 +23,7 @@ https://nytimes.com/2021/07/11/sports/tennis/novak-djokovic-roger-federer-rafael
 https://nytimes.com/2021/07/11/world/americas/us-haitian-assassination-inquiry.html?searchResultPosition=6
 
 **Italy Ends Its Wait, Ensuring England’s Will Go On**\
-`A Euro 2020 final delayed first by the pandemic and then by extra time ends with an Italian celebration on the field at Wembley.`\
+`A Euro 2020 final delayed by the pandemic and then extended to a shootout ends, finally, with an Italian celebration on the field and stunned silence in Wembley’s stands.`\
 https://nytimes.com/2021/07/11/sports/soccer/italy-england-euro-2020-final.html?searchResultPosition=7
 
 **Despite Outbreaks Among Unvaccinated, Fox News Hosts Smear Shots**\
