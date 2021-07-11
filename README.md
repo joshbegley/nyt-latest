@@ -12,7 +12,7 @@ https://nytimes.com/2021/07/11/nyregion/metropolitan-diary.html?searchResultPosi
 
 **Two Are Killed in Arizona Firefighting Plane Crash**\
 `The plane was engaged in aerial reconnaissance over the Cedar Basin fire when it crashed on Saturday, the Bureau of Land Management said.`\
-https://nytimes.com/2021/07/11/world/asia/arizona-fire-plane-crash.html?searchResultPosition=4
+https://nytimes.com/2021/07/11/us/arizona-fire-plane-crash.html?searchResultPosition=4
 
 **The intensity and awkwardness leaves a window for Poirier and McGregor to fight again.**\
 `Dana White, the U.F.C. president, said Conor McGregor would have surgery on his left leg on Sunday.`\
