@@ -10,8 +10,8 @@ https://nytimes.com/2021/07/11/sports/soccer/euro-2020-time-tv.html?searchResult
 `At the end of a gathering of the finance ministers of the Group of 20 nations, the U.S. Treasury secretary called for an acceleration of vaccine distribution worldwide.`\
 https://nytimes.com/2021/07/11/us/politics/yellen-coronavirus-variants-economy.html?searchResultPosition=3
 
-**‘I’m crying, it’s true, but we can’t let the country go astray’: The president’s widow speaks.**\
-`Martine Moïse, who was wounded in the attack that killed her husband, urged people to carry on his “battle.”`\
+**A message said to be from the president’s widow is posted to Twitter.**\
+`An audio recording claimed to be of Martine Moïse, who was wounded in the attack that killed her husband, urged people to carry on his “battle.” But doubts were raised about the clip’s authenticity.`\
 https://nytimes.com/2021/07/11/world/americas/martine-moise-haiti.html?searchResultPosition=4
 
 **Q&A: Siya Kolisi on Rugby, Race and What’s Next for South Africa**\
