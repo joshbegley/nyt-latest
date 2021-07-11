@@ -1,5 +1,5 @@
 **Tai Tuivasa knocked out Greg Hardy then pounded beers.**\
-`By Kevin Draper`\
+`Tuivasa won in the first round.`\
 https://nytimes.com/2021/07/10/sports/tai-tuivasa-greg-hardy.html?searchResultPosition=1
 
 **Irene Aldana got a statement win.**\
