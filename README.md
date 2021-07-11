@@ -26,15 +26,15 @@ https://nytimes.com/2021/07/11/world/a-number-of-breath-based-coronavirus-tests-
 `Ultramarathons may be the ultimate endurance leveling ground. Half of the top 30 finishers at this year’s Western States 100-mile race were women.`\
 https://nytimes.com/2021/07/11/sports/western-states-women.html?searchResultPosition=7
 
+**Why is Richard Branson taking this risk?**\
+`By Michael J. de la Merced`\
+https://nytimes.com/2021/07/11/science/richard-branson-space-flight-risk.html?searchResultPosition=8
+
 **When is the flight and how can I watch it?**\
 `By Kenneth Chang`\
-https://nytimes.com/2021/07/11/science/when-is-virgin-galactic-launch-live-stream-details.html?searchResultPosition=8
+https://nytimes.com/2021/07/11/science/when-is-virgin-galactic-launch-live-stream-details.html?searchResultPosition=9
 
 **With Conor McGregor Injured, U.F.C. Faces Big Challenges**\
 `His star power is enormous. But after breaking his leg in a fight on Saturday, the sport must bank on other athletes.`\
-https://nytimes.com/2021/07/11/sports/conor-mcgregor-injured-ufc.html?searchResultPosition=9
-
-**Why Do English Soccer Fans Sing ‘Sweet Caroline’?**\
-`At Wembley Stadium, where London has been following in the footsteps of Belfast and Boston, good times never seemed so good (so good, so good, so good).`\
-https://nytimes.com/2021/07/11/sports/soccer/why-england-sweet-caroline-euro-2020.html?searchResultPosition=10
+https://nytimes.com/2021/07/11/sports/conor-mcgregor-injured-ufc.html?searchResultPosition=10
 
