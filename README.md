@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/11/world/americas/joseph-lambert-senate-president.ht
 `When Sha’Carri Richardson was denied a spot in the Tokyo Olympics after testing positive for marijuana, it reignited a debate about using cannabis to aid in sports. Does it actually help?`\
 https://nytimes.com/2021/07/11/well/move/marijuana-olympics-ban.html?searchResultPosition=5
 
-**Short of vaccines, Asia grapples with Delta-driven outbreaks.**\
+**Short on vaccines, Asia grapples with Delta-driven outbreaks.**\
 `Across the region, everyday activities are again being restricted even as the West edges back to normalcy.`\
 https://nytimes.com/2021/07/11/world/asia-delta-outbreaks.html?searchResultPosition=6
 
