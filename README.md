@@ -1,9 +1,13 @@
-**Cubans Denounce ‘Misery’ in Biggest Protests in Decades**\
-`The rallies, widely viewed as astonishing for a country that limits dissent, were set off by economic crises worsened by the pandemic.`\
-https://nytimes.com/2021/07/11/world/americas/cuba-crisis-protests.html?searchResultPosition=1
+**Should a Mental Health Emergency Derail a Dangerous Climb?**\
+`A mountain climber with bipolar disorder had an episode that thwarted his team’s plan to summit the world’s seventh-highest peak, prompting a debate about mental illness in adventure sports.`\
+https://nytimes.com/2021/07/11/sports/cory-richards-bipolar-alpinist.html?searchResultPosition=1
 
-**Voters Chose Boring Over Bombast. They Got Biden’s Penchant for Pontificating.**\
-`Even the president labeled a speech boring recently, an admission that highlights a tendency toward delivering minutiae-filled discourse over scaling oratorical heights.`\
-https://nytimes.com/2021/07/11/us/politics/biden-speeches.html?searchResultPosition=2
+**Short and Stout**\
+`Kevin Christian gives us a geography lesson.`\
+https://nytimes.com/2021/07/11/crosswords/daily-puzzle-2021-07-12.html?searchResultPosition=2
 
-**Extra time: It was never going to be easy.**\
+**Italy’s Victory at Euro 2020 Echoes a Broader Resurgence**\
+`The national team beat England in the final of the European Championship soccer tournament, and the country wildly celebrated a win that seemed to symbolize renewal after adversity.`\
+https://nytimes.com/2021/07/11/sports/soccer/england-wins-european-championship.html?searchResultPosition=3
+
+**Penalties at Wembley: The final goes to a shootout.**\
