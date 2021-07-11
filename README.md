@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/11/crosswords/daily-puzzle-2021-07-12.html?searchRes
 `The national team beat England in the final of the European Championship soccer tournament, and the country wildly celebrated a win that seemed to symbolize renewal after adversity.`\
 https://nytimes.com/2021/07/11/sports/soccer/england-wins-european-championship.html?searchResultPosition=5
 
-**Penalties at Wembley: Italy wins in a shootout.**\
+**Penalties at Wembley: Italy beats England in a shootout.**\
 `Italy wins Euro 2020, extending England’s wait for a major championship.`\
 https://nytimes.com/2021/07/11/sports/soccer/euro-2020-final-england-italy-penalties.html?searchResultPosition=6
 
