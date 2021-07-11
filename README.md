@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/11/sports/basketball/nba-bucks-abdul-jabbar-robertson.html?searchResultPosition=1
 
 **Nigeria Wins Historic Upset Over Team U.S.A. in Olympic Exhibition**\
-`Nigeria defeated a roster stacked with All-N.B.A. players Saturday to become the first African team to beat the U.S. men’s national basketball team.`\
+`Nigeria defeated a roster stacked with All-N.B.A. players on Saturday, becoming the first African team to beat the U.S. men’s national team.`\
 https://nytimes.com/2021/07/10/sports/basketball/usa-nigeria-basketball.html?searchResultPosition=2
 
 **Tai Tuivasa knocked out Greg Hardy then pounded beers.**\
