@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/10/insider/reporters-tv-news-shows.html?searchResult
 `By Alanis Thames`\
 https://nytimes.com/2021/07/10/sports/max-griffin-carlos-condit.html?searchResultPosition=5
 
-**Messi and Argentina Beat Brazil to Win the Copa América**\
+**Lionel Messi and Argentina Beat Brazil in Copa América Final**\
 `A star player’s glittering career finally gets the one honor it was missing: a major title with his national team.`\
 https://nytimes.com/2021/07/10/sports/soccer/lionel-messi-argentina-brazil-copa-america.html?searchResultPosition=6
 
