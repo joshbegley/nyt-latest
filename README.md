@@ -2,7 +2,7 @@
 `Kareem Abdul-Jabbar and Oscar Robertson were the top two scorers on Milwaukee’s 1971 title team. They’re rooting for Giannis Antetokounmpo win it all this year.`\
 https://nytimes.com/2021/07/11/sports/basketball/nba-bucks-abdul-jabbar-robertson.html?searchResultPosition=1
 
-**Nigeria Gets Historic Upset Over Team U.S.A. in Olympic Exhibition**\
+**Nigeria Wins Historic Upset Over Team U.S.A. in Olympic Exhibition**\
 `Nigeria defeated a roster stacked with All-N.B.A. players Saturday to become the first African team to beat the U.S. men’s national basketball team.`\
 https://nytimes.com/2021/07/10/sports/basketball/usa-nigeria-basketball.html?searchResultPosition=2
 
