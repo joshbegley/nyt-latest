@@ -15,7 +15,7 @@ https://nytimes.com/video/world/europe/100000007860750/pope-francis-hospital-bal
 https://nytimes.com/2021/07/11/world/middleeast/iran-covid-vaccines-armenia.html?searchResultPosition=4
 
 **Stephen Colbert added a dash of comedy as Branson and crew headed toward space.**\
-`The talk show host and others added glitz to an event full of rocket science.`\
+`The talk show host, the R&B singer Khalid and others added glitz to an event full of rocket science.`\
 https://nytimes.com/2021/07/11/science/stephen-colbert-branson-virgin-galactic-space.html?searchResultPosition=5
 
 **After All-Night Hearing, Texas Republicans Advance Voting Measure**\
