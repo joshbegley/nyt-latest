@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/11/business/nordstrom-asos.html?searchResultPosition
 `A Black man was praised for his willingness to vote. Now he faces criminal charges.`\
 https://nytimes.com/2021/07/11/opinion/texas-elections-black-people.html?searchResultPosition=6
 
-**Prominent Lawyer Makes Moves to Represent Britney Spears**\
+**Prominent Lawyer in Discussions to Represent Britney Spears**\
 `Mathew Rosengart, a former federal prosecutor, plans to attend a hearing on Wednesday and make the case that the singer should be permitted to hire him for her conservatorship battle.`\
 https://nytimes.com/2021/07/11/arts/music/britney-spears-lawyer-mathew-rosengart.html?searchResultPosition=7
 
