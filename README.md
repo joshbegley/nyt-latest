@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/12/arts/music/aix-festival-opera.html?searchResultPosition=1
 
 **‘Freedom Day’ Coming to England, Ready or Not**\
-`Prime Minister Boris Johnson is set on lifting all restrictions on July 19. Critics predict mass confusion.`\
+`Prime Minister Boris Johnson is set on lifting all restrictions on July 19 despite a surge in cases. Critics predict mass confusion.`\
 https://nytimes.com/2021/07/12/world/europe/england-coronavirus-johnson-freedom.html?searchResultPosition=2
 
 **Texas Democrats Plan to Flee State to Highlight G.O.P. Voting Restrictions**\
