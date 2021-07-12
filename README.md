@@ -4,7 +4,7 @@ https://nytimes.com/video/world/americas/100000007862032/christian-emmanuel-sano
 
 **Biden Calls Cuba Protests ‘Clarion Call for Freedom’**\
 `A day after a rare outbreak of anti-government protests in Cuba, the United States and Cuba traded sharp words.`\
-https://nytimes.com/2021/07/12/world/biden-calls-cuba-protests-clarion-call-for-freedom.html?searchResultPosition=2
+https://nytimes.com/2021/07/12/world/biden-cuba-protests.html?searchResultPosition=2
 
 **Edwin Edwards, Flamboyant Louisiana Governor, Is Dead at 93**\
 `He served four terms, charmed voters with his escapades and survived a score of investigations before going to prison in 2002 for racketeering.`\
