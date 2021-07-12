@@ -1,5 +1,5 @@
 **A Mission to Get a Forgotten Military Perspective**\
-`Curious about possible parallels between the withdrawal of U.S. forces in Vietnam and Afghanistan, a reporter sought to tell an overlooked part of history before it was too late.`\
+`Looking at the withdrawal of U.S. forces in Afghanistan and in Vietnam nearly 50 years ago, a reporter sought to tell an overlooked part of history before it was too late.`\
 https://nytimes.com/2021/07/12/insider/vietnam-veterans-afghanistan.html?searchResultPosition=1
 
 **Thailand will give health workers a mix of Chinese and Western vaccines.**\
