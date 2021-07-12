@@ -1,40 +1,40 @@
-**The Rationing of a Last-Resort Covid Treatment**\
-`While ventilator shortages have been largely averted in the U.S., this lifesaving therapy is scarce. How to choose which critically ill patients get it?`\
-https://nytimes.com/2021/07/12/us/covid-treatment-ecmo.html?searchResultPosition=1
+**South Asian migrant workers are stranded as they wait for vaccines.**\
+`Thousands across the region have been left in limbo because of sluggish immunization campaigns, red tape and closed borders.`\
+https://nytimes.com/2021/07/12/world/nepal-india-bangladesh-migrant-workers.html?searchResultPosition=1
 
-**Facebook Wants to Court Creators. It Could Be a Tough Sell.**\
-`The social network is aiming to be a destination for creators and their viral memes. But TikTok and YouTube got there first.`\
-https://nytimes.com/2021/07/12/technology/facebook-creators-tiktok-youtube.html?searchResultPosition=2
+**Scattered Among the Himalaya, Glimpses of a Changing Tibet**\
+`An array of forces, including political suppression and the ubiquity of the internet, have made elements of traditional Tibetan lifestyles increasingly challenging.`\
+https://nytimes.com/2021/07/12/travel/tibetan-culture.html?searchResultPosition=2
 
-**Bank profits are poised to surge as the pandemic recedes.**\
-`The country’s biggest banks will report their quarterly earnings this week, reaping the benefits of an economy that’s returning to normal.`\
-https://nytimes.com/2021/07/12/business/bank-earnings-preview.html?searchResultPosition=3
+**Andrew Lloyd Webber’s New Act: Activism**\
+`On questions of reopening, the theater impresario has become a surprising thorn in the British government’s side.`\
+https://nytimes.com/2021/07/12/theater/andrew-lloyd-webber-cinderella.html?searchResultPosition=3
 
-**What’s on TV This Week: ‘Catch and Kill’ and the MLB All-Star Game**\
-`HBO airs a documentary about Ronan Farrow’s book “Catch and Kill,” and the MLB hosts its 91st annual All-Star Game.`\
-https://nytimes.com/2021/07/12/arts/television/whats-on-tv-this-week.html?searchResultPosition=4
+**Tourists in N.Y.C. Marvel at a Cleaner, Less-Crowded Subway**\
+`In a newly reopened New York City, travel and hotel costs are still relatively low, enticing some young people, retirees and families to make the trip.`\
+https://nytimes.com/2021/07/12/nyregion/nyc-subway-tourists.html?searchResultPosition=4
 
-**Phoebe Philo Is Returning to Fashion With Her Own Brand**\
-`The patron saint of designing for the female gaze is back.`\
-https://nytimes.com/2021/07/12/fashion/phoebe-philo-returning-to-fashion.html?searchResultPosition=5
+**E.P.A. Approved Toxic Chemicals for Fracking a Decade Ago, New Files Show**\
+`The compounds can form PFAS, also known as “forever chemicals,” which have been linked to cancer and birth defects. The E.P.A. approvals came despite the agency’s own concerns about toxicity.`\
+https://nytimes.com/2021/07/12/climate/epa-pfas-fracking-forever-chemicals.html?searchResultPosition=5
 
-**Hong Kong Migrants Seek Fresh Start in U.K. After Crackdown**\
-`Many who have left the city say they feel less like refugees than trailblazers, eager to build a new home after watching their old one slowly transform under Beijing.`\
-https://nytimes.com/2021/07/12/business/hong-kong-migrants-london.html?searchResultPosition=6
+**Covid Didn’t Kill Cities. Why Was That Prophecy So Alluring?**\
+`A distrust of urban life has persisted in America, finding expression in different ways over time.`\
+https://nytimes.com/2021/07/12/upshot/covid-cities-predictions-wrong.html?searchResultPosition=6
 
-**Jeanie Buss Is Laughing Through Her Pain**\
-`A series of personal and professional losses have challenged the Los Angeles Lakers’ owner in recent years. So she turned to stand-up comedy.`\
-https://nytimes.com/2021/07/12/sports/basketball/lakers-jeanie-buss.html?searchResultPosition=7
+**Hello, Content Creators. Silicon Valley’s Investors Want to Meet You.**\
+`The online influencer culture is starting to draw serious interest from big venture capital firms. But the real money could be in digital tools, not the personalities.`\
+https://nytimes.com/2021/07/12/technology/content-creators-venture-capital.html?searchResultPosition=7
 
-**Shohei Ohtani Is Just the Star America’s Pastime Needs**\
-`This week the Angels star, one of the greatest spectacles in all of sports, will hit and pitch in the All-Star Game. He could not have timed his breakout season any better.`\
-https://nytimes.com/2021/07/12/sports/baseball/shohei-ohtani-all-star-game.html?searchResultPosition=8
+**Florida, the Land of Gleaming Condos, Frets After Collapse**\
+`The high-rise condos along the Miami seashore long embodied the Florida dream of sunshine and prosperity. But the Champlain Towers South catastrophe is obscuring that vision.`\
+https://nytimes.com/2021/07/12/us/miami-champlain-towers-florida-dream.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`Italy’s victory over England.`\
-https://nytimes.com/2021/07/11/briefing/euros-coronavirus-renewable-energy.html?searchResultPosition=9
+**As Republicans Take Aim at Voting, Democrats Search for a Response**\
+`A speech by President Biden on Tuesday could be a signal of how hard the Democrats will fight to protect voting rights.`\
+https://nytimes.com/2021/07/12/us/republicans-voting-rights-democrats.html?searchResultPosition=9
 
-**Quotation of the Day: Village Fought Off Virus, but Neighbors Didn’t. It’s a Bad Sign for India.**\
-`Quotation of the Day for Monday, July 12, 2021.`\
-https://nytimes.com/2021/07/11/todayspaper/quotation-of-the-day-village-fought-off-virus-but-neighbors-didnt-its-a-bad-sign-for-india.html?searchResultPosition=10
+**Alcohol Abuse Is on the Rise, but Doctors Too Often Fail to Treat It**\
+`People with alcohol use disorder are often seen in clinics and hospitals, but medical professionals too often ignore the condition.`\
+https://nytimes.com/2021/07/12/well/live/alcohol-abuse-drinking-treatment.html?searchResultPosition=10
 
