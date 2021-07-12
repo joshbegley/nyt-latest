@@ -30,8 +30,8 @@ https://nytimes.com/2021/07/11/us/denver-shooting-arrest-mlb.html?searchResultPo
 `Djokovic, now with 20 career Grand Slam titles, suggested that the three-way tie with Roger Federer and Rafael Nadal could be broken at the U.S. Open.`\
 https://nytimes.com/2021/07/11/sports/tennis/novak-djokovic-roger-federer-rafael-nadal.html?searchResultPosition=8
 
-**U.S. Sending Team to Help Haitian Assassination Inquiry**\
-`American officials are treading lightly, avoiding any role in keeping order despite a request for military forces.`\
+**Third Man With U.S. Ties Has Been Arrested in Haiti Assassination**\
+`The U.S. said it was sending a team of investigators to help the Haitians, but it is treading lightly, avoiding any role in keeping order despite a request for military forces.`\
 https://nytimes.com/2021/07/11/world/americas/us-haitian-assassination-inquiry.html?searchResultPosition=9
 
 **A Day Filled With Noise, and a Silence They’ll Never Forget**\
