@@ -30,8 +30,8 @@ https://nytimes.com/2021/07/11/sports/tennis/novak-djokovic-roger-federer-rafael
 `American officials are treading lightly, avoiding any role in keeping order despite a request for military forces.`\
 https://nytimes.com/2021/07/11/world/americas/us-haitian-assassination-inquiry.html?searchResultPosition=8
 
-**Italy Ends Its Wait, Ensuring England’s Will Go On**\
-`A Euro 2020 delayed by the pandemic and then extended to a shootout ends, finally, with an Italian celebration on the field and stunned silence in Wembley’s stands.`\
+**A Day Filled With Noise, and a Silence They’ll Never Forget**\
+`A Euro 2020 delayed by the pandemic and then extended to a shootout ends, finally, with an Italian celebration on the field and stunned fans in the Wembley’s stands.`\
 https://nytimes.com/2021/07/11/sports/soccer/italy-england-euro-2020-final.html?searchResultPosition=9
 
 **Despite Outbreaks Among Unvaccinated, Fox News Hosts Smear Shots**\
