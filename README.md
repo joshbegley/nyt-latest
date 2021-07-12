@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/12/us/coronavirus-today-vaccine.html?searchResultPosition=1
 
 **Byron Berline, Master of the Bluegrass Fiddle, Dies at 77**\
-`Mr. Berline’s updated version of an old-timey sound enhanced recordings by everyone from Bill Monroe to the Rolling Stones.`\
+`His updated version of an old-timey approach enhanced recordings by everyone from Bill Monroe to the Rolling Stones.`\
 https://nytimes.com/2021/07/12/arts/music/byron-berline-dead.html?searchResultPosition=2
 
 **Ottolenghi’s Formula for Easy, Delicious Dishes**\
