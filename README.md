@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/11/world/americas/haiti-colombian-mercenaries.html?s
 `Last year, the pandemic canceled the minor league season. Now, those lower leagues are testing grounds for new rules. And two key events, the Futures Game and the draft, have kicked off All-Star weekend.`\
 https://nytimes.com/2021/07/11/sports/baseball/mlb-draft-futures-game.html?searchResultPosition=8
 
-**Haitian officials investigating the Moïse murder say they arrested a Florida doctor who was ‘central’ in the plot.**\
+**Haiti’s police chief suggested a Florida-based doctor arrested in the president’s killing was plotting to assume the presidency.**\
 `The suspect is now the third with U.S. ties to be held in the assassination of Haiti’s president.`\
 https://nytimes.com/2021/07/11/world/haiti-arrests-florida-doctor-moise.html?searchResultPosition=9
 
