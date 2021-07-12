@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/12/sports/soccer/euro-2020-england-italy.html?searchResultPosition=1
 
 **A big opening for ‘Black Widow’ gives a taste of how theaters and streaming can coexist.**\
-`The long-delayed Marvel-Disney movie generated $80 million at the box office and another $60 million on the Disney+ streaming platform.`\
+`The long-delayed Marvel-Disney movie generated $80 million at the domestic box office and another $60 million on the Disney+ streaming platform.`\
 https://nytimes.com/2021/07/12/business/black-widow-theaters-streaming.html?searchResultPosition=2
 
 **Rob Portman on Why the G.O.P. Should Team Up With Biden on Infrastructure**\
