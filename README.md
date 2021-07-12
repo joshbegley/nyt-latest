@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/12/realestate/2-6-million-homes-in-california.html?s
 https://nytimes.com/slideshow/2021/07/12/realestate/what-you-get-for-2-6-million-in-california.html?searchResultPosition=4
 
 **Top U.S. General Steps Down in Afghanistan**\
-`Gen. Austin S. Miller is leaving as the United States prepares to end its two-decade war in Afghanistan and Taliban fighters sweep across much of the country.`\
+`Gen. Austin S. Miller is leaving as the United States prepares to end its two-decade war in Afghanistan, and as Taliban fighters sweep across much of the country.`\
 https://nytimes.com/2021/07/12/world/asia/afghanistan-us-general-steps-down.html?searchResultPosition=5
 
 **Barcelona Wants to Keep Lionel Messi. La Liga May Not Allow It.**\
