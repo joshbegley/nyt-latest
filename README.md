@@ -31,7 +31,7 @@ https://nytimes.com/2021/07/11/sports/tennis/novak-djokovic-roger-federer-rafael
 https://nytimes.com/2021/07/11/world/americas/us-haitian-assassination-inquiry.html?searchResultPosition=8
 
 **A Day Filled With Noise, and a Silence They’ll Never Forget**\
-`A Euro 2020 delayed by the pandemic and then extended to a shootout ends, finally, with an Italian celebration on the field and stunned fans in the Wembley’s stands.`\
+`A Euro 2020 delayed by the pandemic and then extended to a shootout ends, finally, with an Italian celebration on the field and stunned fans in the stands.`\
 https://nytimes.com/2021/07/11/sports/soccer/italy-england-euro-2020-final.html?searchResultPosition=9
 
 **Despite Outbreaks Among Unvaccinated, Fox News Hosts Smear Shots**\
