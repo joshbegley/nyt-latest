@@ -1,4 +1,4 @@
-**Do I Need a Covid Booster Shot?**\
+**With the Delta Variant, Do I Need a Covid Booster Shot?**\
 `Although studies of a third dose are underway, experts agree that the vaccines are still working well, even against the Delta variant, and that booster shots are not necessary right now.`\
 https://nytimes.com/2021/07/12/well/live/covid-booster-shot.html?searchResultPosition=1
 
