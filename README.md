@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/11/world/americas/haiti-colombian-mercenaries.html?s
 https://nytimes.com/2021/07/11/sports/baseball/mlb-draft-futures-game.html?searchResultPosition=4
 
 **Haitian officials investigating the Moïse murder say they arrested a Florida doctor who was ‘central’ in the plot.**\
-`A third suspect with U.S. ties has now been held in the assassination of Haiti’s president.`\
+`The suspect is now the third with U.S. ties to be held in the assassination of Haiti’s president.`\
 https://nytimes.com/2021/07/11/world/haiti-arrests-florida-doctor-moise.html?searchResultPosition=5
 
 **Bootleg Fire in Oregon Scorches 143,000 Acres as Heat Wave Continues in the West**\
