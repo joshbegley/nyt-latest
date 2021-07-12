@@ -1,5 +1,5 @@
 **Eric Adams in the Limelight**\
-`The  nominee for mayor sent a message to Democrats around the country during Sunday talk show appearances on national TV.`\
+`The  nominee for mayor sent a message to Democrats around the country during Sunday talk show appearances.`\
 https://nytimes.com/2021/07/12/nyregion/eric-adams-mayor-nyc.html?searchResultPosition=1
 
 **South Asian migrant workers are stranded as they wait for vaccines.**\
