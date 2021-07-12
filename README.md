@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/11/arts/television/william-smith-dead.html?searchRes
 `Funkadelic’s third album was a psychedelic blast of freewheeling protest music. As the LP turns 50, we look back at the music that fueled it — and that was inspired by it.`\
 https://nytimes.com/interactive/2021/07/11/arts/music/funkadelic-maggot-brain.html?searchResultPosition=6
 
-**Nordstrom, Eying 20-Somethings, Strikes Deal With the Online Giant Asos**\
+**Nordstrom, Eyeing 20-Somethings, Strikes Deal With the Online Giant Asos**\
 `Nordstrom hopes a partnership with the online fashion behemoth can attract younger shopper back to its stores and its website.`\
 https://nytimes.com/2021/07/11/business/nordstrom-asos.html?searchResultPosition=7
 
