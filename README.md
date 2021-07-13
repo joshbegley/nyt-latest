@@ -1,4 +1,4 @@
-**The Gender Pay Gap**\
+**How to Actually Close the Gender Pay Gap**\
 `Readers say closing the gap alone won't solve the problem. Also: Divorce in the family; on not going back to the movies.`\
 https://nytimes.com/2021/07/13/opinion/letters/salary-women.html?searchResultPosition=1
 
