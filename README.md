@@ -16,9 +16,9 @@ https://nytimes.com/2021/07/13/us/coronavirus-today.html?searchResultPosition=4
 
 **‘There’s no Turning Back:’ Cuban Dissidents Feel Emboldened Despite Crackdown**\
 `Security forces took dozens of protesters into custody following a wave of protests on Sunday. But dissidents expressed hope the demonstrations would lead to lasting change.`\
-https://nytimes.com/2021/07/13/world/americas/cuba-protest-demonstration.html?searchResultPosition=5
+https://nytimes.com/2021/07/13/world/americas/cuba-protest-arrests.html?searchResultPosition=5
 
-**Italy’s Government to Ban Cruise Ships From Venice. For Real.**\
+**Italy’s Government to Ban Cruise Ships From Venice**\
 `In a landmark move, Italy’s cabinet on Tuesday declared the lagoon a national monument and banned large cruise ships from entering starting Aug. 1.`\
 https://nytimes.com/2021/07/13/world/europe/venice-italy-cruise-ship-ban.html?searchResultPosition=6
 
