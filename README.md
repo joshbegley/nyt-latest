@@ -12,7 +12,7 @@ https://nytimes.com/video/world/americas/100000007864832/haiti-moise-funeral.htm
 
 **A bank executive is convicted of loaning Paul Manafort money to obtain a job with the Trump administration.**\
 `Prosecutors accused Stephen Calk of using of his position to push the Federal Savings Bank to give $16 million in loans in 2016 to Mr. Manafort.`\
-https://nytimes.com/2021/07/13/us/politics/manafort-stephen-caulk-conviction.html?searchResultPosition=4
+https://nytimes.com/2021/07/13/us/politics/manafort-stephen-caulk-conviction-trump-administration.html?searchResultPosition=4
 
 **As Search Nears End, Florida Condo Death Toll Becomes Clearer**\
 `Officials in Surfside, Fla., now estimate that the total number of dead will be between 95 and 99 people.`\
