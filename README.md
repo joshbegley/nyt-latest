@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/13/world/europe/scotland-reopening-masks.html?search
 `Michelle Fiscus, that state’s immunization leader, was only the latest state public health official to depart amid the pandemic.`\
 https://nytimes.com/2021/07/13/us/michelle-fiscus-tennessee-vaccine.html?searchResultPosition=2
 
-**Russia’s most aggressive ransomware group disappeared. It’s unclear who disabled them.**\
+**Russia’s most aggressive ransomware group disappeared. It’s unclear who made that happen.**\
 `REvil, blamed for some of the most audacious attacks on the United States, suddenly cannot be found — even their negotiations with victims stopped. It is unclear if Russia or America disabled them.`\
 https://nytimes.com/2021/07/13/us/politics/russia-hacking-ransomware-revil.html?searchResultPosition=3
 
