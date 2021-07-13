@@ -1,5 +1,5 @@
 **Russia’s most aggressive ransomware group disappeared. It’s unclear who disabled them.**\
-`REvil, blamed for some of the most audacious attacks on the United States, suddenly cannot be found — even their negotiations with victims stopped. It is unclear is Russia or America disabled them.`\
+`REvil, blamed for some of the most audacious attacks on the United States, suddenly cannot be found — even their negotiations with victims stopped. It is unclear if Russia or America disabled them.`\
 https://nytimes.com/2021/07/13/us/politics/russia-hacking-ransomware-revil.html?searchResultPosition=1
 
 **What’s at Stake in the Fight Over Voting Rights**\
