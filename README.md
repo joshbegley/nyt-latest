@@ -1,5 +1,5 @@
 **France fines Google $593 million for not negotiating ‘in good faith’ with news publishers.**\
-`By Adam Satariano`\
+`French officials said Google ignored a 2020 order from regulators to negotiate a licensing deal with publishers to use short blurbs from articles in search results.`\
 https://nytimes.com/2021/07/13/business/media/google-france-news-content-fine.html?searchResultPosition=1
 
 **China’s Tech Crackdown Could Hit Wall Street’s Wallet**\
