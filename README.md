@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/13/world/europe/venice-italy-cruise-ship-ban.html?se
 `It was the second time in six weeks that Texas Democrats have staged a walkout to try to prevent passage of a sweeping election overhaul bill.`\
 https://nytimes.com/2021/07/13/us/politics/texas-democrats-voting.html?searchResultPosition=6
 
-**Activists hope and plan for change in a country in perpetual crisis.**\
+**Activists hope and plan for change in a country in crisis.**\
 `A group of Haitians from all walks of life — among them, feminists, artists and farming collectives — is clamoring for a plan to rebuild the country from the ground up.`\
 https://nytimes.com/2021/07/13/world/americas/activists-change-civil-society.html?searchResultPosition=7
 
