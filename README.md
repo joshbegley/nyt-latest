@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/12/us/politics/pfizer-booster-shots.html?searchResultPosition=1
 
 **Biden Seeks to Confront Crime While Supporting Police Reform**\
-`The president is trying to show he would aggressively fight gun violence and push for criminal justice reform at the same time.`\
+`A meeting with mayors and police chiefs was meant to show that the president is aggressively confronting gun violence. But he also risks alienating liberals pushing for criminal justice reform.`\
 https://nytimes.com/2021/07/12/us/politics/biden-crime-police-reform.html?searchResultPosition=2
 
 **Michael Wolff on Donald Trump’s Last Days (for Now)**\
