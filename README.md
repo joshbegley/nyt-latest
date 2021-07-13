@@ -8,7 +8,7 @@ https://nytimes.com/2021/07/13/business/dealbook/china-wall-street-ipos.html?sea
 
 **Janet Yellen makes a case for Ireland to join the global tax deal.**\
 `The Treasury secretary was in Europe to gather support for the tax plan, an agreement that gained the support of the Group of 20 nations on Saturday.`\
-https://nytimes.com/2021/07/13/business/janet-yellen.html?searchResultPosition=3
+https://nytimes.com/live/2021/07/13/business/economy-stock-market-news/janet-yellen?searchResultPosition=3
 
 **Boeing will slow work on its 787 Dreamliner to fix a new problem.**\
 `The slowdown will cause the company to fall short of a target production rate of five 787s per month.`\
