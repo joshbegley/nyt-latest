@@ -14,7 +14,7 @@ https://nytimes.com/2021/07/12/crosswords/daily-puzzle-2021-07-13.html?searchRes
 `Residents had pushed back at Gov. Andrew Cuomo’s plans for a tribute to essential workers in Battery Park City.`\
 https://nytimes.com/2021/07/12/nyregion/battery-park-monument-essential-workers-protests.html?searchResultPosition=4
 
-**U.S. Officials Push Back on Pfizer’s Request for Booster Shot Approval**\
+**U.S. Officials Press Pfizer for More Evidence of Need for Booster Shot**\
 `After meeting with company representatives, officials said the decision would depend partly on data on infections in vaccinated people that cause serious disease or hospitalization.`\
 https://nytimes.com/2021/07/12/us/politics/pfizer-booster-shots.html?searchResultPosition=5
 
