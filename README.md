@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/13/technology/china-fintech-ant-group.html?searchRes
 
 **Weighing Haiti Intervention, U.S. Again Faces a Torturous Dilemma**\
 `Time and again, the world has found that propping up failing states is compelling in the short-term and potentially disastrous in the long-term.`\
-https://nytimes.com/2021/07/13/world/americas/weighing-haiti-intervention-us-again-faces-a-torturous-dilemma.html?searchResultPosition=2
+https://nytimes.com/2021/07/13/world/americas/haiti-biden-intervention.html?searchResultPosition=2
 
 **Late Night Has Plenty of Virgin Jokes**\
 `Richard Branson’s spaceflight with his company Virgin Galactic was the talk of late night on Monday.`\
