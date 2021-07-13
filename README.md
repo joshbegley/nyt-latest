@@ -1,4 +1,4 @@
-**What You Need to Know About the Fight Over Voting Rights**\
+**What’s at Stake in the Fight Over Voting Rights**\
 `Here’s a breakdown of the themes in the state laws that Republicans are passing.`\
 https://nytimes.com/2021/07/13/briefing/texas-voting-rights-bill-legislature.html?searchResultPosition=1
 
