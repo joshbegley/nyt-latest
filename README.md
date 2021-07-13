@@ -1,6 +1,6 @@
 **As Virus Cases Speed Up, Seoul Tells Gym Users to Slow Down**\
 `Treadmills can go no faster than a brisk walk, and songs must fall below 120 beats per minute, under new regulations that confused some exercisers in South Korea. “It seems weird to me,” one said.`\
-https://nytimes.com/2021/07/13/world/asia/virus-skorea-gyms.html?searchResultPosition=1
+https://nytimes.com/2021/07/13/world/asia/south-korea-gyms-covid.html?searchResultPosition=1
 
 **Emmys 2021: The List of Nominees**\
 `The 73rd annual Emmy Award nominations were announced on Tuesday.`\
