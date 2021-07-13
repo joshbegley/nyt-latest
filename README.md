@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000007864492/texas-democrats-voting-rig
 
 **Emmys 2021: Our Critics on ‘I May Destroy You,’ ‘The Queen’s Gambit’ and … ‘Hamilton’?**\
 `This year’s Emmy announcement brought a bit of justice for Michaela Coel’s powerful series as well as the usual array of predictable and odd choices.`\
-https://nytimes.com/2021/07/13/arts/emmys-michaela-cole-emily-in-paris.html?searchResultPosition=2
+https://nytimes.com/2021/07/13/arts/emmys-michaela-coel-emily-in-paris.html?searchResultPosition=2
 
 **Recent Commercial Real Estate Transactions**\
 `Recent commercial real estate transactions in New York.`\
