@@ -10,9 +10,9 @@ https://nytimes.com/2021/07/13/world/americas/haiti-jovenel-moise-assassination.
 `The froghopper has amazing powers of suction, scientists found. It also produces astonishing amounts of urine.`\
 https://nytimes.com/2021/07/13/science/froghopper-xylem-straw.html?searchResultPosition=3
 
-**Mj Rodriguez Wants Trans Women to Know ‘This Is More Than Possible’**\
+**‘This Is More Than Possible’: Mj Rodriguez Makes Emmy History**\
 `On Tuesday the “Pose” star became the first trans performer to earn an Emmy nomination in a lead acting category.`\
-https://nytimes.com/2021/07/13/arts/television/mj-rodriguez-emmy-first-pose.html?searchResultPosition=4
+https://nytimes.com/2021/07/13/arts/television/mj-rodriguez-emmy-trans-woman.html?searchResultPosition=4
 
 **With Baseball Nearing a Crossroads, Its Commissioner Turns Nostalgic**\
 `The return of the All-Star Game is a welcome bit of good news for Rob Manfred, but the upcoming expiration of the sport’s collective bargaining agreement looms over everything.`\
