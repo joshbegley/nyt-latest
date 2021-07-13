@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/13/arts/television/elizabeth-olsen-wandavision-emmys
 https://nytimes.com/2021/07/13/arts/television/billy-porter-pose-emmys.html?searchResultPosition=3
 
 **Haiti Plans Funeral for Assassinated Leader**\
-`A week after President Jovenel Moïse was assassinated, the interim prime minister Claud Joseph announced the creation of a committee to plan a funeral for the former leader, as a political power struggle grips the nation.`\
+`A week after President Jovenel Moïse was assassinated, the interim prime minister Claude Joseph announced the creation of a committee to plan a funeral for the former leader, as a political power struggle grips the nation.`\
 https://nytimes.com/video/world/americas/100000007864832/haiti-moise-funeral.html?searchResultPosition=4
 
 **A bank executive is convicted of loaning Paul Manafort money to obtain a job with the Trump administration.**\
