@@ -1,4 +1,4 @@
-**More Data Needed for Decision on Booster Shots, U.S. Officials Tell Pfizer**\
+**U.S. Officials Push Back on Pfizer’s Request for Booster Shot Approval**\
 `After meeting with company representatives, officials said the decision would depend partly on data on infections in vaccinated people that cause serious disease or hospitalization.`\
 https://nytimes.com/2021/07/12/us/politics/pfizer-booster-shots.html?searchResultPosition=1
 
