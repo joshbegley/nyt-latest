@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/14/theater/playwrights-horizons-will-arbery-world-pr
 https://nytimes.com/2021/07/14/dining/20-sauces-to-change-your-cooking.html?searchResultPosition=3
 
 **Drug Deaths Spiked by 30 Percent Last Year, Surpassing 90,000**\
-`Covid wasn’t the only reason for the spike in overdoses.`\
+`Covid wasn’t the only reason for the record increase in overdose deaths.`\
 https://nytimes.com/interactive/2021/07/14/upshot/drug-overdose-deaths.html?searchResultPosition=4
 
 **5 Summer Love Stories**\
