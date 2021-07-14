@@ -2,7 +2,7 @@
 `Amanda Rafkin and Ross Trudeau return with a fabulous Wednesday puzzle.`\
 https://nytimes.com/2021/07/13/crosswords/daily-puzzle-2021-07-14.html?searchResultPosition=1
 
-**Democrats Agree to $3.5 Trillion Budget to Advance With Infrastructure Deal**\
+**Democrats Propose $3.5 Trillion Budget to Advance With Infrastructure Deal**\
 `The measure, which would include money to address climate change, expand Medicare and fulfill other Democratic priorities, is intended to deliver on President Biden’s economic proposal.`\
 https://nytimes.com/2021/07/13/us/politics/democrats-economic-plan.html?searchResultPosition=2
 
