@@ -2,8 +2,8 @@
 `All the speedy, from-scratch condiments you need.`\
 https://nytimes.com/2021/07/14/dining/20-sauces-to-change-your-cooking.html?searchResultPosition=1
 
-**Drug Deaths Set Records Last Year, and It Wasn’t Just Because of Covid**\
-`Overdose deaths reached a record of 93,000, according to C.D.C. preliminary statistics.`\
+**Drug Deaths Reached a Record 90,000 Last Year, Rising by 30 Percent**\
+`Covid wasn’t the only reason for the spike in overdoses.`\
 https://nytimes.com/interactive/2021/07/14/upshot/drug-overdose-deaths.html?searchResultPosition=2
 
 **5 Summer Love Stories**\
