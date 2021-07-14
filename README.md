@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/14/arts/music/ryuichi-sakamoto-time.html?searchResul
 `Hospitals in the country are overflowing and residents have scrambled to buy medical oxygen to treat family members at home.`\
 https://nytimes.com/2021/07/14/world/indonesia-caseload-skyrocket-hospitals-oxygen.html?searchResultPosition=2
 
-**The Delta Variant Widens the Gulf Between ‘Two Americas’**\
+**Delta Variant Widens Gulf Between ‘Two Americas’: Vaccinated and Unvaccinated**\
 `Data from overseas, particularly Britain, suggest the spread of the virus will set vaccinated and unvaccinated communities on very different paths.`\
 https://nytimes.com/2021/07/14/health/delta-variant-uk-usa.html?searchResultPosition=3
 
