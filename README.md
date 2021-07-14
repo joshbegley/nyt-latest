@@ -1,5 +1,5 @@
 **What’s in Our Queue? ‘This Is Us’ and More**\
-`I’m a Cielo Buenaventura on the Times’s Culture desk, here are five things I’ve been watching, reading and listening to lately`\
+`I’m the assistant arts editor on the Times’s Culture desk. Here are five things I’ve been watching, reading and listening to lately.`\
 https://nytimes.com/interactive/2021/07/14/arts/editors-recommendations.html?searchResultPosition=1
 
 **Tapping into the Brain to Help a Paralyzed Man Speak**\
