@@ -1,18 +1,18 @@
+**What’s in Our Queue? ‘This Is Us’ and More**\
+`I’m a Cielo Buenaventura on the Times’s Culture desk, here are five things I’ve been watching, reading and listening to lately`\
+https://nytimes.com/interactive/2021/07/14/arts/editors-recommendations.html?searchResultPosition=1
+
 **Tapping into the Brain to Help a Paralyzed Man Speak**\
 `In a once unimagined accomplishment, electrodes implanted in the man’s brain transmit signals to a computer that displays his words.`\
-https://nytimes.com/2021/07/14/health/speech-brain-implant-computer.html?searchResultPosition=1
+https://nytimes.com/2021/07/14/health/speech-brain-implant-computer.html?searchResultPosition=2
 
 **Coronavirus Cases Surge Across Indonesia**\
 `Indonesia reported more than 54,500 new virus cases on Wednesday, its third record daily rise in a row as oxygen is in short supply.`\
-https://nytimes.com/video/world/asia/100000007866858/indonesia-coronavirus-surge.html?searchResultPosition=2
+https://nytimes.com/video/world/asia/100000007866858/indonesia-coronavirus-surge.html?searchResultPosition=3
 
 **Baltimore Police Officer Charged With Murdering His Teenage Stepson**\
 `Anne Arundel County police officers found Dasan Jones, 15, “unresponsive” in an attic crawl space, authorities said. The cause of death was asphyxiation.`\
-https://nytimes.com/2021/07/14/us/eric-banks-jr-baltimore-police.html?searchResultPosition=3
-
-**Texas Democrats meet with supportive senators on voting rights, seeking to sustain momentum.**\
-`State lawmakers from Texas said they had met with senators like Chuck Schumer and Elizabeth Warren as they try to pressure Congress to pass federal voting legislation.`\
-https://nytimes.com/live/2021/07/14/us/joe-biden-news/texas-democrats-voting-rights?searchResultPosition=4
+https://nytimes.com/2021/07/14/us/eric-banks-jr-baltimore-police.html?searchResultPosition=4
 
 **Your Thursday Briefing**\
 `Europe’s bold climate move.`\
