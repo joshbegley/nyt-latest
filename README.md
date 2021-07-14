@@ -19,8 +19,8 @@ https://nytimes.com/2021/07/14/business/media/remnant-fellowship-hbo-max-way-dow
 https://nytimes.com/2021/07/14/theater/dana-h-is-this-a-room-broadway.html?searchResultPosition=5
 
 **Britain’s annual inflation rate jumps to 2.5 percent, exceeding expectations.**\
-`The Consumer Price Index reached 2.5 percent in June, the fastest pace of increases since August 2018.`\
-https://nytimes.com/2021/07/14/business/britains-annual-inflation-rate-jumps-to-2-5-percent-exceeding-expectations.html?searchResultPosition=6
+`The pace was the fastest since August 2018, and the British pound and government bond yields rose in response.`\
+https://nytimes.com/2021/07/14/business/britain-inflation.html?searchResultPosition=6
 
 **$550,000 Homes in New Jersey, New York and Delaware**\
 `An English country cottage in Haworth, a two-bedroom co-op in Harlem and a stone mansion in Wilmington.`\
