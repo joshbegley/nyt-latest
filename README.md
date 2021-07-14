@@ -1,6 +1,6 @@
 **Death Toll From Texas Winter Storm Continues to Rise**\
 `Epidemiologists examining causes of deaths reported from Feb. 11 to March 5 have added 59 deaths to the storm’s toll, bringing it to 210.`\
-https://nytimes.com/2021/07/14/us/Texas-winter-storm-deaths.html?searchResultPosition=1
+https://nytimes.com/2021/07/14/us/texas-winter-storm-deaths.html?searchResultPosition=1
 
 **Modern Love Podcast: The Upside of Our Parents’ Divorce**\
 `Between parental standoffs and handoffs, these siblings formed an unshakable bond.`\
