@@ -1,6 +1,6 @@
 **Delta Air Lines reports its first profit since the start of the pandemic.**\
-`By Niraj Chokshi`\
-https://nytimes.com/2021/07/14/business/delta-air-lines-reports-its-first-profit-since-the-start-of-the-pandemic.html?searchResultPosition=1
+`Delta’s quarterly profit, which was buoyed by $1.5 billion in federal stimulus money, was still down 55 percent from the same quarter in 2019.`\
+https://nytimes.com/2021/07/14/business/delta-profit-pandemic.html?searchResultPosition=1
 
 **The Beauty Brands Cutting Down on Packaging**\
 `Increasingly, companies are promising to help you build a routine that is closer to being waste-free.`\
