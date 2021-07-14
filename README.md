@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/14/crosswords/crossword-puzzle-constructor-fenimore.
 https://nytimes.com/2021/07/14/us/politics/marijuana-legalization-schumer.html?searchResultPosition=4
 
 **Pope Francis Leaves Hospital After Colon Surgery**\
-`The pontiff underwent surgery on July 4, and the Vatican has described his recovery as normal.`\
+`The Vatican has described the pontiff’s recovery as normal after surgery on July 4.`\
 https://nytimes.com/2021/07/14/world/europe/pope-francis-leaves-hospital.html?searchResultPosition=5
 
 **Anti-Asian Attacks Continue as City Reopens**\
