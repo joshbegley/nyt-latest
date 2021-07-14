@@ -14,8 +14,8 @@ https://nytimes.com/2021/07/14/us/coronavirus-today-vaccines-delta.html?searchRe
 `The pop star with the No. 1 album in the country joined the Biden administration’s efforts to encourage the young and unvaccinated to get their shots.`\
 https://nytimes.com/2021/07/14/us/politics/olivia-rodrigo-biden-vaccines.html?searchResultPosition=4
 
-**Bleating Around the Bushes: Goats Chow Down at Riverside Park**\
-`Have you herd? After taking a break in 2020, goats have returned to Riverside Park to help fend off invasive plant species.`\
+**Have You Herd? The Goats Are Back at Riverside Park.**\
+`After taking a break last year, goats have returned to help fend off invasive plant species. New Yorkers can use ranked-choice voting to pick their favorites.`\
 https://nytimes.com/2021/07/14/nyregion/goats-riverside-park.html?searchResultPosition=5
 
 **‘We Can’t Get Out’: 911 Calls Capture Chaos and Fear After Condo Collapse**\
