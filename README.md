@@ -34,7 +34,7 @@ https://nytimes.com/2021/07/14/realestate/house-hunting-in-lithuania-wood-glass-
 `This modern four-bedroom house in a suburb of Vilnius, Lithuania, is on the market for $2.1 million.`\
 https://nytimes.com/slideshow/2021/07/14/realestate/a-modern-villa-with-a-private-lake-near-vilnius.html?searchResultPosition=9
 
-**Delta Air Lines reports its first profit since the start of the pandemic.**\
-`Delta’s quarterly profit, which was buoyed by $1.5 billion in federal stimulus money, was still down 55 percent from the same quarter in 2019.`\
-https://nytimes.com/2021/07/14/business/delta-profit-pandemic.html?searchResultPosition=10
+**See where wildfires are burning across the West.**\
+`Dozens of wildfires actively burning across the Western United States, charring large swaths of land in recent days.`\
+https://nytimes.com/2021/07/14/us/see-where-wildfires-are-burning-across-the-west.html?searchResultPosition=10
 
