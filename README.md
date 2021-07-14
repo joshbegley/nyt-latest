@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/14/us/politics/obamacare-signups.html?searchResultPo
 https://nytimes.com/2021/07/14/arts/dance/georgina-pazcoguin-swan-dive.html?searchResultPosition=2
 
 **Facebook plans to pay creators $1 billion to use its products.**\
-`The social network has been trying to pry influencers away from TikTok and YouTube.`\
+`Influencers will be able to earn money by using specific Facebook and Instagram features or by hitting certain milestones.`\
 https://nytimes.com/2021/07/14/technology/facebook-payments-creators.html?searchResultPosition=3
 
 **Legacy and Policy Mix as Merkel Takes a Bow in Washington**\
