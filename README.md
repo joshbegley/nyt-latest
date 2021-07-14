@@ -1,5 +1,5 @@
-**Drug Deaths Set Records Last Year, and It Wasn't Just Because of Covid**\
-`Overdose deaths rose nearly 30 percent in 2020, reaching 93,000, according to C.D.C. preliminary statistics.`\
+**Drug Deaths Set Records Last Year, and It Wasn’t Just Because of Covid**\
+`Overdose deaths reached a record of 93,000, according to C.D.C. preliminary statistics.`\
 https://nytimes.com/interactive/2021/07/14/upshot/drug-overdose-deaths.html?searchResultPosition=1
 
 **5 Summer Love Stories**\
