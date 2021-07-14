@@ -2,7 +2,7 @@
 `Senator Chuck Schumer, the majority leader, will offer draft legislation to remove marijuana from the list of controlled substances and begin regulating and taxing it.`\
 https://nytimes.com/2021/07/14/us/politics/marijuana-legalization-schumer.html?searchResultPosition=1
 
-**Pope Francis Leaves Hospital After Colon Surgery, Italian News Outlets Say**\
+**Pope Francis Leaves Hospital After Colon Surgery**\
 `The pontiff underwent surgery on July 4, and the Vatican has described his recovery as normal.`\
 https://nytimes.com/2021/07/14/world/europe/pope-francis-leaves-hospital.html?searchResultPosition=2
 
