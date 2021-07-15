@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/15/world/americas/haiti-president-security-chief-cus
 `Soho House will begin trading. All eyes are on whether stock market investors will sign up.`\
 https://nytimes.com/2021/07/15/business/dealbook/soho-house-ipo.html?searchResultPosition=5
 
-**The Fed chair will appear again before Congress, as inflation continues to rise.**\
+**The Fed chair will appear again before Congress as inflation continues to rise.**\
 `Jerome H. Powell acknowledged to a House committee on Wednesday that “the incoming inflation data have been higher than expected and hoped for.”`\
 https://nytimes.com/2021/07/15/business/economy/federal-reserve-inflation.html?searchResultPosition=6
 
