@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/15/business/car-sales-chip-shortage.html?searchResul
 `The $3.5 trillion blueprint under consideration in the Senate would deliver, at least temporarily, on the economic promise of a unified Washington run by Democrats.`\
 https://nytimes.com/2021/07/15/business/democrats-budget-biden-economic-agenda.html?searchResultPosition=6
 
-**‘Inflation Has Increased Notably,’ Fed Chairman Says**\
+**‘Inflation Has Increased Notably,’ Fed Chief Says**\
 `The Federal Reserve chair, Jerome H. Powell, testified to the House on the effects of the coronavirus on the economy and issues surrounding inflation as the financial sector recovers.`\
 https://nytimes.com/video/us/politics/100000007868389/federal-reserve-chair-powell-inflation-testify-before-congress.html?searchResultPosition=7
 
