@@ -1,4 +1,4 @@
-**Soho House Enters a Club of Its Own: The Stock Markets**\
+**Soho House Entering a Club of Its Own: The Stock Markets**\
 `The chain of exclusive clubs has lost money for its entire existence, but it pitched investors on plans for rapid growth and a pandemic-proof business.`\
 https://nytimes.com/2021/07/14/business/soho-house-ipo-valuation.html?searchResultPosition=1
 
