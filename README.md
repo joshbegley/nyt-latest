@@ -1,6 +1,6 @@
 **滴滴遭整改与数字柏林墙**\
 `滴滴在美国上市后遭遇中国监管部门“严打”，建在中美之间的“数字柏林墙”愈发坚固。这堵将中国互联网与世界其他地方分割开来的高墙还会存在多久？`\
-https://nytimes.com/2021/07/15/world/asia/didi-china-digital-berlin-wall.html?searchResultPosition=1
+https://nytimes.com/zh-hans/2021/07/15/world/asia/didi-china-digital-berlin-wall.html?searchResultPosition=1
 
 **In ‘Bach & Sons,’ a Composer Stares Down Death**\
 `The new play at the Bridge Theater in London and two other productions on the city’s stages examine characters facing the end.`\
