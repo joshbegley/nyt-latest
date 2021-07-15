@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/15/us/electric-shock-school.html?searchResultPositio
 https://nytimes.com/2021/07/15/movies/the-hidden-life-of-trees-review.html?searchResultPosition=4
 
 **In England, a Call to Tax Sugar and Salt**\
-`The tax on salt and sugar in processed and restaurant-made foods were among several measures proposed in a sweeping review into England’s food industry.`\
+`The tax on salt and sugar in processed and restaurant-made foods was among several measures proposed in a sweeping review into England’s food industry.`\
 https://nytimes.com/2021/07/15/world/europe/uk-england-sugar-salt-tax.html?searchResultPosition=5
 
 **Wearing a Head Scarf Can Be Grounds for Job Suspension, E.U.’s Top Court Rules**\
