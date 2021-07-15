@@ -14,7 +14,7 @@ https://nytimes.com/2021/07/15/technology/tech-workers-bay-area-back.html?search
 `Outdoor venues in and around the city are reliable resources for scary movies this summer. Here are our picks, for the squeamish and slasher-lover alike.`\
 https://nytimes.com/2021/07/15/movies/outdoor-horror-movies-new-york.html?searchResultPosition=4
 
-**Dutch Crime Reporter Dies Weeks After Being Shot Outside TV Studio**\
+**Dutch Crime Reporter Dies After Being Shot Outside TV Studio**\
 `Peter R. de Vries, who was shot in the head this month, “fought until the end,” his family said in a statement. Two suspects have been arrested.`\
 https://nytimes.com/2021/07/15/world/europe/peter-de-vries-dead-shooting.html?searchResultPosition=5
 
