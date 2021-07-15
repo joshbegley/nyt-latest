@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/15/business/jeep-80th-anniversary.html?searchResultP
 `What prompted the largest protests in Cuba in 30 years?`\
 https://nytimes.com/2021/07/15/podcasts/the-daily/cuba-protests.html?searchResultPosition=5
 
-**Deadly Flooding Rips Through Western Europe, Leaving Dozens Stranded**\
+**Flooding Kills at Least 22 in Western Europe**\
 `Strong rains caused rivers to burst their banks and overloaded sewage systems, sending water surging through towns in Germany. In Belgium, the Netherlands and Switzerland, water inundated streets and flooded homes.`\
 https://nytimes.com/2021/07/15/world/europe/flooding-germany-belgium-switzerland-netherlands.html?searchResultPosition=6
 
