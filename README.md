@@ -2,7 +2,7 @@
 `“We need to reconsider delegation of a lot of the things that are now done at the national level,” Mark Emmert told reporters on Thursday.`\
 https://nytimes.com/2021/07/15/sports/mark-emmert-ncaa-reorganize-supreme-court.html?searchResultPosition=1
 
-**Married Men Helped Lift Biden in 2020. How Will They Vote Going Forward?**\
+**Why Married Men Might Be an Overlooked but Crucial Voting Bloc**\
 `The gender gap is well known in politics. The marriage gap is more obscure — but could inform how campaigns think about key groups of voters in the next elections.`\
 https://nytimes.com/2021/07/15/us/politics/married-men-voters.html?searchResultPosition=2
 
