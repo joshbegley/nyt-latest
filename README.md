@@ -1,5 +1,5 @@
 **China’s Growth Slows as Pandemic Fears Persist**\
-`Growth in the world’s second-largest economy lost steam as consumers remained cautious and as more expensive raw materials weighed on factories.`\
+`Growth in the world’s second-largest economy lost steam as more expensive raw materials weighed on factories, though retail sales showed signs of stabilizing.`\
 https://nytimes.com/2021/07/14/business/chinas-economy-cooling.html?searchResultPosition=1
 
 **Soho House Entering a Club of Its Own: The Stock Markets**\
