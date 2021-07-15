@@ -1,4 +1,4 @@
-**As China’s Growth Slows, the World Should Take Note**\
+**China’s Growth Slows as Pandemic Fears Persist**\
 `Growth in the world’s second-largest economy lost steam as consumers remained cautious and as more expensive raw materials weighed on factories.`\
 https://nytimes.com/2021/07/14/business/chinas-economy-cooling.html?searchResultPosition=1
 
