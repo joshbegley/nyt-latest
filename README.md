@@ -7,8 +7,8 @@ https://nytimes.com/2021/07/15/technology/tech-workers-bay-area-back.html?search
 https://nytimes.com/2021/07/15/movies/outdoor-horror-movies-new-york.html?searchResultPosition=2
 
 **Dutch Crime Reporter Dies Weeks After Being Shot Outside TV Studio**\
-`Peter R. de Vries, who was shot in the head earlier this month, “fought until the end,” his family said in a statement. Two suspects have been arrested.`\
-https://nytimes.com/2021/07/15/world/europe/netherlands-crime-reporter-dies-shot.html?searchResultPosition=3
+`Peter R. de Vries, who was shot in the head this month, “fought until the end,” his family said in a statement. Two suspects have been arrested.`\
+https://nytimes.com/2021/07/15/world/europe/peter-de-vries-dead-shooting.html?searchResultPosition=3
 
 **Covid Surge Shuts Down West End Shows**\
 `Many London theaters are canceling performances, and people in the industry fear that more productions will have to close when England ends distancing and mask-wearing requirements next week.`\
