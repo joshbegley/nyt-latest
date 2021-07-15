@@ -31,7 +31,7 @@ https://nytimes.com/2021/07/15/world/europe/raffaella-carra-dead.html?searchResu
 https://nytimes.com/2021/07/15/briefing/haiti-infrastructure-san-francisco.html?searchResultPosition=8
 
 **How Worried Should You Be About Inflation?**\
-`By Spencer Bokat-Lindell`\
+`If you’ve had to scour the market lately for an affordable car or a new apartment lease, you may have noticed: Things are getting more expensive.`\
 https://nytimes.com/2021/07/15/opinion/inflation-biden-economy-climate.html?searchResultPosition=9
 
 **17 New York Arts Organizations Are Among Those Receiving $30 Million**\
