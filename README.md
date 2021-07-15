@@ -7,7 +7,7 @@ https://nytimes.com/video/world/americas/100000007868872/colombia-haiti-presiden
 https://nytimes.com/2021/07/15/style/jeremy-o-harris-zola.html?searchResultPosition=2
 
 **Work Injuries Tied to Heat Are Vastly Undercounted, Study Finds**\
-`Researchers compared injury reports to temperature records and found that the number of heat-related mishaps is probably many times higher than official data show.`\
+`Researchers compared injury reports to temperature records and found that injuries caused by extreme heat are probably many times higher than government data show.`\
 https://nytimes.com/2021/07/15/climate/heat-injuries.html?searchResultPosition=3
 
 **Cuomo to Be Questioned in Sexual Harassment Inquiry**\
