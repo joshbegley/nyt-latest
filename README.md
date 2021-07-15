@@ -23,7 +23,7 @@ https://nytimes.com/2021/07/14/health/cleveland-clinic-aduhelm.html?searchResult
 https://nytimes.com/2021/07/14/sports/horse-racing/bob-baffert-suspension-overturned.html?searchResultPosition=6
 
 **Democrats Call for a Tax on Imports From Polluting Countries**\
-`The party’s $3.5 trillion budget plan would include a first-ever carbon tariff, as well as a host of other climate actions.`\
+`The party’s $3.5 trillion budget plan would include a carbon tariff, as well as a host of other climate actions.`\
 https://nytimes.com/2021/07/14/climate/border-carbon-tax-united-states.html?searchResultPosition=7
 
 **The Battle Over State Voting Rights Is About the Future of Texas**\
