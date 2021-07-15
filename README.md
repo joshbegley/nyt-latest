@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/15/arts/design/bloomberg-philanthropies-tech-program
 `Officials took more than 12 hours to alert the public about the discharge, drawing a rebuke from environmental watchdogs and elected representatives.`\
 https://nytimes.com/2021/07/15/us/santa-monica-bay-sewage.html?searchResultPosition=2
 
-**Los Angeles County will require masks to be worn indoors to combat the spread of the Delta variant.**\
+**Los Angeles County will require masks to be worn indoors as Delta variant spreads.**\
 `Public health officials in the county had already been urging residents to wear masks indoors. The mandate will begin Saturday night, just before midnight.`\
 https://nytimes.com/2021/07/15/us/los-angeles-county-masks-delta-variant.html?searchResultPosition=3
 
