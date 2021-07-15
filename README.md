@@ -10,8 +10,8 @@ https://nytimes.com/2021/07/15/us/schumer-infrastructure.html?searchResultPositi
 `A sculpture at an exhibition in Milan provides a graphic reminder of the terror attacks. The Guggenheim Museum’s former chief curator said it may best be appreciated, for now, outside New York.`\
 https://nytimes.com/2021/07/15/arts/design/maurizio-cattelan-911-sculpture.html?searchResultPosition=3
 
-**California Woman Is Charged in Fake Covid-19 Vaccine Card Scheme**\
-`Juli Mazi, who identifies as a naturopathic doctor, also sold “immunization pellets” to patients, federal prosecutors said.`\
+**Homeopathic Doctor Is Charged With Selling Fake Covid-19 Vaccine Cards**\
+`Juli Mazi of Napa, Calif., also sold “immunization pellets” to patients, federal prosecutors said.`\
 https://nytimes.com/2021/07/15/us/julie-mazi-napa.html?searchResultPosition=4
 
 **Justice Breyer, under pressure to retire from the Supreme Court, says he has not decided on his future.**\
