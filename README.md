@@ -6,8 +6,8 @@ https://nytimes.com/video/world/americas/100000007868872/colombia-haiti-presiden
 `“Almost everyone I’ve met tells me it is their first time in a theater post-pandemic,” Mr. Harris said. “I want to do it in community.”`\
 https://nytimes.com/2021/07/15/style/jeremy-o-harris-zola.html?searchResultPosition=2
 
-**Heat Causes Many More Work Injuries Than Official Data Show, Study Finds**\
-`Researchers compared injury reports to temperature records and found that the number of heat-related mishaps is probably vastly underreported.`\
+**Work Injuries Tied to Heat Are Vastly Undercounted, Study Finds**\
+`Researchers compared injury reports to temperature records and found that the number of heat-related mishaps is probably many times higher than official data show.`\
 https://nytimes.com/2021/07/15/climate/heat-injuries.html?searchResultPosition=3
 
 **Cuomo to Be Questioned in Sexual Harassment Inquiry**\
