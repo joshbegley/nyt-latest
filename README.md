@@ -1,10 +1,10 @@
-**Red Flags Were Raised, but an Olympic Dream Was Dashed**\
-`Maya Wasowicz, a top karate fighter, was knocked out of qualifying under suspicious circumstances. A U.S.O.P.C. report backed up her claims, but Wasowicz still won’t be in Tokyo.`\
-https://nytimes.com/2021/07/16/sports/olympics/maya-wasowicz-karate.html?searchResultPosition=1
-
 **A Fashion Show That Pretty Much Was a Work of Art**\
 `Why Valentino couture in Venice was worth waiting for.`\
-https://nytimes.com/2021/07/16/style/valentino-couture-venice.html?searchResultPosition=2
+https://nytimes.com/2021/07/16/style/valentino-couture-venice.html?searchResultPosition=1
+
+**Red Flags Were Raised, but an Olympic Dream Was Dashed**\
+`Maya Wasowicz, a top karate fighter, was knocked out of qualifying under suspicious circumstances. A U.S.O.P.C. report backed up her claims, but Wasowicz still won’t be in Tokyo.`\
+https://nytimes.com/2021/07/16/sports/olympics/maya-wasowicz-karate.html?searchResultPosition=2
 
 **Regulators Feel Torn About Cryptocurrencies**\
 `Officials at the Federal Reserve and elsewhere debate the merits, or lack thereof, of digital assets.`\
