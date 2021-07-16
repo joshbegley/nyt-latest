@@ -27,7 +27,7 @@ https://nytimes.com/2021/07/16/nyregion/gig-workers-new-york-pandemic.html?searc
 https://nytimes.com/2021/07/16/podcasts/chess-grandmasters-vaccines-fox-news-narrated-articles.html?searchResultPosition=7
 
 **Ugandan Weight Lifter Missing in Japan Amid Olympic Lockdown**\
-`Julius Ssekitoleko, 20, an Olympic hopeful, failed to show up Friday for a required coronavirus test. Olympic organizers have ordered all participants to remain in a “bubble” to prevent the spread of the virus.`\
+`Julius Ssekitoleko, 20, an Olympic hopeful, failed to show up Friday for a required coronavirus test. Games organizers have ordered all participants to remain in a “bubble” to prevent the spread of the virus.`\
 https://nytimes.com/2021/07/16/world/asia/japan-uganda-missing-olympics.html?searchResultPosition=8
 
 **Europe’s economic outlook has been clouded by the Delta variant.**\
