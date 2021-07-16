@@ -1,40 +1,40 @@
-**A week before the Tokyo Olympics, a Covid bubble is put to the test.**\
-`As infections emerge among Games personnel, a leading newspaper says organizers’ plans to control the virus “are failing miserably.”`\
-https://nytimes.com/2021/07/16/world/tokyo-olympics-covid.html?searchResultPosition=1
+**‘Drive to Survive’ on Netflix Has Ignited Formula 1**\
+`The streaming series is filming its fourth season and is bringing new fans to the sport.`\
+https://nytimes.com/2021/07/16/sports/autoracing/drive-to-survive-netflix-formula-one.html?searchResultPosition=1
 
-**China Opened a National Carbon Market. Here’s Why it Matters.**\
-`The program may help China eventually curb greenhouse gas pollution. But making emissions markets work is tricky.`\
-https://nytimes.com/2021/07/16/business/energy-environment/china-carbon-market.html?searchResultPosition=2
+**Hart Island’s Last Stand**\
+`After years of study, the city has declared an emergency to bulldoze most of the buildings on the city’s potter’s field, without following the usual environmental review process.`\
+https://nytimes.com/2021/07/16/realestate/hart-island-planned-demolition.html?searchResultPosition=2
 
-**Jimmy Fallon: Trump Wanted a General With Coup Appeal**\
-`“You can tell a leader really knows his stuff when he uses the phrase ‘do a coup,’” Fallon said of Trump, who belittled a general for fearing he might try to stay in power.`\
-https://nytimes.com/2021/07/16/arts/television/jimmy-fallon-trump-coup.html?searchResultPosition=3
+**A History of Hart Island**\
+`Eighteen of the buildings on the island face demolition under an emergency order.`\
+https://nytimes.com/slideshow/2021/07/16/realestate/hart-island-ny.html?searchResultPosition=3
 
-**Jamia Wilson’s Inclusive Guide Is ‘Not Your Mama’s Feminism’**\
-`In “This Book Is Feminist,” for young readers, the former director of the Feminist Press sees a movement without borders — and talks about her hair.`\
-https://nytimes.com/2021/07/16/books/review/jamia-wilson-aurelia-durand-this-book-is-feminist.html?searchResultPosition=4
+**The Louvre’s Art Sleuth Is on the Hunt for Looted Paintings**\
+`Emmanuelle Polack is the face of the French museum’s efforts to return stolen works. But some discoveries have put her employer in an awkward situation.`\
+https://nytimes.com/2021/07/16/arts/design/louvre-art-sleuth-emmanuelle-polack.html?searchResultPosition=4
 
-**Thirteen Ways of Looking at Censorship**\
-`In “You Can’t Say That,” Leonard S. Marcus interviews 13 authors whose books for kids have been banned or challenged.`\
-https://nytimes.com/2021/07/16/books/review/you-cant-say-that-censorship-freedom-of-expression-leonard-marcus.html?searchResultPosition=5
+**Works From the Dorville Sale in the Louvre Collection**\
+`Drawings a museum curator bought at the Nice auction`\
+https://nytimes.com/slideshow/2021/07/16/arts/design/works-from-the-dorville-sale-in-the-louvre-collection.html?searchResultPosition=5
 
-**It Took Me a Long Time to Come Out as a ‘Plushie’ Lover**\
-`As the second wave of coronavirus battered us in India, my partner and I found solace and pride in our stuffed animals.`\
-https://nytimes.com/2021/07/16/style/it-took-me-a-long-time-to-come-out-as-a-plushie-lover.html?searchResultPosition=6
+**Building Solar Farms May Not Build the Middle Class**\
+`Some of the wealthiest companies in the world are investing in the green economy. But they’re not investing in paying union wages.`\
+https://nytimes.com/2021/07/16/business/economy/green-energy-jobs-economy.html?searchResultPosition=6
 
-**Biden and Merkel Work to Strengthen Ties**\
-`President Biden welcomed Chancellor Angela Merkel of Germany to the White House for a final time as the two leaders sought to demonstrate a strong bilateral relationship following the Trump presidency.`\
-https://nytimes.com/video/us/politics/100000007869259/merkle-biden-germany-white-house.html?searchResultPosition=7
+**How New York Waiters Got the Upper Hand**\
+`Chronically underpaid and undervalued, restaurant workers are now in high demand, and the power balance may be shifting for good.`\
+https://nytimes.com/2021/07/16/nyregion/big-city-waiter-shortage-restaurants.html?searchResultPosition=7
 
-**Your Friday Briefing**\
-`Disastrous flooding in Western Europe.`\
-https://nytimes.com/2021/07/15/briefing/europe-flooding-south-africa-violence.html?searchResultPosition=8
+**Can a Yarn Store Be a Place of Healing?**\
+`Crafting surged during the pandemic. But experts believe there are benefits to up-close-and-personal crafting that an online quilting class just can’t replicate.`\
+https://nytimes.com/2021/07/16/style/self-care/crafting-quilting-yarn-pandemic-business.html?searchResultPosition=8
 
-**Quotation of the Day: Biden to Revive Safeguards for a National Forest in Alaska**\
-`Quotation of the Day for Friday, July 16, 2021.`\
-https://nytimes.com/2021/07/15/todayspaper/quotation-of-the-day-biden-to-revive-safeguards-for-a-national-forest-in-alaska.html?searchResultPosition=9
+**What Ever Happened to IBM’s Watson?**\
+`IBM’s artificial intelligence was supposed to transform industries and generate riches for the company. Neither has panned out. Now, IBM has settled on a humbler vision for Watson.`\
+https://nytimes.com/2021/07/16/technology/what-ever-happened-to-ibms-watson.html?searchResultPosition=9
 
-**Corrections: July 16, 2021**\
-`Corrections that appeared in print on Friday, July 16, 2021.`\
-https://nytimes.com/2021/07/15/pageoneplus/corrections-july-16-2021.html?searchResultPosition=10
+**‘Welcome to the Mesh, Brother’: Guerrilla Wi-Fi Comes to New York**\
+`NYC Mesh, a band of a few dozen tech volunteers, takes on Verizon and the big “incumbent providers,” with the promise of inexpensive community internet.`\
+https://nytimes.com/2021/07/16/nyregion/nyc-mesh-community-internet.html?searchResultPosition=10
 
