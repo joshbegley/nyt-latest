@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/16/obituaries/rebecca-lee-crumpler-overlooked.html?s
 https://nytimes.com/2021/07/16/fashion/olivia-rodrigo-white-house-suit.html?searchResultPosition=5
 
 **How to Make My All-Purpose Green Sauce**\
-`You can put it on almost anything,  or use it as a dip.`\
+`You can put it on almost anything, or use it as a dip.`\
 https://nytimes.com/interactive/2021/07/16/dining/how-to-make-green-sauce.html?searchResultPosition=6
 
 **Clairo Takes a Defiant Leap on ‘Sling’**\
