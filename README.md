@@ -1,5 +1,5 @@
-**Hart Island Over the Years**\
-`A timeline of the many ways the island has been used since the 17th century.`\
+**Hart Island Timeline**\
+`A history of the many ways the island has been used over the years.`\
 https://nytimes.com/2021/07/16/realestate/hart-island-timeline.html?searchResultPosition=1
 
 **Health tips for coping with extreme heat.**\
