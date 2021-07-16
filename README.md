@@ -1,10 +1,10 @@
+**Where Democrats Agree**\
+`President Biden’s ambitious legislative agenda faces many hurdles. But Democrats appear notably unified for now.`\
+https://nytimes.com/2021/07/16/briefing/biden-democrats-legislature-infrastructure.html?searchResultPosition=1
+
 **She’s One of China’s Biggest Stars. She’s Also Transgender.**\
 `Jin Xing, the first person in China to openly undergo transition surgery, is a household name. But she says she’s no standard-bearer for the L.G.B.T.Q. community.`\
-https://nytimes.com/2021/07/16/world/asia/china-transgender-jin-xing.html?searchResultPosition=1
-
-**Devastation From Floods Spreads in Germany and Elsewhere, With Hundreds Missing**\
-`With scores already dead and the toll expected to rise, search-and-rescue efforts were hampered by communication and electrical outages, and more rain threatened already beleaguered regions.`\
-https://nytimes.com/2021/07/16/world/europe/floods-germany-belgium-europe.html?searchResultPosition=2
+https://nytimes.com/2021/07/16/world/asia/china-transgender-jin-xing.html?searchResultPosition=2
 
 **Abuse Inside Canada’s Residential Schools**\
 `Recently, the nation has had to confront one of its darkest chapters. We speak to a survivor of the state-sponsored maltreatment of Indigenous children.`\
