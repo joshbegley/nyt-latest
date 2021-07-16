@@ -1,5 +1,5 @@
 **Europe’s economic outlook has been clouded by the Delta variant.**\
-`Virus cases are surging, governments are returning to economic restrictions, and the post-pandemic recovery now seems further away.`\
+`Virus cases are surging, governments are returning to economic restrictions and the post-pandemic recovery now seems further away.`\
 https://nytimes.com/2021/07/16/business/europe-economy-delta-variant.html?searchResultPosition=1
 
 **‘Drive to Survive’ on Netflix Has Ignited Formula 1**\
