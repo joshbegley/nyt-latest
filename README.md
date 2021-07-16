@@ -20,7 +20,7 @@ https://nytimes.com/2021/07/16/us/missouri-duck-boat-deaths.html?searchResultPos
 
 **Why the New Monthly Child Tax Credit Is More Likely to Be Spent on Children**\
 `Money seems different when it shows up regularly, influencing not only how people use it, but also how they think about government aid.`\
-https://nytimes.com/2021/07/16/upshot/why-the-new-monthly-child-tax-credit-is-more-likely-to-be-spent-on-children.html?searchResultPosition=8
+https://nytimes.com/2021/07/16/upshot/child-tax-credit-spending.html?searchResultPosition=8
 
 **Barring Appeals, W.N.B.A.’s Nneka Ogwumike Will Miss the Olympics**\
 `Left off Team USA because of an injury and denied the chance to play for Nigeria, the Los Angeles Sparks star is hoping a last-minute appeal can revive her dream of competing for a gold medal.`\
