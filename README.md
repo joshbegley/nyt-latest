@@ -1,5 +1,5 @@
 **Retail sales rose in June in latest sign of economic recovery.**\
-`Sales of cars and car parts tumbled 2 percent thanks to a chip-shortage that’s hampered supplies, but spending on clothing, and at bars and restaurants, rose.`\
+`Sales of cars and car parts tumbled 2 percent thanks to a chip shortage that’s hampered supplies, but spending on clothing, and at bars and restaurants, rose.`\
 https://nytimes.com/2021/07/16/business/june-retail-sales.html?searchResultPosition=1
 
 **What It Was Like to Return to Guantánamo**\
