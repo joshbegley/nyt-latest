@@ -14,8 +14,8 @@ https://nytimes.com/2021/07/16/us/coronavirus-today.html?searchResultPosition=3
 `Cases, hospitalizations and deaths remain far below last winter’s peak, but the director urged people to get fully vaccinated.`\
 https://nytimes.com/2021/07/16/health/covid-delta-cdc-walensky.html?searchResultPosition=4
 
-**Judge Rules DACA Is Unlawful, Complicating the Fate of Dreamers**\
-`The ruling jeopardizes the legal status of hundreds of thousands of immigrants who were brought to the United States as children. They will for now retain the ability to stay in the country.`\
+**Judge Rules DACA Is Unlawful and Suspends Applications**\
+`The judge said President Barack Obama exceeded his authority when he created the program, but for now people protected under it will retain the ability to stay and work in the country.`\
 https://nytimes.com/2021/07/16/us/court-daca-dreamers.html?searchResultPosition=5
 
 **At the British Open, Tony Finau Shuts Out a Sense of Frustration**\
