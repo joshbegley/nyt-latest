@@ -1,5 +1,5 @@
 **Positive coronavirus tests halt the production of ‘Bridgerton’ in the U.K. twice in three days.**\
-`By Sarah Bahr`\
+`On Saturday, a spokeswoman for Netflix declined to say whether the test that caused the second halt was that of a cast member or a crew member.`\
 https://nytimes.com/2021/07/17/world/bridgerton-coronavirus.html?searchResultPosition=1
 
 **Biden’s Made Progress on Climate, Even if Activists Can’t See It**\
