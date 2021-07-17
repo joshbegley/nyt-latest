@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/17/world/Sajid-Javid-british-health-secretary-covid.
 `Emily Cox and Henry Rathvon concoct a culinary challenge.`\
 https://nytimes.com/2021/07/17/crosswords/variety-acrostic.html?searchResultPosition=2
 
-**In Undervaccinated Swaths of Arkansas, Covid Upends Life All Over Again**\
+**In Undervaccinated Arkansas, Covid Upends Life All Over Again**\
 `While much of the nation tiptoes toward normalcy, the coronavirus is again swamping hospitals in places like Mountain Home, in a rural county where fewer than one-third of residents are vaccinated.`\
 https://nytimes.com/2021/07/17/us/arkansas-covid-19-vaccine.html?searchResultPosition=3
 
