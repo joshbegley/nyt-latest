@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/17/sports/olympics/tokyo-games-scandal-bribes.html?s
 https://nytimes.com/2021/07/17/business/lebanon-salameh-fraud-investigation.html?searchResultPosition=4
 
 **As New York Reopens, It Looks for Culture to Lead the Way**\
-`The arts scene, from Broadway and nightclubs to museums and concert halls, is coming back to life after the pandemic shutdown. Getting it right will be vital to the city’s comeback.`\
+`The arts  —  Broadway, nightclubs, museums, concert halls — are coming back to life after the shutdown. Getting it right will be vital to the city’s comeback.`\
 https://nytimes.com/2021/07/17/arts/music/new-york-performing-arts-reopening.html?searchResultPosition=5
 
 **Democrats See Edge in Early Senate Map as Trump Casts Big Shadow**\
