@@ -16,7 +16,7 @@ https://nytimes.com/2021/07/17/sports/olympics/tokyo-games-scandal-bribes.html?s
 
 **As Lebanon Collapses, the Man With an Iron Grip on Its Finances Faces Questions**\
 `People can’t get their money from banks, the currency has crashed and Riad Salameh’s reign at the central bank is facing allegations of fraud.`\
-https://nytimes.com/2021/07/17/business/lebanon-salameh-fraud-investigation.html?searchResultPosition=5
+https://nytimes.com/2021/07/17/business/lebanon-riad-salameh.html?searchResultPosition=5
 
 **As New York Reopens, It Looks for Culture to Lead the Way**\
 `The arts  —  Broadway, nightclubs, museums, concert halls — are coming back to life after the shutdown. Getting it right will be vital to the city’s comeback.`\
