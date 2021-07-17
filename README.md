@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/17/business/lebanon-salameh-fraud-investigation.html
 https://nytimes.com/2021/07/17/arts/music/new-york-performing-arts-reopening.html?searchResultPosition=5
 
 **Democrats See Edge in Early Senate Map as Trump Casts Big Shadow**\
-`Early fund-raising totals provide Democrats cause for optimism in key states as Republicans split over how closely to align with Donald Trump’s preferences. But historical trends work against the party in power.`\
+`Early fund-raising has given Democrats cause for optimism in key states as Republicans split over how closely to align with Donald Trump’s preferences.`\
 https://nytimes.com/2021/07/17/us/politics/2022-senate-elections.html?searchResultPosition=6
 
 **Keith McNally Stirs the Pot**\
