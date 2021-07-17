@@ -1,5 +1,5 @@
 **6-Year-Old Girl Is Killed in Washington Shooting**\
-`Five adults were also wounded in the shooting late Friday night, the Metropolitan Police Department said.`\
+`The shooting in the nation’s capital on Friday night also left five adults wounded, according to the police, who gave few details.`\
 https://nytimes.com/2021/07/17/us/washington-dc-shooting.html?searchResultPosition=1
 
 **The Extent of Flooding in the Hardest-Hit Areas of Europe**\
