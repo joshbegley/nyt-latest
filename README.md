@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/16/arts/music/biz-markie-dead.html?searchResultPosit
 
 **‘They’re Killing People’? Biden Isn’t Quite Right, but He’s Not Wrong**\
 `Why the president says Facebook is endangering Americans.`\
-https://nytimes.com/2021/07/16/opinion/bidens-facebook-covid-vaccine.html?searchResultPosition=2
+https://nytimes.com/2021/07/16/opinion/biden-facebook-covid-vaccine.html?searchResultPosition=2
 
 **My Most Memorable Interview With a Residential School Survivor**\
 `A poet and educator talks about life in the former residential school near Kamloops as his First Nation looks at next steps.`\
