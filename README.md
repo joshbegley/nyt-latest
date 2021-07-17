@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/16/sports/baseball/toronto-blue-jays.html?searchResu
 `An innovative yet proudly goofy rapper, he had an unlikely crossover hit with a tune that led one critic to call him (favorably) “the father of modern bad singing.”`\
 https://nytimes.com/2021/07/16/arts/music/biz-markie-dead.html?searchResultPosition=5
 
-**‘They’re Killing People’? Biden Isn’t Quite Right, but He’s Not Wrong**\
+**‘They’re Killing People’? Biden Isn’t Quite Right, but He’s Not Wrong.**\
 `Why the president says Facebook is endangering Americans.`\
 https://nytimes.com/2021/07/16/opinion/biden-facebook-covid-vaccine.html?searchResultPosition=6
 
