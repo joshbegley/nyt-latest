@@ -24,7 +24,7 @@ https://nytimes.com/2021/07/17/arts/music/new-york-performing-arts-reopening.htm
 
 **Democrats See Edge in Early Senate Map as Trump Casts Big Shadow**\
 `Early fund-raising has given Democrats cause for optimism in key states as Republicans split over how closely to align with Donald Trump’s preferences.`\
-https://nytimes.com/2021/07/17/us/politics/2022-senate-elections.html?searchResultPosition=7
+https://nytimes.com/2021/07/17/us/politics/midterm-elections.html?searchResultPosition=7
 
 **Keith McNally Stirs the Pot**\
 `For decades the powerful restaurateur knew exactly how to keep people coming back to his downtown spots. Has he figured out a new formula?`\
