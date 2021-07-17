@@ -1,10 +1,10 @@
-**How One of the World’s Biggest Ships Jammed the Suez Canal**\
-`Four months after the megaship Ever Given got stuck in the canal, neither the canal nor the shipping industry has addressed some of the most critical issues that led to the grounding.`\
-https://nytimes.com/2021/07/17/world/middleeast/suez-canal-stuck-ship-ever-given.html?searchResultPosition=1
-
 **Back to Militias, the Chaotic Afghan Way of War**\
 `Concerned by the Taliban’s offensive, regional power brokers are again recruiting and arming volunteer militias. But some fear the quick fix will lead to a wider breakdown.`\
-https://nytimes.com/2021/07/17/world/asia/afghanistan-militias-taliban.html?searchResultPosition=2
+https://nytimes.com/2021/07/17/world/asia/afghanistan-militias-taliban.html?searchResultPosition=1
+
+**How One of the World’s Biggest Ships Jammed the Suez Canal**\
+`Four months after the megaship Ever Given got stuck in the canal, neither the canal nor the shipping industry has addressed some of the most critical issues that led to the grounding.`\
+https://nytimes.com/2021/07/17/world/middleeast/suez-canal-stuck-ship-ever-given.html?searchResultPosition=2
 
 **Let the Games … Be Gone?**\
 `After bidding scandals, human rights outrages, overburdened host cities, rampant cheating, a pandemic — and, sure, thrilling competitions — has the world had enough of the Olympics?`\
