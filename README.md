@@ -1,40 +1,40 @@
-**In Texas, Top Two Republicans Steer Ship of State Hard to the Right**\
-`Different in style and background, Gov. Greg Abbott and Lt. Gov. Dan Patrick have come together, for different reasons, to push an uncompromising conservative agenda.`\
-https://nytimes.com/2021/07/17/us/politics/texas-republicans-agenda.html?searchResultPosition=1
+**How One of the World’s Biggest Ships Jammed the Suez Canal**\
+`Four months after the megaship Ever Given got stuck in the canal, neither the canal nor the shipping industry has addressed some of the most critical issues that led to the grounding.`\
+https://nytimes.com/2021/07/17/world/middleeast/suez-canal-stuck-ship-ever-given.html?searchResultPosition=1
 
-**Two Rods and a ‘Sixth Sense’: In Drought, Water Witches are Swamped**\
-`Amid California’s drought, desperate landowners and managers are turning to those who practice an ancient, disputed method for locating water.`\
-https://nytimes.com/2021/07/17/us/california-drought-water-witch-dowser.html?searchResultPosition=2
+**Back to Militias, the Chaotic Afghan Way of War**\
+`Concerned by the Taliban’s offensive, regional power brokers are again recruiting and arming volunteer militias. But some fear the quick fix will lead to a wider breakdown.`\
+https://nytimes.com/2021/07/17/world/asia/afghanistan-militias-taliban.html?searchResultPosition=2
 
-**Miami Embraces Cuba Protests: ‘I Never Thought That This Day Would Come’**\
-`The giddy anticipation that real change might happen on the island is tempered by wariness, especially from older exiles, that this might be one more disappointment.`\
-https://nytimes.com/2021/07/17/us/miami-cuba-protests.html?searchResultPosition=3
+**Let the Games … Be Gone?**\
+`After bidding scandals, human rights outrages, overburdened host cities, rampant cheating, a pandemic — and, sure, thrilling competitions — has the world had enough of the Olympics?`\
+https://nytimes.com/2021/07/17/sports/olympics/tokyo-games-scandal-bribes.html?searchResultPosition=3
 
-**6-Year-Old Girl Is Killed in Washington Shooting**\
-`The shooting in the nation’s capital on Friday night also left five adults wounded, according to the police, who gave few details.`\
-https://nytimes.com/2021/07/17/us/washington-dc-shooting.html?searchResultPosition=4
+**As Lebanon Collapses, the Man With an Iron Grip on Its Finances Faces Questions**\
+`People can’t get their money from banks, the currency has crashed and Riad Salameh’s reign at the central bank is facing allegations of fraud.`\
+https://nytimes.com/2021/07/17/business/lebanon-salameh-fraud-investigation.html?searchResultPosition=4
 
-**The Extent of Flooding in the Hardest-Hit Areas of Europe**\
-`A preliminary analysis of satellite imagery shows wide areas of flooding along rivers in western Germany and neighboring countries.`\
-https://nytimes.com/interactive/2021/07/17/world/europe/europe-flood-map.html?searchResultPosition=5
+**As New York Reopens, It Looks for Culture to Lead the Way**\
+`The arts scene, from Broadway and nightclubs to museums and concert halls, is coming back to life after the pandemic shutdown. Getting it right will be vital to the city’s comeback.`\
+https://nytimes.com/2021/07/17/arts/music/new-york-performing-arts-reopening.html?searchResultPosition=5
 
-**A Free-Throw Expert’s Advice for Giannis: Just Shoot It**\
-`Giannis Antetokounmpo, the Milwaukee Bucks star, has frustrated fans and opponents with his drawn-out free-throw routine that often ends with a miss.`\
-https://nytimes.com/2021/07/17/sports/basketball/giannis-antetokounmpo-free-throws.html?searchResultPosition=6
+**Democrats See Edge in Early Senate Map as Trump Casts Big Shadow**\
+`Early fund-raising totals provide Democrats cause for optimism in key states as Republicans split over how closely to align with Donald Trump’s preferences. But historical trends work against the party in power.`\
+https://nytimes.com/2021/07/17/us/politics/2022-senate-elections.html?searchResultPosition=6
 
-**Corrections: July 17, 2021**\
-`Corrections that appeared in print on Saturday, July 17, 2021.`\
-https://nytimes.com/2021/07/16/pageoneplus/corrections-july-17-2021.html?searchResultPosition=7
+**Keith McNally Stirs the Pot**\
+`For decades the powerful restaurateur knew exactly how to keep people coming back to his downtown spots. Has he figured out a new formula?`\
+https://nytimes.com/2021/07/17/style/keith-mcnally-instagram-restaurants-wife-ghislaine-maxwell-graydon-carter.html?searchResultPosition=7
 
-**Quotation of the Day: With Limited Access to Global Vaccine Supply, Africa’s Crisis Deepens**\
-`Quotation of the Day for Saturday, July 17, 2021.`\
-https://nytimes.com/2021/07/16/todayspaper/quotation-of-the-day-with-limited-access-to-global-vaccine-supply-africas-crisis-deepens.html?searchResultPosition=8
+**How to Have a Fun, Multigenerational Family Vacation**\
+`Sometimes a trip with small children means the same chores in a different place. Here’s advice on how to make it a vacation.`\
+https://nytimes.com/2021/07/17/travel/multigenerational-family-vacation.html?searchResultPosition=8
 
-**They Go Around in Circles**\
-`The road to completion in a Ryan McCarty puzzle is rarely a straight line .`\
-https://nytimes.com/2021/07/16/crosswords/daily-puzzle-2021-07-17.html?searchResultPosition=9
+**Where Are the Fans for Israel’s National Baseball Team? In New York.**\
+`The Tokyo-bound Israeli national baseball team has more supporters in New York than in its home country.`\
+https://nytimes.com/2021/07/17/nyregion/israel-olympic-baseball-team.html?searchResultPosition=9
 
-**After a Winding Journey, the Blue Jays Will Return to Canada**\
-`The team has been granted an exception to resume play in Toronto on July 30, with restrictions in place to help prevent coronavirus outbreaks.`\
-https://nytimes.com/2021/07/16/sports/baseball/toronto-blue-jays.html?searchResultPosition=10
+**The New Magazines and Journals Shaping Africa’s Literary Scene**\
+`Lolwe, Doek and other digital publications are helping to amplify new voices from the continent.`\
+https://nytimes.com/2021/07/17/world/africa/lolwe-doek-africa-literary-magazines.html?searchResultPosition=10
 
