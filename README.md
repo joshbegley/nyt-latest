@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/17/world/middleeast/hospital-fires-outrage-iraqis-but-they-see-little-hope-for-change.html?searchResultPosition=1
 
 **Satellite Images Reveal Impact of European Floods**\
-`Floods in Europe have devastated towns in multiple countries. We used radar technology to look through the clouds at the damage below.`\
+`Towns in multiple countries have been devastated. We used radar technology to look through the clouds at the damage below.`\
 https://nytimes.com/video/world/europe/100000007871199/satellite-europe-floods.html?searchResultPosition=2
 
 **Should You Worry About Inflation? Experts Weigh In.**\
