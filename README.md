@@ -20,7 +20,7 @@ https://nytimes.com/2021/07/17/business/smallbusiness/foie-gras-lab-grown.html?s
 
 **Floods Thrust Climate Change to Center of German Campaign as Toll Mounts**\
 `With more than 160 dead across the region, the receding waters revealed extensive damage as well as deep political divides around how far and fast Germans should go to stem carbon use.`\
-https://nytimes.com/2021/07/17/world/europe/germany-floods-flooding-climate-change.html?searchResultPosition=6
+https://nytimes.com/2021/07/17/world/europe/germany-floods-climate-change.html?searchResultPosition=6
 
 **‘No One is Safe’: Extreme Weather Batters the Wealthy World**\
 `Floods swept Germany, fires ravaged the American West and another heat wave loomed, driving home the reality that the world’s richest nations remain unprepared for the intensifying consequences of climate change.`\
