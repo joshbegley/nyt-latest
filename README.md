@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/17/insider/working-empty-newsroom.html?searchResultP
 `Insurers were already skittish after losses from repeated hurricanes. The recent condo collapse has brought new insecurity. How long will Florida’s coast be insurable?`\
 https://nytimes.com/2021/07/17/us/miami-building-collapse-condo-sunnyside.html?searchResultPosition=5
 
-**Why We Crave Internet Justice**\
+**Why People Are So Awful Online**\
 `On social media, we are all hammers seeking nails.`\
 https://nytimes.com/2021/07/17/opinion/culture/social-media-cancel-culture-roxane-gay.html?searchResultPosition=6
 
