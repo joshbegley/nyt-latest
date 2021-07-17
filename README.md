@@ -20,7 +20,7 @@ https://nytimes.com/2021/07/17/world/middleeast/suez-canal-stuck-ship-ever-given
 
 **Let the Games … Be Gone?**\
 `After bidding scandals, human rights outrages, overburdened host cities, rampant cheating, a pandemic — and, sure, thrilling competitions — has the world had enough of the Olympics?`\
-https://nytimes.com/2021/07/17/sports/olympics/tokyo-games-scandal-bribes.html?searchResultPosition=6
+https://nytimes.com/2021/07/17/sports/olympics/tokyo-olympics.html?searchResultPosition=6
 
 **As Lebanon Collapses, the Man With an Iron Grip on Its Finances Faces Questions**\
 `People can’t get their money from banks, the currency has crashed and Riad Salameh’s reign at the central bank is facing allegations of fraud.`\
