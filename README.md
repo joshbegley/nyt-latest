@@ -16,7 +16,7 @@ https://nytimes.com/2021/07/17/world/middleeast/israel-saudi-khashoggi-hacking-n
 
 **Will a Swimming Pool Help or Hurt Your Property Value?**\
 `You might love the idea of a backyard pool, but not everyone else does, particularly in a part of the country where summers are relatively short.`\
-https://nytimes.com/2021/07/17/realestate/will-a-swimming-pool-help-or-hurt-your-property-value.html?searchResultPosition=5
+https://nytimes.com/2021/07/17/realestate/pool-property-value.html?searchResultPosition=5
 
 **As Frozen Land Burns, Siberia Trembles: ‘If We Don’t Have the Forest, We Don’t Have Life’**\
 `Northeastern Siberia is a place where people take Arctic temperatures in stride. But 100-degree days are another matter entirely.`\
