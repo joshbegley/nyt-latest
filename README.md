@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/17/insider/working-empty-newsroom.html?searchResultP
 
 **Collapse Raises New Fears About Florida’s Shaky Insurance Market**\
 `Insurers were already skittish after losses from repeated hurricanes. The recent condo collapse has brought new insecurity. How long will Florida’s coast be insurable?`\
-https://nytimes.com/2021/07/17/us/florida-collapse-insurance-climate.html?searchResultPosition=2
+https://nytimes.com/2021/07/17/us/miami-building-collapse-condo-sunnyside.html?searchResultPosition=2
 
 **Why We Crave Internet Justice**\
 `On social media, we are all hammers seeking nails.`\
