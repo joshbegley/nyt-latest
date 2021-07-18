@@ -1,5 +1,5 @@
-**Four Shot Outside Nationals Stadium in Washington**\
-`Fans poured out of the stadium in a scene of fear and confusion and a game between the Nationals and the Padres was halted in the sixth inning.`\
+**Nationals Game in Washington Is Halted After Shooting Outside Stadium**\
+`Fans poured out of Nationals Park in a scene of fear and confusion. The police said three people had been injured in a shootout.`\
 https://nytimes.com/2021/07/17/us/washington-nationals-shooting.html?searchResultPosition=1
 
 **Facebook Tells Biden: ‘Facebook Is Not the Reason’ Vaccination Goal Was Missed**\
