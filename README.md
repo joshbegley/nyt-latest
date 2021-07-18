@@ -1,4 +1,4 @@
-**Two Shot Outside Nationals Stadium in Washington**\
+**Four Shot Outside Nationals Stadium in Washington**\
 `Fans poured out of the stadium in a scene of fear and confusion and a game between the Nationals and the Padres was halted in the sixth inning.`\
 https://nytimes.com/2021/07/17/us/washington-nationals-shooting.html?searchResultPosition=1
 
