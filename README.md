@@ -30,8 +30,8 @@ https://nytimes.com/2021/07/18/movies/cannes-critic.html?searchResultPosition=7
 `The panel typically focuses on the Senate’s inner workings, but its chairwoman, Amy Klobuchar, is seeking to transform it into a major force on voting rights.`\
 https://nytimes.com/2021/07/18/us/politics/amy-klobuchar-rules-committee-voting.html?searchResultPosition=8
 
-**Collin Morikawa Wins the British Open**\
-`The American golfer, playing in the major tournament for the first time, finished at 15 under, two strokes ahead of Jordan Spieth.`\
+**Collin Morikawa Wins the British Open in His First Appearance**\
+`The American golfer played a flawless final round at Royal St. George’s, holding off all challengers to finish at 15 under, two strokes ahead of Jordan Spieth.`\
 https://nytimes.com/2021/07/18/sports/golf/british-open-collin-morikawa.html?searchResultPosition=9
 
 **Merkel Visits German Town Devastated by Flood**\
