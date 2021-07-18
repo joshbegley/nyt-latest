@@ -1,6 +1,6 @@
 **Los Angeles County’s mask mandate is in effect. Its sheriff has declined to enforce it.**\
-`By Sofie Karasek`\
-https://nytimes.com/2021/07/18/world/los-angeles-countys-mask-mandate-is-in-effect-its-sheriff-has-declined-to-enforce-it.html?searchResultPosition=1
+`With California fully reopened, it remains unclear how willing the public will be to pick up their masks again — especially with little enforcement.`\
+https://nytimes.com/2021/07/18/world/los-angeles-mask-sheriff.html?searchResultPosition=1
 
 **Can I Go to See This Show? Must I Wear a Mask? It Depends.**\
 `Vaccination and mask requirements vary by venue. It’s a weird pandemic summer for the performing arts.`\
