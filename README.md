@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/18/world/liz-cambage-olympics.html?searchResultPosit
 `Clean your refrigerator today. (It’ll make you feel better, promise.)`\
 https://nytimes.com/2021/07/18/dining/what-to-cook-this-week.html?searchResultPosition=8
 
-**Cannabis Was Domesticated in East Asia, New Study Suggests**\
+**Where Does Weed Come From? A New Study Suggests East Asia.**\
 `A group of biologists and other scientists said humans began growing cannabis about 12,000 years ago not just for food, but also for hemp and, yes, probably to get high.`\
 https://nytimes.com/2021/07/18/science/weed-asia-marijuana-cannabis.html?searchResultPosition=9
 
