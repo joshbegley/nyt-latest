@@ -16,7 +16,7 @@ https://nytimes.com/2021/07/18/world/los-angeles-mask-sheriff.html?searchResultP
 
 **Can I Go to See This Show? Must I Wear a Mask? It Depends.**\
 `Vaccination and mask requirements vary by venue. It’s a weird pandemic summer for the performing arts.`\
-https://nytimes.com/2021/07/18/arts/can-i-go-to-see-this-show-must-i-wear-a-mask-it-depends.html?searchResultPosition=5
+https://nytimes.com/2021/07/18/theater/can-i-go-to-see-this-show-must-i-wear-a-mask-it-depends.html?searchResultPosition=5
 
 **‘If They Don’t Approve It, It’s Over’**\
 `A vote on Tuesday could be the final straw that pushes the Athletics out of Oakland. For a nomadic team that has moved twice before, everything old is new again.`\
