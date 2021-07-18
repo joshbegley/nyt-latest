@@ -36,5 +36,5 @@ https://nytimes.com/2021/07/18/world/europe/germany-floods-merkel.html?searchRes
 
 **Boris Johnson to Self-Isolate, Reversing Plan to Enter N.H.S. Pilot Program**\
 `The British prime minister and his top finance official were “pinged” by the health service’s test-and-trace app as contacts of the health minister, who has tested positive for the coronavirus.`\
-https://nytimes.com/2021/07/18/world/europe/boris-johnson-rishi-sunak-covid-isolation.html?searchResultPosition=10
+https://nytimes.com/2021/07/18/world/europe/boris-johnson-covid-quarantine.html?searchResultPosition=10
 
