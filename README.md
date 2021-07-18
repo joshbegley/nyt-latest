@@ -1,4 +1,4 @@
-**Prosecutors Ask Judge to Wipe From Record Information Gained From Torture**\
+**Prosecutors Ask Judge to Strike Information Gained From Torture**\
 `The prosecutors’ use of information from a brutal interrogation had troubled Biden administration lawyers and was a source of tension with the chief prosecutor at Guantánamo Bay, who will retire soon.`\
 https://nytimes.com/2021/07/17/us/politics/guantanamo-cia-torture.html?searchResultPosition=1
 
