@@ -1,6 +1,6 @@
 **Steal and Alley-Oop Leave Bucks One Win From an N.B.A. Title**\
 `Jrue Holiday’s daring decisions sealed a victory for Milwaukee in Game 5, giving the Bucks a 3-2 series lead over the Phoenix Suns.`\
-https://nytimes.com/2021/07/18/sports/basketball/nba-finals-bucks-suns-game-5.html?searchResultPosition=1
+https://nytimes.com/2021/07/18/sports/basketball/bucks-jrue-holiday-giannis.html?searchResultPosition=1
 
 **Olympics Organizers Report First Virus Cases in Athletes’ Village**\
 `Officials for the Tokyo Olympic Games defended their safety protocols after reporting three coronavirus cases within the athletes’ village. Other cases related to the event have been reported outside the village.`\
