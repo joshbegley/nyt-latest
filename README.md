@@ -2,7 +2,7 @@
 `Her efforts to refocus the movement on economic justice made her a bridge between more moderate leaders and Black Power activism.`\
 https://nytimes.com/2021/07/18/obituaries/gloria-richardson-dead.html?searchResultPosition=1
 
-**finWhat Is Flash Flooding, and How Can You Avoid It?**\
+**What Is Flash Flooding, and How Can You Avoid It?**\
 `Eighty-eight people die on average each year in the United States as a result of sudden flooding that follows heavy rainstorms, the National Weather Service said.`\
 https://nytimes.com/article/flash-flood-safety-tips.html?searchResultPosition=2
 
