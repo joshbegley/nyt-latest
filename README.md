@@ -12,7 +12,7 @@ https://nytimes.com/2021/07/18/opinion/merrick-garland-mo-brooks-capitol-attack.
 
 **‘They Just Left Us’: Greece Is Accused of Setting Migrants Adrift at Sea**\
 `Frustrated by more than a year of picking up people they say Greece has illegally pushed out, Turkish officials invited journalists to witness rescues firsthand.`\
-https://nytimes.com/2021/07/18/world/europe/greece-migrants-turkey-adrift.html?searchResultPosition=4
+https://nytimes.com/2021/07/18/world/europe/greece-migrants.html?searchResultPosition=4
 
 **Neighbor Helping Neighbor, German Volunteers Lead Flood Recovery**\
 `‘‘The cleanup will be a few weeks,’’ one said. But it will take months to check buildings and bridges to make sure they are sound, and many will have to be destroyed.`\
