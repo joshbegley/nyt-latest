@@ -1,6 +1,6 @@
 **Historically Black Colleges Finally Get the Spotlight**\
 `There are star hirings and hundreds of millions in donations. But not every institution is sharing in the bounty, and some are struggling to survive.`\
-https://nytimes.com/2021/07/18/us/politics/HBCU-colleges.html?searchResultPosition=1
+https://nytimes.com/2021/07/18/us/HBCU-colleges.html?searchResultPosition=1
 
 **Elegy for a Heartbroken Medalist**\
 `Japan celebrated Kokichi Tsuburaya when he won bronze in the 1964 Olympic marathon in Tokyo. But he died believing he had let his country down.`\
