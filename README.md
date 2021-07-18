@@ -1,4 +1,4 @@
-**Steal and Alley-Oop Leave Bucks One Game From an N.B.A. Title**\
+**Steal and Alley-Oop Leave Bucks One Win From an N.B.A. Title**\
 `Jrue Holiday’s daring decisions sealed a victory for Milwaukee in Game 5, giving the Bucks a 3-2 series lead over the Phoenix Suns.`\
 https://nytimes.com/2021/07/18/sports/basketball/nba-finals-bucks-suns-game-5.html?searchResultPosition=1
 
