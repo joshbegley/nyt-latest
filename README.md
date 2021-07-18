@@ -1,5 +1,5 @@
 **Collin Morikawa Wins the British Open**\
-`The American golfer, playing in the major tournament for the first time, finished at 15-under, two strokes ahead of Jordan Spieth.`\
+`The American golfer, playing in the major tournament for the first time, finished at 15 under, two strokes ahead of Jordan Spieth.`\
 https://nytimes.com/2021/07/18/sports/golf/british-open-collin-morikawa.html?searchResultPosition=1
 
 **Merkel Visits German Town Devastated by Flood**\
