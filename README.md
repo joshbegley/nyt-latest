@@ -12,7 +12,7 @@ https://nytimes.com/2021/07/19/arts/music/popcast-doja-cat-tyler-the-creator.htm
 
 **A Prospect Is the First N.H.L. Player to Announce He’s Gay**\
 `Luke Prokop, who is under contract with the Nashville Predators, said he was “no longer scared to hide who I am.”`\
-https://nytimes.com/2021/07/19/sports/hockey/a-prospect-is-the-first-nhl-player-to-announce-hes-gay.html?searchResultPosition=4
+https://nytimes.com/2021/07/19/sports/hockey/luke-prokop-nhl-announces-gay.html?searchResultPosition=4
 
 **Reading the Zoom Tea Leaves**\
 `Companies are starting to make big bets on how we’ll all behave after the pandemic ends.`\
