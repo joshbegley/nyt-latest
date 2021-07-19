@@ -26,7 +26,7 @@ https://nytimes.com/2021/07/19/technology/what-china-expects-from-businesses-tot
 `Tsinghua Unigroup, a would-be microchip champion, is facing bankruptcy, a setback in China’s quest for semiconductor self-reliance.`\
 https://nytimes.com/2021/07/19/technology/china-microchips-tsinghua-unigroup.html?searchResultPosition=7
 
-**In Washington, Two Shootings Leave a Community on Edge**\
+**Two Shootings in Washington Leave a Community on Edge**\
 `Separate eruptions of gun violence killed a 6-year-old girl and sent panicked baseball fans at Nationals Park scrambling for cover.`\
 https://nytimes.com/2021/07/18/us/nyiah-courtney-shooting-nationals-washington-dc.html?searchResultPosition=8
 
