@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/19/business/robinhood-ipo.html?searchResultPosition=
 `A court battle has begun over the state’s effort to turn its citizenry into an anti-abortion Stasi. `\
 https://nytimes.com/2021/07/19/opinion/texas-abortion-law-reward.html?searchResultPosition=6
 
-**U.S. Will Formally Accuse China of Hacking Microsoft**\
+**U.S. Formally Accuses China of Hacking Microsoft**\
 `The Biden administration is also expected to organize a broad group of allies to condemn Beijing for cyberattacks around the world, but stop short of taking concrete punitive steps.`\
 https://nytimes.com/2021/07/19/us/politics/microsoft-hacking-china-biden.html?searchResultPosition=7
 
