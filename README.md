@@ -7,8 +7,8 @@ https://nytimes.com/2021/07/20/opinion/eric-adams-nyc-mayor.html?searchResultPos
 https://nytimes.com/2021/07/20/us/miami-surfside-collapse-infrastructure.html?searchResultPosition=2
 
 **Poland sends home six swimmers after mistakenly bringing too many.**\
-`By Andrew Das`\
-https://nytimes.com/2021/07/20/sports/olympics/poland-sends-home-six-swimmers-after-mistakenly-bringing-too-many.html?searchResultPosition=3
+`The country selected 23 athletes but had to pare its list to 17 because of qualifying rules. One swimmer railed against the “incompetent people” leading the Polish swimming federation.`\
+https://nytimes.com/2021/07/20/sports/olympics/poland-swimmers-home-tokyo.html?searchResultPosition=3
 
 **China Breached Dozens of Pipeline Companies in Past Decade, U.S. Says**\
 `The disclosure about the breadth of state-sponsored cyberattacks was part of a warning to pipeline owners to increase the security of their systems to stave off future intrusions.`\
