@@ -1,40 +1,40 @@
-**The Invisible Hand Behind the Tokyo Olympics**\
-`Dentsu, an advertising giant hard-wired into major Japanese institutions, stood to be Japan’s biggest winner of this year’s Games. But the pandemic has played havoc with those plans.`\
-https://nytimes.com/2021/07/20/business/tokyo-olympics-dentsu.html?searchResultPosition=1
+**Power Game: Thomas Bach’s Iron Grip on the Olympics**\
+`How a former fencer wielded diplomacy and guile to drag the Games across the finish line, even in a pandemic, like it or not.`\
+https://nytimes.com/2021/07/20/sports/thomas-bach-tokyo-olympics.html?searchResultPosition=1
 
-**Caring for the Wildlife That Stray Into the Suburbs**\
-`It’s baby-animal season in the towns north of New York. But with many of the mothers gone missing, humans are stepping in to help out.`\
-https://nytimes.com/2021/07/20/science/suburbs-wildlife-deer-owls.html?searchResultPosition=2
+**‘Virtue,’ by Hermione Hoby: An Excerpt**\
+`An excerpt from “Virtue,” by Hermione Hoby`\
+https://nytimes.com/2021/07/20/books/review/virtue-by-hermione-hoby-an-excerpt.html?searchResultPosition=2
 
-**Can A.I. Grade Your Next Test?**\
-`Neural networks could give online education a boost by providing automated feedback to students.`\
-https://nytimes.com/2021/07/20/technology/ai-education-neural-networks.html?searchResultPosition=3
+**‘What Strange Paradise,’ by Omar El Akkad: An Excerpt**\
+`An excerpt from “What Strange Paradise,” by Omar El Akkad`\
+https://nytimes.com/2021/07/20/books/review/what-strange-paradise-by-omar-el-akkad-an-excerpt.html?searchResultPosition=3
 
-**Late Night Jumps on Olympic Athletes’ Cardboard Beds**\
-`“That’s nice, you finally reach your Olympic dreams and have to sleep on an Amazon box,” Jimmy Fallon joked on Monday.`\
-https://nytimes.com/2021/07/20/arts/television/jimmy-fallon-olympics-anti-sex-beds.html?searchResultPosition=4
+**She Said She Married for Love. Her Parents Called It Coercion.**\
+`After a woman, who was born a Sikh, married a Muslim man, her parents accused him of kidnapping. Now, new laws across India are seeking to ban all interfaith marriages.`\
+https://nytimes.com/2021/07/20/world/india-interfaith-marriage.html?searchResultPosition=4
 
-**Virgil Abloh Gets a Seat at the LVMH Power Table**\
-`The luxury group has bought a majority stake in Off-White and given its founder license to shake up more than just fashion. And he’s got skin in the game.`\
-https://nytimes.com/2021/07/20/style/virgil-abloh-lvmh-off-white.html?searchResultPosition=5
+**One Chef, One Roof, Many Menus**\
+`There’s Mark’s the lox-and-bagel place, Mark’s the refined coffee shop and Mark’s the Italian restaurant. Our critic tries them all.`\
+https://nytimes.com/2021/07/20/dining/marks-off-madison-review.html?searchResultPosition=5
 
-**South Korea’s Golden Archers**\
-`For the country’s hypercompetitive archers, getting to the Olympics may be harder than winning gold once they’re there.`\
-https://nytimes.com/2021/07/20/sports/olympics/korea-archery-tokyo-olympics.html?searchResultPosition=6
+**Learning to Love G.M.O.s**\
+`Overblown fears have turned the public against genetically modified food. But the potential benefits have never been greater.`\
+https://nytimes.com/2021/07/20/magazine/gmos.html?searchResultPosition=6
 
-**Your Tuesday Briefing**\
-`Flooding death toll hits 196.`\
-https://nytimes.com/2021/07/19/briefing/flooding-europe-coronavirus-olympics.html?searchResultPosition=7
+**After Two Decades at Barneys, Mark Strausman Moves South**\
+`In Mark’s Off Madison, the chef of Freds, Campagna, Coco Pazzo and other restaurants brings his diverse repertory to Madison Square Park.`\
+https://nytimes.com/slideshow/2021/07/20/dining/after-two-decades-at-barneys-mark-strausman-moves-south.html?searchResultPosition=7
 
-**2 Rockets Fired at Israel From Lebanon, Setting Off Sirens in North**\
-`One of the rockets was shot down by missile defenses and the other landed in open area, causing no damage, Israel’s military said.`\
-https://nytimes.com/2021/07/19/world/middleeast/Israel-lebanon-rockets-fired.html?searchResultPosition=8
+**Constant but Camouflaged, Flurry of Cyberattacks Offer Glimpse of New Era**\
+`Once imagined as a new kind of warfare, government-linked hacking has instead become a widespread and perhaps permanent feature of the global order.`\
+https://nytimes.com/2021/07/20/world/global-cyberattacks.html?searchResultPosition=8
 
-**How an Unproven Alzheimer’s Drug Got Approved**\
-`Though some of its own senior officials said there was little evidence of benefit for patients, the F.D.A. nonetheless greenlighted Biogen’s Aduhelm, or aducanumab.`\
-https://nytimes.com/2021/07/19/health/alzheimers-drug-aduhelm-fda.html?searchResultPosition=9
+**A House Race in Cleveland Captures the Democrats’ Generational Divide**\
+`Nina Turner’s move from Bernie Sanders’s campaign co-chairwoman to House candidate has highlighted a Democratic divide between impatient young activists and cautious older voters.`\
+https://nytimes.com/2021/07/20/us/politics/nina-turner.html?searchResultPosition=9
 
-**It’s a Long Story**\
-`Sam Buchbinder sticks the landing.`\
-https://nytimes.com/2021/07/19/crosswords/daily-puzzle-2021-07-20.html?searchResultPosition=10
+**‘Game Over’: Food Carts Adjust to a Changed City**\
+`For thousands of food truck operators and cart vendors in New York, the ability to make meaningful profits depends on large numbers of workers returning to the office.`\
+https://nytimes.com/2021/07/20/business/new-york-food-trucks-office-workers.html?searchResultPosition=10
 
