@@ -2,7 +2,7 @@
 `The Blue Origin crew included four passengers who had fun during the short flight, playing with Skittles and experimenting with gravity.`\
 https://nytimes.com/video/us/100000007875937/jeff-bezos-blue-origin-flight-launch.html?searchResultPosition=1
 
-**Biden is expected to name a foe of Big Tech to head the Department of Justice’s antitrust division.**\
+**Biden named a foe of Big Tech to head the Department of Justice’s antitrust division.**\
 `Jonathan Kanter, a longtime antitrust lawyer, has built his career largely around working for the rivals of Google, Facebook, Amazon and Apple.`\
 https://nytimes.com/2021/07/20/business/kanter-doj-antitrust.html?searchResultPosition=2
 
