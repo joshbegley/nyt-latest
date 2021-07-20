@@ -1,4 +1,4 @@
-**Delta Variant Accounts for 83% of Covid-19 Cases**\
+**Delta Variant Accounts for 83% of Virus Cases**\
 `Health officials testified before the Senate that the highly transmissible Delta variant of the coronavirus was spreading rapidly across the country, particularly in areas with low levels of vaccinations.`\
 https://nytimes.com/video/us/politics/100000007876209/senate-hearing-delta-variant.html?searchResultPosition=1
 
