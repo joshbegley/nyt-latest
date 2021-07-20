@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/20/us/politics/republican-lawsuit-pelosi-proxy-votin
 
 **Thomas Barrack, Trump Fund-raiser, Indicted on Lobbying Charge**\
 `Mr. Barrack, who served as chairman of Donald Trump’s inaugural committee, was accused in the Eastern District of New York of failing to register as a lobbyist for the United Arab Emirates.`\
-https://nytimes.com/2021/07/20/us/thomas-barrack-trump-fund-raiser-indicted-on-lobbying-charge.html?searchResultPosition=2
+https://nytimes.com/2021/07/20/us/thomas-barrack-trump-indicted.html?searchResultPosition=2
 
 **National Endowment for the Arts Announces Jazz Masters**\
 `Its 2022 class includes the bassist Stanley Clarke, the drummer Billy Hart, the vocalist Cassandra Wilson and the saxophonist Donald Harrison Jr.`\
