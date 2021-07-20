@@ -30,11 +30,11 @@ https://nytimes.com/2021/07/20/science/what-jeff-bezos-and-crew-wore-to-space.ht
 `Accusations of hacking and other moves by the Biden administration have surprised and angered China’s leaders, who are pushing back with punitive actions and vitriol of their own.`\
 https://nytimes.com/2021/07/20/world/asia/china-biden.html?searchResultPosition=8
 
+**A missing Ugandan Olympic weight lifter has been found.**\
+`Julius Ssekitoleko, who did not make his country’s Olympic squad, found by the police in a town about 100 miles away.`\
+https://nytimes.com/2021/07/20/sports/olympics/ugandan-weight-lifter-found.html?searchResultPosition=9
+
 **A Renewal for IBM Campuses Once Home to Punch Cards and Circuit Boards**\
 `When Big Blue left upstate New York, economic pain ensued. But the large complexes left behind are ideally suited for large-scale production and shipping, local officials say.`\
-https://nytimes.com/2021/07/20/business/ibm-campuses-new-york.html?searchResultPosition=9
-
-**How to Throw a Perfect Summer Picnic**\
-`Never before have so many restaurants offered food to go. Here, a guide to what to pick up and what to pack it in, plus two easy recipes for dining al fresco.`\
-https://nytimes.com/2021/07/20/t-magazine/summer-picnic-guide.html?searchResultPosition=10
+https://nytimes.com/2021/07/20/business/ibm-campuses-new-york.html?searchResultPosition=10
 
