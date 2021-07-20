@@ -1,40 +1,40 @@
+**Open for Business**\
+`How hard work, creativity and community support helped three small businesses overcome the pandemic.`\
+https://nytimes.com/paidpost/wells-fargo/open-for-business.html?searchResultPosition=1
+
+**Highlights From Blue Origin’s Spaceflight**\
+`Blue Origin’s first flight to space with humans onboard included the billionaire Jeff Bezos, his brother Mark Bezos, Wally Funk and Oliver Daemen. The team traveled more than 60 miles above Earth.`\
+https://nytimes.com/video/us/100000007875446/highlights-from-blue-origins-spaceflight.html?searchResultPosition=2
+
+**Biden to welcome the Tampa Bay Buccaneers, 2021 Super Bowl champions, to the White House.**\
+`Tom Brady, the Buccaneers quarterback, has not said if he plans to attend.`\
+https://nytimes.com/2021/07/20/us/politics/biden-tampa-bay-buccaneers-tom-brady.html?searchResultPosition=3
+
 **Bezos Launches to Space, Aiming to Reignite His Rocket Company’s Ambitions**\
 `The Amazon founder and three others lifted off in Blue Origin’s New Shepard spacecraft, fulfilling a goal more than 20 years in the making.`\
-https://nytimes.com/2021/07/20/science/bezos-blue-origin-space.html?searchResultPosition=1
+https://nytimes.com/2021/07/20/science/bezos-blue-origin-space.html?searchResultPosition=4
 
 **Summer Reading Contest Winner Week 4: On ‘The Psychology Behind Sibling Rivalry’**\
 `Thank you to the teenagers who participated this week, and congratulations to our winner, Maggie Liu, as well as our many runners-up and honorable mentions.`\
-https://nytimes.com/2021/07/20/learning/summer-reading-contest-winner-week-4-on-the-psychology-behind-sibling-rivalry.html?searchResultPosition=2
+https://nytimes.com/2021/07/20/learning/summer-reading-contest-winner-week-4-on-the-psychology-behind-sibling-rivalry.html?searchResultPosition=5
 
 **Hollywood studios can mandate that everyone on a set be vaccinated.**\
 `A deal with the industry’s major unions will also relax pandemic protocols, including decreasing the rate of regular coronavirus testing.`\
-https://nytimes.com/2021/07/20/business/hollywood-unions-pandemic-rules.html?searchResultPosition=3
+https://nytimes.com/2021/07/20/business/hollywood-unions-pandemic-rules.html?searchResultPosition=6
 
 **What Jeff Bezos and crew wore to space.**\
 `By Neil Vigdor`\
-https://nytimes.com/2021/07/20/science/what-jeff-bezos-and-crew-wore-to-space.html?searchResultPosition=4
+https://nytimes.com/2021/07/20/science/what-jeff-bezos-and-crew-wore-to-space.html?searchResultPosition=7
 
 **To China, Trump Was Bad. Biden Seems Even Worse.**\
 `Accusations of hacking and other moves by the Biden administration have surprised and angered China’s leaders, who are pushing back with punitive actions and vitriol of their own.`\
-https://nytimes.com/2021/07/20/world/asia/china-biden.html?searchResultPosition=5
+https://nytimes.com/2021/07/20/world/asia/china-biden.html?searchResultPosition=8
 
 **A Renewal for IBM Campuses Once Home to Punch Cards and Circuit Boards**\
 `When Big Blue left upstate New York, economic pain ensued. But the large complexes left behind are ideally suited for large-scale production and shipping, local officials say.`\
-https://nytimes.com/2021/07/20/business/ibm-campuses-new-york.html?searchResultPosition=6
+https://nytimes.com/2021/07/20/business/ibm-campuses-new-york.html?searchResultPosition=9
 
 **How to Throw a Perfect Summer Picnic**\
 `Never before have so many restaurants offered food to go. Here, a guide to what to pick up and what to pack it in, plus two easy recipes for dining al fresco.`\
-https://nytimes.com/2021/07/20/t-magazine/summer-picnic-guide.html?searchResultPosition=7
-
-**Inside Rosita Missoni’s Villa at the Foot of the Italian Alps**\
-`The 90-year-old co-founder of the storied fashion label gives T a tour of her art- and heirloom-filled home.`\
-https://nytimes.com/2021/07/20/t-magazine/rosita-missoni-home-design.html?searchResultPosition=8
-
-**Recent Commercial Real Estate Transactions**\
-`Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2021/07/20/business/new-york-commercial-real-estate.html?searchResultPosition=9
-
-**‘Space Jam,’ My Dad and Me**\
-`A writer adored the basketball-Looney Tunes mash-up as a boy. Watching the movie again after his father died, he felt the movie resonate in a surprisingly deeper way.`\
-https://nytimes.com/2021/07/20/movies/space-jam-michael-jordan.html?searchResultPosition=10
+https://nytimes.com/2021/07/20/t-magazine/summer-picnic-guide.html?searchResultPosition=10
 
