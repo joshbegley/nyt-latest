@@ -1,6 +1,6 @@
 **The Delta variant makes up an estimated 83 percent of U.S. cases, the C.D.C. director says.**\
 `New coronavirus cases have been rising across the United States, though cases, hospitalizations and deaths remain a fraction of their peaks and vaccines are effective against the Delta variant.`\
-https://nytimes.com/2021/07/20/us/politics/delta-cases-united-states.html?searchResultPosition=1
+https://nytimes.com/2021/07/20/us/politics/delta-variant-usa.html?searchResultPosition=1
 
 **‘There Will Be Breakthrough Cases,’ Psaki Says**\
 `White House officials confirmed that a staff member tested positive for the coronavirus, in a breakthrough case after vaccination. The White House press secretary Jen Psaki said that precautions were in place to protect the president.`\
