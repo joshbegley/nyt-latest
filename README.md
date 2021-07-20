@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/19/health/alzheimers-drug-aduhelm-fda.html?searchRes
 
 **It’s a Long Story**\
 `Sam Buchbinder sticks the landing.`\
-https://nytimes.com/2021/07/19/crosswords/daily-puzzle-2020-07-20.html?searchResultPosition=2
+https://nytimes.com/2021/07/19/crosswords/daily-puzzle-2021-07-20.html?searchResultPosition=2
 
 **U.S. men’s and women’s basketball teams are the latest to be disrupted by the coronavirus.**\
 `Guard Zach LaVine entered coronavirus health and safety protocols and did not travel with the men’s team, and Katie Lou Samuelson, a member of the 3x3 Olympics team, will miss the Games after a positive test result.`\
