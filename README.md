@@ -35,6 +35,6 @@ https://nytimes.com/2021/07/20/us/newsom-recall-candidates.html?searchResultPosi
 https://nytimes.com/2021/07/20/health/opioid-settlement-distributors-johnson.html?searchResultPosition=9
 
 **Jeff Bezos Blasts Off on Spaceflight**\
-`Jeff Bezos, the former chief executive of Amazon, will launch himself to the edge of space aboard a rocket system built by his space company Blue Origin.`\
+`Jeff Bezos, the former chief executive of Amazon, launched himself toward space aboard a rocket system built by his space company, Blue Origin.`\
 https://nytimes.com/video/us/100000007874011/bezos-blue-origin-space-live-video.html?searchResultPosition=10
 
