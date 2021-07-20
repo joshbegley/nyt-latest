@@ -1,6 +1,6 @@
 **Extremist or Bridge-Builder? A Brawl Over Biden’s Pick to Oversee Public Lands.**\
 `As a graduate student in the 1980s, Tracy Stone-Manning was linked to a tree-spiking effort by environmentalists. Republicans say that makes her unfit to lead the Bureau of Land Management.`\
-https://nytimes.com/2021/07/20/climate/eco-terrorist-BLM.html?searchResultPosition=1
+https://nytimes.com/2021/07/20/climate/extremist-or-bridge-builder-a-brawl-over-bidens-pick-to-oversee-public-lands.html?searchResultPosition=1
 
 **Video Shows Inside the Blue Origin Flight to Space**\
 `The Blue Origin crew included four passengers who had fun during the short flight, playing with Skittles and experimenting with gravity.`\
