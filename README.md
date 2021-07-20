@@ -10,8 +10,8 @@ https://nytimes.com/2021/07/20/science/shark-attacks.html?searchResultPosition=2
 `From storied Santa Maria tri-tip on the Central Coast, to barbacoa in Los Angeles, to hot links in West Oakland, the rules for slow-and-low are constantly rewritten here.`\
 https://nytimes.com/2021/07/20/dining/california-barbecue-restaurants.html?searchResultPosition=3
 
-**Apple delays its return to office as Delta variant surges.**\
-`By Jack Nicas and Mike Isaac`\
+**Apple delays its return to office as the Delta variant surges.**\
+`Employees are now expected to come back to the workplace on Oct. 1, a month later than planned.`\
 https://nytimes.com/2021/07/20/technology/apple-return-to-office-delay.html?searchResultPosition=4
 
 **A Drought So Dire That a Utah Town Pulled the Plug on Growth**\
