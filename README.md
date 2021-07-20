@@ -6,7 +6,7 @@ https://nytimes.com/video/embedded/us/politics/100000007876207/press-secretary-j
 `Mr. Wechsler, the first resident lighting designer at the Met, created lighting designs that helped bring numerous operas to life.`\
 https://nytimes.com/2021/07/20/arts/music/gil-wechsler-dead.html?searchResultPosition=2
 
-**Appeals court tosses G.O.P. lawsuit against Pelosi over House proxy voting.**\
+**An appeals court tosses a G.O.P. lawsuit against Pelosi over House proxy voting.**\
 `A three-judge panel ruled that courts did not have jurisdiction under the Constitution to wade into the House’s rules and procedures.`\
 https://nytimes.com/2021/07/20/us/politics/republican-lawsuit-pelosi-proxy-voting-house.html?searchResultPosition=3
 
