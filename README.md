@@ -1,5 +1,5 @@
 **Virgil Abloh Gets a Seat at the LVMH Power Table**\
-`The luxury group has bought a majority stake in Off-White and given its founder license to shake up the more than just fashion. And he’s got skin in the game.`\
+`The luxury group has bought a majority stake in Off-White and given its founder license to shake up more than just fashion. And he’s got skin in the game.`\
 https://nytimes.com/2021/07/20/style/virgil-abloh-lvmh-off-white.html?searchResultPosition=1
 
 **South Korea’s Golden Archers**\
