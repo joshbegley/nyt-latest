@@ -24,7 +24,7 @@ https://nytimes.com/video/t-magazine/fashion/100000007868141/house-tour-rosita-m
 
 **A bipartisan plan seeks to ‘Free Britney’ and others who ask a judge to replace their guardian or conservator.**\
 `The Freedom and Right to Emancipate from Exploitation Act, or the FREE Act, will be announced on Tuesday by two members of the House of Representatives.`\
-https://nytimes.com/2021/07/20/us/politics/free-britney-crist-mace-bill.html?searchResultPosition=7
+https://nytimes.com/2021/07/20/us/politics/free-britney-bill-law.html?searchResultPosition=7
 
 **Who Is Running Against Newsom in the Recall?**\
 `Tuesday: More than 40 candidates are vying to replace Gov. Gavin Newsom if voters remove him from office.`\
