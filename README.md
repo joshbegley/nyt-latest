@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/20/us/politics/presidential-war-power-bill.html?sear
 https://nytimes.com/2021/07/20/health/coronavirus-johnson-vaccine-delta.html?searchResultPosition=2
 
 **The Delta variant makes up an estimated 83 percent of U.S. cases, the C.D.C. director says.**\
-`New coronavirus cases have been rising across the United States, though cases, hospitalizations and deaths remain a fraction of their peaks and vaccines are effective against the Delta variant.`\
+`New coronavirus cases have been rising across the United States, though cases, hospitalizations and deaths remain a fraction of their peaks.`\
 https://nytimes.com/2021/07/20/us/politics/delta-variant-usa.html?searchResultPosition=3
 
 **‘There Will Be Breakthrough Cases,’ Psaki Says**\
