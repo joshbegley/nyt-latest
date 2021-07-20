@@ -1,40 +1,40 @@
+**A Renewal for IBM Campuses Once Home to Punch Cards and Circuit Boards**\
+`When Big Blue left upstate New York, economic pain ensued. But the large complexes left behind are ideally suited for large-scale production and shipping, local officials say.`\
+https://nytimes.com/2021/07/20/business/ibm-campuses-new-york.html?searchResultPosition=1
+
+**How to Throw a Perfect Summer Picnic**\
+`Never before have so many restaurants offered food to go. Here, a guide to what to pick up and what to pack it in, plus two easy recipes for dining al fresco.`\
+https://nytimes.com/2021/07/20/t-magazine/summer-picnic-guide.html?searchResultPosition=2
+
+**Inside Rosita Missoni’s Villa at the Foot of the Italian Alps**\
+`The 90-year-old co-founder of the storied fashion label gives T a tour of her art- and heirloom-filled home.`\
+https://nytimes.com/2021/07/20/t-magazine/rosita-missoni-home-design.html?searchResultPosition=3
+
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2021/07/20/business/new-york-commercial-real-estate.html?searchResultPosition=4
+
+**‘Space Jam,’ My Dad and Me**\
+`A writer adored the basketball-Looney Tunes mash-up as a boy. Watching the movie again after his father died, he felt the movie resonate in a surprisingly deeper way.`\
+https://nytimes.com/2021/07/20/movies/space-jam-michael-jordan.html?searchResultPosition=5
+
+**House Tour | Rosita Missoni**\
+`Rosita Missoni invites us into her home outside of Milan.`\
+https://nytimes.com/video/t-magazine/fashion/100000007868141/house-tour-rosita-missoni.html?searchResultPosition=6
+
+**A bipartisan plan seeks to ‘Free Britney’ and others who ask a judge to replace their guardian or conservator.**\
+`The Freedom and Right to Emancipate from Exploitation Act, or the FREE Act, will be announced on Tuesday by two members of the House of Representatives.`\
+https://nytimes.com/2021/07/20/us/politics/free-britney-crist-mace-bill.html?searchResultPosition=7
+
 **Who Is Running Against Newsom in the Recall?**\
 `Tuesday: More than 40 candidates are vying to replace Gov. Gavin Newsom if voters remove him from office.`\
-https://nytimes.com/2021/07/20/us/newsom-recall-candidates.html?searchResultPosition=1
+https://nytimes.com/2021/07/20/us/newsom-recall-candidates.html?searchResultPosition=8
 
 **States and Cities Near Tentative $26 Billion Deal in Opioids Cases**\
 `The agreement would end thousands of lawsuits against the three largest distributors and Johnson & Johnson and require them to pay billions for addiction treatment and prevention.`\
-https://nytimes.com/2021/07/20/health/opioid-settlement-distributors-johnson.html?searchResultPosition=2
+https://nytimes.com/2021/07/20/health/opioid-settlement-distributors-johnson.html?searchResultPosition=9
 
 **Jeff Bezos Blasts Off on Spaceflight**\
 `Jeff Bezos, the former chief executive of Amazon, will launch himself to the edge of space aboard a rocket system built by his space company Blue Origin.`\
-https://nytimes.com/video/us/100000007874011/bezos-blue-origin-space-live-video.html?searchResultPosition=3
-
-**Condo Fatigue on the Upper West Side**\
-`Residents and preservationists have tried to stop three new towers, but so far, the developers are winning.`\
-https://nytimes.com/2021/07/20/realestate/condos-upper-west-side.html?searchResultPosition=4
-
-**How to Block Out the Sounds of Summer**\
-`When air-conditioners buzz, children scream, jackhammers rumble and restaurants clamor, these tools help best.`\
-https://nytimes.com/2021/07/20/realestate/how-to-block-out-the-sounds-of-summer.html?searchResultPosition=5
-
-**Why the Markets Worry About the Delta Variant**\
-`Investors worry about the long path back to normality.`\
-https://nytimes.com/2021/07/20/business/dealbook/delta-variant-markets.html?searchResultPosition=6
-
-**The Bootleg Fire tears across parts of Oregon ‘like a hurricane.’**\
-`The fire, the largest in the United States, has consumed more than 364,000 acres.`\
-https://nytimes.com/2021/07/20/us/bootleg-fire-updates.html?searchResultPosition=7
-
-**Surfing’s Olympic Moment Is Here. Will the Waves Cooperate?**\
-`A sport’s debut offers big names but unspectacular waves. For a few top contenders, those could be perfect conditions for a medal.`\
-https://nytimes.com/2021/07/20/sports/olympics/olympics-surfing-tokyo.html?searchResultPosition=8
-
-**South Korea airlifts a crew from a navy ship amid its military’s biggest virus outbreak.**\
-`More than 80 percent of the sailors in a Korean unit combating piracy off the coast of Africa tested positive for the virus.`\
-https://nytimes.com/2021/07/20/world/asia/south-korea-navy-ship-coronavirus.html?searchResultPosition=9
-
-**‘The New Bauhaus’ Review: Rethinking an Approach to Art**\
-`This documentary on the interdisciplinary artist Laszlo Moholy-Nagy makes the case that he should be a household name.`\
-https://nytimes.com/2021/07/20/movies/the-new-bauhaus-review.html?searchResultPosition=10
+https://nytimes.com/video/us/100000007874011/bezos-blue-origin-space-live-video.html?searchResultPosition=10
 
