@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/20/sports/baseball/marjorie-adams-dead.html?searchRe
 `The proposal comes as lawmakers in both parties have expressed renewed interest in curtailing presidential authority on matters of war and peace.`\
 https://nytimes.com/2021/07/20/us/politics/presidential-war-power-bill.html?searchResultPosition=5
 
-**One Dose of J.&J. Vaccine Is Ineffective Against Delta, Study Suggests**\
+**J.&J. Vaccine May Be Less Effective Against Delta, Study Suggests**\
 `Many who received the shot may need to consider boosters, the authors said. But federal health officials do not recommend second doses.`\
 https://nytimes.com/2021/07/20/health/coronavirus-johnson-vaccine-delta.html?searchResultPosition=6
 
