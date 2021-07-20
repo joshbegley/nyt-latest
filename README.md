@@ -1,40 +1,40 @@
+**U.S. Military Conducts a Drone Strike Against Shabab Fighters in Somalia**\
+`The strike was the first against the militants since the Biden administration put strict limits on military action in the East African nation pending a review of drone policy.`\
+https://nytimes.com/2021/07/20/us/politics/us-drone-strike-shabab-somalia.html?searchResultPosition=1
+
 **Coronavirus Briefing: What Happened Today**\
 `Survivors of Covid-19 are pushing for change.`\
-https://nytimes.com/2021/07/20/us/coronavirus-today.html?searchResultPosition=1
+https://nytimes.com/2021/07/20/us/coronavirus-today.html?searchResultPosition=2
 
 **A New Day in Haiti? Many Haitians Have Their Doubts.**\
 `Tuesday was a day for paying tribute to its assassinated president, and installing new leaders. But to many struggling Haitians, they looked more than a little familiar.`\
-https://nytimes.com/2021/07/20/world/americas/haiti-new-government-moise.html?searchResultPosition=2
+https://nytimes.com/2021/07/20/world/americas/haiti-new-government-moise.html?searchResultPosition=3
 
 **How to watch the Olympics in the U.S.**\
 `N.B.C. will air the opening ceremony live starting around 7 a.m. Eastern time Friday, but the first competitions will air Tuesday night.`\
-https://nytimes.com/2021/07/20/sports/olympics/olympics-how-to-watch.html?searchResultPosition=3
+https://nytimes.com/2021/07/20/sports/olympics/olympics-how-to-watch.html?searchResultPosition=4
 
 **New York to Require Vaccination or Weekly Testing for City Health Workers**\
 `The new city policy takes aim at improving vaccination rates at public hospitals. Across the city, 70 percent of hospital workers are fully vaccinated.`\
-https://nytimes.com/2021/07/20/nyregion/mandatory-vaccine-public-hospitals.html?searchResultPosition=4
+https://nytimes.com/2021/07/20/nyregion/mandatory-vaccine-public-hospitals.html?searchResultPosition=5
 
 **$2.1 Billion AirTrain to La Guardia Gets Green Light from U.S.**\
 `The approval, a victory for Gov. Cuomo, comes over the objections of environmentalists and elected officials and clears way for construction.`\
-https://nytimes.com/2021/07/20/nyregion/laguardia-airport-train.html?searchResultPosition=5
+https://nytimes.com/2021/07/20/nyregion/laguardia-airport-train.html?searchResultPosition=6
 
 **Bootleg Fire, India, Jeff Bezos: Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/07/20/briefing/bootleg-fire-india-jeff-bezos.html?searchResultPosition=6
+https://nytimes.com/2021/07/20/briefing/bootleg-fire-india-jeff-bezos.html?searchResultPosition=7
 
 **PEPFAR Is Still Without a Leader. H.I.V. Activists Want to Know Why.**\
 `“Can we not think and act on two pandemics at a time?” asked one epidemiologist.`\
-https://nytimes.com/2021/07/20/health/pepfar-leader-hiv.html?searchResultPosition=7
+https://nytimes.com/2021/07/20/health/pepfar-leader-hiv.html?searchResultPosition=8
 
 **Haiti Arrests 3 Police Officers as Part of Investigation Into President’s Killing**\
 `The police in Haiti suggested that their force may have been infiltrated by those involved in the assassination of the Haitian president.`\
-https://nytimes.com/2021/07/20/world/americas/haiti-assassination-police-arrested.html?searchResultPosition=8
+https://nytimes.com/2021/07/20/world/americas/haiti-assassination-police-arrested.html?searchResultPosition=9
 
 **The Mexican baseball team is forced to quarantine after two players test positive before trip to Japan.**\
 `Hector Velazquez and Sammy Solis tested positive on Sunday in Mexico City and were asymptomatic and isolating in their hotel rooms, the Mexican baseball federation said.`\
-https://nytimes.com/2021/07/20/sports/olympics/mexican-national-baseball-team-coronavirus-quarantine.html?searchResultPosition=9
-
-**Your Wednesday Briefing**\
-`India’s Covid deaths could be in the millions.`\
-https://nytimes.com/2021/07/20/briefing/your-wednesday-briefing.html?searchResultPosition=10
+https://nytimes.com/2021/07/20/sports/olympics/mexican-national-baseball-team-coronavirus-quarantine.html?searchResultPosition=10
 
