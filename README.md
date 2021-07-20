@@ -2,7 +2,7 @@
 `Amid a surge in coronavirus cases, farmers and families in Bangladesh have turned to online marketplaces to buy and sell millions of animals for sacrifice during the festival of Eid al-Adha.`\
 https://nytimes.com/2021/07/20/world/asia/eid-bangladesh-cows.html?searchResultPosition=1
 
-**France Passes Climate Law, but Critics Say it Falls Short**\
+**France Passes Climate Law, but Critics Say It Falls Short**\
 `The law bans some short flights, requires more vegetarian school meals and curbs wasteful plastic packaging. But activists say it’s not enough.`\
 https://nytimes.com/2021/07/20/world/europe/france-climate-law.html?searchResultPosition=2
 
