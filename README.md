@@ -27,7 +27,7 @@ https://nytimes.com/paidpost/wells-fargo/open-for-business.html?searchResultPosi
 https://nytimes.com/video/us/100000007875446/highlights-from-blue-origins-spaceflight.html?searchResultPosition=7
 
 **Biden to welcome the Tampa Bay Buccaneers, 2021 Super Bowl champions, to the White House.**\
-`Tom Brady, the Buccaneers quarterback, has not said if he plans to attend.`\
+`Tom Brady, the Buccaneers quarterback, was in attendance.`\
 https://nytimes.com/2021/07/20/us/politics/biden-tampa-bay-buccaneers-tom-brady.html?searchResultPosition=8
 
 **Bezos Launches to Space, Aiming to Reignite His Rocket Company’s Ambitions**\
