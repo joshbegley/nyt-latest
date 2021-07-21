@@ -27,7 +27,7 @@ https://nytimes.com/2021/07/21/world/myanmar-nyan-win-covid.html?searchResultPos
 https://nytimes.com/2021/07/21/briefing/covid-vaccines-fda-approval.html?searchResultPosition=7
 
 **Sweden dominated the U.S. from start to finish.**\
-`The Americans had waited five years to avenge a loss to Sweden. They’ll have to keep waiting.`\
+`The Americans had waited five years to avenge an Olympic loss to Sweden. They’ll have to keep waiting.`\
 https://nytimes.com/2021/07/21/sports/olympics/sweden-us-soccer.html?searchResultPosition=8
 
 **Half of Australia is under lockdown as the Delta variant drives outbreaks in three states.**\
