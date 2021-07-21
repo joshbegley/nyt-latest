@@ -19,7 +19,7 @@ https://nytimes.com/video/us/100000007876727/oregon-governor-bootleg-fire.html?s
 https://nytimes.com/2021/07/20/opinion/coronavirus-vaccine-facebook.html?searchResultPosition=5
 
 **Softball fans celebrate the sport’s return to the Games after 13 years, but its place is uncertain.**\
-`A matchup between Japan and Australia was the first competition of the Olympics, but softball is not guaranteed to return for Paris in 2024.`\
+`Japan’s victory over Australia was the first competition of the Olympics, but softball is not guaranteed to return for Paris in 2024.`\
 https://nytimes.com/2021/07/20/sports/olympics/olympics-softball-returns.html?searchResultPosition=8
 
 **As Virus Resurges, G.O.P. Lawmakers Allow Vaccine Skepticism to Flourish**\
