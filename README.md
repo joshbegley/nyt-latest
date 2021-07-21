@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/21/us/bootleg-fire-evacuation-order.html?searchResul
 `Britain has said that the Northern Ireland protocol could create so many problems that it might have to be scrapped. What exactly is it? And why all the fuss?`\
 https://nytimes.com/2021/07/21/world/europe/uk-northern-ireland-protocol-explainer.html?searchResultPosition=8
 
-**Drug Distributors and J.&J. Announce $26 Billion Deal to End Opioids Lawsuits**\
+**Drug Distributors and J.&J. Reach $26 Billion Deal to End Opioids Lawsuits**\
 `If approved by states and municipalities, the agreement would allow funds to be allocated to communities to pay for addiction and prevention services.`\
 https://nytimes.com/2021/07/21/health/opioids-distributors-settlement.html?searchResultPosition=9
 
