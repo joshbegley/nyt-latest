@@ -1,4 +1,4 @@
-**A couple faces manslaughter charges for a California wildfire that started during a gender reveal.**\
+**A couple face manslaughter charges for a California wildfire that started during a gender reveal.**\
 `A firefighter died in September while battling the El Dorado Fire in San Bernardino County, Calif.`\
 https://nytimes.com/2021/07/20/us/el-dorado-fire-manslaughter-gender-reveal.html?searchResultPosition=1
 
