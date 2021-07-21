@@ -1,4 +1,4 @@
-**Life Expectancy in U.S. Dropped 1.5 Years in 2020, With Racial Divisions Widening**\
+**Life Expectancy in U.S. Dropped 1.5 Years in 2020, Largely From the Pandemic**\
 `The 18-month drop was the steepest decline since World War II, according to federal statistics. Black and Hispanic Americans were disproportionately affected.`\
 https://nytimes.com/2021/07/21/us/american-life-expectancy-report.html?searchResultPosition=1
 
