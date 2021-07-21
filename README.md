@@ -1,4 +1,4 @@
-**Fare Hikes on the Subway? Not This Year.**\
+**Higher Fares on the Subway? Not This Year.**\
 `Transit officials hold off on  an increase for  the subway, buses and  commuter rail lines to help  riders hurt financially by the pandemic. `\
 https://nytimes.com/2021/07/21/nyregion/no-fare-hike-subway.html?searchResultPosition=1
 
