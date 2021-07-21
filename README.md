@@ -31,6 +31,6 @@ https://nytimes.com/2021/07/21/us/bootleg-fire-evacuation-order.html?searchResul
 https://nytimes.com/2021/07/21/world/europe/uk-northern-ireland-protocol-explainer.html?searchResultPosition=8
 
 **Drug Distributors and J.&J. Reach $26 Billion Deal to End Opioids Lawsuits**\
-`If approved by states and municipalities, the agreement would allow funds to be allocated to communities to pay for addiction and prevention services.`\
+`The agreement would allow funds to begin flowing from the companies to states and communities to pay for addiction and prevention services.`\
 https://nytimes.com/2021/07/21/health/opioids-distributors-settlement.html?searchResultPosition=9
 
