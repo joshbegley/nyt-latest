@@ -22,8 +22,8 @@ https://nytimes.com/interactive/2021/07/20/nyregion/ny-service-workers-covid.htm
 `In a plea deal that spared him the death penalty, John T. Earnest admitted to killing a woman and injuring three others at a synagogue on the last day of Passover in 2019.`\
 https://nytimes.com/2021/07/20/us/synagogue-shooting-guilty.html?searchResultPosition=6
 
-**The Tokyo Games have begun, with a Japanese victory in softball.**\
-`By Andrew Das`\
+**The Japanese softball team scores a victory to start off the Games.**\
+`The host country made it through a rough first inning to beat Australia, 8-1, invoking the mercy rule, in the first competition of the Olympics.`\
 https://nytimes.com/2021/07/20/sports/olympics/softball-japan-beats-australia.html?searchResultPosition=7
 
 **Oregon Governor Says Climate Change Is Fueling Wildfires**\
