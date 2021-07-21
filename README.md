@@ -1,40 +1,36 @@
 **Coronavirus Briefing: What Happened Today**\
 `Accepting the virus.`\
-https://nytimes.com/2021/07/21/us/coronavirus-today.html?searchResultPosition=1
+https://nytimes.com/2021/07/21/us/coronavirus-today.html?searchResultPosition=2
 
 **‘It’s gross’: A summer of red tides piles up 600 tons of dead fish on Florida beaches.**\
 `“This,” proclaimed an editorial in The Tampa Bay Times last week, “is what climate change smells like.”`\
-https://nytimes.com/2021/07/21/us/red-tide-florida-dead-fish.html?searchResultPosition=2
+https://nytimes.com/2021/07/21/us/red-tide-florida-dead-fish.html?searchResultPosition=3
 
 **Alex Rodriguez Joins Ownership Group for Timberwolves and Lynx**\
 `Rodriguez and Marc Lore, an e-commerce billionaire, have a pathway to controlling ownership of the professional Minnesota basketball teams in two years.`\
-https://nytimes.com/2021/07/21/sports/basketball/alex-rodriguez-timberwolves-lynx-minnesota.html?searchResultPosition=3
+https://nytimes.com/2021/07/21/sports/basketball/alex-rodriguez-timberwolves-lynx-minnesota.html?searchResultPosition=4
 
 **American Ballet Theater to Return to Lincoln Center in October**\
 `The full-length ballet “Giselle” will open the company’s season at the David H. Koch Theater Oct. 20.`\
-https://nytimes.com/2021/07/21/arts/dance/american-ballet-theater-new-season.html?searchResultPosition=4
+https://nytimes.com/2021/07/21/arts/dance/american-ballet-theater-new-season.html?searchResultPosition=5
 
 **A Rap Song Lays Bare Israel’s Jewish-Arab Fracture — and Goes Viral**\
 `A Jew and a Palestinian sling slurs at each other, giving voice to hidden prejudice with the aim of overcoming it.`\
-https://nytimes.com/2021/07/21/world/middleeast/israel-palestinian-rap-video.html?searchResultPosition=5
+https://nytimes.com/2021/07/21/world/middleeast/israel-palestinian-rap-video.html?searchResultPosition=6
 
 **U.S. military official says a ‘complete Taliban takeover’ is possible in Afghanistan.**\
 `The comments by Gen. Mark A. Milley, chairman of the Joint Chiefs of Staff, echoed mounting reports from the ground in Afghanistan.`\
-https://nytimes.com/2021/07/21/us/politics/afghanistan-taliban-milley-withdrawal.html?searchResultPosition=6
+https://nytimes.com/2021/07/21/us/politics/afghanistan-taliban-milley-withdrawal.html?searchResultPosition=7
 
 **Kathy Andrade, Unionist Who Fought for Immigrant Workers, Dies at 88**\
 `Her work on behalf of garment workers helped prod organized labor to rethink its approach to an increasingly immigrant-based work force.`\
-https://nytimes.com/2021/07/21/business/kathy-andrade-dead.html?searchResultPosition=7
+https://nytimes.com/2021/07/21/business/kathy-andrade-dead.html?searchResultPosition=8
 
 **PG&E plans a 10-year effort to put power lines underground to reduce fire risk.**\
 `The California utility said the work would involve about 10,000 miles of its network, a project potentially costing tens of billions of dollars.`\
-https://nytimes.com/2021/07/21/business/energy-environment/pge-underground-powerlines-wildfires.html?searchResultPosition=8
+https://nytimes.com/2021/07/21/business/energy-environment/pge-underground-powerlines-wildfires.html?searchResultPosition=9
 
 **Wildfire Smoke Clouds New York City Skyline**\
 `A haze of wildfire smoke from the Western United States and Canada stretched across North America this week, elevating air quality health risks.`\
-https://nytimes.com/video/us/100000007878356/new-york-smoke-west-wildfires.html?searchResultPosition=9
-
-**Modern Love Podcast: Loving Across Borders**\
-`Through citizenship insecurities and pandemic separations, here’s how three couples managed to stay together.`\
-https://nytimes.com/2021/07/21/style/modern-love-podcast-loving-across-borders-pandemic.html?searchResultPosition=10
+https://nytimes.com/video/us/100000007878356/new-york-smoke-west-wildfires.html?searchResultPosition=10
 
