@@ -1,5 +1,5 @@
 **Taliban Have ‘Strategic Momentum’ in Afghanistan, U.S. General Says**\
-`General Mark A. Milley, chairman of the joint Chiefs of Staff, said Afghan military forces have prioritized protection of important cities, including Kabul, but that a “complete Taliban takeover” was possible.`\
+`General Mark A. Milley, chairman of the Joint Chiefs of Staff, said Afghan military forces had prioritized the protection of important cities, including Kabul, but that a “complete Taliban takeover” was possible.`\
 https://nytimes.com/video/us/politics/100000007878662/afghanistan-taliban-general-milley.html?searchResultPosition=1
 
 **Olympics Virus Cases Raise Tricky Questions About Testing**\
