@@ -1,6 +1,6 @@
 **British Columbia declares a state of emergency as wildfires rage.**\
 `Nearly 300 fires in the Canadian province have prompted evacuation orders affecting more than 5,700 people, officials said.`\
-https://nytimes.com/2021/07/21/us/british-columbia-wildfires.html?searchResultPosition=1
+https://nytimes.com/2021/07/21/world/canada/british-columbia-wildfires.html?searchResultPosition=1
 
 **Higher Fares on the Subway? Not This Year.**\
 `Transit officials hold off on  an increase for  the subway, buses and  commuter rail lines to help  riders hurt financially by the pandemic. `\
