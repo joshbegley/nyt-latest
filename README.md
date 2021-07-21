@@ -1,5 +1,5 @@
 **Jeff Bezos in Space: Inspiring or Wasteful?**\
-`One reader says the billionaires’ money should instead be spent on “a world in shambles,” while another sees in space travel “a world of wonders.” Also: Vaccines for children.`\
+`One reader says the billionaire’s money should instead be spent on “a world in shambles,” while another sees in space travel “a world of wonders.” Also: Vaccines for children.`\
 https://nytimes.com/2021/07/21/opinion/letters/jeff-bezos-space.html?searchResultPosition=1
 
 **Review: Unearthing the Late Curiosities of Tennessee Williams**\
