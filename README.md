@@ -1,21 +1,40 @@
-**The W.H.O. leader endorses the Olympics as ‘a celebration of hope.’**\
-`Tedros Adhanom Ghebreyesus said the mark of success for Covid-19 control at the Games would be “making sure that any cases are identified, isolated, traced and cared for as quickly as possible.”`\
-https://nytimes.com/2021/07/21/world/who-olympics-covid.html?searchResultPosition=1
+**At the Evian, Name Calling Takes Practice**\
+`Two friends share the duties of announcing the golfers as play begins. Sometimes they have to ask, ‘How would you pronounce this?’`\
+https://nytimes.com/2021/07/21/sports/golf/evian-announcers-starters.html?searchResultPosition=1
 
-**Brisbane is awarded the 2032 Summer Games.**\
-`The city in Australia won the first bid for a Summer Games under a new process by the International Olympic Committee meant to discourage bidding wars.`\
-https://nytimes.com/2021/07/21/sports/olympics/brisbane-2032-summer-games.html?searchResultPosition=2
+**Women Golfers Are Embracing the Power Era. Is That a Good Thing?**\
+`On the L.P.G.A. Tour, players are being enticed by how far others are driving the ball. But some have realized hitting it farther has hurt their game.`\
+https://nytimes.com/2021/07/21/sports/golf/women-lpga-distance-power.html?searchResultPosition=2
 
-**After 145 Years, Bayreuth Festival Has Its First Female Conductor**\
-`Oksana Lyniv will open the festival, founded by Wagner to present his own operas, leading “Der Fliegende Holländer.”`\
-https://nytimes.com/2021/07/21/arts/music/bayreuth-wagner-festival-opera.html?searchResultPosition=3
+**Pound Ridge, N.Y.: A Rural Alternative to Nearby Commuter Towns**\
+`Unlike its better-known neighbors, this Westchester town has no train station. It’s a ‘little bit more country,’ and residents are fine with that.`\
+https://nytimes.com/2021/07/21/realestate/pound-ridge-ny-a-rural-alternative-to-nearby-commuter-towns.html?searchResultPosition=3
 
-**Late Night Sends Up ‘Space Cowboy’ Jeff Bezos**\
-`Stephen Colbert joked that the Amazon billionaire came back from space “extra divorced.”`\
-https://nytimes.com/2021/07/21/arts/television/stephen-colbert-jeff-bezos-space.html?searchResultPosition=4
+**Living In ... Pound Ridge, N.Y.**\
+`Unlike its better-known neighbors, this Westchester town has no train station. It’s a ‘little bit more country,’ and residents are fine with that.`\
+https://nytimes.com/slideshow/2021/07/21/realestate/living-in-pound-ridge-ny.html?searchResultPosition=4
 
-**See How Wildfire Smoke Spread Across the United States**\
-`Smoke from wildfires in the western United States and Canada covered skies in a thick haze on Tuesday and triggered air quality alerts from Toronto to Philadelphia.`\
-https://nytimes.com/interactive/2021/07/21/climate/wildfire-smoke-map.html?searchResultPosition=5
+**Shorter Hours, No Promotions: How the Pandemic Stalled Some Parents’ Careers**\
+`The disruption to child care could have long-term career costs, and the ones likeliest to pay are mothers.`\
+https://nytimes.com/2021/07/21/upshot/child-care-pandemic-mothers-careers.html?searchResultPosition=5
 
-****\
+**Exploring Seattle’s Booming Beer Scene**\
+`This northwestern city makes some of the most creative craft beers around. The best place to try them is in the Ballard Brewery District.`\
+https://nytimes.com/2021/07/21/travel/Seattle-beer-breweries.html?searchResultPosition=6
+
+**Up Close, the Suffering and Hope in a Desperate Covid Fight**\
+`After documenting a last-resort treatment at one hospital, a photographer who spent hours in patients’ rooms describes capturing the humanity of the struggle.`\
+https://nytimes.com/2021/07/21/insider/covid-icu-ecmo-photographer.html?searchResultPosition=7
+
+**The Taste of Summer, Now in Canned Form**\
+`A new wave of independent beverage brands, some promising health benefits and others a good old-fashioned buzz, are remaking the way we unwind.`\
+https://nytimes.com/2021/07/21/t-magazine/canned-drinks-summer.html?searchResultPosition=8
+
+**Making Discovery, Not Distance, Travel’s Point**\
+`As a veteran travel writer is reminded on a short jaunt from his home in France, you don’t need to go far to get away. “Small travel,” he finds, has its own rewards.`\
+https://nytimes.com/2021/07/21/travel/small-travel-france.html?searchResultPosition=9
+
+**Asians Are Represented in Classical Music. But Are They Seen?**\
+`The success of some artists of Asian descent obscures the fact that many face routine racism and discrimination.`\
+https://nytimes.com/2021/07/21/arts/music/asians-classical-music.html?searchResultPosition=10
+
