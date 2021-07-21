@@ -10,8 +10,8 @@ https://nytimes.com/2021/07/21/world/myanmar-nyan-win-covid.html?searchResultPos
 `The F.D.A. is encouraging people to get a Covid-19 shot — but hasn’t formally approved those vaccines.`\
 https://nytimes.com/2021/07/21/briefing/covid-vaccines-fda-approval.html?searchResultPosition=3
 
-**Sweden dominates the U.S., 3-0, in their Olympic soccer opener.**\
-`By Andrew Das`\
+**Sweden dominated the U.S. from start to finish.**\
+`The Americans had waited five years to avenge a loss to Sweden. They’ll have to keep waiting.`\
 https://nytimes.com/2021/07/21/sports/olympics/sweden-us-soccer.html?searchResultPosition=4
 
 **Half of Australia is under lockdown as the Delta variant drives outbreaks in three states.**\
