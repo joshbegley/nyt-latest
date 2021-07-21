@@ -1,36 +1,40 @@
+**More than 30 former top Senate Democratic aides call for changes to the filibuster rules.**\
+`Ex-chiefs of staff say the Senate rules need to be changed to end what they called abuse of the tactic.`\
+https://nytimes.com/2021/07/21/us/politics/senate-filibuster.html?searchResultPosition=1
+
 **John Mayer’s Empty 1980s Excess**\
 `“Sob Rock,” an album bloated with signifiers but light on hooks, uses the idea of nostalgia to sell new collectibles from John Mayer, the brand.`\
-https://nytimes.com/2021/07/21/arts/music/john-mayer-sob-rock-review.html?searchResultPosition=1
+https://nytimes.com/2021/07/21/arts/music/john-mayer-sob-rock-review.html?searchResultPosition=2
 
 **Vaccinations or Weekly Testing to Be Required for N.Y.C. Health Workers**\
 `Mayor Bill de Blasio of New York said employees of city-run hospitals and health clinics would be required to get vaccinated against the coronavirus or be tested on a weekly basis. About 60 percent of the work force has been vaccinated.`\
-https://nytimes.com/video/nyregion/100000007877680/vaccinations-new-york-city-health-workers.html?searchResultPosition=2
+https://nytimes.com/video/nyregion/100000007877680/vaccinations-new-york-city-health-workers.html?searchResultPosition=3
 
 **‘Ultra City Smiths’ Review: New York Neo-Noir, With Plastic Dolls**\
 `The creator of “Patriot” and “Perpetual Grace Ltd.” delivers another show not quite like any other.`\
-https://nytimes.com/2021/07/21/arts/television/ultra-city-smiths-review.html?searchResultPosition=3
+https://nytimes.com/2021/07/21/arts/television/ultra-city-smiths-review.html?searchResultPosition=4
 
 **Pelosi bars two Trump allies from the committee investigating the Jan. 6 riot.**\
 `Ms. Pelosi, who had never before rejected a Republican nominee to a committee, called her move to oust Representatives Jim Banks and Jim Jordan “unprecedented” but necessary.`\
-https://nytimes.com/2021/07/21/us/politics/pelosi-jordan-banks-jan-6.html?searchResultPosition=4
+https://nytimes.com/2021/07/21/us/politics/pelosi-jordan-banks-jan-6.html?searchResultPosition=5
 
 **‘I Am Thirsty!’ Water Shortages Compound Iran’s Problems**\
 `A prolonged drought worsened by climate change and government mismanagement has added a volatile new element to the swirl of challenges in Iran, ranging from the pandemic to U.S. sanctions.`\
-https://nytimes.com/2021/07/21/world/middleeast/iran-protests-drought-violence.html?searchResultPosition=5
+https://nytimes.com/2021/07/21/world/middleeast/iran-protests-drought-violence.html?searchResultPosition=6
 
 **A Famous Blue Butterfly: Still Extinct but More Distinct**\
 `New research suggests the iconic Xerces blue butterfly may have been its own species.`\
-https://nytimes.com/2021/07/21/science/a-famous-blue-butterfly-still-extinct-but-more-distinct.html?searchResultPosition=6
+https://nytimes.com/2021/07/21/science/a-famous-blue-butterfly-still-extinct-but-more-distinct.html?searchResultPosition=7
 
 **The U.S. reaffirms its land border restrictions with Canada and Mexico, days after Canada relaxes theirs.**\
 `U.S. politicians from both parties have pressed for reopening along with residents of Canada and Mexico.`\
-https://nytimes.com/2021/07/21/us/politics/us-border-canada-mexico.html?searchResultPosition=7
+https://nytimes.com/2021/07/21/us/politics/us-border-canada-mexico.html?searchResultPosition=8
 
 **More Hospitals Are Requiring Workers to Get Covid Vaccines**\
 `With some health care workers still refusing to be immunized, medical centers around the country are requiring shots as cases climb once again.`\
-https://nytimes.com/2021/07/21/health/covid-vaccine-hospitals.html?searchResultPosition=8
+https://nytimes.com/2021/07/21/health/covid-vaccine-hospitals.html?searchResultPosition=9
 
 **Jeff Bezos in Space: Inspiring or Wasteful?**\
 `One reader says the billionaire’s money should instead be spent on “a world in shambles,” while another sees in space travel “a world of wonders.” Also: Vaccines for children.`\
-https://nytimes.com/2021/07/21/opinion/letters/jeff-bezos-space.html?searchResultPosition=9
+https://nytimes.com/2021/07/21/opinion/letters/jeff-bezos-space.html?searchResultPosition=10
 
