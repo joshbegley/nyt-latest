@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/21/us/politics/afghanistan-taliban-milley-withdrawal
 https://nytimes.com/2021/07/21/business/kathy-andrade-dead.html?searchResultPosition=3
 
 **PG&E plans a 10-year effort to put power lines underground to reduce fire risk.**\
-`The California utility said the work would involve about 10,000 miles of its network. A consumer group said it could cost $40 billion.`\
+`The California utility said the work would involve about 10,000 miles of its network, a project potentially costing tens of billions of dollars.`\
 https://nytimes.com/2021/07/21/business/energy-environment/pge-underground-powerlines-wildfires.html?searchResultPosition=4
 
 **Wildfire Smoke Clouds New York City Skyline**\
