@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2021/07/22/sports/olympics/athletes-obituaries.h
 
 **Should Vaccinated People Start Wearing Masks Again?**\
 `With daily reports of breakthrough infections and the rise of the Delta variant, vaccinated people may need to take a few more precautions. Here’s what you need to know.`\
-https://nytimes.com/2021/07/22/well/live/covid-vaccine-masks.html?searchResultPosition=2
+https://nytimes.com/article/covid-vaccine-masks.html?searchResultPosition=2
 
 **How to watch the opening ceremony.**\
 `With social distancing and no fans, the ceremony, much like the Games, will look a lot different.`\
