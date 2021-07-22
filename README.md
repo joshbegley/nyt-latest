@@ -2,7 +2,7 @@
 `The vaccines are effective, but they are not a golden shield against the coronavirus, particularly not the Delta variant.`\
 https://nytimes.com/2021/07/22/health/coronavirus-breakthrough-infections-delta.html?searchResultPosition=1
 
-**Amid rising cases, the C.D.C. director warns the U.S. is at “another pivotal point” in the pandemic.**\
+**Amid rising cases, the C.D.C. director warns the U.S. is at ‘another pivotal point’ in the pandemic.**\
 `Still, new cases, hospitalizations and deaths remain at a fraction from their previous devastating peaks, and vaccines remain effective against the worst outcomes of Covid-19 including from the Delta variant.`\
 https://nytimes.com/2021/07/22/us/politics/cdc-delta-cases.html?searchResultPosition=2
 
