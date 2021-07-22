@@ -26,7 +26,7 @@ https://nytimes.com/interactive/2021/07/22/smarter-living/wirecutter/make-ice-cr
 `His videos have made him one of the most acclaimed artists of his generation, but what really animates this British artist are the emotions that slip off the screen.`\
 https://nytimes.com/2021/07/22/arts/design/ed-atkins-artist-museum-videos.html?searchResultPosition=7
 
-**New Extreme Weather Record? Not So Fast**\
+**New Extreme Weather Record? Not So Fast.**\
 `The process of formally vetting an extreme weather record can require months or years of investigation. A few have been rejected.`\
 https://nytimes.com/2021/07/22/climate/record-heat-wave.html?searchResultPosition=8
 
