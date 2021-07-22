@@ -24,7 +24,7 @@ https://nytimes.com/2021/07/22/well/live/how-to-give-pep-talk-olympics.html?sear
 
 **U.S. Olympic Fencer, Accused of Sexual Misconduct, Kept Apart From Team**\
 `Alen Hadzic of New Jersey is an alternate on the U.S. fencing team but has not been allowed to stay in the Olympic Village.`\
-https://nytimes.com/2021/07/22/sports/olympics/us-olympic-fencer-accused-of-sexual-misconduct-kept-apart-from-team.html?searchResultPosition=7
+https://nytimes.com/2021/07/22/sports/olympics/olympic-fencer-alec-hadzic-misconduct.html?searchResultPosition=7
 
 **I Tried 3 New Olympic Sports. Here’s What I Learned.**\
 `Shaking up your workout routine can come with a bevy of benefits, experts say, from stronger muscles to better relationships.`\
