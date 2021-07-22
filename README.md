@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/22/podcasts/the-daily/haiti-assassination.html?searc
 https://nytimes.com/2021/07/22/business/smart-car-road-trip.html?searchResultPosition=3
 
 **You Read it Here First (Maybe): Who Will Light the Olympic Caldron**\
-`Our correspondent in the past couple Summer Games has correctly predicted the special person who lights the Olympic caldron. And the honor goes to …`\
+`Our correspondent in the past couple Summer Games has correctly predicted the special person who lights the Olympic caldron. This year the honor goes to …`\
 https://nytimes.com/2021/07/22/sports/olympics/caldron-torch-lighting.html?searchResultPosition=4
 
 **Variants and Vaccinations: The State of the Virus in N.Y.C.**\
