@@ -1,6 +1,6 @@
-**Opening ceremony creative director resigns over Holocaust joke**\
-`By Motoko Rich`\
-https://nytimes.com/2021/07/22/sports/olympics/opening-ceremony-creative-director-resigns-over-holocaust-joke.html?searchResultPosition=1
+**The opening ceremony’s creative director is dismissed over a Holocaust joke.**\
+`The decades-old joke came to light days before the ceremony and was the latest scandal to confront organizers of the Tokyo Games.`\
+https://nytimes.com/2021/07/22/sports/olympics/olympics-holocaust-opening-ceremony.html?searchResultPosition=1
 
 **A male Australian Olympic official’s rebuke of a female politician prompts outrage.**\
 `John Coates, the president of the country’s Olympic committee, insisted that Annastacia Palaszczuk, a premier, attend the opening ceremony, despite her previous promise she wouldn’t attend any events in Tokyo.`\
