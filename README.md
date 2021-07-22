@@ -1,5 +1,5 @@
 **Democrats’ Divide on Voting Rights Widens as Biden Faces Pressure**\
-`The president is increasingly at odds with leaders of the voting rights movement, who see a contrast between his soaring language and his willingness to pressure Congress to pass federal legislation.`\
+`The president is increasingly at odds with leaders of the voting rights movement, who see a contrast between his soaring language and his willingness to push Congress to pass federal legislation.`\
 https://nytimes.com/2021/07/22/us/politics/biden-voting-rights.html?searchResultPosition=1
 
 **After Recent ‘Heat Dome,’ Washington Issues Warning Not to Eat Raw Shellfish**\
