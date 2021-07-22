@@ -10,7 +10,7 @@ https://nytimes.com/2021/07/22/us/politics/cdc-delta-cases.html?searchResultPosi
 `Politically speaking, we’re not served by our stewing.`\
 https://nytimes.com/2021/07/22/opinion/trump-books.html?searchResultPosition=3
 
-**Amid rising virus infections, House Republicans soft-pedal push for Covid vaccinations.**\
+**House Republicans soft-pedal push for Covid vaccinations amid rising infections.**\
 `The increased spread of the virus has prompted the G.O.P. to change its tone and confront the reluctance among its constituents to take the Covid-19 vaccine.`\
 https://nytimes.com/2021/07/22/us/politics/republican-vaccine-push.html?searchResultPosition=4
 
