@@ -1,4 +1,4 @@
-**Biden predicts F.D.A. will give final approval to a Covid vaccine by the fall.**\
+**Biden predicts the F.D.A. will give final approval to a Covid vaccine by the fall.**\
 `The president also said he expected children under the age of 12, who are not currently eligible to receive the vaccine, would be approved to get it on an emergency basis “soon, I believe.”`\
 https://nytimes.com/2021/07/21/us/politics/biden-vaccines-town-hall.html?searchResultPosition=1
 
