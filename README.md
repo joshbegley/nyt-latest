@@ -10,8 +10,8 @@ https://nytimes.com/2021/07/22/sports/basketball/basketball-recruiting-delta-var
 `In Zhengzhou, China, many residents were forced to wade through flooded roads after heavy rain engulfed the region with more rain still in the forecast.`\
 https://nytimes.com/video/world/asia/100000007879831/china-floods-zhengzhou-video.html?searchResultPosition=4
 
-**The House will vote to allow more Afghans who have helped American troops immigrate to the U.S.**\
-`The legislation, spearheaded by Representative Jason Crow, Democrat of Colorado and a former Army Ranger, has broad bipartisan support.`\
+**The House votes to allow more Afghans who have helped American troops immigrate to the U.S.**\
+`The legislation, spearheaded by Representative Jason Crow, Democrat of Colorado and a former Army Ranger, passed by a vote of 407 to 16, with 16 Republicans opposed.`\
 https://nytimes.com/2021/07/22/us/politics/afghans-interpreters-visas-house.html?searchResultPosition=5
 
 **Harry deLeyer, 93, Dies; He Saved a Horse and Made Him a Legend**\
