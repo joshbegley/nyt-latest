@@ -2,7 +2,7 @@
 `France and Italy are seeking to bolster vaccination rates by making it harder for the unvaccinated to visit public venues including restaurants and sporting events.`\
 https://nytimes.com/2021/07/22/world/eu-health-pass-vaccine-covid.html?searchResultPosition=1
 
-**Italy will require proof of vaccination or negative test for many social activities.**\
+**Italy will require proof of vaccination or a negative test for many social activities.**\
 `The government mandate follows a similar declaration by France and is part of a broader debate over policies that restrict the activities of the unvaccinated.`\
 https://nytimes.com/2021/07/22/world/europe/italy-covid-vaccine-proof-activities.html?searchResultPosition=2
 
