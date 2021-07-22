@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/22/realestate/how-much-will-an-extra-bedroom-cost-yo
 https://nytimes.com/2021/07/22/well/live/how-to-give-pep-talk-olympics.html?searchResultPosition=5
 
 **U.S. Olympic Fencer, Accused of Sexual Misconduct, Kept Apart From Team**\
-`Alen Hadzic of South Orange, N.J., is an alternate on the U.S. fencing team but has not been allowed to stay in the Olympic Village.`\
+`Alen Hadzic of New Jersey is an alternate on the U.S. fencing team but has not been allowed to stay in the Olympic Village.`\
 https://nytimes.com/2021/07/22/sports/olympics/us-olympic-fencer-accused-of-sexual-misconduct-kept-apart-from-team.html?searchResultPosition=6
 
 **I Tried 3 New Olympic Sports. Here’s What I Learned.**\
