@@ -32,7 +32,7 @@ https://nytimes.com/2021/07/22/science/shark-intestines.html?searchResultPositio
 
 **Tesla’s Factory in Berlin Runs Into Activists, Red Tape and Lizards**\
 `Elon Musk wanted to tap German engineering expertise, but may have gotten more local culture than he had bargained for.`\
-https://nytimes.com/2021/07/22/business/teslas-factory-in-berlin-runs-into-activists-red-tape-and-lizards.html?searchResultPosition=9
+https://nytimes.com/2021/07/22/business/tesla-berlin.html?searchResultPosition=9
 
 **What’s the Price of an Uncleaned Hotel Room?**\
 `As business at big city hotels still lags, the pandemic may permanently change the industry’s approach to services like housekeeping and check in. But employees fear for their jobs.`\
