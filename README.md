@@ -1,40 +1,40 @@
-**How Big Is the Bootleg Fire?**\
-`The 400,000-acre fire is still growing. And it is only 38 percent contained. `\
-https://nytimes.com/interactive/2021/07/22/us/bootleg-fire.html?searchResultPosition=1
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are four-bedrom houses in Mount Vernon and Chester Township.`\
+https://nytimes.com/2021/07/22/realestate/home-sales-near-nyc.html?searchResultPosition=1
 
-**When Gender Equality at the Olympics Is Not So Equal**\
-`The Games are nearing gender parity for the first time, but a series of gaffes by officials and persistent gaps in the makeup of the I.O.C. overshadow the gains.`\
-https://nytimes.com/2021/07/22/sports/olympics/olympics-athletes-gender.html?searchResultPosition=2
+**Homes for Sale in Brooklyn, Queens and Manhattan**\
+`This week’s homes are in Chelsea, Ridgewood and Greenwood.`\
+https://nytimes.com/2021/07/22/realestate/home-sales-new-york-city.html?searchResultPosition=2
 
-**Mercedes-Benz will shift its focus to electric vehicles by 2025.**\
-`The automaker said it would invest 40 billion euros, or $47 billion, on electric cars, vans and light commercial vehicles by 2030.`\
-https://nytimes.com/2021/07/22/business/mercedes-benz-electric-vehicles.html?searchResultPosition=3
+**On the Market in New York City**\
+`This week’s homes are in Chelsea, Ridgewood and Greenwood.`\
+https://nytimes.com/slideshow/2021/07/22/realestate/on-the-market-in-new-york-city.html?searchResultPosition=3
 
-**Jerry Lewis, Master of the Congressional Earmark, Dies at 86**\
-`A powerful legislator, he became chairman of the House Appropriations Committee in 2005 but faced scrutiny from the Justice Department for his ties to a lobbyist.`\
-https://nytimes.com/2021/07/22/obituaries/jerry-lewis-dead.html?searchResultPosition=4
+**On the Market in the New York Region**\
+`This week’s properties are four-bedrom houses in Mount Vernon and Chester Township.`\
+https://nytimes.com/slideshow/2021/07/22/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
 
-**Robinhood Rewrites the Rules for Going Public**\
-`It’s giving retail investors much more of its I.P.O. than is the norm.`\
-https://nytimes.com/2021/07/22/business/dealbook/robinhood-ipo-retail-investors.html?searchResultPosition=5
+**How to Style a Table for a Laid-Back Summer Meal**\
+`A trio of consummate hosts — a creative director, a chef and a florist — share their tips about lighting, dinnerware, decoration and more.`\
+https://nytimes.com/2021/07/22/t-magazine/summer-dinner-tablescape-tips.html?searchResultPosition=5
 
-**‘Charlatan’ Review: The Miracle Worker**\
-`With this drama, the writer-director Agnieszka Holland tackles another complicated historical figure in the Czech herbal healer, Jan Mikolasek.`\
-https://nytimes.com/2021/07/22/movies/charlatan-review.html?searchResultPosition=6
+**The T List: Five Things We Recommend This Week**\
+`A steak made from a beet, James Shalom’s fashion debut — and more.`\
+https://nytimes.com/2021/07/22/t-magazine/carne-mare-beet-steak.html?searchResultPosition=6
 
-**‘Settlers’ Review: Interstellar Colonialism on Mars**\
-`The first feature from Wyatt Rockefeller takes on exploitation and violence against women — and bungles both.`\
-https://nytimes.com/2021/07/22/movies/settlers-review.html?searchResultPosition=7
+**A Democratic senator is bottling up Biden’s Customs and Border Protection nominee.**\
+`Senator Ron Wyden of Oregon is delaying a hearing until the administration answers questions about the response to last year’s unrest in Portland.`\
+https://nytimes.com/2021/07/22/us/politics/wyden-border-nominee.html?searchResultPosition=7
 
-**‘Broken Diamonds’ Review: Illness as a Narrative Convenience**\
-`The drama about a brother caring for a sister uses mental illness as an engine for a predictable plot.`\
-https://nytimes.com/2021/07/22/movies/broken-diamonds-review.html?searchResultPosition=8
+**Communing With Redwoods on the California Coast**\
+`Every summer, the writer Barbara Jane Reyes takes a road trip in pursuit of the beauty, and the poetry, of the natural world.`\
+https://nytimes.com/2021/07/22/t-magazine/california-summer-road-trip.html?searchResultPosition=8
 
-**‘Eyimofe (This Is My Desire)’ Review: Always Hustling**\
-`The film follows the lives of two individuals in Nigeria who dream of immigrating to Europe to better their prospects.`\
-https://nytimes.com/2021/07/22/movies/eyimofe-this-is-my-desire-review.html?searchResultPosition=9
+**Leon Bridges Brings Southern Soul Into the 21st Century**\
+`The Texas songwriter finds his groove in vulnerability on his third album, “Gold-Diggers Sound.”`\
+https://nytimes.com/2021/07/22/arts/music/leon-bridges-gold-diggers-sound-review.html?searchResultPosition=9
 
-**‘Val’ Review: The Iceman Cometh**\
-`A documentary about Val Kilmer offers a self-portrait of the artist that’s personal but not quite intimate.`\
-https://nytimes.com/2021/07/22/movies/val-review.html?searchResultPosition=10
+**My Mom Doesn’t Want Me to Get the Covid-19 Vaccine. But I Already Did.**\
+`A reader seeks advice on navigating a parent whose stance on vaccination is at odds with his future.`\
+https://nytimes.com/2021/07/22/style/covid-vaccine-social-qs.html?searchResultPosition=10
 
