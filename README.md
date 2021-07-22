@@ -1,5 +1,5 @@
 **When Gender Equality at the Olympics Is Not So Equal**\
-`The Games are nearing gender parity for the first time, but a series of gaffes by officials and persistent gaps in the I.O.C. makeup overshadow the gains.`\
+`The Games are nearing gender parity for the first time, but a series of gaffes by officials and persistent gaps in the makeup of the I.O.C. overshadow the gains.`\
 https://nytimes.com/2021/07/22/sports/olympics/olympics-athletes-gender.html?searchResultPosition=1
 
 **Mercedes-Benz will shift its focus to electric vehicles by 2025.**\
