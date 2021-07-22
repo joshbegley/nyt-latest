@@ -18,19 +18,19 @@ https://nytimes.com/2021/07/22/us/politics/afghans-interpreters-visas-house.html
 `A Dutch immigrant, he bought a plow horse for $80 in 1956 and named him Snowman. Two years later the pair won the show-jumping triple crown.`\
 https://nytimes.com/2021/07/22/sports/harry-deleyer-dead.html?searchResultPosition=6
 
+**U.S. men’s beach volleyball player will miss the Tokyo Games after testing positive for coronavirus.**\
+`Taylor Crabb, 29, almost didn’t make it to the Olympics at all after being the subject of a code of conduct review.`\
+https://nytimes.com/2021/07/22/sports/olympics/taylor-crabb-beach-volleyball-covid.html?searchResultPosition=7
+
 **A controversial Alzheimer’s drug has already yielded $2 million in sales.**\
 `The drug from Biogen, called Aduhelm, is expected to generate billions in sales. It could also strain Medicare’s budget within a few years.`\
-https://nytimes.com/2021/07/22/business/aduhelm-sales-biogen.html?searchResultPosition=7
+https://nytimes.com/2021/07/22/business/aduhelm-sales-biogen.html?searchResultPosition=8
 
 **Jack Antonoff Doesn’t Want to Just Take Up Space**\
 `As he prepares to release his third album with Bleachers, the musician and producer explores how his cultural must-haves intersect with his creative impulses.`\
-https://nytimes.com/2021/07/22/arts/music/jack-antonoff-favorites.html?searchResultPosition=8
+https://nytimes.com/2021/07/22/arts/music/jack-antonoff-favorites.html?searchResultPosition=9
 
 **‘Ailey’ Review: A Poetic Look at the Man Behind the Dances**\
 `Jamila Wignot explores the life of Alvin Ailey in a new documentary that brings a choreographer to life through movement and words.`\
-https://nytimes.com/2021/07/22/movies/ailey-review.html?searchResultPosition=9
-
-**In Softball, a Comeback 13 Years in the Making**\
-`Softball was dropped from the Olympic program after the 2008 Beijing Games. Now the sport, and 10 veterans of that tournament, are back.`\
-https://nytimes.com/2021/07/22/sports/baseball/softball-cat-osterman.html?searchResultPosition=10
+https://nytimes.com/2021/07/22/movies/ailey-review.html?searchResultPosition=10
 
