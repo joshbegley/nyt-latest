@@ -2,7 +2,7 @@
 `Five strike forces across the country will work with local law enforcement to fight violent crime.`\
 https://nytimes.com/2021/07/22/us/politics/justice-department-gun-violence.html?searchResultPosition=1
 
-**An Officer Was Taunted and Spat At. Now He Faces Criminal Charges.**\
+**An Officer Was Taunted and Spit At. Now He Faces Criminal Charges.**\
 `A New York police sergeant attacked two handcuffed suspects while making arrests, the authorities said.`\
 https://nytimes.com/2021/07/22/nyregion/nypd-police-brutality.html?searchResultPosition=2
 
