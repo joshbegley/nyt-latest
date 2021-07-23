@@ -27,7 +27,7 @@ https://nytimes.com/2021/07/23/dining/bulgogi-recipes.html?searchResultPosition=
 https://nytimes.com/2021/07/23/opinion/harm-reduction-covid.html?searchResultPosition=7
 
 **Federal efforts to stave off an eviction crisis gain some momentum.**\
-`By Glenn Thrush`\
+`The amount of money sent to tenants in June was greater than the disbursements of the previous two months combined, according to the Treasury Department.`\
 https://nytimes.com/2021/07/23/us/politics/evictions-moratorium.html?searchResultPosition=8
 
 **France Passes New Laws to Combat Terrorism and Islamist Extremism**\
