@@ -35,6 +35,6 @@ https://nytimes.com/2021/07/23/movies/woodstock-99-peace-love-and-rage-review.ht
 https://nytimes.com/2021/07/23/movies/playing-with-sharks-review.html?searchResultPosition=9
 
 **This opening ceremony has had its share of controversy.**\
-`By Ben Dooley`\
-https://nytimes.com/2021/07/23/sports/olympics/this-opening-ceremony-has-had-its-share-of-controversy.html?searchResultPosition=10
+`High-profile scandals involving the event’s creative leadership have led to several resignations.`\
+https://nytimes.com/2021/07/23/sports/olympics/opening-ceremony-controversy.html?searchResultPosition=10
 
