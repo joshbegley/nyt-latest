@@ -16,7 +16,7 @@ https://nytimes.com/2021/07/22/travel/renewing-passport-last-minute.html?searchR
 
 **How the HIPAA Law Works**\
 `The measure prohibits health professionals from revealing your medical records, but it is perfectly legal to ask whether someone has been vaccinated.`\
-https://nytimes.com/article/hipaa-law-vaccine-disclosure.html?searchResultPosition=5
+https://nytimes.com/article/hipaa-law.html?searchResultPosition=5
 
 **Democrats’ Divide on Voting Rights Widens as Biden Faces Pressure**\
 `The president is increasingly at odds with leaders of the voting rights movement, who see a contrast between his soaring language and his willingness to push Congress to pass federal legislation.`\
