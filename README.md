@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/22/us/politics/hank-johnson-arrest-voting-rights.htm
 `The State Department has stopped using online booking because third-party bots were making last-minute appointments and selling them to travelers. Now, they can be scheduled only by phone.`\
 https://nytimes.com/2021/07/22/travel/renewing-passport-last-minute.html?searchResultPosition=8
 
-**How the HIPAA Law Works**\
+**How the HIPAA Law Works and Why People Get It Wrong**\
 `The measure prohibits health professionals from revealing your medical records, but it is perfectly legal to ask whether someone has been vaccinated.`\
 https://nytimes.com/article/hipaa-law.html?searchResultPosition=9
 
