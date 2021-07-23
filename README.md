@@ -34,7 +34,7 @@ https://nytimes.com/2021/07/23/us/coronavirus-today.html?searchResultPosition=8
 `At a time when Ringling Brothers had few Black performers, she dazzled with aerial ballet and balanced on galloping elephants.`\
 https://nytimes.com/2021/07/23/arts/alice-clark-brown-dead.html?searchResultPosition=9
 
-**Tom Barrack, Trump’s friend and fund-raiser, is freed on $250 million bond.**\
-`The agreement requires Mr. Barrack to wear a G.P.S. location monitoring bracelet at all times.`\
-https://nytimes.com/2021/07/23/us/politics/tom-barrack-trumps-friend-and-fund-raiser-is-freed-on-250-million-bond.html?searchResultPosition=10
+**Thomas Barrack, Trump’s friend and fund-raiser, is freed on $250 million bond.**\
+`The agreement requires Mr. Barrack to wear a GPS location monitoring bracelet at all times.`\
+https://nytimes.com/2021/07/23/us/politics/tom-barrack-trump-freed.html?searchResultPosition=10
 
