@@ -1,6 +1,6 @@
 **Three-on-Three Basketball at the Olympics: What to Watch For**\
 `The United States is favored to win a gold medal behind a roster of young W.N.B.A. standouts.`\
-https://nytimes.com/2021/07/23/sports/olympics/three-on-three-basketball-at-the-olympics-what-to-watch-for.html?searchResultPosition=1
+https://nytimes.com/2021/07/23/sports/olympics/three-on-three-basketball-olympics.html?searchResultPosition=1
 
 **The Best of Late Night This Week 🌙**\
 `The late-night hosts had no shortage of topics to riff on this week including the Summer Olympics and Jeff Bezos’s trip to space.`\
