@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/23/movies/black-widow-clip.html?searchResultPosition
 https://nytimes.com/video/movies/100000007879248/black-widow-scene.html?searchResultPosition=5
 
 **Looking for Simone Biles? She and her gymnastics teammates are sitting out the opening ceremony.**\
-`By Juliet Macur`\
+`The women’s team won’t be walking because it is “focused on preparation,” said Meredith Yeoman, a spokeswoman for U.S.A. Gymnastics.`\
 https://nytimes.com/2021/07/23/sports/olympics/simone-biles.html?searchResultPosition=6
 
 **‘Stuntman’ Review: A Big Leap**\
