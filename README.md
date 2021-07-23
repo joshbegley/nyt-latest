@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/23/us/politics/congress-delta-coronavirus.html?searc
 https://nytimes.com/2021/07/23/arts/cannes-film-festival.html?searchResultPosition=2
 
 **A Celebration of Life, a Note of Unease and … Commercials**\
-`The pandemic-era Tokyo Olympics began on NBC, with an uneasy balance of news and sports, along with reminders that this is big business`\
+`The pandemic-era Tokyo Olympics began on NBC, with an uneasy balance of news and sports, along with reminders that this is big business.`\
 https://nytimes.com/2021/07/23/arts/television/olympics-opening-ceremony-broadcast.html?searchResultPosition=3
 
 **Enlist Trump Against Vaccine Hesitancy**\
