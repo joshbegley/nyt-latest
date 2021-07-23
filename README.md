@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/23/world/asia/tokyo-olympics-opening-ceremony.html?searchResultPosition=1
 
 **Naomi Osaka lights the cauldron.**\
-`The tennis star,`\
+`The tennis star, whose stature has only grown in the past year, capped the opening ceremony in Tokyo.`\
 https://nytimes.com/2021/07/23/sports/olympics/naomi-osaka-lights-cauldron.html?searchResultPosition=2
 
 **Astronomers See Moons Forming in Disk Around Distant Exoplanet**\
