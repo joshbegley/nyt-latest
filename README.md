@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/23/world/asia/singapore-nurse-rowing-olympics.html?s
 `If Stephen Colbert and Jimmy Fallon can be on ice cream containers, why not the “Late Night” host?`\
 https://nytimes.com/2021/07/23/arts/television/latenight-seth-meyers-ben-jerrys.html?searchResultPosition=2
 
-**As Haitian Leader’s Funeral Nears, Anger Burns in the Streets**\
+**As Haitian President’s Funeral Nears, Anger Burns in the Streets**\
 `The unrest exposed the nation’s deep divisions ahead of a moment many had hoped would help mend a fractured nation.`\
 https://nytimes.com/2021/07/23/world/americas/moises-jovenel-funeral-haiti.html?searchResultPosition=3
 
