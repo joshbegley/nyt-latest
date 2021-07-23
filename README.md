@@ -1,40 +1,40 @@
-**How a Frontline Nurse Trained for the Olympics in a Time of Pandemic**\
-`When the coronavirus hit her home country, Joan Poh, Singapore’s only female rower competing in Tokyo, had to juggle a return to her hospital work with getting ready for the Games.`\
-https://nytimes.com/2021/07/23/world/asia/singapore-nurse-rowing-olympics.html?searchResultPosition=1
+**Omega Returns to the Olympics**\
+`For the 29th time, the Swatch Group brand will be timing the events — and introducing some new technology — at the Tokyo Games.`\
+https://nytimes.com/2021/07/23/fashion/watches-omega-tokyo-olympics.html?searchResultPosition=1
 
-**Seth Meyers Demands His Own Ben & Jerry’s Flavor**\
-`If Stephen Colbert and Jimmy Fallon can be on ice cream containers, why not the “Late Night” host?`\
-https://nytimes.com/2021/07/23/arts/television/latenight-seth-meyers-ben-jerrys.html?searchResultPosition=2
+**In Watches, Checking for Precision**\
+`Tudor becomes the second brand to have its timepieces assessed for accuracy by a Swiss government agency.`\
+https://nytimes.com/2021/07/23/fashion/watches-tudor-chronometer.html?searchResultPosition=2
 
-**As Haitian President’s Funeral Nears, Anger Burns in the Streets**\
-`The unrest exposed the nation’s deep divisions ahead of a moment many had hoped would help mend a fractured nation.`\
-https://nytimes.com/2021/07/23/world/americas/moises-jovenel-funeral-haiti.html?searchResultPosition=3
+**Men Who Beat Hong Kong Protesters in Mob Attack Are Sentenced to Prison**\
+`In his ruling, a judge in Hong Kong said that the seven defendants had “viciously” attacked innocent people in a train station in July 2019.`\
+https://nytimes.com/2021/07/23/world/asia/hong-kong-yuen-long-attack.html?searchResultPosition=3
 
-**Germany Is in Shock. Its Politicians Are on Autopilot.**\
-`Catastrophic floods have done strangely little to shake up the contest to replace Angela Merkel.`\
-https://nytimes.com/2021/07/23/opinion/germany-floods-greens.html?searchResultPosition=4
+**What to Do This Summer: Lower Manhattan**\
+`Three neighborhoods offer art, great food (and drinks), river breezes and lush green space — not to mention amazing views. And, for now, there’s still plenty of elbow room.`\
+https://nytimes.com/2021/07/23/travel/lower-manhatten-guide-summer.html?searchResultPosition=4
 
-**Your Friday Briefing**\
-`New vaccine mandates.`\
-https://nytimes.com/2021/07/23/briefing/coronavirus-olympics-belarus.html?searchResultPosition=5
+**A Skateboarder’s Secret Grind**\
+`Nyjah Huston’s signature dreadlocks are stored in a box now, an artifact of his early fame. The effects of his complicated upbringing have not been so easy to cut off.`\
+https://nytimes.com/2021/07/23/sports/olympics/nyjah-huston-skateboarding-tokyo.html?searchResultPosition=5
 
-**The Olympics Rely on, but Don’t Support, Black Girl Magic**\
-`Naomi Osaka, Simone Biles and Gwen Berry are among the Black women athletes who will be counted on to provide standout performances in Tokyo even as they fight to be respected.`\
-https://nytimes.com/2021/07/23/sports/olympics/olympics-naomi-osaka-simone-biles.html?searchResultPosition=6
+**‘I Feel Conflicted’: Crypto’s Offshore Trading Moguls Talk Shop**\
+`The founders of the cryptocurrency exchanges FTX and Binance talked with The Times about risk and regulation.`\
+https://nytimes.com/2021/07/23/business/dealbook/binance-FTX-ceos.html?searchResultPosition=6
 
-**When a Summer Hookup Lasts 12 Years, It’s Time to Reassess**\
-`Our relationship was supposed to be brief and casual. We never managed to call it off.`\
-https://nytimes.com/2021/07/23/style/modern-love-12-year-summer-hookup.html?searchResultPosition=7
+**What’s the Best Way to Protect Sex Workers? Depends on Whom You Ask.**\
+`There are two competing bills in New York: One would punish pimps and customers, while the other would decriminalize the entire trade.`\
+https://nytimes.com/2021/07/23/nyregion/sex-workers-nyc.html?searchResultPosition=7
 
-**The Delta Variant Taught Me to Waste Time. And I’m Grateful.**\
-`Searching for serenity during another stubborn lockdown, I’m learning to let my mind wander, far away from the news.`\
-https://nytimes.com/2021/07/22/world/australia/covid-delta-variant-lockdown-wasting-time.html?searchResultPosition=8
+**How an Environmental Watchdog of the Hudson River Spends Sundays**\
+`From osprey nests to toxic cleanups, John Lipscomb monitors it all from aboard his 36-foot wooden boat.`\
+https://nytimes.com/2021/07/23/nyregion/riverkeeper-nyc.html?searchResultPosition=8
 
-**Greg Knapp, a Jets Assistant Coach, Dies at 58**\
-`Knapp, the team’s new passing-game specialist, was hit by a car while biking over the weekend and never regained consciousness, his family said.`\
-https://nytimes.com/2021/07/22/sports/football/jets-greg-knapp-dead.html?searchResultPosition=9
+**Burned by Hot Housing Market, Some Buyers Back Off**\
+`Tired of sky high prices and losing out in bidding wars, some buyers are giving up and putting their house hunt on hold.`\
+https://nytimes.com/2021/07/23/realestate/housing-market-burnout.html?searchResultPosition=9
 
-**Corrections: July 23, 2021**\
-`Corrections that appeared in print on Friday, July 23, 2021.`\
-https://nytimes.com/2021/07/22/pageoneplus/corrections-july-23-2021.html?searchResultPosition=10
+**Revisiting Time at the 1964 Tokyo Olympics**\
+`An exhibition in London is to include four pieces of Seiko technology used at the Games.`\
+https://nytimes.com/2021/07/23/fashion/watches-seiko-1964-tokyo-olympics-exhibition-london.html?searchResultPosition=10
 
