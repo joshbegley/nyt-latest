@@ -31,7 +31,7 @@ https://nytimes.com/2021/07/24/realestate/is-that-stroller-in-the-hallway-really
 https://nytimes.com/2021/07/24/sports/olympics/skateboarding-olympics-explained.html?searchResultPosition=8
 
 **The Most Influential Spreader of Coronavirus Misinformation Online**\
-`Researchers and regulators say Joseph Mercola, an osteopathic physician, creates and profits from misleading claims about Covid-19. “I have every right to inform the public,” he says.`\
+`Researchers and regulators say Joseph Mercola, an osteopathic physician, creates and profits from misleading claims about Covid-19 vaccines.`\
 https://nytimes.com/2021/07/24/technology/joseph-mercola-coronavirus-misinformation-online.html?searchResultPosition=9
 
 **Takato dominates in judo, giving Japan its first gold medal at the Games.**\
