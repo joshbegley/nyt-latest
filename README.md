@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/23/sports/olympics/maria-taylor-nbc-olympics.html?se
 https://nytimes.com/2021/07/23/theater/shakespeare-in-the-park-canceled-covid.html?searchResultPosition=3
 
 **Skilled in Strategy (and Grudges), Top Biden Adviser to Depart White House**\
-`Anita Dunn, who is returning to her Democratic consulting company next month, has long faced questions about how her influence in the White House intersects with her corporate work.`\
+`Anita Dunn, who is returning to her Democratic consulting company next month, has long faced questions about how her influence in the White House intersects with her company’s corporate work.`\
 https://nytimes.com/2021/07/23/us/politics/anita-dunn-biden-white-house.html?searchResultPosition=4
 
 **Biden Officials Now Expect Vulnerable Americans to Need Booster Shots**\
