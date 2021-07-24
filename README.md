@@ -1,40 +1,40 @@
+**A beach volleyball match is decided by a Covid infection.**\
+`The match was not played because the Czech athlete Marketa Slukova had tested positive for the coronavirus. She is one of several members of the country’s Olympic team who are infected.`\
+https://nytimes.com/2021/07/23/sports/olympics/volleyball-cancelled-covid-czech-japan.html?searchResultPosition=1
+
 **Blunt End?**\
 `Adam Aaronson and Ricky Cruz bare all in a tricky Saturday puzzle.`\
-https://nytimes.com/2021/07/23/crosswords/daily-puzzle-2021-07-24.html?searchResultPosition=1
+https://nytimes.com/2021/07/23/crosswords/daily-puzzle-2021-07-24.html?searchResultPosition=2
 
 **What to Know About the Heat Wave**\
 `The forecast for the coming week suggests there will be few places in the continental United States to find relief.`\
-https://nytimes.com/article/heat-wave-cause.html?searchResultPosition=2
+https://nytimes.com/article/heat-wave-cause.html?searchResultPosition=3
 
 **Maria Taylor makes her NBC debut during rebroadcast of Olympics opening ceremony.**\
 `Besides the Olympics, Taylor will contribute to NBC’s broadcast of the Super Bowl and “Sunday Night Football.”`\
-https://nytimes.com/2021/07/23/sports/olympics/maria-taylor-nbc-olympics.html?searchResultPosition=3
+https://nytimes.com/2021/07/23/sports/olympics/maria-taylor-nbc-olympics.html?searchResultPosition=4
 
 **Positive Coronavirus Test Halts Shakespeare in the Park for Third Night**\
 `“Merry Wives,” an adaptation of Shakespeare’s comedy, had already pushed back its opening night by nearly two weeks after an injury to its leading man.`\
-https://nytimes.com/2021/07/23/theater/shakespeare-in-the-park-canceled-covid.html?searchResultPosition=4
+https://nytimes.com/2021/07/23/theater/shakespeare-in-the-park-canceled-covid.html?searchResultPosition=5
 
 **Skilled in Strategy (and Grudges), Top Biden Adviser to Depart White House**\
 `Anita Dunn, who is returning to her Democratic consulting company next month, has long faced questions about how her influence in the White House intersects with her company’s corporate work.`\
-https://nytimes.com/2021/07/23/us/politics/anita-dunn-biden-white-house.html?searchResultPosition=5
+https://nytimes.com/2021/07/23/us/politics/anita-dunn-biden-white-house.html?searchResultPosition=6
 
 **Biden Officials Now Expect Vulnerable Americans to Need Booster Shots**\
 `The growing consensus that at least some Americans will need a booster is partly tied to research suggesting that Pfizer’s vaccine is less effective after about six months.`\
-https://nytimes.com/2021/07/23/us/covid-vaccine-boosters.html?searchResultPosition=6
+https://nytimes.com/2021/07/23/us/covid-vaccine-boosters.html?searchResultPosition=7
 
 **As July Nears Its End, Teams Must Decide What They Are**\
 `The always-confounding Tampa Bay Rays have already been buyers and sellers in a lead-up to the trade deadline, which may see big changes for the Chicago Cubs and others.`\
-https://nytimes.com/2021/07/23/sports/baseball/trade-deadline-mets-rays.html?searchResultPosition=7
+https://nytimes.com/2021/07/23/sports/baseball/trade-deadline-mets-rays.html?searchResultPosition=8
 
 **The Police Believe 98 People Died in the Condo Collapse. One Hasn’t Been Found.**\
 `The search at the collapse site in Surfside, Fla., was declared over on Friday, but the authorities are continuing to look through the relocated rubble for the remains of Estelle Hedaya, 54.`\
-https://nytimes.com/2021/07/23/us/miami-collapse-victims-estelle-hedaya.html?searchResultPosition=8
+https://nytimes.com/2021/07/23/us/miami-collapse-victims-estelle-hedaya.html?searchResultPosition=9
 
 **How the New Capitol Police Chief Wants to Fix an Embattled Force**\
 `J. Thomas Manger said the brutal attack on Jan. 6 persuaded him to come out of retirement to try to help get the Capitol Police department “where it needs to be.”`\
-https://nytimes.com/2021/07/23/us/capitol-police-chief-manger.html?searchResultPosition=9
-
-**De Blasio Urges New York Businesses to Require Employee Vaccinations**\
-`The debate over mandates is intensifying as the highly contagious Delta variant of the coronavirus surges in many parts of the United States.`\
-https://nytimes.com/2021/07/23/nyregion/ny-vaccine-mandate-workers.html?searchResultPosition=10
+https://nytimes.com/2021/07/23/us/capitol-police-chief-manger.html?searchResultPosition=10
 
