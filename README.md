@@ -1,5 +1,5 @@
 **Protesters Clash With Riot Police Over French Health Passes**\
-`Hundreds of thousands of people rallied in France against the government’s Covid-19 health pass policy, which requires those who attend large events to present proof of vaccination, a recent negative test or recent Covid-19 recovery.`\
+`Hundreds of thousands of people rallied in France on Saturday against the government’s Covid-19 health pass policy, which requires those who attend large events to present proof of vaccination, a recent negative test or recent Covid-19 recovery.`\
 https://nytimes.com/video/world/europe/100000007884277/france-health-pass-coronavirus-protests-clashes.html?searchResultPosition=1
 
 **What to Watch as Baseball and Softball Return to the Olympics**\
