@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/24/dining/weeknight-recipes-sandwich.html?searchResu
 `A city known for extraordinary architecture is coming to terms with intensifying storms, a rising sea and streets that flood with distressing regularity.`\
 https://nytimes.com/2021/07/24/us/charleston-sc-flooding-climate-change.html?searchResultPosition=8
 
-**A conservative Tennessee radio host, hospitalized with Covid, shifts his message to urge vaccinations.**\
+**Hospitalized with Covid, a conservative Tennessee radio host shifts his message to urge vaccinations.**\
 `Phil Valentine is currently one of hundreds of Covid patients in Tennessee, which has seen a 77 percent increase in hospitalizations over the past two weeks.`\
 https://nytimes.com/2021/07/24/world/phil-valentine-hospitalized-coronavirus.html?searchResultPosition=9
 
