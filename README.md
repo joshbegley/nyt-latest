@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/23/theater/shakespeare-in-the-park-canceled-covid.ht
 https://nytimes.com/2021/07/23/us/politics/anita-dunn-biden-white-house.html?searchResultPosition=5
 
 **Biden Officials Now Expect Vulnerable Americans to Need Booster Shots**\
-`The growing consensus that at least some Americans will need a booster is tied in part to research suggesting that Pfizer’s vaccine is less effective after about six months.`\
+`The growing consensus that at least some Americans will need a booster is partly tied to research suggesting that Pfizer’s vaccine is less effective after about six months.`\
 https://nytimes.com/2021/07/23/us/covid-vaccine-boosters.html?searchResultPosition=6
 
 **As July Nears Its End, Teams Must Decide What They Are**\
