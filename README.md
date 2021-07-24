@@ -18,23 +18,23 @@ https://nytimes.com/2021/07/24/world/middleeast/iraq-biden-us-forces.html?search
 `Even in normal times, the Games don’t pay off, argues the economist Andrew Zimbalist.`\
 https://nytimes.com/2021/07/24/business/olympics-economics.html?searchResultPosition=5
 
+**U.S. soccer looks for a rebound against New Zealand.**\
+`By Andrew Das`\
+https://nytimes.com/2021/07/24/sports/olympics/us-soccer-looks-for-a-rebound-against-new-zealand.html?searchResultPosition=6
+
 **‘He Had a Life Before Death’: Remembering Emmett Till for the Child He Was**\
 `Emmett Till’s cousin Ollie Gordon recalled him as a jokester who “loved to make people laugh” as she reflected on their childhood together ahead of what would have been his 80th birthday.`\
-https://nytimes.com/2021/07/24/us/emmett-till-80th-birthday.html?searchResultPosition=6
+https://nytimes.com/2021/07/24/us/emmett-till-80th-birthday.html?searchResultPosition=7
 
 **Richard Carapaz of Ecuador prevails in one of the toughest road races in Olympic history.**\
 `Days after finishing third in the Tour de France, he won his country’s second-ever gold medal.`\
-https://nytimes.com/2021/07/24/sports/olympics/richard-carapaz-ecuador-road-race.html?searchResultPosition=7
+https://nytimes.com/2021/07/24/sports/olympics/richard-carapaz-ecuador-road-race.html?searchResultPosition=8
 
 **And Still She Rises. And Rises. And Rises.**\
 `Simone Biles, the greatest gymnast of all time, who has used her influence to speak out against injustices, arrives at her second Olympics prepared to soar above the sport’s devastating recent history.`\
-https://nytimes.com/2021/07/24/sports/olympics/simone-biles-gymnastics.html?searchResultPosition=8
+https://nytimes.com/2021/07/24/sports/olympics/simone-biles-gymnastics.html?searchResultPosition=9
 
 **They Waited, They Worried, They Stalled. This Week, They Got the Shot.**\
 `The U.S. vaccine rollout has plateaued and the course of the coronavirus pandemic in this country may depend on how many people are ultimately swayed to get vaccinated.`\
-https://nytimes.com/2021/07/24/us/covid-vaccine-hesitant.html?searchResultPosition=9
-
-**They Were Once Luxury Venues. Now They Are Grim Covid Camps.**\
-`As an outbreak seizes Cambodia, patients who test positive for the virus say they are being forced into quarantine centers that are more like makeshift prisons than hospitals.`\
-https://nytimes.com/2021/07/24/world/asia/cambodia-covid-camps.html?searchResultPosition=10
+https://nytimes.com/2021/07/24/us/covid-vaccine-hesitant.html?searchResultPosition=10
 
