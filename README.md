@@ -1,40 +1,40 @@
+**U.S. to Announce Troop Drawdown From Iraq, but Little Is Expected to Change**\
+`The deal appears to be the latest effort by the Iraqi prime minister to balance the needs and demands of the country’s two closest allies: the United States and Iran.`\
+https://nytimes.com/2021/07/24/world/middleeast/iraq-biden-us-forces.html?searchResultPosition=1
+
 **Hosting the Olympics Is a Bad Deal**\
 `Even in normal times, the Games don’t pay off, argues the economist Andrew Zimbalist.`\
-https://nytimes.com/2021/07/24/business/olympics-economics.html?searchResultPosition=1
+https://nytimes.com/2021/07/24/business/olympics-economics.html?searchResultPosition=2
 
 **‘He Had a Life Before Death’: Remembering Emmett Till for the Child He Was**\
 `Emmett Till’s cousin Ollie Gordon recalled him as a jokester who “loved to make people laugh” as she reflected on their childhood together ahead of what would have been his 80th birthday.`\
-https://nytimes.com/2021/07/24/us/emmett-till-80th-birthday.html?searchResultPosition=2
+https://nytimes.com/2021/07/24/us/emmett-till-80th-birthday.html?searchResultPosition=3
 
 **Richard Carapaz of Ecuador prevails in one of the toughest road races in Olympic history.**\
 `Days after finishing third in the Tour de France, he won his country’s second-ever gold medal.`\
-https://nytimes.com/2021/07/24/sports/olympics/richard-carapaz-ecuador-road-race.html?searchResultPosition=3
+https://nytimes.com/2021/07/24/sports/olympics/richard-carapaz-ecuador-road-race.html?searchResultPosition=4
 
 **And Still She Rises. And Rises. And Rises.**\
 `Simone Biles, the greatest gymnast of all time, who has used her influence to speak out against injustices, arrives at her second Olympics prepared to soar above the sport’s devastating recent history.`\
-https://nytimes.com/2021/07/24/sports/olympics/simone-biles-gymnastics.html?searchResultPosition=4
+https://nytimes.com/2021/07/24/sports/olympics/simone-biles-gymnastics.html?searchResultPosition=5
 
 **They Waited, They Worried, They Stalled. This Week, They Got the Shot.**\
 `The U.S. vaccine rollout has plateaued and the course of the coronavirus pandemic in this country may depend on how many people are ultimately swayed to get vaccinated.`\
-https://nytimes.com/2021/07/24/us/covid-vaccine-hesitant.html?searchResultPosition=5
+https://nytimes.com/2021/07/24/us/covid-vaccine-hesitant.html?searchResultPosition=6
 
 **They Were Once Luxury Venues. Now They Are Grim Covid Camps.**\
 `As an outbreak seizes Cambodia, patients who test positive for the virus say they are being forced into quarantine centers that are more like makeshift prisons than hospitals.`\
-https://nytimes.com/2021/07/24/world/asia/cambodia-covid-camps.html?searchResultPosition=6
+https://nytimes.com/2021/07/24/world/asia/cambodia-covid-camps.html?searchResultPosition=7
 
 **Spain Pledged Citizenship to Sephardic Jews. Now They Feel Betrayed.**\
 `In 2015, Spain said it would give citizenship to the descendants of Sephardic Jews expelled during the Spanish Inquisition. Then rejections started pouring in this summer.`\
-https://nytimes.com/2021/07/24/world/europe/spain-jews-citizenship-reparations.html?searchResultPosition=7
+https://nytimes.com/2021/07/24/world/europe/spain-jews-citizenship-reparations.html?searchResultPosition=8
 
 **A Long, Joyful Ride**\
 `You know you have a good job when it lets you try a jetpack. But after 21 years of thrills at The Times, it’s time for my next adventure: the classroom.`\
-https://nytimes.com/2021/07/24/insider/john-schwartz-farewell.html?searchResultPosition=8
+https://nytimes.com/2021/07/24/insider/john-schwartz-farewell.html?searchResultPosition=9
 
 **For Older Adults, Home Care Has Become Harder to Find**\
 `Staffing shortages have long plagued the home care industry. But the pandemic has intensified the problem.`\
-https://nytimes.com/2021/07/24/health/coronavirus-elderly-home-care.html?searchResultPosition=9
-
-**What Should Happen to Our Data When We Die?**\
-`Anthony Bourdain’s A.I.-generated voice is just the latest example of a celebrity being digitally reincarnated. These days, though, it could happen to any of us.`\
-https://nytimes.com/2021/07/24/style/what-should-happen-to-our-data-when-we-die.html?searchResultPosition=10
+https://nytimes.com/2021/07/24/health/coronavirus-elderly-home-care.html?searchResultPosition=10
 
