@@ -1,5 +1,5 @@
 **A typhoon forecast roils the rowing schedule at the Olympics.**\
-`Team U.S.A. said that the schedule was being adjusted because of an “inclement weather forecast.” Reports show that a storm could hit the Tokyo region on Tuesday.`\
+`The U.S. team said the schedule was being adjusted because of an “inclement weather forecast.” Reports show that a storm could hit the Tokyo region on Tuesday.`\
 https://nytimes.com/2021/07/23/sports/olympics/tokyo-typhoon-rowing-schedule.html?searchResultPosition=1
 
 **A beach volleyball match is decided by a Covid infection.**\
