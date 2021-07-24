@@ -6,8 +6,8 @@ https://nytimes.com/2021/07/24/us/summer-camp-problems.html?searchResultPosition
 `In 2014, Larisa Iordache came closer than anyone to beating Simone Biles. That’s out now, but one last medal could help her reclaim Romania’s gymnastics glory after years of heartbreak.`\
 https://nytimes.com/2021/07/24/sports/olympics/biles-iordache-gymnastics.html?searchResultPosition=2
 
-**Large protests against health passes hit France for a second weekend, with echoes of the Yellow Vest turmoil.**\
-`The interior ministry said that over 160,000 people demonstrated in Paris, Marseille, Montpellier and over a dozen other cities, some chanting “freedom” and carrying signs accusing the government of imposing a “dictatorship.”`\
+**Large Covid-related protests hit France, Italy and Australia.**\
+`Protesters’ targets include mandatory health passes in France and Italy, and lockdowns in Sydney, Melbourne and Adelaide.`\
 https://nytimes.com/2021/07/24/world/france-protests-covid-health-pass.html?searchResultPosition=3
 
 **U.S. Moves to Drop Cases Against Chinese Researchers Accused of Hiding Military Ties**\
