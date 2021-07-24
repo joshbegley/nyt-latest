@@ -30,8 +30,8 @@ https://nytimes.com/2021/07/23/us/miami-collapse-victims-estelle-hedaya.html?sea
 `J. Thomas Manger said the brutal attack on Jan. 6 persuaded him to come out of retirement to try to help get the Capitol Police department “where it needs to be.”`\
 https://nytimes.com/2021/07/23/us/capitol-police-chief-manger.html?searchResultPosition=8
 
-**Vaccine Requirements Loom in New York City: ‘Time for More Mandates’**\
-`The debate over whether to require vaccinations is intensifying as the highly contagious Delta variant of the coronavirus surges in many parts of the United States.`\
+**De Blasio Urges New York Businesses to Require Employee Vaccinations**\
+`The debate over mandates is intensifying as the highly contagious Delta variant of the coronavirus surges in many parts of the United States.`\
 https://nytimes.com/2021/07/23/nyregion/ny-vaccine-mandate-workers.html?searchResultPosition=9
 
 **The F.T.C. asks for an extension to refile its Facebook antitrust suit.**\
