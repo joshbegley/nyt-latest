@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/23/us/bootleg-fire-photos.html?searchResultPosition=
 `The U.S. team said the schedule was being adjusted because of an “inclement weather forecast.” Reports show that a storm could hit the Tokyo region on Tuesday.`\
 https://nytimes.com/2021/07/23/sports/olympics/tokyo-typhoon-rowing-schedule.html?searchResultPosition=6
 
-**A beach volleyball match is decided by a Covid infection.**\
+**An Olympic beach volleyball match is decided by a Covid infection.**\
 `The match was not played because Marketa Slukova of the Czech Republic tested positive for the coronavirus. She is one of several members of the country’s Olympic team who are infected.`\
 https://nytimes.com/2021/07/23/sports/olympics/volleyball-cancelled-covid-czech-japan.html?searchResultPosition=7
 
