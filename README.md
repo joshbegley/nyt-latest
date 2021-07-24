@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000007884242/hungary-pride-march-prote
 
 **Camps Have Been Scrambling for Counselors. Some Have Even Closed.**\
 `Summer camps have reopened into a tight labor market without the international seasonal workers they often depend on.`\
-https://nytimes.com/2021/07/24/us/summer-camp-problems.html?searchResultPosition=2
+https://nytimes.com/2021/07/24/us/summer-camp-reopen-counselors.html?searchResultPosition=2
 
 **A Romanian Gymnast Chases Her Nation’s Legacy**\
 `In 2014, Larisa Iordache came closer than anyone to beating Simone Biles. That’s out now, but one last medal could help her reclaim Romania’s gymnastics glory after years of heartbreak.`\
