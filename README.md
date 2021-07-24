@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/24/sports/olympics/richard-carapaz-ecuador-road-race
 
 **And Still She Rises. And Rises. And Rises.**\
 `Simone Biles, the greatest gymnast of all time, who has used her influence to speak out against injustices, arrives at her second Olympics prepared to soar above the sport’s devastating recent history.`\
-https://nytimes.com/2021/07/24/sports/olympics/and-still-she-rises-and-rises-and-rises.html?searchResultPosition=2
+https://nytimes.com/2021/07/24/sports/olympics/simone-biles-gymnastics.html?searchResultPosition=2
 
 **They Waited, They Worried, They Stalled. This Week, They Got the Shot.**\
 `The U.S. vaccine rollout has plateaued and the course of the coronavirus pandemic in this country may depend on how many people are ultimately swayed to get vaccinated.`\
