@@ -1,40 +1,40 @@
-**Kohei Uchimura, Japan’s gymnastics hero, slips, falls and loses out on a medal.**\
-`Considered one of the best male gymnasts ever, Uchimura may have ended his career when he failed to qualify for the high bar finals.`\
-https://nytimes.com/2021/07/24/sports/olympics/kohei-uchimura-japan-gymnastics-fall.html?searchResultPosition=1
+**And Still She Rises. And Rises. And Rises.**\
+`Simone Biles, the greatest gymnast of all time, who has used her influence to speak out against injustices, arrives at her second Olympics prepared to soar above the sport’s devastating recent history.`\
+https://nytimes.com/2021/07/24/sports/olympics/and-still-she-rises-and-rises-and-rises.html?searchResultPosition=1
 
-**3x3 Basketball Is a New Sport, but It Already Has a G.O.A.T.**\
-`Since 2012, FIBA has organized six World Cup tournaments in three-on-three basketball. Dusan Bulut and his Serbian teammates have won four of them.`\
-https://nytimes.com/2021/07/24/sports/olympics/3x3-basketball-serbia-dusan-bulut.html?searchResultPosition=2
+**They Waited, They Worried, They Stalled. This Week, They Got the Shot.**\
+`The U.S. vaccine rollout has plateaued and the course of the coronavirus pandemic in this country may depend on how many people are ultimately swayed to get vaccinated.`\
+https://nytimes.com/2021/07/24/us/covid-vaccine-hesitant.html?searchResultPosition=2
 
-**A Rebellion Is Stirring in Boris Johnson’s Backyard**\
-`Brexit helped destroy Labour’s “red wall” in England’s North. Now, it’s coming for the Conservatives’ “blue wall” in the South.`\
-https://nytimes.com/2021/07/24/world/europe/uk-conservatives-blue-wall.html?searchResultPosition=3
+**They Were Once Luxury Venues. Now They Are Grim Covid Camps.**\
+`As an outbreak seizes Cambodia, patients who test positive for the virus say they are being forced into quarantine centers that are more like makeshift prisons than hospitals.`\
+https://nytimes.com/2021/07/24/world/asia/cambodia-covid-camps.html?searchResultPosition=3
 
-**Novak Djokovic won his first match quickly to beat the heat.**\
-`The sweaty, stifling weather is a twist in this tournament even for the stars like Djokovic, Naomi Osaka and Ashleigh Barty.`\
-https://nytimes.com/2021/07/24/sports/olympics/tennis-heat-novak-djokovic.html?searchResultPosition=4
+**Spain Pledged Citizenship to Sephardic Jews. Now They Feel Betrayed.**\
+`In 2015, Spain said it would give citizenship to the descendants of Sephardic Jews expelled during the Spanish Inquisition. Then rejections started pouring in this summer.`\
+https://nytimes.com/2021/07/24/world/europe/spain-jews-citizenship-reparations.html?searchResultPosition=4
 
-**Japan’s Diverse Olympic Stars Reflect a Country That’s Changing (Slowly)**\
-`Multiracial athletes like Naomi Osaka and Rui Hachimura are helping to redefine what it means to be Japanese. But they are often still seen as outsiders.`\
-https://nytimes.com/2021/07/24/world/asia/japan-olympics-diversity.html?searchResultPosition=5
+**A Long, Joyful Ride**\
+`You know you have a good job when it lets you try a jetpack. But after 21 years of thrills at The Times, it’s time for my next adventure: the classroom.`\
+https://nytimes.com/2021/07/24/insider/john-schwartz-farewell.html?searchResultPosition=5
 
-**Katie Ledecky’s Unlikely New Role: Underdog?**\
-`Ariarne Titmus of Australia has been faster lately, even in one of Ledecky’s best races. How will the defending Olympic champion respond to the threat?`\
-https://nytimes.com/2021/07/24/sports/olympics/katie-ledecky-titmus-race.html?searchResultPosition=6
+**For Older Adults, Home Care Has Become Harder to Find**\
+`Staffing shortages have long plagued the home care industry. But the pandemic has intensified the problem.`\
+https://nytimes.com/2021/07/24/health/coronavirus-elderly-home-care.html?searchResultPosition=6
 
-**A Street Skateboarder Could Deliver Japan’s First Gold**\
-`Yuto Horigome beat the American favorite Nyjah Huston at the worlds. Can he do it again at the Tokyo Olympics?`\
-https://nytimes.com/2021/07/24/sports/olympics/yuto-horigome-japan-skateboard.html?searchResultPosition=7
+**What Should Happen to Our Data When We Die?**\
+`Anthony Bourdain’s A.I.-generated voice is just the latest example of a celebrity being digitally reincarnated. These days, though, it could happen to any of us.`\
+https://nytimes.com/2021/07/24/style/what-should-happen-to-our-data-when-we-die.html?searchResultPosition=7
 
-**The youngest athlete at the Games, a 12-year-old Syrian, goes out in a loss in table tennis.**\
-`Hend Zaza lost on Saturday in straight sets to Liu Jia of Austria in the opening round of the women’s singles table tennis tournament.`\
-https://nytimes.com/2021/07/24/sports/olympics/hend-zaza-syria-table-tennis-youngest-athlete.html?searchResultPosition=8
+**After New York Tests a New Way of Voting, Other Cities May Do the Same**\
+`Elected leaders and voters in New York remain split over the ranked-choice system, but officials in Washington and elsewhere like the results.`\
+https://nytimes.com/2021/07/24/nyregion/ranked-choice-voting-nyc.html?searchResultPosition=8
 
-**Corrections: July 24, 2021**\
-`Corrections that appeared in print on Saturday, July 24, 2021.`\
-https://nytimes.com/2021/07/24/pageoneplus/corrections-july-24-2021.html?searchResultPosition=9
+**Is the Hamptons Party Moving to Springs?**\
+`The artsy and quieter hamlet of the Hamptons has seen an influx of Manhattanites, buzzy restaurants and even celebrities.`\
+https://nytimes.com/2021/07/24/style/is-the-hamptons-party-moving-to-springs.html?searchResultPosition=9
 
-**Quotation of the Day: Virus Surge Complicates Return-to-Office Plans**\
-`Quotation of the Day for Saturday, July 24, 2021.`\
-https://nytimes.com/2021/07/24/todayspaper/quotation-of-the-day-virus-surge-complicates-return-to-office-plans.html?searchResultPosition=10
+**Are You in an ‘Inter-Intimate’ Relationship?**\
+`For some couples, having different nonsexual intimacy preferences can be a strain on the relationship. Here’s how to meet in the middle.`\
+https://nytimes.com/2021/07/24/style/are-you-in-an-inter-intimate-relationship.html?searchResultPosition=10
 
