@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/24/world/france-protests-covid-health-pass.html?searchResultPosition=1
 
 **U.S. Moves to Drop Cases Against Chinese Researchers Accused of Hiding Military Ties**\
-`The arrests were part of a Trump-era initiative aimed at curbing Beijing’s efforts to steal intellectual property, corporate secrets, military intelligence.`\
+`The arrests were part of a Trump-era initiative aimed at curbing Beijing’s efforts to steal intellectual property, corporate secrets, and military intelligence.`\
 https://nytimes.com/2021/07/24/us/politics/chinese-researchers-justice-dept.html?searchResultPosition=2
 
 **Frito-Lay Workers in Kansas Ratify Contract, Ending Strike**\
