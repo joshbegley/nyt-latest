@@ -2,8 +2,8 @@
 `The forecast for the coming week suggests there will be few places in the continental United States to find relief.`\
 https://nytimes.com/article/heat-wave-cause.html?searchResultPosition=1
 
-**Maria Taylor makes her NBC debut during rebroadcast of opening ceremony.**\
-`Besides the Olympics, Taylor is expected to contribute to NBC’s broadcast of “Sunday Night Football” and other sports.`\
+**Maria Taylor makes her NBC debut during rebroadcast of Olympics opening ceremony.**\
+`Besides the Olympics, Taylor will contribute to NBC’s broadcast of the Super Bowl and “Sunday Night Football.”`\
 https://nytimes.com/2021/07/23/sports/olympics/maria-taylor-nbc-olympics.html?searchResultPosition=2
 
 **Positive Coronavirus Test Halts Shakespeare in the Park for Third Night**\
