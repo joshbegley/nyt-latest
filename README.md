@@ -26,15 +26,4 @@ https://nytimes.com/2021/07/24/sports/olympics/gymnastics-balance-beam.html?sear
 `Want to follow the women’s gymnastics competition in Tokyo, but don’t understand the skills or how they’re scored? Here’s a guide.`\
 https://nytimes.com/2021/07/24/sports/olympics/gymnastics-vault.html?searchResultPosition=7
 
-**U.S. broadcast coverage includes skateboarding, softball and beach volleyball.**\
-`Simone Biles is set to compete in four events and skateboarding makes its Olympics debut in Tokyo.`\
-https://nytimes.com/2021/07/24/sports/olympics/olympics-schedule-tokyo.html?searchResultPosition=8
-
-**Your Guide to Olympics Gymnastics: Floor Exercise**\
-`Want to follow the women’s gymnastics competition in Tokyo, but don’t understand the skills or how they’re scored? Here’s a guide.`\
-https://nytimes.com/2021/07/24/sports/olympics/gymnastics-floor-exercise.html?searchResultPosition=9
-
-**Star Search**\
-`Chandi Deitmer’s dazzling debut goes right over our heads.`\
-https://nytimes.com/2021/07/24/crosswords/daily-puzzle-2021-07-25.html?searchResultPosition=10
-
+**Here’s a photo recap of Day 1 at the Olympics.**\
