@@ -30,11 +30,11 @@ https://nytimes.com/2021/07/25/us/politics/pelosi-adam-kinzinger-capitol-riot.ht
 `Salzburg is back, opening with a week of Ouverture Spirituelle concerts that project the ideal of paradise on the pandemonium of reality.`\
 https://nytimes.com/2021/07/25/arts/music/salzburg-festival-ouverture-spirituelle.html?searchResultPosition=8
 
+**‘It’s not going to be good.’ Fauci sounds alarm over low vaccination rates fueling Covid surge.**\
+`With only about half of Americans vaccinated, Dr. Anthony Fauci and other current and former health officials vigorously pressed the case on Sunday that inoculations were most best way to stem a tide of new Covid cases.`\
+https://nytimes.com/2021/07/25/health/fauci-covid-surge-vaccinations.html?searchResultPosition=9
+
 **Medal ceremonies at Tokyo Games require social distance and limits on not wearing a mask.**\
 `The International Olympic Committee announced a modification to medal awarding procedures after concern that athletes were openly violating strict coronavirus protocols.`\
-https://nytimes.com/2021/07/25/sports/olympics/ioc-mask-mandate-medal-ceremony.html?searchResultPosition=9
-
-**Soccer Team Was Lone Bright Spot in West Bank Village. Virus Took That, Too.**\
-`Despite a fan base of just 1,400 people, the Wadi al-Nis club was a perennial West Bank powerhouse. But the team — most of whose players are related — could not defeat the coronavirus.`\
-https://nytimes.com/2021/07/25/world/middleeast/west-bank-soccer-palestinians.html?searchResultPosition=10
+https://nytimes.com/2021/07/25/sports/olympics/ioc-mask-mandate-medal-ceremony.html?searchResultPosition=10
 
