@@ -14,27 +14,27 @@ https://nytimes.com/2021/07/25/sports/olympics/surfing-waves.html?searchResultPo
 `Yuto Horigome won gold in the men’s street competition only eight miles from where he grew up, and after Nyjah Huston fell four times in a row.`\
 https://nytimes.com/2021/07/25/sports/olympics/yuto-horigome-nyjah-huston-skateboarding.html?searchResultPosition=4
 
+**Oksana Chusovitina, at 46, gets a standing ovation at her last Olympics.**\
+`The gymnast who competes for Uzbekistan has participated in eight Games.`\
+https://nytimes.com/2021/07/25/sports/olympics/oksana-chusovitina-eighth-olympics.html?searchResultPosition=5
+
 **In Nagorno-Karabakh, Land Mines, Bulldozers and Lingering Tensions**\
 `Despite the hurdles, territory seized by Azerbaijan from Armenia in last year’s war is being transformed with breathtaking speed.`\
-https://nytimes.com/2021/07/25/world/europe/azerbaijan-armenia-nagorno-karabakh.html?searchResultPosition=5
+https://nytimes.com/2021/07/25/world/europe/azerbaijan-armenia-nagorno-karabakh.html?searchResultPosition=6
 
 **Facebook Wants You to Connect With God. On Facebook.**\
 `The company is intensifying formal partnerships with faith groups across the United States and shaping the future of religious experience.`\
-https://nytimes.com/2021/07/25/us/facebook-church.html?searchResultPosition=6
+https://nytimes.com/2021/07/25/us/facebook-church.html?searchResultPosition=7
 
 **In Mrs. McQueen’s Summer Classroom, an 8-Year-Old Races to Catch Up**\
 `After months of remote learning, Zion Graham is in summer school. But can a six-week program make up for his lost year?`\
-https://nytimes.com/2021/07/25/us/pandemic-summer-school.html?searchResultPosition=7
+https://nytimes.com/2021/07/25/us/pandemic-summer-school.html?searchResultPosition=8
 
 **Fauci Wants to Make Vaccines for the Next Pandemic Before It Hits**\
 `If funded, a government program costing several billion dollars could develop “prototype” vaccines to protect against 20 families of viruses.`\
-https://nytimes.com/2021/07/25/health/fauci-prototype-vaccines.html?searchResultPosition=8
+https://nytimes.com/2021/07/25/health/fauci-prototype-vaccines.html?searchResultPosition=9
 
 **Nancy Mace Called Herself a ‘New Voice’ for the G.O.P. Then She Pivoted.**\
 `Her shift reflects how rank-and-file Republicans — even those who may disagree with him — have decided it is too perilous to openly challenge former President Donald J. Trump.`\
-https://nytimes.com/2021/07/25/us/politics/nancy-mace-republican-party.html?searchResultPosition=9
-
-**Child Tax Credit Payments Have Begun. Should You Opt Out?**\
-`While the payments in advance of tax season are a welcome relief for many families, there may be reasons for others to decline the money, for now.`\
-https://nytimes.com/2021/07/25/your-money/child-tax-credit.html?searchResultPosition=10
+https://nytimes.com/2021/07/25/us/politics/nancy-mace-republican-party.html?searchResultPosition=10
 
