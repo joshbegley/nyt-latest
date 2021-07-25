@@ -8,7 +8,7 @@ https://nytimes.com/2021/07/24/sports/olympics/skateboarding-olympics-huston.htm
 
 **Jackie Mason, 93, Dies; Turned Kvetching Into Comedy Gold**\
 `He kept the borscht belt style of comedy alive long after the Catskills resorts had closed and eventually brought it, triumphantly, to Broadway.`\
-https://nytimes.com/2021/07/24/arts/jackie-mason-dead.html?searchResultPosition=3
+https://nytimes.com/2021/07/24/arts/jackie-mason-93-dies-turned-kvetching-into-comedy-gold.html?searchResultPosition=3
 
 **Your Guide to Olympics Gymnastics: Uneven Bars**\
 `Want to follow the women’s gymnastics competition in Tokyo, but don’t understand the skills or how they’re scored? Here’s a guide.`\
