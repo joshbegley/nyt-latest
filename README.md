@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/25/sports/olympics/taekwondo-olympics-medals.html?se
 `A selection of New Yorkers reflecting on their pandemic experiences became part of this piece, conceived and choreographed by Andrea Miller.`\
 https://nytimes.com/2021/07/25/arts/dance/you-are-here-review.html?searchResultPosition=8
 
-**Biden’s ‘You Shall Overcome’ Punt**\
+**Mr. President, You’re Just Plain Wrong on Voter Suppression**\
 `Black people need their voting rights protected. The president won't go all-out to help them.`\
 https://nytimes.com/2021/07/25/opinion/joe-biden-voting-rights.html?searchResultPosition=9
 
