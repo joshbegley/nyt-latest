@@ -1,4 +1,4 @@
-**Chase Kalisz wins the U.S. its first gold medal in Tokyo.**\
+**Chase Kalisz wins the first U.S. gold medal in Tokyo.**\
 `Kalisz and Jay Litherland went 1-2 in the 400-meter individual medley.`\
 https://nytimes.com/2021/07/24/sports/olympics/chase-kalisz-400m-swimming-gold-litherland.html?searchResultPosition=1
 
