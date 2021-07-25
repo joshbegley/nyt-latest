@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/25/sports/olympics/mbc-broadcaster-apology-olympics-
 `With the militants making advances across Afghanistan, the top American general there suggested that airstrikes may continue, even with the U.S. troop pullout largely completed.`\
 https://nytimes.com/2021/07/25/world/europe/us-taliban-airstrikes-afghanistan.html?searchResultPosition=2
 
-**Our Masks Are Back on Out West, This Time for Smoke**\
+**The Great Outdoors Is Giving Way to the Great Indoors**\
 `Covid-19 isn't the only reason to wear a mask in the West.`\
 https://nytimes.com/2021/07/25/opinion/west-coast-fires-smoke.html?searchResultPosition=3
 
