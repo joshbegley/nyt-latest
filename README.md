@@ -1,40 +1,40 @@
+**The Week in Business: Rethinking Office Plans**\
+`A new spike in coronavirus cases, driven by the highly infectious Delta variant, rattled investors and companies last week.`\
+https://nytimes.com/2021/07/25/business/the-week-in-business-office-return.html?searchResultPosition=1
+
 **Vaccines, Tokyo Olympics, Summer Camp: Your Weekend Briefing**\
 `Here’s what you need to know about the week’s top stories.`\
-https://nytimes.com/2021/07/25/briefing/vaccines-tokyo-olympics-summer-camp.html?searchResultPosition=1
+https://nytimes.com/2021/07/25/briefing/vaccines-tokyo-olympics-summer-camp.html?searchResultPosition=2
 
 **He Is Olympic Surfing’s Wave Whisperer**\
 `Kurt Korte does not control the waves for the Games’ debut surfing competition. His job is to predict when the best ones will arrive.`\
-https://nytimes.com/2021/07/25/sports/olympics/surfing-waves.html?searchResultPosition=2
+https://nytimes.com/2021/07/25/sports/olympics/surfing-waves.html?searchResultPosition=3
 
 **A Son of Tokyo Wins Skateboarding’s First Gold**\
 `Yuto Horigome won gold in the men’s street competition only eight miles from where he grew up, and after Nyjah Huston fell four times in a row.`\
-https://nytimes.com/2021/07/25/sports/olympics/yuto-horigome-nyjah-huston-skateboarding.html?searchResultPosition=3
+https://nytimes.com/2021/07/25/sports/olympics/yuto-horigome-nyjah-huston-skateboarding.html?searchResultPosition=4
 
 **In Nagorno-Karabakh, Land Mines, Bulldozers and Lingering Tensions**\
 `Despite the hurdles, territory seized by Azerbaijan from Armenia in last year’s war is being transformed with breathtaking speed.`\
-https://nytimes.com/2021/07/25/world/europe/azerbaijan-armenia-nagorno-karabakh.html?searchResultPosition=4
+https://nytimes.com/2021/07/25/world/europe/azerbaijan-armenia-nagorno-karabakh.html?searchResultPosition=5
 
 **Facebook Wants You to Connect With God. On Facebook.**\
 `The company is intensifying formal partnerships with faith groups across the United States and shaping the future of religious experience.`\
-https://nytimes.com/2021/07/25/us/facebook-church.html?searchResultPosition=5
+https://nytimes.com/2021/07/25/us/facebook-church.html?searchResultPosition=6
 
 **In Mrs. McQueen’s Summer Classroom, an 8-Year-Old Races to Catch Up**\
 `After months of remote learning, Zion Graham is in summer school. But can a six-week program make up for his lost year?`\
-https://nytimes.com/2021/07/25/us/pandemic-summer-school.html?searchResultPosition=6
+https://nytimes.com/2021/07/25/us/pandemic-summer-school.html?searchResultPosition=7
 
 **Fauci Wants to Make Vaccines for the Next Pandemic Before It Hits**\
 `If funded, a government program costing several billion dollars could develop “prototype” vaccines to protect against 20 families of viruses.`\
-https://nytimes.com/2021/07/25/health/fauci-prototype-vaccines.html?searchResultPosition=7
+https://nytimes.com/2021/07/25/health/fauci-prototype-vaccines.html?searchResultPosition=8
 
 **Nancy Mace Called Herself a ‘New Voice’ for the G.O.P. Then She Pivoted.**\
 `Her shift reflects how rank-and-file Republicans — even those who may disagree with him — have decided it is too perilous to openly challenge former President Donald J. Trump.`\
-https://nytimes.com/2021/07/25/us/politics/nancy-mace-republican-party.html?searchResultPosition=8
+https://nytimes.com/2021/07/25/us/politics/nancy-mace-republican-party.html?searchResultPosition=9
 
 **Child Tax Credit Payments Have Begun. Should You Opt Out?**\
 `While the payments in advance of tax season are a welcome relief for many families, there may be reasons for others to decline the money, for now.`\
-https://nytimes.com/2021/07/25/your-money/child-tax-credit.html?searchResultPosition=9
-
-**Homes That Sold for Around $500,000 or Less**\
-`Recent residential sales in New York City and the region.`\
-https://nytimes.com/2021/07/25/realestate/homes-that-sold-for-around-500000-or-less.html?searchResultPosition=10
+https://nytimes.com/2021/07/25/your-money/child-tax-credit.html?searchResultPosition=10
 
