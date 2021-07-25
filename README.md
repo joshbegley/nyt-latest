@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/25/pageoneplus/corrections-july-25-2021.html?searchR
 https://nytimes.com/2021/07/25/sports/olympics/april-ross-alix-klineman-us-beach-volleyball.html?searchResultPosition=3
 
 **No. 1 seed Ashleigh Barty is eliminated from the women’s tennis tournament.**\
-`Her ouster leaves Naomi Osaka, Japan’s biggest star this Olympics, as the top seed in women’s singles before her first match.`\
+`Her ouster left Naomi Osaka, Japan’s biggest star this Olympics, as the top seed in women’s singles before her first match even began.`\
 https://nytimes.com/2021/07/24/sports/olympics/tennis-ashleigh-barty-eliminated.html?searchResultPosition=4
 
 **What is honey used for? In gymnastics, it’s mostly the men using it.**\
