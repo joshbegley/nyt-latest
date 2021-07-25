@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/25/sports/olympics/swimming-tokyo-olympics-how-to-wa
 https://nytimes.com/video/world/asia/100000007885064/india-landslide-himachal-pradesh-himalayas.html?searchResultPosition=3
 
 **Taekwondo Is Path to Medals for Countries That Rarely Get Them**\
-`The Ivory Coast and Jordan won their first-ever Olympic golds, thanks to taekwondo, as did Taiwan. Afghanistan’s only Olympic medals, a pair of bronzes, came from it, too.`\
+`Ivory Coast and Jordan won their first-ever Olympic golds, thanks to taekwondo, as did Taiwan. Afghanistan’s only Olympic medals, a pair of bronzes, came from it, too.`\
 https://nytimes.com/2021/07/25/sports/olympics/taekwondo-olympics-medals.html?searchResultPosition=4
 
 **Review: In ‘You Are Here,’ Dancing and Splashing at Lincoln Center**\
