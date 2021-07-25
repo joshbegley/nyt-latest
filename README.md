@@ -14,7 +14,7 @@ https://nytimes.com/2021/07/25/business/the-week-in-business-office-return.html?
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2021/07/25/briefing/vaccines-tokyo-olympics-summer-camp.html?searchResultPosition=4
 
-**He Is Olympic Surfing’s Wave Whisperer**\
+**Meet Olympic Surfing’s Wave Whisperer**\
 `Kurt Korte does not control the waves for the Games’ debut surfing competition. His job is to predict when the best ones will arrive.`\
 https://nytimes.com/2021/07/25/sports/olympics/surfing-waves.html?searchResultPosition=5
 
