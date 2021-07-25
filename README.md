@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/25/world/africa/nigeria-fisherwomen-chevron.html?sea
 https://nytimes.com/2021/07/25/nyregion/metropolitan-diary.html?searchResultPosition=3
 
 **Simone Biles starts Olympics with floor exercise that isn’t up to her usual standards.**\
-`By Juliet Macur`\
+`In her third tumbling pass, her momentum caused her to fly out of bounds and off the competition floor. It was one of her worst floor performances of the year.`\
 https://nytimes.com/2021/07/25/sports/olympics/simone-biles-floor-exercise.html?searchResultPosition=4
 
 **Australia Dominates Again in the Women’s 4x100 Freestyle**\
