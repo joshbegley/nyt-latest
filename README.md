@@ -2,7 +2,7 @@
 `Surfing is making its debut at the 2020 Olympics. The event is being held about 60 miles away from Tokyo at Tsurigasaki Beach.`\
 https://nytimes.com/2021/07/24/sports/surfing-olympics.html?searchResultPosition=1
 
-**Rodney Alcala, ‘The Dating Game’ Serial Killer, Dies**\
+**Rodney Alcala, the ‘Dating Game’ Serial Killer, Dies**\
 `A longhaired photographer who lured women by offering to take their picture, Mr. Alcala, 77, had been convicted of five murders in Orange County, Calif., and two in New York, all in the 1970s.`\
 https://nytimes.com/2021/07/24/us/rodney-alcala-dead-dating-game.html?searchResultPosition=2
 
