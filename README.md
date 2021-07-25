@@ -1,5 +1,5 @@
 **Biles launches to top vault spot even without widely anticipated move.**\
-`By Juliet Macur`\
+`Simone Biles didn’t need the Yurchenko double pike vault during qualifying.`\
 https://nytimes.com/2021/07/25/sports/olympics/simone-biles-vault.html?searchResultPosition=1
 
 **The Fisherwomen, Chevron and the Leaking Pipe**\
