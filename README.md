@@ -30,11 +30,11 @@ https://nytimes.com/2021/07/25/realestate/homes-that-sold-for-around-500000-or-l
 `The beloved children’s author and illustrator died in May. But his irrepressible spirit lives on in his books.`\
 https://nytimes.com/2021/07/25/books/review/eric-carle-tiny-seeds-very-hungry-caterpillar.html?searchResultPosition=8
 
+**Jordan Chiles is having an off day.**\
+`Chiles had been the only U.S. team member to avoid a major mistake in the past year. That changed on Sunday.`\
+https://nytimes.com/2021/07/25/sports/olympics/jordan-chiles.html?searchResultPosition=9
+
 **Sunisa Lee’s complex bars routine puts her in top spot after her rotation.**\
 `Lee, in the uneven bars, has one event where she’s a favorite even above Simone Biles.`\
-https://nytimes.com/2021/07/25/sports/olympics/sunisa-lee-uneven-bars.html?searchResultPosition=9
-
-**Biles launches to top vault spot even without widely anticipated move.**\
-`Simone Biles didn’t need the Yurchenko double pike vault during qualifying.`\
-https://nytimes.com/2021/07/25/sports/olympics/simone-biles-vault.html?searchResultPosition=10
+https://nytimes.com/2021/07/25/sports/olympics/sunisa-lee-uneven-bars.html?searchResultPosition=10
 
