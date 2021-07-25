@@ -6,8 +6,8 @@ https://nytimes.com/2021/07/24/sports/surfing-olympics.html?searchResultPosition
 `A longhaired photographer who lured women by offering to take their picture, Mr. Alcala, 77, had been convicted of five murders in Orange County, Calif., and two in New York, all in the 1970s.`\
 https://nytimes.com/2021/07/24/us/rodney-alcala-dead-dating-game.html?searchResultPosition=2
 
-**A new Olympic sport makes a sweltering start.**\
-`The men’s street contest brings skateboarding into the Games with a breakout star in Nyjah Huston of the United States.`\
+**In skateboarding’s premiere, Nyjah Huston and Yuto Horigome battle each other and the heat.**\
+`The men’s street contest brings skateboarding into the Games with the sport’s biggest names competing.`\
 https://nytimes.com/2021/07/24/sports/olympics/skateboarding-olympics-huston.html?searchResultPosition=3
 
 **Jackie Mason, 93, Dies; Turned Kvetching Into Comedy Gold**\
