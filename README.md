@@ -1,6 +1,6 @@
 **Why Do Parents Keep Hearing About the Microbiome?**\
 `Some companies are marketing baby soaps, lotions, supplements and more as being ‘biome-friendly.’ But there’s reason to be skeptical.`\
-https://nytimes.com/2021/07/25/parenting/baby/microbiome-health-parents.html?searchResultPosition=1
+https://nytimes.com/2021/07/25/parenting/baby/parents-microbiome-health.html?searchResultPosition=1
 
 **How to Reopen a Festival City When a Virus Lurks: Very Anxiously**\
 `There’s a special uneasiness unique to cities like New Orleans, highly dependent on close, in-person contact.`\
