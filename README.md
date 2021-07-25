@@ -22,8 +22,8 @@ https://nytimes.com/interactive/2021/07/25/sports/olympics/4x100-relay-swimming-
 `Kimia Alizadeh was a star in Iran for winning bronze in 2016, but she left the country in 2020 and is now part of a refugee team.`\
 https://nytimes.com/2021/07/25/sports/olympics/kimia-alizadeh-iran-taekwondo.html?searchResultPosition=6
 
-**Covid-19 at the Olympics: Bryson DeChambeau drops out of the men’s golf tournament after testing positive.**\
-`DeChambeau tested positive as part of normal procedures for all athletes and others heading to Tokyo for the Games, U.S.A. Golf said.`\
+**Bryson DeChambeau and Jon Rahm drop out of golf after testing positive.**\
+`The last two U.S. Open winners tested positive as part of normal procedures for all athletes heading to Tokyo for the Games.`\
 https://nytimes.com/2021/07/25/sports/olympics/bryson-dechambeau-covid-drops-out-olympics.html?searchResultPosition=7
 
 **Quotation of the Day: Unbowed, Biles Keeps on Rising Five Years Later**\
