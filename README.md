@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/26/us/politics/thomas-barrack-trump-not-guilty.html?
 https://nytimes.com/2021/07/26/business/economy/inflation-rise.html?searchResultPosition=3
 
 **Deported Veterans Long to Return From Exile. Some Will Get the Chance.**\
-`Removed to countries they barely knew after serving time for their crimes, the veterans hope to finally return. “Everything I am is American.”`\
+`Removed to countries they barely knew after serving time for their crimes, the veterans hope to finally return. “Everything that I am is American.”`\
 https://nytimes.com/2021/07/26/us/deported-immigrants-us-veterans.html?searchResultPosition=4
 
 **A gnarly brown Christmas? Tree farms dry out in the Pacific Northwest.**\
