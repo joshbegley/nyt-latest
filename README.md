@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/26/us/politics/lebron-james-criminal-justice-reform.html?searchResultPosition=1
 
 **Two insurance giants call off their planned merger after a D.O.J. lawsuit.**\
-`Aon and Willis Towers Watson announced the deal in 2020 and said a trial would delay the merger until 2022.`\
+`The Department of Justice’s case against the proposed merger of Aon and Willis Towers Watson was the first big trustbusting move by the Biden administration.`\
 https://nytimes.com/2021/07/26/business/aon-willis-towers-watson-merger.html?searchResultPosition=2
 
 **As Cyberattacks Surge, Security Start-Ups Reap the Rewards**\
