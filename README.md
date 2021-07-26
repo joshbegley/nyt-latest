@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/26/briefing/breakthrough-cases-covid-delta.html?sear
 https://nytimes.com/2021/07/26/world/france-approves-a-contentious-law-making-health-passes-mandatory.html?searchResultPosition=2
 
 **China moves against private tutoring companies, causing shares to plunge.**\
-`Beijing’s latest regulatory move in the tech sector requires online tutoring firms to become nonprofits.`\
+`Beijing’s latest regulatory move in the tech sector requires online tutoring firms to become nonprofit organizations.`\
 https://nytimes.com/2021/07/26/business/china-private-education.html?searchResultPosition=3
 
 **Breakthrough Infections, Explained**\
