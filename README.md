@@ -2,7 +2,7 @@
 `Absolute rules about children and technology don’t help, says a child development expert.`\
 https://nytimes.com/2021/07/26/technology/kids-screen-time.html?searchResultPosition=1
 
-**At the F.D.A.’s urging, Pfizer-BioNTech and Moderna are expanding their studies of children under 11.**\
+**At the F.D.A.’s urging, Pfizer-BioNTech and Moderna are expanding their studies of children 5 to 11.**\
 `It was unclear whether expanding the studies will have any impact on the timing of when vaccines could be authorized for children on an emergency basis.`\
 https://nytimes.com/2021/07/26/us/politics/fda-covid-vaccine-trials-children.html?searchResultPosition=2
 
