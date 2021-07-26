@@ -4,7 +4,7 @@ https://nytimes.com/video/world/asia/100000007886491/india-monsoons.html?searchR
 
 **Is Jeff Bezos an Astronaut Now?**\
 `Blue Origin pinned custom astronaut wings to his flight suit. The Federal Aviation Administration may disagree. Or it may not even matter.`\
-https://nytimes.com/2021/07/26/science/is-jeff-bezos-an-astronaut-now.html?searchResultPosition=2
+https://nytimes.com/2021/07/26/science/jeff-bezos-astronaut-definition.html?searchResultPosition=2
 
 **Hollywood Head Spinner: Universal Spends Big for New ‘Exorcist’ Trilogy**\
 `The deal, expected to be announced this week, is for more than $400 million and is a direct response to the streaming giants who are upending the film industry’s economics.`\
