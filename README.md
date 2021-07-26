@@ -18,7 +18,7 @@ https://nytimes.com/video/world/europe/100000007886604/britain-belgium-flooding-
 `Mr. Higgins, an outspoken coronavirus skeptic who has drafted a bill to make vaccine mandates a federal crime, made the announcement on Facebook over the weekend.`\
 https://nytimes.com/2021/07/26/us/politics/26virus-briefing-clay-higgins-covid.html?searchResultPosition=5
 
-**Weight lifter Hidilyn Diaz makes history, securing the first gold for the Philippines.**\
+**Weight lifter Hidilyn Diaz makes history, securing the first Olympic gold for the Philippines.**\
 `Diaz broke the country’s nearly century-long drought by capturing the women’s 55 kilogram division while setting two Olympic records.`\
 https://nytimes.com/2021/07/26/sports/olympics/philippines-gold-medal.html?searchResultPosition=6
 
