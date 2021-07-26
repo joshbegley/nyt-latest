@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/25/us/phil-valentine-covid-nashville-.html?searchResultPosition=1
 
 **Toyota Led on Clean Cars. Now Critics Say It Works to Delay Them.**\
-`The auto giant bet on hydrogen power, but as the world moves toward electric, the company is fighting climate regulations in an apparent effort to buy time.`\
+`The auto giant bet on hydrogen power, but as the world moves toward electric the company is fighting climate regulations in an apparent effort to buy time.`\
 https://nytimes.com/2021/07/25/climate/toyota-electric-hydrogen.html?searchResultPosition=2
 
 **It’s a 2-Team A.L. East Race. The Yankees Aren’t One of Them.**\
