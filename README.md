@@ -20,7 +20,7 @@ https://nytimes.com/2021/07/26/sports/olympics/gymnastics-womens-final-time-chan
 
 **Britney Spears Files to Remove Her Father From Conservatorship**\
 `More than 13 years after a strict legal arrangement gave James P. Spears control of the singer’s affairs, a new lawyer for Ms. Spears asked the court to remove him from the arrangement.`\
-https://nytimes.com/2021/07/26/arts/music/britney-spears-conservatorship-father.html?searchResultPosition=6
+https://nytimes.com/2021/07/26/arts/music/britney-spears-conservatorship-father-jamie.html?searchResultPosition=6
 
 **Cooking With the Abundance of Maine**\
 `“The Maine Farm Table Cookbook” includes recipes from restaurants, farms, dairies and more across the state.`\
