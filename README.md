@@ -35,6 +35,6 @@ https://nytimes.com/2021/07/26/style/pandemic-origami-cranes.html?searchResultPo
 https://nytimes.com/2021/07/26/sports/olympics/russia-roc-tokyo.html?searchResultPosition=9
 
 **V.A. Issues Vaccine Mandate for Health Care Workers, a First for a Federal Agency**\
-`Many health care workers who provide direct patient care have eight weeks to get inoculated against the coronavirus or face penalties including possible removal.`\
+`Employees who provide direct patient care have eight weeks to get inoculated against the coronavirus or face penalties including possible removal.`\
 https://nytimes.com/2021/07/26/us/politics/veterans-affairs-coronavirus-covid-19.html?searchResultPosition=10
 
