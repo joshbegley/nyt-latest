@@ -18,7 +18,7 @@ https://nytimes.com/2021/07/26/world/europe/wildfires-italy-sardinia.html?search
 `Many government programs crucial to keeping Americans afloat through the pandemic are going away soon. But there are still ways to get help. `\
 https://nytimes.com/interactive/2021/07/26/your-money/pandemic-programs-ending.html?searchResultPosition=5
 
-**New York is expected to require city workers to be vaccinated by mid-September.**\
+**New York is expected to require city workers to be vaccinated or tested weekly by mid-September.**\
 `Mayor Bill de Blasio’s decision would come after he announced a similar mandate for public health care workers.`\
 https://nytimes.com/2021/07/26/nyregion/new-york-vaccinations-workers.html?searchResultPosition=6
 
