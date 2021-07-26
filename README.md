@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/26/dining/maine-cookbook-recipes.html?searchResultPo
 https://nytimes.com/video/us/politics/100000007887111/delta-variant-travel-bans.html?searchResultPosition=5
 
 **For Decades, Versailles Restaurant Has Been a Hub for Cuban Protests**\
-`Its long history for protesters and revelers continues, with recent demonstrations denouncing shortages of food and medicine in Cuba.`\
+`The Miami restaurant’s long history for protesters and revelers continues, with recent demonstrations denouncing shortages of food and medicine in Cuba.`\
 https://nytimes.com/2021/07/26/dining/cuban-restaurant-miami-versailles.html?searchResultPosition=6
 
 **Your Tuesday Briefing**\
