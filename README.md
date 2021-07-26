@@ -26,15 +26,15 @@ https://nytimes.com/interactive/2021/07/26/sports/olympics/kate-courtney-mountai
 `The moves by President Kais Saied to take control of the country were seen as a threat to the only democracy to emerge from the Arab Spring protests. His opponents called it a “coup.”`\
 https://nytimes.com/2021/07/26/world/middleeast/tunisia-government-dismissed-protests.html?searchResultPosition=7
 
+**Luka Doncic puts 48 on the board for Slovenia.**\
+`By Scott Cacciola`\
+https://nytimes.com/2021/07/26/sports/luka-doncic-puts-48-on-the-board-for-slovenia.html?searchResultPosition=8
+
 **State’s Rent Relief Program Is Off to a Slow Start**\
 `Housing groups say technical glitches have hobbled the website, and tenants have encountered errors that  wiped away entire applications.`\
-https://nytimes.com/2021/07/26/nyregion/new-york-tenants-need.html?searchResultPosition=8
+https://nytimes.com/2021/07/26/nyregion/new-york-tenants-need.html?searchResultPosition=9
 
 **Trading the Welsh Countryside for a Ranch in Wyoming**\
 `For more than 10 years, a British photographer spent her summers at a dude ranch in northwest Wyoming. Here’s what she captured.`\
-https://nytimes.com/2021/07/26/travel/wales-wyoming-cowboy-culture.html?searchResultPosition=9
-
-**How TV Went From David Brent to Ted Lasso**\
-`Two decades ago, TV’s most distinctive stories were defined by a tone of ironic detachment. Today, they’re more often sincere and direct. How did we get here?`\
-https://nytimes.com/2021/07/26/arts/television/ted-lasso-the-office.html?searchResultPosition=10
+https://nytimes.com/2021/07/26/travel/wales-wyoming-cowboy-culture.html?searchResultPosition=10
 
