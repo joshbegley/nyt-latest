@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/26/us/politics/travel-bans-coronavirus.html?searchRe
 
 **What to Watch in the Women’s Gymnastics Team Final**\
 `Simone Biles and Team U.S.A. must move past a mistake-laden qualifying round to edge out the surprising Russian team for gold.`\
-https://nytimes.com/2021/07/26/sports/olympics/gymnastics-womens-final-olympics.html?searchResultPosition=2
+https://nytimes.com/2021/07/26/sports/olympics/gymnastics-womens-final-time-channel-stream.html?searchResultPosition=2
 
 **Britney Spears Files to Remove Her Father From Conservatorship**\
 `More than 13 years after a strict legal arrangement gave James P. Spears control of the singer’s affairs, a new lawyer for Ms. Spears asked the court to remove him from the arrangement.`\
