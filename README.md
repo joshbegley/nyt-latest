@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2021/07/26/sports/olympics/kate-courtney-mountai
 `The moves by President Kais Saied to take control of the country were seen as a threat to the only democracy to emerge from the Arab Spring protests. His opponents called it a “coup.”`\
 https://nytimes.com/2021/07/26/world/middleeast/tunisia-government-dismissed-protests.html?searchResultPosition=2
 
-**State’s Rent Relief Program Off to a Slow Start**\
+**State’s Rent Relief Program Is Off to a Slow Start**\
 `Housing groups say technical glitches have hobbled the website, and tenants have encountered errors that  wiped away entire applications.`\
 https://nytimes.com/2021/07/26/nyregion/new-york-tenants-need.html?searchResultPosition=3
 
