@@ -1,5 +1,5 @@
 **After Covid Diagnosis, a Conservative Radio Host Sends a New Message**\
-`The Tennessee radio host, Phil Valentine, said he was among those who did not need to get vaccinated. Now he is hospitalized in critical condition as he battles Covid-19.`\
+`The Tennessee radio host, Phil Valentine, said he was among those who did not need to get vaccinated. Now, his struggle with the virus is sparking its own discussion.`\
 https://nytimes.com/2021/07/25/us/phil-valentine-covid-nashville-.html?searchResultPosition=1
 
 **Toyota Led on Clean Cars. Now Critics Say It Works to Delay Them.**\
