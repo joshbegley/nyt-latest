@@ -30,8 +30,8 @@ https://nytimes.com/2021/07/26/podcasts/the-daily/coronavirus-vaccines-breakthro
 `Courtney’s success hasn’t been rivaled by other U.S. cyclists in decades. She hopes to propel the sport further into the spotlight with her Olympic debut.`\
 https://nytimes.com/interactive/2021/07/26/sports/olympics/kate-courtney-mountain-bike.html?searchResultPosition=8
 
-**Tunisia’s President Suspends Parliament and Fires Prime Minister**\
-`The moves by President Kais Saied to take control of the country were seen as a threat to the only democracy to emerge from the Arab Spring protests. His opponents called it a “coup.”`\
+**Tunisia’s President Moves to Suspend Parliament and Fire Prime Minister**\
+`The effort by Kais Saied to take control of the country was seen as a threat to the only democracy to emerge from the Arab Spring protests. His opponents called it a “coup.”`\
 https://nytimes.com/2021/07/26/world/middleeast/tunisia-government-dismissed-protests.html?searchResultPosition=9
 
 **Luka Doncic puts 48 on the board for Slovenia.**\
