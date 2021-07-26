@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/25/us/phil-valentine-covid-nashville-.html?searchRes
 https://nytimes.com/2021/07/25/climate/toyota-electric-hydrogen.html?searchResultPosition=3
 
 **It’s a 2-Team A.L. East Race. The Yankees Aren’t One of Them.**\
-`In another brutal loss for the Yankees, the Red Sox won, 5-4, by scoring five times in the eighth inning after Domingo German lost his bid for a no-hitter.`\
+`In another brutal loss for the Yankees, the Red Sox won, 5-4, despite Domingo German having started the eighth inning without having allowed a hit or a run.`\
 https://nytimes.com/2021/07/25/sports/baseball/yankees-red-sox-AL-East.html?searchResultPosition=4
 
 **Steven Weinberg, Groundbreaking Nobelist in Physics, Dies at 88**\
