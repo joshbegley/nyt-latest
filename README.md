@@ -8,7 +8,7 @@ https://nytimes.com/2021/07/26/business/lordstown-motors-yorkville-advisors.html
 
 **Eyeing the SEC, Oklahoma and Texas Plan to Leave the Big 12**\
 `The Longhorns and the Sooners may move to the Southeastern Conference, which could soon have 16 teams. The repercussions would be felt across college sports.`\
-https://nytimes.com/2021/07/26/sports/ncaafootball/eyeing-the-sec-oklahoma-and-texas-plan-to-leave-the-big-12.html?searchResultPosition=3
+https://nytimes.com/2021/07/26/sports/ncaafootball/sec-big-12-oklahoma-texas.html?searchResultPosition=3
 
 **Protests Escalate in Tunisia as Tensions Grow**\
 `Protesters and the police clashed in Tunisia amid worsening economic and health crises. In response, President Kais Saied said he would suspend Parliament and fire the prime minister.`\
