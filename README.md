@@ -14,8 +14,8 @@ https://nytimes.com/2021/07/26/dining/easy-pie-crust-recipes.html?searchResultPo
 `Luis Grijalva, who qualified to race in the Olympics for his native Guatemala, may not be able to return to the United States if he leaves.`\
 https://nytimes.com/2021/07/26/sports/luis-grijalva-runner-guatemala-daca-olympics.html?searchResultPosition=5
 
-**Tesla is expected to report a big jump in profit.**\
-`A significant portion of Tesla’s profit comes from selling regulatory credits to other automakers that need them to meet emissions standards. Analysts will closely be watching how much of the company’s profit comes from sale of credits compared with the sale of cars.`\
+**Tesla reports a big jump in profit.**\
+`A significant portion of Tesla’s profit comes from selling regulatory credits to other automakers that need them to meet emissions standards. In the second quarter, it took in $354 million from the sale of credits.`\
 https://nytimes.com/2021/07/26/business/tesla-2nd-quarter-earnings.html?searchResultPosition=6
 
 **New Charcuterie Straight From Olympia Provisions**\
