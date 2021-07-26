@@ -12,7 +12,7 @@ https://nytimes.com/2021/07/26/briefing/breakthrough-cases-covid-delta.html?sear
 
 **France approves a contentious law making health passes mandatory.**\
 `The vote came after days of heated parliamentary debates and protests against the measure in dozens of French cities`\
-https://nytimes.com/2021/07/26/world/france-approves-a-contentious-law-making-health-passes-mandatory.html?searchResultPosition=4
+https://nytimes.com/2021/07/26/world/france-covid-pass-required.html?searchResultPosition=4
 
 **China moves against private tutoring companies, causing shares to plunge.**\
 `Beijing’s latest regulatory move in the tech sector requires online tutoring firms to become nonprofit institutions.`\
