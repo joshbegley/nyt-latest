@@ -1,6 +1,6 @@
 **Maggie MacNeil of Canada wins the women’s 100-meter butterfly.**\
-`By Matthew Futterman`\
-https://nytimes.com/2021/07/25/sports/olympics/maggie-macneil-of-canada-wins-the-womens-100-meter-butterfly.html?searchResultPosition=1
+`Results from the women’s 100-meter butterfly at the Tokyo Olympics.`\
+https://nytimes.com/2021/07/25/sports/olympics/maggie-macneil-100m-butterfly-swimming.html?searchResultPosition=1
 
 **After Covid Diagnosis, a Conservative Radio Host Sends a New Message**\
 `The Tennessee radio host, Phil Valentine, said he was among those who did not need to get vaccinated. Now his struggle with the virus is sparking its own discussion.`\
