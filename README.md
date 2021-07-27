@@ -34,7 +34,7 @@ https://nytimes.com/2021/07/26/sports/olympics/olympics-surfing.html?searchResul
 `The retired Democrat was shoved and had her mobile phone stolen but was not seriously injured.`\
 https://nytimes.com/2021/07/26/us/politics/barbara-boxer-robbed-oakland.html?searchResultPosition=9
 
-**An upset in the men’s 100-meter backstroke: no U.S. winner.**\
+**An upset in the men’s 100-meter backstroke: No U.S. winner.**\
 `American men had not lost in the event since 1992.`\
 https://nytimes.com/2021/07/26/sports/olympics/olympics-swimming-jacoby-king.html?searchResultPosition=10
 
