@@ -1,6 +1,6 @@
 **Simone Biles makes a mistake on vault.**\
-`By Juliet Macur`\
-https://nytimes.com/2021/07/27/sports/olympics/simone-biles-makes-a-mistake-on-vault.html?searchResultPosition=1
+`If Biles’s performance on the vault is any indication of how the U.S. women will do on Tuesday, the Americans have a huge problem.`\
+https://nytimes.com/2021/07/27/sports/olympics/simone-biles-makes-vault.html?searchResultPosition=1
 
 **In the softball gold medal game, the U.S. and Japan renew their rivalry.**\
 `The two best teams in softball meet again in the final. Japan beat the United States in the 2008 Olympics, the last time softball was included.`\
