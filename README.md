@@ -14,7 +14,7 @@ https://nytimes.com/2021/07/26/sports/olympics/olympics-surfing.html?searchResul
 `The retired Democrat was shoved and had her mobile phone stolen but was not seriously injured.`\
 https://nytimes.com/2021/07/26/us/politics/barbara-boxer-robbed-oakland.html?searchResultPosition=4
 
-**British swimmers dominate the men’s 200-meter freestyle, with Lilly King coming up.**\
+**Ryan Murphy settles for bronze in the 100-meter backstroke. Lilly King is coming up.**\
 `King is undefeated in the 100-meter breaststroke since December 2015 and is the current world-record holder.`\
 https://nytimes.com/2021/07/26/sports/olympics/olympics-swimming-lilly-king.html?searchResultPosition=5
 
