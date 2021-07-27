@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/26/crosswords/daily-puzzle-2021-07-27.html?searchRes
 `President Biden met with Prime Minister Mustafa al-Kadhimi of Iraq at the White House and said the U.S. military’s combat mission in that country will conclude by the end of the year, with the United States shifting into an advisory and supportive role.`\
 https://nytimes.com/video/us/politics/100000007887530/biden-kadhimi-iraq.html?searchResultPosition=6
 
-**Kanoa Igarashi of Japan stuns Gabriel Medina of Brazil in the surfing semifinals.**\
+**Kanoa Igarashi of Japan to face Italo Ferreira of Brazil for the Olympic gold medal**\
 `Several rounds of competition were jammed into one day as a tropical storm churned off the east coast of central Japan.`\
 https://nytimes.com/2021/07/26/sports/olympics/olympics-surfing.html?searchResultPosition=7
 
