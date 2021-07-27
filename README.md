@@ -1,4 +1,4 @@
-**Carissa Moore and Italo Ferreira Win the First Olympic Gold Medals in Surfing**\
+**Carissa Moore of the U.S. and Italo Ferreira of Brazil win the first Olympic gold medals in surfing.**\
 `Unpredictable waters churned by a tropical storm led organizers to cram the quarterfinals, semifinals and medal matches into one day.`\
 https://nytimes.com/2021/07/27/sports/olympics/carissa-moore-italo-ferreira-surfing-wins.html?searchResultPosition=1
 
