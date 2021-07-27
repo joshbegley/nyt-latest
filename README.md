@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/27/opinion/vaccine-mandates-covid.html?searchResultP
 
 **Covid Is Now a Crisis for the Unvaccinated**\
 `If you and most of the people in your area are vaccinated, things are substantially better than they used to be.`\
-https://nytimes.com/2021/07/27/opinion/covid-crisis-unvaccinated.html?searchResultPosition=2
+https://nytimes.com/2021/07/27/opinion/covid-vaccine-delta-variant.html?searchResultPosition=2
 
 **The Woman Who Captured ‘Jaws,’ Then Worked to Undo the Damage**\
 `A documentary tracks the extraordinary life of Valerie Taylor, spearfishing champion turned passionate conservationist on behalf of endangered sharks.`\
