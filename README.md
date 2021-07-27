@@ -10,31 +10,31 @@ https://nytimes.com/2021/07/27/realestate/rental-bidding-wars.html?searchResultP
 `The tennis superstar, who lit the cauldron during the opening ceremony as one of Japan’s biggest sports celebrities, was upset in the third round and is out of the Tokyo Games.`\
 https://nytimes.com/2021/07/27/sports/olympics/naomi-osaka-upset.html?searchResultPosition=3
 
+**The United States gets a scoreless draw against Australia and moves on.**\
+`On Tuesday the team scored no goals, and got exactly the result it needed.`\
+https://nytimes.com/2021/07/27/sports/olympics/uswnt-australia-draw.html?searchResultPosition=4
+
 **Against the odds, tiny Bhutan rolls out a second round of mass vaccinations.**\
 `By Monday, most adults in the remote Himalayan kingdom had been fully vaccinated against the coronavirus, all through donated shots.`\
-https://nytimes.com/2021/07/27/world/against-the-odds-tiny-bhutan-rolls-out-a-second-round-of-mass-vaccinations.html?searchResultPosition=4
+https://nytimes.com/2021/07/27/world/against-the-odds-tiny-bhutan-rolls-out-a-second-round-of-mass-vaccinations.html?searchResultPosition=5
 
 **New York City to Workers: Get Vaccinated or Get Tested Weekly**\
 `Mayor Bill de Blasio announced a new requirement that will apply to roughly 340,000 employees, including teachers and police officers.`\
-https://nytimes.com/2021/07/27/nyregion/new-york-test-vaccine.html?searchResultPosition=5
+https://nytimes.com/2021/07/27/nyregion/new-york-test-vaccine.html?searchResultPosition=6
 
 **The Best Onigiri Are All About the Rice**\
 `At these Los Angeles spots, creative Japanese rice balls inspired by home cooking are made to order.`\
-https://nytimes.com/2021/07/27/dining/best-onigiri-los-angeles.html?searchResultPosition=6
+https://nytimes.com/2021/07/27/dining/best-onigiri-los-angeles.html?searchResultPosition=7
 
 **Utah Farm Draws a Rare Breed: The American Shepherd**\
 `With the flow of immigrants disrupted, a homegrown prospect is being trained. “I love being in the mountains,” he says, “and I don’t mind being alone.”`\
-https://nytimes.com/2021/07/27/business/economy/utah-american-shepherd.html?searchResultPosition=7
+https://nytimes.com/2021/07/27/business/economy/utah-american-shepherd.html?searchResultPosition=8
 
 **Onigiri: Rice Is Life**\
 `Topped, filled and wrapped onigiri are portable, but best eaten right away.`\
-https://nytimes.com/slideshow/2021/07/27/dining/onigiri.html?searchResultPosition=8
+https://nytimes.com/slideshow/2021/07/27/dining/onigiri.html?searchResultPosition=9
 
 **For Two Designers, a Onetime Collaboration Wasn’t Enough**\
 `When they first worked together, renovating a home that had once been a church, they never imagined they’d eventually get married there.`\
-https://nytimes.com/2021/07/27/realestate/for-two-designers-a-onetime-collaboration-wasnt-enough.html?searchResultPosition=9
-
-**Why Beekeeping Is Booming in New York: ‘A Hive Is a Box of Calm’**\
-`People are tending to hives on rooftops, and even in apartments. It turns out the hobby, like bird-watching, is a great pandemic coping technique.`\
-https://nytimes.com/2021/07/27/nyregion/beekeeping-nyc.html?searchResultPosition=10
+https://nytimes.com/2021/07/27/realestate/for-two-designers-a-onetime-collaboration-wasnt-enough.html?searchResultPosition=10
 
