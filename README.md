@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/26/us/politics/barbara-boxer-robbed-oakland.html?sea
 `King had been undefeated in the 100-meter breaststroke since December 2015 and is the current world-record holder.`\
 https://nytimes.com/2021/07/26/sports/olympics/olympics-swimming-jacoby-king.html?searchResultPosition=6
 
-**Alberto Salazar Is Permanently Barred from Track for Sexual and Emotional Misconduct**\
+**Alberto Salazar Is Permanently Barred From Track for Sexual and Emotional Misconduct**\
 `A former top coach who was once one of the world’s greatest distance runners, Salazar had already been suspended for breaking rules governing banned substances.`\
 https://nytimes.com/2021/07/26/sports/olympics/alberto-salazar-ruled-ineligible.html?searchResultPosition=7
 
