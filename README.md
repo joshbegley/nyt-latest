@@ -30,8 +30,8 @@ https://nytimes.com/2021/07/26/sports/olympics/olympics-surfing.html?searchResul
 `The retired Democrat was shoved and had her mobile phone stolen but was not seriously injured.`\
 https://nytimes.com/2021/07/26/us/politics/barbara-boxer-robbed-oakland.html?searchResultPosition=8
 
-**Lydia Jacoby of the U.S. upsets Lilly King in the 100-meter breaststroke.**\
-`King had been undefeated in the 100-meter breaststroke since December 2015 and is the current world-record holder.`\
+**An upset in the men’s 100-meter backstroke: no U.S. winner.**\
+`American men had not lost in the event since 1992.`\
 https://nytimes.com/2021/07/26/sports/olympics/olympics-swimming-jacoby-king.html?searchResultPosition=9
 
 **Alberto Salazar Is Permanently Barred From Track for Sexual and Emotional Misconduct**\
