@@ -26,7 +26,7 @@ https://nytimes.com/2021/07/27/crosswords/spelling-bee-2021-07-27.html?searchRes
 `The lunar rovers of Apollo 15, 16 and 17 parked American automotive culture on the lunar surface, and expanded the scientific range of the missions’ astronaut explorers.`\
 https://nytimes.com/2021/07/27/science/lunar-rover-apollo-nasa.html?searchResultPosition=7
 
-**North and South Korea Reopen Communication Lines After a Tense 14 Months**\
+**North and South Korea Reopen Communication Hotlines After a Tense 14 Months**\
 `Restoring the hotlines signaled a thaw in inter-Korean relations, which chilled after the collapse of Kim Jong-un’s diplomacy with former President Donald J. Trump.`\
 https://nytimes.com/2021/07/27/world/asia/north-korea-south-reopen-hotlines.html?searchResultPosition=8
 
