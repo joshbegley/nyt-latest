@@ -28,5 +28,5 @@ https://nytimes.com/2021/07/27/style/tiny-modern-love-stories-dont-date-people-i
 
 **As Infections Rise, C.D.C. Urges Some Vaccinated Americans to Wear Masks Again**\
 `In communities with growing caseloads, vaccinated and unvaccinated people should return to masking in indoor public areas, health officials said.`\
-https://nytimes.com/2021/07/27/health/coronavirus-masks-vaccination.html?searchResultPosition=10
+https://nytimes.com/2021/07/27/health/covid-cdc-masks-vaccines-delta-variant.html?searchResultPosition=10
 
