@@ -26,8 +26,8 @@ https://nytimes.com/2021/07/27/arts/dance/city-ballet-dancer-caught-in-texting-s
 `In a travelogue, Lisa Wells searches for communities and individuals committed to healing the damage of climate change.`\
 https://nytimes.com/2021/07/27/books/review/believers-lisa-wells.html?searchResultPosition=7
 
-**Frustration Mounts at British ‘Confusing’ Traffic-Light System**\
-`The government’s three-tier approach determining restrictions on transit to and from different countries is drawing ire from British travelers and the travel industry alike.`\
+**Travelers’ Frustration Mounts at ‘Confusing’ British Traffic-Light System**\
+`The government’s three-tier approach  to determining restrictions on transit to and from different countries is drawing ire from Britons and the travel industry alike.`\
 https://nytimes.com/2021/07/27/travel/britain-traffic-light-holiday.html?searchResultPosition=8
 
 **They Pooled Their Art to Create a Nest Egg. They Say It Was a Mistake.**\
