@@ -8,7 +8,7 @@ https://nytimes.com/2021/07/27/realestate/rental-bidding-wars.html?searchResultP
 
 **Naomi Osaka’s Olympics Exit Dashes Her Hopes of Gold on Home Turf**\
 `The tennis superstar, who lit the cauldron during the opening ceremony as one of Japan’s biggest sports celebrities, was upset in the third round and is out of the Tokyo Games.`\
-https://nytimes.com/2021/07/27/sports/olympics/naomi-osaka-upset.html?searchResultPosition=3
+https://nytimes.com/2021/07/27/sports/tennis/naomi-osaka-upset.html?searchResultPosition=3
 
 **The United States gets a scoreless draw against Australia and moves on.**\
 `On Tuesday the team scored no goals, and got exactly the result it needed.`\
