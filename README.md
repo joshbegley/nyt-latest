@@ -1,4 +1,4 @@
-**How a Respected N.Y.P.D. Officer Became the Capitol Riot #EyeGouger**\
+**How a Respected N.Y.P.D. Officer Became the Accused Capitol Riot #EyeGouger**\
 `Thomas Webster once was part of Mayor Bloomberg’s security detail. On Jan. 6, the retired cop found himself on the other side of the law.`\
 https://nytimes.com/2021/07/27/nyregion/capitol-riot-january-6.html?searchResultPosition=1
 
