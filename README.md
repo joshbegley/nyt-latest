@@ -2,7 +2,7 @@
 `After a fast-tracked screening at the border, the United States can turn back families it determines do not qualify for asylum. Immigration advocates say the decision denies due process.`\
 https://nytimes.com/2021/07/26/us/expedited-removal-migrant-families.html?searchResultPosition=1
 
-**Still Chiefs, Kansas City Team Will Retire Its Mascot ‘Warpaint’**\
+**Still Chiefs, Kansas City Team Will Retire the Mascot Warpaint**\
 `The announcement came three days after Cleveland’s baseball team changed its name from Indians to Guardians.`\
 https://nytimes.com/2021/07/26/sports/kansas-city-chiefs-warpaint-mascot.html?searchResultPosition=2
 
