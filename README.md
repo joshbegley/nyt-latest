@@ -1,32 +1,36 @@
+**Pandemic and Racial Injustice Cause Outsize Harm to Black Students, Study Finds**\
+`The disproportionate impact of Covid-19 on Black people, coupled with racial trauma from last summer, will make it harder for Black students to return to classrooms, Teachers College research showed.`\
+https://nytimes.com/2021/07/27/us/covid-race-impact-black-education.html?searchResultPosition=1
+
 **The State Department finds a swastika in one of its elevators.**\
 `Secretary of State Antony J. Blinken said that the graffiti had been removed and that an investigation was ongoing.`\
-https://nytimes.com/2021/07/27/us/politics/state-dept-swastika.html?searchResultPosition=1
+https://nytimes.com/2021/07/27/us/politics/state-dept-swastika.html?searchResultPosition=2
 
 **The chairman of a House coronavirus subcommittee vows to investigate eviction practices by corporate landlords.**\
 `A federal eviction moratorium is set to expire this month. Housing advocates estimate that roughly 11 million adult renters are vulnerable to being evicted.`\
-https://nytimes.com/2021/07/27/business/eviction-moratorium.html?searchResultPosition=2
+https://nytimes.com/2021/07/27/business/eviction-moratorium.html?searchResultPosition=3
 
 **The Washington Post will require employees to be vaccinated.**\
 `The newspaper’s publisher said that the company had decided to require proof of vaccination after hearing concerns from employees about the emergence of variants.`\
-https://nytimes.com/2021/07/27/business/media/washington-post-vaccines.html?searchResultPosition=3
+https://nytimes.com/2021/07/27/business/media/washington-post-vaccines.html?searchResultPosition=4
 
 **Tiny Love Stories: ‘Don’t Date People in Your Neighborhood’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2021/07/27/style/tiny-modern-love-stories-dont-date-people-in-your-neighborhood.html?searchResultPosition=5
+https://nytimes.com/2021/07/27/style/tiny-modern-love-stories-dont-date-people-in-your-neighborhood.html?searchResultPosition=6
 
 **As Infections Rise, C.D.C. Urges Some Vaccinated Americans to Wear Masks Again**\
 `In communities with growing caseloads, vaccinated and unvaccinated people should return to masking in indoor public areas, health officials said.`\
-https://nytimes.com/2021/07/27/health/coronavirus-masks-vaccination.html?searchResultPosition=6
+https://nytimes.com/2021/07/27/health/coronavirus-masks-vaccination.html?searchResultPosition=7
 
 **Sunisa Lee Stepped Up When Simone Biles Stepped Back**\
 `Known primarily as an uneven bars specialist, Lee turned in a grace-under-pressure performance for the ages during Tuesday’s team final.`\
-https://nytimes.com/2021/07/27/sports/olympics/sunisa-lee-tokyo-2020.html?searchResultPosition=7
+https://nytimes.com/2021/07/27/sports/olympics/sunisa-lee-tokyo-2020.html?searchResultPosition=8
 
 **Republicans are blaming Nancy Pelosi for the Jan. 6 attack. Their claims don’t add up.**\
 `Their claims amounted to an audacious attempt to rewrite the worst attack on the Capitol in two centuries.`\
-https://nytimes.com/2021/07/27/us/fact-check-republicans-pelosi-jan-6.html?searchResultPosition=8
+https://nytimes.com/2021/07/27/us/fact-check-republicans-pelosi-jan-6.html?searchResultPosition=9
 
 **Vaccine Mandates, and Anger at the Unvaccinated**\
 `Readers discuss actions taken by a mayor, a governor and the N.F.L. Also: President Biden's spending; a cure for insomnia; Donald Trump's loyalists.`\
-https://nytimes.com/2021/07/27/opinion/letters/covid-vaccines.html?searchResultPosition=9
+https://nytimes.com/2021/07/27/opinion/letters/covid-vaccines.html?searchResultPosition=10
 
