@@ -6,8 +6,8 @@ https://nytimes.com/2021/07/27/world/asia/north-korea-south-reopen-hotlines.html
 `Turmoil rocks Tunisia.`\
 https://nytimes.com/2021/07/27/briefing/tunisia-olympics-coronavirus.html?searchResultPosition=2
 
-**Naomi Osaka is eliminated from the tennis tournament.**\
-`By Matthew Futterman`\
+**Naomi Osaka is out of the tennis tournament.**\
+`Osaka, who lit the Olympic cauldron as one of Japan’s biggest sports stars, was eliminated in the third round.`\
 https://nytimes.com/2021/07/27/sports/olympics/naomi-osaka-lost-vondrousova.html?searchResultPosition=3
 
 **Lydia Jacoby of the U.S. upsets Lilly King in the 100-meter breaststroke.**\
