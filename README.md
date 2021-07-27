@@ -20,7 +20,7 @@ https://nytimes.com/2021/07/26/us/politics/barbara-boxer-robbed-oakland.html?sea
 
 **Lydia Jacoby of the U.S. upsets Lilly King in the 100-meter breaststroke.**\
 `King had been undefeated in the 100-meter breaststroke since December 2015 and is the current world-record holder.`\
-https://nytimes.com/2021/07/26/sports/olympics/olympics-swimming-lilly-king.html?searchResultPosition=6
+https://nytimes.com/2021/07/26/sports/olympics/olympics-swimming-jacoby-king.html?searchResultPosition=6
 
 **Alberto Salazar Is Permanently Barred from Track for Sexual and Emotional Misconduct**\
 `A former top coach who was once one of the world’s greatest distance runners, Salazar had already been suspended for breaking rules governing banned substances.`\
