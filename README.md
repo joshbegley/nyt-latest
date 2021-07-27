@@ -1,40 +1,40 @@
-**Carissa Moore of the U.S. and Italo Ferreira of Brazil win the first Olympic gold medals in surfing.**\
-`Unpredictable waters churned by a tropical storm led organizers to cram the quarterfinals, semifinals and medal matches into one day.`\
-https://nytimes.com/2021/07/27/sports/olympics/carissa-moore-italo-ferreira-surfing-wins.html?searchResultPosition=1
+**The Best Onigiri Are All About the Rice**\
+`At these Los Angeles spots, creative Japanese rice balls inspired by home cooking are made to order.`\
+https://nytimes.com/2021/07/27/dining/best-onigiri-los-angeles.html?searchResultPosition=1
 
-**Michael Enzi, Long-Serving U.S. Senator From Wyoming, Dies at 77**\
-`A four-term senator, Mr. Enzi was a consistent conservative with a consensus-seeking style. He died after a bicycle accident in Gillette, Wyo., the city where he began his political career.`\
-https://nytimes.com/2021/07/27/us/politics/senator-mike-enzi-dies.html?searchResultPosition=2
+**Utah Farm Draws a Rare Breed: The American Shepherd**\
+`With the flow of immigrants disrupted, a homegrown prospect is being trained. “I love being in the mountains,” he says, “and I don’t mind being alone.”`\
+https://nytimes.com/2021/07/27/business/economy/utah-american-shepherd.html?searchResultPosition=2
 
-**Hong Kong Protester Is Convicted in First Trial Under Tough Security Law**\
-`Tong Ying-kit, 24, who struck police officers with his motorcycle while carrying a protest banner, could be sentenced to life in prison.`\
-https://nytimes.com/2021/07/27/world/asia/hong-kong-trial-security-law.html?searchResultPosition=3
+**Onigiri: Rice Is Life**\
+`Topped, filled and wrapped onigiri are portable, but best eaten right away.`\
+https://nytimes.com/slideshow/2021/07/27/dining/onigiri.html?searchResultPosition=3
 
-**As Virus Cases Rise, Another Contagion Spreads Among the Vaccinated: Anger**\
-`Frustrated by the prospect of a new surge, many Americans are blaming the unvaccinated. A tougher stance may backfire, some experts warn.`\
-https://nytimes.com/2021/07/27/health/coronavirus-vaccination-hesitancy-delta.html?searchResultPosition=4
+**For Two Designers, a Onetime Collaboration Wasn’t Enough**\
+`When they first worked together, renovating a home that had once been a church, they never imagined they’d eventually get married there.`\
+https://nytimes.com/2021/07/27/realestate/for-two-designers-a-onetime-collaboration-wasnt-enough.html?searchResultPosition=4
 
-**Latino Voters Moved Toward Republicans. Now Biden Wants Them Back.**\
-`Did Democrats take the Hispanic vote for granted in 2020? Some in the party think they did, and can’t afford the same mistakes going forward.`\
-https://nytimes.com/2021/07/27/us/politics/latino-voters-biden-democrats.html?searchResultPosition=5
+**Why Beekeeping Is Booming in New York: ‘A Hive Is a Box of Calm’**\
+`People are tending to hives on rooftops, and even in apartments. It turns out the hobby, like bird-watching, is a great pandemic coping technique.`\
+https://nytimes.com/2021/07/27/nyregion/beekeeping-nyc.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/07/27/crosswords/spelling-bee-2021-07-27.html?searchResultPosition=6
+**‘They Have My Sister’: As Uyghurs Speak Out, China Targets Their Families**\
+`Activists overseas who denounce China’s repression in Xinjiang have found that relatives back home were imprisoned, or worse.`\
+https://nytimes.com/2021/07/27/world/asia/xinjiang-china-crackdown.html?searchResultPosition=6
 
-**50 Years Ago, NASA Put a Car on the Moon**\
-`The lunar rovers of Apollo 15, 16 and 17 parked American automotive culture on the lunar surface, and expanded the scientific range of the missions’ astronaut explorers.`\
-https://nytimes.com/2021/07/27/science/lunar-rover-apollo-nasa.html?searchResultPosition=7
+**A ‘Really Good Collaboration’ Gets A Whole Lot Better**\
+`When they first worked together, renovating a home that had once been a church, they never imagined they’d eventually get married there.`\
+https://nytimes.com/slideshow/2021/07/27/realestate/a-really-good-collaboration-gets-a-whole-lot-better.html?searchResultPosition=7
 
-**North and South Korea Reopen Communication Hotlines After a Tense 14 Months**\
-`Restoring the hotlines signaled a thaw in inter-Korean relations, which chilled after the collapse of Kim Jong-un’s diplomacy with former President Donald J. Trump.`\
-https://nytimes.com/2021/07/27/world/asia/north-korea-south-reopen-hotlines.html?searchResultPosition=8
+**The Travel Industry’s Reckoning With Race and Inclusion**\
+`Tourists, particularly Black travelers, are paying close attention to how destinations and travel service providers approach diversity and equity after a year of social justice protests.`\
+https://nytimes.com/2021/07/27/travel/black-travelers-diversity-inclusion.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`Turmoil rocks Tunisia.`\
-https://nytimes.com/2021/07/27/briefing/tunisia-olympics-coronavirus.html?searchResultPosition=9
+**Matt Damon’s Disappearing Acts**\
+`The enduring career of the megastar no one really knows.`\
+https://nytimes.com/2021/07/27/magazine/matt-damon.html?searchResultPosition=9
 
-**Naomi Osaka is out of the tennis tournament.**\
-`Osaka, who lit the Olympic cauldron as one of Japan’s biggest sports stars, was eliminated in the third round.`\
-https://nytimes.com/2021/07/27/sports/olympics/naomi-osaka-lost-vondrousova.html?searchResultPosition=10
+**The ‘Founding Fathers’ Were Surprisingly Pessimistic**\
+`The generals, politicians and dreamers who made America didn't always like what they'd wrought. `\
+https://nytimes.com/2021/07/27/opinion/us-founding-fathers-constitution.html?searchResultPosition=10
 
