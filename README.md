@@ -27,3 +27,14 @@ https://nytimes.com/2021/07/27/sports/olympics/simone-biles-out.html?searchResul
 https://nytimes.com/2021/07/27/opinion/adam-kinzinger-jan-6-committee.html?searchResultPosition=7
 
 **Sunisa Lee shined on the uneven bars with Simone Biles out.**\
+`Lee’s routine on the bars helped the US team in Biles’ absence.`\
+https://nytimes.com/2021/07/27/sports/olympics/sunisa-lee-bars.html?searchResultPosition=8
+
+**He Tried to Walk on Water From Florida to New York. It Didn’t Go So Well.**\
+`Reza Baluchi washed ashore on Saturday near St. Augustine, Fla., in a ‘‘hydro pod,” startling beachgoers with a homemade contraption that resembles a hamster wheel.`\
+https://nytimes.com/2021/07/27/us/man-runs-eastern-seaboard-hamster-wheel.html?searchResultPosition=9
+
+**China’s Tencent suspends registrations for WeChat, its popular app.**\
+`The company attributed the suspensions to a technical update of security features, but fears of new regulatory pressure sent its shares sharply down.`\
+https://nytimes.com/2021/07/27/business/Tencent-WeChat-China.html?searchResultPosition=10
+
