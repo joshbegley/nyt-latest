@@ -11,8 +11,8 @@ https://nytimes.com/2021/07/27/world/asia/india-assam-mizoram-border.html?search
 https://nytimes.com/2021/07/27/nyregion/martin-shkreli-wu-tang-album-sold.html?searchResultPosition=3
 
 **Instagram introduces changes to protect teenagers on its platform.**\
-`By Erin Woo`\
-https://nytimes.com/2021/07/27/technology/instagram-introduces-changes-to-protect-teenagers-on-its-platform.html?searchResultPosition=4
+`Advertisers, which used people’s interests and activity to target their ads, will now only be able to use age, gender and location to show ads to users under 18.`\
+https://nytimes.com/2021/07/27/technology/instagram-teenagers-privacy.html?searchResultPosition=4
 
 **Purdue Pharma’s Creditors Overwhelmingly Endorse Bankruptcy Plan**\
 `If approved by a judge next month, the plan would resolve thousands of lawsuits and set in motion the release of $4.5 billion to help cover costs from the opioid epidemic.`\
