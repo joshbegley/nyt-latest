@@ -1,6 +1,6 @@
 **Simone Biles is out of the team final.**\
 `Biles did not give a reason for leaving the competition but her exit came after she faltered on a vault.`\
-https://nytimes.com/2021/07/27/sports/olympics/biles-out.html?searchResultPosition=1
+https://nytimes.com/2021/07/27/sports/olympics/simone-biles-out.html?searchResultPosition=1
 
 **He Tried to Walk on Water From Florida to New York. It Didn’t Go So Well.**\
 `Reza Baluchi washed ashore on Saturday near St. Augustine, Fla., in a ‘‘hydro pod,” startling beachgoers with a homemade contraption that resembles a hamster wheel.`\
