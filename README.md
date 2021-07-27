@@ -1,5 +1,5 @@
 **Simone Biles is out of the team final.**\
-`Biles did not give a reason for leaving the competition but her exit came after she faltered on a vault.`\
+`Her exit came after she faltered on a vault and U.S.A. Gymnastics said it was because of “a medical issue.”`\
 https://nytimes.com/2021/07/27/sports/olympics/simone-biles-out.html?searchResultPosition=1
 
 **What I Want to Bring to Light on the Jan. 6 House Committee**\
