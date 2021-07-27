@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/27/us/politics/daniel-hale-leak-sentence.html?search
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2021/07/27/briefing/masks-simone-biles-jan-6-your-tuesday-evening-briefing.html?searchResultPosition=8
 
-**The White House tells staff to start wearing masks again, as coronavirus cases rise in Washington, D.C.**\
+**White House staff told to wear masks again, as cases rise in the capital.**\
 `The new guidance represented a return to the stringent masking rules that defined the early months of the Biden administration.`\
 https://nytimes.com/2021/07/27/us/white-house-masks-virus.html?searchResultPosition=9
 
