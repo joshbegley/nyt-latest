@@ -26,7 +26,7 @@ https://nytimes.com/2021/07/26/crosswords/daily-puzzle-2021-07-27.html?searchRes
 `President Biden met with Prime Minister Mustafa al-Kadhimi of Iraq at the White House and said the U.S. military’s combat mission in that country will conclude by the end of the year, with the United States shifting into an advisory and supportive role.`\
 https://nytimes.com/video/us/politics/100000007887530/biden-kadhimi-iraq.html?searchResultPosition=7
 
-**Kanoa Igarashi will face Italo Ferreira in the men’s surfing final.**\
+**Surfing finals are set: Kanoa Igarashi vs. Italo Ferreira, and Carissa Moore vs. Bianca Buitendag.**\
 `Several rounds of competition were jammed into one day as a tropical storm churned off the east coast of central Japan.`\
 https://nytimes.com/2021/07/26/sports/olympics/olympics-surfing.html?searchResultPosition=8
 
