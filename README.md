@@ -1,13 +1,13 @@
 **Simone Biles is out of the team final.**\
-`Biles exited the competition without giving a reason but after faltering on her vault.`\
+`Biles did not give a reason for leaving the competition but her exit came after she faltered on a vault.`\
 https://nytimes.com/2021/07/27/sports/olympics/biles-out.html?searchResultPosition=1
 
 **He Tried to Walk on Water From Florida to New York. It Didn’t Go So Well.**\
 `Reza Baluchi washed ashore on Saturday near St. Augustine, Fla., in a ‘‘hydro pod,” startling beachgoers with a homemade contraption that resembles a hamster wheel.`\
 https://nytimes.com/2021/07/27/us/man-runs-eastern-seaboard-hamster-wheel.html?searchResultPosition=2
 
-**China’s Tencent suspends new registrations for WeChat.**\
-`The company attributed the suspensions to a technical update of the app’s security features, but fears of new regulatory pressure sent its shares sharply down.`\
+**China’s Tencent suspends registrations for WeChat, its popular app.**\
+`The company attributed the suspensions to a technical update of security features, but fears of new regulatory pressure sent its shares sharply down.`\
 https://nytimes.com/2021/07/27/business/Tencent-WeChat-China.html?searchResultPosition=3
 
 **Simone Biles makes a mistake on vault.**\
