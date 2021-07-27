@@ -1,6 +1,6 @@
 **How New York businesses are responding to the mayor’s plea for vaccine mandates.**\
-`By Lauren Hirsch and Kellen Browning`\
-https://nytimes.com/2021/07/27/business/how-new-york-businesses-are-responding-to-the-mayors-plea-for-vaccine-mandates.html?searchResultPosition=1
+`Some major New York employers have already moved toward mandating vaccination for workers, but many others haven’t taken that step.`\
+https://nytimes.com/2021/07/27/business/new-york-vaccine-mandates.html?searchResultPosition=1
 
 **Sunisa Lee, Jordan Chiles and Grace McCallum Fight On With Simone Biles Out**\
 `Simone Biles is out of the women’s gymnastics team competition. Sunisa Lee, Jordan Chiles and Grace McCallum are still competing in Tokyo.`\
