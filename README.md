@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/27/business/how-new-york-businesses-are-responding-t
 
 **Sunisa Lee, Jordan Chiles and Grace McCallum Fight On With Simone Biles Out**\
 `Simone Biles is out of the women’s gymnastics team competition. Sunisa Lee, Jordan Chiles and Grace McCallum are still competing in Tokyo.`\
-https://nytimes.com/2021/07/27/sports/olympics/team-usa-gymnastics-womens-team.html?searchResultPosition=2
+https://nytimes.com/article/team-usa-gymnastics-womens-team.html?searchResultPosition=2
 
 **Fears of Toxic Smoke After an Industrial Explosion in Germany**\
 `An explosion and fire at a waste plant in the city of Leverkusen was declared an “extreme threat.” At least one person was confirmed dead, sixteen workers were injured and four more were missing.`\
