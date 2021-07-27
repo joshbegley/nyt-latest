@@ -32,7 +32,7 @@ https://nytimes.com/2021/07/27/learning/summer-reading-contest-winner-week-5-on-
 
 **What Happened in Simone Biles’s Vault**\
 `Biles balked midway through her vault in the women’s team competition on Tuesday.`\
-https://nytimes.com/interactive/2021/07/27/us/gymnastics-usa-biles-lost.html?searchResultPosition=9
+https://nytimes.com/interactive/2021/07/27/us/biles-vault-gymnastics.html?searchResultPosition=9
 
 **Guilty Plea in 4 Atlanta-Area Spa Killings**\
 `The suspect, Robert Aaron Long, also faces four murder charges in a neighboring county, where the prosecutor is seeking the death penalty.`\
