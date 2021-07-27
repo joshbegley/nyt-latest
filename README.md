@@ -6,8 +6,8 @@ https://nytimes.com/2021/07/26/sports/olympics/olympics-surfing.html?searchResul
 `The retired Democrat was shoved and had her mobile phone stolen but was not seriously injured.`\
 https://nytimes.com/2021/07/26/us/politics/barbara-boxer-robbed-oakland.html?searchResultPosition=2
 
-**Lilly King of the U.S. aims to extend her breaststroke dominance.**\
-`King is undefeated at the distance since December 2015 and is the current world-record holder.`\
+**British swimmers dominate the men’s 200-meter freestyle, with Lilly King coming up.**\
+`King is undefeated in the 100-meter breaststroke since December 2015 and is the current world-record holder.`\
 https://nytimes.com/2021/07/26/sports/olympics/olympics-swimming-lilly-king.html?searchResultPosition=3
 
 **Alberto Salazar Is Permanently Barred from Track for Sexual and Emotional Misconduct**\
