@@ -1,32 +1,32 @@
+**Tiny Love Stories: ‘Don’t Date People in Your Neighborhood’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2021/07/27/style/tiny-modern-love-stories-dont-date-people-in-your-neighborhood.html?searchResultPosition=1
+
+**As Infections Rise, C.D.C. Urges Some Vaccinated Americans to Wear Masks Again**\
+`In communities with growing caseloads, vaccinated and unvaccinated people should return to masking in indoor public areas, health officials said.`\
+https://nytimes.com/2021/07/27/health/coronavirus-masks-vaccination.html?searchResultPosition=2
+
+**Sunisa Lee Stepped Up When Simone Biles Stepped Back**\
+`Known primarily as an uneven bars specialist, Lee turned in a grace-under-pressure performance for the ages during Tuesday’s team final.`\
+https://nytimes.com/2021/07/27/sports/olympics/sunisa-lee-tokyo-2020.html?searchResultPosition=3
+
+**Republicans are blaming Nancy Pelosi for the Jan. 6 attack. Their claims don’t add up.**\
+`Their claims amounted to an audacious attempt to rewrite the worst attack on the Capitol in two centuries.`\
+https://nytimes.com/2021/07/27/us/fact-check-republicans-pelosi-jan-6.html?searchResultPosition=4
+
 **Vaccine Mandates, and Anger at the Unvaccinated**\
 `Readers discuss actions taken by a mayor, a governor and the N.F.L. Also: President Biden's spending; a cure for insomnia; Donald Trump's loyalists.`\
-https://nytimes.com/2021/07/27/opinion/letters/covid-vaccines.html?searchResultPosition=1
+https://nytimes.com/2021/07/27/opinion/letters/covid-vaccines.html?searchResultPosition=5
 
 **Black women’s group sues Johnson & Johnson over talc baby powder.**\
 `The National Council of Negro Women accused the company of “deceptive marketing to Black women” despite internal concerns that the product might be harmful.`\
-https://nytimes.com/2021/07/27/business/johnson-baby-powder-black-women.html?searchResultPosition=3
+https://nytimes.com/2021/07/27/business/johnson-baby-powder-black-women.html?searchResultPosition=7
 
 **First Amendment Protects Biden Hater’s Banners, Court Rules**\
 `A New Jersey woman can leave up her banners after a ruling that the American Civil Liberties Union hailed as a victory for free speech.`\
-https://nytimes.com/2021/07/27/nyregion/nj-biden-signs-profanity.html?searchResultPosition=4
+https://nytimes.com/2021/07/27/nyregion/nj-biden-signs-profanity.html?searchResultPosition=8
 
 **Dutch officials, unhappy with quarantine conditions, say those who test positive are not allowed outside.**\
 `Six members of the Dutch delegation who tested positive were being forced to stay inside “little boxes,” officials said.`\
-https://nytimes.com/2021/07/27/sports/olympics/olympic-athletes-coronavirus-isolation-daylight.html?searchResultPosition=6
-
-**British Prime Minister Urges Caution as New Case Numbers Fall**\
-`Prime Minister Boris Johnson warned against “premature conclusions” after new coronavirus cases in Britain declined for six consecutive days and advised people to remain cautious.`\
-https://nytimes.com/video/world/europe/100000007889027/uk-coronavirus-new-cases-fall-boris-johnson.html?searchResultPosition=7
-
-**Little Island Unveils Free Monthlong Festival With Over 450 Artists**\
-`The festival, which runs from Aug. 11 to Sept. 5, features a flurry of music, dance, and comedy performances from both established and emerging artists.`\
-https://nytimes.com/2021/07/27/theater/little-island-arts-festival-nyc-free.html?searchResultPosition=8
-
-**India Border Clash Leaves at Least 5 Dead**\
-`Two Indian states have been arguing since the 1980s over where exactly the line falls on a 193-square-mile strip of land dividing them. On Monday, guns and hand grenades came out.`\
-https://nytimes.com/2021/07/27/world/asia/india-assam-mizoram-border.html?searchResultPosition=9
-
-**U.S. Sells One-of-a-Kind Wu-Tang Album to Cover Martin Shkreli’s Debt**\
-`Prosecutors did not announce who purchased the album, or for how much, but said that the sale covered the balance of the infamous pharmaceutical executive’s court-ordered forfeiture.`\
-https://nytimes.com/2021/07/27/nyregion/martin-shkreli-wu-tang-album-sold.html?searchResultPosition=10
+https://nytimes.com/2021/07/27/sports/olympics/olympic-athletes-coronavirus-isolation-daylight.html?searchResultPosition=10
 
