@@ -12,7 +12,7 @@ https://nytimes.com/2021/07/28/movies/the-year-of-the-discovery-review.html?sear
 
 **Rising river temperatures are stressing out salmon in the Pacific Northwest.**\
 `Video released by a conservation group show fish in the Columbia River with lesions and fungus.`\
-https://nytimes.com/2021/07/28/us/rising-river-temperatures-are-stressing-out-salmon-in-the-pacific-northwest.html?searchResultPosition=4
+https://nytimes.com/2021/07/28/us/salmon-dead-heat.html?searchResultPosition=4
 
 **A Confusing Message**\
 `The C.D.C. recommends indoor masking for the vaccinated, but only in some places.`\
