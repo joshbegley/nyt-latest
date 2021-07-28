@@ -1,6 +1,6 @@
 **Herbicides: What to Know Before You Use Them**\
 `When it comes to pesticides, even the ones that sound benign can be dangerous, unless you know what you’re doing.`\
-https://nytimes.com/2021/07/28/realestate/herbicides-what-to-know-before-you-use-them.html?searchResultPosition=1
+https://nytimes.com/2021/07/28/realestate/herbicides-garden-safety.html?searchResultPosition=1
 
 **Biden is traveling to Pennsylvania to promote U.S. manufacturing, but the Delta surge may draw the spotlight.**\
 `Anxiety about the pandemic has begun to rise again.`\
