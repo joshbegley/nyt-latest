@@ -1,4 +1,4 @@
-**Ariarne Titmus wins her second gold with Ledecky nowhere in sight.**\
+**Ariarne Titmus wins her second gold with Katie Ledecky nowhere in sight.**\
 `Results from the women’s 200-meter freestyle.`\
 https://nytimes.com/2021/07/27/sports/olympics/ariarne-titmus-200-free-ledecky.html?searchResultPosition=1
 
