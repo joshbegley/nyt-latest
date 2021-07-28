@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/28/sports/olympics/daiki-hashimoto-japan-gymnastics.
 https://nytimes.com/2021/07/28/learning/140-picture-prompts-to-inspire-student-writing.html?searchResultPosition=3
 
 **Vaccinated U.S. and E.U. travelers can enter England without quarantining.**\
-`Prime Minister Boris Johnson said on Wednesday that he wanted American travelers to come to England “freely.”`\
+`Travelers will still need a negative coronavirus test before entering the country, Britain’s transport minister said.`\
 https://nytimes.com/2021/07/28/world/uk-travel-quarantine.html?searchResultPosition=4
 
 **U.S. women win the first Olympic gold in three-on-three basketball.**\
