@@ -1,6 +1,6 @@
 **Wait. Wait. Not Yet. Wait. OK, Dazzle Me Right Now.**\
 `The Olympics are a harsh taskmaster, subjecting athletes to years of anticipation and then offering them a fleeting moment to shine — or not.`\
-https://nytimes.com/2021/07/28/sports/olympics/olympics-pressure-biles.html?searchResultPosition=1
+https://nytimes.com/2021/07/28/sports/olympics/biles.html?searchResultPosition=1
 
 **‘Arthur’ Is Ending After 25 Years**\
 `The world’s most popular student aardvark is retiring, at least from the big-hearted series that bears his name. PBS said there may be “additional Arthur content” in the future.`\
