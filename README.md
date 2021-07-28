@@ -1,5 +1,5 @@
 **U.S. Declines to Defend Trump Ally in Lawsuit Over Jan. 6 Riot**\
-`The move could mean that the Justice Department is also unlikely to defend former President Trump in the case.`\
+`The move could mean that the Justice Department is also unlikely to defend former President Donald J. Trump in the case.`\
 https://nytimes.com/2021/07/27/us/politics/mo-brooks-justice-department-lawsuit.html?searchResultPosition=1
 
 **Simone Biles Just Demonstrated a True Champion Mind-Set**\
