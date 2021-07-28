@@ -1,4 +1,4 @@
-**The Midwest braces for severe storms capable of ‘hurricane-force’ winds.**\
+**The Midwest braces for severe storms capable of hurricane-force winds.**\
 `More than 5.9 million people across the Midwest faced the threat of severe storms that could produce damaging winds and knock out power.`\
 https://nytimes.com/2021/07/28/us/the-midwest-braces-for-severe-storms-capable-of-hurricane-force-winds.html?searchResultPosition=1
 
