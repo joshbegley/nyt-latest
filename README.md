@@ -1,40 +1,40 @@
-**Jumping prices and the ghost of 2013’s market meltdown loom over the Fed.**\
-`Federal Reserve officials conclude a two-day meeting in Washington on Wednesday. The focus will be on laying the groundwork for less supportive policy.`\
-https://nytimes.com/2021/07/28/business/economy/fed-taper-questions.html?searchResultPosition=1
+**Simone Biles Masters a Star’s New Move: Showing Vulnerability**\
+`By withdrawing from two Olympic events, Biles joined a growing group of elite athletes who have rejected a long tradition of stoicism.`\
+https://nytimes.com/2021/07/28/sports/olympics/simone-biles-mental-health.html?searchResultPosition=1
 
-**One big question for the Fed: When will jobs come back?**\
-`The economy still has 6.8 million fewer jobs than it did before the pandemic, a key factor as the central bank considers when to withdraw support.`\
-https://nytimes.com/2021/07/28/business/federal-reserve-employment.html?searchResultPosition=2
+**Is This the End of Summer as We’ve Known It?**\
+`Wildfires. Drought. Monsoons. Sewage spills. A resurgent virus. The summer season we thought we knew has become something ominous.  `\
+https://nytimes.com/2021/07/28/us/the-end-of-summer.html?searchResultPosition=2
 
-**Hungary surprises a powerful U.S. team in women’s water polo.**\
-`The preliminary-round loss was a rare setback for the two-time defending Olympic champions.`\
-https://nytimes.com/2021/07/28/sports/olympics/hungary-beats-us-water-polo.html?searchResultPosition=3
+**To Sprinters, Hot Weather in Tokyo Feels Just Right**\
+`Tokyo was deemed to be too hot for marathoners, but there’s evidence that the heat helps sprinters. A little rain might not hurt, either.`\
+https://nytimes.com/2021/07/28/sports/olympics/olympics-tokyo-heat-sprinters.html?searchResultPosition=3
 
-**Sunisa Lee and Jade Carey will represent the U.S. in the all-around with Simone Biles out.**\
-`Carey will take Biles’s spot in the competition on Thursday after she withdrew from the event on Wednesday.`\
-https://nytimes.com/2021/07/28/sports/olympics/biles-out-jade-carey-suni-lee-all-around-gymnastics.html?searchResultPosition=4
+**Randolph, N.J.: ‘A True New Jersey Hidden Gem’**\
+`Just 40 miles from Midtown, the Morris County township offers striking scenery, wilderness trails and housing that’s ‘great value for your money.’`\
+https://nytimes.com/2021/07/28/realestate/randolph-nj-a-true-new-jersey-hidden-gem.html?searchResultPosition=4
 
-**Workers’ Anxiety Grows as Covid Variant Casts a Shadow**\
-`Some see an undue rush by employers to get workplaces back to normal, whether by dropping precautions or imposing new rules.`\
-https://nytimes.com/2021/07/28/business/economy/coronavirus-delta-workers.html?searchResultPosition=5
+**11 New Books Coming in August**\
+`Buzzy new novels from Alexandra Kleeman, Leila Slimani and Stephen King, Billie Jean King’s memoir and plenty more.`\
+https://nytimes.com/2021/07/28/books/new-august-books.html?searchResultPosition=5
 
-**Will the Delta Variant Wreck the Recovery?**\
-`Probably not. But there are potential challenges with both supply and demand that put the economy at risk.`\
-https://nytimes.com/2021/07/28/upshot/delta-virus-economy-analysis.html?searchResultPosition=6
+**The Cruise Industry Stages a Comeback**\
+`After watching thousands of passengers get ill and more than a year of devastating financial losses, the global cruise industry is coming back to life. And it says it knows how to deal with the coronavirus.`\
+https://nytimes.com/2021/07/28/travel/cruise-industry-comeback.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/07/28/crosswords/spelling-bee-2021-07-28.html?searchResultPosition=7
+**Sunday in the Trenches With George**\
+`James Lapine’s book shows how he and Stephen Sondheim invested two years of work to burnish their musical from an avant-garde near-disaster to a mainstream classic.`\
+https://nytimes.com/2021/07/28/theater/james-lapine-stephen-sondheim-sunday-in-the-park.html?searchResultPosition=7
 
-**Want a Vaccine Reservation in South Korea? Try Waiting 111 Hours.**\
-`Once a model in fighting the pandemic, the country has been slow to vaccinate its people, even as it is being hit by its worst-ever wave of infections.`\
-https://nytimes.com/2021/07/28/world/asia/south-korea-vaccine-covid.html?searchResultPosition=8
+**They Survived Covid. Now They Face Eviction.**\
+`Evictions are returning andmore than six million  households behind on rent.`\
+https://nytimes.com/2021/07/28/opinion/covid-eviction-moratorium.html?searchResultPosition=8
 
-**The U.S. men’s basketball team dominates Iran.**\
-`After losing its Olympic opener to France, the American team gets a morale-boosting, 120-66 win.`\
-https://nytimes.com/2021/07/28/sports/olympics/us-basketball-beats-iran.html?searchResultPosition=9
+**L.G.B.T.Q. Elected Officials in U.S. Number Nearly 1,000, Rising Fast**\
+`Every state but Mississippi now has at least one L.G.B.T.Q. elected official, a new report says. Most are Democrats, and anti-Trump fervor spurred many to run.`\
+https://nytimes.com/2021/07/28/us/politics/gay-lesbian-elected-officials.html?searchResultPosition=9
 
-**Simone Biles is withdrawing from the Olympic all-around gymnastics competition.**\
-`Biles will not compete Thursday after missing most of the team final because she said she was not in the right mental place to continue without risking severe injury.`\
-https://nytimes.com/2021/07/28/sports/olympics/simone-biles-withdraws-all-around.html?searchResultPosition=10
+**Inspired to Try an Olympic Sport? First Learn How to Fall.**\
+`Falling during skateboarding or other activities does not have to end in serious injury. Olympic athletes, coaches and scientists tell us how.`\
+https://nytimes.com/2021/07/28/well/move/how-to-fall-safely-sports.html?searchResultPosition=10
 
