@@ -1,5 +1,5 @@
-**Federal Reserve Holds Rates Near-Zero**\
-`Federal Reserve Chair Jerome H. Powell said the Fed kept interest rates unchanged and would continue to buy large amounts of government debt, but suggested that these purchases could taper off as recovery continues.`\
+**Federal Reserve Holds Rates Near Zero**\
+`The chair, Jerome H. Powell, said the Fed was keeping interest rates unchanged and would continue to buy large amounts of government debt, but suggested that these purchases could taper off as recovery continued.`\
 https://nytimes.com/video/business/economy/100000007891806/federal-reserve-powell-inflation-interest-rates-economy.html?searchResultPosition=1
 
 **2 Red Objects Were Found in the Asteroid Belt. They Shouldn’t Be There.**\
