@@ -26,7 +26,7 @@ https://nytimes.com/2021/07/28/sports/simone-biles-self-care.html?searchResultPo
 `The band, known for its hard-charging, blues-inflected rock, was one of the biggest acts of the 1980s, selling more than 50 million albums.`\
 https://nytimes.com/2021/07/28/arts/music/dusty-hill-dead.html?searchResultPosition=7
 
-**Cuomo’s Counsel, a Key Figure in Sexual Harassment Inquiry, to Resign**\
+**Cuomo’s Counsel, a Key Figure in Sexual Harassment Inquiry, Will Resign**\
 `Judith Mogul, a special counsel to Gov. Andrew Cuomo, was a central figure in at least one of the harassment complaints against the governor.`\
 https://nytimes.com/2021/07/28/nyregion/cuomo-judith-mogul-resignation.html?searchResultPosition=8
 
