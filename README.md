@@ -1,4 +1,4 @@
-**Biden is expected to announce all civilian federal workers must be vaccinated or face testing.**\
+**Biden plans to announce all civilian federal workers must be vaccinated or face testing.**\
 `It is a major shift in approach that reflects the White House’s growing concern about the spread of the highly-contagious Delta variant.`\
 https://nytimes.com/2021/07/28/us/politics/biden-vaccine-mandate-federal-workers.html?searchResultPosition=1
 
