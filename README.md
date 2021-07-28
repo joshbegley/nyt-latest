@@ -1,40 +1,40 @@
+**A Wedding or an Art Installation? A Little of Both.**\
+`Some artists have found a new home outside of art galleries as couples strive to create interactive art experiences for their wedding guests.`\
+https://nytimes.com/2021/07/28/style/a-wedding-or-an-art-installation-a-little-of-both.html?searchResultPosition=1
+
 **Watch the Southern Delta Aquariids Meteor Shower Peak in Night Skies**\
 `Meteor showers can light up night skies from dusk to dawn, and if you’re lucky you might be able to catch a glimpse.`\
-https://nytimes.com/2021/07/28/science/meteor-shower-july.html?searchResultPosition=1
+https://nytimes.com/2021/07/28/science/meteor-shower-july.html?searchResultPosition=2
 
 **All of New York City falls under the C.D.C. guidelines for indoor masking.**\
 `Agency officials said that Americans should wear masks indoors in parts of the country that have recorded more than 50 new infections per 100,000 residents over the previous week.`\
-https://nytimes.com/2021/07/28/nyregion/nyc-indoor-mask-guidelines.html?searchResultPosition=2
+https://nytimes.com/2021/07/28/nyregion/nyc-indoor-mask-guidelines.html?searchResultPosition=3
 
 **Daiki Hashimoto of Japan came from behind to win the all-around gold in men’s gymnastics.**\
 `With his win, Hashimoto delivered on his pledge to follow in the footsteps of his idol, Kohei Uchimura.`\
-https://nytimes.com/2021/07/28/sports/olympics/daiki-hashimoto-japan-gymnastics.html?searchResultPosition=3
+https://nytimes.com/2021/07/28/sports/olympics/daiki-hashimoto-japan-gymnastics.html?searchResultPosition=4
 
 **140 Picture Prompts to Inspire Student Writing**\
 `A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing.`\
-https://nytimes.com/2021/07/28/learning/140-picture-prompts-to-inspire-student-writing.html?searchResultPosition=4
+https://nytimes.com/2021/07/28/learning/140-picture-prompts-to-inspire-student-writing.html?searchResultPosition=5
 
 **Vaccinated U.S. and E.U. travelers can enter England without quarantining.**\
 `Travelers will still need a negative coronavirus test before entering the country, Britain’s transport minister said.`\
-https://nytimes.com/2021/07/28/world/uk-travel-quarantine.html?searchResultPosition=5
+https://nytimes.com/2021/07/28/world/uk-travel-quarantine.html?searchResultPosition=6
 
 **U.S. women win the first Olympic gold in three-on-three basketball.**\
 `The Americans defeated the Russian team as the raucous sport branded as ‘3x3’ made its debut at the Olympic Games.`\
-https://nytimes.com/2021/07/28/sports/olympics/usa-wins-3x3-basketball.html?searchResultPosition=6
+https://nytimes.com/2021/07/28/sports/olympics/usa-wins-3x3-basketball.html?searchResultPosition=7
 
 **New C.D.C. mask guidance complicates back-to-office plans.**\
 `Companies that have already opened their doors must decide whether to retrench on masking policies. Others are weighing vaccine mandates.`\
-https://nytimes.com/2021/07/28/business/return-to-office-mask-coronavirus.html?searchResultPosition=7
+https://nytimes.com/2021/07/28/business/return-to-office-mask-coronavirus.html?searchResultPosition=8
 
 **How to Get Things Done When You Don’t Want to Do Anything**\
 `The drive to be your best can be hard to muster right about now. Here are some ways to get your mojo back.`\
-https://nytimes.com/2021/07/28/well/live/how-to-get-things-done-when-you-dont-want-to-do-anything.html?searchResultPosition=8
+https://nytimes.com/2021/07/28/well/live/how-to-get-things-done-when-you-dont-want-to-do-anything.html?searchResultPosition=9
 
 **House Hunting in El Salvador: A Compound on the Coast for $249,000**\
 `Home prices are gradually recovering in the Central American nation, but are still low enough to lure droves of buyers to the beaches.`\
-https://nytimes.com/2021/07/28/realestate/house-hunting-in-el-salvador-a-compound-on-the-coast-for-249000.html?searchResultPosition=9
-
-**Enveloped in Gardens Near El Salvador’s Coastline**\
-`This two-house property, tucked into a tropical garden just off the Pacific coast of El Salvador, is on the market for $249,000.`\
-https://nytimes.com/slideshow/2021/07/28/realestate/enveloped-in-gardens-near-el-salvadors-coastline.html?searchResultPosition=10
+https://nytimes.com/2021/07/28/realestate/house-hunting-in-el-salvador-a-compound-on-the-coast-for-249000.html?searchResultPosition=10
 
