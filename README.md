@@ -10,8 +10,8 @@ https://nytimes.com/2021/07/27/sports/olympics/milak-wins-butterfly-200.html?sea
 `Results from the women’s 200-meter freestyle.`\
 https://nytimes.com/2021/07/27/sports/olympics/ariarne-titmus-200-free-ledecky.html?searchResultPosition=3
 
-**Texas Republicans Battle to Fill U.S. House Seat**\
-`Jake Ellzey is facing off against Susan Wright, the widow of Ron Wright, who represented the state’s Sixth Congressional District before he died in February from Covid-19.`\
+**Jake Ellzey Defeats Widow of Former Congressman in Race for Texas Seat**\
+`Mr. Ellzey, a state representative, was victorious in a runoff against Susan Wright, whose husband, Ron Wright, represented the Sixth Congressional District before he died of Covid-19.`\
 https://nytimes.com/2021/07/27/us/texas-congress-susan-wright-jake-ellzey.html?searchResultPosition=4
 
 **U.S. Declines to Defend Trump Ally in Lawsuit Over Jan. 6 Riot**\
