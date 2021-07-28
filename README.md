@@ -22,19 +22,19 @@ https://nytimes.com/2021/07/28/technology/state-facebook-antitrust-lawsuit.html?
 `The sentence for Sun Dawu, a prominent rural tycoon, is the latest harsh penalty doled out against outspoken business leaders.`\
 https://nytimes.com/2021/07/28/business/china-tycoon-sentenced-sun-dawu.html?searchResultPosition=6
 
+**Biden to sign an executive order aimed at protecting critical American infrastructure from cyberattacks.**\
+`The effort is a way to get beyond the patchwork of mandates and voluntary actions to protect electric utilities, gas pipelines, water supplies and industrial sites that keep the economy running.`\
+https://nytimes.com/2021/07/28/us/politics/cyber-security-biden-executive-order.html?searchResultPosition=7
+
 **These Could Be the Oldest Animal Fossils Ever Found, or Just Squiggles**\
 `Critics challenged a study’s claim that a netlike structure found in rocks in a Canadian mountain range could be an 890-million-year-old sponge fossil.`\
-https://nytimes.com/2021/07/28/science/sponge-fossil.html?searchResultPosition=7
+https://nytimes.com/2021/07/28/science/sponge-fossil.html?searchResultPosition=8
 
 **Frankenthaler Foundation Energy Project Is Giving Museums $10 Million**\
 `Grants awarded to 79 U.S. visual arts institutions will finance energy-efficiency initiatives and measures for protection from wildfires and earthquakes.`\
-https://nytimes.com/2021/07/28/arts/design/frankenthaler-foundation-energy-project-is-giving-museums-10-million.html?searchResultPosition=8
+https://nytimes.com/2021/07/28/arts/design/frankenthaler-foundation-energy-project-is-giving-museums-10-million.html?searchResultPosition=9
 
 **Summer Pizza Party**\
 `Riff with your favorite sweet, salty and spicy toppings.`\
-https://nytimes.com/2021/07/28/dining/summer-pizza-party.html?searchResultPosition=9
-
-**Side by Side With Sondheim: Alan Cumming Reviews a New Book About ‘Sunday in the Park’**\
-`In “Putting It Together,” James Lapine recounts how he and Stephen Sondheim created the Pulitzer Prize-winning musical.`\
-https://nytimes.com/2021/07/28/books/review/putting-it-together-james-lapine.html?searchResultPosition=10
+https://nytimes.com/2021/07/28/dining/summer-pizza-party.html?searchResultPosition=10
 
