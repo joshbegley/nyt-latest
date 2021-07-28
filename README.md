@@ -1,5 +1,5 @@
 **‘Arthur’ Is Ending After 25 Years**\
-`The world’s most popular student aardvark is retiring, at least from the big-hearted series that bore his name. PBS said there may be “additional Arthur content” in the future.`\
+`The world’s most popular student aardvark is retiring, at least from the big-hearted series that bears his name. PBS said there may be “additional Arthur content” in the future.`\
 https://nytimes.com/2021/07/28/arts/television/arthur-final-season.html?searchResultPosition=1
 
 **‘Gut-Wrenching’ Jan. 6 Testimony by Capitol Officers**\
@@ -30,7 +30,7 @@ https://nytimes.com/2021/07/28/us/politics/biden-vaccine-mandate-federal-workers
 `The military doctor, who was among the influx of refugees who entered Germany from Syria, is accused of torturing opponents of the regime of President Bashar al-Assad.`\
 https://nytimes.com/2021/07/28/world/europe/syria-doctor-indicted-germany.html?searchResultPosition=8
 
-**Watch Live: Fed Chair Jerome Powell Provides Update On Interest Rates**\
+**Watch Live: Jerome Powell Takes Questions Following Fed Meeting**\
 `Federal Reserve Chair Jerome H. Powell is expected to speak on the economy and inflation after the US Federal Open Market Committee makes its decision on interest rates, following a two-day meeting.`\
 https://nytimes.com/video/us/100000007890578/jerome-powell-fed-live.html?searchResultPosition=9
 
