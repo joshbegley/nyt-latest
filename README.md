@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/28/world/africa/tunisia-revolution-democracy.html?searchResultPosition=1
 
 **Jake Ellzey Wins Race for Texas Seat**\
-`State Representative Jake Ellzey defeated Susan Wright in a special election for a U.S. House seat in Texas’ 6th District, winning over 50 percent of the vote, and will now join the second-largest congressional delegation behind California.`\
+`State Representative Jake Ellzey defeated Susan Wright in a special runoff election for a U.S. House seat in Texas’ Sixth District, winning over 50 percent of the vote, and will now join the second-largest congressional delegation behind California.`\
 https://nytimes.com/video/us/politics/100000007891490/jake-ellzey-texas-congress-susan-wright.html?searchResultPosition=2
 
 **Federal Reserve Holds Rates Near Zero**\
