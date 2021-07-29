@@ -10,8 +10,8 @@ https://nytimes.com/paidpost/guocoland/how-singapore-is-rethinking-the-future-of
 `Mr. Popeil became a well-known presence on TV, hawking products that people didn’t know they needed, including the Veg-O-Matic and the Inside-the-Shell Egg Scrambler.`\
 https://nytimes.com/2021/07/29/business/ron-popeil-dead.html?searchResultPosition=3
 
-**Trevor Milton, the Nikola founder, is charged with securities fraud.**\
-`Federal prosecutors charged Mr. Milton with misleading investors about the technology for battery and hydrogen powered vehicles Nikola had hoped to manufacture.`\
+**Trevor Milton, the Nikola Founder, Is Charged With Securities Fraud**\
+`Federal prosecutors charged Mr. Milton with misleading investors about the technology for battery- and hydrogen-powered vehicles Nikola had hoped to manufacture.`\
 https://nytimes.com/2021/07/29/business/nikola-trevor-milton-fraud.html?searchResultPosition=4
 
 **Homes for Sale in New York and Connecticut**\
