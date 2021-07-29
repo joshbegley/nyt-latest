@@ -24,7 +24,7 @@ https://nytimes.com/2021/07/29/podcasts/the-daily/china-nuclear-arsenal.html?sea
 
 **Citius, Altius Emptiness**\
 `An unusual Olympics is missing the atmosphere fans bring to events. What is left is not silence, but something else.`\
-https://nytimes.com/2021/07/29/sports/olympics/tokyo.html?searchResultPosition=7
+https://nytimes.com/2021/07/29/sports/olympics/tokyo-olympics-no-fans-venues.html?searchResultPosition=7
 
 **Can an American besides Biles shine through?**\
 `Sunisa Lee and Jade Carey will represent the United States.`\
