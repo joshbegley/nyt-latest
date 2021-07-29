@@ -1,5 +1,5 @@
-**Lawmaker to call for a renewed bipartisan push to free a former U.S. Marine jailed in Russia.**\
-`Paul N. Whelan has not been able to contact his family or the U.S. Embassy since July 4, raising concerns about his well-being.`\
+**Concerns grow about the plight of a former U.S. Marine imprisoned in Russia**\
+`A Michigan lawmaker is pushing for a bipartisan effort to secure the release of Paul N. Whelan, who has not contacted his family or the U.S. Embassy since July 4.`\
 https://nytimes.com/2021/07/29/us/politics/paul-whelan-russia.html?searchResultPosition=1
 
 **How Singapore Is Rethinking the Future of Mixed-Use City Living**\
