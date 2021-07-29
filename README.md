@@ -8,7 +8,7 @@ https://nytimes.com/2021/07/29/style/dan-brown-advice-book.html?searchResultPosi
 
 **How to Celebrate the 200th Birthday of a Man Everyone Knows and No One Knows**\
 `This fall, window displays at Louis Vuitton will feature an uber-collaboration of trunks decorated by BTS, Susan Miller and more.`\
-https://nytimes.com/2021/07/29/fashion/how-to-celebrate-the-200th-birthday-of-a-man-everyone-knows-and-no-one-knows.html?searchResultPosition=3
+https://nytimes.com/2021/07/29/fashion/louis-vuitton-bts.html?searchResultPosition=3
 
 **StripTok: Where the Workers are V.I.P.s**\
 `Strippers share the hazards and joys of their work on social media.`\
