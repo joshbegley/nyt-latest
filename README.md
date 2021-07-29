@@ -1,4 +1,4 @@
-**8.2 Earthquake Off Alaska Prompts Tsunami Warning**\
+**8.2-Magnitude Earthquake Off Alaska Prompts Tsunami Warning**\
 `In Kodiak, where the earthquake could be felt, tsunami sirens blared and people began moving to higher ground.`\
 https://nytimes.com/2021/07/29/us/alaska-earthquake-tsunami-warning.html?searchResultPosition=1
 
