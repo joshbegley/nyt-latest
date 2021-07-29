@@ -26,9 +26,9 @@ https://nytimes.com/2021/07/29/sports/olympics/team-usa-womens-gymnastics.html?s
 `A mandate for state employees and a $100 reward in New York City for getting a first shot are aimed at holdouts.`\
 https://nytimes.com/2021/07/29/nyregion/a-push-to-get-new-york-vaccinated.html?searchResultPosition=7
 
-**Credit Suisse internal review finds incompetence but no criminal conduct in Archegos debacle.**\
+**Credit Suisse finds incompetence but no criminal conduct in Archegos debacle.**\
 `The Swiss bank, which lost $5.5 billion in the hedge fund’s collapse, will fire nine employees and order that some bonuses be paid back.`\
-https://nytimes.com/2021/07/29/business/credit-suisse-internal-review-finds-incompetence-but-no-criminal-conduct-in-archegos-debacle.html?searchResultPosition=8
+https://nytimes.com/2021/07/29/business/credit-suisse-finds-incompetence-but-no-criminal-conduct-in-archegos-debacle.html?searchResultPosition=8
 
 **The exit of Biles opens up the door for Sunisa Lee — or others.**\
 `The United States has won each Olympic all-around title since 2004.`\
