@@ -8,7 +8,7 @@ https://nytimes.com/2021/07/28/world/johnson-vaccine-shelf-life.html?searchResul
 
 **How cool is the pool in Tokyo?**\
 `The Tokyo Aquatics Center was built just for the 2020 Olympics. Yes, it has lifeguards, and it’s a lot warmer than you think it is.`\
-https://nytimes.com/2021/07/28/sports/olympics/olympic-pool-airhorns-length-lifeguard.html?searchResultPosition=3
+https://nytimes.com/2021/07/28/sports/olympics/olympic-pool-temperature-length.html?searchResultPosition=3
 
 **‘The Lost Cause’ Is Back**\
 `Many Americans like the sanitized version of their history — color-corrected and photoshopped — and always have.`\
