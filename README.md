@@ -1,40 +1,40 @@
+**Watch Live: Biden Outlines Next Steps in Coronavirus Vaccine Efforts**\
+`President Biden announces that all civilian federal employees must receive the coronavirus vaccine or be forced to submit to regular testing, an effort designed to fight against the spread of the Delta variant.`\
+https://nytimes.com/video/us/politics/100000007893402/biden-vaccine-live-video.html?searchResultPosition=1
+
+**Like other families of Olympians, Sunisa Lee’s relatives are cheering (and crying) from afar.**\
+`With spectators barred from the Games, athletes’ closest supporters have gotten creative, holding watch parties to follow the events in real time.`\
+https://nytimes.com/2021/07/29/sports/olympics/sunisa-lee-family.html?searchResultPosition=2
+
 **California Wine Country Rebuilds as Threats Persist**\
 `The drought in Northern California is severe, and the risk of fires remains high. But winemakers are trying to adapt to climate change.`\
-https://nytimes.com/2021/07/29/dining/drinks/california-wine-climate-change-fires.html?searchResultPosition=1
+https://nytimes.com/2021/07/29/dining/drinks/california-wine-climate-change-fires.html?searchResultPosition=3
 
 **Electric Utilities, Formed Decades Ago, Struggle to Meet Climate Crisis**\
 `Power companies are fighting to keep the lights on amid extreme wildfires, heat and flooding fueled by global warming.`\
-https://nytimes.com/2021/07/29/climate/electric-utilities-climate-change.html?searchResultPosition=2
+https://nytimes.com/2021/07/29/climate/electric-utilities-climate-change.html?searchResultPosition=4
 
 **Hedge Fund Buys Paper. Hedge Fund Closes Paper.**\
 `Since Alden Global Capital bought the Tribune Publishing newspaper chain, newsrooms have shrunk and a Maryland weekly has shut down.`\
-https://nytimes.com/2021/07/29/business/media/alden-tribune-newspapers.html?searchResultPosition=3
+https://nytimes.com/2021/07/29/business/media/alden-tribune-newspapers.html?searchResultPosition=5
 
 **Budget watchdog group warns bipartisan infrastructure deal may fall short on funding.**\
 `The group’s analysis found that the offsets might only cover about half the cost of the legislation.`\
-https://nytimes.com/2021/07/29/us/politics/budget-infrastructure-funding.html?searchResultPosition=4
+https://nytimes.com/2021/07/29/us/politics/budget-infrastructure-funding.html?searchResultPosition=6
 
 **Activision, Facing Internal Turmoil, Grapples With #MeToo Reckoning**\
 `More than 1,500 employees for the video game giant, which is facing an explosive state lawsuit, have called for executives to take sexual harassment seriously.`\
-https://nytimes.com/2021/07/29/technology/activision-walkout-metoo-call-of-duty.html?searchResultPosition=5
+https://nytimes.com/2021/07/29/technology/activision-walkout-metoo-call-of-duty.html?searchResultPosition=7
 
 **Israel will give third Covid vaccine shots to those over 60.**\
 `Whether booster shots are needed by older citizens is an issue that is far from settled among scientists.`\
-https://nytimes.com/2021/07/29/world/middleeast/israel-third-shot-covid-vaccine.html?searchResultPosition=6
+https://nytimes.com/2021/07/29/world/middleeast/israel-third-shot-covid-vaccine.html?searchResultPosition=8
 
 **Masks are mandated indoors in Washington, D.C., as localities grapple with revised federal guidance.**\
 `The announcement from Mayor Muriel Bowser came as some states and municipalities were quick to adopt the new C.D.C. guidelines while others expressed outrage.`\
-https://nytimes.com/2021/07/29/us/mask-mandate-indoors-washington-dc.html?searchResultPosition=7
+https://nytimes.com/2021/07/29/us/mask-mandate-indoors-washington-dc.html?searchResultPosition=9
 
 **The Senate unanimously passes a $2.1 billion emergency spending bill to secure the Capitol and aid Afghan refugees.**\
 `The vote came after several Republicans dropped their objections and the Senate agreed to require a report on the Afghan visa program.`\
-https://nytimes.com/2021/07/29/us/politics/the-senate-unanimously-passes-a-2-1-billion-emergency-spending-bill-to-secure-the-capitol-and-aid-afghan-refugees.html?searchResultPosition=8
-
-**Italy’s Mr. Fix-It Tries to Fix the Country’s Troubled Justice System — and Its Politics, Too**\
-`The issue has become a test for whether Prime Minister Mario Draghi can really change Italy.`\
-https://nytimes.com/2021/07/29/world/europe/29Italy-Justice-judicial-reform.html?searchResultPosition=9
-
-**What’s in Our Queue? Mario and More**\
-`I’m the editor of The Times’s Culture desk. Here are four things I've been watching, reading and playing.`\
-https://nytimes.com/interactive/2021/07/29/arts/editors-recommendations-mario.html?searchResultPosition=10
+https://nytimes.com/2021/07/29/us/politics/the-senate-unanimously-passes-a-2-1-billion-emergency-spending-bill-to-secure-the-capitol-and-aid-afghan-refugees.html?searchResultPosition=10
 
