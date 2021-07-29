@@ -23,7 +23,7 @@ https://nytimes.com/2021/07/29/briefing/help-us-improve-the-weekly-news-quiz.htm
 https://nytimes.com/2021/07/29/nyregion/sandy-hook-shooting-remington-settlement.html?searchResultPosition=6
 
 **How Covid Became a Red-State Crisis**\
-`The geography of this wave is nakedly political`\
+`The geography of this wave is nakedly political.`\
 https://nytimes.com/2021/07/29/opinion/covid-vaccinations-republicans.html?searchResultPosition=7
 
 **What’s Ripping American Families Apart?**\
