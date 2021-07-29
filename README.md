@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/29/sports/olympics/tokyo.html?searchResultPosition=1
 https://nytimes.com/2021/07/29/sports/olympics/team-usa-womens-gymnastics.html?searchResultPosition=2
 
 **A Push to Get New York Vaccinated**\
-`A  mandate for state employees and a $100 reward for getting a first shot in New York City are aimed at holdouts.`\
+`A mandate for state employees and a $100 reward in New York City for getting a first shot are aimed at holdouts.`\
 https://nytimes.com/2021/07/29/nyregion/a-push-to-get-new-york-vaccinated.html?searchResultPosition=3
 
 **Credit Suisse internal review finds incompetence but no criminal conduct in Archegos debacle.**\
