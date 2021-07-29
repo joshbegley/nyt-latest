@@ -1,5 +1,5 @@
 **Caeleb Dressel wins the men’s 100-meter freestyle, and his first individual medal.**\
-`Results from the men’s 100-meter freestyle final.`\
+`Dressel set an Olympic record in 47.02 seconds.`\
 https://nytimes.com/2021/07/28/sports/olympics/caeleb-dressel-wins-100m-freestyle-swimming.html?searchResultPosition=1
 
 **Zhang Yufei of China sets an Olympic record in the women’s 200-meter butterfly.**\
