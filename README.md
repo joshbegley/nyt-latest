@@ -11,8 +11,8 @@ https://nytimes.com/video/us/100000007894439/biden-coronavirus-vaccine-federal-e
 https://nytimes.com/2021/07/29/sports/olympics/track-field-events-us-women-soccer.html?searchResultPosition=3
 
 **U.S. broadcast coverage on Thursday night includes gymnastics, basketball and BMX racing.**\
-`By Alexandra E. Petri`\
-https://nytimes.com/2021/07/29/sports/olympics/us-broadcast-coverage-on-thursday-night-includes-gymnastics-basketball-and-bmx-racing.html?searchResultPosition=4
+`Swimming continues, and the U.S. women’s rugby sevens team will play Australia.`\
+https://nytimes.com/2021/07/29/sports/olympics/olympic-streaming-watch-gymnastics-swimming-rugby.html?searchResultPosition=4
 
 **Are the Olympics Too Broken to Fix?**\
 ` The Tokyo Games have been called the “cursed” Olympics, and for good reason. But the Games have been a little cursed for a while now.`\
