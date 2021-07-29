@@ -6,7 +6,7 @@ https://nytimes.com/2021/07/28/sports/olympics/china-wins-relay-beat-katie-ledec
 `All guests older than 2 will be required to wear masks in indoor spaces, regardless of their vaccination status.`\
 https://nytimes.com/2021/07/28/world/disney-world-masks.html?searchResultPosition=2
 
-**Women paddlers canoe in the Olympics for the first time.**\
+**Women canoe in the Olympics for the first time.**\
 `The sport joins a series of Olympic events that were belatedly expanded to include women.`\
 https://nytimes.com/2021/07/28/sports/olympics/canoeing-kayaking-olympics-women.html?searchResultPosition=3
 
