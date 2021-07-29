@@ -8,7 +8,7 @@ https://nytimes.com/2021/07/28/sports/olympics/robert-finke-800m-free-win.html?s
 
 **Women’s 4x200 free relay renews the rivalry between Katie Ledecky and Ariarne Titmus.**\
 `Ledecky may add another medal, but Titmus and the Australians are big favorites.`\
-https://nytimes.com/2021/07/28/sports/olympics/katie-ledecky-ariarne-titmus-400x2-free-relay.html?searchResultPosition=3
+https://nytimes.com/2021/07/28/sports/olympics/ledecky-titmus.html?searchResultPosition=3
 
 **J&J vaccine shelf life extended to six months by F.D.A.**\
 `The decision comes after state health officials were worried about whether doses of the Johnson & Johnson coronavirus vaccine would expire and go to waste.`\
