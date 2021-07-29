@@ -6,8 +6,8 @@ https://nytimes.com/2021/07/29/sports/olympics/rebeca-andrade-is-the-first-brazi
 `Boosters may not be necessary yet, many experts say, and the pursuit of additional shots raises ethical questions.`\
 https://nytimes.com/2021/07/29/science/covid-vaccine-booster-third-shot.html?searchResultPosition=2
 
-**What Animals See in the Stars**\
-`Humans aren’t the only species that navigate by starlight; birds, seals and even dung beetles seem able to do it, too.`\
+**What Animals See in the Stars, and What They Stand to Lose**\
+`Humans aren’t the only species that navigate by starlight. Animals from birds to dung beetles may do it, too — and might become disoriented as our city lights drown out the heavens.`\
 https://nytimes.com/2021/07/29/science/animals-starlight-navigation-dacke.html?searchResultPosition=3
 
 **‘Fauna’ Review: Narcomythologies**\
