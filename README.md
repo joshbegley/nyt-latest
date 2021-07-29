@@ -1,4 +1,4 @@
-**Track and Field at the Olympics: What to Watch for**\
+**Track and Field at the Olympics: What to Watch For**\
 `There are 10 consecutive days of competition at the Olympic Stadium in Tokyo. The marathon will be held in Sapporo, where the weather is expected to be cooler.`\
 https://nytimes.com/article/track-field-olympics-what-to-watch.html?searchResultPosition=1
 
