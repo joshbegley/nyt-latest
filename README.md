@@ -24,7 +24,7 @@ https://nytimes.com/2021/07/28/sports/olympics/canoeing-kayaking-olympics-women.
 
 **Caeleb Dressel wins the men’s 100-meter freestyle, and his first individual medal.**\
 `Dressel set an Olympic record in 47.02 seconds.`\
-https://nytimes.com/2021/07/28/sports/olympics/caeleb-dressel-wins-100m-freestyle-swimming.html?searchResultPosition=7
+https://nytimes.com/2021/07/28/sports/olympics/caeleb-dressel-wins-record.html?searchResultPosition=7
 
 **Zhang Yufei of China sets an Olympic record in the women’s 200-meter butterfly.**\
 `Her time of 2 minutes 3.86 seconds was the third-fastest time ever. Americans finished second and third.`\
