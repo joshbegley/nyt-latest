@@ -18,23 +18,23 @@ https://nytimes.com/2021/07/29/sports/olympics/sunisa-lee-rebecca-andrade.html?s
 `Opinions abound ahead of the first day of trading for the popular but controversial investment app.`\
 https://nytimes.com/2021/07/29/business/dealbook/robinhood-ipo-valuation-worth.html?searchResultPosition=5
 
+**Novak Djokovic roars into the tennis semifinals.**\
+`A win in the Olympic tournament would put Djokovic in prime position for a “Golden Slam.”`\
+https://nytimes.com/2021/07/29/sports/olympics/novak-djokovic-tennis-semifinals.html?searchResultPosition=6
+
 **‘The Evening Hour’ Review: Heart of the Country**\
 `In this drama, a wholesome young man in an Appalachian town tries to do right by friends and family but gets caught up in a side hustle dealing pills.`\
-https://nytimes.com/2021/07/29/movies/the-evening-hour-review.html?searchResultPosition=6
+https://nytimes.com/2021/07/29/movies/the-evening-hour-review.html?searchResultPosition=7
 
 **‘Stillwater’ Review: Another American Tragedy**\
 `Matt Damon plays a father determined to free his daughter from prison in the latest from Tom McCarthy, the director of “Spotlight.”`\
-https://nytimes.com/2021/07/29/movies/stillwater-review.html?searchResultPosition=7
+https://nytimes.com/2021/07/29/movies/stillwater-review.html?searchResultPosition=8
 
 **‘Enemies of the State’ Review: Seeking Proof Shrouded in Shadows**\
 `This documentary on the strange case of Matt DeHart weaves uncertainty into its structure.`\
-https://nytimes.com/2021/07/29/movies/enemies-of-the-state-review.html?searchResultPosition=8
+https://nytimes.com/2021/07/29/movies/enemies-of-the-state-review.html?searchResultPosition=9
 
 **‘Ride the Eagle’ Review: A Nontoxic Bro Faces Midlife Lessons**\
 `A conga-playing, marijuana-smoking man approaches middle age — and romance — with help from a video from his mother.`\
-https://nytimes.com/2021/07/29/movies/ride-the-eagle-review.html?searchResultPosition=9
-
-**‘Lorelei’ Review: A Rural Melodrama, Lost at Sea**\
-`Pablo Schreiber and Jena Malone attempt to provide an anchor for this listless character drama.`\
-https://nytimes.com/2021/07/29/movies/lorelei-review-a-rural-melodrama-lost-at-sea.html?searchResultPosition=10
+https://nytimes.com/2021/07/29/movies/ride-the-eagle-review.html?searchResultPosition=10
 
