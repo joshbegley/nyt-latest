@@ -1,5 +1,5 @@
 **Australian Zac Stubblety-Cook wins the 200-meter breaststroke in an Olympic record time.**\
-`By John Branch`\
+`Arno Kamminga of the Netherlands earned the silver medal, followed by Matti Mattsson of Finland.`\
 https://nytimes.com/2021/07/28/sports/olympics/zac-stubblety-cook-200m-breaststroke-record.html?searchResultPosition=1
 
 **Bobby Finke of the United States wins the first men’s 800-meter freestyle at the Olympics.**\
