@@ -26,8 +26,8 @@ https://nytimes.com/2021/07/29/business/catskills-vintage-cars.html?searchResult
 `The nation appears to be undertaking the most significant expansion in the history of its nuclear weapons program.`\
 https://nytimes.com/2021/07/29/podcasts/the-daily/china-nuclear-arsenal.html?searchResultPosition=7
 
-**Citius, Altius Emptiness**\
-`An unusual Olympics is missing the atmosphere fans bring to events. What is left is not silence, but something else.`\
+**Citius, Altius, Emptiness**\
+`An unusual Olympics is missing the atmosphere and the noise fans bring to events. What is left is not silence, but something else.`\
 https://nytimes.com/2021/07/29/sports/olympics/tokyo-olympics-no-fans-venues.html?searchResultPosition=8
 
 **Can an American besides Biles shine through?**\
