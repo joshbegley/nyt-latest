@@ -1,5 +1,5 @@
 **Zhang Yufei of China sets an Olympic record in the women’s 200-meter butterfly.**\
-`By John Branch`\
+`Her time of 2 minutes 3.86 seconds was the third-fastest time ever. Americans finished second and third.`\
 https://nytimes.com/2021/07/28/sports/olympics/zhang-yufei-200m-butterfly.html?searchResultPosition=1
 
 **Simone Biles says the supportive reaction to her withdrawal has been uplifting.**\
