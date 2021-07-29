@@ -1,5 +1,5 @@
 **China shocks Australia in the women’s 4x200 free relay, setting a world record.**\
-`The United States, behind Katie Ledecky, finished second, and the favored Australians settled for bronze.`\
+`The United States, behind Katie Ledecky, stormed to a silver medal, and the favored Australians settled for bronze.`\
 https://nytimes.com/2021/07/28/sports/olympics/china-wins-relay-beat-katie-ledecky.html?searchResultPosition=1
 
 **Disney World in Florida will require masks indoors again.**\
