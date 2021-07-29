@@ -1,5 +1,5 @@
 **Is Remington’s $33 Million Offer Enough to End Sandy Hook Massacre Case?**\
-`Lawyers for families of those killed in the mass shooting say are moving “full-steam ahead” after the company did not allow for full access to its internal documents.`\
+`Lawyers for families of those killed in the mass shooting say they are moving “full-steam ahead” after the company did not allow for full access to its internal documents.`\
 https://nytimes.com/2021/07/29/nyregion/sandy-hook-shooting-remington-settlement.html?searchResultPosition=1
 
 **How Covid Became a Red-State Crisis**\
