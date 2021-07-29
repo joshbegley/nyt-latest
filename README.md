@@ -1,6 +1,6 @@
 **Sunisa Lee is still behind Andrade after the uneven bars.**\
 `That means Lee will have to catch up with the beam and floor exercise to win gold.`\
-https://nytimes.com/2021/07/29/sports/olympics/sunisa-lee-is-still-behind-andrade-after-the-uneven-bars.html?searchResultPosition=1
+https://nytimes.com/2021/07/29/sports/olympics/sunisa-lee-rebecca-andrade.html?searchResultPosition=1
 
 **What is Robinhood Worth?**\
 `Opinions abound ahead of the first day of trading for the popular but controversial investment app.`\
