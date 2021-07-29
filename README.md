@@ -1,4 +1,4 @@
-**Who Discriminates in Hiring? A New Study Can Tell**\
+**Who Discriminates in Hiring? A New Study Can Tell.**\
 `Applications seemingly from Black candidates got fewer replies than those evidently from white candidates. The method could point to specific companies.`\
 https://nytimes.com/2021/07/29/business/economy/hiring-racial-discrimination.html?searchResultPosition=1
 
