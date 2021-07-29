@@ -27,7 +27,7 @@ https://nytimes.com/2021/07/28/sports/olympics/caeleb-dressel-wins-100m-freestyl
 https://nytimes.com/2021/07/28/sports/olympics/zhang-yufei-200m-butterfly.html?searchResultPosition=7
 
 **Simone Biles says the supportive reaction to her withdrawal has been uplifting.**\
-`Biles says she has realized that there’s more to life than competing and winning medals.`\
+`Biles says she has realized that she is valued for more than competing and winning medals.`\
 https://nytimes.com/2021/07/28/sports/olympics/simone-biles-tweet.html?searchResultPosition=8
 
 **Quotation of the Day: Corruption Imperils the Future of Weight Lifting**\
