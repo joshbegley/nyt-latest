@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/29/movies/the-boy-behind-the-door-review.html?search
 https://nytimes.com/2021/07/29/us/politics/100-dollars-covid-vaccine-biden.html?searchResultPosition=6
 
 **Biden to nominate a Cuban American Democrat to be the U.S. ambassador to O.A.S.**\
-`President Biden plans on Thursday to nominate Francisco O. Mora, a prominent Cuban American Democrat.`\
+`President Biden nominated Francisco O. Mora, a prominent Cuban American Democrat.`\
 https://nytimes.com/2021/07/29/us/politics/francisco-mora-ambassador-OAS.html?searchResultPosition=8
 
 **How the Guggenheim Got Its Groove Back**\
