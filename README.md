@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/29/sports/baseball/anthony-rizzo-joey-gallo-yankees.
 https://nytimes.com/2021/07/29/sports/olympics/swimmers-medals-swim-caps.html?searchResultPosition=3
 
 **A world record for South Africa in swimming, and two more U.S. medals.**\
-`Friday morning’s finals include opportunities for a few more American medals.`\
+`South African swimmer Tatjana Schoenmaker lived up to expectations, topping Lilly King of the United States.`\
 https://nytimes.com/2021/07/29/sports/olympics/swimming-united-states-australia.html?searchResultPosition=4
 
 **He Killed Himself After the Jan. 6 Riot. Did He Die in the Line of Duty?**\
