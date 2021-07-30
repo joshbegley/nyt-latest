@@ -27,7 +27,7 @@ https://nytimes.com/2021/07/29/crosswords/daily-puzzle-2021-07-30.html?searchRes
 https://nytimes.com/2021/07/29/us/politics/biden-immigration-reconciliation.html?searchResultPosition=7
 
 **With Blockbuster Trades, the Yankees Embrace the Moment**\
-`Despite trailing three teams in the A.L. East and four in the wild card race, the Yankees and Brian Cashman are all-in with the acquisitions of Anthony Rizzo and Joey Gallo.`\
+`Despite trailing two teams in the A.L. East and three in the wild card race, the Yankees and Brian Cashman are all-in with the acquisitions of Anthony Rizzo and Joey Gallo.`\
 https://nytimes.com/2021/07/29/sports/baseball/anthony-rizzo-joey-gallo-yankees.html?searchResultPosition=8
 
 **Your not-so-random questions about swimming, answered.**\
