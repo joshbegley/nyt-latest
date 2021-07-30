@@ -1,4 +1,4 @@
-**Sarah Niles Needed ‘Ted Lasso’ Last Year, Too**\
+**Sarah Niles Needed ‘Ted Lasso,’ Too**\
 `Like a lot of the show’s fans, the British actress found the fish-out-of-water comedy to be an emotional balm during an exceptionally trying time. Now she’s the latest big addition to the cast.`\
 https://nytimes.com/2021/07/30/arts/television/ted-lasso-sarah-niles.html?searchResultPosition=1
 
