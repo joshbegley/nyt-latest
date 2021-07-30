@@ -1,6 +1,6 @@
 **She just won her third gold medal in Tokyo. Detractors in South Korea are criticizing her haircut.**\
 `Despite An San’s achievements on the international stage, South Korean social media users are attacking her — not for her Olympic performance, but for her short hair.`\
-https://nytimes.com/2021/07/30/sports/olympics/an-san-south-korea-archery-women-feminism.html?searchResultPosition=1
+https://nytimes.com/2021/07/30/sports/olympics/an-san-hair.html?searchResultPosition=1
 
 **The Threat of Evictions for N.Y. Renters**\
 `The federal  moratorium is over on Saturday, but the state's ban lasts until the end of August. There is little hope they will be extended.`\
