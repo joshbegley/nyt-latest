@@ -10,7 +10,7 @@ https://nytimes.com/2021/07/29/sports/baseball/anthony-rizzo-joey-gallo-yankees.
 `Here are all the answers to questions about swimming that you need ahead of Friday’s four gold medal races.`\
 https://nytimes.com/2021/07/29/sports/olympics/swimmers-medals-swim-caps.html?searchResultPosition=3
 
-**The United States and Australia are having a private medals race in swimming.**\
+**A world record for South Africa in swimming, and two more U.S. medals.**\
 `Friday morning’s finals include opportunities for a few more American medals.`\
 https://nytimes.com/2021/07/29/sports/olympics/swimming-united-states-australia.html?searchResultPosition=4
 
