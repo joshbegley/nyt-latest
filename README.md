@@ -20,7 +20,7 @@ https://nytimes.com/article/swimming-questions-answers.html?searchResultPosition
 
 **A world record for South Africa’s Tatjana Schoenmaker, and three more U.S. medals.**\
 `The South African swimmer Tatjana Schoenmaker lived up to expectations, topping Lilly King of the United States.`\
-https://nytimes.com/2021/07/29/sports/olympics/swimming-united-states-australia.html?searchResultPosition=6
+https://nytimes.com/2021/07/29/sports/olympics/swimming-results-olympics.html?searchResultPosition=6
 
 **He Killed Himself After the Jan. 6 Riot. Did He Die in the Line of Duty?**\
 `Jeffrey Smith, a police officer who confronted a mob in the Capitol, later shot himself. His widow blames the riot, and is asking for full death benefits.`\
