@@ -1,6 +1,6 @@
 **How Biden Got the Infrastructure Deal Trump Couldn’t**\
 `The early success of the deal vindicated the president’s faith in bipartisanship. If he can keep it on track, it will help affirm the rationale for his presidency.`\
-https://nytimes.com/2021/07/29/business/how-biden-got-the-infrastructure-deal-trump-couldnt.html?searchResultPosition=1
+https://nytimes.com/2021/07/29/business/biden-infrastructure-deal.html?searchResultPosition=1
 
 **Pistons Select Cade Cunningham With No. 1 Pick in N.B.A. Draft**\
 `Cunningham, a 6-foot-8 guard out of Oklahoma State, becomes the latest part of Detroit’s pursuit of a resurgence.`\
