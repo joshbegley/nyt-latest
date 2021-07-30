@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/30/realestate/gloria-vanderbilt-home-sale.html?searc
 https://nytimes.com/slideshow/2021/07/30/realestate/a-treasure-trove-collected-by-gloria-vanderbilt.html?searchResultPosition=3
 
 **Novak Djokovic is eliminated in the men’s singles tennis tournament in the semifinals.**\
-`By Matthew Futterman`\
+`The loss ended Djokovic’s bid for a Golden Slam — winning the four Grand Slam tournaments and the Olympic gold medal in singles in the same year.`\
 https://nytimes.com/2021/07/30/sports/olympics/novak-djokovic-loses-tennis.html?searchResultPosition=4
 
 **She just won her third gold medal in Tokyo. Detractors in South Korea are criticizing her haircut.**\
