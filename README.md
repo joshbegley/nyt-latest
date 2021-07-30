@@ -4,7 +4,7 @@ https://nytimes.com/2021/07/30/sports/baseball/max-scherzer-trade-deadline.html?
 
 **Some New Yorkers say $100 offer inspired them to get vaccinated.**\
 `New Yorkers lined up in the Bronx and Brooklyn to get vaccinated on the first day of cash was offered to get vaccinated at city-run sites.`\
-https://nytimes.com/2021/07/30/nyregion/some-new-yorkers-say-100-offer-inspired-them-to-get-vaccinated.html?searchResultPosition=2
+https://nytimes.com/2021/07/30/nyregion/new-york-city-vaccine-100-offer.html?searchResultPosition=2
 
 **My Country Has Been a Dictatorship Before. We Can’t Go Back.**\
 `One-man rule is not the solution to Tunisia's economic problems. `\
