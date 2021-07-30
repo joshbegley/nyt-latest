@@ -3,8 +3,8 @@
 https://nytimes.com/2021/07/30/obituaries/janet-sobel-overlooked.html?searchResultPosition=1
 
 **Vaccinated People May Spread the Virus, Though Rarely, C.D.C. Reports**\
-`The proof is an outbreak in Provincetown, Mass., the agency said. But published internal documents paints an even more harrowing picture.`\
-https://nytimes.com/2021/07/30/health/cdc.html?searchResultPosition=2
+`The proof is an outbreak in Provincetown, Mass., the agency said. But published internal documents paint an even more harrowing picture.`\
+https://nytimes.com/2021/07/30/health/cdc-vaccinated-delta.html?searchResultPosition=2
 
 **My Sister Remembers Her Past Life. Somehow, I Believe Her.**\
 `Living with my sister during the pandemic taught me to suppress my cynicism and embrace her belief in reincarnation.`\
