@@ -1,40 +1,40 @@
-**Simone Biles, struggling with ‘the twisties,’ says she can’t ‘tell up from down.’**\
-`By Juliet Macur`\
-https://nytimes.com/2021/07/30/sports/olympics/simone-biles-gymnastics-twisties.html?searchResultPosition=1
+**Nooses, Anger and No Answers: Inside the Uproar Over a Future Amazon Site**\
+`The discovery of multiple nooses has set off heated debates about the responsibility of companies and the ability of workers to speak their mind.`\
+https://nytimes.com/2021/07/30/technology/amazon-nooses-warehouse.html?searchResultPosition=1
 
-**How Speed and Distance Dictate How Olympians Run**\
-`We invited three elite runners to run on the world’s fastest treadmill to examine the differences between running fast and running far (but still pretty fast).`\
-https://nytimes.com/interactive/2021/07/30/sports/olympics/olympic-running.html?searchResultPosition=2
+**China Targets Costly Tutoring Classes. Parents Want to Save Them.**\
+`Many families and experts say Beijing’s education overhaul will help the rich and make the system even more competitive for those who can barely afford it.`\
+https://nytimes.com/2021/07/30/business/economy/china-education-tutors.html?searchResultPosition=2
 
-**Afghan Visa Applicants Arrive in U.S. After Years of Waiting**\
-`The first group of Afghan interpreters and others who helped Americans during the war will stay on an Army base in Virginia until they are resettled.`\
-https://nytimes.com/2021/07/30/us/politics/afghan-interpreters-evacuated.html?searchResultPosition=3
+**A New York City Home for Less Than $350,000**\
+`Housing prices in New York are notoriously high, but if you look carefully, especially with an open mind on location, you can find something affordable.`\
+https://nytimes.com/2021/07/30/realestate/new-york-homes-bargains.html?searchResultPosition=3
 
-**Hong Kong Protester Is Sentenced to 9 Years in First Security Law Case**\
-`Tong Ying-kit, 24, who drove a motorcycle into police officers while carrying a protest flag, was convicted of terrorism and inciting secession.`\
-https://nytimes.com/2021/07/30/world/asia/hong-kong-protester-security-law.html?searchResultPosition=4
+**The Indigenous Archaeologist Tracking Down the Missing Residential Children**\
+`Kisha Supernant has brought radar technology to the search for burial sites in Canada while she works to reshape her profession’s relationship with Indigenous communities.`\
+https://nytimes.com/2021/07/30/world/canada/indigenous-archaeologist-graves-school-children.html?searchResultPosition=4
 
-**Why Elite Female Athletes Are Turning Away From Major Sponsors**\
-`Smaller brands are working with athletes in different ways, like giving them equity or roles in developing products, and are paying more attention to their personal stories.`\
-https://nytimes.com/2021/07/30/business/female-athletes-sponsorship-apparel.html?searchResultPosition=5
+**Alexandra Kleeman Finds Reality All Too Surreal**\
+`Her latest novel, “Something New Under the Sun,” imagines a highly imaginable California so ravaged by drought and wildfires that only the rich can afford to survive.`\
+https://nytimes.com/2021/07/30/books/alexandra-kleeman-something-new-under-the-sun.html?searchResultPosition=5
 
-**N.Y.’s Transit System Could Receive $10 Billion in Infrastructure Deal**\
-`The $1 trillion compromise bill worked out this week in the Senate includes billions of dollars for subways, buses and railroads in the metropolitan area.`\
-https://nytimes.com/2021/07/30/nyregion/nyc-mta-infrastucture-bill.html?searchResultPosition=6
+**Here’s Who Is Hospitalized for Covid in New York City as Cases Rise**\
+`People with compromised immune systems and the unvaccinated make up a high percentage of patients who end up in the hospital.`\
+https://nytimes.com/2021/07/30/nyregion/nyc-covid-hospitalizations.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/07/30/crosswords/spelling-bee-2021-07-30.html?searchResultPosition=7
+**What to Do This Summer: Los Angeles**\
+`An indoor masking order hasn’t stopped visitors from enjoying Culver City, Downtown and Venice. Here are suggestions for food, culture and sights, with an outdoors emphasis.`\
+https://nytimes.com/2021/07/30/travel/what-to-do-this-summer-los-angeles.html?searchResultPosition=7
 
-**‘The Last Mercenary’ Review: Still Kicking**\
-`In this diverting action comedy, Jean-Claude Van Damme plays a former secret agent forced back into action to save his estranged son.`\
-https://nytimes.com/2021/07/30/movies/the-last-mercenary-review-still-kicking.html?searchResultPosition=8
+**Is Nose Hair Essential to Fighting Off Colds and Other Viral Illnesses?**\
+`Expert advice on whether trimming or waxing your nose hairs might increase the risk of respiratory infections.`\
+https://nytimes.com/2021/07/30/well/nose-hair-virus-protection.html?searchResultPosition=8
 
-**You know it’s hot at the Olympics when they have to cool off the sand.**\
-`Tokyo has held the Games before, but it wasn’t like this.`\
-https://nytimes.com/2021/07/30/sports/olympics/tokyo-olympics-heat-weather.html?searchResultPosition=9
+**Manchin and Sinema Have Their History Wrong**\
+`Senate Democrats who won’t give up the filibuster to secure voting rights are fooling themselves.`\
+https://nytimes.com/2021/07/30/opinion/manchin-sinema-filibuster-voting-rights.html?searchResultPosition=9
 
-**Don’t Let the Pandemic Tear Australia Apart**\
-`Our states sometimes seem to be at war with each other as outbreaks flare. But this virus knows no boundaries.`\
-https://nytimes.com/2021/07/30/world/australia/dont-let-the-pandemic-tear-australia-apart.html?searchResultPosition=10
+**She Was Music’s Greatest Teacher. And Much More.**\
+`A festival broadens our understanding of Nadia Boulanger, the pathbreaking composer, conductor and thinker.`\
+https://nytimes.com/2021/07/30/arts/music/nadia-boulanger-bard-music.html?searchResultPosition=10
 
