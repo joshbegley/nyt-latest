@@ -6,13 +6,13 @@ https://nytimes.com/2021/07/30/world/middleeast/turkey-fires-mediterranean-leban
 `“Companies that get down with me know how I get down.”`\
 https://nytimes.com/2021/07/30/business/corner-office-snoop-dogg.html?searchResultPosition=2
 
-**In ‘Mr. Corman,’ Joseph Gordon-Levitt Looks Inward and Asks, ‘What If?’**\
-`For his new Apple TV+ comedy series, Gordon-Levitt imagined what his life might have been like if he hadn’t been so lucky. “It’s probably the most me-ish thing I’ve ever made.”`\
-https://nytimes.com/2021/07/30/arts/television/mr-corman-joseph-gordon-levitt.html?searchResultPosition=3
-
 **Broadway Audiences Will Need Proof of Vaccination and Masks**\
 `Children under 12, who cannot be vaccinated, can show a negative test to attend. But the Metropolitan Opera and Carnegie Hall plan to bar them for now.`\
-https://nytimes.com/2021/07/30/theater/broadway-audiences-vaccine-requirement.html?searchResultPosition=4
+https://nytimes.com/2021/07/30/theater/broadway-audiences-vaccine-requirement.html?searchResultPosition=3
+
+**In ‘Mr. Corman,’ Joseph Gordon-Levitt Looks Inward and Asks, ‘What If?’**\
+`For his new Apple TV+ comedy series, Gordon-Levitt imagined what his life might have been like if he hadn’t been so lucky. “It’s probably the most me-ish thing I’ve ever made.”`\
+https://nytimes.com/2021/07/30/arts/television/mr-corman-joseph-gordon-levitt.html?searchResultPosition=4
 
 **Tanker Managed by Israeli-Led Firm Attacked Off Oman, Killing 2**\
 `It could be the latest in a spate of recent episodes involving Iran and Israeli-linked ships.`\
@@ -27,7 +27,7 @@ https://nytimes.com/2021/07/30/dining/black-foragers-nature-alexis-nelson.html?s
 https://nytimes.com/2021/07/30/sports/olympics/us-womens-soccer-netherlands.html?searchResultPosition=7
 
 **They Spurned the Vaccine. Now They Want You to Know They Regret It.**\
-`People who once rejected the vaccine or simply waited too long are now grappling with the consequences, often in raw, public ways`\
+`People who once rejected the vaccine or simply waited too long are now grappling with the consequences, often in raw, public ways.`\
 https://nytimes.com/2021/07/30/us/covid-vaccine-hesitancy-regret.html?searchResultPosition=8
 
 **We go to a penalty shootout: Here’s what happens now.**\
