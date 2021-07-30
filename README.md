@@ -12,7 +12,7 @@ https://nytimes.com/2021/07/29/sports/baseball/anthony-rizzo-joey-gallo-yankees.
 
 **Your not-so-random questions about swimming, answered.**\
 `Here are all the answers to questions about swimming that you need ahead of Friday’s four gold medal races.`\
-https://nytimes.com/2021/07/29/sports/olympics/olympic-swimming-questions-answers.html?searchResultPosition=4
+https://nytimes.com/article/swimming-questions-answers.html?searchResultPosition=4
 
 **A world record for South Africa in swimming, and three more U.S. medals.**\
 `South African swimmer Tatjana Schoenmaker lived up to expectations, topping Lilly King of the United States.`\
