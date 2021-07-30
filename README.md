@@ -19,7 +19,7 @@ https://nytimes.com/2021/07/30/business/victorias-secret-sexual-harassment.html?
 https://nytimes.com/2021/07/30/obituaries/janet-sobel-overlooked.html?searchResultPosition=5
 
 **Vaccinated People May Spread the Virus, Though Rarely, C.D.C. Reports**\
-`The proof is an outbreak in Provincetown, Mass., the agency said. But unpublished internal documents paint an even more harrowing picture.`\
+`The agency cited an outbreak in Provincetown, Mass., in which most of the infected were immunized. Unpublished internal documents paint an even more harrowing picture of the variant.`\
 https://nytimes.com/2021/07/30/health/cdc-vaccinated-delta.html?searchResultPosition=6
 
 **My Sister Remembers Her Past Life. Somehow, I Believe Her.**\
