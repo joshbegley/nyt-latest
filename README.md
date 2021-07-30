@@ -18,9 +18,9 @@ https://nytimes.com/2021/07/30/us/olympics-california.html?searchResultPosition=
 `Six travelers recount their visits to Japan, offering inspiration for your next trip.`\
 https://nytimes.com/paidpost/jnto/travelogues-from-japan-experiences-worth-the-wait.html?searchResultPosition=5
 
-**The Fed’s favorite price index rose 4 percent.**\
-`The Federal Reserve’s inflation gauge popped in June from the prior year. Economists think it will begin to moderate.`\
-https://nytimes.com/2021/07/30/business/economy/the-feds-favorite-price-index-rose-4-percent.html?searchResultPosition=6
+**The Fed’s favorite price index rose again in June, as consumer spending came in strong.**\
+`The Personal Consumption Expenditures index popped 4 percent in June from the prior year. Economists think it will begin to moderate.`\
+https://nytimes.com/2021/07/30/business/economy/the-feds-favorite-price-index-rose-again-in-june-as-consumer-spending-came-in-strong.html?searchResultPosition=6
 
 **Summer Reading Contest Week 8: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by Aug. 6 at 9 a.m. Eastern. This week’s winners will be announced on Aug. 17.`\
