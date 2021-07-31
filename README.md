@@ -1,4 +1,4 @@
-**U.S. broadcast coverage Saturday evening includes golf, swimming and baseball.**\
+**U.S. broadcast coverage on Saturday evening includes golf, swimming and baseball.**\
 `Caeleb Dressel takes aim at another gold, and baseball teams from Mexico and Israel face off.`\
 https://nytimes.com/2021/07/31/sports/olympics/watch-swimming-dressel-broadcast.html?searchResultPosition=1
 
