@@ -1,40 +1,40 @@
-**Body of Reuters Photographer Was Mutilated in Taliban Custody, Officials Say**\
-`The body of Danish Siddiqui, a Pulitzer Prize winner killed in Afghanistan, was unrecognizable when it was brought to a Kandahar hospital, one official said.`\
-https://nytimes.com/2021/07/31/world/asia/danish-siddiqui-afghanistan-photographer.html?searchResultPosition=1
+**For Tenants Nationwide, a Scramble to Pay Months of Rent or Face Eviction**\
+`A federal eviction moratorium is scheduled to end on Saturday. Many tenants are packing up and facing an uncertain future.`\
+https://nytimes.com/2021/07/31/us/eviction-moratorium-rent.html?searchResultPosition=1
 
-**We Asked Daves About Dave, Marcus and Other First-Name Money Apps**\
-`When’s the last time you went into a bank branch? Maybe it’s time to consider those friendly sounding financial start-ups.`\
-https://nytimes.com/2021/07/31/your-money/neobanks-dave-marcus-albert.html?searchResultPosition=2
+**In South Africa, Poachers Now Traffic in Tiny Succulent Plants**\
+`Police search the desert trying to track down the poachers selling Conophytums to collectors worldwide, threatening to wipe out rare plants in the wild.`\
+https://nytimes.com/2021/07/31/world/africa/south-africa-poachers-tiny-succulent-plants.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/07/31/crosswords/spelling-bee-2021-07-31.html?searchResultPosition=3
+**As Fears Grip Afghanistan, Hundreds of Thousands Flee**\
+`With the Taliban sweeping across much of the country, at least 30,000 Afghans are leaving each week. Many more have been displaced within Afghanistan’s borders.`\
+https://nytimes.com/2021/07/31/world/asia/afghanistan-migration-taliban.html?searchResultPosition=3
 
-**Novak Djokovic, with a 2021 Golden Slam ruled out, chases a singles bronze.**\
-`He plays Pablo Carreño Busta of Spain after losing in a semifinal.`\
-https://nytimes.com/2021/07/31/sports/olympics/novak-djokovic-bronze-medal.html?searchResultPosition=4
+**Good Fences Make Good Neighbors? Not at Opus 40.**\
+`The scenic vistas of this landscape art and the legacy of its creator, Harvey Fite are being challenged by a persistent feud and a big fence.`\
+https://nytimes.com/2021/07/31/arts/good-fences-make-good-neighbors-not-at-opus-40.html?searchResultPosition=4
 
-**For Katie Ledecky, the Longer the Race the Better**\
-`How Katie Ledecky’s competitors are closing the gap on her dominance in the pool.`\
-https://nytimes.com/interactive/2021/07/31/sports/olympics/katie-ledecky-swimming-free-olympics.html?searchResultPosition=5
+**A Brief History of Summer Reading**\
+`We rarely talk about spring books or winter reading. What is it about summer that inspired a whole genre of its own?`\
+https://nytimes.com/2021/07/31/books/a-brief-history-of-summer-reading.html?searchResultPosition=5
 
-**The U.S. broadcast on Saturday morning includes finals in women’s tennis and archery.**\
-`Judo concludes with the sport’s first mixed-gender competition, and the U.S. baseball team plays South Korea.`\
-https://nytimes.com/2021/07/31/sports/olympics/olympics-streaming-saturday-channel.html?searchResultPosition=6
+**Home Prices Are Soaring. Is That the Fed’s Problem?**\
+`Low interest rates are one reason that the housing market has taken off. They are far from the only one.`\
+https://nytimes.com/2021/07/31/business/economy/home-prices-interest-rates-fed.html?searchResultPosition=6
 
-**Trump Raised $56 Million Online in First Half of 2021**\
-`The former president raised far more money online than any other Republican, federal records show, and more than each of the three main fund-raising arms of the Republican Party itself.`\
-https://nytimes.com/2021/07/31/us/politics/trump-donations.html?searchResultPosition=7
+**A Plant That ‘Cannot Die’ Reveals Its Genetic Secrets**\
+`Events in the genome of Welwitschia have given it the ability to survive in an unforgiving desert for thousands of years.`\
+https://nytimes.com/2021/07/31/science/plant-leaves-welwitschia.html?searchResultPosition=7
 
-**‘It Feels Like We’re Just Waiting to Die’: Hong Kong Targets Student Unions**\
-`The authorities are clamping down on universities, which they consider hotbeds for unrest. The groups say they are fighting for survival.`\
-https://nytimes.com/2021/07/31/world/asia/hong-kong-students.html?searchResultPosition=8
+**New Rule Raises Question: Who’ll Pay for All the Covid Tests?**\
+`With the Delta variant surging, many companies decide that unvaccinated workers will need to get regular testing.`\
+https://nytimes.com/2021/07/31/upshot/new-rule-raises-question-wholl-pay-for-all-the-covid-tests.html?searchResultPosition=8
 
-**N.F.L. Vaccine Holdouts Face Training Camp Scrutiny**\
-`Though 88.5 percent of all N.F.L. players had received at least one vaccine dose through Friday, some players voiced their hesitance to be inoculated.`\
-https://nytimes.com/2021/07/31/sports/football/nfl-vaccine-training-camp.html?searchResultPosition=9
+**Ta-Ta to ‘Teetering Tabloids’: Keith Kelly Signs Off**\
+`For 23 years, his Media Ink column for The New York Post was a must-read for magazine machers. What’s next?`\
+https://nytimes.com/2021/07/31/style/keith-kelly-new-york-post-media-columnist-retires.html?searchResultPosition=9
 
-**Female Sprinters Take the Spotlight at Tokyo’s ‘Superfast’ Track**\
-`The women’s 100-meter dash headlines Day 2 on the track. Shelly-Ann Fraser-Pryce of Jamaica, a top contender, called the attention on the event “long overdue.”`\
-https://nytimes.com/2021/07/30/sports/olympics/100m-track-womens.html?searchResultPosition=10
+**This Is Our Chance to Pull Teenagers Out of the Smartphone Trap**\
+`Loneliness among students has soared worldwide. It doesn't have to be like that.`\
+https://nytimes.com/2021/07/31/opinion/smartphone-iphone-social-media-isolation.html?searchResultPosition=10
 
