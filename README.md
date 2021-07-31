@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/31/sports/baseball/toronto-blue-jays-canada.html?sea
 https://nytimes.com/2021/07/31/sports/olympics/india-married-archers.html?searchResultPosition=4
 
 **Katie Ledecky now has the most individual Olympic golds of any female swimmer.**\
-`She added two gold medals this week, in the 800-meter freestyle and the 1,500-meter freestyle.`\
+`She won two gold medals this week, in the 800-meter freestyle and the 1,500-meter freestyle.`\
 https://nytimes.com/2021/07/31/sports/olympics/katie-ledecky-gold-medals.html?searchResultPosition=5
 
 **For Tenants Nationwide, a Scramble to Pay Months of Rent or Face Eviction**\
