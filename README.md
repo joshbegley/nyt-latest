@@ -26,7 +26,7 @@ https://nytimes.com/2021/07/31/world/asia/afghanistan-taliban-lashkar-gah.html?s
 `Readers discuss an editorial defending a New Jersey woman’s right to display crude political banners.`\
 https://nytimes.com/2021/07/31/opinion/letters/vulgarity-signs-free-speech.html?searchResultPosition=7
 
-**Already Distorting the Events of Jan. 6, the G.O.P. Now Aims to Turn Them on Their Head**\
+**Already Distorting Jan. 6, G.O.P. Now Concocts Entire Counter-Narrative**\
 `A new version of the attack amounts to a disinformation campaign aimed at giving cover to the party and intensifying the threats to political accountability.`\
 https://nytimes.com/2021/07/31/us/politics/jan-6-capitol-riot-pelosi.html?searchResultPosition=8
 
