@@ -1,10 +1,10 @@
 **Caeleb Dressel won the men’s 100-meter butterfly.**\
-`By John Branch`\
+`He set a world record with a time of 49.45.`\
 https://nytimes.com/2021/07/30/sports/olympics/caeleb-dressel-wins-100m-butterfly-gold.html?searchResultPosition=1
 
 **Simone Biles will not compete in the uneven bars or vault event finals.**\
-`By Juliet Macur`\
-https://nytimes.com/2021/07/30/sports/olympics/simone-biles-will-not-compete-in-the-uneven-bars-or-vault-event-finals.html?searchResultPosition=2
+`She is still eligible for the finals in the floor exercise and balance beam.`\
+https://nytimes.com/2021/07/30/sports/olympics/simone-biles-out-bars-vault.html?searchResultPosition=2
 
 **The Spectacle of Latinx Colorism**\
 `The idea of sameness can devastate as much as it can connect. `\
