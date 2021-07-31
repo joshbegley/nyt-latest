@@ -1,6 +1,6 @@
 **Runner is suspended over drug test in latest issue for Nigeria’s track and field competitors.**\
 `Ten other Nigerian athletes were told they did not meet out-of-competition testing requirements leading up to the Olympics.`\
-https://nytimes.com/2021/07/30/sports/olympics/runner-is-suspended-over-drug-test-in-latest-issue-for-nigerias-track-and-field-competitors.html?searchResultPosition=1
+https://nytimes.com/2021/07/30/sports/olympics/nigerian-runner-drug-test-suspended.html?searchResultPosition=1
 
 **Quotation of the Day: Grief and Fury After Surviving Night of Terror**\
 `Quotation of the Day for Saturday, July 31, 2021.`\
