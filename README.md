@@ -7,7 +7,7 @@ https://nytimes.com/2021/07/30/crosswords/daily-puzzle-2021-07-31.html?searchRes
 https://nytimes.com/2021/07/30/sports/olympics/katie-ledecky-wins-800m-swimming.html?searchResultPosition=2
 
 **Kaylee McKeown of Australia won the 200-meter women’s backstroke.**\
-`By John Branch`\
+`She defeated Kylie Masse of Canada and Emily Seebohm of Australia.`\
 https://nytimes.com/2021/07/30/sports/olympics/kaylee-mckeown-wins-200m-backstroke.html?searchResultPosition=3
 
 **Caeleb Dressel won the men’s 100-meter butterfly, setting a world record.**\
