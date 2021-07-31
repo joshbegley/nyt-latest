@@ -34,7 +34,7 @@ https://nytimes.com/2021/07/31/us/coronavirus-grief-funerals.html?searchResultPo
 `Thompson-Herah, the defending gold medalist in the event, finished in 10.61 seconds.`\
 https://nytimes.com/2021/07/31/sports/olympics/elaine-thompson-herah.html?searchResultPosition=9
 
-**The women’s tennis final is underway, but it’s not the one Japan hoped for.**\
-`By Oskar Garcia`\
-https://nytimes.com/2021/07/31/sports/olympics/the-womens-tennis-final-is-underway-but-its-not-the-one-japan-hoped-for.html?searchResultPosition=10
+**Belinda Bencic of Switzerland wins tennis singles gold.**\
+`Bencic could win two golds in Tokyo if she wins a doubles tournament on Sunday.`\
+https://nytimes.com/2021/07/31/sports/olympics/belinda-bencic-of-switzerland-wins-tennis-singles-gold.html?searchResultPosition=10
 
