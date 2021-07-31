@@ -1,5 +1,5 @@
 **233 staff members at 2 San Francisco hospitals have tested positive, most in breakthrough Delta infections.**\
-`Vaccinations warded off severe Covid for most of the workers, who tested positive this month; only two required hospitalization.`\
+`Vaccinations warded off severe Covid for most of the workers, who tested positive this month; two required hospitalization.`\
 https://nytimes.com/2021/07/31/us/covid-san-francisco-hospital-delta.html?searchResultPosition=1
 
 **Delta Variant Drives Global Virus Surge, W.H.O. Warns**\
