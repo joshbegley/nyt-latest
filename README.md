@@ -1,4 +1,4 @@
-**Caeleb Dressel won the men’s 100-meter butterfly.**\
+**Caeleb Dressel won the men’s 100-meter butterfly, setting a world record.**\
 `He set a world record with a time of 49.45.`\
 https://nytimes.com/2021/07/30/sports/olympics/caeleb-dressel-wins-100m-butterfly-gold.html?searchResultPosition=1
 
