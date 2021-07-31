@@ -14,8 +14,8 @@ https://nytimes.com/2021/07/31/crosswords/variety-acrostic.html?searchResultPosi
 `Both sides have much to lose if a delicate negotiation over limiting Iran’s activities in return for a lifting of sanctions falls short.`\
 https://nytimes.com/2021/07/31/us/politics/biden-iran-nuclear-deal.html?searchResultPosition=4
 
-**Eviction Freeze Set to Lapse as Biden Housing Aid Effort Falters**\
-`The administration made a last-ditch, failed appeal to Congress to extend the moratorium to buy more time to fix a dysfunctional rental aid program.`\
+**Eviction Freeze Set to Lapse as Biden Housing Aid Effort Lags**\
+`The administration made a last-ditch, failed appeal to Congress to extend the moratorium to buy more time for states to distribute rental aid.`\
 https://nytimes.com/2021/07/31/us/politics/eviction-moratorium-biden-housing-aid.html?searchResultPosition=5
 
 **How Fast the Jamaican Sprinters Ran to Sweep the Women’s 100 Meters**\
