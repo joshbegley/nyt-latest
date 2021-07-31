@@ -34,7 +34,7 @@ https://nytimes.com/2021/07/30/us/politics/portman-sinema-infrastructure-deal.ht
 `Katie Ledecky and Caeleb Dressel are among the swimmers who are chasing gold on Saturday.`\
 https://nytimes.com/2021/07/30/sports/olympics/swimming-preview-ledecky-dressel.html?searchResultPosition=9
 
-**U.S. broadcast coverage on Friday night includes track and field, basketball and BMX.**\
-`Katie Ledecky goes for gold in the 800 meter freestyle, while mixed relays in swimming, track and field and more have their Olympic debuts.`\
+**U.S. broadcast coverage on Friday night includes several swimming events.**\
+`BMX and trampoline are also on the air.`\
 https://nytimes.com/2021/07/30/sports/olympics/watch-swimming-track-soccer-tonight-olympics.html?searchResultPosition=10
 
