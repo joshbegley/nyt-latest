@@ -3,7 +3,7 @@
 https://nytimes.com/2021/07/31/us/coronavirus-grief-funerals.html?searchResultPosition=1
 
 **Elaine Thompson-Herah of Jamaica wins the 100-meter dash.**\
-`Thompson-Herah was the defending gold medalist in the 100-meter dash.`\
+`Thompson-Herah, the defending gold medalist in the event, finished in 10.61 seconds.`\
 https://nytimes.com/2021/07/31/sports/olympics/elaine-thompson-herah.html?searchResultPosition=2
 
 **‘This Could Have Been a Zoom Meeting’: Companies Rethink Travel**\
