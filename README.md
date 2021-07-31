@@ -6,8 +6,8 @@ https://nytimes.com/2021/07/30/sports/olympics/100m-track-womens.html?searchResu
 `Ledecky added to her medal haul — she has 10 total across three Olympics, including seven golds.`\
 https://nytimes.com/2021/07/30/sports/olympics/katie-ledecky-caeleb-dressel-medals.html?searchResultPosition=2
 
-**Runner is suspended over drug test in latest issue for Nigeria’s track and field competitors.**\
-`Ten other Nigerian athletes were told they did not meet out-of-competition testing requirements leading up to the Olympics.`\
+**A Nigerian sprinter is suspended after a failed drug test.**\
+`Ten other athletes from Nigeria were told they did not meet out-of-competition testing requirements leading up to the Olympics.`\
 https://nytimes.com/2021/07/30/sports/olympics/nigerian-runner-drug-test-suspended.html?searchResultPosition=3
 
 **Quotation of the Day: Grief and Fury After Surviving Night of Terror**\
