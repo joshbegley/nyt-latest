@@ -14,7 +14,7 @@ https://nytimes.com/2021/07/31/us/covid-outbreak-provincetown-cape-cod.html?sear
 `San Marino waited 61 years for its first Olympic medal. With a population of roughly 30,000, it is the smallest country to win an Olympic medal, surpassing Bermuda`\
 https://nytimes.com/2021/07/31/sports/olympics/san-marino-smallest-country-olympic-medal.html?searchResultPosition=4
 
-**How to Put a Stop to Russia’s New Form of Organized Crime**\
+**Russia’s New Form of Organized Crime Is Menacing the World**\
 `Old crime, new technology. There's an answer to the plague of ransomware.`\
 https://nytimes.com/2021/07/31/opinion/sunday/russia-ransomware-hacking.html?searchResultPosition=5
 
