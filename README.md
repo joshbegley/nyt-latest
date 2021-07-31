@@ -1,5 +1,5 @@
 **Novak Djokovic, with a 2021 Golden Slam ruled out, chases a singles bronze.**\
-`By Oskar Garcia`\
+`He plays Pablo Carreño Busta of Spain after losing in a semifinal.`\
 https://nytimes.com/2021/07/31/sports/olympics/novak-djokovic-bronze-medal.html?searchResultPosition=1
 
 **For Katie Ledecky, the Longer the Race the Better**\
