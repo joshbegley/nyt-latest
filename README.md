@@ -11,7 +11,7 @@ https://nytimes.com/2021/07/31/world/africa/south-africa-poachers-tiny-succulent
 https://nytimes.com/2021/07/31/world/asia/afghanistan-migration-taliban.html?searchResultPosition=3
 
 **Good Fences Make Good Neighbors? Not at Opus 40.**\
-`The scenic vistas of this landscape art and the legacy of its creator, Harvey Fite are being challenged by a persistent feud and a big fence.`\
+`The scenic vistas of this landscape art and the legacy of its creator, Harvey Fite, are being challenged by a persistent feud and a big fence.`\
 https://nytimes.com/2021/07/31/arts/good-fences-make-good-neighbors-not-at-opus-40.html?searchResultPosition=4
 
 **A Brief History of Summer Reading**\
