@@ -34,7 +34,7 @@ https://nytimes.com/2021/07/31/world/asia/afghanistan-taliban-lashkar-gah.html?s
 `Readers discuss an editorial defending a New Jersey woman’s right to display crude political banners.`\
 https://nytimes.com/2021/07/31/opinion/letters/vulgarity-signs-free-speech.html?searchResultPosition=9
 
-**Already Distorting Jan. 6, G.O.P. Now Concocts Entire Counter-Narrative**\
+**Already Distorting Jan. 6, G.O.P. Now Concocts Entire Counternarrative**\
 `In the Republicans’ disinformation campaign, the arrested Capitol rioters are political prisoners and Speaker Nancy Pelosi is to blame for the attack.`\
 https://nytimes.com/2021/07/31/us/politics/jan-6-capitol-riot-pelosi.html?searchResultPosition=10
 
