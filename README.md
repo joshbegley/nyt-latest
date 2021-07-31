@@ -14,4 +14,27 @@ https://nytimes.com/2021/07/31/sports/baseball/toronto-blue-jays-canada.html?sea
 `Known as Dee-Das in India, Deepika Kumari and Atanu Das are one of two pairs of married archers at the Tokyo Olympics.`\
 https://nytimes.com/2021/07/31/sports/olympics/india-married-archers.html?searchResultPosition=4
 
-**Katie Ledecky now has the most Olympic individual golds of any female swimmer.**\
+**Katie Ledecky now has the most individual Olympic golds of any female swimmer.**\
+`She added two gold medals this week, in the 800-meter freestyle and the 1,500-meter freestyle.`\
+https://nytimes.com/2021/07/31/sports/olympics/katie-ledecky-gold-medals.html?searchResultPosition=5
+
+**For Tenants Nationwide, a Scramble to Pay Months of Rent or Face Eviction**\
+`A federal eviction moratorium is scheduled to end on Saturday. Many tenants are packing up and facing an uncertain future.`\
+https://nytimes.com/2021/07/31/us/eviction-moratorium-rent.html?searchResultPosition=6
+
+**In South Africa, Poachers Now Traffic in Tiny Succulent Plants**\
+`Police search the desert trying to track down the poachers selling Conophytums to collectors worldwide, threatening to wipe out rare plants in the wild.`\
+https://nytimes.com/2021/07/31/world/africa/south-africa-poachers-tiny-succulent-plants.html?searchResultPosition=7
+
+**As Fears Grip Afghanistan, Hundreds of Thousands Flee**\
+`With the Taliban sweeping across much of the country, at least 30,000 Afghans are leaving each week. Many more have been displaced within Afghanistan’s borders.`\
+https://nytimes.com/2021/07/31/world/asia/afghanistan-migration-taliban.html?searchResultPosition=8
+
+**Good Fences Make Good Neighbors? Not at Opus 40.**\
+`The scenic vistas of this landscape art and the legacy of its creator, Harvey Fite, are being challenged by a persistent feud and a big fence.`\
+https://nytimes.com/2021/07/31/arts/good-fences-make-good-neighbors-not-at-opus-40.html?searchResultPosition=9
+
+**A Brief History of Summer Reading**\
+`We rarely talk about spring books or winter reading. What is it about summer that inspired a whole genre of its own?`\
+https://nytimes.com/2021/07/31/books/a-brief-history-of-summer-reading.html?searchResultPosition=10
+
