@@ -16,7 +16,7 @@ https://nytimes.com/2021/07/30/sports/olympics/caeleb-dressel-wins-100m-butterfl
 
 **Simone Biles will not compete in the uneven bars or vault event finals.**\
 `She is still eligible for the finals in the floor exercise and the balance beam.`\
-https://nytimes.com/2021/07/30/sports/olympics/simone-biles-out-bars-vault.html?searchResultPosition=5
+https://nytimes.com/2021/07/30/sports/olympics/simone-biles-olympics-vault.html?searchResultPosition=5
 
 **The Spectacle of Latinx Colorism**\
 `The idea of sameness can devastate as much as it can connect. `\
