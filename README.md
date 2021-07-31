@@ -12,7 +12,7 @@ https://nytimes.com/2021/07/31/us/frenchy-cannoli-dead.html?searchResultPosition
 
 **Here’s what happened on Saturday at the Tokyo Games.**\
 `Katie Ledecky won her second gold medal and Elaine Thompson-Herah set an Olympic record in the 100 meters dash.`\
-https://nytimes.com/2021/07/31/sports/olympics/heres-what-happened-on-saturday-at-the-tokyo-games.html?searchResultPosition=4
+https://nytimes.com/live/2021/07/30/sports/tokyo-olympics-results-medals/heres-what-happened-on-saturday-at-the-tokyo-games?searchResultPosition=4
 
 **Police in China Detain Canadian Pop Star on Suspicion of Rape**\
 `Kris Wu, a 30-year-old celebrity, is the most prominent figure in China to be held over #MeToo allegations.`\
