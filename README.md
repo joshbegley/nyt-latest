@@ -1,40 +1,40 @@
+**Concern grows over rise of respiratory virus and Delta infections among children.**\
+`An outbreak of the R.S.V. virus, combined with growing Covid-19 pediatric cases, is straining hospital resources in some cities.`\
+https://nytimes.com/2021/08/01/world/delta-variant-kids-infections.html?searchResultPosition=1
+
 **The G.O.P. Menace to Society**\
 `It is delusional to not tell the unvarnished truth because you believe your tone of conciliation will lead to rehabilitation.`\
-https://nytimes.com/2021/08/01/opinion/republicans-threat-america.html?searchResultPosition=1
+https://nytimes.com/2021/08/01/opinion/republicans-threat-america.html?searchResultPosition=2
 
 **A Fight Over Zoning Tests Charlottesville’s Progress on Race**\
 `Four years after a white supremacist march, the Virginia city is reconsidering its housing and zoning rules.`\
-https://nytimes.com/2021/08/01/us/charlottesville-va-zoning-affordable-housing.html?searchResultPosition=2
+https://nytimes.com/2021/08/01/us/charlottesville-va-zoning-affordable-housing.html?searchResultPosition=3
 
 **Olympic Sprinter Stays in Japan After Belarus Tries to Deport Her**\
 `Kristina Timanovskaya, a Belarusian sprinter, said she sought protection in Japan after the Belarus Olympic Committee tried and failed to forcibly deport her, following an Instagram post in which she criticized her coaches for registering her for the wrong event.`\
-https://nytimes.com/video/world/100000007898711/olympics-belarus-sprinter.html?searchResultPosition=3
+https://nytimes.com/video/world/100000007898711/olympics-belarus-sprinter.html?searchResultPosition=4
 
 **Mass Shooting in Queens Leaves 10 Wounded**\
 `Seven bystanders were injured in a shooting on Saturday targeting three gang members in North Corona, the police said.`\
-https://nytimes.com/2021/08/01/nyregion/mass-shooting-queens-north-corona.html?searchResultPosition=4
+https://nytimes.com/2021/08/01/nyregion/mass-shooting-queens-north-corona.html?searchResultPosition=5
 
 **Lollapalooza Drops DaBaby From Lineup After His Homophobic Remarks**\
 `The rapper was criticized for asking fans at a performance last week to raise their phones in the air if they didn’t have H.I.V. or AIDS.`\
-https://nytimes.com/2021/08/01/arts/music/dababy-lollapalooza-canceled-homophobic-comments.html?searchResultPosition=5
+https://nytimes.com/2021/08/01/arts/music/dababy-lollapalooza-canceled-homophobic-comments.html?searchResultPosition=6
 
 **Olympic Sprinter From Belarus Seeks Refuge in Japan, Fearing Jail at Home**\
 `Belarus tried to deport the sprinter, Kristina Timanovskaya, from Japan after she criticized her coaches for registering her for the wrong event.`\
-https://nytimes.com/2021/08/01/world/europe/olympic-sprinter-belarus-japan.html?searchResultPosition=6
+https://nytimes.com/2021/08/01/world/europe/olympic-sprinter-belarus-japan.html?searchResultPosition=7
 
 **On a Refurbished Knee, Brazil’s Andrade Vaults to a Gold Medal**\
 `Sunisa Lee of the United States, who won the Olympic all-around competition last week and was favored to win on the uneven bars, won bronze in that event instead.`\
-https://nytimes.com/2021/08/01/sports/olympics/andrade-brazil-vault-lee-uneven-bars.html?searchResultPosition=7
+https://nytimes.com/2021/08/01/sports/olympics/andrade-brazil-vault-lee-uneven-bars.html?searchResultPosition=8
 
 **A New Surge at a Santa Monica I.C.U.**\
 `They thought the worst of the pandemic was behind them. Then a new wave of cases arrived at the I.C.U. at Providence Saint John’s Health Center.`\
-https://nytimes.com/2021/08/01/us/covid-santa-monica-icu.html?searchResultPosition=8
+https://nytimes.com/2021/08/01/us/covid-santa-monica-icu.html?searchResultPosition=9
 
 **Reynold Ruffins, Push Pin Studios Graphic Artist, Dies at 90**\
 `With Milton Glaser, Ed Sorel and Seymour Chwast, he was part of a movement that upended the ’50s era advertising style with witty, faux-nostalgic imagery.`\
-https://nytimes.com/2021/08/01/obituaries/reynold-ruffins-dead.html?searchResultPosition=9
-
-**Who is Lamont Marcell Jacobs, Italy’s first fastest man?**\
-`Lamont Marcell Jacobs, a 26-year-old sprinter who took gold in the 100-meter dash, was born in El Paso to an Italian mother and African American father.`\
-https://nytimes.com/2021/08/01/sports/olympics/lamont-marcell-jacobs-italy-100-meters.html?searchResultPosition=10
+https://nytimes.com/2021/08/01/obituaries/reynold-ruffins-dead.html?searchResultPosition=10
 
