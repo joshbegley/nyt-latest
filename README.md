@@ -22,7 +22,7 @@ https://nytimes.com/2021/07/31/sports/olympics/swimming-dressel-finke-relays-res
 `Anthony Barajas, who was popular on TikTok, and Rylee Goodrich were each shot in the head at a theater in Corona, Calif., in what the district attorney said was an unprovoked attack.`\
 https://nytimes.com/2021/07/31/us/anthony-barajas-died.html?searchResultPosition=6
 
-**Demand for shots is increasing in less-vaccinated states under siege from the Delta variant.**\
+**Demand for shots is increasing in less vaccinated states under siege from the Delta variant.**\
 `Data from the C.D.C. shows that many people in states like Louisiana, Mississippi and Missouri are now receiving their first doses. On Friday, more than 850,000 total shots were recorded in the U.S.`\
 https://nytimes.com/2021/07/31/world/less-vaccinated-covid-shots.html?searchResultPosition=8
 
