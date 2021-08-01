@@ -1,5 +1,5 @@
 **Olympic Sprinter Stays in Japan After Belarus Tries to Deport Her**\
-`Kristina Timanovskaya, a Belarusian sprinter, said she sought protection in Japan after the Belarus Olympic Committee tried and failed to forcibly deport her, following an Instagram post where she criticized her coaches for registering her for the wrong event.`\
+`Kristina Timanovskaya, a Belarusian sprinter, said she sought protection in Japan after the Belarus Olympic Committee tried and failed to forcibly deport her, following an Instagram post in which she criticized her coaches for registering her for the wrong event.`\
 https://nytimes.com/video/world/100000007898711/olympics-belarus-sprinter.html?searchResultPosition=1
 
 **Mass Shooting in Queens Leaves 10 Wounded**\
