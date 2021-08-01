@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/01/us/covid-santa-monica-icu.html?searchResultPositi
 https://nytimes.com/2021/08/01/obituaries/reynold-ruffins-dead.html?searchResultPosition=3
 
 **Who is Lamont Marcell Jacobs, Italy’s first fastest man?**\
-`Lamont Marcell Jacobs, a 26-year-old sprinter who took gold in the 100-meter dash, was born in El Paso to an Italian mother and African-American father.`\
+`Lamont Marcell Jacobs, a 26-year-old sprinter who took gold in the 100-meter dash, was born in El Paso to an Italian mother and African American father.`\
 https://nytimes.com/2021/08/01/sports/olympics/lamont-marcell-jacobs-italy-100-meters.html?searchResultPosition=4
 
 **Thousands Protest France’s Vaccine Pass for a Third Week**\
