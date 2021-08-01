@@ -14,8 +14,8 @@ https://nytimes.com/2021/08/01/sports/olympics/nena-derwael-sunisa-lee.html?sear
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2021/08/01/briefing/vaccines-evictions-summer-reading.html?searchResultPosition=4
 
-**The men’s 100-meter dash is coming up, as well as the high jump.**\
-`The race is on to succeed the retired Usain Bolt as the fastest man in the world.`\
+**Marcell Jacobs of Italy wins the 100-meter dash.**\
+`Results from the men’s 100-meter dash.`\
 https://nytimes.com/2021/08/01/sports/olympics/track-and-field-100-meter-dash.html?searchResultPosition=5
 
 **The Week in Business: Robinhood Fizzled as Silicon Valley Sizzled**\
