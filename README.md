@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/01/health/coronavirus-vaccination-maps-geospatial.ht
 https://nytimes.com/2021/08/01/us/covid-us-vaccine-wasted.html?searchResultPosition=2
 
 **Yulimar Rojas, with a world-record triple jump, becomes the first female Olympic gold medalist from Venezuela.**\
-`The record had stood for 26 years.`\
+`Rojas, a triple jumper, thought she could make a bid for the world record and did.`\
 https://nytimes.com/2021/08/01/sports/olympics/yulimar-rojas-world-record.html?searchResultPosition=3
 
 **The Sunday Read: ‘Is There a Right Way to Act Blind?’**\
@@ -23,8 +23,8 @@ https://nytimes.com/2021/08/01/realestate/homes-that-sold-for-around-1-5-million
 https://nytimes.com/2021/08/01/world/middleeast/tunisia-president-kais-saied.html?searchResultPosition=6
 
 **BMX freestyle, a new event, enthralls as Britain and Australia take first golds.**\
-`By Matt Ruby`\
-https://nytimes.com/2021/08/01/sports/olympics/bmx-freestyle-a-new-event-enthralls-as-britain-and-australia-take-first-golds.html?searchResultPosition=7
+`The ramps have a variety of transitions, thrusting riders skyward before they land back in the ramp and onto the next trick.`\
+https://nytimes.com/2021/08/01/sports/olympics/bmx-freestyle.html?searchResultPosition=7
 
 **Nina Derwael seizes gold in the uneven bars as Sunisa Lee falters.**\
 `Lee completed a much less difficult routine because she failed to connect several of her skills.`\
