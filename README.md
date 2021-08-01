@@ -1,5 +1,5 @@
 **Caeleb Dressel of the U.S. wins the 50-meter freestyle.**\
-`The latest results from the final day of swimming at the Tokyo Olympics.`\
+`Dressel’s fourth gold of the Games came on the final day of swimming at the Tokyo Olympics.`\
 https://nytimes.com/2021/07/31/sports/olympics/swimming-dressel-finke-relays-results.html?searchResultPosition=1
 
 **2 Dead in Random Shooting at ‘Purge’ Movie, Officials Say**\
