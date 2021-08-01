@@ -6,9 +6,9 @@ https://nytimes.com/2021/08/01/climate/biden-scientists-shortage-climate.html?se
 `The deal, which values Afterpay at $29 billion, would help Square expand further into Australia, its second-biggest market.`\
 https://nytimes.com/2021/08/01/business/dealbook/square-afterpay-payments.html?searchResultPosition=2
 
-**U.S. women face the Netherlands in a soccer semifinal on Day 10 of the Games.**\
+**U.S. women face Canada in a soccer semifinal on Day 10 of the Games.**\
 `Gymnastics event finals continue for the women, and the U.S. baseball team plays Japan.`\
-https://nytimes.com/2021/08/01/sports/olympics/usa-netherlands-soccer.html?searchResultPosition=3
+https://nytimes.com/2021/08/01/sports/olympics/usa-canada-soccer.html?searchResultPosition=3
 
 **Once in a Blue Moon**\
 `Kyra Wilson serves up some meteorology.`\
