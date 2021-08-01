@@ -1,4 +1,4 @@
-**Caeleb Dressel of the U.S. and Emma McKeon of Australia sprint to gold in swimming’s finale.**\
+**Caeleb Dressel, Emma McKeon and Bobby Finke win more gold in swimming’s finale.**\
 `Dressel’s fourth gold of the Games came on the final day of swimming at the Tokyo Olympics. McKeon’s gold was her sixth medal of the meet.`\
 https://nytimes.com/2021/07/31/sports/olympics/swimming-dressel-finke-relays-results.html?searchResultPosition=1
 
@@ -15,7 +15,7 @@ https://nytimes.com/2021/07/31/world/less-vaccinated-covid-shots.html?searchResu
 https://nytimes.com/2021/07/31/sports/olympics/watch-swimming-dressel-broadcast.html?searchResultPosition=5
 
 **Swimming and golf wrap up as track and field heats up on Day 9.**\
-`All the day’s results as they happen in Tokyo.`\
+`All the day’s results as they happen from Tokyo.`\
 https://nytimes.com/2021/07/31/sports/olympics/swimming-ending-track-golf-tokyo.html?searchResultPosition=6
 
 **Off Brand**\
