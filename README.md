@@ -1,4 +1,4 @@
-**Caeleb Dressel of the U.S. and Emma McKeon of Australia sprint to gold.**\
+**Caeleb Dressel of the U.S. and Emma McKeon of Australia sprint to gold in swimming’s finale.**\
 `Dressel’s fourth gold of the Games came on the final day of swimming at the Tokyo Olympics.`\
 https://nytimes.com/2021/07/31/sports/olympics/swimming-dressel-finke-relays-results.html?searchResultPosition=1
 
