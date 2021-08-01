@@ -26,7 +26,7 @@ https://nytimes.com/2021/08/01/opinion/unvaccinated-delta-variant-covid.html?sea
 `If you’re willing to splurge, a lobster roll is a luxurious taste of summer at its simplest.`\
 https://nytimes.com/2021/08/01/dining/what-to-cook-this-week.html?searchResultPosition=7
 
-**How Fast Lamont Marcell Jacobs Ran to Win the Men’s 100-Meter Gold**\
+**How Fast Marcell Jacobs Ran to Win the Men’s 100-Meter Gold**\
 `Jacobs achieved a top speed of 26.76 miles per hour to finish in 9.80 seconds, 0.22 seconds off Usain Bolt’s world record set in 2009.`\
 https://nytimes.com/interactive/2021/08/01/sports/olympics/jacobs-track-100m-won-olympics.html?searchResultPosition=8
 
