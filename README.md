@@ -1,5 +1,5 @@
 **Gov. Greg Abbott bars mandates for vaccinations and masks in Texas.**\
-`The state’s daily average of cases has risen by 209 percent over the past 14 days and hospitalizations are surging, but an executive order ensures that masking and vaccinations remain voluntary.`\
+`The state’s daily average of cases has risen more than 200 percent over the past 14 days and hospitalizations are surging, but an executive order ensures that masking and vaccinations remain voluntary.`\
 https://nytimes.com/2021/07/31/world/greg-abbott-mask-vaccine-mandate.html?searchResultPosition=1
 
 **Quotation of the Day: Who Are the Unvaccinated in America?**\
