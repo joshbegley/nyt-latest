@@ -1,4 +1,4 @@
-**Caeleb Dressel, Emma McKeon and Bobby Finke win more gold in swimming’s finale.**\
+**Caeleb Dressel, Emma McKeon and Bobby Finke win gold in swimming’s finale.**\
 `Dressel’s fourth gold of the Games came on the final day of swimming at the Tokyo Olympics. McKeon’s gold was her sixth medal of the meet.`\
 https://nytimes.com/2021/07/31/sports/olympics/swimming-dressel-finke-relays-results.html?searchResultPosition=1
 
