@@ -19,8 +19,8 @@ https://nytimes.com/2021/08/01/sports/olympics/nena-derwael-sunisa-lee.html?sear
 https://nytimes.com/2021/08/01/briefing/vaccines-evictions-summer-reading.html?searchResultPosition=5
 
 **Marcell Jacobs of Italy wins the 100-meter dash.**\
-`Results from the men’s 100-meter dash.`\
-https://nytimes.com/2021/08/01/sports/olympics/track-and-field-100-meter-dash.html?searchResultPosition=6
+`Jacobs finished in 9.80 seconds, with Fred Kerley of the United States second and Andre De Grasse of Canada third.`\
+https://nytimes.com/2021/08/01/sports/olympics/marcell-jacobs-italy.html?searchResultPosition=6
 
 **The Week in Business: Robinhood Fizzled as Silicon Valley Sizzled**\
 `The stock-trading app Robinhood had a weak stock market opening, while Silicon Valley companies continued to set new earnings records.`\
