@@ -1,4 +1,4 @@
-**Rebeca Andrade wins vault gold, Brazil’s first gold in women’s gymnastics.**\
+**Rebeca Andrade wins the vault, Brazil’s first gold in women’s gymnastics.**\
 `MyKayla Skinner of the United States finished second for the silver medal. Yeo Seo-jeong won bronze for South Korea.`\
 https://nytimes.com/2021/08/01/sports/olympics/rebeca-andrade-vault-gold-gymnastics.html?searchResultPosition=1
 
