@@ -1,40 +1,40 @@
+**A New Surge at a Santa Monica I.C.U.**\
+`They thought the worst of the pandemic was behind them. Then a new wave of cases arrived at the I.C.U. at Providence Saint John’s Health Center.`\
+https://nytimes.com/2021/08/01/us/covid-santa-monica-icu.html?searchResultPosition=1
+
 **Reynold Ruffins, Push Pin Studios Graphic Artist, Dies at 90**\
 `With Milton Glaser, Ed Sorel and Seymour Chwast, he was part of a movement that upended the ’50s era advertising style with witty, faux-nostalgic imagery.`\
-https://nytimes.com/2021/08/01/obituaries/reynold-ruffins-dead.html?searchResultPosition=1
+https://nytimes.com/2021/08/01/obituaries/reynold-ruffins-dead.html?searchResultPosition=2
 
 **Who is Lamont Marcell Jacobs, Italy’s first fastest man?**\
 `Lamont Marcell Jacobs, a 26-year-old sprinter who took gold in the 100-meter dash, was born in El Paso to an Italian mother and African-American father.`\
-https://nytimes.com/2021/08/01/sports/olympics/lamont-marcell-jacobs-italy-100-meters.html?searchResultPosition=2
+https://nytimes.com/2021/08/01/sports/olympics/lamont-marcell-jacobs-italy-100-meters.html?searchResultPosition=3
 
 **Thousands Protest France’s Vaccine Pass for a Third Week**\
 `Protesters converged in Paris to oppose France’s new health pass policy, which bars people without proof of vaccination or a recent negative Covid-19 test from indoor venues. Demonstrations also took place in other cities in France.`\
-https://nytimes.com/video/world/europe/100000007898617/paris-france-protest-vaccine-pass.html?searchResultPosition=3
+https://nytimes.com/video/world/europe/100000007898617/paris-france-protest-vaccine-pass.html?searchResultPosition=4
 
 **Nobody Wants to Live in a Nursing Home. Something’s Got to Give.**\
 `America needs more infrastructure for the elderly.`\
-https://nytimes.com/2021/08/01/opinion/aging-nursing-homes.html?searchResultPosition=4
+https://nytimes.com/2021/08/01/opinion/aging-nursing-homes.html?searchResultPosition=5
 
 **Taiwan’s gold medal win over China in badminton raises tension.**\
 `The Taiwanese badminton duo Lee Yang and Wang Chi-lin, who beat a Chinese team to take gold, had emphasized their Taiwanese identity on social media.`\
-https://nytimes.com/2021/08/01/sports/olympics/badminton-gold-taiwan-china.html?searchResultPosition=5
+https://nytimes.com/2021/08/01/sports/olympics/badminton-gold-taiwan-china.html?searchResultPosition=6
 
 **N.I.H. director says asking for proof of vaccination is a step in ‘the right direction.’**\
 `Proposals for business and government agencies to push employees to get vaccinated have come as coronavirus infections in the United States rose by 148 percent in the past two weeks.`\
-https://nytimes.com/2021/08/01/world/nih-director-proof-of-vaccination.html?searchResultPosition=6
+https://nytimes.com/2021/08/01/world/nih-director-proof-of-vaccination.html?searchResultPosition=7
 
 **Should Those Sidewalk Dining Sheds Stay or Go?**\
 `Readers discuss the pros and cons of the dining sheds. Also: Masking up in the subway; the police and the juvenile brain.`\
-https://nytimes.com/2021/08/01/opinion/letters/covid-dining-sheds.html?searchResultPosition=7
+https://nytimes.com/2021/08/01/opinion/letters/covid-dining-sheds.html?searchResultPosition=8
 
 **Unvaxxed, Unmasked and Putting Our Kids at Risk**\
 `Yes, this is a rant against irrationality and vaccines.`\
-https://nytimes.com/2021/08/01/opinion/unvaccinated-delta-variant-covid.html?searchResultPosition=8
+https://nytimes.com/2021/08/01/opinion/unvaccinated-delta-variant-covid.html?searchResultPosition=9
 
 **What to Cook This Week**\
 `If you’re willing to splurge, a lobster roll is a luxurious taste of summer at its simplest.`\
-https://nytimes.com/2021/08/01/dining/what-to-cook-this-week.html?searchResultPosition=9
-
-**How the World’s Fastest Men Battled for Gold in 10 Seconds**\
-`Marcell Jacobs achieved a top speed of 26.76 miles per hour to finish the 100-meter race in 9.80 seconds, 0.22 seconds off Usain Bolt’s world record set in 2009.`\
-https://nytimes.com/interactive/2021/08/01/sports/olympics/jacobs-track-100m-won-olympics.html?searchResultPosition=10
+https://nytimes.com/2021/08/01/dining/what-to-cook-this-week.html?searchResultPosition=10
 
