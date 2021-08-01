@@ -1,4 +1,4 @@
-**In swimming’s finale, Caeleb Dressel and the U.S. relay teams have a lot on the line.**\
+**Caeleb Dressel of the U.S. wins the 50-meter freestyle.**\
 `The latest results from the final day of swimming at the Tokyo Olympics.`\
 https://nytimes.com/2021/07/31/sports/olympics/swimming-dressel-finke-relays-results.html?searchResultPosition=1
 
