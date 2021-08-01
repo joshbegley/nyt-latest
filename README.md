@@ -2,8 +2,8 @@
 `McKeon’s haul ties her for the record by any female Olympian, set in 1952 by gymnast Maria Gorokhovskaya of the Soviet Union.`\
 https://nytimes.com/2021/07/31/sports/olympics/emma-mckeon-most-medals-olympics.html?searchResultPosition=1
 
-**Emma McKeon, Caeleb Dressel and Bobby Finke win gold in swimming’s finale.**\
-`McKeon picked up two more golds, given her seven medals in Tokyo and tying a record, while Dressel swam away with five golds from these Games.`\
+**The U.S. men keep an unbeaten streak alive, and Emma McKeon ties a medal record, in swimming’s finale.**\
+`McKeon picked up two more golds, giving her a record-tying seven medals in Tokyo, and Dressel swam away with his fourth and fifth golds.`\
 https://nytimes.com/2021/07/31/sports/olympics/swimming-dressel-finke-relays-results.html?searchResultPosition=2
 
 **2 Dead in Random Shooting at ‘Purge’ Movie, Officials Say**\
