@@ -1,9 +1,9 @@
 **With seven medals at one Olympics, Emma McKeon ties a record.**\
-`McKeon’s haul of seven medals ties her for the record by any female Olympian, set in 1952 by gymnast Maria Gorokhovskaya.`\
+`McKeon’s haul of seven medals ties her for the record by any female Olympian, set in 1952 by gymnast Maria Gorokhovskaya of the Soviet Union.`\
 https://nytimes.com/2021/07/31/sports/olympics/emma-mckeon-most-medals-olympics.html?searchResultPosition=1
 
 **Emma McKeon, Caeleb Dressel and Bobby Finke win gold in swimming’s finale.**\
-`Dressel’s gold was his fourth of the Games. McKeon picked up two more golds, given her seven in Tokyo.`\
+`McKeon picked up two more golds, given her seven medals in Tokyo and tying a record, while Dressel swam away with five golds from these Games.`\
 https://nytimes.com/2021/07/31/sports/olympics/swimming-dressel-finke-relays-results.html?searchResultPosition=2
 
 **2 Dead in Random Shooting at ‘Purge’ Movie, Officials Say**\
