@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/01/opinion/letters/covid-dining-sheds.html?searchRes
 
 **Unvaxxed, Unmasked and Putting Our Kids at Risk**\
 `Yes, this is a rant against irrationality and vaccines.`\
-https://nytimes.com/2021/08/01/opinion/unvaxxed-unmasked-and-putting-our-kids-at-risk.html?searchResultPosition=2
+https://nytimes.com/2021/08/01/opinion/unvaccinated-delta-variant-covid.html?searchResultPosition=2
 
 **What to Cook This Week**\
 `If you’re willing to splurge, a lobster roll is a luxurious taste of summer at its simplest.`\
