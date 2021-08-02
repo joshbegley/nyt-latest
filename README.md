@@ -23,7 +23,7 @@ https://nytimes.com/2021/08/02/opinion/Covid-Florida-vaccines.html?searchResultP
 https://nytimes.com/2021/08/02/nyregion/cuomo-sexual-harassment-investigation.html?searchResultPosition=6
 
 **Bill Gates and Melinda French Gates finalize their divorce**\
-`Details of how the couple split their assets was not made public. The couple was married for 27 years.`\
+`Details of how the couple split their assets were not made public. The couple was married for 27 years.`\
 https://nytimes.com/2021/08/02/business/bill-gates-divorce-melinda-french.html?searchResultPosition=7
 
 **Trump plans to fight the release of his tax returns to Congress.**\
