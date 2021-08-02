@@ -1,4 +1,4 @@
-**With a Door Left Open, Atlanta Hopes To Walk Right In**\
+**With a Door Left Open, Atlanta Hopes to Walk Right In**\
 `An unassuming Braves trade kicked off a frenzy of moves leaguewide. It sent a message that the Mets or Phillies can’t have the N.L. East title without a fight.`\
 https://nytimes.com/2021/08/02/sports/baseball/atlanta-braves.html?searchResultPosition=1
 
