@@ -22,7 +22,7 @@ https://nytimes.com/2021/08/01/sports/olympics/usa-canada-soccer.html?searchResu
 `Kyra Wilson serves up some meteorology.`\
 https://nytimes.com/2021/08/01/crosswords/daily-puzzle-2021-08-02.html?searchResultPosition=7
 
-**N.Y.P.D. Searches for Suspects in Queens Shooting that Wounded 10**\
+**N.Y.P.D. Searches for Suspects in Queens Shooting That Wounded 10**\
 `Police said two gunmen opened fire on a crowd near a busy intersection in North Corona, Queens, on Saturday night, injuring seven bystanders and three alleged members of the Trinitarios gang. The shooters fled with help from two accomplices on scooters.`\
 https://nytimes.com/video/nyregion/100000007898922/new-york-queens-mass-shooting.html?searchResultPosition=8
 
