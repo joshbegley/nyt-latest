@@ -1,5 +1,5 @@
 **In Manhattan, Daily Sweeps Target Homeless New Yorkers**\
-`The approach to persuading  people to go to shelters -- used heavily  since the pandemic started -- is ineffective, critics say.`\
+`The approach to persuading  people to go to shelters — used heavily  since the pandemic started — is ineffective, critics say.`\
 https://nytimes.com/2021/08/02/nyregion/in-manhattan-daily-sweeps-target-homeless-new-yorkers.html?searchResultPosition=1
 
 **Jason Momoa Is Bummed About Hollywood’s Attitude Toward Action Movies**\
