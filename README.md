@@ -14,8 +14,8 @@ https://nytimes.com/2021/08/02/opinion/health-insurance-unvaccinated.html?search
 `White House officials called on state governments to extend local moratoriums on evictions and accelerate the distribution of billions in rental aid, to soften the impact of the federal moratorium’s expiration on Saturday.`\
 https://nytimes.com/video/us/politics/100000007900829/evictions-moratorium-delta-coronavirus-biden.html?searchResultPosition=7
 
-**What to Watch in the Balance Beam Final**\
-`Simone Biles will be back on the floor for the first time in a week, but she will have stiff competition for a medal.`\
+**What to Watch in the Balance Beam Final: Simone Biles Returns**\
+`Biles will be back on the floor for the first time in a week, but she will have stiff competition for a medal.`\
 https://nytimes.com/2021/08/02/sports/olympics/gymnastics-what-to-watch.html?searchResultPosition=8
 
 **Germany Will Offer Vaccine Booster Shots Starting in September**\
