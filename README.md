@@ -2,7 +2,7 @@
 `A brush fire burned more than 40,000 acres on the Big Island of Hawaii prompting mandatory evacuations over the weekend. While many residents have now returned home, the fire is not yet under control and mandatory evacuations could be put in place in the coming days.`\
 https://nytimes.com/video/us/100000007900156/hawaii-brush-fire.html?searchResultPosition=1
 
-**Amtrak in the Infrastructure Bill: $66 billion in new funding, and an adjusted mandate.**\
+**Amtrak in the infrastructure bill: $66 billion in new funding, and an adjusted mandate.**\
 `The new funding would be the largest investment in passenger rail since Amtrak was created in 1971, according to the administration.`\
 https://nytimes.com/2021/08/02/us/politics/amtrak-trains-infrastructure.html?searchResultPosition=2
 
