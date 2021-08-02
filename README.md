@@ -1,40 +1,40 @@
-**U.S.A. vs. Leeroy Felan**\
-`A criminal complaint against Leeroy Felan`\
-https://nytimes.com/interactive/2021/08/02/us/complaint-against-leeroy-felan.html?searchResultPosition=1
+**Jason Momoa Is Bummed About Hollywood’s Attitude Toward Action Movies**\
+`“People absolutely love it, and it’s not respected at the Oscars.”`\
+https://nytimes.com/interactive/2021/08/02/magazine/jason-momoa-interview.html?searchResultPosition=1
 
-**U.S.A. vs. Mena Yousif**\
-`A criminal complaint against Mena Yousif`\
-https://nytimes.com/interactive/2021/08/02/us/complaint-against-mena-yousif.html?searchResultPosition=2
+**The 25 Most Significant Works of Postwar Architecture**\
+`Three architects, three journalists and two designers gathered over Zoom to make a list of the most influential and lasting buildings that have been erected — or cleverly updated — since World War II. Here are the results.`\
+https://nytimes.com/2021/08/02/t-magazine/significant-postwar-architecture.html?searchResultPosition=2
 
-**U.S.A. vs. Jose Felan, Jr.**\
-`A criminal complaint against Jose Felan, Jr.`\
-https://nytimes.com/interactive/2021/08/02/us/complaint-against-jose-felan.html?searchResultPosition=3
+**After a scorching, parched summer across much of the U.S., what will August bring?**\
+`Large swaths of the Western U.S. are suffering from drought and major wildfires.`\
+https://nytimes.com/2021/08/02/us/august-forecast.html?searchResultPosition=3
 
-**Simone Biles plans to compete in the balance beam, her last possible event in Tokyo.**\
-`The decision comes as she had skipped three other apparatus finals and the individual all-around.`\
-https://nytimes.com/2021/08/02/sports/olympics/simone-biles-balance-beam.html?searchResultPosition=4
+**The Bootleg Fire in Oregon is 74 percent contained, officials say.**\
+`Several days of rain have helped in the fight against the fire, which has consumed more than 400,000 acres.`\
+https://nytimes.com/2021/08/02/us/bootleg-fire-oregon.html?searchResultPosition=4
 
-**Jay Pickett, Veteran Soap Opera Actor, Dies at 60**\
-`His credits included “General Hospital,” “Days of Our Lives” and “Port Charles.” He died while filming a western in Idaho, where he was raised.`\
-https://nytimes.com/2021/08/02/arts/television/jay-pickett-dead.html?searchResultPosition=5
+**Fleeting Glimpses of Indonesia’s Endangered Orangutans**\
+`On the island of Sumatra, a devoted group of conservationists is grasping for a solution that will benefit both the animals and the people who live around them.`\
+https://nytimes.com/2021/08/02/travel/sumatra-orangutan-conservation.html?searchResultPosition=5
 
-**He Sang 2 Songs at an Election Rally. Hong Kong Says He Violated the Law.**\
-`Anticorruption officials arrested Anthony Wong Yiu-ming, a Cantopop singer, who has publicly supported the Chinese territory’s pro-democracy opposition.`\
-https://nytimes.com/2021/08/02/world/asia/hong-kong-singer-election.html?searchResultPosition=6
+**Queen Guitarist’s Flooded London Basement Foretells a Climate Under Pressure**\
+`After a heat wave and two Southeast Asia-style rainstorms that flooded the capital’s streets, subways and Brian May’s cellar, it seems timely to ask if the city is prepared to deal with wild weather.`\
+https://nytimes.com/2021/08/02/world/london-floods-brian-may.html?searchResultPosition=6
 
-**A Wall Street Dressing Down: Always. Be. Casual.**\
-`As workers return to the financial district, longstanding dress codes have been relaxed. Right now, almost anything goes. Even jeans.`\
-https://nytimes.com/2021/08/02/business/wall-street-casual.html?searchResultPosition=7
+**Lack of Foreign Workers Has Seasonal Businesses Scrambling**\
+`Even with a visa cap increased, the pandemic’s disruption has left a dearth of landscapers, crabbers and restaurant help.`\
+https://nytimes.com/2021/08/02/business/economy/seasonal-foreign-guest-workers.html?searchResultPosition=7
 
-**Where a Vast Global Vaccination Program Went Wrong**\
-`After months of struggle, the U.N.-backed Covax alliance will soon have many more doses, promising relief for vaccine shortages in poorer countries. But it faces a deepening crisis: difficulties getting shots into arms as the Delta variant spreads.`\
-https://nytimes.com/2021/08/02/world/europe/covax-covid-vaccine-problems-africa.html?searchResultPosition=8
+**2 House Races in Ohio Will Test Democratic Divisions and Trump’s Sway**\
+`In the Cleveland area, a bitter primary election is pitting the left against the Democratic establishment. Near Columbus, a Trump-endorsed candidate faces a crowded Republican field.`\
+https://nytimes.com/2021/08/02/us/politics/ohio-house-elections.html?searchResultPosition=8
 
-**New York Is Pushing Homeless People Off the Streets. Where Will They Go?**\
-`Cleanup crews are clearing encampments, but advocates say the sweeps just move people from one place to another and fail to address the housing crisis.`\
-https://nytimes.com/2021/08/02/nyregion/homeless-camps-relocate.html?searchResultPosition=9
+**Solving the Mystery of I.B.S.**\
+`Experts are starting to untangle the biological underpinnings of this common yet perplexing disorder. What they’re finding could offer clues on how to treat it.`\
+https://nytimes.com/2021/08/02/well/live/irritable-bowel-syndrome-treatments-causes.html?searchResultPosition=9
 
-**Three (White, Male) Tough Guys Sign Off. Is It a Moment?**\
-`“Bosch,” “Mr. Inbetween” and “Jack Irish,” dependably good and noticeably old-fashioned, all reach the end of the hard-boiled road.`\
-https://nytimes.com/2021/08/02/arts/television/middle-aged-white-heroes.html?searchResultPosition=10
+**Her Latest Trick: Finding an Affordable One-Bedroom in Manhattan**\
+`After a year in New Jersey, a fashion designer who moonlights as a magician discovered to her surprise that she could afford to move back to the city.`\
+https://nytimes.com/2021/08/02/realestate/renting-upper-east-side.html?searchResultPosition=10
 
