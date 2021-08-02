@@ -1,5 +1,5 @@
 **Olympics officials are still negotiating a response to a U.S. podium protest.**\
-`By Matthew Futterman`\
+`Raven Saunders, a U.S. shot putter, on Sunday delivered the first political demonstration on the podium at the Tokyo Olympics.`\
 https://nytimes.com/2021/08/02/sports/olympics/saunders-podium-protest-response-ioc.html?searchResultPosition=1
 
 **Jasmine Camacho-Quinn wins the 100-meter hurdles, Puerto Rico’s first gold in track.**\
