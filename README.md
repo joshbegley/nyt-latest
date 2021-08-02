@@ -6,8 +6,8 @@ https://nytimes.com/2021/08/02/realestate/home-prices-california.html?searchResu
 `A modern farmhouse in Ventura, a three-bedroom home in West Hollywood and a six-acre retreat with dramatic water views near Mendocino.`\
 https://nytimes.com/slideshow/2021/08/02/realestate/what-you-get-for-3-5-million-in-california.html?searchResultPosition=2
 
-**Sifan Hassan wins the 5,000 meters. Onto the next one.**\
-`Hassan’s day began with a near disaster after she fell during her first heat of the 1,500 meters. She still won the race.`\
+**Sifan Hassan wins the 5,000 meters and now looks to the 1,500 and 10,000.**\
+`Winning medals in all three events would secure Hassan’s place as one of the great distance runners in Olympic history.`\
 https://nytimes.com/2021/08/02/sports/olympics/sifan-hassan-5k.html?searchResultPosition=3
 
 **Haitians Say They Got Death Threats for Refusing to Tamper With Moïse Evidence**\
