@@ -23,7 +23,7 @@ https://nytimes.com/2021/08/02/crosswords/spelling-bee-2021-08-02.html?searchRes
 https://nytimes.com/2021/08/02/sports/olympics/saunders-podium-protest-response-ioc.html?searchResultPosition=6
 
 **Jasmine Camacho-Quinn wins the 100-meter hurdles, Puerto Rico’s first gold in track.**\
-`By Victor Mather`\
+`It’s also Puerto Rico’s second Olympic gold medal in any sport.`\
 https://nytimes.com/2021/08/02/sports/olympics/jasmine-chamacho-quinn-100m-hurdles.html?searchResultPosition=7
 
 **What’s on TV This Week: An Obama Documentary and ‘Shiva Baby’**\
