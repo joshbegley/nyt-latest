@@ -14,23 +14,23 @@ https://nytimes.com/2021/08/03/theater/abrons-arts-center-fall-season.html?searc
 `At least 52 waterspouts were seen over Lake Erie, Lake Huron and Lake Ontario in the U.S. and Canada. At least one waterspout, which is whirling columns of air and water mist, caused minor damage as it moved onshore.`\
 https://nytimes.com/video/us/100000007902064/waterspout-great-lakes-weather.html?searchResultPosition=5
 
+**These are the lawyers hired by the attorney general to investigate Cuomo.**\
+`Joon Kim is a former acting U.S. attorney for the Southern District of New York, and Anne Clark has experience in employment law issues.`\
+https://nytimes.com/2021/08/03/nyregion/joon-kim-anne-clark.html?searchResultPosition=6
+
 **Watch Live: N.Y. Attorney General Discusses Cuomo Investigation**\
 `New York State Attorney General Letitia James is expected to release findings of a four-month investigation into sexual harassment and misconduct allegations made against Gov. Andrew M. Cuomo.`\
-https://nytimes.com/video/nyregion/100000007902071/tish-james-cuomo-report-live.html?searchResultPosition=6
+https://nytimes.com/video/nyregion/100000007902071/tish-james-cuomo-report-live.html?searchResultPosition=7
 
 **Mudslides in Colorado Shut Down Interstate 70**\
 `Drone footage shows Interstate 70 through Glenwood Canyon, Colo., closed to travelers after a mudslide caused by heavy rains blocked the road. Sections of the highway could be closed for weeks.`\
-https://nytimes.com/video/us/100000007902005/colorado-mudslides-damage.html?searchResultPosition=7
+https://nytimes.com/video/us/100000007902005/colorado-mudslides-damage.html?searchResultPosition=8
 
 **Yellen and Pelosi will discuss rental assistance as an eviction crisis looms and Democrats demand answers.**\
 `The meeting comes as the White House is facing an uproar from progressive Democrats, who are faulting the administration for not finding a way to extend the eviction ban.`\
-https://nytimes.com/2021/08/03/us/politics/evictions-housing-moratorium-pelosi-yellen.html?searchResultPosition=8
+https://nytimes.com/2021/08/03/us/politics/evictions-housing-moratorium-pelosi-yellen.html?searchResultPosition=9
 
 **Recent Commercial Real Estate Transactions**\
 `Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2021/08/03/business/new-york-commercial-real-estate.html?searchResultPosition=9
-
-**Tokyo Olympics on Tuesday: Comebacks and Newcomers**\
-`Simone Biles was back on the balance beam, while Athing Mu introduced herself to the world`\
-https://nytimes.com/interactive/2021/08/03/sports/olympics/olympics-2021-gymnastics-climbing-track.html?searchResultPosition=10
+https://nytimes.com/2021/08/03/business/new-york-commercial-real-estate.html?searchResultPosition=10
 
