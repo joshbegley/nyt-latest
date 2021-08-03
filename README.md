@@ -22,7 +22,7 @@ https://nytimes.com/2021/08/03/sports/olympics/olympics-track-basketball-volleyb
 `The first round of women’s golf kicks off. Replays of the women’s 200-meter and 800-meter races air.`\
 https://nytimes.com/2021/08/03/sports/olympics/tuesday-evening-broadcast-schedule.html?searchResultPosition=6
 
-**Toggling Between Fear and Flirtation, Cuomo Was Shielded From Accountability**\
+**Toggling Between Intimidation and Flirtation, Cuomo Was Shielded From Accountability**\
 `The account of a state trooper who felt “completely violated” bolsters a meticulous new report on Gov. Andrew M. Cuomo’s misdeeds — and how such conduct was allowed to fester.`\
 https://nytimes.com/2021/08/03/nyregion/cuomo-toxic-workplace.html?searchResultPosition=7
 
