@@ -14,9 +14,9 @@ https://nytimes.com/2021/08/02/us/politics/covid-pandemic-guidelines.html?search
 `Citing new concerns about the spread of the coronavirus, the administration will continue to rely for now on a Trump-era policy.`\
 https://nytimes.com/2021/08/02/us/politics/biden-immigration-covid.html?searchResultPosition=4
 
-**Administration Seeks to Blunt Impact From End of Eviction Moratorium**\
+**Administration Seeks to Blunt Effects From End of Eviction Moratorium**\
 `After the expiration of the moratorium over the weekend, the White House called on state and local governments to protect renters and sought to speed the flow of federal aid.`\
-https://nytimes.com/2021/08/02/us/politics/administration-seeks-to-blunt-impact-from-end-of-eviction-moratorium.html?searchResultPosition=5
+https://nytimes.com/2021/08/02/us/politics/administration-seeks-to-blunt-effects-from-end-of-eviction-moratorium.html?searchResultPosition=5
 
 **Labor Board Official Backs Union Challenge on Amazon Vote**\
 `A hearing officer for the National Labor Relations Board found that Amazon illegally discouraged organizing at an Alabama warehouse. The company can appeal to block a new election.`\
