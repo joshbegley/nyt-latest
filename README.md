@@ -30,7 +30,7 @@ https://nytimes.com/interactive/2021/08/03/nyregion/cuomo-sexual-harassment-repo
 `The first batches of free tickets to the “We Love NYC: The Homecoming Concert” are being released online this week. They can be gotten, with patience.`\
 https://nytimes.com/2021/08/03/arts/music/central-park-homecoming-concert-tickets.html?searchResultPosition=8
 
-**Pentagon complex on lockdown following a shooting at an entrance.**\
+**Following a shooting outside of a Pentagon entrance, officials say the scene is secure.**\
 `It was not immediately clear how many shots were fired and if anyone was injured or killed.`\
 https://nytimes.com/2021/08/03/us/politics/pentagon-shooting.html?searchResultPosition=9
 
