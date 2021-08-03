@@ -2,7 +2,7 @@
 `Gov. Andrew M. Cuomo will address the report from the state’s attorney general that found he sexually harassed multiple women, including current and former government workers, and retaliated against one for making a public complaint.`\
 https://nytimes.com/video/us/100000007902313/cuomo-press-conference-live.html?searchResultPosition=1
 
-**Whistle-blower Advocates Call for Top Aide on Jan. 6 Panel to Be Removed**\
+**Whistle-blower advocates call for a top aide on the Jan. 6 panel to be removed.**\
 `Critics cite a report by the Department of Homeland Security inspector general that found that David B. Buckley had retaliated against a whistle-blower years ago.`\
 https://nytimes.com/2021/08/03/us/politics/whistle-blower-capitol-riot.html?searchResultPosition=2
 
@@ -18,7 +18,7 @@ https://nytimes.com/2021/08/03/arts/design/new-york-public-library-picture-colle
 `The center’s summertime music series has a limited outdoor run this week.`\
 https://nytimes.com/2021/08/03/arts/music/mostly-mozart-classical-music.html?searchResultPosition=5
 
-**‘I believe these 11 women,’ Letitia James says, as she reveals report’s findings.**\
+**‘I believe these 11 women,’ Letitia James says as she reveals report’s findings.**\
 `The attorney general said the state had “an obligation to protect women in their workplace.”`\
 https://nytimes.com/2021/08/03/nyregion/letitia-james-ag.html?searchResultPosition=6
 
