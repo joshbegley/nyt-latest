@@ -4,7 +4,7 @@ https://nytimes.com/video/nyregion/100000007902910/cuomo-sexual-harassment-repor
 
 **President Biden calls on Cuomo to resign.**\
 `Mr. Biden, a longtime friend of Mr. Cuomo’s, had initially avoided addressing the accusations.`\
-https://nytimes.com/2021/08/03/nyregion/biden-cuomo.html?searchResultPosition=2
+https://nytimes.com/live/2021/08/03/nyregion/andrew-cuomo/biden-cuomo?searchResultPosition=2
 
 **Pentagon Provides Update On Shooting**\
 `The chief of the Pentagon Force Protection Agency provided details on the shooting incident that took place on the Metro bus platform near the Defense Department’s headquarters.`\
