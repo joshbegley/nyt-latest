@@ -2,9 +2,9 @@
 `The cuneiform tablets and other objects had been held by the Museum of the Bible, founded by the family that owns the Hobby Lobby craft store chain, and by Cornell University.`\
 https://nytimes.com/2021/08/03/world/middleeast/iraq-looted-artifacts-return.html?searchResultPosition=2
 
-**The West Is On Fire. It’s Past Time to Act on Climate Change.**\
+**The West Is on Fire. It’s Past Time to Act on Climate Change.**\
 `The infrastructure deal is a good start. But much more must be done to reduce greenhouse gas emissions.`\
-https://nytimes.com/2021/08/03/opinion/Wildfires-Oregon-West-Congress.html?searchResultPosition=3
+https://nytimes.com/2021/08/03/opinion/wildfires-oregon-west-congress.html?searchResultPosition=3
 
 **Watch Live: Biden Delivers Remarks on Covid-19 Response**\
 `President Biden speaks about his administration’s efforts to fight the coronavirus pandemic and increase vaccinations across the country and around the world.`\
