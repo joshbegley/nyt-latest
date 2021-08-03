@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007902623/cuomo-sexual-harassment-allegations.html?searchResultPosition=1
 
 **Chris Cuomo of CNN appears in report on Governor Cuomo’s behavior.**\
-`The CNN star was interviewed for the report, from the office of New York’s attorney general, and one document shows Chris Cuomo taking part in an email chain as a formal public statement was drafted for the governor.`\
+`The CNN star was interviewed for the report, from the New York’s attorney general, and one document shows Chris Cuomo taking part in an email chain as a formal public statement was drafted for the governor.`\
 https://nytimes.com/2021/08/03/business/media/chris-cuomo-governor-andrew-cuomo.html?searchResultPosition=2
 
 **‘That is just not who I am.’ Cuomo disputes report, calling it biased.**\
