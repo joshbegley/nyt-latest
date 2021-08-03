@@ -26,7 +26,7 @@ https://nytimes.com/2021/08/03/science/nasa-boeing-starliner-launch.html?searchR
 `Gov. Jared Polis said he would issue a state of emergency declaration.`\
 https://nytimes.com/2021/08/03/us/colorado-i70-closed.html?searchResultPosition=8
 
-**New York City is expected to require proof of vaccination for indoor dining and fitness.**\
+**New York City will require proof of vaccination for indoor dining and fitness.**\
 `Mayor Bill de Blasio recently said the vaccinated will “get to benefit in all sorts of ways,” while for the unvaccinated, there will “be fewer and fewer things that you’re able to do.”`\
 https://nytimes.com/2021/08/03/nyregion/nyc-vaccine-mandate.html?searchResultPosition=9
 
