@@ -26,7 +26,7 @@ https://nytimes.com/2021/08/03/theater/New-York-Stage-and-Film-poughkeepsie.html
 `The governing body of college sports ordered an investigation in response to outrage over disparities between its men’s and women’s basketball tournaments.`\
 https://nytimes.com/2021/08/03/sports/ncaabasketball/ncaa-gender-equity-investigation.html?searchResultPosition=8
 
-**‘My Job is About You,’ Cuomo Says After Attorney General Report**\
+**‘My Job Is About You,’ Cuomo Says After Attorney General Report**\
 `Gov. Andrew M. Cuomo of New York denied any wrongdoing following the release of a report by the state’s attorney general into allegations of sexual harassment against him. He said the investigation was a painful period for his family, but he would continue his work.`\
 https://nytimes.com/video/us/politics/100000007902623/cuomo-sexual-harassment-allegations.html?searchResultPosition=9
 
