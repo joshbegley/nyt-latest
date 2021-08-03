@@ -1,5 +1,5 @@
 **Guan Chenchen of China wins gold. Biles takes bronze.**\
-`Chenchen won with a more difficult routine than her rivals. Her compatriot, Tang Xijing, won silver. Simone Biles won bronze in her return to competition following mental blocks that kept her from performing dangerous maneuvers.`\
+`Chenchen won with a more difficult routine than her rivals. Her compatriot, Tang Xijing, won silver. Simone Biles won bronze in her return to competition.`\
 https://nytimes.com/2021/08/03/sports/olympics/guan-chenchen-simone-biles-beam-gold-bronze.html?searchResultPosition=1
 
 **De Blasio Urges Masking Again, but Stops Short of a Mandate**\
