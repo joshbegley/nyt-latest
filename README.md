@@ -19,7 +19,7 @@ https://nytimes.com/2021/08/03/sports/olympics/guan-chenchen-simone-biles-beam-g
 https://nytimes.com/2021/08/03/nyregion/no-mask-mandate.html?searchResultPosition=5
 
 **See Biles’s beam routine in action.**\
-`Biles scored a 14.0 on her routine, putting her in second place with five gymnasts to compete.`\
+`Simone Biles scored a 14.0, giving her the bronze medal.`\
 https://nytimes.com/2021/08/03/sports/olympics/simone-biles-beam-routine.html?searchResultPosition=6
 
 **Increasing heat and wind in Oregon could make containing the nation’s largest blaze more difficult.**\
