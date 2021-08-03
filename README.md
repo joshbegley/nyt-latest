@@ -1,10 +1,10 @@
 **Listen to Our Summer Soundtrack**\
-`The Daily's annual playlist has bangers, feel-goods and songs that you can play shamelessly on repeat.`\
+`The Daily's annual playlist has bangers, feel-goods and songs that you can play shamelessly on repeat. `\
 https://nytimes.com/interactive/2021/08/03/podcasts/daily-summer-playlist.html?searchResultPosition=1
 
 **Spirit Airlines and American Airlines cancel hundreds of flights.**\
 `Bad weather and pandemic-related staffing issues have caused occasional disruptions this summer as air travel rebounds.`\
-https://nytimes.com/2021/08/03/business/spirit-airlines-and-american-airlines-cancel-hundreds-of-flights.html?searchResultPosition=2
+https://nytimes.com/2021/08/03/business/spirit-american-airlines-cancellations.html?searchResultPosition=2
 
 **Willie Winfield, Angelic-Voiced Doo-Wop Singer, Is Dead at 91**\
 `For more than 60 years, he various incarnations of the Harptones. “His voice was unique,” one concert producer said, “and it lasted his whole life.”`\
