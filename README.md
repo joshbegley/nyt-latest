@@ -6,8 +6,8 @@ https://nytimes.com/2021/08/03/world/asia/tokyo-olympics-karate.html?searchResul
 `It’s a cautionary tale for governments across the world.`\
 https://nytimes.com/2021/08/03/opinion/france-vaccine-passports-macron.html?searchResultPosition=2
 
-**After a rough first half, the U.S. is leading Spain in men’s basketball.**\
-`The United States team has produced a string of shaky performances in the last month. They are facing tough competition from Spain.`\
+**The U.S. handily defeats Spain in men’s basketball, moving on to the semifinals.**\
+`The U.S. had produced a string of shaky performances in the last month but, after a close first half, defeated their rival Spain.`\
 https://nytimes.com/2021/08/03/sports/olympics/us-spain-basketball-olympics.html?searchResultPosition=3
 
 **Corrections: Aug. 3, 2021**\
