@@ -1,40 +1,40 @@
-**A Cat on the Field. A Mantis on a Hat. Monday Baseball Had It All.**\
-`A cat interrupted a Yankees-Orioles game. A praying mantis stuck to a Nationals player’s hat. It was a big day for animals on the field.`\
-https://nytimes.com/2021/08/03/sports/baseball-cat-mantis-hat.html?searchResultPosition=1
+**Increasing heat and wind in Oregon could make containing the nation’s largest blaze more difficult.**\
+`The Bootleg Fire has destroyed more than 400,000 acres and is not projected to be fully contained until October.`\
+https://nytimes.com/2021/08/03/us/bootleg-fire-oregon.html?searchResultPosition=1
 
-**Laurel Hubbard Had Her Moment. Now She’d Like Her Privacy.**\
-`‘I’m looking forward to this being the end of my journey,’ a barrier-breaking weight lifter says after an excruciating week in the spotlight.`\
-https://nytimes.com/2021/08/03/sports/olympics/laurel-hubbard-transgender-weight-lifter.html?searchResultPosition=2
+**Is Travel Next in the Fight Over Who Profits from Native American Culture?**\
+`From motels to spa treatments, the industry has often used Indigenous imagery to gain a sense of authenticity. Amid an ongoing national conversation around race, will that change?`\
+https://nytimes.com/2021/08/03/travel/travel-native-american.html?searchResultPosition=2
 
-**Outside the Olympic Cocoon, a Tokyo Abuzz Only With Cicadas**\
-`The sequestered Games have left the host city feeling like anything but.`\
-https://nytimes.com/2021/08/03/world/asia/tokyo-olympics-host-city.html?searchResultPosition=3
+**The Race When Everyone Set a Record**\
+`On a sunny summer evening in 2012, eight runners elevated the 800 meters into high art. One set a world record. Several others were never the same.`\
+https://nytimes.com/2021/08/03/sports/2012-olympics-mens-800-meters.html?searchResultPosition=3
 
-**U.S. broadcast coverage on Tuesday includes gymnastics, soccer and beach volleyball.**\
-`In basketball, Italy plays France at 4:15 a.m. and Australia plays Argentina at 8 a.m., both on USA Network.`\
-https://nytimes.com/2021/08/03/sports/olympics/olympics-us-broadcast-what-to-watch.html?searchResultPosition=4
+**When All Else Fails, It’s Time to See the Olympic Body Mechanic**\
+`How did John Ball become the go-to health professional for track and field athletes with creaky hips and balky knees? A devotee answers: Have you seen his hands?`\
+https://nytimes.com/2021/08/03/sports/olympics/olympics-track-chiropractor.html?searchResultPosition=4
 
-**Big Economic Challenges Await Biden and the Fed This Fall**\
-`Expiring unemployment benefits and the Delta variant add uncertainty to a recovery that has brought strong growth but an unusual labor market.`\
-https://nytimes.com/2021/08/03/business/Biden-Federal-Reserve-economic-challenges.html?searchResultPosition=5
+**Marsha Mason’s ‘New York Loft in a Hayfield’**\
+`After more than two decades in New Mexico, the actress and director is back on the East Coast, with new digs and a renewed focus on the theater.`\
+https://nytimes.com/2021/08/03/realestate/marsha-masons-new-york-loft-in-a-hayfield.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/03/crosswords/spelling-bee-2021-08-03.html?searchResultPosition=6
+**What if Highways Were Electric? Germany Is Testing the Idea.**\
+`An electrified highway is theoretically the most efficient way to eliminate truck emissions. But the political obstacles are daunting.`\
+https://nytimes.com/2021/08/03/business/electric-trucks-catenary-wire.html?searchResultPosition=6
 
-**Here’s how to watch the competition in the United States.**\
-`For live U.S. viewers, the competition will be show on the NBC Olympics site, Peacock or the NBC Sports app.`\
-https://nytimes.com/2021/08/03/sports/olympics/how-to-watch-simone-biles-gymnastics.html?searchResultPosition=7
+**Marsha Mason on the Art of Downsizing**\
+`After more than two decades in New Mexico, the actress and director is back on the East Coast, with new digs and a new focus on theater work.`\
+https://nytimes.com/slideshow/2021/08/03/realestate/marsha-mason-on-the-art-of-downsizing.html?searchResultPosition=7
 
-**Touring Trinity, the Birthplace of Nuclear Dread**\
-`A recent visit the site of the first atomic bomb explosion offered desert vistas, (mildly) radioactive pebbles and troubling reflections.`\
-https://nytimes.com/2021/08/03/science/trinity-site-atomic-fat-man.html?searchResultPosition=8
+**Osama bin Laden, the Fanatical Terrorist and the Devoted Family Man**\
+`With fresh material from bin Laden’s hide-out, Peter Bergen, in “The Rise and Fall of Osama bin Laden,” gives us a three-dimensional portrait.`\
+https://nytimes.com/2021/08/03/books/review/the-rise-and-fall-of-osama-bin-laden-peter-bergen.html?searchResultPosition=8
 
-**Karate’s Big Question in Its Olympic Debut: Is It a Sport or a Martial Art?**\
-`To Japan’s traditionalists, karate represents qualities fundamental to the national character. But to be a modern sport, the discipline has been forced to adapt.`\
-https://nytimes.com/2021/08/03/world/asia/tokyo-olympics-karate.html?searchResultPosition=9
+**‘We’re Living in Hell’: Inside Mexico’s Most Terrified City**\
+`Fresnillo feels to residents overrun by violence and paralyzed by fear, a testament to the failure of Mexico’s government to tackle organized crime.`\
+https://nytimes.com/2021/08/03/world/americas/inside-mexicos-most-terrified-city-fresnillo.html?searchResultPosition=9
 
-**France Brought in Vaccine Passports. People Are Not Happy.**\
-`It’s a cautionary tale for governments across the world.`\
-https://nytimes.com/2021/08/03/opinion/france-vaccine-passports-macron.html?searchResultPosition=10
+**After 40 Years, a Luminary of Theater’s Avant-Garde Departs**\
+`“I have the energy, I have the interest,” says Blanka Zizka of the Wilma Theater. “But I need to go a different way.”`\
+https://nytimes.com/2021/08/03/theater/blanka-zizka-wilma-theater.html?searchResultPosition=10
 
