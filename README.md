@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/03/arts/music/lincoln-center-shanta-thake.html?searchResultPosition=1
 
 **Read the Sexual Harassment Report on Andrew Cuomo**\
-`A report from the New York State attorney general released on Tuesday said that Mr. Cuomo cultivated a work culture that was rife with fear and intimidation.`\
+`A report from the New York State attorney general released on Tuesday said that Gov. Cuomo cultivated a work culture that was rife with fear and intimidation.`\
 https://nytimes.com/interactive/2021/08/03/nyregion/cuomo-sexual-harassment-report.html?searchResultPosition=2
 
 **Want Free Central Park Concert Tickets? Keep Trying.**\
