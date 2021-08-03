@@ -1,5 +1,5 @@
 **Waterspouts Appear Over Great Lakes**\
-`At least 52 waterspouts were seen over Lake Erie, Lake Huron, and Lake Ontario in the U.S. and Canada. At least one waterspout, which is whirling columns of air and water mist, caused minor damage as it moved onshore.`\
+`At least 52 waterspouts were seen over Lake Erie, Lake Huron and Lake Ontario in the U.S. and Canada. At least one waterspout, which is whirling columns of air and water mist, caused minor damage as it moved onshore.`\
 https://nytimes.com/video/us/100000007902064/waterspout-great-lakes-weather.html?searchResultPosition=1
 
 **Watch Live: N.Y. Attorney General Discusses Cuomo Investigation**\
