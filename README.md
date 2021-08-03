@@ -27,6 +27,6 @@ https://nytimes.com/2021/08/03/nyregion/cuomo-slideshow-bush-obama.html?searchRe
 https://nytimes.com/2021/08/03/arts/music/willie-winfield-dead.html?searchResultPosition=9
 
 **Your Wednesday Briefing**\
-`Japan cracks down on pandemic rule breakers.`\
+`Calls for New York Governor Andrew Cuomo to resign.`\
 https://nytimes.com/2021/08/03/briefing/japan-travelers-olympics-biles-cuomo.html?searchResultPosition=10
 
