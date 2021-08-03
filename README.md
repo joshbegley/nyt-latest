@@ -15,7 +15,7 @@ https://nytimes.com/2021/08/02/us/politics/covid-pandemic-guidelines.html?search
 https://nytimes.com/2021/08/02/us/politics/biden-immigration-covid.html?searchResultPosition=4
 
 **Administration Seeks to Blunt Impact From End of Eviction Moratorium**\
-`Following the expiration of the moratorium over the weekend, the White House called on state and local governments to protect renters and sought to speed the flow of federal aid.`\
+`After the expiration of the moratorium over the weekend, the White House called on state and local governments to protect renters and sought to speed the flow of federal aid.`\
 https://nytimes.com/2021/08/02/us/politics/administration-seeks-to-blunt-impact-from-end-of-eviction-moratorium.html?searchResultPosition=5
 
 **Labor Board Official Backs Union Challenge on Amazon Vote**\
