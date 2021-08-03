@@ -2,8 +2,8 @@
 `It’s a cautionary tale for governments across the world.`\
 https://nytimes.com/2021/08/03/opinion/france-vaccine-passports-macron.html?searchResultPosition=1
 
-**U.S. men’s basketball faces Spain, a tough opponent, in a must-win game.**\
-`The United States team has produced a string of shaky performances in the last month.`\
+**The U.S. and Spain men’s basketball game is close, with the loser eliminated.**\
+`The United States team has produced a string of shaky performances in the last month. They are facing tough competition from Spain.`\
 https://nytimes.com/2021/08/03/sports/olympics/us-spain-basketball-olympics.html?searchResultPosition=2
 
 **Corrections: Aug. 3, 2021**\
