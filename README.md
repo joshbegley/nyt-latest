@@ -1,40 +1,40 @@
+**Hello, From Your New Writer**\
+`Tuesday: Introducing the new voice of the newsletter. Plus, Bay Area counties instate a universal indoor masking requirement.`\
+https://nytimes.com/2021/08/03/us/california-today-new-writer.html?searchResultPosition=1
+
 **The sprinter who sought refuge from Belarus is an unlikely dissident.**\
 `Kristina Timanovskaya had avoided politics until now, preferring to focus on training for her first Olympics.`\
-https://nytimes.com/2021/08/03/sports/olympics/kristina-timanovskaya-belarus-refuge.html?searchResultPosition=1
+https://nytimes.com/2021/08/03/sports/olympics/kristina-timanovskaya-belarus-refuge.html?searchResultPosition=2
 
 **Inside the Epic Infrastructure Bill**\
 `What’s in the $1 trillion proposal, from broadband and bridges to ports and pedestrian crossings.`\
-https://nytimes.com/2021/08/03/business/dealbook/infrastructure-bill-details.html?searchResultPosition=2
+https://nytimes.com/2021/08/03/business/dealbook/infrastructure-bill-details.html?searchResultPosition=3
 
 **Even a World Record Doesn’t Always Guarantee Olympic Gold**\
 `Both Karsten Warholm of Norway and Rai Benjamin of the United States broke the previous world record in the 400-meter hurdles at the Tokyo Olympics.`\
-https://nytimes.com/2021/08/03/sports/karsten-warholm-rai-benjamin-400-hurdles-record.html?searchResultPosition=3
+https://nytimes.com/2021/08/03/sports/karsten-warholm-rai-benjamin-400-hurdles-record.html?searchResultPosition=4
 
 **Tyson Foods mandates vaccines for its U.S. work force.**\
 `More than 56,000 of Tyson’s 120,000 employees have been vaccinated. Frontline workers have until Nov. 1 to be fully inoculated.`\
-https://nytimes.com/2021/08/03/business/tyson-vaccine-mandate.html?searchResultPosition=4
+https://nytimes.com/2021/08/03/business/tyson-vaccine-mandate.html?searchResultPosition=5
 
 **BMW and Stellantis report big jumps in profit as car sales snap back.**\
 `But shortages of computer chips remain a problem, and could curtail production of as many as 90,000 vehicles at BMW alone this year.`\
-https://nytimes.com/2021/08/03/business/bmw-and-stellantis-report-big-jumps-in-profit-as-car-sales-snap-back.html?searchResultPosition=5
+https://nytimes.com/2021/08/03/business/bmw-and-stellantis-report-big-jumps-in-profit-as-car-sales-snap-back.html?searchResultPosition=6
 
 **How many Olympic medals does Biles have?**\
 `Simone Biles tied two gymnastics records after winning the bronze on the balance beam.`\
-https://nytimes.com/2021/08/03/sports/olympics/simone-biles-medal-count.html?searchResultPosition=6
+https://nytimes.com/2021/08/03/sports/olympics/simone-biles-medal-count.html?searchResultPosition=7
 
 **Wuhan, where the virus emerged, will test all residents after its first outbreak in over a year.**\
 `The city in central China that endured the pandemic’s first lockdown has found its first signs of local transmission since May 2020.`\
-https://nytimes.com/2021/08/03/world/wuhan-china-covid-new-cases.html?searchResultPosition=7
+https://nytimes.com/2021/08/03/world/wuhan-china-covid-new-cases.html?searchResultPosition=8
 
 **An outbreak of waterspouts over the Great Lakes dazzles onlookers.**\
 `Waterspouts usually occur in the region from August through October, when the water of the Great Lakes is near its warmest, meteorologists said.`\
-https://nytimes.com/2021/08/03/us/great-lakes-waterspouts.html?searchResultPosition=8
+https://nytimes.com/2021/08/03/us/great-lakes-waterspouts.html?searchResultPosition=9
 
 **Will These Places Survive a Collapse? Don’t Bet on It, Skeptics Say**\
 `A pair of English researchers found that New Zealand is best poised to stay up and running as climate change continues to wreak global havoc. Other scientists found flaws in their model.`\
-https://nytimes.com/2021/08/03/us/collapse-of-civilization-study-new-zealand.html?searchResultPosition=9
-
-**‘Pray Away’ Review: Atoning for an Anti-Gay Stance**\
-`In this documentary, people who had promoted the idea that sexual orientation could be changed express their regrets.`\
-https://nytimes.com/2021/08/03/movies/pray-away-review.html?searchResultPosition=10
+https://nytimes.com/2021/08/03/us/collapse-of-civilization-study-new-zealand.html?searchResultPosition=10
 
