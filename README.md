@@ -1,40 +1,40 @@
+**Biden Administration Preparing New Eviction Moratorium**\
+`President Biden told reporters that the Centers for Disease Control and Prevention would seek to implement a new federal moratorium on evictions in communities across the country hardest hit by the virus.`\
+https://nytimes.com/video/us/politics/100000007903387/biden-cdc-evictions-moratorium.html?searchResultPosition=1
+
 **F.D.A. Aims to Give Final Approval to Pfizer Vaccine by Early Next Month**\
 `The Food and Drug Administration’s move is expected to kick off more vaccination mandates for hospital workers, college students and federal troops.`\
-https://nytimes.com/2021/08/03/us/politics/pfizer-vaccine-approval.html?searchResultPosition=1
+https://nytimes.com/2021/08/03/us/politics/pfizer-vaccine-approval.html?searchResultPosition=2
 
 **Is the Delta Variant Making Younger Adults ‘Sicker, Quicker’?**\
 `Many doctors on the front lines say unvaccinated patients in their 20s and 30s are becoming more severely ill, and more quickly. But comprehensive data is lacking.`\
-https://nytimes.com/2021/08/03/health/covid-young-adults-sicker.html?searchResultPosition=2
+https://nytimes.com/2021/08/03/health/covid-young-adults-sicker.html?searchResultPosition=3
 
 **Under Fire and Alone, Cuomo Fights for His Political Life**\
 `The governor once again defied calls to resign, including from President Biden. But his future remains in doubt.`\
-https://nytimes.com/2021/08/03/nyregion/cuomo-guilty.html?searchResultPosition=3
+https://nytimes.com/2021/08/03/nyregion/cuomo-guilty.html?searchResultPosition=4
 
 **Biden Has Blunt Words for Republican Governors on Vaccines: ‘Get Out of the Way’**\
 `President Biden signaled a new level of frustration with Republican leaders in states where the highly contagious Delta variant is surging.`\
-https://nytimes.com/2021/08/03/us/politics/biden-covid-republican-governors.html?searchResultPosition=4
+https://nytimes.com/2021/08/03/us/politics/biden-covid-republican-governors.html?searchResultPosition=5
 
 **Biden Says Cuomo ‘Should Resign,’ as Sexual Harassment Findings Emerge**\
 `Investigators said they corroborated the claims of 11 women who accused Mr. Cuomo of inappropriate behavior, from suggestive comments to instances of groping.`\
-https://nytimes.com/2021/08/03/nyregion/cuomo-biden-sexual-harassment.html?searchResultPosition=5
+https://nytimes.com/2021/08/03/nyregion/cuomo-biden-sexual-harassment.html?searchResultPosition=6
 
 **Congress Honors Officers Who Responded to Jan. 6 Riot**\
 `The Senate voted unanimously to award the Congressional Gold Medal to the officers, during a week when officials confirmed two suicides of officers who were at the Capitol the day of the rampage.`\
-https://nytimes.com/2021/08/03/us/politics/capitol-riot-officers-honored.html?searchResultPosition=6
+https://nytimes.com/2021/08/03/us/politics/capitol-riot-officers-honored.html?searchResultPosition=7
 
 **Passenger Arrives Taped to His Seat After Assault of 3 Flight Attendants**\
 `Maxwell Berry, 22, of Norwalk, Ohio, punched a Frontier Airlines flight attendant and groped two others on a flight from Philadelphia to Miami, the authorities said.`\
-https://nytimes.com/2021/08/03/business/max-berry-frontier-airlines-flight-attendant-assault.html?searchResultPosition=7
+https://nytimes.com/2021/08/03/business/max-berry-frontier-airlines-flight-attendant-assault.html?searchResultPosition=8
 
 **How a Gecko From Africa Crossed the Atlantic Ocean**\
 `The African house gecko, one of the most widely distributed invasive reptiles in the world, may have moved with the trans-Atlantic slave trade.`\
-https://nytimes.com/2021/08/03/science/african-house-geckos.html?searchResultPosition=8
+https://nytimes.com/2021/08/03/science/african-house-geckos.html?searchResultPosition=9
 
 **Biden Tells Governors to ‘Help’ Covid Effort or ‘Get Out of the Way’**\
 `President Biden on Tuesday criticized the pandemic responses of Gov. Greg Abbott of Texas and Gov. Ron DeSantis of Florida, and urged them to drop their opposition to mask mandates.`\
-https://nytimes.com/video/us/politics/100000007903204/biden-texas-florida-coronavirus-vaccine.html?searchResultPosition=9
-
-**Cuomo Stands in a Long Line of Politicians Accused of Mistreating Women**\
-`Nearly all have faced calls to resign, and only some have heeded them. But few have faced an inquiry as expansive and public as the one into the New York governor’s actions.`\
-https://nytimes.com/2021/08/03/us/politics/cuomo-sexual-harassment-politicans.html?searchResultPosition=10
+https://nytimes.com/video/us/politics/100000007903204/biden-texas-florida-coronavirus-vaccine.html?searchResultPosition=10
 
