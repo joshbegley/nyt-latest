@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2021/08/03/podcasts/daily-summer-playlist.html?s
 https://nytimes.com/2021/08/03/business/spirit-american-airlines-cancellations.html?searchResultPosition=6
 
 **Cuomo’s lawyer compared his unwanted touching to presidents’ comforting of hurricane victims.**\
-`The governor sought to defend himself with a slide show of pictures of him kissing others on the cheek.`\
+`The lawyer used photographs of former presidents George W. Bush and Barack Obama hugging survivors of Hurricanes Katrina and Sandy to argue that the governor’s physical displays of affection were “unremarkable.”`\
 https://nytimes.com/2021/08/03/nyregion/cuomo-slideshow-bush-obama.html?searchResultPosition=7
 
 **Willie Winfield, Angelic-Voiced Doo-Wop Singer, Is Dead at 91**\
