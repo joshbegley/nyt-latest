@@ -6,8 +6,8 @@ https://nytimes.com/2021/08/03/arts/design/new-york-public-library-picture-colle
 `The center’s summertime music series has a limited outdoor run this week.`\
 https://nytimes.com/2021/08/03/arts/music/mostly-mozart-classical-music.html?searchResultPosition=2
 
-**‘I believe these 11 women’ Letitia James says, as she reveals report’s findings.**\
-`By David Goodman and Luis Ferré-Sadurní`\
+**‘I believe these 11 women,’ Letitia James says, as she reveals report’s findings.**\
+`The attorney general said the state had “an obligation to protect women in their workplace.”`\
 https://nytimes.com/2021/08/03/nyregion/letitia-james-ag.html?searchResultPosition=3
 
 **Innovation Invites Hucksters**\
