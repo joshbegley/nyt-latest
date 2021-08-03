@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000007901146/san-francisco-bay-area-mask-mandate
 https://nytimes.com/2021/08/02/us/politics/covid-pandemic-guidelines.html?searchResultPosition=3
 
 **Biden Administration to Keep Using Public Health Rule to Turn Away Migrants**\
-`Citing new concerns about the spread of the coronavirus, the administration will continue to rely for now on a Trump-era policy to block asylum seekers.`\
+`Citing new concerns about the spread of the coronavirus, the administration will continue to rely for now on a Trump-era policy.`\
 https://nytimes.com/2021/08/02/us/politics/biden-immigration-covid.html?searchResultPosition=4
 
 **Administration Seeks to Blunt Impact From End of Eviction Moratorium**\
