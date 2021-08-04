@@ -22,8 +22,8 @@ https://nytimes.com/2021/08/03/us/politics/shontel-brown-ohio-election-winner.ht
 `McLaughlin won with a time of 51.46 seconds, a new world record.`\
 https://nytimes.com/2021/08/03/sports/olympics/mclaughlin-muhammad-400-meter-hurdles.html?searchResultPosition=6
 
-**Olympic history is murky, but the youngest gold medalist could be crowned.**\
-`Kokona Hiraki, 12, and Sky Brown, 13, are vying to capture gold in park skateboard. Whether that would make the winner the youngest-ever champion involves an Olympic mystery.`\
+**The youngest gold medalist retains that title. But who is it?**\
+`Kokona Hiraki, 12, and Sky Brown, 13, won medals in park skateboard, but not golds. So who holds the record?`\
 https://nytimes.com/2021/08/03/sports/olympics/olympics-kikona-hiraki-sky-brown-skateboarding.html?searchResultPosition=7
 
 **Sydney McLaughlin and Dalilah Muhammad duel in the 400-meter hurdles.**\
