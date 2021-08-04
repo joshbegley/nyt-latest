@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/04/opinion/policy-protests-united-states.html?search
 
 **The U.S. broadcast schedule for Wednesday evening includes track and field, basketball and skateboarding.**\
 `The U.S. men’s and women’s basketball teams play games tonight as they inch closer to gold.`\
-https://nytimes.com/2021/08/04/sports/olympics/the-us-broadcast-schedule-for-wednesday-evening-includes-track-and-field-basketball-and-skateboarding.html?searchResultPosition=4
+https://nytimes.com/2021/08/04/sports/olympics/olympic-events-track-basketball-skateboarding.html?searchResultPosition=4
 
 **Col. Dave Severance, Commander at Iwo Jima, Dies at 102**\
 `He sent Marines to the top of Mount Suribachi to plant the flag. Captured in a photograph, the scene remains an enduring image of American men at war.`\
