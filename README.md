@@ -2,7 +2,7 @@
 `The latest corporate vaccine mandates cover more types of workers — and customers.`\
 https://nytimes.com/2021/08/04/business/dealbook/vaccine-mandates.html?searchResultPosition=1
 
-**The New York Times Reaches 8 Million Subscribers**\
+**The New York Times Reaches 8 Million Subscriptions**\
 `The company expects to end the year with about 8.5 million. In its quarterly results, it reported holding nearly $1 billion in cash.`\
 https://nytimes.com/2021/08/04/business/media/nyt-new-york-times-earnings-q2-2021.html?searchResultPosition=2
 
