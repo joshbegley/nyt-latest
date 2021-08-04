@@ -8,7 +8,7 @@ https://nytimes.com/2021/08/03/opinion/andrew-cuomo-resign.html?searchResultPosi
 
 **Mike Carey, Backed by Trump, Wins Republican House Primary in Ohio**\
 `Mr. Carey, an energy lobbyist, prevailed over a crowded Republican field after the former president’s endorsement shot him to front-runner status.`\
-https://nytimes.com/2021/08/03/us/politics/ohio-election.html?searchResultPosition=3
+https://nytimes.com/2021/08/03/us/politics/ohio-election-mike-carey.html?searchResultPosition=3
 
 **Climate Change Could Devastate Emperor Penguins, U.S. Officials Warn**\
 `The Fish and Wildlife Service announced a proposal on Tuesday to list the birds as a threatened species.`\
