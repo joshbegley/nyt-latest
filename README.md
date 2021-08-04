@@ -1,5 +1,5 @@
-**U.S. Blocks Fiji Fishing Boat, Citing Its Use of Forced Labor**\
-`Customs officials said that the operators of Hangton No. 112 withheld workers’ wages, kept their identity documents and subjected them to debt bondage — essentially enslaving them.`\
+**U.S. Blocks Fishing Boat From Fiji, Citing Forced Labor**\
+`The action was part of a larger Customs crackdown. Officials said the operators withheld workers’ wages, kept their identity documents and subjected them to debt bondage — essentially enslaving them.`\
 https://nytimes.com/2021/08/04/us/tuna-fish-imports-forced-labor.html?searchResultPosition=1
 
 **Booster Shots, Hurricane Season, Karate: Your Wednesday Evening Briefing**\
@@ -18,7 +18,7 @@ https://nytimes.com/2021/08/04/world/africa/abebech-gobena-dead.html?searchResul
 `The mainstreaming of digital vaccine passes could lead to more surveillance, privacy researchers cautioned.`\
 https://nytimes.com/2021/08/04/technology/new-york-city-vaccine-passport-privacy.html?searchResultPosition=5
 
-**Cori Bush Protests For Eviction Moratorium Extension**\
+**Cori Bush Protests for Eviction Moratorium Extension**\
 `Representative Cori Bush organized a sit-in on the steps of the U.S. Capitol over the weekend to demand that the Biden administration extend the eviction moratorium protecting hundreds of thousands of Americans from losing their housing.`\
 https://nytimes.com/video/us/politics/100000007905201/cori-bush-evictions-moratorium-us-capitol.html?searchResultPosition=6
 
