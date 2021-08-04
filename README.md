@@ -31,8 +31,8 @@ https://nytimes.com/2021/08/03/sports/olympics/mclaughlin-muhammad-400-meter-hur
 https://nytimes.com/2021/08/03/sports/olympics/olympics-kikona-hiraki-sky-brown-skateboarding.html?searchResultPosition=8
 
 **Sydney McLaughlin and Dalilah Muhammad duel in the 400-meter hurdles.**\
-`By Scott Cacciola`\
-https://nytimes.com/2021/08/03/sports/olympics/sydney-mclaughlin-and-dalilah-muhammad-duel-in-the-400-meter-hurdles.html?searchResultPosition=9
+`At the U.S. trials in June, McLaughlin broke Muhammad’s world record to finish first.`\
+https://nytimes.com/2021/08/03/sports/olympics/sydney-mclaughlin-dalilah-muhammad.html?searchResultPosition=9
 
 **东京奥运每日精彩瞬间：8月3日**\
 `东京奥运每日精彩瞬间：8月3日`\
