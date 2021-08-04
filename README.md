@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/03/sports/la-liga-cvc-capital-barcelona-real-madrid.
 https://nytimes.com/2021/08/03/us/politics/shontel-brown-ohio-election-winner.html?searchResultPosition=2
 
 **Sydney McLaughlin won the 400-meter hurdles, defeating the 2016 Olympic champion, Dalilah Muhammad of the U.S.**\
-`McLaughlin won with a time of 51.46, a new world record.`\
+`McLaughlin won with a time of 51.46 seconds, a new world record.`\
 https://nytimes.com/2021/08/03/sports/olympics/mclaughlin-muhammad-400-meter-hurdles.html?searchResultPosition=3
 
 **Olympic history is murky, but the youngest gold medalist could be crowned.**\
