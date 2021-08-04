@@ -1,5 +1,5 @@
 **Taliban Claim Responsibility for Major Attack in Afghan Capital**\
-`The hourslong ambush, which killed eight people, targeted a top military official’s home near Kabul’s fortified green zone.`\
+`The hourslong raid, which killed eight people, targeted a top military official’s home near Kabul’s fortified green zone.`\
 https://nytimes.com/2021/08/04/world/asia/afghanistan-kabul-taliban-attack.html?searchResultPosition=1
 
 **$500,000 Homes in New Hampshire, New Jersey and North Dakota**\
