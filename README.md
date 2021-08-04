@@ -1,6 +1,6 @@
 **The U.S. women’s basketball team routed Australia to reach the semifinals.**\
 `The United States ran its Olympic winning streak to 53 straight games.`\
-https://nytimes.com/2021/08/04/sports/olympics/us-womens-basketbal-australia.html?searchResultPosition=1
+https://nytimes.com/2021/08/04/sports/olympics/us-womens-basketball-australia.html?searchResultPosition=1
 
 **A wildfire in Greece burned dozens of homes amid a searing heat wave.**\
 `Thousands of people were forced to evacuate on Tuesday, including many who had to be rescued by firefighters.`\
