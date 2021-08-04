@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/03/opinion/andrew-cuomo-resign.html?searchResultPosi
 https://nytimes.com/2021/08/03/us/politics/ohio-election.html?searchResultPosition=2
 
 **Climate Change Could Devastate Emperor Penguins, U.S. Officials Warn**\
-`The Fish and Wildlife service announced a proposal on Tuesday to list the birds as a threatened species.`\
+`The Fish and Wildlife Service announced a proposal on Tuesday to list the birds as a threatened species.`\
 https://nytimes.com/2021/08/03/climate/emperor-penguins.html?searchResultPosition=3
 
 **Missouri Governor Pardons St. Louis Couple Who Aimed Guns at Protesters**\
