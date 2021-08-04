@@ -34,7 +34,7 @@ https://nytimes.com/2021/08/03/us/surfside-collapse-bodycam-video.html?searchRes
 `New York’s governor has lost his credibility. `\
 https://nytimes.com/2021/08/03/opinion/andrew-cuomo-resign.html?searchResultPosition=9
 
-**Mike Carey, Backed by Trump, Wins Republican House Primary in Ohio**\
-`Mr. Carey, an energy lobbyist, prevailed over a crowded Republican field after the former president’s endorsement shot him to front-runner status.`\
+**Democratic Insider and a Republican Backed by Trump Win Ohio House Races**\
+`The victories by Shontel Brown, a Democrat supported by the national establishment, and Mike Carey, a Republican endorsed by Donald Trump, provided a lift to the leadership of both parties.`\
 https://nytimes.com/2021/08/03/us/politics/ohio-election-mike-carey.html?searchResultPosition=10
 
