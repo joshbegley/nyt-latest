@@ -1,5 +1,5 @@
-**Mastermind of Moïse Killing May Still Be at Large, Haiti’s Caretaker Leader Says**\
-`Prime Minister Ariel Henry says he believes that none of the more than 40 people detained in the assassination of President Jovenel Moïse have the capacity to organize the complex plot.`\
+**Assassination Mastermind May Still Be at Large, Haiti’s Caretaker Leader Says**\
+`Prime Minister Ariel Henry says he believes that none of the more than 40 people detained in the killing of President Jovenel Moïse have the capacity to organize the complex plot.`\
 https://nytimes.com/2021/08/04/world/americas/haiti-assassination-prime-minister-ariel-henry.html?searchResultPosition=1
 
 **Your Wednesday Briefing**\
