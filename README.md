@@ -1,6 +1,6 @@
 **In String of Wins, ‘Biden Democrats’ See a Reality Check for the Left**\
 `Progressives are holding their own with moderates in fights over policy. But off-year elections suggest they need a new strategy for critiquing President Biden without seeming disloyal.`\
-https://nytimes.com/2021/08/04/us/politics/in-string-of-wins-biden-democrats-see-a-reality-check-for-the-left.html?searchResultPosition=1
+https://nytimes.com/2021/08/04/us/politics/biden-democrats.html?searchResultPosition=1
 
 **Elaine Thompson-Herah temporarily blocked from posting to Instagram after sharing videos of her races.**\
 `A spokesperson for the company said the Jamaican sprinter’s access to her account was mistakenly suspended.`\
