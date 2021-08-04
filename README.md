@@ -24,5 +24,5 @@ https://nytimes.com/2021/08/04/arts/music/offspring-drummer-coronavirus-vaccine.
 
 **Andre De Grasse wins the 200 meters, his second medal at these Games.**\
 `It’s been a busy night in the Olympic Stadium. Here are some highlights.`\
-https://nytimes.com/2021/08/04/sports/olympics/andre-degrasse-track-results-200-800-steeplechase.html?searchResultPosition=10
+https://nytimes.com/2021/08/04/sports/olympics/andre-de-grasse-track-results-200-800-steeplechase.html?searchResultPosition=10
 
