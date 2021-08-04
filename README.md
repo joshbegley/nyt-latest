@@ -1,4 +1,4 @@
-**U.S. Blocks Fishing Boat From Fiji, Citing Forced Labor**\
+**Citing Forced Labor, U.S. Blocks Fishing Boat From Fiji**\
 `The action was part of a larger Customs crackdown. Officials said the operators withheld workers’ wages, kept their identity documents and subjected them to debt bondage — essentially enslaving them.`\
 https://nytimes.com/2021/08/04/us/tuna-fish-imports-forced-labor.html?searchResultPosition=1
 
