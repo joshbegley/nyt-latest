@@ -10,7 +10,7 @@ https://nytimes.com/2021/08/05/science/squirrels-olympics-leaping.html?searchRes
 `Governor Cuomo has come to rely on a shrinking cadre of trusted advisers to guide his strategy as he faces possible impeachment over sexual harassment findings.`\
 https://nytimes.com/2021/08/05/nyregion/cuomo-accusers-retaliation.html?searchResultPosition=3
 
-**Raging Against Those Who Would Infect Our Kids**\
+**‘I Share the Anger and Rage’ Against the Unvaccinated**\
 `Readers express frustration and anger against the unvaccinated. Also: Alex Azar's turnabout; diplomacy and Afghanistan; why investment in China is a bad idea.`\
 https://nytimes.com/2021/08/05/opinion/letters/covid-schools.html?searchResultPosition=4
 
