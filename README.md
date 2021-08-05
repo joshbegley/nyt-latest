@@ -26,15 +26,15 @@ https://nytimes.com/2021/08/05/world/asia/japan-olympics-apology.html?searchResu
 `As England’s theaters welcome capacity audiences again, Ian McKellen is back in a role he first played a half-century ago.`\
 https://nytimes.com/2021/08/05/theater/ian-mckellen-hamlet.html?searchResultPosition=7
 
+**50-kilometer racewalking is striding off the Olympic stage.**\
+`By Ken Belson`\
+https://nytimes.com/2021/08/05/sports/olympics/racewalking-olympics.html?searchResultPosition=8
+
 **Return to Work? Not With Child Care Still in Limbo, Some Parents Say.**\
 `The rise of the Delta variant and the uncertainty over schools and child care are keeping these parents from applying for jobs.`\
-https://nytimes.com/2021/08/05/upshot/covid-child-care-schools.html?searchResultPosition=8
+https://nytimes.com/2021/08/05/upshot/covid-child-care-schools.html?searchResultPosition=9
 
 **‘The Threepenny Opera,’ Without the ‘Cabaret’ Clichés**\
 `Don’t expect bowler hats and dirty negligees in a new production at the Berliner Ensemble, the theater Bertolt Brecht founded.`\
-https://nytimes.com/2021/08/05/theater/threepenny-opera-berliner-ensemble-barrie-kosky.html?searchResultPosition=9
-
-**Bill Nunn’s Scouting Opened an N.F.L. Pipeline**\
-`Nunn helped turned the Steelers into a dynasty by welcoming players from historically Black colleges. As he is inducted into the Pro Football Hall of Fame the league still searches for paths to diversity.`\
-https://nytimes.com/2021/08/05/sports/bill-nunn-hall-of-fame.html?searchResultPosition=10
+https://nytimes.com/2021/08/05/theater/threepenny-opera-berliner-ensemble-barrie-kosky.html?searchResultPosition=10
 
