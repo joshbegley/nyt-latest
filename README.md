@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/05/world/middleeast/iran-president-ebrahim-raisi.html?searchResultPosition=1
 
 **U.S. men’s basketball defeats Australia and heads to the gold medal game.**\
-`The U.S. will play in the final on Saturday against an opponent not yet decided.`\
+`The U.S. will play either France or Slovenia in the final on Saturday (Friday night in the U.S.).`\
 https://nytimes.com/2021/08/05/sports/olympics/us-mens-basketball-australia-score.html?searchResultPosition=2
 
 **Ryan Crouser set an Olympic record. Then he did so again and again.**\
