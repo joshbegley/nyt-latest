@@ -19,7 +19,7 @@ https://nytimes.com/2021/08/05/business/energy-environment/sunrun-mary-powell-ce
 https://nytimes.com/video/us/politics/100000007907361/hong-kong-deportations.html?searchResultPosition=5
 
 **An Athletic Coach for the Mind?**\
-`Part counselor, part strategist, mental skills trainers have helped pro competitors wrap their minds around success for decades.`\
+`Part counselor, part strategist, mental skills trainers have helped pro competitors wrap their heads around success for decades.`\
 https://nytimes.com/2021/08/05/well/move/mental-skills-coaching-olympics.html?searchResultPosition=6
 
 **Watch Live: Biden Signs Bill Awarding Medals to Capitol Police**\
