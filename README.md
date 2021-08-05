@@ -2,13 +2,13 @@
 `Gong Lijiao, who won China’s first Olympic gold in the shot-put, was questioned on state-owned media about her life plans and whether she had a boyfriend.`\
 https://nytimes.com/2021/08/05/sports/olympics/gong-lijiao-shot-put-china.html?searchResultPosition=1
 
-**Hold on to Your Masks**\
-`Sales of face coverings have surged as the Delta variant spreads, and some designers see masks as permanent fixtures in our wardrobes.`\
-https://nytimes.com/2021/08/05/style/masks-sales-delta-variant-covid.html?searchResultPosition=2
-
 **Alarmed Louisiana Residents Turn to Vaccines in ‘Darkest Days’ of Pandemic**\
 `Louisiana is leading the nation in an explosion of new cases. Hospitals are overflowing and admitting more young people than before. But the crisis is also driving some to get vaccinated.`\
-https://nytimes.com/2021/08/05/us/louisiana-vaccines-covid-delta.html?searchResultPosition=3
+https://nytimes.com/2021/08/05/us/louisiana-vaccines-covid-delta.html?searchResultPosition=2
+
+**Hold on to Your Masks**\
+`Sales of face coverings have surged as the Delta variant spreads, and some designers see masks as permanent fixtures in our wardrobes.`\
+https://nytimes.com/2021/08/05/style/masks-sales-delta-variant-covid.html?searchResultPosition=3
 
 **Will Remote Workers Get Left Behind in the Hybrid Office?**\
 `The benefits of working from anywhere can also come with bias against those who aren’t seen around the hallways.`\
