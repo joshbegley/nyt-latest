@@ -1,40 +1,40 @@
-**Britain’s central bank is expected to raise inflation forecasts as analysts look for a stimulus exit plan.**\
-`While the British central bank isn’t expected to change its monetary policy stance on Thursday, it is likely to update its forecasts for economic growth and inflation.`\
-https://nytimes.com/2021/08/05/business/bank-of-england-inflation.html?searchResultPosition=1
+**Return to Work? Not With Child Care Still in Limbo, Some Parents Say.**\
+`The rise of the Delta variant and the uncertainty over schools and child care are keeping these parents from applying for jobs.`\
+https://nytimes.com/2021/08/05/upshot/covid-child-care-schools.html?searchResultPosition=1
 
-**GOAL! Rapinoe gets her second.**\
-`By Andrew Das`\
-https://nytimes.com/2021/08/05/sports/olympics/megan-rapinoe-goal-us-australia-soccer.html?searchResultPosition=2
+**‘The Threepenny Opera,’ Without the ‘Cabaret’ Clichés**\
+`Don’t expect bowler hats and dirty negligees in a new production at the Berliner Ensemble, the theater Bertolt Brecht founded.`\
+https://nytimes.com/2021/08/05/theater/threepenny-opera-berliner-ensemble-barrie-kosky.html?searchResultPosition=2
 
-**A Chinese gold medalist was asked about her “masculine” appearance, prompting outrage.**\
-`Gong Lijiao, who won China’s first Olympic gold in the shot-put, was questioned on state-owned media about her life plans and whether she had a boyfriend.`\
-https://nytimes.com/2021/08/05/sports/olympics/gong-lijiao-shot-put-china.html?searchResultPosition=3
+**Bill Nunn’s Scouting Opened an N.F.L. Pipeline**\
+`Nunn helped turned the Steelers into a dynasty by welcoming players from historically Black colleges. As he is inducted into the Pro Football Hall of Fame the league still searches for paths to diversity.`\
+https://nytimes.com/2021/08/05/sports/bill-nunn-hall-of-fame.html?searchResultPosition=3
 
-**Alarmed Louisiana Residents Turn to Vaccines in ‘Darkest Days’ of Pandemic**\
-`Louisiana is leading the nation in an explosion of new cases. Hospitals are overflowing and admitting more young people than before. But the crisis is also driving some to get vaccinated.`\
-https://nytimes.com/2021/08/05/us/louisiana-vaccines-covid-delta.html?searchResultPosition=4
+**Biden to Roll Out Tougher Tailpipe Rules and Promote Electric Vehicles**\
+`The president wants half of the vehicles sold in the United States to be electric by 2030, hoping to phase out gasoline-powered engines that contribute to climate change.`\
+https://nytimes.com/2021/08/05/climate/biden-tailpipe-emissions-electric-vehicles.html?searchResultPosition=4
 
-**Hold on to Your Masks**\
-`Sales of face coverings have surged as the Delta variant spreads, and some designers see masks as permanent fixtures in our wardrobes.`\
-https://nytimes.com/2021/08/05/style/masks-sales-delta-variant-covid.html?searchResultPosition=5
+**Europe’s Pandemic Aid Is Winding Down. Is Now the Best Time?**\
+`Governments want vaccinations and a business rebound to carry the economy now, but cutting aid too quickly could create economic aftershocks.`\
+https://nytimes.com/2021/08/05/business/europe-coronavirus-economy.html?searchResultPosition=5
 
-**Will Remote Workers Get Left Behind in the Hybrid Office?**\
-`The benefits of working from anywhere can also come with bias against those who aren’t seen around the hallways.`\
-https://nytimes.com/2021/08/05/business/dealbook/remote-work-bias.html?searchResultPosition=6
+**The Maldives Knows Y.O.L.O.**\
+`The island nation is positioning itself as the place to go to rediscover the beauty of travel. But it needs to convince would-be visitors that it’s more than “just a beach.”`\
+https://nytimes.com/2021/08/05/travel/the-maldives-knows-yolo.html?searchResultPosition=6
 
-**New Candidate for Top Bank Regulator Sees Risks in Crypto and Fintechs**\
-`The White House is vetting Saule Omarova, a Cornell professor, for the role of comptroller of the currency. Her work has highlighted the risks of cryptocurrency for banks.`\
-https://nytimes.com/2021/08/05/business/occ-comptroller-Saule-Omarova.html?searchResultPosition=7
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/08/05/arts/things-to-do-this-weekend.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/05/crosswords/spelling-bee-2021-08-05.html?searchResultPosition=8
+**It’s Hard Enough to Have a Child With Cancer. It Shouldn’t Crush Families Financially.**\
+`My daughter died of cancer. But I was one of the lucky ones.`\
+https://nytimes.com/2021/08/05/opinion/childhood-cancer-finance-bankruptcy.html?searchResultPosition=8
 
-**Shopping for Bathing Suits Online Is Its Own Circle of Hell**\
-`In theory, things should be easier with so many size accommodations.`\
-https://nytimes.com/2021/08/05/style/bathing-suit-shopping.html?searchResultPosition=9
+**Is the Future Just a Spike Protein Stamping on a Human Face, Forever?**\
+`The Covid endgame continues to elude us.`\
+https://nytimes.com/2021/08/05/opinion/covid-delta-vaccinated-flu.html?searchResultPosition=9
 
-**The Relay Curse Continues for the U.S. Men**\
-`The sprint relay remains a mystery that the Americans cannot solve. The team failed to advance to the finals in Tokyo.`\
-https://nytimes.com/2021/08/05/sports/olympics/us-track-mens-relay.html?searchResultPosition=10
+**Colombian Veterans Trained by the U.S. Wound Up Involved in the Haiti Plot. Here’s Why.**\
+`The country is still working toward peace. It would be tragic if it became synonymous with a land of ex-soldiers for hire.`\
+https://nytimes.com/2021/08/05/opinion/colombia-mercenaries-haiti.html?searchResultPosition=10
 
