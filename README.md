@@ -1,5 +1,5 @@
 **The Continued Fallout From the Cuomo Report**\
-`The firestorm around Gov. Andrew Cuomo intensified as three prosecutors  announced criminal investigations and key allies withdrew support.`\
+`The firestorm around Gov. Andrew Cuomo intensified as four prosecutors  announced criminal investigations and key allies withdrew support.`\
 https://nytimes.com/2021/08/05/nyregion/cuomo-report-fallout.html?searchResultPosition=1
 
 **GOAL! Lloyd gets her second, and it’s 4-1.**\
