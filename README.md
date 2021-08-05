@@ -2,7 +2,7 @@
 `A daunting number of virus cases.`\
 https://nytimes.com/2021/08/04/briefing/virus-milestone-lebanon-belarus.html?searchResultPosition=1
 
-**The U.S. fails to reach the final in the men’s 4x100-meter relay.**\
+**The U.S. bungles a baton handoff again and fails to reach the final in the men’s 4x100-meter relay.**\
 `Persistent baton trouble strikes again. The Americans placed sixth in their heat as they struggled with a handoff.`\
 https://nytimes.com/2021/08/04/sports/olympics/us-4x100-relay-olympics.html?searchResultPosition=2
 
