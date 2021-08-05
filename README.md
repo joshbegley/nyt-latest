@@ -1,6 +1,6 @@
 **To head off illegal dance parties, Ibiza calls in foreign undercover detectives.**\
 `The island’s health inspectors and the police are otherwise occupied by other tasks, an official said in explaining the hiring of outsiders.`\
-https://nytimes.com/2021/08/05/world/to-head-off-illegal-dance-parties-ibiza-calls-in-foreign-undercover-detectives.html?searchResultPosition=2
+https://nytimes.com/2021/08/05/world/dance-parties-ibiza.html?searchResultPosition=2
 
 **Cruise lines begin to impose more rules as a precaution against the Delta variant.**\
 `Most cruise lines are operating ships with at least 95 percent of passengers and crew vaccinated.`\
