@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/05/nyregion/cuomo-report-fallout.html?searchResultPo
 https://nytimes.com/2021/08/05/sports/olympics/carli-lloyd-goal-us-australia-soccer.html?searchResultPosition=2
 
 **Second Best in the World, but Still Saying Sorry**\
-`At the Tokyo Olympics, Japanese athletes who’ve fallen short of gold have apologized profusely — sometimes, even after winning silver.`\
+`At the Tokyo Olympics, Japanese athletes who fell short of gold have apologized profusely — sometimes, even after winning silver.`\
 https://nytimes.com/2021/08/05/world/asia/japan-olympics-apology.html?searchResultPosition=3
 
 **A Full House for an 82-Year-Old Hamlet**\
