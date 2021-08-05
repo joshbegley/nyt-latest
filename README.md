@@ -1,4 +1,4 @@
-**U.S. men’s basketball is in a close game with Australia at the half.**\
+**U.S. men’s basketball is in a close game with Australia in the second half.**\
 `The winner of the semifinal game will play for a gold medal.`\
 https://nytimes.com/2021/08/05/sports/olympics/us-mens-basketball-australia-score.html?searchResultPosition=1
 
