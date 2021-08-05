@@ -31,7 +31,7 @@ https://nytimes.com/2021/08/05/world/asia/japan-olympics-apology.html?searchResu
 https://nytimes.com/2021/08/05/theater/ian-mckellen-hamlet.html?searchResultPosition=8
 
 **50-kilometer racewalking is striding off the Olympic stage.**\
-`By Ken Belson`\
+`The Olympic committee decided the race does not fit with the organization’s stated mission of gender equality because it is the only event that has no approximate equivalent for women.`\
 https://nytimes.com/2021/08/05/sports/olympics/racewalking-olympics.html?searchResultPosition=9
 
 **Return to Work? Not With Child Care Still in Limbo, Some Parents Say.**\
