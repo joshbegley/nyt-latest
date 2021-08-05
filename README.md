@@ -2,7 +2,7 @@
 `James Whitfield, a Black educator, said he was asked by his school district in 2019 to remove Facebook photos of himself and his wife, who is white, embracing on a beach.`\
 https://nytimes.com/2021/08/05/us/colleyville-hs-principal-beach-photos.html?searchResultPosition=1
 
-**Video Shows the Scene of Deadly Van Crash in Texas**\
+**Video Shows Scene of Deadly Van Crash in Texas**\
 `At least 10 people died when a van carrying more than two dozen passengers believed to be migrants crashed on Wednesday in South Texas about 80 miles north of the Mexico border`\
 https://nytimes.com/video/us/100000007906545/south-texas-highway-van-crash-encino-migrants-us-mexico-border.html?searchResultPosition=2
 
