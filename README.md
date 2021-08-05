@@ -2,8 +2,8 @@
 `Iran’s system of government is neither the democracy it claims nor the monolithic theocracy portrayed by critics. The president does have real powers but is subservient to an “ultimate authority.”`\
 https://nytimes.com/2021/08/05/world/middleeast/iran-president-ebrahim-raisi.html?searchResultPosition=1
 
-**U.S. men’s basketball pulls away from Australia in the second half.**\
-`The winner of the semifinal game will play for a gold medal.`\
+**U.S. men’s basketball defeats Australia and heads to the gold medal game.**\
+`The U.S. will play in the final on Saturday against an opponent not yet decided.`\
 https://nytimes.com/2021/08/05/sports/olympics/us-mens-basketball-australia-score.html?searchResultPosition=2
 
 **Ryan Crouser set an Olympic record. Then he did so again and again.**\
