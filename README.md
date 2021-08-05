@@ -20,7 +20,7 @@ https://nytimes.com/2021/08/05/movies/gotham-awards-gender-acting-categories.htm
 
 **Richard Trumka, A.F.L.-C.I.O. Chief, Dies at 72**\
 `A third-generation coal miner from Pennsylvania, he had led the labor federation since 2009.`\
-https://nytimes.com/2021/08/05/business/richard-trumka-dead.html?searchResultPosition=6
+https://nytimes.com/2021/08/05/obituaries/richard-trumka-dead.html?searchResultPosition=6
 
 **Baltimore Symphony Fires Flutist Who Shared Covid Conspiracy Theories**\
 `The musician, Emily Skala, who shared misinformation on social media, has vowed to challenge her dismissal.`\
