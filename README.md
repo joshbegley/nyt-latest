@@ -8,7 +8,7 @@ https://nytimes.com/2021/08/05/theater/pass-over-broadway-reopens.html?searchRes
 
 **Lightning Strike Kills 17 in Wedding Party in Bangladesh**\
 `More than a dozen people were injured, including the groom. The group was on its way to the bride’s house in a boat when the lightning struck.`\
-https://nytimes.com/2021/08/04/world/asia/bangladesh-lightning-wedding.html?searchResultPosition=3
+https://nytimes.com/2021/08/05/world/asia/bangladesh-lightning-wedding.html?searchResultPosition=3
 
 **Your Thursday Briefing**\
 `A daunting number of virus cases.`\
