@@ -1,40 +1,40 @@
+**Court Documents Identify Sailor Charged With Arson in Fire That Destroyed Ship**\
+`The sailor, Ryan Sawyer Mays, who holds the rank of seaman apprentice, is accused of starting one of the worst fires to engulf an American warship outside combat.`\
+https://nytimes.com/2021/08/04/us/politics/ryan-sawyer-mays-bonhomme-richard.html?searchResultPosition=1
+
 **The New Skaters of New York**\
 `As skateboarding's appeal has grown in the city during the pandemic, an inclusive community of skaters has become more visible.`\
-https://nytimes.com/interactive/2021/08/04/nyregion/new-york-skaters.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/08/04/nyregion/new-york-skaters.html?searchResultPosition=2
 
 **10 Killed in Crash of Packed Van in South Texas**\
 `The vehicle was carrying 30 people believed to be migrants in Brooks County, about 80 miles north of the Mexico border, the authorities said.`\
-https://nytimes.com/2021/08/04/us/texas-border-migrant-crash.html?searchResultPosition=2
+https://nytimes.com/2021/08/04/us/texas-border-migrant-crash.html?searchResultPosition=3
 
 **Biden Administration Planning to Require Foreign Travelers to Be Vaccinated**\
 `The plan is part of a new system to be put in place after the current restrictions on travel into the country are lifted, but officials have yet to determine when that might be done.`\
-https://nytimes.com/2021/08/04/us/politics/biden-foreign-travelers-vaccination.html?searchResultPosition=3
+https://nytimes.com/2021/08/04/us/politics/biden-foreign-travelers-vaccination.html?searchResultPosition=4
 
 **Comedian Amber Ruffin asks athletes, ‘Do you know you did an amazing job?’**\
 `Ruffin, who hosts her own show on Peacock, has added a twist to athletes’ post-match interviews.`\
-https://nytimes.com/2021/08/04/sports/olympics/comedian-amber-ruffin-tokyo-olympics.html?searchResultPosition=4
+https://nytimes.com/2021/08/04/sports/olympics/comedian-amber-ruffin-tokyo-olympics.html?searchResultPosition=5
 
 **Debate Over Presidential War Powers Sets Up Test for a Divided G.O.P.**\
 `A growing bipartisan consensus to repeal decades-old military authorizations is driven partly by a shift among Republicans toward Donald J. Trump’s “America First” approach.`\
-https://nytimes.com/2021/08/04/us/politics/republicans-war-powers.html?searchResultPosition=5
+https://nytimes.com/2021/08/04/us/politics/republicans-war-powers.html?searchResultPosition=6
 
 **What Makes Cuomo So Grabby?**\
 `The non-grabby Cuomo doesn’t look good, either.`\
-https://nytimes.com/2021/08/04/opinion/cuomo-guilty-harassment.html?searchResultPosition=6
+https://nytimes.com/2021/08/04/opinion/cuomo-guilty-harassment.html?searchResultPosition=7
 
 **As Infrastructure Bill Inches Forth, a Rocky, Slow Path Awaits in the House**\
 `Progressives have not ruled out reopening the deal that senators are painstakingly putting together, and they do not intend to take it up for months, until after their other priorities are addressed.`\
-https://nytimes.com/2021/08/04/us/politics/infrastructure-bill.html?searchResultPosition=7
+https://nytimes.com/2021/08/04/us/politics/infrastructure-bill.html?searchResultPosition=8
 
 **In String of Wins, ‘Biden Democrats’ See a Reality Check for the Left**\
 `Progressives are holding their own with moderates in fights over policy. But off-year elections suggest they need a new strategy for critiquing President Biden without seeming disloyal.`\
-https://nytimes.com/2021/08/04/us/politics/biden-democrats.html?searchResultPosition=8
+https://nytimes.com/2021/08/04/us/politics/biden-democrats.html?searchResultPosition=9
 
 **Elaine Thompson-Herah temporarily blocked from posting to Instagram after sharing videos of her races.**\
 `A spokesperson for the company said the Jamaican sprinter’s access to her account was mistakenly suspended.`\
-https://nytimes.com/2021/08/04/sports/olympics/elaine-thompson-herah-instagram-jamaica-olympics.html?searchResultPosition=9
-
-**The Abandonment of Andrew Cuomo: Unions, Party Leaders and Deep Allies**\
-`The governor has suffered consequential defections from core constituencies, including labor, white suburban lawmakers and Black political leaders.`\
-https://nytimes.com/2021/08/04/nyregion/cuomo-supporters.html?searchResultPosition=10
+https://nytimes.com/2021/08/04/sports/olympics/elaine-thompson-herah-instagram-jamaica-olympics.html?searchResultPosition=10
 
