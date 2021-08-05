@@ -16,9 +16,9 @@ https://nytimes.com/2021/08/05/science/squirrels-olympics-leaping.html?searchRes
 
 **Inside Andrew Cuomo’s Retaliation Machine**\
 `Governor Cuomo has come to rely on a shrinking cadre of trusted advisers to guide his strategy as he faces possible impeachment over sexual harassment findings.`\
-https://nytimes.com/2021/08/05/nyregion/cuomo-accusers-retaliation.html?searchResultPosition=5
+https://nytimes.com/2021/08/05/nyregion/cuomo-accusers-alphonso-david-roberta-kaplan.html?searchResultPosition=5
 
-**‘I Share the Anger and Rage’ Against the Unvaccinated**\
+**‘I Share the Anger and Rage’ Against Those Putting Our Kids at Risk**\
 `Readers express frustration and anger against the unvaccinated. Also: Alex Azar's turnabout; diplomacy and Afghanistan; why investment in China is a bad idea.`\
 https://nytimes.com/2021/08/05/opinion/letters/covid-schools.html?searchResultPosition=6
 
