@@ -10,31 +10,31 @@ https://nytimes.com/2021/08/06/podcasts/dan-brown-tokyo-olympics-amazon-narrated
 `Requiring shots can be complicated, particularly for small businesses. An eyewear company in the Bronx has tried to persuade  its workers.`\
 https://nytimes.com/2021/08/06/nyregion/the-challenges-of-getting-employees-vaccinated.html?searchResultPosition=3
 
+**Biting your own medal is one thing. A Japanese mayor learned you don’t bite someone else’s.**\
+`The mayor of Nagoya, Japan, apologized for a gesture that some called insulting and unhygienic amid the coronavirus pandemic.`\
+https://nytimes.com/2021/08/06/sports/olympics/medal-bite-mayor-japan.html?searchResultPosition=4
+
 **After the Dixie Fire turned a California town into ‘a wasteland,’ nearby residents cling to hope.**\
 `We’re on top of the latest extreme weather in the U.S. and around the world. Follow here for news on heat waves, wildfires, floods and more.`\
-https://nytimes.com/2021/08/06/us/dixie-fire-greenville-california.html?searchResultPosition=4
+https://nytimes.com/2021/08/06/us/dixie-fire-greenville-california.html?searchResultPosition=5
 
 **Australian Man to Be Charged in Parliament House Rape Case**\
 `Brittany Higgins had sent shock waves through the country when she said she was attacked by a co-worker in 2019.`\
-https://nytimes.com/2021/08/06/world/australia/brittany-higgins-rape-parliament.html?searchResultPosition=5
+https://nytimes.com/2021/08/06/world/australia/brittany-higgins-rape-parliament.html?searchResultPosition=6
 
 **Hiroshi Sugimoto’s Jekyll and Hyde Year**\
 `The artist famous for his riddling photos has turned to old-fashioned function and grace in his design for the Hirshhorn Sculpture Garden. So why doesn’t Washington love it?`\
-https://nytimes.com/2021/08/06/arts/design/hiroshi-sugimoto-hirshhorn.html?searchResultPosition=6
+https://nytimes.com/2021/08/06/arts/design/hiroshi-sugimoto-hirshhorn.html?searchResultPosition=7
 
 **How the Owner of a 24/7 Diner Spends Her Sundays**\
 `Irene Siderakis feeds New Yorkers all day at work, then comes home and provides dinner for her four adolescent sons.`\
-https://nytimes.com/2021/08/06/nyregion/kelloggs-diner-williamsburg.html?searchResultPosition=7
+https://nytimes.com/2021/08/06/nyregion/kelloggs-diner-williamsburg.html?searchResultPosition=8
 
 **Together for Each Other in Sickness, Health and New Locks**\
 `Brittany Muszynski, a breast cancer survivor, met Mickey Majzik at the altar in a lace mermaid gown and a wig donated by the New Jersey foundation Wigs & Wishes.`\
-https://nytimes.com/2021/08/06/fashion/weddings/brittany-muszynski-mickey-majzik-wedding.html?searchResultPosition=8
+https://nytimes.com/2021/08/06/fashion/weddings/brittany-muszynski-mickey-majzik-wedding.html?searchResultPosition=9
 
 **How a Daddy Longlegs Grows Such Strange Legs**\
 `Scientists have identified genes that make a harvestman arachnid’s appendages able to twirl like a monkey’s tail.`\
-https://nytimes.com/2021/08/06/science/daddy-long-legs-genes.html?searchResultPosition=9
-
-**Biden Administration Is Still Struggling to Care for Migrant Children**\
-`Conditions at shelters housing unaccompanied minors apprehended at the border have improved since early spring but are still drawing harsh criticism.`\
-https://nytimes.com/2021/08/06/us/politics/migrant-children-shelters.html?searchResultPosition=10
+https://nytimes.com/2021/08/06/science/daddy-long-legs-genes.html?searchResultPosition=10
 
