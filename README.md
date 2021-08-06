@@ -1,5 +1,5 @@
-**A Covid Surge in Florida Challenges Gov. Ron DeSantis, Again**\
-`A virus spike connected to the Delta variant has led to a record number of Covid-19 hospitalizations in Florida. Gov. Ron DeSantis has stayed the course, for better or worse.`\
+**As Covid Surges in Florida, DeSantis Refuses to Change Course**\
+`A virus spike connected to the Delta variant has led to a record number of Covid-19 hospitalizations in Florida. Gov. Ron DeSantis has not altered his approach, for better or worse.`\
 https://nytimes.com/2021/08/06/us/ron-desantis-florida-covid.html?searchResultPosition=1
 
 **Paul Cotton, Mainstay of the Country-Rock Band Poco, Dies at 78**\
