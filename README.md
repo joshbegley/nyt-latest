@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2021/08/06/movies/watching-music-documentaries.h
 
 **The Labor Movement Can’t Rest on Its Laurels**\
 `Richard Trumka, the late leader of the A.F.L.-C.I.O., breathed life into the American labor movement. But the road ahead is ominous.`\
-https://nytimes.com/2021/08/06/opinion/the-labor-movement-cant-rest-on-its-laurels.html?searchResultPosition=2
+https://nytimes.com/2021/08/06/opinion/union-labor-richard-trumka.html?searchResultPosition=2
 
 **The Gloriously Versatile Plantain**\
 `Every starch has its secrets. Here’s what makes plantains so exceptional.`\
