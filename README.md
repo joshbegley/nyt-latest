@@ -6,7 +6,7 @@ https://nytimes.com/2021/08/06/movies/chernobyl-1986-netflix.html?searchResultPo
 `Felix has matched Carl Lewis as the most decorated American athlete in track and field.`\
 https://nytimes.com/2021/08/06/sports/olympics/allyson-felix-tenth-olympic-medal-shaunae-miller-uibo.html?searchResultPosition=2
 
-**Hezbollah Fires Rockets at Israel, Risking Broader Escalation**\
+**Hezbollah Fires Rockets at Israel as Risk of Escalation Looms**\
 `Tensions between Israel and Iran and its Hezbollah allies intensified on Friday, even as both sides signaled they had no interest in an all-out war.`\
 https://nytimes.com/2021/08/06/world/middleeast/israel-lebanon-rockets.html?searchResultPosition=3
 
