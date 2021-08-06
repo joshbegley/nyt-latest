@@ -22,8 +22,8 @@ https://nytimes.com/2021/08/05/us/politics/infrastructure-bill.html?searchResult
 `President Biden signed a bill giving the Congressional Gold Medal to a group of law enforcement officers who defended the Capitol during the insurrection on Jan. 6 .`\
 https://nytimes.com/video/us/politics/100000007907843/biden-congressional-gold-medals.html?searchResultPosition=6
 
-**Virgin Galactic Is Raising the Price of a Ticket to Fly to Space**\
-`For a few minutes of weightlessness, customers will now have to pay at least $450,000, and they may have to wait awhile to fly.`\
+**A Ride to Space on Virgin Galactic? That’ll Be $450,000, Please.**\
+`The cost of a few minutes of weightlessness for new customers will be much higher than earlier prices, and they may have to wait awhile to fly.`\
 https://nytimes.com/2021/08/05/science/virgin-galactic-ticket-price.html?searchResultPosition=7
 
 **As Taliban Advance, Biden Officials Cling to Hope for Afghan Peace**\
