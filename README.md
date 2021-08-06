@@ -22,19 +22,19 @@ https://nytimes.com/2021/08/06/upshot/jobs-report-strong.html?searchResultPositi
 `Zaranj, on the Afghanistan-Iran border, was the first provincial capital to be captured by the insurgents since the Biden administration said it would completely withdraw U.S. troops from Afghanistan.`\
 https://nytimes.com/2021/08/06/world/asia/taliban-afghanistan-capital-zaranj.html?searchResultPosition=6
 
+**Jamaica wins the women’s 4x100-meter relay easily, while Italy stuns the men’s field.**\
+`Jamaica’s victory was expected. Italy’s was not.`\
+https://nytimes.com/2021/08/06/sports/olympics/4x100-meter-relay-jamaica-italy.html?searchResultPosition=7
+
 **‘Million Dollar Listing’ Agent Has His Own New Listing**\
 `Steve Gold of the Corcoran Group is selling his fully renovated loft on Wooster Street in SoHo. The asking price is $9.995 million.`\
-https://nytimes.com/2021/08/06/realestate/steve-gold-soho-loft-sale.html?searchResultPosition=7
+https://nytimes.com/2021/08/06/realestate/steve-gold-soho-loft-sale.html?searchResultPosition=8
 
 **A Top-to-Bottom Renovation in SoHo**\
 `A “Million Dollar Listing” agent has his own new listing.`\
-https://nytimes.com/slideshow/2021/08/06/realestate/a-top-to-bottom-renovation-in-soho.html?searchResultPosition=8
+https://nytimes.com/slideshow/2021/08/06/realestate/a-top-to-bottom-renovation-in-soho.html?searchResultPosition=9
 
 **Otelo Saraiva de Carvalho, 84, Dies; Key Figure in Portugal Revolt**\
 `He became a national hero in the 1974 “Carnation Revolution,” which ousted a dictatorship. But he later landed in prison for links to a terrorist group.`\
-https://nytimes.com/2021/08/06/world/europe/otelo-saraiva-de-carvalho-dead.html?searchResultPosition=9
-
-**Student-Athletes Can Now Earn Money. Here Are the Pitfalls.**\
-`College athletes have limited life experience and financial expertise, which makes them ripe for being taken advantage of, wealth advisers say.`\
-https://nytimes.com/2021/08/06/your-money/student-athletes-endorsements.html?searchResultPosition=10
+https://nytimes.com/2021/08/06/world/europe/otelo-saraiva-de-carvalho-dead.html?searchResultPosition=10
 
