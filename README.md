@@ -1,40 +1,40 @@
-**Huawei’s sales tumble as phone buyers flee the Chinese giant.**\
-`U.S. sanctions contributed to a nearly 30 percent fall in overall revenue over the first half of the year.`\
-https://nytimes.com/2021/08/06/technology/huaweis-sales-tumble-as-phone-buyers-flee-the-chinese-giant.html?searchResultPosition=1
+**Hiroshi Sugimoto’s Jekyll and Hyde Year**\
+`The artist famous for his riddling photos has turned to old-fashioned function and grace in his design for the Hirshhorn Sculpture Garden. So why doesn’t Washington love it?`\
+https://nytimes.com/2021/08/06/arts/design/hiroshi-sugimoto-hirshhorn.html?searchResultPosition=1
 
-**Reimagining Our Relationship With Nature Through Art**\
-`One Australian artist gives us a glimpse into a kinder, more caring world.`\
-https://nytimes.com/2021/08/06/world/australia/reimagining-our-relationship-with-nature-through-art.html?searchResultPosition=2
+**How the Owner of a 24/7 Diner Spends Her Sundays**\
+`Irene Siderakis feeds New Yorkers all day at work, then comes home and provides dinner for her four adolescent sons.`\
+https://nytimes.com/2021/08/06/nyregion/kelloggs-diner-williamsburg.html?searchResultPosition=2
 
-**In Qatar, the Olympic Team (Like Much Else) Is Mostly Imported**\
-`The small Gulf country, most of whose residents are foreign workers, has looked beyond its borders for athletes, too.`\
-https://nytimes.com/2021/08/06/world/asia/qatar-olympics-athletes.html?searchResultPosition=3
+**Together for Each Other in Sickness, Health and New Locks**\
+`Brittany Muszynski, a breast cancer survivor, met Mickey Majzik at the altar in a lace mermaid gown and a wig donated by the New Jersey foundation Wigs & Wishes.`\
+https://nytimes.com/2021/08/06/fashion/weddings/brittany-muszynski-mickey-majzik-wedding.html?searchResultPosition=3
 
-**No Work, No Food: Pandemic Deepens Global Hunger**\
-`Relentless waves of the virus, combined with crises caused by conflict and climate change, have left tens of millions of people around the world on the brink of famine.`\
-https://nytimes.com/2021/08/06/world/africa/covid-19-global-hunger.html?searchResultPosition=4
+**How a Daddy Longlegs Grows Such Strange Legs**\
+`Scientists have identified genes that make a harvestman arachnid’s appendages able to twirl like a monkey’s tail.`\
+https://nytimes.com/2021/08/06/science/daddy-long-legs-genes.html?searchResultPosition=4
 
-**How Biden’s E.V. Plan Could Help Tesla and Squeeze Toyota**\
-`A push to increase sales of electric vehicles favors companies that already have all-electric cars on the market and could penalize those that don’t.`\
-https://nytimes.com/2021/08/06/business/biden-electric-vehicles-automakers.html?searchResultPosition=5
+**Biden Administration Is Still Struggling to Care for Migrant Children**\
+`Conditions at shelters housing unaccompanied minors apprehended at the border have improved since early spring but are still drawing harsh criticism.`\
+https://nytimes.com/2021/08/06/us/politics/migrant-children-shelters.html?searchResultPosition=5
 
-**Inside One Company’s Struggle to Get All Its Employees Vaccinated**\
-`At an optical business in New York City, it took months of coaxing, a cash bonus and a weekly testing mandate to persuade 90 percent of the staff to get a coronavirus vaccine.`\
-https://nytimes.com/2021/08/06/nyregion/nyc-store-employee-vaccination.html?searchResultPosition=6
+**The Unvaccinated Are Not Unreachable**\
+` “Sometimes you have to make it too convenient so that people can’t say no.”`\
+https://nytimes.com/2021/08/06/opinion/covid-delta-vaccines-unvaccinated.html?searchResultPosition=6
 
-**The Unsettling Music That Drives Artistic Swimming**\
-`At the Tokyo Games, the music selected by artistic swimming teams often was better suited to a horror movie than to a symphony matinee.`\
-https://nytimes.com/interactive/2021/08/06/sports/olympics/synchronized-swimming-music.html?searchResultPosition=7
+**The Mascot Whisperer**\
+`Dave Raymond practically invented the modern sports mascot. And over four decades, he has built a career on helping pro teams bring them to life.`\
+https://nytimes.com/2021/08/06/magazine/mascots-gritty-phillie-phanatic.html?searchResultPosition=7
 
-**U.S. Business Groups Urge Biden to Restart China Trade Talks**\
-`A letter from influential industry organizations asked the White House to resume negotiations on tariffs and other measures that stalled during a bruising trade war.`\
-https://nytimes.com/2021/08/06/business/economy/biden-china-trade.html?searchResultPosition=8
+**Hidden Bias in the Wedding Industrial Complex**\
+`The barriers that keep contractors from getting hired for parties are an open secret in the events industry.`\
+https://nytimes.com/2021/08/06/style/wedding-venues-vendor-lists.html?searchResultPosition=8
 
-**Soccer and track and field lead a busy morning of U.S. broadcast coverage.**\
-`Highlights include the gold medal game in women’s soccer, along with the U.S. sprinter Allyson Felix’s attempt at a 10th Olympic medal.`\
-https://nytimes.com/2021/08/06/sports/olympics/olympics-allyson-felix-gold-medal-soccer.html?searchResultPosition=9
+**An Obstacle to Amtrak Expansion That Money Won’t Solve**\
+`Amtrak and freight rail companies have long clashed over the use of railroad tracks, a dispute that is now playing out along the Gulf Coast, where the agency is seeking to restore service.`\
+https://nytimes.com/2021/08/06/us/politics/amtrak-expansion-freight.html?searchResultPosition=9
 
-**U.S. women’s basketball rolls past Serbia and will play in the gold medal game.**\
-`The U.S. will make its 11th appearance in the final against either France or Japan.`\
-https://nytimes.com/2021/08/06/sports/olympics/serbia-us-womens-basketball-olympics.html?searchResultPosition=10
+**‘If He Doesn’t Have That Stroke, He’s in the Hall of Fame’**\
+`For five seasons in the late 1970s, J.R. Richard of the Houston Astros was as intimidating as any pitcher before or since. His legacy is the reverence of the batters who faced him.`\
+https://nytimes.com/2021/08/06/sports/baseball/jr-richard-astros.html?searchResultPosition=10
 
