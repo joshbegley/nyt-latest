@@ -1,5 +1,5 @@
 **Democrats Eye Budget to Force Policy Changes, Testing Bounds of the Rules**\
-`Parties leaders plan to include top priorities like immigration and labor policies in their budget plan in a bid to get them past Republican opposition.`\
+`Party leaders plan to include top priorities like immigration and labor policies in their budget plan in a bid to get them past Republican opposition.`\
 https://nytimes.com/2021/08/06/us/politics/democrats-budget.html?searchResultPosition=1
 
 **A British BMX racer’s historic gold required a little financial help from her friends.**\
