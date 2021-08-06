@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/06/business/economy/biden-china-trade.html?searchRes
 https://nytimes.com/2021/08/06/sports/olympics/olympics-allyson-felix-gold-medal-soccer.html?searchResultPosition=2
 
 **The U.S. women lead Serbia by 18 at halftime.**\
-`The winner goes to the gold medal game.`\
+`The winner goes to the gold medal game on Sunday.`\
 https://nytimes.com/2021/08/06/sports/olympics/serbia-us-womens-basketball-olympics.html?searchResultPosition=3
 
 **Corrections: Aug. 6, 2021**\
