@@ -30,7 +30,7 @@ https://nytimes.com/2021/08/06/nyregion/the-challenges-of-getting-employees-vacc
 `The mayor of Nagoya, Japan, apologized for a gesture that some called insulting and unhygienic amid the coronavirus pandemic.`\
 https://nytimes.com/2021/08/06/sports/olympics/medal-bite-mayor-japan.html?searchResultPosition=8
 
-**After the Dixie Fire turned a California town into ‘a wasteland,’ nearby residents cling to hope.**\
+**‘There is nothing left’: After a town is wiped out, wildfires threaten more of California.**\
 `We’re on top of the latest extreme weather in the U.S. and around the world. Follow here for news on heat waves, wildfires, floods and more.`\
 https://nytimes.com/2021/08/06/us/dixie-fire-greenville-california.html?searchResultPosition=9
 
