@@ -1,4 +1,4 @@
-**Plane Crash in Alaska Kills 6 people**\
+**Plane Crash in Alaska Kills 6 People**\
 `Five of the six people on the small aircraft had been traveling on a Holland America Line cruise, the company said in a statement.`\
 https://nytimes.com/2021/08/06/us/alaska-plane-crash.html?searchResultPosition=1
 
