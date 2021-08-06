@@ -10,7 +10,7 @@ https://nytimes.com/2021/08/06/health/covid-vaccine-reinfection.html?searchResul
 `Quick and daring with New York City Ballet, she was a favorite of its leader, who would throw her into a role sometimes with barely a rehearsal.`\
 https://nytimes.com/2021/08/06/arts/dance/patricia-wilde-dead.html?searchResultPosition=3
 
-**The Biden administration extends the student loan payment pause.**\
+**Biden administration extends a student loan payment pause.**\
 `The Education Department said that it would be the “final extension” of the moratorium.`\
 https://nytimes.com/2021/08/06/us/politics/biden-student-loan-repayment-extension.html?searchResultPosition=4
 
