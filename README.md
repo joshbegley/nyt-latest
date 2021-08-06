@@ -1,5 +1,5 @@
 **This Is the Job Market We’ve Been Waiting For**\
-`The new monthly numbers show that employers and workers are connecting with each other at a pace not seen in recoveries from the previous three recessions.`\
+`The new monthly numbers show job growth not seen in recoveries from the previous three recessions.`\
 https://nytimes.com/2021/08/06/upshot/jobs-report-strong.html?searchResultPosition=1
 
 **Taliban Capture Afghan Provincial Capital in a Symbolic Victory**\
