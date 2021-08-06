@@ -22,13 +22,13 @@ https://nytimes.com/2021/08/06/podcasts/transcript-ezra-klein-interviews-celine-
 `Ms. Banes, a film, theater and television actress who appeared in the thriller “Gone Girl,” died on June 14, days after she was struck by a man riding a scooter as she crossed the street in Manhattan.`\
 https://nytimes.com/2021/08/06/nyregion/lisa-banes-gone-girl-brian-boyd-charged.html?searchResultPosition=6
 
-**‘Reservation Dogs’ Uses Humor, Not Magic, to Conjure Native Culture**\
-`This new dark comedy, created by Sterlin Harjo and Taika Waititi, upends the usual Hollywood clichés about Native Americans, not least by having Native writers and actors tell the story.`\
-https://nytimes.com/2021/08/06/arts/television/reservation-dogs.html?searchResultPosition=7
-
 **Meet Polka-Dot Man and Other Characters From ‘The Suicide Squad’**\
 `A look at the film’s supervillain characters and their origins in the comics.`\
-https://nytimes.com/2021/08/06/movies/the-suicide-squad-characters.html?searchResultPosition=8
+https://nytimes.com/2021/08/06/movies/the-suicide-squad-characters.html?searchResultPosition=7
+
+**‘Reservation Dogs’ Uses Humor, Not Magic, to Conjure Native Culture**\
+`This new dark comedy, created by Sterlin Harjo and Taika Waititi, upends the usual Hollywood clichés about Native Americans, not least by having Native writers and actors tell the story.`\
+https://nytimes.com/2021/08/06/arts/television/reservation-dogs.html?searchResultPosition=8
 
 **This Is the Job Market We’ve Been Waiting For**\
 `The new monthly numbers show job growth not seen in recoveries from the previous three recessions.`\
