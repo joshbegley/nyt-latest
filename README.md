@@ -10,7 +10,7 @@ https://nytimes.com/2021/08/06/business/economy/biden-china-trade.html?searchRes
 `Highlights include the gold medal game in women’s soccer, along with the U.S. sprinter Allyson Felix’s attempt at a 10th Olympic medal.`\
 https://nytimes.com/2021/08/06/sports/olympics/olympics-allyson-felix-gold-medal-soccer.html?searchResultPosition=3
 
-**U.S. women’s basketball rolls past Serbia and will play in the gold medal game.**\
+**The U.S. women’s basketball team rolls past Serbia to reach the gold medal game.**\
 `The U.S. will make its 11th appearance in the final against either France or Japan.`\
 https://nytimes.com/2021/08/06/sports/olympics/serbia-us-womens-basketball-olympics.html?searchResultPosition=4
 
