@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/07/sports/olympics/jessica-springsteen-silver-medal-
 `The company’s unresolved legal troubles cast a shadow on its I.P.O. rebound.`\
 https://nytimes.com/2021/08/07/business/dealbook/robinhood-legal-issues.html?searchResultPosition=4
 
-**The Most Notable “Firsts” From the Olympics**\
+**The Most Notable 'Firsts' From the Olympics**\
 `As the Tokyo Games wind down, we look back on some memorable debuts and victories.`\
 https://nytimes.com/interactive/2021/08/07/sports/olympics/tokyo-2020-firsts.html?searchResultPosition=5
 
