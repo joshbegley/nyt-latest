@@ -1,6 +1,6 @@
 **What to Watch When the U.S. Women’s Basketball Team Plays Japan for Gold**\
 `The American women have been dominant on this stage — they haven’t lost an Olympic game since 1992.`\
-https://nytimes.com/2021/08/07/sports/olympics/what-to-watch-when-the-us-womens-basketball-team-plays-japan-for-gold.html?searchResultPosition=1
+https://nytimes.com/2021/08/07/sports/olympics/how-to-watch-womens-basketball-gold-medal.html?searchResultPosition=1
 
 **Allyson Felix wins her 11th Olympic medal, surpassing Carl Lewis’s American record.**\
 `She is now the most decorated American Olympian in track and field after she and the U.S. team won the women’s 4x400-meter relay.`\
