@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/07/world/europe/greece-turkey-fires-ferry.html?searc
 https://nytimes.com/2021/08/07/sports/olympics/brazil-spain-soccer-gold-medal.html?searchResultPosition=2
 
 **The Quislings of Albany**\
-`Cuomo time's up.`\
+`Cuomo, time's up.`\
 https://nytimes.com/2021/08/07/opinion/sunday/andrew-cuomo-melissa-derosa.html?searchResultPosition=3
 
 **What to Do With Our Covid Rage**\
