@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2021/08/06/sports/olympics/tokyo-olympics-highli
 `The runners best able to handle the brutal conditions prevailed. Peres Jepchirchir of Kenya won the race, with Brigid Kosgei taking silver and Molly Seidel winning bronze in her third-ever marathon.`\
 https://nytimes.com/2021/08/06/sports/olympics/molly-seidel-kenya-womens-marathon-olympics.html?searchResultPosition=9
 
-**Jon Lindbergh, Aviator’s Son Who Took to the Sea, Dies at 88**\
-`Family triumph (Charles Lindbergh’s trans-Atlantic flight) and tragedy (the kidnapping “crime of the century”) shaped his early life, but he made his mark in the depths.`\
-https://nytimes.com/2021/08/06/us/jon-lindbergh-dead.html?searchResultPosition=10
+**The United States and France battle for the gold medal in men’s basketball.**\
+`By Andrew Keh`\
+https://nytimes.com/2021/08/06/sports/olympics/the-united-states-and-france-battle-for-the-gold-medal-in-mens-basketball.html?searchResultPosition=10
 
