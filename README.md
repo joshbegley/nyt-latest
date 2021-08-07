@@ -20,7 +20,7 @@ https://nytimes.com/2021/08/07/opinion/Susan-Stanton-transgender-forgiveness.htm
 
 **For G.O.P., Infrastructure Bill Is a Chance to Inch Away from Trump**\
 `The former president’s efforts to bring down the bipartisan deal fell mostly on deaf ears among Republicans, signaling his waning influence on Capitol Hill. Can it last?`\
-https://nytimes.com/2021/08/07/us/politics/for-gop-infrastructure-bill-is-a-chance-to-inch-away-from-trump.html?searchResultPosition=6
+https://nytimes.com/2021/08/07/us/politics/republicans-infrastructure-bill.html?searchResultPosition=6
 
 **How Cuomo Took Advantage of #MeToo**\
 `When a movement swept the world, the New York governor cast himself as its champion. But even as he signed protections and surrounded himself with feminists, he was committing fresh offenses, according to a new report.`\
