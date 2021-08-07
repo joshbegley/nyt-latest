@@ -1,6 +1,6 @@
 **Former Acting Attorney General Testifies About Trump’s Efforts to Subvert Election**\
 `The testimony highlights the former president’s desire to batter the Justice Department into advancing his personal agenda.`\
-https://nytimes.com/2021/08/07/us/politics/former-acting-attorney-general-testifies-about-trumps-efforts-to-subvert-election.html?searchResultPosition=1
+https://nytimes.com/2021/08/07/us/politics/jeffrey-rosen-trump-election.html?searchResultPosition=1
 
 **Gareth Hughes, Sports Producer With a Human Touch, Dies at 41**\
 `A multiple Emmy winner, he created a specialty in crafting “teases,” short videos that precede major events like the Masters and N.F.L. playoff games.`\
