@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/07/crosswords/variety-cryptic-crossword.html?searchR
 https://nytimes.com/2021/08/07/world/europe/greece-turkey-fires-ferry.html?searchResultPosition=2
 
 **Brazil beats Spain in extra time to repeat as the Olympic men’s soccer champion.**\
-`By Andrew Das`\
+`The Olympic men’s tournament is an under-23 championship, but it remains an important barometer of a country’s ability to produce young talent.`\
 https://nytimes.com/2021/08/07/sports/olympics/brazil-spain-soccer-gold-medal.html?searchResultPosition=3
 
 **The Quislings of Albany**\
