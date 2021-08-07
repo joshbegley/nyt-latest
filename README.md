@@ -1,6 +1,6 @@
 **As Democrats Seethed, White House Struggled to Contain Eviction Fallout**\
 `President Biden was surprised by the furious reaction to the White House’s decision to ask Congress to extend an eviction ban, leading to a 36-hour scramble to keep people in their homes.`\
-https://nytimes.com/2021/08/07/us/politics/as-democrats-seethed-white-house-struggled-to-contain-eviction-fallout.html?searchResultPosition=1
+https://nytimes.com/2021/08/07/us/politics/biden-congress-eviction-moratorium.html?searchResultPosition=1
 
 **From Athens to Tokyo, Allyson Felix’s Journey to the Olympic Record Books**\
 `Felix’s 11th medal made her the most decorated American track-and-field athlete in Olympic history, surpassing Carl Lewis.`\
