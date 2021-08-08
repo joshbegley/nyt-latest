@@ -2,7 +2,7 @@
 `His band, Kassav’, found millions of listeners as it held on to Caribbean roots while reaching out to the world. He died of Covid-19.`\
 https://nytimes.com/2021/08/08/arts/music/jacob-desvarieux-dead.html?searchResultPosition=1
 
-**As Cities Fall in Afghanistan, the Propaganda War Grows**\
+**The Propaganda War Intensifies in Afghanistan as the Taliban Gain Ground**\
 `The effort to fend off panic and minimize losses has taken on outsize importance following the seizure of five provincial capitals by the Taliban.`\
 https://nytimes.com/2021/08/08/world/asia/afghanistan-government-propaganda.html?searchResultPosition=2
 
