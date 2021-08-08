@@ -2,8 +2,8 @@
 `Eliud Kipchoge, the world’s most decorated marathoner, finished on Sunday far ahead of the pack in 2 hours 8 minutes and 38 seconds.`\
 https://nytimes.com/2021/08/07/sports/olympics/marathon-results-kipchoge-galen-rupp.html?searchResultPosition=1
 
-**The Dixie Fire Continues to Burn, but These Residents Are Staying**\
-`Greenville is in ashes, yet in nearby Taylorsville, a few residents won’t follow evacuation orders. “These fires, they’re never going to get me.”`\
+**Even as Dixie Fire Rages, ‘I’m Not Going to Leave’**\
+`In Taylorsville, a few residents won’t follow evacuation orders. “These fires, they’re never going to get me.”`\
 https://nytimes.com/2021/08/07/us/dixie-fire-greenville-taylorsville-residents.html?searchResultPosition=2
 
 **U.S. broadcast coverage on Saturday night includes women’s basketball, boxing and water polo.**\
