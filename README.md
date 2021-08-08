@@ -14,8 +14,8 @@ https://nytimes.com/interactive/2021/sports/olympics/best-of-tokyo-olympics.html
 `The United States won gold in women’s basketball and volleyball, and Eliud Kipchoge of Kenya defended his Olympic marathon title.`\
 https://nytimes.com/2021/08/08/sports/olympics/olympics-last-day.html?searchResultPosition=4
 
-**Alibaba Suspends Executives After Rape Accusation**\
-`More than 4,000 employees have called for the e-commerce titan to take the allegations seriously.`\
+**Alibaba Suspends Employees After Rape Accusation**\
+`More than 4,000 workers have called for the e-commerce titan to take the allegations seriously.`\
 https://nytimes.com/2021/08/08/business/alibaba-rape-china-metoo.html?searchResultPosition=5
 
 **Delta Variant, Wildfires, Tokyo Olympics: Your Weekend Briefing**\
