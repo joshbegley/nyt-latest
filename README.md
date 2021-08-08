@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/08/business/the-week-in-business-here-come-the-manda
 https://nytimes.com/2021/08/08/world/europe/greece-wildfires.html?searchResultPosition=2
 
 **The Biggest Highlights From the Oddest Olympics**\
-`See the action from the Tokyo Games — including a few things you might have missed.`\
+`See the action from inside the Tokyo Games’ anti-pandemic bubble — including a few things you might have missed.`\
 https://nytimes.com/interactive/2021/sports/olympics/best-of-tokyo-olympics.html?searchResultPosition=3
 
 **Here’s what happened on the final day of the Tokyo Games.**\
