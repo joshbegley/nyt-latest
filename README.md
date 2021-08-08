@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/08/world/europe/greece-wildfires.html?searchResultPo
 `See the action from inside the Tokyo Games’ anti-pandemic bubble — including a few things you might have missed.`\
 https://nytimes.com/interactive/2021/sports/olympics/best-of-tokyo-olympics.html?searchResultPosition=4
 
-**Here’s what happened on the final day of the Tokyo Games.**\
+**The Tokyo Games wrap up with a few more big wins.**\
 `The United States won gold in women’s basketball and volleyball, and Eliud Kipchoge of Kenya defended his Olympic marathon title.`\
 https://nytimes.com/2021/08/08/sports/olympics/olympics-last-day.html?searchResultPosition=5
 
