@@ -23,7 +23,7 @@ https://nytimes.com/2021/08/08/pageoneplus/corrections-aug-8-2021.html?searchRes
 https://nytimes.com/2021/08/07/sports/olympics/eliud-kipchoge-olympic-marathon.html?searchResultPosition=6
 
 **Eliud Kipchoge finished far ahead of the pack to defend his men’s Olympic marathon title.**\
-`Kipchoge, the world’s most decorated marathoner, finished on Sunday far ahead of the pack in 2 hours 8 minutes and 38 seconds.`\
+`Kipchoge, the world’s most decorated marathoner, finished the race in 2 hours 8 minutes and 38 seconds.`\
 https://nytimes.com/2021/08/07/sports/olympics/marathon-results-kipchoge-galen-rupp.html?searchResultPosition=7
 
 **Even as Dixie Fire Rages, ‘I’m Not Going to Leave’**\
