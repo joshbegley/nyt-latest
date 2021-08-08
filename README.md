@@ -2,8 +2,8 @@
 `A program with two silvers and a bronze from its three most recent Games claims its first Olympic championship.`\
 https://nytimes.com/2021/08/08/sports/olympics/us-volleyball-gold-medal.html?searchResultPosition=1
 
-**China and the U.S. are in a tight race for the most gold medals.**\
-`Which country will win the gold medal race? Here’s the latest count.`\
+**The U.S. edged China for the most gold medals.**\
+`The countries were in a tight race on the final day of the Olympics for the most golds, and it could have gone either way.`\
 https://nytimes.com/2021/08/08/sports/olympics/gold-medal-tally-us-china.html?searchResultPosition=2
 
 **Quotation of the Day: Cuomo Used A Movement For His Gain**\
