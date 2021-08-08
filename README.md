@@ -1,5 +1,5 @@
 **Kipchoge finished far ahead of the pack to defend his men’s Olympic marathon title.**\
-`Eliud Kipchoge, the world’s most decorated marathoner at 36, finished on Sunday far ahead of the pack in 2 hours 8 minutes and 38 seconds.`\
+`Eliud Kipchoge, the world’s most decorated marathoner, finished on Sunday far ahead of the pack in 2 hours 8 minutes and 38 seconds.`\
 https://nytimes.com/2021/08/07/sports/olympics/marathon-results-kipchoge-galen-rupp.html?searchResultPosition=1
 
 **The Dixie Fire Continues to Burn, but These Residents Are Staying**\
