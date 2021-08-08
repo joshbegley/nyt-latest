@@ -1,4 +1,4 @@
-**Arkansas governor said it ‘was an error’ to ban mask mandates.**\
+**Arkansas’ governor said it ‘was an error’ to ban mask mandates.**\
 `Gov. Asa Hutchinson is working to modify a bill he signed in April in the wake of rising case counts and outbreaks at schools.`\
 https://nytimes.com/2021/08/08/world/asa-hutchinson-arkansas-mask-mandate.html?searchResultPosition=1
 
