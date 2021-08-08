@@ -1,5 +1,5 @@
 **Here’s what happened on the final day of the Tokyo Games.**\
-`By Victor Mather`\
+`The United States won gold in women’s basketball and volleyball, and Eliud Kipchoge of Kenya defended his Olympic marathon title.`\
 https://nytimes.com/2021/08/08/sports/olympics/olympics-last-day.html?searchResultPosition=1
 
 **Alibaba Suspends Executives After Rape Accusation**\
