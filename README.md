@@ -35,6 +35,6 @@ https://nytimes.com/2021/08/08/books/leila-slimani-in-the-country-of-others.html
 https://nytimes.com/2021/08/08/books/review/out-on-a-limb-andrew-sullivan.html?searchResultPosition=9
 
 **U.S. Women Win Basketball Gold, and Prepare to Turn the Page**\
-`Sue Bird and Diana Taurasi collected their fifth gold medals, and then signaled they would leave the team to a younger generation of stars.`\
+`Sue Bird and Diana Taurasi collected their fifth gold medals, and then signaled that they would leave the team to a younger generation of stars.`\
 https://nytimes.com/2021/08/08/sports/olympics/women-basketball-bird-taurasi-gold.html?searchResultPosition=10
 
