@@ -18,8 +18,8 @@ https://nytimes.com/2021/08/08/pageoneplus/corrections-aug-8-2021.html?searchRes
 `The Kenyan runner pulled away from the pack and ran alone for the final eight-plus miles, becoming only the third man to win gold medals in back-to-back Olympics.`\
 https://nytimes.com/2021/08/07/sports/olympics/eliud-kipchoge-olympic-marathon.html?searchResultPosition=5
 
-**Kipchoge finished far ahead of the pack to defend his men’s Olympic marathon title.**\
-`Eliud Kipchoge, the world’s most decorated marathoner, finished on Sunday far ahead of the pack in 2 hours 8 minutes and 38 seconds.`\
+**Eliud Kipchoge finished far ahead of the pack to defend his men’s Olympic marathon title.**\
+`Kipchoge, the world’s most decorated marathoner, finished on Sunday far ahead of the pack in 2 hours 8 minutes and 38 seconds.`\
 https://nytimes.com/2021/08/07/sports/olympics/marathon-results-kipchoge-galen-rupp.html?searchResultPosition=6
 
 **Even as Dixie Fire Rages, ‘I’m Not Going to Leave’**\
