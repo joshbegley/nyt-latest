@@ -6,8 +6,8 @@ https://nytimes.com/2021/08/08/sports/olympics/women-basketball-bird-taurasi-gol
 `If the insurgents retain control of Kunduz, a vital commercial hub, they will have gained a significant military and political prize.`\
 https://nytimes.com/2021/08/08/world/asia/afghanistan-taliban-kunduz.html?searchResultPosition=2
 
-**American boxers won two silver medals on the final day of the Games.**\
-`The medals, and another silver won earlier in the Olympic tournament, matched the United States total from every Games since 2004.`\
+**American boxers posted their best showing since 2000.**\
+`With four medals, the United States posted its best Olympic performance in the ring in two decades.`\
 https://nytimes.com/2021/08/08/sports/olympics/american-boxers-medals.html?searchResultPosition=3
 
 **‘Every Subway Trip Started With Me Taking the B or C to 59th Street’**\
