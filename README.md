@@ -10,13 +10,13 @@ https://nytimes.com/2021/08/08/sports/olympics/watch-stream-closing-ceremony-nbc
 `With infections increasing once more, and hospitalization rising among older adults, health experts offer a timely warning: a coronavirus infection can look different in older patients.`\
 https://nytimes.com/2021/08/08/health/coronavirus-symptoms-elderly.html?searchResultPosition=3
 
-**San Francisco’s Cyclists Cheer a Road Less Traveled. Museums Mourn It.**\
-`Though pedestrians and cyclists are rejoicing at a Golden Gate Park ban on cars, rebounding museums fear the detour will keep visitors away.`\
-https://nytimes.com/2021/08/08/arts/design/san-francisco-bikes-cars-museum.html?searchResultPosition=4
-
 **Seven Olympic Moments Worth Revisiting**\
 `A spicy rhythmic gymnastics finale. A 62-year-old medalist. A former prodigy with a gold. The Olympic magic was spread across sports.`\
-https://nytimes.com/2021/08/08/sports/olympics/memorable-moments-tokyo-games.html?searchResultPosition=5
+https://nytimes.com/2021/08/08/sports/olympics/memorable-moments-tokyo-games.html?searchResultPosition=4
+
+**San Francisco’s Cyclists Cheer a Road Less Traveled. Museums Mourn It.**\
+`Though pedestrians and cyclists are rejoicing at a Golden Gate Park ban on cars, rebounding museums fear the detour will keep visitors away.`\
+https://nytimes.com/2021/08/08/arts/design/san-francisco-bikes-cars-museum.html?searchResultPosition=5
 
 **New York in Party Mode (Briefly): Behind the Metro Desk’s Nightlife Project**\
 `Nearly 50 journalists spent weeks documenting what New Yorkers were doing after dark when pandemic restrictions were fading, at least for a time.`\
