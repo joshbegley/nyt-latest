@@ -36,5 +36,5 @@ https://nytimes.com/2021/08/09/arts/television/trevor-moore-dead.html?searchResu
 
 **Washington State sets vaccine mandate for government and health care workers.**\
 `Employees who refuse to get vaccinated would face losing their jobs, Gov. Jay Inslee said.`\
-https://nytimes.com/2021/08/09/world/washington-state-workers-vaccine-mandate.html?searchResultPosition=10
+https://nytimes.com/2021/08/09/us/washington-state-workers-vaccine-mandate.html?searchResultPosition=10
 
