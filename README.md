@@ -34,7 +34,7 @@ https://nytimes.com/2021/08/09/opinion/letters/covid-vaccine-holdouts.html?searc
 `The reimagined revival was closed by the pandemic, and then its lead producer, Scott Rudin, said he would step back from active participation in his shows after being accused of bullying.`\
 https://nytimes.com/2021/08/09/theater/west-side-story.html?searchResultPosition=9
 
-**Consumer inflation expectations ticked up, a Federal Reserve survey shows.**\
+**Consumers are on the lookout for higher prices, a Federal Reserve survey shows.**\
 `The rise in the longer-term price gauge was small, but it comes at a time when Fed officials are closely watching such metrics.`\
 https://nytimes.com/2021/08/09/business/consumer-prices-inflation.html?searchResultPosition=10
 
