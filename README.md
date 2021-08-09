@@ -1,10 +1,10 @@
+**Your Monday Briefing**\
+`The Taliban take three more cities.`\
+https://nytimes.com/2021/08/08/briefing/afghanistan-taliban-olympics.html?searchResultPosition=1
+
 **Fan Shouts Racial Slur at Miami Marlins Player**\
 `The Colorado Rockies said they were investigating the incident, in which Lewis Brinson, who is Black, was the target of abuse during a game in Denver on Sunday.`\
-https://nytimes.com/2021/08/08/sports/baseball/racial-slur-marlins-rockies-lewis-brinson.html?searchResultPosition=1
-
-**Judge Temporarily Allows Cruise Line to Require Proof of Vaccination in Florida**\
-`The preliminary injunction means that Norwegian Cruise Line can require proof of vaccination from passengers, despite a state law that prohibits such requirements.`\
-https://nytimes.com/live/2021/08/08/world/covid-delta-variant-vaccine/norwegian-cruise-line-vaccine-requirement?searchResultPosition=2
+https://nytimes.com/2021/08/08/sports/baseball/racial-slur-marlins-rockies-lewis-brinson.html?searchResultPosition=2
 
 **Cuomo’s Top Aide, Melissa DeRosa, Resigns as He Fights to Survive**\
 `The governor’s strategist helped lead efforts to retaliate against one of the women who accused him of sexual harassment, the attorney general’s report found.`\
