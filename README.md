@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/09/world/europe/greece-fires.html?searchResultPositi
 
 **Sergei Kovalev, Longtime Kremlin Adversary, Dies at 91**\
 `He campaigned for human rights during the Soviet era and continued his activism in the post-communist years under Boris A. Yeltsin and Vladimir V. Putin.`\
-https://nytimes.com/2021/08/09/obituaries/sergei-kovalev-dead.html?searchResultPosition=4
+https://nytimes.com/2021/08/09/obituaries/sergei-kovalev-longtime-kremlin-adversary-dies-at-91.html?searchResultPosition=4
 
 **A Hotter Future**\
 `Human activity has significantly heated the Earth already. But several climate futures are still possible.`\
