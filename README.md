@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/08/us/norwegian-cruise-line-vaccine-requirement.html?searchResultPosition=1
 
 **Cuomo’s Top Aide, Melissa DeRosa, Resigns as He Fights to Survive**\
-`The governor’s confidante helped lead efforts to retaliate against one of the women who accused him of sexual harassment, the attorney general’s report found.`\
+`The governor’s strategist helped lead efforts to retaliate against one of the women who accused him of sexual harassment, the attorney general’s report found.`\
 https://nytimes.com/2021/08/08/nyregion/melissa-derosa-resign-cuomo.html?searchResultPosition=2
 
 **Mystery Attacks on Diplomats Leave Scores of Victims but Still Little Evidence**\
