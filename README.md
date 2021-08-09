@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/09/us/politics/sept-11-saudi-arabia-biden.html?searc
 `The comedian, who released a solo album called “Drunk Texts to Myself” and whose films included “The Civil War on Drugs,” was killed in an accident, his wife said.`\
 https://nytimes.com/2021/08/09/arts/television/trevor-moore-dead.html?searchResultPosition=4
 
-**Washington State sets vaccine mandate for state and health care workers.**\
+**Washington State sets vaccine mandate for government and health care workers.**\
 `Employees who refuse to get vaccinated would face losing their jobs, Gov. Jay Inslee said.`\
 https://nytimes.com/2021/08/09/world/washington-state-workers-vaccine-mandate.html?searchResultPosition=5
 
