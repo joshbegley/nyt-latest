@@ -1,4 +1,4 @@
-**Canadian Wildfires Could Intensify from a Looming Heat Wave.**\
+**Canadian wildfires could intensify from a looming heat wave.**\
 `Wildfires are burning from Ontario to hard-hit British Columbia, where more than 1.5 million acres have been scorched since April.`\
 https://nytimes.com/2021/08/09/world/canada/canada-wildfires.html?searchResultPosition=1
 
