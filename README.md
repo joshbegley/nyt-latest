@@ -1,6 +1,6 @@
 **Black Real Estate Agent and Clients Handcuffed at House Viewing**\
 `The real estate agent was showing his clients, who are also Black, a house in Wyoming, Mich., when the police were called.`\
-https://nytimes.com/2021/08/08/us/black-realtor-client-hundcuffed-michigan.html?searchResultPosition=1
+https://nytimes.com/2021/08/08/us/black-realtor-client-handcuffed-michigan.html?searchResultPosition=1
 
 **Senate Works on Infrastructure ‘the Old-Fashioned Way’: Painfully Slow**\
 `The bipartisan bill has resurrected the lost art of freewheeling legislative debate in the usually gridlocked chamber. It takes forever.`\
