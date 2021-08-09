@@ -1,6 +1,6 @@
 **Democrats unveil $3.5 trillion budget blueprint, without addressing the debt limit.**\
 `The policy package could prove to be the most significant change to the nation’s social safety net since Medicare and the Great Society.`\
-https://nytimes.com/2021/08/09/us/politics/budget-blue-print-democrats.html?searchResultPosition=1
+https://nytimes.com/2021/08/09/us/politics/budget-blueprint-democrats.html?searchResultPosition=1
 
 **Fires in Evia, Greece, Force Thousands of Evacuations**\
 `The fires that have been raging in Greece for nearly a week show no signs of stopping. The biggest fire is in Evia, where thousands have already been evacuated. Many more are planning to evacuate by ferry in the coming days.`\
