@@ -22,7 +22,7 @@ https://nytimes.com/2021/08/09/arts/music/britney-spears-conservatorship-hearing
 `Mr. Loeb’s article was published in the Atlanta Daily World on Oct. 5, 1945.`\
 https://nytimes.com/interactive/2021/08/09/science/loeb-hiroshima-nuclear-bomb.html?searchResultPosition=6
 
-**5 takeaways from the latest U.N. climate report.**\
+**5 takeaways from the major new U.N. climate report.**\
 `The IPCC concluded that the world cannot avoid some devastating impacts of climate change, but that there is still a narrow window to keep the devastation from getting even worse.`\
 https://nytimes.com/2021/08/09/climate/un-climate-report-takeaways.html?searchResultPosition=7
 
