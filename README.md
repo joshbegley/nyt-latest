@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/08/sports/baseball/racial-slur-marlins-rockies-lewis
 
 **Judge Temporarily Allows Cruise Line to Require Proof of Vaccination in Florida**\
 `The preliminary injunction means that Norwegian Cruise Line can require proof of vaccination from passengers, despite a state law that prohibits such requirements.`\
-https://nytimes.com/2021/08/08/us/norwegian-cruise-line-vaccine-requirement.html?searchResultPosition=2
+https://nytimes.com/live/2021/08/08/world/covid-delta-variant-vaccine/norwegian-cruise-line-vaccine-requirement?searchResultPosition=2
 
 **Cuomo’s Top Aide, Melissa DeRosa, Resigns as He Fights to Survive**\
 `The governor’s strategist helped lead efforts to retaliate against one of the women who accused him of sexual harassment, the attorney general’s report found.`\
