@@ -1,40 +1,40 @@
+**No Corrections: Aug. 9, 2021**\
+`No corrections appeared in print on Monday, Aug. 9, 2021.`\
+https://nytimes.com/2021/08/09/pageoneplus/no-corrections-aug-9-2021.html?searchResultPosition=1
+
 **Your Monday Briefing**\
 `The Taliban take three more cities.`\
-https://nytimes.com/2021/08/08/briefing/afghanistan-taliban-olympics.html?searchResultPosition=1
+https://nytimes.com/2021/08/08/briefing/afghanistan-taliban-olympics.html?searchResultPosition=2
 
 **Fan Shouts Racial Slur at Miami Marlins Player**\
 `The Colorado Rockies said they were investigating the incident, in which Lewis Brinson, who is Black, was the target of abuse during a game in Denver on Sunday.`\
-https://nytimes.com/2021/08/08/sports/baseball/racial-slur-marlins-rockies-lewis-brinson.html?searchResultPosition=2
+https://nytimes.com/2021/08/08/sports/baseball/racial-slur-marlins-rockies-lewis-brinson.html?searchResultPosition=3
 
 **Cuomo’s Top Aide, Melissa DeRosa, Resigns as He Fights to Survive**\
 `The governor’s strategist helped lead efforts to retaliate against one of the women who accused him of sexual harassment, the attorney general’s report found.`\
-https://nytimes.com/2021/08/08/nyregion/melissa-derosa-resign-cuomo.html?searchResultPosition=3
+https://nytimes.com/2021/08/08/nyregion/melissa-derosa-resign-cuomo.html?searchResultPosition=4
 
 **Mystery Attacks on Diplomats Leave Scores of Victims but Still Little Evidence**\
 `While the leading theory in the “Havana syndrome” cases is directed microwave attacks, a classified session for senior government officials said months of investigation were inconclusive.`\
-https://nytimes.com/2021/08/08/us/politics/havana-syndrome-attacks-mystery.html?searchResultPosition=4
+https://nytimes.com/2021/08/08/us/politics/havana-syndrome-attacks-mystery.html?searchResultPosition=5
 
 **Black Real Estate Agent and Clients Handcuffed at House Viewing**\
 `The real estate agent was showing his clients, who are also Black, a house in Wyoming, Mich., when the police were called.`\
-https://nytimes.com/2021/08/08/us/black-realtor-client-handcuffed-michigan.html?searchResultPosition=5
+https://nytimes.com/2021/08/08/us/black-realtor-client-handcuffed-michigan.html?searchResultPosition=6
 
 **Senate Works on Infrastructure ‘the Old-Fashioned Way’: Painfully Slow**\
 `The bipartisan bill has resurrected the lost art of freewheeling legislative debate in the usually gridlocked chamber. It takes forever.`\
-https://nytimes.com/2021/08/08/us/politics/senate-infrastructure.html?searchResultPosition=6
+https://nytimes.com/2021/08/08/us/politics/senate-infrastructure.html?searchResultPosition=7
 
 **One Game, and Tweet, at a Time, the Mets Are Sliding**\
 `“We have to get our act together soon,” Steven Cohen, the team’s owner, posted during a lost last week. The team is 1-4 since then and has fallen to third in the N.L. East.`\
-https://nytimes.com/2021/08/08/sports/baseball/mets-swept-phillies-zack-wheeler.html?searchResultPosition=7
+https://nytimes.com/2021/08/08/sports/baseball/mets-swept-phillies-zack-wheeler.html?searchResultPosition=8
 
 **As Taliban Capture Cities, U.S. Says Afghan Forces Must Fend for Themselves**\
 `The muted American response to the Taliban siege shows in no uncertain terms that the U.S. war in Afghanistan is over.`\
-https://nytimes.com/2021/08/08/us/politics/taliban-afghanistan-united-states.html?searchResultPosition=8
+https://nytimes.com/2021/08/08/us/politics/taliban-afghanistan-united-states.html?searchResultPosition=9
 
 **Dixie Fire Is Now Second Largest in California History**\
 `The fire blazing across Northern California has burned more than 463,000 acres.`\
-https://nytimes.com/2021/08/08/us/dixie-fire.html?searchResultPosition=9
-
-**Jane Withers, Child Star Who Later Won Fame in Commercials, Dies at 95**\
-`As a girl, she landed leading roles that were the antidote to Shirley Temple’s. As an adult, she was known as Josephine the Plumber in ads for Comet cleanser.`\
-https://nytimes.com/2021/08/08/obituaries/jane-withers-child-star-who-later-won-fame-in-commercials-dies-at-95.html?searchResultPosition=10
+https://nytimes.com/2021/08/08/us/dixie-fire.html?searchResultPosition=10
 
