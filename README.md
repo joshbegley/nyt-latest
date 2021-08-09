@@ -1,40 +1,40 @@
+**Flash Flooding Hits Omaha**\
+`A heavy downpour flooded buildings and roadways in eastern Nebraska over the weekend, and caused thousands of homes to lose power.`\
+https://nytimes.com/video/us/100000007913525/omaha-flash-floods.html?searchResultPosition=1
+
 **Canadian wildfires could intensify from a looming heat wave.**\
 `Wildfires are burning from Ontario to hard-hit British Columbia, where more than 1.5 million acres have been scorched since April.`\
-https://nytimes.com/2021/08/09/world/canada/canada-wildfires.html?searchResultPosition=1
+https://nytimes.com/2021/08/09/world/canada/canada-wildfires.html?searchResultPosition=2
 
 **Coronavirus Briefing: What Happened Today**\
 `A surge among children`\
-https://nytimes.com/2021/08/09/us/coronavirus-today-children-delta-military-vaccine-mandate.html?searchResultPosition=2
+https://nytimes.com/2021/08/09/us/coronavirus-today-children-delta-military-vaccine-mandate.html?searchResultPosition=3
 
 **5 National Parks Where You Can Avoid Crowds**\
 `If you want to bypass the crowds at some of the big names, consider these lesser-known national parks.`\
-https://nytimes.com/interactive/2021/08/09/travel/national-parks-avoid-crowds.html?searchResultPosition=3
+https://nytimes.com/interactive/2021/08/09/travel/national-parks-avoid-crowds.html?searchResultPosition=4
 
 **U.S. Signals It Will Release Some Still-Secret Files on Saudi Arabia and 9/11**\
 `The F.B.I. said it would review some long-classified documents for possible disclosure, a decision that followed a push by families of the attacks’ victims.`\
-https://nytimes.com/2021/08/09/us/politics/sept-11-saudi-arabia-biden.html?searchResultPosition=4
+https://nytimes.com/2021/08/09/us/politics/sept-11-saudi-arabia-biden.html?searchResultPosition=5
 
 **Trevor Moore, Co-Founder of ‘Whitest Kids U’Know’ Comedy Show, Dies at 41**\
 `The comedian, who released a solo album called “Drunk Texts to Myself” and whose films included “The Civil War on Drugs,” was killed in an accident, his wife said.`\
-https://nytimes.com/2021/08/09/arts/television/trevor-moore-dead.html?searchResultPosition=5
+https://nytimes.com/2021/08/09/arts/television/trevor-moore-dead.html?searchResultPosition=6
 
 **Washington State sets vaccine mandate for government and health care workers.**\
 `Employees who refuse to get vaccinated would face losing their jobs, Gov. Jay Inslee said.`\
-https://nytimes.com/2021/08/09/world/washington-state-workers-vaccine-mandate.html?searchResultPosition=6
+https://nytimes.com/2021/08/09/world/washington-state-workers-vaccine-mandate.html?searchResultPosition=7
 
 **Dallas school district defies governor’s ban and announces a mask mandate.**\
 `The temporary rule contradicted an executive order by Gov. Greg Abbott that prohibits school districts from requiring masks.`\
-https://nytimes.com/2021/08/09/us/dallas-school-masks-abbott.html?searchResultPosition=7
+https://nytimes.com/2021/08/09/us/dallas-school-masks-abbott.html?searchResultPosition=8
 
 **Biden Ramps Up Pressure on Cuba, Abandoning Obama’s Approach**\
 `Many Cubans thought the Biden administration would move to normalize relations with Havana. But the president has been tougher than Donald Trump on the island’s government.`\
-https://nytimes.com/2021/08/09/world/americas/cuba-government-biden-pressure.html?searchResultPosition=8
+https://nytimes.com/2021/08/09/world/americas/cuba-government-biden-pressure.html?searchResultPosition=9
 
 **The Biden administration imposes another round of sanctions on Belarus.**\
 `The move marked the anniversary of an election that the country’s president claimed he won with 80 percent of the vote.`\
-https://nytimes.com/2021/08/09/us/politics/belarus-sanctions-biden.html?searchResultPosition=9
-
-**‘Deeply Disturbing’: State Assembly Responds to Report on Cuomo**\
-`The State Assembly of New York met to discuss a report from the attorney general detailing allegations of sexual harassment and misconduct against Gov. Andrew M. Cuomo as members consider moving forward with impeachment.`\
-https://nytimes.com/video/us/politics/100000007913372/cuomo-new-york-state-assembly.html?searchResultPosition=10
+https://nytimes.com/2021/08/09/us/politics/belarus-sanctions-biden.html?searchResultPosition=10
 
