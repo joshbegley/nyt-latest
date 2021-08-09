@@ -1,4 +1,4 @@
-**Read the letter**\
+**Read the Letter**\
 `Roberta Kaplan resigned as chairwoman of Time’s Up after a report revealed she was involved in an effort to discredit a woman who had accused Gov. Andrew Cuomo of sexual harassment.`\
 https://nytimes.com/interactive/2021/08/09/nyregion/roberta-kaplan-times-up-resignation-letter.html?searchResultPosition=1
 
