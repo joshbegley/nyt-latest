@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/09/nyregion/roberta-kaplan-times-up-cuomo.html?searc
 https://nytimes.com/2021/08/09/world/africa/deadly-clashes-threaten-south-sudans-shaky-peace-deal.html?searchResultPosition=2
 
 **Samsung’s de facto leader, imprisoned for bribery, will be paroled.**\
-`South Korea has been divided over the release Lee Jae-yong, who has served 60 percent of his two-and-a-half-year prison term.`\
+`South Korea has been divided over the release of Lee Jae-yong, who has served 60 percent of his two-and-a-half-year prison term.`\
 https://nytimes.com/2021/08/09/business/south-korea-parole-samsung.html?searchResultPosition=3
 
 **Democrats unveil $3.5 trillion budget blueprint, without addressing the debt limit.**\
