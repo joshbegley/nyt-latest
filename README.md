@@ -24,7 +24,7 @@ https://nytimes.com/2021/08/08/us/dixie-fire.html?searchResultPosition=6
 
 **Jane Withers, Child Star Who Later Won Fame in Commercials, Dies at 95**\
 `As a girl, she landed leading roles that were the antidote to Shirley Temple’s. As an adult, she was known as Josephine the Plumber in ads for Comet cleanser.`\
-https://nytimes.com/2021/08/08/obituaries/jane-withers-dead.html?searchResultPosition=7
+https://nytimes.com/2021/08/08/obituaries/jane-withers-child-star-who-later-won-fame-in-commercials-dies-at-95.html?searchResultPosition=7
 
 **As Afghan Cities Fall to Taliban, Brutal New Chapter Unfolds**\
 `“This is now a different kind of war, reminiscent of Syria.” The seizure of five capitals has amplified fears about Afghanistan’s future after the U.S. withdrawal.`\
