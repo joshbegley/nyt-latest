@@ -1,40 +1,40 @@
+**‘West Side Story’ Will Not Return to Broadway**\
+`The reimagined revival was closed by the pandemic, and then its lead producer, Scott Rudin, said he would step back from active participation in his shows after being accused of bullying.`\
+https://nytimes.com/2021/08/09/arts/west-side-story.html?searchResultPosition=1
+
 **Consumer inflation expectations ticked up, a Federal Reserve survey shows.**\
 `The rise in the longer-term price gauge was small, but it comes at a time when Fed officials are closely watching such metrics.`\
-https://nytimes.com/2021/08/09/business/consumer-prices-inflation.html?searchResultPosition=1
+https://nytimes.com/2021/08/09/business/consumer-prices-inflation.html?searchResultPosition=2
 
 **Billie Eilish, 21st-Century Pop Paragon, Hits No. 1 With Big Vinyl Sales**\
 `“Happier Than Ever” debuted at the top of the Billboard 200 with 54 percent of its total from physical formats.`\
-https://nytimes.com/2021/08/09/arts/music/billie-eilish-happier-than-ever-billboard.html?searchResultPosition=2
+https://nytimes.com/2021/08/09/arts/music/billie-eilish-happier-than-ever-billboard.html?searchResultPosition=3
 
 **Billie Eilish’s New Pop Perspective**\
 `How has the teenage phenomenon’s songwriting, and her relationship to the larger music machine, evolved between albums?`\
-https://nytimes.com/2021/08/09/arts/music/popcast-billie-eilish.html?searchResultPosition=3
+https://nytimes.com/2021/08/09/arts/music/popcast-billie-eilish.html?searchResultPosition=4
 
 **When Sickness Eclipses Health, How Does a Marriage Survive?**\
 `Eleanor Henderson chronicles her family’s herculean struggle with illness in her memoir, “Everything I Have Is Yours.”`\
-https://nytimes.com/2021/08/09/books/group-text-everything-i-have-is-yours-eleanor-henderson.html?searchResultPosition=4
+https://nytimes.com/2021/08/09/books/group-text-everything-i-have-is-yours-eleanor-henderson.html?searchResultPosition=5
 
 **The Education Department ends its effort to stop states from suing federal student loan servicers.**\
 `The move reverses a Trump administration policy aimed at sheltering the department’s contractors from state oversight.`\
-https://nytimes.com/2021/08/09/business/states-federal-student-loan-services.html?searchResultPosition=5
+https://nytimes.com/2021/08/09/business/states-federal-student-loan-services.html?searchResultPosition=6
 
 **On Afghanistan’s Front Line, There Are No Good Choices**\
 `For the past month, Kandahar, Afghanistan’s second-largest city, has been under siege by Taliban fighters. Families stuck between them and government forces have almost nowhere to go.`\
-https://nytimes.com/2021/08/09/world/asia/Afghanistan-taliban-kandahar.html?searchResultPosition=6
+https://nytimes.com/2021/08/09/world/asia/Afghanistan-taliban-kandahar.html?searchResultPosition=7
 
 **Families Displaced by Taliban Offensive Shelter in a Kabul Park**\
 `Hundreds gathered in a Kabul public park after fleeing fighting in northern Afghanistan. The fall of the major city of Kunduz to the Taliban has prompted thousands of people to leave their homes, fearing Taliban rule and escalating fighting.`\
-https://nytimes.com/video/world/middleeast/100000007912518/afghanistan-displaced-kabul-kunduz.html?searchResultPosition=7
+https://nytimes.com/video/world/middleeast/100000007912518/afghanistan-displaced-kabul-kunduz.html?searchResultPosition=8
 
 **Soul Of Us**\
 `The Soul of Us is a storytelling journey into Black life and what makes every aspect of it matter.`\
-https://nytimes.com/paidpost/soul-of-us/soul-of-us.html?searchResultPosition=8
+https://nytimes.com/paidpost/soul-of-us/soul-of-us.html?searchResultPosition=9
 
 **Cuomo Moves Closer to Impeachment as Lawmakers Gather**\
 `Legislators could decide by early next month to try to force the governor from office over allegations that he sexually harassed 11 women.`\
-https://nytimes.com/2021/08/09/nyregion/andrew-cuomo.html?searchResultPosition=9
-
-**A Race to Contain the Dixie Fire Amid Evacuation Orders**\
-`The Dixie Fire ravaging Northern California has become the state’s second-largest fire on record. Firefighters are working to save homes and towns being destroyed.`\
-https://nytimes.com/video/us/100000007912488/california-2021-dixie-fire.html?searchResultPosition=10
+https://nytimes.com/2021/08/09/nyregion/andrew-cuomo.html?searchResultPosition=10
 
