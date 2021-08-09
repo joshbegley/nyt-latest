@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/09/business/dealbook/infrastructure-bill-vote.html?s
 https://nytimes.com/2021/08/09/world/europe/greece-fires.html?searchResultPosition=3
 
 **Sergei Kovalev, Longtime Kremlin Adversary, Dies at 91**\
-`He campaigned for human rights during the Soviet era and continued his activism in the post-communist years under Boris A. Yeltsin and Vladimir V. Putin.`\
+`He campaigned for human rights during the Soviet era and continued his activism in the post-Communist years under Boris A. Yeltsin and Vladimir V. Putin.`\
 https://nytimes.com/2021/08/09/obituaries/sergei-kovalev-longtime-kremlin-adversary-dies-at-91.html?searchResultPosition=4
 
 **A Hotter Future**\
