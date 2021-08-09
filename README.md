@@ -1,5 +1,5 @@
 **No Shots, No Service**\
-`Monday: A report from the Bay Area, where a growing number of businesses are requiring that customers show their vaccine cards — or so they say.`\
+`A report from the Bay Area, where a growing number of businesses are requiring that customers show their vaccine cards — or so they say.`\
 https://nytimes.com/2021/08/09/us/ca-vaccine-requirements.html?searchResultPosition=1
 
 **$4.3 Million Homes in California**\
