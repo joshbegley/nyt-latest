@@ -1,6 +1,6 @@
 **How Do Hurricanes Form?**\
-`The science behind Atlantic hurricanes and how climate change is affecting them. `\
-https://nytimes.com/interactive/2021/08/10/climate/How-hurricanes-are-formed.html?searchResultPosition=1
+`The science behind Atlantic hurricanes and how climate change is affecting them.`\
+https://nytimes.com/interactive/2021/08/10/climate/how-hurricanes-are-formed.html?searchResultPosition=1
 
 **D.C. Mayor Directs City Workers to Get Vaccinated or Face Testing**\
 `Mayor Muriel E. Bowser of Washington announced that all 37,000 city employees and contractors must be fully vaccinated against the coronavirus or undergo weekly testing by Sept. 19.`\
