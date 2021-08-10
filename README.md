@@ -36,5 +36,5 @@ https://nytimes.com/2021/08/10/world/asia/japan-immigration-refugee-wishma-rathn
 
 **Watch Live: Lawyer for Cuomo Addresses Public**\
 `Rita Glavin, a lawyer for Gov. Andrew M. Cuomo, is expected to address allegations of sexual harassment and misconduct, amid calls for the New York governor to resign from his position.`\
-https://nytimes.com/video/us/politics/100000007914249/andrew-cuomo-watch-live.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/politics/100000007914249/andrew-cuomo-watch-live.html?searchResultPosition=10
 
