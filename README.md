@@ -1,5 +1,5 @@
 **Biden Nominates Damian Williams as U.S. Attorney for Manhattan**\
-`The U.S. attorney’s office for the Southern District of New York has handled some of the nation’s most politically sensitive cases, including several inquiries of people close to former President Donald J. Trump.`\
+`The selection is part of a slate of nominations for top law enforcement posts in the country, including for three offices that tend to investigate the Justice Department’s most prominent cases.`\
 https://nytimes.com/2021/08/10/us/politics/biden-us-attorneys.html?searchResultPosition=1
 
 **Coinbase rides cryptomania to a $1.6 billion quarterly profit.**\
