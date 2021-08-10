@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/10/learning/our-3rd-annual-personal-narrative-writin
 
 **Netflix’s ‘High on the Hog’ Renewed for Second Season**\
 `The show, hosted by the food writer Stephen Satterfield, traces the origins of African American food.`\
-https://nytimes.com/2021/08/10/dining/high-on-the-hog-netflix.html?searchResultPosition=4
+https://nytimes.com/2021/08/10/dining/high-on-the-hog-netflix-season-two.html?searchResultPosition=4
 
 **‘Never thought I’d see this day’: Cuomo’s resignation is greeted with relief.**\
 `Many officials said they believed that Mr. Cuomo made the right decision, and his accusers expressed relief. `\
