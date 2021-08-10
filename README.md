@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/10/nyregion/andrew-cuomo-resigns.html?searchResultPo
 
 **Taliban Overrun Another Provincial Capital, the Seventh in Five Days**\
 `Local officials said insurgent fighters had flooded Farah in western Afghanistan, though there were conflicting reports about whether the Taliban had fully captured the city.`\
-https://nytimes.com/2021/08/10/world/asia/taliban-farah-cities-captured.html?searchResultPosition=2
+https://nytimes.com/2021/08/10/world/asia/afghanistan-taliban-farah-cities.html?searchResultPosition=2
 
 **Tech Can’t Fix It**\
 `Climate change and other big problems won’t be solved by tech alone.`\
