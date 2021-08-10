@@ -1,5 +1,5 @@
 **Cuomo Tries to Drag Out Impeachment Process**\
-`As calls for his resignation grew, Gov. Andrew Cuomo remained eager to fight back against findings that he sexually harassed 11 women.`\
+`As calls for his resignation grow, Gov. Andrew Cuomo remains eager to fight back against findings that he sexually harassed 11 women.`\
 https://nytimes.com/2021/08/10/nyregion/cuomo-tries-to-drag-out-impeachment-process.html?searchResultPosition=1
 
 **He Worked With the U.S. for 9 Years. Now He’s Left Behind in Afghanistan.**\
