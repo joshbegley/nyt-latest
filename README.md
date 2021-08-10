@@ -8,7 +8,7 @@ https://nytimes.com/2021/08/10/health/covid-breakthrough-vaccines.html?searchRes
 
 **In Resignation Speech, Cuomo Makes a Last Play to Preserve His Legacy**\
 `In his resignation speech, Gov. Andrew Cuomo expressed regrets but also emphasized his achievements during three terms leading New York State.`\
-https://nytimes.com/2021/08/10/nyregion/cuomo-future-legacy.html?searchResultPosition=3
+https://nytimes.com/2021/08/10/nyregion/cuomo-legacy-resignation-speech.html?searchResultPosition=3
 
 **Cuomo’s Resignation: Shock to Many, Relief to Some, Overdue to Others**\
 `The governor’s decision to leave office as a potential impeachment loomed touched off a range of reactions from Washington to Buffalo.`\
