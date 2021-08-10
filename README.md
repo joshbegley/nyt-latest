@@ -8,7 +8,7 @@ https://nytimes.com/2021/08/10/us/san-diego-fentanyl-overdose-video.html?searchR
 
 **What to Know About Breakthrough Infections and the Delta Variant**\
 `Scientific understanding of the coronavirus variant is changing quickly. Here’s a recap of the most important findings.`\
-https://nytimes.com/2021/08/10/health/covid-breakthrough-vaccines.html?searchResultPosition=3
+https://nytimes.com/article/covid-breakthrough-delta-variant.html?searchResultPosition=3
 
 **In Resignation Speech, Cuomo Makes a Last Play to Preserve His Legacy**\
 `In his resignation speech, Gov. Andrew Cuomo expressed regrets but also emphasized his achievements during three terms leading New York State.`\
