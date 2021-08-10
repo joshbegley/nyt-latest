@@ -1,6 +1,6 @@
 **Chinese Court Rejects Canadian’s Appeal of Death Sentence for Drug Trafficking**\
 `Robert Lloyd Schellenberg initially received 15 years in prison for methamphetamine trafficking. But he was handed a death sentence in a one-day retrial in 2019.`\
-https://nytimes.com/2021/08/09/world/asia/china-canada-death-sentence-drug-trafficking.html?searchResultPosition=1
+https://nytimes.com/2021/08/10/world/asia/china-canada-death-sentence-drug-trafficking.html?searchResultPosition=1
 
 **Severe storms prompt hundreds of flight cancellations at O’Hare Airport.**\
 `The National Weather Service had been tracking severe weather in Illinois throughout Monday, including a rotating storm over the airport.`\
