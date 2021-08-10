@@ -1,6 +1,6 @@
-**All public employees in Washington D.C. will face a vaccine or testing requirement.**\
+**All Washington D.C. public employees will face a vaccine or testing requirement.**\
 `The action follows President Biden’s recent announcement that federal workers would face restrictions and requirements, including testing, if they did not get vaccinated.`\
-https://nytimes.com/2021/08/10/world/all-public-employees-in-washington-dc-will-face-a-vaccine-or-testing-requirement.html?searchResultPosition=1
+https://nytimes.com/2021/08/10/world/dc-vaccine-testing-mandate.html?searchResultPosition=1
 
 **Bolsonaro Discredits Electronic Voting, Prompting Fears of a Power Grab**\
 `President Jair Bolsonaro’s attacks on Brazil’s voting system as his standing in the polls slips is drawing comparisons to the messy 2020 election in the United States.`\
