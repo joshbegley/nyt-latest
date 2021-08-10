@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/10/nyregion/cuomo-future-legacy.html?searchResultPos
 
 **Cuomo’s Resignation: Shock to Many, Relief to Some, Overdue to Others**\
 `The governor’s decision to leave office as a potential impeachment loomed touched off a range of reactions from Washington to Buffalo.`\
-https://nytimes.com/2021/08/10/nyregion/cuomo-resigns-reaction.html?searchResultPosition=2
+https://nytimes.com/2021/08/10/nyregion/cuomo-resignation-reaction.html?searchResultPosition=2
 
 **Gov. Kate Brown of Oregon plans to restore a statewide mask mandate on Wednesday.**\
 `Ms. Brown cited new modeling that projected that, with cases surging, the state’s hospital capacity could be overrun within weeks.`\
