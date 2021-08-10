@@ -30,7 +30,7 @@ https://nytimes.com/2021/08/10/opinion/facebook-misinformation.html?searchResult
 `President Andrés Manuel López Obrador came out in defense of a TV news anchor, Azucena Uresti, after she received a death threat, apparently from a powerful drug cartel.`\
 https://nytimes.com/2021/08/10/world/americas/mexico-president-journalist-threat.html?searchResultPosition=8
 
-**Messi’s Move Paints a Dim Portrait of Modern Soccer**\
+**In Lionel Messi’s Move, a Dim Portrait of Modern Soccer**\
 `He could not stay where he wanted; few teams could afford him. Even one of the best players of all time was not able to resist the economic forces that carry the game along.`\
 https://nytimes.com/2021/08/10/sports/soccer/lionel-messi-options-PSG-.html?searchResultPosition=9
 
