@@ -3,8 +3,8 @@
 https://nytimes.com/2021/08/10/theater/farm-theater-pennsylvania-climate-change.html?searchResultPosition=1
 
 **It is not yet clear whether the impeachment process will continue.**\
-`By Jonah E. Bromwich and J. David Goodman`\
-https://nytimes.com/2021/08/10/nyregion/it-is-not-yet-clear-whether-the-impeachment-process-will-continue.html?searchResultPosition=2
+`A day before Gov. Andrew M. Cuomo said he would resign, members of the State Assembly met to lay the groundwork for impeachment proceedings against him. Those plans are now in question.`\
+https://nytimes.com/2021/08/10/nyregion/cuomo-impeachment.html?searchResultPosition=2
 
 **All Washington D.C. public employees will face a vaccine or testing requirement.**\
 `The action follows President Biden’s recent announcement that federal workers would face restrictions and requirements, including testing, if they did not get vaccinated.`\
