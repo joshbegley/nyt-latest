@@ -1,40 +1,40 @@
+**Biden Finds a Bipartisan Victory, but Democratic Unity May Prove More Elusive**\
+`The Senate’s convincing passage of a trillion-dollar infrastructure plan was vindication of President Biden’s commitment to bipartisanship, but to make it law, he will need Democrats in lock step.`\
+https://nytimes.com/2021/08/10/us/politics/biden-democrats-infrastructure.html?searchResultPosition=1
+
 **No More Cuomo**\
 `OK, guys, he’s really leaving.`\
-https://nytimes.com/2021/08/10/opinion/cuomo-resigns.html?searchResultPosition=1
+https://nytimes.com/2021/08/10/opinion/cuomo-resigns.html?searchResultPosition=2
 
 **San Diego Sheriff Releases New Details About Video of Deputy’s Collapse**\
 `A lab analysis revealed fentanyl in a substance handled by a sheriff’s deputy who later collapsed, but medical experts cautioned that merely handling the drug is insufficient to trigger an overdose.`\
-https://nytimes.com/2021/08/10/us/san-diego-fentanyl-overdose-video.html?searchResultPosition=2
+https://nytimes.com/2021/08/10/us/san-diego-fentanyl-overdose-video.html?searchResultPosition=3
 
 **What to Know About Breakthrough Infections and the Delta Variant**\
 `Scientific understanding of the coronavirus variant is changing quickly. Here’s a recap of the most important findings.`\
-https://nytimes.com/article/covid-breakthrough-delta-variant.html?searchResultPosition=3
+https://nytimes.com/article/covid-breakthrough-delta-variant.html?searchResultPosition=4
 
 **In Resignation Speech, Cuomo Makes a Last Play to Preserve His Legacy**\
 `In his resignation speech, Gov. Andrew Cuomo expressed regrets but also emphasized his achievements during three terms leading New York State.`\
-https://nytimes.com/2021/08/10/nyregion/cuomo-legacy-resignation-speech.html?searchResultPosition=4
+https://nytimes.com/2021/08/10/nyregion/cuomo-legacy-resignation-speech.html?searchResultPosition=5
 
 **Cuomo’s Resignation: Shock to Many, Relief to Some, Overdue to Others**\
 `The governor’s decision to leave office as a potential impeachment loomed touched off a range of reactions from Washington to Buffalo.`\
-https://nytimes.com/2021/08/10/nyregion/cuomo-resignation-reaction.html?searchResultPosition=5
+https://nytimes.com/2021/08/10/nyregion/cuomo-resignation-reaction.html?searchResultPosition=6
 
 **Gov. Kate Brown of Oregon plans to restore a statewide mask mandate on Wednesday.**\
 `Ms. Brown cited new modeling that projected that, with cases surging, the state’s hospital capacity could be overrun within weeks.`\
-https://nytimes.com/2021/08/10/us/oregon-kate-brown-mask-mandate.html?searchResultPosition=6
+https://nytimes.com/2021/08/10/us/oregon-kate-brown-mask-mandate.html?searchResultPosition=7
 
 **‘The Kissing Booth 3’ Review: Last in the Pecking Order**\
 `In this Netflix trilogy’s bland finale, teenagers tick off elaborate bucket-list items during their summer before college.`\
-https://nytimes.com/2021/08/10/movies/the-kissing-booth-3-review.html?searchResultPosition=7
+https://nytimes.com/2021/08/10/movies/the-kissing-booth-3-review.html?searchResultPosition=8
 
 **The Cheap & Easy Sanctimony of Ben & Jerry**\
 `The godfathers of "Woke Inc." stumble in the Middle East. `\
-https://nytimes.com/2021/08/10/opinion/israel-ben-and-jerry.html?searchResultPosition=8
+https://nytimes.com/2021/08/10/opinion/israel-ben-and-jerry.html?searchResultPosition=9
 
 **How Cuomo’s Downfall Paved the Way for Kathy Hochul to Make History**\
 `When she is sworn in, Ms. Hochul will become the first woman to serve as governor of New York. “I would say there’s no one better suited to step in now than she,” one ally said.`\
-https://nytimes.com/2021/08/10/nyregion/kathy-hochul-cuomo-ny-governor.html?searchResultPosition=9
-
-**Thousands in Britain Are Trying to Save Geronimo the Alpaca From Execution**\
-`Agricultural authorities say he has bovine tuberculosis, but a local vet and a “human chain” of “alpaca angels” say the government’s test yields false positives.`\
-https://nytimes.com/2021/08/10/world/europe/geronimo-alpaca-execution-.html?searchResultPosition=10
+https://nytimes.com/2021/08/10/nyregion/kathy-hochul-cuomo-ny-governor.html?searchResultPosition=10
 
