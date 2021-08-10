@@ -1,10 +1,10 @@
-**Massachusetts Start-Up Hopes to Move a Step Closer to Commercial Fusion**\
-`The company, founded by scientists at M.I.T., has been testing an extremely powerful magnet necessary to generate immense heat.`\
-https://nytimes.com/2021/08/10/technology/commonwealth-fusion-mit-reactor.html?searchResultPosition=1
-
 **Delta Variant Casts a Shadow Over Midtown Manhattan’s Shaky Recovery**\
 `Signs of life have emerged as restaurants and stores reopen, but trouble looms as a rise in coronavirus cases delays some returns to the office.`\
-https://nytimes.com/2021/08/10/business/midtown-manhanttan-recovery-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2021/08/10/business/midtown-manhanttan-recovery-coronavirus.html?searchResultPosition=1
+
+**Massachusetts Start-Up Hopes to Move a Step Closer to Commercial Fusion**\
+`The company, founded by scientists at M.I.T., has been testing an extremely powerful magnet necessary to generate immense heat.`\
+https://nytimes.com/2021/08/10/technology/commonwealth-fusion-mit-reactor.html?searchResultPosition=2
 
 **Everytown for Gun Safety will spend $3 million to train its volunteers to run for office.**\
 `The program is the latest step in a yearslong effort by groups that support stricter gun laws to become politically competitive with the National Rifle Association.`\
