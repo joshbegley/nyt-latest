@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/10/arts/television/stephen-colbert-obama-birthday.ht
 https://nytimes.com/2021/08/10/pageoneplus/corrections-aug-10-2021.html?searchResultPosition=2
 
 **Quotation of the Day: Climate Report Stressed Unity but Stoked Ire**\
-`Quotation of the Day for Tuesday, August 9, 2021.`\
+`Quotation of the Day for Tuesday, August 10, 2021.`\
 https://nytimes.com/2021/08/10/todayspaper/quotation-of-the-day-climate-report-stressed-unity-but-stoked-ire.html?searchResultPosition=3
 
 **Europe Reopened to Americans. Why, It Asks, Hasn’t the U.S. Reciprocated?**\
