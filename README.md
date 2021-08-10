@@ -2,7 +2,7 @@
 `The show, hosted by the food writer Stephen Satterfield, traces the origins of African American food.`\
 https://nytimes.com/2021/08/10/dining/high-on-the-hog-netflix.html?searchResultPosition=1
 
-**Cuomo’s resignation is greeted with relief and surprise.**\
+**‘Never thought I’d see this day’: Cuomo’s resignation is greeted with relief.**\
 `Many officials said they believed that Mr. Cuomo made the right decision, and his accusers expressed relief. `\
 https://nytimes.com/2021/08/10/nyregion/cuomo-resignation-reactions.html?searchResultPosition=2
 
