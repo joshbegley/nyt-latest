@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/10/world/europe/prince-andrew-lawsuit.html?searchRes
 https://nytimes.com/2021/08/10/nyregion/thomas-spota-mcpartland-sentencing.html?searchResultPosition=2
 
 **Felice Opens an Upper West Side Branch**\
-`Veronika reopens with a new chef; Sami and Sasu sets down roots in the Lower East Side; and more restaurant news.`\
+`Veronika reopens with a new chef, Sami and Sasu sets down roots in the Lower East Side, and more restaurant news.`\
 https://nytimes.com/2021/08/10/dining/nyc-restaurant-news.html?searchResultPosition=3
 
 **Cuomo will face legal threats even after he resigns.**\
