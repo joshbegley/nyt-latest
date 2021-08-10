@@ -2,13 +2,13 @@
 `The pandemic has changed shopping habits. Today, we take a look at what’s happening with malls in the U.S.`\
 https://nytimes.com/2021/08/10/briefing/shopping-pandemic-american-malls.html?searchResultPosition=1
 
-**How to Unlock the Equity in Your Home**\
-`With the values of homes surging, U.S. homeowners have record amounts of equity available to them. Here are a few ways to cash in.`\
-https://nytimes.com/2021/08/10/realestate/tapping-home-equity.html?searchResultPosition=2
-
 **The Taliban’s Advance**\
 `As the United States withdraws from Afghanistan, the group is seizing control of cities. Why is it succeeding so quickly?`\
-https://nytimes.com/2021/08/10/podcasts/the-daily/afghanistan-taliban-us-withdrawal.html?searchResultPosition=3
+https://nytimes.com/2021/08/10/podcasts/the-daily/afghanistan-taliban-us-withdrawal.html?searchResultPosition=2
+
+**How to Unlock the Equity in Your Home**\
+`With the values of homes surging, U.S. homeowners have record amounts of equity available to them. Here are a few ways to cash in.`\
+https://nytimes.com/2021/08/10/realestate/tapping-home-equity.html?searchResultPosition=3
 
 **Cuomo Tries to Drag Out Impeachment Process**\
 `As calls for his resignation grow, Gov. Andrew Cuomo remains eager to fight back against findings that he sexually harassed 11 women.`\
