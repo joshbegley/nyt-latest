@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/11/business/lordstown-motors-cash-earnings.html?sear
 `Scientists have improved their forecast of the orbital path of Bennu, a space rock the size of the Empire State Building that was visited by the OSIRIS-REX spacecraft.`\
 https://nytimes.com/2021/08/11/science/asteroid-bennu-earth-osiris-rex.html?searchResultPosition=4
 
-**Former U.S. attorney in Atlanta says Trump wanted him to back election fraud claims.**\
+**Former U.S. attorney in Atlanta says Trump wanted to fire him for not backing election fraud claims.**\
 `Byung J. Pak, who resigned abruptly on Jan. 4, told senators on Wednesday that he had done so after learning that the president planned to fire him.`\
 https://nytimes.com/2021/08/11/us/politics/byung-pak-trump-atlanta-election-fraud.html?searchResultPosition=5
 
