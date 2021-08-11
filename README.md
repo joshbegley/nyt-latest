@@ -1,5 +1,5 @@
 **In Two Weeks, a New Governor of New York**\
-`Gov. Andrew Cuomo's downfall was an astonishing reversal, after he became one of the nation’s best-known leaders  in the pandemic.`\
+`Gov. Andrew Cuomo's downfall was an astonishing reversal after he became one of the nation’s best-known leaders  in the pandemic.`\
 https://nytimes.com/2021/08/11/nyregion/cuomo-hochul-governor.html?searchResultPosition=1
 
 **After Tearful Departure, Cheers Greet Messi in Paris**\
