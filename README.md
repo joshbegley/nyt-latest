@@ -19,7 +19,7 @@ https://nytimes.com/2021/08/11/well/move/workout-stress-fear.html?searchResultPo
 https://nytimes.com/2021/08/11/dining/back-to-focaccia.html?searchResultPosition=5
 
 **U.K. Salon Industry Long Underserved Black Clients. It’s Vowing to Change That.**\
-`The country’s offering of salons has long underserved Black people. Will new standards requiring trainees to learn how to work with textured hair change that inequality?`\
+`Even as many stylists see the new industry standards as significant, others worry that the change could take customers from existing Black-owned salons.`\
 https://nytimes.com/2021/08/11/world/europe/uk-black-hair.html?searchResultPosition=6
 
 **Pining for the Intimacy of Pandemic Pods**\
