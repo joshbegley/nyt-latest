@@ -34,7 +34,7 @@ https://nytimes.com/video/world/100000007915585/algeria-wildfire.html?searchResu
 `A judge ruled in favor of San Antonio and its surrounding county, which sued over Governor Abbott’s mask mandate ban.`\
 https://nytimes.com/2021/08/10/us/texas-delta-abbott-mask-mandate.html?searchResultPosition=9
 
-**Tony Esposito, Hockey Hall of Famer, Dies at 78**\
-`Esposito spent 15 years playing in Chicago and was an early pioneer of the butterfly style of goaltending.`\
-https://nytimes.com/2021/08/10/sports/hockey/tony-esposito-hockey-hall-of-famer-dies-at-78.html?searchResultPosition=10
+**Tony Esposito, Nimble Hall of Fame Goalie Known as Tony O, Dies at 78**\
+`Esposito guarded the Chicago Blackhawks’ net for 15 seasons and was an early pioneer of the butterfly style of goaltending.`\
+https://nytimes.com/2021/08/10/sports/hockey/tony-esposito-dead.html?searchResultPosition=10
 
