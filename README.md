@@ -15,7 +15,7 @@ https://nytimes.com/2021/08/10/pageoneplus/corrections-aug-11-2021.html?searchRe
 https://nytimes.com/2021/08/10/us/jason-isbell-stevie-nix-cancel-shows-covid.html?searchResultPosition=4
 
 **Texas Republicans order the arrest of Democrats who fled to block G.O.P. voting bill.**\
-`It was not immediately clear if any warrants had been issued late Tuesday.`\
+`After the vote, Dade Phelan, the speaker of the Texas House, signed 52 civil arrest warrants, his spokesman said.`\
 https://nytimes.com/2021/08/10/us/politics/texas-house-democrats-arrest.html?searchResultPosition=5
 
 **Support Column**\
