@@ -2,7 +2,7 @@
 `The company will celebrate Robert Battle’s 10 years as artistic director at New York City Center in December.`\
 https://nytimes.com/2021/08/11/arts/dance/alvin-ailey-american-dance-theater-announces-in-person-season.html?searchResultPosition=1
 
-**‘I Am Fully Prepared’: Hochul Says Transition to Governor Has Begun**\
+**‘I Am Prepared’: Hochul Says Transition to Governor Has Begun**\
 `In her first remarks since Gov. Andrew Cuomo resigned, the lieutenant governor, Kathy Hochul, distanced herself from the governor and promised her office would not be “toxic.”`\
 https://nytimes.com/2021/08/11/nyregion/kathy-hochul-speech-cuomo.html?searchResultPosition=2
 
