@@ -2,7 +2,7 @@
 `She and her husband ran a Vermont-based troupe that has taken on social and political issues in productions featuring enormous puppets.`\
 https://nytimes.com/2021/08/11/theater/elka-schumann-dead.html?searchResultPosition=1
 
-**To Know How Investors Are Weighing Economic Growth, Watch This Number**\
+**One Number to Gauge Where the Economy Is Headed**\
 `The yield on the 10-year Treasury note is often a reliable indicator of how Wall Street views the prospects of economic growth — especially when other data points send confusing signals.`\
 https://nytimes.com/2021/08/11/business/treasury-note-economy-wall-street.html?searchResultPosition=2
 
