@@ -32,7 +32,7 @@ https://nytimes.com/2021/08/11/health/vaccine-pregnant-cdc.html?searchResultPosi
 
 **Watch Live: Kathy Hochul Speaks After Cuomo Resignation**\
 `Lt. Gov. Kathy Hochul gives her first address after Gov. Andrew M. Cuomo announced he would resign. She is expected to take office in two weeks.`\
-https://nytimes.com/video/us/politics/100000007916167/kathy-hochul-press-conference.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/politics/100000007916167/kathy-hochul-press-conference.html?searchResultPosition=9
 
 **Life Is Short. What Are You Going to Do About That?**\
 `In “Four Thousand Weeks,” a self-help book skeptical of self-help, Oliver Burkeman offers perspective on how we might spend the fleeting time that we get.`\
