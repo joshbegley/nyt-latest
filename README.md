@@ -15,7 +15,7 @@ https://nytimes.com/2021/08/11/business/lordstown-motors-cash-earnings.html?sear
 https://nytimes.com/2021/08/11/science/asteroid-bennu-earth-osiris-rex.html?searchResultPosition=4
 
 **Former U.S. attorney in Atlanta says Trump wanted to fire him for not backing election fraud claims.**\
-`Byung J. Pak, who resigned abruptly on Jan. 4, told senators on Wednesday that he had done so after learning that the president planned to fire him.`\
+`Byung J. Pak, who resigned abruptly on Jan. 4, told senators on Wednesday that he had done so after learning that the president planned to fire him, according to a person familiar with his testimony.`\
 https://nytimes.com/2021/08/11/us/politics/byung-pak-trump-atlanta-election-fraud.html?searchResultPosition=5
 
 **Scottish Group Seeks Source of Trump’s Funds for Golf Courses**\
