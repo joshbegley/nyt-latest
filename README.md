@@ -34,7 +34,7 @@ https://nytimes.com/2021/08/10/todayspaper/quotation-of-the-day-as-us-exits-afgh
 `Corrections that appeared in print on Wednesday, Aug. 11, 2021.`\
 https://nytimes.com/2021/08/10/pageoneplus/corrections-aug-11-2021.html?searchResultPosition=9
 
-**Jason Isbell and Stevie Nicks have canceled shows over Covid concerns.**\
+**Jason Isbell and Stevie Nicks cancel shows over Covid concerns.**\
 `Isbell canceled a show in Houston, while Nicks canceled all of her shows scheduled for this year.`\
 https://nytimes.com/2021/08/10/us/jason-isbell-stevie-nix-cancel-shows-covid.html?searchResultPosition=10
 
