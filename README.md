@@ -14,8 +14,8 @@ https://nytimes.com/2021/08/11/health/covid-testing-sites-reopen.html?searchResu
 `A program offering residents $100 in exchange for a Covid vaccine has helped raise vaccination rates in the city.`\
 https://nytimes.com/interactive/2021/08/11/nyregion/100-dollar-vaccines.html?searchResultPosition=4
 
-**The C.D.C. endorses Covid vaccinations for pregnant people.**\
-`The risks of having Covid-19 during a pregnancy are well-established, including severe illness, admission to intensive care, preterm birth and death.`\
+**The C.D.C. endorses Covid vaccinations during pregnancy.**\
+`New data show that vaccinations carry no increased risk of miscarriage, while the risks of contracting Covid-19 while pregnant are well-established and include severe illness, admission to intensive care, preterm birth and death.`\
 https://nytimes.com/2021/08/11/health/vaccine-pregnant-cdc.html?searchResultPosition=5
 
 **Watch Live: Kathy Hochul Speaks After Cuomo Resignation**\
