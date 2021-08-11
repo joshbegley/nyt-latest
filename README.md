@@ -1,40 +1,40 @@
+**Tropical Storm Fred Develops Near Puerto Rico**\
+`The storm is expected to move over Cuba and head northwest into the Gulf of Mexico, near Florida.`\
+https://nytimes.com/article/tropical-storm-fred-hurricane.html?searchResultPosition=1
+
 **China Sentences Canadian Businessman to 11 Years in Prison**\
 `The prosecution of Michael Spavor has been widely seen as political retaliation by China against Canada for the detention of a Chinese technology executive.`\
-https://nytimes.com/2021/08/10/world/asia/china-canada-spavor-kovrig.html?searchResultPosition=1
+https://nytimes.com/2021/08/10/world/asia/china-canada-spavor-kovrig.html?searchResultPosition=2
 
 **Quotation of the Day: As U.S. Exits Afghanistan, History Implies It May Have to Return**\
 `Quotation of the Day for Wednesday, August 11, 2021.`\
-https://nytimes.com/2021/08/10/todayspaper/quotation-of-the-day-as-us-exits-afghanistan-history-implies-it-may-have-to-return.html?searchResultPosition=2
+https://nytimes.com/2021/08/10/todayspaper/quotation-of-the-day-as-us-exits-afghanistan-history-implies-it-may-have-to-return.html?searchResultPosition=3
 
 **Corrections: Aug. 11, 2021**\
 `Corrections that appeared in print on Wednesday, Aug. 11, 2021.`\
-https://nytimes.com/2021/08/10/pageoneplus/corrections-aug-11-2021.html?searchResultPosition=3
+https://nytimes.com/2021/08/10/pageoneplus/corrections-aug-11-2021.html?searchResultPosition=4
 
 **Jason Isbell and Stevie Nicks have canceled shows over Covid concerns.**\
 `Isbell canceled a show in Houston, while Nicks canceled all of her shows scheduled for this year.`\
-https://nytimes.com/2021/08/10/us/jason-isbell-stevie-nix-cancel-shows-covid.html?searchResultPosition=4
+https://nytimes.com/2021/08/10/us/jason-isbell-stevie-nix-cancel-shows-covid.html?searchResultPosition=5
 
 **Texas Republicans order the arrest of Democrats who fled to block G.O.P. voting bill.**\
 `After the vote, Dade Phelan, the speaker of the Texas House, signed 52 civil arrest warrants, his spokesman said.`\
-https://nytimes.com/2021/08/10/us/politics/texas-house-democrats-arrest.html?searchResultPosition=5
+https://nytimes.com/2021/08/10/us/politics/texas-house-democrats-arrest.html?searchResultPosition=6
 
 **Support Column**\
 `Joe DiPietro’s got his game face on.`\
-https://nytimes.com/2021/08/10/crosswords/daily-puzzle-2021-08-11.html?searchResultPosition=6
+https://nytimes.com/2021/08/10/crosswords/daily-puzzle-2021-08-11.html?searchResultPosition=7
 
 **Railing at Enemies and Pleading for Time: Inside Cuomo’s Final Days**\
 `Behind the scenes, the governor vacillated between defiant and defeated, eventually accepting that his formidable political army had fallen away.`\
-https://nytimes.com/2021/08/10/us/politics/cuomo-resignation-timeline.html?searchResultPosition=7
+https://nytimes.com/2021/08/10/us/politics/cuomo-resignation-timeline.html?searchResultPosition=8
 
 **Wildfires Rage in Algeria**\
 `Deadly wildfires burned through forested mountains in the Kabyle region of Algeria, carving a path of destruction through small, isolated communities and killing soldiers and civilians.`\
-https://nytimes.com/video/world/100000007915585/algeria-wildfire.html?searchResultPosition=8
+https://nytimes.com/video/world/100000007915585/algeria-wildfire.html?searchResultPosition=9
 
-**Local Texas officials are defying the governor’s ban on mask mandates.**\
-`A judge ruled in favor of San Antonio and its surrounding county, which sued over Governor Abbott’s mask mandate ban.`\
-https://nytimes.com/2021/08/10/us/texas-delta-abbott-mask-mandate.html?searchResultPosition=9
-
-**Tony Esposito, Nimble Hall of Fame Goalie Known as Tony O, Dies at 78**\
-`Esposito guarded the Chicago Blackhawks’ net for 15 seasons and was an early pioneer of the butterfly style of goaltending.`\
-https://nytimes.com/2021/08/10/sports/hockey/tony-esposito-dead.html?searchResultPosition=10
+**The Texas governor’s ban on mask mandates has been dealt twin legal setbacks.**\
+`Judges have ruled in favor of San Antonio and its surrounding county and Dallas County, which sued over Governor Abbott’s mask mandate ban.`\
+https://nytimes.com/2021/08/10/us/texas-delta-abbott-mask-mandate.html?searchResultPosition=10
 
