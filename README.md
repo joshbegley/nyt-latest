@@ -7,8 +7,8 @@ https://nytimes.com/2021/08/12/movies/watch-ryan-reynolds-power-up-in-free-guy.h
 https://nytimes.com/video/movies/100000007915713/free-guy-scene.html?searchResultPosition=2
 
 **Kamala Harris invites business leaders to the White House to discuss child care.**\
-`The invitees, including executives from Airbnb, Chobani, Etsy and Microsoft, were chosen to drum up support for a key pillar of President Biden's`\
-https://nytimes.com/2021/08/12/business/kamala-harris-invites-business-leaders-to-the-white-house-to-discuss-child-care.html?searchResultPosition=3
+`Executives from companies like Airbnb, Chobani, Etsy and Microsoft were invited in an effort to drum up support for a key pillar of President Biden's $3.5 trillion budget.`\
+https://nytimes.com/2021/08/12/business/kamala-harris-child-care-business.html?searchResultPosition=3
 
 **The Elan of Elon Musk**\
 `A longtime critic of the Tesla chief executive explains why his bets against the car company haven’t paid off.`\
