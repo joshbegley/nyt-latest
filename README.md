@@ -30,7 +30,7 @@ https://nytimes.com/2021/08/12/world/europe/sicily-record-high-temperature-119-d
 `A study reveals that home prices in the 50 largest U.S. cities present a major challenge to inexperienced buyers.`\
 https://nytimes.com/2021/08/12/realestate/first-time-home-buyers-struggle.html?searchResultPosition=8
 
-**At the Scene of the Dixie Fire**\
+**What the Dixie Fire Took From Hundreds of Residents**\
 `A reporter shares stories of loss and uncertainty from the second-largest blaze in state history. Plus, Gov. Gavin Newsom mandates vaccines for teachers.`\
 https://nytimes.com/2021/08/12/us/ca-dixie-fire-scene.html?searchResultPosition=9
 
