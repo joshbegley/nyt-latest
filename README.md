@@ -26,8 +26,8 @@ https://nytimes.com/2021/08/12/nyregion/alphonso-david-human-right-campaign-cuom
 `“Automania” airlifts nine cars into the sculpture garden and galleries. But it’s harder now to think of cars as objects of beauty.`\
 https://nytimes.com/2021/08/12/arts/design/automania-moma-review.html?searchResultPosition=7
 
-**The largest U.S. teacher’s union announces support for vaccination or testing for educators.**\
-`The announcement comes after Randi Weingarten, the leader of another major teachers union, signaled strong support for vaccine mandates.`\
+**The largest U.S. teachers’ union announces support for vaccination or testing for educators.**\
+`The announcement comes after the leader of another major teachers’ union signaled strong support for vaccine mandates.`\
 https://nytimes.com/2021/08/12/world/teachers-union-vaccine-mandate.html?searchResultPosition=8
 
 **Can We Ever Look at Titian’s Paintings the Same Way Again?**\
