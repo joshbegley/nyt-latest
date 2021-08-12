@@ -1,40 +1,40 @@
+**Census Committee Unveils New 2020 Data**\
+`The Census Committee released new data from the 2020 survey showing that U.S. population growth slowed over the past decade while the nation became more racially diverse.`\
+https://nytimes.com/video/us/politics/100000007918937/2020-census-data.html?searchResultPosition=1
+
 **13 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2021/08/12/books/review/13-new-books-we-recommend-this-week.html?searchResultPosition=1
+https://nytimes.com/2021/08/12/books/review/13-new-books-we-recommend-this-week.html?searchResultPosition=2
 
 **Biden Calls for Lower Prescription Drug Prices**\
 `President Biden implored congress to include provisions aimed at reducing the price of prescription drugs in the $3.5 trillion social policy bill that Democrats are currently writing and also outlined executive actions he is taking to reduce prices.`\
-https://nytimes.com/video/us/politics/100000007918825/biden-prescription-drug-prices.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000007918825/biden-prescription-drug-prices.html?searchResultPosition=3
 
 **Oil turns a rural county in North Dakota into a boomtown.**\
 `McKenzie County in the west of the state grew faster than any American county, more than doubling in size as the Bakken oil boom attracted workers.`\
-https://nytimes.com/2021/08/12/us/north-dakota-mckenzie-county-population.html?searchResultPosition=3
+https://nytimes.com/2021/08/12/us/north-dakota-mckenzie-county-population.html?searchResultPosition=4
 
 **The growth along the corridor between San Antonio and Austin is ‘kind of mind-blowing.’**\
 `Census officials confirmed what has long been plainly visible in the stretch of Central and South Texas: Many new people were moving in.`\
-https://nytimes.com/2021/08/12/us/austin-san-antonio-texas-census.html?searchResultPosition=4
+https://nytimes.com/2021/08/12/us/austin-san-antonio-texas-census.html?searchResultPosition=5
 
 **No large city grew faster than Phoenix.**\
 `Arizona’s capital grew at the fastest rate among America’s biggest cities, vaulting it ahead of Philadelphia to officially become the fifth-biggest city in the U.S. since the last census.`\
-https://nytimes.com/2021/08/12/us/phoenix-census-fastest-growing-city.html?searchResultPosition=5
+https://nytimes.com/2021/08/12/us/phoenix-census-fastest-growing-city.html?searchResultPosition=6
 
 **Biden Urges Masks in Schools as Coronavirus Spreads**\
 `President Biden urged mask mandates in schools as the coronavirus spreads, particularly the Delta variant, because young children are not yet eligible to be vaccinated yet.`\
-https://nytimes.com/video/us/politics/100000007918778/biden-schools-masks-covid.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000007918778/biden-schools-masks-covid.html?searchResultPosition=7
 
 **Are Delta Symptoms Different?**\
 `We asked experts to describe the most prevalent symptoms they’re seeing right now among people with Covid-19.`\
-https://nytimes.com/2021/08/12/well/live/delta-variant-symptoms.html?searchResultPosition=7
+https://nytimes.com/2021/08/12/well/live/delta-variant-symptoms.html?searchResultPosition=8
 
 **How the Census Bureau Stood Up to Donald Trump’s Meddling**\
 `The failed attempt would have benefited Republicans by sapping electoral strength from Democratic-leaning areas.`\
-https://nytimes.com/2021/08/12/sunday-review/census-redistricting-trump-immigrants.html?searchResultPosition=8
+https://nytimes.com/2021/08/12/sunday-review/census-redistricting-trump-immigrants.html?searchResultPosition=9
 
 **The Villages, a retirement community in Florida, was the fastest-growing metro area over the last decade.**\
 `About a 45-minute drive from Orlando, the area’s population jumped 39 percent since 2010 — from about 93,000 residents to about 130,000.`\
-https://nytimes.com/2021/08/12/us/the-villages-census-florida-population.html?searchResultPosition=9
-
-**F.D.A. Approves GHB, a ‘Date Rape’ Drug, for Rare Sleeping Disorder**\
-`Jazz Pharmaceuticals brought in more than $1.7 billion last year selling GHB to narcolepsy patients. With the new approval, sales could soar.`\
-https://nytimes.com/2021/08/12/health/GHB-hypersomnia-sleep-FDA.html?searchResultPosition=10
+https://nytimes.com/2021/08/12/us/the-villages-census-florida-population.html?searchResultPosition=10
 
