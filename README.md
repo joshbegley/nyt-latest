@@ -2,7 +2,7 @@
 `Census officials confirmed what has long been plainly visible in the stretch of Central and South Texas: Many new people were moving in.`\
 https://nytimes.com/2021/08/12/us/austin-san-antonio-texas-census.html?searchResultPosition=1
 
-**Phoenix, sprawling outward into the desert, is the fastest-growing large city.**\
+**No large city grew faster than Phoenix.**\
 `Arizona’s capital grew at the fastest rate among America’s biggest cities, vaulting it ahead of Philadelphia to officially become the fifth-biggest city in the U.S. since the last census.`\
 https://nytimes.com/2021/08/12/us/phoenix-census-fastest-growing-city.html?searchResultPosition=2
 
