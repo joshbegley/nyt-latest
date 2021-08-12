@@ -1,4 +1,4 @@
-**Cuomo is Resigning, but Some Legislators Still Want to Impeach Him**\
+**Cuomo Is Resigning, but Some Legislators Still Want to Impeach Him**\
 `The New York State Assembly could still move to impeach the governor, but many high-ranking Democrats want to avoid that outcome.`\
 https://nytimes.com/2021/08/12/nyregion/cuomo-impeachment-investigation.html?searchResultPosition=1
 
