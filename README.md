@@ -1,5 +1,5 @@
-**Census Shows Demographic Shift: Diversity Rises. White Population Drops.**\
-`The U.S. population increase was made up entirely of people who identified as Hispanic, Asian, Black and more than one race. The number of multiracial Americans more than doubled.`\
+**Census Shows Sharply Growing Numbers of Hispanic, Asian and Multiracial Americans**\
+`Overall population growth slowed substantially over the past decade, but the number of multiracial Americans more than doubled.`\
 https://nytimes.com/2021/08/12/us/us-census-population-growth-diversity.html?searchResultPosition=1
 
 **Supreme Court Blocks Part of New York’s Eviction Moratorium**\
