@@ -1,6 +1,6 @@
 **New Books That Look at the Pandemic and Its Consequences**\
 `From the account of a new doctor to an insider’s look at the government response to Covid, four new titles that capture our reality.`\
-https://nytimes.com/2021/08/12/books/review/new-books-that-look-at-the-pandemic-and-its-consequences.html?searchResultPosition=1
+https://nytimes.com/2021/08/12/books/review/covid-pandemic-books.html?searchResultPosition=1
 
 **Extreme Weather in the Midwest Leads to Power Outages**\
 `Extreme weather including rain, in Midwestern states like Ohio and Michigan, caused widespread power outages throughout the region. This only added to miserable conditions due to extreme heat.`\
