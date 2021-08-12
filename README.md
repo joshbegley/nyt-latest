@@ -23,7 +23,7 @@ https://nytimes.com/2021/08/12/dining/summer-dinner-recipe.html?searchResultPosi
 https://nytimes.com/2021/08/12/opinion/letters/andrew-cuomo-resignation.html?searchResultPosition=6
 
 **Watch Live: Census Bureau Releases Data**\
-`The Census Bureau holds a news conference to officially release the results of the first district-level results 2020 census. This data is expected to jump start a fight over redistricting in all 50 states.`\
+`The Census Bureau is holding a news conference to officially release the results of the first district-level results from the 2020 census. This data is expected to jump-start a fight over redistricting in all 50 states.`\
 https://nytimes.com/video/us/100000007918152/census-data-video.html?searchResultPosition=7
 
 **H.H.S. will require its health workers to get the Covid vaccine.**\
