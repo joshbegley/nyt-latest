@@ -1,4 +1,4 @@
-**Afghan Collapse Accelerates, As 2 Vital Cities Are Falling to the Taliban**\
+**Afghan Collapse Accelerates as 2 Vital Cities Are Falling to the Taliban**\
 `The loss of two of the country’s cultural capitals — Kandahar in the south, and Herat in the West — is a devastating blow to the government.`\
 https://nytimes.com/2021/08/12/world/asia/kandahar-afghanistan-taliban.html?searchResultPosition=1
 
