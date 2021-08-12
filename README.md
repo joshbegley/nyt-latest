@@ -10,7 +10,7 @@ https://nytimes.com/2021/08/12/movies/white-as-snow-review.html?searchResultPosi
 `Attorney General Merrick B. Garland held a virtual meeting with 35 state Supreme Court justices in an effort to encourage them to try to avert or delay evictions.`\
 https://nytimes.com/2021/08/12/us/politics/garland-judges-eviction-moratorium.html?searchResultPosition=3
 
-**Europe may have hit it hottest temperature on record amid devastating wildfires and floods.**\
+**Europe may have hit its hottest temperature on record amid devastating wildfires and floods.**\
 `A monitoring station in Sicily reached nearly 120 degrees Fahrenheit. And at least five children were missing as flash floods swept through northern Turkey.`\
 https://nytimes.com/2021/08/12/climate/europe-hottest-temperature-sicily.html?searchResultPosition=4
 
