@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/12/us/delta-variant-colleges-vaccines.html?searchRes
 https://nytimes.com/video/us/100000007919116/vaccine-booster-shot.html?searchResultPosition=3
 
 **Boston grew swiftly over the decade, as its white population waned.**\
-`Census data showed that Boston grew 12.1 percent between the 2010 and 2020 counts, while the portion of residents identifying as white continued to dip, from 47 percent in 2010 to 44.5 percent.`\
+`Census data showed that Boston’s population grew by 58,000 between the 2010 and 2020 counts, while the portion of residents identifying as white continued to dip, from 47 percent in 2010 to 44.5 percent.`\
 https://nytimes.com/2021/08/12/us/boston-population-growth.html?searchResultPosition=4
 
 **Your Friday Briefing**\
