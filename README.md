@@ -24,7 +24,7 @@ https://nytimes.com/2021/08/12/sunday-review/census-redistricting-trump-immigran
 
 **The Villages, a retirement community in Florida, was the fastest-growing metro area over the last decade.**\
 `About a 45-minute drive from Orlando, the area’s population jumped 39 percent since 2010 — from about 93,000 residents to about 130,000.`\
-https://nytimes.com/2021/08/12/us/retirement-community-florida-population-data.html?searchResultPosition=7
+https://nytimes.com/2021/08/12/us/the-villages-census-florida-population.html?searchResultPosition=7
 
 **F.D.A. Approves GHB, a ‘Date Rape’ Drug, for Rare Sleeping Disorder**\
 `Jazz Pharmaceuticals brought in more than $1.7 billion last year selling GHB to narcolepsy patients. With the new approval, sales could soar.`\
