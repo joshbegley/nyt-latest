@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/12/us/schumer-senate-democrats.html?searchResultPosi
 https://nytimes.com/2021/08/12/world/europe/england-fatal-shooting-plymouth.html?searchResultPosition=2
 
 **While Democrats eye urban gains, Republicans will rely on drawing favorable districts.**\
-`Gains in metropolitan areas seemed to buoy Democratic hopes. But the census data also signaled the beginning of an intense phase of congressional redistricting that is expected to help Republicans.`\
+`Gains in metropolitan areas seemed to buoy Democratic hopes. But the census data also signaled the start of congressional redistricting fights that are expected to help Republicans.`\
 https://nytimes.com/2021/08/12/us/democrats-republicans-redistricting-census.html?searchResultPosition=3
 
 **Diversity rises in Georgia, with whites making up only half the state.**\
