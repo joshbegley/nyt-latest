@@ -1,40 +1,40 @@
+**How the Census Bureau Stood Up to Donald Trump’s Meddling**\
+`The failed attempt would have benefited Republicans by sapping electoral strength from Democratic-leaning areas.`\
+https://nytimes.com/2021/08/12/sunday-review/census-redistricting-trump-immigrants.html?searchResultPosition=1
+
 **F.D.A. Approves GHB, a ‘Date Rape’ Drug, for Rare Sleeping Disorder**\
 `Jazz Pharmaceuticals brought in more than $1.7 billion last year selling GHB to narcolepsy patients. With the new approval, sales could soar.`\
-https://nytimes.com/2021/08/12/health/GHB-hypersomnia-sleep-FDA.html?searchResultPosition=1
+https://nytimes.com/2021/08/12/health/GHB-hypersomnia-sleep-FDA.html?searchResultPosition=2
 
 **How Much Watching Time Do You Have This Weekend?**\
 `“Brooklyn Nine-Nine” is back, and a scrappy new wrestling drama pits brother against brother, inside the ring and beyond.`\
-https://nytimes.com/2021/08/12/arts/television/brooklyn-nine-nine-heels-hit-and-run.html?searchResultPosition=2
+https://nytimes.com/2021/08/12/arts/television/brooklyn-nine-nine-heels-hit-and-run.html?searchResultPosition=3
 
 **I Joined a Penguin NFT Club Because Apparently That’s What We Do Now**\
 `Is this what the metaverse looks like?`\
-https://nytimes.com/2021/08/12/technology/penguin-nft-club.html?searchResultPosition=3
+https://nytimes.com/2021/08/12/technology/penguin-nft-club.html?searchResultPosition=4
 
 **Adidas sells Reebok to Authentic Brands for $2.5 billion.**\
 `In the past few years, Authentic has acquired Brooks Brothers and Forever 21, adding to a stable that includes Sports Illustrated.`\
-https://nytimes.com/2021/08/12/business/adidas-reebok-authentic-brands.html?searchResultPosition=4
+https://nytimes.com/2021/08/12/business/adidas-reebok-authentic-brands.html?searchResultPosition=5
 
 **New Books That Look at the Pandemic and Its Consequences**\
 `From the account of a new doctor to an insider’s look at the government response to Covid, four new titles that capture our reality.`\
-https://nytimes.com/2021/08/12/books/review/covid-pandemic-books.html?searchResultPosition=5
+https://nytimes.com/2021/08/12/books/review/covid-pandemic-books.html?searchResultPosition=6
 
 **Extreme Weather in the Midwest Leads to Power Outages**\
 `Extreme weather including rain, in Midwestern states like Ohio and Michigan, caused widespread power outages throughout the region. This only added to miserable conditions due to extreme heat.`\
-https://nytimes.com/video/us/politics/100000007918519/climate-change-extreme-weather-power-outages.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000007918519/climate-change-extreme-weather-power-outages.html?searchResultPosition=7
 
 **A Woolly Mammoth’s Tusks Reveal a Map of Where It Roamed in Life**\
 `The technique used to reconstruct the animal’s 28-year journey across prehistoric Alaska could solve mysteries about the demise of the elephant-like mammals.`\
-https://nytimes.com/2021/08/12/science/mammoth-tusks-map.html?searchResultPosition=7
+https://nytimes.com/2021/08/12/science/mammoth-tusks-map.html?searchResultPosition=8
 
 **What We Think We Know About Metabolism May Be Wrong**\
 `A new study challenges assumptions about energy expenditure by people, including the idea that metabolism slows at middle age.`\
-https://nytimes.com/2021/08/12/health/metabolism-weight-aging.html?searchResultPosition=8
+https://nytimes.com/2021/08/12/health/metabolism-weight-aging.html?searchResultPosition=9
 
 **Marines Prepare for Possible Evacuation of Americans in Afghanistan**\
 `With the Taliban sweeping across the country, U.S. officials say Kabul could fall in 30 days.`\
-https://nytimes.com/2021/08/12/us/marines-evacuation-afghanistan.html?searchResultPosition=9
-
-**Biden presses Congress to move on prescription drug-price controls.**\
-`President Biden singled out drug prices as an issue he wants included in the Democrats’ $3.5 trillion social policy bill, including allowing Medicare to negotiate lower prices.`\
-https://nytimes.com/2021/08/12/us/politics/biden-prescription-drugs.html?searchResultPosition=10
+https://nytimes.com/2021/08/12/us/marines-evacuation-afghanistan.html?searchResultPosition=10
 
