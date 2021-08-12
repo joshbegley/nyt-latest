@@ -1,40 +1,40 @@
-**Australian officials are criticized over “double quarantine” for Olympians.**\
-`Sixteen athletes traveling to the state of South Australia must spend 28 days in quarantine. The country’s Olympic committee called the requirement “cruel.”`\
-https://nytimes.com/2021/08/12/world/australia/australia-olympic-athletes-quarantine.html?searchResultPosition=1
+**The March of the Karens**\
+`The name has come to represent an entitled and belligerent white woman. But what does this narrative say — and elide — about racism and sexism today?`\
+https://nytimes.com/2021/08/12/t-magazine/white-women-karen.html?searchResultPosition=1
 
-**The New York Times wants readers to pay for newsletters.**\
-`The Times will make 18 of its newsletters available only to subscribers but will keep flagship email offerings such as The Morning free.`\
-https://nytimes.com/2021/08/12/business/media/nyt-newsletters.html?searchResultPosition=2
+**Our Photographers’ Favorite Olympic Images**\
+`Times photographers sought to capture every aspect of the Olympic Games in Tokyo. These pictures were special to them.`\
+https://nytimes.com/2021/08/12/sports/our-photographers-favorite-olympic-images.html?searchResultPosition=2
 
-**How the Infrastructure Bill Passed (the Senate)**\
-`The Senate passed Biden’s infrastructure bill with bipartisan support. Here’s how that happened.`\
-https://nytimes.com/2021/08/12/briefing/infrastructure-bill-senate-bipartisan.html?searchResultPosition=3
+**‘Searching for Mr. Rugoff’ Review: Man Behind the Movies**\
+`A documentary looks at an influential distributor and theater owner who went after visionary films, including “Scenes From a Marriage” and “Putney Swope.”`\
+https://nytimes.com/2021/08/12/movies/searching-for-mr-rugoff-review.html?searchResultPosition=3
 
-**Meet Delta, the good Samaritan robot.**\
-`The robot, made using a rice cooker and other household goods, is delivering food and other essential items to Indonesian villagers infected with the virus.`\
-https://nytimes.com/2021/08/12/world/asia/delta-robot-indonesia.html?searchResultPosition=4
+**‘Not Going Quietly’ Review: Into the Long Fight**\
+`This documentary follows the activist Ady Barkan, who toured the U.S. to help demonstrators draw attention to public health policies after his diagnosis with a fatal neurological disease.`\
+https://nytimes.com/2021/08/12/movies/not-going-quietly-review.html?searchResultPosition=4
 
-**How Washington Now Works**\
-`What the bipartisan infrastructure bill and the partisan budget plan tell us about the state of Congress.`\
-https://nytimes.com/2021/08/12/podcasts/the-daily/congress-washington-infrastructure-bill-budget-plan.html?searchResultPosition=5
+**Top Stars in Tennis Choose Rest Ahead of the U.S. Open**\
+`The year’s final Grand Slam tournament begins in less than three weeks, but players including Rafael Nadal, Novak Djokovic and Serena Williams have chosen to skip the usual hardcourt warm-up events.`\
+https://nytimes.com/2021/08/12/sports/tennis/us-open-cincinnati-rafael-nadal-serena-williams.html?searchResultPosition=5
 
-**Kathy Hochul, and What Her Time as Governor May Hold**\
-`“I want people to know that I’m ready for this,” Lt. Gov. Kathy Hochul declared as she began a transition that will last less than two weeks. `\
-https://nytimes.com/2021/08/12/nyregion/new-york-next-governor.html?searchResultPosition=6
+**‘The Meaning of Hitler’ Review: Understanding Fascism**\
+`This docu-essay inspired by Sebastian Haffner’s 1978 book of the same title argues that Hitler was disturbingly ordinary.`\
+https://nytimes.com/2021/08/12/movies/the-meaning-of-hitler-review.html?searchResultPosition=6
 
-**Surf Instructor Killed His Children and Claimed QAnon Made Him Do It, F.B.I. Says**\
-`Matthew Taylor Coleman, 40, of Santa Barbara, Calif., abducted his 2-year-old son and 10-month-old daughter and took them to Mexico, the authorities said.`\
-https://nytimes.com/2021/08/12/us/matthew-coleman-children-mexico.html?searchResultPosition=7
+**‘The East’ Review: Imperialist Blues**\
+`This thoroughly generic war movie explores the Netherlands’ colonial legacy in Indonesia.`\
+https://nytimes.com/2021/08/12/movies/the-east-review-Taihuttu.html?searchResultPosition=7
 
-**Power outages add to the misery in the Midwest as sweltering heat seizes much of the U.S.**\
-`We’re on top of the latest extreme weather in the U.S. and around the world. Follow here for news on heat waves, wildfires, storms and more.`\
-https://nytimes.com/2021/08/12/us/extreme-heat-warning.html?searchResultPosition=8
+**‘Free Guy’ Review: Don’t Hate the Player**\
+`Ryan Reynolds brings his nice-guy charisma to the role of a video game character who doesn’t want to stay on the sidelines.`\
+https://nytimes.com/2021/08/12/movies/free-guy-review.html?searchResultPosition=8
 
-**New Zealand, a pandemic success story, unveils a reopening strategy.**\
-`From early next year, vaccinated travelers from low-risk countries can enter New Zealand without having to quarantine.`\
-https://nytimes.com/2021/08/12/world/new-zealand-virus-reopening.html?searchResultPosition=9
+**‘Materna’ Review: Mommy Issues**\
+`Four unrelated women with serious emotional baggage are connected by an incident on the subway in this indie drama directed by David Gutnik.`\
+https://nytimes.com/2021/08/12/movies/materna-review.html?searchResultPosition=9
 
-**The Music That Inspires the Watchmakers**\
-`Lots of artisans rely on music for inspiration, distraction and just a bit of fun.`\
-https://nytimes.com/2021/08/12/fashion/watches-music-inspiration-urwerk-voutilainen.html?searchResultPosition=10
+**‘Homeroom’ Review: Salutations for the Class of 2020**\
+`This documentary from Peter Nicks follows Oakland High School seniors as they fight for social justice and face Covid-19 on their way to graduation.`\
+https://nytimes.com/2021/08/12/movies/homeroom-review.html?searchResultPosition=10
 
