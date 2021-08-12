@@ -32,7 +32,7 @@ https://nytimes.com/2021/08/12/climate/hydrogen-fuel-natural-gas-pollution.html?
 
 **How the Delta Variant Is Affecting Wedding Season**\
 `With the new strain of Covid, couples are once again scrambling to make sense of how — or even whether — to move forward with their marriage plans.`\
-https://nytimes.com/2021/08/12/style/how-the-delta-variant-is-affecting-wedding-season.html?searchResultPosition=9
+https://nytimes.com/2021/08/12/style/covid-delta-variant-vaccines-wedding.html?searchResultPosition=9
 
 **In Bogotá, a Designer’s Eclectic Home and Bonsai-Filled Garden**\
 `Eight years ago, Danielle Corona moved production for her accessories brand, Hunting Season, to Colombia, and then she set up house there herself.`\
