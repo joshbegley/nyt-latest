@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2021/08/12/arts/editors-recommendations-im-your-
 https://nytimes.com/2021/08/12/theater/public-theater-season-suzan-lori-parks.html?searchResultPosition=3
 
 **For Many, Hydrogen Is the Fuel of the Future. New Research Raises Doubts.**\
-`Currently, hydrogen fuel is made from natural gas. But even the cleanest process produces more greenhouse pollution than simply burning the gas, a study has found.`\
+`Industry has been promoting hydrogen as a reliable, next-generation fuel to power cars, heat homes and generate electricity. It may, in fact, be worse for the climate than previously thought.`\
 https://nytimes.com/2021/08/12/climate/hydrogen-fuel-natural-gas-pollution.html?searchResultPosition=4
 
 **How the Delta Variant Is Affecting Wedding Season**\
