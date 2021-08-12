@@ -1,10 +1,10 @@
 **At the Texas Capitol, a Day for Arrest Warrants, Not Legislation**\
 `The Texas House sergeant-at-arms spent his day delivering 52 civil arrest warrants to Democrats who fled rather than enact the Republican voting agenda.`\
-https://nytimes.com/2021/08/11/us/Texas-House-Democrats-arrest-.html?searchResultPosition=1
+https://nytimes.com/2021/08/11/us/texas-house-democrats-arrest-warrants.html?searchResultPosition=1
 
 **More Than 59,000 Pounds of Chicken Products Are Recalled**\
 `The recalled products may be contaminated and linked to a salmonella outbreak, according to the Centers for Disease Control and Prevention.`\
-https://nytimes.com/2021/08/11/business/chicken-recall-serenade-foods-.html?searchResultPosition=2
+https://nytimes.com/2021/08/11/business/chicken-recall-serenade-foods.html?searchResultPosition=2
 
 **Time for Your Summer Politics Quiz**\
 `Your political representatives want to know if you’ve been paying attention.`\
