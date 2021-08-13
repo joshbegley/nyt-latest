@@ -1,4 +1,4 @@
-**Nancy Griffith, Singer Who Mixed Folk and Country, Dies at 68**\
+**Nanci Griffith, Singer Who Mixed Folk and Country, Dies at 68**\
 `In a career that began in Texas and spanned five decades, she was praised by critics for the thoughtful storytelling of her lyrics.`\
 https://nytimes.com/2021/08/13/arts/music/nancy-griffith-dead.html?searchResultPosition=1
 
