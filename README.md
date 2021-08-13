@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/13/movies/leos-carax-annette.html?searchResultPositi
 
 **Bobby Shmurda’s New Lust for Life**\
 `The Brooklyn rapper, fresh off nearly seven years in prison on gang conspiracy charges, is plotting his dance-heavy comeback — slowly.`\
-https://nytimes.com/2021/08/13/arts/bobby-shmurda.html?searchResultPosition=4
+https://nytimes.com/2021/08/13/arts/music/bobby-shmurda.html?searchResultPosition=4
 
 **For a Crime at 14, He Faces Death in a Case Casting Doubt on Saudi Reforms**\
 `The kingdom has announced changes to its justice system, but still sentenced a teenager to death for a robbery and the killing of a police officer, despite an alibi and claims of a forced confession.`\
