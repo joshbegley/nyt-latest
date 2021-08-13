@@ -19,7 +19,7 @@ https://nytimes.com/2021/08/12/dining/wild-alaskan-salmon.html?searchResultPosit
 https://nytimes.com/2021/08/12/us/us-census-population-growth-diversity.html?searchResultPosition=5
 
 **Supreme Court Blocks Part of New York’s Eviction Moratorium**\
-`The order applies only to a part of the law that bars the eviction of tenants who file a form saying they have suffered economic setbacks as result of the pandemic.`\
+`The order applies only to a provision that bars evictions of tenants who file a form declaring economic hardship, rather than providing evidence in court.`\
 https://nytimes.com/2021/08/12/us/politics/supreme-court-new-york-eviction-moratorium.html?searchResultPosition=6
 
 **As Virus Cases Surge, Biden Administration Encourages More Use of Antibody Treatments**\
