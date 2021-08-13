@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/13/us/police-shootings-rural.html?searchResultPositi
 
 **Voices From Around the World on the Impacts of Climate Change**\
 `“It’s changing quite rapidly,” says a hunter in Canada. “And I’m not old at all. I’m 31.”`\
-https://nytimes.com/2021/08/13/opinion/climate-change-.html?searchResultPosition=2
+https://nytimes.com/2021/08/13/opinion/climate-change.html?searchResultPosition=2
 
 **Doing America’s ‘Dirty Work’**\
 `Morally compromising jobs, like material resources, are not distributed equally.`\
