@@ -6,13 +6,13 @@ https://nytimes.com/2021/08/13/business/dealbook/covid-vaccine-mandates-workers.
 `This season, step out in glittering fabrics, striking silhouettes and whimsical textures made with celebration in mind.`\
 https://nytimes.com/2021/08/13/t-magazine/fall-outdoor-fashion.html?searchResultPosition=2
 
-**Leos Carax on ‘Annette’ and the Cinema of Doubt**\
-`His movies often arrive amid a commotion, and his newest is no exception: “If you’re going to make a musical, you’ve got to be either ambitious or pretentious.”`\
-https://nytimes.com/2021/08/13/movies/leos-carax-annette.html?searchResultPosition=3
-
 **Bobby Shmurda’s New Lust for Life**\
 `The Brooklyn rapper, fresh off nearly seven years in prison on gang conspiracy charges, is plotting his dance-heavy comeback — slowly.`\
-https://nytimes.com/2021/08/13/arts/music/bobby-shmurda.html?searchResultPosition=4
+https://nytimes.com/2021/08/13/arts/music/bobby-shmurda.html?searchResultPosition=3
+
+**Leos Carax on ‘Annette’ and the Cinema of Doubt**\
+`His movies often arrive amid a commotion, and his newest is no exception: “If you’re going to make a musical, you’ve got to be either ambitious or pretentious.”`\
+https://nytimes.com/2021/08/13/movies/leos-carax-annette.html?searchResultPosition=4
 
 **For a Crime at 14, He Faces Death in a Case Casting Doubt on Saudi Reforms**\
 `The kingdom has announced changes to its justice system, but still sentenced a teenager to death for a robbery and the killing of a police officer, despite an alibi and claims of a forced confession.`\
