@@ -4,7 +4,7 @@ https://nytimes.com/video/world/middleeast/100000007919465/afghanistan-taliban.h
 
 **They Might Claim That Things Are Fixed**\
 `Would you buy a used car from John Guzzetta and Michael Hawkins? How about a brain-buster of a puzzle?`\
-https://nytimes.com/2021/08/12/crosswords/2021-08-13.html?searchResultPosition=2
+https://nytimes.com/2021/08/12/crosswords/daily-puzzle-2021-08-13.html?searchResultPosition=2
 
 **Jared Padalecki on the ‘Walker’ Finale and ‘Supernatural’**\
 `In an interview, the actor and producer talks about the season finale’s big twist and the “Supernatural” prequel that took him by surprise.`\
