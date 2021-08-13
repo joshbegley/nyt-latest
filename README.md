@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/13/world/europe/russia-bbc-journalist.html?searchResultPosition=1
 
 **In the West, a Connection Between Covid and Wildfires**\
-`A new study links air pollution from wildfire smoke to higher rates of Covid-19 cases and deaths`\
+`A new study links air pollution from wildfire smoke to higher rates of coronavirus cases and deaths.`\
 https://nytimes.com/2021/08/13/climate/wildfires-smoke-covid.html?searchResultPosition=2
 
 **Love Letter: The Real Stories Behind the New Season of ‘Modern Love’**\
