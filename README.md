@@ -1,5 +1,5 @@
 **Tropical Storm Grace Forms Over Caribbean, Speeding Toward Islands**\
-`The storm was “moving quickly” to close the 355-mile gap between it and the Leeward Islands, the National Hurricane Center said on Saturday. Tropical storm warnings were in effect for several other islands.`\
+`The storm was “moving quickly” to close the 265-mile gap between it and the Leeward Islands, the National Hurricane Center said on Saturday. Tropical storm warnings were in effect for several other islands.`\
 https://nytimes.com/article/tropical-storm-grace-hurricane.html?searchResultPosition=1
 
 **Ideas for New Amendments to the Constitution**\
