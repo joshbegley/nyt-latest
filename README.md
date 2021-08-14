@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/14/world/texas-abbott-battle-mask-mandate.html?searchResultPosition=1
 
 **Social media posts from the quake-damaged area of Haiti help convey the disaster’s scope.**\
-`By Isabella Grullón Paz`\
+`With news organizations and emergency officials scrambling to gain access to affected areas, social media has provided a vital window.`\
 https://nytimes.com/2021/08/14/world/americas/haiti-earthquake-photos-news-social-media.html?searchResultPosition=2
 
 **Hundreds Dead After Magnitude 7.2 Earthquake Hits Haiti**\
