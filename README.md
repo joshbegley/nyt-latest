@@ -19,7 +19,7 @@ https://nytimes.com/2021/08/14/world/australia/australia-nsw-lockdown.html?searc
 https://nytimes.com/2021/08/14/world/europe/germany-us-high-risk-list.html?searchResultPosition=5
 
 **Powerful Earthquake Strikes Haiti**\
-`Seismologists reported that a magnitude 7 quake struck in the west of the country.`\
+`Seismologists reported that a magnitude 7 quake struck in the west of the country, and heavy damage was reported in at least two cities.`\
 https://nytimes.com/2021/08/14/world/americas/haiti-earthquake.html?searchResultPosition=6
 
 **Behold Barack Antoinette**\
