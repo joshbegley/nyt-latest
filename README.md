@@ -22,7 +22,7 @@ https://nytimes.com/2021/08/14/world/americas/haiti-earthquake-photos-news-socia
 `The powerful quake leveled buildings, killing more than 300 people and overwhelming hospitals in at least two Haitian cities.`\
 https://nytimes.com/video/world/100000007921343/haiti-earthquake.html?searchResultPosition=6
 
-**Humanity Can Still Take a Stand on Climate. It Must.**\
+**Finding the Will to Stave Off a Darker Future**\
 `Ahead of the climate summit in Scotland, Congress can take real action.`\
 https://nytimes.com/2021/08/14/opinion/climate-change-summit.html?searchResultPosition=7
 
