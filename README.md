@@ -14,8 +14,8 @@ https://nytimes.com/2021/08/14/world/americas/tropical-storm-grace-haiti.html?se
 `The 2010 quake was centered about 30 miles west of Port-au-Prince. The quake on Saturday was about 50 miles further west.`\
 https://nytimes.com/2021/08/14/world/americas/haiti-earthquake-2021-2010.html?searchResultPosition=4
 
-**The battle is on for Afghanistan’s commercial hub, Mazar-i-Sharif.**\
-`It is the last government-held city in the north, and its defenders — militias led by regional leaders — are struggling.`\
+**Afghanistan’s commercial hub, Mazar-i-Sharif, falls to the insurgents.**\
+`Its loss marks the complete collapse of northern Afghanistan to the Taliban. Countrywide, just two major cities remain government control.`\
 https://nytimes.com/2021/08/14/world/asia/Taliban-afghanistan-mazar-i-sharif.html?searchResultPosition=5
 
 **Taliban Sweep in Afghanistan Follows Years of U.S. Miscalculations**\
