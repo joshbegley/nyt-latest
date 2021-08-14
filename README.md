@@ -30,11 +30,11 @@ https://nytimes.com/2021/08/14/style/arts-and-commerce.html?searchResultPosition
 `The drought is revealing for California that perhaps even more than rainfall it is money and infrastructure that dictate who has sufficient water during the state’s increasingly frequent dry spells.`\
 https://nytimes.com/2021/08/14/us/drought-california-water-shortage.html?searchResultPosition=8
 
+**So Much for a ‘Hot Vax Summer’**\
+`The Delta variant puts a chill on bacchanalian behavior.`\
+https://nytimes.com/2021/08/14/style/delta-variant-vaccine-covid-summer.html?searchResultPosition=9
+
 **‘Like Choosing a Pope’: How Succession Got Messy at ‘Jeopardy!’**\
 `The decades-old game show, TV comfort food for many, has been rocked by drama over who would replace the late Alex Trebek.`\
-https://nytimes.com/2021/08/14/business/media/jeopardy-mike-richards-ken-jennings.html?searchResultPosition=9
-
-**The A.S.L. Interpretation of ‘WAP’ Was TikTok Gold. It’s Also a Problem.**\
-`A lively American Sign Language interpretation of Megan Thee Stallion’s performance at Lollapalooza flooded social media, reigniting the frustrations of Black deaf content creators.`\
-https://nytimes.com/2021/08/14/style/the-asl-interpretation-of-wap-was-tiktok-gold-its-also-a-problem.html?searchResultPosition=10
+https://nytimes.com/2021/08/14/business/media/jeopardy-mike-richards-ken-jennings.html?searchResultPosition=10
 
