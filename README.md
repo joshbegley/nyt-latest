@@ -19,7 +19,7 @@ https://nytimes.com/2021/08/14/world/texas-abbott-battle-mask-mandate.html?searc
 https://nytimes.com/2021/08/14/world/americas/haiti-earthquake-photos-news-social-media.html?searchResultPosition=5
 
 **Hundreds Dead After Magnitude 7.2 Earthquake Hits Haiti**\
-`The powerful quake leveled buildings, killing more than 200 people and overwhelming hospitals in at least two Haitian cities.`\
+`The powerful quake leveled buildings, killing more than 300 people and overwhelming hospitals in at least two Haitian cities.`\
 https://nytimes.com/video/world/100000007921343/haiti-earthquake.html?searchResultPosition=6
 
 **Humanity Can Still Take a Stand on Climate. It Must.**\
