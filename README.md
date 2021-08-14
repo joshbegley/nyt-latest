@@ -35,6 +35,6 @@ https://nytimes.com/2021/08/14/books/review/benjamin-t-smith-the-dope.html?searc
 https://nytimes.com/2021/08/14/world/americas/haiti-earthquake-what-to-know.html?searchResultPosition=9
 
 **Tropical Storm Grace Forms Over Caribbean, Speeding Toward Islands**\
-`The storm was “moving quickly” to close the 265-mile gap between it and the Leeward Islands, the National Hurricane Center said on Saturday. Tropical storm warnings were in effect for several other islands.`\
+`The storm was “moving quickly” to close the 185-mile gap between it and the Leeward Islands, the National Hurricane Center said on Saturday. Tropical storm warnings were in effect for several other islands.`\
 https://nytimes.com/article/tropical-storm-grace-hurricane.html?searchResultPosition=10
 
