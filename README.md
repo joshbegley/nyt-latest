@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/14/realestate/airbnb-and-happy-neighbors.html?search
 https://nytimes.com/2021/08/14/opinion/us-economy-senate-democrats.html?searchResultPosition=3
 
 **New South Wales goes into lockdown as Sydney’s outbreak spreads.**\
-`Premier Gladys Berejiklian called the state’s case numbers, now at the highest daily level since the pandemic began, said, “the Delta strain is diabolical.”`\
+`Premier Gladys Berejiklian called the state’s case numbers, now at the highest daily level since the pandemic began, “extremely concerning” and said “the Delta strain is diabolical.”`\
 https://nytimes.com/2021/08/14/world/australia/australia-nsw-lockdown.html?searchResultPosition=4
 
 **Germany adds the U.S. to its ‘high risk’ list, requiring some travelers to quarantine.**\
