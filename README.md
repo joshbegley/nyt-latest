@@ -1,5 +1,5 @@
 **Dozens Killed After Magnitude 7.2 Earthquake Hits Haiti**\
-`The powerful quake leveled buildings, leaving at least 29 people dead and overwhelming hospitals in at least two Haitian cities.`\
+`The powerful quake leveled buildings, leaving nearly 200 people dead and overwhelming hospitals in at least two Haitian cities.`\
 https://nytimes.com/video/world/100000007921343/haiti-earthquake.html?searchResultPosition=1
 
 **Humanity Can Still Take a Stand on Climate. It Must.**\
