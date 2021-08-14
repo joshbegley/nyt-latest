@@ -1,40 +1,40 @@
-**Corrections: Aug. 14, 2021**\
-`Corrections that appeared in print on Saturday, Aug. 14, 2021.`\
-https://nytimes.com/2021/08/14/pageoneplus/corrections-aug-14-2021.html?searchResultPosition=1
+**Poverty, Disease, Customs: Why So Many Indonesian Children Die of Covid**\
+`The disease kills far more children in developing countries than in rich ones, and some factors make them especially vulnerable in Indonesia.`\
+https://nytimes.com/2021/08/14/world/asia/indonesia-children-covid-deaths.html?searchResultPosition=1
 
-**Quotation of the Day: Sicilian Town Sends Europe Omen of a Hotter Future**\
-`Quotation of the Day for Saturday, August 14, 2021.`\
-https://nytimes.com/2021/08/14/todayspaper/quotation-of-the-day-sicilian-town-sends-europe-omen-of-a-hotter-future.html?searchResultPosition=2
+**Tap Dancing With Trump: Lindsey Graham’s Quest for Relevance**\
+`The senator went from Donald J. Trump’s public enemy to his impassioned defender. Now he’s a golfing regular at Mar-a-Lago, advising the former president on his future. What is behind one of the unlikeliest partnerships in politics?`\
+https://nytimes.com/2021/08/14/us/politics/lindsey-graham-donald-trump.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/14/crosswords/spelling-bee-2021-08-14.html?searchResultPosition=3
+**Arts and Commerce**\
+`The emerald lawn of an East Hampton estate was a fitting backdrop for a return to summer revelry at Guild Hall’s 90th-anniversary gala.`\
+https://nytimes.com/2021/08/14/style/arts-and-commerce.html?searchResultPosition=3
 
-**Star Clusters?**\
-`Nam Jin Yoon’s Saturday puzzle rockets us into orbit.`\
-https://nytimes.com/2021/08/13/crosswords/daily-puzzle-2021-08-14.html?searchResultPosition=4
+**Small Towns Grow Desperate for Water in California**\
+`The drought is revealing for California that perhaps even more than rainfall it is money and infrastructure that dictate who has sufficient water during the state’s increasingly frequent dry spells.`\
+https://nytimes.com/2021/08/14/us/drought-california-water-shortage.html?searchResultPosition=4
 
-**James Hormel, America’s First Openly Gay Ambassador, Dies at 88**\
-`An outspoken advocate of L.G.B.T.Q. rights, he was nominated by President Bill Clinton and appointed despite fierce opposition from the right.`\
-https://nytimes.com/2021/08/13/us/politics/james-hormel-dead.html?searchResultPosition=5
+**‘Like Choosing a Pope’: How Succession Got Messy at ‘Jeopardy!’**\
+`The decades-old game show, TV comfort food for many, has been rocked by drama over who would replace the late Alex Trebek.`\
+https://nytimes.com/2021/08/14/business/media/jeopardy-mike-richards-ken-jennings.html?searchResultPosition=5
 
-**A Madonna Who Shows the Beauty in Going Overboard**\
-`This Parmigianino painting is strange, unfinished and not to everyone’s liking. But it’s got style.`\
-https://nytimes.com/interactive/2021/08/13/arts/design/parmigianino-madonna-of-the-long-neck.html?searchResultPosition=6
+**The A.S.L. Interpretation of ‘WAP’ Was TikTok Gold. It’s Also a Problem.**\
+`A lively American Sign Language interpretation of Megan Thee Stallion’s performance at Lollapalooza flooded social media, reigniting the frustrations of Black deaf content creators.`\
+https://nytimes.com/2021/08/14/style/the-asl-interpretation-of-wap-was-tiktok-gold-its-also-a-problem.html?searchResultPosition=6
 
-**Education Secretary criticizes Republican governors over ban on masks in schools.**\
-`The secretary of education, Miguel Cardona, sent a pair of letters to the governors of Texas and Florida, expressing concerned about recent executive orders.`\
-https://nytimes.com/2021/08/13/health/cardona-biden-abbott-desantis-mask-mandate.html?searchResultPosition=7
+**Landlords and Tenants Worry About Effects of Ruling on Eviction Moratorium**\
+`With Thursday’s Supreme Court ruling, landlords could technically start filing suits immediately to evict tenants.`\
+https://nytimes.com/2021/08/14/nyregion/nyc-eviction-moratorium-supreme-court.html?searchResultPosition=7
 
-**What to Do This Weekend**\
-`Reggaeton, affogato and logging off.`\
-https://nytimes.com/2021/08/13/at-home/newsletter.html?searchResultPosition=8
+**So Much for a ‘Hot Vax Summer’**\
+`The Delta variant puts a chill on bacchanalian behavior.`\
+https://nytimes.com/2021/08/14/style/so-much-for-a-hot-vax-summer.html?searchResultPosition=8
 
-**Fearing Kabul’s Fall, U.S. Officials Implore Afghans to ‘Fight’**\
-`The calls to action underscore the stark reality that the United States has no intention of rescuing government forces.`\
-https://nytimes.com/2021/08/13/us/politics/kabul-biden-afghanistan.html?searchResultPosition=9
+**Teens Cash in on the NFT Art Boom**\
+`Forget mowing lawns and bagging groceries. Some Gen Z kids are finding other ways to make money this summer.`\
+https://nytimes.com/2021/08/14/style/teens-nft-art.html?searchResultPosition=9
 
-**Donald Kagan, Leading Historian of Ancient Greece, Dies at 89**\
-`His studies of the Peloponnesian War and his impassioned teaching style inspired generations of scholars, as well as Washington strategists.`\
-https://nytimes.com/2021/08/13/books/donald-kagan-dead.html?searchResultPosition=10
+**How to Tell Your Family and Friends You Eloped**\
+`Over the last year, elopement has emerged as a ceremony of choice for many couples, because of pandemic-related capacity restrictions and other logistical hurdles.`\
+https://nytimes.com/2021/08/14/fashion/weddings/how-to-tell-your-family-and-friends-you-eloped.html?searchResultPosition=10
 
