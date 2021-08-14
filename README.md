@@ -2,8 +2,8 @@
 `By Isabella Grullón Paz`\
 https://nytimes.com/2021/08/14/world/americas/haiti-earthquake-photos-news-social-media.html?searchResultPosition=1
 
-**Dozens Killed After Magnitude 7.2 Earthquake Hits Haiti**\
-`The powerful quake leveled buildings, leaving nearly 200 people dead and overwhelming hospitals in at least two Haitian cities.`\
+**Hundreds Dead After Magnitude 7.2 Earthquake Hits Haiti**\
+`The powerful quake leveled buildings, killing more than 200 people and overwhelming hospitals in at least two Haitian cities.`\
 https://nytimes.com/video/world/100000007921343/haiti-earthquake.html?searchResultPosition=2
 
 **Humanity Can Still Take a Stand on Climate. It Must.**\
