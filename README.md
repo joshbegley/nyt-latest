@@ -1,5 +1,5 @@
-**Haiti quake prompted tsunami warning.**\
-`The warning was rescinded a short time later, and there was one report of water flooding a street in Les Cayes.`\
+**Haiti quake prompted tsunami warning that was later rescinded.**\
+`There was one report of water flooding a street in Les Cayes.`\
 https://nytimes.com/2021/08/14/world/americas/haiti-tsunami-warning.html?searchResultPosition=1
 
 **Biden Administration Plans for Vaccine Boosters, Perhaps by Fall**\
