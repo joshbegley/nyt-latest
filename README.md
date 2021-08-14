@@ -34,7 +34,7 @@ https://nytimes.com/2021/08/14/world/australia/australia-nsw-lockdown.html?searc
 `American tourists and other nonessential travelers will have to quarantine for 10 days, starting Sunday, if they cannot document full vaccination or immunity from a past infection.`\
 https://nytimes.com/2021/08/14/world/europe/germany-us-high-risk-list.html?searchResultPosition=9
 
-**Powerful Earthquake Strikes Haiti**\
+**Powerful earthquake strikes Haiti**\
 `Seismologists reported that a magnitude 7.2 quake struck in the west of the country, and heavy damage was reported in at least two cities.`\
 https://nytimes.com/2021/08/14/world/americas/haiti-earthquake.html?searchResultPosition=10
 
