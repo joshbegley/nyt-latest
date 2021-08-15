@@ -22,7 +22,7 @@ https://nytimes.com/2021/08/15/world/asia/us-evacuation-kabul.html?searchResultP
 `Ballooning had its heyday in the 70s. A new program in Washington State aims to introduce the aging sport to a new — and more diverse — class of aeronauts.`\
 https://nytimes.com/2021/08/15/us/hotair-balloon-washington-seattle.html?searchResultPosition=6
 
-**‘Our Hands and Feet Are Tied’: Hong Kong’s Opposition Quit in Droves**\
+**‘Our Hands and Feet Are Tied’: Hong Kong’s Opposition Quits in Droves**\
 `The landslide victory of pro-democracy politicians in local elections in 2019 was a stunning rebuke of Beijing. Now, fear of retaliation has driven them to quit.`\
 https://nytimes.com/2021/08/15/world/asia/hong-kong-china-politics.html?searchResultPosition=7
 
