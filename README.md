@@ -1,4 +1,4 @@
-**Biden Administration Approves Largest Permanent Increase in Food Stamps**\
+**Biden Administration Prompts Largest Permanent Increase in Food Stamps**\
 `The jump in benefits, the biggest in the program’s history, comes after a revision of the initiative’s nutrition standards that supporters say will reduce hunger and better reflect how Americans eat.`\
 https://nytimes.com/2021/08/15/us/politics/biden-food-stamps.html?searchResultPosition=1
 
