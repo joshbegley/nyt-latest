@@ -1,40 +1,40 @@
+**Michael Thomas, Writer and Bête Noire of the Moneyed Class, Dies at 85**\
+`His early careers as an art historian and Wall Street financier informed his financial thrillers, which often savaged the rich and powerful.`\
+https://nytimes.com/2021/08/15/books/michael-thomas-dead.html?searchResultPosition=1
+
 **Blinken says the Taliban moved faster than expected, but defends removal of U.S. troops.**\
 `The secretary of state forcefully defended the decision to withdraw the American military from Afghanistan, citing threats to the United States if it reneged on a peace deal.`\
-https://nytimes.com/2021/08/15/world/taliban-blinken-afghanistan-kabul.html?searchResultPosition=1
+https://nytimes.com/2021/08/15/world/taliban-blinken-afghanistan-kabul.html?searchResultPosition=2
 
 **How the Pandemic Affected Kindergarten**\
 `Readers discuss the effects of a lost year, child care and rethinking kindergarten's focus on academics. Also: Transgender youths and health; Vince Lombardi and winning.`\
-https://nytimes.com/2021/08/15/opinion/letters/kindergarten-covid.html?searchResultPosition=2
+https://nytimes.com/2021/08/15/opinion/letters/kindergarten-covid.html?searchResultPosition=3
 
 **What to Cook This Week**\
 `Go off script and make a no-recipe dinner: steak, potatoes and salad, or a cheesy omelet.`\
-https://nytimes.com/2021/08/15/dining/what-to-cook-this-week.html?searchResultPosition=3
+https://nytimes.com/2021/08/15/dining/what-to-cook-this-week.html?searchResultPosition=4
 
 **Flash Floods in Turkey Kill 59, and Dozens Are Still Missing**\
 `The death toll rose to at least 59 a fifth day after the disaster, and more than 70 people remain missing.`\
-https://nytimes.com/2021/08/15/world/europe/turkey-floods.html?searchResultPosition=4
+https://nytimes.com/2021/08/15/world/europe/turkey-floods.html?searchResultPosition=5
 
 **A Week Into Taliban Rule, One City’s Glimpse of What the Future May Hold**\
 `In Kunduz, the new insurgent leaders said they had no quarrel with the people. But residents say they soon began instilling fear.`\
-https://nytimes.com/2021/08/15/world/asia/afghanistan-taliban-kunduz.html?searchResultPosition=5
+https://nytimes.com/2021/08/15/world/asia/afghanistan-taliban-kunduz.html?searchResultPosition=6
 
 **Trudeau Calls Early Election in Canada**\
 `The prime minister hopes his handling of the pandemic will help his Liberal Party win a majority in the House of Commons. Opponents say voting amid a Covid surge is dangerous.`\
-https://nytimes.com/2021/08/15/world/americas/canada-trudeau-election-covid.html?searchResultPosition=6
+https://nytimes.com/2021/08/15/world/americas/canada-trudeau-election-covid.html?searchResultPosition=7
 
 **The U.S. Virgin Islands face their worst surge since the start of the pandemic.**\
 `The popular tourist destination is now in the top 20 U.S. states and territories for cases per capita, according to a New York Times database.`\
-https://nytimes.com/2021/08/15/us/us-virgin-islands-covid-surge.html?searchResultPosition=7
+https://nytimes.com/2021/08/15/us/us-virgin-islands-covid-surge.html?searchResultPosition=8
 
 **From Rio, a Cautionary Tale on Police Violence**\
 `Excessive use of force is common in Brazil, and most of the targets of that violence are Black youths in the favelas.`\
-https://nytimes.com/2021/08/15/opinion/international-world/brazil-blacks-police-brutality.html?searchResultPosition=8
+https://nytimes.com/2021/08/15/opinion/international-world/brazil-blacks-police-brutality.html?searchResultPosition=9
 
 **Competence Is Critical for Democracy. Let’s Redefine It.**\
 `Skill and efficiency shouldn't be the sole determinants of whether we consider someone competent. `\
-https://nytimes.com/2021/08/15/opinion/competence-is-critical-for-democracy-lets-redefine-it.html?searchResultPosition=9
-
-**As City Reopens, Performers Try to Uplift New York’s State of Mind**\
-`Some of the city’s most recognizable entertainers take turns singing, dancing and playing instruments in a new music video covering Billy Joel’s 1976 song.`\
-https://nytimes.com/2021/08/15/nyregion/billy-joel-new-york-state-of-mind-cover.html?searchResultPosition=10
+https://nytimes.com/2021/08/15/opinion/competence-is-critical-for-democracy-lets-redefine-it.html?searchResultPosition=10
 
