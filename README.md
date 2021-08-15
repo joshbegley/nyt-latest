@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/15/us/politics/embassy-evacuation-kabul-taliban.html
 https://nytimes.com/2021/08/15/sports/tennis/roger-federer-knee-surgery-retirement.html?searchResultPosition=3
 
 **‘I’m the Only Surgeon’: After Haiti Quake, Thousands Seek Scarce Care**\
-`A day after a magnitude-7.2 earthquake killed hundreds in western Haiti, the country struggled to help the many wounded despite a dire lack of doctors.`\
+`A day after a magnitude-7.2 earthquake killed an estimated 1,300 in western Haiti, the country struggled to help the many wounded despite a dire lack of doctors.`\
 https://nytimes.com/2021/08/15/world/americas/haiti-earthquake.html?searchResultPosition=4
 
 **Taliban Takeover Could Extinguish U.S. Influence in Kabul**\
