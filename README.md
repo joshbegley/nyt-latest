@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/15/business/the-week-in-business-infrastructure-vacc
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2021/08/15/briefing/afghanistan-haiti-jeopardy.html?searchResultPosition=4
 
-**A frenzied flight from Kabul as the U.S. evacuation gains speed.**\
+**A frenzied U.S. flight from Kabul as chaos descends.**\
 `With the Taliban surrounding the Afghan capital, the American military airlifted diplomats and civilians. Other foreigners rushed to the city’s airport seeking an escape route.`\
 https://nytimes.com/2021/08/15/world/asia/us-evacuation-kabul.html?searchResultPosition=5
 
