@@ -23,7 +23,7 @@ https://nytimes.com/2021/08/15/world/asia/hong-kong-china-politics.html?searchRe
 https://nytimes.com/2021/08/15/technology/tik-tok-friends-meet-up.html?searchResultPosition=6
 
 **They Tried to Beat DiMaggio. Like Everyone Else, They Failed.**\
-`In M.L.B.’s Beat the Streak game, fans build virtual lineups in hopes of topping Joe DiMaggio’s 56-game hitting streak. After 20 years, the game is still looking for its first winner.`\
+`In M.L.B.’s Beat the Streak game, fans build virtual lineups in hopes of topping Joe DiMaggio’s 56-game hitting streak. After 20 years, no one has won.`\
 https://nytimes.com/2021/08/15/sports/baseball/beat-the-streak.html?searchResultPosition=7
 
 **Michael J. Fox Reviews a Thoughtful Memoir on the Challenges of Living With Disability**\
