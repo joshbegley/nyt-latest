@@ -1,40 +1,40 @@
+**The Texas State Supreme Court upholds Texas’ mask mandate ban, for now.**\
+`The decision is temporary because the State Supreme Court must make a final ruling.`\
+https://nytimes.com/2021/08/15/world/texas-covid-masks-ban-abbott.html?searchResultPosition=1
+
 **Final Failure in Afghanistan Is Biden’s to Own**\
 `President Biden will go down in history, fairly or unfairly, as the president who presided over a humiliating final act in the American experiment in Afghanistan.`\
-https://nytimes.com/2021/08/15/us/politics/afghanistan-biden.html?searchResultPosition=1
+https://nytimes.com/2021/08/15/us/politics/afghanistan-biden.html?searchResultPosition=2
 
 **You’ve Never Heard of the Biggest Digital Media Company in America**\
 `Red Ventures has turned very specific advice into very big business.`\
-https://nytimes.com/2021/08/15/business/media/red-ventures-digital-media.html?searchResultPosition=2
+https://nytimes.com/2021/08/15/business/media/red-ventures-digital-media.html?searchResultPosition=3
 
 **Rushed Evacuation in Kabul Highlights Disconnect in Washington**\
 `Pentagon officials had warned the White House about delaying a drawdown or full evacuation of American personnel from Afghanistan.`\
-https://nytimes.com/2021/08/15/us/politics/embassy-evacuation-kabul-taliban.html?searchResultPosition=3
+https://nytimes.com/2021/08/15/us/politics/embassy-evacuation-kabul-taliban.html?searchResultPosition=4
 
 **Roger Federer Faces Knee Surgery, Putting His Future in Doubt**\
 `The 20-time Grand Slam champion will miss the U.S. Open and undergo his fourth knee surgery since 2016. He will be on crutches and off the tennis court “for many months.”`\
-https://nytimes.com/2021/08/15/sports/tennis/roger-federer-knee-surgery-retirement.html?searchResultPosition=4
+https://nytimes.com/2021/08/15/sports/tennis/roger-federer-knee-surgery-retirement.html?searchResultPosition=5
 
 **‘I’m the Only Surgeon’: After Haiti Quake, Thousands Seek Scarce Care**\
 `A day after a magnitude-7.2 earthquake killed an estimated 1,300 in western Haiti, the country struggled to help the many wounded despite a dire lack of doctors.`\
-https://nytimes.com/2021/08/15/world/americas/haiti-earthquake.html?searchResultPosition=5
+https://nytimes.com/2021/08/15/world/americas/haiti-earthquake.html?searchResultPosition=6
 
 **Taliban Takeover Could Extinguish U.S. Influence in Kabul**\
 `After 20 years of diplomacy and support, American officials are now contemplating the harrowing question of whether — and how — they might engage with a Taliban government in Afghanistan.`\
-https://nytimes.com/2021/08/15/us/politics/biden-taliban-afghanistan.html?searchResultPosition=6
+https://nytimes.com/2021/08/15/us/politics/biden-taliban-afghanistan.html?searchResultPosition=7
 
 **In an Overrun Kabul, Many Have No Place to Run**\
 `Afghanistan’s capital fell to the Taliban far faster than many had imagined it would, leaving most Afghans with no way out.`\
-https://nytimes.com/2021/08/15/world/asia/kabul-afghanistan.html?searchResultPosition=7
+https://nytimes.com/2021/08/15/world/asia/kabul-afghanistan.html?searchResultPosition=8
 
 **Stick-to-itiveness**\
 `Freddie Cheng strikes a chord.`\
-https://nytimes.com/2021/08/15/crosswords/daliy-puzzle-2021-08-16.html?searchResultPosition=8
+https://nytimes.com/2021/08/15/crosswords/daliy-puzzle-2021-08-16.html?searchResultPosition=9
 
 **In Washington, Recriminations Over Afghanistan Emerge Quickly**\
 `President Biden is finding few outspoken defenders amid the chaotic collapse of the Afghan government. But after 20 years, a war-weary America may still give the president a pass.`\
-https://nytimes.com/2021/08/15/us/politics/afghanistan-collapse-politics.html?searchResultPosition=9
-
-**Beginner’s Luck? A Stunning No-Hitter in a Year Full of Them.**\
-`In his first career start, Tyler Gilbert of the Diamondbacks threw M.L.B.’s eighth no-hitter of the year. There haven’t been that many in a single season since 1884.`\
-https://nytimes.com/2021/08/15/sports/baseball/tyler-gilbert-no-hitter.html?searchResultPosition=10
+https://nytimes.com/2021/08/15/us/politics/afghanistan-collapse-politics.html?searchResultPosition=10
 
