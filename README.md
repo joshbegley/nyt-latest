@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/15/world/asia/un-security-council-afghanistan.html?s
 
 **Afghans working for U.S. government broadcasters fear Taliban backlash.**\
 `The Afghans working for the U.S. government broadcasters in Kabul have long been targets of the insurgents, who killed a journalist  in November.`\
-https://nytimes.com/2021/08/15/world/asia/afghans-working-for-us-government-broadcasters-fear-taliban-backlash.html?searchResultPosition=2
+https://nytimes.com/2021/08/15/world/asia/afghans-radio-united-states-taliban-fear.html?searchResultPosition=2
 
 **Glimmerglass Creates Magic in Its Own Backyard**\
 `The pandemic forced the company outdoors and to trim staples by Verdi and Mozart. Our critic found the experience to be ripe with potential for drawing in new audiences.`\
