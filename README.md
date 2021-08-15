@@ -2,7 +2,7 @@
 `The Times’s Visual Investigations team analyzed more than 3,000 videos to document, moment by moment, the terror of the Capitol riot.`\
 https://nytimes.com/2021/08/14/insider/video-capitol-riot.html?searchResultPosition=1
 
-**Map: Tracking Tropical Storm Grace's Path**\
+**Map: Tracking the Path of Tropical Storm Grace**\
 `A map showing the storm’s path through the Caribbean as it heads toward the Gulf of Mexico`\
 https://nytimes.com/interactive/2021/08/14/world/americas/tropical-storm-grace-hurricane-path-tracker.html?searchResultPosition=2
 
