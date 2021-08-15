@@ -2,7 +2,7 @@
 `In Kunduz, the new insurgent leaders said they had no quarrel with the people. But residents say they soon began instilling fear.`\
 https://nytimes.com/2021/08/15/world/asia/afghanistan-taliban-kunduz.html?searchResultPosition=1
 
-**Trudeau Calls Early Election in Canada**\
+**Trudeau Sets Canada on Path to Early Election**\
 `The prime minister hopes his handling of the pandemic will help his Liberal Party win a majority in the House of Commons. Opponents say voting amid a Covid surge is dangerous.`\
 https://nytimes.com/2021/08/15/world/americas/canada-trudeau-election-covid.html?searchResultPosition=2
 
