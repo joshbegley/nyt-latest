@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/16/dining/mississippi-restaurant-jim-crow.html?searc
 https://nytimes.com/paidpost/electrolux/how-to-cook-like-a-scandinavian.html?searchResultPosition=3
 
 **Hachette to Buy Workman, as Publishing Continues Consolidation Push**\
-`Workman, known for “What to Expect When You’re Expecting” and other lucrative backlist titles, is one of the largest independent publishers in the United States.`\
+`Workman, known for “What to Expect When You’re Expecting” and other lucrative older titles, is one of the largest independent publishers in the United States.`\
 https://nytimes.com/2021/08/16/books/hachette-workman-publishing.html?searchResultPosition=4
 
 **Janet Yellen Gets a Chance to Shape the Fed, This Time From Outside**\
