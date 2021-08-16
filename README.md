@@ -18,7 +18,7 @@ https://nytimes.com/article/tropical-storm-henri-hurricane.html?searchResultPosi
 `Christopher Massimine found success as a theater executive in New York and Utah, but now he faces questions about errors on his résumé, a fictitious degree and a phony award.`\
 https://nytimes.com/2021/08/16/theater/christopher-massimine-pioneer-theater.html?searchResultPosition=5
 
-**Read the full transcript of President Biden’s remarks on Afghanistan.**\
+**Read the Full Transcript of President Biden’s Remarks on Afghanistan**\
 `Mr. Biden spoke from the White House on Monday afternoon after the collapse of the Afghan government to the Taliban.`\
 https://nytimes.com/2021/08/16/us/politics/biden-taliban-afghanistan-speech.html?searchResultPosition=6
 
