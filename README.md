@@ -22,8 +22,8 @@ https://nytimes.com/2021/08/16/t-magazine/bright-fall-fashion-leather.html?searc
 `The first institution dedicated to the history of the Great White Way and the artistry of its shows and theaters plans to welcome visitors next summer.`\
 https://nytimes.com/2021/08/16/theater/museum-of-broadway-times-square.html?searchResultPosition=6
 
-**Watch: Scenes of Panic and Desperation at Kabul Airport**\
-`One day after the Taliban seized control of Afghanistan, thousands of people who are desperate to flee the country rushed to the airport in Kabul.`\
+**Watch: Scenes of Panic and Chaos at Kabul Airport**\
+`One day after the Taliban seized control of Afghanistan, thousands of people who were desperate to flee the country rushed to the airport in Kabul.`\
 https://nytimes.com/video/world/100000007922808/kabul-airport-afghanistan-taliban.html?searchResultPosition=7
 
 **Spectators Barred From Paralympics**\
