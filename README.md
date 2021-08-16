@@ -1,4 +1,4 @@
-**Golf Carts Are Parked, Walking Is in, and, Yes, It’s Exercise**\
+**Golf Carts Are Parked, Walking Is in and, Yes, It’s Exercise**\
 `Motorized carts have ferried golfers from hole to hole for 50 years, but more players these days are walking their rounds, and some courses have shunned carts entirely.`\
 https://nytimes.com/2021/08/16/sports/golf/golf-walking-vs-carts-exercise.html?searchResultPosition=1
 
