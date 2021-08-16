@@ -2,9 +2,9 @@
 `The Bootleg Fire was fully contained over the weekend. The Dixie Fire in California, burning for more than a month, has scorched more than 570,000 acres.`\
 https://nytimes.com/2021/08/16/us/wildfire-updates-california-oregon-utah.html?searchResultPosition=1
 
-**An Iconic Bridge Sees U.S. Allies Flee Afghanistan as Soviets Did**\
+**An Iconic Bridge Sees U.S. Allies Flee Afghanistan as the Soviets Did**\
 `Retreating Afghan government soldiers crowded onto a bridge over the Amu Darya River that was a backdrop for the Soviet failure in Afghanistan decades ago.`\
-https://nytimes.com/2021/08/16/world/middleeast/an-iconic-bridge-sees-us-allies-flee-afghanistan-as-soviets-did.html?searchResultPosition=2
+https://nytimes.com/2021/08/16/world/middleeast/an-iconic-bridge-sees-us-allies-flee-afghanistan-as-the-soviets-did.html?searchResultPosition=2
 
 **A Home That Retreats Into the Brazilian Savanna**\
 `Informed by the utopian architecture of Brasília, an expansive weekend house honors and melds with the vanishing landscape of the Cerrado.`\
