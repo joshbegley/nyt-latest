@@ -18,7 +18,7 @@ https://nytimes.com/2021/08/15/opinion/afghanistan-taliban.html?searchResultPosi
 `The decision is temporary because the State Supreme Court must make a final ruling.`\
 https://nytimes.com/2021/08/15/world/texas-covid-masks-ban-abbott.html?searchResultPosition=5
 
-**Final Failure in Afghanistan Is Biden’s to Own**\
+**For Biden, Images of Defeat He Wanted to Avoid**\
 `President Biden will go down in history, fairly or unfairly, as the president who presided over a humiliating final act in the American experiment in Afghanistan.`\
 https://nytimes.com/2021/08/15/us/politics/afghanistan-biden.html?searchResultPosition=6
 
