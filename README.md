@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/16/us/wildfire-updates-california-oregon-utah.html?s
 
 **An Iconic Bridge Sees U.S. Allies Flee Afghanistan as the Soviets Did**\
 `Retreating Afghan government soldiers crowded onto a bridge over the Amu Darya River that was a backdrop for the Soviet failure in Afghanistan decades ago.`\
-https://nytimes.com/2021/08/16/world/middleeast/afghanistan-collapse-soviet-friendship-bridge.html?searchResultPosition=2
+https://nytimes.com/2021/08/16/world/middleeast/afghanistan-taliban-soviet-friendship-bridge.html?searchResultPosition=2
 
 **A Home That Retreats Into the Brazilian Savanna**\
 `Informed by the utopian architecture of Brasília, an expansive weekend house honors and melds with the vanishing landscape of the Cerrado.`\
