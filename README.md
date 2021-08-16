@@ -23,7 +23,7 @@ https://nytimes.com/interactive/2021/08/16/world/asia/kabul-airport-maps-photos.
 https://nytimes.com/2021/08/16/sports/golf/golf-walking-vs-carts-exercise.html?searchResultPosition=6
 
 **Beard Crusader**\
-`Brigham Young has banned facial hair for decades. One emeritus professor at the university is leading the charge to change that.`\
+`Brigham Young has banned most types of facial hair for decades. One emeritus professor at the university is leading the charge to change that.`\
 https://nytimes.com/2021/08/16/style/beards-brigham-young-university.html?searchResultPosition=7
 
 **A Mirrored Mecca for K-Pop Moves**\
