@@ -20,7 +20,7 @@ https://nytimes.com/video/world/europe/100000007923754/britain-evacuate-kabul-af
 
 **Watch Live: Biden Speaks After Taliban Takeover of Afghanistan**\
 `President Biden addresses the crisis in Afghanistan following the collapse of the Afghan government to the Taliban.`\
-https://nytimes.com/video/us/politics/100000007923117/live-video-biden-afghanistan-press-conference.html?searchResultPosition=6
+https://nytimes.com/video/embedded/us/politics/100000007923117/live-video-biden-afghanistan-press-conference.html?searchResultPosition=6
 
 **United Nations Must Not ‘Abandon’ Afghanistan, Secretary General Says**\
 `António Guterres, the United Nations Secretary General, voiced concern over accounts of human rights violations in Taliban-controlled Afghanistan, and fears that its seizure of power would bring “a return to the darkest days” for Afghan women and girls.`\
