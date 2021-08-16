@@ -1,5 +1,5 @@
-**How to Show Proof of Vaccination in N.Y.C.**\
-`Starting today, indoor dining, fitness and entertainment venues must check for vaccination status. Here’s what to know.`\
+**You May Have to Show Proof of Vaccination in N.Y.C. Starting Today. Here's How.**\
+`As of Aug. 16, indoor dining, fitness and entertainment venues must check for vaccination status.`\
 https://nytimes.com/interactive/2021/08/16/nyregion/nyc-vaccine-mandate.html?searchResultPosition=1
 
 **School Is Starting. Can Children Stay Safe From Covid-19?**\
