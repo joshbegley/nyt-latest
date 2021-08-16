@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/16/opinion/climate-change-republicans-economy.html?s
 https://nytimes.com/2021/08/16/arts/television/nine-perfect-strangers-nicole-kidman.html?searchResultPosition=2
 
 **Chaos Ensues at Kabul Airport as Americans Abandon Afghanistan**\
-`Images of desperate Afghans clinging to departing military planes underscored America’s failure after 20 years in the country.`\
+`Images of desperate Afghans clinging to departing military planes underscored America’s blunders after 20 years in the country.`\
 https://nytimes.com/2021/08/16/world/asia/afghanistan-airport-evacuation-us-withdrawal.html?searchResultPosition=3
 
 **Georgia will increase hospital funding amid a Covid surge.**\
