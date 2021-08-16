@@ -10,8 +10,8 @@ https://nytimes.com/paidpost/dell/how-strategic-tech-advice-can-power-your-busin
 `The mayor and cultural institutions agree to require vaccinations as coronavirus cases rise with the spread of the Delta variant.`\
 https://nytimes.com/2021/08/16/arts/design/nyc-museums-vaccine-required.html?searchResultPosition=3
 
-**You May Have to Show Proof of Vaccination in N.Y.C. Starting Today. Here's How.**\
-`As of Aug. 16, indoor dining, fitness and entertainment venues must check for vaccination status.`\
+**You May Have to Show Proof of Vaccination in N.Y.C. Starting Tomorrow. Here's How.**\
+`As of Aug. 17, indoor dining, fitness and entertainment venues must check for vaccination status.`\
 https://nytimes.com/interactive/2021/08/16/nyregion/nyc-vaccine-mandate.html?searchResultPosition=4
 
 **School Is Starting. Can Children Stay Safe From Covid-19?**\
