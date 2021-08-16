@@ -36,5 +36,5 @@ https://nytimes.com/2021/08/15/world/asia/kabul-afghanistan.html?searchResultPos
 
 **Stick-to-itiveness**\
 `Freddie Cheng strikes a chord.`\
-https://nytimes.com/2021/08/15/crosswords/daliy-puzzle-2021-08-16.html?searchResultPosition=10
+https://nytimes.com/2021/08/15/crosswords/daily-puzzle-2021-08-16.html?searchResultPosition=10
 
