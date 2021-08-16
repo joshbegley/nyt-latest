@@ -2,7 +2,7 @@
 `Follow along as one toymaker sets up her dream business, thanks to a little help from a trusted technology advisor.`\
 https://nytimes.com/paidpost/dell/how-strategic-tech-advice-can-power-your-business-journey.html?searchResultPosition=1
 
-**New York City Mandates Vaccines For Museum Visitors and Staff**\
+**New York City Mandates Vaccines for Museum Visitors and Staff**\
 `The mayor and cultural institutions agree to require vaccinations as coronavirus cases rise with the spread of the Delta variant.`\
 https://nytimes.com/2021/08/16/arts/design/nyc-museums-vaccine-required.html?searchResultPosition=2
 
