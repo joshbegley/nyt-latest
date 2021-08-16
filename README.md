@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/16/arts/design/tottenham-stadium-art-soccer.html?sea
 
 **Joe Walton, Giants Star Who Found Futility as Jets Coach, Dies at 85**\
 `He took them to the playoffs several times in the 1980s but was dismissed after a 53-57 record. He went on to achieve success as a college coach.`\
-https://nytimes.com/2021/08/16/sports/joe-walton-dead.html?searchResultPosition=2
+https://nytimes.com/2021/08/16/sports/joe-walton-giants-star-who-found-futility-as-jets-coach-dies-at-85.html?searchResultPosition=2
 
 **Biden Could Still Be Proved Right in Afghanistan**\
 `It is hard to imagine a worse morning after for the Biden team in Kabul. But everything really important happens the morning after the morning after.`\
