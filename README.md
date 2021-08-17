@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/17/business/the-billionaire-founder-of-chinas-most-i
 `The unsteady reopening of the economy has been causing sales to shift month to month.`\
 https://nytimes.com/2021/08/17/business/economy/july-2021-retail-sales.html?searchResultPosition=4
 
-**A Taliban official sits for a television interview with a female presenter.**\
+**A Taliban official’s TV interview with a female presenter is part of a broader campaign.**\
 `A leading Afghan broadcaster featured a female anchor for the first time since the Taliban’s recent takeover.`\
 https://nytimes.com/2021/08/17/world/asia/taliban-afghanistan-female-presenter.html?searchResultPosition=5
 
