@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/17/business/job-vacancies-unemployment-britain.html?searchResultPosition=1
 
 **Extreme Weather Is the New Normal. We Know Why.**\
-`Advances  attribution science have made it clear how climate change is making floods, fires and heat waves worse.`\
+`Advances in attribution science have made clear how climate change is making floods, fires and heat waves worse.`\
 https://nytimes.com/2021/08/17/opinion/extreme-weather-climate-change.html?searchResultPosition=2
 
 **Quake-Struck Haiti Is Lashed by Heavy Rains After Storm Hits**\
