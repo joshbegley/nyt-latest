@@ -31,7 +31,7 @@ https://nytimes.com/2021/08/17/us/politics/vietnam-war-afghanistan.html?searchRe
 https://nytimes.com/2021/08/17/health/covid-vaccinated-infections.html?searchResultPosition=8
 
 **Body Parts Found in Landing Gear of Flight From Kabul, Officials Say**\
-`Harrowing video of the chaos, recorded by Afghan media, have circulated around the world. The Air Force said the incident is under investigation.`\
+`Harrowing video of the chaos, recorded by the Afghan news media, has circulated around the world. The Air Force said the episode was under investigation.`\
 https://nytimes.com/2021/08/17/us/politics/afghans-deaths-us-plane.html?searchResultPosition=9
 
 **Pete Buttigieg says he and his husband, Chasten, are now parents.**\
