@@ -18,7 +18,7 @@ https://nytimes.com/2021/08/17/world/americas/cuba-coronavirus-healthcare-collap
 `The fall of Kabul is not the fall of Saigon. But historians still point to some useful parallels and lessons.`\
 https://nytimes.com/2021/08/17/us/politics/vietnam-war-afghanistan.html?searchResultPosition=5
 
-**In a Handful of States, Early Data Hint at Rise in Breakthrough Infections**\
+**In a Handful of States, Early Data Hint at a Rise in Breakthrough Infections**\
 `With the arrival of the contagious Delta variant, Covid hospitalizations and deaths among vaccinated Americans also may have increased, according to preliminary figures.`\
 https://nytimes.com/2021/08/17/health/covid-vaccinated-infections.html?searchResultPosition=6
 
