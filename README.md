@@ -36,5 +36,5 @@ https://nytimes.com/2021/08/17/arts/ellen-havre-weis-dead.html?searchResultPosit
 
 **Laser Fusion Experiment Unleashes an Energetic Burst of Optimism**\
 `Even scientists who were skeptical of work at the National Ignition Facility called the results a success.`\
-https://nytimes.com/2021/08/17/science/fusion-power-lasers.html?searchResultPosition=10
+https://nytimes.com/2021/08/17/science/lasers-fusion-power-watts-earth.html?searchResultPosition=10
 
