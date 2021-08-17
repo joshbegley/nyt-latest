@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/17/business/home-depot-blm-employees.html?searchResu
 https://nytimes.com/2021/08/17/arts/dance/misty-copeland-little-island.html?searchResultPosition=3
 
 **Taliban Hold First Press Conference After Takeover**\
-`Zabihullah Mujahid, the Taliban’s spokesperson, said there would not be reprisals against foreign nationals under Taliban rule and that women would be allowed to work “in accordance with Shariah law.”`\
+`Zabihullah Mujahid, the Taliban’s spokesman, said there would not be reprisals against foreign nationals under Taliban rule and that women would be allowed to work “in accordance with Shariah law.”`\
 https://nytimes.com/video/world/asia/100000007925030/taliban-first-press-conference.html?searchResultPosition=4
 
 **She Got Away With Murder, but Now the Past Is at Her Doorstep**\
