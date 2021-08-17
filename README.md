@@ -20,7 +20,7 @@ https://nytimes.com/2021/08/17/opinion/extreme-weather-climate-change.html?searc
 
 **Quake-Struck Haiti Is Lashed by Heavy Rains After Storm Hits**\
 `The deluge could complicate the relief efforts that followed a 7.2-magnitude temblor that devastated the southwest of the country on Saturday.`\
-https://nytimes.com/2021/08/17/world/americas/haiti-tropical-storm-grace.html?searchResultPosition=6
+https://nytimes.com/2021/08/17/world/americas/haiti-hurricane-storm.html?searchResultPosition=6
 
 **A Painter’s Secret Roman Sanctuary**\
 `Roberto Ruspoli’s airy whitewashed studio in the attic of his childhood home is one big blank canvas.`\
