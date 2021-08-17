@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/17/sports/football/nfl-vaccine-falcons.html?searchRe
 https://nytimes.com/2021/08/17/theater/merry-wives-costumes-dede-ayite.html?searchResultPosition=3
 
 **So, You’ve Been Cast as the Delta Variant**\
-`An ongoing meme personifies a highly contagious strain of the coronavirus as a saboteur.`\
+`An ongoing meme personifies a highly contagious variant of the coronavirus as a saboteur.`\
 https://nytimes.com/2021/08/17/style/delta-variant-meme-fall-plans.html?searchResultPosition=4
 
 **Female Newscaster Interviews Taliban Spokesman**\
