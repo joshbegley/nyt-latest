@@ -1,4 +1,4 @@
-**Biden Officials to Advise Boosters for Most Americans 8 Months After Vaccination**\
+**U.S. to Advise Boosters for Most Americans 8 Months After Vaccination**\
 `Nursing home residents and health care workers will most likely be the first to get booster shots, as soon as September, followed by other older people who were vaccinated last winter.`\
 https://nytimes.com/2021/08/16/us/vaccination-booster-shots.html?searchResultPosition=1
 
