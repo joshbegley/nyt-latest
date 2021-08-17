@@ -1,40 +1,40 @@
+**New Zealand Shuts Down After Coronavirus Case Is Found**\
+`New Zealand will participate in a three-day lockdown in parts of the county and a seven-day lockdown in one particular area after the country’s first possible reported case of the Delta variant.`\
+https://nytimes.com/video/world/australia/100000007924905/new-zealand-coronavirus-case-lockdown.html?searchResultPosition=1
+
 **For Afghan Women, Fears of a Return to a Repressive Past**\
 `In the years since the U.S. invasion toppled the Taliban, girls and women have done things that would have been unimaginable under their rule. But will those gains hold?`\
-https://nytimes.com/2021/08/17/world/asia/afghanistan-women-taliban.html?searchResultPosition=1
+https://nytimes.com/2021/08/17/world/asia/afghanistan-women-taliban.html?searchResultPosition=2
 
 **A Memoir’s Painful Question: Where Are You From?**\
 `“Names for Light,” by Thirii Myo Kyaw Myint, is a memoir recounted through the stories of family members.`\
-https://nytimes.com/2021/08/17/books/review/names-for-light-thirii-myo-kyaw-myint.html?searchResultPosition=2
+https://nytimes.com/2021/08/17/books/review/names-for-light-thirii-myo-kyaw-myint.html?searchResultPosition=3
 
 **Tropical Storm Drenches Haiti After Earthquake**\
 `Tropical Storm Grace made its way across Haiti, drenching the region in rain, pummeling towns and villages, and bringing flash floods. This comes as the country was already reeling from a devastating earthquake.`\
-https://nytimes.com/video/world/americas/100000007924850/haiti-earthquake-tropical-storm.html?searchResultPosition=3
+https://nytimes.com/video/world/americas/100000007924850/haiti-earthquake-tropical-storm.html?searchResultPosition=4
 
 **When Kmart Moved Out, Churches and Flea Markets Moved In**\
 `The retailer’s former stores are being used by tenants that might not typically get a crack at such a large haul of commercial space at an affordable price.`\
-https://nytimes.com/2021/08/17/business/kmart-stores-reuse.html?searchResultPosition=4
+https://nytimes.com/2021/08/17/business/kmart-stores-reuse.html?searchResultPosition=5
 
 **Glittering Boots for a Brighter Fall**\
 `Sparkly, eye-catching platforms and high heels — in metallic leather or shimmering sequins — evince a sense of optimism.`\
-https://nytimes.com/2021/08/17/t-magazine/sparkly-boots-fall-fashion.html?searchResultPosition=5
+https://nytimes.com/2021/08/17/t-magazine/sparkly-boots-fall-fashion.html?searchResultPosition=6
 
 **Recent Commercial Real Estate Transactions**\
 `Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2021/08/17/business/new-york-commercial-real-estate.html?searchResultPosition=6
+https://nytimes.com/2021/08/17/business/new-york-commercial-real-estate.html?searchResultPosition=7
 
 **Five Census Findings You May Have Missed**\
 `California ranks as the second-most diverse state in the nation as its white population shrinks. Plus, San Francisco is the country’s most childless big city.`\
-https://nytimes.com/2021/08/17/us/ca-census-findings.html?searchResultPosition=7
+https://nytimes.com/2021/08/17/us/ca-census-findings.html?searchResultPosition=8
 
 **India says it will prioritize Hindus and Sikhs in issuing ‘emergency visas’ to Afghans.**\
 `Officials did not say whether Muslims would also be considered.`\
-https://nytimes.com/2021/08/17/world/asia/india-afghanistan-visas.html?searchResultPosition=8
+https://nytimes.com/2021/08/17/world/asia/india-afghanistan-visas.html?searchResultPosition=9
 
 **Bill Ackman’s SPAC Gets Sued**\
 `The lawsuit could have far-reaching consequences for the entire blank-check industry.`\
-https://nytimes.com/2021/08/17/business/dealbook/bill-ackman-spac.html?searchResultPosition=9
-
-**The Immortal Myth of the Unicorn**\
-`Over centuries, the legendary creature has become woven into the cultural imagination — and still fascinates as a symbol of the untamed.`\
-https://nytimes.com/2021/08/17/t-magazine/unicorns-culture-myth.html?searchResultPosition=10
+https://nytimes.com/2021/08/17/business/dealbook/bill-ackman-spac.html?searchResultPosition=10
 
