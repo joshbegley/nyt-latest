@@ -1,40 +1,40 @@
-**New Zealand begins a three-day lockdown after a single case is reported.**\
-`The case is believed to be the country’s first case of the Delta variant outside quarantine.`\
-https://nytimes.com/2021/08/17/world/australia/new-zealand-lockdown.html?searchResultPosition=1
+**‘It Happened So Fast’: Inside a Fatal Tesla Autopilot Accident**\
+`A 2019 crash in Florida highlights how gaps in Tesla’s driver-assistance system and distractions can have tragic consequences.`\
+https://nytimes.com/2021/08/17/business/tesla-autopilot-accident.html?searchResultPosition=1
 
-**Vaccine Mandate for Indoor Venues Starts in New York City**\
-`New Yorkers will have to prove they have had at least one vaccine dose to dine indoors or attend fitness or indoor entertainment venues.`\
-https://nytimes.com/2021/08/17/nyregion/vaccine-mandate-indoor-venues.html?searchResultPosition=2
+**The Resilience of New York’s Black Homeowners**\
+`Black homeownership has declined in the city and nationally in the last 20 years, hindered by gentrification and inequitable lending policies.`\
+https://nytimes.com/2021/08/17/realestate/new-york-black-homeowners.html?searchResultPosition=2
 
-**The Taliban Are Back. Now Will They Restrain or Support Al Qaeda?**\
-`The United States invaded Afghanistan 20 years ago in response to terrorism, and many worry that Al Qaeda and other radical Islamist groups will again find safe haven there.`\
-https://nytimes.com/2021/08/17/world/asia/taliban-afghanistan-al-qaeda.html?searchResultPosition=3
+**What to Do This Summer: Denver**\
+`Two neighborhoods and one arts district — LoDo, Five Points and RiNo — offer new hotels and restaurants, and plenty of cultural attractions that can be enjoyed outside.`\
+https://nytimes.com/2021/08/17/travel/Denver-Travel-Guide.html?searchResultPosition=3
 
-**After a Quarter-Century, the Queen of Salzburg Calls It Quits**\
-`Since 1995, Helga Rabl-Stadler has ruled the Salzburg Festival, classical music’s premier annual event, as its president and public face.`\
-https://nytimes.com/2021/08/17/arts/music/salzburg-festival-helga-rabl-stadler.html?searchResultPosition=4
+**India’s Covid-19 Numbers Have Fallen. A Third Wave Still Looms.**\
+`Scientists are looking for signs that another variant could emerge in Delta’s wake, but limited sampling capabilities are hindering the search.`\
+https://nytimes.com/2021/08/17/world/asia/india-covid-variants.html?searchResultPosition=4
 
-**He Stayed Afloat Selling $3 Tacos. Now He Faces $2,000 in Fines.**\
-`People who lost jobs in the pandemic began to peddle food and wares to survive, but the city is starting to crack down on unlicensed vendors.`\
-https://nytimes.com/2021/08/17/nyregion/ny-street-vendors-crackdown.html?searchResultPosition=5
+**Can Gov. Newsom Keep His Job? A Recall Effort in California Shows a Dead Heat.**\
+`The vote is expected to come down to whether Democrats can mobilize enough of the state’s enormous base to counteract Republican enthusiasm for Gavin Newsom’s ouster.`\
+https://nytimes.com/2021/08/17/us/newsom-recall-governor-election-california.html?searchResultPosition=5
 
-**This Breast Cancer Gene Is Less Well Known, but Nearly as Dangerous**\
-`PALB2 is not as well known as BRCA, but mutations of the gene can raise a woman’s risk for breast cancer almost as much.`\
-https://nytimes.com/2021/08/17/health/this-breast-cancer-gene-is-less-well-known-but-nearly-as-dangerous.html?searchResultPosition=6
+**Why Was Vicha Ratanapakdee Killed?**\
+`His death helped awaken the nation to a rise in anti-Asian violence. For his grieving family, the reckoning hasn’t gone far enough.`\
+https://nytimes.com/2021/08/17/magazine/vicha-ratanapakdee.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/17/crosswords/spelling-bee-2021-08-17.html?searchResultPosition=7
+**It’s Never Too Late to Record Your First Album**\
+`For a celebrated architecture professor at the University of California, Berkeley, an album of 11 original songs, in a variety of genres, was eight decades in the making.`\
+https://nytimes.com/2021/08/17/style/adult-record-first-album.html?searchResultPosition=7
 
-**Corrections: Aug. 17, 2021**\
-`Corrections that appeared in print on Tuesday, Aug. 17, 2021.`\
-https://nytimes.com/2021/08/17/pageoneplus/corrections-aug-17-2021.html?searchResultPosition=8
+**For a Better Pizza, Light Up the Grill**\
+`J. Kenji López-Alt makes the case for grilled pizza, one of the easiest ways (really!) to get restaurant-quality pizza at home.`\
+https://nytimes.com/2021/08/17/dining/grilled-pizza-recipe.html?searchResultPosition=8
 
-**What If You Could Become Invisible to Mosquitoes?**\
-`Using Crispr, scientists have taken the first step toward creating a mosquito that is blind to human hosts.`\
-https://nytimes.com/2021/08/17/science/crispr-mosquito-vision.html?searchResultPosition=9
+**How Peppers Proliferated Around the Planet**\
+`In the world’s plant gene banks, scientists studied how so many varieties of the humble capsicum worked their way onto our plates.`\
+https://nytimes.com/2021/08/17/science/peppers-gene-banks.html?searchResultPosition=9
 
-**Colbert on Afghanistan: ‘It’s Heartbreaking’**\
-`“Why should our soldiers be fighting radicals in a civil war in Afghanistan? We’ve got our own on Capitol Hill,” Stephen Colbert said.`\
-https://nytimes.com/2021/08/17/arts/television/stephen-colbert-taliban-afghanistan.html?searchResultPosition=10
+**Is There Racism in the Deed to Your Home?**\
+`Racial covenants were designed to keep neighborhoods segregated. Some states are now making it easier to erase them from legal documents.`\
+https://nytimes.com/2021/08/17/realestate/house-deed-covenant-race.html?searchResultPosition=10
 
