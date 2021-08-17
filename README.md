@@ -8,7 +8,7 @@ https://nytimes.com/2021/08/17/us/university-protests-masks-vaccines.html?search
 
 **Intelligence Warned of Afghan Military Collapse, Despite Biden’s Assurances**\
 `Even as the president was telling the public that Kabul was unlikely to fall, intelligence assessments painted a grimmer picture.`\
-https://nytimes.com/2021/08/17/us/politics/afghanistan-intelligence-biden-administration.html?searchResultPosition=3
+https://nytimes.com/2021/08/17/us/politics/afghanistan-biden-administration.html?searchResultPosition=3
 
 **What Constitutes Art Sales Under Duress? A Dispute Reignites the Question.**\
 `A fight over a landscape painting bought for Hitler is focused on the question of whether its sale was voluntary or forced by economic distress the Nazis helped create.`\
