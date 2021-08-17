@@ -1,40 +1,40 @@
+**Decades of Accusations Set the Stage for R. Kelly’s Trial**\
+`The R&B artist was acquitted in 2008. But the culture around allegations of sexual misconduct has shifted dramatically since then, and he faces more formidable charges this time.`\
+https://nytimes.com/2021/08/17/nyregion/r-kelly-trial-allegations.html?searchResultPosition=1
+
+**Lincoln Center Hopes a $20 Million Donation Will Help Fuel a Revival**\
+`Eager for a comeback amid the pandemic, the center will distribute the gift to Jazz at Lincoln Center, Lincoln Center Theater, the Metropolitan Opera and New York City Ballet.`\
+https://nytimes.com/2021/08/17/arts/lincoln-center-donation.html?searchResultPosition=2
+
+**Malala: I Fear for My Afghan Sisters**\
+`In the last two decades, millions of Afghan women and girls received an education. Now the future they were promised is in imminent danger.`\
+https://nytimes.com/2021/08/17/opinion/malala-afghanistan-taliban-women.html?searchResultPosition=3
+
+**Billie Jean King: The First Female Athlete-Activist**\
+`In her new memoir, “All In,” King is as concerned with political and social issues as she is with tennis.`\
+https://nytimes.com/2021/08/17/books/review/all-in-billie-jean-king.html?searchResultPosition=4
+
+**How ‘Woke’ Became an Insult**\
+`On the perils of the euphemism treadmill.`\
+https://nytimes.com/2021/08/17/opinion/woke-politically-correct.html?searchResultPosition=5
+
 **Saga, From the Crown Shy Team, to Open High Above the Financial District**\
 `A California ramen chain comes to the East Village, a beer garden for Oceana in Midtown, and more news.`\
-https://nytimes.com/2021/08/17/dining/nyc-restaurant-news.html?searchResultPosition=1
+https://nytimes.com/2021/08/17/dining/nyc-restaurant-news.html?searchResultPosition=6
 
 **Ellen Havre Weis, Whose Museum Put Pop Into Mythology, Dies at 64**\
 `The Museum of Modern Mythology, in San Francisco, which she helped found, posited that advertising figures have emerged as the pre-eminent mythical figures of our time.`\
-https://nytimes.com/2021/08/17/arts/ellen-havre-weis-dead.html?searchResultPosition=2
+https://nytimes.com/2021/08/17/arts/ellen-havre-weis-dead.html?searchResultPosition=7
 
 **Laser Fusion Experiment Unleashes an Energetic Burst of Optimism**\
 `Even scientists who were skeptical of work at the National Ignition Facility called the results a success.`\
-https://nytimes.com/2021/08/17/science/fusion-power-lasers.html?searchResultPosition=3
+https://nytimes.com/2021/08/17/science/fusion-power-lasers.html?searchResultPosition=8
 
 **Accessibility Is a Right. This Restaurant Treats It That Way.**\
 `Contento, in East Harlem, sets an example for an industry that is rarely welcoming to diners with disabilities.`\
-https://nytimes.com/2021/08/17/dining/contento-review-accessibility.html?searchResultPosition=4
+https://nytimes.com/2021/08/17/dining/contento-review-accessibility.html?searchResultPosition=9
 
 **Peruvian Food and a Thoughtful Welcome**\
 `At Contento in East Harlem, both the ceviche and the expansive idea of hospitality are getting attention.`\
-https://nytimes.com/slideshow/2021/08/17/dining/peruvian-food-and-a-thoughtful-welcome.html?searchResultPosition=5
-
-**Who Are the Taliban, and What Do They Want?**\
-`Here are answers to questions about the militants who have seized control in Afghanistan again, including their origin story, their record as rulers, and why so many women fear their return.`\
-https://nytimes.com/article/who-are-the-taliban.html?searchResultPosition=6
-
-**People Now Spend More at Amazon Than at Walmart**\
-`Proof that the online future has arrived: The biggest e-commerce company outside China has unseated the biggest brick-and-mortar seller.`\
-https://nytimes.com/2021/08/17/technology/amazon-bigger-than-walmart.html?searchResultPosition=7
-
-**Review: Revisiting Four Nobodies in ‘[title of show]’**\
-`For an outdoor residency at the Brooklyn Navy Yard, the Bridge Production Group breathes fresh life into a 2004 musical.`\
-https://nytimes.com/2021/08/17/theater/title-of-show-review.html?searchResultPosition=8
-
-**Summer Reading Contest Winner Week 8: On ‘If You Paid Your Debt to Society, You Should Be Allowed to Work’**\
-`Thank you to the teenagers who participated this week, and congratulations to our winner, Francisco, as well as our many runners-up and honorable mentions.`\
-https://nytimes.com/2021/08/17/learning/summer-reading-contest-winner-week-8-on-if-you-paid-your-debt-to-society-you-should-be-allowed-to-work.html?searchResultPosition=9
-
-**Denmark Now Has Two Little Mermaids. The Famous One Is Suing.**\
-`The heirs of the artist behind the Copenhagen landmark want a similar statue torn down. And they want compensation, too.`\
-https://nytimes.com/2021/08/17/arts/design/little-mermaid-denmark-dispute.html?searchResultPosition=10
+https://nytimes.com/slideshow/2021/08/17/dining/peruvian-food-and-a-thoughtful-welcome.html?searchResultPosition=10
 
