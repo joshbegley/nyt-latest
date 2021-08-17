@@ -27,7 +27,7 @@ https://nytimes.com/video/world/asia/100000007925128/women-afghanistan-taliban-f
 https://nytimes.com/2021/08/17/style/bama-rush-explained.html?searchResultPosition=7
 
 **Exit From Afghanistan: The Fallout**\
-`Readers discuss the continuing controversy over the U.S. withdrawal. Also: Covid and the anti-mask governors; Lindsey Graham's relationship with Donald Trump.`\
+`Readers discuss the continuing controversy over the U.S. withdrawal. Also: Covid and the anti-mask governors; fed up with the vaccine refusers; Lindsey Graham's relationship with Donald Trump.`\
 https://nytimes.com/2021/08/17/opinion/letters/biden-afghanistan.html?searchResultPosition=8
 
 **15% of Paycheck Protection Program Loans Could Be Fraudulent, Study Shows**\
