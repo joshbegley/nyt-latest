@@ -14,27 +14,27 @@ https://nytimes.com/2021/08/17/business/the-billionaire-founder-of-chinas-most-i
 `The unsteady reopening of the economy has been causing sales to shift month to month.`\
 https://nytimes.com/2021/08/17/business/economy/july-2021-retail-sales.html?searchResultPosition=4
 
+**A Taliban official sits for a television interview with a female presenter.**\
+`A leading Afghan broadcaster featured a female anchor for the first time since the Taliban’s recent takeover.`\
+https://nytimes.com/2021/08/17/world/asia/taliban-afghanistan-female-presenter.html?searchResultPosition=5
+
 **Maki Kaji, ‘Godfather of Sudoku,’ Dies at 69**\
 `The university dropout turned a numbers game into one of the world’s most popular logic puzzles.`\
-https://nytimes.com/2021/08/17/world/asia/maki-kaji-dead.html?searchResultPosition=5
+https://nytimes.com/2021/08/17/world/asia/maki-kaji-dead.html?searchResultPosition=6
 
 **George W. Bush says the events in Afghanistan fill him ‘with deep sadness.’**\
 `The former president, who ordered the invasion of Afghanistan that drove the Taliban from power two decades ago, said the U.S. had a “responsibility” to its Afghan allies.`\
-https://nytimes.com/2021/08/17/world/george-w-bush-afghanistan-taliban.html?searchResultPosition=6
+https://nytimes.com/2021/08/17/world/george-w-bush-afghanistan-taliban.html?searchResultPosition=7
 
 **‘It Happened So Fast’: Inside a Fatal Tesla Autopilot Accident**\
 `A 2019 crash in Florida highlights how gaps in Tesla’s driver-assistance system and distractions can have tragic consequences.`\
-https://nytimes.com/2021/08/17/business/tesla-autopilot-accident.html?searchResultPosition=7
+https://nytimes.com/2021/08/17/business/tesla-autopilot-accident.html?searchResultPosition=8
 
 **The Resilience of New York’s Black Homeowners**\
 `Black homeownership has declined in the city and nationally in the last 20 years, hindered by gentrification and inequitable lending policies.`\
-https://nytimes.com/2021/08/17/realestate/new-york-black-homeowners.html?searchResultPosition=8
+https://nytimes.com/2021/08/17/realestate/new-york-black-homeowners.html?searchResultPosition=9
 
 **What to Do This Summer: Denver**\
 `Two neighborhoods and one arts district — LoDo, Five Points and RiNo — offer new hotels and restaurants, and plenty of cultural attractions that can be enjoyed outside.`\
-https://nytimes.com/2021/08/17/travel/Denver-Travel-Guide.html?searchResultPosition=9
-
-**India’s Covid-19 Numbers Have Fallen. A Third Wave Still Looms.**\
-`Scientists are looking for signs that another variant could emerge in Delta’s wake, but limited sampling capabilities are hindering the search.`\
-https://nytimes.com/2021/08/17/world/asia/india-covid-variants.html?searchResultPosition=10
+https://nytimes.com/2021/08/17/travel/Denver-Travel-Guide.html?searchResultPosition=10
 
