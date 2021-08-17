@@ -1,6 +1,6 @@
 **Over 5 million Americans could soon be eligible for Covid vaccine booster shots.**\
 `The Food and Drug Administration must decide that third shots are safe and effective for Pfizer-BioNTech and Moderna, the two vaccines that were rolled out first and have been most used.`\
-https://nytimes.com/2021/08/17/us/politics/over-5-million-americans-could-soon-be-eligible-for-covid-vaccine-booster-shots.html?searchResultPosition=1
+https://nytimes.com/2021/08/17/us/politics/covid-vaccine-booster-fda.html?searchResultPosition=1
 
 **Overwhelmed by Coronavirus, Cuba’s Vaunted Health System Is Reeling**\
 `“The funeral homes can’t cope, the hospitals can’t cope, the clinics can’t cope,” said a Cuban doctor who was fired for publicly lamenting the distressed state of medical care.`\
