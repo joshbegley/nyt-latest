@@ -1,5 +1,5 @@
 **Pete Buttigieg says he and his husband, Chasten, are now parents.**\
-`The transportation secretary said that the adoption process was not yet complete but that he and his husband “can’t wait to share more soon.”`\
+`The transportation secretary said that the process was not yet complete but that he and his husband “can’t wait to share more soon.”`\
 https://nytimes.com/2021/08/17/us/politics/pete-chasten-buttigieg-adoption.html?searchResultPosition=1
 
 **Did America Betray Afghanistan?**\
