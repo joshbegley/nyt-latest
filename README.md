@@ -30,7 +30,7 @@ https://nytimes.com/article/wildfire-firefighter-terms.html?searchResultPosition
 `Mayor Bill de Blasio of New York announced that starting Sept. 13 those who are 12 and older will be required to show proof of having received at least one dose of a Covid-19 vaccine in order to participate in indoor dining, fitness or entertainment.`\
 https://nytimes.com/video/us/100000007926011/nyc-coronavirus-vaccine-proof.html?searchResultPosition=8
 
-**Gov. Greg Abbott of Texas tested positive for the coronavirus.**\
+**Gov. Greg Abbott of Texas has tested positive for the coronavirus.**\
 `An ardent opponent of mask and vaccine mandates, Mr. Abbott has taken his opposition to such requirements all the way to the state Supreme Court. The governor, a Republican who is fully vaccinated, will now be isolated in the Governor’s Mansion while receiving medical treatment.`\
 https://nytimes.com/2021/08/17/us/greg-abbott-texas-covid-positive.html?searchResultPosition=9
 
