@@ -2,7 +2,7 @@
 `Republicans in Georgia took a step toward gaining control over elections in Fulton County, a Democratic bastion.`\
 https://nytimes.com/2021/08/18/us/politics/georgia-elections-republicans.html?searchResultPosition=1
 
-**The Biden administration will use a federal civil rights arm to deter states from banning universal masking in classrooms.**\
+**The Biden administration will use a federal civil rights office to deter states from banning universal masking in classrooms.**\
 `The move, using the federal Department of Education’s civil rights enforcement authority, escalates the administration fight with Republican governors who are blocking local school districts from requiring masks to protect against the virus.`\
 https://nytimes.com/2021/08/18/us/politics/biden-masks-schools-civil-rights.html?searchResultPosition=2
 
