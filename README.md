@@ -16,7 +16,7 @@ https://nytimes.com/2021/08/18/insider/daily-podcast-afghanistan-fall.html?searc
 
 **To China, Afghan Fall Proves U.S. Hubris. It Also Brings New Dangers.**\
 `The Taliban’s return to power is no victory for Beijing, which faces the threat of extremism and an American military no longer bogged down by the “war on terror.”`\
-https://nytimes.com/2021/08/18/world/asia/china-afghanistan-taliban.html?searchResultPosition=5
+https://nytimes.com/2021/08/18/world/asia/china-afghanistan-taliban-usa.html?searchResultPosition=5
 
 **Belleville, N.J.: An Affordable Alternative to Renting in the City**\
 `The Essex County township has seen an influx of New York buyers looking for ‘houses with a little bit of property and taxes that aren’t too crazy.’`\
