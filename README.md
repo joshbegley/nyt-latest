@@ -6,7 +6,7 @@ https://nytimes.com/2021/08/18/dining/peak-summer-flavors.html?searchResultPosit
 `The recall was created by California progressives to hold corrupt officials to account. 100 years later, conservatives may use it to get rid of Gavin Newsom.`\
 https://nytimes.com/2021/08/18/opinion/newsom-recall-california.html?searchResultPosition=2
 
-**The Daily Beasts selects Tracy Connor as its top editor.**\
+**The Daily Beast selects Tracy Connor as its top editor.**\
 `She will take over immediately as editor in chief, a role vacated by the recent departure of Noah Shachtman, who left for the top job at Rolling Stone magazine.`\
 https://nytimes.com/2021/08/18/business/media/daily-beast-tracy-connor.html?searchResultPosition=3
 
