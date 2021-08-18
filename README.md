@@ -1,6 +1,6 @@
 **Justice Dept. Says Missouri’s Gun Law Hobbles Drug and Weapons Inquiries**\
 `The law does not go into effect until Aug. 28, but it has already had a serious chilling effect on cooperation between local and federal authorities, agents say.`\
-https://nytimes.com/2021/08/18/us/politics/missouri-gun-law-justice-department.html?searchResultPosition=1
+https://nytimes.com/2021/08/18/us/politics/missouri-gun-law.html?searchResultPosition=1
 
 **The Afghan president who fled the country is now in the U.A.E.**\
 `The whereabouts Ashraf Ghani, whose departure from Afghanistan last weekend sped the government’s collapse, had been a matter of speculation for days.`\
