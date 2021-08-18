@@ -1,5 +1,5 @@
-**Washington State imposes nation’s strictest school mandate, requiring all teachers and staff to be vaccinated.**\
-`By Dana Goldstein`\
+**Washington State imposes the strictest school mandate in the U.S., requiring all teachers and staff to be vaccinated.**\
+`The policy is the strictest school vaccine mandate imposed to date by any state, allowing for only a few exceptions. School staff must be vaccinated by Oct. 18 or face possible dismissal.`\
 https://nytimes.com/2021/08/18/us/washington-state-teacher-vaccine-mandate.html?searchResultPosition=1
 
 **Naomi Osaka Perseveres, Pushes Into the Round of 16 in Cincinnati**\
