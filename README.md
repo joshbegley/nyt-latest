@@ -32,7 +32,7 @@ https://nytimes.com/2021/08/18/sports/baseball/yankees-red-sox.html?searchResult
 
 **Some Americans will be eligible for booster shots beginning in late September, federal officials say.**\
 `Health care workers, nursing home residents and other older adults will be first in line.`\
-https://nytimes.com/2021/08/18/health/covid-vaccine-boosters-8-months.html?searchResultPosition=9
+https://nytimes.com/2021/08/18/health/booster-shot-8-months.html?searchResultPosition=9
 
 **How to Decode Hurricane Season Terms**\
 `During hurricane season, news coverage and forecasts can include a host of confusing terms. Let’s take a look at what they mean.`\
