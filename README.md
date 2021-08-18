@@ -26,7 +26,7 @@ https://nytimes.com/2021/08/18/world/europe/afghanistan-refugees-europe-migratio
 `The agency will reverse a Trump-era decision to keep chlorpyrifos, one of the most common pesticides, in use.`\
 https://nytimes.com/2021/08/18/climate/pesticides-epa-chlorpyrifos.html?searchResultPosition=7
 
-**Collapse and Conquest: The Taliban Strategy That Conquered Afghanistan**\
+**Collapse and Conquest: The Taliban Strategy That Seized Afghanistan**\
 `Starting in the spring, the Taliban negotiated wholesale surrenders and seized roadways and weapons, handing them vital propaganda victories and freedom to move quickly to the next opportunity.`\
 https://nytimes.com/2021/08/18/world/asia/taliban-victory-strategy-afghanistan.html?searchResultPosition=8
 
