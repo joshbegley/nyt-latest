@@ -4,7 +4,7 @@ https://nytimes.com/video/world/asia/100000007927275/afghanistan-evacuations-kab
 
 **T-Mobile Says Hack Exposed Personal Data of 40 Million People**\
 `The company said that stolen files included the personal information of 7.8 million current customers and 40 million people who had applied for credit.`\
-https://nytimes.com/2021/08/18/business/t-mobile-hack.html?searchResultPosition=2
+https://nytimes.com/2021/08/18/business/tmobile-data-breach.html?searchResultPosition=2
 
 **Glen Ford, Black Journalist Who Lashed the Mainstream, Dies at 71**\
 `Fiercely progressive and independent, he was a persistent critic of the liberal establishment, especially Black leaders like Barack Obama.`\
