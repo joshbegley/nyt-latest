@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/18/world/asia/afghanistan-taliban-takeover-violence.html?searchResultPosition=1
 
 **Military to Work With Taliban to Ensure Evacuations, Pentagon Says**\
-`The U.S. military mission is Afghanistan is set to end by the month, even as tens of thousands remain unable to leave the country.`\
+`The U.S. military mission in Afghanistan is set to end by the month, even as tens of thousands remain unable to leave the country.`\
 https://nytimes.com/2021/08/18/us/politics/military-afghan-evacuation.html?searchResultPosition=2
 
 **British Court Denies Last-Ditch Effort to Save Geronimo, the Divisive Alpaca**\
