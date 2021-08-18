@@ -1,40 +1,40 @@
-**5 Audiobooks to Listen to This Week**\
-`We’re keeping an ear to the ground for the latest listens.`\
-https://nytimes.com/interactive/2021/08/18/books/booksupdate/new-audiobooks.html?searchResultPosition=1
+**Belleville, N.J.: An Affordable Alternative to Renting in the City**\
+`The Essex County township has seen an influx of New York buyers looking for ‘houses with a little bit of property and taxes that aren’t too crazy.’`\
+https://nytimes.com/2021/08/18/realestate/belleville-nj-home-sales.html?searchResultPosition=1
 
-**Hong Kong Police Arrest Students Over ‘Advocating Terrorism’**\
-`The student union leaders, who were detained under the national security law, had expressed sympathy for a man who stabbed a police officer before killing himself.`\
-https://nytimes.com/2021/08/18/world/asia/hong-kong-university-arrests.html?searchResultPosition=2
+**Living In ... Belleville, N.J.**\
+`The Essex County township has seen an influx of New York buyers looking for ‘houses with a little bit of property and taxes that aren’t too crazy.’`\
+https://nytimes.com/slideshow/2021/08/18/realestate/living-in-belleville-nj.html?searchResultPosition=2
 
-**How New Yorkers Can Help Haiti After the Earthquake**\
-`After Haiti was hit by an earthquake and a tropical storm within days of each other, local leaders in New York City have organized ways to help.`\
-https://nytimes.com/2021/08/18/nyregion/haiti-donate-new-york-city.html?searchResultPosition=3
+**Are Apple’s Tools Against Child Abuse Bad for Your Privacy?**\
+`The backlash to Apple’s efforts to fight child sexual abuse show that in the debate between privacy and security, there are few easy answers.`\
+https://nytimes.com/2021/08/18/technology/apple-child-abuse-tech-privacy.html?searchResultPosition=3
 
-**Biden Rattles U.K. With His Afghanistan Policy**\
-`Britain was the second-largest supplier of troops to Afghanistan, and the United States’ rapid withdrawal from the country has left some embittered.`\
-https://nytimes.com/2021/08/18/world/europe/britain-afghanistan-johnson-biden.html?searchResultPosition=4
+**Attack of the Superweeds**\
+`Herbicides are losing the war — and agriculture might never be the same again.`\
+https://nytimes.com/2021/08/18/magazine/superweeds-monsanto.html?searchResultPosition=4
 
-**Fans Find Joy in a Long-Delayed Season of Bets and Feasts**\
-`A day at the track begins with a race to the picnic tables.`\
-https://nytimes.com/2021/08/18/sports/horse-racing/saratoga-springs-summer-horse-racing.html?searchResultPosition=5
+**The School Culture Wars: ‘You Have Brought Division to Us’**\
+`From mask mandates to critical race theory and gender identity, educators are besieged. “You are just trying to keep everything from collapsing,” one official said.`\
+https://nytimes.com/2021/08/18/us/schools-mask-mandates-critical-race-theory.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/18/crosswords/spelling-bee-2021-08-18.html?searchResultPosition=6
+**Put Your Smartphone to Work for Your Return to the Office**\
+`Contactless bagel orders and finding new routes can help you keep social distance in your commute. And don’t forget your vaccination card.`\
+https://nytimes.com/2021/08/18/technology/personaltech/coronavirus-reopenings-smartphones-apps.html?searchResultPosition=6
 
-**Late Night Anticipates the Third Shot**\
-`“Yep, Biden will be making the booster shot announcement as part of his Operation: Change the Subject,” Jimmy Fallon said.`\
-https://nytimes.com/2021/08/18/arts/television/jimmy-fallon-covid-booster.html?searchResultPosition=7
+**This Brain Remained Intact in a 310 Million-Year-Old Fossil**\
+`The discovery suggested that horseshoe crab brains haven’t changed much and that there are more ways for soft tissues to be preserved in the fossil record.`\
+https://nytimes.com/2021/08/18/science/brain-fossil-horseshoe-crab.html?searchResultPosition=7
 
-**Your Wednesday Briefing**\
-`History clouds the Taliban’s promises.`\
-https://nytimes.com/2021/08/17/briefing/taliban-haiti-breakthrough-infections.html?searchResultPosition=8
+**Workers, in Demand, Have a New Demand of Their Own: A Career Path**\
+`More low-wage employees want opportunities to grow. Big companies are making more promises to help them.`\
+https://nytimes.com/2021/08/18/business/workers-in-demand-have-a-new-demand-of-their-own-a-career-path.html?searchResultPosition=8
 
-**Corrections: Aug. 18, 2021**\
-`Corrections that appeared in print on Wednesday, Aug. 18, 2021.`\
-https://nytimes.com/2021/08/17/pageoneplus/corrections-aug-18-2021.html?searchResultPosition=9
+**With R. Kelly on Trial, What Has Become of His Music?**\
+`The R&B superstar may have experienced a “social death,” with his music largely disappearing in public. But streaming data tells a more complicated story.`\
+https://nytimes.com/2021/08/18/arts/music/streaming-music-r-kelly.html?searchResultPosition=9
 
-**Quotation of the Day: ‘My Future Is Dark’: Fear Rises in Women After Years of Gains**\
-`Quotation of the Day for Wednesday, August 18, 2021.`\
-https://nytimes.com/2021/08/17/todayspaper/quotation-of-the-day-my-future-is-dark-fear-rises-in-women-after-years-of-gains.html?searchResultPosition=10
+**Into the Mist**\
+`He was a champion swimmer, maybe a future Olympian. Then he disappeared. Where did Vinny Marciano go?`\
+https://nytimes.com/2021/08/18/sports/swimming-champion-rock-climbing-freedom.html?searchResultPosition=10
 
