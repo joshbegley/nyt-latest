@@ -18,7 +18,7 @@ https://nytimes.com/2021/08/18/podcasts/the-daily/haiti-earthquake.html?searchRe
 `Lawyers for the R&B star and prosecutors will offer opening arguments in the high-profile trial on Wednesday.`\
 https://nytimes.com/2021/08/18/nyregion/r-kelly-trial-updates.html?searchResultPosition=5
 
-**The first outpouring of public anger is met with Taliban force.**\
+**The Taliban respond with force to an outpouring of public anger.**\
 `Hundreds of protesters took to the streets in Jalalabad. The Taliban shot into the crowd and beat protesters.`\
 https://nytimes.com/2021/08/18/world/asia/afghanistan-taliban-protests.html?searchResultPosition=6
 
