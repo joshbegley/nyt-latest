@@ -10,8 +10,8 @@ https://nytimes.com/2021/08/18/opinion/letters/greg-abbott-covid.html?searchResu
 `A champion of education in his province, he helped his nation achieve sovereignty from Britain by brokering a 1982 compromise.`\
 https://nytimes.com/2021/08/18/world/canada/bill-davis-pragmatic-ontario-premier-dies-at-92.html?searchResultPosition=3
 
-**The Taliban Is in Power. There’s Very Little the West Can Do About It.**\
-`The Taliban has claimed Afghanistan’s real economic prize.`\
+**The Taliban Has Claimed Afghanistan’s Real Economic Prize**\
+`And there’s very little the West can do about it.`\
 https://nytimes.com/2021/08/18/opinion/taliban-afghanistan-economy.html?searchResultPosition=4
 
 **3 Art Gallery Shows to See Right Now**\
