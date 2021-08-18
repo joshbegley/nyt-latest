@@ -1,4 +1,4 @@
-**Jay-Z’s “Black Album” Reconsidered**\
+**Jay-Z’s ‘Black Album’ Reconsidered**\
 `Our culture writer loved this quintessential hip-hop album as a teen. But after the summer of 2020, he started rethinking its message.`\
 https://nytimes.com/2021/08/18/podcasts/jay-z-black-album-reconsidered.html?searchResultPosition=1
 
