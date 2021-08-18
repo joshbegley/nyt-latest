@@ -1,4 +1,4 @@
-**Taliban Ramps Up on Social Media, Defying Bans by the Platforms**\
+**Taliban Ramp Up on Social Media, Defying Bans by the Platforms**\
 `More than 100 new official or pro-Taliban accounts and pages have surfaced on Facebook, YouTube and Twitter, despite a ban on the group by the sites.`\
 https://nytimes.com/2021/08/18/technology/taliban-social-media-bans.html?searchResultPosition=1
 
