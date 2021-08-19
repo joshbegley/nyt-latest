@@ -22,7 +22,7 @@ https://nytimes.com/2021/08/19/dining/drinks/best-wines-under-20-dollars-summer.
 `I’m a senior staff editor for the Arts & Leisure section. Here are five things I've been watching, reading and listening to.`\
 https://nytimes.com/interactive/2021/08/19/arts/editors-recommendations-yeahyeahyeahs.html?searchResultPosition=6
 
-**U.S. Takes a New Stab at Facebook Antitrust Suit**\
+**U.S. Takes a New Stab at a Facebook Antitrust Suit**\
 `After a judge slammed the F.T.C.’s original lawsuit, regulators returned with a more detailed case accusing the platform of being a monopoly.`\
 https://nytimes.com/2021/08/19/technology/ftc-facebook-antitrust.html?searchResultPosition=7
 
