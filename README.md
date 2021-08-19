@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/19/opinion/biden-afghanistan-johnson.html?searchResu
 
 **A Historical Guide to Renaming the Washington Football Team**\
 `N.F.L. team names have followed trends in certain eras, a practice that could give the Washington franchise more options for its rebranding.`\
-https://nytimes.com/2021/08/19/sports/football/washington-football-team-name.html?searchResultPosition=4
+https://nytimes.com/article/washington-football-team-name.html?searchResultPosition=4
 
 **My Interviews With L.B.J., Xi Jinping and Afghanistan’s Last King**\
 `Imagining conversations on Afghanistan.`\
