@@ -34,7 +34,7 @@ https://nytimes.com/video/world/middleeast/100000007928291/ghani-uae-afghanistan
 `While the militants appear firmly in control, some prominent figures vowed to continue resistance as protests erupted in two cities and millions of Afghans parsed clues about the Taliban’s intentions.`\
 https://nytimes.com/2021/08/18/world/asia/afghanistan-taliban-takeover-violence.html?searchResultPosition=9
 
-**Military to Work With Taliban to Ensure Evacuations, Pentagon Says**\
+**Biden Says Troops May Stay in Kabul Longer to Assist Evacuations**\
 `Tens of thousands of people trying to flee remain in the country, unable to leave.`\
 https://nytimes.com/2021/08/18/us/politics/military-afghan-evacuation.html?searchResultPosition=10
 
