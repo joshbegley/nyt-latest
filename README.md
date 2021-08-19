@@ -1,40 +1,40 @@
-**Some members of Afghanistan’s all-girls robotics team flee the country.**\
-`The team won hearts worldwide in 2017, when six members were denied visas to travel to the United States for a competition.`\
-https://nytimes.com/2021/08/19/world/asia/afghanistan-girls-robotics-team.html?searchResultPosition=1
+**Two Disabled Drivers Team Up at Le Mans**\
+`Nigel Bailly of Belgium and Takuma Aoki of Japan, both paralyzed from the waist down, will share a car at the race.`\
+https://nytimes.com/2021/08/19/sports/autoracing/le-mans-disabled-drivers.html?searchResultPosition=1
 
-**R. Kelly’s Federal Trial in Brooklyn**\
-`The singer is facing a slew of federal charges in New York, including racketeering and violations of  an interstate anti-prostitution law.`\
-https://nytimes.com/2021/08/19/nyregion/kelly-trial-brooklyn.html?searchResultPosition=2
+**Is the Party Over for New York’s Outlaw Houseboats?**\
+`Newtown Creek, a polluted waterway, is set to be dredged, meaning the end of an era for the adventurous community it inspired.`\
+https://nytimes.com/2021/08/19/nyregion/newtown-creek-houseboats-superfund-schamonchi.html?searchResultPosition=2
 
-**A Quiet Summer at Edinburgh’s Festivals**\
-`There are fewer shows and smaller audiences than usual at the International Festival and the Fringe this year.`\
-https://nytimes.com/2021/08/19/theater/edinburgh-festival-fringe.html?searchResultPosition=3
+**A Starter Kit for Biking in New York**\
+`A few tips if you’re new to urban biking — or if you’re rediscovering it.`\
+https://nytimes.com/2021/08/19/nyregion/biking-new-york-city-starting-new.html?searchResultPosition=3
 
-**Seeking Global Recognition, Taliban Take a New Approach: Making Nice**\
-`The group’s head-spinning claims of moderation follow a common playbook for rebel-held governments, with mixed lessons for Afghanistan’s future.`\
-https://nytimes.com/2021/08/19/world/asia/taliban-foreign-recognition.html?searchResultPosition=4
+**‘Grandfamily’ Housing Caters to Older Americans Raising Children**\
+`Intergenerational communities are sprouting up as the need grows for homes that suit aging adults and their young charges.`\
+https://nytimes.com/2021/08/19/business/retirement-grandparents-raising-children.html?searchResultPosition=4
 
-**Hypebeasts Hit the Road**\
-`Forget the factory model. For certain status chasers, the Abushi brothers take car customization to the next level — with luxury price tags to match.`\
-https://nytimes.com/2021/08/19/style/hypebeasts-hit-the-road.html?searchResultPosition=5
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/08/19/arts/things-to-do-this-weekend.html?searchResultPosition=5
 
-**Brazilian Butt Lifts Surge, Despite Risks**\
-`The procedure has the highest mortality rate of any cosmetic surgery, but many women are undaunted.`\
-https://nytimes.com/2021/08/19/style/brazilian-butt-lifts-surge-despite-risks.html?searchResultPosition=6
+**How a Remote Town in Texas Became One of America’s Fastest-Growing Cities**\
+`Known for its German roots and its world-famous water park, New Braunfels, Texas, in the thriving corridor between San Antonio and Austin, grew 56 percent over the past decade.`\
+https://nytimes.com/2021/08/19/us/new-braunfels-texas-growth-census.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/19/crosswords/spelling-bee-2021-08-19.html?searchResultPosition=7
+**Start-Up Boom in the Pandemic Is Growing Stronger**\
+`After waning for decades, applications to start businesses surged last year. If the rebound proves durable, it could provide a more resilient economy.`\
+https://nytimes.com/2021/08/19/business/startup-business-creation-pandemic.html?searchResultPosition=7
 
-**Seth Meyers Explains How ‘Forever Wars’ Happen**\
-`The Washington elite kept troops in Afghanistan “longer than it takes for George R.R. Martin to come up with a new ‘Game of Thrones’ book,” Meyers joked.`\
-https://nytimes.com/2021/08/19/arts/television/seth-meyers-afghanistan.html?searchResultPosition=8
+**The Illusion of Privacy Is Getting Harder to Sell**\
+`The illusion of privacy is getting harder and harder to maintain.`\
+https://nytimes.com/2021/08/19/opinion/apple-iphone-privacy.html?searchResultPosition=8
 
-**Your Thursday Briefing**\
-`Chaotic scenes in Afghanistan.`\
-https://nytimes.com/2021/08/18/briefing/afghanistan-taliban-israel-haiti.html?searchResultPosition=9
+**What We Owe the Victims of America’s Failed Wars**\
+`For Afghans, the war isn’t over simply because the United States declared it so. The nightmare doesn’t end after the last American leaves. `\
+https://nytimes.com/2021/08/19/opinion/afghanistan-vietnam-war-refugees.html?searchResultPosition=9
 
-**Texas Can Ban Common Form of Second-Trimester Abortion, Appeals Court Rules**\
-`The lower court “committed numerous, reversible legal and factual errors,” according to the U.S. Court of Appeals for the Fifth Circuit.`\
-https://nytimes.com/2021/08/18/us/abortion-texas-ruling.html?searchResultPosition=10
+**Why Some in This Neighborhood Oppose a Museum Dedicated to Their Culture**\
+`In Chinatown, anti-gentrification protesters are furious over funding granted to a museum that they say doesn’t represent their community.`\
+https://nytimes.com/2021/08/19/nyregion/chinatown-museum-protests.html?searchResultPosition=10
 
