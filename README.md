@@ -1,5 +1,5 @@
 **A California school district will require older students to be vaccinated.**\
-`Culver City Unified School District is believed to be the first in the state to require students 12 and older to be inoculated.`\
+`Culver City Unified School District is believed to be the first in the state and possibly the nation to require students 12 and older to be inoculated.`\
 https://nytimes.com/2021/08/19/us/culver-city-student-vaccine-mandate.html?searchResultPosition=1
 
 **Taliban Quash Protests and Seize Enemies, Tightening Grip on Afghanistan**\
