@@ -22,9 +22,9 @@ https://nytimes.com/2021/08/19/business/midwestern-pet-food-fda.html?searchResul
 `The Taliban have pledged that women will have rights “within the bounds of Islamic law.” What that means depends on who is interpreting it.`\
 https://nytimes.com/2021/08/19/world/asia/shariah-law-afghanistan-women.html?searchResultPosition=6
 
-**Chuck Close, Artist of Outsized Reality, Dies at 81**\
+**Chuck Close, Artist ofOutsized Reality, Dies at 81**\
 `He found success with his large-scale Photorealist portraits, becoming one of the leading artists of his generation. Late in life he faced allegations of sexual harassment.`\
-https://nytimes.com/2021/08/19/arts/design/chuck-close-artist-of-outsized-reality-dies-at-81.html?searchResultPosition=7
+https://nytimes.com/2021/08/19/arts/design/chuck-close-artist-ofoutsized-reality-dies-at-81.html?searchResultPosition=7
 
 **Peter Rehberg, a Force in Underground Music, Dies at 53**\
 `He released his own experiments with sound under the name Pita, and also ran the influential label Editions Mego.`\
