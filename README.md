@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/19/opinion/covid-booster-delta-end.html?searchResult
 https://nytimes.com/2021/08/19/world/asia/afghan-forces-taliban.html?searchResultPosition=2
 
 **Deal Provides Aid to Gazans, but Reconstruction Is Elusive**\
-`Millions will be funneled to impoverished families under a pact announced by the United Nations and Qatar, a step forward in firming up a cease-fire with Israel.`\
+`Millions will be funneled to impoverished families under an agreement reached by the United Nations and Qatar, a step forward in firming up a cease-fire with Israel.`\
 https://nytimes.com/2021/08/19/world/middleeast/gaza-israel-aid-cease-fire.html?searchResultPosition=3
 
 **Sonny Chiba, Japanese Star With a ‘Kill Bill’ Connection, Dies at 82**\
