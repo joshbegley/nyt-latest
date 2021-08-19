@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/19/opinion/sway-kara-swisher-jason-miller.html?searc
 https://nytimes.com/2021/08/19/us/alabama-icu-shortage.html?searchResultPosition=2
 
 **Two Disabled Drivers Team Up at Le Mans**\
-`Nigel Bailly of Belgium and Takuma Aoki of Japan, both paralyzed from the waist down, will share a car at the race.`\
+`Many drivers entering the 24 Hours of Le Mans want to make history by winning the race or setting records.`\
 https://nytimes.com/2021/08/19/sports/autoracing/le-mans-disabled-drivers.html?searchResultPosition=3
 
 **Is the Party Over for New York’s Outlaw Houseboats?**\
