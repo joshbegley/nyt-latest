@@ -1,5 +1,5 @@
 **G.M. is expanding its recall of the Chevrolet Bolt over fire concerns.**\
-`The recall now covers 2017-2022 models. The latest move, to add two more model years, adds $1 billion in costs.`\
+`The recall now covers 2017-2022 models. The latest move, to add three more model years, adds $1 billion in costs.`\
 https://nytimes.com/2021/08/20/business/gm-chevrolet-bolt-battery-recall.html?searchResultPosition=1
 
 **For thousands who have fled the fires in Northern California, an anxious wait at shelter sites.**\
