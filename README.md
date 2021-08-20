@@ -1,40 +1,40 @@
-**How Music Festivals Are Moving Forward Despite Delta**\
-`Music festivals vary in their vaccine and testing requirements as they move ahead despite the virus surge.`\
-https://nytimes.com/2021/08/20/nyregion/music-festivals-delta-variant.html?searchResultPosition=1
+**Why an East Harlem Street Is 31 Degrees Hotter Than Central Park West**\
+`If you want to map inequality in New York, you can just count trees.`\
+https://nytimes.com/2021/08/20/nyregion/climate-inequality-nyc.html?searchResultPosition=1
 
-**Australia Is Betting on Remote Quarantine. Here’s What I Learned on the Inside.**\
-`The pandemic has reinforced countries’ peculiar currents of national identity. In Australia, it’s a collectivist urge, sometimes at the expense of personal liberty.`\
-https://nytimes.com/2021/08/20/world/australia/howard-springs-quarantine.html?searchResultPosition=2
+**A Walk in the Park, 3,000 Feet Up**\
+`“Everything in your body is telling you not to do this,” said Breannah Yeh, a professional slackliner whose bouncy escapades have entertained millions on TikTok. So why does she?`\
+https://nytimes.com/2021/08/20/travel/slackline-breannah-yeh.html?searchResultPosition=2
 
-**In Rare Move, Japan Grants Asylum to Soccer Player From Myanmar**\
-`Pyae Lyan Aung had defied the military junta’s rule at home after its coup, and had gambled he could win the right to stay in Japan.`\
-https://nytimes.com/2021/08/20/world/asia/japan-soccer-player-myanmar-asylum.html?searchResultPosition=3
+**How a Former ‘Real Housewife’ of NYC Spends Her Sundays**\
+`Dorinda Medley has chosen to ‘lean into’ Covid fears and enjoy the city’s museums, parks restaurants and shops.`\
+https://nytimes.com/2021/08/20/nyregion/dorinda-medley-real-housewives-nyc.html?searchResultPosition=3
 
-**‘Sweet Girl’ Review: Violence as an Insurance Policy**\
-`A health care company is the bad guy in this revenge thriller starring Jason Momoa.`\
-https://nytimes.com/2021/08/20/movies/sweet-girl-review.html?searchResultPosition=4
+**A Slow Burn Through All the Highs and Lows**\
+`Dan Barasch and Robert Hammond, a founder and the executive director of the High Line, met when Mr. Barasch asked Mr. Hammond’s advice on how to launch the Lowline, Manhattan’s first underground park.`\
+https://nytimes.com/2021/08/20/style/dan-barasch-robert-hammond-wedding.html?searchResultPosition=4
 
-**South Koreans Now Dislike China More Than They Dislike Japan**\
-`There is growing anti-China sentiment in South Korea, particularly among young voters. Conservative politicians are eager to turn the antipathy into a presidential election issue.`\
-https://nytimes.com/2021/08/20/world/asia/korea-china-election-young-voters.html?searchResultPosition=5
+**As Childhood Covid Cases Spike, School Vaccination Clinics Are Slow Going**\
+`Districts are heeding President Biden’s call to host pop-up vaccination clinics. But promoting vaccines is politically difficult, and persuading parents isn’t easy.`\
+https://nytimes.com/2021/08/20/us/politics/coronavirus-school-vaccinations.html?searchResultPosition=5
 
-**Documenting a Wildfire When It’s in Your Backyard**\
-`After years covering California’s wildfires, a photographer experienced the event from the other side of the lens.`\
-https://nytimes.com/2021/08/20/us/caldor-fire.html?searchResultPosition=6
+**Who Gets the L.L.C.? Inside a Silicon Valley Billionaire’s Divorce.**\
+`A couple are heading to court to decide who is entitled to a fortune, started in the earliest days of Google, that includes valuable California real estate and stock holdings.`\
+https://nytimes.com/2021/08/20/technology/Scott-Hassan-Allison-Huynh-divorce.html?searchResultPosition=6
 
-**As Chinese Vaccines Stumble, U.S. Finds New Opening in Asia**\
-`Several Southeast Asian nations are raising doubts about the efficacy of China’s vaccines. The Biden administration has recently offered to provide shots, “no strings attached.”`\
-https://nytimes.com/2021/08/20/business/economy/china-vaccine-us-covid-diplomacy.html?searchResultPosition=7
+**Rent Relief and Evictions in New York: 7 Things to Know**\
+`After the Supreme Court blocked the central component of New York’s eviction moratorium, pressure is building on the state to dole out pandemic rent relief.`\
+https://nytimes.com/article/eviction-rent-relief-new-york.html?searchResultPosition=7
 
-**Tom Hanks Sells 4 Vehicles From His Collection**\
-`His marquee item in the auction, an Airstream trailer bought in the “Sleepless in Seattle” era, brought in over $200,000.`\
-https://nytimes.com/2021/08/20/business/tom-hanks-car-auction.html?searchResultPosition=8
+**Pacquiao Is Fighting, but Not in a Novelty Bout**\
+`While many of his contemporaries from his prime have sought payday fights that lack serious competition, Pacquiao insists that at 42, he can still compete in real bouts.`\
+https://nytimes.com/2021/08/20/sports/boxing-manny-pacquiao.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/20/crosswords/spelling-bee-2021-08-20.html?searchResultPosition=9
+**Catholic Officials on Edge After Reports of Priests Using Grindr**\
+`A conservative Catholic media organization, The Pillar, has published several reports claiming the use of dating apps at several churches and the Vatican.`\
+https://nytimes.com/2021/08/20/nyregion/pillar-grindr-catholic-church.html?searchResultPosition=9
 
-**Stephen Colbert on the Chaotic Regime Change (Not That One)**\
-`Colbert brought “Late Show” viewers up to speed on the fallout from the search for a new “Jeopardy!” host.`\
-https://nytimes.com/2021/08/20/arts/television/stephen-colbert-jeopardy.html?searchResultPosition=10
+**The Harlem Hellfighters Were War Heroes. Then They Came Home to Racism.**\
+`An exceptional unit of Black soldiers who fought in World War I will receive the Congressional Gold Medal.`\
+https://nytimes.com/2021/08/20/nyregion/harlem-hellfighters-congressional-medal.html?searchResultPosition=10
 
