@@ -1,4 +1,4 @@
-**Can Cads Be Redeemed? A Raunchy Dating Show Investigates**\
+**Can Cads Be Redeemed? A Raunchy Dating Show Investigates.**\
 `“FBoy Island” is in on its own joke as it helps women separate the good guys from the louts. “Why not admit on the air that it is dumb and ridiculous?” said the host, Nikki Glaser.`\
 https://nytimes.com/2021/08/20/arts/television/fboy-island-hbo-nikki-glaser.html?searchResultPosition=1
 
