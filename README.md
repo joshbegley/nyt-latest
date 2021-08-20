@@ -4,7 +4,7 @@ https://nytimes.com/video/world/africa/100000007930461/who-africa-coronavirus-va
 
 **Sluggish Visa Process Strands Thousands of Afghans Who Worked for U.S.**\
 `Officials described impatience across the Biden administration with the State Department as thousands of Afghans wait outside Kabul’s airport.`\
-https://nytimes.com/2021/08/19/us/politics/visa-delays-afghan-airport.html?searchResultPosition=2
+https://nytimes.com/2021/08/19/us/politics/afghanistan-visas-refugees.html?searchResultPosition=2
 
 **Fight Over Voting Rights in Texas Nears End as Democrats Return**\
 `More than 50 Democrats fled to Washington last month in a last-ditch effort to prevent passage of a restrictive voting measure.`\
