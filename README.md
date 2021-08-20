@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/20/well/aloe-sunburn.html?searchResultPosition=1
 https://nytimes.com/interactive/2021/08/20/sports/summer-freedom.html?searchResultPosition=2
 
 **The new ‘Jeopardy!’ host, Mike Richards, quits.**\
-`Mr. Richards was named as Alex Trebek’s replacement last week, but he announced he was leaving soon after offensive and sexist comments he made on a podcast several years ago resurfaced.`\
+`Mr. Richards was named as Alex Trebek’s replacement last week, but offensive and sexist comments he made on a podcast several years ago resurfaced. He will remain as executive producer.`\
 https://nytimes.com/2021/08/20/business/mike-richards-quits-jeopardy.html?searchResultPosition=3
 
 **‘Impeachment’ Focuses on the Women Behind Clinton’s Scandals**\
