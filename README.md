@@ -11,7 +11,7 @@ https://nytimes.com/video/world/africa/100000007930461/who-africa-coronavirus-va
 https://nytimes.com/2021/08/19/us/politics/afghanistan-visas-refugees.html?searchResultPosition=3
 
 **Fight Over Voting Rights in Texas Nears End as Democrats Return**\
-`More than 50 Democrats fled to Washington last month in a last-ditch effort to prevent passage of a restrictive voting measure. Three came back to the Capitol on Thursday, clearing the way for a quorum.`\
+`More than 50 Democrats fled to Washington last month to prevent a restrictive voting measure. Three returned to the State Capitol on Thursday, clearing the way for a quorum.`\
 https://nytimes.com/2021/08/19/us/texas-voting-rights.html?searchResultPosition=4
 
 **Trump’s Deal With the Taliban Draws Fire From His Former Allies**\
