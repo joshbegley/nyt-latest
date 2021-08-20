@@ -24,7 +24,7 @@ https://nytimes.com/2021/08/19/us/politics/trump-biden-afghan-taliban.html?searc
 
 **How News Organizations Got Afghan Colleagues Out of Kabul**\
 `The evacuation of those who worked for outlets like The New York Times and The Washington Post came after a global rescue effort stretching from the Pentagon to Qatar.`\
-https://nytimes.com/2021/08/19/business/afghanistan-news-organizations.html?searchResultPosition=7
+https://nytimes.com/2021/08/19/business/afghanistan-news.html?searchResultPosition=7
 
 **The Quiet Rage of the Responsible**\
 `It's time to stop being diffident and speak up.`\
