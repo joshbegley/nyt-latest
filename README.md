@@ -6,7 +6,7 @@ https://nytimes.com/video/world/africa/100000007930461/who-africa-coronavirus-va
 `Officials described impatience across the Biden administration with the State Department as thousands of Afghans wait outside Kabul’s airport.`\
 https://nytimes.com/2021/08/19/us/politics/visa-delays-afghan-airport.html?searchResultPosition=2
 
-**Fight Over Voting Rights Nears End in Texas as Democrats Return**\
+**Fight Over Voting Rights in Texas Nears End as Democrats Return**\
 `More than 50 Democrats fled to Washington last month in a last-ditch effort to prevent passage of a restrictive voting measure.`\
 https://nytimes.com/2021/08/19/us/texas-democrats-quorum-capitol.html?searchResultPosition=3
 
