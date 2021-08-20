@@ -30,11 +30,11 @@ https://nytimes.com/slideshow/2021/08/20/realestate/a-harlem-brownstone-filled-w
 `“Like trying to take a drink out of a fire hydrant:” Four principals on how Covid-19 is upending the start of a new year yet again.`\
 https://nytimes.com/2021/08/20/business/back-to-school.html?searchResultPosition=8
 
-**Lisa Joy on ‘Reminiscence,’ ‘Westworld’ and the Lure of Techno-Noir**\
-`The writer-director says she is obsessed with time. One way to have more of it is “to create whole new timelines and dimensions.”`\
-https://nytimes.com/2021/08/20/movies/lisa-joy-reminiscence-hugh-jackman.html?searchResultPosition=9
-
 **La MaMa’s Season Includes an Indigenous Take on Shakespeare**\
 `A version of “A Midsummer Night’s Dream” is planned, along with the company’s puppet series, an examination of the Tulsa Race Massacre and more.`\
-https://nytimes.com/2021/08/20/theater/lamama-season.html?searchResultPosition=10
+https://nytimes.com/2021/08/20/theater/lamama-season.html?searchResultPosition=9
+
+**Lisa Joy on ‘Reminiscence,’ ‘Westworld’ and the Lure of Techno-Noir**\
+`The writer-director says she is obsessed with time. One way to have more of it is “to create whole new timelines and dimensions.”`\
+https://nytimes.com/2021/08/20/movies/lisa-joy-reminiscence-hugh-jackman.html?searchResultPosition=10
 
