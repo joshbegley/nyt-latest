@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/20/world/americas/haiti-quake-aid-fights.html?searchResultPosition=1
 
 **President Biden tries to restore calm amid scenes of chaos and desperation in Kabul.**\
-`“Let me be clear: Any American who wants to come home, we will get you home,” Mr. Biden said, before adding, “I cannot promise what the final outcome will be, or that it will be without the risk of loss.”`\
+`“Let me be clear: Any American who wants to come home, we will get you home,” he said, before adding, “I cannot promise what the final outcome will be, or that it will be without the risk of loss.”`\
 https://nytimes.com/2021/08/20/world/asia/biden-afghanistan-kabul.html?searchResultPosition=2
 
 **Ex-R. Kelly Aide Says Job Was ‘Almost Like the Twilight Zone’**\
