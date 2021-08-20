@@ -2,7 +2,7 @@
 `Huntsville city officials had spent $125,000 in public money to defend William Darby, saying he had been justified in using deadly force when he fatally shot Jeffrey Parker, 49, in 2018.`\
 https://nytimes.com/2021/08/20/us/alabama-william-darby-jeffrey-parker.html?searchResultPosition=1
 
-**Biden’s Immigration Policies Face Fresh Judicial Setbacks.**\
+**Biden’s Immigration Policies Face Fresh Judicial Setbacks**\
 `The Justice Department on Friday asked the Supreme Court to block a ruling that reinstated a policy forcing some asylum seekers to wait in Mexico while U.S. officials consider their cases.`\
 https://nytimes.com/2021/08/20/us/politics/immigration-biden-remain-mexico.html?searchResultPosition=2
 
