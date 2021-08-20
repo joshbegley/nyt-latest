@@ -18,7 +18,7 @@ https://nytimes.com/2021/08/20/world/europe/nandos-chicken-shortage-closures-bri
 `The bold experiment Mr. Hauser undertook in Columbus, Ohio, in 1977 helped usher in the modern era of multichannel digital cable television.`\
 https://nytimes.com/2021/08/20/business/media/gustave-m-hauser-dead.html?searchResultPosition=5
 
-**Kathy Hochul Is Shopping in New York City for a Second-in-Command**\
+**Kathy Hochul Is Looking in New York City for a Second-in-Command**\
 `Ms. Hochul, New York’s governor-in-waiting, plans to pick a No. 2 who is a downstate lawmaker and a person of color, to give her a balanced ticket in the 2022 primary.`\
 https://nytimes.com/2021/08/20/nyregion/kathy-hochul-lieutenant-governor-candidates.html?searchResultPosition=6
 
