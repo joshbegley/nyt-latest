@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/19/world/asia/biden-speech-evacuation.html?searchRes
 
 **First Pass Friday: I Immediately Fall Into a Trap, and You Can, Too!**\
 `Join me as I flail my way through the first part of a Randolph Ross puzzle.`\
-https://nytimes.com/2021/08/19/crosswords/daily-crossword-2021-08-20.html?searchResultPosition=2
+https://nytimes.com/2021/08/19/crosswords/daily-puzzle-2021-08-20.html?searchResultPosition=2
 
 **Judge Rejects Restraining Order Against Trevor Bauer**\
 `The Dodgers pitcher is still under investigation on suspicion of sexual assault by both the police and M.L.B., but a Los Angeles judge said Bauer did not pose a threat to his accuser.`\
