@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/20/opinion/letters/south-covid.html?searchResultPosi
 
 **For Aretha Franklin, a Grudge Was a Way to Earn R-E-S-P-E-C-T**\
 `The Queen of Soul was constantly trying to bend the world to her will. `\
-https://nytimes.com/2021/08/20/opinion/for-aretha-franklin-a-grudge-was-a-way-to-earn-r-e-s-p-e-c-t.html?searchResultPosition=4
+https://nytimes.com/2021/08/20/opinion/aretha-franklin-respect.html?searchResultPosition=4
 
 **Putin Takes Shot at West, but Says He’ll Work to ‘Normalize’ Afghanistan**\
 `President Vladimir V. Putin of Russia said the Taliban takeover of Afghanistan showed that it was time for the West to end its “policy of imposing someone’s outside values from abroad.”`\
