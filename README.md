@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/20/us/hurricane-henri-superstorm-sandy.html?searchRe
 `Nearly a week after a magnitude 7.2 earthquake wreaked death and devastation in southern Haiti, survivors were growing increasingly frantic over the slow trickle of relief.`\
 https://nytimes.com/2021/08/20/world/americas/haiti-quake-aid-fights.html?searchResultPosition=4
 
-**President Biden tries to restore calm amid scenes of chaos and desperation in Kabul.**\
+**President Biden tries to restore calm, vowing to rescue Americans and Afghan allies.**\
 `“Let me be clear: Any American who wants to come home, we will get you home,” he said, before adding, “I cannot promise what the final outcome will be, or that it will be without the risk of loss.”`\
 https://nytimes.com/2021/08/20/world/asia/biden-afghanistan-kabul.html?searchResultPosition=5
 
