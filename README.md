@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/20/world/asia/afghanistan-music-institute-taliban.ht
 
 **Rafael Nadal Pulls Out of U.S. Open and Will Miss Rest of 2021**\
 `The four-time U.S. Open champion said he was withdrawing because of a chronic problem with his left foot.`\
-https://nytimes.com/2021/08/20/sports/tennis/raphael-nadal-us-open.html?searchResultPosition=2
+https://nytimes.com/2021/08/20/sports/tennis/rafael-nadal-us-open.html?searchResultPosition=2
 
 **California’s fires are stretching crews and stranding evacuees.**\
 `One major blaze eased slightly on Thursday, but the state’s battle against wildfires is far from over.`\
