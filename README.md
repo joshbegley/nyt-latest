@@ -1,4 +1,4 @@
-**The Taliban Were Patient. Now They Hold All the Cards.**\
+**Why Biden’s Lack of Strategic Patience Led to Disaster**\
 `The American disaster in Afghanistan that Biden’s impatience brought about is not a disaster just for us. It's a huge boost for the Taliban too.`\
 https://nytimes.com/2021/08/21/opinion/us-afghanistan-pakistan-taliban.html?searchResultPosition=1
 
