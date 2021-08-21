@@ -10,7 +10,7 @@ https://nytimes.com/2021/08/21/us/hurricane-henri-forecast-flooding.html?searchR
 `For more than 20 years, he wrote and flipped cards for Mr. Letterman’s “Late Show.” He was also a member of the show’s troupe of quirky onscreen characters.`\
 https://nytimes.com/2021/08/21/arts/television/tony-mendez-dead.html?searchResultPosition=3
 
-**How to prepare before, during and after a storm.**\
+**How to prepare before, during and after a hurricane.**\
 `Long Island and southern New England are preparing for the arrival of Hurricane Henri this weekend.`\
 https://nytimes.com/2021/08/21/us/hurricane-tropical-storm-preparation.html?searchResultPosition=4
 
