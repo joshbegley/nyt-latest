@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/21/us/times-up-metoo-sexual-harassment.html?searchRe
 https://nytimes.com/2021/08/21/world/asia/pence-troye-trump-miller-afghan-refugees.html?searchResultPosition=2
 
 **Resistance fighters drive Taliban from 3 districts in the mountains north of Kabul.**\
-`The Taliban faced the first armed challenge from former Afghan soldiers and villagers.`\
+`The Taliban faced the first armed challenge from former Afghan soldiers and villagers in the mountains north of Kabul`\
 https://nytimes.com/2021/08/21/world/asia/resistance-fighters-taliban-afghanistan.html?searchResultPosition=3
 
 **Barbara Kannapell, Activist Who Empowered Deaf People, Dies at 83**\
