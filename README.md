@@ -27,7 +27,7 @@ https://nytimes.com/2021/08/21/opinion/arkansas-vaccine-hesitant.html?searchResu
 https://nytimes.com/2021/08/21/opinion/afghanistan-kabul-biden-blinken.html?searchResultPosition=7
 
 **The Taliban’s leader has arrived in Kabul, as the group aims to form a new government.**\
-`The leader, Mullah Abdul Ghani Baradar, is beginning talks with former President Hamid Karzai and k`\
+`The leader, Mullah Abdul Ghani Baradar, is beginning talks with former President Hamid Karzai and other politicians.`\
 https://nytimes.com/2021/08/21/world/asia/taliban-baradar-kabul-afghanistan.html?searchResultPosition=8
 
 **Dying in the Name of Vaccine Freedom**\
