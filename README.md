@@ -1,4 +1,4 @@
-**Henri is barreling toward the Hamptons.**\
+**Henri is barreling toward the Hamptons, ruining vacation plans.**\
 `Thousands across the upscale vacation destination were under evacuation warning during peak tourist season.`\
 https://nytimes.com/2021/08/21/us/hurricane-henri-hamptons.html?searchResultPosition=1
 
