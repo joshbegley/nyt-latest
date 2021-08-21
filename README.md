@@ -35,6 +35,6 @@ https://nytimes.com/2021/08/20/us/politics/biden-afghanistan-withdrawal.html?sea
 https://nytimes.com/2021/08/20/us/alabama-william-darby-jeffrey-parker.html?searchResultPosition=9
 
 **Supreme Court Grants Temporary Reprieve to Biden Immigration Policy**\
-`Justice Samuel Alito briefly stayed a ruling from a federal judge forcing some asylum seekers to wait in Mexico while U.S. officials consider their cases.`\
+`Justice Samuel Alito briefly stayed a ruling from a federal judge that would have forced some asylum seekers to wait in Mexico while U.S. officials considered their cases.`\
 https://nytimes.com/2021/08/20/us/politics/immigration-biden-mexico.html?searchResultPosition=10
 
