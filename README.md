@@ -28,7 +28,7 @@ https://nytimes.com/2021/08/20/us/alabama-william-darby-jeffrey-parker.html?sear
 
 **Biden’s Immigration Policies Face Fresh Judicial Setbacks**\
 `The Justice Department on Friday asked the Supreme Court to block a ruling that reinstated a policy forcing some asylum seekers to wait in Mexico while U.S. officials consider their cases.`\
-https://nytimes.com/2021/08/20/us/politics/immigration-biden-remain-mexico.html?searchResultPosition=8
+https://nytimes.com/2021/08/20/us/politics/immigration-biden-mexico.html?searchResultPosition=8
 
 **Biden’s Inaccurate Claims in Defending Afghanistan Withdrawal**\
 `The president made misleading or false claims about the reaction of allies to the withdrawal, the presence of Al Qaeda and conditions for Americans traveling to the Kabul airport.`\
