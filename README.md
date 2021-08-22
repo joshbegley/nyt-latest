@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/22/science/microscopic-bat-brain-virus.html?searchRe
 https://nytimes.com/2021/08/22/opinion/cyberwar-world-safety.html?searchResultPosition=2
 
 **Watch Live: Biden Delivers Remarks on Afghanistan Evacuations**\
-`President Biden is expected to address evacuation efforts from Afghanistan in the wake of the Taliban’s takeover of the country, as well as respond to Tropical Storm Henri on the Northeastern U.S. coast.`\
+`President Biden is expected to address evacuation efforts from Afghanistan and respond to Tropical Storm Henri on the Northeastern U.S. coast.`\
 https://nytimes.com/video/us/politics/100000007933747/biden-afghanistan-henri-live-video.html?searchResultPosition=3
 
 **With 500th Homer, Cabrera Joins a Club That’s Getting More Exclusive**\
