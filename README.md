@@ -1,40 +1,40 @@
+**As Henri approached, memories of Hurricane Bob came rushing back.**\
+`By Ellen Barry`\
+https://nytimes.com/2021/08/22/us/hurricane-bob-new-england.html?searchResultPosition=1
+
+**Hung Liu, Artist Who Blended East and West, Is Dead at 73**\
+`An immigrant from China, she once said her goal was “to invent a way of allowing myself to practice as a Chinese artist outside of a Chinese culture.”`\
+https://nytimes.com/2021/08/22/arts/hung-liu-artist-dead.html?searchResultPosition=2
+
 **Josephine Baker to Be Honored With a Panthéon Burial**\
 `Ms. Baker will be the first Black woman to be entombed in the Panthéon in Paris, a symbolic move amid racial tensions in France.`\
-https://nytimes.com/2021/08/22/world/europe/josephine-baker-pantheon-burial.html?searchResultPosition=1
+https://nytimes.com/2021/08/22/world/europe/josephine-baker-pantheon-burial.html?searchResultPosition=3
 
 **4 Dead and 4 Missing in North Carolina Flooding**\
 `The remnants of Tropical Storm Fred dropped more than 10 inches of rain on Tuesday in Haywood County, N.C., causing the Pigeon River to overflow.`\
-https://nytimes.com/2021/08/22/us/north-carolina-flash-floods.html?searchResultPosition=2
+https://nytimes.com/2021/08/22/us/north-carolina-flash-floods.html?searchResultPosition=4
 
 **Lucille Times, Who Inspired the Montgomery Bus Boycott, Dies at 100**\
 `Six months before Rosa Parks refused to give up her seat, Mrs. Times had an altercation with a bus driver and stopped riding the city’s segregated buses.`\
-https://nytimes.com/2021/08/22/obituaries/lucille-times-dead.html?searchResultPosition=3
+https://nytimes.com/2021/08/22/obituaries/lucille-times-dead.html?searchResultPosition=5
 
 **Floods in Tennessee Leave More Than a Dozen Dead**\
 `At least 16 people were killed and dozens were missing after flash floods caused devastation in Central Tennessee.`\
-https://nytimes.com/video/us/100000007933518/tennessee-flash-floods.html?searchResultPosition=4
+https://nytimes.com/video/us/100000007933518/tennessee-flash-floods.html?searchResultPosition=6
 
 **How the Pandemic Is Changing Restaurants**\
 `Readers discuss rising prices, customer abuse of employees and unionization. Also: The opioid crisis; summer's pleasures.`\
-https://nytimes.com/2021/08/22/opinion/letters/restaurants-covid.html?searchResultPosition=5
+https://nytimes.com/2021/08/22/opinion/letters/restaurants-covid.html?searchResultPosition=7
 
 **Tony Blair Criticizes U.S. Exit From Afghanistan**\
 `Tony Blair, the former British prime minister who led the U.K. into Afghanistan, said the withdrawal of U.S. forces from the country poses a threat to the security of Western nations, and resulted in a loss for the Afghan people, as the Taliban reclaimed power.`\
-https://nytimes.com/video/world/europe/100000007933532/tony-blair-afghanistan-withdrawl-biden.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000007933532/tony-blair-afghanistan-withdrawl-biden.html?searchResultPosition=8
 
 **Gov. Greg Abbott of Texas says he tests negative for coronavirus.**\
 `Mr. Abbott encouraged others to get vaccinated, crediting his inoculation with preventing serious illness from Covid.`\
-https://nytimes.com/2021/08/22/science/greg-abbott-texas-negative.html?searchResultPosition=7
+https://nytimes.com/2021/08/22/science/greg-abbott-texas-negative.html?searchResultPosition=9
 
 **Why We Need to Start Talking About God**\
 `Who are we? What are we here for?`\
-https://nytimes.com/2021/08/22/opinion/faith-spirituality.html?searchResultPosition=8
-
-**‘My Blood Is Boiling’: War Fever Surges in Ethiopia as Its Civil War Spreads**\
-`A government drive to enlist civilians in the war effort threatens to widen the conflict, forcing ethnic groups to take sides and potentially spilling into the broader region.`\
-https://nytimes.com/2021/08/22/world/africa/ethiopia-civil-war-spreads.html?searchResultPosition=9
-
-**Crowds Continue to Surge at Kabul Airport**\
-`The situation at Kabul’s international airport deteriorated further as thousands of people tried to flee the Taliban. The British Ministry of Defense, which has troops at the airport, said seven Afghan civilians had died in the crowds.`\
-https://nytimes.com/video/world/asia/100000007933490/kabul-airport-crowds.html?searchResultPosition=10
+https://nytimes.com/2021/08/22/opinion/faith-spirituality.html?searchResultPosition=10
 
