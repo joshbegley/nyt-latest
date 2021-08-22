@@ -10,8 +10,8 @@ https://nytimes.com/2021/08/21/nyregion/henri-connecticut.html?searchResultPosit
 `Phil Valentine’s hospitalization for Covid-19 convinced him that vaccines were necessary.`\
 https://nytimes.com/2021/08/21/us/phil-valentine-dies-covid.html?searchResultPosition=3
 
-**At Least 8 Dead and 40 Missing in Tennessee Flooding, Officials Say**\
-`The deaths were reported by a sheriff’s official in Humphreys County, who said that the authorities were searching house to house after flooding knocked out cellphone service and swamped roads.`\
+**At Least 10 Dead and Dozens Missing in Tennessee Floods, Officials Say**\
+`The authorities in Humphreys County were conducting house-to-house searches after flooding knocked out cellphone service and swamped roads.`\
 https://nytimes.com/2021/08/21/us/tennessee-flash-floods.html?searchResultPosition=4
 
 **Bill Freehan, Champion Tigers’ Durable Centerpiece, Dies at 79**\
