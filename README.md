@@ -8,7 +8,7 @@ https://nytimes.com/2021/08/22/obituaries/don-everly-older-brother-in-groundbrea
 
 **The U.S. orders six commercial airlines to help transport Afghan evacuees.**\
 `The 18 passenger jets won’t fly into or out of Kabul but will help carry those fearing reprisals from Taliban fighters from bases in the Middle East to stops in Europe.`\
-https://nytimes.com/2021/08/22/world/afghan-refugees-commercial-airlines.html?searchResultPosition=3
+https://nytimes.com/2021/08/22/world/asia/afghan-refugees-commercial-airlines.html?searchResultPosition=3
 
 **Molly Seidel Is Not Going to ‘Phone It In’ for the New York City Marathon**\
 `The race will be Seidel’s most conventional 26.2 mile race thus far. But this is not a fun run.`\
