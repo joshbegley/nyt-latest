@@ -1,40 +1,40 @@
-**God, Money, YOLO: How Cathie Wood Found Her Flock**\
-`Ms. Wood says the Holy Spirit moved her to strike out on her own after an up-and-down career in money management. But it’s her belief in herself that won the Reddit crowd’s faith.`\
-https://nytimes.com/2021/08/22/business/cathie-wood-ark-stocks.html?searchResultPosition=1
+**How to Look Up Prices at Your Hospital, if They Exist**\
+`Start with a web search. Consider a third-party tool. Expect frustration.`\
+https://nytimes.com/2021/08/22/upshot/health-care-prices-lookup.html?searchResultPosition=1
 
-**‘I’m Just So Tired of My Body Failing Me in Different Ways’**\
-`Overhearing some unusual health advice, a very good first date and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/08/22/nyregion/metropolitan-diary.html?searchResultPosition=2
+**The World’s Last Samaritans, Straddling the Israeli-Palestinian Divide**\
+`Up a mountain in the West Bank, several hundred villagers practice an ancient Israelite religion while maintaining an ambiguous national identity.`\
+https://nytimes.com/2021/08/22/world/middleeast/samaritans-israeli-palestinian.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/22/crosswords/spelling-bee-2021-08-22.html?searchResultPosition=3
+**Michaela Coel Puts Herself Together in ‘Misfits’**\
+`The book, adapted from a speech by the creator and star of “I May Destroy You,” codifies her efforts to achieve transparency in her work and in her life.`\
+https://nytimes.com/2021/08/22/books/michaela-coel-misfits-book.html?searchResultPosition=3
 
-**A Rush of News, Moment by Moment: Behind Our Live Coverage**\
-`When readers need information immediately, teams of journalists collaborate to tell a single unfolding story.`\
-https://nytimes.com/2021/08/22/insider/live-coverage.html?searchResultPosition=4
+**16 Cats, 320 Square Feet and One Long-Shot Candidate for Mayor**\
+`Curtis Sliwa, the founder of the Guardian Angels, wants New Yorkers to take him seriously as a mayoral candidate against Eric Adams.`\
+https://nytimes.com/2021/08/22/nyregion/curtis-sliwa-mayor-cats.html?searchResultPosition=4
 
-**Corrections: Aug. 22, 2021**\
-`Corrections that appeared in print on Sunday, Aug. 22, 2021.`\
-https://nytimes.com/2021/08/22/pageoneplus/corrections-aug-22-2021.html?searchResultPosition=5
+**Good, but Not Great: Taking Stock of a Big Ten University’s Covid Plan**\
+`The University of Illinois says an aggressive testing program prevented deaths on and off campus during the last academic year. Now the university is contending with the Delta variant.`\
+https://nytimes.com/2021/08/22/health/university-illinois-covid.html?searchResultPosition=5
 
-**Quotation of the Day: America’s Afghan War: Drawing Down an Unwinnable Conflict**\
-`Quotation of the Day for Sunday, August 22, 2021.`\
-https://nytimes.com/2021/08/22/todayspaper/quotation-of-the-day-americas-afghan-war-drawing-down-an-unwinnable-conflict.html?searchResultPosition=6
+**Deeply Divided, House Democrats Battle Over Priorities and Politics**\
+`The House returns to Washington on Monday to try to win passage of a measure needed to protect a $3.5 trillion social policy bill from a filibuster, but fractures in the party are starting to show.`\
+https://nytimes.com/2021/08/22/us/politics/democrats-divisions-infrastructure.html?searchResultPosition=6
 
-**At 25, Liberty Celebrate ‘Magical Moment’ in Women’s Basketball**\
-`Early Liberty teams regularly contended for the W.N.B.A. championship and built an enduring connection with fans.`\
-https://nytimes.com/2021/08/22/sports/new-york-liberty-anniversary.html?searchResultPosition=7
+**As Biden Faces a Political Crisis, His Party Looks On in Alarm**\
+`Democrats fear that if the pandemic or the situation in Afghanistan continues to worsen, their party may lose the confidence of the moderate swing voters who lifted it to victory in 2020.`\
+https://nytimes.com/2021/08/22/us/politics/biden-democrats-afghanistan-virus-midterms.html?searchResultPosition=7
 
-**Jesse Jackson and his wife, Jacqueline, are hospitalized with Covid-19.**\
-`Mr. Jackson, 79, was vaccinated in January.`\
-https://nytimes.com/2021/08/21/us/jesse-jackson-wife-hospitalized-covid-19.html?searchResultPosition=8
+**Homes That Sold for Around $600,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2021/08/22/realestate/homes-that-sold-for-around-600000.html?searchResultPosition=8
 
-**Coastal towns in Connecticut are recommending evacuations.**\
-`Power companies said downed trees might leave hundreds of thousands of customers without electricity for as long as three weeks.`\
-https://nytimes.com/2021/08/21/nyregion/henri-connecticut.html?searchResultPosition=9
+**Do you have a medical bill we should investigate? Share it with us.**\
+`Readers’ bills can help us understand the high costs of our health care system.`\
+https://nytimes.com/2021/08/22/upshot/do-you-have-a-medical-bill-we-should-investigate-share-it-with-us.html?searchResultPosition=9
 
-**A radio host who scoffed at Covid, then urged his followers to get vaccinated, dies.**\
-`Phil Valentine’s hospitalization for Covid-19 convinced him that vaccines were necessary.`\
-https://nytimes.com/2021/08/21/us/phil-valentine-dies-covid.html?searchResultPosition=10
+**‘No One Quite Knows What to Say’: A War Easily Ignored Ends With Few Answers**\
+`At any Army base in Colorado, little acknowledgment as the war in Afghanistan comes to an abrupt and chaotic end.`\
+https://nytimes.com/2021/08/22/us/afghanistan-war-us-reaction.html?searchResultPosition=10
 
