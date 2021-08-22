@@ -4,10 +4,10 @@ https://nytimes.com/2021/08/22/podcasts/the-daily/the-sunday-read-the-case-of-th
 
 **Don Everly, Older Brother in Groundbreaking Rock Duo, Dies at 84**\
 `The Everly Brothers were the most successful rock act to emerge from Nashville in the 1950s, rivaling Elvis Presley for airplay on the radio.`\
-https://nytimes.com/2021/08/22/obituaries/don-everly-dead.html?searchResultPosition=2
+https://nytimes.com/2021/08/22/obituaries/don-everly-older-brother-in-groundbreaking-rock-duo-dies-at-84.html?searchResultPosition=2
 
 **The U.S. orders six commercial airlines to help transport Afghan evacuees.**\
-`The 18 planes won’t fly into or out of Kabul but will help carry people from Middle East bases to stops in Europe.`\
+`The 18 passenger jets won’t fly into or out of Kabul but will help carry those fearing reprisals from Taliban fighters from bases in the Middle East to stops in Europe.`\
 https://nytimes.com/2021/08/22/world/afghan-refugees-commercial-airlines.html?searchResultPosition=3
 
 **Molly Seidel Is Not Going to ‘Phone It In’ for the New York City Marathon**\
