@@ -10,8 +10,8 @@ https://nytimes.com/2021/08/21/world/uk-covid-antibody-surveillance.html?searchR
 `A respected scholar of early America, he became a central figure in the culture wars that enveloped the country in the 1990s.`\
 https://nytimes.com/2021/08/21/education/gary-b-nash-dead.html?searchResultPosition=4
 
-**Central Park Concert Draws Thousands to Cheer New York’s Comeback**\
-`Bruce Springsteen, Paul Simon and Jennifer Hudson were set to celebrate the city’s emergence after the hardships of the pandemic, even as the spread of the Delta variant has driven up cases again.`\
+**A Starry Central Park Comeback Concert is Silenced by Lightning**\
+`An all-star show to celebrate the city’s emergence after the hardships of the pandemic, even as the spread of the Delta variant has driven up cases again, was stopped halfway through.`\
 https://nytimes.com/2021/08/21/arts/music/we-love-nyc-homecoming-concert.html?searchResultPosition=5
 
 **Power companies warn that Henri could bring widespread outages.**\
