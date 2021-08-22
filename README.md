@@ -16,7 +16,7 @@ https://nytimes.com/2021/08/22/opinion/cyberwar-world-safety.html?searchResultPo
 
 **Watch Live: Biden Delivers Remarks on Afghanistan Evacuations**\
 `President Biden is addressing evacuation efforts from Afghanistan and responding to Tropical Storm Henri on the Northeastern U.S. coast.`\
-https://nytimes.com/video/us/politics/100000007933747/biden-afghanistan-henri-live-video.html?searchResultPosition=5
+https://nytimes.com/video/embedded/us/politics/100000007933747/biden-afghanistan-henri-live-video.html?searchResultPosition=5
 
 **With 500th Homer, Cabrera Joins a Club That’s Getting More Exclusive**\
 `Miguel Cabrera is the 28th player to join the 500-homer club. Despite a surge of new members in recent years, there may be a long wait for a 29th.`\
