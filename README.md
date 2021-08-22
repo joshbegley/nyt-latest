@@ -15,7 +15,7 @@ https://nytimes.com/2021/08/22/briefing/your-monday-briefing.html?searchResultPo
 https://nytimes.com/2021/08/22/world/biden-afghanistan-evacuation.html?searchResultPosition=4
 
 **How many Americans are waiting to leave Afghanistan? The U.S. isn’t sure.**\
-`U.S. officials estimated last week that there were as many as 15,000 Americans there. President Biden’s top national security adviser said on Sunday that he didn’t have a precise number.`\
+`U.S. officials estimated last week that there were as many as 15,000 Americans there. President Biden’s national security adviser said on Sunday that he didn’t have a precise number.`\
 https://nytimes.com/2021/08/22/world/asia/americans-afghanistan-evacuation-how-many.html?searchResultPosition=5
 
 **In Haiti, Need Is Overwhelming, but Some Politicians’ Charity Rings False**\
