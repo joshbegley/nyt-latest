@@ -1,40 +1,40 @@
+**Afghanistan, Hurricane Henri, Hypebeast Cars: Your Weekend Briefing**\
+`Here’s what you need to know about the week’s top stories.`\
+https://nytimes.com/2021/08/22/briefing/afghanistan-hurricane-henri-hypebeast-cars.html?searchResultPosition=1
+
 **How to Look Up Prices at Your Hospital, if They Exist**\
 `Start with a web search. Consider a third-party tool. Expect frustration.`\
-https://nytimes.com/2021/08/22/upshot/health-care-prices-lookup.html?searchResultPosition=1
+https://nytimes.com/2021/08/22/upshot/health-care-prices-lookup.html?searchResultPosition=2
 
 **The World’s Last Samaritans, Straddling the Israeli-Palestinian Divide**\
 `Up a mountain in the West Bank, several hundred villagers practice an ancient Israelite religion while maintaining an ambiguous national identity.`\
-https://nytimes.com/2021/08/22/world/middleeast/samaritans-israeli-palestinian.html?searchResultPosition=2
+https://nytimes.com/2021/08/22/world/middleeast/samaritans-israeli-palestinian.html?searchResultPosition=3
 
 **Michaela Coel Puts Herself Together in ‘Misfits’**\
 `The book, adapted from a speech by the creator and star of “I May Destroy You,” codifies her efforts to achieve transparency in her work and in her life.`\
-https://nytimes.com/2021/08/22/books/michaela-coel-misfits-book.html?searchResultPosition=3
+https://nytimes.com/2021/08/22/books/michaela-coel-misfits-book.html?searchResultPosition=4
 
 **16 Cats, 320 Square Feet and One Long-Shot Candidate for Mayor**\
 `Curtis Sliwa, the founder of the Guardian Angels, wants New Yorkers to take him seriously as a mayoral candidate against Eric Adams.`\
-https://nytimes.com/2021/08/22/nyregion/curtis-sliwa-mayor-cats.html?searchResultPosition=4
+https://nytimes.com/2021/08/22/nyregion/curtis-sliwa-mayor-cats.html?searchResultPosition=5
 
 **Good, but Not Great: Taking Stock of a Big Ten University’s Covid Plan**\
 `The University of Illinois says an aggressive testing program prevented deaths on and off campus during the last academic year. Now the university is contending with the Delta variant.`\
-https://nytimes.com/2021/08/22/health/university-illinois-covid.html?searchResultPosition=5
+https://nytimes.com/2021/08/22/health/university-illinois-covid.html?searchResultPosition=6
 
 **Deeply Divided, House Democrats Battle Over Priorities and Politics**\
 `The House returns to Washington on Monday to try to win passage of a measure needed to protect a $3.5 trillion social policy bill from a filibuster, but fractures in the party are starting to show.`\
-https://nytimes.com/2021/08/22/us/politics/democrats-divisions-infrastructure.html?searchResultPosition=6
+https://nytimes.com/2021/08/22/us/politics/democrats-divisions-infrastructure.html?searchResultPosition=7
 
 **As Biden Faces a Political Crisis, His Party Looks On in Alarm**\
 `Democrats fear that if the pandemic or the situation in Afghanistan continues to worsen, their party may lose the confidence of the moderate swing voters who lifted it to victory in 2020.`\
-https://nytimes.com/2021/08/22/us/politics/biden-democrats-afghanistan-virus-midterms.html?searchResultPosition=7
+https://nytimes.com/2021/08/22/us/politics/biden-democrats-afghanistan-virus-midterms.html?searchResultPosition=8
 
 **Homes That Sold for Around $600,000**\
 `Recent residential sales in New York City and the region.`\
-https://nytimes.com/2021/08/22/realestate/homes-that-sold-for-around-600000.html?searchResultPosition=8
+https://nytimes.com/2021/08/22/realestate/homes-that-sold-for-around-600000.html?searchResultPosition=9
 
 **Do you have a medical bill we should investigate? Share it with us.**\
 `Readers’ bills can help us understand the high costs of our health care system.`\
-https://nytimes.com/2021/08/22/upshot/do-you-have-a-medical-bill-we-should-investigate-share-it-with-us.html?searchResultPosition=9
-
-**‘No One Quite Knows What to Say’: A War Easily Ignored Ends With Few Answers**\
-`At any Army base in Colorado, little acknowledgment as the war in Afghanistan comes to an abrupt and chaotic end.`\
-https://nytimes.com/2021/08/22/us/afghanistan-war-us-reaction.html?searchResultPosition=10
+https://nytimes.com/2021/08/22/upshot/do-you-have-a-medical-bill-we-should-investigate-share-it-with-us.html?searchResultPosition=10
 
