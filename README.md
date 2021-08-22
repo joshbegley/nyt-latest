@@ -31,7 +31,7 @@ https://nytimes.com/2021/08/22/opinion/black-population-american-cities.html?sea
 https://nytimes.com/2021/08/22/sports/manny-pacquiao-yordenis-ugas-fight.html?searchResultPosition=8
 
 **As Henri approached, memories of Hurricane Bob came rushing back.**\
-`Hurricane Bob, which caused the deaths of more than 12 people and hundreds of millions of dollars in damage in 1991, remains the last hurricane to make landfall in New England.`\
+`Hurricane Bob, which caused the deaths of more than a dozen people and hundreds of millions of dollars in damage in 1991, remains the last hurricane to make landfall in New England.`\
 https://nytimes.com/2021/08/22/us/hurricane-bob-new-england-henri.html?searchResultPosition=9
 
 **Hung Liu, Artist Who Blended East and West, Is Dead at 73**\
