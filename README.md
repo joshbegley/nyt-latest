@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/23/opinion/vanlife-influencers.html?searchResultPosi
 https://nytimes.com/2021/08/23/opinion/biden-infrastructure-CBO.html?searchResultPosition=3
 
 **Afghan Fiasco Raises Hard Questions for Europe**\
-`The United States has dragged its NATO allies into an embarrassing mess they had warned against, bringing calls for more autonomy. But the price of independence is steep.`\
+`Once again, the United States has dragged its NATO allies into an embarrassing mess they had warned against, bringing calls for more autonomy. But the price of independence is steep.`\
 https://nytimes.com/2021/08/23/world/europe/afghanistan-europe-nato-biden.html?searchResultPosition=4
 
 **American Vet Returns to Italy to Greet ‘Bambini’ He Last Saw in 1944**\
