@@ -2,8 +2,8 @@
 `After the decision by Food and Drug Administration, some institutions are seeing a green light for mandates.`\
 https://nytimes.com/2021/08/23/us/fda-approves-pfizer-vaccine.html?searchResultPosition=1
 
-**Watch Live: Cuomo Makes Last Speech as New York Governor**\
-`Gov. Andrew M. Cuomo of New York will deliver his farewell address after he resigned over sexual misconduct allegations.`\
+**Watch Full Video: Cuomo Makes Last Speech as New York Governor**\
+`Gov. Andrew M. Cuomo of New York delivered his farewell address after he resigned over sexual misconduct allegations.`\
 https://nytimes.com/video/us/politics/100000007934822/cuomo-resignation.html?searchResultPosition=2
 
 **Cuomo, in Defiant Farewell Address, Says the Truth Is ‘Always Revealed’**\
