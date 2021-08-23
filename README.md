@@ -36,5 +36,5 @@ https://nytimes.com/2021/08/23/books/william-maxwell.html?searchResultPosition=9
 
 **The Pentagon moves to make vaccination mandatory in line with the F.D.A.’s approval.**\
 `After the decision by Food and Drug Administration, some institutions are seeing a green light for mandates.`\
-https://nytimes.com/2021/08/23/us/fda-approves-pfizer-vaccine.html?searchResultPosition=10
+https://nytimes.com/2021/08/23/us/pfizer-vaccine-mandates.html?searchResultPosition=10
 
