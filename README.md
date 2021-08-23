@@ -26,15 +26,15 @@ https://nytimes.com/2021/08/23/podcasts/the-daily/delta-variant-coronavirus-scho
 `The Federal Reserve’s annual economic symposium will be held virtually. Jerome H. Powell will speak on Friday and is expected to reveal details about how and when the central bank intends to wind down its bond-buying.`\
 https://nytimes.com/2021/08/23/business/whats-coming.html?searchResultPosition=7
 
+**Kamala Harris stresses Southeast Asia ties on an overseas trip, but the focus returns to Afghanistan.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/2021/08/23/world/asia/kamala-harris-stresses-southeast-asia-ties-on-an-overseas-trip-but-the-focus-returns-to-afghanistan.html?searchResultPosition=8
+
 **A local government in Australia killed its impounded dogs over coronavirus fears.**\
 `The rural Bourke Shire Council said two of the dogs had become aggressive and the person who regularly found new homes for the animals became unavailable.`\
-https://nytimes.com/2021/08/23/world/australia/covid-lockdown-dogs-killed.html?searchResultPosition=8
+https://nytimes.com/2021/08/23/world/australia/covid-lockdown-dogs-killed.html?searchResultPosition=9
 
 **They Were Protectors in Afghanistan. Now They Need Help.**\
 `Former soldiers from Nepal have long served as private security guards in war-torn Afghanistan. Amid the chaos, they worry that they can’t get home.`\
-https://nytimes.com/2021/08/23/world/asia/nepal-afghanistan-gurkha.html?searchResultPosition=9
-
-**Henri Brings Heavy Rains to New York City**\
-`The New York area escaped the worst of the tropical storm, though a much-anticipated concert was cut short.`\
-https://nytimes.com/2021/08/23/nyregion/henri-brings-heavy-rains-to-new-york-city.html?searchResultPosition=10
+https://nytimes.com/2021/08/23/world/asia/nepal-afghanistan-gurkha.html?searchResultPosition=10
 
