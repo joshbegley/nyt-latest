@@ -6,7 +6,7 @@ https://nytimes.com/2021/08/23/us/fda-approves-pfizer-vaccine.html?searchResultP
 `Gov. Andrew M. Cuomo of New York will deliver his farewell address after he resigned over sexual misconduct allegations.`\
 https://nytimes.com/video/us/politics/100000007934822/cuomo-resignation.html?searchResultPosition=2
 
-**Cuomo’s Farewell Address Airs on His Last Day in Office**\
+**Cuomo, in Defiant Farewell Address, Says the Truth Is ‘Always Revealed’**\
 `The prerecorded speech comes nearly two weeks after Gov. Andrew M. Cuomo announced his resignation; he will be succeeded at 12:01 a.m. Tuesday by Lt. Gov. Kathy Hochul.`\
 https://nytimes.com/2021/08/23/nyregion/andrew-cuomo-last-day.html?searchResultPosition=3
 
