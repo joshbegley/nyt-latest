@@ -18,8 +18,8 @@ https://nytimes.com/2021/08/23/us/henri-updates.html?searchResultPosition=4
 `The high-profile tech investor’s origin story is unique in the industry.`\
 https://nytimes.com/2021/08/23/business/dealbook/cathie-wood-ark-invest.html?searchResultPosition=5
 
-**The Caldor fire has burned more than 100,000 acres.**\
-`The fire, which has been burning for just over a week, grew by more than 30,000 acres this weekend.`\
+**The Caldor fire in California has burned more than 100,000 acres.**\
+`The blaze, which has been burning for just over a week, grew by more than 30,000 acres this weekend.`\
 https://nytimes.com/2021/08/23/us/caldor-fire-updates.html?searchResultPosition=6
 
 **T. Rex Was Fearsome but May Have Been a Picky Eater**\
