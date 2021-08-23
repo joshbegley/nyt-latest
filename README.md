@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/asia/100000007935761/kabul-airport-evacuations.html?searchResultPosition=1
 
 **The Orioles Are Bad and It Just Might Get Worse**\
-`With 18 consecutive losses, and a tough stretch of upcoming games, the team could set a modern era record for futility. That it is all part of a plan doesn’t make it any easier to watch.`\
+`With 18 straight losses, and a tough stretch of games, Baltimore could set a futility record. The stripped-down roster being part of a larger plan doesn’t make it any easier to watch.`\
 https://nytimes.com/2021/08/23/sports/baseball/baltimore-orioles-losing-streak.html?searchResultPosition=2
 
 **Taliban Reject Extended Deadline as U.S. Races to Finish Evacuation**\
