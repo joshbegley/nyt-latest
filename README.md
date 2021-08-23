@@ -24,7 +24,7 @@ https://nytimes.com/2021/08/23/world/europe/neue-nationalgalerie-reopening.html?
 
 **Sea Scallops Farmed in Maine Aren’t Just Sustainable. They’re Helping Their Habitat.**\
 `There are only a handful of these farms in the United States, most run by fishing families in Maine. But their number is growing.`\
-https://nytimes.com/2021/08/23/dining/maine-sea-scallops-sustainable.html?searchResultPosition=7
+https://nytimes.com/2021/08/23/dining/maine-sea-scallops.html?searchResultPosition=7
 
 **Staging ‘The Glass Menagerie’ on the Fire Escapes That Inspired It**\
 `At Tennessee Williams’s childhood apartment in St. Louis, one of his most famous works has become an immersive event.`\
