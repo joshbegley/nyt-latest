@@ -15,7 +15,7 @@ https://nytimes.com/2021/08/23/nyregion/r-kelly-trial-zel-accuser.html?searchRes
 https://nytimes.com/video/us/politics/100000007934887/cuomo-resignation.html?searchResultPosition=4
 
 **Watch Live: Biden Delivers Remarks on Vaccine Progress**\
-`President Biden speaks about the White House’s efforts to vaccinate Americans following the Food and Drug Administration’s full approval of the Pfizer BioNTech coronavirus vaccine.`\
+`President Biden speaks about the White House’s efforts to vaccinate Americans following the Food and Drug Administration’s full approval of the Pfizer-BioNTech coronavirus vaccine.`\
 https://nytimes.com/video/us/politics/100000007934735/biden-speech-covid-vaccines.html?searchResultPosition=5
 
 **In William Maxwell’s Fiction, a Vivid, Varied Tableau of Midwestern Life**\
