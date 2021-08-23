@@ -23,7 +23,7 @@ https://nytimes.com/2021/08/23/dining/matthew-raiford-book-bress-n-nyam-georgia.
 https://nytimes.com/video/us/100000007935441/tennessee-flooding.html?searchResultPosition=6
 
 **The top U.S. officer in Afghanistan talks with the Taliban almost every day.**\
-`By Eric Schmitt`\
+`Other officers have also engaged with Taliban commanders on specific security and threat reduction issues, a partnership of necessity after 20 years of war.`\
 https://nytimes.com/2021/08/23/world/asia/taliban-united-states-talks-leaders.html?searchResultPosition=7
 
 **A North Carolina court panel expands voting rights for parolees and people on probation.**\
