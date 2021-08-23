@@ -16,7 +16,7 @@ https://nytimes.com/2021/08/23/business/chevron-coronavirus-vaccine-mandate.html
 
 **How to Plan a Surprise Wedding**\
 `Secret weddings are not just for celebrities. Get the inside scoop from industry experts on how to seamlessly pull off your own.`\
-https://nytimes.com/2021/08/23/style/how-to-plan-a-surprise-wedding.html?searchResultPosition=5
+https://nytimes.com/2021/08/23/style/surprise-wedding-planning.html?searchResultPosition=5
 
 **Chaos Continues Outside the Kabul Airport**\
 `Crowded conditions persisted outside the Hamid Karzai International Airport as Afghan nationals attempted to leave following the Taliban’s takeover of the country.`\
