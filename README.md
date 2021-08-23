@@ -1,40 +1,40 @@
-**New York’s Economy, Poised for Comeback, Finds Setback Instead**\
-`The Delta variant has upended events, office reopenings and travel, raising new challenges for service businesses and their workers.`\
-https://nytimes.com/2021/08/23/business/economy/nyc-economy-covid-delta-variant.html?searchResultPosition=1
+**Henri Brings Heavy Rains to New York City**\
+`The New York area escaped the worst of the tropical storm, though a much-anticipated concert was cut short.`\
+https://nytimes.com/2021/08/23/nyregion/henri-brings-heavy-rains-to-new-york-city.html?searchResultPosition=1
 
-**Did the War in Afghanistan Have to Happen?**\
-`In 2001, when the Taliban were weak and ready to surrender, the U.S. passed on a deal. Nearly 20 years later, the Taliban hold all the cards.`\
-https://nytimes.com/2021/08/23/world/middleeast/afghanistan-taliban-deal-united-states.html?searchResultPosition=2
+**Taiwan begins using a homegrown vaccine after months of shortages in imports.**\
+`Critics say they worry that the vaccine, which has completed Phase 2 trials, is being used before its effectiveness and safety have been proved.`\
+https://nytimes.com/2021/08/23/world/asia/taiwan-homegrown-covid-vaccine.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/23/crosswords/spelling-bee-2021-08-23.html?searchResultPosition=3
+**What an Adult Tricycle Says About the World’s Bottleneck Problems**\
+`Catrike is struggling to deliver its recumbent bikes because supply chain problems have caused a part shortage. The snags may get worse before they get better.`\
+https://nytimes.com/2021/08/23/business/economy/supply-chain-bottlenecks-coronavirus-inflation.html?searchResultPosition=3
 
-**What’s on TV This Week: Lorde on Late Night and ‘American Horror Story’**\
-`The musician Lorde has a residency on CBS’s “Late Late Show With James Corden.” And a new season of “American Horror Story” begins on FX.`\
-https://nytimes.com/2021/08/23/arts/television/whats-on-tv-this-week-lorde-and-american-horror-story.html?searchResultPosition=4
+**On the Move With Mongolia’s Nomadic Reindeer Herders**\
+`Facing growing uncertainties, the Dukha people are being forced to make difficult decisions about their traditions and their future.`\
+https://nytimes.com/2021/08/23/travel/mongolia-dukha-reindeer-herders.html?searchResultPosition=4
 
-**No One in Europe Is Safe From My Country’s Dictator**\
-`All democratic countries have a stake in the future of  Belarus.`\
-https://nytimes.com/2021/08/23/opinion/belarus-tikhanovskaya-lukashenko.html?searchResultPosition=5
+**Biden and the Fed Wanted a Hot Economy. There’s Risk of Getting Burned.**\
+`So far, in a real-world test of a new approach to economic policy, prices have been rising faster than wages.`\
+https://nytimes.com/2021/08/23/upshot/biden-economy-analysis-inflation.html?searchResultPosition=5
 
-**Quotation of the Day: France to Honor Baker With Panthéon Burial**\
-`Quotation of the Day for Monday, August 23, 2021.`\
-https://nytimes.com/2021/08/23/todayspaper/quotation-of-the-day-france-to-honor-baker-with-pantheon-burial.html?searchResultPosition=6
+**In the South, We Are Fighting Covid. And Our Own Elected Officials.**\
+`Mask mandates protect children only when masking is universal. This is not a hard concept to understand.`\
+https://nytimes.com/2021/08/23/opinion/covid-masks-students.html?searchResultPosition=6
 
-**No Corrections: Aug. 23, 2021**\
-`No corrections appeared in print on Monday, Aug. 23, 2021.`\
-https://nytimes.com/2021/08/23/pageoneplus/no-corrections-aug-23-2021.html?searchResultPosition=7
+**Shopping for Tool Caddies**\
+`Because it’s nearly fall: Time to get organized.`\
+https://nytimes.com/2021/08/23/realestate/shopping-for-storage-caddies.html?searchResultPosition=7
 
-**Gambling on Trevor Bauer Is Not the Dodger Way**\
-`The team signed the 2020 National League Cy Young Award winner in anticipation of another World Series run. It ignored his troubling background, at odds with the franchise’s legacy.`\
-https://nytimes.com/2021/08/23/sports/baseball/trevor-bauer-dodgers-assault.html?searchResultPosition=8
+**5 Diet and Lifestyle Measures to Ward Off Heartburn**\
+`Taking steps to combat acid reflux can help minimize the use of potentially dangerous drugs.`\
+https://nytimes.com/2021/08/23/well/heartburn-diet-lifestyle.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`Global response to Afghan refugees.`\
-https://nytimes.com/2021/08/22/briefing/afghanistan-gulf-coast-covid-athens.html?searchResultPosition=9
+**How the Taliban Turned Smartphones Into Weapons**\
+`They employed social media to cultivate an image of strength within Afghanistan, while projecting an air of legitimacy to the outside world.`\
+https://nytimes.com/2021/08/23/opinion/taliban-afghanistan-social-media.html?searchResultPosition=9
 
-**Rod Gilbert, Hockey Hall of Famer Known as Mr. Ranger, Dies at 80**\
-`Gilbert played his entire N.H.L. career with New York and is the franchise’s only player to score more than 400 goals.`\
-https://nytimes.com/2021/08/22/sports/rod-gilbert-dead.html?searchResultPosition=10
+**When Will Texas Say Enough’s Enough to Greg Abbott?**\
+`Voters should take “personal responsibility” and find a better person to run Texas.`\
+https://nytimes.com/2021/08/23/opinion/greg-abbott-texas.html?searchResultPosition=10
 
