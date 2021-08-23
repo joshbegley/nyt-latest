@@ -1,6 +1,6 @@
 **Russian Journalists Meet a Crackdown With Dark Humor, and Subscribers**\
 `Meduza, a leading independent news site, fights back with jokes and a stunning donation campaign. But can it stand up to the Russian state?`\
-https://nytimes.com/2021/08/22/business/media/russian-journalists-meet-a-crackdown-with-dark-humor-and-subscribers.html?searchResultPosition=1
+https://nytimes.com/2021/08/22/business/media/russian-journalists-independent.html?searchResultPosition=1
 
 **A Hospital Finds an Unlikely Group Opposing Vaccination: Its Workers**\
 `When a Staten Island hospital implemented a vaccine or testing mandate, some of its staff staged angry protests.`\
