@@ -1,40 +1,40 @@
-**The First Report**\
-`As an investigative reporter, Jason Berry exposed the church’s systematic cover-up of sexual abuse. Somehow, it wasn’t enough.`\
-https://nytimes.com/video/opinion/100000007768852/the-first-report.html?searchResultPosition=1
+**He Won Super Bowls. Now He’s a Full-Time Caregiver.**\
+`Tom Coughlin, a former head coach of the New York Giants, on caring for his wife, Judy.`\
+https://nytimes.com/2021/08/24/opinion/nfl-tom-coughlin-psp.html?searchResultPosition=1
 
-**In Southeast Asia, Kamala Harris’s Message: You Can Count on the U.S.**\
-`The vice president rebuked China and sought to fortify the image of the United States as a credible ally amid growing questions about Afghanistan.`\
-https://nytimes.com/2021/08/24/world/asia/kamala-harris-singapore-vietnam.html?searchResultPosition=2
+**Kathy Hochul Becomes New York’s Governor**\
+`Ms. Hochul is now the state’s first female governor, taking leadership at an extraordinary time for New York.`\
+https://nytimes.com/2021/08/24/nyregion/new-york-new-governor.html?searchResultPosition=2
 
-**In Shift, Israel Quietly Allows Jewish Prayer on Temple Mount**\
-`Jewish activists say they are exercising their right to free worship at a site holy to Jews and Muslims. But the change upsets a longstanding compromise aimed at staving off conflict.`\
-https://nytimes.com/2021/08/24/world/middleeast/israel-temple-mount-prayer.html?searchResultPosition=3
+**Many Older Americans Still Aren’t Vaccinated, Making the Delta Wave Deadlier**\
+`Compared with other highly vaccinated countries, large parts of the United States have many vulnerable seniors, helping spur hospitalization and death.`\
+https://nytimes.com/interactive/2021/08/24/world/vaccines-seniors.html?searchResultPosition=3
 
-**They Still Live in the Shadow of Theranos’s Elizabeth Holmes**\
-`Female entrepreneurs said they were constantly compared to Ms. Holmes, the disgraced founder of Theranos, who faces trial soon.`\
-https://nytimes.com/2021/08/24/technology/female-founders-shadow-elizabeth-holmes.html?searchResultPosition=4
+**A Derelict Warehouse as a Second Home?**\
+`Even his artsy friends were skeptical. But for $70,000, he knew he could find a way to make it work.`\
+https://nytimes.com/2021/08/24/realestate/second-home-derelict-warehouse-washington-state.html?searchResultPosition=4
 
-**Caught in the Crossfire Over Covid’s Origins**\
-`Alina Chan suggested last year that the coronavirus was “pre-adapted” to humans. Critical reaction was swift and harsh.`\
-https://nytimes.com/2021/08/24/health/coronavirus-origins-alina-chan.html?searchResultPosition=5
+**A Second Home Where He’s ‘Free to Play’**\
+`Even his artsy friends were skeptical when he bought the warehouse. But for $70,000, he knew he could find a way to make it work.`\
+https://nytimes.com/slideshow/2021/08/24/realestate/a-second-home-where-hes-free-to-play.html?searchResultPosition=5
 
-**Creating Culture in a W.F.H. World: How 3 Small Businesses Did It**\
-`Flexible Fridays, employee empowerment and creative problem-solving all helped these companies bring on new workers during the pandemic.`\
-https://nytimes.com/2021/08/24/business/remote-work-small-business.html?searchResultPosition=6
+**A Texas Sheriff’s Grim Task: Finding Bodies as Migrant Deaths Surge**\
+`After working in oil fields, Oscar Carrillo eyed the stability of law enforcement or funeral work. As a border sheriff, he is doing both.`\
+https://nytimes.com/2021/08/24/us/migrants-deaths-texas-surge.html?searchResultPosition=6
 
-**Should I Be Worried About R.S.V. in My Child?**\
-`Respiratory syncytial virus is showing an unusual summer surge.`\
-https://nytimes.com/2021/08/24/well/live/rsv-respiratory-synctial-virus.html?searchResultPosition=7
+**Biden Faces a Trade-Off: Stop Corruption, or Migration?**\
+`President Biden promised to attack corruption in Central America head on, but that goal has taken a back seat to cooperating on stopping migrants from the region.`\
+https://nytimes.com/2021/08/24/world/americas/guatemala-corruption-migrants.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/24/crosswords/spelling-bee-2021-08-24.html?searchResultPosition=8
+**The Stress-Free Way to Hang Art**\
+`Why does hanging art make many of us so nervous? If you follow a few simple rules, it’s easy.`\
+https://nytimes.com/2021/08/24/realestate/how-to-hang-art.html?searchResultPosition=8
 
-**Jimmy Fallon Celebrates the F.D.A.’s Full Approval of a Covid Vaccine**\
-`“It’s about time,” Fallon said. “Their statement started with, ‘Hey, sorry, I just saw this.’”`\
-https://nytimes.com/2021/08/24/arts/television/jimmy-fallon-fda-pfizer-biontech-vaccine.html?searchResultPosition=9
+**What to Do This Summer: Portland, Maine**\
+`Streets lined with galleries and shops. A working harbor. Outdoor dining at award-winning restaurants. The fleeting summertime pleasures of Longfellow’s childhood home await.`\
+https://nytimes.com/2021/08/24/travel/Portland-maine-travel-guide.html?searchResultPosition=9
 
-**Quotation of the Day: A 1,400-Mile Walk to Turkey Only to Be Told to Turn Back**\
-`Quotation of the Day for Tuesday, August 24, 2021.`\
-https://nytimes.com/2021/08/24/todayspaper/quotation-of-the-day-a-1400-mile-walk-to-turkey-only-to-be-told-to-turn-back.html?searchResultPosition=10
+**Luxury’s Gray Market Is Emerging From the Shadows**\
+`New platforms and dealers able to offer steep discounts on the latest styles are becoming a powerful — and disruptive — force in the fashion industry.`\
+https://nytimes.com/2021/08/24/fashion/fashion-luxury-gray-market.html?searchResultPosition=10
 
