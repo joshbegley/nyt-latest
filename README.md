@@ -1,6 +1,6 @@
 **Michael Avenatti Is Granted a Mistrial in Federal Fraud Case**\
 `A U.S. District Court judge found that federal prosecutors had withheld financial data from Mr. Avenatti, the former lawyer for the pornographic film actress Stormy Daniels. He faces a retrial.`\
-https://nytimes.com/2021/08/24/us/michael-avenatti-wire-fraud-mistrial.html?searchResultPosition=1
+https://nytimes.com/2021/08/24/us/michael-avenatti-fraud-mistrial.html?searchResultPosition=1
 
 **U.S. on Track for Aug. 31 Afghanistan Withdrawal, Biden Says**\
 `President Biden said that the U.S. was on track to complete evacuations and withdraw military forces from Afghanistan by Aug. 31, but that he had prepared military leaders to adjust the timetable “should that become necessary.”`\
