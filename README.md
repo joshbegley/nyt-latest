@@ -26,13 +26,13 @@ https://nytimes.com/2021/08/24/realestate/second-home-derelict-warehouse-washing
 `Even his artsy friends were skeptical when he bought the warehouse. But for $70,000, he knew he could find a way to make it work.`\
 https://nytimes.com/slideshow/2021/08/24/realestate/a-second-home-where-hes-free-to-play.html?searchResultPosition=7
 
-**A Texas Sheriff’s Grim Task: Finding Bodies as Migrant Deaths Surge**\
-`After working in oil fields, Oscar Carrillo eyed the stability of law enforcement or funeral work. As a border sheriff, he is doing both.`\
-https://nytimes.com/2021/08/24/us/migrants-deaths-texas-surge.html?searchResultPosition=8
-
 **Biden Faces a Trade-Off: Stop Corruption, or Migration?**\
 `President Biden promised to attack corruption in Central America head on, but that goal has taken a back seat to cooperating on stopping migrants from the region.`\
-https://nytimes.com/2021/08/24/world/americas/guatemala-corruption-migrants.html?searchResultPosition=9
+https://nytimes.com/2021/08/24/world/americas/guatemala-corruption-migrants.html?searchResultPosition=8
+
+**A Texas Sheriff’s Grim Task: Finding Bodies as Migrant Deaths Surge**\
+`After working in oil fields, Oscar Carrillo eyed the stability of law enforcement or funeral work. As a border sheriff, he is doing both.`\
+https://nytimes.com/2021/08/24/us/migrants-deaths-texas-surge.html?searchResultPosition=9
 
 **The Stress-Free Way to Hang Art**\
 `Why does hanging art make many of us so nervous? If you follow a few simple rules, it’s easy.`\
