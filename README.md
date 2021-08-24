@@ -1,4 +1,4 @@
-**Cuomo Commutes Sentences of 1981 Brink’s Robbery Participant and 4 Others**\
+**Cuomo Commutes Sentences of 1981 Brinks Robbery Participant and 4 Others**\
 `David Gilbert, who was serving a 75-year sentence for felony murder in the notorious Rockland County crime, will now be eligible for parole.`\
 https://nytimes.com/2021/08/23/nyregion/david-gilbert-brinks-sentence-commuted.html?searchResultPosition=1
 
