@@ -1,5 +1,5 @@
 **A wildfire in Minnesota is behaving like a ‘freight train,’ a fire official said.**\
-`The fire, in the northeastern portion of the state near the Canadian border, has burned more than 10,000 acres and is zero percent contained.`\
+`The fire, in the northeastern portion of the state near the Canadian border, has burned more than 19,000 acres and is zero percent contained.`\
 https://nytimes.com/2021/08/24/us/greenwood-fire-minnesota.html?searchResultPosition=1
 
 **Big Earring Energy**\
