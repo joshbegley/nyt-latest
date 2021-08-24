@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/24/arts/music/charlie-watts-rolling-stones.html?searchResultPosition=1
 
 **These maps tell the story of two Americas: one parched, one soaked.**\
-`Downpours caused deadly floods in Tennessee this weekend. Yet, California and much of the West remained in the deepest drought in at least two decades.`\
+`Downpours caused deadly floods in Tennessee this weekend. Yet, California and much of the West remained deep in drought.`\
 https://nytimes.com/2021/08/24/climate/climate-change-wet-dry.html?searchResultPosition=2
 
 **Crews Battle Caldor Fire in California**\
