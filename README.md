@@ -1,5 +1,5 @@
 **Your Wednesday Briefing**\
-`Biden sticks to his deadline on Afghan exit`\
+`Biden sticks to his deadline on Afghan exit.`\
 https://nytimes.com/2021/08/24/briefing/biden-afghanistan-naftali-bennett.html?searchResultPosition=1
 
 **‘Kipchoge: The Last Milestone’ Review: Skipping Ahead**\
