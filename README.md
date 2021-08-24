@@ -19,7 +19,7 @@ https://nytimes.com/2021/08/24/business/airbnb-afghanistan-refugees.html?searchR
 https://nytimes.com/2021/08/24/us/caldor-fire-lake-tahoe-california.html?searchResultPosition=5
 
 **How to watch the Tokyo Paralympic opening ceremony.**\
-`The event will be covered live in the United States.`\
+`The event is being covered live in the United States.`\
 https://nytimes.com/2021/08/24/sports/paralympics-opening-ceremony-tokyo.html?searchResultPosition=6
 
 **F.D.A., Not F.D.R.**\
