@@ -30,11 +30,11 @@ https://nytimes.com/2021/08/24/world/asia/cia-taliban-william-burns-afghanistan.
 `The F.D.A.’s full approval of the Pfizer-BioNTech coronavirus shot gives companies more cover to require vaccinations for workers.`\
 https://nytimes.com/2021/08/24/business/dealbook/pfizer-fda-covid-vaccine-mandates.html?searchResultPosition=8
 
+**Chad’s former president, jailed for crimes against humanity, is dead. Reports cite Covid.**\
+`By Ruth Maclean and Mady Camara`\
+https://nytimes.com/2021/08/24/world/chads-former-president-jailed-for-crimes-against-humanity-is-dead-reports-cite-covid.html?searchResultPosition=9
+
 **Hissène Habré, Ex-President of Chad Who Was Convicted of War Crimes, Dies at 79**\
 `Habré had been sentenced to life in prison after he was found guilty of crimes against humanity, including torture and sex crimes.`\
-https://nytimes.com/2021/08/24/world/africa/hissene-habre-dead.html?searchResultPosition=9
-
-**Refugees lead the parade of athletes.**\
-`Alia Issa and Abbas Karimi carried the contingent’s flag, which bore the Paralympic symbol.`\
-https://nytimes.com/2021/08/24/sports/refugees-parade-of-athletes.html?searchResultPosition=10
+https://nytimes.com/2021/08/24/world/africa/hissene-habre-dead.html?searchResultPosition=10
 
