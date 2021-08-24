@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/24/arts/7-fiction-podcasts-ready-made-for-vacation.h
 
 **Rosie Perez Hates Flying, but She Soared in ‘The Flight Attendant’**\
 `The HBO Max show brought the veteran performer her first acting Emmy nomination. “To be recognized now, at my age, for something that I did just for the art of it all?” she said. “That really moves me.”`\
-https://nytimes.com/2021/08/24/arts/television/emmy-awards-rosie-perez-the-flight-attendant.html?searchResultPosition=4
+https://nytimes.com/2021/08/24/arts/television/rosie-perez-the-flight-attendant.html?searchResultPosition=4
 
 **A Composer Shows the Way to Give Classical Music Swing**\
 `Interest has been building in the works of Nikolai Kapustin, who wrote in classical styles, with a jazzy spin.`\
