@@ -23,7 +23,7 @@ https://nytimes.com/2021/08/24/business/boeing-faa.html?searchResultPosition=5
 https://nytimes.com/video/us/100000007936660/tennessee-flooding-missing-people-search-and-rescue.html?searchResultPosition=6
 
 **Charlie Watts, Bedrock Drummer for the Rolling Stones, Dies at 80**\
-`Mr. Watts, who had no taste for the life of a pop idol, was an unflashy presence with the band and brought to it a swinging style.`\
+`Mr. Watts, who had no taste for the life of a pop idol, was an unflashy but essential presence with the band and brought to it a swinging style.`\
 https://nytimes.com/2021/08/24/arts/music/charlie-watts-dead.html?searchResultPosition=7
 
 **Biden tells G7 he aims to withdraw troops by Aug. 31, citing ‘very high’ risk of attack.**\
