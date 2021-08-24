@@ -1,40 +1,40 @@
+**Giuliani Associate Expected to Plead Guilty to Campaign Finance Charge**\
+`Igor Fruman had aided Rudolph Giuliani in his effort to dig up dirt on Donald J. Trump’s political rivals.`\
+https://nytimes.com/2021/08/24/nyregion/igor-fruman-guilty-giuliani.html?searchResultPosition=1
+
+**Massachusetts is set to issue a mandate for masks in schools, a reversal for the governor.**\
+`Gov. Charlie Baker has come under pressure from teachers’ unions, doctors, lawmakers and activists for not backing a mask mandate.`\
+https://nytimes.com/2021/08/24/us/massachusetts-governor-baker-mask-mandate.html?searchResultPosition=2
+
 **Your Wednesday Briefing**\
 `Biden sticks to his deadline on Afghan exit.`\
-https://nytimes.com/2021/08/24/briefing/biden-afghanistan-naftali-bennett.html?searchResultPosition=1
+https://nytimes.com/2021/08/24/briefing/biden-afghanistan-naftali-bennett.html?searchResultPosition=3
 
 **‘Kipchoge: The Last Milestone’ Review: Skipping Ahead**\
 `This documentary about the Kenyan runner Eliud Kipchoge takes a victory lap for an athletic feat.`\
-https://nytimes.com/2021/08/24/movies/kipchoge-the-last-milestone-review.html?searchResultPosition=2
+https://nytimes.com/2021/08/24/movies/kipchoge-the-last-milestone-review.html?searchResultPosition=4
 
 **Oregon brings back an outdoor mask mandate for both vaccinated and unvaccinated people.**\
 `Gov. Kate Brown said the contagiousness of the Delta variant of the coronavirus made the step necessary, and called masks a critical tool to keep people safe.`\
-https://nytimes.com/2021/08/24/us/oregon-outdoor-mask-mandate.html?searchResultPosition=3
+https://nytimes.com/2021/08/24/us/oregon-outdoor-mask-mandate.html?searchResultPosition=5
 
 **Hochul Announces Mask Mandate for New York Schools**\
 `On her first day in office, Gov. Kathy Hochul of New York said she would order a universal mask mandate in the state’s schools and push for Covid vaccine-or-test requirements for school employees.`\
-https://nytimes.com/video/nyregion/100000007937147/kathy-hochul-new-york-schools-masks-vaccines.html?searchResultPosition=4
+https://nytimes.com/video/nyregion/100000007937147/kathy-hochul-new-york-schools-masks-vaccines.html?searchResultPosition=6
 
 **Bipartisan Push in House for Afghanistan Withdrawal Extension**\
 `House Democrats and Republicans held news conferences and pushed for the Biden administration to extend the withdrawal of troops in Afghanistan past the Aug. 31 extension deadline, citing the need for a slow exit in order to not escalate the current situation with the Taliban.`\
-https://nytimes.com/video/us/politics/100000007937284/democrats-republicans-afghanistan-us-military.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000007937284/democrats-republicans-afghanistan-us-military.html?searchResultPosition=7
 
 **A.C.C., Big Ten and Pac-12 Form Coalition to Counter SEC’s Might**\
 `The move was far short of a merger and came less than a month after Oklahoma and Texas said they would leave the Big 12 for the SEC.`\
-https://nytimes.com/2021/08/24/sports/ncaafootball/acc-bigten-pac12-sec.html?searchResultPosition=6
+https://nytimes.com/2021/08/24/sports/ncaafootball/acc-bigten-pac12-sec.html?searchResultPosition=8
 
 **Charlie Watts, the Unlikely Soul of the Rolling Stones**\
 `In a band that defined debauched rock ’n’ roll, he was a quiet, dapper jazz fan. But their unusual chemistry defined the rhythm of the Stones, and of rock.`\
-https://nytimes.com/2021/08/24/arts/music/charlie-watts-rolling-stones.html?searchResultPosition=7
+https://nytimes.com/2021/08/24/arts/music/charlie-watts-rolling-stones.html?searchResultPosition=9
 
 **Crews Battle Caldor Fire in California**\
 `The Caldor fire, which started near Sacramento, has burned more than 100,000 acres in 10 days and destroyed over 400 homes. It is one of several large fires currently burning in the state.`\
-https://nytimes.com/video/us/100000007937163/california-caldor-fire.html?searchResultPosition=8
-
-**A Human Cloning Error and Existential Questions Fuel This Science Fiction Romp**\
-`In Matthew FitzSimmons’s speculative murder mystery “Constance,” the title character’s consciousness is mistakenly downloaded into a clone.`\
-https://nytimes.com/2021/08/24/books/review-constance-matthew-fitzsimmons.html?searchResultPosition=9
-
-**Tiny Love Stories: ‘I Laughed Out Loud to Nobody in Particular’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2021/08/24/style/tiny-modern-love-stories-i-laughed-out-loud-to-nobody-in-particular.html?searchResultPosition=10
+https://nytimes.com/video/us/100000007937163/california-caldor-fire.html?searchResultPosition=10
 
