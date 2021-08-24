@@ -11,7 +11,7 @@ https://nytimes.com/2021/08/24/dining/tom-colicchio-vallata-restaurant-review.ht
 https://nytimes.com/slideshow/2021/08/24/dining/tom-colicchio-italian-food-vallata.html?searchResultPosition=3
 
 **Watch Live: Biden Addresses Evacuation Effort in Afghanistan**\
-`President Biden delivers remarks on the ongoing evacuation efforts in Afghanistan following a virtual meeting with Group of 7 nations.`\
+`President Biden delivers remarks on the evacuation efforts in Afghanistan following a virtual meeting with Group of 7 nations.`\
 https://nytimes.com/video/us/politics/100000007936463/biden-afghanistan-speech.html?searchResultPosition=4
 
 **The Climate Crisis Is Worse for Women. Here’s Why.**\
