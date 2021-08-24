@@ -7,8 +7,8 @@ https://nytimes.com/2021/08/24/world/africa/hissene-habre-dead.html?searchResult
 https://nytimes.com/2021/08/24/sports/refugees-parade-of-athletes.html?searchResultPosition=2
 
 **Emperor Naruhito, whose family has long supported the Paralympics, will formally open the Games.**\
-`By Motoko Rich`\
-https://nytimes.com/2021/08/24/sports/emperor-naruhito-whose-family-has-long-supported-the-paralympics-will-formally-open-the-games.html?searchResultPosition=3
+`The Imperial Family’s support goes back to the 1964 Paralympics, which were held in Tokyo.`\
+https://nytimes.com/2021/08/24/sports/emperor-naruhito-paralympics-japan.html?searchResultPosition=3
 
 **Airbnb says it will give temporary free housing to 20,000 Afghan refugees.**\
 `The company said it was working with resettlement agencies. It did not specify how long refugees could stay in the apartments and houses.`\
