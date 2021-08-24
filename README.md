@@ -1,5 +1,5 @@
-**Don’t Blame Biden for Losing Afghanistan**\
-`Leaving is disastrous. Staying would have been too. `\
+**The Afghanistan War Was Lost Before Biden Ended It**\
+`Leaving is disastrous. Staying would have been, too. `\
 https://nytimes.com/2021/08/23/opinion/afghanistan-biden.html?searchResultPosition=1
 
 **Gilded Candles to Brighten Your Dinner Table**\
