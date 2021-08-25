@@ -32,7 +32,7 @@ https://nytimes.com/slideshow/2021/08/25/realestate/a-shaded-beach-house-in-play
 
 **Buy or Wait? Here’s a Guide to Phone Upgrades.**\
 `Apple, Samsung and others want us to replace our phones constantly, but many of our problems with current devices can be fixed.`\
-https://nytimes.com/2021/08/25/technology/personaltech/phone-upgrade-guide.html?searchResultPosition=9
+https://nytimes.com/article/phone-upgrade.html?searchResultPosition=9
 
 **About 89% of Rental Assistance Funds Have Not Been Distributed, Figures Show**\
 `Just $1.7 billion in funds intended to prevent eviction were disbursed in July as the White House braces for a Supreme Court decision that could strike down its eviction moratorium.`\
