@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/25/world/americas/who-to-manufacture-vaccines-latin-america.html?searchResultPosition=1
 
 **Rand V. Araskog, Former Chief of ITT Corp., Dies at 89**\
-`Over two decades, during a tumultuous time for American business, he winnowed an unwieldy corporation and fended of corporate raids.`\
+`Over two decades, during a tumultuous time for American business, he winnowed an unwieldy corporation and fended off corporate raids.`\
 https://nytimes.com/2021/08/25/business/rand-v-araskog-dead.html?searchResultPosition=2
 
 **The Latest G.O.P. Schism: How to Handle Afghan Evacuees**\
