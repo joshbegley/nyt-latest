@@ -1,40 +1,40 @@
-**Kathy Hochul’s First Day as New York Governor**\
-`Ms. Hochul has vowed to fight the surging coronavirus Delta variant and steer the state through economic uncertainty. `\
-https://nytimes.com/2021/08/25/nyregion/kathy-hochul-first-day.html?searchResultPosition=1
+**Expressing Indian Spirituality in Jeweled Form**\
+`Ananya Malhotra says she tries to put meaning in all her designs.`\
+https://nytimes.com/2021/08/25/fashion/jewelry-ananya-malhotra-india-spirituality.html?searchResultPosition=1
 
-**Imprisoned Chinese Citizen Journalist Is Severely Ill From a Hunger Strike**\
-`Zhang Zhan was sentenced to four years in prison for documenting the Covid-19 outbreak in Wuhan. She now weighs less than 90 pounds, her former lawyer says.`\
-https://nytimes.com/2021/08/25/world/asia/china-zhang-zhan-hunger-strike.html?searchResultPosition=2
+**‘1, 2, 3 … Exhale Together’: Broadway Families, Reunited at Last**\
+`Before the reopenings were the in-person reunions. And hugs. So many hugs. Here’s a look at some of the first emotional moments on the road back.`\
+https://nytimes.com/2021/08/25/theater/broadway-reunion-first-moments.html?searchResultPosition=2
 
-**Offices Dangle Beehives and Garden Plots to Coax Workers Back**\
-`The latest perks include harvesting honey and digging in the dirt, part of a growing effort to give employees access to fresh air, sunlight and plants.`\
-https://nytimes.com/2021/08/25/business/office-amenities-nature-biophilia.html?searchResultPosition=3
+**Douglas Manor, Queens: A Bucolic Suburb in the City**\
+`Sure, there’s no sewer system. But residents overlook that and other challenges ‘to be in New York City but to feel like you are in Cape Cod.’`\
+https://nytimes.com/2021/08/25/realestate/douglas-manor-queens-a-bucolic-suburb-in-the-city.html?searchResultPosition=3
 
-**The Pandemic Is Testing the Federal Reserve’s New Policy Plan**\
-`Year 1 of the Fed’s framework, unveiled at its Jackson Hole conference in 2020, has included high inflation and job market healing. Now comes the hard part.`\
-https://nytimes.com/2021/08/25/business/economy/federal-reserve-jackson-hole-meeting.html?searchResultPosition=4
+**Returning Home to a Valley Filled With Flames**\
+`A beloved ranching community in Northern California faces destruction by America’s largest wildfire.`\
+https://nytimes.com/2021/08/25/us/dixie-fire-taylorsville.html?searchResultPosition=4
 
-**Budding Resistance to the Taliban Faces Long Odds**\
-`For now, the fighters have merely two assets: a narrow valley with a history of repelling invaders and the legacy of a storied mujahedeen commander.`\
-https://nytimes.com/2021/08/25/world/asia/panjshir-valley-ahmad-massoud.html?searchResultPosition=5
+**Why Lia Coryell, the Paralympic Archer, Is Still Here**\
+`She often questioned whether life with a debilitating disease was worth living. But then she found a purpose, and it goes way beyond shooting arrows at targets.`\
+https://nytimes.com/2021/08/25/sports/olympics/paralympics-archer-inspiring.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/25/crosswords/spelling-bee-2021-08-25.html?searchResultPosition=6
+**Living In ... Douglas Manor, Queens**\
+`Sure, there’s no sewer system. But residents overlook that and other challenges ‘to be in New York City but to feel like you are in Cape Cod.’`\
+https://nytimes.com/slideshow/2021/08/25/realestate/living-in-douglas-manor-queens.html?searchResultPosition=6
 
-**Jimmy Fallon: Americans Care More About New ‘Spider-Man’ Than Covid’s Origins**\
-`“In the trailer, Spider-Man visits Dr. Strange and asks him to turn back time. Then President Biden shows up and asks for the same thing,” Fallon joked on Tuesday.`\
-https://nytimes.com/2021/08/25/arts/television/late-night-spider-man-trailer.html?searchResultPosition=7
+**‘The Worst Thing I Can Ever Remember’: How Drought Is Crushing Ranchers**\
+`North Dakotans can’t grow enough feed for their cattle, so they’re selling off the animals before they starve.`\
+https://nytimes.com/2021/08/25/climate/drought-cattle.html?searchResultPosition=7
 
-**Art Gallery Shows to See Right Now**\
-`NADA x Foreland, where art fair meets group show; and portraits of daily life in Nairobi by the painter Elias Mung’ora.`\
-https://nytimes.com/2021/08/25/arts/design/art-shows-to-see-now.html?searchResultPosition=8
+**Houses of Worship Struggle Back, and Tread Lightly on Vaccines**\
+`Emptied out by the pandemic, most churches in New York City do not require worshipers to be vaccinated. Rules vary from place to place.`\
+https://nytimes.com/2021/08/25/nyregion/nyc-churches-vaccine.html?searchResultPosition=8
 
-**Your Wednesday Briefing**\
-`U.S. on track to leave Afghanistan by Aug. 31.`\
-https://nytimes.com/2021/08/24/briefing/afghanistan-deadline-unvaccinated-covid-fifa.html?searchResultPosition=9
+**How 2 Jewish Sisters Built a Cultural Oasis During World War II**\
+`In “The Sisters of Auschwitz,” a best seller in the Netherlands for more than two years, Roxane van Iperen writes about the way Janny and Lien Brilleslijper staged their own form of resistance.`\
+https://nytimes.com/2021/08/25/books/sisters-auschwitz-roxane-van-iperen-lien-janny-brilleslijper.html?searchResultPosition=9
 
-**U.S. intelligence agencies delivered a report to Biden on the virus’s origins.**\
-`By Julian E. Barnes`\
-https://nytimes.com/2021/08/24/us/politics/us-intelligence-agencies-delivered-a-report-to-biden-on-the-viruss-origins.html?searchResultPosition=10
+**In Paris, Gems, Flowers and Really Big Photos**\
+`Van Cleef & Arpels stages an exhibition with its creations and Mika Ninagawa’s macro-enlarged images.`\
+https://nytimes.com/2021/08/25/fashion/jewelry-van-cleef-and-arpels-exhibition-paris.html?searchResultPosition=10
 
