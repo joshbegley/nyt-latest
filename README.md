@@ -27,7 +27,7 @@ https://nytimes.com/2021/08/25/arts/television/emmy-awards-moses-ingram-queens-g
 https://nytimes.com/2021/08/25/world/europe/navalny-jail-prison.html?searchResultPosition=7
 
 **Biden, Needing a Win, Enters a Sprint for his Economic Agenda**\
-`As his poll numbers slide, the president and his aides have mounted an aggressive pitch in Congress and around the country for his spending plans on infrastructure and more`\
+`As his poll numbers slide, the president and his aides have mounted an aggressive pitch in Congress and around the country for his spending plans on infrastructure and more.`\
 https://nytimes.com/2021/08/25/business/biden-agenda.html?searchResultPosition=8
 
 **Freedom to Swim: Afghan Refugee Competes in Tokyo Paralympics**\
