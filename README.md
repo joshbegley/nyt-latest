@@ -1,6 +1,6 @@
 **Pfizer and BioNTech release new booster trial results of their Covid vaccine.**\
 `The companies said a third shot of its vaccine sharply increased the level of antibodies against the coronavirus`\
-https://nytimes.com/2021/08/25/us/politics/pfizer-vaccine-booster.html?searchResultPosition=1
+https://nytimes.com/2021/08/25/us/politics/pfizer-vaccine-booster-trial-results.html?searchResultPosition=1
 
 **America Today: Too Much Water, or Not Enough**\
 `The United States, like most of the planet, is becoming both drier and wetter in the era of climate change. These maps show the divide.`\
