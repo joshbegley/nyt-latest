@@ -10,7 +10,7 @@ https://nytimes.com/2021/08/25/us/chicago-vaccine-mandate.html?searchResultPosit
 `President Biden’s policies helped shut down a camp in Mexico that housed migrants during the Trump administration. But thousands are gathered now in a new camp. “The border is not really any different,” said a lawyer working there.`\
 https://nytimes.com/2021/08/25/us/migrant-camp-reynosa-remain-in-mexico.html?searchResultPosition=3
 
-**The Taliban wants to ‘forget what happened in the past,’ a leader tells The Times.**\
+**The Taliban wants to ‘forget’ the past,’ a leader tells The Times, but there will be some restrictions.**\
 `He was once a faceless spokesman for an insurgent group. On Wednesday, Zabihullah Mujahid, a top Taliban official, held forth in the seat of government.`\
 https://nytimes.com/2021/08/25/world/asia/taliban-spokesman-interview.html?searchResultPosition=4
 
