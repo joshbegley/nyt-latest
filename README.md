@@ -6,7 +6,7 @@ https://nytimes.com/2021/08/24/world/asia/moulton-meijer-kabul-trip.html?searchR
 `The House voted to restore federal oversight of state election laws, a key part of Democrats’ efforts to strengthen the Voting Rights Act of 1965 and combat voting restrictions in Republican-led states. It faces steep Republican opposition in the Senate.`\
 https://nytimes.com/video/us/politics/100000007937802/house-passes-john-lewis-voting-rights-act.html?searchResultPosition=2
 
-**Interview With Kathy Hochul: Sensing a ‘Weight of Responsibility’**\
+**Interview With Kathy Hochul: ‘I Feel a Heavy Weight of Responsibility’**\
 `Ms. Hochul sat down with The New York Times for her first one-on-one interview after becoming New York’s first female governor.`\
 https://nytimes.com/2021/08/24/nyregion/kathy-hochul-interview.html?searchResultPosition=3
 
