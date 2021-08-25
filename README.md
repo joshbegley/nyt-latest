@@ -1,4 +1,4 @@
-**W.H.O. Will Address Inequities by Making Vaccines in Latin America**\
+**W.H.O. will address inequities by making vaccines in Latin America.**\
 `In a region where some populations have extremely limited access to vaccines, public health agencies are taking control of the means of production.`\
 https://nytimes.com/2021/08/25/world/americas/who-to-manufacture-vaccines-latin-america.html?searchResultPosition=1
 
