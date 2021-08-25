@@ -14,8 +14,8 @@ https://nytimes.com/2021/08/25/us/aaron-larry-bowman-video-louisiana-trooper.htm
 `Some political activists had wondered whether the turmoil in Afghanistan would cause President Biden to back out of a planned trip to help Mr. Newsom retain his job.`\
 https://nytimes.com/2021/08/25/us/biden-newsom-election-recall.html?searchResultPosition=4
 
-**Why Representatives Seth Moulton and Peter Meijer Secretly Traveled to Kabul**\
-`They said they could not get answers on the evacuation from the Biden administration, so they went to Afghanistan to see for themselves. The visit earned bipartisan rebukes.`\
+**2 U.S. Representatives Try to Explain Unauthorized Visit to Kabul**\
+`Representatives Seth Moulton and Peter Meijer said they could not get answers on the evacuation from the Biden administration, so they went to Afghanistan to see for themselves.`\
 https://nytimes.com/2021/08/25/us/politics/seth-moulton-peter-meijer-kabul-afghanistan.html?searchResultPosition=5
 
 **Former ‘Good Morning America’ Producer Accused of Sexual Assault in Lawsuit**\
