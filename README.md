@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007937779/budget-blueprint-reconciliation-vote.html?searchResultPosition=1
 
 **A Taliban spokesman urged women to stay home because fighters have not been trained to respect them.**\
-`“We don’t want our forces, God forbid, to harm or harass women,” a Taliban spokesman said, explaining why Afghan woman should stay off the streets.`\
+`“We don’t want our forces, God forbid, to harm or harass women,” a Taliban spokesman said.`\
 https://nytimes.com/2021/08/24/world/asia/taliban-women-afghanistan.html?searchResultPosition=2
 
 **Donald Rumsfeld, Architect of War in Afghanistan, Is Laid to Rest**\
