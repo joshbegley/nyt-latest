@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/25/technology/personaltech/phone-upgrade-guide.html?
 https://nytimes.com/2021/08/25/us/politics/eviction-rental-assistance.html?searchResultPosition=2
 
 **What to Know About California’s Recall Election**\
-`Pandemic upheaval and partisan rancor have left Gov. Gavin Newsom in an unexpectedly close race to keep his job.`\
+`Pandemic upheaval and partisan rancor have left Gov. Gavin Newsom in an unexpectedly close race to keep his job.`\
 https://nytimes.com/interactive/2021/08/25/us/california-recall-newsom.html?searchResultPosition=3
 
 **$320,000 Homes in Pennsylvania, Tennessee and Rhode Island**\
