@@ -30,8 +30,8 @@ https://nytimes.com/2021/08/26/arts/television/diego-luna-everything-will-be-fin
 `Calls for change in this lucrative dance subculture have become broader and deeper, encompassing issues of race, gender and predatory behavior.`\
 https://nytimes.com/2021/08/26/arts/dance/competitive-dance.html?searchResultPosition=8
 
-**An explosion is reported at Kabul airport, after warnings of a security threat.**\
-`The blast occurred outside the Abbey Gate, a main entryway to the international airport where large crowds have gathered in recent days. Western governments had urged people to stay home.`\
+**Explosions strike Kabul airport, after warnings of a security threat.**\
+`At least two blasts occurred, one of them outside the airport’s Abbey Gate, a main entryway where large crowds have gathered in recent days. Western governments had urged people to stay home.`\
 https://nytimes.com/2021/08/26/world/kabul-aiport-explosion.html?searchResultPosition=9
 
 **Where Are Workers Making the Longest Commutes?**\
