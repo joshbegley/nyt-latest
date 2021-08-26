@@ -1,5 +1,5 @@
 **Dozens Dead After Explosions at Kabul Airport**\
-`Health officials in Afghanistan said at least 30 people were killed and 120 wounded by the attacks on Thursday near one of the airport’s main gates.`\
+`The Defense Department said 12 U.S. service members were killed and 15 wounded in an ISIS suicide bomb attack near an airport gate on Thursday. Many more Afghan civilians were killed and wounded.`\
 https://nytimes.com/video/world/asia/100000007941084/kabul-afghanistan-airport-explosions-casualties.html?searchResultPosition=1
 
 **Bottlenecks at an adult tricycle company illustrate continuing economic challenges.**\
