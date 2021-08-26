@@ -35,6 +35,6 @@ https://nytimes.com/2021/08/26/business/media/vice-media-layoffs.html?searchResu
 https://nytimes.com/video/world/asia/100000007940962/white-house-video-live-briefing.html?searchResultPosition=9
 
 **To Ease Housing Crisis, California Lawmakers Vote to Open Suburbs to Development**\
-`The assembly passed a bill that allows two-unit buildings on lots that for generations have been reserved for single-family homes.`\
+`The Assembly passed a bill that allows two-unit buildings on lots that for generations have been reserved for single-family homes.`\
 https://nytimes.com/2021/08/26/business/california-duplex-senate-bill-9.html?searchResultPosition=10
 
