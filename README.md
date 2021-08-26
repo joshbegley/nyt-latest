@@ -34,7 +34,7 @@ https://nytimes.com/2021/08/25/opinion/biden-taliban-afghanistan.html?searchResu
 `No proof of vaccination or a recent negative coronavirus test will be required for fans to enter the grounds, and no masks will be required when they are outdoors.`\
 https://nytimes.com/2021/08/25/sports/tennis/us-open-fans-covid-masks.html?searchResultPosition=9
 
-**When Environmental Racism Puts Feces in Your Sink**\
+**When Environmental Racism Causes a Hygienic Hell**\
 `Mount Vernon is one of scores of cities around the country with an outdated or overtaxed sewage system.`\
 https://nytimes.com/2021/08/25/opinion/environmental-racism-wastewater-broken.html?searchResultPosition=10
 
