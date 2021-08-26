@@ -6,7 +6,7 @@ https://nytimes.com/2021/08/25/us/tennessee-floods-victims.html?searchResultPosi
 `The State Department is frantically trying to track down U.S. citizens. Tens of thousands of Afghan allies will all but certainly be left behind.`\
 https://nytimes.com/2021/08/25/world/asia/afghanistan-taliban-united-states-evacuation.html?searchResultPosition=2
 
-**U.S., others warn of threat at airport in Kabul and tell citizens to ‘leave immediately.’**\
+**U.S., others warn of threat at airport in Kabul and tell citizens to leave immediately.**\
 `The U.S. government has long warned of potential security threats but the latest warning cited specific gates.`\
 https://nytimes.com/2021/08/25/world/asia/us-kabul-airport-threat.html?searchResultPosition=3
 
