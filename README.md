@@ -1,40 +1,40 @@
-**‘Candyman’ Review: Who Can Take a Sunrise, Sprinkle It With Blood?**\
-`The new take on the 1990s cult horror film returns the story to its old stomping ground, this time with Jordan Peele as a producer.`\
-https://nytimes.com/2021/08/26/movies/candyman-review.html?searchResultPosition=1
+**Politico agrees to be acquired by the German publisher Axel Springer.**\
+`The publishing giant will take control of Politico, Politico Europe and the Politico’s tech news site, Protocol. Terms of the deal were not disclosed.`\
+https://nytimes.com/2021/08/26/business/politico-axel-springer-acquired.html?searchResultPosition=1
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a three-bedroom in Hartsdale, N.Y., and a six-bedroom in Montclair, N.J.`\
+https://nytimes.com/2021/08/26/realestate/housing-market-near-NYC.html?searchResultPosition=2
+
+**Homes for Sale in Manhattan, the Bronx and Brooklyn**\
+`This week’s properties are in Carnegie Hill, Downtown Brooklyn and the Concourse neighborhood.`\
+https://nytimes.com/2021/08/26/realestate/housing-market-nyc.html?searchResultPosition=3
+
+**On the Market in New York City**\
+`This week’s properties are in Carnegie Hill, Downtown Brooklyn and the Concourse neighborhood.`\
+https://nytimes.com/slideshow/2021/08/26/realestate/on-the-market-in-new-york-city.html?searchResultPosition=4
+
+**On the Market in the New York Region**\
+`This week’s properties include a three-bedroom in Hartsdale, N.Y., and a six-bedroom in Montclair, N.J.`\
+https://nytimes.com/slideshow/2021/08/26/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=5
+
+**The T List: Five Things We Recommend This Week**\
+`Curated sardines, a new guesthouse in Arles — and more.`\
+https://nytimes.com/2021/08/26/t-magazine/arles-sardines-xing-cha.html?searchResultPosition=6
+
+**I’m in the Wedding Party. Can I Mask Up for the Ceremony?**\
+`A reader is worried about fulfilling her maid of honor duties, and even more worried about getting sick.`\
+https://nytimes.com/2021/08/26/style/wedding-masks-covid-social-qs.html?searchResultPosition=7
 
 **Celebrated String Quartet Will Disband, Ending 47-Year Run**\
 `The Emerson String Quartet, known for its energy and nuance, will retire in 2023 so its members can pursue solo projects.`\
-https://nytimes.com/2021/08/26/arts/music/emerson-string-quartet.html?searchResultPosition=2
+https://nytimes.com/2021/08/26/arts/music/emerson-string-quartet.html?searchResultPosition=8
+
+**‘Candyman’ Review: Who Can Take a Sunrise, Sprinkle It With Blood?**\
+`The new take on the 1990s cult horror film returns the story to its old stomping ground, this time with Jordan Peele as a producer.`\
+https://nytimes.com/2021/08/26/movies/candyman-review.html?searchResultPosition=9
 
 **5 Classical Albums to Hear Right Now**\
 `Yo-Yo Ma’s Beethoven and a young star soprano’s Sibelius are among the highlights of recent recordings.`\
-https://nytimes.com/2021/08/26/arts/music/classical-music-recording.html?searchResultPosition=3
-
-**Kamala Harris Pledges U.S. Help for Afghan Women and Children**\
-`As she left Southeast Asia, the vice president also delivered a blunt message to China. The United States does not want conflict, she said, but on some issues, “we are going to speak up.”`\
-https://nytimes.com/2021/08/26/world/asia/kamala-harris-vietnam-afghanistan.html?searchResultPosition=4
-
-**Delta Makes the Unvaccinated Pay**\
-`Insurance surcharges are a new front in corporate coronavirus vaccine initiatives.`\
-https://nytimes.com/2021/08/26/business/dealbook/vaccine-mandates-covid-delta.html?searchResultPosition=5
-
-**Nebraska is recruiting unvaccinated nurses to plug a staffing shortage.**\
-`The state is making an unconventional attempt to fill the ranks of its health care facilities as new cases surge.`\
-https://nytimes.com/2021/08/26/us/nebraska-delta-nurses-unvaccinated.html?searchResultPosition=6
-
-**Poor weather conditions hamper firefighting efforts across California.**\
-`The Caldor fire near Sacramento has become a priority, and a new blaze, the South fire, is threatening heavily populated parts of Southern California.`\
-https://nytimes.com/2021/08/26/us/california-wildfire-update-weather.html?searchResultPosition=7
-
-**Matthew Stafford Wants His Hollywood Ending. So Do the Rams.**\
-`After 12 seasons in Detroit, the quarterback wanted out. The Los Angeles Rams, looking to move on from Jared Goff, saw in Stafford another shot at a championship run.`\
-https://nytimes.com/2021/08/26/sports/football/matthew-stafford-los-angeles-rams.html?searchResultPosition=8
-
-**‘Lily Topples the World’ Review: What Goes Up**\
-`A gifted YouTuber gets a superficial profile in this lackadaisical documentary.`\
-https://nytimes.com/2021/08/26/movies/lily-topples-the-world-review.html?searchResultPosition=9
-
-**Serena Williams and Her Fellow Tennis Greats Are Limping Toward the Exits**\
-`Graceful final chapters in tennis can be difficult to achieve, as Serena Williams and Roger Federer are learning firsthand.`\
-https://nytimes.com/2021/08/26/sports/tennis/usopen-serena-williams-federer-nadal-retire.html?searchResultPosition=10
+https://nytimes.com/2021/08/26/arts/music/classical-music-recording.html?searchResultPosition=10
 
