@@ -22,19 +22,19 @@ https://nytimes.com/2021/08/26/arts/television/diego-luna-everything-will-be-fin
 `Calls for change in this lucrative dance subculture have become broader and deeper, encompassing issues of race, gender and predatory behavior.`\
 https://nytimes.com/2021/08/26/arts/dance/competitive-dance.html?searchResultPosition=6
 
+**An explosion is reported at Kabul airport, after warnings of a security threat.**\
+`The blast occurred outside the Abbey Gate, a main entryway to the international airport where large crowds have gathered in recent days. Western governments had urged people to stay home.`\
+https://nytimes.com/2021/08/26/world/kabul-aiport-explosion.html?searchResultPosition=7
+
 **Where Are Workers Making the Longest Commutes?**\
 `Commutes taking over 90 minutes in each direction increased by 45 percent from 2010 and 2019. Then came the pandemic.`\
-https://nytimes.com/2021/08/26/realestate/supercommuter-longest-commutes.html?searchResultPosition=7
+https://nytimes.com/2021/08/26/realestate/supercommuter-longest-commutes.html?searchResultPosition=8
 
 **One California City’s Creative Drought Fix**\
 `The wine country town of Healdsburg is offering residents treated wastewater for their yards.`\
-https://nytimes.com/2021/08/26/us/healdsburg-drought-wastewater.html?searchResultPosition=8
+https://nytimes.com/2021/08/26/us/healdsburg-drought-wastewater.html?searchResultPosition=9
 
 **Backed by Nine Inch Nails, Halsey Connects Past and Future**\
 `On “If I Can’t Have Love, I Want Power,” the 26-year-old musician enlists a longtime role model and takes one step back from confessionals.`\
-https://nytimes.com/2021/08/26/arts/music/halsey-if-i-cant-have-love-i-want-power-review.html?searchResultPosition=9
-
-**Politico will be acquired by Axel Springer in a deal valued at more than $1 billion.**\
-`The publishing giant will take control of Politico, Politico Europe and Politico’s tech news site, Protocol. Terms of the deal were not disclosed.`\
-https://nytimes.com/2021/08/26/business/politico-axel-springer-acquired.html?searchResultPosition=10
+https://nytimes.com/2021/08/26/arts/music/halsey-if-i-cant-have-love-i-want-power-review.html?searchResultPosition=10
 
