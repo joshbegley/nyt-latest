@@ -26,7 +26,7 @@ https://nytimes.com/2021/08/26/us/healdsburg-drought-wastewater.html?searchResul
 `On “If I Can’t Have Love, I Want Power,” the 26-year-old musician enlists a longtime role model and takes one step back from confessionals.`\
 https://nytimes.com/2021/08/26/arts/music/halsey-if-i-cant-have-love-i-want-power-review.html?searchResultPosition=7
 
-**Politico agrees to be acquired by the German publisher Axel Springer.**\
+**Politico will be acquired by Axel Springer in a deal valued at more than $1 billion.**\
 `The publishing giant will take control of Politico, Politico Europe and Politico’s tech news site, Protocol. Terms of the deal were not disclosed.`\
 https://nytimes.com/2021/08/26/business/politico-axel-springer-acquired.html?searchResultPosition=8
 
