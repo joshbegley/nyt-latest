@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/26/fashion/jewelry-cartier-exhibition-islamic-art.ht
 https://nytimes.com/video/us/100000007940797/live-video-biden-afghanistan.html?searchResultPosition=2
 
 **Your Friday Briefing**\
-`Dozens killed in Kabul airport attack.`\
+`Dozens killed in Kabul attack.`\
 https://nytimes.com/2021/08/26/briefing/kabul-explosions-moderna-japan-us-open.html?searchResultPosition=3
 
 **Why Must Wall Street Return to the Office?**\
