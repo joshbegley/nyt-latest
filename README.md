@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/100000007940797/live-video-biden-afghanistan.html?searchResultPosition=1
 
 **Your Friday Briefing**\
-`Dozens killed in Kabul airport explosions.`\
+`Dozens killed in Kabul airport attack.`\
 https://nytimes.com/2021/08/26/briefing/kabul-explosions-moderna-japan-us-open.html?searchResultPosition=2
 
 **Why Must Wall Street Return to the Office?**\
