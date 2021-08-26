@@ -34,7 +34,7 @@ https://nytimes.com/2021/08/26/opinion/climate-change-nuclear.html?searchResultP
 `Oregon’s strict mandates.`\
 https://nytimes.com/2021/08/26/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=9
 
-**At Least 12 U.S. Troops Among Masses of Dead in Kabul Suicide Attack**\
+**At Least 13 U.S. Troops Among Masses of Dead in Kabul Suicide Attack**\
 `Bombers struck a huge crowd outside the airport, killing dozens of civilians in the waning days of the U.S. evacuation from Afghanistan.`\
 https://nytimes.com/2021/08/26/world/asia/kabul-airport-bombing.html?searchResultPosition=10
 
