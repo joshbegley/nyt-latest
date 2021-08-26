@@ -2,8 +2,8 @@
 `The new take on the 1990s cult horror film returns the story to its old stomping ground, this time with Jordan Peele as a producer.`\
 https://nytimes.com/2021/08/26/movies/candyman-review.html?searchResultPosition=1
 
-**A Celebrated String Quartet Plans to Disband**\
-`The Emerson String Quartet, known for its energy and nuance, will end a 47-year run in 2023.`\
+**Celebrated String Quartet Will Disband, Ending 47-Year Run**\
+`The Emerson String Quartet, known for its energy and nuance, will retire in 2023 so its members can pursue solo projects.`\
 https://nytimes.com/2021/08/26/arts/music/emerson-string-quartet.html?searchResultPosition=2
 
 **5 Classical Albums to Hear Right Now**\
