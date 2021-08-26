@@ -6,7 +6,7 @@ https://nytimes.com/2021/08/26/briefing/afghanistan-tennessee-us-open.html?searc
 `The latest storm in a busy season is expected to strengthen into a hurricane and could reach Louisiana this weekend.`\
 https://nytimes.com/article/tropical-storm-ida-hurricane.html?searchResultPosition=2
 
-**R. Kelly Said He Liked ‘Very Young Girls,’ His Third Accuser Testifies**\
+**R. Kelly Said He Liked ‘Young Girls,’ His Third Accuser Testifies**\
 `The third accuser to testify at the singer’s trial said Mr. Kelly described himself as a “genius” who should be allowed to do what he wanted.`\
 https://nytimes.com/2021/08/26/nyregion/r-kelly-trial-accuser.html?searchResultPosition=3
 
