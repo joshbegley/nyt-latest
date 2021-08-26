@@ -1,40 +1,40 @@
+**Matthew Stafford Wants His Hollywood Ending. So Do the Rams.**\
+`After 12 seasons in Detroit, the quarterback wanted out. The Los Angeles Rams, looking to move on from Jared Goff, saw in Stafford another shot at a championship run.`\
+https://nytimes.com/2021/08/26/sports/football/matthew-stafford-los-angeles-rams.html?searchResultPosition=1
+
+**‘Lily Topples the World’ Review: What Goes Up**\
+`A gifted YouTuber gets a superficial profile in this lackadaisical documentary.`\
+https://nytimes.com/2021/08/26/movies/lily-topples-the-world-review.html?searchResultPosition=2
+
+**Serena Williams and Her Fellow Tennis Greats Are Limping Toward the Exits**\
+`Graceful final chapters in tennis can be difficult to achieve, as Serena Williams and Roger Federer are learning firsthand.`\
+https://nytimes.com/2021/08/26/sports/tennis/usopen-serena-williams-federer-nadal-retire.html?searchResultPosition=3
+
+**‘American Sausage Standoff’ Review: Order the Salad**\
+`This misbegotten satire about bigotry and mysterious pork products is unfunny and maladroit.`\
+https://nytimes.com/2021/08/26/movies/american-sausage-standoff-review.html?searchResultPosition=4
+
+**‘Isabella’ Review: Audition of a Lifetime**\
+`The Argentine filmmaker Matías Piñeiro, who riffs on Shakespeare, expands his ambition with this drama.`\
+https://nytimes.com/2021/08/26/movies/isabella-review.html?searchResultPosition=5
+
+**‘Together’ Review: Love and Loathing in London**\
+`Sharon Horgan and James McAvoy play a battling couple trapped in lockdown in this theatrical pandemic drama.`\
+https://nytimes.com/2021/08/26/movies/together-review.html?searchResultPosition=6
+
+**‘The Colony’ Review: Fertile Ground Goes to Waste**\
+`In this science fiction film, set generations after humans have destroyed Earth, an astronaut returns to the planet to see if it is habitable.`\
+https://nytimes.com/2021/08/26/movies/the-colony-review.html?searchResultPosition=7
+
+**‘Mosquito State’ Review: Bugging Out**\
+`A Wall Street genius becomes the willing host to a colony of mosquitoes in this dreamily surreal horror movie.`\
+https://nytimes.com/2021/08/26/movies/mosquito-state-review.html?searchResultPosition=8
+
+**‘No Man of God’ Review: Buddying Up to Bundy**\
+`The film dramatizes what it sees as the rapport between an F.B.I. profiler and the serial killer.`\
+https://nytimes.com/2021/08/26/movies/no-man-of-god-review.html?searchResultPosition=9
+
 **Remaking the Economy**\
 `Plus: Roger Federer’s greatest legacy.`\
-https://nytimes.com/2021/08/26/briefing/biden-economy-package.html?searchResultPosition=1
-
-**How G.M.’s First Turbo Engines Crashed and Burned**\
-`Oldsmobile and Chevrolet pioneered the technology for mass-market cars, but the turbos flopped — and took decades to gain acceptance.`\
-https://nytimes.com/2021/08/26/business/turbocharged-cars-jetfire-corvair.html?searchResultPosition=2
-
-**Biden’s Border Dilemma**\
-`Increased crossings from Central America are forcing the administration to choose between two major goals — stopping migrants or stopping the root causes.`\
-https://nytimes.com/2021/08/26/podcasts/the-daily/biden-immigration-policy-central-america.html?searchResultPosition=3
-
-**Olivier Sarkozy’s Turtle Bay Townhouse Is Listed for $11.5 Million**\
-`The half brother of the former French president was renovating the house with the fashion designer Mary-Kate Olsen before they divorced earlier this year.`\
-https://nytimes.com/2021/08/26/realestate/olivier-sarkozys-turtle-bay-townhouse-is-listed-for-11-5-million.html?searchResultPosition=4
-
-**At Two Summer Festivals, Offerings That Are Gloomy and Grim**\
-`The Salzburg Festival and the Ruhrtriennale host a series of theatrical pieces, both old and new, that seem to reflect our troubled time.`\
-https://nytimes.com/2021/08/26/theater/salzburg-festival-ruhrtriennale.html?searchResultPosition=5
-
-**Chicken, milkshakes, candy: They’re disappearing in Britain’s truck driver shortage.**\
-`Because of Brexit and other reasons, Britain doesn’t have enough truck drivers, and that’s causing all sorts of items to go scarce.`\
-https://nytimes.com/2021/08/26/business/chicken-milkshakes-candy-theyre-disappearing-in-britains-truck-driver-shortage.html?searchResultPosition=6
-
-**19 New Books Coming in September**\
-`The month brims with memoirs, histories and new novels, from Colson Whitehead, Sally Rooney, Liane Moriarty, Anthony Doerr, Gayl Jones and more.`\
-https://nytimes.com/2021/08/26/books/september-books.html?searchResultPosition=7
-
-**He’s Still Fighting Developers for the Park His Father Founded**\
-`A large, contaminated tract of Liberty State Park in New Jersey will be cleaned and cleared for trails, sports fields and wetlands.`\
-https://nytimes.com/2021/08/26/nyregion/liberty-state-park-development.html?searchResultPosition=8
-
-**Breakthrough Covid Cases: Uncommon and Often Mild, but Not Always**\
-`Vaccination remains the best defense, health experts say. But some infections occur regardless, and can come as a traumatic surprise.`\
-https://nytimes.com/2021/08/26/health/covid-breakthrough-infection.html?searchResultPosition=9
-
-**5 Things to Do This Weekend**\
-`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
-https://nytimes.com/2021/08/26/arts/things-to-do-this-weekend.html?searchResultPosition=10
+https://nytimes.com/2021/08/26/briefing/biden-economy-package.html?searchResultPosition=10
 
