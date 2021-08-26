@@ -30,7 +30,7 @@ https://nytimes.com/article/tropical-storm-ida-hurricane.html?searchResultPositi
 `The third accuser to testify at the singer’s trial said Mr. Kelly described himself as a “genius” who should be allowed to do what he wanted.`\
 https://nytimes.com/2021/08/26/nyregion/r-kelly-trial-accuser.html?searchResultPosition=8
 
-**Facing Its Worst Virus Surge, Oregon Adopts Nation’s Toughest Restrictions**\
+**Facing Its Worst Virus Surge, Oregon Adopts Some of Nation’s Toughest Restrictions**\
 `The National Guard has been deployed. Health care workers are pleading for help. Now the state is ordering masks for everyone who gathers closely in public, even outdoors.`\
 https://nytimes.com/2021/08/26/us/oregon-coronavirus-masks-ted-wheeler.html?searchResultPosition=9
 
