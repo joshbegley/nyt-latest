@@ -1,20 +1,16 @@
-**Texas House Passes Voting Bill as G.O.P. Nears a Hard-Fought Victory**\
-`The Republican bill, which would overhaul elections in Texas and introduce a range of new voting rules, must be approved by the State Senate before it can head to Gov. Greg Abbott’s desk.`\
-https://nytimes.com/2021/08/27/us/politics/texas-voting-rights-bill.html?searchResultPosition=6
+**Lloyd Dobyns, Co-Anchor of an Innovative TV Newscast, Dies at 85**\
+`He teamed with Linda Ellerbee on “NBC News Overnight” in 1982 to set an unusual tone for network news in an equally unusual time slot.`\
+https://nytimes.com/2021/08/27/business/media/lloyd-dobyns-dead.html?searchResultPosition=2
 
-**Hochul Announces Benjamin as Lieutenant Governor**\
-`At her inaugural event as governor of New York, Kathy Hochul introduced Brian Benjamin. The two have worked together in state government for many years.`\
-https://nytimes.com/video/us/politics/100000007942881/kathy-hochul-brian-benjamin-new-york-lieutenant-governor.html?searchResultPosition=7
+**How Can I Make Shorts Chic?**\
+`A reader has finally found flattering shorts, but wants to avoid looking matronly when pairing them with a T-shirt or tank top.`\
+https://nytimes.com/2021/08/27/fashion/how-can-i-make-shorts-chic.html?searchResultPosition=3
 
-**JoJo Siwa to Have First Same-Sex ‘Dancing With the Stars’ Partner**\
-`The “Dance Moms” alum and TikTok personality will join the ABC show as the first contestant to compete in a same-sex pairing.`\
-https://nytimes.com/2021/08/27/arts/television/jojo-siwa-dancing-with-the-stars.html?searchResultPosition=8
+**How to Enjoy Retirement Without Going Broke**\
+`The problem of decumulation is a tricky one, even for Nobel Prize-winning economists.`\
+https://nytimes.com/2021/08/27/opinion/how-to-enjoy-retirement-without-going-broke.html?searchResultPosition=4
 
-**Love Letter: A Temporary Teen Marriage**\
-`And: a fusion farm wedding.`\
-https://nytimes.com/2021/08/27/style/love-letter-newsletter-a-temporary-teen-marriage.html?searchResultPosition=9
-
-**Sticky Note Manifestoes Written During Quarantine**\
-`The artist Cauleen Smith talks about her new video work and the music she finds life affirming.`\
-https://nytimes.com/2021/08/27/t-magazine/cauleen-smith-video-art.html?searchResultPosition=10
+**The Softening of American Conversation**\
+`A coarsening in our language? No, I hear a flowering of deference.`\
+https://nytimes.com/2021/08/27/opinion/uptalk-English-language-coarsening.html?searchResultPosition=5
 
