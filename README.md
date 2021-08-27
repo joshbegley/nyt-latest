@@ -3,8 +3,8 @@
 https://nytimes.com/2021/08/27/podcasts/the-daily/kabul-airport-bombings-isis.html?searchResultPosition=1
 
 **India hits a milestone, giving vaccine shots to more than half of the eligible population.**\
-`By Sameer Yasir`\
-https://nytimes.com/2021/08/27/world/india-hits-a-milestone-giving-vaccine-shots-to-more-than-half-of-the-eligible-population.html?searchResultPosition=2
+`The country given at least one Covid-19 vaccine shot to more than half of the eligible population.`\
+https://nytimes.com/2021/08/27/world/india-covid-vaccination-rate-milestone.html?searchResultPosition=2
 
 **The Black Reporter Proved Right By History and a Fatal Tesla Crash: The Week in Narrated Articles**\
 `Five articles from around The Times, narrated just for you.`\
