@@ -24,7 +24,7 @@ https://nytimes.com/2021/08/27/us/children-covid-delta.html?searchResultPosition
 
 **A study confirms a small risk of blood clots after vaccines, but not as high as the risk Covid brings.**\
 `The study adds to the growing evidence that though the coronavirus vaccines are associated with certain rare side effects, those risks are dwarfed by the risks from Covid-19.`\
-https://nytimes.com/2021/08/27/world/blood-clots-coronavirus.html?searchResultPosition=9
+https://nytimes.com/2021/08/27/health/blood-clots-coronavirus.html?searchResultPosition=9
 
 **William Maxwell Found the Depth in Modest Places**\
 `A.O. Scott talks about the novelist and story writer, and Eyal Press discusses “Dirty Work.”`\
