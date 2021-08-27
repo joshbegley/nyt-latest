@@ -11,11 +11,11 @@ https://nytimes.com/2021/08/27/world/asia/baby-reach-evacuation-aircraft.html?se
 https://nytimes.com/2021/08/27/nyregion/brian-benjamin-lieutenant-governor.html?searchResultPosition=3
 
 **The Maxi Yacht Rolex Cup Is a Regatta of Heart-Stopping Challenges**\
-`Sailors call it Bomb Alley for good reason.`\
+`In Bomb Alley, the winds can change in an instant. And then there are the rocks.`\
 https://nytimes.com/2021/08/27/sports/sailing/maxi-yacht-rolex-cup.html?searchResultPosition=4
 
 **Training the Rust Off for the Maxi Regatta**\
-`The pandemic has idled many of these big boats, so their crews must work hard to get ready for this complex race.`\
+`Shelve a sharp blade for a year and it could rust. The same is true of professional, highly trained sailing teams.`\
 https://nytimes.com/2021/08/27/sports/sailing/maxi-yacht-cup-training.html?searchResultPosition=5
 
 **Pushing the Limits Paid Off for Didi, Until China Cracked Down**\
