@@ -15,7 +15,7 @@ https://nytimes.com/2021/08/27/nyregion/brian-benjamin-lieutenant-governor.html?
 https://nytimes.com/2021/08/27/sports/sailing/maxi-yacht-rolex-cup.html?searchResultPosition=4
 
 **Training the Rust Off for the Maxi Regatta**\
-`Shelve a sharp blade for a year and it could rust. The same is true of professional, highly trained sailing teams.`\
+`The pandemic has idled many of these big boats, so their crews must work hard to get ready for this complex race.`\
 https://nytimes.com/2021/08/27/sports/sailing/maxi-yacht-cup-training.html?searchResultPosition=5
 
 **Pushing the Limits Paid Off for Didi, Until China Cracked Down**\
