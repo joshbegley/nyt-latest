@@ -1,4 +1,4 @@
-**Jeanne Robertson, Down-Home Humorist With a Pageant Past, Dies at 77**\
+**Jeanne Robertson, 77, Down-Home Humorist With a Pageant Past, Dies**\
 `She told family-friendly stories from everyday life, including family squabbles and sending a man to the grocery store. Her YouTube fans were legion.`\
 https://nytimes.com/2021/08/27/arts/jeanne-robertson-dead.html?searchResultPosition=2
 
