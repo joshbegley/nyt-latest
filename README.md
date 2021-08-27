@@ -1,6 +1,6 @@
 **Biden Faces a Tragedy He Worked to Avoid**\
 `The president said the evacuation of U.S. citizens and allies from Afghanistan would continue, even after an attack that killed at least 13 American troops and dozens of Afghan civilians.`\
-https://nytimes.com/2021/08/26/us/politics/biden-afghanistan-attack.html?searchResultPosition=1
+https://nytimes.com/2021/08/27/us/politics/biden-afghanistan-attack.html?searchResultPosition=1
 
 **Revealing His Identity, Capitol Officer Defends Shooting Rioter on Jan. 6**\
 `“I know that day I saved countless lives,” Lt. Michael Byrd said in an interview with NBC. He said shooting Ashli Babbitt, who smashed through a door near lawmakers, was a “last resort.”`\
