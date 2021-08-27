@@ -1,40 +1,40 @@
-**What Is the Islamic State Khorasan, a.k.a. ISIS-K?**\
-`Founded in 2015, the Afghan splinter group from ISIS counts as its foes U.S. forces and the Taliban.`\
-https://nytimes.com/2021/08/27/world/asia/who-isis-k-afghanistan.html?searchResultPosition=1
+**Pushing the Limits Paid Off for Didi, Until China Cracked Down**\
+`The ride-hailing giant learned to thrive in legal gray areas while Beijing mostly looked the other way. Now the government is paying attention.`\
+https://nytimes.com/2021/08/27/technology/china-didi-crackdown.html?searchResultPosition=1
 
-**Tropical Storm Ida is swiftly heading for landfall in the United States.**\
-`Late on Thursday night, hurricane watches were issued for most of the Louisiana and Mississippi coasts.`\
-https://nytimes.com/2021/08/27/us/ida-forecast.html?searchResultPosition=2
+**Very Personal Computing: In Artist’s New Work, A.I. Meets Fatherhood**\
+`Ian Cheng brings his latest piece to the Shed, a narrative animation powered by a video game engine and partly inspired by his daughter.`\
+https://nytimes.com/2021/08/27/arts/design/ian-cheng-shed-life-after-bob.html?searchResultPosition=2
 
-**How Rodrigo Duterte Can Stay No. 1 by Becoming No. 2**\
-`The president of the Philippines says he’ll run for the vice presidency next year. Critics see a plot to avoid prosecution for the killings in his drug war.`\
-https://nytimes.com/2021/08/27/world/asia/philippines-duterte-vice-president-elections.html?searchResultPosition=3
+**We’re Burying Our Kids in Debt (Just Not the Way You Think)**\
+`Debt-financing public education has not only failed to provide schools with sufficient funds. It has also imposed long-term costs. `\
+https://nytimes.com/2021/08/27/opinion/school-debt-economy.html?searchResultPosition=3
 
-**‘He’s All That’ Review: Much Ado About Nothing**\
-`This gender-flipped reboot of “She’s All That” lazily rehashes the original but without its endearing weirdness.`\
-https://nytimes.com/2021/08/27/movies/hes-all-that-review.html?searchResultPosition=4
+**Where’s Eric Adams? Meeting Donors, From the Hamptons to the Vineyard.**\
+`Eric Adams, the Democratic nominee for mayor of New York City, is rushing to raise $5 million for the general election in November.`\
+https://nytimes.com/2021/08/27/nyregion/eric-adams-donors-mayor.html?searchResultPosition=4
 
-**‘Vacation Friends’ Review: Life Lessons Amid Chaos**\
-`Clay Tarver’s movie is a better grade of outrageous couples comedy.`\
-https://nytimes.com/2021/08/27/movies/vacation-friends-review.html?searchResultPosition=5
+**How Josh Ritter, Musician and Novelist, Spends His Sundays**\
+`In the morning he writes prose, and in the evening, songs. In between are treasure hunts and ‘power cleans’ with his family.`\
+https://nytimes.com/2021/08/27/nyregion/how-josh-ritter-musician-and-novelist-spends-his-sundays.html?searchResultPosition=5
 
-**Lake Tahoe Suffocates With Smoke**\
-`Smoke from the Caldor fire is overwhelming one of California’s most iconic regions — and confounding thousands of newcomers who fled there in recent months to escape the coronavirus.`\
-https://nytimes.com/2021/08/27/us/lake-tahoe-wildfire-smoke-covid.html?searchResultPosition=6
+**Show Me the Data!**\
+`A lack of systematic evidence has kept scientists one step behind in the pandemic.`\
+https://nytimes.com/2021/08/27/opinion/covid-data-vaccines.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/27/crosswords/spelling-bee-2021-08-27.html?searchResultPosition=7
+**Satellites Spot Oceans Aglow With Trillions of Organisms**\
+`A new generation of detectors let scientists identify a dozen large episodes of bioluminescence, one a hundred times larger than Manhattan — and that’s the smallest.`\
+https://nytimes.com/2021/08/27/science/ocean-bioluminescent-satellite.html?searchResultPosition=7
 
-**Seth Meyers Calls Out Fox News for Promoting Ivermectin**\
-`“Normally, when you hear the phrase ‘horse pills,’ you think it’s a euphemism, but in this case, it’s literal horse pills,” Meyers said.`\
-https://nytimes.com/2021/08/27/arts/television/seth-meyers-fox-ivermectin.html?searchResultPosition=8
+**Calls Grow to Discipline Doctors Spreading Virus Misinformation**\
+`A tiny number of doctors have had an outsize influence in spreading false information about Covid-19 and vaccines.`\
+https://nytimes.com/2021/08/27/technology/doctors-virus-misinformation.html?searchResultPosition=8
 
-**Southwest Trims Schedule in Effort to Solve Flight Problems**\
-`Southwest Airlines will reduce flights for the rest of the year as it tries to restore an operation that stumbled over the summer and now faces lower demand because of the rise in coronavirus cases.`\
-https://nytimes.com/aponline/2021/08/27/business/ap-us-southwest-flight-cuts.html?searchResultPosition=9
+**A Nightmare of Blood and Steel: The ’90s Subway Crash That Changed Everything**\
+`When a train jumped the tracks near Union Square, killing five and injuring 200, officials were forced to tighten safety protocols.`\
+https://nytimes.com/2021/08/27/nyregion/1991-subway-crash-nyc.html?searchResultPosition=9
 
-**New Zealand’s Homegrown Hero**\
-`Can the celebrity civil servant steering New Zealand through its lockdown succeed again?`\
-https://nytimes.com/2021/08/27/world/australia/ashley-bloomfield-new-zealand.html?searchResultPosition=10
+**Amid Afghan Chaos, a C.I.A. Mission That Will Persist for Years**\
+`The spy agency had plans to de-emphasize counterterrorism operations to focus on rising global powers. History got in the way.`\
+https://nytimes.com/2021/08/27/us/politics/cia-afghanistan.html?searchResultPosition=10
 
