@@ -6,8 +6,8 @@ https://nytimes.com/2021/08/26/theater/this-is-broadway-campaign.html?searchResu
 `President Biden condemned a terrorist attack near the Kabul airport that killed scores of people, including at least 13 American service members, pledging to retaliate against the attackers and continue evacuations.`\
 https://nytimes.com/video/us/100000007941715/isis-kabul-explosions-biden.html?searchResultPosition=2
 
-**Biden Faces a Tragedy He Pledged to Avoid**\
-`The president said the evacuation of U.S. citizens and allies from Afghanistan would continue, even after an attack that killed at least 13 American troops and dozens of Afghan civilians.`\
+**Biden Faces a Tragedy He Worked to Avoid**\
+`The president said the evacuation of U.S. citizens and allies from Afghanistan would continue, even after an attack that killed at least 13 American troops and dozens of civilians.`\
 https://nytimes.com/2021/08/27/us/politics/biden-afghanistan-attack.html?searchResultPosition=3
 
 **Revealing His Identity, Capitol Police Officer Defends Shooting Rioter on Jan. 6**\
