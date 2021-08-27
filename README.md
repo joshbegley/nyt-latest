@@ -1,24 +1,28 @@
+**When the Book Review Went Really Harsh**\
+`A hundred years ago, headlines in the Book Review did not mince words.`\
+https://nytimes.com/2021/08/27/books/when-the-book-review-went-really-harsh.html?searchResultPosition=1
+
+**Donald Newlove, Novelist Who Explored the Depths of Drink, Dies at 93**\
+`His acclaimed fiction and a memoir had a common theme: alcoholism. After becoming sober, he called his former besotted muse “Drunkspeare.”`\
+https://nytimes.com/2021/08/27/books/donald-newlove-dead.html?searchResultPosition=2
+
+**Finding Your Own Way With Words, and Images**\
+`8 new picture books explore the many different paths to fall learning.`\
+https://nytimes.com/2021/08/27/books/review/sophie-blackall-negative-cat.html?searchResultPosition=4
+
+**‘Vigorous But Uneven Recovery’: Powell Says of the Economy**\
+`Speaking virtually at an annual conference, Jerome H. Powell, the Federal Reserve chair, said the economy has made significant gains and that the Fed has made sufficient progress in forestalling inflation.`\
+https://nytimes.com/video/us/100000007942653/powell-federal-reserve-pandemic-removing-economic-support-delta-variant.html?searchResultPosition=5
+
 **Chocolate Factory Announces First Season at Its New Home**\
 `The programming at the new building in Long Island City in Queens includes works by Luciana Achugar and the dance group Aunts.`\
-https://nytimes.com/2021/08/27/arts/chocolate-factory-announces-first-season-at-its-new-home.html?searchResultPosition=2
+https://nytimes.com/2021/08/27/arts/chocolate-factory-announces-first-season-at-its-new-home.html?searchResultPosition=7
 
 **Cristiano Ronaldo Rejoins Manchester United**\
 `After flirting with joining Manchester City, Ronaldo will instead return to the team he starred for from 2003 to 2009.`\
-https://nytimes.com/2021/08/27/sports/soccer/cristiano-ronaldo-manchester-united.html?searchResultPosition=3
+https://nytimes.com/2021/08/27/sports/soccer/cristiano-ronaldo-manchester-united.html?searchResultPosition=8
 
 **Italian Official Resigns in Storm Over Plans to Name Park After Fascist**\
 `Claudio Durigon, a member of the right-wing League party and a deputy economy minister, resigned after an uproar over his proposal to rename a park after Benito Mussolini’s brother.`\
-https://nytimes.com/2021/08/27/world/europe/italian-official-resigns-in-storm-over-plans-to-name-park-after-fascist.html?searchResultPosition=5
-
-**Flo Rida, LL Cool J and Star Jones at the Angel Ball in the Hamptons**\
-`Despite the Delta surge, the charity circuit still draws celebrities, socialites and philanthropists.`\
-https://nytimes.com/2021/08/27/fashion/flo-rida-ll-cool-j-and-star-jones-at-the-angel-ball-in-the-hamptons.html?searchResultPosition=6
-
-**40 Million People Rely on the Colorado River. It’s Drying Up Fast.**\
-`Low water levels have triggered cutbacks to some Western states.`\
-https://nytimes.com/2021/08/27/sunday-review/colorado-river-drying-up.html?searchResultPosition=8
-
-**The Best of Late Night This Week 🌙**\
-`Pandemic news (and pumpkin spice lattes) kept the late-night hosts busy this week. Here’s what they had to say.`\
-https://nytimes.com/interactive/2021/08/27/arts/television/best-of-late-night.html?searchResultPosition=10
+https://nytimes.com/2021/08/27/world/europe/italian-official-resigns-in-storm-over-plans-to-name-park-after-fascist.html?searchResultPosition=10
 
