@@ -18,9 +18,9 @@ https://nytimes.com/2021/08/27/us/politics/capitol-police-ashli-babbitt.html?sea
 `The filmmaker edited his documentary after critics said it provided a platform for discredited theories purporting that the towers had been secretly blown up.`\
 https://nytimes.com/2021/08/26/arts/television/spike-lee-911-edit.html?searchResultPosition=5
 
-**Why Is It Taking So Long To Get a Covid Vaccine for Kids?**\
+**Why Is It Taking So Long to Get a Covid Vaccine for Kids?**\
 `Parents hoping for an early-fall vaccine may have to wait until the end of the year to get children under 12 vaccinated.`\
-https://nytimes.com/2021/08/26/well/covid-vaccine-kids-time.html?searchResultPosition=6
+https://nytimes.com/2021/08/27/well/live/covid-vaccine-kids-time.html?searchResultPosition=6
 
 **California Could Throw Away What It’s Won**\
 `A crazy recall process could lead to repudiation of the state's policy successes.`\
