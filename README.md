@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/27/nyregion/brian-benjamin-lieutenant-governor.html?searchResultPosition=1
 
 **The Maxi Yacht Rolex Cup Is a Regatta of Heart-Stopping Challenges**\
-`In Bomb Alley, the winds can change in an instant. And then there are the rocks.`\
+`Sailors call it Bomb Alley for good reason.`\
 https://nytimes.com/2021/08/27/sports/sailing/maxi-yacht-rolex-cup.html?searchResultPosition=2
 
 **Training the Rust Off for the Maxi Regatta**\
