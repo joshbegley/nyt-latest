@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/27/us/politics/biden-afghanistan-attack.html?searchR
 
 **Revealing His Identity, Capitol Officer Defends Shooting Rioter on Jan. 6**\
 `“I know that day I saved countless lives,” Lt. Michael Byrd said in an interview with NBC. He said shooting Ashli Babbitt, who smashed through a door near lawmakers, was a “last resort.”`\
-https://nytimes.com/2021/08/26/us/politics/capitol-police-ashli-babbitt.html?searchResultPosition=4
+https://nytimes.com/2021/08/27/us/politics/capitol-police-ashli-babbitt.html?searchResultPosition=4
 
 **Spike Lee Removes Conspiracists From HBO 9/11 Series After Criticism**\
 `The filmmaker edited his documentary after critics said it provided a platform for discredited theories purporting that the towers had been secretly blown up.`\
