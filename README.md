@@ -1,6 +1,6 @@
 **Intelligence Review Yields No Firm Conclusion on Origins of Virus**\
 `Declassified portions of a report presented to President Biden revealed divisions among federal agencies over whether the virus came from a lab leak or natural processes.`\
-https://nytimes.com/2021/08/27/us/politics/intelligence-review-yields-no-firm-conclusion-on-origins-of-virus.html?searchResultPosition=2
+https://nytimes.com/2021/08/27/us/politics/covid-origin-lab-leak.html?searchResultPosition=2
 
 **What to Do This Weekend**\
 `Catch up on “The Other Two.” Don’t cook.`\
