@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/27/technology/apple-settles-app-store-lawsuit.html?s
 
 **Supreme Court Ends Biden’s Eviction Moratorium**\
 `The ruling followed political and legal maneuvering by the administration to retain protections for tenants. It puts hundreds of thousands at risk of being put out of their homes.`\
-https://nytimes.com/2021/08/26/us/eviction-moratorium-ends.html?searchResultPosition=4
+https://nytimes.com/2021/08/27/us/eviction-moratorium-ends.html?searchResultPosition=4
 
 **‘This Is Broadway’ Campaign Aims to Attract Wary Theatergoers**\
 `The trade association representing theater owners and producers gets an assist from Oprah Winfrey as it seeks to drive ticket sales beyond the buzzy September reopenings.`\
