@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/27/us/politics/supreme-court-biden-eviction-moratorium.html?searchResultPosition=1
 
 **In Retiring Koosman’s Number, the Mets Protect Their History**\
-`A permanent tribute to the left-hander who helped lead the team to World Series glory is a move in the right direction for a club that tends to step on its own feet.`\
+`A permanent tribute to Jerry Koosman, the left-hander who helped lead the team to World Series glory, is a move in the right direction for a club that tends to step on its own feet.`\
 https://nytimes.com/2021/08/27/sports/baseball/jerry-koosman-mets-jersey.html?searchResultPosition=2
 
 **The Delta variant doubles the risk of hospitalization by the Alpha variant, a study finds.**\
