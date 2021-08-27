@@ -10,7 +10,7 @@ https://nytimes.com/2021/08/27/business/economy/powell-taper-bond-buying.html?se
 `The British actor, who received an Emmy nomination for playing Diana in “The Crown,” is happy to be handing off the role as it takes a darker turn. “I feel very protective over her,” she said.`\
 https://nytimes.com/2021/08/27/arts/television/emmy-awards-emma-corrin-crown.html?searchResultPosition=3
 
-**Why Are Steve Martin, Selena Gomez and Martin Short Working Together? It’s a Mystery**\
+**Why Are Steve Martin, Selena Gomez and Martin Short Working Together? It’s a Mystery.**\
 `The three stars forge an unexpected partnership in the Hulu crime comedy series “Only Murders in the Building.”`\
 https://nytimes.com/2021/08/27/arts/television/only-murders-in-the-building-hulu.html?searchResultPosition=4
 
