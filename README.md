@@ -2,17 +2,17 @@
 `From the shadows, the newsroom beckons, ready to come alive again.`\
 https://nytimes.com/2021/08/28/opinion/office-work-from-home-newsroom.html?searchResultPosition=1
 
+**It Shouldn’t Fall to Veterans to Clean Up Biden’s Mess**\
+`Never have I witnessed a swifter collapse of competence than what I have seen with the U.S. evacuation of Afghanistan.`\
+https://nytimes.com/2021/08/28/opinion/afghanistan-biden-evacuation.html?searchResultPosition=2
+
 **Trump’s Taliban Deal Showed the Folly of Personal Diplomacy**\
 `The conduct of diplomatic relations shouldn't rest solely on the shoulders of presidents.`\
-https://nytimes.com/2021/08/28/opinion/trump-taliban-deal-diplomacy.html?searchResultPosition=2
+https://nytimes.com/2021/08/28/opinion/trump-taliban-deal-diplomacy.html?searchResultPosition=3
 
 **One Thing I Don’t Plan to Do Before I Die Is Make a Bucket List**\
 `Until my cancer diagnosis, I did not understand that one future comes at the exclusion of all others.`\
-https://nytimes.com/2021/08/28/opinion/sunday/colon-cancer-bucket-list.html?searchResultPosition=3
-
-**It Shouldn’t Fall to Veterans to Clean Up Biden’s Mess**\
-`Never have I witnessed a swifter collapse of competence than what I have seen with the U.S. evacuation of Afghanistan.`\
-https://nytimes.com/2021/08/28/opinion/afghanistan-biden-evacuation.html?searchResultPosition=4
+https://nytimes.com/2021/08/28/opinion/sunday/colon-cancer-bucket-list.html?searchResultPosition=4
 
 **Why We Need More National Parks**\
 `There are dozens of natural wonders around the country worthy of the designation.`\
