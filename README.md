@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/28/opinion/america-history-founding-fathers.html?searchResultPosition=1
 
 **The Giants Have a Handshake for Every Homer**\
-`In a magical season, San Francisco is leading the majors in wins and round-trippers. Third base coach Ron Wotus has had to get creative to make sure each player has a customized greeting.`\
+`In a magical season, San Francisco is leading the majors in wins and round-trippers. Third base coach Ron Wotus has had to get creative to give the players customized greetings.`\
 https://nytimes.com/2021/08/28/sports/baseball/san-francisco-giants-ron-wotus.html?searchResultPosition=2
 
 **Bob Diamond, the ‘Tunnel King’ of Brooklyn, Dies at 61**\
