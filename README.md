@@ -1,8 +1,8 @@
 **What Went Wrong With the Pandemic in Florida**\
 `Even a large state that emphasized vaccinations in treating the coronavirus can be crushed by the Delta variant when no other measures are put in place.`\
-https://nytimes.com/2021/08/28/us/florida-coronavirus-what-went-wrong.html?searchResultPosition=1
+https://nytimes.com/2021/08/28/us/florida-coronavirus-covid-19-vaccines-variant.html?searchResultPosition=1
 
-**All in or All Out? Biden Saw No Middle Ground in Afghanistan**\
+**All in or All Out? Biden Saw No Middle Ground in Afghanistan.**\
 `President Biden’s reductionist formula has prompted a debate over whether the mayhem in Kabul was inevitable or the result of a failure to consider other options.`\
 https://nytimes.com/2021/08/28/us/politics/trump-taliban-biden-afghanistan.html?searchResultPosition=2
 
