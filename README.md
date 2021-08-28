@@ -1,6 +1,6 @@
 **How the Delta Variant Infiltrated an Elementary School Classroom**\
 `A detailed study in California found that the variant easily spread from an unvaccinated teacher to children and, in a few cases, their families.`\
-https://nytimes.com/2021/08/27/health/coronavirus-schools-children.html?searchResultPosition=1
+https://nytimes.com/2021/08/28/health/coronavirus-schools-children.html?searchResultPosition=1
 
 **Biden Hosts Israel’s Prime Minister**\
 `President Biden met with Prime Minister Naftali Bennett at the White House, where the leaders discussed how the U.S. and Israel planned to counter the influence of Iran and ensure that it could not develop nuclear weapons.`\
