@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/28/us/time-is-not-on-our-side-new-orleans-mayor-warn
 `Officials said two ISIS-K militants were killed and another was wounded in a U.`\
 https://nytimes.com/video/us/politics/100000007944390/pentagon-afghanistan-us-airstrike-isis-kabul-airport-bombing.html?searchResultPosition=4
 
-**Britain and France end evacuations in Afghanistan as the U.S. prepares to leave.**\
+**Biden warns that new attack is ‘highly likely’ as evacuations slow.**\
 `U.S. officials estimate that about 350 Americans are still awaiting evacuation from Afghanistan.`\
 https://nytimes.com/2021/08/28/world/asia/uk-france-afghanistan-evacuation-withdrawal.html?searchResultPosition=5
 
