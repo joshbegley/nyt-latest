@@ -18,7 +18,7 @@ https://nytimes.com/video/us/100000007944587/new-orleans-mayor-hurricane-ida-lou
 `A red card put Chelsea to the test, but a draw won with control, composure and calm felt like much more.`\
 https://nytimes.com/2021/08/28/sports/soccer/chelsea-liverpool-lukaku.html?searchResultPosition=5
 
-**Among the Troops WhoDied, Two Women on the Frontline**\
+**Among the Troops Who Died, Two Women on the Frontline**\
 `The Defense Department on Saturday officially identified the service members who were killed, and family and friends paid tribute to their lives and their sacrifice.`\
 https://nytimes.com/2021/08/28/us/soldiers-killed-in-afghanistan.html?searchResultPosition=6
 
