@@ -1,40 +1,40 @@
-**‘It Was Like I’d Never Done It Before’: How Sally Rooney Wrote Again**\
-`Her first two books, “Conversations With Friends” and “Normal People,” made her more famous than she liked. For her latest, “Beautiful World, Where Are You,” she asked herself what a novel is and why she’s taking on another one.`\
-https://nytimes.com/2021/08/28/books/sally-rooney-beautiful-world-where-are-you.html?searchResultPosition=1
+**A Relaxed Ash Barty Is Still No. 1**\
+`She stepped away from the game and came back stronger, winning four tournaments this year, including Wimbledon.`\
+https://nytimes.com/2021/08/28/sports/tennis/ashleigh-ash-barty-us-open.html?searchResultPosition=1
 
-**A Doctor’s Tour de France, One ‘Medical Desert’ at a Time**\
-`Newly graduated from medical school, Martial Jardel set off on a five-month road trip to help out in areas of France suffering from a shortage of physicians.`\
-https://nytimes.com/2021/08/28/world/europe/france-doctor-shortage-health-care-rural.html?searchResultPosition=2
+**Myanmar’s Monks, Leaders of Past Protests, Are Divided Over the Coup**\
+`Some senior members of the Buddhist clergy have given their blessing to the generals in power. But hundreds of lower-ranking monks have been jailed for protesting.`\
+https://nytimes.com/2021/08/28/world/asia/myanmar-monks-coup.html?searchResultPosition=2
 
-**From Kabul Airport to a Houston Walmart: ‘Desperate to Get to America’**\
-`Members of an Afghan family endured kidnappings, threats and car bombs over the decade they waited for U.S. visas. Now they’re starting a new life in Texas.`\
-https://nytimes.com/2021/08/28/us/afghanistan-refugee-family-houston.html?searchResultPosition=3
+**A Blue-Ribbon Affair**\
+`In Wisconsin, as in many parts of America, state and county fairs were back this summer.`\
+https://nytimes.com/2021/08/28/style/wisconsin-state-fairs.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/28/crosswords/spelling-bee-2021-08-28.html?searchResultPosition=4
+**Commuter Trains Have Kept Rolling. Will All Those Riders Ever Return?**\
+`Transit agencies in the New York City region are having to reinvent their railroads to adapt to the shift away from going to the office every day.`\
+https://nytimes.com/2021/08/28/nyregion/commuter-railroad-conavirus-new-york.html?searchResultPosition=4
 
-**Corrections: Aug. 28, 2021**\
-`Corrections that appeared in print on Saturday, Aug. 28, 2021.`\
-https://nytimes.com/2021/08/28/pageoneplus/corrections-aug-28-2021.html?searchResultPosition=5
+**The Census Said Detroit Kept Shrinking. The Mayor Begs to Differ.**\
+`Mayor Mike Duggan, who ran on a promise to reverse generations of population decline, blamed the Census Bureau, not himself, after the head count fell again.`\
+https://nytimes.com/2021/08/28/us/detroit-census-mike-duggan.html?searchResultPosition=5
 
-**Quotation of the Day: Family That Worked With U.S. Buries a Father and Their Hopes**\
-`Quotation of the Day for Saturday, August 28, 2021.`\
-https://nytimes.com/2021/08/28/todayspaper/quotation-of-the-day-family-that-worked-with-us-buries-a-father-and-their-hopes.html?searchResultPosition=6
+**Britons, Unfazed by High Covid Rates, Weigh Their ‘Price of Freedom’**\
+`Britain is reporting more than 30,000 new coronavirus cases a day, but the public seems to have moved on. Experts say this could be a glimpse into the future for other countries.`\
+https://nytimes.com/2021/08/28/world/europe/coronavirus-britain.html?searchResultPosition=6
 
-**Fight by Fight, Jake Paul Strikes for Credibility**\
-`The social media influencer wants respect for his transformation into a main draw boxer even if his skills are beside the point.`\
-https://nytimes.com/2021/08/28/sports/jake-paul-woodley-fight.html?searchResultPosition=7
+**A Digital Dunkirk: Veterans Online Scramble to Get People Out of Afghanistan**\
+`Using office software, satellite maps and messaging apps, volunteers are acting like digital guide services to helping American citizens and Afghan allies flee the country.`\
+https://nytimes.com/2021/08/28/us/veterans-help-afghanistan-out.html?searchResultPosition=7
 
-**Hurricane Ida Is ‘Rapidly Intensifying,’ Louisiana Governor Says**\
-`Gov. John Bel Edwards said the storm was expected to strengthen to a Category 4 hurricane by the time it made landfall and urged residents in the state to finish preparations and evacuate to safe locations.`\
-https://nytimes.com/video/us/100000007944146/hurricane-ida-louisiana-evacuation.html?searchResultPosition=8
+**John McEnroe and Bjorn Borg: A Rivalry That Ended Too Soon**\
+`The two played each other just 14 times but created one of the greatest and still-talked-about rivalries in the history of tennis.`\
+https://nytimes.com/2021/08/28/sports/tennis/us-open-mcenroe-borg.html?searchResultPosition=8
 
-**‘Be Patient’**\
-`Good luck getting over the top of this tough Julian Lim puzzle.`\
-https://nytimes.com/2021/08/27/crosswords/daily-puzzle-2021-08-28.html?searchResultPosition=9
+**You Don’t Need to Like Those Vacation Pics**\
+`In fact, your boss needs some guidance on the downside to oversharing.`\
+https://nytimes.com/2021/08/28/business/roxane-gay-work-friend-money.html?searchResultPosition=9
 
-**How the Delta Variant Infiltrated an Elementary School Classroom**\
-`A detailed study in California found that the variant easily spread from an unvaccinated teacher to children and, in a few cases, their families.`\
-https://nytimes.com/2021/08/28/health/coronavirus-schools-children.html?searchResultPosition=10
+**The D’Amelios Are Coming for All of Your Screens**\
+`TikTok’s most famous family wants to reintroduce itself on TV. Whatever that means now.`\
+https://nytimes.com/2021/08/28/style/charli-dixie-damelio-hulu-show.html?searchResultPosition=10
 
