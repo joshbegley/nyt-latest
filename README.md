@@ -36,5 +36,5 @@ https://nytimes.com/2021/08/28/us/politics/trump-taliban-biden-afghanistan.html?
 
 **Reprisal strike killed two ISIS militants and wounded another.**\
 `Officials refused to give details on the two killed, beyond saying that one was a planner and the other was a facilitator.`\
-https://nytimes.com/2021/08/28/world/reprisal-strike-killed-two-isis-militants-and-wounded-another.html?searchResultPosition=10
+https://nytimes.com/2021/08/28/world/us-airstrike-isis-k.html?searchResultPosition=10
 
