@@ -4,7 +4,7 @@ https://nytimes.com/2021/08/28/world/canada/canada-indigenous-health-care.html?s
 
 **What we know about the 13 U.S. service members killed in the Kabul attack.**\
 `They had an average age of just over 22 and came from towns across the country.`\
-https://nytimes.com/2021/08/28/us/us-soldiers-killed-afghanistan.html?searchResultPosition=2
+https://nytimes.com/article/us-soldiers-killed-afghanistan.html?searchResultPosition=2
 
 **New Orleans Mayor Urges Evacuations Ahead of Hurricane Ida**\
 `Hurricane Ida is expected to make landfall as a Category 4 storm on Sunday, which is also the 16th anniversary of Hurricane Katrina. Mayor LaToya Cantrell warned residents to either evacuate immediately or bunker down in a safe place ahead of the hurricane.`\
