@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007944390/pentagon-afghanistan-us-airstrike-isis-kabul-airport-bombing.html?searchResultPosition=1
 
 **Britain and France end evacuations in Afghanistan as the U.S. prepares to leave.**\
-`U.S. officials say the risk of terrorist attacks continues at the airport, where many of the crowds have dissipated.`\
+`U.S. officials estimate that about 350 Americans are still awaiting evacuation from Afghanistan.`\
 https://nytimes.com/2021/08/28/world/asia/uk-france-afghanistan-evacuation-withdrawal.html?searchResultPosition=2
 
 **When Police Lie, the Innocent Pay. Some Are Fighting Back.**\
