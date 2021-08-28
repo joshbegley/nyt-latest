@@ -2,7 +2,7 @@
 `Authoritarian leaders have taken their repressive tactics global.`\
 https://nytimes.com/2021/08/28/opinion/sunday/repression-human-rights-china-turkey-russia.html?searchResultPosition=1
 
-**How will Ida compare with Katrina?**\
+**How will Ida compare to Katrina?**\
 `Ida will drive less severe storm surge than Katrina. But it could bring greater winds and rain.`\
 https://nytimes.com/2021/08/28/us/hurricane-ida-vs-katrina.html?searchResultPosition=2
 
