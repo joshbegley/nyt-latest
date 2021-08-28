@@ -2,8 +2,8 @@
 `Hundreds of thousands of Afghans are still thought to be seeking to flee the country, but President Biden and other global leaders have acknowledged that many will not get out before the deadline.`\
 https://nytimes.com/2021/08/28/world/asia/afghanistan-evacuations.html?searchResultPosition=1
 
-**Italy will impose tighter restrictions in Sicily after a surge in cases.**\
-`The majority of hospitalizations on the southern island have involved the unvaccinated, and many have yet to get shots.`\
+**Italy will impose tighter restrictions in Sicily because of a surge in cases.**\
+`A majority of hospitalizations on the southern island have involved the unvaccinated, and many have yet to get shots.`\
 https://nytimes.com/2021/08/28/world/italy-restrictions-sicily-virus-surge.html?searchResultPosition=2
 
 **A Newsroom, on Pause**\
