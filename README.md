@@ -7,7 +7,7 @@ https://nytimes.com/2021/08/28/opinion/sunday/repression-human-rights-china-turk
 https://nytimes.com/2021/08/28/us/hurricane-ida-vs-katrina.html?searchResultPosition=2
 
 **‘Time is not on our side,’ New Orleans mayor warns.**\
-`By Chelsea Brasted`\
+`With Hurricane Ida headed toward southeast Louisiana, Mayor LaToya Cantrell of New Orleans issued a stern warning that city residents who intend to leave should do so immediately.`\
 https://nytimes.com/2021/08/28/us/time-is-not-on-our-side-new-orleans-mayor-warns.html?searchResultPosition=3
 
 **U.S. Strike Kills Two ISIS-K Militants in Retaliation for Airport Attack**\
