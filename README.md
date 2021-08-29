@@ -34,7 +34,7 @@ https://nytimes.com/2021/08/29/opinion/poetry.html?searchResultPosition=8
 `The variant’s spread came just as churches began welcoming back faithful.`\
 https://nytimes.com/2021/08/29/world/houses-of-worship-struggle-with-fear-of-deltas-rise-within-their-congregations.html?searchResultPosition=9
 
-**Why J.&J. Vaccine Recipients Should Also Get Booster Shots**\
-`Health authorities shouldn't leave J&J vaccine recipients behind in booster recommendations`\
-https://nytimes.com/2021/08/29/opinion/jj-johnson-vaccine-booster-shots.html?searchResultPosition=10
+**The Road to Recovery From Afghanistan Is a Familiar One**\
+`To understand the implications of America’s withdrawal from Afghanistan, look to history. `\
+https://nytimes.com/2021/08/29/opinion/afghanistan-withdrawal-history.html?searchResultPosition=10
 
