@@ -1,4 +1,4 @@
-**Ed Asner, Star of ‘Lou Grant’ and ‘Up,’ Is Dead at 91**\
+**Ed Asner, Emmy-Winning Star of ‘Lou Grant’ and ‘Up,’ Dies at 91**\
 `Best known as the gruff newsman he first played on “The Mary Tyler Moore Show,” he was also a busy character actor and a political activist.`\
 https://nytimes.com/2021/08/29/arts/television/ed-asner-dead.html?searchResultPosition=1
 
