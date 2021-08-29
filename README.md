@@ -1,6 +1,6 @@
 **Ida Strengthened Quickly Into a Monster. Here’s How.**\
 `Climate change plays a role in the rapid intensification of storms, and in Ida’s case, other factors worked as well to ramp up winds in a matter of hours.`\
-https://nytimes.com/2021/08/29/climate/hurricane-ida-fast-strong.html?searchResultPosition=1
+https://nytimes.com/2021/08/29/climate/hurricane-ida-category.html?searchResultPosition=1
 
 **Ed Asner, Emmy-Winning Star of ‘Lou Grant’ and ‘Up,’ Dies at 91**\
 `Best known as the gruff newsman he first played on “The Mary Tyler Moore Show,” he was also a busy character actor and a political activist.`\
