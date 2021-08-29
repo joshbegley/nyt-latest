@@ -22,19 +22,19 @@ https://nytimes.com/2021/08/29/briefing/your-monday-briefing.html?searchResultPo
 `The storm, which was downgraded from a hurricane, battered western Mexico with rain and was also blamed for at least two injuries in Jalisco State.`\
 https://nytimes.com/2021/08/29/world/americas/nora-storm-news.html?searchResultPosition=6
 
+**American University of Kabul students and alumni trying to flee were sent home.**\
+`After seven hours of waiting for clearance to enter the airport gates and driving around the city, the group met a dead end: Evacuations were permanently called off.`\
+https://nytimes.com/2021/08/29/world/taliban-american-university-of-kabul-afghanistan.html?searchResultPosition=7
+
 **When Will Biden Join the Fight for Voting Rights?**\
 `It's impossible to conclude that the president has been pulling out all the stops to defend voting rights.`\
-https://nytimes.com/2021/08/29/opinion/biden-voting-rights.html?searchResultPosition=7
+https://nytimes.com/2021/08/29/opinion/biden-voting-rights.html?searchResultPosition=8
 
 **Biden Observes Return of Troops Killed in Kabul Bombing**\
 `President Biden joined the families of 13 U.S. service members killed in a bombing at the Kabul airport in Afghanistan last week, as their remains were brought to Dover Air Force Base in Delaware. The fallen included 11 Marines, a Navy medic and an Army member.`\
-https://nytimes.com/video/us/politics/100000007945177/biden-american-service-members-killed-kabul-bombing.html?searchResultPosition=8
+https://nytimes.com/video/us/politics/100000007945177/biden-american-service-members-killed-kabul-bombing.html?searchResultPosition=9
 
 **Hurricane Ida Makes Landfall in Louisiana as a Category 4**\
 `The powerful storm made landfall near Port Fourchon, La., on the 16th anniversary of Hurricane Katrina, slamming the southeastern coast with dangerous winds and storm surge.`\
-https://nytimes.com/video/us/100000007945195/hurricane-ida-louisiana-landfall.html?searchResultPosition=9
-
-**Ron DeSantis, How Many Covid Deaths Are Enough?**\
-`Florida's governor is allowing you to choose death so that he can have a greater political life.`\
-https://nytimes.com/2021/08/29/opinion/ron-desantis-covid-death.html?searchResultPosition=10
+https://nytimes.com/video/us/100000007945195/hurricane-ida-louisiana-landfall.html?searchResultPosition=10
 
