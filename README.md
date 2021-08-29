@@ -1,5 +1,5 @@
-**Taliban Agree to Allow Safe Passage From Kabul After Aug. 31**\
-`A joint statement from the United States and other countries did not warn of any consequences should the Taliban renege, but an American official said it was meant to implicitly convey that incentives like foreign aid would be used to enforce it.`\
+**98 Countries Pledge to Accept Afghans After U.S. Military Departs**\
+`A joint statement from the United States and other countries said that they had “received assurances from the Taliban” that people with travel documents showing they were clear to enter any of those countries could safely depart.`\
 https://nytimes.com/2021/08/29/us/politics/united-states-evacuation-taliban-afghanistan.html?searchResultPosition=1
 
 **Can Novak Djokovic Be Invincible Again?**\
