@@ -1,6 +1,6 @@
 **When the Truth Gets Twisted by a Lie**\
 `Through one employee of Dominion Voting Systems, a Times Magazine article examines the damage that false accusations can inflict.`\
-https://nytimes.com/2021/08/28/insider/Dominion-voting-victim.html?searchResultPosition=1
+https://nytimes.com/2021/08/29/insider/Dominion-voting-victim.html?searchResultPosition=1
 
 **Bryson DeChambeau Soars. Patrick Cantlay Drags Him Back to Earth.**\
 `After shooting a 60 the previous day, DeChambeau allowed Cantlay to catch up, and the two are tied for the lead at 21 under par heading into the final round at the BMW Championship.`\
