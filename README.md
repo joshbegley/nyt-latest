@@ -12,7 +12,7 @@ https://nytimes.com/2021/08/29/world/americas/nora-storm-news.html?searchResultP
 
 **When Will Biden Join the Fight for Voting Rights?**\
 `It's impossible to conclude that the president has been pulling out all the stops to defend voting rights.`\
-https://nytimes.com/2021/08/29/opinion/when-will-biden-join-the-fight-for-voting-rights.html?searchResultPosition=4
+https://nytimes.com/2021/08/29/opinion/biden-voting-rights.html?searchResultPosition=4
 
 **Biden Observes Return of Troops Killed in Kabul Bombing**\
 `President Biden joined the families of 13 U.S. service members killed in a bombing at the Kabul airport in Afghanistan last week, as their remains were brought to Dover Air Force Base in Delaware. The fallen included 11 Marines, a Navy medic and an Army member.`\
