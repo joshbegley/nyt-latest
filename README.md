@@ -26,8 +26,8 @@ https://nytimes.com/2021/08/29/world/biden-service-members-killed-kabul-bombing.
 `Hurricane Ida was expected to create dangerous storm surges along the Louisiana and Mississippi coasts.`\
 https://nytimes.com/2021/08/29/us/storm-surge.html?searchResultPosition=7
 
-**The U.S. carries out a strike against a ‘credible threat’ in Kabul, American officials say.**\
-`Smoke was seen in a residential neighborhood in the Afghan capital, but it wasn’t immediately clear if it was related to the American strike.`\
+**The U.S. carries out a strike against a vehicle carrying suicide bombers in Kabul, an official says.**\
+`The would-be assailants were said to have been heading for the Afghan capital’s airport, where the American Embassy in the city had earlier said there was a “specific, credible threat” of another terrorist attack.`\
 https://nytimes.com/2021/08/29/world/kabul-explosion-us-strike.html?searchResultPosition=8
 
 **Afghanistan, Florida, U.S. Open: Your Weekend Briefing**\
