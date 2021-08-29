@@ -1,40 +1,40 @@
+**Ron DeSantis, How Many Covid Deaths Are Enough?**\
+`Florida's governor is allowing you to choose death so that he can have a greater political life.`\
+https://nytimes.com/2021/08/29/opinion/ron-desantis-covid-death.html?searchResultPosition=1
+
 **Ida Strengthened Quickly Into a Monster. Here’s How.**\
 `Climate change plays a role in the rapid intensification of storms, and in Ida’s case, other factors worked as well to ramp up winds in a matter of hours.`\
-https://nytimes.com/2021/08/29/climate/hurricane-ida-category.html?searchResultPosition=1
+https://nytimes.com/2021/08/29/climate/hurricane-ida-category.html?searchResultPosition=2
 
 **Ed Asner, Emmy-Winning Star of ‘Lou Grant’ and ‘Up,’ Dies at 91**\
 `Best known as the gruff newsman he first played on “The Mary Tyler Moore Show,” he was also a busy character actor and a political activist.`\
-https://nytimes.com/2021/08/29/arts/television/ed-asner-dead.html?searchResultPosition=2
+https://nytimes.com/2021/08/29/arts/television/ed-asner-dead.html?searchResultPosition=3
 
 **What Voters Should Know About the Newsom Recall**\
 `Here’s everything you need to know to vote in the California gubernatorial recall election on Sept. 14.`\
-https://nytimes.com/article/newsom-recall-election-voter-guide.html?searchResultPosition=3
+https://nytimes.com/article/newsom-recall-election-voter-guide.html?searchResultPosition=4
 
 **Meteorologists were amazed by how fast Ida strengthened.**\
 `The storm had evolved swiftly from a worrisome disturbance to possibly the most devastating to strike Louisiana since Hurricane Katrina.`\
-https://nytimes.com/2021/08/29/us/hurricane-ida-explained.html?searchResultPosition=4
+https://nytimes.com/2021/08/29/us/hurricane-ida-explained.html?searchResultPosition=5
 
 **Don Poynter, Who Made Toilets Talk and Golf Balls Walk, Dies at 96**\
 `His line of novelty items was wide-ranging. Jayne Mansfield posed for him so that he could make a shapely, sexy hot-water bottle.`\
-https://nytimes.com/2021/08/29/business/don-poynter-dead.html?searchResultPosition=5
+https://nytimes.com/2021/08/29/business/don-poynter-dead.html?searchResultPosition=6
 
 **How a Runner Turned a Nightmare Into a Great Olympic Moment**\
 `Falling on the Olympic stage is an unthinkable scenario for any athlete. Isaiah Jewett turned it into something else entirely.`\
-https://nytimes.com/2021/08/29/sports/olympics/Isaiah-Jewett-Tokyo-Olympics.html?searchResultPosition=6
+https://nytimes.com/2021/08/29/sports/olympics/Isaiah-Jewett-Tokyo-Olympics.html?searchResultPosition=7
 
 **E.U. Set to Propose Travel Restrictions on U.S. Visitors**\
 `Two officials from the bloc said that starting Monday, the European Council would advise its member states to ban nonessential travel from the United States.`\
-https://nytimes.com/2021/08/29/world/europe/eu-us-travel-restrictions.html?searchResultPosition=7
+https://nytimes.com/2021/08/29/world/europe/eu-us-travel-restrictions.html?searchResultPosition=8
 
 **Here’s why you need bottled water during a hurricane or tropical storm.**\
 `Powerful storms such as Hurricane Ida can cause power outages or damage public water systems.`\
-https://nytimes.com/2021/08/29/us/bottled-water-hurricanes.html?searchResultPosition=8
+https://nytimes.com/2021/08/29/us/bottled-water-hurricanes.html?searchResultPosition=9
 
 **Louisiana Braces for Hurricane Ida**\
 `Louisiana residents rushed to evacuate or hunkered down with supplies ahead of Hurricane Ida. The Category 4 storm is one of the most powerful systems to hit the region since Hurricane Katrina, bringing life-threatening storm surge and winds.`\
-https://nytimes.com/video/us/100000007945037/hurricane-ida-louisiana-storm.html?searchResultPosition=9
-
-**Review: ‘Laetitia,’ a French True-Crime Gem, Comes to HBO**\
-`The Oscar-winning documentarian Jean-Xavier De Lestrade turns to fiction to tell a story of grisly murder in western France.`\
-https://nytimes.com/2021/08/29/arts/television/laetitia-hbo-review.html?searchResultPosition=10
+https://nytimes.com/video/us/100000007945037/hurricane-ida-louisiana-storm.html?searchResultPosition=10
 
