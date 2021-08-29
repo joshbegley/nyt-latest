@@ -2,13 +2,13 @@
 `Health authorities shouldn't leave J&J vaccine recipients behind in booster recommendations`\
 https://nytimes.com/2021/08/29/opinion/jj-johnson-vaccine-booster-shots.html?searchResultPosition=1
 
-**The Road to Recovery From Afghanistan Is a Familiar One**\
-`To understand the implications of America's withdrawal from Afghanistan, look to history. `\
-https://nytimes.com/2021/08/29/opinion/afghanistan-withdrawal-history.html?searchResultPosition=2
-
 **How Did Deep Blue California Get Played by Recall-Happy Republicans?**\
 `It's not just Gavin Newsom’s problem. The state’s recall system is strange and troubling.`\
-https://nytimes.com/2021/08/29/opinion/california-recall-election-newsom.html?searchResultPosition=3
+https://nytimes.com/2021/08/29/opinion/california-recall-election-newsom.html?searchResultPosition=2
+
+**The Road to Recovery From Afghanistan Is a Familiar One**\
+`To understand the implications of America's withdrawal from Afghanistan, look to history. `\
+https://nytimes.com/2021/08/29/opinion/afghanistan-withdrawal-history.html?searchResultPosition=3
 
 **What to Cook This Week**\
 `Start with a big Italian-inspired spread, then go casual later on with BLT tacos.`\
