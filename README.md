@@ -1,5 +1,5 @@
 **U.S. Conducts Drone Strike in Kabul and Winds Down Airlift as Deadline Nears**\
-`The strike eliminated what U.S. officials called an imminent terrorist threat. The military evacuation of Afghans is ending, but the United States and others say they will still get people out.`\
+`The strike eliminated what U.S. officials called an imminent terrorist threat. With the military evacuation of Afghans over, the United States and others say they will still get people out.`\
 https://nytimes.com/2021/08/29/world/asia/us-drone-strike-evacuation.html?searchResultPosition=1
 
 **Your Monday Briefing**\
