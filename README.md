@@ -6,8 +6,8 @@ https://nytimes.com/2021/08/29/world/asia/us-drone-strike-evacuation.html?search
 `Drone strikes in Afghanistan.`\
 https://nytimes.com/2021/08/29/briefing/your-monday-briefing.html?searchResultPosition=2
 
-**Tropical Storm Nora Unleashes Rain and Flash Floods in Mexico**\
-`The storm, which was downgraded from a hurricane, battered western Mexico with rain and was blamed for at least two injuries in Jalisco State.`\
+**At Least One Dead as Tropical Storm Nora Lashes Mexico With Heavy Rain**\
+`The storm, which was downgraded from a hurricane, battered western Mexico with rain and was also blamed for at least two injuries in Jalisco State.`\
 https://nytimes.com/2021/08/29/world/americas/nora-storm-news.html?searchResultPosition=3
 
 **When Will Biden Join the Fight for Voting Rights?**\
