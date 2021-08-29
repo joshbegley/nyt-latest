@@ -1,6 +1,6 @@
 **U.S. diplomats are unlikely to stay in Afghanistan after troops leave.**\
 `The U.S. mission to Afghanistan will likely open in a country elsewhere in the region.`\
-https://nytimes.com/2021/08/29/world/us-diplomats-afghanistan.html?searchResultPosition=1
+https://nytimes.com/2021/08/29/world/afghanistan-usa-diplomats.html?searchResultPosition=1
 
 **The Week in Business: Delta Introduces a New Kind of Fee**\
 `As companies navigate vaccine requirements, a high-profile Silicon Valley trial is set to begin.`\
