@@ -22,7 +22,7 @@ https://nytimes.com/2021/08/30/us/politics/blinken-us-evacuation-taliban-afghani
 `The last U.S. military plane left Kabul Monday night, ending a presence that spanned two decades but failed to defeat the Taliban and left behind tens of thousands of Afghans.`\
 https://nytimes.com/2021/08/30/world/asia/afghanistan-us-occupation-ends.html?searchResultPosition=6
 
-**An Unceremonious End, and a Shrouded Beginning**\
+**In Afghanistan, an Unceremonious End, and a Shrouded Beginning**\
 `The last American flight from Afghanistan left behind a host of unfulfilled promises and anxious questions about the country’s fate.`\
 https://nytimes.com/2021/08/30/world/asia/us-withdrawal-afghanistan-kabul.html?searchResultPosition=7
 
