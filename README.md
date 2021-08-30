@@ -1,6 +1,6 @@
 **Your Monday Briefing**\
 `A U.S. drone strike in Kabul.`\
-https://nytimes.com/2021/08/29/briefing/afghanistan-ida-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2021/08/30/briefing/afghanistan-ida-coronavirus.html?searchResultPosition=1
 
 **The U.S. reaches 100,000 average daily Covid hospitalizations for the first time since winter’s peak.**\
 `Hospitalizations nationwide have increased by nearly 500 percent in the past two months, particularly across Southern states, where I.C.U. beds are filling up.`\
