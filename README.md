@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/30/arts/music/kenny-malone-dead.html?searchResultPosition=1
 
 **Watch One of the Best Current Comedies on TV**\
-`‘What We Do in the Shadows” is back. Our TV critic also recommends a beachy Australian procedural.`\
+`“What We Do in the Shadows” is back. Our TV critic also recommends a beachy Australian procedural.`\
 https://nytimes.com/2021/08/30/arts/television/what-we-do-in-the-shadows-season-3.html?searchResultPosition=2
 
 **Afghan Family Accuses U.S. of Killing 10, Including 7 Children, in Errant Missile Attack**\
