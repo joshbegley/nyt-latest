@@ -36,5 +36,5 @@ https://nytimes.com/2021/08/30/us/delta-100000-covid-patients.html?searchResultP
 
 **Steady, Stoic Cantlay Outlasts a Mighty DeChambeau in Maryland**\
 `The BMW Championship was settled after six gripping playoff holes between two rising stars of the post-Tiger Woods generation.`\
-https://nytimes.com/2021/08/29/sports/golf/bmw-championship.html?searchResultPosition=10
+https://nytimes.com/2021/08/30/sports/golf/bmw-championship.html?searchResultPosition=10
 
