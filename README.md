@@ -27,7 +27,7 @@ https://nytimes.com/video/us/100000007945421/louisiana-hurricane-ida-hospitals-c
 https://nytimes.com/2021/08/29/crosswords/daily-puzzle-2021-08-30.html?searchResultPosition=7
 
 **U.S. Conducts Drone Strike in Kabul and Winds Down Airlift as Deadline Nears**\
-`The strike eliminated what U.S. officials called an imminent terrorist threat. With the military evacuation of Afghans over, the United States and others say they will still get people out.`\
+`The strike eliminated what U.S. officials called an imminent terrorist threat. With the military evacuation of Afghans over,   the United States and others say they will still get people out.`\
 https://nytimes.com/2021/08/29/world/asia/us-drone-strike-evacuation.html?searchResultPosition=8
 
 **Your Monday Briefing**\
