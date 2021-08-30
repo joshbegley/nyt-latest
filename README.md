@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/30/well/insomnia-better-sleep.html?searchResultPosit
 `Gary Gensler, the chair of the Securities and Exchange Commission, called payment for order flow “an inherent conflict of interest.”`\
 https://nytimes.com/2021/08/30/business/sec-payment-for-order-flow-robinhood.html?searchResultPosition=7
 
-**Mandatory Evacuations Ordered Near Lake Tahoe as the Caldor Fire Intensifies**\
+**Evacuations Ordered Near Lake Tahoe as the Caldor Fire Intensifies**\
 `The fire had spread to more than 177,000 acres and was 14 percent contained, according to Cal Fire.`\
 https://nytimes.com/2021/08/30/us/caldor-fire-evauation-order-california.html?searchResultPosition=9
 
