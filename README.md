@@ -1,5 +1,5 @@
 **Ida Hit One of the Country’s Biggest Oil and Chemical Hubs**\
-`Louisiana’s 17 oil refineries account for nearly a fifth of the nation’s capacity. Officials are trying to assess the damage.`\
+`Louisiana’s 17 oil refineries account for nearly a fifth of the nation’s capacity. Past hurricanes have cause toxic spills.`\
 https://nytimes.com/2021/08/30/climate/ida-chemical-plants-refineries.html?searchResultPosition=1
 
 **How Alcohol Affects the Heart**\
