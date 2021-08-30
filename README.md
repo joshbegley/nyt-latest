@@ -1,4 +1,4 @@
-**The U.S. reaches 100,000 average Covid hospitalizations for the first time since winter’s peak.**\
+**The U.S. reaches 100,000 average daily Covid hospitalizations for the first time since winter’s peak.**\
 `Hospitalizations nationwide have increased by nearly 500 percent in the past two months, particularly across Southern states, where I.C.U. beds are filling up.`\
 https://nytimes.com/2021/08/30/us/delta-100000-covid-patients.html?searchResultPosition=1
 
