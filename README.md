@@ -7,8 +7,8 @@ https://nytimes.com/2021/08/31/business/media/jeopardy-mike-richards.html?search
 https://nytimes.com/interactive/2021/08/31/well/live/self-care-productivity.html?searchResultPosition=2
 
 **Patriots Cut Cam Newton, Choosing Rookie as Week 1 Starter**\
-`Mac Jones, the No. 15 pick in this year’s draft, will start against the Miami Dolphins in the Patriots’ first regular season game.`\
-https://nytimes.com/2021/08/31/sports/football/cam-newton-patriots-released.html?searchResultPosition=4
+`Mac Jones, the No. 15 pick in this year’s N.F.L. draft, will start against the Miami Dolphins in New England’s first regular-season game.`\
+https://nytimes.com/2021/08/31/sports/football/cam-newton-patriots-released.html?searchResultPosition=3
 
 **As a preview of future hurricanes, Ida is ‘very scary.’**\
 `There is broad consensus among scientists that a warming climate will lead to more extreme and heavy rainfall during storms, as Hurricane Ida is illustrating.`\
