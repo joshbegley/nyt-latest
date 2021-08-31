@@ -1,5 +1,5 @@
 **Fans waited two years to experience the U.S. Open in person. Then waited some more.**\
-`By David Waldstein and Michelle Agins`\
+`As the first tennis balls were struck in earnest at the U.S. Open on Monday`\
 https://nytimes.com/2021/08/31/sports/tennis/us-open-fans-arthur-ashe-stadium.html?searchResultPosition=1
 
 **The Intolerable Wait for a Kids’ Vaccine**\
