@@ -3,7 +3,7 @@
 https://nytimes.com/2021/08/31/science/colombia-birds-expedition.html?searchResultPosition=1
 
 **The last American soldier leaves, and the first Taliban soldiers arrive.**\
-`By Azi Paybarah`\
+`Two images marked the end of the nearly 20-year war with a U.S. soldier leaving Kabul’s airport as Taliban fighters nearby walked in.`\
 https://nytimes.com/2021/08/31/world/asia/the-last-american-soldier-leaves-and-the-first-taliban-soldiers-arrive.html?searchResultPosition=2
 
 **Your Tuesday Briefing**\
