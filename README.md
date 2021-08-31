@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000007947532/blinken-afghanistan-us-wit
 
 **Transcript of Blinken’s Speech on ‘New Chapter’ in Afghanistan**\
 `Shortly after the last U.S. troops left Afghanistan, the secretary of state outlined a plan to use diplomacy to try to extract remaining Americans and Afghan allies.`\
-https://nytimes.com/2021/08/30/us/politics/transcript-blinken-afghanistan-speech.html?searchResultPosition=2
+https://nytimes.com/2021/08/31/us/politics/transcript-blinken-afghanistan-speech.html?searchResultPosition=2
 
 **Fans waited an extra year for the U.S. Open. Then they waited some more.**\
 `As the first tennis balls were struck in earnest at the U.S. Open on Monday`\
