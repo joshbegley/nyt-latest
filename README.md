@@ -20,7 +20,7 @@ https://nytimes.com/2021/08/30/us/politics/guantanamo-bali-bombing-charges.html?
 
 **In Louisiana, Rescue Workers Search for Those Stranded by Hurricane Ida**\
 `More than a million people, including most in New Orleans, were without electricity, but the city’s levees held.`\
-https://nytimes.com/2021/08/30/us/hurricane-ida-louisiana-rescue.html?searchResultPosition=6
+https://nytimes.com/2021/08/31/us/hurricane-ida-louisiana-rescue.html?searchResultPosition=6
 
 **Hurricane Veterans Were Stunned by Ida: ‘It’s Never Been as Bad’**\
 `Some small towns outside New Orleans were inundated. Trapped residents waited for daylight, when rescue boats could make their way through the floodwaters.`\
