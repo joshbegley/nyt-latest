@@ -26,15 +26,15 @@ https://nytimes.com/2021/08/31/us/politics/transcript-biden-speech-afghanistan.h
 `The problem is not unique to the Biden administration, said the head of a nonpartisan group that tracks vacancies.`\
 https://nytimes.com/2021/08/31/us/politics/biden-cabinet-appointments.html?searchResultPosition=7
 
+**180 cases are traced to a church camp and conference that didn’t require vaccinations or testing, the C.D.C. says.**\
+`No deaths have been linked the two events in organized by an Illinois church group, but five people have been hospitalized, all of them unvaccinated.`\
+https://nytimes.com/2021/08/31/health/illinois-youth-camp-covid-outbreak.html?searchResultPosition=8
+
 **70 Years After Being Executed for Rape, 7 Black Men Are Pardoned in Virginia**\
 `For decades, family members of the men, known as the Martinsville Seven, contended that they were denied due process. Gov. Ralph S. Northam agreed.`\
-https://nytimes.com/2021/08/31/us/martinsville-seven-posthumous-pardons.html?searchResultPosition=8
+https://nytimes.com/2021/08/31/us/martinsville-seven-posthumous-pardons.html?searchResultPosition=9
 
 **I Am on the Ground in Louisiana**\
 `Ida tore through Houma, La., as a Category 4 storm, leaving destruction in every direction.`\
-https://nytimes.com/interactive/2021/08/31/us/hurricane-Ida.html?searchResultPosition=9
-
-**Afghanistan, Texas, Kanye West: Your Tuesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/08/31/briefing/afghanistan-texas-kanye-west.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/08/31/us/hurricane-Ida.html?searchResultPosition=10
 
