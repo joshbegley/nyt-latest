@@ -1,40 +1,40 @@
-**A Dedicated Horsewoman Leaves No Thoroughbred Behind**\
-`Jessica Paquette has built a busy life as a handicapper, an analyst, an equestrian and a friend to retired racehorses.`\
-https://nytimes.com/2021/08/31/sports/horse-racing/saratoga-springs-retired-thoroughbreds.html?searchResultPosition=1
+**How Sasha the Cougar Was Rescued From a Bronx Home**\
+`The wild animal was taken to the Bronx Zoo and then moved to a sanctuary in Arkansas. `\
+https://nytimes.com/2021/08/31/nyregion/cougar-sasha-rescued-bronx.html?searchResultPosition=1
 
-**In the Kitchens of the Rich, Things Are Not as They Seem**\
-`Good luck finding the ice.`\
-https://nytimes.com/2021/08/31/style/hidden-fridges-status-kitchens.html?searchResultPosition=2
+**For a Tony Nominee, an Apartment With a Sense of Drama**\
+`Kathryn Gallagher’s Upper West Side home ‘was never supposed to be a one-bedroom apartment.’ But that’s why she likes it.`\
+https://nytimes.com/2021/08/31/realestate/for-a-tony-nominee-an-apartment-with-a-sense-of-drama.html?searchResultPosition=2
 
-**Can Magnesium Supplements Really Help You Sleep?**\
-`The evidence for their sleep-inducing benefits is thin, but experts say that in some cases there’s no harm in giving them a try.`\
-https://nytimes.com/2021/08/31/well/mind/magnesium-supplements-for-sleep.html?searchResultPosition=3
+**Kathryn Gallagher’s Upper West Side Nest**\
+`The Tony nominee’s home near Riverside Park ‘was never supposed to be a one-bedroom apartment.’ But that’s why she likes it.`\
+https://nytimes.com/slideshow/2021/08/31/realestate/kathryn-gallaghers-upper-west-side-nest.html?searchResultPosition=3
 
-**Many Republicans Are Anti-Vax. Are They Also Pro-Covid?**\
-`It sure feels that way sometimes.`\
-https://nytimes.com/2021/08/31/opinion/republicans-anti-vax-covid.html?searchResultPosition=4
+**5 Minutes That Will Make You Love the Trumpet**\
+`Listen to Louis Armstrong’s sweetness, Miles Davis’s wild squall, Handel’s Baroque majesty and other favorites.`\
+https://nytimes.com/2021/08/31/arts/music/classical-music-trumpet-jazz.html?searchResultPosition=4
 
-**Joe Biden’s Critics Lost Afghanistan**\
-`Our stumbling withdrawal was bad. The decades of waste and quagmire were much worse. `\
-https://nytimes.com/2021/08/31/opinion/afghanistan-biden.html?searchResultPosition=5
+**The Shy Sisters Behind Austin’s Breakout Breakfast Tacos**\
+`From a single food truck to its coming expansion to Los Angeles, Veracruz All Natural has won a huge following. Yet its owners are still striving to attract more Hispanic diners.`\
+https://nytimes.com/2021/08/31/dining/veracruz-all-natural-austin-reyna-and-maritza-vazquez.html?searchResultPosition=5
 
-**How to Collect Crystals**\
-`Wear jeans and bring along a small pickax. Expect crowds, but don’t worry — crystal enthusiasts tend to be a genial, family-friendly lot.`\
-https://nytimes.com/2021/08/31/magazine/how-to-collect-crystals.html?searchResultPosition=6
+**The Economy Is Booming but Far From Normal, Posing a Challenge for Biden**\
+`High inflation, ghostly downtowns and a resurgent virus have rattled consumers and created new obstacles as the president tries to push his broader economic agenda.`\
+https://nytimes.com/2021/08/31/business/economy/biden-economy.html?searchResultPosition=6
 
-**Degrowth, Third Parties and My Reading Habits: Your Questions, Answered**\
-`Ezra Klein responds to what listeners want to know.`\
-https://nytimes.com/2021/08/31/opinion/ezra-klein-podcast-ama.html?searchResultPosition=7
+**Private Equity Firms All Want the Same Thing: British Companies**\
+`Flush with capital, the funds have gone bargain hunting in Britain, snapping up everything from supermarkets to defense companies.`\
+https://nytimes.com/2021/08/31/business/private-equity-uk.html?searchResultPosition=7
 
-**My Stepdad Has Alzheimer’s. Can My Mom Date Someone Else?**\
-`The magazine’s Ethicist columnist on marriage vows and stolen library books.`\
-https://nytimes.com/2021/08/31/magazine/alzheimers-ethics.html?searchResultPosition=8
+**What to Do This Summer: Washington, D.C.**\
+`In the nation’s capital, the walkable neighborhoods of Logan Circle, West End/Foggy Bottom and Dupont Circle are showing off new restaurants with tons of outdoor dining, shops and galleries.`\
+https://nytimes.com/2021/08/31/travel/washington-dc-city-guide.html?searchResultPosition=8
 
-**How to Solve Any Problem Using Just Common Sense**\
-`Contemplating Fermi problems keeps me curious about the world and how things relate to one another.`\
-https://nytimes.com/2021/08/31/magazine/fermi-problems.html?searchResultPosition=9
+**Hurricane Ida Offers a Glimpse of the Dystopia That’s Coming for All of Us**\
+`Louisiana is no longer an outlier. `\
+https://nytimes.com/2021/08/31/opinion/hurricane-ida-climate-change.html?searchResultPosition=9
 
-**The Stenographer Who Married Dostoyevsky — and Saved Him From Ruin**\
-`“The Gambler Wife,” by Andrew D. Kaufman, recounts the life of Anna Dostoyevskaya, the Russian writer’s second wife, who took dictation of his books, endured his gambling addiction and eventually published his work herself.`\
-https://nytimes.com/2021/08/31/books/review/the-gambler-wife-andrew-d-kaufman.html?searchResultPosition=10
+**The Cocaine Was Laced With Fentanyl. Now Six Are Dead From Overdoses.**\
+`The deaths over three days in Suffolk County reflect a dangerous shift in the street-drug marketplace, according to police and prosecutors.`\
+https://nytimes.com/2021/08/31/nyregion/fentanyl-laced-cocaine-deaths.html?searchResultPosition=10
 
