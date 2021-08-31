@@ -1,5 +1,5 @@
 **I Am on the Ground in Louisiana**\
-`Ida tore through Houma, La. as a category storm, leaving destruction in every direction.`\
+`Ida tore through Houma, La., as a Category 4 storm, leaving destruction in every direction.`\
 https://nytimes.com/interactive/2021/08/31/us/hurricane-Ida.html?searchResultPosition=1
 
 **Afghanistan, Texas, Kanye West: Your Tuesday Evening Briefing**\
