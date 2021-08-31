@@ -1,40 +1,40 @@
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/08/31/crosswords/spelling-bee-2021-08-31.html?searchResultPosition=1
+**A Dedicated Horsewoman Leaves No Thoroughbred Behind**\
+`Jessica Paquette has built a busy life as a handicapper, an analyst, an equestrian and a friend to retired racehorses.`\
+https://nytimes.com/2021/08/31/sports/horse-racing/saratoga-springs-retired-thoroughbreds.html?searchResultPosition=1
 
-**Searching for Bird Life in a Former ‘Ocean of Forest’**\
-`A century after museum collectors surveyed Colombia’s avian fauna, a new generation of researchers returns to see what remains, and what has changed.`\
-https://nytimes.com/2021/08/31/science/colombia-birds-expedition.html?searchResultPosition=2
+**In the Kitchens of the Rich, Things Are Not as They Seem**\
+`Good luck finding the ice.`\
+https://nytimes.com/2021/08/31/style/hidden-fridges-status-kitchens.html?searchResultPosition=2
 
-**The last American soldier leaves, and the first Taliban fighters arrive.**\
-`Two images marked the end of the nearly 20-year war: a U.S. soldier leaving Kabul’s airport, and Taliban fighters nearby walking in.`\
-https://nytimes.com/2021/08/31/world/asia/the-last-american-soldier-leaves-and-the-first-taliban-fighters-arrive.html?searchResultPosition=3
+**Can Magnesium Supplements Really Help You Sleep?**\
+`The evidence for their sleep-inducing benefits is thin, but experts say that in some cases there’s no harm in giving them a try.`\
+https://nytimes.com/2021/08/31/well/mind/magnesium-supplements-for-sleep.html?searchResultPosition=3
 
-**Your Tuesday Briefing**\
-`The final moments of the U.S. presence in Afghanistan.`\
-https://nytimes.com/2021/08/31/briefing/afghanistan-coronavirus-ida-flooding.html?searchResultPosition=4
+**Many Republicans Are Anti-Vax. Are They Also Pro-Covid?**\
+`It sure feels that way sometimes.`\
+https://nytimes.com/2021/08/31/opinion/republicans-anti-vax-covid.html?searchResultPosition=4
 
-**Corrections: Aug. 31, 2021**\
-`Corrections that appeared in print on Tuesday, Aug. 31, 2021.`\
-https://nytimes.com/2021/08/31/pageoneplus/corrections-aug-31-2021.html?searchResultPosition=5
+**Joe Biden’s Critics Lost Afghanistan**\
+`Our stumbling withdrawal was bad. The decades of waste and quagmire were much worse. `\
+https://nytimes.com/2021/08/31/opinion/afghanistan-biden.html?searchResultPosition=5
 
-**Quotation of the Day: How the Delta Variant Spread From a Teacher to Half of Her Students**\
-`Quotation of the Day for Tuesday, August 31, 2021.`\
-https://nytimes.com/2021/08/31/todayspaper/quotation-of-the-day-how-the-delta-variant-spread-from-a-teacher-to-half-of-her-students.html?searchResultPosition=6
+**How to Collect Crystals**\
+`Wear jeans and bring along a small pickax. Expect crowds, but don’t worry — crystal enthusiasts tend to be a genial, family-friendly lot.`\
+https://nytimes.com/2021/08/31/magazine/how-to-collect-crystals.html?searchResultPosition=6
 
-**For These Paralympians, a Pursuit of Excellence Means Life Abroad**\
-`The United States may be the birthplace of basketball, but to make a career out of playing wheelchair hoops, athletes have had to move overseas.`\
-https://nytimes.com/2021/08/31/sports/olympics/paralympics-wheelchair-basketball.html?searchResultPosition=7
+**Degrowth, Third Parties and My Reading Habits: Your Questions, Answered**\
+`Ezra Klein responds to what listeners want to know.`\
+https://nytimes.com/2021/08/31/opinion/ezra-klein-podcast-ama.html?searchResultPosition=7
 
-**2021 U.S. Open: What to Watch on Tuesday**\
-`Novak Djokovic and Ashleigh Barty feature on Arthur Ashe Stadium as a slew of young talent battles on the grounds of Flushing Meadows.`\
-https://nytimes.com/2021/08/31/sports/tennis/us-open-matches-tuesday.html?searchResultPosition=8
+**My Stepdad Has Alzheimer’s. Can My Mom Date Someone Else?**\
+`The magazine’s Ethicist columnist on marriage vows and stolen library books.`\
+https://nytimes.com/2021/08/31/magazine/alzheimers-ethics.html?searchResultPosition=8
 
-**Naomi Osaka, happy to play for a crowd, wins her first-round match.**\
-`Osaka navigated a challenging first set before settling in and beating Marie Bouzkova of the Czech Republic 6-4, 6-1.`\
-https://nytimes.com/2021/08/30/sports/tennis/naomi-osaka-first-round-us-open.html?searchResultPosition=9
+**How to Solve Any Problem Using Just Common Sense**\
+`Contemplating Fermi problems keeps me curious about the world and how things relate to one another.`\
+https://nytimes.com/2021/08/31/magazine/fermi-problems.html?searchResultPosition=9
 
-**A Cut Above**\
-`Eric Bornstein must be hungry.`\
-https://nytimes.com/2021/08/30/crosswords/daily-puzzle-2021-08-31.html?searchResultPosition=10
+**The Stenographer Who Married Dostoyevsky — and Saved Him From Ruin**\
+`“The Gambler Wife,” by Andrew D. Kaufman, recounts the life of Anna Dostoyevskaya, the Russian writer’s second wife, who took dictation of his books, endured his gambling addiction and eventually published his work herself.`\
+https://nytimes.com/2021/08/31/books/review/the-gambler-wife-andrew-d-kaufman.html?searchResultPosition=10
 
