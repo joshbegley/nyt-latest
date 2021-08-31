@@ -24,7 +24,7 @@ https://nytimes.com/2021/08/31/us/alligator-attack-louisiana-ida.html?searchResu
 
 **To Play Tennis, Naomi Osaka Finds a New Purpose. So Far, So Good.**\
 `The defending champion started the U.S. Open with a solid 6-4, 6-1 win over Marie Bouzkova, a hard-hitting Czech. Feeling good about herself is the next challenge.`\
-https://nytimes.com/2021/08/31/sports/tennis/us-open-naomi-osaka.html?searchResultPosition=7
+https://nytimes.com/2021/08/31/sports/tennis/naomi-osaka.html?searchResultPosition=7
 
 **70 percent of adults in the European Union have been fully vaccinated.**\
 `After a fumbling start, the European Union overtook the United States in vaccinations last month.`\
