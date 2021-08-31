@@ -16,7 +16,7 @@ https://nytimes.com/2021/08/30/opinion/kids-covid-vaccine.html?searchResultPosit
 
 **Charges in Bali Bombing Case Are Delayed at Guantánamo**\
 `The three prisoners were to be charged for the first time, 18 years after their capture. Translation problems mean they wait one more day.`\
-https://nytimes.com/2021/08/30/us/politics/guantanamo-bali-bombing-charges.html?searchResultPosition=5
+https://nytimes.com/2021/08/31/us/politics/guantanamo-bali-bombing-charges.html?searchResultPosition=5
 
 **In Louisiana, Rescue Workers Search for Those Stranded by Hurricane Ida**\
 `More than a million people, including most in New Orleans, were without electricity, but the city’s levees held.`\
