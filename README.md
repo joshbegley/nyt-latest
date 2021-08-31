@@ -6,9 +6,9 @@ https://nytimes.com/2021/08/31/crosswords/spelling-bee-2021-08-31.html?searchRes
 `A century after museum collectors surveyed Colombia’s avian fauna, a new generation of researchers returns to see what remains, and what has changed.`\
 https://nytimes.com/2021/08/31/science/colombia-birds-expedition.html?searchResultPosition=2
 
-**The last American soldier leaves, and the first Taliban soldiers arrive.**\
-`Two images marked the end of the nearly 20-year war with a U.S. soldier leaving Kabul’s airport as Taliban fighters nearby walked in.`\
-https://nytimes.com/2021/08/31/world/asia/the-last-american-soldier-leaves-and-the-first-taliban-soldiers-arrive.html?searchResultPosition=3
+**The last American soldier leaves, and the first Taliban fighters arrive.**\
+`Two images marked the end of the nearly 20-year war: a U.S. soldier leaving Kabul’s airport, and Taliban fighters nearby walking in.`\
+https://nytimes.com/2021/08/31/world/asia/the-last-american-soldier-leaves-and-the-first-taliban-fighters-arrive.html?searchResultPosition=3
 
 **Your Tuesday Briefing**\
 `The final moments of the U.S. presence in Afghanistan.`\
