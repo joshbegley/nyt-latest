@@ -1,36 +1,32 @@
 **Caring for Moms and Babies **\
 `The U.S. has the highest maternal mortality rate of 11 developed countries, with Black moms disproportionately impacted. Together, we can change that.`\
-https://nytimes.com/paidpost/philips/caring-for-moms-and-babies.html?searchResultPosition=1
+https://nytimes.com/paidpost/philips/caring-for-moms-and-babies.html?searchResultPosition=2
 
 **The Taliban Celebrate Victory, With a Crisis Looming**\
 `With the final U.S. troops gone, triumphant scenes were clouded by the prospect of famine and financial collapse. The Taliban spokesman called for international engagement.`\
-https://nytimes.com/2021/08/31/world/asia/afghanistan-taliban-airport.html?searchResultPosition=2
+https://nytimes.com/2021/08/31/world/asia/afghanistan-taliban-airport.html?searchResultPosition=3
 
 **Social Security is projected to be insolvent a year earlier than previously forecast.**\
 `Annual government reports on the solvency of the programs underscored the questions about the long-term viability of Social Security and Medicare.`\
-https://nytimes.com/2021/08/31/business/economy/social-security-funding.html?searchResultPosition=3
+https://nytimes.com/2021/08/31/business/economy/social-security-funding.html?searchResultPosition=4
 
 **Teenage Lifeguard Killed in Lightning Strike: ‘It Was Like a Bomb’**\
 `Keith Pinto was working at a beach on the Jersey Shore when lightning struck, killing him and injuring other lifeguards and beachgoers.`\
-https://nytimes.com/2021/08/31/nyregion/jersey-shore-lightning-strike-lifeguard-dead.html?searchResultPosition=4
+https://nytimes.com/2021/08/31/nyregion/jersey-shore-lightning-strike-lifeguard-dead.html?searchResultPosition=5
 
 **Reflections on Our Summer Reading Contest and Our Final Week of Winners**\
 `Thoughts from our judges on our 12th annual contest, and two winning essays from Gabriel and Weihan (Lily) Chen.`\
-https://nytimes.com/2021/08/31/learning/reflections-on-our-summer-reading-contest-and-our-final-week-of-winners.html?searchResultPosition=6
+https://nytimes.com/2021/08/31/learning/reflections-on-our-summer-reading-contest-and-our-final-week-of-winners.html?searchResultPosition=7
 
 **College Football Changes: More 2-Point Tries and a Crackdown on Stadium Gamesmanship**\
 `Officials made some tweaks to the rule book for 2021. Next year, though, could bring much more rewriting.`\
-https://nytimes.com/2021/08/31/sports/ncaafootball/college-football-rules-changes-2021.html?searchResultPosition=7
+https://nytimes.com/2021/08/31/sports/ncaafootball/college-football-rules-changes-2021.html?searchResultPosition=8
 
 **This Is the Moment the Anti-Vaccine Movement Has Been Waiting for**\
 `Anti-vaccine activists are more politically savvy and dangerous than ever before.`\
-https://nytimes.com/2021/08/31/opinion/anti-vaccine-movement.html?searchResultPosition=8
+https://nytimes.com/2021/08/31/opinion/anti-vaccine-movement.html?searchResultPosition=9
 
 **There’s a Better Way to Stop Ransomware Attacks**\
 `We’re not tackling the problem at its root.`\
-https://nytimes.com/2021/08/31/opinion/ransomware-bitcoin-cybersecurity.html?searchResultPosition=9
-
-**Let’s Talk About ‘Sellouts’**\
-`The insult that reveals a flaw in the way we talk about race.`\
-https://nytimes.com/2021/08/31/opinion/lets-talk-about-sellouts.html?searchResultPosition=10
+https://nytimes.com/2021/08/31/opinion/ransomware-bitcoin-cybersecurity.html?searchResultPosition=10
 
