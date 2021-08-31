@@ -14,7 +14,7 @@ https://nytimes.com/2021/08/31/books/review/three-rooms-by-jo-hamya-an-excerpt.h
 `America’s longest war is over.`\
 https://nytimes.com/2021/08/31/briefing/afghanistan-taliban-longest-war.html?searchResultPosition=4
 
-**The police set up checkpoints outside New Zealands’s largest city.**\
+**The police set up checkpoints outside New Zealand’s largest city.**\
 `The aim is to limit travel out of Auckland, which will remain under the highest level of Covid restrictions for two weeks after rules are eased in neighboring regions.`\
 https://nytimes.com/2021/08/31/world/australia/new-zealand-covid-lockdown-checkpoints.html?searchResultPosition=5
 
