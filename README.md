@@ -14,19 +14,19 @@ https://nytimes.com/video/world/europe/100000007948581/70-percent-adults-europea
 `In his latest novel, Toibin imagines the life of Thomas Mann, the Nobel Prize-winning author of “The Magic Mountain” and “Death in Venice.”`\
 https://nytimes.com/2021/08/31/books/review-magician-colm-toibin.html?searchResultPosition=4
 
+**A New Jersey woman is charged with selling hundreds of fake vaccine cards.**\
+`By Jonah E. Bromwich`\
+https://nytimes.com/2021/08/31/nyregion/a-new-jersey-woman-is-charged-with-selling-hundreds-of-fake-vaccine-cards.html?searchResultPosition=5
+
 **In Lauren Groff’s New Novel, Nothing — and Everything — Is Sacred**\
 `“Matrix” tells the life story of an orphan who is cast out of the royal court and put in charge of an impoverished abbey.`\
-https://nytimes.com/2021/08/31/books/review/matrix-lauren-groff.html?searchResultPosition=6
+https://nytimes.com/2021/08/31/books/review/matrix-lauren-groff.html?searchResultPosition=7
 
 **The Silent Partner Cleaning Up Facebook for $500 Million a Year**\
 `The social network has constructed a vast infrastructure to keep toxic material off its platform. At the center of it is Accenture, the blue-chip consulting firm.`\
-https://nytimes.com/2021/08/31/technology/facebook-accenture-content-moderation.html?searchResultPosition=8
+https://nytimes.com/2021/08/31/technology/facebook-accenture-content-moderation.html?searchResultPosition=9
 
 **Lessons on Child Care, From the Military**\
 `The military transformed what was once an underfunded, scattershot child care system into one of the best in the country. Some see it as a model to emulate.`\
-https://nytimes.com/2021/08/31/us/child-care-lessons-the-military.html?searchResultPosition=9
-
-**Kanye West’s ‘Donda’ Era, on a Chaotic Stage**\
-`West is still one of the most influential pop stars of the century, but multidisciplinary spectacle is more his goal than music now, and he isn’t the star of his own 10th album.`\
-https://nytimes.com/2021/08/31/arts/music/kanye-west-donda.html?searchResultPosition=10
+https://nytimes.com/2021/08/31/us/child-care-lessons-the-military.html?searchResultPosition=10
 
