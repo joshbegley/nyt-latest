@@ -36,5 +36,5 @@ https://nytimes.com/2021/09/01/us/school-masks-mandate-ban-republican-florida-te
 
 **A Monster Storm Tests New Orleans**\
 `Flood defenses mostly held as Ida battered the city, but the power grid didn’t. Here’s what it means.`\
-https://nytimes.com/2021/09/01/climate/a-monster-storm-tests-new-orleans.html?searchResultPosition=10
+https://nytimes.com/2021/09/01/climate/hurricane-ida-new-orleans.html?searchResultPosition=10
 
