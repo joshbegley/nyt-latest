@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/01/world/europe/pope-health-afghanistan.html?searchR
 `With the Delta variant spreading and cases, hospitalizations and deaths rising, Rochelle P. Walensky is urging caution.`\
 https://nytimes.com/2021/09/01/us/labor-day-travel-cdc.html?searchResultPosition=3
 
-**Suddenly the Yankees are Streaking in the Wrong Direction**\
+**Suddenly the Yankees Are Streaking in the Wrong Direction**\
 `A road trip to California has proved disastrous, as a four-game losing streak has erased the gains of a 13-game winning streak. “Unacceptable,” said Brett Gardner.`\
 https://nytimes.com/2021/09/01/sports/baseball/yankees-angels.html?searchResultPosition=4
 
