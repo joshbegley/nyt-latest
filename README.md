@@ -1,40 +1,40 @@
+**What to Read: 4 Graphic Works**\
+`From a comics biography of a Spanish surrealist to retro drawings of female pro wrestlers.`\
+https://nytimes.com/interactive/2021/09/01/books/review/new-graphic-novels.html?searchResultPosition=1
+
 **Little Simz’s Big Moment**\
 `The British rapper’s laser focus has been trained on fame since she was a child. Now, she’s ready to take it to the next level.`\
-https://nytimes.com/2021/09/01/arts/music/little-simzs-introvert.html?searchResultPosition=1
+https://nytimes.com/2021/09/01/arts/music/little-simzs-introvert.html?searchResultPosition=2
 
 **An Impossible Task? New Zealand Tries to Eliminate Delta.**\
 `The country is holding fast to a lockdown to contain an outbreak that began in mid-August. But it’s also acknowledging that lockdowns can’t go on forever.`\
-https://nytimes.com/2021/09/01/world/australia/covid-new-zealand-lockdown.html?searchResultPosition=2
+https://nytimes.com/2021/09/01/world/australia/covid-new-zealand-lockdown.html?searchResultPosition=3
 
 **Why New York Lawmakers Are Holding a Special Session on Evictions**\
 `Gov. Kathy Hochul called lawmakers back to Albany to consider extending New York's eviction moratorium. `\
-https://nytimes.com/2021/09/01/nyregion/new-york-eviction-moratorium.html?searchResultPosition=3
+https://nytimes.com/2021/09/01/nyregion/new-york-eviction-moratorium.html?searchResultPosition=4
 
 **Sustainability Advocates Ask: Why Demolish When You Can Deconstruct?**\
 `More cities are adopting deconstruction ordinances that require older homes to be taken down for salvageable parts, but they face challenges in trying to expand their efforts.`\
-https://nytimes.com/2021/09/01/business/waste-salvage-deconstruction-sustainability.html?searchResultPosition=4
+https://nytimes.com/2021/09/01/business/waste-salvage-deconstruction-sustainability.html?searchResultPosition=5
 
 **Japan Needs a Lot More Tech Workers. Can It Find a Place for Women?**\
 `The country is pushing to digitally modernize itself, but one of the developed world’s starkest gender gaps is holding it back.`\
-https://nytimes.com/2021/09/01/business/japan-tech-workers-women.html?searchResultPosition=5
+https://nytimes.com/2021/09/01/business/japan-tech-workers-women.html?searchResultPosition=6
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/01/crosswords/spelling-bee-2021-09-01.html?searchResultPosition=6
+https://nytimes.com/2021/09/01/crosswords/spelling-bee-2021-09-01.html?searchResultPosition=7
 
 **Texas’ Near-Ban on Abortions Takes Effect After Supreme Court Fails to Act**\
 `The court is still expected to rule soon on an emergency application from abortion providers seeking to block the measure, which is now the most restrictive abortion law in the nation.`\
-https://nytimes.com/2021/09/01/us/supreme-court-texas-abortion.html?searchResultPosition=7
+https://nytimes.com/2021/09/01/us/supreme-court-texas-abortion.html?searchResultPosition=8
 
 **Afghanistan Was a Wake-Up Call. Europe Needs to Step Up.**\
 `A more strategically autonomous and militarily capable European Union would also be a boon for America.`\
-https://nytimes.com/2021/09/01/opinion/afghanistan-europe-nato.html?searchResultPosition=8
+https://nytimes.com/2021/09/01/opinion/afghanistan-europe-nato.html?searchResultPosition=9
 
 **Your Wednesday Briefing**\
 `President Biden’s comments on the Afghanistan withdrawal.`\
-https://nytimes.com/2021/09/01/briefing/afghanistan-coronavirus-vaccinations.html?searchResultPosition=9
-
-**2021 U.S. Open: What to Watch on Wednesday**\
-`Sloane Stephens and Coco Gauff will meet on the third day of action at Flushing Meadows.`\
-https://nytimes.com/2021/09/01/sports/tennis/us-open-matches-wednesday.html?searchResultPosition=10
+https://nytimes.com/2021/09/01/briefing/afghanistan-coronavirus-vaccinations.html?searchResultPosition=10
 
