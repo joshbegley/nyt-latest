@@ -32,7 +32,7 @@ https://nytimes.com/2021/09/01/opinion/race-questions.html?searchResultPosition=
 
 **Give Kids the Right to Vote**\
 `When kids are babies, parents should vote for them. As they grow up, they should take on more autonomy, until they finally vote on their own.`\
-https://nytimes.com/2021/09/01/opinion/politics/give-kids-the-right-to-vote.html?searchResultPosition=9
+https://nytimes.com/2021/09/01/opinion/politics/kids-right-to-vote.html?searchResultPosition=9
 
 **13 Delicious, Original Ways to Eat Eggs for Dinner**\
 `Dinner can be inspired with these inventive takes on a world-class protein.`\
