@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/01/world/asia/afghanistan-herat-kabul-taliban.html?s
 `Experts say discredited works of art often resurface on the market again and again, in part because their owners just won’t take no for an answer.`\
 https://nytimes.com/2021/09/01/arts/design/fake-art-recycled.html?searchResultPosition=9
 
-**An Artist Who Brings Order to Chaos**\
-`John Akomfrah’s films have shaken up official narratives around Black identity and imperialism. His latest tries to make sense of life in the pandemic.`\
-https://nytimes.com/2021/09/01/arts/john-akomfrah.html?searchResultPosition=10
+**G.O.P. Election Reviews Create a New Kind of Security Threat**\
+`As Republicans continue to challenge the 2020 results, voting equipment is being compromised when partisan insiders and unvetted operatives gain access.`\
+https://nytimes.com/2021/09/01/us/politics/gop-us-election-security.html?searchResultPosition=10
 
