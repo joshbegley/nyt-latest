@@ -14,9 +14,9 @@ https://nytimes.com/2021/08/31/sports/olympics/tokyo-paralympics-goalball.html?s
 `Andy Murray says his Monday opponent employs stall tactics too often for too long. Reilly Opelka says Tsitsipas is probably just changing his socks.`\
 https://nytimes.com/2021/08/31/sports/tennis/us-open-stefanos-tsitsipas-bathroom-andy-murray.html?searchResultPosition=4
 
-**I Was Left Behind in Afghanistan. I’m Terrified.**\
+**An Afghan Left Behind Tells His Story**\
 `Rasheed worked with the U.S. in Afghanistan. Now he is facing threats from the Taliban.`\
-https://nytimes.com/2021/08/31/opinion/Afghanistan-taliban-escape.html?searchResultPosition=5
+https://nytimes.com/2021/09/01/opinion/Afghanistan-taliban-escape.html?searchResultPosition=5
 
 **Biden Defends Afghan Pullout and Declares an End to Nation-Building**\
 `The president offered a glimpse of a different American foreign policy in the post-9/11 world, one that he said would be guided more by competition with China and Russia.`\
