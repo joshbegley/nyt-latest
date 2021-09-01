@@ -1,40 +1,40 @@
+**U.S.A. Gymnastics and Abuse Survivors Propose a $425 Million Payout**\
+`A $215 million settlement offer was rejected last year by victims of Lawrence G. Nassar and by others in the sport.`\
+https://nytimes.com/2021/09/01/sports/olympics/usa-gymnastics-payout-sexual-abuse.html?searchResultPosition=1
+
 **Member of ISIS ‘Beatles’ Cell Plans to Plead Guilty in Abuse of Hostages**\
 `An upcoming change-of-plea hearing for Alexanda Kotey suggests he is cooperating with prosecutors and could provide details about victims.`\
-https://nytimes.com/2021/08/31/us/politics/isis-beatles-alexanda-kotey.html?searchResultPosition=1
+https://nytimes.com/2021/08/31/us/politics/isis-beatles-alexanda-kotey.html?searchResultPosition=2
 
 **Venezuela Opposition Parties Will Take Part in November Elections**\
 `The opposition parties grouped in the so-called Unitary Platform and led by Juan Guaidó announced a reversal of their stance of boycotting recent votes.`\
-https://nytimes.com/2021/09/01/world/americas/venezuela-opposition-parties-elections.html?searchResultPosition=2
+https://nytimes.com/2021/09/01/world/americas/venezuela-opposition-parties-elections.html?searchResultPosition=3
 
 **Quotation of the Day: Spurning Critics, Biden Calls Exit Notable Success**\
 `Quotation of the Day for Wednesday, September 1, 2021.`\
-https://nytimes.com/2021/08/31/todayspaper/quotation-of-the-day-spurning-critics-biden-calls-exit-notable-success.html?searchResultPosition=3
+https://nytimes.com/2021/08/31/todayspaper/quotation-of-the-day-spurning-critics-biden-calls-exit-notable-success.html?searchResultPosition=4
 
 **Novak Djokovic holds off Holger Rune in his first U.S. Open match.**\
 `Djokovic, who is chasing the Grand Slam, dropped the second set, but his night got easier when the teenager Rune began suffering from cramps in his legs.`\
-https://nytimes.com/2021/09/01/sports/tennis/novak-djokovic-wins-match.html?searchResultPosition=4
+https://nytimes.com/2021/09/01/sports/tennis/novak-djokovic-wins-match.html?searchResultPosition=5
 
 **Corrections: Sept. 01, 2021**\
 `Corrections that appeared in print on Wednesday, Sept. 1, 2021.`\
-https://nytimes.com/2021/09/01/pageoneplus/corrections-sept-01-2021.html?searchResultPosition=5
+https://nytimes.com/2021/09/01/pageoneplus/corrections-sept-01-2021.html?searchResultPosition=6
 
 **Wowza!**\
 `Sean Yamada-Hunter’s debut is a hypothetical masterpiece.`\
-https://nytimes.com/2021/08/31/crosswords/daily-puzzle-2021-09-01.html?searchResultPosition=6
+https://nytimes.com/2021/08/31/crosswords/daily-puzzle-2021-09-01.html?searchResultPosition=7
 
 **Biden Plays the Long Game as He Justifies the End of the ‘Forever War’**\
 `President Biden is banking on the assumption that he will be remembered for finally extricating the country from the war in Afghanistan, not for how he did it.`\
-https://nytimes.com/2021/08/31/us/politics/biden-politics-afghanistan.html?searchResultPosition=7
+https://nytimes.com/2021/08/31/us/politics/biden-politics-afghanistan.html?searchResultPosition=8
 
 **Black Surfers Reclaim Their Place on the Waves**\
 `A new generation of surfers and activists are building on the efforts and achievements of those who came before — and carving out a space for themselves.`\
-https://nytimes.com/interactive/2021/08/31/sports/black-surfers.html?searchResultPosition=8
+https://nytimes.com/interactive/2021/08/31/sports/black-surfers.html?searchResultPosition=9
 
 **Developer Charged in Scheme to Bilk Matt Gaetz’s Family**\
 `The Justice Department arrested the man for seeking $25 million for a presidential pardon that would have purportedly ended a sex trafficking investigation into Mr. Gaetz.`\
-https://nytimes.com/2021/09/01/us/politics/matt-gaetz-stephen-alford.html?searchResultPosition=9
-
-**Goalball Teammates Set Paralympic Record for Longevity**\
-`Asya Miller and Lisa Czechowski, who have won three Paralympic medals as teammates, first competed together at the Sydney Games in 2000.`\
-https://nytimes.com/2021/08/31/sports/olympics/tokyo-paralympics-goalball.html?searchResultPosition=10
+https://nytimes.com/2021/09/01/us/politics/matt-gaetz-stephen-alford.html?searchResultPosition=10
 
