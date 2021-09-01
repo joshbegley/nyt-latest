@@ -1,40 +1,40 @@
+**$650,000 Homes in New York, Indiana and Texas**\
+`A converted 19th-century blacksmith shop in Blooming Creek, a two-story rowhouse in Indianapolis and a 1956 ranch house in Austin.`\
+https://nytimes.com/2021/09/01/realestate/650000-homes-in-new-york-indiana-and-texas.html?searchResultPosition=1
+
+**What You Get for $650,000**\
+`A converted 19th-century blacksmith shop in Blooming Creek, N.Y.; a two-story rowhouse in Indianapolis; and a 1956 ranch house in Austin, Texas.`\
+https://nytimes.com/slideshow/2021/09/01/realestate/what-you-get-for-650000.html?searchResultPosition=2
+
+**4 Fast Mobile Camera Tips That Help You Get the Shot**\
+`Don’t get slowed down by the lock screen or stuck in the wrong shooting mode when you’re trying to capture those spur-of-the-moment photos and videos.`\
+https://nytimes.com/2021/09/01/technology/personaltech/smartphones-camera-tips.html?searchResultPosition=3
+
+**Turner Classic Movies Is Changing. And Trying to Stay the Same.**\
+`A brand refresh for TCM, the cable home to countless vintage films, raises questions about its future within an increasingly streaming-centric TV world.`\
+https://nytimes.com/2021/09/01/arts/television/turner-classic-movies.html?searchResultPosition=4
+
+**Salman Rushdie Enters His Substack Period**\
+`The Booker Prize-winning author has reached a deal with the newsletter platform, where he plans to publish fiction and interact with readers.`\
+https://nytimes.com/2021/09/01/business/media/salman-rushdie-substack.html?searchResultPosition=5
+
+**She’s Done Being a Muse. Now She’s the Boss.**\
+`Camille Miceli once inspired Marc Jacobs, John Galliano and others. Now she’s Pucci’s first female designer.`\
+https://nytimes.com/2021/09/01/style/camille-miceli-pucci.html?searchResultPosition=6
+
+**Another Hidden Covid Risk: Lingering Kidney Problems**\
+`In a study of veterans, Covid survivors were 35 percent more likely than other patients to have long-term kidney damage or declines in kidney function.`\
+https://nytimes.com/2021/09/01/health/covid-kidneys.html?searchResultPosition=7
+
+**The Associated Press Names a New Top Editor**\
+`Julie Pace, The A.P.’s Washington bureau chief, started out wanting to be an international correspondent. Now she has the top newsroom job.`\
+https://nytimes.com/2021/09/01/business/media/associated-press-new-editor.html?searchResultPosition=8
+
+**The Mystery of that Basquiat Painting — and Its Tiffany Blue**\
+`Ghosts of the artist’s past debate the connection to any brand.`\
+https://nytimes.com/2021/09/01/style/tiffany-basquiat-blue.html?searchResultPosition=9
+
 **Why Do We Have Recalls? Thank Los Angeles.**\
 `A brief history of the recall in California.`\
-https://nytimes.com/2021/09/01/us/why-does-california-have-recalls.html?searchResultPosition=1
-
-**Naomi Osaka’s Opponent Has a Not-So-Secret Weapon: Novak Djokovic**\
-`Olga Danilovic, a young Serbian player who calls the world No. 1 her mentor, will be in the spotlight against Osaka at Arthur Ashe Stadium on Wednesday at noon.`\
-https://nytimes.com/2021/09/01/sports/tennis/us-open-danilovic-osaka.html?searchResultPosition=2
-
-**Pope Criticizes Western Intervention in Afghanistan**\
-`Francis said in a wide-ranging interview with a Spanish-language radio network that he was in good health after colon surgery in July and insisted that he had not considered resigning.`\
-https://nytimes.com/2021/09/01/world/europe/pope-health-afghanistan.html?searchResultPosition=3
-
-**Unvaccinated Americans should avoid Labor Day travel, C.D.C. director says.**\
-`With the Delta variant spreading and cases, hospitalizations and deaths rising, Rochelle P. Walensky is urging caution.`\
-https://nytimes.com/2021/09/01/us/labor-day-travel-cdc.html?searchResultPosition=4
-
-**Suddenly the Yankees Are Streaking in the Wrong Direction**\
-`A road trip to California has proved disastrous, as a four-game losing streak has erased the gains of a 13-game winning streak. “Unacceptable,” said Brett Gardner.`\
-https://nytimes.com/2021/09/01/sports/baseball/yankees-angels.html?searchResultPosition=5
-
-**New surveys show how pandemic workplace policies are shifting.**\
-`Most companies now have plans to require that employees get vaccinated by the end of the year, one survey shows.`\
-https://nytimes.com/2021/09/01/business/pandemic-return-to-office.html?searchResultPosition=6
-
-**When Will Offices Be Full Again?**\
-`Companies keep delaying their return dates and altering other workplace policies as the pandemic persists.`\
-https://nytimes.com/2021/09/01/business/dealbook/return-to-office-delays.html?searchResultPosition=7
-
-**Novak Djokovic is Sensitive, Even When the Crowd’s Not Against Him**\
-`Fans at the U.S. Open lustily cheered Djokovic’s teenage opponent Holger Rune, but once you have played the villain in New York, it’s easy to jump to conclusions.`\
-https://nytimes.com/2021/09/01/sports/tennis/us-open-novak-djokovic.html?searchResultPosition=8
-
-**He Confronted a Reporter Live on the Air. Now There’s a Warrant for His Arrest.**\
-`Benjamin Eugene Dagley interrupted an NBC reporter covering Hurricane Ida, the police said.`\
-https://nytimes.com/2021/09/01/business/media/nbc-reporter-hurricane-ida.html?searchResultPosition=9
-
-**What if the Coronavirus Crisis Was Just a Trial Run?**\
-`The year 2020 gave us a glimpse of something radically new: tensions in  politics, finance and geopolitics intersecting with a natural shock on a global scale.`\
-https://nytimes.com/2021/09/01/opinion/covid-pandemic-global-economy-politics.html?searchResultPosition=10
+https://nytimes.com/2021/09/01/us/why-does-california-have-recalls.html?searchResultPosition=10
 
