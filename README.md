@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/01/business/waste-salvage-deconstruction-sustainability.html?searchResultPosition=1
 
 **Japan Needs a Lot More Tech Workers. Can It Find a Place for Women?**\
-`The country is pushing to digitally modernize itself. Holding it back is one of the developed world’s starkest gender gaps.`\
+`The country is pushing to digitally modernize itself, but one of the developed world’s starkest gender gaps is holding it back.`\
 https://nytimes.com/2021/09/01/business/japan-tech-workers-women.html?searchResultPosition=2
 
 **Spelling Bee Forum**\
