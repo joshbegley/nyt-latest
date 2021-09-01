@@ -12,7 +12,7 @@ https://nytimes.com/2021/09/01/sports/tennis/novak-djokovic-wins-match.html?sear
 
 **Corrections: Sept. 01, 2021**\
 `Corrections that appeared in print on Wednesday, Sept. 1, 2021.`\
-https://nytimes.com/2021/08/31/pageoneplus/corrections-sept-01-2021.html?searchResultPosition=4
+https://nytimes.com/2021/09/01/pageoneplus/corrections-sept-01-2021.html?searchResultPosition=4
 
 **Wowza!**\
 `Sean Yamada-Hunter’s debut is a hypothetical masterpiece.`\
