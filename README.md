@@ -36,5 +36,5 @@ https://nytimes.com/2021/08/31/crosswords/daily-puzzle-2021-09-01.html?searchRes
 
 **Biden Plays the Long Game as He Justifies the End of the ‘Forever War’**\
 `President Biden is banking on the assumption that he will be remembered for finally extricating the country from the war in Afghanistan, not for how he did it.`\
-https://nytimes.com/2021/08/31/us/politics/biden-politics-afghanistan.html?searchResultPosition=10
+https://nytimes.com/2021/09/01/us/politics/biden-politics-afghanistan.html?searchResultPosition=10
 
