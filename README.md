@@ -19,7 +19,7 @@ https://nytimes.com/2021/09/01/health/covid-delta-us-britain.html?searchResultPo
 https://nytimes.com/video/us/politics/100000007950396/afghanistan-us-austin-milley-live-video.html?searchResultPosition=5
 
 **Three Officers and Two Paramedics Are Charged in Elijah McClain’s Death**\
-`A grand jury has handed down charges in the 2019 death of Mr. McClain, a young Black man who was put in a chokehold while walking home from a convenience store.`\
+`A grand jury has issued charges in the 2019 death of Mr. McClain, a young Black man who was put in a chokehold while walking home from a convenience store.`\
 https://nytimes.com/2021/09/01/us/elijah-mcclain-officers-charged-colorado.html?searchResultPosition=6
 
 **Julian Schnabel Revisits van Gogh, and Paints Oscar Isaac’s Severed Head**\
