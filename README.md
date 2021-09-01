@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/01/business/dealbook/return-to-office-delays.html?searchResultPosition=1
 
 **Novak Djokovic is Sensitive, Even When the Crowd’s Not Against Him**\
-`Fans at the U.S. Open  lustily cheered Djokovic’s teenage opponent Holger Rune, but once you have played the villain in New York, it’s easy to jump to conclusions.`\
+`Fans at the U.S. Open lustily cheered Djokovic’s teenage opponent Holger Rune, but once you have played the villain in New York, it’s easy to jump to conclusions.`\
 https://nytimes.com/2021/09/01/sports/tennis/us-open-novak-djokovic.html?searchResultPosition=2
 
 **He Confronted a Reporter Live on the Air. Now There’s a Warrant for His Arrest.**\
