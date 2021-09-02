@@ -1,40 +1,40 @@
-**Climate Bankruptcy**\
-`Remnants of Hurricane Ida barreled into the New York City region. And what happens when climate change comes to a small Southern town.`\
-https://nytimes.com/2021/09/02/briefing/extreme-weather-ida-climate-bankruptcy.html?searchResultPosition=1
+**‘The Year of the Everlasting Storm’ Review: Home Movies**\
+`Seven directors present their views of the year of pandemic lockdown, but most fall into predictable territory.`\
+https://nytimes.com/2021/09/02/movies/the-year-of-the-everlasting-storm-review-home-movies.html?searchResultPosition=1
 
-**Here’s how much rain fell across the New York City area.**\
-`Record rain was recorded across the area, including 7.19 inches in Central Park during a 24-hour period.`\
-https://nytimes.com/2021/09/02/nyregion/ny-nj-rainfall.html?searchResultPosition=2
+**‘Worth’ Review: Appraising Lives**\
+`This drama starring Michael Keaton is a surprisingly effective movie about a tricky subject — the creation of the Sept. 11 Victim Compensation Fund.`\
+https://nytimes.com/2021/09/02/movies/worth-review.html?searchResultPosition=2
 
-**A Creative Hudson Valley Retreat Is Listed for $2.75 Million**\
-`The owner of The Quiet Botanist and her husband, a painter and photographer, have listed their barn-turned-home in Stuyvesant, N.Y., for sale.`\
-https://nytimes.com/2021/09/02/realestate/hudson-valley-barn-retreat.html?searchResultPosition=3
+**House Democrats Promote Cheney to No. 2 Post on Jan. 6 Inquiry Panel**\
+`The move was unusual in the House, where the majority party typically gives such roles to one of its own. The Wyoming Republican has been a vocal critic of Donald J. Trump.`\
+https://nytimes.com/2021/09/02/us/liz-cheney-jan-6-committee.html?searchResultPosition=3
 
-**A $2.75 Million Hudson Valley Escape**\
-`The owner of The Quiet Botanist and her husband, a painter and photographer, have listed their barn-turned-home in Stuyvesant, N.Y., for sale.`\
-https://nytimes.com/slideshow/2021/09/02/realestate/hudson-valley-farmhouse-retreat.html?searchResultPosition=4
+**‘Bitchin’: The Sound and Fury of Rick James’ Review: A Very Kinky Guy**\
+`A new documentary explores the serious artistry behind this “punk-funk” legend’s outlandish persona.`\
+https://nytimes.com/2021/09/02/movies/rick-james-review.html?searchResultPosition=4
 
-**Coast to Coast in a Classic Car**\
-`Bugeye Sprites and other small roadsters might not seem up to the task, but collectors with some time on their hands have eagerly made the trek.`\
-https://nytimes.com/2021/09/02/business/american-road-trip-bugeye-sprite.html?searchResultPosition=5
+**‘Mogul Mowgli’ Review: Rapping for Dear Life**\
+`Riz Ahmed plays a hip-hop artist who faces illness and identity crises in Bassam Tariq’s electrifying new film.`\
+https://nytimes.com/2021/09/02/movies/mogul-mowgli-review-rapping-for-dear-life.html?searchResultPosition=5
 
-**New Orleans in the Aftermath of Hurricane Ida**\
-`Sixteen years after Katrina, the latest hurricane was a test of how prepared cities like New Orleans are for extreme weather.`\
-https://nytimes.com/2021/09/02/podcasts/the-daily/hurricane-ida-new-orleans-extreme-weather.html?searchResultPosition=6
+**‘Happier Than Ever’ Review: Modern Pop Meets Classic Hollywood**\
+`In the Disney+ concert film “Happier Than Ever: A Love Letter to Los Angeles,” the pop star Billie Eilish pays tribute to the star-struck hauntedness of that city.`\
+https://nytimes.com/2021/09/02/movies/happier-than-ever-review.html?searchResultPosition=6
 
-**Newark airport temporarily halts flights after severe flooding across New Jersey.**\
-`Videos posted on social media captured flooding inside the airport and on nearby streets.`\
-https://nytimes.com/2021/09/02/nyregion/newark-airport-flights-flooding-halted-ida.html?searchResultPosition=7
+**‘We Need to Do Something’ Review: I Think I’ll Stay In**\
+`A family rides out a diabolical storm by holing up in a bathroom in this slice of confinement horror.`\
+https://nytimes.com/2021/09/02/movies/we-need-to-do-something-review.html?searchResultPosition=7
 
-**This Theater Brings Nature Right Into the Drama**\
-`A lush forest makes a spectacular backdrop for the stage of the Théâtre du Peuple, in eastern France.`\
-https://nytimes.com/2021/09/02/theater/theatre-du-peuple-bussang.html?searchResultPosition=8
+**‘Memory House’ Review: Seeking a Niche Between Present and Past**\
+`An Indigenous worker in Brazil finds a surreal portal of sorts to the culture of his forebears.`\
+https://nytimes.com/2021/09/02/movies/memory-house-review-seeking-a-niche-between-present-and-past.html?searchResultPosition=8
 
-**Hawaii is facing an oxygen shortage amid a record surge in Covid cases.**\
-`The state medical authorities have also warned of a dwindling number of I.C.U. beds and are asking people to postpone elective surgeries.`\
-https://nytimes.com/2021/09/02/us/hawaii-covid-oxygen-shortage.html?searchResultPosition=9
+**‘Faya Dayi’ Review: A Dream State**\
+`Jessica Beshir’s debut feature settles into a trance-like flow.`\
+https://nytimes.com/2021/09/02/movies/faya-dayi-review.html?searchResultPosition=9
 
-**Several industrialized nations are beginning to give booster shots this month.**\
-`The Czech Republic joins several countries to say it will recommend extra shots, while much of the world remains unvaccinated.`\
-https://nytimes.com/2021/09/02/world/covid-booster-shots-delta.html?searchResultPosition=10
+**‘Yakuza Princess’ Review: Crime, Amnesia and Ancient Swords**\
+`This mayhem-filled film from Brazil has no higher function beyond its beheadings.`\
+https://nytimes.com/2021/09/02/movies/yakuza-princess-review.html?searchResultPosition=10
 
