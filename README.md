@@ -28,7 +28,7 @@ https://nytimes.com/2021/09/01/science/space/carolyn-shoemaker-dead.html?searchR
 
 **Answers to Questions About the Texas Abortion Law**\
 `The law prohibits abortions before many women even know they’re pregnant, and it will be hard to challenge in the courts.`\
-https://nytimes.com/2021/09/01/health/abortion-texas-women.html?searchResultPosition=8
+https://nytimes.com/2021/09/01/health/texas-abortion-law-facts.html?searchResultPosition=8
 
 **Want to Know Who Might Run for Governor? Check the N.Y. State Fair.**\
 `Amid cows and crowds, the State Fair became a destination for potential challengers to Gov. Kathy Hochul, including Letitia James, the state attorney general.`\
