@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/02/nyregion/newark-airport-flights-flooding-halted-ida.html?searchResultPosition=1
 
 **This Theater Brings Nature Right Into the Drama**\
-`A lush forest makes a spectacular backdrop for the stage of the Théâtre du Peuple, in western France.`\
+`A lush forest makes a spectacular backdrop for the stage of the Théâtre du Peuple, in eastern France.`\
 https://nytimes.com/2021/09/02/theater/theatre-du-peuple-bussang.html?searchResultPosition=2
 
 **Hawaii is facing an oxygen shortage amid a record surge in Covid cases.**\
