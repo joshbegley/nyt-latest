@@ -10,9 +10,9 @@ https://nytimes.com/2021/09/02/sports/us-open-matches-thursday.html?searchResult
 `Quotation of the Day for Thursday, September 2, 2021.`\
 https://nytimes.com/2021/09/01/todayspaper/quotation-of-the-day-in-this-german-campaign-winner-so-far-is-boredom.html?searchResultPosition=3
 
-**Corrections: Sept. 2, 2031**\
-`Corrections that appeared in print on Weekday, Sept. 2, 2021.`\
-https://nytimes.com/2021/09/01/pageoneplus/corrections-sept-2-2031.html?searchResultPosition=4
+**Corrections: Sept. 2, 2021**\
+`Corrections that appeared in print on Thursday, Sept. 2, 2021.`\
+https://nytimes.com/2021/09/01/pageoneplus/corrections-sept-2-2021.html?searchResultPosition=4
 
 **China Warns U.S.: Strained Relations Could Sink Climate Cooperation**\
 `John Kerry, President Biden’s climate envoy, is in China this week pushing leaders to aggressively cut greenhouse gases. But the worsening U.S.-China relationship is taking center stage.`\
