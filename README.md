@@ -14,7 +14,7 @@ https://nytimes.com/2021/09/01/technology/google-antitrust-advertising-doj.html?
 `The top House Republican said his party would retaliate against any company that cooperated with an order to preserve the phone and social media records of G.O.P. lawmakers.`\
 https://nytimes.com/2021/09/01/us/politics/mccarthy-capitol-riot.html?searchResultPosition=4
 
-**Texas Is Trying to End Roe v. Wade All by Itself**\
+**Texas Is Trying to Overturn Roe v. Wade All by Itself**\
 `Outpacing Mississippi in the race for the worst state for women.`\
 https://nytimes.com/2021/09/01/opinion/texas-abortion-law.html?searchResultPosition=5
 
