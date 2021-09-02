@@ -18,23 +18,23 @@ https://nytimes.com/2021/09/02/style/fashion-magazines-diversity.html?searchResu
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2021/09/02/crosswords/spelling-bee-2021-09-02.html?searchResultPosition=5
 
+**New York City faces the first ‘flash flood emergency’ in its history.**\
+`By Jesus Jiménez`\
+https://nytimes.com/2021/09/02/nyregion/new-york-city-faces-the-first-flash-flood-emergency-in-its-history.html?searchResultPosition=6
+
 **Scenes from New York City as Ida paralyzes region.**\
 `The sudden inundation from the remnants of Ida transformed familiar moments of life in New York City and its suburbs into something otherworldly, waterlogged and frightening.`\
-https://nytimes.com/2021/09/02/nyregion/flash-floods-new-york.html?searchResultPosition=6
+https://nytimes.com/2021/09/02/nyregion/flash-floods-new-york.html?searchResultPosition=7
 
 **Your Thursday Briefing**\
 `Tracking the Delta variant.`\
-https://nytimes.com/2021/09/02/briefing/delta-merkel-taliban.html?searchResultPosition=7
+https://nytimes.com/2021/09/02/briefing/delta-merkel-taliban.html?searchResultPosition=8
 
 **2021 U.S. Open: What to Watch on Thursday**\
 `Karolina Pliskova, the fourth seed in the women’s draw, and Hubert Hurkacz, the 10th-seeded men’s player, will both take the court.`\
-https://nytimes.com/2021/09/02/sports/us-open-matches-thursday.html?searchResultPosition=8
+https://nytimes.com/2021/09/02/sports/us-open-matches-thursday.html?searchResultPosition=9
 
 **Quotation of the Day: In This German Campaign, Winner So Far Is Boredom**\
 `Quotation of the Day for Thursday, September 2, 2021.`\
-https://nytimes.com/2021/09/01/todayspaper/quotation-of-the-day-in-this-german-campaign-winner-so-far-is-boredom.html?searchResultPosition=9
-
-**Corrections: Sept. 2, 2021**\
-`Corrections that appeared in print on Thursday, Sept. 2, 2021.`\
-https://nytimes.com/2021/09/01/pageoneplus/corrections-sept-2-2021.html?searchResultPosition=10
+https://nytimes.com/2021/09/01/todayspaper/quotation-of-the-day-in-this-german-campaign-winner-so-far-is-boredom.html?searchResultPosition=10
 
