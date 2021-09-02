@@ -1,5 +1,5 @@
 **Mal Z. Lawrence, Noted Catskill Quipster, Dies at 88**\
-`A popular comic in the Catskills’ heyday, he brought borscht belt humor to audiences all over the country, including on Broadway.`\
+`A popular comic in the Catskills’ heyday as a resort area, he brought borscht belt humor to audiences all over the country, including on Broadway.`\
 https://nytimes.com/2021/09/02/arts/mal-z-lawrence-dead.html?searchResultPosition=1
 
 **New York’s storm deaths highlight a shadow world of basement apartments.**\
