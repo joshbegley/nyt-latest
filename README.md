@@ -32,7 +32,7 @@ https://nytimes.com/2021/09/01/health/texas-abortion-law-facts.html?searchResult
 
 **Want to Know Who Might Run for Governor? Check the N.Y. State Fair.**\
 `Amid cows and crowds, the State Fair became a destination for potential challengers to Gov. Kathy Hochul, including Letitia James, the state attorney general.`\
-https://nytimes.com/2021/09/01/nyregion/james-governor-ny-hochul.html?searchResultPosition=9
+https://nytimes.com/2021/09/01/nyregion/ny-governor.html?searchResultPosition=9
 
 **Pentagon Leaders Wary of Working With Taliban**\
 `Cooperation with the group in fighting an Islamic State affiliate is “possible,” the chairman of the Joint Chiefs of Staff said.`\
