@@ -1,40 +1,40 @@
-**Climate Change Is Bankrupting America’s Small Towns**\
-`Repeated shocks from hurricanes, fires and floods are pushing some rural communities, already struggling economically, to the brink of financial collapse.`\
-https://nytimes.com/2021/09/02/climate/climate-towns-bankruptcy.html?searchResultPosition=1
+**Dispatch From the Paralympics**\
+`What happened in competition during the first week of competition in Tokyo.`\
+https://nytimes.com/2021/09/02/sports/olympics/dispatch-from-the-paralympics.html?searchResultPosition=1
 
-**At least 7 dead in New York City after Ida.**\
-`The New York Police Department confirmed the deaths in Queens and Brooklyn after reports of flooding.`\
-https://nytimes.com/2021/09/02/nyregion/ida-new-york-city-deaths.html?searchResultPosition=2
+**Knockout Punch**\
+`A pair of young men used an idea, social media and a pandemic to create a thriving underground fight club. Then the authorities got wind of it.`\
+https://nytimes.com/2021/09/02/sports/knockout-punch.html?searchResultPosition=2
 
-**New York Extends Eviction Moratorium to 2022**\
-`An agreement restores the moratorium until Jan. 15, creating one of the most extensive such measures in the nation.`\
-https://nytimes.com/2021/09/02/nyregion/new-york-evictions.html?searchResultPosition=3
+**With These Outdoor Products, the Earth (and Your Neighbors) Will Thank You**\
+`Exterior products that are easy on the eye, as well as the environment.`\
+https://nytimes.com/2021/09/02/garden/with-these-outdoor-products-the-earth-and-your-neighbors-will-thank-you.html?searchResultPosition=3
 
-**‘A historic weather event’: The New York area is under a state of emergency after Ida floods the city.**\
-`Subway service was brought nearly to a halt after torrential rainfall swamped the transit system.`\
-https://nytimes.com/2021/09/02/nyregion/ida-new-york-flood.html?searchResultPosition=4
+**A Sanctuary Takes Shape, Framed Around Migrants**\
+`Near Tijuana’s border with San Diego, innovative housing is being constructed for refugees.`\
+https://nytimes.com/2021/09/02/realestate/tijuana-el-santuario-frontera.html?searchResultPosition=4
 
-**Mikis Theodorakis, Greek Composer and Marxist Rebel, Dies at 96**\
-`He waged a war of words and music against a military junta that banned his work and imprisoned him during its rule of Greece, from 1967 to 1974.`\
-https://nytimes.com/2021/09/02/arts/music/mikis-theodorakis-dead.html?searchResultPosition=5
+**Don’t Mind the Gap in Intergenerational Housing**\
+`Several new developments make a point of mixing age groups, because who wants to enter the golden years surrounded by only old people?`\
+https://nytimes.com/2021/09/02/style/housing-elderly-intergenerational-living.html?searchResultPosition=5
 
-**Severe flooding shuts down train service throughout the New York region.**\
-`About 200 people were rescued from a train near Newark Airport on Wednesday night as heavy rains and flooding shut down major train routes.`\
-https://nytimes.com/2021/09/02/nyregion/nyc-subway-transit-updates.html?searchResultPosition=6
+**Federal Jobless Aid, a Lifeline to Millions, Reaches an End**\
+`The abrupt loss of pandemic unemployment benefits on a broad scale could have long-term effects not only for the recipients but also for the economy.`\
+https://nytimes.com/2021/09/02/business/economy/federal-unemployment-benefit-cutoff.html?searchResultPosition=6
 
-**In pictures: Ida tears through New York City.**\
-`The remnants of Hurricane Ida tore through the New York City region, dumping record rain and flooding parts of New Jersey and the five boroughs.`\
-https://nytimes.com/2021/09/02/nyregion/in-pictures-ida-tears-through-new-york-city.html?searchResultPosition=7
+**When Vaccines Aren’t an Option: Life for Families With Children Under 12**\
+`About 48 million American children are not eligible for a coronavirus shot. Their parents face difficult choices as school starts.`\
+https://nytimes.com/2021/09/02/us/parents-kids-vaccine.html?searchResultPosition=7
 
-**At Top Magazines, Black Representation Remains a Work in Progress**\
-`Last summer’s racial reckoning brought calls for an industrywide overhaul in fashion. But change is slow.`\
-https://nytimes.com/2021/09/02/style/fashion-magazines-diversity.html?searchResultPosition=8
+**Short on Money, Legal and Otherwise, the Taliban Face a Crisis**\
+`The group has long tapped underground banks and opium to fund Afghanistan’s insurgency. Fixing the nation’s problems will require a lot more than that.`\
+https://nytimes.com/2021/09/02/business/economy/afghanistan-taliban-financial-crisis.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/02/crosswords/spelling-bee-2021-09-02.html?searchResultPosition=9
+**In London, a Tucked-Away House Where the Living Is Easy**\
+`Built around a garden, the home allows three generations of family members to look out for one another without sacrificing privacy.`\
+https://nytimes.com/2021/09/02/style/london-magid-house-garden-.html?searchResultPosition=9
 
-**New York City faces the first ‘flash flood emergency’ in its history.**\
-`By Jesus Jiménez`\
-https://nytimes.com/2021/09/02/nyregion/new-york-city-faces-the-first-flash-flood-emergency-in-its-history.html?searchResultPosition=10
+**Flameouts and Flimflammery in Four Just-Published Mysteries**\
+`Nail-biting new crime fiction from Amy Stewart, Craig Nova, Catherine Dang and Karen Cleveland.`\
+https://nytimes.com/2021/09/02/arts/new-mysteries-and-crime-fiction.html?searchResultPosition=10
 
