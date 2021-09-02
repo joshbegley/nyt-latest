@@ -1,40 +1,40 @@
+**New York’s storm deaths highlight a shadow world of basement apartments.**\
+`The city has tens of thousands of basement apartments, most of which are illegal and flout safety regulations.`\
+https://nytimes.com/2021/09/02/nyregion/nyc-basement-apartments-flooding.html?searchResultPosition=1
+
 **A Farewell to Becky Wasserman, a Great Sage of Burgundy**\
 `As an American working in France, she often had to explain the region to her countrymen while leading them to wonderful producers.`\
-https://nytimes.com/2021/09/02/dining/drinks/becky-wasserman-burgundy.html?searchResultPosition=1
+https://nytimes.com/2021/09/02/dining/drinks/becky-wasserman-burgundy.html?searchResultPosition=2
 
 **Virginia Supreme Court Clears Path for Removal of Robert E. Lee Statue**\
 `Two unanimous rulings allow Gov. Ralph Northam to remove the statue from its prominent spot on Monument Avenue in Richmond.`\
-https://nytimes.com/2021/09/02/us/robert-e-lee-statue-removal-virginia.html?searchResultPosition=2
+https://nytimes.com/2021/09/02/us/robert-e-lee-statue-removal-virginia.html?searchResultPosition=3
 
 **The French Left Is in Disarray, but Here Comes Anne Hidalgo**\
 `The charismatic and divisive socialist mayor of Paris eyes an office that has been occupied by eight male presidents over six decades.`\
-https://nytimes.com/2021/09/02/world/europe/france-president-election-socialists-anne-hidalgo.html?searchResultPosition=3
+https://nytimes.com/2021/09/02/world/europe/france-president-election-socialists-anne-hidalgo.html?searchResultPosition=4
 
 **Ida Paralyzes the New York City Area**\
 `The remnants of Hurricane Ida caused flash flooding, several deaths and disrupted transit across parts of New York and New Jersey.`\
-https://nytimes.com/video/us/100000007953010/nyc-nj-flooding-video.html?searchResultPosition=4
+https://nytimes.com/video/us/100000007953010/nyc-nj-flooding-video.html?searchResultPosition=5
 
-**Neighbors tried to save neighbors. Sometimes they failed.**\
-`“It’s so hard when someone asks for help and you can’t help them,” said a woman who had listened as a man’s screams for help suddenly stopped.`\
-https://nytimes.com/2021/09/02/nyregion/ida-new-york-neighbors.html?searchResultPosition=5
+**Neighbors tried to save neighbors. Sometimes they couldn’t.**\
+`“It’s so hard when someone asks for help and you can’t help them,” said a woman who listened as a man’s screams for help suddenly stopped.`\
+https://nytimes.com/2021/09/02/nyregion/ida-new-york-neighbors.html?searchResultPosition=6
 
 **Finding a Globe’s Worth of Art Treasures Close to Home**\
 `It took a pandemic to get our critic to explore the exquisite art in his own backyard. Here’s what he discovered.`\
-https://nytimes.com/2021/09/02/arts/midwest-museum-road-trip.html?searchResultPosition=6
+https://nytimes.com/2021/09/02/arts/midwest-museum-road-trip.html?searchResultPosition=7
 
 **In ‘Back to The Future: The Musical,’ the Car Is the Star of the Show**\
 `A devoted fan of the 1985 movie helped the London production’s creative team recreate the iconic time-traveling DeLorean, down to the last detail.`\
-https://nytimes.com/2021/09/02/theater/back-to-the-future-musical.html?searchResultPosition=7
+https://nytimes.com/2021/09/02/theater/back-to-the-future-musical.html?searchResultPosition=8
 
 **The Poetic Justice of Amanda Gorman’s Estée Lauder Contract**\
 `The inside story of how it happened and why it matters.`\
-https://nytimes.com/2021/09/02/style/amanda-gorman-estee-lauder.html?searchResultPosition=8
+https://nytimes.com/2021/09/02/style/amanda-gorman-estee-lauder.html?searchResultPosition=9
 
 **‘Anne at 13,000 Ft’ Review: A Woman Adrift**\
 `A young day-care employee struggles to live and love in a world that, much like her, remains a blur.`\
-https://nytimes.com/2021/09/02/movies/anne-at-13000-ft-review.html?searchResultPosition=9
-
-**Biden Vows to Protect Abortion Rights in Face of ‘Extreme’ Texas Law**\
-`President Biden directed a gender-focused policy council in the White House and other agencies to “launch of a whole-of-government-effort” to respond.`\
-https://nytimes.com/2021/09/02/us/politics/biden-abortion-texas-law.html?searchResultPosition=10
+https://nytimes.com/2021/09/02/movies/anne-at-13000-ft-review.html?searchResultPosition=10
 
