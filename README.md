@@ -11,7 +11,7 @@ https://nytimes.com/2021/09/02/science/mars-rover-rocks.html?searchResultPositio
 https://nytimes.com/2021/09/02/us/supreme-court-texas-abortion-law.html?searchResultPosition=3
 
 **Eric Adams, New York’s likely next mayor, says he has ‘never witnessed something like this.’**\
-`Currently serving his last months as Brooklyn borough president, Mr. Adams called the city’s devastation “a wake-up call” on climate change, but did not offer any specifics of an environmental policy.`\
+`Currently serving his last months as Brooklyn borough president, Mr. Adams called the city’s devastation “a wake-up call” on climate change, but did not delve deeply into his environmental policy.`\
 https://nytimes.com/2021/09/02/nyregion/eric-adams-new-york-flooding-ida.html?searchResultPosition=4
 
 **‘The Nutcracker’ Returns, With New Rules for Children**\
