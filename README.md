@@ -1,4 +1,4 @@
-**Danish Official Faces Impeachment Over Migration Policy That Separated Couples**\
+**Danish Official Faces Impeachment Trial Over Migration Policy Separating Couples**\
 `Inger Stojberg, who presided over tough anti-immigrant policies when her party was in charge, is being tried on charges of illegally separating couples who sought asylum.`\
 https://nytimes.com/2021/09/02/world/europe/denmark-impeachment-migration.html?searchResultPosition=1
 
