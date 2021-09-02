@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/02/nyregion/ida-flooding-nyc.html?searchResultPositi
 `The Supreme Court’s decision not to block a Texas law banning most abortions left Republicans eager to replicate it. Democrats reeled, but sensed a winning issue in coming elections.`\
 https://nytimes.com/2021/09/02/us/politics/scotus-abortion-decision.html?searchResultPosition=2
 
-**Apple Gives Ground in a Strategic Retreat from Strict App Store Rules**\
+**Apple Gives Ground in a Strategic Retreat From Strict App Store Rules**\
 `The company, under pressure from app developers and regulators, is making concessions while protecting lucrative parts of its App Store.`\
 https://nytimes.com/2021/09/02/technology/apple-app-store.html?searchResultPosition=3
 
