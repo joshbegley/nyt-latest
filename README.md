@@ -1,5 +1,5 @@
 **New Yorkers Got Record Rain, and a Warning: Storms Are Packing More Punch**\
-`Because of global warming, the heaviest rainstorms can now produce huge amounts of rainfall in a short time.`\
+`Because of global warming, the heaviest storms can now produce huge amounts of rainfall in a short time.`\
 https://nytimes.com/2021/09/02/climate/new-york-rain-climate-change.html?searchResultPosition=1
 
 **How to Do Laundry Better**\
