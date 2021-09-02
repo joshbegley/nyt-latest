@@ -15,7 +15,7 @@ https://nytimes.com/2021/09/02/nyregion/ida-new-york-neighbors.html?searchResult
 https://nytimes.com/2021/09/02/arts/midwest-museum-road-trip.html?searchResultPosition=4
 
 **In ‘Back to The Future: The Musical,’ the Car Is the Star of the Show**\
-`An devoted fan of the 1985 movie helped the London production’s creative team recreate the iconic time-traveling DeLorean, down to the last detail.`\
+`A devoted fan of the 1985 movie helped the London production’s creative team recreate the iconic time-traveling DeLorean, down to the last detail.`\
 https://nytimes.com/2021/09/02/theater/back-to-the-future-musical.html?searchResultPosition=5
 
 **The Poetic Justice of Amanda Gorman’s Estée Lauder Contract**\
