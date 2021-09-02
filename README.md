@@ -2,7 +2,7 @@
 `The few riders left say the 140-year-old system makes sense for a city of 15 million struggling with pollution and overcrowding. But many trips now are more nostalgic than necessary.`\
 https://nytimes.com/2021/09/02/world/asia/kolkata-india-trams-calcutta.html?searchResultPosition=1
 
-**G.M. will idle more factories this month as chip shortage drags on.**\
+**G.M. will idle more factories this month as a chip shortage drags on.**\
 `The automaker is suspending production of some of its most profitable vehicles.`\
 https://nytimes.com/2021/09/02/business/gm-chip-shortage.html?searchResultPosition=2
 
