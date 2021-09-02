@@ -23,7 +23,7 @@ https://nytimes.com/2021/09/02/world/europe/france-president-election-socialists
 https://nytimes.com/video/us/100000007953010/nyc-nj-flooding-video.html?searchResultPosition=6
 
 **Neighbors tried to save neighbors from Ida’s floods. Sometimes they couldn’t.**\
-`“It’s so hard when someone asks for help and you can’t help them,” said a woman who listened as a man’s screams for help suddenly stopped.`\
+`“It’s so hard when someone asks for help and you can’t help them,” said a woman who listened as a man’s screams for help from a basement bedroom suddenly stopped.`\
 https://nytimes.com/2021/09/02/nyregion/ida-new-york-neighbors.html?searchResultPosition=7
 
 **Finding a Globe’s Worth of Art Treasures Close to Home**\
