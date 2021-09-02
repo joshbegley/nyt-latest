@@ -11,7 +11,7 @@ https://nytimes.com/2021/09/02/us/politics/scotus-abortion-decision.html?searchR
 https://nytimes.com/2021/09/02/technology/apple-app-store.html?searchResultPosition=3
 
 **You Are Not Who You Think You Are**\
-`The categories we used to describe our thinking are messed up.`\
+`The categories we use to describe our thinking are messed up.`\
 https://nytimes.com/2021/09/02/opinion/brain-reality-imagination.html?searchResultPosition=4
 
 **Congress Moves to Increase Pentagon Budget, Defying Biden and Liberals**\
