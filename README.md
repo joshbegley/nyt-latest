@@ -12,7 +12,7 @@ https://nytimes.com/video/world/asia/100000007951794/afghanistan-food-aid-shorta
 
 **At the U.S. Open, Sloane Stephens Sends Coco Gauff Home**\
 `Stephens relied on her experience as the 2017 U.S. Open champion, and her wicked forehand, to outmaneuver the 17-year-old Gauff in straight sets, 6-4, 6-2.`\
-https://nytimes.com/2021/09/01/sports/tennis/2021-us-open-gauff-stephens.html?searchResultPosition=4
+https://nytimes.com/2021/09/01/sports/tennis/gauff-stephens.html?searchResultPosition=4
 
 **Mueller Scrutinized an Unidentified Member of News Media in Russia Inquiry**\
 `The scrutiny was one of several new disclosures the Justice Department made about investigative actions involving the news media during the Trump years.`\
