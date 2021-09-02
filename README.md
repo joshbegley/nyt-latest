@@ -12,7 +12,7 @@ https://nytimes.com/2021/09/01/pageoneplus/corrections-sept-2-2031.html?searchRe
 
 **China Warns U.S.: Strained Relations Could Sink Climate Cooperation**\
 `John Kerry, President Biden’s climate envoy, is in China this week pushing leaders to aggressively cut greenhouse gasses. But the worsening U.S.-China relationship is taking center stage.`\
-https://nytimes.com/2021/09/01/world/asia/climate-china-us-kerry.html?searchResultPosition=4
+https://nytimes.com/2021/09/02/world/asia/climate-china-us-kerry.html?searchResultPosition=4
 
 **A Fan Wanted a Better Team to Cheer. So He Found It Better Players.**\
 `The revival of El Salvador’s soccer team is a tribute to better organization, coaching and talent. But it also owes a debt to a fan with a gift for scouting.`\
