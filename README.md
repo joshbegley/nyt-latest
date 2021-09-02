@@ -26,7 +26,7 @@ https://nytimes.com/2021/09/02/sports/soccer/usmnt-el-salvador.html?searchResult
 `September began with a crowded field contending for wild-card spots. Each team has its own challenges, Boston’s coronavirus issues chief among them.`\
 https://nytimes.com/2021/09/02/sports/baseball/wild-card-races.html?searchResultPosition=7
 
-**New York Is Particularly Vulnerable to Extreme Storms. Here’s Why.**\
+**New York is particularly vulnerable to extreme storms. Here’s why.**\
 `The remnants of Hurricane Ida paralyzed the city. It’s exactly the kind of storm that is likely to become more frequent in the climate crisis.`\
 https://nytimes.com/2021/09/02/climate/new-york-rain-floods-climate-change.html?searchResultPosition=8
 
