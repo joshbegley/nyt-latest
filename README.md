@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/03/opinion/covid-recession-austrian-school-hayek.htm
 `This silky end-of-summer dish, reminiscent in some ways of shakshuka, is run through with spiced eggplant, tomatoes and herbs.`\
 https://nytimes.com/2021/09/03/dining/eggplant-and-egg-recipe-shakshuka.html?searchResultPosition=3
 
-**Takeaways from the August Jobs Report**\
+**Takeaways From the August Jobs Report**\
 `Employers added just 235,000 jobs, far below economists’ expectations.`\
 https://nytimes.com/interactive/2021/09/03/business/august-jobs-report-takeaways.html?searchResultPosition=4
 
