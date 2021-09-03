@@ -1,36 +1,36 @@
+**‘This Isn’t About Politics,’ Biden Says Following Hurricane Ida**\
+`President Biden addressed the damage caused by Hurricane Ida as it moved across the eastern part of the country and said that the Federal Emergency Management Agency was on the ground to provide assistance to those affected.`\
+https://nytimes.com/video/us/politics/100000007953233/biden-hurricane-ida-fema.html?searchResultPosition=1
+
 **Doesn’t Contain Any Mint**\
 `Brendan Emmett Quigley and Paolo Pasco bamboozle us.`\
-https://nytimes.com/2021/09/02/crosswords/daily-puzzle-2021-09-03.html?searchResultPosition=1
+https://nytimes.com/2021/09/02/crosswords/daily-puzzle-2021-09-03.html?searchResultPosition=2
 
 **Member of Brutal ISIS ‘Beatles’ Cell Pleads Guilty in Hostage Cases**\
 `Alexanda Kotey admitted that he played a key part in American prisoners’ kidnapping, detention and hostage negotiations. Some of the hostages were beheaded.`\
-https://nytimes.com/2021/09/02/us/politics/isis-beatles-alexanda-kotey.html?searchResultPosition=2
+https://nytimes.com/2021/09/02/us/politics/isis-beatles-alexanda-kotey.html?searchResultPosition=3
 
 **Musicals Return to Broadway With ‘Waitress’ and ‘Hadestown’**\
 `The song-and-dance shows that are Broadway’s bread and butter began a staggered return to the stage Thursday. For audiences, vaccinations and masks were mandatory.`\
-https://nytimes.com/2021/09/02/theater/broadway-reopening-hadestown-waitress.html?searchResultPosition=3
+https://nytimes.com/2021/09/02/theater/broadway-reopening-hadestown-waitress.html?searchResultPosition=4
 
 **Alexanda Kotey Plea Agreement**\
 `Plea agreement for Alexanda Kotey, who was part of an ISIS cell of four Britons called “the Beatles” that kidnapped dozens of hostages, including journalists James Foley and Steven J. Sotloff, both of whom were beheaded in propaganda videos.`\
-https://nytimes.com/interactive/2021/09/03/us/alexanda-kotey-isis-beatle-plea-agreement.html?searchResultPosition=4
+https://nytimes.com/interactive/2021/09/03/us/alexanda-kotey-isis-beatle-plea-agreement.html?searchResultPosition=5
 
 **Alexanda Kotey Statement of Facts**\
 `Statement of Facts for Alexanda Kotey, who was part of an ISIS cell of four Britons called “the Beatles” that kidnapped dozens of hostages, including journalists James Foley and Steven J. Sotloff, both of whom were beheaded in propaganda videos.`\
-https://nytimes.com/interactive/2021/09/03/us/alexanda-kotey-isis-beatles-statement-facts.html?searchResultPosition=5
+https://nytimes.com/interactive/2021/09/03/us/alexanda-kotey-isis-beatles-statement-facts.html?searchResultPosition=6
 
 **Is Your ‘Go Bag’ Ready?**\
 `Climate-related emergencies like hurricanes, fires and floods are becoming more frequent. Here’s how to prepare whether you need to evacuate or hunker down.`\
-https://nytimes.com/2021/09/02/well/go-bag-essentials.html?searchResultPosition=6
+https://nytimes.com/2021/09/02/well/go-bag-essentials.html?searchResultPosition=7
 
 **Texas Abortion Case Highlights Concern Over Supreme Court’s ‘Shadow Docket’**\
 `A process intended to help the court deal with emergency petitions and routine matters has grown into a backdoor way of making major policy decisions.`\
-https://nytimes.com/2021/09/02/us/politics/supreme-court-shadow-docket-texas-abortion.html?searchResultPosition=8
+https://nytimes.com/2021/09/02/us/politics/supreme-court-shadow-docket-texas-abortion.html?searchResultPosition=9
 
 **Drone Footage Shows Devastating Flooding in Louisiana**\
 `The community of Lafitte, La., was inundated with water after Hurricane Ida made landfall in the state. Homes and businesses across Louisiana were destroyed and severe flooding led to several deaths.`\
-https://nytimes.com/video/us/100000007953404/louisiana-hurricane-ida-storm.html?searchResultPosition=9
-
-**Louisiana Nursing Home Residents, Evacuated Before the Storm, Died in New Facility, State Says**\
-`Days after Hurricane Ida, residents were waiting for power, water and other basic services. Patience was running thin.`\
-https://nytimes.com/2021/09/02/us/louisiana-nursing-home-deaths.html?searchResultPosition=10
+https://nytimes.com/video/us/100000007953404/louisiana-hurricane-ida-storm.html?searchResultPosition=10
 
