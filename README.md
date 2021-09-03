@@ -1,40 +1,40 @@
-**New York Recovers From Hurricane Ida’s Catastrophic Flooding**\
-`At least 43 died, and 150,000 homes were left without power.`\
-https://nytimes.com/2021/09/03/nyregion/new-york-recovers-from-hurricane-idas-catastrophic-flooding.html?searchResultPosition=1
+**Storm heightens a sense of vulnerability to climate change.**\
+`After the remnants of Hurricane Ida caused dozens of deaths, Gov. Kathy Hochul of New York said of climate change, “It is not a future threat. It is a current threat.”`\
+https://nytimes.com/2021/09/03/nyregion/ida-new-york-flood.html?searchResultPosition=1
 
-**Looking Longingly Out Someone Else’s Window**\
-`Most of our worlds have narrowed down to a single view, but a crowdsourcing website lets us borrow a different one, for a little while.`\
-https://nytimes.com/2021/09/03/world/australia/looking-longingly-out-someone-elses-window.html?searchResultPosition=2
+**Louisiana High School Sports Meet a Mighty Opponent: Climate Change**\
+`Repeated hurricanes have devastated the state’s schools, teams and athletic fields. Ida was the latest reminder of the challenges facing the Sportsman’s Paradise.`\
+https://nytimes.com/2021/09/03/sports/louisiana-high-school-sports-meet-a-mighty-opponent-climate-change.html?searchResultPosition=2
 
-**Disabled Japanese Are Often Invisible. Will Paralympics Bring Lasting Light?**\
-`Tokyo improved its infrastructure before the Games, but activists wonder how long the focus will continue in a country with a long history of excluding people with disabilities.`\
-https://nytimes.com/2021/09/03/world/asia/japan-paralympics-disabled.html?searchResultPosition=3
+**The Storm Warnings Were Dire. Why Couldn’t the City Be Protected?**\
+`New York City and state officials knew heavy rains were coming, but their preparations couldn’t save the city from death and destruction.`\
+https://nytimes.com/2021/09/03/nyregion/nyc-flooding-damage.html?searchResultPosition=3
 
-**‘We’re Like Athletes Here’: The Maestro With a Gym Habit**\
-`Lorenzo Viotti’s sporty social media posts don’t fit the image of an opera conductor. But they help classical music reach a new audience, he says.`\
-https://nytimes.com/2021/09/03/arts/music/lorenzo-viotti.html?searchResultPosition=4
+**Why Does New York State Sue Its College Students?**\
+`Thousands of SUNY students have been taken to court by the attorney general’s office over tuition debt. And through a quirk in the law, the only way they can defend themselves is by appearing before a judge in Albany.`\
+https://nytimes.com/2021/09/03/nyregion/suny-student-loans-lawsuit-albany.html?searchResultPosition=4
 
-**The Best Movies and TV Shows New to Netflix, Amazon and Stan in Australia in September**\
-`Our picks for September, including ‘Billions,’ ‘Goliath’ and ‘Worth’`\
-https://nytimes.com/2021/09/03/arts/television/the-best-movies-and-tv-shows-new-to-netflix-amazon-and-stan-in-australia-in-september.html?searchResultPosition=5
+**A Love Worth the Phone Bill**\
+`As teens, Jody Prendergast and Lancelot Ferguson spoke so much on the phone — she in Rosedale, Queens, he in St. Mary Parish, Jamaica — that her father cut the cord. Their connection persisted.`\
+https://nytimes.com/2021/09/03/style/jody-prendergast-lancelot-ferguson-wedding.html?searchResultPosition=5
 
-**The Work-From-Home Economy and the Urban Job Outlook**\
-`Offices are unlikely to be as full after the pandemic as they were before. Service businesses and their employees will have to adapt.`\
-https://nytimes.com/2021/09/03/business/economy/covid-urban-service-economy.html?searchResultPosition=6
+**Upstate Motels Make a Comeback, With an Aim to Captivate**\
+`Once a convenience of the American road trip, new owners are reviving these motor hotels and turning them into vacation destinations.`\
+https://nytimes.com/2021/09/03/realestate/catskill-motels-comeback.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/03/crosswords/spelling-bee-2021-09-03.html?searchResultPosition=7
+**How Shang-Chi, Master of Kung Fu, Knocked Down Stereotypes**\
+`The Marvel superhero originated in comics filled with racist tropes. The creators of the new film made a list of the preconceptions they were up against and set out to conquer them.`\
+https://nytimes.com/2021/09/03/movies/shang-chi-marvel.html?searchResultPosition=7
 
-**New Zealand Police Kill ‘Extremist’ Who Stabbed 6 in ISIS-Inspired Attack**\
-`The man was under surveillance when he injured six people at a West Auckland supermarket on Friday, officials said. The prime minister called it a “terrorist attack.”`\
-https://nytimes.com/2021/09/03/world/asia/new-zealand-isis-terrorist-attack.html?searchResultPosition=8
+**How the U.S. Made War Humane and Endless**\
+`The withdrawal from Afghanistan is a final step in the transformation of American warfare into something sanitized and edited out of view.`\
+https://nytimes.com/2021/09/03/opinion/us-war-afghanistan.html?searchResultPosition=8
 
-**United States Ties El Salvador to Open World Cup Qualifying**\
-`As a youthful American team took its first step toward the 2022 World Cup, it rued a few missed opportunities.`\
-https://nytimes.com/2021/09/03/sports/soccer/usmnt-el-salvador.html?searchResultPosition=9
+**How Lady Gaga’s Mother and the Head of Her Foundation Spends Sundays**\
+`If someone secretly pays for your coffee this month, it might be Cynthia Germanotta.`\
+https://nytimes.com/2021/09/03/nyregion/lady-gaga-born-this-way.html?searchResultPosition=9
 
-**Corrections: Sept. 3, 2021**\
-`Corrections that appeared in print on Friday, Sept. 3, 2021.`\
-https://nytimes.com/2021/09/03/pageoneplus/corrections-sept-3-2021.html?searchResultPosition=10
+**As Power Grids Wobble, the Hunt Is on for a Fix**\
+`Empowering consumers to control their electric consumption would free up power to meet demand elsewhere.`\
+https://nytimes.com/2021/09/03/opinion/climate-change-electric-grid.html?searchResultPosition=10
 
