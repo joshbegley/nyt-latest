@@ -1,5 +1,5 @@
 **There’s growing hope the Caldor fire won’t reach Lake Tahoe.**\
-`We’re on top of the latest extreme weather in the U.S. Follow here for news on heat waves, wildfires, floods and more.`\
+`We’re on top of the latest extreme weather in the U.S. Follow here for news on wildfires, Hurricane Ida, floods and more.`\
 https://nytimes.com/2021/09/03/us/caldor-fire-lake-tahoe.html?searchResultPosition=1
 
 **Navigating Today’s Rental Market**\
