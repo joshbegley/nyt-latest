@@ -1,6 +1,6 @@
-**Alexanda Knotty Plea Agreement**\
+**Alexanda Kotey Plea Agreement**\
 `Plea agreement for Alexanda Kotey, who was part of an ISIS cell of four Britons called “the Beatles” that kidnapped dozens of hostages, including journalists James Foley and Steven J. Sotloff, both of whom were beheaded in propaganda videos.`\
-https://nytimes.com/interactive/2021/09/02/us/alexanda-kotey-isis-beatle-plea-agreement.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/09/03/us/alexanda-kotey-isis-beatle-plea-agreement.html?searchResultPosition=1
 
 **Alexanda Kotey Statement of Facts**\
 `Statement of Facts for Alexanda Kotey, who was part of an ISIS cell of four Britons called “the Beatles” that kidnapped dozens of hostages, including journalists James Foley and Steven J. Sotloff, both of whom were beheaded in propaganda videos.`\
