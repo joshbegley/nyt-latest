@@ -14,7 +14,7 @@ https://nytimes.com/video/us/100000007955761/dixie-fire-california-evacuations-d
 `We want to hear from shoppers across the United States who frequent stores that have an ethnic or international food aisle. Is it helpful? Do you find it outdated?`\
 https://nytimes.com/2021/09/03/dining/tell-us-about-your-grocery-stores-ethnic-aisle.html?searchResultPosition=4
 
-**Movie Fans Repeated ‘Candyman.’ But Not The Name of Its Director.**\
+**Movie Fans Repeated ‘Candyman.’ But Not the Name of Its Director.**\
 `Bernard Rose followed up his 1992 horror classic with a Beethoven biopic and four Tolstoy adaptations. Will the new sequel give him another shot?`\
 https://nytimes.com/2021/09/03/arts/bernard-rose-candyman.html?searchResultPosition=5
 
