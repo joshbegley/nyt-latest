@@ -14,13 +14,13 @@ https://nytimes.com/2021/09/03/briefing/ida-flooding-taliban-coronavirus.html?se
 `Intelligence files suggest an aide to a top Catalan separatist sought help from Russia in the struggle to break with Spain. A fierce new protest group emerged shortly afterward.`\
 https://nytimes.com/2021/09/03/world/europe/spain-catalonia-russia.html?searchResultPosition=4
 
-**The U.S. Open Is Alex Molcan’s Proving Ground**\
-`After seeing one of his junior opponents soar in the rankings while he floundered, Molcan has regained confidence and is in the third round of his first Grand Slam event.`\
-https://nytimes.com/2021/09/03/sports/tennis/us-open-alex-molcan.html?searchResultPosition=5
-
 **2021 U.S. Open: What to Watch on Friday**\
 `Naomi Osaka and Aryna Sabalenka feature as the third round of singles action begins.`\
-https://nytimes.com/2021/09/03/sports/us-open-matches-friday.html?searchResultPosition=6
+https://nytimes.com/2021/09/03/sports/us-open-matches-friday.html?searchResultPosition=5
+
+**The U.S. Open Is Alex Molcan’s Proving Ground**\
+`After seeing one of his junior opponents soar in the rankings while he floundered, Molcan has regained confidence and is in the third round of his first Grand Slam event.`\
+https://nytimes.com/2021/09/03/sports/tennis/us-open-alex-molcan.html?searchResultPosition=6
 
 **At the Tour Championship, Bryson DeChambeau Can Hear Himself Think**\
 `Sheriff’s deputies and security personnel shadowed the golfer during his first round to enforce a new PGA Tour ban on fans who heckle him. No one dared.`\
