@@ -31,7 +31,7 @@ https://nytimes.com/2021/09/03/us/politics/biden-sept-11.html?searchResultPositi
 https://nytimes.com/2021/09/03/opinion/unemployment-benefits.html?searchResultPosition=8
 
 **Most of the apartments where New Yorkers drowned were illegal residences.**\
-`Four of the five ground-level apartments where people were killed in Queens were illegal conversions, as was one in Brooklyn, the Department of Buildings said.`\
+`Four of the five basement apartments where people were killed in Queens were illegal conversions, as was one in Brooklyn, the Department of Buildings said.`\
 https://nytimes.com/2021/09/03/nyregion/nyc-illegal-basement-apartment-ida.html?searchResultPosition=9
 
 **Hospitalizations for children sharply increase as Delta surges, C.D.C. studies find.**\
