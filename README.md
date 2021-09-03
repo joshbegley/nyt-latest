@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2021/09/03/business/03Biz-jobs.html?searchResultPosition=1
 
 **What to Know: Purdue Pharma Settlement**\
-`The maker of OxyContin won bankruptcy approval on Sept. 1 as part of a far-ranging settlement that ended thousands of lawsuits against the company and its owners, the Sacklers.`\
+`The maker of OxyContin won bankruptcy approval on Sept. 1 as part of a far-ranging settlement that ended thousands of lawsuits against the company and its owners, the Sacklers. `\
 https://nytimes.com/interactive/2021/09/03/health/purdue-opioids-settlement.html?searchResultPosition=2
 
 **The Problem When Teams See Athletes as Assets**\
