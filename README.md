@@ -1,5 +1,5 @@
 **Waste From Mine in Angola Kills 12 Downstream in Congo, Minister Says**\
-`Toxic metals from the Angola’s largest diamond mine spilled into the Kasai River in July, sickening thousands and causing an “environmental catastrophe,” researchers said.`\
+`Toxic metals from Angola’s largest diamond mine spilled into the Kasai River in July, sickening thousands and causing an “environmental catastrophe,” researchers said.`\
 https://nytimes.com/2021/09/03/world/africa/mine-waste-angola-congo.html?searchResultPosition=1
 
 **Biden Addresses Louisiana After Ida: ‘We’re In This Together’**\
