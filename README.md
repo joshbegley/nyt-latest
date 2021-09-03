@@ -18,7 +18,7 @@ https://nytimes.com/2021/09/03/business/economy/covid-urban-service-economy.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2021/09/03/crosswords/spelling-bee-2021-09-03.html?searchResultPosition=5
 
-**New Zealand Police Kill Suspect in Stabbing Spree Called ISIS-Inspired**\
+**New Zealand Police Kill ‘Extremist’ Who Stabbed 6 in ISIS-Inspired Attack**\
 `The man was under surveillance when he injured six people at a West Auckland supermarket on Friday, officials said. The prime minister called it a “terrorist attack.”`\
 https://nytimes.com/2021/09/03/world/asia/new-zealand-isis-terrorist-attack.html?searchResultPosition=6
 
