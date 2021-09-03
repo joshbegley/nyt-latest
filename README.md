@@ -1,6 +1,6 @@
 **Venice Film Festival: How Does Kristen Stewart Play Princess Diana?**\
 `The star of “Spencer” may be one of the few actresses with an inkling of what it’s like to be so often hounded by the paparazzi.`\
-https://nytimes.com/2021/09/03/movies/venice-film-festival-how-does-kristen-stewart-play-princess-diana.html?searchResultPosition=1
+https://nytimes.com/2021/09/03/movies/spencer-kristen-stewart-princess-diana.html?searchResultPosition=1
 
 **Drone Footage Shows Significant Ida Damage in Louisiana**\
 `Hurricane Ida devastated parts of the Louisiana coastline, leaving behind broken homes and businesses. President Biden will travel to Louisiana and speak about government aid being for the region.`\
