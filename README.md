@@ -1,6 +1,6 @@
 **Takeaways from the August Jobs Report**\
 `Employers added just 235,000 jobs, far below economists’ expectations.`\
-https://nytimes.com/interactive/2021/09/03/business/03Biz-jobs.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/09/03/business/august-jobs-report-takeaways.html?searchResultPosition=1
 
 **What to Know: Purdue Pharma Settlement**\
 `The maker of OxyContin won bankruptcy approval on Sept. 1 as part of a far-ranging settlement that ended thousands of lawsuits against the company and its owners, the Sacklers. `\
