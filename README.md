@@ -24,7 +24,7 @@ https://nytimes.com/2021/09/03/realestate/top-nyc-real-estate-sales.html?searchR
 
 **Here’s what transit service looks like in New York after Ida’s damaging floods.**\
 `The majority of the city’s subway lines had either partial suspensions or delays Friday morning, while the area’s airports appeared to be running smoothly.`\
-https://nytimes.com/2021/09/03/nyregion/nyc-commute-updates-ida.html?searchResultPosition=7
+https://nytimes.com/2021/09/03/nyregion/nyc-trains-amtrak-hurricane-ida.html?searchResultPosition=7
 
 **The Shadow of Elizabeth Holmes and an M.L.B. Team’s History-Making Lineup of Color: The Week in Narrated Articles**\
 `Five articles from around The Times, narrated just for you.`\
