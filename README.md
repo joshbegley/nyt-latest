@@ -1,5 +1,5 @@
 **Naomi Osaka Is Out at U.S. Open After Losing to Leylah Fernandez**\
-`The 18-year-old Canadian pushed the defending champion to three sets, winning, 5-7, 7-6 (2), 6-4, in the second major upset of the third round.`\
+`In tears after the third-round match, the defending champion said, “I think I’m going to take a break from playing for a while.”`\
 https://nytimes.com/2021/09/03/sports/tennis/us-open-naomi-osaka-leylah-fernandez.html?searchResultPosition=1
 
 **Texas Judge Grants Restraining Order Against Anti-Abortion Group**\
