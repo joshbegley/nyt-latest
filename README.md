@@ -11,7 +11,7 @@ https://nytimes.com/2021/09/04/pageoneplus/corrections-sept-4-2021.html?searchRe
 https://nytimes.com/2021/09/04/todayspaper/quotation-of-the-day-new-york-planned-for-fierce-storms-but-it-wasnt-ready-for-this.html?searchResultPosition=3
 
 **Naomi Osaka Is Out at U.S. Open After Losing to Leylah Fernandez**\
-`In tears after the third-round match, the defending champion said, “I think I’m going to take a break from playing for a while.”`\
+`In tears after the third-round loss, the defending champion said she did not know when she would play her next tennis match.`\
 https://nytimes.com/2021/09/03/sports/tennis/us-open-naomi-osaka-leylah-fernandez.html?searchResultPosition=4
 
 **Texas Judge Grants Restraining Order Against Anti-Abortion Group**\
