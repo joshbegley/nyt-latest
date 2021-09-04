@@ -14,7 +14,7 @@ https://nytimes.com/2021/09/04/sports/tennis/us-open-matches-saturday.html?searc
 `As rioting and looting swept the country this summer, Indians in the suburb of Phoenix set up roadblocks to police their streets. Dozens of Black people passing through wound up dead.`\
 https://nytimes.com/2021/09/04/world/africa/South-Africa-Phoenix-riots-deaths.html?searchResultPosition=4
 
-**Beavers Re-Emerge in Scotland, Drawing Ire of Farmers**\
+**Beavers Re-emerge in Scotland, Drawing Ire of Farmers**\
 `Building dams that flood land, the beavers have infuriated farmers. Some have obtained permits to kill the animals — setting off outrage among conservationists.`\
 https://nytimes.com/2021/09/04/world/europe/scotland-beavers-farming.html?searchResultPosition=5
 
