@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/04/us/emmett-till-sign-missing.html?searchResultPosi
 
 **Go Up in Smoke**\
 `Grant Thackray alights with an incendiary Sunday puzzle.`\
-https://nytimes.com/2021/09/04/crosswords/daily-puzzle-2021-09-04.html?searchResultPosition=2
+https://nytimes.com/2021/09/04/crosswords/daily-puzzle-2021-09-05.html?searchResultPosition=2
 
 **Curtis Flowers Sues Prosecutor Who Tried Him Six Times**\
 `Charges were dropped in 2019 against Mr. Flowers, who spent 23 years in prison after he was accused of killing four people at a Mississippi furniture store.`\
