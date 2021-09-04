@@ -1,6 +1,6 @@
 **Lane Kiffin, football coach at Ole Miss, will miss Monday’s game after a positive test.**\
 `The coach and his staff and players have all been vaccinated. He said he has had only mild symptoms.`\
-https://nytimes.com/2021/09/04/sports/lane-kiffin-football-coach-at-ole-miss-will-miss-mondays-game-after-a-positive-test.html?searchResultPosition=1
+https://nytimes.com/2021/09/04/sports/ole-miss-lane-kiffin-covid.html?searchResultPosition=1
 
 **The Forgotten Jews of the Forest**\
 `More than 70 years after World War II, we're still learning about new facets of the Holocaust.`\
