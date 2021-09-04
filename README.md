@@ -1,5 +1,5 @@
 **Leylah Fernandez Stuns Naomi Osaka at the U.S. Open**\
-`The 18-year-old Canadian pushed the defending champion to three sets in their third round match, winning 5-7, 7-6 (2), 6-4, in the second major upset of the day.`\
+`The 18-year-old Canadian pushed the defending champion to three sets, winning 5-7, 7-6 (2), 6-4, in the second major upset of the third round.`\
 https://nytimes.com/2021/09/03/sports/tennis/us-open-naomi-osaka-leylah-fernandez.html?searchResultPosition=1
 
 **Texas Judge Grants Restraining Order Against Anti-Abortion Group**\
