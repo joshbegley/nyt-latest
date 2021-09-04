@@ -1,6 +1,6 @@
 **How a Surprise Discovery of Photographs From the 1960s Meets the Moment**\
 `A trove of images were found in a photographer’s family home. Now they are part of an exhibition opening next week in Harlem that captures pivotal years in the Black Panther Party.`\
-https://nytimes.com/2021/09/04/us/how-a-surprise-discovery-of-photographs-from-the-1960s-meets-the-moment.html?searchResultPosition=1
+https://nytimes.com/2021/09/04/us/black-panther-party-photos.html?searchResultPosition=1
 
 **Pete and Chasten Buttigieg Welcome 2 Children to Their Family**\
 `In posts on Twitter and Instagram, the couple shared the first photograph of their newborn son and daughter.`\
