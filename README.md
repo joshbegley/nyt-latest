@@ -11,7 +11,7 @@ https://nytimes.com/video/world/europe/100000007956301/eu-astrazeneca-settlement
 https://nytimes.com/2021/09/03/nyregion/new-jersey-ida-deaths.html?searchResultPosition=3
 
 **At the U.S. Open, Tennis Moves on as the Kids Make Noise**\
-`Carlos Alcaraz shocked Stefanos Tsitsipas Friday in the match of the tournament, so far. On Saturday, the fast-rising Emma Raducanu gets her chance at the final 16.`\
+`Carlos Alcaraz shocked Stefanos Tsitsipas on Friday. Then Leylah Fernandez stunned Naomi Osaka. On Saturday, the fast-rising Emma Raducanu gets her chance at the final 16.`\
 https://nytimes.com/2021/09/03/sports/tennis/us-open-carlos-alcaraz-emma-raducanu.html?searchResultPosition=4
 
 **Oscar De La Hoya drops out of comeback fight after being hospitalized with Covid-19.**\
