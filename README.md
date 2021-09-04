@@ -14,8 +14,8 @@ https://nytimes.com/2021/09/04/opinion/letters/coughlin-caregiving.html?searchRe
 `Welcome to our latest PandA specialist, Michael Lieberman.`\
 https://nytimes.com/2021/09/04/crosswords/variety-puns-and-anagrams.html?searchResultPosition=4
 
-**Biden, Still Grieving His Son, Finds That Not Everyone Wants to Hear About It**\
-`Invoking Beau Biden’s memory with families of fallen U.S. Marines drew criticism, but the president remains haunted by a son he described as “me, but without all the downsides.”`\
+**In Invoking Beau, Biden Broaches a Loss That’s Guided His Presidency**\
+`Referring to Beau Biden with families of U.S. Marines killed in the Kabul airport bombing drew criticism, but the president remains haunted by a son he described as “me, but without all the downsides.”`\
 https://nytimes.com/2021/09/04/us/politics/biden-beau-afghanistan.html?searchResultPosition=5
 
 **Kentucky’s schools struggle as coronavirus outbreaks close entire districts.**\
