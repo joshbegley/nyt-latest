@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/04/business/dealbook/network-effects.html?searchResu
 `After being cited for a rip in her jeans on the first day of school, Sophia Trevino has led a protest seeking changes to the district’s dress code, which she says unfairly targets girls.`\
 https://nytimes.com/2021/09/04/us/politics/mask-dress-code-protest.html?searchResultPosition=3
 
-**After Stabbing Attack, New Zealand Examines Its Anti-Terrorism Efforts**\
+**After Stabbing Attack, New Zealand Examines Its Antiterrorism Efforts**\
 `A man who wounded seven people in a supermarket had been under surveillance for months. Officials say a loophole in the country’s laws needs to be closed.`\
 https://nytimes.com/2021/09/04/world/asia/new-zealand-attack-isis.html?searchResultPosition=4
 
