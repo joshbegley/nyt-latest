@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/03/nyregion/new-jersey-ida-deaths.html?searchResultP
 
 **At the U.S. Open, Tennis Moves on as the Kids Make Noise**\
 `Carlos Alcaraz shocked Stefanos Tsitsipas Friday in the match of the tournament, so far. On Saturday, the fast-rising Emma Raducanu gets her chance at the final 16.`\
-https://nytimes.com/2021/09/03/sports/tennis/us-open-emma-raducanu.html?searchResultPosition=3
+https://nytimes.com/2021/09/03/sports/tennis/us-open-carlos-alcaraz-emma-raducanu.html?searchResultPosition=3
 
 **Oscar De La Hoya drops out of comeback fight after being hospitalized with Covid-19.**\
 `Mr. De La Hoya had been training in recent months for an match against Vitor Belfort, a former UFC champion, on Sept. 11. at the Staples Center in Los Angeles.`\
