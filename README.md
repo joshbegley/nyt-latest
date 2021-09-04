@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/04/sports/tennis/us-open-naomi-osaka.html?searchResu
 
 **Leylah Fernandez, Who Beat Osaka, Leads a Canadian Charge**\
 `Canada’s high-performance tennis program is achieving its goal of producing elite players, several of whom have advanced at the U.S. Open.`\
-https://nytimes.com/2021/09/04/sports/tennis/us-open-leylah-fernandez.html?searchResultPosition=2
+https://nytimes.com/2021/09/04/sports/tennis/us-open-leylah-fernandez-canada.html?searchResultPosition=2
 
 **Nearly a Week Without Power, New Orleans Is Facing a ‘Race With the Clock’**\
 `Forecasters are warning of dangerously high temperatures this weekend as 70 percent of the city remains without power after Hurricane Ida.`\
