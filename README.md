@@ -1,5 +1,5 @@
 **Since a National Title, Some Very Difficult Days at L.S.U.**\
-`Louisiana State, which won the College Football Playoff in the 2019 season, followed a 5-5 season by dropping its opener to U.C.L.A. after evacuating because of Hurricane Ida.`\
+`Louisiana State, which won the College Football Playoff in the 2019 season, followed a 5-5 season by dropping its 2021 opener to U.C.L.A. after evacuating because of Hurricane Ida.`\
 https://nytimes.com/2021/09/05/sports/since-a-national-title-some-very-difficult-days-at-lsu.html?searchResultPosition=1
 
 **Your Monday Briefing**\
