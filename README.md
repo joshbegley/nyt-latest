@@ -1,36 +1,40 @@
-**Crypto’s Rapid Move Into Banking Elicits Alarm in Washington**\
-`The boom in companies offering cryptocurrency loans and high-yield deposit accounts is disrupting the banking industry and leaving regulators scrambling to catch up.`\
-https://nytimes.com/2021/09/05/us/politics/cryptocurrency-banking-regulation.html?searchResultPosition=1
+**Thai Protesters Are Back, and Angrier, as Government Fumbles on Covid**\
+`With more than 12,000 dead, few vaccinated and the economy in shambles, demonstrations against the authorities have become a daily event.`\
+https://nytimes.com/2021/09/05/world/asia/thailand-protesters-covid.html?searchResultPosition=1
 
-**How a Small Town Silenced a Neo-Nazi Hate Campaign**\
-`A Montana town reflects on its effort to drive former President Donald J. Trump’s extremist supporters back to the fringes.`\
-https://nytimes.com/2021/09/05/us/politics/nazi-whitefish-charlottesville.html?searchResultPosition=2
+**The First Afghan Rhodes Scholar Saved Her Father, and Wants to Do More**\
+`Summia Tora used her connections to get her father and an uncle on a flight out of Kabul. Helping other Afghan refugees, she said, may occupy “most of the rest of my life.”`\
+https://nytimes.com/2021/09/05/world/middleeast/afghan-rhodes-scholar.html?searchResultPosition=2
 
-**‘When I Got to the Museum, I Was Told I Could Not Check My Luggage’**\
-`Making an emergency stop, ode to a first lipstick and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/09/05/nyregion/metropolitan-diary.html?searchResultPosition=3
+**Galleries Introduce Themselves at TEFAF, Virtually**\
+`With offerings like Himalayan sculpture, contemporary French painting and antique tapestries, new exhibitors aim to impress a digital audience.`\
+https://nytimes.com/2021/09/05/arts/tefaf-online-new-exhibitors.html?searchResultPosition=3
 
-**Crypto Banking and Decentralized Finance, Explained**\
-`The revolution in digital money is now moving into banking, as cryptocurrency starts to reshape the way people borrow and save.`\
-https://nytimes.com/2021/09/05/us/politics/cryptocurrency-explainer.html?searchResultPosition=4
+**A Brief Look Ahead to 3 In-Person Art Fairs**\
+`This month, Art Basel returns in Switzerland, Art Paris examines a cultural renaissance, and Photo London reopens with Robert Capa’s work on view.`\
+https://nytimes.com/2021/09/05/arts/september-art-fairs.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/05/crosswords/spelling-bee-2021-09-05.html?searchResultPosition=5
+**Is 9/11 a Day, or Is It an Era?**\
+`After 20 years, it’s time for TV to treat Sept. 11 as serious, even divisive history, not just dutiful remembrance.`\
+https://nytimes.com/2021/09/05/arts/television/Sept-11-TV-documentaries.html?searchResultPosition=5
 
-**Corrections: Sept. 5, 2021**\
-`Corrections that appeared in print on Sunday, Sept. 5, 2021.`\
-https://nytimes.com/2021/09/05/pageoneplus/corrections-sept-5-2021.html?searchResultPosition=6
+**Putting Pieces of Beirut’s Past Back Together**\
+`Ancient glass vessels that were smashed in a deadly blast in Lebanon’s capital will have a new chance to represent the city’s role in art history.`\
+https://nytimes.com/2021/09/05/arts/beirut-blast-art-restoration.html?searchResultPosition=6
 
-**‘Inspiration Porn’: Paralympians Know It When They See It**\
-`Athletes reject the idea that they should be admired just for coping with disabilities, and not also for what they’ve accomplished.`\
-https://nytimes.com/2021/09/05/sports/olympics/inspiration-porn-paralympians-know-it-when-they-see-it.html?searchResultPosition=7
+**At U.S. Open, Carlos Alcaraz is Ready for the Spotlight**\
+`After the teenager from Spain stunned Stefanos Tsitsipas, he said he has dreamed of playing on “the best court in the world” for much of his 18 years. Now he’s won on it.`\
+https://nytimes.com/2021/09/05/sports/tennis/us-open-carlos-alcaraz.html?searchResultPosition=7
 
-**At the U.S. Open, No. 1 Ashleigh Barty Is Stunned by Shelby Rogers**\
-`The American beat Barty, who had won five tournaments this year including Wimbledon, 6-2, 1-6, 7-6 (5). Rogers made the crowd work for her.`\
-https://nytimes.com/2021/09/04/sports/tennis/us-open-ashleigh-barty-shelby-rogers.html?searchResultPosition=8
+**Homes That Sold for Around $1.5 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2021/09/05/realestate/homes-that-sold-for-around-1-5-million.html?searchResultPosition=8
 
-**Lawyer Is Shot Months After Unsolved Killing of His Wife and Son**\
-`Alex Murdaugh, the descendant of a prominent family of lawyers in rural South Carolina, was shot on Saturday, nearly three months after his wife and son were killed at their home.`\
-https://nytimes.com/2021/09/04/us/Alex-Murdaugh-shot-south-carolina.html?searchResultPosition=9
+**S.A. Cosby, a Writer of Violent Noirs, Claims the Rural South as His Own**\
+`After years of small breaks, Cosby has found big success with “Blacktop Wasteland” and “Razorblade Tears,” propulsive books about family, sex, race, class and the stain of Southern history.`\
+https://nytimes.com/2021/09/05/books/s-a-cosby-razorblade-tears-crime-novelist.html?searchResultPosition=9
+
+**Maggie Nelson Exposes Freedom’s Paradoxes**\
+`The poet and critic’s latest book, “On Freedom,” is a philosophical meditation on a concept at the center of American history and culture.`\
+https://nytimes.com/2021/09/05/books/review/on-freedom-maggie-nelson.html?searchResultPosition=10
 
