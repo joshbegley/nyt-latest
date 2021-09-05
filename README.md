@@ -1,5 +1,5 @@
 **Brazil-Argentina Match Stopped After Health Officials Storm Field**\
-`A disagreement about quarantine rules saw a high-profile match interrupted in the first half amid threats to deport four Argentine players.`\
+`After a disagreement about quarantine rules, a high-profile match was interrupted in the first half amid threats to deport four Argentine players.`\
 https://nytimes.com/2021/09/05/sports/soccer/brazil-argentina-suspended.html?searchResultPosition=1
 
 **Since a National Title, Some Very Difficult Days at L.S.U.**\
