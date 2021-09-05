@@ -18,7 +18,7 @@ https://nytimes.com/2021/09/05/opinion/parenting-college-empty-nest-pandemic.htm
 `Plan to make a no-recipe feast of spaghetti and clams, or any of our newest recipes.`\
 https://nytimes.com/2021/09/05/dining/what-to-cook-this-week.html?searchResultPosition=5
 
-**How a Plan to Use Centuries-Old Bones to Reconcile France and Russia Unraveled**\
+**A Skeleton for Diplomacy: How a Plan to Reconcile France and Russia Collapsed**\
 `The remains of a Napoleonic general who died on a Russian battlefield came home in July. But the chance for rapprochement collapsed over concerns about Moscow’s policies.`\
 https://nytimes.com/2021/09/05/world/europe/france-russia-general-bones-macron-putin.html?searchResultPosition=6
 
