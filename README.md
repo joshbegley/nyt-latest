@@ -26,8 +26,8 @@ https://nytimes.com/2021/09/05/business/box-office-movie-ratings.html?searchResu
 `A preliminary analysis said that it was “possible to probable” that explosives were in the car and that drone operators took only a cursory scan of the courtyard before launching an attack.`\
 https://nytimes.com/2021/09/05/us/politics/military-drone-strike-kabul.html?searchResultPosition=7
 
-**4 Found Fatally Shot After Man Opens Fire on Deputies in Florida**\
-`The gunman killed a man, two women and an infant who were found in two homes near Lakeland, Fla., the authorities said. A girl, 11, also was wounded.`\
+**Ex-Marine Sharpshooter Kills 4 and Fires at Deputies in Florida, Sheriff Says**\
+`The gunman, a veteran of the wars in Afghanistan and Iraq, fatally shot a man, two women and an infant inside two homes near Lakeland, Fla., the authorities said. A girl, 11, was wounded.`\
 https://nytimes.com/2021/09/05/us/shooting-lakeland-florida.html?searchResultPosition=8
 
 **From ‘Ku Kluxism’ to Trumpism**\
