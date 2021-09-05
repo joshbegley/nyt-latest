@@ -1,40 +1,40 @@
+**4 Found Fatally Shot After Man Opens Fire on Deputies in Florida**\
+`The gunman killed a man, two women and an infant who were found in two homes near Lakeland, Fla., the authorities said. A girl, 11, also was wounded.`\
+https://nytimes.com/2021/09/05/us/shooting-lakeland-florida.html?searchResultPosition=1
+
 **From ‘Ku Kluxism’ to Trumpism**\
 `Many of the Klan's tactics are still being used to preserve white supremacy and subjugate racial, ethnic and religious minorities in United States. `\
-https://nytimes.com/2021/09/05/opinion/ku-kluxism-trumpism.html?searchResultPosition=1
+https://nytimes.com/2021/09/05/opinion/ku-kluxism-trumpism.html?searchResultPosition=2
 
 **We Should All Be a Little More Like Dorothy Day**\
 `A labor activist and devout Catholic, she had a unique vision for a better world.`\
-https://nytimes.com/2021/09/05/opinion/dorothy-day-christian-labor.html?searchResultPosition=2
+https://nytimes.com/2021/09/05/opinion/dorothy-day-christian-labor.html?searchResultPosition=3
 
 **Kentucky governor says the state’s Covid surge is ‘dire.’**\
 `Kentucky recorded a seven-day average of 4,423 new daily cases on Saturday, according to a Times database.`\
-https://nytimes.com/2021/09/05/world/kentucky-covid-surge.html?searchResultPosition=3
+https://nytimes.com/2021/09/05/world/kentucky-covid-surge.html?searchResultPosition=4
 
 **The Power in Numbers**\
 `Workers across the U.S. are finding new ways to organize and exercise power, even in the face of corporations determined to undermine unions.`\
-https://nytimes.com/2021/09/05/opinion/labor-day-union.html?searchResultPosition=4
+https://nytimes.com/2021/09/05/opinion/labor-day-union.html?searchResultPosition=5
 
 **Ida Leaves Wreckage on a Fragile Barrier Island in Louisiana**\
 `Homeowners surveyed the destruction in Grand Isle, La., where hundreds of buildings were destroyed by Hurricane Ida.`\
-https://nytimes.com/video/us/100000007957359/grand-isle-louisiana-hurricane-ida.html?searchResultPosition=5
+https://nytimes.com/video/us/100000007957359/grand-isle-louisiana-hurricane-ida.html?searchResultPosition=6
 
 **Review: The Met Opera Reunites, With Mahler’s ‘Resurrection’**\
 `After a year and a half, the company’s forces came together for an outdoor performance of the sprawling, ecstatic symphony.`\
-https://nytimes.com/2021/09/05/arts/music/review-met-opera-mahler.html?searchResultPosition=6
+https://nytimes.com/2021/09/05/arts/music/review-met-opera-mahler.html?searchResultPosition=7
 
 **Covid Ravaged South America. Then Came a Sharp Drop in Infections.**\
 `South America was the epicenter of the Covid-19 pandemic early this year. Experts are trying to find out why new infections and deaths are falling so fast.`\
-https://nytimes.com/2021/09/05/world/americas/covid-south-america-reprieve-vaccines.html?searchResultPosition=7
+https://nytimes.com/2021/09/05/world/americas/covid-south-america-reprieve-vaccines.html?searchResultPosition=8
 
 **Thai Protesters Condemn Lagging Government Covid Response**\
 `Protesters in Bangkok threw fake blood and hung mock corpses, as they demanded the resignation of Thailand’s prime minister. More than 12,000 people have died of Covid this year and few have been vaccinated.`\
-https://nytimes.com/video/world/asia/100000007957315/thailand-anti-government-protests.html?searchResultPosition=8
+https://nytimes.com/video/world/asia/100000007957315/thailand-anti-government-protests.html?searchResultPosition=9
 
 **Special Forces Colonel Says He Has Seized Guinea’s President**\
 `If the coup is successful, it will mark the third time in five months that a West African nation has suffered a takeover.`\
-https://nytimes.com/2021/09/05/world/africa/guinea-coup.html?searchResultPosition=9
-
-**My Cat’s Watching Me. What’s She Thinking?**\
-`Readers discuss the relationship between cats and humans. Also: Tech companies and child exploitation; hospital billing; the minimum wage.`\
-https://nytimes.com/2021/09/05/opinion/letters/cats-behavior.html?searchResultPosition=10
+https://nytimes.com/2021/09/05/world/africa/guinea-coup.html?searchResultPosition=10
 
