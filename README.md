@@ -1,4 +1,4 @@
-**At the U.S. Open, No. 1 Ashleigh Barty is Stunned by Shelby Rogers**\
+**At the U.S. Open, No. 1 Ashleigh Barty Is Stunned by Shelby Rogers**\
 `The American beat Barty, who had won five tournaments this year including Wimbledon, 6-2, 1-6, 7-6 (5). Rogers made the crowd work for her.`\
 https://nytimes.com/2021/09/04/sports/tennis/us-open-ashleigh-barty-shelby-rogers.html?searchResultPosition=1
 
