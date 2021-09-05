@@ -22,8 +22,8 @@ https://nytimes.com/2021/09/05/world/americas/covid-south-america-reprieve-vacci
 `Protesters in Bangkok threw fake blood and hung mock corpses, as they demanded the resignation of Thailand’s prime minister. More than 12,000 people have died of Covid this year and few have been vaccinated.`\
 https://nytimes.com/video/world/asia/100000007957315/thailand-anti-government-protests.html?searchResultPosition=6
 
-**Special Forces Colonel Stages Coup in Guinea**\
-`Heavy gunfire was heard in Conakry, the West African country’s capital, on Sunday, and then a colonel announced on state television that he’d suspended the Constitution.`\
+**Special Forces Colonel Says He Has Seized Guinea’s President**\
+`If the coup is successful, it will mark the third time in five months that a West African nation has suffered a takeover.`\
 https://nytimes.com/2021/09/05/world/africa/guinea-coup.html?searchResultPosition=7
 
 **My Cat’s Watching Me. What’s She Thinking?**\
