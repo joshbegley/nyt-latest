@@ -1,5 +1,5 @@
 **‘Everyone Is on the List’: Fear Grips Nicaragua as It Veers to Dictatorship**\
-`A crackdown on opposition by President Daniel Ortega has become an assault on dissent, leaving Nicaraguans to wonder: Who is next?`\
+`A crackdown on opposition by President Daniel Ortega leaves Nicaraguans to wonder: Who is next?`\
 https://nytimes.com/2021/09/05/world/nicaragua-political-repression.html?searchResultPosition=1
 
 **A new study of dorm rooms shows how ventilation curbs virus levels.**\
