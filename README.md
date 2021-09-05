@@ -15,7 +15,7 @@ https://nytimes.com/2021/09/05/briefing/your-monday-briefing.html?searchResultPo
 https://nytimes.com/2021/09/05/world/europe/afghanistan-us-citizens-taliban.html?searchResultPosition=4
 
 **Back on the Trail, Sanders Campaigns for a Legislative Legacy**\
-`Senator Bernie Sanders is barnstorming the country again, but not for the presidency. Instead, he’s making the case for a $3.5 trillion bill that would be a once-in-a generation achievement.`\
+`Senator Bernie Sanders is barnstorming the country again, but not for the presidency. Instead, he’s making the case for a $3.5 trillion bill that would be a once-in-a-generation achievement.`\
 https://nytimes.com/2021/09/05/us/politics/bernie-sanders-budget-bill.html?searchResultPosition=5
 
 **How’s Hollywood to Plan When It Doesn’t Know Who’s Watching What?**\
