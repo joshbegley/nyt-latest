@@ -31,7 +31,7 @@ https://nytimes.com/2021/09/05/world/africa/guinea-coup.html?searchResultPositio
 https://nytimes.com/2021/09/05/opinion/letters/cats-behavior.html?searchResultPosition=8
 
 **Let’s Honor the True Spirit of Labor Day**\
-`The labor movement's often bloody struggle for human dignity is  neglected in standard accounts of American history.`\
+`The labor movement’s often bloody struggle for human dignity is  neglected in standard accounts of American history.`\
 https://nytimes.com/2021/09/05/opinion/labor-day-us-history.html?searchResultPosition=9
 
 **The Next Act for Marcel the Shell (and Jenny Slate)**\
