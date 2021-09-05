@@ -10,8 +10,8 @@ https://nytimes.com/video/us/100000007957359/grand-isle-louisiana-hurricane-ida.
 `After a year and a half, the company’s forces came together for an outdoor performance of the sprawling, ecstatic symphony.`\
 https://nytimes.com/2021/09/05/arts/music/review-met-opera-mahler.html?searchResultPosition=3
 
-**Covid Ravaged South America. Then Came a Puzzling Reprieve.**\
-`South America was the epicenter of the Covid-19 pandemic early this year. Experts can’t quite explain why new infections and deaths are falling so fast.`\
+**Covid Ravaged South America. Then Came a Sharp Drop in Infections.**\
+`South America was the epicenter of the Covid-19 pandemic early this year. Experts are trying to find out why new infections and deaths are falling so fast.`\
 https://nytimes.com/2021/09/05/world/americas/covid-south-america-reprieve-vaccines.html?searchResultPosition=4
 
 **Thai Protesters Condemn Lagging Government Covid Response**\
