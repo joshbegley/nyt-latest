@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/05/briefing/your-monday-briefing.html?searchResultPo
 
 **U.S. Citizens and Afghans Wait for Evacuation Flights From Country’s North**\
 `The Taliban have left hundreds of people stranded in Afghanistan awaiting approval for departure.`\
-https://nytimes.com/2021/09/05/world/europe/us-citizens-and-afghans-wait-for-evacuation-flights-from-countrys-north.html?searchResultPosition=2
+https://nytimes.com/2021/09/05/world/europe/afghanistan-us-citizens-taliban.html?searchResultPosition=2
 
 **Back on the Trail, Sanders Campaigns for a Legislative Legacy**\
 `Senator Bernie Sanders is barnstorming the country again, but not for the presidency. Instead, he’s making the case for a $3.5 trillion bill that would be a once-in-a generation achievement.`\
