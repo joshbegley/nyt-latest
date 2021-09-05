@@ -1,5 +1,5 @@
-**Lawyer Is Shot Months After His Wife and Son Were Killed**\
-`Alex Murdaugh, the descendant of a prominent family of lawyers in rural South Carolina, was shot on Saturday, nearly three months after his wife and son were killed at their home in an unsolved murder.`\
+**Lawyer Is Shot Months After Unsolved Killing of His Wife and Son**\
+`Alex Murdaugh, the descendant of a prominent family of lawyers in rural South Carolina, was shot on Saturday, nearly three months after his wife and son were killed at their home.`\
 https://nytimes.com/2021/09/04/us/Alex-Murdaugh-shot-south-carolina.html?searchResultPosition=1
 
 **Why Does Playing Tennis Make So Many Pros Miserable?**\
