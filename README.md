@@ -15,7 +15,7 @@ https://nytimes.com/2021/09/05/crosswords/daily-puzzle-2021-09-06.html?searchRes
 https://nytimes.com/video/world/africa/100000007957602/guinea-military-coup-president-seized.html?searchResultPosition=4
 
 **Brazil-Argentina Match Stopped After Health Officials Storm Field**\
-`After a disagreement about quarantine rules, a high-profile match was interrupted in the first half amid threats to deport four Argentine players.`\
+`After a disagreement about quarantine rules, a high-profile match was interrupted by government officials seeking to deport four Argentine players.`\
 https://nytimes.com/2021/09/05/sports/soccer/brazil-argentina-suspended.html?searchResultPosition=5
 
 **Since a National Title, Some Very Difficult Days at L.S.U.**\
