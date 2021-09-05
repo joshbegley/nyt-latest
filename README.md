@@ -18,9 +18,9 @@ https://nytimes.com/2021/09/05/arts/tefaf-online-art-fair.html?searchResultPosit
 `Dealers in rare books and manuscripts discuss the challenges and benefits of showing their works online and share advice for new collectors.`\
 https://nytimes.com/2021/09/05/arts/tefaf-rare-books.html?searchResultPosition=5
 
-**On Grand Isle, a Fragile Spot Off Louisiana, Buildings Destroyed**\
+**On Grand Isle, a Fragile Spot Off Louisiana, Vast Damage**\
 `A tiny barrier island already endangered by sea level rise was pounded by Hurricane Ida. Most buildings were significantly damaged, many irreparably.`\
-https://nytimes.com/2021/09/05/us/on-grand-isle-a-fragile-spot-off-louisiana-buildings-destroyed.html?searchResultPosition=6
+https://nytimes.com/2021/09/05/us/on-grand-isle-a-fragile-spot-off-louisiana-vast-damage.html?searchResultPosition=6
 
 **Thai Protesters Are Back, and Angrier, as Government Fumbles on Covid**\
 `With more than 12,000 dead, few vaccinated and the economy in shambles, demonstrations against the authorities have become a daily event.`\
