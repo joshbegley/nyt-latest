@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/06/sports/tennis/mardy-fish-naomi-osaka-netflix.html
 
 **As Afghan Refugee Crisis Unfolds, Survivors Recall ‘Miracle’ Evacuation**\
 `The U.S. military evacuated 91,000 people out of a North Korean port in 1950. By some estimates, it was the single largest wartime refugee evacuation in American history until Afghanistan.`\
-https://nytimes.com/2021/09/05/world/asia/korean-war-evacuation-afghanistan.html?searchResultPosition=6
+https://nytimes.com/2021/09/06/world/asia/korean-war-evacuation-afghanistan.html?searchResultPosition=6
 
 **No Corrections: Sept. 6, 2021**\
 `No corrections appeared in print on Monday, Sept. 6, 2021.`\
