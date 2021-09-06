@@ -15,7 +15,7 @@ https://nytimes.com/slideshow/2021/09/06/realestate/what-you-get-for-4-8-million
 https://nytimes.com/2021/09/06/us/oregon-idaho-icu-beds.html?searchResultPosition=4
 
 **For U.S. Men, Two Games and No Wins Add Up to Concern**\
-`After settling for disappointing draws in its first two World Cup qualifiers, the U.S. heads to Honduras in search of answers, and its first victory.`\
+`After settling for disappointing draws in its first two World Cup qualifiers, the U.S. men’s soccer team heads to Honduras in search of answers, and its first victory.`\
 https://nytimes.com/2021/09/06/sports/soccer/usmnt-canada-world-cup-qualifying.html?searchResultPosition=5
 
 **The Ethereal Taste of Flowers**\
