@@ -2,7 +2,7 @@
 `In movies as different as “King Richard,” about Venus and Serena Williams’s father, and “Petite Maman,” filmmakers can’t stop thinking about children.`\
 https://nytimes.com/2021/09/06/movies/telluride-film-festival.html?searchResultPosition=1
 
-**Unemployment Benefits Expire for Millions Without Pushback from Biden**\
+**Unemployment Benefits Expire for Millions Without Pushback From Biden**\
 `The president has encouraged some states to continue helping the long-term unemployed, but administration officials say it was time for enhanced federal aid to end.`\
 https://nytimes.com/2021/09/06/business/economy/unemployment-benefits.html?searchResultPosition=2
 
