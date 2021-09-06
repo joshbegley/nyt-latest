@@ -1,40 +1,40 @@
-**They Put Everything Into Their Homes. Not One Was Spared in the Flood.**\
-`The record rainfall from Hurricane Ida appeared to damage every home on one block in Queens, where some families had lived for decades.`\
-https://nytimes.com/2021/09/06/nyregion/queens-flooding-cleanup.html?searchResultPosition=1
+**A New Way to Look at Furniture in Milan**\
+`A special edition of the Milan Furniture Fair, called Supersalone, turns pandemic constraints into a chance for innovation and anchors a five-day design celebration throughout the city.`\
+https://nytimes.com/2021/09/06/arts/furniture-show-milan-supersalone.html?searchResultPosition=1
 
-**Americans Stretch Across Political Divides to Welcome Afghan Refugees**\
-`“Even the most right-leaning isolationists” are coming forward to help those fleeing Afghanistan, a pastor said. A mass mobilization is underway.`\
-https://nytimes.com/2021/09/06/us/afghan-refugees-volunteers.html?searchResultPosition=2
+**Is the Party Over or About to Begin?**\
+`In an era of uncertainty, it’s hard to say whether the good times have passed us by or are just around the corner.`\
+https://nytimes.com/2021/09/06/t-magazine/parties-twenties-pandemic-quarantine.html?searchResultPosition=2
 
-**Selling Hot New Cars at Pebble Beach, the Land of Classics**\
-`There’s money in the air at Monterey Car Week, so where better to sell a rare new Bugatti or Ferrari?`\
-https://nytimes.com/2021/09/06/business/pebble-beach-new-cars.html?searchResultPosition=3
+**The Strange Tale of the Freedom Phone, a Smartphone for Conservatives**\
+`A 22-year-old Bitcoin millionaire wants Republicans to ditch their iPhones for a low-end handset that he hopes to turn into a political tool.`\
+https://nytimes.com/2021/09/06/technology/freedom-phone-smartphone-conservatives.html?searchResultPosition=3
 
-**A Century Ago, Miners Fought in a Bloody Uprising. Few Know About It Today.**\
-`At the Battle of Blair Mountain, thousands of miners clashed with sheriff’s deputies in the largest insurrection since the Civil War.`\
-https://nytimes.com/2021/09/06/us/coal-miners-blair-mountain.html?searchResultPosition=4
+**A Personal Pilgrimage to a Downed Warplane in Papua New Guinea**\
+`Thirty-three years after his first visit to the site, a photographer traveled to a remote jungle in search of a World War II plane that crashed there in 1944.`\
+https://nytimes.com/2021/09/06/travel/papua-new-guinea-plane-crash-site.html?searchResultPosition=4
 
-**For a Second Year, Jews Mark the High Holy Days in the Shadow of Covid**\
-`Many synagogues are holding in-person services, but some are requiring worshipers to show proof of vaccination and to wear masks.`\
-https://nytimes.com/2021/09/06/nyregion/nyc-jewish-high-holy-days.html?searchResultPosition=5
+**The Broadway Star Who Became One of His Generation’s Most In-Demand Voices**\
+`Whether he’s originating roles in musicals or on “Gossip Girl,” Adam Chanler-Berat brings range — and realism — as a new kind of character actor.`\
+https://nytimes.com/2021/09/06/t-magazine/adam-chanler-berat-gossip-girl.html?searchResultPosition=5
 
-**We’ll Give You a Week Off. Please Don’t Quit.**\
-`“Operation Chillax”: Companies are trying to combat burnout from working remotely by offering more time off and other perks.`\
-https://nytimes.com/2021/09/06/business/media/burn-out-companies-pandemic.html?searchResultPosition=6
+**As Migrants Surge Toward Border, Court Hands Biden a Lifeline**\
+`Desperate to control the unrelenting buildup on the border, Biden administration officials turn their focus to deterring migration, dashing hopes of asylum seekers.`\
+https://nytimes.com/2021/09/06/world/americas/mexico-migrants-asylum-border.html?searchResultPosition=6
 
-**Why You Might Not Be Returning to the Office Until Next Year**\
-`After the Delta variant disrupted plans to reopen after Labor Day, many businesses pushed their targets further out or left them open-ended.`\
-https://nytimes.com/2021/09/06/business/rto-return-to-office.html?searchResultPosition=7
+**Shopping for Room Dividers**\
+`If you don’t own a folding screen and you’re working from home, you may want to get one. Here’s why.`\
+https://nytimes.com/2021/09/06/realestate/shopping-room-dividers.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/06/crosswords/spelling-bee-2021-09-06.html?searchResultPosition=8
+**Black Vulture Attacks on Animals May Be Increasing**\
+`But some bird experts say reports of increasing predation by black vultures in the Midwest may be overblown.`\
+https://nytimes.com/2021/09/06/science/vultures-animal-attacks.html?searchResultPosition=8
 
-**Jacob Zuma, South Africa’s Former President, Is Granted Medical Parole**\
-`The leader of the political opposition called the move by the country’s correctional department “entirely unlawful.”`\
-https://nytimes.com/2021/09/06/world/africa/south-africa-jacob-zuma-medical-parole.html?searchResultPosition=9
+**History Can Close in on Us Awfully Fast**\
+`Whether it’s in Texas, New York or anywhere else. `\
+https://nytimes.com/2021/09/06/opinion/texas-abortion-september-11.html?searchResultPosition=9
 
-**What’s on TV This Week: 9/11 Specials and ‘American Crime Story’**\
-`Several networks will air specials timed to the 20th anniversary of Sept. 11. And “American Crime Story” will return for a third season.`\
-https://nytimes.com/2021/09/06/arts/television/whats-on-tv-this-week-9-11-specials-and-american-crime-story.html?searchResultPosition=10
+**Can Anyone in the N.F.C. Stop Tom Brady and the Bucs From Repeating?**\
+`Tampa Bay returns much of its Super Bowl-winning roster, but Aaron Rodgers and Davante Adams have Jordan-and-Pippen-style title dreams for Green Bay.`\
+https://nytimes.com/2021/09/06/sports/football/nfl-preview-nfc-predictions.html?searchResultPosition=10
 
