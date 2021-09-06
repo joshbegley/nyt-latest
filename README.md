@@ -1,4 +1,4 @@
-**Manhunt Underway After 6 Palestinians Escape Israeli Jail**\
+**Manhunt Underway After 6 Palestinians Escape Israeli Prison**\
 `Four of the fugitives had been convicted of terror offenses and were serving at least two life sentences, while legal proceedings continued for the other two.`\
 https://nytimes.com/2021/09/06/world/middleeast/palestinians-escape-prison-israel.html?searchResultPosition=1
 
