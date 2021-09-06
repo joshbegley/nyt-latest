@@ -1,4 +1,4 @@
-**Taliban Claim Control Over Panjshir Valley; Resistance Vows to Fight On**\
+**Taliban Claim Control Over Panjshir Valley, but Resistance Vows to Fight On**\
 `Militants posted images apparently taken in Bazarak, the capital of Panjshir Province in Afghanistan, where opposition forces have fought against their rule.`\
 https://nytimes.com/2021/09/06/world/asia/afghanistan-panjshir-taliban-resistance.html?searchResultPosition=1
 
