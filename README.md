@@ -6,8 +6,8 @@ https://nytimes.com/2021/09/06/sports/olympics/tokyo-paralympics-olympics-photos
 `According to a transcript released Friday, a member of the Minnesota State Patrol said there was “a purge of emails and text messages” after troopers responded to protests in Minneapolis last year.`\
 https://nytimes.com/2021/09/06/us/mn-state-patrol-texts-emails-lawsuit.html?searchResultPosition=2
 
-**Michael K. Williams, Omar From ‘The Wire,’ Is Dead at 54**\
-`Mr. Williams, who also starred in “Boardwalk Empire” and “Lovecraft Country,” was best known for his role as Omar Little in the HBO series.`\
+**Michael K. Williams, ‘The Wire’ Actor, Is Dead at 54**\
+`Mr. Williams, who also starred in “Boardwalk Empire” and “Lovecraft Country,” was perhaps best known for his role as Omar Little in the David Simon HBO series.`\
 https://nytimes.com/2021/09/06/arts/michael-k-williams-dead.html?searchResultPosition=3
 
 **A Flood of New Hall of Famers, Followed by a Grinding Halt**\
