@@ -1,40 +1,40 @@
+**They Put Everything Into Their Homes. Not One Was Spared in the Flood.**\
+`The record rainfall from Hurricane Ida appeared to damage every home on one block in Queens, where some families had lived for decades.`\
+https://nytimes.com/2021/09/06/nyregion/queens-flooding-cleanup.html?searchResultPosition=1
+
+**Americans Stretch Across Political Divides to Welcome Afghan Refugees**\
+`“Even the most right-leaning isolationists” are coming forward to help those fleeing Afghanistan, a pastor said. A mass mobilization is underway.`\
+https://nytimes.com/2021/09/06/us/afghan-refugees-volunteers.html?searchResultPosition=2
+
+**Selling Hot New Cars at Pebble Beach, the Land of Classics**\
+`There’s money in the air at Monterey Car Week, so where better to sell a rare new Bugatti or Ferrari?`\
+https://nytimes.com/2021/09/06/business/pebble-beach-new-cars.html?searchResultPosition=3
+
+**A Century Ago, Miners Fought in a Bloody Uprising. Few Know About It Today.**\
+`At the Battle of Blair Mountain, thousands of miners clashed with sheriff’s deputies in the largest insurrection since the Civil War.`\
+https://nytimes.com/2021/09/06/us/coal-miners-blair-mountain.html?searchResultPosition=4
+
+**For a Second Year, Jews Mark the High Holy Days in the Shadow of Covid**\
+`Many synagogues are holding in-person services, but some are requiring worshipers to show proof of vaccination and to wear masks.`\
+https://nytimes.com/2021/09/06/nyregion/nyc-jewish-high-holy-days.html?searchResultPosition=5
+
+**We’ll Give You a Week Off. Please Don’t Quit.**\
+`“Operation Chillax”: Companies are trying to combat burnout from working remotely by offering more time off and other perks.`\
+https://nytimes.com/2021/09/06/business/media/burn-out-companies-pandemic.html?searchResultPosition=6
+
+**Why You Might Not Be Returning to the Office Until Next Year**\
+`After the Delta variant disrupted plans to reopen after Labor Day, many businesses pushed their targets further out or left them open-ended.`\
+https://nytimes.com/2021/09/06/business/rto-return-to-office.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2021/09/06/crosswords/spelling-bee-2021-09-06.html?searchResultPosition=8
+
 **Jacob Zuma, South Africa’s Former President, Is Granted Medical Parole**\
 `The leader of the political opposition called the move by the country’s correctional department “entirely unlawful.”`\
-https://nytimes.com/2021/09/06/world/africa/south-africa-jacob-zuma-medical-parole.html?searchResultPosition=1
+https://nytimes.com/2021/09/06/world/africa/south-africa-jacob-zuma-medical-parole.html?searchResultPosition=9
 
 **What’s on TV This Week: 9/11 Specials and ‘American Crime Story’**\
 `Several networks will air specials timed to the 20th anniversary of Sept. 11. And “American Crime Story” will return for a third season.`\
-https://nytimes.com/2021/09/06/arts/television/whats-on-tv-this-week-9-11-specials-and-american-crime-story.html?searchResultPosition=2
-
-**Why Ukraine’s Small Paralympic Team Packs Such a Big Punch**\
-`The Ukrainians finished fifth in the overall medal standings in Tokyo with 98, just six fewer than the United States, despite having a much smaller delegation.`\
-https://nytimes.com/2021/09/06/sports/olympics/ukraine-paralympics-medals.html?searchResultPosition=3
-
-**Told to ‘Find Arthur,’ I Stumbled Upon My Future at the U.S. Open**\
-`A father-son tournament gave our columnist almost unfettered access to players at the 1983 U.S. Open, changing the course of his life.`\
-https://nytimes.com/2021/09/06/sports/tennis/us-open-arthur-ashe.html?searchResultPosition=4
-
-**Mardy Fish Can Relate to What Naomi Osaka Is Going Through**\
-`Anxiety forced Fish to withdraw from the 2012 U.S. Open. Now he is open about his mental health and works with the U.S.T.A. to provide more resources for players.`\
-https://nytimes.com/2021/09/06/sports/tennis/mardy-fish-naomi-osaka-netflix.html?searchResultPosition=5
-
-**As Afghan Refugee Crisis Unfolds, Survivors Recall ‘Miracle’ Evacuation**\
-`The U.S. military evacuated 91,000 people out of a North Korean port in 1950. By some estimates, it was the single largest wartime refugee evacuation in American history until Afghanistan.`\
-https://nytimes.com/2021/09/06/world/asia/korean-war-evacuation-afghanistan.html?searchResultPosition=6
-
-**No Corrections: Sept. 6, 2021**\
-`No corrections appeared in print on Monday, Sept. 6, 2021.`\
-https://nytimes.com/2021/09/05/pageoneplus/no-corrections-sept-6-2021.html?searchResultPosition=7
-
-**Your Monday Briefing**\
-`Covid-19 deaths surge in the U.S.`\
-https://nytimes.com/2021/09/05/briefing/coronavirus-nicaragua-france-russia.html?searchResultPosition=8
-
-**Caldor Fire’s March to the Edge of South Lake Tahoe**\
-`The Caldor fire is now the second-largest fire actively burning in California, a state that sets new records for wildfires each year.`\
-https://nytimes.com/interactive/2021/09/05/us/caldor-fire-lake-tahoe.html?searchResultPosition=9
-
-**‘Billions’ Recap, Season 5, Episode 8: Back in Business**\
-`Chuck returns minus a beard and a lover. Axe returns minus the good sense to leave well enough alone.`\
-https://nytimes.com/2021/09/05/arts/television/billions-recap-season-5-episode-8-back-in-business.html?searchResultPosition=10
+https://nytimes.com/2021/09/06/arts/television/whats-on-tv-this-week-9-11-specials-and-american-crime-story.html?searchResultPosition=10
 
