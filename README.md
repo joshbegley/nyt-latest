@@ -1,6 +1,6 @@
 **Jean-Paul Belmondo, Magnetic Star of the French New Wave, Dies at 88**\
 `He was compared to Marlon Brando and James Dean for his acclaimed portrayals of tough, alienated characters, most memorably in Godard’s “Breathless.”`\
-https://nytimes.com/2021/09/06/obituaries/jean-paul-belmondo-magnetic-star-of-the-french-new-wave-dies-at-88.html?searchResultPosition=1
+https://nytimes.com/2021/09/06/movies/jean-paul-belmondo-dead.html?searchResultPosition=1
 
 **A Stew for Labor Day**\
 `Try a luscious recipe for Jamaican oxtail stew, or get to grilling for the holiday.`\
