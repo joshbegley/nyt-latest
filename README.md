@@ -15,7 +15,7 @@ https://nytimes.com/2021/09/06/opinion/religious-exemptions-vaccine-mandates.htm
 https://nytimes.com/2021/09/06/movies/telluride-film-festival.html?searchResultPosition=4
 
 **Unemployment Benefits Expire for Millions Without Pushback From Biden**\
-`The president has encouraged some states to continue helping the long-term unemployed, but administration officials say it was time for enhanced federal aid to end.`\
+`The president has encouraged some states to continue helping the long-term unemployed, but administration officials said it was time for enhanced federal aid to end.`\
 https://nytimes.com/2021/09/06/business/economy/unemployment-benefits.html?searchResultPosition=5
 
 **New York and New Jersey Residents to Receive Federal Aid After Storm**\
