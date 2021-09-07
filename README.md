@@ -22,19 +22,19 @@ https://nytimes.com/2021/09/07/world/asia/taliban-women-protest-kabul-afghanista
 `Ahead of President Biden's visit, the governors of New York and New Jersey announced that they had been granted storm-recovery funds.`\
 https://nytimes.com/2021/09/07/nyregion/biden-visit-new-york.html?searchResultPosition=6
 
+**Biden’s Electric Car Plans Hinge on Having Enough Chargers**\
+`The United States has about 100,000 public chargers, far fewer than Europe and China. It needs 10 times as many, auto experts say, to complete the switch from combustion engine vehicles.`\
+https://nytimes.com/2021/09/07/business/energy-environment/electric-vehicle-charging-stations.html?searchResultPosition=7
+
 **She’s Green. She’s Young. And She Wants to Change Germany.**\
 `Annalena Baerbock, the 40-year-old candidate for the Green Party, is likely to have a say in Germany’s next government, no matter who wins this month’s election.`\
-https://nytimes.com/2021/09/07/world/europe/annalena-baerbock-germany-greens-chancellor.html?searchResultPosition=7
+https://nytimes.com/2021/09/07/world/europe/annalena-baerbock-germany-greens-chancellor.html?searchResultPosition=8
 
 **The Tragedy of America’s Rural Schools**\
 `Outdated textbooks, not enough teachers, no ventilation – for millions of kids like Harvey Ellington, the public-education system has failed them their whole lives.`\
-https://nytimes.com/2021/09/07/magazine/rural-public-education.html?searchResultPosition=8
+https://nytimes.com/2021/09/07/magazine/rural-public-education.html?searchResultPosition=9
 
 **Biden is set to visit storm-ravaged areas of New York and New Jersey.**\
 `The president’s trip is expected to include a stop in Queens, where several people were killed in basement apartments that were flooded by the remnants of Hurricane Ida.`\
-https://nytimes.com/2021/09/07/us/biden-visit-new-york-new-jersey-ida.html?searchResultPosition=9
-
-**Biden’s Electric Car Plans Hinge on Having Enough Chargers**\
-`The United States has about 100,000 public chargers, far fewer than Europe and China. It needs 10 times as many, auto experts say, to complete the switch from combustion engine vehicles.`\
-https://nytimes.com/2021/09/07/business/energy-environment/electric-vehicle-charging-stations.html?searchResultPosition=10
+https://nytimes.com/2021/09/07/us/biden-visit-new-york-new-jersey-ida.html?searchResultPosition=10
 
