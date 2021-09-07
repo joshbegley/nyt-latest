@@ -2,7 +2,7 @@
 `This reboot of the 1980s hit is still nostalgic, but it pushes Hill to confront themes that his previous TV parts have rarely allowed.`\
 https://nytimes.com/2021/09/07/arts/television/dule-hill-wonder-years.html?searchResultPosition=1
 
-**A global network of activists call for November U.N. climate talks to be postponed over pandemic concerns.**\
+**A global network of activists calls for November U.N. climate talks to be postponed over pandemic concerns.**\
 `The Climate Action Network said coronavirus conditions would mean many representatives would not be able to attend the annual conference, set this year for Scotland.`\
 https://nytimes.com/2021/09/07/world/un-climate-talks-pandemic.html?searchResultPosition=2
 
