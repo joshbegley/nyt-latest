@@ -26,7 +26,7 @@ https://nytimes.com/2021/09/07/realestate/house-hunting-is-this-price-right.html
 `If you’ve started, tell us about your experience. If you haven’t, tell us what you’re looking forward to, and what you’re not.`\
 https://nytimes.com/2021/09/07/learning/whats-it-like-to-be-back-in-school.html?searchResultPosition=7
 
-**Defying Violence, Women Join in Protest Against the Taliban**\
+**Defying Threat of Violence, Women Join in Protest Against the Taliban**\
 `In their latest demonstration, women in Kabul called for their rights to be respected. The protest was once again broken up by force, in a sign that the Taliban will not tolerate peaceful dissent in Afghanistan.`\
 https://nytimes.com/2021/09/07/world/asia/taliban-women-protest-kabul-afghanistan.html?searchResultPosition=8
 
