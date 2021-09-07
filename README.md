@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/07/world/middleeast/afghanistan-qatar-airlift.html?s
 `During the pandemic they helped by sewing cloth masks and surgical gowns. Now, they are back in a frenzy to make theater sparkle.`\
 https://nytimes.com/2021/09/07/theater/broadway-costume-shops.html?searchResultPosition=4
 
-**Prices are Going Up. Will It Last?**\
+**Prices are Going Up. Will It Last? **\
 `You may have noticed that you’re paying more for lots of things. Inflation has become a hot topic, but the question is whether it will last.`\
 https://nytimes.com/interactive/2021/09/07/business/economy/consumer-prices.html?searchResultPosition=5
 
