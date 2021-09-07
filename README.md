@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/07/science/food-labels-lawsuits.html?searchResultPos
 
 **In Global First, El Salvador Adopts Bitcoin as Currency**\
 `President Nayib Bukele has promoted the cryptocurrency as a path to financial freedom, but economic experts and many Salvadorans worry the move brings great risks.`\
-https://nytimes.com/2021/09/07/world/americas/in-global-first-el-salvador-adopts-bitcoin-as-currency.html?searchResultPosition=3
+https://nytimes.com/2021/09/07/world/americas/el-salvador-bitcoin.html?searchResultPosition=3
 
 **The Masked Professor vs. the Unmasked Student**\
 `At universities, some instructors are finding the return to the classroom a nerve-racking experience. A few have quit — one in the middle of class.`\
