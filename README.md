@@ -1,6 +1,6 @@
 **9/11 Reflections: We’d Like to Hear From You**\
 `We ask readers how the attack affected them.`\
-https://nytimes.com/2021/09/07/opinion/letters/9-11-reflections-wed-like-to-hear-from-you.html?searchResultPosition=1
+https://nytimes.com/2021/09/07/opinion/letters/9-11-reflections.html?searchResultPosition=1
 
 **Abbott Signs Texas Election Law, Ending a Fierce Voting Rights Battle**\
 `Gov. Greg Abbott called the law, which will sharply curtail access to the ballot in Texas, a “paradigm” for other states looking to pass election bills.`\
