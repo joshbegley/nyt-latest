@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/06/us/alex-murdaugh-murders-law-firm.html?searchResu
 `There are currently 14 men in the top 100, the most since 1996, but none in the top 20. While the United States may not have any truly elite players right now, it does have youth.`\
 https://nytimes.com/2021/09/06/sports/tennis/us-open-men-opelka-brooksby-tiafoe.html?searchResultPosition=2
 
-**Tributes to Michael K. Williams, an Actor Who Gave ‘Voice to the Human Condition’**\
+**Tributes to Michael K. Williams, Actor Who Gave ‘Voice to the Human Condition’**\
 `From co-stars of “The Wire” to musicians and authors, many took to social media on Monday to share their thoughts about the actor.`\
 https://nytimes.com/2021/09/06/arts/television/michael-williams-reactions.html?searchResultPosition=3
 
