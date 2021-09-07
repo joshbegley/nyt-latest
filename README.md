@@ -26,15 +26,15 @@ https://nytimes.com/2021/09/07/t-magazine/carla-sozzani-home-design.html?searchR
 `Recent commercial real estate transactions in New York.`\
 https://nytimes.com/2021/09/07/business/new-york-commercial-real-estate.html?searchResultPosition=7
 
+**A Vietnamese court sentences a man to five years in prison for breaking coronavirus rules.**\
+`The man failed to self-quarantine as required after returning home from Ho Chi Minh City and did not report his travel history on official forms, a state-run newspaper said, and one of the people he infected died.`\
+https://nytimes.com/2021/09/07/world/vietnam-man-covid-rules-prison.html?searchResultPosition=8
+
 **NASA’s Perseverance Rover Stashes First Mars Rock Sample**\
 `The rock, sealed in a tube, is the first of many the robotic explorer will collect to one day send back to Earth for scientists to study.`\
-https://nytimes.com/2021/09/07/science/nasa-mars-rock-sample.html?searchResultPosition=8
+https://nytimes.com/2021/09/07/science/nasa-mars-rock-sample.html?searchResultPosition=9
 
 **September Will Be Hot. Here’s How to Protect Your Pets (and Yourself).**\
 `Extreme temperatures can be deadly.`\
-https://nytimes.com/2021/09/07/us/keep-pets-safe-heat-wave.html?searchResultPosition=9
-
-**Where Diversity Still Disappoints**\
-`Black directors have held only 1 percent of board seats at private companies backed by top venture capital and private equity firms.`\
-https://nytimes.com/2021/09/07/business/dealbook/corporate-diversity.html?searchResultPosition=10
+https://nytimes.com/2021/09/07/us/keep-pets-safe-heat-wave.html?searchResultPosition=10
 
