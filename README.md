@@ -1,5 +1,5 @@
 **Alphonso David, Who Advised Cuomo, Fired as Human Rights Campaign President**\
-`Mr. David, who previously worked as a lawyer for former Gov. Andrew Cuomo, was identified in a report as having advised Mr. Cuomo on how to handle sex harassment allegations.`\
+`Mr. David, who previously worked as a lawyer for Andrew Cuomo, was identified in a report as having advised the former governor on how to handle sex harassment allegations.`\
 https://nytimes.com/2021/09/06/us/politics/alphonso-david-human-rights-campaign-cuomo.html?searchResultPosition=1
 
 **Your Tuesday Briefing**\
