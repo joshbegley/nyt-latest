@@ -1,40 +1,40 @@
-**Warning of Income Gap, Xi Tells China’s Tycoons to Share Wealth**\
-`As the country’s leader prepares for a likely third term, he is promising “common prosperity” to lift farmers and working families into the middle class.`\
-https://nytimes.com/2021/09/07/world/asia/china-xi-common-prosperity.html?searchResultPosition=1
+**She’s Green. She’s Young. And She Wants to Change Germany.**\
+`Annalena Baerbock, the 40-year-old candidate for the Green Party, is likely to have a say in Germany’s next government, no matter who wins this month’s election.`\
+https://nytimes.com/2021/09/07/world/europe/annalena-baerbock-germany-greens-chancellor.html?searchResultPosition=1
 
-**Lawsuits Over ‘Misleading’ Food Labels Surge as Groups Cite Lax U.S. Oversight**\
-`A flurry of litigation by advocacy groups seeks to combat what they say is a rise in deceptive marketing by food giants.`\
-https://nytimes.com/2021/09/07/science/food-labels-lawsuits.html?searchResultPosition=2
+**The Tragedy of America’s Rural Schools**\
+`Outdated textbooks, not enough teachers, no ventilation – for millions of kids like Harvey Ellington, the public-education system has failed them their whole lives.`\
+https://nytimes.com/2021/09/07/magazine/rural-public-education.html?searchResultPosition=2
 
-**In Global First, El Salvador Adopts Bitcoin as Currency**\
-`President Nayib Bukele has promoted the cryptocurrency as a path to financial freedom, but economic experts and many Salvadorans worry the move brings great risks.`\
-https://nytimes.com/2021/09/07/world/americas/el-salvador-bitcoin.html?searchResultPosition=3
+**Biden is set to visit storm-ravaged areas of New York and New Jersey.**\
+`The president’s trip is expected to include a stop in Queens, where several people were killed in basement apartments that were flooded by the remnants of Hurricane Ida.`\
+https://nytimes.com/2021/09/07/us/biden-visit-new-york-new-jersey-ida.html?searchResultPosition=3
 
-**The Masked Professor vs. the Unmasked Student**\
-`At universities, some instructors are finding the return to the classroom a nerve-racking experience. A few have quit — one in the middle of class.`\
-https://nytimes.com/2021/09/07/us/masks-professor-student-delta.html?searchResultPosition=4
+**Biden’s Electric Car Plans Hinge on Having Enough Chargers**\
+`The United States has about 100,000 public chargers, far fewer than Europe and China. It needs 10 times as many, auto experts say, to complete the switch from combustion engine vehicles.`\
+https://nytimes.com/2021/09/07/business/energy-environment/electric-vehicle-charging-stations.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/07/crosswords/spelling-bee-2021-09-07.html?searchResultPosition=5
+**Before Renovating, They Had to Get Rid of the Current Occupants: Mice**\
+`Some $40,000 later, they could finally start thinking about updating the house they bought in Farmington, Conn.`\
+https://nytimes.com/2021/09/07/realestate/before-renovating-they-had-to-get-rid-of-the-current-occupants-mice.html?searchResultPosition=5
 
-**One Great Summer Memory**\
-`Tell us about one wonderful moment, big or small, from the summer of 2021.`\
-https://nytimes.com/2021/09/07/learning/one-great-summer-memory.html?searchResultPosition=6
+**A Connecticut Home With No Uninvited Guests**\
+`After spending $40,000 to get rid of an army of mice, they could finally start thinking about updating their new house.`\
+https://nytimes.com/slideshow/2021/09/07/realestate/a-connecticut-home-with-no-uninvited-guests.html?searchResultPosition=6
 
-**Supermodels Speak Out Against Sexual Harassment**\
-`As former models prepare to offer testimony against Gérald Marie, their former agency boss, big names like Carla Bruni, Paulina Porizkova and Karen Elson are offering their support.`\
-https://nytimes.com/2021/09/07/style/naomi-campbell-carla-bruni-models-harassment.html?searchResultPosition=7
+**Veterans Struggle With Issues That Are Often Invisible to Others**\
+`Those who served in the wars that began after Sept. 11, 2001, are struggling with health problems, trauma and feelings of displacement and alienation.`\
+https://nytimes.com/2021/09/07/us/politics/afghan-war-veterans.html?searchResultPosition=7
 
-**Word of the Day: deft**\
-`This word has appeared in 138 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/09/07/learning/word-of-the-day-deft.html?searchResultPosition=8
+**The Trouble With Airports, and How to Fix Them**\
+`With all the aggravation associated with flying these days, airport designers are hoping to calm things down with outdoor spaces, wide-open views, less noise and even foliage.`\
+https://nytimes.com/2021/09/07/travel/airport-design.html?searchResultPosition=8
 
-**Alibaba Manager Accused of Rape Is Released, Adding to China’s #MeToo Debate**\
-`Prosecutors declined to charge the man, who a co-worker said had assaulted her, an allegation that highlighted sexism in the Chinese tech scene.`\
-https://nytimes.com/2021/09/07/business/china-alibaba-rape.html?searchResultPosition=9
+**The Teenagers Are Taking Over Tennis. That Might Not End Well.**\
+`The U.S. Open play of Leylah Fernandez, Carlos Alcaraz and Emma Raducanu has been exhilarating. But if the past is prelude, rough seas are ahead.`\
+https://nytimes.com/2021/09/07/sports/tennis/us-open-raducanu-fernandez-alcaraz-osaka-gauff.html?searchResultPosition=9
 
-**Quotation of the Day: Court Hands Biden Relief From a Migrant Surge**\
-`Quotation of the Day for Tuesday, September 7, 2021.`\
-https://nytimes.com/2021/09/07/todayspaper/quotation-of-the-day-court-hands-biden-relief-from-a-migrant-surge.html?searchResultPosition=10
+**In Silicon Valley, Criminal Prosecutors See No Evil**\
+`The Elizabeth Holmes fraud trial is set to be a major spectacle, but tech executives generally get a pass when it comes to wrongdoing.`\
+https://nytimes.com/2021/09/07/technology/in-silicon-valley-criminal-prosecutors-see-no-evil.html?searchResultPosition=10
 
