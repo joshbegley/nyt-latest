@@ -30,7 +30,7 @@ https://nytimes.com/2021/09/07/sports/tennis/carlos-alcaraz-retires-us-open-quar
 `Signs of old Taliban tactics.`\
 https://nytimes.com/2021/09/07/briefing/taliban-afghanistan-europe-vaccines-merkel.html?searchResultPosition=8
 
-**A large earthquake near Acapulco shakes Mexico’s capital and triggers a tsunami alert.**\
+**A large earthquake near Acapulco shakes Mexico’s capital.**\
 `By Oscar Lopez`\
 https://nytimes.com/2021/09/07/world/americas/mexico-earthquake.html?searchResultPosition=9
 
