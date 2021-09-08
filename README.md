@@ -26,7 +26,7 @@ https://nytimes.com/2021/09/08/learning/word-of-the-day-impetus.html?searchResul
 `“Meanwhile, these poor horses are like: ‘Hey, I have worms — I need that stuff. There are worms in my butt, do you understand?’” Kimmel said.`\
 https://nytimes.com/2021/09/08/arts/television/jimmy-kimmel-ivermectin-covid.html?searchResultPosition=7
 
-**Indonesian Prison Fire Kills at Least 41 People, Most Locked in Cells**\
+**At Least 41 Prisoners, Most Locked in Cells, Die in a Fire in Indonesia**\
 `The blaze at the facility west of Jakarta highlighted the problems of the country’s overburdened correctional system.`\
 https://nytimes.com/2021/09/08/world/asia/indonesia-prison-fire.html?searchResultPosition=8
 
