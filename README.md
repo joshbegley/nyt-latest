@@ -18,7 +18,7 @@ https://nytimes.com/2021/09/07/us/politics/adlai-stevenson-3d-dead.html?searchRe
 `It’s hard to find a single street in the working-class town of Manville that was not severely affected by flooding connected to Hurricane Ida.`\
 https://nytimes.com/2021/09/07/us/manville-nj-ida-biden.html?searchResultPosition=8
 
-**It’s Time for China to Change Its Covid Strategy**\
+**China Doesn’t Want to ‘Live With’ Covid. But It May Have To.**\
 `The benefits of the zero-infections policy have dropped in relation to the costs of implementation, and there are signs it is becoming counterproductive.`\
 https://nytimes.com/2021/09/07/opinion/China-covid-pandemic-delta.html?searchResultPosition=9
 
