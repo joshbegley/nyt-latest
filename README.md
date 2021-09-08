@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘How I Spent My Pandemic Year in a Camper Van’**\
-`In this lesson, students learn about the adventures of a New York Times travel reporter. Then, they plan their own road trip.`\
-https://nytimes.com/2021/09/08/learning/lesson-of-the-day-how-i-spent-my-pandemic-year-in-a-camper-van.html?searchResultPosition=1
+****\
+`Twenty years after 9/11, “Loose Change,” a landmark film for conspiracy theorists, still casts a shadow over our information landscape.`\
+https://nytimes.com/2021/09/08/technology/loose-change-9-11-video.html?searchResultPosition=1
 
-**If You Never Met Your Co-Workers in Person, Did You Even Work There?**\
-`As the pandemic drags on, more people are beginning and leaving new jobs without once seeing their colleagues face-to-face, leading to an easy-come, easy-go attitude toward workplaces.`\
-https://nytimes.com/2021/09/08/business/never-met-co-workers.html?searchResultPosition=2
+**Rebuilding Ground Zero Was a Mess. Lower Manhattan Bloomed Anyway.**\
+`A fraught reconstruction was a missed opportunity, but it helped foster a new urbanism and a broader vision of what a neighborhood can be.`\
+https://nytimes.com/2021/09/08/arts/design/9-11-anniversary-lower-manhattan.html?searchResultPosition=2
 
-**The Mighty Pickup Slims Down**\
-`Small trucks from Ford and Hyundai are joining a growing field of electric models as America’s go-to vehicle adapts to an evolving market.`\
-https://nytimes.com/2021/09/08/business/new-2022-small-pickup-trucks.html?searchResultPosition=3
+****\
+`The legacy of the 2001 attacks for Muslim Americans remains fraught, a story of struggle and of determination.`\
+https://nytimes.com/2021/09/08/us/9-11-american-muslims.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/08/crosswords/spelling-bee-2021-09-08.html?searchResultPosition=4
+**Aid Workers Staying in Taliban-Ruled Afghanistan Tread a Tricky Path**\
+`Afghanistan desperately needs aid. Nonprofits desperately want to provide it. But the aid groups are being tested as never before by the uncertainty that has followed the Taliban takeover.`\
+https://nytimes.com/2021/09/08/world/asia/afghanistan-aid.html?searchResultPosition=4
 
-**Dining Out**\
-`The pandemic has changed the ways we eat in restaurants. Whether you’ve been a customer or a worker, what has your experience been like lately?`\
-https://nytimes.com/2021/09/08/learning/dining-out.html?searchResultPosition=5
+**Branford, Conn.: Where Life Revolves Around the Water**\
+`With its many coves inlets and tiny islands, this shoreline town is popular with those seeking refuge from city life.`\
+https://nytimes.com/2021/09/08/realestate/branford-conn-where-life-revolves-around-the-water.html?searchResultPosition=5
 
-**Word of the Day: impetus**\
-`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/09/08/learning/word-of-the-day-impetus.html?searchResultPosition=6
+**California Recall Vote Could Weaken the State’s Aggressive Climate Policies**\
+`Many Republicans vying to replace Newsom as governor want to roll back the state’s ambitious plans to cut planet-warming emissions, a change with nationwide implications.`\
+https://nytimes.com/2021/09/08/climate/california-recall-newsom-climate.html?searchResultPosition=6
 
-**Jimmy Kimmel Skewers ‘Pan-dimwits’ Taking Horse Dewormer**\
-`“Meanwhile, these poor horses are like: ‘Hey, I have worms — I need that stuff. There are worms in my butt, do you understand?’” Kimmel said.`\
-https://nytimes.com/2021/09/08/arts/television/jimmy-kimmel-ivermectin-covid.html?searchResultPosition=7
+**Living In ... Branford, Conn.**\
+`With its many coves and inlets — and a couple dozen tiny islands — this shoreline town is popular with those seeking refuge from city life.`\
+https://nytimes.com/slideshow/2021/09/08/realestate/living-in-branford-conn.html?searchResultPosition=7
 
-**At Least 41 Prisoners, Most Trapped in Cells, Die in a Fire in Indonesia**\
-`The blaze at the facility west of Jakarta highlighted the problems of the country’s overburdened correctional system.`\
-https://nytimes.com/2021/09/08/world/asia/indonesia-prison-fire.html?searchResultPosition=8
+**Photographs of a Housing Crisis Worsened by Fire**\
+`The photographer Rachel Bujalski traveled to the Oregon towns burned by the Almeda fire last year even before she had an assignment.`\
+https://nytimes.com/2021/09/08/insider/photographs-of-a-housing-crisis-worsened-by-fire.html?searchResultPosition=8
 
-**The N.F.L. Made Some Changes Since the Last Time You Watched**\
-`Unfamiliar jersey numbers, penalties for anything that seems like trash-talking, gambling everywhere. These changes will incite double takes this season.`\
-https://nytimes.com/2021/09/08/sports/nfl-rule-changes.html?searchResultPosition=9
+**Meathead of ‘Ted Lasso’ Wanted to Play Rugby**\
+`Phil Dunster stars as the cocky soccer player Jaime Tart in the popular sitcom.`\
+https://nytimes.com/2021/09/08/style/phil-dunster-ted-lasso-jaime-tart.html?searchResultPosition=9
 
-**Rah, Rah, Room for Improvement**\
-`The Jets and Giants have dismal recent histories pocked by playoff misses and last-place finishes. With new hires and draft picks, and healthy contributors, the only way to go in 2021 is up.`\
-https://nytimes.com/2021/09/08/sports/football/giants-jets-saleh-barkley.html?searchResultPosition=10
+**Playing for Team Logo**\
+`Branded baseball caps are a thing. The bigger the label, the better.`\
+https://nytimes.com/2021/09/08/fashion/mens-style/playing-for-team-logo.html?searchResultPosition=10
 
