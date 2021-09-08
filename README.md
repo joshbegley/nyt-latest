@@ -2,7 +2,7 @@
 `Signs of old Taliban tactics.`\
 https://nytimes.com/2021/09/07/briefing/taliban-afghanistan-europe-vaccines-merkel.html?searchResultPosition=1
 
-**Large Earthquake Near Acapulco Shakes Buildings in Mexico’s Capital**\
+**A large earthquake near Acapulco shakes buildings in Mexico’s capital.**\
 `A 7.1 magnitude earthquake struck near the port city of Acapulco late Tuesday, Mexico’s seismological agency said.`\
 https://nytimes.com/2021/09/07/world/americas/mexico-earthquake.html?searchResultPosition=2
 
