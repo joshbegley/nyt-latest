@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/07/sports/tennis/carlos-alcaraz-retires-us-open-quar
 https://nytimes.com/2021/09/07/briefing/taliban-afghanistan-europe-vaccines-merkel.html?searchResultPosition=2
 
 **A large earthquake near Acapulco shakes Mexico’s capital and triggers a tsunami alert.**\
-`A 7.1 magnitude earthquake struck near the port city of Acapulco late Tuesday, Mexico’s seismological agency said.`\
+`By Oscar Lopez`\
 https://nytimes.com/2021/09/07/world/americas/mexico-earthquake.html?searchResultPosition=3
 
 **Pencils Down!**\
