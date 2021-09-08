@@ -1,5 +1,5 @@
 **On the Scene: A Rosh Hashana Ritual**\
-`Dozens of Jews flocked to the Hudson River on Tuesday where they tossed bread into the water to symbolize throwing away their sins.`\
+`Dozens of Jews flocked to the Hudson River on Tuesday where they tossed bread into the water to symbolize throwing away their sins. `\
 https://nytimes.com/interactive/2021/09/08/nyregion/rosh-hashana-new-york.html?searchResultPosition=1
 
 **Macy’s plans a vaccinated Thanksgiving Day parade that will resume many traditions.**\
