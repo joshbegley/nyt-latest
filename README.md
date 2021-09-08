@@ -12,7 +12,7 @@ https://nytimes.com/2021/09/07/todayspaper/quotation-of-the-day-mexican-court-ru
 
 **Hong Kong Police Arrest Organizers of Tiananmen Square Vigil**\
 `The group, which holds annual events to remember those killed during the 1989 crackdown, had refused to hand over funding details.`\
-https://nytimes.com/2021/09/07/world/asia/hong-kong-tiananmen-square-vigil.html?searchResultPosition=4
+https://nytimes.com/2021/09/08/world/asia/hong-kong-tiananmen-square-vigil.html?searchResultPosition=4
 
 **Wildfire Took These Families’ Homes. Here’s Why They Stay.**\
 `Thousands of homes were destroyed last year in the Almeda Fire — Oregon’s most destructive in years. Many residents are still displaced. What keeps them from leaving? Unbreakable bonds.`\
