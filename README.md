@@ -1,5 +1,5 @@
-**Finau, Schauffele Are Among 6 Picks for U.S. Ryder Cup Team**\
-`The U.S. captain Steve Stricker added six players to a roster that already included stars like Dustin Johnson, Bryson DeChambeau, Brooks Koepka and Justin Thomas.`\
+**Finau and Schauffele Are Among 6 Picks for U.S. Ryder Cup Team**\
+`The U.S. captain, Steve Stricker, completed the 12-man roster, which already included Dustin Johnson, Bryson DeChambeau, Brooks Koepka and Justin Thomas.`\
 https://nytimes.com/2021/09/08/sports/golf/ryder-cup-team-usa.html?searchResultPosition=1
 
 **The top 1 percent are evading $163 billion a year in taxes, the Treasury finds.**\
