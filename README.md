@@ -1,6 +1,6 @@
-**Mexico’s president says there are no immediate reports of serious damage or deaths.**\
-`By Jesus Jiménez`\
-https://nytimes.com/2021/09/07/world/americas/mexicos-president-says-there-are-no-immediate-reports-of-serious-damage-or-deaths.html?searchResultPosition=1
+**Mexico’s president said there are no immediate reports of serious damage or deaths.**\
+`Emergency services in Guerrero said there were reports of power loss and issues with phone service across the state.`\
+https://nytimes.com/2021/09/07/world/americas/mexicos-president-said-there-are-no-immediate-reports-of-serious-damage-or-deaths.html?searchResultPosition=1
 
 **Carlos Alcaraz’s Stirring U.S. Open Run Ends in the Quarterfinals**\
 `Alcaraz, an 18-year-old Spaniard, beat two seeded players in New York but retired with an injury midway through the second set on Tuesday night.`\
