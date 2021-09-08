@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/08/dining/cook-for-those-around-you.html?searchResul
 
 **Abortion Is No Longer a Crime in Mexico. But Most Women Still Can’t Get One.**\
 `The Supreme Court’s decision set a legal precedent for the nation. But applying it to all of Mexico’s states will be a long path and women are still facing prosecution.`\
-https://nytimes.com/2021/09/08/world/americas/abortion-is-no-longer-a-crime-in-mexico-but-most-women-still-cant-get-one.html?searchResultPosition=7
+https://nytimes.com/2021/09/08/world/americas/mexico-abortion-access.html?searchResultPosition=7
 
 **The New Image Makers**\
 `In the world of haute hair, the hairstylists Jenna Perry and Jessica Gillin minister to some of the coolest girls in town.`\
