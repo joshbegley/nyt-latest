@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/08/t-magazine/trancoso-brazil-home-design.html?searc
 `Temperatures are expected to exceed 100 degrees in many parts of the state this week. And a top fire official warned that wildfires would continue to threaten communities for the rest of the year.`\
 https://nytimes.com/2021/09/08/us/california-wildfires-heat-updates.html?searchResultPosition=3
 
-**Trial Over November 2015 Paris Terrorist Attacks Begins**\
+**Trial Begins Over 2015 Paris Terrorist Attacks**\
 `The attacks carried out by Islamic State extremists that killed 130 people deeply rattled France and sent shock waves through Europe. The trial is scheduled to last at least nine months.`\
 https://nytimes.com/2021/09/08/world/europe/paris-terror-attacks-trial.html?searchResultPosition=4
 
