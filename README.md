@@ -18,7 +18,7 @@ https://nytimes.com/2021/09/08/realestate/hoime-prices-minnesota-virginia-and-ca
 `An 1894 Queen Anne Victorian in St. Paul, Minn.; an 1820 expanded farmhouse in Charlottesville, Va.; and a 1908 Craftsman home in Los Angeles.`\
 https://nytimes.com/slideshow/2021/09/08/realestate/what-you-get-for-1-5-million.html?searchResultPosition=5
 
-**From 4% to 45%: Biden Sets an Ambitious Goal for Solar Energy**\
+**From 4% to 45%: Biden Sets an Ambitious Plan for Solar Energy**\
 `The administration has offered only a broad outline of its plan, and many of the details will be decided by congressional lawmakers.`\
 https://nytimes.com/2021/09/08/business/biden-solar-energy-climate-change.html?searchResultPosition=6
 
