@@ -22,15 +22,15 @@ https://nytimes.com/2021/09/08/t-magazine/mens-suits-fall-fashion.html?searchRes
 `The crypto revolution is bringing financial services to the unbanked, but not without risks.`\
 https://nytimes.com/2021/09/08/business/dealbook/crypto-bitcoin-regulation.html?searchResultPosition=6
 
+**Spain authorizes booster vaccine shots for people with weakened immune systems.**\
+`The country joins a growing trend toward extra doses, even as the W.H.O. warns that booster programs could divert supplies needed in poorer countries.`\
+https://nytimes.com/2021/09/08/world/spain-booster-shots-covid.html?searchResultPosition=8
+
 **The ease of mail-in voting may increase turnout in California’s recall election.**\
 `Voting by mail has emerged as a critical factor in the Republican-led recall.`\
-https://nytimes.com/2021/09/08/us/the-ease-of-mail-in-voting-may-increase-turnout-in-californias-recall-election.html?searchResultPosition=8
+https://nytimes.com/2021/09/08/us/the-ease-of-mail-in-voting-may-increase-turnout-in-californias-recall-election.html?searchResultPosition=9
 
 **Elizabeth Holmes’s Theranos Trial: What You Need to Know**\
 `Opening statements begin today.`\
-https://nytimes.com/2021/09/08/us/elizabeth-holmes-trial-theranos.html?searchResultPosition=9
-
-**Senior Russian Minister Dies During Drill**\
-`The government said Yevgeny Zinichev, a longtime Putin aide  responsible for emergency situations, dived off a cliff to save a film director who fell into the water.`\
-https://nytimes.com/2021/09/08/world/europe/Yevgeny-Zinichev-dies-drill-russia.html?searchResultPosition=10
+https://nytimes.com/2021/09/08/us/elizabeth-holmes-trial-theranos.html?searchResultPosition=10
 
