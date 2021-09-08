@@ -1,6 +1,6 @@
 **Bitcoin Is an Official Currency in This Country**\
 `El Salvador recently became the first country to adopt Bitcoin.`\
-https://nytimes.com/interactive/2021/09/08/business/dealbook/07ElSalvador.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/09/08/business/dealbook/el-salvador-bitcoin.html?searchResultPosition=1
 
 **Armed Thieves Steal Jewels From Bulgari Store in Paris**\
 `A suspect is in custody after seven robbers made off with jewelry with an estimated value of millions from the luxury jewelry store in central Paris.`\
