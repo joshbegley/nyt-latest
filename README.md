@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2021/09/07/world/asia/ap-as-japan-nkorea.html?searchResultPosition=1
 
 **Adlai E. Stevenson 3d, Ex-Senator and Scion of Formidable Political Family, Dies at 90**\
-`The Illinois Democrat served a decade in the United States Senate but did not rival the success of his forebearers.`\
+`The Illinois Democrat served a decade in the United States Senate but did not rival the success of his forebears.`\
 https://nytimes.com/2021/09/07/us/politics/adlai-stevenson-3d-dead.html?searchResultPosition=5
 
 **In the flooded New Jersey town that Biden visited, residents feel forgotten.**\
