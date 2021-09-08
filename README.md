@@ -1,4 +1,4 @@
-**More Financial Relief for New Yorkers Recovering From Ida**\
+**More Relief Is on the Way for New Yorkers Recovering From Ida**\
 `The city has eliminated permit fees for rebuilding  homes and teamed up with the Red Cross to put displaced residents  in hotels.`\
 https://nytimes.com/2021/09/08/nyregion/biden-visit-ida-floods.html?searchResultPosition=1
 
