@@ -1,40 +1,40 @@
+**The N.F.L. Made Some Changes Since the Last Time You Watched**\
+`Unfamiliar jersey numbers, penalties for anything that seems like trash-talking, gambling everywhere. These changes will incite double takes this season.`\
+https://nytimes.com/2021/09/08/sports/nfl-rule-changes.html?searchResultPosition=1
+
+**Rah, Rah, Room for Improvement**\
+`The Jets and Giants have dismal recent histories pocked by playoff misses and last-place finishes. With new hires and draft picks, and healthy contributors, the only way to go in 2021 is up.`\
+https://nytimes.com/2021/09/08/sports/football/giants-jets-saleh-barkley.html?searchResultPosition=2
+
+**Lloyd Harris Takes His Long-Distance Fan Club Into the Quarterfinals**\
+`Harris, a South African player, is followed with great excitement in his home city of Cape Town, and specifically at the unique academy that helped launch his career.`\
+https://nytimes.com/2021/09/08/sports/tennis/us-open-lloyd-harris.html?searchResultPosition=3
+
+**Djokovic’s Next Opponents Hope to Channel Their Inner Roberta Vinci**\
+`Don’t remember the name? Vinci was one of the greatest spoilers in tennis history, ending Serena Williams’s Grand Slam hopes in 2015.`\
+https://nytimes.com/2021/09/08/sports/tennis/us-open-serena-williams-roberta-vinci.html?searchResultPosition=4
+
+**Marvel’s Heroes Reflect on 9/11 in New Story**\
+`Captain America and Spider-Man remember those lost on Sept. 11 in an eight-page story that is included in some Marvel comics out Wednesday.`\
+https://nytimes.com/2021/09/08/arts/marvel-new-comic-9-11.html?searchResultPosition=5
+
 **Mexico’s president said there are no immediate reports of serious damage or deaths.**\
 `Emergency services in Guerrero said there were reports of power loss and issues with phone service across the state.`\
-https://nytimes.com/2021/09/07/world/americas/mexicos-president-said-there-are-no-immediate-reports-of-serious-damage-or-deaths.html?searchResultPosition=1
+https://nytimes.com/2021/09/07/world/americas/mexicos-president-said-there-are-no-immediate-reports-of-serious-damage-or-deaths.html?searchResultPosition=6
 
 **Carlos Alcaraz’s Stirring U.S. Open Run Ends in the Quarterfinals**\
 `Alcaraz, an 18-year-old Spaniard, beat two seeded players in New York but retired with an injury midway through the second set on Tuesday night.`\
-https://nytimes.com/2021/09/07/sports/tennis/carlos-alcaraz-retires-us-open-quarterfinals.html?searchResultPosition=2
+https://nytimes.com/2021/09/07/sports/tennis/carlos-alcaraz-retires-us-open-quarterfinals.html?searchResultPosition=7
 
 **Your Wednesday Briefing**\
 `Signs of old Taliban tactics.`\
-https://nytimes.com/2021/09/07/briefing/taliban-afghanistan-europe-vaccines-merkel.html?searchResultPosition=3
+https://nytimes.com/2021/09/07/briefing/taliban-afghanistan-europe-vaccines-merkel.html?searchResultPosition=8
 
 **A large earthquake near Acapulco shakes Mexico’s capital and triggers a tsunami alert.**\
 `By Oscar Lopez`\
-https://nytimes.com/2021/09/07/world/americas/mexico-earthquake.html?searchResultPosition=4
+https://nytimes.com/2021/09/07/world/americas/mexico-earthquake.html?searchResultPosition=9
 
 **Pencils Down!**\
 `Lee Taylor puts in a rush order.`\
-https://nytimes.com/2021/09/07/crosswords/daily-puzzle-2021-09-08.html?searchResultPosition=5
-
-**Britney Spears’s Father Files to End Her Conservatorship**\
-`In a new petition, lawyers for James P. Spears wrote that if the singer “believes that she can handle her own life, Mr. Spears believes that she should get that chance.”`\
-https://nytimes.com/2021/09/07/arts/music/jamie-spears-britney-conservatorship.html?searchResultPosition=6
-
-**Quotation of the Day: Mexican Court Rules Abortion Is Not a Crime**\
-`Quotation of the Day for Wednesday, September 8, 2021.`\
-https://nytimes.com/2021/09/07/todayspaper/quotation-of-the-day-mexican-court-rules-abortion-is-not-a-crime.html?searchResultPosition=7
-
-**Hong Kong Police Arrest Organizers of Tiananmen Square Vigil**\
-`The group, which holds annual events to remember those killed during the 1989 crackdown, had refused to hand over funding details.`\
-https://nytimes.com/2021/09/08/world/asia/hong-kong-tiananmen-square-vigil.html?searchResultPosition=8
-
-**Wildfire Took These Families’ Homes. Here’s Why They Stay.**\
-`Thousands of homes were destroyed last year in the Almeda Fire — Oregon’s most destructive in years. Many residents are still displaced. What keeps them from leaving? Unbreakable bonds.`\
-https://nytimes.com/interactive/2021/09/07/us/oregon-wildfires.html?searchResultPosition=9
-
-**Judge Rejects Turkey’s Claim That Ancient Sculpture Was Looted.**\
-`The marble figure had been displayed publicly for decades in New York before the Turkish government sued for its return.`\
-https://nytimes.com/2021/09/07/arts/design/judge-rejects-Turkey-bid-for-ancient-sculpture.html?searchResultPosition=10
+https://nytimes.com/2021/09/07/crosswords/daily-puzzle-2021-09-08.html?searchResultPosition=10
 
