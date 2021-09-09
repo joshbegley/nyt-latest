@@ -1,4 +1,4 @@
-**‘Football is Like Food’: Afghan Female Soccer Players Find a Home in Italy**\
+**‘Football Is Like Food’: Afghan Female Soccer Players Find a Home in Italy**\
 `Members of a team from Herat left behind the lives they had built in Afghanistan in hopes that they can build a future where they can play, and thrive.`\
 https://nytimes.com/2021/09/09/world/europe/afghanistan-women-soccer-italy.html?searchResultPosition=1
 
