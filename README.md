@@ -1,40 +1,40 @@
+**At U.S. Open, Novak Djokovic Moves One Step Closer to Grand Slam**\
+`After dropping the first set, the world No. 1 smoothly beat sixth-seeded Matteo Berrettini, 5-7, 6-2, 6-2, 6-3, to advance to the semifinals against Alexander Zverev.`\
+https://nytimes.com/2021/09/09/sports/tennis/us-open-novak-djokovic-matteo-berrettini.html?searchResultPosition=1
+
 **Canada’s Felix Auger-Aliassime and Leylah Fernandez Arrive at U.S. Open**\
 `The semifinalists are part of a new wave of Canadian tennis stars who are changing the image of the game in their country and reflecting its increased diversity.`\
-https://nytimes.com/2021/09/09/sports/tennis/us-open-fernandez-auger-aliassime-canada.html?searchResultPosition=1
+https://nytimes.com/2021/09/09/sports/tennis/us-open-fernandez-auger-aliassime-canada.html?searchResultPosition=2
 
 **Your Thursday Briefing**\
 `The Taliban’s governance issues.`\
-https://nytimes.com/2021/09/08/briefing/taliban-coronavirus-europe-climate.html?searchResultPosition=2
+https://nytimes.com/2021/09/08/briefing/taliban-coronavirus-europe-climate.html?searchResultPosition=3
 
 **Live Panel for Students: The Post-9/11 Generation**\
 `How did 9/11 shape the generation that grew up in its aftermath?Register for our panel on Sept. 30 and invite your students to share their perspectives.`\
-https://nytimes.com/2021/09/08/learning/live-panel-for-students-the-post-9-11-generation.html?searchResultPosition=3
+https://nytimes.com/2021/09/08/learning/live-panel-for-students-the-post-9-11-generation.html?searchResultPosition=4
 
 **Lesson of the Day: ‘What Will Become of Afghanistan’s Post-9/11 Generation?’**\
 `In this lesson, students will learn about young people in Afghanistan by reading first-person narratives and looking at photographs. Then, they will react to what they read by writing a letter.`\
-https://nytimes.com/2021/09/08/learning/lesson-of-the-day-what-will-become-of-afghanistans-post-9-11-generation.html?searchResultPosition=4
+https://nytimes.com/2021/09/08/learning/lesson-of-the-day-what-will-become-of-afghanistans-post-9-11-generation.html?searchResultPosition=5
 
 **9/11 Happened Before You Were Born. What Does It Mean to You?**\
 `What have you learned about that day and its aftermath? How do you think it has shaped your generation?`\
-https://nytimes.com/2021/09/08/learning/9-11-happened-before-you-were-born-what-does-it-mean-to-you.html?searchResultPosition=5
+https://nytimes.com/2021/09/08/learning/9-11-happened-before-you-were-born-what-does-it-mean-to-you.html?searchResultPosition=6
 
 **Terry Brennan, Youthful Notre Dame Football Coach, Dies at 93**\
 `One of Leahy’s Lads as a player on national championship teams, he was hired as coach at 25 and fired at 30.`\
-https://nytimes.com/2021/09/08/sports/football/terry-brennan-dead.html?searchResultPosition=6
+https://nytimes.com/2021/09/08/sports/football/terry-brennan-dead.html?searchResultPosition=7
 
 **California Aims to Ban Recycling Symbols on Things That Aren’t Recyclable**\
 `The well-known three-arrows symbol doesn’t necessarily mean that a product is actually recyclable. A new bill would limit the products allowed to feature the mark.`\
-https://nytimes.com/2021/09/08/climate/arrows-recycling-symbol-california.html?searchResultPosition=7
+https://nytimes.com/2021/09/08/climate/arrows-recycling-symbol-california.html?searchResultPosition=8
 
 **Quotation of the Day: New Chapter in Richmond as Lee Statue Comes Down**\
 `Quotation of the Day for Thursday, September 9, 2021.`\
-https://nytimes.com/2021/09/08/todayspaper/quotation-of-the-day-new-chapter-in-richmond-as-lee-statue-comes-down.html?searchResultPosition=8
+https://nytimes.com/2021/09/08/todayspaper/quotation-of-the-day-new-chapter-in-richmond-as-lee-statue-comes-down.html?searchResultPosition=9
 
 **9/11 Changed Us**\
 `People of my generation will never know again the innocence that my children’s generation only tasted.`\
-https://nytimes.com/2021/09/08/opinion/sept-11-anniversary.html?searchResultPosition=9
-
-**Supreme Court Stays Execution in Dispute Over Pastor’s Role in Death Chamber**\
-`The ruling was the latest in a string of decisions on the role that spiritual advisers may play in death row inmates’ final moments.`\
-https://nytimes.com/2021/09/08/us/supreme-court-execution-pastor.html?searchResultPosition=10
+https://nytimes.com/2021/09/08/opinion/sept-11-anniversary.html?searchResultPosition=10
 
