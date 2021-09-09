@@ -2,7 +2,7 @@
 `The chief executive of the airline’s parent company said he hoped the policy would be in place “by Christmas."`\
 https://nytimes.com/2021/09/09/travel/qantas-vaccine-mandate-international.html?searchResultPosition=1
 
-**With vaccine mandates, companies balance politics, health and privacy.**\
+**What you need to know about corporate vaccine mandates.**\
 `More companies are requiring employees to be vaccinated, but their approaches vary.`\
 https://nytimes.com/2021/09/09/business/corporate-vaccine-mandates.html?searchResultPosition=2
 
