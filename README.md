@@ -31,6 +31,6 @@ https://nytimes.com/2021/09/09/style/as-courts-reopen-divorce-filings-are-on-the
 https://nytimes.com/2021/09/09/health/first-covid-deaths.html?searchResultPosition=9
 
 **The White House plans to withdraw David Chipman’s nomination to head the A.T.F.**\
-`Two senators who caucus with the Democratic party, Angus King and Joe Manchin III, soured on Mr. Chipman’s nomination.`\
+`By Glenn Thrush`\
 https://nytimes.com/2021/09/09/us/politics/david-chipmans-atf.html?searchResultPosition=10
 
