@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/09/travel/airline-travel-september-11.html?searchRes
 `The new rules in Brazil appear to be the first national policy that restricts how tech companies can control their sites, analysts say.`\
 https://nytimes.com/2021/09/09/world/americas/bolsonaro-social-networks.html?searchResultPosition=9
 
-**Olaf Scholz Is Running as the Next Angela Merkel, and It Seems to be Working.**\
-`Mr. Scholz, a Social Democrat, who is modeling himself as the candidate of continuity, has a fair shot at being Germany’s next chancellor`\
+**Olaf Scholz Is Running as the Next Angela Merkel, and It Seems to Be Working**\
+`Mr. Scholz, a Social Democrat who is modeling himself as the candidate of continuity, has a fair shot at being Germany’s next chancellor.`\
 https://nytimes.com/2021/09/09/world/europe/olaf-scholz-merkel-germany-election.html?searchResultPosition=10
 
