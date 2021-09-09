@@ -1,6 +1,6 @@
 **Michael Constantine, Dad in ‘My Big Fat Greek Wedding,’ Dies at 94**\
 `He won an Emmy for his role in the TV series “Room 222” and played many characters over the years before becoming known as the hit film’s patriarch.`\
-https://nytimes.com/2021/09/08/obituaries/michael-constantine-dead.html?searchResultPosition=1
+https://nytimes.com/2021/09/08/obituaries/michael-constantine-dad-in-my-big-fat-greek-wedding-dies-at-94.html?searchResultPosition=1
 
 **Harris Campaigns for Newsom in California’s Recall Election**\
 `Vice President Kamala Harris held a rally with Gov. Gavin Newsom, warning voters in her home state that the values they hold dear would be under dire threat if the governor was recalled.`\
