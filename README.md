@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/09/arts/music/sunil-perera-dead.html?searchResultPos
 https://nytimes.com/2021/09/09/opinion/sat-standardized-tests-ucs.html?searchResultPosition=2
 
 **J Balvin Attempts to Reintroduce Himself on ‘Jose’**\
-`The Colombian star skips innovation and presents an impressionistic inventory of the sounds that established him as a global force on his fifth studio album.`\
+`The Colombian star skips innovation and presents an impressionistic inventory of the sounds that established him as a global force on his sixth studio album.`\
 https://nytimes.com/2021/09/09/arts/music/j-balvin-jose-review.html?searchResultPosition=3
 
 **Breaking Down the ‘Wellness-Industrial Complex,’ an Episode at a Time**\
