@@ -6,8 +6,8 @@ https://nytimes.com/2021/09/09/health/fda-e-cigarettes-vaping.html?searchResultP
 `Conservative states have increasingly targeted the ways that Silicon Valley companies police their platforms.`\
 https://nytimes.com/2021/09/09/technology/texas-social-media-politics-censorship.html?searchResultPosition=2
 
-**Biden’s new vaccine requirements apply to a broad range of the national work force.**\
-`Mr. Biden cannot require all Americans to get vaccinated; in the United States, vaccinations are the province of the states.`\
+**New vaccine requirements apply to a broad range of the national work force.**\
+`President Biden cannot require all Americans to get vaccinated; in the United States, vaccinations are the province of the states.`\
 https://nytimes.com/2021/09/09/us/politics/federal-employee-vaccine-mandate.html?searchResultPosition=3
 
 **Coronavirus Briefing: What Happened Today**\
