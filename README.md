@@ -32,5 +32,5 @@ https://nytimes.com/2021/09/09/health/first-covid-deaths.html?searchResultPositi
 
 **The White House plans to withdraw David Chipman’s nomination to head the A.T.F.**\
 `By Glenn Thrush`\
-https://nytimes.com/2021/09/09/us/politics/david-chipmans-atf.html?searchResultPosition=10
+https://nytimes.com/2021/09/09/us/politics/david-chipman-atf.html?searchResultPosition=10
 
