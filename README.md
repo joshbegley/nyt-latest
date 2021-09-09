@@ -1,6 +1,6 @@
 **Biden Mandates Vaccines for Workers, Saying, ‘Our Patience Is Wearing Thin’**\
 `Initially reluctant to enact mandates, the president is now moving aggressively to require vaccination as the  Delta variant races across the country.`\
-https://nytimes.com/2021/09/09/us/politics/biden-mandates-vaccines-for-workers-saying-our-patience-is-wearing-thin.html?searchResultPosition=1
+https://nytimes.com/2021/09/09/us/politics/biden-mandates-vaccines.html?searchResultPosition=1
 
 **Biden calls on states to implement vaccine requirements in schools.**\
 `He is also requiring vaccinations for teachers and other employees of schools run by federal agencies.`\
