@@ -2,7 +2,7 @@
 `Is the variant more severe than earlier versions of the virus? We look at the latest data.`\
 https://nytimes.com/2021/09/09/briefing/delta-variant-cases-severity.html?searchResultPosition=1
 
-**A fire at a coronavirus hospital in North Macedonia kills at least 14.**\
+**A fire at coronavirus hospital in North Macedonia kills at least 14.**\
 `Twelve others, all patients, were being treated for injuries in what the country’s health minister called a “terrible accident.”`\
 https://nytimes.com/2021/09/09/world/europe/north-macedonia-hospital-covid-fire.html?searchResultPosition=2
 
