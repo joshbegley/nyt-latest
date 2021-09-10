@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/10/opinion/taliban-new-government.html?searchResultP
 
 **Daniil Medvedev Easily Advances to U.S. Open Final**\
 `The No. 2 seed booked a spot in his second Open final, beating the 12th-seeded Felix Auger-Aliassime, 6-4, 7-5, 6-2. Medvedev will play either Novak Djokovic or Alexander Zverev.`\
-https://nytimes.com/2021/09/10/sports/tennis/us-open-medvedev-auger-aliassime.html?searchResultPosition=2
+https://nytimes.com/2021/09/10/sports/tennis/medvedev-final.html?searchResultPosition=2
 
 **Two People Injured in Fire at a Queens Hospital**\
 `A rooftop blaze produced an enormous cloud of black smoke, but officials said the flames were extinguished within an hour.`\
