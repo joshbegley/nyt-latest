@@ -12,7 +12,7 @@ https://nytimes.com/2021/09/10/realestate/spain-zaragoza-golf-homes-torres-de-sa
 
 **Iraqi Detainee Reported Suffering Paralysis at Guantánamo**\
 `The case has highlighted the challenges of providing health care for an aging population of prisoners at the remote base.`\
-https://nytimes.com/2021/09/10/us/politics/iraqi-detainee-reported-suffering-paralysis-at-guantanamo.html?searchResultPosition=4
+https://nytimes.com/2021/09/10/us/politics/iraqi-detainee-paralysis-guantanamo.html?searchResultPosition=4
 
 **Alice Neel’s Apartment Is Still a Portrait of the Artist at Work**\
 `Her final residence, the Upper West Side flat where she painted many of her subjects, remains almost exactly as she left it.`\
