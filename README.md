@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/10/us/boston-mayoral-election.html?searchResultPosit
 
 **Times Investigation: In U.S. Drone Strike, Evidence Suggests No ISIS Bomb**\
 `U.S. officials said a Reaper drone followed a car for hours and then fired based on evidence it was carrying explosives. But in-depth video analysis and interviews at the site cast doubt on that account.`\
-https://nytimes.com/2021/09/10/world/asia/drone-isis-kabul-civilians.html?searchResultPosition=6
+https://nytimes.com/2021/09/10/world/asia/us-air-strike-drone-kabul-afghanistan-isis.html?searchResultPosition=6
 
 **‘Imminent Threat’ or Aid Worker: Did a U.S. Drone Strike in Afghanistan Kill the Wrong Person?**\
 `The New York Times obtained exclusive security camera footage and witness accounts to show how the military launched a drone strike that killed 10 people in Kabul on Aug. 29 without knowing who it was hitting.`\
