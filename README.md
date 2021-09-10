@@ -1,4 +1,4 @@
-**Radiohead’s ‘Kid A’ Era Outtake, and 12 More New Songs**\
+**Radiohead’s ‘Kid A’ Era Outtake, and 13 More New Songs**\
 `Hear tracks by Ed Sheeran, Jazzmeia Horn and Her Noble Force, Ìfé and others.`\
 https://nytimes.com/2021/09/10/arts/music/playlist-radiohead-ed-sheeran-lisa.html?searchResultPosition=1
 
