@@ -1,5 +1,5 @@
 **Why I Will Miss the Melbourne Star (No Joke)**\
-`An tribute to our Star-crossed landmark.`\
+`A tribute to our Star-crossed landmark.`\
 https://nytimes.com/2021/09/10/world/australia/why-i-will-miss-the-melbourne-star-no-joke.html?searchResultPosition=1
 
 **Why $46 Billion Couldn’t Prevent an Eviction Crisis**\
