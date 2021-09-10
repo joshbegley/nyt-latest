@@ -31,7 +31,7 @@ https://nytimes.com/2021/09/10/us/boston-mayoral-election.html?searchResultPosit
 https://nytimes.com/2021/09/10/world/asia/us-air-strike-drone-kabul-afghanistan-isis.html?searchResultPosition=8
 
 **‘Imminent Threat’ or Aid Worker: Did a U.S. Drone Strike in Afghanistan Kill the Wrong Person?**\
-`The New York Times obtained exclusive security camera footage and witness accounts to show how the military launched a drone strike that killed 10 people in Kabul on Aug. 29 without knowing who it was hitting.`\
+`The New York Times obtained exclusive security camera footage and witness accounts to show how the military launched a drone strike that killed 10 people in Kabul on Aug. 29 without knowing whom it was hitting.`\
 https://nytimes.com/video/world/asia/100000007963596/us-drone-attack-kabul-investigation.html?searchResultPosition=9
 
 **Trevor Bauer’s Season Ends With Extension of His Leave**\
