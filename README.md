@@ -22,8 +22,8 @@ https://nytimes.com/2021/09/09/crosswords/daily-puzzle-2021-09-10.html?searchRes
 `“My message to unvaccinated Americans is this: What more is there to wait for?” President Biden said on Thursday. “We’ve been patient, but our patience is wearing thin.”`\
 https://nytimes.com/2021/09/09/us/politics/biden-vaccine-mandates-transcript.html?searchResultPosition=6
 
-**Leylah Fernandez Beats Aryna Sabalenka to Advance to U.S. Open Final**\
-`The 19-year-old Canadian, who won 7-6 (3), 4-6, 6-4, becomes the youngest singles finalist at the U.S. Open since Serena Williams advanced at age 17 in 1999.`\
+**Emma Raducanu Beats Maria Sakkari to Advance to U.S. Open Final**\
+`The 18-year-old from Britain cruised to a 6-1, 6-4 win, becoming the first qualifier in the Open era to make the final. She will play fellow teenager Leylah Fernandez, 19.`\
 https://nytimes.com/2021/09/09/sports/tennis/us-open-fernandez-sabalenka.html?searchResultPosition=7
 
 **Runaways in Stripes: Five Zebras Are on the Loose in Maryland**\
