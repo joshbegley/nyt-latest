@@ -1,6 +1,6 @@
 **Food Delivery Apps Sue New York Over Fee Limits**\
 `Grubhub, Uber Eats and Door Dash have characterized a 15 percent cap on fees charged to restaurants as an unconstitutional measure that will hurt consumers.`\
-https://nytimes.com/2021/09/10/business/grubhub-fees-lawsuit.html?searchResultPosition=1
+https://nytimes.com/2021/09/10/business/food-delivery-lawsuit-ny-grubhub-uber-eats-door-dash.html?searchResultPosition=1
 
 **Debate Over Guns Is Muted as Canada’s Election Nears**\
 `The Conservative Party leader, Erin O’Toole, rolled back a promise to end a ban on assault weapons, giving his opponents less room to maneuver.`\
