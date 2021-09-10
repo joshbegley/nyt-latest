@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/10/business/food-delivery-lawsuit-ny-grubhub-uber-ea
 
 **Debate Over Guns Is Muted as Canada’s Election Nears**\
 `The Conservative Party leader, Erin O’Toole, rolled back a promise to end a ban on assault weapons, giving his opponents less room to maneuver.`\
-https://nytimes.com/2021/09/10/world/canada/election-guns-debate-trudeau.html?searchResultPosition=6
+https://nytimes.com/2021/09/10/world/canada/canada-election.html?searchResultPosition=6
 
 **U.S. Forces Were Training the Guinean Soldiers Who Took Off to Stage a Coup**\
 `American military officials have denounced the ouster of a president in West Africa, and said they had no warning of what their students were planning.`\
