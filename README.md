@@ -2,7 +2,7 @@
 `The effort reflects the continuing and evolving threat the coronavirus pandemic poses to the economic recovery.`\
 https://nytimes.com/2021/09/09/us/politics/biden-vaccines-economy.html?searchResultPosition=1
 
-**Highlights of Biden’s Vaccine Push**\
+**Biden’s Vaccine Push: What You Need to Know**\
 `President Biden announced a plan that mandates vaccines for federal employees and workers and calls on schools to adopt vaccine requirements, among other things.`\
 https://nytimes.com/2021/09/09/us/politics/biden-vaccine-plan-highlights.html?searchResultPosition=2
 
