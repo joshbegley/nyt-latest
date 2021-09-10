@@ -16,7 +16,7 @@ https://nytimes.com/2021/09/10/sports/horse-racing/bob-baffert-medina-spirit.htm
 
 **‘Have at it,’ Biden says to Republicans who’ve threatened to challenge vaccine mandates.**\
 `President Biden’s remarks came a day after he unveiled an extensive plan to push two-thirds of American workers to be vaccinated against the coronavirus.`\
-https://nytimes.com/2021/09/10/us/politics/biden-mandate-legal-challenes.html?searchResultPosition=5
+https://nytimes.com/2021/09/10/us/politics/biden-mandate-legal-challenges.html?searchResultPosition=5
 
 **Olympics Power Broker Convicted in Forgery Case**\
 `Sheikh Ahmad al-Sabah of Kuwait faces possible jail time, pending an appeal.`\
