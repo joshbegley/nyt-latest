@@ -32,7 +32,7 @@ https://nytimes.com/video/world/asia/100000007963596/us-drone-attack-kabul-inves
 
 **Trevor Bauer’s Season Ends With Extension of His Leave**\
 `Major League Baseball and the players’ union agreed to put off any decisions on punishment of Bauer, who is under investigation for sexual assault, until after the World Series.`\
-https://nytimes.com/2021/09/10/sports/baseball/trevor-bauer-dodgers.html?searchResultPosition=9
+https://nytimes.com/2021/09/10/sports/baseball/trevor-bauer-administrative-leave.html?searchResultPosition=9
 
 **Leaning on Tech – Relying on People**\
 `How Small Businesses Have Weathered the Pandemic`\
