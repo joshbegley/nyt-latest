@@ -4,7 +4,7 @@ https://nytimes.com/video/us/100000007967471/st-johns-queens-hospital-fire.html?
 
 **Federal Research Bolsters the Case for Vaccine Mandates**\
 `Scientists believe the administration’s new measures may tamp down the pandemic, although the effects will not immediately be obvious.`\
-https://nytimes.com/2021/09/10/health/vaccine-mandates-cdc.html?searchResultPosition=2
+https://nytimes.com/2021/09/10/health/coronavirus-vaccine-mandate.html?searchResultPosition=2
 
 **The Taliban Are Telling Us They Haven’t Changed at All**\
 `The West must not mistake tactical flexibility for real change.`\
