@@ -4,7 +4,7 @@ https://nytimes.com/video/us/100000007967854/9-11-911-20th-anniversary.html?sear
 
 **Watch Live: Pentagon Ceremony for Sept. 11 Anniversary**\
 `President Biden and Vice President Kamala Harris participate in a ceremony honoring the 184 people killed in the Sept. 11, 2001 terrorist attack at the Pentagon on the 20th anniversary of the tragedy.`\
-https://nytimes.com/video/us/100000007964187/pentagon-sept-11.html?searchResultPosition=2
+https://nytimes.com/video/embedded/us/100000007964187/pentagon-sept-11.html?searchResultPosition=2
 
 **The winner will take home $2.5 million.**\
 `Prize money for the runner-up is $1.25 million.`\
@@ -26,15 +26,15 @@ https://nytimes.com/2021/09/11/sports/soccer/cristiano-ronaldo-manchester-united
 `The president honored the passengers and crew members who confronted terrorists on 9/11 and addressed an existential battle underway in America.`\
 https://nytimes.com/2021/09/11/us/biden-9-11-comments.html?searchResultPosition=7
 
+**Fernandez’s ‘superstitious’ father, who is also her coach, plans to watch at home.**\
+`A former soccer player who never played tennis, Jorge Fernandez has coached his daughter Leylah since she was a schoolgirl.`\
+https://nytimes.com/2021/09/11/sports/tennis/leylah-fernandezs-father.html?searchResultPosition=8
+
 **An astronaut marks the 20th anniversary of 9/11 from space.**\
 `Shane Kimbrough, a NASA astronaut, remembered the monumental day with remarks from the International Space Station.`\
-https://nytimes.com/2021/09/11/nyregion/astronaut-9-11-shane-kimbrough.html?searchResultPosition=8
+https://nytimes.com/2021/09/11/nyregion/astronaut-9-11-shane-kimbrough.html?searchResultPosition=9
 
 **Teen Participant in ‘Slender Man’ Stabbing to Be Released From Mental Hospital**\
 `Anissa Weier, 19, requested her release in a letter this March. “If I am to become a productive member of society, I need to be a part of society,” she wrote.`\
-https://nytimes.com/2021/09/11/us/slender-man-anissa-weier-release.html?searchResultPosition=9
-
-**Painful memory for Muslims: Outrage over a proposed Islamic center in Manhattan.**\
-`The downtown project was scuttled amid anti-Muslim sentiment. The head of the Anti-Defamation League recently apologized for opposing the plan.`\
-https://nytimes.com/2021/09/11/nyregion/muslim-islamic-center-9-11.html?searchResultPosition=10
+https://nytimes.com/2021/09/11/us/slender-man-anissa-weier-release.html?searchResultPosition=10
 
