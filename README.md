@@ -10,7 +10,7 @@ https://nytimes.com/video/us/100000007968073/bush-911-sept-11-pennsylvania.html?
 `Family members did the reading at a ceremony in Lower Manhattan, which took about four hours.`\
 https://nytimes.com/2021/09/11/nyregion/9-11-victims-list.html?searchResultPosition=3
 
-**On Kabul’s Streets, a Symbol of America’s Lost Influence: Hundreds Dressed in Burqas**\
+**At Pro-Taliban Protest, a Symbol of America’s Lost Influence: Hundreds Dressed in Burqas**\
 `Several hundred women wore the head-to-toe garments at a pro-Taliban demonstration on Sept. 11. The march was a reminder of how after years of war, Afghanistan’s women are again at the mercy of the militants.`\
 https://nytimes.com/2021/09/11/world/europe/afghanistan-women-burqas.html?searchResultPosition=4
 
