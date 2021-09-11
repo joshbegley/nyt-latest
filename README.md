@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/11/science/volcanic-bombs-surtsey.html?searchResultP
 
 **‘Everything Changed Overnight’: Afghan Reporters Face an Intolerant Regime**\
 `The Taliban promised to respect press freedoms, but the new government has already showed signs of repression, and has even physically assaulted Afghan journalists.`\
-https://nytimes.com/2021/09/11/world/afghanistan-journalists-cracdown-taliban.html?searchResultPosition=6
+https://nytimes.com/2021/09/11/world/afghanistan-journalists-crackdown-taliban.html?searchResultPosition=6
 
 **Mountain of Money Fuels Gavin Newsom’s Surge to Recall Finish Line**\
 `The California governor has taken full advantage of the state’s loose financing rules for recall elections, overpowering Republican challengers for whom the cavalry never arrived.`\
