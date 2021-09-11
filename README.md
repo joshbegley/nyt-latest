@@ -1,40 +1,40 @@
-**Meeting Hungary’s Strongman, Pope Treads a Fine Line With an Embattled Leader**\
-`Pope Francis’ meeting with Viktor Orban could help, or hurt, the prime minister’s efforts to curry favor with voters ahead of coming elections in Hungary, which is predominantly Catholic.`\
-https://nytimes.com/2021/09/11/world/europe/pope-francis-orban-hungary.html?searchResultPosition=1
+**The Photographs of 9/11**\
+`Photographers reflect on shooting the terrorist attacks of 9/11 and their aftermath.`\
+https://nytimes.com/2021/09/11/us/the-photographs-of-9-11.html?searchResultPosition=1
 
-**In Shanksville, Preserving the Memory of 9/11 and the Wars That Followed**\
-`After Flight 93 went down, once unthinkable duties were thrust upon the community, including young people who found themselves coming of age in a time of war.`\
-https://nytimes.com/2021/09/11/us/shanksville-flight-93.html?searchResultPosition=2
+**Trump May Be Gone, But the Fight Against His Border Wall Goes On**\
+`Residents in Los Ebanos, Texas, on the Rio Grande thought Joe Biden’s victory would end their fears of losing their property for a wall. It hasn’t worked out that way.`\
+https://nytimes.com/2021/09/11/us/texas-border-mexico.html?searchResultPosition=2
 
-**Always Pay the Rent? It May Help Your Mortgage Application.**\
-`For decades, regular payments to a landlord haven’t counted for much for many tenants trying to get a mortgage. Fannie Mae aims to change that.`\
-https://nytimes.com/2021/09/11/your-money/fannie-mae-rental-payment-history.html?searchResultPosition=3
+**‘It’s a Godsend’: 9-Cent Taxi Rides in Rural South Korea**\
+`One county’s plan to help older, carless citizens stuck in remote villages proved wildly popular and has been copied across South Korea, revolutionizing public transportation in the countryside.`\
+https://nytimes.com/2021/09/11/world/asia/south-korea-100-won-taxis.html?searchResultPosition=3
 
-**Remembering 9/11**\
-`The weeks and months that followed the attacks were a defining time for many, including on Wall Street.`\
-https://nytimes.com/2021/09/11/business/dealbook/Sept-11-archive.html?searchResultPosition=4
+**Vaccine Resisters Seek Religious Exemptions. But What Counts as Religious?**\
+`Major denominations are essentially unanimous in their support of the vaccines against Covid-19, but individuals who object are citing their personal faith for support.`\
+https://nytimes.com/2021/09/11/us/vaccine-resisters-religious-exemptions.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/11/crosswords/spelling-bee-2021-09-11.html?searchResultPosition=5
+**How Math Solved the Case of the Volcanic Bombs That Didn’t Explode**\
+`Scientists have long been puzzled by flying blobs of magma that remained intact, but didn’t have a good way to study them.`\
+https://nytimes.com/2021/09/11/science/volcanic-bombs-surtsey.html?searchResultPosition=5
 
-**Corrections: Sept. 11, 2021**\
-`Corrections that appeared in print on Saturday, Sept. 11, 2021.`\
-https://nytimes.com/2021/09/11/pageoneplus/corrections-sept-11-2021.html?searchResultPosition=6
+**‘Everything Changed Overnight’: Afghan Reporters Face an Intolerant Regime**\
+`The Taliban promised to respect press freedoms, but the new government has already showed signs of repression, and has even physically assaulted Afghan journalists.`\
+https://nytimes.com/2021/09/11/world/afghanistan-journalists-cracdown-taliban.html?searchResultPosition=6
 
-**His Basketball Camp Made Hall of Famers. Now He’s One, Too.**\
-`Howard Garfinkel co-founded the Five Star Basketball Camp, which trained big-name stars like Michael Jordan, Patrick Ewing and Grant Hill.`\
-https://nytimes.com/2021/09/11/sports/basketball/nba-hall-of-fame.html?searchResultPosition=7
+**Mountain of Money Fuels Gavin Newsom’s Surge to Recall Finish Line**\
+`The California governor has taken full advantage of the state’s loose financing rules for recall elections, overpowering Republican challengers for whom the cavalry never arrived.`\
+https://nytimes.com/2021/09/11/us/politics/gavin-newsom-recall-election.html?searchResultPosition=7
 
-**‘Looking Back, I am Glad We Played’**\
-`Stuyvesant High, blocks from the World Trade Center on Sept. 11, finished its football season in 2001 under dour circumstances. Was the attempt at normalcy worth it?`\
-https://nytimes.com/2021/09/11/sports/football/september-11-high-school-football.html?searchResultPosition=8
+**Berlin Clubs Return With a Vengeance**\
+`A discothèque successfully sued the city over its ban on indoor dancing, and clubs have reopened. But if there’s a spike in coronavirus cases, the local government has explored a backup plan.`\
+https://nytimes.com/2021/09/11/style/berlin-clubs-reopening.html?searchResultPosition=8
 
-**Quotation of the Day: Buffalo Soldiers Get Statue at West Point**\
-`Quotation of the Day for Saturday, September 11, 2021`\
-https://nytimes.com/2021/09/10/todayspaper/quotation-of-the-day-buffalo-soldiers-get-statue-at-west-point.html?searchResultPosition=9
+**Newsom’s Strategy for California Recall: It’s Me or the Abyss**\
+`Ahead of the vote on Tuesday, the governor is running not so much on his own policies as against the influence of a certain former president.`\
+https://nytimes.com/2021/09/11/us/newsom-recall-campaign.html?searchResultPosition=9
 
-**Novak Djokovic Reaches U.S. Open Final, One Victory From a Grand Slam**\
-`Djokovic beat Alexander Zverev, 4-6, 6-2, 6-4, 4-6, 6-2, and has a chance to become the first man since 1969 to win a calendar-year Grand Slam. He will play Daniil Medvedev in the final on Sunday.`\
-https://nytimes.com/2021/09/10/sports/tennis/us-open-djokovic-zverev-grand-slam.html?searchResultPosition=10
+**To Survive the Pandemic, a Secret Nintendo Cafe Is Secret No Longer**\
+`Toru Hashimoto’s Tokyo spot is a showcase for items he kept while working for the video game company. It used to be a members-only hideaway, but financial strain has forced him to open up.`\
+https://nytimes.com/2021/09/11/business/nintendo-cafe-video-game-japan.html?searchResultPosition=10
 
