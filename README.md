@@ -18,7 +18,7 @@ https://nytimes.com/2021/09/11/world/denmark-lifts-Covid-restrictions.html?searc
 `Hillary Clinton, Kirsten Gillibrand and Chuck Schumer commemorated the service workers who died at the World Trade Center.`\
 https://nytimes.com/2021/09/11/nyregion/clinton-gillibrand-schumer-9-11-wages.html?searchResultPosition=5
 
-**Biden Urges Unity as Nation Remembers Sept. 11**\
+**Biden and Bush Urge Unity as Nation Remembers Sept. 11**\
 `Both President Biden and former President George W. Bush acknowledged that what has happened in the years since has only challenged the notion that Americans found strength in coming together.`\
 https://nytimes.com/2021/09/11/us/politics/biden-9-11.html?searchResultPosition=6
 
