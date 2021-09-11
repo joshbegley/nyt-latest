@@ -1,6 +1,6 @@
 **Teen Participant in ‘Slender Man’ Stabbing to Be Released From Mental Hospital**\
 `Anissa Weier, 19, requested her release in a letter this March. “If I am to become a productive member of society, I need to be a part of society,” she wrote.`\
-https://nytimes.com/2021/09/11/us/slender-man-anissa-weier-released.html?searchResultPosition=1
+https://nytimes.com/2021/09/11/us/slender-man-anissa-weier-release.html?searchResultPosition=1
 
 **Painful memory for Muslims: Outrage over a proposed Islamic center in Manhattan.**\
 `The downtown project was scuttled amid anti-Muslim sentiment. The head of the Anti-Defamation League recently apologized for opposing the plan.`\
