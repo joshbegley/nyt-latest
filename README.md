@@ -11,7 +11,7 @@ https://nytimes.com/2021/09/10/podcasts/daily-newsletter-9-11-costs-counterterro
 https://nytimes.com/2021/09/10/us/politics/biden-vaccine.html?searchResultPosition=3
 
 **Video Shows Fire at New York City Hospital**\
-`The blaze erupted on the roof of St. John’s Episcopal Hospital in Queens, N.Y. Officials said that the flames were extinguished within an hour and that two people suffered minor injuries.`\
+`The blaze erupted on the roof of St. John’s Episcopal Hospital in Queens. Officials said that the flames were extinguished within an hour and that two people suffered minor injuries.`\
 https://nytimes.com/video/us/100000007967471/st-johns-queens-hospital-fire.html?searchResultPosition=4
 
 **Federal Research Bolsters the Case for Vaccine Mandates**\
