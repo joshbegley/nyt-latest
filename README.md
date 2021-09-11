@@ -1,6 +1,6 @@
 **U.S. Open Women’s Final: How to Watch on Saturday**\
 `The most improbable women’s Grand Slam final in history features the unseeded teenagers Leylah Fernandez and Emma Raducanu.`\
-https://nytimes.com/2021/09/11/sports/tennis/us-open-womens-final-match-fernandez-raducanu.html?searchResultPosition=1
+https://nytimes.com/2021/09/11/sports/tennis/us-open-womens-final-time-streaming-channel.html?searchResultPosition=1
 
 **Special Episode: What Does It Mean to ‘Never Forget’?**\
 `Twenty years after Sept. 11, a look at what we hold on to and what we choose to let go.`\
@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/11/science/volcanic-bombs-surtsey.html?searchResultP
 `The California governor has taken full advantage of the state’s loose financing rules for recall elections, overpowering Republican challengers for whom the cavalry never arrived.`\
 https://nytimes.com/2021/09/11/us/politics/gavin-newsom-recall-election.html?searchResultPosition=9
 
-**Berlin Clubs Return With a Vengeance**\
-`A discothèque successfully sued the city over its ban on indoor dancing, and clubs have reopened. But if there’s a spike in coronavirus cases, the local government has explored a backup plan.`\
-https://nytimes.com/2021/09/11/style/berlin-clubs-reopening.html?searchResultPosition=10
+**To Survive the Pandemic, a Secret Nintendo Cafe Is Secret No Longer**\
+`Toru Hashimoto’s Tokyo spot is a showcase for items he kept while working for the video game company. It used to be a members-only hideaway, but financial strain has forced him to open up.`\
+https://nytimes.com/2021/09/11/business/nintendo-cafe-japan.html?searchResultPosition=10
 
