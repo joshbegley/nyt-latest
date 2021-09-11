@@ -16,7 +16,7 @@ https://nytimes.com/2021/09/11/crosswords/variety-acrostic.html?searchResultPosi
 
 **Abimael Guzmán, Leader of Guerrilla Group That Terrorized Peru, Dies at 86**\
 `Mr. Guzmán, whose Maoist movement, Shining Path, killed tens of thousands in the 1980s and ’90s, sought to bring the world to a “higher stage of Marxism.”`\
-https://nytimes.com/2021/09/11/obituaries/abimael-guzmn-shining-path.html?searchResultPosition=5
+https://nytimes.com/2021/09/11/obituaries/abimael-guzman-shining-path.html?searchResultPosition=5
 
 **As Democrats Push a $3.5 Trillion Bill, a Top Lawmaker Stays Mum on Tax Increases**\
 `The silence from Representative Richard Neal of Massachussetts has some liberal Democrats worried that he could thwart the scope of their economic ambitions.`\
