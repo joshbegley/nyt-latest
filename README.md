@@ -10,13 +10,13 @@ https://nytimes.com/2021/09/11/sports/tennis/us-open-womens-final-time-streaming
 `Twenty years after Sept. 11, a look at what we hold on to and what we choose to let go.`\
 https://nytimes.com/2021/09/11/podcasts/the-daily/special-episode-what-does-it-mean-to-never-forget.html?searchResultPosition=3
 
-**The Photographs of 9/11**\
-`Photographers reflect on shooting the terrorist attacks of 9/11 and their aftermath.`\
-https://nytimes.com/2021/09/11/us/9-11-photos-images.html?searchResultPosition=4
-
 **Trump May Be Gone, But the Fight Against His Border Wall Goes On**\
 `Residents in Los Ebanos, Texas, on the Rio Grande thought Joe Biden’s victory would end their fears of losing their property for a wall. It hasn’t worked out that way.`\
-https://nytimes.com/2021/09/11/us/texas-border-mexico.html?searchResultPosition=5
+https://nytimes.com/2021/09/11/us/texas-border-mexico.html?searchResultPosition=4
+
+**The Photographs of 9/11**\
+`Photographers reflect on shooting the terrorist attacks of 9/11 and their aftermath.`\
+https://nytimes.com/2021/09/11/us/9-11-photos-images.html?searchResultPosition=5
 
 **‘It’s a Godsend’: 9-Cent Taxi Rides in Rural South Korea**\
 `One county’s plan to help older, carless citizens stuck in remote villages proved wildly popular and has been copied across South Korea, revolutionizing public transportation in the countryside.`\
