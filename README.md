@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/11/us/turnout-california-recall.html?searchResultPosition=1
 
 **George W. Bush Commemorates 20th Anniversary of Sept. 11**\
-`Former President Bush spoke at the Flight 93 National Memorial in Pennsylvania, recalling the day of the Sept. 11, 2001, attacks and paying tribute to the 40 passengers and crew members who were killed in the Flight 93 hijacking.`\
+`Former President George W. Bush spoke at the Flight 93 National Memorial in Pennsylvania, recalling the day of the Sept. 11, 2001, attacks and paying tribute to the 40 passengers and crew members who were killed in the Flight 93 hijacking.`\
 https://nytimes.com/video/us/100000007968073/bush-911-sept-11-pennsylvania.html?searchResultPosition=2
 
 **All of the names of those lost in the 9/11 attacks were read out loud.**\
