@@ -14,13 +14,13 @@ https://nytimes.com/2021/09/11/world/asia/south-korea-100-won-taxis.html?searchR
 `Major denominations are essentially unanimous in their support of the vaccines against Covid-19, but individuals who object are citing their personal faith for support.`\
 https://nytimes.com/2021/09/11/us/vaccine-resisters-religious-exemptions.html?searchResultPosition=4
 
-**How Math Solved the Case of the Volcanic Bombs That Didn’t Explode**\
-`Scientists have long been puzzled by flying blobs of magma that remained intact, but didn’t have a good way to study them.`\
-https://nytimes.com/2021/09/11/science/volcanic-bombs-surtsey.html?searchResultPosition=5
-
 **‘Everything Changed Overnight’: Afghan Reporters Face an Intolerant Regime**\
 `The Taliban promised to respect press freedoms, but the new government has already showed signs of repression, and has even physically assaulted Afghan journalists.`\
-https://nytimes.com/2021/09/11/world/afghanistan-journalists-crackdown-taliban.html?searchResultPosition=6
+https://nytimes.com/2021/09/11/world/afghanistan-journalists-crackdown-taliban.html?searchResultPosition=5
+
+**How Math Solved the Case of the Volcanic Bombs That Didn’t Explode**\
+`Scientists have long been puzzled by flying blobs of magma that remained intact, but didn’t have a good way to study them.`\
+https://nytimes.com/2021/09/11/science/volcanic-bombs-surtsey.html?searchResultPosition=6
 
 **Mountain of Money Fuels Gavin Newsom’s Surge to Recall Finish Line**\
 `The California governor has taken full advantage of the state’s loose financing rules for recall elections, overpowering Republican challengers for whom the cavalry never arrived.`\
