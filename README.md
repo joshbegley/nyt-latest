@@ -1,5 +1,5 @@
 **Watch Live: New York Observes 20th Anniversary of Sept. 11 Attacks**\
-`The ceremony will lead moments of silence and a reading of the names by family members of those killed in the Sept. 11, 2001 attacks and the 1993 World Trade Center bombing.`\
+`The ceremony will contain moments of silence and a reading of the names by family members of those killed in the Sept. 11 attacks and the 1993 World Trade Center bombing.`\
 https://nytimes.com/video/us/100000007964181/sept-11-ny.html?searchResultPosition=1
 
 **U.S. Open Women’s Final: How to Watch on Saturday**\
