@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/11/podcasts/the-daily/special-episode-what-does-it-m
 
 **The Photographs of 9/11**\
 `Photographers reflect on shooting the terrorist attacks of 9/11 and their aftermath.`\
-https://nytimes.com/2021/09/11/us/the-photographs-of-9-11.html?searchResultPosition=3
+https://nytimes.com/2021/09/11/us/9-11-photos-images.html?searchResultPosition=3
 
 **Trump May Be Gone, But the Fight Against His Border Wall Goes On**\
 `Residents in Los Ebanos, Texas, on the Rio Grande thought Joe Biden’s victory would end their fears of losing their property for a wall. It hasn’t worked out that way.`\
