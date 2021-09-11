@@ -1,5 +1,5 @@
 **Barred From Flying Over Mask Dispute, Lawmaker Asks to Be Excused From Senate**\
-`Lora Reinbold, a Republican state senator from Alaska, was captured on video arguing with employees at Juneau International Airport about mask rules.`\
+`Lora Reinbold, a Republican state senator from Alaska, was captured on video in April arguing with employees at Juneau International Airport about mask rules.`\
 https://nytimes.com/2021/09/11/us/alaska-airlines-mask-lora-reinbold.html?searchResultPosition=1
 
 **Going Back Twenty Years to Look Forward**\
