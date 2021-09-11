@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/11/sports/soccer/cristiano-ronaldo-manchester-united
 `The president honored the passengers and crew members who confronted terrorists on 9/11 and addressed an existential battle underway in America.`\
 https://nytimes.com/2021/09/11/us/biden-9-11-comments.html?searchResultPosition=3
 
-**An Astronaut marks the 20th anniversary of 9/11 from space.**\
+**An astronaut marks the 20th anniversary of 9/11 from space.**\
 `Shane Kimbrough, a NASA astronaut, remembered the monumental day with remarks from the International Space Station.`\
 https://nytimes.com/2021/09/11/nyregion/astronaut-9-11-shane-kimbrough.html?searchResultPosition=4
 
