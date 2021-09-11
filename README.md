@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/11/world/asia/south-korea-100-won-taxis.html?searchR
 
 **Vaccine Resisters Seek Religious Exemptions. But What Counts as Religious?**\
 `Major denominations are essentially unanimous in their support of the vaccines against Covid-19, but individuals who object are citing their personal faith for support.`\
-https://nytimes.com/2021/09/11/us/vaccine-resisters-religious-exemptions.html?searchResultPosition=6
+https://nytimes.com/2021/09/11/us/covid-vaccine-religion-exemption.html?searchResultPosition=6
 
 **‘Everything Changed Overnight’: Afghan Reporters Face an Intolerant Regime**\
 `The Taliban promised to respect press freedoms, but the new government has already showed signs of repression, and has even physically assaulted Afghan journalists.`\
