@@ -24,7 +24,7 @@ https://nytimes.com/2021/09/11/us/covid-vaccine-religion-exemption.html?searchRe
 
 **‘Everything Changed Overnight’: Afghan Reporters Face an Intolerant Regime**\
 `The Taliban promised to respect press freedoms, but the new government has already showed signs of repression, and has even physically assaulted Afghan journalists.`\
-https://nytimes.com/2021/09/11/world/afghanistan-journalists-crackdown-taliban.html?searchResultPosition=7
+https://nytimes.com/2021/09/11/world/afghanistan-journalists-reporters.html?searchResultPosition=7
 
 **How Math Solved the Case of the Volcanic Bombs That Didn’t Explode**\
 `Scientists have long been puzzled by flying blobs of magma that remained intact, but didn’t have a good way to study them.`\
