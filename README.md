@@ -35,6 +35,6 @@ https://nytimes.com/2021/09/11/health/children-covid-vaccine-trials.html?searchR
 https://nytimes.com/2021/09/11/crosswords/variety-acrostic.html?searchResultPosition=9
 
 **Abimael Guzmán, Leader of Guerrilla Group That Terrorized Peru, Dies at 86**\
-`Mr. Guzmán, whose Maoist movement, Shining Path, killed tens of thousands in the 1980s and ’90s, sought to bring the world to a “higher stage of Marxism.”`\
-https://nytimes.com/2021/09/11/obituaries/abimael-guzman-shining-path.html?searchResultPosition=10
+`Mr. Guzmán’s Maoist movement, Shining Path, killed tens of thousands in the 1980s and ’90s. He sought to bring the world to a “higher stage of Marxism.”`\
+https://nytimes.com/2021/09/11/obituaries/abimael-guzman-leader-of-guerrilla-group-that-terrorized-peru-dies-at-86.html?searchResultPosition=10
 
