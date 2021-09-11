@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/11/style/new-york-fashion-week-day-4.html?searchResu
 https://nytimes.com/2021/09/11/opinion/college-football-ivermectin.html?searchResultPosition=2
 
 **‘The actions of an enemy revealed the spirit of a people,’ George W. Bush says in Pennsylvania.**\
-`Former President George W. Bush commemorated the 20th anniversary of the Sept. 11 terrorist attacks on Saturday by speaking at the Flight 93 National Memorial in Pennsylvania.`\
+`Former President George W. Bush commemorated the 20th anniversary of the Sept. 11 terrorist attacks on Saturday by speaking at the Flight 93 National Memorial near Shanksville, Pa.`\
 https://nytimes.com/2021/09/11/us/politics/george-bush-speech-shanksville-911.html?searchResultPosition=3
 
 **At 9/11 Ceremonies, Moments of Silence and Tears**\
