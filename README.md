@@ -1,6 +1,6 @@
 **New York firefighters install flag poles to remember those lost 20 years ago.**\
 `By Téa Kvetenadze`\
-https://nytimes.com/2021/09/11/nyregion/new-york-firefighters-install-flag-poles-to-remember-those-lost-20-years-ago.html?searchResultPosition=1
+https://nytimes.com/live/2021/09/11/nyregion/9-11-20th-anniversary/new-york-firefighters-install-flag-poles-to-remember-those-lost-20-years-ago?searchResultPosition=1
 
 **Kamala Harris: 9/11 shows how ‘fear can be used to sow division.’**\
 `Speaking at a memorial service for the victims of Flight 93, the vice president emphasized the importance of unity and said the nation’s greatest strength was its diversity.`\
