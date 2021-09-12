@@ -1,6 +1,6 @@
 **How Raducanu and Fernandez Forged Sudden Stardom and Deep Connections**\
 `The crowds at the U.S. Open embraced the young finalists in women’s singles, a pair of teenagers who seemed as if they had been around forever.`\
-https://nytimes.com/2021/09/11/sports/tennis/emma-raducanu-leylah-fernandez-us-open-womens-singles.html?searchResultPosition=1
+https://nytimes.com/2021/09/11/sports/tennis/emma-raducanu-leylah-fernandez-us-open.html?searchResultPosition=1
 
 **Barred From Flying Over Mask Dispute, Lawmaker Asks to Be Excused From Senate**\
 `Lora Reinbold, a Republican state senator from Alaska, was captured on video in April arguing with employees at Juneau International Airport about mask rules.`\
