@@ -24,7 +24,7 @@ https://nytimes.com/2021/09/12/sports/panthers-jets-zach-wilson-nfl-week-1.html?
 
 **Join Us for a Conversation on Greening Cryptocurrency**\
 `On Oct. 5, Andrew Ross Sorkin and the DealBook team explore the environmental impact of digital currency and efforts to make it more sustainable.`\
-https://nytimes.com/2021/09/10/business/dealbook/join-us-for-a-conversation-on-greening-cryptocurrency.html?searchResultPosition=7
+https://nytimes.com/2021/09/10/business/dealbook/join-us-for-a-conversation-on-greening-crypto.html?searchResultPosition=7
 
 **Video Shows Women Marching at a Pro-Taliban Protest**\
 `The demonstration, on Sept. 11, followed the violent suppression of protests by some Afghan women demanding equal rights. The timing and the presence of Taliban fighters suggest the march was not just approved by the Taliban but potentially orchestrated by the group.`\
