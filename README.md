@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/11/us/politics/capitol-police-january-6.html?searchResultPosition=1
 
 **How Raducanu and Fernandez Forged Sudden Stardom and Deep Connections**\
-`The crowds at the U.S. Open embraced the young finalists in women’s singles, a pair of teenagers who seemed as if they had been around forever.`\
+`Viewers of the U.S. Open embraced the young finalists in women’s singles, a pair of teenagers who seemed as if they had been around forever.`\
 https://nytimes.com/2021/09/11/sports/tennis/emma-raducanu-leylah-fernandez-us-open.html?searchResultPosition=2
 
 **Barred From Flying Over Mask Dispute, Lawmaker Asks to Be Excused From Senate**\
