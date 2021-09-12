@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/12/us/politics/torture-post-9-11.html?searchResultPo
 https://nytimes.com/2021/09/12/sports/panthers-jets-zach-wilson-nfl-week-1.html?searchResultPosition=2
 
 **Join Us for a Conversation on Greening Cryptocurrency**\
-`On Oct. 5, Andrew Ross Sorkin and the DealBook team explore the environmental impact of digital currency and efforts to make it more sustainable.`\
+`As corporations increasingly emphasize environmental and sustainability goals, where exactly does energy-intensive cryptocurrency fit in? How do the opportunities surrounding crypto compare with the resources it consumes? And how do we make the mining process more sustainable?`\
 https://nytimes.com/2021/09/10/business/dealbook/join-us-for-a-conversation-on-greening-cryptocurrency.html?searchResultPosition=3
 
 **Video Shows Women Marching at a Pro-Taliban Protest**\
