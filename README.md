@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/12/fashion/new-york-fashion-week-day-5.html?searchRe
 `Emma Raducanu, 18, galvanized the nation with her triumph in the U.S. Open, drawing congratulations from royalty and inspiring pride in her hometown outside London.`\
 https://nytimes.com/2021/09/12/world/europe/emma-raducanu-england-tennis.html?searchResultPosition=3
 
-**Kansas City Southern Chooses Its Canadian Suitor**\
+**Kansas City Southern Chooses Suitor in Bid for North American Rail Link**\
 `After the merger with Canadian Pacific, the railroad will connect Canada, the United States and Mexico.`\
 https://nytimes.com/2021/09/12/business/kansas-city-southern-canadian-pacific.html?searchResultPosition=4
 
