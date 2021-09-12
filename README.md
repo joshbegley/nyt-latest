@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/12/us/politics/businesses-social-policy.html?searchR
 
 **Two Parents Are the First to Face Trial in College Admissions Scandal**\
 `At issue are the parents’ conduct, U.S.C’s admissions practices and possibly the fairness of the college admissions process itself.`\
-https://nytimes.com/2021/09/12/education/trial-admissions-scandal-University-of-south-california.html?searchResultPosition=6
+https://nytimes.com/2021/09/12/us/trial-admissions-scandal-University-of-south-california.html?searchResultPosition=6
 
 **Homes That Sold for Around $1 Million**\
 `Recent residential sales in New York City and the region.`\
