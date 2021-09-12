@@ -1,5 +1,5 @@
 **Venice: Women’s Stories**\
-`Films by or about women were especially well represented this year, though they did not come close to constituting a majority of the titles showcased.`\
+`Films by or about women stood out at this year’s Venice International Film Festival, though they represented only a fraction of the titles showcased.`\
 https://nytimes.com/2021/09/12/movies/venice-womens-stories.html?searchResultPosition=1
 
 **New York Fashion Week: Day 5**\
