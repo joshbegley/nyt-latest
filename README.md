@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/12/arts/dance/passion-fruit-dance-company-review.html?searchResultPosition=1
 
 **Despite Covid Risks, Many Leaders Plan to Attend U.N. General Assembly**\
-`Unlike the annual meeting last year, conducted almost entirely virtually because of pandemic restrictions, the United Nations is expecting leaders from at least 83 countries to speak in person`\
+`Unlike the annual meeting last year, conducted almost entirely virtually because of pandemic restrictions, the United Nations is expecting leaders from at least 83 countries to speak in person.`\
 https://nytimes.com/2021/09/12/world/covid-united-nations-general-assembly.html?searchResultPosition=2
 
 **False Election Claims in California Reveal a New Normal for G.O.P.**\
