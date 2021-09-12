@@ -14,7 +14,7 @@ https://nytimes.com/2021/09/11/us/alaska-airlines-mask-lora-reinbold.html?search
 `A special section doesn’t describe the events of Sept. 11, 2001, as much as it explores what happened after the attacks.`\
 https://nytimes.com/2021/09/11/insider/going-back-twenty-years-to-look-forward.html?searchResultPosition=5
 
-**Emma Raducanu wins the U.S. Open in straight sets.**\
+**Emma Raducanu wins the U.S. Open to complete a miraculous run.**\
 `Raducanu, ranked 150th in the world and barely known two weeks ago, became the first player to win a Grand Slam title after surviving the qualifying tournament.`\
 https://nytimes.com/2021/09/11/sports/tennis/emma-raducanu-wins-us-open.html?searchResultPosition=6
 
