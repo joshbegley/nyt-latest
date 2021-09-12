@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/12/obituaries/mick-tingelhoff-dead.html?searchResult
 https://nytimes.com/2021/09/12/us/newspaper-editorial-boards-newsom.html?searchResultPosition=2
 
 **Medvedev takes the first set, 6-4.**\
-`By Ben Rothenberg`\
+`Djokovic also lost the first set in his previous four matches, and came back to win each time.`\
 https://nytimes.com/2021/09/12/sports/tennis/medvedev-djokovic-first-set.html?searchResultPosition=3
 
 **Your Monday Briefing**\
