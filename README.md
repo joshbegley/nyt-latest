@@ -2,7 +2,7 @@
 `See Lil Nas X, Kacey Musgraves, Shawn Mendes and more stars on the red carpet.`\
 https://nytimes.com/slideshow/2021/09/12/style/mtv-vmas-2021-red-carpet-photos.html?searchResultPosition=1
 
-**1-Year-Old Killed, and Mother’s Boyfriend Is Arrested**\
+**1-Year-Old Is Killed, and Mother’s Boyfriend Is Arrested**\
 `The infant, Legacy Beauford, was one of two young boys in New York who the police believe were recently killed by their mothers’ partners.`\
 https://nytimes.com/2021/09/12/nyregion/1-year-old-infant-dies-bronx.html?searchResultPosition=2
 
