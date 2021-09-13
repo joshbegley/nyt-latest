@@ -1,40 +1,40 @@
-**Schools in New York City will fully reopen after 18 months of pandemic restrictions.**\
-`Almost all of the nearly 1 million students in the public system will return to class on Monday.`\
-https://nytimes.com/2021/09/13/nyregion/nyc-schools-reopening.html?searchResultPosition=1
+**What Failure? For Some, the War in Afghanistan Was a Big Success**\
+`There were lots of winners of the War in Afghanistan. Defense contractors, for one.`\
+https://nytimes.com/2021/09/13/opinion/afghanistan-war-economy.html?searchResultPosition=1
 
-**A Chinese province reports an outbreak of the Delta variant.**\
-`The 22 new local infections in Fujian Province are the most in China a month, adding to calls for Beijing to rethink its zero-Covid strategy.`\
-https://nytimes.com/2021/09/13/world/asia/china-fujian-delta-covid.html?searchResultPosition=2
+**Seeing Double With Jasper Johns**\
+`Two major museums teamed up for “Mind/Mirror,” only to realize they disagreed. Alike yet different, the two shows offer a revelatory look at America’s most famous living artist.`\
+https://nytimes.com/2021/09/13/arts/design/jasper-johns-mind-mirror.html?searchResultPosition=2
 
-**Should Students Be Allowed to Miss School for Mental Health Reasons?**\
-`New laws in several states allow children and adolescents to declare a mental health day. Is this a good trend? Do you wish your school gave you the option?`\
-https://nytimes.com/2021/09/13/learning/should-students-be-allowed-to-miss-school-for-mental-health-reasons.html?searchResultPosition=3
+**Unraveling the Mysteries Hidden in Vast Glacier Caves**\
+`A group of scientists and adventure athletes are venturing into icy labyrinths to study their relationships with glacial melting and climate change.`\
+https://nytimes.com/2021/09/13/travel/glacier-caves.html?searchResultPosition=3
 
-**Biden’s Bet on Vaccine Mandates**\
-`A look at the administration’s decision to require shots for millions of Americans.`\
-https://nytimes.com/2021/09/13/podcasts/the-daily/joe-biden-vaccine-mandates-coronavirus.html?searchResultPosition=4
+**A Medical Career, at a Cost: Infertility**\
+`Physicians are raising awareness of the reproductive toll that work stress, long hours, sleep deprivation and years of training can exact.`\
+https://nytimes.com/2021/09/13/health/women-doctors-infertility.html?searchResultPosition=4
 
-**Can a Green-Economy Boom Town Be Built to Last?**\
-`The race to make electric vehicles is turning some places into winners. Normal, Ill., is one of them. But it has seen good times go sour in the past.`\
-https://nytimes.com/2021/09/13/business/rivian-illinois-electric-vehicles.html?searchResultPosition=5
+**‘Their Crisis’ Is ‘Our Problem’: Washington Grapples With Idaho Covid Cases**\
+`Hospitals in Washington State, already strained, are taking on an influx of Covid patients from Idaho, where the governor has refused to require masks or vaccinations.`\
+https://nytimes.com/2021/09/13/us/coronavirus-hospitals-washington-idaho.html?searchResultPosition=5
 
-**Mexico’s Supreme Court Greenlit Abortion. Will Doctors and Nurses Listen?**\
-`Another battle looms over whether public hospitals will be required to offer the procedure.`\
-https://nytimes.com/2021/09/13/world/americas/mexico-abortion-objectors.html?searchResultPosition=6
+**Covid Isn’t Finished Messing With Politics**\
+`Or governorship for that matter. `\
+https://nytimes.com/2021/09/13/opinion/vaccine-mandates-newsom-recall.html?searchResultPosition=6
 
-**Biden Outlines a Plan for Cleaner Jet Fuel. But How Clean Would It Be?**\
-`Some biofuels may contribute to greenhouse gas emissions in ways that can significantly reduce, and sometimes offset, their advantages over fossil fuels, studies have shown.`\
-https://nytimes.com/2021/09/13/climate/sustainable-jet-fuel-biden.html?searchResultPosition=7
+**Britain Prepared for a Jobs Crisis, Just Not the One It Got**\
+`Instead of a surge in unemployment, businesses are struggling to fill positions, presenting a new risk to the pandemic recovery.`\
+https://nytimes.com/2021/09/13/business/britain-unfilled-jobs-crisis.html?searchResultPosition=7
 
-**Union Veteran Takes Over at Emily’s List as Abortion Fights Loom**\
-`Laphonza Butler, a labor leader turned strategist, will become the first woman of color — and the first mother — to lead the Democratic fund-raising powerhouse.`\
-https://nytimes.com/2021/09/13/us/politics/emilys-list-new-president-laphonza-butler.html?searchResultPosition=8
+**Moving to the Theater District and Finding His Community**\
+`A musical theater educator and audition coach discovers how great it can be to live across the street from “Wicked.”`\
+https://nytimes.com/2021/09/13/realestate/renting-new-york-city-theater-district.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/13/crosswords/spelling-bee-2021-09-13.html?searchResultPosition=9
+**N.Y.C. Virus Cases Appear to Plateau. Could an Uptick Lie Ahead?**\
+`As students head back to school, experts say that the city’s third coronavirus wave may be ebbing.`\
+https://nytimes.com/2021/09/13/nyregion/nyc-coronavirus-back-to-school.html?searchResultPosition=9
 
-**Word of the Day: flout**\
-`This word has appeared in 85 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/09/13/learning/word-of-the-day-flout.html?searchResultPosition=10
+**What the U.S. Withdrawal From Afghanistan Means for Taiwan**\
+`There are many reasons to fear a Chinese invasion of Taiwan. But  the American pullout isn’t one of them.`\
+https://nytimes.com/2021/09/13/opinion/china-taiwan-afghanistan.html?searchResultPosition=10
 
