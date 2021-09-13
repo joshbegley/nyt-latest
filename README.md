@@ -1,5 +1,5 @@
-**Tropical Storm Nicholas Lands in Texas**\
-`Tropical Storm Nicholas dumped more than a foot of rain on parts of coastal Texas with warnings of a dangerous storm surge extending east to Louisiana.`\
+**Tropical Storm Threatens Texas and Louisiana**\
+`The storm was expected to bring heavy rain to parts of coastal Texas and Louisiana starting Monday.`\
 https://nytimes.com/video/us/100000007970048/texas-storm-nicholas.html?searchResultPosition=1
 
 **$2.7 Million Homes in California**\
