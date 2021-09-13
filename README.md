@@ -22,19 +22,19 @@ https://nytimes.com/2021/09/12/sports/football/week-1-nfl-highlights-recap.html?
 `Twenty years after the attacks, the United States is still grappling with the consequences of brutal interrogations carried out in the name of national security.`\
 https://nytimes.com/2021/09/12/us/politics/torture-post-9-11.html?searchResultPosition=6
 
+**Daniil Medvedev wins the U.S. Open as Novak Djokovic falls short of a Grand Slam.**\
+`Djokovic’s defeat was the latest twist in a tournament that overflowed with stunning performances.`\
+https://nytimes.com/2021/09/12/sports/tennis/daniil-medvedev-wins-us-open.html?searchResultPosition=7
+
 **Zach Wilson Debuts for the Jets, but His Predecessor Shines Brighter**\
 `Carolina’s Sam Darnold threw for 279 yards and a touchdown. Wilson threw two scoring passes but threw an interception and took six sacks while often facing heavy pressure.`\
-https://nytimes.com/2021/09/12/sports/panthers-jets-zach-wilson-nfl-week-1.html?searchResultPosition=7
+https://nytimes.com/2021/09/12/sports/panthers-jets-zach-wilson-nfl-week-1.html?searchResultPosition=8
 
 **Join Us for a Conversation on Greening Cryptocurrency**\
 `On Oct. 5, Andrew Ross Sorkin and the DealBook team explore the environmental impact of digital currency and efforts to make it more sustainable.`\
-https://nytimes.com/2021/09/10/business/dealbook/join-us-for-a-conversation-on-greening-crypto.html?searchResultPosition=8
+https://nytimes.com/2021/09/10/business/dealbook/join-us-for-a-conversation-on-greening-crypto.html?searchResultPosition=9
 
 **Video Shows Women Marching at a Pro-Taliban Protest**\
 `The demonstration, on Sept. 11, followed the violent suppression of protests by some Afghan women demanding equal rights. The timing and the presence of Taliban fighters suggest the march was not just approved by the Taliban but potentially orchestrated by the group.`\
-https://nytimes.com/video/world/asia/100000007969076/women-pro-taliban-protest.html?searchResultPosition=9
-
-**Careful!**\
-`A. Tariq’s debut is bunches of fun.`\
-https://nytimes.com/2021/09/12/crosswords/daily-puzzle-2021-09-13.html?searchResultPosition=10
+https://nytimes.com/video/world/asia/100000007969076/women-pro-taliban-protest.html?searchResultPosition=10
 
