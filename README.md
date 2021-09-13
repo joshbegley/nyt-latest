@@ -1,5 +1,5 @@
 **It’s a Day of Firsts in N.Y.C. Schools, and Here**\
-`In a milestone moment, New York City’s 1 million schoolchildren are expected back in class today.`\
+`In a milestone moment, New York City’s one million schoolchildren are expected back in class today.`\
 https://nytimes.com/2021/09/13/nyregion/first-day-school-nyc.html?searchResultPosition=1
 
 **What Failure? For Some, the War in Afghanistan Was a Big Success**\
