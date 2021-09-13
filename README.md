@@ -19,7 +19,7 @@ https://nytimes.com/2021/09/12/sports/baseball/max-scherzer-3000-strikeouts.html
 https://nytimes.com/slideshow/2021/09/12/style/mtv-vmas-2021-red-carpet-photos.html?searchResultPosition=5
 
 **1-Year-Old Is Killed, and Mother’s Boyfriend Is Arrested**\
-`The infant, Legacy Beauford, was one of two young boys in New York who the police believe were recently killed by their mothers’ partners.`\
+`The infant, Legacy Beauford, was killed in the Bronx. In Brooklyn, a 4-year-old boy died after being found unconscious in a hallway.`\
 https://nytimes.com/2021/09/12/nyregion/1-year-old-infant-dies-bronx.html?searchResultPosition=6
 
 **What We Learned From Week 1 of the N.F.L. Season**\
