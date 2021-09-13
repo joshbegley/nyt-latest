@@ -16,7 +16,7 @@ https://nytimes.com/2021/09/12/nyregion/1-year-old-infant-dies-bronx.html?search
 
 **What We Learned From Week 1 of the N.F.L. Season**\
 `The Steelers won a reminder game over the Bills, Russell Wilson roasted the Colts, and Jalen Hurts looked unstoppable against the Falcons.`\
-https://nytimes.com/2021/09/12/sports/football/what-we-learned-from-week-1-of-the-nfl-season.html?searchResultPosition=5
+https://nytimes.com/2021/09/12/sports/football/week-1-nfl-highlights-recap.html?searchResultPosition=5
 
 **The Legacy of America’s Post-9/11 Turn to Torture**\
 `Twenty years after the attacks, the United States is still grappling with the consequences of brutal interrogations carried out in the name of national security.`\
