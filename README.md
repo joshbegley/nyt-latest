@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/12/sports/autoracing/indy-car-portland-oregon.html?s
 `Max Scherzer reached the 3,000-strikeout milestone, tossing an immaculate inning and flirting with a perfect game. His first strikeout victim remembers similar dominance.`\
 https://nytimes.com/2021/09/12/sports/baseball/max-scherzer-3000-strikeouts.html?searchResultPosition=2
 
-**VMAs 2021: See All of the Red Carpet Looks**\
+**Video Music Awards 2021: See All of the Red Carpet Looks**\
 `See Lil Nas X, Kacey Musgraves, Shawn Mendes and more stars on the red carpet.`\
 https://nytimes.com/slideshow/2021/09/12/style/mtv-vmas-2021-red-carpet-photos.html?searchResultPosition=3
 
