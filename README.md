@@ -1,6 +1,6 @@
 **North Korea Reports Test of New Cruise Missile as Arms Race Intensifies**\
 `The test was not a violation of U.N. sanctions but signaled the development of increasingly powerful weapons on the Korean Peninsula.`\
-https://nytimes.com/2021/09/12/world/asia/north-korea-cruise-missile-arms-race.html?searchResultPosition=1
+https://nytimes.com/2021/09/13/world/asia/north-korea-cruise-missile-arms-race.html?searchResultPosition=1
 
 **‘Billions’ Recap Season 5, Episode 9: A Prince Among Thieves**\
 `Axe continues to let his emotions lead his decisions. And now the consequences are teaming up to take him down.`\
