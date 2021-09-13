@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/13/business/media/paramount-pictures-viacomcbs-giano
 `The deal is part of Intuit’s effort to position itself as a one-stop shop for small and medium-sized businesses.`\
 https://nytimes.com/2021/09/13/business/mailchimp-intuit.html?searchResultPosition=2
 
-**R. Kelly Was Sexually Abusing Aaliyah When She Was 13 or 14, Witness Says**\
+**R. Kelly Sexually Abused Aaliyah When She Was 13 or 14, Witness Says**\
 `The witness, a former backup performer, said she walked in on the singers as they were engaged in a sex act around 1993, one year before they were illegally married.`\
 https://nytimes.com/2021/09/13/nyregion/r-kelly-trial-aaliyah.html?searchResultPosition=3
 
