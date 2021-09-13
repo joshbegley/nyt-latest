@@ -18,23 +18,23 @@ https://nytimes.com/2021/09/13/nyregion/first-day-school-nyc.html?searchResultPo
 `There were lots of winners of the War in Afghanistan. Defense contractors, for one.`\
 https://nytimes.com/2021/09/13/opinion/afghanistan-war-economy.html?searchResultPosition=5
 
+**Louisianans, still recovering from Ida, brace for yet more rain.**\
+`Some people remain without power from the previous storm. “We don’t need another one,” one resident said.`\
+https://nytimes.com/2021/09/13/us/nicholas-forecast-louisiana-texas.html?searchResultPosition=6
+
 **Seeing Double With Jasper Johns**\
 `Two major museums teamed up for “Mind/Mirror,” only to realize they disagreed. Alike yet different, the two shows offer a revelatory look at America’s most famous living artist.`\
-https://nytimes.com/2021/09/13/arts/design/jasper-johns-mind-mirror.html?searchResultPosition=6
+https://nytimes.com/2021/09/13/arts/design/jasper-johns-mind-mirror.html?searchResultPosition=7
 
 **Unraveling the Mysteries Hidden in Vast Glacier Caves**\
 `A group of scientists and adventure athletes are venturing into icy labyrinths to study their relationships with glacial melting and climate change.`\
-https://nytimes.com/2021/09/13/travel/glacier-caves.html?searchResultPosition=7
+https://nytimes.com/2021/09/13/travel/glacier-caves.html?searchResultPosition=8
 
 **A Medical Career, at a Cost: Infertility**\
 `Physicians are raising awareness of the reproductive toll that work stress, long hours, sleep deprivation and years of training can exact.`\
-https://nytimes.com/2021/09/13/health/women-doctors-infertility.html?searchResultPosition=8
+https://nytimes.com/2021/09/13/health/women-doctors-infertility.html?searchResultPosition=9
 
 **‘Their Crisis’ Is ‘Our Problem’: Washington Grapples With Idaho Covid Cases**\
 `Hospitals in Washington State, already strained, are taking on an influx of Covid patients from Idaho, where the governor has refused to require masks or vaccinations.`\
-https://nytimes.com/2021/09/13/us/coronavirus-hospitals-washington-idaho.html?searchResultPosition=9
-
-**Covid Isn’t Finished Messing With Politics**\
-`Or with the presidency. `\
-https://nytimes.com/2021/09/13/opinion/vaccine-mandates-newsom-recall.html?searchResultPosition=10
+https://nytimes.com/2021/09/13/us/coronavirus-hospitals-washington-idaho.html?searchResultPosition=10
 
