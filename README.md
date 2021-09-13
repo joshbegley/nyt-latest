@@ -2,7 +2,7 @@
 `After a summer of breezy cooking with the freshest ingredients, it’s time to get planning again.`\
 https://nytimes.com/2021/09/13/dining/stock-your-pantry.html?searchResultPosition=1
 
-**OPEC says oil demand will exceed pre-pandemic levels in 2022.**\
+**OPEC says oil demand will exceed prepandemic levels in 2022.**\
 `Rising demand for oil, especially in China and India, will outweigh the increasing appeal of electric cars and growth in renewable energy next year, the oil cartel said.`\
 https://nytimes.com/2021/09/13/business/opec-oil-demand-2022.html?searchResultPosition=2
 
