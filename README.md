@@ -1,6 +1,6 @@
 **Biden travels to California, a state in crisis as wildfires worsen**\
 `The trip marks the second time this month that the president has highlighted the human and financial toll of climate change.`\
-https://nytimes.com/2021/09/13/us/biden-travels-to-california-a-state-in-crisis-as-wildfires-worsen.html?searchResultPosition=1
+https://nytimes.com/2021/09/13/us/biden-california-wildfires.html?searchResultPosition=1
 
 **In Review, Top F.D.A. Scientists Question Imminent Need for Booster Shots**\
 `An article, written with other vaccine experts, put the regulators at odds with key federal health officials, including Dr. Anthony S. Fauci.`\
