@@ -35,6 +35,6 @@ https://nytimes.com/2021/09/13/health/women-doctors-infertility.html?searchResul
 https://nytimes.com/2021/09/13/us/coronavirus-hospitals-washington-idaho.html?searchResultPosition=9
 
 **Covid Isn’t Finished Messing With Politics**\
-`Or governorship for that matter. `\
+`Or with the presidency. `\
 https://nytimes.com/2021/09/13/opinion/vaccine-mandates-newsom-recall.html?searchResultPosition=10
 
