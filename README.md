@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/13/nyregion/eric-adams-business-crime.html?searchRes
 `For their first writing reunion since “Good Will Hunting,” Ben Affleck and Matt Damon collaborated with the writer-director Nicole Holofcener on a period drama.`\
 https://nytimes.com/2021/09/13/movies/the-last-duel-story-screenplay.html?searchResultPosition=3
 
-**The F.E.C. dismisses claims that Twitter broke the law by blocking a Hunter Biden article.**\
+**The F.E.C. dismisses claims that Twitter illegally blocked a Hunter Biden article.**\
 `The commission’s ruling provides further flexibility to social media giants to control what is shared on their platforms regarding federal elections.`\
 https://nytimes.com/2021/09/13/us/politics/fec-twitter-hunter-biden-article.html?searchResultPosition=4
 
