@@ -32,7 +32,7 @@ https://nytimes.com/2021/09/13/opinion/gavin-newsom-california-recall.html?searc
 
 **Watch Live: Biden Delivers Remarks on Wildfires and Climate Change**\
 `President Biden will deliver remarks on his administration’s response to recent wildfires and how his proposed investments will combat climate change and future extreme weather events.`\
-https://nytimes.com/video/us/politics/100000007970164/biden-wildfires-climate-change.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/politics/100000007970164/biden-wildfires-climate-change.html?searchResultPosition=9
 
 **Prince Andrew Seeks to Block Epstein Accuser’s Lawsuit**\
 `In the first hearing in the closely watched case, lawyers for the Duke of York argued that the lawsuit was baseless and legally dubious.`\
