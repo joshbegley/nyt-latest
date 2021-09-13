@@ -14,7 +14,7 @@ https://nytimes.com/2021/09/13/books/richard-powers-bewilderment.html?searchResu
 `The Philadelphia Museum will return a 16th-century shield that scholars say was once owned by Archduke Franz Ferdinand and later taken by the Nazis.`\
 https://nytimes.com/2021/09/13/arts/design/philadelphia-museum-franz-ferdinand-shield.html?searchResultPosition=4
 
-**Six Questions to Ask About Covid and Air Quality at Work**\
+**6 Questions to Ask About Covid and Air Quality at Work**\
 `Ventilation improvements, adding portable air cleaners and simply opening windows can lower the risk of infection in the office.`\
 https://nytimes.com/2021/09/13/well/covid-indoor-air-quality.html?searchResultPosition=5
 
