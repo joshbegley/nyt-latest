@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/13/arts/television/art-metrano-actor-dead.html?searc
 
 **Ella Emhoff Is All About Comfort**\
 `The story behind the beige-carpet look.`\
-https://nytimes.com/2021/09/13/style/ella-emhoff-is-all-about-comfort.html?searchResultPosition=3
+https://nytimes.com/2021/09/13/style/ella-emhoff-met-gala.html?searchResultPosition=3
 
 **Under G.O.P. Pressure, Tech Giants Are Empowered by Election Agency**\
 `New rulings by the Federal Election Commission protect the flexibility of major social media companies to control political content shared on their platforms.`\
