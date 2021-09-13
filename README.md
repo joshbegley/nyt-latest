@@ -22,7 +22,7 @@ https://nytimes.com/interactive/2021/09/13/learning/Brazil-Geography-Quiz.html?s
 `In a milestone moment, New York City’s one million schoolchildren are expected back in class today.`\
 https://nytimes.com/2021/09/13/nyregion/first-day-school-nyc.html?searchResultPosition=6
 
-**What Failure? For Some, the War in Afghanistan Was a Big Success**\
+**The War on Terror Was Corrupt From the Start**\
 `There were lots of winners of the War in Afghanistan. Defense contractors, for one.`\
 https://nytimes.com/2021/09/13/opinion/afghanistan-war-economy.html?searchResultPosition=7
 
