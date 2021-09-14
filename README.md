@@ -1,40 +1,40 @@
+**Colombo Family Crime Boss and 12 Others Are Arrested, Prosecutors Say**\
+`An indictment unsealed on Tuesday accuses the organization of orchestrating a two-decade scheme to extort a labor union.`\
+https://nytimes.com/2021/09/14/nyregion/colombo-family-mafia-arrested.html?searchResultPosition=1
+
 **The Kacey Musgraves Divorce Hour**\
 `The singer and songwriter’s fourth studio album, “Star-Crossed,” is a chronicle of her marriage’s collapse, delivered with lightly adventurous production and lighter regret.`\
-https://nytimes.com/2021/09/14/arts/music/kacey-musgraves-star-crossed-review.html?searchResultPosition=1
+https://nytimes.com/2021/09/14/arts/music/kacey-musgraves-star-crossed-review.html?searchResultPosition=2
 
 **A Far-Ranging Thai Menu That Started With a Slurp**\
 `Soothr, in the East Village, began as a simple noodle shop. Then the offerings grew to reflect several regions.`\
-https://nytimes.com/2021/09/14/dining/soothr-restaurant-review-thai-noodles.html?searchResultPosition=2
+https://nytimes.com/2021/09/14/dining/soothr-restaurant-review-thai-noodles.html?searchResultPosition=3
 
 **Thai Soups, Dry Soups and More**\
 `The kitchen at Soothr in the East Village looks beyond the tried and true.`\
-https://nytimes.com/slideshow/2021/09/14/dining/soothr-thai-food-nyc.html?searchResultPosition=3
+https://nytimes.com/slideshow/2021/09/14/dining/soothr-thai-food-nyc.html?searchResultPosition=4
 
 **Al Qaeda could rebuild in Afghanistan in a year or two, U.S. officials say.**\
-`The new timeline is not a radical shift from previous assessments, but reflects the reality that the Taliban has a limited ability to control the borders of Afghanistan.`\
-https://nytimes.com/2021/09/14/us/politics/al-qaeda-afghanistan.html?searchResultPosition=4
+`The new timeline is not a radical shift from previous assessments, but reflects the reality that the Taliban have a limited ability to control the borders of Afghanistan.`\
+https://nytimes.com/2021/09/14/us/politics/al-qaeda-afghanistan.html?searchResultPosition=5
 
 **What Makes Someone Seek Pain for Pleasure?**\
 `In “Hurts So Good,” Leigh Cowart explores the science and culture of masochism, from the competitive pepper-eater to the ultramarathoner to sex of a certain variety.`\
-https://nytimes.com/2021/09/14/books/review/hurts-so-good-leigh-cowart.html?searchResultPosition=5
+https://nytimes.com/2021/09/14/books/review/hurts-so-good-leigh-cowart.html?searchResultPosition=6
 
 **Fears That Trump Might Launch a Strike Prompted General to Reassure China, Book Says**\
 `In a sign of his concerns, the nation’s highest-ranking military officer also gathered commanders to remind them of the safeguards in the nuclear launch procedures.`\
-https://nytimes.com/2021/09/14/us/politics/trump-election-woodward-book.html?searchResultPosition=6
+https://nytimes.com/2021/09/14/us/politics/trump-election-woodward-book.html?searchResultPosition=7
 
 **Newsom’s lead is large enough to withstand major polling errors.**\
 `Gov. Gavin Newsom’s lead now dwarfs the typical polling error and is large enough to withstand nearly every California polling miss in recent memory.`\
-https://nytimes.com/2021/09/14/us/elections/polls-newsom-elder-recall.html?searchResultPosition=7
+https://nytimes.com/2021/09/14/us/elections/polls-newsom-elder-recall.html?searchResultPosition=8
 
 **Nicholas Makes Landfall in Texas**\
 `Tropical Storm Nicholas made landfall as a hurricane along the Texas coast early on Tuesday. The storm’s heavy rains are expected to threaten Louisiana, which is still recovering from Hurricane Ida.`\
-https://nytimes.com/video/us/100000007972834/texas-hurricane-nicholas-rain.html?searchResultPosition=8
+https://nytimes.com/video/us/100000007972834/texas-hurricane-nicholas-rain.html?searchResultPosition=9
 
 **Cedric the Entertainer Wants to Make the Emmys More Accessible**\
 `The comedian and star of CBS’s “The Neighborhood,” who will host this year’s Emmys, talks about his inclusive approach to TV’s big night and why “I don’t want that Oscars feel.”`\
-https://nytimes.com/2021/09/14/arts/television/cedric-the-entertainer-emmy-awards.html?searchResultPosition=9
-
-**‘Lost Between Borders’: Afghan Women on What They Left Behind**\
-`Four Afghan women who sought refuge in America talk about their lives now and everything they gave up.`\
-https://nytimes.com/2021/09/14/us/afghanistan-women-refugees.html?searchResultPosition=10
+https://nytimes.com/2021/09/14/arts/television/cedric-the-entertainer-emmy-awards.html?searchResultPosition=10
 
