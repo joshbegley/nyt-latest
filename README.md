@@ -1,32 +1,36 @@
+**Texas’ ‘Appalling’ New Abortion Law**\
+`“American women are careening closer and closer to square one for control of reproductive choice.” Also: Torture; giving Biden some time; OnlyFans.`\
+https://nytimes.com/2021/09/14/opinion/letters/texas-abortion.html?searchResultPosition=1
+
+**In Orange County, looking for a ‘fresh start.’**\
+`By Jill Cowan`\
+https://nytimes.com/2021/09/14/us/elections/in-orange-county-looking-for-a-fresh-start.html?searchResultPosition=2
+
 **Don’t get Bezosed**\
 `A spyware flaw, Elizabeth Holmes and my latest Facebook alert.`\
-https://nytimes.com/2021/09/14/opinion/iphone13-holmes-theranos.html?searchResultPosition=1
+https://nytimes.com/2021/09/14/opinion/iphone13-holmes-theranos.html?searchResultPosition=3
 
 **Fall Webinar Series: Teaching With The New York Times**\
 `From October to December, we’re hosting four free webinars to help teachers use our mentor texts, vocabulary features, and narrative and profile-writing contests in their classrooms.`\
-https://nytimes.com/2021/09/14/learning/fall-webinar-series-teaching-with-the-new-york-times.html?searchResultPosition=2
+https://nytimes.com/2021/09/14/learning/fall-webinar-series-teaching-with-the-new-york-times.html?searchResultPosition=4
 
 **How to Say What You Need to Say in Another Language**\
 `'My uncle is a lawyer, but my aunt has a spoon' is not useful language instruction.`\
-https://nytimes.com/2021/09/14/opinion/learn-foreign-language.html?searchResultPosition=3
+https://nytimes.com/2021/09/14/opinion/learn-foreign-language.html?searchResultPosition=5
+
+**On the trail with Larry Elder as he makes his last push with voters.**\
+`By Tim Arango`\
+https://nytimes.com/2021/09/14/us/elections/on-the-trail-with-larry-elder-as-he-makes-his-last-push-with-voters.html?searchResultPosition=7
 
 **Johnson Doubles Down on Vaccine Strategy as His Popularity Wanes**\
 `The British prime minister is betting that vaccinating adolescents and giving boosters to people over 50 will protect the health system and prevent new lockdowns.`\
-https://nytimes.com/2021/09/14/world/europe/boris-johnson-vaccine-children.html?searchResultPosition=5
+https://nytimes.com/2021/09/14/world/europe/boris-johnson-vaccine-children.html?searchResultPosition=8
 
 **When Politics Isn’t About Principle**\
 `From vaccine mandates to religious liberty, your allies often matter more than your ideology.`\
-https://nytimes.com/2021/09/14/opinion/vaccine-politics.html?searchResultPosition=6
+https://nytimes.com/2021/09/14/opinion/vaccine-politics.html?searchResultPosition=9
 
 **NEW YORK LOVE BY DESIGN**\
 `Cartier’s most iconic designs were born from seminal moments in history; cultural collisions that transformed how we lived then — and now.`\
-https://nytimes.com/paidpost/cartier/new-york-love-by-design.html?searchResultPosition=7
-
-**Dancers From the Deep Sea Shine on the U.N. for Climate Week**\
-`A Danish arts collective spotlights the bizarrely beautiful siphonophore, which performs a vital role in removing carbon from the atmosphere.`\
-https://nytimes.com/2021/09/14/arts/design/video-united-nations-climate-week.html?searchResultPosition=8
-
-**Apple’s new iPhone 13 is better, but not by much.**\
-`Apple said its new iPhone 13 models have better screens, cameras and battery life, but it didn’t announce any major new advances.`\
-https://nytimes.com/2021/09/14/technology/apple-iphone-13.html?searchResultPosition=10
+https://nytimes.com/paidpost/cartier/new-york-love-by-design.html?searchResultPosition=10
 
