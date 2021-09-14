@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2021/09/13/technology/iphone-software-update-sec
 
 **When will Californians know who won the recall?**\
 `The polls close Tuesday at 8 p.m. Pacific time, and nearly 40 percent of registered voters have already cast ballots.`\
-https://nytimes.com/2021/09/13/us/when-will-californians-know-who-won-the-recall.html?searchResultPosition=2
+https://nytimes.com/2021/09/13/us/when-will-californians-know-who-won-recall.html?searchResultPosition=2
 
 **Justice Dept. Imposes Limits on Oversight of Local Police**\
 `The changes address longstanding requests of police departments, who had said that monitors overseeing policing overhauls needed more accountability.`\
