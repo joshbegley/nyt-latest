@@ -1,6 +1,6 @@
 **Red Carpet Radicals: The Met Gala Really Wanted To Make A Statement**\
 `This year’s theme was American Independence. Patriotism, pop culture and politics were in fashion, but to what end?`\
-https://nytimes.com/2021/09/14/style/met-gala-aoc-.html?searchResultPosition=1
+https://nytimes.com/2021/09/14/style/met-gala-fashion-aoc-kim-petras.html?searchResultPosition=1
 
 **Seeking Art That Expands the Possibilities for a Troubled World**\
 `The shock of the pandemic is being channeled into artistic creations that offer global range and historical insight. It’s something to look forward to.`\
