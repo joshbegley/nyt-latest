@@ -1,5 +1,5 @@
-**Cuba will begin vaccinating children as young as 2 against the coronavirus.**\
-`The island nation, the first to give Covid shots to children so young, is using domestically made vaccines whose trial data have not been peer-reviewed.`\
+**Cuba will begin giving shots to children as young as 2.**\
+`The island nation, the first to vaccinate children so young against the coronavirus, is using domestically made vaccines whose trial data have not been peer-reviewed.`\
 https://nytimes.com/2021/09/14/world/americas/cuba-children-vaccine.html?searchResultPosition=1
 
 **Julie Delpy’s New Netflix Comedy Gives Voice to Women ‘On the Verge’**\
