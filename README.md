@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/14/technology/new-apple-watch.html?searchResultPosit
 https://nytimes.com/2021/09/14/technology/facebook-vip-system.html?searchResultPosition=2
 
 **How Climate Change Is Killing Small Towns**\
-`Repeated extreme weather events fueled by climate change can cause financial collapse.`\
+`Repeated extreme weather events fueled by climate change can cause financial collapse. `\
 https://nytimes.com/interactive/2021/09/14/climate/14climate-bankruptcy.html?searchResultPosition=3
 
 **The Triple Crown Is in His Reach. The M.V.P. Probably Isn’t.**\
