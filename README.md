@@ -36,5 +36,5 @@ https://nytimes.com/video/embedded/us/politics/100000007970164/biden-wildfires-c
 
 **Prince Andrew Seeks to Block Epstein Accuser’s Lawsuit**\
 `In the first hearing in the closely watched case, lawyers for the Duke of York argued that the lawsuit was baseless and legally dubious.`\
-https://nytimes.com/2021/09/13/nyregion/prince-andrew-giuffre-lawsuit.html?searchResultPosition=10
+https://nytimes.com/2021/09/13/nyregion/prince-andrew-giuffre-epstein-lawsuit.html?searchResultPosition=10
 
