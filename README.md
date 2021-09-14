@@ -1,4 +1,4 @@
-**Democrats to Propose Compromise Voting Rights Bill**\
+**Democrats to propose a compromise voting rights bill.**\
 `The stripped-down measure is intended to demonstrate party unity in the face of Republican opposition to new federal voting standards.`\
 https://nytimes.com/2021/09/14/us/voting-rights-bill-democrats.html?searchResultPosition=1
 
