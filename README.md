@@ -1,6 +1,6 @@
-**Lorde,Tom Ford and Kacey Musgrave Party During Fashion Week**\
+**Lorde,Tom Ford and Kacey Musgraves Party During Fashion Week**\
 `Despite the Delta variant, the fashion tribe found lots of reason to celebrate.`\
-https://nytimes.com/2021/09/14/fashion/lordetom-ford-and-kacey-musgrave-party-during-fashion-week.html?searchResultPosition=1
+https://nytimes.com/2021/09/14/fashion/lordetom-ford-and-kacey-musgraves-party-during-fashion-week.html?searchResultPosition=1
 
 **New York Will Soon Lose 1 House Seat. The G.O.P. Might Lose 5.**\
 `A new bipartisan commission is drawing up district lines, but New York Democratic leaders are laying the groundwork to take over the redistricting process.`\
