@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/14/briefing/biden-democrats-tax-increases-funding.ht
 
 **Job vacancies in Britain break a record as furlough program nears an end.**\
 `There are more than a million job vacancies in Britain, and the number of employees on payroll has returned to its prepandemic size.`\
-https://nytimes.com/2021/09/14/business/job-vacancies-in-britain-break-a-record-as-furlough-program-nears-an-end.html?searchResultPosition=6
+https://nytimes.com/2021/09/14/business/uk-job-vacancies-furlough.html?searchResultPosition=6
 
 **For Military Families, V.A. Loans Are a Lifeline, but With a Catch**\
 `The mortgages have helped millions of soldiers buy homes, but they carry a mostly unfair stigma that has kept many families out of today’s competitive market.`\
