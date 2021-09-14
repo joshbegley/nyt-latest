@@ -1,10 +1,10 @@
+**Tiny Love Stories: ‘The Most Beautiful Man I Had Ever Seen’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2021/09/14/style/tiny-modern-love-stories-the-most-beautiful-man-i-had-ever-seen.html?searchResultPosition=1
+
 **Texas’ ‘Appalling’ New Abortion Law**\
 `“American women are careening closer and closer to square one for control of reproductive choice.” Also: Torture; giving Biden some time; OnlyFans.`\
-https://nytimes.com/2021/09/14/opinion/letters/texas-abortion.html?searchResultPosition=2
-
-**In Orange County, some are looking for a ‘fresh start.’**\
-`By Jill Cowan`\
-https://nytimes.com/live/2021/09/14/us/california-recall-election-newsom/in-orange-county-some-are-looking-for-a-fresh-start?searchResultPosition=3
+https://nytimes.com/2021/09/14/opinion/letters/texas-abortion.html?searchResultPosition=3
 
 **Don’t get Bezosed**\
 `A spyware flaw, Elizabeth Holmes and my latest Facebook alert.`\
