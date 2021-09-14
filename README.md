@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/14/arts/dance/ayodele-casel-little-island-dance-fest
 `The army has escalated attacks on militias that oppose its rule, driving thousands of people into the hills. A shadow government has called for a nationwide uprising.`\
 https://nytimes.com/2021/09/14/world/asia/myanmar-peoples-defense-force.html?searchResultPosition=3
 
-**Red Carpet Radicals: The Met Gala Really Wanted To Make A Statement**\
+**Red Carpet Radicals: The Met Gala Really Wanted to Make a Statement**\
 `This year’s theme was American Independence. Patriotism, pop culture and politics were in fashion, but to what end?`\
 https://nytimes.com/2021/09/14/style/met-gala-fashion-aoc-kim-petras.html?searchResultPosition=4
 
