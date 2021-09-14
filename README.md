@@ -19,8 +19,8 @@ https://nytimes.com/2021/09/14/learning/fall-webinar-series-teaching-with-the-ne
 https://nytimes.com/2021/09/14/opinion/learn-foreign-language.html?searchResultPosition=6
 
 **On the trail with Larry Elder as he makes his last push with voters.**\
-`By Tim Arango`\
-https://nytimes.com/2021/09/14/us/elections/on-the-trail-with-larry-elder-as-he-makes-his-last-push-with-voters.html?searchResultPosition=8
+`Elder, the conservative radio host, is the leading contender to replace Gov. Gavin Newsom.`\
+https://nytimes.com/2021/09/14/us/elections/larry-elder-voters.html?searchResultPosition=8
 
 **Johnson Doubles Down on Vaccine Strategy as His Popularity Wanes**\
 `The British prime minister is betting that vaccinating adolescents and giving boosters to people over 50 will protect the health system and prevent new lockdowns.`\
