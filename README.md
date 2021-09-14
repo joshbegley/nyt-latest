@@ -36,5 +36,5 @@ https://nytimes.com/2021/09/14/us/coronavirus-briefing-what-happened-today.html?
 
 **California’s elections chief says voting is unfolding smoothly, despite a charged environment.**\
 `The Times spoke with Secretary of State Shirley Weber, who oversees the state’s elections and described few hiccups on Tuesday.`\
-https://nytimes.com/2021/09/14/us/elections/shirley-weber.html?searchResultPosition=10
+https://nytimes.com/2021/09/14/us/elections/california-election-vote-count.html?searchResultPosition=10
 
