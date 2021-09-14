@@ -1,40 +1,40 @@
+**‘Lost Between Borders’: Afghan Women on What They Left Behind**\
+`Four Afghan women who sought refuge in America talk about their lives now and everything they gave up.`\
+https://nytimes.com/2021/09/14/us/afghanistan-women-refugees.html?searchResultPosition=1
+
 **‘Great Circle,’ ‘Bewilderment’ Among Booker Prize Finalists**\
 `This year’s shortlist includes novels by Nadifa Mohamed, Patricia Lockwood, Damon Galgut and Anuk Arudpragasam. A winner will be named in November.`\
-https://nytimes.com/2021/09/14/books/booker-prize-2021-shortlist.html?searchResultPosition=1
+https://nytimes.com/2021/09/14/books/booker-prize-2021-shortlist.html?searchResultPosition=2
 
 **Poverty in U.S. declined last year as government aid made up for lost jobs.**\
 `Taking into account government benefits, a smaller share of the population was living in poverty in 2020 even as the pandemic eliminated millions of jobs.`\
-https://nytimes.com/2021/09/14/business/economy/census-income-poverty-health-insurance.html?searchResultPosition=2
+https://nytimes.com/2021/09/14/business/economy/census-income-poverty-health-insurance.html?searchResultPosition=3
 
 **When a Fairy Tale Is Disputed Territory**\
 `Sheriff Tiraspol, a team from Moldova (sort of), has made the Champions League. But whether the club’s story is wonderful or worrying depends on the light.`\
-https://nytimes.com/2021/09/14/sports/soccer/champions-league-sheriff-tiraspol.html?searchResultPosition=3
+https://nytimes.com/2021/09/14/sports/soccer/champions-league-sheriff-tiraspol.html?searchResultPosition=4
 
 **Inside the Met Gala After-Parties**\
 `Timothée Chalamet, Lorde, Billie Eilish, Kacey Musgraves kept the party going all night.`\
-https://nytimes.com/slideshow/2021/09/14/style/met-gala-after-party-photos.html?searchResultPosition=4
+https://nytimes.com/slideshow/2021/09/14/style/met-gala-after-party-photos.html?searchResultPosition=5
 
 **Miso Mellows This Chile Crisp**\
 `Okazu Chili Miso is a richer, denser version of the pantry staple, made in Canada.`\
-https://nytimes.com/2021/09/14/dining/okazu-chili-miso.html?searchResultPosition=5
+https://nytimes.com/2021/09/14/dining/okazu-chili-miso.html?searchResultPosition=6
 
 **With Rikers in Crisis, Critics Wonder: Where Is Bill de Blasio?**\
 `The mayor is facing growing calls to address chaotic and violent conditions inside New York City’s vast jail complex.`\
-https://nytimes.com/2021/09/14/nyregion/de-blasio-rikers-island.html?searchResultPosition=6
+https://nytimes.com/2021/09/14/nyregion/de-blasio-rikers-island.html?searchResultPosition=7
 
 **‘Release. Joy. Love.’ A Dance Festival at Little Island.**\
 `Ayodele Casel and Torya Beard have organized a festival that celebrates percussive dance and artists of all ages.`\
-https://nytimes.com/2021/09/14/arts/dance/ayodele-casel-little-island-dance-festival.html?searchResultPosition=7
+https://nytimes.com/2021/09/14/arts/dance/ayodele-casel-little-island-dance-festival.html?searchResultPosition=8
 
 **Cold, Frightened and Armed: In Myanmar’s Jungles, a Struggling Resistance**\
 `The army has escalated attacks on militias that oppose its rule, driving thousands of people into the hills. A shadow government has called for a nationwide uprising.`\
-https://nytimes.com/2021/09/14/world/asia/myanmar-peoples-defense-force.html?searchResultPosition=8
+https://nytimes.com/2021/09/14/world/asia/myanmar-peoples-defense-force.html?searchResultPosition=9
 
 **Red Carpet Radicals: The Met Gala Really Wanted to Make a Statement**\
 `This year’s theme was American Independence. Patriotism, pop culture and politics were in fashion, but to what end?`\
-https://nytimes.com/2021/09/14/style/met-gala-fashion-aoc-kim-petras.html?searchResultPosition=9
-
-**Seeking Art That Expands the Possibilities for a Troubled World**\
-`The shock of the pandemic is being channeled into artistic creations that offer global range and historical insight. It’s something to look forward to.`\
-https://nytimes.com/2021/09/14/arts/design/global-consciousness-art.html?searchResultPosition=10
+https://nytimes.com/2021/09/14/style/met-gala-fashion-aoc-kim-petras.html?searchResultPosition=10
 
