@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2021/09/14/learning/14Student-News-Quiz.html?sea
 https://nytimes.com/2021/09/14/world/putin-covid-russia.html?searchResultPosition=4
 
 **Tonight, a Night at the Theater**\
-`The biggest Broadway shows  reopen this evening, a year and a half after the pandemic closed in on New York.`\
+`The biggest Broadway shows reopen this evening, a year and a half after the pandemic closed in on New York.`\
 https://nytimes.com/2021/09/14/nyregion/tonight-a-night-at-the-theater.html?searchResultPosition=5
 
 **Meet Two British Retirees Living Their Golden Years in the Philippines**\
