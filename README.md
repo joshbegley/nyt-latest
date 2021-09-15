@@ -23,7 +23,7 @@ https://nytimes.com/2021/09/15/movies/nightbooks-review-a-fairy-tale-horror-fit-
 https://nytimes.com/video/us/politics/100000007974803/biden-national-security-live-video.html?searchResultPosition=6
 
 **Gymnasts Testify to Senate on Abuse From Larry Nassar**\
-`Simone Biles, Aly Raisman and McKayla Maroney testified before the Senate on the sexual abuse investigation involving former U.S.A. gymnastics team doctor, Larry Nassar. The gymnasts also received an apology from the F.B.I. director, Christopher A. Wray, for the handling of the case.`\
+`Aly Raisman, Simone Biles, McKayla Maroney and Maggie Nichols testified before the Senate on the sexual abuse investigation involving the former U.`\
 https://nytimes.com/video/us/politics/100000007975842/biles-gymnasts-larry-nassar-abuse-fbi-hearing.html?searchResultPosition=7
 
 **In Bid to End Secession Dispute, Spain Tries Talking with Catalonia**\
