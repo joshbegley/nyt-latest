@@ -1,5 +1,5 @@
 **10 Deaths, Exhausted Guards, Rampant Violence: Why Rikers Is in Crisis**\
-`Deteriorating conditions and a number of recent deaths have prompted questions about the notorious New York City jail complex. Here are some answers.`\
+`A number of recent deaths have prompted questions about the notorious New York City jail complex. Here are some answers.`\
 https://nytimes.com/2021/09/15/nyregion/rikers-island-jail.html?searchResultPosition=1
 
 **Smartphones May Be Too Good**\
