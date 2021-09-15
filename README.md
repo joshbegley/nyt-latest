@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/15/realestate/why-the-best-trees-arent-always-the-bi
 
 **Emily Oster, the Brown economist, is launching a new data hub on schools and the pandemic.**\
 `The hub could eventually help measure the pandemic’s broad impact on children and the education system itself.`\
-https://nytimes.com/2021/09/15/education/emily-oster-the-brown-economist-is-launching-a-new-data-hub-on-schools-and-the-pandemic.html?searchResultPosition=6
+https://nytimes.com/2021/09/15/education/emily-oster-covid-data-schools.html?searchResultPosition=6
 
 **The pandemic was the No. 1 issue for many voters in California’s recall election.**\
 `The recall served as a preview of next year’s midterm elections, with voters sharply divided over masks, lockdowns and mandatory vaccinations.`\
