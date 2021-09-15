@@ -31,6 +31,6 @@ https://nytimes.com/2021/09/15/world/europe/catalonia-spain-sanchez-aragones.htm
 https://nytimes.com/2021/09/15/briefing/north-korea-missiles-me-too-china.html?searchResultPosition=9
 
 **Jaap van Zweden to Step Down as New York Philharmonic’s Maestro**\
-`Citing a reassessment of his priorities during the pandemic, and the desire to spend more time with his family, the conductor will leave his post after the 2023-24 season.`\
+`Citing a reassessment of his priorities during the pandemic, the conductor will leave his post after the 2023-24 season.`\
 https://nytimes.com/2021/09/15/arts/music/jaap-van-zweden-new-york-philharmonic.html?searchResultPosition=10
 
