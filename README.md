@@ -18,8 +18,8 @@ https://nytimes.com/2021/09/14/pageoneplus/corrections-sept-15-2021.html?searchR
 `At the main plant of Motivatit Seafoods, a family-run oyster farming and processing business in Houma, rain from Tropical Depression Nicholas poured down from the roof, which was already damaged by Hurricane Ida.`\
 https://nytimes.com/video/us/100000007974268/nicholas-flash-flooding-louisiana-ida.html?searchResultPosition=5
 
-**Former Client Charged With Shooting Alex Murdaugh in ‘Assisted Suicide’ Attempt**\
-`A 61-year-old man was arrested after Mr. Murdaugh survived a shooting on a rural South Carolina road. Mr. Murdaugh’s wife and son were fatally shot in June.`\
+**Alex Murdaugh Told His Former Client to Kill Him Before Shooting, Police Say**\
+`A 61-year-old man was arrested after Mr. Murdaugh survived being shot in the head on a rural South Carolina road. Mr. Murdaugh’s wife and son had been fatally shot in June.`\
 https://nytimes.com/2021/09/14/us/alex-murdaugh-shooting-arrest.html?searchResultPosition=6
 
 **Your Wednesday Briefing**\
