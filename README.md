@@ -1,10 +1,10 @@
-**Police in Aurora, Colo., Engaged in Racially Biased Policing, Investigation Finds**\
-`The inquiry by the Colorado Department of Law began after the 2019 death of Elijah McClain, a young Black man who was stopped by the police, put into a chokehold and injected with a powerful anesthetic.`\
-https://nytimes.com/2021/09/15/us/elijah-mcclain-aurora-police-department.html?searchResultPosition=1
-
 **The Endless Catastrophe of Rikers Island**\
 `The mayor promised to close the jail years ago, but the situation there is as desperate as it’s ever been.`\
-https://nytimes.com/2021/09/15/opinion/rikers-island-de-blasio-close.html?searchResultPosition=2
+https://nytimes.com/2021/09/15/opinion/rikers-island-de-blasio-close.html?searchResultPosition=1
+
+**Police in Aurora, Colo., Engaged in Racially Biased Policing, Investigation Finds**\
+`The inquiry by the Colorado Department of Law began after the 2019 death of Elijah McClain, a young Black man who was stopped by the police, put into a chokehold and injected with a powerful anesthetic.`\
+https://nytimes.com/2021/09/15/us/elijah-mcclain-aurora-police-department.html?searchResultPosition=2
 
 **Why Are We Still Going Great Guns?**\
 `The subject is guns. The password is safety.`\
@@ -27,7 +27,7 @@ https://nytimes.com/2021/09/15/theater/jean-claude-van-itallie-dead.html?searchR
 https://nytimes.com/2021/09/15/us/georgetown-tennis-coach-guilty-varsity-blues.html?searchResultPosition=7
 
 **Democrats’ Stumble on Drug Prices Shows Power of Industry**\
-`An attempt in the House to take a bite out of drug companies has been halted for now.`\
+`An attempt in the House to take a bite out of drug companies has stalled.`\
 https://nytimes.com/2021/09/15/upshot/democrats-stumble-drug-prices.html?searchResultPosition=8
 
 **At Coach, an Eclectic Paean to New York Cool**\
