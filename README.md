@@ -1,40 +1,40 @@
-**What to Read: 5 Visual Books**\
-`From Frida Kahlo to food insecurity, these are our picks for this week.`\
-https://nytimes.com/interactive/2021/09/15/books/booksupdate/new-coffee-table-books.html?searchResultPosition=1
+**Halle Berry’s Fight for the Director’s Chair**\
+`In many ways, her new film “Bruised” lets her assert control over how she appears onscreen. But first she had to win the job.`\
+https://nytimes.com/2021/09/15/movies/halle-berry-bruised.html?searchResultPosition=1
 
-**The E.U. will create an agency to guide its response to future pandemics.**\
-`Ursula von der Leyen, president of the E.U.’s executive arm, also said the bloc would donate 200 million additional vaccine doses to middle- and low-income countries by mid-2022.`\
-https://nytimes.com/2021/09/15/world/eu-health-agency-pandemic-covid.html?searchResultPosition=2
+**Nicholas, now a tropical depression, threatens more heavy rain in the flood-battered South.**\
+`Forecasters warned that the storm could produce life-threatening flash flooding as it moves east through Louisiana on Wednesday.`\
+https://nytimes.com/2021/09/15/us/nicholas-forecast-path-louisiana.html?searchResultPosition=2
 
-**A Hypebeast Comes to the Luxury House**\
-`The streetwear veteran Nigo is named Kenzo’s first Japanese artistic director since 1999.`\
-https://nytimes.com/2021/09/15/style/nigo-kenzo-lvmh.html?searchResultPosition=3
+**Rhinebeck, N.Y.: A Historic Community With Cultural Amenities**\
+`With young families moving in, the Dutchess County town and the village at its center are increasingly lively — and increasingly pricey.`\
+https://nytimes.com/2021/09/15/realestate/rhinebeck-ny-a-historic-community-with-cultural-amenities.html?searchResultPosition=3
 
-**Lesson of the Day: ‘Let Us Now Praise Tiny Ants’**\
-`Ants are everywhere. But how often do we stop to really notice them? In this lesson, students will learn about one of our smallest neighbors and reconsider what we know and how we feel about them.`\
-https://nytimes.com/2021/09/15/learning/lesson-of-the-day-let-us-now-praise-tiny-ants.html?searchResultPosition=4
+**Living In ... Rhinebeck, N.Y.**\
+`With young families moving in, the Dutchess County town and the village at its center are increasingly lively — and increasingly pricey.`\
+https://nytimes.com/slideshow/2021/09/15/realestate/living-in-rhinebeck-ny.html?searchResultPosition=4
 
-**Boston Mayor’s Race Narrows, With a Progressive in the Lead**\
-`The city’s 91-year succession of Irish American and Italian American mayors has ended, with Michelle Wu earning one of two spots in the general election in November.`\
-https://nytimes.com/2021/09/15/us/boston-mayor-election-michelle-wu.html?searchResultPosition=5
+**In Rural Afghanistan, War Remnants Everywhere, but no Shooting or Checkpoints**\
+`Since the Taliban takeover, much of Afghanistan’s countryside has seen a big drop in violence after 20 years of fighting. “It has been a long time now since a bullet hit our homes.”`\
+https://nytimes.com/2021/09/15/world/Afghanistan-rural-life-under-Taliban.html?searchResultPosition=5
 
-**SpaceX’s Inspiration4 Mission: When to Watch the Launch**\
-`Here’s what you need to know about the three-day orbital journey of four Americans, none of them professional astronauts.`\
-https://nytimes.com/2021/09/15/science/spacex-launch-time-schedule-inspiration4.html?searchResultPosition=6
+**How One Principal Got Students Back to a Bronx Public School**\
+`Last year, 80 percent of students at Public School 5 and half its teachers learned and taught remotely.`\
+https://nytimes.com/2021/09/15/nyregion/bronx-public-school-students.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/15/crosswords/spelling-bee-2021-09-15.html?searchResultPosition=7
+**How Ibrahim Kamara Found His Place in Fashion**\
+`After a journey that began on the war-torn streets of Sierra Leone, the Dazed editor in chief is now one of fashion’s most influential stylists.`\
+https://nytimes.com/2021/09/15/fashion/how-ibrahim-kamara-found-his-place-in-fashion.html?searchResultPosition=7
 
-**Late Night Remembers Norm Macdonald**\
-`Seth Meyers, James Corden and Jimmy Fallon paid tribute to the stand-up comic and former “Saturday Night Live” cast member on Tuesday.`\
-https://nytimes.com/2021/09/15/arts/television/snl-norm-macdonald.html?searchResultPosition=8
+**The Greatest Killer in New Orleans Wasn’t the Hurricane. It Was the Heat.**\
+`A huge power failure after Hurricane Ida left vulnerable residents in sweltering apartments for days. At least 10 deaths in the city have been tied to the heat.`\
+https://nytimes.com/2021/09/15/us/new-orleans-hurricane-ida-heat.html?searchResultPosition=8
 
-**Word of the Day: obdurate**\
-`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/09/15/learning/word-of-the-day-obdurate.html?searchResultPosition=9
+**Dancing Through New York in a Summer of Joy and Grief**\
+`During the brief moment when the pandemic was receding and we could be together again, all we wanted to do was move our bodies.`\
+https://nytimes.com/2021/09/15/magazine/dancing-new-york-summer.html?searchResultPosition=9
 
-**High hopes for victory at Larry Elder’s party, and then a concession.**\
-`Mr. Elder, the Republican front-runner, told a crowd of supporters in Orange County late Tuesday night: “Let’s be gracious in defeat.”`\
-https://nytimes.com/2021/09/15/us/elections/concession-elder-newsom-california.html?searchResultPosition=10
+**Climate Change Calls for Backup Power, and One Company Cashes In**\
+`Generac, a Wisconsin-based manufacturer that dominates the market for standby home generators, is an unlikely Wall Street darling.`\
+https://nytimes.com/2021/09/15/business/generac-climate-change-generators.html?searchResultPosition=10
 
