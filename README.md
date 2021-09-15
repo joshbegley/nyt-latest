@@ -26,15 +26,15 @@ https://nytimes.com/2021/09/15/us/will-districts-mandate-shots-for-students.html
 `Sarah Benson, the theater’s artistic director, said she hopes that the productions this season will respond to a transformative moment in theater.`\
 https://nytimes.com/2021/09/15/theater/soho-rep-returns.html?searchResultPosition=7
 
+**Here are some coping mechanisms for return-to-work anxiety.**\
+`By Dani Blum`\
+https://nytimes.com/2021/09/15/well/here-are-some-coping-mechanisms-for-return-to-work-anxiety.html?searchResultPosition=8
+
 **Defeated in the recall, Larry Elder looks to a future in conservative politics.**\
 `The California recall turned the conservative talk radio host into a bona fide Trump-era political celebrity.`\
-https://nytimes.com/2021/09/15/us/larry-elder-recall.html?searchResultPosition=8
+https://nytimes.com/2021/09/15/us/larry-elder-recall.html?searchResultPosition=9
 
 **Can America Afford to Become a Major Social Welfare State?**\
 `Biden's $3.5 trillion spending plan raises larger questions about the kind of nation we want to be.`\
-https://nytimes.com/2021/09/15/opinion/biden-spending-plan-welfare.html?searchResultPosition=9
-
-**What Can a President Do About Wildfires?**\
-`President Biden touted his actions on wildfires on a tour in California. But what’s really in his power?`\
-https://nytimes.com/2021/09/15/climate/climate-newsletter-wildfires.html?searchResultPosition=10
+https://nytimes.com/2021/09/15/opinion/biden-spending-plan-welfare.html?searchResultPosition=10
 
