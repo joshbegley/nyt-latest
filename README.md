@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/15/us/elections/concession-elder-newsom-california.h
 `Quotation of the Day for Wednesday September 15, 2021.`\
 https://nytimes.com/2021/09/15/todayspaper/quotation-of-the-day-pope-rejects-political-use-of-symbols-of-the-faith.html?searchResultPosition=9
 
-**North Korea Fires 2 Ballistic Missiles Off Its East Coast**\
+**North Korea Fires 2 Ballistic Missiles as Rivalry With the South Mounts**\
 `The launch on Wednesday was the country’s first ballistic missile test in six months, and violated multiple United Nations Security Council resolutions.`\
 https://nytimes.com/2021/09/15/world/asia/north-korea-ballistic-missiles.html?searchResultPosition=10
 
