@@ -27,7 +27,7 @@ https://nytimes.com/2021/09/15/theater/jean-claude-van-itallie-dead.html?searchR
 https://nytimes.com/2021/09/15/us/georgetown-tennis-coach-guilty-varsity-blues.html?searchResultPosition=7
 
 **Democrats’ Stumble on Drug Prices Shows Power of Industry**\
-`An attempt in the House to take a bite out of drug companies has stalled.`\
+`An attempt in the House to take a bite out of drug companies meets resistance.`\
 https://nytimes.com/2021/09/15/upshot/democrats-stumble-drug-prices.html?searchResultPosition=8
 
 **At Coach, an Eclectic Paean to New York Cool**\
