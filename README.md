@@ -1,6 +1,6 @@
 **Prominent Chinese #MeToo Figure Vows to Appeal After Losing Case**\
 `Zhou Xiaoxuan, a former television intern, became a leading voice in the movement after accusing a star presenter of assault.`\
-https://nytimes.com/2021/09/14/world/asia/china-zhou-xiaoxuan-metoo.html?searchResultPosition=1
+https://nytimes.com/2021/09/15/world/asia/china-zhou-xiaoxuan-metoo.html?searchResultPosition=1
 
 **America’s Grand Reopening, Postponed**\
 `New York Times photographers around the United States spent the past six months documenting the coronavirus economy. As its path veered, so did our sense of where the finish line was.`\
