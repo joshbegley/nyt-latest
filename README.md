@@ -14,7 +14,7 @@ https://nytimes.com/2021/09/16/sports/football/nfl-picks-against-spread.html?sea
 `The trial of the Theranos founder throws a spotlight on tech stardom, start-up culture and Silicon Valley hubris.`\
 https://nytimes.com/2021/09/16/podcasts/the-daily/elizabeth-holmes-trial-theranos-silicon-valley.html?searchResultPosition=4
 
-**China says it has vaccinated 1 billion people.**\
+**China says it has fully vaccinated 1 billion people.**\
 `The country stepped closer to its goal of inoculating 80 percent of its population of 1.4 billion by the end of the year.`\
 https://nytimes.com/2021/09/16/world/china-vaccinates-1-billion-people.html?searchResultPosition=5
 
