@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/16/realestate/the-best-and-worst-metro-areas-for-ele
 `The victims had ventured into the waves at various beaches despite high seas stirred up by strong winds that formed perilous underwater swells.`\
 https://nytimes.com/2021/09/16/world/europe/france-drowning-beaches.html?searchResultPosition=9
 
-**House Panel Expands Its Probe of Climate Disinformation by Oil Giants**\
+**House Panel Expands Inquiry Into Climate Disinformation by Oil Giants**\
 `Executives from Exxon, Shell, BP and others are being called to testify in Congress next month after a secret recording this year exposed an Exxon official boasting of such efforts.`\
 https://nytimes.com/2021/09/16/climate/exxon-oil-disinformation-house-probe.html?searchResultPosition=10
 
