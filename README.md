@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/16/movies/joan-washington-dead.html?searchResultPosi
 https://nytimes.com/2021/09/16/world/europe/russia-election-vote-putin.html?searchResultPosition=2
 
 **Police Investigate Disappearance of Woman on Trip With Fiancé**\
-`Police in North Port, Fla., and federal authorities are investigating the disappearance of Gabrielle Petito, 22, who left for a road trip in July with her fiancé, Brian Laundrie. He returned to his home in Florida alone in September and has refused to speak to the police.`\
+`The police in North Port, Fla., and federal authorities are investigating the disappearance of Gabrielle Petito, 22, who left for a road trip in July with her fiancé, Brian Laundrie. He returned to his home in Florida alone in September and has refused to speak to the police.`\
 https://nytimes.com/video/us/100000007977518/gabrielle-gabby-petito-missing-van-trip-florida-police.html?searchResultPosition=3
 
 **Cage Fighters Need Unions, Too**\
