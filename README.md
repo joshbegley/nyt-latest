@@ -1,40 +1,40 @@
-**In an Era of Throwers, a Pitcher Remains**\
-`Still an ace at 40, Adam Wainwright of the St. Louis Cardinals is having his best season in years. His secret? “It starts with a game of catch.”`\
-https://nytimes.com/2021/09/16/sports/baseball/adam-wainwright-st-louis-cardinals.html?searchResultPosition=1
+**‘My Name Is Pauli Murray’ Review: Ahead of the Times**\
+`The pioneering legal thinker influenced Ruth Bader Ginsburg. But this documentary by the filmmakers behind “RBG” misses the mark.`\
+https://nytimes.com/2021/09/16/movies/my-name-is-pauli-murray-review.html?searchResultPosition=1
 
-**Nicholas, Big and Slow**\
-`Nicholas continues dumping rain on the South.`\
-https://nytimes.com/2021/09/16/briefing/storm-nicholas-climate-change.html?searchResultPosition=2
+**‘Los Últimos Frikis’ Review: Keep On Rocking in Cuba**\
+`The hook of this documentary is the spectacle of a revolutionary government that can’t abide the rebellion of rock without bureaucratic oversight.`\
+https://nytimes.com/2021/09/16/movies/los-ultimos-frikis-review.html?searchResultPosition=2
 
-**N.F.L. Week 2 Predictions: Our Picks Against the Spread**\
-`Daniel Jones and the Giants head to Washington; Josh Allen and the Bills try to bounce back in Miami; and Patrick Mahomes and the Chiefs aim to maintain a winning streak against Baltimore.`\
-https://nytimes.com/2021/09/16/sports/football/nfl-picks-against-spread.html?searchResultPosition=3
+**‘Prisoners of the Ghostland’ Review: Going Nuclear**\
+`If the combination of Nicolas Cage and the director Sion Sono suggests a special kind of lunacy, this sunbaked samurai western more than delivers.`\
+https://nytimes.com/2021/09/16/movies/prisoners-of-the-ghostland-review.html?searchResultPosition=3
 
-**The United States v. Elizabeth Holmes**\
-`The trial of the Theranos founder throws a spotlight on tech stardom, start-up culture and Silicon Valley hubris.`\
-https://nytimes.com/2021/09/16/podcasts/the-daily/elizabeth-holmes-trial-theranos-silicon-valley.html?searchResultPosition=4
+**‘The Nowhere Inn’ Review: Personalities, Disordered**\
+`This meta exercise, starring and written by St. Vincent and Carrie Brownstein, proves its point by not having a point.`\
+https://nytimes.com/2021/09/16/movies/the-nowhere-inn-review.html?searchResultPosition=4
 
-**China says it has fully vaccinated 1 billion people.**\
-`The country stepped closer to its goal of inoculating 80 percent of its population of 1.4 billion by the end of the year.`\
-https://nytimes.com/2021/09/16/world/china-vaccinates-1-billion-people.html?searchResultPosition=5
+**‘The Mad Women’s Ball’ Review: A Shock Within the System**\
+`The French actor-director Mélanie Laurent delivers a feminist melodrama about the abuses of a Paris hospital in the 19th century.`\
+https://nytimes.com/2021/09/16/movies/the-mad-womens-ball-review.html?searchResultPosition=5
 
-**The Politics of Mapmaking**\
-`Everyone expected New York's redistricting process to be messy, but it turned into a partisan squabble  from the very beginning.`\
-https://nytimes.com/2021/09/16/nyregion/the-politics-of-mapmaking.html?searchResultPosition=6
+**‘Savior for Sale: Da Vinci’s Lost Masterpiece?’ Review: Doubling Down**\
+`The story of how an obscure painting that was sold for $450 million at Christie’s in 2017 is maybe too good not to tell twice.`\
+https://nytimes.com/2021/09/16/arts/savior-for-sale-review.html?searchResultPosition=6
 
-**Broadway Is Brimming With Black Playwrights. But for How Long?**\
-`Theater seems to be responding to demands for diversity. Artists are both delighted and worried about the precarious moment in which the gates have opened.`\
-https://nytimes.com/2021/09/16/theater/broadway-black-playwrights.html?searchResultPosition=7
+**‘Wife of a Spy’ Review: Trust or Fear in Love and War?**\
+`In this latest work by Kiyoshi Kurosawa, a Japanese couple’s relationship is shaped by the forces of churning nationalism that surround it.`\
+https://nytimes.com/2021/09/16/movies/wife-of-a-spy-review-trust-or-fear-in-love-and-war.html?searchResultPosition=7
 
-**Ben Platt Isn’t the Oldest Adult to Play a Teenager Onscreen**\
-`Here are our picks for the most memorable performances with the biggest age gaps between star and character. Did they pull it off?`\
-https://nytimes.com/2021/09/16/movies/ben-platt-dear-evan-hansen.html?searchResultPosition=8
+**‘Cry Macho’ Review: The Good, the Bad and the Poultry**\
+`In his latest film, Clint Eastwood drives across Mexico with a troubled young man and a combative rooster.`\
+https://nytimes.com/2021/09/16/movies/cry-macho-review.html?searchResultPosition=8
 
-**U.S. and Egypt Put Improving Egypt’s Human Rights on the Agenda**\
-`Both countries took steps aimed at improving Egypt’s poor human rights record, but rights advocates found them short of the mark.`\
-https://nytimes.com/2021/09/16/world/middleeast/egypt-human-rights.html?searchResultPosition=9
+**‘I Am Not Alone’ Review: Looking Back on an Uprising**\
+`This documentary offers a play-by-play account of nonviolent protests that shook up politics in Armenia in 2018.`\
+https://nytimes.com/2021/09/16/movies/i-am-not-alone-review.html?searchResultPosition=9
 
-**The Battle for Digital Privacy Is Reshaping the Internet**\
-`As Apple and Google enact privacy changes, businesses are grappling with the fallout, Madison Avenue is fighting back and Facebook has cried foul.`\
-https://nytimes.com/2021/09/16/technology/digital-privacy-reshaping-internet.html?searchResultPosition=10
+**‘Blue Bayou’ Review: No Direction Home**\
+`Justin Chon’s immigration melodrama counters its soggy storytelling with deeply felt performances.`\
+https://nytimes.com/2021/09/16/movies/blue-bayou-review-no-direction-home.html?searchResultPosition=10
 
