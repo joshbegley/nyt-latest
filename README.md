@@ -2,8 +2,8 @@
 `Staged by the playwright and director Wajdi Mouawad, Enescu’s opera helps inaugurate a new era for the storied company.`\
 https://nytimes.com/2021/09/16/arts/music/wajdi-mouawad-oedipe-paris-opera.html?searchResultPosition=1
 
-**U.S. Nuclear Submarine Deal With Australia Provokes French Rage**\
-`France, saying it was stabbed in the back and not consulted, accused President Biden of acting like his predecessor.`\
+**France Is Outraged by U.S. Nuclear Submarine Deal With Australia**\
+`French officials accused President Biden of acting like his predecessor, saying they were stabbed in the back and not consulted.`\
 https://nytimes.com/2021/09/16/world/europe/france-australia-uk-us-submarines.html?searchResultPosition=2
 
 **The Fed will re-examine ethics rules after trades by two officials drew scrutiny.**\
