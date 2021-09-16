@@ -23,7 +23,7 @@ https://nytimes.com/2021/09/15/us/politics/democrats-drug-pricing.html?searchRes
 https://nytimes.com/2021/09/15/us/gabrielle-petito-missing-vanlife.html?searchResultPosition=6
 
 **Sarah Gillis will be a key voice in the astronauts’ ears as they head to orbit.**\
-`By Jesus Jiménez`\
+`The engineer trained the astronauts on the Crew Dragon capsule's systems and will also provide key communications on their trip to orbit.`\
 https://nytimes.com/2021/09/15/science/sarah-gillis-spacex-launch-orbit.html?searchResultPosition=7
 
 **Congress pushes for a path to citizenship for ‘documented Dreamers.’**\
