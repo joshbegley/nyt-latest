@@ -16,7 +16,7 @@ https://nytimes.com/2021/09/15/nyregion/electric-zoo-covid-cases-infection.html?
 
 **Struggle for Control of Afghanistan Comes to K Street**\
 `Ahmad Massoud, a leading figure in the resistance to Taliban rule, hired a lobbyist to seek military and financial support in the United States.`\
-https://nytimes.com/2021/09/15/us/politics/ahmad-massoud-lobbying-taliban.html?searchResultPosition=5
+https://nytimes.com/2021/09/15/us/politics/afghanistan-taliban.html?searchResultPosition=5
 
 **Democrats Continue to Struggle With Men of Color**\
 `The idea of always playing defense and never offense is, well, offensive.`\
