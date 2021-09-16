@@ -2,7 +2,7 @@
 `She taught Barbra Streisand, Penélope Cruz and countless other performers how to sound like someone else.`\
 https://nytimes.com/2021/09/16/movies/joan-washington-dead.html?searchResultPosition=1
 
-**As Russians Vote, Resignation, Anger — and Fear of a Post-Putin Unknown**\
+**As Russians Vote, Resignation, Anger and Fear of a Post-Putin Unknown**\
 `Many in Russia say they are fed up with corruption, stagnant wages and rising prices. But they worry, as one man said, that “if things start to change, there will be blood.”`\
 https://nytimes.com/2021/09/16/world/europe/russia-election-vote-putin.html?searchResultPosition=2
 
