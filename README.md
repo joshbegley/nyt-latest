@@ -1,4 +1,4 @@
-**Afghanistan Outcome Affirms a Warning: Beware the Blob**\
+**For Some, Afghanistan Outcome Affirms a Warning: Beware the Blob**\
 `The chaotic withdrawal from Afghanistan exposed the shortcomings of views within the foreign policy establishment, also known as ‘The Blob.’`\
 https://nytimes.com/2021/09/16/us/politics/blob-afghanistan-withdrawal-biden.html?searchResultPosition=1
 
