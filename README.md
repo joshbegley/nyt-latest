@@ -14,7 +14,7 @@ https://nytimes.com/2021/09/17/learning/lesson-of-the-day-the-forgotten-history-
 `Internal company documents suggest that the company plays down awareness of its flaws.`\
 https://nytimes.com/2021/09/17/business/dealbook/facebook-files-whistleblower.html?searchResultPosition=4
 
-**He Was Swept Down a Sewer Pipe. ‘I Just Let the Water Take Me.’**\
+**He Was Swept Down a Sewer Pipe: ‘I Just Let the Water Take Me’**\
 `Devastation from Hurricane Ida’s remnants stretched deep into New Jersey, forcing residents and officials to address “a new reality.”`\
 https://nytimes.com/2021/09/17/nyregion/nj-flooding-ida-damage.html?searchResultPosition=5
 
