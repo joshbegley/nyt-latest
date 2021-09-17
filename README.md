@@ -28,7 +28,7 @@ https://nytimes.com/video/movies/the-eyes-of-tammy-faye-scene.html?searchResultP
 
 **A Lot of Classical Music and Opera to Hear This Season**\
 `Among the highlights: the Metropolitan Opera’s first work by a Black composer, Carnegie Hall’s reopened doors, and more.`\
-https://nytimes.com/2021/09/17/arts/classical-concerts-calendar.html?searchResultPosition=9
+https://nytimes.com/2021/09/17/arts/classical-concerts-opera-calendar.html?searchResultPosition=9
 
 **A Rare Look at Bob Dylan in the Studio, and 13 More New Songs**\
 `Hear tracks by Tems, Adia Victoria, Cuco and others.`\
