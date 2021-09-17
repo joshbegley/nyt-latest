@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/17/fashion/utah-county-weddings-virtual.html?searchR
 
 **5 Things to Do This Weekend**\
 `Clint Eastwood's latest film, an opera installation and Colson Whitehead's new book are among the cultural events to see and do this weekend.`\
-https://nytimes.com/interactive/2021/09/17/arts/17wkd-thingstodo.html?searchResultPosition=2
+https://nytimes.com/interactive/2021/09/17/arts/weekend-events.html?searchResultPosition=2
 
 **A Professor Plots to Seduce His Student. She Has Other Plans.**\
 `In Katie Lattari’s unnerving suspense novel, “Dark Things I Adore,” a scheming thesis adviser proves no match for his young protégé.`\
