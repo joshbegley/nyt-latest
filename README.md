@@ -1,5 +1,5 @@
 **United Airlines stops all of its U.S. and Canadian flights.**\
-`By Niraj Chokshi`\
+`The airline paused flights on Friday morning amid reports of a system outage, but did not confirm the reason.`\
 https://nytimes.com/2021/09/17/business/united-airlines-ground-stop.html?searchResultPosition=1
 
 **Lesson of the Day: The Forgotten History of Indigenous Boarding Schools**\
