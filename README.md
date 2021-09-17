@@ -1,5 +1,5 @@
 **I.M.F. chief tells staff claims she inflated China data at World Bank are ‘not true.’**\
-`A World Bank investigation said that Kristalina Georgieva, now the managing director of the International Monetary Fund, pressured staff to improve China’s ranking in a report when she was at the World Bank.`\
+`A World Bank investigation said Kristalina Georgieva, now the managing director of the International Monetary Fund, pressured staff to improve China’s ranking in a report when she was at the World Bank.`\
 https://nytimes.com/2021/09/17/business/imf-world-bank-kristalina-georgieva.html?searchResultPosition=2
 
 **A talk with Tom Cruise as the astronauts cruise around the planet.**\
