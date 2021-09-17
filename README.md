@@ -14,8 +14,8 @@ https://nytimes.com/2021/09/17/us/politics/house-republicans-impeachment-trump.h
 `An advisory committee to the Food and Drug Administration recommended authorizing booster shots for recipients of the Pfizer-BioNTech Covid-19 vaccine who are 65 or older or are at high risk of severe illness.`\
 https://nytimes.com/video/health/100000007980404/fda-panel-pfizer-vaccine-booster.html?searchResultPosition=4
 
-**F.D.A. Panel Urges Authorizing Pfizer Boosters for Those Over 65 or at High Risk.**\
-`The same advisers overwhelmingly recommended against authorizing boosters for people under 65, complicating the Biden administration’s hopes to offer them more broadly.`\
+**F.D.A. Advisory Panel Recommends Pfizer Boosters for Older People and Others at High Risk**\
+`The committee said there was insufficient evidence to recommend third shots for all adult recipients of the vaccine, as Pfizer had requested.`\
 https://nytimes.com/2021/09/17/us/fda-pfizer-booster-covid.html?searchResultPosition=5
 
 **At the Forefront of Cultural Transformation**\
