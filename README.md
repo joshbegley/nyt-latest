@@ -1,6 +1,6 @@
 **Utah Is a Destination Wedding Hot Spot, No Travel Required**\
 `Thousands of international couples, separated by Covid-19 travel restrictions, have found a surprising lifeboat in Provo, Utah, where the wedding process has been fully virtualized.`\
-https://nytimes.com/2021/09/17/fashion/utah-county-weddings-virtual.html?searchResultPosition=1
+https://nytimes.com/2021/09/17/style/utah-county-weddings-virtual.html?searchResultPosition=1
 
 **5 Things to Do This Weekend**\
 `Clint Eastwood's latest film, an opera installation and Colson Whitehead's new book are among the cultural events to see and do this weekend.`\
