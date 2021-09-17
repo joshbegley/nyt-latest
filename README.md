@@ -16,7 +16,7 @@ https://nytimes.com/2021/09/17/movies/the-eyes-of-tammy-faye-clip.html?searchRes
 
 **‘The Eyes of Tammy Faye’ | Anatomy of a Scene**\
 `The director Michael Showalter narrates a scene from his film featuring Jessica Chastain and Andrew Garfield.`\
-https://nytimes.com/video/movies/100000007978674/the-eyes-of-tammy-faye-scene.html?searchResultPosition=5
+https://nytimes.com/video/movies/the-eyes-of-tammy-faye-scene.html?searchResultPosition=5
 
 **A Lot of Classical Music and Opera to Hear This Season**\
 `Among the highlights: the Metropolitan Opera’s first work by a Black composer, Carnegie Hall’s reopened doors, and more.`\
