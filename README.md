@@ -6,8 +6,8 @@ https://nytimes.com/article/gabrielle-gabby-petito-missing-timeline.html?searchR
 `Pentagon Press Secretary John Kirby briefs the media in the Pentagon Briefing Room.`\
 https://nytimes.com/video/us/100000007979888/kirby-pentagon-live-video.html?searchResultPosition=2
 
-**Pentagon acknowledges the Aug. 29 drone strike in Afghanistan was a tragic mistake that killed 10 civilians.**\
-`The findings of the inquiry by the military’s Central Command eerily mirrored a New York Times investigation of video evidence, along with interviews with more than a dozen of the driver’s co-workers and family members in Kabul.`\
+**Pentagon acknowledges Aug. 29 drone strike in Afghanistan was a tragic mistake that killed 10 civilians.**\
+`The findings of the inquiry mirrored a New York Times investigation of video evidence, along with interviews with more than a dozen of the driver’s co-workers and family members in Kabul.`\
 https://nytimes.com/2021/09/17/us/politics/pentagon-drone-strike-afghanistan.html?searchResultPosition=3
 
 **A Wedding Dish Worthy of Weeknight**\
