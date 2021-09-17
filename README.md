@@ -1,4 +1,4 @@
-**An F.D.A. panel recommends authorizing Pfizer boosters for those over 65 or at high risk of severe Covid.**\
+**F.D.A. Panel Urges Authorizing Pfizer Boosters for Those Over 65 or at High Risk.**\
 `The same advisers overwhelmingly recommended against authorizing boosters for people under 65, complicating the Biden administration’s hopes to offer them more broadly.`\
 https://nytimes.com/2021/09/17/us/fda-pfizer-booster-covid.html?searchResultPosition=1
 
