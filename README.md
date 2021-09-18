@@ -6,13 +6,13 @@ https://nytimes.com/2021/09/18/opinion/elizabeth-holmes-AOC-dress.html?searchRes
 `Sellers should focus on the rooms where people spend the most time, but if you have the budget and time, staging the attic can offer a bonus for buyers.`\
 https://nytimes.com/2021/09/18/realestate/do-i-need-to-clean-up-my-attic-before-i-list-my-house.html?searchResultPosition=2
 
-**Capitol Area on Edge Over Right-Wing Protest of Jan. 6 Arrests**\
-`Organizers insist the “Justice for J6” gathering on Saturday will be peaceful, but law enforcement, National Guard troops and residents around the Capitol are preparing for turmoil.`\
-https://nytimes.com/2021/09/18/us/politics/capitol-sept-18-rally.html?searchResultPosition=3
-
 **A Metronome of Power Keeps the White Sox Humming**\
 `Jose Abreu is known for picking up checks, crowding the plate and driving in runs — a lot of runs. He is quiet in the news media, but his teammates have plenty to say about him.`\
-https://nytimes.com/2021/09/18/sports/baseball/jose-abreu-white-sox.html?searchResultPosition=4
+https://nytimes.com/2021/09/18/sports/baseball/jose-abreu-white-sox.html?searchResultPosition=3
+
+**Capitol Area on Edge Over Right-Wing Protest of Jan. 6 Arrests**\
+`Organizers insist the “Justice for J6” gathering on Saturday will be peaceful, but law enforcement, National Guard troops and residents around the Capitol are preparing for turmoil.`\
+https://nytimes.com/2021/09/18/us/politics/capitol-sept-18-rally.html?searchResultPosition=4
 
 **In Senegal, Demand for Covid Vaccines Grows, but They’re Hard to Get**\
 `As rumors and misinformation about coronavirus vaccines gradually subside and the West African country emerges from a third wave, Senegalese are less reluctant to take a shot.`\
