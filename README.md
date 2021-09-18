@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/17/crosswords/daily-puzzle-2021-09-18.html?searchRes
 
 **Abdelaziz Bouteflika, Algeria’s Longest-Serving President, Dies at 84**\
 `Mr. Bouteflika, ousted from the presidency in 2019 after 20 years in office, joined the country’s fight for independence in the 1950s and helped lead the nation out of a brutal civil war in the 1990s.`\
-https://nytimes.com/2021/09/17/obituaries/bouteflika-algeria-president-dies.html?searchResultPosition=2
+https://nytimes.com/2021/09/17/world/middleeast/bouteflika-algeria-president-dies.html?searchResultPosition=2
 
 **Robert Durst Found Guilty of Murder**\
 `Durst, the onetime heir to a Manhattan real estate empire, was convicted of first-degree murder in the killing a close confidante more than 20 years ago. He faces the possibility of a life sentence.`\
