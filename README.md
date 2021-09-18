@@ -1,4 +1,4 @@
-**Jeff Probst Is the Ultimate Survivor**\
+**Jeff Probst Is the Ultimate ‘Survivor’**\
 `Despite many changes to the reality show over the last 21 years, he has been a constant.`\
 https://nytimes.com/2021/09/18/style/jeff-probst-survivor.html?searchResultPosition=1
 
