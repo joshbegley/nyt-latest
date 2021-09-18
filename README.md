@@ -1,6 +1,6 @@
 **Capitol Area on Edge Over Right-Wing Protest of Jan. 6 Arrests**\
 `Organizers insist the “Justice for J6” gathering on Saturday will be peaceful, but law enforcement, National Guard troops and residents around the Capitol are preparing for turmoil.`\
-https://nytimes.com/2021/09/18/us/politics/capitol-area-on-edge-over-right-wing-protest-of-jan-6-arrests.html?searchResultPosition=1
+https://nytimes.com/2021/09/18/us/politics/capitol-sept-18-rally.html?searchResultPosition=1
 
 **A Metronome of Power Keeps the White Sox Humming**\
 `Jose Abreu is known for picking up checks, crowding the plate and driving in runs — a lot of runs. He is quiet in the news media, but his teammates have plenty to say about him.`\
