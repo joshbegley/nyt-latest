@@ -30,8 +30,8 @@ https://nytimes.com/2021/09/18/crosswords/variety-takeaway-crossword.html?search
 `Afghans expressed a familiar anger at the Pentagon’s admission that an attack killing 10 civilians was a mistake, one of many such errors during the 20-year war.`\
 https://nytimes.com/2021/09/18/world/asia/afghanistan-drone-strike-reaction.html?searchResultPosition=8
 
-**General Milley Should Stop Trying to Burnish His Legacy at America’s Expense**\
-`A recent story about the chairman of the Joint Chiefs’ actions during the waning days of the Trump presidency may not be as bad as it sounds. But there's a deeper problem.`\
+**The Deeper Problem Behind General Milley’s ‘Secret Phone Calls’**\
+`A recent story about the chairman of the Joint Chiefs’ actions during the waning days of the Trump presidency may not be as bad as it sounds. But there’s still cause for concern.`\
 https://nytimes.com/2021/09/18/opinion/politics/general-milley-woodward.html?searchResultPosition=9
 
 **Religious Beliefs and Abortion Laws**\
