@@ -1,5 +1,5 @@
 **A Week After the Open, Championship Tennis Continues in Queens**\
-`A Davis Cup tie between South Africa and Venezuela is being held in front of a small group of fans at the West Side Tennis Club — the first Davis Cup action at the club since 1959.`\
+`A Davis Cup tie between South Africa and Venezuela is being held in front of a small group of fans at the West Side Tennis Club — the first Davis Cup action there since 1959.`\
 https://nytimes.com/2021/09/18/sports/tennis/davis-cup-forest-hills.html?searchResultPosition=1
 
 **What if Covid Were 10 Times Deadlier?**\
