@@ -26,7 +26,7 @@ https://nytimes.com/2021/09/18/business/dealbook/stock-buyback-tax.html?searchRe
 `Overblown fears that the coronavirus could be transmitted through surfaces have created a stigma around handling nonhazardous trash, experts say. Some recyclable waste has been junked or burned.`\
 https://nytimes.com/2021/09/18/world/covid-trash-recycling.html?searchResultPosition=7
 
-**The Scientist and the A.I.-Assisted, Remote-Control Killer Robot**\
+**The Scientist and the A.I.-Assisted, Remote-Control Killing Machine**\
 `Israeli agents had wanted to kill Iran’s top nuclear scientist for years. Then they came up with a way to do it with no operatives present.`\
 https://nytimes.com/2021/09/18/world/middleeast/iran-nuclear-fakhrizadeh-assassination-israel.html?searchResultPosition=8
 
