@@ -1,40 +1,40 @@
-**The Unconventional Weapon Against Future Wildfires: Goats**\
-`Lani Malmberg travels with a few hundred goats, which eat the tall brush and grasses that power Western wildfires.`\
-https://nytimes.com/2021/09/18/business/wildfires-goats-prevention.html?searchResultPosition=1
+**The Scientist and the A.I.-Assisted, Remote-Control Killer Robot**\
+`Israeli agents had wanted to kill Iran’s top nuclear scientist for years. Then they came up with a way to do it with no operatives present.`\
+https://nytimes.com/2021/09/18/world/middleeast/iran-nuclear-fakhrizadeh-assassination-israel.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/18/crosswords/spelling-bee-2021-09-18.html?searchResultPosition=2
+**They Shunned Covid Vaccines but Embraced Antibody Treatment**\
+`Championed by doctors and conservative radio hosts alike, monoclonal antibodies for Covid are in high demand — even from those who don’t want a vaccine.`\
+https://nytimes.com/2021/09/18/health/covid-antibody-regeneron.html?searchResultPosition=2
 
-**Corrections: Sept. 18, 2021**\
-`Corrections that appeared in print on Saturday, Sept. 18, 2021.`\
-https://nytimes.com/2021/09/18/pageoneplus/corrections-sept-18-2021.html?searchResultPosition=3
+**As Climate Change Fears Grow, a Real Fight Over Fake Turf**\
+`A city’s decision to replace actual grass with a synthetic version sets off a conflict over the possible environmental and health risks of the move.`\
+https://nytimes.com/2021/09/18/nyregion/east-orange-nj-turf-fields.html?searchResultPosition=3
 
-**Quotation of the Day: ‘It’s Always Going to Haunt Me’**\
-`Quotation of the Day for Saturday, September 18, 2021.`\
-https://nytimes.com/2021/09/17/todayspaper/quotation-of-the-day-its-always-going-to-haunt-me.html?searchResultPosition=4
+**Harassed and Harangued, Poll Workers Now Have a New Form of Defense**\
+`Threatened by extremists and under fire by politicians, election workers now have their own legal defense network. It’s a perk they never expected to need.`\
+https://nytimes.com/2021/09/18/us/election-workers-legal-aid.html?searchResultPosition=4
 
-**Home of a Massive Flock**\
-`Ryan McCarty takes some risks, but ends up pleasing the crowd.`\
-https://nytimes.com/2021/09/17/crosswords/daily-puzzle-2021-09-18.html?searchResultPosition=5
+**A Multifaceted Designer Gets a New Platform**\
+`Emmanuel Olunkwa is named editor of Pin-Up, the fashionable architectural and design magazine.`\
+https://nytimes.com/2021/09/18/style/emmanuel-olunkwa-pin-up-magazine.html?searchResultPosition=5
 
-**Abdelaziz Bouteflika, Algeria’s Longest-Serving President, Dies at 84**\
-`Mr. Bouteflika, ousted from the presidency in 2019 after 20 years in office, joined the country’s fight for independence in the 1950s and helped lead the nation out of a brutal civil war in the 1990s.`\
-https://nytimes.com/2021/09/17/world/middleeast/bouteflika-algeria-president-dies.html?searchResultPosition=6
+**In Portraits, Seared Memories of the Capitol Riot**\
+`In an interview, the photographer Jason  Andrew described the inspiration behind the portraits published in The Times this week and recalled his experience covering the violence of Jan. 6.`\
+https://nytimes.com/2021/09/18/insider/in-portraits-seared-memories-of-the-capitol-riot.html?searchResultPosition=6
 
-**Robert Durst Found Guilty of Murder**\
-`Durst, the onetime heir to a Manhattan real estate empire, was convicted of first-degree murder in the killing a close confidante more than 20 years ago. He faces the possibility of a life sentence.`\
-https://nytimes.com/video/us/100000007980535/robert-durst-murder-guilty-verdict.html?searchResultPosition=7
+**100 Isn’t a Magic Number, So Why Is It Part of the Vaccine Mandate?**\
+`The threshold of 100 employees adds to a patchwork of small-business rules. It shows up in no other major small-business laws. The reasoning behind the number is a mystery.`\
+https://nytimes.com/2021/09/18/business/smallbusiness/small-business-vaccine-mandate-threshold.html?searchResultPosition=7
 
-**How Hope, Fear and Misinformation Led Thousands of Haitians to the U.S. Border**\
-`Some left to find work. Others to escape violence or racial discrimination in other countries. But many believe ‘there is nothing to go back to.’`\
-https://nytimes.com/2021/09/17/us/del-rio-texas-migrants.html?searchResultPosition=8
+**Having Trouble Finding Your Soul Mate? Let Mom Do It For You.**\
+`As vaccine rollout continues, the pressures of online dating are back. So is the idea of outsourcing the matchmaking to your Jewish parents.`\
+https://nytimes.com/2021/09/18/style/having-trouble-finding-your-soul-mate-let-mom-do-it-for-you.html?searchResultPosition=8
 
-**Secret Talks and a Hidden Agenda: Behind the U.S. Defense Deal that France Called a ‘Betrayal’**\
-`In meeting after meeting with their French counterparts, U.S. officials gave no heads-up about their plans to upend France’s largest defense contract.`\
-https://nytimes.com/2021/09/17/us/politics/us-france-australia-betrayal.html?searchResultPosition=9
+**When 7 Psychopaths Enroll at the Same School, Terror Ensues**\
+`In her latest column, Sarah Lyall weighs in on Vera Kurian’s twisted tale, “Never Saw Me Coming,” and two other new thrillers.`\
+https://nytimes.com/2021/09/18/arts/new-thriller-novels.html?searchResultPosition=9
 
-**Inspiration4 Crew Peeks at Earth From Capsule**\
-`The space travelers shared their view of the planet through the capsule’s dome, which features a single piece of glass with a viewing area of more than 2,000 square inches.`\
-https://nytimes.com/video/science/space/100000007980512/inspiration4-spacex-capsule-cupola-earth-video.html?searchResultPosition=10
+**Some Rich People Are Counting Their Antibodies ‘Like Calories’**\
+`Medical concierge services are offering coronavirus antibody tests as a perk, despite caveats about their usefulness.`\
+https://nytimes.com/2021/09/18/style/some-rich-people-are-counting-their-antibodies-like-calories.html?searchResultPosition=10
 
