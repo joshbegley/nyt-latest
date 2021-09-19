@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/19/climate/manchin-climate-biden.html?searchResultPosition=1
 
 **Booster Shots Would Be Better Spent Saving African Lives**\
-`Just 20 percent of people in low- and lower-middle-income countries have received a first Covid-19 vaccine dose — compared to 80 percent in high-and upper-middle income countries.`\
+`Just 20 percent of people in low- and lower-middle-income countries have received a first Covid-19 vaccine dose — compared to 80 percent in high- and upper-middle-income countries.`\
 https://nytimes.com/2021/09/19/opinion/covid-vaccine-booster-shots-africa.html?searchResultPosition=2
 
 **White Evangelicals Shun Morality for Power**\
