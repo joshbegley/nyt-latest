@@ -1,5 +1,5 @@
 **Madrid is set to remove most of its restrictions on Monday.**\
-`Spain’s 14-day infection rate has fallen to its lowest level since August 2020.`\
+`The 14-day infection rate in Spain has fallen to its lowest level since August 2020.`\
 https://nytimes.com/2021/09/19/world/spain-covid-restrictions.html?searchResultPosition=1
 
 **For a TikTok Running Star, It’s All Uphill From Here**\
