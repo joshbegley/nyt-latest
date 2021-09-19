@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/19/world/covid-deaths-mississippi-governor.html?sear
 `The search giant agreed to Moscow’s requests to restrict access to online videos and documents being used by allies of the imprisoned opposition leader Aleksei A. Navalny, activists said.`\
 https://nytimes.com/2021/09/19/world/europe/russia-election-google.html?searchResultPosition=9
 
-**Chris Rock says he has a breakthrough coronavirus case.**\
-`The comedian took to social media and told followers to get vaccinated.`\
+**Chris Rock says he has Covid.**\
+`The comedian shared the news on social media and told his followers to get vaccinated.`\
 https://nytimes.com/2021/09/19/world/chris-rock-covid-vaccine.html?searchResultPosition=10
 
