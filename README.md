@@ -28,7 +28,7 @@ https://nytimes.com/2021/09/19/sports/football/nfl-week-2-scores.html?searchResu
 
 **Remains believed to belong to missing woman in van mystery are found.**\
 `The authorities said they had found human remains in Wyoming consistent with a description of Gabrielle Petito, 22. The authorities continue to search for her fiancé, Brian Laundrie. She was reported missing after he returned home alone from a cross-country van trip.`\
-https://nytimes.com/2021/09/19/us/gabby-petito-found.html?searchResultPosition=8
+https://nytimes.com/live/2021/09/19/us/gabby-petito-found/gabby-petito-found?searchResultPosition=8
 
 **Bills Offense Cruises in Low Gear to Win in Miami**\
 `In a rout of Miami, the Bills offense did not even need Josh Allen’s best. He still finished 17 of 33 passing for 179 yards and two touchdowns to take the lead in the A.F.C. East.`\
