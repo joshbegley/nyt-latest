@@ -15,7 +15,7 @@ https://nytimes.com/2021/09/19/business/nabisco-union-strike.html?searchResultPo
 https://nytimes.com/2021/09/19/climate/manchin-climate-biden.html?searchResultPosition=4
 
 **Rich Countries Worry About Booster Shots. They Should Be Worried About Africa.**\
-`Just 20 percent of people in low- and lower-middle-income countries have received a first Covid-19 vaccine dose — compared to 80 percent in high- and upper-middle-income countries.`\
+`Just 20 percent of people in low- and lower-middle-income countries have had a Covid-19 vaccine dose — versus 80 percent in richer countries.`\
 https://nytimes.com/2021/09/19/opinion/covid-vaccine-booster-shots-africa.html?searchResultPosition=5
 
 **White Evangelicals Shun Morality for Power**\
