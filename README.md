@@ -30,11 +30,11 @@ https://nytimes.com/2021/09/19/us/texas-beto-governors-race.html?searchResultPos
 `Bill Belichick sees a path toward making the Patriots a dynastic contender again, and Sam Darnold looks … happy.`\
 https://nytimes.com/2021/09/19/sports/football/nfl-week-2-scores.html?searchResultPosition=8
 
-**Remains believed to belong to missing woman in van mystery are found.**\
-`The authorities said they had found human remains in Wyoming consistent with a description of Gabrielle Petito, 22. The authorities continue to search for her fiancé, Brian Laundrie. She was reported missing after he returned home alone from a cross-country van trip.`\
-https://nytimes.com/2021/09/19/us/gabby-petito-found.html?searchResultPosition=9
-
 **Bills Offense Cruises in Low Gear to Win in Miami**\
 `In a rout of Miami, the Bills offense did not even need Josh Allen’s best. He still finished 17 of 33 passing for 179 yards and two touchdowns to take the lead in the A.F.C. East.`\
-https://nytimes.com/2021/09/19/sports/football/bills-dolphins-score.html?searchResultPosition=10
+https://nytimes.com/2021/09/19/sports/football/bills-dolphins-score.html?searchResultPosition=9
+
+**Solving a Mystery**\
+`Pao Roy digs deep.`\
+https://nytimes.com/2021/09/19/crosswords/daily-puzzle-2021-09-20.html?searchResultPosition=10
 
