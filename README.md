@@ -18,8 +18,8 @@ https://nytimes.com/2021/09/19/opinion/white-evangelical-politics.html?searchRes
 `For some refugee families who traveled to Germany during the migrant crisis of 2015 and 2016, gratitude for Chancellor Angela Merkel’s decision to welcome them comes via a namesake.`\
 https://nytimes.com/2021/09/19/world/europe/merkel-election-immigration-children.html?searchResultPosition=5
 
-**Haiti Protests Mass Deportation of Migrants to a Country in Crisis**\
-`Haiti migration officials have asked the United States for a “humanitarian moratorium” even as they prepare to receive the first returnees from Texas. “Will we have enough to feed these people?”`\
+**Haiti Protests Mass U.S. Deportation of Migrants to Country in Crisis**\
+`Haiti migration officials have asked the United States for a “humanitarian moratorium” even as they receive the first returnees from Texas. “Will we have enough to feed these people?”`\
 https://nytimes.com/2021/09/19/world/americas/us-haitian-deportation.html?searchResultPosition=6
 
 **With Abortion Rights Under Threat, Democrats Hope to Go on Offense**\
