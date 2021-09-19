@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/19/podcasts/the-daily/the-sunday-read-the-composer-a
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2021/09/19/briefing/booster-shots-france-fall-books.html?searchResultPosition=9
 
-**Emmy Awards 2021: Watch to Watch For**\
+**Emmy Awards 2021: What to Watch For**\
 `“The Crown” and Netflix could have a big night and bring the streaming service its first top award for a series. Here’s what else to expect, and a look at the favorites and potential upsets.`\
 https://nytimes.com/2021/09/19/arts/television/emmys-2021.html?searchResultPosition=10
 
