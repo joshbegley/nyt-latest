@@ -2,7 +2,7 @@
 `Senator Joe Manchin is already a crucial swing vote in the Democrats’ sweeping budget bill. But he will also write the details of its climate change program.`\
 https://nytimes.com/2021/09/19/climate/manchin-climate-biden.html?searchResultPosition=1
 
-**Booster Shots Would Be Better Spent Saving African Lives**\
+**Rich Countries Worry About Booster Shots. They Should Be Worried About Africa.**\
 `Just 20 percent of people in low- and lower-middle-income countries have received a first Covid-19 vaccine dose — compared to 80 percent in high- and upper-middle-income countries.`\
 https://nytimes.com/2021/09/19/opinion/covid-vaccine-booster-shots-africa.html?searchResultPosition=2
 
