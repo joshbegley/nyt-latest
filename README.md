@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/20/opinion/ransomware-biden-russia.html?searchResult
 
 **Why Covid Vaccines for Kids Are Taking So Long**\
 `The F.D.A. needs a new system for responding to pandemics.`\
-https://nytimes.com/2021/09/20/opinion/why-covid-vaccines-for-kids-are-taking-so-long.html?searchResultPosition=3
+https://nytimes.com/2021/09/20/opinion/vaccine-kids-pfizer.html?searchResultPosition=3
 
 **They watch him on TikTok, but will young supporters turn out for Jagmeet Singh?**\
 `The party has focused on the Indigenous vote; also on economic issues like income distribution and taxing the ultra-wealthy.`\
