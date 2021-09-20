@@ -1,5 +1,5 @@
 **Nets Rookie Goes Apartment Shopping. Needs Ice Cream.**\
-`Sharpe, who was the 29th overall pick in this year’s N.B.A. draft, is making himself at home in New York as he gets ready for his first season alongside the Nets’ big stars.`\
+`Day’Ron Sharpe, the 29th overall pick in this year’s N.B.A. draft, is making himself at home in New York as he gets ready for his first season alongside the Nets’ big stars.`\
 https://nytimes.com/2021/09/20/sports/basketball/nets-dayron-sharpe.html?searchResultPosition=1
 
 **Baltimore Flips the Script and Beats Kansas City**\
