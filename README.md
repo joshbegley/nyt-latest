@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/20/arts/music/ron-miles-village-vanguard-review.html
 
 **How to Vaccinate a Siberian Reindeer Herder**\
 `Covid has reached even the Yamal Peninsula in the Arctic. So vaccination teams are following, and finding ways to inoculate nomadic herders.`\
-https://nytimes.com/2021/09/20/science/covid-vaccine-yamal-russia.html?searchResultPosition=2
+https://nytimes.com/2021/09/20/science/russia-covid-vaccine-yamal.html?searchResultPosition=2
 
 **The Republican leading Wisconsin’s 2020 inquiry defends its legitimacy and warns of subpoenas.**\
 `Michael Gableman, a conservative former State Supreme Court Justice, declared that the state’s partisan inquiry into the election results was not meant to overturn President Biden’s victory.`\
