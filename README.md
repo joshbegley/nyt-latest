@@ -1,4 +1,4 @@
-**Fast Flavor**\
+**24 Easy Dinner Recipes**\
 `24 Low-Fuss, High-Reward Recipes Ready in 30 Minutes or Less`\
 https://nytimes.com/interactive/2021/09/20/dining/24-easy-quick-dinner-recipes.html?searchResultPosition=1
 
