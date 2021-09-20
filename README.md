@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2021/09/20/arts/music/pop-recommendations-sam-hu
 `“The Morning Star” chews on big ideas about God and mortality while its characters react to a bright and eerie new presence above them.`\
 https://nytimes.com/2021/09/20/books/review-morning-star-karl-ove-knausgaard.html?searchResultPosition=3
 
-**Ron Miles Headlines the Village Vanguard, at Last, on Reopening Night**\
+**Ron Miles Headlines the Village Vanguard, at Last, as the Club Reopens**\
 `The cornetist led a quintet featuring Jason Moran, Bill Frisell, Thomas Morgan and Brian Blade as the 86-year-old establishment came back to life after its pandemic shutdown.`\
 https://nytimes.com/2021/09/20/arts/music/ron-miles-village-vanguard-review.html?searchResultPosition=4
 
