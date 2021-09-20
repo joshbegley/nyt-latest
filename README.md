@@ -1,40 +1,40 @@
-**The F.D.A. is likely to make its long-awaited decision on boosters this week.**\
-`The agency’s ruling on who should be eligible for a third Pfizer dose is one of a series of vaccine decisions expected in the coming weeks.`\
-https://nytimes.com/2021/09/20/science/covid-booster-FDA.html?searchResultPosition=1
+**Norm Macdonald’s Comedy Was Quite Christian**\
+`His faith is key to understanding his comic legacy.`\
+https://nytimes.com/2021/09/20/opinion/norm-macdonald-christian-comedy.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Critical Race Theory: A Brief History’**\
-`In this lesson, students will look at the spread across the country of legislation opposed to critical race theory. Then, they will consider the impact of these bills on their own schools and learning.`\
-https://nytimes.com/2021/09/20/learning/lesson-of-the-day-critical-race-theory.html?searchResultPosition=2
+**An Architect Who’s Known for Aesthetic Purity and Counts Kanye West as a Client**\
+`The cult Swiss talent Valerio Olgiati creates austere, often concrete spaces that eschew references to history or place.`\
+https://nytimes.com/2021/09/20/t-magazine/valerio-olgiati-architecture.html?searchResultPosition=2
 
-**Making Streetside Dining Permanent**\
-`New York is moving to make outdoor restaurant sheds permanent, but some activists are fiercely opposed.`\
-https://nytimes.com/2021/09/20/nyregion/making-streetside-dining-permanent.html?searchResultPosition=3
+**Global Supply Shortages Reach All the Way to a Haitian Aid Group**\
+`Continuing disruption to factory production and bottlenecks in shipping are leaving nonprofit groups short of goods for vulnerable communities worldwide.`\
+https://nytimes.com/2021/09/20/business/supply-chain-shortages-nonprofits.html?searchResultPosition=3
 
-**Cairo’s Antique Elevators, Glorious and Glitchy, Are Scenes of Love and Fear**\
-`For some Cairenes, the city’s geriatric lifts are beautiful marvels. Others consider them frustrating and frightening. Everyone has a story.`\
-https://nytimes.com/2021/09/20/world/middleeast/cairo-egypt-elevators.html?searchResultPosition=4
+**Glimpses of ‘Lost Tribe’ Jewish Communities in India and Myanmar**\
+`Often overlooked, the communities in South and Southeast Asia complicate notions of Jewish identity while emphasizing its malleability.`\
+https://nytimes.com/2021/09/20/travel/lost-tribe-jews-india-myanmar.html?searchResultPosition=4
 
-**U.S. Troops Are Still Deploying to Iraq, Even as Afghan War Ends**\
-`In the other country the United States invaded after 9/11, American troops continue to serve combat tours in harm’s way. Meet the soldiers headed for duty in Iraq.`\
-https://nytimes.com/2021/09/20/us/troops-deploy-iraq.html?searchResultPosition=5
+**How Can New York City Prepare for the Next Ida? Here’s a To-Do List.**\
+`The recipe sounds simple: Improve drainage. Use plants, tanks and barriers to slow water. But it takes money and cooperation.`\
+https://nytimes.com/2021/09/20/nyregion/nyc-flooding-infrastructure.html?searchResultPosition=5
 
-**‘Not the Same’: Residents of Del Rio Feel the Impact of the Migrant Crisis**\
-`The influx of thousands of migrants has led to squalor under a bridge, and a dispirited town beyond it.`\
-https://nytimes.com/2021/09/20/us/delrio-texas-migrants-crisis.html?searchResultPosition=6
+**The Best and Worst Moments of the 2021 Emmys**\
+`Streaming services dominated a ceremony that suggested that for all of TV’s evolution, some aspects of the Emmys will always be with us.`\
+https://nytimes.com/2021/09/20/arts/television/emmys-best-worst-moments.html?searchResultPosition=6
 
-**Climate, Covid and Biden’s Challenged Credibility Underline U.N.’s Big Week**\
-`The United Nations General Assembly session, the world’s biggest diplomatic convocation, will commandeer attention with a lineup of leader speeches starting Tuesday.`\
-https://nytimes.com/2021/09/20/world/united-nations-general-assembly-explainer.html?searchResultPosition=7
+**Medicare Expansion Clashes With Health Care for the Poor as Budget Bill Shrinks**\
+`Under pressure to cut the bill’s cost, Democrats disagree over whether to offer more benefits to older Americans or to cover more of the working poor.`\
+https://nytimes.com/2021/09/20/us/politics/medicare-health-care-poor-budget-bill.html?searchResultPosition=7
 
-**Cuomo Ally Resigns From Post as State Watchdog**\
-`Letizia Tagliafierro, the former inspector general, is the latest in a string of high-profile departures, as allies and appointees of the former governor leave state government.`\
-https://nytimes.com/2021/09/20/nyregion/letizia-tagliafierro-inspector-general-resigns.html?searchResultPosition=8
+**Australia Is Making a Risky Bet on the U.S.**\
+`Australia has thrust itself into a central role in America’s rivalry with China.`\
+https://nytimes.com/2021/09/20/opinion/AUKUS-australia-us-china.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/20/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Shopping for Canopy Beds**\
+`Because a canopy bed is ‘like a cocoon’ — and this fall, we could all use a little of that.`\
+https://nytimes.com/2021/09/20/realestate/shopping-for-canopy-beds.html?searchResultPosition=9
 
-**Quotation of the Day: Alabama Begins to Remove Constitution’s Racist Wording**\
-`Quotation of the Day for September 20, 2021.`\
-https://nytimes.com/2021/09/20/todayspaper/quotation-of-the-day-alabama-begins-to-remove-constitutions-racist-wording.html?searchResultPosition=10
+**Dry Eyes Afflict Many of Us. Here’s What to Do About It.**\
+`That gritty, itchy feeling in your eyes can arise from many causes, including too much screen time, and eye drops may only make it worse.`\
+https://nytimes.com/2021/09/20/well/live/dry-eyes-relief.html?searchResultPosition=10
 
