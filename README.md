@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/20/business/energy-environment/shell-conoco-permian-sale.html?searchResultPosition=2
 
 **Glitch Reveals Ballot Choices of N.Y.C. Voters, Including Mayor’s Son**\
-`The Board of Elections inadvertently allowed the mayoral primary votes of 378 New Yorkers to become public, a report found.`\
+`The Board of Elections inadvertently allowed the mayoral primary votes of 378 New Yorkers, including Dante de Blasio, to become public, a report found.`\
 https://nytimes.com/2021/09/20/nyregion/voters-dante-deblasio.html?searchResultPosition=4
 
 **N.Y.C. Sues Jail Officers, Saying Illegal Strike Worsened Rikers Crisis**\
