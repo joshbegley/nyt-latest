@@ -14,8 +14,8 @@ https://nytimes.com/2021/09/19/us/brian-laundrie-gabrielle-petito-fiance.html?se
 `Eggs will be broken. The question amid all this conniving, though, is whose?`\
 https://nytimes.com/2021/09/19/arts/television/billions-recap-season-5-episode-10.html?searchResultPosition=4
 
-**‘The Crown’ and ‘Ted Lasso’ Take the Early Awards at the Emmys**\
-`Streaming services are having a big night, and “The Crown” could bring Netflix its first top award for a series. Here’s how the night is unfolding.`\
+**With ‘The Crown,’ Netflix Finally Takes the Emmys Throne**\
+`The lush Netflix series chronicling the British royal family took home the four major acting awards as well as best drama. “Ted Lasso” and “Mare of Easttown” also scored numerous wins.`\
 https://nytimes.com/2021/09/19/arts/television/2021-emmys.html?searchResultPosition=5
 
 **How the U.S. Helped, and Hampered, the Escape of Afghan Journalists**\
