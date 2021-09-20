@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/20/world/africa/hotel-rwanda-guilty.html?searchResul
 `If citizens in construction-besotted Nashville can find the political will to preserve their trees, any city can.`\
 https://nytimes.com/2021/09/20/opinion/city-tree-nature.html?searchResultPosition=9
 
-**Canada’s Election: What You Need to Know**\
+**Canada’s Election: What to Know**\
 `Will Justin Trudeau remain the prime minister? A month ago, it might have looked like a sure thing.`\
 https://nytimes.com/2021/09/20/world/canada/canada-election-what-to-know.html?searchResultPosition=10
 
