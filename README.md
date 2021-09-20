@@ -26,15 +26,15 @@ https://nytimes.com/2021/09/19/us/who-is-gabrielle-petito.html?searchResultPosit
 `The Senate’s parliamentarian ruled that Democrats’ plan to give 8 million immigrants a path to citizenship could not be achieved through the reconciliation process.`\
 https://nytimes.com/2021/09/19/us/politics/immigration-citizenship.html?searchResultPosition=7
 
+**The human remains were found in a remote, but popular, camping destination.**\
+`Ms. Petito was last known to be driving toward the area with her fiancé as they embarked on a cross-country trip, according to her family.`\
+https://nytimes.com/2021/09/19/us/gabby-petito-remains-found-wyoming.html?searchResultPosition=8
+
 **2021 Emmy Winners: Complete List**\
 `The list of winners for the 73rd annual Emmy Awards.`\
-https://nytimes.com/2021/09/19/arts/television/emmy-winners-list.html?searchResultPosition=8
+https://nytimes.com/2021/09/19/arts/television/emmy-winners-list.html?searchResultPosition=9
 
 **Hope (and Ian McKellen) Lured Me to Britain. Was It Worth the Risk?**\
 `I made the calculations before I traveled, and decided to go for it. Double masked, I stepped off the plane and set off for a week of theater.`\
-https://nytimes.com/2021/09/19/arts/london-theater-covid.html?searchResultPosition=9
-
-**Read the Letter to President Biden**\
-`Dozens of human rights and other advocacy groups urge President Biden to back a $25 billion investment that would produce 8 billion Covid-19 vaccine doses within a year.`\
-https://nytimes.com/interactive/2021/09/19/us/politics/covid-vaccine-letter-biden.html?searchResultPosition=10
+https://nytimes.com/2021/09/19/arts/london-theater-covid.html?searchResultPosition=10
 
