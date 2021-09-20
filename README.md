@@ -26,7 +26,7 @@ https://nytimes.com/2021/09/20/health/covid-children-vaccine-pfizer.html?searchR
 `We offer an update on the pandemic with four charts.`\
 https://nytimes.com/2021/09/20/briefing/covid-infections-us-delta.html?searchResultPosition=7
 
-**‘Hotel Rwanda’ Dissident Is Found Guilty of Forming a Terrorist Group**\
+**‘Hotel Rwanda’ Dissident Is Found Guilty of Forming and Funding a Terrorist Group**\
 `The trial of Paul Rusesabagina, whose story was portrayed in the Oscar-nominated movie, drew widespread attention and international condemnation.`\
 https://nytimes.com/2021/09/20/world/africa/hotel-rwanda-guilty.html?searchResultPosition=8
 
