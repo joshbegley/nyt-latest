@@ -1,5 +1,5 @@
 **After Setback, Democrats Vow to Push Ahead on Immigration Overhaul**\
-`After a top Senate official rejected a proposal to legalize as many as 8 million undocumented immigrants in the reconciliation bill, Democrats said they would craft an alternative.`\
+`After a top Senate official rejected a proposal to legalize the status of as many as 8 million undocumented immigrants in the reconciliation bill, Democrats said they would craft an alternative.`\
 https://nytimes.com/2021/09/20/us/politics/democrats-alternative-plan-legalizing-immigrants.html?searchResultPosition=1
 
 **Irma Kalish, TV Writer Who Tackled Social Issues, Dies at 96**\
