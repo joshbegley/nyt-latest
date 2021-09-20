@@ -23,7 +23,7 @@ https://nytimes.com/2021/09/19/us/brian-laundrie-gabrielle-petito-fiance.html?se
 https://nytimes.com/2021/09/19/arts/television/billions-recap-season-5-episode-10.html?searchResultPosition=6
 
 **With ‘The Crown,’ Netflix Finally Takes the Emmys Throne**\
-`The lush Netflix series chronicling the British royal family took home the four major acting awards as well as best drama. “Ted Lasso” and “Mare of Easttown” also scored numerous wins.`\
+`The lush Netflix series chronicling the British royal family took home the four major acting awards as well as best drama. “Ted Lasso,” on Apple TV+, and “Mare of Easttown,” on HBO, also scored numerous wins.`\
 https://nytimes.com/2021/09/19/arts/television/2021-emmys.html?searchResultPosition=7
 
 **How the U.S. Helped, and Hampered, the Escape of Afghan Journalists**\
