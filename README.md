@@ -1,6 +1,6 @@
 **‘The Crown’ and ‘Ted Lasso’ Take the Early Awards at the Emmys**\
 `Streaming services are having a big night, and “The Crown” could bring Netflix its first top award for a series. Here’s how the night is unfolding.`\
-https://nytimes.com/2021/09/19/arts/television/emmys-2021.html?searchResultPosition=1
+https://nytimes.com/2021/09/19/arts/television/2021-emmys.html?searchResultPosition=1
 
 **How the U.S. Helped, and Hampered, the Escape of Afghan Journalists**\
 `The secretary of state cites a “massive effort” by the government, but people involved in the evacuation instead describe bureaucratic snags.`\
