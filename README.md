@@ -32,7 +32,7 @@ https://nytimes.com/2021/09/20/us/politics/measles-afghan-refugees.html?searchRe
 
 **Reuben Klamer, Mastermind of the Game of Life, Dies at 99**\
 `He developed an estimated 200 toys and other items, including a phaser rifle for “Star Trek.” But his best-known product was a game for “literally everyone on earth.”`\
-https://nytimes.com/2021/09/20/business/reuben-klamer-mastermind-of-the-game-of-life-dies-at-99.html?searchResultPosition=9
+https://nytimes.com/2021/09/20/business/reuben-klamer-dead.html?searchResultPosition=9
 
 **Man Threatened Life of Dominican President, Prosecutors Say**\
 `Enrique Figueroa, 47, is accused of writing a series of social media posts threatening President Luis Abinader.`\
