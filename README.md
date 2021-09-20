@@ -1,6 +1,6 @@
 **A Hard-Line Conservative Hopes to Be Japan’s First Female Leader**\
 `If Sanae Takaichi wins, it would be a milestone for the country. But some feminists hope it doesn’t happen.`\
-https://nytimes.com/2021/09/19/world/asia/japan-election-sanae-takaichi.html?searchResultPosition=1
+https://nytimes.com/2021/09/20/world/asia/japan-election-sanae-takaichi.html?searchResultPosition=1
 
 **What we know about Brian Laundrie, the fiancé of Gabrielle Petito.**\
 `Mr. Laundrie, who is missing, was the last known person to have been with Ms. Petito before she went missing, according to the authorities.`\
