@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/20/us/politics/justice-department-mississippi-abortion.html?searchResultPosition=1
 
 **Justin Trudeau will remain prime minister, Canadian TV projects.**\
-`Because many would-be voters were still in line, it was unclear whether Mr. Trudeau’s Liberal Party will regain a majority in Parliament.`\
+`Canadian broadcasters forecast that Mr. Trudeau’s Liberal Party will only hold a minority of seats in the next Parliament, similar to results in 2019.`\
 https://nytimes.com/2021/09/20/world/canada/justin-trudeau-wins.html?searchResultPosition=2
 
 **K-Pop Group BTS Addresses the U.N.**\
