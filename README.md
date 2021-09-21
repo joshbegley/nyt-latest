@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/21/dining/easy-delicious-desserts-no-mixer.html?sear
 
 **Bolsonaro’s unvaccinated status makes for some awkward moments in New York.**\
 `Brazil’s far-right president, who has defied the U.N. General Assembly’s vaccination requirement, has downplayed the threat of Covid-19.`\
-https://nytimes.com/2021/09/21/world/americas/bolsonaros-unvaccinated-status-makes-for-some-awkward-moments-in-new-york.html?searchResultPosition=2
+https://nytimes.com/2021/09/21/world/americas/bolsonaro-covid-vaccine-un.html?searchResultPosition=2
 
 **Fall Fashion With a Sense of Adventure**\
 `The season brings billowing quilted coats, combat boots and protective leather layers primed for flight or roaming on foot.`\
