@@ -24,7 +24,7 @@ https://nytimes.com/2021/09/21/podcasts/the-daily/drone-strike-afghanistan-zemar
 
 **Who is speaking at the U.N. General Assembly, who isn’t — and why does Brazil go first?**\
 `Many leaders are taking advantage of the in-person platform, but others sent recorded video or had lower-ranking officials step in. Either way, in several cases that choice signals a message, too.`\
-https://nytimes.com/2021/09/21/world/americas/unga-speakers-countries.html?searchResultPosition=7
+https://nytimes.com/2021/09/21/world/americas/united-nations-general-assembly-speakers.html?searchResultPosition=7
 
 **Amid rising expectations of an Evergrande default, what would it look like?**\
 `Shares of the troubled Chinese property giant slipped modestly lower Tuesday, while its chairman predicted a turnaround.`\
