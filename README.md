@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/21/theater/david-alan-grier.html?searchResultPositio
 
 **U.S., Mexico Soccer Leagues Announce an Annual Tournament**\
 `The Leagues Cup, part of an effort to capitalize on global interest in the game, will likely raise new concerns about soccer players’ exhausting schedules.`\
-https://nytimes.com/2021/09/21/sports/soccer/MLS-liga-MX-concacaf-championship.html?searchResultPosition=6
+https://nytimes.com/2021/09/21/sports/soccer/mls-liga-mx-leagues-cup.html?searchResultPosition=6
 
 **Key Biden allies express outrage over Border Patrol’s treatment of Haitian migrants.**\
 `Senator Chuck Schumer of New York, the majority leader, said that the administration could not “continue these hateful and xenophobic Trump policies that disregard our refugee laws.”`\
