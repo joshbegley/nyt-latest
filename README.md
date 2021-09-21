@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/21/briefing/un-meeting-biden-j-and-j-submarines.html
 
 **Worried About Your Teen on Social Media? Here’s How to Help.**\
 `For kids, developing a healthier relationship with Instagram and other platforms can be tricky.`\
-https://nytimes.com/2021/09/21/well/family/teens-social-media.html?searchResultPosition=4
+https://nytimes.com/2021/09/21/well/family/teens-social-media-help.html?searchResultPosition=4
 
 **Saadi Yacef, ‘Battle of Algiers’ Catalyst and Actor, Dies at 93**\
 `At the center of the Algerian effort to throw off French rule, he re-created that role in Gillo Pontecorvo’s searing 1966 movie, based on a book by Mr. Yacef.`\
