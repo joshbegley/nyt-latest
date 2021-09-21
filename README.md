@@ -1,5 +1,5 @@
 **How Bad Is It?**\
-`The jitters over a potential default for Chinese real estate firm Evergrande only tell part of the story.`\
+`The jitters over a potential collapse of the Chinese property developer Evergrande only tell part of the story.`\
 https://nytimes.com/2021/09/21/business/dealbook/evergrande-stock-markets.html?searchResultPosition=1
 
 **Europe remains divided over backing France in its dispute with the U.S.**\
@@ -22,9 +22,9 @@ https://nytimes.com/2021/09/21/t-magazine/fall-fashion-leather-boots.html?search
 `He was shot with an unlicensed weapon, in what appears to be the country’s first killing over coronavirus rules.`\
 https://nytimes.com/2021/09/21/world/germany-coronovirus-shooting-covid.html?searchResultPosition=6
 
-**Uneven global vaccination pace puts economic rebound at risk, the O.E.C.D. warns.**\
+**Uneven vaccination rates put an economic rebound at risk, the O.E.C.D. warns.**\
 `The group forecast that the worldwide economy would grow 5.7 percent in 2021, slightly lower than its previous estimate.`\
-https://nytimes.com/2021/09/21/business/uneven-global-vaccination-pace-puts-economic-rebound-at-risk-the-oecd-warns.html?searchResultPosition=7
+https://nytimes.com/2021/09/21/business/uneven-vaccination-rates-put-an-economic-rebound-at-risk-the-oecd-warns.html?searchResultPosition=7
 
 **Where Are the Tests?**\
 `Other countries are awash in Covid tests. The U.S. is not.`\
