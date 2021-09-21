@@ -26,7 +26,7 @@ https://nytimes.com/2021/09/21/briefing/travel-usa-macron-taliban.html?searchRes
 `Many physicians in the country call themselves “conscientious objectors” and deny the procedures, often forcing women to travel long distances for one.`\
 https://nytimes.com/2021/09/21/world/europe/spain-abortion-doctors.html?searchResultPosition=7
 
-**Trudeau Will Remain Prime Minister, but Without a Stronger Mandate**\
+**Trudeau Will Remain Prime Minister, but Falls Short of a Majority**\
 `Voters denied him the expanded bloc of power he had been seeking in Parliament, unofficial results showed.`\
 https://nytimes.com/2021/09/21/world/canada/elections-trudeau.html?searchResultPosition=8
 
