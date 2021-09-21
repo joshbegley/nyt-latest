@@ -1,40 +1,40 @@
-**Here’s how pandemic rules will shape the U.N. gathering.**\
-`Unlike last year, when the session was fully virtual, more than 100 heads of state and government are planning to address the General Assembly in person.`\
-https://nytimes.com/2021/09/21/world/americas/un-covid.html?searchResultPosition=1
+**The Suburbs Beckoned, but They Found a Way to Stay in the City**\
+`When the rowhouse next door came on the market, one couple decided to remain in Washington, D.C., and merge the two houses. It wasn’t easy — or cheap.`\
+https://nytimes.com/2021/09/21/realestate/washington-dc-combining-two-houses-into-one.html?searchResultPosition=1
 
-**A Week Into the School Year, the Mayor Makes Changes**\
-`There will be more testing and less quarantining as New York City pushes to keep its public schools open during Covid.`\
-https://nytimes.com/2021/09/21/nyregion/a-week-into-the-school-year-the-mayor-makes-changes.html?searchResultPosition=2
+**How Two Houses Became One in Washington, D.C.**\
+`When the rowhouse next door came on the market, one couple decided to remain in the city and merge the two houses. It wasn’t easy — or cheap.`\
+https://nytimes.com/slideshow/2021/09/21/realestate/how-two-houses-became-one-in-washington-dc.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Black Surfers Reclaim Their Place on the Waves’**\
-`In this lesson, students will learn about the history of Black surfers and the actions they are taking against racism.`\
-https://nytimes.com/2021/09/21/learning/lesson-of-the-day-black-surfers-reclaim-their-place-on-the-waves.html?searchResultPosition=3
+**My Accidental Visit to the Pandemic’s Party Capital**\
+`Kyiv was supposed to be a quick layover for the writer Rosa Lyster. But its underground nightlife turned out to be just what she needed.`\
+https://nytimes.com/2021/09/21/magazine/kyiv-parties-coronavirus.html?searchResultPosition=3
 
-**4 Takeaways From the Canadian Election**\
-`A vote few Canadians wanted took the country back to 2019.`\
-https://nytimes.com/2021/09/21/world/canada/election-trudeau-takeaways.html?searchResultPosition=4
+**Food Scholar, Folk Singer, Blunt Speaker: The Many Lives of Leni Sorensen**\
+`An irreverent historian who gets her hands into traditional cooking, farming and crafts is finally, at 79, winning fame with Netflix’s “High on the Hog.”`\
+https://nytimes.com/2021/09/21/dining/Leni-Sorensen-food-scholar-historian.html?searchResultPosition=4
 
-**Quotation of the Day: Painful Reminder of Baby’s Death: $257,000 Bill**\
-`Quotation of the Day for Tuesday, September 21, 2021.`\
-https://nytimes.com/2021/09/21/todayspaper/quotation-of-the-day-painful-reminder-of-babys-death-257000-bill.html?searchResultPosition=5
+**I Had a Chance to Travel Anywhere. Why Did I Pick Spokane?**\
+`After 18 months of pandemic parenting isolation, the writer Jon Mooallem knew just where the cure might lie: a minor-league baseball game in eastern Washington.`\
+https://nytimes.com/2021/09/21/magazine/spokane-indians-minor-league-baseball.html?searchResultPosition=5
 
-**Specialty Pharmacies Cater to the Blind and Those with Impaired Vision**\
-`The pandemic has exposed flaws in services for people who can’t easily access a drive-through window for Covid shots or testing or can’t read prescription labels.`\
-https://nytimes.com/2021/09/21/health/blind-pharmacies-access.html?searchResultPosition=6
+**‘Can’t Compete’: Why Hiring for Child Care Is a Huge Struggle**\
+`The Biden administration is trying to address a problem with private child care that has worsened during the pandemic.`\
+https://nytimes.com/2021/09/21/upshot/child-care-hiring-shortage.html?searchResultPosition=6
 
-**Their Baby Died in the Hospital. Then Came the $257,000 Bill.**\
-`A New York family had good health insurance. But the bills for their daughter’s care started showing up and kept coming.`\
-https://nytimes.com/2021/09/21/upshot/hospital-bills-baby-death.html?searchResultPosition=7
+**It’s Not the Left That’s Causing Biden Problems**\
+`The moderates’ immodest demands threaten the president’s agenda.`\
+https://nytimes.com/2021/09/21/opinion/biden-moderates-progressives-infrastructure.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/21/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Surfside Agonizes After Condo Collapse, With a Memorial Hanging in the Balance**\
+`What to do with the site? There is no easy way to both honor victims and compensate condo owners.`\
+https://nytimes.com/2021/09/21/us/surfside-condo-collapse-compensation-rebuilding.html?searchResultPosition=8
 
-**Home Games**\
-`Are sports back at your school after pandemic disruptions? Are you a player or a fan?`\
-https://nytimes.com/2021/09/21/learning/home-games.html?searchResultPosition=9
+**A Caribbean Island’s Audacious Tourism Experiment**\
+`To step onto Montserrat’s volcanic beaches, 21 travelers (so far) with an income of at least $70,000 have agreed to stay two months. The goal: to keep cash coming in, while keeping Covid away.`\
+https://nytimes.com/2021/09/21/travel/montserrat-remote-workers-coronavirus.html?searchResultPosition=9
 
-**Taking the ‘Shame Part’ Out of Female Anatomy**\
-`Anatomists have bid farewell to “pudendum,” but other questionable terms remains.`\
-https://nytimes.com/2021/09/21/science/pudendum-women-anatomy.html?searchResultPosition=10
+**He Nearly Qualified for Release From Rikers. Instead, He Died There.**\
+`Isaabdul Karim was being held on a parole violation when he died on Sunday, becoming the 11th person incarcerated at the jail to die this year.`\
+https://nytimes.com/2021/09/21/nyregion/he-nearly-qualified-for-release-from-rikers-instead-he-died-there.html?searchResultPosition=10
 
