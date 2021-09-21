@@ -12,7 +12,7 @@ https://nytimes.com/2021/09/21/opinion/china-biden-australia-tpp.html?searchResu
 
 **‘Stairway to Heaven,’ or Dangerous Nuisance? A Hawaiian Landmark Is Set to Be Scrapped.**\
 `Honolulu officials said that maintaining the Haiku Stairs, an illegal hiking trail of 3,922 steps that crosses a mountain range, is too much of a liability.`\
-https://nytimes.com/2021/09/21/us/haiku-stairs-hawaii-for-url.html?searchResultPosition=4
+https://nytimes.com/2021/09/21/us/haiku-stairs-hawaii.html?searchResultPosition=4
 
 **The House passes a bill to provide care for U.S. officials suffering from ‘Havana syndrome.’**\
 `The bill, which was approved by the Senate in June, now heads to President Biden’s desk.`\
