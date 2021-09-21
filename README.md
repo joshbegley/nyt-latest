@@ -1,40 +1,40 @@
+**Teenage Boy Pleads Guilty in the Killing of Tessa Majors**\
+`Ms. Majors, a Barnard College student, was stabbed to death in 2019, in a killing that convulsed New York City. One of her killers pleaded guilty on Tuesday.`\
+https://nytimes.com/2021/09/21/nyregion/tessa-majors-luchiano-lewis.html?searchResultPosition=1
+
 **The Alarming Rise of Peter Thiel, Tech Mogul and Political Provocateur**\
 `In a revealing new biography, “The Contrarian,” the journalist Max Chafkin charts Thiel’s ascendancy in Silicon Valley and Washington, D.C., as a driven man drawn to far-right causes and beliefs.`\
-https://nytimes.com/2021/09/21/books/review/the-contrarian-peter-thiel-max-chafkin.html?searchResultPosition=1
+https://nytimes.com/2021/09/21/books/review/the-contrarian-peter-thiel-max-chafkin.html?searchResultPosition=2
 
 **Two of America’s Leading Historians Look at the Nation’s Founding Once Again — to Understand It in All Its Complexity**\
 `Joseph J. Ellis’s “The Cause” and Gordon S. Wood’s “Power and Liberty” argue that the Constitution was a necessary compromise.`\
-https://nytimes.com/2021/09/21/books/review/the-cause-joseph-j-ellis-power-liberty-gordon-s-wood.html?searchResultPosition=2
+https://nytimes.com/2021/09/21/books/review/the-cause-joseph-j-ellis-power-liberty-gordon-s-wood.html?searchResultPosition=3
 
 **Anne-Marie Slaughter Explains What She Has Learned From a Long Career of Public Service**\
 `Slaughter’s “Renewal” looks at how a personal transformation can lead to broader social change.`\
-https://nytimes.com/2021/09/21/books/review/anne-marie-slaughter-renewal.html?searchResultPosition=3
+https://nytimes.com/2021/09/21/books/review/anne-marie-slaughter-renewal.html?searchResultPosition=4
 
 **Trump Campaign Knew Lawyers’ Voting Machine Claims Were Baseless, Memo Shows**\
 `Days before lawyers allied with Donald Trump gave a news conference promoting election conspiracy theories, his campaign had determined that many of those claims were false, court filings reveal.`\
-https://nytimes.com/2021/09/21/us/politics/trump-dominion-voting.html?searchResultPosition=4
+https://nytimes.com/2021/09/21/us/politics/trump-dominion-voting.html?searchResultPosition=5
 
 **Bicycle Diaries: Cruising With the ‘American Utopia’ Family**\
 `Our intrepid reporter and photographer biked through Queens with David Byrne and some of his castmates ahead of their return to Broadway. Then the skies opened up.`\
-https://nytimes.com/2021/09/21/theater/american-utopia-david-byrne-broadway.html?searchResultPosition=5
+https://nytimes.com/2021/09/21/theater/american-utopia-david-byrne-broadway.html?searchResultPosition=6
 
 **Shrink Facebook to Save the World**\
 `Facebook has been used as a tool for violence and abuse in country after country. Maybe it shouldn’t be everywhere.`\
-https://nytimes.com/2021/09/21/technology/facebook-around-the-world.html?searchResultPosition=6
+https://nytimes.com/2021/09/21/technology/facebook-around-the-world.html?searchResultPosition=7
 
 **Review: After Merce, the Dances Go On, and Go On to Inspire**\
 `“In Conversation With Merce,” a virtual program, features Merce Cunningham’s “Landrover” and responses to it, by Liz Gerring and Kyle Abraham.`\
-https://nytimes.com/2021/09/21/arts/dance/in-conversation-with-merce-cunningham-review.html?searchResultPosition=7
+https://nytimes.com/2021/09/21/arts/dance/in-conversation-with-merce-cunningham-review.html?searchResultPosition=8
 
 **Kacey Musgraves, Country Music Chameleon**\
 `The singer and songwriter’s “Star-Crossed” documents the end of her marriage. But reports of her divorce from Nashville have been greatly exaggerated.`\
-https://nytimes.com/2021/09/21/arts/music/popcast-kacey-musgraves.html?searchResultPosition=8
+https://nytimes.com/2021/09/21/arts/music/popcast-kacey-musgraves.html?searchResultPosition=9
 
 **Review: What if ‘Star Wars’ Really Were Japanese?**\
 `“Star Wars: Visions,” a collection of short films on Disney+, lets Japanese animators play with a franchise that has deep roots in their country’s storytelling traditions.`\
-https://nytimes.com/2021/09/21/arts/television/review-star-wars-visions.html?searchResultPosition=9
-
-**Family of British Teen Reaches Settlement With U.S. Diplomat After Fatal Car Accident**\
-`Anne Sacoolas was charged in the death of 19-year-old Harry Dunn in 2019, while she was a State Department employee. The police said she had been driving on the wrong side of the road.`\
-https://nytimes.com/2021/09/21/world/europe/anne-sacoolas-harry-dunn.html?searchResultPosition=10
+https://nytimes.com/2021/09/21/arts/television/review-star-wars-visions.html?searchResultPosition=10
 
