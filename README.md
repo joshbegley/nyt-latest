@@ -1,6 +1,6 @@
 **Images of Border Patrol’s Treatment of Haitian Migrants Prompt Outrage**\
 `The footage offered a glimpse of the chaos that has been unfolding in Texas and called into question President Biden’s decision to swiftly deport thousands.`\
-https://nytimes.com/2021/09/21/us/politics/haitians-border-patrol-texas.html?searchResultPosition=1
+https://nytimes.com/2021/09/21/us/politics/haitians-border-patrol-photos.html?searchResultPosition=1
 
 **What to Read: 4 New Poetry Collections**\
 `From Black queerness to bilingual poetry, these are our picks for this week.`\
