@@ -16,7 +16,7 @@ https://nytimes.com/2021/09/21/todayspaper/quotation-of-the-day-how-new-york-can
 
 **Willie Garson, ‘Sex and the City’ Actor, Dies at 57**\
 `Mr. Garson was also known for his role as the con man Mozzie on “White Collar.”`\
-https://nytimes.com/2021/09/21/arts/willie-garson-dead.html?searchResultPosition=5
+https://nytimes.com/2021/09/21/arts/television/willie-garson-dead.html?searchResultPosition=5
 
 **Police Continue Search for Brian Laundrie**\
 `Law enforcement teams scoured the Carlton Reserve in Sarasota County, Fla., searching for Mr. Laundrie, the fiancé of Gabrielle Petito and a person of interest in her homicide investigation.`\
