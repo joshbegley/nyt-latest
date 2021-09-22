@@ -22,7 +22,7 @@ https://nytimes.com/video/us/100000007986229/haitians-texas-border.html?searchRe
 `Grant Boroughs makes his New York Crossword Times debut.`\
 https://nytimes.com/2021/09/21/crosswords/daily-puzzle-2021-09-22.html?searchResultPosition=6
 
-**Earthquake Hits Southeast Australia**\
+**Earthquake Rattles Australia, Forcing Hospitals and Residents to Evacuate**\
 `The 5.8-magnitude quake damaged buildings in Melbourne, but there were no immediate reports of serious injuries or deaths.`\
 https://nytimes.com/2021/09/22/world/australia/earthquake-melbourne.html?searchResultPosition=7
 
