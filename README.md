@@ -1,6 +1,6 @@
 **Earthquake Hits Southeast Australia**\
 `The 5.8-magnitude quake damaged buildings in Melbourne, but there were no immediate reports of serious injuries or deaths.`\
-https://nytimes.com/2021/09/21/world/australia/earthquake-melbourne.html?searchResultPosition=1
+https://nytimes.com/2021/09/22/world/australia/earthquake-melbourne.html?searchResultPosition=1
 
 **Quotation of the Day: How New York Can Fight Extreme Weather, at a Price**\
 `Quotation of the Day for Wednesday, September 22, 2021.`\
