@@ -1,40 +1,40 @@
-**Google’s big bet on Manhattan office space**\
-`A $2.1 billion purchase of a Hudson Square building is a shot in the arm for the ailing New York office market.`\
-https://nytimes.com/2021/09/22/nyregion/googles-big-bet-on-manhattan-office-space.html?searchResultPosition=1
+**The Challenges of Whistling Straits**\
+`Pete Dye designed the course, home to this year’s Ryder Cup, for all golfers, but threw in a few surprises for the professionals.`\
+https://nytimes.com/2021/09/22/sports/golf/whistling-straits-pete-dye.html?searchResultPosition=1
 
-**A C.D.C. panel will meet to decide who should get Pfizer boosters.**\
-`A discussion on who should count as high-risk could result in most Americans being eligible for an extra shot, or only a select few.`\
-https://nytimes.com/2021/09/22/health/cdc-booster-panel.html?searchResultPosition=2
+**At the Ryder Cup, the Fans Are Part of the Show**\
+`The most un-golf golf tournament in the world brings camaraderie, rambunctiousness and world-class banter to a sport normally played in hushed tones.`\
+https://nytimes.com/2021/09/22/sports/golf/ryder-cup-fans.html?searchResultPosition=2
 
-**Writing About Your Life With ‘Sunday Routine’**\
-`In this popular column, newsworthy New Yorkers share how they spend a typical Sunday. What does your weekend routine look like?`\
-https://nytimes.com/2021/09/22/learning/writing-about-your-life-with-sunday-routine.html?searchResultPosition=3
+**They Never Could Work From Home. These Are Their Stories.**\
+`A parallel universe of millions of employees did not have the luxury of thinking about returning to the office — they never left. Six workers share their experiences.`\
+https://nytimes.com/2021/09/22/business/never-remote-workers-covid.html?searchResultPosition=3
 
-**‘I Just Cry All the Time’: Non-Covid Patients Despair Over Delayed Care**\
-`In areas inundated with coronavirus patients, hospitals have postponed treatments and surgeries for people with other serious conditions.`\
-https://nytimes.com/2021/09/22/health/covid-hospitals-elective-surgeries.html?searchResultPosition=4
+**West Milford, N.J.: ‘A Real Country Town’ Close to the City**\
+`The Passaic County township is within commuting distance of Manhattan, but its lakes and green spaces encourage boating, swimming and hiking.`\
+https://nytimes.com/2021/09/22/realestate/west-milford-nj-a-real-country-town-close-to-the-city.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/22/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Living In ... West Milford, N.J.**\
+`The Passaic County township is within commuting distance, but its lakes and green spaces offer abundant opportunities to swim, boat, fish and hike.`\
+https://nytimes.com/slideshow/2021/09/22/realestate/living-in-west-milford-nj.html?searchResultPosition=5
 
-**Your Go-To Recipes**\
-`What recipes, if any, do you know by heart?`\
-https://nytimes.com/2021/09/22/learning/your-go-to-recipes.html?searchResultPosition=6
+**A Parisian Home That Breaks With Tradition**\
+`When an Italian architect was hired by his French agent to collaborate on an unusual triplex, they committed themselves to creating a space unburdened by the past.`\
+https://nytimes.com/2021/09/22/t-magazine/paris-home-interior-design.html?searchResultPosition=6
 
-**Late Night (and BTS) Goes to the U.N. General Assembly**\
-`Trevor Noah referred to the U.N. event as “the annual gathering that honestly could just be a Zoom.”`\
-https://nytimes.com/2021/09/22/arts/television/trevor-noah-2021-un-general-assembly.html?searchResultPosition=7
+**A Black Theater Flourished in New York. 200 Years Ago.**\
+`The African Theater, which had its first performance on Sept. 17, 1821, is both an inspiration and a cautionary tale.`\
+https://nytimes.com/2021/09/22/theater/african-grove-theater.html?searchResultPosition=7
 
-**Word of the Day: lexicon**\
-`This word has appeared in 118 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/09/22/learning/word-of-the-day-lexicon.html?searchResultPosition=8
+**The Glory and Chaos of Street Style Returned to New York**\
+`A flock of new faces at New York Fashion Week snatched the spotlight from the once familiar flock of influencers.`\
+https://nytimes.com/2021/09/22/style/the-glory-and-chaos-of-street-style-returned-to-new-york.html?searchResultPosition=8
 
-**Your Wednesday Briefing**\
-`President Biden at the U.N.`\
-https://nytimes.com/2021/09/22/briefing/biden-united-nations-afd.html?searchResultPosition=9
+**A Broken Frame, and DNA Traces, Led to Arrest in van Gogh Theft**\
+`Dutch prosecutors said that DNA evidence tied a man to the thefts of a van Gogh and a Frans Hals painting; he denies the charges.`\
+https://nytimes.com/2021/09/22/arts/a-broken-frame-and-dna-traces-led-to-arrest-in-van-gogh-theft.html?searchResultPosition=9
 
-**Germany’s Far Right Is Nowhere in the Election. But It’s ‘Here to Stay.’**\
-`In the next national Parliament, the far-right Alternative for Germany party is likely to remain a pariah force. But it looks assured, too, of a role in shaping the country’s future.`\
-https://nytimes.com/2021/09/22/world/europe/germany-afd-far-right-election.html?searchResultPosition=10
+**Pressure Grows on U.S. Companies to Share Covid Vaccine Technology**\
+`Moderna accepted $2.5 billion in taxpayer money to develop its Covid-19 vaccine. But officials in the U.S. and overseas are having trouble persuading the company to license its technology.`\
+https://nytimes.com/2021/09/22/us/politics/covid-vaccine-moderna-global.html?searchResultPosition=10
 
