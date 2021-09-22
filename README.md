@@ -23,7 +23,7 @@ https://nytimes.com/video/us/100000007986229/haitians-texas-border.html?searchRe
 https://nytimes.com/2021/09/21/crosswords/daily-puzzle-2021-09-22.html?searchResultPosition=6
 
 **Earthquake in Australia Forces Hospitals and Residents to Evacuate**\
-`The 5.8-magnitude quake damaged buildings in Melbourne, but there were no immediate reports of serious injuries or deaths.`\
+`The 5.9-magnitude quake damaged buildings in Melbourne, but there were no immediate reports of serious injuries or deaths.`\
 https://nytimes.com/2021/09/22/world/australia/earthquake-melbourne.html?searchResultPosition=7
 
 **Quotation of the Day: How New York Can Fight Extreme Weather, at a Price**\
