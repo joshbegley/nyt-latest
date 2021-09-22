@@ -1,6 +1,6 @@
 **House Passes Spending Bill and Debt Limit Increase Over G.O.P. Opposition**\
 `The measure now heads to the Senate, setting up a clash with Republicans, who have warned they will block any debt ceiling increase.`\
-https://nytimes.com/2021/09/21/us/politics/house-passes-spending-bill-debt-limit-increase.html?searchResultPosition=1
+https://nytimes.com/2021/09/21/us/politics/spending-bill-passed-debt-limit.html?searchResultPosition=1
 
 **Images of Border Patrol’s Treatment of Haitian Migrants Prompt Outrage**\
 `The footage offered a glimpse of the chaos that has been unfolding in Texas and called into question President Biden’s decision to swiftly deport thousands.`\
