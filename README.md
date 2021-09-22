@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2021/09/21/books/new-poetry-books.html?searchRes
 `Corrections that appeared in print on Wednesday, Sept. 22, 2021.`\
 https://nytimes.com/2021/09/21/pageoneplus/corrections-sept-22-2021.html?searchResultPosition=4
 
-**The fate of the $1 trillion infrastructure bill remains unclear as Biden prepares to meet with House Democrats.**\
+**The fate of the $1 trillion infrastructure bill remains unclear as Biden prepares to meet with Democrats.**\
 `Liberal and moderate wings of the House Democratic caucus remain at odds over whether that measure should pass without work finished on the sweeping, $3.5 trillion economic package.`\
 https://nytimes.com/2021/09/21/us/politics/infrastructure-democrats-biden.html?searchResultPosition=5
 
