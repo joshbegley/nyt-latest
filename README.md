@@ -1,20 +1,16 @@
+**R. Kelly will not testify in his own defense.**\
+`Taking the stand could have been perilous for Mr. Kelly, who lost his composure in a widely viewed interview with Gayle King in 2019.`\
+https://nytimes.com/2021/09/22/nyregion/r-kelly-will-not-testify.html?searchResultPosition=2
+
+**Biden speaks with Macron for the first time since the U.S.-France diplomatic feud.**\
+`The call came days after President Emmanuel Macron of France recalled his country’s ambassador to the United States.`\
+https://nytimes.com/2021/09/22/us/politics/biden-macron-france-australia.html?searchResultPosition=4
+
 **Summer Memories, Road Trips, Spending Money and More**\
 `Each week we spotlight five accessible activities for a broad range of readers and writers based on reporting in The New York Times.`\
-https://nytimes.com/2021/09/22/learning/lesson-plans/summer-memories-road-trips-spending-money-and-more.html?searchResultPosition=4
+https://nytimes.com/2021/09/22/learning/lesson-plans/summer-memories-road-trips-spending-money-and-more.html?searchResultPosition=9
 
 **Accessible Reading and Writing Activities: A New Weekly Roundup for Teachers**\
 `We want to welcome a broader audience of learners to our site. Here is one way we’ll be doing it this school year.`\
-https://nytimes.com/2021/09/22/learning/accessible-reading-and-writing-activities-a-new-weekly-roundup-for-teachers.html?searchResultPosition=5
-
-**‘How Long Gone’ Is in It for the Long Haul**\
-`The podcast premiered during the pandemic and brought friends — and the friends you wish you had — together.`\
-https://nytimes.com/2021/09/22/style/how-long-gone-podcast.html?searchResultPosition=7
-
-**Volcanic Eruption Destroys Hundreds of Homes on La Palma**\
-`Days of flowing lava on the Spanish Canary Island of La Palma has forced thousands of evacuations and prompted warnings of toxic explosions. It was the first major eruption on the island in 50 years.`\
-https://nytimes.com/video/world/100000007986827/volcano-la-palma-canary-islands-spain.html?searchResultPosition=8
-
-**Murder Rose by Almost 30% in 2020. It’s Rising at a Slower Rate in 2021.**\
-`The increase in murders this summer does not appear to be as large as the record spike last summer.`\
-https://nytimes.com/2021/09/22/upshot/murder-rise-2020.html?searchResultPosition=9
+https://nytimes.com/2021/09/22/learning/accessible-reading-and-writing-activities-a-new-weekly-roundup-for-teachers.html?searchResultPosition=10
 
