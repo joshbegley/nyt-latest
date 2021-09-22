@@ -18,8 +18,8 @@ https://nytimes.com/2021/09/22/world/brazil-health-minister-un-covid.html?search
 `The new partnership  between the United States, Britain and Australia is a diplomatic bombshell.`\
 https://nytimes.com/2021/09/22/opinion/france-us-china-submarines.html?searchResultPosition=5
 
-**Top Adviser to Ukrainian President Targeted in Assassination Attempt**\
-`The adviser, Serhiy Shefir, was unharmed, but his driver was shot and wounded in an attack in Kyiv, the Ukrainian capital.`\
+**Top Adviser to Ukrainian President Is Targeted in an Assassination Attempt**\
+`The adviser, Serhiy Shefir, was unharmed, but his driver was shot and wounded in an attack outside Kyiv, the Ukrainian capital.`\
 https://nytimes.com/2021/09/22/world/europe/ukraine-assassination-attempt.html?searchResultPosition=6
 
 **The Challenges of Whistling Straits**\
