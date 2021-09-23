@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/23/arts/design/mass-moca-director-kristy-edmunds.htm
 
 **Boris Johnson Cuts a Colorful Swath in U.S., but to What End?**\
 `U.K.’s prime minister makes headlines, yet experts say it is unclear if his lighthearted style is helping stake out a post-Brexit role on the global stage.`\
-https://nytimes.com/2021/09/23/world/europe/boris-johnson-cuts-a-colorful-swath-in-us-but-to-what-end.html?searchResultPosition=2
+https://nytimes.com/2021/09/23/world/europe/boris-johnson-us-visit.html?searchResultPosition=2
 
 **Who is Elizabeth Geddes, the prosecutor in the R. Kelly case?**\
 `Ms. Geddes has worked for 15 years in the U.S. attorney’s office in Brooklyn and has deep experience in handling complex racketeering and organized crime prosecutions.`\
