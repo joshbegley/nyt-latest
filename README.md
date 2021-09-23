@@ -35,6 +35,6 @@ https://nytimes.com/2021/09/23/arts/je-suis-karl-review-not-marx-the-opposite-in
 https://nytimes.com/2021/09/23/movies/the-starling-review-for-the-birds.html?searchResultPosition=9
 
 **Uncertainty swirls around China Evergrande as a payment deadline passes.**\
-`Shares in Evergrande, a big property developer burdened with huge debt, jumped 18 percent Thursday.`\
+`Despite the uncertainty, shares in the big property developer, which is burdened with huge debt, jumped 18 percent Thursday.`\
 https://nytimes.com/2021/09/23/business/uncertainty-swirls-around-china-evergrande-as-a-payment-deadline-passes.html?searchResultPosition=10
 
