@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/23/briefing/pfizer-booster-shots-haiti-deportations-
 https://nytimes.com/2021/09/23/arts/design/rashid-johnson-met-opera-mosaic.html?searchResultPosition=2
 
 **The State of International Climate Talks**\
-`Climate change is among the most important subject at the meeting of the United Nations General Assembly.`\
+`Climate change is one of the most important subjects at the meeting of the United Nations General Assembly.`\
 https://nytimes.com/interactive/2021/09/23/climate/climate-change-unga.html?searchResultPosition=4
 
 **3 Million Baby Cushions Are Recalled After 8 Reported Infant Deaths**\
