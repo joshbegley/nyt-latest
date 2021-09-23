@@ -23,7 +23,7 @@ https://nytimes.com/2021/09/22/movies/melvin-van-peebles-champion-of-new-black-c
 https://nytimes.com/video/us/politics/100000007988123/democrats-haitians-migrants.html?searchResultPosition=6
 
 **The U.S. Is Lifting Travel Restrictions for Visitors. What Do the New Rules Mean?**\
-`The Biden Administration will allow vaccinated international travelers to enter the United States, including those from previously banned countries. Details remain to be worked out, but here is what we know so far.`\
+`The Biden administration will allow vaccinated international travelers to enter the United States, including those from previously banned countries. Details remain to be worked out, but here is what we know so far.`\
 https://nytimes.com/2021/09/22/travel/us-international-travel-vaccine.html?searchResultPosition=7
 
 **Biden Pushes Deterrent Border Policy After Promising ‘Humane’ Approach**\
