@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/23/arts/Dream-tablet-Iraq-artifact-returned.html?sea
 
 **Watch Live: Police Provide Update on Tennessee Shooting**\
 `A gunman opened fire inside a grocery store in Collierville, Tenn., killing one person and injuring at least 12 people before he shot and killed himself, according to authorities.`\
-https://nytimes.com/video/us/100000007990296/kroger-shooting-collierville-press-conference.html?searchResultPosition=6
+https://nytimes.com/video/embedded/us/100000007990296/kroger-shooting-collierville-press-conference.html?searchResultPosition=6
 
 **Secret Hearing Focuses on Hidden Microphones at Guantánamo Prison**\
 `Hearings resumed in the destroyer Cole bombing case after a 600-day delay caused by the pandemic.`\
