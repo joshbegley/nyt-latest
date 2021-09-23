@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/23/arts/television/mo-abudu-netflix-castle.html?searchResultPosition=1
 
 **Can ‘The Wonder Years’ Break Through the White Noise of Nostalgia?**\
-`ABC’s reboot is conscious of how remembering the old days is more complicated for its Black characters.`\
+`Only white people, the pop-culture conceit goes, can get excited about traveling backward in time. For other people, the past generally looks less like a vacation.`\
 https://nytimes.com/2021/09/23/arts/television/the-wonder-years.html?searchResultPosition=2
 
 **Clara Birdlong, Identified 44 Years After Death, Was Most Likely Serial Killer’s Victim**\
