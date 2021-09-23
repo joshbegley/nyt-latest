@@ -15,6 +15,6 @@ https://nytimes.com/2021/09/23/style/fendi-jil-sander-milan-fashion-week.html?se
 https://nytimes.com/2021/09/23/us/linda-evangelista-lawsuit-paradoxical-adipose-hyperlasia.html?searchResultPosition=9
 
 **Mo Abudu Isn’t Waiting for Permission**\
-`LONDON — Mo Abudu has always understood the power of storytelling, and the impact of its absence.`\
+`Known as “Africa’s answer to Oprah,” Abudu has built a media empire aimed at bringing Nigerian stories to the world. Her huge Netflix deal should help.`\
 https://nytimes.com/2021/09/23/arts/television/mo-abudu-netflix-castle.html?searchResultPosition=10
 
