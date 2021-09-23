@@ -1,40 +1,40 @@
+**Rural America’s Roads Might Resemble Cuba in 20 Years**\
+`As the nation shifts to electric vehicles, picture well-kept but long discontinued gas-powered pickups, especially in areas where charging stations may be sparse.`\
+https://nytimes.com/2021/09/23/business/electric-cars-cuba.html?searchResultPosition=1
+
+**Redrawing the Map in New York**\
+`For years, Republicans have reconfigured congressional districts to their political advantage. Now, Democrats in the state are looking to do the same.`\
+https://nytimes.com/2021/09/23/podcasts/the-daily/redistricting-2022-midterms-new-york.html?searchResultPosition=2
+
+**Vocabulary in Context: When Sharks and Humans Meet**\
+`Test your vocabulary and reading comprehension with this quiz based on the Times article "Don’t Call Them ‘Shark Attacks,’ Scientists Say."`\
+https://nytimes.com/interactive/2021/09/23/learning/23vocabsharksLN.html?searchResultPosition=3
+
 **The Final Days of the R. Kelly Trial**\
 `In closing arguments, the prosecutor painted the singer as a predator surrounded by enablers.`\
-https://nytimes.com/2021/09/23/nyregion/the-final-days-of-the-r-kelly-trial.html?searchResultPosition=1
+https://nytimes.com/2021/09/23/nyregion/the-final-days-of-the-r-kelly-trial.html?searchResultPosition=4
 
 **After 138 Years, a Black Composer Arrives at the Met**\
 `Terence Blanchard, a jazz trumpeter best known for scoring Spike Lee films, reopens the opera house with “Fire Shut Up in My Bones.”`\
-https://nytimes.com/2021/09/23/arts/music/terence-blanchard-met-opera.html?searchResultPosition=2
+https://nytimes.com/2021/09/23/arts/music/terence-blanchard-met-opera.html?searchResultPosition=5
 
 **Roger Federer’s Deep Passion for the Laver Cup**\
 `He helped create it in 2017 and plans to stay involved after he retires.`\
-https://nytimes.com/2021/09/23/sports/tennis/roger-federer-laver-cup.html?searchResultPosition=3
+https://nytimes.com/2021/09/23/sports/tennis/roger-federer-laver-cup.html?searchResultPosition=6
 
 **Weekly Health Quiz: Weight Loss, G-spots and Dry Eyes**\
 `Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2021/09/23/well/live/23healthquiz-09232021.html?searchResultPosition=4
+https://nytimes.com/interactive/2021/09/23/well/live/23healthquiz-09232021.html?searchResultPosition=7
 
 **Has Covid Cost Australia Its Love for Freedom?**\
 `Half the country is locked down, and its borders remain closed. But most Australians are willing to make these sacrifices in pursuit of a collective freedom from fear of the virus.`\
-https://nytimes.com/2021/09/23/world/australia/covid-lockdowns-freedom.html?searchResultPosition=5
+https://nytimes.com/2021/09/23/world/australia/covid-lockdowns-freedom.html?searchResultPosition=8
 
 **On a 19th-Century Farm, an Otherworldly Creative Retreat**\
 `The French artist Agnès Debizet populates every nook of her rustic estate outside of Paris with her fantastical forms.`\
-https://nytimes.com/2021/09/23/t-magazine/agnes-debizet-home-studio.html?searchResultPosition=6
+https://nytimes.com/2021/09/23/t-magazine/agnes-debizet-home-studio.html?searchResultPosition=9
 
 **T Process | Agnès Debizet**\
 `The artist shows off her signature glazing technique as she creates a whimsical ceramic lamp at her studio.`\
-https://nytimes.com/video/t-magazine/100000007979952/t-process-agnes-debizet.html?searchResultPosition=7
-
-**Selling Marijuana on Tribal Lands, a Legal Gray Area**\
-`With New York state officials slow to establish regulations, members of the St. Regis Mohawks have raced ahead, opening a number of dispensaries for recreational marijuana.`\
-https://nytimes.com/2021/09/23/nyregion/new-york-dispensary-mohawk-reservation.html?searchResultPosition=8
-
-**5 Things to Do This Weekend**\
-`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
-https://nytimes.com/2021/09/23/arts/things-to-do-this-weekend.html?searchResultPosition=9
-
-**Wringing Joy from Heartbreak in Las Vegas With My Crew**\
-`Mitchell S. Jackson and his oldest friends reunited to mourn the ones they lost — and honor how little time the rest of them had left.`\
-https://nytimes.com/2021/09/23/magazine/wringing-joy-from-heartbreak-in-las-vegas-with-my-crew.html?searchResultPosition=10
+https://nytimes.com/video/t-magazine/100000007979952/t-process-agnes-debizet.html?searchResultPosition=10
 
