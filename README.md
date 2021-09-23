@@ -28,7 +28,7 @@ https://nytimes.com/2021/09/23/opinion/democrats-biden.html?searchResultPosition
 
 **The ‘Dream Tablet’ Nears the End of a Long Journey Home**\
 `The ancient artifact, which contains a portion of the Gilgamesh epic, is going back to Iraq after having been stolen from a museum there some 30 years ago.`\
-https://nytimes.com/2021/09/23/arts/Dream-tablet-Iraq-artifact-returned.html?searchResultPosition=8
+https://nytimes.com/2021/09/23/arts/dream-tablet-Iraq-artifact-returned.html?searchResultPosition=8
 
 **Watch Live: Police Provide Update on Tennessee Shooting**\
 `A gunman opened fire inside a grocery store in Collierville, Tenn., killing one person and injuring at least 12 people before he shot and killed himself, according to authorities.`\
