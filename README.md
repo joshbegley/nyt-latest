@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/23/us/haitian-migrants-texas-camp.html?searchResultP
 
 **In Biden’s Foreign Policy, Friends and Foes Claim Echoes of Trump**\
 `President Biden’s speech at the U.N. was a stark contrast to President Donald J. Trump’s. But it came amid complaints that some of Mr. Biden’s policy moves echoed his predecessor’s approach.`\
-https://nytimes.com/2021/09/23/us/politics/biden-trump-un.html?searchResultPosition=3
+https://nytimes.com/2021/09/23/us/politics/biden-trump-un-foreign-policy.html?searchResultPosition=3
 
 **Watching the Films of Melvin Van Peebles**\
 `A new Blu-ray box set collects the feature films and shorts of the director, who died this week at 89.`\
