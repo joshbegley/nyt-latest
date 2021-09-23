@@ -1,40 +1,40 @@
-**The F.D.A. has made its move. Next question: Exactly who should get boosters?**\
-`Scientific advisers to the C.D.C. have been discussing the details of federal guidance on who qualifies for a Pfizer-BioNTech booster shot and why. A decision is expected on Thursday.`\
-https://nytimes.com/2021/09/23/health/pfizer-booster-fda-authorize.html?searchResultPosition=1
+**After 138 Years, a Black Composer Arrives at the Met**\
+`Terence Blanchard, a jazz trumpeter best known for scoring Spike Lee films, reopens the opera house with “Fire Shut Up in My Bones.”`\
+https://nytimes.com/2021/09/23/arts/music/terence-blanchard-met-opera.html?searchResultPosition=1
 
-**Oedipus Takes to the Stages in Berlin**\
-`Four interpretations of the Greek myth have been produced in the German capital, all with resonances for our moment.`\
-https://nytimes.com/2021/09/23/theater/oedipus-berlin.html?searchResultPosition=2
+**Roger Federer’s Deep Passion for the Laver Cup**\
+`He helped create it in 2017 and plans to stay involved after he retires.`\
+https://nytimes.com/2021/09/23/sports/tennis/roger-federer-laver-cup.html?searchResultPosition=2
 
-**Ex-Principal of Australian School to Stand Trial on Sexual Abuse Charges**\
-`Malka Leifer, who was extradited from Israel after a long battle, pleaded not guilty to 70 counts.`\
-https://nytimes.com/2021/09/23/world/australia/jewish-school-sexual-abuse-malka-leifer.html?searchResultPosition=3
+**Weekly Health Quiz: Weight Loss, G-spots and Dry Eyes**\
+`Test your knowledge of this week’s health news.`\
+https://nytimes.com/interactive/2021/09/23/well/live/23healthquiz-09232021.html?searchResultPosition=3
 
-**For Parents ​of Disabled Children, School Mask Wars Are Particularly Wrenching**\
-`In Tennessee, where the governor allows families to ignore school mask mandates, some parents are making excruciating calculations each morning about whether to send their children to school.`\
-https://nytimes.com/2021/09/23/us/politics/disabled-students-mask-mandate.html?searchResultPosition=4
+**Has Covid Cost Australia Its Love for Freedom?**\
+`Half the country is locked down, and its borders remain closed. But most Australians are willing to make these sacrifices in pursuit of a collective freedom from fear of the virus.`\
+https://nytimes.com/2021/09/23/world/australia/covid-lockdowns-freedom.html?searchResultPosition=4
 
-**In Sicily Slums, a 113-Year Wait for Housing May Be Over**\
-`After a 1908 earthquake in Messina, the displaced were moved into temporary shacks. Thousands still live in squalor, but the pandemic has pushed Rome to take action at last.`\
-https://nytimes.com/2021/09/23/world/europe/sicily-italy-slums.html?searchResultPosition=5
+**On a 19th-Century Farm, an Otherworldly Creative Retreat**\
+`The French artist Agnès Debizet populates every nook of her rustic estate outside of Paris with her fantastical forms.`\
+https://nytimes.com/2021/09/23/t-magazine/agnes-debizet-home-studio.html?searchResultPosition=5
 
-**An Experiment to Stop Online Abuse Falls Short in Germany**\
-`Despite having one of the world’s toughest laws against online hate speech and harassment, Germany has struggled to contain toxic content ahead of its Sept. 26 election.`\
-https://nytimes.com/2021/09/23/technology/online-hate-speech-germany.html?searchResultPosition=6
+**T Process | Agnès Debizet**\
+`The artist shows off her signature glazing technique as she creates a whimsical ceramic lamp at her studio.`\
+https://nytimes.com/video/t-magazine/100000007979952/t-process-agnes-debizet.html?searchResultPosition=6
 
-**Arizona’s Criticized Election Review Nears End, but Copycats Are Just Getting Started**\
-`The inquiry into the 2020 vote, derided as a badly flawed partisan exercise, has already spawned imitators in other states.`\
-https://nytimes.com/2021/09/23/us/arizona-election-review.html?searchResultPosition=7
+**Selling Marijuana on Tribal Lands, a Legal Gray Area**\
+`With New York state officials slow to establish regulations, members of the St. Regis Mohawks have raced ahead, opening a number of dispensaries for recreational marijuana.`\
+https://nytimes.com/2021/09/23/nyregion/new-york-dispensary-mohawk-reservation.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/23/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/09/23/arts/things-to-do-this-weekend.html?searchResultPosition=8
 
-**Memorial**\
-`Hundreds of thousands of white flags just went up on the National Mall. Do you know what they represent?`\
-https://nytimes.com/2021/09/23/learning/memorial.html?searchResultPosition=9
+**Wringing Joy from Heartbreak in Las Vegas With My Crew**\
+`Mitchell S. Jackson and his oldest friends reunited to mourn the ones they lost — and honor how little time the rest of them had left.`\
+https://nytimes.com/2021/09/23/magazine/wringing-joy-from-heartbreak-in-las-vegas-with-my-crew.html?searchResultPosition=9
 
-**Late Night Shares the Stage With Climate Change**\
-`Seven hosts dedicated their Wednesday shows to raising awareness about the urgent need to slow global warming.`\
-https://nytimes.com/2021/09/23/arts/television/late-night-climate-change.html?searchResultPosition=10
+**What Sandra Day O’Connor Stood For on the Supreme Court**\
+`Forty years after her appointment as the court’s first female justice, it’s worth reflecting on the path she took.`\
+https://nytimes.com/2021/09/23/opinion/sandra-day-oconnor-supreme-court.html?searchResultPosition=10
 
