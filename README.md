@@ -1,6 +1,6 @@
 **U.S.O.P.C. Will Require Covid-19 Vaccinations for Winter Games**\
 `Any athlete vying to represent the United States at the 2022 Olympics or Paralympics in Beijing will be required to present proof of inoculation by Dec. 1.`\
-https://nytimes.com/2021/09/22/sports/usopc-will-require-covid-19-vaccinations-for-winter-games.html?searchResultPosition=1
+https://nytimes.com/2021/09/22/sports/team-usa-vaccines-winter-olympics.html?searchResultPosition=1
 
 **Melbourne Surveys Earthquake Damage**\
 `The 5.9-magnitude quake hit southeast Australia on Wednesday morning, damaging buildings and causing residents to flee their homes. There were no immediate reports of serious injuries or deaths.`\
