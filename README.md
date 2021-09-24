@@ -28,7 +28,7 @@ https://nytimes.com/2021/09/24/us/jeffrey-lynn-thomas-rape-pennsylvania-da.html?
 
 **Biden Promised to Follow the Science. But Sometimes, He Gets Ahead of the Experts.**\
 `White House officials dismiss criticism that President Biden’s comments on booster shots amount to undue pressure on public health experts.`\
-https://nytimes.com/2021/09/24/us/politics/biden-science-vaccine.html?searchResultPosition=8
+https://nytimes.com/2021/09/24/us/politics/biden-science-boosters-vaccine.html?searchResultPosition=8
 
 **An Exit Interview With a School Superintendent Who Defied Texas’ Governor**\
 `Pedro Martinez is leaving San Antonio to become Chicago’s schools chief. He weighs in on his battles with Gov. Greg Abbott and why a student vaccine mandate should be “on the table.”`\
