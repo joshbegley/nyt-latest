@@ -1,5 +1,5 @@
-**To Evacuate or Not to Evacuate?**\
-`Why some people stay behind as fires rage — and why we felt it was important to cover their choices.`\
+**Why Some People Stay Behind in a Wildfire**\
+`And why we decided to cover their choices.`\
 https://nytimes.com/2021/09/24/podcasts/daily-newsletter-dixie-wildfires-california.html?searchResultPosition=1
 
 **Pakistan Says U.N. Envoy of Old Afghan Government Should Vacate Seat**\
