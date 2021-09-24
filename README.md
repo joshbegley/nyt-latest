@@ -11,7 +11,7 @@ https://nytimes.com/2021/09/24/us/jeffrey-lynn-thomas-rape-pennsylvania-da.html?
 https://nytimes.com/2021/09/24/us/politics/biden-science-vaccine.html?searchResultPosition=3
 
 **An Exit Interview With a School Superintendent Who Defied Texas’ Governor**\
-`Pedro Martinez is leaving San Antonio to become Chicago’s schools chief. He weighs in on his battles with Gov. Greg Abbott and why he believes a student vaccine mandate should be “on the table.”`\
+`Pedro Martinez is leaving San Antonio to become Chicago’s schools chief. He weighs in on his battles with Gov. Greg Abbott and why a student vaccine mandate should be “on the table.”`\
 https://nytimes.com/2021/09/24/us/pedro-martinez-greg-abbott-texas.html?searchResultPosition=4
 
 **Education Doesn’t Inoculate Us from Vaccine Hesitancy**\
