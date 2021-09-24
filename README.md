@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/23/well/live/covid-booster-shots.html?searchResultPo
 `With moderates insisting that the cost of the measure dip below $3.5 trillion, Democrats have a number of options for scaling back their plan. None of them are easy.`\
 https://nytimes.com/2021/09/23/us/politics/democrats-safety-net-bill.html?searchResultPosition=2
 
-**The Jan. 6 committee subpoenaed top Trump White House officials, ramping up its investigation.**\
+**The Jan. 6 committee subpoenaed top Trump advisers, ramping up its investigation.**\
 `The committee is seeking information from Mark Meadows, Daniel Scavino Jr., Stephen K. Bannon and Kash Patel.`\
 https://nytimes.com/2021/09/23/us/politics/jan-6-committee-trump-white-house.html?searchResultPosition=3
 
