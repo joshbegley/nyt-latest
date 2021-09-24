@@ -1,24 +1,16 @@
-**Biden Condemns Border Agents Who Mistreated Haitian Migrants**\
-`President Biden vowed to hold the agents accountable who chased Haitian migrants on horseback as they tried to cross the Rio Grande into Texas from Mexico on Saturday.`\
-https://nytimes.com/video/us/politics/100000007991701/biden-haitian-migrants-texas-del-rio-border-patrol.html?searchResultPosition=4
+**N.Y.C. schools prepare for staffing shortages as a vaccine mandate looms.**\
+`Thousands of Department of Education employees still haven’t received their first doses or haven’t submitted proof of vaccination.`\
+https://nytimes.com/2021/09/24/nyregion/nyc-schools-vaccine-mandate-staff-shortage.html?searchResultPosition=4
 
-**Weeknight Greatest Hits**\
-`We’ve collected some of our best quick recipes in our new special section. We hope you love them as much as we do.`\
-https://nytimes.com/2021/09/24/dining/weeknight-recipes-greatest-hits.html?searchResultPosition=5
+**Sherwood Boehlert, a G.O.P Moderate in the House, Dies at 84**\
+`A champion of environmentalism who chided climate change, he was among the last of the relatively progressive Rockefeller Republicans.`\
+https://nytimes.com/2021/09/24/us/sherwood-boehlert-dead.html?searchResultPosition=6
 
-**The C.I.A. recalls its station chief to Vienna amid criticism of his handling of mysterious illnesses.**\
-`Frustration is growing about the treatment of an increasing number of intelligence officers and diplomats with symptoms of so-called Havana syndrome.`\
-https://nytimes.com/2021/09/24/us/politics/cia-vienna-havana-syndrome.html?searchResultPosition=6
+**Word Up! Three Picture Books and a Graphic Novel Celebrate the Power and Joy of Language**\
+`“Thao,” “Otto: A Palindrama,” “My Monster Moofy” and “The Wordy Book” explore myriad worlds within words.`\
+https://nytimes.com/2021/09/24/books/review/otto-jon-agee-thao-lam-monster-moofy-wordy-book.html?searchResultPosition=7
 
-**Man Convicted in Thefts of a van Gogh and a Hals From Dutch Museums**\
-`DNA evidence found at the two museums after the burglaries led investigators to the suspect, who has now been sentenced to eight years in prison by a Dutch court.`\
-https://nytimes.com/2021/09/24/arts/design/van-gogh-frans-hals-theft-conviction.html?searchResultPosition=7
-
-**Disney Sues to Keep Complete Rights to Marvel Characters**\
-`The company filed several lawsuits seeking to invalidate copyright-termination notices served by artists and illustrators involved with creating superheroes like Spider-Man and Thor.`\
-https://nytimes.com/2021/09/24/business/media/disney-marvel-copyright-lawsuits.html?searchResultPosition=8
-
-**Declining Cases, New Hotspots and High Death Tolls**\
-`The latest news and data from the team tracking the coronavirus`\
-https://nytimes.com/interactive/2021/09/24/us/virus-this-week.html?searchResultPosition=10
+**A True Prizefight Follows a Summer of Sideshows**\
+`Anthony Joshua will try to defend his heavyweight titles on Saturday in a fight that could set up a bout against either Deontay Wilder or Tyson Fury.`\
+https://nytimes.com/2021/09/24/sports/anthony-joshua-oleksandr-usyk-fight-preview.html?searchResultPosition=8
 
