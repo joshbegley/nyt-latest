@@ -1,5 +1,5 @@
 **C.D.C. Chief Overrules Agency Panel and Recommends Pfizer-BioNTech Boosters for Workers at Risk**\
-`In a highly unusual decision, the C.D.C. director, Rochelle Walensky, reversed a move by agency advisers to endorse additional doses of the Pfizer-BioNTech vaccine for older Americans but not for health care workers or teachers.`\
+`In a highly unusual decision, the C.D.C. director, Rochelle Walensky, reversed a move by agency advisers and endorsed additional doses of the Pfizer-BioNTech vaccine for health care workers, teachers and other workers at risk.`\
 https://nytimes.com/2021/09/24/world/covid-boosters-vaccine-cdc-director.html?searchResultPosition=1
 
 **Seth Meyers Scorns Trump for Suing His Own Niece**\
