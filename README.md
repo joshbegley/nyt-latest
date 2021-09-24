@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/24/nyregion/michael-k-williams-death-overdose.html?s
 
 **Ahead of German Election, Hundreds of Thousands Demand Climate Action**\
 `Protests took place worldwide, but those in Germany had heightened urgency amid calls for the next government to do something about climate change.`\
-https://nytimes.com/2021/09/24/world/europe/ahead-of-german-election-hundreds-of-thousands-demand-climate-action.html?searchResultPosition=2
+https://nytimes.com/2021/09/24/world/europe/german-election-climate-action.html?searchResultPosition=2
 
 **In Louisiana, a Haunting Landscape**\
 `In a break from portraiture, Dawoud Bey photographed plantations on the west bank of the Mississippi River, drawing a line between past and present.`\
