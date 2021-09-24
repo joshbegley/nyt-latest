@@ -1,5 +1,5 @@
 **Federal Panel Recommends Booster Shots, Opening New Campaign Against the Virus**\
-`Scientific advisers to the C.D.C. endorsed additional doses of the Pfizer-BioNTech vaccine for older Americans but not for health workers, in a possible rift with federal regulators.`\
+`Scientific advisers to the C.D.C. endorsed additional doses of the Pfizer-BioNTech vaccine for older Americans but not for health care workers, in a possible rift with regulators.`\
 https://nytimes.com/2021/09/23/health/covid-boosters-vaccine-cdc.html?searchResultPosition=1
 
 **Review: The Math of ‘Foundation’ Doesn’t Add Up**\
