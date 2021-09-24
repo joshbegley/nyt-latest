@@ -1,4 +1,4 @@
-**Biden Promised to Follow the Science. But Sometimes, He Gets Ahead of the Experts**\
+**Biden Promised to Follow the Science. But Sometimes, He Gets Ahead of the Experts.**\
 `White House officials dismiss criticism that President Biden’s comments on booster shots amount to undue pressure on public health experts.`\
 https://nytimes.com/2021/09/24/us/politics/biden-science-vaccine.html?searchResultPosition=1
 
