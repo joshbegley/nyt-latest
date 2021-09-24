@@ -26,7 +26,7 @@ https://nytimes.com/2021/09/24/briefing/huawei-booster-shots-britney-spears.html
 `A mass shooting inside a suburban Memphis grocery store was called “the most horrific event that has occurred in Collierville history.” But it was one the town had prepared for.`\
 https://nytimes.com/2021/09/24/us/kroger-shooting-collierville.html?searchResultPosition=7
 
-**Criminal charges are filed against PG&E in a fatal California wildfire.**\
+**PG&E Faces Criminal Charges Over Fatal California Wildfire**\
 `Charges including manslaughter arise from a blaze that killed four last year. A state inquiry said the utility’s power lines were involved.`\
 https://nytimes.com/2021/09/24/business/pge-wildfire-criminal-charges.html?searchResultPosition=8
 
