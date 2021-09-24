@@ -1,4 +1,4 @@
-**How Democrats Could Shrink their $3.5 Trillion Budget Bill**\
+**How Democrats Could Shrink Their $3.5 Trillion Budget Bill**\
 `Here are three options to shrink down the Democrats’ climate change and social welfare bill as moderates demand less spending and smaller tax hikes to pay for it.`\
 https://nytimes.com/2021/09/24/us/politics/democrats-social-welfare-climate-change-bill.html?searchResultPosition=1
 
