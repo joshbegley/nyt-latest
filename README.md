@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/24/sports/baseball/mendoza-line.html?searchResultPos
 https://nytimes.com/2021/09/24/climate/national-hurricane-center-tweets.html?searchResultPosition=2
 
 **In Brooklyn, a Couple With Opposing Tastes Strike a Balance**\
-`Following a period of editing and rediscovery, austerity and abundance — and a wide range of objects — live side by side in this Bedford-Stuyvesant apartment.`\
+`Following a period of editing and rediscovery, austerity and abundance — and a wide range of objets — live side by side in this Bedford-Stuyvesant apartment.`\
 https://nytimes.com/2021/09/24/t-magazine/brooklyn-apartment-design-speaklow.html?searchResultPosition=3
 
 **‘Andy,’ Gus Van Sant’s Warhol Musical, Is a Surprise but Not a Miracle**\
