@@ -14,7 +14,7 @@ https://nytimes.com/2021/09/24/movies/international-streaming.html?searchResultP
 `Check out our latest special section, “Fast Flavor,” for 24 low-fuss recipes we know you’ll love.`\
 https://nytimes.com/2021/09/24/dining/what-to-cook-this-weekend.html?searchResultPosition=6
 
-**Biden says Border Patrol agents who mistreated Haitians migrants ‘will pay.’**\
+**Biden says Border Patrol agents who mistreated Haitian migrants ‘will pay.’**\
 `“It’s outrageous,” President Biden said. “I promise you, those people will pay. There will be an investigation, underway now, and there will be consequences.”`\
 https://nytimes.com/2021/09/24/us/politics/biden-border-patrol-haitian-migrants.html?searchResultPosition=7
 
