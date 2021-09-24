@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/24/realestate/climate-change-basement-flooding-home-
 https://nytimes.com/2021/09/24/business/dealbook/stablecoin-crypto-regulation.html?searchResultPosition=2
 
 **China cracks down on cryptocurrency, banning transactions and mining.**\
-`The clampdown comes as China’s central bank has been testing its own digital currency, the electronic Chinese yuan. The price of Bitcoin fell as much as 6 percent on the news.`\
+`The clampdown comes as China’s central bank has been testing its own digital currency, the electronic Chinese yuan. The price of Bitcoin fell by about 7 percent on the news.`\
 https://nytimes.com/2021/09/24/business/china-cryptocurrency-bitcoin.html?searchResultPosition=3
 
 **‘Controlling Britney Spears’ Reveals New Details of Her Life Under Conservatorship**\
