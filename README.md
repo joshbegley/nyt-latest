@@ -1,40 +1,40 @@
+**Vigil Held for Slain Teacher Sabina Nessa**\
+`Mourners gathered in southeast London to remember Sabina Nessa, a 28-year-old elementary school teacher who was killed in a park near her home. Her death has reignited outrage over violence against women in Britain.`\
+https://nytimes.com/video/world/europe/100000007992642/sabina-nessa-london-vigil.html?searchResultPosition=1
+
+**Ocasio-Cortez apologizes for her ‘present’ vote on Iron Dome funding.**\
+`In a letter to constituents, the New York congresswoman suggested she had changed her “no” vote because she had been subjected to “hateful targeting” for opposing the aid.`\
+https://nytimes.com/2021/09/24/us/politics/aoc-israel-iron-dome.html?searchResultPosition=2
+
 **New Guidance on Booster Shots Gets Ahead of the Science**\
 `The responsibility for making decisions about getting boosters in some cases has shifted onto individuals and their doctors.`\
-https://nytimes.com/2021/09/24/opinion/covid-booster-shots.html?searchResultPosition=1
+https://nytimes.com/2021/09/24/opinion/covid-booster-shots.html?searchResultPosition=3
 
 **Matt Amodio, the Latest ‘Jeopardy!’ Star, Breaks $1 Million**\
 `The Ph.D. student in computer science at Yale is only the third contestant to reach that level of winnings.`\
-https://nytimes.com/2021/09/24/arts/television/matt-amodio-jeopardy-wins.html?searchResultPosition=2
+https://nytimes.com/2021/09/24/arts/television/matt-amodio-jeopardy-wins.html?searchResultPosition=4
 
 **Rebuking Biden, Iran’s Chief Diplomat Demands More Sanctions Relief**\
 `The foreign minister for Iran’s new hard-line government said it would demand a higher price for limiting its nuclear program than it did in the 2015 deal.`\
-https://nytimes.com/2021/09/24/world/middleeast/iran-nuclear-sanctions-biden.html?searchResultPosition=3
+https://nytimes.com/2021/09/24/world/middleeast/iran-nuclear-sanctions-biden.html?searchResultPosition=5
 
 **Alberta’s ‘Best Summer Ever’ Ends With an Overwhelmed Medical System**\
 `A surge of Covid-19 cases has forced the province to ask for military assistance in airlifting patients to hospitals across the country.`\
-https://nytimes.com/2021/09/24/world/canada/canada-alberta-covid-cases.html?searchResultPosition=4
+https://nytimes.com/2021/09/24/world/canada/canada-alberta-covid-cases.html?searchResultPosition=6
 
 **Subtropical Storm Teresa Becomes the 19th Named Storm of the Season**\
 `A developing system forming off New England is expected to absorb Teresa, which is not expected to threaten land, forecasters said.`\
-https://nytimes.com/article/tropical-storm-teresa-hurricane.html?searchResultPosition=5
+https://nytimes.com/article/tropical-storm-teresa-hurricane.html?searchResultPosition=7
 
 **Penny Harrington, Who Broke a Blue Ceiling, Dies at 79**\
 `Overcoming bias, she became the first woman to head a major city police department in the nation, in Portland, Ore. But a rocky tenure led her to resign 17 months later.`\
-https://nytimes.com/2021/09/24/us/penny-harrington-dead.html?searchResultPosition=6
+https://nytimes.com/2021/09/24/us/penny-harrington-dead.html?searchResultPosition=8
 
 **This Is How America’s Richest Families Stay That Way**\
 `The longer we fail to constrain inherited wealth, the sooner the dream of a democratic society dies.`\
-https://nytimes.com/2021/09/24/opinion/biden-tax-loophole.html?searchResultPosition=7
+https://nytimes.com/2021/09/24/opinion/biden-tax-loophole.html?searchResultPosition=9
 
 **States Begin a Complex Booster Shot Rollout for Pfizer Recipients**\
 `Health officials were preparing on Friday to start giving booster shots to older and at-risk Americans, trying to make sense of new and broad eligibility guidelines.`\
-https://nytimes.com/2021/09/24/us/politics/vaccine-boosters.html?searchResultPosition=8
-
-**How Democrats Could Shrink Their $3.5 Trillion Budget Bill**\
-`Here are three options to shrink down the Democrats’ climate change and social welfare bill as moderates demand less spending and smaller tax hikes to pay for it.`\
-https://nytimes.com/2021/09/24/us/politics/democrats-social-welfare-climate-change-bill.html?searchResultPosition=9
-
-**Cliff Freeman, Adman Who Asked, ‘Where’s the Beef?,’ Dies at 80**\
-`His humorous touch was evident in commercials for Wendy’s, Little Caesars, Fox Sports and many other clients. “We have to win with wit,” he once said.`\
-https://nytimes.com/2021/09/24/business/media/cliff-freeman-dead.html?searchResultPosition=10
+https://nytimes.com/2021/09/24/us/politics/vaccine-boosters.html?searchResultPosition=10
 
