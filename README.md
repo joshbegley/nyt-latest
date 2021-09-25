@@ -22,8 +22,8 @@ https://nytimes.com/2021/09/24/magazine/how-to-build-roller-skates.html?searchRe
 `The action included some harrowing moments for a couple of golfers, and the gallery included Michael Jordan.`\
 https://nytimes.com/2021/09/24/sports/golf/ryder-cup-us-leads.html?searchResultPosition=6
 
-**China frees 2 jailed Canadians after U.S. agrees to release Huawei executive.**\
-`Two Canadians imprisoned in China since 2018 were free and on their way home, Prime Minister Justin Trudeau of Canada announced Friday night.`\
+**China frees 2 jailed Canadians after the U.S. agrees to release a Huawei executive.**\
+`Two Canadians imprisoned in China since 2018 were free and on their way home, Prime Minister Justin Trudeau of Canada announced on Friday night.`\
 https://nytimes.com/2021/09/24/world/canada/trudeau-china-huawei-meng-wanzhou.html?searchResultPosition=7
 
 **Will Lawmakers Finally Act Against Big Tech?**\
