@@ -32,7 +32,7 @@ https://nytimes.com/2021/09/25/opinion/charles-w-mills-dead.html?searchResultPos
 
 **Democrats’ Spending Fight Carries High Stakes for Their Candidates**\
 `Failure of moderates and progressives to reach a deal would fuel Republican attacks on their competence — with consequences as soon as November in Virginia, and in the midterms next year.`\
-https://nytimes.com/2021/09/25/us/politics/democrats-congress-2022-midterms.html?searchResultPosition=9
+https://nytimes.com/2021/09/25/us/politics/spending-bill.html?searchResultPosition=9
 
 **A federal appeals court delays New York City’s vaccine mandate for teachers.**\
 `The mandate, which affects well over 150,000 people working in the nation’s largest school system, was set to go into effect on Monday at midnight.`\
