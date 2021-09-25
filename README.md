@@ -1,5 +1,5 @@
 **Woman Charged With Arson in Starting California Wildfire, Officials Say**\
-`The Fawn Fire, which has burned nearly 10,000 acres, was spreading quickly on Friday, a day after the authorities accused a Palo Alto woman of igniting the blaze.`\
+`The Fawn fire, which has burned nearly 10,000 acres, was spreading quickly on Friday, a day after the authorities accused a Palo Alto woman of igniting the blaze.`\
 https://nytimes.com/2021/09/24/us/palo-alto-fawn-fire-arrest.html?searchResultPosition=1
 
 **‘Stop the Steal’ Movement Races Forward, Ignoring Arizona Humiliation**\
