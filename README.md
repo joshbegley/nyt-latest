@@ -16,7 +16,7 @@ https://nytimes.com/2021/09/25/arts/music/george-mraz-consummate-jazz-bassist-di
 
 **A Quarterback Duel Fizzles, but the Irish Explode**\
 `Jack Coan, who transferred to Notre Dame from Wisconsin, looked more solid than his Badger replacement, though he left the game in the third quarter with an injury.`\
-https://nytimes.com/2021/09/25/sports/notre-dame-wisconsin.html?searchResultPosition=5
+https://nytimes.com/2021/09/25/sports/ncaafootball/notre-dame-wisconsin.html?searchResultPosition=5
 
 **Cloyd Boyer, Last of a Three-Brother Baseball Rarity, Dies at 94**\
 `His pitching career was cut short, but at one time he and his brothers Ken and Clete were all on the major league stage together. He ended up outliving them.`\
