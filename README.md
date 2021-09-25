@@ -24,7 +24,7 @@ https://nytimes.com/2021/09/25/world/europe/germany-election-merkel.html?searchR
 
 **U.K.’s Migrant Boat Dispute Has Eyes Fixed on the Channel**\
 `The southeastern coast of England is increasingly the focal point of Britain’s migration debate as the government advocates more extreme measures to halt asylum seekers arriving by boat.`\
-https://nytimes.com/2021/09/25/world/europe/uk-migrants-channel-pushbacks.html?searchResultPosition=7
+https://nytimes.com/2021/09/25/world/europe/uk-migrants-london-england.html?searchResultPosition=7
 
 **Anita Hill Has Some Perspective to Offer**\
 `Thirty years after she testified before the Senate, the law professor talks about the experience, sexual harassment and her growing impatience with the slow pace of change.`\
