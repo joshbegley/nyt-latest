@@ -18,8 +18,8 @@ https://nytimes.com/2021/09/24/us/palo-alto-fawn-fire-arrest.html?searchResultPo
 `As a Republican review of 2020 votes in Arizona sputtered to a close, Donald Trump and his allies signaled that their attack on the election, and their drive to reshape future elections, were far from over.`\
 https://nytimes.com/2021/09/24/us/politics/arizona-election-audit-analysis.html?searchResultPosition=5
 
-**U.S. Reaches Agreement to Release Huawei Executive in Case That Strained Ties With China**\
-`The case suggested that the Biden administration and the government of President Xi Jinping could come to some kind of accommodations in a dispute that included allegations of hostage-taking on both sides.`\
+**U.S. Agrees to Release Huawei Executive in Case That Strained Ties With China**\
+`China reciprocated within hours, freeing two Canadians, a notable resolution in a relationship that has been spiraling downward.`\
 https://nytimes.com/2021/09/24/us/politics/huawei-meng-wanzhou.html?searchResultPosition=6
 
 **Vigil Held for Slain Teacher Sabina Nessa**\
