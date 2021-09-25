@@ -10,13 +10,13 @@ https://nytimes.com/2021/09/25/arts/music/aria-code-opera-podcast.html?searchRes
 `As Germany heads into an election that will see Angela Merkel step down after 16 years as chancellor, she leaves behind a country profoundly changed — and anxious about changing more.`\
 https://nytimes.com/2021/09/25/world/europe/germany-election-merkel.html?searchResultPosition=3
 
-**Anita Hill Has Some Perspective to Offer**\
-`Thirty years after she testified before the Senate, the law professor talks about the experience, sexual harassment and her growing impatience with the slow pace of change.`\
-https://nytimes.com/2021/09/25/books/anita-hill-believing.html?searchResultPosition=4
-
 **U.K.’s Migrant Boat Dispute Has Eyes Fixed on the Channel**\
 `The southeastern coast of England is increasingly the focal point of Britain’s migration debate as the government advocates more extreme measures to halt asylum seekers arriving by boat.`\
-https://nytimes.com/2021/09/25/world/europe/uk-migrants-channel-pushbacks.html?searchResultPosition=5
+https://nytimes.com/2021/09/25/world/europe/uk-migrants-channel-pushbacks.html?searchResultPosition=4
+
+**Anita Hill Has Some Perspective to Offer**\
+`Thirty years after she testified before the Senate, the law professor talks about the experience, sexual harassment and her growing impatience with the slow pace of change.`\
+https://nytimes.com/2021/09/25/books/anita-hill-believing.html?searchResultPosition=5
 
 **Bushwig Grows Up**\
 `The annual festival celebrated 10 years of drag, queerness and artistry this month, but some local queens want more.`\
