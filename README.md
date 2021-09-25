@@ -26,15 +26,15 @@ https://nytimes.com/2021/09/25/world/europe/uk-migrants-channel-pushbacks.html?s
 `Thirty years after she testified before the Senate, the law professor talks about the experience, sexual harassment and her growing impatience with the slow pace of change.`\
 https://nytimes.com/2021/09/25/books/anita-hill-believing.html?searchResultPosition=7
 
+**Whales So Close You Can Touch Them: A Family Adventure in Canada**\
+`Recalling a prepandemic trip to a watery landscape in Quebec province: “The adventure we had feels like one plucked from a world I can no longer reach, not unlike watching the water, waiting for a whale to crest.”`\
+https://nytimes.com/2021/09/25/travel/whales-quebec.html?searchResultPosition=8
+
 **Long Hours, Low Pay, Loneliness and a Booming Industry**\
 `The ranks of home health aides are expected to grow more than any other job in the next decade. What kind of work are they being asked to do?`\
-https://nytimes.com/2021/09/25/business/home-health-aides-industry.html?searchResultPosition=8
+https://nytimes.com/2021/09/25/business/home-health-aides-industry.html?searchResultPosition=9
 
 **Bushwig Grows Up**\
 `The annual festival celebrated 10 years of drag, queerness and artistry this month, but some local queens want more.`\
-https://nytimes.com/2021/09/25/style/bushwig-drag-brooklyn.html?searchResultPosition=9
-
-**Whales So Close You Can Touch Them: A Family Adventure in Canada**\
-`Recalling a prepandemic trip to a watery landscape in Quebec province: “The adventure we had feels like one plucked from a world I can no longer reach, not unlike watching the water, waiting for a whale to crest.”`\
-https://nytimes.com/2021/09/25/travel/quebec-whales-family-travel.html?searchResultPosition=10
+https://nytimes.com/2021/09/25/style/bushwig-drag-brooklyn.html?searchResultPosition=10
 
