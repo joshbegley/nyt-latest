@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/25/arts/music/opera-snacks-melissa-clark.html?searchResultPosition=1
 
 **‘Aria Code’ Explores the Meaning Behind the Music**\
-`For many fans, the highlight of any opera is a standout aria, like “O mio babbino caro” from Puccini’s “Gianni Schicchi” or “Vesti la giubba” from Leoncavallo’s “Pagliacci.”`\
+`The podcast hopes to extend the appeal of opera, “an art form that comes with a fair bit of baggage,” to a larger audience.`\
 https://nytimes.com/2021/09/25/arts/music/aria-code-opera-podcast.html?searchResultPosition=2
 
 **Affluent, Anxious and Almost Normal: A Journey Through Merkel’s Germany**\
