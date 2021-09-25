@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/25/world/nyc-vaccine-mandate-teachers.html?searchRes
 
 **Can You Break the Lease if Your Apartment Might Flood?**\
 `Maintaining a rental property — including making sure water drains properly — is the responsibility of the landlord, not the tenant.`\
-https://nytimes.com/2021/09/25/realestate/can-you-break-the-lease-if-your-apartment-might-flood.html?searchResultPosition=3
+https://nytimes.com/2021/09/25/realestate/breaking-lease-flood.html?searchResultPosition=3
 
 **Review: Sounds and Styles Playfully Collide in ‘Only an Octave Apart’**\
 `This show brings together two convention-inverting artists: the cabaret star Justin Vivian Bond and the opera singer Anthony Roth Costanzo.`\
