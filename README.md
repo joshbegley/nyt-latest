@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/25/opinion/letters/social-safety-net.html?searchResu
 
 **They Investigate Police Killings. Their Record Is Wanting.**\
 `After the murder of George Floyd, some states looked to independent agencies to examine deaths in police custody. But dozens of cases handled by the Texas Rangers show the approach has flaws.`\
-https://nytimes.com/2021/09/25/us/police-in-custody-deaths.html?searchResultPosition=3
+https://nytimes.com/2021/09/25/us/police-shootings-killings.html?searchResultPosition=3
 
 **A 3-D Model Built With Public Records and Phone Calls**\
 `For an interactive article on business inside the Empire State Building, a New York Times team turned to interviews with tenants, vacancy listings, promotional materials and real estate data.`\
