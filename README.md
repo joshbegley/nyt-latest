@@ -1,40 +1,40 @@
+**Woman Charged With Arson in Starting California Wildfire, Officials Say**\
+`The Fawn Fire, which has burned nearly 10,000 acres, was spreading quickly on Friday, a day after the authorities accused a Palo Alto woman of igniting the blaze.`\
+https://nytimes.com/2021/09/24/us/palo-alto-fawn-fire-arrest.html?searchResultPosition=1
+
 **‘Stop the Steal’ Movement Races Forward, Ignoring Arizona Humiliation**\
 `As a Republican review of 2020 votes in Arizona sputtered to a close, Donald Trump and his allies signaled that their attack on the election, and their drive to reshape future elections, were far from over.`\
-https://nytimes.com/2021/09/24/us/politics/arizona-election-audit-analysis.html?searchResultPosition=1
+https://nytimes.com/2021/09/24/us/politics/arizona-election-audit-analysis.html?searchResultPosition=2
 
 **U.S. Reaches Agreement to Release Huawei Executive in Case That Strained Ties With China**\
 `The case suggested that the Biden administration and the government of President Xi Jinping could come to some kind of accommodations in a dispute that included allegations of hostage-taking on both sides.`\
-https://nytimes.com/2021/09/24/us/politics/huawei-meng-wanzhou.html?searchResultPosition=2
+https://nytimes.com/2021/09/24/us/politics/huawei-meng-wanzhou.html?searchResultPosition=3
 
 **Vigil Held for Slain Teacher Sabina Nessa**\
 `Mourners gathered in southeast London to remember Sabina Nessa, a 28-year-old elementary school teacher who was killed in a park near her home. Her death has reignited outrage over violence against women in Britain.`\
-https://nytimes.com/video/world/europe/100000007992642/sabina-nessa-london-vigil.html?searchResultPosition=3
+https://nytimes.com/video/world/europe/100000007992642/sabina-nessa-london-vigil.html?searchResultPosition=4
 
 **Ocasio-Cortez apologizes for her ‘present’ vote on Iron Dome funding.**\
 `In a letter to constituents, the New York congresswoman suggested she had changed her “no” vote because she had been subjected to “hateful targeting” for opposing the aid.`\
-https://nytimes.com/2021/09/24/us/politics/aoc-israel-iron-dome.html?searchResultPosition=4
+https://nytimes.com/2021/09/24/us/politics/aoc-israel-iron-dome.html?searchResultPosition=5
 
 **New Guidance on Booster Shots Gets Ahead of the Science**\
 `The responsibility for making decisions about getting boosters in some cases has shifted onto individuals and their doctors.`\
-https://nytimes.com/2021/09/24/opinion/covid-booster-shots.html?searchResultPosition=5
+https://nytimes.com/2021/09/24/opinion/covid-booster-shots.html?searchResultPosition=6
 
 **Matt Amodio, the Latest ‘Jeopardy!’ Star, Breaks $1 Million**\
 `The Ph.D. student in computer science at Yale is only the third contestant to reach that level of winnings.`\
-https://nytimes.com/2021/09/24/arts/television/matt-amodio-jeopardy-wins.html?searchResultPosition=6
+https://nytimes.com/2021/09/24/arts/television/matt-amodio-jeopardy-wins.html?searchResultPosition=7
 
 **Rebuking Biden, Iran’s Chief Diplomat Demands More Sanctions Relief**\
 `The foreign minister for Iran’s new hard-line government said it would demand a higher price for limiting its nuclear program than it did in the 2015 deal.`\
-https://nytimes.com/2021/09/24/world/middleeast/iran-nuclear-sanctions-biden.html?searchResultPosition=7
+https://nytimes.com/2021/09/24/world/middleeast/iran-nuclear-sanctions-biden.html?searchResultPosition=8
 
 **Alberta’s ‘Best Summer Ever’ Ends With an Overwhelmed Medical System**\
 `A surge of Covid-19 cases has forced the province to ask for military assistance in airlifting patients to hospitals across the country.`\
-https://nytimes.com/2021/09/24/world/canada/canada-alberta-covid-cases.html?searchResultPosition=8
+https://nytimes.com/2021/09/24/world/canada/canada-alberta-covid-cases.html?searchResultPosition=9
 
 **Subtropical Storm Teresa Becomes the 19th Named Storm of the Season**\
 `A developing system forming off New England is expected to absorb Teresa, which is not expected to threaten land, forecasters said.`\
-https://nytimes.com/article/tropical-storm-teresa-hurricane.html?searchResultPosition=9
-
-**Penny Harrington, Who Broke a Blue Ceiling, Dies at 79**\
-`Overcoming bias, she became the first woman to head a major city police department in the nation, in Portland, Ore. But a rocky tenure led her to resign 17 months later.`\
-https://nytimes.com/2021/09/24/us/penny-harrington-dead.html?searchResultPosition=10
+https://nytimes.com/article/tropical-storm-teresa-hurricane.html?searchResultPosition=10
 
