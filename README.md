@@ -16,7 +16,7 @@ https://nytimes.com/2021/09/25/theater/only-an-octave-apart-review.html?searchRe
 
 **‘I Need an Army’: Across America, Schools Cram for Their Covid Tests**\
 `Some districts have established robust virus testing programs, but many others are struggling.`\
-https://nytimes.com/2021/09/25/health/coronavirus-testing-schools.html?searchResultPosition=5
+https://nytimes.com/2021/09/25/health/school-covid-test.html?searchResultPosition=5
 
 **To Get Back Arrested Executive, China Uses a Hardball Tactic: Seizing Foreigners**\
 `The speed at which Beijing returned two Canadians held seemingly tit-for-tat in exchange may signal comfort with the tactic.`\
