@@ -1,6 +1,6 @@
 **What Is CoolSculpting?**\
 `The fat-freezing procedure left supermodel Linda Evangelista “disfigured.” Here’s what experts say it is supposed to do and what the most common side effects are.`\
-https://nytimes.com/2021/09/25/well/coolsculpting-linda-evangelista.html?searchResultPosition=1
+https://nytimes.com/article/cool-sculpting.html?searchResultPosition=1
 
 **Norway lifts coronavirus restrictions after 561 days.**\
 `“Now the time has come to return to a normal daily life,” the prime minister, Erna Solberg, said.`\
