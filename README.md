@@ -14,8 +14,8 @@ https://nytimes.com/slideshow/2021/09/26/style/2020-tony-awards-red-carpet.html?
 `The musical, featuring Alanis Morissette songs, is planning to resume performances on Broadway next month.`\
 https://nytimes.com/2021/09/26/theater/jagged-little-pill-nora-schell.html?searchResultPosition=4
 
-**U.S. Takes Back Ryder Cup From Europe**\
-`Collin Morikawa’s birdie putt on No. 17 of his match got the U.S. team to at least 14½ points, giving the Americans the Ryder Cup for only the fourth time in the past 13 attempts.`\
+**U.S. Routs European Team to Take Back the Ryder Cup**\
+`Collin Morikawa’s birdie putt on No. 17 secured the half-point the U.S. team needed to clinch its victory against Europe on the way to a 19-9 rout.`\
 https://nytimes.com/2021/09/26/sports/golf/Ryder-Cup-US-Europe.html?searchResultPosition=5
 
 **Are the Giants Watchable Yet?**\
@@ -26,15 +26,15 @@ https://nytimes.com/2021/09/26/sports/football/falcons-giants-jets-broncos-score
 `Germany’s election is neck and neck.`\
 https://nytimes.com/2021/09/26/briefing/germany-election-meng-wanzhou-evergrande.html?searchResultPosition=7
 
-**The Tonys are back. Here’s what to expect and how to watch the show.**\
-`This year’s Tony Awards are taking place, live and in-person, starting at 7 p.m. Eastern on Paramount+, followed by a 9 p.m. concert on CBS.`\
-https://nytimes.com/2021/09/26/theater/tony-awards-how-to-watch.html?searchResultPosition=8
-
 **Mohamed Hussein Tantawi, 85, Dies; Led Egypt After Mubarak’s Fall**\
 `A general and defense minister, he took power after the Arab Spring uprising, overseeing a crackdown on pro-democracy protesters.`\
-https://nytimes.com/2021/09/26/obituaries/hussein-tantawi-dead.html?searchResultPosition=9
+https://nytimes.com/2021/09/26/obituaries/hussein-tantawi-dead.html?searchResultPosition=8
 
 **‘The Morning Show’ Remakes Itself. Again.**\
 `The topical news drama, which reoriented its first season in response to the #MeToo movement, was forced by the pandemic to rewrite Season 2 as well.`\
-https://nytimes.com/2021/09/26/arts/television/the-morning-show-jennifer-aniston-reese-witherspoon.html?searchResultPosition=10
+https://nytimes.com/2021/09/26/arts/television/the-morning-show-jennifer-aniston-reese-witherspoon.html?searchResultPosition=9
+
+**Mark Morris Dance Group Debuts ‘Water’ in Its Element**\
+`Also on the bill for this free outdoor program is the choreographer’s U.S. premiere of “Quad,” a wordless television play by Samuel Beckett.`\
+https://nytimes.com/2021/09/26/arts/dance/review-mark-morris-debuts-water.html?searchResultPosition=10
 
