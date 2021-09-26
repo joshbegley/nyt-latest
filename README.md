@@ -1,5 +1,5 @@
 **Tensions Flare in Ryder Cup as the U.S. Team Takes a Commanding Lead**\
-`The Americans were cruising on Saturday morning and all seemed calm. Then the Europeans made a strong run in the afternoon and things got testy.`\
+`The Americans were calmly overpowering the European side, but then things got testy.`\
 https://nytimes.com/2021/09/25/sports/golf/ryder-cup-scores-results.html?searchResultPosition=1
 
 **8 Arrested in Fraternity Pledge’s Alcohol-Poisoning Death, Police Say**\
