@@ -12,7 +12,7 @@ https://nytimes.com/2021/09/25/crosswords/daily-puzzle-2021-09-26.html?searchRes
 
 **New York weighs using the National Guard to replace unvaccinated health care workers.**\
 `Gov. Kathy Hochul has plans to use National Guard members and out-of-state professionals to cover staff shortages if thousands of health care workers fail to meet a state vaccination deadline on Monday.`\
-https://nytimes.com/2021/09/25/world/americas/ny-hochul-vaccine-mandate-national-guard.html?searchResultPosition=4
+https://nytimes.com/2021/09/25/world/americas/health-workers-ny-vaccine.html?searchResultPosition=4
 
 **Icelanders Vote in Volatile Election With Climate in Mind**\
 `Icelanders voted Saturday in a general election dominated by climate change, with an unprecedented number of political parties likely to win parliamentary seats.`\
