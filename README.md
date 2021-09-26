@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/26/world/middleeast/west-bank-shooting.html?searchRe
 
 **Voting ends in Germany in a tight race.**\
 `The voting is done, and exit polling throughout the day has suggested that the Social Democrats and the Christian Democratic Union are very close.`\
-https://nytimes.com/2021/09/26/world/voting-ends-in-germany-in-a-tight-race.html?searchResultPosition=6
+https://nytimes.com/2021/09/26/world/germany-voting-results.html?searchResultPosition=6
 
 **Antibody Treatments: Paying for Anti-Vaxxers’ Irresponsibility**\
 `Antivaxxers and antibodies; a false health care choice; recalling an abortion; wild animals in national parks; whitewashing Jan. 6.`\
