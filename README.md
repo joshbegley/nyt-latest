@@ -11,7 +11,7 @@ https://nytimes.com/slideshow/2021/09/26/style/2021-tony-awards-red-carpet.html?
 https://nytimes.com/2021/09/26/theater/jagged-little-pill-nora-schell.html?searchResultPosition=3
 
 **U.S. Routs European Team to Take Back the Ryder Cup**\
-`Collin Morikawa’s birdie putt on No. 17 secured the half-point the U.S. team needed to secure victory against Europe on the way to a 19-9 rout.`\
+`Collin Morikawa’s birdie putt on No. 17 secured the half-point the U.S. team needed to clinch its victory against Europe on the way to a 19-9 rout.`\
 https://nytimes.com/2021/09/26/sports/golf/Ryder-Cup-US-Europe.html?searchResultPosition=4
 
 **Are the Giants Watchable Yet?**\
