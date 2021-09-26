@@ -2,9 +2,9 @@
 `Zachary David Levy saves the day.`\
 https://nytimes.com/2021/09/26/crosswords/daily-puzzle-2021-09-27.html?searchResultPosition=1
 
-**The Best Looks From The 2021 Tony Awards**\
-`It’s theatre’s biggest night! See all of the stars as they go down the carpet.`\
-https://nytimes.com/slideshow/2021/09/26/style/2021-tony-awards-red-carpet.html?searchResultPosition=2
+**The Best Looks From The 2020 Tony Awards**\
+`See all of the stars as they go down the carpet.`\
+https://nytimes.com/slideshow/2021/09/26/style/2020-tony-awards-red-carpet.html?searchResultPosition=2
 
 **‘Jagged Little Pill’ arrives with 15 Tony nominations, but also intensifying controversy.**\
 `The musical, featuring Alanis Morissette songs, is planning to resume performances on Broadway next month.`\
