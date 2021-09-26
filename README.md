@@ -1,6 +1,6 @@
 **Women Enslaved by ISIS Say They Did Not Consent to a Film About Them**\
 `The acclaimed documentary “Sabaya” portrays the rescue of Yazidi women sexually enslaved by the Islamic State terrorist group. But many of the traumatized women said they never agreed to be in the film.`\
-https://nytimes.com/2021/09/26/world/middleeast/women-isis-documentary-sabaya.html?searchResultPosition=1
+https://nytimes.com/2021/09/26/world/middleeast/sabaya-isis.html?searchResultPosition=1
 
 **The Week in Business: A Debt Deadline Looms**\
 `The Fed indicated it was planning to slow down its purchases of government bonds as soon as November. And food delivery workers in New York gained protections.`\
