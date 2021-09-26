@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/26/us/new-mexico-health-officials-link-misuse-of-ive
 `Takeaways from a Marni experience that brought new life to Fashion Week.`\
 https://nytimes.com/2021/09/26/style/marni-armani-milan-fashion-week.html?searchResultPosition=9
 
-**At Black-owned funeral homes, many staffers are feeling burned out.**\
+**At Black-owned funeral homes, many staffers are burying their own colleagues.**\
 `“We mourn, we comfort, we are in pain, too,” said Hari P. Close, the president of the National Funeral Directors & Morticians Association.`\
 https://nytimes.com/2021/09/26/us/covid-black-morticians-funeral-homes.html?searchResultPosition=10
 
