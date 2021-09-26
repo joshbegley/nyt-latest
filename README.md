@@ -1,6 +1,6 @@
 **Are These the Next Cool Sunglasses?**\
 `The emerging brand Sunnei went all-in on goggles on Milan Fashion Week’s third day.`\
-https://nytimes.com/2021/09/26/style/milan-fashion-week-sunnei-sunglasses.html?searchResultPosition=1
+https://nytimes.com/2021/09/26/style/goggles-sunglasses.html?searchResultPosition=1
 
 **What to watch for on Sunday.**\
 `Sixty million people are eligible to vote in the German national election on Sunday.`\
