@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/26/theater/lois-smith-wins-tony-award.html?searchRes
 https://nytimes.com/2021/09/26/world/europe/germany-election-results-olaf-scholz-merkel-laschet.html?searchResultPosition=2
 
 **These Health Care Workers Would Rather Get Fired Than Get Vaccinated**\
-`Monday is the vaccination deadline for New York State health care workers. Thousands of refusers have failed to meet it, and some reject the medical consensus.`\
+`Monday is the vaccination deadline for New York State health care workers. Thousands of refusers have failed to meet it.`\
 https://nytimes.com/2021/09/26/nyregion/health-workers-vaccination.html?searchResultPosition=3
 
 **What We Learned From Week 3 of the N.F.L. Season**\
