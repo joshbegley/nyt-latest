@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/26/sports/oleksandr-usyk-heavyweight-boxing.html?sea
 
 **As Covid wave pushes up demand, Costco limits purchases of toilet paper and water.**\
 `The retailer cited an uptick in demand because of the Delta variant and a shortage of truck drivers.`\
-https://nytimes.com/2021/09/26/world/americas/costco-toilet-paper-water.html?searchResultPosition=2
+https://nytimes.com/2021/09/26/us/costco-toilet-paper-water.html?searchResultPosition=2
 
 **Freed From Guantánamo, but Still in Limbo 15 Years Later**\
 `Abu Bakker Qassim, a Uyghur from China, was dumped in Albania after the U.S. concluded he was not a terrorist, as Chinese authorities had maintained. The only country that wants him is China.`\
