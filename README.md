@@ -26,15 +26,15 @@ https://nytimes.com/2021/09/26/sports/football/falcons-giants-jets-broncos-score
 `Germany’s election is neck and neck.`\
 https://nytimes.com/2021/09/26/briefing/germany-election-meng-wanzhou-evergrande.html?searchResultPosition=7
 
+**The Tonys are back. Here’s what to expect and how to watch the show.**\
+`This year’s Tony Awards are taking place, live and in-person, starting at 7 p.m. Eastern on Paramount+, followed by a 9 p.m. concert on CBS.`\
+https://nytimes.com/2021/09/26/theater/tony-awards-how-to-watch.html?searchResultPosition=8
+
 **Mohamed Hussein Tantawi, 85, Dies; Led Egypt After Mubarak’s Fall**\
 `A general and defense minister, he took power after the Arab Spring uprising, overseeing a crackdown on pro-democracy protesters.`\
-https://nytimes.com/2021/09/26/obituaries/hussein-tantawi-dead.html?searchResultPosition=8
+https://nytimes.com/2021/09/26/obituaries/hussein-tantawi-dead.html?searchResultPosition=9
 
 **‘The Morning Show’ Remakes Itself. Again.**\
 `The topical news drama, which reoriented its first season in response to the #MeToo movement, was forced by the pandemic to rewrite Season 2 as well.`\
-https://nytimes.com/2021/09/26/arts/television/the-morning-show-jennifer-aniston-reese-witherspoon.html?searchResultPosition=9
-
-**Mark Morris Dance Group Debuts ‘Water’ in Its Element**\
-`Also on the bill for this free outdoor program is the choreographer’s U.S. premiere of “Quad,” a wordless television play by Samuel Beckett.`\
-https://nytimes.com/2021/09/26/arts/dance/review-mark-morris-debuts-water.html?searchResultPosition=10
+https://nytimes.com/2021/09/26/arts/television/the-morning-show-jennifer-aniston-reese-witherspoon.html?searchResultPosition=10
 
