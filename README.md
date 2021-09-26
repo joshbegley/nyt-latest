@@ -1,5 +1,5 @@
 **The Best Looks From The 2021 Tony Awards**\
-`It’s theater’s biggest night! See all of the stars as they go down the carpet.`\
+`It’s theatre’s biggest night! See all of the stars as they go down the carpet.`\
 https://nytimes.com/slideshow/2021/09/26/style/2021-tony-awards-red-carpet.html?searchResultPosition=1
 
 **‘Jagged Little Pill’ arrives with 15 Tony nominations, but also intensifying controversy.**\
