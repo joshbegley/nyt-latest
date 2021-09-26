@@ -1,40 +1,40 @@
-**The Marines Reluctantly Let a Sikh Officer Wear a Turban. He Says It’s Not Enough.**\
-`While other armed services allow some religion-based exceptions to dress standards without problems, the Marines insist that even small deviations can threaten the force’s effectiveness.`\
-https://nytimes.com/2021/09/26/us/sikh-marine-turban.html?searchResultPosition=1
+**Watches, Unusual Names and Social Responsibility**\
+`Brands like DecideAndAct and Triwa say they create timepieces with the planet in mind.`\
+https://nytimes.com/2021/09/26/fashion/watches-social-responsibility.html?searchResultPosition=1
 
-**She Bought Her Dream Home. Then a ‘Sovereign Citizen’ Changed the Locks.**\
-`A New Jersey woman was preyed upon by a fast-growing extremist group that claims its members are sovereign Moors, not bound by U.S. laws.`\
-https://nytimes.com/2021/09/26/nyregion/moors-newark.html?searchResultPosition=2
+**Five Years After Peace Deal, Colombia Is Running Out of Time, Experts Say**\
+`A treaty with rebels in 2016 called for the end of a decades-long war. But that is not same as achieving peace, and the window for doing so may be closing.`\
+https://nytimes.com/2021/09/26/world/americas/colombia-peace-five-years.html?searchResultPosition=2
 
-**‘Slipping Into the Cool Water Always Feels Like Slipping Back in Time’**\
-`A bittersweet last day of summer, a late-night song in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/09/26/nyregion/metropolitan-diary.html?searchResultPosition=3
+**With Abortion Largely Banned in Texas, an Oklahoma Clinic Is Inundated**\
+`The new law prohibits abortions after about six weeks, a very early stage of pregnancy. Many women are now traveling out of state for the procedure.`\
+https://nytimes.com/2021/09/26/us/texas-abortion-ban-oklahoma-clinic.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/26/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**This Lab Charges $380 for a Covid Test. Is That What Congress Had in Mind?**\
+`Insurers say it’s price-gouging, but a law left an opening for some labs to charge any price they wished.`\
+https://nytimes.com/2021/09/26/upshot/covid-rapid-test-prices.html?searchResultPosition=4
 
-**Quotation of the Day: Eyes on the English Channel as a Migrant Crisis Brews.**\
-`Quotation of the Day for Sunday, September 26, 2021.`\
-https://nytimes.com/2021/09/26/todayspaper/quotation-of-the-day-eyes-on-the-english-channel-as-a-migrant-crisis-brews.html?searchResultPosition=5
+**For Schumer and Pelosi, the Challenge of a Career With No Margin for Error**\
+`The top two Democrats in Congress face a daunting pile of legislative imperatives. With President Biden’s agenda hanging in the balance and few votes to spare, can they get it done?`\
+https://nytimes.com/2021/09/26/us/politics/democrats-budget-bill.html?searchResultPosition=5
 
-**Corrections: Sept. 26, 2021**\
-`Corrections that appeared in print on Sunday, Sept. 26, 2021.`\
-https://nytimes.com/2021/09/26/pageoneplus/corrections-sept-26-2021.html?searchResultPosition=6
+**Sculptures That ‘Show the Beauty of Each Watch’**\
+`Berd Vay’e suspends vintage parts in Lucite shaped like skulls and baseball bats — a way to show ‘passion for watchmaking in ways that extend beyond the wrist.’`\
+https://nytimes.com/2021/09/26/fashion/watches-lucite-sculptures-bard-vaye.html?searchResultPosition=6
 
-**With 2 Losses, Clemson a Far Cry From Its Enduring Playoff Standards**\
-`Clemson has had some tight moments. But before this season, the Tigers would usually come through.`\
-https://nytimes.com/2021/09/26/sports/ncaafootball/north-carolina-state-clemson.html?searchResultPosition=7
+**‘Everyday Is Doomsday’: New Limits Give Chinese E-Gamers Whiplash**\
+`China has a complex relationship with video games. New government rules for minors have made it even more so.`\
+https://nytimes.com/2021/09/26/business/everyday-is-doomsday-new-limits-give-chinese-e-gamers-whiplash.html?searchResultPosition=7
 
-**With Stanton Leading the Way, Yankees Pull Even With Red Sox**\
-`A pair of wins in Boston, both powered by Giancarlo Stanton, has the rival teams tied for the A.L.’s top wild-card spot.`\
-https://nytimes.com/2021/09/25/sports/baseball/giancarlo-stanton-yankees-red-sox.html?searchResultPosition=8
+**Tony Awards: What to Expect Tonight**\
+`Most of the awards are being streamed at 7 p.m. Eastern on Paramount+, followed by a 9 p.m. musical theater concert (including three big prizes) broadcast on CBS.`\
+https://nytimes.com/2021/09/26/theater/tony-awards-time-livestream.html?searchResultPosition=8
 
-**At Least 3 Killed and 50 Hurt in Amtrak Derailment in Montana, Officials Say**\
-`The derailment, involving eight cars of the Empire Builder train, happened near Joplin, Mont., on Saturday afternoon.`\
-https://nytimes.com/2021/09/25/us/amtrak-montana-train-derails.html?searchResultPosition=9
+**Ancient Greece Through the Lens of the Camera Obscura**\
+`Vera Lutter evaded wildfires and sacrificed meals and sleep to produce beguiling photographs with an archaic form of image-making.`\
+https://nytimes.com/2021/09/26/insider/ancient-greece-through-the-lens-of-the-camera-obscura.html?searchResultPosition=9
 
-**Tensions Flare in Ryder Cup as the U.S. Team Takes a Commanding Lead**\
-`The Americans were calmly overpowering the European side, but then things got testy.`\
-https://nytimes.com/2021/09/25/sports/golf/ryder-cup-scores-results.html?searchResultPosition=10
+**Homes That Sold for Around $600,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2021/09/26/realestate/home-sales-600000-dollars.html?searchResultPosition=10
 
