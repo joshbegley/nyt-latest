@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/26/world/asia/jonathan-mirsky-dead.html?searchResult
 
 **Five Killed in West Bank Shootouts**\
 `The Israeli military said the five were killed during raids to arrest members of a Hamas network planning terrorist attacks against Israeli civilians.`\
-https://nytimes.com/2021/09/26/world/middleeast/five-killed-in-west-bank-shootouts.html?searchResultPosition=2
+https://nytimes.com/2021/09/26/world/middleeast/west-bank-shooting.html?searchResultPosition=2
 
 **Polls Close in Germany in a tight race.**\
 `The voting is done, and exit polling throughout the day has suggested that the Social Democrats and the Christian Democratic Union are very close.`\
