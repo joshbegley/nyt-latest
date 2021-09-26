@@ -2,8 +2,8 @@
 `A pair of wins in Boston, both powered by Giancarlo Stanton, has the rival teams tied for the A.L.’s top wild-card spot.`\
 https://nytimes.com/2021/09/25/sports/baseball/giancarlo-stanton-yankees-red-sox.html?searchResultPosition=1
 
-**At Least 50 Hurt in Amtrak Derailment in Montana, Official Says**\
-`An emergency coordinator said there was an unspecified number of fatalities in the derailment, which happened near Joplin, Mont.`\
+**At Least 3 Killed and 50 Hurt in Amtrak Derailment in Montana, Officials Say**\
+`The derailment, involving five cars of the Empire Builder train, happened near Joplin, Mont., on Saturday afternoon.`\
 https://nytimes.com/2021/09/25/us/amtrak-montana-train-derails.html?searchResultPosition=2
 
 **Tensions Flare in Ryder Cup as the U.S. Team Takes a Commanding Lead**\
