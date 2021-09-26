@@ -24,7 +24,7 @@ https://nytimes.com/2021/09/26/podcasts/the-daily/vicha-ratanapakdee-asian-viole
 
 **Labour’s Leader Struggles to Emerge From Boris Johnson’s Shadow**\
 `Competent but low on charisma, Keir Starmer has yet to give British voters a clear reason to support the main opposition party, critics say.`\
-https://nytimes.com/2021/09/26/world/europe/britain-labour-keir-starmer.html?searchResultPosition=7
+https://nytimes.com/2021/09/26/world/europe/keir-starmer.html?searchResultPosition=7
 
 **Known for Feuding With Immigrants, a TV Star Wants to Run a Town Many Call Home**\
 `A mayoral bid by a TV commentator known for her inflammatory messaging on race raises a larger question: How should Portugal address its colonial legacy?`\
