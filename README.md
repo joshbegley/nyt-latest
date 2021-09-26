@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000007993656/germany-election-parliame
 
 **Intrigue Deepens at U.N. Over Myanmar and Afghanistan**\
 `On the final day of the General Assembly’s most important annual gathering, no one is expected to speak for Myanmar, but the envoy of Afghanistan’s ousted government may yet take the podium.`\
-https://nytimes.com/2021/09/26/world/asia/intrigue-deepens-at-un-over-myanmar-and-afghanistan.html?searchResultPosition=2
+https://nytimes.com/2021/09/26/world/asia/myanmar-afghanistan.html?searchResultPosition=2
 
 **U.K. Offers Thousands of Visas to Foreign Truckers to Ease Driver Shortage**\
 `The move reflects growing alarm within the government about a disruption to supplies that has prompted panic buying and, in some cases, caused fuel to run out at gas stations.`\
