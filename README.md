@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/26/style/goggles-sunglasses.html?searchResultPositio
 `Sixty million people are eligible to vote in the German national election on Sunday.`\
 https://nytimes.com/2021/09/26/world/what-time-results-germany-election-polls.html?searchResultPosition=2
 
-**Can a Mantra Make You Faster? This Olympic Medalist Has No Doubt**\
+**Can a Mantra Make You Faster? This Olympic Medalist Has No Doubt.**\
 `“I love these words and phrases because usually they start in practice or in conversation,” Courtney Frerichs said. Those words and phrases helped her win a silver medal.`\
 https://nytimes.com/2021/09/26/sports/courtney-frerichs-running-mantras.html?searchResultPosition=3
 
