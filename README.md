@@ -10,8 +10,8 @@ https://nytimes.com/slideshow/2021/09/26/style/2021-tony-awards-red-carpet.html?
 `The musical, featuring Alanis Morissette songs, is planning to resume performances on Broadway next month.`\
 https://nytimes.com/2021/09/26/theater/jagged-little-pill-nora-schell.html?searchResultPosition=3
 
-**U.S. Takes Back Ryder Cup From Europe**\
-`Collin Morikawa’s birdie putt on No. 17 of his match got the U.S. team to at least 14½ points, giving the Americans the Ryder Cup for only the fourth time in the past 13 attempts.`\
+**U.S. Routs European Team to Take Back the Ryder Cup**\
+`Collin Morikawa’s birdie putt on No. 17 secured the half-point the U.S. team needed to secure victory against Europe on the way to a 19-9 rout.`\
 https://nytimes.com/2021/09/26/sports/golf/Ryder-Cup-US-Europe.html?searchResultPosition=4
 
 **Are the Giants Watchable Yet?**\
