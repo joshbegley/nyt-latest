@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/26/sports/ncaafootball/north-carolina-state-clemson.
 https://nytimes.com/2021/09/25/sports/baseball/giancarlo-stanton-yankees-red-sox.html?searchResultPosition=2
 
 **At Least 3 Killed and 50 Hurt in Amtrak Derailment in Montana, Officials Say**\
-`The derailment, involving seven cars of the Empire Builder train, happened near Joplin, Mont., on Saturday afternoon.`\
+`The derailment, involving eight cars of the Empire Builder train, happened near Joplin, Mont., on Saturday afternoon.`\
 https://nytimes.com/2021/09/25/us/amtrak-montana-train-derails.html?searchResultPosition=3
 
 **Tensions Flare in Ryder Cup as the U.S. Team Takes a Commanding Lead**\
