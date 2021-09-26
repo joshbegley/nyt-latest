@@ -14,9 +14,9 @@ https://nytimes.com/2021/09/26/world/asia/jonathan-mirsky-dead.html?searchResult
 `The Israeli military said the five were killed during raids to arrest members of a Hamas network planning terrorist attacks against Israeli civilians.`\
 https://nytimes.com/2021/09/26/world/middleeast/west-bank-shooting.html?searchResultPosition=4
 
-**Polls Close in Germany in a tight race.**\
+**Voting ends in Germany in a tight race.**\
 `The voting is done, and exit polling throughout the day has suggested that the Social Democrats and the Christian Democratic Union are very close.`\
-https://nytimes.com/2021/09/26/world/polls-close-in-germany-in-a-tight-race.html?searchResultPosition=5
+https://nytimes.com/2021/09/26/world/voting-ends-in-germany-in-a-tight-race.html?searchResultPosition=5
 
 **Antibody Treatments: Paying for Anti-Vaxxers’ Irresponsibility**\
 `Antivaxxers and antibodies; a false health care choice; recalling an abortion; wild animals in national parks; whitewashing Jan. 6.`\
