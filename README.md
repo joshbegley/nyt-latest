@@ -22,19 +22,19 @@ https://nytimes.com/2021/09/27/business/energy-environment/ford-battery-electric
 `Do centrists realize that 2021 isn't 1999?`\
 https://nytimes.com/2021/09/27/opinion/biden-centrist-democrats.html?searchResultPosition=6
 
+**R. Kelly will be sentenced in May, as other criminal charges move forward.**\
+`Mr. Kelly faces 10 years to life in prison for his conviction on federal racketeering and sex trafficking charges in Brooklyn. He still is under indictment in two other states.`\
+https://nytimes.com/2021/09/27/nyregion/r-kelly-sentencing.html?searchResultPosition=7
+
 **Republicans Block Government Funding, Refusing to Lift Debt Limit**\
 `Senate Republicans opposed legislation to avert a government shutdown and prevent a debt default at a critical moment for Democrats’ domestic agenda.`\
-https://nytimes.com/2021/09/27/us/politics/republicans-block-government-funding-bill-debt-limit.html?searchResultPosition=7
+https://nytimes.com/2021/09/27/us/politics/republicans-block-government-funding-bill-debt-limit.html?searchResultPosition=8
 
 **Winner but Not Chancellor — Yet. The Race to Replace Merkel**\
 `Olaf Scholz, the leader of the center-left Social Democrats, narrowly won the night. But now the hard part begins — building a durable governing coalition.`\
-https://nytimes.com/2021/09/27/world/europe/germany-election-results-olaf-scholz-spd.html?searchResultPosition=8
+https://nytimes.com/2021/09/27/world/europe/germany-election-results-olaf-scholz-spd.html?searchResultPosition=9
 
 **Verdict ‘Forever Brands’ R. Kelly a Predator, Prosecutor Says**\
 `Federal prosecutors thanked the witnesses who testified against R. Kelly and commended the bravery of his victims after the singer was found guilty of running a decades-long scheme to recruit women and underage girls for sex.`\
-https://nytimes.com/video/us/100000007996115/r-kelly-verdict-prosecutors.html?searchResultPosition=9
-
-**New York City can proceed with vaccine mandate for educators and staff, judges ruled.**\
-`It’s not yet clear if the city will decide to implement the mandate tonight at midnight as originally scheduled or wait until later in the week.`\
-https://nytimes.com/2021/09/27/nyregion/new-york-city-schools-vaccine-mandate.html?searchResultPosition=10
+https://nytimes.com/video/us/100000007996115/r-kelly-verdict-prosecutors.html?searchResultPosition=10
 
