@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/27/briefing/covid-red-states-vaccinations.html?searc
 
 **The Best and Worst of the 74th Tony Awards**\
 `Despite an evening split between streaming and TV, the message on Sunday night was clear: Broadway is back.`\
-https://nytimes.com/2021/09/27/theater/tony-awards-best-worst-moments-.html?searchResultPosition=6
+https://nytimes.com/2021/09/27/theater/tony-awards-best-worst-moments.html?searchResultPosition=6
 
 **One Broken Bone? You May Be at Risk for Another**\
 `Any fracture in an older woman or man, whether from a car accident or sidewalk slip, may be a sign you should have your bone health checked.`\
