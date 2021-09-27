@@ -1,5 +1,5 @@
-**Democratic Leaders Wrangle Support for Infrastructure Before a Key Vote**\
-`Speaker Nancy Pelosi of California announced that the House would take up the $1 trillion bill on Thursday, hours before government funding is scheduled to lapse.`\
+**Pelosi Announces Vote on $1 Trillion Bipartisan Infrastructure Bill**\
+`Speaker Nancy Pelosi of California said that the House would take up the $1 trillion bill on Thursday, hours before government funding is scheduled to lapse.`\
 https://nytimes.com/2021/09/26/us/politics/infrastructure-vote-pelosi.html?searchResultPosition=1
 
 **The Cause of the Derailed Amtrak Train Remains Unclear**\
