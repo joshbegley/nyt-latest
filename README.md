@@ -2,13 +2,13 @@
 `The play, which had been nominated for 12 Tony Awards, will return to Broadway in November.`\
 https://nytimes.com/2021/09/27/theater/slave-play-returning-broadway.html?searchResultPosition=1
 
-**It Could Have Been a Fresh Start. But Germany Is Stuck.**\
-`After Sunday’s equivocal elections, the country is headed for more of the same.`\
-https://nytimes.com/2021/09/27/opinion/germany-election-scholz-laschet.html?searchResultPosition=2
-
 **What’s on TV This Week: ‘Citizen Hearst’ and ‘Saturday Night Live’**\
 `A two-part documentary about William Randolph Hearst debuts on PBS. And “SNL” returns to NBC for its 47th season.`\
-https://nytimes.com/2021/09/27/arts/television/whats-on-tv-this-week-citizen-hearst-and-saturday-night-live.html?searchResultPosition=3
+https://nytimes.com/2021/09/27/arts/television/whats-on-tv-this-week-citizen-hearst-and-saturday-night-live.html?searchResultPosition=2
+
+**It Could Have Been a Fresh Start. But Germany Is Stuck.**\
+`After Sunday’s equivocal elections, the country is headed for more of the same.`\
+https://nytimes.com/2021/09/27/opinion/germany-election-scholz-laschet.html?searchResultPosition=3
 
 **Your Monday Briefing**\
 `A narrow victory for the Social Democrats.`\
