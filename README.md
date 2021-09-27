@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/27/nyregion/rikers-island-de-blasio-congress.html?se
 
 **Watch Live: Biden Gets Coronavirus Vaccine Booster Shot**\
 `President Biden delivers remarks and receives a third dose of the Pfizer-BioNTech vaccine.`\
-https://nytimes.com/video/us/politics/100000007995204/biden-booster-shot-live-video.html?searchResultPosition=7
+https://nytimes.com/video/embedded/us/politics/100000007995204/biden-booster-shot-live-video.html?searchResultPosition=7
 
 **‘I was wrong’: Liz Cheney announces support for same-sex marriage, reversing a longstanding position.**\
 `Representative Liz Cheney came out against same-sex marriage in 2013. Her sister, who is gay, wrote online at the time that the decision put her “on the wrong side of history.”`\
