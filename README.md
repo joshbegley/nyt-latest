@@ -1,4 +1,4 @@
-**‘Moulin Rouge!’ and ‘Inheritance’ Take Top Honors at Tony Awards**\
+**‘Moulin Rouge!’ and ‘The Inheritance’ Take Top Honors at Tony Awards**\
 `The ceremony, held for the first time in more than two years, honored shows that opened before the pandemic and tried to lure crowds back to Broadway.`\
 https://nytimes.com/2021/09/26/theater/broadway-tony-awards.html?searchResultPosition=1
 
