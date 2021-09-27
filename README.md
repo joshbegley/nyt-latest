@@ -32,7 +32,7 @@ https://nytimes.com/2021/09/27/dining/hendricks-gin-katzs-pickles.html?searchRes
 
 **An Asian Night Market for a Returning New York City Food Festival**\
 `The Food Network & Cooking Channel New York City Wine & Food Festival returns for in-person dinners and tastings next month.`\
-https://nytimes.com/2021/09/27/dining/an-asian-night-market-for-a-returning-new-york-city-food-festival.html?searchResultPosition=9
+https://nytimes.com/2021/09/27/dining/nyc-food-festival-asian-night-market.html?searchResultPosition=9
 
 **A New Destination for Tea Lovers in Brooklyn**\
 `Kettl, a tea shop and retailer in Greenpoint, features tea to-go as well as a variety of tea-driven sweets.`\
