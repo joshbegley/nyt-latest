@@ -1,4 +1,4 @@
-**Biden is expected to receive a Pfizer-BioNTech booster.**\
+**Biden received a Pfizer-BioNTech booster.**\
 `The move comes only days after federal regulators moved to allow millions of Americans to get Pfizer booster shots.`\
 https://nytimes.com/2021/09/27/us/politics/biden-pfizer-booster.html?searchResultPosition=1
 
