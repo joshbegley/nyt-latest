@@ -22,7 +22,7 @@ https://nytimes.com/2021/09/27/us/frances-t-farenthold-liberal-force-in-texas-an
 `The acquisition adds muscle to an already heavyweight Creative Artists at a time when talent representatives are sparring with studios over compensation in the streaming age.`\
 https://nytimes.com/2021/09/27/business/caa-icm-agents.html?searchResultPosition=8
 
-**Biden received a Pfizer-BioNTech booster.**\
+**Biden receives a Pfizer-BioNTech booster and urges more Americans to get a first shot.**\
 `The move comes only days after federal regulators moved to allow millions of Americans to get Pfizer booster shots.`\
 https://nytimes.com/2021/09/27/us/politics/biden-pfizer-booster.html?searchResultPosition=9
 
