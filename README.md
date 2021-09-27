@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/27/books/review/kevin-young-stones-poems.html?search
 `High demand and soaring energy prices have forced some factories to shut down, adding further problems for already snarled global supply chains.`\
 https://nytimes.com/2021/09/27/business/economy/china-electricity.html?searchResultPosition=2
 
-**America’s Top General Back in the Center of a Political Battle**\
+**Republicans Have Long Been Mad at General Milley. They Will Get Their Shot.**\
 `Gen. Mark Milley will appear in what could be the most significant televised congressional hearing involving senior military leaders in years.`\
 https://nytimes.com/2021/09/27/us/politics/general-milley-testimony-trump.html?searchResultPosition=3
 
