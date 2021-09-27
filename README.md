@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/27/sports/baseball/yankees-red-sox.html?searchResultPosition=1
 
 **When Medical Ethics Collide With Basic Fairness**\
-`Too many people remain stubbornly stuck to the steady diet of lies they’ve been fed for month.`\
+`Too many people remain stubbornly stuck to the steady diet of lies they’ve been fed for months.`\
 https://nytimes.com/2021/09/27/opinion/when-medical-ethics-collide-with-basic-fairness.html?searchResultPosition=2
 
 **How an Architect’s Descendants Brought His Crumbling House Back to Life**\
