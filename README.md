@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/27/arts/design/michelangelo-bandini-pieta.html?searc
 
 **Frances T. Farenthold, Liberal Force in Texas and Beyond, Dies at 94**\
 `Known as Sissy, she was an advocate for racial parity and women’s rights, and her name was placed in nomination for the vice presidency in 1972. Tragedy trailed her.`\
-https://nytimes.com/2021/09/27/us/frances-t-farenthold-dead.html?searchResultPosition=4
+https://nytimes.com/2021/09/27/us/frances-t-farenthold-liberal-force-in-texas-and-beyond-dies-at-94.html?searchResultPosition=4
 
 **The Hollywood agency C.A.A. is buying its rival ICM.**\
 `The acquisition adds muscle to an already heavyweight Creative Artists at a time when talent representatives are sparring with studios over compensation in the streaming age.`\
