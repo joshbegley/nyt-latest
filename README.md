@@ -1,6 +1,6 @@
 **New York City can proceed with vaccine mandate for educators and staff, judges ruled.**\
-`By Eliza Shapiro and Benjamin Weiser`\
-https://nytimes.com/2021/09/27/nyregion/new-york-city-can-proceed-with-vaccine-mandate-for-educators-and-staff-judges-ruled.html?searchResultPosition=1
+`It’s not yet clear if the city will decide to implement the mandate tonight at midnight as originally scheduled or wait until later in the week.`\
+https://nytimes.com/2021/09/27/nyregion/new-york-city-schools-vaccine-mandate.html?searchResultPosition=1
 
 **Infrastructure, Murders, R. Kelly: Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
