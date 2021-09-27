@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2021/09/27/world/europe/uk-imperial-units.html?s
 `The men could face up to six months in prison after entering a restricted area of Katmai National Park and Preserve in 2018.`\
 https://nytimes.com/2021/09/27/us/katmai-bears.html?searchResultPosition=2
 
-**How Young People’s Social Anxiety Worsened in the Pandemic**\
+**How Young People’s Social Anxiety Has Worsened in the Pandemic**\
 `They expected their 20s to be a time for friends and the passage to adulthood. Instead, they drifted into isolation. Now thousands of young people are struggling to socialize again.`\
 https://nytimes.com/2021/09/27/us/social-anxiety-pandemic.html?searchResultPosition=3
 
