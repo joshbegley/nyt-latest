@@ -10,13 +10,13 @@ https://nytimes.com/video/us/politics/100000007996954/austin-milley-afghanistan-
 `Throughout history, we’ve tried to conquer what unsettles us by consuming it. The practice raises questions about who the real monsters are.`\
 https://nytimes.com/2021/09/28/t-magazine/food-meat-predators.html?searchResultPosition=3
 
+**Baseball’s Wall Street-Style Executives Get Titles to Match**\
+`As M.L.B. front offices get more and more corporate, titles have steadily inflated. Yesterday’s general manager is today’s president of baseball operations … or chief baseball officer.`\
+https://nytimes.com/2021/09/28/sports/baseball/erik-neander-dayton-moore.html?searchResultPosition=4
+
 **Trump Loses Case to Enforce Omarosa Manigault Newman’s N.D.A.**\
 `Donald Trump had filed the case against Ms. Manigault Newman, a former White House aide and “Apprentice” star, after she wrote a tell-all book about serving in his administration.`\
-https://nytimes.com/2021/09/28/us/politics/trump-omarosa-nda-suit.html?searchResultPosition=4
-
-**Baseball’s Wall Street-style Executives Get Titles to Match**\
-`As M.L.B. front offices get more and more corporate, titles have steadily inflated. Yesterday’s general manager is today’s president of baseball operations … or chief baseball officer.`\
-https://nytimes.com/2021/09/28/sports/baseball/erik-neander-dayton-moore.html?searchResultPosition=5
+https://nytimes.com/2021/09/28/us/politics/trump-omarosa-nda-suit.html?searchResultPosition=5
 
 **Stephanie Grisham’s Book Details Trump’s ‘Terrifying’ Temper**\
 `The former press secretary is reflective in her tell-all: “I should have spoken up more.”`\
