@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/28/world/europe/uk-sabina-nessa-murder-charge.html?s
 `Robert Aaron Long pleaded guilty in July to four other murder charges and will spend the rest of his life behind bars.`\
 https://nytimes.com/2021/09/28/us/atlanta-spa-killings-robert-long.html?searchResultPosition=3
 
-**Pfizer and BioNTech submit data showing shots are safe in 5- to 11-year-olds.**\
+**Pfizer and BioNTech submit data they say showing shots are safe in 5- to 11-year-olds.**\
 `The companies said that they would submit a formal request to regulators to allow a pediatric dose of their vaccine to be administered in the United States in the coming weeks.`\
 https://nytimes.com/2021/09/28/us/politics/pfizer-vaccine-kids.html?searchResultPosition=4
 
