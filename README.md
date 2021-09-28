@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/28/arts/music/alemayehu-eshete-dead.html?searchResultPosition=1
 
 **George Malkemus, Who Pushed Manolos to New Heights, Dies at 67**\
-`He successfully marketed Manolo Blahnik’s ’s extravagantly-heeled confections. Then a television character named Carrie Bradshaw brandished a pair in “Sex and the City.”`\
+`He successfully marketed Manolo Blahnik’s extravagantly-heeled confections. Then a television character named Carrie Bradshaw brandished a pair in “Sex and the City.”`\
 https://nytimes.com/2021/09/28/fashion/george-malkemus-dead.html?searchResultPosition=3
 
 **Can a Low-Carb Diet Help Your Heart Health?**\
