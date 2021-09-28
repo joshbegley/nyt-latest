@@ -8,7 +8,7 @@ https://nytimes.com/2021/09/28/us/politics/debt-ceiling-democrats-republicans-hi
 
 **The World’s Deadliest Bird Was Raised by People 18,000 Years Ago**\
 `Researchers studying ancient cassowary egg shells in New Guinea found signs that the sharp-taloned bird was being domesticated.`\
-https://nytimes.com/2021/09/28/science/cassowary-eggs-raising.html?searchResultPosition=3
+https://nytimes.com/2021/09/28/science/most-dangerous-bird-cassowary.html?searchResultPosition=3
 
 **Navient, with 6 million borrowers, asks to stop servicing federal student loans.**\
 `Navient is the second major federal student loan servicer to ask to get out of the business. FedLoan said in July that it wanted out.`\
