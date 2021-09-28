@@ -1,36 +1,36 @@
+**In Atlanta, Fear of Violent Crime Creates Opportunity for a Polarizing Politician**\
+`Kasim Reed, the former mayor whose administration was marked by corruption scandals, is running for another term, promising to restore public safety.`\
+https://nytimes.com/2021/09/28/us/atlanta-mayoral-election-kasim-reed.html?searchResultPosition=1
+
 **Bob Moore, an Architect of the Nashville Sound, Dies at 88**\
 `He played bass on thousands of popular recordings, helping to create the uncluttered style that came to characterize the country music of the 1950s and ’60s.`\
-https://nytimes.com/2021/09/28/arts/music/bob-moore-dead.html?searchResultPosition=1
+https://nytimes.com/2021/09/28/arts/music/bob-moore-dead.html?searchResultPosition=2
 
 **Alemayehu Eshete, Singer Known as the ‘Abyssinian Elvis,’ Dies at 80**\
 `He became a swaggering star in the late 1960s, when Addis Ababa experienced a golden age of night life and music. Decades later, he was rediscovered.`\
-https://nytimes.com/2021/09/28/arts/music/alemayehu-eshete-dead.html?searchResultPosition=2
+https://nytimes.com/2021/09/28/arts/music/alemayehu-eshete-dead.html?searchResultPosition=3
 
 **George Malkemus, Who Pushed Manolos to New Heights, Dies at 67**\
 `He successfully marketed Manolo Blahnik’s extravagantly heeled confections. Then a television character named Carrie Bradshaw brandished a pair in “Sex and the City.”`\
-https://nytimes.com/2021/09/28/fashion/george-malkemus-dead.html?searchResultPosition=4
+https://nytimes.com/2021/09/28/fashion/george-malkemus-dead.html?searchResultPosition=5
 
 **Can a Low-Carb Diet Help Your Heart Health?**\
 `Overweight people who ate fewer carbohydrates and increased their fat intake had significant improvements in their cardiovascular disease risk factors.`\
-https://nytimes.com/2021/09/28/well/eat/low-carb-diet-heart-health.html?searchResultPosition=5
+https://nytimes.com/2021/09/28/well/eat/low-carb-diet-heart-health.html?searchResultPosition=6
 
 **Ego Nwodim Used to Be Obsessed With Jay-Z. Now She Is Again**\
 `The ‘S.N.L.’ comedian talked about navigating life with ‘The Four Agreements’ and why “The Town” will always be her favorite movie.`\
-https://nytimes.com/2021/09/28/arts/television/ego-nwodim.html?searchResultPosition=6
+https://nytimes.com/2021/09/28/arts/television/ego-nwodim.html?searchResultPosition=7
 
 **Suspect in Atlanta Spa Shootings Pleads Not Guilty**\
 `Robert Aaron Long, who faces death penalty for a shooting rampage at a string of spas in the Atlanta area, pleaded not guilty to four murder charges. He had previously pleaded guilty to other charges in Cherokee County, where the shooting spree began.`\
-https://nytimes.com/video/us/100000007997756/atlanta-spa-shooter-arraignment.html?searchResultPosition=7
+https://nytimes.com/video/us/100000007997756/atlanta-spa-shooter-arraignment.html?searchResultPosition=8
 
 **Your Wednesday Briefing**\
 `Tough questions for Gen. Milley.`\
-https://nytimes.com/2021/09/28/briefing/milley-testimony-afghanistan-china-evergrande.html?searchResultPosition=8
+https://nytimes.com/2021/09/28/briefing/milley-testimony-afghanistan-china-evergrande.html?searchResultPosition=9
 
 **A Brexit-Weary Britain Finds Itself in a New Crisis With Brexit Overtones**\
 `The government has blamed problems like food shortages on the virus. With the pandemic waning, the focus in the fuel crisis is shifting to Britain’s exit from the E.U.`\
-https://nytimes.com/2021/09/28/world/europe/brexit-britain-fuel-johnson.html?searchResultPosition=9
-
-**The Kitchen Has Evolved. Here’s How One Designer Blends Family and Function**\
-`Interior designer Sarah Robertson gives an inside look into how she designs her kitchen space to make room for family, friends and working from home. `\
-https://nytimes.com/paidpost/samsung-dacor/samsung-dacor/the-kitchen-has-evolved-heres-how-one-designer-blends-family-and-function.html?searchResultPosition=10
+https://nytimes.com/2021/09/28/world/europe/brexit-britain-fuel-johnson.html?searchResultPosition=10
 
