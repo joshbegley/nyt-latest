@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000007998293/britain-fuel-shortage.htm
 
 **How the Huawei Case Raised Fears of ‘Hostage Diplomacy’ by China**\
 `Critics of the Justice Department deal to free Huawei executive Meng Wanzhou say it could blunt tools like sanctions and prosecutions.`\
-https://nytimes.com/2021/09/28/us/politics/huawei-meng-wanzhou-hostage-diplomacy-china.html?searchResultPosition=2
+https://nytimes.com/2021/09/28/us/politics/huawei-meng-wanzhou.html?searchResultPosition=2
 
 **‘No Time to Die’: What the Critics Are Saying**\
 `After a star-studded premiere in London, this  much-delayed Bond film is drawing positive early reviews.`\
