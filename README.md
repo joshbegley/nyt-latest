@@ -7,7 +7,7 @@ https://nytimes.com/video/world/europe/100000007998293/britain-fuel-shortage.htm
 https://nytimes.com/2021/09/28/us/politics/huawei-meng-wanzhou.html?searchResultPosition=2
 
 **‘No Time to Die’: What the Critics Are Saying**\
-`After a star-studded premiere in London, this  much-delayed Bond film is drawing positive early reviews.`\
+`After a star-studded premiere in London, this much-delayed Bond film is drawing positive early reviews.`\
 https://nytimes.com/2021/09/28/movies/bond-movie-review-no-time-to-die-reactions.html?searchResultPosition=3
 
 **LeBron James Laughs at Your ‘Old’ Lakers Memes. After His Nap.**\
