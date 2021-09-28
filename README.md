@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/28/opinion/liz-cheney-democrats-democracy.html?searchResultPosition=1
 
 **A 12-Team Playoff Isn’t a Done Deal. Math and History Suggest a ‘Yes’ Looms.**\
-`If the College Football Playoff field triples, the competition will likely become more lucrative than the Division I men’s basketball tournament.`\
+`If the College Football Playoff field triples, the competition will most likely become more lucrative than the Division I men’s basketball tournament.`\
 https://nytimes.com/2021/09/28/sports/ncaafootball/college-football-playoff-expansion.html?searchResultPosition=2
 
 **What’s Missing from the Conversation about Systemic Racism**\
