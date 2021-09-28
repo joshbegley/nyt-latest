@@ -29,7 +29,7 @@ https://nytimes.com/2021/09/28/business/economy/pandemic-unemployment-feedback.h
 
 **German Election Leaves Merkel’s Conservatives in Disarray**\
 `Sunday’s defeat has revealed a gasping conservative party. But what that means for Germany’s future is not clear as traditional left-right politics are scrambled.`\
-https://nytimes.com/2021/09/28/world/europe/germany-election-cdu-laschet-merkel.html?searchResultPosition=8
+https://nytimes.com/2021/09/28/world/europe/germany-election-merkel.html?searchResultPosition=8
 
 **What to Know About Evergrande**\
 `Evergrande, China's largest developer for two decades, amassed $300 billion in debt. A messy collapse could hit property prices and household wealth.`\
