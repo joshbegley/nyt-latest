@@ -30,8 +30,8 @@ https://nytimes.com/2021/09/28/us/california-rental-assistance.html?searchResult
 `An excerpt from “Cloud Cuckoo Land,” by Anthony Doerr`\
 https://nytimes.com/2021/09/28/books/review/cloud-cuckoo-land-by-anthony-doerr-an-excerpt.html?searchResultPosition=8
 
-**The end of the war in Afghanistan will come under scrutiny as military leaders appear before lawmakers.**\
-`Tuesday’s appearance by Defense Secretary Lloyd J. Austin III, Gen. Mark A. Milley and Gen. Kenneth F. McKenzie, Jr. is the start of back-to-back Senate and House hearings.`\
+**Milley and defense officials to face questions about actions during Trump’s term and the end of the Afghan war.**\
+`Tuesday’s appearance by Defense Secretary Lloyd J. Austin III and Gen. Mark A. Milley is the start of back-to-back Senate and House hearings.`\
 https://nytimes.com/2021/09/28/us/politics/milley-austin-afghanistan-war.html?searchResultPosition=9
 
 **Weekly News Quiz for Students: Tony Awards, Germany's Election, Cryptocurrency Crackdown**\
