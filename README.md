@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000007997286/milley-trump-pelosi-china-call-nuclear-weapons.html?searchResultPosition=1
 
 **MacArthur Foundation Announces 2021 ‘Genius’ Grant Winners**\
-`This year’s 25 winners include Ibram X. Kendi, who wrote “How to Be an Antiracist,” the poet Hanif Abdurraqib and the writer and curator Nicole Fleetwood. The awards comes with prestige — and $625,000.`\
+`This year’s 25 winners include Ibram X. Kendi, who wrote “How to Be an Antiracist,” the poet Hanif Abdurraqib and the writer and curator Nicole Fleetwood. The awards come with prestige — and $625,000.`\
 https://nytimes.com/2021/09/28/arts/macarthur-foundation-announces-2021-genius-grant-winners.html?searchResultPosition=2
 
 **The Magic of Missoni**\
