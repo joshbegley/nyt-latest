@@ -11,7 +11,7 @@ https://nytimes.com/2021/09/28/health/covid-delta-variant-vaccines-survey.html?s
 https://nytimes.com/2021/09/28/style/paris-fashion-week-marine-serre-silverware-jewelry.html?searchResultPosition=3
 
 **Yellen and Powell warn that the Delta variant is slowing the recovery.**\
-`America’s two top economic policymakers will warn lawmakers on Tuesday that the Delta variant of the coronavirus has slowed the economic recovery but will convey optimism about the economy’s overall trajectory, according to prepared remarks.`\
+`The Treasury secretary and the Federal Reserve chair prepared remarks ahead of their testimony today to the Senate Banking Committee.`\
 https://nytimes.com/2021/09/28/business/economy/yellen-powell-senate.html?searchResultPosition=4
 
 **The Owner of The Mysterious Bookshop Built His Dream House**\
