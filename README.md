@@ -18,7 +18,7 @@ https://nytimes.com/2021/09/27/opinion/rbg-aclu-abortion.html?searchResultPositi
 `The complaint by a federal agency followed several other legal actions taken against the game maker, which has been accused of sexual harassment and discrimination.`\
 https://nytimes.com/2021/09/27/technology/activision-blizzard-eeoc-settlement.html?searchResultPosition=6
 
-**Latest Spat for Miami’s Top Cop: Comparing City Leaders to Cuban Dictators**\
+**Miami’s Embattled Top Cop Compared City Leaders to Cuban Dictators**\
 `Chief Art Acevedo was a flashy hire when he arrived in Miami six months ago. Now his job is in peril after a series of clashes with city commissioners.`\
 https://nytimes.com/2021/09/27/us/miami-police-chief-art-acevedo.html?searchResultPosition=7
 
