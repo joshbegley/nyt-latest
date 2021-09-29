@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/29/style/donottouchmyclothes-afghan-women-protest-ta
 
 **Out to Sea: On a Floating Wind Farm**\
 `The photographer Andrew Testa and I recently visited a floating wind farm off a fishing port in northeast Scotland. Floating turbines are a new frontier in the fast-growing offshore wind industry.`\
-https://nytimes.com/interactive/2021/09/29/business/energy-environment/29windfloat.html?searchResultPosition=3
+https://nytimes.com/interactive/2021/09/29/business/energy-environment/scotland-wind-energy.html?searchResultPosition=3
 
 **Daintree Forest in Australia Is Returned to Indigenous Owners**\
 `The rainforest is among nearly 400,000 acres of land in northeast Australia that were handed back on Wednesday to Aboriginal people who have lived in the region for thousands of years.`\
