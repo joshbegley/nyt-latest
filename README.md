@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/29/sports/football/mac-jones-nfl-rookie-quarterbacks
 
 **Protected Too Late: U.S. Officials Report More Than 20 Extinctions**\
 `The animals and one plant had been listed as endangered species. Their stories hold lessons about a growing global biodiversity crisis.`\
-https://nytimes.com/2021/09/28/climate/endangered-species-extinct.html?searchResultPosition=2
+https://nytimes.com/2021/09/28/climate/endangered-animals-extinct.html?searchResultPosition=2
 
 **W.H.O. Workers Sexually Abused Women During Ebola Mission in Congo, Inquiry Finds**\
 `A commission appointed by the health agency found that women and girls had been promised jobs in exchange for relationships or had been sexually exploited in order to keep jobs.`\
