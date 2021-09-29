@@ -12,7 +12,7 @@ https://nytimes.com/2021/09/29/arts/music/britney-spears-fans-conservatorship.ht
 
 **Health officials are buying millions of vaccines for Latin America.**\
 `The Pan American Health Organization is working to address inequities in vaccine availability by offering vaccines for sale to countries in need.`\
-https://nytimes.com/2021/09/29/world/americas/health-officials-are-buying-millions-of-vaccines-for-latin-america.html?searchResultPosition=4
+https://nytimes.com/2021/09/29/world/americas/vaccines-latin-america.html?searchResultPosition=4
 
 **U.S.A. Bobsled and Skeleton Is Sued Over Brain Injuries**\
 `William Person, who competed from 1999 to 2007, wants to lead a class of plaintiffs seeking compensation for health problems he says were caused by years of sledding.`\
