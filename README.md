@@ -1,40 +1,40 @@
+**Klete Keller, a 3-Time Olympian, Pleads Guilty in Capitol Riot Case**\
+`Keller, 39, faces a prison sentence of up to 20 years, but the first Capitol rioter to plead guilty to the same charge was sentenced to eight months.`\
+https://nytimes.com/2021/09/29/sports/olympics/klete-keller-pleads-guilty-capitol-riot.html?searchResultPosition=1
+
 **Labor Memo Amounts to New Stance From Feds Against the N.C.A.A.**\
 `The top lawyer at the National Labor Relations Board signaled that private universities should not treat those who compete in college sports as “mere student athletes.”`\
-https://nytimes.com/2021/09/29/sports/ncaafootball/ncaa-labor-memo-student-athletes-unionize.html?searchResultPosition=1
+https://nytimes.com/2021/09/29/sports/ncaafootball/ncaa-labor-memo-student-athletes-unionize.html?searchResultPosition=2
 
 **Greyhound Agrees to Pay $2.2 Million Over Immigration Sweeps on Buses**\
 `The settlement will provide restitution to passengers who were detained, arrested or deported after immigration agents conducted warrantless searches on buses, Washington State’s attorney general said.`\
-https://nytimes.com/2021/09/29/us/greyhound-lawsuit-immigration.html?searchResultPosition=2
+https://nytimes.com/2021/09/29/us/greyhound-lawsuit-immigration.html?searchResultPosition=3
 
 **How Accurate Are At-Home Covid Tests?**\
 `If you test positive in an at-home Covid test, you’re very likely carrying the virus.`\
-https://nytimes.com/2021/09/29/health/at-home-covid-tests-accuracy.html?searchResultPosition=3
+https://nytimes.com/2021/09/29/health/at-home-covid-tests-accuracy.html?searchResultPosition=4
 
 **Lonnie Smith, Soulful Jazz Organist, Is Dead at 79**\
 `Adept at blending the sophistication of jazz with the earthy appeal of rhythm and blues, he was later widely sampled by hip-hop artists.`\
-https://nytimes.com/2021/09/29/arts/music/lonnie-smith-dead.html?searchResultPosition=4
+https://nytimes.com/2021/09/29/arts/music/lonnie-smith-dead.html?searchResultPosition=5
 
 **‘The Many Saints of Newark’ Review: The Best Really Is Over**\
 `In the movie prequel to “The Sopranos,” Tony returns as a child who learns to navigate his families on a difficult road to mob power.`\
-https://nytimes.com/2021/09/29/movies/the-many-saints-of-newark-review.html?searchResultPosition=5
+https://nytimes.com/2021/09/29/movies/the-many-saints-of-newark-review.html?searchResultPosition=6
 
 **Amazon settles with activist workers who say they were illegally fired.**\
 `The two women said they had been fired for speaking out. The company said they had repeatedly flouted its employee policies.`\
-https://nytimes.com/2021/09/29/technology/amazon-fired-workers-settlement.html?searchResultPosition=6
+https://nytimes.com/2021/09/29/technology/amazon-fired-workers-settlement.html?searchResultPosition=7
 
 **Swimming in an Uncertain Sea**\
 `The underwater filmmaker Ron Elliott describes what he’s learned from his encounters with sharks near the Farallon Islands.`\
-https://nytimes.com/2021/09/29/travel/farallon-islands-great-white-sharks.html?searchResultPosition=7
+https://nytimes.com/2021/09/29/travel/farallon-islands-great-white-sharks.html?searchResultPosition=8
 
 **Coronavirus Briefing: What Happened Today**\
 `California’s strict mandates.`\
-https://nytimes.com/2021/09/29/us/coronavirus-today-california-vaccine-mandates.html?searchResultPosition=8
+https://nytimes.com/2021/09/29/us/coronavirus-today-california-vaccine-mandates.html?searchResultPosition=9
 
 **Congress, Britney Spears, James Bond: Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/09/29/briefing/congress-vaccine-mandates-james-bond.html?searchResultPosition=9
-
-**Couple Celebrating 50th Anniversary Died in Amtrak Derailment**\
-`Donald and Marjorie Varnadoe of Georgia were traveling cross-country when a train derailed in Montana on Saturday. Zach Schneider, a computer scientist from Illinois, also was killed.`\
-https://nytimes.com/2021/09/29/us/amtrak-derailment-montana-victims.html?searchResultPosition=10
+https://nytimes.com/2021/09/29/briefing/congress-vaccine-mandates-james-bond.html?searchResultPosition=10
 
