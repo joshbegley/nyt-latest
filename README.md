@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/29/world/europe/france-racism-valeurs-actuelles.html
 `Dr. Bassett ran New York City’s health department with acclaim through a series of crises.`\
 https://nytimes.com/2021/09/29/nyregion/mary-bassett-new-york-health-department.html?searchResultPosition=3
 
-**‘No Time to Die’ Review: His Word is His Bond**\
+**‘No Time to Die’ Review: His Word Is His Bond**\
 `The 25th episode in the venerable franchise — and Daniel Craig’s last as 007 — finds its hero in a somber mood.`\
 https://nytimes.com/2021/09/29/movies/no-time-to-die-review.html?searchResultPosition=4
 
