@@ -32,5 +32,5 @@ https://nytimes.com/2021/09/29/world/europe/france-racism-valeurs-actuelles.html
 
 **Gov. Hochul chooses Mary Bassett to lead N.Y.’s health department.**\
 `Dr. Bassett ran New York City’s health department with acclaim through a series of crises.`\
-https://nytimes.com/2021/09/29/nyregion/mary-bassett-new-york-health-department.html?searchResultPosition=10
+https://nytimes.com/2021/09/29/nyregion/hochul-mary-bassett-new-york-health-department.html?searchResultPosition=10
 
