@@ -11,7 +11,7 @@ https://nytimes.com/2021/09/29/us/politics/biden-aids-activists-covid-vaccine.ht
 https://nytimes.com/2021/09/29/sports/olympics/klete-keller-pleads-guilty-capitol-riot.html?searchResultPosition=3
 
 **Labor Memo Amounts to New Stance From Feds Against the N.C.A.A.**\
-`The top lawyer at the National Labor Relations Board signaled that private universities should not treat those who compete in college sports as “mere student athletes.”`\
+`The top lawyer at the National Labor Relations Board signaled that private universities should not treat those who compete in college sports as “mere ‘student-athletes.’”`\
 https://nytimes.com/2021/09/29/sports/ncaafootball/ncaa-labor-memo-student-athletes-unionize.html?searchResultPosition=4
 
 **Greyhound Agrees to Pay $2.2 Million Over Immigration Sweeps on Buses**\
