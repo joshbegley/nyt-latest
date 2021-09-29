@@ -1,6 +1,6 @@
 **How to Escape Your Car in a Flood**\
 `Only a foot or two of water can sweep away everything from sedans to trucks. Experts urge drivers to avoid flooded crossings, and to remember a few steps in a crisis.`\
-https://nytimes.com/2021/09/29/us/how-to-avoid-car-drowning.html?searchResultPosition=1
+https://nytimes.com/article/how-to-avoid-car-drowning.html?searchResultPosition=1
 
 **$1.8 Million Homes in Oklahoma, South Carolina and Tennessee**\
 `A Colonial Revival home in Oklahoma City, a historic single house in Charleston and a 1907 bungalow in Nashville.`\
