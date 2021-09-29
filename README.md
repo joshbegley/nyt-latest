@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/29/world/asia/who-is-fumio-kishida.html?searchResult
 
 **Talk of Iraq Recognizing Israel Prompts Threats of Arrest or Death**\
 `A conference promoting normalization, organized by a little-known American group, prompted a furor, pointing to the volatility and danger in Iraqi politics.`\
-https://nytimes.com/2021/09/29/world/middleeast/talk-of-iraq-recognizing-israel-prompts-threats-of-arrest-or-death.html?searchResultPosition=8
+https://nytimes.com/2021/09/29/world/middleeast/iraq-recognizing-israel.html?searchResultPosition=8
 
 **Brooklyn Bishop to Retire After Vatican Clears Him of Child Sexual Abuse**\
 `The bishop, Nicholas DiMarzio, has led the Roman Catholic Diocese of Brooklyn for 18 years. Robert Brennan, a Bronx native, will succeed him.`\
