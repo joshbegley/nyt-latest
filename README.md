@@ -23,7 +23,7 @@ https://nytimes.com/2021/09/29/theater/designing-women-play-arkansas.html?search
 https://nytimes.com/2021/09/29/style/dior-saint-laurent-paris-fashion-week.html?searchResultPosition=6
 
 **United Airlines is firing employees over noncompliance with its vaccine mandate.**\
-`About 600 people, or 1 percent of the airline’s work force, will lose their jobs. The airline said it would work with employees who decide to get vaccinated after the company deadline.`\
+`About 600 people out of the company’s U.S. work force of 67,000 will lose their jobs. The airline said it would work with employees who decide to get vaccinated after the company deadline.`\
 https://nytimes.com/2021/09/29/business/united-airlines-vaccine-mandate.html?searchResultPosition=7
 
 **House Hunting in Finland: Log-Cabin Dreams Come to Life for $1.4 Million**\
