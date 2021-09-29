@@ -22,19 +22,19 @@ https://nytimes.com/2021/09/29/briefing/democrats-agenda-biden.html?searchResult
 `The three top U.S. defense officials have a second day of congressional testimony on Wednesday, this time in front of the House Armed Services Committee.`\
 https://nytimes.com/2021/09/29/us/politics/house-hearing-milley-austin-afghanistan.html?searchResultPosition=6
 
+**U.S. stock futures signal a rebound as bond yields fall back.**\
+`The S&P 500 is expected to open stronger after dropping 2 percent on Tuesday, the most since May.`\
+https://nytimes.com/2021/09/29/business/us-stock-market.html?searchResultPosition=7
+
 **Controlling Britney Spears**\
 `As a court prepares to rule on the future of the star’s conservatorship, we look at new details about how invasive the arrangement is and why so few people knew the full story.`\
-https://nytimes.com/2021/09/29/podcasts/the-daily/britney-spears-conservatorship-jamie-spears.html?searchResultPosition=7
+https://nytimes.com/2021/09/29/podcasts/the-daily/britney-spears-conservatorship-jamie-spears.html?searchResultPosition=8
 
 **Selling Homes Privately, via ‘Pocket Listings,’ Is on the Upswing**\
 `Some brokers say houses that are not posted publicly give buyers a chance to get into the market, others say the practice violates fair housing laws.`\
-https://nytimes.com/2021/09/29/realestate/private-home-sales.html?searchResultPosition=8
+https://nytimes.com/2021/09/29/realestate/private-home-sales.html?searchResultPosition=9
 
 **They’re White, Male and on Their Pedestals, for the Time Being**\
 `A new study financed by the Mellon Foundation will help ensure that America’s future monuments honor a broader and more diverse range of stories.`\
-https://nytimes.com/2021/09/29/arts/design/National-Monument-Audit.html?searchResultPosition=9
-
-**Band Camp, Childhood Memories and a Multimedia Contest**\
-`Each week we spotlight five accessible activities for a broad range of readers and writers based on reporting in The New York Times.`\
-https://nytimes.com/2021/09/29/learning/band-camp-childhood-memories-and-a-multimedia-contest.html?searchResultPosition=10
+https://nytimes.com/2021/09/29/arts/design/National-Monument-Audit.html?searchResultPosition=10
 
