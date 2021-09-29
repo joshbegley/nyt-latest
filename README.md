@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/100000008000338/covid-vaccine-pregnancy.html?searchResultPosition=1
 
 **Panel Subpoenas 11 in Capitol Riot Inquiry, Eyeing Jan. 6 Rally Planners**\
-`It was the second round of subpoenas issued by the House select committee investigating the attack, signaling that it is moving aggressively to go after crucial witnesses.`\
+`The second round of subpoenas issued by the House select committee investigating the attack signaled that it was moving aggressively to go after crucial witnesses.`\
 https://nytimes.com/2021/09/29/us/politics/capitol-riot-subpoenas.html?searchResultPosition=2
 
 **Activists take vaccine demands, and a mountain of fake bones, to the home of Biden’s chief of staff.**\
