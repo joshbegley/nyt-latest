@@ -1,4 +1,4 @@
-**A large share of Hispanic adults got vaccinated over the summer, a survey shows.**\
+**A large share of Hispanic adults in the U.S. got vaccinated over the summer, a survey shows.**\
 `The share of Hispanic people in the U.S. who reported receiving at least one dose of vaccine shot up from July to September, and now exceeds that of non-Hispanic white people.`\
 https://nytimes.com/2021/09/29/us/hispanic-coved-vaccinations.html?searchResultPosition=1
 
