@@ -7,7 +7,7 @@ https://nytimes.com/2021/09/29/opinion/letters/democrats-congress.html?searchRes
 https://nytimes.com/2021/09/29/arts/design/the-cool-and-the-cold-gropius-bau-berlin.html?searchResultPosition=4
 
 **Fumio Kishida Chosen to Lead Japan’s Ruling Party**\
-`Fumio Kishida, a former foreign minister, addressed supporters after being elected as the Liberal Democratic Party’s choice for Japan’s next prime minister. Japan’s parliament will hold a special session next week to officially select the new prime minster.`\
+`Fumio Kishida, a former foreign minister, addressed supporters after being elected as the Liberal Democratic Party’s choice for Japan’s next prime minister. Japan’s Parliament will hold a special session next week to officially select the new prime minster.`\
 https://nytimes.com/video/world/asia/100000007999291/japan-prime-minister-fumio-kishida.html?searchResultPosition=5
 
 **Review: After a Met Opera Milestone, ‘Boris’ Brings Another**\
