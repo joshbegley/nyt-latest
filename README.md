@@ -10,7 +10,7 @@ https://nytimes.com/2021/09/29/crosswords/spelling-bee-forum.html?searchResultPo
 `What do you think this image is saying?`\
 https://nytimes.com/2021/09/29/learning/twisting-track.html?searchResultPosition=3
 
-**Late Night Prods Trump with Colonoscopy Jokes**\
+**Late Night Hits Trump With Colonoscopy Jokes**\
 `A new book by a former White House press secretary said that the former president feared late night hosts would poke fun at him if he went under for the medical procedure.`\
 https://nytimes.com/2021/09/29/arts/television/late-night-trump-colonoscopy.html?searchResultPosition=4
 
