@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/30/health/covid-vaccine-disabilities.html?searchResu
 
 **3 Delicious Reasons to Quick Pickle an Onion**\
 `This homemade condiment adds a pop of acidity to comforting vegetarian dishes.`\
-https://nytimes.com/2021/09/30/dining/3-delicious-reasons-to-quick-pickle-an-onion.html?searchResultPosition=6
+https://nytimes.com/2021/09/30/dining/quick-pickled-onions.html?searchResultPosition=6
 
 **In ‘Afterlives,’ About Looted Art, Why Are the Victims an Afterthought?**\
 `The subject is one of the gravest topics in art history. I came for the lost stories of Jewish collectors. Where were they?`\
