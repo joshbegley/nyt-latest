@@ -26,15 +26,15 @@ https://nytimes.com/2021/09/30/sports/football/nfl-field-goal-record.html?search
 `Lithuania has enraged China by advising officials to scrap Chinese phones that it says contains censorship software, while cozying up to Taiwan and quitting a Chinese-led regional forum.`\
 https://nytimes.com/2021/09/30/world/europe/lithuania-china-disputes.html?searchResultPosition=7
 
+**Janet Yellen says she supports eliminating the debt limit.**\
+`“I believe it is very destructive to put the president and myself, as Treasury secretary, in a situation where we might be unable to pay the bills that result from those past decisions,” Ms. Yellen said Thursday.`\
+https://nytimes.com/2021/09/30/business/yellen-powell.html?searchResultPosition=8
+
 **Watch Live: Congress Votes on Spending Bill**\
 `Parts of the government that operate under the discretion of Congress’s annual spending process will run out of money if a stopgap spending bill does not pass.`\
-https://nytimes.com/video/us/politics/100000008001235/spending-bill-vote-live-video.html?searchResultPosition=8
+https://nytimes.com/video/us/politics/100000008001235/spending-bill-vote-live-video.html?searchResultPosition=9
 
 **Biden and Pelosi Attend Congressional Baseball Game**\
 `President Biden and Speaker Nancy Pelosi were seen cheering on the sideline and talking to players at the annual Congressional Baseball Game as they tried to salvage two crucial pieces of Mr. Biden’s domestic agenda.`\
-https://nytimes.com/video/us/politics/100000008001473/biden-pelosi-congressional-baseball-game.html?searchResultPosition=9
-
-**Sorry, Stephanie Grisham, You Are Not Redeemed**\
-`Telling the truth about the 45th president now doesn’t make up for enabling him then.`\
-https://nytimes.com/2021/09/30/opinion/stephanie-grisham-trump-book.html?searchResultPosition=10
+https://nytimes.com/video/us/politics/100000008001473/biden-pelosi-congressional-baseball-game.html?searchResultPosition=10
 
