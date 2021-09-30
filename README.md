@@ -1,28 +1,28 @@
+**Coronavirus Briefing: What Happened Today**\
+`Asia surpasses U.S. in vaccinations.`\
+https://nytimes.com/2021/09/30/us/coronavirus-today-asia-vaccinations.html?searchResultPosition=1
+
+**Lawmakers Back Changes at C.I.A. for Handling Mystery Health Episodes**\
+`Legislation approved by a House committee would also offer intelligence officials medical scans before transfer overseas to better diagnose Havana syndrome injuries.`\
+https://nytimes.com/2021/09/30/us/politics/havana-syndrome-house-intelligence-committee.html?searchResultPosition=2
+
+**Biden Guidelines Direct ICE to Focus on Immigrants Who Pose Safety Threat**\
+`The new priorities, which also give agents broad case-by-case discretion, attempt to undo the indiscriminate immigration arrest policies of the Trump administration.`\
+https://nytimes.com/2021/09/30/us/politics/biden-ice-immigration-guidelines.html?searchResultPosition=4
+
+**Your Friday Briefing**\
+`Asia is speeding ahead on vaccinations.`\
+https://nytimes.com/2021/09/30/briefing/asia-vaccination-progress-biden-infrastructure.html?searchResultPosition=5
+
+**The Many Layers of Lorna Simpson**\
+`With her incisive, boundary-breaking works, the multidisciplinary artist has been exploring the nature of identity, and challenging assumptions about art-making, since the 1980s.`\
+https://nytimes.com/2021/09/30/t-magazine/lorna-simpson-art.html?searchResultPosition=6
+
 **A survey finds more U.S. parents say they’re willing to vaccinate their children.**\
 `The shift occurred as the schools reopened amid the Delta variant wave. But the share of parents who were adamantly opposed has barely budged.`\
-https://nytimes.com/2021/09/30/health/children-vaccine-masks-poll.html?searchResultPosition=3
+https://nytimes.com/2021/09/30/health/children-vaccine-masks-poll.html?searchResultPosition=9
 
 **A study finds no signs of trouble in getting flu and Covid shots at the same time.**\
 `A British clinical trial supports the advice of U.S. health authorities and is welcome news as flu season begins.`\
-https://nytimes.com/2021/09/30/health/flu-shot-covid-vaccine.html?searchResultPosition=4
-
-**5 Things to Do This Weekend**\
-`A roundup of highlights from the current Weekend section, including the review of "The Many Saints of Newark."`\
-https://nytimes.com/interactive/2021/09/30/arts/weekend-editors-picks-many-saints-of-newark.html?searchResultPosition=5
-
-**A Congresswoman’s Story: Raped at 17, ‘I Chose to Have an Abortion’**\
-`With the Supreme Court set to consider a high-stakes abortion case, three Democratic representatives and one Republican shared personal stories.`\
-https://nytimes.com/2021/09/30/us/politics/congresswomen-testify-abortion-house-panel.html?searchResultPosition=6
-
-**We’re Living Through One of the Most Explosive Extinction Episodes Ever**\
-`The growing damage to the world’s biodiversity presents dire risks to human societies.`\
-https://nytimes.com/2021/09/30/opinion/animal-extinction.html?searchResultPosition=7
-
-**Why Families of Missing Women Often Must Lead the Search Themselves**\
-`The media was fascinated with the disappearance of Gabrielle Petito. But the families of many women who go missing, especially women of color, struggle for attention.`\
-https://nytimes.com/2021/09/30/us/missing-girls-women-black-latina-indigenous.html?searchResultPosition=8
-
-**Carlisle Floyd, Whose Operas Spun Fables of the South, Dies at 95**\
-`His celebrated works drew from the musical traditions of revival meetings and country hoedowns, telling stories of intolerance.`\
-https://nytimes.com/2021/09/30/arts/music/carlisle-floyd-dead.html?searchResultPosition=10
+https://nytimes.com/2021/09/30/health/flu-shot-covid-vaccine.html?searchResultPosition=10
 
