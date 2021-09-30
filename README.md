@@ -11,8 +11,8 @@ https://nytimes.com/2021/09/30/us/supreme-court-ted-cruz.html?searchResultPositi
 https://nytimes.com/2021/09/30/nyregion/nj-school-district-covid-quarantine.html?searchResultPosition=3
 
 **The Senate passes a short-term spending bill to keep the government open. It heads to the House next.**\
-`By Emily Cochrane`\
-https://nytimes.com/2021/09/30/us/politics/short-term-spending.html?searchResultPosition=4
+`The legislation passed 65 to 35, and now heads to the House, where it is also expected to be approved, clearing it for President Biden’s signature.`\
+https://nytimes.com/2021/09/30/us/politics/senate-spending-bill-government-shutdown.html?searchResultPosition=4
 
 **Head of Metropolitan Police Condemns Murder of Sarah Everard**\
 `The commissioner of the Metropolitan Police in London said she was committed to improving safety for women after the killing of Sarah Everard by a police officer renewed outrage over how cases of violence against women are handled.`\
