@@ -11,7 +11,7 @@ https://nytimes.com/2021/09/30/health/flu-shot-covid-vaccine.html?searchResultPo
 https://nytimes.com/interactive/2021/09/30/arts/weekend-editors-picks-many-saints-of-newark.html?searchResultPosition=5
 
 **A Congresswoman’s Story: Raped at 17, ‘I Chose to Have an Abortion’**\
-`With the right to abortion under threat after a Supreme Court setback, three Democratic members of Congress shared  stories of terminating a pregnancy while a Republican spoke of her mother’s decision not to.`\
+`With the Supreme Court set to consider a high-stakes abortion case, three Democratic representatives and one Republican shared personal stories.`\
 https://nytimes.com/2021/09/30/us/politics/congresswomen-testify-abortion-house-panel.html?searchResultPosition=6
 
 **We’re Living Through One of the Most Explosive Extinction Episodes Ever**\
