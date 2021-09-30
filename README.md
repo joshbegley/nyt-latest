@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Answers to Questions About the Texas Abortion Law’**\
-`Students will learn about a new Texas law that effectively bans abortion, then share their opinions about the status of abortion rights right now.`\
-https://nytimes.com/2021/09/30/learning/lesson-of-the-day-answers-to-questions-about-the-texas-abortion-law.html?searchResultPosition=1
+**Could You Pass the C.F.A. Exam?**\
+`On average, less than half of the people who take the extremely difficult C.F.A. test pass all levels. How would you do? `\
+https://nytimes.com/interactive/2021/09/30/business/cfa-test-questions.html?searchResultPosition=1
 
-**Stephen Colbert Channels Willy Wonka to Explain Congress**\
-`The “Late Show” host broke into song to tell viewers about budget reconciliation and other works of “legislative wonder.”`\
-https://nytimes.com/2021/09/30/arts/television/colbert-willy-wonka-congress.html?searchResultPosition=2
+**Biden Shouldn’t Count on the Submarine Deal to Best China**\
+`As experts hail the AUKUS agreement, the Biden administration should ensure it does not reflect a self-defeating concept of great power competition.`\
+https://nytimes.com/2021/09/30/opinion/aukus-china-us-australia-competition.html?searchResultPosition=2
 
-**How Asia, Once a Vaccination Laggard, Is Revving Up Inoculations**\
-`Several countries are now on track to surpass the United States in fully vaccinating their populations, lifting hopes of a more permanent return to normality.`\
-https://nytimes.com/2021/09/30/business/economy/asia-covid-vaccinations.html?searchResultPosition=3
+**Ladies and Gentlemen, Daniel Craig**\
+`At long last, the star of the James Bond franchise bids farewell to 007 with “No Time to Die” (and learns for the first time about his life as an internet meme).`\
+https://nytimes.com/2021/09/30/movies/daniel-craig-no-time-to-die.html?searchResultPosition=3
 
-**Thousands of Haitians Are Being Allowed Into the U.S. But What Comes Next?**\
-`Members of a Haitian church in Philadelphia opened their hearts and pocketbooks to sponsor a family of immigrants. Then came another, and another.`\
-https://nytimes.com/2021/09/30/us/haitian-migrants.html?searchResultPosition=4
+**De Blasio Vowed to Make City Streets Safer. They’ve Turned More Deadly.**\
+`Traffic deaths have surged this year to their highest level in nearly a decade. Officials blame an excess of reckless driving, but critics say the city has failed to make streets safer.`\
+https://nytimes.com/2021/09/30/nyregion/traffic-deaths-nyc.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/09/30/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Taavo Somer Can Make Anything Cool, Even Golf**\
+`The creator of Freemans Sporting Club, who helped define the ye olde aesthetic of the early aughts, opens a country club in the Hudson Valley.`\
+https://nytimes.com/2021/09/30/style/taavo-somer-inness.html?searchResultPosition=5
 
-**Thierry Mugler Returns to Paris With ‘Couturissime’**\
-`The Musée des Arts Décoratifs is the latest stop for an exhibition of more than 150 of the designer’s eye-popping creations.`\
-https://nytimes.com/2021/09/30/style/thierry-mugler-couturissime-exhibition-paris.html?searchResultPosition=6
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/09/30/arts/things-to-do-this-weekend.html?searchResultPosition=6
 
-**Word of the Day: belie**\
-`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/09/30/learning/word-of-the-day-belie.html?searchResultPosition=7
+**How My Desire to Run Again Pushed Me To Walk**\
+`After recovering from a traumatic brain injury, a writer seeks to reclaim the mental transcendence that comes from running.`\
+https://nytimes.com/2021/09/30/well/move/brain-injury-running-walk.html?searchResultPosition=7
 
-**N.F.L. Week 4 Predictions: Our Picks Against the Spread**\
-`Tom Brady faces Bill Belichick, the Rams and the Cardinals fight to stay undefeated, and the Browns’ pass rush travels to Minnesota to try to end Kirk Cousins’ interception-less streak.`\
-https://nytimes.com/2021/09/30/sports/football/nfl-week-4-predictions-picks.html?searchResultPosition=8
+**Why Write About Pop Music? ‘I Like When People Disagree About Stuff.’**\
+`Kelefa Sanneh hopes to start some arguments with his new book, “Major Labels,” which chronicles the past 50 years of rock, hip-hop, country and other musical genres.`\
+https://nytimes.com/2021/09/30/books/kelefa-sanneh-major-labels.html?searchResultPosition=8
 
-**Your Thursday Briefing**\
-`Division among Democrats.`\
-https://nytimes.com/2021/09/29/briefing/sarah-everard-democrats-biden-shutdown.html?searchResultPosition=9
+**70 Years Later, Bobby Thomson’s Homer Still Hurts**\
+`A die-hard Brooklyn Dodgers fan cut school with his buddies to attend what turned out to be one of the most crushing defeats in all sports. Isn’t it time to let it go?`\
+https://nytimes.com/2021/09/30/nyregion/70-years-later-bobby-thomsons-homer-still-hurts.html?searchResultPosition=9
 
-**Quotation of the Day: After E.U. Exit, Loss of Drivers Hits U.K. Hard**\
-`Quotation of the Day for Thursday, September 30, 2021.`\
-https://nytimes.com/2021/09/29/todayspaper/quotation-of-the-day-after-eu-exit-loss-of-drivers-hits-uk-hard.html?searchResultPosition=10
+**She Was Training for a Marathon. Suddenly, She Could Barely Walk.**\
+`What could cause so sudden a decline?`\
+https://nytimes.com/2021/09/30/magazine/diagnosis-burkitt-lymphoma.html?searchResultPosition=10
 
