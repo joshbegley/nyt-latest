@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/30/us/philanthropy-gender-girls-women.html?searchRes
 
 **Youth Vaping Declined Sharply for Second Year, New Data Show**\
 `Now that it has stopped selling most flavored pods, Juul has become far less popular with teens than brands offering disposable fruit- and candy-flavored devices.`\
-https://nytimes.com/2021/09/30/health/youth-vaping-declined-sharply-for-second-year-new-data-show.html?searchResultPosition=2
+https://nytimes.com/2021/09/30/health/youth-vaping-decline.html?searchResultPosition=2
 
 **People with disabilities have a tougher time getting Covid vaccines, the C.D.C. reports.**\
 `It is a stark signal of what the agency’s scientists said was a need for U.S. health officials to remove barriers to access.`\
