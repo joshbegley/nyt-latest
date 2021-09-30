@@ -1,5 +1,5 @@
-**Corey Lewandowski, Trump Adviser, Is Accused of Sexual Harassment**\
-`A donor to former President Donald J. Trump said that Mr. Lewandowski had made unwanted sexual advances and touched her inappropriately. Mr. Lewandowski did not comment on the allegations.`\
+**Trump Super PAC Removes Corey Lewandowski After Sexual Harassment Claim**\
+`The move came after a donor to former President Donald J. Trump said that Mr. Lewandowski had made unwanted sexual advances and touched her inappropriately.`\
 https://nytimes.com/2021/09/29/us/politics/corey-lewandowski-trump.html?searchResultPosition=1
 
 **Britney Spears’s Supporters Celebrate Court Ruling**\
