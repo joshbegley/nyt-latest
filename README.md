@@ -1,40 +1,40 @@
-**She Face-Planted Into Her Salad at the Country Club. Who Killed Her?**\
-`In “Mango, Mambo, and Murder,” a series debut from Raquel V. Reyes, a food anthropologist in Miami begins to investigate crimes.`\
-https://nytimes.com/2021/09/30/books/review/new-mystery-and-crime.html?searchResultPosition=1
+**A Ceramist Inspired by Folklore and the British Countryside**\
+`In Somerset, the artist Prue Piper has spent decades forging connections between her pottery, her garden and the myths entwined with the landscape.`\
+https://nytimes.com/2021/09/30/t-magazine/prue-piper-ceramics-art.html?searchResultPosition=1
 
-**The Democrats Who Might Block Biden’s Infrastructure Plan**\
-`A key vote on one of the president’s top priorities is approaching, but now members of his own party are threatening to block it. Here’s why.`\
-https://nytimes.com/2021/09/30/podcasts/the-daily/biden-infrastructure-plan.html?searchResultPosition=2
+**‘Coming Home in the Dark’ Review: No Picnic**\
+`A family outing attracts mysterious, menacing uninvited guests in this grinding New Zealand thriller.`\
+https://nytimes.com/2021/09/30/movies/coming-home-in-the-dark-review.html?searchResultPosition=2
 
-**The Right to Health**\
-`Immunization mandates aren’t new. One helped win the American Revolution.`\
-https://nytimes.com/2021/09/30/briefing/vaccine-mandate-covid.html?searchResultPosition=3
+**‘Titane’ Review: Auto Erotic**\
+`Julia Ducournau’s new film, a prizewinner at Cannes, is a grisly, philosophical thriller that puts the pedal to the metal.`\
+https://nytimes.com/2021/09/30/movies/titane-review.html?searchResultPosition=3
 
-**Yale Says Its Vinland Map, Once Called a Medieval Treasure, Is Fake**\
-`For decades, researchers at Yale and elsewhere have questioned the authenticity of a map that seemed to reflect Viking travels to North America. The school now says the case is closed.`\
-https://nytimes.com/2021/09/30/us/yale-vinland-map-fake.html?searchResultPosition=4
+**‘The Addams Family 2’ Review: Wednesday Goes West**\
+`America’s creepiest family takes a road trip in this animated sequel, though their antics are far more kooky than spooky.`\
+https://nytimes.com/2021/09/30/movies/the-addams-family-2-review.html?searchResultPosition=4
 
-**Vocabulary in Context: Slacklining**\
-`Test your vocabulary and reading comprehension with this quiz based on the Times article “A Walk in the Park, 3,000 Feet Up.”`\
-https://nytimes.com/interactive/2021/09/30/learning/30VocabQuizSlacklineLN.html?searchResultPosition=5
+**‘Enormous: The Gorge Story’ Review: A Musical Paradise**\
+`A loving documentary about a Pacific Northwest amphitheater, created by a long-ago natural catastrophe, that is a haven for concertgoers.`\
+https://nytimes.com/2021/09/30/movies/review-enormous-the-gorge-story.html?searchResultPosition=5
 
-**After Knife Attack, New Zealand Criminalizes Terror Plotting**\
-`A law passed Thursday makes planning a terrorist attack a crime, addressing a legal loophole weeks after an ISIS sympathizer stabbed people at a supermarket.`\
-https://nytimes.com/2021/09/30/world/asia/new-zealand-terror-knife.html?searchResultPosition=6
+**‘Falling for Figaro’ Review: When the Overtures Are Operatic**\
+`An American finance executive leaves behind her cushy life in favor of a musical career in this humdrum romance set in the Scottish Highlands.`\
+https://nytimes.com/2021/09/30/movies/falling-for-figaro-review.html?searchResultPosition=6
 
-**Ex-President Sarkozy Sentenced to Jail for Campaign Spending Violations**\
-`Nicolas Sarkozy was convicted of illegally financing his 2012 presidential bid by exceeding France’s strict electoral rules. He said he would appeal.`\
-https://nytimes.com/2021/09/30/world/europe/france-sarkozy-campaign-spending.html?searchResultPosition=7
+**‘Black as Night’ and ‘Bingo Hell’ Review: Marginalized Heroes**\
+`Two horror comedies that champion the downtrodden are part of the anthology series “Welcome to the Blumhouse,” streaming on Amazon.`\
+https://nytimes.com/2021/09/30/movies/black-as-night-bingo-hell-review.html?searchResultPosition=7
 
-**Young Women Set the Tone for a Paris Theater Season**\
-`The directors staging the most ambitious premieres are all female millennials.`\
-https://nytimes.com/2021/09/30/theater/women-set-tone-paris.html?searchResultPosition=8
+**‘Mayday’ Review: Misandry Is the Most Dangerous Game**\
+`A group of female insurgents hunt down weary men in this halfhearted, half-feminist fantasy from Karen Cinorre.`\
+https://nytimes.com/2021/09/30/movies/mayday-review.html?searchResultPosition=8
 
-**The Unofficial Start of the Governor’s Race**\
-`As Gov. Kathy Hochul revs up her fund-raising for next year's primary election, other New York Democrats are also making moves.`\
-https://nytimes.com/2021/09/30/nyregion/the-unofficial-start-of-the-governors-race.html?searchResultPosition=9
+**‘Old Henry’ Review: Can’t Keep Him Down on the Farm**\
+`Starring Tim Blake Nelson, the film tips its hat to classic westerns, even if it gets caught in their shadows.`\
+https://nytimes.com/2021/09/30/movies/old-henry-review.html?searchResultPosition=9
 
-**Weekly Health Quiz: Exercise, Alcohol and Low-Carb Diets**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2021/09/30/well/live/30healthquiz-09302021.html?searchResultPosition=10
+**‘Stop and Go’ Review: Pandemic Aside, Girls Just Want to Have Fun**\
+`This trite Covid-19-era comedy follows a pair of kooky sisters on a cross-country mission to save their grandmother from a nursing home overrun with cases.`\
+https://nytimes.com/2021/09/30/movies/stop-and-go-review.html?searchResultPosition=10
 
