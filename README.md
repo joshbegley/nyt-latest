@@ -8,7 +8,7 @@ https://nytimes.com/video/us/politics/100000008001473/biden-pelosi-congressional
 
 **Sorry, Stephanie Grisham, You Are Not Redeemed**\
 `Telling the truth about the 45th president now doesn’t make up for enabling him then.`\
-https://nytimes.com/2021/09/30/opinion/sorry-stephanie-grisham-you-are-not-redeemed.html?searchResultPosition=3
+https://nytimes.com/2021/09/30/opinion/stephanie-grisham-trump-book.html?searchResultPosition=3
 
 **With their agenda in the balance, Biden and Pelosi work the Congressional Baseball Game.**\
 `The game was a respite from partisan division and high drama on Capitol Hill, but talks continued from the stands and dugouts.`\
