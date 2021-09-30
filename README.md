@@ -1,40 +1,40 @@
+**Biden, Pelosi Attend Congressional Baseball Game**\
+`President Biden and Speaker Nancy Pelosi were seen cheering on the sideline and talking to players at the annual Congressional Baseball Game as they tried to salvage two crucial pieces of Mr. Biden’s domestic agenda.`\
+https://nytimes.com/video/us/politics/100000008001473/biden-pelosi-congressional-baseball-game.html?searchResultPosition=1
+
+**Sorry, Stephanie Grisham, You Are Not Redeemed**\
+`Telling the truth about the 45th president now doesn’t make up for enabling him then.`\
+https://nytimes.com/2021/09/30/opinion/sorry-stephanie-grisham-you-are-not-redeemed.html?searchResultPosition=2
+
 **With their agenda in the balance, Biden and Pelosi work the Congressional Baseball Game.**\
 `The game was a respite from partisan division and high drama on Capitol Hill, but talks continued from the stands and dugouts.`\
-https://nytimes.com/2021/09/30/us/politics/congressional-baseball-game.html?searchResultPosition=1
+https://nytimes.com/2021/09/30/us/politics/congressional-baseball-game.html?searchResultPosition=3
 
 **British program to cover pay ends after subsidizing nearly 12 million jobs.**\
 `But with a challenging winter ahead, the government has announced a new fund to help households pay for essentials like food and utility bills.`\
-https://nytimes.com/2021/09/30/business/britain-furlough-program-ends.html?searchResultPosition=2
+https://nytimes.com/2021/09/30/business/britain-furlough-program-ends.html?searchResultPosition=4
 
 **What’s in Our Queue? ‘Sex Education’ and More**\
 `I’m a general assignment reporter on The Times’s Culture desk. Here are five things I've been watching, reading and listening to.`\
-https://nytimes.com/interactive/2021/09/30/arts/editors-recommendations-sex-education.html?searchResultPosition=3
+https://nytimes.com/interactive/2021/09/30/arts/editors-recommendations-sex-education.html?searchResultPosition=5
 
 **Chicago’s brawny tabloid, The Sun-Times, may join a nonprofit group.**\
 `A deal is in the works that would merge the newspaper, the onetime home of Roger Ebert, with Chicago Public Media.`\
-https://nytimes.com/2021/09/30/business/chicago-sun-times-acquisition.html?searchResultPosition=4
+https://nytimes.com/2021/09/30/business/chicago-sun-times-acquisition.html?searchResultPosition=6
 
 **‘Karen Dalton: In My Own Time’ Review: An Elemental Musical Force**\
 `A documentary chronicles the turbulent life of a singer whose music made a substantial impression on New York’s 1960s folk scene and still resonates today.`\
-https://nytimes.com/2021/09/30/movies/karen-dalton-in-my-own-time-review.html?searchResultPosition=5
+https://nytimes.com/2021/09/30/movies/karen-dalton-in-my-own-time-review.html?searchResultPosition=7
 
 **Art Gallery Shows to See Right Now**\
 `“Alice Neel: The Early Years”; Diane Simpson’s enigmatic sculptures; and 17 artists explore the concept of space in “Convergent Evolutions.”`\
-https://nytimes.com/2021/09/30/arts/design/art-gallery-shows-to-see-right-now.html?searchResultPosition=6
+https://nytimes.com/2021/09/30/arts/design/art-gallery-shows-to-see-right-now.html?searchResultPosition=8
 
 **French and Russian Art on a ‘War and Peace’ Scale**\
 `The Russian Revolution split the Morozov collection, but a colossal diplomatic effort has brought it back together in Paris. This exhibition is legitimately historic.`\
-https://nytimes.com/2021/09/30/arts/design/morozov-collection-louis-vuitton-foundation.html?searchResultPosition=7
+https://nytimes.com/2021/09/30/arts/design/morozov-collection-louis-vuitton-foundation.html?searchResultPosition=9
 
 **What’s Going On in This Graph? | Oct. 6, 2021**\
 `What do you notice and wonder about Sunisa Lee’s Olympic balance beam routine?`\
-https://nytimes.com/2021/09/30/learning/whats-going-on-in-this-graph-oct-6-2021.html?searchResultPosition=8
-
-**Ruth Sullivan, Advocate for People With Autism, Dies at 97**\
-`After her son was found to be autistic, she started organizations to help children and adults. She also consulted on the making of the movie “Rain Man.”`\
-https://nytimes.com/2021/09/30/us/ruth-sullivan-dead.html?searchResultPosition=9
-
-**San Jose Apologizes for Decades of Discrimination Against Chinese**\
-`A resolution that the City Council approved unanimously this week also acknowledged the injustice of the destruction of the city’s Chinatowns.`\
-https://nytimes.com/2021/09/30/us/san-jose-apology-chinese-community.html?searchResultPosition=10
+https://nytimes.com/2021/09/30/learning/whats-going-on-in-this-graph-oct-6-2021.html?searchResultPosition=10
 
