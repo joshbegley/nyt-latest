@@ -20,7 +20,7 @@ https://nytimes.com/2021/09/30/us/colorism-skin-bias-ilhan-omar.html?searchResul
 
 **The Best Places to Have Babies**\
 `A new study compares health care costs, accessibility to care, and baby- and family-friendliness in the 50 states and Washington, D.C.`\
-https://nytimes.com/2021/09/30/realestate/the-best-places-to-have-babies.html?searchResultPosition=8
+https://nytimes.com/2021/09/30/realestate/best-places-to-have-babies.html?searchResultPosition=8
 
 **Run Out of Netflix Shows to Watch? Try These.**\
 `Fashion week may be back in-person, but not every designer wants to give up the digital approach. Marine Serre, Thebe Magugu, Burberry and Dries Van Noten explore the connection.`\
