@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/30/world/europe/lithuania-china-disputes.html?search
 `Parts of the government that operate under the discretion of Congress’s annual spending process will run out of money if a stopgap spending bill does not pass.`\
 https://nytimes.com/video/us/politics/100000008001235/spending-bill-vote-live-video.html?searchResultPosition=2
 
-**Biden, Pelosi Attend Congressional Baseball Game**\
+**Biden and Pelosi Attend Congressional Baseball Game**\
 `President Biden and Speaker Nancy Pelosi were seen cheering on the sideline and talking to players at the annual Congressional Baseball Game as they tried to salvage two crucial pieces of Mr. Biden’s domestic agenda.`\
 https://nytimes.com/video/us/politics/100000008001473/biden-pelosi-congressional-baseball-game.html?searchResultPosition=3
 
