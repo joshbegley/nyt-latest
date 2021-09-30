@@ -1,24 +1,20 @@
+**Head of Metropolitan Police Condemns Murder of Sarah Everard**\
+`The commissioner of the Metropolitan Police in London said she was committed to improving safety for women after the killing of Sarah Everard by a police officer renewed outrage over how cases of violence against women are handled.`\
+https://nytimes.com/video/world/europe/100000008001671/sarah-everard-killer-wayne-couzens-sentenced-to-life-in-prison.html?searchResultPosition=1
+
+**Revisiting a Post-Apocalyptic Play in the Pandemic**\
+`Anne Washburn’s phantasmagoric “Mr. Burns, a Post-Electric Play” is getting a timely new run at Theater Wit in Chicago.`\
+https://nytimes.com/2021/09/30/theater/mr-burns-post-electric-play-chicago.html?searchResultPosition=2
+
 **As Dutch Prime Minister Gets Extra Security, Fears Focus on Drug Gangs**\
 `Signs of concern for the country’s leader have rattled many in the Netherlands, but experts are split on whether criminal organizations there would really risk targeting politicians.`\
-https://nytimes.com/2021/09/30/world/europe/netherlands-prime-minister-threats.html?searchResultPosition=5
+https://nytimes.com/2021/09/30/world/europe/netherlands-prime-minister-threats.html?searchResultPosition=8
 
 **Manchin says he’ll support a $1.5 trillion social safety net bill, $2 trillion less than Biden’s sweeping plan.**\
 `By Emily Cochrane`\
-https://nytimes.com/2021/09/30/us/politics/manchin-biden-spending-bill.html?searchResultPosition=6
+https://nytimes.com/2021/09/30/us/politics/manchin-biden-spending-bill.html?searchResultPosition=9
 
 **Breaking Up the Philanthropy ‘Boys Club’**\
 `This year there has been a surge of charitable giving toward gender equality. Will it stick?`\
-https://nytimes.com/2021/09/30/us/philanthropy-gender-girls-women.html?searchResultPosition=7
-
-**Youth Vaping Declined Sharply for Second Year, New Data Show**\
-`Now that it has stopped selling most flavored pods, Juul has become far less popular with teens than brands offering disposable fruit- and candy-flavored devices.`\
-https://nytimes.com/2021/09/30/health/youth-vaping-decline.html?searchResultPosition=8
-
-**People with disabilities have a tougher time getting Covid vaccines, the C.D.C. reports.**\
-`It is a stark signal of what the agency’s scientists said was a need for U.S. health officials to remove barriers to access.`\
-https://nytimes.com/2021/09/30/health/covid-vaccine-disabilities.html?searchResultPosition=9
-
-**3 Delicious Reasons to Quick Pickle an Onion**\
-`This homemade condiment adds a pop of acidity to comforting vegetarian dishes.`\
-https://nytimes.com/2021/09/30/dining/quick-pickled-onions.html?searchResultPosition=10
+https://nytimes.com/2021/09/30/us/philanthropy-gender-girls-women.html?searchResultPosition=10
 
