@@ -28,7 +28,7 @@ https://nytimes.com/2021/09/30/briefing/congress-teen-vaping-october-books.html?
 
 **Will 2024 Be the Year American Democracy Dies?**\
 `The  Capitol riot has been described as both a bullet dodged and a dress rehearsal for a more successful attack on American elections.`\
-https://nytimes.com/2021/09/30/opinion/will-2024-be-the-year-american-democracy-dies.html?searchResultPosition=8
+https://nytimes.com/2021/09/30/opinion/american-democracy-2024.html?searchResultPosition=8
 
 **‘The Moratorium Saved Us. It Really Did.’**\
 `With the eviction moratorium over, the road to more opportunity and less inequality runs through affordable housing.`\
