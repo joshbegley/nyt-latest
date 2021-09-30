@@ -18,7 +18,7 @@ https://nytimes.com/2021/09/29/arts/television/squid-game-netflix.html?searchRes
 `Fans cried and cheered after the news broke that James P. Spears, the singer’s father, had been suspended as conservator.`\
 https://nytimes.com/2021/09/29/arts/music/britney-spears-fans-conservatorship.html?searchResultPosition=5
 
-**Health officials are buying millions of vaccines for Latin America.**\
+**An arm of the W.H.O. is buying millions of Covid vaccine shots for Latin America and the Caribbean.**\
 `The Pan American Health Organization is working to address inequities in vaccine availability by offering vaccines for sale to countries in need.`\
 https://nytimes.com/2021/09/29/world/americas/vaccines-latin-america.html?searchResultPosition=6
 
