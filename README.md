@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/30/world/europe/nazi-suspect-germany-flees.html?sear
 `Antigone Davis, Facebook’s global head of safety, faces questions from lawmakers about Instagram’s effect on teenagers, addressing accusations that Facebook has known for years that its photo-sharing app has caused mental and emotional harm.`\
 https://nytimes.com/video/us/100000008001106/facebook-instagram-senate-hearing-live-video.html?searchResultPosition=2
 
-**Rappers Come Shop for Jewelry. Icebox Turns the Cameras on.**\
+**Rappers Come Shop for Jewelry. Icebox Turns the Cameras On.**\
 `An Atlanta store where hip-hop’s big names buy diamond-encrusted watches and chains has become a social media phenomenon by capturing the safe spaces of the rich and flamboyant.`\
 https://nytimes.com/2021/09/30/arts/music/icebox-jewelry-store-rappers-videos.html?searchResultPosition=3
 
