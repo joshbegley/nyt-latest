@@ -1,40 +1,40 @@
+**How Asia, Once a Vaccination Laggard, Is Revving Up Inoculations**\
+`Several countries are now on track to surpass the United States in fully vaccinating their populations, lifting hopes of a more permanent return to normality.`\
+https://nytimes.com/2021/09/30/business/economy/asia-covid-vaccinations.html?searchResultPosition=1
+
+**Thousands of Haitians Are Being Allowed Into the U.S. But What Comes Next?**\
+`Members of a Haitian church in Philadelphia opened their hearts and pocketbooks to sponsor a family of immigrants. Then came another, and another.`\
+https://nytimes.com/2021/09/30/us/haitian-migrants.html?searchResultPosition=2
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2021/09/30/crosswords/spelling-bee-forum.html?searchResultPosition=3
+
 **Thierry Mugler Returns to Paris With ‘Couturissime’**\
 `The Musée des Arts Décoratifs is the latest stop for an exhibition of more than 150 of the designer’s eye-popping creations.`\
-https://nytimes.com/2021/09/30/style/thierry-mugler-couturissime-exhibition-paris.html?searchResultPosition=1
+https://nytimes.com/2021/09/30/style/thierry-mugler-couturissime-exhibition-paris.html?searchResultPosition=4
 
 **Word of the Day: belie**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/09/30/learning/word-of-the-day-belie.html?searchResultPosition=2
+https://nytimes.com/2021/09/30/learning/word-of-the-day-belie.html?searchResultPosition=5
 
 **N.F.L. Week 4 Predictions: Our Picks Against the Spread**\
 `Tom Brady faces Bill Belichick, the Rams and the Cardinals fight to stay undefeated, and the Browns’ pass rush travels to Minnesota to try to end Kirk Cousins’ interception-less streak.`\
-https://nytimes.com/2021/09/30/sports/football/nfl-week-4-predictions-picks.html?searchResultPosition=3
+https://nytimes.com/2021/09/30/sports/football/nfl-week-4-predictions-picks.html?searchResultPosition=6
 
 **Your Thursday Briefing**\
 `Division among Democrats.`\
-https://nytimes.com/2021/09/29/briefing/sarah-everard-democrats-biden-shutdown.html?searchResultPosition=4
+https://nytimes.com/2021/09/29/briefing/sarah-everard-democrats-biden-shutdown.html?searchResultPosition=7
 
 **Quotation of the Day: After E.U. Exit, Loss of Drivers Hits U.K. Hard**\
 `Quotation of the Day for Thursday, September 30, 2021.`\
-https://nytimes.com/2021/09/29/todayspaper/quotation-of-the-day-after-eu-exit-loss-of-drivers-hits-uk-hard.html?searchResultPosition=5
+https://nytimes.com/2021/09/29/todayspaper/quotation-of-the-day-after-eu-exit-loss-of-drivers-hits-uk-hard.html?searchResultPosition=8
 
 **Corrections: Sept. 30, 2021**\
 `Corrections that appeared in print on Thursday, Sept. 30, 2021.`\
-https://nytimes.com/2021/09/29/pageoneplus/corrections-sept-30-2021.html?searchResultPosition=6
+https://nytimes.com/2021/09/29/pageoneplus/corrections-sept-30-2021.html?searchResultPosition=9
 
 **Great Relief**\
 `Rich Proulx offers a Thursday puzzle to help us chill out.`\
-https://nytimes.com/2021/09/29/crosswords/daily-puzzle-2021-09-30.html?searchResultPosition=7
-
-**‘A Great Day for Justice,’ Britney Spears’s Lawyer Says**\
-`Mathew S. Rosengart, the lawyer for Ms. Spears, addressed supporters after a judge suspended the singer’s father, James P. Spears, from his position as the conservator of his daughter’s estate.`\
-https://nytimes.com/video/us/100000008000632/britney-spears-ruling-lawyer.html?searchResultPosition=8
-
-**Prison Riot in Ecuador Leaves More Than 100 Inmates Dead**\
-`The president imposed a series of emergency steps on Wednesday as gangs connected to criminal drug cartels battle for dominance inside the prison system.`\
-https://nytimes.com/2021/09/29/world/americas/ecuador-prison-riot.html?searchResultPosition=9
-
-**Facebook Downplays Internal Research Released on Eve of Hearing**\
-`The social network published its findings about Instagram’s effect on young users, as senators prepared to question an executive on Thursday.`\
-https://nytimes.com/2021/09/29/technology/facebook-instagram-research-hearing.html?searchResultPosition=10
+https://nytimes.com/2021/09/29/crosswords/daily-puzzle-2021-09-30.html?searchResultPosition=10
 
