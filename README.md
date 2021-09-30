@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2021/09/30/learning/30VocabQuizSlacklineLN.html?
 https://nytimes.com/2021/09/30/world/asia/new-zealand-terror-knife.html?searchResultPosition=5
 
 **Ex-President Sarkozy Sentenced to Jail for Campaign Spending Violations**\
-`Nicolas Sarkozy was convicted of illegally financing his 2012 presidential bid by exceeding France’s strict electoral rules.`\
+`Nicolas Sarkozy was convicted of illegally financing his 2012 presidential bid by exceeding France’s strict electoral rules. He said he would appeal.`\
 https://nytimes.com/2021/09/30/world/europe/france-sarkozy-campaign-spending.html?searchResultPosition=6
 
 **Young Women Set the Tone for a Paris Theater Season**\
