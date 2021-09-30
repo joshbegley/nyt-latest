@@ -1,40 +1,40 @@
-**The Academy Museum of Motion Pictures Opens in Los Angeles**\
-`The long-delayed temple to cinema will be unveiled today on Wilshire Boulevard.`\
-https://nytimes.com/2021/09/30/us/academy-musuem-motion-pictures-death-star-los-angeles.html?searchResultPosition=1
+**After its mandate, Tyson Foods reaches a 91 percent vaccination rate.**\
+`The company’s vaccine requirement covers all of its 120,000 U.S. employees, including frontline workers, who have until Nov. 1 to get inoculated.`\
+https://nytimes.com/2021/09/30/business/tyson-vaccination-mandate.html?searchResultPosition=1
 
-**Vaccine mandates complicate hospital staffing woes in Wyoming.**\
-`Administrators face “a delicate balancing act” in a state where hospitals are crowded, workers are scarce and vaccine resistance is widespread.`\
-https://nytimes.com/2021/09/30/us/wyoming-hospital-vaccine-mandate.html?searchResultPosition=2
+**Homes for Sale in Brooklyn, Manhattan and the Bronx**\
+`This week’s properties are in Crown Heights, the Upper West Side and Riverdale.`\
+https://nytimes.com/2021/09/30/realestate/housing-market-nyc.html?searchResultPosition=2
 
-**Beautiful Dark Twisted Fantasy Shoes**\
-`A new designer at an old house brings wildflowers to Paris Fashion Week.`\
-https://nytimes.com/2021/09/30/style/paris-fashion-week-rochas-shoes.html?searchResultPosition=3
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties include a five-bedroom in Upper Saddle River, N.J., and Sea Cliff, N.Y.`\
+https://nytimes.com/2021/09/30/realestate/housing-market-near-nyc.html?searchResultPosition=3
 
-**How Tyson’s Vaccine Mandate is Working**\
-`Two months after introducing a pioneering coronavirus vaccine requirement for all of its workers, the food-processing giant details its progress.`\
-https://nytimes.com/2021/09/30/business/dealbook/tyson-covid-vaccine-mandate.html?searchResultPosition=4
+**On the Market in New York City**\
+`This week’s properties are in Crown Heights, the Upper West Side and Riverdale.`\
+https://nytimes.com/slideshow/2021/09/30/realestate/on-the-market-in-new-york-city.html?searchResultPosition=4
 
-**Congress races to avert a government shutdown, with Biden’s agenda in the balance.**\
-`The House and Senate are both expected to pass short-term bills to fund the government, but a planned infrastructure vote is in limbo amid deep party divisions.`\
-https://nytimes.com/2021/09/30/us/politics/government-shutdown-congress-infrastructure.html?searchResultPosition=5
+**On the Market in the New York Region**\
+`This week’s properties include a five-bedroom in Upper Saddle River, N.J., and Sea Cliff, N.Y.`\
+https://nytimes.com/slideshow/2021/09/30/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=5
 
-**A Decade of Work, a Shocking Accident and a Bevy of Supermodels**\
-`The Balmain Festival in honor of Olivier Rousteing’s 10th anniversary at the house meant more than anyone could have imagined.`\
-https://nytimes.com/2021/09/30/style/olivier-rousteing-balmain-10th-anniversary-accident.html?searchResultPosition=6
+**Leader of Prestigious Yale Program Resigns, Citing Donor Pressure**\
+`The historian Beverly Gage, who has run the Grand Strategy course since 2017, says the university failed to stand up for academic freedom amid inappropriate efforts to influence the curriculum.`\
+https://nytimes.com/2021/09/30/arts/yale-grand-strategy-resignation.html?searchResultPosition=6
 
-**The Privilege of Mediocrity**\
-`For creators of color, the perceived need to be exemplary can be artistically stultifying. Instead, true freedom may lie in being allowed to be fine — or to fail.`\
-https://nytimes.com/2021/09/30/t-magazine/mediocrity-people-of-color.html?searchResultPosition=7
+**Five Stylish, and Endlessly Versatile, Diver Watches**\
+`With bands of sporty rubber or modern steel, fall’s water-resistant timepieces easily transition from the sea to the street.`\
+https://nytimes.com/2021/09/30/t-magazine/diver-watches-water-resistant.html?searchResultPosition=7
 
-**Police Officer Sentenced to Life in Prison for Murder of Sarah Everard**\
-`Ms. Everard’s killing this year inspired a national call to action in Britain to address violence against women. The court heard this week how Wayne Couzens used his police ID and handcuffs in abducting her.`\
-https://nytimes.com/2021/09/30/world/europe/sarah-everard-wayne-couzens-sentencing.html?searchResultPosition=8
+**‘Venom: Let There Be Carnage’ Review: The One-Man Odd Couple Returns**\
+`Starring Tom Hardy, this superhero sequel turns into a slapstick blood bath about two threesomes both in desperate need of throuples therapy.`\
+https://nytimes.com/2021/09/30/movies/venom-let-there-be-carnage-review.html?searchResultPosition=8
 
-**Facebook is headed back to Capitol Hill for another grilling from lawmakers.**\
-`The company faces accusations that it hid research showing the mental and emotional harm its photo-sharing app Instagram has had on teenagers.`\
-https://nytimes.com/2021/09/30/technology/facebook-senate-hearing.html?searchResultPosition=9
+**The T List: Five Things We Recommend This Week**\
+`A painter of expatriate life, an online potion boutique — and more.`\
+https://nytimes.com/2021/09/30/t-magazine/wangari-mathenge-kali.html?searchResultPosition=9
 
-**A Ceramist Inspired by Folklore and the British Countryside**\
-`In Somerset, the artist Prue Piper has spent decades forging connections between her pottery, her garden and the myths entwined with the landscape.`\
-https://nytimes.com/2021/09/30/t-magazine/prue-piper-ceramics-art.html?searchResultPosition=10
+**Should I Pay My Sister-in-Law for Helping With Child Care?**\
+`After her offers of compensation were initially denied, a reader was surprised to hear her relative ask for back pay.`\
+https://nytimes.com/2021/09/30/style/child-care-family-pay-social-qs.html?searchResultPosition=10
 
