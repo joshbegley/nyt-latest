@@ -1,6 +1,6 @@
 **The Democrats Who Might Block Biden’s Infrastructure Plan**\
 `A key vote on one of the president’s top priorities is approaching, but now members of his own party are threatening to block it. Here’s why.`\
-https://nytimes.com/2021/09/30/podcasts/the-daily/biden-infrastructure-plan-congress-pramila-jayapal.html?searchResultPosition=1
+https://nytimes.com/2021/09/30/podcasts/the-daily/biden-infrastructure-plan.html?searchResultPosition=1
 
 **The Right to Health**\
 `Immunization mandates aren’t new. One helped win the American Revolution.`\
