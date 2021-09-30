@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/30/realestate/the-best-places-to-have-babies.html?se
 
 **Run Out of Netflix Shows to Watch? Try These.**\
 `Fashion week may be back in-person, but not every designer wants to give up the digital approach. Marine Serre, Thebe Magugu, Burberry and Dries Van Noten explore the connection.`\
-https://nytimes.com/2021/09/30/style/marine-serre-thebe-magugu-dries-van-noten.html?searchResultPosition=2
+https://nytimes.com/2021/09/30/style/netflix-shows.html?searchResultPosition=2
 
 **After its mandate, Tyson Foods reaches a 91 percent vaccination rate.**\
 `The company’s vaccine requirement covers all of its 120,000 U.S. employees, including frontline workers, who have until Nov. 1 to get inoculated.`\
