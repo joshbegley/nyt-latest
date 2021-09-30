@@ -6,7 +6,7 @@ https://nytimes.com/2021/09/29/us/politics/corey-lewandowski-trump.html?searchRe
 `People in the crowd cheered, cried and hugged one another as news broke that Jamie Spears, the star’s father, had been suspended as her conservator after 13 years.`\
 https://nytimes.com/video/us/100000008000556/britney-ruling-fans-celebration.html?searchResultPosition=2
 
-**Britney Spears’s Father Is Suspended as Her Conservator**\
+**Judge Frees Spears From Father’s Control**\
 `The singer will be without James P. Spears’s oversight over her finances for the first time since 2008 after a judge ruled that the “current situation is not tenable.”`\
 https://nytimes.com/2021/09/29/arts/music/britney-spears-court-decision-conservatorship.html?searchResultPosition=3
 
