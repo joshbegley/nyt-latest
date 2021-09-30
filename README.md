@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/30/style/marine-serre-thebe-magugu-dries-van-noten.h
 
 **After its mandate, Tyson Foods reaches a 91 percent vaccination rate.**\
 `The company’s vaccine requirement covers all of its 120,000 U.S. employees, including frontline workers, who have until Nov. 1 to get inoculated.`\
-https://nytimes.com/2021/09/30/business/tyson-vaccination-mandate.html?searchResultPosition=2
+https://nytimes.com/2021/09/30/business/tyson-foods-vaccination-mandate-rate.html?searchResultPosition=2
 
 **Homes for Sale in Brooklyn, Manhattan and the Bronx**\
 `This week’s properties are in Crown Heights, the Upper West Side and Riverdale.`\
