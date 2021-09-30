@@ -4,7 +4,7 @@ https://nytimes.com/2021/09/30/world/europe/netherlands-prime-minister-threats.h
 
 **Manchin says he’ll support a $1.5 trillion social safety net bill, $2 trillion less than Biden’s sweeping plan.**\
 `By Emily Cochrane`\
-https://nytimes.com/2021/09/30/us/politics/manchin-social-spending-biden.html?searchResultPosition=4
+https://nytimes.com/2021/09/30/us/politics/manchin-biden-spending-bill.html?searchResultPosition=4
 
 **Breaking Up the Philanthropy ‘Boys Club’**\
 `This year there has been a surge of charitable giving toward gender equality. Will it stick?`\
