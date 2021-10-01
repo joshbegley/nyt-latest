@@ -3,7 +3,7 @@
 https://nytimes.com/2021/09/30/education/umass-amherst-racist-emails.html?searchResultPosition=1
 
 **Senate Confirms Biden’s Pick to Lead the Bureau of Land Management**\
-`After a party-line vote, Tracy Stone-Manning becomes leader of an agency that manages oil and gas drilling on public lands.`\
+`After a party-line vote, Tracy Stone-Manning became the leader of an agency that manages oil and gas drilling on public lands.`\
 https://nytimes.com/2021/09/30/climate/tracy-stone-manning-blm.html?searchResultPosition=2
 
 **Tirzah’s Genre-Less Pop Embraces the Beauty of Uncertainty**\
