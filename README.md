@@ -15,7 +15,7 @@ https://nytimes.com/2021/10/01/theater/george-ferencz-innovative-theater-directo
 https://nytimes.com/2021/10/01/movies/titane-julia-ducournau-agathe-rousselle.html?searchResultPosition=4
 
 **Ozy Media Says It Is Shutting Down**\
-`The digital media start-up had come under scrutiny for its business practices following articles in The Times.`\
+`The digital media start-up, led by Carlos Watson, had come under scrutiny for its business practices following articles in The Times.`\
 https://nytimes.com/2021/10/01/business/media/ozy-media-carlos-watson.html?searchResultPosition=5
 
 **The Women Fighting to Protect Greenland**\
@@ -31,7 +31,7 @@ https://nytimes.com/2021/10/01/technology/elizabeth-holmes-trial-takeaways.html?
 https://nytimes.com/2021/10/01/style/why-are-clothing-sizes-so-confusing.html?searchResultPosition=8
 
 **How R. Kelly Got Away With It**\
-`The arduous fight to hold him accountable points to a broader cultural and legal consensus that enabled his crimes against Black women and girls.`\
+`The singer’s abuse of Black women and girls was hiding in plain sight.`\
 https://nytimes.com/2021/10/01/opinion/r-kelly-conviction.html?searchResultPosition=9
 
 **Is the Coronavirus Getting Better at Airborne Transmission?**\
