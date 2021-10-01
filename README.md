@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/01/style/ann-dowd-sails-around-new-york-harbor.html?searchResultPosition=3
 
 **Transcript: Ezra Klein Interviews Eric Adams**\
-`TKTK`\
+`A conversation with the Democratic nominee for New York mayor`\
 https://nytimes.com/2021/10/01/podcasts/transcript-ezra-klein-interviews-eric-adams.html?searchResultPosition=4
 
 **‘Britney vs Spears’ Review: When the Intervention Is the Problem**\
