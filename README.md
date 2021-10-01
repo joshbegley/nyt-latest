@@ -16,7 +16,7 @@ https://nytimes.com/2021/10/01/movies/titane-julia-ducournau-agathe-rousselle.ht
 
 **Ozy Media Says It Is Shutting Down**\
 `The digital media start-up had come under scrutiny for its business practices following articles in The Times.`\
-https://nytimes.com/2021/10/01/business/media/ozy-media.html?searchResultPosition=5
+https://nytimes.com/2021/10/01/business/media/ozy-media-carlos-watson.html?searchResultPosition=5
 
 **The Women Fighting to Protect Greenland**\
 `The years-long effort to block a mining project in Greenland is led primarily by women.`\
