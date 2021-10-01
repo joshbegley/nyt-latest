@@ -1,4 +1,4 @@
-**Rivian, an Electric Vehicle Start-Up, Unveils Large Losses in I.P.O. Filing**\
+**Rivian, Electric Vehicle Start-Up, Unveils Large Losses in I.P.O. Filing**\
 `The company, which is backed by Amazon and Ford, is seeking to sell shares in one of the biggest initial public offerings of the year.`\
 https://nytimes.com/2021/10/01/business/rivian-ipo.html?searchResultPosition=1
 
