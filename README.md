@@ -1,5 +1,5 @@
 **Fashion Mogul Set to Face Sex-Trafficking Charges in U.S.**\
-`Peter Nygard, a former fashion executive, will soon be extradited from Canada to the United States to face charges of sex trafficking and other crimes against women and teenage girls.`\
+`Peter Nygard, a former fashion executive, will soon be extradited from Canada to the United States to face charges of crimes against women and teenage girls.`\
 https://nytimes.com/2021/10/01/world/canada/peter-nygard-extradited-sex-trafficking.html?searchResultPosition=1
 
 **Enescu, an Underplayed Composer, Is Still a Star in Romania**\
