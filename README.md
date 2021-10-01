@@ -1,6 +1,6 @@
 **Your Friday Briefing**\
 `House Democrats delay a crucial vote.`\
-https://nytimes.com/2021/10/01/briefing/your-friday-briefing.html?searchResultPosition=1
+https://nytimes.com/2021/10/01/briefing/democrats-spending-china-lithuania.html?searchResultPosition=1
 
 **We Wanted to Split Up. OkCupid Had Other Ideas.**\
 `Did we really want to throw away 98 percent compatibility?`\
