@@ -20,7 +20,7 @@ https://nytimes.com/2021/10/01/arts/new-york-philharmonic-hall.html?searchResult
 
 **The Marvelous Physics of Swarming Midges**\
 `There’s more in that cloud of bugs than meets the eye.`\
-https://nytimes.com/2021/10/01/science/physicis-midges-starlings-swarm.html?searchResultPosition=6
+https://nytimes.com/2021/10/01/science/physics-midges-starlings-swarm.html?searchResultPosition=6
 
 **A Dance Show on a Cruise Ship? It’s Not What You Think.**\
 `These artists doubted Virgin Voyages would want what they had to offer. But their show, part revue, part night out at a club, is about to set sail.`\
