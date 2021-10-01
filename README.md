@@ -1,6 +1,6 @@
 **Cincinnati, Even if Perfect, Could Miss the Playoff. Luke Fickell Has Notre Dame First.**\
 `The seventh-ranked Bearcats play at No. 9 Notre Dame on Saturday. A loss would doom whatever shot they have at reaching the College Football Playoff, and a win would still put Cincinnati Coach Luke Fickell in the position of campaigning.`\
-https://nytimes.com/2021/10/01/sports/ncaafootball/cincinnati-even-if-perfect-could-miss-the-playoff-luke-fickell-has-notre-dame-first.html?searchResultPosition=1
+https://nytimes.com/2021/10/01/sports/ncaafootball/cincinnati-notre-dame-college-football-playoff.html?searchResultPosition=1
 
 **Arizona Vote Review ‘Made Up the Numbers,’ Election Experts Say**\
 `An analysis found that a hand recount of votes by Republican investigators missed thousands of ballots, and possibly many more.`\
