@@ -31,7 +31,7 @@ https://nytimes.com/2021/10/01/technology/elizabeth-holmes-trial-takeaways.html?
 https://nytimes.com/2021/10/01/style/why-are-clothing-sizes-so-confusing.html?searchResultPosition=8
 
 **How R. Kelly Got Away With It**\
-`The arduous fight to hold him accountable for the crimes he committed against Black women and girls points to a broader cultural and legal consensus that enabled his predations.`\
+`The arduous fight to hold him accountable points to a broader cultural and legal consensus that enabled his crimes against Black women and girls.`\
 https://nytimes.com/2021/10/01/opinion/r-kelly-conviction.html?searchResultPosition=9
 
 **Is the Coronavirus Getting Better at Airborne Transmission?**\
