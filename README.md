@@ -6,7 +6,7 @@ https://nytimes.com/2021/10/01/opinion/advice-small-talk.html?searchResultPositi
 `The Phoenix Mercury tied their semifinal series against the Las Vegas Aces at one game apiece thanks to long-range sharpshooting from Taurasi.`\
 https://nytimes.com/2021/10/01/sports/basketball/diana-taurasi-mercury-aces.html?searchResultPosition=2
 
-**Sinema returns to Arizona for a medical appointment and scheduled fund-raiser, as a social spending deal remains elusive.**\
+**Sinema, a holdout on the social spending bill, returns to Arizona for a doctor’s visit and a scheduled fund-raiser.**\
 `In contrast, the other holdout to support President Biden’s sweeping social spending bill, Senator Joe Manchin III of West Virginia, is remaining in Washington this weekend.`\
 https://nytimes.com/2021/10/01/us/politics/krysten-sinema-spending-bill-arizona.html?searchResultPosition=3
 
