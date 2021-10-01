@@ -34,7 +34,7 @@ https://nytimes.com/2021/09/30/climate/tracy-stone-manning-blm.html?searchResult
 `The British singer-songwriter’s new album, “Colourgrade,” is a fluid excursion through the contours of trip-hop, noise, R&B and electronic music.`\
 https://nytimes.com/2021/09/30/arts/music/tirzah-colourgrade-review.html?searchResultPosition=9
 
-**Pelosi Hunts for Infrastructure Votes as Democrats Feud Over Agenda**\
-`Congress managed to keep the government from shutting down after midnight, but President Biden’s economic agenda, including a popular infrastructure bill, was ensnared in an intraparty battle.`\
+**House Delays Vote on Infrastructure Bill as Democrats Feud**\
+`A liberal revolt left Democrats short of votes, but leaders insisted they would bring up the measure again on Friday, giving them more time to reach a deal on a separate climate and safety net bill.`\
 https://nytimes.com/2021/09/30/us/politics/infrastructure-democrats-pelosi.html?searchResultPosition=10
 
