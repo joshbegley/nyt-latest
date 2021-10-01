@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/01/technology/elizabeth-holmes-trial-takeaways.html?
 `A reader puzzled by seemingly inflated sizes seeks an explanation.`\
 https://nytimes.com/2021/10/01/style/why-are-clothing-sizes-so-confusing.html?searchResultPosition=8
 
-**We Were All Implicated in R. Kelly’s Criminal Conspiracy**\
+**How R. Kelly Got Away With It**\
 `The arduous fight to hold him accountable for the crimes he committed against Black women and girls points to a broader cultural and legal consensus that enabled his predations.`\
 https://nytimes.com/2021/10/01/opinion/r-kelly-conviction.html?searchResultPosition=9
 
