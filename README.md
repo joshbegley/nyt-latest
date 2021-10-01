@@ -6,7 +6,7 @@ https://nytimes.com/2021/10/01/movies/titane-julia-ducournau-agathe-rousselle.ht
 `The digital media start-up had come under scrutiny for its business practices in recent days following articles in The Times.`\
 https://nytimes.com/2021/10/01/business/media/ozy-media.html?searchResultPosition=2
 
-**The Women Fighting To Protect Greenland**\
+**The Women Fighting to Protect Greenland**\
 `The years-long effort to block a mining project in Greenland is led primarily by women.`\
 https://nytimes.com/interactive/2021/10/01/business/energy-environment/greenland-anti-mining-women.html?searchResultPosition=3
 
