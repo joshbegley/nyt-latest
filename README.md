@@ -1,5 +1,5 @@
-**At the Mets’ Home Finale, Change Was in the Air**\
-`New leaders will be ushered in this off-season. But even in a season marred by a monumental collapse, a core group of stars offers something not every team has: Hope.`\
+**At the Mets’ Home Finale, Change Was in the Cool Air**\
+`New leaders will be ushered in this off-season. But even in a year marred by a monumental collapse, a core group of stars offers something not every team has: hope.`\
 https://nytimes.com/2021/10/01/sports/baseball/mets-home-finale.html?searchResultPosition=1
 
 **The Strange Allure of Pool-Cleaning Videos**\
