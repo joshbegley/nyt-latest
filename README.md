@@ -1,40 +1,40 @@
-**Duterte Says He Will Retire Rather Than Seek the Vice Presidency**\
-`The Philippine president, whose term ends next year, had been expected to seek the No. 2 office, but said he would not do so “in obedience to the will of the people.”`\
-https://nytimes.com/2021/10/02/world/asia/rodrigo-duterte-philippines.html?searchResultPosition=1
+**As Bikers Throng the Streets, ‘It’s Like Paris Is in Anarchy’**\
+`An ecologically minded experiment to make Paris a cycling capital of Europe has led to a million people now pedaling daily — and to rising tensions with pedestrians.`\
+https://nytimes.com/2021/10/02/world/europe/paris-bicyles-france.html?searchResultPosition=1
 
-**They Want to Hand Your Kid a Debit Card. What Do You Do?**\
-`Start-ups large and small are offering child-friendly debit cards that allow parents to set up guardrails. Picking one depends on your priorities.`\
-https://nytimes.com/2021/10/02/your-money/kids-debit-cards.html?searchResultPosition=2
+**Subduing Suspects Face Down Isn’t Fatal, Research Has Said. Now the Research Is on Trial.**\
+`For years, the leading experts have testified that prone restraint by police is safe. So why do people keep dying?`\
+https://nytimes.com/2021/10/02/us/police-restraints-research-george-floyd.html?searchResultPosition=2
 
-**Is Letitia James Running for Governor? Her Decision Is Coming Soon.**\
-`Ms. James, New York’s attorney general, has embarked on a campaign-like tour of the state and is discussing her plans with donors and officials.`\
-https://nytimes.com/2021/10/02/nyregion/letitia-james-governor-hochul.html?searchResultPosition=3
+**Perilous, Roadless Jungle Becomes a Path of Desperate Hope**\
+`The recent surge at the Mexican border is likely to grow, as more migrants, mostly Haitian, risk everything negotiating the notorious Darién Gap on their way to the U.S.`\
+https://nytimes.com/2021/10/02/world/americas/haitian-migrants-mexican-border.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/02/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**D.I.Y. Hairstyles for Brides**\
+`From an elegant braided bun to soft beach waves, here are eight chic wedding-day looks you can create on your own.`\
+https://nytimes.com/2021/10/02/style/diy-bridal-hairstyles.html?searchResultPosition=4
 
-**Corrections: Oct. 2, 2021**\
-`Corrections that appeared in print on Saturday, Oct. 2, 2021.`\
-https://nytimes.com/2021/10/02/pageoneplus/corrections-oct-2-2021.html?searchResultPosition=5
+**Tallying the Cost of Growing Older**\
+`Researchers have been studying how much care American adults will require as they age, and for how long.`\
+https://nytimes.com/2021/10/02/health/elderly-health-care-finances.html?searchResultPosition=5
 
-**Quotation of the Day: Biden Tells Democrats Infrastructure Hinges on a Social Policy Bill**\
-`Quotation of the Day for Saturday, October 2, 2021.`\
-https://nytimes.com/2021/10/02/todayspaper/quotation-of-the-day-biden-tells-democrats-infrastructure-hinges-on-a-social-policy-bill.html?searchResultPosition=6
+**An Erotica Pioneer Goes From Hero to Villain for Dozens of Authors**\
+`In the constantly evolving romance landscape, Blushing Books has long occupied a specific niche: spanking erotica. Now some of its most successful writers just want their books back.`\
+https://nytimes.com/2021/10/02/business/romance-publishing-blushing-erotica.html?searchResultPosition=6
 
-**Ate the Last Cookie, Say**\
-`Don’t fight the urge to solve this Wendy L. Brandes construction.`\
-https://nytimes.com/2021/10/01/crosswords/daily-puzzle-2021-10-02.html?searchResultPosition=7
+**Stanley Tucci’s Passion Was Acting. Now, It’s Food.**\
+`The actor’s new memoir “Taste” explains how a bout with cancer took his passion for ragù and risotto, but also Cuban-Chinese stews and minke whale, to new heights.`\
+https://nytimes.com/2021/10/02/books/stanley-tucci-taste-my-life-through-food.html?searchResultPosition=7
 
-**American, Alaska Airlines and JetBlue add vaccine mandates for workers.**\
-`American said the move was necessary in light of President Biden’s move to require vaccinations against the coronavirus for employees of government contractors.`\
-https://nytimes.com/2021/10/01/business/american-alaska-airlines-jetblue-vaccine-mandate.html?searchResultPosition=8
+**Supporters of Abortion Rights Struggle to Gain Marchers and Momentum**\
+`A nationwide march for abortion rights on Saturday offers an early test of Democratic enthusiasm in the post-Trump era.`\
+https://nytimes.com/2021/10/02/us/politics/abortion-rights-march.html?searchResultPosition=8
 
-**Russia Holds First Royal Wedding in Over 100 Years**\
-`Members of Europe’s noble families gathered to celebrate Russia’s first royal wedding since the days of the imperial monarchy. The descendants of the throne have had no official legal standing in the country since the dynasty was overthrown in 1917.`\
-https://nytimes.com/video/world/europe/100000008004809/royal-wedding-russia-romanov.html?searchResultPosition=9
+**Will TikTok Make You Buy It?**\
+`Give any social media platform long enough, and it turns into a mall.`\
+https://nytimes.com/2021/10/02/style/tiktok-shopping-viral-products.html?searchResultPosition=9
 
-**Texas Man Killed and Dismembered 3 at Motel, Police Say**\
-`Jason Alan Thornburg, 41, an electrician’s apprentice, told detectives that he “believed that he was being called to commit sacrifices,” according to an arrest warrant.`\
-https://nytimes.com/2021/10/01/us/jason-thornburg-murder-fort-worth-texas.html?searchResultPosition=10
+**Empty Desks at the State Department, Courtesy of Ted Cruz**\
+`Dozens of nominations have been held up by a fight between the Texas senator and the Biden administration over a Russian gas pipeline project.`\
+https://nytimes.com/2021/10/02/us/politics/senate-confirmation-cruz-nominations.html?searchResultPosition=10
 
