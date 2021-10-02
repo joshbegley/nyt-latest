@@ -35,6 +35,6 @@ https://nytimes.com/article/nobel-prize-2021.html?searchResultPosition=8
 https://nytimes.com/2021/10/02/opinion/kyrsten-sinema-congress.html?searchResultPosition=9
 
 **Balancing Honesty and Optimism in Silicon Valley**\
-`Is there an ethical way to “fake it till you make it”?`\
+`Is there an ethical way to “fake it til you make it”?`\
 https://nytimes.com/2021/10/02/business/dealbook/ozy-eric-ries.html?searchResultPosition=10
 
