@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/02/world/asia/pakistan-taliban-talks.html?searchResu
 https://nytimes.com/2021/10/02/us/politics/isis-mohammed-khalifa-terrorism.html?searchResultPosition=3
 
 **Inside United Airlines’ Decision to Mandate Coronavirus Vaccines**\
-`Over the course of a year, the company and its unions grappled with when and how to require vaccination for its 67,000 employees.`\
+`Over the course of a year, the company and its unions grappled with when and how to require vaccination for its 67,000 U.S. employees.`\
 https://nytimes.com/2021/10/02/business/united-airlines-coronavirus-vaccine-mandate.html?searchResultPosition=4
 
 **Does My Co-op Really Need to Know Everything About My Pet?**\
