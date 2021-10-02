@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/02/world/europe/paris-bicyles-france.html?searchResu
 https://nytimes.com/2021/10/02/us/police-restraints-research-george-floyd.html?searchResultPosition=6
 
 **Perilous, Roadless Jungle Becomes a Path of Desperate Hope**\
-`The recent surge at the Mexican border is likely to grow, as more migrants, mostly Haitian, risk everything negotiating the notorious Darién Gap on their way to the U.S.`\
+`The recent surge at the Mexican border is likely to grow as more migrants, mostly Haitian, risk everything negotiating the notorious Darién Gap on their way to the United States.`\
 https://nytimes.com/2021/10/02/world/americas/haitian-migrants-mexican-border.html?searchResultPosition=7
 
 **D.I.Y. Hairstyles for Brides**\
