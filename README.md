@@ -1,6 +1,6 @@
 **Cheer Up, Liberals. You Have the America You Wanted.**\
 `America in 2021 is the country that liberals in the Bush era pined for.`\
-https://nytimes.com/2021/10/02/opinion/liberal-politics-.html?searchResultPosition=1
+https://nytimes.com/2021/10/02/opinion/liberal-politics.html?searchResultPosition=1
 
 **Pat Robertson Ends His Long Run as Host of ‘The 700 Club’**\
 `Mr. Robertson, the evangelical leader who started the show in the 1960s to help save the Christian Broadcasting Network, said his son would take over as host of the program.`\
