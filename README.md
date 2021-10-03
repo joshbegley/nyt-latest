@@ -1,36 +1,40 @@
-**Trams, Cable Cars, Electric Ferries: How Cities Are Rethinking Transit**\
-`Urban transportation is central to the effort to slow climate change. It can’t be done by just switching to electric cars. Several cities are starting to electrify mass transit.`\
-https://nytimes.com/2021/10/03/climate/cities-public-transit-electric-tram-ferry-bus-cable-car.html?searchResultPosition=1
+**Following the Shamrocks on a Canadian Road Trip**\
+`Discovering fields of green and Celtic culture on a coastal drive along Newfoundland’s Irish Loop.`\
+https://nytimes.com/2021/10/03/travel/irish-loop-newfoundland.html?searchResultPosition=1
 
-**Housing Boss Earns $1 Million to Run Shelters Despite a Troubled Past**\
-`Some executives at nonprofit groups that operate New York City homeless shelters are benefiting from the plight of the people they serve.`\
-https://nytimes.com/2021/10/03/nyregion/jack-brown-homeless-nyc-core-services.html?searchResultPosition=2
+**In Search of Fall Colors: A Long Drive on New Hampshire Roads**\
+`A novelist looks back on her past as she reveals her favorite autumn spots — and finds some new ones — in her home state.`\
+https://nytimes.com/2021/10/03/travel/new-hampshire-fall-guide.html?searchResultPosition=2
 
-**Military Bases Turn Into Small Cities as Afghans Wait Months for Homes in U.S.**\
-`An estimated 53,000 evacuees from Kabul remain stranded on eight military bases across the country. Thousands more are waiting at U.S. bases abroad to come to the United States.`\
-https://nytimes.com/2021/10/03/us/afghan-evacuees-military-bases.html?searchResultPosition=3
+**8 Places to Visit Along Virginia’s Blue Ridge Parkway**\
+`With an autumnal ombré and cooler temperatures, fall is prime time for journeying along this Appalachian Mountain roadway.`\
+https://nytimes.com/2021/10/03/travel/places-to-visit-blue-ridge-parkway-virginia.html?searchResultPosition=3
 
-**‘It Was a Warm Sunday Afternoon at a Bar Near the Brooklyn Waterfront.’**\
-`A jam session with a twist, a fisherman whistling on the subway and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/10/03/nyregion/metropolitan-diary.html?searchResultPosition=4
+**In Alaska’s Covid Crisis, Doctors Must Decide Who Lives and Who Dies**\
+`Amid the nation’s worst Covid-19 outbreak, patients are trapped in remote communities and doctors are prioritizing treatment based on who is most likely to survive.`\
+https://nytimes.com/2021/10/03/us/coronavirus-crisis-alaska.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/03/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Back on the Bench, the Supreme Court Faces a Blockbuster Term**\
+`The court, which is dominated by six Republican appointees, will confront a charged docket, including a case asking it to overrule Roe v. Wade.`\
+https://nytimes.com/2021/10/03/us/supreme-court-new-term.html?searchResultPosition=5
 
-**In a Surge of Military Flights, China Tests and Warns Taiwan**\
-`For two straight days, Beijing sent a record number of planes near the island, Taiwan said, a display of strength that underscored Chinese demands for unification.`\
-https://nytimes.com/2021/10/03/world/asia/china-taiwan-flights-airspace.html?searchResultPosition=6
+**Setting Sail on the Winding Waterways of California’s Delta**\
+`The sprawling 1,250-square-mile system of water and farmland in Northern California is a four-season destination for watersport fans and home to many riverbank communities.`\
+https://nytimes.com/2021/10/03/travel/california-delta-water.html?searchResultPosition=6
 
-**‘Saturday Night Live’ Returns With a New President Biden**\
-`James Austin Johnson, a new cast member, played the president in the cold open. “S.N.L.” also paid tribute to Norm Macdonald, the former Weekend Update anchor, who died last month.`\
-https://nytimes.com/2021/10/03/arts/television/saturday-night-live-season-premiere.html?searchResultPosition=7
+**In Their Words: Haitian Immigrants in New York Describe Perilous Escape**\
+`Dieu Nalio Chery, a photojournalist, fled Haiti after gangs threatened his life. His latest subjects are others who, like him, are far from home.`\
+https://nytimes.com/2021/10/03/nyregion/haitian-immigrants-nyc-hopes-fears.html?searchResultPosition=7
 
-**Corrections: Oct. 3, 2021**\
-`Corrections that appeared in print on Sunday, Oct. 3, 2021.`\
-https://nytimes.com/2021/10/03/pageoneplus/corrections-oct-3-2021.html?searchResultPosition=8
+**8 Things to Do in the Southwest This Fall**\
+`Hot-air balloons, sandhill cranes, haunted towns and Hatch chiles are just a few signs of fall in New Mexico and Arizona. Here’s where to look.`\
+https://nytimes.com/2021/10/03/travel/fall-things-to-do-southwest.html?searchResultPosition=8
 
-**Quotation of the Day: Sights on U.S., Migrants Flood Perilous Jungle**\
-`Quotation of the Day for Sunday, October 3, 2021.`\
-https://nytimes.com/2021/10/03/todayspaper/quotation-of-the-day-sights-on-us-migrants-flood-perilous-jungle.html?searchResultPosition=9
+**Homes That Sold for Around $450,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2021/10/03/realestate/home-sales-450000-dollars.html?searchResultPosition=9
+
+**How a Tip to Obituaries Breathed New Life Into a Decades-Old Mystery**\
+`A news assistant on the Obituaries desk describes how information he received while doing a routine part of his job set him on an investigation of a notorious 1975 kidnapping.`\
+https://nytimes.com/2021/10/03/insider/how-a-tip-to-obituaries-breathed-new-life-into-a-decades-old-mystery.html?searchResultPosition=10
 
