@@ -1,4 +1,4 @@
-**Jordan King Among Leaders Accused of Amassing Secret Property Empire**\
+**Jordan’s King Among Leaders Accused of Amassing Secret Property Empire**\
 `A leak of nearly 12 million files suggested King Abdullah II was among 35 current and former leaders to use secret shell companies to hide their wealth.`\
 https://nytimes.com/2021/10/03/world/middleeast/jordan-king-among-leaders-accused-of-amassing-secret-property-empire.html?searchResultPosition=1
 
