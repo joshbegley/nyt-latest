@@ -1,40 +1,40 @@
-**They Helped Build Modern India but Are Shrinking as a Race**\
+**What Happens When the Last Jew Leaves Afghanistan**\
+`Stories about the end of diversity aren't charming. `\
+https://nytimes.com/2021/10/03/opinion/last-jew-afghanistan-zebulon-simentov.html?searchResultPosition=1
+
+**Skateboards, Climate Change and Freedom: Germany’s Next-Generation Parliament**\
+`A new generation of lawmakers is entering Germany’s Parliament. They felt ignored by the previous government, so they set out to change that by winning elections.`\
+https://nytimes.com/2021/10/03/world/europe/germany-elections-young-voters-greens.html?searchResultPosition=2
+
+**Protests Are Taking Over the World. What’s Driving Them?**\
+`Growing economic inequality, climate change and Covid-19. People are demanding a fundamental rethinking of the social contract.`\
+https://nytimes.com/2021/10/03/opinion/covid-protests-world-whats-driving-them.html?searchResultPosition=3
+
+**Don’t Let Amazon Eat the Film Industry**\
+`Unlike any other streamer, Amazon brings hundreds of billions of dollars in revenue and the power of a vast network of other lines of business to the fight.`\
+https://nytimes.com/2021/10/03/opinion/amazon-antitrust-movies.html?searchResultPosition=4
+
+**I Used to Look Up to Elizabeth Holmes**\
+`The Theranos founder has turned out to be a symbol of how far we haven’t come.`\
+https://nytimes.com/2021/10/03/opinion/elizabeth-holmes-theranos.html?searchResultPosition=5
+
+**Want to Change the World? First, Be Still.**\
+`Advocacy for the oppressed requires action — but also silence and contemplation.`\
+https://nytimes.com/2021/10/03/opinion/prayer-silence-activism.html?searchResultPosition=6
+
+**What to Cook This Week**\
+`Thoughts on hollandaise, and recipes for the coming days.`\
+https://nytimes.com/2021/10/03/dining/what-to-cook-this-week.html?searchResultPosition=7
+
+**They Helped Build Modern India but Are ‘Shrinking’ as a Race**\
 `Parsis have supported many of the country’s institutions and nurtured business and the arts. But their numbers have dwindled at an alarming pace.`\
-https://nytimes.com/2021/10/03/world/asia/india-parsi.html?searchResultPosition=1
+https://nytimes.com/2021/10/03/world/asia/india-parsi.html?searchResultPosition=8
 
 **Israel will require a booster shot to be considered fully vaccinated.**\
 `The vaccination passports of more than a million people will soon be canceled if they don’t get a booster or show that they recently had Covid.`\
-https://nytimes.com/2021/10/03/world/israel-covid-booster.html?searchResultPosition=2
+https://nytimes.com/2021/10/03/world/israel-covid-booster.html?searchResultPosition=9
 
 **The Week in Business: Facebook Under Pressure and Ozy Media Shuts Down**\
 `Facebook  postponed the start of its “Instagram Kids” product and a  Ozy Media shut down, just five days after a report raised questions about its business strategy. `\
-https://nytimes.com/2021/10/03/business/the-week-in-business-facebook-ozy-media.html?searchResultPosition=3
-
-**In ‘Alma’s Way,’ a Young Latina Thinks for Herself, Like Her Creator**\
-`Set in the Bronx, the new PBS Kids’ show from Sonia Manzano, who played Maria on “Sesame Street,” promotes diversity and critical thinking.`\
-https://nytimes.com/2021/10/03/arts/television/almas-way-pbs-sonia-manzano.html?searchResultPosition=4
-
-**Breast Implant Company’s Sponsorship of Women’s Chess Draws Backlash**\
-`The International Chess Federation’s partnership with Establishment Labs touched off criticism in the chess world, where women say they have long faced unequal treatment and misogyny.`\
-https://nytimes.com/2021/10/03/us/womens-chess-sponsor-breast-implants.html?searchResultPosition=5
-
-**Diapers Are the Latest Pandemic Shortage**\
-`A police bulletin seeking information on a man recorded shoplifting packages of diapers drew fresh attention to a continuing crisis of access to the product, according to the National Diaper Bank Network.`\
-https://nytimes.com/2021/10/03/us/diaper-need-walmart-shoplifting.html?searchResultPosition=6
-
-**A Bag Returns From the Year 2000**\
-`Valentino pulls from its feathered archives as Paris Fashion Week marches on.`\
-https://nytimes.com/2021/10/03/style/handbag-valentino-paris-fashion-week.html?searchResultPosition=7
-
-**The Slugging Rays Find Yet Another Way to Be Different**\
-`With a low payroll that requires some trade-offs, Tampa Bay leads the majors in runs despite leading the A.L. in strikeouts.`\
-https://nytimes.com/2021/10/03/sports/baseball/tampa-bay-rays-offense.html?searchResultPosition=8
-
-**What’s Going On in This Picture? | Oct. 4, 2021**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2021/10/03/learning/whats-going-on-in-this-picture-oct-4-2021.html?searchResultPosition=9
-
-**The Yankees (Mostly) Control Their Fate on Season’s Final Day**\
-`Wins by the Yankees and the Red Sox would give both teams wild-card spots in the playoffs. A loss by either team, or both, could extend the regular season.`\
-https://nytimes.com/2021/10/03/sports/baseball/yankees-red-sox-wild-card.html?searchResultPosition=10
+https://nytimes.com/2021/10/03/business/the-week-in-business-facebook-ozy-media.html?searchResultPosition=10
 
