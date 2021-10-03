@@ -18,7 +18,7 @@ https://nytimes.com/2021/10/02/crosswords/daily-puzzle-2021-10-03.html?searchRes
 `Ms. Marcano, a 19-year-old college student in Orlando, Fla., was last seen on Sept. 24.`\
 https://nytimes.com/2021/10/02/us/miya-marcano-body-found-tymber-skan-apartments.html?searchResultPosition=6
 
-**Senate Sends Bill to Biden Ending Furlough of 3,700 Transportation Workers**\
+**Biden Signs Bill Ending Furlough of 3,700 Transportation Workers**\
 `The measure, which extends expiring transportation programs for a month, had originally been part of a $1 trillion infrastructure bill that stalled in the House this week.`\
 https://nytimes.com/2021/10/02/us/congress-transportation-furlough-sinema.html?searchResultPosition=7
 
