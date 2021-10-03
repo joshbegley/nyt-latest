@@ -26,7 +26,7 @@ https://nytimes.com/2021/10/03/opinion/prayer-silence-activism.html?searchResult
 `Thoughts on hollandaise, and recipes for the coming days.`\
 https://nytimes.com/2021/10/03/dining/what-to-cook-this-week.html?searchResultPosition=7
 
-**They Helped Build Modern India but Are ‘Shrinking’ as a Race**\
+**They Helped Build Modern India but Are Shrinking as a Race**\
 `Parsis have supported many of the country’s institutions and nurtured business and the arts. But their numbers have dwindled at an alarming pace.`\
 https://nytimes.com/2021/10/03/world/asia/india-parsi.html?searchResultPosition=8
 
