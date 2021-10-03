@@ -1,5 +1,5 @@
 **Blinken Faces an Awkward Visit to Paris, His ‘Second Home’**\
-`The secretary of state’s close ties with France will be valuable in smoothing over the diplomatic spat over a U.S. submarine deal with Australia.`\
+`The secretary of state’s close ties with France will be valuable in smoothing over the diplomatic spat last month over a U.S. submarine deal with Australia.`\
 https://nytimes.com/2021/10/03/us/politics/antony-blinken-france-submarine.html?searchResultPosition=1
 
 **If Men Needed the Abortions …**\
