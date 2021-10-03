@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/03/sports/football/nfl-week-4-scores.html?searchResultPosition=1
 
 **Saints Finally Return Home, to a City That Needed Them**\
-`The team evacuated New Orleans on Aug. 28, the day before Hurricane Ida made landfall, and returned to play its first true home game, a 27-21 loss to the Giants.`\
+`The team evacuated New Orleans on Aug. 28, the day before Hurricane Ida made landfall, and returned to play its first true home game of the season, a 27-21 loss to the Giants.`\
 https://nytimes.com/2021/10/03/sports/football/new-orleans-saints-home-superdome.html?searchResultPosition=2
 
 **Angelo Codevilla, Whose Writings Anticipated Trumpism, Dies at 78**\
