@@ -2,7 +2,7 @@
 `Wallace’s NASCAR Cup win was the first by a Black driver since 1963 and also the inaugural victory in the sport’s top series for Michael Jordan, the co-owner of Wallace’s team.`\
 https://nytimes.com/2021/10/04/sports/autoracing/nascar-bubba-wallace-talladega.html?searchResultPosition=1
 
-**Rome Mayor Loses Re-Election Bid, a Defeat for Five Star Movement**\
+**Rome Mayor Loses Re-election Bid, a Defeat for Five Star Movement**\
 `In five years in office, Virginia Raggi failed to stem the dysfunction of Italy’s capital, where voters will choose between two of her rivals in a runoff.`\
 https://nytimes.com/2021/10/04/world/europe/rome-mayor-virginia-raggi.html?searchResultPosition=2
 
