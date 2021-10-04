@@ -4,7 +4,7 @@ https://nytimes.com/video/world/asia/100000008006778/new-zealand-covid-zero-stra
 
 **Ozy Media is ‘going to open for business,’ its chief executive says.**\
 `Carlos Watson, the company’s head, said in an interview on NBC’s “Today” show that Ozy is having ‘a Lazarus moment.’`\
-https://nytimes.com/2021/10/04/business/ozy-media-is-going-to-open-for-business-its-chief-executive-says.html?searchResultPosition=2
+https://nytimes.com/2021/10/04/business/ozy-media-carlos-watson.html?searchResultPosition=2
 
 **Did Death Cheat Stephen Hawking of a Nobel Prize?**\
 `A recent study of black holes confirmed a fundamental prediction that the theoretical physicist made nearly five decades ago. But the ultimate award is beyond his reach.`\
