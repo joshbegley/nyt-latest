@@ -1,6 +1,6 @@
 **Swing Today: ‘Our Dance Is Modern Because We’re Alive Right Now’**\
 `Caleb Teicher’s “Sw!ng Out” at the Joyce Theater aims to bring swing onstage as it lives today in a program that’s part variety show, part hangout.`\
-https://nytimes.com/2021/10/04/arts/dance/04caleb-teicher-swing-out.html?searchResultPosition=2
+https://nytimes.com/2021/10/04/arts/dance/caleb-teicher-swing-out.html?searchResultPosition=2
 
 **Like Captain Kirk, William Shatner Will Travel to Space (Almost)**\
 `It’s only the edge of space, but the man who played the “Star Trek” captain is heading there with three other people for Blue Origin’s second flight with passengers.`\
