@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/04/technology/twitter-facebook-down.html?searchResul
 `The chairman of the New York State Democratic Party endorsed Gov. Kathy Hochul, contending that a multicandidate primary in 2022 could damage the party.`\
 https://nytimes.com/2021/10/04/nyregion/hochul-james-governor.html?searchResultPosition=9
 
-**One Justice Missing and Only One Masked, the Supreme Court Returns**\
-`As a term packed with major cases begins, much has changed since the last in-person arguments took place in March 2020.`\
-https://nytimes.com/2021/10/04/us/politics/supreme-court-returns.html?searchResultPosition=10
+**Pfizer vaccine provides 90 percent protection against hospitalization for six months, study finds.**\
+`The findings, which also document a waning of protection against infection, come as officials debate the necessity and timing of booster shots.`\
+https://nytimes.com/2021/10/04/science/pfizer-vaccine-hospitalization-study.html?searchResultPosition=10
 
