@@ -6,7 +6,7 @@ https://nytimes.com/video/us/100000008007710/china-trade-katherine-tai.html?sear
 `Alaska’s doctors are forced to ration care.`\
 https://nytimes.com/2021/10/04/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=2
 
-**Facebook coming back online after lengthy outage.**\
+**Facebook begins coming back online after a lengthy outage.**\
 `A spokesman cautioned that it would take some time for all of the apps, including Instagram and WhatsApp, to stabilize.`\
 https://nytimes.com/2021/10/04/technology/facebook-back-online.html?searchResultPosition=3
 
