@@ -1,6 +1,6 @@
 **Venice, Overwhelmed by Tourists, Tries Tracking Them**\
 `Can cellphone data and surveillance cameras help restore the city’s old-world charm, or just destroy what magic remains?`\
-https://nytimes.com/2021/10/04/world/europe/venice-overwhelmed-by-tourists-tries-tracking-them.html?searchResultPosition=1
+https://nytimes.com/2021/10/04/world/europe/venice-tourism-surveillance.html?searchResultPosition=1
 
 **These Online Publications Are Not Free … and Readers Don’t Mind**\
 `Defector, The Daily Memphian, The Dispatch and other outlets of recent vintage are driving a shift in the digital media business.`\
