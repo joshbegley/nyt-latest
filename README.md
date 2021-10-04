@@ -8,7 +8,7 @@ https://nytimes.com/video/us/100000008008019/de-blasio-cardona-teacher-vaccinati
 
 **Drake Edged Out of No. 1 Spot by YoungBoy Never Broke Again**\
 `“Sincerely, Kentrell” narrowly beat Drake’s “Certified Lover Boy” to earn this Louisiana rapper his fourth Billboard chart-topping album in two years.`\
-https://nytimes.com/2021/10/04/arts/music/youngboy-passes-drake-for-top-album-spot.html?searchResultPosition=3
+https://nytimes.com/2021/10/04/arts/music/youngboy-drake-billboard.html?searchResultPosition=3
 
 **Bubba Wallace Gets a Breakthrough NASCAR Victory at Talladega**\
 `Wallace’s NASCAR Cup win was the first by a Black driver since 1963 and also the inaugural victory in the sport’s top series for Michael Jordan, the co-owner of Wallace’s team.`\
