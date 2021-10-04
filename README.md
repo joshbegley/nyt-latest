@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/04/sports/autoracing/bubba-wallace-talladega-nascar.
 
 **Rome Mayor Loses Re-Election Bid, a Defeat for Five Star Movement**\
 `In five years in office, Virginia Raggi failed to stem the dysfunction of Italy’s capital, where voters will choose between two of her rivals in a runoff.`\
-https://nytimes.com/2021/10/04/world/europe/rome-mayor-loses-re-election-bid-a-defeat-for-five-star-movement.html?searchResultPosition=2
+https://nytimes.com/2021/10/04/world/europe/rome-mayor-virginia-raggi.html?searchResultPosition=2
 
 **Pope Urges Clemency for Missouri Death Row Prisoner**\
 `Ernest L. Johnson, 61, is scheduled to be executed on Tuesday for killing three convenience store employees during a robbery in 1994. Supporters say his intellectual disabilities make the execution unconstitutional.`\
