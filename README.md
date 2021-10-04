@@ -26,8 +26,8 @@ https://nytimes.com/interactive/2021/10/03/world/americas/mexico-missing-people.
 `The exuberant queenhood-is-powerful pageant about the wives of Henry VIII was shut down on opening night by the pandemic. Now it’s back, and it totally rules.`\
 https://nytimes.com/2021/10/03/theater/six-review-broadway.html?searchResultPosition=7
 
-**Tom Brady Sets N.F.L. Career Passing Record in Win Over New England**\
-`Brady, the Tampa Bay Buccaneers’ quarterback, returned to New England for the first time since leaving and surpassed Drew Brees’s mark on a first-quarter play.`\
+**Tom Brady Sets N.F.L. Career Passing Record as Buccaneers Beat Patriots**\
+`Brady returned to New England for the first time since leaving for Tampa Bay. He did not throw a touchdown, but he left with a record and a victory.`\
 https://nytimes.com/2021/10/03/sports/football/brady-bucs-patriots-belichick.html?searchResultPosition=8
 
 **Whistle-Blower Says Facebook ‘Chooses Profits Over Safety’**\
