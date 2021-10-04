@@ -1,6 +1,6 @@
 **Nobel Prize Awarded to Scientists for Research About Temperature and Touch**\
 `David Julius and Ardem Patapoutian were honored for their discoveries about how heat, cold and touch can initiate signals in the nervous system.`\
-https://nytimes.com/2021/10/04/health/nobel-prize-medicine.html?searchResultPosition=1
+https://nytimes.com/2021/10/04/health/nobel-prize-medicine-physiology-temperature-touch.html?searchResultPosition=1
 
 **How Much Do You Know About Syria?**\
 `Can you find Syria on a map? What else do you know about this Middle Eastern nation with a population of 17 million people?`\
