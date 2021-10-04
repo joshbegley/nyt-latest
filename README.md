@@ -15,7 +15,7 @@ https://nytimes.com/2021/10/03/business/media/ozy-media-investors.html?searchRes
 https://nytimes.com/2021/10/03/sports/baseball/yankees-red-sox-wild-card-game.html?searchResultPosition=4
 
 **What We Learned From Week 4 of the N.F.L. Season**\
-`Cowboys quarterback Dak Prescott is sitting on top of Jerry’s World and Kirk Cousins reverted to form with the Vikings.`\
+`Cowboys quarterback Dak Prescott is sitting on top of Jerry’s World, the Giants got an instructive win, and Kirk Cousins reverted to form in the Vikings’ loss.`\
 https://nytimes.com/2021/10/03/sports/football/nfl-week-4-scores.html?searchResultPosition=5
 
 **Saints Finally Return Home, to a City That Needed Them**\
