@@ -22,7 +22,7 @@ https://nytimes.com/2021/10/04/business/wto-global-trade-forecasts-vaccine.html?
 `The actor bought a wooden boat on a whim. It has taken him on a journey.`\
 https://nytimes.com/2021/10/04/style/matthew-rhys-boat.html?searchResultPosition=6
 
-**England simplifies its international Covid travel rules.**\
+**England’s international Covid travel rules have been simplified.**\
 `The change, which came into force on Monday, replaced a traffic light-inspired system with a single “red” list of places that present the highest virus risk.`\
 https://nytimes.com/2021/10/04/world/europe/england-travel-restrictions.html?searchResultPosition=7
 
