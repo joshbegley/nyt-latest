@@ -1,5 +1,5 @@
 **Biden and the Democratic Standoff Over Spending Bills**\
-`Readers offer different perspectives on who’s at fault and how Democrats should come to agreement on infrastructure bills. Also: The Supreme Court's task.`\
+`Readers offer different perspectives on who’s at fault and how Democrats should come to agreement. Also: The Supreme Court's task.`\
 https://nytimes.com/2021/10/04/opinion/letters/biden-democrats-spending-bills.html?searchResultPosition=1
 
 **Elizabeth Warren Calls for an Insider Trading Inquiry at the Fed**\
