@@ -8,7 +8,7 @@ https://nytimes.com/2021/10/04/world/europe/rome-mayor-virginia-raggi.html?searc
 
 **Pope Urges Clemency for Missouri Death Row Prisoner**\
 `Ernest L. Johnson, 61, is scheduled to be executed on Tuesday for killing three convenience store employees during a robbery in 1994. Supporters say his intellectual disabilities make the execution unconstitutional.`\
-https://nytimes.com/2021/10/04/us/ernest-lee-johnson-execution.html?searchResultPosition=3
+https://nytimes.com/2021/10/04/us/pope-francis-ernest-lee-johnson-execution.html?searchResultPosition=3
 
 **How Do You Win a Do-or-Die Game in Fenway? These Guys Know.**\
 `In 1978, Bucky Dent and Ron Guidry stepped up to lead the Yankees past the Red Sox and into the playoffs. Lessons they learned that day can translate for the current club.`\
