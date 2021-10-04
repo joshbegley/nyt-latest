@@ -30,7 +30,7 @@ https://nytimes.com/video/us/100000008007710/china-trade-katherine-tai.html?sear
 `Alaska’s doctors are forced to ration care.`\
 https://nytimes.com/2021/10/04/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=8
 
-**Facebook begins coming back online after a lengthy outage.**\
-`A spokesman cautioned that it would take some time for all of the apps, including Instagram and WhatsApp, to stabilize.`\
-https://nytimes.com/2021/10/04/technology/facebook-back-online.html?searchResultPosition=9
+**Guggenheim Gets New Chairman, and Second Ever Black Female Trustee**\
+`‭The museum’s board will be led by the financier J. Tomilson Hill and joined by the poet Claudia Rankine.`\
+https://nytimes.com/2021/10/04/arts/design/guggenheim-board-tomilson-hill-claudia-rankine.html?searchResultPosition=10
 
