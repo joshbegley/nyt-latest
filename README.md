@@ -10,13 +10,13 @@ https://nytimes.com/slideshow/2021/10/04/realestate/what-you-get-for-2-2-million
 `At Givenchy and Lanvin, the recent past is the reference.`\
 https://nytimes.com/2021/10/04/style/givenchy-lanvin-spring-2022.html?searchResultPosition=3
 
+**With Their Season on the Line, the Yankees Go to Their Go-to Guy**\
+`Gerrit Cole is known by his teammates as a student of the game. In a do-or-die game against Boston, the Yankees hope their $324 million ace has studied carefully.`\
+https://nytimes.com/2021/10/04/sports/baseball/gerrit-cole-yankees.html?searchResultPosition=4
+
 **National Endowment for the Humanities Awards Covid Relief Grants**\
 `The American Rescue Plan Act, with its $87.8 million in funding, will support projects at nearly 300 cultural and educational institutions in the country.`\
-https://nytimes.com/2021/10/04/arts/music/national-endowment-for-the-humanities-awards-covid-relief-grants.html?searchResultPosition=4
-
-**With Their Season on the Line, the Yankees Go to Their Go-To Guy**\
-`Gerrit Cole is known by his teammates as a student of the game. In a do-or-die game against Boston, the Yankees hope their $324 million ace has studied carefully.`\
-https://nytimes.com/2021/10/04/sports/baseball/gerrit-cole-yankees.html?searchResultPosition=5
+https://nytimes.com/2021/10/04/arts/music/national-endowment-for-the-humanities-awards-covid-relief-grants.html?searchResultPosition=5
 
 **A New ‘Pal Joey’ Is Broadway Bound**\
 `The show will be rewritten for a production set on the South Side of Chicago in the 1940s, directed by Tony Goldwyn and Savion Glover.`\
