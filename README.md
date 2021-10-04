@@ -6,8 +6,8 @@ https://nytimes.com/video/world/asia/100000008006778/new-zealand-covid-zero-stra
 `Carlos Watson, the company’s head, said in an interview on NBC’s “Today” show that Ozy is having ‘a Lazarus moment.’`\
 https://nytimes.com/2021/10/04/business/ozy-media-is-going-to-open-for-business-its-chief-executive-says.html?searchResultPosition=2
 
-**A Nobel Prize That Might Have Been**\
-`A recent study of black holes has confirmed a fundamental prediction made by Stephen Hawking nearly five decades ago. But the ultimate award is out of his reach.`\
+**Did Death Cheat Stephen Hawking of a Nobel Prize?**\
+`A recent study of black holes confirmed a fundamental prediction that the theoretical physicist made nearly five decades ago. But the ultimate award is beyond his reach.`\
 https://nytimes.com/2021/10/04/science/hawking-nobel-black-hole.html?searchResultPosition=3
 
 **Todd Akin, Whose Senate Bid Collapsed After a Rape Remark, Dies at 74**\
