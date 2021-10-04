@@ -6,7 +6,7 @@ https://nytimes.com/2021/10/03/arts/television/damian-lewis-billions-finale.html
 `The walls close in on Bobby as Chuck sharpens his knives. Then an unlikely ally intervenes.`\
 https://nytimes.com/2021/10/03/arts/television/billions-recap-season-5-finale.html?searchResultPosition=2
 
-**Gone**\
+**In Mexico, Nearly 100,000 People Are Missing**\
 `Nearly 100,000 people have disappeared in Mexico. Their families now search for clues among the dead.`\
 https://nytimes.com/interactive/2021/10/03/world/americas/mexico-missing-people.html?searchResultPosition=3
 
