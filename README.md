@@ -19,7 +19,7 @@ https://nytimes.com/2021/10/03/learning/word-of-the-day-lugubrious.html?searchRe
 https://nytimes.com/2021/10/03/briefing/supreme-court-germany-parliament.html?searchResultPosition=5
 
 **China Evergrande’s Shares Halted as Doubts Swirl**\
-`The property giant owes billions of dollars in debt, and investors worry that any collapse could hit broader markets.`\
+`The property giant, which cited a pending “major transaction,” owes billions. Investors worry that a collapse could hit broader markets.`\
 https://nytimes.com/2021/10/03/business/china-evergrande-trading-halt.html?searchResultPosition=6
 
 **Damian Lewis Discusses the Future of ‘Billions’**\
