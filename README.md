@@ -16,7 +16,7 @@ https://nytimes.com/2021/10/04/business/tesla-battery-safety.html?searchResultPo
 
 **Thailand’s Quarantine-Island Experiment Is Showing (Modest) Results**\
 `Phuket, a resort island where vaccinated people who test negative for the coronavirus can roam freely, is starting to see some life return to its tourism industry.`\
-https://nytimes.com/2021/10/04/world/asia/thailand-phuket-sandbox.html?searchResultPosition=5
+https://nytimes.com/2021/10/04/world/asia/thailand-phuket-covid-quarantine.html?searchResultPosition=5
 
 **Lovely Warren, Troubled Rochester Mayor, to Resign in Plea Deal**\
 `Lovely Warren will leave office early as part of a plea deal on campaign finance violations. The deal also resolves gun charges against her.`\
