@@ -36,5 +36,5 @@ https://nytimes.com/2021/10/04/us/how-californians-view-abortion.html?searchResu
 
 **Carlisle Floyd: Artists Share Memories of a Composer**\
 `The writer of “Susannah” and other operas is remembered by a tenor, a conductor and an impresario who worked closely with him.`\
-https://nytimes.com/2021/10/04/arts/music/carlisle-floyd-artists-share-memories-of-a-composer.html?searchResultPosition=10
+https://nytimes.com/2021/10/04/arts/music/carlisle-floyd-composer-remembered.html?searchResultPosition=10
 
