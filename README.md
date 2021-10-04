@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2021/us/northern-mariana-islands-covid-cases.htm
 `See the latest charts and maps of coronavirus cases, deaths, hospitalizations and vaccinations in U.S. Virgin Islands.`\
 https://nytimes.com/interactive/2021/us/virgin-islands-covid-cases.html?searchResultPosition=5
 
-**Biden says Republicans are being ‘reckless and dangerous’ over the debt limit increase.**\
+**Biden says Republicans are being ‘reckless’ over the debt limit increase.**\
 `Mr. Biden warned Republicans “not to use procedural tricks to block us from doing the job.”`\
 https://nytimes.com/2021/10/04/business/biden-republicans-debt-limit.html?searchResultPosition=6
 
