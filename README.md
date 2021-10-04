@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/03/sports/football/brady-bucs-patriots-belichick.html?searchResultPosition=1
 
 **Whistle-Blower Says Facebook ‘Chooses Profits Over Safety’**\
-`Frances Haugen, a former Facebook product manager, revealed that she had provided internal company documents to journalists and others.`\
+`Frances Haugen, a Facebook product manager who left the company in May, revealed that she had provided internal documents to journalists and others.`\
 https://nytimes.com/2021/10/03/technology/whistle-blower-facebook-frances-haugen.html?searchResultPosition=2
 
 **What They Saw in Ozy**\
