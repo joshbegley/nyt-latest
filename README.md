@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/04/arts/design/guggenheim-board-tomilson-hill-claudia-rankine.html?searchResultPosition=1
 
 **Mets Part Ways With Manager After ‘Two Extremely Trying Years’**\
-`Following a devastating August collapse, and a second straight losing season, Luis Rojas will not be back for 2022.`\
+`Following a devastating August collapse, and a second straight losing season, Luis Rojas will not return to the job for 2022.`\
 https://nytimes.com/2021/10/04/sports/baseball/luis-rojas-mets.html?searchResultPosition=2
 
 **Biden Officials End Ban on Abortion Referrals at Federally Funded Clinics**\
