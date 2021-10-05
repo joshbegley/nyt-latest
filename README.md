@@ -6,9 +6,9 @@ https://nytimes.com/2021/10/05/podcasts/the-daily/abortion-gun-rights-supreme-co
 `On Oak Island, where ‘doing it yourself’ is basically the only option, residents have their own version of Brigadoon.`\
 https://nytimes.com/2021/10/05/realestate/oak-island-long-island.html?searchResultPosition=2
 
-**Nobel Prize in Physics Awarded to Scientists Whose Work Helps Predict Global Warming**\
-`Syukuro Manabe, Klaus Hasselmann and Giorgio Parisi were honored “for groundbreaking contributions to our understanding of complex physical systems.”`\
-https://nytimes.com/2021/10/05/science/nobel-prize-physics-climate.html?searchResultPosition=3
+**Nobel Prize in Physics Awarded for Study of Humanity’s Role in Changing Climate**\
+`The work of Syukuro Manabe, Klaus Hasselmann and Giorgio Parisi “demonstrate that our knowledge about the climate rests on a solid scientific foundation,” the committee said.`\
+https://nytimes.com/2021/10/05/science/nobel-prize-physics-manabe-klaus-paris.html?searchResultPosition=3
 
 **For China’s Holidays, a Big-Budget Blockbuster Relives an American Defeat**\
 `A government-sponsored movie recounting a brutal battle in the Korean War has touched a popular nerve in China at a time of heightened tensions with the United States.`\
