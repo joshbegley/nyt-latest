@@ -1,4 +1,4 @@
-**Ozy Media is accused in a lawsuit of engaging in ‘fraudulent conduct.’**\
+**Ozy Media is accused in a lawsuit of ‘fraudulent conduct.’**\
 `A fund manager in Beverly Hills, Calif., said in the lawsuit that it had invested $2 million in Ozy after receiving assurances that the company had a “strong business performance.”`\
 https://nytimes.com/2021/10/05/business/ozy-media-securities-fraud-lawsuit.html?searchResultPosition=1
 
