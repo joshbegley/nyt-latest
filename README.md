@@ -1,6 +1,6 @@
 **‘Is it Fair? No, It’s Not Fair. Is It Fun? Absolutely.’**\
 `Teams hate the single-elimination wild-card game because the stakes are so high. But whatever you think of the format, the pull for fans is irresistible.`\
-https://nytimes.com/2021/10/05/sports/baseball/is-it-fair-no-its-not-fair-is-it-fun-absolutely.html?searchResultPosition=1
+https://nytimes.com/2021/10/05/sports/baseball/mlb-wild-card-playoffs.html?searchResultPosition=1
 
 **A Scary Energy Winter Is Coming. Don’t Blame the Greens.**\
 `Too many people could face a choice between eating and heating.`\
