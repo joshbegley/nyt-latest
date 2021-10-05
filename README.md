@@ -15,7 +15,7 @@ https://nytimes.com/2021/10/05/technology/youtube-misinformation.html?searchResu
 https://nytimes.com/2021/10/05/dining/restaurant-news-nami-nori-atlantic-grill.html?searchResultPosition=5
 
 **Parents sound off on testimony about the harms of Facebook and Instagram.**\
-`By Kellen Browning`\
+`“My daughter was damaged by Instagram,” one user tweeted.`\
 https://nytimes.com/2021/10/05/technology/parents-sound-off-on-testimony-about-the-harms-of-facebook-and-instagram.html?searchResultPosition=6
 
 **English Schools Drop Mask Mandates, but Questions Rise Along With Cases**\
