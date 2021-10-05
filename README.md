@@ -18,7 +18,7 @@ https://nytimes.com/2021/10/05/us/tomb-unknown-soldier-female.html?searchResultP
 `The dealer, Nancy Wiener, acknowledged in court that she used fake provenances to cover for the murky histories of some items she sold.`\
 https://nytimes.com/2021/10/05/arts/design/antiquities-dealer-looted-items-pleads-guilty.html?searchResultPosition=5
 
-**Democrats Lost the Most in Midwestern ‘Factory Towns’, Report Says**\
+**Democrats Lost the Most in Midwestern ‘Factory Towns,’ Report Says**\
 `The party’s struggles in communities that saw declines in manufacturing and union jobs, and health care, could more than offset its gains in metropolitan areas.`\
 https://nytimes.com/2021/10/05/us/politics/democrats-votes-midwest.html?searchResultPosition=6
 
