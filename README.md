@@ -20,7 +20,7 @@ https://nytimes.com/2021/10/05/business/accounting-firms-treasury-warren-jayapal
 
 **Coroner Finds Racism Played Part in Indigenous Woman’s Death**\
 `Bias contributed to the death of an Indigenous woman who filmed herself being abused by hospital staff, a coroner said Tuesday.`\
-https://nytimes.com/2021/10/05/world/canada/indigenous-death-joyce-echaquan.html?searchResultPosition=8
+https://nytimes.com/2021/10/05/world/canada/canada-indigenous-death-joyce-echaquan.html?searchResultPosition=8
 
 **Blinken, in Paris, Tries to Restore Trust After Submarine Snub**\
 `The American secretary of state met privately with the French foreign minister for more than an hour. But French anger remained palpable, even as both sides tried to move on.`\
