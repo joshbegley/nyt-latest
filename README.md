@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/05/nyregion/school-employees-get-their-shots.html?searchResultPosition=1
 
 **French Report Casts New Light on Sexual Abuse in Catholic Church**\
-`An independent commission laid out in detail the extent of the abuse and the failings of the church, estimating that about 216,000 minors had been abused since 1950.`\
+`An independent commission laid out in detail the extent of the problem and the church’s failure to tackle it, estimating that about 216,000 minors had been abused since 1950.`\
 https://nytimes.com/2021/10/05/world/europe/france-catholic-church-abuse.html?searchResultPosition=2
 
 **Lesson of the Day: ‘Intimate Portraits of Mexico’s Third-Gender Muxes’**\
