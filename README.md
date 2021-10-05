@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/05/us/politics/cia-informants-killed-captured.html?searchResultPosition=4
 
 **F.B.I. Raids Headquarters of the N.Y.P.D. Sergeants’ Union**\
-`Investigators executed a search warrant in connection with an ongoing inquiry, people familiar with the matter said.`\
+`Investigators also executed a search warrant at the home of the union’s president, a person familiar with the matter said.`\
 https://nytimes.com/2021/10/05/nyregion/fbi-raid-sergeants-benevolent-association-nypd.html?searchResultPosition=5
 
 **A highlight: Frances Haugen’s inside knowledge makes this hearing different.**\
