@@ -1,5 +1,5 @@
 **Engagement ranking boost, M.S.I., and more.**\
-`Here is a guide to some jargon used in the hearing.`\
+`Here is a guide to some jargon used in the Facebook whistle-blower hearing.`\
 https://nytimes.com/2021/10/05/technology/engagement-ranking-boost-msi-facebook.html?searchResultPosition=1
 
 **YouTube’s Ban on Misinformation**\
