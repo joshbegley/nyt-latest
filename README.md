@@ -1,4 +1,4 @@
-**Nobel Prize in Physics Awarded to 3 for Study of Climate**\
+**Nobel Prize in Physics Awarded to Scientists Whose Work Helps Predict Global Warming**\
 `Syukuro Manabe, Klaus Hasselmann and Giorgio Parisi were honored “for groundbreaking contributions to our understanding of complex physical systems.”`\
 https://nytimes.com/2021/10/05/science/nobel-prize-physics-climate.html?searchResultPosition=1
 
