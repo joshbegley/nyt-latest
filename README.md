@@ -8,7 +8,7 @@ https://nytimes.com/2021/10/05/arts/music/roberto-roena-dead.html?searchResultPo
 
 **Arizona Could Lose Relief Funds for Undermining School Mask Mandates**\
 `The Treasury Department warned Gov. Doug Ducey that he was misusing money that was meant to combat the coronavirus.`\
-https://nytimes.com/2021/10/05/us/politics/arizona-covid-relief-funds-mask-mandates.html?searchResultPosition=3
+https://nytimes.com/2021/10/05/us/politics/arizona-relief-funds-mask-mandates.html?searchResultPosition=3
 
 **Justice Dept. Will Address ‘Disturbing Spike’ in Threats Against School Personnel**\
 `The announcement came after groups representing school administrators requested federal help in response to a wave of threats over issues such as mask mandates and teaching about racism.`\
