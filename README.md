@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/05/arts/music/brandi-carlile-in-these-silent-days-review.html?searchResultPosition=2
 
 **Texas Board Recommends Posthumous Pardon for George Floyd**\
-`The 2004 conviction in a case brought by a discredited narcotics officer in Houston will be set aside, if the governor approves.`\
+`The 2004 conviction, which was brought by a former Houston narcotics officer now at the center of a policing scandal, will be set aside, if the governor approves.`\
 https://nytimes.com/2021/10/05/us/george-floyd-pardon-texas.html?searchResultPosition=3
 
 **Facebook’s outage frustrates advertisers heading into the holiday season.**\
