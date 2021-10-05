@@ -11,8 +11,8 @@ https://nytimes.com/2021/10/05/nyregion/fbi-raid-sergeants-benevolent-associatio
 https://nytimes.com/2021/10/05/technology/facebook-frances-haugen-testimony.html?searchResultPosition=3
 
 **No, there isn’t proof that the private data of 1.5 billion Facebook users is being sold by hackers.**\
-`By Ryan Mac`\
-https://nytimes.com/2021/10/05/technology/no-there-isnt-proof-that-the-private-data-of-1-5-billion-facebook-users-is-being-sold-by-hackers.html?searchResultPosition=4
+`The problem is that the breach that Ms. Blackburn referenced is largely unverified.`\
+https://nytimes.com/2021/10/05/technology/fb-hackers-data-sale.html?searchResultPosition=4
 
 **Ozy Media is accused in a lawsuit of ‘fraudulent conduct.’**\
 `A fund manager in Beverly Hills, Calif., said in the lawsuit that it had invested $2 million in Ozy after receiving assurances that the company had a “strong business performance.”`\
