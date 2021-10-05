@@ -16,7 +16,7 @@ https://nytimes.com/2021/10/05/technology/parents-sound-off-on-testimony-about-t
 
 **English Schools Drop Mask Mandates, but Questions Rise Along With Cases**\
 `England is taking more risks than many U.S. schools as a way of returning to normal. Many parents approve, but with more than 180,000 students absent in recent weeks, others question the trade off.`\
-https://nytimes.com/2021/10/05/world/europe/england-schools-masks-mandate-coronavirus.html?searchResultPosition=7
+https://nytimes.com/2021/10/05/world/europe/england-schools-masks-mandate.html?searchResultPosition=7
 
 **Brandi Carlile, Larger Than Life and Achingly Human**\
 `The singer and songwriter’s seventh album, “In These Silent Days,” realizes and polishes her ambitions.`\
