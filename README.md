@@ -1,40 +1,40 @@
+**Thune, Facebook Whistle-Blower on Engagement-Based Ranking**\
+`Senator John Thune, Republican of South Dakota, asked the Facebook whistle-blower to detail the danger of engagement-based ranking, which is used by Facebook and other social media platforms to determine which content they believe is most relevant to users’ interests.`\
+https://nytimes.com/video/technology/100000008009850/john-thune-frances-haugen-whistle-blower-facebook-engagement-based-ranking.html?searchResultPosition=1
+
+**‘Distancing Socially’ Review: Scenes from a Quarantine**\
+`Little happens in this comedy that follows Hollywood players lonely in lockdown.`\
+https://nytimes.com/2021/10/05/movies/distancing-socially-review.html?searchResultPosition=2
+
+**Justice Dept. to Weigh Prosecuting F.B.I. Agents in Nassar Case**\
+`The department said it was reviewing its initial decision to not seek charges against agents who failed to pursue sexual abuse allegations against Lawrence G. Nassar.`\
+https://nytimes.com/2021/10/05/us/politics/justice-department-fbi-larry-nassar-gymnastics.html?searchResultPosition=3
+
+**Alan Kalter, Longtime Voice of Letterman’s ‘Late Show,’ Dies at 78**\
+`Far more than just an announcer, he contributed all sorts of outlandish, incongruous comic bits to “Late Show With David Letterman.”`\
+https://nytimes.com/2021/10/05/arts/television/alan-kalter-dead.html?searchResultPosition=4
+
+**Coronavirus Briefing: What Happened Today**\
+`England’s maskless schools.`\
+https://nytimes.com/2021/10/05/us/coronavirus-today-england-schools-masks.html?searchResultPosition=5
+
+**‘My Monticello,’ by Jocelyn Nicole Johnson: An Excerpt**\
+`An excerpt from “My Monticello,” by Jocelyn Nicole Johnson`\
+https://nytimes.com/2021/10/05/books/review/my-monticello-by-jocelyn-nicole-johnson-an-excerpt.html?searchResultPosition=6
+
 **Facebook, School Masks, YoungBoy: Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/10/05/briefing/facebook-school-masks-youngboy.html?searchResultPosition=1
+https://nytimes.com/2021/10/05/briefing/facebook-school-masks-youngboy.html?searchResultPosition=7
 
 **Are you ready for the second pandemic winter?**\
 `Tell us how you’re approaching the colder months.`\
-https://nytimes.com/2021/10/05/nyregion/pandemic-winter.html?searchResultPosition=2
+https://nytimes.com/2021/10/05/nyregion/pandemic-winter.html?searchResultPosition=8
 
 **The School That Aspires to Be a Basketball Factory (Not That Kind)**\
 `The Earl Monroe New Renaissance Basketball School opened its doors in September in the Bronx with an unusual focus for a charter school: career paths related to the game.`\
-https://nytimes.com/2021/10/05/sports/basketball/earl-monroe-new-renaissance-basketball-school.html?searchResultPosition=3
+https://nytimes.com/2021/10/05/sports/basketball/earl-monroe-new-renaissance-basketball-school.html?searchResultPosition=9
 
 **7 Influential Latinos Who Inspired Us**\
 `For Hispanic Heritage Month, we’re celebrating the lives of a handful of people who were instrumental in increasing the representation of Hispanic and Latino Americans.`\
-https://nytimes.com/interactive/2021/10/05/us/hispanic-heritage-month-obituaries.html?searchResultPosition=4
-
-**Facebook Whistle-Blower Urges Lawmakers to Regulate the Company**\
-`Frances Haugen, who left the social network in May and leaked internal documents, gave senators rare insight into its inner workings.`\
-https://nytimes.com/2021/10/05/technology/facebook-whistle-blower-hearing.html?searchResultPosition=5
-
-**Jury Selection in Jussie Smollett Case to Start in November**\
-`The actor is facing disorderly conduct charges related to accusations of lying to the police about a hate crime they say he staged.`\
-https://nytimes.com/2021/10/05/arts/television/jussie-smollett-jury-selection.html?searchResultPosition=6
-
-**Facebook says its outage was caused by a cascade of errors.**\
-`For more than five hours, the company’s family of apps, including Instagram and WhatsApp, were unavailable to the billions who use them.`\
-https://nytimes.com/2021/10/05/technology/facebook-outage-cause.html?searchResultPosition=7
-
-**‘We Can Do Better,’ Facebook Whistle-Blower Says**\
-`Frances Haugen, a former product manager at the company, spent hours detailing to lawmakers how the social network harmed young people. Facebook disagreed with her testimony, but said new rules for the internet were long overdue.`\
-https://nytimes.com/video/technology/100000008009702/frances-haugen-whistle-blower-facebook-testimony.html?searchResultPosition=8
-
-**Roberto Roena, Salsa Percussionist and Bandleader, Dies at 81**\
-`His albums and performances with Apollo Sound brought new complexity to the genre in the 1970s. His group was still getting the crowds dancing decades later.`\
-https://nytimes.com/2021/10/05/arts/music/roberto-roena-dead.html?searchResultPosition=9
-
-**Arizona Could Lose Relief Funds for Undermining School Mask Mandates**\
-`The Treasury Department warned Gov. Doug Ducey that he was misusing money that was meant to combat the coronavirus.`\
-https://nytimes.com/2021/10/05/us/politics/arizona-relief-funds-mask-mandates.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/10/05/us/hispanic-heritage-month-obituaries.html?searchResultPosition=10
 
