@@ -1,5 +1,5 @@
 **Roberto Roena, Salsa Percussionist and Bandleader, Dies at 81**\
-`His albums and performances with Apollo Sound brought new complexity to the genre in the 1970s. His group was still getting the crowd dancing decades later.`\
+`His albums and performances with Apollo Sound brought new complexity to the genre in the 1970s. His group was still getting the crowds dancing decades later.`\
 https://nytimes.com/2021/10/05/arts/music/roberto-roena-dead.html?searchResultPosition=1
 
 **Arizona Could Lose Relief Funds for Undermining School Mask Mandates**\
