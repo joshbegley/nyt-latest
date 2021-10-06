@@ -1,40 +1,40 @@
-**What’s Next for SoHo?**\
-`The pandemic has left SoHo the hardest-hit commercial district in the hardest-hit city, at least in the United States.`\
-https://nytimes.com/2021/10/06/nyregion/soho-pandemic-stores-rent.html?searchResultPosition=1
+**Aberdeen, N.J.: Reasonably Priced Housing Not Far From the Beach**\
+`The Monmouth County township offers an affordable alternative to nearby areas, with proximity to major highways and to the water.`\
+https://nytimes.com/2021/10/06/realestate/aberdeen-nj-reasonably-priced-housing-not-far-from-the-beach.html?searchResultPosition=1
 
-**Stephen Colbert Spoils Stephanie Grisham’s Tell-All Tidbits**\
-`Colbert joked that the former White House press secretary had titled her Trump tell-all “I Just Recently Grew a Spine.”`\
-https://nytimes.com/2021/10/06/arts/television/stephen-colbert-spoils-stephanie-grishams-tell-all-tidbits.html?searchResultPosition=2
+**Clint and Ron Howard Remember When They Were Just ‘The Boys’**\
+`In a new memoir, the showbiz siblings recall their experiences growing up on “The Andy Griffith Show,” “Star Trek” and other Hollywood classics. But they weren’t all happy days.`\
+https://nytimes.com/2021/10/06/books/clint-howard-ron-howard-memoir.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Skateboarding’s Cardinal Rule: Dare to Be You’**\
-`In this lesson, students will explore how skateboarding celebrates individualism and builds community. Then they will describe and document what community looks like in their lives.`\
-https://nytimes.com/2021/10/06/learning/lesson-of-the-day-skateboardings-cardinal-rule-dare-to-be-you.html?searchResultPosition=3
+**New Zealand will hold an ‘Election Day’-style vaccination event.**\
+`The hope, for a single Saturday, amounts to vaccinating about one in 12 of those eligible for a shot, and one in 15 of the total population.`\
+https://nytimes.com/2021/10/06/world/asia/new-zealand-vaccine-day.html?searchResultPosition=3
 
-**Behind the Global Appeal of ‘Squid Game,’ a Country’s Economic Unease**\
-`The dystopian Netflix hit taps South Korea’s worries about costly housing and scarce jobs, concerns familiar to its U.S. and international viewers.`\
-https://nytimes.com/2021/10/06/business/economy/squid-game-netflix-inequality.html?searchResultPosition=4
+**How the ‘Succession’ Star Nicholas Braun Elevates Cousin Greg**\
+`On the cutthroat HBO comedy-drama, which returns Oct. 17, Braun and his hopelessly unprepared alter ego are thriving.`\
+https://nytimes.com/2021/10/06/arts/television/succession-nicholas-braun.html?searchResultPosition=4
 
-**Germany Sets Aside an Additional $767 Million for Holocaust Survivors, Officials Say**\
-`Many of those now eligible for reparations are Russian Jews who survived the Nazi siege of Leningrad. They will receive annual pensions of about $5,200, or 4,500 euros.`\
-https://nytimes.com/2021/10/06/world/europe/holocaust-settlement-germany.html?searchResultPosition=5
+**Anatomy of a Monique Lhuillier Gown**\
+`On this, the designer’s 25th anniversary year, she breaks down her process, from sourcing the lace to landing the hand-finished product in the hands of the bride.`\
+https://nytimes.com/2021/10/06/style/monique-lhuillier-bridal-fashion.html?searchResultPosition=5
 
-**A Star Corporate Lawyer Now Set to Take On Corporate America**\
-`How Jonathan Kanter, the Biden administration’s choice to be the Justice Department’s antitrust chief, became a progressive foe of Big Tech.`\
-https://nytimes.com/2021/10/06/technology/biden-jonathan-kanter-big-tech.html?searchResultPosition=6
+**It’s Time to Stop Paying for a VPN**\
+`Many virtual private network services that were meant to protect your web browsing can no longer be trusted. Here are other ways.`\
+https://nytimes.com/2021/10/06/technology/personaltech/are-vpns-worth-it.html?searchResultPosition=6
 
-**Can You Imagine Bill de Blasio as Governor? He Can.**\
-`A run for higher office by New York City’s mayor might be viewed skeptically across the state, but he says he wants to remain in public life.`\
-https://nytimes.com/2021/10/06/nyregion/bill-deblasio-governor.html?searchResultPosition=7
+**Laurie Anderson Has a Message for Us Humans**\
+`For half a century, she has taken the things we know best— our bodies, our rituals, our nation — and shown us how strange they really are.`\
+https://nytimes.com/2021/10/06/magazine/laurie-anderson.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/06/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Sex, Drugs and Roller Skates**\
+`A new book pays tribute to the vanished magic of Flipper’s, a storied if short-lived 1970s skate palace.`\
+https://nytimes.com/2021/10/06/style/flippers-los-angeles-roller-boogie-palace.html?searchResultPosition=8
 
-**Facebook Outage**\
-`How were you and the people you know affected when Facebook, Instagram and WhatsApp were inaccessible for hours this week?`\
-https://nytimes.com/2021/10/06/learning/facebook-outage.html?searchResultPosition=9
+**A Trial About Wealth, Privilege and the Murkiness of College Admissions**\
+`In closing arguments, prosecutors want to focus on bribes, but the ways in which universities cater to rich families is also on trial.`\
+https://nytimes.com/2021/10/06/us/varsity-blues-college-admissions-trial-usc.html?searchResultPosition=9
 
-**Word of the Day: noxious**\
-`This word has appeared in 70 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/06/learning/word-of-the-day-noxious.html?searchResultPosition=10
+**Trump True Believers Have Their Reasons**\
+`One third of Americans still think Biden’s victory in 2020 was illegitimate. What gives?`\
+https://nytimes.com/2021/10/06/opinion/trump-voters-2020-election.html?searchResultPosition=10
 
