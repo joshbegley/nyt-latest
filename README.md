@@ -1,6 +1,6 @@
 **Break the Fourth Wall**\
 `Jules Markey’s puzzle is for the birds.`\
-https://nytimes.com/2021/10/05/crosswords/daily-puzzle-2021-10-05.html?searchResultPosition=1
+https://nytimes.com/2021/10/05/crosswords/daily-puzzle-2021-10-06.html?searchResultPosition=1
 
 **Indian Health Service ‘Willfully Ignored’ Sexual Abuse by Doctor, Report Finds**\
 `The independent inquiry, kept private until now, says agency leaders feared that addressing accusations of misconduct by a pediatrician would be ‘awkward.’`\
