@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/06/us/rescue-hikers-cost.html?searchResultPosition=1
 https://nytimes.com/2021/10/06/sports/baseball/yankees-red-sox.html?searchResultPosition=2
 
 **As debt default looms, White House warns of financial crisis.**\
-`“A default would send shock waves through global financial markets,” officials at the White House Council of Economic Advisers warned.`\
+`‘A default would send shock waves through global financial markets,’ officials at the White House Council of Economic Advisers warned.`\
 https://nytimes.com/2021/10/06/business/us-debt-limit-default.html?searchResultPosition=3
 
 **Sunday Routines, Highway Lines, Unplugging and More**\
