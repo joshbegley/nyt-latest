@@ -2,8 +2,8 @@
 `Senate Democrats discussed carving out an exception to the 60-vote requirement as they explore ways to overcome Republican opposition.`\
 https://nytimes.com/2021/10/05/us/politics/debt-ceiling-filibuster-biden.html?searchResultPosition=1
 
-**Yankees Rally for Wild-Card Win Over the Red Sox**\
-`Their starter, Gerrit Cole, exited with a 3-0 deficit with no outs in the third inning, but the Yankees came back to advance in the playoffs.`\
+**Yankees Are Done. Season Ends in a Wild-Card Loss to the Red Sox.**\
+`Yankees starter Gerrit Cole surrendered three runs and exited with no outs in the third inning.`\
 https://nytimes.com/2021/10/05/sports/baseball/yankees-red-sox-wild-card-playoff.html?searchResultPosition=2
 
 **Corrections: Oct. 6, 2021**\
