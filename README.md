@@ -1,5 +1,5 @@
 **Stephen Colbert Spoils Stephanie Grisham’s Tell-All Tidbits**\
-`Colbert joked that the former White House press secretary had titled her Trump tell-all “I Just Recently Grew a Spine.’”`\
+`Colbert joked that the former White House press secretary had titled her Trump tell-all “I Just Recently Grew a Spine.”`\
 https://nytimes.com/2021/10/06/arts/television/stephen-colbert-spoils-stephanie-grishams-tell-all-tidbits.html?searchResultPosition=1
 
 **Lesson of the Day: ‘Skateboarding’s Cardinal Rule: Dare to Be You’**\
