@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/06/realestate/how-to-grow-figs-in-a-cold-climate.htm
 https://nytimes.com/2021/10/06/us/politics/student-loan-forgiveness.html?searchResultPosition=3
 
 **Nobel Prize in Chemistry Awarded to Scientists for Creating a Tool to Build Molecules**\
-`Benjamin List and David W.C. MacMillan were honored for work that may help develop new drugs and that has already helped chemistry have less of an environmental impact.`\
+`Benjamin List and David W.C. MacMillan were honored for work that may help develop new drugs and that has already reduced the effect of chemistry on the environment.`\
 https://nytimes.com/2021/10/06/science/nobel-prize-chemistry.html?searchResultPosition=4
 
 **You Got Lost and Had to Be Rescued. Should You Pay?**\
