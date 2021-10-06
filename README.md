@@ -22,7 +22,7 @@ https://nytimes.com/video/us/politics/100000008012070/biden-debt-limit-business-
 `Three Texas tourists were arraigned on assault and harassment charges, weeks after an altercation at an Upper West Side restaurant drew widespread attention.`\
 https://nytimes.com/2021/10/06/nyregion/carmines-hostess-assault-vaccine-cards.html?searchResultPosition=6
 
-**Discovery of ‘Bulk Marijuana’ Preceded Deadly Train Shooting, U.S. Says**\
+**Discovery of ‘Bulk Marijuana’ Preceded Tucson Train Shooting, U.S. Says**\
 `Investigators say they found more than five pounds of marijuana and 50 packages of edibles before one of the suspects opened fire on federal agents in Tucson, Ariz.`\
 https://nytimes.com/2021/10/06/us/marijuana-amtrak-shooting-tucson.html?searchResultPosition=7
 
