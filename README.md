@@ -26,7 +26,7 @@ https://nytimes.com/2021/10/06/science/nobel-prize-chemistry.html?searchResultPo
 `The coronavirus pandemic sent a surge of inexperienced hikers into the wilderness. Many ran into trouble. Now states are looking to bill them for costly search and rescue operations.`\
 https://nytimes.com/2021/10/06/us/rescue-hikers-cost.html?searchResultPosition=7
 
-**The Yankees Aren’t Bad, They are Ordinary**\
+**The Yankees Aren’t Bad, They Are Ordinary**\
 `The team views itself as a top contender, and still has its fair share of stars, but the reality is setting in that their payroll and pedigree can’t push them past their rivals.`\
 https://nytimes.com/2021/10/06/sports/baseball/yankees-red-sox.html?searchResultPosition=8
 
