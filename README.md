@@ -32,7 +32,7 @@ https://nytimes.com/2021/10/06/world/americas/covax-vaccine-latin-america.html?s
 
 **Supreme Court Justices Make a Surprising Proposal in Torture Case**\
 `Twenty years after the Sept. 11 attacks, three justices said it was time to hear from the first detainee subjected to brutal interrogation by the C.I.A.`\
-https://nytimes.com/2021/10/06/us/politics/supreme-court-justices-make-a-surprising-proposal-in-torture-case.html?searchResultPosition=9
+https://nytimes.com/2021/10/06/us/politics/supreme-court-torture-abu-zubaydah.html?searchResultPosition=9
 
 **What a Trillion-Dollar Coin Can Teach Us**\
 `It may be a gimmick, but it raises profound issues about the nature of money.`\
