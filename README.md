@@ -2,7 +2,7 @@
 `Myocarditis, a rare side effect, occurs mostly after the second dose. So in some countries, officials are trying out single doses for children.`\
 https://nytimes.com/2021/10/06/health/covid-vaccine-children-dose.html?searchResultPosition=1
 
-**Barry Diller’s Dotdash Agrees to Buy the Giant Magazine Publisher Meredith**\
+**Barry Diller’s Dotdash Agrees to Buy Meredith, a Magazine Giant**\
 `People, InStyle, Entertainment Weekly and more than 40 other magazines would become part of the same company as Serious Eats and Investopedia.`\
 https://nytimes.com/2021/10/06/business/media/dotdash-buys-meredith-magazines.html?searchResultPosition=2
 
