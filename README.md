@@ -12,29 +12,25 @@ https://nytimes.com/video/world/europe/100000008011286/boris-johnson-uk-economy.
 
 **The Fight to Ban Books**\
 `Critical race theory battles hit libraries.`\
-https://nytimes.com/2021/10/06/us/the-fight-to-ban-books.html?searchResultPosition=4
+https://nytimes.com/2021/10/06/us/the-fight-to-ban-books.html?searchResultPosition=5
 
 **At Least 2 Injured in Texas High School Shooting, Official Says**\
 `Timberview High School in Arlington was on lockdown after the police received reports of a shooting at the school.`\
-https://nytimes.com/2021/10/06/us/arlington-school-shooting.html?searchResultPosition=5
+https://nytimes.com/2021/10/06/us/arlington-school-shooting.html?searchResultPosition=6
 
 **Biden plans to spend $1 billion to increase the supply of rapid at-home tests.**\
 `Tests producing results in 15 minutes have been on the market for months. They have been in short supply in the United States.`\
-https://nytimes.com/2021/10/06/us/politics/biden-rapid-covid-tests.html?searchResultPosition=6
+https://nytimes.com/2021/10/06/us/politics/biden-rapid-covid-tests.html?searchResultPosition=7
 
 **Two Winter Olympics Underdogs That Have Already Won**\
 `Actively Black will outfit Team Nigeria at the Games.`\
-https://nytimes.com/2021/10/06/style/actively-black-nigeria-olympics.html?searchResultPosition=7
+https://nytimes.com/2021/10/06/style/actively-black-nigeria-olympics.html?searchResultPosition=8
 
 **G.M. hopes to double its revenue by selling electric cars, software and services.**\
 `G.M. hopes to develop ride-hailing services that use autonomous cars, create insurance products and expand its defense contracting work.`\
-https://nytimes.com/2021/10/06/business/gm-revenue-goals.html?searchResultPosition=8
+https://nytimes.com/2021/10/06/business/gm-revenue-goals.html?searchResultPosition=9
 
 **Want to Be a City Commissioner? It Helps to Be Friendly With the Mayor.**\
 `Mayor Bill de Blasio has appointed allies who worked on his past campaigns to head New York City agencies, despite them having little relevant experience.`\
-https://nytimes.com/2021/10/06/nyregion/de-blasio-mayor-commissioners.html?searchResultPosition=9
-
-**Tyler Adams Is the Captain Now**\
-`The RB Leipzig star is too young to be stained by the U.S.’s failure to qualify for the last World Cup. But he is old enough to know it is his job to make it right.`\
-https://nytimes.com/2021/10/06/sports/soccer/tyler-adams-usmnt.html?searchResultPosition=10
+https://nytimes.com/2021/10/06/nyregion/de-blasio-mayor-commissioners.html?searchResultPosition=10
 
