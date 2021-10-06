@@ -1,40 +1,40 @@
+**‘There’s Someone Inside Your House’ Review: Problematic Secrets Exposed**\
+`This horror movie from Netflix is a muddled marriage of progressive politics and retrograde style.`\
+https://nytimes.com/2021/10/06/movies/theres-someone-inside-your-house-review.html?searchResultPosition=1
+
+**An Asylum-Seeker’s Wrenching Decision: Stay on the Run or Save His Child’s Life?**\
+`As a humanitarian crisis grows on Poland’s border, where the government has taken a hard line on migrants, one father had to decide whether to save an ailing baby girl and risk being expelled.`\
+https://nytimes.com/2021/10/06/world/europe/poland-belarus-border-crisis.html?searchResultPosition=2
+
 **Biden Administration to Restore Climate Criteria to Landmark Environmental Law**\
 `A proposed rule would require agencies to study the climate impacts of new highways, pipelines and other projects, reversing a Trump-era effort to weaken reviews.`\
-https://nytimes.com/2021/10/06/climate/climate-environmental-law-nepa.html?searchResultPosition=1
+https://nytimes.com/2021/10/06/climate/climate-environmental-law-nepa.html?searchResultPosition=3
 
 **Mic Reboots Itself, With More Pop Culture Coverage and Less Politics**\
 `Under new ownership, the online publication aimed at younger readers unveiled a revamped version of itself on Wednesday.`\
-https://nytimes.com/2021/10/06/business/media/mic-relaunch.html?searchResultPosition=2
+https://nytimes.com/2021/10/06/business/media/mic-relaunch.html?searchResultPosition=4
 
 **Australia to Shift All Offshore Processing of Migrants to Island Nation of Nauru**\
 `Australia will stop processing asylum-seekers at offshore detention centers in Papua New Guinea, which have been criticized by human rights groups, but will continue handling them on the island of Nauru.`\
-https://nytimes.com/2021/10/06/world/australia/australia-migrants-nauru-papua-new-guinea.html?searchResultPosition=3
+https://nytimes.com/2021/10/06/world/australia/australia-migrants-nauru-papua-new-guinea.html?searchResultPosition=5
 
 **A ‘potentially disastrous’ data breach hits Twitch, the livestreaming site.**\
 `Included in the breach was a list that purportedly showed how much money each of the platform’s streamers had earned in the past two years.`\
-https://nytimes.com/2021/10/06/technology/twitch-data-breach.html?searchResultPosition=4
+https://nytimes.com/2021/10/06/technology/twitch-data-breach.html?searchResultPosition=6
 
 **A Master of Mixing and Matching Movies Gets a Citywide Tribute**\
 `Amos Vogel is considered America’s seminal film programmer. The New York Film Festival and other institutions are paying their respects on his centenary.`\
-https://nytimes.com/2021/10/06/movies/amos-vogel-centenary.html?searchResultPosition=5
+https://nytimes.com/2021/10/06/movies/amos-vogel-centenary.html?searchResultPosition=7
 
 **How to Fix Facebook**\
 `This is a pivotal moment in Facebook’s history. Here are suggestions for how to improve the company.`\
-https://nytimes.com/2021/10/06/technology/facebook-fixes.html?searchResultPosition=6
+https://nytimes.com/2021/10/06/technology/facebook-fixes.html?searchResultPosition=8
 
 **James Bond Saved the World, but Can He Rescue U.K. Movie Theaters?**\
 `The 25th installment of the Bond franchise has brought record-breaking numbers of people back to British movie theaters, but pressures on the industry continue.`\
-https://nytimes.com/2021/10/06/movies/no-time-to-die-uk.html?searchResultPosition=7
+https://nytimes.com/2021/10/06/movies/no-time-to-die-uk.html?searchResultPosition=9
 
 **Robert Schiffmann, Inventive Guru of the Microwave, Dies at 86**\
 `As a scientist he saw the potential of microwave ovens when he observed one heating up a sandwich in the 1960s. Microwaveable oatmeal, among other advances, was in his future.`\
-https://nytimes.com/2021/10/06/technology/robert-schiffmann-dead.html?searchResultPosition=8
-
-**N.F.L. Punters Face a Perfect Pickle**\
-`With fewer teams opting to punt than ever, punters face more pressure to be flawless. Anything less can produce a different sort of spiral.`\
-https://nytimes.com/2021/10/06/sports/football/nfl-punts-michael-dickson.html?searchResultPosition=9
-
-**A Guide to Big Changes for Public Service Loan Forgiveness**\
-`Hundreds of thousands of borrowers with so-called F.F.E.L. student loans, people who paid late and military members could now get credit for years of payments toward erasing their debts.`\
-https://nytimes.com/article/public-service-loan-forgiveness-changes.html?searchResultPosition=10
+https://nytimes.com/2021/10/06/technology/robert-schiffmann-dead.html?searchResultPosition=10
 
