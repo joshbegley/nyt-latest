@@ -18,8 +18,8 @@ https://nytimes.com/2021/10/05/briefing/facebook-regulation-england-schools.html
 `Senate Democrats discussed carving out an exception to the 60-vote requirement as they explore ways to overcome Republican opposition.`\
 https://nytimes.com/2021/10/05/us/politics/debt-ceiling-filibuster-biden.html?searchResultPosition=6
 
-**Yankees Are Done. Season Ends in a Wild-Card Loss to the Red Sox.**\
-`Yankees starter Gerrit Cole surrendered three runs and exited with no outs in the third inning.`\
+**Yankees Are Done. A Frustrating Season Ends in a Wild-Card Loss.**\
+`Yankees starter Gerrit Cole surrendered three runs and exited with no outs in the third inning as the Boston Red Sox advanced to a division series against Tampa Bay.`\
 https://nytimes.com/2021/10/05/sports/baseball/yankees-red-sox-wild-card-playoff.html?searchResultPosition=7
 
 **Corrections: Oct. 6, 2021**\
