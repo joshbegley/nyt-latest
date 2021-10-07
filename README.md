@@ -14,7 +14,7 @@ https://nytimes.com/2021/10/07/world/middleeast/iraq-elections.html?searchResult
 `As cryptocurrency enters global finance, an experiment in El Salvador could offer clues on whether it will bring a more libertarian economy or greater government control.`\
 https://nytimes.com/2021/10/07/world/americas/bitcoin-el-salvador-bukele.html?searchResultPosition=4
 
-**Senate Leaders Agree to Short-Term Debt Ceiling Increase**\
+**Senate Leaders Agree to Vote on Short-Term Debt Ceiling Increase**\
 `The agreement avoids catastrophic consequences of a default by the federal government, but runs only through early December.`\
 https://nytimes.com/2021/10/07/us/politics/debt-ceiling-senate.html?searchResultPosition=5
 
