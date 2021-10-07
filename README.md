@@ -10,7 +10,7 @@ https://nytimes.com/2021/10/07/opinion/texas-politics-greg-abbott.html?searchRes
 `Francesco Rosi’s film, released in 1974 when Italy feared a coup d’état, remains astute analysis of corruption. A new restoration is at Film Forum.`\
 https://nytimes.com/2021/10/07/movies/illustrious-corpses-film-forum.html?searchResultPosition=3
 
-**The C.D.C. urges flu shots to avert further strain on pandemic-stretched medical workers and hospitals.**\
+**The C.D.C. urges flu shots to ease strain on pandemic-stretched hospitals.**\
 `Health officials released a survey showing that nearly one in four people at higher risk for flu-related complications indicated they did not intend to get the flu vaccine.`\
 https://nytimes.com/2021/10/07/health/cdc-flu-shot-covid.html?searchResultPosition=4
 
