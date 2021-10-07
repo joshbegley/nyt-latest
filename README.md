@@ -1,40 +1,40 @@
+**Only a fraction of U.S. health care workers are risking their jobs over vaccinations.**\
+`Large health care systems around the country say that a very small percentage of their workers have missed vaccination deadlines.`\
+https://nytimes.com/2021/10/07/science/covid-us-health-workers-vaccination.html?searchResultPosition=1
+
+**‘Madres’ and ‘The Manor’ Review: Maligned Women Uncover the Truth**\
+`Two horror films about marginalized women uncovering conspiracies join Amazon’s “Welcome to the Blumhouse” anthology series.`\
+https://nytimes.com/2021/10/07/movies/madres-the-manor-review.html?searchResultPosition=2
+
+**‘Knocking’ Review: Domestic Disturbances**\
+`A character’s suspicions about a mysterious tapping noise turn into a thriller about the horrors of isolation.`\
+https://nytimes.com/2021/10/07/movies/knocking-review.html?searchResultPosition=3
+
+**‘Golden Voices’ Review: In Tel Aviv, With an Unappreciated Talent**\
+`Two voice actors from Russia struggle for a fresh start.`\
+https://nytimes.com/2021/10/07/movies/golden-voices-review.html?searchResultPosition=4
+
+**‘Lamb’ Review: Oh No, Not My Baby!**\
+`A strange birth on an Icelandic farm bodes ill for a grieving couple in this eerie debut feature.`\
+https://nytimes.com/2021/10/07/arts/lamb-review.html?searchResultPosition=5
+
+**‘Jacinta’ Review: A Neverending Cycle of Hurt**\
+`This haunting documentary by Jessica Earnshaw traces the journey of a young woman struggling with addiction after her release from prison.`\
+https://nytimes.com/2021/10/07/movies/jacinta-review.html?searchResultPosition=6
+
+**‘Justin Bieber: Our World’ Review: A Pop Star Enshrouded**\
+`Alternating like clockwork between live numbers and soft insight dulls this documentary’s rhythm.`\
+https://nytimes.com/2021/10/07/movies/justin-bieber-our-world-review.html?searchResultPosition=7
+
+**‘Ascension’ Review: A Symphony of Productivity**\
+`The contemporary Chinese economy is examined in this unconvincing, if hypnotizing documentary by Jessica Kingdon.`\
+https://nytimes.com/2021/10/07/movies/ascension-review.html?searchResultPosition=8
+
 **Taxing the Rich**\
 `Americans strongly favor raising taxes on the rich. Why are Democrats struggling to do so?`\
-https://nytimes.com/2021/10/07/briefing/corporate-democrats-taxing-the-rich.html?searchResultPosition=1
+https://nytimes.com/2021/10/07/briefing/corporate-democrats-taxing-the-rich.html?searchResultPosition=9
 
 **Greece will allow greater freedoms for vaccinated people in areas of higher infection.**\
 `The move is part of an effort to persuade more people to get inoculated in a country with a coronavirus vaccination rate of 57 percent.`\
-https://nytimes.com/2021/10/07/world/europe/covid-greece-restrictions-vaccine.html?searchResultPosition=2
-
-**Collectors Who Caught the Bug**\
-`Volkswagen’s original Beetle, cute and petite, still thrills aficionados.`\
-https://nytimes.com/2021/10/07/business/volkswagen-vw-beetle-collectors.html?searchResultPosition=3
-
-**The State of the Pandemic**\
-`What can the U.S. expect from the coronavirus this fall? And what do we know about booster shots and a possible new treatment?`\
-https://nytimes.com/2021/10/07/podcasts/the-daily/coronavirus-booster-shots-vaccinations.html?searchResultPosition=4
-
-**Vocabulary in Context: Cauliflower Fractals**\
-`Test your vocabulary and reading comprehension with this quiz based on the Times article “Cauliflower and Chaos, Fractals in Every Floret.”`\
-https://nytimes.com/interactive/2021/10/07/learning/07VocabQuizLN.html?searchResultPosition=5
-
-**Seeking Solutions to Global Challenges**\
-`At the Athens Democracy Forum, world leaders met to discuss the challenges democratic governments face around the world`\
-https://nytimes.com/2021/10/07/world/global-challenge-solutions.html?searchResultPosition=6
-
-**Yet Another Covid Victim: Capitalism**\
-`Two economic experts from two different nations agree that the pandemic has altered the world’s economy and brought capitalism and its power into question.`\
-https://nytimes.com/2021/10/07/world/covid-pandemic-capitalism-stiglitz-berville.html?searchResultPosition=7
-
-**America’s Challenges Take Center Stage in Greece**\
-`The three-day Athens Democracy Forum confronted political challenges around the globe — not the least in the United States.`\
-https://nytimes.com/2021/10/07/business/america-democracy-challenges.html?searchResultPosition=8
-
-**Weekly Health Quiz: Hair Loss, Depression and Doctors**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2021/10/07/well/live/07healthquiz-10072021.html?searchResultPosition=9
-
-**Tesla investors will vote on whether to oust James Murdoch and Kimbal Musk from the board.**\
-`Activist shareholders have submitted five proposals to compel Tesla to disclose more information about its efforts to diversify its work force, how it handles employee disputes and its human rights record.`\
-https://nytimes.com/2021/10/07/business/tesla-shareholders-meeting-activist-investors.html?searchResultPosition=10
+https://nytimes.com/2021/10/07/world/europe/covid-greece-restrictions-vaccine.html?searchResultPosition=10
 
