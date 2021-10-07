@@ -2,7 +2,7 @@
 `Do you talk about dating with your parents? Would you let them set you up on a date?`\
 https://nytimes.com/2021/10/07/learning/should-parents-weigh-in-on-their-kids-dating-lives.html?searchResultPosition=1
 
-**Abdulrazak Gurnah Is Awarded Nobel Prize in Literature**\
+**Abdulrazak Gurnah Is Awarded the Nobel Prize in Literature**\
 `The Tanzanian writer was honored for his “uncompromising and compassionate penetration of the effects of colonialism.”`\
 https://nytimes.com/2021/10/07/books/nobel-prize-literature-abdulrazak-gurnah.html?searchResultPosition=2
 
