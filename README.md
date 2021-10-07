@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/07/business/dealbook/biden-vaccine-mandate-covid.htm
 https://nytimes.com/2021/10/07/learning/should-parents-weigh-in-on-their-kids-dating-lives.html?searchResultPosition=2
 
 **Abdulrazak Gurnah Is Awarded the Nobel Prize in Literature**\
-`The Tanzanian writer who came to Britain as a refugee in the 1960s was honored for his “uncompromising and compassionate penetration of the effects of colonialism.”`\
+`The Tanzanian writer who moved to Britain as a refugee in the 1960s was honored for his “uncompromising and compassionate penetration of the effects of colonialism.”`\
 https://nytimes.com/2021/10/07/books/nobel-prize-literature-abdulrazak-gurnah.html?searchResultPosition=3
 
 **Only a fraction of U.S. health care workers are risking their jobs over vaccinations.**\
