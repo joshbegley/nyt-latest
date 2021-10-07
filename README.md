@@ -1,40 +1,40 @@
-**A Pandemic Story: Brooklyn Tenants Who Stopped Paying Rent**\
-`Tenants at the Crown Heights building say they have to deal with leaky roofs and cockroach infestations.`\
-https://nytimes.com/2021/10/07/nyregion/a-pandemic-story-brooklyn-tenants-who-stopped-paying-rent.html?searchResultPosition=1
+**Seeking Solutions to Global Challenges**\
+`At the Athens Democracy Forum, world leaders met to discuss the challenges democratic governments face around the world`\
+https://nytimes.com/2021/10/07/world/global-challenge-solutions.html?searchResultPosition=1
 
-**Ndakasi, Gorilla Who Photobombed a Selfie, Dies in the Arms of Her Caretaker**\
-`She died at age 14 in the Democratic Republic of Congo after “a prolonged illness,” said the park where she lived.`\
-https://nytimes.com/2021/10/07/world/africa/ndakasi-the-mountain-gorilla-selfie.html?searchResultPosition=2
+**Yet Another Covid Victim: Capitalism**\
+`Two economic experts from two different nations agree that the pandemic has altered the world’s economy and brought capitalism and its power into question.`\
+https://nytimes.com/2021/10/07/world/covid-pandemic-capitalism-stiglitz-berville.html?searchResultPosition=2
 
-**The Afghan War: A Photographer’s Journal**\
-`One of the first things the New York Times photographer Tyler Hicks witnessed after arriving in Afghanistan in late 2001, soon after U.`\
-https://nytimes.com/2021/10/07/world/asia/afghanistan-war-photos.html?searchResultPosition=3
+**America’s Challenges Take Center Stage in Greece**\
+`The three-day Athens Democracy Forum confronted political challenges around the globe — not the least in the United States.`\
+https://nytimes.com/2021/10/07/business/america-democracy-challenges.html?searchResultPosition=3
 
-**How a Vaccine Mandate Could Worsen a Shortage of Home Care Aides**\
-`Some 250,000 home health care workers must get the coronavirus vaccine by Friday, but tens of thousands of them have yet to receive it.`\
-https://nytimes.com/2021/10/07/nyregion/ny-vaccine-mandate-home-care-aides.html?searchResultPosition=4
+**Weekly Health Quiz: Hair Loss, Depression and Doctors**\
+`Test your knowledge of this week’s health news.`\
+https://nytimes.com/interactive/2021/10/07/well/live/07healthquiz-10072021.html?searchResultPosition=4
 
-**Bookworms, and Book Dogs and Book Cats and Book Rabbits**\
-`A new bookstore in the East Village pays tribute to all our animal friends.`\
-https://nytimes.com/2021/10/07/style/pillow-cat-books-new-york.html?searchResultPosition=5
+**Tesla investors will vote on whether to oust James Murdoch and Kimbal Musk from the board.**\
+`Activist shareholders have submitted five proposals to compel Tesla to disclose more information about its efforts to diversify its work force, how it handles employee disputes and its human rights record.`\
+https://nytimes.com/2021/10/07/business/tesla-shareholders-meeting-activist-investors.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/07/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**The Road Back: ‘How Am I Ever Going to Dance Again?’**\
+`We talked to three New York City Ballet dancers — Megan Fairchild, Jovani Furlan and India Bradley — in the months leading up to their return to the stage.`\
+https://nytimes.com/2021/10/07/arts/dance/new-york-city-ballet-megan-fairchild-jovani-furlan-india-bradley.html?searchResultPosition=6
 
-**Seth Meyers Breaks Down Facebook’s Very Bad Week**\
-`“It’s the kind of week you normally post about on Facebook,” Meyers said on Wednesday night.`\
-https://nytimes.com/2021/10/07/arts/television/seth-meyers-facebook-whistleblower.html?searchResultPosition=7
+**The Future Farmers of France Are Tech Savvy, and Want Weekends Off**\
+`An unconventional school wants to attract a new crowd to French agriculture, and help farms earn a profit.`\
+https://nytimes.com/2021/10/07/business/france-farming-tech.html?searchResultPosition=7
 
-**Word of the Day: terra firma**\
-`This term has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/07/learning/word-of-the-day-terra-firma.html?searchResultPosition=8
+**A Thrilling Wild-Card Win Sets Up a Division Series for the Ages**\
+`The 106-win Los Angeles Dodgers took care of business in a do-or-die game against St. Louis. Their next opponent? The 107-win San Francisco Giants.`\
+https://nytimes.com/2021/10/07/sports/baseball/dodgers-giants-division-series.html?searchResultPosition=8
 
-**N.F.L. Week 5 Predictions: Our Picks Against the Spread**\
-`Russell Wilson and the Seahawks try to keep the Rams on their heels, Josh Allen looks for success against Kansas City, and the Jets and Giants aim to start winning streaks.`\
-https://nytimes.com/2021/10/07/sports/nfl-picks-week-5.html?searchResultPosition=9
+**For Sutton Foster, Crochet Is a Survival Tactic**\
+`In her new book, “Hooked,” the Broadway and “Younger” actor opens up about how she collaged and cross-stitched her way out of anxiety and loss.`\
+https://nytimes.com/2021/10/07/books/hooked-sutton-foster.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`A new vaccine against malaria.`\
-https://nytimes.com/2021/10/06/briefing/boris-johnson-malaria-vaccine.html?searchResultPosition=10
+**He Suffered ‘the Worst Injury of the Tokyo Games.’ Can He Recover?**\
+`Connor Fields’ gruesome crash on the Olympic BMX track left him with serious brain trauma, a fractured memory and a lot of questions about the future.`\
+https://nytimes.com/2021/10/07/sports/olympics/connor-fields-bmx-injury-olympics.html?searchResultPosition=10
 
