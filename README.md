@@ -15,7 +15,7 @@ https://nytimes.com/video/world/asia/100000008012466/earthquake-pakistan-balochi
 https://nytimes.com/2021/10/06/crosswords/daily-puzzle-2021-07-07.html?searchResultPosition=4
 
 **Earthquake Kills at Least 20 in Pakistan**\
-`The 5.7 magnitude quake struck Thursday morning, and officials feared the toll may rise.`\
+`The 5.7 magnitude quake struck Thursday morning, while most people were asleep, and officials feared the toll may rise.`\
 https://nytimes.com/2021/10/06/world/asia/pakistan-earthquake.html?searchResultPosition=5
 
 **In Idaho, the governor and lieutenant governor duel over vaccine mandates.**\
