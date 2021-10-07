@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/06/todayspaper/quotation-of-the-day-asylum-seekers-c
 https://nytimes.com/2021/10/06/pageoneplus/corrections-oct-7-2021.html?searchResultPosition=6
 
 **Earthquake Rattles Pakistan**\
-`The deadly 5.7-magnitude quake struck early in the morning near the town of Harnai in the Balochistan Province, damaging homes and government buildings.`\
+`The deadly 5.9-magnitude quake struck early in the morning near the town of Harnai in the Balochistan Province, damaging homes and government buildings.`\
 https://nytimes.com/video/world/asia/100000008012466/earthquake-pakistan-balochistan-harnai.html?searchResultPosition=7
 
 **Lakeside Activity**\
