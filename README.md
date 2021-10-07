@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/07/business/america-democracy-challenges.html?search
 `Test your knowledge of this week’s health news.`\
 https://nytimes.com/interactive/2021/10/07/well/live/07healthquiz-10072021.html?searchResultPosition=9
 
-**Countries in the Asia-Pacific region rush to buy Merck’s Covid-19 pills.**\
-`The home treatment, molnupiravir, is said by the company to potentially halve the risk of hospitalization and death from the virus.`\
-https://nytimes.com/2021/10/07/world/asia/asia-australia-merck-covid-pill.html?searchResultPosition=10
+**Tesla investors will vote on whether to oust James Murdoch and Kimbal Musk from the board.**\
+`Activist shareholders have submitted five proposals to compel Tesla to disclose more information about its efforts to diversify its work force, how it handles employee disputes and its human rights record.`\
+https://nytimes.com/2021/10/07/business/tesla-shareholders-meeting-activist-investors.html?searchResultPosition=10
 
