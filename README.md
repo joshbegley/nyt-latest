@@ -22,19 +22,19 @@ https://nytimes.com/2021/10/07/opinion/essentialism-stereotypes-bias.html?search
 `Former President Donald J. Trump’s unwillingness to cede the spotlight has cast doubt on the political futures of several Republican politicians.`\
 https://nytimes.com/2021/10/07/us/politics/trump-2024-republicans.html?searchResultPosition=6
 
+**San Francisco will ease some masking requirements for vaccinated people.**\
+`The change, set to take effect on Oct. 15, is dependent on coronavirus cases and hospitalization rates remaining stable or declining.`\
+https://nytimes.com/2021/10/07/world/san-francisco-mask-requirements.html?searchResultPosition=7
+
 **Biden, Awaiting an OSHA Rule, Urges Companies to Require Vaccinations**\
 `“Businesses have more power than ever before to change the arc of this pandemic and save lives,” the president said during a trip to the Chicago area.`\
-https://nytimes.com/2021/10/07/us/politics/biden-vaccine-mandate-osha.html?searchResultPosition=7
+https://nytimes.com/2021/10/07/us/politics/biden-vaccine-mandate-osha.html?searchResultPosition=8
 
 **City Ballet Promotes Dancers Amid Veteran Departures**\
 `Unity Phelan and Indiana Woodward will become principal dancers, helping to fill a gap left by an unusually high number of retirements.`\
-https://nytimes.com/2021/10/07/arts/dance/new-york-city-ballet-promotions.html?searchResultPosition=8
+https://nytimes.com/2021/10/07/arts/dance/new-york-city-ballet-promotions.html?searchResultPosition=9
 
 **Emma Raducanu, After U.S. Open Win, Keeps Her Feet on the Ground**\
 `The 18-year-old returns to the court at the BNP Paribas Open in Indian Wells, Calif., as a headliner, richer and more famous. She still needed a wild card.`\
-https://nytimes.com/2021/10/07/sports/tennis/emma-raducanu-indian-wells.html?searchResultPosition=9
-
-**5 Coffee Subscriptions That We Love**\
-`The beans we love delivered straight to our door.`\
-https://nytimes.com/interactive/2021/10/07/smarter-living/wirecutter/coffee-subscriptions-we-love.html?searchResultPosition=10
+https://nytimes.com/2021/10/07/sports/tennis/emma-raducanu-indian-wells.html?searchResultPosition=10
 
