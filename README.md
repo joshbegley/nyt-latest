@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/07/business/fraud-small-business-administration-eidl
 https://nytimes.com/2021/10/07/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=3
 
 **Biden to Restore Three National Monuments in Utah and New England**\
-`The president is restoring Bears Ears and Grand Staircase-Escalante in Utah and a marine monument off the New England coast, all severely reduced by former President Donald J. Trump.`\
+`President Biden is restoring Bears Ears and Grand Staircase-Escalante in Utah and a marine monument off the New England coast, all severely reduced by former President Donald J. Trump.`\
 https://nytimes.com/2021/10/07/climate/bears-ears-grand-staircase-escalante-biden.html?searchResultPosition=4
 
 **Africans Welcome New Malaria Vaccine. But Is It a ‘Game Changer'?**\
