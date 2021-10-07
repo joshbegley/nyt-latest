@@ -16,7 +16,7 @@ https://nytimes.com/video/world/asia/100000008012466/earthquake-pakistan-balochi
 
 **Lakeside Activity**\
 `Rock me, Amadeus.`\
-https://nytimes.com/2021/10/06/crosswords/daily-puzzle-2021-07-07.html?searchResultPosition=5
+https://nytimes.com/2021/10/06/crosswords/daily-puzzle-2021-10-07.html?searchResultPosition=5
 
 **Earthquake Kills at Least 20 in Pakistan**\
 `The 5.7 magnitude quake struck Thursday morning, while most people were asleep, and officials feared the toll may rise.`\
