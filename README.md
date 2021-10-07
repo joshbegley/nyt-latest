@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/07/briefing/covid-treatment-nobel-prize-china-climat
 https://nytimes.com/2021/10/07/technology/google-youtube-ads-climate-change-misinformation.html?searchResultPosition=2
 
 **Police Cite Vaccine Motive in Killing of Pharmacist and 2 Others**\
-`They say a Maryland man, Jeffrey Burnham, 46, apparently believed that the pharmacist, his brother, was part of a plot to poison people with Covid-19 shots.`\
+`They say a Maryland man, Jeffrey Burnham, 46, may have believed that the pharmacist, his brother, was part of a plot to poison people with Covid-19 shots.`\
 https://nytimes.com/2021/10/07/us/jeffrey-burnham-pharmacist-brother-covid-vaccine.html?searchResultPosition=3
 
 **Germany’s Coalition Dating Game Starts to Get Serious**\
