@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/07/us/politics/proud-boys-capitol-riot.html?searchRe
 https://nytimes.com/video/us/politics/100000008013477/biden-chicago-vaccine-mandates-live-video.html?searchResultPosition=2
 
 **Billy Apple, Artist Who Was His Own Life’s Work, Dies at 85**\
-`Born Barrie Bates in New Zealand, he became Billy Apple in London, embarking on a long career that marched through art explorations, from Pop to conceptual.`\
+`Born Barrie Bates in New Zealand, he became Billy Apple in London, embarking on a long career that marched through art explorations, from Pop to conceptual to self-branding.`\
 https://nytimes.com/2021/10/07/arts/billy-apple-dead.html?searchResultPosition=3
 
 **As Europe Faces a Cold Winter, Putin Seizes on the Leverage From Russia’s Gas Output**\
