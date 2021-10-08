@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/07/sports/soccer/us-jamaica-world-cup.html?searchRes
 https://nytimes.com/2021/10/07/crosswords/daily-puzzle-2021-10-08.html?searchResultPosition=2
 
 **Senate Votes to Raise the Debt Ceiling**\
-`In a 50-to-48 vote, the Senate approved a bill to raise the debt ceiling through early December, offering a temporary reprieve to the looming threat of a federal default.`\
+`In a 50-to-48 vote, the Senate passed legislation to raise the debt ceiling through early December. The House is expected to take up the bill on Tuesday.`\
 https://nytimes.com/video/us/politics/100000008014484/senate-vote-debt-ceiling-default.html?searchResultPosition=3
 
 **Heavy Rain Floods Parts of Alabama**\
