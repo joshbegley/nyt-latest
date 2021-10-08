@@ -1,40 +1,40 @@
+**The One Thing We Couldn’t Talk About**\
+`When the bad news finally arrived, neither one of us — dear friends for 60 years — knew what to say.`\
+https://nytimes.com/2021/10/08/style/modern-love-dear-friends-bad-news.html?searchResultPosition=1
+
 **Covid’s Relentless Strain on a Melbourne Hospital**\
 `From sadness to irreverent laughter, one emergency room doctor explains what it feels like to practice medicine in the epicenter of Australia’s latest outbreak.`\
-https://nytimes.com/2021/10/07/world/australia/covid-melbourne-emergency-department.html?searchResultPosition=1
+https://nytimes.com/2021/10/07/world/australia/covid-melbourne-emergency-department.html?searchResultPosition=2
 
 **Powered by the Crowd, McCullers Mowed Down the White Sox**\
 `Houston’s Lance McCullers Jr. was able to keep his pitches in the zone, and that spelled trouble for Chicago’s hitters.`\
-https://nytimes.com/2021/10/07/sports/baseball/astros-white-sox-division-series.html?searchResultPosition=2
+https://nytimes.com/2021/10/07/sports/baseball/astros-white-sox-division-series.html?searchResultPosition=3
 
 **U.S., Riding Its Newest Star, Beats Jamaica in Qualifier**\
 `The teenage forward Ricardo Pepi scored two goals to power the United States to its second straight win in World Cup qualifying.`\
-https://nytimes.com/2021/10/07/sports/soccer/us-jamaica-world-cup.html?searchResultPosition=3
+https://nytimes.com/2021/10/07/sports/soccer/us-jamaica-world-cup.html?searchResultPosition=4
 
 **Home to Muir Woods**\
 `Yacob Yonas offers a nice segue into the solving weekend.`\
-https://nytimes.com/2021/10/07/crosswords/daily-puzzle-2021-10-08.html?searchResultPosition=4
+https://nytimes.com/2021/10/07/crosswords/daily-puzzle-2021-10-08.html?searchResultPosition=5
 
 **Senate Votes to Raise the Debt Ceiling**\
 `In a 50-to-48 vote, the Senate passed legislation to raise the debt ceiling through early December. The House is expected to take up the bill on Tuesday.`\
-https://nytimes.com/video/us/politics/100000008014484/senate-vote-debt-ceiling-default.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000008014484/senate-vote-debt-ceiling-default.html?searchResultPosition=6
 
 **Heavy Rain Floods Parts of Alabama**\
 `Slow-moving thunderstorms drenched parts of northern and central Alabama, flooding houses and stranding drivers in their cars. The heavy rains left at least four people dead, including a 4-year-old girl.`\
-https://nytimes.com/video/us/100000008014420/alabama-deadly-flash-flood-heavy-rain.html?searchResultPosition=6
+https://nytimes.com/video/us/100000008014420/alabama-deadly-flash-flood-heavy-rain.html?searchResultPosition=7
 
 **U.S. Charges Ex-Taliban Commander in Killing of 3 Soldiers in ’08 Attack**\
 `The man, Haji Najibullah, was charged last year with kidnapping an American journalist and two Afghan nationals months after the deadly assault.`\
-https://nytimes.com/2021/10/07/nyregion/haji-najibullah-taliban.html?searchResultPosition=7
+https://nytimes.com/2021/10/07/nyregion/haji-najibullah-taliban.html?searchResultPosition=8
 
 **‘Lackawanna Blues’ Review: A Soulful Master Class in Storytelling**\
 `Ruben Santiago-Hudson brings his tender and vibrant autobiographical show to Broadway, honoring the woman who not only raised him but also kept a cast of misfits in line.`\
-https://nytimes.com/2021/10/07/theater/lackawanna-blues-review.html?searchResultPosition=8
+https://nytimes.com/2021/10/07/theater/lackawanna-blues-review.html?searchResultPosition=9
 
 **Woman Jailed for Close Encounter With Grizzly and Cubs at Yellowstone**\
 `The woman was sentenced to four days in jail and was barred from the park for a year for not yielding space to the bear and three cubs.`\
-https://nytimes.com/2021/10/07/us/yellowstone-grizzly-bear-woman-arrested.html?searchResultPosition=9
-
-**How to Use Rapid Home Tests (Once You Find Them)**\
-`Regular home testing for coronavirus can lower risk, ease worry and allow you to live a more normal life.`\
-https://nytimes.com/2021/10/07/well/live/covid-rapid-at-home-test.html?searchResultPosition=10
+https://nytimes.com/2021/10/07/us/yellowstone-grizzly-bear-woman-arrested.html?searchResultPosition=10
 
