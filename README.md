@@ -8,7 +8,7 @@ https://nytimes.com/2021/10/08/style/fashion-rule-of-three.html?searchResultPosi
 
 **Kyrsten Sinema Wants to Cut $100 Billion in Proposed Climate Funds, Sources Say**\
 `The Arizona senator, who started in politics as an environmentalist, is one of two centrist Democrats who could make or break a spending bill at the center of President Biden’s legislative agenda.`\
-https://nytimes.com/2021/10/08/climate/sinema-climate-cuts.html?searchResultPosition=3
+https://nytimes.com/2021/10/08/climate/arizona-senator-sinema.html?searchResultPosition=3
 
 **A Thanksgiving Tribute to the McIntosh Apple**\
 `The McIntosh apple that is known and enjoyed throughout much of the world was found in the Ontario bush.`\
