@@ -1,6 +1,6 @@
 **Some of the Nobel committee’s previous picks have been called into question.**\
 `Controversies over past winners have dogged the committee, which according to Nobel rules cannot withdraw a prize once it is given.`\
-https://nytimes.com/2021/10/08/world/some-of-the-nobel-committees-previous-picks-have-been-called-into-question.html?searchResultPosition=1
+https://nytimes.com/2021/10/08/world/nobel-peace-prize-controversies.html?searchResultPosition=1
 
 **Another Vaccine Mandate Takes Effect**\
 `Home health care workers must now be vaccinated in New York State.`\
