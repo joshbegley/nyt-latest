@@ -1,4 +1,4 @@
-**Documents Show Trump Hotel Lost Money, Despite Lobbyist Spending**\
+**Trump Hotel Lost Money, Despite Lobbyist Spending, Documents Show**\
 `House investigators released data revealing that the hotel in Washington lost $74 million from 2016 to 2020, a figure disputed by the Trump Organization.`\
 https://nytimes.com/2021/10/08/us/trump-hotel-washington.html?searchResultPosition=1
 
