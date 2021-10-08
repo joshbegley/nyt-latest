@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/08/books/review/podcast-invisible-child-andrea-elliott-please-dont-sit-on-my-bed-outside-clothes-phoebe-robinson.html?searchResultPosition=1
 
 **The Film Industry Wants to Keep the Status Quo? Then Shut It Down.**\
-`The film and TV industry are back in full swing, grinding those behind the scenes down to the bone. Can a new union contract fix that?`\
+`Hollywood is back in full swing, grinding those behind the scenes down to the bone. Can a new union contract fix that?`\
 https://nytimes.com/2021/10/08/opinion/hollywood-iatse-movies-amazon-streaming.html?searchResultPosition=2
 
 **The L.A. sheriff rejects the county’s vaccine mandate for his officers, saying too many would quit.**\
