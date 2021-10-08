@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/08/nyregion/man-tree-standoff-queens.html?searchResu
 
 **Apple Appeals App Store Ruling in Fight With Epic Games**\
 `At the heart of the legal battle is the power Apple wields over its lucrative App Store.`\
-https://nytimes.com/2021/10/08/technology/apple-app-store-epic-games-lawsuit.html?searchResultPosition=2
+https://nytimes.com/2021/10/08/technology/apple-epic-games-lawsuit.html?searchResultPosition=2
 
 **At Mexico-U.S. Security Talks, Migration Question Is Largely Avoided**\
 `As diplomats from both countries began negotiating a new security agreement on Friday, the focus was on stopping criminal activity while the border crisis was conspicuously sidestepped.`\
