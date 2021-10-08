@@ -1,6 +1,6 @@
 **Bannon Rebuffs Subpoena from Jan. 6 Inquiry, Invoking Executive Privilege**\
 `The refusal of the former adviser to President Donald J. Trump to comply with a subpoena raises the prospect of a legal battle for evidence in the inquiry.`\
-https://nytimes.com/2021/10/08/us/politics/bannon-rebuffs-subpoena-from-jan-6-inquiry-invoking-executive-privilege.html?searchResultPosition=1
+https://nytimes.com/2021/10/08/us/politics/bannon-jan-6-executive-privilege.html?searchResultPosition=1
 
 **Despite Hotspots, an Overall Decline in Cases**\
 `The latest news and data from the team tracking the coronavirus`\
