@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/07/us/yellowstone-grizzly-bear-woman-arrested.html?s
 https://nytimes.com/2021/10/07/well/live/covid-rapid-at-home-test.html?searchResultPosition=6
 
 **These Baseball Frenemies Have Met Over 200 Times. But Rarely Like This.**\
-`From teammates, to manager and player, to division rivals, Tony La Russa and Dusty Baker’s careers have consistently intersected for decades. They face off again, this time in the postseason.`\
+`From teammates, to manager and player, to division rivals, Tony La Russa and Dusty Baker’s careers have consistently intersected for decades. They are facing off yet again.`\
 https://nytimes.com/2021/10/07/sports/baseball/astros-white-sox-alds-la-russa-baker.html?searchResultPosition=7
 
 **U.N. Secretary General Calls Vaccine Inequity ‘Stupid’**\
