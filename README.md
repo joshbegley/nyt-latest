@@ -1,40 +1,40 @@
-**Some of the Nobel committee’s previous picks have been called into question.**\
-`Controversies over past winners have dogged the committee, which according to Nobel rules cannot withdraw a prize once it is given.`\
-https://nytimes.com/2021/10/08/world/nobel-peace-prize-controversies.html?searchResultPosition=1
+**Will the September jobs report reflect a letup in the Delta variant?**\
+`Economists expect the month’s data to show a gain of nearly 500,000 jobs, an improvement from August but still behind the July pace.`\
+https://nytimes.com/2021/10/08/business/economy/jobs-report-september-2021.html?searchResultPosition=1
 
-**Another Vaccine Mandate Takes Effect**\
-`Home health care workers must now be vaccinated in New York State.`\
-https://nytimes.com/2021/10/08/nyregion/another-vaccine-mandate-takes-effect.html?searchResultPosition=2
+**As jobs day dawns, the Fed sweats tension between full employment and prices.**\
+`The September payrolls report comes at a high-pressure moment for the central bank, as it balances fast inflation with millions of missing jobs.`\
+https://nytimes.com/2021/10/08/business/economy/fed-jobs-full-employment-inflation.html?searchResultPosition=2
 
-**Before today, only 17 of 107 individual Nobel Peace laureates were women.**\
-`Past recipients include the women’s rights activist Jane Addams; the Catholic saint, Mother Teresa; and the African leader Ellen Johnson Sirleaf.`\
-https://nytimes.com/2021/10/08/world/women-winners-nobel-peace-prize.html?searchResultPosition=3
+**A Tiny Gas Meter? The More Mundane the Better for Japan’s Capsule Toys.**\
+`Isolated in their plastic spheres, pint-size reproductions of everyday items feel like a metaphor for Covid-era life.`\
+https://nytimes.com/2021/10/08/business/japan-capsule-toys-gachapon.html?searchResultPosition=3
 
-**Lesson of the Day: ‘The Facebook Whistle-Blower Testifies’**\
-`A former employee’s congressional testimony shed light on some of the social media giant’s most problematic practices. In this lesson, students will discuss how, or if, the company should be held accountable.`\
-https://nytimes.com/2021/10/08/learning/lesson-plans/lesson-of-the-day-the-facebook-whistle-blower-testifies.html?searchResultPosition=4
+**‘Long Overdue’: Liberal Voters Hold Firm to Biden’s Stronger Safety Net**\
+`In the deep-blue Seattle district represented by Pramila Jayapal, a leading progressive in Congress, voters see the Democrats’ left wing as ascendant and want it to play hardball against moderates.`\
+https://nytimes.com/2021/10/08/us/politics/pramila-jayapal-democrats-seattle.html?searchResultPosition=4
 
-**A Year After a Jobs Bust, College Students Find a Boom**\
-`Seniors and graduates are again in demand as companies revive recruiting, underscoring the economic premium that comes with a diploma.`\
-https://nytimes.com/2021/10/08/business/economy/college-graduates-jobs.html?searchResultPosition=5
+**Jenny Saville’s Nudes Bring Renaissance Masters Down to Earth**\
+`In a huge show across five museums in Florence, Italy, the artist’s fleshy paintings and drawings hang next to idealized female forms of created by Botticelli, Michelangelo and others.`\
+https://nytimes.com/2021/10/08/arts/design/jenny-saville-florence.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/08/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**David Shor Is Telling Democrats What They Don’t Want to Hear**\
+`His forecasting model shows a looming disaster for Senate Democrats. Are they going to do anything about it?`\
+https://nytimes.com/2021/10/08/opinion/democrats-david-shor-education-polarization.html?searchResultPosition=6
 
-**Word of the Day: allay**\
-`This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/08/learning/word-of-the-day-allay.html?searchResultPosition=7
+**What We Saw at the New York Bridal Fashion Week**\
+`The latest wedding dress trends from the virtual and in-person bridal runway.`\
+https://nytimes.com/2021/10/08/style/new-york-bridal-fashion-week-trends.html?searchResultPosition=7
 
-**Late Night Dives Into a New Senate Report on Trump**\
-`“So far, I’ve only read the title page, and it seems to be about how the former president and his allies pressured D.O.J. to overturn the 2020 election,” Stephen Colbert said on Thursday.`\
-https://nytimes.com/2021/10/08/arts/television/stephen-colbert-senate-trump-report.html?searchResultPosition=8
+**With Biden Agenda at Stake, Activists Target Sinema, Dividing Democrats**\
+`Progressive activists have adopted more aggressive tactics against Senator Kyrsten Sinema and other centrist holdouts as she declined to answer questions and the stakes for President Biden’s agenda have risen.`\
+https://nytimes.com/2021/10/08/us/politics/kyrsten-sinema-protests.html?searchResultPosition=8
 
-**They Had the Vaccines and a Plan to Reopen. Instead They Got Cold Feet.**\
-`Singapore’s experience offers lessons for other countries that want to reduce pandemic restrictions but have yet to deal with widespread infections.`\
-https://nytimes.com/2021/10/08/world/asia/singapore-vaccine-covid.html?searchResultPosition=9
+**When You Go to the Loo, a Bat Might Go Boo**\
+`Among roosting bats in parts of Africa, the inside of a drop toilet can be a lovely place to hang.`\
+https://nytimes.com/2021/10/08/science/bats-outhouses-africa.html?searchResultPosition=9
 
-**Corrections: Oct. 8, 2021**\
-`Corrections that appeared in print on Friday, Oct. 8, 2021.`\
-https://nytimes.com/2021/10/08/pageoneplus/corrections-oct-8-2021.html?searchResultPosition=10
+**The Pandora Papers and the Power of Shame**\
+`Technology and public opinion are shifting the balance against elites’ use of offshore financial services.`\
+https://nytimes.com/2021/10/08/opinion/pandora-papers-leak.html?searchResultPosition=10
 
