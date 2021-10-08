@@ -6,7 +6,7 @@ https://nytimes.com/2021/10/08/us/politics/manchin-democrats-means-testing.html?
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2021/10/08/briefing/jobs-nobel-peace-prize-mlb-playoffs.html?searchResultPosition=2
 
-**Peter C. Bunnell 83, Dies; Brought Academic Rigor to History of Photography**\
+**Peter C. Bunnell, 83, Dies; Brought Academic Rigor to History of Photography**\
 `As a curator at MoMA and then a professor at Princeton, he pushed museums and art historians to take photography seriously.`\
 https://nytimes.com/2021/10/08/arts/peter-c-bunnell-dead.html?searchResultPosition=3
 
