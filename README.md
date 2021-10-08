@@ -8,7 +8,7 @@ https://nytimes.com/2021/10/08/opinion/coins-debt-ceiling-default.html?searchRes
 
 **Homer Simpson Was Made for Fashion**\
 `Behind the painstaking creation of the Balenciaga-Simpsons episode that took nearly a year to make.`\
-https://nytimes.com/2021/10/08/style/homer-simpson-was-made-for-fashion.html?searchResultPosition=3
+https://nytimes.com/2021/10/08/style/homer-simpson-fashion.html?searchResultPosition=3
 
 **A Polish Rapper Goes From Scandal to Superstar**\
 `Michal Matczak, better known as Mata, has been called the voice of Polish youth for songs about teen struggles that have grabbed the attention of his politically divided country.`\
