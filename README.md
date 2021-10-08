@@ -1,5 +1,5 @@
 **Louis DeJoy Is Doing Something Progressives Like**\
-`The Postal Service needs big reforms. It's getting small ones instead.`\
+`The Postal Service needs big reforms. It’s getting small ones instead.`\
 https://nytimes.com/2021/10/08/opinion/louis-dejoy-us-postal-service.html?searchResultPosition=1
 
 **The Greatest Rivalry Since (Long Before) Sliced Bread**\
