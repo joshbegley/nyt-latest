@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/08/podcasts/eating-what-you-fear-and-a-pacemaker-for
 `The $530 million fine is Beijing’s second major penalty this year against an internet company accused of monopolistic practices.`\
 https://nytimes.com/2021/10/08/technology/china-meituan-antitrust-fine.html?searchResultPosition=9
 
-**SailGP Teams, Back at Full Strength, Power to the $1 Million Prize**\
-`Japan is the leader as racing begins in Cádiz, and with crews back from the Olympics, boats now have their A-teams.`\
-https://nytimes.com/2021/10/08/sports/sailing/sailgp-catamaran.html?searchResultPosition=10
+**Journalists Maria Ressa and Dmitri Muratov are awarded the Nobel Peace Prize.**\
+`The journalists were recognized for “their courageous fight for freedom of expression, which is a precondition for democracy and lasting peace.”`\
+https://nytimes.com/2021/10/08/world/maria-ressa-dmitri-muratov-nobel-peace-prize.html?searchResultPosition=10
 
