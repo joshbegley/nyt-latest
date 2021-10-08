@@ -22,7 +22,7 @@ https://nytimes.com/2021/10/08/us/varsity-blues-trial-wilson-abdelaziz.html?sear
 `Lawyers and human rights groups denounced the trial as a farcical attempt to prolong the detention of dissidents on trumped-up charges already found to be inadequate.`\
 https://nytimes.com/2021/10/08/world/middleeast/osman-kavala-turkey.html?searchResultPosition=6
 
-**‘Devastated, Disgusted, but Not Shocked’**\
+**‘Devastated, Disgusted, but I’m Not Shocked’**\
 `The players in the National Women’s Soccer League, tired of abuse and harassment, are speaking up and seizing power. But the way forward for the troubled league isn’t clear.`\
 https://nytimes.com/2021/10/08/sports/soccer/womens-soccers-problem-with-men.html?searchResultPosition=7
 
