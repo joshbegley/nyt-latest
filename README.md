@@ -12,7 +12,7 @@ https://nytimes.com/2021/10/08/us/coronavirus-today-pandemic-winter-plans.html?s
 
 **First Up in La MaMa’s Return: Strange, Enchanting Puppetry**\
 `The daring Manhattan theater reopens this month with a gorgeous puppet festival, proving it has lost none of its nerve during the pandemic.`\
-https://nytimes.com/2021/10/08/theater/la-mama-returns-puppetry.html?searchResultPosition=4
+https://nytimes.com/2021/10/08/theater/la-mama-theater.html?searchResultPosition=4
 
 **Biden’s Pick to Lead N.E.A. Sees Culture as a Community Building Tool**\
 `Maria Rosario Jackson, a veteran arts administrator with a background in urban planning, is recognized as an expert in using culture to spur economic development.`\
