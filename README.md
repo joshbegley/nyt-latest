@@ -1,6 +1,6 @@
 **Louis DeJoy Is Doing Something Progressives Like**\
 `The Postal Service needs big reforms. It's getting small ones instead.`\
-https://nytimes.com/2021/10/08/opinion/louis-dejoy-is-doing-something-progressives-like.html?searchResultPosition=1
+https://nytimes.com/2021/10/08/opinion/louis-dejoy-us-postal-service.html?searchResultPosition=1
 
 **The Greatest Rivalry Since (Long Before) Sliced Bread**\
 `The Dodgers and the Giants have been battling each other for 133 seasons. A division series between them should provide bragging rights for years to come.`\
