@@ -18,7 +18,7 @@ https://nytimes.com/video/business/100000008016694/new-york-comic-con-returns-ma
 `Will the industry finally have its feet held to the fire?`\
 https://nytimes.com/2021/10/08/opinion/facebook-kanter-ressa.html?searchResultPosition=5
 
-**A Pitcher’s Duel Is Decided by a Mighty Swing**\
+**A Pitchers’ Duel Is Decided by a Mighty Swing**\
 `Milwaukee’s Corbin Burnes and Atlanta’s Charlie Morton flashed dominance, but Rowdy Tellez’s two-run homer was enough offense to give the Brewers a win at home.`\
 https://nytimes.com/2021/10/08/sports/baseball/milwaukee-brewers-atlanta.html?searchResultPosition=6
 
