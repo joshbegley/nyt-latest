@@ -6,8 +6,8 @@ https://nytimes.com/2021/10/09/us/varsity-blues-scandal-verdict.html?searchResul
 `In the fight over the debt ceiling, both political parties are behaving badly, albeit in very different ways.`\
 https://nytimes.com/2021/10/09/opinion/debt-ceiling-congress.html?searchResultPosition=2
 
-**Austrian Chancellor Sebastian Kurz Resigns**\
-`After insisting he would remain in office amid a criminal investigation, Sebastian Kurz announced he would step aside to resolve a government crisis.`\
+**Facing Criminal Inquiry, Austrian Chancellor Sebastian Kurz Resigns**\
+`After insisting he would remain in office amid accusations that public money was used to produce favorable polling, Mr. Kurz said he would step aside to resolve a government crisis.`\
 https://nytimes.com/2021/10/09/world/europe/austrian-chancellor-sebastian-kurz-resigns.html?searchResultPosition=3
 
 **When Child Care Costs Twice as Much as the Mortgage**\
