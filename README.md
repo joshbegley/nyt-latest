@@ -1,6 +1,6 @@
 **Canadian Admits Fabricating Terrorism Tale Detailed in New York Times Podcast**\
 `In exchange for the admission of the man, Shehroze Chaudhry, Canada dropped criminal charges against him.`\
-https://nytimes.com/2021/10/09/world/middleeast/09canada-shehroze-chaudhry-islamic-state-caliphate.html?searchResultPosition=1
+https://nytimes.com/2021/10/09/world/middleeast/shehroze-chaudhry-caliphate.html?searchResultPosition=1
 
 **Joe Manchin’s Choices on Family Policy**\
 `How the conservative Democrat should be negotiating with his party.`\
