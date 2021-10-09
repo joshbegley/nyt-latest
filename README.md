@@ -1,40 +1,40 @@
-**As Johnson Draws a Happy Face, Britons Confront a Run of Bad News**\
-`There’s a cognitive dissonance between Mr. Johnson’s upbeat appraisal of British life and the ills facing its citizens, including gas and food shortages and fears of rising energy prices.`\
-https://nytimes.com/2021/10/09/world/europe/boris-johnson-britain-brexit.html?searchResultPosition=1
+**To Hélène Binet, Photographing Architecture Is ‘a Form of Art’**\
+`A favorite of the architect Zaha Hadid, Ms. Binet is the subject of a solo exhibition at the Royal Academy of Arts.`\
+https://nytimes.com/2021/10/09/arts/helene-binet-photographs-architecture.html?searchResultPosition=1
 
-**Debate Looms Over I.M.F.: Should It Do More Than Put Out Fires?**\
-`As the International Monetary Fund gets set for its annual meeting, economists ask if it’s time to update its mandate as the world’s financial crisis responder.`\
-https://nytimes.com/2021/10/09/business/economy/imf-mission.html?searchResultPosition=2
+**‘Starting a Fire’: U.S. and China Enter Dangerous Territory over Taiwan**\
+`The self-ruled island has moved to the heart of deepening discord and rivalry between the two superpowers, with the potential to ignite military conflagration and reshape the regional order.`\
+https://nytimes.com/2021/10/09/world/asia/united-states-china-taiwan.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/09/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**At Rwanda’s Favorite Bars, Forget the Beer: Milk Is What’s on Tap**\
+`Milk is a favorite drink in Rwanda, and milk bars serve it up in abundance, fresh or fermented, hot or cold. “When you drink milk, you always have your head straight and your ideas right.”`\
+https://nytimes.com/2021/10/09/world/africa/rwanda-milk-bars.html?searchResultPosition=3
 
-**Red Sox Prove ‘Hitting Is Contagious’ in Series-Tying Win**\
-`Tampa Bay got off to a hot start, but Boston’s offense was relentless in what turned into a five-homer blowout.`\
-https://nytimes.com/2021/10/09/sports/baseball/rays-red-sox-alds.html?searchResultPosition=4
+**The Real Trials of a ‘Real Housewife’**\
+`Erika Girardi is famous for her lavish lifestyle. Now her husband’s law firm has been accused of misappropriating millions of dollars. It’s all unfolding on TV.`\
+https://nytimes.com/2021/10/09/style/erika-girardi-real-housewives.html?searchResultPosition=4
 
-**Deontay Wilder and Tyson Fury: A Trilogy Defined by Its Twists**\
-`The pandemic, bureaucratic bickering and genuine dislike feed into this third showdown for a heavyweight belt.`\
-https://nytimes.com/2021/10/09/sports/fury-wilder-fight-preview.html?searchResultPosition=5
+**Confessions of a Curator: ‘I Can’t Live Without Sculpture’**\
+`Clare Lilley, the woman behind this year’s Frieze Sculpture, talks about the passions that fuel her work and her choices.`\
+https://nytimes.com/2021/10/09/arts/clare-lilley-curator-frieze-sculpture.html?searchResultPosition=5
 
-**Corrections: Oct. 9, 2021**\
-`Corrections that appeared in print on Saturday, Oct. 9, 2021.`\
-https://nytimes.com/2021/10/08/pageoneplus/corrections-oct-9-2021.html?searchResultPosition=6
+**Lifestyles of the Rich and Gullible: Theranos and Ozy Edition**\
+`Average investors were not able to get in on the last decade’s start-up boom in private markets. Once that seemed unfair. Now it looks lucky.`\
+https://nytimes.com/2021/10/09/business/ozy-theranos-startup-lawsuits.html?searchResultPosition=6
 
-**Quotation of the Day: Journalists in Philippines and Russia Are Cited for Courage**\
-`Quotation of the Day for Saturday, September 9, 2021.`\
-https://nytimes.com/2021/10/08/todayspaper/quotation-of-the-day-journalists-in-philippines-and-russia-are-cited-for-courage.html?searchResultPosition=7
+**Passing the Time With a Piano-Playing Pilot**\
+`As a pilot with United Airlines, Beau Brant flies North American routes. At every layover, he looks to play a mix of jazz, classical and more for his crew and strangers.`\
+https://nytimes.com/2021/10/09/travel/united-airlines-piano-pilot.html?searchResultPosition=7
 
-**Most Abortions in Texas Are Banned Again After Court Ruling**\
-`A federal appeals court panel temporarily reinstated the law that bans most abortions after six weeks of pregnancy while it considers a district judge’s ruling.`\
-https://nytimes.com/2021/10/08/us/texas-abortion-ban.html?searchResultPosition=8
+**Candidate for ‘Mayah’ Proudly Leans Into Her Boston Sound**\
+`The mayoral candidate Annissa Essaibi George, the daughter of Polish and Tunisian immigrants, speaks with the accent of working-class Boston. And she’s having some fun with it.`\
+https://nytimes.com/2021/10/09/us/annissa-essaibi-george.html?searchResultPosition=8
 
-**U.S. and Mexico Begin Talks on New Security Agreement**\
-`Secretary of State Antony J. Blinken said the overhauled agreement would open a new chapter in which the countries would work as equal partners to confront criminal activity and the flow of illegal drugs.`\
-https://nytimes.com/video/world/americas/100000008016730/us-mexico-security-negotiations-migration.html?searchResultPosition=9
+**Lawmakers See Path to Rein in Tech, but It Isn’t Smooth**\
+`If what faces Big Tech is anything like what happened to Big Tobacco, the road ahead is likely to be a yearslong battle over proposed rules and regulations.`\
+https://nytimes.com/2021/10/09/technology/facebook-big-tobacco-regulation.html?searchResultPosition=9
 
-**More Than Discouraged**\
-`This debut puzzle by August Lee-Kovach is so good, it ought to be a felony.`\
-https://nytimes.com/2021/10/08/crosswords/daily-puzzle-2021-10-09.html?searchResultPosition=10
+**Why I’m Ending My ‘Wealth Matters’ Column**\
+`After 13 years, 608 installments, and an estimated 4,864 sources, I’m stepping away from my weekly column to explore the world of my other full-time job — lead dad.`\
+https://nytimes.com/2021/10/09/insider/paul-sullivan.html?searchResultPosition=10
 
