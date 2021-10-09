@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/09/us/fake-suicide-david-staveley-prison.html?searchResultPosition=1
 
 **Brazil’s Covid-19 death toll passes 600,000.**\
-`By Flávia Milhorance`\
+`The figure represents a heartbreaking amount of loss, though at the same time, it was a signal that the rate of fatalities in the country has been slowing.`\
 https://nytimes.com/2021/10/09/world/americas/covid-brazil-600000-dead.html?searchResultPosition=2
 
 **Bolshoi Performer Is Killed in Onstage Accident**\
