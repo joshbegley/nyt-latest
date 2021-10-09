@@ -22,13 +22,13 @@ https://nytimes.com/2021/10/09/nyregion/moshe-tendler-dead.html?searchResultPosi
 `For one of the works in his new solo show, the painter Amoako Boafo drew on the sunny shades that surrounded him in the lead-up to the opening.`\
 https://nytimes.com/2021/10/09/t-magazine/amoako-boafo-art.html?searchResultPosition=6
 
-**Gender-Neutral Pronouns: The Singular ‘They’ and Alternatives**\
-`Some readers find the new usage of “they” confusing and offer other options such as “que” and “s/he.”`\
-https://nytimes.com/2021/10/09/opinion/letters/gender-neutral-pronouns.html?searchResultPosition=7
-
 **The Team Heard Round the World**\
 `The nationalization of sports tells a tale of American politics too.`\
-https://nytimes.com/2021/10/09/opinion/media-football-politics.html?searchResultPosition=8
+https://nytimes.com/2021/10/09/opinion/media-football-politics.html?searchResultPosition=7
+
+**Gender-Neutral Pronouns: The Singular ‘They’ and Alternatives**\
+`Some readers find the new usage of “they” confusing and offer other options such as “que” and “s/he.”`\
+https://nytimes.com/2021/10/09/opinion/letters/gender-neutral-pronouns.html?searchResultPosition=8
 
 **The Supreme Court v. Reality**\
 `These justices are courting disaster for the rest of us.`\
