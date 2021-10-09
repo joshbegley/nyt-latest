@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/08/pageoneplus/corrections-oct-9-2021.html?searchRes
 https://nytimes.com/2021/10/08/todayspaper/quotation-of-the-day-journalists-in-philippines-and-russia-are-cited-for-courage.html?searchResultPosition=2
 
 **Most Abortions in Texas Are Banned Again After Court Ruling**\
-`A federal appeals court panel reinstated the law that bans most abortions after six weeks of pregnancy while it considers a district judge’s ruling.`\
+`A federal appeals court panel temporarily reinstated the law that bans most abortions after six weeks of pregnancy while it considers a district judge’s ruling.`\
 https://nytimes.com/2021/10/08/us/texas-abortion-ban.html?searchResultPosition=3
 
 **U.S. and Mexico Begin Talks on New Security Agreement**\
