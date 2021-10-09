@@ -2,7 +2,7 @@
 `These justices are courting disaster for the rest of us.`\
 https://nytimes.com/2021/10/09/opinion/supreme-court-conservative.html?searchResultPosition=1
 
-**Abol Hassan Bani-Sadr, Former Iranian President, Dies at 88**\
+**Abolhassan Bani-Sadr, Former Iranian President, Dies at 88**\
 `He tried to resist the currents of Islamic radicalism, but was forced out of office when he lost the support of Ayatollah Ruhollah Khomeini.`\
 https://nytimes.com/2021/10/09/obituaries/abol-hassan-bani-sadr-dead.html?searchResultPosition=2
 
