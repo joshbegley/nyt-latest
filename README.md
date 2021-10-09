@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/09/business/dealbook/michael-dell-book.html?searchRe
 `In her quest to run all six major marathons in this closely packed fall season, Flanagan will run Chicago on Sunday and Boston on Monday.`\
 https://nytimes.com/2021/10/09/sports/shalane-flanagan-marathon-majors.html?searchResultPosition=8
 
-**With Shades of Another Giants Era, a Youngster Tames the Dodgers**\
+**Shades of Another Giants Era: A Youngster Tames the Dodgers**\
 `Logan Webb earned a comparison to a San Francisco legend by holding Los Angeles scoreless and striking out 10 batters.`\
 https://nytimes.com/2021/10/09/sports/baseball/logan-webb-giants-dodgers.html?searchResultPosition=9
 
