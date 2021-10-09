@@ -30,8 +30,8 @@ https://nytimes.com/2021/10/09/opinion/family-policy-manchin.html?searchResultPo
 `The results suggest that the populist wave in Eastern and Central Europe is receding, stalled by the growing unity of its opponents and a crisis of confidence after the defeat of the former U.S. president.`\
 https://nytimes.com/2021/10/09/world/europe/andrej-babis-defeated-czech-republic.html?searchResultPosition=8
 
-**‘Security Incident’ Draws Emergency Response at La Guardia Airport**\
-`A flight from Indianapolis declared an emergency and landed “in response to passenger behavior,” a Republic Airways spokesman said.`\
+**Passenger’s ‘Erratic Behavior’ Draws Emergency Response at La Guardia**\
+`A flight from Indianapolis declared an emergency and landed after a passenger acted suspiciously, officials said.`\
 https://nytimes.com/2021/10/09/nyregion/laguardia-airport-plane-evacuation.html?searchResultPosition=9
 
 **Vaccine hesitancy, an issue among police officers, is also evident among firefighters.**\
