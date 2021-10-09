@@ -1,40 +1,40 @@
+**Can My Landlord Put Locks in My Apartment That I Can’t Open?**\
+`Sometimes landlords have to be reminded that they cannot create unsafe living conditions for their tenants.`\
+https://nytimes.com/2021/10/09/realestate/landlord-tenant-living-conditions.html?searchResultPosition=1
+
 **Serial Killer Gets 160 Years After Victim’s Sister and Friends Help Solve Case**\
 `Khalil Wheeler-Weaver, 25, a former security guard from Orange, N.J., was sentenced for murdering three women and kidnapping and attempting to murder a fourth.`\
-https://nytimes.com/2021/10/09/nyregion/khalil-wheeler-weaver-new-jersey.html?searchResultPosition=1
+https://nytimes.com/2021/10/09/nyregion/khalil-wheeler-weaver-new-jersey.html?searchResultPosition=2
 
 **For Seasoned Soccer Travelers, No Other Trip Qualifies**\
 `Hitting the road for a World Cup qualifier might be one of the most unsung fan experiences in U.S. sports. Expansion of the tournament might change it forever.`\
-https://nytimes.com/2021/10/09/sports/soccer/usmnt-world-cup-qualifying-concacaf.html?searchResultPosition=2
+https://nytimes.com/2021/10/09/sports/soccer/usmnt-world-cup-qualifying-concacaf.html?searchResultPosition=3
 
 **Michael Dell Is Trying to Be Nice**\
 `In “Play Nice But Win,” Mr. Dell delves into the drama behind some of the biggest deals of the past decade.`\
-https://nytimes.com/2021/10/09/business/dealbook/michael-dell-book.html?searchResultPosition=3
+https://nytimes.com/2021/10/09/business/dealbook/michael-dell-book.html?searchResultPosition=4
 
 **6 Marathons in 6 Weeks? Shalane Flanagan Has 4 More to Go, and 2 This Weekend.**\
 `In her quest to run all six major marathons in this closely packed fall season, Flanagan will run Chicago on Sunday and Boston on Monday.`\
-https://nytimes.com/2021/10/09/sports/shalane-flanagan-marathon-majors.html?searchResultPosition=4
+https://nytimes.com/2021/10/09/sports/shalane-flanagan-marathon-majors.html?searchResultPosition=5
 
 **With Shades of Another Giants Era, a Youngster Tames the Dodgers**\
 `Logan Webb earned a comparison to a San Francisco legend by holding Los Angeles scoreless and striking out 10 batters.`\
-https://nytimes.com/2021/10/09/sports/baseball/logan-webb-giants-dodgers.html?searchResultPosition=5
+https://nytimes.com/2021/10/09/sports/baseball/logan-webb-giants-dodgers.html?searchResultPosition=6
 
 **In Debate Over Conquistadors 500 Years Ago, Spanish Right Sees an Opportunity**\
 `Spanish politicians sparred with Pope Francis over their country’s role in conquering the Americas, signaling a nationalist tilt in the conservative establishment.`\
-https://nytimes.com/2021/10/09/world/europe/spain-conservatives-conquistadors.html?searchResultPosition=6
+https://nytimes.com/2021/10/09/world/europe/spain-conservatives-conquistadors.html?searchResultPosition=7
 
 **Philippines’ Nobel Prize Newsroom Is Overjoyed but Under Siege**\
 `Rappler, the news site co-founded by the new Nobel laureate Maria Ressa, dares to criticize the Philippine president, Rodrigo Duterte. He may yet see it shut down.`\
-https://nytimes.com/2021/10/09/world/asia/rappler-philippines-nobel-peace-prize.html?searchResultPosition=7
+https://nytimes.com/2021/10/09/world/asia/rappler-philippines-nobel-peace-prize.html?searchResultPosition=8
 
 **Months Before Oil Spill, Pipeline May Have Taken Quiet Damage**\
 `It’s likely that a large vessel’s anchor hit the pipeline, off the coast of Orange County, at some point up to a year ago, the U.S. Coast Guard said.`\
-https://nytimes.com/2021/10/09/us/oil-spill-pacific-ocean.html?searchResultPosition=8
+https://nytimes.com/2021/10/09/us/oil-spill-pacific-ocean.html?searchResultPosition=9
 
 **To Hélène Binet, Photographing Architecture Is ‘a Form of Art’**\
 `A favorite of the architect Zaha Hadid, Ms. Binet is the subject of a solo exhibition at the Royal Academy of Arts.`\
-https://nytimes.com/2021/10/09/arts/helene-binet-photographs-architecture.html?searchResultPosition=9
-
-**‘Starting a Fire’: U.S. and China Enter Dangerous Territory over Taiwan**\
-`The self-ruled island has moved to the heart of deepening discord and rivalry between the two superpowers, with the potential to ignite military conflagration and reshape the regional order.`\
-https://nytimes.com/2021/10/09/world/asia/united-states-china-taiwan.html?searchResultPosition=10
+https://nytimes.com/2021/10/09/arts/helene-binet-photographs-architecture.html?searchResultPosition=10
 
