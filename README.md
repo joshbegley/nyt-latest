@@ -24,7 +24,7 @@ https://nytimes.com/2021/10/10/health/coronavirus-ventilation-carbon-dioxide.htm
 
 **Finally Time for ‘No Time to Die’? The Champagne’s Been on Ice.**\
 `For brands associated with the Bond franchise, the connection is valuable enough to throw do-over parties for the latest film.`\
-https://nytimes.com/2021/10/10/business/finally-time-for-no-time-to-die-the-champagnes-been-on-ice.html?searchResultPosition=7
+https://nytimes.com/2021/10/10/business/bond-brands.html?searchResultPosition=7
 
 **A Year After ‘Defund’, Police Departments Get Their Money Back**\
 `The abrupt reversals have come in response to rising levels of crime, the exodus of officers and political pressures.`\
