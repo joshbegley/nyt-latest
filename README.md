@@ -6,7 +6,7 @@ https://nytimes.com/2021/10/10/sports/baseball/david-robertson-tampa-bay-rays.ht
 `Maria Ambrocio, 58, who worked through the pandemic in a New Jersey hospital, was knocked down by a man who was fleeing after snatching a cellphone, the police said.`\
 https://nytimes.com/2021/10/10/nyregion/nurse-dies-times-square.html?searchResultPosition=2
 
-**Giants Lose Two Key Players Against Cowboys**\
+**Giants Lose Daniel Jones and Saquon Barkley Against Cowboys**\
 `Quarterback Daniel Jones, after a hit to the head, and running back Saquon Barkley, with an ankle injury, were carted off the field.`\
 https://nytimes.com/2021/10/10/sports/football/giants-daniel-jones-saquon-barkley-injuries.html?searchResultPosition=3
 
