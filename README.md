@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/10/us/covid-san-francisco-cruise-ships.html?searchRe
 https://nytimes.com/2021/10/10/world/middleeast/iraq-elections.html?searchResultPosition=6
 
 **One Killed and at Least 14 Wounded in Shooting in Minnesota Bar, Police Say**\
-`Investigators said that they were searching for several gunmen and had not determined a motive for the shooting. A woman died at the scene.`\
+`Investigators said that they had arrested three men who were among those wounded but had not yet determined a motive for the shooting.`\
 https://nytimes.com/2021/10/10/us/st-paul-shooting.html?searchResultPosition=7
 
 **‘Go out there and enjoy Halloween,’ Dr. Fauci says.**\
