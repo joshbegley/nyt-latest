@@ -10,8 +10,8 @@ https://nytimes.com/2021/10/09/obituaries/gen-raymond-odierno-dies-iraq-commande
 `The main event will likely happen sometime after 11 p.m. Eastern.`\
 https://nytimes.com/2021/10/09/sports/stream-wilder-fury-fight-card.html?searchResultPosition=4
 
-**34,000 home health aides in New York miss a vaccination deadline and cannot work.**\
-`The losses worsened a labor shortage in the industry, but the overall inoculation rate of 86 percent was higher than expected.`\
+**About 86 percent of home health aides in New York have met a deadline to be vaccinated.**\
+`But preliminary state data also show that at least 34,000 home health aides appeared to have missed the deadline, rendering them unable to work and worsening a labor shortage in the industry.`\
 https://nytimes.com/2021/10/09/nyregion/covid-new-york-home-health-aides-vaccination.html?searchResultPosition=5
 
 **Man Who Faked Suicide to Avoid Covid-19 Fraud Charges Is Sentenced**\
