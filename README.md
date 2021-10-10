@@ -22,7 +22,7 @@ https://nytimes.com/2021/10/10/opinion/covid-trauma-kids.html?searchResultPositi
 `We should take a cultural approach that incorporates universal design, dismantles structural barriers, and includes deaf people from the ground up.`\
 https://nytimes.com/2021/10/10/opinion/deaf-population-integration.html?searchResultPosition=6
 
-**How ‘Opportunity Zones’ Became a Loophole for Elites**\
+**The Rich Have Found Another Way to Pay Less Tax**\
 `During his campaign, President Biden vowed to “reform opportunity zones to fulfill their promise,” but so far the administration hasn’t proposed anything.`\
 https://nytimes.com/2021/10/10/opinion/opportunity-zones-tax-loopholes.html?searchResultPosition=7
 
