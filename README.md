@@ -1,4 +1,4 @@
-**Major Climate Action At Stake In Fight Over Twin Bills Pending in Congress**\
+**Major Climate Action at Stake in Fight Over Twin Bills Pending in Congress**\
 `Legislation aimed at infrastructure and social programs also includes big changes in energy, transportation and disaster preparation. They would amount to the most significant climate action ever taken by the United States.`\
 https://nytimes.com/2021/10/10/climate/climate-action-congress.html?searchResultPosition=1
 
