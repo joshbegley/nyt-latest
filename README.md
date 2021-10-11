@@ -2,7 +2,7 @@
 `He gained a following online for his lyrical appreciation of the open road while biking through remote landscapes and braving extreme conditions.`\
 https://nytimes.com/2021/10/11/travel/iohan-gueorguiev-dead.html?searchResultPosition=1
 
-**Sydney Springs to Life After More than 100 Days in Lockdown**\
+**Sydney Springs to Life After More Than 100 Days in Lockdown**\
 `Gyms, barber shops and pubs were finally allowed to reopen, with some restrictions, after more than three months of lockdown. With vaccinations rising and new coronavirus cases falling, residents cautiously celebrated “Freedom Day.”`\
 https://nytimes.com/video/world/asia/100000008019251/sydney-reopening-lockdown-covid.html?searchResultPosition=2
 
