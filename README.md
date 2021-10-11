@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/11/sports/baseball/milwaukee-brewers-atlanta.html?searchResultPosition=1
 
 **‘I Am Overjoyed’: Boston Marathon Racers Rejoice After Lost Year**\
-`Thousands of competitors raced in the 125th Boston Marathon. The prestigious race restarted this year after being canceled due to the pandemic.`\
+`Thousands of competitors ran the 2021 Boston Marathon. The prestigious race restarted this year after being canceled in 2020 because of the pandemic.`\
 https://nytimes.com/video/sports/100000008018710/boston-marathon-racers-2021.html?searchResultPosition=2
 
 **Netflix employee who criticized Dave Chappelle’s comedy special is among three suspended.**\
