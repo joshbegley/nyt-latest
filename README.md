@@ -12,7 +12,7 @@ https://nytimes.com/2021/10/11/dining/what-to-cook-right-now.html?searchResultPo
 
 **Benson Kipruto of Kenya wins the men’s race at the Boston Marathon.**\
 `Kipruto, 30, added a signature marathon victory to his résumé in the first Boston Marathon in more than a year.`\
-https://nytimes.com/2021/10/11/sports/benson-kupruto-wins-boston-marathon-mens.html?searchResultPosition=4
+https://nytimes.com/2021/10/11/sports/benson-kupruto-boston-marathon.html?searchResultPosition=4
 
 **Superman Comes Out, as DC Comics Ushers In a New Man of Steel**\
 `The new Superman, the son of Clark Kent and Lois Lane, is concerned about the environment, does not shy away from politics and will soon begin a romantic relationship with a male friend.`\
