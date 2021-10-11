@@ -1,5 +1,5 @@
 **U.S. Suffers First Defeat in World Cup Qualifying**\
-`A listless performance by a shuffled lineup in a 1-0 defeat at Panama cost the Americans of some valuable momentum.`\
+`A listless performance by a shuffled lineup in a 1-0 defeat at Panama cost the Americans some valuable momentum.`\
 https://nytimes.com/2021/10/10/sports/soccer/usmnt-panama-world-cup-qualifying.html?searchResultPosition=1
 
 **Two Journalists Started an Argument in Boston in 1979. It’s Not Over Yet.**\
