@@ -10,7 +10,7 @@ https://nytimes.com/2021/10/10/sports/soccer/usmnt-panama-world-cup-qualifying.h
 `A writer for an alt-weekly called out a Boston Globe editor for his “fealty” to the idea of objectivity in a column that reads as if it were written yesterday.`\
 https://nytimes.com/2021/10/10/business/journalists-objectivity.html?searchResultPosition=3
 
-**What We Learned From Week 5 in the N.F.L. Season**\
+**What We Learned From Week 5 in the N.F.L.**\
 `Aaron Rodgers found the personnel he’d hoped for in a wild win over the Bengals, and the Buccaneers showed the Dolphins what a Florida rebuild should look like.`\
 https://nytimes.com/2021/10/10/sports/football/nfl-week-5-scores.html?searchResultPosition=4
 
