@@ -1,6 +1,6 @@
 **A Nazi Legacy Haunts a Museum’s New Galleries**\
 `The Kunsthaus Zurich built an extension to display masterpieces from a private Swiss collection. But critics say the works are tainted by the source of their owner’s wealth.`\
-https://nytimes.com/2021/10/11/arts/design/kunsthaus-zurich-extension-buhrle-collection.html?searchResultPosition=1
+https://nytimes.com/2021/10/11/arts/design/kunsthaus-zurich-buhrle-collection.html?searchResultPosition=1
 
 **A New Cookbook by Indigenous People, for Indigenous People**\
 `A group of Indigenous chefs is releasing a virtual cookbook featuring digital issues, webinars and videos to reclaim narratives about Native foods.`\
