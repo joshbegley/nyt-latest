@@ -16,7 +16,7 @@ https://nytimes.com/2021/10/11/podcasts/the-daily/climate-crisis-resilience.html
 
 **A Missing Apostrophe in a Facebook Post Lands Him in Defamation Court**\
 `An Australian man claimed a real estate agent did not pay its “employees” retirement funds. The lack of a punctuation mark may cost him thousands.`\
-https://nytimes.com/2021/10/11/world/australia/-apostrophe-facebook-defamation.html?searchResultPosition=5
+https://nytimes.com/2021/10/11/world/australia/facebook-post-missing-apostrophe-defamation.html?searchResultPosition=5
 
 **Sydney roars back to life as pubs and stores open after three months.**\
 `Australia’s largest city eased restrictions Monday after more than 100 days in lockdown.`\
