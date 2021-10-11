@@ -14,8 +14,8 @@ https://nytimes.com/2021/10/11/us/politics/lawmakers-rescue-afghan-relatives-ser
 `Kyle Schwarber’s mammoth blasts made him a fan favorite for the curse-breaking Cubs. For the Red Sox, he has picked up right where he left off.`\
 https://nytimes.com/2021/10/11/sports/baseball/kyle-schwarber-boston-red-sox.html?searchResultPosition=4
 
-**Racial Bias Skewed Small Business Relief Lending, Study Says**\
-`Black business owners were more likely to get Paycheck Protection Program loans from online lenders than banks, according to new research.`\
+**Racial Bias Skewed Small-Business Relief Lending, Study Says**\
+`Black business owners were more likely to get Paycheck Protection Program loans from online lenders than from banks, according to new research.`\
 https://nytimes.com/2021/10/11/business/ppp-loans-covid-racial-bias.html?searchResultPosition=5
 
 **Alan Horn, a top creative executive, is the latest high-ranking Disney departure.**\
