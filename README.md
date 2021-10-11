@@ -1,5 +1,5 @@
 **Two Journalists Started an Argument in Boston in 1979. It’s Not Over Yet.**\
-`A writer for an alt-weekly called out a Boston Globe editor for his “fealty” to the idea of objectivity in a column that reads as if it was written yesterday.`\
+`A writer for an alt-weekly called out a Boston Globe editor for his “fealty” to the idea of objectivity in a column that reads as if it were written yesterday.`\
 https://nytimes.com/2021/10/10/business/journalists-objectivity.html?searchResultPosition=1
 
 **What We Learned From Week 5 in the N.F.L. Season**\
