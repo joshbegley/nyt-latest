@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/11/t-magazine/night-blooming-flowers.html?searchResu
 https://nytimes.com/2021/10/11/briefing/dixie-fire-battle-climate-change.html?searchResultPosition=2
 
 **Nobel in economics goes to David Card, Joshua Angrist and Guido Imbens.**\
-`The three were honored for research that drew conclusions from unintended experiments.`\
+`The three were honored for research on unintended experiments, such as the impact of a minimum-wage increase across state lines.`\
 https://nytimes.com/2021/10/11/business/nobel-economics-prize-david-card-joshua-angrist-guido-imbens.html?searchResultPosition=3
 
 **Merck applies for emergency approval for what would be the first pill to treat Covid.**\
