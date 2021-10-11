@@ -1,6 +1,6 @@
 **Diana Kipyogei of Kenya wins the women’s race of the Boston Marathon.**\
 `Kipyogei, 27, fended off the veteran Edna Kiplagat to capture her first victory in a major marathon.`\
-https://nytimes.com/2021/10/11/sports/diana-kipyogei-wins-boston-marathon-women.html?searchResultPosition=1
+https://nytimes.com/2021/10/11/sports/diana-kipyogei-boston-marathon.html?searchResultPosition=1
 
 **Maryann Plunkett Says Goodbye to Her Lives in Rhinebeck**\
 `She has portrayed three characters over the course of the 12 plays in Richard Nelson’s “Rhinebeck Panorama.” A decade later, it’s time to move on.`\
