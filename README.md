@@ -1,4 +1,4 @@
-**Severe Weather Sweeps Across the South, Producing at Least Two Tornadoes**\
+**Severe Weather Sweeps Across Southern Plains, Producing at Least Two Tornadoes**\
 `Fast-moving storms damaged parts of a town and at least one school in northeastern Oklahoma, while severe weather in Texas forced the state fair to close early.`\
 https://nytimes.com/2021/10/11/us/oklahoma-tornadoes.html?searchResultPosition=1
 
