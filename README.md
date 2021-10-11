@@ -1,4 +1,4 @@
-**How to watch the Boston Marathon.**\
+**Here’s how to watch the Boston Marathon.**\
 `After being delayed by 18 months because of the pandemic, the Boston Marathon is back this year, marking its 125th anniversary.`\
 https://nytimes.com/2021/10/11/sports/watch-boston-marathon.html?searchResultPosition=1
 
