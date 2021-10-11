@@ -1,40 +1,40 @@
-**The Chaos on Rikers Island**\
-`The jail complex is overrun by lawlessness, and the detainees are in control, a New York Times investigation found.`\
-https://nytimes.com/2021/10/11/nyregion/the-chaos-on-rikers-island.html?searchResultPosition=1
+**Sydney roars back to life as pubs and stores open after three months.**\
+`Australia’s largest city eased restrictions Monday after more than 100 days in lockdown.`\
+https://nytimes.com/2021/10/11/world/australia/sydney-lockdown.html?searchResultPosition=1
 
-**The Artistic Aromas of Anicka Yi**\
-`The conceptual artist has taken over Tate Modern’s Turbine Hall in London with an odorous work to excite the senses.`\
-https://nytimes.com/2021/10/11/arts/design/anicka-yi-tate.html?searchResultPosition=2
+**Agony and Ecstasy on the Scottish Archipelago of St. Kilda**\
+`The 85-mile boat ride through rough seas left some of us huddling in discomfort. But the scenery on the remote and windswept islands was otherworldly.`\
+https://nytimes.com/2021/10/11/travel/st-kilda-scotland.html?searchResultPosition=2
 
-**Inside Rikers: Dysfunction, Lawlessness and Detainees in Control**\
-`With a staffing emergency disrupting the basic functions of the jail system, detainees have had free rein inside.`\
-https://nytimes.com/2021/10/11/nyregion/rikers-detainees-correction-officers.html?searchResultPosition=3
+**The End of Gender**\
+`Has fashion bid the binary goodbye?`\
+https://nytimes.com/2021/10/11/fashion/the-end-of-gender.html?searchResultPosition=3
 
-**White Tiger and Cheetah Furs: A Mess of Trump Gift Exchanges**\
-`Gift exchanges between U.S. and foreign leaders, a highly regulated process, devolved into sometimes risible shambles during the Trump administration.`\
-https://nytimes.com/2021/10/11/us/politics/trump-gifts.html?searchResultPosition=4
+**As E-Scooters and E-Bikes Proliferate, Safety Challenges Grow**\
+`A surge in electric-powered mobility devices during the pandemic is likely to become a lasting feature, transforming the New York City streetscape.`\
+https://nytimes.com/2021/10/11/nyregion/electric-scooters-bikes-new-york.html?searchResultPosition=4
 
-**Indigenous Peoples’ Day, Explained**\
-`Many cities and states are observing the day. Here’s some of the history behind it.`\
-https://nytimes.com/2021/10/11/us/indigenous-peoples-day.html?searchResultPosition=5
+**Inside the Courtroom With Theranos’s Elizabeth Holmes**\
+`Behind the closed doors are whispers, gestures and a daily rhythm, plus two court artists, numbered tickets and some true-crime fans.`\
+https://nytimes.com/2021/10/11/technology/elizabeth-holmes-theranos-courtroom.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/11/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**There’s More Than One Way to Play Dead**\
+`The Senate is in a tizzy. Education is in a tizzy. Also, Democratic strategists. `\
+https://nytimes.com/2021/10/11/opinion/biden-schumer-shor-de-blasio.html?searchResultPosition=6
 
-**Chicago’s Crowd, and its Offense, Comes Alive Against the Astros**\
-`An emotional game staved off elimination for the White Sox, but not without some controversy in calls on the field and comments after the game.`\
-https://nytimes.com/2021/10/11/sports/baseball/white-sox-astros.html?searchResultPosition=7
+**‘This Drop Came So Quickly’: Shrinking Schools Add to Hong Kong Exodus**\
+`The Chinese territory is experiencing its biggest population drop in decades as residents flee political repression and a new “patriotic” curriculum.`\
+https://nytimes.com/2021/10/11/world/asia/hong-kong-schools-security-law-exodus.html?searchResultPosition=7
 
-**The City of London Is Hiding the World’s Stolen Money**\
-`Together with its territories overseas, Britain is instrumental in a global game of deceit.`\
-https://nytimes.com/2021/10/11/opinion/pandora-papers-britain-london.html?searchResultPosition=8
+**Moving to a Crown Heights Apartment Allowed Her to Nurture a Green Thumb**\
+`Taming the junglelike garden in Brooklyn has given her purpose — and a place to entertain.`\
+https://nytimes.com/2021/10/11/realestate/renting-crown-heights-brooklyn.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘Home Sweet Home’ and ‘Succession’**\
-`A new series from Ava DuVernay debuts on NBC. And the third season of “Succession” begins on HBO.`\
-https://nytimes.com/2021/10/11/arts/television/whats-on-tv-this-week-home-sweet-home-succession.html?searchResultPosition=9
+**One Thing We Can All Agree On? Keep Living Things Alive.**\
+`People on both sides of the aisle can work together to prevent future calamities from unfolding.`\
+https://nytimes.com/2021/10/11/opinion/extinction-bipartisan-conservation.html?searchResultPosition=9
 
-**Inside the Massive and Costly Fight Against the Dixie Fire**\
-`To battle the nearly one-million-acre Dixie fire, California launched a military-style operation. Some experts wonder whether that approach is sustainable.`\
-https://nytimes.com/interactive/2021/10/11/us/california-wildfires-dixie.html?searchResultPosition=10
+**October Isn’t Just a Month Anymore. It’s a Whole Szn.**\
+`This year, there are more seasons than ever to celebrate.`\
+https://nytimes.com/2021/10/11/style/season-szn-october.html?searchResultPosition=10
 
