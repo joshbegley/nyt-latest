@@ -24,7 +24,7 @@ https://nytimes.com/2021/10/11/business/media/alan-horn-disney-retires.html?sear
 
 **Clear Differences Remain Between France and U.S., French Minister Says**\
 `Finance Minister Bruno Le Maire says the two countries remain at odds over China and various security issues, even if they had effectively cooperated on overhauling the international tax system.`\
-https://nytimes.com/2021/10/11/world/europe/france-us-differences-sub-snub-finance-minister-bruno-le-marie.html?searchResultPosition=7
+https://nytimes.com/2021/10/11/world/europe/france-us-differences-bruno-le-marie.html?searchResultPosition=7
 
 **Deb Haaland, the Interior secretary, runs to honor Indigenous Peoples’ Day.**\
 `Haaland, the first Native American cabinet secretary, ran the Boston Marathon as a tribute to the sacrifices of Indigenous people, she wrote.`\
