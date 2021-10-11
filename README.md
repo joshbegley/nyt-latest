@@ -1,4 +1,4 @@
-**Missing Apostrophe in Facebook Post Lands a Man in Defamation Court**\
+**A Missing Apostrophe in a Facebook Post Lands Him in Defamation Court**\
 `An Australian man claimed a real estate agent did not pay its “employees” retirement funds. The lack of a punctuation mark may cost him thousands.`\
 https://nytimes.com/2021/10/11/world/australia/-apostrophe-facebook-defamation.html?searchResultPosition=1
 
