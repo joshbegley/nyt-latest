@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/11/us/politics/lawmakers-rescue-afghan-relatives-service-members.html?searchResultPosition=1
 
 **A Chicago Folk Hero Brings His Postseason Act to Boston**\
-`Kyle Schwarber’s mammoth home runs were a huge part of the Cubs’ victory in the 2016 World Series. For the Red Sox, he has picked up right where he left off.`\
+`Kyle Schwarber’s big bat was a huge part of the Cubs’ victory in the 2016 World Series. For the Red Sox, he has picked up right where he left off.`\
 https://nytimes.com/2021/10/11/sports/baseball/kyle-schwarber-boston-red-sox.html?searchResultPosition=2
 
 **Racial Bias Skewed Small Business Relief Lending, Study Says**\
