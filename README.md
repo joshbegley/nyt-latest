@@ -26,7 +26,7 @@ https://nytimes.com/2021/10/11/sports/danica-patrick-boston-marathon.html?search
 `Meet Brooklyn Queen, a Gen Z artist and Renaissance woman.`\
 https://nytimes.com/2021/10/11/style/brooklyn-queen.html?searchResultPosition=7
 
-**A missed turn might have cost Marcel Hug $50,000 in the men’s wheelchair race.**\
+**A missed turn may have cost Marcel Hug $50,000 in the men’s wheelchair race.**\
 `Hug dominated the event at the Boston Marathon, but he was just seconds shy of breaking his own course record and winning a bonus.`\
 https://nytimes.com/2021/10/11/sports/marcel-hug-wheelchair-boston-marathon.html?searchResultPosition=8
 
