@@ -19,7 +19,7 @@ https://nytimes.com/2021/10/11/sports/soccer/china-soccer-evergrande.html?search
 https://nytimes.com/video/us/100000008019060/nobel-prize-economics-david-card-joshua-angrist-guido-imbens.html?searchResultPosition=5
 
 **At Wellesley, the students offer screams, but no smooches, as the marathon returns.**\
-`Cheers, signs and kisses are signatures at the Scream Tunnel that marks the halfway point of the race. But this year, because of the pandemic, organizers asked students to keep their mouths to themselves.`\
+`The screams can be heard from blocks away.`\
 https://nytimes.com/2021/10/11/sports/wellesley-kissing-marathon.html?searchResultPosition=6
 
 **More Than 30 Countries Join U.S. Pledge to Slash Methane Emissions**\
