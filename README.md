@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/11/us/clement-street-san-francisco-pandemic.html?sea
 https://nytimes.com/2021/10/11/sports/rick-hoyt-retires.html?searchResultPosition=6
 
 **In Rolling Over Chiefs, Bills Encounter Little Resistance**\
-`An uncomfortably easy Buffalo victory left Kansas City with a losing record and a lot of questions about its defense.`\
+`An easy Buffalo victory left Kansas City with a losing record and a lot of questions about its defense.`\
 https://nytimes.com/2021/10/11/sports/football/bill-chiefs.html?searchResultPosition=7
 
 **What You Get for $1.6 Million in California**\
