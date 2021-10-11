@@ -22,7 +22,7 @@ https://nytimes.com/2021/10/11/science/merck-antiviral-covid-pill.html?searchRes
 `How the climate crisis is forcing Americans to ask a difficult question.`\
 https://nytimes.com/2021/10/11/podcasts/the-daily/climate-crisis-resilience.html?searchResultPosition=6
 
-**A Missing Apostrophe in a Facebook Post Lands Him in Defamation Court**\
+**Missing Apostrophe in Facebook Post Lands a Man in Defamation Court**\
 `An Australian man claimed a real estate agent did not pay its “employees” retirement funds. The lack of a punctuation mark may cost him thousands.`\
 https://nytimes.com/2021/10/11/world/australia/facebook-post-missing-apostrophe-defamation.html?searchResultPosition=7
 
