@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/11/well/eat/salt-blood-pressure.html?searchResultPos
 
 **40-Year-Old Cold Case of South Dakota Baby Ends With Conviction**\
 `Decades after a baby was found by the road, DNA testing led to criminal charges. On Friday, a woman entered an Alford plea in the case, maintaining her innocence while pleading guilty to manslaughter.`\
-https://nytimes.com/2021/10/11/us/theresa-bentaas-conviction.html?searchResultPosition=2
+https://nytimes.com/2021/10/11/us/theresa-bentaas-conviction-manslaughter.html?searchResultPosition=2
 
 **Dottie Dodgion, a Standout Drummer in More Ways Than One, Dies at 91**\
 `At a time when a female jazz percussionist was a rarity, she played with Benny Goodman. She went on to work with Marian McPartland and other big names.`\
