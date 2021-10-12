@@ -1,10 +1,10 @@
 **Workers quitting their jobs hit a record in the U.S. in August.**\
-`As the economy struggles to get back on track amid the pandemic, businesses are struggling to find employees — and workers are discovering that they have leverage.`\
+`A government report shows how the balance of power in the labor market has swung toward workers.`\
 https://nytimes.com/2021/10/12/business/economy/workers-quitting-jolts-august-2021.html?searchResultPosition=1
 
 **American and Southwest Airlines reject the Texas order banning vaccine mandates.**\
 `“This does not change anything for American,” a spokeswoman said. When the airline introduced its mandate, it cited a presidential order that employees of government contractors be vaccinated.`\
-https://nytimes.com/2021/10/12/business/texas-abbott-vaccine-mandates-american-airlines-southwest.html?searchResultPosition=2
+https://nytimes.com/2021/10/12/business/southwest-american-vaccine-mandate-texas.html?searchResultPosition=2
 
 **‘We’ll All Move On’: Kanye West Lists Wyoming Ranch for Sale and Residents Shrug**\
 `Two years ago, the rapper set into motion a plan to turn Cody, Wyo., into a factory town for his company. Now, he may be saying goodbye to all that.`\
