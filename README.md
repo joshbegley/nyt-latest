@@ -26,7 +26,7 @@ https://nytimes.com/2021/10/12/world/asia/modi-india-antiterror-law.html?searchR
 `This season, the most sought-after briefcases, totes and satchels come adorned with the insignia of their makers.`\
 https://nytimes.com/2021/10/12/t-magazine/monogrammed-bags-purses-winter.html?searchResultPosition=7
 
-**The economic recovery is losing strength, the I.M.F. warns as it lowers its forecast.**\
+**The I.M.F. warns of inflation and a slowing recovery as it lowers its forecast.**\
 `The global growth forecast was pared to 5.9 percent from 6 percent because of the Delta variant and supply chain bottlenecks. The U.S. growth prediction was cut to 6 percent from 7 percent.`\
 https://nytimes.com/2021/10/12/business/imf-global-economic-recovery-forecast.html?searchResultPosition=8
 
