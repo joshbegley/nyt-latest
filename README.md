@@ -1,10 +1,10 @@
-**John Yarmuth of Kentucky, House Budget Chair, Announces Retirement**\
+**John Yarmuth of Kentucky, House Budget Chairman, Announces Retirement**\
 `Mr. Yarmuth, the lone Democrat in his state’s congressional delegation and a key proponent of President Biden’s domestic agenda, said he would not seek re-election.`\
 https://nytimes.com/2021/10/12/us/politics/john-yarmuth-retirement.html?searchResultPosition=1
 
 **Julie Mehretu Becomes Third Artist Ever to Join Whitney Board**\
 `Mehretu is one of seven new trustees who have been added over the past year and the third artist in the board’s history, after Chuck Close and Fred Wilson.`\
-https://nytimes.com/2021/10/12/arts/design/julie-mehretu-becomes-third-artist-ever-to-join-whitney-board.html?searchResultPosition=2
+https://nytimes.com/2021/10/12/arts/design/julie-mehretu-joins-whitney-board.html?searchResultPosition=2
 
 **Tony De Marco, Slugging Welterweight Champion, Is Dead at 89**\
 `He was a hero in Boston “not because he’s the greatest prizefighter in the world, which he isn’t,” a sportswriter wrote, “but because he’s so damned courageous.”`\
