@@ -1,5 +1,5 @@
 **Why ‘Jesus Christ Superstar’ the Album Has Always Rocked**\
-`When I discovered the record, it felt like the bizarre offspring of my deepest, dorkiest passions: theater and dad rock.`\
+`I’m here to spread the good word of “Jesus Christ Superstar,” the album.`\
 https://nytimes.com/2021/10/12/theater/jesus-christ-superstar-album.html?searchResultPosition=1
 
 **‘Jesus Christ Superstar’ at 50: What Was the Buzz?**\
