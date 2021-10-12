@@ -1,9 +1,9 @@
 **How Xenia Rubinos Freed Herself on a New Album, ‘Una Rosa’**\
 `On her third LP, the singer-songwriter brings her brassy vocals to a surreal, electronic universe.`\
-https://nytimes.com/2021/10/12/arts/music/xenia-rubinoss-una-rosa.html?searchResultPosition=1
+https://nytimes.com/2021/10/12/arts/music/xenia-rubinos-una-rosa.html?searchResultPosition=1
 
 **Risk of high inflation dogs central bankers as consumer expectations climb.**\
-`A key measure of inflation expectations released on Tuesday showed continued acceleration, a survey that came as Richard H. Clarida, the Federal Reserve’s vice chair, indicated that central bankers were alert to the risk of high inflation.`\
+`A survey by the Federal Reserve Bank of New York shows inflation expectations are the highest since 2013, adding pressure for Federal Reserve officials.`\
 https://nytimes.com/2021/10/12/business/economy/inflation-expectations-federal-reserve.html?searchResultPosition=2
 
 **I.M.F. Lowers Economic Growth Forecast for 2021**\
