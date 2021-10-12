@@ -1,5 +1,5 @@
 **Honestly, You Should Keep Using These Verboten Terms**\
-`The language police have gone too far`\
+`The language police have gone too far.`\
 https://nytimes.com/2021/10/12/opinion/language-words-woke.html?searchResultPosition=1
 
 **Your Wednesday Briefing**\
