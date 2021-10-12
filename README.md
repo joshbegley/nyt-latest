@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/11/sports/football/what-did-jon-gruden-say.html?sear
 https://nytimes.com/2021/10/11/us/fulton-county-election-workers-fired.html?searchResultPosition=2
 
 **A Babysitter and a Band-Aid Wrapper: Inside the Submarine Spy Case**\
-`Jonathan and Diana Toebbe seemed like an ordinary suburban couple, but the F.B.I. said their plot to pass nuclear secrets made them would-be spies — and sloppy ones.`\
+`Jonathan and Diana Toebbe seemed like an ordinary suburban couple, but the F.B.I. said they were would-be spies — and sloppy ones.`\
 https://nytimes.com/2021/10/11/us/politics/inside-submarine-spy-case.html?searchResultPosition=3
 
 **Video Shows Police Pulling Man Out of Car by Hair During Traffic Stop**\
