@@ -2,7 +2,7 @@
 `What might such an energy technology look like?`\
 https://nytimes.com/paidpost/eavor-technologies/the-energy-transition-and-the-quest-for-the-mythical-beast-of-perfection.html?searchResultPosition=1
 
-**North Korea Displays Missile Arsenal Amid Stalled Talks**\
+**North Korea Displays Large Missile Arsenal Amid Stalled Talks**\
 `The country’s leader, Kim Jong-un, says he doesn’t believe the Biden administration’s assertions that it has no hostile intent against his country.`\
 https://nytimes.com/2021/10/12/world/asia/north-korea-missiles-kim-jong-un.html?searchResultPosition=2
 
