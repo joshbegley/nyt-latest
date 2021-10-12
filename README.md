@@ -1,4 +1,4 @@
-**Gruden’s Emails Were Collateral Damage in Washington Football Saga**\
+**Gruden’s Emails Were Collateral Damage in Washington Football Inquiry**\
 `The former Raiders coach’s toxic commentary emerged from a separate investigation that had nothing to do with him, and remained secret because the probe was designed to be opaque.`\
 https://nytimes.com/2021/10/12/sports/football/jon-gruden-emails-dan-snyder.html?searchResultPosition=1
 
