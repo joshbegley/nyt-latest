@@ -1,6 +1,6 @@
 **The Carlyle Hotel’s Refurbished Restaurant, Dowling’s, Opens**\
 `A return for Barbuto, South Indian specialties in the West Village, and more restaurant news.`\
-https://nytimes.com/2021/10/12/dining/restaurant-news-carlyle-barbuto-openings.html?searchResultPosition=1
+https://nytimes.com/2021/10/12/dining/carlyle-barbuto-restaurant-openings.html?searchResultPosition=1
 
 **A Biography of W.G. Sebald, Who Transformed His Borrowings Into Lasting Art**\
 `Carole Angier’s “Speak, Silence” is the first major biography of the renowned German writer who put people he knew into his work, infuriating many of them.`\
