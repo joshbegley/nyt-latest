@@ -2,7 +2,7 @@
 `The rock opera, with music by Andrew Lloyd Webber and lyrics by Tim Rice, opened on Broadway on Oct. 12, 1971, to protests, an irate composer — and sold-out shows.`\
 https://nytimes.com/2021/10/12/theater/jesus-christ-superstar-50th-anniversary.html?searchResultPosition=1
 
-**Sally Rooney Declines to Release Her Book in Israel**\
+**Sally Rooney Declines to Sell Translation Rights to Israeli Publisher**\
 `The author of “Beautiful World, Where Are You” turned down an offer from an Israeli publisher to translate the novel to Hebrew, citing her support for Palestinians “in their struggle for freedom, justice and equality.”`\
 https://nytimes.com/2021/10/12/books/sally-rooney-israel-translation.html?searchResultPosition=2
 
