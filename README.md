@@ -1,40 +1,40 @@
-**Hochul Leads Democratic Foes in First Major Poll of N.Y. Governor’s Race**\
+**LG will pay G.M. $1.9 billion for a battery flaw that led to a Bolt recall.**\
+`General Motors has recalled 141,000 Bolts to replace battery packs that can catch on fire because of manufacturing defects.`\
+https://nytimes.com/2021/10/12/business/lg-gm-bolt-battery-recall.html?searchResultPosition=1
+
+**Hochul Leads Democratic Field in First Major Poll of N.Y. Governor’s Race**\
 `A Marist College poll found that voters favored Gov. Kathy Hochul over potential primary rivals, including the state attorney general, Letitia James.`\
-https://nytimes.com/2021/10/12/nyregion/new-york-governor-poll-hochul.html?searchResultPosition=1
+https://nytimes.com/2021/10/12/nyregion/new-york-governor-poll-hochul.html?searchResultPosition=2
 
 **High-End Design Comes to the Fish Tank**\
 `Luxury home aquariums now can rival installations at public aquariums in size and scale, and they come with hefty price tags.`\
-https://nytimes.com/2021/10/12/realestate/high-end-home-aquariums.html?searchResultPosition=2
+https://nytimes.com/2021/10/12/realestate/high-end-home-aquariums.html?searchResultPosition=3
 
 **Aspirin Use to Prevent 1st Heart Attack or Stroke Should Be Curtailed, U.S. Panel Says**\
 `Adults at high risk for cardiovascular disease may face serious side effects if they start a daily regimen of low-dose aspirin.`\
-https://nytimes.com/2021/10/12/health/aspirin-heart-attack-stroke.html?searchResultPosition=3
+https://nytimes.com/2021/10/12/health/aspirin-heart-attack-stroke.html?searchResultPosition=4
 
 **One Woman Won a Nobel This Year. Quotas Aren’t the Answer, an Official Says.**\
 `Only one of the 13 laureates this year was a woman, but the head of the Royal Swedish Academy of Sciences dismissed the idea of guaranteeing representation.`\
-https://nytimes.com/2021/10/12/world/nobel-prize-woman-gender-ethnicity.html?searchResultPosition=4
+https://nytimes.com/2021/10/12/world/nobel-prize-woman-gender-ethnicity.html?searchResultPosition=5
 
 **Why ‘Jesus Christ Superstar’ the Album Has Always Rocked**\
 `When I discovered the record, it felt like the bizarre offspring of my deepest, dorkiest passions: theater and dad rock.`\
-https://nytimes.com/2021/10/12/theater/jesus-christ-superstar-album.html?searchResultPosition=5
+https://nytimes.com/2021/10/12/theater/jesus-christ-superstar-album.html?searchResultPosition=6
 
 **‘Jesus Christ Superstar’ at 50: What Was the Buzz?**\
 `The rock opera, with music by Andrew Lloyd Webber and lyrics by Tim Rice, opened on Broadway on Oct. 12, 1971, to protests, an irate composer — and sold-out shows.`\
-https://nytimes.com/2021/10/12/theater/jesus-christ-superstar-50th-anniversary.html?searchResultPosition=6
+https://nytimes.com/2021/10/12/theater/jesus-christ-superstar-50th-anniversary.html?searchResultPosition=7
 
 **Sally Rooney Declines to Sell Translation Rights to Israeli Publisher**\
 `The author of “Beautiful World, Where Are You” turned down an offer from an Israeli publisher to translate the novel to Hebrew, citing her support for Palestinians “in their struggle for freedom, justice and equality.”`\
-https://nytimes.com/2021/10/12/books/sally-rooney-israel-translation.html?searchResultPosition=7
+https://nytimes.com/2021/10/12/books/sally-rooney-israel-translation.html?searchResultPosition=8
 
 **As earnings season begins, inflation and supply chain issues cloud the outlook.**\
 `Companies start reporting their third-quarter earnings this week, and profits are expected to have risen substantially. But worries of future growth are growing.`\
-https://nytimes.com/2021/10/12/business/earnings-inflation-supply-chain.html?searchResultPosition=8
+https://nytimes.com/2021/10/12/business/earnings-inflation-supply-chain.html?searchResultPosition=9
 
 **As Floods Ravage China, 13 Die After Bus Falls Off Bridge**\
 `The casualties come amid violent inundations in the country that have left a total of at least 28 people dead and displaced more than 120,000 across northern areas.`\
-https://nytimes.com/2021/10/12/world/asia/china-bus-flooding-dead.html?searchResultPosition=9
-
-**‘Are We Human?’ Modi’s Use of Antiterror Law Draws Scrutiny From Courts**\
-`India’s government under Prime Minister Narendra Modi has jailed thousands of people through a statute that critics say is aimed at silencing dissent.`\
-https://nytimes.com/2021/10/12/world/asia/modi-india-antiterror-law.html?searchResultPosition=10
+https://nytimes.com/2021/10/12/world/asia/china-bus-flooding-dead.html?searchResultPosition=10
 
