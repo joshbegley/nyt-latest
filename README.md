@@ -1,5 +1,5 @@
 **The Red Sox Ride a Wave of Offense Into the A.L.C.S.**\
-`It sometimes feel like the Tampa Bay Rays are reinventing baseball, but it was Boston that upended conventional wisdom by using good hitting to beat good pitching in October.`\
+`It sometimes feels like the Tampa Bay Rays are reinventing baseball, but it was Boston that upended conventional wisdom by using good hitting to beat good pitching in October.`\
 https://nytimes.com/2021/10/12/sports/baseball/red-sox-alcs.html?searchResultPosition=1
 
 **What the Future May Hold for the Coronavirus and Us**\
