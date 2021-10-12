@@ -24,7 +24,7 @@ https://nytimes.com/2021/10/12/us/politics/biden-workplace-immigration-raids.htm
 
 **House Approves Bill to Avert U.S. Default, Sending It to Biden**\
 `The legislation, which the president is expected to sign quickly, lifts the debt ceiling until early December, when another congressional showdown looms.`\
-https://nytimes.com/2021/10/12/us/politics/debt-ceiling-house.html?searchResultPosition=7
+https://nytimes.com/2021/10/12/us/politics/debt-ceiling-house-biden.html?searchResultPosition=7
 
 **Gruden’s Emails Were Collateral Damage in Washington Football Inquiry**\
 `The former Raiders coach’s toxic commentary emerged from a separate investigation that had nothing to do with him, and remained secret because the probe was designed to be opaque.`\
