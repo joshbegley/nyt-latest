@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/12/sports/football/nfl-jon-gruden-emails.html?search
 
 **E.U. Pledges $1.15 Billion in Afghan Aid as U.S. Talks to Taliban**\
 `Europe and America has offered stopgap humanitarian aid for a country on the brink of collapse, but larger decisions about the new Taliban government remain on hold.`\
-https://nytimes.com/2021/10/12/us/politics/taliban-european-union-aid-biden.html?searchResultPosition=2
+https://nytimes.com/2021/10/12/us/politics/afghan-aid-european-union-biden.html?searchResultPosition=2
 
 **Paddy Moloney, Irish Piper Who Led the Chieftains, Dies at 83**\
 `The band he fronted for nearly 60 years toured the world, collaborated with rock stars and helped spark a renaissance for traditional Irish music.`\
