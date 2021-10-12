@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/11/theater/is-this-a-room-review.html?searchResultPo
 https://nytimes.com/video/us/100000008019794/severe-weather-texas-oklahoma-kansas.html?searchResultPosition=2
 
 **Raiders Coach’s Emails Included Homophobic and Misogynistic Comments**\
-`A trove of emails in a separate workplace misconduct case show Raiders Coach Jon Gruden went beyond previously disclosed racist comments to issue broad tirades.`\
+`A trove of emails in a separate workplace misconduct case shows Raiders Coach Jon Gruden went beyond previously disclosed racist comments to issue broad tirades.`\
 https://nytimes.com/2021/10/11/sports/football/what-did-jon-gruden-say.html?searchResultPosition=3
 
 **Election Workers in Georgia Are Fired for Shredding Voter Registration Forms**\
