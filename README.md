@@ -35,6 +35,6 @@ https://nytimes.com/video/us/100000008019794/severe-weather-texas-oklahoma-kansa
 https://nytimes.com/2021/10/11/sports/football/what-did-jon-gruden-say.html?searchResultPosition=9
 
 **Election Workers in Georgia Are Fired for Shredding Voter Registration Forms**\
-`A previous investigation of the Fulton County office could eventually replace the elections board with a temporary superintendent with sweeping powers to oversee the vote.`\
+`The office was already under fire from Trump supporters, who passed sweeping legislation that could lead to a takeover by the Republican-controlled State Legislature.`\
 https://nytimes.com/2021/10/11/us/fulton-county-election-workers-fired.html?searchResultPosition=10
 
