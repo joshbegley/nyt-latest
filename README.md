@@ -31,7 +31,7 @@ https://nytimes.com/2021/10/12/arts/music/popcast-covid-deaths.html?searchResult
 https://nytimes.com/2021/10/12/us/politics/maryland-couple-submarine-secrets-court.html?searchResultPosition=8
 
 **Nets Bar Kyrie Irving From All Practices and Games**\
-`Irving already was facing the prospect of missing all home games because of a city ordinance requiring at least one vaccine does for most people at sports arenas.`\
+`Irving already was facing the prospect of missing all home games because of a city ordinance requiring at least one vaccine dose for most people at sports arenas.`\
 https://nytimes.com/2021/10/12/sports/basketball/kyrie-irving-vaccine.html?searchResultPosition=9
 
 **On Covid, I Finally Found Common Ground. In Germany.**\
