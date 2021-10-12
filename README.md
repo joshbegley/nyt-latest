@@ -2,13 +2,13 @@
 `An unvaccinated child is at less risk of serious Covid illness than a vaccinated 70-year-old.`\
 https://nytimes.com/2021/10/12/briefing/covid-age-risk-infection-vaccine.html?searchResultPosition=1
 
-**Is Child Care a Public Responsibility?**\
-`Democrats believe the system is broken — and they have a proposal for fixing it.`\
-https://nytimes.com/2021/10/12/podcasts/the-daily/is-child-care-a-public-responsibility.html?searchResultPosition=2
-
 **As Big Tech Grows in the Pandemic, Seattle Grows With It**\
 `Despite an overall decline in office leasing in the United States, technology companies gobbled up more space in the Seattle area than they had the previous year.`\
-https://nytimes.com/2021/10/12/business/seattle-real-estate-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2021/10/12/business/seattle-real-estate-coronavirus.html?searchResultPosition=2
+
+**Is Child Care a Public Responsibility?**\
+`Democrats believe the system is broken — and they have a proposal for fixing it.`\
+https://nytimes.com/2021/10/12/podcasts/the-daily/is-child-care-a-public-responsibility.html?searchResultPosition=3
 
 **Countries around the globe turn to vaccine mandates to fight coronavirus.**\
 `The number of activities available to the unvaccinated is shrinking, and the pressure to get shots is growing.`\
