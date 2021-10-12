@@ -1,4 +1,4 @@
-**American and Southwest Airlines reject Texas order banning vaccine mandates.**\
+**American and Southwest Airlines reject the Texas order banning vaccine mandates.**\
 `“This does not change anything for American,” a spokeswoman said. When the airline introduced its mandate, it cited a presidential order that employees of government contractors be vaccinated.`\
 https://nytimes.com/2021/10/12/business/texas-abbott-vaccine-mandates-american-airlines-southwest.html?searchResultPosition=1
 
