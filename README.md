@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/13/climate/nyt-climate-newsletter-investment-funds.h
 `At 90 years old, the actor William Shatner became the oldest person to travel to space and cross the Kármán line. The “Star Trek” star traveled to space with three other passengers on a mission that lasted about 10 minutes.`\
 https://nytimes.com/video/science/space/100000008022807/william-shatner-blue-origin-rocket-launch-bezos.html?searchResultPosition=8
 
-**Blackstone employees in London must be vaccinated to work in the office.**\
+**Blackstone will mandate vaccination for some London workers, a rare step in Britain.**\
 `Starting next week, the American private equity firm will take a more forceful approach to vaccines than many other firms in Britain.`\
 https://nytimes.com/2021/10/13/business/blackstone-employees-in-london-must-be-vaccinated-to-work-in-the-office.html?searchResultPosition=9
 
