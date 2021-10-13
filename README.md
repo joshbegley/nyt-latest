@@ -1,5 +1,5 @@
 **House Approves Debt Ceiling Increase**\
-`The House of Representatives voted 219 to 206 to raise the statutory borrowing limit by $480 billion, which the Treasury Department has estimated is enough to last until at least Dec. 3.`\
+`The House voted 219 to 206 on Tuesday to raise the federal borrowing limit by $480 billion, which the Treasury Department has estimated is enough to last until at least Dec. 3.`\
 https://nytimes.com/video/us/politics/100000008021874/house-vote-debt-ceiling.html?searchResultPosition=1
 
 **Sure Things**\
