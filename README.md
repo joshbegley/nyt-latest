@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/13/science/william-shatner-blue-origin-launch-time.h
 https://nytimes.com/2021/10/13/climate/global-fossil-fuel-use.html?searchResultPosition=3
 
 **The U.S. will open the Canada and Mexico borders for fully vaccinated travelers.**\
-`The opening of the land borders 19 months after they closed will reconnect the United States with its neighbors.`\
+`The opening of the land borders 19 months after they closed will reconnect neighbors, and provide a reprieve for businesses.`\
 https://nytimes.com/2021/10/12/us/politics/us-canada-mexico-borders-open.html?searchResultPosition=4
 
 **Corrections: Oct. 13, 2021**\
