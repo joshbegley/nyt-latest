@@ -14,27 +14,27 @@ https://nytimes.com/2021/10/13/climate/global-fossil-fuel-use.html?searchResultP
 `The opening of the land borders 19 months after they closed will reconnect neighbors, and provide a reprieve for businesses.`\
 https://nytimes.com/2021/10/12/us/politics/us-canada-mexico-borders-open.html?searchResultPosition=4
 
+**Suspension is lifted for Netflix employee who criticized Dave Chappelle’s comedy special.**\
+`“At the very least, I feel vindicated,” the employee, Terra Field, wrote on Twitter.`\
+https://nytimes.com/2021/10/12/business/media/dave-chappelle-netflix-transgender-criticism.html?searchResultPosition=5
+
 **Corrections: Oct. 13, 2021**\
 `Corrections that appeared in print on Wednesday, Oct. 13, 2021.`\
-https://nytimes.com/2021/10/12/pageoneplus/corrections-oct-13-2021.html?searchResultPosition=5
+https://nytimes.com/2021/10/12/pageoneplus/corrections-oct-13-2021.html?searchResultPosition=6
 
 **Quotation of the Day: Many Officers Resist Vaccine Despite Risks**\
 `Quotation of the Day for Wednesday, October 13, 2021.`\
-https://nytimes.com/2021/10/12/todayspaper/quotation-of-the-day-many-officers-resist-vaccine-despite-risks.html?searchResultPosition=6
+https://nytimes.com/2021/10/12/todayspaper/quotation-of-the-day-many-officers-resist-vaccine-despite-risks.html?searchResultPosition=7
 
 **House Approves Debt Ceiling Increase**\
 `The House voted 219 to 206 on Tuesday to raise the federal borrowing limit by $480 billion, which the Treasury Department has estimated is enough to last until at least Dec. 3.`\
-https://nytimes.com/video/us/politics/100000008021874/house-vote-debt-ceiling.html?searchResultPosition=7
+https://nytimes.com/video/us/politics/100000008021874/house-vote-debt-ceiling.html?searchResultPosition=8
 
 **Sure Things**\
 `Brianne McManis makes her New York Times debut.`\
-https://nytimes.com/2021/10/12/crosswords/daily-puzzle-2021-10-13.html?searchResultPosition=8
+https://nytimes.com/2021/10/12/crosswords/daily-puzzle-2021-10-13.html?searchResultPosition=9
 
 **Bats Ignite At Last, Vaulting Atlanta Past Milwaukee and Into N.L.C.S.**\
 `Tuesday’s division series game had as many runs as the first three games combined. Freddie Freeman’s homer punched his team’s ticket to a face-off with San Francisco or Los Angeles.`\
-https://nytimes.com/2021/10/12/sports/baseball/atlanta-nlcs.html?searchResultPosition=9
-
-**With Cuomo Out, $2.1 Billion La Guardia AirTrain Is Halted**\
-`Gov. Kathy Hochul had asked the Port Authority of New York and New Jersey to put the project on hold and review alternatives.`\
-https://nytimes.com/2021/10/12/nyregion/laguardia-airport-airtrain.html?searchResultPosition=10
+https://nytimes.com/2021/10/12/sports/baseball/atlanta-nlcs.html?searchResultPosition=10
 
