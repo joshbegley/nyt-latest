@@ -2,9 +2,9 @@
 `Alaska’s largest city has been forced to ration health care as the state records some of the highest coronavirus caseloads in the U.S.`\
 https://nytimes.com/2021/10/13/us/anchorage-alaska-mask-mandate-covid.html?searchResultPosition=1
 
-**Hasbro’s C.E.O. and chairman, Brian Goldner, dies at 58.**\
+**Hasbro’s chief executive and chairman, Brian Goldner, dies at 58.**\
 `Mr. Goldner, who went on medical leave two days earlier, has been credited with merging toys and entertainment.`\
-https://nytimes.com/2021/10/13/business/hasbro-ceo-chairman-brian-goldner-dies.html?searchResultPosition=2
+https://nytimes.com/2021/10/13/business/brian-goldner-dead.html?searchResultPosition=2
 
 **Virginia’s Close Race**\
 `We look at how the state’s governor’s race offers a preview of the midterms.`\
