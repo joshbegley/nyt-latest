@@ -1,40 +1,40 @@
+**New York City’s Top Corruption Watchdog Leaving for Federal Role**\
+`Margaret Garnett, the commissioner of the city’s Department of Investigation, will resign Nov. 10 to become the No. 2 official at the Manhattan U.S. attorney’s office.`\
+https://nytimes.com/2021/10/13/nyregion/margaret-garnett-investigation-department.html?searchResultPosition=1
+
+**An ‘Allegory for Our Times’: The Royal Ballet’s ‘Dante Project’**\
+`Wayne McGregor’s full-length work, a collaboration with Thomas Adès and Tacita Dean, opens at a moment of purgatorial relevance.`\
+https://nytimes.com/2021/10/13/arts/dance/royal-ballet-dante-project-wayne-mcgregor.html?searchResultPosition=2
+
+**What Do You Like to Do During a Mental Health Day?**\
+`We’re seeking inspiration from our readers.`\
+https://nytimes.com/2021/10/13/well/mind/mental-health-day-ideas.html?searchResultPosition=3
+
+**Albert J. Raboteau, Who Transformed Black Religious Studies, Dies at 78**\
+`Working in the 1970s and ’80s, his scholarship helped to cement African-American studies as an academic discipline.`\
+https://nytimes.com/2021/10/13/books/albert-j-raboteau-dead.html?searchResultPosition=4
+
+**Czechs Defeat a Populist, Offering a Road Map for Toppling Strongmen**\
+`A wide range of parties in the Czech Republic banded together despite their differences to oppose Andrej Babis, the country’s populist prime minister. Opposition parties in Hungary are hoping to duplicate the feat.`\
+https://nytimes.com/2021/10/13/world/europe/czech-populism-strongmen.html?searchResultPosition=5
+
 **The Firms That Help Keep Oil Flowing**\
 `Secretive investment funds are putting billions into fossil fuel projects, buying up offshore platforms and building new pipelines.`\
-https://nytimes.com/2021/10/13/climate/nyt-climate-newsletter-investment-funds.html?searchResultPosition=1
+https://nytimes.com/2021/10/13/climate/nyt-climate-newsletter-investment-funds.html?searchResultPosition=6
 
 **William Shatner Blasts off to Space on Jeff Bezos’ Blue Origin Rocket**\
 `At 90 years old, the actor William Shatner became the oldest person to travel to space and cross the Kármán line. The “Star Trek” star traveled to space with three other passengers on a mission that lasted about 10 minutes.`\
-https://nytimes.com/video/science/space/100000008022807/william-shatner-blue-origin-rocket-launch-bezos.html?searchResultPosition=2
+https://nytimes.com/video/science/space/100000008022807/william-shatner-blue-origin-rocket-launch-bezos.html?searchResultPosition=7
 
 **New Digital Companies, Old Ad Habits**\
 `Why are DoorDash and Instacart letting businesses buy their way to the top of search results?`\
-https://nytimes.com/2021/10/13/technology/doordash-instacart-advertising.html?searchResultPosition=3
+https://nytimes.com/2021/10/13/technology/doordash-instacart-advertising.html?searchResultPosition=8
 
 **The End of Gifted Programs?**\
 `New York City may overhaul its elementary admissions to the selective track.`\
-https://nytimes.com/2021/10/13/us/the-end-of-gifted-programs.html?searchResultPosition=4
+https://nytimes.com/2021/10/13/us/the-end-of-gifted-programs.html?searchResultPosition=9
 
 **Adele Announces ‘30,’ Her First Album in Six Years**\
 `The singer’s long-awaited return will start this week, with the release of a single, “Easy on Me,” followed by a new album on Nov. 19, she announced on Wednesday.`\
-https://nytimes.com/2021/10/13/arts/music/adele-new-album-30.html?searchResultPosition=5
-
-**Review: The Met’s ‘Turandot,’ Strongly Sung, Garishly Staged**\
-`Christine Goerke and Yusif Eyvazov star in a revival of Franco Zeffirelli’s production, which adds gaudiness to Puccini’s sophisticated score.`\
-https://nytimes.com/2021/10/13/arts/music/met-opera-turandot-puccini.html?searchResultPosition=6
-
-**Jail Officials Held in Contempt for Treatment of Jan. 6 Defendant**\
-`A federal judge ruled that top officials of Washington, D.C.’s jail had improperly delayed medical treatment for a man being held without bail in connection with the attack on the Capitol.`\
-https://nytimes.com/2021/10/13/us/politics/jan-6-jail-contempt.html?searchResultPosition=7
-
-**A Racial Reckoning Is Underway in Theater. Where Is the Gender Reckoning?**\
-`A major American theater planned to produce nine plays by men and one by a woman this season. Why did it take a male playwright to change that when women have flagged such inequities for years?`\
-https://nytimes.com/2021/10/13/opinion/theater-race-gender.html?searchResultPosition=8
-
-**How to Counter Pro-Trump Extremism**\
-`Readers discuss how to combat Trumpism. Also: The F.D.A. decision on e-cigarettes; the port crisis; parents and teenagers; decluttering responsibly. `\
-https://nytimes.com/2021/10/13/opinion/letters/republicans-democrats-trump.html?searchResultPosition=9
-
-**An F.D.A. analysis suggests that J.&J. has not presented robust evidence for booster shots.**\
-`The agency said also said that it didn’t have enough time to independently review much of the raw data from the company’s trials.`\
-https://nytimes.com/2021/10/13/health/johnson-vaccine-booster-fda.html?searchResultPosition=10
+https://nytimes.com/2021/10/13/arts/music/adele-new-album-30.html?searchResultPosition=10
 
