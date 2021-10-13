@@ -10,7 +10,7 @@ https://nytimes.com/2021/10/13/science/william-shatner-blue-origin-launch-time.h
 `The world has made progress in the fight against climate change, with wind, solar and other clean technologies taking off. But more is needed to avert catastrophe, a new report finds.`\
 https://nytimes.com/2021/10/13/climate/global-fossil-fuel-use.html?searchResultPosition=3
 
-**The U.S. will open the Canada and Mexico borders for fully vaccinated travelers.**\
+**The U.S. will open the Canada and Mexico borders for fully vaccinated travelers in November.**\
 `The opening of the land borders 19 months after they closed will reconnect neighbors, and provide a reprieve for businesses.`\
 https://nytimes.com/2021/10/12/us/politics/us-canada-mexico-borders-open.html?searchResultPosition=4
 
