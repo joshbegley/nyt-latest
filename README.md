@@ -8,7 +8,7 @@ https://nytimes.com/2021/10/13/climate/biden-offshore-wind-farms.html?searchResu
 
 **What Is the Northern Ireland Protocol That Britain and the E.U. Are Squabbling Over?**\
 `The U.K. is demanding that post-Brexit rules for Northern Ireland it agreed to be discarded. The European Union sees the protocol as a key part of protecting its single market.`\
-https://nytimes.com/2021/10/13/world/europe/uk-northern-ireland-protocol-eu.html?searchResultPosition=3
+https://nytimes.com/article/uk-northern-ireland-protocol-eu.html?searchResultPosition=3
 
 **Myriam Sarachik, Physicist Who Plumbed Magnetism, Dies at 88**\
 `She overcame bias against women in science and personal tragedy to perform groundbreaking work. She earned recognition for her achievements last year.`\
