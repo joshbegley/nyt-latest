@@ -8,7 +8,7 @@ https://nytimes.com/2021/10/13/arts/design/4-art-gallery-shows-to-see-right-now.
 
 **Caribbean nations struggle with vaccination efforts.**\
 `Across the region, countries are grappling with unequal distribution of doses and vaccine hesitancy.`\
-https://nytimes.com/2021/10/13/world/americas/caribbean-covid-vaccinations.html?searchResultPosition=3
+https://nytimes.com/2021/10/13/world/americas/haiti-covid-vaccinations-caribbean.html?searchResultPosition=3
 
 **Former ‘Hamilton’ Cast Member Files Discrimination Complaint Against Show**\
 `In the E.E.O.C. filing, the actor, who is nonbinary, describes being retaliated against after requesting a gender-neutral dressing room, among other claims. The show denies the allegations.`\
