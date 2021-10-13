@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/13/opinion/letters/republicans-democrats-trump.html?
 https://nytimes.com/2021/10/13/health/johnson-vaccine-booster-fda.html?searchResultPosition=6
 
 **The W.H.O. names an advisory group to study the origins of the pandemic.**\
-`The group includes scientists from 26 countries, a reflection of the W.H.O.’s effort to amass widespread international support for the work.`\
+`The World Health Organization on Wednesday named 26 scientists to a new advisory group charged with studying the origins of the coronavirus, opening another chapter of the fraught search for how the pandemic began.`\
 https://nytimes.com/2021/10/13/science/who-coronavirus-origins.html?searchResultPosition=7
 
 **John Paul I, Pope for 33 Days in 1978, Will Be Beatified**\
