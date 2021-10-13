@@ -26,15 +26,15 @@ https://nytimes.com/2021/10/13/climate/nyt-climate-newsletter-investment-funds.h
 `At 90 years old, the actor William Shatner became the oldest person to travel to space and cross the Kármán line. The “Star Trek” star traveled to space with three other passengers on a mission that lasted about 10 minutes.`\
 https://nytimes.com/video/science/space/100000008022807/william-shatner-blue-origin-rocket-launch-bezos.html?searchResultPosition=7
 
+**Blackstone employees in London must be vaccinated to work in the office.**\
+`Starting next week, the American private equity firm will take a more forceful approach to vaccines than many other firms in Britain.`\
+https://nytimes.com/2021/10/13/business/blackstone-employees-in-london-must-be-vaccinated-to-work-in-the-office.html?searchResultPosition=8
+
 **New Digital Companies, Old Ad Habits**\
 `Why are DoorDash and Instacart letting businesses buy their way to the top of search results?`\
-https://nytimes.com/2021/10/13/technology/doordash-instacart-advertising.html?searchResultPosition=8
+https://nytimes.com/2021/10/13/technology/doordash-instacart-advertising.html?searchResultPosition=9
 
 **The End of Gifted Programs?**\
 `New York City may overhaul its elementary admissions to the selective track.`\
-https://nytimes.com/2021/10/13/us/the-end-of-gifted-programs.html?searchResultPosition=9
-
-**Adele Announces ‘30,’ Her First Album in Six Years**\
-`The singer’s long-awaited return will start this week, with the release of a single, “Easy on Me,” followed by a new album on Nov. 19, she announced on Wednesday.`\
-https://nytimes.com/2021/10/13/arts/music/adele-new-album-30.html?searchResultPosition=10
+https://nytimes.com/2021/10/13/us/the-end-of-gifted-programs.html?searchResultPosition=10
 
