@@ -1,5 +1,5 @@
 **Amid Chaos at Rikers, Women and Transgender People to Be Transferred**\
-`The move, meant to free staff to restore order at the notorious jail system, raises questions about the women’s access to their lawyers and families.`\
+`The move, meant to free staff to restore order at the notorious jail system, raises questions about the detainees’ access to their lawyers and families.`\
 https://nytimes.com/2021/10/13/nyregion/rikers-women-trans-people-state-prison.html?searchResultPosition=1
 
 **‘The Last Duel’ Review: A Medieval Epic in the Age of #MeToo**\
