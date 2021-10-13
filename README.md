@@ -14,8 +14,8 @@ https://nytimes.com/2021/10/13/theater/thoughts-of-a-colored-man-review.html?sea
 `Black Americans were once far less likely than white Americans to be vaccinated. But a wave of pro-vaccine campaigns and a surge of virus deaths have narrowed that gap, experts say.`\
 https://nytimes.com/2021/10/13/us/black-americans-vaccine-tuskegee.html?searchResultPosition=4
 
-**Justice Dept. to Investigate Abuses in Texas’ Juvenile Prisons**\
-`Reports of excessive force, sexual misconduct, and the use of isolation and pepper spray prompted the inquiry into the treatment of incarcerated children.`\
+**Justice Dept. to Investigate Reports of Abuse in Texas’ Juvenile Prisons**\
+`Accusations of excessive force, sexual misconduct, and the use of isolation and pepper spray prompted the inquiry into the treatment of incarcerated children.`\
 https://nytimes.com/2021/10/13/us/politics/texas-juvenile-prisons-abuse.html?searchResultPosition=5
 
 **William Shatner and Crew Float in Space**\
