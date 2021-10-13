@@ -1,40 +1,40 @@
-**My Toxic Afghan Love Story**\
-`Abandoned by the U.S., an Afghan woman secretly records video diaries while on the run from the Taliban.`\
-https://nytimes.com/video/opinion/100000008007152/afghanistan-taliban-women-exile.html?searchResultPosition=1
+**This Pristine Beach Is One of Japan’s Last. Soon It Will Be Filled With Concrete.**\
+`In rural Japan, the unstoppable forces of nature meet the immovable determination of the construction state. Can this village survive?`\
+https://nytimes.com/2021/10/13/world/asia/japan-katoku-seawall.html?searchResultPosition=1
 
-**China’s Power Problems Expose a Strategic Weakness**\
-`The country’s energy inefficiency and dependence on climate-damaging coal threaten to damage its image as a reliable manufacturing base.`\
-https://nytimes.com/2021/10/13/business/china-electricity-shortage.html?searchResultPosition=2
+**16 Slow Cooker Recipes That You Can Prep and Forget**\
+`These dishes require a little fuss now for a big payoff later.`\
+https://nytimes.com/article/best-slow-cooker-recipes.html?searchResultPosition=2
 
-**One Pandemic, Two Governors**\
-`The New Jersey governor’s race is a test for mask and vaccine mandates. New York’s governor, who has expanded mandates, leads her likely primary opponents in a poll.`\
-https://nytimes.com/2021/10/13/nyregion/one-pandemic-two-governors.html?searchResultPosition=3
+**Mickalene Thomas’s Loving, Lusty Gaze on the Black Female Form**\
+`The artist’s work is shifting ideals of desire and selling for seven figures.`\
+https://nytimes.com/2021/10/13/magazine/mickalene-thomas.html?searchResultPosition=3
 
-**Lesson of the Day: ‘Remembering the Lives of Influential Latinos’**\
-`In this lesson, students will learn about seven important Latino Americans from history and remember them with a one-pager.`\
-https://nytimes.com/2021/10/13/learning/lesson-plans/lesson-of-the-day-remembering-the-lives-of-influential-latinos.html?searchResultPosition=4
+**Biden, Battling Supply Chain Woes, to Announce Port Will Operate 24/7**\
+`The expansion of the Port of Los Angeles’s hours comes as the administration has struggled to untangle kinks in global supply chains and curb the resulting inflation.`\
+https://nytimes.com/2021/10/13/us/politics/biden-port-los-angeles-supply-chain.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/13/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Walking an Adventure Playground**\
+`A new hiking path through Slovenia’s Julian Alps offers the pleasures of lakes and valleys rather than high peaks. It’s a worthwhile trade off.`\
+https://nytimes.com/2021/10/13/travel/slovenia-juliana-trail-hiking.html?searchResultPosition=5
 
-**Comic Con Craze**\
-`Have you ever attended a comic book or other type of convention?`\
-https://nytimes.com/2021/10/13/learning/comic-con-craze.html?searchResultPosition=6
+**Selma Blair Wants You to See Her Living With Multiple Sclerosis**\
+`The actress puts herself out there in “Introducing, Selma Blair,” an unflinching documentary that she hopes can help others.`\
+https://nytimes.com/2021/10/13/movies/selma-blair-documentary-multiple-sclerosis.html?searchResultPosition=6
 
-**Amid U.S.-China Chill, Harvard Moves a Top Language Program to Taiwan**\
-`A university spokesman said the move had long been planned. The program’s director said the decision was based on a perceived lack of friendliness on the part of the host institution.`\
-https://nytimes.com/2021/10/13/world/asia/harvard-chinese-program-taiwan.html?searchResultPosition=7
+**A Stock Market Malaise With the Shadow of ’70s-Style Stagflation**\
+`After coasting higher over the summer, markets are jittery over rising prices, growth snarls and a number of other threats.`\
+https://nytimes.com/2021/10/13/business/stocks-inflation-stagflation.html?searchResultPosition=7
 
-**Late Night Shames Moderna for Refusing to Share**\
-`“Imagine only making one thing and billions of people want it,” Jimmy Kimmel said. “This must be how the Baha Men felt after recording ‘Who Let the Dogs Out.’”`\
-https://nytimes.com/2021/10/13/arts/television/jimmy-kimmel-moderna-covid-vaccine.html?searchResultPosition=8
+**An Italian Art Haven Along the Hudson**\
+`Postwar art, Aperol spritzers and Sardinian donkeys at the Magazzino Italian Art museum in New York.`\
+https://nytimes.com/2021/10/13/style/magazzino-italian-art-cold-spring-ny.html?searchResultPosition=8
 
-**Word of the Day: verbatim**\
-`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/13/learning/word-of-the-day-verbatim.html?searchResultPosition=9
+**Private Equity Funds, Sensing Profit in Tumult, Are Propping Up Oil**\
+`These secretive investment companies have pumped billions of dollars into fossil fuel projects, buying up offshore platforms, building new pipelines and extending lifelines to coal power plants.`\
+https://nytimes.com/2021/10/13/climate/private-equity-funds-oil-gas-fossil-fuels.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`A damning report on Britain’s virus response.`\
-https://nytimes.com/2021/10/13/briefing/britain-coronavirus-economic-recovery.html?searchResultPosition=10
+**It Isn’t That Easy to Just Give People What They Want**\
+`Nor would that be totally advisable. `\
+https://nytimes.com/2021/10/13/opinion/david-shor-biden-democrats.html?searchResultPosition=10
 
