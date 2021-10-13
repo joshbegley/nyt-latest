@@ -12,7 +12,7 @@ https://nytimes.com/2021/10/13/us/politics/jeffrey-clark-subpoena.html?searchRes
 
 **Open Tryouts During the Season? For Arizona, Loser of 17 Straight, Why Not?**\
 `The Wildcats football team needs help, so it sought out reinforcements on campus.`\
-https://nytimes.com/2021/10/13/sports/ncaafootball/university-of-arizona-football-losing-streak.html?searchResultPosition=4
+https://nytimes.com/2021/10/13/sports/ncaafootball/university-of-arizona-football.html?searchResultPosition=4
 
 **Data from Federal Scientists Raise Questions About J.&J. Booster Shots**\
 `People who have received the company’s one-shot vaccine may benefit from a booster with another brand. F.D.A. advisers will discuss the data on Friday.`\
