@@ -1,5 +1,5 @@
 **Norway Bow and Arrow Attack Leaves Several Dead**\
-`The police scrambled to investigate and attack in a town 50 miles outside Oslo.`\
+`The police scrambled to investigate an attack in a town 50 miles outside Oslo.`\
 https://nytimes.com/2021/10/13/world/europe/norway-bow-arrow-attack.html?searchResultPosition=1
 
 **Demo-FeatureArticle1**\
