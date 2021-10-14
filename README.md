@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/14/business/media/dave-chappelle-closer-netflix.html
 https://nytimes.com/2021/10/14/sports/baseball/with-boones-status-unclear-yankees-begin-coaching-changes.html?searchResultPosition=6
 
 **Van Gogh Watercolor, Once Seized by Nazis, to be Sold at Auction**\
-`Christie’s estimates the work could fetch as much as $30 million, to be split between the current owner and the heirs of Jewish collectors who once owned it.`\
+`Christie’s estimates the work could fetch as much as $30 million, and is being sold under the terms of an agreement between the current owner and the heirs of Jewish collectors who once owned it.`\
 https://nytimes.com/2021/10/14/arts/design/vangogh-watercolor-auction-christies.html?searchResultPosition=7
 
 **At Rallies, Trump Fans Wear Their Grievances**\
