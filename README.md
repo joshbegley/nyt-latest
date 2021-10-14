@@ -1,5 +1,5 @@
 **Mississippi Threatens to Sue Brett Favre Over $828,000**\
-`Mr. Favre was among more than 10 people who received letters from the state auditor demanding repayment of tens of millions of dollars connected to an extensive welfare fraud scheme.`\
+`The former Green Bay Packers quarterback was among more than 10 people who received letters from the state auditor demanding repayment of tens of millions of dollars connected to an extensive welfare fraud scheme.`\
 https://nytimes.com/2021/10/13/us/brett-favre-welfare-funds-mississippi.html?searchResultPosition=1
 
 **Robocalls Are Not Even the Worst of It**\
