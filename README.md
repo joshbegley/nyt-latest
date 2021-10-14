@@ -20,7 +20,7 @@ https://nytimes.com/2021/10/14/business/walgreens-coronavirus-vaccinations-excee
 
 **Democrats Plan Another Bid to Break G.O.P. Voting Rights Filibuster**\
 `Senator Chuck Schumer, the top Democrat, announced he would force another vote next week to bring legislation to the floor despite a Republican blockade.`\
-https://nytimes.com/2021/10/14/us/democrats-plan-another-bid-to-break-gop-voting-rights-filibuster.html?searchResultPosition=6
+https://nytimes.com/2021/10/14/us/democrats-vote-gop-filibuster.html?searchResultPosition=6
 
 **What’s Going On in This Graph? | Oct. 20, 2021**\
 `How worried should American consumers be about inflation (rising prices)?`\
