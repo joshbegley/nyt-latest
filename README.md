@@ -1,4 +1,4 @@
-**Shaken Early, U.S. Recovers and Rolls Past Costa Rica**\
+**Rising Off the Mat, U.S. Rallies Past Costa Rica**\
 `Sergiño Dest scored one goal and set up another as the United States regained its stride with a dominant performance in World Cup qualifying.`\
 https://nytimes.com/2021/10/13/sports/soccer/us-costa-rica-world-cup-qualifying.html?searchResultPosition=1
 
