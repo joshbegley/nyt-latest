@@ -27,7 +27,7 @@ https://nytimes.com/video/t-magazine/100000007990218/tell-t-a-joke-anna-sui.html
 https://nytimes.com/video/t-magazine/100000007990278/tell-t-a-joke-glenn-ligon.html?searchResultPosition=7
 
 **Man Is Charged in Bow-and-Arrow Attack in Norway That Killed 5**\
-`The police said that the suspect, a 37-year-old Danish citizen, was a recent convert to Islam who had shown signs of radicalization.`\
+`The police said that they had contacted the suspect, a 37-year-old Danish citizen, over concerns that he was radicalized.`\
 https://nytimes.com/2021/10/14/world/europe/norway-bow-and-arrow-attack.html?searchResultPosition=8
 
 **After an F.D.A. panel considers more Covid booster shots, what happens next?**\
