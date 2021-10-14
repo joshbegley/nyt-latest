@@ -24,7 +24,7 @@ https://nytimes.com/2021/10/14/us/robert-durst-trial-sentence.html?searchResultP
 
 **Can Lab-Grown Burgers Help Stop Climate Change?**\
 `Lab-grown meat has been hailed as a solution to humanity's unsustainable consumption of animal products, but some say the idea is a fantasy.`\
-https://nytimes.com/2021/10/14/opinion/can-lab-grown-burgers-help-stop-climate-change.html?searchResultPosition=7
+https://nytimes.com/2021/10/14/opinion/climate-change-lab-grown-burgers.html?searchResultPosition=7
 
 **Deadly Clashes in Beirut Escalate Fears Over Lebanon’s Dysfunction**\
 `The fighting further traumatized the small Mediterranean country, a patchwork of sects that has tumbled into an abyss of devastating political and economic crises.`\
