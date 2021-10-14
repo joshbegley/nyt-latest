@@ -15,7 +15,7 @@ https://nytimes.com/2021/10/14/arts/design/vangogh-watercolor-auction-christies.
 https://nytimes.com/2021/10/14/us/politics/trump-fans-rally-fashion.html?searchResultPosition=4
 
 **Federal grand jury indicts former Boeing pilot in connection with 737 Max jet.**\
-`The charges are the culmination of a long investigation.`\
+`The plane model was involved in two crashes that killed 346 people.`\
 https://nytimes.com/2021/10/14/business/boeing-737-pilot.html?searchResultPosition=5
 
 **Texas Removed an L.G.B.T.Q. Resource Page After a Candidate Complained**\
