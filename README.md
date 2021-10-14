@@ -1,5 +1,5 @@
 **N.Y.P.D. Officer Fatally Shoots Woman at Girlfriend’s Home, Police Say**\
-`The officer, whom a police official identified as Yvonne Wu, has been with the Police Department for more than five years.`\
+`The officer, whom a police official identified as Yvonne Wu, also shot and wounded her girlfriend, the police said.`\
 https://nytimes.com/2021/10/13/nyregion/nypd-officer-women-shot.html?searchResultPosition=1
 
 **Hurricane Pamela Makes Landfall in Mexico**\
