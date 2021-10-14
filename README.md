@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/14/books/review/joy-sorman-life-sciences.html?searchResultPosition=1
 
 **Jan. 6 Panel Sets Vote to Recommend Criminal Charges Against Bannon**\
-`The House select committee investigating the Capitol riot is to vote next week to recommend a criminal contempt of Congress charge against Stephen K. Bannon after he defied a subpoena.`\
+`The House select committee investigating the Capitol riot will vote next week to recommend a criminal contempt of Congress charge against Stephen K. Bannon after he defied a subpoena.`\
 https://nytimes.com/2021/10/14/us/politics/jan-6-panel-sets-vote-to-recommend-criminal-charges-against-bannon.html?searchResultPosition=2
 
 **An N.B.A. Female ‘First’ Hopes It’s Not Such a Big Deal Soon**\
