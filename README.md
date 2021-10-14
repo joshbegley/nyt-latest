@@ -31,7 +31,7 @@ https://nytimes.com/2021/10/14/us/politics/andrew-mccabe-trump-fired-pension.htm
 https://nytimes.com/2021/10/14/briefing/moderna-steve-bannon-succession.html?searchResultPosition=8
 
 **Robert Durst Sentenced to Life in Prison for Friend’s Murder**\
-`A jury found that Mr. Durst, subject of HBO’s “The Jinx,” killed a longtime friend in 2000 because of what she knew about his wife’s disappearance nearly 40 years ago.`\
+`A jury found that Mr. Durst, subject of the HBO series “The Jinx,” killed a longtime friend in 2000 because of what she knew about his wife’s disappearance nearly 40 years ago.`\
 https://nytimes.com/2021/10/14/us/robert-durst-trial-sentence.html?searchResultPosition=9
 
 **Can Lab-Grown Burgers Help Stop Climate Change?**\
