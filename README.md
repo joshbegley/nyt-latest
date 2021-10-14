@@ -23,7 +23,7 @@ https://nytimes.com/video/world/asia/100000008025462/taiwan-apartment-building-f
 https://nytimes.com/2021/10/14/sports/baseball/ray-fosse-dead.html?searchResultPosition=6
 
 **U.S. Renews Its Support for Trade Group It Once Made a Punching Bag**\
-`Trade Representative Katherine Tai outlined her vision for the battered World Trade Organization, saying the U.S. wanted to re-engage and see it address working people’s concerns.`\
+`Trade Representative Katherine Tai outlined her vision for the World Trade Organization in a speech that was seen as the return of the U.S. to its traditional leadership role.`\
 https://nytimes.com/2021/10/14/business/economy/trade-wto-katherine-tai.html?searchResultPosition=7
 
 **YouTube’s stronger election misinformation policies had a spillover effect on Twitter and Facebook, researchers say.**\
