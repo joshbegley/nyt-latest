@@ -22,7 +22,7 @@ https://nytimes.com/interactive/2021/10/14/your-money/student-loans/PSLF-student
 `And like Mr. Springsteen, I have resolved to release the shame.`\
 https://nytimes.com/2021/10/14/well/mind/mental-health-bruce-springsteen.html?searchResultPosition=6
 
-**This Is Where Biden Is Most Vulnerable**\
+**Where Biden Is Most Vulnerable**\
 `He said he knew how to get things moving. But we’re stalled.`\
 https://nytimes.com/2021/10/14/opinion/joe-biden-democratic-party.html?searchResultPosition=7
 
