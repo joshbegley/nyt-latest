@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/14/us/politics/trump-fans-rally-fashion.html?searchR
 
 **Federal grand jury indicts former Boeing pilot in connection with 737 Max jet.**\
 `The charges are the culmination of a long investigation.`\
-https://nytimes.com/2021/10/14/business/federal-grand-jury-indicts-former-boeing-pilot-in-connection-with-737-max-jet.html?searchResultPosition=2
+https://nytimes.com/2021/10/14/business/boeing-737-pilot.html?searchResultPosition=2
 
 **Texas Removed an L.G.B.T.Q. Resource Page After a Candidate Complained**\
 `Don Huffines, who is challenging Gov. Greg Abbott in next year’s Republican primary, said the content on the state web page was “offensive.” It was quickly removed.`\
