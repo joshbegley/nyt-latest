@@ -1,5 +1,5 @@
 **The Chaotic Conditions at Rikers Island**\
-`The deplorable conditions at Rikers Island. Also: The joy of audiobooks; airline vaccine mandates; Bond, James Bond.`\
+`The deplorable conditions at the New York prison complex. Also: The joy of audiobooks; airline vaccine mandates; Bond, James Bond.`\
 https://nytimes.com/2021/10/14/opinion/letters/rikers-island-jail.html?searchResultPosition=1
 
 **Texas Man Is Sentenced for Using Dating App to Target Gay Men**\
