@@ -1,6 +1,6 @@
 **Bank of America and Wells Fargo beat earnings forecasts as the economic recovery continues.**\
-`By Lananh Nguyen`\
-https://nytimes.com/2021/10/14/business/bank-of-america-and-wells-fargo-beat-earnings-forecasts-as-the-economic-recovery-continues.html?searchResultPosition=1
+`Citigroup and Morgan Stanley are also expected to report their third-quarter earnings on Thursday.`\
+https://nytimes.com/2021/10/14/business/bofa-wells-fargo-earnings.html?searchResultPosition=1
 
 **‘All About My Sisters’ Review: Family Matters**\
 `Wang Qiong’s debut feature traces the tragic effects of China’s one-child policy on her family.`\
