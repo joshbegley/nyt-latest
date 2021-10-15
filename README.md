@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/15/us/coronavirus-today-past-future-pandemics.html?s
 
 **Key takeaways from the sixth week of the Elizabeth Holmes trial.**\
 `Testimony addressed the question of whether Theranos was misleading and deceiving big corporations to get money.`\
-https://nytimes.com/2021/10/15/technology/elizabeth-holmes-theranos-trial.html?searchResultPosition=2
+https://nytimes.com/2021/10/15/technology/elizabeth-holmes-trial-theranos-takeaways.html?searchResultPosition=2
 
 **What I See in the Latest Blackface ‘Scandal’**\
 `Michigan’s campus cancelers aren’t snowflakes, they’re radicals.`\
