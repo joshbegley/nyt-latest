@@ -32,7 +32,7 @@ https://nytimes.com/2021/10/15/world/europe/covid-passes.html?searchResultPositi
 
 **Toyota will cut production in November 15 percent amid chip shortages.**\
 `The automaker had initially planned to produce a million vehicles in November, but it now projects it will make 850,000 to 900,000 vehicles next month.`\
-https://nytimes.com/2021/10/15/business/toyota-will-cut-production-in-november-15-percent-amid-chip-shortages.html?searchResultPosition=9
+https://nytimes.com/2021/10/15/business/toyota-november-production-chip-shortage.html?searchResultPosition=9
 
 **The Visionary Community of the Harlem Y.M.C.A.**\
 `In the early 20th century, the building became a meeting place for many of the writers, artists, actors and activists who defined a new and vibrant Black culture.`\
