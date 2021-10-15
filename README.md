@@ -1,5 +1,5 @@
 **In Battle of Rivals, the Dodgers Outlast the Giants to Reach the N.L.C.S.**\
-`A late single by the scuffling Cody Bellinger was the difference in a hard-fought pitching matchup between 109-win teams.`\
+`A late single by Cody Bellinger was the difference in a hard-fought pitching matchup between 109-win teams.`\
 https://nytimes.com/2021/10/15/sports/baseball/dodgers-giants-nlds.html?searchResultPosition=1
 
 **Your Friday Briefing**\
