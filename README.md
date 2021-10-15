@@ -10,17 +10,17 @@ https://nytimes.com/2021/10/15/us/politics/johnson-vaccine-boosters-fda.html?sea
 `A five-day drive around the Kenai Peninsula reveals few crowds, affordable lodging and autumn colors. But your ability to be flexible will almost certainly be tested.`\
 https://nytimes.com/2021/10/15/travel/alaska-autumn-road-trip.html?searchResultPosition=3
 
+**Is It Time for Kyrsten Sinema to Leave the Democratic Party?**\
+`The Arizona senator is, at heart, a Democrat of convenience and expediency. She could well break up with the party — before it breaks up with her. `\
+https://nytimes.com/2021/10/15/opinion/kyrsten-sinema-democratic-party-senate.html?searchResultPosition=4
+
 **‘Insecure’ Broke Ground by Embracing Imperfection**\
 `The show, which ends this season, depicted its characters as authentically flawed. “True representation is the ability to show your vulnerability,” said the co-creator and star Issa Rae.`\
-https://nytimes.com/2021/10/15/arts/television/insecure-final-season-issa-rae.html?searchResultPosition=4
+https://nytimes.com/2021/10/15/arts/television/insecure-final-season-issa-rae.html?searchResultPosition=5
 
 **Today’s Must-Have Amenity? A Little Green Space.**\
 `Thanks to the pandemic, there’s a major shift in what New Yorkers consider luxury.`\
-https://nytimes.com/2021/10/15/realestate/outdoor-space-nyc-apartments.html?searchResultPosition=5
-
-**Is It Time for Kyrsten Sinema to Leave the Democratic Party?**\
-`The Arizona senator is, at heart, a Democrat of convenience and expediency. She could well break up with the party — before it breaks up with her. `\
-https://nytimes.com/2021/10/15/opinion/kyrsten-sinema-democratic-party-senate.html?searchResultPosition=6
+https://nytimes.com/2021/10/15/realestate/outdoor-space-nyc-apartments.html?searchResultPosition=6
 
 **How Lili Taylor, Actress and Birder, Spends Her Sundays**\
 `When she’s not onstage, she’s often at her bedroom window, taking in Brooklyn’s wildlife.`\
