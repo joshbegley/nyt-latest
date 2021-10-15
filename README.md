@@ -1,40 +1,40 @@
+**What to Cook This Week**\
+`Two new sheet-pan recipes for your busy nights: crispy noodles with glazed tofu, and pork schnitzel.`\
+https://nytimes.com/2021/10/15/dining/what-to-cook-this-week.html?searchResultPosition=1
+
+**Soccer’s Problem With Silver Medals**\
+`It was notable when Spain’s players kept their runner-up awards after losing a final. It shouldn’t be.`\
+https://nytimes.com/2021/10/15/sports/soccer/newcastle-saudi-spain-france.html?searchResultPosition=2
+
+**What to Cook This Weekend**\
+`Keeping the memory of La Caridad 78 alive, and new recipes from Ali Slagle and Eric Kim.`\
+https://nytimes.com/2021/10/15/dining/what-to-cook-this-weekend.html?searchResultPosition=3
+
+**Andrea Martin, R&B Songwriter, Dies at 49**\
+`She co-wrote hits for En Vogue, Toni Braxton and other artists in the 1990s and 2000s and was also a singer, releasing an album.`\
+https://nytimes.com/2021/10/15/arts/music/andrea-martin-rb-songwriter-dies-at-49.html?searchResultPosition=4
+
+**Nikolas Cruz to Plead Guilty for Parkland School Shooting**\
+`Mr. Cruz will plead guilty to 17 counts of premeditated murder and 17 counts of attempted murder, his lawyers said, for one of the deadliest school shootings in U.S. history.`\
+https://nytimes.com/2021/10/15/us/nikolas-cruz-parkland-shooting-plea.html?searchResultPosition=5
+
+**Bangladesh Strengthens Security as Violence Targets Hindu Festival**\
+`Paramilitary forces were deployed across much of the country after the worst communal violence in years targeted dozens of Hindu gatherings.`\
+https://nytimes.com/2021/10/15/world/asia/15bangladesh-muslim-hindu-violence.html?searchResultPosition=6
+
 **Protests fizzle as activists fail to galvanize the masses against the new mandate.**\
 `While there were scattered protests across Italy on Friday, many in the country appeared to accept the measure as necessary.`\
-https://nytimes.com/2021/10/15/world/europe/covid-italy-green-pass-protests.html?searchResultPosition=1
+https://nytimes.com/2021/10/15/world/europe/covid-italy-green-pass-protests.html?searchResultPosition=7
 
 **A Fashionable Night at the Ballet**\
 `And, Carnegie Hall reopens with a black-tie gala and PEN America honors imprisoned writers.`\
-https://nytimes.com/2021/10/15/style/a-fashionable-night-at-the-ballet.html?searchResultPosition=2
+https://nytimes.com/2021/10/15/style/a-fashionable-night-at-the-ballet.html?searchResultPosition=8
 
 **Adele Returns With Power and Restraint, and 11 More New Songs**\
 `Hear new tracks by serpentwithfeet, Blackstarkids, Stromae and others.`\
-https://nytimes.com/2021/10/15/arts/music/playlist-adele-easy-on-me.html?searchResultPosition=3
+https://nytimes.com/2021/10/15/arts/music/playlist-adele-easy-on-me.html?searchResultPosition=9
 
 **Suspect Confesses in Bow-and-Arrow Rampage in Norway**\
 `Espen Anderson Brathen has been charged with murder in the deaths of five people after the authorities say he went on a killing spree armed with a hunting bow.`\
-https://nytimes.com/2021/10/15/world/europe/norway-murder-bow-arrow-terrorism.html?searchResultPosition=4
-
-**Vaccinated travelers from abroad can enter the U.S. on Nov. 8.**\
-`The date helps clarify the end to restrictions that had walled off tourists and relatives seeking to visit their families in the United States.`\
-https://nytimes.com/2021/10/15/us/politics/vaccine-mandate-travel-us.html?searchResultPosition=5
-
-**Dancing Cheek to Cheek Again: New York’s Tango Scene Rebounds**\
-`The pandemic was disastrous for tango. But milongas are thriving around the city now, capped by the return of Queer Tango Weekend.`\
-https://nytimes.com/2021/10/15/arts/dance/new-york-tango.html?searchResultPosition=6
-
-**A lab in England issued about 43,000 false negatives on virus tests, U.K. says.**\
-`The mistake was described as an “isolated incident attributed to one laboratory,” in a statement released by the U.K. Health Security Agency on Friday.`\
-https://nytimes.com/2021/10/15/world/uk-lab-false-negative-tests.html?searchResultPosition=7
-
-**Goldman Sachs’s profit surges on record merger activity.**\
-`The Wall Street giant joined the country’s other big banks in beating analysts’ earnings expectations.`\
-https://nytimes.com/2021/10/15/business/goldman-sachs-earnings.html?searchResultPosition=8
-
-**David Sanford’s Music Has Flown Under the Radar. It Shouldn’t.**\
-`Few composers have broader stylistic reach. But on a new album, “A Prayer for Lester Bowie,” he makes it all cohere.`\
-https://nytimes.com/2021/10/15/arts/music/david-sanford-music.html?searchResultPosition=9
-
-**Five Horror Films to Stream Now**\
-`The month’s picks include a contagion film, an ’80s throwback, an unnerving tale of siblings, a faux documentary and a slow-burn thriller.`\
-https://nytimes.com/2021/10/15/movies/five-horror-films-to-stream-now.html?searchResultPosition=10
+https://nytimes.com/2021/10/15/world/europe/norway-murder-bow-arrow-terrorism.html?searchResultPosition=10
 
