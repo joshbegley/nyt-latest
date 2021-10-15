@@ -1,6 +1,6 @@
 **A Year Later, a Schoolteacher’s Beheading Still Haunts France**\
 `The killing of Samuel Paty by an 18-year-old Chechen refugee intensified debate over security and immigration, and prompted intense scrutiny of the French secular model.`\
-https://nytimes.com/2021/10/15/world/europe/france-samuel-paty-beheading-anniversary.html?searchResultPosition=1
+https://nytimes.com/2021/10/15/world/europe/france-samuel-paty-beheading.html?searchResultPosition=1
 
 **When Outdoor Diners and Homeless People Meet, Restaurants Struggle to Cope**\
 `As homelessness grows in New York City, owners seek ways to defuse conflicts between panhandlers and their customers and employees, from hiring guards to feeding the hungry.`\
