@@ -1,6 +1,6 @@
 **Leader of West African Terrorist Group Is Dead, Nigerian Army Says**\
 `A top military commander said that Abu Musab al-Barnawi, head of an extremist organization known as the Islamic State West Africa Province, had died.`\
-https://nytimes.com/2021/10/15/world/africa/leader-of-west-african-terrorist-group-is-dead-nigerian-army-says.html?searchResultPosition=1
+https://nytimes.com/2021/10/15/world/africa/nigeria-islamic-state-abu-musab-al-barnawi-dead.html?searchResultPosition=1
 
 **Conservative U.K. Lawmaker Is Reported Stabbed in Southeast England**\
 `The member of Parliament, David Amess, was holding a meeting in his local constituency at the time of the attack.`\
