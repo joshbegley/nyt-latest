@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/15/us/politics/vaccine-mandate-travel-us.html?search
 
 **Dancing Cheek to Cheek Again: New York’s Tango Scene Rebounds**\
 `The pandemic was disastrous for tango. But milongas are thriving around the city now, capped by the return of Queer Tango Weekend.`\
-https://nytimes.com/2021/10/15/arts/new-york-tango.html?searchResultPosition=2
+https://nytimes.com/2021/10/15/arts/dance/new-york-tango.html?searchResultPosition=2
 
 **Goldman Sachs’s profit surges on record merger activity.**\
 `The Wall Street giant joined the country’s other big banks in beating analysts’ earnings expectations.`\
