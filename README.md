@@ -1,5 +1,5 @@
 **Blast at Afghan Mosque Kills and Injures More Than a Dozen**\
-`The explosion in Kandahar was the second week in a row that attackers had struck a Shiite place of worship during Friday Prayer.`\
+`The explosion in Kandahar marked the second week in a row that attackers had struck a Shiite place of worship during Friday Prayer.`\
 https://nytimes.com/2021/10/15/world/asia/afghanistan-mosque-blast.html?searchResultPosition=1
 
 **Farewell to a Ballerina With Borscht Belt Humor and ‘Legs of Life’**\
