@@ -10,7 +10,7 @@ https://nytimes.com/2021/10/15/briefing/johnson-and-johnson-texas-nasa.html?sear
 `What we heard from Afghan women.`\
 https://nytimes.com/2021/10/15/podcasts/daily-newsletter-taliban-afghan-women.html?searchResultPosition=3
 
-**Wall Street Sees a Record-Deal Spree as Reason for Optimism**\
+**Wall Street Sees a Record-Deal Spree as a Reason for Optimism**\
 `Fees from advising corporate clients on mergers and other deals raised bottom lines across Wall Street. Bankers say it’s a good sign for the recovery.`\
 https://nytimes.com/2021/10/15/business/wall-street-banks-earnings-mergers.html?searchResultPosition=4
 
