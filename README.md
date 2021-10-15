@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2021/10/15/us/politics/conservative-rally-behind-the-scenes.html?searchResultPosition=1
 
 **David F. Kennedy, Whose Ad Agency Put Nike on the Map, Dies at 82**\
-`Breaking from Madison Avenue tradition, he co-founded Wieden+Kennedy in Portland, Ore., one of the largest remaining independent agencies.that`\
+`Breaking from Madison Avenue tradition, he co-founded Wieden+Kennedy in Portland, Ore., one of the largest remaining independent agencies.`\
 https://nytimes.com/2021/10/15/business/media/david-f-kennedy-dead.html?searchResultPosition=2
 
 **Rikers Death Pushes Toll in N.Y.C. Jails to 13 This Year**\
