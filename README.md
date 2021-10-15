@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/15/world/canada/quebec-language-debate.html?searchResultPosition=1
 
 **Brian Goldner, Hasbro Executive With Hollywood Vision, Dies at 58**\
-`H turned a traditional maker of toys and games into an entertainment company with its own TV and movie studio.`\
+`He turned a traditional maker of toys and games into an entertainment company with its own TV and movie studio.`\
 https://nytimes.com/2021/10/15/business/brian-goldner-dead.html?searchResultPosition=2
 
 **Surprise Russian Thruster Firing Prompts Space Station Emergency**\
