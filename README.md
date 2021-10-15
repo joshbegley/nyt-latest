@@ -14,7 +14,7 @@ https://nytimes.com/2021/10/15/sports/baseball/red-sox-dancing-on-my-own.html?se
 `A growing number of Asian Americans have overcome a cultural stigma attached to seeking mental health treatment, experts said.`\
 https://nytimes.com/2021/10/15/us/asian-american-therapy-hate-crimes.html?searchResultPosition=4
 
-**Blast at Afghan Mosque Kills and Injures More Than a Dozen**\
+**Blast at Afghan Mosque Kills 37 as Shiites Are Targeted Again**\
 `The explosion in Kandahar marked the second week in a row that attackers had struck a Shiite place of worship during Friday Prayer.`\
 https://nytimes.com/2021/10/15/world/asia/afghanistan-mosque-blast.html?searchResultPosition=5
 
