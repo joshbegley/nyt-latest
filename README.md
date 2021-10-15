@@ -31,7 +31,7 @@ https://nytimes.com/2021/10/15/nyregion/eric-adams-gifted-talented-nyc-schools.h
 https://nytimes.com/2021/10/15/us/holocaust-texas-school.html?searchResultPosition=8
 
 **Justice Dept. to Ask Supreme Court to Block Texas’ Near-Total Abortion Ban as Legal Fights Continue**\
-`The Texas law bans abortions when cardiac activity is detected, which happens at around six weeks of pregnancy, and makes no exceptions for rape or incest.`\
+`The Texas law prohibits most abortions after about six weeks, before many women are even aware they are pregnant.`\
 https://nytimes.com/2021/10/15/us/politics/texas-abortion-supreme-court.html?searchResultPosition=9
 
 **And You Thought the Sally Rooney Bucket Hats Were Ridiculous**\
