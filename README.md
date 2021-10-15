@@ -12,7 +12,7 @@ https://nytimes.com/2021/10/15/todayspaper/quotation-of-the-day-meteorite-crashe
 
 **How a Missing Sock Changed My Life**\
 `Not the sock itself, but a note attached to the sock. (Actually, the guy who wrote the note.)`\
-https://nytimes.com/2021/10/15/style/how-a-missing-sock-changed-my-life.html?searchResultPosition=4
+https://nytimes.com/2021/10/15/style/modern-love-how-a-missing-sock-changed-my-life.html?searchResultPosition=4
 
 **Wayward Zebra Found Dead in Illegal Snare Trap in Maryland**\
 `The state’s Natural Resources Police said they did not know who had set the illegal trap on private property in Upper Marlboro, about 20 miles southeast of Washington.`\
