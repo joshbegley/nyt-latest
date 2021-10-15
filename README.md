@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/15/arts/music/playlist-adele-easy-on-me.html?searchResultPosition=1
 
 **Suspect Confesses in Bow-and-Arrow Rampage in Norway**\
-`Espen Anderson Brathen has been charged with murder in the deaths of five people after he went on ta killing spree armed with a hunting bow.`\
+`Espen Anderson Brathen has been charged with murder in the deaths of five people after he went on a killing spree armed with a hunting bow.`\
 https://nytimes.com/2021/10/15/world/europe/norway-murder-bow-arrow-terrorism.html?searchResultPosition=2
 
 **Vaccinated travelers from abroad can enter the U.S. on Nov. 8.**\
