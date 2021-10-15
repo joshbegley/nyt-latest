@@ -1,6 +1,6 @@
 **Protests fizzle as activists fail to galvanize the masses against the new mandate.**\
-`By Jason Horowitz, Emma Bubola, Gaia Pianigiani and Elisabetta Povoledo`\
-https://nytimes.com/2021/10/15/world/europe/protests-fizzle-as-activists-fail-to-galvanize-the-masses-against-the-new-mandate.html?searchResultPosition=1
+`While there were scattered protests across Italy on Friday, many in the country appeared to accept the measure as necessary.`\
+https://nytimes.com/2021/10/15/world/europe/covid-italy-green-pass-protests.html?searchResultPosition=1
 
 **A Fashionable Night at the Ballet**\
 `And, Carnegie Hall reopens with a black-tie gala and PEN America honors imprisoned writers.`\
@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/15/style/a-fashionable-night-at-the-ballet.html?sear
 https://nytimes.com/2021/10/15/arts/music/playlist-adele-easy-on-me.html?searchResultPosition=3
 
 **Suspect Confesses in Bow-and-Arrow Rampage in Norway**\
-`Espen Anderson Brathen has been charged with murder in the deaths of five people after he went on a killing spree armed with a hunting bow.`\
+`Espen Anderson Brathen has been charged with murder in the deaths of five people after the authorities say he went on a killing spree armed with a hunting bow.`\
 https://nytimes.com/2021/10/15/world/europe/norway-murder-bow-arrow-terrorism.html?searchResultPosition=4
 
 **Vaccinated travelers from abroad can enter the U.S. on Nov. 8.**\
