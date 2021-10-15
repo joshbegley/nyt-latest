@@ -7,7 +7,7 @@ https://nytimes.com/video/arts/100000008026152/banksy-self-destructing-painting-
 https://nytimes.com/2021/10/14/us/bill-clinton-hospital.html?searchResultPosition=2
 
 **N.F.L.’s Top Lawyer Had Cozy Relationship With Washington Team President**\
-`Jeff Pash, the league’s general counsel, brokered penalties, discussed a cheerleading scandal and arranged perks in emails with the former president of the Washington Football Team.`\
+`Jeff Pash, the league’s general counsel, brokered penalties, discussed a cheerleading scandal and received perks in emails with the former president of the Washington Football Team.`\
 https://nytimes.com/2021/10/14/sports/football/nfl-washington-emails-jeff-pash.html?searchResultPosition=3
 
 **Review: In ‘The Lehman Trilogy,’ a Vivid Tale of Profit and Pain**\
