@@ -18,7 +18,7 @@ https://nytimes.com/2021/10/16/realestate/apartment-buildings-halloween-covid-20
 `The deputies were wrestling with a suspect when they were shot from behind, according to the Houston Police Department.`\
 https://nytimes.com/2021/10/16/us/houston-police-shot.html?searchResultPosition=5
 
-**With Lawmaker’s Killing, the U.K. Confronts a New Episode of Terrorism**\
+**With Lawmaker’s Killing, U.K. Confronts a New Episode of Terrorism**\
 `Prime Minister Boris Johnson and other leaders paid their respects to David Amess, who was fatally stabbed while meeting with constituents. The police have a suspect in custody and said the attack was linked to Islamist extremism.`\
 https://nytimes.com/2021/10/16/world/europe/uk-stabbing-terrorism.html?searchResultPosition=6
 
