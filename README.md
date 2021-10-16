@@ -1,4 +1,4 @@
-**Macron Commemorates 1961 Paris Police Massacre of Algerian Protesters**\
+**Macron Commemorates 1961 Paris Police Killing of Algerian Protesters**\
 `President Emmanuel Macron of France is the country’s first head of state to attend an event marking the deaths, which officials ignored for decades.`\
 https://nytimes.com/2021/10/16/world/europe/paris-police-algerians-macron.html?searchResultPosition=1
 
