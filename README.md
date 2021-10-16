@@ -20,7 +20,7 @@ https://nytimes.com/2021/10/15/nyregion/adam-laxalt-lev-parnas.html?searchResult
 
 **Key to Biden’s Climate Agenda Likely to Be Cut Because of Manchin Opposition**\
 `The West Virginia Democrat told the White House he is firmly against a clean electricity program that is the muscle behind the president’s plan to battle climate change.`\
-https://nytimes.com/2021/10/15/climate/clean-energy-program-manchin.html?searchResultPosition=6
+https://nytimes.com/2021/10/15/climate/biden-clean-energy-manchin.html?searchResultPosition=6
 
 **A Home Built for the Next Pandemic**\
 `A new Covid concept house pitches itself as empowering and feminist. Is it?`\
