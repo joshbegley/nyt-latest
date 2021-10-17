@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/16/world/americas/missionaries-kidnap-haiti.html?sea
 https://nytimes.com/2021/10/16/business/hollywood-crews-union-studios.html?searchResultPosition=2
 
 **Syria Accuses Israel of Assassinating Official Near Golan Heights**\
-`Midhat Saleh, who oversaw the strategic Golan Heights boundary for Syria, was shot an killed by a sniper, the government said.`\
+`Midhat Saleh, who oversaw the strategic Golan Heights boundary for Syria, was shot and killed by a sniper, the government said.`\
 https://nytimes.com/2021/10/16/world/syria-accuses-israel-of-assassinating-official-near-golan-heights.html?searchResultPosition=3
 
 **NASA Launches a Robotic Explorer Named Lucy**\
