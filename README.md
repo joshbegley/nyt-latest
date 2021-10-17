@@ -20,7 +20,7 @@ https://nytimes.com/2021/10/17/opinion/uber-lyft.html?searchResultPosition=5
 
 **Decriminalize Sex Work Now**\
 `Two bills are before the New York State Senate proposing to decriminalize sex work -- only one truly helps the sex workers themselves.`\
-https://nytimes.com/2021/10/17/opinion/decriminalize-sex-work-now.html?searchResultPosition=6
+https://nytimes.com/2021/10/17/opinion/decriminalize-sex-work-new-york.html?searchResultPosition=6
 
 **Ciao, Alitalia**\
 `A satirical goodbye is bade to Alitalia, airline to the popes. `\
