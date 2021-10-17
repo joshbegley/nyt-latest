@@ -26,8 +26,8 @@ https://nytimes.com/2021/10/17/health/fauci-police-vaccine.html?searchResultPosi
 `Jacksonville Coach Urban Meyer and rookie quarterback won their first game as pros on a 53-yard field goal as time expired, ending the team’s 20-game losing streak.`\
 https://nytimes.com/2021/10/17/sports/football/dolphins-jaguars-score.html?searchResultPosition=7
 
-**West Virginia Leads U.S. in Flood Risk, Adding to Manchin’s Climate Dilemma**\
-`As the senator blocks Democrats’ push to reduce warming, new data shows his constituents are more exposed to worsening floods than anywhere else in the country.`\
+**As Manchin Blocks Climate Plan, His State Can’t Hold Back Floods**\
+`As the senator thwarts Democrats’ major push to reduce warming, new data shows West Virginia is more exposed to worsening floods than anywhere else in the country.`\
 https://nytimes.com/2021/10/17/climate/manchin-west-virginia-flooding.html?searchResultPosition=8
 
 **Fake Polls and Tabloid Coverage on Demand: The Dark Side of Sebastian Kurz**\
