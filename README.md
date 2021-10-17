@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/17/crosswords/daily-puzzle-2021-10-18.html?searchRes
 https://nytimes.com/2021/10/17/sports/football/rams-vs-giants-score.html?searchResultPosition=3
 
 **Chicago Sky Beat Phoenix Mercury for First W.N.B.A. Championship**\
-`The Sky battled back from a large second-half deficit to beat the Mercury in a thriller.`\
+`The Sky battled back from a second-half deficit to beat the Mercury in a thriller. They were unlikely champions after a .500 record during the regular season.`\
 https://nytimes.com/2021/10/17/sports/basketball/chicago-sky-beat-phoenix-mercury-for-first-wnba-championship.html?searchResultPosition=4
 
 **Your Monday Briefing**\
