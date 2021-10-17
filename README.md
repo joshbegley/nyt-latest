@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/17/us/politics/bill-clinton-released-hospital.html?s
 `He assembled attendees of the March on Washington, mentored a young Barack Obama and wielded the solidarity of the South Side as a tool for political power.`\
 https://nytimes.com/2021/10/17/us/timuel-black-dead.html?searchResultPosition=9
 
-**As Some Black Staff Members Leave Congress, Those Left Call for Change**\
+**As Some Black Staff Members Leave Congress, Those Who Remain Call for Change**\
 `Low pay, a high cost of living and an insulated culture make it hard for Black aides to build a career in Congress.`\
 https://nytimes.com/2021/10/17/us/politics/black-staff-congress.html?searchResultPosition=10
 
