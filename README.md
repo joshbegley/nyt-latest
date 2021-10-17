@@ -14,7 +14,7 @@ https://nytimes.com/2021/10/17/us/san-diego-drought.html?searchResultPosition=3
 `The best-selling author, whose new book, “The Judge’s List,” is about a murderous member of the bench, talks about the Supreme Court, wrongful convictions and what it means to be “review-proof.”`\
 https://nytimes.com/2021/10/17/books/john-grisham-judges-list.html?searchResultPosition=4
 
-**South Korea Reconsiders a Rite of Manhood: the Draft**\
+**South Korea Reconsiders a Rite of Manhood: The Draft**\
 `Military conscription has become less popular. The rules have loosened. But experts still worry about the threat from the North.`\
 https://nytimes.com/2021/10/17/world/asia/south-korea-conscription.html?searchResultPosition=5
 
