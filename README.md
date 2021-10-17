@@ -26,7 +26,7 @@ https://nytimes.com/2021/10/17/arts/design/hare-with-amber-eyes-jewish-museum.ht
 `The gang, “400 Mawozo,” captured several clergy members in April, and the local authorities say it is behind Saturday’s kidnapping.`\
 https://nytimes.com/2021/10/17/world/americas/400-mawozo-haiti-kidnapping.html?searchResultPosition=7
 
-**The Rideshare Bubble Bursts**\
+**For Uber and Lyft, the Rideshare Bubble Bursts**\
 `Rideharing companies made a lot of promises. They’re not being kept.`\
 https://nytimes.com/2021/10/17/opinion/uber-lyft.html?searchResultPosition=8
 
