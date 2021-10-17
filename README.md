@@ -1,5 +1,5 @@
 **Syria Accuses Israel of Assassinating Official Near Golan Heights**\
-`Midhat Saleh, who oversaw the strategic Golan Heights boundary for Syria, was shot an killed by a sniper, the  government said.`\
+`Midhat Saleh, who oversaw the strategic Golan Heights boundary for Syria, was shot an killed by a sniper, the government said.`\
 https://nytimes.com/2021/10/16/world/syria-accuses-israel-of-assassinating-official-near-golan-heights.html?searchResultPosition=1
 
 **NASA Launches a Robotic Explorer Named Lucy**\
