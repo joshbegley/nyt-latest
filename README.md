@@ -26,15 +26,15 @@ https://nytimes.com/2021/10/17/opinion/life-after-death.html?searchResultPositio
 `Designing a show at the Jewish Museum illuminated corners of hidden history in her life, the architect says. “Edmund dug into his past. I didn’t. I couldn’t bear it.”`\
 https://nytimes.com/2021/10/17/arts/design/hare-with-amber-eyes-jewish-museum.html?searchResultPosition=7
 
+**What is Christian Aid Ministries and what does it do in Haiti?**\
+`The group, based in Ohio, distributes food and clothing, funds schools, teaches farming methods and helps with emergency relief.`\
+https://nytimes.com/2021/10/17/world/americas/what-is-christian-aid-ministries.html?searchResultPosition=8
+
 **Gang suspected in kidnapping of missionaries is among the country’s most dangerous.**\
 `The gang, “400 Mawozo,” captured several clergy members in April, and the local authorities say it is behind Saturday’s kidnapping.`\
-https://nytimes.com/2021/10/17/world/americas/400-mawozo-haiti-kidnapping.html?searchResultPosition=8
+https://nytimes.com/2021/10/17/world/americas/400-mawozo-haiti-kidnapping.html?searchResultPosition=9
 
 **For Uber and Lyft, the Rideshare Bubble Bursts**\
 `Rideharing companies made a lot of promises. They’re not being kept.`\
-https://nytimes.com/2021/10/17/opinion/uber-lyft.html?searchResultPosition=9
-
-**This Is What Will Make Sex Work in New York Safer**\
-`Two bills are before the New York State Senate proposing to decriminalize sex work — only one truly helps the sex workers themselves.`\
-https://nytimes.com/2021/10/17/opinion/decriminalize-sex-work-new-york.html?searchResultPosition=10
+https://nytimes.com/2021/10/17/opinion/uber-lyft.html?searchResultPosition=10
 
