@@ -1,5 +1,5 @@
 **American Missionaries Kidnapped in Haiti, Officials Say**\
-`Up to 17 missionaries and their family members were taken by gangs in the capital as they were leaving an orphanage Saturday.`\
+`Up to 17 missionaries and their family members were taken by gangs in the capital of a country where kidnappings have become increasingly common.`\
 https://nytimes.com/2021/10/16/world/americas/missionaries-kidnap-haiti.html?searchResultPosition=1
 
 **Hollywood’s Behind-the-Scenes Workers Reach Deal on New Contract**\
