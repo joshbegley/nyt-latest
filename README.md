@@ -18,7 +18,7 @@ https://nytimes.com/2021/10/16/climate/democrats-carbon-tax-climate.html?searchR
 `How about inexpensive passes good for a month of domestic flights? Or popular in-flight meals to on-the-ground customers?`\
 https://nytimes.com/2021/10/16/world/japan-south-korea-airlines-covid-incentives.html?searchResultPosition=6
 
-**U.S. Extradites Key Financial Ally of Venezuela’s President**\
+**U.S. Extradites Key Financial Ally of Venezuela’s President, Inciting Retaliation**\
 `Alex Saab, a Colombian businessman, is accused in the U.S. of siphoning millions from programs intended to help the needy in Venezuela.`\
 https://nytimes.com/2021/10/16/world/americas/alex-saab-arrest-venezuela-maduro.html?searchResultPosition=7
 
