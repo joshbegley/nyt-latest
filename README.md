@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/17/world/middleeast/tunisia-revolution-memoro-monuments.html?searchResultPosition=1
 
 **Boston Found a Top Reliever in the Yankees System. Blame Instagram.**\
-`Garrett Whitlock was rehabbing from elbow surgery when the Red Sox saw his videos on social media. Getting him for a pittance from a bitter rival was icing on the cake.`\
+`Garrett Whitlock was rehabbing from elbow surgery when the Red Sox saw his videos on social media. Getting him for a pittance from a rival was icing on the cake.`\
 https://nytimes.com/2021/10/17/sports/baseball/garrett-whitlock-boston-red-sox.html?searchResultPosition=2
 
 **Bringing Attention to the Maori Language, One Song at a Time**\
@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/17/sports/baseball/garrett-whitlock-boston-red-sox.h
 https://nytimes.com/2021/10/17/arts/music/maori-language-song-translations.html?searchResultPosition=3
 
 **Across the U.S., clashes intensify between city officials and the police over vaccination issues.**\
-`Officers in many departments have been slow to get vaccinated and to report their vaccination status, and city officials are struggling to make them pick up the pace.`\
+`In many cities across the country, there is friction between governments and law enforcement unions over requirements that officers get vaccinated against the coronavirus or prove their vaccination status, leading to contentious public clashes.`\
 https://nytimes.com/2021/10/17/us/police-vaccine-mandate.html?searchResultPosition=4
 
 **How a Stunning Lagoon in Spain Turned Into ‘Green Soup’**\
