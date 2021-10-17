@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000008029089/bill-clinton-released-from-hospital-infection.html?searchResultPosition=1
 
 **Bill Clinton Is Released From Hospital**\
-`The former president had been admitted to a California hospital on Tuesday for treatment of an infection that developed into sepsis, officials said.`\
+`The former president was admitted to a California hospital on Tuesday for treatment of an infection that developed into sepsis, officials said.`\
 https://nytimes.com/2021/10/17/us/politics/bill-clinton-released-hospital.html?searchResultPosition=2
 
 **Timuel Black, Strategist and Organizer for Black Chicago, Dies at 102**\
