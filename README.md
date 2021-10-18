@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/18/podcasts/the-daily/virginia-governor-race-midterm
 
 **Goldman Sachs wins approval to buy out its partner in China.**\
 `The move will give the Wall Street giant complete ownership over its Chinese investment banking operations.`\
-https://nytimes.com/2021/10/18/business/goldman-sachs-wins-approval-to-buy-out-its-partner-in-china.html?searchResultPosition=2
+https://nytimes.com/2021/10/18/business/goldman-sachs-china.html?searchResultPosition=2
 
 **How Much Do You Know About Benin?**\
 `Can you find Benin on a map? What else do you know about this African country with about 12 million people?`\
