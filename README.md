@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/18/dining/food-thats-worth-waiting-for.html?searchRe
 https://nytimes.com/2021/10/18/business/economy/starbucks-union-buffalo.html?searchResultPosition=6
 
 **Colin Powell Was Among World’s ‘Greatest Leaders,’ Austin Says**\
-`Defense Secretary Lloyd J. Austin described the former U.S. Secretary of State Colin Powell as a “tremendous personal friend and mentor” following Mr. Powell’s death from Covid-19 complications.`\
+`Defense Secretary Lloyd J. Austin described Colin Powell as a “tremendous personal friend and mentor” following Mr. Powell’s death from Covid-19 complications.`\
 https://nytimes.com/video/us/politics/100000008030070/colin-powell-dies-covid-19-complications.html?searchResultPosition=7
 
 **Watch Live: Blinken Delivers Remarks on Colin Powell**\
