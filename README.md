@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/17/world/americas/haiti-missionaries-kidnap.html?sea
 `Lamar Jackson can lead the Ravens to any kind of win, the Jaguars made the most of the Dolphins’ gaffes and Aaron Rodgers did Aaron Rodgers things against the Bears.`\
 https://nytimes.com/2021/10/17/sports/football/nfl-week-6-scores.html?searchResultPosition=8
 
-**Biden’s Plans Raise Questions About What U.S. Can or Cannot Afford to Do**\
+**Biden’s Plans Raise Questions About What U.S. Can Afford Not to Do**\
 `Democrats are debating whether doing nothing will cost more than doing something to deal with climate change, education, child care, prescription drugs and more.`\
 https://nytimes.com/2021/10/17/us/politics/biden-budget-affordability.html?searchResultPosition=9
 
