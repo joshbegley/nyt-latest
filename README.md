@@ -12,7 +12,7 @@ https://nytimes.com/2021/10/18/us/politics/trump-lawsuit-capitol-riot.html?searc
 
 **Treasury Warns That Digital Currencies Could Weaken U.S. Sanctions**\
 `A review found that the sanctions program must be modernized to maintain its effectiveness.`\
-https://nytimes.com/2021/10/18/us/politics/sanctions-cryptocurrencies-treasury.html?searchResultPosition=4
+https://nytimes.com/2021/10/18/us/politics/sanctions-cryptocurrency-treasury.html?searchResultPosition=4
 
 **What Scientists Know About the Risk of Breakthrough Covid Deaths**\
 `Deaths among people who have been fully vaccinated remain rare, but older adults and those with compromised immune systems are at much higher risk.`\
