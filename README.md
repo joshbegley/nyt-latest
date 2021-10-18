@@ -6,8 +6,8 @@ https://nytimes.com/2021/10/17/sports/football/raiders-broncos-score.html?search
 `An organization based in Ohio and founded by Amish and Mennonites has been swept up in the violence roiling the country.`\
 https://nytimes.com/2021/10/17/world/americas/amish-missionary-group-kidnap.html?searchResultPosition=2
 
-**Paula Badosa Outlasts Victoria Azarenka to Win at Indian Wells**\
-`Badosa won her first top-tier title with a hard-fought 7-6 (5), 2-6, 7-6 (2) victory over Azarenka in a final that required 3 hours 4 minutes.`\
+**Paula Badosa Outlasts Victoria Azarenka to Win Indian Wells**\
+`Badosa won her first top-tier title on Sunday with a hard-fought 7-6 (5), 2-6, 7-6 (2) victory over Azarenka in a final that required three hours and four minutes.`\
 https://nytimes.com/2021/10/17/sports/tennis/indian-wells-badosa-azarenka.html?searchResultPosition=3
 
 **Review: In the Disturbing ‘Dana H.,’ Whose Voice Is It Anyway?**\
