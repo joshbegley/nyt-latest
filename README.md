@@ -6,7 +6,7 @@ https://nytimes.com/2021/10/18/pageoneplus/no-corrections-oct-18-2021.html?searc
 `Quotation of the Day for Monday, October 18, 2021.`\
 https://nytimes.com/2021/10/18/todayspaper/quotation-of-the-day-a-youth-football-mission-to-save-children-and-church.html?searchResultPosition=2
 
-**Taiwan Couple Is Suspected of Negligent Homicide in Building Fire**\
+**Taiwan Couple Are Suspected of Negligent Homicide in Building Fire**\
 `Prosecutors accused a woman of leaving a burning incense coil unattended in the building in Kaohsiung. Her partner was accused of failing to remind her to douse the coil before leaving.`\
 https://nytimes.com/2021/10/18/world/asia/taiwan-building-fire.html?searchResultPosition=3
 
