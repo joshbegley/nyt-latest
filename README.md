@@ -1,5 +1,5 @@
 **Atlanta Bought in Bulk to Replace the Irreplaceable**\
-`For many teams, losing Ronald Acuña Jr. would have been a crushing blow. To the Braves’ Alex Anthopoulos, it was a puzzle to solve. He seems to have got the pieces right.`\
+`For many teams, losing Ronald Acuña Jr. would have been a crushing blow. To the Braves’ Alex Anthopoulos, it was a puzzle to solve. He seems to have the right pieces.`\
 https://nytimes.com/2021/10/18/sports/baseball/eddie-rosario-atlanta-nlcs.html?searchResultPosition=1
 
 **Bitcoin Comes to the Big Board**\
