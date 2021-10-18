@@ -14,8 +14,8 @@ https://nytimes.com/2021/10/18/realestate/home-prices-california.html?searchResu
 `An Edwardian house in Oakland, a Craftsman home in South Pasadena and a midcentury ranch in Sonoma.`\
 https://nytimes.com/slideshow/2021/10/18/realestate/what-you-get-for-2-7-million-in-california.html?searchResultPosition=4
 
-**Colin Powell Dies at 84**\
-`A former chairman of the Joint Chiefs of Staff, secretary of state and national security adviser, Mr. Powell died on Monday, his family said.`\
+**Colin Powell, Who Shaped U.S. National Security, Dies at 84**\
+`A former chairman of the Joint Chiefs of Staff, secretary of state and national security adviser, Mr. Powell died on Monday of complications from Covid-19, his family said.`\
 https://nytimes.com/2021/10/18/us/politics/colin-powell-dead.html?searchResultPosition=5
 
 **A.L.C.S. Provides a ‘Moment of Pride’ for Puerto Rico**\
