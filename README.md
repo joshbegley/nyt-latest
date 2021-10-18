@@ -1,6 +1,6 @@
-**Dawn Hudson, C.E.O. of the Motion Picture Academy, to step down in 2023**\
+**Dawn Hudson, the C.E.O. of the Motion Picture Academy, will step down in 2023.**\
 `Under her leadership, the Academy has taken steps to diversify and expand its membership.`\
-https://nytimes.com/2021/10/18/business/dawn-hudson-ceo-of-the-motion-picture-academy-to-step-down-in-2023.html?searchResultPosition=1
+https://nytimes.com/2021/10/18/business/media/dawn-hudson-motion-picture-academy.html?searchResultPosition=1
 
 **Schools Reopen as Cities in Australia Ease Virus Restrictions**\
 `New South Wales, Australia’s most populous state, eased coronavirus restrictions after it passed the target of fully vaccinating 80 percent of the eligible population, sending thousands of children back to in-person learning.`\
