@@ -1,4 +1,4 @@
-**A New Zealand City’s Official Wizard Loses His Job**\
+**An Official Wizard in New Zealand Loses His Job**\
 `The city of Christchurch has paid Ian Brackenbury Channell, 88, about $10,000 per year since 1998 for “acts of wizardry and other wizard-like services.” But he has been condemned recently for his jokes about women.`\
 https://nytimes.com/2021/10/18/world/australia/christchurch-new-zealand-wizard.html?searchResultPosition=1
 
