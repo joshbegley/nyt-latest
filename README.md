@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/18/realestate/home-prices-california.html?searchResu
 https://nytimes.com/slideshow/2021/10/18/realestate/what-you-get-for-2-7-million-in-california.html?searchResultPosition=6
 
 **Colin Powell, Who Shaped U.S. National Security, Dies at 84**\
-`A former chairman of the Joint Chiefs of Staff, secretary of state and national security adviser, Mr. Powell died on Monday of complications from Covid-19, his family said.`\
+`A former chairman of the Joint Chiefs of Staff, secretary of state and national security adviser, Mr. Powell died on Monday of complications of Covid-19, his family said.`\
 https://nytimes.com/2021/10/18/us/politics/colin-powell-dead.html?searchResultPosition=7
 
 **A.L.C.S. Provides a ‘Moment of Pride’ for Puerto Rico**\
