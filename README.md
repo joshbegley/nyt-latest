@@ -1,40 +1,40 @@
+**Acme Turns to Japan to Season Its Latest Smoked Salmon**\
+`Acme Smoked Fish in Brooklyn uses shichimi togarashi in this new offering.`\
+https://nytimes.com/2021/10/18/dining/acme-smoked-fish-brooklyn.html?searchResultPosition=1
+
+**How Has Home Cooking Changed in the Pandemic?**\
+`Les Dames d’Escoffier NY will host a virtual discussion with the chef Marcus Samuelsson and the writer Grace Young on the new realities of kitchen life.`\
+https://nytimes.com/2021/10/18/dining/les-dames-descoffier-ny-panel.html?searchResultPosition=2
+
+**Hudson Whiskey Releases Its Oldest Bourbon Blend**\
+`Four Part Harmony is a bourbon, aged for seven years, made with corn, rye, wheat and malted barley.`\
+https://nytimes.com/2021/10/18/dining/hudson-whiskey-bourbon-four-part-harmony.html?searchResultPosition=3
+
 **Risotto for Beginners**\
 `A new kit from Tasty Ribbon, designed by Fratelli Desideri and the chef Andrea Larossa, offers simple instructions with some high-end garnish.`\
-https://nytimes.com/2021/10/18/dining/risotto-fratelli-desideri.html?searchResultPosition=1
+https://nytimes.com/2021/10/18/dining/risotto-fratelli-desideri.html?searchResultPosition=4
 
 **Zalmay Khalilzad, Biden’s Envoy for Afghanistan, Steps Down**\
 `An Afghan American and a rare Trump appointee who survived into the Biden administration, Mr. Khalilzad played a central role in the U.S. exit from the country.`\
-https://nytimes.com/2021/10/18/us/politics/zalmay-khalilzad-afghanistan.html?searchResultPosition=2
+https://nytimes.com/2021/10/18/us/politics/zalmay-khalilzad-afghanistan.html?searchResultPosition=5
 
 **Your Tuesday Briefing**\
 `Russia hits a Covid death record.`\
-https://nytimes.com/2021/10/18/briefing/russia-covid-nato-china-banks.html?searchResultPosition=3
+https://nytimes.com/2021/10/18/briefing/russia-covid-nato-china-banks.html?searchResultPosition=6
 
 **In Queens, Fiery Aguachile Lives in a Yellow Submarine**\
 `Mariscos El Submarino, in Jackson Heights, specializes in the seafood dish from Mexico’s west coast.`\
-https://nytimes.com/2021/10/18/dining/restaurant-review-mariscos-el-submarino-aguachile.html?searchResultPosition=4
+https://nytimes.com/2021/10/18/dining/restaurant-review-mariscos-el-submarino-aguachile.html?searchResultPosition=7
 
 **Cold Seafood, Hot Spices**\
 `Shrimp, octopus and fish bathe in chile-laced marinades at Mariscos El Submarino.`\
-https://nytimes.com/slideshow/2021/10/18/dining/aguachile-nyc.html?searchResultPosition=5
+https://nytimes.com/slideshow/2021/10/18/dining/aguachile-nyc.html?searchResultPosition=8
 
 **In Two Rulings, Supreme Court Bolsters Legal Shield for Police**\
 `The unsigned decisions, without noted dissents, indicated that the court continued to support the widely criticized doctrine of qualified immunity.`\
-https://nytimes.com/2021/10/18/us/politics/supreme-court-qualified-immunity-police.html?searchResultPosition=6
+https://nytimes.com/2021/10/18/us/politics/supreme-court-qualified-immunity-police.html?searchResultPosition=9
 
 **S.E.C. Describes the GameStop Frenzy, but Not What to Do About It**\
 `A long-anticipated report did not suggest any policy changes in response to the meme stock frenzy that caused some little-regarded shares to soar.`\
-https://nytimes.com/2021/10/18/business/sec-gamestop-meme-report.html?searchResultPosition=7
-
-**The War on Drugs Can’t Stop Searching for Answers in the Music**\
-`Fatherhood reshaped the frontman Adam Granduciel’s world, and a collaborative spirit animated the band on its fifth album, “I Don’t Live Here Anymore.”`\
-https://nytimes.com/2021/10/18/arts/music/the-war-on-drugs-i-dont-live-here-anymore.html?searchResultPosition=8
-
-**Dawn Hudson, the C.E.O. of the Motion Picture Academy, will step down in 2023.**\
-`Under her leadership, the Academy has taken steps to diversify and expand its membership.`\
-https://nytimes.com/2021/10/18/business/media/dawn-hudson-motion-picture-academy.html?searchResultPosition=9
-
-**Schools Reopen as Cities in Australia Ease Virus Restrictions**\
-`New South Wales, Australia’s most populous state, eased coronavirus restrictions after it passed the target of fully vaccinating 80 percent of the eligible population, sending thousands of children back to in-person learning.`\
-https://nytimes.com/video/world/asia/100000008030777/sydney-new-south-wales-school-reopening-covid-restrictions-vaccination.html?searchResultPosition=10
+https://nytimes.com/2021/10/18/business/sec-gamestop-meme-report.html?searchResultPosition=10
 
