@@ -36,5 +36,5 @@ https://nytimes.com/2021/10/18/science/malawi-poaching-wildlife.html?searchResul
 
 **Axel Springer removes a top editor after a Times report on workplace behavior.**\
 `The editor, Julian Reichelt, had been accused of abusing his power involving a relationship a junior employee at Bild, a powerful tabloid owned by the media company.`\
-https://nytimes.com/2021/10/18/business/media/axel-springer-bild-julian-reichelt.html?searchResultPosition=10
+https://nytimes.com/2021/10/18/business/media/julian-reichelt-axel-springer.html?searchResultPosition=10
 
