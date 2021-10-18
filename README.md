@@ -12,7 +12,7 @@ https://nytimes.com/video/us/politics/100000008030122/colin-powell-blinken-live-
 
 **Powell, whose immune system was weakened, died of Covid-19 despite being vaccinated.**\
 `He had been treated for multiple myeloma, a cancer of white blood cells in the bone marrow, which made vaccines less likely to protect him from severe Covid.`\
-https://nytimes.com/2021/10/18/us/politics/colin-powell-vaccinated-covid.html?searchResultPosition=4
+https://nytimes.com/2021/10/18/us/politics/colin-powell-vaccinated-myeloma.html?searchResultPosition=4
 
 **Biden Administration Plans New Regulations for Toxic ‘Forever Chemicals’**\
 `Michael Regan, the E.P.A. administrator, wants to limit a class of chemicals that has been linked to cancer and is found in everything from drinking water to furniture.`\
