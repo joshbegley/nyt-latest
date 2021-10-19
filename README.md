@@ -1,6 +1,6 @@
 **Stocks rise for a fifth day, and Bitcoin nears a record high.**\
 `On Tuesday, ProShares will offer a long-awaiting exchange-traded fund on the New York Stock Exchange linked to Bitcoin futures, and Bitcoin has been trading at prices not seen since April.`\
-https://nytimes.com/2021/10/19/business/us-stock-market-bitcoin-today.html?searchResultPosition=1
+https://nytimes.com/2021/10/19/business/bitcoin-stock-market-today.html?searchResultPosition=1
 
 **Why Taxi Drivers Are Planning a Hunger Strike**\
 `New York's Taxi Industry has been decimated by multiple economic crisis. Drivers aren't happy with the city's response.`\
