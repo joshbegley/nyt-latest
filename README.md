@@ -1,40 +1,40 @@
-**What Is COP26? And Other Questions About the Big U.N. Climate Summit**\
-`Some 20,000 people are preparing to attend climate talks hosted by the United Nations starting at the end of the month. Here are some key facts to know before they go.`\
-https://nytimes.com/article/what-is-cop26-climate-change-summit.html?searchResultPosition=1
+**The Soldier from the Bronx**\
+`Colin Powell, a former chairman of the Joint Chiefs of Staff, secretary of state and national security adviser, died on Monday.`\
+https://nytimes.com/2021/10/19/nyregion/the-soldier-from-the-bronx.html?searchResultPosition=1
 
-**As Evergrande Teeters, Chinese Media Walks a Fine Line**\
-`Officials want to avert public panic about the property developer’s financial woes. But they also want to send a message to spendthrift corporations.`\
-https://nytimes.com/2021/10/19/business/evergrande-media-china.html?searchResultPosition=2
+**Photography That Focuses on Those Who Are Often Not Seen**\
+`From New York to Los Angeles, Black, L.G.B.T.Q., Native American and women artists are exhibiting works that highlight their communities and personal perspectives.`\
+https://nytimes.com/2021/10/19/arts/photography-minority-exhibitions.html?searchResultPosition=2
 
-**Telling Short, Memorable Stories With Metropolitan Diary**\
-`In this lesson, students will use a long-running column about those “only-in-New-York experiences” as a model for telling stories about their own communities.`\
-https://nytimes.com/2021/10/19/learning/lesson-plans/telling-short-memorable-stories-with-metropolitan-diary.html?searchResultPosition=3
+**Climate Exhibitions Look Beyond Declarations of Calamity**\
+`Museums are less interested in adding to the terror than furthering the connection to the planet.`\
+https://nytimes.com/2021/10/19/arts/climate-exhibitions.html?searchResultPosition=3
 
-**Tuberculosis, Like Covid, Spreads in Aerosols, Scientists Report**\
-`The finding upends conventional wisdom regarding coughing, long thought to be the main route of transmission.`\
-https://nytimes.com/2021/10/19/health/tuberculosis-transmission-aerosols.html?searchResultPosition=4
+**Revisiting the Great Chicago Fire of 1871**\
+`Among the surprises in a new exhibition at the Chicago History Museum: streets paved with wood, an unusual heat wave and exoneration for Mrs. O’Leary’s cow.`\
+https://nytimes.com/2021/10/19/arts/chicago-fire-1871-exhibition-museum.html?searchResultPosition=4
 
-**These U.S. Veterans Won’t Rest Until They’ve Kept a Wartime Promise**\
-`An informal network that includes former government and military officials is working around the clock to fulfill a pledge to save Afghans who put their lives on the line for America.`\
-https://nytimes.com/2021/10/19/world/us-veterans-afghan-evacuation.html?searchResultPosition=5
+**A New Meaning to ‘Working in the Garden’**\
+`With the work-at-home lifestyle likely here to stay, people are taking things outdoors, creating spaces meant for privacy and comfort.`\
+https://nytimes.com/2021/10/19/business/home-office-garden.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/19/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**A New Showcase for the Story of Jews in the South**\
+`With thousands of artifacts, a New Orleans museum tells of a different immigrant experience, far from the cities of the North.`\
+https://nytimes.com/2021/10/19/arts/southern-jewish-experience-museum.html?searchResultPosition=6
 
-**Custom Cars**\
-`What car would you most like to own? How would you want it customized if you could have it tricked out any way you liked?`\
-https://nytimes.com/2021/10/19/learning/custom-cars.html?searchResultPosition=7
+**The Zoom Room Design**\
+`Looking for a designer who will update your space from afar? Your dream has come true.`\
+https://nytimes.com/2021/10/19/business/home-design-zoom.html?searchResultPosition=7
 
-**Stephen Colbert Can’t Take Christopher Steele’s Purported Tape**\
-`“I’m warning you, Steele. If this turns out to be a false report again, ‘urine’ trouble,’” Colbert said.`\
-https://nytimes.com/2021/10/19/arts/television/stephen-colbert-cant-take-christopher-steeles-purported-tape.html?searchResultPosition=8
+**One Size Doesn’t Fit All: Employees’ Needs Are Changing Work Spaces**\
+`As workers return, offices are likely to be forever transformed.`\
+https://nytimes.com/2021/10/19/business/work-spaces-design-employees.html?searchResultPosition=8
 
-**Can Skeletons Have a Racial Identity?**\
-`A growing number of forensic researchers are questioning how the field interprets the geographic ancestry of human remains.`\
-https://nytimes.com/2021/10/19/science/anthropology-skeleton-race.html?searchResultPosition=9
+**What’s Your Pleasure? How About a T-shirt?**\
+`In part because of Covid lockdowns, bars have gotten into the merchandise game.`\
+https://nytimes.com/2021/10/19/business/bar-merchandise-alcohol.html?searchResultPosition=9
 
-**Word of the Day: candor**\
-`This word has appeared in 162 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/19/learning/word-of-the-day-candor.html?searchResultPosition=10
+**Please Unmute Your Mutt**\
+`Dog trainers are turning to video sessions to work with pets and their owners.`\
+https://nytimes.com/2021/10/19/business/dogs-video-training.html?searchResultPosition=10
 
