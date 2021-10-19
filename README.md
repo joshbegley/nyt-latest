@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/19/sports/football/jonathan-martin-nfl-cte.html?sear
 `Efforts to recover a kidnapped group in Haiti.`\
 https://nytimes.com/2021/10/18/briefing/haiti-kidnapping-colin-powell.html?searchResultPosition=9
 
-**North Korea Launches Ballistic Missile Hours After Envoys Meet in Washington**\
-`The launch came after the special envoys gathered to discuss how to deal with Pyongyang’s growing nuclear capabilities.`\
+**North Korea Tests First Submarine-Launched Missile in Two Years**\
+`The launch came after special envoys gathered to discuss how to deal with Pyongyang’s growing nuclear capabilities.`\
 https://nytimes.com/2021/10/18/world/asia/north-korea-ballistic-missile-test-washington.html?searchResultPosition=10
 
