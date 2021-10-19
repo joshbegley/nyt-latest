@@ -1,6 +1,6 @@
 **Washington State Fires Football Coach Over Vaccine Refusal**\
 `Nick Rolovich said in July he would not get a Covid-19 vaccine and maintained his stance once a state mandate was announced in August. Four of his assistants were also fired.`\
-https://nytimes.com/2021/10/18/sports/ncaafootball/washington-state-football-nick-rolovich-fired-covid-vaccine-mandate.html?searchResultPosition=1
+https://nytimes.com/2021/10/18/sports/ncaafootball/nick-rolovich-fired-covid-vaccine-mandate.html?searchResultPosition=1
 
 **N.Y.C. Jail Deaths Climb to 14 as Detainee Is Taken Off Life Support**\
 `The man tried to hang himself in a holding pen in Manhattan Criminal Court after he was ordered held on a $15,000 cash bond in an assault case.`\
