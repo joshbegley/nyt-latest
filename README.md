@@ -1,4 +1,4 @@
-**University of North Carolina Can Keep Affirmative Action, Federal Judge Rules**\
+**University of North Carolina Can Keep Affirmative Action, Judge Rules**\
 `Students for Fair Admissions vowed to immediately appeal in a case that appears destined for the Supreme Court.`\
 https://nytimes.com/2021/10/18/us/politics/affirmative-action-university-of-north-carolina-court.html?searchResultPosition=1
 
