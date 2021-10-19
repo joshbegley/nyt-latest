@@ -1,5 +1,5 @@
 **North Korea Launches Ballistic Missile Hours After Envoys Meet in Washington**\
-`The launch came after special envoys met in Washington to discuss how to deal with Pyongyang’s growing nuclear capabilities.`\
+`The launch came after the special envoys gathered to discuss how to deal with Pyongyang’s growing nuclear capabilities.`\
 https://nytimes.com/2021/10/18/world/asia/north-korea-ballistic-missile-test-washington.html?searchResultPosition=1
 
 **Diver Discovers 900-Year-Old Sword Off Israeli Coast**\
