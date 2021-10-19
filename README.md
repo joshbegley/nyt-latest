@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/19/technology/wework-meltdown.html?searchResultPosit
 `She played Deputy Barney Fife’s girlfriend on the long-running sitcom and was remembered by fans with fondness more than 50 years later.`\
 https://nytimes.com/2021/10/19/arts/television/betty-lynn-dead.html?searchResultPosition=8
 
-**Facebook will pay up to $14 million to settle claims it favored foreign workers over Americans.**\
+**Facebook will pay up to $14 million to settle claims it favored foreign workers.**\
 `The Justice Department sued the company in December, arguing that Facebook had declined to “recruit, consider or hire” qualified Americans for more than 2,000 positions.`\
 https://nytimes.com/2021/10/19/technology/facebook-foreign-workers.html?searchResultPosition=9
 
