@@ -32,7 +32,7 @@ https://nytimes.com/2021/10/18/opinion/poolaw-miscarriage.html?searchResultPosit
 
 **For L.S.U., Not Winning Enough Is the Biggest Scandal**\
 `Louisiana State said “wins and losses on the field” led to Coach Ed Orgeron’s dismissal, but he seemed determined to tempt fate in other ways.`\
-https://nytimes.com/2021/10/18/sports/ed-orgeron-lsu.html?searchResultPosition=9
+https://nytimes.com/2021/10/18/sports/ncaafootball/ed-orgeron-lsu.html?searchResultPosition=9
 
 **Metro Train Derailments Could Have Been ‘Catastrophic,’ Official Says**\
 `The National Transportation Safety Board said that the Metro system in Washington removed more than half of its subway cars from service as federal investigators scrutinized a surge in train-alignment “failures.”`\
