@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/19/theater/live-performance-coronavirus.html?searchR
 https://nytimes.com/2021/10/19/business/bitcoin-stock-market-today.html?searchResultPosition=2
 
 **Why Taxi Drivers Are Planning a Hunger Strike**\
-`New York's Taxi Industry has been decimated by multiple economic crisis. Drivers aren't happy with the city's response.`\
+`New York's taxi industry has been decimated by multiple economic crises. Drivers say the city's response is woefully inadequate`\
 https://nytimes.com/interactive/2021/10/19/nyregion/taxi-drivers.html?searchResultPosition=3
 
 **Rising Out of the Pandemic, City Ballet Ushers in a New Era**\
