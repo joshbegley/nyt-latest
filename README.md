@@ -1,40 +1,40 @@
+**These U.S. Veterans Won’t Rest Until They’ve Kept a Wartime Promise**\
+`An informal network that includes former government and military officials is working around the clock to fulfill a pledge to save Afghans who put their lives on the line for America.`\
+https://nytimes.com/2021/10/19/world/us-veterans-afghan-evacuation.html?searchResultPosition=1
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2021/10/19/crosswords/spelling-bee-forum.html?searchResultPosition=2
+
+**Custom Cars**\
+`What car would you most like to own? How would you want it customized if you could have it tricked out any way you liked?`\
+https://nytimes.com/2021/10/19/learning/custom-cars.html?searchResultPosition=3
+
 **Stephen Colbert Can’t Take Christopher Steele’s Purported Tape**\
 `“I’m warning you, Steele. If this turns out to be a false report again, ‘urine’ trouble,’” Colbert said.`\
-https://nytimes.com/2021/10/19/arts/television/stephen-colbert-cant-take-christopher-steeles-purported-tape.html?searchResultPosition=1
+https://nytimes.com/2021/10/19/arts/television/stephen-colbert-cant-take-christopher-steeles-purported-tape.html?searchResultPosition=4
 
 **Can Skeletons Have a Racial Identity?**\
 `A growing number of forensic researchers are questioning how the field interprets the geographic ancestry of human remains.`\
-https://nytimes.com/2021/10/19/science/anthropology-skeleton-race.html?searchResultPosition=2
+https://nytimes.com/2021/10/19/science/anthropology-skeleton-race.html?searchResultPosition=5
 
 **Word of the Day: candor**\
 `This word has appeared in 162 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/19/learning/word-of-the-day-candor.html?searchResultPosition=3
+https://nytimes.com/2021/10/19/learning/word-of-the-day-candor.html?searchResultPosition=6
 
 **‘Groundhog Day’ in Boston as Another Grand Slam Sets the Tone**\
 `The Red Sox have won consecutive blowouts against the Astros, showing some swagger while setting a record for bases-loaded homers in a postseason series.`\
-https://nytimes.com/2021/10/19/sports/baseball/red-sox-astros-alcs-game-3.html?searchResultPosition=4
+https://nytimes.com/2021/10/19/sports/baseball/red-sox-astros-alcs-game-3.html?searchResultPosition=7
 
 **Britain Says It’s Leading the World on Climate Change. As If.**\
 `A glance behind the rhetoric reveals the government’s hypocrisy.`\
-https://nytimes.com/2021/10/19/opinion/britain-cop26-johnson.html?searchResultPosition=5
+https://nytimes.com/2021/10/19/opinion/britain-cop26-johnson.html?searchResultPosition=8
 
 **Quotation of the Day: Russia Has Its Own Vaccine. Most Russians Have No Interest in Taking It.**\
 `Quotation of the Day for Tuesday, October 19, 2021.`\
-https://nytimes.com/2021/10/19/todayspaper/quotation-of-the-day-russia-has-its-own-vaccine-most-russians-have-no-interest-in-taking-it.html?searchResultPosition=6
+https://nytimes.com/2021/10/19/todayspaper/quotation-of-the-day-russia-has-its-own-vaccine-most-russians-have-no-interest-in-taking-it.html?searchResultPosition=9
 
 **Corrections: Oct. 19, 2021**\
 `Corrections that appeared in print on Tuesday, Oct. 19, 2021.`\
-https://nytimes.com/2021/10/19/pageoneplus/corrections-oct-19-2021.html?searchResultPosition=7
-
-**Ecuador’s President Declares State of Emergency to Battle Crime**\
-`Guillermo Lasso said the military and the police would patrol the streets to provide security to confront drug trafficking and other crimes.`\
-https://nytimes.com/2021/10/19/world/americas/ecuador-state-of-emergency.html?searchResultPosition=8
-
-**LeBron James and Stephen Curry Test Different Paths Back to N.B.A. Peak**\
-`James’s Los Angeles Lakers revamped their roster in a bid for another championship. For Golden State and Curry, familiar faces were just fine.`\
-https://nytimes.com/2021/10/19/sports/basketball/lakers-golden-state-lebron-james-stephen-curry.html?searchResultPosition=9
-
-**‘When I Was Playing, No One Really Talked About Mental Health.’**\
-`Jonathan Martin faced bullying in his N.F.L. locker room and depression. He will donate his brain to C.T.E. research to determine if head trauma contributed to his mental health woes.`\
-https://nytimes.com/2021/10/19/sports/football/jonathan-martin-nfl-cte.html?searchResultPosition=10
+https://nytimes.com/2021/10/19/pageoneplus/corrections-oct-19-2021.html?searchResultPosition=10
 
