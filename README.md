@@ -1,10 +1,10 @@
+**Washington State Fires Coach Over Vaccine Refusal**\
+`Nick Rolovich said in July he would not get a Covid-19 vaccine and maintained his stance once a state mandate was announced in August, about two months before Monday’s deadline.`\
+https://nytimes.com/2021/10/18/sports/ncaafootball/washington-state-fires-nick-rolovich-vaccine-mandate.html?searchResultPosition=1
+
 **N.Y.C. Jail Deaths Climb to 14 as Detainee Is Taken Off Life Support**\
 `The man tried to hang himself in a holding pen in Manhattan Criminal Court after he was ordered held on a $15,000 cash bond in an assault case.`\
-https://nytimes.com/2021/10/18/nyregion/rikers-death-toll.html?searchResultPosition=1
-
-**Washington State fires its football coach over his refusal to be vaccinated.**\
-`Nick Rolovich and four of his assistants lost their jobs because they would not comply with the state’s mandate.`\
-https://nytimes.com/2021/10/18/sports/nick-rolovich-fired-covid-vaccine.html?searchResultPosition=2
+https://nytimes.com/2021/10/18/nyregion/rikers-death-toll.html?searchResultPosition=2
 
 **University of North Carolina Can Keep Affirmative Action, Judge Rules**\
 `Students for Fair Admissions vowed to immediately appeal in a case that appears destined for the Supreme Court.`\
