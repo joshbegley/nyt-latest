@@ -30,11 +30,11 @@ https://nytimes.com/2021/10/19/movies/escape-from-mogadishu-review.html?searchRe
 `For some of us, the crisis of the last 19 months has taught us what we don’t want.`\
 https://nytimes.com/2021/10/19/nyregion/what-are-you-leaving-behind-after-the-pandemic.html?searchResultPosition=8
 
+**General Electric will require vaccines for its 56,000 U.S. workers.**\
+`Large companies, including G.E., have cited a requirement, which President Biden announced in September, that federal contractors be vaccinated when introducing mandates.`\
+https://nytimes.com/2021/10/19/business/general-electric-vaccine-mandate.html?searchResultPosition=9
+
 **‘Cancel Culture’ Isn’t the Problem. ‘OK Culture’ Is**\
 `It’s time to stop litigating whether these punishments are fair and to start thinking about why some behaviors seemed OK in the first place.`\
-https://nytimes.com/2021/10/19/opinion/culture/jon-gruden-nfl-cancel-culture.html?searchResultPosition=9
-
-**Credit Suisse agrees to pay $475 million in fines over the ‘tuna bond’ affair in Mozambique.**\
-`Investigators said more than $200 million was used to pay bribes and kickbacks to enrich foreign officials and former bankers at Credit Suisse.`\
-https://nytimes.com/2021/10/19/business/credit-suisse-tuna-bond-fines.html?searchResultPosition=10
+https://nytimes.com/2021/10/19/opinion/culture/jon-gruden-nfl-cancel-culture.html?searchResultPosition=10
 
