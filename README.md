@@ -27,7 +27,7 @@ https://nytimes.com/2021/10/20/arts/music/helado-negro-far-in.html?searchResultP
 https://nytimes.com/2021/10/20/well/move/exercise-estrogen-levels.html?searchResultPosition=7
 
 **Spanish Court Agrees to Extradite Former Venezuela Spy Chief to U.S.**\
-`Hugo Carvajal, once a prominent figure in the government of the Venezuelan leader Nicolás Maduro, faces charges of drug trafficking in the United States.`\
+`Hugo Carvajal, once a prominent figure in the government of the Venezuelan leader Nicolás Maduro, faces drug-trafficking charges in the United States.`\
 https://nytimes.com/2021/10/20/world/europe/spain-extradite-carvajal-venezuela.html?searchResultPosition=8
 
 **3 Art Gallery Shows to See Right Now**\
