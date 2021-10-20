@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/20/us/politics/hbcu-democrats-spending-congress.html
 `In this spiritless Netflix movie, an unwitting chauffeur in Los Angeles is drawn into a murderous vampire plot.`\
 https://nytimes.com/2021/10/20/movies/night-teeth-review.html?searchResultPosition=9
 
-**New York City will require all city employees to be vaccinated.**\
-`The mandate will remove an option to take regular tests instead of getting a shot.`\
+**New York City mandates vaccines for all city workers.**\
+`The new mandate will apply to more than 160,000 employees, including police officers, firefighters and sanitation workers, whose vaccination rates have lagged.`\
 https://nytimes.com/2021/10/20/nyregion/new-york-city-vaccine-mandate.html?searchResultPosition=10
 
