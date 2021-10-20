@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/20/movies/the-french-dispatch-review.html?searchResu
 
 **Netflix employees walk out to protest Dave Chappelle’s special.**\
 `The protest involved dozens of employees and was one of the most visible signs of worker unrest in the history of the streaming service.`\
-https://nytimes.com/2021/10/20/business/media/netflix-walkout-trans-dave-chappelle.html?searchResultPosition=2
+https://nytimes.com/2021/10/20/business/media/netflix-protest-dave-chappelle.html?searchResultPosition=2
 
 **Rahm Emanuel Questioned About Police Killing of a Black Teenager**\
 `Rahm Emanuel, a former mayor of Chicago and President Biden’s nominee for United States ambassador to Japan, was asked about the murder of Laquan McDonald during his Senate confirmation hearing.`\
