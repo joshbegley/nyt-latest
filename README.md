@@ -15,7 +15,7 @@ https://nytimes.com/2021/10/20/us/politics/hbcu-democrats-spending-congress.html
 https://nytimes.com/2021/10/20/movies/night-teeth-review.html?searchResultPosition=4
 
 **New York City will require all city employees to be vaccinated.**\
-`The mandate, covering more than 300,000 employees, will remove an option to take regular tests instead of getting a shot.`\
+`The mandate will remove an option to take regular tests instead of getting a shot.`\
 https://nytimes.com/2021/10/20/nyregion/new-york-city-vaccine-mandate.html?searchResultPosition=5
 
 **Queen ‘Reluctantly’ Cancels Trip, Citing Medical Advice**\
