@@ -14,8 +14,8 @@ https://nytimes.com/2021/10/20/us/politics/jonathan-diana-toebbe-hearing.html?se
 `Ricardo Cruciani, a former pain management physician, already faces state charges. Each of the federal charges carries a maximum sentence of 20 years.`\
 https://nytimes.com/2021/10/20/health/ricardo-cruciani-federal-charges.html?searchResultPosition=4
 
-**Rahm Emanuel, Seeking Senate Nod, Is Pressed Over 2014 Police Shooting**\
-`At his confirmation hearing, President Biden’s pick for envoy to Japan issued a warning to Beijing and defended his actions as mayor of Chicago after the killing of Laquan McDonald.`\
+**Rahm Emanuel, Seeking Senate Nod, Discusses 2014 Police Shooting**\
+`At his confirmation hearing, President Biden’s pick for envoy to Japan issued a warning to Beijing and explained his actions as mayor of Chicago after the killing of Laquan McDonald.`\
 https://nytimes.com/2021/10/20/us/politics/rahm-emanuel-confirmation-hearing.html?searchResultPosition=5
 
 **‘Dune’ Review: A Hero in the Making, on Shifting Sands**\
