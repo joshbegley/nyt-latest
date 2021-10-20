@@ -31,7 +31,7 @@ https://nytimes.com/2021/10/20/theater/songs-for-a-new-world-paper-mill-playhous
 https://nytimes.com/2021/10/20/arts/music/r-kelly-trial-date-chicago.html?searchResultPosition=8
 
 **Unmasked Police Officers Remove a Subway Rider After He Confronts Them**\
-`Andrew Gilbert said he repeatedly asked two police officers to wear masks in accordance with M.T.A. and Police Department policy. He was eventually pushed out of the station.`\
+`Andrew Gilbert said he repeatedly asked two officers to wear masks in accordance with M.T.A. and Police Department policy. He was eventually pushed out of the station.`\
 https://nytimes.com/2021/10/20/nyregion/nypd-unmasked-covid.html?searchResultPosition=9
 
 **Review: Chamber Music Society Returns, Unchanged**\
