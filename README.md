@@ -1,4 +1,4 @@
-**AMC Adds Open Captioning at Theaters in Move Toward Accessibility**\
+**AMC to Add Onscreen Captions at Some Locations**\
 `The move was lauded by advocates for the deaf and the hard of hearing, but theater owners worry audiences don’t want captions.`\
 https://nytimes.com/2021/10/20/business/amc-theaters-open-captioning-deaf.html?searchResultPosition=1
 
