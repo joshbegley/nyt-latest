@@ -12,7 +12,7 @@ https://nytimes.com/2021/10/19/opinion/china-microchips.html?searchResultPositio
 
 **Democrats, Scaling Back Budget Bill, Press for Compromise by Week’s End**\
 `As they worked to shrink their marquee domestic policy bill, President Biden told Democrats that a proposal to provide two years of free community college would most likely have to be dropped.`\
-https://nytimes.com/2021/10/19/us/politics/democrats-budget.html?searchResultPosition=8
+https://nytimes.com/2021/10/19/us/politics/democrats-budget-bill.html?searchResultPosition=8
 
 **F.B.I. Searches Homes Linked to Russian Oligarch**\
 `Agents raided homes that Oleg V. Deripaska had used in New York’s Greenwich Village and on Washington’s Embassy Row, as part of an investigation into whether he violated sanctions the United States imposed on him.`\
@@ -20,5 +20,5 @@ https://nytimes.com/video/us/100000008033321/fbi-russian-oligarch-homes-raid-new
 
 **Republicans Set to Block Voting Bill Again, Raising Stakes on Filibuster**\
 `Lawmakers and activists are becoming increasingly alarmed that the proposed legislation will stall and put Democrats at a disadvantage in coming elections.`\
-https://nytimes.com/2021/10/19/us/politics/voting-rights-filibuster.html?searchResultPosition=10
+https://nytimes.com/2021/10/19/us/politics/senate-filibuster.html?searchResultPosition=10
 
