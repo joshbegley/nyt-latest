@@ -1,40 +1,40 @@
+**Colombians Are Uniting Around Land Reform. Here’s Why.**\
+`Helping farmers is an idea that unites the country's left and right.`\
+https://nytimes.com/2021/10/20/opinion/colombia-land-reform.html?searchResultPosition=1
+
 **Gunman Pleads Guilty in Parkland School Shooting**\
 `Nikolas Cruz, the former student who went on a deadly rampage against classmates and teachers at Marjory Stoneman Douglas High School in 2018, pleaded guilty to the premeditated murder of 17 people and the attempted murder of 17 others.`\
-https://nytimes.com/video/us/100000008034050/parkland-school-shooting-nikolas-cruz-guilty-florida.html?searchResultPosition=1
+https://nytimes.com/video/us/100000008034050/parkland-school-shooting-nikolas-cruz-guilty-florida.html?searchResultPosition=2
 
 **Iran, turning more to imports, plans to abandon one of its homegrown Covid vaccines.**\
 `The defense ministry said there was too little demand for its Fakhravac vaccine to justify producing it, and blamed the health ministry for reneging on promised orders.`\
-https://nytimes.com/2021/10/20/world/iran-covid-vaccine.html?searchResultPosition=2
+https://nytimes.com/2021/10/20/world/iran-covid-vaccine.html?searchResultPosition=3
 
 **The True Cost of Upgrading Your Phone**\
 `Buying a $1,000 iPhone can be equivalent to giving up $17,000 in retirement savings or 2,500 cups of coffee.`\
-https://nytimes.com/2021/10/20/technology/personaltech/phone-upgrades-cost.html?searchResultPosition=3
+https://nytimes.com/2021/10/20/technology/personaltech/phone-upgrades-cost.html?searchResultPosition=4
 
 **Egypt imposes a vaccine mandate for all government workers and university students.**\
 `Officials expect major deliveries of doses by the end of the month to speed up the country’s vaccination efforts.`\
-https://nytimes.com/2021/10/20/world/egypt-covid-vaccine-mandate.html?searchResultPosition=4
+https://nytimes.com/2021/10/20/world/egypt-covid-vaccine-mandate.html?searchResultPosition=5
 
 **The Revolutionary Model Turned Painter**\
 `Suzanne Valadon taught herself to paint while modeling for Renoir and Toulouse-Lautrec. A revelatory new survey at the Barnes Collection shows what she learned.`\
-https://nytimes.com/2021/10/20/arts/design/valadon-painter-barnes-philadelphia.html?searchResultPosition=5
+https://nytimes.com/2021/10/20/arts/design/valadon-painter-barnes-philadelphia.html?searchResultPosition=6
 
 **Biden’s Climate Plan Stymied by 1 Senator**\
 `Joe Manchin is a crucial vote and is firmly against a clean electricity program that is the muscle behind the president’s plan to battle climate change.`\
-https://nytimes.com/2021/10/20/climate/climate-plan-newsletter.html?searchResultPosition=6
+https://nytimes.com/2021/10/20/climate/climate-plan-newsletter.html?searchResultPosition=7
 
 **PayPal is said to be in talks to buy Pinterest in a $45 billion deal.**\
 `If completed, it would be one of the larger consumer internet deals this year.`\
-https://nytimes.com/2021/10/20/technology/paypal-pinterest-acquisition-deal.html?searchResultPosition=7
+https://nytimes.com/2021/10/20/technology/paypal-pinterest-acquisition-deal.html?searchResultPosition=8
 
 **Nadia Chaudhri, Scientist With an End-of-Life Mission, Dies at 43**\
 `She documented her last months with ovarian cancer on Twitter while raising funds to support students from backgrounds that are underrepresented in the sciences.`\
-https://nytimes.com/2021/10/20/health/nadia-chaudhri-dead.html?searchResultPosition=8
+https://nytimes.com/2021/10/20/health/nadia-chaudhri-dead.html?searchResultPosition=9
 
 **Buzzy Puzzles: 5 Spelling Bee Games to Use in the Classroom**\
 `“Students respond to the challenge, very competitively,” one teacher said of the popular word game.`\
-https://nytimes.com/2021/10/20/learning/buzzy-puzzles-5-spelling-bee-games-to-use-in-the-classroom.html?searchResultPosition=9
-
-**Orionids Meteor Shower 2021: Watch It Peak in Night Skies**\
-`The celestial event caused by debris from Halley’s comet will be most active overnight, but a nearly full moon could interfere with your view.`\
-https://nytimes.com/2021/10/20/science/orionid-meteor-shower.html?searchResultPosition=10
+https://nytimes.com/2021/10/20/learning/buzzy-puzzles-5-spelling-bee-games-to-use-in-the-classroom.html?searchResultPosition=10
 
