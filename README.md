@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/20/nyregion/how-watch-nyc-mayor-debate.html?searchRe
 https://nytimes.com/2021/10/20/sports/football/nfl-rebuilding-phases.html?searchResultPosition=3
 
 **Your Wednesday Briefing**\
-`Calls to charge Bolsonaro with homicide.`\
+`Calls to charge Bolsonaro with crimes against humanity.`\
 https://nytimes.com/2021/10/19/briefing/bolsanaro-coronavirus-myanmar-refugees.html?searchResultPosition=4
 
 **In a First, Surgeons Attached a Pig Kidney to a Human — and It Worked**\
