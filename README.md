@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/20/business/media/netflix-protest-dave-chappelle.htm
 `Rahm Emanuel, a former mayor of Chicago and President Biden’s nominee for United States ambassador to Japan, was asked about the murder of Laquan McDonald during his Senate confirmation hearing.`\
 https://nytimes.com/video/us/politics/100000008034999/rahm-emanuel-laquan-mcdonald-senate-hearing.html?searchResultPosition=8
 
-**Tesla earned $1.6 billion in the third quarter as car sales surged.**\
+**Tesla’s quarterly profit nearly quintuples to $1.6 billion as car sales surge.**\
 `The automaker also reported a big jump in revenue, to $13.8 billion from $8.8 billion a year ago, as sales of the Model Y continue to rise.`\
 https://nytimes.com/2021/10/20/business/tesla-earnings.html?searchResultPosition=9
 
