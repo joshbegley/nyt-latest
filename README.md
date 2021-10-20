@@ -1,5 +1,5 @@
 **Jens Weidmann, the longtime German central bank chief, will step down.**\
-`A prominent critic of loose fiscal policies, his departure comes as European policymakers are weighing inflationary pressures.`\
+`A prominent critic of loose fiscal policies, his departure comes amid disagreements with the European Central Bank over its low-interest-rate policies.`\
 https://nytimes.com/2021/10/20/business/jens-weidmann-bundesbank.html?searchResultPosition=1
 
 **Bombing of Military Bus in Syrian Capital Kills 14**\
