@@ -10,7 +10,7 @@ https://nytimes.com/2021/10/20/sports/football/nfl-concussion-settlement-race.ht
 `Julia Sherman looks back at a recent gathering at which she previewed recipes from ‘Arty Parties’ for friends — and shares tips on throwing a communal dinner of your own.`\
 https://nytimes.com/2021/10/20/t-magazine/salad-for-president-julia-sherman.html?searchResultPosition=3
 
-**otherHuman Remains Found in Search for Brian Laundrie in Florida, F.B.I. Says**\
+**Human Remains Found in Search for Brian Laundrie in Florida, F.B.I. Says**\
 `After searching in the Carlton Reserve, the authorities said they had found human remains near items belonging to Mr. Laundrie, a “person of interest” in the murder of his fiancée, Gabrielle Petito.`\
 https://nytimes.com/2021/10/20/us/brian-laundrie-body-found-florida-park.html?searchResultPosition=4
 
