@@ -1,5 +1,5 @@
 **Meet the New Owners of the Wu-Tang Clan’s One-of-a-Kind Album**\
-`The government sold “Once Upon a Time in Shaolin” to satisfy a judgment against its first owner, Martin Shkreli. The buyers? A collective called PleasrDAO that paid $4 million.`\
+`The government sold “Once Upon a Time in Shaolin” to satisfy a judgment against its first owner, Martin Shkreli. It ended up with a collective called PleasrDAO that paid an intermediary $4 million.`\
 https://nytimes.com/2021/10/20/arts/music/wu-tang-clan-once-upon-a-time-in-shaolin.html?searchResultPosition=1
 
 **Your Favorite Children’s Books**\
