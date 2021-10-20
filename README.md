@@ -1,40 +1,40 @@
-**It’s Quitting Season**\
-`Time to stop being a martyr to grit.`\
-https://nytimes.com/video/opinion/100000008027932/quitting-jobs-resignation-employment.html?searchResultPosition=1
+**A Show With Its Host City, New Orleans, as the Protagonist**\
+`The contemporary art triennial Prospect New Orleans looks at the city’s cyclical history of challenges.`\
+https://nytimes.com/2021/10/20/arts/prospect-new-orleans-art-festival.html?searchResultPosition=1
 
-**Lesson of the Day: ‘The Women Fighting to Protect Greenland’**\
-`In this lesson, students will learn how ordinary citizens stood up for their home. Then, students will consider what things they are willing to fight for.`\
-https://nytimes.com/2021/10/20/learning/lesson-plans/lesson-of-the-day-the-women-fighting-to-protect-greenland.html?searchResultPosition=2
+**Art to See in Paris This Fall**\
+`Classic masterpieces and contemporary works are on view, along with an extravaganza all about Napoleon.`\
+https://nytimes.com/2021/10/20/arts/paris-fall-trip.html?searchResultPosition=2
 
-**As Borders Reopen, New York Wants Foreign Tourists Back, and Fast**\
-`The city’s tourism marketing agency is starting a campaign in several countries to attract visitors after the long pandemic lockout.`\
-https://nytimes.com/2021/10/20/nyregion/nyc-tourism.html?searchResultPosition=3
+**Putting West African Art in a Global Spotlight**\
+`With galleries in Ivory Coast and Senegal, Cécile Fakhoury has built a platform for regional artists and collectors. Her next stops: Paris and FIAC.`\
+https://nytimes.com/2021/10/20/arts/cecile-fakhoury-west-african-art.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/20/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Yardley, Pa.: An Affordable Option Between New York and Philadelphia**\
+`The borough across the Delaware River from Trenton, N.J., appeals to empty-nesters who like to walk and commuters seeking a bucolic locale.`\
+https://nytimes.com/2021/10/20/realestate/yardley-pa.html?searchResultPosition=4
 
-**October**\
-`It’s spooky season, pumpkin spice season, cuffing season, cozy season and hoodie season. What do you like best about this time of year?`\
-https://nytimes.com/2021/10/20/learning/october.html?searchResultPosition=5
+**Living In ... Yardley, Pa.**\
+`The borough across the Delaware River from Trenton, N.J., appeals to empty-nesters who like to walk and commuters seeking a bucolic locale.`\
+https://nytimes.com/slideshow/2021/10/20/realestate/living-in-yardley-pa.html?searchResultPosition=5
 
-**An Umpire Opened the Door and the Astros Walked Right Through**\
-`With two outs in the ninth, Nathan Eovaldi thought he had a strike three. Laz Diaz disagreed and by the time the dust settled, Houston had scored seven runs, tying the series.`\
-https://nytimes.com/2021/10/20/sports/baseball/red-sox-astros-alcs-game-4.html?searchResultPosition=6
+**In Washington, a Beloved Birthplace for Artistic Giants**\
+`At the Walla Walla Foundry, one of the largest contemporary fine-art foundries in the world, all sorts of artistic behemoths rise. Yet it’s little-known outside of the art world.`\
+https://nytimes.com/2021/10/20/arts/design/walla-walla-foundry-art.html?searchResultPosition=6
 
-**Word of the Day: bode**\
-`This word has appeared in 84 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/20/learning/word-of-the-day-bode.html?searchResultPosition=7
+**Capturing the Magic of Movies**\
+`The long-awaited Academy Museum of Motion Pictures recognizes many of those who worked behind the scenes and comes to terms with Hollywood’s past.`\
+https://nytimes.com/2021/10/20/arts/academy-museum-of-motion-pictures-opens.html?searchResultPosition=7
 
-**Trevor Noah Talks ‘Striketober’**\
-`“The Daily Show” host joked that jobs are “how Americans prove that they deserve health care.”`\
-https://nytimes.com/2021/10/20/arts/television/trevor-noah-strikes-vaccine-boosters.html?searchResultPosition=8
+**A New Strategy to Persuade Voters: Listen Carefully. And Don’t Hurry.**\
+`Canvassers usually knock on doors hoping to chat briefly. With deep canvassing, the idea is to engage voters in more meaningful conversations.`\
+https://nytimes.com/2021/10/20/us/politics/minneapolis-deep-canvassing.html?searchResultPosition=8
 
-**The Way China Runs Its Economy Won’t Ever Satisfy Free-Market True Believers**\
-`Getting the economy back on track for the long haul requires making aggressive reforms now.`\
-https://nytimes.com/2021/10/20/opinion/china-economy-xi-jinpping-evergrande.html?searchResultPosition=9
+**Female Judges in Afghanistan, Now Jobless and in Hiding**\
+`They fear that they or their loved ones could be tracked down and killed because of their work delivering justice to women. “We have lost everything — our jobs, our homes, the way we lived.”`\
+https://nytimes.com/2021/10/20/world/asia/afghan-judges-women-taliban.html?searchResultPosition=9
 
-**The Knicks Are Ready for a Sequel. The Good Kind.**\
-`The Knicks are positioned to build on last season’s success after an off-season of smart moves.`\
-https://nytimes.com/2021/10/20/sports/basketball/knicks-season-opener.html?searchResultPosition=10
+**A Eureka Moment, Recreated in Film**\
+`The Museum of Fine Arts, Boston, is using modern technology to stir appreciation for ancient artistry — including an Athenian potter’s transformative “discovery” of red.`\
+https://nytimes.com/2021/10/20/arts/boston-museum-fine-arts-technology.html?searchResultPosition=10
 
