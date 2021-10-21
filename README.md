@@ -27,7 +27,7 @@ https://nytimes.com/2021/10/20/sports/women-soccer-abuse-ceo.html?searchResultPo
 https://nytimes.com/2021/10/20/opinion/marriage-decline-america.html?searchResultPosition=7
 
 **The candidates clashed over questions of public safety and the future of policing.**\
-`The New York Police Department is dealing with a crisis of public confidence, and pressure has mounted to rein in its mission.`\
+`The New York Police Department is dealing with a crisis of public confidence, and pressure has mounted to scale back its reach.`\
 https://nytimes.com/2021/10/20/nyregion/eric-adams-sliwa-nypd.html?searchResultPosition=8
 
 **So where does Eric Adams really live?**\
