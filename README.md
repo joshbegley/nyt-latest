@@ -8,13 +8,13 @@ https://nytimes.com/2021/10/21/world/asia/asia-travel-rules.html?searchResultPos
 
 **American and Southwest post profits as the airline industry recovers.**\
 `Both airlines said they expected to do even better in the final three months of the year, lifted by corporate, international and holiday travel.`\
-https://nytimes.com/2021/10/21/business/american-southwest-q3earnings.html?searchResultPosition=3
+https://nytimes.com/2021/10/21/business/american-southwest-airlines-earnings.html?searchResultPosition=3
 
 **Bonus Basketball in the Garden Ends With a Knicks Win**\
 `A double-overtime thriller against the Boston Celtics in the season opener had 11 lead changes and 10 ties.`\
 https://nytimes.com/2021/10/21/sports/basketball/knicks-celtics.html?searchResultPosition=4
 
-**Facebook draws criticism for special treatment of high-profile users.**\
+**Facebook’s oversight board criticizes its policy on prominent users.**\
 `The social network’s oversight board took aim at an internal program that gives prominent users special leeway on rules.`\
 https://nytimes.com/2021/10/21/business/facebook-draws-criticism-for-special-treatment-of-high-profile-users.html?searchResultPosition=5
 
