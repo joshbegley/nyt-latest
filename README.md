@@ -1,40 +1,40 @@
-**For This Artist, the Medium Is the Body**\
-`Cassils adds a dance piece to a retrospective of multidisciplinary work that interrogates gender and the treatment of transgender people.`\
-https://nytimes.com/2021/10/21/arts/dance/cassils-human-measure.html?searchResultPosition=1
+**A C.D.C. panel will debate boosters and the ‘mix-and-match’ strategy.**\
+`After the F.D.A. issued its authorization of additional doses of vaccines as boosters, it passed the baton to experts advising the Centers for Disease Control and Prevention.`\
+https://nytimes.com/2021/10/21/health/cdc-mix-match-booster-shot.html?searchResultPosition=1
 
-**The Moment of Death, Live Onstage**\
-`The Swiss provocateur Milo Rau’s latest work explores the ethics of voluntary euthanasia with real footage of an assisted suicide.`\
-https://nytimes.com/2021/10/21/theater/euthanasia-theater.html?searchResultPosition=2
+**In Australia, It’s ‘Long Live King Coal’**\
+`The country has fallen behind other developed nations in its commitment to slashing carbon emissions. Neither fires nor international pressure has pushed it away from coal and other fossil fuels.`\
+https://nytimes.com/2021/10/21/world/australia/australia-coal-fossil-fuel-carbon.html?searchResultPosition=2
 
-**Chicago Police Officer Accidentally Shoots and Injures 2 Colleagues**\
-`The shooting occurred during a struggle with a man after officers followed a car linked to a homicide investigation, the city’s police superintendent said.`\
-https://nytimes.com/2021/10/21/us/chicago-police-shooting.html?searchResultPosition=3
+**At Museums and Auctions, Paintings, Posters and a Magician’s Treasures**\
+`Across the nation, shows offer a vast range of creations, including exhibitions focusing on Black and Mexican American artists.`\
+https://nytimes.com/2021/10/21/arts/museums-shows-listings.html?searchResultPosition=3
 
-**A Talent for Talent**\
-`Kendall Werts is a new kind of representative for a new kind of celebrity. Often he plucks clients when they’re young and on the verge of something bigger. Then he finds what that is.`\
-https://nytimes.com/2021/10/21/fashion/kendall-werts-jeffries.html?searchResultPosition=4
+**His First Art Was Graffiti. Now His Pottery Is in the Met.**\
+`With his ceramics, Roberto Lugo tries to reach out to people who often feel ignored by museums.`\
+https://nytimes.com/2021/10/21/arts/roberto-lugo-ceramics.html?searchResultPosition=4
 
-**What’s Noisy, Loved by Tourists and Comes From New Jersey?**\
-`Complaints about commercial helicopters have soared in the last year, as the pandemic changed the rhythms of New York City and the people who live here.`\
-https://nytimes.com/2021/10/21/nyregion/nyc-helicopter-noise-complaints.html?searchResultPosition=5
+**As Chinese Women Seek to Crack Male Professions, Schools Stand in the Way**\
+`In China, some academic programs accept only men or cap the number of female applicants, who often must test higher than their male counterparts.`\
+https://nytimes.com/2021/10/21/world/asia/china-schools-gender-bias.html?searchResultPosition=5
 
-**An East Village Boutique Where the Avant-Garde Gathered**\
-`Knobkerry was a shop and gallery where Ornette Coleman hung out and Janis Joplin shopped. It is the subject of a new book and museum exhibition.`\
-https://nytimes.com/2021/10/21/style/knobkerry-east-village-boutique.html?searchResultPosition=6
+**Vinyl Is Selling So Well That It’s Getting Hard to Sell Vinyl**\
+`Left for dead in the 1980s, vinyl records are now the music industry’s most popular and highest-grossing physical format. Getting them manufactured, however, is increasingly a challenge.`\
+https://nytimes.com/2021/10/21/arts/music/vinyl-records-delays.html?searchResultPosition=6
 
-**Fed Ethics Office Warned Officials to Curb Unnecessary Trading During Rescue**\
-`Months later, some Federal Reserve leaders resumed their market activity, stoking a scandal now engulfing the central bank.`\
-https://nytimes.com/2021/10/21/business/economy/federal-reserve-ethics-trading.html?searchResultPosition=7
+**A 30-Year Campaign to Control Drug Prices Faces Yet Another Failure**\
+`Democrats have made giving government the power to negotiate drug prices a central campaign theme for decades. With the power to make it happen, they may fall short yet again.`\
+https://nytimes.com/2021/10/21/us/politics/drug-prices-democrats.html?searchResultPosition=7
 
-**Ex-Giuliani Ally Gained Easy Access to Trump’s Orbit, Texts Show**\
-`Lev Parnas appeared to parlay donations to Republican candidates into influence and access — and money from a Russian tycoon.`\
-https://nytimes.com/2021/10/21/nyregion/lev-parnas-trump-giuliani.html?searchResultPosition=8
+**Want to Change Your Life? A New Exhibition Offers a Path.**\
+`The Rubin Museum teams up with Buddhism to help you adjust your perspective.`\
+https://nytimes.com/2021/10/21/arts/rubin-museum-mandala-lab.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/21/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Amazon Workers on Staten Island Aim for Union Vote**\
+`The organizers say they will have enough signatures by Monday to file for an election with the National Labor Relations Board. The company is pushing back.`\
+https://nytimes.com/2021/10/21/technology/amazon-workers-union-staten-island.html?searchResultPosition=9
 
-**Two Roads**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2021/10/21/learning/two-roads.html?searchResultPosition=10
+**India’s vaccine campaign hits a billion doses, turning a tide.**\
+`Covid vaccination in has accelerated in India in recent weeks, with more than 70 percent of the adult population having received at least one dose of a vaccine.`\
+https://nytimes.com/2021/10/20/world/asia/india-vaccination-covid.html?searchResultPosition=10
 
