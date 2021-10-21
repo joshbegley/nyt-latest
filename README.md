@@ -31,7 +31,7 @@ https://nytimes.com/interactive/2021/10/21/sports/football/proposed-nfl-concussi
 https://nytimes.com/2021/10/21/world/canada-vaccine-passport-travel.html?searchResultPosition=8
 
 **After 600 Days, the Raptors Finally Came Home**\
-`The Toronto team faced the Washington Wizards in its first regular-season game in its home city since 2019.`\
+`Toronto faced the Washington Wizards in its first regular-season game in its home city since 2019. Fans were more than ready.`\
 https://nytimes.com/interactive/2021/10/21/sports/basketball/nba-toronto-raptors-washington-wizards.html?searchResultPosition=9
 
 **In a Place He Never Thought He’d Be, and Thriving**\
