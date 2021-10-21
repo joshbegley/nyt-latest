@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/21/arts/design/hispanic-society-grolier-club.html?se
 `Police in Britain announced murder charges against 25-year-old Ali Harbi Ali of North London in the killing of David Amess, a member of Parliament who was stabbed in the town of Southend while he was meeting with constituents.`\
 https://nytimes.com/video/world/europe/100000008036644/suspect-is-charged-in-killing-of-british-mp-amass.html?searchResultPosition=8
 
-**Elizabeth Warren asks the Fed to release its March 2020 ethics warning regarding trading.**\
+**Elizabeth Warren asks the Fed to release its March 2020 ethics warning about trading.**\
 `Ms. Warren, a Democratic Senator from Massachusetts, asked the Federal Reserve’s Board of Governors to release an email sent to reserve banks.`\
 https://nytimes.com/2021/10/21/us/politics/elizabeth-warren-fed-ethics.html?searchResultPosition=9
 
