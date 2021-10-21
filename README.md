@@ -28,7 +28,7 @@ https://nytimes.com/2021/10/21/style/bones-day-noodle-tiktok-dog.html?searchResu
 
 **AutoNation’s profit jumps as prices for cars soar.**\
 `The company, a chain of new-vehicle franchises, has been able to cut back on discounts as the chip shortage limits the inventory of cars.`\
-https://nytimes.com/2021/10/21/business/autonations-profit-jumps-as-prices-for-cars-soar.html?searchResultPosition=8
+https://nytimes.com/2021/10/21/business/autonation-profits-car-prices.html?searchResultPosition=8
 
 **‘Learning to Live Together’ Review: Remaking a Once-in-a-Lifetime Band**\
 `Joe Cocker’s bacchanalian “Mad Dogs & Englishmen” tour gets a reconsideration and a revival in this documentary by Jesse Lauter.`\
