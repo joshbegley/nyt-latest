@@ -1,6 +1,6 @@
 **Bones or No Bones? A Dog on TikTok Is Setting Today’s Mood.**\
 `Millions of people are checking TikTok posts about a pug as a horoscope of sorts to see what kind of day they will have based on whether the dog rises or stays in bed.`\
-https://nytimes.com/2021/10/21/style/noodle-tik-tok-dog.html?searchResultPosition=1
+https://nytimes.com/2021/10/21/style/bones-day-noodle-tiktok-dog.html?searchResultPosition=1
 
 **AutoNation’s profit jumps as prices for cars soar.**\
 `The company, a chain of new-vehicle franchises, has been able to cut back on discounts as the chip shortage limits the inventory of cars.`\
