@@ -20,7 +20,7 @@ https://nytimes.com/2021/10/21/business/facebook-draws-criticism-for-special-tre
 
 **Do You Work at Amazon or Another Powerful Employer?**\
 `We’re interested in learning as much as possible about how employers manage their work forces.`\
-https://nytimes.com/2021/10/21/business/do-you-work-at-amazon-or-another-powerful-employer.html?searchResultPosition=6
+https://nytimes.com/2021/10/21/business/amazon-powerful-companies-callout.html?searchResultPosition=6
 
 **U.K. Police Charge Suspect in Killing of Lawmaker**\
 `Ali Harbi Ali, 25, was accused of murder and preparation of terrorist acts in the killing of David Amess, who was fatally stabbed last week.`\
