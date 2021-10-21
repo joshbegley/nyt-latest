@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/21/us/mennonites-prayer-haiti-hostages.html?searchRe
 https://nytimes.com/2021/10/21/science/dinosaur-herds.html?searchResultPosition=6
 
 **‘Apply the Facts’: Garland Addresses Bannon Contempt Referral**\
-`During a House Judiciary Committee hearing, Merrick B. Garland declined to say whether the Justice Department would enforce a subpoena issued by the select committee investigating the Jan. 6 Capitol riot against Steve Bannon, who had refused to cooperate.`\
+`During a House Judiciary Committee hearing, Attorney General Merrick B. Garland declined to say whether the Justice Department would enforce a subpoena issued by the select committee investigating the Jan. 6 Capitol riot against Stephen K. Bannon, who has refused to cooperate.`\
 https://nytimes.com/video/us/politics/100000008037177/attorney-general-merrick-garland-bannon-subpoena.html?searchResultPosition=7
 
 **Diane Weyermann, Executive Who Championed ‘An Inconvenient Truth,’ Dies at 66**\
