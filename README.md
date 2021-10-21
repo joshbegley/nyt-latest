@@ -30,11 +30,11 @@ https://nytimes.com/2021/10/21/books/neil-sheehan-vietnam.html?searchResultPosit
 `You might think that celebrated adult authors writing for kids is a new trend. It isn’t.`\
 https://nytimes.com/2021/10/21/books/review/famous-authors-childrens-books.html?searchResultPosition=8
 
+**Review: ‘The Complete Stories,’ by Flannery O’Connor**\
+`This collection — which appeared seven years after the Southern Gothic writer’s death in 1964 — was reviewed by Alfred Kazin.`\
+https://nytimes.com/2021/10/21/books/review/flannery-oconnor-the-complete-stories.html?searchResultPosition=9
+
 **Review: ‘The Lost World,’ by Arthur Conan Doyle**\
 `Dinosaurs in the 20th century? In 1912, Sherlock Holmes’s creator invented the template that Michael Crichton would follow almost eight decades later.`\
-https://nytimes.com/2021/10/21/books/arthur-conan-doyle-the-lost-world.html?searchResultPosition=9
-
-**Review: ‘The Bell Jar,’ by Sylvia Plath**\
-`To our reviewer, the poet’s novel was “the kind of book Salinger’s Franny might have written about herself 10 years later, if she had spent those 10 years in Hell.”`\
-https://nytimes.com/2021/10/21/books/review/the-bell-jar-sylvia-plath.html?searchResultPosition=10
+https://nytimes.com/2021/10/21/books/arthur-conan-doyle-the-lost-world.html?searchResultPosition=10
 
