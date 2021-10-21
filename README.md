@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/21/arts/rubin-museum-mandala-lab.html?searchResultPo
 `The organizers say they will have enough signatures by Monday to file for an election with the National Labor Relations Board. The company is pushing back.`\
 https://nytimes.com/2021/10/21/technology/amazon-workers-union-staten-island.html?searchResultPosition=9
 
-**India’s vaccine campaign hits a billion doses, turning a tide.**\
+**India’s vaccine campaign hits a billion doses, turning an overwhelming tide.**\
 `Covid vaccination in has accelerated in India in recent weeks, with more than 70 percent of the adult population having received at least one dose of a vaccine.`\
 https://nytimes.com/2021/10/20/world/asia/india-vaccination-covid.html?searchResultPosition=10
 
