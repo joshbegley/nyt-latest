@@ -6,8 +6,8 @@ https://nytimes.com/2021/10/20/us/onions-salmonella-outbreak-recall.html?searchR
 `Eric Adams and Curtis Sliwa traded attacks over past lies, a Brooklyn apartment and “buffoonery” on the debate stage.`\
 https://nytimes.com/2021/10/20/nyregion/nyc-mayoral-debate-takeaways.html?searchResultPosition=2
 
-**Adams Resists Sliwa’s Taunts and Jabs in Their First Debate**\
-`Eric Adams, the Democratic front-runner in the New York City mayor’s race, refused to be goaded into an exchange of insults with his Republican foe, Curtis Sliwa.`\
+**Adams, Under Attack From Sliwa in Their First Debate, Holds His Fire**\
+`Curtis Sliwa, the Republican candidate in the New York City mayor’s race, tried to compare Eric Adams, the Democratic front-runner, to Mayor de Blasio.`\
 https://nytimes.com/2021/10/20/nyregion/debate-adams-sliwa-mayor-nyc.html?searchResultPosition=3
 
 **F.D.A. Authorizes Moderna and Johnson & Johnson Booster Shots**\
