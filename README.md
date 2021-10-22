@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/22/technology/facebook-election-misinformation.html?
 https://nytimes.com/2021/10/22/us/biden-senate-filibuster.html?searchResultPosition=2
 
 **Peter Scolari, ‘Newhart’ and ‘Girls’ Actor, Is Dead at 66**\
-`His first big break came as Tom Hanks’s co-star on the TV comedy “Bosom Buddies” in the early 1980s, He also worked on the stage, occasionally on Broadway.`\
+`His first big break came as Tom Hanks’s co-star on the TV comedy “Bosom Buddies” in the early 1980s. He also worked on the stage, occasionally on Broadway.`\
 https://nytimes.com/2021/10/22/arts/peter-scolari-dead.html?searchResultPosition=3
 
 **Supreme Court, Alec Baldwin, M.L.B.: Your Friday Evening Briefing**\
