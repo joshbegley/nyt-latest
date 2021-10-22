@@ -10,7 +10,7 @@ https://nytimes.com/2021/10/21/crosswords/daily-puzzle-2021-10-22.html?searchRes
 `Emily Cox and Henry Rathvon never flop, never bluff, never lose.`\
 https://nytimes.com/2021/10/21/crosswords/variety-acrostic.html?searchResultPosition=3
 
-**China Evergrande Makes Payment Before Deadline, State Media Says**\
+**China Evergrande Makes Payment Before Deadline, Official Media Says**\
 `The troubled property giant faced the threat of default if it didn’t meet its obligations to foreign bondholders by Saturday.`\
 https://nytimes.com/2021/10/21/business/china-evergrande-bond-payment.html?searchResultPosition=4
 
