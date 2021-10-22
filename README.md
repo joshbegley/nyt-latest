@@ -2,7 +2,7 @@
 `The move comes after her nomination as budget director was pulled earlier this year over her frequent caustic remarks on social media.`\
 https://nytimes.com/2021/10/22/us/politics/neera-tanden-staff-secretary.html?searchResultPosition=1
 
-**An Artist, a Camera and a Quest to See All Skin Tones Equally**\
+**An Artist’s Quest to Show People Exactly as They Are**\
 `Artist Mengwen Cao’s photography is an exercise in exploring how queer and BIPOC people can be depicted more clearly.`\
 https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000008038597/an-artist-a-camera-and-a-quest-to-see-all-skin-tones-equally.html?searchResultPosition=2
 
