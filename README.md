@@ -2,8 +2,8 @@
 `The company’s first-ever safety report, which it committed two years ago to producing, also included four fatal assaults and 49 deaths in crashes.`\
 https://nytimes.com/2021/10/21/technology/lyft-sex-assaults-report.html?searchResultPosition=1
 
-**One Fatally Shot and One Injured on Set of Alec Baldwin Movie in New Mexico**\
-`A woman died and a man was injured after a prop firearm was discharged on the set of “Rust,” a Western, the authorities said.`\
+**Alec Baldwin Fatally Shoots Crew Member With Prop Firearm on Film Set, Authorities Say**\
+`The movie’s director of photography was killed and the director was injured on the set of “Rust,” a Western, a sheriff’s office in New Mexico said.`\
 https://nytimes.com/2021/10/21/us/alec-baldwin-shooting-rust-movie.html?searchResultPosition=2
 
 **House Ethics Committee Details Accusations Against 4 Lawmakers**\
