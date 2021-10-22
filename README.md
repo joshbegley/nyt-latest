@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/22/arts/television/american-veteran-pbs.html?searchR
 `The composer worked with a far-flung “band” of collaborators who sung, scraped metal, invented instruments and more for the score.`\
 https://nytimes.com/2021/10/22/movies/hans-zimmer-dune.html?searchResultPosition=9
 
-**Pfizer says its vaccine is highly effective in children ages 5 to 11.**\
-`The company reported that a lower dose of the vaccine was 90.7 percent effective in preventing symptomatic Covid-19 in a clinical trial.`\
+**Pfizer says its vaccine is highly protective in children ages 5 to 11.**\
+`The company reported that a lower dose of the vaccine had a 90.7 percent efficacy rate in preventing symptomatic Covid-19 in a clinical trial.`\
 https://nytimes.com/2021/10/22/us/politics/pfizer-vaccine-children-covid.html?searchResultPosition=10
 
