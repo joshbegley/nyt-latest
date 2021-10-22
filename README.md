@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/22/arts/television/trevor-noah-trump-truth-social.ht
 
 **Two Wrongs Don’t Make Mr. Right**\
 `He wanted to get really serious really fast, which felt good until it didn’t.`\
-https://nytimes.com/2021/10/22/style/modern-love-when-does-caring-become-creepy.html?searchResultPosition=2
+https://nytimes.com/2021/10/22/style/modern-love-hinge-date-not-mr-right.html?searchResultPosition=2
 
 **Your Friday Briefing**\
 `The geopolitical risks of climate change.`\
