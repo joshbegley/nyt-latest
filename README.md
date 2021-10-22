@@ -31,7 +31,7 @@ https://nytimes.com/2021/10/22/theater/ddlj-indian-film-broadway-musical.html?se
 https://nytimes.com/2021/10/22/nyregion/lev-parnas-guilty-giuiliani.html?searchResultPosition=8
 
 **Mortars, Pestles and the Comfort of a Culinary Ritual**\
-`Few things yield texture and flavor — as well as connection — as affectingly as this kitchen tool.`\
+`Few things yield texture and flavor — as well as connection — as affectingly as this kitchen tool, Yewande Komolafe writes.`\
 https://nytimes.com/2021/10/22/dining/mortars-pestles-and-the-comfort-of-a-culinary-ritual.html?searchResultPosition=9
 
 **What the Ben Simmons Standoff Means for the Sixers and the N.B.A.**\
