@@ -1,6 +1,6 @@
 **One Fatally Shot and One Injured on Set of Alec Baldwin Movie in New Mexico**\
 `A woman died and a man was injured after a prop firearm was discharged on the set of “Rust,” a Western, the authorities said.`\
-https://nytimes.com/2021/10/21/us/rust-movie-shooting-new-mexico.html?searchResultPosition=1
+https://nytimes.com/2021/10/21/us/alec-baldwin-shooting-rust-movie.html?searchResultPosition=1
 
 **House Ethics Committee Details Accusations Against 4 Lawmakers**\
 `The separate reports, investigating three Republicans and a Democrat, center on stock trades, the misuse of campaign funds and the improper awarding of contracts.`\
