@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/22/arts/music/robert-ashley-el-aficionado-review.htm
 https://nytimes.com/2021/10/22/us/what-we-dont-know-alec-baldwin.html?searchResultPosition=6
 
 **Jerome Powell says supply chain pressures will last ‘likely well into next year,’ and the Fed is prepared to react.**\
-`The Federal Reserve chair acknowledged that supply chain snarls that are pushing prices higher may last longer than policymakers had bargained for.`\
+`The Federal Reserve chair said it is important for policy to be positioned to react, and the central bank would act to keep prices stable if necessary`\
 https://nytimes.com/2021/10/22/business/feds-powell-supply-chain.html?searchResultPosition=7
 
 **Amanda Knox Was Exonerated. That Doesn’t Mean She’s Free.**\
