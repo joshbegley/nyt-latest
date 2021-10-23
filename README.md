@@ -2,7 +2,7 @@
 `A mysterious illness on the eve of the 2019 N.B.A. draft derailed Kris Wilkes’s hopes of going pro. As he heals, he’s not giving up hope.`\
 https://nytimes.com/2021/10/23/sports/basketball/his-nba-dream-was-right-there-then-he-couldnt-move-his-legs.html?searchResultPosition=1
 
-**Before ‘Dune,’ Frank Herbert Learned How ‘White Men Are Eating the Earth’**\
+**‘Dune’ Owes Its Climate Change Prophecies to Indigenous Tribes**\
 `Native Americans’ warnings of environmental catastrophe inspired the landscape of “Dune.” Now their tribal lands are flooding.`\
 https://nytimes.com/2021/10/23/opinion/culture/dune-frank-herbert-native-americans.html?searchResultPosition=2
 
