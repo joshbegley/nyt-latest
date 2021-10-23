@@ -2,8 +2,8 @@
 `Native Americans’ warnings of environmental catastrophe inspired the landscape of “Dune.” Now their tribal lands are flooding.`\
 https://nytimes.com/2021/10/23/opinion/culture/dune-frank-herbert-native-americans.html?searchResultPosition=1
 
-**U.S. Struggles With Afghan Evacuees Weeded Out in Vetting and Now in Limbo**\
-`No final decisions have been made, but dozens flagged for apparent criminal pasts or links to militants have been sent to a base in Kosovo, where their fate is uncertain.`\
+**U.S. Struggles With Afghan Evacuees Weeded Out, and Now in Limbo**\
+`No final decisions have been made, but dozens red-flagged for apparent criminal pasts or links to militants have been sent to a base in Kosovo, where their fate is uncertain.`\
 https://nytimes.com/2021/10/23/us/politics/afghan-evacuees-kosovo.html?searchResultPosition=2
 
 **Is Truth the Best Medicine for Dying Patients?**\
