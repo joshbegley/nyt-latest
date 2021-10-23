@@ -28,7 +28,7 @@ https://nytimes.com/2021/10/23/world/europe/erdogan-turkey-ambassadors-persona-n
 
 **Letitia James Isn’t Saying Whether She’s Running for Governor. But She Is Hiring.**\
 `Ms. James, the New York attorney general, has recently recruited several advisers and fund-raisers ahead of a possible run for the state’s top office.`\
-https://nytimes.com/2021/10/23/nyregion/letitia-james-running-governor.html?searchResultPosition=8
+https://nytimes.com/2021/10/23/nyregion/letitia-james-new-york-governor.html?searchResultPosition=8
 
 **‘Completely Lost’: For Some Afghans, Returning Home Is as Difficult as Fleeing**\
 `Thousands of Afghans who were in India for medical treatment when the country collapsed are now desperate to return, but have no money and no clear route home.`\
