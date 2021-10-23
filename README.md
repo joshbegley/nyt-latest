@@ -22,13 +22,13 @@ https://nytimes.com/2021/10/23/business/everytable-healthy-fast-food.html?search
 `The president pushed for an expansive agenda knowing that he would most likely have to pare it back, leaving a sense of disappointment that could hurt his party at the polls.`\
 https://nytimes.com/2021/10/23/us/politics/biden-compromise-consquences.html?searchResultPosition=6
 
-**Ralph Lauren Restarts the Fantasy**\
-`The Polo Bar reopens in Manhattan, and the 82-year-old designer has no plans to slow down.`\
-https://nytimes.com/2021/10/23/style/ralph-lauren-restarts-the-fantasy.html?searchResultPosition=7
-
 **For India and Pakistan, Cricket Is Never Just a Game**\
 `It’s one of the greatest rivalries in sports, when war off the field allows it — a contest of national identities that will be renewed this Sunday in a World Cup match.`\
-https://nytimes.com/2021/10/23/world/asia/cricket-india-pakistan.html?searchResultPosition=8
+https://nytimes.com/2021/10/23/world/asia/cricket-india-pakistan.html?searchResultPosition=7
+
+**Ralph Lauren Restarts the Fantasy**\
+`The Polo Bar reopens in Manhattan, and the 82-year-old designer has no plans to slow down.`\
+https://nytimes.com/2021/10/23/style/ralph-lauren-restarts-the-fantasy.html?searchResultPosition=8
 
 **The Pessimistic Electorate Behind Biden’s Approval Ratings**\
 `In the era of modern polling, only Donald J. Trump has had a lower approval rating than President Biden’s at this early stage of his term.`\
