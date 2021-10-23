@@ -22,13 +22,13 @@ https://nytimes.com/2021/10/23/sports/head-of-the-charles-charlie-hamlin.html?se
 `The stakes could not be higher at the upcoming climate summit in Scotland.`\
 https://nytimes.com/2021/10/23/opinion/climate-glasgow-biden-xi.html?searchResultPosition=6
 
-**Let the Punishment Fit the Crime**\
-`An unusual debate at a maximum-security prison in Illinois led to a proposal for reform that the state legislature can pass right now. `\
-https://nytimes.com/2021/10/23/opinion/sunday/illinois-parole-mass-incarceration.html?searchResultPosition=7
-
 **Colin Powell and ‘Guernica’**\
 `He broke many barriers but was outplayed by masters of deceit.`\
-https://nytimes.com/2021/10/23/opinion/colin-powell-legacy.html?searchResultPosition=8
+https://nytimes.com/2021/10/23/opinion/colin-powell-legacy.html?searchResultPosition=7
+
+**Let the Punishment Fit the Crime**\
+`An unusual debate at a maximum-security prison in Illinois led to a proposal for reform that the state legislature can pass right now. `\
+https://nytimes.com/2021/10/23/opinion/sunday/illinois-parole-mass-incarceration.html?searchResultPosition=8
 
 **As Broadway Returns, Shows Rethink and Restage Depictions of Race**\
 `“The Book of Mormon,” “The Lion King” and “Hamilton” are among those making changes as theaters reopen following the lengthy pandemic shutdown.`\
