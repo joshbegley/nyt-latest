@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/23/us/voter-fraud-nevada.html?searchResultPosition=7
 `A sudden descent into a chronic illness. `\
 https://nytimes.com/2021/10/23/opinion/lyme-disease-chronic-illness.html?searchResultPosition=8
 
-**Inadvertent Gun Discharges Occurred on Alec Baldwin Film Before Fatal Shooting, Crew Members Say**\
+**Alec Baldwin Film Set Had Previous Accidental Gun Discharges, Crew Members Say**\
 `They expressed concerns over gun mishaps and working conditions just days before the shooting that killed the cinematographer Halyna Hutchins.`\
 https://nytimes.com/2021/10/23/us/alec-baldwin-rust-shooting.html?searchResultPosition=9
 
