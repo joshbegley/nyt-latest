@@ -15,7 +15,7 @@ https://nytimes.com/2021/10/22/us/pfizer-vaccine-children-5-to-11.html?searchRes
 https://nytimes.com/2021/10/22/sports/baseball/astros-alcs.html?searchResultPosition=4
 
 **Trump to Twitter: I Can’t Make You Love Me**\
-`Trump will attempt to build his own version of the social media giant.`\
+`The former president will attempt to build his own version of the social media giant.`\
 https://nytimes.com/2021/10/22/opinion/trump-twitter-media.html?searchResultPosition=5
 
 **Key takeaways from Week 7 of the Elizabeth Holmes trial.**\
