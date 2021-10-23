@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/23/us/hacking-emirates-farhad-azima.html?searchResul
 https://nytimes.com/2021/10/23/crosswords/spelling-bee-forum.html?searchResultPosition=2
 
 **An ‘Unreal Feeling’ as Astros Reach Third World Series in Five Years**\
-`Stained by a scandal but unfazed on the field, Houston’s core stuck together and returns to baseball’s biggest stage looking for another ring.`\
+`Stained by a scandal but unfazed on the field, Houston’s core stuck together, outlasting the Boston Red Sox and returning to baseball’s biggest stage looking for another ring.`\
 https://nytimes.com/2021/10/22/sports/baseball/houston-astros-world-series.html?searchResultPosition=3
 
 **Quotation of the Day: U.S. Warns of Plan by the Chinese to Collect Genetic Data From Around the World**\
