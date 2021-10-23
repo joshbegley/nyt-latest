@@ -1,5 +1,5 @@
 **Vanessa Bryant, in Deposition, Describes Learning of Deaths of Kobe and Gianna**\
-`Bryant was being questioned by a lawyer defending Los Angeles County in her lawsuit about the sharing of photos of remains from the helicopter crash that killed nine people.`\
+`Bryant was being questioned by a lawyer defending Los Angeles County in her lawsuit about the sharing of photos of human remains from the helicopter crash that killed nine people.`\
 https://nytimes.com/2021/10/23/sports/basketball/vanessa-bryant-helicopter-crash-lawsuit.html?searchResultPosition=1
 
 **Sports Nuts**\
@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/23/crosswords/daily-puzzle-2021-10-24.html?searchRes
 https://nytimes.com/2021/10/23/us/california-atmospheric-river-flooding-mudslides.html?searchResultPosition=3
 
 **Biden delays the release of remaining J.F.K. assassination records, citing the pandemic.**\
-`The National Archives  require additional time to work on redactions, a White House statement on Friday said.`\
+`The National Archives require additional time to work on redactions, a White House statement on Friday said.`\
 https://nytimes.com/2021/10/23/world/americas/jfk-assassination-pandemic.html?searchResultPosition=4
 
 **In India, Facebook Grapples With an Amplified Version of Its Problems**\
