@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/23/world/asia/afghans-returning-home.html?searchResu
 
 **His N.B.A. Dream Was Right There. Then He Couldn’t Move His Legs.**\
 `A mysterious illness on the eve of the 2019 N.B.A. draft derailed Kris Wilkes’s hopes of going pro. As he heals, he’s not giving up hope.`\
-https://nytimes.com/2021/10/23/sports/basketball/his-nba-dream-was-right-there-then-he-couldnt-move-his-legs.html?searchResultPosition=2
+https://nytimes.com/2021/10/23/sports/basketball/kris-wilkes-ucla-nba.html?searchResultPosition=2
 
 **‘Dune’ Owes Its Climate Change Prophecies to Indigenous Tribes**\
 `Native Americans’ warnings of environmental catastrophe inspired the landscape of “Dune.” Now their tribal lands are flooding.`\
