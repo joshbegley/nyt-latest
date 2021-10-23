@@ -14,8 +14,8 @@ https://nytimes.com/2021/10/22/health/cdc-delta-hospitalizations.html?searchResu
 `After the president’s remarks at a CNN event, the White House quickly declared that the American policy of “strategic ambiguity” over the island’s defense had not changed.`\
 https://nytimes.com/2021/10/22/us/politics/biden-taiwan-defense-china.html?searchResultPosition=4
 
-**Pfizer Says Its Vaccine Is Highly Protective in Children 5 to 11**\
-`The findings could add momentum for F.D.A. authorization of the pediatric dose, perhaps next week, a long-awaited development that would affect 28 million children.`\
+**F.D.A. Says Pfizer Vaccine’s Benefits Outweigh Risks in Children 5 to 11**\
+`The findings could add momentum for F.D.A. authorization of the pediatric dose, perhaps as early as next week, a long-awaited development that would affect 28 million children.`\
 https://nytimes.com/2021/10/22/us/pfizer-vaccine-children-5-to-11.html?searchResultPosition=5
 
 **Finding a Path for a Talented but Shaken Franchise**\
