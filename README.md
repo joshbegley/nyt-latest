@@ -28,7 +28,7 @@ https://nytimes.com/2021/10/23/nyregion/eric-adams-mayor-nyc.html?searchResultPo
 
 **She Is Breaking Glass Ceilings in Space, but Facing Sexism on Earth**\
 `Sanitary pads and makeup: A Chinese astronaut’s six-month stay aboard the country’s space station has revealed conflicted cultural values toward gender.`\
-https://nytimes.com/2021/10/23/world/asia/china-space-women.html?searchResultPosition=8
+https://nytimes.com/2021/10/23/world/asia/china-space-women-wang-yaping.html?searchResultPosition=8
 
 **On a Polarizing Team, a Manager Worth Rooting For**\
 `Brought in to clean up someone else’s mess, Dusty Baker is back in the World Series with a chance to redefine his legacy as well as the legacy of the team he inherited.`\
