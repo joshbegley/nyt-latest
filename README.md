@@ -1,6 +1,6 @@
 **Biden delays the release of remaining J.F.K. assassination records, citing the pandemic.**\
 `The National Archives  require additional time to work on redactions, a White House statement on Friday said.`\
-https://nytimes.com/2021/10/23/world/americas/jfk-assassination-records-delayed-pandemic.html?searchResultPosition=1
+https://nytimes.com/2021/10/23/world/americas/jfk-assassination-pandemic.html?searchResultPosition=1
 
 **In India, Facebook Grapples With an Amplified Version of Its Problems**\
 `Internal documents show a struggle with misinformation, hate speech and celebrations of violence in the country, the company’s biggest market.`\
