@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/22/opinion/trump-twitter-media.html?searchResultPosi
 https://nytimes.com/2021/10/22/technology/elizabeth-holmes-trial-takeaways.html?searchResultPosition=6
 
 **Illegal Border Crossings, Driven by Pandemic and Natural Disasters, Soar to Record High**\
-`The 1.7 million migrants encountered in the last 12 months was the highest number of illegal crossings recorded since at least 1960.`\
+`Migrants were encountered 1.7 million times in the last 12 months, the highest number of illegal crossings recorded since at least 1960.`\
 https://nytimes.com/2021/10/22/us/politics/border-crossings-immigration-record-high.html?searchResultPosition=7
 
 **Striving for Authenticity, Films Often Use Real Guns on Set**\
