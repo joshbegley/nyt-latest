@@ -22,7 +22,7 @@ https://nytimes.com/2021/10/23/sports/barcelona-madrid-clasico.html?searchResult
 `Revisiting John Carpenter’s “The Thing.”`\
 https://nytimes.com/2021/10/23/opinion/the-thing-movie-horror.html?searchResultPosition=6
 
-**Queen Elizabeth May Be the Last Global Monarch**\
+**Queen Elizabeth Doesn’t Take Sick Days Lightly**\
 `There’s a reason that, in an era when old age and hereditary privilege are largely out of vogue, Queen Elizabeth is still held in high regard.`\
 https://nytimes.com/2021/10/23/opinion/queen-elizabeth-britain.html?searchResultPosition=7
 
