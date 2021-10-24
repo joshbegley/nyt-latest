@@ -2,7 +2,7 @@
 `The New York City Center festival presented exceptional works by Alexei Ratmansky and Ayodele Casel, including a captivating premiere.`\
 https://nytimes.com/2021/10/24/arts/dance/fall-for-dance.html?searchResultPosition=1
 
-**Ole Gunnar Solskjaer Is Target of Taunts but Not Alone in Blame**\
+**Ole Gunnar Solskjaer Is the Target of Taunts but Not Alone in Blame**\
 `A thrashing by Liverpool showed that problems with Manchester United extend well beyond Solskjaer, the team’s manager.`\
 https://nytimes.com/2021/10/24/sports/soccer/manchester-united-liverpool-score-gunnar.html?searchResultPosition=2
 
