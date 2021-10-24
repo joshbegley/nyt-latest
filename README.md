@@ -1,40 +1,40 @@
-**Long Arm of Russian Law Reaches Obscure Siberian Church**\
-`The arrest of the leader of a small religious group reveals that Russian repression reaches even to the depths of the Siberian forest.`\
-https://nytimes.com/2021/10/24/world/europe/russia-church-repression-siberia.html?searchResultPosition=1
+**A C.I.A. Fighter, a Somali Bomb Maker, and a Faltering Shadow War**\
+`The hunt for an elusive Somali militant illustrates why Al Shabab, despite a decade of American covert action, are at their strongest in years.`\
+https://nytimes.com/2021/10/24/world/africa/al-shabab-somalia-us-cia.html?searchResultPosition=1
 
-**‘Sitting Across From Me Was a Man Eating Sardines From a Can’**\
-`A snack on a downtown bus, a solo trip to Manhattan and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2021/10/24/nyregion/metropolitan-diary.html?searchResultPosition=2
+**Remove a Confederate Statue? A Tennessee City Did This Instead.**\
+`Some residents want the monument removed. In the meantime, Franklin, Tenn., erected a statue of a U.S. Colored Troops soldier, broadening the way the community memorializes the Civil War.`\
+https://nytimes.com/2021/10/24/us/remove-a-confederate-statue-a-tennessee-city-did-this-instead.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/24/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Where Facts Were No Match for Fear**\
+`Civic boosters in central Montana hoped for some federal money to promote tourism. A disinformation campaign got in the way.`\
+https://nytimes.com/2021/10/24/us/politics/montana-misinformation-national-heritage.html?searchResultPosition=3
 
-**Jason Sudeikis Returns to Play Joe Biden on ‘Saturday Night Live’**\
-`Sudeikis, the “Ted Lasso” star and “S.N.L.” alum, revisited some of the characters and sketch formats he popularized as a cast member on the show.`\
-https://nytimes.com/2021/10/24/arts/television/snl-jason-sudeikis.html?searchResultPosition=4
+**Victims of Charlottesville Rally Argue the Violence Was Planned**\
+`The civil trial that starts Monday will examine whether the far-right organizers had plotted to foment violence. They have countered that bloodshed stemmed from self-defense.`\
+https://nytimes.com/2021/10/24/us/charlottesville-rally-trial.html?searchResultPosition=4
 
-**Please Don’t Feed the Whale Sharks? Fishing Town Says It Must, to Prosper.**\
-`The chance to swim with the world’s biggest fish led to a tourism boom in a Philippines town, but conservation groups decry the hand-feeding that keeps the gentle giants around.`\
-https://nytimes.com/2021/10/24/world/asia/philippines-whale-shark-tourism.html?searchResultPosition=5
+**Heavy Is the Burden on Japan’s Royal Women**\
+`A princess who will soon marry represents the third generation to suffer intense emotional distress in a country that often consigns women to rigid roles.`\
+https://nytimes.com/2021/10/24/world/asia/japans-princess-mako-wedding.html?searchResultPosition=5
 
-**L.S.U., Led by Exiting Orgeron, Tumbling Out of SEC Prominence**\
-`A blowout loss to Mississippi showed a stark difference for a program that had won a national championship two seasons ago.`\
-https://nytimes.com/2021/10/24/sports/ncaafootball/lsu-mississippi-orgeron.html?searchResultPosition=6
+**A World-Class World Expo**\
+`The event in Dubai dazzles with extraordinary architectural achievements and a focus on the future of the planet.`\
+https://nytimes.com/2021/10/24/world/world-expo-dubai.html?searchResultPosition=6
 
-**As Hong Kong’s Civil Society Buckles, One Group Tries to Hold On**\
-`Unions and other organizations have dissolved after facing pressure under a new security law. The Hong Kong Journalists Association is hoping it can avoid that fate.`\
-https://nytimes.com/2021/10/24/world/asia/hong-kong-civil-society.html?searchResultPosition=7
+**At the World Expo Pavilions, Future Visions Combine Past and Present**\
+`Conversations with three figures integral to the conception of the expo.`\
+https://nytimes.com/2021/10/24/world/world-expo-pavilions.html?searchResultPosition=7
 
-**Atlanta Topples Dodgers to Reach First World Series Since 1999**\
-`In third place on Aug. 13, Atlanta rode a surprising group of trade deadline acquisitions to a pennant, outlasting the 106-win Dodgers. Next up: the Houston Astros.`\
-https://nytimes.com/2021/10/23/sports/baseball/atlanta-braves-world-series.html?searchResultPosition=8
+**Their Jobs Made Them Get Vaccinated. They Refused.**\
+`The willingness of some workers to give up their livelihoods helps explain the country’s struggle to reach herd immunity.`\
+https://nytimes.com/2021/10/24/nyregion/new-york-workers-refuse-vaccine.html?searchResultPosition=8
 
-**Quotation of the Day: She’s a Pioneer In Space. China Sent Cosmetics.**\
-`Quotation of the Day for Sunday, October 24, 2021.`\
-https://nytimes.com/2021/10/23/todayspaper/quotation-of-the-day-shes-a-pioneer-in-space-china-sent-cosmetics.html?searchResultPosition=9
+**I Was Hacked. The Spyware Used Against Me Makes Us All Vulnerable.**\
+`Invasive hacking software sold to countries to fight terrorism is easily abused. Researchers say my phone was hacked twice, probably by Saudi Arabia.`\
+https://nytimes.com/2021/10/24/insider/hacking-nso-surveillance.html?searchResultPosition=9
 
-**Corrections: Oct. 24, 2021**\
-`Corrections that appeared in print on Sunday, Oct. 24, 2021.`\
-https://nytimes.com/2021/10/23/pageoneplus/corrections-oct-24-2021.html?searchResultPosition=10
+**A Rare Win in the Cat-and-Mouse Game of Ransomware**\
+`A team of private security sleuths, in their first public detailing of their efforts, discuss how they used cybercriminals’ mistakes to quietly help victims recover their data.`\
+https://nytimes.com/2021/10/24/technology/ransomware-emsisoft-blackmatter.html?searchResultPosition=10
 
