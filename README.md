@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/24/sports/los-angeles-marathon-students-academics.ht
 
 **Kenyan Olympian’s Killing Exposes Surge of Violence Against Women**\
 `Agnes Jebet Tirop, 25, a rising running star, was stabbed to death in her home this month. Her husband has been arrested.`\
-https://nytimes.com/2021/10/24/world/africa/kenyan-olympians-killing-exposes-surge-of-violence-against-women.html?searchResultPosition=2
+https://nytimes.com/2021/10/24/world/africa/agnes-jebet-tirop-stabbing-arrest.html?searchResultPosition=2
 
 **Vigil Held for Cinematographer Fatally Shot on Alec Baldwin Set**\
 `Mourners gathered in Albuquerque to remember the cinematographer Halyna Hutchins. Ms. Hutchins was fatally shot by Alec Baldwin on a New Mexico film set when the actor fired a prop gun he was told was unloaded.`\
