@@ -19,7 +19,7 @@ https://nytimes.com/2021/10/24/technology/amazon-employee-leave-errors.html?sear
 https://nytimes.com/2021/10/24/us/politics/biden-democrats-social-policy-bill.html?searchResultPosition=5
 
 **Streets Flood as 2 Storms Converge in Northern California**\
-`Heavy rains caused flooding and landslides in parts of the Bay Area on Sunday as a “bomb cyclone” and an “atmospheric river” pummeled the region.`\
+`Heavy rains caused flooding and landslides in parts of the Bay Area and parts of Northern California on Sunday as a “bomb cyclone” and an “atmospheric river” pummeled the region.`\
 https://nytimes.com/video/us/politics/100000008041183/california-bomb-cyclone-atmospheric-river-flooding-rain.html?searchResultPosition=6
 
 **Daniel Jones Lifts Giants; Jets Hit a Familiar Low**\
