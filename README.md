@@ -26,7 +26,7 @@ https://nytimes.com/2021/10/24/us/garbage-delays-labor-jacksonville-florida.html
 `It’s wonderful to be alive during this time. But it’s worth remembering what it was like before, how it still is in much of the world.`\
 https://nytimes.com/2021/10/24/opinion/sexuality-gender.html?searchResultPosition=7
 
-**Why My Hospital Bills Were Lower in Maryland**\
+**A $1,775 Doctor’s Visit Cost About $350 in Maryland. Here’s Why.**\
 `The state’s unique health system controls what hospitals can charge for services.`\
 https://nytimes.com/2021/10/24/opinion/maryland-medical-bills-lower.html?searchResultPosition=8
 
