@@ -27,7 +27,7 @@ https://nytimes.com/2021/10/24/arts/music/jay-black-dead.html?searchResultPositi
 https://nytimes.com/2021/10/24/opinion/letters/women-playwrights.html?searchResultPosition=7
 
 **We Need to Talk How Americans Can Learn to Live Together Again**\
-`Why chatting with your barista could help save America`\
+`Why chatting with your barista could help save America.`\
 https://nytimes.com/2021/10/24/opinion/small-talk-polarization.html?searchResultPosition=8
 
 **What Jefferson’s Statue Meant to the Jewish Naval Hero Who Donated It**\
