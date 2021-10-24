@@ -14,13 +14,13 @@ https://nytimes.com/2021/10/24/briefing/booster-shots-alec-baldwin-mlb-playoffs.
 `The hunt for an elusive Somali militant illustrates why Al Shabab, despite a decade of American covert action, are at their strongest in years.`\
 https://nytimes.com/2021/10/24/world/africa/al-shabab-somalia-us-cia.html?searchResultPosition=4
 
-**Remove a Confederate Statue? A Tennessee City Did This Instead.**\
-`Some residents want the monument removed. In the meantime, Franklin, Tenn., erected a statue of a U.S. Colored Troops soldier, broadening the way the community memorializes the Civil War.`\
-https://nytimes.com/2021/10/24/us/remove-a-confederate-statue-a-tennessee-city-did-this-instead.html?searchResultPosition=5
-
 **Where Facts Were No Match for Fear**\
 `Civic boosters in central Montana hoped for some federal money to promote tourism. A disinformation campaign got in the way.`\
-https://nytimes.com/2021/10/24/us/politics/montana-misinformation-national-heritage.html?searchResultPosition=6
+https://nytimes.com/2021/10/24/us/politics/montana-misinformation-national-heritage.html?searchResultPosition=5
+
+**Remove a Confederate Statue? A Tennessee City Did This Instead.**\
+`Some residents want the monument removed. In the meantime, Franklin, Tenn., erected a statue of a U.S. Colored Troops soldier, broadening the way the community memorializes the Civil War.`\
+https://nytimes.com/2021/10/24/us/remove-a-confederate-statue-a-tennessee-city-did-this-instead.html?searchResultPosition=6
 
 **Victims of Charlottesville Rally Argue the Violence Was Planned**\
 `The civil trial that starts Monday will examine whether the far-right organizers had plotted to foment violence. They have countered that bloodshed stemmed from self-defense.`\
