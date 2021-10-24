@@ -26,7 +26,7 @@ https://nytimes.com/2021/10/24/arts/music/jay-black-dead.html?searchResultPositi
 `Women who write plays; Covid and the theater; attacks on health workers; why books are delayed.`\
 https://nytimes.com/2021/10/24/opinion/letters/women-playwrights.html?searchResultPosition=7
 
-**We Need to Talk About the Weather**\
+**We Need to Talk How Americans Can Learn to Live Together Again**\
 `Why chatting with your barista could help save America`\
 https://nytimes.com/2021/10/24/opinion/small-talk-polarization.html?searchResultPosition=8
 
