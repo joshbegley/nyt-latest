@@ -1,4 +1,4 @@
-**Please Don’t Feed the Whale Sharks? Fishing Town Says It Must, to Prosper**\
+**Please Don’t Feed the Whale Sharks? Fishing Town Says It Must, to Prosper.**\
 `The chance to swim with the world’s biggest fish led to a tourism boom in a Philippines town, but conservation groups decry the hand-feeding that keeps the gentle giants around.`\
 https://nytimes.com/2021/10/24/world/asia/philippines-whale-shark-tourism.html?searchResultPosition=1
 
