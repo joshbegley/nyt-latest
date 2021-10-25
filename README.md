@@ -6,8 +6,8 @@ https://nytimes.com/2021/10/25/arts/television/whats-on-tv-this-week-great-perfo
 `The Giants quarterback was applauded for his toughness after making a rare reception. But considering Jones’s recent head injury, our columnist asks why the play was even called.`\
 https://nytimes.com/2021/10/25/sports/football/daniel-jones-one-handed-catch.html?searchResultPosition=2
 
-**Sudan Rocked by Protests Amid Warnings of a Coup**\
-`Demonstrators burned tires and chanted slogans in the capital, Khartoum, and there was a “significant disruption” to the internet.`\
+**Top Sudanese Officials Detained by Military Amid Warnings of a Coup**\
+`Demonstrators filled the streets, burning tires and chanting slogans in the capital, Khartoum, and there was a “significant disruption” to the internet.`\
 https://nytimes.com/2021/10/25/world/africa/sudan-protests.html?searchResultPosition=3
 
 **Baseball, Popular but No Longer Dominant, Seeks to Reclaim Its Cool**\
