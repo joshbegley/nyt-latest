@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/24/business/media/facebook-leak-frances-haugen.html?
 https://nytimes.com/2021/10/24/theater/review-fairycakes-douglas-carter-beane.html?searchResultPosition=2
 
 **What We Learned From Week 7 in the N.F.L.**\
-`King Henry’s court helped Tennessee take down Kansas City and middling quarterback plans caught up to Denver and Washington.`\
+`King Henry’s court helped Tennessee take down Kansas City, Chicago’s aimlessness was on display again, and middling quarterback plans caught up to Denver and Washington.`\
 https://nytimes.com/2021/10/24/sports/football/nfl-week-7-scores.html?searchResultPosition=3
 
 **In the World Series, Hank Aaron’s Protégé Faces His Former Team**\
