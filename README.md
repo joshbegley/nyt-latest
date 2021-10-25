@@ -2,7 +2,7 @@
 `Creating temporary government programs could have big political benefits for Democrats.`\
 https://nytimes.com/2021/10/25/briefing/biden-congress-democrats-spending-bill.html?searchResultPosition=1
 
-**Frances Haugen, Facebook whistle-blower, to testify in Parliament Monday**\
+**Frances Haugen, the Facebook whistle-blower, to testify in Parliament.**\
 `Beginning a European tour, the former Facebook manager will be questioned by policymakers planning tougher tech regulations.`\
 https://nytimes.com/2021/10/25/business/frances-haugen-facebook.html?searchResultPosition=2
 
