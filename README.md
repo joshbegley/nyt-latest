@@ -1,6 +1,6 @@
 **PayPal says it isn’t interested in pursuing Pinterest.**\
 `The payments firm squelched talk that it was seeking the social media platform “at this time.” A deal might have been worth about $45 billion.`\
-https://nytimes.com/2021/10/25/business/paypal-says-it-isnt-interested-in-pursuing-pinterest.html?searchResultPosition=1
+https://nytimes.com/2021/10/25/business/paypal-pinterest.html?searchResultPosition=1
 
 **With New Conviction, Hong Kong Uses Security Law to Clamp Down on Speech**\
 `An activist, Ma Chun-man, was convicted of inciting secession after, he said, he chanted slogans to test the limits of the law.`\
