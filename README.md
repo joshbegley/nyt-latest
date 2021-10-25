@@ -8,7 +8,7 @@ https://nytimes.com/2021/10/25/world/europe/eric-zemmour-france-jewish.html?sear
 
 **Fired After Endorsing Vaccines, Evangelical Insider Takes a Leadership Role**\
 `Daniel Darling was at the center of a media storm over the summer. He hopes to lead a more civil discussion at Southwestern Baptist Theological Seminary in Texas.`\
-https://nytimes.com/2021/10/25/us/fired-after-endorsing-vaccines-evangelical-insider-takes-a-leadership-role.html?searchResultPosition=3
+https://nytimes.com/2021/10/25/us/vaccine-fired-church.html?searchResultPosition=3
 
 **Google Pixel 6 Review: Playing Catch-Up With the iPhone**\
 `With long battery life and nice cameras, the new Google devices excel at what popular phones have done for years. Is that enough?`\
