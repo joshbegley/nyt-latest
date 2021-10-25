@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/25/us/politics/bidens-visit-to-new-jersey-highlights-an-ongoing-debate-over-salt.html?searchResultPosition=1
 
 **Protesters Defy Military Coup in Sudan**\
-`Pro-democracy protesters filled the streets of the capital, Khartoum, after the military detained the prime minister, suspended the government and declared a state of emergency in an apparent coup.`\
+`Pro-democracy protesters filled the streets of the capital, Khartoum, after the military detained the prime minister, suspended the government and declared a state of emergency in an apparent coup. At least two protesters were killed.`\
 https://nytimes.com/video/world/africa/100000008041814/sudan-protests-military-coup-khartoum.html?searchResultPosition=2
 
 **An Ice-Cream Parlor Where Time Stands Still**\
