@@ -1,4 +1,4 @@
-**Turkish President Steps Back from Expulsions of 10 Western Diplomats**\
+**Turkish President Steps Back From Expulsions of 10 Western Diplomats**\
 `The threatened expulsions had risked severe economic consequences and a rupture in the North Atlantic Treaty Organization.`\
 https://nytimes.com/2021/10/25/world/europe/erdogan-turkey-ambassador.html?searchResultPosition=1
 
