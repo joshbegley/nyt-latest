@@ -6,7 +6,7 @@ https://nytimes.com/paidpost/taiwanexcellence/welcome-to-taiwan-silicon-island.h
 `Discover the innovation that's helping spread cycling culture across the globe.`\
 https://nytimes.com/paidpost/taiwanexcellence/how-taiwan-became-a-global-leader-in-premium-bicycles.html?searchResultPosition=2
 
-**The Facebook Papers and Their Fallout**\
+**The Facebook Papers and their fallout.**\
 `A look at a month of scrutiny and struggles for the social-networking giant.`\
 https://nytimes.com/2021/10/25/business/facebook-papers-takeaways.html?searchResultPosition=3
 
@@ -22,7 +22,7 @@ https://nytimes.com/2021/10/25/technology/facebook-like-share-buttons.html?searc
 `Creating temporary government programs could have big political benefits for Democrats.`\
 https://nytimes.com/2021/10/25/briefing/biden-congress-democrats-spending-bill.html?searchResultPosition=6
 
-**Frances Haugen, the Facebook whistle-blower, to testify in Parliament.**\
+**Frances Haugen, the Facebook whistle-blower, will testify in Parliament.**\
 `Beginning a European tour, the former Facebook manager will be questioned by policymakers planning tougher tech regulations.`\
 https://nytimes.com/2021/10/25/business/frances-haugen-facebook.html?searchResultPosition=7
 
