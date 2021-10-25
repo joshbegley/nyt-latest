@@ -1,40 +1,40 @@
-**PayPal says it isn’t interested in pursuing Pinterest.**\
-`The payments firm squelched talk that it was seeking the social media platform “at this time.” A deal might have been worth about $45 billion.`\
-https://nytimes.com/2021/10/25/business/paypal-pinterest.html?searchResultPosition=1
+**Whose Promised Land?A Journey Into a Divided Israel**\
+`Two Times journalists drive the length of Israel to discover what it means to be Israeli today. They meet a kaleidoscope of people, searching for belonging but far apart on how to find it.`\
+https://nytimes.com/2021/10/25/world/middleeast/israel-jews-palestinians-journey.html?searchResultPosition=1
 
-**With New Conviction, Hong Kong Uses Security Law to Clamp Down on Speech**\
-`An activist, Ma Chun-man, was convicted of inciting secession after, he said, he chanted slogans to test the limits of the law.`\
-https://nytimes.com/2021/10/25/world/asia/hong-kong-security-law-speech.html?searchResultPosition=2
+**A 100-Year-Old Priest Was Nudged From His Parish. He Has No Plan to Retire.**\
+`The Rev. Luis Urriza arrived in Beaumont, Texas, nearly 70 years ago and founded the thriving Cristo Rey parish. His religious order has now called him back to Spain.`\
+https://nytimes.com/2021/10/25/us/luis-urriza-priest-texas.html?searchResultPosition=2
 
-**Learning About Latin American and Hispanic Culture and History Through Music**\
-`In these three short lesson plans based on Times resources, students explore the history of reggaeton, the legacy of the Tejano star Selena and the diversity of Cuba’s music.`\
-https://nytimes.com/2021/10/25/learning/lesson-plans/learning-about-latin-american-and-hispanic-culture-and-history-through-music.html?searchResultPosition=3
+**I’m Not a Pilot, but I Just Flew a Helicopter Over California**\
+`New technology, a few iPads and a quick tutorial can help anyone act like a pilot. Dealing with air traffic control is another matter.`\
+https://nytimes.com/2021/10/25/technology/automated-flight-helicopter-skyryse.html?searchResultPosition=3
 
-**The American envoy to Sudan was there on Saturday as protests gained traction.**\
-`By Austin Ramzy`\
-https://nytimes.com/2021/10/25/world/africa/the-american-envoy-to-sudan-was-there-on-saturday-as-protests-gained-traction.html?searchResultPosition=4
+**Are Vaccine Boosters Widely Needed? Some Federal Advisers Have Misgivings**\
+`“In our hearts, I think people don’t quite agree with this notion of a booster dose,” said one leading vaccine expert.`\
+https://nytimes.com/2021/10/25/health/covid-boosters-cdc-fda.html?searchResultPosition=4
 
-**Officers to Testify About Eric Garner’s Death in Long-Delayed Inquiry**\
-`“What really happened on that day?” Gwen Carr, Eric Garner’s mother, asked about her son’s death on Staten Island seven years ago.`\
-https://nytimes.com/2021/10/25/nyregion/eric-garner-death-inquiry.html?searchResultPosition=5
+**Democrats Are on the Verge of … Something**\
+`The politics of compromise are all happening on one side of the aisle. `\
+https://nytimes.com/2021/10/25/opinion/biden-manchin-sinema-roe.html?searchResultPosition=5
 
-**Russia Challenges Biden Again With Broad Cybersurveillance Operation**\
-`The new campaign came only months after President Biden imposed sanctions on Moscow in response to a series of spy operations it had conducted around the world.`\
-https://nytimes.com/2021/10/25/us/politics/russia-cybersurveillance-biden.html?searchResultPosition=6
+**Inside the Thai Temple Where Tattoos Come to Life**\
+`Wat Bang Phra, a temple in central Thailand, is renowned as a center for sak yant, a style of tattoo art believed by some to convey protective powers.`\
+https://nytimes.com/2021/10/25/travel/sak-yant-tattoo-thailand.html?searchResultPosition=6
 
-**Why Amazon Is in Business With Judge Judy**\
-`The company hopes a new court show starring the straight-talking judge will help turbocharge its free, ad-supported streaming platform, IMDb TV.`\
-https://nytimes.com/2021/10/25/business/amazon-imdbtv-judge-judy.html?searchResultPosition=7
+**The World ‘Has Found a Way to Do This’: The U.S. Lags on Paid Leave**\
+`The U.S. is one of six countries with no national paid leave. The Democrats have cut their plan to four weeks, which would still make it an outlier.`\
+https://nytimes.com/2021/10/25/upshot/paid-leave-democrats.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/25/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**‘There’s Almost No Incentive at All to Give Him the Vaccine.’**\
+`A “moral calm” is holding parents back from vaccinating their kids.`\
+https://nytimes.com/2021/10/25/opinion/covid-vaccine-kids-parents.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘Great Performances’ and ‘In the Heights’**\
-`PBS’s “Great Performances” debuts a Halloween-themed episode. And “In the Heights” airs on HBO.`\
-https://nytimes.com/2021/10/25/arts/television/whats-on-tv-this-week-great-performances-and-in-the-heights.html?searchResultPosition=9
+**Read It and Scream**\
+`Here are eight knuckle-biting, nerve-ripping new tales, just in time for Halloween.`\
+https://nytimes.com/2021/10/25/books/new-horror-books.html?searchResultPosition=9
 
-**Daniel Jones’s Big Play Shows the Giants’ Bullheaded Approach**\
-`The Giants quarterback was applauded for his toughness after making a rare reception. But considering Jones’s recent head injury, our columnist asks why the play was even called.`\
-https://nytimes.com/2021/10/25/sports/football/daniel-jones-one-handed-catch.html?searchResultPosition=10
+**A Surprise for Two ‘Creatives’: An Artists’ Loft in the East Village**\
+`Amanda Paulsen and Peter Zusman found a 1,000-square-foot space on Avenue C for $3,200 a month — with a basement and a backyard.`\
+https://nytimes.com/2021/10/25/realestate/renters-east-village.html?searchResultPosition=10
 
