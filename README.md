@@ -1,5 +1,5 @@
 **Inside the Big Facebook Leak**\
-`In a time of mega-leaks, journalists’ sources have become power players. Frances Haugen, the former Facebook executive who shared company documents, led a meticulous media rollout.`\
+`In a time of mega-leaks, journalists’ sources have become power players. Frances Haugen, the former Facebook product manager who shared company documents, led a meticulous media rollout.`\
 https://nytimes.com/2021/10/24/business/media/facebook-leak-frances-haugen.html?searchResultPosition=1
 
 **Review: In ‘Fairycakes,’ the Woods Are Campy, Dark and Daft**\
