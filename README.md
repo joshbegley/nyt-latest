@@ -3,7 +3,7 @@
 https://nytimes.com/2021/10/24/learning/word-of-the-day-hasten.html?searchResultPosition=1
 
 **Alec Baldwin Was Rehearsing Pointing Gun at Camera, Affidavit Says**\
-`The film’s director gave the most detailed account yet of how Alec Baldwin fatally shot the cinematographer of “Rust” to a detective who included it in an application for a search warrant.`\
+`The film’s director gave authorities the most detailed account yet of how the actor fatally shot the cinematographer of “Rust.”`\
 https://nytimes.com/2021/10/24/arts/baldwin-shooting-details.html?searchResultPosition=2
 
 **Your Monday Briefing**\
