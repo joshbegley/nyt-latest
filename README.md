@@ -16,7 +16,7 @@ https://nytimes.com/2021/10/25/well/live/adult-acne.html?searchResultPosition=4
 
 **A Jewish Far-Right Pundit Splits the French Jewish Community as He Rises**\
 `Éric Zemmour, eyeing the presidency, tries to rehabilitate the wartime Vichy regime that collaborated with the Nazis as part of a campaign filled with provocations.`\
-https://nytimes.com/2021/10/25/world/europe/eric-zemmour-france-jewish.html?searchResultPosition=5
+https://nytimes.com/2021/10/25/world/europe/eric-zemmour-france-jewish-bernard-henri-levy.html?searchResultPosition=5
 
 **Fired After Endorsing Vaccines, Evangelical Insider Takes a Leadership Role**\
 `Daniel Darling was at the center of a media storm over the summer. He hopes to lead a more civil discussion at Southwestern Baptist Theological Seminary in Texas.`\
