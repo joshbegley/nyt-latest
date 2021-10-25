@@ -12,7 +12,7 @@ https://nytimes.com/2021/10/25/technology/personaltech/google-pixel-6-review.htm
 
 **Biden’s visit to New Jersey highlights an ongoing debate over SALT.**\
 `The SALT limit helped Democrats capture some House seats previously held by Republicans in New Jersey, California and elsewhere. Many of those representatives are pushing to lift the cap now.`\
-https://nytimes.com/2021/10/25/us/politics/bidens-visit-to-new-jersey-highlights-an-ongoing-debate-over-salt.html?searchResultPosition=4
+https://nytimes.com/2021/10/25/us/politics/bidens-new-jersey-highlights-salt.html?searchResultPosition=4
 
 **Protesters Defy Military Coup in Sudan**\
 `Pro-democracy protesters filled the streets of the capital, Khartoum, after the military detained the prime minister, suspended the government and declared a state of emergency in an apparent coup. At least two protesters were killed.`\
