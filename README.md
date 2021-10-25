@@ -1,6 +1,6 @@
 **Sudan Rocked by Protests Amid Warnings of a Coup**\
 `Demonstrators burned tires and chanted slogans in the capital, Khartoum, and there was a “significant disruption” to the internet.`\
-https://nytimes.com/2021/10/25/world/africa/sudan-protests.html?searchResultPosition=1
+https://nytimes.com/live/2021/10/25/world/sudan-protests/sudan-protests?searchResultPosition=1
 
 **Baseball, Popular but No Longer Dominant, Seeks to Reclaim Its Cool**\
 `Facing a loss of cultural cachet, Major League Baseball is working to build a more diverse audience and exploring ways to liven up the game.`\
