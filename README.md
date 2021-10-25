@@ -34,7 +34,7 @@ https://nytimes.com/paidpost/taiwanexcellence/how-taiwan-became-a-global-leader-
 `A look at a month of scrutiny and struggles for the social-networking giant.`\
 https://nytimes.com/2021/10/25/business/facebook-papers-takeaways.html?searchResultPosition=9
 
-**Tensions between Sudan’s military and politicians grew in the last few months.**\
+**Tensions between Sudan’s military and politicians grew in the past few months.**\
 `Civilians were set to rule the country for the first time in more than three decades. But the military was concerned about losing power.`\
 https://nytimes.com/2021/10/25/world/africa/sudan-military-coup-civilian.html?searchResultPosition=10
 
