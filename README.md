@@ -1,5 +1,5 @@
 **Frances Haugen, Facebook whistle-blower, to testify in Parliament Monday**\
-`British policymakers will hear testimony on Monday from the former Facebook manager who became a whistle-blower and has shared scores of internal documents with policymakers and journalists to help build a case for stiffer oversight of the social media giant.`\
+`Beginning a European tour, the former Facebook manager will be questioned by policymakers planning tougher tech regulations.`\
 https://nytimes.com/2021/10/25/business/frances-haugen-facebook.html?searchResultPosition=1
 
 **A Threat to China’s Economy**\
