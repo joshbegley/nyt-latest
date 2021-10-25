@@ -26,15 +26,15 @@ https://nytimes.com/2021/10/25/technology/amazon-staten-island-jfk-union.html?se
 `During testimony before the British Parliament, Frances Haugen, the former Facebook product manager-turned-whistle-blower, said that the tech company was aware of its harmful effects on society but was unwilling to act.`\
 https://nytimes.com/video/technology/100000008042835/facebook-whistleblower-frances-haugen-uk-parliament.html?searchResultPosition=7
 
+**Tesla shares surpass $1 trillion in value.**\
+`The electric-car maker’s latest surge came after a deal to supply vehicles to Hertz. Its stock has risen more than tenfold since March 2020.`\
+https://nytimes.com/live/2021/10/25/business/news-business-stock-market/tesla-trillion-stock-price?searchResultPosition=8
+
 **The U.S. cut off aid to the Sudanese government after the coup.**\
 `The Biden administration, calling for immediate restoration of the transition government, froze $700 million in direct aid.`\
-https://nytimes.com/2021/10/25/world/africa/us-aid-frozen-sudan.html?searchResultPosition=8
+https://nytimes.com/2021/10/25/world/africa/us-aid-frozen-sudan.html?searchResultPosition=9
 
 **A BRIC in Flux Turns Out an Intimate, Focused JazzFest**\
 `Though it was operating on fewer cylinders because of the pandemic, for the first time in its seven-year history the event sold out all three nights of music in Brooklyn.`\
-https://nytimes.com/2021/10/25/arts/music/bric-jazzfest.html?searchResultPosition=9
-
-**Alec Baldwin and the Gun Tragedy**\
-`Readers discuss the fatal shooting on a movie set. Also: How disabled people should be treated; exhaustion after Trump.`\
-https://nytimes.com/2021/10/25/opinion/letters/alec-baldwin-gun-tragedy.html?searchResultPosition=10
+https://nytimes.com/2021/10/25/arts/music/bric-jazzfest.html?searchResultPosition=10
 
