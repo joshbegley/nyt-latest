@@ -20,7 +20,7 @@ https://nytimes.com/2021/10/24/technology/amazon-employee-leave-errors.html?sear
 
 **Biden Meets With Manchin and Schumer as Democrats Race to Finish Social Policy Bill**\
 `Speaker Nancy Pelosi said she hoped to pass an infrastructure bill and have a deal in hand on the social policy bill by the end of the week.`\
-https://nytimes.com/2021/10/24/us/politics/biden-democrats-social-policy-bill.html?searchResultPosition=6
+https://nytimes.com/2021/10/24/us/politics/biden-manchin-schumer-spending-bill.html?searchResultPosition=6
 
 **Streets Flood as 2 Storms Converge in Northern California**\
 `Heavy rains caused flooding and landslides in parts of the Bay Area and parts of Northern California on Sunday as a “bomb cyclone” and an “atmospheric river” pummeled the region.`\
