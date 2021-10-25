@@ -15,7 +15,7 @@ https://nytimes.com/2021/10/25/sports/muhammad-ali-documentaries.html?searchResu
 https://nytimes.com/2021/10/24/learning/word-of-the-day-hasten.html?searchResultPosition=4
 
 **Alec Baldwin Was Rehearsing Pointing Gun at Camera, Affidavit Says**\
-`The film’s director gave authorities the most detailed account yet of how the actor fatally shot the cinematographer of “Rust.”`\
+`The  director of “Rust” gave the authorities the most detailed account yet of how the actor fatally shot the film’s cinematographer.`\
 https://nytimes.com/2021/10/24/arts/baldwin-shooting-details.html?searchResultPosition=5
 
 **Your Monday Briefing**\
