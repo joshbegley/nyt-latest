@@ -1,6 +1,6 @@
 **Mary Lattimore: Has Harp, Must Travel**\
 `As a child, she learned she could play her instrument almost anywhere. As an adult, her bittersweet music depends on doing exactly that.`\
-https://nytimes.com/2021/10/26/arts/music/mary-lattimore-has-harp-must-travel.html?searchResultPosition=1
+https://nytimes.com/2021/10/26/arts/music/mary-lattimore-harp-collected-pieces-ii.html?searchResultPosition=1
 
 **Authorities on 3 Continents Crack Down on Dark Web Drug Sales**\
 `The Justice Department said the global operation led to the arrests of over 150 people and the seizure of large quantities of opioids and other drugs.`\
