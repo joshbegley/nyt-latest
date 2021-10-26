@@ -11,7 +11,7 @@ https://nytimes.com/video/world/canada/100000008045227/trudeau-prime-minister-pa
 https://nytimes.com/2021/10/26/nyregion/sliwa-eric-adams-vaccine-mandate.html?searchResultPosition=3
 
 **Biden and Mother Nature Have Reshaped the Middle East**\
-`We are at the dawn of a paradigm shift from resistance to resilience.`\
+`We are at the start of a paradigm shift from resistance to resilience.`\
 https://nytimes.com/2021/10/26/opinion/middle-east-climate-change.html?searchResultPosition=4
 
 **America’s Crumbling Global Position**\
