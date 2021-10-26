@@ -26,8 +26,8 @@ https://nytimes.com/2021/10/25/world/middleeast/eitan-biran-israel-court.html?se
 `Negotiators were closing in on a deal that could spend around $1.75 trillion, but lawmakers were still haggling over critical disagreements on the sprawling social policy bill.`\
 https://nytimes.com/2021/10/25/us/politics/biden-democrats-reconciliation-bill.html?searchResultPosition=7
 
-**Shooting at Boise Mall Leaves 2 Dead and 4 Injured**\
-`A police officer was among those injured after officers responded to reports of a shooting at Boise Towne Square in Idaho.`\
+**Shooting at Boise Mall Leaves 2 Dead and 5 Injured, Including Suspect**\
+`A police officer was among those injured at Boise Towne Square in Idaho, and a suspect was critically injured in a shootout with the police.`\
 https://nytimes.com/2021/10/25/us/boise-mall-shooting.html?searchResultPosition=8
 
 **A Tale of Two Infields Pits Strength Against Strength**\
