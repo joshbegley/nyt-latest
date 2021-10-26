@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Keeping New York’s Delivery Bicyclists Safe’**\
-`In this lesson, students will learn about how food delivery workers are organizing to protect one another from the challenges they face on the job.`\
-https://nytimes.com/2021/10/26/learning/lesson-plans/lesson-of-the-day-keeping-new-yorks-delivery-bicyclists-safe.html?searchResultPosition=1
+**Build Back Better Has Some Fans in Manchin’s Backyard**\
+`Why the Build Back Better plan has backers in coal country.`\
+https://nytimes.com/2021/10/26/opinion/manchin-appalachia-coal-infrastructure.html?searchResultPosition=1
 
-**How to Map a Fly Brain in 20 Million Easy Steps**\
-`An enormous new analysis of the wiring of the fruit fly brain is a milestone for the young field of modern connectomics, scientists say.`\
-https://nytimes.com/2021/10/26/science/drosophila-fly-brain-connectome.html?searchResultPosition=2
+**When ‘Boo!’ Is Only the Beginning**\
+`What does it take to scare the candy corn out of someone? Performers at two of New York’s hallowed haunted attractions explain the secrets behind the shocks.`\
+https://nytimes.com/2021/10/26/arts/haunted-house-actors-halloween.html?searchResultPosition=2
 
-**Facebook Faces a Public Relations Crisis. What About a Legal One?**\
-`One of the most pressing questions is whether the Securities and Exchange Commission will significantly add to the company’s woes.`\
-https://nytimes.com/2021/10/26/technology/facebook-sec-complaints.html?searchResultPosition=3
+**The Artistic Director of the Irish Rep on Art Directing an Apartment**\
+`When Charlotte Moore moved into John McMartin’s Upper West Side co-op, it was ‘not pretty.’ Nearly five decades later, that’s been fixed.`\
+https://nytimes.com/2021/10/26/realestate/apartment-decorating-charlotte-moore.html?searchResultPosition=3
 
-**As Gangs’ Power Grows, Haiti’s Police Are Outgunned and Underpaid**\
-`The police force, dependent on an increasingly depleted state, is finding itself underfunded, underequipped and severely underpaid, even as it faces stronger opponents.`\
-https://nytimes.com/2021/10/26/world/americas/haiti-police-gangs.html?searchResultPosition=4
+**Charlotte Moore’s ‘Pretty Place’ on the Upper West Side**\
+`When Ms. Moore, the artistic director of the Irish Rep, moved into John McMartin’s co-op, it was needed some art directing. She took care of that.`\
+https://nytimes.com/slideshow/2021/10/26/realestate/charlotte-moores-pretty-place-on-the-upper-west-side.html?searchResultPosition=4
 
-**Republican Candidate for Manhattan D.A. Sees a City on the Brink**\
-`Thomas Kenniff, who is facing Alvin Bragg in the Nov. 2 election, has focused his campaign on a recent increase in some types of crime.`\
-https://nytimes.com/2021/10/26/nyregion/thomas-kenniff-manhattan-da.html?searchResultPosition=5
+**These Children Were Beaten to Death. Could They Have Been Saved?**\
+`After a series of homicides involving children, New York City said it would make changes to improve coordination between the police and the child welfare agency.`\
+https://nytimes.com/2021/10/26/nyregion/child-abuse-reports-deaths-nyc.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/26/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Kyle Rittenhouse and the New Era of Political Violence**\
+`What brought the teenager and so many others to the streets of Kenosha, Wisconsin equipped for war?`\
+https://nytimes.com/2021/10/26/magazine/kyle-rittenhouse-kenosha-wisconsin.html?searchResultPosition=6
 
-**Horror Stories**\
-`Do you like scary stories? What are some of your favorites?`\
-https://nytimes.com/2021/10/26/learning/horror-stories.html?searchResultPosition=7
+**Cori Bush and AOC Are Right About Jan. 6 and 1866**\
+`The Fourteenth Amendment shouldn't just be about the Civil War. `\
+https://nytimes.com/2021/10/26/opinion/jan-6-congress-republicans.html?searchResultPosition=7
 
-**Late Night Is Aghast the G.O.P. Is Allegedly Linked to Jan. 6**\
-`“It’s a real ‘Ocean’s 11’ of people who can’t count to 10,” Stephen Colbert said.`\
-https://nytimes.com/2021/10/26/arts/television/stephen-colbert-republicans-jan-6.html?searchResultPosition=8
+**Rising Prices, Once Seen as Temporary, Threaten Biden’s Agenda**\
+`Supply chain disruptions, a worker shortage and pain at the gasoline pump have made inflation an economic and political problem for the White House.`\
+https://nytimes.com/2021/10/26/business/economy/biden-inflation.html?searchResultPosition=8
 
-**Roh Tae-Woo, South Korean Leader as It Moved Toward Democracy, Dies at 88**\
-`Mr. Roh, who played a role in a bloody crackdown on pro-democracy protesters in 1980 but also oversaw its winning 1988 Olympics bid, left a mixed legacy and was mired in legal trouble in his later years.`\
-https://nytimes.com/2021/10/26/world/asia/roh-tae-woo-dead.html?searchResultPosition=9
+**Can California Tourism Survive Climate Change?**\
+`The most popular state for tourism in the U.S. endured record wildfires, drought and flooding just this year. “The rate of change has been so dramatic,” says one local scientist. “If I was the California tourism industry, I’d be really worried.”`\
+https://nytimes.com/2021/10/26/travel/california-tourism-climate-change.html?searchResultPosition=9
 
-**Word of the Day: alma mater**\
-`This term has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/26/learning/word-of-the-day-alma-mater.html?searchResultPosition=10
+**Faster Buses on 5th Avenue? Not if Business Leaders Get Their Way.**\
+`A busway in the heart of Manhattan is now uncertain after a major real estate developer expressed opposition to the plans to Mayor Bill de Blasio.`\
+https://nytimes.com/2021/10/26/nyregion/fifth-ave-bus-deblasio.html?searchResultPosition=10
 
