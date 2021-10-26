@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/26/sports/baseball/martin-maldonado-astros-world-ser
 `The company has said workers must be vaccinated by Nov. 1 as a condition of employment.`\
 https://nytimes.com/2021/10/26/business/tyson-vaccine-mandate.html?searchResultPosition=8
 
-**An F.D.A. panel will consider whether Pfizer’s vaccine should be authorized for young children.**\
+**An F.D.A. panel is meeting on whether Pfizer-BioNTech’s vaccine should be authorized for young children.**\
 `Federal officials hope the pediatric dose can help close a major gap in the nation’s vaccine campaign that has worried parents, educators and public health leaders.`\
 https://nytimes.com/2021/10/26/us/pfizer-fda-covid-vaccine-kids.html?searchResultPosition=9
 
