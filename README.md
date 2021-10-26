@@ -1,40 +1,40 @@
+**Tesla Joins an Exclusive Club**\
+`The car maker attained $1 trillion market value, but it’s different from others in that group in some big ways.`\
+https://nytimes.com/2021/10/26/business/dealbook/tesla-trillion-dollars.html?searchResultPosition=1
+
 **Heavy Rain Soaks New York**\
 `A flash flood watch will be in effect all day as a storm system moves through the region.`\
-https://nytimes.com/2021/10/26/nyregion/new-york-rain.html?searchResultPosition=1
+https://nytimes.com/2021/10/26/nyregion/new-york-rain.html?searchResultPosition=2
 
 **The Astros’ Secret Weapon? A Catcher Who Hit .172.**\
 `Thanks to Martín Maldonado’s guidance of a pitching staff in flux, his status as one of the game’s worst hitters is irrelevant.`\
-https://nytimes.com/2021/10/26/sports/baseball/martin-maldonado-astros-world-series.html?searchResultPosition=2
+https://nytimes.com/2021/10/26/sports/baseball/martin-maldonado-astros-world-series.html?searchResultPosition=3
 
 **Days away from its deadline, Tyson reaches a 96 percent vaccination rate.**\
 `The company has said workers must be vaccinated by Nov. 1 as a condition of employment.`\
-https://nytimes.com/2021/10/26/business/tyson-vaccine-mandate.html?searchResultPosition=3
+https://nytimes.com/2021/10/26/business/tyson-vaccine-mandate.html?searchResultPosition=4
 
 **An F.D.A. panel will consider whether Pfizer’s vaccine should be authorized for young children.**\
 `Federal officials hope the pediatric dose can help close a major gap in the nation’s vaccine campaign that has worried parents, educators and public health leaders.`\
-https://nytimes.com/2021/10/26/us/pfizer-fda-covid-vaccine-kids.html?searchResultPosition=4
+https://nytimes.com/2021/10/26/us/pfizer-fda-covid-vaccine-kids.html?searchResultPosition=5
 
 **Covid Cases Keep Falling**\
 `Covid cases have been falling in every region of the U.S., offering hope.`\
-https://nytimes.com/2021/10/26/briefing/covid-cases-falling-delta.html?searchResultPosition=5
+https://nytimes.com/2021/10/26/briefing/covid-cases-falling-delta.html?searchResultPosition=6
 
 **Why Spending Too Little Could Backfire on Democrats**\
 `Legislative compromises could complicate the Biden administration’s efforts to expand the social safety net.`\
-https://nytimes.com/2021/10/26/podcasts/the-daily/social-safety-net-democrats.html?searchResultPosition=6
+https://nytimes.com/2021/10/26/podcasts/the-daily/social-safety-net-democrats.html?searchResultPosition=7
 
 **Aung San Suu Kyi to Defend Herself During ‘Show Trial’ in Myanmar**\
 `The United Nations has described the charges against the former leader as politically motivated. If convicted, she could face a maximum of 102 years in prison.`\
-https://nytimes.com/2021/10/26/world/asia/myanmar-coup-trial-aung-san-suu-kyi.html?searchResultPosition=7
+https://nytimes.com/2021/10/26/world/asia/myanmar-coup-trial-aung-san-suu-kyi.html?searchResultPosition=8
 
 **China locks down a northwestern city to subdue a small outbreak.**\
 `Lanzhou, with about four million people, reported six new coronavirus cases on Tuesday, and a total of 39 over the past week.`\
-https://nytimes.com/2021/10/26/world/asia/covid-china-lanzhou-lockdown.html?searchResultPosition=8
+https://nytimes.com/2021/10/26/world/asia/covid-china-lanzhou-lockdown.html?searchResultPosition=9
 
 **Supertall Buildings, Super-Complicated Concerns**\
 `Tall new buildings are testing the limits of building codes from an earlier era.`\
-https://nytimes.com/2021/10/26/nyregion/supertall-building-safety-nyc.html?searchResultPosition=9
-
-**Moderna agrees to sell up to 110 million Covid vaccine doses to African countries.**\
-`Moderna’s shots have previously gone almost entirely to wealthier countries.`\
-https://nytimes.com/2021/10/26/world/africa/covid-moderna-african-union.html?searchResultPosition=10
+https://nytimes.com/2021/10/26/nyregion/supertall-building-safety-nyc.html?searchResultPosition=10
 
