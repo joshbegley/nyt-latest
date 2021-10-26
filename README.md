@@ -6,7 +6,7 @@ https://nytimes.com/2021/10/26/opinion/facebook-advertisers.html?searchResultPos
 `An inquiry into how a cinematographer was killed with a gun the actor was rehearsing with, which was not supposed to have live rounds in it, could take weeks.`\
 https://nytimes.com/2021/10/26/movies/criminal-charges-shooting-alec-baldwin.html?searchResultPosition=2
 
-**Blackhawks Ignored 2010 Sexual Assault Accusation Against a Coach, Investigation Says**\
+**Blackhawks Ignored 2010 Sexual Assault Accusation, Investigation Says**\
 `An independent investigation commissioned by the N.H.L. club revealed on Tuesday that the team failed to act promptly after a player accused a video coach of sexual assault, in part because club executives were concerned about winning the Stanley Cup.`\
 https://nytimes.com/2021/10/26/sports/hockey/blackhawks-investigation-sex-assault-bowman.html?searchResultPosition=3
 
@@ -32,7 +32,7 @@ https://nytimes.com/2021/10/26/arts/television/mort-sahl-dead.html?searchResultP
 
 **Google’s profit and revenue soared in the third quarter.**\
 `The results easily topped analysts’ forecasts.`\
-https://nytimes.com/2021/10/26/technology/googles-profit-and-revenue-soared-in-the-third-quarter.html?searchResultPosition=9
+https://nytimes.com/2021/10/26/technology/google-profit-third-quarter.html?searchResultPosition=9
 
 **Storms Crash Through These Two Novels, Leaving Humans in Their Wake**\
 `“Lean Fall Stand,” a new book by Jon McGregor, and “Storm,” a new edition of a 1941 book by George R. Stewart, examine the unpredictable power of extreme weather events.`\
