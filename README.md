@@ -1,5 +1,5 @@
 **5 Movies to Watch For Halloween**\
-`Even if you’re not a fan of horror, there’s a film waiting for you in the dark. Here are five different movies for every taste.`\
+`Even if you’re not a fan of horror, there’s a film waiting for you in the dark. Here are five different movies for every taste. `\
 https://nytimes.com/interactive/2021/10/26/movies/halloween-movies-to-watch.html?searchResultPosition=1
 
 **Twitter’s revenue rises 37 percent in the third quarter.**\
