@@ -1,5 +1,5 @@
 **At Last, a Royal Wedding. But No Trumpets, Just a News Conference.**\
-`The tortuous path to marriage for Princess Mako of Japan leads to a registry office in Tokyo and most likely a life abroad.`\
+`The torturous path to marriage for Princess Mako of Japan leads to a registry office in Tokyo and most likely a life abroad.`\
 https://nytimes.com/2021/10/25/world/asia/japan-royal-wedding-princess-mako.html?searchResultPosition=1
 
 **Editors’ Note: Oct. 26, 2021**\
