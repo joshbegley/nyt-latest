@@ -31,7 +31,7 @@ https://nytimes.com/2021/10/26/world/asia/covid-china-lanzhou-lockdown.html?sear
 https://nytimes.com/2021/10/26/nyregion/supertall-building-safety-nyc.html?searchResultPosition=8
 
 **Moderna agrees to sell up to 110 million Covid vaccine doses to African countries.**\
-`The first 15 million shots will be delivered by the end of this year to the continent with some of the world’s lowest vaccination rates.`\
+`Moderna’s shots have previously gone almost entirely to wealthier countries.`\
 https://nytimes.com/2021/10/26/world/africa/covid-moderna-african-union.html?searchResultPosition=9
 
 **Going Back to Eat in Midtown, Where the Main Dish Is New York, New York**\
