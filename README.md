@@ -19,7 +19,7 @@ https://nytimes.com/2021/10/25/world/middleeast/eitan-biran-israel-court.html?se
 https://nytimes.com/2021/10/25/us/politics/biden-democrats-reconciliation-bill.html?searchResultPosition=5
 
 **Shooting at Boise Mall Leaves 2 Dead and 4 Injured**\
-`A police officer was among those injured after officers responded to  reports of a shooting at Boise Towne Square in Idaho.`\
+`A police officer was among those injured after officers responded to reports of a shooting at Boise Towne Square in Idaho.`\
 https://nytimes.com/2021/10/25/us/boise-mall-shooting.html?searchResultPosition=6
 
 **A Tale of Two Infields Pits Strength Against Strength**\
