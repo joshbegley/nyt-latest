@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/26/sports/baseball/arnold-hano-dead.html?searchResul
 `A smaller wine bar from the L’Artusi team, a vintage supper club with a Daniel alumnus at the helm, and more restaurant news.`\
 https://nytimes.com/2021/10/26/dining/new-york-restaurant-openings.html?searchResultPosition=9
 
-**Of Sandworms and Social Science**\
-`"Dune" is the movie we've always wanted.`\
+**‘Dune’ Is the Movie We Always Wanted**\
+`Of sandworms and social science.`\
 https://nytimes.com/2021/10/26/opinion/dune-movie-foundation-series.html?searchResultPosition=10
 
