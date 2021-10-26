@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/26/us/politics/joe-manchin.html?searchResultPosition
 
 **F.D.A. Panel Recommends Covid Shots for Children 5 to 11**\
 `Covid-19 was “the eighth-highest killer of kids in this age group over the past year,” said a C.D.C. official in favor of broader authorization.`\
-https://nytimes.com/2021/10/26/us/fda-panel-recommends-vaccine-children.html?searchResultPosition=2
+https://nytimes.com/2021/10/26/us/fda-pfizer-covid-vaccine-kids.html?searchResultPosition=2
 
 **As Baseball Considers Its Future, Parity Isn’t the Problem**\
 `Payroll disparity can make the sport seem unfair, but M.L.B. has had 14 different teams win championships since 2000 — more than the other major American men’s sports.`\
