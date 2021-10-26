@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/26/world/europe/sudan-coup-protests.html?searchResul
 `The car maker attained $1 trillion market value, but it’s different from others in that group in some big ways.`\
 https://nytimes.com/2021/10/26/business/dealbook/tesla-trillion-dollars.html?searchResultPosition=9
 
-**Heavy Rain Soaks New York**\
-`A flash flood watch will be in effect all day as a storm system moves through the region.`\
+**Heavy Rain Soaks New York as Nor’easter Pounds the Region**\
+`A flash flood watch will be in effect all day as a storm system moves through New York and New Jersey.`\
 https://nytimes.com/2021/10/26/nyregion/new-york-rain.html?searchResultPosition=10
 
