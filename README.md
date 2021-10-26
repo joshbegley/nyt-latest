@@ -23,8 +23,8 @@ https://nytimes.com/2021/10/25/us/boise-mall-shooting.html?searchResultPosition=
 https://nytimes.com/2021/10/25/sports/baseball/world-series-astros-braves.html?searchResultPosition=6
 
 **Tax the Rich, Help America’s Children**\
-`Democrats' plans aren't "Marxism."  They're as American as apple pie.`\
-https://nytimes.com/2021/10/25/opinion/tax-the-rich-help-americas-children.html?searchResultPosition=7
+`Democrats' plans aren't "Marxism." They're as American as apple pie.`\
+https://nytimes.com/2021/10/25/opinion/democrats-child-benefit-tax.html?searchResultPosition=7
 
 **Dave Chappelle responds to Netflix controversy with a video clip from his concert.**\
 `Mr. Chappelle’s special has put Netflix at the center of a conversation involving transphobia, free speech and employee activism.`\
