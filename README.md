@@ -1,10 +1,10 @@
+**Iran Wanted U.S. Out of Afghanistan. It May Be Sorry the Wish Came True.**\
+`Iran is glad the Americans are gone, but the Taliban takeover of Afghanistan creates a host of problems for Tehran, with no easy solutions.`\
+https://nytimes.com/2021/10/26/world/middleeast/iran-taliban-afghanistan.html?searchResultPosition=1
+
 **Hong Kong to Tighten Its Strict Quarantine Rules**\
 `Carrie Lam, the city’s chief executive, said Hong Kong planned to strengthen its quarantine requirements in an effort to allow residents to travel to mainland China without quarantining.`\
-https://nytimes.com/video/world/asia/100000008043931/hong-kong-tightens-quarantine-coronavirus.html?searchResultPosition=1
-
-**Democrats meet to discuss the social policy bill as they press for an elusive deal.**\
-`House and Senate Democrats were meeting on Capitol Hill as they sought to unite their party behind President Biden’s top legislative priority.`\
-https://nytimes.com/2021/10/26/us/politics/democrats-meet-to-discuss-the-social-policy-bill-as-they-press-for-an-elusive-deal.html?searchResultPosition=2
+https://nytimes.com/video/world/asia/100000008043931/hong-kong-tightens-quarantine-coronavirus.html?searchResultPosition=2
 
 **Tavi Gevinson Finds Comfort in Legal Pads, Canned Fish and Rumi**\
 `Writing for magazines while acting in “Gossip Girl” and “Assassins” has the 25-year-old staying up too late and looking for ways to quiet her mind.`\
