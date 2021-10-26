@@ -1,40 +1,40 @@
+**YouTube, Snap and TikTok executives take their turn answering to Washington.**\
+`Lawmakers are expected to press the executives on the mounting concerns that their services harm children and teenagers.`\
+https://nytimes.com/2021/10/26/technology/youtube-snap-and-tiktok-executives-take-their-turn-answering-to-washington.html?searchResultPosition=1
+
+**Weekly News Quiz for Students: Military Coup, Vaccines, Film Set Shooting**\
+`Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2021/10/26/learning/26Student-News-Quiz.html?searchResultPosition=2
+
+**Sudan’s Shuttered Capital Pauses Before a Fresh Day of Protest**\
+`Schools, banks and shops shut in the capital, Khartoum, and other cities in response to a call for civil disobedience from pro-democracy groups, a day after a military coup.`\
+https://nytimes.com/2021/10/26/world/europe/sudan-coup-protests.html?searchResultPosition=3
+
 **Tesla Joins an Exclusive Club**\
 `The car maker attained $1 trillion market value, but it’s different from others in that group in some big ways.`\
-https://nytimes.com/2021/10/26/business/dealbook/tesla-trillion-dollars.html?searchResultPosition=1
+https://nytimes.com/2021/10/26/business/dealbook/tesla-trillion-dollars.html?searchResultPosition=4
 
 **Heavy Rain Soaks New York**\
 `A flash flood watch will be in effect all day as a storm system moves through the region.`\
-https://nytimes.com/2021/10/26/nyregion/new-york-rain.html?searchResultPosition=2
+https://nytimes.com/2021/10/26/nyregion/new-york-rain.html?searchResultPosition=5
 
 **The Astros’ Secret Weapon? A Catcher Who Hit .172.**\
 `Thanks to Martín Maldonado’s guidance of a pitching staff in flux, his status as one of the game’s worst hitters is irrelevant.`\
-https://nytimes.com/2021/10/26/sports/baseball/martin-maldonado-astros-world-series.html?searchResultPosition=3
+https://nytimes.com/2021/10/26/sports/baseball/martin-maldonado-astros-world-series.html?searchResultPosition=6
 
 **Days away from its deadline, Tyson reaches a 96 percent vaccination rate.**\
 `The company has said workers must be vaccinated by Nov. 1 as a condition of employment.`\
-https://nytimes.com/2021/10/26/business/tyson-vaccine-mandate.html?searchResultPosition=4
+https://nytimes.com/2021/10/26/business/tyson-vaccine-mandate.html?searchResultPosition=7
 
 **An F.D.A. panel will consider whether Pfizer’s vaccine should be authorized for young children.**\
 `Federal officials hope the pediatric dose can help close a major gap in the nation’s vaccine campaign that has worried parents, educators and public health leaders.`\
-https://nytimes.com/2021/10/26/us/pfizer-fda-covid-vaccine-kids.html?searchResultPosition=5
+https://nytimes.com/2021/10/26/us/pfizer-fda-covid-vaccine-kids.html?searchResultPosition=8
 
 **Covid Cases Keep Falling**\
 `Covid cases have been falling in every region of the U.S., offering hope.`\
-https://nytimes.com/2021/10/26/briefing/covid-cases-falling-delta.html?searchResultPosition=6
+https://nytimes.com/2021/10/26/briefing/covid-cases-falling-delta.html?searchResultPosition=9
 
 **Why Spending Too Little Could Backfire on Democrats**\
 `Legislative compromises could complicate the Biden administration’s efforts to expand the social safety net.`\
-https://nytimes.com/2021/10/26/podcasts/the-daily/social-safety-net-democrats.html?searchResultPosition=7
-
-**Aung San Suu Kyi to Defend Herself During ‘Show Trial’ in Myanmar**\
-`The United Nations has described the charges against the former leader as politically motivated. If convicted, she could face a maximum of 102 years in prison.`\
-https://nytimes.com/2021/10/26/world/asia/myanmar-coup-trial-aung-san-suu-kyi.html?searchResultPosition=8
-
-**China locks down a northwestern city to subdue a small outbreak.**\
-`Lanzhou, with about four million people, reported six new coronavirus cases on Tuesday, and a total of 39 over the past week.`\
-https://nytimes.com/2021/10/26/world/asia/covid-china-lanzhou-lockdown.html?searchResultPosition=9
-
-**Supertall Buildings, Super-Complicated Concerns**\
-`Tall new buildings are testing the limits of building codes from an earlier era.`\
-https://nytimes.com/2021/10/26/nyregion/supertall-building-safety-nyc.html?searchResultPosition=10
+https://nytimes.com/2021/10/26/podcasts/the-daily/social-safety-net-democrats.html?searchResultPosition=10
 
