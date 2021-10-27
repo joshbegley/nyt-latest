@@ -22,19 +22,19 @@ https://nytimes.com/video/us/100000008045266/baldwin-shooting-investigation-live
 `Campaigning with the Democratic candidate and former Gov. Terry McAuliffe in Virginia’s gubernatorial race, President Biden focused on connecting his Republican opponent, Glenn Youngkin, to former President Donald J. Trump.`\
 https://nytimes.com/video/us/politics/100000008046185/biden-mcauliffe-youngkin-trump-virginia-governor-race.html?searchResultPosition=6
 
+**A U.N. labor group blames unequal vaccine access for a widening global economic gap.**\
+`Wealthier countries with high vaccination rates have had speedier economic recoveries than poorer countries with low vaccination rates, the International Labor Organization said.`\
+https://nytimes.com/2021/10/27/world/united-nations-coronavirus.html?searchResultPosition=7
+
 **Britain prepares for a post-pandemic economy, and keeps spending.**\
 `“A new age of optimism” is coming, said Chancellor Rishi Sunak, while inflation and shortages still bedevil the country.`\
-https://nytimes.com/2021/10/27/business/britain-prepares-for-a-post-pandemic-economy-and-keeps-spending.html?searchResultPosition=7
+https://nytimes.com/2021/10/27/business/britain-prepares-for-a-post-pandemic-economy-and-keeps-spending.html?searchResultPosition=8
 
 **What to Do This Weekend**\
 `‘Dune’ and ‘The French Dispatch’`\
-https://nytimes.com/2021/10/27/at-home/newsletter.html?searchResultPosition=8
+https://nytimes.com/2021/10/27/at-home/newsletter.html?searchResultPosition=9
 
 **Melissa Clark’s Instant Pot Knowledge**\
 `Come for her recipes for pork stew and braised chickpeas, stay for her expert tool tips.`\
-https://nytimes.com/2021/10/27/dining/melissa-clarks-instant-pot-knowledge.html?searchResultPosition=9
-
-**Passing Along the Love of Music, and Activism**\
-`Like me, children are stirred by not just the power of the music, but by the need to change the world.`\
-https://nytimes.com/interactive/2021/10/27/opinion/tom-morello-teaching-guitar-music.html?searchResultPosition=10
+https://nytimes.com/2021/10/27/dining/melissa-clarks-instant-pot-knowledge.html?searchResultPosition=10
 
