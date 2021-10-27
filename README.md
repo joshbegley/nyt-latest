@@ -2,7 +2,7 @@
 `In one of the strangest moments of the mayoral debate, Curtis Sliwa falsely said that Councilman Ydanis Rodriguez, a Democrat from Washington Heights, was not an American citizen.`\
 https://nytimes.com/2021/10/26/nyregion/ydanis-rodriguez-us-citizen.html?searchResultPosition=1
 
-**Democrats Push Novel Taxes on Billionaires and Huge Corporations**\
+**Democrats Hammer Out Novel Plan to Tax Billionaires and Corporate Giants**\
 `New proposals would fund social and climate programs by tapping billionaires’ unrealized gains and by ensuring that the biggest companies cannot avoid income taxes altogether.`\
 https://nytimes.com/2021/10/26/us/politics/democrats-billionaires-tax.html?searchResultPosition=2
 
