@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/27/climate/fema-aid-racial-disparities.html?searchRe
 `And with it, Halloween traditions.`\
 https://nytimes.com/2021/10/27/at-home/newsletter1.html?searchResultPosition=8
 
-**Mihaly Csikszentmihalyi, the Father of ‘Flow,’ Dies at 89**\
+**Mihaly Csikszentmihalyi, the Father of ‘Flow,’ Dies at 87**\
 `His work as a psychologist on the benefits of intense focus led to a global best seller, a term that became a cultural touchstone and new ideas about the path to happiness.`\
 https://nytimes.com/2021/10/27/science/mihaly-csikszentmihalyi-dead.html?searchResultPosition=9
 
