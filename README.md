@@ -1,40 +1,40 @@
-**Greta Thunberg Is Panicking. But She Is Also Hopeful.**\
-`“All political and economic systems have failed, but humanity has not yet failed.”`\
-https://nytimes.com/video/opinion/100000008010161/greta-thunberg-climate-crisis.html?searchResultPosition=1
+**Why the Virginia Election Is Freaking Democrats Out**\
+`Democrats don’t seem very motivated to vote. `\
+https://nytimes.com/2021/10/27/opinion/trump-biden-virginia-youngkin.html?searchResultPosition=1
 
-**What Is Your Favorite Abba Memory?**\
-`Next month the Swedish band will release its first new album in 40 years. We want to hear what its music means to you.`\
-https://nytimes.com/2021/10/27/arts/television/abba-memories.html?searchResultPosition=2
+**Dobbs Ferry, N.Y.: A Mixed-Income River Town (but a View Will Cost You)**\
+`Perched above the Hudson 20 miles north of Manhattan, Dobbs Ferry is denser than its neighbors and more diverse, with good schools and a wide spectrum of housing.`\
+https://nytimes.com/2021/10/27/realestate/dobbs-ferry-ny.html?searchResultPosition=2
 
-**After 40 Years, Abba Takes a Chance With Its Legacy**\
-`How one of the biggest pop groups in the world secretly reunited to make a new album and a high-tech stage show featuring digital avatars of themselves — from 1979.`\
-https://nytimes.com/2021/10/27/arts/music/abba-reunion-voyage.html?searchResultPosition=3
+**Living In ... Dobbs Ferry, N.Y.**\
+`Perched above the Hudson River 20 miles north of Manhattan, Dobbs Ferry is denser than its neighbors and more socioeconomically and racially diverse.`\
+https://nytimes.com/slideshow/2021/10/27/realestate/living-in-dobbs-ferry-ny.html?searchResultPosition=3
 
-**Lesson of the Day: ‘Authorities Searched Exhaustively for Gabrielle Petito. What About Others?’**\
-`In this lesson, students will learn about the role that race plays in the media coverage of stories about missing persons. Then they will think about how this disparity could be addressed.`\
-https://nytimes.com/2021/10/27/learning/lesson-plans/lesson-of-the-day-authorities-searched-exhaustively-for-gabrielle-petito-what-about-others.html?searchResultPosition=4
+**I Fell in Love With Motorcycles. But Could I Ever Love Sturgis?**\
+`A New Yorker who started riding during the pandemic travels to the heart of biker culture.`\
+https://nytimes.com/2021/10/27/magazine/motorcycles-sturgis.html?searchResultPosition=4
 
-**Anonymity No More? Age Checks Come to the Web.**\
-`To protect children online, more companies and governments are forcing users to prove how old they are.`\
-https://nytimes.com/2021/10/27/technology/internet-age-check-proof.html?searchResultPosition=5
+**He Won the Nobel. Why Are His Books So Hard to Find?**\
+`After Abdulrazak Gurnah was awarded this year’s Nobel Prize in Literature, he instantly gained a wider international audience, something publishers are now scrambling to accommodate.`\
+https://nytimes.com/2021/10/27/books/abdulrazak-gurnah-nobel-prize-literature-afterlives.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/27/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**At McKinsey, Widespread Furor Over Work With Planet’s Biggest Polluters**\
+`A letter signed by more than 1,100 employees has called for change at the consulting firm, which has advised at least 43 of the 100 most environmentally damaging companies.`\
+https://nytimes.com/2021/10/27/business/mckinsey-climate-change.html?searchResultPosition=6
 
-**Vision Test**\
-`What message do you think this image is communicating?`\
-https://nytimes.com/2021/10/27/learning/vision-test.html?searchResultPosition=7
+**Another Struggle for Long Covid Patients: Disability Benefits**\
+`President Biden has said the government should help people who continue to experience symptoms long after a coronavirus infection. But qualifying remains a major hurdle.`\
+https://nytimes.com/2021/10/27/us/long-covid-disability-benefits.html?searchResultPosition=7
 
-**Jimmy Kimmel Misses the Old Facebook**\
-`Kimmel reminisced about the days when the social media app was “just a safe place to lose your house in a pyramid scheme.”`\
-https://nytimes.com/2021/10/27/arts/television/jimmy-kimmel-facebook.html?searchResultPosition=8
+**How Democrats Would Tax Billionaires to Pay for Their Agenda**\
+`The plan stakes out new territory by putting levies on unrealized gains in the value of billionaires’ liquid assets, such as stocks, bonds and cash.`\
+https://nytimes.com/2021/10/27/us/politics/billionaires-tax.html?searchResultPosition=8
 
-**Did Charlie Morton Get Three Outs With a Broken Leg?**\
-`Morton was struck by a comebacker in his team’s Game 1 win over Houston in the World Series. Three outs later, he left with a fractured fibula. When the break occurred is unknown.`\
-https://nytimes.com/2021/10/27/sports/baseball/charlie-morton-injured-world-series.html?searchResultPosition=9
+**Japan Stays Tough on Cannabis as Other Nations Loosen Up**\
+`Some Japanese who have gone abroad and been exposed to the benefits of cannabis derivatives, particularly CBD, are hoping Japan will change course. But the government shows little inclination.`\
+https://nytimes.com/2021/10/27/business/cbd-japan-cannabis-marijuana.html?searchResultPosition=9
 
-**Word of the Day: churlish**\
-`This word has appeared in 51 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/27/learning/word-of-the-day-churlish.html?searchResultPosition=10
+**An Oath Keeper Was at the Capitol Riot. On Tuesday, He’s on the Ballot.**\
+`Edward Durfee Jr. is a member of the far-right militia and was at the Capitol on Jan. 6. He is running for office in New Jersey anyway.`\
+https://nytimes.com/2021/10/27/nyregion/oath-keeper-nj-assembly.html?searchResultPosition=10
 
