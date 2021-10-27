@@ -34,7 +34,7 @@ https://nytimes.com/2021/10/27/climate/nyt-climate-newsletter-cop26.html?searchR
 `Gen. Mark A. Milley said the Chinese test of a hypersonic missile “has all of our attention.”`\
 https://nytimes.com/2021/10/27/us/politics/china-hypersonic-missile.html?searchResultPosition=9
 
-**Taliban Allow Girls to Return to Some High Schools, but With Big Caveats**\
-`In some provinces, teenage girls have been allowed to return to secondary schools, though some teachers and parents still have doubts about what this means about Taliban rule.`\
-https://nytimes.com/2021/10/27/world/asia/afghan-girls-school-taliban.html?searchResultPosition=10
+**Manchin denounces the Democrats’ plan to tax billionaires as divisive.**\
+`The plan stakes out new territory by putting levies on unrealized gains in the value of billionaires’ liquid assets, such as stocks, bonds and cash.`\
+https://nytimes.com/2021/10/27/us/politics/manchin-billionaires-tax.html?searchResultPosition=10
 
