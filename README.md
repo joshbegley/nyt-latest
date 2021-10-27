@@ -12,7 +12,7 @@ https://nytimes.com/2021/10/27/briefing/budget-deal-alec-baldwin-sharks.html?sea
 
 **How to watch tonight’s game.**\
 `First pitch is scheduled for 8:09 p.m. Eastern time.`\
-https://nytimes.com/2021/10/27/sports/baseball/what-channel-is-the-world-series-on.html?searchResultPosition=4
+https://nytimes.com/2021/10/27/sports/baseball/world-series-game-2-channel.html?searchResultPosition=4
 
 **Manchin Opposes Democrats’ Billionaires Tax**\
 `Senator Joe Manchin III, Democrat of West Virginia, criticized Senate Democrats’ plan to extract hundreds of billions of dollars from billionaires as divisive.`\
