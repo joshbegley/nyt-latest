@@ -1,4 +1,4 @@
-**Sliwa falsely claimed that a councilman isn’t an American citizen.**\
+**Sliwa falsely claimed that a councilman wasn’t an American citizen.**\
 `In one of the strangest moments of the mayoral debate, Curtis Sliwa falsely said that Councilman Ydanis Rodriguez, a Democrat from Washington Heights, was not an American citizen.`\
 https://nytimes.com/2021/10/26/nyregion/ydanis-rodriguez-us-citizen.html?searchResultPosition=1
 
