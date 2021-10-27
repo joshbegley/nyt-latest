@@ -28,7 +28,7 @@ https://nytimes.com/2021/10/27/us/politics/paid-family-leave-manchin.html?search
 
 **Key takeaways from Week 9 of the Elizabeth Holmes trial.**\
 `A major investor testifies.`\
-https://nytimes.com/2021/10/27/technology/key-takeaways-from-week-9-of-the-elizabeth-holmes-trial.html?searchResultPosition=8
+https://nytimes.com/2021/10/27/technology/elizabeth-holmes-trial-takeaways.html?searchResultPosition=8
 
 **Trooper Charged With Murder in Death of Girl, 11, in a High-Speed Chase**\
 `The trooper, Christopher Baldner, killed the girl, Monica Goods, by ramming her family’s car after a late-night traffic stop, officials said.`\
