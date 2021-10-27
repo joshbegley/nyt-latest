@@ -34,7 +34,7 @@ https://nytimes.com/video/nyregion/100000008045506/nyc-mayor-debate-adams-sliwa-
 `In the final contest before Election Day, Eric Adams and Curtis Sliwa traded insults and sketched out starkly different visions for the city.`\
 https://nytimes.com/2021/10/26/nyregion/nyc-mayoral-debate-takeaways.html?searchResultPosition=9
 
-**Sliwa Attacks Adams at Debate in Bid to Halt Front-Runner’s Momentum**\
+**At Second New York Mayoral Debate, the Political Descends Into Personal**\
 `The final debate in the New York City mayor’s race quickly turned rancorous, with Eric Adams and Curtis Sliwa trading personal and political barbs.`\
 https://nytimes.com/2021/10/26/nyregion/eric-adams-curtis-sliwa-debate.html?searchResultPosition=10
 
