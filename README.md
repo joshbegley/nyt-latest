@@ -22,7 +22,7 @@ https://nytimes.com/2021/10/28/movies/eleonore-von-trapp-dead.html?searchResultP
 `The proposal to fund the president’s sprawling spending plan mostly turns up the dial on more conventional tax policies, while trying to curb maneuvers that allow tax avoidance.`\
 https://nytimes.com/2021/10/28/us/politics/biden-tax-increases.html?searchResultPosition=6
 
-**Relocation Left Native Americans More Exposed to Climate Threats, Data Show**\
+**Forced Relocation Left Native Americans More Exposed to Climate Threats, Data Show**\
 `Tribal nations have lost 99 percent of their historical territory. Where they live now is more vulnerable to extreme weather, adding to the debate over how to address racial injustice.`\
 https://nytimes.com/2021/10/28/climate/native-americans-climate-change-effects.html?searchResultPosition=7
 
