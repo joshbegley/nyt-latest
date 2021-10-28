@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/28/world/middleeast/saudi-investment-covid.html?sear
 
 **A Big Tech critic moves closer to leading the Justice Department’s antitrust division.**\
 `If confirmed by the full Senate, Jonathan Kanter will join other critics of Silicon Valley in top antitrust positions.`\
-https://nytimes.com/2021/10/28/technology/a-senate-committee-approves-a-big-tech-critic-to-lead-the-justice-departments-antitrust-division.html?searchResultPosition=2
+https://nytimes.com/2021/10/28/technology/jonathan-kanter-antitrust-justice-department.html?searchResultPosition=2
 
 **The Climate Summit in Glasgow: ‘Let’s Choose Life’**\
 `Readers urge strong actions at the summit and in people’s daily lives. Also: A despairing American; vaccine dosage for kids; an encounter in the park.`\
