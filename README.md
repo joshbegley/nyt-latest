@@ -8,7 +8,7 @@ https://nytimes.com/2021/10/28/realestate/new-york-citys-most-expensive-neighbor
 
 **As inflation builds, the European Central Bank keeps its policy steady.**\
 `The eurozone’s annual inflation rate climbed last month to 3.4 percent, the highest in 13 years.`\
-https://nytimes.com/2021/10/28/business/as-inflation-builds-the-european-central-bank-keeps-its-policy-steady.html?searchResultPosition=3
+https://nytimes.com/2021/10/28/business/european-central-bank-inflation.html?searchResultPosition=3
 
 **Homes for Sale in New York and New Jersey**\
 `This week’s homes are a four-bedroom in Long Beach Township, N.J., and a three-bedroom in Port Chester, N.Y.`\
