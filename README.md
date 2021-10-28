@@ -19,7 +19,7 @@ https://nytimes.com/2021/10/27/theater/caroline-or-change-review.html?searchResu
 https://nytimes.com/2021/10/27/us/politics/democrats-reconciliation-bill-negotiations.html?searchResultPosition=5
 
 **Lawyer Who Won $9.5 Billion Settlement Against Chevron Reports to Prison**\
-`Steven Donziger, an environmental activist who won what is considered the largest ever lawsuit against an oil company, was found guilty of contempt of court in 2019.`\
+`Steven Donziger, an environmental activist who won what is considered the largest ever lawsuit against an oil company, was found guilty of contempt of court in July.`\
 https://nytimes.com/2021/10/27/business/energy-environment/steven-donziger-chevron.html?searchResultPosition=6
 
 **Corrections: Oct. 28, 2021**\
