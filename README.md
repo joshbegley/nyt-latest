@@ -2,7 +2,7 @@
 `An attack in a school bathroom had nothing to do with trans issues.`\
 https://nytimes.com/2021/10/28/opinion/loudoun-county-trans.html?searchResultPosition=1
 
-**Biden Implores Democrats to Support Transformative Agenda**\
+**Biden Implores Democrats to Support His Transformative Agenda**\
 `“The House and Senate majorities and my presidency will be determined by what happens in the next week,” President Biden told lawmakers on Thursday.`\
 https://nytimes.com/2021/10/28/us/politics/biden-democrats-spending-bill.html?searchResultPosition=2
 
