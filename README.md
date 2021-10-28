@@ -6,8 +6,8 @@ https://nytimes.com/2021/10/28/movies/the-spine-of-night-review.html?searchResul
 `Jose Altuve broke out of a slump, setting the tone in a crucial Game 2 win that tied the World Series as it heads to Atlanta.`\
 https://nytimes.com/2021/10/28/sports/baseball/jose-altuve-world-series.html?searchResultPosition=2
 
-**Biden and Democrats will announce progress on a framework for their social policy and climate bill, but key details remain unresolved.**\
-`President Biden was to discuss the package at a morning meeting at the Capitol, as Democrats worked to hand him a victory that would bolster his hand as he heads to Europe.`\
+**Biden plans to announce a framework for his social policy and climate bill, but key details remain unresolved.**\
+`The president delayed his departure for a trip to Europe to trek to Capitol Hill and rally lawmakers behind both pieces of his domestic agenda.`\
 https://nytimes.com/2021/10/27/us/politics/biden-and-democrats-will-announce-progress-on-a-framework-for-their-social-policy-and-climate-bill-but-key-details-remain-unreso.html?searchResultPosition=3
 
 **Barcelona, Drifting, Fires Ronald Koeman as Coach**\
