@@ -1,40 +1,40 @@
-**Reconstructing the Rittenhouse Shootings: How Kenosha Echoed America’s Polarization**\
-`In the months leading up to Kyle Rittenhouse’s trial for killing two people, we analyzed hours of footage and interviewed key witnesses from that fatal night in Kenosha, Wis., to understand how the country’s polarization set the scene for violence.`\
-https://nytimes.com/video/us/100000007409660/kyle-rittenhouse-shooting-video-analysis.html?searchResultPosition=1
+**Farewell, Nick Kristof**\
+`After 37 years, a distinguished and imaginative journalist is leaving The Times.`\
+https://nytimes.com/2021/10/28/opinion/nick-kristof-leaving-new-york-times.html?searchResultPosition=1
 
-**Wes Anderson’s Dream of France, and the Paris I Remember**\
-`With “The French Dispatch,” the director’s latest, yet another American artist falls under the country’s spell. The Times’s Paris bureau chief recalls when the same thing happened to him.`\
-https://nytimes.com/2021/10/28/movies/french-dispatch-paris.html?searchResultPosition=2
+**Shining a Light on Forgotten Designers**\
+`More than a dozen experts suggest candidates deserving new appreciation.`\
+https://nytimes.com/2021/10/28/arts/forgotten-designers.html?searchResultPosition=2
 
-**Lesson of the Day: ‘See How the Dixie Fire Created Its Own Weather’**\
-`In this lesson, students will explore a 3-D model created by The New York Times to show how the largest blaze of the year generated storm clouds that powered its own weather systems.`\
-https://nytimes.com/2021/10/28/learning/lesson-plans/lesson-of-the-day-see-how-the-dixie-fire-created-its-own-weather.html?searchResultPosition=3
+**How the Memphis Design Movement Made a Comeback**\
+`Why the 1980s design phenomenon, named for a Bob Dylan song and an ancient Egyptian city, still appeals to every generation.`\
+https://nytimes.com/2021/10/28/style/memphis-design-movement.html?searchResultPosition=3
 
-**Old Power Gear Is Slowing Use of Clean Energy and Electric Cars**\
-`Some people and businesses seeking to use solar panels, batteries and electric vehicles find they can’t because utility equipment needs an upgrade.`\
-https://nytimes.com/2021/10/28/business/energy-environment/electric-grid-overload-solar-ev.html?searchResultPosition=4
+**Haven’t I Seen You Somewhere?**\
+`Some of the most innovative and attractive furniture designs are the ones just waiting to be rediscovered.`\
+https://nytimes.com/2021/10/28/garden/design-revival-movement.html?searchResultPosition=4
 
-**Michelle Wu Makes Her Play for Power in Boston**\
-`A family crisis diverted Ms. Wu from the stable path her parents planned for her. Now she hopes to become mayor.`\
-https://nytimes.com/2021/10/28/us/michelle-wu-boston-election.html?searchResultPosition=5
+**A Panorama of Design**\
+`A look at design-world events, products and people.`\
+https://nytimes.com/2021/10/28/style/design-products-people.html?searchResultPosition=5
 
-**Disaster Prep Kits Get a Makeover**\
-`The climate crisis has spawned an unlikely new area of fashion entrepreneurship.`\
-https://nytimes.com/2021/10/28/style/disaster-prep-kits.html?searchResultPosition=6
+**How Low Can You Go (Sofa-wise)?**\
+`Advice for decorating, cleaning and warming your home.`\
+https://nytimes.com/2021/10/28/style/design-advice-tips.html?searchResultPosition=6
 
-**Many Americans Say They Believe in Ghosts. Do You?**\
-`Belief in paranormal phenomena may be a way of grappling with the unknown.`\
-https://nytimes.com/2021/10/28/style/do-you-believe-in-ghosts.html?searchResultPosition=7
+**A Farewell to Readers, With Hope**\
+`A columnist offers lessons learned from decades on the front lines of reporting and explains why he is leaving to run for office.`\
+https://nytimes.com/2021/10/28/opinion/sunday/nick-kristof-farewell.html?searchResultPosition=7
 
-**Tourist Surveillance**\
-`Have you ever had a vacation ruined by overcrowding?`\
-https://nytimes.com/2021/10/28/learning/tourist-surveillance.html?searchResultPosition=8
+**Watch Live: Oil Executives Testify to Congress on Climate Disinformation**\
+`Chief executives from Exxon Mobil, Shell, Chevron and BP face questions from lawmakers questions on industry efforts to hinder action on climate change.`\
+https://nytimes.com/video/climate/100000008047143/climate-disinformation-hearing-live-video.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/28/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**China Hurries to Burn More Coal, Putting Climate Goals at Risk**\
+`Faced with electricity shortages, the country is racing to expand mining despite risks to the environment, miner safety and the economy.`\
+https://nytimes.com/2021/10/28/business/energy-environment/china-coal-climate.html?searchResultPosition=9
 
-**Word of the Day: doppelgänger**\
-`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/28/learning/word-of-the-day-doppelganger.html?searchResultPosition=10
+**16 New Books Coming in November**\
+`Memoirs from Ai Weiwei, Huma Abedin and Will Smith; new fiction from Gary Shteyngart and Neal Stephenson; and plenty more.`\
+https://nytimes.com/2021/10/28/books/november-2021-books.html?searchResultPosition=10
 
