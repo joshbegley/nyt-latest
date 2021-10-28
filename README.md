@@ -1,40 +1,40 @@
+**Old Power Gear Is Slowing Use of Clean Energy and Electric Cars**\
+`Some people and businesses seeking to use solar panels, batteries and electric vehicles find they can’t because utility equipment needs an upgrade.`\
+https://nytimes.com/2021/10/28/business/energy-environment/electric-grid-overload-solar-ev.html?searchResultPosition=1
+
+**Michelle Wu Makes Her Play for Power in Boston**\
+`A family crisis diverted Ms. Wu from the stable path her parents planned for her. Now she hopes to become mayor.`\
+https://nytimes.com/2021/10/28/us/michelle-wu-boston-election.html?searchResultPosition=2
+
+**Disaster Prep Kits Get a Makeover**\
+`The climate crisis has spawned an unlikely new area of fashion entrepreneurship.`\
+https://nytimes.com/2021/10/28/style/disaster-prep-kits.html?searchResultPosition=3
+
+**Many Americans Say They Believe in Ghosts. Do You?**\
+`Belief in paranormal phenomena may be a way of grappling with the unknown.`\
+https://nytimes.com/2021/10/28/style/do-you-believe-in-ghosts.html?searchResultPosition=4
+
+**Tourist Surveillance**\
+`Have you ever had a vacation ruined by overcrowding?`\
+https://nytimes.com/2021/10/28/learning/tourist-surveillance.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2021/10/28/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
 **Word of the Day: doppelgänger**\
 `This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/28/learning/word-of-the-day-doppelganger.html?searchResultPosition=1
+https://nytimes.com/2021/10/28/learning/word-of-the-day-doppelganger.html?searchResultPosition=7
 
 **Late Night Supports Democrats’ Plan to Tax the Richest of the Rich**\
 `“So that includes Elon Musk, Jeff Bezos and Flo, the Progressive Insurance lady,” Jimmy Fallon joked of the billionaires’ tax.`\
-https://nytimes.com/2021/10/28/arts/television/jimmy-fallon-democrats-billionaires-tax.html?searchResultPosition=2
+https://nytimes.com/2021/10/28/arts/television/jimmy-fallon-democrats-billionaires-tax.html?searchResultPosition=8
 
 **N.F.L. Week 8 Predictions: Our Picks Against the Spread**\
 `Aaron Rodgers’s top two receivers may be out against the 7-0 Cardinals, and the Saints must rely on Alvin Kamara to move past the Buccaneers while the Dolphins stare down the Bills and the trade deadline.`\
-https://nytimes.com/2021/10/28/sports/football/nfl-predictions-spread.html?searchResultPosition=3
+https://nytimes.com/2021/10/28/sports/football/nfl-predictions-spread.html?searchResultPosition=9
 
 **Why China Is the World’s Last ‘Zero Covid’ Holdout**\
 `The government has staked its political legitimacy on controlling the virus better than other countries, especially its geopolitical rivals.`\
-https://nytimes.com/2021/10/27/world/asia/china-zero-covid-virus.html?searchResultPosition=4
-
-**Brett Favre Repays $600,000 in Mississippi Welfare Fraud Case**\
-`The Mississippi state auditor said that Mr. Favre, the Hall of Fame quarterback, could still be sued if he does not pay an additional $228,000 in interest that he owes.`\
-https://nytimes.com/2021/10/27/us/brett-favre-mississippi-welfare.html?searchResultPosition=5
-
-**Astros Dink and Dunk Their Way to a Win, Tying Series**\
-`A series of light hits and defensive miscues let Houston run up the score early, and the Astros’ pitching held the lead.`\
-https://nytimes.com/2021/10/27/sports/baseball/astros-braves-world-series-game-2.html?searchResultPosition=6
-
-**Your Thursday Briefing**\
-`More access to a Covid-19 antiviral pill.`\
-https://nytimes.com/2021/10/27/briefing/merck-pill-china-hypersonic-missile.html?searchResultPosition=7
-
-**Quotation of the Day: Fear of Gangs Hinders Supply of Fuel in Haiti**\
-`Quotation of the Day for Thursday, October 28, 2021.`\
-https://nytimes.com/2021/10/27/todayspaper/quotation-of-the-day-fear-of-gangs-hinders-supply-of-fuel-in-haiti.html?searchResultPosition=8
-
-**This Is Only a Test**\
-`Mmmm … brains …`\
-https://nytimes.com/2021/10/27/crosswords/daily-puzzle-2021-10-28.html?searchResultPosition=9
-
-**Roller Derby Team Sues Cleveland M.L.B. Club Over ‘Guardians’ Name Change**\
-`“To be blunt, Plaintiff was here first,” the Cleveland Guardians roller derby team said in filing a suit claiming trademark infringement.`\
-https://nytimes.com/2021/10/27/sports/mlb-roller-derby-cleveland-guardians-lawsuit.html?searchResultPosition=10
+https://nytimes.com/2021/10/27/world/asia/china-zero-covid-virus.html?searchResultPosition=10
 
