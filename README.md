@@ -1,4 +1,4 @@
-**Families of Charleston Massacre Victims Reach Settlement**\
+**Families of Charleston Massacre Victims Reach $88 Million Settlement**\
 `The settlement with the Justice Department includes millions for the families and survivors of the shooting at the Emanuel African Methodist Episcopal Church in 2015.`\
 https://nytimes.com/2021/10/28/us/dylann-roof-settlement-families.html?searchResultPosition=1
 
