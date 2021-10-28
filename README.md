@@ -1,40 +1,40 @@
+**Former School Safety Officer Is Charged in the Fatal Shooting of a Teenager**\
+`The former officer, Eddie Gonzalez, was charged with one count of murder after he shot Manuela Rodriguez, 18, near a high school in Long Beach, Calif., last month.`\
+https://nytimes.com/2021/10/28/us/long-beach-school-safety-officer-charged.html?searchResultPosition=1
+
+**Oil Executives Begin Testimony on Industry’s Role in Climate Disinformation**\
+`In a historic hearing, the leaders of some of the most powerful energy companies in the world are appearing before a House panel to face questioning on climate change.`\
+https://nytimes.com/2021/10/28/climate/oil-executives-house-disinformation-testimony.html?searchResultPosition=2
+
+**‘Violet’ Review: In Two Minds**\
+`Olivia Munn battles a bullying voice in her head in this unusual psychological drama.`\
+https://nytimes.com/2021/10/28/movies/violet-review.html?searchResultPosition=3
+
+**‘Cicada’ Review: A New Relationship Buds as Old Wounds Reopen**\
+`Matthew Fifer writes and co-stars in this understated drama about a man struggling with his past as he forges a new bond.`\
+https://nytimes.com/2021/10/28/movies/cicada-review.html?searchResultPosition=4
+
+**Do I Have Plans This Saturday? I’ve, Uh, Been Exposed.**\
+`Feeling overwhelmed at the prospect of socializing, some are going with a lie very few will argue with: Covid exposure.`\
+https://nytimes.com/2021/10/28/style/covid-exposure-lie.html?searchResultPosition=5
+
+**‘Snakehead’ Review: Nightmares on the Way to the American Dream**\
+`The writer and director Evan Jackson Leong sets a crime tale in New York City’s Chinatown.`\
+https://nytimes.com/2021/10/28/movies/snakehead-review.html?searchResultPosition=6
+
 **What Happens After a Nuclear Plant Closes?**\
 `Now that Indian Point, the last nuclear reactor in the New York area, has closed the site has to be cleared of radioactive material.`\
-https://nytimes.com/interactive/2021/10/28/nyregion/ny-indianpoint.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/10/28/nyregion/ny-indianpoint.html?searchResultPosition=7
 
 **Watch Live: Biden Delivers Remarks Before G20 Summit Departure**\
 `President Biden delivers remarks before traveling to Italy, where he will participate in the G20 economic summit.`\
-https://nytimes.com/video/us/politics/100000008048385/biden-g20-speech-live.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000008048385/biden-g20-speech-live.html?searchResultPosition=8
 
 **In Patrick Rosal’s Poetry, Physical Exuberance Takes Flight**\
 `“The Last Thing,” Rosal’s recent collection of new and selected work, shows him countering emotional and historical pain with sheer delight in the body.`\
-https://nytimes.com/2021/10/28/books/review/patrick-rosal-last-thing-poems.html?searchResultPosition=3
+https://nytimes.com/2021/10/28/books/review/patrick-rosal-last-thing-poems.html?searchResultPosition=9
 
 **‘How They Got Over’ Review: How Gospel Begat Rock**\
 `In the director Robert Clem’s documentary about gospel quartets and their undeniable influence on rock ’n’ roll, Sister Rosetta Tharpe has competition.`\
-https://nytimes.com/2021/10/28/movies/how-they-got-over-review.html?searchResultPosition=4
-
-**To Save a Swirling Season, Atlanta Turned to Soft Serve**\
-`Atlanta has been praised for its shrewd deadline trades. Braves players credit their resurgence to a midseason pickup that produces day after day.`\
-https://nytimes.com/2021/10/28/sports/baseball/atlanta-ice-cream-world-series.html?searchResultPosition=5
-
-**Watch Live: Biden Delivers Remarks at the Capitol**\
-`President Biden is expected to announce a “framework” agreement for his Build Back Better plan.`\
-https://nytimes.com/video/us/politics/100000008048471/watch-live-biden-delivers-remarks-at-the-capitol.html?searchResultPosition=6
-
-**George Butler, Bodybuilding’s Boswell in Photos and Film, Dies at 78**\
-`In his photographs for the book “Pumping Iron” and his documentary of the same name, Mr. Butler helped set Arnold Schwarzenegger on the road to stardom.`\
-https://nytimes.com/2021/10/28/movies/george-butler-dead.html?searchResultPosition=7
-
-**‘Chess of the Wind’ Review: A Remnant of an Iran That Used to Be**\
-`Mohammad Reza Aslani’s 1976 film about family mendacity existed for mere days before it was banned and then lost in the ensuing tumult. Now it’s back.`\
-https://nytimes.com/2021/10/28/movies/chess-of-the-wind-review-a-remnant-of-an-iran-that-used-to-be.html?searchResultPosition=8
-
-**5 Classical Albums to Hear Right Now**\
-`A rising singer, a jazz-choral amalgam, a quartet meditation and standards by Brahms and Chopin are among the highlights of recent recordings.`\
-https://nytimes.com/2021/10/28/arts/music/classical-music-recordings.html?searchResultPosition=9
-
-**New York City’s Most Expensive Neighborhoods**\
-`While prices were up overall in the third quarter compared to a year ago, they fell in many of the priciest areas.`\
-https://nytimes.com/2021/10/28/realestate/new-york-citys-most-expensive-neighborhoods.html?searchResultPosition=10
+https://nytimes.com/2021/10/28/movies/how-they-got-over-review.html?searchResultPosition=10
 
