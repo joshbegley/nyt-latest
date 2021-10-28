@@ -26,13 +26,13 @@ https://nytimes.com/2021/10/28/realestate/new-york-citys-most-expensive-neighbor
 `The eurozone’s annual inflation rate climbed last month to 3.4 percent, the highest in 13 years.`\
 https://nytimes.com/2021/10/28/business/european-central-bank-inflation.html?searchResultPosition=7
 
-**Homes for Sale in New York and New Jersey**\
-`This week’s homes are a four-bedroom in Long Beach Township, N.J., and a three-bedroom in Port Chester, N.Y.`\
-https://nytimes.com/2021/10/28/realestate/housing-market-near-nyc.html?searchResultPosition=8
-
 **Homes for Sale in Brooklyn, Manhattan and Queens**\
 `This week’s properties are in Dumbo, Hell’s Kitchen and Glendale.`\
-https://nytimes.com/2021/10/28/realestate/housing-market-nyc.html?searchResultPosition=9
+https://nytimes.com/2021/10/28/realestate/housing-market-nyc.html?searchResultPosition=8
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s homes are a four-bedroom in Long Beach Township, N.J., and a three-bedroom in Port Chester, N.Y.`\
+https://nytimes.com/2021/10/28/realestate/housing-market-near-nyc.html?searchResultPosition=9
 
 **On the Market in the New York Region**\
 `This week’s homes are a four-bedroom in Long Beach Township, N.J., and a three-bedroom in Port Chester, N.Y.`\
