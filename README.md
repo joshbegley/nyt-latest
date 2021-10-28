@@ -28,7 +28,7 @@ https://nytimes.com/2021/10/27/well/live/covid-booster-shot-mix-and-match.html?s
 
 **Glenn Youngkin vs. Toni Morrison**\
 `Picking a fight over “Beloved” and the great Toni Morrison is an unwinnable battle.`\
-https://nytimes.com/2021/10/27/opinion/glenn-youngkin-vs-toni-morrison.html?searchResultPosition=8
+https://nytimes.com/2021/10/27/opinion/glenn-youngkin-toni-morrison.html?searchResultPosition=8
 
 **Starting next year, some immunocompromised people may receive a fourth Covid vaccine dose, the C.D.C. says.**\
 `The agency said that a booster could be administered at least six months after severely or moderately immunocompromised adults received a third dose of an mRNA vaccine that was authorized over the summer just for them.`\
