@@ -36,5 +36,5 @@ https://nytimes.com/2021/10/28/briefing/covid-zero-china-coal-cop-26.html?search
 
 **An immigration overhaul is part of Biden’s $1.85 trillion plan.**\
 `Included in the plan is a proposal to protect millions of undocumented immigrants who are longtime residents of the country from deportation.`\
-https://nytimes.com/2021/10/28/us/politics/immigration-biden-plan.html?searchResultPosition=10
+https://nytimes.com/2021/10/28/us/politics/biden-immigration.html?searchResultPosition=10
 
