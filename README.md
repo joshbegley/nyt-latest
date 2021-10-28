@@ -26,7 +26,7 @@ https://nytimes.com/2021/10/28/opinion/letters/climate-summit-glasgow.html?searc
 `The former officer, Eddie Gonzalez, was charged with one count of murder after he shot Manuela Rodriguez, 18, near a high school in Long Beach, Calif., last month.`\
 https://nytimes.com/2021/10/28/us/long-beach-school-safety-officer-charged.html?searchResultPosition=7
 
-**Oil Executives Begin Testimony on Industry’s Role in Climate Disinformation**\
+**Oil Executives Testify on Industry’s Role in Climate Disinformation**\
 `In a historic hearing, the leaders of some of the most powerful energy companies in the world are appearing before a House panel to face questioning on climate change.`\
 https://nytimes.com/2021/10/28/climate/oil-executives-house-disinformation-testimony.html?searchResultPosition=8
 
