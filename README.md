@@ -1,6 +1,6 @@
 **Adam Kinzinger, a Republican Trump Critic, Won’t Seek Re-election in House**\
 `Mr. Kinzinger’s electoral fate was largely sealed when Illinois Democrats adopted a new congressional map that eliminated the district he has represented for the last decade.`\
-https://nytimes.com/2021/10/29/us/politics/adam-kinzinger-wont-seek-re-election.html?searchResultPosition=1
+https://nytimes.com/2021/10/29/us/politics/adam-kinzinger-illinois-election.html?searchResultPosition=1
 
 **Behind a Top Female Name in Spanish Crime Fiction: Three Men**\
 `Carmen Mola, a novelist publishing under a pen name, seemed to shatter a glass ceiling in the world of Spanish books. But when the author’s true identity was revealed while claiming a big prize, it was a shock.`\
@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/29/books/richard-hammer-dead.html?searchResultPositi
 https://nytimes.com/2021/10/29/sports/soccer/barcelona-koeman-united-solskjaer.html?searchResultPosition=6
 
 **Tonga records its first Covid case.**\
-`The Pacific island, 1,100 miles from New Zealand, has quarantined all airport employees on duty after a flight with an infected passenger arrived.`\
+`For nearly two years, the remote Pacific island of Tonga has avoided the global pandemic that has infected hundreds of millions of people and left millions dead.`\
 https://nytimes.com/2021/10/29/world/asia/tonga-first-covid-case.html?searchResultPosition=7
 
 **‘Rust’ Armorer Has ‘No Idea’ How Live Rounds Got on Set, Lawyers Say**\
