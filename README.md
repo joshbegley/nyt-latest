@@ -4,7 +4,7 @@ https://nytimes.com/2021/10/29/dining/the-recipe-i-want-to-make-right-now.html?s
 
 **Big Hires, Big Money and a D.C. Blitz: A Bold Plan to Dominate Crypto**\
 `The Silicon Valley firm Andreessen Horowitz, whose founders played big roles in the development of the internet, aims to own a huge part of the digital currency world — and set the rules for it, too.`\
-https://nytimes.com/2021/10/29/us/politics/big-hires-big-money-and-a-dc-blitz-a-bold-plan-to-dominate-crypto.html?searchResultPosition=2
+https://nytimes.com/2021/10/29/us/politics/andreessen-horowitz-lobbying-cryptocurrency.html?searchResultPosition=2
 
 **Kristina Wong’s Pandemic Story: Sewing With Her Aunties**\
 `The performance artist ran a mask-making operation during the pandemic. That inspired her new comedy at New York Theater Workshop.`\
