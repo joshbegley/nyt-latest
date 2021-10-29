@@ -19,7 +19,7 @@ https://nytimes.com/2021/10/29/books/review/sea-lions-in-the-parking-lot-lenora-
 https://nytimes.com/2021/10/29/sports/baseball/ronald-acuna-world-series.html?searchResultPosition=5
 
 **DNA Confirms Sitting Bull Was South Dakota Man’s Great-Grandfather**\
-`Ernie LaPointe, the great-grandson of the leader Tatanka Iyotake, said he hopes the DNA confirmation would bolster his campaign to move the chief’s remains.`\
+`Ernie LaPointe, the great-grandson of the leader Tatanka Iyotake, said he hoped the DNA confirmation would bolster his campaign to move the chief’s remains.`\
 https://nytimes.com/2021/10/29/us/sitting-bull-dna-great-grandson.html?searchResultPosition=6
 
 **The Weekender**\
