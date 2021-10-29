@@ -1,40 +1,40 @@
+**Saying Goodbye to Melbourne’s Long Lockdown (Again)**\
+`It’s been a year and a day since the first time Melbourne reopened. Some things have changed. Some haven’t.`\
+https://nytimes.com/2021/10/29/world/australia/saying-goodbye-to-melbournes-long-lockdown-again.html?searchResultPosition=1
+
 **Word of the Day: astute**\
 `This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/29/learning/word-of-the-day-astute.html?searchResultPosition=1
+https://nytimes.com/2021/10/29/learning/word-of-the-day-astute.html?searchResultPosition=2
 
 **Late Night Savors What’s Left of Biden’s ‘Build Back Better’ Plan**\
 `Trevor Noah said the excision of family leave meant that “America will remain the only nation in the world where women try to give birth during their lunch break.”`\
-https://nytimes.com/2021/10/29/arts/television/trevor-noah-biden-plan-health-care.html?searchResultPosition=2
+https://nytimes.com/2021/10/29/arts/television/trevor-noah-biden-plan-health-care.html?searchResultPosition=3
 
 **What Taiwan Really Wants**\
 `Many outsiders are weighing in on what should be done about and on behalf of Taiwan. Few, though, are listening to what Taiwan is saying.`\
-https://nytimes.com/2021/10/29/opinion/taiwan-china-biden.html?searchResultPosition=3
+https://nytimes.com/2021/10/29/opinion/taiwan-china-biden.html?searchResultPosition=4
 
 **This Is How to Stop the Coup in Sudan**\
 `The counterrevolution can still be reversed.`\
-https://nytimes.com/2021/10/29/opinion/sudan-coup-military.html?searchResultPosition=4
+https://nytimes.com/2021/10/29/opinion/sudan-coup-military.html?searchResultPosition=5
 
 **Your Friday Briefing**\
 `President Biden’s struggling social policy bill.`\
-https://nytimes.com/2021/10/29/briefing/biden-policy-china-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2021/10/29/briefing/biden-policy-china-coronavirus.html?searchResultPosition=6
 
 **Nuclear-Powered Submarines for Australia? Maybe Not So Fast.**\
 `Australia’s plan to build the submarines with U.S. and British help faces big hurdles. Supporters say they can be overcome. Critics say they may be too much.`\
-https://nytimes.com/2021/10/29/world/australia/nuclear-powered-submarines.html?searchResultPosition=6
+https://nytimes.com/2021/10/29/world/australia/nuclear-powered-submarines.html?searchResultPosition=7
 
 **M.L.B. Commissioner Can’t Hear Native Voices Over Atlanta’s Chop**\
 `Asked about the Atlanta team’s longstanding use of a faux war chant, Rob Manfred claimed Native Americans in the area are “wholly supportive” of it. That’s not what our columnist found.`\
-https://nytimes.com/2021/10/29/sports/baseball/tomahawk-chop-rob-manfred.html?searchResultPosition=7
+https://nytimes.com/2021/10/29/sports/baseball/tomahawk-chop-rob-manfred.html?searchResultPosition=8
 
 **A Stranger Looked Like My Twin. That Was Just the Beginning.**\
 `How a family secret was unraveled by 23andMe.`\
-https://nytimes.com/2021/10/29/style/modern-love-23andme-family-secret.html?searchResultPosition=8
+https://nytimes.com/2021/10/29/style/modern-love-23andme-family-secret.html?searchResultPosition=9
 
 **For First Time in Public, a Detainee Describes Torture at C.I.A. Black Sites**\
 `In a sentencing hearing, Majid Khan, a Pakistani who lived in suburban Baltimore before joining Al Qaeda, detailed dungeonlike conditions and episodes of abuse.`\
-https://nytimes.com/2021/10/28/us/politics/guantanamo-detainee-torture.html?searchResultPosition=9
-
-**Corrections: Oct. 29, 2021**\
-`Corrections that appeared in print on Friday, Oct. 29, 2021.`\
-https://nytimes.com/2021/10/28/pageoneplus/corrections-oct-29-2021.html?searchResultPosition=10
+https://nytimes.com/2021/10/28/us/politics/guantanamo-detainee-torture.html?searchResultPosition=10
 
