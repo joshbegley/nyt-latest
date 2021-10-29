@@ -1,6 +1,6 @@
 **Politico’s journalists are seeking union recognition from its new owner.**\
 `The labor unit says it has also submitted to the National Labor Relations Board cards from more than 80 percent of eligible workers seeking to form a union.`\
-https://nytimes.com/2021/10/29/business/politic-union.html?searchResultPosition=1
+https://nytimes.com/2021/10/29/business/politico-union.html?searchResultPosition=1
 
 **With world leaders set to gather for the COP26 climate summit, Francis calls for ‘radical’ action.**\
 `Only urgent action can “offer concrete hope to future generations,” the pope said in a reflection broadcast on BBC radio.`\
