@@ -1,6 +1,6 @@
 **Trump’s $300 Million SPAC Deal May Have Skirted Securities Laws**\
 `The former president began discussing a deal with a ‘blank check’ company early this year. Investors weren’t told.`\
-https://nytimes.com/2021/10/29/business/trumps-300-million-spac-deal-may-have-skirted-securities-laws.html?searchResultPosition=1
+https://nytimes.com/2021/10/29/business/trump-spac-digital-world.html?searchResultPosition=1
 
 **Bruce Gaston, American Maestro of Thai Music, Dies at 75**\
 `A transplanted Californian and former conscientious objector, he infused Thai music with Western sounds as a prominent composer and performer based in Bangkok.`\
