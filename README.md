@@ -1,6 +1,6 @@
 **How Venture Capitalists Think Crypto Will Reshape Commerce**\
 `From banking to gaming, investors are sending billions of dollars to crypto inventors who seek to disrupt industries. Here’s a look at some of those bets.`\
-https://nytimes.com/2021/10/29/us/politics/how-venture-capitalists-think-crypto-will-reshape-commerce.html?searchResultPosition=1
+https://nytimes.com/2021/10/29/us/politics/crypto-venture-capitalists-commerce.html?searchResultPosition=1
 
 **Why a Changing Richmond and Its Suburbs Are Key to Virginia’s Vote**\
 `The region has been an engine of Democratic victories, but now the party is on defense as Republicans go after swing voters with worries about schools.`\
