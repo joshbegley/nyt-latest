@@ -31,7 +31,7 @@ https://nytimes.com/2021/10/29/books/richard-hammer-dead.html?searchResultPositi
 https://nytimes.com/2021/10/29/sports/soccer/barcelona-koeman-united-solskjaer.html?searchResultPosition=8
 
 **Tonga records its first Covid case.**\
-`For nearly two years, the remote Pacific island of Tonga has avoided the global pandemic that has infected hundreds of millions of people and left millions dead.`\
+`The Pacific island, 1,100 miles from New Zealand, has quarantined all airport employees on duty after a flight with an infected passenger arrived.`\
 https://nytimes.com/2021/10/29/world/asia/tonga-first-covid-case.html?searchResultPosition=9
 
 **‘Rust’ Armorer Has ‘No Idea’ How Live Rounds Got on Set, Lawyers Say**\
