@@ -1,40 +1,40 @@
+**With Accusations of Abuse, Kyle Beach Forces N.H.L. to Confront Its Failings**\
+`The cultural problems of hockey seem to have met a moment that makes them impossible to ignore, and when consequences — however belatedly — are finally being meted out.`\
+https://nytimes.com/2021/10/29/sports/hockey/nhl-blackhawks-kyle-beach-sex-abuse.html?searchResultPosition=1
+
+**Mark Zuckerberg Got a Bit Meta in His Meta Presentation**\
+`For those watching closely, his 80-minute video announcing Facebook’s rebrand delivered some self-referential jokes.`\
+https://nytimes.com/2021/10/29/style/mark-zuckerberg-meta-jokes.html?searchResultPosition=2
+
 **Supreme Court Won’t Block Maine’s Vaccine Mandate for Health Care Workers**\
-`A state regulation that allows exemptions on medical but not religious grounds was challenged by workers who said being vaccinated was at odds with their faith.`\
-https://nytimes.com/2021/10/29/us/supreme-court-maine-vaccine-mandate.html?searchResultPosition=1
+`A state regulation that does not allow exemptions on religious grounds was challenged by workers who said taking a coronavirus vaccine was at odds with their faith.`\
+https://nytimes.com/2021/10/29/us/supreme-court-maine-vaccine-mandate.html?searchResultPosition=3
 
 **Supreme Court to Hear Case on E.P.A.’s Power to Limit Carbon Emissions**\
 `The case, brought by Republican-led states and coal companies, could frustrate the Biden administration’s efforts to address climate change.`\
-https://nytimes.com/2021/10/29/us/scotus-epa-carbon-emissions.html?searchResultPosition=2
+https://nytimes.com/2021/10/29/us/scotus-epa-carbon-emissions.html?searchResultPosition=4
 
 **Biden Admits U.S. Handling of Submarine Deal Was ‘Clumsy’**\
 `President Biden met with President Emmanuel Macron of France at the French Embassy in Rome to reaffirm their relationship, after Australia called off a nuclear-powered submarine deal with France, and inked a deal with the United States and Britain instead.`\
-https://nytimes.com/video/world/europe/100000008051686/biden-macron-meet-g20.html?searchResultPosition=3
+https://nytimes.com/video/world/europe/100000008051686/biden-macron-meet-g20.html?searchResultPosition=5
 
 **Coronavirus Vaccine, G20, Halloween: Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/10/29/briefing/coronavirus-vaccine-g20-halloween.html?searchResultPosition=4
+https://nytimes.com/2021/10/29/briefing/coronavirus-vaccine-g20-halloween.html?searchResultPosition=6
 
 **Trump’s $300 Million SPAC Deal May Have Skirted Securities Laws**\
 `The former president began discussing a deal with a ‘blank check’ company early this year. Investors weren’t told.`\
-https://nytimes.com/2021/10/29/business/trump-spac-digital-world.html?searchResultPosition=5
+https://nytimes.com/2021/10/29/business/trump-spac-digital-world.html?searchResultPosition=7
 
 **Bruce Gaston, American Maestro of Thai Music, Dies at 75**\
 `A transplanted Californian and former conscientious objector, he infused Thai music with Western sounds as a prominent composer and performer based in Bangkok.`\
-https://nytimes.com/2021/10/29/arts/music/bruce-gaston-dead.html?searchResultPosition=6
+https://nytimes.com/2021/10/29/arts/music/bruce-gaston-dead.html?searchResultPosition=8
 
 **To Feed the Dead, You First Need Pan de Muerto**\
 `The sweet Mexican bread is put on altars to honor, remember and feed dead family members crossing over on Día de los Muertos.`\
-https://nytimes.com/2021/10/29/dining/pan-de-muerto-dia-de-los-muertos.html?searchResultPosition=7
+https://nytimes.com/2021/10/29/dining/pan-de-muerto-dia-de-los-muertos.html?searchResultPosition=9
 
 **Slow-Moving Storm to Bring Heavy Flooding to Mid-Atlantic**\
 `A National Weather Service forecaster warned that heavy rain during high tides could lead to “astronomical surges” of ocean water.`\
-https://nytimes.com/2021/10/29/us/mid-atlantic-storm-flooding.html?searchResultPosition=8
-
-**Coronavirus Briefing: What Happened Today**\
-`Pandemic book recommendations, from Times critics and readers.`\
-https://nytimes.com/2021/10/29/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=9
-
-**Sheriff Says He Charged Cuomo Without Coordinating With Albany D.A.**\
-`The district attorney has not committed to prosecuting former Gov. Andrew M. Cuomo on a sex crime charge, and the decision to file charges independently was unusual in a high-profile case, experts said.`\
-https://nytimes.com/2021/10/29/nyregion/cuomo-charged-brittany-commisso.html?searchResultPosition=10
+https://nytimes.com/2021/10/29/us/mid-atlantic-storm-flooding.html?searchResultPosition=10
 
