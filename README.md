@@ -1,5 +1,5 @@
 **Officer Who Hired Hit Man to Kill Her Husband and Young Girl Is Sentenced**\
-`Valerie Cincinelli, a former New York police officer, got four years in prison for seeking a to enlist her boyfriend in a murder-for-hire scheme.`\
+`Valerie Cincinelli, a former New York police officer, got four years in prison for seeking to enlist her boyfriend in a murder-for-hire scheme.`\
 https://nytimes.com/2021/10/29/nyregion/nypd-officer-hitman-sentenced.html?searchResultPosition=1
 
 **Wall Street’s climb makes October the best month this year.**\
