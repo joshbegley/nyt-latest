@@ -24,7 +24,7 @@ https://nytimes.com/2021/10/29/nyregion/nyc-schools-enrollment-covid.html?search
 
 **What Is Day of the Dead, the Mexican Holiday?**\
 `Popularized by Hollywood in films like “Coco” and the James Bond franchise, Día de Muertos is a centuries-old tradition that has roots in Indigenous culture.`\
-https://nytimes.com/2021/10/29/world/americas/day-of-the-dead-mexico.html?searchResultPosition=7
+https://nytimes.com/article/day-of-the-dead-mexico.html?searchResultPosition=7
 
 **Queen Elizabeth Urged by Doctors to Rest at Least 2 Weeks**\
 `The advice from her medical team has heightened the worry about the health of the 95-year-old monarch, who has canceled the public appearances that had been on her calendar.`\
