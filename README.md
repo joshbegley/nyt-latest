@@ -26,8 +26,8 @@ https://nytimes.com/video/world/100000008051355/who-director-general-coronavirus
 `Valerie Cincinelli, a former New York police officer, got four years in prison for seeking to enlist her boyfriend in a murder-for-hire scheme.`\
 https://nytimes.com/2021/10/29/nyregion/nypd-officer-hitman-sentenced.html?searchResultPosition=7
 
-**Wall Street’s climb makes October the best month this year.**\
-`The S&P 500 rose close to 7 percent for the month as strong earnings reports and progress toward a spending deal in Washington helped investors shake off a number of concerns.`\
+**Wall Street’s climb makes October the best month for stocks this year.**\
+`The S&P 500 rose nearly 7 percent for the month as strong earnings reports and progress toward a spending deal in Washington helped investors shake off a number of concerns.`\
 https://nytimes.com/2021/10/29/business/stock-market-record.html?searchResultPosition=8
 
 **Rose Lee Maphis, Early Star of Country Music TV, Dies at 98**\
