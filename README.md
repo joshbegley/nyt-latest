@@ -18,7 +18,7 @@ https://nytimes.com/2021/10/29/realestate/top-nyc-real-estate-sales.html?searchR
 `Take a tour of the Carlsbad Desalination Plant.`\
 https://nytimes.com/2021/10/29/us/san-diego-drinking-water.html?searchResultPosition=5
 
-**Exxon Mobil and Chevron report higher profits, helped by rising oil prices.**\
+**Exxon Mobil and Chevron continue to report higher profits, helped by rising oil prices.**\
 `In the third quarter, the companies continued their rebound from the collapse in demand at the start of the coronavirus pandemic.`\
 https://nytimes.com/2021/10/29/business/energy-environment/exxon-mobil-chevron-earnings.html?searchResultPosition=6
 
