@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘A Future for People With Disabilities in Outer Space Takes Flight’**\
-`In this lesson, students will learn about efforts being made to make spaceflight more accessible. Then, they will consider accessibility in their community.`\
-https://nytimes.com/2021/10/29/learning/lesson-plans/lesson-of-the-day-a-future-for-people-with-disabilities-in-outer-space-takes-flight.html?searchResultPosition=1
+**Taking a Royal Pavilion Apart, Piece by Piece**\
+`Artisans from throughout Korea helped renovate the small waterfront structure at Gyeongbokgung Palace.`\
+https://nytimes.com/2021/10/29/fashion/craftsmanship-seoul-palace-pavilion.html?searchResultPosition=1
 
-**‘Paranormal Activity: Next of Kin’ Review: Still Recording**\
-`With this new installment, the found-footage franchise incorporates Covid-19, Amish country and too many cameras.`\
-https://nytimes.com/2021/10/29/movies/paranormal-activity-next-of-kin-review.html?searchResultPosition=2
+**A Republican Leader’s Idea for Our Supply Chain Crisis**\
+`Senator Josh Hawley’s guest essay outlines his proposal for legislation to try to spur the sale of more American goods.`\
+https://nytimes.com/2021/10/29/opinion/josh-hawley-supply-chain.html?searchResultPosition=2
 
-**Keep or Replace? The Fate of the Minneapolis Police Is in Voters’ Hands.**\
-`In the city where the “defund the police” movement took off, voters will decide next week whether to replace their Police Department with a new public safety agency.`\
-https://nytimes.com/2021/10/29/us/minneapolis-police-ballot-measure.html?searchResultPosition=3
+**Miami Prepares for Formula 1**\
+`A second Grand Prix in the United States will be held in the city next May.`\
+https://nytimes.com/2021/10/29/sports/autoracing/miami-formula-1-race.html?searchResultPosition=3
 
-**‘America Is Back,’ Biden Declared in June. The World Is About to Test Him.**\
-`Arriving in Europe with an unfinished economic and environmental spending plan, the president will confront new challenges, some self-inflicted, at two major summits.`\
-https://nytimes.com/2021/10/29/us/politics/biden-summit.html?searchResultPosition=4
+**Sebastian Vettel Has Another Goal: A Better World**\
+`The Aston Martin driver has been focusing on the environment and on L.G.B.T.Q. issues.`\
+https://nytimes.com/2021/10/29/sports/autoracing/sebastian-vettel-better-world.html?searchResultPosition=4
 
-**Stripped of the All-Star Game, Atlanta Hopes to Make Up for Lost Time**\
-`A tribute to Hank Aaron will kick off the World Series in a city and region still resentful of M.L.B.’s decision to step into the political fray.`\
-https://nytimes.com/2021/10/29/sports/baseball/atlanta-hank-aaron-tribute.html?searchResultPosition=5
+**A Childhood in Uganda Shapes Designs in Finland**\
+`Lincoln Kayiwa puts his memories into furniture and home accessories.`\
+https://nytimes.com/2021/10/29/fashion/craftsmanship-lincoln-kayiwa-helsinki-finland.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/29/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**‘Different Way of Fighting’: Lyrics Are the Weapons of All-Women Roma Band**\
+`Many Roma women face pressures to marry young and take on traditional gender roles. Pretty Loud, a hip-hop group from Serbia, wants girls to decide for themselves.`\
+https://nytimes.com/2021/10/29/world/europe/roma-hip-hop-band-serbia-pretty-loud.html?searchResultPosition=6
 
-**Dog Park Friendship**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2021/10/29/learning/dog-park-friendship.html?searchResultPosition=7
+**Glimpsing a Soon-to-Vanish Surrealist World in Chelsea**\
+`Their apartment is “a piece of art we created together,” Tom Shivers said. Now the vast collection assembled with his late husband, Neil Zukerman, will help start a museum.`\
+https://nytimes.com/2021/10/29/arts/design/neil-zukerman-tom-shivers-apartment.html?searchResultPosition=7
 
-**Saying Goodbye to Melbourne’s Long Lockdown (Again)**\
-`It’s been a year and a day since the first time Melbourne reopened. Some things have changed. Some haven’t.`\
-https://nytimes.com/2021/10/29/world/australia/saying-goodbye-to-melbournes-long-lockdown-again.html?searchResultPosition=8
+**Greece Is Getting Rewired for the Future**\
+`As climate change bears down, Greece is upending its sources of energy and trying to reshape its economic destiny.`\
+https://nytimes.com/2021/10/29/business/greece-green-energy-climate-eu.html?searchResultPosition=8
 
-**Word of the Day: astute**\
-`This word has appeared in 92 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/10/29/learning/word-of-the-day-astute.html?searchResultPosition=9
+**How the Resident of a N.Y.C. Cemetery Spends His Sundays**\
+`As the director of horticulture for Green-Wood Cemetery, Joe Charap gets to live in an 1876 caretaker’s house on the grounds.`\
+https://nytimes.com/2021/10/29/nyregion/green-wood-cemetery-nyc.html?searchResultPosition=9
 
-**Late Night Savors What’s Left of Biden’s ‘Build Back Better’ Plan**\
-`Trevor Noah said the excision of family leave meant that “America will remain the only nation in the world where women try to give birth during their lunch break.”`\
-https://nytimes.com/2021/10/29/arts/television/trevor-noah-biden-plan-health-care.html?searchResultPosition=10
+**As the Trial in Ahmaud Arbery’s Killing Nears, a Community Is on Edge**\
+`In the months since Mr. Arbery was shot to death, Brunswick, Ga., has been focused on issues of racial inequality.`\
+https://nytimes.com/2021/10/29/us/ahmaud-arbery-killing-trial.html?searchResultPosition=10
 
