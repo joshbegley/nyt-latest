@@ -18,7 +18,7 @@ https://nytimes.com/2021/10/29/arts/music/bruce-gaston-dead.html?searchResultPos
 `The sweet Mexican bread is put on altars to honor, remember and feed dead family members crossing over on Día de los Muertos.`\
 https://nytimes.com/2021/10/29/dining/pan-de-muerto-dia-de-los-muertos.html?searchResultPosition=5
 
-**Slow-Moving Storm Could Bring Heavy Flooding to Mid-Atlantic**\
+**Slow-Moving Storm to Bring Heavy Flooding to Mid-Atlantic**\
 `A National Weather Service forecaster warned that heavy rain during high tides could lead to “astronomical surges” of ocean water.`\
 https://nytimes.com/2021/10/29/us/mid-atlantic-storm-flooding.html?searchResultPosition=6
 
