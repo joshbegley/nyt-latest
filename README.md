@@ -8,7 +8,7 @@ https://nytimes.com/video/us/politics/100000008049652/oil-company-hearing-democr
 
 **Family Members Separated at Border May Each Get Up to $450,000**\
 `After the Trump administration separated migrant parents from children at the southern border, President Biden pledged to make it up to the families.`\
-https://nytimes.com/2021/10/28/us/politics/family-separation-trump-policy-compensation.html?searchResultPosition=3
+https://nytimes.com/2021/10/28/us/politics/trump-family-separation-border.html?searchResultPosition=3
 
 **The Common Halloween Candy Mistakes That Parents Make**\
 `The annual trick-or-treating haul is a challenge for parents trying to balance holiday fun with healthy eating habits.`\
