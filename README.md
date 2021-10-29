@@ -35,6 +35,6 @@ https://nytimes.com/2021/10/29/nyregion/letitia-james-governor.html?searchResult
 https://nytimes.com/2021/10/29/books/review/sea-lions-in-the-parking-lot-lenora-todaro-annika-siems-tracking-tortoises-kate-messner.html?searchResultPosition=9
 
 **Atlanta’s Sidelined Superstar Can Picture Himself Out There**\
-`Ronald Acuña Jr. is disappointed that an injury has kept him out of the World Series. But, the superstar outfielder said, “it’s my turn to be on the bench supporting my teammates.”`\
+`Ronald Acuña Jr. is disappointed that an injury has kept him out of the World Series. But, the All-Star outfielder said, “it’s my turn to be on the bench supporting my teammates.”`\
 https://nytimes.com/2021/10/29/sports/baseball/ronald-acuna-world-series.html?searchResultPosition=10
 
