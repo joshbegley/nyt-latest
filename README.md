@@ -1,40 +1,40 @@
-**Italy deploys a vast security apparatus, hoping to avoid a repeat of past chaos.**\
-`In 2001, a Group of 8 summit in Genoa was met with protests that turned violent.`\
-https://nytimes.com/2021/10/30/world/europe/g20-summit-rome-security.html?searchResultPosition=1
+**Court Filing Lists Documents Trump Seeks to Withhold From Jan. 6 Inquiry**\
+`The National Archives says the former president is asserting executive privilege over phone logs, notes and other records concerning the attack on the Capitol.`\
+https://nytimes.com/2021/10/30/us/politics/trump-capitol-riot-inquiry.html?searchResultPosition=1
 
-**Protesters speak out over environmental and social issues.**\
-`“There will be many of us,” one organizer said of a demonstration planned to coincide with the G20 gathering.`\
-https://nytimes.com/2021/10/30/world/europe/g20-rome-protests.html?searchResultPosition=2
+**In the Rural West, Some Residents are Taking Firefighting Into Their Own Hands**\
+`As wildfire seasons worsen, a growing number of rural residents are buying and outfitting fire rigs and other equipment to protect their property and themselves.`\
+https://nytimes.com/2021/10/30/us/wildfires-landowners-trucks.html?searchResultPosition=2
 
-**As Sudan Prepares for Protests, U.S. Warns Generals Against Violence**\
-`Activists called for a “march of millions” on Saturday, days after the military seized power. American officials said peaceful demonstrations must be permitted.`\
-https://nytimes.com/2021/10/30/world/africa/sudan-protests-coup.html?searchResultPosition=3
+**A Call of ‘Cold Gun!’ A Live Round. And Death on a Film Set.**\
+`A reconstruction of the events leading up to the fatal shooting of the cinematographer of “Rust,” the Alec Baldwin western, reveals a troubled production and a series of errors.`\
+https://nytimes.com/2021/10/30/movies/alec-baldwin-rust-shooting-timeline.html?searchResultPosition=3
 
-**Curtis Sliwa Has New York’s Attention Again. Was That Always the Point?**\
-`The founder of the Guardian Angels has sought the spotlight for decades. With his long-shot bid to become the city’s next mayor, he has found it again.`\
-https://nytimes.com/2021/10/30/nyregion/curtis-sliwa-nyc-mayor.html?searchResultPosition=4
+**The Next Generation of Men’s Tennis**\
+`Fixing this and that in their games, these 10 players could join the elite.`\
+https://nytimes.com/2021/10/30/sports/tennis/mens-players-top-young.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/10/30/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**How the Supply Chain Stole Halloween**\
+`Good luck trying to find a meme-inspired costume, or any costume at all.`\
+https://nytimes.com/2021/10/30/business/halloween-supply-chain.html?searchResultPosition=5
 
-**Atlanta Flirts With a No-Hitter and Takes Series Lead**\
-`After the team honored Hank Aaron, Atlanta’s pitchers baffled Houston’s offense, holding the powerful Astros hitless through seven innings.`\
-https://nytimes.com/2021/10/29/sports/baseball/braves-astros-world-series-game-3.html?searchResultPosition=6
+**What if It Never Gets Easier to Be a Working Parent?**\
+`The shock of the pandemic threw care taking arrangements into disarray. Many families find themselves back in the same precarious arrangement they had before, with the burden still on mothers.`\
+https://nytimes.com/2021/10/30/business/paid-family-leave-working-parents.html?searchResultPosition=6
 
-**Quotation of the Day: A $19 Cloth: A Must-Buy and a Meme**\
-`Quotation of the Day for Saturday, October 30, 2021.`\
-https://nytimes.com/2021/10/29/todayspaper/quotation-of-the-day-a-19-cloth-a-must-buy-and-a-meme.html?searchResultPosition=7
+**Xi Hasn’t Left China in 21 Months. Covid May Be Only Part of the Reason.**\
+`Xi Jinping’s lack of face time with world leaders signals a turn inward on domestic issues and a reluctance to compromise on the global stage.`\
+https://nytimes.com/2021/10/30/world/asia/china-xi-jinping-g20.html?searchResultPosition=7
 
-**Corrections: Oct. 30, 2021**\
-`Corrections that appeared in print on Saturday, Oct. 30, 2021.`\
-https://nytimes.com/2021/10/29/pageoneplus/corrections-oct-30-2021.html?searchResultPosition=8
+**When the Soviets Set Off the Biggest Nuclear Bomb, J.F.K. Didn’t Flinch**\
+`A new study offers insights into how the United States reacted to Tsar Bomba, a planet shaker that made the deadly Hiroshima blast look tame.`\
+https://nytimes.com/2021/10/30/science/tsar-bomba-60.html?searchResultPosition=8
 
-**Prince Andrew Mounts Attack Against Woman Who Accused Him of Sexual Abuse**\
-`Andrew, the second son of Queen Elizabeth II, said the woman was seeking financial gain from one of the world’s best known royal families.`\
-https://nytimes.com/2021/10/29/nyregion/prince-andrew-jeffrey-epstein.html?searchResultPosition=9
+**Seattle’s Choice: A Police Abolitionist or a Law-and-Order Republican?**\
+`The finalists in the race to become Seattle’s next city attorney have extreme differences in their views. Some residents are wary of both of them.`\
+https://nytimes.com/2021/10/30/us/seattle-city-attorney-election.html?searchResultPosition=9
 
-**Low-Lying Areas?**\
-`Michael Hawkins catches us at home with a screwball puzzle.`\
-https://nytimes.com/2021/10/29/crosswords/daily-puzzle-2021-10-30.html?searchResultPosition=10
+**Why the Vampire Myth Won’t Die**\
+`Bloodsucking monsters are avatars for our cultural anxieties. Especially now.`\
+https://nytimes.com/2021/10/30/style/vampires-coronavirus.html?searchResultPosition=10
 
