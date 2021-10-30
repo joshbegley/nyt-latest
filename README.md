@@ -2,7 +2,7 @@
 `The National Archives says the former president is asserting executive privilege over phone logs, notes and other records concerning the attack on the Capitol.`\
 https://nytimes.com/2021/10/30/us/politics/trump-capitol-riot-inquiry.html?searchResultPosition=1
 
-**In the Rural West, Some Residents are Taking Firefighting Into Their Own Hands**\
+**In the Rural West, Some Residents Are Taking Firefighting Into Their Own Hands**\
 `As wildfire seasons worsen, a growing number of rural residents are buying and outfitting fire rigs and other equipment to protect their property and themselves.`\
 https://nytimes.com/2021/10/30/us/wildfires-landowners-trucks.html?searchResultPosition=2
 
