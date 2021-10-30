@@ -30,7 +30,7 @@ https://nytimes.com/2021/10/29/opinion/facebook-zuckerberg-metaverse.html?search
 `After being hired as expert witnesses for groups opposing a restrictive voting law, three University of Florida academics were told they could not participate in the lawsuit against the state.`\
 https://nytimes.com/2021/10/29/us/florida-professors-voting-rights-lawsuit.html?searchResultPosition=8
 
-**Sanitation Department vaccinations rise from 67 percent to 76 percent in a day as N.Y.C.’s mandate arrives.**\
+**Sanitation Dept. vaccinations rise from 67 percent to 76 percent in a day as N.Y.C.’s mandate arrives.**\
 `Vaccinations also rose in the Police Department, but tensions were running high in the city and garbage was piling up on the streets.`\
 https://nytimes.com/2021/10/29/world/nyc-vaccine-mandate-resistance.html?searchResultPosition=9
 
