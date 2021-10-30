@@ -1,5 +1,5 @@
-**SpaceX to Launch Crew-3 Astronauts for NASA: How to Watch**\
-`The four crew members, three Americans and one German, will lift off early on Sunday. Here’s what you need to know.`\
+**Weather Delays SpaceX Launch of Crew-3 Astronauts for NASA**\
+`The four crew members, three Americans and one German, were originally scheduled to launch on Sunday.`\
 https://nytimes.com/2021/10/30/science/spacex-launch-time-live-stream.html?searchResultPosition=1
 
 **How Should Billionaires Be Taxed?**\
