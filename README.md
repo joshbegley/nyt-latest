@@ -1,5 +1,5 @@
-**Protesters plan to speak out over environmental and social issues.**\
-`By Emma Bubola`\
+**Protesters speak out over environmental and social issues.**\
+`“There will be many of us,” one organizer said of a demonstration planned to coincide with the G20 gathering.`\
 https://nytimes.com/2021/10/30/world/europe/g20-rome-protests.html?searchResultPosition=1
 
 **As Sudan Prepares for Protests, U.S. Warns Generals Against Violence**\
