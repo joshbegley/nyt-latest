@@ -2,7 +2,7 @@
 `Several thousand people marched in Rome as the Group of 20 summit was underway. The demonstrators included a broad range of groups, including climate activists, vaccine skeptics and labor union members.`\
 https://nytimes.com/video/world/europe/100000008052797/g20-rome-protests.html?searchResultPosition=1
 
-**Biden received communion at a church in Rome, a day after the pope’s blessing.**\
+**Biden receives communion at a church in Rome, a day after the pope’s blessing.**\
 `Some conservative bishops in the United States have said the president should be denied communion because of his support for abortion rights.`\
 https://nytimes.com/2021/10/30/world/biden-communion-rome-g20.html?searchResultPosition=2
 
