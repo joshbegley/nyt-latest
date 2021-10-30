@@ -1,5 +1,5 @@
 **Atlanta Flirts With a No-Hitter and Takes Series Lead**\
-`After the team honored Hank Aaron, Atlanta’s pitchers baffled Houston’s offense, holding the Astros hitless through seven innings.`\
+`After the team honored Hank Aaron, Atlanta’s pitchers baffled Houston’s offense, holding the powerful Astros hitless through seven innings.`\
 https://nytimes.com/2021/10/29/sports/baseball/braves-astros-world-series-game-3.html?searchResultPosition=1
 
 **Quotation of the Day: A $19 Cloth: A Must-Buy and a Meme**\
