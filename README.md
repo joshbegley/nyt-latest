@@ -1,40 +1,40 @@
+**Curtis Sliwa Has New York’s Attention Again. Was That Always the Point?**\
+`The founder of the Guardian Angels has sought the spotlight for decades. With his long-shot bid to become the city’s next mayor, he has found it again.`\
+https://nytimes.com/2021/10/30/nyregion/curtis-sliwa-nyc-mayor.html?searchResultPosition=1
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2021/10/30/crosswords/spelling-bee-forum.html?searchResultPosition=2
+
 **Atlanta Flirts With a No-Hitter and Takes Series Lead**\
 `After the team honored Hank Aaron, Atlanta’s pitchers baffled Houston’s offense, holding the powerful Astros hitless through seven innings.`\
-https://nytimes.com/2021/10/29/sports/baseball/braves-astros-world-series-game-3.html?searchResultPosition=1
+https://nytimes.com/2021/10/29/sports/baseball/braves-astros-world-series-game-3.html?searchResultPosition=3
 
 **Quotation of the Day: A $19 Cloth: A Must-Buy and a Meme**\
 `Quotation of the Day for Saturday, October 30, 2021.`\
-https://nytimes.com/2021/10/29/todayspaper/quotation-of-the-day-a-19-cloth-a-must-buy-and-a-meme.html?searchResultPosition=2
+https://nytimes.com/2021/10/29/todayspaper/quotation-of-the-day-a-19-cloth-a-must-buy-and-a-meme.html?searchResultPosition=4
 
 **Corrections: Oct. 30, 2021**\
 `Corrections that appeared in print on Saturday, Oct. 30, 2021.`\
-https://nytimes.com/2021/10/29/pageoneplus/corrections-oct-30-2021.html?searchResultPosition=3
+https://nytimes.com/2021/10/29/pageoneplus/corrections-oct-30-2021.html?searchResultPosition=5
 
 **Prince Andrew Mounts Attack Against Woman Who Accused Him of Sexual Abuse**\
 `Andrew, the second son of Queen Elizabeth II, said the woman was seeking financial gain from one of the world’s best known royal families.`\
-https://nytimes.com/2021/10/29/nyregion/prince-andrew-jeffrey-epstein.html?searchResultPosition=4
+https://nytimes.com/2021/10/29/nyregion/prince-andrew-jeffrey-epstein.html?searchResultPosition=6
 
 **Low-Lying Areas?**\
 `Michael Hawkins catches us at home with a screwball puzzle.`\
-https://nytimes.com/2021/10/29/crosswords/daily-puzzle-2021-10-30.html?searchResultPosition=5
+https://nytimes.com/2021/10/29/crosswords/daily-puzzle-2021-10-30.html?searchResultPosition=7
 
 **At World Series, Atlanta Finally Gets Its Tribute to Hank Aaron**\
 `A video tribute, a standing ovation to his widow and a first pitch thrown by his son highlighted a pregame ceremony.`\
-https://nytimes.com/2021/10/29/sports/baseball/hank-aaron-tribute.html?searchResultPosition=6
+https://nytimes.com/2021/10/29/sports/baseball/hank-aaron-tribute.html?searchResultPosition=8
 
 **Slow-Moving Storm Batters the Mid-Atlantic**\
 `A large storm prompted coastal flooding and heavy rain warnings from Virginia to parts of New Jersey.`\
-https://nytimes.com/video/us/100000008052265/storm-flooding-mid-atlantic-northeast.html?searchResultPosition=7
+https://nytimes.com/video/us/100000008052265/storm-flooding-mid-atlantic-northeast.html?searchResultPosition=9
 
 **Protests Continue in Sudan**\
 `Demonstrators took to the streets days after the military seized power in a coup on Sunday. They are demanding that the army chief, Lt. Gen. Abdel Fattah al-Burhan, step down and allow civilian rule.`\
-https://nytimes.com/video/world/africa/100000008052247/sudan-protests-military-coup.html?searchResultPosition=8
-
-**We Need to Talk About an Off-Ramp for Masking at School**\
-`With vaccines soon available to kids 5 and up, planning should start now.`\
-https://nytimes.com/2021/10/29/opinion/mask-kids-vaccine.html?searchResultPosition=9
-
-**Ten Republican-led states sue over Biden’s vaccination mandate for federal contractors.**\
-`The lawsuit is being led by Missouri’s attorney general, Eric Schmitt, and the attorney general of Nebraska, Doug Peterson.`\
-https://nytimes.com/2021/10/29/world/vaccine-mandate-states-sue.html?searchResultPosition=10
+https://nytimes.com/video/world/africa/100000008052247/sudan-protests-military-coup.html?searchResultPosition=10
 
