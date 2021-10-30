@@ -26,8 +26,8 @@ https://nytimes.com/2021/10/29/opinion/facebook-zuckerberg-metaverse.html?search
 `After being hired as expert witnesses for groups opposing a restrictive voting law, three University of Florida academics were told they could not participate in the lawsuit against the state.`\
 https://nytimes.com/2021/10/29/us/florida-professors-voting-rights-lawsuit.html?searchResultPosition=7
 
-**Tensions rise over N.Y.C.’s vaccine mandate as firefighters are disciplined and garbage piles up.**\
-`Vaccinations in the Police Department rose by at least 5 percent over the last week, but to a lesser extent in the Fire and Sanitation Departments.`\
+**Sanitation Department vaccinations rise 9 percent in a day as N.Y.C.’s mandate arrives.**\
+`Vaccinations also rose in the Police Department, but tensions were running high in the city and garbage was piling up on the streets.`\
 https://nytimes.com/2021/10/29/world/nyc-vaccine-mandate-resistance.html?searchResultPosition=8
 
 **Jo-Carroll Dennison, Miss America During World War II, Dies at 97**\
