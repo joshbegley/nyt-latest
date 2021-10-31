@@ -22,8 +22,8 @@ https://nytimes.com/2021/10/30/world/asia/japan-election-fumio-kishida.html?sear
 `A New York Times visual investigation rolled back the footage of fatal traffic stops to examine the causes and the consequences of officer-created jeopardy.`\
 https://nytimes.com/interactive/2021/10/30/video/police-traffic-stops-danger-video.html?searchResultPosition=6
 
-**For the Astros, a Struggling Core Is Complicating Things**\
-`Alex Bregman, Jose Altuve and Carlos Correa have been to the World Series before, and they know what to expect. So far, Atlanta’s stellar pitching has contained them.`\
+**With Its Battle-Tested Core Struggling, the Astros are on the Brink**\
+`A Houston offense featuring Alex Bregman, Jose Altuve and Carlos Correa led the majors in runs and batting average. So far, Atlanta’s stellar pitching has contained them.`\
 https://nytimes.com/2021/10/30/sports/baseball/bregman-altuve-correa-astros.html?searchResultPosition=8
 
 **Choice Words**\
