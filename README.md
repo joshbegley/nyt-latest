@@ -1,6 +1,6 @@
 **The F.D.A. is assessing whether the Moderna vaccine can cause heart problems in adolescents.**\
 `The F.D.A. has notified Moderna that it needs more time to review the vaccine’s safety and may not deliver a decision until January.`\
-https://nytimes.com/2021/10/31/world/moderan-covid-vaccine-teens-myocarditis.html?searchResultPosition=1
+https://nytimes.com/2021/10/31/world/moderna-covid-vaccine-teens-myocarditis.html?searchResultPosition=1
 
 **The Places in New York City Where Republicans Still Stand a Chance**\
 `In some New York City Council races, supporting former President Donald Trump is seen as a positive by voters.`\
