@@ -2,7 +2,7 @@
 `Intercollegiate golf was born in 1896 when Yale thrashed Columbia with mashies and niblicks. Armed with titanium drivers, Columbia sought revenge.`\
 https://nytimes.com/2021/10/31/sports/golf/yale-columbia-ivy-league.html?searchResultPosition=1
 
-**Late Homers Have Atlanta on the Brink of a Championship**\
+**Late Homers Have Atlanta on the Cusp of a Championship**\
 `Atlanta shocked Houston with back-to-back homers in the seventh inning, putting the team one win from its first World Series title since 1995.`\
 https://nytimes.com/2021/10/30/sports/baseball/braves-astros-world-series-game-4.html?searchResultPosition=2
 
