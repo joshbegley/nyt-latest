@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/30/science/space/aurora-northern-lights.html?searchR
 https://nytimes.com/2021/10/30/business/economy/biden-steel-tariffs-europe.html?searchResultPosition=7
 
 **High Tidal Surges Bring Floods to the Mid-Atlantic Region**\
-`The impact was not as severe as forecasters had feared in some places, though flood warnings and advisories remained in effect on Saturday.`\
+`The impact in some areas was not as severe as forecasters had feared, though flood warnings and advisories remained in effect on Saturday.`\
 https://nytimes.com/2021/10/30/us/flooding-new-jersey-maryland-virginia.html?searchResultPosition=8
 
 **He Ran the First N.Y.C. Marathon. Next Week, He’ll Run the 50th.**\
