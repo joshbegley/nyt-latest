@@ -23,7 +23,7 @@ https://nytimes.com/2021/10/31/opinion/all-saints-day.html?searchResultPosition=
 https://nytimes.com/2021/10/31/us/politics/saudi-investment-conference-trump-allies.html?searchResultPosition=6
 
 **Will Glasgow Be the Climate Breakthrough We Need?**\
-`Time  is running down rapidly for the nations of the world to get control of their emissions`\
+`Time  is running down rapidly for the nations of the world to get control of their emissions. `\
 https://nytimes.com/2021/10/31/opinion/climate-change-glasgow.html?searchResultPosition=7
 
 **What to Cook This Week**\
