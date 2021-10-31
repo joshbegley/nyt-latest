@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2021/10/30/video/police-traffic-stops-danger-vid
 
 **With Its Battle-Tested Core Struggling, the Astros are on the Brink**\
 `A Houston offense featuring Alex Bregman, Jose Altuve and Carlos Correa led the majors in runs and batting average. So far, Atlanta’s stellar pitching has contained them.`\
-https://nytimes.com/2021/10/30/sports/baseball/bregman-altuve-correa-astros.html?searchResultPosition=8
+https://nytimes.com/2021/10/30/sports/baseball/astros-offense-world-series.html?searchResultPosition=8
 
 **Choice Words**\
 `Solving this twisty Alex Eaton-Salners puzzle is truly an ordeal.`\
