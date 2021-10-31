@@ -26,15 +26,15 @@ https://nytimes.com/2021/10/31/arts/music/rock-and-roll-hall-of-fame-jay-z.html?
 `Countries will “pursue efforts” to limit global temperature rise to 1.5 degrees Celsius, compared with preindustrial times.`\
 https://nytimes.com/2021/10/31/world/europe/g20-climate-temperature-rise.html?searchResultPosition=7
 
-**“Vax” is Oxford’s 2021 word of the year.**\
-`By Jennifer Schuessler`\
-https://nytimes.com/2021/10/31/world/vax-oxford-word-of-the-year.html?searchResultPosition=8
-
 **American Airlines Cancels Hundreds of Flights This Weekend**\
 `The carrier blamed bad weather and staffing shortages. It was the second airline this month to face significant disruptions.`\
-https://nytimes.com/2021/10/31/business/american-airlines-cancels-flights.html?searchResultPosition=9
+https://nytimes.com/2021/10/31/business/american-airlines-cancels-flights.html?searchResultPosition=8
 
 **Why Paid Family Leave’s Demise This Time Could Fuel It Later**\
 `In failing to secure a benefit with bipartisan appeal, President Biden joins a long line of frustrated politicians. But some Republicans say it could be resurrected on its own.`\
-https://nytimes.com/2021/10/31/us/politics/paid-family-leave.html?searchResultPosition=10
+https://nytimes.com/2021/10/31/us/politics/paid-family-leave.html?searchResultPosition=9
+
+**Attacks on Tenure, in Georgia and Beyond**\
+`Attacks on tenure. Also: Angela Merkel and the future of Europe; beyond the nuclear family; "Squid Game."`\
+https://nytimes.com/2021/10/31/opinion/letters/tenure-georgia.html?searchResultPosition=10
 
