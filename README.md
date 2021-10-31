@@ -7,7 +7,7 @@ https://nytimes.com/2021/10/31/world/asia/afghanistan-taliban-artists.html?searc
 https://nytimes.com/2021/10/31/business/economy/global-shipping-delays.html?searchResultPosition=2
 
 **Jay-Z, Foo Fighters and Carole King Join the Rock & Roll Hall of Fame**\
-`Barack Obama (via video), Paul McCartney and Carole King spoke on behalf of the inductees at a ceremony that also honored Tina Turner, the Go-Go’s and Todd Rundgren.`\
+`Barack Obama (via video), Paul McCartney and Taylor Swift spoke on behalf of the inductees at a ceremony that also honored Tina Turner, the Go-Go’s and Todd Rundgren.`\
 https://nytimes.com/2021/10/31/arts/music/rock-and-roll-hall-of-fame-jay-z.html?searchResultPosition=3
 
 **G20 leaders send a symbolic message on a key climate target.**\
