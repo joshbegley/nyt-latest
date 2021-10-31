@@ -1,5 +1,5 @@
 **Rivals on World Stage, Russia and U.S. Quietly Seek Areas of Accord**\
-`There have been a series of beneath-the-surface meetings between the two countries as the Biden Administration applies a more sober approach to relations with the Kremlin.`\
+`There have been a series of beneath-the-surface meetings between the two countries as the Biden administration applies a more sober approach to relations with the Kremlin.`\
 https://nytimes.com/2021/10/31/world/europe/biden-putin-russia-united-states.html?searchResultPosition=1
 
 **Former Shoe Shiner Wins Back Nearly $30,000 Seized by Federal Agents**\
