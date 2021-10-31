@@ -1,5 +1,5 @@
 **New York City firefighters are calling out sick as a vaccine mandate looms.**\
-`More than 22,000 municipal workers remained unvaccinated a day ahead of a city deadline to get their first dose of a coronavirus vaccine.`\
+`More than 22,000 municipal workers remained unvaccinated a day before a city deadline to get their first dose of a coronavirus vaccine.`\
 https://nytimes.com/2021/10/31/world/nyc-firefighters-police-vaccine-mandate.html?searchResultPosition=1
 
 **What to Watch in the Supreme Court Oral Arguments on the Texas Abortion Law**\
