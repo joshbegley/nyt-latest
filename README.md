@@ -1,6 +1,6 @@
 **Narendra Modi says India will sharply increase renewable energy.**\
 `Wealthy nations need to spend $1 trillion to help developing nations like India make the transition to renewables, Prime Minister Modi said.`\
-https://nytimes.com/2021/11/01/world/asia/india-renewable-energy-modi.html?searchResultPosition=1
+https://nytimes.com/2021/11/01/world/asia/modi-india-cop26-renewable-energy.html?searchResultPosition=1
 
 **The Story of a Craft Beer Pioneer**\
 `“The Dogfish Head Book” by the brewery founders Sam and Mariah Calagione, and written with Andrew C. Greeley, recounts 26 years of beer adventures.`\
