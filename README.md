@@ -20,7 +20,7 @@ https://nytimes.com/2021/11/01/world/asia/pakistan-protests-negotiations-tlp.htm
 
 **Marc Hearron, attorney for abortion providers, has deep Texas ties.**\
 `Mr. Hearron has worked on pro bono cases involving reproductive rights and L.G.B.T.Q. rights.`\
-https://nytimes.com/2021/11/01/us/politics/marc-hearron-attorney-abortion.html?searchResultPosition=6
+https://nytimes.com/2021/11/01/us/politics/marc-hearron-abortion-supreme-court.html?searchResultPosition=6
 
 **The official global virus death toll has passed five million. The full count is undoubtedly higher.**\
 `Many countries do not accurately report their figures, and many Covid deaths are misattributed, experts say.`\
@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/01/arts/music/met-opera-meistersinger-wagner.html?se
 
 **Why is it so hard to challenge the Texas law?**\
 `The structure of the law, which delegates enforcement authority to millions of people, means there is no obvious person whom its opponents can sue.`\
-https://nytimes.com/2021/11/01/us/politics/why-is-it-so-hard-to-challenge-the-texas-law.html?searchResultPosition=9
+https://nytimes.com/2021/11/01/us/politics/challenging-the-texas-abortion-law.html?searchResultPosition=9
 
 **Europe Fears That Rising Cost of Climate Action Is Stirring Anger**\
 `Memories of the Yellow Vest movement are prompting officials to ensure that spiking energy prices don’t fuel inequality or populist discontent.`\
