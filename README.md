@@ -16,7 +16,7 @@ https://nytimes.com/2021/11/01/us/coronavirus-briefing-what-happened-today.html?
 
 **How Often Do Covid Vaccines Cause Heart Problems in Kids?**\
 `The latest data is reassuring. Myocarditis remains very uncommon, and it is almost always mild and temporary. The heart risk from Covid-19 itself is far greater.`\
-https://nytimes.com/2021/11/01/health/coronavirus-vaccine-heart-children.html?searchResultPosition=5
+https://nytimes.com/2021/11/01/health/covid-kids-children.html?searchResultPosition=5
 
 **Modi Pledges India Will Reach Net-Zero Emissions by 2070**\
 `India’s prime minister, Narendra Modi, committed to five measures to fight climate change during the COP26 climate summit in Glasgow, including plans to ensure that half of the nation’s energy mix comes from sources other than fossil fuels by 2030.`\
