@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/01/world/john-kerry-cop26.html?searchResultPosition=1
 
 **A World Series of Relievers — Like It or Not**\
-`Injuries have forced things to extremes for both Houston and Atlanta, with bullpens accounting for more than 60 percent of all innings.`\
+`Injuries have forced things to extremes for both Houston and Atlanta, with bullpens accounting for more than 60 percent of all innings pitched.`\
 https://nytimes.com/2021/11/01/sports/baseball/astros-braves-world-series-relievers.html?searchResultPosition=2
 
 **Why Do So Many Traffic Stops Go Wrong?**\
