@@ -1,5 +1,5 @@
-**Watch Live: Biden Speaks at COP26 Climate Summit**\
-`President Biden addresses world leaders in Glasgow at the United Nations COP26 climate summit.`\
+**Watch Live: World Leaders Speak at COP26 Climate Summit**\
+`President Biden is expected to address the United Nations COP26 climate summit in Glasgow.`\
 https://nytimes.com/video/us/politics/100000008054618/biden-cop26-livestream.html?searchResultPosition=1
 
 **The ‘Philly Special’ Comes to New York**\
