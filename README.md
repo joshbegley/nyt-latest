@@ -16,7 +16,7 @@ https://nytimes.com/2021/11/01/world/middleeast/egypt-security-military.html?sea
 
 **Will Justice Brett Kavanaugh change his position?**\
 `Justice Kavanaugh has consistently supported abortion restrictions, but occasionally stakes out more moderate positions than his colleagues.`\
-https://nytimes.com/2021/11/01/us/politics/will-justice-brett-kavanaugh-change-his-position.html?searchResultPosition=5
+https://nytimes.com/2021/11/01/us/politics/brett-kavanaugh-abortion.html?searchResultPosition=5
 
 **Readers’ Farewell to Nicholas Kristof, ‘a Gift to Humanity’**\
 `Sampling the praise for Mr. Kristof, who left The Times and is running for governor of Oregon. Also: Responses to Senator Josh Hawley; boosters; UC Hastings.`\
