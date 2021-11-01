@@ -1,5 +1,5 @@
 **After Violent Standoff, Pakistan Strikes Deal With Banned Islamist Group**\
-`The pact, announced Sunday, defused a crisis that had paralyzed cities, but it also highlighted the government’s struggle to assert itself against religious extremists.`\
+`The pact, announced Sunday, defused a crisis that had paralyzed several cities, but it also highlighted the government’s struggle to assert itself against religious extremists.`\
 https://nytimes.com/2021/11/01/world/asia/pakistan-protests-negotiations-tlp.html?searchResultPosition=1
 
 **Marc Hearron, attorney for abortion providers, has deep Texas ties.**\
