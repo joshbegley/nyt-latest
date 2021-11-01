@@ -11,7 +11,7 @@ https://nytimes.com/2021/10/31/nyregion/alpo-martinez-dead-harlem.html?searchRes
 https://nytimes.com/2021/10/31/world/biden-g20-covid-climate.html?searchResultPosition=3
 
 **What We Learned From Week 8 in the N.F.L.**\
-`Josh Allen shook off an uncharacteristically sloppy start against the Dolphins, while wide receivers around the league auditioned for Tuesday’s trade deadline.`\
+`The Saints' defense stepped up when Jameis Winston went down, Josh Allen shook off an uncharacteristically sloppy start, and wide receivers around the league auditioned for Tuesday’s trade deadline.`\
 https://nytimes.com/2021/10/31/sports/football/nfl-week-8-scores.html?searchResultPosition=4
 
 **Learning to Live With Mark Zuckerberg**\
