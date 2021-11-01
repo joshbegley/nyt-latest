@@ -2,8 +2,8 @@
 `Busy with their careers and friendship, Issa and Molly forget to turn back to themselves.`\
 https://nytimes.com/2021/10/31/us/insecure-recap-season-5-episode-2.html?searchResultPosition=1
 
-**What is ‘Net-Zero’? And 12 Other Climate Buzzwords**\
-`As climate change discussions take center stage in Glasgow, here’s a primer on some of the buzzwords you’re likely to hear a lot.`\
+**What Is ‘Net-Zero’? And 12 Other Climate Buzzwords**\
+`As climate change discussions take center stage in Glasgow, here’s a primer on some of the jargon you’re likely to hear a lot.`\
 https://nytimes.com/interactive/2021/10/31/climate/climate-change-sustainability-definition.html?searchResultPosition=2
 
 **Your Monday Briefing**\
