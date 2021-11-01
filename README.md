@@ -1,5 +1,5 @@
 **Manchin Refuses to Endorse Safety Net Bill, Dampening Hopes of a Quick Vote**\
-`The West Virginia Democrat, a crucial swing vote, demanded more time to evaluate the economic and fiscal ramifications of the $1.85 trillion plan, frustrating plans for a House vote this week.`\
+`The Democratic senator, a crucial swing vote, demanded more time to evaluate the economic and fiscal ramifications of the $1.85 trillion plan, frustrating plans for a House vote this week.`\
 https://nytimes.com/2021/11/01/us/politics/manchin-endorse-framework.html?searchResultPosition=1
 
 **Ronnie Tutt, 83, Dies; Powerful Drummer Backed Rock and Pop Stars**\
