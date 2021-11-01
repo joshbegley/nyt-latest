@@ -1,5 +1,5 @@
 **Why a Pilot Is Under Investigation for Saying ‘Let’s Go Brandon’**\
-`A derisive chant that originated at a NASCAR race went viral. But some people say a pilot’s remark during a Southwest Airlines flight was out of line.`\
+`His remarks went viral after he repeated the chant, which is understood to be code for swearing at President Biden, during a Southwest Airlines flight.`\
 https://nytimes.com/2021/10/31/us/lets-go-brandon-southwest-airlines.html?searchResultPosition=1
 
 **Drug Boss Alpo Martinez Killed in Harlem**\
