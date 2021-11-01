@@ -1,40 +1,40 @@
-**Sex Bots and Mortality and A.I., Oh My!**\
-`The writer Jeanette Winterson explores the wild world unfolding alongside the rise of artificial intelligence.`\
-https://nytimes.com/2021/11/01/opinion/sway-kara-swisher-jeanette-winterson.html?searchResultPosition=1
+**Don’t Fall in Love With This Mickey Mouse Watch**\
+`The $16,500 Gerald Genta model, which won’t be available until January, is already sold out.`\
+https://nytimes.com/2021/11/01/fashion/watch-mickey-mouse-gerald-genta-bulgari.html?searchResultPosition=1
 
-**I Just Turned 60, but I Still Feel 22**\
-`Sorrow in the face of aging would be a poor response to this good fortune.`\
-https://nytimes.com/2021/11/01/opinion/turning-60-aging.html?searchResultPosition=2
+**The Stunning Grandeur of Soviet-Era Metros**\
+`Between 2014 and 2020, Frank Herfort visited more than 770 metro stations in 19 cities, creating a remarkable archive of architectural and artistic splendor.`\
+https://nytimes.com/2021/11/01/travel/soviet-era-metros.html?searchResultPosition=2
 
-**What Is a Meaningful Family Relationship That You Have?**\
-`Why is this person special to you?`\
-https://nytimes.com/2021/11/01/learning/what-is-a-meaningful-family-relationship-that-you-have.html?searchResultPosition=3
+**A Timeline of the Kyle Rittenhouse Shootings and His Trial**\
+`Here are the events that led to Mr. Rittenhouse, 18, standing trial in the fatal shootings of two men and the wounding of another in Kenosha, Wis.`\
+https://nytimes.com/article/kyle-rittenhouse-shooting-timeline.html?searchResultPosition=3
 
-**Kenneth Branagh Returns to the Life That the Troubles Took Away**\
-`“From that point onward, a whole series of identities and masks was constructed. What I wanted to do was peel some of those away.“`\
-https://nytimes.com/interactive/2021/11/01/magazine/kenneth-branagh-interview.html?searchResultPosition=4
+**N.Y. Cabbies Stage Hunger Strike for More Aid: ‘We’re Not Backing Down’**\
+`After exploitative loans buried taxi drivers under crushing debt, some cabbies say the city’s $65 million rescue package does not go far enough.`\
+https://nytimes.com/2021/11/01/nyregion/ny-taxi-drivers-hunger-strike.html?searchResultPosition=4
 
-**One Final Day of Campaigning**\
-`The elections for mayor in New York City and Buffalo could signal the direction of the Democratic Party in the state.`\
-https://nytimes.com/2021/11/01/nyregion/one-final-day-of-campaigning.html?searchResultPosition=5
+**Desperate for Housing Options, Communities Turn to Ballot Initiatives**\
+`Cities and counties will vote on measures, like tax hikes and curbs on Airbnb, aimed at creating more affordable housing.`\
+https://nytimes.com/2021/11/01/us/politics/ballot-initiatives-voters-voting.html?searchResultPosition=5
 
-**What to watch for on Monday at COP26.**\
-`Prime Minister Boris Johnson will welcome leaders, who will then lay out “concrete actions and credible plans.” David Attenborough and Prince Charles will also speak.`\
-https://nytimes.com/2021/11/01/world/europe/what-to-watch-for-on-monday-at-cop26.html?searchResultPosition=6
+**After the Flood, It’s Not Just ‘About the Coming Back’**\
+`Following the devastation wrought by Hurricane Ida in Millburn, N.J., small business owners are facing an uncertain future, even as the community rallies to help.`\
+https://nytimes.com/2021/11/01/business/millburn-hurricane-ida-flooding.html?searchResultPosition=6
 
-**James Staley, Barclays C.E.O., will step down after Jeffrey Epstein inquiry.**\
-`British regulators investigated the ties between the bank executive and the disgraced financier.`\
-https://nytimes.com/2021/10/24/business/james-staley-barclays-jeffrey-epstein.html?searchResultPosition=7
+**The TV Hit That Wasn’t**\
+`There was a lot of advance hype for the FX series “American Crime Story: Impeachment.” But it won’t be available on any major streaming platform for another 10 months, and that’s a problem in 2021.`\
+https://nytimes.com/2021/11/01/business/media/american-crime-story-streaming.html?searchResultPosition=7
 
-**Run the Numbers: Exploring the Math Behind Any N.F.L. Team’s Playoff Chances**\
-`In this lesson, students use math, probability and computer simulations to estimate their N.F.L. team’s chances of playing in the postseason.`\
-https://nytimes.com/2021/11/01/learning/lesson-plans/run-the-numbers-exploring-the-math-behind-any-nfl-teams-playoff-chances.html?searchResultPosition=8
+**Supreme Court Tries to Tame Unruly Oral Arguments**\
+`The court, which is hearing major cases on abortion and guns, has revised its procedures to make sure that all justices are heard.`\
+https://nytimes.com/2021/11/01/us/supreme-court-oral-arguments.html?searchResultPosition=8
 
-**Quotation of the Day: On the Left, a New Scramble Over the Right Words to Say**\
-`Quotation of the Day for Monday, November 1, 2021.`\
-https://nytimes.com/2021/11/01/todayspaper/quotation-of-the-day-on-the-left-a-new-scramble-over-the-right-words-to-say.html?searchResultPosition=9
+**Can Supersonic Air Travel Fly Again?**\
+`The key to its revival may be a breakthrough in creating a quieter sonic boom. The challenges, though, are significant.`\
+https://nytimes.com/2021/11/01/business/supersonic-plane-travel-concorde.html?searchResultPosition=9
 
-**BIPOC or POC? Equity or Equality? The Debate Over Language on the Left.**\
-`For those pushing for changes in society on race and other issues, words matter. They can also muddle.`\
-https://nytimes.com/2021/11/01/us/terminology-language-politics.html?searchResultPosition=10
+**The Accidental Wine Educator**\
+`Over the last 50 years, America has become the world’s leading wine consumer. Kevin Zraly has had a lot to do with that.`\
+https://nytimes.com/2021/11/01/dining/drinks/kevin-zraly-wine.html?searchResultPosition=10
 
