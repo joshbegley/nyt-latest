@@ -1,5 +1,5 @@
 **Why a Pilot Is Under Investigation for Saying ‘Let’s Go Brandon’**\
-`A joke that originated at a NASCAR race went viral. But some people say a pilot’s remark during a Southwest Airlines flight was out of line.`\
+`A derisive chant that originated at a NASCAR race went viral. But some people say a pilot’s remark during a Southwest Airlines flight was out of line.`\
 https://nytimes.com/2021/10/31/us/lets-go-brandon-southwest-airlines.html?searchResultPosition=1
 
 **Drug Boss Alpo Martinez Killed in Harlem**\
