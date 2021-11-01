@@ -6,7 +6,7 @@ https://nytimes.com/2021/11/01/t-magazine/nilaga-soup-recipe.html?searchResultPo
 `The judge said that new evidence, including witness testimony, was not sufficient to warrant a new trial for Mr. Reed, who was sentenced to death in the 1996 murder of a 19-year-old woman.`\
 https://nytimes.com/2021/11/01/us/rodney-reed-trial-texas.html?searchResultPosition=2
 
-**Queen Elizabeth said now is ‘the time for action’ is now, calling for statesmanship, not politics.**\
+**Queen Elizabeth, calling for statesmanship, not politics, said now is ‘the time for action.’**\
 `The 95-year-old monarch gave her address by video, after doctors advised her to rest and not go to the summit. Prince Charles attended and delivered a similar message.`\
 https://nytimes.com/2021/11/01/world/queen-elizabeth-cop26.html?searchResultPosition=3
 
