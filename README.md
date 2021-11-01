@@ -35,6 +35,6 @@ https://nytimes.com/2021/11/01/sports/women-beach-handball-bikini.html?searchRes
 https://nytimes.com/2021/11/01/world/europe/cop26-climate-antonio-guterres.html?searchResultPosition=9
 
 **Watch Live: World Leaders Speak at COP26 Climate Summit**\
-`President Biden is expected to address the United Nations COP26 climate summit in Glasgow.`\
+`President Biden is addressing the United Nations COP26 climate summit in Glasgow.`\
 https://nytimes.com/video/us/politics/100000008054618/biden-cop26-livestream.html?searchResultPosition=10
 
