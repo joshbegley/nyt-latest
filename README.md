@@ -2,7 +2,7 @@
 `World leaders are in Glasgow.`\
 https://nytimes.com/2021/11/01/briefing/cop26-climate-conference-emissions.html?searchResultPosition=1
 
-**John Kerry lowers expectations for the gathering.**\
+**John Kerry is already looking toward next year to push countries to do more.**\
 `“Glasgow was never ever going to get every country joining up,” Mr. Kerry said. He’s already looking to next year to build on pledges that nations have made and push them to do more.`\
 https://nytimes.com/2021/11/01/world/john-kerry-cop26.html?searchResultPosition=2
 
