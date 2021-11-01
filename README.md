@@ -2,13 +2,13 @@
 `“We are planning on some vaccinations towards the end of this week,” said Jeffrey D. Zients, a top White House official, adding that the government will deliver a total of 15 million doses “across the next week or so.”`\
 https://nytimes.com/2021/11/01/us/politics/pfizer-children-covid-vaccine.html?searchResultPosition=1
 
-**Protesters Gather as Court Hears Arguments on Texas Abortion Law**\
-`Abortion rights demonstrators and opponents of abortion rights rallied outside the Supreme Court as justices heard challenges to a Texas law that bans most abortion after about six weeks with no exceptions for pregnancies resulting from rape or incest.`\
-https://nytimes.com/video/us/politics/100000008055254/scotus-texas-abortion-law-protests.html?searchResultPosition=2
-
 **Changing of the Guard at Williamstown Theater Festival**\
 `Mandy Greenfield has resigned and Jenny Gersten will be interim artistic director. The festival gave no reason for the move, but it follows complaints about working conditions.`\
-https://nytimes.com/2021/11/01/theater/mandy-greenfield-resigns.html?searchResultPosition=3
+https://nytimes.com/2021/11/01/theater/mandy-greenfield-resigns.html?searchResultPosition=2
+
+**Protesters Gather as Court Hears Arguments on Texas Abortion Law**\
+`Abortion rights demonstrators and opponents of abortion rights rallied outside the Supreme Court as justices heard challenges to a Texas law that bans most abortion after about six weeks with no exceptions for pregnancies resulting from rape or incest.`\
+https://nytimes.com/video/us/politics/100000008055254/scotus-texas-abortion-law-protests.html?searchResultPosition=3
 
 **As Youngkin Tries to Finesse Trump, McAuliffe Conjures His Comeback**\
 `Barnstorming Virginia, the candidates for governor hammered away at their core arguments. For the Republican: parents’ involvement in schools. For the Democrat: Trump redux.`\
