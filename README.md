@@ -11,7 +11,7 @@ https://nytimes.com/2021/11/01/us/virus-navajo-vaccination-rates.html?searchResu
 https://nytimes.com/2021/11/02/sports/ncaafootball/college-football-playoff-georgia-alabama-michigan-state-oregon-cincinnati.html?searchResultPosition=3
 
 **Curtis Sliwa Brings Cat With Him to Vote in N.Y.C. Mayoral Election**\
-`Curtis Sliwa, the Republican nominee for mayor, was not allowed to bring his cat inside the polling site at Frank McCourt High School on the Upper West Side.`\
+`The Republican nominee for mayor was not allowed to bring his cat inside the polling site at Frank McCourt High School on the Upper West Side.`\
 https://nytimes.com/video/nyregion/100000008058202/curtis-sliwa-brings-cat-vote-nyc-mayoral-election.html?searchResultPosition=4
 
 **Takeaways from the first day of the Kyle Rittenhouse trial.**\
