@@ -1,40 +1,40 @@
-**JOBS FOR ALL!**\
-`How work works, in 13 minutes.`\
-https://nytimes.com/video/opinion/100000007937677/jobs-for-all.html?searchResultPosition=1
+**They Were Looking for a Place With an Elevator. They Found a Lot More.**\
+`For one Brooklyn couple, an online search for elevator buildings turned up something they had no idea they wanted: a single-family home.`\
+https://nytimes.com/2021/11/02/realestate/they-were-looking-for-a-place-with-an-elevator-they-found-a-lot-more.html?searchResultPosition=1
 
-**Still Unvaccinated, and Now on Unpaid Leave**\
-`About 9,000 city workers did not comply with a new vaccine mandate, but Mayor Bill de Blasio said the first day went smoothly.`\
-https://nytimes.com/2021/11/02/nyregion/still-unvaccinated-and-now-on-unpaid-leave.html?searchResultPosition=2
+**The Brooklyn House That Came With ‘This Crazy Elevator’**\
+`For one Brooklyn couple, an online search for elevator buildings turned up something they had no idea they wanted: a single-family home.`\
+https://nytimes.com/slideshow/2021/11/02/realestate/the-brooklyn-house-that-came-with-this-crazy-elevator.html?searchResultPosition=2
 
-**Cryptocurrency inspired by ‘Squid Game’ crashes. The industry has questions.**\
-`The digital money, called Squid, began trading last week for a penny. It soared, spectacularly, before the money vanished.`\
-https://nytimes.com/2021/11/02/business/squid-coin-crypto.html?searchResultPosition=3
+**Corporate Climate Pledges Often Ignore a Key Component: Supply Chains**\
+`Many companies do not account for the emissions from their supply chains, which can be a significant majority of their contributions to greenhouse gases.`\
+https://nytimes.com/2021/11/02/business/corporate-climate-pledge-supply-chain.html?searchResultPosition=3
 
-**Explore 7 Climate Change Solutions**\
-`In this lesson, students will use a jigsaw activity to learn about some of the most effective strategies and technologies that can help head off the worst effects of global warming.`\
-https://nytimes.com/2021/11/02/learning/lesson-plans/explore-7-climate-change-solutions.html?searchResultPosition=4
+**Can Specific Foods or Diets Boost Your Testosterone Levels?**\
+`What you eat or drink may affect levels of the male sex hormone, but whether a diet can increasej libido or energy depends on many things.`\
+https://nytimes.com/2021/11/02/well/male-testosterone-levels.html?searchResultPosition=4
 
-**As Earth Warms, Human History Is Melting Away**\
-`Climate change is revealing long-frozen artifacts and animals to archaeologists. But the window for study is slender and shrinking.`\
-https://nytimes.com/2021/11/02/science/climate-change-archaeology.html?searchResultPosition=5
+**Shutting Down Historical Debate, China Makes It a Crime to Mock Heroes**\
+`Under a new law, China has zealously prosecuted even the perceived slander of Communist figures, broadening Xi Jinping’s campaign to dominate party orthodoxy.`\
+https://nytimes.com/2021/11/02/world/asia/china-slander-law.html?searchResultPosition=5
 
-**Long Walk From Freedom: Indebted Gazan Trudges to Jail 17th Time. Or 18th.**\
-`Like many men in Gaza, Wasfi al-Garosha regularly returns to prison for failing to repay a wedding loan. His trip back, always on foot, reveals much about the stresses of life in the Strip.`\
-https://nytimes.com/2021/11/02/world/middleeast/gaza-wedding-debt-prison.html?searchResultPosition=6
+**The Supreme Court Might Claim Power Over Gun Carry Laws. That Would Be a Mistake.**\
+`The court shouldn’t take from the people and their legislatures the authority they have had for centuries to decide where handguns may be carried. `\
+https://nytimes.com/2021/11/02/opinion/supreme-court-gun-law-new-york.html?searchResultPosition=6
 
-**How Car Shortages Are Putting the World’s Economy at Risk**\
-`Because so many jobs depend on automaking, the industry’s production problems are causing the pain to ripple.`\
-https://nytimes.com/2021/11/02/business/car-shortage-global.html?searchResultPosition=7
+**As U.S. Reopening Approaches, Travelers Take Their Marks**\
+`The end of the U.S. ban on international visitors has kicked off a surge in travel both foreign and domestic. Here’s what to expect for the holiday season and beyond.`\
+https://nytimes.com/2021/11/02/travel/holiday-travel-tips.html?searchResultPosition=7
 
-**Thrifting**\
-`Do you like to thrift? What finds are you most proud of?`\
-https://nytimes.com/2021/11/02/learning/thrifting.html?searchResultPosition=8
+**Work? ‘I Think It Numbs You Somehow’**\
+`Is work working for us?`\
+https://nytimes.com/2021/11/02/opinion/work-jobs-for-all.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/02/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**What Makes Change Possible?**\
+`The failures of the Articles of Confederation have a lot to teach us about the conditions that make new forms of government feasible. `\
+https://nytimes.com/2021/11/02/opinion/change-constitution-articles-confederation.html?searchResultPosition=9
 
-**Stephen Colbert: Biden Got the Pope’s Blessing**\
-`“The pope telling you you’re a good Catholic is like a bear telling you you’re good at pooping in the woods,” Colbert said of President Biden, who visited the Vatican over the weekend.`\
-https://nytimes.com/2021/11/02/arts/television/stephen-colbert-biden-pope.html?searchResultPosition=10
+**The Life-Altering Differences Between White and Black Debt**\
+`The sociologist Louise Seamster discusses America’s student debt crisis and how higher education contributes to the racial wealth gap.`\
+https://nytimes.com/2021/11/02/opinion/ezra-klein-podcast-louise-seamster.html?searchResultPosition=10
 
