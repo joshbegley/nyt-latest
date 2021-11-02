@@ -1,5 +1,5 @@
 **Raiders Receiver to Be Charged in Fatal Car Crash**\
-`Henry Ruggs III, the Raiders’ top receiver, will be charged with driving under the influence, the police said, after his involvement in a crash that left one person dead in Las Vegas on Tuesday morning.`\
+`Henry Ruggs III, the Raiders’ top receiver, will be charged with driving under the influence, the police said, after a crash that left one person dead in Las Vegas on Tuesday morning.`\
 https://nytimes.com/2021/11/02/sports/football/henry-ruggs-accident-dui-raiders.html?searchResultPosition=1
 
 **Are You Missing Out on the Metaverse?**\
