@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/02/us/ca-covid-dia-de-muertos.html?searchResultPosit
 
 **Watch Live: Biden Delivers Remarks on Reducing Methane Emissions**\
 `President Biden speaking at an event focused on curbing emissions of methane, a potent greenhouse gas that emits from oil and natural gas operations, during the COP26 climate summit in Glasgow.`\
-https://nytimes.com/video/us/politics/100000008056710/biden-methane-cop26-live.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/politics/100000008056710/biden-methane-cop26-live.html?searchResultPosition=8
 
 **The average global temperature in 2020 was 58.8 degrees Fahrenheit (14.9 degrees Celsius). How cold was it during the height of the last ice age?**\
 `Test your science knowledge.`\
