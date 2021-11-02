@@ -1,5 +1,5 @@
 **Mets Fire Their Interim G.M. Two Months After His Arrest**\
-`Zack Scott was placed on leave on Sept. 1. He was charged with driving while intoxicated after a team event.`\
+`Zack Scott was placed on leave on Sept. 1. He had been charged with driving while intoxicated.`\
 https://nytimes.com/2021/11/01/sports/baseball/zack-scott-mets.html?searchResultPosition=1
 
 **What Harry Styles Fans Wore for ‘Harryween’**\
