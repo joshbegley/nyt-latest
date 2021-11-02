@@ -1,6 +1,6 @@
 **What Harry Styles Fans Wore for ‘Harryween’**\
 `His concert at Madison Square Garden over the weekend coincided with Halloween.`\
-https://nytimes.com/2021/11/01/style/what-harry-styles-fans-wore-for-harryween.html?searchResultPosition=1
+https://nytimes.com/2021/11/01/style/harry-styles-halloween-costume.html?searchResultPosition=1
 
 **Biden Defends His Push for More Oil Production**\
 `On the last day of the Group of 20 summit, President Biden told reporters that it was not inconsistent for him to urge oil producers to pump more fossil fuels while imploring countries to tackle climate change.`\
