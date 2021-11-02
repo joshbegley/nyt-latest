@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/01/world/europe/cop26-glasgow-biden-climate.html?sea
 
 **Talking About ‘Attica,’ the Newest Documentary on the Prison Uprising**\
 `Fifty years after the fact, the filmmakers Stanley Nelson and Traci A. Curry reflect on the bloody standoff and what it accomplished.`\
-https://nytimes.com/2021/11/01/movies/talking-about-attica-the-newest-documentary-on-the-prison-uprising.html?searchResultPosition=4
+https://nytimes.com/2021/11/01/movies/attica-documentary-prison-uprising.html?searchResultPosition=4
 
 **We Should All Know Less About Each Other**\
 `On social media, exposure to those unlike us often makes us hate them.`\
