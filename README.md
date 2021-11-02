@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/02/health/covid-vaccine-children-cdc.html?searchResu
 
 **Voting-rights groups sue to keep polls open in New Jersey for 90 extra minutes.**\
 `The court application asks that polls stay open until 9:30 p.m. to offset delays linked to problems connecting new electronic poll books to the internet.`\
-https://nytimes.com/2021/11/02/us/elections/new-jersey-keep-polls-open-aclu.html?searchResultPosition=4
+https://nytimes.com/2021/11/02/us/elections/new-jersey-polls-open-aclu.html?searchResultPosition=4
 
 **The Best Decisions Happen When the Manager Should be Sleeping**\
 `A World Series manager’s life is full of distractions. For Dusty Baker, Brian Snitker and their predecessors, the middle of the night offers time to think about the game.`\
