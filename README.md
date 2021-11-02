@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/02/business/pfizer-covid-vaccine-revenue-profits.htm
 https://nytimes.com/2021/11/02/arts/metaverse-zuckerberg-aesthetic-facebook.html?searchResultPosition=2
 
 **Ethiopia Declares State of Emergency as Rebels Advance Toward Capital**\
-`In a milestone in the yearlong conflict, the government called on civilians to pick up arms and prepare to defend Addis Ababa after Tigrayan forces captured a strategic town 160 miles away.`\
+`In a milestone in the yearlong conflict, the government called on civilians to pick up arms and prepare to defend Addis Ababa after Tigrayan forces captured two key towns about 160 miles away.`\
 https://nytimes.com/2021/11/02/world/africa/ethiopia-state-of-emergency.html?searchResultPosition=3
 
 **Brad Lander is likely to beat a far-right Republican in the comptroller race.**\
