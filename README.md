@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/02/opinion/culture/board-diversity-black-women.html?
 https://nytimes.com/2021/11/02/briefing/cop-26-russia-china-ethiopia.html?searchResultPosition=2
 
 **Here’s who is who in the Kyle Rittenhouse trial.**\
-`A rundown of the key figures in the courtroom for the trial of Kyle Rittenhouse in Kenosha, Wisconsin.`\
+`A rundown of the key figures in the courtroom for the trial of Kyle Rittenhouse in Kenosha, Wis.`\
 https://nytimes.com/2021/11/02/us/kyle-rittenhouse-trial-figures.html?searchResultPosition=3
 
 **Raiders Receiver to Be Charged in Fatal Car Crash**\
