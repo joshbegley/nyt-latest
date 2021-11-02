@@ -12,7 +12,7 @@ https://nytimes.com/video/climate/100000008056137/queen-elizabeth-prince-charles
 
 **Review: Embodying Justice in ‘Twilight: Los Angeles, 1992’**\
 `Anna Deavere Smith’s one-woman play about the aftermath of the Rodney King case gets a cast of five in an updated Off Broadway revival.`\
-https://nytimes.com/2021/11/01/theater/twilight-los-angeles-1992-review.html?searchResultPosition=4
+https://nytimes.com/2021/11/01/theater/twilight-los-angeles-1992-rodney-king.html?searchResultPosition=4
 
 **Thousands of Unvaccinated N.Y.C. Workers Put on Unpaid Leave**\
 `About 9,000 municipal employees, less than 6 percent of the work force, were placed on unpaid leave for refusing to get vaccinated. Mayor Bill De Blasio said that there were no disruptions to city services.`\
