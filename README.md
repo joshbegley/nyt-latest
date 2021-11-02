@@ -31,7 +31,7 @@ https://nytimes.com/interactive/2021/11/02/us/elections/results-virginia.html?se
 https://nytimes.com/interactive/2021/11/02/us/elections/results-nyc-mayor.html?searchResultPosition=8
 
 **Andrew Yang casts his first-ever vote for N.Y.C. mayor.**\
-`Mr. Yang, a front-runner to become the next mayor of New York himself, did not respond to a question about who he had voted for.`\
+`Mr. Yang, once a front-runner to become the next mayor of New York himself, did not respond to a question about who he had voted for.`\
 https://nytimes.com/2021/11/02/nyregion/andrew-yang-voted-nyc.html?searchResultPosition=9
 
 **We Are Losing a Battle We Can Win to Save the World’s Forests**\
