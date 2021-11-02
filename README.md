@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/02/us/ca-covid-dia-de-muertos.html?searchResultPosit
 
 **What to watch in Tuesday’s elections: Virginia, mayoral races and policing measures.**\
 `The Virginia governor’s race will be closely studied for clues about the midterms, and new mayors are to be chosen in New York, Boston, Buffalo, Atlanta and other cities.`\
-https://nytimes.com/2021/11/02/us/elections/what-to-watch-in-tuesdays-elections-virginia-mayoral-races-and-policing-measures.html?searchResultPosition=4
+https://nytimes.com/2021/11/02/us/elections/what-to-watch-tuesday-election.html?searchResultPosition=4
 
 **Watch Live: Biden Delivers Remarks on Reducing Methane Emissions**\
 `President Biden speaking at an event focused on curbing emissions of methane, a potent greenhouse gas that emits from oil and natural gas operations, during the COP26 climate summit in Glasgow.`\
