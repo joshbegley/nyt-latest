@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/02/podcasts/the-daily/inflation-economy-pandemic-bid
 
 **Covid shots for younger children could begin days after a C.D.C. panel meets.**\
 `The Biden administration has enlisted 20,000 health workers and shipped 15 million doses ahead of the agency’s decision.`\
-https://nytimes.com/2021/11/02/health/covid-shots-children-5-11.html?searchResultPosition=10
+https://nytimes.com/2021/11/02/health/covid-vaccine-children-5-11.html?searchResultPosition=10
 
