@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/02/arts/manuel-neri-dead.html?searchResultPosition=2
 
 **In a Connecticut mayor’s race, Bobby Valentine brings in the closer: himself.**\
 `Democrats have ratcheted up their criticism of Mr. Valentine in the final weeks of the campaign, but his outsize presence is a formidable campaign asset.`\
-https://nytimes.com/2021/11/02/us/elections/connecticut-mayor-bobby-valentine.html?searchResultPosition=3
+https://nytimes.com/2021/11/02/us/elections/bobby-valentine-connecticut-mayor.html?searchResultPosition=3
 
 **Biden Tries to Reassert American Leadership, and His Own**\
 `President Biden hoped his personal style of politicking could help him build global consensus on fighting climate change. But as he has learned in Washington, charm offensives have their limits.`\
