@@ -1,40 +1,40 @@
+**Curtis Sliwa Brings Cat With Him to Vote in N.Y.C. Mayoral Election**\
+`Curtis Sliwa, the Republican nominee for mayor, was not allowed to bring his cat inside the polling site at Frank McCourt High School on the Upper West Side.`\
+https://nytimes.com/video/nyregion/100000008058202/curtis-sliwa-brings-cat-vote-nyc-mayoral-election.html?searchResultPosition=1
+
+**Takeaways from the first day of the Kyle Rittenhouse trial.**\
+`Opening statements from the prosecution and defense were followed by testimony from a friend of Mr. Rittenhouse, an F.B.I. agent and a witness to the unrest in Kenosha, Wis.`\
+https://nytimes.com/2021/11/02/us/kyle-rittenhouse-trial-takeaways-dominick-black.html?searchResultPosition=2
+
+**C.D.C. Advisers Recommend Covid Vaccine for Younger Children**\
+`If the agency’s director signs off, as expected, children ages 5 to 11 could begin to receive the shots this week.`\
+https://nytimes.com/2021/11/02/health/covid-vaccine-children-cdc.html?searchResultPosition=3
+
 **Voting-rights groups sue to keep polls open in New Jersey for 90 extra minutes.**\
 `The court application asks that polls stay open until 9:30 p.m. to offset delays linked to problems connecting new electronic poll books to the internet.`\
-https://nytimes.com/2021/11/02/us/elections/new-jersey-keep-polls-open-aclu.html?searchResultPosition=1
+https://nytimes.com/2021/11/02/us/elections/new-jersey-keep-polls-open-aclu.html?searchResultPosition=4
 
 **The Best Decisions Happen When the Manager Should be Sleeping**\
 `A World Series manager’s life is full of distractions. For Dusty Baker, Brian Snitker and their predecessors, the middle of the night offers time to think about the game.`\
-https://nytimes.com/2021/11/02/sports/baseball/world-series-managers-sleep.html?searchResultPosition=2
+https://nytimes.com/2021/11/02/sports/baseball/world-series-managers-sleep.html?searchResultPosition=5
 
 **Supreme Court Hears Free Speech Case on Politician’s Censure**\
 `The justices seemed inclined to find a narrow way to reject the argument that the censure of an elected official in Houston ran afoul of the First Amendment.`\
-https://nytimes.com/2021/11/02/us/politics/supreme-court-free-speech-censure.html?searchResultPosition=3
+https://nytimes.com/2021/11/02/us/politics/supreme-court-free-speech-censure.html?searchResultPosition=6
 
 **‘Big Mistake’ for China and Russia to Skip COP26, Biden Says**\
 `President Biden scolded Russia and China for not participating in the United Nations summit on climate change and drew a sharp contrast between the two countries’ efforts and the American leadership.`\
-https://nytimes.com/video/us/politics/100000008058160/biden-cop26-russia-china-climate.html?searchResultPosition=4
+https://nytimes.com/video/us/politics/100000008058160/biden-cop26-russia-china-climate.html?searchResultPosition=7
 
 **Pat Martino, Jazz Guitarist Who Overcame Amnesia, Dies at 77**\
 `He was one of the genre’s most acclaimed players when brain surgery left him with no memory. But he recovered and made music for another three decades.`\
-https://nytimes.com/2021/11/02/arts/music/pat-martino-jazz-guitarist-who-overcame-amnesia-dies-at-77.html?searchResultPosition=5
+https://nytimes.com/2021/11/02/arts/music/pat-martino-jazz-guitarist-who-overcame-amnesia-dies-at-77.html?searchResultPosition=8
 
 **Eric Adams Emotional After Casting Ballot in N.Y.C.**\
 `Eric Adams, the Democratic nominee for mayor, carried a photograph of his late mother as he cast his vote at Public School 81 in the Bedford-Stuyvesant neighborhood of Brooklyn.`\
-https://nytimes.com/video/nyregion/100000008058077/eric-adams-votes-nyc-mayoral-election.html?searchResultPosition=6
+https://nytimes.com/video/nyregion/100000008058077/eric-adams-votes-nyc-mayoral-election.html?searchResultPosition=9
 
 **With Methane and Forest Deals, Climate Summit Offers Hope After Gloomy Start**\
 `Agreements to reduce methane gas emissions and protect the world’s forests were reached Tuesday at the U.N.-sponsored meeting, as President Biden chided the leaders of Russia and China for not showing up.`\
-https://nytimes.com/2021/11/02/world/europe/climate-summit-methane-forests.html?searchResultPosition=7
-
-**Reporters staked out a Brooklyn block to see if Adams lives there. The results were inconclusive.**\
-`As questions continued to swirl about Mr. Adams’s residence, reporters for Curbed tried to get to the bottom of the matter.`\
-https://nytimes.com/2021/11/02/nyregion/where-does-eric-adams-live.html?searchResultPosition=8
-
-**Democrats Push for Agreement on Tax Deduction That Benefits the Rich**\
-`Lawmakers are coalescing around a deal to suspend a $10,000 cap on state and local tax deductions that was imposed during the Trump administration.`\
-https://nytimes.com/2021/11/02/us/politics/salt-cap-tax-deduction.html?searchResultPosition=9
-
-**Election results in the Virginia governor’s race could take hours or even days.**\
-`Here’s what we know about when to expect a race call in Virginia and in other places holding elections on Tuesday.`\
-https://nytimes.com/2021/11/02/us/elections/election-results-when.html?searchResultPosition=10
+https://nytimes.com/2021/11/02/world/europe/climate-summit-methane-forests.html?searchResultPosition=10
 
