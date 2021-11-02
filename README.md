@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/02/us/william-neil-doc-gallagher-ponzi-scheme-senten
 
 **Meta Makes Changes to Marketing Strategy Amid Scandals**\
 `After the social media giant auditioned agencies to manage its ad budget, underscoring its Madison Avenue ties, Spark Foundry won the business.`\
-https://nytimes.com/2021/11/02/business/media/meta-makes-changes-to-marketing-strategy-amid-scandals.html?searchResultPosition=2
+https://nytimes.com/2021/11/02/business/media/meta-ad-strategy-facebook-scandal.html?searchResultPosition=2
 
 **Zillow, facing big losses, quits flipping houses and will lay off a quarter of its staff.**\
 `The real estate website had been relying on its algorithm that estimates home values to buy and resell homes. That part of its business lost about $420 million in three months.`\
