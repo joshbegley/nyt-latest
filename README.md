@@ -6,7 +6,7 @@ https://nytimes.com/video/us/politics/100000008056710/biden-methane-cop26-live.h
 `Test your science knowledge.`\
 https://nytimes.com/interactive/2021/11/02/science/02sci-quiz.html?searchResultPosition=2
 
-**Surviving members of same-sex couples may be newly eligible for Social Security benefits.**\
+**More same-sex couples may be eligible for Social Security survivor benefits.**\
 `Even after winning the right to marry across the U.S. more than six years ago, some same-sex couples have faced challenges accessing certain benefits.`\
 https://nytimes.com/2021/11/02/business/social-security-same-sex-survivor-benefits.html?searchResultPosition=3
 
