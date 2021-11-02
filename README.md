@@ -31,7 +31,7 @@ https://nytimes.com/2021/11/02/sports/football/derrick-henry-injury.html?searchR
 https://nytimes.com/2021/11/02/sports/new-york-city-marathon-running.html?searchResultPosition=8
 
 **Global Leaders Pledge to End Deforestation by 2030**\
-`Brazil, China and the United States are among the signatories to a declaration that seeks to preserve critical forests that can absorb carbon dioxide and slow the rise in global warming.`\
+`The measure reflects a growing recognition of nature’s role in helping mitigate global warming.`\
 https://nytimes.com/2021/11/02/climate/cop26-deforestation.html?searchResultPosition=9
 
 **Attack Left Flight Attendant With Concussion and Facial Injury, Authorities Say**\
