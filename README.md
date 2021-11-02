@@ -14,27 +14,27 @@ https://nytimes.com/video/nyregion/100000008058077/eric-adams-votes-nyc-mayoral-
 `Agreements to reduce methane gas emissions and protect the world’s forests were reached Tuesday at the U.N.-sponsored meeting, as President Biden chided the leaders of Russia and China for not showing up.`\
 https://nytimes.com/2021/11/02/world/europe/climate-summit-methane-forests.html?searchResultPosition=4
 
+**Where Does Eric Adams Live? Reporters Staked Out a Brooklyn Block to Find Out.**\
+`As questions continued to swirl about Mr. Adams’s residence, reporters for Curbed tried to get to the bottom of the matter. The results were inconclusive.`\
+https://nytimes.com/2021/11/02/nyregion/where-does-eric-adams-live.html?searchResultPosition=5
+
 **Democrats Push for Agreement on Tax Deduction That Benefits the Rich**\
 `Lawmakers are coalescing around a deal to suspend a $10,000 cap on state and local tax deductions that was imposed during the Trump administration.`\
-https://nytimes.com/2021/11/02/us/politics/salt-cap-tax-deduction.html?searchResultPosition=5
+https://nytimes.com/2021/11/02/us/politics/salt-cap-tax-deduction.html?searchResultPosition=6
 
 **Election results in the Virginia governor’s race could take hours or even days.**\
 `Here’s what we know about when to expect a race call in Virginia and in other places holding elections on Tuesday.`\
-https://nytimes.com/2021/11/02/us/elections/election-results-when.html?searchResultPosition=6
+https://nytimes.com/2021/11/02/us/elections/election-results-when.html?searchResultPosition=7
 
 **Coronavirus Briefing: What Happened Today**\
 `Shots for kids soon.`\
-https://nytimes.com/2021/11/02/us/coronavirus-briefing-what-happened-today-vaccine-kids-children-pediatric.html?searchResultPosition=7
+https://nytimes.com/2021/11/02/us/coronavirus-briefing-what-happened-today-vaccine-kids-children-pediatric.html?searchResultPosition=8
 
 **Military Grants Few Vaccine Exemptions as Deadlines Loom**\
 `The majority of active-duty troops have gotten a mandatory coronavirus vaccine ahead of deadline, with religious-based exemptions largely dismissed.`\
-https://nytimes.com/2021/11/02/us/politics/vaccine-mandate-military.html?searchResultPosition=8
+https://nytimes.com/2021/11/02/us/politics/vaccine-mandate-military.html?searchResultPosition=9
 
 **‘Isolation’ Review: Dispatches From a Different Pandemic**\
 `In an anthology of nine short films made during the onset of the coronavirus pandemic, people around the world fight to survive.`\
-https://nytimes.com/2021/11/02/movies/isolation-review.html?searchResultPosition=9
-
-**What It’s Like to Cover Global Climate Talks**\
-`A look inside COP26, the global climate summit happening in Scotland. `\
-https://nytimes.com/interactive/2021/11/02/climate/cop26-behind-the-scenes.html?searchResultPosition=10
+https://nytimes.com/2021/11/02/movies/isolation-review.html?searchResultPosition=10
 
