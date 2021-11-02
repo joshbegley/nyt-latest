@@ -1,6 +1,6 @@
 **Global Leaders Pledge to End Deforestation by 2030**\
 `Brazil, China and the United States are among the signatories to a declaration that seeks to preserve critical forests that can absorb carbon dioxide and slow the rise in global warming.`\
-https://nytimes.com/2021/11/01/climate/cop26-deforestation.html?searchResultPosition=1
+https://nytimes.com/2021/11/02/climate/cop26-deforestation.html?searchResultPosition=1
 
 **Attack Left Flight Attendant With Concussion and Facial Injury, Authorities Say**\
 `The chief executive of American Airlines called the violent encounter on a California-bound flight from New York last week “one of the worst displays of unruly behavior we’ve ever witnessed.”`\
