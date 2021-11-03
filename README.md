@@ -35,6 +35,6 @@ https://nytimes.com/2021/11/03/us/elections/youngkin-virginia-election-governor.
 https://nytimes.com/2021/11/03/arts/dance/gibney-company-review-joyce.html?searchResultPosition=9
 
 **Officials Have a ‘Working Theory’ About Jetpack Mystery Over Los Angeles**\
-`The theory, circulated by the Federal Aviation Administration, was announced after images and video taken by a police helicopter were published this week.`\
+`A balloon theory, circulated by the Federal Aviation Administration, was announced after images and video taken by a police helicopter were published this week.`\
 https://nytimes.com/2021/11/03/us/la-jetpack-sighting-balloon.html?searchResultPosition=10
 
