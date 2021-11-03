@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/03/style/aida-rodriguez.html?searchResultPosition=3
 https://nytimes.com/2021/11/03/technology/electric-vehicles-driverless-cars.html?searchResultPosition=4
 
 **Protesters in Glasgow Condemn Corporate ‘Greenwashing’**\
-`As the COP26 climate summit shifted its focus to funding, protesters demanded greater accountability from corporations and called out “greenwashing,” when companies make misleading claims about helping the environment.`\
+`As the COP26 climate summit shifted its focus to funding, protesters demanded greater accountability from corporations and called out “greenwashing.”`\
 https://nytimes.com/video/world/europe/100000008059401/climate-greenwashing-protest-cop26.html?searchResultPosition=5
 
 **Lawyers for ‘Rust’ Armorer Say Gun Was Unattended Before Deadly Shooting**\
