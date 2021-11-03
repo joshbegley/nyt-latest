@@ -2,9 +2,9 @@
 `In this lesson, students will learn about Claudette Colvin, a 15-year-old who stood up for equal rights in 1955. Then, they will reflect on a time when they took a stand on an important issue.`\
 https://nytimes.com/2021/11/03/learning/lesson-plans/claudette-colvin.html?searchResultPosition=1
 
-**South Africa has secured $8.5 billion to transition away from coal. It’ll be a test case.**\
+**South Africa secured $8.5 billion to transition away from coal. It’ll be a test case.**\
 `Developing nations have long said they need aid from wealthy countries to shift to renewable energy. South Africa may show how that would work in practice.`\
-https://nytimes.com/2021/11/03/world/south-africa-coal-renewables.html?searchResultPosition=2
+https://nytimes.com/2021/11/03/world/africa/south-africa-coal-renewables.html?searchResultPosition=2
 
 **E-Scooters, E-Bikes**\
 `Have you ridden one of these? Are they a good idea, or are they too dangerous for crowded cities?`\
