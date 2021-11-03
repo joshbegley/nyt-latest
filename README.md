@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/03/business/dealbook/youngkin-election-republicans.h
 `John Lujan, a 59-year-old retired firefighter, won the seat, a blow for Democrats in the Texas city.`\
 https://nytimes.com/2021/11/03/us/elections/john-lujan-san-antonio-house.html?searchResultPosition=3
 
-**New York Times Adds 455,000 Subscribers in Third Quarter**\
+**New York Times Adds 455,000 Subscriptions in Third Quarter**\
 `After moving behind a paywall, Wirecutter added to the company’s revenue stream.`\
 https://nytimes.com/2021/11/03/business/media/new-york-times-3q-earnings.html?searchResultPosition=4
 
