@@ -2,7 +2,7 @@
 `The House plans to add a provision to provide four weeks of federally paid family and medical leave to their social policy bill, but it is all but certain to be jettisoned by the Senate.`\
 https://nytimes.com/2021/11/03/us/politics/paid-leave-democrats.html?searchResultPosition=1
 
-**U.S. Air Force hits its vaccine deadline with nearly all troops vaccinated.**\
+**The U.S. Air Force hits its vaccine deadline with nearly all troops vaccinated.**\
 `While the Air Force has the earliest deadline, active duty members in all branches are nearing their goals — until Reserve and National Guard forces are counted.`\
 https://nytimes.com/2021/11/03/us/politics/air-force-reaches-vaccine-deadline.html?searchResultPosition=2
 
