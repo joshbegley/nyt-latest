@@ -1,6 +1,6 @@
 **Michelle Wu is elected mayor of Boston.**\
 `Ms. Wu is the first woman and the first person of color to be elected mayor in Boston.`\
-https://nytimes.com/live/2021/11/02/us/election-news/michelle-wu-boston-mayor?searchResultPosition=1
+https://nytimes.com/2021/11/02/us/elections/michelle-wu-boston-mayor.html?searchResultPosition=1
 
 **John Deere workers reject a revised contract proposal, extending their strike.**\
 `Workers upset over insufficient wage increases and pension benefits have been on strike since mid-October.`\
