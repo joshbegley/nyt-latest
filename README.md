@@ -26,8 +26,8 @@ https://nytimes.com/2021/11/03/movies/rust-shooting-armorer-hannah-gutierrez-ree
 `A potential agreement on steel trade provides the clearest look yet at how the Biden administration plans to implement a trade policy that is both protectionist and progressive`\
 https://nytimes.com/2021/11/03/business/economy/biden-trade-policy-steel.html?searchResultPosition=7
 
-**Better satellite monitoring of emissions from countries and companies ‘changes everything,’ Al Gore says.**\
-`By Jenny Gross`\
+**Satellite monitoring of emissions from countries and companies ‘changes everything,’ Al Gore says.**\
+`Real-time checks on where greenhouse gases are being produced may prove a powerful weapon in the fight to cool the earth.`\
 https://nytimes.com/2021/11/03/climate/al-gore-cop26.html?searchResultPosition=8
 
 **The U.S. blacklists the NSO Group, an Israeli spyware firm.**\
