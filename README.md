@@ -24,7 +24,7 @@ https://nytimes.com/video/health/100000008059945/biden-kids-covid-vaccines.html?
 
 **India Walton concedes to the write-in incumbent, Byron Brown, in the race for Buffalo’s mayor.**\
 `“It seems unlikely that we will end up with enough votes to inaugurate a Walton administration in January,” the democratic socialist wrote on Twitter.`\
-https://nytimes.com/2021/11/03/us/elections/byron-brown-buffalo-mayor.html?searchResultPosition=7
+https://nytimes.com/2021/11/03/nyregion/byron-brown-buffalo-mayor.html?searchResultPosition=7
 
 **Equestrian Jumping Is Set to Be Dropped From Modern Pentathlon**\
 `Claims of animal abuse at the Tokyo Olympics could lead to the biggest change to modern pentathlon in more than a century.`\
