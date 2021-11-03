@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/03/us/politics/rescind-medals-wounded-knee-massacre.
 
 **Watch Live: Biden Delivers Remarks on Covid-19 Vaccine for Children**\
 `President Biden addresses the nation after the Centers for Disease Control and Prevention endorsed pediatric doses of the Pfizer-BioNTech coronavirus vaccine for use in children ages 5 to 11.`\
-https://nytimes.com/video/health/100000008059945/biden-kids-covid-vaccines.html?searchResultPosition=8
+https://nytimes.com/video/embedded/health/100000008059945/biden-kids-covid-vaccines.html?searchResultPosition=8
 
 **India Walton concedes to the write-in incumbent, Byron Brown, in the race for Buffalo’s mayor.**\
 `“It seems unlikely that we will end up with enough votes to inaugurate a Walton administration in January,” the democratic socialist wrote on Twitter.`\
