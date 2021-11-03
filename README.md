@@ -1,40 +1,40 @@
+**Fed Announces Plan to Slow Its Bond Buying Program**\
+`The Federal Reserve is dealing with high inflation at a time when millions of workers remain on the job market’s sidelines.`\
+https://nytimes.com/2021/11/03/business/economy/fed-taper-bond-buying.html?searchResultPosition=1
+
 **Watch Live: Fed Chair Speaks After Policy Meeting**\
 `Jerome H. Powell, the Federal Reserve chair, speaks after the release of the Fed’s November policy statement. He is expected to announce a plan to slow the $120 billion in monthly asset purchases the Fed has used to support the economy through the pandemic.`\
-https://nytimes.com/video/us/politics/100000008059094/fed-jerome-powell-speech-live-video.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000008059094/fed-jerome-powell-speech-live-video.html?searchResultPosition=2
 
 **Democrats, Stung by Electoral Losses, Press Forward on Biden Agenda**\
 `Disappointed by a loss in Virginia and a closer-than-expected race in New Jersey, Democrats were working toward quick action on key bills to show they could govern.`\
-https://nytimes.com/2021/11/03/us/politics/democrats-virginia-biden-congress.html?searchResultPosition=2
+https://nytimes.com/2021/11/03/us/politics/democrats-virginia-biden-congress.html?searchResultPosition=3
 
 **Republicans prevail in an expensive race for a seat on Pennsylvania’s Supreme Court.**\
 `Democrats still control the seven-seat court, which has been thrust into legal battles over coronavirus orders and gerrymandering.`\
-https://nytimes.com/2021/11/03/us/elections/pennsylvania-supreme-court-race.html?searchResultPosition=3
+https://nytimes.com/2021/11/03/us/elections/pennsylvania-supreme-court-race.html?searchResultPosition=4
 
 **Atlanta Had to Celebrate Its Title Without Its Architect**\
 `Home after testing positive for Covid-19, Alex Anthopoulos missed the party that wouldn’t have been possible without his brilliant deadline maneuvers.`\
-https://nytimes.com/2021/11/03/sports/baseball/alex-anthopoulos-covid-braves-world-series.html?searchResultPosition=4
+https://nytimes.com/2021/11/03/sports/baseball/alex-anthopoulos-covid-braves-world-series.html?searchResultPosition=5
 
 **N.Y. Democrats Assess Losses to Republicans: ‘This Was a Shellacking’**\
 `While Eric Adams easily won the New York City mayor’s race, Republicans made inroads across New York, from bedroom communities on Long Island to City Council races in Queens and Brooklyn.`\
-https://nytimes.com/2021/11/03/nyregion/republican-election-results-new-york.html?searchResultPosition=5
+https://nytimes.com/2021/11/03/nyregion/republican-election-results-new-york.html?searchResultPosition=6
 
 **Ballot initiatives to increase housing won big on Tuesday, a possible harbinger for 2022.**\
 `The trend could be a harbinger of more ballot choices in 2022, as more cities and states take aim at rising rents.`\
-https://nytimes.com/2021/11/03/us/elections/affordable-housing-ballot-questions.html?searchResultPosition=6
+https://nytimes.com/2021/11/03/us/elections/affordable-housing-ballot-questions.html?searchResultPosition=7
 
 **College Football Playoff Rankings Are an Ode to the Power 5**\
 `The rankings showed how much organizers favor the most powerful teams in the sport, and they created a hurdle for Cincinnati, which has a marquee win and an undefeated record.`\
-https://nytimes.com/2021/11/03/sports/ncaafootball/college-football-playoff-cincinnati.html?searchResultPosition=7
+https://nytimes.com/2021/11/03/sports/ncaafootball/college-football-playoff-cincinnati.html?searchResultPosition=8
 
 **Review: ‘Dr. Brain,’ Your New South Korean TV Crush**\
 `In the afterglow of Netflix’s “Squid Game,” Apple TV+ premieres its first Korean-language series, a mind-melding sci-fi mystery.`\
-https://nytimes.com/2021/11/03/arts/television/review-dr-brain-south-korea.html?searchResultPosition=8
+https://nytimes.com/2021/11/03/arts/television/review-dr-brain-south-korea.html?searchResultPosition=9
 
 **Who Can Make mRNA Vaccines?**\
 `Many health advocates say a key solution is to make the shots in the regions that still don’t have them. I wanted to know whether there were companies that could do it.`\
-https://nytimes.com/interactive/2021/11/03/health/mrna-vaccine-production.html?searchResultPosition=9
-
-**Tony Downs, Economist Who Studied Why People Vote, Dies at 90**\
-`He explored democracy, traffic congestion, race relations and bureaucrats through the prism of an economist.`\
-https://nytimes.com/2021/11/03/us/tony-downs-dead.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/11/03/health/mrna-vaccine-production.html?searchResultPosition=10
 
