@@ -6,7 +6,7 @@ https://nytimes.com/2021/11/03/nyregion/eric-adams-mayor-nyc.html?searchResultPo
 `In a new memoir, Pippen makes a sharp turn from decades of praising his former Chicago Bulls teammate to calling him selfish, hypocritical and insensitive.`\
 https://nytimes.com/2021/11/03/sports/basketball/scottie-pippen-unguarded-book-michael-jordan.html?searchResultPosition=2
 
-**Google Wants to Work with the Pentagon Again, Despite Employee Concerns**\
+**Google Wants to Work With the Pentagon Again, Despite Employee Concerns**\
 `Three years ago, the company walked away from a Defense Department project after employees objected to it. Now the company is working on a new proposal for the Pentagon.`\
 https://nytimes.com/2021/11/03/technology/google-pentagon-artificial-intelligence.html?searchResultPosition=3
 
