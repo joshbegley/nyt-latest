@@ -30,7 +30,7 @@ https://nytimes.com/2021/11/03/opinion/mothers-work-parenting.html?searchResultP
 `“Without MAGA, he would have lost by 15 points or more,” the former president said in a radio interview.`\
 https://nytimes.com/2021/11/03/us/elections/donald-trump-youngkin-victory.html?searchResultPosition=8
 
-**As logistical frustrations grow at the U.N. climate conference, organizers blame the pandemic.**\
+**Organizers blame the pandemic as frustrations grow over long waits and other glitches at the climate conference.**\
 `One veteran of the annual gathering described it as the “poorest planed” to date. A young American activist called it a “hellscape.”`\
 https://nytimes.com/2021/11/03/world/europe/cop26-summit-lines.html?searchResultPosition=9
 
