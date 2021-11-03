@@ -1,6 +1,6 @@
 **Reeling From Surprise Losses, Democrats Sound the Alarm for 2022**\
 `Party officials say the White House and Congress must do more to address the electorate’s deep malaise or risk watching voters lurch back toward the G.O.P. by default.`\
-https://nytimes.com/2021/11/03/us/politics/democrat-losses-strategy-2022.html?searchResultPosition=1
+https://nytimes.com/2021/11/03/us/politics/democrat-losses-2022.html?searchResultPosition=1
 
 **Buffalo Mayor Re-elected for a Fifth Term**\
 `Mayor Byron W. Brown of Buffalo, N.Y., declared victory in a write-in campaign for a new term. His opponent, India Walton, a democratic socialist and a first-time candidate, conceded.`\
