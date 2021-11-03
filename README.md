@@ -32,7 +32,7 @@ https://nytimes.com/video/us/elections/100000008058368/polls-close-virginia-gove
 
 **Voting is over and a winner is expected tonight in the New York City mayor’s race.**\
 `It is unclear when a winner will be declared, but in the 2013 election, the last open-seat mayoral race in the city, the contest was called less than an hour after polls closed.`\
-https://nytimes.com/2021/11/02/nyregion/voting-is-over-and-a-winner-is-expected-tonight-in-the-new-york-city-mayors-race.html?searchResultPosition=9
+https://nytimes.com/2021/11/02/nyregion/voting-ends-nyc-mayor-race.html?searchResultPosition=9
 
 **Review: ‘Tammany Hall’ Votes the Party Line**\
 `An immersive show at the SoHo Playhouse takes theatergoers back to a speakeasy in 1929, when New York was also in a mayoral race.`\
