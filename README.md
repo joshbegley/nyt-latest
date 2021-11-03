@@ -31,7 +31,7 @@ https://nytimes.com/video/us/politics/100000008059153/yellen-green-bonds-cop26.h
 https://nytimes.com/2021/11/03/dining/thank-you-claudia-roden.html?searchResultPosition=8
 
 **With Cuomo Gone, Hochul Revises Plan for Penn Station**\
-`Governor Kathy Hochul is putting her own stamp on former Gov. Andrew Cuomo’s proposal, focusing on rebuilding the huge station but putting off its expansion.`\
+`Gov. Kathy Hochul is putting her own stamp on former Gov. Andrew Cuomo’s proposal, focusing on rebuilding the huge station but putting off its expansion.`\
 https://nytimes.com/2021/11/03/nyregion/penn-station-nyc-hochul.html?searchResultPosition=9
 
 **When the Soccer Is Just a Story Line**\
