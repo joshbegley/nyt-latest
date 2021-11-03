@@ -22,8 +22,8 @@ https://nytimes.com/2021/11/03/world/uk-fossil-fuel-coal-cop26.html?searchResult
 `Sufficient shipments of vaccines have been slow to reach many countries in the region and economic inequalities are complicating matters.`\
 https://nytimes.com/2021/11/03/world/latin-america-pressed-on-vaccine-priorities.html?searchResultPosition=6
 
-**Murphy Narrowly Wins N.J. Governor’s Race**\
-`The slim victory, which ended Democrats’ 44-year re-election losing streak in the state, was far tighter than polls and Democratic strategists predicted.`\
+**Murphy Narrowly Wins Re-election as New Jersey’s Governor**\
+`The victory over Jack Ciattarelli, which ended Democrats’ 44-year re-election losing streak in the state, was far tighter than polls and Democratic strategists predicted.`\
 https://nytimes.com/2021/11/03/nyregion/murphy-wins-nj-governor.html?searchResultPosition=7
 
 **Margaret York, an L.A.P.D. Model for ‘Cagney & Lacey,’ Dies at 80**\
