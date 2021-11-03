@@ -19,7 +19,7 @@ https://nytimes.com/video/us/elections/100000008058671/boston-mayor-michelle-wu.
 https://nytimes.com/video/us/elections/100000008058652/eric-adams-new-york-city-mayor-win.html?searchResultPosition=5
 
 **Atlanta Overcomes Decades of Frustration to Win World Series**\
-`A dominant all-around effort secured a Game 6 win, allowing an 88-win team to triumph over the top-scoring Astros.`\
+`A dominant all-around effort secured a Game 6 win, allowing an 88-win team to triumph over the top-scoring Houston Astros.`\
 https://nytimes.com/2021/11/02/sports/baseball/braves-win-world-series.html?searchResultPosition=6
 
 **Watch Live: Murphy Speaks to Supporters at Election Night Rally**\
