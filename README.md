@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/03/movies/the-souvenir-bergman-island.html?searchRes
 https://nytimes.com/2021/11/03/dining/toni-tipton-martin-foundation-julia-child.html?searchResultPosition=4
 
 **Eric Adams Vows to ‘Get Stuff Done.’ But First, a Night on the Town.**\
-`The next mayor of New York City, who celebrated at a downtown club with V.I.P.s, says he will focus on public safety and the crisis at Rikers Island.`\
+`The next mayor of New York City, who celebrated at a downtown club, says he will focus on public safety and the crisis at Rikers Island.`\
 https://nytimes.com/2021/11/03/nyregion/eric-adams-mayor-nyc.html?searchResultPosition=5
 
 **Scottie Pippen Takes Aim at Michael Jordan in New Book**\
