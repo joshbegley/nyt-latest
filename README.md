@@ -2,7 +2,7 @@
 `Smartmatic, an election technology company that faced baseless accusations of rigging the 2020 election, has filed a similar lawsuit against Fox News.`\
 https://nytimes.com/2021/11/03/business/media/smartmatic-newsmax-oan.html?searchResultPosition=1
 
-**The New York Sun, a defunct newspaper, will return online.**\
+**The New York Sun, a defunct newspaper, plans a comeback after a sale.**\
 `Seth Lipsky sold the publication to Dovid Efune, the former top editor of The Algemeiner Journal. Mr. Lipsky will remain the top editor, and Mr. Efune will be publisher and chairman.`\
 https://nytimes.com/2021/11/03/business/media/new-york-sun-return-online.html?searchResultPosition=2
 
