@@ -24,10 +24,10 @@ https://nytimes.com/2021/11/03/arts/design/3-art-gallery-shows-to-see-right-now.
 
 **Black voters in Virginia refuse to be blamed for a major Democratic defeat.**\
 `Black state leaders and voters said the results were a sign that the party could not rely on minority voters to cover its cratering totals in white areas of the state.`\
-https://nytimes.com/2021/11/03/us/politics/black-voters-in-virginia-refuse-to-be-blamed-for-a-major-democratic-defeat.html?searchResultPosition=7
+https://nytimes.com/2021/11/03/us/politics/black-voters-virginia.html?searchResultPosition=7
 
 **Aaron Rodgers Out After Positive Coronavirus Test**\
-`The Green Bay Packers quarterback will miss Sunday’s game against Kansas City after testing positive for the virus, raising questions about his vaccination status.`\
+`The Green Bay Packers quarterback will miss Sunday’s game against Kansas City after testing positive for the virus and raised questions about his vaccination status.`\
 https://nytimes.com/2021/11/03/sports/football/aaron-rodgers-covid-vaccinated-packers.html?searchResultPosition=8
 
 **Sunao Tsuboi, 96, Dies; Hiroshima Victim Who Lived to Tell His Story**\
