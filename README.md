@@ -36,5 +36,5 @@ https://nytimes.com/video/us/elections/100000008058652/eric-adams-new-york-city-
 
 **Watch Live: Jack Ciattarelli Speaks to Supporters at Election Night Rally**\
 `The Democratic New Jersey governor, Phil Murphy, trails in a closely watched election against his Republican opponent, Jack Ciattarelli.`\
-https://nytimes.com/video/us/elections/100000008051696/murphy-nj-governor-watch-live.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/elections/100000008051696/murphy-nj-governor-watch-live.html?searchResultPosition=10
 
