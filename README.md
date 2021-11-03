@@ -18,13 +18,13 @@ https://nytimes.com/video/us/elections/100000008058671/boston-mayor-michelle-wu.
 `Eric Adams, a former police officer and Brooklyn borough president, will be the city’s second Black mayor. He will take office on Jan. 1.`\
 https://nytimes.com/video/us/elections/100000008058652/eric-adams-new-york-city-mayor-win.html?searchResultPosition=5
 
+**Watch Live: Jack Ciaterrelli Speaks to Supporters at Election Night Rally**\
+`The Democratic New Jersey governor, Phil Murphy, trails in a closely watched election against his Republican opponent, Jack Ciattarelli.`\
+https://nytimes.com/video/us/elections/100000008051696/murphy-nj-governor-watch-live.html?searchResultPosition=6
+
 **Atlanta Overcomes Decades of Frustration to Win World Series**\
 `A dominant all-around effort secured a Game 6 win, allowing an 88-win team to triumph over the top-scoring Houston Astros.`\
-https://nytimes.com/2021/11/02/sports/baseball/braves-win-world-series.html?searchResultPosition=6
-
-**Watch Live: Murphy Speaks to Supporters at Election Night Rally**\
-`The Democratic New Jersey governor, Phil Murphy, trails in a closely watched election against his Republican opponent, Jack Ciattarelli.`\
-https://nytimes.com/video/us/elections/100000008051696/murphy-nj-governor-watch-live.html?searchResultPosition=7
+https://nytimes.com/2021/11/02/sports/baseball/braves-win-world-series.html?searchResultPosition=7
 
 **Buffalo mayor’s race hangs in the balance with write-in ballots.**\
 `The signs were promising for Byron Brown, the incumbent trying to defeat socialist India Walton, who won the Democratic primary in June.`\
