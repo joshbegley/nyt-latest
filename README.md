@@ -2,8 +2,8 @@
 `Mr. Youngkin, a former private equity executive making his first run for office, focused on education and taxes while projecting a suburban-dad image to create distance from former President Trump.`\
 https://nytimes.com/2021/11/02/us/elections/youngkin-wins-virginia-governor.html?searchResultPosition=1
 
-**‘My Name Is Cleo’: Girl Is Found 18 Days After Vanishing From Campsite**\
-`The 4-year-old had disappeared while camping with her family in a remote area of Australia. She was found “alive and well” in a locked house.`\
+**‘My Name Is Cleo’: Girl, 4, Is Found 18 Days After Vanishing From Campsite**\
+`Cleo Smith had disappeared while camping with her family in a remote area of Australia. She was found “alive and well” in a locked house, and a man was detained.`\
 https://nytimes.com/2021/11/03/world/australia/missing-cleo-smith.html?searchResultPosition=2
 
 **In N.F.L. Awards Race, M.V.P. Won’t Be the Only Close Call**\
