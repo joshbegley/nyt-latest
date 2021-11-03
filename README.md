@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/03/arts/music/classical-music-bach.html?searchResult
 https://nytimes.com/2021/11/03/travel/jura-wine-climate-change.html?searchResultPosition=4
 
 **For the Astros, a Stinging Loss and an Uncertain Future**\
-`Houston’s experience couldn’t save it in the World Series and with Carlos Correa sounding like a player who has already left, there is no telling what the team might look like next season.`\
+`Houston’s experience couldn’t save it in the World Series. With Carlos Correa hinting he might leave, there is no telling what the team might look like next season.`\
 https://nytimes.com/2021/11/03/sports/baseball/astros-lose-world-series.html?searchResultPosition=5
 
 **Your Garden Isn’t Winding Down: It’s Still Lichen Season**\
