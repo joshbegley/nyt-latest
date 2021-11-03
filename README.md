@@ -14,7 +14,7 @@ https://nytimes.com/2021/11/03/world/asia/sunao-tsuboi-dead.html?searchResultPos
 `The rise in prices has affected not only consumer goods but some government savings bonds, and it could benefit some investors looking for safe spaces for their money.`\
 https://nytimes.com/2021/11/03/your-money/series-i-bonds-inflation-rate.html?searchResultPosition=4
 
-**The Playbook to Overturn Roe v. Wade Next Year**\
+**We Can Now See the Playbook for Overturning Roe v. Wade**\
 `The Supreme Court’s conservatives may have calculated that they need political cover for overturning or badly damaging Roe later this term.`\
 https://nytimes.com/2021/11/03/opinion/roe-v-wade-texas-abortion-sb8.html?searchResultPosition=5
 
