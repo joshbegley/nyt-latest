@@ -1,6 +1,6 @@
 **How to Block Your Phone from Interrupting You**\
 `If the apps, alerts and action on your smartphone are taking up too much of your attention, turn on Focus mode to mute the distractions.`\
-https://nytimes.com/2021/11/03/technology/personaltech/how-to-block-your-phone-from-interrupting-you.html?searchResultPosition=1
+https://nytimes.com/2021/11/03/technology/personaltech/smartphone-focus-mode.html?searchResultPosition=1
 
 **ISIS Poses a Growing Threat to New Taliban Government in Afghanistan**\
 `The Taliban takeover was supposed to bring an end to war, the new government promised. But a growing insurgency is upending security and raising alarms for the international community.`\
