@@ -26,7 +26,7 @@ https://nytimes.com/video/us/politics/100000008059153/yellen-green-bonds-cop26.h
 `Melissa Clark traveled to London to meet the cookbook author and bring back a few recipes.`\
 https://nytimes.com/2021/11/03/dining/thank-you-claudia-roden.html?searchResultPosition=7
 
-**Hochul’s New Penn Station Plan Delays Adding More Tracks**\
+**With Cuomo Gone, Hochul Revises Plan for Penn Station**\
 `Governor Hochul is putting her own stamp on former Gov. Andrew Cuomo’s proposal, focusing on rebuilding the huge station but putting off its expansion.`\
 https://nytimes.com/2021/11/03/nyregion/penn-station-nyc-hochul.html?searchResultPosition=8
 
