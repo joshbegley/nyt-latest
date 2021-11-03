@@ -1,4 +1,4 @@
-**Offered a Chance to Reinvent Policing, Minneapolis Opts for What it Knows**\
+**Offered a Chance to Reinvent Policing, Minneapolis Opts for What It Knows**\
 `Around the country, local elections suggested that voters were rejecting the most sweeping calls to reinvent law enforcement.`\
 https://nytimes.com/2021/11/03/us/police-reform-minneapolis-election.html?searchResultPosition=1
 
