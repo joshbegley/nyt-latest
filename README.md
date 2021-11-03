@@ -18,7 +18,7 @@ https://nytimes.com/video/us/elections/100000008058671/boston-mayor-michelle-wu.
 `Eric Adams, a former police officer and Brooklyn borough president, will be the city’s second Black mayor. He will take office on Jan. 1.`\
 https://nytimes.com/video/us/elections/100000008058652/eric-adams-new-york-city-mayor-win.html?searchResultPosition=5
 
-**Watch Live: Jack Ciaterrelli Speaks to Supporters at Election Night Rally**\
+**Watch Live: Jack Ciattarelli Speaks to Supporters at Election Night Rally**\
 `The Democratic New Jersey governor, Phil Murphy, trails in a closely watched election against his Republican opponent, Jack Ciattarelli.`\
 https://nytimes.com/video/us/elections/100000008051696/murphy-nj-governor-watch-live.html?searchResultPosition=6
 
