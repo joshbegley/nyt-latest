@@ -1,4 +1,4 @@
-**Equestrian Jumping Set to Be Dropped From Modern Pentathlon**\
+**Equestrian Jumping Is Set to Be Dropped From Modern Pentathlon**\
 `Claims of animal abuse at the Tokyo Olympics could lead to the biggest change to modern pentathlon in more than a century.`\
 https://nytimes.com/2021/11/03/sports/olympics/horses-equestrian-jumping-modern-pentathlon.html?searchResultPosition=1
 
