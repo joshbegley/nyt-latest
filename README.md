@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/04/movies/a-man-named-scott-review.html?searchResultPosition=1
 
 **Annie Leibovitz, the Un-Fashion Photographer**\
-`“Fashion wasn’t anything I wanted to be involved with,” she says. Yet the visually arresting images in “Wonderland” may be her strongest work.`\
+`“Fashion wasn’t anything I wanted to be involved with,” she says. Yet the visually arresting images in “Wonderland,” her new book and collection, may be her strongest work.`\
 https://nytimes.com/2021/11/04/arts/design/annie-leibovitz-wonderland.html?searchResultPosition=2
 
 **The New York City Marathon Route: A Five-Borough Tour**\
