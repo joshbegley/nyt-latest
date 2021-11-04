@@ -20,7 +20,7 @@ https://nytimes.com/2021/11/03/us/politics/biden-rejects-payments-migrants.html?
 
 **Watch Live: Murphy Delivers Election Victory Speech**\
 `Gov. Philip D. Murphy of New Jersey is the first Democrat to be re-elected governor in the state in more than 40 years.`\
-https://nytimes.com/video/us/elections/100000008059903/new-jersey-government-speech.html?searchResultPosition=6
+https://nytimes.com/video/embedded/us/elections/100000008059903/new-jersey-government-speech.html?searchResultPosition=6
 
 **Review: Edie Falco Shines as an Everywoman in ‘Morning Sun’**\
 `A new play by Simon Stephens has hearty performances but a nearly undetectable pulse.`\
