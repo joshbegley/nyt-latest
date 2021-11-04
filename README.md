@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/03/opinion/youngkin-virginia-race.html?searchResultPosition=1
 
 **Iran Seizes an Oil Tanker, but Whose Tanker Is Disputed**\
-`American and Iranian officials gave sharply conflicting accounts of a ship that was seized last month. Some reports said it was a tanker that the United States had seized last year.`\
+`U.S. and Iranian officials gave conflicting accounts of a ship that was seized last month. Some reports said it was the same tanker the United States had seized last year. The Pentagon denied that.`\
 https://nytimes.com/2021/11/03/world/middleeast/iran-tanker-oil.html?searchResultPosition=2
 
 **Biden Rejects $450,000 Payments for Separated Migrants**\
