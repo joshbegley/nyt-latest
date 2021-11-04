@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/04/nyregion/nj-governor-race-phil-murphy-victory.html?searchResultPosition=1
 
 **Nearly All-White Jury in Arbery Killing Draws Scrutiny**\
-`The guidelines that allowed the judge to seat a nearly all-white panel were meant to remove bias from the process but have come to be considered a failure by many legal scholars.`\
+`The guidelines that allowed the judge to seat a panel with one black juror were meant to remove bias from the process but have come to be considered a failure by many legal scholars.`\
 https://nytimes.com/2021/11/04/us/ahmaud-arbery-trial-jury.html?searchResultPosition=2
 
 **The Democratic Turnout Myth Unravels**\
