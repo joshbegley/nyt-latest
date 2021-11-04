@@ -1,40 +1,40 @@
+**‘All Is Forgiven’ Review: A Distinctive First Feature**\
+`A father with a drug problem tries to reconnect with his daughter.`\
+https://nytimes.com/2021/11/04/movies/all-is-forgiven-review.html?searchResultPosition=1
+
+**‘Finch’ Review: Three for the Road**\
+`Tom Hanks, a dog and two robots take a post-apocalyptic road trip in this unexciting drama from Apple TV+.`\
+https://nytimes.com/2021/11/04/arts/finch-review.html?searchResultPosition=2
+
+**‘The Beta Test’ Review: Paranoia in Hollywood**\
+`Jim Cummings stars as a phony talent agent who agrees to an anonymous sexual encounter in this unruly satire.`\
+https://nytimes.com/2021/11/04/arts/the-beta-test-review.html?searchResultPosition=3
+
+**‘A Cop Movie’ Review: When a Uniform Is a Costume**\
+`This strange and ambitious Mexican film plays like a combination of “Cops,” “F for Fake” and “When Harry Met Sally.”`\
+https://nytimes.com/2021/11/04/movies/a-cop-movie-review.html?searchResultPosition=4
+
+**‘Beans’ Review: Growing Up Fast in the ’90s**\
+`A middle school student comes of age during a standoff between the police and Mohawk residents during the 1990 Oka crisis in Canada.`\
+https://nytimes.com/2021/11/04/movies/beans-review.html?searchResultPosition=5
+
+**Review: ‘This Is Not a War Story,’ Nor Does Coming Home Mean Peace**\
+`This poignant drama directed by and starring Talia Lugacy follows a traumatized Marine as she tries to connect with a group of fellow veterans at home.`\
+https://nytimes.com/2021/11/04/movies/review-this-is-not-a-war-story.html?searchResultPosition=6
+
+**‘Mark, Mary & Some Other People’ Review: Till Death Do They Waffle**\
+`In this romantic comedy, a couple opens their relationship to prove they can be married and modern.`\
+https://nytimes.com/2021/11/04/movies/mark-mary-some-other-people-review.html?searchResultPosition=7
+
 **What’s the Matter With Scarsdale?**\
 `Democrats’ struggles with working-class voters seem to be getting worse.`\
-https://nytimes.com/2021/11/04/briefing/democrats-election-working-class-voters.html?searchResultPosition=1
+https://nytimes.com/2021/11/04/briefing/democrats-election-working-class-voters.html?searchResultPosition=8
 
 **Manhattan Valley: A ‘More Affordable Pocket of the Upper West Side’**\
 `Residents treasure this attainable neighborhood near the top of Central Park, where ‘everyone has an interesting story to tell.’`\
-https://nytimes.com/2021/11/04/realestate/manhattan-valley-a-more-affordable-pocket-of-the-upper-west-side.html?searchResultPosition=2
+https://nytimes.com/2021/11/04/realestate/manhattan-valley-a-more-affordable-pocket-of-the-upper-west-side.html?searchResultPosition=9
 
 **Living In ... Manhattan Valley**\
 `Residents treasure this attainable neighborhood near the top of Central Park, where ‘everyone has an interesting story to tell.’`\
-https://nytimes.com/slideshow/2021/11/04/realestate/living-in-manhattan-valley.html?searchResultPosition=3
-
-**A Rough Election Night for the Democrats**\
-`Why did the party fare so poorly in Tuesday’s closely watched contests?`\
-https://nytimes.com/2021/11/04/podcasts/the-daily/virginia-elections-glenn-youngkin-terry-mcauliffe-democratic-loss.html?searchResultPosition=4
-
-**The Marathon Returns to a City Eager to Celebrate It**\
-`Runners, organizers and spectators are preparing for New York’s first marathon since the onset of the pandemic, another milestone in the city’s long journey of recovery.`\
-https://nytimes.com/2021/11/04/sports/nyc-marathon-returns.html?searchResultPosition=5
-
-**OPEC and Russia will decide on oil output under pressure from Biden.**\
-`At a meeting on Thursday, big oil producers are likely to juggle U.S. ties, climate change pressures and their own economics.`\
-https://nytimes.com/2021/11/04/business/energy-environment/opec-russia-biden.html?searchResultPosition=6
-
-**5 Takeaways From the First Days of the Climate Summit**\
-`The world leaders have left Glasgow. Now negotiators must hunker down to turn pledges into reality.`\
-https://nytimes.com/2021/11/04/climate/cop26-climate-glasgow-takeaways.html?searchResultPosition=7
-
-**Three Stars, Three Ways, Three Classic Plays**\
-`On British stages, Saoirse Ronan, Cush Jumbo and Ian McKellen present contrasting approaches to Shakespeare and Chekhov.`\
-https://nytimes.com/2021/11/04/theater/saoirse-ronan-cush-jumbo-and-ian-mckellen.html?searchResultPosition=8
-
-**The Price of Living in ‘Paradise’ Is Higher Than Ever**\
-`Land and homes in Hawaii, never inexpensive, are more in demand in these days of remote working — as in remote from the U.S. mainland.`\
-https://nytimes.com/2021/11/04/realestate/hawaii-housing-prices-pandemic.html?searchResultPosition=9
-
-**For Britain’s Seaside Resorts, Rejuvenation in Small Doses**\
-`A look at three spots that have weathered challenges in very different ways.`\
-https://nytimes.com/2021/11/04/realestate/england-seaside-towns-resorts.html?searchResultPosition=10
+https://nytimes.com/slideshow/2021/11/04/realestate/living-in-manhattan-valley.html?searchResultPosition=10
 
