@@ -1,6 +1,6 @@
 **OPEC and Russia will ponder oil output under pressure from Biden.**\
 `At a meeting on Thursday, big oil producers are likely to juggle U.S. ties, climate change pressures and their own economics.`\
-https://nytimes.com/2021/11/04/business/energy-environment/opec-and-russia-will-ponder-oil-output-under-pressure-from-biden.html?searchResultPosition=1
+https://nytimes.com/2021/11/04/business/energy-environment/opec-russia-biden.html?searchResultPosition=1
 
 **5 Takeaways from the First Days of the Climate Summit**\
 `The world leaders have left Glasgow. Now negotiators must hunker down to turn pledges into reality.`\
