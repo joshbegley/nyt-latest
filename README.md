@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/04/learning/film-club-greta-thunberg-has-given-up-on
 
 **The U.K. approves Merck’s molnupiravir, making it the first pill to be endorsed for treating Covid.**\
 `The British authorities said that the antiviral drug was “safe and effective” in reducing the risk of hospitalization and death for those at increased risk of severe symptoms.`\
-https://nytimes.com/2021/11/04/world/uk-merck-pill-molnupravir.html?searchResultPosition=4
+https://nytimes.com/2021/11/04/world/europe/uk-merck-pill-molnupravir.html?searchResultPosition=4
 
 **Man Charged in Abduction of 4-Year-Old Girl After 18-Day Search**\
 `The legal action came as the Australian authorities continued to address questions about how the police had been able to find Cleo Smith, who vanished from a remote campsite.`\
