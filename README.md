@@ -35,6 +35,6 @@ https://nytimes.com/2021/11/04/technology/apple-samsung-smartphones.html?searchR
 https://nytimes.com/2021/11/04/climate/public-health-climate-change.html?searchResultPosition=9
 
 **What Does the Biden Administration’s Vaccine Mandate Mean for You?**\
-`The Occupational Safety and Health Administration has laid out ground rules for companies with 100 or more employees to ensure their workers are fully vaccinated by Jan. 4 or submit to weekly testing.`\
+`The Occupational Safety and Health Administration has laid out guidance for companies with 100 or more employees to ensure their workers are fully vaccinated by Jan. 4 or submit to weekly testing.`\
 https://nytimes.com/article/vaccine-mandate-biden-osha.html?searchResultPosition=10
 
