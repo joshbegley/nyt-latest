@@ -18,7 +18,7 @@ https://nytimes.com/2021/11/04/podcasts/the-daily/virginia-elections-glenn-young
 `Runners, organizers and spectators are preparing for New York’s first marathon since the onset of the pandemic, another milestone in the city’s long journey of recovery.`\
 https://nytimes.com/2021/11/04/sports/nyc-marathon-returns.html?searchResultPosition=5
 
-**OPEC and Russia will ponder oil output under pressure from Biden.**\
+**OPEC and Russia will decide on oil output under pressure from Biden.**\
 `At a meeting on Thursday, big oil producers are likely to juggle U.S. ties, climate change pressures and their own economics.`\
 https://nytimes.com/2021/11/04/business/energy-environment/opec-russia-biden.html?searchResultPosition=6
 
