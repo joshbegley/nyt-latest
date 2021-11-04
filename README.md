@@ -1,5 +1,5 @@
 **Israel Passes First Budget in More Than 3 Years**\
-`The vote raised hopes that the country might be headed for increased political stability after the chaos of four elections within two years.`\
+`The vote raised hopes that the country might be headed for increased political stability after the chaos of four elections in quick succession.`\
 https://nytimes.com/2021/11/04/world/middleeast/israel-budget.html?searchResultPosition=1
 
 **On the Agenda: ‘Get Stuff Done’**\
