@@ -1,6 +1,6 @@
 **Authorities Arrest Analyst Who Contributed to Steele Dossier**\
 `Igor Danchenko, a Russia analyst who worked with Christopher Steele, the author of a dossier of rumors and unproven assertions about Donald J. Trump, was taken into custody as part of the Durham investigation.`\
-https://nytimes.com/2021/11/04/us/authorities-arrest-analyst-who-contributed-to-steele-dossier.html?searchResultPosition=1
+https://nytimes.com/2021/11/04/us/igor-danchenko-arrested-steele-dossier.html?searchResultPosition=1
 
 **Which Cities Are Growing Most at the Expense of Others?**\
 `In recent years, metropolitan areas in the Sun Belt had the greatest gains in population from metro-to-metro moves.`\
