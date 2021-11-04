@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/04/movies/spencer-review.html?searchResultPosition=7
 
 **A.N.C. Suffers Worst Election Setback Since End of Apartheid**\
 `In nationwide municipal elections, South Africans rebuked the African National Congress, handing it less than half the collective vote for the first time in its history.`\
-https://nytimes.com/2021/11/04/world/africa/anc-suffers-worst-election-setback-since-end-of-apartheid.html?searchResultPosition=8
+https://nytimes.com/2021/11/04/world/africa/south-africa-election-anc.html?searchResultPosition=8
 
 **‘Europe is back at the epicenter of the pandemic,’ a W.H.O. official says.**\
 `The World Health Organization said Europe was responsible for nearly three-fifths of the world’s recent coronavirus cases, and that deaths in the region were surging.`\
