@@ -1,4 +1,4 @@
-**5 Takeaways from Day 3 of the Climate Summit**\
+**5 Takeaways from the First Days of the Climate Summit**\
 `The world leaders have left Glasgow. Now negotiators must hunker down to turn pledges into reality.`\
 https://nytimes.com/2021/11/04/climate/what-happened-cop26-climate-glasgow.html?searchResultPosition=1
 
