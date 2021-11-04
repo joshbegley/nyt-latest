@@ -22,7 +22,7 @@ https://nytimes.com/2021/11/04/sports/nyc-marathon-returns.html?searchResultPosi
 `At a meeting on Thursday, big oil producers are likely to juggle U.S. ties, climate change pressures and their own economics.`\
 https://nytimes.com/2021/11/04/business/energy-environment/opec-russia-biden.html?searchResultPosition=6
 
-**5 Takeaways from the First Days of the Climate Summit**\
+**5 Takeaways From the First Days of the Climate Summit**\
 `The world leaders have left Glasgow. Now negotiators must hunker down to turn pledges into reality.`\
 https://nytimes.com/2021/11/04/climate/cop26-climate-glasgow-takeaways.html?searchResultPosition=7
 
