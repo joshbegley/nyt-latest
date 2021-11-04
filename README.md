@@ -2,7 +2,7 @@
 `The Democratic governor won re-election in a surprisingly close race that has raised questions about his ability to enact liberal measures on gun control and abortion.`\
 https://nytimes.com/2021/11/04/nyregion/nj-governor-race-phil-murphy-victory.html?searchResultPosition=1
 
-**Racially Lopsided Jury in Arbery Killing Draws Scrutiny**\
+**Nearly All-White Jury in Arbery Killing Draws Scrutiny**\
 `The guidelines that allowed the judge to seat a nearly all-white panel were meant to remove bias from the process but have come to be considered a failure by many legal scholars.`\
 https://nytimes.com/2021/11/04/us/ahmaud-arbery-trial-jury.html?searchResultPosition=2
 
