@@ -1,6 +1,6 @@
 **5 Takeaways from the First Days of the Climate Summit**\
 `The world leaders have left Glasgow. Now negotiators must hunker down to turn pledges into reality.`\
-https://nytimes.com/2021/11/04/climate/what-happened-cop26-climate-glasgow.html?searchResultPosition=1
+https://nytimes.com/2021/11/04/climate/cop26-climate-glasgow-takeaways.html?searchResultPosition=1
 
 **Three Stars, Three Ways, Three Classic Plays**\
 `On British stages, Saoirse Ronan, Cush Jumbo and Ian McKellen present contrasting approaches to Shakespeare and Chekhov.`\
