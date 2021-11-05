@@ -1,40 +1,40 @@
+**The Pandemic Taught Me to Stop Racing Against Myself**\
+`It takes courage to accept where you are now, to resist trying to force yourself back to what you once were. `\
+https://nytimes.com/2021/11/05/opinion/culture/nyc-marathon-running-slower.html?searchResultPosition=1
+
+**Why We Have to Wave the ‘Bloody Shirt’ of Jan. 6**\
+`Somehow, we imagine that the politics of the past were more civil, more genteel, more rational. But they weren’t.`\
+https://nytimes.com/2021/11/05/opinion/democrats-bloody-shirt-jan-6.html?searchResultPosition=2
+
+**Wonking Out: Is the Great Resignation a Great Rethink?**\
+`Maybe workers realized how bad their jobs were.`\
+https://nytimes.com/2021/11/05/opinion/great-resignation-quit-job.html?searchResultPosition=3
+
+**What to Cook This Weekend**\
+`Practicing for Thanksgiving always helps, and now is the time to start.`\
+https://nytimes.com/2021/11/05/dining/what-to-cook-this-weekend.html?searchResultPosition=4
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include a gangster shoot-em-up, a post-apocalyptic zombie/cannibal thriller, a World War II film and more.`\
+https://nytimes.com/2021/11/05/movies/five-action-movies-to-stream-now.html?searchResultPosition=5
+
+**Post Malone and the Weeknd’s Emo Synth-Pop, and 12 More New Songs**\
+`Hear tracks by Jenny Lewis, TNGHT, Dawn Richard and others.`\
+https://nytimes.com/2021/11/05/arts/music/playlist-post-malone-the-weeknd-kendrick-lamar.html?searchResultPosition=6
+
 **Those Loud and Polluting Leaf Blowers**\
 `Readers mostly excoriate and urge alternatives to what one calls “these obnoxious, deafening, exhaust-spewing machines.” Also: The metaverse; signs of concern.`\
-https://nytimes.com/2021/11/05/opinion/letters/leaf-blowers.html?searchResultPosition=1
+https://nytimes.com/2021/11/05/opinion/letters/leaf-blowers.html?searchResultPosition=7
 
 **When Bad News About the Climate Is Good for Green Stocks**\
 `Markets respond when coverage of global warming spikes, new research suggests. But investors could become inured to the bleak state of climate change.`\
-https://nytimes.com/2021/11/05/business/climate-green-stock-market.html?searchResultPosition=2
+https://nytimes.com/2021/11/05/business/climate-green-stock-market.html?searchResultPosition=8
 
 **Ronnie Wilson, Founder of the Gap Band, Dies at 73**\
 `After beginning his career as a teenager, he joined with his two younger brothers to record R&B hits like “You Dropped a Bomb on Me” and “Outstanding.”`\
-https://nytimes.com/2021/11/05/arts/music/ronnie-wilson-dead.html?searchResultPosition=3
+https://nytimes.com/2021/11/05/arts/music/ronnie-wilson-dead.html?searchResultPosition=9
 
 **Ex-Macron Aide Convicted of Assault and Posing as a Police Officer**\
 `The aide, Alexandre Benalla, who was fired in 2018 after videos emerged of him beating a man at a labor protest, was sentenced to serve a year of house arrest with electronic monitoring.`\
-https://nytimes.com/2021/11/05/world/europe/france-macron-alexandre-benalla-guilty.html?searchResultPosition=4
-
-**Google Temps Fought Loss of Pandemic Bonus. And Won.**\
-`When a Google staffing agency reneged on a promise to pay an attendance bonus, temps who are part of the company’s union organized and forced it to backtrack.`\
-https://nytimes.com/2021/11/05/technology/google-workers.html?searchResultPosition=5
-
-**Near-Daily Covid Tests, Sleeping in Classrooms: Life in Covid-Zero China**\
-`Residents in Ruili, in southwestern China, have been locked down four times in the past year as part of the country’s quest to eliminate the virus.`\
-https://nytimes.com/2021/11/05/world/asia/china-coronavirus-ruili.html?searchResultPosition=6
-
-**Remains in Colorado Are Believed to Be West German Hiker Missing Since 1983**\
-`Rudi Moder, who was described as an experienced winter mountaineer, disappeared nearly 40 years ago during a skiing trip in Rocky Mountain National Park.`\
-https://nytimes.com/2021/11/05/us/rocky-mountain-park-missing-hiker.html?searchResultPosition=7
-
-**Labor force participation is static, a conundrum for the Fed.**\
-`Federal Reserve officials want to know where things stand in the job market’s recovery. It’s tricky to guess that, with so many workers on the sidelines.`\
-https://nytimes.com/2021/11/05/business/economy/job-market-participation-federal-reserve.html?searchResultPosition=8
-
-**How to Track Runners in the New York City Marathon.**\
-`Spectators can track runners online and on an app in real time on race day.`\
-https://nytimes.com/2021/11/05/sports/track-runners-nyc-marathon.html?searchResultPosition=9
-
-**The Metaverse Takes Manhattan**\
-`NFT.NYC, a gathering for nonfungible token enthusiasts, offered a taste of a crypto-filled future.`\
-https://nytimes.com/2021/11/05/technology/nft-nyc-metaverse.html?searchResultPosition=10
+https://nytimes.com/2021/11/05/world/europe/france-macron-alexandre-benalla-guilty.html?searchResultPosition=10
 
