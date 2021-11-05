@@ -1,4 +1,4 @@
-**People Tied to Project Veritas Scrutinized in Theft of Diary from Biden’s Daughter**\
+**People Tied to Project Veritas Scrutinized in Theft of Diary From Biden’s Daughter**\
 `The F.B.I. carried out search warrants in New York as part of a Justice Department investigation into how pages from Ashley Biden’s journal came to be published by a right wing website.`\
 https://nytimes.com/2021/11/05/us/politics/project-veritas-investigation-ashley-biden-diary.html?searchResultPosition=1
 
