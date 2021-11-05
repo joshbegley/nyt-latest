@@ -15,7 +15,7 @@ https://nytimes.com/video/world/europe/100000008063944/vanessa-nakate-ugandan-cl
 https://nytimes.com/2021/11/05/us/arbery-shooting-trial-witness-police.html?searchResultPosition=4
 
 **Aaron Rodgers Lashes Out About N.F.L.’s Vaccine Requirements**\
-`In a bizarre interview the quarterback conducted while quarantining because of a positive coronavirus test, he said that he was a victim of a “woke mob” and that he had unsuccessfully petitioned the N.F.L. to accept his alternative to being vaccinated.`\
+`In a bizarre interview conducted by the quarterback as he isolated because of a positive coronavirus test, he said that he was a victim of a “woke mob” and that he had unsuccessfully petitioned the N.F.L. to accept his alternative to being vaccinated.`\
 https://nytimes.com/2021/11/05/sports/football/coronavirus-aaron-rodgers.html?searchResultPosition=5
 
 **Coronavirus Briefing: What Happened Today**\
