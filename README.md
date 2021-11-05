@@ -27,7 +27,7 @@ https://nytimes.com/2021/11/05/podcasts/climate-change-billionaires-churchill-na
 https://nytimes.com/2021/11/05/world/europe/cop-protests.html?searchResultPosition=7
 
 **Wages are rising, but can they keep up with inflation?**\
-`In the tug of war between wage growth and rising prices, it is not yet clear who is winning. It could matter for the Fed.`\
+`In the tug of war between wage growth and rising prices, it is not yet clear who is winning. It could matter for the Federal Reserve.`\
 https://nytimes.com/2021/11/05/business/economy/wages-inflation.html?searchResultPosition=8
 
 **Here’s what to watch for in the October jobs report.**\
