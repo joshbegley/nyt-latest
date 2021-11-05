@@ -15,7 +15,7 @@ https://nytimes.com/video/world/europe/100000008063944/vanessa-nakate-ugandan-cl
 https://nytimes.com/2021/11/05/us/arbery-shooting-trial-witness-police.html?searchResultPosition=4
 
 **Aaron Rodgers Lashes Out About N.F.L.’s Vaccine Requirements**\
-`In an interview conducted by the quarterback as he isolated because of a positive coronavirus test, he said that he was a victim of a “woke mob” and that he had unsuccessfully petitioned the N.F.L. to accept his alternative to being vaccinated.`\
+`In an interview given by the quarterback as he isolated because of a positive coronavirus test, he said that he was a victim of a “woke mob” and that he had unsuccessfully petitioned the N.F.L. to accept his alternative to being vaccinated.`\
 https://nytimes.com/2021/11/05/sports/football/coronavirus-aaron-rodgers.html?searchResultPosition=5
 
 **Coronavirus Briefing: What Happened Today**\
@@ -26,15 +26,15 @@ https://nytimes.com/2021/11/05/us/coronavirus-briefing-what-happened-today-trave
 `A reader seeks advice on how to feel stylish while still sticking to safe fabrics.`\
 https://nytimes.com/2021/11/05/style/how-can-i-dress-fashionably-without-irritating-my-skin.html?searchResultPosition=7
 
+**Here’s why jury selection took so long.**\
+`Selecting an impartial jury from a small town where everyone knows everyone meant filtering through hundreds of candidates.`\
+https://nytimes.com/2021/11/05/us/heres-why-jury-selection-took-so-long.html?searchResultPosition=8
+
 **U.N. Rights Panel Pressures Sudan Over Coup**\
 `The Human Rights Council appointed an expert to investigate abuses in the country since the military seized power on Oct. 25, and members called for the prime minister’s release.`\
-https://nytimes.com/2021/11/05/world/africa/un-rights-panel-sudan-coup.html?searchResultPosition=8
+https://nytimes.com/2021/11/05/world/africa/un-rights-panel-sudan-coup.html?searchResultPosition=9
 
 **What to Do This Weekend**\
 `Change your clocks, contemplate your dreams.`\
-https://nytimes.com/2021/11/05/at-home/newsletter.html?searchResultPosition=9
-
-**Defense lawyers portray the fatal shooting of Ahmaud Arbery as self-defense.**\
-`The lawyers represent Travis McMichael, who fatally shot Mr. Arbery, and his father. The lawyer for the third defendant deferred his opening statement until later in the trial.`\
-https://nytimes.com/2021/11/05/us/ahmaud-arbery-defense-opening-statement.html?searchResultPosition=10
+https://nytimes.com/2021/11/05/at-home/newsletter.html?searchResultPosition=10
 
