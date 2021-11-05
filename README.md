@@ -1,4 +1,4 @@
-**U.S.C. Official to Plead Guilty in College Admissions Scandal**\
+**Former U.S.C. Official to Plead Guilty in College Admissions Scandal**\
 `Donna Heinel will admit to being part of a sweeping scheme that helped fake athletic recruits get into top universities, in exchange for bribes.`\
 https://nytimes.com/2021/11/05/us/usc-official-varsity-blues-guilty.html?searchResultPosition=1
 
