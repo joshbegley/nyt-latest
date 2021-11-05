@@ -6,7 +6,7 @@ https://nytimes.com/2021/11/05/arts/julie-green-dead.html?searchResultPosition=1
 `The grandeur of Soviet-era metros. Also in this edition: Benedict Cumberbatch as an alpha-male cowboy, and the devoted users of Neopets.`\
 https://nytimes.com/interactive/2021/11/05/briefing/the-weekender.html?searchResultPosition=2
 
-**What to Think at Work When You’re Expecting**\
+**What to Expect at Work When You’re Expecting**\
 `Legal protections against pregnancy discrimination are one thing. Actual feelings of security are another.`\
 https://nytimes.com/2021/11/05/business/what-to-think-at-work-when-youre-expecting.html?searchResultPosition=3
 
