@@ -6,8 +6,8 @@ https://nytimes.com/2021/11/05/world/africa/ethiopia-tigray-eight-groups.html?se
 `The litigation highlights the often messy process that Canadian political parties use to select their leaders.`\
 https://nytimes.com/2021/11/05/world/canada/manitoba-premier-election-stefanson-glover.html?searchResultPosition=2
 
-**How Hospitals Fuel Climate Change**\
-`The health care industry is a large source of greenhouse gases.`\
+**How Hospitals Fuel Climate Change **\
+`The health care industry is a large source of greenhouse gases. `\
 https://nytimes.com/interactive/2021/11/05/climate/climate-change-health.html?searchResultPosition=3
 
 **Boeing directors reach a settlement in a shareholder lawsuit over the 737 Max crashes.**\
