@@ -1,40 +1,40 @@
-**New York Becomes Marathon City Once Again**\
-`The marathon’s comeback from a pandemic that brought the city to a standstill will make it especially meaningful.`\
-https://nytimes.com/2021/11/05/nyregion/new-york-marathon-history.html?searchResultPosition=1
+**26.2 at 50**\
+`The New York City Marathon’s 50th running is on Sunday. This is the story of one race, five boroughs, dozens of champions and over a million hopeful runners.`\
+https://nytimes.com/2021/11/05/sports/nyc-marathon-historical-photos.html?searchResultPosition=1
 
-**Lesson of the Day: ‘A Close Look at My Day of the Dead Altar’**\
-`In this lesson, students will learn about traditions surrounding the Day of the Dead holiday in Mexico. Then, they will honor someone in their life who has died.`\
-https://nytimes.com/2021/11/05/learning/lesson-plans/lesson-of-the-day-a-close-look-at-my-day-of-the-dead-altar.html?searchResultPosition=2
+**Will World-Class Architecture Bring Civic Pride Back to Memphis?**\
+`Spurred by Herzog & de Meuron’s new art museum and a rethought waterfront park by Studio Gang, city leaders turn to design to make a downtown for “everyone.”`\
+https://nytimes.com/2021/11/05/arts/design/memphis-museum.html?searchResultPosition=2
 
-**Under the Sea**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2021/11/05/learning/under-the-sea.html?searchResultPosition=3
+**Disco Queens for Halloween**\
+`And galas for the American Ballet Theater and the Studio Museum in Harlem.`\
+https://nytimes.com/2021/11/05/style/hulaween-american-ballet-theater-studio-museum-gala.html?searchResultPosition=3
 
-**‘Love Hard’ Review: Seeking Connection, Not Perfection**\
-`When a perennially single journalist travels across the country to meet her dream guy, she finds she’s been catfished.`\
-https://nytimes.com/2021/11/05/movies/love-hard-review.html?searchResultPosition=4
+**Two Octogenarians Commit to ‘Living Apart Together’**\
+`Harry Mirra had no interest in remarrying after the death of his wife until Ginny Valonis, herself a widow, opened his mind to a union on their terms.`\
+https://nytimes.com/2021/11/05/style/ginny-valonis-harry-mirra-wedding.html?searchResultPosition=4
 
-**A Nuclear-Powered Shower? Russia Tests a Climate Innovation.**\
-`A remote Siberian town now has its own miniature nuclear plant as a Russian state company tests a new model for residential heating. Some see it as a tool to minimize climate change.`\
-https://nytimes.com/2021/11/05/world/europe/russia-nuclear-power-climate-change.html?searchResultPosition=5
+**First Black Woman in Bundestag Wants to Change Image of ‘Germanness’**\
+`After a deadly racist attack, Awet Tesfaiesus considered leaving Germany. Instead, she ran for Parliament with a “courage to change” slogan and won.`\
+https://nytimes.com/2021/11/05/world/europe/germany-black-woman-bundestag.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/05/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Kristen Stewart’s Princess Diaries**\
+`The actress is drawing Oscar talk for her portrayal of Princess Diana in “Spencer,” a role that required the sort of performance she had never given before.`\
+https://nytimes.com/2021/11/05/movies/kristen-stewart-spencer.html?searchResultPosition=6
 
-**Word of the Day: laissez-faire**\
-`This word has appeared in 64 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/11/05/learning/word-of-the-day-laissez-faire.html?searchResultPosition=7
+**Another Landmark Lost, This Time on Astor Row in Harlem**\
+`A building that is protected from demolition in New York City may seem safe, but decades of neglect and missed opportunities can take a toll.`\
+https://nytimes.com/2021/11/05/realestate/nyc-landmarks-demolition.html?searchResultPosition=7
 
-**Jimmy Kimmel: ‘Aaron Is a Karen’**\
-`As Covid sidelined the Green Bay Packers quarterback Aaron Rodgers, Kimmel and other hosts scorned him for implying that he’d been vaccinated.`\
-https://nytimes.com/2021/11/05/arts/television/jimmy-kimmel-aaron-rodgers.html?searchResultPosition=8
+**Michael Rubin’s Big Shot**\
+`Life isn’t all choppers and parties for the king of sports merch — he’s got plans.`\
+https://nytimes.com/2021/11/05/style/michael-rubin-fanatics-76ers.html?searchResultPosition=8
 
-**Laughs No More? Australians Are Reassessing a Beloved Cartoonist.**\
-`I used to think Michael Leunig’s drawings embodied the soul of our nation. Now, I’m not so sure.`\
-https://nytimes.com/2021/11/05/world/australia/laughs-no-more-australians-are-reassessing-a-beloved-cartoonist.html?searchResultPosition=9
+**WTA Finals, a Nomadic Tournament, Lands in Mexico**\
+`A last-minute deal brings the event to Guadalajara. But what about that altitude?`\
+https://nytimes.com/2021/11/05/sports/tennis/wta-finals-mexico.html?searchResultPosition=9
 
-**Israel Moves to Silence the Stalwarts of Palestinian Civil Society**\
-`These human rights activists are not terrorists.`\
-https://nytimes.com/2021/11/05/opinion/israel-moves-to-silence-the-stalwarts-of-palestinian-civil-society.html?searchResultPosition=10
+**Dining Sheds Saved N.Y.C. Could They Destroy It?**\
+`The Lower East Side has turned into an all-night fraternity party, locals say, and small businesses are asking for help.`\
+https://nytimes.com/2021/11/05/nyregion/outdoor-dining-nyc.html?searchResultPosition=10
 
