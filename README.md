@@ -1,40 +1,40 @@
-**Decision Makers and Activists at Climate Summit Perceive ‘Urgent’ Differently**\
-`At the Glasgow climate talks, the world leaders are mostly men over 60. The protesters outside are mostly young women.`\
-https://nytimes.com/2021/11/06/climate/climate-summit-glasgow-protests.html?searchResultPosition=1
+**A Turtle, a Pool and the Fight to Save Puerto Rico’s Beaches**\
+`An attempt to rebuild a beachfront pool turned into a much bigger story about the threats of erosion and overdevelopment on the island.`\
+https://nytimes.com/2021/11/06/us/puerto-rico-beaches-threats.html?searchResultPosition=1
 
-**At Least 8 Dead at Houston Music Festival After Crowd Surge Causes ‘Panic’**\
-`Dozens of other people who attended a Travis Scott concert at the Astroworld music festival were injured, Houston’s fire chief said.`\
-https://nytimes.com/2021/11/06/us/houston-astroworld-festival.html?searchResultPosition=2
+**On Spain’s Camino de Santiago, Even Óscar the Donkey Is a Pilgrim**\
+`An artist and an innkeeper have enlisted the help of a burro in their effort to rescue the traditions of Spain’s ancient pilgrimage route from mass tourism (and selfies).`\
+https://nytimes.com/2021/11/06/world/europe/camino-de-santiago-spain.html?searchResultPosition=2
 
-**Democrats Choosing Less Risky Path on Drug Prices**\
-`Experts say recent compromises could create less harm in balancing innovation with profits.`\
-https://nytimes.com/2021/11/06/upshot/democrats-drug-prices.html?searchResultPosition=3
+**How Police Justify Killing Drivers: ‘The Car Was a Weapon’**\
+`A Times investigation into a common defense for shooting motorists found that some officers had put themselves in danger. Others appeared to face no peril at all.`\
+https://nytimes.com/2021/11/06/us/police-traffic-stops-shooting.html?searchResultPosition=3
 
-**Eric Garner’s Mother Wanted Answers for His Death. She Isn’t Satisfied.**\
-`An inquiry into the killing of Mr. Garner in 2014 ended on Friday after the testimony of a dozen witnesses. Here are five takeaways.`\
-https://nytimes.com/2021/11/06/nyregion/eric-garner-death-police.html?searchResultPosition=4
+**This Is Where the States Want Billions in Infrastructure Funding Spent**\
+`The plan finally approved on Friday will address transportation, water, broadband, energy and public safety needs that have been building for years, sometimes decades.`\
+https://nytimes.com/2021/11/06/us/states-infrastructure-bill-funding.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/06/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**If You Sell ‘Oaxaca in a Bottle,’ What Happens to Oaxaca?**\
+`Mezcal is soaring in popularity far from the agave fields in Mexico.`\
+https://nytimes.com/2021/11/06/business/mezcal-sales-growth-oaxaca.html?searchResultPosition=5
 
-**What to Watch at U.F.C. 268 as Usman and Covington Headline**\
-`Kamaru Usman and Colby Covington fight for the welterweight title, while Rose Namajunas and Zhang Weili run back their strawweight championship fight from April.`\
-https://nytimes.com/2021/11/06/sports/ufc-268-usman-covington.html?searchResultPosition=6
+**In a Region in Strife, India’s Moral High Ground Erodes**\
+`The hard-line attitude of Narendra Modi’s ruling party toward Muslims has undermined the nation’s reputation as a voice for tolerance in South Asia.`\
+https://nytimes.com/2021/11/06/world/asia/india-region-muslim-hindu-strife.html?searchResultPosition=6
 
-**What to Watch as Canelo Álvarez and Caleb Plant Box in Las Vegas**\
-`Álvarez and Plant are competing to unify the super-middleweight boxing titles.`\
-https://nytimes.com/2021/11/06/sports/alvarez-plant-boxing.html?searchResultPosition=7
+**Can Progress on Diversity Be Union-Made?**\
+`In Boston, setting a goal for a racially diverse construction work force is one thing. Meeting it has proved more difficult.`\
+https://nytimes.com/2021/11/06/business/economy/unions-race-boston.html?searchResultPosition=7
 
-**Officer Michael Seavers’s Statement**\
-`The officer’s account of the traffic stop that ended in the fatal shooting of Cedric Mifflin.`\
-https://nytimes.com/interactive/2021/11/05/us/officer-seavers-letter.html?searchResultPosition=8
+**Star System With Right-Angled Planets Surprises Astronomers**\
+`Two planets orbit the poles while another revolves around the star’s equator, suggesting a mysterious, undetected force.`\
+https://nytimes.com/2021/11/06/science/perpendicular-planets-star-system.html?searchResultPosition=8
 
-**How Every House Member Voted on the Infrastructure Bill**\
-`The $1 trillion package passed with the support of nearly all Democrats and 13 Republicans.`\
-https://nytimes.com/interactive/2021/11/05/us/politics/house-vote-infrastructure.html?searchResultPosition=9
+**Are You Anxious, Avoidant or Secure?**\
+`Over a decade after its publication, one book on dating has people firmly in its grip.`\
+https://nytimes.com/2021/11/06/style/anxious-avoidant-secure-attached-book.html?searchResultPosition=9
 
-**Corrections: Nov. 6, 2021**\
-`Corrections that appeared in print on Saturday, Nov. 6, 2021.`\
-https://nytimes.com/2021/11/05/pageoneplus/corrections-nov-6-2021.html?searchResultPosition=10
+**An 8-Year-Old Explains the Metaverse**\
+`“One minute you get scammed, another minute you’re having the best time of your life, making billions of dollars.”`\
+https://nytimes.com/2021/11/06/style/an-8-year-old-explains-the-metaverse.html?searchResultPosition=10
 
