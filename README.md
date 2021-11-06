@@ -6,7 +6,7 @@ https://nytimes.com/2021/11/05/us/politics/jeffrey-clark-capitol-riot-committee.
 `A dispatch from the protests outside COP26.`\
 https://nytimes.com/2021/11/05/podcasts/keeping-hope-alive-in-glasgow.html?searchResultPosition=2
 
-**Divided Democrats Lurch Toward Passing $1 Trillion Infrastructure Bill**\
+**Divided Democrats Lurch Toward Vote on $1 Trillion Infrastructure Bill**\
 `Progressives appeared ready to support the bill in exchange for a commitment from moderates to eventually back a separate $1.85 trillion social safety net bill that was put on hold on Friday.`\
 https://nytimes.com/2021/11/05/us/politics/house-infrastructure-reconciliation.html?searchResultPosition=3
 
