@@ -23,7 +23,7 @@ https://nytimes.com/video/world/africa/100000008064654/oil-tanker-explosion-sier
 https://nytimes.com/2021/11/06/us/travis-scott-crowd-surge.html?searchResultPosition=6
 
 **Court temporarily blocks Biden’s vaccine mandate.**\
-`A federal appeals court in Louisiana granted a temporary stay to a group of businesses, religious groups and several states that argued the administration overstepped its authority.`\
+`A stay granted by a federal appeals court in Louisiana could signal an uphill battle for the administration in getting the entire American work force vaccinated.`\
 https://nytimes.com/2021/11/06/world/americas/biden-osha-vaccine-mandate-blocked.html?searchResultPosition=7
 
 **In Infrastructure Votes, 19 Members Broke With Their Party**\
