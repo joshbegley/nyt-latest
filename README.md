@@ -1,6 +1,6 @@
 **This and That**\
 `Sid Sivakumar makes a sweet Sunday puzzle debut.`\
-https://nytimes.com/2021/11/06/crosswords/this-and-that.html?searchResultPosition=1
+https://nytimes.com/2021/11/06/crosswords/daily-puzzle-2021-11-07.html?searchResultPosition=1
 
 **Nothing Focuses the Mind Like an Electoral Drubbing**\
 `The bipartisan infrastructure bill has passed. Now it's time for Democratic centrists to make a good-faith deal on the Build Back Better bill.`\
