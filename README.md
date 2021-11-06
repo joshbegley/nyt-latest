@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/06/us/rural-vote-democrats-virginia.html?searchResul
 
 **The Congressional Black Caucus Was Key to the Infrastructure Vote**\
 `Speaker Nancy Pelosi sent the chairwoman of the caucus, Representative Joyce Beatty of Ohio, to announce a key deal, understanding that the lawmaker had more influence at that point than she did.`\
-https://nytimes.com/2021/11/06/us/politics/infrastructure-biden-democrats.html?searchResultPosition=2
+https://nytimes.com/2021/11/06/us/politics/infrastructure-black-caucus-vote.html?searchResultPosition=2
 
 **Biden Hails Passage of ‘Long Overdue’ Infrastructure Bill**\
 `President Biden celebrated the House passage of a $1 trillion bill to repair and modernize the nation’s aging infrastructure, a key legislative goal.`\
