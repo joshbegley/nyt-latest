@@ -1,14 +1,14 @@
 **F.B.I. Searches James O’Keefe’s Home in Ashley Biden Diary Theft Inquiry**\
 `Authorities carried out a court-ordered search at the New York apartment of the Project Veritas founder two days after searching the homes of his associates.`\
-https://nytimes.com/2021/11/06/us/politics/fbi-searches-james-okeefes-home-in-ashley-biden-diary-theft-inquiry.html?searchResultPosition=1
-
-**Georgia Grand Jury Looms in Trump Inquiry**\
-`An Atlanta D.A. is said to be likely to impanel a special grand jury in her criminal investigation of election interference by the former president and his allies.`\
-https://nytimes.com/2021/11/06/us/politics/trump-election-interference-investigation.html?searchResultPosition=2
+https://nytimes.com/2021/11/06/us/politics/ashley-biden-project-vertias-fbi.html?searchResultPosition=1
 
 **Americans Are Flush With Cash and Jobs. They Also Think the Economy Is Awful.**\
 `The psychological effects of inflation seem to have the upper hand.`\
-https://nytimes.com/2021/11/06/upshot/inflation-psychology-economy.html?searchResultPosition=3
+https://nytimes.com/2021/11/06/upshot/inflation-psychology-economy.html?searchResultPosition=2
+
+**Georgia Grand Jury Looms in Trump Inquiry**\
+`An Atlanta D.A. is said to be likely to impanel a special grand jury in her criminal investigation of election interference by the former president and his allies.`\
+https://nytimes.com/2021/11/06/us/politics/trump-election-interference-investigation.html?searchResultPosition=3
 
 **Foreman Says Military Jury Was Disgusted by C.I.A. Torture**\
 `A Navy captain whose letter recommended clemency for a Qaeda terrorist drafted the damning two-page document in 20 minutes.`\
