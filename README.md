@@ -12,7 +12,7 @@ https://nytimes.com/video/us/politics/100000008064547/biden-house-passes-infrast
 
 **F.B.I. Searches James O’Keefe’s Home in Ashley Biden Diary Theft Inquiry**\
 `Authorities carried out a court-ordered search at the New York apartment of the Project Veritas founder two days after searching the homes of his associates.`\
-https://nytimes.com/2021/11/06/us/politics/ashley-biden-project-vertias-fbi.html?searchResultPosition=4
+https://nytimes.com/2021/11/06/us/politics/james-okeefe-project-veritas-ashley-biden.html?searchResultPosition=4
 
 **Americans Are Flush With Cash and Jobs. They Also Think the Economy Is Awful.**\
 `The psychological effects of inflation seem to have the upper hand.`\
