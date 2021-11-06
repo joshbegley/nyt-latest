@@ -6,8 +6,8 @@ https://nytimes.com/2021/11/05/us/politics/jeffrey-clark-capitol-riot-committee.
 `A dispatch from the protests outside COP26.`\
 https://nytimes.com/2021/11/05/podcasts/keeping-hope-alive-in-glasgow.html?searchResultPosition=2
 
-**Facing Moderate Revolt, Democrats Put Social Policy Bill on Hold**\
-`Leaders pressed for a vote on a separate infrastructure bill, but the fate of both measures was in doubt amid party divisions, despite pleas from President Biden.`\
+**Divided Democrats Lurch Toward Passing $1 Trillion Infrastructure Bill**\
+`Progressives appeared ready to support the bill in exchange for a commitment from moderates to eventually back a separate $1.85 trillion social safety net bill that was put on hold on Friday.`\
 https://nytimes.com/2021/11/05/us/politics/house-infrastructure-reconciliation.html?searchResultPosition=3
 
 **2,000 Pages and Pronto! Budget Scorekeepers Are Under Pressure**\
