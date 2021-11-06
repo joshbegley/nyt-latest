@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/06/sports/alvarez-plant-boxing.html?searchResultPosi
 `The officer’s account of the traffic stop that ended in the fatal shooting of Cedric Mifflin.`\
 https://nytimes.com/interactive/2021/11/05/us/officer-seavers-letter.html?searchResultPosition=3
 
-**How the House Voted on the Infrastructure Bill**\
+**How Every House Member Voted on the Infrastructure Bill**\
 `The $1 trillion package passed with the support of nearly all Democrats and 13 Republicans.`\
 https://nytimes.com/interactive/2021/11/05/us/politics/house-vote-infrastructure.html?searchResultPosition=4
 
