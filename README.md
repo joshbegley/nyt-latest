@@ -26,7 +26,7 @@ https://nytimes.com/2021/11/06/opinion/africa-cop26-climate.html?searchResultPos
 `Thousands gathered in the rain in Glasgow to press the case for more urgent and meaningful action by world leaders in response to global warming.`\
 https://nytimes.com/2021/11/06/world/europe/cop-climate-protests.html?searchResultPosition=7
 
-**A Woke-Up Call for Democrats**\
+**For Democrats, Wokeness Meets Reality**\
 `Out of chaos comes just more chaos.`\
 https://nytimes.com/2021/11/06/opinion/sunday/democrats-elections.html?searchResultPosition=8
 
