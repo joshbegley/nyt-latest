@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/06/us/mark-glaze-influential-gun-control-advocate-di
 `Sid Sivakumar makes a sweet Sunday puzzle debut.`\
 https://nytimes.com/2021/11/06/crosswords/daily-puzzle-2021-11-07.html?searchResultPosition=3
 
-**Nothing Focuses the Mind Like an Electoral Drubbing**\
+**Who Won What in the Bipartisan Infrastructure Deal**\
 `The bipartisan infrastructure bill has passed. Now it's time for Democratic centrists to make a good-faith deal on the Build Back Better bill.`\
 https://nytimes.com/2021/11/06/opinion/biden-infrastructure-deal.html?searchResultPosition=4
 
