@@ -14,8 +14,8 @@ https://nytimes.com/video/world/africa/100000008064654/oil-tanker-explosion-sier
 `Eight people died at Travis Scott’s Astroworld festival, and hundreds more were injured as investigators sought to determine why and how a surging crowd turned deadly.`\
 https://nytimes.com/2021/11/06/us/travis-scott-crowd-surge.html?searchResultPosition=4
 
-**Court temporarily blocks Biden’s vaccine mandate for large companies.**\
-`A federal appeals court in Louisiana granted a temporary stay to a group of businesses, religious groups, and several states who argued in a joint petition that the administration overstepped its authority.`\
+**Court temporarily blocks Biden’s vaccine mandate.**\
+`A federal appeals court in Louisiana granted a temporary stay to a group of businesses, religious groups and several states that argued the administration overstepped its authority.`\
 https://nytimes.com/2021/11/06/world/americas/biden-osha-vaccine-mandate-blocked.html?searchResultPosition=5
 
 **In Infrastructure Votes, 19 Members Broke With Their Party**\
