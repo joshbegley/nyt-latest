@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/07/style/what-a-50-million-donation-did-for-one-hbcu
 
 **French Clerical Abuse Report Puts Spotlight on Confession**\
 `In rare instances, it noted, the secrecy around the sacrament had been used to cover up abuse cases, again raising issues of whether church or state law should prevail.`\
-https://nytimes.com/2021/11/07/world/europe/french-clerical-abuse-report-puts-spotlight-on-confession.html?searchResultPosition=3
+https://nytimes.com/2021/11/07/world/europe/france-confession-abuse.html?searchResultPosition=3
 
 **‘A Woman Who Was Crossing the Street Yelled to the Man in the Hat’**\
 `A sidewalk exchange on the Lower East Side, a No. 6 mystery and more reader tales of New York City in this week’s Metropolitan Diary.`\
