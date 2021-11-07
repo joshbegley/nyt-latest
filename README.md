@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/07/sports/ufc-kamaru-usman.html?searchResultPosition=1
 
 **New York City Marathon Returns With Fanfare and Optimism**\
-`A smaller event returned on Sunday after the race was canceled last year because of the pandemic, bringing a feeling of collective hope to New York City.`\
+`The marathon returned as a smaller event after it was canceled last year because of the pandemic, bringing a feeling of collective hope to New York City.`\
 https://nytimes.com/2021/11/07/sports/new-york-city-marathon-2021.html?searchResultPosition=2
 
 **Emotion and Grit Power Kenyans in New York City Marathon**\
