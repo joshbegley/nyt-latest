@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/06/sports/leonardo-baez-rey-vargas-result.html?searchResultPosition=1
 
 **Justin Gaethje won a wild decision that was a surprise for even getting to the judges.**\
-`By Emmanuel Morgan`\
+`Gaethje could be in line for a title shot next.`\
 https://nytimes.com/2021/11/06/sports/justin-gaethje-michael-chandler-ufc-268.html?searchResultPosition=2
 
 **Iraq Says Drone Strike Was Aimed at Prime Minister**\
