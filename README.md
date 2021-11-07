@@ -26,7 +26,7 @@ https://nytimes.com/2021/11/06/sports/justin-gaethje-michael-chandler-ufc-268.ht
 `Prime Minister Mustafa al-Kadhimi was unharmed in the attack on his residence early Sunday, the government said.`\
 https://nytimes.com/2021/11/06/world/middleeast/iraq-prime-minister-drone.html?searchResultPosition=7
 
-**Here’s the lineup for the Canelo Álvarez-Caleb Plant pay-per-view.**\
+**Here’s how the Canelo Álvarez-Caleb Plant pay-per-view card played out.**\
 `Four fights in both the main card and in the prelims.`\
 https://nytimes.com/2021/11/06/sports/canelo-plant-fight-card.html?searchResultPosition=8
 
