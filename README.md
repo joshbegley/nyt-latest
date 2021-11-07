@@ -14,17 +14,17 @@ https://nytimes.com/2021/11/07/podcasts/the-daily/motorcycles-sturgis-sunday-rea
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2021/11/07/briefing/infrastructure-glasgow-new-york-city-marathon.html?searchResultPosition=4
 
+**With Cases Piling Up, an Eviction Crisis Unfolds Step by Step**\
+`Evictions are rising nationwide. “We don’t know where the ceiling is,” one expert said.`\
+https://nytimes.com/2021/11/07/us/evictions-crisis-us.html?searchResultPosition=5
+
 **Antarctica Was Once a Land of Fire and Not Ice**\
 `Charcoal recovered from a dig near the southern continent shows that the region wasn’t spared from the era scientists call a “super fire world.”`\
-https://nytimes.com/2021/11/07/science/antarctica-wildfires.html?searchResultPosition=5
+https://nytimes.com/2021/11/07/science/antarctica-wildfires.html?searchResultPosition=6
 
 **Jil Sander Ski Wear, Coming to a City Block Near You**\
 `Fashion’s reigning minimalists collaborate with Arc’teryx, the outerwear brand favored by hikers and hypebeasts.`\
-https://nytimes.com/2021/11/07/style/jil-sander-ski-wear-coming-to-a-city-block-near-you.html?searchResultPosition=6
-
-**With Cases Piling Up, an Eviction Crisis Unfolds Step by Step**\
-`Evictions are rising nationwide. “We don’t know where the ceiling is,” one expert said.`\
-https://nytimes.com/2021/11/07/us/evictions-crisis-us.html?searchResultPosition=7
+https://nytimes.com/2021/11/07/style/jil-sander-ski-wear-coming-to-a-city-block-near-you.html?searchResultPosition=7
 
 **Nicaragua Descends Into Autocratic Rule as Ortega Crushes Dissent**\
 `President Daniel Ortega quashed the opposition and struck fear in voters, all but guaranteeing his victory in a presidential contest on Sunday.`\
