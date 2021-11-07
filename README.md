@@ -1,6 +1,6 @@
 **New York City Marathon Returns With Fanfare and Optimism**\
 `A smaller event returned on Sunday after the race was canceled last year because of the pandemic, bringing a feeling of collective hope to New York City.`\
-https://nytimes.com/2021/11/07/sports/new-york-city-marathon.html?searchResultPosition=1
+https://nytimes.com/2021/11/07/sports/new-york-city-marathon-2021.html?searchResultPosition=1
 
 **Emotion and Grit Power Kenyans in New York City Marathon**\
 `Albert Korir won the men’s division in 2:08:22, while Peres Jepchirchir won the women’s division in 2:22:39 after also winning at the Tokyo Games.`\
