@@ -1,5 +1,5 @@
 **Albert Korir of Kenya wins the men’s race at the New York City Marathon.**\
-`By Scott Cacciola`\
+`It was a breakthrough performance for Korir, 27, who was the runner-up in New York in 2019.`\
 https://nytimes.com/2021/11/07/sports/albert-korir-wins-mens-nyc-marathon.html?searchResultPosition=1
 
 **How Covid Raised the Stakes of the War Between Faith and Science**\
