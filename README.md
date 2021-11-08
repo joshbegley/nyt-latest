@@ -19,7 +19,7 @@ https://nytimes.com/2021/11/08/us/politics/jill-biden-surgeon-general-vaccinatio
 https://nytimes.com/video/world/100000008066256/auckland-new-zealand-ease-coronavirus-restrictions.html?searchResultPosition=5
 
 **Palestinians Were Targeted by Israeli Firm’s Spyware, Experts Say**\
-`The hacking renewed scrutiny of the relationship between the Israeli government and the NSO Group, a surveillance company blacklisted by the United States.`\
+`The findings of a new analysis raised questions about whether the Israeli government may have been behind the hacking, using spyware from the NSO Group, a surveillance company blacklisted by the United States.`\
 https://nytimes.com/2021/11/08/world/middleeast/nso-israel-palestinians-spyware.html?searchResultPosition=6
 
 **Barack Obama Returns to Climate Talks With a Call for ‘Ongoing Activism’**\
