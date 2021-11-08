@@ -1,6 +1,6 @@
 **Even Without Derrick Henry, Titans Find a Way to Win Again**\
 `After routing Jacksonville, outlasting Buffalo, demolishing Kansas City and thwarting Indianapolis, Tennessee beat the Rams.`\
-https://nytimes.com/2021/11/08/sports/even-without-derrick-henry-titans-find-a-way-to-win-again.html?searchResultPosition=1
+https://nytimes.com/2021/11/08/sports/derrick-henry-titans-rams.html?searchResultPosition=1
 
 **Goodbye to the Murse, and Hello to Handbags for All**\
 `As gender norms have relaxed over the past few decades, the men’s carryall has gone from sitcom punchline to quasi-ubiquitous accessory.`\
