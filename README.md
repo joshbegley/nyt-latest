@@ -26,13 +26,13 @@ https://nytimes.com/2021/11/08/travel/us-travel-ban-vaccination.html?searchResul
 `The lifting of rules comes as the country records some of its highest daily case numbers since the pandemic began.`\
 https://nytimes.com/2021/11/08/world/asia/new-zealand-ease-lockdown-restrictions.html?searchResultPosition=7
 
-**In Romania, Hard-Hit by Covid, Doctors Fight Vaccine Refusal**\
-`An anti-vaccine clarion call by leading religious figures, echoed by prominent politicians and social media, helps explain why Romania now has the world’s highest Covid death rate.`\
-https://nytimes.com/2021/11/08/world/europe/romania-covid-vaccine-refusal.html?searchResultPosition=8
-
 **Winter Heating Bills Loom as the Next Inflation Threat**\
 `After plunging during the pandemic as the economy slowed, energy prices have roared upward. Washington is already moving to offer homeowners relief.`\
-https://nytimes.com/2021/11/08/business/economy/home-heating-prices-winter.html?searchResultPosition=9
+https://nytimes.com/2021/11/08/business/economy/home-heating-prices-winter.html?searchResultPosition=8
+
+**In Romania, Hard-Hit by Covid, Doctors Fight Vaccine Refusal**\
+`An anti-vaccine clarion call by leading religious figures, echoed by prominent politicians and social media, helps explain why Romania now has the world’s highest Covid death rate.`\
+https://nytimes.com/2021/11/08/world/europe/romania-covid-vaccine-refusal.html?searchResultPosition=9
 
 **Inside a Volcanic Ritual on the Indonesian Island of Java**\
 `During the Hindu ceremony of Yadnya Kasada, the Tenggerese people toss offerings — food, money, flowers, livestock — into the hazy crater of Mount Bromo.`\
