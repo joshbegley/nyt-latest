@@ -14,7 +14,7 @@ https://nytimes.com/2021/11/08/world/africa/oscar-pistorius-bladerunner-parole.h
 `Their union, which is seeking higher salary minimums and guaranteed raises, has been negotiating with The New York Times Company for two years.`\
 https://nytimes.com/2021/11/08/business/media/wirecutter-walkout-contract-talks.html?searchResultPosition=4
 
-**Missing Girl Is Rescued After Using Distress Signal From TikTok**\
+**Missing Girl Is Rescued After Using Hand Signal From TikTok**\
 `The girl flashed the hand signal from a car on a Kentucky interstate, the authorities said. It was created as a way for people to indicate that they are at risk of abuse and need help.`\
 https://nytimes.com/2021/11/08/us/tiktok-hand-signal-abduction.html?searchResultPosition=5
 
