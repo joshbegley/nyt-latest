@@ -6,7 +6,7 @@ https://nytimes.com/video/world/100000008066254/united-states-lifts-internationa
 `A new generation of pâtissier is eschewing the primness and precision of traditional cakes and creating confections as delightful as they are subversive.`\
 https://nytimes.com/2021/11/08/t-magazine/messy-cakes-baking-instagram.html?searchResultPosition=2
 
-**Northern Ireland’s health minister is suing Van Morrison over Covid-19 criticism**\
+**Northern Ireland’s health minister is suing Van Morrison over Covid-19 criticism.**\
 `The Belfast-born singer-songwriter has embraced conspiracy theories and criticized restrictions to slow the spread of the coronavirus. Last year, he released a single called “No More Lockdown.”`\
 https://nytimes.com/2021/11/08/world/europe/van-morrison-covid-northern-ireland.html?searchResultPosition=3
 
