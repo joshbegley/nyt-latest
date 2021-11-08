@@ -14,27 +14,27 @@ https://nytimes.com/2021/11/08/world/europe/heathrow-first-flight-us.html?search
 `The partisan gap in deaths has grown larger.`\
 https://nytimes.com/2021/11/08/briefing/covid-death-toll-red-america.html?searchResultPosition=4
 
+**Paytm, a payments company, is aiming to raise $2.5 billion amid India’s stock boom.**\
+`One97 Communications, the app’s parent company, has drawn interest from institutional investors as online shopping in India expands.`\
+https://nytimes.com/2021/11/08/business/paytm-ipo.html?searchResultPosition=5
+
 **A Case That Could Transform America’s Relationship With Guns**\
 `In a potentially landmark Supreme Court decision about the Second Amendment, how will the justices rule?`\
-https://nytimes.com/2021/11/08/podcasts/the-daily/second-amendment-supreme-court-new-york-guns.html?searchResultPosition=5
+https://nytimes.com/2021/11/08/podcasts/the-daily/second-amendment-supreme-court-new-york-guns.html?searchResultPosition=6
 
 **U.S. Travel Ban Ends, Easing Personal Frustrations and Diplomatic Tension**\
 `Europeans were kept apart from family and friends as the ban dragged on long after E.U. leaders had opened their borders.`\
-https://nytimes.com/2021/11/08/world/europe/europe-us-travel-ban.html?searchResultPosition=6
+https://nytimes.com/2021/11/08/world/europe/europe-us-travel-ban.html?searchResultPosition=7
 
 **How to Photograph Annie Leibovitz**\
 `Gillian Laub was given a daunting — and thrilling — assignment: Capture the famed photographer Annie Leibovitz on camera. Here’s how she got the shot.`\
-https://nytimes.com/2021/11/08/insider/photographing-annie-leibovitz.html?searchResultPosition=7
+https://nytimes.com/2021/11/08/insider/photographing-annie-leibovitz.html?searchResultPosition=8
 
 **How Much Do You Know About Iraq?**\
 `Can you find Iraq on a map? What else do you know about this Middle Eastern nation with about 41 million people?`\
-https://nytimes.com/interactive/2021/11/08/learning/Iraq-Geography-Quiz.html?searchResultPosition=8
+https://nytimes.com/interactive/2021/11/08/learning/Iraq-Geography-Quiz.html?searchResultPosition=9
 
 **The U.S. allows vaccinated international travelers in and bars unvaccinated travelers from abroad.**\
 `The change ends more than 18 months of restrictions that left families separated from loved ones and cost the global travel industry hundreds of billions of dollars.`\
-https://nytimes.com/2021/11/08/travel/us-travel-ban-vaccination.html?searchResultPosition=9
-
-**Fully vaccinated and want to visit the U.S.? Here are some of the basics.**\
-`Here is what we know right now about the long-awaited reopening.`\
-https://nytimes.com/2021/11/08/travel/vaccinated-visit-us-the-basics.html?searchResultPosition=10
+https://nytimes.com/2021/11/08/travel/us-travel-ban-vaccination.html?searchResultPosition=10
 
