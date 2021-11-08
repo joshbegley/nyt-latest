@@ -1,5 +1,5 @@
-**Rabbi Earl Grollman, 96, Dies; Sought to Demystify Death and Grief**\
-`He wrote prolifically about grief, counseled the bereaved after 9/11 and the Oklahoma City bombing and paid particular attention to children.`\
+**Rabbi Earl A. Grollman, 96, Dies; Sought to Demystify Death and Grief**\
+`He wrote prolifically about grief, counseled the bereaved after 9/11 and the Oklahoma City bombing and paid particular attention to children. “Grief is the price we pay for love,” he’d say.`\
 https://nytimes.com/2021/11/08/us/rabbi-earl-grollman-grollman.html?searchResultPosition=1
 
 **With Tears, Hugs and Balloons, U.S. Allows Vaccinated Foreign Travelers to Enter**\
