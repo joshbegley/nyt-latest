@@ -1,40 +1,40 @@
-**Police Officer Stabbed on French Riviera, Authorities Say**\
-`Gérald Darmanin, France’s interior minister, said an unidentified assailant had stabbed an officer in Cannes. The motive for the attack was not immediately clear.`\
-https://nytimes.com/2021/11/08/world/europe/france-police-officer-stabbed-cannes.html?searchResultPosition=1
+**Fully vaccinated and want to visit the U.S.? Here are some of the basics.**\
+`Here is what we know right now about the long-awaited reopening.`\
+https://nytimes.com/2021/11/08/travel/vaccinated-visit-us-the-basics.html?searchResultPosition=1
 
-**18 Warm-Up Activities to Engage Students Before They Read Nonfiction Text**\
-`Here is a collection of our favorite “bell ringers,” “do nows” and “hooks” to grab students’ attention, along with examples from dozens of our daily lessons.`\
-https://nytimes.com/2021/11/08/learning/lesson-plans/18-warm-up-activities-to-engage-students-before-they-read-nonfiction-text.html?searchResultPosition=2
+**The U.S. allows vaccinated international travelers in and bars unvaccinated travelers from abroad.**\
+`The change ends more than 18 months of restrictions that left families separated from loved ones and cost the global travel industry hundreds of billions of dollars.`\
+https://nytimes.com/2021/11/08/travel/us-travel-ban-vaccination.html?searchResultPosition=2
 
-**An Urban Problem: Rats on the Rise**\
-`The rodent population has surged in the pandemic.`\
-https://nytimes.com/2021/11/08/nyregion/an-urban-problem-rats-on-the-rise.html?searchResultPosition=3
+**New Zealand’s biggest city will ease lockdown restrictions.**\
+`The lifting of rules comes as the country records some of its highest daily case numbers since the pandemic began.`\
+https://nytimes.com/2021/11/08/world/asia/new-zealand-ease-lockdown-restrictions.html?searchResultPosition=3
 
-**Retailers Scramble to Attract Workers Ahead of the Holidays**\
-`Signing bonuses, higher wages, even college tuition. Companies are using perks to entice new employees in an industry that has been battered by the pandemic.`\
-https://nytimes.com/2021/11/08/business/retail-hiring-holidays-workers.html?searchResultPosition=4
+**In Romania, Hard-Hit by Covid, Doctors Fight Vaccine Refusal**\
+`An anti-vaccine clarion call by leading religious figures, echoed by prominent politicians and social media, helps explain why Romania now has the world’s highest Covid death rate.`\
+https://nytimes.com/2021/11/08/world/europe/romania-covid-vaccine-refusal.html?searchResultPosition=4
 
-**Chip Shortage Creates New Power Players**\
-`Low-profile chip makers with aging factories have become surprisingly powerful, leading to industry changes that may outlive the pandemic-fueled supply crunch.`\
-https://nytimes.com/2021/11/08/technology/chip-shortage-creates-new-power-players.html?searchResultPosition=5
+**Winter Heating Bills Loom as the Next Inflation Threat**\
+`After plunging during the pandemic as the economy slowed, energy prices have roared upward. Washington is already moving to offer homeowners relief.`\
+https://nytimes.com/2021/11/08/business/economy/home-heating-prices-winter.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/08/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Inside a Volcanic Ritual on the Indonesian Island of Java**\
+`During the Hindu ceremony of Yadnya Kasada, the Tenggerese people toss offerings — food, money, flowers, livestock — into the hazy crater of Mount Bromo.`\
+https://nytimes.com/2021/11/08/travel/yadnya-kasada-volcano-ritual.html?searchResultPosition=6
 
-**What’s on TV This Week: Documentaries on Kevin Garnett and Jake Burton Carpenter**\
-`A pair of new documentaries, one on HBO and one on Showtime, look at two very different sports figures.`\
-https://nytimes.com/2021/11/08/arts/television/whats-on-tv-this-week-documentaries-kevin-garnett-jake-burton-carpenter.html?searchResultPosition=7
+**The Democrats’ No Good, Very Bad Day Changes the Landscape**\
+`Bridges of America, rejoice!`\
+https://nytimes.com/2021/11/08/opinion/virginia-election-democrats.html?searchResultPosition=7
 
-**No Corrections: Nov. 8, 2021**\
-`No corrections appeared in print on Monday, Nov. 8, 2021.`\
-https://nytimes.com/2021/11/08/pageoneplus/no-corrections-nov-8-2021.html?searchResultPosition=8
+**Why Republicans Won in a New York County Where Democrats Outnumber Them**\
+`Voters readily ousted Democrats in Nassau County on Long Island, electing Republicans down the ballot.`\
+https://nytimes.com/2021/11/08/nyregion/nassau-county-republicans-election.html?searchResultPosition=8
 
-**Quotation of the Day: Rats Amok in the Park, on the Block and Even at Your Table**\
-`Quotation of the Day for Monday, November 8, 2021.`\
-https://nytimes.com/2021/11/08/todayspaper/quotation-of-the-day-rats-amok-in-the-park-on-the-block-and-even-at-your-table.html?searchResultPosition=9
+**When the Taliban Are in Your Bedroom**\
+`As armed Taliban inspected the New York Times bureau in Kabul, they were escorted by a journalist who used to be a U.S. Marine. The photo of him in uniform was plain for all to see, and ponder.`\
+https://nytimes.com/2021/11/08/insider/taliban-kabul-afghanistan-journalists.html?searchResultPosition=9
 
-**Your Monday Briefing**\
-`Rewriting China’s past.`\
-https://nytimes.com/2021/11/08/briefing/xi-jinping-us-travel-restrictions.html?searchResultPosition=10
+**The Popularity of E-Bikes Isn’t Slowing Down**\
+`Motorized bicycles are outselling all-electric cars and have the potential to transform urban transit.`\
+https://nytimes.com/2021/11/08/business/e-bikes-urban-transit.html?searchResultPosition=10
 
