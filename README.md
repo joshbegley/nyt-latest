@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2021/11/08/dining/vegetarian-thanksgiving-side-d
 https://nytimes.com/2021/11/08/us/politics/jan-6-subpoenas-eastman-flynn-trump.html?searchResultPosition=3
 
 **Costly tests may deter Canadians from making quick trips to the U.S.**\
-`Canada requires travelers to present the results of an expensive Covid test to enter, deterring short hops across the border.`\
+`Canada requires travelers to present the results of an expensive coronavirus test to enter, deterring short hops across the border.`\
 https://nytimes.com/2021/11/08/world/americas/canada-pcr-test-border.html?searchResultPosition=4
 
 **White House to Defend Vaccination Rules for Large Companies**\
