@@ -30,8 +30,8 @@ https://nytimes.com/2021/11/08/nyregion/elaine-romagnoli-dead.html?searchResultP
 `Almost a year ago to the day, the elite runner Tommy Rivers Puzey learned to sit up in a bed again. On Sunday, he attempted the New York City Marathon.`\
 https://nytimes.com/2021/11/08/sports/tommy-rivers-puzey-marathon.html?searchResultPosition=8
 
-**Report Says Critical Race Theory Bans Threaten Free Speech**\
-`The report by PEN America, which surveys more than 50 bills proposed across the country, appeals to a principle that has lost its luster for many on the left and right.`\
+**Bans on Critical Race Theory Threaten Free Speech, Advocacy Group Says**\
+`A report by PEN America, which surveys more than 50 bills proposed across the country, appeals to a principle that has lost its luster for many on the left and right.`\
 https://nytimes.com/2021/11/08/arts/critical-race-theory-bans.html?searchResultPosition=9
 
 **Over 100,000 New York City public school students were homeless last year, data show.**\
