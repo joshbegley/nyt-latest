@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/09/world/asia/pakistan-taliban-cease-fire.html?searc
 
 **Ethiopia Seizes 16 U.N. Workers Amid Efforts to Halt Tigray War**\
 `The detentions aggravated the already tense relations between the United Nations and the Ethiopian government over war and famine in the country’s northern Tigray region.`\
-https://nytimes.com/2021/11/09/world/africa/ethiopia-seizes-un-workers.html?searchResultPosition=10
+https://nytimes.com/2021/11/09/world/africa/ethiopia-united-nations.html?searchResultPosition=10
 
