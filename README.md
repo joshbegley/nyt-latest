@@ -1,6 +1,6 @@
 **Pfizer and BioNTech are expected to ask federal regulators to clear their boosters for all adults.**\
 `An advisory panel to the Food and Drug Administration voted against a similar request from Pfizer in mid-September, but the agency is considered likely to grant the request, perhaps before Thanksgiving.`\
-https://nytimes.com/2021/11/09/us/politics/pfizer-covid-booster-18-and-older.html?searchResultPosition=1
+https://nytimes.com/2021/11/09/us/politics/pfizer-booster-approval-adults.html?searchResultPosition=1
 
 **How hot is lava erupting from Hawaii’s Kilauea volcano?**\
 `By Kenneth Chang`\
