@@ -1,6 +1,6 @@
 **‘It went to my head’: Adam Neumann has regrets about his time at WeWork.**\
 `He also tried to revise the record about what happened.`\
-https://nytimes.com/2021/11/09/business/dealbook/adam-neumann-wework-interview.html?searchResultPosition=1
+https://nytimes.com/2021/11/09/business/dealbook/adam-neumann-wework.html?searchResultPosition=1
 
 **Gotham, in the Former Gotham Bar & Grill Space, Nods to Its Predecessor**\
 `A new steak spot from Laurent Tourondel, Le Coucou’s long-awaited reopening, and more restaurant news.`\
