@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/09/us/politics/jan-6-subpoena.html?searchResultPosit
 
 **In Oaxaca, a Meal to Celebrate a Pioneering Artist’s Legacy**\
 `To fete the opening of a new exhibition of work by — and inspired by — Ana Mendieta, the curator Su Wu gathered friends for a comal-cooked brunch prepared by chef Thalia Barrios Garcia.`\
-https://nytimes.com/2021/11/09/t-magazine/ana-mendieta-brunch-hosting.html?searchResultPosition=10
+https://nytimes.com/2021/11/09/t-magazine/ana-mendieta-brunch.html?searchResultPosition=10
 
