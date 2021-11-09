@@ -10,8 +10,8 @@ https://nytimes.com/2021/11/08/opinion/infrastructure-bill-biden.html?searchResu
 `The testimony underscores the prosecutors’ challenge in disproving a self-defense claim. Gaige Grosskreutz, who was armed, was shot while responding to an earlier shooting.`\
 https://nytimes.com/2021/11/08/us/gaige-grosskreutz-rittenhouse-victim-testimony.html?searchResultPosition=3
 
-**First Lady Looks On as Elementary Students Get Coronavirus Shots**\
-`The visit kicked off what White House officials described as a nationwide push, led by Jill Biden, to persuade parents to vaccinate 5- to 11-year-olds.`\
+**Jill Biden Kicks Off Covid Vaccine Campaign for Young Children**\
+`The first lady and the surgeon general visited an elementary school in Virginia that was the site of the first polio vaccinations for children.`\
 https://nytimes.com/2021/11/08/us/politics/first-lady-looks-on-as-elementary-students-get-coronavirus-shots.html?searchResultPosition=4
 
 **Rabbi Earl A. Grollman, 96, Dies; Sought to Demystify Death and Grief**\
