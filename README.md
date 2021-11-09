@@ -31,7 +31,7 @@ https://nytimes.com/2021/11/09/world/asia/india-hospital-fire.html?searchResultP
 https://nytimes.com/2021/11/09/us/politics/pfizer-booster-approval-adults.html?searchResultPosition=8
 
 **How hot is lava erupting from Hawaii’s Kilauea volcano?**\
-`By Kenneth Chang`\
+`Test your science knowledge.`\
 https://nytimes.com/interactive/2021/11/09/science/09sci-quiz.html?searchResultPosition=9
 
 **Tim Cook has invested in cryptocurrency personally, but Apple has no plans to do so.**\
