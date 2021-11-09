@@ -1,40 +1,40 @@
-**The Jail Oversight Board That Failed to Sound the Alarm**\
-`The Board of Correction, which has the power to monitor Rikers Island and other city jails, took no action as deaths behind bars increased.`\
-https://nytimes.com/2021/11/09/nyregion/the-jail-oversight-board-that-failed-to-sound-the-alarm.html?searchResultPosition=1
+**Singapore will stop covering medical costs for people ‘unvaccinated by choice.’**\
+`The change, which takes effect on Dec. 8, comes as the number of severe cases has stabilized but remains high, the Health Ministry said.`\
+https://nytimes.com/2021/11/09/world/asia/singapore-unvaccinated-covid.html?searchResultPosition=1
 
-**Lesson of the Day: ‘How Maps Reshape American Politics’**\
-`In this lesson, students will learn all about redistricting and gerrymandering. Just how fair is our current system?`\
-https://nytimes.com/2021/11/09/learning/lesson-plans/lesson-of-the-day-how-maps-reshape-american-politics.html?searchResultPosition=2
+**Athletes in a Ravaged Louisiana Town Try to Run Back to Normalcy**\
+`Hurricane Ida knocked down much of Grand Isle, La., but the town’s cross-country team is determined to compete in the state championship meet.`\
+https://nytimes.com/2021/11/09/sports/climate-change-louisiana-ida.html?searchResultPosition=2
 
-**Why New York Is Closing 6 Prisons**\
-`The number of people incarcerated in New York is less than half of what it was in 1999, and the facilities being closed are well below capacity.`\
-https://nytimes.com/2021/11/09/nyregion/prisons-closing-new-york-hochul.html?searchResultPosition=3
+**Powell’s Books Survived Amazon. Can It Reinvent Itself After the Pandemic?**\
+`As much as any city, Portland, Ore., has been through hell. Its landmark store, Powell’s Books, must finally build a viable online business while recapturing its downtown success.`\
+https://nytimes.com/2021/11/09/business/powells-books-pandemic.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/09/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**The Superheroes From House of Slay Are Here to Stay**\
+`How five fashion friends got a starring role fighting discrimination and hate in a new comic book series.`\
+https://nytimes.com/2021/11/09/style/slaysians-prabal-gurung-laura-kim.html?searchResultPosition=4
 
-**Motorcycle Adventures**\
-`How do you feel about motorcycles? Do you have any connection to biker culture?`\
-https://nytimes.com/2021/11/09/learning/motorcycle-adventures.html?searchResultPosition=5
+**The 1619 Project and the Long Battle Over U.S. History**\
+`Fights over how we tell our national story go back more than a century — and have a great deal to teach us about our current divisions.`\
+https://nytimes.com/2021/11/09/magazine/1619-project-us-history.html?searchResultPosition=5
 
-**When Kilauea Erupted, a New Volcanic Playbook Was Written**\
-`Scientists learned lessons from the 2018 outburst on the island of Hawaii that are changing how responders prepare for eruptions in other places.`\
-https://nytimes.com/2021/11/09/science/kilauea-volcano-eruption.html?searchResultPosition=6
+**The Biggest Kink in America’s Supply Chain: Not Enough Truckers**\
+`Long hours and uncomfortable working conditions are leading to a shortage of truck drivers, which has compounded shipping delays in the United States.`\
+https://nytimes.com/2021/11/09/us/politics/trucker-shortage-supply-chain.html?searchResultPosition=6
 
-**Late Night Goes After Ted Cruz for Going After Big Bird**\
-`Jimmy Kimmel said conservatives like Ted Cruz have some bizarre beliefs: “The elections are rigged, the deep state runs the world, and Big Bird is working for Merck now.”`\
-https://nytimes.com/2021/11/09/arts/television/jimmy-kimmel-ted-cruz-big-bird.html?searchResultPosition=7
+**Your Walls Don’t Have to Be Boring**\
+`Faced with a blank wall, most of us think paint or wallpaper. But there are more interesting possibilities to consider.`\
+https://nytimes.com/2021/11/09/realestate/your-walls-dont-have-to-be-boring.html?searchResultPosition=7
 
-**Word of the Day: exhilarating**\
-`This word has appeared in 192 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/11/09/learning/word-of-the-day-exhilarating.html?searchResultPosition=8
+**‘Free Joe Biden’: Sean Maloney on How Democrats Can Get Back on Track**\
+`In an interview, the leader of the House Democrats’ campaign arm acknowledged the major challenges facing the party but defended its agenda and its continued focus on Donald Trump.`\
+https://nytimes.com/2021/11/09/us/politics/sean-maloney-democrats.html?searchResultPosition=8
 
-**SpaceX Carries NASA Astronaut Mission Home With Safe Water Landing**\
-`The Crew-2 astronauts spent nearly 200 days in orbit, and their stay aboard the International Space Station was punctuated with surprises.`\
-https://nytimes.com/2021/11/09/science/spacex-nasa-water-landing.html?searchResultPosition=9
+**India Eased Its Covid-19 Disaster. Now Complacency Looms Again.**\
+`The success represents a major victory for Narendra Modi’s government, but a recent slowdown in new vaccinations has sparked worries.`\
+https://nytimes.com/2021/11/09/world/asia/india-covid-vaccinations.html?searchResultPosition=9
 
-**Corrections: Nov. 9, 2021**\
-`Corrections that appeared in print on Tuesday, Nov. 9, 2021.`\
-https://nytimes.com/2021/11/09/pageoneplus/corrections-nov-9-2021.html?searchResultPosition=10
+**15-Minute Grocery Delivery Has Come to N.Y.C. Not Everyone Is Happy.**\
+`A half-dozen grocery services offer speed and convenience, but critics worry about their effect on neighborhood stores and crowded city streets.`\
+https://nytimes.com/2021/11/09/nyregion/online-grocery-delivery-nyc.html?searchResultPosition=10
 
