@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/09/crosswords/spelling-bee-forum.html?searchResultPo
 `How do you feel about motorcycles? Do you have any connection to biker culture?`\
 https://nytimes.com/2021/11/09/learning/motorcycle-adventures.html?searchResultPosition=3
 
-**lWhen Kilauea Erupted, a New Volcanic Playbook Was Written**\
+**When Kilauea Erupted, a New Volcanic Playbook Was Written**\
 `Scientists learned lessons from the 2018 outburst on the island of Hawaii that are changing how responders prepare for eruptions in other places.`\
 https://nytimes.com/2021/11/09/science/kilauea-volcano-eruption.html?searchResultPosition=4
 
