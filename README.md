@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/08/opinion/infrastructure-bill-biden.html?searchResu
 
 **Man Shot by Kyle Rittenhouse Describes the Encounter on a Kenosha Street**\
 `The testimony underscores the prosecutors’ challenge in disproving a self-defense claim. Gaige Grosskreutz, who was armed, was shot while responding to an earlier shooting.`\
-https://nytimes.com/2021/11/08/us/gaige-grosskreutz-rittenhouse-victim-testimony.html?searchResultPosition=10
+https://nytimes.com/2021/11/08/us/kyle-rittenhouse-gaige-grosskreutz-testimony.html?searchResultPosition=10
 
