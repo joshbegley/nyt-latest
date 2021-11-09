@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/09/sports/basketball/nikola-jokic-markieff-ejected.h
 
 **As China’s Property Crisis Spreads, Beijing Says There’s Nothing to See**\
 `Global markets just weeks ago were fretting over the possible failure of Evergrande. Now the developer says the worst is over, even as other companies show signs of trouble.`\
-https://nytimes.com/2021/11/09/business/china-property-evergrande-kaisa-spillover.html?searchResultPosition=9
+https://nytimes.com/2021/11/09/business/china-evergrande-kaisa.html?searchResultPosition=9
 
 **Rolls-Royce unveils plan to build small nuclear power plants in Britain.**\
 `Backed by the government and other investors, the industrial giant proposes to build as many as 16 generating plants.`\
