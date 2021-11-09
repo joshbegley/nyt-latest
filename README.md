@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/09/arts/television/dean-stockwell-dead.html?searchRe
 
 **Twitter expands its subscription service to news articles.**\
 `The company is pushing to find new sources of revenue.`\
-https://nytimes.com/2021/11/09/technology/twitter-subscription-news.html?searchResultPosition=9
+https://nytimes.com/2021/11/09/technology/twitter-blue-news-articles.html?searchResultPosition=9
 
 **The Fresh Prince of Belles-Lettres? Will Smith Has a Memoir.**\
 `From rap stardom to movie stardom, “Will” traces its hero’s quest out of West Philadelphia.`\
