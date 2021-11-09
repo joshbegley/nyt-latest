@@ -36,5 +36,5 @@ https://nytimes.com/interactive/2021/11/09/us/moderna-patent-filing.html?searchR
 
 **Moderna and U.S. at Odds Over Vaccine Patent Rights**\
 `Moderna’s patent application names several employees as the sole inventors of a crucial component of its coronavirus vaccine, excluding three government scientists.`\
-https://nytimes.com/2021/11/09/us/moderna-vaccine-patent-nih.html?searchResultPosition=10
+https://nytimes.com/2021/11/09/us/moderna-vaccine-patent.html?searchResultPosition=10
 
