@@ -1,6 +1,6 @@
 **If It’s Not Critical Race Theory, It’s Critical Race Theory-lite**\
 `The country’s education debate isn’t made up.`\
-https://nytimes.com/2021/11/09/opinion/if-its-not-critical-race-theory-its-critical-race-theory-lite.html?searchResultPosition=1
+https://nytimes.com/2021/11/09/opinion/critical-race-theory.html?searchResultPosition=1
 
 **England Will Require Frontline Health Workers to Get Vaccinated**\
 `Sajid Javid, Britain’s health secretary, said frontline health workers in England must be vaccinated against Covid-19 by April in order to “avoid preventable harm and protect patients.”`\
