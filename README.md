@@ -6,7 +6,7 @@ https://nytimes.com/2021/11/09/style/grand-prospect-hall-demolition-wedding-memo
 `More than 1,000 people, largely from the Middle East, camped at the Belarus-Poland border in frigid weather seeking to enter Poland. Belarus has pressured the West by orchestrating a refugee crisis at its borders with the European Union.`\
 https://nytimes.com/video/world/100000008067900/belarus-poland-border-migrants-refugees-middle-east.html?searchResultPosition=2
 
-**England will require frontline health workers to be vaccinated by April.**\
+**Frontline health workers in England will be required to be vaccinated by April.**\
 `About 80,000 to 100,000 National Health Service workers in the country remain unvaccinated against the coronavirus.`\
 https://nytimes.com/2021/11/09/world/europe/england-health-workers-vaccine-mandate.html?searchResultPosition=3
 
