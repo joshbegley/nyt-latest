@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/09/realestate/your-walls-dont-have-to-be-boring.html
 `In an interview, the leader of the House Democrats’ campaign arm acknowledged the major challenges facing the party but defended its agenda and its continued focus on Donald Trump.`\
 https://nytimes.com/2021/11/09/us/politics/sean-maloney-democrats.html?searchResultPosition=9
 
-**India Eased Its Covid-19 Disaster. Now Complacency Looms Again.**\
+**India Eased Its Covid-19 Disaster. Fears of Complacency Remain.**\
 `The success represents a major victory for Narendra Modi’s government, but a recent slowdown in new vaccinations has sparked worries.`\
 https://nytimes.com/2021/11/09/world/asia/india-covid-vaccinations.html?searchResultPosition=10
 
