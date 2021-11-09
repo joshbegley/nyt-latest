@@ -11,7 +11,7 @@ https://nytimes.com/2021/11/08/opinion/infrastructure-bill-biden.html?searchResu
 https://nytimes.com/2021/11/08/us/gaige-grosskreutz-rittenhouse-victim-testimony.html?searchResultPosition=3
 
 **Jill Biden Kicks Off Covid Vaccine Campaign for Young Children**\
-`The first lady and the surgeon general visited an elementary school in Virginia that was the site of the first polio vaccinations for children.`\
+`The first lady and the surgeon general visited an elementary school in Virginia that was the site of the first polio vaccinations for U.S. children.`\
 https://nytimes.com/2021/11/08/us/politics/first-lady-looks-on-as-elementary-students-get-coronavirus-shots.html?searchResultPosition=4
 
 **Rabbi Earl A. Grollman, 96, Dies; Sought to Demystify Death and Grief**\
