@@ -1,5 +1,5 @@
 **U.S.-Mexico Border Reopens for Nonessential Travel**\
-`Vaccinated visitors from Mexico lined up to enter the U.S. after the pandemic travel ban was lifted. For the past 18 months only U.S. citizens and permanent residents have been able to cross the border.`\
+`Vaccinated visitors from Mexico lined up to enter the U.S. after the pandemic travel ban was lifted. For the past 18 months, only U.S. citizens and permanent residents have been able to cross the border.`\
 https://nytimes.com/video/travel/100000008067185/us-mexico-border-reopens-coronavirus.html?searchResultPosition=1
 
 **They Say Colleges Are Censorious. So They Are Starting a New One.**\
