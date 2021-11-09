@@ -1,4 +1,4 @@
-**Singapore will stop covering medical costs for people ‘unvaccinated by choice.’**\
+**Singapore will stop covering Covid costs for those eligible for vaccination.**\
 `The change, which takes effect on Dec. 8, comes as the number of severe cases has stabilized but remains high, the Health Ministry said.`\
 https://nytimes.com/2021/11/09/world/asia/singapore-unvaccinated-covid.html?searchResultPosition=1
 
