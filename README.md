@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/10/opinion/electric-vehicle-climate-battery.html?sea
 https://nytimes.com/video/world/europe/100000008070560/boris-johnson-climate-summit.html?searchResultPosition=2
 
 **Swift Ruling Tests Trump’s Tactic of Running Out the Clock**\
-`The court decision to allow Congress access to White House documents about the Jan. 6 riot moved the case to a new phase.`\
+`The former president has leveraged the slow judicial process in the past to thwart congressional oversight, but the Jan. 6 case may be different.`\
 https://nytimes.com/2021/11/10/us/politics/swift-ruling-tests-trump-delay-tactic.html?searchResultPosition=3
 
 **Seeking Global Praise, Boris Johnson Instead Deals With Scandal at Home**\
