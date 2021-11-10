@@ -16,7 +16,7 @@ https://nytimes.com/video/world/100000008070689/us-china-emissions-cop26-agreeme
 
 **Coronavirus Briefing: What Happened Today**\
 `Germany’s virus whiplash.`\
-https://nytimes.com/2021/11/10/us/coronavirus-what-happened-today-vaccines-for-kids-germany.html?searchResultPosition=5
+https://nytimes.com/2021/11/10/us/coronavirus-today-vaccines-kids-germany.html?searchResultPosition=5
 
 **A New Line of Face Oils, Made With Well-Loved Plants**\
 `The artist Lia Chavez’s latest project, Hildegaard, features botanical ingredients she grows herself on Long Island.`\
