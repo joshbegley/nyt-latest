@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/10/us/supreme-court-gun-case-california.html?searchR
 https://nytimes.com/2021/11/10/business/dealbook/dealbook-summit-blinken-barra-dax-shepard.html?searchResultPosition=2
 
 **P.S.G. Women’s Player Arrested After Teammate Is Attacked**\
-`Aminata Diallo was taken into custody by investigators looking into an assault on her teammate Kheira Hamraoui by two masked men.`\
+`Aminata Diallo was taken into custody by investigators looking into an assault on her teammate Kheira Hamraoui.`\
 https://nytimes.com/2021/11/10/sports/soccer/psg-women-attack-aminata-diallo.html?searchResultPosition=3
 
 **Germany debates imposing tighter rules as infections surge.**\
