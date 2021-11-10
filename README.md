@@ -11,7 +11,7 @@ https://nytimes.com/2021/11/09/opinion/social-justice-america.html?searchResultP
 https://nytimes.com/2021/11/09/health/pfizer-booster-eligibility-adults.html?searchResultPosition=3
 
 **6 Automakers and 31 Countries Say They’ll Phase Out Gasoline Car Sales**\
-`Ford, G.M. and Mercedes agreed to work toward selling only zero-emissions vehicles by 2040. But Toyota, Volkswagen and Nissan-Renault did join the pledge.`\
+`Ford, G.M. and Mercedes agreed to work toward selling only zero-emissions vehicles by 2040. But Toyota, Volkswagen and Nissan-Renault did not join the pledge.`\
 https://nytimes.com/2021/11/09/climate/electric-cars-cop26-glasgow.html?searchResultPosition=4
 
 **Travis Scott’s Ties to Houston Could Complicate Investigation of Fatal Concert**\
