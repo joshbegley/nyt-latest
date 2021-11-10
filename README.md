@@ -1,5 +1,5 @@
 **P.S.G. Women’s Player Arrested After Teammate Is Attacked**\
-`Aminata Diallo was taken into custody by investigators looking into an assault on her teammate Kheira Hamraoui.`\
+`Aminata Diallo was taken into custody by investigators looking into an assault on her teammate Kheira Hamraoui by two masked men.`\
 https://nytimes.com/2021/11/10/sports/soccer/psg-women-attack-aminata-diallo.html?searchResultPosition=1
 
 **Germany debates imposing tighter rules as infections surge.**\
