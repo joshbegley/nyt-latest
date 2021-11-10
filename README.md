@@ -1,6 +1,6 @@
 **Read the Transcript of Gov. Andrew M. Cuomo’s Testimony**\
 `Documents released on Wednesday by the New York State attorney general’s office, include Mr. Cuomo’s sworn testimony from when investigators questioned him about his behavior towards women.`\
-https://nytimes.com/interactive/2021/11/10/us/cuomo-investigation-transcripts.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/11/10/nyregion/cuomo-investigation-transcripts.html?searchResultPosition=1
 
 **Here are the six criminal charges against Kyle Rittenhouse.**\
 `The counts in the trial range from first-degree intentional homicide down to a misdemeanor weapons charge.`\
