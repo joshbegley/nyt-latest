@@ -19,7 +19,7 @@ https://nytimes.com/2021/11/10/world/middleeast/migrants-beaten-belarus-border.h
 https://nytimes.com/video/science/space/100000008070619/nasa-spacex-launch.html?searchResultPosition=5
 
 **Israeli experts approve vaccinations for children ages 5 to 11.**\
-`By Jonathan Shamir`\
+` `\
 https://nytimes.com/2021/11/10/world/middleeast/israeli-covid-vaccine-children.html?searchResultPosition=6
 
 **More than 200,000 people flew to the U.S. on Monday under new travel rules**\
