@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/10/world/asia/covid-china-shenyang-quarantine.html?searchResultPosition=1
 
 **Google loses appeal of $2.8 billion fine in E.U. antitrust case.**\
-`European regulators said Google gave preferential treatment to its own price-comparison shopping service over rival services.`\
+`European antitrust regulators said Google gave preferential treatment to its own price-comparison shopping service over rival services.`\
 https://nytimes.com/2021/11/10/business/google-eu-appeal-antitrust.html?searchResultPosition=2
 
 **Interpreting Data to Understand Community Opinions on Climate Change**\
