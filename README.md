@@ -1,5 +1,5 @@
 **Brian Williams Says He’s Leaving NBC News**\
-`The former anchor of “NBC Nightly News” rehabilitated his tarnished image as the host of an 11 p.m. show on MSNBC.`\
+`The former anchor of “NBC Nightly News” rehabilitated his tarnished image as the host of a popular 11 p.m. show on MSNBC.`\
 https://nytimes.com/2021/11/09/business/media/brian-williams-msnbc.html?searchResultPosition=1
 
 **Why Wokeness Will Fail**\
