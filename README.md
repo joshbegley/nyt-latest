@@ -31,7 +31,7 @@ https://nytimes.com/paidpost/google/scam-spotter/scammers-are-getting-smarter-an
 https://nytimes.com/2021/11/10/science/china-debris-space-station.html?searchResultPosition=8
 
 **A Rare Chance at the Tomb of the Unknowns**\
-`The public was allowed to approach the Tomb of the Unknowns yesterday, after decades of being kept away.`\
+`The public was allowed to approach the Tomb of the Unknowns for two days this week, after decades of being kept away.`\
 https://nytimes.com/interactive/2021/11/10/us/tomb-of-the-unknown-soldier.html?searchResultPosition=9
 
 **Iraqi migrants say they face beatings on both sides of Belarusian border.**\
