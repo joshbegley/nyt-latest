@@ -26,7 +26,7 @@ https://nytimes.com/2021/11/10/podcasts/the-daily/spain-martin-zamora-migrants.h
 `A chat with one of the New York Times Crossword constructors.`\
 https://nytimes.com/2021/11/10/crosswords/crossword-constructor-nediger.html?searchResultPosition=7
 
-**A Chinese city imposes one of the world’s strongest quarantine requirements.**\
+**A Chinese city tells overseas visitors to quarantine for 28 days, then do another 28.**\
 `The restrictions in Shenyang are a stark example of how seriously officials are taking the country’s “zero Covid” approach to the pandemic.`\
 https://nytimes.com/2021/11/10/world/asia/covid-china-shenyang-quarantine.html?searchResultPosition=8
 
