@@ -3,7 +3,7 @@
 https://nytimes.com/article/new-york-art-galleries.html?searchResultPosition=1
 
 **The judge, who has clashed with prosecutors, has been ‘in this business for 50 years.’**\
-`By Julie Bosman`\
+`Bruce Schroeder is presiding over the trial of Kyle Rittenhouse and at times took a strict line with prosecutors.`\
 https://nytimes.com/2021/11/10/us/judge-bruce-schroeder-rittenhouse-trial.html?searchResultPosition=2
 
 **The White House estimates almost a million children ages 5 to 11 have gotten Covid vaccine shots so far.**\
