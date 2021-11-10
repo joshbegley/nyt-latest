@@ -18,7 +18,7 @@ https://nytimes.com/video/us/100000008070003/pulse-shooting-memorial-arson-orlan
 `A rundown of the key figures for the trial of Kyle Rittenhouse in Kenosha, Wis.`\
 https://nytimes.com/2021/11/10/us/rittenhouse-courtroom-key-figures.html?searchResultPosition=5
 
-**Kyle Rittenhouse idolized the police and styled himself as an emergency medic.**\
+**Kyle Rittenhouse, who styled himself a medic, said he is now studying nursing.**\
 `For much of his life, Mr. Rittenhouse, now 18, tried on identities infused with bravery and service.`\
 https://nytimes.com/2021/11/10/us/kyle-rittenhouse-who-is.html?searchResultPosition=6
 
