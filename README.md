@@ -30,11 +30,11 @@ https://nytimes.com/2021/11/10/theater/chicago-broadway-anniversary.html?searchR
 `The culture wars are never over. That doesn’t mean they always have to end the same way.`\
 https://nytimes.com/2021/11/10/opinion/republicans-democrats-crt.html?searchResultPosition=8
 
+**‘A Safe and Happy Place.’ Readers Share What Abba’s Music Means to Them**\
+`From around the world, readers sent in memories of loved ones, dancing, childhood and musical inspiration.`\
+https://nytimes.com/2021/11/10/arts/music/abba-music-stories.html?searchResultPosition=9
+
 **The Cinderella Myth We Can’t Quit**\
 `The same woman who stars as the embodiment of poverty in Netflix’s “Maid” is a brand ambassador for one of the world’s largest luxury companies. How very 2021.`\
-https://nytimes.com/2021/11/10/style/cinderella-myth-maid-netflix.html?searchResultPosition=9
-
-**Hindu Sect Accused of Using Forced Labor at More Temples Across U.S.**\
-`BAPS, a prominent sect, faces accusations of exploiting low-caste laborers from India to run massive temples around the country.`\
-https://nytimes.com/2021/11/10/nyregion/baps-hindu-temples.html?searchResultPosition=10
+https://nytimes.com/2021/11/10/style/cinderella-myth-maid-netflix.html?searchResultPosition=10
 
