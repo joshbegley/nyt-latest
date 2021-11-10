@@ -1,36 +1,40 @@
+**N.F.L. Fines Aaron Rodgers and Packers for Violating Covid-19 Protocols**\
+`Rodgers, the Green Bay Packers quarterback who is not vaccinated and has voiced unfounded claims about Covid-19 vaccines, was penalized for not wearing a mask in some places.`\
+https://nytimes.com/2021/11/09/sports/football/packers-rodgers-lazard-fined-covid.html?searchResultPosition=1
+
 **Judge denies Apple’s request to delay App Store changes.**\
 `Apple may have to rewrite its policies to allow app developers to point users to alternative payment methods as soon as December.`\
-https://nytimes.com/2021/11/09/technology/apple-epic-games-suit.html?searchResultPosition=1
+https://nytimes.com/2021/11/09/technology/apple-epic-games-suit.html?searchResultPosition=2
 
 **Saturday’s Cal-U.S.C. game has been delayed by Covid.**\
 `The matchup is the first game of the season at college football’s top level to be rescheduled because of the virus.`\
-https://nytimes.com/2021/11/09/sports/cal-usc-game-covid-postponed.html?searchResultPosition=2
+https://nytimes.com/2021/11/09/sports/cal-usc-game-covid-postponed.html?searchResultPosition=3
 
 **Malala Yousafzai Is Married in England**\
 `Ms. Yousafzai, a Pakistani activist and the youngest-ever recipient of a Nobel Peace Prize, married her partner at a small ceremony in Birmingham, England, she said on Twitter.`\
-https://nytimes.com/2021/11/09/world/europe/malala-yousafzai-married.html?searchResultPosition=3
+https://nytimes.com/2021/11/09/world/europe/malala-yousafzai-married.html?searchResultPosition=4
 
 **Brian Williams Says He’s Leaving NBC News**\
 `The former anchor of “NBC Nightly News” rehabilitated his tarnished image as the host of a popular 11 p.m. show on MSNBC.`\
-https://nytimes.com/2021/11/09/business/media/brian-williams-msnbc.html?searchResultPosition=4
+https://nytimes.com/2021/11/09/business/media/brian-williams-msnbc.html?searchResultPosition=5
 
 **Why Wokeness Will Fail**\
 `Americans won’t support a protest movement that divides, undermines, and censors. `\
-https://nytimes.com/2021/11/09/opinion/social-justice-america.html?searchResultPosition=5
+https://nytimes.com/2021/11/09/opinion/social-justice-america.html?searchResultPosition=6
 
 **Pfizer Asks F.D.A. to Expand Booster Eligibility to All Adults**\
 `In a turnaround, the agency is expected to grant the request before the winter holiday season, giving access to all 181 million fully vaccinated people.`\
-https://nytimes.com/2021/11/09/health/pfizer-booster-eligibility-adults.html?searchResultPosition=6
+https://nytimes.com/2021/11/09/health/pfizer-booster-eligibility-adults.html?searchResultPosition=7
 
 **6 Automakers and 31 Countries Say They’ll Phase Out Gasoline Car Sales**\
 `Ford, G.M. and Mercedes agreed to work toward selling only zero-emissions vehicles by 2040. But Toyota, Volkswagen and Nissan-Renault did not join the pledge.`\
-https://nytimes.com/2021/11/09/climate/electric-cars-cop26-glasgow.html?searchResultPosition=7
+https://nytimes.com/2021/11/09/climate/electric-cars-cop26-glasgow.html?searchResultPosition=8
 
 **Travis Scott’s Ties to Houston Could Complicate Investigation of Fatal Concert**\
 `There are worries about conflicts of interest in the criminal investigation into the deaths of eight concertgoers during Mr. Scott’s performance at the Astroworld festival.`\
-https://nytimes.com/2021/11/09/us/travis-scott-astroworld-houston.html?searchResultPosition=8
+https://nytimes.com/2021/11/09/us/travis-scott-astroworld-houston.html?searchResultPosition=9
 
 **The Climate Summit Has Me Very Energized, and Very Afraid**\
 `Much of the world wouldn't make sacrifices to fight Covid, so why think it will to stop climate change?`\
-https://nytimes.com/2021/11/09/opinion/climate-change-summit-glasgow.html?searchResultPosition=9
+https://nytimes.com/2021/11/09/opinion/climate-change-summit-glasgow.html?searchResultPosition=10
 
