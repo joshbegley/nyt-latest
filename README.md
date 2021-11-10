@@ -6,7 +6,7 @@ https://nytimes.com/2021/11/09/opinion/social-justice-america.html?searchResultP
 `In a turnaround, the agency is expected to grant the request before the winter holiday season, giving access to all 181 million fully vaccinated people.`\
 https://nytimes.com/2021/11/09/health/pfizer-booster-eligibility-adults.html?searchResultPosition=2
 
-**6 Automakers and 29 Countries Say They’ll Phase Out Gasoline Car Sales**\
+**6 Automakers and 31 Countries Say They’ll Phase Out Gasoline Car Sales**\
 `Ford, G.M. and Mercedes agreed to work toward selling only zero-emissions vehicles by 2040. But Toyota, Volkswagen and Nissan-Renault did join the pledge.`\
 https://nytimes.com/2021/11/09/climate/electric-cars-cop26-glasgow.html?searchResultPosition=3
 
