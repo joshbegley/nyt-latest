@@ -1,40 +1,40 @@
-**Weekly Accessible Learning Activities: Family Relationships, Greta Thunberg and Thrifting**\
-`Each week we spotlight five student activities created for a broad range of learners based on reporting in The New York Times.`\
-https://nytimes.com/2021/11/10/learning/weekly-accessible-learning-activities-family-relationships-greta-thunberg-and-thrifting.html?searchResultPosition=1
+**Newly Published, From Primo Levi to ‘Positive Masculinity’**\
+`A selection of books published this week.`\
+https://nytimes.com/2021/11/10/books/review/new-this-week.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Pulled Over: What to Know About Deadly Police Traffic Stops’**\
-`In this lesson, students will learn about a Times investigation into how traffic stops escalate into fatal encounters, and why the problem is so hard to fix.`\
-https://nytimes.com/2021/11/10/learning/lesson-plans/lesson-of-the-day-pulled-over-what-to-know-about-deadly-police-traffic-stops.html?searchResultPosition=2
+**Inflation probably sped up in October, dashing Washington’s hopes for a quick slowdown.**\
+`After moderating slightly in recent months, inflation is forecast to pick up again. That is bad news for President Biden and the central bank.`\
+https://nytimes.com/2021/11/10/business/economy/consumer-price-inflation-october.html?searchResultPosition=2
 
-**A 15-Minute Grocery Delivery That Took 21 Minutes**\
-`A half-dozen grocery services promise speed and convenience. The one we tried took a little longer.`\
-https://nytimes.com/2021/11/10/nyregion/15-minute-groceries.html?searchResultPosition=3
+**The Joy of Casting in Italian Waters**\
+`Italy is not often mentioned as a fly fishing destination, but the wonder of Italian alpine fishing is now making itself known.`\
+https://nytimes.com/2021/11/10/travel/fly-fishing-italy.html?searchResultPosition=3
 
-**In France, the People the Climate Summit Forgot**\
-`In one area of France, worries about rising energy prices trump anxiety about rising temperatures, raising fears of a resurgence of the Yellow Vest social uprising.`\
-https://nytimes.com/2021/11/10/world/europe/france-climate-change-energy-prices.html?searchResultPosition=4
+**Does High-Intensity Exercise Affect Our Hearts? Minds? Life Spans? Waistlines?**\
+`What you need to know about high-intensity interval training, or HIIT.`\
+https://nytimes.com/2021/11/10/well/move/hiit-high-intensity-interval-training.html?searchResultPosition=4
 
-**The Vaccine Mandate Kicks In at 100 Employees. What If You’re at 98?**\
-`For small businesses hovering just under the federal vaccination guidelines, navigating this period is tricky.`\
-https://nytimes.com/2021/11/10/business/osha-vaccine-mandate-employers.html?searchResultPosition=5
+**As Distrust of China Grows, Europe May Inch Closer to Taiwan**\
+`Talks between European lawmakers and Taiwanese officials point to Europe’s increasing willingness to strengthen relations, despite Beijing’s threats.`\
+https://nytimes.com/2021/11/10/world/asia/taiwan-europe-china.html?searchResultPosition=5
 
-**Split 7 Ways, Immigrant Neighborhood Seeks to Unify Its Political Power**\
-`As New York begins to draw new legislative districts, partisan fights may overshadow the electoral harm the process can do to some groups.`\
-https://nytimes.com/2021/11/10/nyregion/redistricting-queens-asians-nyc.html?searchResultPosition=6
+**A Chastened Alibaba Tones Down Its Singles Day Retail Bonanza**\
+`The Chinese e-commerce giant is updating its blockbuster shopping holiday for a humbler, more dutiful era in the country’s internet industry.`\
+https://nytimes.com/2021/11/10/technology/china-alibaba-singles-day.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/10/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**‘Chicago’ Pops the Cork on 25 Years of Razzle Dazzle**\
+`Bebe Neuwirth, Joel Grey, Chita Rivera, John Kander and others discuss the Broadway revival’s surprising early success and its lasting legacy.`\
+https://nytimes.com/2021/11/10/theater/chicago-broadway-anniversary.html?searchResultPosition=7
 
-**Work and Home**\
-`What message do you think this image is communicating?`\
-https://nytimes.com/2021/11/10/learning/work-and-home.html?searchResultPosition=8
+**Republicans Are Giddy. But Democrats Aren’t Helpless.**\
+`The culture wars are never over. That doesn’t mean they always have to end the same way.`\
+https://nytimes.com/2021/11/10/opinion/republicans-democrats-crt.html?searchResultPosition=8
 
-**Jimmy Kimmel: Biden Is Steady but Slow, Like ‘Grandpa at the Wheel’**\
-`“He’ll get us there, it’ll just happen very slowly with the blinker on the whole ride,” Kimmel joked of the president and his 38 percent approval rating.`\
-https://nytimes.com/2021/11/10/arts/television/jimmy-kimmel-biden-is-steady-but-slow-like-grandpa-at-the-wheel.html?searchResultPosition=9
+**The Cinderella Myth We Can’t Quit**\
+`The same woman who stars as the embodiment of poverty in Netflix’s “Maid” is a brand ambassador for one of the world’s largest luxury companies. How very 2021.`\
+https://nytimes.com/2021/11/10/style/cinderella-myth-maid-netflix.html?searchResultPosition=9
 
-**The Pursuit of Perfection**\
-`Barcelona Femení is the champion of Spain and Europe, and perhaps the most dominant club team in the world. The team’s coach and his players expect it to be better.`\
-https://nytimes.com/2021/11/10/sports/soccer/barcelona-womens-champions-league.html?searchResultPosition=10
+**Hindu Sect Accused of Using Forced Labor at More Temples Across U.S.**\
+`BAPS, a prominent sect, faces accusations of exploiting low-caste laborers from India to run massive temples around the country.`\
+https://nytimes.com/2021/11/10/nyregion/baps-hindu-temples.html?searchResultPosition=10
 
