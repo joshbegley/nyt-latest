@@ -1,40 +1,40 @@
+**Weekly Accessible Learning Activities: Family Relationships, Greta Thunberg and Thrifting**\
+`Each week we spotlight five student activities created for a broad range of learners based on reporting in The New York Times.`\
+https://nytimes.com/2021/11/10/learning/weekly-accessible-learning-activities-family-relationships-greta-thunberg-and-thrifting.html?searchResultPosition=1
+
 **Lesson of the Day: ‘Pulled Over: What to Know About Deadly Police Traffic Stops’**\
 `In this lesson, students will learn about a Times investigation into how traffic stops escalate into fatal encounters, and why the problem is so hard to fix.`\
-https://nytimes.com/2021/11/10/learning/lesson-plans/lesson-of-the-day-pulled-over-what-to-know-about-deadly-police-traffic-stops.html?searchResultPosition=1
+https://nytimes.com/2021/11/10/learning/lesson-plans/lesson-of-the-day-pulled-over-what-to-know-about-deadly-police-traffic-stops.html?searchResultPosition=2
 
 **A 15-Minute Grocery Delivery That Took 21 Minutes**\
 `A half-dozen grocery services promise speed and convenience. The one we tried took a little longer.`\
-https://nytimes.com/2021/11/10/nyregion/15-minute-groceries.html?searchResultPosition=2
+https://nytimes.com/2021/11/10/nyregion/15-minute-groceries.html?searchResultPosition=3
 
 **In France, the People the Climate Summit Forgot**\
 `In one area of France, worries about rising energy prices trump anxiety about rising temperatures, raising fears of a resurgence of the Yellow Vest social uprising.`\
-https://nytimes.com/2021/11/10/world/europe/france-climate-change-energy-prices.html?searchResultPosition=3
+https://nytimes.com/2021/11/10/world/europe/france-climate-change-energy-prices.html?searchResultPosition=4
 
 **The Vaccine Mandate Kicks In at 100 Employees. What If You’re at 98?**\
 `For small businesses hovering just under the federal vaccination guidelines, navigating this period is tricky.`\
-https://nytimes.com/2021/11/10/business/osha-vaccine-mandate-employers.html?searchResultPosition=4
+https://nytimes.com/2021/11/10/business/osha-vaccine-mandate-employers.html?searchResultPosition=5
 
 **Split 7 Ways, Immigrant Neighborhood Seeks to Unify Its Political Power**\
 `As New York begins to draw new legislative districts, partisan fights may overshadow the electoral harm the process can do to some groups.`\
-https://nytimes.com/2021/11/10/nyregion/redistricting-queens-asians-nyc.html?searchResultPosition=5
+https://nytimes.com/2021/11/10/nyregion/redistricting-queens-asians-nyc.html?searchResultPosition=6
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/10/crosswords/spelling-bee-forum.html?searchResultPosition=6
+https://nytimes.com/2021/11/10/crosswords/spelling-bee-forum.html?searchResultPosition=7
 
 **Work and Home**\
 `What message do you think this image is communicating?`\
-https://nytimes.com/2021/11/10/learning/work-and-home.html?searchResultPosition=7
+https://nytimes.com/2021/11/10/learning/work-and-home.html?searchResultPosition=8
 
 **Jimmy Kimmel: Biden Is Steady but Slow, Like ‘Grandpa at the Wheel’**\
 `“He’ll get us there, it’ll just happen very slowly with the blinker on the whole ride,” Kimmel joked of the president and his 38 percent approval rating.`\
-https://nytimes.com/2021/11/10/arts/television/jimmy-kimmel-biden-is-steady-but-slow-like-grandpa-at-the-wheel.html?searchResultPosition=8
+https://nytimes.com/2021/11/10/arts/television/jimmy-kimmel-biden-is-steady-but-slow-like-grandpa-at-the-wheel.html?searchResultPosition=9
 
 **The Pursuit of Perfection**\
 `Barcelona Femení is the champion of Spain and Europe, and perhaps the most dominant club team in the world. The team’s coach and his players expect it to be better.`\
-https://nytimes.com/2021/11/10/sports/soccer/barcelona-womens-champions-league.html?searchResultPosition=9
-
-**Word of the Day: boon**\
-`This word has appeared in 281 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/11/10/learning/word-of-the-day-boon.html?searchResultPosition=10
+https://nytimes.com/2021/11/10/sports/soccer/barcelona-womens-champions-league.html?searchResultPosition=10
 
