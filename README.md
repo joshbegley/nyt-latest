@@ -1,40 +1,40 @@
+**Tree DNA Sends a Poacher to Prison in 2018 Maple Fire Case**\
+`Loggers seeking a prized hardwood started the fire in the Olympic National Forest, prosecutors said. The use of timber DNA evidence was a first in a federal criminal trial.`\
+https://nytimes.com/2021/11/10/us/justin-wilke-maple-fire-tree-dna-sentenced.html?searchResultPosition=1
+
+**College Basketball Begins With Plenty of Changes**\
+`There are numerous transfers and players with extra eligibility chasing an N.C.A.A. title.`\
+https://nytimes.com/2021/11/10/sports/ncaabasketball/mens-college-basketball-season-preview.html?searchResultPosition=2
+
+**We’re Covering the Final Days of COP26 in Real Time**\
+`There’s a draft agreement that countries will use as a template for a final deal, but big hurdles remain at the Glasgow talks.`\
+https://nytimes.com/2021/11/10/climate/cop26-nyt-climate-newsletter.html?searchResultPosition=3
+
 **Amazon on the High Seas**\
 `Amazon, racing to get products from factories to our homes, lures merchants with chartered cargo ships.`\
-https://nytimes.com/2021/11/10/technology/amazon-cargo-ships.html?searchResultPosition=1
+https://nytimes.com/2021/11/10/technology/amazon-cargo-ships.html?searchResultPosition=4
 
 **At the center of the Rittenhouse trial is a military-style rifle in a teenager’s hands.**\
 `Kyle Rittenhouse has pleaded not guilty, but it remains to be seen how his lawyers will try to defend him from a charge of illegally possessing the gun he used.`\
-https://nytimes.com/2021/11/10/us/rittenhouse-trial-semiautomatic-rifle.html?searchResultPosition=2
+https://nytimes.com/2021/11/10/us/rittenhouse-trial-semiautomatic-rifle.html?searchResultPosition=5
 
 **Should California De-Track Math?**\
 `The most populous state is considering big changes to math instruction.`\
-https://nytimes.com/2021/11/10/us/california-detrack-math-revision-calculus.html?searchResultPosition=3
+https://nytimes.com/2021/11/10/us/california-detrack-math-revision-calculus.html?searchResultPosition=6
 
 **How ‘Cool Roofs’ Can Help Fight Climate Change**\
 `Painted rooftops reflect the heat instead of absorbing it, reducing the need for air-conditioning and cutting greenhouse gases.`\
-https://nytimes.com/2021/11/10/realestate/cool-roofs-climate-change-nyc.html?searchResultPosition=4
+https://nytimes.com/2021/11/10/realestate/cool-roofs-climate-change-nyc.html?searchResultPosition=7
 
 **What to Read: 4 New Poetry Books**\
 `A selection of books published this week.`\
-https://nytimes.com/interactive/2021/11/10/books/new-poetry-books.html?searchResultPosition=5
+https://nytimes.com/interactive/2021/11/10/books/new-poetry-books.html?searchResultPosition=8
 
 **19 Recipes That Your Kids Will Actually (Maybe?) Eat**\
 `These flavorful and fun dishes have something for everyone.`\
-https://nytimes.com/2021/11/10/dining/recipes-for-kids.html?searchResultPosition=6
+https://nytimes.com/2021/11/10/dining/recipes-for-kids.html?searchResultPosition=9
 
 **Man Arrested Over Fire at Memorial for Pulse Nightclub Victims**\
 `The man, Mark Henson, 64, was charged with felony criminal mischief after a fire at the memorial, which honors the 49 people killed in the 2016 shooting in Orlando, Fla.`\
-https://nytimes.com/2021/11/10/us/pulse-memorial-fire-mark-henson.html?searchResultPosition=7
-
-**Key takeaways from the start of Kyle Rittenhouse’s testimony.**\
-`Mr. Rittenhouse began his testimony speaking in a clear and confident tone. But later, he began to sob loudly.`\
-https://nytimes.com/2021/11/10/us/kyle-rittenhouse-testimony-takeaways.html?searchResultPosition=8
-
-**When a Logo Doesn’t Risk It All: Meta’s Brand Is Designed for Unknown Worlds**\
-`The emblem for Facebook’s new parent company is built for the metaverse, even if it disappoints in the real world.`\
-https://nytimes.com/2021/11/10/technology/facebook-meta-new-logo.html?searchResultPosition=9
-
-**Whose Writing Is on the Wall at the Museum? It Could Be Yours.**\
-`Museums striving for diversity and inclusiveness are bringing in outside voices to interpret the art. (They’re not always experts.)`\
-https://nytimes.com/2021/11/10/arts/design/art-museum-labeling-new-york-historical-society.html?searchResultPosition=10
+https://nytimes.com/2021/11/10/us/pulse-memorial-fire-mark-henson.html?searchResultPosition=10
 
