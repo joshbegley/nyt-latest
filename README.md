@@ -1,22 +1,22 @@
+**When a Logo Doesn’t Risk It All: Meta’s Brand Is Designed for Unknown Worlds**\
+`The emblem for Facebook’s new parent company is built for the metaverse, even if it disappoints in the real world.`\
+https://nytimes.com/2021/11/10/technology/facebook-meta-new-logo.html?searchResultPosition=1
+
 **Whose Writing Is on the Wall at the Museum? It Could Be Yours.**\
 `Museums striving for diversity and inclusiveness are bringing in outside voices to interpret the art. (They’re not always experts.)`\
-https://nytimes.com/2021/11/10/arts/design/art-museum-labeling-new-york-historical-society.html?searchResultPosition=1
+https://nytimes.com/2021/11/10/arts/design/art-museum-labeling-new-york-historical-society.html?searchResultPosition=2
 
 **Thanksgiving With Padma**\
 `Genevieve Ko wrote about cooking a buttermilk-brined, savory-sweet turkey with Padma Lakshmi.`\
-https://nytimes.com/2021/11/10/dining/thanksgiving-with-padma.html?searchResultPosition=2
+https://nytimes.com/2021/11/10/dining/thanksgiving-with-padma.html?searchResultPosition=3
 
 **The Skies Parted and My Future Was Decided**\
 `I had received a calling. I had no choice in the matter. My other interests retreated. I would be a guitarist.`\
-https://nytimes.com/interactive/2021/11/10/opinion/tom-morello-guitarist.html?searchResultPosition=3
+https://nytimes.com/interactive/2021/11/10/opinion/tom-morello-guitarist.html?searchResultPosition=4
 
 **Video Shows Man Setting Fire at Memorial for Pulse Shooting Victims**\
 `Surveillance footage led the police in Orlando, Fla., to make an arrest connected to a fire at a memorial honoring the 49 victims killed in the 2016 Pulse gay nightclub shooting. The mass shooting was one of the deadliest in the United States.`\
-https://nytimes.com/video/us/100000008070003/pulse-shooting-memorial-arson-orlando.html?searchResultPosition=4
-
-**Here’s a guide to who’s who in the Rittenhouse courtroom.**\
-`A rundown of the key figures for the trial of Kyle Rittenhouse in Kenosha, Wis.`\
-https://nytimes.com/2021/11/10/us/rittenhouse-courtroom-key-figures.html?searchResultPosition=5
+https://nytimes.com/video/us/100000008070003/pulse-shooting-memorial-arson-orlando.html?searchResultPosition=5
 
 **Kyle Rittenhouse, who styled himself a medic, said he is now studying nursing.**\
 `For much of his life, Mr. Rittenhouse, now 18, tried on identities infused with bravery and service.`\
