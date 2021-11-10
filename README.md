@@ -1,6 +1,6 @@
 **Jon Hopkins’s Psychedelic Journey to a New Way of Creating Music**\
 `For more than a decade, the British producer’s muscle and grace made him a festival favorite. His new album, “Music for Psychedelic Therapy,” takes an unexpectedly quiet turn.`\
-https://nytimes.com/2021/11/10/arts/music/jon-hopkinss-psychedelic-journey-to-a-new-way-of-creating-music.html?searchResultPosition=1
+https://nytimes.com/2021/11/10/arts/music/jon-hopkins-music-for-psychedelic-therapy.html?searchResultPosition=1
 
 **America Isn’t Ready for the Electric-Vehicle Revolution**\
 `Its battery supply chain runs through China, and that’s not changing any time soon.`\
