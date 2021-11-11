@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/10/health/home-covid-tests-recalled-over-false-posit
 https://nytimes.com/2021/11/10/nyregion/cuomo-transcripts-key-moments.html?searchResultPosition=2
 
 **Andrew Cuomo Under Oath: Proud, Prickly and Often Unable to Recall**\
-`A transcript of Mr. Cuomo’s 11 hours under questioning over sexual harassment allegations paint an extraordinary portrait of a combative governor.`\
+`A transcript of Mr. Cuomo’s 11 hours under questioning over sexual harassment allegations paints an extraordinary portrait of a combative governor.`\
 https://nytimes.com/2021/11/10/nyregion/cuomo-sexual-harassment-investigation.html?searchResultPosition=3
 
 **Biden Got His Infrastructure Bill. Now He Has to Sell It to Voters.**\
