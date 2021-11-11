@@ -6,7 +6,7 @@ https://nytimes.com/2021/11/11/us/substitute-teachers-demand.html?searchResultPo
 `Aminata Diallo was arrested and questioned by the police after her teammate was pulled from a car that Diallo was driving and beaten by masked men.`\
 https://nytimes.com/2021/11/11/sports/soccer/psg-attack-diallo-released.html?searchResultPosition=2
 
-**Palestinian Diplomats Targeted By Israeli Spyware, Official Says**\
+**Palestinian Diplomats Targeted by Israeli Spyware, Official Says**\
 `The accusation, which has not been independently verified, raises new questions over whether Israel is using software made by NSO Group to spy on Palestinians.`\
 https://nytimes.com/2021/11/11/world/middleeast/israel-palestinian-nso-hacking.html?searchResultPosition=3
 
