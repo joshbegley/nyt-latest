@@ -1,6 +1,6 @@
 **Singapore allows music in bars and restaurants again, but it has to be mellow.**\
 `There was no word on what kinds of music, or what volume level, the change applies to. And live music and entertainment are still banned.`\
-https://nytimes.com/2021/11/11/world/asia/covid-singapore-music-bars-restaurants.html?searchResultPosition=1
+https://nytimes.com/live/2021/11/11/world/covid-vaccine-boosters-mandates/covid-singapore-music-bars-restaurants?searchResultPosition=1
 
 **Public Health Officials Under Siege**\
 `During the pandemic, they have been the target of protests and of laws intended to curb their powers. Has this left the U.S. less prepared than ever for the next crisis?`\
