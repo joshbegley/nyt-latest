@@ -14,8 +14,8 @@ https://nytimes.com/2021/11/11/business/new-mercedes-sl-2022.html?searchResultPo
 `Test your vocabulary and reading comprehension with this quiz based on the Times article "The Young Men’s Style Council of TikTok."`\
 https://nytimes.com/interactive/2021/11/11/learning/11VocabQuizLN.html?searchResultPosition=4
 
-**F.W. De Klerk, Former South African President Who Dismantled Apartheid, Dies at 85**\
-`A prominent Afrikaner, he was the ninth and possibly last in a long line of white presidents of South Africa.`\
+**F.W. de Klerk, Former South African President Who Dismantled Apartheid, Dies at 85**\
+`A prominent Afrikaner, he vehemently defended the separation of the races but later stunned his deeply divided nation, and the wider world, by reconsidering South Africa’s racist ways.`\
 https://nytimes.com/2021/11/11/world/africa/fw-de-klerk-dead.html?searchResultPosition=5
 
 **Dropping out and taking menial jobs: The effects of keeping students out of school for 18 months.**\
