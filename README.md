@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/11/business/dealbook/dealbook-summit-lessons.html?se
 
 **Britain’s economic recovery has slowed as supply disruptions persist.**\
 `The economy grew 1.3 percent in the third quarter, down from 5.5 percent growth in the previous three months.`\
-https://nytimes.com/2021/11/11/business/britains-economic-recovery-has-slowed-as-supply-disruptions-persist.html?searchResultPosition=2
+https://nytimes.com/2021/11/11/business/britain-economy-recovery.html?searchResultPosition=2
 
 **‘Uppercase Print’ Review: Between the Lines**\
 `Radu Jude’s rousing, form-bending new feature rails at the power of propaganda to suffocate people’s freedoms.`\
