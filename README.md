@@ -1,5 +1,5 @@
 **The Little Country That Could Wonders if It Still Can**\
-`No South American nation has performed as well over the last three World Cups as Uruguay. Now the country’s three million people wonder if the good times might be over.`\
+`No South American nation has performed as well as Uruguay over the past three World Cups. Now the country’s three million people wonder if the good times might be over.`\
 https://nytimes.com/2021/11/11/sports/soccer/uruguay-argentina-suarez-cavani.html?searchResultPosition=1
 
 **SpaceX Delivers NASA’s Crew-3 Astronauts to Space Station**\
