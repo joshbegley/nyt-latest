@@ -28,7 +28,7 @@ https://nytimes.com/interactive/2021/11/11/sports/sports-what-to-watch.html?sear
 
 **Germany’s Fourth Covid Wave: ‘A Pandemic of the Unvaccinated’**\
 `Germany once set an example for how to manage the coronavirus. Now, deep pockets of vaccine resistance are helping drive daily infections to new heights.`\
-https://nytimes.com/2021/11/11/world/europe/germany-covid-unvaccinated-vaccines.html?searchResultPosition=8
+https://nytimes.com/2021/11/11/world/europe/germany-covid-unvaccinated.html?searchResultPosition=8
 
 **Internal Documents from Project Veritas**\
 `A lawyer with Project Veritas offered guidance to avoid breaking federal statutes.`\
