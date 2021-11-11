@@ -20,7 +20,7 @@ https://nytimes.com/2021/11/10/us/politics/moderna-nih-vaccine-patent.html?searc
 
 **Home Covid tests recalled over false positives reach 2 million kits.**\
 `Ellume says far more than 400,000 of its rapid test kits may be faulty, but a smartphone app alerts users to the issues.`\
-https://nytimes.com/2021/11/10/health/home-covid-tests-recalled-over-false-positives-reach-2-million-kits.html?searchResultPosition=6
+https://nytimes.com/2021/11/10/health/home-covid-test-kits.html?searchResultPosition=6
 
 **‘It Came Off Creepy’: 6 Key Moments from the Cuomo Transcripts**\
 `The interviews were part of a five-month investigation into the sexual harassment claims against Gov. Andrew M. Cuomo that led to his resignation.`\
