@@ -1,6 +1,6 @@
 **On the Menu at the Climate Talks**\
 `A look at some menu offerings in Glasgow, host of the global climate summit the past two weeks.`\
-https://nytimes.com/interactive/2021/11/11/climate/11cop-menu-food.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/11/11/climate/cop26-food.html?searchResultPosition=1
 
 **The clash over the Belarus-Poland border crisis spills into the U.N. Security Council.**\
 `The United States joined several countries in a statement condemning Belarus, but the Russian envoy dismissed their criticism as politically motivated hypocrisy.`\
