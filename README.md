@@ -27,7 +27,7 @@ https://nytimes.com/2021/11/11/briefing/china-xi-poland-belarus-border.html?sear
 https://nytimes.com/2021/11/11/sports/football/odell-beckham-jr-los-angeles-rams.html?searchResultPosition=7
 
 **The Supreme Court Tactic That Aims to Kill Affirmative Action**\
-`A group suing Harvard and the University of North Carolina at Chapel Hill has asked the court to hear the two cases together in a bid to increase its chances of a ruling that would apply across higher education.`\
+`A group suing Harvard and the University of North Carolina at Chapel Hill has asked the court to hear the two cases together, hoping for a ruling that would apply across higher education.`\
 https://nytimes.com/2021/11/11/us/affirmative-action-harvard-unc.html?searchResultPosition=8
 
 **Court Issues Brief Hold on Release of Trump Files in Jan. 6 Inquiry**\
