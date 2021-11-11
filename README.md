@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/11/us/affirmative-action-harvard-unc.html?searchResu
 
 **Court Issues Brief Hold on Release of Trump Files in Jan. 6 Inquiry**\
 `Congress had been set to receive the first batch of Trump White House files from the National Archives on Friday, a move that the former president has fought.`\
-https://nytimes.com/2021/11/11/us/politics/trump-january-6-court.html?searchResultPosition=3
+https://nytimes.com/2021/11/11/us/politics/trump-files-january-6.html?searchResultPosition=3
 
 **What the Most Advanced Space Technology Teaches Us About Talent Development**\
 `More than 22,000 miles above the Earth, in a place called the geoorbital graveyard, history was made on February 25, 2020. Northrop Grummans MEV-1`\
