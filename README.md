@@ -3,7 +3,7 @@
 https://nytimes.com/paidpost/northrop-grumman/project-blue-chip/what-the-most-advanced-space-technology-teaches-us-about-talent-development.html?searchResultPosition=1
 
 **On Veterans Day, the Parade Came to Him**\
-`Jack Le Vine usually spends the holiday doing “nothing.” His Brooklyn neighbors had other plans.`\
+`Jack Le Vine, 96, usually spends the holiday doing “nothing.” His Brooklyn neighbors had other plans.`\
 https://nytimes.com/2021/11/11/nyregion/veterans-day-brooklyn-vet.html?searchResultPosition=2
 
 **Far-Right Groups Stage Rallies on Poland’s Independence Day**\
