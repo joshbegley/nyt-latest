@@ -1,40 +1,40 @@
-**Europe’s Covid deaths rose 10 percent in a week, the W.H.O. says.**\
-`Cases and fatalities have increased on the continent, even as they have dropped or remained stable in the rest of the world.`\
-https://nytimes.com/2021/11/11/world/europe/covid-deaths.html?searchResultPosition=1
+**‘Uppercase Print’ Review: Between the Lines**\
+`Radu Jude’s rousing, form-bending new feature rails at the power of propaganda to suffocate people’s freedoms.`\
+https://nytimes.com/2021/11/11/movies/uppercase-print-review.html?searchResultPosition=1
 
-**The Celtics Are Starting to Get Their Act Together**\
-`After spiraling toward dysfunction, Boston has righted the ship for new coach Ime Udoka.`\
-https://nytimes.com/2021/11/11/sports/basketball/nba-celtics-raptors.html?searchResultPosition=2
+**‘Paper & Glue’ Review: A Sequel of Sorts to ‘Faces Places’**\
+`JR, plying his art of making and displaying gigantic portraits, carries on, this time without the inimitable Agnès Varda.`\
+https://nytimes.com/2021/11/11/movies/paper-glue-review.html?searchResultPosition=2
 
-**Chronic Pain**\
-`When modern medicine doesn’t cure it, what comes next?`\
-https://nytimes.com/2021/11/11/briefing/chronic-pain-modern-medicine.html?searchResultPosition=3
+**‘Julia’ Review: She Changed Your Life and Your Utensil Drawer**\
+`An invigorating new documentary looks back on Julia Child and her influence on how Americans cook and eat.`\
+https://nytimes.com/2021/11/11/movies/julia-review.html?searchResultPosition=3
 
-**Public Health Officials Under Siege**\
-`During the pandemic, they have been the target of protests and of laws intended to curb their powers. Has this left the U.S. less prepared than ever for the next crisis?`\
-https://nytimes.com/2021/11/11/podcasts/the-daily/coronavirus-public-health.html?searchResultPosition=4
+**‘They Say Nothing Stays the Same’ Review: Crossing a Modern River**\
+`Two events disturb the placid surfaces of a boatman’s world: the building of a nearby bridge, and his discovery of a young woman floating in the water.`\
+https://nytimes.com/2021/11/11/movies/they-say-nothing-stays-the-same-review.html?searchResultPosition=4
 
-**A New Mercedes SL Stresses Horsepower and Verve**\
-`Across seven decades, the roadster has radiated a sporty elegance, and a new generation adds a dash of modern driving technology.`\
-https://nytimes.com/2021/11/11/business/new-mercedes-sl-2022.html?searchResultPosition=5
+**‘3212 Un-Redacted’ Review: Trying to Solve a Mission’s Mysteries**\
+`The documentary looks into the complex circumstances involving four American soldiers who were killed in an ambush in Niger in 2017.`\
+https://nytimes.com/2021/11/11/movies/3212-un-redacted-review.html?searchResultPosition=5
 
-**Vocabulary in Context: Men's Fashion**\
-`Test your vocabulary and reading comprehension with this quiz based on the Times article "The Young Men’s Style Council of TikTok."`\
-https://nytimes.com/interactive/2021/11/11/learning/11VocabQuizLN.html?searchResultPosition=6
+**‘Love Is Love Is Love’ Review:Aging Too Gracefully**\
+`The characters in this idle drama, directed by Eleanor Coppola, seem mostly content. That’s the problem.`\
+https://nytimes.com/2021/11/11/movies/love-is-love-is-love-review.html?searchResultPosition=6
 
-**F.W. de Klerk, Former South African President Who Dismantled Apartheid, Dies at 85**\
-`A prominent Afrikaner, he vehemently defended the separation of the races but later stunned his deeply divided nation, and the wider world, by reconsidering South Africa’s racist ways.`\
-https://nytimes.com/2021/11/11/world/africa/fw-de-klerk-dead.html?searchResultPosition=7
+**‘Home Sweet Home Alone’ Review: A Winter With Plenty of Falls**\
+`Dan Mazer’s film, streaming on Disney+, is a painful spiritual sequel to the 1990 hit.`\
+https://nytimes.com/2021/11/11/movies/home-sweet-home-alone-review-a-winter-with-plenty-of-falls.html?searchResultPosition=7
 
-**Dropping out and taking menial jobs: The effects of keeping students out of school for 18 months.**\
-`With 10 million young people in Uganda still unable to attend classes in person, the impact for many has been devastating.`\
-https://nytimes.com/2021/11/11/world/africa/covid-uganda-schools.html?searchResultPosition=8
+**‘Mayor Pete’ Review: Politics Is Local**\
+`This film, which follows Pete Buttigieg on his campaign for the 2020 Democratic presidential nomination, rarely captures him in what looks like an unselfconscious moment.`\
+https://nytimes.com/2021/11/11/movies/mayor-pete-review.html?searchResultPosition=8
 
-**Tracing Mexico’s Complicated Relationship With Rice**\
-`Having arrived in the country via the Spanish Conquest, the grain’s presence poses the question: What’s native, and what isn’t, when it comes to a nation’s culinary history?`\
-https://nytimes.com/2021/11/11/t-magazine/mexico-rice-conquest.html?searchResultPosition=9
+**‘Belfast’ Review: A Boy’s Life**\
+`In this charming memoir, Kenneth Branagh recalls his childhood in Northern Ireland through a rose-tinted lens.`\
+https://nytimes.com/2021/11/11/movies/belfast-review.html?searchResultPosition=9
 
-**For Many Members of the Arab American Diaspora, Mansaf Offers a Taste of Home**\
-`The traditional Bedouin dish of bread, rice, lamb and yogurt is a talisman of identity in Jordan — and in various communities in suburban Detroit.`\
-https://nytimes.com/2021/11/11/t-magazine/mansaf-bedouin-rice.html?searchResultPosition=10
+**‘7 Prisoners’ Review: Survival at Any Cost**\
+`Alexandre Moratto plunges into the psychological traumas of human trafficking in this gripping Brazilian drama on Netflix.`\
+https://nytimes.com/2021/11/11/movies/7-prisoners-review.html?searchResultPosition=10
 
