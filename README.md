@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/11/us/politics/republicans-infrastructure-bill.html?
 https://nytimes.com/2021/11/11/briefing/china-xi-poland-belarus-border.html?searchResultPosition=4
 
 **Odell Beckham Jr. Agrees to Deal With Los Angeles Rams**\
-`Beckham joins the Rams after a rocky parting with the Cleveland Browns, where he struggled to gain traction.`\
+`Beckham will join the Rams after a rocky tenure with the Cleveland Browns, who released him last week.`\
 https://nytimes.com/2021/11/11/sports/football/odell-beckham-jr-los-angeles-rams.html?searchResultPosition=5
 
 **The Supreme Court Tactic That Aims to Kill Affirmative Action**\
