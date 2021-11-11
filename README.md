@@ -16,7 +16,7 @@ https://nytimes.com/paidpost/northrop-grumman/project-blue-chip/what-the-most-ad
 
 **On Veterans Day, the Parade Came to Him**\
 `Jack Le Vine, 96, usually spends the holiday doing “nothing.” His Brooklyn neighbors had other plans.`\
-https://nytimes.com/2021/11/11/nyregion/veterans-day-brooklyn-vet.html?searchResultPosition=5
+https://nytimes.com/2021/11/11/nyregion/veterans-day-brooklyn-parade.html?searchResultPosition=5
 
 **Far-Right Groups Stage Rallies on Poland’s Independence Day**\
 `The focus was on the migrant standoff at the country’s eastern border with Belarus.`\
