@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/11/style/do-you-hide-your-true-self-while-dating.htm
 https://nytimes.com/2021/11/11/movies/what-do-we-see-when-we-look-at-the-sky-review.html?searchResultPosition=2
 
 **Cam Newton Signs Deal to Return to Carolina Panthers**\
-`The quarterback is Carolina’s all-time passing leader.`\
+`The quarterback is the team’s career passing leader.`\
 https://nytimes.com/2021/11/11/sports/football/cam-newton-carolina-panthers.html?searchResultPosition=3
 
 **How to Protect Your Kid’s Hearing**\
