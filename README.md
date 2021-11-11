@@ -6,8 +6,8 @@ https://nytimes.com/2021/11/11/arts/television/transgender-documentaries-always-
 `Rebecca Hall’s piercing drama stars Tessa Thompson and Ruth Negga as old friends navigating the color line in 1920s New York.`\
 https://nytimes.com/2021/11/11/movies/passing-review.html?searchResultPosition=2
 
-**Migrants Continue to Gather at Belarus-Poland Border**\
-`Thousands of migrants, largely from the Middle East, are camped at the border between Poland and Belarus. With temperatures expected to drop, aid workers are concerned that the number of deaths will increase. At least eight people have died, according to officials.`\
+**Migrants Stranded in Cold at Belarus-Poland Border**\
+`Thousands of migrants, largely from the Middle East, are camped at the Poland-Belarus border. At least eight have died, according to officials, and temperatures are expected to drop.`\
 https://nytimes.com/video/world/europe/100000008071858/belarus-poland-border-migrants-camp.html?searchResultPosition=3
 
 **Lady Gaga and Ridley Scott on ‘House of Gucci’: When Beauty Turns Ugly**\
