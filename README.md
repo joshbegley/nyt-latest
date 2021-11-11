@@ -1,40 +1,40 @@
+**John Artis, Convicted With Rubin (Hurricane) Carter, Dies at 75**\
+`He was the “forgotten man” in the triple murder case that was eventually overturned and that exposed flaws in the criminal justice system.`\
+https://nytimes.com/2021/11/11/nyregion/john-artis-dead.html?searchResultPosition=1
+
+**The Awesome Importance of Imagination**\
+`Our society isn’t good at cultivating the faculty that we may need the most.`\
+https://nytimes.com/2021/11/11/opinion/imagination-empathy.html?searchResultPosition=2
+
+**History Says Don’t Panic About Inflation**\
+`This year looks more like 1947 than like 1979.`\
+https://nytimes.com/2021/11/11/opinion/inflation-history.html?searchResultPosition=3
+
+**In Trial of Men Accused of Arbery Murder, Jurors Consider Security Videos**\
+`Ahmaud Arbery was recorded at the site of a partially constructed home several times. The footage will be central to the question of whether the defendants had the legal right to chase him.`\
+https://nytimes.com/2021/11/11/us/ahmaud-arbery-videos-trial.html?searchResultPosition=4
+
 **The Little Country That Could Wonders if It Still Can**\
 `No South American nation has performed as well as Uruguay over the past three World Cups. Now the country’s three million people wonder if the good times might be over.`\
-https://nytimes.com/2021/11/11/sports/soccer/uruguay-argentina-suarez-cavani.html?searchResultPosition=1
+https://nytimes.com/2021/11/11/sports/soccer/uruguay-argentina-suarez-cavani.html?searchResultPosition=5
 
 **SpaceX Delivers NASA’s Crew-3 Astronauts to Space Station**\
 `The Crew Dragon capsule Endurance docked on Thursday with the orbital outpost, where the four crewmates will stay until April 2022.`\
-https://nytimes.com/2021/11/11/science/spacex-nasa-docking.html?searchResultPosition=2
+https://nytimes.com/2021/11/11/science/spacex-nasa-docking.html?searchResultPosition=6
 
 **Political Campaigns Can Still Target You on Facebook**\
 `Meta announced changes to its ad-targeting policies, but they will do little to stop campaigns from reaching specific voters.`\
-https://nytimes.com/2021/11/11/us/politics/facebook-political-ads.html?searchResultPosition=3
+https://nytimes.com/2021/11/11/us/politics/facebook-political-ads.html?searchResultPosition=7
 
 **On the Menu at the Climate Talks**\
 `A look at some menu offerings in Glasgow, host of the global climate summit the past two weeks.`\
-https://nytimes.com/interactive/2021/11/11/climate/cop26-food.html?searchResultPosition=4
+https://nytimes.com/interactive/2021/11/11/climate/cop26-food.html?searchResultPosition=8
 
 **The clash over the Belarus-Poland border crisis spills into the U.N. Security Council.**\
 `The United States joined several countries in a statement condemning Belarus, but the Russian envoy dismissed their criticism as politically motivated hypocrisy.`\
-https://nytimes.com/2021/11/11/world/europe/un-security-council.html?searchResultPosition=5
+https://nytimes.com/2021/11/11/world/europe/un-security-council.html?searchResultPosition=9
 
 **Problems at D.C. Jail Were Ignored Until Jan. 6 Defendants Came Along**\
 `At a hearing this week, officials said longstanding issues at the jail, where most inmates are Black, did not get much attention until the largely white rioters were held there.`\
-https://nytimes.com/2021/11/11/us/politics/dc-jail-jan-6.html?searchResultPosition=6
-
-**Who Is Aleksandr G. Lukashenko? Here’s What You Need to Know.**\
-`A migrant crisis on the border with Poland has put the Belarusian president at the center of a clash roiling Europe.`\
-https://nytimes.com/2021/11/11/world/who-is-aleksandr-g-lukashenko.html?searchResultPosition=7
-
-**‘Chicken & Biscuits’ Will Close Early Following Covid Pause**\
-`The play canceled performances this month because of breakthrough cases in the company. With costs mounting, it will close Nov. 28.`\
-https://nytimes.com/2021/11/11/arts/chicken-and-biscuits-closing-coronavirus.html?searchResultPosition=8
-
-**Americans Are in a Funk About the Economy. How Long Will It Last?**\
-`Americans feel good about their own financial situations, but their general outlook on the economy is anything but sunny.`\
-https://nytimes.com/2021/11/11/opinion/inflation-economy-supply-chain.html?searchResultPosition=9
-
-**Project Veritas and the Line Between Journalism and Political Spying**\
-`Documents show how the conservative group worked with lawyers to gauge how far its deceptive reporting practices could go before running afoul of federal laws.`\
-https://nytimes.com/2021/11/11/us/politics/project-veritas-journalism-political-spying.html?searchResultPosition=10
+https://nytimes.com/2021/11/11/us/politics/dc-jail-jan-6.html?searchResultPosition=10
 
