@@ -20,7 +20,7 @@ https://nytimes.com/2021/11/10/science/parachute-dragon-nasa.html?searchResultPo
 
 **The N.I.H. says it is not giving up in patent fight with Moderna.**\
 `The dispute has potential implications for the vaccine’s long-term availability and billions in future profits.`\
-https://nytimes.com/2021/11/10/us/politics/moderna-nih-vaccine-patent.html?searchResultPosition=6
+https://nytimes.com/2021/11/10/us/politics/moderna-vaccine-patent-nih.html?searchResultPosition=6
 
 **Home Covid tests recalled over false positives reach 2 million kits.**\
 `Ellume says far more than 400,000 of its rapid test kits may be faulty, but a smartphone app alerts users to the issues.`\
