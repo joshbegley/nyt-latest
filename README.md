@@ -1,6 +1,6 @@
 **Prison Won’t Be a Riot for the QAnon Shaman, Jimmy Kimmel Says**\
 `“Prosecutors are recommending 51 months behind bars, after which, he will be remanded into the custody of ‘Dancing With the Stars,’” Kimmel joked.`\
-https://nytimes.com/2021/11/12/arts/television/prison-wont-be-a-riot-for-the-qanon-shaman-jimmy-kimmel-says.html?searchResultPosition=1
+https://nytimes.com/2021/11/12/arts/television/jimmy-kimmel-qanon-shaman-sentence.html?searchResultPosition=1
 
 **Word of the Day: savoir faire**\
 `This term has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
