@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/12/us/politics/robert-califf-fda.html?searchResultPo
 
 **Bruno Mars and Anderson .Paak Revisit Vintage Luxury as Silk Sonic**\
 `The duo gleefully reverse-engineers the analog-era sophistication of 1970s R&B on a new album, “An Evening With Silk Sonic.”`\
-https://nytimes.com/2021/11/12/arts/music/silk-sonic-an-evening-with-silk-sonic-review.html?searchResultPosition=9
+https://nytimes.com/2021/11/12/arts/music/silk-sonic-bruno-mars.html?searchResultPosition=9
 
 **John Kerry says fossil fuel subsidies are the ‘definition of insanity.’**\
 `He also defended new language in the latest draft of an agreement that appears to have watered down a push to curb fossil fuels.`\
