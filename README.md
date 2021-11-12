@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/12/briefing/pandemic-return-nomal-coronavirus.html?searchResultPosition=1
 
 **The Netherlands plans a partial lockdown regardless of vaccination status.**\
-`The country is experiencing case numbers not seen there since early in the pandemic.`\
+`The country is experiencing rising case numbers amid a fourth wave of infections.`\
 https://nytimes.com/2021/11/12/world/europe/covid-netherlands-lockdown.html?searchResultPosition=2
 
 **An Interview With Dr. Anthony Fauci**\
