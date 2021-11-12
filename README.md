@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/12/books/review/artists-best-illustrated-childrens-b
 
 **A Nike Executive Told of Once Killing a Man. Here’s What He Left Out.**\
 `Larry Miller has written a book revealing that at age 16, in 1965, he murdered someone. The disclosure blindsided the family of the victim, whose name he never mentioned.`\
-https://nytimes.com/2021/11/12/sports/a-nike-executive-told-of-once-killing-a-man-heres-what-he-left-out.html?searchResultPosition=10
+https://nytimes.com/2021/11/12/sports/larry-miller-nike.html?searchResultPosition=10
 
