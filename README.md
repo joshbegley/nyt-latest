@@ -1,6 +1,6 @@
 **Husband of ‘Sweetheart Swindler’ Sentenced to 85 Years for Bilking Older People**\
 `Prosecutors said that Desiree Boltos and her husband, Paul Hill, stole more than $3 million from seniors who believed they were in romantic relationships with her.`\
-https://nytimes.com/2021/11/12/us/texas-couple-sweetheart-scam.html?searchResultPosition=1
+https://nytimes.com/2021/11/12/us/sweetheart-swindler-sentenced.html?searchResultPosition=1
 
 **The First English Translation of Hayao Miyazaki’s Favorite Childhood Book**\
 `Genzaburo Yoshino’s novel “How Do You Live?” may be the basis for the award-winning animator’s final film.`\
