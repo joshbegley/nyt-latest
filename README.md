@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/12/opinion/biden-foreign-policy.html?searchResultPos
 
 **Biden and China’s Xi Will Hold Virtual Summit on Monday**\
 `The leaders of the world’s two largest economies confront tensions over trade, cyberthreats, the climate, Taiwan and human rights.`\
-https://nytimes.com/2021/11/12/us/politics/biden-china-xi-summit.html?searchResultPosition=10
+https://nytimes.com/2021/11/12/us/politics/biden-china-xi-jinping.html?searchResultPosition=10
 
