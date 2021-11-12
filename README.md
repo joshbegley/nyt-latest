@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/12/dining/one-pan-chicken-weeknight-recipe.html?sear
 
 **It’s Time to Get Honest About the Biden Doctrine**\
 `Twentieth-century frameworks, paradigms and doctrines, of any kind, are  insufficient to meet the challenges of the 21st century. `\
-https://nytimes.com/2021/11/12/opinion/its-time-to-get-honest-about-the-biden-doctrine.html?searchResultPosition=8
+https://nytimes.com/2021/11/12/opinion/biden-foreign-policy.html?searchResultPosition=8
 
 **Biden and China’s Xi Will Hold Virtual Summit on Monday**\
 `The leaders of the world’s two largest economies confront tensions over trade, cyberthreats, the climate, Taiwan and human rights.`\
