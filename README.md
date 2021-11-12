@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/12/business/helene-fortunoff-dead.html?searchResultP
 `Prolonged rain in most of Oregon and southern Washington State caused severe flooding in the region, prompting a rescue of 50 people who were stranded in a recreational vehicle park near the Oregon coast.`\
 https://nytimes.com/video/us/100000008074575/oregon-rain-flooding-evacuations.html?searchResultPosition=9
 
-**Bannon Indicted on Contempt Charges Over House Investigation of Capitol Riot**\
+**Bannon Indicted on Contempt Charges Over House’s Capitol Riot Inquiry**\
 `Stephen K. Bannon, a former top aide to Donald Trump, had refused to comply with subpoenas from the House committee investigating the Jan. 6 attack on Congress.`\
 https://nytimes.com/2021/11/12/us/politics/bannon-indicted.html?searchResultPosition=10
 
