@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/12/world/europe/lukashenko-putin-belarus-russia.html
 
 **In France, Kamala Harris Asserts Herself as a Diplomatic Asset**\
 `The vice president met with President Emmanuel Macron of France, skirting recent U.S.-French tensions, and immersed herself in issues like Libya and cybersecurity.`\
-https://nytimes.com/2021/11/12/us/politics/in-france-kamala-harris-asserts-herself-as-a-diplomatic-asset.html?searchResultPosition=10
+https://nytimes.com/2021/11/12/us/politics/kamala-harris-macron-france.html?searchResultPosition=10
 
