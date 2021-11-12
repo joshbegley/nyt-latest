@@ -20,7 +20,7 @@ https://nytimes.com/video/us/100000008073930/rittenhouse-trial-judge-schroeder-p
 
 **Murkowski Announces Re-election Bid, Setting up Clash With Trump**\
 `Of the seven Republicans who found former President Donald J. Trump guilty in his second impeachment trial, the Alaska senator is the only one facing re-election this year.`\
-https://nytimes.com/2021/11/12/us/politics/murkowski-announces-re-election-bid-setting-up-clash-with-trump.html?searchResultPosition=6
+https://nytimes.com/2021/11/12/us/politics/murkowski-re-election-bid.html?searchResultPosition=6
 
 **Review: The Cellist Sheku Kanneh-Mason Makes an Entrance**\
 `A young star made his New York Philharmonic debut in an evening of bold, charismatic musical storytelling.`\
