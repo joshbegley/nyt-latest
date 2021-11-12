@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/12/books/review/dan-yaccarino-the-longest-storm.html
 
 **Julian Assange to Wed in Prison in Britain**\
 `The WikiLeaks founder, who is battling extradition to the United States on espionage charges, has been granted permission to marry Stella Moris in the London prison where he has been held since 2019.`\
-https://nytimes.com/2021/11/12/world/europe/julian-assange-wedding.html?searchResultPosition=2
+https://nytimes.com/2021/11/12/world/europe/julian-assange-stella-moris-marriage.html?searchResultPosition=2
 
 **‘I Don’t Know What a Carrie Is’: Candace Bushnell Works It Out Onstage**\
 `The writer maps her life in a one-woman show, “Is There Still Sex in the City?,” beginning previews this weekend at the Daryl Roth Theater.`\
