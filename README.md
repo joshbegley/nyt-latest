@@ -1,40 +1,40 @@
+**Murkowski Announces Re-election Bid, Setting up Clash With Trump**\
+`Of the seven Republicans who found former President Donald J. Trump guilty in his second impeachment trial, the Alaska senator is the only one facing re-election this year.`\
+https://nytimes.com/2021/11/12/us/politics/murkowski-announces-re-election-bid-setting-up-clash-with-trump.html?searchResultPosition=1
+
+**Review: The Cellist Sheku Kanneh-Mason Makes an Entrance**\
+`A young star made his New York Philharmonic debut in an evening of bold, charismatic musical storytelling.`\
+https://nytimes.com/2021/11/12/arts/music/sheku-kanneh-mason-new-york-philharmonic.html?searchResultPosition=2
+
+**Five Horror Movies to Stream Now**\
+`This month’s picks include mutants in love and mushrooms out for blood.`\
+https://nytimes.com/2021/11/12/movies/horror-movies-streaming.html?searchResultPosition=3
+
+**Fashionably Late to the Climate Crisis**\
+`How do you fix the fashion industry? This sustainability expert has a few ideas.`\
+https://nytimes.com/2021/11/12/business/sustainable-fashion.html?searchResultPosition=4
+
+**‘Be Nice to Tourists’: New York’s Arts Scene Needs International Visitors**\
+`The United States now allows vaccinated international travelers into the country. It’s welcome news for arts institutions that lost revenue and cut jobs during the pandemic.`\
+https://nytimes.com/2021/11/12/arts/design/new-york-international-tourists.html?searchResultPosition=5
+
+**In Border Crisis, Europe’s Unsavory Migration Deals Come Home**\
+`Europe has long paid other nations to keep refugees away from its borders. Now, Belarus wants something, too, and has brought migrants right to Europe’s door to get it.`\
+https://nytimes.com/2021/11/12/world/asia/migration-eu-poland-belarus.html?searchResultPosition=6
+
 **This 18-Year-Old May Be the Key to America’s World Cup Hopes**\
 `Ricardo Pepi has played only four games for the U.S., but he provides the one thing his team needs most: goals.`\
-https://nytimes.com/2021/11/12/sports/soccer/usa-mexico-world-cup-pepi.html?searchResultPosition=1
+https://nytimes.com/2021/11/12/sports/soccer/usa-mexico-world-cup-pepi.html?searchResultPosition=7
 
 **A Different Kind of California Dreaming**\
 `In Gayle Forman’s “Frankie & Bug,” a bittersweet coming-of-age novel, late-1980s Venice Beach is a living, breathing character.`\
-https://nytimes.com/2021/11/12/books/review/gayle-forman-frankie-and-bug.html?searchResultPosition=2
+https://nytimes.com/2021/11/12/books/review/gayle-forman-frankie-and-bug.html?searchResultPosition=8
 
 **Who Was Beatrix Potter?**\
 `The illustrator Joana Avillez delves into the life story of one of her favorite children’s book authors, creator of Peter Rabbit.`\
-https://nytimes.com/2021/11/12/books/who-was-beatrix-potter.html?searchResultPosition=3
+https://nytimes.com/2021/11/12/books/who-was-beatrix-potter.html?searchResultPosition=9
 
 **Tales That Linger in Your Mind and Take up Residency in Your Soul**\
 `Our crime fiction columnist assesses three riveting new novels and an emotionally devastating short-story collection.`\
-https://nytimes.com/2021/11/12/books/review/new-crime-fiction.html?searchResultPosition=4
-
-**Here’s the Secret to the Best Mashed Potatoes for Thanksgiving**\
-`You’ve tried boiling, but Genevieve Ko found a better way to make this side dish fluffier — and more flavorful.`\
-https://nytimes.com/2021/11/12/dining/best-mashed-potatoes-recipe.html?searchResultPosition=5
-
-**Ethiopian Civil War Sparks Rancorous Debate over Immigration to Israel**\
-`Thousands of relatives of the remnants of Ethiopian Jewry are waiting to be airlifted to Israel. For now, the Israeli government sees no urgency.`\
-https://nytimes.com/2021/11/12/world/middleeast/israel-ethiopia-jews-immigration.html?searchResultPosition=6
-
-**Like Riding a Bike: A Middle Grade Novel Asks, What if We Do Forget How?**\
-`In Alejandra Algorta’s “Neverforgotten,” illustrated by Iván Rickenmann, a baker’s son loses trust in himself, and has to gain it back.`\
-https://nytimes.com/2021/11/12/books/review/alejandra-algorta-ivan-rickenmann-neverforgotten.html?searchResultPosition=7
-
-**The number of workers quitting their jobs in September was the highest on record.**\
-`Nearly a million workers quit in leisure and hospitality businesses alone, reflecting the competition for workers after pandemic-induced shutdowns.`\
-https://nytimes.com/2021/11/12/business/jobs-labor-openings-quit.html?searchResultPosition=8
-
-**To Keep Ohtani Happy, the Angels Have a Simple Directive: Win**\
-`With Shohei Ohtani issuing what felt like an ultimatum, and Mike Trout’s prime fleeting, Perry Minasian has his work cut out for him to build around his superstars.`\
-https://nytimes.com/2021/11/12/sports/baseball/shohei-ohtani-angels.html?searchResultPosition=9
-
-**The Weekender**\
-`A revolution that may solve chronic pain. Also in this edition: the secret to a better green salad and how to buy nothing new this holiday season.`\
-https://nytimes.com/interactive/2021/11/12/briefing/the-weekender.html?searchResultPosition=10
+https://nytimes.com/2021/11/12/books/review/new-crime-fiction.html?searchResultPosition=10
 
