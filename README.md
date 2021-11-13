@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/13/world/africa/sudan-protests.html?searchResultPosi
 `Co-op boards sometimes struggle to balance safety in their buildings and the needs of their older or disabled residents, but they’re required to try.`\
 https://nytimes.com/2021/11/13/realestate/accommodations-disabled-nyc-buildings.html?searchResultPosition=3
 
-**Chris Christie Wants the Post-Trump G.O.P. to Move Past Trump**\
+**Chris Christie Wants the Post-Trump G.O.P. to Move Past 2020**\
 `In a new book and in an interview, Mr. Christie says that if the former president wants to be a positive force, “he’s got to let this other stuff go.”`\
 https://nytimes.com/2021/11/13/us/politics/chris-christie-book-interview.html?searchResultPosition=4
 
