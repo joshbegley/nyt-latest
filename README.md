@@ -1,4 +1,4 @@
-**6 takeaways from the U.N. climate conference**\
+**6 takeaways from the U.N. climate conference.**\
 `After running a day past its scheduled end date, COP26 ended with a signed agreement, though many called it disappointing.`\
 https://nytimes.com/2021/11/13/climate/cop26-climate-summit-takeaways.html?searchResultPosition=1
 
