@@ -14,7 +14,7 @@ https://nytimes.com/2021/11/13/us/rittenhouse-arbery-self-defense.html?searchRes
 `The military never conducted an independent investigation into a 2019 bombing on the last bastion of the Islamic State, despite concerns about a secretive commando force.`\
 https://nytimes.com/2021/11/13/us/us-airstrikes-civilian-deaths.html?searchResultPosition=4
 
-**In Glasgow, a Global Climate Agreement Is Within Reach**\
+**In Glasgow, a Global Climate Agreement Appears Within Reach**\
 `After two weeks of negotiations, nearly 200 countries are nearing a deal that negotiators described as an imperfect compromise.`\
 https://nytimes.com/2021/11/13/climate/glasgow-climate-cop26.html?searchResultPosition=5
 
