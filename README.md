@@ -1,4 +1,4 @@
-**Portugal bars employers from contacting workers off hours and requires other protections.**\
+**Portugal bars companies from contacting employees off hours and requires other protections for remote work.**\
 `A new law, passed on Friday and in effect this weekend, is one of the world’s boldest efforts to regulate the remote work that the pandemic forced on many in the industrialized world.`\
 https://nytimes.com/2021/11/13/world/europe/portugal-remote-work-law-pandemic.html?searchResultPosition=1
 
