@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/13/style/sam-asghari-britney-spears.html?searchResul
 
 **For Terminal Patients, the Barrier to Aid in Dying Can Be a State Line**\
 `Complex restrictions are preventing patients from accessing medical aid in dying, even in states where it is allowed. New legal and legislative efforts are pushing to change that.`\
-https://nytimes.com/2021/11/13/science/death-dying-dignity.html?searchResultPosition=10
+https://nytimes.com/2021/11/13/health/death-dying-dignity.html?searchResultPosition=10
 
