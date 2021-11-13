@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/13/sports/tennis/jane-brown-grimes-dead.html?searchR
 
 **Negotiators Strike a Climate Deal, but World Remains Far From Limiting Warming**\
 `Some activists called the agreement in Glasgow disappointing, but it establishes a clear consensus that all countries need to do much more.`\
-https://nytimes.com/2021/11/13/climate/glasgow-climate-agreement.html?searchResultPosition=2
+https://nytimes.com/2021/11/13/climate/cop26-glasgow-climate-agreement.html?searchResultPosition=2
 
 **Kaiser Permanente Reaches Tentative Deal With Unions, Averting Strike**\
 `More than 30,000 West Coast workers at the health care provider had planned to go on strike on Monday.`\
