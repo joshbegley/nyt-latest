@@ -30,11 +30,11 @@ https://nytimes.com/2021/11/13/us/rittenhouse-arbery-self-defense.html?searchRes
 `The military never conducted an independent investigation into a 2019 bombing on the last bastion of the Islamic State, despite concerns about a secretive commando force.`\
 https://nytimes.com/2021/11/13/us/us-airstrikes-civilian-deaths.html?searchResultPosition=8
 
-**In Glasgow, a Global Climate Agreement Appears Within Reach**\
-`After two weeks of negotiations, nearly 200 countries are nearing a deal that negotiators described as an imperfect compromise.`\
-https://nytimes.com/2021/11/13/climate/glasgow-climate-cop26.html?searchResultPosition=9
-
 **India Wants to Send Wheat to Ease Afghan Hunger Crisis. Pakistan Has Yet to OK Transit.**\
 `Indian officials say Islamabad is dragging its feet on a request of transit for 50,000 tons of wheat to Afghanistan, where nine million people are on the brink of starvation.`\
-https://nytimes.com/2021/11/13/world/asia/india-pakistan-afghanistan-wheat.html?searchResultPosition=10
+https://nytimes.com/2021/11/13/world/asia/india-pakistan-afghanistan-wheat.html?searchResultPosition=9
+
+**Deere Reaches Third Tentative Deal With Union in Attempt to End Strike**\
+`About 10,000 workers primarily in Iowa and Illinois have been out since Oct. 14. They rejected two previous contract proposals negotiated by the United Automobile Workers.`\
+https://nytimes.com/2021/11/13/business/john-deere-strike-union.html?searchResultPosition=10
 
