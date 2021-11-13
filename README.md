@@ -1,5 +1,5 @@
 **India Wants to Send Wheat to Ease Afghan Hunger Crisis. Pakistan Has Yet to OK Transit.**\
-`Indian officials say Islamabad is dragging its feet on a request of transit for 50,000 tons of wheat to Afghanistan, where nine million people are on brink of starvation.`\
+`Indian officials say Islamabad is dragging its feet on a request of transit for 50,000 tons of wheat to Afghanistan, where nine million people are on the brink of starvation.`\
 https://nytimes.com/2021/11/13/world/asia/india-pakistan-afghanistan-wheat.html?searchResultPosition=1
 
 **Deere Reaches Third Tentative Deal With Union in Attempt to End Strike**\
