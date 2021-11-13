@@ -26,15 +26,15 @@ https://nytimes.com/2021/11/13/world/middleeast/belarus-migrants-iraq-kurds.html
 `As housing prices soar in big cities, the country’s eastern provinces are experiencing a surge in migration. Newcomers are being welcomed, but some locals are wary.`\
 https://nytimes.com/2021/11/13/world/canada/newfoundland-migrants.html?searchResultPosition=7
 
+**‘They See Us as the Enemy’: School Nurses Battle Covid-19, and Angry Parents**\
+`School nurses, who were already stretched thin before the pandemic, say that they are overworked and overwhelmed.`\
+https://nytimes.com/2021/11/13/health/coronavirus-school-nurses.html?searchResultPosition=8
+
 **Starting a Business With Your 401(k)? Be Careful.**\
 `As an aspiring entrepreneur, you may have a good idea, but tread lightly before using retirement savings as capital.`\
-https://nytimes.com/2021/11/13/business/401k-starting-a-business.html?searchResultPosition=8
+https://nytimes.com/2021/11/13/business/401k-starting-a-business.html?searchResultPosition=9
 
 **‘Alpha,’ by David Philipps: A Navy SEAL’s Behavior Worried Teammates and Changed How They Fought**\
 `In a new book, a Times reporter details the SEALs culture that fostered Eddie Gallagher’s rise and sheds new light on the events that led to his trial (and acquittal) in a polarizing war crimes case.`\
-https://nytimes.com/2021/11/13/books/eddie-gallagher-alpha-excerpt.html?searchResultPosition=9
-
-**‘They See Us as the Enemy’: School Nurses Battle Covid-19, and Angry Parents**\
-`School nurses, who were already stretched thin before the pandemic, say that they are overworked and overwhelmed.`\
-https://nytimes.com/2021/11/13/health/coronavirus-school-nurses.html?searchResultPosition=10
+https://nytimes.com/2021/11/13/books/eddie-gallagher-alpha-excerpt.html?searchResultPosition=10
 
