@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/13/opinion/why-i-cant-quit-extreme-workouts.html?sea
 
 **For Meghan, an Image Rendered in a U.K.-U.S. Split Screen**\
 `She has re-emerged in America as a formidable A-list celebrity and social activist. In Britain, however, Meghan remains a polarizing figure.`\
-https://nytimes.com/2021/11/13/world/europe/meghan-uk-tabloids.html?searchResultPosition=4
+https://nytimes.com/2021/11/13/world/europe/meghan-markle-uk-tabloids.html?searchResultPosition=4
 
 **What’s in Chris Christie’s New Book? **\
 `I recently interviewed Chris Christie, who has a book coming out. Here are the most interesting parts.`\
