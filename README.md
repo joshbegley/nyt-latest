@@ -1,5 +1,5 @@
 **From ‘Alive Among the Dead,’ to ‘Dead Among the Living’**\
-`The trauma of the 2015 terrorist attacks in Paris, and their painful aftermath, were highlighted in testimony by survivors and members of bereaved families at a trial of 20 men accused of involvement.`\
+`The trauma of the 2015 terrorist attacks in Paris was highlighted in testimony by survivors and others at a trial of 20 men accused of involvement.`\
 https://nytimes.com/2021/11/13/world/europe/france-2015-attacks-trial-victims.html?searchResultPosition=1
 
 **Migrants Say Belarusians Took Them to E.U. Border and Supplied Wire Cutters**\
