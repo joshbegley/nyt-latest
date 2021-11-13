@@ -23,7 +23,7 @@ https://nytimes.com/2021/11/13/us/premature-baby-guinness-record.html?searchResu
 https://nytimes.com/2021/11/13/sports/tennis/jane-brown-grimes-dead.html?searchResultPosition=6
 
 **Negotiators Strike a Climate Deal, but World Remains Far From Limiting Warming**\
-`Some activists called the agreement in Glasgow disappointing, but it establishes a clear consensus that all countries need to do much more.`\
+`Some activists called the agreement in Glasgow disappointing, but it established a clear consensus that all countries need to do much more.`\
 https://nytimes.com/2021/11/13/climate/cop26-glasgow-climate-agreement.html?searchResultPosition=7
 
 **Kaiser Permanente Reaches Tentative Deal With Unions, Averting Strike**\
