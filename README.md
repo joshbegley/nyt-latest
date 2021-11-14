@@ -10,8 +10,8 @@ https://nytimes.com/2021/11/14/world/middleeast/belarus-mideast-air-route.html?s
 `Rodgers faced a mandatory 10-day isolation period after testing positive for the coronavirus. The quarterback has not been vaccinated and has shared baseless claims about vaccines.`\
 https://nytimes.com/2021/11/14/sports/football/aaron-rodgers-covid-nfl.html?searchResultPosition=3
 
-**‘Frustrated’ with federal regulators, Colorado’s governor says adults should get boosters as soon as timing allows.**\
-`Federal regulators are considering a request to expand eligibility of Pfizer-BioNTech’s coronavirus vaccine boosters to all adults, but three states recently decided to broaden access anyway.`\
+**Colorado’s governor says he is ‘frustrated’ with federal regulators about booster eligibility.**\
+`Federal regulators are considering a request to make all adults eligible for Pfizer-BioNTech’s Covid boosters. Colorado and two other states decided to broaden access anyway.`\
 https://nytimes.com/2021/11/14/health/colorado-polis-booster-shots.html?searchResultPosition=4
 
 **The Impact of the Browning of America on Anti-Blackness**\
