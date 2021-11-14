@@ -14,7 +14,7 @@ https://nytimes.com/2021/11/14/obituaries/etel-adnan-dead.html?searchResultPosit
 `Hoping to stem the flow of migrants stuck on the border of Belarus and Poland, Dubai banned Iraqi and Syrian passengers from traveling to Minsk.`\
 https://nytimes.com/2021/11/14/world/middleeast/belarus-mideast-air-route.html?searchResultPosition=4
 
-**Aaron Rodgers is set to play on Sunday after his Covid-19 isolation.**\
+**Aaron Rodgers returned to the field on Sunday after his Covid-19 isolation.**\
 `Rodgers faced a mandatory 10-day isolation period after testing positive for the coronavirus. The quarterback has not been vaccinated and has shared baseless claims about vaccines.`\
 https://nytimes.com/2021/11/14/sports/football/aaron-rodgers-covid-nfl.html?searchResultPosition=5
 
