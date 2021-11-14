@@ -1,6 +1,6 @@
 **How My Faith Shapes My View of Racism and History**\
 `White Christians should not shy away from the truth about our past`\
-https://nytimes.com/2021/11/14/opinion/how-my-faith-shapes-my-view-of-racism-and-history.html?searchResultPosition=1
+https://nytimes.com/2021/11/14/opinion/christian-faith-racism-us-history.html?searchResultPosition=1
 
 **At Least 1 Dead After Quakes Strike Southern Iran**\
 `Two moderate temblors hit Hormozgan Province on Sunday afternoon, state TV reported.`\
