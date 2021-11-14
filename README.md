@@ -30,8 +30,8 @@ https://nytimes.com/2021/11/14/podcasts/the-daily/untold-story-of-sushi-sunday-r
 `Here’s what you need to know about the week’s top stories.`\
 https://nytimes.com/2021/11/14/briefing/climate-deal-rittenhouse-trial-pies-your-weekend-briefing.html?searchResultPosition=8
 
-**Crunch at Ports May Mean Crisis for Family Farms**\
-`Backlogs and cancellations are hitting American growers as costs rise, profits slump and overseas customers shop elsewhere.`\
+**Crunch at Ports May Mean Crisis for American Farms**\
+`Backlogs and cancellations are hitting growers as costs rise, profits slump and overseas customers shop elsewhere.`\
 https://nytimes.com/2021/11/14/business/economy/farm-exports-supply-chain-ports.html?searchResultPosition=9
 
 **The String of ISIS Attacks That Killed Three Generations of One Afghan Family**\
