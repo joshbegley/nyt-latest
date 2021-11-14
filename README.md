@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/14/us/npr-petra-mayer-dead.html?searchResultPosition
 https://nytimes.com/2021/11/14/nyregion/brooklyn-eric-adams-elections.html?searchResultPosition=2
 
 **Taxi Explodes Outside Liverpool Hospital, Killing One**\
-`The cause of the explosion, which injured a second person, was not immediately clear. The investigation was being led by Counter Terrorism Policing North West with support from the local police.`\
+`Three men in their twenties were arrested under Britain’s Terrorism Act several hours after the explosion, in which a second person was injured, the authorities said.`\
 https://nytimes.com/2021/11/14/world/europe/liverpool-hospital-car-explosion.html?searchResultPosition=3
 
 **Qaddafi Son to Run for President in Libya**\
