@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/14/world/middleeast/libya-president-qaddafi.html?sea
 https://nytimes.com/2021/11/14/world/middleeast/afghan-university-students-iraq.html?searchResultPosition=2
 
 **‘Ghost Guns’: Firearm Kits Bought Online Fuel Epidemic of Violence**\
-`They are untraceable and can be ordered with a click by children, gang members and felons. The Biden administration is trying to crack down, but law enforcement officials believe the problem may be here to stay.`\
+`They are untraceable, assembled from parts and can be ordered by gang members, felons and even children. They are increasingly the lethal weapon of easy access around the U.S., but especially California.`\
 https://nytimes.com/2021/11/14/us/ghost-guns-homemade-firearms.html?searchResultPosition=3
 
 **Do Religion and Science Clash or Coexist?**\
