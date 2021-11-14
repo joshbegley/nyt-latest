@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/13/sports/football/sam-huff-dead.html?searchResultPo
 https://nytimes.com/2021/11/13/world/what-is-tromethamine-tris.html?searchResultPosition=2
 
 **Baylor Punctures Oklahoma’s College Football Playoff Hopes**\
-`The Sooners faced a 7-2 Baylor team that they’d beaten seven straight times. But instead of capturing a needed win, Baylor handed Oklahoma a 27-14 loss.`\
+`The Sooners faced a 7-2 Baylor team that they’d beaten seven consecutive times. But instead of capturing a needed win, Baylor handed Oklahoma a 27-14 loss.`\
 https://nytimes.com/2021/11/13/sports/ncaafootball/baylor-oklahoma.html?searchResultPosition=3
 
 **Diplomats Reach Climate Agreement in Glasgow**\
