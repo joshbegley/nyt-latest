@@ -11,8 +11,8 @@ https://nytimes.com/2021/11/14/business/crypto-ukraine.html?searchResultPosition
 https://nytimes.com/2021/11/14/nyregion/metropolitan-diary.html?searchResultPosition=3
 
 **In Cuba, Desires for Food and Freedom May Spark a Rare Day of Protest**\
-`A young generation of dissidents,who rely on the internet to spread their ideas, are calling for a protest on Monday, a bold move with little precedent in Cuba.`\
-https://nytimes.com/2021/11/14/world/americas/in-cuba-desires-for-food-and-freedom-may-spark-a-rare-day-of-protest.html?searchResultPosition=4
+`Young dissidents who rely on the internet to spread their ideas are calling for a protest on Monday, a bold move with little precedent in Cuba.`\
+https://nytimes.com/2021/11/14/world/americas/cuba-protest.html?searchResultPosition=4
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
