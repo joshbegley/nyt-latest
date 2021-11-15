@@ -14,7 +14,7 @@ https://nytimes.com/2021/11/15/world/americas/cuba-protests.html?searchResultPos
 `The conflict between rebels and the country’s government has already featured numerous alleged atrocities, and experts say it threatens the stability of all of East Africa.`\
 https://nytimes.com/2021/11/15/us/politics/blinken-africa-ethiopia.html?searchResultPosition=4
 
-**Watch Live: Biden Signs Infrastructure Bill**\
+**Watch Live: Biden to Sign Infrastructure Bill**\
 `President Biden signs the $1 trillion infrastructure spending bill into law surrounded by lawmakers from both parties who backed the measure.`\
 https://nytimes.com/video/us/politics/100000008077423/infrastructure-bill-live.html?searchResultPosition=5
 
