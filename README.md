@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2021/11/15/world/middleeast/Afghan-students-in-i
 
 **Europe Toughens Rules for Unvaccinated as Fourth Covid Wave Swells**\
 `Austria took the hardest line yet on Monday, beginning a lockdown aimed exclusively at those who are not inoculated, part of a pattern to make life harder for resisters.`\
-https://nytimes.com/2021/11/15/world/europe/europe-austria-covid-lockdown-unvaccinated-restrictions.html?searchResultPosition=7
+https://nytimes.com/2021/11/15/world/europe/europe-vaccine.html?searchResultPosition=7
 
 **12 Wines for Thanksgiving and Beyond**\
 `The characteristics that make a bottle great for the holiday work for just about any occasion. These wines not only taste good, they feel good.`\
