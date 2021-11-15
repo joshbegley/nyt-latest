@@ -18,8 +18,8 @@ https://nytimes.com/2021/11/14/us/politics/biden-mitch-landrieu-infrastructure.h
 `Mac Jones is leading the Patriots back into the A.F.C.’s elite and Tom Brady and the Buccaneers are winless so far this November.`\
 https://nytimes.com/2021/11/14/sports/football/nfl-week-10-scores.html?searchResultPosition=5
 
-**Faith Groups Push to Scrap New Mandates in Biden’s Child Care Plan**\
-`A nondiscrimination provision in the $1.85 trillion social policy bill could disqualify some religious organizations, which provide more than half of child care programs in the United States.`\
+**Faith Groups Push to Scrap Mandates in Biden’s Child Care Plan**\
+`A nondiscrimination provision in the $1.85 trillion social policy bill could disqualify some religious organizations, spurring a fight over who can benefit from President Biden’s landmark bill.`\
 https://nytimes.com/2021/11/14/us/politics/religious-groups-child-care.html?searchResultPosition=6
 
 **Japan’s Economy Shrinks, but Outlook Is Brighter as Virus Ebbs**\
