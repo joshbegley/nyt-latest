@@ -18,7 +18,7 @@ https://nytimes.com/2021/11/15/world/asia/duterte-philippines-election.html?sear
 `How health experts are thinking about the holidays.`\
 https://nytimes.com/2021/11/15/briefing/travel-coronavirus-holidays-thanksgiving.html?searchResultPosition=5
 
-**Shell Proposes Shift to Britain, Dropping ‘Royal Dutch’ From Name**\
+**Shell proposes a shift to Britain, dropping ‘Royal Dutch’ from its name.**\
 `The restructuring is meant to make the company more appealing to investors and make it easier to sell assets, the oil giant said.`\
 https://nytimes.com/2021/11/15/business/shell-britain-move.html?searchResultPosition=6
 
