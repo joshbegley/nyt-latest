@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/15/podcasts/the-daily/us-airstrike-casualties-isis.h
 
 **U.S. Journalist Danny Fenster Is Freed From Myanmar Prison**\
 `The release was a rare positive development in the country, which has been torn apart by violence since a February coup.`\
-https://nytimes.com/2021/11/15/world/asia/myanmar-fenster-release.html?searchResultPosition=8
+https://nytimes.com/2021/11/15/world/asia/myanmar-danny-fenster-release.html?searchResultPosition=8
 
 **How Much Do You Know About St. Vincent and the Grenadines?**\
 `Can you find St. Vincent and the Grenadines on a map? What else do you know about this island nation with 110,000 people?`\
