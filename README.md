@@ -1,4 +1,4 @@
-**Shell proposes shift to Britain, dropping ‘Royal Dutch’ from name.**\
+**Shell Proposes Shift to Britain, Dropping ‘Royal Dutch’ From Name**\
 `The restructuring is meant to make the company more appealing to investors and make it easier to sell assets, the oil giant said.`\
 https://nytimes.com/2021/11/15/business/shell-britain-move.html?searchResultPosition=1
 
