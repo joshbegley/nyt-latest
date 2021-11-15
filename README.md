@@ -6,8 +6,8 @@ https://nytimes.com/2021/11/15/business/wework-in-its-first-earnings-report-as-a
 `The jury in Kyle Rittenhouse’s homicide trial hears closing arguments. Mr. Rittenhouse has been charged with six criminal counts after he shot three men, killing two, during protests against police violence in Kenosha, Wis.`\
 https://nytimes.com/video/us/100000008072862/rittenhouse-trial-live-video.html?searchResultPosition=2
 
-**Austria’s lockdown of the unvaccinated goes into effect.**\
-`The restrictions were the toughest of a wave of new rules in Europe, which the W.H.O. has said is “back at the epicenter of the pandemic.”`\
+**Austria’s new lockdown applies only to the unvaccinated.**\
+`The restrictions were among the toughest of a wave of new rules in Europe, which the W.H.O. has said is “back at the epicenter of the pandemic.”`\
 https://nytimes.com/2021/11/15/world/europe/austria-lockdown-unvaccinated-covid.html?searchResultPosition=3
 
 **What New Yorkers Need to Know About Tornadoes**\
