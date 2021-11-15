@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/15/climate/biden-bans-drilling-chaco-canyon.html?sea
 `Programs incentivizing children ages 5 to 11 to get inoculated have proliferated since the C.D.C. recommended a coronavirus vaccine for them this month.`\
 https://nytimes.com/2021/11/15/us/covid-vaccine-children-kids.html?searchResultPosition=9
 
-**Driver’s Actions Praised After Taxi Blast Outside Hospital in England**\
-`The explosion in Liverpool left one man dead and the cabby wounded. Officials said the driver prevented further harm, but did not give more details.`\
+**Taxi Blast Outside U.K. Hospital Is Declared a Terrorist Act**\
+`Local leaders praised the cabby as a hero, saying that he may have prevented a bigger calamity. He escaped the burning vehicle and locked the doors, trapping a passenger carrying the explosives inside.`\
 https://nytimes.com/2021/11/15/world/europe/uk-taxi-explosion-liverpool.html?searchResultPosition=10
 
