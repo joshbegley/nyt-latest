@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/15/sports/hockey/new-york-islanders.html?searchResul
 https://nytimes.com/2021/11/15/opinion/letters/violence-threats-republicans.html?searchResultPosition=4
 
 **British Police Declare Taxi Explosion Outside Hospital a Terrorist Act**\
-`The police said they determined a blast in a taxi outside a Liverpool, England, women’s hospital was caused by an “improvised explosive device” assumed to have been built by the passenger, who was killed. Four men were arrested in association with the attack.`\
+`The police determined that a blast in a taxi outside of a hospital in Liverpool, England, was caused by an “improvised explosive device.” The passenger was killed, and four men were arrested.`\
 https://nytimes.com/video/world/europe/100000008076919/liverpool-explosion-taxi-terrorist-act.html?searchResultPosition=5
 
 **These Afghan Students Found Refuge in Iraq**\
