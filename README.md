@@ -30,7 +30,7 @@ https://nytimes.com/2021/11/15/world/europe/europe-austria-covid-lockdown-unvacc
 `The characteristics that make a bottle great for the holiday work for just about any occasion. These wines not only taste good, they feel good.`\
 https://nytimes.com/2021/11/15/dining/drinks/thanksgiving-wine.html?searchResultPosition=8
 
-**Alex Jones Guilty by Default in All Sandy Hook Defamation Suits**\
+**Alex Jones Liable by Default in All Sandy Hook Defamation Suits**\
 `A Connecticut judge’s ruling combines with decisions in Texas to grant a clean sweep for families of shooting victims in their cases against the Infowars host.`\
 https://nytimes.com/2021/11/15/us/politics/alex-jones-sandy-hook.html?searchResultPosition=9
 
