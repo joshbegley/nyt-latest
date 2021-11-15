@@ -18,7 +18,7 @@ https://nytimes.com/2021/11/14/sports/football/nfl-week-10-scores.html?searchRes
 `A nondiscrimination provision in the $1.85 trillion social policy bill could disqualify some religious organizations, which provide more than half of child care programs in the United States.`\
 https://nytimes.com/2021/11/14/us/politics/religious-groups-child-care.html?searchResultPosition=5
 
-**Japan’s Economy Shrinks, but Outlook Is Warm as Virus Ebbs**\
+**Japan’s Economy Shrinks, but Outlook Is Brighter as Virus Ebbs**\
 `The coronavirus and supply chain issues stymied growth in the third quarter, but high vaccination rates and low numbers of virus cases point to a recovery.`\
 https://nytimes.com/2021/11/14/business/japan-economy.html?searchResultPosition=6
 
