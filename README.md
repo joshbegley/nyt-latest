@@ -22,7 +22,7 @@ https://nytimes.com/2021/11/15/business/wall-street-banks-china.html?searchResul
 `The lockdown, expected to last 10 days, requires those age 12 and older who are not vaccinated for Covid-19 or immune from a past infection to stay in their homes except for essential reasons, such as doctor visits or grocery shopping.`\
 https://nytimes.com/video/world/europe/100000008076859/austria-unvaccinated-lockdown.html?searchResultPosition=6
 
-**Bannon Turns Himself In on Contempt of Congress Charges**\
+**Bannon turns himself in on contempt of Congress charges.**\
 `The former aide to Donald Trump had refused to comply with a demand for information from the House committee investigating the Jan. 6 Capitol riot.`\
 https://nytimes.com/2021/11/15/us/politics/bannon-congress-trump-jan-6.html?searchResultPosition=7
 
