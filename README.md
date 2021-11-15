@@ -31,7 +31,7 @@ https://nytimes.com/2021/11/15/world/americas/cuba-protests.html?searchResultPos
 https://nytimes.com/2021/11/15/us/politics/blinken-africa-ethiopia.html?searchResultPosition=8
 
 **Watch Live: Biden to Sign Infrastructure Bill**\
-`President Biden signs the $1 trillion infrastructure spending bill into law surrounded by lawmakers from both parties who backed the measure.`\
+`President Biden is expected to sign the $1 trillion infrastructure spending bill into law surrounded by lawmakers from both parties who backed the measure.`\
 https://nytimes.com/video/us/politics/100000008077423/infrastructure-bill-live.html?searchResultPosition=9
 
 **How to Make Your Thanksgiving Dinner Less Boring**\
