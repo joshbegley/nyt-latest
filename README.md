@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/15/technology/alan-paller-dead.html?searchResultPosi
 https://nytimes.com/2021/11/15/world/middleeast/scorpion-plague-egypt.html?searchResultPosition=2
 
 **N.Y.C. Opens Coronavirus Booster Shot Access to All Adults**\
-`Dr. Dave A. Chokshi, New York City’s health commissioner, encouraged those 18 years or older who want to receive a Covid-19 booster to seek out the shot and asked health care providers not to turn them away.`\
+`Dr. Dave A. Chokshi, New York City’s health commissioner, encouraged those 18 years or older who want to receive a Covid-19 booster to seek out the shot if they meet timing rules, and asked health care providers not to turn them away.`\
 https://nytimes.com/video/nyregion/100000008077207/new-york-city-coronavirus-booster-access-adults.html?searchResultPosition=3
 
 **‘Medusa’s Ankles,’ a Selection of A.S. Byatt’s Wildly Imagined Stories Across Three Decades**\
