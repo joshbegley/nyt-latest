@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/15/climate/biden-bans-drilling-chaco-canyon.html?sea
 
 **Some U.S. states dangle cash and scholarships to get children vaccinated.**\
 `Programs incentivizing children ages 5 to 11 to get inoculated have proliferated since the C.D.C. recommended a coronavirus vaccine for them this month.`\
-https://nytimes.com/2021/11/15/us/kids-vaccination-incentives.html?searchResultPosition=3
+https://nytimes.com/2021/11/15/us/covid-vaccine-children-kids.html?searchResultPosition=3
 
 **Driver’s Actions Praised After Taxi Blast Outside Hospital in England**\
 `The explosion in Liverpool left one man dead and the cabby wounded. Officials said the driver prevented further harm, but did not give more details.`\
