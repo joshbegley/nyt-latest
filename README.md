@@ -27,7 +27,7 @@ https://nytimes.com/2021/11/15/business/shell-britain-move.html?searchResultPosi
 https://nytimes.com/2021/11/15/podcasts/the-daily/us-airstrike-casualties-isis.html?searchResultPosition=7
 
 **U.S. Journalist Danny Fenster Is Freed From Myanmar Prison**\
-`The release was a rare positive development in the country, which has been torn apart by violence since a February coup.`\
+`The release was a rare positive development in the country, which has been torn by violence since a February coup.`\
 https://nytimes.com/2021/11/15/world/asia/myanmar-danny-fenster-release.html?searchResultPosition=8
 
 **How Much Do You Know About St. Vincent and the Grenadines?**\
