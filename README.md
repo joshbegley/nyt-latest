@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/15/world/asia/us-china-tensions-explained.html?searc
 
 **Subway Fare Increase ‘Off the Table’ Thanks to Infrastructure Bill**\
 `Officials said that federal money, including the $1 trillion infrastructure bill, will help the M.T.A. keep fares stable for at least six months and avoid service cuts.`\
-https://nytimes.com/2021/11/15/nyregion/mta-fares-hike-subway-train.html?searchResultPosition=10
+https://nytimes.com/2021/11/15/nyregion/mta-train-subway-nyc.html?searchResultPosition=10
 
