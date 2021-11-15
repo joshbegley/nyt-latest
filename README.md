@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/15/us/politics/pat-leahy-senate-retire.html?searchRe
 https://nytimes.com/2021/11/15/theater/for-colored-girls-broadway.html?searchResultPosition=2
 
 **If Remote Work Empties Downtowns, Can Theaters Fill Their Seats?**\
-`Since the pandemic, San Francisco has embraced work-from-home policies. Now venues and concert halls are wondering if weeknight audiences are thing of the past.`\
+`Since the pandemic, San Francisco has embraced work-from-home policies. Now venues and concert halls are wondering if weeknight audiences are a thing of the past.`\
 https://nytimes.com/2021/11/15/arts/music/san-francisco-theaters-concert-halls.html?searchResultPosition=3
 
 **‘The Sex Lives of College Girls’ Pursues an Awkward Education**\
