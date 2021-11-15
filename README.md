@@ -1,4 +1,4 @@
-**We Need to Pay Attention to China’s Nuclear Build-Up**\
+**We Need to Pay Attention to China’s Nuclear Buildup**\
 `China is rapidly expanding its nuclear arsenal. Without U.S. and Chinese willingness to enter a clear dialogue, the results could be catastrophic.`\
 https://nytimes.com/2021/11/15/opinion/we-need-to-pay-attention-to-chinas-nuclear-build-up.html?searchResultPosition=1
 
