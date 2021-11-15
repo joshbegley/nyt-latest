@@ -1,6 +1,6 @@
 **Biden Got His Bipartisan Win. Now, Reality Sets In.**\
 `President Biden, who is facing low approval ratings, hopes the infrastructure bill will help him project sustained progress in confronting a surge in inflation and growing alarm about the midterm elections.`\
-https://nytimes.com/2021/11/15/us/politics/biden-infrastructure-victory.html?searchResultPosition=1
+https://nytimes.com/2021/11/15/us/politics/biden-approval-rating-infrastructure-bill.html?searchResultPosition=1
 
 **Infrastructure, Rittenhouse, Bannon: Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
