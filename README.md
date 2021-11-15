@@ -1,5 +1,5 @@
 **An empowered I.R.S. emerges as the linchpin of Biden’s social policy bill.**\
-`The Congressional Budget Office is expected to find that beefed up tax enforcement raises far less money than the White House projects.`\
+`The Congressional Budget Office is expected to find that beefed up tax enforcement would raise far less money than the White House projects.`\
 https://nytimes.com/2021/11/15/us/politics/irs-infrastructure-bill.html?searchResultPosition=1
 
 **Summer Walker Beats Abba’s First Album in Decades to No. 1**\
