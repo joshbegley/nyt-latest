@@ -1,4 +1,4 @@
-**New York’s governor urges broader group of adults to get booster based on risk.**\
+**New York’s governor urges a broader group of adults to get boosters based on risk.**\
 `Gov. Kathy Hochul encouraged people in areas with a high positivity rate or whose jobs pose a risk to get a booster, but stopped short of issuing new guidelines.`\
 https://nytimes.com/2021/11/16/nyregion/new-yorks-governor-urges-broader-group-of-adults-to-get-booster-based-on-risk.html?searchResultPosition=1
 
