@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/16/us/dc-mask-mandate-bowser.html?searchResultPositi
 
 **‘Red Notice’ is a hit? Oh, yes, says Netflix’s brand-new top 10 list.**\
 `A company that once guarded its viewership numbers closely is now going to release data weekly on its top shows and films.`\
-https://nytimes.com/2021/11/16/business/media/red-notice-is-a-hit-oh-yes-says-netflixs-brand-new-top-10-list.html?searchResultPosition=3
+https://nytimes.com/2021/11/16/business/media/netflix-top-10.html?searchResultPosition=3
 
 **Tiny Love Stories: ‘I Only Sort of Hope He’s Happy’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
@@ -19,7 +19,7 @@ https://nytimes.com/2021/11/16/style/tiny-modern-love-stories-i-only-sort-of-hop
 https://nytimes.com/2021/11/16/world/middleeast/gaza-university-israel-poet.html?searchResultPosition=5
 
 **The U.S. plans to buy enough of Pfizer’s Covid antiviral pill for 10 million people.**\
-`Pfizer on Tuesday asked the Food and Drug Administration to authorize its pill for unvaccinated people.`\
+`Pfizer on Tuesday asked the Food and Drug Administration to authorize its pill for high-risk, unvaccinated people.`\
 https://nytimes.com/2021/11/16/us/politics/biden-pfizer-covid-pill-purchase.html?searchResultPosition=6
 
 **John Edgar Wideman’s Art of Storytelling**\
