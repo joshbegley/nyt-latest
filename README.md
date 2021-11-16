@@ -1,4 +1,4 @@
-**The summit was virtual, but the locations carefully chosen.**\
+**The summit was virtual, but the locations were carefully chosen.**\
 `Each leader took the call in a room freighted with symbolic weight, as diplomatic protocol persists even in the coronavirus era.`\
 https://nytimes.com/2021/11/16/world/asia/china-biden-summit-roosevelt-room.html?searchResultPosition=1
 
