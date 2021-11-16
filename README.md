@@ -12,7 +12,7 @@ https://nytimes.com/paidpost/verizon-5g/when-headlines-come-to-life.html?searchR
 
 **New York’s governor urges a broader group of adults to get boosters based on risk.**\
 `Gov. Kathy Hochul encouraged people in areas with a high positivity rate or whose jobs pose a risk to get a booster, but stopped short of issuing new guidelines.`\
-https://nytimes.com/2021/11/16/nyregion/new-yorks-governor-urges-broader-group-of-adults-to-get-booster-based-on-risk.html?searchResultPosition=4
+https://nytimes.com/2021/11/16/nyregion/hochul-covid-booster-shot.html?searchResultPosition=4
 
 **Archdiocese of New Orleans to Pay $1 Million to Settle FEMA Fraud Claims**\
 `The archdiocese was accused of participating in inflated damage claims to the federal government after Hurricane Katrina.`\
