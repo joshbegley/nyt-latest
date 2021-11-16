@@ -1,40 +1,40 @@
-**Mission: Hebron**\
-`The director Rona Segal learned filmmaking in the Israel Defense Forces. Now she turns the camera on her fellow soldiers.`\
-https://nytimes.com/video/opinion/100000008020627/mission-hebron.html?searchResultPosition=1
+**Ghislaine Maxwell, Epstein’s Companion, Finally Goes on Trial**\
+`Jury selection is set to begin on Tuesday following a flurry of motions that began to bring the scope of the hotly anticipated trial into focus.`\
+https://nytimes.com/2021/11/16/nyregion/ghislaine-maxwell-jeffrey-epstein-trial.html?searchResultPosition=1
 
-**The Housing Crisis in the Bronx, Made Worse by the Pandemic**\
-`In a borough where unemployment is almost three times the national rate, thousands of renters are now threatened with eviction as state pandemic aid dwindles.`\
-https://nytimes.com/2021/11/16/nyregion/rent-relief-bronx.html?searchResultPosition=2
+**How to Spot a Shooting Star**\
+`You don’t need fancy equipment. Check the weather.`\
+https://nytimes.com/2021/11/16/magazine/shooting-star.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Thinking Hard About Their Hair’**\
-`In this lesson, students will learn about a hair trend made popular by young men on TikTok, and then explore what hair can tell us about who we are.`\
-https://nytimes.com/2021/11/16/learning/lesson-plans/lesson-of-the-day-thinking-hard-about-their-hair.html?searchResultPosition=3
+**How Far-Right Extremism Invaded Mainstream Politics**\
+`A historian of the white power movement discusses Jan. 6, Tucker Carlson and the threat of politically motivated violence.`\
+https://nytimes.com/2021/11/16/opinion/ezra-klein-podcast-kathleen-belew.html?searchResultPosition=3
 
-**What’s the Future of Outdoor Dining in New York?**\
-`As the city debates a plan to make outdoor dining permanent, vocal opposition is growing in affluent, restaurant-rich neighborhoods like the West Village.`\
-https://nytimes.com/2021/11/16/nyregion/outdoor-dining-nyc.html?searchResultPosition=4
+**What’s Your Favorite Local Business?**\
+`What’s great about it? How does it compare with chain stores that have locations in many places?`\
+https://nytimes.com/2021/11/16/learning/whats-your-favorite-local-business.html?searchResultPosition=4
 
-**How the Pandemic Worsened a Housing Crisis in the Bronx**\
-`In a New York City borough where residents have long struggled to afford their homes, thousands are now threatened with eviction as state pandemic aid dwindles.`\
-https://nytimes.com/2021/11/16/nyregion/bronx-housing-eviction-pandemic.html?searchResultPosition=5
+**How I Became Obsessed With Accidental Time Travel**\
+`The web is awash with ordinary peoples’ stories of “time slips.” Their real magic is what they can tell us about our relationship to time.`\
+https://nytimes.com/2021/11/16/magazine/time-slips-time-travel.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/16/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Neal Stephenson’s Mad, Mad, Mad, Mad World**\
+`“Termination Shock,” his latest novel, is set in a future gone haywire from the impacts of climate disaster.`\
+https://nytimes.com/2021/11/16/books/review/neal-stephenson-termination-shock.html?searchResultPosition=6
 
-**Harry Potter**\
-`Have you read all the books and seen all the films?`\
-https://nytimes.com/2021/11/16/learning/harry-potter.html?searchResultPosition=7
+**The True-Life Inspiration for Dostoyevsky’s Famous Murderer**\
+`The model for Raskolnikov, the tortured killer in the Russian author’s masterpiece “Crime and Punishment,” was a Frenchman who committed a double murder, Kevin Birmingham writes in “The Sinner and the Saint,” his portrait of Dostoyevsky and the making of the novel.`\
+https://nytimes.com/2021/11/16/books/review/the-sinner-and-the-saint-kevin-birmingham.html?searchResultPosition=7
 
-**Seth Meyers: Steve Bannon Fancies Himself to Be Logan Roy**\
-`Meyers said Bannon was more like “a coked-up flunky who would get hired to help cousin Greg shred some documents and accidentally screw it up.”`\
-https://nytimes.com/2021/11/16/arts/television/seth-meyers-steve-bannon-fancies-himself-to-be-logan-roy.html?searchResultPosition=8
+**The Cutting Mind and Romantic Heart of Elizabeth Hardwick**\
+`“A Splendid Intelligence,” by Cathy Curtis, is the first biography of the much admired critic and novelist.`\
+https://nytimes.com/2021/11/16/books/review/cathy-curtis-a-splendid-intelligence-the-life-of-elizabeth-hardwick.html?searchResultPosition=8
 
-**Word of the Day: conspicuous**\
-`This word has appeared in 166 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/11/16/learning/word-of-the-day-conspicuous.html?searchResultPosition=9
+**Seven Immigrant Women Who Changed the Way Americans Eat**\
+`“Taste Makers,” by Mayukh Sen, features women who, often while confronting sexism and racism in the food industry, introduced Americans to the dishes of their native cultures.`\
+https://nytimes.com/2021/11/16/books/review/taste-makers-mayukh-sen.html?searchResultPosition=9
 
-**Corrections: Nov. 16, 2021**\
-`Corrections that appeared in print on Tuesday, Nov. 16, 2021.`\
-https://nytimes.com/2021/11/16/pageoneplus/corrections-nov-16-2021.html?searchResultPosition=10
+**Bildungsromans From Around the World**\
+`New fiction by Elif Shafak, S.J. Sindu and Bisi Adjapon.`\
+https://nytimes.com/2021/11/16/books/review/blue-skinned-gods-sj-sindu-the-teller-of-secrets-bisi-adjapon-the-island-of-missing-trees-elif-shafak.html?searchResultPosition=10
 
