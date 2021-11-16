@@ -8,7 +8,7 @@ https://nytimes.com/video/us/politics/100000008079596/infrastructure-bill-biden-
 
 **New Year’s Eve Will Return to Times Square for Vaccinated Guests**\
 `The event will return at “full strength” after pared-back festivities last year, Mayor Bill de Blasio said. Attendees will have to show proof that they are fully vaccinated.`\
-https://nytimes.com/2021/11/16/nyregion/new-years-eve-times-square-return-vaccinated.html?searchResultPosition=3
+https://nytimes.com/2021/11/16/nyregion/new-years-eve-times-square.html?searchResultPosition=3
 
 **Polish Border Forces Use Water Cannons on Migrants**\
 `Hundreds of migrants, marooned in freezing weather on the Belarus side of the Poland-Belarus border, tried to rush into Poland. Polish border forces used water cannons and tear gas to drive them back.`\
