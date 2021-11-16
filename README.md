@@ -18,7 +18,7 @@ https://nytimes.com/2021/11/16/style/tiny-modern-love-stories-i-only-sort-of-hop
 `On social media, Refaat Alareer rages against Israel. In the lecture hall, he studiously analyzes the work of some of its leading poets — and surprises some of his students.`\
 https://nytimes.com/2021/11/16/world/middleeast/gaza-university-israel-poet.html?searchResultPosition=5
 
-**The U.S. plans to buy enough of Pfizer’s Covid antiviral pill for 10 million people.**\
+**The U.S. plans to buy enough of Pfizer’s Covid antiviral pills for 10 million people.**\
 `Pfizer on Tuesday asked the Food and Drug Administration to authorize its pill for high-risk, unvaccinated people.`\
 https://nytimes.com/2021/11/16/us/politics/biden-pfizer-covid-pill-purchase.html?searchResultPosition=6
 
