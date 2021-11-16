@@ -31,7 +31,7 @@ https://nytimes.com/2021/11/15/us/migrants-border-crossings.html?searchResultPos
 https://nytimes.com/2021/11/15/opinion/diversity-equity-inclusion.html?searchResultPosition=8
 
 **Terence Wilson, Key Part of Reggae Band UB40, Dies at 64**\
-`As Astro, he added a distinctive touch with rapped vocals to hits like “Red Red Wine” and “Can’t Help Falling in Love.”`\
+`As Astro, he added rapped vocals to hits like “Red Red Wine” and “Can’t Help Falling in Love.”`\
 https://nytimes.com/2021/11/15/arts/music/terence-wilson-astro-dead.html?searchResultPosition=9
 
 **Review: ‘Morning’s at Seven’ Awakens Again, Only to Hit Snooze**\
