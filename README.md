@@ -26,13 +26,13 @@ https://nytimes.com/2021/11/16/special-series/ppe-coronavirus-waste.html?searchR
 `Zalmay Khalilzad, who stepped down as the envoy for Afghanistan after the U.S. exit, has defended the deal he negotiated with the Taliban during the Trump administration.`\
 https://nytimes.com/2021/11/16/us/politics/zalmay-khalilzad-afghanistan-war.html?searchResultPosition=7
 
-**In Florida, a Gut Renovation in Shades of Grape**\
-`The overwrought moldings in their neo-Classical home had begun to feel stuffy, so they redid the whole thing — with an emphasis on food and wine.`\
-https://nytimes.com/2021/11/16/realestate/in-florida-a-gut-renovation-in-shades-of-grape.html?searchResultPosition=8
-
 **Racial Equity in Infrastructure, a U.S. Goal, Is Left to States**\
 `The decision about how to spend the money falls largely to state governments, raising questions about whether the package can live up to its ambition.`\
-https://nytimes.com/2021/11/16/us/politics/infrastructure-bill-racial-equity.html?searchResultPosition=9
+https://nytimes.com/2021/11/16/us/politics/infrastructure-bill-racial-equity.html?searchResultPosition=8
+
+**In Florida, a Gut Renovation in Shades of Grape**\
+`The overwrought moldings in their neo-Classical home had begun to feel stuffy, so they redid the whole thing — with an emphasis on food and wine.`\
+https://nytimes.com/2021/11/16/realestate/in-florida-a-gut-renovation-in-shades-of-grape.html?searchResultPosition=9
 
 **9 Wintry Wonderlands for New Cross-Country Skiers**\
 `Here’s a sampling of centers that offer a seamless introduction to cross-country skiing, with lessons, meticulously groomed trails and other activities nearby.`\
