@@ -3,7 +3,7 @@
 https://nytimes.com/video/arts/television/100000008078235/sesame-street-asian-american-muppet.html?searchResultPosition=1
 
 **Blue-Chip Art From Bitter Macklowe Divorce Brings $676 Million at Sotheby’s**\
-`The court-ordered sale signified the art market’s strong return from the pandemic. But the absence of artists of color and scarcity of women also symbolized collecting from the past.`\
+`A Sotheby’s executive called the court-ordered sale on Monday night “the most valuable single-owner auction ever staged.”`\
 https://nytimes.com/2021/11/15/arts/design/sothebys-macklowe-auction-rothko-warhol.html?searchResultPosition=2
 
 **Can’t Say Who**\
@@ -18,8 +18,8 @@ https://nytimes.com/video/us/politics/100000008078134/biden-xi-china-virtual-sum
 `The barrel of Mr. Rittenhouse’s rifle was too long, defense lawyers argued, to be in violation of a Wisconsin statute that says minors can’t possess dangerous weapons. His age was also a factor.`\
 https://nytimes.com/2021/11/15/us/kyle-rittenhouse-gun-charge.html?searchResultPosition=5
 
-**Arkansas opens boosters to all adults as federal regulators weigh expansion.**\
-`The state joins a growing list that are eager to get more adults eligible for an additional vaccine dose.`\
+**Some U.S. states aren’t waiting for the federal government to approve boosters for all adults.**\
+`Arkansas joined Colorado, New Mexico and California in making all adults eligible for an additional vaccine dose.`\
 https://nytimes.com/2021/11/15/us/arkansas-boosters-adults-covid.html?searchResultPosition=6
 
 **Unauthorized Migration Across the Mexico-U.S. Border Slips**\
