@@ -11,14 +11,14 @@ https://nytimes.com/2021/11/15/arts/design/sothebys-macklowe-auction-rothko-warh
 https://nytimes.com/2021/11/15/crosswords/daily-puzzle-2021-11-16.html?searchResultPosition=3
 
 **Biden Meets Xi at Virtual Summit**\
-`President Biden and Xi Jinping opened talks on a friendly note, with the Chinese leader calling President Biden “my old friend” and expressing his desire to move China-U.S. relations forward in a positive direction.`\
+`President Biden and Xi Jinping opened talks on a friendly note, with the Chinese leader expressing his desire to move China-U.S. relations forward in a positive direction.`\
 https://nytimes.com/video/us/politics/100000008078134/biden-xi-china-virtual-summit.html?searchResultPosition=4
 
 **Why Kyle Rittenhouse No Longer Faces a Gun Possession Charge**\
 `The barrel of Mr. Rittenhouse’s rifle was too long, defense lawyers argued, to be in violation of a Wisconsin statute that says minors can’t possess dangerous weapons. His age was also a factor.`\
 https://nytimes.com/2021/11/15/us/kyle-rittenhouse-gun-charge.html?searchResultPosition=5
 
-**Some U.S. states aren’t waiting for the federal government to approve boosters for all adults.**\
+**Some U.S. states aren’t waiting for the government to approve boosters for all adults.**\
 `Arkansas joined Colorado, New Mexico and California in making all adults eligible for an additional vaccine dose.`\
 https://nytimes.com/2021/11/15/us/arkansas-boosters-adults-covid.html?searchResultPosition=6
 
