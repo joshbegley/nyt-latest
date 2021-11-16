@@ -30,7 +30,7 @@ https://nytimes.com/2021/11/15/us/migrants-border-crossings.html?searchResultPos
 `Substantive change is hard. Telling people how to talk is easy.`\
 https://nytimes.com/2021/11/15/opinion/diversity-equity-inclusion.html?searchResultPosition=8
 
-**Terence Wilson, Key Part of the Reggae Band UB40, Dies at 64**\
+**Terence Wilson, Key Part of Reggae Band UB40, Dies at 64**\
 `His rapped vocals added a distinctive touch to hits like “Red Red Wine” and “Can’t Help Falling in Love.”`\
 https://nytimes.com/2021/11/15/arts/music/terence-wilson-astro-dead.html?searchResultPosition=9
 
