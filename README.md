@@ -1,6 +1,6 @@
 **Script Supervisor Sues Alec Baldwin and Others in ‘Rust’ Shooting**\
 `A lawsuit filed by the supervisor, Mamie Mitchell, said an injury or death on the set was “a likely result” of the production’s failure to follow safety protocols.`\
-https://nytimes.com/2021/11/17/movies/rust-script-supervisor-lawsuit.html?searchResultPosition=1
+https://nytimes.com/2021/11/17/movies/rust-lawsuit-mamie-mitchell.html?searchResultPosition=1
 
 **Risk for Leader of Belarus: Migrants He Lured May Want to Stay**\
 `President Aleksandr G. Lukashenko of Belarus, whom the E.U. accuses of engineering a migrant crisis on the border with Poland, could face a serious headache if asylum seekers try to stay in his country.`\
