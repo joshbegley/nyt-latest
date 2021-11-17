@@ -24,7 +24,7 @@ https://nytimes.com/2021/11/17/climate/climate-newsletter-deforestation.html?sea
 
 **Oklahoma Governor and Pentagon Standoff Over Vaccines Intensifies**\
 `The state says its National Guard members don’t need to get vaccinated. Pentagon officials say a failure to follow “valid medical readiness requirements” could “jeopardize” the status of troops.`\
-https://nytimes.com/2021/11/17/us/politics/oklahoma-guard-vaccine-mandate.html?searchResultPosition=7
+https://nytimes.com/2021/11/17/us/politics/oklahoma-vaccine-mandate.html?searchResultPosition=7
 
 **Belarus Shelters Hundreds of Migrants**\
 `Migrants have been placed in a warehouse along the Belarus-Poland border, after spending weeks camped out in fields. Between 2,000 and 4,000 migrants are at the border, many of them from Syria, Iraq and other parts of the Middle East.`\
