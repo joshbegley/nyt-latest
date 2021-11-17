@@ -1,4 +1,4 @@
-**Florida Professor, a Corruption Expert, Is Sentenced for Money Laundering**\
+**Professor Cited as Corruption Expert Is Sentenced for Money Laundering**\
 `A former University of Miami international studies professor used bank accounts in his name and the name of a company he created to launder about $2.5 million, prosecutors said.`\
 https://nytimes.com/2021/11/17/us/bruce-bagley-money-laundering-venezuela.html?searchResultPosition=1
 
