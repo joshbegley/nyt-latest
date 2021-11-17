@@ -2,7 +2,7 @@
 `Speaking from neighboring Kenya, Secretary of State Antony J. Blinken pressed for an end to a violent civil war in Ethiopia that has threatened to destabilize the region. He also urged Americans in Ethiopia to leave.`\
 https://nytimes.com/video/world/africa/100000008080624/blinken-ethiopia-conflict-africa-visit-kenya.html?searchResultPosition=1
 
-**U.S. Covid cases are increasing again**\
+**U.S. Covid Cases are Increasing Again**\
 `The latest news and data from the team tracking the coronavirus.`\
 https://nytimes.com/interactive/2021/11/17/us/virus-data-thanksgiving.html?searchResultPosition=2
 
