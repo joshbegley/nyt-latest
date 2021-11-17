@@ -11,7 +11,7 @@ https://nytimes.com/2021/11/17/us/catholic-bishops-biden-communion.html?searchRe
 https://nytimes.com/2021/11/17/opinion/what-if-your-kids-never-let-you-sleep-again.html?searchResultPosition=3
 
 **2 Men Convicted of Killing Malcolm X Will Be Exonerated After 55 Years**\
-`The convictions of the two men are expected to be thrown out after a lengthy investigation, validating long-held doubts about who killed the civil rights leader.`\
+`The 1966 convictions of the two men are expected to be thrown out after a lengthy investigation, validating long-held doubts about who killed the civil rights leader.`\
 https://nytimes.com/2021/11/17/nyregion/malcolm-x-killing-exonerated.html?searchResultPosition=4
 
 **She Shaped the Sound of ‘Cowboy Bebop,’ Again**\
