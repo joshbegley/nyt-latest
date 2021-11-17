@@ -12,7 +12,7 @@ https://nytimes.com/video/world/africa/100000008080623/blinken-kenya-africa-demo
 
 **As Gas Prices Surge, Biden Asks F.T.C. to Investigate ‘Illegal Conduct’**\
 `President Biden asked the Federal Trade Commission to look into whether big oil companies are fueling a spike in gas prices.`\
-https://nytimes.com/2021/11/17/business/biden-gas-prices.html?searchResultPosition=4
+https://nytimes.com/live/2021/11/17/business/news-business-stock-market/biden-gas-prices?searchResultPosition=4
 
 **The Untold Story of Von Dutch**\
 `Behind the brand that made trucker hats hot in the early 2000s is a messy corporate origin tale, filled with sabotage and greed.`\
