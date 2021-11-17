@@ -24,7 +24,7 @@ https://nytimes.com/2021/11/16/us/forced-arbitration-sexual-harassment.html?sear
 
 **F.D.A. Plans to Authorize Pfizer Boosters for All Adults This Week**\
 `Regulators are set to clear extra doses of Pfizer-BioNTech’s vaccine as soon as Thursday, after states began expanding eligibility on their own.`\
-https://nytimes.com/2021/11/16/us/politics/fda-pfizer-boosters.html?searchResultPosition=7
+https://nytimes.com/2021/11/16/us/politics/fda-pfizer-booster-shot.html?searchResultPosition=7
 
 **U.S. to Buy Enough of Pfizer’s Covid Antiviral Pills for 10 Million People**\
 `The antiviral drugs have helped inspire hope among senior administration officials that the United States will be able to curb the devastating toll from the Delta variant.`\
