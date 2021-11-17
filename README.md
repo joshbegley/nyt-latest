@@ -1,5 +1,5 @@
 **Read the Jury Instructions**\
-`The 36-page document, released by the court clerk at the opening of the trial, details the legal principles, definitions and criteria for determining whether the state has met the burden of proof in the charges against the defendant.`\
+`The 36-page document, released by the court clerk as the jury began deliberations, details the legal principles, definitions and criteria jurors should use while reaching verdicts on the charges.`\
 https://nytimes.com/interactive/2021/11/17/us/rittenhouse-trial-jury-instructions.html?searchResultPosition=1
 
 **The Supply-Chain Crisis Is a Labor Crisis**\
