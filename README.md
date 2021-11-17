@@ -14,27 +14,27 @@ https://nytimes.com/2021/11/17/business/amazon-visa-britain.html?searchResultPos
 `An op-ed in Nature calls for higher ethical standards in the usage and analysis of genetic information from the Romani, a marginalized group in Europe.`\
 https://nytimes.com/2021/11/17/science/genetics-ethics-roma.html?searchResultPosition=4
 
+**Biogen’s Alzheimer’s drug is unlikely to win E.U. approval.**\
+`The drug, Aduhelm, has been mired in controversy since it was in approved in the United States in June.`\
+https://nytimes.com/2021/11/17/business/biogens-alzheimers-aduhelm-european-union.html?searchResultPosition=5
+
 **Thanksgiving for Beginners**\
 `Need a little assistance? Eric Kim has seven recipes and an invaluable guide to get you through the meal.`\
-https://nytimes.com/2021/11/17/dining/thanksgiving-for-beginners.html?searchResultPosition=5
+https://nytimes.com/2021/11/17/dining/thanksgiving-for-beginners.html?searchResultPosition=6
 
-**When I unplugged, I connected with the truth.**\
-`Since I integrated my hometown as a baby, I’ve been wrestling with issues of race.`\
-https://nytimes.com/interactive/2021/11/17/opinion/tom-morello-acoustic-social-justice.html?searchResultPosition=6
+**When I Unplugged, I Connected With the Truth.**\
+`I found a great liberation in playing folk music on an acoustic guitar.`\
+https://nytimes.com/interactive/2021/11/17/opinion/tom-morello-acoustic-social-justice.html?searchResultPosition=7
 
 **House is Set to Censure Paul Gosar for Violent Video**\
 `The Democratic-led House is expected to formally rebuke the Arizona Republican, meting out a rarely used punishment for the first time in over a decade.`\
-https://nytimes.com/2021/11/17/us/politics/paul-gosar-video.html?searchResultPosition=7
+https://nytimes.com/2021/11/17/us/politics/paul-gosar-video.html?searchResultPosition=8
 
 **Blinken Calls for End to Conflict in Ethiopia**\
 `Speaking from neighboring Kenya, Secretary of State Antony J. Blinken pressed for an end to a violent civil war in Ethiopia that has threatened to destabilize the region. He also urged Americans in Ethiopia to leave.`\
-https://nytimes.com/video/world/africa/100000008080624/blinken-ethiopia-conflict-africa-visit-kenya.html?searchResultPosition=8
+https://nytimes.com/video/world/africa/100000008080624/blinken-ethiopia-conflict-africa-visit-kenya.html?searchResultPosition=9
 
 **U.S. Covid Cases are Increasing Again**\
 `The latest news and data from the team tracking the coronavirus.`\
-https://nytimes.com/interactive/2021/11/17/us/virus-data-thanksgiving.html?searchResultPosition=9
-
-**Read Biden’s Letter to the Federal Trade Commission**\
-`President Biden asked the Federal Trade Commission to investigate whether oil and gas companies were driving up gas prices.`\
-https://nytimes.com/interactive/2021/11/17/us/ftc-gas-prices.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/11/17/us/virus-data-thanksgiving.html?searchResultPosition=10
 
