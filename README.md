@@ -1,40 +1,40 @@
+**Miramax Sues Quentin Tarantino Over Planned ‘Pulp Fiction’ NFTs**\
+`The director announced this month he was selling nonfungible tokens based on the screenplay for his 1994 movie. Miramax asserted in court documents it still has “broad rights” to the film.`\
+https://nytimes.com/2021/11/17/us/miramax-tarantino-nft-pulp-fiction.html?searchResultPosition=1
+
+**In Central Italy, a Dance Party By the Sea**\
+`Last month at La Posta Vecchia, the hotelier Marie-Louise Sciò threw a rollicking reunion for friends and family.`\
+https://nytimes.com/2021/11/17/t-magazine/italy-dance-party-dinner.html?searchResultPosition=2
+
+**Amazon will stop accepting Visa credit cards issued in Britain.**\
+`Railing against high fees, Amazon said the change would come into effect Jan. 19.`\
+https://nytimes.com/2021/11/17/business/amazon-visa-britain.html?searchResultPosition=3
+
+**The DNA of Roma People Has Long Been Misused, Scientists Reveal**\
+`An op-ed in Nature calls for higher ethical standards in the usage and analysis of genetic information from the Romani, a marginalized group in Europe.`\
+https://nytimes.com/2021/11/17/science/genetics-ethics-roma.html?searchResultPosition=4
+
 **Thanksgiving for Beginners**\
 `Need a little assistance? Eric Kim has seven recipes and an invaluable guide to get you through the meal.`\
-https://nytimes.com/2021/11/17/dining/thanksgiving-for-beginners.html?searchResultPosition=1
+https://nytimes.com/2021/11/17/dining/thanksgiving-for-beginners.html?searchResultPosition=5
 
 **When I unplugged, I connected with the truth.**\
-`Since I integrated my hometown as a baby, I’ve been wrestling with issues of race.s`\
-https://nytimes.com/interactive/2021/11/17/opinion/tom-morello-acoustic-social-justice.html?searchResultPosition=2
+`Since I integrated my hometown as a baby, I’ve been wrestling with issues of race.`\
+https://nytimes.com/interactive/2021/11/17/opinion/tom-morello-acoustic-social-justice.html?searchResultPosition=6
 
 **House is Set to Censure Paul Gosar for Violent Video**\
 `The Democratic-led House is expected to formally rebuke the Arizona Republican, meting out a rarely used punishment for the first time in over a decade.`\
-https://nytimes.com/2021/11/17/us/politics/house-is-set-to-censure-paul-gosar-for-violent-video.html?searchResultPosition=3
+https://nytimes.com/2021/11/17/us/politics/house-is-set-to-censure-paul-gosar-for-violent-video.html?searchResultPosition=7
 
 **Blinken Calls for End to Conflict in Ethiopia**\
 `Speaking from neighboring Kenya, Secretary of State Antony J. Blinken pressed for an end to a violent civil war in Ethiopia that has threatened to destabilize the region. He also urged Americans in Ethiopia to leave.`\
-https://nytimes.com/video/world/africa/100000008080624/blinken-ethiopia-conflict-africa-visit-kenya.html?searchResultPosition=4
+https://nytimes.com/video/world/africa/100000008080624/blinken-ethiopia-conflict-africa-visit-kenya.html?searchResultPosition=8
 
 **U.S. Covid Cases are Increasing Again**\
 `The latest news and data from the team tracking the coronavirus.`\
-https://nytimes.com/interactive/2021/11/17/us/virus-data-thanksgiving.html?searchResultPosition=5
+https://nytimes.com/interactive/2021/11/17/us/virus-data-thanksgiving.html?searchResultPosition=9
 
 **Read Biden’s Letter to the Federal Trade Commission**\
 `President Biden asked the Federal Trade Commission to investigate whether oil and gas companies were driving up gas prices.`\
-https://nytimes.com/interactive/2021/11/17/us/ftc-gas-prices.html?searchResultPosition=6
-
-**Blinken and Kenyan Civic Leaders Discuss Democracy**\
-`Secretary of State Antony J. Blinken spoke with civil society leaders in Nairobi, Kenya, about efforts to defend against threats facing democracies worldwide, such as misinformation and voter intimidation. The meeting was his first stop on a three-nation visit to Africa.`\
-https://nytimes.com/video/world/africa/100000008080623/blinken-kenya-africa-democracy-elections.html?searchResultPosition=7
-
-**As gas prices surge, President Biden asks the F.T.C. to investigate ‘illegal conduct.’**\
-`President Biden asked the Federal Trade Commission to look into whether big oil companies are fueling a spike in gas prices.`\
-https://nytimes.com/2021/11/17/business/biden-gas-prices.html?searchResultPosition=8
-
-**Mr. The Untold Story of Von Dutch**\
-`Behind the brand that made trucker hats hot in the early 2000s is a messy corporate origin tale, filled with sabotage and greed.`\
-https://nytimes.com/2021/11/17/style/von-dutch-hulu-documentary.html?searchResultPosition=9
-
-**Overdose Deaths Reached Record High as the Pandemic Spread**\
-`More than 100,000 Americans died from drug overdoses in the yearlong period ending in April, government researchers said.`\
-https://nytimes.com/2021/11/17/health/drug-overdoses-covid.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/11/17/us/ftc-gas-prices.html?searchResultPosition=10
 
