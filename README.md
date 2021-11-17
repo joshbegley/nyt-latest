@@ -28,7 +28,7 @@ https://nytimes.com/video/us/elections/100000008081143/covid-vaccine-children-wh
 
 **Spain’s Silver-Crowned Woman Gains a Face, and a Genetic Legacy**\
 `New research is solving mysteries linked to the La Almoloya burial site and revealing new information about ancient European people.`\
-https://nytimes.com/2021/11/17/science/spain-burial-site-women.html?searchResultPosition=8
+https://nytimes.com/2021/11/17/science/la-almoloya-spain.html?searchResultPosition=8
 
 **The F.D.A. could authorize Moderna boosters for all adults as early as this week.**\
 `If the C.D.C. also signs off on broad booster requests by Moderna and Pfizer, every adult who was fully vaccinated with them at least six months ago would not only be eligible, but could choose which type of booster shot to get.`\
