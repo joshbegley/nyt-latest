@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/17/business/miramax-tarantino-nft-pulp-fiction.html?
 https://nytimes.com/2021/11/17/t-magazine/italy-dance-party-dinner.html?searchResultPosition=2
 
 **Amazon, railing against high fees, will stop accepting Visa credit cards issued in Britain.**\
-`For years merchants have complained about transaction fees that eat into their revenue, but having Amazon take up the fight may ratchet up the pressure. The change would come into effect Jan. 19.`\
+`For years merchants have complained about transaction fees that eat into their revenue, but having Amazon take up the fight may ratchet up the pressure. The change will come into effect Jan. 19.`\
 https://nytimes.com/2021/11/17/business/amazon-visa-britain.html?searchResultPosition=3
 
 **The DNA of Roma People Has Long Been Misused, Scientists Reveal**\
