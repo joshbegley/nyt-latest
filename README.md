@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/17/us/coronavirus-briefing-what-happened-today.html?
 
 **Biden’s O.C.C. pick declares her support for capitalism and community banks.**\
 `Saule Omarova, a Cornell Law School professor, faces an unusually strident campaign against her nomination.`\
-https://nytimes.com/2021/11/17/business/saule-omarova-occ.html?searchResultPosition=2
+https://nytimes.com/2021/11/17/business/saule-omarova-banks-capitalism-occ.html?searchResultPosition=2
 
 **Young Dolph, Promising Memphis Rapper, Shot and Killed at 36**\
 `Known for collaborating widely and his deadpan bravado, his last solo album, “Rich Slave,” debuted at No. 4 on the Billboard chart last year.`\
