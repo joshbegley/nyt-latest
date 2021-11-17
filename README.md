@@ -22,7 +22,7 @@ https://nytimes.com/2021/11/17/business/dealbook/pandemic-stocks-peloton.html?se
 `Using digitized records and newspaper clippings, researchers pieced together the history of the Genoa U.S. Indian Industrial School, a government-run institution that closed in 1934.`\
 https://nytimes.com/2021/11/17/us/native-american-boarding-school-deaths-nebraska.html?searchResultPosition=6
 
-**An injured Olympics athlete was flown home on a cargo plane because of Covid rules in Beijing.**\
+**An injured Olympic athlete was flown home on a cargo plane because of Covid rules in Beijing.**\
 `A Polish luger, Mateusz Sochowicz, was told that coronavirus restrictions prevented him from boarding a commercial flight for another two weeks.`\
 https://nytimes.com/2021/11/17/world/asia/covid-beijing-olympics-poland.html?searchResultPosition=7
 
