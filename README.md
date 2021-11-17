@@ -14,7 +14,7 @@ https://nytimes.com/2021/11/17/us/how-do-jury-deliberations-work.html?searchResu
 `A new report accuses the league of using its N.H.L. Green program to promote refrigerants that will contribute to global warming.`\
 https://nytimes.com/2021/11/17/sports/nhl-chemours-ammonia-ice.html?searchResultPosition=4
 
-**1,200 Miles from Kabul, a Celebrated Music School Reunites**\
+**1,200 Miles From Kabul, a Celebrated Music School Reunites**\
 `Students and teachers of the Afghanistan National Institute of Music and their families, almost 200 in the past week, have fled to Qatar to escape Taliban restrictions on music.`\
 https://nytimes.com/2021/11/17/arts/music/afghanistan-music-school-qatar.html?searchResultPosition=5
 
