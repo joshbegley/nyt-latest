@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2021/11/17/opinion/tom-morello-acoustic-social-j
 
 **House is Set to Censure Paul Gosar for Violent Video**\
 `The Democratic-led House is expected to formally rebuke the Arizona Republican, meting out a rarely used punishment for the first time in over a decade.`\
-https://nytimes.com/2021/11/17/us/politics/house-is-set-to-censure-paul-gosar-for-violent-video.html?searchResultPosition=7
+https://nytimes.com/2021/11/17/us/politics/paul-gosar-video.html?searchResultPosition=7
 
 **Blinken Calls for End to Conflict in Ethiopia**\
 `Speaking from neighboring Kenya, Secretary of State Antony J. Blinken pressed for an end to a violent civil war in Ethiopia that has threatened to destabilize the region. He also urged Americans in Ethiopia to leave.`\
