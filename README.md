@@ -20,7 +20,7 @@ https://nytimes.com/2021/11/17/world/europe/boris-johnson-britain.html?searchRes
 
 **Visions of a U.S. Computer Chip Boom Have Cities Hustling**\
 `Many local governments see a silver lining in the shortage of semiconductor chips that has contributed to a slowdown in the global economy.`\
-https://nytimes.com/2021/11/17/technology/semiconductors-samsung-chip-production.html?searchResultPosition=6
+https://nytimes.com/2021/11/17/technology/samsung-semiconductor-chip-production.html?searchResultPosition=6
 
 **White House: About 10% of Younger Children Have Received First Shot**\
 `White House officials estimated that nearly 10 percent of the nation’s 5- to 11-year olds had received their first coronavirus vaccine dose since the approval of the Pfizer-BioNTech shot for that age group.`\
