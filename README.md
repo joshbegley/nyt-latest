@@ -1,6 +1,6 @@
 **The White House estimates nearly 10 percent of younger children have gotten a first shot.**\
 `Last week alone, 1.7 million young children were vaccinated, about double the previous week, a White House official said.`\
-https://nytimes.com/2021/11/17/us/politics/white-house-covid-vaccine-children.html?searchResultPosition=1
+https://nytimes.com/2021/11/17/us/politics/vaccine-dose-kids-children.html?searchResultPosition=1
 
 **A timeline of major events in the case since Malcolm X’s death.**\
 `Uncertainties about who really killed Malcolm X have plagued the case since 1965.`\
