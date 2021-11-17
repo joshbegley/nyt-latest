@@ -1,6 +1,6 @@
 **Frida Kahlo Self-Portrait Sells for $34.9 Million**\
 `The sale at Sotheby’s on Tuesday was a benchmark for Kahlo and was the most valuable work of Latin American art ever sold at auction.`\
-https://nytimes.com/2021/11/16/arts/design/frida-kahlo-auction-sothebys.html?searchResultPosition=1
+https://nytimes.com/2021/11/16/arts/design/frida-kahlo-painting-diego-y-yo-auction.html?searchResultPosition=1
 
 **Corrections: Nov. 17, 2021**\
 `Corrections that appeared in print on Wednesday, Nov. 17, 2021.`\
