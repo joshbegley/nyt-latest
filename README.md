@@ -26,15 +26,15 @@ https://nytimes.com/2021/11/17/us/native-american-boarding-school-deaths-nebrask
 `A Polish luger, Mateusz Sochowicz, was told that coronavirus restrictions prevented him from boarding a commercial flight for another two weeks.`\
 https://nytimes.com/2021/11/17/world/asia/covid-beijing-olympics-poland.html?searchResultPosition=7
 
+**The E.U. adopts new sanctions against Belarus.**\
+`By Steven Erlanger`\
+https://nytimes.com/2021/11/17/world/europe/the-eu-adopts-new-sanctions-against-belarus.html?searchResultPosition=8
+
 **Where Are Young People Most Optimistic? In Poorer Nations.**\
 `More than half of Americans, young and old, say children today will be less economically successful than their parents, a global survey shows.`\
-https://nytimes.com/2021/11/17/upshot/global-survey-optimism.html?searchResultPosition=8
+https://nytimes.com/2021/11/17/upshot/global-survey-optimism.html?searchResultPosition=9
 
 **‘Prayers for the Stolen’ Review: Coming of Age Among the Poppies**\
 `Tatiana Huezo’s feature film is based on a novel about girls growing up in Mexico in communities terrorized by opium cartels.`\
-https://nytimes.com/2021/11/17/movies/prayers-for-the-stolen-review-coming-of-age-among-the-poppies.html?searchResultPosition=9
-
-**A Border Crisis**\
-`The situation at the Belarus-Poland border is unlike recent immigration crises.`\
-https://nytimes.com/2021/11/17/briefing/poland-belarus-border-crisis.html?searchResultPosition=10
+https://nytimes.com/2021/11/17/movies/prayers-for-the-stolen-review-coming-of-age-among-the-poppies.html?searchResultPosition=10
 
