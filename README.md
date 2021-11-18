@@ -32,7 +32,7 @@ https://nytimes.com/video/world/africa/100000008082019/sudan-coup-protest-blinke
 
 **White House Plans Major Expansion of Covid Vaccine Production**\
 `The Biden administration will spend billions of dollars on a new plan to combat the pandemic, investing in antiviral pills, rapid tests and manufacturing.`\
-https://nytimes.com/2021/11/17/us/politics/biden-expand-covid-vaccine-manufacturing.html?searchResultPosition=9
+https://nytimes.com/2021/11/17/us/politics/biden-covid-vaccine-manufacturing.html?searchResultPosition=9
 
 **Rittenhouse Jurors Head Home for Second Night With No Verdict**\
 `Kyle Rittenhouse’s defense team sought a mistrial on Wednesday, its second such request. The judge has yet to rule on either.`\
