@@ -1,6 +1,6 @@
 **Striking Deere workers approve a new contract on the third try.**\
 `The accord, after a five-week walkout by 10,000 employees, increases wages and performance-based pay.`\
-https://nytimes.com/2021/11/17/business/john-deere-uaw-union-contract.html?searchResultPosition=1
+https://nytimes.com/2021/11/17/business/john-deere-strike-uaw-union-contract.html?searchResultPosition=1
 
 **Man Who Fatally Shot Ahmaud Arbery Describes a ‘Life or Death’ Encounter**\
 `Travis McMichael, who has pleaded not guilty to murder charges, took the stand in his own defense on Wednesday.`\
