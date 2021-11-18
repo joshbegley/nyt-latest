@@ -1,4 +1,4 @@
-**Tax Deduction that Benefits the Rich Divides Democrats Ahead of Vote**\
+**Tax Deduction That Benefits the Rich Divides Democrats Ahead of Vote**\
 `House Democrats are poised to lift a cap on the state and local tax deduction, a gift to wealthy homeowners in some blue states.`\
 https://nytimes.com/2021/11/18/us/politics/salt-tax-deduction-democrats.html?searchResultPosition=1
 
