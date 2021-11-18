@@ -2,7 +2,7 @@
 `Can we give the legislation that the president signed on Monday its due?`\
 https://nytimes.com/2021/11/18/opinion/biden-infrastructure-inflation.html?searchResultPosition=1
 
-**Colorado Wildfire Kills 1, Signaling Fire Season Is Far From Over**\
+**Colorado Wildfire Kills One, Signaling Fire Season Is Far From Over**\
 `The Kruger Rock fire in Northern Colorado has burned about 145 acres, fire officials said. A plane carrying fire suppressant crashed this week, killing the pilot.`\
 https://nytimes.com/2021/11/18/us/colorado-wildfire-kruger-rock.html?searchResultPosition=2
 
