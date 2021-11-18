@@ -1,40 +1,40 @@
-**Health Care Renovation**\
-`We’re looking at the ways Biden’s social policy bill will change health care.`\
-https://nytimes.com/2021/11/18/briefing/biden-health-care-spending-bill.html?searchResultPosition=1
+**For an N.B.A. Twitter 👑, It’s All Jokes. Lots of Them.**\
+`Josiah Johnson can find humor in almost any sports or pop culture moment, earning him fans from the N.B.A. to Hollywood.`\
+https://nytimes.com/2021/11/18/sports/basketball/josiah-johnson-twitter-kingjosiah54.html?searchResultPosition=1
 
-**What’s Happening With the U.S. Economy?**\
-`Polling suggests that Americans think conditions are bad. Data shows that they’re wrong.`\
-https://nytimes.com/2021/11/18/podcasts/the-daily/american-economy-unemployment-inflation.html?searchResultPosition=2
+**‘Zeros and Ones’ Review: Plague and Paranoia**\
+`Abel Ferrara’s lockdown experiment is a spooky political thriller with a double dose of Ethan Hawke.`\
+https://nytimes.com/2021/11/18/movies/zeros-and-ones-review-plague-and-paranoia.html?searchResultPosition=2
 
-**A Hot Rod Before Its Time: Ford’s Model A, With a Boost**\
-`This car was built almost exclusively with 1930s mechanical components, but it has been driven as fast as 70 m.p.h.`\
-https://nytimes.com/2021/11/18/business/ford-model-a-hot-rod.html?searchResultPosition=3
+**‘She Paradise’ Review: Coming of Age Through Soca**\
+`A teenager living in poverty in Trinidad and Tobago joins a dance group to make money, but she soon realizes success comes at a cost.`\
+https://nytimes.com/2021/11/18/arts/she-paradise-review.html?searchResultPosition=3
 
-**Broken Women, Made Whole Onstage**\
-`In Kornel Mundruczo’s “Pieces of a Woman” and an Annie Ernaux adaptation, “Memory of a Girl,” stage directors explore post-traumatic psychology and the workings of mental recall.`\
-https://nytimes.com/2021/11/18/theater/kornel-mundruczo-pieces-of-a-woman-tr-warszawa.html?searchResultPosition=4
+**‘Bad Luck Banging or Loony Porn’ Review: No Sex, Please, We’re Romanian**\
+`A viral video scandal ensnares a Bucharest schoolteacher in Radu Jude’s biting, bawdy and brilliant Covid-age fable.`\
+https://nytimes.com/2021/11/18/movies/bad-luck-banging-or-loony-porn-review.html?searchResultPosition=4
 
-**Complaining About Wokeness Is a Cop-Out**\
-`Embracing intellectual diversity means being brave enough to consider ideas and practices that might inspire you to change your life.`\
-https://nytimes.com/2021/11/18/opinion/woke-students-scapegoats.html?searchResultPosition=5
+**‘The First Wave’ Review: How to Fight a Virus**\
+`The documentary tracks the first four months of the novel coronavirus in March 2020, as it overwhelms works at a hospital in Queens.`\
+https://nytimes.com/2021/11/18/movies/the-first-wave-review.html?searchResultPosition=5
 
-**As India limits syringe exports, a supply crunch has buyers looking elsewhere.**\
-`The South Asian country is a major producer of the type of syringe used for coronavirus inoculations.`\
-https://nytimes.com/2021/11/18/world/asia/covid-syringes-india.html?searchResultPosition=6
+**‘Kurt Vonnegut: Unstuck in Time’ Review: An Idol Shares the Camera**\
+`Fans of Tralfamadore and more are escorted through the author’s reminiscences, but the focus is swiveled a bit to take in the tour guide himself.`\
+https://nytimes.com/2021/11/18/arts/kurt-vonnegut-unstuck-in-time-review.html?searchResultPosition=6
 
-**Long Branch, N.J.: A Shore City With a Mix of Styles and a Comeback Spirit**\
-`With its rejuvenated boardwalk economy and a spate of new development, this Monmouth County beach community is ‘a few different towns in one.’`\
-https://nytimes.com/2021/11/18/realestate/long-branch-nj-a-shore-city-with-a-mix-of-styles-and-a-comeback-spirit.html?searchResultPosition=7
+**‘Tick, Tick … Boom!’ Review: A Bohemian’s Rhapsodies**\
+`Andrew Garfield stars as Jonathan Larson, the composer and lyricist of “Rent,” in this meta-musical directed by Lin-Manuel Miranda.`\
+https://nytimes.com/2021/11/18/movies/tick-tick-boom-review.html?searchResultPosition=7
 
-**Living In ... Long Branch, N.J.**\
-`With its rejuvenated boardwalk economy and a spate of new development, this Monmouth County beach community is ‘a few different towns in one.’`\
-https://nytimes.com/slideshow/2021/11/18/realestate/living-in-long-branch-nj.html?searchResultPosition=8
+**‘India Sweets and Spices’ Review: Gossip, Secrets and Biting Laughs**\
+`A party invitation exposes a family and a community in this Geeta Malik feature starring Sophia Ali.`\
+https://nytimes.com/2021/11/18/movies/india-sweets-and-spices-review.html?searchResultPosition=8
 
-**The Women Bringing Sex Ed to the Arab World**\
-`Activists are using social media to do what Arab countries have failed to do: teach women about their bodies. They are aiming for nothing less than a cultural awakening.`\
-https://nytimes.com/2021/11/18/world/middleeast/sex-ed-arab-women-mideast.html?searchResultPosition=9
+**‘I Was a Simple Man’ Review: Letting Go**\
+`A Hawaiian man’s memories catch up with him as he nears death in Christopher Makoto Yogi’s spiritually infused twilight drama.`\
+https://nytimes.com/2021/11/18/arts/i-was-a-simple-man-review.html?searchResultPosition=9
 
-**Democrats’ spending bill aims to collect a minimum tax from large, profitable corporations.**\
-`An analysis being released by Senator Elizabeth Warren offers a first look at which companies could face higher tax bills under the proposal.`\
-https://nytimes.com/2021/11/18/us/politics/democrats-corporate-tax-proposal.html?searchResultPosition=10
+**‘Procession’ Review: Art as Exorcism**\
+`In this experimental documentary streaming on Netflix, six survivors of abuse within the Catholic Church use filmmaking to confront traumatic memories.`\
+https://nytimes.com/2021/11/18/movies/procession-review.html?searchResultPosition=10
 
