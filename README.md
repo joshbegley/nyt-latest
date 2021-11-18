@@ -1,5 +1,5 @@
 **Two Men Accused of Killing Malcom X are Exonerated**\
-`A judge has over turned the convictions of Muhammad A. Aziz and Khalil Islam who were found guilty of killing Malcolm X. “I do not need this court, these prosecutors or a piece of paper to tell me I am innocent,” said Mr. Aziz.`\
+`A judge tossed out the convictions of Muhammad A. Aziz and Khalil Islam, who were found guilty of killing Malcolm X. Mr. Aziz spoke about the “travesty of justice” at a court hearing.`\
 https://nytimes.com/video/us/100000008083381/malcolm-x-assassination-wrongful-conviction.html?searchResultPosition=1
 
 **Biden Welcomes Trudeau at North American Leaders’ Summit**\
