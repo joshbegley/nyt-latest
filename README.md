@@ -34,7 +34,7 @@ https://nytimes.com/slideshow/2021/11/18/realestate/living-in-long-branch-nj.htm
 `Activists are using social media to do what Arab countries have failed to do: teach women about their bodies. They are aiming for nothing less than a cultural awakening.`\
 https://nytimes.com/2021/11/18/world/middleeast/sex-ed-arab-women-mideast.html?searchResultPosition=9
 
-**Must This Swab Go That Far Up Your Nose to Test for Covid?**\
-`Some testers gently swab the front of your nostril and send you on your way. Others dig deep, bringing the pain. What’s the gold standard?`\
-https://nytimes.com/2021/11/18/world/swab-test-covid.html?searchResultPosition=10
+**Democrats’ spending bill aims to collect a minimum tax from large, profitable corporations.**\
+`An analysis being released by Senator Elizabeth Warren offers a first look at which companies could face higher tax bills under the proposal.`\
+https://nytimes.com/2021/11/18/us/politics/democrats-corporate-tax-proposal.html?searchResultPosition=10
 
