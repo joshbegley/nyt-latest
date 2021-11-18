@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/18/opinion/biden-infrastructure-bill.html?searchResu
 
 **Budget Office Determines Democrats’ Spending Bill Will Nudge Deficit Higher**\
 `The White House and Congressional Budget Office are at odds over how much revenue the Internal Revenue Service could recoup from tax cheats.`\
-https://nytimes.com/2021/11/18/us/politics/budget-office-determines-democrats-spending-bill-will-nudge-deficit-higher.html?searchResultPosition=2
+https://nytimes.com/2021/11/18/us/politics/cbo-biden-spending-bill.html?searchResultPosition=2
 
 **Relocation of Federal Agency Hurt Diversity, Watchdog Finds**\
 `A decision to move the Bureau of Land Management’s headquarters to Colorado caused staff to quit, according to a critical report.`\
