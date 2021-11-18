@@ -15,7 +15,7 @@ https://nytimes.com/video/us/100000008083794/colorado-kruger-rock-wildfire-evacu
 https://nytimes.com/2021/11/18/opinion/biden-infrastructure-bill.html?searchResultPosition=4
 
 **Budget Office Determines Democrats’ Spending Bill Will Nudge Deficit Higher**\
-`The White House and Congressional Budget Office are at odds over how much revenue the Internal Revenue Service could recoup from tax cheats.`\
+`The White House and the Congressional Budget Office are at odds over how much revenue the Internal Revenue Service could recoup from tax cheats.`\
 https://nytimes.com/2021/11/18/us/politics/cbo-biden-spending-bill.html?searchResultPosition=5
 
 **Relocation of Federal Agency Hurt Diversity, Watchdog Finds**\
