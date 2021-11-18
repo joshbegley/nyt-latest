@@ -1,40 +1,40 @@
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a four-bedroom in Manhasset, N.Y., and a five-bedroom in Westport, Conn.`\
+https://nytimes.com/2021/11/18/realestate/housing-market-near-nyc.html?searchResultPosition=1
+
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s homes are in Greenwood Heights, Midtown East and on the Upper East Side.`\
+https://nytimes.com/2021/11/18/realestate/housing-market-ny.html?searchResultPosition=2
+
+**On the Market in New York City**\
+`This week’s homes are in Greenwood Heights, Midtown East and on the Upper East Side.`\
+https://nytimes.com/slideshow/2021/11/18/realestate/on-the-market-in-new-york-city.html?searchResultPosition=3
+
+**On the Market in the New York Region**\
+`This week’s properties are a four-bedroom in Manhasset, N.Y., and a five-bedroom in Westport, Conn.`\
+https://nytimes.com/slideshow/2021/11/18/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+
+**The T List: Six Things We Recommend This Week**\
+`A new theater district hotel, a perfume subscription service — and more.`\
+https://nytimes.com/2021/11/18/t-magazine/new-york-midtown-hotel.html?searchResultPosition=5
+
+**Review: This ‘Wheel of Time’ Goes Nowhere Fast**\
+`Amazon’s ambitious fantasy adaptation is bursting with magic and monsters, but it’s no heir to the “Thrones.”`\
+https://nytimes.com/2021/11/18/arts/television/review-wheel-of-time.html?searchResultPosition=6
+
+**My Brother Wants Me Out of His Life. Can I Change His Mind?**\
+`A reader seeks advice on defusing sibling tension.`\
+https://nytimes.com/2021/11/18/style/siblings-falling-out-social-qs.html?searchResultPosition=7
+
 **Jennifer Packer: Painting as an Exercise in Tenderness**\
 `In a virtuosic solo show at the Whitney, the artist finds her subjects’ complex humanity, and offers a new way forward for representation.`\
-https://nytimes.com/2021/11/18/arts/design/jennifer-packer-whitney.html?searchResultPosition=1
+https://nytimes.com/2021/11/18/arts/design/jennifer-packer-whitney.html?searchResultPosition=8
 
 **Will Elizabeth Holmes Testify in the Theranos Trial?**\
 `The prosecution is expected to wrap its case soon.`\
-https://nytimes.com/2021/11/18/us/elizabeth-holmes-theranos-trial.html?searchResultPosition=2
+https://nytimes.com/2021/11/18/us/elizabeth-holmes-theranos-trial.html?searchResultPosition=9
 
 **What to Know About the N.F.L.’s Longest Season**\
 `With 18 weeks in the regular season and fewer teams earning byes in the playoffs, it’s a long journey to the Super Bowl.`\
-https://nytimes.com/interactive/2021/11/18/sports/football/nfl-season-17-games-playoff-byes.html?searchResultPosition=3
-
-**With restrictions easing, the Australian Open can play before a full house.**\
-`The annual Boxing Day cricket test match in Melbourne will also be allowed to take place before a full-capacity crowd.`\
-https://nytimes.com/2021/11/18/world/australia/covid-australian-open-melbourne-restrictions.html?searchResultPosition=4
-
-**How to Watch the 2021 Latin Grammy Awards Tonight**\
-`The 22nd annual Latin Grammys will be shown live on Thursday at 8 p.m. Eastern on Univision. Gloria Estefan, Rubén Blades, Camilo and more are scheduled to perform.`\
-https://nytimes.com/2021/11/18/arts/music/latin-grammys-how-to-watch-live.html?searchResultPosition=5
-
-**Man Is Spared Prison After Guilty Plea in Sexual Attacks on 4 Teens**\
-`The judge who sentenced the man, Christopher Belter, said that he had “agonized” over the decision but that incarceration wasn’t “appropriate.”`\
-https://nytimes.com/2021/11/18/nyregion/christopher-belter-rape-sentence.html?searchResultPosition=6
-
-**A Resilient Team for a Broken Nation**\
-`Afghanistan’s national soccer team played a rare match this week. But what, and whom, does the team represent?`\
-https://nytimes.com/2021/11/18/sports/soccer/afghanistan-soccer-taliban.html?searchResultPosition=7
-
-**Investors Are Charging Up Electric-Vehicle Stocks**\
-`Shares in Lucid Motors and Rivian are soaring. Can that last?`\
-https://nytimes.com/2021/11/18/business/dealbook/lucid-rivian-electric-vehicles.html?searchResultPosition=8
-
-**Germany moves to impose new pandemic regulations amid record case numbers.**\
-`The measures include a rule that only those who are vaccinated, have recovered from an infection or test negative can ride public transit or attend work in person.`\
-https://nytimes.com/2021/11/18/world/europe/germany-pandemic-rules.html?searchResultPosition=9
-
-**For an N.B.A. Twitter 👑, It’s All Jokes. Lots of Them.**\
-`Josiah Johnson can find humor in almost any sports or pop culture moment, earning him fans from the N.B.A. to Hollywood.`\
-https://nytimes.com/2021/11/18/sports/basketball/josiah-johnson-twitter-kingjosiah54.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/11/18/sports/football/nfl-season-17-games-playoff-byes.html?searchResultPosition=10
 
