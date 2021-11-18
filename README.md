@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/18/movies/ghostbusters-afterlife-review.html?searchR
 
 **Massachusetts expands access to boosters for all adults, joining several other states.**\
 `Federal regulators are considering granting requests for Pfizer-BioNTech and Moderna boosters to be authorized for all adults as early as this week.`\
-https://nytimes.com/2021/11/18/us/massachusetts-connecticut-rhode-island-boosters-adults.html?searchResultPosition=2
+https://nytimes.com/2021/11/18/us/massachusetts-boosters-adults.html?searchResultPosition=2
 
 **5 Games to Watch This Weekend**\
 `Finals in the N.W.S.L. and collegiate field hockey, Mikaela Shiffrin in World Cup skiing and an intriguing N.F.L. matchup.`\
