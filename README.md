@@ -32,7 +32,7 @@ https://nytimes.com/interactive/2021/11/18/arts/editors-recommendations-other-tw
 
 **State attorneys general open an inquiry into Instagram’s impact on teens.**\
 `The states were examining whether the actions of Facebook, now called Meta, violated state consumer protection laws and put the public at risk.`\
-https://nytimes.com/2021/11/18/technology/facebook-meta-instagram-investigation.html?searchResultPosition=9
+https://nytimes.com/2021/11/18/technology/meta-instagram-investigation-teens.html?searchResultPosition=9
 
 **The U.S. is ‘considering’ a diplomatic boycott of the Beijing Olympics, Biden says.**\
 `The boycott would mean that no U.S. government officials would attend the Games, which begin in February, though it would not prevent athletes from attending.`\
