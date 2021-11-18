@@ -19,7 +19,7 @@ https://nytimes.com/2021/11/18/opinion/biden-infrastructure-bill.html?searchResu
 https://nytimes.com/2021/11/18/us/politics/cbo-biden-spending-bill.html?searchResultPosition=5
 
 **Relocation of Federal Agency Hurt Diversity, Watchdog Finds**\
-`A decision to move the Bureau of Land Management’s headquarters to Colorado caused staff to quit, according to a critical report.`\
+`A decision by the Trump administration to move the Bureau of Land Management’s headquarters to Colorado caused staff members to quit, according to a government watchdog report.`\
 https://nytimes.com/2021/11/18/us/politics/federal-agency-diversity.html?searchResultPosition=6
 
 **Strike on U.S. Base Was Iranian Response to Israeli Attack, Officials Say**\
