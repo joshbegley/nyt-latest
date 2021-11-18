@@ -1,6 +1,6 @@
 **Health Care Renovation**\
 `We’re looking at the ways Biden’s social policy bill will change health care.`\
-https://nytimes.com/2021/11/18/briefing/health-care-democrats-spending-bill.html?searchResultPosition=1
+https://nytimes.com/2021/11/18/briefing/biden-health-care-spending-bill.html?searchResultPosition=1
 
 **What’s Happening With the U.S. Economy?**\
 `Polling suggests that Americans think conditions are bad. Data shows that they’re wrong.`\
