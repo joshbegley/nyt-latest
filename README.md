@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/17/sports/baseball/corbin-burnes-robbie-ray-cy-young
 
 **Adele Has a Lot of Big Feelings on ‘30’**\
 `The British superstar’s first album in six years deals with divorce and moving on, countering misery with virtuosity.`\
-https://nytimes.com/2021/11/17/arts/music/adele-30-review.html?searchResultPosition=10
+https://nytimes.com/2021/11/17/arts/music/adele-new-album-30-review.html?searchResultPosition=10
 
