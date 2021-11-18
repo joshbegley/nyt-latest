@@ -1,40 +1,40 @@
+**‘C’mon C’mon’ Review: Are You My Mommy?**\
+`In Mike Mills’s latest film, Joaquin Phoenix plays an uncle who takes care of his precocious nephew during a family crisis.`\
+https://nytimes.com/2021/11/18/movies/cmon-cmon-review-joaquin-phoenix.html?searchResultPosition=1
+
+**Ford Motor announces a partnership to assure a steady flow of U.S.-made chips.**\
+`The automaker will team with GlobalFoundries on producing and developing semiconductors, crucial parts that have been in short supply.`\
+https://nytimes.com/2021/11/18/business/ford-globalfoundries-chip-shortage.html?searchResultPosition=2
+
+**CVS will close 900 stores as it looks beyond traditional pharmacies.**\
+`The company said the closures, which will affect about 9 percent of its stores in the next three years, were part of a shift in focus.`\
+https://nytimes.com/2021/11/18/business/cvs-store-closures.html?searchResultPosition=3
+
 **What Students Are Saying About Hometown Pride, Pandemic Dreams and a Mysterious Photo**\
 `Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
-https://nytimes.com/2021/11/18/learning/what-students-are-saying-about-hometown-pride-pandemic-dreams-and-a-mysterious-photo.html?searchResultPosition=1
+https://nytimes.com/2021/11/18/learning/what-students-are-saying-about-hometown-pride-pandemic-dreams-and-a-mysterious-photo.html?searchResultPosition=4
 
 **The Internet Broke Brand Loyalty**\
 `You loved TikTok leggings. Will you ever buy them again?`\
-https://nytimes.com/2021/11/18/technology/amazon-instagram-brand-loyalty.html?searchResultPosition=2
+https://nytimes.com/2021/11/18/technology/amazon-instagram-brand-loyalty.html?searchResultPosition=5
 
 **Vials Labeled ‘Smallpox’ Are Found in Pennsylvania Laboratory**\
 `The Centers for Disease Control and Prevention said it was working with law enforcement to investigate the vials.`\
-https://nytimes.com/2021/11/18/us/smallpox-vials-pennsylvania.html?searchResultPosition=3
+https://nytimes.com/2021/11/18/us/smallpox-vials-pennsylvania.html?searchResultPosition=6
 
 **Think Biden’s a Bust? Check Your Cynicism.**\
 `Can we give the legislation that the president signed on Monday its due?`\
-https://nytimes.com/2021/11/18/opinion/biden-infrastructure-inflation.html?searchResultPosition=4
+https://nytimes.com/2021/11/18/opinion/biden-infrastructure-inflation.html?searchResultPosition=7
 
 **Colorado Wildfire Kills One, Signaling Fire Season Is Far From Over**\
-`The Kruger Rock fire in Northern Colorado has burned about 145 acres, fire officials said. A plane carrying fire suppressant crashed this week, killing the pilot.`\
-https://nytimes.com/2021/11/18/us/colorado-wildfire-kruger-rock.html?searchResultPosition=5
+`The Kruger Rock fire in northern Colorado has burned about 145 acres, fire officials said. A plane carrying fire suppressant crashed this week, killing the pilot.`\
+https://nytimes.com/2021/11/18/us/colorado-wildfire-kruger-rock.html?searchResultPosition=8
 
 **I Was Afraid of the Bike Path. So I Hired a Bike Coach.**\
 `A nasty crash instilled a phobia of bollards. I called the Bike Whisperer.`\
-https://nytimes.com/2021/11/18/nyregion/bike-riding-coach-therapy.html?searchResultPosition=6
+https://nytimes.com/2021/11/18/nyregion/bike-riding-coach-therapy.html?searchResultPosition=9
 
 **Getting Personal With Iman**\
 `The supermodel talks about life after David Bowie, their Catskills refuge and the perfume inspired by their love.`\
-https://nytimes.com/2021/11/18/style/iman-david-bowie.html?searchResultPosition=7
-
-**Man Who Fatally Shot Ahmaud Arbery Testifies**\
-`Travis McMichael, who has pleaded not guilty to murder charges, described the moments leading up to the shooting of Mr. Arbery, as he took the stand in his own defense.`\
-https://nytimes.com/video/us/100000008082816/ahmaud-arbery-travis-mcmichael-testimony-trial.html?searchResultPosition=8
-
-**Activists Demand Clemency for Death Row Inmate Julius Jones**\
-`Julius Jones was convicted of first-degree murder and sentenced to death in 2002 after being accused of killing a man in 1999. Demonstrators gathered at the Oklahoma governor’s mansion and State Capitol in an effort to stop his execution that is scheduled for Thursday.`\
-https://nytimes.com/video/us/100000008082857/julius-jones-death-row-protests-oklahoma.html?searchResultPosition=9
-
-**What’s Going On in This Graph? | Dec. 1, 2021**\
-`Compare the historical share of global carbon emissions — both total emissions and emissions per person — for the world’s 23 richest countries to the share from all of the world’s other countries.`\
-https://nytimes.com/2021/11/18/learning/whats-going-on-in-this-graph-dec-1-2021.html?searchResultPosition=10
+https://nytimes.com/2021/11/18/style/iman-david-bowie.html?searchResultPosition=10
 
