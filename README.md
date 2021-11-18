@@ -30,11 +30,11 @@ https://nytimes.com/2021/11/18/arts/dance/twyla-tharp-city-center-review.html?se
 `What’s Crypto.com, which is paying $700 million for the naming rights to the sports venue?`\
 https://nytimes.com/2021/11/18/technology/crypto-staples-center-la.html?searchResultPosition=8
 
+**What can be deduced from the length of jury deliberations in the Rittenhouse case? Not much, experts say.**\
+`Juries can take days to either acquit or convict.`\
+https://nytimes.com/2021/11/18/us/jury-deliberations-kyle-rittenhouse.html?searchResultPosition=9
+
 **What’s in Our Queue? ‘The Other Two’ and More**\
 `I’m the assistant performing arts editor on the Culture desk. Here are five things I've been watching, reading and listening to.`\
-https://nytimes.com/interactive/2021/11/18/arts/editors-recommendations-other-two.html?searchResultPosition=9
-
-**State attorneys general open an inquiry into Instagram’s impact on teens.**\
-`The states were examining whether the actions of Facebook, now called Meta, violated state consumer protection laws and put the public at risk.`\
-https://nytimes.com/2021/11/18/technology/meta-instagram-investigation-teens.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/11/18/arts/editors-recommendations-other-two.html?searchResultPosition=10
 
