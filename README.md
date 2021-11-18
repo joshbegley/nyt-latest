@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/18/dining/how-to-make-vegetarian-thanksgiving-gravy.
 
 **Pelosi Predicts Thursday Vote on Biden’s Ambitious Social Policy Bill**\
 `A House vote, months in the making, could come as early as Thursday evening on a $1.85 trillion social policy and climate bill that would be the largest expansion of the safety net in 50 years.`\
-https://nytimes.com/2021/11/18/us/politics/house-vote-social-safety-net-climate.html?searchResultPosition=2
+https://nytimes.com/2021/11/18/us/politics/house-vote-pelosi-social-policy-bill.html?searchResultPosition=2
 
 **Horse Carriage Ban in New York? De Blasio Wants to Try Again.**\
 `As he enters his final weeks in office, Mayor Bill de Blasio is resurrecting an old campaign promise to ban horse-drawn carriages in New York City.`\
