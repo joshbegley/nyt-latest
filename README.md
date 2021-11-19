@@ -1,40 +1,40 @@
-**Austria announces a lockdown and vaccination mandate for all.**\
-`The nationwide lockdown is Europe’s first since spring. And the national vaccine mandate is a first for the continent.`\
-https://nytimes.com/2021/11/19/world/europe/covid-austria-lockdown.html?searchResultPosition=1
+**If You Give a Frog Testosterone, It Will Show You Its Foot**\
+`Some frogs trick their male competitors with a theatrical leg kick. A new study digs further into why the unusual gesture may have evolved.`\
+https://nytimes.com/2021/11/19/science/frog-kick-testosterone.html?searchResultPosition=1
 
-**Lesson of the Day: ‘What’s Emerging From the Melting Ice?’**\
-`In this lesson, students will learn about the objects being revealed by melting glaciers and permafrost. Then, they will participate in a citizen science project related to climate change.`\
-https://nytimes.com/2021/11/19/learning/lesson-plans/lesson-of-the-day-whats-emerging-from-the-melting-ice.html?searchResultPosition=2
+**Buy Stocks to Prosper. Buy Bonds to Sleep at Night.**\
+`Do what it takes to stay invested in the stock market, our columnist says. Government bonds may help, even if they look unappealing now.`\
+https://nytimes.com/2021/11/19/business/stock-market-bonds-crash.html?searchResultPosition=2
 
-**Making It Official: Verdict Overturned in Malcolm X Case**\
-`Two men convicted in 1966 were cleared. One spoke about the “travesty of justice” he lived through.`\
-https://nytimes.com/2021/11/19/nyregion/making-it-official-verdict-overturned-in-malcolm-x-case.html?searchResultPosition=3
+**After 15 Months in U.S. Prisons, She Now Sits in Russia’s Parliament**\
+`Maria Butina, convicted of serving as an unregistered foreign agent before and after the 2016 election, insists she “wasn’t a spy” and that her Duma seat is “not a reward.” Her critics call her a Kremlin “trophy.”`\
+https://nytimes.com/2021/11/19/world/europe/maria-butina-russia-duma.html?searchResultPosition=3
 
-**What Does Mateship Mean to You?**\
-`It’s a complicated, often-contested word that has evolved along with Australia’s values.`\
-https://nytimes.com/2021/11/19/world/asia/what-does-mateship-mean-to-you.html?searchResultPosition=4
+**N.Y.C. Clubs Are Packed, but Many Are Still in Debt**\
+`Will the crowds be enough to recoup months of lost revenue?`\
+https://nytimes.com/2021/11/19/nyregion/nyc-clubs-are-packed-but-many-are-still-in-debt.html?searchResultPosition=4
 
-**Message to Prince Charles: This Is Not Your Father’s Egypt**\
-`The prince and his wife, Camilla, made Egypt their first foreign destination since the pandemic. Vestiges of British colonialism aside, they saw something new.`\
-https://nytimes.com/2021/11/19/world/middleeast/prince-charles-egypt.html?searchResultPosition=5
+**When You Want to Give Someone the Whole World**\
+`Bellerby & Co. creates globes that can include hometowns, favorite destinations and even pets. Or sea monsters.`\
+https://nytimes.com/2021/11/19/fashion/globes-bellerby-and-company-london.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/19/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Dance Like the K-Pop Stars Do**\
+`A London studio says it expects to sell more holiday gift certificates for its K-pop classes than any other dance genre.`\
+https://nytimes.com/2021/11/19/fashion/gifts-dance-classes-kpop-bts.html?searchResultPosition=6
 
-**Jimmy Kimmel: The U.S. Is Finally Back at the Neighborhood BBQ**\
-`“I think it’s nice that we’re friendly with our neighbors again,” Kimmel said of Biden’s meeting with leaders of Canada and Mexico.`\
-https://nytimes.com/2021/11/19/arts/television/jimmy-kimmel-us-mexico-canada-summit.html?searchResultPosition=7
+**Presents for Your Fitness Fanatic**\
+`Smart swim goggles and an at-home boxing program are among the choices.`\
+https://nytimes.com/2021/11/19/fashion/gifts-fitness-pilates-boxing.html?searchResultPosition=7
 
-**Word of the Day: magnate**\
-`This word has appeared in 120 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/11/19/learning/word-of-the-day-magnate.html?searchResultPosition=8
+**How a Macy’s Parade Executive Producer Spends His Sundays**\
+`These days, Will Coss splits his time between family activities and planning the annual event that rings in the holiday season.`\
+https://nytimes.com/2021/11/19/nyregion/macys-thanksgiving-day-parade.html?searchResultPosition=8
 
-**Corrections: Nov. 19, 2021**\
-`Corrections that appeared in print on Friday, Nov. 19, 2021.`\
-https://nytimes.com/2021/11/19/pageoneplus/corrections-nov-19-2021.html?searchResultPosition=9
+**Can a Machine Learn Morality?**\
+`Researchers at a Seattle A.I. lab say they have built a system that makes ethical judgments. But its judgments can be as confusing as those of humans.`\
+https://nytimes.com/2021/11/19/technology/can-a-machine-learn-morality.html?searchResultPosition=9
 
-**Quotation of the Day: As Capital Chokes in Smog, India’s Leaders Trade Blame**\
-`Quotation of the Day for Friday, November 19, 2021.`\
-https://nytimes.com/2021/11/19/todayspaper/quotation-of-the-day-as-capital-chokes-in-smog-indias-leaders-trade-blame.html?searchResultPosition=10
+**Memories to Fill Their Stockings**\
+`Taking a trip together is back as a gift option this holiday season, with destinations from Johannesburg to Kyrgyzstan.`\
+https://nytimes.com/2021/11/19/fashion/gifts-travel-london.html?searchResultPosition=10
 
