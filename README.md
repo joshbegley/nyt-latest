@@ -34,7 +34,7 @@ https://nytimes.com/video/us/politics/100000008084797/kevin-mccarthy-speaks-for-
 `With little hope of a fair vote, opposition candidates take a desperate risk to gain any edge against Venezuela’s entrenched autocrat, Nicolás Maduro.`\
 https://nytimes.com/2021/11/19/world/americas/venezuela-elections-maduro.html?searchResultPosition=9
 
-**How the House Voted on the Social Policy Bill**\
+**How Each House Member Voted on the Social Policy Bill**\
 `The sprawling social spending and climate package passed with the support of all but one Democrat and no Republicans.`\
 https://nytimes.com/interactive/2021/11/19/us/politics/social-policy-vote-tally.html?searchResultPosition=10
 
