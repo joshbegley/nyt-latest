@@ -27,7 +27,7 @@ https://nytimes.com/2021/11/18/sports/baseball/shohei-ohtani-al-mvp.html?searchR
 https://nytimes.com/2021/11/18/opinion/future-shock-big-tech.html?searchResultPosition=7
 
 **Phillie Phavorite: Bryce Harper Wins N.L. M.V.P. Award**\
-`Snubbed at the All-Star Game, Harper exploded in the second half, earning his second career M.V.P.`\
+`Snubbed at the All-Star Game, Harper exploded in the second half, earning his second career M.V.P. Shohei Ohtani of the Angels was unanimously named A.L. M.V.P.`\
 https://nytimes.com/2021/11/18/sports/baseball/bryce-harper-nl-mvp.html?searchResultPosition=8
 
 **Colorado Wildfire Prompts Evacuations**\
