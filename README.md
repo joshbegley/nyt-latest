@@ -1,4 +1,4 @@
-**Critic of Teamsters Leader Claims Victory in Race to Succeed Him**\
+**Critic of Teamsters leader claims victory in race to succeed him**\
 `Sean O’Brien said he would be more aggressive than the incumbent, James P. Hoffa, in his approach to Amazon and UPS.`\
 https://nytimes.com/2021/11/18/business/economy/teamsters-union-sean-obrien.html?searchResultPosition=1
 
