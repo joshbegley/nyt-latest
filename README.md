@@ -1,6 +1,6 @@
 **Trump Is Publishing a Photo Book of His Time in Office**\
 `“Our Journey Together” includes more than 300 photographs, along with captions written by the former president.`\
-https://nytimes.com/2021/11/19/books/donald-trump-publishing-photo-book-our-journey-together.html?searchResultPosition=1
+https://nytimes.com/2021/11/19/books/trump-photo-book-our-journey-together.html?searchResultPosition=1
 
 **In ‘Tick, Tick … Boom!,’ Robin de Jesús Knew He Could Do It**\
 `In the film, this queer Puerto Rican actor gets to showcase his range, stepping into a more mature role as Michael.`\
