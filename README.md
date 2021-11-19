@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/19/opinion/new-york-blood-center-city-council.html?s
 
 **Love Letter: Breaking Up With Mr. Right**\
 `And: a union against all odds.`\
-https://nytimes.com/2021/11/19/style/love-letter-newsletter-breaking-up-with-mr-right.html?searchResultPosition=4
+https://nytimes.com/2021/11/19/style/love-letter-break-up.html?searchResultPosition=4
 
 **Three Hanukkah Desserts That Skip the Fryer**\
 `Melissa Clark’s oil-imbued recipes, for lemon curd, chocolate cake and Greek honey cookies, are a sweet way to celebrate the holiday.`\
