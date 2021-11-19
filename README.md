@@ -19,7 +19,7 @@ https://nytimes.com/2021/11/19/briefing/belarus-poland-border-tennis.html?search
 https://nytimes.com/2021/11/19/style/modern-love-he-cared-so-i-broke-up-with-him.html?searchResultPosition=5
 
 **Modi Relents to Protests as India Moves to Repeal Farm Laws**\
-`The three measures were meant to overhaul the country’s troubled agricultural sector, but they sparked nearly a year of sustained demonstrations.`\
+`Measures meant to overhaul the country’s troubled agricultural sector prompted nearly a year of sustained demonstrations.`\
 https://nytimes.com/2021/11/18/world/asia/india-farmers-modi.html?searchResultPosition=6
 
 **Search for Abducted Children Leads to Traffic Stop, Gunshots and 4 Dead**\
