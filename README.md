@@ -22,13 +22,13 @@ https://nytimes.com/2021/11/19/books/fatima-daas-the-last-one.html?searchResultP
 `Some frogs trick their male competitors with a theatrical leg kick. A new study digs further into why the unusual gesture may have evolved.`\
 https://nytimes.com/2021/11/19/science/frog-kick-testosterone.html?searchResultPosition=6
 
-**Buy Stocks to Prosper. Buy Bonds to Sleep at Night.**\
-`Do what it takes to stay invested in the stock market, our columnist says. Government bonds may help, even if they look unappealing now.`\
-https://nytimes.com/2021/11/19/business/stock-market-bonds-crash.html?searchResultPosition=7
-
 **After 15 Months in U.S. Prisons, She Now Sits in Russia’s Parliament**\
 `Maria Butina, convicted of serving as an unregistered foreign agent before and after the 2016 election, insists she “wasn’t a spy” and that her Duma seat is “not a reward.” Her critics call her a Kremlin “trophy.”`\
-https://nytimes.com/2021/11/19/world/europe/maria-butina-russia-duma.html?searchResultPosition=8
+https://nytimes.com/2021/11/19/world/europe/maria-butina-russia-duma.html?searchResultPosition=7
+
+**Buy Stocks to Prosper. Buy Bonds to Sleep at Night.**\
+`Do what it takes to stay invested in the stock market, our columnist says. Government bonds may help, even if they look unappealing now.`\
+https://nytimes.com/2021/11/19/business/stock-market-bonds-crash.html?searchResultPosition=8
 
 **N.Y.C. Clubs Are Packed, but Many Are Still in Debt**\
 `Will the crowds be enough to recoup months of lost revenue?`\
