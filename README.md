@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/18/us/ahmaud-arbery-travis-mcmichael-testimony.html?
 
 **United States Indicts Iranian Hackers in Voter Intimidation Effort**\
 `The hackers are accused of sending threatening messages to thousands of people after breaking into voter registration systems and a media company.`\
-https://nytimes.com/2021/11/18/us/politics/united-states-indicts-iranian-hackers-voter-intimidation.html?searchResultPosition=9
+https://nytimes.com/2021/11/18/us/politics/iranian-hackers-voter-intimidation-indicted.html?searchResultPosition=9
 
 **Latin Grammy Awards 2021: Complete Winners List**\
 `Here are the winners of the 22nd annual ceremony.`\
