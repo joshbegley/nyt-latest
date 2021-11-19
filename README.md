@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/19/style/modern-love-he-cared-so-i-broke-up-with-him
 https://nytimes.com/2021/11/18/world/asia/india-farmers-modi.html?searchResultPosition=2
 
 **Search for Abducted Children Leads to Traffic Stop, Gunshots and 4 Dead**\
-`Law enforcement authorities in two states had been pursuing a former Baltimore County police officer and a female accomplice, who they said kidnapped the officer’s children.`\
+`The authorities in two states had been pursuing a former Baltimore County police officer and a female accomplice, who they said kidnapped the officer’s two children. The four died in what the police said was a murder-suicide.`\
 https://nytimes.com/2021/11/18/us/baltimore-county-police-kidnapping.html?searchResultPosition=3
 
 **‘Patria y vida’: de rap a himno de protesta en Cuba**\
