@@ -19,8 +19,8 @@ https://nytimes.com/2021/11/18/theater/trouble-in-mind-review.html?searchResultP
 https://nytimes.com/2021/11/18/opinion/biden-infrastructure-stimulus-bill.html?searchResultPosition=5
 
 **El artista con más nominaciones este año: Camilo**\
-`By Jon Pareles`\
-https://nytimes.com/2021/11/18/espanol/el-artista-con-mas-nominaciones-este-ano-camilo.html?searchResultPosition=6
+`El cantante y compositor colombiano de gran bigote tiene diez nominaciones en los Grammy Latinos.`\
+https://nytimes.com/2021/11/18/espanol/camilo-grammy-latinos.html?searchResultPosition=6
 
 **The company that produced ‘Parasite’ is in talks to buy Endeavor’s scripted content arm.**\
 `Endeavor is being forced to reduce its ownership stake in its scripted content business as a result of a settlement with the Writers Guild of America.`\
