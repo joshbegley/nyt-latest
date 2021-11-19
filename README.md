@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/19/books/review/soul-food-sunday-winsome-bingham-c-g
 
 **Companies Love to Buy Back Their Stock. A Tax Could Deter Them.**\
 `Supporters of the Biden buyback tax say it will be good for the economy. Skeptics say it will hurt investment.`\
-https://nytimes.com/2021/11/19/business/stock-buybacks-tax.html?searchResultPosition=10
+https://nytimes.com/2021/11/19/business/biden-tax-buyback-stock.html?searchResultPosition=10
 
