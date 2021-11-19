@@ -1,5 +1,5 @@
 **Modi Relents to Protests as India Moves to Repeal Farm Laws**\
-`The three measures were meant to overhaul the country’s troubled agricultural sector, but they sparked nearly a year of sometimes violent demonstrations.`\
+`The three measures were meant to overhaul the country’s troubled agricultural sector, but they sparked nearly a year of sustained demonstrations.`\
 https://nytimes.com/2021/11/18/world/asia/india-farmers-modi.html?searchResultPosition=1
 
 **Search for Abducted Children Leads to Traffic Stop, Gunshots and 4 Dead**\
