@@ -6,7 +6,7 @@ https://nytimes.com/2021/11/18/arts/inigo-philbrick-pleads-guilty-art-scam.html?
 `The truth is, America’s national security depends on cooperation a lot more than competition.`\
 https://nytimes.com/2021/11/18/opinion/biden-china-xi-summit.html?searchResultPosition=2
 
-**U.S. Is ‘Considering’ a Diplomatic Boycott of the Beijing Olympics, Biden Says**\
+**U.S. Is ‘Considering’ Diplomatic Boycott of Beijing Olympics, Biden Says**\
 `A boycott would mean that government officials would not attend the Winter Games in February, though it would not prevent U.S. athletes from competing.`\
 https://nytimes.com/2021/11/18/us/politics/beijing-olympics-boycott.html?searchResultPosition=3
 
