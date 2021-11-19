@@ -1,4 +1,4 @@
-**Watch Live: Jury Reaches a Verdict in Kyle Rittenhouse Trial**\
+**Watch Live: Jury Reaches a Decision in Kyle Rittenhouse Trial**\
 `Mr. Rittenhouse faces five felony charges for his actions on the night of Aug. 25, 2020, in Kenosha, Wis.`\
 https://nytimes.com/video/us/100000008078105/live-video-rittenhouse-verdict.html?searchResultPosition=1
 
