@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/19/learning/film-club-a-ship-from-guantanamo.html?se
 `The U.S. may soon offer booster shots to every adult. Here’s why.`\
 https://nytimes.com/2021/11/19/briefing/booster-eligibility-us-fda.html?searchResultPosition=3
 
-**Japan approves a $490 billion economic stimulus package.**\
+**Japan approves a $490 billion economic stimulus package as the pandemic’s effects linger.**\
 `The move, announced on Friday, is an attempt by the country’s newish prime minister to revive an economy battered by Covid restrictions and a supply chain crunch.`\
 https://nytimes.com/2021/11/19/world/asia/japan-stimulus.html?searchResultPosition=4
 
