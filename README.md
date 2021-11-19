@@ -1,6 +1,6 @@
 **Boosted, Not Basted: Biden Pardons 2 Turkeys in Thanksgiving Tradition**\
 `“Peanut Butter and Jelly were selected based on their temperament, appearance, and, I suspect, vaccination status,” the president said.`\
-https://nytimes.com/2021/11/19/us/politics/biden-turkey-pardon-thanksgiving.html?searchResultPosition=1
+https://nytimes.com/2021/11/19/us/politics/biden-turkey-pardon.html?searchResultPosition=1
 
 **Biden Pardons Turkeys Ahead of Thanksgiving**\
 `The two turkeys, Peanut Butter and Jelly, will live in the Animal Sciences Research and Education Center at Purdue University after receiving their pardons.`\
