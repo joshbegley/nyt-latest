@@ -1,6 +1,6 @@
 **One meme stock lawsuit against Robinhood is dismissed, but others loom.**\
-`By Ephrat Livni`\
-https://nytimes.com/2021/11/19/business/one-meme-stock-lawsuit-against-robinhood-is-dismissed-but-others-loom.html?searchResultPosition=1
+`The suit was part of a proposed three-part class action suit against Robinhood and others over their roles in January’s GameStop trading frenzy.`\
+https://nytimes.com/2021/11/19/business/robinhood-meme-stock-lawsuit.html?searchResultPosition=1
 
 **These Influencers Found the Zillow Houses We Love to Hate**\
 `Online listing sites offer a window into what is possible, but the social media accounts that lampoon them give us the chance to ogle what never should have been.`\
