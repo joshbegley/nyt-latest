@@ -16,7 +16,7 @@ https://nytimes.com/2021/11/19/nyregion/cuomo-assembly-report-impeach.html?searc
 
 **Former Professor Is Indicted in ‘Arson Spree’ in California**\
 `Prosecutors say Gary Stephen Maynard set four fires this summer as one of the largest wildfires in California history raged nearby.`\
-https://nytimes.com/2021/11/19/us/california-wildfires-arson-gary-stephen-maynard.html?searchResultPosition=5
+https://nytimes.com/2021/11/19/us/california-wildfires-gary-stephen-maynard.html?searchResultPosition=5
 
 **Bob Bondurant, Car Racer Who Tutored Actors on the Track, Dies at 88**\
 `After a racetrack accident put him in the hospital, he pivoted to open a driving school, where his students included Paul Newman, Tom Cruise and Christian Bale.`\
