@@ -16,7 +16,7 @@ https://nytimes.com/video/us/politics/100000008084098/biden-trudeau-lopez-obrado
 
 **How to Ease the Worry of Holiday Gathering**\
 `For many people, coping with the anxiety of going out and about may be the hardest part of adjusting to this next phase of pandemic life.`\
-https://nytimes.com/2021/11/18/well/family/holiday-gathering-covid.html?searchResultPosition=5
+https://nytimes.com/2021/11/18/well/family/holiday-gathering-covid-risk.html?searchResultPosition=5
 
 **Critic of Teamsters leader claims victory in race to succeed him.**\
 `Sean O’Brien said he would be more aggressive than the incumbent, James P. Hoffa, in his approach to Amazon and UPS.`\
