@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/18/technology/cryptocurrency-group-loses-bid-for-cop
 
 **C. Tangana, un rapero español que rompe géneros**\
 `Con un recorrido por la música de generaciones pasadas y un surtido transcontinental de colaboradores, el álbum “El madrileño” insiste en que la música de España no debe estar aislada ni ser elitista.`\
-https://nytimes.com/2021/11/18/espanol/c-tangana-tu-me-dejaste-de-querer.html?searchResultPosition=3
+https://nytimes.com/2021/11/18/espanol/c-tangana-grammy-latinos.html?searchResultPosition=3
 
 **Review: ‘Trouble in Mind,’ 66 Years Late and Still On Time**\
 `Alice Childress’s 1955 play about power and race in the theater is a satire and a tragedy that deserves to be a classic.`\
