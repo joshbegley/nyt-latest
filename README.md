@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/18/nyregion/jimmy-hoffa-fbi-investigation.html?searc
 `Closing arguments from both sides in the civil trial were on Thursday. The heart of the case is whether the defendants engaged in a race-based violent conspiracy.`\
 https://nytimes.com/2021/11/18/us/charlottesville-rally-trial-takeaways.html?searchResultPosition=9
 
-**Shohei Ohtani Was Already the M.V.P. for His Superfans**\
+**Everyone Agrees: Shohei Ohtani is A.L.’s M.V.P.**\
 `The Angels’ two-way star inspires extreme devotion from his most ardent supporters. Baseball writers agreed, unanimously giving him the A.L.’s Most Valuable Player Award.`\
 https://nytimes.com/2021/11/18/sports/baseball/shohei-ohtani-al-mvp.html?searchResultPosition=10
 
