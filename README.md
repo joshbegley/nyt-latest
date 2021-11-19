@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/19/science/lunar-eclipse-photos.html?searchResultPos
 
 **Jazz at Lincoln Center Reopens, With Four Young Players in the Spotlight**\
 `The Jazz at Lincoln Center Orchestra returned to indoor performance with “Wynton at 60,” a program featuring Marsalis originals and a quartet of up-and-coming trumpeters.`\
-https://nytimes.com/2021/11/19/arts/music/jazz-at-lincoln-center-reopening-marsalis.html?searchResultPosition=2
+https://nytimes.com/2021/11/19/arts/music/jazz-lincoln-center-marsalis.html?searchResultPosition=2
 
 **Biden Briefly Transferred Power to Harris During Medical Procedure**\
 `President Biden, who will undergo a physical and colonoscopy on Friday, is the oldest commander in chief to receive a full medical evaluation while in office.`\
