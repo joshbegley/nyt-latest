@@ -1,40 +1,40 @@
+**‘Patria y vida’: de rap a himno de protesta en Cuba**\
+`La canción se ha convertido en la banda sonora de un movimiento creciente de protesta en Cuba. Ahora está nominada a dos premios Grammy Latinos.`\
+https://nytimes.com/2021/11/18/espanol/patria-vida-cuba-grammy-latino.html?searchResultPosition=1
+
 **‘Patria y Vida’: How a Cuban rap song became a protest anthem.**\
-`By Oscar Lopez`\
-https://nytimes.com/2021/11/18/arts/music/patria-y-vida-how-a-cuban-rap-song-became-a-protest-anthem.html?searchResultPosition=1
+`Nominated for song of the year, the track became an anthem for a burgeoning movement of young people in Cuba demanding an end to political oppression and economic misery.`\
+https://nytimes.com/2021/11/18/arts/music/patria-y-vida-cuba-protest-song.html?searchResultPosition=2
 
 **Cambodia’s reopening is propelled by vaccinations.**\
 `Tourism-dependent businesses have struggled to make ends meet without visitors.`\
-https://nytimes.com/2021/11/18/world/cambodia-fully-vaccinated-tourists.html?searchResultPosition=2
+https://nytimes.com/2021/11/18/world/cambodia-fully-vaccinated-tourists.html?searchResultPosition=3
 
 **Variety: Acrostic**\
 `Emily Cox and Henry Rathvon give us an excellent reason to eat and be merry.`\
-https://nytimes.com/2021/11/18/crosswords/variety-acrostic.html?searchResultPosition=3
+https://nytimes.com/2021/11/18/crosswords/variety-acrostic.html?searchResultPosition=4
 
 **Don’t Sweat the Naysayers**\
 `John Hawksley gives us some excellent advice at 55A. And the rest of his puzzle is awesome, too.`\
-https://nytimes.com/2021/11/18/crosswords/daily-puzzle-2021-11-19.html?searchResultPosition=4
+https://nytimes.com/2021/11/18/crosswords/daily-puzzle-2021-11-19.html?searchResultPosition=5
 
 **Prosecutor Asks Assailant if Arbery Ever Threatened Him**\
 `On the 10th and final day of testimony, the prosecutor cross examined Travis McMichael, the man who fatally shot Ahmaud Arbery.`\
-https://nytimes.com/video/us/100000008084239/arbery-prosecution-mcmichael.html?searchResultPosition=5
+https://nytimes.com/video/us/100000008084239/arbery-prosecution-mcmichael.html?searchResultPosition=6
 
 **Cryptocurrency group loses bid for copy of U.S. Constitution.**\
 `ConstitutionDAO, a “decentralized autonomous organization,” had raised more than $40 million to bid for the artifact.`\
-https://nytimes.com/2021/11/18/technology/cryptocurrency-group-loses-bid-for-copy-of-us-constitution.html?searchResultPosition=6
+https://nytimes.com/2021/11/18/technology/cryptocurrency-group-loses-bid-for-copy-of-us-constitution.html?searchResultPosition=7
 
 **C. Tangana, un rapero español que rompe géneros**\
 `Con un recorrido por la música de generaciones pasadas y un surtido transcontinental de colaboradores, el álbum “El madrileño” insiste en que la música de España no debe estar aislada ni ser elitista.`\
-https://nytimes.com/2021/11/18/espanol/c-tangana-grammy-latinos.html?searchResultPosition=7
+https://nytimes.com/2021/11/18/espanol/c-tangana-grammy-latinos.html?searchResultPosition=8
 
 **Review: ‘Trouble in Mind,’ 66 Years Late and Still On Time**\
 `Alice Childress’s 1955 play about power and race in the theater is a satire and a tragedy that deserves to be a classic.`\
-https://nytimes.com/2021/11/18/theater/trouble-in-mind-review.html?searchResultPosition=8
+https://nytimes.com/2021/11/18/theater/trouble-in-mind-review.html?searchResultPosition=9
 
 **Joe Biden Is Succeeding**\
 `Voters may pummel Democrats next year but future generations will be grateful. `\
-https://nytimes.com/2021/11/18/opinion/biden-infrastructure-stimulus-bill.html?searchResultPosition=9
-
-**El artista con más nominaciones este año: Camilo**\
-`El cantante y compositor colombiano de gran bigote tiene diez nominaciones en los Grammy Latinos.`\
-https://nytimes.com/2021/11/18/espanol/camilo-grammy-latinos.html?searchResultPosition=10
+https://nytimes.com/2021/11/18/opinion/biden-infrastructure-stimulus-bill.html?searchResultPosition=10
 
