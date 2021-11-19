@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/19/us/rev-w-sterling-cary-dead.html?searchResultPosi
 
 **Watch Live: Jury Reaches a Decision in Kyle Rittenhouse Trial**\
 `Mr. Rittenhouse faces five felony charges for his actions on the night of Aug. 25, 2020, in Kenosha, Wis.`\
-https://nytimes.com/video/us/100000008078105/live-video-rittenhouse-verdict.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/100000008078105/live-video-rittenhouse-verdict.html?searchResultPosition=8
 
 **Celebrating Dostoyevsky’s 200th Birthday**\
 `The illustrator Dave McKean honors the great Russian writer by remembering one of the most defining moments of his life.`\
