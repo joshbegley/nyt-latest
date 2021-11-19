@@ -30,7 +30,7 @@ https://nytimes.com/2021/11/19/learning/film-club-a-ship-from-guantanamo.html?se
 `The remarks came in response to a reporter’s question as neighboring Austria prepares to lock down and cases continue to reach record levels.`\
 https://nytimes.com/2021/11/19/world/europe/germany-covid-lockdown.html?searchResultPosition=8
 
-**Boosters for All?**\
+**Boosters for All**\
 `The U.S. may soon offer booster shots to every adult. Here’s why.`\
 https://nytimes.com/2021/11/19/briefing/booster-eligibility-us-fda.html?searchResultPosition=9
 
