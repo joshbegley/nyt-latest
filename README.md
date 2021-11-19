@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/19/sports/peng-shaui-china.html?searchResultPosition
 
 **‘Woke Left Mob’ Influenced Jury in Trial of Arbery Murder Suspects, Lawyer Says**\
 `The defense lawyer for one of three men accused of murdering Ahmaud Arbery unsuccessfully moved for a mistrial. Closing arguments are scheduled for Monday in Brunswick, Ga.`\
-https://nytimes.com/2021/11/19/us/ahmaud-arbery-murder-suspects-defense-lawyer-mistrial.html?searchResultPosition=2
+https://nytimes.com/2021/11/19/us/ahmaud-arbery-defense-lawyer-mistrial.html?searchResultPosition=2
 
 **What’s in the $2.2 Trillion Social Policy and Climate Bill**\
 `The package includes $400 billion to bolster support for children and families, $555 billion for climate change programs and $166 billion in housing aid.`\
