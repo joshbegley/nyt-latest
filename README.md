@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/19/business/stock-buybacks-tax.html?searchResultPosi
 
 **How to Make the Best Thanksgiving Topping**\
 `Add crispiness to just about any dish with this shallot and bread crumb crunch from Samin Nosrat.`\
-https://nytimes.com/interactive/2021/11/19/dining/samin-crunch-burst.html?searchResultPosition=2
+https://nytimes.com/interactive/2021/11/19/dining/shallot-bread-crumb-crunch.html?searchResultPosition=2
 
 **C.D.C. Panel Endorses Covid Vaccine Booster Shots for All Adults**\
 `As infections rise, Americans over 18 will be permitted to get extra doses. But it’s not clear boosters really are needed by so many people, or that the shots will turn back the pandemic.`\
