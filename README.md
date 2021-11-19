@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/19/business/stock-market-bonds-crash.html?searchResu
 `Will the crowds be enough to recoup months of lost revenue?`\
 https://nytimes.com/2021/11/19/nyregion/nyc-clubs-pandemic-debt.html?searchResultPosition=9
 
-**When You Want to Give Someone the Whole World**\
-`Bellerby & Co. creates globes that can include hometowns, favorite destinations and even pets. Or sea monsters.`\
-https://nytimes.com/2021/11/19/fashion/globes-bellerby-and-company-london.html?searchResultPosition=10
+**Can a Machine Learn Morality?**\
+`Researchers at a Seattle A.I. lab say they have built a system that makes ethical judgments. But its judgments can be as confusing as those of humans.`\
+https://nytimes.com/2021/11/19/technology/can-a-machine-learn-morality.html?searchResultPosition=10
 
