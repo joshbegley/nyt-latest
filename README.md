@@ -11,7 +11,7 @@ https://nytimes.com/2021/11/19/world/asia/japan-stimulus.html?searchResultPositi
 https://nytimes.com/2021/11/19/podcasts/the-daily/belarus-poland-migrant-crisis-european-union.html?searchResultPosition=3
 
 **Kevin McCarthy Speaks for More Than Eight Hours to Delay a House Vote**\
-`The House minority leader began talking at 8:38 p.m. Thursday. He stopped a little after 5 a.m. Friday.`\
+`The House minority leader began talking at 8:38 p.m. Thursday. He stopped at 5:10 a.m. Friday.`\
 https://nytimes.com/2021/11/19/us/politics/kevin-mccarthy-speech.html?searchResultPosition=4
 
 **In New York City, a Contemporary Take on Traditional Korean Cuisine**\
