@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/19/dining/what-to-cook-this-weekend.html?searchResul
 `This month’s picks include a Polish procedural, a Kazakh dark comedy, a Tunisian social-realist drama, and more.`\
 https://nytimes.com/2021/11/19/movies/international-movies-streaming.html?searchResultPosition=3
 
-**Discussions of Race Are Notably Absent in Trial of Arbery’s Accused Killers**\
+**Discussions of Race Are Notably Absent in Trial of Arbery Murder Suspects**\
 `Many outside observers say Ahmaud Arbery’s death at the hands of three white men is a prominent example of racial violence. But the jury never heard that argument.`\
 https://nytimes.com/2021/11/19/us/ahmaud-arbery-shooting-race.html?searchResultPosition=4
 
