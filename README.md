@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/19/learning/lesson-plans/lesson-of-the-day-whats-emerging-from-the-melting-ice.html?searchResultPosition=1
 
 **Making It Official: Verdict Overturned in Malcolm X Case**\
-`Two men convicted in 1966 were cleared. One spoke about the ‘travesty of justice’ he lived through.`\
+`Two men convicted in 1966 were cleared. One spoke about the “travesty of justice” he lived through.`\
 https://nytimes.com/2021/11/19/nyregion/making-it-official-verdict-overturned-in-malcolm-x-case.html?searchResultPosition=2
 
 **What Does Mateship Mean to You?**\
