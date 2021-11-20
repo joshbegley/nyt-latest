@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/19/opinion/kyle-rittenhouse-not-guilty-vigilantes.ht
 
 **Legends, Often**\
 `Mary Lou Guizzo makes her return, in collaboration with Jeff Chen.`\
-https://nytimes.com/2021/11/19/crosswords/legends-often.html?searchResultPosition=2
+https://nytimes.com/2021/11/19/crosswords/daily-puzzle-2021-11-20.html?searchResultPosition=2
 
 **Fact-Checking Kevin McCarthy’s 8-Hour Speech**\
 `The House Republican leader made a number of false or misleading claims about the social spending bill, President Biden, immigration policy and Teslas.`\
