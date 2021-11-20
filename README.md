@@ -2,7 +2,7 @@
 `His images of David Bowie, Lou Reed, Queen and others helped define the 1970s. He was still shooting the stars decades later.`\
 https://nytimes.com/2021/11/20/arts/music/mick-rock-dead.html?searchResultPosition=1
 
-**Ray Dalio Says ‘If You Worry, You Don’t Have to Worry’**\
+**Ray Dalio Says, ‘If You Worry, You Don’t Have to Worry’**\
 `The billionaire founder of the world’s largest hedge fund talked with DealBook about China, inflation and “The Changing World Order,” his new book about empires.`\
 https://nytimes.com/2021/11/20/business/dealbook/ray-dalio.html?searchResultPosition=2
 
