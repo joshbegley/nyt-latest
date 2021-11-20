@@ -1,40 +1,40 @@
-**How Much Does Biden’s Spending Bill Actually Cost?**\
-`The climate change and social policy measure that the House just passed includes about $2.2 trillion worth of spending programs and tax cuts. But there are many ways to tally its price tag.`\
-https://nytimes.com/2021/11/20/us/politics/biden-spending-bill-cost.html?searchResultPosition=1
+**Global Rivalries Are Miring the Clean Energy Revolution**\
+`The quest for Congo’s cobalt, which is vital for electric vehicles and the worldwide push against climate change, is caught in a cycle of exploitation, greed and gamesmanship.`\
+https://nytimes.com/2021/11/20/world/china-congo-cobalt.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/20/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Beaver Dams Mean No Love Lost for Canada’s Emblematic Animal**\
+`Blamed for flooded fields, damaged roads and the occasional death, the beaver, which has played a seminal role in Canadian history, is now viewed by many as a problem, not a point of national pride.`\
+https://nytimes.com/2021/11/20/world/canada/canada-beaver-dams.html?searchResultPosition=2
 
-**Corrections: Nov. 20, 2021**\
-`Corrections that appeared in print on Saturday, Nov. 20, 2021.`\
-https://nytimes.com/2021/11/20/pageoneplus/corrections-nov-20-2021.html?searchResultPosition=3
+**Family Unvisited, Travel a No-Go: The Hard Costs of High Gas Prices**\
+`They hit their highest level since 2014 last month, forcing Americans to rejigger household budgets and forgo leisure activities.`\
+https://nytimes.com/2021/11/20/business/high-cost-of-gas.html?searchResultPosition=3
 
-**Quotation of the Day: Other Traditions Fade, but This One Has Legs**\
-`Quotation of the Day for Saturday, November 20, 2021.`\
-https://nytimes.com/2021/11/20/todayspaper/quotation-of-the-day-other-traditions-fade-but-this-one-has-legs.html?searchResultPosition=4
+**Inside Fentanyl’s Mounting Death Toll: ‘This Is Poison’**\
+`While a rise in overdose deaths shows the devastating consequences of the opioid’s spread, less is understood about how the drug has proliferated.`\
+https://nytimes.com/2021/11/20/nyregion/fentanyl-opioid-deaths.html?searchResultPosition=4
 
-**Protesters Take to the Streets After Rittenhouse Verdict**\
-`Protesters gathered outside the Barclays Center in Brooklyn, N.Y., to voice their opposition to the jury’s decision to acquit Kyle Rittenhouse on all accounts.`\
-https://nytimes.com/video/us/100000008086316/rittenhouse-verdict-protests.html?searchResultPosition=5
+**One Historic Black Neighborhood’s Stake in the Infrastructure Bill**\
+`Generations of New Orleans residents have dreamed of the day when the Claiborne Expressway might be removed. President Biden’s $1.2 trillion infrastructure package could eventually make that possible.`\
+https://nytimes.com/2021/11/20/us/claiborne-expressway-new-orleans-infrastructure.html?searchResultPosition=5
 
-**Rittenhouse and the Right’s White Vigilante Heroes**\
-`The great threat is that there are young men out there who watched the verdict and now want to follow Rittenhouse’s lead.`\
-https://nytimes.com/2021/11/19/opinion/kyle-rittenhouse-not-guilty-vigilantes.html?searchResultPosition=6
+**The Godmother of ‘Plant-Based’ Living**\
+`Frances Moore Lappé, the author of “Diet for a Small Planet,” which was published 50 years ago and spurred a movement toward vegetarianism, looks back on her legacy.`\
+https://nytimes.com/2021/11/20/style/the-godmother-of-plant-based-living.html?searchResultPosition=6
 
-**Legends, Often**\
-`Mary Lou Guizzo makes her return, in collaboration with Jeff Chen.`\
-https://nytimes.com/2021/11/19/crosswords/daily-puzzle-2021-11-20.html?searchResultPosition=7
+**When Can the Covid Masks Finally Come Off?**\
+`Although the end of mask mandates is in sight, restrictions should remain in place through the holidays, experts say.`\
+https://nytimes.com/2021/11/20/health/coronavirus-masks-mandates.html?searchResultPosition=7
 
-**Fact-Checking Kevin McCarthy’s 8-Hour Speech**\
-`The House Republican leader made a number of false or misleading claims about the social spending bill, President Biden, immigration policy and Teslas.`\
-https://nytimes.com/2021/11/19/us/politics/kevin-mccarthy-speech-fact-check.html?searchResultPosition=8
+**Career Coaching Today: Forget the Corporate Ladder and Find Yourself**\
+`The pandemic created a great reckoning among workers. Here to serve them is a raft of newfangled career coaches.`\
+https://nytimes.com/2021/11/20/business/career-spiritual-coaching-pandemic.html?searchResultPosition=8
 
-**The Australian Open will require players to be fully vaccinated.**\
-`The rule casts doubt on the participation of Novak Djokovic and others.`\
-https://nytimes.com/2021/11/19/sports/tennis/australian-open-vaccine-requirement.html?searchResultPosition=9
+**How Hunter Biden’s Firm Helped Secure Cobalt for the Chinese**\
+`The president’s son was part owner of a venture involved in the $3.8 billion purchase by a Chinese conglomerate of one of the world’s largest cobalt deposits. The metal is a key ingredient in batteries for electric vehicles.`\
+https://nytimes.com/2021/11/20/world/hunter-biden-china-congo-cobalt.html?searchResultPosition=9
 
-**Lunar Eclipse Seen Around the World**\
-`The partial eclipse on Thursday night and early Friday morning lasted more than six hours. The last partial eclipse of this duration was in the 1440s.`\
-https://nytimes.com/video/science/100000008086302/lunar-eclipse-video.html?searchResultPosition=10
+**To Breed or Not to Breed?**\
+`In a world of pandemic chaos, political strife and climate catastrophe, some would-be parents see the future as too dark to procreate.`\
+https://nytimes.com/2021/11/20/style/breed-children-climate-change.html?searchResultPosition=10
 
