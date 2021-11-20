@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/20/us/pelosi-democrats-biden-agenda.html?searchResul
 
 **Covid Vaccine Gets Muted Welcome in Land Awash in Bigger Problems**\
 `Much of South Sudan is under water from flooding induced by climate change and deforestation. Crops and livestock are lost, hunger and malaria are spreading. With so many worries, coronavirus vaccines are a tough sell.`\
-https://nytimes.com/2021/11/20/world/africa/south-sudan-covid-floods.html?searchResultPosition=8
+https://nytimes.com/2021/11/20/world/africa/south-sudan-covid-flooding.html?searchResultPosition=8
 
 **White House Expresses Concern Over Peng Shuai’s Disappearance**\
 `Jen Psaki, the White House press secretary, said the U.S. had joined calls for the People’s Republic of China to provide proof of Peng Shuai’s whereabouts. The tennis star became unreachable after making public allegations of sexual assault against a former high-ranking Chinese official.`\
