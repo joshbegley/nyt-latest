@@ -31,7 +31,7 @@ https://nytimes.com/2021/11/20/opinion/democrat-trump-elections.html?searchResul
 https://nytimes.com/2021/11/20/opinion/police-traffic-stops-deaths.html?searchResultPosition=8
 
 **Thousands in Austria Protest Virus Lockdown and Vaccine Mandate**\
-`The protests were largely peaceful, but as dusk fell over the Austrian capital, skirmishes broke out between officers and groups of demonstrators`\
+`The protests were largely peaceful, but as dusk fell over the Austrian capital, skirmishes broke out between officers and groups of demonstrators.`\
 https://nytimes.com/2021/11/20/world/europe/austria-lockdown-vaccine-mandate-covid.html?searchResultPosition=9
 
 **Demonstrators Rally Against Italy’s Health Pass**\
