@@ -26,7 +26,7 @@ https://nytimes.com/video/world/australia/100000008086651/australia-coronavirus-
 `Do Democrats need Trump to save them from an unexpected demographic eclipse?`\
 https://nytimes.com/2021/11/20/opinion/democrat-trump-elections.html?searchResultPosition=7
 
-**When the Police Kill Without Cause**\
+**Train the Police to Keep the Peace, Not Turn a Profit**\
 `A Times investigation sheds light on an unjust practice.`\
 https://nytimes.com/2021/11/20/opinion/police-traffic-stops-deaths.html?searchResultPosition=8
 
