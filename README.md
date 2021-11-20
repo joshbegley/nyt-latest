@@ -1,5 +1,5 @@
 **Rittenhouse and the Right’s White Vigilante Heroes**\
-`The great threat is that there are young men out there who watched the  verdict and now want to follow Rittenhouse’s lead.`\
+`The great threat is that there are young men out there who watched the verdict and now want to follow Rittenhouse’s lead.`\
 https://nytimes.com/2021/11/19/opinion/kyle-rittenhouse-not-guilty-vigilantes.html?searchResultPosition=1
 
 **Legends, Often**\
