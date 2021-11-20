@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/20/world/asia/covid-singapore-restrictions-easing.ht
 
 **Race to the Future: What to Know About the Frantic Quest for Cobalt**\
 `A New York Times investigation examines the global demand for raw materials as the clean energy revolution takes off. This is what we found.`\
-https://nytimes.com/2021/11/20/world/china-congo-cobalt-takeaways.html?searchResultPosition=10
+https://nytimes.com/2021/11/20/world/china-congo-cobalt-explained.html?searchResultPosition=10
 
