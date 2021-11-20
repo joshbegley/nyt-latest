@@ -16,7 +16,7 @@ https://nytimes.com/2021/11/20/books/read-like-the-wind.html?searchResultPositio
 
 **Austria braces for violence at mass protests over Covid measures.**\
 `The police in Vienna said that 10 of 11 demonstrations registered for Saturday involved protests over rules including a newly announced lockdown and vaccine requirement.`\
-https://nytimes.com/2021/11/20/world/europe/covid-austria-vienna-protests.html?searchResultPosition=5
+https://nytimes.com/2021/11/20/world/europe/austria-covid-lockdown-vaccine-mandate.html?searchResultPosition=5
 
 **What’s Next for the Migrants in Belarus?**\
 `How President Lukashenko might respond to the crisis he made.`\
