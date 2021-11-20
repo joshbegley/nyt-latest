@@ -20,7 +20,7 @@ https://nytimes.com/2021/11/19/nyregion/damian-williams-civil-rights.html?search
 
 **Concern and Anger Build Over Missing Athlete’s Sexual Assault Allegations**\
 `The case of Peng Shuai has prompted the women’s tennis tour to rethink its heavy focus in China, where it has threatened to pull events if it cannot verify that she is safe and that her allegations are investigated.`\
-https://nytimes.com/2021/11/19/sports/peng-shaui-china.html?searchResultPosition=6
+https://nytimes.com/2021/11/19/sports/peng-shuai-china.html?searchResultPosition=6
 
 **‘Woke Left Mob’ Influenced Jury in Trial of Arbery Murder Suspects, Lawyer Says**\
 `The defense lawyer for one of three men accused of murdering Ahmaud Arbery unsuccessfully moved for a mistrial. Closing arguments are scheduled for Monday in Brunswick, Ga.`\
