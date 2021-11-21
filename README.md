@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/21/dining/what-to-cook-this-week.html?searchResultPo
 
 **Vancouver Is Marooned by Flooding and Besieged Again by Climate Change**\
 `After a summer of deadly heat and uncontrolled wildfires, British Columbia was hit by record rainfalls that forced the evacuation of towns and destroyed highways and rail lines.`\
-https://nytimes.com/2021/11/21/vancouver-flooding-climate-change.html?searchResultPosition=3
+https://nytimes.com/2021/11/21/canada-flooding-climate-change.html?searchResultPosition=3
 
 **As Pandemic Evictions Rise, Spaniards Declare ‘War’ on Wall Street Landlords**\
 `Protesters in Barcelona are pushing back against foreign investment firms that have bought up thousands of homes over the past decade and are forcing out residents who can’t pay the rent.`\
