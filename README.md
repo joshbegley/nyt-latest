@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/21/world/middleeast/palestinian-shooting-jerusalem-o
 https://nytimes.com/2021/11/21/us/cold-case-solved-candy-rogers-spokane.html?searchResultPosition=4
 
 **Sick of the Status Quo, Chileans Head to the Polls**\
-`The top contenders to lead Chile out of a turbulent era are a leftist 35-year-old former student activist and a 55-year-old far-right former congressman, presenting voters a stark choice.`\
+`The top contenders to lead Chile out of a turbulent era are a leftist 35-year-old former student activist and a 55-year-old far-right former congressman, offering voters a stark choice.`\
 https://nytimes.com/2021/11/21/world/americas/chile-election-boric-kast.html?searchResultPosition=5
 
 **What’s Going On in This Picture? | Nov. 22, 2021**\
