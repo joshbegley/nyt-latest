@@ -1,5 +1,5 @@
-**With an Iran Deal Further Away Than Ever, Risks of Confrontation Grow**\
-`As Iran’s new administration prepares for its first international nuclear negotiations, there are signs that there will be no going back to a 2015 deal.`\
+**As Hopes for Nuclear Deal Fade, Iran Rebuilds and Risks Grow**\
+`With Iran’s new administration preparing for its first international nuclear negotiations, there are signs that there will be no going back to the 2015 agreement.`\
 https://nytimes.com/2021/11/21/us/politics/iran-nuclear-standoff.html?searchResultPosition=1
 
 **With a Second ATP Finals Win, Alexander Zverev Proves He Is Rising**\
