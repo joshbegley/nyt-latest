@@ -22,8 +22,8 @@ https://nytimes.com/2021/11/21/opinion/astroworld-rust-surfside-conspiracies-cat
 `The easing of restrictions comes as the holiday travel season is about to begin.`\
 https://nytimes.com/2021/11/21/world/asia/asian-countries-reopen-tourism.html?searchResultPosition=6
 
-**Israeli Is Killed by Palestinian Militant Near Holiest Site in Jerusalem**\
-`The shooting was the first attack by a Palestinian since May to result in the death of a Jewish civilian. Attempted assaults in the Old City are relatively common, but are usually stopped.`\
+**Israeli Is Killed by Disguised Palestinian Militant Near Holiest Site in Jerusalem**\
+`The shooting, the first attack by a Palestinian since May to result in the death of a Jewish civilian, could deepen tensions within Israel’s fragile governing coalition.`\
 https://nytimes.com/2021/11/21/world/middleeast/shooting-israel-jerusalem.html?searchResultPosition=7
 
 **Suspect’s Family Helps Crack Unsolved Killing From 1959**\
