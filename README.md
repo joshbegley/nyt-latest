@@ -26,15 +26,15 @@ https://nytimes.com/2021/11/21/opinion/thanksgiving-gratitude.html?searchResultP
 `Some tips for thawing turkey and a road map for meals that aren’t Thanksgiving-themed.`\
 https://nytimes.com/2021/11/21/dining/what-to-cook-this-week.html?searchResultPosition=7
 
+**Covid-19 surge strains Michigan’s hospitals.**\
+`Staffing shortages and pandemic fatigue add to complications.`\
+https://nytimes.com/2021/11/21/world/michigan-covid-surge.html?searchResultPosition=8
+
 **Vancouver Is Marooned by Flooding and Besieged Again by Climate Change**\
 `After a summer of deadly heat and uncontrolled wildfires, British Columbia was hit by record rainfalls that forced the evacuation of towns and destroyed highways and rail lines.`\
-https://nytimes.com/2021/11/21/canada-flooding-climate-change.html?searchResultPosition=8
+https://nytimes.com/2021/11/21/canada-flooding-climate-change.html?searchResultPosition=9
 
 **As Pandemic Evictions Rise, Spaniards Declare ‘War’ on Wall Street Landlords**\
 `Protesters in Barcelona are pushing back against foreign investment firms that have bought up thousands of homes over the past decade and are forcing out residents who can’t pay the rent.`\
-https://nytimes.com/2021/11/21/world/europe/spain-evictions-cerberus-covid.html?searchResultPosition=9
-
-**Conspiracist or Reformist: Which One Are You When Disaster Strikes?**\
-`From the Salem witch trials to the Astroworld disaster, conspiracy theories and reformist narratives have battled for dominance in the American consciousness. `\
-https://nytimes.com/2021/11/21/opinion/astroworld-rust-surfside-conspiracies-catastrophes.html?searchResultPosition=10
+https://nytimes.com/2021/11/21/world/europe/spain-evictions-cerberus-covid.html?searchResultPosition=10
 
