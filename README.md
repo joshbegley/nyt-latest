@@ -1,6 +1,6 @@
 **Playwright Is in Exile as Cuba Uses an Old Playbook to Quash Dissent**\
 `Yunior García, one of the rising stars of the Cuban protest movement, fled to Spain. He is one of a young generation of artists who say they have chosen exile over imprisonment.`\
-https://nytimes.com/2021/11/21/world/americas/cuba-playwright-exile-spain.html?searchResultPosition=1
+https://nytimes.com/2021/11/21/world/americas/yunior-garcia-exile-spain.html?searchResultPosition=1
 
 **Ardeshir Zahedi, Irrepressible Iranian Diplomat, Dies at 93**\
 `While he enabled business deals worth billions of dollars, he also hosted lavish parties, led conga lines through his embassy and dated Elizabeth Taylor.`\
