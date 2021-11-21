@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/20/us/elijah-mcclain-settlement.html?searchResultPosition=1
 
 **Videos Said to Be of Peng Shuai Don’t Resolve Questions About Her Safety**\
-`The editor of a state-run newspaper on Saturday shared two clips said to be of the Chinese tennis star on Twitter. But they are unverified, and the head of the WTA called them “insufficient.”`\
+`The editor of a state-run newspaper on Saturday shared clips said to be of the Chinese tennis star on Twitter. But they are unverified, and the head of the WTA called them “insufficient.”`\
 https://nytimes.com/2021/11/20/sports/tennis/peng-shuai-video.html?searchResultPosition=3
 
 **Screen Sharing**\
