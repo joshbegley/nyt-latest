@@ -1,6 +1,6 @@
 **Thanksgiving Will Cost More This Year. That Could Cost Democrats, Too.**\
 `Rising prices for gas and a holiday meal could come back to bite Democrats, who fear that inflation may upend their electoral prospects in the 2022 midterms.`\
-https://nytimes.com/2021/11/21/us/politics/rising-prices-inflation-democrats.html?searchResultPosition=1
+https://nytimes.com/2021/11/21/us/politics/thanksgiving-higher-prices.html?searchResultPosition=1
 
 **Lincoln vs. the Constitution? Not So Fast.**\
 `Lincoln, the Emancipation Proclamation and the Constitution. Also: A call for gratitude; arena as metaphor; disparate energy burdens.`\
