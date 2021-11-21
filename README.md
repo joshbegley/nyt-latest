@@ -1,6 +1,6 @@
 **Video of Peng Shuai With Olympic Officials Fuels a Showdown With Tennis**\
 `The Chinese tennis star held a 30-minute video call with the leader of the International Olympic Committee, but the head of women’s professional tennis remained unable to reach her.`\
-https://nytimes.com/2021/11/21/sports/tennis/peng-shuai-ioc.html?searchResultPosition=1
+https://nytimes.com/2021/11/21/sports/tennis/peng-shuai-video-ioc.html?searchResultPosition=1
 
 **Who should get a booster shot? It depends, Dr. Scott Gottlieb says.**\
 `It depends on what the goal of vaccination is`\
