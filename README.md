@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/21/us/politics/iran-nuclear-standoff.html?searchResultPosition=1
 
 **With a Second ATP Finals Win, Alexander Zverev Proves He Is Rising**\
-`This year gave the 24-year-old German star six singles titles, Olympic gold, an ATP Finals trophy, and an ongoing tour investigation into allegations of physical abuse against a former girlfriend.`\
+`This year gave the 24-year-old German star six singles titles, Olympic gold, an ATP Finals trophy, but also an ongoing tour investigation into allegations of physical abuse against a former girlfriend.`\
 https://nytimes.com/2021/11/21/sports/tennis/alexander-zverev-atp-finals.html?searchResultPosition=2
 
 **Review: ‘The Alchemist,’ a Play in Search of Comedy Gold**\
