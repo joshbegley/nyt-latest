@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/21/canada-flooding-climate-change.html?searchResultP
 
 **As Pandemic Evictions Rise, Spaniards Declare ‘War’ on Wall Street Landlords**\
 `Protesters in Barcelona are pushing back against foreign investment firms that have bought up thousands of homes over the past decade and are forcing out residents who can’t pay the rent.`\
-https://nytimes.com/2021/11/21/world/europe/spain-evictions-covid.html?searchResultPosition=4
+https://nytimes.com/2021/11/21/world/europe/spain-evictions-cerberus-covid.html?searchResultPosition=4
 
 **Conspiracist or Reformist: Which One Are You When Disaster Strikes?**\
 `From the Salem witch trials to the Astroworld disaster, conspiracy theories and reformist narratives have battled for dominance in the American consciousness. `\
