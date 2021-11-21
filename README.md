@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/21/world/middleeast/shooting-israel-jerusalem.html?s
 
 **Suspect’s Family Helps Crack Unsolved Killing From 1959**\
 `The murder of 9-year-old Candice Rogers rocked Spokane, Wash. On Friday, the police identified John Reigh Hoff as a suspect, and said his daughter helped them solve the case.`\
-https://nytimes.com/2021/11/21/us/cold-case-solved-candy-rogers-spokane.html?searchResultPosition=10
+https://nytimes.com/2021/11/21/us/candy-rogers-murder-case-solved.html?searchResultPosition=10
 
