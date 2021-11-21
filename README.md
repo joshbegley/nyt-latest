@@ -16,7 +16,7 @@ https://nytimes.com/2021/11/21/world/asia/asian-countries-reopen-tourism.html?se
 
 **Israeli Is Killed by Palestinian Militant Near Holiest Site in Jerusalem**\
 `The shooting was the first attack by a Palestinian since May to result in the death of a Jewish civilian. Attempted assaults in the Old City are relatively common, but are usually stopped.`\
-https://nytimes.com/2021/11/21/world/middleeast/palestinian-shooting-jerusalem-old-city.html?searchResultPosition=5
+https://nytimes.com/2021/11/21/world/middleeast/shooting-israel-jerusalem.html?searchResultPosition=5
 
 **Suspect’s Family Helps Crack Unsolved Killing From 1959**\
 `The murder of 9-year-old Candice Rogers rocked Spokane, Wash. On Friday, the police identified John Reigh Hoff as a suspect, and said his daughter helped them solve the case.`\
