@@ -2,7 +2,7 @@
 `Hundreds of desperate Iraqis are being sent home after becoming political pawns in Belarus’s quarrel with its European Union neighbors.`\
 https://nytimes.com/2021/11/22/world/middleeast/belarus-iraqi-migrant-deportations.html?searchResultPosition=1
 
-**55 Years Ago, He Shot Malcolm X. Now He Lives Quietly in Brooklyn.**\
+**56 Years Ago, He Shot Malcolm X. Now He Lives Quietly in Brooklyn.**\
 `Mujahid Abdul Halim is the one man who confessed to his role in the assassination. He long insisted that the two men convicted with him were innocent.`\
 https://nytimes.com/2021/11/22/nyregion/malcolm-x-assassination-halim-hayer.html?searchResultPosition=2
 
