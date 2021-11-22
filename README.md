@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/22/business/target-thanksgiving-closed.html?searchRe
 
 **Who is Lael Brainard, President Biden’s pick for the Fed’s vice chair?**\
 `She was in the mix to potentially replace Jerome Powell as Fed chair, but Mr. Biden’s decision to elevate her to the Fed’s No. 2 role will still place her in a powerful position.`\
-https://nytimes.com/2021/11/22/us/politics/lael-brainard-federal-reserve.html?searchResultPosition=3
+https://nytimes.com/article/lael-brainard-federal-reserve.html?searchResultPosition=3
 
 **Assembly Finds ‘Overwhelming Evidence’ Cuomo Engaged in Sexual Harassment**\
 `The New York State Assembly Judiciary Committee’s findings reinforced an earlier state attorney general’s report on former Gov. Andrew M. Cuomo.`\
