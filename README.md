@@ -1,6 +1,6 @@
 **Magnus Inc.: The Business of Being World Chess Champion**\
 `Winning is what made Magnus Carlsen a household name. But it is teaching and selling the game to others that has made him rich.`\
-https://nytimes.com/2021/11/22/sports/magnus-inc-the-business-of-being-world-chess-champion.html?searchResultPosition=1
+https://nytimes.com/2021/11/22/sports/magnus-carlsen-chess.html?searchResultPosition=1
 
 **Robert Bly, Poet Who Gave Rise to a Men’s Movement, Dies at 94**\
 `His most famous, and most controversial, work was “Iron John: A Book About Men,” which made a case that American men had grown soft and feminized. It made him a cultural phenomenon.`\
