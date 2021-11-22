@@ -1,5 +1,5 @@
 **Sean Parnell Suspends G.O.P. Senate Bid in Pennsylvania**\
-`Mr. Parnell, who was endorsed by Donald Trump and was seen as a leading contender in one of the highest-profile 2022 Senate races, had been accused by his estranged wife of spousal and child abuse.`\
+`Mr. Parnell, who was endorsed by Donald Trump in one of the highest-profile 2022 Senate races, had been accused by his estranged wife of spousal and child abuse.`\
 https://nytimes.com/2021/11/22/us/politics/sean-parnell-suspends-pennsylvania-senate.html?searchResultPosition=1
 
 **Biden Renominates Powell as Fed Chair**\
