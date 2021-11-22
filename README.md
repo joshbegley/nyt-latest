@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/22/business/media/kevin-spacey-house-of-cards-breach
 https://nytimes.com/paidpost/phillip-morris-usa/the-transformative-power-of-inclusion.html?searchResultPosition=2
 
 **Doctor Who Swabbed Cuomo Describes a Health Department in Shambles**\
-`The N.Y. Health Department became a “toxic work environment” early in the pandemic, a senior official told officials investigating ex-Gov. Andrew M. Cuomo.`\
+`The N.Y. Health Department became a “toxic work environment” early in the pandemic, a senior doctor told officials investigating ex-Gov. Andrew Cuomo.`\
 https://nytimes.com/2021/11/22/nyregion/cuomo-covid-health-department.html?searchResultPosition=3
 
 **Your Tuesday Briefing**\
