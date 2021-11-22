@@ -18,7 +18,7 @@ https://nytimes.com/video/business/economy/100000008089130/biden-powell-fed-lael
 `A reporter joins an expedition in the Pacific Ocean to recover a tusk from the seafloor.`\
 https://nytimes.com/interactive/2021/11/22/science/ocean-tusk-treasure.html?searchResultPosition=5
 
-**Why Was This Ancient Tusk 150 Miles From Land, 3,000 Feet Deep?**\
+**Why Was This Ancient Tusk 150 Miles From Land, 10,000 Feet Deep?**\
 `A discovery in the Pacific Ocean off California leads to “an Indiana Jones mixed with Jurassic Park moment.”`\
 https://nytimes.com/2021/11/22/science/mammoth-tusk-ocean.html?searchResultPosition=6
 
