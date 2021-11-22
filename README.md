@@ -1,6 +1,6 @@
 **What Is Your Reaction to the Verdict in the Kyle Rittenhouse Trial?**\
 `Have you been following the case? What do you think about the verdict?`\
-https://nytimes.com/2021/11/22/learning/what-is-your-reaction-to-the-verdict-in-the-kyle-rittenhouse-trial.html?searchResultPosition=1
+https://nytimes.com/2021/11/22/learning/kyle-rittenhouse-verdict-reaction.html?searchResultPosition=1
 
 **Defense Says Travis McMichael Was Driven by a Sense of Duty**\
 `The lawyer for Travis McMichael, one of the men accused of murdering Ahmaud Arbery, highlighted the influence of Mr. McMichael’s service in the U.S. Coast Guard.`\
