@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/22/nyregion/steven-banks-resigns-nyc-social-services
 `Nir Hefetz, a former spokesman for Benjamin Netanyahu, is a state witness at the former prime minister’s corruption trial, which was once at the heart of a constitutional crisis.`\
 https://nytimes.com/2021/11/22/world/middleeast/israel-netanyahu-trial-hefetz.html?searchResultPosition=3
 
-**Macy’s Parade Is Back This Thanksgiving, but Kids Are Sidelined**\
+**Macy’s Parade Is Back This Thanksgiving, Without Kids on Floats**\
 `The tradition has been largely restored, but children under 12 years old will not be allowed in the parade — only as spectators.`\
 https://nytimes.com/2021/11/22/arts/macys-parade-thanksgiving-2021.html?searchResultPosition=4
 
