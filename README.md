@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/22/business/elizabeth-holmes-will-resume-her-testimo
 `Here’s a rundown of what happened and what is at stake in the trial over the 2020 shooting of Ahmaud Arbery near Brunswick, Ga.`\
 https://nytimes.com/2021/11/22/us/arbery-murder-trial-explained.html?searchResultPosition=9
 
-**As Germans seek booster shots, supplies of the Pfizer vaccine dwindle.**\
-`A strong fourth Covid wave has led to a renewed run on vaccines.`\
-https://nytimes.com/2021/11/22/world/europe/germany-pfizer-vaccines-boosters.html?searchResultPosition=10
+**Here are the charges the defendants face in the Arbery murder trial.**\
+`Taken together, the charges provide a number of different ways that the defendants, Gregory McMichael, Travis McMichael and William Bryan, could wind up facing life in prison if they are convicted.`\
+https://nytimes.com/2021/11/22/us/charges-arbery-murder-trial.html?searchResultPosition=10
 
