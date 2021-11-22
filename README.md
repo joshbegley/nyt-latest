@@ -23,7 +23,7 @@ https://nytimes.com/2021/11/21/sports/terence-crawford-shawn-porter-fight.html?s
 https://nytimes.com/2021/11/21/sports/football/nfl-week-11-scores.html?searchResultPosition=6
 
 **Multiple Dead After Driver Plows S.U.V. Into Holiday Parade in Wisconsin**\
-`Officials said more than 20 people were struck after the vehicle sped down the street during the parade in Waukesha, Wis., near Milwaukee.`\
+`Officials said dozens of people were struck after the vehicle sped down the street during the parade in Waukesha, Wis., near Milwaukee.`\
 https://nytimes.com/2021/11/21/us/wisconsin-parade-crash-shooting.html?searchResultPosition=7
 
 **As Hopes for Nuclear Deal Fade, Iran Rebuilds and Risks Grow**\
