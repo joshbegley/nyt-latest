@@ -1,4 +1,4 @@
-**How Peng Shuai Went from ‘Chinese Princess’ to Silenced #MeToo Victim**\
+**How Peng Shuai Went From ‘Chinese Princess’ to Silenced #MeToo Accuser**\
 `The tennis star won independence while remaining in Beijing’s good graces. But she has been unable to break through China’s resistance to sexual assault allegations.`\
 https://nytimes.com/2021/11/22/world/asia/china-peng-shuai-metoo.html?searchResultPosition=1
 
