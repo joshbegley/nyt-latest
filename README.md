@@ -10,13 +10,13 @@ https://nytimes.com/2021/11/22/upshot/powell-brainard-fed-biden.html?searchResul
 `Prosecutors also say that Theranos faked demonstrations of its technology and falsified validation reports from pharmaceutical companies and the financial health of its business.`\
 https://nytimes.com/2021/11/22/technology/elizabeth-holmes-accusations.html?searchResultPosition=3
 
-**Brooklyn Museum to Receive $50 Million Gift From City of New York**\
-`The funding will be the largest capital investment in the museum’s nearly 200-year history.`\
-https://nytimes.com/2021/11/22/arts/design/city-gives-brooklyn-museum-50-million.html?searchResultPosition=4
-
 **Concerns Grow Over Safety of Aduhelm After Death of Patient Who Got the Drug**\
 `Newly published safety data shows that 41 percent of patients in key clinical trials of the Alzheimer’s drug experienced brain bleeding or swelling, though many cases were asymptomatic.`\
-https://nytimes.com/2021/11/22/health/aduhelm-death-safety.html?searchResultPosition=5
+https://nytimes.com/2021/11/22/health/aduhelm-death-safety.html?searchResultPosition=4
+
+**Brooklyn Museum to Receive $50 Million Gift From City of New York**\
+`The funding will be the largest capital investment in the museum’s nearly 200-year history.`\
+https://nytimes.com/2021/11/22/arts/design/city-gives-brooklyn-museum-50-million.html?searchResultPosition=5
 
 **Your Turkey’s Thawing, Right?**\
 `Get your dry brines ready and explore these 40 easy recipes for the nights before Thanksgiving.`\
