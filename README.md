@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/21/sports/terence-crawford-shawn-porter-fight.html?searchResultPosition=1
 
 **What We Learned From Week 11 in the N.F.L.**\
-`The Colts’ Jonathan Taylor has entered the M.V.P. discussion, Kirk Cousins extended his credibility with a win over the Packers, and Cam Newton is not a cure-all for Carolina.`\
+`The Colts’ Jonathan Taylor has entered the M.V.P. discussion, Kansas City’s defense shocked Dallas, and Cam Newton is not a cure-all for Carolina.`\
 https://nytimes.com/2021/11/21/sports/football/nfl-week-11-scores.html?searchResultPosition=2
 
 **Driver Plows S.U.V. Into Holiday Parade in Wisconsin**\
