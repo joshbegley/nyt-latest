@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/21/sports/football/nfl-week-11-scores.html?searchRes
 
 **Driver Plows S.U.V. Into Holiday Parade in Wisconsin**\
 `A witness said the vehicle sped down the street as the parade, in Waukesha, Wis., near Milwaukee, was going on. It was not clear how many people were injured.`\
-https://nytimes.com/2021/11/21/us/wisconsin-parade-shooting.html?searchResultPosition=3
+https://nytimes.com/2021/11/21/us/wisconsin-parade-crash-shooting.html?searchResultPosition=3
 
 **As Hopes for Nuclear Deal Fade, Iran Rebuilds and Risks Grow**\
 `With Iran’s new administration preparing for its first international nuclear negotiations, there are signs that there will be no going back to the 2015 agreement.`\
