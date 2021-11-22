@@ -24,7 +24,7 @@ https://nytimes.com/2021/11/22/us/coronavirus-briefing-what-happened-today.html?
 
 **House Panel Subpoenas Roger Stone and Alex Jones in Capitol Riot Inquiry**\
 `The House committee summoned five more allies of former President Donald J. Trump as it dug further into the planning and financing of rallies before the Jan. 6 attack.`\
-https://nytimes.com/2021/11/22/us/politics/house-jan-6-inquiry-subpoenas-roger-stone-and-alex-jones.html?searchResultPosition=7
+https://nytimes.com/2021/11/22/us/politics/capitol-riot-subpoenas-roger-stone-alex-jones.html?searchResultPosition=7
 
 **‘Nothing Changes Except With Violence’**\
 `What I saw in Portland and Kenosha has convinced me: We must stop tearing ourselves apart so that we can build.`\
