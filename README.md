@@ -1,5 +1,5 @@
 **Biden taps Lael Brainard for vice chair, a move that could shake things up at the Fed.**\
-`The longtime Washington insider is now the central bank’s number two. That could give her more bandwidth to influence policy.`\
+`The longtime Washington insider is now the central bank’s No. 2. That could give her more bandwidth to influence policy.`\
 https://nytimes.com/2021/11/22/business/economy/lael-brainard-fed-vice-chair.html?searchResultPosition=1
 
 **President Biden will keep Jerome Powell as Fed chair, resisting political pressure for a shake-up.**\
