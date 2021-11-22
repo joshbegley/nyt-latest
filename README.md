@@ -30,7 +30,7 @@ https://nytimes.com/2021/11/22/us/coronavirus-briefing-what-happened-today.html?
 `Investigators summoned five more allies of former President Donald J. Trump as they dug further into the planning and financing of rallies before the Jan. 6 attack.`\
 https://nytimes.com/2021/11/22/us/politics/capitol-riot-subpoenas-roger-stone-alex-jones.html?searchResultPosition=8
 
-**‘Nothing Changes Except With Violence’**\
+**Kenosha, Portland, and the Lies We Must Leave Behind**\
 `What I saw in Portland and Kenosha has convinced me: We must stop tearing ourselves apart so that we can build.`\
 https://nytimes.com/2021/11/22/opinion/politics/kenosha-rittenhouse-2020-protests.html?searchResultPosition=9
 
