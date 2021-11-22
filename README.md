@@ -36,5 +36,5 @@ https://nytimes.com/video/us/100000008087230/ahmaud-arbery-killing-trial-livestr
 
 **Elizabeth Holmes will resume her testimony in her fraud trial.**\
 `The founder of Theranos unexpectedly took the stand in her own defense on Friday, the latest twist in a trial that has captivated Silicon Valley.`\
-https://nytimes.com/2021/11/22/business/elizabeth-holmes-will-resume-her-testimony-in-her-fraud-trial.html?searchResultPosition=10
+https://nytimes.com/2021/11/22/business/elizabeth-holmes-testimony.html?searchResultPosition=10
 
