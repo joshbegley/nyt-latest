@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/23/opinion/russia-putin-west.html?searchResultPosition=1
 
 **Bulgaria Bus Crash Kills at Least 45**\
-`The bus, which had North Macedonian plates, caught fire on a highway, anofficial said.`\
+`The bus, which had North Macedonian plates, caught fire on a highway, an official said.`\
 https://nytimes.com/2021/11/23/world/europe/bulgaria-bus-crash-north-macedonia.html?searchResultPosition=2
 
 **Jeffrey Epstein Psychological Reconstruction**\
