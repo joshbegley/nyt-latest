@@ -1,6 +1,6 @@
 **What is your pandemic fitness routine?**\
 `We’re also looking for tips on getting into shape.`\
-https://nytimes.com/2021/11/23/nyregion/what-is-your-pandemic-fitness-routine.html?searchResultPosition=1
+https://nytimes.com/2021/11/23/nyregion/what-is-your-pandemic-workout-routine.html?searchResultPosition=1
 
 **In Venezuela’s Flawed Vote, Maduro Shows One Way to Retain Power**\
 `European observers said the elections were neither free nor fair. They showed how President Nicolás Maduro’s government, however unpopular, can win by excluding and splitting opponents.`\
