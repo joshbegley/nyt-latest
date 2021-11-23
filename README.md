@@ -1,40 +1,40 @@
-**How to Give Back to Our Pets**\
-`Pets have given us much love and support during Covid times. Hear from the experts how to return the favor and unlock pet happiness.`\
-https://nytimes.com/paidpost/petkit/how-to-give-back-to-our-pets.html?searchResultPosition=1
+**The Latest Farm Product: Carbon Credits**\
+`Global cropland has the potential to sequester as much as 570 million metric tons of carbon per year. New projects that pay farmers to adopt climate-friendly practices could help.`\
+https://nytimes.com/2021/11/23/business/dealbook/farm-carbon-credits.html?searchResultPosition=1
 
-**Tourists Dribble in Again**\
-`With U.S. borders open again, “I ♥ Tourists” is the mantra for restaurateurs and hotel operators. But some do not expect a  rebound until next year.`\
-https://nytimes.com/2021/11/23/nyregion/tourists-dribble-in-again.html?searchResultPosition=2
+**Is the Four-Day Workweek Finally Within Our Grasp?**\
+`After embracing flexible work styles during the pandemic, some companies are now embracing a shorter week.`\
+https://nytimes.com/2021/11/23/business/dealbook/four-day-workweek.html?searchResultPosition=2
 
-**Lesson of the Day: ‘A New Kind of Native American Dance Troupe’**\
-`In this lesson, students will learn about how a Native American dance troupe is challenging expectations and fighting for representation.`\
-https://nytimes.com/2021/11/23/learning/lesson-plans/lesson-of-the-day-a-new-kind-of-native-american-dance-troupe.html?searchResultPosition=3
+**Pediatricians say Covid cases in children are on the rise.**\
+`Cases in children in the United States have risen by 32 percent from about two weeks ago, amid a rush to inoculate children ahead of the winter holiday season.`\
+https://nytimes.com/2021/11/23/us/covid-cases-children.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/23/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**As Virus Cases Rise in Europe, an Economic Toll Returns**\
+`A series of restrictions, including a lockdown in Austria, is expected to put a brake on economic growth.`\
+https://nytimes.com/2021/11/23/business/economy/europe-covid-economy.html?searchResultPosition=4
 
-**Morality Plays**\
-`Are morals universal or relative?`\
-https://nytimes.com/2021/11/23/learning/morality-plays.html?searchResultPosition=5
+**‘Once We’re Gone, We’re Not Coming Back’**\
+`In Nebraska, a 151-year-old family farm struggles to survive.`\
+https://nytimes.com/2021/11/23/business/taxes-family-farm.html?searchResultPosition=5
 
-**Late Night Celebrates Biden’s 79th Birthday**\
-`Jimmy Fallon joked that when the president blew out his candles, “everyone started clapping and the lights went on and off.”`\
-https://nytimes.com/2021/11/23/arts/television/jimmy-fallon-biden-79th-birthday.html?searchResultPosition=6
+**Why an NPR Quiz Show Panelist Loves Her ‘Messy Apartment’**\
+`Faith Salie, known for, among other things, her role on ‘Wait, Wait … Don’t Tell Me!,’ is ‘evangelical about the Upper West Side.’`\
+https://nytimes.com/2021/11/23/realestate/why-an-npr-quiz-show-panelist-loves-her-messy-apartment.html?searchResultPosition=6
 
-**Why China Can’t Bury Peng Shuai and Its #MeToo Scandal**\
-`Accustomed to forcing messages on audiences at home and abroad, its propaganda machine hasn’t learned how to craft a narrative that stands up to scrutiny.`\
-https://nytimes.com/2021/11/23/business/china-peng-shuai-metoo.html?searchResultPosition=7
+**Faith Salie: ‘The Furniture I Want Is Whatever Is Here”**\
+`“When you’re renting and when you have kids,” said Ms. Salie, the NPR quiz show panelist, “there are many times when you say, ‘It’s fine.’`\
+https://nytimes.com/slideshow/2021/11/23/realestate/faith-salie-the-furniture-i-want-is-whatever-is-here.html?searchResultPosition=7
 
-**Word of the Day: deleterious**\
-`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/11/23/learning/word-of-the-day-deleterious.html?searchResultPosition=8
+**Enslaved to a Founding Father, She Sought Freedom in France**\
+`Brought from America to Paris by John Jay, an enslaved woman named Abigail died there trying to win her liberty as the statesman negotiated the freedom of the new nation.`\
+https://nytimes.com/2021/11/23/travel/john-jay-paris-abigail-slavery.html?searchResultPosition=8
 
-**No, Putin Isn’t Trying to Bring Down the West**\
-`Moscow has other concerns.`\
-https://nytimes.com/2021/11/23/opinion/russia-putin-west.html?searchResultPosition=9
+**More Women Than Men Are Going to College. That May Change the Economy.**\
+`The rising gender gap in college education — currently three women for every two men — might turn out to be one of the most transformative trends of our time.`\
+https://nytimes.com/2021/11/23/business/dealbook/women-college-economy.html?searchResultPosition=9
 
-**Bulgaria Bus Crash Kills at Least 45**\
-`The bus, which had North Macedonian plates, caught fire on a highway, an official said.`\
-https://nytimes.com/2021/11/23/world/europe/bulgaria-bus-crash-north-macedonia.html?searchResultPosition=10
+**The Hubble Telescope Checks In With the Most Distant Planets**\
+`The spacecraft’s farseeing eye once again sets its gaze on Jupiter, Saturn, Uranus and Neptune.`\
+https://nytimes.com/2021/11/23/science/hubble-telescope-jupiter-saturn-uranus-neptune.html?searchResultPosition=10
 
