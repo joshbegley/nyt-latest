@@ -31,7 +31,7 @@ https://nytimes.com/2021/11/23/sports/football/giants-buccaneers-brady-judge.htm
 https://nytimes.com/2021/11/23/us/california-crab-season.html?searchResultPosition=8
 
 **Watch Live: Closing Arguments in the Ahmaud Arbery Murder Trial**\
-`The prosecution gives its rebuttal to the defense’s closing arguments before the jury starts deliberations.`\
+`The prosecution gives its rebuttal to the defense’s closing arguments before the jury starts deliberations. Warning: This feed may contain graphic images.`\
 https://nytimes.com/video/us/100000008089740/ahmaud-arbery-killing-trial-livestream.html?searchResultPosition=9
 
 **Italy Frees Convicted Killer of U.K. Student Meredith Kercher**\
