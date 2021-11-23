@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/23/technology/clearview-facial-recognition-accuracy.
 
 **What We Know and Don’t Know About the Wisconsin Parade Attack**\
 `The suspect’s motivations are unclear in a tragedy that left five people dead and dozens more injured during a Christmas parade in Waukesha.`\
-https://nytimes.com/2021/11/23/us/wisconsin-parade-attack-what-we-know.html?searchResultPosition=8
+https://nytimes.com/article/wisconsin-parade-attack-what-we-know.html?searchResultPosition=8
 
 **President Biden will tap into U.S. oil reserves in concert with other nations.**\
 `In an attempt to reduce global energy prices, the White House will release 50 million barrels of crude oil along with Britain, China, India, Japan and South Korea.`\
