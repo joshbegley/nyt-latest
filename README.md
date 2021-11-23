@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/23/us/wisconsin-parade-attack-what-we-know.html?sear
 
 **President Biden will tap into U.S. oil reserves in concert with other nations.**\
 `To reduce global energy prices, the White House will release 50 million barrels of crude oil along with Britain, China, India, Japan and South Korea.`\
-https://nytimes.com/2021/11/23/business/president-biden-will-tap-into-us-oil-reserves-in-concert-with-other-nations.html?searchResultPosition=2
+https://nytimes.com/2021/11/23/business/biden-oil-reserves-gas-prices.html?searchResultPosition=2
 
 **Hayao Miyazaki Prepares to Cast One Last Spell**\
 `No artist has explored the contradictions of humanity as sympathetically and critically as the Japanese animation legend. Now, at 80, he’s coming out of retirement with another movie.`\
