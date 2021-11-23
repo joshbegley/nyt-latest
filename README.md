@@ -2,7 +2,7 @@
 `A Homeland Security investigation had discovered funerary objects, Neolithic relics and more in a shipping container in 2009.`\
 https://nytimes.com/2021/11/22/arts/design/us-mali-looted-antiquities-returned.html?searchResultPosition=1
 
-**Chun Doo-hwan, Ex-Military Dictator of South Korea, Dies at 90**\
+**Chun Doo-hwan, Ex-Military Dictator in South Korea, Dies at 90**\
 `The country’s most vilified former military dictator, he seized power in a coup and ruled his country with an iron fist for most of the 1980s.`\
 https://nytimes.com/2021/11/23/world/asia/chun-doo-hwan-dead.html?searchResultPosition=2
 
