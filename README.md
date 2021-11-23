@@ -1,6 +1,6 @@
 **Here’s what to know about Sunny Balwani.**\
 `As he waits for his own trial to begin in January, Elizabeth Holmes’s partner at Theranos and former partner in life is nowhere to be seen.`\
-https://nytimes.com/2021/11/23/technology/who-is-sunny-balwani.html?searchResultPosition=1
+https://nytimes.com/2021/11/23/technology/who-is-sunny-ramesh-balwani.html?searchResultPosition=1
 
 **Lesson of the Day: ‘These Americans Are Just Going Around in Circles. It Helps the Climate.’**\
 `In this lesson, students will learn about the roundabouts that have improved traffic in a town in Indiana. Then, they will redesign a problematic intersection in their community.`\
