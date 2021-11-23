@@ -23,7 +23,7 @@ https://nytimes.com/2021/11/23/health/zena-stein-dead.html?searchResultPosition=
 https://nytimes.com/2021/11/23/world/buffalo-covid-mask-mandate.html?searchResultPosition=6
 
 **‘I Can’t Just Quit’**\
-`Sika Henry is the first African American woman to be recognized as a pro triathlete. But a horrible bicycle crash in 2019 nearly thwarted her lifelong dream.`\
+`Sika Henry is the first African American woman to be recognized as a pro triathlete. But a horrible bicycle crash in 2019 nearly thwarted her dream.`\
 https://nytimes.com/2021/11/23/sports/sika-henry-triathlon.html?searchResultPosition=7
 
 **Biden Taps Into U.S. Oil Reserves Amid Rising Prices**\
