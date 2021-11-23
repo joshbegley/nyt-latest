@@ -1,6 +1,6 @@
 **Chun Doo-hwan, Ex-Military Dictator of South Korea, Dies at 90**\
 `The country’s most vilified former military dictator, he seized power in a coup and ruled his country with an iron fist for most of the 1980s.`\
-https://nytimes.com/2021/11/22/world/asia/chun-doo-hwan-dead.html?searchResultPosition=1
+https://nytimes.com/2021/11/23/world/asia/chun-doo-hwan-dead.html?searchResultPosition=1
 
 **Victims at Christmas Parade Were Young Musicians and Dancing Grannies**\
 `Five adults died in Waukesha, Wis., and at least 10 children were in intensive care. Three were members of a Milwaukee dance troupe, which celebrated grandmothers.`\
