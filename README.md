@@ -26,15 +26,15 @@ https://nytimes.com/2021/11/23/business/black-neighborhoods-history-revitalizati
 `So far in his tenure, the president has given far fewer one-on-one interviews than his two predecessors. Some Democrats are asking if he could be making better use of his White House pulpit.`\
 https://nytimes.com/2021/11/23/business/media/biden-media-strategy.html?searchResultPosition=7
 
+**Regardless of the verdict, the Arbery murder suspects still face federal hate-crime charges.**\
+`The suspects were each charged by the Justice Department with interfering with Ahmaud Arbery’s right to use a public street because of his race, and with attempted kidnapping.`\
+https://nytimes.com/2021/11/23/us/arbery-suspects-hate-crime-charges.html?searchResultPosition=8
+
 **Bucs Rout the Giants, Who Point the Finger at Themselves**\
 `‘We didn’t do anything really well enough to win the game,’ Coach Joe Judge said after watching his team fall to 3-7.`\
-https://nytimes.com/2021/11/23/sports/football/giants-buccaneers-brady-judge.html?searchResultPosition=8
+https://nytimes.com/2021/11/23/sports/football/giants-buccaneers-brady-judge.html?searchResultPosition=9
 
 **Another Thanksgiving. Another Crab Season Delay.**\
 `Fishermen in the Bay Area and other parts of California are grappling with an ever-shortening crab season.`\
-https://nytimes.com/2021/11/23/us/california-crab-season.html?searchResultPosition=9
-
-**Watch Live: Closing Arguments in the Ahmaud Arbery Murder Trial**\
-`The prosecution gives its rebuttal to the defense’s closing arguments before the jury starts deliberations. Warning: This feed may contain graphic images. The trial is currently on break.`\
-https://nytimes.com/video/us/100000008089740/ahmaud-arbery-killing-trial-livestream.html?searchResultPosition=10
+https://nytimes.com/2021/11/23/us/california-crab-season.html?searchResultPosition=10
 
