@@ -32,7 +32,7 @@ https://nytimes.com/interactive/2021/11/23/smarter-living/wirecutter/thanksgivin
 
 **Dollar Tree will raise prices to $1.25 by the end of April.**\
 `The price increases come as dollar stores have been struggling with a slowdown in sales and shrinking profits.`\
-https://nytimes.com/2021/11/23/business/dollar-tree-price-increase-inflation.html?searchResultPosition=9
+https://nytimes.com/2021/11/23/business/dollar-tree-price-increase.html?searchResultPosition=9
 
 **Get up from market volatility with an overlooked market segment**\
 `Amid the ongoing Covid-19 crisis, market swings caused by the pandemic have created an opportunity for investors to reposition their portfolios.`\
