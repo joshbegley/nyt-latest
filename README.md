@@ -1,40 +1,40 @@
-**Listen to Your Daily Audio Report**\
-`This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03282017.html?searchResultPosition=1
+**Grammys Snubs and Surprises: Kacey Musgraves, Jon Batiste and Abba**\
+`A jazz musician snagged the most nominations, and the Weeknd, an artist who said he’s boycotting the awards, found his name on the ballot.`\
+https://nytimes.com/2021/11/23/arts/music/snubs-surprises-grammy-awards.html?searchResultPosition=1
+
+**College Football Games to Watch This Week**\
+`There are a handful of high-stakes games this week. Here are the rivalries we recommend watching.`\
+https://nytimes.com/interactive/2021/11/23/sports/ncaafootball/college-football-highlights.html?searchResultPosition=2
 
 **Listen to Your Daily Audio Report**\
 `This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03312017.html?searchResultPosition=2
+https://nytimes.com/audio/2021/11/23/podcasts/DAILY03282017.html?searchResultPosition=3
 
 **Listen to Your Daily Audio Report**\
 `This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03302017.html?searchResultPosition=3
+https://nytimes.com/audio/2021/11/23/podcasts/DAILY03312017.html?searchResultPosition=4
 
 **Listen to Your Daily Audio Report**\
 `This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03292017.html?searchResultPosition=4
+https://nytimes.com/audio/2021/11/23/podcasts/DAILY03302017.html?searchResultPosition=5
 
 **Listen to Your Daily Audio Report**\
 `This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03272017.html?searchResultPosition=5
+https://nytimes.com/audio/2021/11/23/podcasts/DAILY03292017.html?searchResultPosition=6
 
 **Listen to Your Daily Audio Report**\
 `This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03242017.html?searchResultPosition=6
+https://nytimes.com/audio/2021/11/23/podcasts/DAILY03272017.html?searchResultPosition=7
 
 **Listen to Your Daily Audio Report**\
 `This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03232017.html?searchResultPosition=7
+https://nytimes.com/audio/2021/11/23/podcasts/DAILY03242017.html?searchResultPosition=8
 
 **Listen to Your Daily Audio Report**\
 `This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03222017.html?searchResultPosition=8
+https://nytimes.com/audio/2021/11/23/podcasts/DAILY03232017.html?searchResultPosition=9
 
 **Listen to Your Daily Audio Report**\
 `This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03212017.html?searchResultPosition=9
-
-**Listen to Your Daily Audio Report**\
-`This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
-https://nytimes.com/audio/2021/11/23/podcasts/DAILY03202017.html?searchResultPosition=10
+https://nytimes.com/audio/2021/11/23/podcasts/DAILY03222017.html?searchResultPosition=10
 
