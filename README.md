@@ -6,13 +6,13 @@ https://nytimes.com/2021/11/23/briefing/covid-surge-us-thanksgiving-cases.html?s
 `Is it possible to undo the damage done to Black communities by the expressway projects of the 20th century?`\
 https://nytimes.com/2021/11/23/podcasts/the-daily/claiborne-highway-biden-infrastructure-package.html?searchResultPosition=2
 
-**The Latest Farm Product: Carbon Credits**\
-`Global cropland has the potential to sequester as much as 570 million metric tons of carbon per year. New projects that pay farmers to adopt climate-friendly practices could help.`\
-https://nytimes.com/2021/11/23/business/dealbook/farm-carbon-credits.html?searchResultPosition=3
-
 **Is the Four-Day Workweek Finally Within Our Grasp?**\
 `After embracing flexible work styles during the pandemic, some companies are now embracing a shorter week.`\
-https://nytimes.com/2021/11/23/business/dealbook/four-day-workweek.html?searchResultPosition=4
+https://nytimes.com/2021/11/23/business/dealbook/four-day-workweek.html?searchResultPosition=3
+
+**The Latest Farm Product: Carbon Credits**\
+`Global cropland has the potential to sequester as much as 570 million metric tons of carbon per year. New projects that pay farmers to adopt climate-friendly practices could help.`\
+https://nytimes.com/2021/11/23/business/dealbook/farm-carbon-credits.html?searchResultPosition=4
 
 **Pediatricians say Covid cases in children are on the rise.**\
 `Cases in children in the United States have risen by 32 percent from about two weeks ago, amid a rush to inoculate children ahead of the winter holiday season.`\
