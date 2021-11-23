@@ -4,7 +4,7 @@ https://nytimes.com/2021/11/22/world/asia/chun-doo-hwan-dead.html?searchResultPo
 
 **Victims at Christmas Parade Were Young Musicians and Dancing Grannies**\
 `Five adults died in Waukesha, Wis., and at least 10 children were in intensive care. Three were members of a Milwaukee dance troupe, which celebrated grandmothers.`\
-https://nytimes.com/2021/11/22/us/waukesha-victims-dancing-grannies.html?searchResultPosition=2
+https://nytimes.com/article/waukesha-victims-dancing-grannies.html?searchResultPosition=2
 
 **Lawyers Clash Over Whether Pursuit of Arbery Was Justified**\
 `In closing arguments on Monday, prosecutors also raised a racial motive for why the three white men accused of murdering Ahmaud Arbery began chasing him.`\
