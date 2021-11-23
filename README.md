@@ -36,5 +36,5 @@ https://nytimes.com/2021/11/23/books/anomaly-herve-le-tellier.html?searchResultP
 
 **The Good, the Bad and the Jazzy: What ‘Cowboy Bebop’ Gets Right and Wrong**\
 `“Cowboy Bebop” is widely considered one of the best anime series of all time. Does Netflix’s live-action adaptation recapture the magic? Yes and no.`\
-https://nytimes.com/2021/11/23/arts/cowboy-bebop.html?searchResultPosition=10
+https://nytimes.com/2021/11/23/arts/television/cowboy-bebop.html?searchResultPosition=10
 
