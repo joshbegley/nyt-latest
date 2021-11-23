@@ -31,7 +31,7 @@ https://nytimes.com/2021/11/23/technology/clearview-facial-recognition-accuracy.
 https://nytimes.com/2021/11/23/us/wisconsin-parade-attack-what-we-know.html?searchResultPosition=8
 
 **President Biden will tap into U.S. oil reserves in concert with other nations.**\
-`To reduce global energy prices, the White House will release 50 million barrels of crude oil along with Britain, China, India, Japan and South Korea.`\
+`In an attempt to reduce global energy prices, the White House will release 50 million barrels of crude oil along with Britain, China, India, Japan and South Korea.`\
 https://nytimes.com/2021/11/23/business/biden-oil-reserves-gas-prices.html?searchResultPosition=9
 
 **Hayao Miyazaki Prepares to Cast One Last Spell**\
