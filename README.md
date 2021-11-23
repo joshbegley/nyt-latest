@@ -1,4 +1,4 @@
-**Canadian Photographer Arrested at Indigenous Protest Is Freed on Bail**\
+**2 Canadian Journalists Arrested at Indigenous Protest Are Freed on Bail**\
 `Journalist groups denounced the arrest of a photographer and a filmmaker covering an Indigenous pipeline protest in British Columbia.`\
 https://nytimes.com/2021/11/22/world/canada/canada-indigenous-journalist-arrests.html?searchResultPosition=1
 
