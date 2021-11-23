@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/23/arts/boiling-point-review.html?searchResultPositi
 
 **The Latest Covid Surge**\
 `And how to make sense of it.`\
-https://nytimes.com/2021/11/23/briefing/covid-surge-us-thanksgiving-cases.html?searchResultPosition=3
+https://nytimes.com/2021/11/23/briefing/us-covid-surge-thanksgiving.html?searchResultPosition=3
 
 **Righting the Historical Wrong of the Claiborne Highway**\
 `Is it possible to undo the damage done to Black communities by the expressway projects of the 20th century?`\
