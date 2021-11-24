@@ -18,8 +18,8 @@ https://nytimes.com/2021/11/24/business/jake-wood-team-rubicon-groundswell-corne
 `A senior league offers community and competition for women as old as 95.`\
 https://nytimes.com/2021/11/24/us/san-diego-womens-basketball.html?searchResultPosition=5
 
-**Watch Live: Jury Could Reach Decision in Ahmaud Arbery Murder Trial**\
-`Jurors may announce a decision in the trial of the three men accused of killing Ahmaud Arbery. Gregory McMichael, Travis McMichael and William Bryan are charged with malice murder, and four other felonies for aggravated assault and false imprisonment.`\
+**Watch Live: Jury Deliberates For the Second Day in Ahmaud Arbery Murder Trial**\
+`Jurors are deliberating for a second day in the trial of the three men accused of killing Ahmaud Arbery.`\
 https://nytimes.com/video/us/100000008090585/video-arbery-murder-trial-verdict.html?searchResultPosition=6
 
 **What’s next for Angela Merkel?**\
