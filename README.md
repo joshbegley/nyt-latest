@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/24/books/when-reader-meets-writer.html?searchResultP
 
 **C.D.C. Eases Up on Dog Travel Ban**\
 `The agency will now allow some pets to be brought back into the United States from 113 countries considered as high risk for rabies.`\
-https://nytimes.com/2021/11/24/travel/cdc-eases-dog-travel-ban.html?searchResultPosition=3
+https://nytimes.com/2021/11/24/travel/cdc-dog-travel-ban.html?searchResultPosition=3
 
 **Italy announces new restrictions for the unvaccinated.**\
 `People who refuse a shot will be barred from a wide range of social activities, including indoor dining at restaurants and bars, and attending shows and sport events.`\
