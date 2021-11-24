@@ -11,7 +11,7 @@ https://nytimes.com/2021/11/24/dining/drinks/mezcal-scotch-smoky-cocktails.html?
 https://nytimes.com/2021/11/24/well/mind/holiday-social-anxiety.html?searchResultPosition=3
 
 **The head of Instagram agrees to testify as Congress probes the app’s effects on young people.**\
-`This will be the first time Adam Mosseri, a trusted lieutenant to Mark Zuckerberg, will testify to lawmakers under oath.`\
+`This will be the first time Adam Mosseri, a trusted lieutenant to Mark Zuckerberg, will appear before lawmakers under oath.`\
 https://nytimes.com/2021/11/24/technology/adam-mosseri-instagram-testify-congress.html?searchResultPosition=4
 
 **Art Basel Miami Beach Returns, Smaller but Ready to Party**\
