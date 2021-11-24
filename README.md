@@ -22,7 +22,7 @@ https://nytimes.com/2021/11/24/briefing/thanksgiving-covid-rapid-test.html?searc
 `A government minister sued and won over a brief Twitter post that called him a “rape apologist.” A journalist sees “asymmetric warfare.”`\
 https://nytimes.com/2021/11/24/world/australia/defamation-lawsuit.html?searchResultPosition=6
 
-**The Indian Farmers’ Fight**\
+**The Farmers Revolt in India**\
 `How agricultural workers organized, protested and faced down Prime Minister Narendra Modi — and scored an unlikely victory.`\
 https://nytimes.com/2021/11/24/podcasts/the-daily/india-farmers-protest.html?searchResultPosition=7
 
