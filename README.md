@@ -2,8 +2,8 @@
 `A senior league offers community and competition for women as old as 95.`\
 https://nytimes.com/2021/11/24/us/san-diego-womens-basketball.html?searchResultPosition=1
 
-**Watch Live: Jury Reaches Decision in Ahmaud Arbery Murder Trial**\
-`Jurors have reached a decision in the trial of the three men accused of killing Ahmaud Arbery. Gregory McMichael, Travis McMichael and William Bryan are charged with malice murder, and four other felonies for aggravated assault and false imprisonment.`\
+**Watch Live: Jury Could Reach Decision in Ahmaud Arbery Murder Trial**\
+`Jurors may announce a decision in the trial of the three men accused of killing Ahmaud Arbery. Gregory McMichael, Travis McMichael and William Bryan are charged with malice murder, and four other felonies for aggravated assault and false imprisonment.`\
 https://nytimes.com/video/us/100000008090585/video-arbery-murder-trial-verdict.html?searchResultPosition=2
 
 **What’s next for Angela Merkel?**\
