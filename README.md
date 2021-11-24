@@ -1,6 +1,6 @@
 **South Carolina Women’s Basketball Soars in Place, Atop the Rankings**\
 `The Gamecocks were already ranked No. 1 when they beat Connecticut, but the victory elevated a sense that Coach Dawn Staley is building a perennial title contender.`\
-https://nytimes.com/2021/11/23/sports/south-carolina-womens-basketball-rankings.html?searchResultPosition=1
+https://nytimes.com/2021/11/23/sports/south-carolina-womens-basketball.html?searchResultPosition=1
 
 **Elizabeth Holmes Points Fingers at Others and Says She Was a Believer**\
 `In her most substantial day of testimony, Ms. Holmes, the founder of the failed blood testing start-up Theranos, painted herself as someone whose best intentions were misinterpreted.`\
