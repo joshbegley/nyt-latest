@@ -26,7 +26,7 @@ https://nytimes.com/video/us/100000008092868/ahmaud-arbery-murder-trial-jury-del
 `The governing Law and Justice party’s tough stance on migrants seeking to enter the E.U. from Belarus has lifted its popularity, which had taken blows from Covid and rising inflation.`\
 https://nytimes.com/2021/11/24/world/poland-border-migrants-politics.html?searchResultPosition=7
 
-**British Lawmaker Is Reprimanded for Bringing Her Baby to a Debate**\
+**ƒbeBritish Lawmaker Is Reprimanded for Bringing Her Baby to a Debate**\
 `Stella Creasy received a letter of complaint for attending a debate with her infant son in tow. After an outcry, the speaker of the House of Commons said that a committee would review the rules.`\
 https://nytimes.com/2021/11/24/world/europe/stella-creasy-baby.html?searchResultPosition=8
 
