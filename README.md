@@ -26,15 +26,15 @@ https://nytimes.com/2021/11/24/arts/television/stephen-colbert-biden-oil-reserve
 `This word has appeared in 1,311 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2021/11/24/learning/word-of-the-day-emerge.html?searchResultPosition=7
 
+**New Zealand plans to reopen to international visitors by the end of April.**\
+`Emerging from one of the world’s longest lockdowns, the country plans to admit most fully vaccinated travelers by the end of April without a mandatory hotel quarantine.`\
+https://nytimes.com/2021/11/23/world/new-zealand-travel.html?searchResultPosition=8
+
 **The Death Knell for Hong Kong’s Democracy**\
 `Shrinking the public space that preserves the memory of the 1989 Beijing uprising has effectively turned Hong Kong into another silent mainland city.`\
-https://nytimes.com/2021/11/24/opinion/hong-kong-university-china.html?searchResultPosition=8
+https://nytimes.com/2021/11/24/opinion/hong-kong-university-china.html?searchResultPosition=9
 
 **Vote For the Best Book**\
 `We asked readers to nominate their favorite books published in the past 125 years. Help us choose the very best, based on this list of finalists.`\
-https://nytimes.com/interactive/2021/11/24/books/best-book-vote.html?searchResultPosition=9
-
-**Pentagon Forms a Group to Examine Unexplained Aerial Sightings**\
-`The announcement follows a report that failed to clarify strange phenomena observed by military pilots and others over the past two decades.`\
-https://nytimes.com/2021/11/24/us/politics/pentagon-ufos.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/11/24/books/best-book-vote.html?searchResultPosition=10
 
