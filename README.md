@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/24/arts/dance/nutcracker-new-york-city-ballet.html?s
 `Enchanting imagery elevates this Netflix holiday adventure about a boy who journeys to a magic elfin city.`\
 https://nytimes.com/2021/11/24/movies/a-boy-called-christmas-review.html?searchResultPosition=9
 
-**‘8-Bit Christmas’ Review: Now You’re Playing With Power**\
-`Nintendo looms large in this sentimental, 1980s-set holiday comedy.`\
-https://nytimes.com/2021/11/24/movies/8-bit-christmas-review.html?searchResultPosition=10
+**Jamie Dimon walks back his quip about China’s Communist Party.**\
+`“I regret and should not have made that comment,” the chief executive of JPMorgan Chase said Wednesday.`\
+https://nytimes.com/2021/11/24/business/jamie-dimon-china.html?searchResultPosition=10
 
