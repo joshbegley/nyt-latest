@@ -1,40 +1,40 @@
-**If the Internet Were a Toy, It Would Look Like This. Would You Let Your Kid Play With It?**\
-`Our kids are at the mercy of tech companies, with only an outdated law to protect them.`\
-https://nytimes.com/video/opinion/100000007899997/kids-internet-safety-social-apps.html?searchResultPosition=1
+**Meat Is Hard for Hungry Families to Come By. Enter These Deer Hunters.**\
+`Hunters in New Jersey have shared 2.2 million pounds of deer meat since 1997. “This provides a source of protein that we wouldn’t otherwise have,” a food bank manager says.`\
+https://nytimes.com/2021/11/24/nyregion/nj-deer-venison-food-bank.html?searchResultPosition=1
 
-**Karim Benzema, French Soccer Star, Is Convicted in Sex Tape Scandal**\
-`The Real Madrid striker was found guilty of being part of an attempt to blackmail a fellow player, charges that had led to his being dropped from his national team for more than five years.`\
-https://nytimes.com/2021/11/24/sports/soccer/karim-benzema-verdict-sex-tape-trial.html?searchResultPosition=2
+**A College Football Crash Course for Thanksgiving**\
+`The rivalries on the field this weekend could resemble (and play into) some familial bickering at the dinner table.`\
+https://nytimes.com/2021/11/24/sports/ncaafootball/college-football-thanksgiving.html?searchResultPosition=2
 
-**Homeless Shelter Executives Who Paid Themselves Millions**\
-`One collected annual compensation of more than $1 million. The other used city money for shopping sprees at Neiman Marcus and Manolo Blahnik.`\
-https://nytimes.com/2021/11/24/nyregion/homeless-shelter-executives.html?searchResultPosition=3
+**Tapping Indigenous Talent in Colombia to Create Modern Fashion**\
+`Cartagena is an enchanting place to shop for high-quality handmade accessories crafted by the country’s many artisan communities.`\
+https://nytimes.com/2021/11/24/style/shopping-colombia-indigenous.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/24/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Army Whistle-Blower’s Lonely Death Highlights Toll of Mental Illness**\
+`Ian Fishback revealed abuse of detainees during the Iraq war, but struggled after leaving the service. He died awaiting a bed at the V.A.`\
+https://nytimes.com/2021/11/24/us/politics/ian-fishback-veteran-mental-health-crisis.html?searchResultPosition=4
 
-**Barren Landscape**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2021/11/24/learning/barren-landscape.html?searchResultPosition=5
+**In Buffalo, Waiting for the Canadians**\
+`So far, relaxed travel restrictions between the United States and Canada have not led to a big influx of tourists on either side of the New York-Ontario border. Both sides are waiting, not so patiently.`\
+https://nytimes.com/2021/11/24/travel/new-york-canada-tourism.html?searchResultPosition=5
 
-**NASA Launches New Mission: Crash Into Asteroid, Defend Planet Earth**\
-`The Double Asteroid Redirection Test spacecraft, launched on Wednesday, could be the first to alter an asteroid’s path, a technique that may be used to defend the planet in the future.`\
-https://nytimes.com/2021/11/24/science/nasa-dart-mission-asteroid.html?searchResultPosition=6
+**‘Moulin Rouge!’ Has a New Satine. She’s Amazed She’s Back on Broadway.**\
+`“I didn’t think I’d ever perform on Broadway again,” Natalie Mendoza said.`\
+https://nytimes.com/2021/11/24/theater/natalie-mendoza-moulin-rouge-broadway.html?searchResultPosition=6
 
-**Stephen Colbert Riffs on Biden’s Order to Release Oil Reserves**\
-`“For those who don’t know, the strategic reserve is a series of caverns filled with fossil fuel and strategically located inside Rudy Giuliani’s head,” Colbert joked.`\
-https://nytimes.com/2021/11/24/arts/television/stephen-colbert-biden-oil-reserves.html?searchResultPosition=7
+**Feeling Rich in the Yeezy Gap Jacket**\
+`If you love to talk to people, this is the coat for you.`\
+https://nytimes.com/2021/11/24/style/yeezy-gap-jacket.html?searchResultPosition=7
 
-**Word of the Day: emerge**\
-`This word has appeared in 1,311 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/11/24/learning/word-of-the-day-emerge.html?searchResultPosition=8
+**A South African Shopping Site Where Artisans and Community Meet**\
+`At Victoria Yards in Johannesburg, artists, designers and makers of sorbet and spirits draw from their surroundings to create their products.`\
+https://nytimes.com/2021/11/24/style/johannesburg-south-africa-victoria-yards.html?searchResultPosition=8
 
-**New Zealand plans to reopen to international visitors by the end of April.**\
-`Emerging from one of the world’s longest lockdowns, the country plans to admit most fully vaccinated travelers by the end of April without a mandatory hotel quarantine.`\
-https://nytimes.com/2021/11/23/world/new-zealand-travel.html?searchResultPosition=9
+**In Dapper Croatia, Accessorizing in Style**\
+`Zagreb, the capital, dresses to impress. Its distinctive specialties: neckties, handbags, hats and umbrellas.`\
+https://nytimes.com/2021/11/24/style/zagreb-croatia-accessories-fashion.html?searchResultPosition=9
 
-**The Death Knell for Hong Kong’s Democracy**\
-`Shrinking the public space that preserves the memory of the 1989 Beijing uprising has effectively turned Hong Kong into another silent mainland city.`\
-https://nytimes.com/2021/11/24/opinion/hong-kong-university-china.html?searchResultPosition=10
+**A Tech Whistle-Blower Helps Others Speak Out**\
+`Ifeoma Ozoma, who accused Pinterest of discrimination, has become a key figure in helping tech employees disclose, and fight, mistreatment at work.`\
+https://nytimes.com/2021/11/24/technology/pinterest-whistle-blower-ifeomo-ozoma.html?searchResultPosition=10
 
