@@ -1,6 +1,6 @@
 **What’s in Our Queue? ‘The Show of Shows’ and More**\
 `I'm a senior staff editor on the Culture desk. Here are five things I've been watching, reading and sifting through.`\
-https://nytimes.com/interactive/2021/11/24/arts/28editors-recommendations-show-of-shows.html?searchResultPosition=1
+https://nytimes.com/interactive/2021/11/24/arts/editors-recommendations-show-of-shows.html?searchResultPosition=1
 
 **Next German Chancellor Unveils Coalition Agreement**\
 `Olaf Scholz, a Social Democrat, is taking over the reins from Angela Merkel who has served as Germany’s leader for the last 16 years. Mr. Scholz is expected to be sworn in as chancellor in December.`\
