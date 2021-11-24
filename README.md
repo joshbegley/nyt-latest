@@ -4,7 +4,7 @@ https://nytimes.com/video/us/100000008091794/waukesha-wisconsin-attack-suspect-c
 
 **‘Everything Went Black’: The Children Caught in a Christmas Parade Tragedy**\
 `A child died on Tuesday, and scores of other children were injured when an S.U.V. barreled through the parade on Sunday in Waukesha, Wis.`\
-https://nytimes.com/2021/11/23/us/wisconsin-parade-victims.html?searchResultPosition=2
+https://nytimes.com/2021/11/23/us/waukesha-parade-children-injured.html?searchResultPosition=2
 
 **Raids on Independent Groups in El Salvador Raise Fears of Repression**\
 `President Nayib Bukele bills himself as a young reformer, but a crackdown on voices outside the government’s control is fueling claims of growing authoritarianism.`\
