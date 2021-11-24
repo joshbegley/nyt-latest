@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/24/nyregion/columbia-grad-student-strike.html?search
 
 **Helicopters, Clipboards, Crew Cuts: The President Must Be in Town**\
 `President Biden and his family are spending Thanksgiving on Nantucket, renewing a family tradition that dates back to 1975.`\
-https://nytimes.com/2021/11/24/us/politics/biden-thanksgiving.html?searchResultPosition=9
+https://nytimes.com/2021/11/24/us/politics/biden-thanksgiving-nantucket.html?searchResultPosition=9
 
 **Even With Fewer Stars in Beal’s Orbit, the Wizards Find Their Way**\
 `A roster overhaul prioritized depth over big names to surround Bradley Beal in Washington. The new guys — with chips on their shoulders — have come through.`\
