@@ -30,8 +30,8 @@ https://nytimes.com/2021/11/23/us/waukesha-parade-brooks-court.html?searchResult
 `The main threat to the Democratic Party comes from the left.`\
 https://nytimes.com/2021/11/23/opinion/liberals-survive-progressivism.html?searchResultPosition=8
 
-**Is Visiting Your Family Bad for the Planet?**\
-`Google Flights now shows your carbon footprint. Will it change the way you buy plane tickets? `\
+**Is Flying Home for the Holidays Bad for the Planet?**\
+`View on site`\
 https://nytimes.com/2021/11/23/opinion/climate-change-guilt-flights.html?searchResultPosition=9
 
 **South Carolina Women’s Basketball Soars in Place, Atop the Rankings**\
