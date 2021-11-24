@@ -1,5 +1,5 @@
 **He Convinced Voters He Would Be Like Merkel. But Who Is Olaf Scholz?**\
-`Germany’s new chancellor is something of an enigma. He comes to power with a dizzying array of challenges, raising questions about whether he can fill the very big shoes of his predecessor.`\
+`Germany’s next chancellor is something of an enigma. He comes to power with a dizzying array of challenges, raising questions about whether he can fill the very big shoes of his predecessor.`\
 https://nytimes.com/2021/11/24/world/europe/germany-new-chancellor-olaf-scholz.html?searchResultPosition=1
 
 **Iran Rebuffs U.N. Watchdog on Resuming Nuclear Inspections**\
