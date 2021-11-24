@@ -1,6 +1,6 @@
 **Man Is Exonerated in Rape Case Described in Alice Sebold’s Memoir**\
 `Anthony J. Broadwater was convicted of the 1981 attack in Syracuse, N.Y., in a case the district attorney and a state judge agreed was flawed.`\
-https://nytimes.com/2021/11/23/us/anthony-broadwater-exonerated-rape-alice-sebold.html?searchResultPosition=1
+https://nytimes.com/2021/11/23/us/anthony-broadwater-alice-sebold.html?searchResultPosition=1
 
 **Jury Begins Deliberations in Arbery Killing**\
 `The jurors in Glynn County, Ga., will resume deliberating on Wednesday. The three men accused of killing Ahmaud Arbery face charges of both malice murder and felony murder.`\
