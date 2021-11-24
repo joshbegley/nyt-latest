@@ -19,7 +19,7 @@ https://nytimes.com/2021/11/24/business/jake-wood-team-rubicon-groundswell-corne
 https://nytimes.com/2021/11/24/us/san-diego-womens-basketball.html?searchResultPosition=5
 
 **Watch Live: Jury Deliberates For the Second Day in Ahmaud Arbery Murder Trial**\
-`Jurors are deliberating for a second day in the trial of the three men accused of killing Ahmaud Arbery.`\
+`Jurors are set to deliberate for a second day in the trial of the three men accused of killing Ahmaud Arbery.`\
 https://nytimes.com/video/us/100000008090585/video-arbery-murder-trial-verdict.html?searchResultPosition=6
 
 **What’s next for Angela Merkel?**\
