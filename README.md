@@ -1,40 +1,40 @@
+**$900,000 Homes in Illinois, Pennsylvania and Colorado**\
+`A modern retreat in DeKalb, a circa-1800 home in New Hope and a 1906 Edwardian house in Denver.`\
+https://nytimes.com/2021/11/24/realestate/home-prices-illinois-pennsylvania-colorado.html?searchResultPosition=1
+
+**What You Get for $900,000**\
+`A modern retreat in DeKalb, Ill.; a circa-1800 home in New Hope, Pa.; and a 1906 Edwardian house in Denver.`\
+https://nytimes.com/slideshow/2021/11/24/realestate/what-you-get-for-900000.html?searchResultPosition=2
+
+**The Best Tech Gifts That Aren’t Gadgets**\
+`Supply-chain disruptions may make it tough to buy devices, but the most thoughtful presents were never tangible to begin with.`\
+https://nytimes.com/2021/11/24/technology/personaltech/best-tech-gifts.html?searchResultPosition=3
+
+**Once a Warrior, Then a Nonprofit Leader, Now an Entrepreneur**\
+`Jake Wood was a Marine sniper in Iraq and Afghanistan. Now he works in the philanthropic sector and is “leading with love.”`\
+https://nytimes.com/2021/11/24/business/jake-wood-team-rubicon-groundswell-corner-office.html?searchResultPosition=4
+
 **San Diego’s Oldest Women’s Basketball Players on Why They Play**\
 `A senior league offers community and competition for women as old as 95.`\
-https://nytimes.com/2021/11/24/us/san-diego-womens-basketball.html?searchResultPosition=1
+https://nytimes.com/2021/11/24/us/san-diego-womens-basketball.html?searchResultPosition=5
 
 **Watch Live: Jury Could Reach Decision in Ahmaud Arbery Murder Trial**\
 `Jurors may announce a decision in the trial of the three men accused of killing Ahmaud Arbery. Gregory McMichael, Travis McMichael and William Bryan are charged with malice murder, and four other felonies for aggravated assault and false imprisonment.`\
-https://nytimes.com/video/us/100000008090585/video-arbery-murder-trial-verdict.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008090585/video-arbery-murder-trial-verdict.html?searchResultPosition=6
 
 **What’s next for Angela Merkel?**\
 `After 16 years as chancellor, there is no shortage of speculation about what her second act will be.`\
-https://nytimes.com/2021/11/24/world/europe/angela-merkel-future.html?searchResultPosition=3
+https://nytimes.com/2021/11/24/world/europe/angela-merkel-future.html?searchResultPosition=7
 
 **Heady Jewels to Keep the Holiday Season Bright**\
 `Whether pear-shaped or pavé, set in platinum or gold, diamonds bring radiance to even the darkest winters.`\
-https://nytimes.com/2021/11/24/t-magazine/diamond-jewelry-hair.html?searchResultPosition=4
+https://nytimes.com/2021/11/24/t-magazine/diamond-jewelry-hair.html?searchResultPosition=8
 
 **Lisa, star of the K-pop group Blackpink, tests positive for Covid.**\
 `The group’s three other members are awaiting test results.`\
-https://nytimes.com/2021/11/24/arts/music/lisa-kpop-blackpink-positive-covid.html?searchResultPosition=5
+https://nytimes.com/2021/11/24/arts/music/lisa-kpop-blackpink-positive-covid.html?searchResultPosition=9
 
 **German public transportation controllers start checking vaccine papers.**\
 `Passengers will have to show proof of vaccination, recovery from Covid or a negative daily test under a system of random checks.`\
-https://nytimes.com/2021/11/24/world/europe/germany-public-transportation-vaccine.html?searchResultPosition=6
-
-**Here’s What C.E.O.s Are Thankful For**\
-`It’s the season, so some business leaders have opened up about why they’re grateful.`\
-https://nytimes.com/2021/11/24/business/dealbook/ceos-thanksgiving-analysts.html?searchResultPosition=7
-
-**In Brussels, a Designer’s Home Awash With His Own Vibrant Creations**\
-`Christoph Hefti makes — and lives with — ebullient carpets and textiles inspired by magical realism and Latin American design.`\
-https://nytimes.com/2021/11/24/t-magazine/carpets-rugs-home-design-brussels.html?searchResultPosition=8
-
-**‘Keep Sweet’ Review: A Legacy of Polygamy in a Religious Sect**\
-`This documentary by Don Argott looks to the past and future of a community in the American West that made its own rules and lived by them.`\
-https://nytimes.com/2021/11/24/movies/keep-sweet-review-a-legacy-of-polygamy-in-a-religious-sect.html?searchResultPosition=9
-
-**Turkey Without Covid**\
-`A guide to using rapid tests.`\
-https://nytimes.com/2021/11/24/briefing/thanksgiving-covid-rapid-test.html?searchResultPosition=10
+https://nytimes.com/2021/11/24/world/europe/germany-public-transportation-vaccine.html?searchResultPosition=10
 
