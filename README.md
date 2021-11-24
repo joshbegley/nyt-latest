@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/24/movies/drive-my-car-review.html?searchResultPosit
 
 **Europe reckons with calls for Covid restrictions to avoid a bleak winter.**\
 `The European Center for Disease Prevention and Control called for  “urgently” tightening restrictions and closing vaccination gaps, and recommended booster shots for all adults.`\
-https://nytimes.com/2021/11/24/world/europe/europe-reckons-with-calls-for-covid-restrictions-to-avoid-a-bleak-winter.html?searchResultPosition=3
+https://nytimes.com/2021/11/24/world/europe/europe-covid-restrictions.html?searchResultPosition=3
 
 **Cultivating Art, Not Argument, at a Los Angeles Law Office**\
 `Their office-tower studios could not be less bohemian, but the artists in residence at a law firm’s offices in California say the spaces spur creativity nonetheless.`\
