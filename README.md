@@ -11,7 +11,7 @@ https://nytimes.com/2021/11/24/opinion/creative-minority-multiculturalism.html?s
 https://nytimes.com/2021/11/24/opinion/thanksgiving-family-forgiveness.html?searchResultPosition=3
 
 **All three men were convicted of murdering Ahmaud Arbery, but only one was convicted of ‘malice murder.’**\
-`In finding Travis McMichael, guilty of that charge, the twelve jurors found that he had deliberately intended to kill Mr. Arbery.`\
+`In finding Travis McMichael guilty of that charge, the twelve jurors found that he had deliberately intended to kill Mr. Arbery.`\
 https://nytimes.com/2021/11/24/us/malice-murder-arbery-murder-trial.html?searchResultPosition=4
 
 **Inflation worries dominated the Federal Reserve’s last meeting.**\
