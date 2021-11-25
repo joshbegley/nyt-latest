@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/25/arts/television/seth-meyers-trump-subpoenas-thank
 https://nytimes.com/2021/11/25/opinion/thanksgiving-penknife.html?searchResultPosition=2
 
 **Solomon Islands Protests: What’s Behind the Unrest?**\
-`Discontent has long simmered over a perceived unequal distribution of resources and the central government’s decision to switch allegiances to China from Taiwan.`\
+`Discontent has long simmered over a perceived unequal distribution of resources and the central government’s decision to switch allegiances to Beijing from Taipei.`\
 https://nytimes.com/2021/11/25/world/asia/solomon-islands-riot.html?searchResultPosition=3
 
 **N.F.L. Week 12 Predictions: Our Picks Against the Spread**\
