@@ -1,6 +1,6 @@
 **A native New Yorker wrangles a balloon in the Thanksgiving parade.**\
 `Decked in a white jumpsuit and blue smock with a Pikachu cartoon on it, George Gustines maneuvered the huge blowup cartoon character down New York’s streets on Thursday.`\
-https://nytimes.com/2021/11/25/world/a-native-new-yorker-wrangles-a-balloon-in-the-thanksgiving-parade.html?searchResultPosition=1
+https://nytimes.com/2021/11/25/world/pikachu-pokemon-macys-thanksgiving-new-york.html?searchResultPosition=1
 
 **‘Licorice Pizza’ Review: California Dreaming and Scheming**\
 `In his latest movie, Paul Thomas Anderson returns to the San Fernando Valley for a shaggy 1970s romp about a self-important teenage boy and a memorable woman.`\
