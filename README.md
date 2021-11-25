@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/25/arts/bruised-review.html?searchResultPosition=7
 
 **Explosion Outside School Kills 8 in Somalia’s Capital**\
 `The latest in a series of deadly attacks comes as the country is gripped by election instability and by a drought that threatens 2.6 million people.`\
-https://nytimes.com/2021/11/25/world/africa/explosion-outside-school-kills-8-in-somalias-capital.html?searchResultPosition=8
+https://nytimes.com/2021/11/25/world/africa/somalia-explosion-school-8-dead.html?searchResultPosition=8
 
 **Suspect Is Charged With Murder in Case of Two Vanished Campers**\
 `In a remote southern Australian area famed for its forbidding landscape and unsolved mysteries, the couple had set out for a weeklong trip and were never seen again.`\
