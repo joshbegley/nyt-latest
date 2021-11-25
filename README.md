@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/25/movies/haruki-murakami-drive-my-car-ryusuke-hamag
 `Democrats were once able to count on wave elections to win back key statehouses. Republican gerrymandering is making that all but impossible.`\
 https://nytimes.com/2021/11/25/us/politics/republican-redistricting-swing-states.html?searchResultPosition=9
 
-**Sweden Chose Its First Female Prime Minister. She Lasted About 7 Hours.**\
-`Magdalena Andersson, the leader of the Social Democratic Party, quit after her new government’s budget was defeated on her first day in office and her coalition partners bolted.`\
+**Sweden Finally Chose a Prime Minister. She Lasted About 7 Hours.**\
+`Magdalena Andersson, Sweden’s first female prime minister, quit after her government’s budget was defeated on her first day in office and her coalition partners bolted.`\
 https://nytimes.com/2021/11/25/world/europe/sweden-first-female-prime-minister-quit.html?searchResultPosition=10
 
