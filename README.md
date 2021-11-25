@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/25/world/africa/explosion-outside-school-kills-8-in-
 `In a remote southern Australian area famed for its forbidding landscape and unsolved mysteries, the couple had set out for a weeklong trip and were never seen again.`\
 https://nytimes.com/2021/11/25/world/australia/suspect-is-charged-with-murder-in-case-of-two-vanished-campers.html?searchResultPosition=9
 
-**After His Car Struck a Pedestrian, a Police Officer Took the Body Home, Prosecutors Say**\
-`Louis Santiago was charged with reckless vehicular homicide after being accused of hitting a man on the Garden State Parkway. Instead of calling 911, the off-duty Newark officer took the victim to his home.`\
+**Newark Officer Hit a Pedestrian With His Car, Then Took the Body Home, Prosecutors Say**\
+`Louis Santiago was charged with reckless vehicular homicide after being accused of hitting a man on the Garden State Parkway. Instead of calling 911, the off-duty Newark police officer took the victim to his home.`\
 https://nytimes.com/2021/11/25/nyregion/new-jersey-police-officer-car-home.html?searchResultPosition=10
 
