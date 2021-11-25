@@ -1,4 +1,4 @@
-**Solomon Islands Riots: What’s Behind the Protests?**\
+**Solomon Islands: What’s Behind the Protests?**\
 `Discontent has long simmered over a perceived unequal distribution of resources and the central government’s decision to switch allegiances to China from Taiwan.`\
 https://nytimes.com/2021/11/25/world/asia/solomon-islands-riot.html?searchResultPosition=1
 
