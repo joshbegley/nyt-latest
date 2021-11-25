@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000008093763/migrants-boat-capsize-calais-france.html?searchResultPosition=1
 
 **A judge will decide if the men convicted of murdering Ahmaud Arbery ever get a chance at parole.**\
-`But all three men must get sentenced to life in prison, according to legal experts.`\
+`But under Georgia law, all three men must get sentenced to life in prison.`\
 https://nytimes.com/2021/11/24/us/arbery-parole-murder-judge.html?searchResultPosition=2
 
 **‘It’s good to see racism lose’: Guilty verdicts are hailed in the Arbery case.**\
