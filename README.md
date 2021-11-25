@@ -22,7 +22,7 @@ https://nytimes.com/2021/11/24/crosswords/daily-puzzle-2021-11-25.html?searchRes
 `This was a reminder that the lives of Black people are valued in this country — at least on occasion.`\
 https://nytimes.com/2021/11/24/opinion/guilty-verdict-ahmaud-arbery.html?searchResultPosition=6
 
-**Two N.Y.P.D. Officers Are Shot in the Bronx**\
+**Two New York Police Officers Are Shot in Gun Battle With Suspect in the Bronx**\
 `The shooting took place around 8:15 p.m. in the Belmont section. The officers, who were responding to a report of a gun, were expected to survive.`\
 https://nytimes.com/2021/11/24/nyregion/nypd-officers-shot-bronx.html?searchResultPosition=7
 
