@@ -3,7 +3,7 @@
 https://nytimes.com/2021/11/25/nyregion/macys-thanksgiving-parade.html?searchResultPosition=1
 
 **Undeterred by Channel’s Perils, Desperate Migrants Still Plan to Cross**\
-`The number of migrants setting off into the English Channel by boat has soared in recent months. The deaths Wednesday of at least 27 people trying to make the crossing illustrates how dangerous it is.`\
+`The number of migrants setting off into the English Channel by boat has soared in recent months. The deaths Wednesday of at least 27 people trying to make the crossing illustrate how dangerous it is.`\
 https://nytimes.com/2021/11/25/world/europe/english-channel-migrant-crossings.html?searchResultPosition=2
 
 **Your Friday Briefing**\
