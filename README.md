@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/26/world/new-covid-variant-omicron-travel-restrictio
 https://nytimes.com/2021/11/26/science/merck-molnupiravir-antiviral-covid-pill.html?searchResultPosition=2
 
 **How Much Does Your Team’s Manager Matter?**\
-`One set of researchers estimated a manager is responsible for only eight percent of a team’s results. But eight percent, when you think about it, is a lot.`\
+`One set of researchers estimated a manager is responsible for only 8 percent of a team’s results. But 8 percent, when you think about it, is a lot.`\
 https://nytimes.com/2021/11/26/sports/soccer/manchester-united-manager.html?searchResultPosition=3
 
 **Love Letter: Salmon, Loss and Motherhood**\
