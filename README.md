@@ -26,7 +26,7 @@ https://nytimes.com/interactive/2021/11/26/briefing/the-weekender.html?searchRes
 `Eat leftovers, take stock.`\
 https://nytimes.com/2021/11/26/at-home/newsletter.html?searchResultPosition=7
 
-**United States will place restrictions on travelers from South Africa and 7 other countries.**\
+**United States will place travel restrictions on South Africa and 7 other countries.**\
 `Starting Monday, travelers from South Africa, Botswana, Zimbabwe, Namibia, Lesotho, Eswatini, Mozambique and Malawi will be barred unless they are citizens or permanent residents.`\
 https://nytimes.com/2021/11/26/world/americas/us-travel-restrictions-new-covid-variant-omicron.html?searchResultPosition=8
 
