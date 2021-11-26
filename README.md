@@ -16,7 +16,7 @@ https://nytimes.com/2021/11/26/movies/child-stars-belfast-king-richard.html?sear
 
 **Leftovers Are Better Than the Feast**\
 `Make the best possible sandwich, or a big batch of turkey bone gumbo.`\
-https://nytimes.com/2021/11/26/dining/leftovers-are-better-than-the-feast.html?searchResultPosition=5
+https://nytimes.com/2021/11/26/dining/thanksgiving-leftovers-what-to-make.html?searchResultPosition=5
 
 **Five Science-Fiction Movies to Stream Now**\
 `This month’s picks include an amnesiac romance and acts of sentient killer robot rampage.`\
