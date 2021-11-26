@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/26/sports/soccer/manchester-united-manager.html?sear
 `And: ‘When are you getting married?’`\
 https://nytimes.com/2021/11/26/style/loveletter-newsletter-salmon-loss-motherhood.html?searchResultPosition=3
 
-**The Boundless Creativity of Sophie Taeuber-Arp**\
+**The Wandering Creativity of Sophie Taeuber-Arp**\
 `The Swiss artist did it all — paintings and puppets, sculpture and tapestry — and was underestimated because of it. At MoMA she joins the major leagues.`\
 https://nytimes.com/2021/11/26/arts/design/sophie-taeuber-arp-review-moma-dada.html?searchResultPosition=4
 
