@@ -22,7 +22,7 @@ https://nytimes.com/2021/11/26/movies/science-fiction-movies-streaming.html?sear
 `Erin Morley, a fixture at the Met for over a decade, is now singing the title role in “Eurydice.”`\
 https://nytimes.com/2021/11/26/arts/music/erin-morley-eurydice-met-opera.html?searchResultPosition=6
 
-**Iraqis Return from Belarus, but Some Say They Will Try Again to Reach the E.U.**\
+**Iraqis Return From Belarus, but Some Say They Will Try Again to Reach the E.U.**\
 `“If I find a better and safe route, I will definitely try again,” said one of the more than 600 Iraqi migrants who came home on the government’s latest evacuation flights.`\
 https://nytimes.com/2021/11/26/world/middleeast/iraqis-return-from-belarus-but-some-say-they-will-try-again-to-reach-the-eu.html?searchResultPosition=7
 
