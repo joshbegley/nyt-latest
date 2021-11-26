@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/26/at-home/newsletter.html?searchResultPosition=3
 
 **United States will place restrictions on travelers from South Africa and 7 other countries.**\
 `Starting Monday, travelers from South Africa, Botswana, Zimbabwe, Namibia, Lesotho, Eswatini, Mozambique and Malawi will be barred unless they are citizens or permanent residents.`\
-https://nytimes.com/2021/11/26/world/americas/new-covid-variant-omicron-travel-restrictions.html?searchResultPosition=4
+https://nytimes.com/2021/11/26/world/americas/us-travel-restrictions-new-covid-variant-omicron.html?searchResultPosition=4
 
 **Merck says its antiviral pill is less effective in a final analysis.**\
 `The drug, molnupiravir, reduced the risk of hospitalization and death in high-risk Covid patients by 30 percent. An earlier analysis had found a 50 percent reduction.`\
