@@ -30,8 +30,8 @@ https://nytimes.com/2021/11/25/world/europe/english-channel-migrant-crossings.ht
 `A French rush for boosters.`\
 https://nytimes.com/2021/11/25/briefing/your-friday-briefing.html?searchResultPosition=8
 
-**New variant displaying a ‘big jump in evolution’ detected in South Africa.**\
-`The density of mutations raises concerns. While it’s too early to say, new variants can pose a threat to progress or limit a vaccine’s effectiveness.`\
+**South Africa detects a new variant displaying a ‘big jump in evolution.’**\
+`The density of mutations raises concerns. While it’s too early to say, new variants can limit a vaccine’s effectiveness. Hours later Britain banned flights from six countries in the region.`\
 https://nytimes.com/2021/11/25/world/variant-south-africa-covid.html?searchResultPosition=9
 
 **Will Germany’s ‘Debt Brake’ Stop Its Green Ambitions?**\
