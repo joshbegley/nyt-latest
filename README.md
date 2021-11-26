@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/26/world/middleeast/iraq-migrants-belarus-border-eur
 
 **In Good Spirits**\
 `Carissa Schumacher channels the dead for her A-list celebrity clients.But most days, she’s in the forest.`\
-https://nytimes.com/2021/11/26/style/in-good-spirits.html?searchResultPosition=9
+https://nytimes.com/2021/11/26/style/carissa-schumacher-flamingo-estate-los-angeles.html?searchResultPosition=9
 
 **Review: Getting a Moral Fix From ‘Approval Junkie’**\
 `The radio and television journalist Faith Salie stars in a one-woman show about the perils of striving for achievement and affirmation.`\
