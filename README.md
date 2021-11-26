@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/26/arts/music/erin-morley-eurydice-met-opera.html?se
 
 **Iraqis Return From Belarus, but Some Say They Will Try Again to Reach the E.U.**\
 `“If I find a better and safe route, I will definitely try again,” said one of the more than 600 Iraqi migrants who came home on the government’s latest evacuation flights.`\
-https://nytimes.com/2021/11/26/world/middleeast/iraqis-return-from-belarus-but-some-say-they-will-try-again-to-reach-the-eu.html?searchResultPosition=8
+https://nytimes.com/2021/11/26/world/middleeast/iraq-migrants-belarus-border-european-union.html?searchResultPosition=8
 
 **In Good Spirits**\
 `Carissa Schumacher channels the dead for her A-list celebrity clients.But most days, she’s in the forest.`\
