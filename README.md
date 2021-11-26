@@ -1,6 +1,6 @@
 **Merck says its antiviral pill is less effective in a final analysis.**\
 `The drug, molnupiravir, reduced the risk of hospitalization and death in high-risk Covid patients by 30 percent. An earlier analysis had found a 50 percent reduction.`\
-https://nytimes.com/2021/11/26/science/merck-molnupiravir-antiviral.html?searchResultPosition=1
+https://nytimes.com/2021/11/26/science/merck-molnupiravir-antiviral-covid-pill.html?searchResultPosition=1
 
 **How Much Does Your Team’s Manager Matter?**\
 `One set of researchers estimated a manager is responsible for only eight percent of a team’s results. But eight percent, when you think about it, is a lot.`\
