@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/26/world/americas/martinique-covid-protests.html?sea
 https://nytimes.com/2021/11/26/opinion/us-military-sexual-violence-suicide.html?searchResultPosition=4
 
 **Jakucho Setouchi, 99, Dies; Buddhist Priest Wrote of Sex and Love**\
-`Her more than 400 novels often drew on her own romantic affairs, and her translation of an ancient romantic Japanese classic sold millions of copies.`\
+`Her more than 400 novels often drew on her own romantic affairs, and her translation of an 11th-century romantic Japanese classic sold millions of copies.`\
 https://nytimes.com/2021/11/26/world/asia/jakucho-setouchi-dead.html?searchResultPosition=5
 
 **Interior Dept. Report on Drilling Is Mostly Silent on Climate Change**\
