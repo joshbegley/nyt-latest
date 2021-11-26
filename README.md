@@ -14,7 +14,7 @@ https://nytimes.com/2021/11/26/world/europe/mine-disaster-russia-safety.html?sea
 `He was the theater’s most revered and influential composer-lyricist of the last half of the 20th century and the driving force behind some of Broadway’s most beloved and celebrated shows.`\
 https://nytimes.com/2021/11/26/theater/stephen-sondheim-dead.html?searchResultPosition=4
 
-**Virus Variant, Black Friday, Leftovers: Your Friday Evening Briefing**\
+**Virus Variant, Stephen Sondheim, Leftovers: Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2021/11/26/briefing/virus-variant-black-friday-leftovers.html?searchResultPosition=5
 
