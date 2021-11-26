@@ -1,5 +1,5 @@
-**Italy and Portugal Could Meet for a World Cup Spot. Only One Can Go.**\
-`The draw for Europe’s final three qualifying places ensured that either Italy, the European champion, or Portugal, with Cristiano Ronaldo, would miss the 2020 event in Qatar.`\
+**Italy and Portugal Could Meet for a 2022 World Cup Spot. Only One Can Go.**\
+`The draw for Europe’s final three qualifying places ensured that either Italy, the European champion, or Portugal, with Cristiano Ronaldo, would miss the finals in Qatar.`\
 https://nytimes.com/2021/11/26/sports/soccer/italy-portugal-world-cup-qualifying.html?searchResultPosition=1
 
 **Feta Pasta and Other Winners**\
