@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/26/opinion/letters/elderly-covid.html?searchResultPo
 
 **Europe’s Theaters Go Back to the Future With Covid Restrictions**\
 `Strict controls on playhouses and music venues are returning as the continent deals with a new coronavirus wave.`\
-https://nytimes.com/2021/11/26/arts/music/europe-culture-covid.html?searchResultPosition=3
+https://nytimes.com/2021/11/26/arts/music/europe-covid-restrictions-theaters-music-venues.html?searchResultPosition=3
 
 **On Their Small Shoulders Rest Some Big Films**\
 `Five children winning acclaim for their roles in “Belfast,” “King Richard,” “C’mon C’mon” and “The Tender Bar” talk us through their starring turns.`\
