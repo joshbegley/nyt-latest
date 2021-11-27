@@ -26,7 +26,7 @@ https://nytimes.com/2021/11/26/world/australia/thanksgiving-after-lockdowns.html
 `Never paired together at one of golf’s majors, the rivals Brooks Koepka and Bryson DeChambeau instead went head-to-head in a spectacle for charity off the Las Vegas Strip.`\
 https://nytimes.com/2021/11/26/sports/golf/brooks-koepka-bryson-dechambeau-the-match.html?searchResultPosition=7
 
-**Days Before Dying, Stephen Sondheim Reflects: ‘I’ve Been Lucky’**\
+**Days Before Dying, Stephen Sondheim Reflected: ‘I’ve Been Lucky’**\
 `In an interview on Sunday, the revered composer and lyricist, 91, contentedly discussed his shows running on Broadway and off, as well as a new movie about to be released.`\
 https://nytimes.com/2021/11/26/theater/stephen-sondheim-final-interview.html?searchResultPosition=8
 
