@@ -1,6 +1,6 @@
 **Michigan Upsets Ohio State, Forcing Buckeyes from Playoff Race**\
 `Before a crowd thick with maize and blue, the Wolverines beat Ohio State for the first time since 2011 and earned a chance to play for a Big Ten title.`\
-https://nytimes.com/2021/11/27/sports/ncaafootball/michigan-wolverines-ohio-state-buckeyes.html?searchResultPosition=1
+https://nytimes.com/2021/11/27/sports/ncaafootball/michigan-ohio-state-score.html?searchResultPosition=1
 
 **U.K. Confirms Two Omicron Covid Variant Cases**\
 `Sajid Javid, the U.K. health secretary, said the individuals were self-isolating as sequencing, contact tracing and further tests were being carried out. The British government confirmed the two cases of the new Omicron coronavirus variant were linked to travel in southern Africa.`\
