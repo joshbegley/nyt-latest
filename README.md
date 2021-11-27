@@ -1,40 +1,40 @@
+**A Feud Fueled by Social Media Is Also Made for TV**\
+`Never paired together at one of golf’s majors, the rivals Brooks Koepka and Bryson DeChambeau instead went head-to-head in a spectacle for charity off the Las Vegas Strip.`\
+https://nytimes.com/2021/11/26/sports/golf/brooks-koepka-bryson-dechambeau-the-match.html?searchResultPosition=1
+
 **Days Before Dying, Stephen Sondheim Reflects: ‘I’ve Been Lucky’**\
 `In an interview on Sunday, the revered composer and lyricist, 91, contentedly discussed his shows running on Broadway and off, as well as a new movie about to be released.`\
-https://nytimes.com/2021/11/26/theater/stephen-sondheim-final-interview.html?searchResultPosition=1
+https://nytimes.com/2021/11/26/theater/stephen-sondheim-final-interview.html?searchResultPosition=2
 
 **In the Midst of the Mud and Destruction, British Columbians Come Together**\
 `A tour of the flood-ravaged parts of the province finds communities supporting each other following disaster.`\
-https://nytimes.com/2021/11/26/world/canada/british-columbia-floods-aftermath.html?searchResultPosition=2
+https://nytimes.com/2021/11/26/world/canada/british-columbia-floods-aftermath.html?searchResultPosition=3
 
 **New ‘Variant of Concern’ Fuels Global Fear of Another Virus Surge**\
 `Scientists do not yet know how dangerous the new Omicron variant is, but its many mutations set off alarms, lowering hopes of putting the pandemic in the past.`\
-https://nytimes.com/2021/11/26/world/europe/coronavirus-omicron-variant.html?searchResultPosition=3
+https://nytimes.com/2021/11/26/world/europe/coronavirus-omicron-variant.html?searchResultPosition=4
 
 **The Last Word: Stephen Sondheim**\
 `In a never before seen interview, Stephen Sondheim sat down with The New York Times in June 2008 to talk about his life, career and accomplishments.`\
-https://nytimes.com/video/theater/1248069062358/the-last-word-stephen-sondheim-obituary.html?searchResultPosition=4
+https://nytimes.com/video/theater/1248069062358/the-last-word-stephen-sondheim-obituary.html?searchResultPosition=5
 
 **Seeking Backers for New Fund, Jared Kushner Turns to Middle East**\
 `Former President Donald J. Trump’s son-in-law is trying to raise capital for his investment firm and is turning to a region that he dealt with extensively while in the White House.`\
-https://nytimes.com/2021/11/26/us/politics/kushner-investment-middle-east.html?searchResultPosition=5
+https://nytimes.com/2021/11/26/us/politics/kushner-investment-middle-east.html?searchResultPosition=6
 
 **New Virus Variant Stokes Concern but Vaccines Still Likely to Work**\
 `The Omicron variant carries worrisome mutations that may let it evade antibodies, scientists said. But it will take more research to know how it fares against vaccinated people.`\
-https://nytimes.com/2021/11/26/health/omicron-variant-vaccines.html?searchResultPosition=6
+https://nytimes.com/2021/11/26/health/omicron-variant-vaccines.html?searchResultPosition=7
 
 **Coronavirus Briefing: What Happened Today**\
 `A new variant.`\
-https://nytimes.com/2021/11/26/us/coronavirus-briefing-what-happened-today-omnicon-new-variant-south-africa.html?searchResultPosition=7
+https://nytimes.com/2021/11/26/us/coronavirus-briefing-what-happened-today-omnicon-new-variant-south-africa.html?searchResultPosition=8
 
 **After detecting the Omicron variant, South Africa feels ‘punished’ by global travel bans.**\
 `Hours after South African scientists announced the existence of a troublesome new variant, Britain banned travelers from southern Africa. The United States and other nations quickly followed suit.`\
-https://nytimes.com/2021/11/26/world/africa/south-africa-omicron-travel-ban.html?searchResultPosition=8
+https://nytimes.com/2021/11/26/world/africa/south-africa-omicron-travel-ban.html?searchResultPosition=9
 
 **A Mine Disaster in Russia Highlights Safety Shortfalls in Rush to Dig Coal**\
 `At least 46 miners were killed in an explosion at a Siberian mine. The director of the mine has been taken into police custody, along with five other administrators.`\
-https://nytimes.com/2021/11/26/world/europe/mine-disaster-russia-safety.html?searchResultPosition=9
-
-**Stephen Sondheim, Titan of the American Musical, Is Dead at 91**\
-`He was the theater’s most revered and influential composer-lyricist of the last half of the 20th century and the driving force behind some of Broadway’s most beloved and celebrated shows.`\
-https://nytimes.com/2021/11/26/theater/stephen-sondheim-dead.html?searchResultPosition=10
+https://nytimes.com/2021/11/26/world/europe/mine-disaster-russia-safety.html?searchResultPosition=10
 
