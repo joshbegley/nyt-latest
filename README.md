@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/27/health/diabetes-cure-stem-cells.html?searchResult
 `Iranians couldn’t buy gas. Israelis found their intimate dating details posted online. The Iran-Israel shadow war is now hitting ordinary citizens.`\
 https://nytimes.com/2021/11/27/world/middleeast/iran-israel-cyber-hack.html?searchResultPosition=9
 
-**Fake Food Is Trendy Again**\
-`In the world of home décor, maximalism is back — and with it, tchotchkes that were once regarded as kitschy or quaint.`\
-https://nytimes.com/2021/11/27/style/fake-food-is-trendy-again.html?searchResultPosition=10
+**This Ocean Invaded Its Neighbor Earlier Than Anyone Thought**\
+`The saltier Atlantic broke through layers of ice and freshwater, contributing to the Arctic’s warming.`\
+https://nytimes.com/2021/11/27/science/arctic-ocean-atlantification.html?searchResultPosition=10
 
