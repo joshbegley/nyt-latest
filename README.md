@@ -1,4 +1,4 @@
-**Michigan Upsets Ohio State, Forcing Buckeyes from Playoff Race**\
+**Michigan Upsets Ohio State, Forcing Buckeyes From Playoff Race**\
 `Before a crowd thick with maize and blue, the Wolverines beat Ohio State for the first time since 2011 and earned a chance to play for a Big Ten title.`\
 https://nytimes.com/2021/11/27/sports/ncaafootball/michigan-ohio-state-score.html?searchResultPosition=1
 
