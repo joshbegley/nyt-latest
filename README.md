@@ -1,4 +1,4 @@
-**Quotation of the Day: New Variant Stirs Fears Of Setback; Travel Bans Rise**\
+**Quotation of the Day: Omicron Mutations May Allow A Quick Spread, W.H.O. Says**\
 `Quotation of the Day for Saturday, November 27, 2021.`\
 https://nytimes.com/2021/11/26/todayspaper/quotation-of-the-day-new-variant-stirs-fears-of-setback-travel-bans-rise.html?searchResultPosition=1
 
