@@ -2,7 +2,7 @@
 `After two cases of the new Omicron coronavirus variant were confirmed in Britain, Prime Minister Boris Johnson said masks would be required in stores and on public transportation and listed testing guidelines for travelers from abroad.`\
 https://nytimes.com/video/world/europe/100000008096270/uk-omicron-cases-boris-johnson-covid-mask-mandate.html?searchResultPosition=1
 
-**Michigan Upsets Ohio State, Forcing Buckeyes From Playoff Race**\
+**Michigan Upsets Ohio State and Aims for a Playoff Berth**\
 `Before a crowd thick with maize and blue, the Wolverines beat Ohio State for the first time since 2011 and earned a chance to play for a Big Ten title.`\
 https://nytimes.com/2021/11/27/sports/ncaafootball/michigan-ohio-state-score.html?searchResultPosition=2
 
