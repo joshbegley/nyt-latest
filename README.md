@@ -16,7 +16,7 @@ https://nytimes.com/2021/11/27/business/dealbook/future-society-demographics.htm
 
 **Brazil’s President Lula Is Staging a Comeback. Can He Bring the Country Along?**\
 `Luiz Inácio Lula da Silva, the former president, has beat back a flurry of corruption cases and climbed to the front of next year’s presidential race.`\
-https://nytimes.com/2021/11/27/world/americas/brazils-president-lula-is-staging-a-comeback-can-he-bring-the-country-along.html?searchResultPosition=5
+https://nytimes.com/2021/11/27/world/americas/brazil-president-lula.html?searchResultPosition=5
 
 **Asian nations expand booster shots, with an eye on Europe’s surge.**\
 `Some highly vaccinated countries in East and Southeast Asia are embracing boosters as the virus surges through parts of Europe where third shots are not yet widely available.`\
