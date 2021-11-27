@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/26/crosswords/daily-puzzle-2021-11-27.html?searchRes
 
 **3 Bodies Found Amid Violence in Solomon Islands**\
 `The police were trying to determine if the charred remains found in the capital’s Chinatown district were linked to the protests, in which demonstrators set fire to buildings.`\
-https://nytimes.com/2021/11/26/world/asia/solomon-islands-protests-bodies.html?searchResultPosition=3
+https://nytimes.com/2021/11/27/world/asia/solomon-islands-protests-bodies.html?searchResultPosition=3
 
 **‘Elemental and Irreplaceable’: Stars Pay Tribute to Stephen Sondheim**\
 `Audra McDonald, Bernadette Peters, Andrew Lloyd Webber and others mourned and celebrated the essential composer and lyricist, who died at 91.`\
