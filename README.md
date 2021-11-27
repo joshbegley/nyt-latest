@@ -20,7 +20,7 @@ https://nytimes.com/2021/11/27/realestate/residential-building-commercial-units-
 
 **3 Questions We Must Answer About the Omicron Variant**\
 `There are many unknowns but we have the means to manage the variant.`\
-https://nytimes.com/2021/11/27/opinion/3-questions-we-must-answer-about-the-omicron-variant.html?searchResultPosition=6
+https://nytimes.com/2021/11/27/opinion/omicron-variant-questions-coronavirus.html?searchResultPosition=6
 
 **More Than $1 Million Raised to Help Missouri Man Exonerated After 43 Years**\
 `More than 20,000 strangers have donated to an online fund-raiser to help Kevin Strickland’s re-entry to society.`\
