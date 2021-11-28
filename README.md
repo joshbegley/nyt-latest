@@ -1,18 +1,18 @@
+**As China Speeds Up Nuclear Arms Race, the U.S. Wants to Talk**\
+`The Pentagon thinks Beijing may build 1,000 or more weapons by 2030. But it’s the new technologies that worry strategists.`\
+https://nytimes.com/2021/11/28/us/politics/china-nuclear-arms-race.html?searchResultPosition=1
+
 **Swiss voters approve their government’s Covid policy in a referendum.**\
 `After weeks of heated debate and protests, voters backed using Covid certificates that are required to enter public spaces.`\
-https://nytimes.com/2021/11/28/world/europe/swiss-voters-approve-covid-green-pass.html?searchResultPosition=1
+https://nytimes.com/2021/11/28/world/europe/swiss-voters-approve-covid-green-pass.html?searchResultPosition=2
 
 **Your Monday Briefing**\
 `An update on the Omicron variant.`\
-https://nytimes.com/2021/11/28/briefing/your-monday-briefing.html?searchResultPosition=2
+https://nytimes.com/2021/11/28/briefing/your-monday-briefing.html?searchResultPosition=3
 
 **Man Survives Flight From Guatemala to Miami in Plane’s Landing Gear**\
 `The 26-year-old man, whose name was not released, was taken into custody by border agents, officials said.`\
-https://nytimes.com/2021/11/28/us/stowaway-miami-guatemala.html?searchResultPosition=3
-
-**La votación debe cerrar a las 5 p. m.**\
-`Se esperan resultados preliminares tres horas después.`\
-https://nytimes.com/2021/11/28/espanol/elecciones-honduras-urnas-cierre.html?searchResultPosition=4
+https://nytimes.com/2021/11/28/us/stowaway-miami-guatemala.html?searchResultPosition=4
 
 **Polls should close at 5 p.m.**\
 `Preliminary results are expected three hours later.`\
