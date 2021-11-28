@@ -24,7 +24,7 @@ https://nytimes.com/2021/11/28/us/domestic-violence-law-enforcement.html?searchR
 
 **You Can Make Any Day the Best Day of the Year**\
 `A thought experiment for finding more happiness in the everyday. `\
-https://nytimes.com/2021/11/28/opinion/culture/happiness-memory-best-days.html?searchResultPosition=7
+https://nytimes.com/2021/11/28/opinion/happiness-memory-best-days.html?searchResultPosition=7
 
 **We Got a Head Start on Omicron, So Let’s Not Blow It**\
 `South Africa gave the world an early warning. Decisive action on containment and surveillance could help us control it.`\
