@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/28/style/virgil-abloh-dead.html?searchResultPosition
 https://nytimes.com/2021/11/28/theater/jennifer-nettles-waitress-broadway.html?searchResultPosition=2
 
 **20 Stephen Sondheim Songs to Listen to Right Now**\
-`The lyricist and composer, who died on Friday, wrote dozens of piercing tunes for Broadway. Here is a selection of them, as lean as a Sondheim couplet.`\
+`The lyricist and composer, who died on Friday, wrote dozens of piercing tunes for Broadway. Here is a selection of his most brilliant and surprising.`\
 https://nytimes.com/2021/11/28/theater/stephen-sondheim-songs.html?searchResultPosition=3
 
 **The Netherlands Finds at Least 13 Omicron Variant Cases**\
