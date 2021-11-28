@@ -1,40 +1,40 @@
+**‘Long Live “Wokeness”!’ Or Is It Doomed?**\
+`On John McWhorter’s call for a new term and Bret Stephens’s assertion that wokeness will fail. Also: Maternal health; American exceptionalism; Facebook.`\
+https://nytimes.com/2021/11/28/opinion/letters/woke-politics.html?searchResultPosition=1
+
 **Kiki and Herb Will Be Back Where They Belong for Christmas**\
 `Justin Vivian Bond and Kenny Mellman have resurrected their Christmas act for “a big, old chosen family reunion.”`\
-https://nytimes.com/2021/11/28/theater/kiki-and-herb-christmas-show.html?searchResultPosition=1
+https://nytimes.com/2021/11/28/theater/kiki-and-herb-christmas-show.html?searchResultPosition=2
 
 **In a Nonbinary Pronoun, France Sees a U.S. Attack on the Republic**\
 `When a French dictionary included the gender-nonspecific “iel” for the first time, a virulent reaction erupted over “wokisme” exported from American universities.`\
-https://nytimes.com/2021/11/28/world/europe/in-a-nonbinary-pronoun-france-sees-a-us-attack-on-the-republic.html?searchResultPosition=2
+https://nytimes.com/2021/11/28/world/europe/in-a-nonbinary-pronoun-france-sees-a-us-attack-on-the-republic.html?searchResultPosition=3
 
 **Why the Feminist Movement Needs Pro-Life People**\
 `We must form a broad and diverse coalition to advocate for women.`\
-https://nytimes.com/2021/11/28/opinion/feminism-abortion-pro-life.html?searchResultPosition=3
+https://nytimes.com/2021/11/28/opinion/feminism-abortion-pro-life.html?searchResultPosition=4
 
 **The Woman on the Bridge**\
 `Police and prosecutors spent five years chasing a domestic violence case. Would it be enough?`\
-https://nytimes.com/2021/11/28/us/domestic-violence-law-enforcement.html?searchResultPosition=4
+https://nytimes.com/2021/11/28/us/domestic-violence-law-enforcement.html?searchResultPosition=5
 
 **You Can Make Any Day the Best Day of the Year**\
 `A thought experiment for finding more happiness in the everyday. `\
-https://nytimes.com/2021/11/28/opinion/culture/happiness-memory-best-days.html?searchResultPosition=5
+https://nytimes.com/2021/11/28/opinion/culture/happiness-memory-best-days.html?searchResultPosition=6
 
 **We Got a Head Start on Omicron, So Let’s Not Blow It**\
 `South Africa gave the world an early warning. Decisive action on containment and surveillance could help us control it.`\
-https://nytimes.com/2021/11/28/opinion/covid-omicron-travel-ban-testing.html?searchResultPosition=6
+https://nytimes.com/2021/11/28/opinion/covid-omicron-travel-ban-testing.html?searchResultPosition=7
 
 **As concerts return to South Korea, fans are told not to sing along.**\
 `South Koreans including K-pop fans will not be able to shout, chant or sing at performances with 500 or more attendees, according to government rules.`\
-https://nytimes.com/2021/11/28/world/asia/south-korea-singing-ban-covid.html?searchResultPosition=7
+https://nytimes.com/2021/11/28/world/asia/south-korea-singing-ban-covid.html?searchResultPosition=8
 
 **What to Cook This Week**\
 `Take a moment after the holiday, if you can, to catch your breath.`\
-https://nytimes.com/2021/11/28/dining/what-to-cook-this-week.html?searchResultPosition=8
+https://nytimes.com/2021/11/28/dining/what-to-cook-this-week.html?searchResultPosition=9
 
 **First, I Cried. Then, I Rode My Bike.**\
 `Pedal, pedal, pedal, glide.`\
-https://nytimes.com/2021/11/28/opinion/culture/grief-cycling.html?searchResultPosition=9
-
-**When Is a Horror Movie Not a Horror Movie?**\
-`When “The Humans” and other new dramas use jump scares and other genre staples, it’s a fair question to ask.`\
-https://nytimes.com/2021/11/28/movies/the-humans-horror-movies.html?searchResultPosition=10
+https://nytimes.com/2021/11/28/opinion/culture/grief-cycling.html?searchResultPosition=10
 
