@@ -30,11 +30,11 @@ https://nytimes.com/2021/11/28/arts/art-basel-miami-beach.html?searchResultPosit
 `The nation’s most ambitious engineering projects are mired in postponements and skyrocketing costs. Delivering $1.2 trillion in new infrastructure will be tough.`\
 https://nytimes.com/2021/11/28/us/infrastructure-megaprojects.html?searchResultPosition=8
 
+**This Fire-Loving Fungus Eats Charcoal, if It Must**\
+`Some fungi sprout in fiery shades of orange and pink after wildfires, feasting on what was left behind by the burn.`\
+https://nytimes.com/2021/11/28/science/fungus-wildfire-charcoal.html?searchResultPosition=9
+
 **‘You’re Not Helpless’: For London Women, Learning to Fight Builds Confidence**\
 `After a year marked by isolation, loneliness and violence in the city, many self-defense and martial arts gyms say they are seeing more interest from women.`\
-https://nytimes.com/2021/11/28/world/europe/uk-women-self-defense.html?searchResultPosition=9
-
-**For 2 Bogotá Galleries, Art Basel Means Business**\
-`With a limited market in Colombia, Casas Riegner and Instituto de Visión depend on art fairs to survive and to support the careers of their artists.`\
-https://nytimes.com/2021/11/28/arts/bogota-galleries-art-basel.html?searchResultPosition=10
+https://nytimes.com/2021/11/28/world/europe/uk-women-self-defense.html?searchResultPosition=10
 
