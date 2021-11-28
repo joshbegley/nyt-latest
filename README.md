@@ -10,8 +10,8 @@ https://nytimes.com/2021/11/27/pageoneplus/corrections-nov-28-2021.html?searchRe
 `He fled communist rule in Hungary, discovered a treatment for glaucoma in the U.S., then became an author and a voice against authoritarianism in his homeland.`\
 https://nytimes.com/2021/11/27/world/europe/laszlo-z-bito-dead.html?searchResultPosition=3
 
-**Omicron variant upends global pandemic response.**\
-`Britain, Israel and others implemented new security measures as some health experts urged caution.`\
+**The Omicron variant upends the global pandemic response.**\
+`Britain, Israel and others announced new restrictions as some health experts urged caution.`\
 https://nytimes.com/2021/11/27/us/omicron-variant-pandemic.html?searchResultPosition=4
 
 **Wakefield Poole, Pioneer in Gay Pornography, Dies at 85**\
