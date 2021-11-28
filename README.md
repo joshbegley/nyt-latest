@@ -6,7 +6,7 @@ https://nytimes.com/2021/11/28/style/virgil-abloh-dead.html?searchResultPosition
 `The country singer and musical-theater fan was grateful to play the intense title role in “Waitress” not long after her Broadway-themed album came out.`\
 https://nytimes.com/2021/11/28/theater/jennifer-nettles-waitress-broadway.html?searchResultPosition=2
 
-**Listen to Stephen Sondheim’s 20 Essential Songs**\
+**20 Stephen Sondheim Songs to Listen to Right Now**\
 `The lyricist and composer, who died on Friday, wrote dozens of piercing tunes for Broadway. Here is a selection of them, as lean as a Sondheim couplet.`\
 https://nytimes.com/2021/11/28/theater/stephen-sondheim-songs.html?searchResultPosition=3
 
