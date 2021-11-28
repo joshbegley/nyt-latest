@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/27/crosswords/daily-puzzle-2021-11-28.html?searchRes
 https://nytimes.com/video/world/europe/100000008096270/uk-omicron-cases-boris-johnson-covid-mask-mandate.html?searchResultPosition=5
 
 **Michigan Upsets Ohio State and Aims for a Playoff Berth**\
-`Before a crowd thick with maize and blue, the Wolverines beat Ohio State for the first time since 2011 and earned a chance to play for a Big Ten title.`\
+`Before a crowd thick with maize and blue, the Wolverines beat Ohio State for the first time since 2011 and will play No. 16 Iowa for a Big Ten title.`\
 https://nytimes.com/2021/11/27/sports/ncaafootball/michigan-ohio-state-score.html?searchResultPosition=6
 
 **U.K. Confirms Two Omicron Covid Variant Cases**\
