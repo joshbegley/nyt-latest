@@ -30,7 +30,7 @@ https://nytimes.com/2021/11/28/us/domestic-violence-law-enforcement.html?searchR
 `A thought experiment for finding more happiness in the everyday. `\
 https://nytimes.com/2021/11/28/opinion/happiness-memory-best-days.html?searchResultPosition=8
 
-**We Got a Head Start on Omicron, So Let’s Not Blow It**\
+**Omicron Is Coming. The U.S. Must Act Now.**\
 `South Africa gave the world an early warning. Decisive action on containment and surveillance could help us control it.`\
 https://nytimes.com/2021/11/28/opinion/covid-omicron-travel-ban-testing.html?searchResultPosition=9
 
