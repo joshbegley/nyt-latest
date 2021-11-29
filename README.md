@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/29/nyregion/tom-suozzi-governor-ny.html?searchResult
 
 **Here are the charges Ghislaine Maxwell faces.**\
 `The case against Ms. Maxwell is based on the accounts of four women whom prosecutors say she enticed to engage in sex acts with Jeffrey Epstein when they were underage.`\
-https://nytimes.com/2021/11/29/nyregion/ghislaine-maxwell-charges.html?searchResultPosition=9
+https://nytimes.com/2021/11/29/nyregion/what-is-ghislaine-maxwell-charged-with.html?searchResultPosition=9
 
 **Twitter’s Jack Dorsey Steps Down From C.E.O. Role**\
 `The social media pioneer, whose name has become synonymous with the company, will be replaced by Twitter’s chief technology officer, Parag Agrawal.`\
