@@ -23,7 +23,7 @@ https://nytimes.com/2021/11/29/briefing/omicron-contagion-what-to-know.html?sear
 https://nytimes.com/2021/11/29/podcasts/the-daily/ahmaud-arbery-prosecution-conviction.html?searchResultPosition=6
 
 **How Much Do You Know About Bulgaria?**\
-`Can you find Bulgaria on a map? What else do you know about this Southeastern European country with 7 million people?`\
+`Can you find Bulgaria on a map? What else do you know about this Southeastern European country with seven million people?`\
 https://nytimes.com/interactive/2021/11/29/learning/Bulgaria-Geography-Quiz.html?searchResultPosition=7
 
 **As World Shuts Borders to Stop Omicron, Japan Offers a Cautionary Tale**\
