@@ -1,40 +1,40 @@
-**Global markets steady as investors reconsider the unknowns of Omicron.**\
-`After tumbling on Friday, European markets opened higher and oil prices gained.`\
-https://nytimes.com/2021/11/29/business/global-stock-markets-omicron.html?searchResultPosition=1
+**Hunt for the ‘Blood Diamond of Batteries’ Impedes Green Energy Push**\
+`Dangerous mining conditions plague Congo, home to the world’s largest supply of cobalt, a key ingredient in electric cars. A leadership battle threatens reforms.`\
+https://nytimes.com/2021/11/29/world/congo-cobalt-albert-yuma-mulimbi.html?searchResultPosition=1
 
-**Lesson of the Day: ‘He Sold Away His People’s Heritage. He’s in the Jungle to Get It Back.’**\
-`In this lesson, students will learn about a Cambodian temple looter who is helping identify and reclaim stolen artifacts. Then, they will discuss what museums and private collectors should do with looted artifacts in their collections.`\
-https://nytimes.com/2021/11/29/learning/lesson-plans/lesson-of-the-day-he-sold-away-his-peoples-heritage-hes-in-the-jungle-to-get-it-back.html?searchResultPosition=2
+**Meet the Beauty Queens of Al Dhafra**\
+`Camel beauty contests take center stage at a celebration of Bedouin culture, held annually in the United Arab Emirates.`\
+https://nytimes.com/2021/11/29/travel/camel-beauty-pageant.html?searchResultPosition=2
 
-**Jeffrey Epstein’s Companion, Ghislaine Maxwell, Goes on Trial**\
-`She is accused of recruiting and trafficking young girls for the disgraced financier.`\
-https://nytimes.com/2021/11/29/nyregion/jeffrey-epsteins-companion-ghislaine-maxwell-goes-on-trial.html?searchResultPosition=3
+**Horse Troughs, Hot Tubs and Hashtags: Baptism Is Getting Wild**\
+`In some evangelical churches, a once-staid ritual is returning to its informal roots — and things sometimes get “a little rowdy” along the way.`\
+https://nytimes.com/2021/11/29/us/evangelical-churches-baptism.html?searchResultPosition=3
 
-**An Auto Show for the Raddest Cars of the ’80s and ’90s**\
-`Nostalgia mixes with tape decks and car phones at RADwood events that aim to capture “the essence of a bodacious era.”`\
-https://nytimes.com/2021/11/29/business/80s-90s-cars-radwood.html?searchResultPosition=4
+**Colton Underwood Comes Out and Comes Clean**\
+`The former “Bachelor” star announced he is gay on national TV in April. A new Netflix reality series seeks to share his journey and address the criticism.`\
+https://nytimes.com/2021/11/29/arts/television/colton-underwood-netflix.html?searchResultPosition=4
 
-**Can New York Really Get to 100% Clean Energy by 2040?**\
-`Clean power supply is being generated in upstate New York, but it is not making its way to New York City, the area that relies most heavily on power from fossil fuels.`\
-https://nytimes.com/2021/11/29/nyregion/hochul-electrical-grid-climate-change.html?searchResultPosition=5
+**Taliban and 9/11 Families Fight for Billions in Frozen Afghan Funds**\
+`The White House must figure out what to do with the Afghan central bank’s account at the Federal Reserve, now frozen under U.S. law.`\
+https://nytimes.com/2021/11/29/us/politics/taliban-afghanistan-911-families-frozen-funds.html?searchResultPosition=5
 
-**As Ghislaine Maxwell’s Trial Begins, Epstein’s Shadow Looms Large**\
-`Ms. Maxwell’s sex trafficking trial in Manhattan, which starts on Monday, is widely seen as a proxy for the courtroom reckoning that her longtime partner never received.`\
-https://nytimes.com/2021/11/29/nyregion/ghislaine-maxwell-trial.html?searchResultPosition=6
+**A Public Flagpole, a Christian Flag and the First Amendment**\
+`The Supreme Court will decide whether Boston, which allows many kinds of groups to raise flags outside its City Hall, can reject one bearing the Latin cross.`\
+https://nytimes.com/2021/11/29/us/boston-flag-free-speech.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/11/29/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**You’re Allowed to Complain About Your Kids, Even After Infertility**\
+`‘It is 100 percent normal to feel conflicted even if you went to hell and back to become a parent.’`\
+https://nytimes.com/2021/11/29/well/family/complain-infertility-child-loss.html?searchResultPosition=7
 
-**Climate Change Is Driving Some Albatrosses to ‘Divorce,’ Study Finds**\
-`Warming oceans are sending the monogamous sea birds farther afield to find food, putting stress on their breeding and prompting some to ditch their partners.`\
-https://nytimes.com/2021/11/29/world/asia/albatross-climate-change.html?searchResultPosition=8
+**What Kind of Dog Is He? DNA Can Tell Me Only So Much.**\
+`There are some mysteries that even genetic science can’t explain.`\
+https://nytimes.com/2021/11/29/opinion/dog-dna-tests.html?searchResultPosition=8
 
-**What’s on TV This Week: Willy Wonka and a ‘West Side Story’ Special**\
-`“Willy Wonka and the Chocolate Factory” airs on AMC. And ABC hosts a special on “West Side Story.”`\
-https://nytimes.com/2021/11/29/arts/television/whats-on-tv-this-week-willy-wonka-and-a-west-side-story-special.html?searchResultPosition=9
+**A Climbing Award That May Be a Winner’s Last**\
+`Whether the Piolet D’Or, or Golden Ice Axe, alpine climbing’s biggest award, honors or encourages risk is debated in the sport.`\
+https://nytimes.com/2021/11/29/sports/piolet-dor-climbing-dangerous.html?searchResultPosition=9
 
-**Your Monday Briefing**\
-`Omicron moves across the world.`\
-https://nytimes.com/2021/11/29/briefing/omicron-britain-supply-shortages.html?searchResultPosition=10
+**‘Her Heart Was Beating Too’: The Women Who Died After Abortion Bans**\
+`It should not take a high-profile death to expose just how much is at risk when medicine is hamstrung by politics, religion or culture.`\
+https://nytimes.com/2021/11/29/opinion/heartbeat-abortion-bans-savita-izabela.html?searchResultPosition=10
 
