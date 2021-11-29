@@ -34,7 +34,7 @@ https://nytimes.com/2021/11/29/world/americas/honduras-election-xiomara-castro.h
 `The experimental festival at the Public Theater will return in person with fewer shows and, for the first time, performances outside New York City.`\
 https://nytimes.com/2021/11/29/theater/under-the-radar-festival.html?searchResultPosition=9
 
-**U.K. extends boosters to all adults while announcing two new Omicron cases.**\
+**The U.K. extends boosters to all adults while announcing two new Omicron cases.**\
 `The British government was widely criticized for a sluggish response to the Delta variant, and its reaction to Omicron came markedly quicker.`\
 https://nytimes.com/2021/11/29/world/europe/uk-boosters-adults-omicron.html?searchResultPosition=10
 
