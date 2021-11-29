@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/29/business/amazon-bessemer-alabama-election.html?se
 https://nytimes.com/2021/11/29/arts/television/bill-cosby-supreme-court.html?searchResultPosition=4
 
 **Lionel Messi Wins Record Seventh Ballon d’Or**\
-`For the Paris St.-Germain star, the honor capped a year in which he led Argentina to the Copa América title.`\
+`The Paris St.-Germain star capped a year in which he led Argentina to the Copa América title by edging Bayern Munich’s Robert Lewandowski.`\
 https://nytimes.com/2021/11/29/sports/soccer/messi-ballon-dor-lewandowski.html?searchResultPosition=5
 
 **Max Scherzer Smashes Salary Record in Deal With Mets**\
