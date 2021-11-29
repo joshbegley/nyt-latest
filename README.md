@@ -15,7 +15,7 @@ https://nytimes.com/2021/11/28/sports/packers-rams-score-nfl-week-12.html?search
 https://nytimes.com/2021/11/28/world/europe/england-pub-snow-storm.html?searchResultPosition=4
 
 **What We Learned From Week 12 in the N.F.L.**\
-`Tom Brady has help in Tampa Bay, the Bengals are forcing the issue in the A.F.C. North race, and the Dolphins have a winning streak.`\
+`Tom Brady has help in Tampa Bay, the Bengals are forcing the issue in the A.F.C. North race, and the Rams have some soul-searching to do.`\
 https://nytimes.com/2021/11/28/sports/football/nfl-week-12-scores.html?searchResultPosition=5
 
 **Carrie P. Meek, 5-Term Florida Representative, Dies at 95**\
