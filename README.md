@@ -27,7 +27,7 @@ https://nytimes.com/2021/11/29/dining/drinks/great-wines.html?searchResultPositi
 https://nytimes.com/2021/11/29/arts/television/jussie-smollett-trial.html?searchResultPosition=7
 
 **Watch Live: Biden Addresses the Coronavirus Omicron Variant**\
-`President Biden is expected to give an update on the U.S. response to the new Omicron variant of the coronavirus. His remarks come as federal health officials urge vaccinations and as countries around the world institute travel restrictions to curb the variant’s spread.`\
+`President Biden updating the nation on the U.S. response to the new Omicron variant of the coronavirus. His remarks come as federal health officials urge vaccinations and as countries around the world institute travel restrictions to curb the variant’s spread.`\
 https://nytimes.com/video/us/politics/100000008097592/biden-omicron-variant.html?searchResultPosition=8
 
 **Now, Cook for Yourself**\
