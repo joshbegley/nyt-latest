@@ -18,8 +18,8 @@ https://nytimes.com/2021/11/29/nyregion/tom-suozzi-governor-ny.html?searchResult
 `The case against Ms. Maxwell is based on the accounts of four women whom prosecutors say she enticed to engage in sex acts with Jeffrey Epstein when they were underage.`\
 https://nytimes.com/2021/11/29/nyregion/ghislaine-maxwell-charges.html?searchResultPosition=5
 
-**Twitter’s Jack Dorsey Expected to Step Down from C.E.O. Role**\
-`The social media pioneer, whose name has become synonymous with Twitter, is also the chief executive of another company, Square.`\
+**Twitter’s Jack Dorsey Steps Down From C.E.O. Role**\
+`The social media pioneer, whose name has become synonymous with the company, will be replaced by Twitter’s chief technology officer, Parag Agrawal.`\
 https://nytimes.com/2021/11/29/technology/jack-dorsey-twitter.html?searchResultPosition=6
 
 **Antiviral Covid Pills Are Coming. Will There Be Enough Tests?**\
