@@ -1,6 +1,6 @@
 **As ‘Nutcracker’ Returns, Companies Rethink Depictions of Asians**\
 `Ballet companies are reworking the holiday classic partly in response to a wave of anti-Asian hate that has intensified during the pandemic.`\
-https://nytimes.com/2021/11/29/arts/dance/rethinking-asian-stereotypes-in-the-nutcracker.html?searchResultPosition=1
+https://nytimes.com/2021/11/29/arts/dance/nutcracker-asian-stereotypes-rethinking.html?searchResultPosition=1
 
 **Omicron Demonstrates Need for Global Covid Response, W.H.O. Says**\
 `Dr. Tedros Adhanom Ghebreyesus, director general of the World Health Organization, said the new Omicron coronavirus variant underlined a need for better global pandemic cooperation, and that the current system “disincentives” countries from alerting new threats.`\
