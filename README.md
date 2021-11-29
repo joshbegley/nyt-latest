@@ -6,7 +6,7 @@ https://nytimes.com/video/world/100000008097536/who-omicron-coronavirus-variant-
 `In this episode, we will discuss how companies, even breweries, can tap into the potential of the cloud today, so they are well-positioned to take advantage of the new opportunities that the cloud will offer in the future.`\
 https://nytimes.com/paidpost/accenture/built-for-change/brewing-up-innovation-in-the-cloud.html?searchResultPosition=2
 
-**Biden sought to reassure Americans about Omicron.**\
+**Biden calls Omicron a ‘cause for concern, not a cause for panic.’**\
 `The variant has yet to be detected in the United States.`\
 https://nytimes.com/2021/11/29/us/politics/biden-vaccines-omicron.html?searchResultPosition=3
 
