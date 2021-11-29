@@ -1,40 +1,40 @@
+**Here are the charges Ghislaine Maxwell faces.**\
+`The case against Ms. Maxwell is based on the accounts of four women whom prosecutors say she enticed to engage in sex acts with Jeffrey Epstein when they were underage.`\
+https://nytimes.com/2021/11/29/nyregion/ghislaine-maxwell-charges.html?searchResultPosition=1
+
 **Twitter’s Jack Dorsey Expected to Step Down from C.E.O. Role**\
 `The social media pioneer, whose name has become synonymous with the company, is also the chief executive of another company, Square.`\
-https://nytimes.com/2021/11/29/technology/jack-dorsey-twitter-stepping-down.html?searchResultPosition=1
+https://nytimes.com/2021/11/29/technology/jack-dorsey-twitter-stepping-down.html?searchResultPosition=2
 
 **Antiviral Covid Pills Are Coming. Will There Be Enough Tests?**\
 `The pills must be given early in the course of infection, which means access to timely, accurate test results will be crucial.`\
-https://nytimes.com/2021/11/29/health/covid-pills-testing.html?searchResultPosition=2
+https://nytimes.com/2021/11/29/health/covid-pills-testing.html?searchResultPosition=3
 
 **Scotland Reports Six Omicron Cases**\
 `Officials said that some of the cases of the Omicron coronavirus variant were not linked to travel, suggesting community transmission, but that there was no evidence that transmission was sustained or widespread.`\
-https://nytimes.com/video/world/europe/100000008097424/scotland-omicron-variant-coronavirus.html?searchResultPosition=3
+https://nytimes.com/video/world/europe/100000008097424/scotland-omicron-variant-coronavirus.html?searchResultPosition=4
 
 **Small Manufacturers Scramble to Remake Their Supply Chains**\
 `Facing delays, shortages and higher prices for raw materials, companies are finding new sources. Not all are able to pass along the costs.`\
-https://nytimes.com/2021/11/29/business/economy/supply-chain-inflation.html?searchResultPosition=4
+https://nytimes.com/2021/11/29/business/economy/supply-chain-inflation.html?searchResultPosition=5
 
 **A New Publishing Platform for Comic Books Will Give Creators a Greater Stake**\
 `Zestworld, which counts Alexis Ohanian as a supporter, will allow comic book writers and artists to present new work and reap the benefits.`\
-https://nytimes.com/2021/11/29/arts/zestword-comic-books-alexis-ohanian.html?searchResultPosition=5
+https://nytimes.com/2021/11/29/arts/zestword-comic-books-alexis-ohanian.html?searchResultPosition=6
 
 **Adele and Summer Walker: Our Season of Romantic Discontent**\
 `New chart-topping albums from the two singers serve as raw excavations of relationships gone bad.`\
-https://nytimes.com/2021/11/29/arts/music/adele-summer-walker.html?searchResultPosition=6
+https://nytimes.com/2021/11/29/arts/music/adele-summer-walker.html?searchResultPosition=7
 
 **A Heart-Healthy Way to Eat**\
 `Aim for an overall healthful dietary pattern, the American Heart Association advises, rather than focusing on “good” or “bad” foods.`\
-https://nytimes.com/2021/11/29/well/eat/heart-healthy-diet-foods.html?searchResultPosition=7
+https://nytimes.com/2021/11/29/well/eat/heart-healthy-diet-foods.html?searchResultPosition=8
 
 **What to Know About Omicron**\
 `California officials are watching for evidence of the new coronavirus variant and increasing testing at airports.`\
-https://nytimes.com/2021/11/29/us/omicron-variant-california.html?searchResultPosition=8
+https://nytimes.com/2021/11/29/us/omicron-variant-california.html?searchResultPosition=9
 
 **Looking at Surrealist Art in Our Own Surreal Age**\
 `When viewed as a vehicle for various forms of liberation, the movement remains highly resonant even a century after its heyday.`\
-https://nytimes.com/2021/11/29/t-magazine/surrealism-art-met-exhibit.html?searchResultPosition=9
-
-**Markets Aren’t That Spooked by Omicron**\
-`Investors are re-pricing the risks of the latest coronavirus variant.`\
-https://nytimes.com/2021/11/29/business/dealbook/stock-markets-omicron-variant.html?searchResultPosition=10
+https://nytimes.com/2021/11/29/t-magazine/surrealism-art-met-exhibit.html?searchResultPosition=10
 
