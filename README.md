@@ -1,40 +1,40 @@
+**The defense department says Oklahoma National Guard must get vaccinated.**\
+`The governor had tried to exempt the troops from the federal vaccine requirement that applies to all service branches.`\
+https://nytimes.com/2021/11/29/us/politics/the-defense-department-says-oklahoma-national-guard-must-get-vaccinated.html?searchResultPosition=1
+
+**Ghislaine Maxwell’s Trial Opens, With Epstein at Its Center**\
+`A prosecutor described Jeffrey Epstein and his longtime girlfriend and associate, Ms. Maxwell, as “partners in crime.”`\
+https://nytimes.com/2021/11/29/nyregion/ghislaine-maxwell-trial-epstein.html?searchResultPosition=2
+
+**Boebert Reaches Out to Omar After Incendiary Video, Escalating a Feud**\
+`Representative Lauren Boebert made an overture to Representative Ilhan Omar after suggesting that the Muslim lawmaker was a terrorism threat. The call did not go well.`\
+https://nytimes.com/2021/11/29/us/politics/boebert-omar-apology.html?searchResultPosition=3
+
 **David Gulpilil, Famed Aboriginal Actor, Dies at 68**\
 `In a career that began with the film “Walkabout” 50 years ago, he was acclaimed for changing the way Australia’s Indigenous people were portrayed and viewed.`\
-https://nytimes.com/2021/11/29/movies/david-gulpilil-dead.html?searchResultPosition=1
+https://nytimes.com/2021/11/29/movies/david-gulpilil-dead.html?searchResultPosition=4
 
 **Elizabeth Holmes Says Former Boyfriend Abused Her**\
 `Ms. Holmes, the founder of the failed blood testing start-up Theranos, blamed Ramesh Balwani, the former No. 2 at the company.`\
-https://nytimes.com/2021/11/29/technology/elizabeth-holmes-sunny-balwani.html?searchResultPosition=2
+https://nytimes.com/2021/11/29/technology/elizabeth-holmes-sunny-balwani.html?searchResultPosition=5
 
 **With Omicron’s Arrival, Stocks Will Again Hang on Headlines**\
 `Stocks rose on Monday, but analysts expect a bumpy ride for share prices while experts assess whether existing vaccines will be effective against the new variant.`\
-https://nytimes.com/2021/11/29/business/omicron-stock-market.html?searchResultPosition=3
+https://nytimes.com/2021/11/29/business/omicron-stock-market.html?searchResultPosition=6
 
 **Breaking Barriers: The Life of Lee Elder**\
 `Elder was the author of “a signature moment” in professional golf.`\
-https://nytimes.com/2021/11/29/sports/golf/lee-elder.html?searchResultPosition=4
+https://nytimes.com/2021/11/29/sports/golf/lee-elder.html?searchResultPosition=7
 
 **Omicron, Twitter, Cuomo: Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/11/29/briefing/omicron-twitter-cuomo-your-monday-evening-briefing.html?searchResultPosition=5
+https://nytimes.com/2021/11/29/briefing/omicron-twitter-cuomo-your-monday-evening-briefing.html?searchResultPosition=8
 
 **Coronavirus Briefing: What Happened Today**\
 `What we know about Omicron.`\
-https://nytimes.com/2021/11/29/us/coronavirus-briefing-what-happened-today-omicron.html?searchResultPosition=6
+https://nytimes.com/2021/11/29/us/coronavirus-briefing-what-happened-today-omicron.html?searchResultPosition=9
 
 **A Song for Stephen Sondheim, by Julie Andrews and Others**\
 `Readers recount their interactions with the composer. Ms. Andrews laments the loss of a “genius.”`\
-https://nytimes.com/2021/11/29/opinion/letters/stephen-sondheim-broadway.html?searchResultPosition=7
-
-**A Shower Bus Helps Those Without Access**\
-`People without regular access to bathing find help at Brooklyn Community Services' shower bus.`\
-https://nytimes.com/interactive/2021/11/29/neediest-cases/brooklyn-community-services-shower-bus.html?searchResultPosition=8
-
-**4 takeaways from the first day of Ghislaine Maxwell’s trial.**\
-`In the coming weeks, jurors are expected to hear testimony from four women whom prosecutors say Jeffrey Epstein exploited for sex with Ms. Maxwell’s help.`\
-https://nytimes.com/2021/11/29/nyregion/ghislaine-maxwell-trial-takeaways.html?searchResultPosition=9
-
-**Fragmented Reactions Hinder Global Fight Against Omicron Variant**\
-`Almost two years into the pandemic, finger-pointing, lack of coordination, sparse information and fear are once again influencing policy.`\
-https://nytimes.com/2021/11/29/world/africa/coronavirus-omicron-variant-response.html?searchResultPosition=10
+https://nytimes.com/2021/11/29/opinion/letters/stephen-sondheim-broadway.html?searchResultPosition=10
 
