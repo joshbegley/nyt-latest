@@ -19,7 +19,7 @@ https://nytimes.com/video/world/100000008097536/who-omicron-coronavirus-variant-
 https://nytimes.com/paidpost/accenture/built-for-change/brewing-up-innovation-in-the-cloud.html?searchResultPosition=5
 
 **Biden calls Omicron a ‘cause for concern, not a cause for panic.’**\
-`The variant has yet to be detected in the United States.`\
+`The variant has yet to be detected in the United States and crucial questions about the variant itself remain.`\
 https://nytimes.com/2021/11/29/us/politics/biden-vaccines-omicron.html?searchResultPosition=6
 
 **Honduras Election Front-Runner Vows New Era but Is Tied to Past**\
