@@ -16,7 +16,7 @@ https://nytimes.com/2021/11/29/style/virgil-abloh-influence.html?searchResultPos
 
 **Movie theaters must ‘urgently’ rethink the experience, a study says.**\
 `Nearly half of the prepandemic audience hasn’t returned, research shows, and 8 percent may be gone forever.`\
-https://nytimes.com/2021/11/29/business/movie-theaters-attendance.html?searchResultPosition=5
+https://nytimes.com/2021/11/29/business/movie-theater-attendance.html?searchResultPosition=5
 
 **‘No red flags’ yet: South African scientists caution against panic over the new variant.**\
 `Officials said that while they need more data to be sure, existing treatments and precautions seem to be effective against the Omicron variant.`\
