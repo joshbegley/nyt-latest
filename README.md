@@ -1,6 +1,6 @@
 **Markets Aren’t That Spooked by Omicron**\
 `Investors are re-pricing the risks of the latest coronavirus variant.`\
-https://nytimes.com/2021/11/29/business/dealbook/markets-omicron-variant.html?searchResultPosition=1
+https://nytimes.com/2021/11/29/business/dealbook/stock-markets-omicron-variant.html?searchResultPosition=1
 
 **Joaquina Kalukango and Amanda Williams on Creative Freedom**\
 `The “Slave Play” actress and the Chicago-based artist discuss generational gaps, success and the art that brought them each acclaim.`\
