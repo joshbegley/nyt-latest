@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/29/opinion/letters/stephen-sondheim-broadway.html?se
 
 **A Shower Bus Helps Those Without Access**\
 `People without regular access to bathing find help at Brooklyn Community Services' shower bus.`\
-https://nytimes.com/interactive/2021/11/29/neediest-cases/ncf-shower-bus.html?searchResultPosition=4
+https://nytimes.com/interactive/2021/11/29/neediest-cases/brooklyn-community-services-shower-bus.html?searchResultPosition=4
 
 **Fragmented Reactions Hinder Global Fight Against Omicron Variant**\
 `Almost two years into the pandemic, finger-pointing, lack of coordination, sparse information and fear are once again influencing policy.`\
