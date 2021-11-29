@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/29/nyregion/ghislaine-maxwell-charges.html?searchRes
 
 **Twitter’s Jack Dorsey Expected to Step Down from C.E.O. Role**\
 `The social media pioneer, whose name has become synonymous with Twitter, is also the chief executive of another company, Square.`\
-https://nytimes.com/2021/11/29/technology/jack-dorsey-twitter-stepping-down.html?searchResultPosition=4
+https://nytimes.com/2021/11/29/technology/jack-dorsey-twitter.html?searchResultPosition=4
 
 **Antiviral Covid Pills Are Coming. Will There Be Enough Tests?**\
 `The pills must be given early in the course of infection, which means access to timely, accurate test results will be crucial.`\
