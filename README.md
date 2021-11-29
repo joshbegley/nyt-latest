@@ -20,7 +20,7 @@ https://nytimes.com/2021/11/29/business/movie-theater-attendance.html?searchResu
 
 **‘No red flags’ yet: South African scientists caution against panic over the new variant.**\
 `Officials said that while they need more data to be sure, existing treatments and precautions seem to be effective against the Omicron variant.`\
-https://nytimes.com/2021/11/29/world/africa/south-africa-covid.html?searchResultPosition=6
+https://nytimes.com/2021/11/29/world/africa/south-africa-omicron-covid.html?searchResultPosition=6
 
 **Biden Urges Vaccinations Amid Omicron Variant Concerns**\
 `President Biden called the new Omicron coronavirus variant “a cause for concern, not a cause for panic,” and urged Americans to get vaccinations and booster shots. The variant has not yet been detected in the United States.`\
