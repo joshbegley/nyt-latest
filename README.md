@@ -2,11 +2,11 @@
 `In this episode, we will discuss how companies, even breweries, can tap into the potential of the cloud today, so they are well-positioned to take advantage of the new opportunities that the cloud will offer in the future.`\
 https://nytimes.com/paidpost/accenture/built-for-change/brewing-up-innovation-in-the-cloud.html?searchResultPosition=1
 
-**Biden is addressing the nation on Omicron.**\
+**Biden sought to reassure Americans about Omicron.**\
 `The variant has yet to be detected in the United States.`\
 https://nytimes.com/2021/11/29/us/politics/biden-vaccines-omicron.html?searchResultPosition=2
 
-**Honduras Election Front-Runner Vows New Era but is Tied to Past**\
+**Honduras Election Front-Runner Vows New Era but Is Tied to Past**\
 `Xiomara Castro, headed toward becoming her country’s next president, promises to expunge its legacy of corruption, but change may be tempered by her establishment ties and conservative opposition.`\
 https://nytimes.com/2021/11/29/world/americas/honduras-election-xiomara-castro.html?searchResultPosition=3
 
