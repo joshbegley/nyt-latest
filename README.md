@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/29/neediest-cases/finding-purpose-by-giving-back.htm
 
 **Virgil Abloh Shocked the System**\
 `His designs may not always have been trailblazing, yet his disruptions of a static industry altered fashion for good.`\
-https://nytimes.com/2021/11/29/style/virgil-abloh-shocked-the-system.html?searchResultPosition=9
+https://nytimes.com/2021/11/29/style/virgil-abloh-fashion-design.html?searchResultPosition=9
 
 **Doyle Hamm, Who Survived a Bungled Execution, Dies in Prison at 64**\
 `The failed lethal injection for Mr. Hamm, who was terminally ill, amounted to what his lawyer said was a case of cruel and unusual punishment.`\
