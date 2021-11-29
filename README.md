@@ -32,7 +32,7 @@ https://nytimes.com/2021/11/29/world/europe/portugal-omicron-soccer-team.html?se
 
 **A ‘Simpsons’ Episode Lampooned Chinese Censorship. In Hong Kong, It Vanished.**\
 `The episode mocked both Mao Zedong and the government’s efforts to suppress memory of the 1989 Tiananmen Square massacre.`\
-https://nytimes.com/2021/11/29/world/asia/simpsons-hong-kong-censorship.html?searchResultPosition=9
+https://nytimes.com/2021/11/29/world/asia/simpsons-hk.html?searchResultPosition=9
 
 **The Latest on Omicron**\
 `What should you assume about the new variant?`\
