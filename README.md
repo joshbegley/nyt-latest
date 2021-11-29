@@ -18,23 +18,23 @@ https://nytimes.com/interactive/2021/11/28/business/economy/high-inflation-mille
 `Green Bay’s Aaron Rodgers relied on veterans to beat the Rams, who had stockpiled talented stars like Von Miller and Odell Beckham Jr. to contend for the N.F.C. title.`\
 https://nytimes.com/2021/11/28/sports/packers-rams-score-nfl-week-12.html?searchResultPosition=5
 
+**Both parties claim victory as Honduras awaits election results.**\
+`By Anatoly Kurmanaev`\
+https://nytimes.com/2021/11/28/world/americas/hondurans-cast-their-votes-in-peace-then-await-results-amid-fears-of-fraud.html?searchResultPosition=6
+
 **Snowstorm Leaves 61 Stranded in Remote U.K. Pub**\
 `A crowd had gathered on Friday night to listen to Noasis, an Oasis tribute band. On Sunday night, patrons, band members and staff members were still stuck.`\
-https://nytimes.com/2021/11/28/world/europe/england-pub-snow-storm.html?searchResultPosition=6
+https://nytimes.com/2021/11/28/world/europe/england-pub-snow-storm.html?searchResultPosition=7
 
 **What We Learned From Week 12 in the N.F.L.**\
 `Tom Brady has help in Tampa Bay, the Bengals are forcing the issue in the A.F.C. North race, and the Rams have some soul-searching to do.`\
-https://nytimes.com/2021/11/28/sports/football/nfl-week-12-scores.html?searchResultPosition=7
+https://nytimes.com/2021/11/28/sports/football/nfl-week-12-scores.html?searchResultPosition=8
 
 **Carrie P. Meek, 5-Term Florida Representative, Dies at 95**\
 `She was the first Black person to represent the state in the House since Reconstruction, and she fought for programs to create jobs.`\
-https://nytimes.com/2021/11/28/obituaries/carrie-p-meek-dead.html?searchResultPosition=8
+https://nytimes.com/2021/11/28/obituaries/carrie-p-meek-dead.html?searchResultPosition=9
 
 **The Patriots’ Dynasty May Not Be Over After All**\
 `New England thrashed the Tennessee Titans for its sixth consecutive victory, improving to 8-4 and taking over first place in the A.F.C. East.`\
-https://nytimes.com/2021/11/28/sports/football/patriots-titans-score.html?searchResultPosition=9
-
-**Mikaela Shiffrin Has a World Cup Record, and, Finally, a Rival**\
-`Shiffrin tied the career record for World Cup wins in a single discipline, slalom, beating Petra Vlhova of Slovakia, the sport’s reigning overall champion.`\
-https://nytimes.com/2021/11/28/sports/skiing/mikaela-shiffrin-slalom-vlhova.html?searchResultPosition=10
+https://nytimes.com/2021/11/28/sports/football/patriots-titans-score.html?searchResultPosition=10
 
