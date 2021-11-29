@@ -1,40 +1,40 @@
+**Adele Is No. 1 With a Huge Week, but Without a Million in Sales**\
+`“30” tops the Billboard album chart with the equivalent of 839,000 sales in the United States, leaving Taylor Swift’s “Reputation” as the last LP to cross the million mark.`\
+https://nytimes.com/2021/11/29/arts/music/adele-30-billboard-chart.html?searchResultPosition=1
+
 **Lee Elder, Who Broke a Golf Color Barrier, Dies at 87**\
 `In his prime he played in a league for Black players, but in 1975, at 40, he became the first African- American to take part in the Masters tournament.`\
-https://nytimes.com/2021/11/29/sports/golf/lee-elder-dead.html?searchResultPosition=1
+https://nytimes.com/2021/11/29/sports/golf/lee-elder-dead.html?searchResultPosition=2
 
 **As ‘Nutcracker’ Returns, Companies Rethink Depictions of Asians**\
 `Ballet companies are reworking the holiday classic partly in response to a wave of anti-Asian hate that has intensified during the pandemic.`\
-https://nytimes.com/2021/11/29/arts/dance/nutcracker-asian-stereotypes-rethinking.html?searchResultPosition=2
+https://nytimes.com/2021/11/29/arts/dance/nutcracker-asian-stereotypes-rethinking.html?searchResultPosition=3
 
 **Omicron Demonstrates Need for Global Covid Response, W.H.O. Says**\
 `Dr. Tedros Adhanom Ghebreyesus, director general of the World Health Organization, said the new Omicron coronavirus variant underlined a need for better global pandemic cooperation, and that the current system “disincentives” countries from alerting new threats.`\
-https://nytimes.com/video/world/100000008097536/who-omicron-coronavirus-variant-world-health-organization.html?searchResultPosition=3
+https://nytimes.com/video/world/100000008097536/who-omicron-coronavirus-variant-world-health-organization.html?searchResultPosition=4
 
 **Brewing Up Innovation in the Cloud**\
 `In this episode, we will discuss how companies, even breweries, can tap into the potential of the cloud today, so they are well-positioned to take advantage of the new opportunities that the cloud will offer in the future.`\
-https://nytimes.com/paidpost/accenture/built-for-change/brewing-up-innovation-in-the-cloud.html?searchResultPosition=4
+https://nytimes.com/paidpost/accenture/built-for-change/brewing-up-innovation-in-the-cloud.html?searchResultPosition=5
 
 **Biden calls Omicron a ‘cause for concern, not a cause for panic.’**\
 `The variant has yet to be detected in the United States.`\
-https://nytimes.com/2021/11/29/us/politics/biden-vaccines-omicron.html?searchResultPosition=5
+https://nytimes.com/2021/11/29/us/politics/biden-vaccines-omicron.html?searchResultPosition=6
 
 **Honduras Election Front-Runner Vows New Era but Is Tied to Past**\
 `Xiomara Castro, headed toward becoming her country’s next president, promises to expunge its legacy of corruption, but change may be tempered by her establishment ties and conservative opposition.`\
-https://nytimes.com/2021/11/29/world/americas/honduras-election-xiomara-castro.html?searchResultPosition=6
+https://nytimes.com/2021/11/29/world/americas/honduras-election-xiomara-castro.html?searchResultPosition=7
 
 **Under the Radar Festival Returns, Smaller but Still Funky**\
 `The experimental festival at the Public Theater will return in person with fewer shows and, for the first time, performances outside New York City.`\
-https://nytimes.com/2021/11/29/theater/under-the-radar-festival.html?searchResultPosition=7
+https://nytimes.com/2021/11/29/theater/under-the-radar-festival.html?searchResultPosition=8
 
 **U.K. extends boosters to all adults while announcing two new Omicron cases.**\
 `The British government was widely criticized for a sluggish response to the Delta variant, and its reaction to Omicron came markedly quicker.`\
-https://nytimes.com/2021/11/29/world/europe/uk-boosters-adults-omicron.html?searchResultPosition=8
+https://nytimes.com/2021/11/29/world/europe/uk-boosters-adults-omicron.html?searchResultPosition=9
 
 **What Makes a Wine Great? It’s Not Just Old and Complex.**\
 `It ought to have a sense of place, and it needs to refresh. Beyond that, great wines are those that best fit the particular occasion.`\
-https://nytimes.com/2021/11/29/dining/drinks/great-wines.html?searchResultPosition=9
-
-**Jussie Smollett Trial Begins With Jury Selection**\
-`The actor said in 2019 that he was the victim of a hate crime, but the police said it was a hoax. His trial will revolve around charges that he filed a false police report.`\
-https://nytimes.com/2021/11/29/arts/television/jussie-smollett-trial.html?searchResultPosition=10
+https://nytimes.com/2021/11/29/dining/drinks/great-wines.html?searchResultPosition=10
 
