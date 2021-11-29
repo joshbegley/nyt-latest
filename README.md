@@ -30,11 +30,11 @@ https://nytimes.com/2021/11/29/opinion/letters/stephen-sondheim-broadway.html?se
 `People without regular access to bathing find help at Brooklyn Community Services' shower bus.`\
 https://nytimes.com/interactive/2021/11/29/neediest-cases/brooklyn-community-services-shower-bus.html?searchResultPosition=8
 
+**4 takeaways from the first day of Ghislaine Maxwell’s trial.**\
+`In the coming weeks, jurors are expected to hear testimony from four women whom prosecutors say Jeffrey Epstein exploited for sex with Ms. Maxwell’s help.`\
+https://nytimes.com/2021/11/29/nyregion/ghislaine-maxwell-trial-takeaways.html?searchResultPosition=9
+
 **Fragmented Reactions Hinder Global Fight Against Omicron Variant**\
 `Almost two years into the pandemic, finger-pointing, lack of coordination, sparse information and fear are once again influencing policy.`\
-https://nytimes.com/2021/11/29/world/africa/coronavirus-omicron-variant-response.html?searchResultPosition=9
-
-**Adolfo, Designer Who Dressed Nancy Reagan, Dies at 98**\
-`Adolfo, who began as a milliner and took inspiration from Chanel, was also a favorite of New York society women.`\
-https://nytimes.com/2021/11/29/fashion/adolfo-dead.html?searchResultPosition=10
+https://nytimes.com/2021/11/29/world/africa/coronavirus-omicron-variant-response.html?searchResultPosition=10
 
