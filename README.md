@@ -10,8 +10,8 @@ https://nytimes.com/2021/11/28/obituaries/carrie-p-meek-dead.html?searchResultPo
 `New England thrashed the Tennessee Titans for its sixth consecutive victory, improving to 8-4 and taking over first place in the A.F.C. East.`\
 https://nytimes.com/2021/11/28/sports/football/patriots-titans-score.html?searchResultPosition=3
 
-**Mikaela Shiffrin Has a Slalom Record, and, Finally, a Rival**\
-`Shiffrin tied the career record for World Cup wins in a single discipline, beating Petra Vlhova of Slovakia, the sport’s reigning overall champion.`\
+**Mikaela Shiffrin Has a World Cup Record, and, Finally, a Rival**\
+`Shiffrin tied the career record for World Cup wins in a single discipline, slalom, beating Petra Vlhova of Slovakia, the sport’s reigning overall champion.`\
 https://nytimes.com/2021/11/28/sports/skiing/mikaela-shiffrin-slalom-vlhova.html?searchResultPosition=4
 
 **The Giants and Jets Both Won, but Which Team Was More Enjoyable?**\
