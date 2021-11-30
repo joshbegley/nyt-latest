@@ -35,6 +35,6 @@ https://nytimes.com/interactive/2021/11/30/science/30sci-quiz.html?searchResultP
 https://nytimes.com/2021/11/30/business/eurozone-inflation-hits-a-record-high-of-4-9-percent.html?searchResultPosition=9
 
 **Éric Zemmour, Far-Right Pundit, Makes French Presidential Run Official**\
-`An anti-immigrant writer and right-wing television star, Mr. Zemmour said he was running in the country’s presidential elections next year, ending months of speculation.`\
+`After months of speculation, Mr. Zemmour, an anti-immigration writer and right-wing television star, said he was running in the presidential elections next year to “save” France.`\
 https://nytimes.com/2021/11/30/world/europe/eric-zemmour-france-president.html?searchResultPosition=10
 
