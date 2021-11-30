@@ -18,7 +18,7 @@ https://nytimes.com/2021/11/30/business/lululemon-peloton-lawsuit.html?searchRes
 `Long underrecognized for her innovations, a trailblazer of the Light and Space Movement is suddenly juggling three tribute shows to her six-decade career.`\
 https://nytimes.com/2021/11/30/arts/design/helen-pashgian-light-and-space-movement.html?searchResultPosition=5
 
-**What to Know About the Fatal Shooting of Daunte Wright**\
+**What to Know About Kimberly Potter’s Trial for the Death of Daunte Wright**\
 `Kimberly Potter, a former Minnesota police officer, faces manslaughter charges in the death of Mr. Wright. She called out “Taser! Taser! Taser!” before firing her gun during a traffic stop.`\
 https://nytimes.com/2021/11/30/us/daunte-wright-shooting-kimberly-potter.html?searchResultPosition=6
 
