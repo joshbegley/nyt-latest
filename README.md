@@ -1,6 +1,6 @@
 **Detectives Work to Trace How Live Rounds Got on ‘Rust’ Film Set**\
 `Investigators are trying to determine whether a supplier who was supposed to provide the movie with blanks and dummies may have sent live rounds.`\
-https://nytimes.com/2021/11/30/arts/alec-baldwin-shooting-ammunition-rust.html?searchResultPosition=1
+https://nytimes.com/2021/11/30/movies/alec-baldwin-shooting-ammunition-rust.html?searchResultPosition=1
 
 **Prosecutors Push Elizabeth Holmes of Theranos to Take Responsibility**\
 `Under cross-examination, the founder of the failed blood testing start-up defended herself but admitted that she had made mistakes.`\
