@@ -1,5 +1,5 @@
 **Greece makes vaccines mandatory for people 60 or older, with fines for not complying.**\
-`It is the latest European nation to announce restrictions on the unvaccinated, as the con`\
+`It is the latest European nation to announce restrictions on the unvaccinated, as the country tries to stem a surge.`\
 https://nytimes.com/2021/11/30/world/europe/greece-vaccine-fine-covid.html?searchResultPosition=1
 
 **Investors Snap Up Metaverse Real Estate in a Virtual Land Boom**\
