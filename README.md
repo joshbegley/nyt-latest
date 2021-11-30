@@ -1,6 +1,6 @@
 **With $125 Million Gift, Met Museum Jump-Starts New Modern Wing**\
 `The donation from a trustee, Oscar L. Tang, and his wife, Agnes Hsu‐Tang, reinvigorates the long-delayed project and is the largest capital gift in the Met’s history.`\
-https://nytimes.com/2021/11/30/arts/met-museum-modern-wing-gift-donor-tang.html?searchResultPosition=1
+https://nytimes.com/2021/11/30/arts/design/met-museum-modern-wing-gift.html?searchResultPosition=1
 
 **Greece Mandates Coronavirus Vaccines for People 60 or Older**\
 `Prime Minister Kyriakos Mitsotakis of Greece said those 60 or older who have not gotten their first shot by Jan. 16 would face a monthly fine of 100 euros ($113).`\
