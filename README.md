@@ -7,7 +7,7 @@ https://nytimes.com/2021/11/30/arts/design/met-museum-modern-wing-gift.html?sear
 https://nytimes.com/video/world/europe/100000008099394/greece-older-residents-vaccine.html?searchResultPosition=2
 
 **Explore the Sound of Activism With Tom Morello**\
-`Songs and social movements often go hand in hand. What music defines our politically charged times?`\
+`Songs and social movements often go hand in hand. What music defines our politically charged times? Join a virtual event on Dec. 15.`\
 https://nytimes.com/2021/11/30/opinion/explore-the-sound-of-activism-with-tom-morello.html?searchResultPosition=3
 
 **At 80, Robert Wilson Holds On to a Singular Vision for the Stage**\
