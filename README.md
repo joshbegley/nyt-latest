@@ -30,7 +30,7 @@ https://nytimes.com/video/business/economy/100000008098732/biden-supply-chain-ho
 `Why don’t other countries face a Great Resignation?`\
 https://nytimes.com/2021/11/29/opinion/united-states-europe-jobs.html?searchResultPosition=8
 
-**The defense department says Oklahoma National Guard must get vaccinated.**\
+**The Defense Department says Oklahoma National Guard must get vaccinated.**\
 `The governor had tried to exempt the troops from the federal vaccine requirement that applies to all service branches.`\
 https://nytimes.com/2021/11/29/us/politics/oklahoma-national-guard-vaccine.html?searchResultPosition=9
 
