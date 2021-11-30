@@ -1,6 +1,6 @@
 **Alice Sebold Apologizes to Man Wrongly Convicted of Raping Her**\
 `Anthony Broadwater spent 16 years in prison after the author identified him as her attacker in an assault she described in her memoir “Lucky.”`\
-https://nytimes.com/2021/11/30/us/alice-sebold-rape-case.html?searchResultPosition=1
+https://nytimes.com/2021/11/30/nyregion/alice-sebold-rape-case.html?searchResultPosition=1
 
 **Detectives Work to Trace How Live Rounds Got on ‘Rust’ Film Set**\
 `Investigators are trying to determine whether a supplier who was supposed to provide the movie with blanks and dummies may have sent live rounds.`\
