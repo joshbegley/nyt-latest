@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/100000008100120/michigan-school-shooting.html?searchResultPosition=1
 
 **3 Are Killed in Shooting at Michigan High School**\
-`A 15-year-old sophomore was taken into custody after firing a semiautomatic handgun 15 to 20 times at Oxford High School in Oxford County, Mich., the authorities said. The dead were all believed to be students.`\
+`A 15-year-old sophomore was taken into custody after firing a semiautomatic handgun 15 to 20 times at Oxford High School in Oakland County, Mich., the authorities said. The dead were all believed to be students.`\
 https://nytimes.com/2021/11/30/us/school-shooting-oxford-michigan.html?searchResultPosition=2
 
 **How to Watch the Christmas Tree Lighting at Rockefeller Center**\
