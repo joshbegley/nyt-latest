@@ -11,7 +11,7 @@ https://nytimes.com/2021/11/30/style/jill-biden-white-house-christmas.html?searc
 https://nytimes.com/video/world/europe/100000008099714/britain-omicron-coronavirus.html?searchResultPosition=3
 
 **Dorsey’s Twitter Departure Hints at Tech Moguls’ Restlessness**\
-`Jack Dorsey’s departure after six years as Twitter’s chief executive hints at how little fun the titans of tech seem to be having.`\
+`Jack Dorsey, who is stepping down after six years as Twitter’s chief executive, is one of tech leaders who seem to have grown tired of managing their empires.`\
 https://nytimes.com/2021/11/30/technology/dorsey-twitter-big-tech-ceos.html?searchResultPosition=4
 
 **The Gator Finds a Place at the Tailgate**\
