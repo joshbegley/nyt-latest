@@ -1,4 +1,4 @@
-**What Is the Omicron Variant?**\
+**What We Know About the Omicron Variant**\
 `The World Health Organization has declared that this version of the coronavirus poses a very high risk to public health. How did they come to that conclusion?`\
 https://nytimes.com/2021/11/30/podcasts/the-daily/omicron-variant-coronavirus.html?searchResultPosition=1
 
