@@ -18,8 +18,8 @@ https://nytimes.com/2021/11/30/us/covid-california-relocation.html?searchResultP
 `Adapted from a manga, this French-language feature concerns an obsessive climber and a camera that may prove Everest was conquered decades earlier.`\
 https://nytimes.com/2021/11/30/movies/the-summit-of-the-gods-review.html?searchResultPosition=5
 
-**Brian Kelly Said to Leave Notre Dame for L.S.U.**\
-`A top coach is reportedly heading to the Southeastern Conference, the latest in a series of moves at some of the country’s most storied college football programs.`\
+**Brian Kelly Leaves Notre Dame for L.S.U.**\
+`A top coach is heading to the Southeastern Conference, the latest in a series of moves at some of the country’s most storied college football programs.`\
 https://nytimes.com/2021/11/30/sports/ncaafootball/brian-kelly-lsu-notre-dame.html?searchResultPosition=6
 
 **‘Our Money Has No Value’: Frustration Rises in Turkey at Lira Crisis**\
