@@ -12,7 +12,7 @@ https://nytimes.com/2021/11/29/world/middleeast/egypt-hossam-bahgat-verdict.html
 
 **Met Opera’s Conductor Drops Out of ‘Figaro’**\
 `Yannick Nézet-Séguin said a nearly four-week break from the podium would allow “time for me to re-energize” after a busy autumn.`\
-https://nytimes.com/2021/11/29/arts/music/nezet-seguin-met-opera.html?searchResultPosition=4
+https://nytimes.com/2021/11/29/arts/music/yannick-nezet-seguin-met-opera.html?searchResultPosition=4
 
 **Corrections: Nov. 30, 2021**\
 `Corrections that appeared in print on Tuesday, Nov. 30, 2021.`\
