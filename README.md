@@ -18,7 +18,7 @@ https://nytimes.com/video/world/asia/100000008097425/japan-omicron-travel-ban.ht
 `On the cusp of overturning Roe, conservatives adopt a pro-choice slogan.`\
 https://nytimes.com/2021/11/29/opinion/abortion-vaccine-mandate.html?searchResultPosition=5
 
-**Nevada Athletic Panel Opens Inquiry Into Fraternity Boxing Event After Student’s Death**\
+**Nevada Athletic Panel Opens Inquiry Into Fraternity Boxing Event After Student Dies**\
 `Nathan Valencia, 20, a student at the University of Nevada, Las Vegas, died on Nov. 23 of brain injuries four days after headlining a charity boxing match, lawyers for his family said.`\
 https://nytimes.com/2021/11/29/us/unlv-student-death-fraternity-boxing.html?searchResultPosition=6
 
