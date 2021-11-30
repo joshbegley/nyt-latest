@@ -22,7 +22,7 @@ https://nytimes.com/2021/11/30/opinion/explore-the-sound-of-activism-with-tom-mo
 `Slowed but not stopped by the pandemic, Wilson has had a busy fall that continues with his production of “Turandot” at the Paris Opera.`\
 https://nytimes.com/2021/11/30/arts/music/robert-wilson-at-80.html?searchResultPosition=6
 
-**Powell signals the Fed’s bond-buying program could end sooner as inflation persists.**\
+**Jerome Powell signals the Fed’s bond-buying program could end sooner as inflation persists.**\
 `The Federal Reserve could pull back economic support faster as inflation lasts, and its chair signaled that for now the Omicron variant is a “risk.”`\
 https://nytimes.com/2021/11/30/business/powell-bond-buying-taper.html?searchResultPosition=7
 
