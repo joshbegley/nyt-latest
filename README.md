@@ -22,19 +22,19 @@ https://nytimes.com/2021/11/30/books/review/people-from-my-neighborhood-hiromi-k
 `The authorities said that a 15-year-old sophomore opened fire with a semiautomatic handgun at a school in Oakland County, Mich., north of Detroit.`\
 https://nytimes.com/video/us/100000008100120/michigan-school-shooting.html?searchResultPosition=6
 
+**The dead were all believed to be students.**\
+`A 15-year-old sophomore was taken into custody after firing a semiautomatic handgun 15 to 20 times at Oxford High School in Oakland County, Mich., the authorities said. The dead were all believed to be students.`\
+https://nytimes.com/2021/11/30/us/school-shooting-oxford-michigan.html?searchResultPosition=7
+
 **How to Watch the Christmas Tree Lighting at Rockefeller Center**\
 `The Christmas tree will be lit on Wednesday in a star-studded ceremony, which will be open to the public for the first time since 2019.`\
-https://nytimes.com/2021/11/30/nyregion/rockefeller-center-tree-lighting.html?searchResultPosition=7
+https://nytimes.com/2021/11/30/nyregion/rockefeller-center-tree-lighting.html?searchResultPosition=8
 
 **‘The Power of the Dog’ Review: Wild Hearts on a Closed Frontier**\
 `In Jane Campion’s staggering take on the western, her first movie in more than a decade, a cruel cowboy meets his surprising match.`\
-https://nytimes.com/2021/11/30/movies/the-power-of-the-dog-review.html?searchResultPosition=8
+https://nytimes.com/2021/11/30/movies/the-power-of-the-dog-review.html?searchResultPosition=9
 
 **Dr. Oz Says He’s Running for Senate in Pennsylvania**\
 `Dr. Mehmet Oz, who is running as a Republican for an open Senate seat, described his frustration with the “arrogant, closed-minded people in charge” who shut schools and businesses during the pandemic.`\
-https://nytimes.com/2021/11/30/us/politics/dr-oz-senate-run-pennsylvania.html?searchResultPosition=9
-
-**Tiny Love Stories: ‘Your Husband Will Probably Leave You Now’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2021/11/30/style/tiny-modern-love-stories-your-husband-will-probably-leave-you-now.html?searchResultPosition=10
+https://nytimes.com/2021/11/30/us/politics/dr-oz-senate-run-pennsylvania.html?searchResultPosition=10
 
