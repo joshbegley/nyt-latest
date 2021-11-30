@@ -2,7 +2,7 @@
 `Billy Ouska’s puzzle may play games with your heart.`\
 https://nytimes.com/2021/11/29/crosswords/daily-puzzle-2021-11-30.html?searchResultPosition=1
 
-**Former Temple University Dean Found Guilty of Faking Data for National Rankings**\
+**Former Temple U. Dean Found Guilty of Faking Data for National Rankings**\
 `Prosecutors said he conspired to submit fake data about Temple’s Fox School of Business that helped it climb influential U.S. News & World Report college rankings.`\
 https://nytimes.com/2021/11/29/us/temple-university-moshe-porat-fraud.html?searchResultPosition=2
 
