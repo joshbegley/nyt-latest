@@ -28,7 +28,7 @@ https://nytimes.com/2021/11/29/opinion/united-states-europe-jobs.html?searchResu
 
 **The defense department says Oklahoma National Guard must get vaccinated.**\
 `The governor had tried to exempt the troops from the federal vaccine requirement that applies to all service branches.`\
-https://nytimes.com/2021/11/29/us/politics/the-defense-department-says-oklahoma-national-guard-must-get-vaccinated.html?searchResultPosition=8
+https://nytimes.com/2021/11/29/us/politics/oklahoma-national-guard-vaccine.html?searchResultPosition=8
 
 **Ghislaine Maxwell’s Trial Opens, With Epstein at Its Center**\
 `A prosecutor described Jeffrey Epstein and his longtime girlfriend and associate, Ms. Maxwell, as “partners in crime.”`\
