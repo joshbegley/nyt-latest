@@ -1,6 +1,6 @@
 **Prosecutors Push Elizabeth Holmes of Theranos to Take Responsibility**\
 `Under cross-examination, the founder of the failed blood testing start-up defended herself but admitted that she had made mistakes.`\
-https://nytimes.com/2021/11/30/technology/prosecutors-push-elizabeth-holmes-of-theranos-to-take-responsibility.html?searchResultPosition=1
+https://nytimes.com/2021/11/30/technology/elizabeth-holmes-theranos-trial.html?searchResultPosition=1
 
 **Adele Returns, From Beyond Space and Time**\
 `Will we ever see a star who unites audiences like this British musician again?`\
