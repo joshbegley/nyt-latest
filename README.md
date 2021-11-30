@@ -3,11 +3,11 @@
 https://nytimes.com/2021/11/30/arts/music/robert-wilson-at-80.html?searchResultPosition=1
 
 **Powell signals Federal Reserve bond-buying program could end sooner as inflation persists.**\
-`The Fed had been buying $120 billion in government-backed securities each month for much of the pandemic, but in November officials announced plans to slow those purchases by $15 billion per month.`\
-https://nytimes.com/2021/11/30/business/powell-taper.html?searchResultPosition=2
+`The Fed could pull back economic support faster as inflation lasts, and its chair signaled that for now the omicron variant is a “risk.”`\
+https://nytimes.com/2021/11/30/business/powell-bond-buying-taper.html?searchResultPosition=2
 
-**Regeneron said its antibody treatment might not be as effective against Omicron, but testing is underway.**\
-`The company said that analyses and modeling of mutations in the variant suggest that they may weaken the effect of the treatment, but that studies using Omicron’s full sequences have not been completed.`\
+**Regeneron says its antibody treatment may not be as effective against Omicron, but testing is underway.**\
+`The company said that analyses and modeling of mutations in the variant suggest that they may weaken the effect of the treatment, but that studies using Omicron’s full sequences are incomplete.`\
 https://nytimes.com/2021/11/30/health/regeneron-antibody-treatment-omicron.html?searchResultPosition=3
 
 **The Gotham Awards Find a Big Winner in ‘The Lost Daughter’**\
