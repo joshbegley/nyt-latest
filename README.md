@@ -10,7 +10,7 @@ https://nytimes.com/2021/11/30/style/jill-biden-white-house-christmas.html?searc
 `The British government has tightened restrictions and extended its vaccination program in an attempt to stem the spread of the coronavirus variant.`\
 https://nytimes.com/video/world/europe/100000008099714/britain-omicron-coronavirus.html?searchResultPosition=3
 
-**Tech Titans, Bored With Their Empires, Are Searching for New Frontiers**\
+**Dorsey’s Twitter Departure Hints at Tech Moguls’ Restlessness**\
 `Jack Dorsey’s departure after six years as Twitter’s chief executive hints at how little fun the titans of tech seem to be having.`\
 https://nytimes.com/2021/11/30/technology/dorsey-twitter-big-tech-ceos.html?searchResultPosition=4
 
