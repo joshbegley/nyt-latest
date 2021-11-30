@@ -28,7 +28,7 @@ https://nytimes.com/video/us/100000008100120/michigan-school-shooting.html?searc
 
 **The dead were all believed to be students.**\
 `A 15-year-old sophomore was taken into custody after firing a semiautomatic handgun 15 to 20 times at Oxford High School in Oakland County, Mich., the authorities said. The dead were all believed to be students.`\
-https://nytimes.com/2021/11/30/us/school-shooting-oxford-michigan.html?searchResultPosition=8
+https://nytimes.com/live/2021/11/30/us/school-shooting-michigan/school-shooting-oxford-michigan?searchResultPosition=8
 
 **How to Watch the Christmas Tree Lighting at Rockefeller Center**\
 `The Christmas tree will be lit on Wednesday in a star-studded ceremony, which will be open to the public for the first time since 2019.`\
