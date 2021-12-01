@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/01/opinion/retail-theft-ecommerce.html?searchResultP
 
 **This Year’s Winner of the Turner Prize? A Group That Performs Protest.**\
 `The Belfast-based Array Collective stages carnivalesque interventions at political rallies. Now the group has won Britain’s major art award.`\
-https://nytimes.com/2021/12/01/arts/turner-prize-winner.html?searchResultPosition=2
+https://nytimes.com/2021/12/01/arts/design/turner-prize-winner.html?searchResultPosition=2
 
 **On the Scene at the Supreme Court**\
 `I was outside the Supreme Court where one of the most important cases in a generation was heard this morning.`\
