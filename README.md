@@ -26,15 +26,15 @@ https://nytimes.com/2021/12/01/opinion/smart-car-technology.html?searchResultPos
 `Taken together, the provisions in the social policy bill represent the biggest step toward universal coverage since the passage of the Affordable Care Act.`\
 https://nytimes.com/2021/12/01/us/build-back-better-act-health-coverage.html?searchResultPosition=7
 
+**Those Cute Cats Online? They Help Spread Misinformation.**\
+`A mainstay of the internet is regularly used to build audiences for people and organizations pushing false and misleading information.`\
+https://nytimes.com/2021/12/01/technology/misinformation-cute-cats-online.html?searchResultPosition=8
+
 **While Politics Consume School Board Meetings, a Very Different Crisis Festers**\
 `In a wealthy suburban Philadelphia district, schools are struggling with shortages of all sorts. Behavioral problems have mushroomed. “We are in triage mode,” one teacher said.`\
-https://nytimes.com/2021/12/01/us/central-bucks-school-board-politics-pennsylvania.html?searchResultPosition=8
+https://nytimes.com/2021/12/01/us/central-bucks-school-board-politics-pennsylvania.html?searchResultPosition=9
 
 **Kingston, N.Y.: A Historic Hudson City ‘Preparing for Better Opportunities’**\
 `With its thriving arts scene, bucolic setting and Revolution-era architecture, the Ulster County seat is increasingly a magnet for expatriate New Yorkers.`\
-https://nytimes.com/2021/12/01/realestate/kingston-ny-a-historic-hudson-city-preparing-for-better-opportunities.html?searchResultPosition=9
-
-**Those Cute Cats Online? They Help Spread Misinformation.**\
-`A mainstay of the internet is regularly used to build audiences for people and organizations pushing false and misleading information.`\
-https://nytimes.com/2021/12/01/technology/those-cute-cats-online-they-help-spread-misinformation.html?searchResultPosition=10
+https://nytimes.com/2021/12/01/realestate/kingston-ny-a-historic-hudson-city-preparing-for-better-opportunities.html?searchResultPosition=10
 
