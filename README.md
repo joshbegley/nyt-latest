@@ -34,7 +34,7 @@ https://nytimes.com/2021/12/01/opinion/letters/abortion-laws.html?searchResultPo
 `With epics like “West Side Story” and biopics like “King Richard” in contention, Oscar voters have plenty of choices in a category that’s now set at 10 slots.`\
 https://nytimes.com/2021/12/01/movies/best-picture-oscar-contenders.html?searchResultPosition=9
 
-**Oil Producers Face Omicron Uncertainty and Rebellious Customers**\
-`OPEC and Russia want to bolster prices after a 10 percent drop last week. But they also need to consider the release of reserves by the U.S. and other countries.`\
+**OPEC Faces Omicron Uncertainty and Rebellious Customers**\
+`The oil cartel and Russia want to bolster prices after a 10 percent drop last week. But they also need to consider the release of reserves by the U.S. and other countries.`\
 https://nytimes.com/2021/12/01/business/oil-opec-omicron-prices.html?searchResultPosition=10
 
