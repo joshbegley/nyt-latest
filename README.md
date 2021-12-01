@@ -1,40 +1,40 @@
-**Police Officer and 2 Women Are Killed in Atlanta Area**\
-`A suspect was shot and killed during an “exchange of gunfire” with officers responding to a domestic violence call, the police said. A 12-year-old boy and an officer were also injured.`\
-https://nytimes.com/2021/12/01/us/clayton-county-shooting-georgia.html?searchResultPosition=1
+**Cars Keep Getting Smarter. Do They Have to Look So Boring?**\
+`New cars are packed with technology, but they lack style and personality.`\
+https://nytimes.com/2021/12/01/opinion/smart-car-technology.html?searchResultPosition=1
 
-**What to Read: 4 New Illustrated Books**\
-`Here are four new graphic books we recommend this week.`\
-https://nytimes.com/interactive/2021/12/01/books/new-graphic-novels.html?searchResultPosition=2
+**Democrats’ Bill Would Go Far Toward ‘Patching the Holes’ in Health Coverage**\
+`Taken together, the provisions in the social policy bill represent the biggest step toward universal coverage since the passage of the Affordable Care Act.`\
+https://nytimes.com/2021/12/01/us/build-back-better-act-health-coverage.html?searchResultPosition=2
 
-**Lesson of the Day: ‘New “Variant of Concern” Fuels Global Fear of Another Virus Surge’**\
-`Is the Omicron variant more contagious? Is it going to make people sicker? How will the vaccines work against it? This lesson plan explores these questions and more.`\
-https://nytimes.com/2021/12/01/learning/lesson-plans/lesson-of-the-day-new-variant-of-concern-fuels-global-fear-of-another-virus-surge.html?searchResultPosition=3
+**Kingston, N.Y.: A Historic Hudson City ‘Preparing for Better Opportunities’**\
+`With its thriving arts scene, bucolic setting and Revolution-era architecture, the Ulster County seat is increasingly a magnet for expatriate New Yorkers.`\
+https://nytimes.com/2021/12/01/realestate/kingston-ny-a-historic-hudson-city-preparing-for-better-opportunities.html?searchResultPosition=3
 
-**The Help-Wanted Signs Are Up for Transit Workers**\
-`Desperate to keep trains and buses rolling, New York’s transit agency offered retired transit workers $35,000 to go back to work for three months.`\
-https://nytimes.com/2021/12/01/nyregion/mta-transit-workers-bonus.html?searchResultPosition=4
+**Those Cute Cats Online? They Help Spread Misinformation.**\
+`A mainstay of the internet is regularly used to build audiences for people and organizations pushing false and misleading information.`\
+https://nytimes.com/2021/12/01/technology/those-cute-cats-online-they-help-spread-misinformation.html?searchResultPosition=4
 
-**The Next Challenge to Vaccinating Africa: Overcoming Skepticism**\
-`Vaccines are finally available in many African countries, but some people there, as well as in South Asia, are wary of taking them.`\
-https://nytimes.com/2021/12/01/world/africa/coranavirus-vaccine-hesitancy-africa.html?searchResultPosition=5
+**While Politics Consume School Board Meetings, a Very Different Crisis Festers**\
+`In a wealthy suburban Philadelphia district, schools are struggling with shortages of all sorts. Behavioral problems have mushroomed. “We are in triage mode,” one teacher said.`\
+https://nytimes.com/2021/12/01/us/central-bucks-school-board-politics-pennsylvania.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/01/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Where the Pro-Choice Movement Went Wrong**\
+`How abortion-rights groups failed to stop the erosion of Roe v. Wade.`\
+https://nytimes.com/2021/12/01/opinion/abortion-planned-parenthood-naral-roe-v-wade.html?searchResultPosition=6
 
-**Giving**\
-`How do you give back?`\
-https://nytimes.com/2021/12/01/learning/giving.html?searchResultPosition=7
+**Living In ... Kingston, N.Y.**\
+`With its thriving arts scene, bucolic setting and Revolution-era architecture, the Ulster County seat is increasingly a magnet for New Yorkers.`\
+https://nytimes.com/slideshow/2021/12/01/realestate/living-in-kingston-ny.html?searchResultPosition=7
 
-**Word of the Day: beset**\
-`This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/12/01/learning/word-of-the-day-beset.html?searchResultPosition=8
+**Lawmakers Target Big Tech ‘Amplification.’ What Does That Mean?**\
+`Some lawmakers from both parties argue that when social media sites boost the performance of hateful or violent posts, the sites become accomplices.`\
+https://nytimes.com/2021/12/01/technology/big-tech-amplification.html?searchResultPosition=8
 
-**Late Night Doesn’t Feel Great About Omicron**\
-`Moderna’s chief executive said scientists anticipate Omicron is “not going to be good.” Stephen Colbert called the sentiment “not comforting.”`\
-https://nytimes.com/2021/12/01/arts/television/late-night-colbert-omicron-not-good.html?searchResultPosition=9
+**In China, Buying That Toy Gun Could Get You Arrested**\
+`San Cheng bought toy guns online as props for video game design. Then the police arrived, and he was jailed under China’s strict but messy gun laws.`\
+https://nytimes.com/2021/12/01/world/asia/china-alibaba-toy-guns.html?searchResultPosition=9
 
-**3 Students Are Killed in Michigan School Shooting**\
-`A 15-year-old sophomore was taken into custody with a semiautomatic handgun that was bought by his father four days before the fatal shooting.`\
-https://nytimes.com/2021/12/01/us/oxford-oakland-county-shooting.html?searchResultPosition=10
+**Mississippi Asks: If Women Can Have It All, Is Roe Necessary?**\
+`One argument in the case before the Supreme Court is that the need for abortion rights has passed, because decades of progress have made it easier for women to balance work and family.`\
+https://nytimes.com/2021/12/01/upshot/mississippi-abortion-case-roe.html?searchResultPosition=10
 
