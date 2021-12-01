@@ -1,6 +1,6 @@
 **A Times editor who attended Oxford recalls a decade-old shooting drill.**\
 `Three teenage students were killed on Tuesday in the school district I graduated from.`\
-https://nytimes.com/2021/11/30/us/school-shooting-oxford-high-drill.html?searchResultPosition=1
+https://nytimes.com/2021/11/30/us/oxford-high-shooting-drill.html?searchResultPosition=1
 
 **Republican Recriminations Point to a Rocky Path to a House Majority**\
 `Simmering tensions between the far-right flank and more traditional conservatives burst into the open on Tuesday, while Republican leaders stayed silent.`\
