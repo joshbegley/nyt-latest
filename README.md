@@ -32,7 +32,7 @@ https://nytimes.com/2021/12/01/arts/television/amazon-disney-hulu-streaming.html
 
 **An Israeli doctor caught Omicron, then met dozens of people. Just one contact has tested positive.**\
 `In the days leading up to his positive test, Elad Maor interacted with about 100 people. So far, only one contact has tested positive.`\
-https://nytimes.com/2021/12/01/world/middleeast/israel-micron-surgeon.html?searchResultPosition=9
+https://nytimes.com/2021/12/01/world/middleeast/israel-omicron-surgeon.html?searchResultPosition=9
 
 **‘14 Peaks: Nothing Is Impossible’ Review: Climbing at a Breakneck Pace**\
 `A documentary follows the Nepalese mountaineer Nirmal Pirja as he tries to add cultural depth to the sport’s highs.`\
