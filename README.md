@@ -6,7 +6,7 @@ https://nytimes.com/2021/12/01/world/germanys-incoming-chancellor-wants-vaccinat
 `Upstarts including Olivia Rodrigo, Lil Nas X, Chloe Bailey and the Kid Laroi grew up on the internet, admiring the artists who are now their contemporaries.`\
 https://nytimes.com/2021/12/01/arts/music/gen-z-millennial-pop-stars.html?searchResultPosition=2
 
-**Gov. Charlie Baker of Massachusetts Is Said to Decline a Re-election Bid**\
+**Gov. Charlie Baker of Massachusetts Says He Won’t Run for Re-election**\
 `Mr. Baker, a moderate Republican in a deep-blue state, faced a Trump-backed primary challenge and a potentially difficult general election.`\
 https://nytimes.com/2021/12/01/us/politics/charlie-baker-massachusetts-governor.html?searchResultPosition=3
 
