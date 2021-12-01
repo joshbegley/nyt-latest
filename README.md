@@ -22,7 +22,7 @@ https://nytimes.com/2021/12/01/t-magazine/hanukkah-challah-recipe-batsheva-hay.h
 `The fashion designer shares a recipe for fluffy challah bread from her New York City apartment.`\
 https://nytimes.com/video/t-magazine/100000008100485/cooking-class-batsheva-hay.html?searchResultPosition=6
 
-**WTA Suspends Tournaments in China Over Missing Tennis Star Peng Shuai**\
+**WTA Suspends Tournaments in China Over Treatment of Peng Shuai**\
 `Steve Simon said Wednesday that the women’s tennis tour would not stage tournaments in China, including Hong Kong, because he has been unable to communicate with Peng despite repeated attempts.`\
 https://nytimes.com/2021/12/01/sports/tennis/wta-china-peng-shuai.html?searchResultPosition=7
 
