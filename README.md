@@ -18,23 +18,23 @@ https://nytimes.com/slideshow/2021/12/01/realestate/what-you-get-for-500000.html
 `Shows about Chippendales, a notorious Hollywood bomb, the search for the perfect pasta shape and the immediate aftermath of 9/11 are among those worthy of your attention.`\
 https://nytimes.com/2021/12/01/arts/best-podcasts.html?searchResultPosition=5
 
+**What did Roe v. Wade say?**\
+`By Adam Liptak`\
+https://nytimes.com/2021/12/01/us/politics/roe-wade-supreme-court.html?searchResultPosition=6
+
 **Looking Again at Amy Winehouse, 10 Years After Her Death**\
 `In “Amy: Beyond the Stage,” the Design Museum in London explores — and tries to somewhat reframe — the “Back to Black” singer’s life and legacy.`\
-https://nytimes.com/2021/12/01/arts/design/amy-winehouse-design-museum.html?searchResultPosition=6
+https://nytimes.com/2021/12/01/arts/design/amy-winehouse-design-museum.html?searchResultPosition=7
 
 **Venture Capital Funding for Crypto Companies Is Surging**\
 `It has risen more than in any other year, partly driven by the investing arms of large firms already in the crypto industry.`\
-https://nytimes.com/2021/12/01/business/dealbook/crypto-venture-capital.html?searchResultPosition=7
+https://nytimes.com/2021/12/01/business/dealbook/crypto-venture-capital.html?searchResultPosition=8
 
 **The Best California TV Shows**\
 `Watch a version of your life reflected back on the small screen.`\
-https://nytimes.com/2021/12/01/us/best-california-tv-shows.html?searchResultPosition=8
+https://nytimes.com/2021/12/01/us/best-california-tv-shows.html?searchResultPosition=9
 
 **What did Planned Parenthood v. Casey say?**\
 `By Adam Liptak`\
-https://nytimes.com/2021/12/01/us/politics/supreme-court-planned-parenthood-casey.html?searchResultPosition=9
-
-**The Debate Over Whether Omicron Will Make Inflation Worse**\
-`There is more than one school of thought on the matter.`\
-https://nytimes.com/2021/12/01/business/dealbook/omicron-inflation-supply-chain.html?searchResultPosition=10
+https://nytimes.com/2021/12/01/us/politics/supreme-court-planned-parenthood-casey.html?searchResultPosition=10
 
