@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/01/arts/dance/the-mood-room-review-1980s-anomie-cali
 https://nytimes.com/2021/12/01/us/politics/trump-virus-positive.html?searchResultPosition=4
 
 **New E.U. Measures Set to Restrict Asylum Rights at the Belarus Border**\
-`Poland, Latvia and Lithuania could take up to four months to process asylum requests at the border, which experts and humanitarian organizations said would only worsen their fate as winter sets in.`\
+`Poland, Latvia and Lithuania could take up to four months to process asylum requests at the border, a delay that aid groups said would leave migrants in unsafe conditions as winter sets in.`\
 https://nytimes.com/2021/12/01/world/europe/asylum-rights-poland-eu.html?searchResultPosition=5
 
 **An Integration Plan Leads a Student to a New School: ‘His Whole Life Changed’**\
