@@ -16,7 +16,7 @@ https://nytimes.com/2021/11/30/crosswords/daily-puzzle-2021-12-01.html?searchRes
 
 **Watch Live: Sheriff Holds Briefing on Michigan School Shooting**\
 `A 15-year-old sophomore opened fire at Oxford High School in Oakland County, Mich., north of Detroit. Credit: WXYZ`\
-https://nytimes.com/video/us/100000008100851/live-video-school-shooting-michigan-news.html?searchResultPosition=5
+https://nytimes.com/video/embedded/us/100000008100851/live-video-school-shooting-michigan-news.html?searchResultPosition=5
 
 **Investigator Cites Video and Other Evidence Against Jussie Smollett**\
 `A detective told jurors at Mr. Smollett’s trial how the actor had gone from victim to suspect as the investigation unfolded. But the actor’s lawyer suggested the police work was not thorough.`\
