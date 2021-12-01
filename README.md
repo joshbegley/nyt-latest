@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2021/12/01/smarter-living/wirecutter/giving-good
 `In the more than two years since Mr. Epstein’s death, investigative records have shed new light on his last days.`\
 https://nytimes.com/2021/12/01/nyregion/jeffrey-epstein-suicide.html?searchResultPosition=2
 
-**Omicron is Here and New Covid-19 Drugs Are Coming. Will We Use Them Wisely?**\
+**To Counter Omicron, Covid-19 Treatments Must Be Cheap and Accessible**\
 `The world must not repeat history by making Covid-19 drugs inaccessible. `\
 https://nytimes.com/2021/12/01/opinion/omicron-covid-drugs-pfizer-antiviral.html?searchResultPosition=3
 
