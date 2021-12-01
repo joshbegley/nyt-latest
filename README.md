@@ -26,8 +26,8 @@ https://nytimes.com/2021/11/30/us/ryan-remington-tucson-police-shooting.html?sea
 `Aiden Page, a senior at Oxford High School in the Detroit suburbs, recalled the panic after a student opened fire and killed at least three people.`\
 https://nytimes.com/video/us/100000008100863/michigan-school-oxford-high-shooting.html?searchResultPosition=7
 
-**The victims in the school shooting include a football player, two other students.**\
-`Authorities late Tuesday released the names of the victims in the Michigan high school shooting.`\
+**The victims in the school shooting include a football player and two other students.**\
+`Authorities released the names of the victims and the conditions of those who were wounded in the Michigan high school shooting.`\
 https://nytimes.com/2021/11/30/us/michigan-school-shooting-victims.html?searchResultPosition=8
 
 **Gun used in Michigan school shooting was purchased by suspect’s father.**\
