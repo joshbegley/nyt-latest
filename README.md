@@ -30,11 +30,11 @@ https://nytimes.com/2021/12/01/world/europe/putin-nato-russia-ukraine.html?searc
 `A new simulation shows how the virus survives inside tiny airborne particles of water — and gives clues about how the Delta variant became dominant.`\
 https://nytimes.com/interactive/2021/12/01/science/coronavirus-aerosol-simulation.html?searchResultPosition=8
 
+**The Michigan shooting was the deadliest on school property in the U.S. this year.**\
+`The rampage at Oxford High School was the deadliest shooting on school property in 2021, according to Education Week, which tracks such shootings in the U.S.`\
+https://nytimes.com/2021/12/01/us/oxford-school-shooting-michigan-deadliest.html?searchResultPosition=9
+
 **W.H.O. members agree to begin talks on a global pandemic treaty.**\
 `They agreed to set up an intergovernmental negotiating body that is to meet no later than March to begin negotiating an international agreement intended to ensure a more coherent and equitable response to future pandemics.`\
-https://nytimes.com/2021/12/01/world/who-pandemic-treaty.html?searchResultPosition=9
-
-**Viability has shifted slightly as medicine has advanced.**\
-`By Pam Belluck`\
-https://nytimes.com/2021/12/01/us/politics/viability-abortion.html?searchResultPosition=10
+https://nytimes.com/2021/12/01/world/who-pandemic-treaty.html?searchResultPosition=10
 
