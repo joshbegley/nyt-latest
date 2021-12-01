@@ -30,11 +30,11 @@ https://nytimes.com/2021/12/01/business/dealbook/crypto-venture-capital.html?sea
 `Watch a version of your life reflected back on the small screen.`\
 https://nytimes.com/2021/12/01/us/best-california-tv-shows.html?searchResultPosition=8
 
+**What did Planned Parenthood v. Casey say?**\
+`By Adam Liptak`\
+https://nytimes.com/2021/12/01/us/politics/supreme-court-planned-parenthood-casey.html?searchResultPosition=9
+
 **The Debate Over Whether Omicron Will Make Inflation Worse**\
 `There is more than one school of thought on the matter.`\
-https://nytimes.com/2021/12/01/business/dealbook/omicron-inflation-supply-chain.html?searchResultPosition=9
-
-**What Comes Next for an Artist Whose Work Goes Viral?**\
-`With the animated video series “2 Lizards,” Meriem Bennani and Orian Barki captured the essence of 2020. Now, Bennani’s at work on a documentary about living in limbo.`\
-https://nytimes.com/2021/12/01/t-magazine/meriem-bennani-2-lizards.html?searchResultPosition=10
+https://nytimes.com/2021/12/01/business/dealbook/omicron-inflation-supply-chain.html?searchResultPosition=10
 
