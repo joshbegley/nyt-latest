@@ -1,5 +1,5 @@
 **WTA Suspends Tournaments in China Over Missing Tennis Star Peng Shuai**\
-`Steve Simon announced Wednesday that the women’s tennis tour would not stage tournaments in China, including Hong Kong.`\
+`Steve Simon said Wednesday that the women’s tennis tour would not stage tournaments in China, including Hong Kong, because he has been unable to communicate with Peng despite repeated attempts.`\
 https://nytimes.com/2021/12/01/sports/tennis/wta-china-peng-shuai.html?searchResultPosition=1
 
 **The National Debate Over Abortion Laws**\
@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/01/opinion/letters/abortion-laws.html?searchResultPo
 https://nytimes.com/2021/12/01/movies/best-picture-oscar-contenders.html?searchResultPosition=3
 
 **Oil Producers Face Omicron Uncertainty and Rebellious Customers**\
-`OPEC and Russia want to bolster oil prices after a 10 percent drop last week. But they also need to consider the release of oil reserves by the U.S. and other countries.`\
+`OPEC and Russia want to bolster prices after a 10 percent drop last week. But they also need to consider the release of reserves by the U.S. and other countries.`\
 https://nytimes.com/2021/12/01/business/oil-opec-omicron-prices.html?searchResultPosition=4
 
 **Alvin Lucier, Probing Composer of Soundscapes, Is Dead at 91**\
