@@ -8,7 +8,7 @@ https://nytimes.com/2021/11/30/pageoneplus/corrections-dec-1-2021.html?searchRes
 
 **Appeals Court Questions Trump’s Bid for Secrecy on Jan. 6 Papers**\
 `The case presents the novel question of what happens when a current president and a former one disagree about invoking executive privilege.`\
-https://nytimes.com/2021/11/30/us/politics/trump-biden-executive-privilege-capitol.html?searchResultPosition=3
+https://nytimes.com/2021/11/30/us/politics/trump-executive-privilege-capitol-riot.html?searchResultPosition=3
 
 **Accuser Describes Maxwell and Epstein Ensnaring and Abusing Her at 14**\
 `During the second day of Ghislaine Maxwell’s trial, a woman accused Ms. Maxwell of befriending her when she was a girl, only to join in the sexual abuse that followed.`\
