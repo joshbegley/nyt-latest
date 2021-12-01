@@ -34,7 +34,7 @@ https://nytimes.com/2021/12/01/t-magazine/savannah-georgia-home-design.html?sear
 `On vaccines, no other continent is close.`\
 https://nytimes.com/2021/12/01/briefing/vaccine-hesitancy-africa-omicron.html?searchResultPosition=9
 
-**Nigeria has detected the Omicron coronavirus variant in an October sample.**\
-`The sample, found in retrospective sequencing of previously confirmed cases, was collected weeks before the variant was first reported by researchers in southern Africa.`\
-https://nytimes.com/2021/12/01/world/africa/nigeria-omicron-october.html?searchResultPosition=10
+**Amazon and the Labor Shortage**\
+`What this economic moment means for the company and the people who work there.`\
+https://nytimes.com/2021/12/01/podcasts/the-daily/amazon-pandemic-labor-shortage.html?searchResultPosition=10
 
