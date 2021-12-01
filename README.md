@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/01/nyregion/what-are-your-omicron-questions.html?sea
 
 **W.H.O. Reopens Debate Over Fairness of Pandemic Response**\
 `As wealthy countries react to the new Omicron virus variant with travel bans and booster shots, the World Health Organization scolded them, calling the steps ineffective and unfair.`\
-https://nytimes.com/2021/12/01/world/virus-variant-travel-boosters.html?searchResultPosition=5
+https://nytimes.com/2021/12/01/world/covid-travel-boosters-omicron.html?searchResultPosition=5
 
 **Long-Ago Victim of Vesuvius May Shed Light on Ancient Rome**\
 `Archaeologists found the remains of a person buried at Herculaneum in the eruption of 79 A.D., and hope that with modern technology it will yield fresh insights.`\
