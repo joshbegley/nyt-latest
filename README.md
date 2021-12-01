@@ -1,5 +1,5 @@
-**The C.D.C. tells airlines to disclose details if passengers had recently been in southern Africa.**\
-`The agency said it was ‘issuing this directive to prevent the importation and spread of a communicable disease of public health importance,’ an apparent reference to the new Omicron variant.`\
+**The C.D.C. tells airlines to identify passengers who had recently been in southern Africa.**\
+`The agency said it was “issuing this directive to prevent the importation and spread of a communicable disease of public health importance,” an apparent reference to the new Omicron variant.`\
 https://nytimes.com/2021/12/01/health/cdc-airlines-passengers-africa.html?searchResultPosition=1
 
 **Protesters Gather as Supreme Court Hears Mississippi Abortion Case**\
