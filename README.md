@@ -1,6 +1,6 @@
 **Yellen says it’s time to stop calling inflation ‘transitory’ as Omicron emerges.**\
 `The Treasury Secretary said the new virus variant could further fuel price increases, but cautioned it was too soon know.`\
-https://nytimes.com/2021/12/02/business/yellen-says-its-time-to-stop-calling-inflation-transitory-as-omicron-emerges.html?searchResultPosition=1
+https://nytimes.com/2021/12/02/business/yellen-inflation-omicron.html?searchResultPosition=1
 
 **Watch Live: Biden to Announce Winter Covid Plan**\
 `President Biden will lay out his new pandemic strategy, including booster shots for all adults, vaccination sites for families, travel restrictions and insurance reimbursement for at-home coronavirus tests.`\
