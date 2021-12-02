@@ -6,8 +6,8 @@ https://nytimes.com/2021/12/02/well/mind/omicron-uncertainty-pandemic-worries.ht
 `Should elections always be fair? What does that look like when drawing voting district lines?`\
 https://nytimes.com/2021/12/02/learning/whats-going-on-in-this-graph-dec-8-2021.html?searchResultPosition=2
 
-**Former Ohio Deputy Is Indicted in Fatal Shooting of Columbus Man**\
-`The former deputy, Jason Meade, was a member of a fugitive task force when he shot Casey Goodson Jr., 23, who was not the target of the operation, according to the indictment. He faces two murder counts.`\
+**Former Ohio Deputy Is Charged With Murder in Shooting of Columbus Man**\
+`The former deputy, Jason Meade, was a member of a fugitive task force when he shot Casey Goodson Jr., 23, who was not the target of the operation, according to an indictment. He faces two murder counts.`\
 https://nytimes.com/2021/12/02/us/casey-goodson-shooting.html?searchResultPosition=3
 
 **United Auto Workers reformers prevail in vote to choose president by direct election.**\
