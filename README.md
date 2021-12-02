@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/02/business/facebook-twitter-china-propaganda.html?s
 
 **The economic reality behind a Mississippi anti-abortion argument.**\
 `The state’s attorney general has said that, since Roe v. Wade, “women have carved their own way to achieving a better balance for success in their professional and personal lives.”`\
-https://nytimes.com/2021/12/02/business/the-economic-reality-behind-a-mississippi-anti-abortion-argument.html?searchResultPosition=6
+https://nytimes.com/2021/12/02/business/mississippi-abortion-law-economy.html?searchResultPosition=6
 
 **What Does It Mean to Save a Neighborhood?**\
 `Nine years after Hurricane Sandy, residents of Lower Manhattan are still vulnerable to rising seas. The fight over a plan to protect them reveals why progress on our most critical challenges is so hard.`\
