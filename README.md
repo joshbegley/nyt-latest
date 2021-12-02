@@ -32,7 +32,7 @@ https://nytimes.com/2021/12/02/business/tesco-vaccine-passport-ad.html?searchRes
 
 **Will High Vaccination Rates Help Spain Weather New Variant?**\
 `Spain surpassed others in Europe by avoiding politicized debate about Covid shots. Citizens also largely heeded the health guidance from their leaders.`\
-https://nytimes.com/2021/12/02/world/europe/spain-covid-vaccines-success.html?searchResultPosition=9
+https://nytimes.com/2021/12/02/world/europe/spain-omicron.html?searchResultPosition=9
 
 **With Omicron Comes Uncertainty. Here’s How to Handle It.**\
 `Experts share techniques to ease the mental toll of an evolving pandemic.`\
