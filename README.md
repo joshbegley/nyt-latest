@@ -22,19 +22,19 @@ https://nytimes.com/2021/12/01/business/economy/canada-goose-union.html?searchRe
 `Both sides anticipate that a Supreme Court decision scaling back abortion rights would roil next year’s elections, with Democrats sensing an advantage.`\
 https://nytimes.com/2021/12/01/us/abortion-midterm-elections.html?searchResultPosition=6
 
-**Here are all the charges against the suspect in the Oxford High School shooting.**\
-`The 15-year-old suspect faces 24 felony counts, including terrorism causing death.`\
-https://nytimes.com/2021/12/01/us/ethan-crumbley-michigan-shooting-charges.html?searchResultPosition=7
-
 **Chris Cuomo Has a Funny Idea About What Doing His Job Means**\
 `Reporting on the suspension of a brotherly TV host.`\
-https://nytimes.com/2021/12/01/opinion/chris-cuomo-cnn-scandal.html?searchResultPosition=8
+https://nytimes.com/2021/12/01/opinion/chris-cuomo-cnn-scandal.html?searchResultPosition=7
 
 **U.S. Reports Its 1st Omicron Case, in a California Traveler**\
 `The discovery in San Francisco County prompted the Biden administration to renew calls for everyone to get fully vaccinated and receive a booster, if eligible.`\
-https://nytimes.com/2021/12/01/us/politics/omicron-variant-us-california.html?searchResultPosition=9
+https://nytimes.com/2021/12/01/us/politics/omicron-variant-us-california.html?searchResultPosition=8
 
 **Roberts Searches for Middle Ground in Abortion Case**\
 `The chief justice, known for his incremental approach to contentious issues, explored on Wednesday whether the court could uphold Mississippi’s law without totally throwing out Roe v. Wade.`\
-https://nytimes.com/2021/12/01/us/politics/john-roberts-abortion-supreme-court.html?searchResultPosition=10
+https://nytimes.com/2021/12/01/us/politics/john-roberts-abortion-supreme-court.html?searchResultPosition=9
+
+**Supreme Court Seems Poised to Uphold Mississippi’s Abortion Law**\
+`It was less clear whether the court’s conservative majority would overrule Roe v. Wade, the decision establishing a constitutional right to abortion.`\
+https://nytimes.com/2021/12/01/us/politics/supreme-court-mississippi-abortion-law.html?searchResultPosition=10
 
