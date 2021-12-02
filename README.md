@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2021/12/02/arts/editors-recommendations-kang.htm
 `New travel restrictions announced on Thursday by the White House over fears of the spread of the Omicron variant have many worrying that their trips may not happen.`\
 https://nytimes.com/2021/12/02/world/europe/omicron-virus-travel-united-states.html?searchResultPosition=9
 
-**A Double Resignation Shakes Austrian Politics in Aftermath of Scandal**\
+**Double Resignation Shakes Austrian Politics in Aftermath of Scandal**\
 `Sebastian Kurz, a former chancellor under investigation for influence-buying and corruption, said he was quitting politics. Within hours, his successor and ally also resigned, after only two months on the job.`\
 https://nytimes.com/2021/12/02/world/europe/austria-kurz-successor-resignation.html?searchResultPosition=10
 
