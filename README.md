@@ -1,40 +1,40 @@
-**Abortion at the Court**\
-`The Supreme Court seems likely to undermine or overturn Roe v. Wade.`\
-https://nytimes.com/2021/12/02/briefing/supreme-court-abortion-case-mississippi.html?searchResultPosition=1
+**Biden and Trump S.E.C. Chiefs Trade Tips on How to Regulate Crypto**\
+`Gary Gensler and Jay Clayton are aligned on at least one thing: Many types of crypto tokens fall in the agency’s domain.`\
+https://nytimes.com/2021/12/02/business/dealbook/gensler-clayton-crypto.html?searchResultPosition=1
 
-**The Supreme Court Considers the Future of Roe**\
-`How far will the court’s conservative majority go in deciding the future of abortion in America?`\
-https://nytimes.com/2021/12/02/podcasts/the-daily/supreme-court-abortion-law-mississippi-roe-v-wade.html?searchResultPosition=2
+**A Tangier Home That Has Passed Between Design Legends**\
+`A 300-year-old house in Morocco has become a palimpsest of ideas and aesthetics, while both subverting and respecting the city’s own colorful legacy.`\
+https://nytimes.com/2021/12/02/t-magazine/dar-zero-tangier-home.html?searchResultPosition=2
 
-**‘Where is **?’: Fans in China Elude Censors to Talk About Peng Shuai**\
-`She is not the first celebrity to be scrubbed from the internet, but her supporters are finding creative ways to voice their frustration.`\
-https://nytimes.com/2021/12/02/world/peng-shuai-china-tennis.html?searchResultPosition=3
+**In Alabama, a Death Sentence for a Man Who Never Pulled the Trigger**\
+`A New York Times documentary examines the case of Nathaniel Woods, who was sentenced to death for his role in the murders of three Birmingham police officers fatally shot by someone else.`\
+https://nytimes.com/article/to-live-and-die-in-alabama.html?searchResultPosition=3
 
-**I.O.C. Says It Held Second Call With Peng Shuai**\
-`Olympic officials said they ‘shared the same concern as many’ about the safety of the Chinese tennis star but offered no details of what they discussed with her.`\
-https://nytimes.com/2021/12/02/sports/tennis/peng-shuai-ioc-china.html?searchResultPosition=4
+**‘Red Pill’ Review: The Horror of a Weekend of Racism and Extremism**\
+`Tonya Pinkins is in the director’s chair for this bizarre face-off between political opponents in which rhetoric is the least of the weapons.`\
+https://nytimes.com/2021/12/02/movies/red-pill-review-tonya-pinkins.html?searchResultPosition=4
 
-**Amazing New Chapters, Thailand’s new commitment to sustainability and safety entices a fresh wave of tourists.**\
-`Reopened with no quarantine requirement, Thailand now allows fully vaccinated tourists to rediscover the Kingdom’s bustling cities, natural wonders and solemn serenity in complete safety.  `\
-https://nytimes.com/paidpost/tourism-authority-of-thailand/amazing-new-chapters-thailands-new-commitment-to-sustainability-and-safety-entices-a-fresh-wave-of-tourists.html?searchResultPosition=5
+**‘Single All the Way’ Review: Cookie Cutter Christmas**\
+`This Netflix holiday rom-com rests its family-friendly shenanigans on a display of chemistry that never materializes.`\
+https://nytimes.com/2021/12/02/movies/single-all-the-way-review.html?searchResultPosition=5
 
-**Twitter and Facebook hit back at Chinese propaganda campaigns.**\
-`The social media giants removed a large number of accounts that promoted Covid-19 conspiracy theories and undermined reports of human rights abuses.`\
-https://nytimes.com/2021/12/02/business/facebook-twitter-china-propaganda.html?searchResultPosition=6
+**‘The Advent Calendar’ Review: A December Full of Tricks and Treats**\
+`In this Christmastime French horror film, a woman struggles against a powerful, old demon eager to rope her into a Faustian bargain.`\
+https://nytimes.com/2021/12/02/movies/the-advent-calendar-review.html?searchResultPosition=6
 
-**The economic reality behind a Mississippi anti-abortion argument.**\
-`The state’s attorney general has said that, since Roe v. Wade, “women have carved their own way to achieving a better balance for success in their professional and personal lives.”`\
-https://nytimes.com/2021/12/02/business/mississippi-abortion-law-economy.html?searchResultPosition=7
+**‘Listening to Kenny G’ Review: Good Sax?**\
+`Penny Lane’s documentary about the superstar sax player Kenny G shows an artist who can be defensive and self-satisfied almost simultaneously.`\
+https://nytimes.com/2021/12/02/movies/listening-to-kenny-g-review.html?searchResultPosition=7
 
-**What Does It Mean to Save a Neighborhood?**\
-`Nine years after Hurricane Sandy, residents of Lower Manhattan are still vulnerable to rising seas. The fight over a plan to protect them reveals why progress on our most critical challenges is so hard.`\
-https://nytimes.com/2021/12/02/us/hurricane-sandy-lower-manhattan-nyc.html?searchResultPosition=8
+**‘Benedetta’ Review: Habit Storming**\
+`Paul Verhoeven takes us to a nunnery where faith, eroticism and the Black Death make for an unholy good time.`\
+https://nytimes.com/2021/12/02/movies/benedetta-review.html?searchResultPosition=8
 
-**Dear People of 2021: What Can We Learn From Hindsight?**\
-`For the first series from the Headway initiative, we followed up on forecasts from decades past to ask what the passage of time has revealed.`\
-https://nytimes.com/2021/12/02/special-series/headway-earth-progress-climate-hindsight.html?searchResultPosition=9
+**‘Silent Night’ Review: Waiting for the End of the World**\
+`In this feature from Camille Griffin, a group of friends facing global disaster have one last Christmas dinner.`\
+https://nytimes.com/2021/12/02/movies/silent-night-review.html?searchResultPosition=9
 
-**Europe Met a Climate Target. But Is It Burning Less Carbon?**\
-`The European Union promised to reduce its emissions 20 percent by 2020. Did it happen?`\
-https://nytimes.com/2021/12/02/climate/europe-climate-pledge-carbon-emissions.html?searchResultPosition=10
+**‘Wolf’ Review: Animal Behavior**\
+`This psychological thriller unfolds in a brutal clinic for young people who feel they are animals trapped in human bodies.`\
+https://nytimes.com/2021/12/02/movies/wolf-review-animal-behavior.html?searchResultPosition=10
 
