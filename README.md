@@ -1,4 +1,4 @@
-**I.O.C., on Defensive, Says It Held Second Call With Peng Shuai**\
+**I.O.C. Says It Held Second Call With Peng Shuai**\
 `Olympic officials said they ‘shared the same concern as many’ about the safety of the Chinese tennis star but offered no details of what they discussed with her.`\
 https://nytimes.com/2021/12/02/sports/tennis/peng-shuai-ioc-china.html?searchResultPosition=1
 
