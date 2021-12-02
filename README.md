@@ -10,8 +10,8 @@ https://nytimes.com/2021/12/02/sports/football/nfl-week-13-picks.html?searchResu
 `The world body said it needed $41 billion to fund humanitarian aid to help 183 million people in 63 countries.`\
 https://nytimes.com/2021/12/02/world/europe/united-nations-funding.html?searchResultPosition=3
 
-**M.L.B.’s Collective Bargaining Agreement Expires With Lockout to Follow**\
-`Players and owners continued to negotiate until the final day, but with no deadline deal, baseball is about to have its first work stoppage since the 1994-95 strike.`\
+**With No Deadline Deal, M.L.B.’s Lockout Begins**\
+`Players and owners continued to negotiate until the final day, but with the sides still far apart, baseball has its first work stoppage since the 1994-95 strike.`\
 https://nytimes.com/2021/12/02/sports/baseball/mlb-lockout-union.html?searchResultPosition=4
 
 **Planned Parenthood Says Hacker Compromised Information for 400,000 Patients**\
