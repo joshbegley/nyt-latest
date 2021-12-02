@@ -2,7 +2,7 @@
 `A bruising Hall of Famer, Culp helped lead the Kansas City Chiefs to an upset victory in Super Bowl IV. With the Houston Oilers, he revolutionized the role of nose tackle.`\
 https://nytimes.com/2021/12/02/sports/football/curley-culp-dead.html?searchResultPosition=1
 
-**F.T.C. Sues to Block the Chip Maker Nvidia’s Takeover of the Chip Designer Arm**\
+**F.T.C. Sues to Stop Blockbuster Chip Deal Between Nvidia and Arm**\
 `The proposed deal would give Nvidia control over computing technology and designs that rival firms rely on.`\
 https://nytimes.com/2021/12/02/technology/ftc-nvidia-arm-deal.html?searchResultPosition=2
 
