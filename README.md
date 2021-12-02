@@ -2,8 +2,8 @@
 `António Guterres, the U.N. secretary general, strongly criticized the international response to the Omicron variant and urged governments to consider other measures instead of closing their borders to people from African nations.`\
 https://nytimes.com/video/world/africa/100000008102808/travel-bans-omicron-africa.html?searchResultPosition=1
 
-**Jan. 6 Panel Seeks Contempt Charge for Trump Justice Dept. Official**\
-`The committee investigating the Capitol riot agreed to delay House action against Jeffrey Clark until after he could be interviewed again.`\
+**Possible Contempt Charge Hangs Over Trump Justice Dept. Official**\
+`The House committee investigating the Capitol riot agreed to delay action against Jeffrey Clark until after he could be interviewed again.`\
 https://nytimes.com/2021/12/01/us/politics/jeffrey-clark-contempt-congress.html?searchResultPosition=2
 
 **California Officials Address First U.S. Omicron Case**\
