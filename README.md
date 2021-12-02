@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/02/podcasts/the-daily/supreme-court-abortion-law-mis
 
 **‘Where is **?’: Fans in China Elude Censors to Talk About Peng Shuai**\
 `She is not the first celebrity to be scrubbed from the internet, but her supporters are finding creative ways to voice their frustration.`\
-https://nytimes.com/2021/12/02/world/peng-shuai-china-tennis-fans-censors.html?searchResultPosition=3
+https://nytimes.com/2021/12/02/world/peng-shuai-china-tennis.html?searchResultPosition=3
 
 **I.O.C. Says It Held Second Call With Peng Shuai**\
 `Olympic officials said they ‘shared the same concern as many’ about the safety of the Chinese tennis star but offered no details of what they discussed with her.`\
