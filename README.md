@@ -1,40 +1,40 @@
-**The Continuing Fallout From the Cuomo Scandal**\
-`The former governor’s brother says he understands why CNN suspended him.`\
-https://nytimes.com/2021/12/02/nyregion/the-continuing-fallout-from-the-cuomo-scandal.html?searchResultPosition=1
+**The economic reality behind a Mississippi anti-abortion argument.**\
+`The state’s attorney general has said that, since Roe v. Wade, “women have carved their own way to achieving a better balance for success in their professional and personal lives.”`\
+https://nytimes.com/2021/12/02/business/the-economic-reality-behind-a-mississippi-anti-abortion-argument.html?searchResultPosition=1
 
-**Jimmy Kimmel: Trump’s Covid Test Is the Only Positive Thing He’s Done**\
-`Late-night hosts weighed in on Donald Trump’s initial results just three days before his debate with Joe Biden.`\
-https://nytimes.com/2021/12/02/arts/television/jimmy-kimmel-trump-positive-covid-test.html?searchResultPosition=2
+**What Does It Mean to Save a Neighborhood?**\
+`Nine years after Hurricane Sandy, residents of Lower Manhattan are still vulnerable to rising seas. The fight over a plan to protect them reveals why progress on our most critical challenges is so hard.`\
+https://nytimes.com/2021/12/02/us/hurricane-sandy-lower-manhattan-nyc.html?searchResultPosition=2
 
-**‘Call Me Dog Tag Man’: Pacific Island Is Full of War Relics and Human Remains**\
-`More than 75 years after the Battle of Biak ended, collectors are still finding remnants of the fight, and U.S. authorities are hoping to bring closure to families of soldiers still missing.`\
-https://nytimes.com/2021/12/02/world/asia/biak-missing-soldiers-indonesia.html?searchResultPosition=3
+**Dear People of 2021: What Can We Learn From Hindsight?**\
+`For the first series from the Headway initiative, we followed up on forecasts from decades past to ask what the passage of time has revealed.`\
+https://nytimes.com/2021/12/02/special-series/headway-earth-progress-climate-hindsight.html?searchResultPosition=3
 
-**Texts From Virgil**\
-`After his death, Virgil Abloh’s friends and colleagues shared some of the kind, curious and relentlessly optimistic DMs the designer was known to send. “2021 is a picture for us all to urgently paint.”`\
-https://nytimes.com/2021/12/02/style/virgil-abloh-dm-texts.html?searchResultPosition=4
+**Europe Met a Climate Target. But Is It Burning Less Carbon?**\
+`The European Union promised to reduce its emissions 20 percent by 2020. Did it happen?`\
+https://nytimes.com/2021/12/02/climate/europe-climate-pledge-carbon-emissions.html?searchResultPosition=4
 
-**Every Object Was a Canvas**\
-`Virgil Abloh expanded the idea of what a collaboration could be.`\
-https://nytimes.com/2021/12/02/style/every-object-was-a-canvas.html?searchResultPosition=5
+**Biden’s winter Covid plan includes insurance reimbursement for at-home tests.**\
+`The new strategy, which includes stricter rules for international travelers, comes as the worrisome Omicron variant circulates in more than 30 countries.`\
+https://nytimes.com/2021/12/02/world/biden-omicron-covid-plan-tests.html?searchResultPosition=5
 
-**Oh, to Be Mentored by Virgil Abloh**\
-`The designer made it his mission to foster the talents of young creators.`\
-https://nytimes.com/2021/12/02/style/oh-to-be-mentored-by-virgil-abloh.html?searchResultPosition=6
+**As French Election Looms, Candidates Stake Out Tough Positions on Migrants**\
+`France has fewer immigrants than other rich nations. But politicians are hardening their positions against immigration even as other countries compete for migrant workers.`\
+https://nytimes.com/2021/12/02/world/europe/french-election-immigration.html?searchResultPosition=6
 
-**Omicron Could Knock a Fragile Economic Recovery Off Track**\
-`The latest zigzag in the pandemic has already curtailed travel, but its broader impact on growth and inflation isn’t likely to be known for several weeks.`\
-https://nytimes.com/2021/12/02/business/economy/omicron-global-economy-inflation.html?searchResultPosition=7
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2021/12/02/arts/things-to-do-this-weekend.html?searchResultPosition=7
 
-**New York City Sues L’Officiel Magazine for Not Paying Freelancers**\
-`Two dozen workers say they are owed thousands of dollars in unpaid wages. The city wants to teach fashion and media a lesson.`\
-https://nytimes.com/2021/12/02/style/new-york-city-sues-lofficiel-magazine-for-not-paying-freelancers.html?searchResultPosition=8
+**He Says He’s No Murderer. That’s Why He’s Still in Prison.**\
+`Joseph Gordon has been locked up for nearly 30 years. A model inmate, he is eligible for parole — but only if he expresses remorse for a crime he says he did not commit.`\
+https://nytimes.com/2021/12/02/nyregion/joseph-gordon-parole-murder.html?searchResultPosition=8
 
-**Park Bench**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2021/12/02/learning/park-bench.html?searchResultPosition=9
+**Riding a Citi Bike? Good Luck Finding a Parking Spot.**\
+`New Yorkers are biking much more since the pandemic, making it hard to find bikes and parking docks in some high-use neighborhoods.`\
+https://nytimes.com/2021/12/02/nyregion/citi-bike-nyc-docking-station.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/02/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**Extreme Poverty Has Been Sharply Cut. What Has Changed?**\
+`The U.N. pledged to cut by half the proportion of people living in the worst conditions around the world.`\
+https://nytimes.com/2021/12/02/world/global-poverty-united-nations.html?searchResultPosition=10
 
