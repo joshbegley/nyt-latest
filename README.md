@@ -26,7 +26,7 @@ https://nytimes.com/2021/12/02/learning/teenagers-in-the-times-november-2021.htm
 `This documentary from Debbie Lum goes inside a top-performing San Francisco public high school to see how students are preparing for the future.`\
 https://nytimes.com/2021/12/02/movies/try-harder-review.html?searchResultPosition=7
 
-**Janet Yellen says it’s time to stop calling inflation ‘transitory’ as Omicron emerges.**\
+**Janet Yellen says it’s time to stop calling inflation ‘transitory.’**\
 `The Treasury secretary said the new virus variant could further fuel price increases, but cautioned it was too soon know.`\
 https://nytimes.com/2021/12/02/business/yellen-inflation-omicron.html?searchResultPosition=8
 
