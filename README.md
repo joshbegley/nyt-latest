@@ -1,6 +1,6 @@
 **Suspect in Michigan School Shooting Faces Murder and Terrorism Charges**\
 `A 15-year-old accused of killing four of his classmates and wounding seven other people had described wanting to attack the school in cellphone videos and a journal, the authorities said.`\
-https://nytimes.com/2021/12/01/us/ethan-crumbley-michigan-shooting-charges.html?searchResultPosition=1
+https://nytimes.com/2021/12/01/us/ethan-crumbley-michigan-high-school-shooting.html?searchResultPosition=1
 
 **Travel Limits on Africans ‘Unacceptable,’ U.N.’s Chief Says**\
 `António Guterres, the U.N. secretary general, strongly criticized the international response to the Omicron variant and urged governments to consider other measures instead of closing their borders to people from African nations.`\
