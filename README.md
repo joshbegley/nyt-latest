@@ -32,7 +32,7 @@ https://nytimes.com/2021/12/01/business/economy/canada-goose-union.html?searchRe
 
 **Abortion Decision Could Spill Into Midterm Elections**\
 `Both sides anticipate that a Supreme Court decision scaling back abortion rights would roil next year’s elections, with Democrats sensing an advantage.`\
-https://nytimes.com/2021/12/01/us/abortion-midterm-elections.html?searchResultPosition=9
+https://nytimes.com/2021/12/01/us/abortion-midterm-elections-supreme-court.html?searchResultPosition=9
 
 **Here are all the charges against the suspect in the Oxford High School shooting.**\
 `The 15-year-old suspect faces 24 felony counts, including terrorism causing death.`\
