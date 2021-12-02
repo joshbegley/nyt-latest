@@ -18,8 +18,8 @@ https://nytimes.com/2021/12/02/business/video-game-consoles-scalpers.html?search
 `The Brooklyn Museum shows how Catholicism seeped into his art, complicating our view of the Pop master.`\
 https://nytimes.com/2021/12/02/arts/design/warhol-religion-museum-review-catholic.html?searchResultPosition=5
 
-**BuzzFeed’s union workers walk off the job for a day as shareholders vote to go public.**\
-`By Katie Robertson`\
+**BuzzFeed News’s union workers walk off the job for a day.**\
+`The employees walked out on an important day for the media company: Shareholders are voting Thursday to take it public.`\
 https://nytimes.com/2021/12/02/business/media/buzzfeed-walkout-union.html?searchResultPosition=6
 
 **Lawmakers Strike Spending Deal but Government Shutdown Still Looms**\
