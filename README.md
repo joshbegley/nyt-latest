@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008103368/un-humanitarian-aid-pande
 
 **Mothers of Reinvention: The Lab Pivots as Studios Close**\
 `In a strategic feat of survival, the Lab, a Los Angeles dance studio stalwart, has transformed itself into a creative agency and “lifestyle brand.”`\
-https://nytimes.com/2021/12/02/arts/dance/the-lab-dance-studio-reinvents-itself-in-los-angeles.html?searchResultPosition=2
+https://nytimes.com/2021/12/02/arts/dance/the-lab-studio-los-angeles.html?searchResultPosition=2
 
 **Two Election Workers Targeted by Pro-Trump Media Sue for Defamation**\
 `The two Georgia workers were falsely accused of manipulating ballots by Trump allies and right-wing news sites. Election officials said the workers did nothing wrong.`\
