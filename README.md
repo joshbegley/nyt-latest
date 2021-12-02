@@ -36,5 +36,5 @@ https://nytimes.com/2021/12/02/climate/europe-climate-pledge-carbon-emissions.ht
 
 **Biden’s winter Covid plan includes insurance reimbursement for at-home tests.**\
 `The new strategy, which includes stricter rules for international travelers, comes as the worrisome Omicron variant circulates in more than 30 countries.`\
-https://nytimes.com/2021/12/02/world/biden-omicron-covid-plan-tests.html?searchResultPosition=10
+https://nytimes.com/2021/12/02/world/biden-covid-at-home-testing-tests.html?searchResultPosition=10
 
