@@ -32,7 +32,7 @@ https://nytimes.com/2021/12/02/t-magazine/holiday-gift-guide.html?searchResultPo
 
 **Meghan Wins Legal Battle Against The Mail on Sunday**\
 `An appeals court rejected a bid to force a trial over the duchess’s claim that the tabloid violated her privacy by publishing an anguished letter she sent to her estranged father.`\
-https://nytimes.com/2021/12/02/world/europe/meghan-duchess-sussex-tabloid-privacy.html?searchResultPosition=9
+https://nytimes.com/2021/12/02/world/europe/meghan-markle-tabloid-lawsuit.html?searchResultPosition=9
 
 **Germany announces tough restrictions for unvaccinated people.**\
 `The country is trying to fight a monthlong surge in infections that has been breaking daily case records.`\
