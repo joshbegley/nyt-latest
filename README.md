@@ -1,4 +1,4 @@
-**5 Minutes to Make You Love Classical 🎶**\
+**5 Minutes to Make You Love Classical Music**\
 `What are the five minutes you’d play to make a friend fall in love with classical music? That’s what we’ve been asking artists and other notable people all year.`\
 https://nytimes.com/interactive/2021/12/03/arts/music/five-minutes-classical.html?searchResultPosition=1
 
