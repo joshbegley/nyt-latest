@@ -1,14 +1,14 @@
+**The Markets Are Confused, but Wall Street Is Still Making Predictions**\
+`The emergence of the Omicron variant underlines the difficulty of planning even a few weeks ahead. Wall Street is forecasting next year’s precise market returns, regardless.`\
+https://nytimes.com/2021/12/03/business/omicron-stock-market-forecasts.html?searchResultPosition=1
+
 **The Life and Legacy of Stephen Sondheim**\
 `A look at the career of the Broadway songwriting titan who died last week at 91.`\
-https://nytimes.com/2021/12/03/podcasts/the-daily/stephen-sondheim.html?searchResultPosition=1
+https://nytimes.com/2021/12/03/podcasts/the-daily/stephen-sondheim.html?searchResultPosition=2
 
 **How Fast Can You Skydive? These Athletes Are Racing to Earth.**\
 `Average amateur skydivers can reach up to 120 miles per hour. Speed skydivers aim to reach speeds above 300 m.p.h.`\
-https://nytimes.com/2021/12/03/sports/speed-skydiving-athletes.html?searchResultPosition=2
-
-**The Markets Are Confused, but Wall Street Is Still Making Predictions**\
-`The emergence of the Omicron variant underlines the difficulty of planning even a few weeks ahead. Wall Street is forecasting next year’s precise market returns, regardless.`\
-https://nytimes.com/2021/12/03/business/omicron-stock-market-forecasts.html?searchResultPosition=3
+https://nytimes.com/2021/12/03/sports/speed-skydiving-athletes.html?searchResultPosition=3
 
 **Recipe Plagiarism and Buying a High School: The Week in Narrated Articles**\
 `Five articles from around The Times, narrated just for you.`\
