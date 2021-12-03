@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/03/opinion/economy-biden-november-jobs-report.html?s
 https://nytimes.com/2021/12/03/arts/television/annie-live-review.html?searchResultPosition=2
 
 **Columbia University Student Dies in Stabbing Near Campus**\
-`The graduate student, Davide Giri, was fatally stabbed near the school’s campus in Manhattan on Thursday night.`\
+`The graduate student, Davide Giri, was fatally stabbed near the Manhattan campus on Thursday night. A man has been arrested and charges are pending, the police said.`\
 https://nytimes.com/2021/12/03/nyregion/columbia-student-stabbed.html?searchResultPosition=3
 
 **On Japan’s Pacific Coast, an Artist Communes With Nature**\
