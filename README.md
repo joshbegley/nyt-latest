@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/02/business/china-didi-delisting.html?searchResultPo
 `Mayor Bill de Blasio and Gov. Kathy Hochul of New York addressed the several cases of the Omicron variant that have been reported in the United States, including five people in New York City and on Long Island.`\
 https://nytimes.com/video/us/100000008104650/omicron-new-york-city.html?searchResultPosition=4
 
-**LeBron James cleared to play after false positive Covid test.**\
+**LeBron James cleared to play after false positive virus test.**\
 `He will participate in the Los Angeles Lakers’ game against the Los Angeles Clippers on Friday.`\
 https://nytimes.com/2021/12/02/sports/lebron-james-covid-test.html?searchResultPosition=5
 
