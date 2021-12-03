@@ -1,5 +1,5 @@
 **U.S. Opens Civil Rights Investigation Into Police in New York Suburb**\
-`The inquiry will focus on whether the Mount Vernon department engaged in a “pattern or practice of unlawful policing, officials said.`\
+`The inquiry will focus on whether the Mount Vernon department engaged in a “pattern or practice of unlawful policing,” officials said.`\
 https://nytimes.com/2021/12/03/nyregion/mount-vernon-police-abuse-misconduct-investigation.html?searchResultPosition=1
 
 **Upstate New York Hospitals Are Overwhelmed as Covid Cases Surge**\
