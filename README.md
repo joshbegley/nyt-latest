@@ -6,8 +6,8 @@ https://nytimes.com/2021/12/03/movies/the-power-of-the-dog-ending.html?searchRes
 `On a special episode of the podcast, taped live, editors from The New York Times Book Review discuss this year’s outstanding fiction and nonfiction.`\
 https://nytimes.com/2021/12/03/books/review/podcast-best-books-2021.html?searchResultPosition=2
 
-**Trail Blazers Fire Team President After Workplace Conduct Probe**\
-`Neil Olshey, who has been with Portland since 2012, was fired for violating the team’s code of conduct related to the workplace environment at the team’s practice facility.`\
+**Trail Blazers Fire Team President After Workplace Conduct Inquiry**\
+`Neil Olshey, who had been with Portland since 2012, was fired after a review of the workplace environment at the team’s practice facility.`\
 https://nytimes.com/2021/12/03/sports/basketball/portland-trail-blazers-neil-olshey.html?searchResultPosition=3
 
 **Review: ‘Tosca’ Catches Fire at the Met Opera**\
