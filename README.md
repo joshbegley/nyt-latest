@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/03/upshot/jobs-report-unemployment-falls.html?search
 
 **A 73-Point Loser Is Not ‘Necessarily’ Who the Thunder Are**\
 `In a 152-79 loss, a rebuilding Oklahoma City team took record-setting lumps from the Memphis Grizzlies.`\
-https://nytimes.com/2021/12/03/sports/basketball/grizzlies-blow-out-thunder.html?searchResultPosition=6
+https://nytimes.com/2021/12/03/sports/basketball/grizzlies-thunder-record-loss.html?searchResultPosition=6
 
 **The Great Resignation Won’t Last Forever**\
 `The Great Resignation won’t last forever: Americans are waiting for the right opportunity to jump back into the work force.`\
