@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/03/us/michigan-prosecutor-crumbley-charges.html?sear
 
 **M.L.B.’s Lockout: What Is It? How Does It Work? What’s Next?**\
 `Players are locked out and transactions are frozen in baseball’s ninth work stoppage. But no one is missing any checks — yet.`\
-https://nytimes.com/2021/12/03/sports/baseball/mlb-lockout.html?searchResultPosition=2
+https://nytimes.com/article/mlb-lockout.html?searchResultPosition=2
 
 **Newly Disclosed Clinton-era Memo Says Presidents Can Be Indicted**\
 `Can presidents be indicted while they remain in office? Conventional wisdom says no, but a newfound Office of Independent Counsel legal memo says yes.`\
