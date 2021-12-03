@@ -1,5 +1,5 @@
 **Didi Moves to Leave U.S. Stock Market Just Months After Huge Offering**\
-`The abrupt shift by the ride-hailing giant comes as officials in Washington and Beijing have grown increasingly skeptical of Chinese corporate access to Wall Street’s money.`\
+`The abrupt shift by the ride-hailing giant came as officials in Washington and Beijing have grown increasingly skeptical of Chinese corporate access to Wall Street’s money.`\
 https://nytimes.com/2021/12/02/business/china-didi-delisting.html?searchResultPosition=1
 
 **First Cases of Omicron Coronavirus Variant Detected in New York**\
