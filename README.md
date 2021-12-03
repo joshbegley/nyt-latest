@@ -1,40 +1,40 @@
-**Can We Pedal Any Faster?**\
-`Citi Bike tries to keep up with New Yorkers’ new love of bicycling.`\
-https://nytimes.com/2021/12/03/nyregion/can-we-pedal-any-faster.html?searchResultPosition=1
+**5 Minutes That Will Make You Love the Organ**\
+`Listen to the biggest, loudest, most extravagant (yet incredibly subtle) instrument of them all.`\
+https://nytimes.com/2021/12/03/arts/music/classical-music-organ.html?searchResultPosition=1
 
-**How Long Can Students Wait for Australia to Reopen?**\
-`As the Omicron variant heralds more uncertainty, international students weigh up their options.`\
-https://nytimes.com/2021/12/03/world/australia/how-long-can-students-wait-for-australia-to-reopen.html?searchResultPosition=2
+**A Synagogue Feud Spills Into Public View: ‘Only Room for One Rabbi’**\
+`Rabbi Arthur Schneier abruptly fired Rabbi Benjamin Goldschmidt from Park East Synagogue, and long-simmering tensions publicly exploded in a way rabbinic rivalries rarely do.`\
+https://nytimes.com/2021/12/03/nyregion/park-east-synagogue-rabbi.html?searchResultPosition=2
 
-**Lesson of the Day: ‘Gen Z Pop Stars Made Their Mark in 2021. Beware, Millennial Forebears.’**\
-`In this lesson, students will analyze how young artists are taking inspiration and distinguishing themselves from the generation before them.`\
-https://nytimes.com/2021/12/03/learning/lesson-plans/lesson-of-the-day-gen-z-pop-stars-made-their-mark-in-2021-beware-millennial-forebears.html?searchResultPosition=3
+**Why Holiday Light Shows Are the Therapy We Need**\
+`Outdoor installations like the elaborate illuminations at Brooklyn Botanic Garden are perfect for this second pandemic winter.`\
+https://nytimes.com/2021/12/03/nyregion/brooklyn-botanic-garden-holiday-lights.html?searchResultPosition=3
 
-**Philippine Court Allows Maria Ressa to Attend Nobel Peace Prize Ceremony**\
-`The decision came after days of growing international pressure on the government to allow the journalist to attend the ceremony in Norway.`\
-https://nytimes.com/2021/12/03/world/asia/maria-ressa-nobel-peace-prize.html?searchResultPosition=4
+**Meet an Ecologist Who Works for God (and Against Lawns)**\
+`A Long Island couple says fighting climate change and protecting biodiversity starts at home. Or rather, right outside their suburban house.`\
+https://nytimes.com/2021/12/03/climate/climate-change-biodiversity.html?searchResultPosition=4
 
-**A Slow-Motion Climate Disaster: The Spread of Barren Land**\
-`Brazil’s northeast, long a victim of droughts, is now effectively turning into a desert. The cause? Climate change and the landowners who are most affected.`\
-https://nytimes.com/2021/12/03/world/americas/brazil-climate-change-barren-land.html?searchResultPosition=5
+**How the Rev. Dr. Jacqui Lewis, Author and Preacher, Spends Her Sundays**\
+`Although her church burned down a year ago, it’s still very much alive in her heart and actions.`\
+https://nytimes.com/2021/12/03/nyregion/jacqui-lewis-middle-collegiate.html?searchResultPosition=5
 
-**‘Diary of a Wimpy Kid’ Review: Growing Pains**\
-`In this Disney animated feature from the best-selling series of books, the lead character fearfully enters middle school.`\
-https://nytimes.com/2021/12/03/movies/diary-of-a-wimpy-kid-review.html?searchResultPosition=6
+**Thefts, Always an Issue for Retailers, Become More Brazen**\
+`In recent months, robberies have been more visible, with several involving large groups rushing into stores and coming out with armloads of goods.`\
+https://nytimes.com/2021/12/03/business/retailers-robberies-theft.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/03/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Is the Chance to Turn Hotels Into Affordable Housing Slipping Away?**\
+`As many of the city’s hotels sat empty during the pandemic and homelessness continued to rise, some saw an opportunity to solve both problems. So what happened?`\
+https://nytimes.com/2021/12/03/realestate/affordable-housing-nyc-hotel-conversions.html?searchResultPosition=7
 
-**Staring**\
-`What message do you think this image is communicating?`\
-https://nytimes.com/2021/12/03/learning/staring.html?searchResultPosition=8
+**Going Deep Into Oyster Country**\
+`From coastal Virginia to New York and New Orleans, a writer delves into the history and lore surrounding the shellfish, with a focus on the role African Americans have played over the years.`\
+https://nytimes.com/2021/12/03/travel/oysters-maryland-virginia-african-american-history.html?searchResultPosition=8
 
-**Trevor Noah Says Omicron Might Not Be So Bad**\
-`Noah said that new strains are like streaming new TV shows: “You gotta stick with it the first couple of weeks and see where it goes.”`\
-https://nytimes.com/2021/12/03/arts/television/trevor-noah-omicron-like-a-new-tv-show.html?searchResultPosition=9
+**Sharing Hard-Won Money Lessons to Build Generational Wealth**\
+`Wanting to help others in their communities, influencers of color who taught themselves how to pay off big debts and invest have developed audiences for their experience and advice.`\
+https://nytimes.com/2021/12/03/business/personal-finance-influencers-retirement.html?searchResultPosition=9
 
-**A Play With Music by a Convicted Murderer: Was It Worth It?**\
-`By asking the singer Bertrand Cantat to contribute to his latest show, the director Wajdi Mouawad has overshadowed his own production.`\
-https://nytimes.com/2021/12/03/theater/wajdi-mouawad-mother-mere-theatre-de-la-colline.html?searchResultPosition=10
+**Stabbed 20 Times by Her Husband, She Now Fights Laws Favoring Abusers**\
+`Shira Isakov, once a little-known Israeli working in advertising, has become a national force in the struggle to combat domestic violence and change the legal landscape on parental rights.`\
+https://nytimes.com/2021/12/03/world/middleeast/israel-shira-isakov-domestic-violence.html?searchResultPosition=10
 
