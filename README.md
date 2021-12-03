@@ -1,5 +1,5 @@
 **Can We Pedal Any Faster?**\
-`Citi Bike Tries to Keep Up With New Yorkers’ New Love of Bicycling`\
+`Citi Bike tries to keep up with New Yorkers’ new love of bicycling.`\
 https://nytimes.com/2021/12/03/nyregion/can-we-pedal-any-faster.html?searchResultPosition=1
 
 **How Long Can Students Wait for Australia to Reopen?**\
