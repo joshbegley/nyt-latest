@@ -30,8 +30,8 @@ https://nytimes.com/2021/12/02/sports/lebron-james-covid-test.html?searchResultP
 `This year’s Well Book List includes advice on how to change behavior, lower anxiety, cope with hardship and heal with poetry.`\
 https://nytimes.com/2021/12/02/well/mind/healthly-living-wellness-books.html?searchResultPosition=8
 
-**House Passes Spending Bill as Government Shutdown Looms**\
-`A divided House voted 221 to 212 to keep the government open through February. The fate of the legislation in the Senate is uncertain.`\
+**Congress Passes Spending Bill to Avert Government Shutdown**\
+`Both the House and the Senate passed legislation to keep the government funded through mid-February. The deal also provides $7 billion for the care and resettlement of Afghan refugees.`\
 https://nytimes.com/video/us/politics/100000008104673/house-spending-bill-vote.html?searchResultPosition=9
 
 **Congress Gets the (Working) Christmas It Deserves**\
