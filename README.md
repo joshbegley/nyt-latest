@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/02/crosswords/variety-acrostic.html?searchResultPosi
 https://nytimes.com/2021/12/02/crosswords/daily-puzzle-2021-12-03.html?searchResultPosition=2
 
 **Alec Baldwin Says He Is Not Responsible for Fatal Shooting on ‘Rust’**\
-`In an emotional interview with ABC News, the actor asserted, “Someone put a live bullet in a gun.”`\
+`In an emotional interview with ABC News, the actor asserted, ‘Someone put a live bullet in a gun.’`\
 https://nytimes.com/2021/12/02/movies/alec-baldwin-interview-rust-shooting.html?searchResultPosition=3
 
 **Jussie Smollett’s Lawyers Dispute Account That Attack Was Staged**\
