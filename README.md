@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/04/opinion/letters/politics-despair.html?searchResul
 
 **Critical Moment for Roe, and the Supreme Court’s Legitimacy**\
 `As justices consider Mississippi’s restrictive abortion law, scholars debate what a reversal of Roe v. Wade would mean for the court’s credibility.`\
-https://nytimes.com/2021/12/04/us/abortion-mississippi-supreme-court.html?searchResultPosition=3
+https://nytimes.com/2021/12/04/us/mississippi-supreme-court-abortion-roe-v-wade.html?searchResultPosition=3
 
 **The detection of Omicron in the U.S. expands, as forecast, with at least 2 dozen cases across 12 states.**\
 `Most of the infected had traveled to southern Africa recently, but health officials are bracing for the inevitable community spread.`\
