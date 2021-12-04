@@ -24,7 +24,7 @@ https://nytimes.com/article/monobob-winter-olympics.html?searchResultPosition=6
 
 **Belgian Port City Grapples With a Flood of Cocaine**\
 `Antwerp has become the main port of entry into Europe for the drug, which is being blamed for a surge of violence that has prompted some Belgian officials to call for a war on drugs.`\
-https://nytimes.com/2021/12/04/world/europe/belgian-port-city-grapples-with-a-flood-of-cocaine.html?searchResultPosition=7
+https://nytimes.com/2021/12/04/world/europe/belgium-antwerp-cocaine.html?searchResultPosition=7
 
 **Big Contracts, Big Buyouts, Big Pressure: College Football Coaches Hit the Jackpot**\
 `Brian Kelly will earn at least $9 million a year at L.S.U., which is paying its old coach almost $17 million to step aside. Top universities have become steppingstones to other top gigs.`\
