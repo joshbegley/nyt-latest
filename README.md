@@ -6,7 +6,7 @@ https://nytimes.com/2021/12/04/nyregion/afghan-refugees-nj-military-base.html?se
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2021/12/04/crosswords/spelling-bee-forum.html?searchResultPosition=2
 
-**Parents of Michigan Shooting Suspect Arrested, Police Say**\
+**Parents of Michigan Shooting Suspect Arrested in Detroit, Police Say**\
 `The couple were charged after officials said their son carried out the shootings using a handgun his parents had bought for him.`\
 https://nytimes.com/2021/12/04/us/michigan-shooting-parents-arrested.html?searchResultPosition=3
 
