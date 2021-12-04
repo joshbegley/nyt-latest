@@ -8,7 +8,7 @@ https://nytimes.com/video/world/asia/100000008106651/indonesia-volcano-mount-sem
 
 **At Least One Dead as Volcano Erupts in Indonesia, Spewing Ash Cloud**\
 `Dozens more suffered burns as lava flowed from the eruption of Mount Semeru, on the island of Java.`\
-https://nytimes.com/2021/12/04/world/asia/indonesia-volcano.html?searchResultPosition=3
+https://nytimes.com/2021/12/04/world/asia/indonesia-mount-semeru-eruption.html?searchResultPosition=3
 
 **For Parents, Omicron Is Another Waiting Game**\
 `A worrisome week in news.`\
