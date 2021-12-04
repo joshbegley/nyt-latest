@@ -1,40 +1,40 @@
-**Inside the U.S. Military Base Where 11,000 Afghans Are Starting Over**\
-`A New Jersey military base is the only site accepting new Afghan arrivals from overseas. It holds more evacuees than any other U.S. safe haven.`\
-https://nytimes.com/2021/12/04/nyregion/afghan-refugees-nj-military-base.html?searchResultPosition=1
+**Belgian Port City Grapples With a Flood of Cocaine**\
+`Antwerp has become the main port of entry into Europe for the drug, which is being blamed for a surge of violence that has prompted some Belgian officials to call for a war on drugs.`\
+https://nytimes.com/2021/12/04/world/europe/belgian-port-city-grapples-with-a-flood-of-cocaine.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/04/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Big Contracts, Big Buyouts, Big Pressure: College Football Coaches Hit the Jackpot**\
+`Brian Kelly will earn at least $9 million a year at L.S.U., which is paying its old coach almost $17 million to step aside. Top universities have become steppingstones to other top gigs.`\
+https://nytimes.com/2021/12/04/sports/ncaafootball/college-football-coaching-changes.html?searchResultPosition=2
 
-**Parents of Michigan Shooting Suspect Arrested in Detroit, Police Say**\
-`The couple were charged after officials said their son carried out the shootings using a handgun his parents had bought for him.`\
-https://nytimes.com/2021/12/04/us/michigan-shooting-parents-arrested.html?searchResultPosition=3
+**Condé Nast Knows Faded Glory Is Not in Style**\
+`Anna Wintour is the embodiment of the glory days of the magazine dynasty. Now she is pitching its global, digital future.`\
+https://nytimes.com/2021/12/04/business/media/conde-nast-anna-wintour.html?searchResultPosition=3
 
-**U.S. Intelligence Sees Russian Plan for Possible Ukraine Invasion**\
-`An invasion force could include 175,000 troops, but U.S. officials stress that President Vladimir V. Putin’s intentions remain unclear.`\
-https://nytimes.com/2021/12/04/us/politics/russia-ukraine-biden.html?searchResultPosition=4
+**Fearing a Repeat of Jan. 6, Congress Eyes Changes to Electoral Count Law**\
+`Members of the special House committee investigating the Capitol riot are among those arguing for an overhaul of a more than century-old statute enacted to address disputed elections.`\
+https://nytimes.com/2021/12/04/us/jan-6-electoral-count-act.html?searchResultPosition=4
 
-**U.S. Intelligence Document on Russian Plan for Possible Ukraine Invasion**\
-`An unclassified U.S. intelligence document underscores the Biden administration’s growing alarm about a potential Russian invasion of Ukraine.`\
-https://nytimes.com/interactive/2021/12/04/us/us-intelligence-russia-military-ukraine.html?searchResultPosition=5
+**Christmas Tree Questions? Ask the Mayor of Rockefeller Center.**\
+`For two decades, Correll Jones has been the man to ask about New York’s most famous tree — and where to find the public bathrooms.`\
+https://nytimes.com/2021/12/04/nyregion/rockefeller-center-greeter-mayor.html?searchResultPosition=5
 
-**F.D.A. authorizes Eli Lilly antibody treatment for high-risk young children.**\
-`Doctors have a new option for the youngest patients who are vulnerable to the worst outcomes from Covid.`\
-https://nytimes.com/2021/12/03/world/fda-authorizes-eli-lilly-antibody-treatment-for-young-children.html?searchResultPosition=6
+**The Variant Hunters: Inside South Africa’s Effort to Stanch Dangerous Mutations**\
+`Scientists in a cutting-edge laboratory do part of the work. Local health workers on foot do the rest.`\
+https://nytimes.com/2021/12/04/health/covid-variant-south-africa-hiv.html?searchResultPosition=6
 
-**[Perfection!]**\
-`Nam Jin Yoon presents a precisely composed (but wild) Saturday puzzle.`\
-https://nytimes.com/2021/12/03/crosswords/daily-puzzle-2021-12-04.html?searchResultPosition=7
+**How Bat Moms Teach Bat Pups Their Sense of Direction**\
+`Scientists were surprised to discover that at least one bat species carries its young to an unsupervised drop-off point night after night.`\
+https://nytimes.com/2021/12/04/science/bats-moms-direction.html?searchResultPosition=7
 
-**Quotation of the Day: Suspect’s Parents Charged in Michigan School Attack**\
-`Quotation of the Day for Saturday, December 4, 2021.`\
-https://nytimes.com/2021/12/03/todayspaper/quotation-of-the-day-suspects-parents-charged-in-michigan-school-attack.html?searchResultPosition=8
+**Remembering the ‘Queen of Cake’**\
+`Sylvia Weinstock, who died Nov. 22, created thousands of wedding cakes over the years. Four couples share what her confections meant to them.`\
+https://nytimes.com/2021/12/04/style/remembering-the-queen-of-cake.html?searchResultPosition=8
 
-**Suspect in Mass Killing at Colorado Grocery Store Is Mentally Incompetent, Judge Says**\
-`The man accused of murdering 10 people in Boulder, Colo., in March will be sent to a state hospital “to restore his competency as soon as possible so that we may proceed forward with the case,” prosecutors said.`\
-https://nytimes.com/2021/12/03/us/boulder-shooting-suspect-mentally-incompetent.html?searchResultPosition=9
+**How a Cream Cheese Shortage Is Affecting N.Y.C. Bagel Shops**\
+`Supply chain problems that have hit businesses across the country now threaten a quintessential New York treat.`\
+https://nytimes.com/2021/12/04/nyregion/cream-cheese-shortage-nyc-bagels.html?searchResultPosition=9
 
-**Congo Ousts Mining Leader in a Cloud of Corruption Claims**\
-`The country’s president removed Albert Yuma Mulimbi as chairman of the state mining firm. Cobalt in Congo is a crucial resource in the global clean energy revolution.`\
-https://nytimes.com/2021/12/03/world/congo-cobalt-albert-yuma-mulimbi.html?searchResultPosition=10
+**Public Displays of Resignation: Saying ‘I Quit’ Loud and Proud**\
+`People aren’t just leaving their jobs. They are broadcasting it.`\
+https://nytimes.com/2021/12/04/business/public-resignation-quitting.html?searchResultPosition=10
 
