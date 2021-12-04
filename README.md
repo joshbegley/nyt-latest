@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/04/crosswords/daily-puzzle-2021-12-05.html?searchRes
 
 **Signs of Sea Change at Art Basel Miami: More Galleries of Color**\
 `Changes to eligibility requirements enabled more diversity at the fair, which roared back for the first time since the pandemic.`\
-https://nytimes.com/2021/12/04/arts/design/signs-of-sea-change-at-art-basel-miami-beach-more-galleries-of-color.html?searchResultPosition=2
+https://nytimes.com/2021/12/04/arts/design/art-basel-miami-diversity.html?searchResultPosition=2
 
 **CNN Fires Chris Cuomo After New Details on Help He Gave His Brother**\
 `The cable news network said it had “terminated him, effective immediately,” a move that came four months after Andrew Cuomo resigned as governor of New York.`\
