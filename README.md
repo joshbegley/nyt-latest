@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/05/books/review-fortune-men-nadifa-mohamed.html?sear
 
 **U.S. Military Has Acted Against Ransomware Groups, General Acknowledges**\
 `Gen. Paul M. Nakasone, the head of Cyber Command, said a new cross-functional effort has been gathering intelligence to combat criminal groups targeting U.S. infrastructure.`\
-https://nytimes.com/2021/12/05/us/politics/cyber-command-ransomware.html?searchResultPosition=2
+https://nytimes.com/2021/12/05/us/politics/us-military-ransomware-cyber-command.html?searchResultPosition=2
 
 **Pope Francis Criticizes an ‘Era of Walls and Barbed Wire’ for Migrants**\
 `While visiting a refugee camp on the Greek island of Lesbos, Pope Francis urged the world to face the migrant crisis with respect toward the migrants’ human rights, and chastised European nations for not practicing the values they promote abroad.`\
