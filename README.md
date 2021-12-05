@@ -22,8 +22,8 @@ https://nytimes.com/2021/12/05/arts/dance/alvin-ailey-at-city-center-exploring-b
 `Dobbs v. Jackson Women’s Health Organization is another Mississippi case poised to roll back constitutional rights.`\
 https://nytimes.com/2021/12/05/opinion/abortion-mississippi-constitutional-rights.html?searchResultPosition=6
 
-**As uncertainties linger about the new variant, officials say U.S. Omicron cases are likely to rise.**\
-`Many states have detected cases, including in some people who have no known history of recent travel abroad, which experts have said suggests community spread of the variant in the United States.`\
+**U.S. says Omicron cases are likely to rise.**\
+`Experts said it is likely that there is already community spread of the variant in the United States.`\
 https://nytimes.com/2021/12/05/health/omicron-us-cases-cdc-fauci.html?searchResultPosition=7
 
 **Antony Sher, Actor Acclaimed for His Versatility, Dies at 72**\
