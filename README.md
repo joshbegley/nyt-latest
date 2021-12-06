@@ -6,8 +6,8 @@ https://nytimes.com/2021/12/05/us/oxford-michigan-school-shooting-investigation.
 `The fire, in Carson, Calif., on Sept. 30, consumed beauty and wellness products and sent chemicals into a nearby waterway, the authorities said. Thousands complained about the stench.`\
 https://nytimes.com/2021/12/05/us/carson-california-warehouse-fire-stench.html?searchResultPosition=2
 
-**O’Neil, Hodges and Miñoso Are Among Six New Hall of Famers**\
-`A pair of committees asked to review candidates from previous eras elected Buck O’Neil, Gil Hodges, Minnie Miñoso, Tony Oliva, Jim Kaat and Bud Fowler.`\
+**Baseball’s ‘Court of Appeals’ Adds Six New Hall of Famers**\
+`A pair of old-timers committees corrected previous snubs, electing Buck O’Neil, Gil Hodges, Minnie Miñoso, Tony Oliva, Jim Kaat and Bud Fowler.`\
 https://nytimes.com/2021/12/05/sports/baseball/buck-oneil-gil-hodges-hall-of-fame.html?searchResultPosition=3
 
 **What We Learned From Week 13 in the N.F.L.**\
