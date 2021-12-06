@@ -1,6 +1,6 @@
 **Bitcoin plunges in weekend trading, with markets facing renewed volatility.**\
 `Investors have pulled back broadly from risky assets as financial markets have been struck by the arrival of the Omicron variant and surprisingly high inflation.`\
-https://nytimes.com/2021/12/06/business/bitcoin-plunges-in-weekend-trading-with-markets-facing-renewed-volatility.html?searchResultPosition=1
+https://nytimes.com/2021/12/06/business/bitcoin-stock-market-volatility.html?searchResultPosition=1
 
 **China Nears a Reckoning as Property Firms Face Tough Deadlines**\
 `Evergrande and Kaisa must come up with hundreds of millions of dollars in days. Beijing sought to reassure markets overall, but signaled it might let Evergrande fail.`\
