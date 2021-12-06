@@ -35,6 +35,6 @@ https://nytimes.com/2021/12/05/world/asia/prince-norodom-ranariddh-dead.html?sea
 https://nytimes.com/2021/12/05/arts/television/insecure-recap.html?searchResultPosition=9
 
 **Myanmar’s ousted president and the capital’s mayor were convicted, too.**\
-`The court also convicted U Win Myint, the former president, who was found guilty of violating Covid-19 protocols; and U Myo Aung, the ousted mayor of Naypyidaw, who was convicted of incitement.`\
-https://nytimes.com/2021/11/29/world/asia/president-mayor.html?searchResultPosition=10
+`The court also sentenced U Win Myint, the former president, and U Myo Aung, the ousted mayor of Naypyidaw.`\
+https://nytimes.com/2021/11/29/world/asia/myanmar-president-mayor-convicted.html?searchResultPosition=10
 
