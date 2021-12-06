@@ -1,5 +1,5 @@
 **United States Will Not Send Government Officials to Beijing Olympics**\
-`Athletes will still be able to compete in the Winter Games in Beijing. But the boycott by government officials is a response to human rights abuses in Xinjiang.`\
+`Athletes will still be able to compete in the Winter Games in Beijing, but the diplomatic boycott is a response to human rights abuses in Xinjiang.`\
 https://nytimes.com/2021/12/06/us/politics/olympics-beijing-boycott.html?searchResultPosition=1
 
 **Storm Could Cause ‘Catastrophic Flooding’ in Hawaii, Forecasters Warn**\
