@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/06/nyregion/eric-adams-employee-vaccine-mandate.html
 https://nytimes.com/2021/12/06/nyregion/private-employer-vaccine-mandate-deblasio.html?searchResultPosition=2
 
 **Devin Nunes Will Quit the House to Take Over Trump’s Media Company**\
-`The California Republican, who emerged as one of Donald J. Trump’s most pugnacious defenders, chose the former president’s media company over a potentially powerful new post in Congress.`\
+`The California Republican, who had pugnaciously defended Donald J. Trump, chose the media company role over a potentially powerful new post in Congress.`\
 https://nytimes.com/2021/12/06/us/politics/devin-nunes-trump.html?searchResultPosition=3
 
 **Justice Department Closes Emmett Till Investigation Without Charges**\
