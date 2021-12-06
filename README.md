@@ -1,40 +1,40 @@
+**In London, the Goldsmiths’ Company Gets Ready to Mark 700 Years**\
+`The organization says improving diversity and creating a digital archive of its 12,000 pieces of jewelry and silver will help propel it into the future.`\
+https://nytimes.com/2021/12/06/fashion/jewelry-goldsmiths-guild-london.html?searchResultPosition=1
+
+**Jewelry That Moves When You Do**\
+`The Irish designer Alan Ardiff specializes in kinetic pendants, with hares that run and suns that spin.`\
+https://nytimes.com/2021/12/06/fashion/jewelry-kinetic-alan-ardiff-ireland.html?searchResultPosition=2
+
+**Jewelry Designers Find New Bases Spark Creativity**\
+`The pandemic and other concerns compel some to change their location, providing inspiration and a lot of satisfaction.`\
+https://nytimes.com/2021/12/06/fashion/jewelry-designer-relocations-bibi-van-der-velden.html?searchResultPosition=3
+
+**The Okavango Blue Diamond, and a Lesson in Geology**\
+`Visitors to the American Museum of Natural History may be attracted by glitter, but scientists see more in the unusual stone.`\
+https://nytimes.com/2021/12/06/fashion/jewelry-okavango-blue-diamond-botswana.html?searchResultPosition=4
+
+**Want a Diamond? Why Not Paint Your Own?**\
+`Interest in the luxury house tradition of drawing gems has led to classes in the technique, including one at a museum in Belgium.`\
+https://nytimes.com/2021/12/06/fashion/jewelry-painting-diamonds-diva-museum-antwerp.html?searchResultPosition=5
+
 **Companies Linked to Russian Ransomware Hide in Plain Sight**\
 `Cybersecurity experts tracing money paid by American businesses to Russian ransomware gangs found it led to one of Moscow’s most prestigious addresses.`\
-https://nytimes.com/2021/12/06/world/europe/ransomware-russia-bitcoin.html?searchResultPosition=1
+https://nytimes.com/2021/12/06/world/europe/ransomware-russia-bitcoin.html?searchResultPosition=6
 
 **Inside Tesla as Elon Musk Pushed an Unflinching Vision for Self-Driving Cars**\
 `The automaker may have undermined safety in designing its Autopilot driver-assistance system to fit its chief executive’s vision, former employees say.`\
-https://nytimes.com/2021/12/06/technology/tesla-autopilot-elon-musk.html?searchResultPosition=2
+https://nytimes.com/2021/12/06/technology/tesla-autopilot-elon-musk.html?searchResultPosition=7
 
 **The Best Thrillers of 2021**\
 `They may be (relatively) low on body counts, but the year’s most chilling, atmospheric reads will still set your pulse racing and your heart pounding.`\
-https://nytimes.com/2021/12/06/books/review/best-thrillers-2021.html?searchResultPosition=3
+https://nytimes.com/2021/12/06/books/review/best-thrillers-2021.html?searchResultPosition=8
 
 **Best Movies of 2021**\
 `Even when a film wasn’t great, filmgoing was. But there were some truly wonderful releases, ranging from music docs and musicals to westerns and the just plain weird.`\
-https://nytimes.com/2021/12/06/movies/best-movies.html?searchResultPosition=4
+https://nytimes.com/2021/12/06/movies/best-movies.html?searchResultPosition=9
 
 **Chanel Builds a New Home for 11 of Its Specialty Creators**\
 `Feather concoctions and elaborate embroideries are among the marvels now being made at 19M, a seven-level complex in Paris.`\
-https://nytimes.com/2021/12/06/fashion/chanel-19m-metiers-d-art-paris.html?searchResultPosition=5
-
-**Bearing Witness to Svalbard’s Fragile Splendor**\
-`To visitors, the Norwegian archipelago can seem both ethereal and eternal. But climate change all but guarantees an eventual collapse of its vulnerable ecosystem.`\
-https://nytimes.com/2021/12/06/travel/svalbard-climate-change-tourism.html?searchResultPosition=6
-
-**‘Just Total Chaos’: Floods Bring Death and Devastation to Dairies**\
-`Near-record flooding in Washington State drowned cattle, demolished homes and damaged equipment. Broken supply chains are making it even harder to recover.`\
-https://nytimes.com/2021/12/06/us/washington-floods-dairy-farmers.html?searchResultPosition=7
-
-**Why New York Is Unearthing a Brook It Buried a Century Ago**\
-`A plan to “daylight” Tibbetts Brook in the Bronx would be one of the city’s most ambitious green infrastructure improvements.`\
-https://nytimes.com/2021/12/06/nyregion/why-new-york-is-unearthing-a-brook-it-buried-a-century-ago.html?searchResultPosition=8
-
-**Jewelry Brands Style Their Own Newsletter Trend**\
-`Several designers say that the inexpensive communication method feels more ‘personal’ than social media.`\
-https://nytimes.com/2021/12/06/fashion/jewelry-brands-newsletters.html?searchResultPosition=9
-
-**The Pandemic Has Your Blood Pressure Rising? You’re Not Alone.**\
-`Average blood pressure readings increased as the coronavirus spread, new research suggests. The finding portends medical repercussions far beyond Covid-19.`\
-https://nytimes.com/2021/12/06/health/covid-blood-pressure.html?searchResultPosition=10
+https://nytimes.com/2021/12/06/fashion/chanel-19m-metiers-d-art-paris.html?searchResultPosition=10
 
