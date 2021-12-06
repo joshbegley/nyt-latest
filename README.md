@@ -2,7 +2,7 @@
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2021/12/05/learning/word-of-the-day-verbiage.html?searchResultPosition=1
 
-**How TikTok Keeps You Watching**\
+**How TikTok Reads Your Mind**\
 `It’s the most successful video app in the world. Our columnist has obtained an internal company document that offers a new level of detail about how the algorithm works.`\
 https://nytimes.com/2021/12/05/business/media/tiktok-algorithm.html?searchResultPosition=2
 
