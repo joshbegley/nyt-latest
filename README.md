@@ -1,6 +1,6 @@
 **Devin Nunes Will Quit the House to Take Over Trump’s Media Company**\
 `The California Republican, who emerged as one of Donald J. Trump’s most pugnacious defenders, chose a Trump media firm over a potentially powerful new post in Congress.`\
-https://nytimes.com/2021/12/06/us/politics/devin-nunes.html?searchResultPosition=1
+https://nytimes.com/2021/12/06/us/politics/devin-nunes-trump.html?searchResultPosition=1
 
 **Justice Department Closes Emmett Till Investigation Without Charges**\
 `The department said it could not corroborate a book’s claim that a central witness had recanted her statements about Emmett, a Black teenager killed by two white men in 1955.`\
