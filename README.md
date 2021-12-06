@@ -6,7 +6,7 @@ https://nytimes.com/2021/12/06/us/vaccine-mandate-private-employers-nyc.html?sea
 `We want to hear from you.`\
 https://nytimes.com/2021/12/06/us/00covid-pandemic-older-americans.html?searchResultPosition=2
 
-**Jussie Smollett Testifies at Trial on Charges He Staged a Fake Attack**\
+**Jussie Smollett Testifies at Trial on Charges He Staged an Attack on Himself**\
 `The actor, who is accused of directing two brothers to mildly attack him, and then reporting it as a hate crime, took the stand at his criminal trial on charges related to the 2019 assault.`\
 https://nytimes.com/2021/12/06/arts/television/jussie-smollett-trial-testimony.html?searchResultPosition=3
 
