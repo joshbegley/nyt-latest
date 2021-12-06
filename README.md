@@ -34,7 +34,7 @@ https://nytimes.com/2021/12/05/world/asia/prince-norodom-ranariddh-dead.html?sea
 `For Issa and the girls, a day of relaxation turns into a night of introspection.`\
 https://nytimes.com/2021/12/05/arts/television/insecure-recap.html?searchResultPosition=9
 
-**‘Succession’ Season 3, Episode 8: Italian Ice**\
-`Kendall didn’t come out of the last family wedding so well. His mother’s Tuscan nuptials don’t look any more promising.`\
-https://nytimes.com/2021/12/05/arts/television/succession-recap-episode-8.html?searchResultPosition=10
+**Myanmar’s ousted president and the capital’s mayor were convicted, too.**\
+`The court also convicted U Win Myint, the former president, who was found guilty of violating Covid-19 protocols; and U Myo Aung, the ousted mayor of Naypyidaw, who was convicted of incitement.`\
+https://nytimes.com/2021/11/29/world/asia/president-mayor.html?searchResultPosition=10
 
