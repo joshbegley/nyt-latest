@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/05/sports/football/nfl-week-13-scores.html?searchRes
 https://nytimes.com/2021/12/05/us/politics/bob-dole-senate.html?searchResultPosition=4
 
 **The Jets and Giants Played. They Did Not Win.**\
-`Neither team won on Sunday, with the Jets falling to the Philadelphia Eagles’ backup quarterback, and the Giants’ offense scuffling against the renewed Miami Dolphins.`\
+`Neither team won on Sunday, with the Jets falling to the Philadelphia Eagles’ backup quarterback and the Giants’ offense scuffling against the renewed Miami Dolphins.`\
 https://nytimes.com/2021/12/05/sports/football/eagles-jets-giants-dolphins-score.html?searchResultPosition=5
 
 **A Chicken-Fried McGovern, Newt’s Good Ideas and the Senate Zoo: A Dole One-Liner Sampler**\
