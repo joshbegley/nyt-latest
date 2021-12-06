@@ -24,7 +24,7 @@ https://nytimes.com/video/us/politics/100000008108655/biden-prescription-drugs-p
 
 **Omicron Is Fast Moving, but Perhaps Less Severe, Early Reports Suggest**\
 `Researchers in South Africa, where the variant is spreading quickly, say it may cause less serious Covid cases than other forms of the virus, but it is unclear whether that will hold true.`\
-https://nytimes.com/2021/12/06/world/africa/omicron-coronavirus-research.html?searchResultPosition=7
+https://nytimes.com/2021/12/06/world/africa/omicron-coronavirus-research-spread.html?searchResultPosition=7
 
 **Touting His Spending Bill, Biden Shifts Focus to Drug Prices**\
 `President Biden emphasized how the bill would lower prescription drug costs, an issue his administration hopes will build support for the broader package.`\
