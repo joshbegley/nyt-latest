@@ -1,5 +1,5 @@
 **Where Omicron Could Have Spread**\
-`The first person with the new variant got sick at home in Minnesota, days after attending an anime convention in Manhattan.`\
+`The first person in the U.S. with the new variant got sick at home in Minnesota, days after attending an anime convention in Manhattan.`\
 https://nytimes.com/2021/12/06/nyregion/where-omicron-could-have-spread.html?searchResultPosition=1
 
 **In Its War on Covid-19, China Calls on ‘Little Inoculated Warriors’**\
