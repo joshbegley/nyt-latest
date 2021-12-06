@@ -28,7 +28,7 @@ https://nytimes.com/paidpost/philips/bringing-first-class-care-to-americas-first
 
 **4 takeaways from testimony in Ghislaine Maxwell’s trial on Monday.**\
 `A second woman testified that Ghislaine Maxwell had recruited her as a teenager to give sexual massages to Jeffrey Epstein. The defense questioned the witness’s motives.`\
-https://nytimes.com/2021/12/06/nyregion/ghislaine-maxwell-trial.html?searchResultPosition=8
+https://nytimes.com/2021/12/06/nyregion/ghislaine-maxwell-trial-takeaways.html?searchResultPosition=8
 
 **Coronavirus Briefing: China’s ‘Little Inoculated Warriors’**\
 `And New York City’s sweeping new vaccine mandate.`\
