@@ -1,6 +1,6 @@
 **Michael Steinhardt, Billionaire, Surrenders $70 Million in Stolen Relics**\
 `The hedge fund pioneer is barred for life from buying more antiquities. He turned over 180 stolen objects that had decorated his homes and office.`\
-https://nytimes.com/2021/12/06/arts/design/steinhardt-billionaire-surrenders-stolen-relics.html?searchResultPosition=1
+https://nytimes.com/2021/12/06/arts/design/steinhardt-billionaire-stolen-antiquities.html?searchResultPosition=1
 
 **Biden’s Supreme Court Commission Prepares to Vote on Final Report**\
 `A draft version of the document flagged deep disputes over court expansion while exploring how phasing in term limits might work.`\
