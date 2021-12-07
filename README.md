@@ -1,40 +1,40 @@
+**Michael Steinhardt, Billionaire, Surrenders $70 Million in Stolen Relics**\
+`The hedge fund pioneer is barred for life from buying more antiquities. He turned over 180 stolen objects that had decorated his homes and office.`\
+https://nytimes.com/2021/12/06/arts/design/steinhardt-billionaire-surrenders-stolen-relics.html?searchResultPosition=1
+
 **Biden’s Supreme Court Commission Prepares to Vote on Final Report**\
 `A draft version of the document flagged deep disputes over court expansion while exploring how phasing in term limits might work.`\
-https://nytimes.com/2021/12/06/us/politics/biden-supreme-court-commission.html?searchResultPosition=1
+https://nytimes.com/2021/12/06/us/politics/biden-supreme-court-commission.html?searchResultPosition=2
 
 **‘Selling Kabul’ Review: Trapped in a War, and an Apartment**\
 `In Sylvia Khoury’s suspenseful new play, the characters sometimes feel too much like wheels in a machine, but it’s a tense thrill to watch it work.`\
-https://nytimes.com/2021/12/06/theater/selling-kabul-review.html?searchResultPosition=2
+https://nytimes.com/2021/12/06/theater/selling-kabul-review.html?searchResultPosition=3
 
 **Right vs. Right vs. Left: Governor’s Race Puts Georgia at Center of 2022 Drama**\
 `Former Senator David Perdue, encouraged by Donald Trump, is challenging Gov. Brian Kemp, a fellow Republican who defied the former president.`\
-https://nytimes.com/2021/12/06/us/politics/georgia-abrams-perdue-kemp.html?searchResultPosition=3
+https://nytimes.com/2021/12/06/us/politics/georgia-abrams-perdue-kemp.html?searchResultPosition=4
 
 **Fred Hiatt, Washington Post Editorial Page Editor, Dies at 66**\
 `He used his powerful platform to champion human rights, caution against a Trump presidency and condemn the killing of a Saudi columnist for the paper.`\
-https://nytimes.com/2021/12/06/business/media/fred-hiatt-dead.html?searchResultPosition=4
+https://nytimes.com/2021/12/06/business/media/fred-hiatt-dead.html?searchResultPosition=5
 
 **Biden’s Democracy Conference Is About Much More Than Democracy**\
 `Democracies can find strength in numbers.`\
-https://nytimes.com/2021/12/06/opinion/biden-democracy-conference.html?searchResultPosition=5
+https://nytimes.com/2021/12/06/opinion/biden-democracy-conference.html?searchResultPosition=6
 
 **Trump’s Blood Oxygen Level in Covid Bout Was Dangerously Low, Former Aide Says**\
 `Mark Meadows, Mr. Trump’s former chief of staff, said in his new book that the weakened president’s blood oxygen level reached 86 during a harrowing fight against the coronavirus.`\
-https://nytimes.com/2021/12/06/us/politics/trump-covid-blood-oxygen.html?searchResultPosition=6
+https://nytimes.com/2021/12/06/us/politics/trump-covid-blood-oxygen.html?searchResultPosition=7
 
 **Justice Department Sues Texas Over Voting Rights Violations**\
 `Attorney General Merrick Garland said Texas’ redistricting plan would violate the Voting Rights Act by discriminating against minority voters.`\
-https://nytimes.com/video/us/politics/100000008109152/texas-voting-rights-violations.html?searchResultPosition=7
+https://nytimes.com/video/us/politics/100000008109152/texas-voting-rights-violations.html?searchResultPosition=8
 
 **A Baseball Man Who Was Best Viewed in Total**\
 `Gil Hodges struggled to make the Hall of Fame because voters had to consider him as a player or as a manager. Hodges was decidedly both and is finally headed to Cooperstown.`\
-https://nytimes.com/2021/12/06/sports/baseball/gil-hodges-hall-of-fame.html?searchResultPosition=8
+https://nytimes.com/2021/12/06/sports/baseball/gil-hodges-hall-of-fame.html?searchResultPosition=9
 
 **A Meeting With Maxwell Led to Years of Sex With Epstein, Accuser Says**\
 `A woman identified only as “Kate” told jurors at Ghislaine Maxwell’s sex-trafficking trial that Ms. Maxwell leveraged their friendship to encourage her to have sex with Jeffrey Epstein.`\
-https://nytimes.com/2021/12/06/nyregion/ghislaine-maxwell-trial-accuser.html?searchResultPosition=9
-
-**Thinking of hosting a holiday party? Here are a few tips.**\
-`By Ronda Kaysen`\
-https://nytimes.com/2021/12/06/world/thinking-of-hosting-a-holiday-party-here-are-a-few-tips.html?searchResultPosition=10
+https://nytimes.com/2021/12/06/nyregion/ghislaine-maxwell-trial-accuser.html?searchResultPosition=10
 
