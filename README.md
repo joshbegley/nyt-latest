@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/07/us/robert-e-lee-statue-melt-charlottesville.html?searchResultPosition=1
 
 **French Police Arrest Man in Connection With Khashoggi Killing**\
-`A man with the same name, Khalid Alotaibi, is wanted in connection with the murder of the Saudi journalist Jamal Khashoggi by Saudi agents in Istanbul in 2018.`\
+`A man with the same name, Khalid Alotaibi, is wanted in connection with the murder of the Saudi journalist Jamal Khashoggi. A Saudi official says France arrested the wrong man.`\
 https://nytimes.com/2021/12/07/world/middleeast/khashoggi-arrest-france-alotaiba.html?searchResultPosition=2
 
 **From Soap Opera to Art: Why a Moscow Museum Is Re-Enacting ‘Santa Barbara’**\
