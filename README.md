@@ -31,7 +31,7 @@ https://nytimes.com/2021/12/07/business/stellantis-auto-software.html?searchResu
 https://nytimes.com/2021/12/07/arts/music/popcast-stephen-sondheim.html?searchResultPosition=8
 
 **Chile Legalizes Same-Sex Marriage at Fraught Political Moment**\
-`The legalization of same-sex marriage in Chile comes as the conservative country grapples with sweeping demands for social change.`\
+`The legalization of same-sex marriage in Chile comes as the country grapples with sweeping demands for social change.`\
 https://nytimes.com/2021/12/07/world/americas/chile-gay-marriage.html?searchResultPosition=9
 
 **If James Madison Weighed In on Politics Today**\
