@@ -1,6 +1,6 @@
 **With Putin-Biden meeting, skirmishes break out between Ukrainian soldiers and Russian-backed separatists.**\
 `The exchange of fire on the “line of contact” in Ukraine was not unusual, but offered a reminder that, for those on the front line, the grinding war is part of daily life.,`\
-https://nytimes.com/2021/12/07/world/with-putin-biden-meeting-skirmishes-break-out-between-ukrainian-soldiers-and-russian-backed-separatists.html?searchResultPosition=1
+https://nytimes.com/2021/12/07/world/ukraine-russia-putin-biden.html?searchResultPosition=1
 
 **A Landmark Photo Archive of Black Life in New York Comes to the Met**\
 `With the Studio Museum in Harlem, the Met will acquire and conserve thousands of photographs by James Van Der Zee, the virtuoso portraitist who brought to life the optimism of the Harlem Renaissance.`\
