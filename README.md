@@ -1,6 +1,6 @@
 **A Monument to the Lives of Black Women and Girls**\
 `“The Black Girlhood Altar” began as a community project fueled by collective grief. Now it’s on display at the Museum of Contemporary Art Chicago.`\
-https://nytimes.com/2021/12/07/fashion/black-girlhood-altar-chicago-monument.html?searchResultPosition=1
+https://nytimes.com/2021/12/07/style/black-girlhood-altar-chicago-monument.html?searchResultPosition=1
 
 **The Courtesy of Covering Up**\
 `Mask wearing during the pandemic has cast modest Muslim style in a new light.`\
