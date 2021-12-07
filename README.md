@@ -22,7 +22,7 @@ https://nytimes.com/2021/12/07/business/new-york-vaccine-mandate-companies.html?
 `Covid-19 vaccination rates for 5- to 11-year-olds vary widely across California’s counties.`\
 https://nytimes.com/2021/12/07/us/california-kids-vaccines.html?searchResultPosition=6
 
-**Patriots New Math: Three Passes, Two Completions, One Win**\
+**Patriots’ New Math: Three Passes, Two Completions, One Win**\
 `New England (9-4) kept its offense on the ground in windy Buffalo and moved closer to reclaiming the division title the Bills won last season.`\
 https://nytimes.com/2021/12/07/sports/football/patriots-bills-belichick-mac-jones.html?searchResultPosition=7
 
