@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/06/nyregion/hate-crime-long-island-lgbtq.html?search
 
 **Defendant in Case Brought by Durham Says New Evidence Undercuts Charge**\
 `Lawyers for Michael Sussmann, accused by the Trump-era special counsel of lying to the F.B.I., asked for a quick trial after receiving what they said was helpful material from prosecutors.`\
-https://nytimes.com/2021/12/06/us/politics/defendant-durham-new-evidence.html?searchResultPosition=2
+https://nytimes.com/2021/12/06/us/politics/michael-sussmann-john-durham.html?searchResultPosition=2
 
 **Michael Steinhardt, Billionaire, Surrenders $70 Million in Stolen Relics**\
 `The hedge fund pioneer is barred for life from buying more antiquities. He turned over 180 stolen objects that had decorated his homes and office.`\
