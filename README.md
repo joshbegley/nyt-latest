@@ -26,15 +26,15 @@ https://nytimes.com/2021/12/06/sports/baseball/gil-hodges-hall-of-fame.html?sear
 `A woman identified only as “Kate” told jurors at Ghislaine Maxwell’s sex-trafficking trial that Ms. Maxwell leveraged their friendship to encourage her to have sex with Jeffrey Epstein.`\
 https://nytimes.com/2021/12/06/nyregion/ghislaine-maxwell-trial-accuser.html?searchResultPosition=7
 
+**Thinking of hosting a holiday party? Here are a few tips.**\
+`By Ronda Kaysen`\
+https://nytimes.com/2021/12/06/world/thinking-of-hosting-a-holiday-party-here-are-a-few-tips.html?searchResultPosition=8
+
 **Will Eric Adams Keep N.Y.C.’s Newest Vaccine Mandate? Check Back Later.**\
 `It was unclear if the incoming mayor, Eric Adams, who is on vacation in Ghana, intended to enforce a vaccine mandate for private employers.`\
-https://nytimes.com/2021/12/06/nyregion/eric-adams-employee-vaccine-mandate.html?searchResultPosition=8
+https://nytimes.com/2021/12/06/nyregion/eric-adams-employee-vaccine-mandate.html?searchResultPosition=9
 
 **New York City to Mandate Vaccines for Employees at Private Businesses**\
 `The mandate, set to take effect just before Mayor Bill de Blasio leaves office, will apply to workers at about 184,000 businesses. It is likely to face legal challenges.`\
-https://nytimes.com/2021/12/06/nyregion/private-employer-vaccine-mandate-deblasio.html?searchResultPosition=9
-
-**Devin Nunes Will Quit the House to Take Over Trump’s Media Company**\
-`The California Republican, who had pugnaciously defended Donald J. Trump, chose the media company role over a potentially powerful new post in Congress.`\
-https://nytimes.com/2021/12/06/us/politics/devin-nunes-trump.html?searchResultPosition=10
+https://nytimes.com/2021/12/06/nyregion/private-employer-vaccine-mandate-deblasio.html?searchResultPosition=10
 
