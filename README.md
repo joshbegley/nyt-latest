@@ -22,8 +22,8 @@ https://nytimes.com/2021/12/07/us/david-neal-cox-execution-felecia-mississippi.h
 `Residents of Russell, the town in Kansas where Mr. Dole grew up, spoke longingly of a bygone era of bipartisanship.`\
 https://nytimes.com/2021/12/07/us/bob-dole-hometown-russell-kansas.html?searchResultPosition=6
 
-**In a Nod to Global Business, U.A.E. Changes Its Workweek**\
-`Sunday will become a day off and Friday will be a partial work day — a departure from most of the Arab world, aligning with international workers and markets.`\
+**Sundays Off: U.A.E. Changes Its Weekend to Align With West**\
+`The United Arab Emirates, in a nod to global markets, has changed its workweek, declaring that Sunday, a work day in much of the Arab world, is now part of the weekend. Fridays will be half days.`\
 https://nytimes.com/2021/12/07/world/middleeast/uae-weekend-shift.html?searchResultPosition=7
 
 **The Best Actors of 2021**\
