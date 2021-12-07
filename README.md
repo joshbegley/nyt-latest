@@ -1,5 +1,5 @@
 **Marie-Claire Blais, Acclaimed French Canadian Novelist, Dies at 82**\
-`Though largely unknown outside Canada, she often ranked alongside Margaret Atwood and Alice Munro as one of the country’s greatest living writers.`\
+`Though largely unknown outside Canada, she was often ranked alongside Margaret Atwood and Alice Munro as one of the country’s greatest living writers.`\
 https://nytimes.com/2021/12/07/books/marie-claire-blais-dead.html?searchResultPosition=1
 
 **Vote For The Best Metropolitan Diary Entry of 2021**\
