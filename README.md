@@ -1,6 +1,6 @@
 **Trump’s Blood Oxygen Level in Covid Bout Was Dangerously Low, Former Aide Says**\
 `Mark Meadows, Mr. Trump’s former chief of staff, said in his new book that the weakened president’s blood oxygen level reached 86 during a harrowing fight against the coronavirus.`\
-https://nytimes.com/2021/12/06/us/politics/trump-covid.html?searchResultPosition=1
+https://nytimes.com/2021/12/06/us/politics/trump-covid-blood-oxygen.html?searchResultPosition=1
 
 **Justice Department Sues Texas Over Voting Rights Violations**\
 `Attorney General Merrick Garland said Texas’ redistricting plan would violate the Voting Rights Act by discriminating against minority voters.`\
