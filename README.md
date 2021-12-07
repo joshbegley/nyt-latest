@@ -1,4 +1,4 @@
-**Ethiopia Says It Recaptured Strategic Towns from Rebels**\
+**Ethiopia Says It Recaptured Strategic Towns From Rebels**\
 `The government said it took back the towns of Dessie and Kombolcha, the latest in a string of wins Prime Minister Abiy Ahmed has claimed in recent days.`\
 https://nytimes.com/2021/12/07/world/africa/ethiopia-tigray-civil-war.html?searchResultPosition=1
 
