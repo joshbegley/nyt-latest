@@ -1,4 +1,4 @@
-**Charlottesville’s Statue of Robert E. Lee Will Soon Be Melted Down**\
+**Charlottesville’s Statue of Robert E. Lee Will Be Melted Down**\
 `The statue was the focus of a deadly white nationalist rally in 2017. Soon, it will be turned into a piece of public art by a local African American heritage center.`\
 https://nytimes.com/2021/12/07/us/robert-e-lee-statue-melt-charlottesville.html?searchResultPosition=1
 
