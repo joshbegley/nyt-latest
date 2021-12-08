@@ -6,13 +6,13 @@ https://nytimes.com/video/nyregion/100000008111371/fox-news-christmas-tree-fire-
 `The brand’s annual Métiers d’Art show went on, despite controversy.`\
 https://nytimes.com/2021/12/08/style/chanel-metiers-dart.html?searchResultPosition=2
 
-**Meg Stalter Rejoices With Dolly Parton and a Loyal Chihuahua**\
-`The comedian talks about banishing the worst of 2021 in Amazon’s “Yearly Departed,” while celebrating the best in real life.`\
-https://nytimes.com/2021/12/08/arts/television/meg-stalter-yearly-departed.html?searchResultPosition=3
-
 **Caster Semenya Has Nothing to Prove**\
 `Denied a spot in the 2020 Olympics, the South African gold medalist seeks justice in court.`\
-https://nytimes.com/2021/12/08/special-series/olympics-caster-semenya.html?searchResultPosition=4
+https://nytimes.com/2021/12/08/special-series/olympics-caster-semenya.html?searchResultPosition=3
+
+**Meg Stalter Rejoices With Dolly Parton and a Loyal Chihuahua**\
+`The comedian talks about banishing the worst of 2021 in Amazon’s “Yearly Departed,” while celebrating the best in real life.`\
+https://nytimes.com/2021/12/08/arts/television/meg-stalter-yearly-departed.html?searchResultPosition=4
 
 **‘West Side Story’ Review: In Love and War, 1957 Might Be Tonight**\
 `Steven Spielberg rediscovers the breathing, troubling essence of a classic, building a bold and current screen musical with no pretense to perfection.`\
