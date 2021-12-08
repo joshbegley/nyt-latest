@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/08/us/coronavirus-briefing-what-happened-today.html?
 
 **Tiger Woods Set to Play the PNC Championship With His Son**\
 `The golfer, who is still recovering from a serious car crash in February, has not competed in a tournament since he and his son, Charlie, last played in the family team event a year ago.`\
-https://nytimes.com/2021/12/08/sports/golf/tiger-charlie-woods-pnc-championship.html?searchResultPosition=5
+https://nytimes.com/2021/12/08/sports/golf/tiger-woods-charlie-pnc-championship.html?searchResultPosition=5
 
 **‘She Made a Mistake,’ Potter’s Lawyer Says in Killing of Daunte Wright**\
 `A lawyer for Kimberly Potter, the former police officer on trial for manslaughter for fatally shooting Daunte Wright at a traffic stop in a Minneapolis suburb, said she mistook her gun for her Taser.`\
@@ -24,7 +24,7 @@ https://nytimes.com/video/us/100000008111917/daunte-wright-kimberly-potter-defen
 
 **De Blasio Fought for 2 Years to Keep Ethics Warning Secret. Here’s Why.**\
 `Mayor Bill de Blasio was warned that he created an “appearance of coercion and improper access” by directly contacting donors who had business before the city.`\
-https://nytimes.com/2021/12/08/nyregion/de-blasio-donors-nyc.html?searchResultPosition=7
+https://nytimes.com/2021/12/08/nyregion/bill-de-blasio-donors-nyc.html?searchResultPosition=7
 
 **Annotated by the Author: ‘Meet “Supergirl,” the World’s Strongest Teenager’**\
 `Corey Kilgannon, a Times journalist known for his profiles, tells us how to use quotes, description and detail to show what is unique about a person.`\
