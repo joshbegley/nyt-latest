@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/08/business/job-labor-quit-october.html?searchResult
 
 **Jan. 6 Rally Planner to Tell House Panel He Played No Role in Violence**\
 `Ali Alexander, a right-wing activist who helped organize the gathering that drew Trump supporters to Washington on Jan. 6, is cooperating with the committee investigating the riot.`\
-https://nytimes.com/2021/12/08/us/politics/jan-6-rally-planner-to-tell-house-panel-he-played-no-role-in-violence.html?searchResultPosition=2
+https://nytimes.com/2021/12/08/us/politics/ali-alexander-jan-6-house-testimony.html?searchResultPosition=2
 
 **Angela Merkel’s Political Life in Pictures: The End of an Era**\
 `Images from the former chancellor’s 16 years leading Germany, and from her life before.`\
