@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/08/sports/autoracing/frank-williams-dead.html?search
 
 **The World Is Unprepared for the Next Pandemic, Report Says**\
 `The latest Global Health Security Index finds that no country is positioned well to respond to outbreaks.`\
-https://nytimes.com/2021/12/08/health/coronavirus-pandemic-preparedness.html?searchResultPosition=2
+https://nytimes.com/2021/12/08/health/covid-pandemic-preparedness.html?searchResultPosition=2
 
 **Darlene Hard, Strong-Willed Tennis Star Before Pro Era, Dies at 85**\
 `Hard, who was outspoken and independent minded, was the top-ranked American woman from 1960 to 1963.`\
