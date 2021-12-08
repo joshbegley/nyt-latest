@@ -6,7 +6,7 @@ https://nytimes.com/2021/12/08/theater/is-there-still-sex-in-the-city-review.htm
 `NATO promised Ukraine full membership in 2008, but without explaining how or when. Putin sees that promise as an ongoing threat to Russia.`\
 https://nytimes.com/2021/12/08/world/europe/nato-ukraine-russia-dilemma.html?searchResultPosition=2
 
-**Covid-19 Cases Are Rising Among Children in South African Hospitals**\
+**Coronavirus Cases Are Rising Among Children in South African Hospitals**\
 `The increase, observed in children’s wards at two major hospitals in South Africa, points to increased community transmission, doctors say.`\
 https://nytimes.com/2021/12/08/world/africa/coronavirus-south-africa-children.html?searchResultPosition=3
 
