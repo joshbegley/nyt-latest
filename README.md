@@ -1,8 +1,8 @@
 **Group Backed by Top Companies Moves to Combat A.I. Bias in Hiring**\
 `The organization has created a format for evaluating the technology, which is often used to screen job candidates.`\
-https://nytimes.com/2021/12/08/technology/group-backed-by-top-companies-moves-to-combat-ai-bias-in-hiring.html?searchResultPosition=1
+https://nytimes.com/2021/12/08/technology/data-trust-alliance-ai-hiring-bias.html?searchResultPosition=1
 
-**Serena Williams Withdraws From Australian Open**\
+**Serena Williams Won’t Play in Australian Open**\
 `Williams, 40, said she would skip her second straight Grand Slam because “I am not where I need to be physically to compete.”`\
 https://nytimes.com/2021/12/08/sports/tennis/serena-williams-australian-open.html?searchResultPosition=2
 
