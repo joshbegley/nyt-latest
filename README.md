@@ -6,8 +6,8 @@ https://nytimes.com/2021/12/08/nyregion/ghislaine-maxwell-trial-takeaways.html?s
 `His writing for The Village Voice and other publications helped elevate hip-hop and street art to the same planes as jazz and Abstract Expressionism.`\
 https://nytimes.com/2021/12/08/arts/music/greg-tate-dead.html?searchResultPosition=2
 
-**The F.D.A. authorizes AstraZeneca antibody drug for people with weak immune systems.**\
-`The drug, Evusheld, was found to be strongly effective in preventing Covid in a clinical trial that enrolled mostly those at high risk.`\
+**The F.D.A. authorizes AstraZeneca drug to protect people with immune problems.**\
+`The antibody drug, Evusheld, was found to be strongly effective in preventing Covid in a clinical trial that enrolled mostly those at high risk.`\
 https://nytimes.com/2021/12/08/business/fda-authorizes-astrazeneca-drug-immunocompromised.html?searchResultPosition=3
 
 **Omicron, Instagram, Great Performers: Your Wednesday Evening Briefing**\
