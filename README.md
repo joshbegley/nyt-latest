@@ -2,7 +2,7 @@
 `And why people are fearing war there.`\
 https://nytimes.com/2021/12/08/briefing/biden-putin-ukraine-border-tensions.html?searchResultPosition=1
 
-**Damning video about a Christmas party drops Boris Johnson into another mess.**\
+**Video about a Christmas party drops Boris Johnson into another mess.**\
 `Critics have condemned a recording showing the prime minister’s staff joking about breaches of coronavirus restrictions last year, when Britain was in lockdown.`\
 https://nytimes.com/2021/12/08/world/boris-johnson-christmas-coronavirus.html?searchResultPosition=2
 
