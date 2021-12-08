@@ -1,40 +1,40 @@
-**Fox News Christmas Tree Catches Fire in Manhattan**\
-`The police said that a man was in custody in relation to the blaze. The 50-foot tree had been ceremonially lit days earlier in an “All-American” festive broadcast.`\
-https://nytimes.com/2021/12/08/nyregion/fox-christmas-tree-fire.html?searchResultPosition=1
+**Fieldston, the Bronx: A Private City Enclave Where Rocks Are the Stars**\
+`With its unique topography, tight zoning restrictions and sought-after schools, the neighborhood is ‘sort of suburban, but still part of the city.’`\
+https://nytimes.com/2021/12/08/realestate/fieldston-the-bronx-a-private-city-enclave-where-rocks-are-the-stars.html?searchResultPosition=1
 
-**The new government promises to be tougher on China and Russia.**\
-`Though its plans are aspirational for the moment, its commitments to Europe, NATO and the trans-Atlantic relationship are solid.`\
-https://nytimes.com/2021/12/08/world/europe/germany-russia-china.html?searchResultPosition=2
+**Schools Are Closing Classrooms on Fridays. Parents Are Furious.**\
+`Desperate to keep teachers, some districts have turned to remote teaching for one day a week — and sometimes more. Families have been left scrambling to find child care.`\
+https://nytimes.com/2021/12/08/us/chools-closed-fridays-remote-learning.html?searchResultPosition=2
 
-**The Sheriff Who Took on Andrew Cuomo**\
-`Craig Apple Sr. filed a criminal complaint against the former governor in October. He has a progressive record that is unusual for a county sheriff.`\
-https://nytimes.com/2021/12/08/nyregion/albany-county-sheriff-andrew-cuomo.html?searchResultPosition=3
+**Who Wants to Be Governor of New York?**\
+`Gov. Andrew M. Cuomo’s resignation has led to a rush of candidates from both parties declaring their intent to run for the state’s highest office.`\
+https://nytimes.com/article/ny-governor-candidates.html?searchResultPosition=3
 
-**Lesson of the Day: ‘Training for Double Dutch at the Apollo’**\
-`In this lesson, students will learn about an annual double Dutch jump rope competition. Then, they will share about a game they love to play.`\
-https://nytimes.com/2021/12/08/learning/lesson-plans/lesson-of-the-day-training-for-double-dutch-at-the-apollo.html?searchResultPosition=4
+**Living In ... Fieldston**\
+`With its unique topography, tight zoning restrictions and sought-after schools, the neighborhood is ‘sort of suburban, but still part of the city.’`\
+https://nytimes.com/slideshow/2021/12/08/realestate/living-in-fieldston.html?searchResultPosition=4
 
-**Crossed-Out Words**\
-`What message do you think this image is communicating?`\
-https://nytimes.com/2021/12/08/learning/crossed-out-words.html?searchResultPosition=5
+**Can the Press Prevent a Trump Restoration?**\
+`A journalism that shades the truth  for the sake of some higher cause will  lose the trust of some of the people it’s trying to steer away from demagogy.`\
+https://nytimes.com/2021/12/08/opinion/trump-press-restoration.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/08/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Scientists Have a New Explanation for Mysterious Sand Spikes**\
+`New research links the geological oddities to intense ground shaking from earthquakes or asteroid impacts.`\
+https://nytimes.com/2021/12/08/science/sand-spikes-earthquakes.html?searchResultPosition=6
 
-**‘I Feel Humility and Gratitude,’ Merkel Says in Farewell Ceremony**\
-`Chancellor Angela Merkel of Germany addressed the nation at a military ceremony commemorating the end of her 16 years in office. At the send-off, a military marching band performed three songs selected by the chancellor.`\
-https://nytimes.com/video/world/europe/100000008108059/angela-merkel-military-ceremony.html?searchResultPosition=7
+**We’re Getting Close to ‘Universal’ Vaccines. It Hasn’t Been Easy.**\
+`A new class of flu vaccines could eventually save millions of lives — and perhaps stop the next pandemic — if scientists can overcome the remaining obstacles.`\
+https://nytimes.com/2021/12/08/magazine/universal-vaccines.html?searchResultPosition=7
 
-**Word of the Day: copious**\
-`This word has appeared in 118 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/12/08/learning/word-of-the-day-copious.html?searchResultPosition=8
+**The Year on the Red Carpet**\
+`All that pent-up dressing up finally found an outlet. If it wasn’t a carpet per se, it was a public moment.`\
+https://nytimes.com/2021/12/08/style/the-year-on-the-red-carpet.html?searchResultPosition=8
 
-**Late Night: Putin and Biden’s Call Could Have Been an Email**\
-`The two-hour video call was a hot topic on late night Tuesday.`\
-https://nytimes.com/2021/12/08/arts/television/stephen-colbert-biden-putin-video-call.html?searchResultPosition=9
+**The Key to Marketing to Older People? Don’t Say ‘Old.’**\
+`To reach a rapidly expanding demographic, companies are changing their tone.`\
+https://nytimes.com/2021/12/08/business/dealbook/marketing-older-people.html?searchResultPosition=9
 
-**U.S.-China Competition Is Our Best Bet for Climate Progress**\
-`Competition between American and Chinese companies will be the real driver of decreased greenhouse gas emissions around the globe.`\
-https://nytimes.com/2021/12/08/opinion/us-china-competition-climate-progress.html?searchResultPosition=10
+**School District Investigates Claims of Longtime Sexual Misconduct by Teachers**\
+`Six teachers from Babylon High School have been placed on leave as the investigation continues and alumnae come forward with claims.`\
+https://nytimes.com/2021/12/08/nyregion/babylon-high-school-teachers-allegations.html?searchResultPosition=10
 
