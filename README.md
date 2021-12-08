@@ -30,11 +30,11 @@ https://nytimes.com/2021/12/08/arts/art-algorithm-2021.html?searchResultPosition
 `The Natural History Museum in London outfitted its animatronic Tyrannosaurus rex in a colorful Christmas sweater.`\
 https://nytimes.com/2021/12/08/world/europe/t-rex-christmas-jumper-natural-history-museum.html?searchResultPosition=8
 
-**Schools Are Closing Classrooms on Fridays. Parents Are Furious.**\
-`Desperate to keep teachers, some districts have turned to remote teaching for one day a week — and sometimes more. Families have been left scrambling to find child care.`\
-https://nytimes.com/2021/12/08/us/schools-closed-fridays-remote-learning.html?searchResultPosition=9
-
 **Fieldston, the Bronx: A Private City Enclave Where Rocks Are the Stars**\
 `With its unique topography, tight zoning restrictions and sought-after schools, the neighborhood is ‘sort of suburban, but still part of the city.’`\
-https://nytimes.com/2021/12/08/realestate/fieldston-the-bronx-a-private-city-enclave-where-rocks-are-the-stars.html?searchResultPosition=10
+https://nytimes.com/2021/12/08/realestate/fieldston-bronx.html?searchResultPosition=9
+
+**Schools Are Closing Classrooms on Fridays. Parents Are Furious.**\
+`Desperate to keep teachers, some districts have turned to remote teaching for one day a week — and sometimes more. Families have been left scrambling to find child care.`\
+https://nytimes.com/2021/12/08/us/schools-closed-fridays-remote-learning.html?searchResultPosition=10
 
