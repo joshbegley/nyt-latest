@@ -2,7 +2,7 @@
 `Boosters against the Omicron variant.`\
 https://nytimes.com/2021/12/09/briefing/omicron-boosters-nato-ukraine.html?searchResultPosition=1
 
-**Indonesian Militant Sentenced to Life in Prison Over 2005 Bombing**\
+**Indonesian Militant Sentenced to Life in Prison Over 2005 Bali Bombing**\
 `A court said Upik Lawanga made bombs for an attack that killed 22 people at a market. He is a member of a terrorist group that bombed churches, hotels and a Bali nightclub in the 2000s.`\
 https://nytimes.com/2021/12/09/world/asia/indonesian-militant-bombing-sentence.html?searchResultPosition=2
 
