@@ -1,6 +1,6 @@
 **Danish Leader Is Questioned Over ‘Minkgate’ Cull Driven by Covid Fears**\
 `The prime minister, Mette Frederiksen, said she did not know the government lacked legal authority to order the mass slaughter of 17 million minks after infected animals passed the virus to humans.`\
-https://nytimes.com/2021/12/09/world/europe/danish-leader-is-questioned-over-minkgate-cull-driven-by-covid-fears.html?searchResultPosition=1
+https://nytimes.com/2021/12/09/world/europe/denmark-mink.html?searchResultPosition=1
 
 **Dawoud Bey: The Past Is Present**\
 `In a series of photographs taken on former Louisiana plantations, the photographer found echoes of the past that still inform the present.`\
