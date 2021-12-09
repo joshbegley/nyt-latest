@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/09/us/politics/trump-jan-6-documents.html?searchResultPosition=1
 
 **William Hartmann, 63, Michigan Official Who Disputed Election, Dies**\
-`He refused to certify Joseph Biden’s victory over Donald Trump in Detroit but later relented. A foe of anti-Covid vaccines, he was hospitalized with the virus.`\
+`He refused to certify Joseph Biden’s victory over Donald Trump in Detroit but later relented. A foe of Covid vaccines, he was hospitalized with the virus.`\
 https://nytimes.com/2021/12/09/us/politics/william-hartmann-dead.html?searchResultPosition=2
 
 **How Much of the World Has Clean Water?**\
