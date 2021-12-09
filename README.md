@@ -1,4 +1,4 @@
-**New York Grants Noncitizens the Right to Vote in Local Elections**\
+**New York City Gives 800,000 Noncitizens Right to Vote in Local Elections**\
 `The legislation approved by the City Council will set up a system for legal residents to vote in municipal elections.`\
 https://nytimes.com/2021/12/09/nyregion/noncitizens-voting-rights-nyc.html?searchResultPosition=1
 
