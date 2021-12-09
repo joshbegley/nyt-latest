@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000008112666/adam-mosseri-instagram-sen
 
 **Father and Son Arrested on Suspicion of Starting the Caldor Fire**\
 `The men have not been charged but were arrested in connection with the 15th-largest blaze in California’s recorded history. It burned more than 200,000 acres near Lake Tahoe.`\
-https://nytimes.com/2021/12/08/us/caldor-fire-arson-arrest.html?searchResultPosition=2
+https://nytimes.com/2021/12/08/us/caldor-fire-arson-arrest-california.html?searchResultPosition=2
 
 **More Evidence Muddles Durham’s Case on Lawyer’s Meeting With F.B.I.**\
 `One disclosure dovetails with the special counsel John Durham’s indictment against Michael Sussmann, while several others clash with it.`\
