@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/09/science/oregon-earthquakes.html?searchResultPosit
 `Thousands of problems identified by state inspectors were never publicly disclosed because of a secretive appeals process, a New York Times investigation found.`\
 https://nytimes.com/2021/12/09/business/nursing-home-abuse-inspection.html?searchResultPosition=4
 
-**Buffalo News publisher rejects a bid from Alden Global Capital.**\
+**The Buffalo News publisher rejects a bid from Alden Global Capital.**\
 `The board of Lee Enterprises voted 8-0 against an unsolicited offer by the hedge fund that valued the newspaper chain at $141 million.`\
 https://nytimes.com/2021/12/09/business/buffalo-news-alden-capital.html?searchResultPosition=5
 
