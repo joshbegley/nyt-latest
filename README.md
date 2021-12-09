@@ -36,5 +36,5 @@ https://nytimes.com/interactive/2021/12/09/sports/what-to-watch.html?searchResul
 
 **What Students Are Saying About Substitute Teachers, Favorite Clothes and a Park Bench**\
 `Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
-https://nytimes.com/2021/12/09/learning/what-students-are-saying-about-substitute-teachers-favorite-clothes-and-a-park-bench.html?searchResultPosition=10
+https://nytimes.com/2021/12/09/learning/student-writing-prompts.html?searchResultPosition=10
 
