@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/09/opinion/new-york-city-christmas.html?searchResult
 https://nytimes.com/2021/12/09/us/coronavirus-briefing-boosters-teens.html?searchResultPosition=2
 
 **Appeals Court Rejects Trump’s Bid to Shield Material From Jan. 6 Inquiry**\
-`A three-judge panel held that Congress’s oversight powers, backed by President Biden’s decision not to invoke executive privilege, outweighed Mr. Trump’s residual secrecy powers.`\
+`A three-judge panel held that Congress’s oversight powers, backed by President Biden’s decision not to invoke executive privilege over the material, outweighed Mr. Trump’s residual secrecy powers.`\
 https://nytimes.com/2021/12/09/us/politics/trump-jan-6-documents.html?searchResultPosition=3
 
 **William Hartmann, 63, Michigan Official Who Disputed Election, Dies**\
