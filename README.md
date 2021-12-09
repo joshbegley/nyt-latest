@@ -1,6 +1,6 @@
 **Pressure mounts to strip Activision’s chief of his seat on Coca-Cola’s board.**\
-`By Michael J. de la Merced`\
-https://nytimes.com/2021/12/09/business/pressure-mounts-to-strip-activisions-chief-of-his-seat-on-coca-colas-board.html?searchResultPosition=1
+`A union-led investment group plans to ask the beverage maker not to renominate Bobby Kotick as a director, a call that comes after the group called for him to resign from Activision.`\
+https://nytimes.com/2021/12/09/business/activision-kotick-coca-cola.html?searchResultPosition=1
 
 **Hoping for a Dog Phone? You May Have a Long Wait.**\
 `A scientist in Scotland tested a so-called DogPhone to let her dog make video calls. He did use it, but mostly by mistake.`\
