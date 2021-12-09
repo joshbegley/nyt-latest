@@ -2,7 +2,7 @@
 `The parents of two sisters who survived the Oxford High School shootings have filed two $100 million suits against the district and its officials.`\
 https://nytimes.com/2021/12/09/us/michigan-school-shooting-lawsuits-oxford.html?searchResultPosition=1
 
-**New York A.G. Subpoenas Trump to Testify in Fraud Investigation**\
+**New York A.G. to Subpoena Trump to Testify in Fraud Investigation**\
 `The move by the attorney general, Letitia James, comes at a critical moment in a criminal inquiry into the former president, who could try to block the demand.`\
 https://nytimes.com/2021/12/09/nyregion/trump-subpoena-testimony-letitia-james.html?searchResultPosition=2
 
