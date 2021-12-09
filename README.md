@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/09/science/ixpe-spacex-nasa-launch.html?searchResult
 `Boosters against the Omicron variant.`\
 https://nytimes.com/2021/12/09/briefing/omicron-boosters-nato-ukraine.html?searchResultPosition=4
 
-**Indonesian Militant Sentenced to Life in Prison Over 2005 Bali Bombing**\
+**Indonesian Militant Sentenced to Life in Prison Over 2005 Bombing**\
 `A court said Upik Lawanga made bombs for an attack that killed 22 people at a market. He is a member of a terrorist group that bombed churches, hotels and a Bali nightclub in the 2000s.`\
 https://nytimes.com/2021/12/09/world/asia/indonesian-militant-bombing-sentence.html?searchResultPosition=5
 
