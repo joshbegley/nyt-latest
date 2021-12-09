@@ -27,7 +27,7 @@ https://nytimes.com/2021/12/09/t-magazine/joan-semmel-nude-portraits.html?search
 https://nytimes.com/video/us/politics/100000008113824/biden-summit-democracy.html?searchResultPosition=7
 
 **Starbucks workers at a Buffalo store form union in a contentious vote.**\
-`The coffee chain’s executives sought to convince workers to reject the union in an election campaign that began in late August.`\
+`The coffee chain’s executives sought to convince workers to reject the union in an election campaign that began in late August. Workers at a second store voted not to unionize.`\
 https://nytimes.com/2021/12/09/business/economy/starbucks-buffalo-union-vote.html?searchResultPosition=8
 
 **Remember Emmet Otter and His Jug Band? They’re Back, and Onstage.**\
