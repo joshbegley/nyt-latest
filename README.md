@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/08/crosswords/daily-puzzle-2021-12-09.html?searchRes
 
 **North Carolina Supreme Court Delays 2022 Primary Elections**\
 `In response to lawsuits over North Carolina’s political maps, the justices issued an order on Wednesday pushing back the state’s primaries from March to May.`\
-https://nytimes.com/2021/12/08/us/politics/north-carolina-supreme-court-redistricting.html?searchResultPosition=5
+https://nytimes.com/2021/12/08/us/politics/north-carolina-primary-elections-redistricting.html?searchResultPosition=5
 
 **Woman Stole Daughter’s Identity to Get Loans and Attend College, U.S. Says**\
 `Laura Oglesby, 48, of Missouri, who pleaded guilty to intentionally providing false information to the Social Security Administration, lived as someone nearly half her age, the authorities said.`\
