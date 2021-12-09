@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/09/dining/microwave-oven.html?searchResultPosition=3
 
 **A Surge in Trading Preceded Trump’s SPAC Deal**\
 `Trading in the merger partner’s warrants, which allow holders to buy shares later, spiked several times before the Trump Media agreement was made public.`\
-https://nytimes.com/2021/12/09/business/trump-spac-warrants-trading.html?searchResultPosition=4
+https://nytimes.com/2021/12/09/business/trump-spac-stock.html?searchResultPosition=4
 
 **Kim Abeles Turns the Climate Crisis Into Eco-art**\
 `She doesn’t just make art about pollution, she makes art out of it. Now her “Smog Collectors” series is on view at California State University, Fullerton.`\
