@@ -1,40 +1,40 @@
+**Quotation of the Day: Where the Despairing Learn Ways to Die**\
+`Quotation of the Day for Thursday, December 9, 2021.`\
+https://nytimes.com/2021/12/09/todayspaper/quotation-of-the-day-where-the-despairing-learn-ways-to-die.html?searchResultPosition=1
+
+**Black Women Make Waves in Hair Care**\
+`A new crop of businesses are growing their share of a billion-dollar industry.`\
+https://nytimes.com/2021/12/09/style/black-women-make-waves-in-hair-care.html?searchResultPosition=2
+
+**Guido Palau’s Good Hair Days**\
+`The hairstyling star renowned for designer collaborations took to Instagram during the pandemic to explore his medium through a series of #HairTests, now assembled in a new book.`\
+https://nytimes.com/2021/12/09/style/guido-palaus-good-hair-days.html?searchResultPosition=3
+
+**A New Look for a New World**\
+`Following lockdowns, makeup is colorful, expressive, imperfect and meant to be seen. It’s “girl gaze” makeup.`\
+https://nytimes.com/2021/12/09/style/a-new-look-for-a-new-world.html?searchResultPosition=4
+
+**Will Ghislaine Maxwell Take the Stand in Sex-Trafficking Trial?**\
+`Veteran defense lawyers, including one who defended Kyle Rittenhouse, said the risk Ms. Maxwell would take by testifying probably outweighs any potential reward.`\
+https://nytimes.com/2021/12/09/nyregion/ghislaine-maxwell-trial-testify.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2021/12/09/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
+**Where the Despairing Log On, and Learn Ways to Die**\
+`It has the trappings of popular social media, a young audience and explicit content on suicide that other sites don’t allow. It is linked to a long line of lives cut short.`\
+https://nytimes.com/interactive/2021/12/09/us/where-the-despairing-log-on.html?searchResultPosition=7
+
 **Word of the Day: jostle**\
 `This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/12/09/learning/word-of-the-day-jostle.html?searchResultPosition=1
+https://nytimes.com/2021/12/09/learning/word-of-the-day-jostle.html?searchResultPosition=8
 
 **Late Night Has Some Ideas on Who Set the Fox Christmas Tree Ablaze**\
 `“The fire is believed to have started after Fox News’ pants caught on fire,” Jimmy Kimmel said.`\
-https://nytimes.com/2021/12/09/arts/television/jimmy-kimmel-fox-news-christmas-tree-fire.html?searchResultPosition=2
+https://nytimes.com/2021/12/09/arts/television/jimmy-kimmel-fox-news-christmas-tree-fire.html?searchResultPosition=9
 
 **New NASA Telescope Will Provide X-Ray Views of the Universe**\
 `The IXPE spacecraft will use X-ray polarimetry to better measure black holes, supernovas and other astronomical phenomena.`\
-https://nytimes.com/2021/12/09/science/ixpe-spacex-nasa-launch.html?searchResultPosition=3
-
-**Your Thursday Briefing**\
-`Boosters against the Omicron variant.`\
-https://nytimes.com/2021/12/09/briefing/omicron-boosters-nato-ukraine.html?searchResultPosition=4
-
-**Indonesian Militant Sentenced to Life in Prison Over 2005 Bombing**\
-`A court said Upik Lawanga made bombs for an attack that killed 22 people at a market. He is a member of a terrorist group that bombed churches, hotels and a Bali nightclub in the 2000s.`\
-https://nytimes.com/2021/12/09/world/asia/indonesian-militant-bombing-sentence.html?searchResultPosition=5
-
-**N.F.L. Week 13 Predictions: Our Picks Against the Spread**\
-`The Steelers and Vikings will vie to keep their seasons alive, the Buccaneers will presumably throw the ball against the Bills, and Dallas and Washington will jangle the N.F.C. East order.`\
-https://nytimes.com/2021/12/09/sports/football/nfl-week-14-picks.html?searchResultPosition=6
-
-**Jailed Journalists Reach Record High for Sixth Year in 2021**\
-`The Committee to Protect Journalists, a press freedom monitoring group, said 293 journalists were behind bars this year, more than a quarter of them in China.`\
-https://nytimes.com/2021/12/09/world/americas/jailed-journalists-worldwide.html?searchResultPosition=7
-
-**Event Planner Working on Bob Dole’s Funeral Is Let Go for Jan. 6 Ties**\
-`Tim Unes was helping to plan memorial events for Mr. Dole when it came to light that he had been subpoenaed by the committee investigating the Capitol riot.`\
-https://nytimes.com/2021/12/08/us/politics/dole-funeral-planner-capitol-riot.html?searchResultPosition=8
-
-**Corrections: Dec. 9, 2021**\
-`Corrections that appeared in print on Thursday, Dec. 9, 2021.`\
-https://nytimes.com/2021/12/08/corrections/corrections-dec-9-2021.html?searchResultPosition=9
-
-**Hillary Clinton Reads Discarded Victory Speech From 2016 Election**\
-`Mrs. Clinton read the long-shelved speech aloud for her offering on MasterClass, a site featuring lessons from prominent figures in the arts, business and other fields.`\
-https://nytimes.com/2021/12/08/us/elections/hillary-clinton-speech-election.html?searchResultPosition=10
+https://nytimes.com/2021/12/09/science/ixpe-spacex-nasa-launch.html?searchResultPosition=10
 
