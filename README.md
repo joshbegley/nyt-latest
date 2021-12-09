@@ -1,5 +1,5 @@
 **How Much of the World Has Clean Water?**\
-`The United Nations pledged to halve the percentage of the world without clean water. Did it happen?`\
+`The United Nations pledged to halve the percentage of the world without clean drinking water. Did it happen?`\
 https://nytimes.com/interactive/2021/12/09/burst/clean-drinking-water.html?searchResultPosition=1
 
 **A New Ambition for the European Union: ‘Power’**\
