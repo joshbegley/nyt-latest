@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/09/arts/design/met-museum-sackler-wing.html?searchRe
 https://nytimes.com/2021/12/09/opinion/biden-democrats-cooperation.html?searchResultPosition=2
 
 **Letitia James Drops Out of N.Y. Governor’s Race**\
-`The move would seem to solidify the front-runner status of the Democratic incumbent, Gov. Kathy Hochul.`\
+`The move by the state attorney general, which instantly upended the high-profile race, seemed to solidify the front-runner status of the Democratic incumbent, Gov. Kathy Hochul.`\
 https://nytimes.com/2021/12/09/nyregion/letitia-james-drops-out-governor.html?searchResultPosition=3
 
 **‘Red Rocket’ Review: All My XXX’s Live in Texas**\
