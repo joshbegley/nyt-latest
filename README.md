@@ -24,7 +24,7 @@ https://nytimes.com/2021/12/09/business/nursing-home-abuse-inspection.html?searc
 
 **The Buffalo News publisher rejects a bid from Alden Global Capital.**\
 `The board of Lee Enterprises voted 8-0 against an unsolicited offer by the hedge fund that valued the newspaper chain at $141 million.`\
-https://nytimes.com/2021/12/09/business/buffalo-news-alden-capital.html?searchResultPosition=7
+https://nytimes.com/2021/12/09/business/media/buffalo-news-alden-capital.html?searchResultPosition=7
 
 **‘The Little Prince’ to Land on Broadway With Dance and Acrobatics**\
 `This international production, an adaptation of the novella that is described as “a theatrical experience with musical elements,” will run for five months.`\
