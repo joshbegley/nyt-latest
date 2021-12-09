@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/09/technology/birds-arent-real-gen-z-misinformation.html?searchResultPosition=1
 
 **Lina Wertmüller, Italian Director of Provocative Films, Dies at 93**\
-`She established a idiosyncratic reputation for blending tragedy and farce, politics and sex. She was the first woman to be nominated for a best director Oscar.`\
+`She established an idiosyncratic reputation for blending tragedy and farce, politics and sex. She was the first woman to be nominated for a best director Oscar.`\
 https://nytimes.com/2021/12/09/movies/lina-wertmuller-dead.html?searchResultPosition=2
 
 **Mobile-Home Values Have Been Migrating Upward at Breakneck Speed**\
