@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/09/opinion/letters/holiday-gift-giving.html?searchRe
 
 **No More 99 Cent Pizza: Why Washington Is Getting Worried About Inflation**\
 `Price gains have moved up sharply for months, but the fact that the trend is lasting and broadening has newly put policymakers on red alert.`\
-https://nytimes.com/2021/12/09/business/economy/no-more-99-cent-pizza-why-washington-is-getting-worried-about-inflation.html?searchResultPosition=2
+https://nytimes.com/2021/12/09/business/economy/inflation-price-gains.html?searchResultPosition=2
 
 **Bob Iger, soon to leave Disney, returns to his weatherman roots.**\
 `Mr. Iger, who will retire on Dec. 31, stood in on Thursday for the usual weather guru on KABC in Los Angeles.`\
