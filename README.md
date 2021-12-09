@@ -1,4 +1,4 @@
-**As Muratov Accepts Nobel, Legacy of His Predecessors Recedes**\
+**As Muratov Accepts Nobel, Legacy of His Russian Predecessors Recedes**\
 `Dmitri A. Muratov is only the third Russian to win the Nobel Peace Prize, after Andrei D. Sakharov and Mikhail S. Gorbachev. The openness they championed is under assault.`\
 https://nytimes.com/2021/12/09/world/europe/russia-muratov-nobel-sakharov-gorbachev-novaya-gazeta.html?searchResultPosition=1
 
