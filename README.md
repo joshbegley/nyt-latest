@@ -6,8 +6,8 @@ https://nytimes.com/interactive/2021/12/09/world/vaccine-inequity-supply.html?se
 `Liberated by the loss of tradition over the last two years, some are forging their own celebrations — or skipping them altogether.`\
 https://nytimes.com/2021/12/09/style/new-holiday-traditions-covid.html?searchResultPosition=2
 
-**Amazon fined $1.3 billion in Italy for using logistics system to gain an unfair edge.**\
-`Regulators said third-party vendors paying for Fulfillment by Amazon received special perks.`\
+**Amazon is fined $1.3 billion in Italy over antitrust violations.**\
+`In an investigation into how the e-commerce giant gains an advantage over competitors, regulators said third-party vendors paying for Fulfillment by Amazon received special perks.`\
 https://nytimes.com/2021/12/09/business/amazon-italy-logistics-fine.html?searchResultPosition=3
 
 **Frustration Over a Stalled Bill**\
@@ -36,5 +36,5 @@ https://nytimes.com/interactive/2021/12/09/learning/09VocabQuizLN.html?searchRes
 
 **Europe Pushes New Rules Turning Gig Workers Into Employees**\
 `A proposal with widespread political support would entitle drivers and couriers for companies like Uber to a minimum wage and legal protections.`\
-https://nytimes.com/2021/12/09/technology/gig-workers-europe-uber.html?searchResultPosition=10
+https://nytimes.com/2021/12/09/technology/european-commission-gig-workers-uber.html?searchResultPosition=10
 
