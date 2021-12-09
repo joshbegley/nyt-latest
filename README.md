@@ -22,9 +22,9 @@ https://nytimes.com/2021/12/09/dining/microwave-oven.html?searchResultPosition=5
 `Trading in the merger partner’s warrants, which allow holders to buy shares later, spiked several times before the Trump Media agreement was made public.`\
 https://nytimes.com/2021/12/09/business/trump-spac-stock.html?searchResultPosition=6
 
-**American Airlines will fly fewer international flights because of Boeing 787 delays.**\
-`By Niraj Chokshi`\
-https://nytimes.com/2021/12/09/business/american-airlines-will-fly-fewer-international-flights-because-of-boeing-787-delays.html?searchResultPosition=7
+**American Airlines will trim international flights because of Boeing 787 delays.**\
+`The carrier was expecting 13 Dreamliners this winter, but Boeing has delayed those deliveries, the latest sign that it is struggling to overcome problems that have eroded its credibility.`\
+https://nytimes.com/2021/12/09/business/american-airlines-boeing-dreamliner.html?searchResultPosition=7
 
 **Kim Abeles Turns the Climate Crisis Into Eco-art**\
 `She doesn’t just make art about pollution, she makes art out of it. Now her “Smog Collectors” series is on view at California State University, Fullerton.`\
@@ -35,6 +35,6 @@ https://nytimes.com/2021/12/09/arts/design/pollution-abeles-art-fullerton-enviro
 https://nytimes.com/2021/12/09/technology/apps-child-protection.html?searchResultPosition=9
 
 **Josh Duggar Is Convicted of Downloading Child Sexual Abuse Imagery**\
-`Mr. Duggar, who gained celebrity on the TLC reality show “19 Kids and Counting,” faces a maximum penalty of 40 years in prison and $500,000 in fines.`\
+`Mr. Duggar, who appeared on the TLC reality show “19 Kids and Counting,” faces a maximum penalty of 40 years in prison and $500,000 in fines.`\
 https://nytimes.com/2021/12/09/us/josh-duggar-guilty.html?searchResultPosition=10
 
