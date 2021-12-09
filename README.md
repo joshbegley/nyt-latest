@@ -1,6 +1,6 @@
 **Event Planner Working on Bob Dole’s Funeral Is Let Go for Jan. 6 Ties**\
 `Tim Unes was helping to plan memorial events for Mr. Dole when it came to light that he had been subpoenaed by the committee investigating the Capitol riot.`\
-https://nytimes.com/2021/12/08/us/politics/dole-funeral-planner-capitol.html?searchResultPosition=1
+https://nytimes.com/2021/12/08/us/politics/dole-funeral-planner-capitol-riot.html?searchResultPosition=1
 
 **Corrections: Dec. 9, 2021**\
 `Corrections that appeared in print on Thursday, Dec. 9, 2021.`\
