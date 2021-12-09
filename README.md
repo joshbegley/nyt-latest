@@ -30,11 +30,11 @@ https://nytimes.com/2021/12/09/opinion/new-york-city-christmas.html?searchResult
 `And supporting a generation of bereaved children.`\
 https://nytimes.com/2021/12/09/us/coronavirus-briefing-boosters-teens.html?searchResultPosition=8
 
+**The jury has reached a verdict in the Jussie Smollett trial.**\
+`By Julia Jacobs and Mark Guarino`\
+https://nytimes.com/2021/12/09/arts/television/the-jury-has-reached-a-verdict-in-the-jussie-smollett-trial.html?searchResultPosition=9
+
 **Appeals Court Rejects Trump’s Bid to Shield Material From Jan. 6 Inquiry**\
 `A three-judge panel held that Congress’s oversight powers, backed by President Biden’s decision not to invoke executive privilege over the material, outweighed Mr. Trump’s residual secrecy powers.`\
-https://nytimes.com/2021/12/09/us/politics/trump-jan-6-documents.html?searchResultPosition=9
-
-**William Hartmann, 63, Michigan Official Who Disputed Election, Dies**\
-`He refused to certify Joseph Biden’s victory over Donald Trump in Detroit but later relented. A foe of Covid vaccines, he was hospitalized with the virus.`\
-https://nytimes.com/2021/12/09/us/politics/william-hartmann-dead.html?searchResultPosition=10
+https://nytimes.com/2021/12/09/us/politics/trump-jan-6-documents.html?searchResultPosition=10
 
