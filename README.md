@@ -8,7 +8,7 @@ https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100
 
 **As Muratov Accepts Nobel, Legacy of His Russian Predecessors Recedes**\
 `Dmitri A. Muratov is only the third Russian to win the Nobel Peace Prize, after Andrei D. Sakharov and Mikhail S. Gorbachev. The openness they championed is under assault.`\
-https://nytimes.com/2021/12/09/world/europe/russia-muratov-nobel-sakharov-gorbachev-novaya-gazeta.html?searchResultPosition=3
+https://nytimes.com/2021/12/09/world/europe/russian-dimitri-muratov-nobel.html?searchResultPosition=3
 
 **Jussie Smollett Timeline: A Case With Twists and Turns**\
 `The case began in 2019 when the actor reported that he had been the victim of a racist and homophobic attack, and led to a trial in which he was accused of staging the attack himself.`\
