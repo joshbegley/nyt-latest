@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/10/sports/ncaafootball/army-navy-football.html?searc
 
 **‘And Just Like That,’ Samantha Is Gone**\
 `Here’s how the “Sex and the City” revival wrote out Kim Cattrall, who has been publicly critical of the star, Sarah Jessica Parker. Plus: A roundup of the best reviews of “And Just Like That.”`\
-https://nytimes.com/2021/12/10/arts/television/and-just-like-that-samantha-kim-cattrall.html?searchResultPosition=3
+https://nytimes.com/2021/12/10/arts/television/where-is-samantha-and-just-like-that.html?searchResultPosition=3
 
 **Cambo, an oil project in Britain that energized protesters, is shelved.**\
 `Its main owner said it would pause the $2.6 billion project, just over a week after Shell pulled out.`\
