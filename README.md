@@ -1,4 +1,4 @@
-**At Least 49 People Killed in Mexico Truck Crash**\
+**At Least 53 People Killed in Mexico Truck Crash**\
 `Dozens more were reported injured and most of the victims were believed to be migrants coming from Central America.`\
 https://nytimes.com/video/world/americas/100000008114629/mexico-migrants-killed-crash.html?searchResultPosition=1
 
@@ -30,7 +30,7 @@ https://nytimes.com/2021/12/09/well/mind/healthy-habits.html?searchResultPositio
 `A state judge said the approach inappropriately granted standing and denied due process. Abortion providers said they would expand services if the State Supreme Court upheld the ruling.`\
 https://nytimes.com/2021/12/09/us/texas-abortion-law-unconstitutional.html?searchResultPosition=8
 
-**Mexico Migrant Truck Crash Leaves 49 Dead**\
+**Mexico Migrant Truck Crash Leaves 53 Dead**\
 `Dozens more were reported injured in the crash in southern Chiapas state, where many migrants regularly cross into Mexico from Central America.`\
 https://nytimes.com/2021/12/09/world/americas/mexico-migrants-killed-accident.html?searchResultPosition=9
 
