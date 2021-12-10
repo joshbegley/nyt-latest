@@ -1,6 +1,6 @@
 **6 More Subpoenas Issued in House Panel’s Jan. 6 Investigation**\
 `Those issued subpoenas included two men who met with President Donald J. Trump in his private dining room on Jan. 4 and Mr. Trump’s former political affairs director.`\
-https://nytimes.com/2021/12/10/us/politics/jan-6-investigation-subpoena.html?searchResultPosition=1
+https://nytimes.com/2021/12/10/us/politics/jan-6-capitol-riot-subpoenas.html?searchResultPosition=1
 
 **How’s the Economy? Biden Sees a Boom. Many Americans Don’t.**\
 `The president has struggled to sell strong growth and job gains to a public that appears more concerned about rising prices — and remains anxious about Covid.`\
@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/10/business/biden-economy-growth-jobs.html?searchRes
 https://nytimes.com/2021/12/10/special-series/2022-global-events-happenings.html?searchResultPosition=3
 
 **Relax. Omicron Isn’t Going to Take Down the Economy.**\
-`The economy is better positioned to absorb the damage of each successive wave of the virus. `\
+`The country is better positioned to absorb the damage of each successive wave of the virus.`\
 https://nytimes.com/2021/12/10/opinion/omicron-delta-economy-inflation.html?searchResultPosition=4
 
 **In the Michigan School Shooting, the Prosecutor Asks, What About the Parents?**\
