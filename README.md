@@ -1,6 +1,6 @@
 **How’s the Economy? Biden Sees a Boom. Many Americans Don’t.**\
 `The president has struggled to sell strong growth and job gains to a public that appears more concerned about rising prices — and remains anxious about Covid.`\
-https://nytimes.com/2021/12/10/business/biden-economy.html?searchResultPosition=1
+https://nytimes.com/2021/12/10/business/biden-economy-growth-jobs.html?searchResultPosition=1
 
 **Events to Shake, or Gently Rattle, the World in 2022**\
 `Planning your calendar for next year? Here are some events to look out for.`\
