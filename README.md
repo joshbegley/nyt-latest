@@ -24,7 +24,7 @@ https://nytimes.com/2021/12/10/style/holiday-gift-etiquette.html?searchResultPos
 
 **U.S. and Others Pledge Export Controls Tied to Human Rights**\
 `The Biden administration’s partnership with Australia, Denmark, Norway, Canada, France, the Netherlands and the United Kingdom aims to stem the flow of key technologies to authoritarian governments.`\
-https://nytimes.com/2021/12/10/business/economy/summit-democracy-human-rights-exports.html?searchResultPosition=7
+https://nytimes.com/2021/12/10/business/economy/human-rights-export-controls.html?searchResultPosition=7
 
 **There’s Still Time to Get a Tax Break for Donations to Charity**\
 `Through the end of this year, you can take a deduction of up to $600 on your 2021 taxes, even if you don’t itemize.`\
