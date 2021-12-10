@@ -1,5 +1,5 @@
 **Will Jussie Smollett Be Sentenced to Prison for Lying to the Police?**\
-`The actor who was found guilty of falsely telling the police he was the victim of a hate crime faces a possible sentence of up three years, but experts disagree on whether the judge is likely to incarcerate him.`\
+`The actor who was found guilty of falsely telling the police he was the victim of a hate crime faces a possible sentence of up to three years, but experts disagree on whether the judge is likely to incarcerate him.`\
 https://nytimes.com/2021/12/10/arts/television/jussie-smollett-convicted-guilty.html?searchResultPosition=1
 
 **Prosecution Rests at Ghislaine Maxwell Trial After 4th Accuser Testifies**\
