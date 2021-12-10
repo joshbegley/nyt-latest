@@ -1,5 +1,5 @@
 **Al Unser, 4-Time Winner of Indy 500, Dies at 82**\
-`Mr. Unser was part of one of auto racing’s most celebrated families, whose members won the Indianapolis 500 a combined nine times.`\
+`He was part of one of auto racing’s most celebrated families, whose members won the Indianapolis 500 a combined nine times.`\
 https://nytimes.com/2021/12/10/sports/autoracing/al-unser-dead.html?searchResultPosition=1
 
 **A majority of Americans are critical of religious exemptions to Covid vaccines, a survey finds.**\
