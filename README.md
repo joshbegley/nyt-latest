@@ -10,7 +10,7 @@ https://nytimes.com/2021/12/09/well/mind/healthy-habits.html?searchResultPositio
 `A state judge said the approach inappropriately granted standing and denied due process. Abortion providers said they would expand services if the State Supreme Court upheld the ruling.`\
 https://nytimes.com/2021/12/09/us/texas-abortion-law-unconstitutional.html?searchResultPosition=3
 
-**49 Dead in Crash of Truck Carrying Migrants in Mexico**\
+**Mexico Migrant Truck Crash Leaves 49 Dead**\
 `Dozens more were reported injured in the crash in southern Chiapas state, where many migrants regularly cross into Mexico from Central America.`\
 https://nytimes.com/2021/12/09/world/americas/mexico-migrants-killed-accident.html?searchResultPosition=4
 
