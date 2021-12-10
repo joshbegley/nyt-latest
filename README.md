@@ -1,4 +1,4 @@
-**‘And Just Like That …’ Recap, Season 1, Episodes 1 and 2: Big Love**\
+**‘And Just Like That …’ Recap, Episodes 1 and 2: Big Love**\
 `Samantha’s gone. The girls are back. And Carrie seems to have finally gotten it all. Can her happiness with Mr. Big last?`\
 https://nytimes.com/2021/12/10/arts/television/and-just-like-that-recap-premiere.html?searchResultPosition=1
 
@@ -26,7 +26,7 @@ https://nytimes.com/2021/12/10/opinion/supreme-court-abortion-roe.html?searchRes
 `He shot to fame as a member of a made-for-TV rock group, but he denied that he was the group’s only “real” musician. He went on to create some of the first music videos.`\
 https://nytimes.com/2021/12/10/arts/music/michael-nesmith-dead.html?searchResultPosition=7
 
-**Scuba-Diving YouTuber Finds Car of Teens Missing Since 2000**\
+**Scuba-Diving YouTuber Finds Car Linked to Teens Missing Since 2000**\
 `A YouTuber who investigates cold cases found a missing Tennessee teenager’s car submerged in a nearby river. It is at least the fourth such discovery by amateur investigators in two months.`\
 https://nytimes.com/2021/12/10/us/scuba-youtube-tennessee-cold-case.html?searchResultPosition=8
 
