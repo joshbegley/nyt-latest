@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/10/opinion/international-world/how-the-united-states
 
 **Russia-Ukraine Sea Encounter Highlights Jittery Nerves in the Region**\
 `The Russians intercepted a half-century old Ukrainian naval vessel, then portrayed its actions as a provocative prelude to war.`\
-https://nytimes.com/2021/12/10/world/europe/ukraine-russia-war.html?searchResultPosition=4
+https://nytimes.com/2021/12/10/world/europe/ukraine-russia-war-naval-vessel.html?searchResultPosition=4
 
 **How Bank Regulators Are Trying to Oust a Trump Holdover**\
 `Jelena McWilliams, the FDIC’s chairwoman, doesn’t always go along with President Biden’s agenda. Other regulators want to push her out.`\
