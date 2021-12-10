@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2021/12/10/arts/music/pop-recommendations-mary-j
 https://nytimes.com/2021/12/10/opinion/international-world/how-the-united-states-can-break-putins-hold-on-ukraine.html?searchResultPosition=3
 
 **Russia-Ukraine Sea Encounter Highlights Jittery Nerves in the Region**\
-`The Russians intercepted a half-century old Ukrainian naval vessel, then portrayed its actions as a provocative prelude to war.`\
+`The Russians intercepted a half-century-old Ukrainian naval vessel, then portrayed its actions as a provocative prelude to war.`\
 https://nytimes.com/2021/12/10/world/europe/ukraine-russia-war-naval-vessel.html?searchResultPosition=4
 
 **How Bank Regulators Are Trying to Oust a Trump Holdover**\
