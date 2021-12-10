@@ -28,7 +28,7 @@ https://nytimes.com/2021/12/10/world/europe/uk-julian-assange-extradition.html?s
 
 **Daimler Truck, separated from Mercedes-Benz cars, starts trading shares.**\
 `The new company, which makes Freightliner trucks in the United States, will aim to produce long-haul vehicles powered by hydrogen fuel cells.`\
-https://nytimes.com/2021/12/10/business/economy/daimler-truck-separated-from-mercedes-benz-cars-starts-trading-shares.html?searchResultPosition=8
+https://nytimes.com/2021/12/10/business/economy/daimler-truck-shares-trading.html?searchResultPosition=8
 
 **The Spectacle of Yoko Ono Disrupting the Beatles and the Variant Hunters: The Week in Narrated Articles**\
 `Five articles from around The Times, narrated just for you.`\
