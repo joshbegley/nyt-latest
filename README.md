@@ -1,5 +1,5 @@
 **Demaryius Thomas, Ex-Denver Bronco, Is Found Dead**\
-`The 33-year-old had played for the National Football League for 10 seasons and helped lead the Broncos to victory in the Super Bowl in 2016. He retired in June.`\
+`Mr. Thomas, 33, played as a wide receiver in the National Football League for 10 seasons and helped lead the Broncos to victory in the Super Bowl in 2016. He retired in June.`\
 https://nytimes.com/2021/12/10/sports/football/demaryius-thomas-dead.html?searchResultPosition=1
 
 **Lesson of the Day: ‘Overdose Deaths Reached Record High as the Pandemic Spread’**\
