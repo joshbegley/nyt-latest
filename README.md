@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/09/theater/company-review-sondheim.html?searchResult
 
 **Taiwan Loses Nicaragua as Ally as Tensions With China Rise**\
 `The nation switched diplomatic allegiance to Beijing, leaving 13 nations and the Vatican still recognizing Taiwan as a sovereign nation.`\
-https://nytimes.com/2021/12/09/world/asia/taiwan-nicaragua-china.html?searchResultPosition=3
+https://nytimes.com/2021/12/10/world/asia/taiwan-nicaragua-china.html?searchResultPosition=3
 
 **Rain-Soaked Rural Australia Asks: When Will It End?**\
 `After years of climate extremes, even the toughest, most community-minded Australians are desperate for a break from the deluge of disaster.`\
