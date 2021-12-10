@@ -1,4 +1,4 @@
-**At Least 53 People Killed in Mexico Truck Crash**\
+**More Than 50 People Killed in Mexico Truck Crash**\
 `Dozens more were reported injured and most of the victims were believed to be migrants coming from Central America.`\
 https://nytimes.com/video/world/americas/100000008114629/mexico-migrants-killed-crash.html?searchResultPosition=1
 
