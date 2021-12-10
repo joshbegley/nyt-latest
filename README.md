@@ -24,7 +24,7 @@ https://nytimes.com/2021/12/10/world/europe/ukraine-russia-war-naval-vessel.html
 
 **How Bank Regulators Are Trying to Oust a Trump Holdover**\
 `Jelena McWilliams, the FDIC’s chairwoman, doesn’t always go along with President Biden’s agenda. Other regulators want to push her out.`\
-https://nytimes.com/2021/12/10/business/how-bank-regulators-are-trying-to-oust-a-trump-holdover.html?searchResultPosition=7
+https://nytimes.com/2021/12/10/business/jelena-mcwilliams-fdic-bank-regulation-trump.html?searchResultPosition=7
 
 **N.Y. Imposes Mask Mandate for Some Indoor Public Spaces**\
 `The new requirement applies to all indoor public spaces in New York State that do not require vaccination for entry.`\
