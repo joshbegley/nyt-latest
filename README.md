@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/09/business/media/buzzfeed-stock.html?searchResultPo
 https://nytimes.com/2021/12/09/us/politics/debt-limit-mcconnell-gop-senate.html?searchResultPosition=4
 
 **House Approves Post-Trump Curbs on Presidential Power**\
-`Republicans unanimously opposed the Protecting Our Democracy Act, which might be broken into separate components in the Senate.`\
+`Republicans almost unanimously opposed the Protecting Our Democracy Act, which might be broken into separate components in the Senate.`\
 https://nytimes.com/2021/12/09/us/politics/presidential-power-trump.html?searchResultPosition=5
 
 **How Is the U.S. Economy Doing?**\
