@@ -24,7 +24,7 @@ https://nytimes.com/2021/12/10/arts/television/and-just-like-that-recap-premiere
 
 **Migrant Truck Crash in Mexico: ‘They Were All Cadavers’**\
 `The migrants, mostly from Guatemala and apparently U.S.-bound, had been crammed into a tractor-trailer that flipped and slammed into a bridge in southern Mexico.`\
-https://nytimes.com/2021/12/10/world/americas/migrant-truck-crash-in-mexico-they-were-all-cadavers.html?searchResultPosition=7
+https://nytimes.com/2021/12/10/world/americas/mexico-truck-crash.html?searchResultPosition=7
 
 **How Philadelphia Achieved High Vaccination Rate for Health Workers**\
 `Federal officials point to the city’s mandate as a success story and a shield against new Covid outbreaks at hospitals and nursing homes.`\
