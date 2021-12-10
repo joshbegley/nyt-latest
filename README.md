@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/10/opinion/supreme-court-abortion-roe.html?searchRes
 
 **Michael Nesmith, the ‘Quiet Monkee,’ Is Dead at 78**\
 `He shot to fame as a member of a made-for-TV rock group, but he denied that he was the group’s only “real” musician. He went on to create some of the first music videos.`\
-https://nytimes.com/2021/12/10/arts/music/mike-nesmith-dead.html?searchResultPosition=3
+https://nytimes.com/2021/12/10/arts/music/michael-nesmith-dead.html?searchResultPosition=3
 
 **Scuba-Diving YouTuber Finds Car of Teens Missing Since 2000**\
 `A YouTuber who investigates cold cases found a missing Tennessee teenager’s car submerged in a nearby river. It is at least the fourth such discovery by amateur investigators in two months.`\
