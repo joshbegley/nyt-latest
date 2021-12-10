@@ -1,40 +1,40 @@
+**What to Do This Weekend**\
+`Any big plans?`\
+https://nytimes.com/2021/12/10/at-home/newsletter.html?searchResultPosition=1
+
+**Taylor Swift Copyright Lawsuit May Go to Trial, Judge Rules**\
+`Taylor Swift is accused of stealing lyrics in her hit song “Shake It Off” from the song “Playas Gon’ Play” by the R&B trio 3LW.`\
+https://nytimes.com/2021/12/10/arts/taylor-swift-lawsuit-shake-it-off.html?searchResultPosition=2
+
+**Are Vaccine Polls Flawed?**\
+`Researchers say that two large surveys aren’t representative.`\
+https://nytimes.com/2021/12/10/opinion/vaccine-polls-covid.html?searchResultPosition=3
+
 **Omicron: A Big Deal About Small ‘O’**\
 `The Greek letter auditions for a different role in our lexicon.`\
-https://nytimes.com/2021/12/10/opinion/omicron-tarnation-lox.html?searchResultPosition=1
+https://nytimes.com/2021/12/10/opinion/omicron-tarnation-lox.html?searchResultPosition=4
 
 **President Biden assails Kellogg’s plan to replace striking workers.**\
 `The president said he was “deeply troubled” by management’s plan, calling it an “existential attack” on union members. Their walkout began in October.`\
-https://nytimes.com/2021/12/10/business/economy/biden-kellogg-strike.html?searchResultPosition=2
+https://nytimes.com/2021/12/10/business/economy/biden-kellogg-strike.html?searchResultPosition=5
 
 **6 More Subpoenas Issued in House Panel’s Jan. 6 Investigation**\
 `Those issued subpoenas included two men who met with President Donald J. Trump in his private dining room on Jan. 4 and Mr. Trump’s former political affairs director.`\
-https://nytimes.com/2021/12/10/us/politics/jan-6-capitol-riot-subpoenas.html?searchResultPosition=3
+https://nytimes.com/2021/12/10/us/politics/jan-6-capitol-riot-subpoenas.html?searchResultPosition=6
 
 **How’s the Economy? Biden Sees a Boom. Many Americans Don’t.**\
 `The president has struggled to sell strong growth and job gains to a public that appears more concerned about rising prices — and remains anxious about Covid.`\
-https://nytimes.com/2021/12/10/business/biden-economy-growth-jobs.html?searchResultPosition=4
+https://nytimes.com/2021/12/10/business/biden-economy-growth-jobs.html?searchResultPosition=7
 
 **Events to Shake, or Gently Rattle, the World in 2022**\
 `Planning your calendar for next year? Here are some events to look out for.`\
-https://nytimes.com/2021/12/10/special-series/2022-global-events-happenings.html?searchResultPosition=5
+https://nytimes.com/2021/12/10/special-series/2022-global-events-happenings.html?searchResultPosition=8
 
 **Relax. Omicron Isn’t Going to Take Down the Economy.**\
 `The country is better positioned to absorb the damage of each successive wave of the virus.`\
-https://nytimes.com/2021/12/10/opinion/omicron-delta-economy-inflation.html?searchResultPosition=6
+https://nytimes.com/2021/12/10/opinion/omicron-delta-economy-inflation.html?searchResultPosition=9
 
 **In the Michigan School Shooting, the Prosecutor Asks, What About the Parents?**\
 `After seeing the evidence, Karen McDonald made an instinctual, and unusual, decision to charge Ethan Crumbley’s mother and father. Can she succeed?`\
-https://nytimes.com/2021/12/10/us/michigan-school-shooting-prosecutor.html?searchResultPosition=7
-
-**What is hindsight bias and why does it matter in the Maxwell trial?**\
-`Lawyers for Ghislaine Maxwell may call an expert on hindsight bias, a phenomenon in which people claim, after the fact, to have known what was going to happen in a given situation.`\
-https://nytimes.com/2021/12/10/nyregion/maxwell-trial-hindsight-bias-epstein.html?searchResultPosition=8
-
-**A New Oral History of HBO**\
-`James Andrew Miller talks about “Tinderbox,” and Mayukh Sen discusses “Taste Makers.”`\
-https://nytimes.com/2021/12/10/books/review/a-new-oral-history-of-hbo.html?searchResultPosition=9
-
-**Macron and Scholz Meet to Discuss a More Independent Europe**\
-`The new German chancellor, Olaf Scholz, made his first foreign trip to France, where he and President Emmanuel Macron discussed strengthening Europe and their nations’ ties.`\
-https://nytimes.com/video/world/europe/100000008115498/macron-scholz-european-sovereignty.html?searchResultPosition=10
+https://nytimes.com/2021/12/10/us/michigan-school-shooting-prosecutor.html?searchResultPosition=10
 
