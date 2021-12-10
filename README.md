@@ -1,6 +1,6 @@
 **Tigray Rebels Executed Dozens of Civilians, Report Says**\
 `The report from Human Rights Watch adds to the mounting violations committed by the warring parties since the conflict in Ethiopia’s northern Tigray region began over a year ago.`\
-https://nytimes.com/2021/12/10/world/africa/tigray-rebels-civilian-executions.html?searchResultPosition=1
+https://nytimes.com/2021/12/10/world/africa/ethiopia-executions-rebels.html?searchResultPosition=1
 
 **This Whole Duck Recipe Is Perfectly Imperfect**\
 `Roasting a duck isn’t much harder than preparing a chicken, and makes for a festive holiday meal.`\
