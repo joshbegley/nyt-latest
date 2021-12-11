@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/11/nyregion/eric-adams-fund-raisers-canceled.html?se
 
 **Watch Live: President Biden Speaks After Devastating Tornadoes**\
 `President Biden gives remarks after several deadly tornadoes left a trail of destruction in several states.`\
-https://nytimes.com/video/us/politics/100000008116783/biden-tornadoes-livestream.html?searchResultPosition=3
+https://nytimes.com/video/embedded/us/politics/100000008116783/biden-tornadoes-livestream.html?searchResultPosition=3
 
 **C.D.C. vaccination data may overestimate first doses and underestimate boosters.**\
 `The main reason for the discrepancies is that state and county data does not always properly link the record of people’s booster shots to their initial vaccinations.`\
