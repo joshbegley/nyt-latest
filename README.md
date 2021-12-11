@@ -18,23 +18,23 @@ https://nytimes.com/2021/12/11/pageoneplus/corrections-dec-11-2021.html?searchRe
 `Quotation of the Day for Saturday, December 11, 2021.`\
 https://nytimes.com/2021/12/11/todayspaper/quotation-of-the-day-accepting-nobel-prize-two-journalists-warn-of-perils-to-democracy.html?searchResultPosition=5
 
-**Tornadoes Rip Through Several States, Killing One at a Nursing Home**\
-`Among the damage was a roof collapse at an Amazon warehouse in Edwardsville, Ill.  A railroad company said one of its trains had derailed in Kentucky.`\
-https://nytimes.com/2021/12/10/us/arkansas-tornado-nursing-home-monette.html?searchResultPosition=6
-
 **To Reach M.L.S. Cup, New York City F.C. Played the Long Game**\
 `A team that once took the field behind big-name European imports embraced a new kind of star power en route to its first final. Now it plans to stay on top.`\
-https://nytimes.com/2021/12/10/sports/soccer/mls-cup-nycfc-portland.html?searchResultPosition=7
+https://nytimes.com/2021/12/10/sports/soccer/mls-cup-nycfc-portland.html?searchResultPosition=6
 
 **Tender Union?**\
 `Hal Moore brings us his debut Saturday puzzle and some good news.`\
-https://nytimes.com/2021/12/10/crosswords/daily-puzzle-2021-12-11.html?searchResultPosition=8
+https://nytimes.com/2021/12/10/crosswords/daily-puzzle-2021-12-11.html?searchResultPosition=7
 
 **‘Diana, the Musical’ to End Broadway Run on Dec. 19**\
 `The royal musical had a bumpy road to Broadway, from a delay caused by the pandemic to a filmed version of the show on Netflix that was widely panned.`\
-https://nytimes.com/2021/12/10/theater/diana-musical-closing-broadway.html?searchResultPosition=9
+https://nytimes.com/2021/12/10/theater/diana-musical-closing-broadway.html?searchResultPosition=8
 
 **Republicans in Texas County, in Unusual Move, Upend Primary System**\
 `The G.O.P. in Potter County is planning to break away from a nonpartisan election board and hold its own primary next year, in a move criticized by election experts.`\
-https://nytimes.com/2021/12/10/us/politics/republicans-amarillo-potter-county-primary.html?searchResultPosition=10
+https://nytimes.com/2021/12/10/us/politics/republicans-amarillo-potter-county-primary.html?searchResultPosition=9
+
+**Why We Need to Address Scam Culture**\
+`It’s not just about shady deals. It’s about the social fabric.`\
+https://nytimes.com/2021/12/10/opinion/scams-trust-institutions.html?searchResultPosition=10
 
