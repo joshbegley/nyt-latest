@@ -18,8 +18,8 @@ https://nytimes.com/2021/12/11/pageoneplus/corrections-dec-11-2021.html?searchRe
 `Quotation of the Day for Saturday, December 11, 2021.`\
 https://nytimes.com/2021/12/11/todayspaper/quotation-of-the-day-accepting-nobel-prize-two-journalists-warn-of-perils-to-democracy.html?searchResultPosition=5
 
-**Tornadoes Rip Through Several States as One Is Killed at Arkansas Nursing Home**\
-`Among the damage was a roof collapse at an Amazon warehouse in Edwardsville, Ill.  Kentucky’s governor declared a state of emergency.`\
+**Tornadoes Rip Through Several States, Killing One at a Nursing Home**\
+`Among the damage was a roof collapse at an Amazon warehouse in Edwardsville, Ill.  A railroad company said one of its trains had derailed in Kentucky.`\
 https://nytimes.com/2021/12/10/us/arkansas-tornado-nursing-home-monette.html?searchResultPosition=6
 
 **To Reach M.L.S. Cup, New York City F.C. Played the Long Game**\
