@@ -1,5 +1,5 @@
 **The Big Question: Could Peloton Sue Over Its ‘And Just Like That’ Appearance?**\
-`A Peloton stationary bike played a pivotal role on the new HBO Max “Sex and the City” revival, whose premiere preceded a drop in company’s stock price on Friday.`\
+`A Peloton stationary bike played a pivotal role on the new HBO Max “Sex and the City” revival, whose premiere preceded a drop in the company’s stock price on Friday.`\
 https://nytimes.com/2021/12/11/us/peloton-sex-and-the-city.html?searchResultPosition=1
 
 **Biden Pledges Aid to States Hit by Deadly Tornadoes**\
