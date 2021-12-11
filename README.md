@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/11/opinion/us-democracy-future.html?searchResultPosi
 https://nytimes.com/2021/12/11/realestate/holiday-tipping-homeowners.html?searchResultPosition=3
 
 **Video Shows Tornado Destruction at Amazon Warehouse in Illinois**\
-`Aerial footage by a local news outlet shows damage caused by severe weather to an Amazon warehouse in Edwardsville, Ill. Officials said there were “confirmed fatalities” after a roof collapsed at the warehouse.`\
+`Aerial footage by a local news outlet showing damage caused by severe weather to an Amazon warehouse in Edwardsville, Ill. Officials said there were “confirmed fatalities” after a roof collapsed at the warehouse.`\
 https://nytimes.com/video/us/100000008116634/video-edwardsville-amazon-damage.html?searchResultPosition=4
 
 **Pandemic Labor Shortages Have Helped Workers Before. Will They Again?**\
