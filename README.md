@@ -1,4 +1,4 @@
-**At Least 1 Killed at Arkansas Nursing Home as Tornadoes Rip Through Several States**\
+**One Killed at Arkansas Nursing Home as Tornadoes Rip Through Several States**\
 `Among the damage was a roof collapse at an Amazon warehouse in Edwardsville, Ill.`\
 https://nytimes.com/2021/12/10/us/arkansas-tornado-nursing-home-monette.html?searchResultPosition=1
 
