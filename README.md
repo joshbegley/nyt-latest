@@ -30,8 +30,8 @@ https://nytimes.com/2021/12/11/us/texas-migrant-arrests-police.html?searchResult
 `Many of the same areas that suffered through horrific bush fires in 2019 and 2020 are now dealing with prodigious rainfall that could leave some people stranded for weeks.`\
 https://nytimes.com/2021/12/11/world/australia/flooding-fire-climate-australia.html?searchResultPosition=8
 
-**Hesitancy, Apathy and Unused Doses: Zambia’s Vaccination Challenges**\
-`Vaccinating Africa is critical to protecting the continent and the world against dangerous variants, but supply isn’t the only obstacle countries face.`\
+**As Vaccines Trickle into Africa, Zambia’s Challenges Highlight Other Obstacles**\
+`Vaccinating Africa is critical to protecting the continent and the world against dangerous variants, but supply isn’t the only problem countries face.`\
 https://nytimes.com/2021/12/11/health/covid-vaccine-africa.html?searchResultPosition=9
 
 **What Is the Perfect Date to Bring Workers Back to the Office?**\
