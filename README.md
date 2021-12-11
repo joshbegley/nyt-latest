@@ -28,7 +28,7 @@ https://nytimes.com/2021/12/11/opinion/omicron-travel-ban-covid-africa.html?sear
 
 **Watch Live: Kentucky Governor Speaks After Tornadoes Kill Dozens**\
 `Gov. Andy Beshear of Kentucky holds a briefing after tornadoes ripped through the state. Mr. Beshear said earlier Saturday that at least 50 people were killed and the toll was expected to rise.`\
-https://nytimes.com/video/us/100000008116665/kentucky-governor-andy-beshear-tornado-livestream.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/100000008116665/kentucky-governor-andy-beshear-tornado-livestream.html?searchResultPosition=8
 
 **Maps: Where Tornadoes Struck in Five States**\
 `More than 30 tornadoes were reported across at least five states Friday night and early Saturday morning.`\
