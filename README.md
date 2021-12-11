@@ -1,40 +1,40 @@
-**Ex-Panama President’s Sons Are Extradited to U.S. After Multicountry Chase**\
-`Two sons of the former president Ricardo Martinelli fled the United States by Uber, private jet and an “unknown vessel,” prosecutors said. The second has now been extradited, weeks after his brother.`\
-https://nytimes.com/2021/12/11/nyregion/panama-president-sons-charges.html?searchResultPosition=1
+**Helicopters and High-Speed Chases: Inside Texas’ Push to Arrest Migrants**\
+`Texas is using state law enforcement in an unusual way in an attempt to stem illegal border crossings. The tactic is raising constitutional concerns and transforming life in one small town.`\
+https://nytimes.com/2021/12/11/us/texas-migrant-arrests-police.html?searchResultPosition=1
 
-**You’re Going to Work a Long Time. Here’s How to Build In Breaks.**\
-`Living longer can mean having a longer career, whether by choice or necessity. Stopping and starting isn’t easy, but it might be worth it.`\
-https://nytimes.com/2021/12/11/your-money/work-time-out-career-longevity.html?searchResultPosition=2
+**First Fires, Then Floods: Climate Extremes Batter Australia**\
+`Many of the same areas that suffered through horrific bush fires in 2019 and 2020 are now dealing with prodigious rainfall that could leave some people stranded for weeks.`\
+https://nytimes.com/2021/12/11/world/australia/flooding-fire-climate-australia.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/11/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Hesitancy, Apathy and Unused Doses: Zambia’s Vaccination Challenges**\
+`Vaccinating Africa is critical to protecting the continent and the world against dangerous variants, but supply isn’t the only obstacle countries face.`\
+https://nytimes.com/2021/12/11/health/covid-vaccine-africa.html?searchResultPosition=3
 
-**Biden Talks Vaccines and Bob Dole in Interview With Jimmy Fallon**\
-`It was the president’s third interview with the comedian Jimmy Fallon, but his first visit to a late-night show since his inauguration.`\
-https://nytimes.com/2021/12/11/us/politics/biden-jimmy-fallon-vaccines.html?searchResultPosition=4
+**What is the Perfect Date to Bring Workers Back to the Office?**\
+`More and more companies are saying: We’ll get back to you.`\
+https://nytimes.com/2021/12/11/business/return-to-office-2022.html?searchResultPosition=4
 
-**Corrections: Dec. 11, 2021**\
-`Corrections that appeared in print on Saturday, Dec. 11, 2021.`\
-https://nytimes.com/2021/12/11/pageoneplus/corrections-dec-11-2021.html?searchResultPosition=5
+**Put Down Your Phone! It’s Patti LuPone.**\
+`“Aaaaaaaaaaaaaahhhhh, I’ll drink to that!” she belts onstage in Stephen Sondheim’s “Company,” as Broadway reopens. So. Will. We.`\
+https://nytimes.com/2021/12/11/style/patti-lupone-company-stephen-sondheim.html?searchResultPosition=5
 
-**Quotation of the Day: Accepting Nobel Prize, Two Journalists Warn of Perils to Democracy**\
-`Quotation of the Day for Saturday, December 11, 2021.`\
-https://nytimes.com/2021/12/11/todayspaper/quotation-of-the-day-accepting-nobel-prize-two-journalists-warn-of-perils-to-democracy.html?searchResultPosition=6
+**The New Language of the Office, From al Desko Dining to Zoombies**\
+`You can still circle back and touch base. But the vernacular of work life for many has changed just as much as their work has.`\
+https://nytimes.com/2021/12/11/business/new-corporate-jargon.html?searchResultPosition=6
 
-**To Reach M.L.S. Cup, New York City F.C. Played the Long Game**\
-`A team that once took the field behind big-name European imports embraced a new kind of star power en route to its first final. Now it plans to stay on top.`\
-https://nytimes.com/2021/12/10/sports/soccer/mls-cup-nycfc-portland.html?searchResultPosition=7
+**Telehealth Became a Lifeline for Older Americans. But It Still Has Glitches.**\
+`Medicare has extended coverage of remote health care. While telehealth removed barriers to care for many during the pandemic, some say there is more to be done.`\
+https://nytimes.com/2021/12/11/health/telehealth-medicare-covid.html?searchResultPosition=7
 
-**Tender Union?**\
-`Hal Moore brings us his debut Saturday puzzle and some good news.`\
-https://nytimes.com/2021/12/10/crosswords/daily-puzzle-2021-12-11.html?searchResultPosition=8
+**Glyn Johns Doesn’t Get Why People Like His Look in ‘Get Back’**\
+`The long-lost outfits of the Beatles sound man have made him an unwitting fashion favorite, five decades later.`\
+https://nytimes.com/2021/12/11/style/glyn-johns-get-back-beatles-outfit.html?searchResultPosition=8
 
-**‘Diana, the Musical’ to End Broadway Run on Dec. 19**\
-`The royal musical had a bumpy road to Broadway, from a delay caused by the pandemic to a filmed version of the show on Netflix that was widely panned.`\
-https://nytimes.com/2021/12/10/theater/diana-musical-closing-broadway.html?searchResultPosition=9
+**Hydra DNA Reveals There’s More Than One Way to Regrow a Head**\
+`Researchers pinpointed the genetic machinery behind some of these tiny creatures’ amazing powers of regeneration.`\
+https://nytimes.com/2021/12/11/science/hydra-regrow-head.html?searchResultPosition=9
 
-**Republicans in Texas County, in Unusual Move, Upend Primary System**\
-`The G.O.P. in Potter County is planning to break away from a nonpartisan election board and hold its own primary next year, in a move criticized by election experts.`\
-https://nytimes.com/2021/12/10/us/politics/republicans-amarillo-potter-county-primary.html?searchResultPosition=10
+**Congress, Far From ‘a Series of Tubes,’ Is Still Nowhere Near Reining In Tech**\
+`Holding a hearing that humbles the most powerful business executives in the world is much easier than legislating.`\
+https://nytimes.com/2021/12/11/business/congress-tech-regulation.html?searchResultPosition=10
 
