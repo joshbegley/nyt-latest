@@ -26,7 +26,7 @@ https://nytimes.com/2021/12/11/world/australia/flooding-fire-climate-australia.h
 `Vaccinating Africa is critical to protecting the continent and the world against dangerous variants, but supply isn’t the only obstacle countries face.`\
 https://nytimes.com/2021/12/11/health/covid-vaccine-africa.html?searchResultPosition=7
 
-**What is the Perfect Date to Bring Workers Back to the Office?**\
+**What Is the Perfect Date to Bring Workers Back to the Office?**\
 `More and more companies are saying: We’ll get back to you.`\
 https://nytimes.com/2021/12/11/business/return-to-office-2022.html?searchResultPosition=8
 
