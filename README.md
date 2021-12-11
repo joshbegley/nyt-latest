@@ -26,7 +26,7 @@ https://nytimes.com/2021/12/10/arts/television/jussie-smollett-convicted-guilty.
 `Annie Farmer was 16 when, she said, Jeffrey Epstein and Ghislaine Maxwell engaged in behavior that upset her.`\
 https://nytimes.com/2021/12/10/nyregion/ghislaine-maxwell-trial-annie-farmer.html?searchResultPosition=7
 
-**Ex-Proud Boys Member Gets 10 Years in Prison for Violence at Portland Protests**\
+**Self-Proclaimed Proud Boys Member Gets 10 Years for Violence at Portland Protests**\
 `Prosecutors called Alan Swinney, 51, a “white nationalist vigilante cowboy” who shot a man in the eye with a paintball gun.`\
 https://nytimes.com/2021/12/10/us/proud-boys-alan-swinney-sentenced.html?searchResultPosition=8
 
