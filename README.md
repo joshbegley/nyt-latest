@@ -1,6 +1,6 @@
 **Mayor-Elect Eric Adams Cancels 10 Fund-Raisers**\
 `One of them was sponsored by a contentious public relations executive, Ronn Torossian.`\
-https://nytimes.com/2021/12/11/nyregion/eric-adams-cancels-fund-raisers-ronn-torossian.html?searchResultPosition=1
+https://nytimes.com/2021/12/11/nyregion/eric-adams-fund-raisers-canceled.html?searchResultPosition=1
 
 **Watch Live: President Biden Speaks After Devastating Tornadoes**\
 `President Biden gives remarks after several deadly tornadoes left a trail of destruction in at least five states.`\
