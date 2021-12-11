@@ -10,7 +10,7 @@ https://nytimes.com/video/us/100000008116634/video-edwardsville-amazon-damage.ht
 `French history offers hopeful lessons.`\
 https://nytimes.com/2021/12/11/opinion/great-resignation-labor-shortage.html?searchResultPosition=3
 
-**Search for Mohawk Children Takes New Step, Calling Police**\
+**Search for Indigenous Children Takes New Step, Calling Police**\
 `The Six Nations in Ontario have set up a special group to oversee the investigation of student deaths, in a rare collaboration between an Indigenous group and the police.`\
 https://nytimes.com/2021/12/11/world/canada/missing-indigenous-children-police.html?searchResultPosition=4
 
