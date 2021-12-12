@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/11/us/kentucky-deadly-tornadoes.html?searchResultPosition=1
 
 **Bryce Young, Alabama’s Sophomore Star, Wins the Heisman Trophy**\
-`The quarterback, despite playing behind an often porous offensive line, led the Crimson Tide to a conference title and a berth in the Cotton Bowl.`\
+`The quarterback, playing behind an often porous offensive line, led the Crimson Tide to a conference title and a berth in the Cotton Bowl.`\
 https://nytimes.com/2021/12/11/sports/ncaafootball/heisman-trophy.html?searchResultPosition=2
 
 **Scenes From the Aftermath of the Deadly Tornadoes**\
