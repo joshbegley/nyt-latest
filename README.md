@@ -22,13 +22,13 @@ https://nytimes.com/2021/12/12/arts/music/magic-flute-met-opera.html?searchResul
 `A humorous take on dog obsession and the joys of having a pet lizard.`\
 https://nytimes.com/2021/12/12/opinion/pandemic-dogs-pets.html?searchResultPosition=6
 
-**If the U.S. Is Serious About China Competition, It Needs Indonesia**\
-`If the real goal of strategic competition with China is to ensure a “free and open Indo-Pacific,” America can’t rely on a few fast friends who share its worldview. `\
-https://nytimes.com/2021/12/12/opinion/indonesia-us-jokowi-biden.html?searchResultPosition=7
-
 **A Scientist’s Guide to Understanding Omicron**\
 `The Omicron data is coming. Here’s how to interpret it.`\
-https://nytimes.com/2021/12/12/opinion/covid-omicron-data.html?searchResultPosition=8
+https://nytimes.com/2021/12/12/opinion/covid-omicron-data.html?searchResultPosition=7
+
+**If the U.S. Is Serious About China Competition, It Needs Indonesia**\
+`If the real goal of strategic competition with China is to ensure a “free and open Indo-Pacific,” America can’t rely on a few fast friends who share its worldview. `\
+https://nytimes.com/2021/12/12/opinion/indonesia-us-jokowi-biden.html?searchResultPosition=8
 
 **What to Cook This Week**\
 `On feeding the birds, and a meal of chicken and pomegranate stew for the winter solstice.`\
