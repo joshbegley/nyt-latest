@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/12/technology/amazon-tornado-edwardsville.html?searc
 
 **Watch Live: Kentucky Governor Gives Update on Tornado Aftermath**\
 `Gov. Andy Beshear of Kentucky and officials provide updates on the damage and relief efforts, after several tornadoes ripped through the state on Friday night.`\
-https://nytimes.com/video/us/100000008117394/livestream-andy-beshear-kentucky-tornado.html?searchResultPosition=6
+https://nytimes.com/video/embedded/us/100000008117394/livestream-andy-beshear-kentucky-tornado.html?searchResultPosition=6
 
 **We’re Edging Closer to Civil War**\
 `I see too many uneasy parallels between what was happening nearly 200 years ago and what is happening now over abortion.`\
