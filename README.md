@@ -1,6 +1,6 @@
 **‘The scariest moment in my life.’ A candle factory survivor recalls the moment the tornado hit.**\
 `At Mayfield Consumer Products in Kentucky, night shift workers found themselves in the path of destruction. Many were killed.`\
-https://nytimes.com/2021/12/12/us/the-scariest-moment-in-my-life-a-candle-factory-survivor-recalls-the-moment-the-tornado-hit.html?searchResultPosition=1
+https://nytimes.com/2021/12/12/us/candle-factory-survivor-mayfield.html?searchResultPosition=1
 
 **McCollum on Simmons Trade Rumors, Vaccines and Blazers Firing**\
 `Portland guard CJ McCollum is facing challenges both personal and professional in his first year as president of the players’ union. “It’s the life I chose,” he said.`\
