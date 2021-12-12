@@ -34,7 +34,7 @@ https://nytimes.com/2021/12/12/dining/what-to-cook-this-week.html?searchResultPo
 `The foreign ministers for the Group of 7 urged Russia to pull back from the tense border standoff. Moscow has massed as many as 100,000 troops on Ukraine’s eastern, northern and southern frontiers.`\
 https://nytimes.com/2021/12/12/us/politics/g7-russia-ukraine.html?searchResultPosition=9
 
-**Chris Wallace to Leave Fox News**\
+**Chris Wallace to Leave Fox News for CNN’s Streaming Service**\
 `The “Fox News Sunday” host had been with the network for 18 years. He announced his departure on his program. “I want to try something new.”`\
 https://nytimes.com/2021/12/12/business/chris-wallace-fox-news.html?searchResultPosition=10
 
