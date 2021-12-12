@@ -26,7 +26,7 @@ https://nytimes.com/2021/12/12/briefing/kentucky-haiti-holiday-feasts.html?searc
 `The city’s unease could prove pivotal next year, when Los Angeles will elect a new mayor in a contest that civic leaders say will have the highest stakes in decades.`\
 https://nytimes.com/2021/12/12/us/los-angeles-mayor-race.html?searchResultPosition=7
 
-**Haiti’s Leader Kept a List of Drug Traffickers. His Assassins Came For It.**\
+**Haiti’s Leader Kept a List of Drug Traffickers. His Assassins Came for It.**\
 `In the months before his murder, President Jovenel Moïse took a number of steps to fight drug and arms smugglers. Some officials now fear he was killed for it.`\
 https://nytimes.com/2021/12/12/world/jovenel-moise-haiti-president-drug-traffickers.html?searchResultPosition=8
 
