@@ -35,6 +35,6 @@ https://nytimes.com/2021/12/12/dining/what-to-cook-this-week.html?searchResultPo
 https://nytimes.com/2021/12/12/us/politics/g7-russia-ukraine.html?searchResultPosition=9
 
 **Chris Wallace to Leave Fox News for CNN’s Streaming Service**\
-`The “Fox News Sunday” host had been with the network for 18 years. He announced his departure on his program. “I want to try something new.”`\
+`The “Fox News Sunday” host had been with the network for 18 years. He announced his departure on his program. Soon after, CNN said he would an interview program on its new service.`\
 https://nytimes.com/2021/12/12/business/chris-wallace-fox-news.html?searchResultPosition=10
 
