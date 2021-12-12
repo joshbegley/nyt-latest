@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/12/business/chris-wallace-fox-news.html?searchResult
 
 **New Caledonia Says ‘Non’ to Independence**\
 `The vote on the Pacific island territory comes as France’s president, Emmanuel Macron, has made shoring up the country’s international profile a priority and sees its military in the region as a bulwark against China.`\
-https://nytimes.com/2021/12/12/world/asia/new-caledonia-says-non-to-independence.html?searchResultPosition=3
+https://nytimes.com/2021/12/12/world/asia/new-caledonia-independence-vote.html?searchResultPosition=3
 
 **Democrats Are Solidly Behind Biden. There’s No Consensus About a Plan B.**\
 `Leaders with White House aspirations all say they’ll support the president for another term. But there is no shortage of chatter about the options if he continues to falter.`\
