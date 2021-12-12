@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/12/podcasts/the-daily/the-sunday-read-how-the-real-e
 https://nytimes.com/2021/12/12/sports/finding-community-running.html?searchResultPosition=4
 
 **Anne Rice, Who Spun Gothic Tales of Vampires, Dies at 80**\
-`She wrote more than 30 Gothic novels, including the best seller “Interview With the Vampire,” published in 1976 and later turned into a hit movie starring Tom Cruise and Brad Pitt.`\
+`She wrote more than 30 Gothic novels, including the best seller “Interview With the Vampire,” which became a hit movie starring Tom Cruise and Brad Pitt.`\
 https://nytimes.com/2021/12/12/books/anne-rice-dead.html?searchResultPosition=5
 
 **Israeli Leader Is to Meet Emirati Prince, Showcasing Deepening Ties**\
