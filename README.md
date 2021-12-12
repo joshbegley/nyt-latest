@@ -20,7 +20,7 @@ https://nytimes.com/video/us/100000008117394/livestream-andy-beshear-kentucky-to
 
 **We’re Edging Closer to Civil War**\
 `I see too many uneasy parallels between what was happening nearly 200 years ago and what is happening now over abortion.`\
-https://nytimes.com/2021/12/12/opinion/were-edging-closer-to-civil-war.html?searchResultPosition=6
+https://nytimes.com/2021/12/12/opinion/abortion-rights-america.html?searchResultPosition=6
 
 **Spielberg’s ‘West Side Story’ Opens to Tepid Box Office Receipts**\
 `Musicals often take time to build an audience, but can this remake, with little star power, compete with franchises and spectacles?`\
