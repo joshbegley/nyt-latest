@@ -31,7 +31,7 @@ https://nytimes.com/2021/12/12/sports/finding-community-running.html?searchResul
 https://nytimes.com/2021/12/12/books/anne-rice-dead.html?searchResultPosition=8
 
 **Israeli Leader Is to Meet Emirati Prince, Showcasing Deepening Ties**\
-`Prime Minister Naftali Bennett will travel to Abu Dhabi on Sunday — the first such visit by an Israeli leader.`\
+`Prime Minister Naftali Bennett traveled to Abu Dhabi on Sunday — the first such visit by an Israeli leader.`\
 https://nytimes.com/2021/12/12/world/middleeast/israel-uae-naftali-bennett.html?searchResultPosition=9
 
 **Kentucky, Haiti, Holiday Feasts: Your Weekend Briefing**\
