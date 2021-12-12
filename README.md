@@ -6,7 +6,7 @@ https://nytimes.com/2021/12/12/podcasts/the-daily/the-sunday-read-how-the-real-e
 `Training for a race can be all about getting to the finish line. But for many runners, it’s about much more.`\
 https://nytimes.com/2021/12/12/sports/finding-community-running.html?searchResultPosition=2
 
-**Anne Rice, Who Spun Gothic Tales of Vampires and Ghouls, Dies at 80**\
+**Anne Rice, Who Spun Gothic Tales of Vampires, Dies at 80**\
 `She wrote more than 30 Gothic novels, including the best seller “Interview With the Vampire,” published in 1976 and later turned into a hit movie starring Tom Cruise and Brad Pitt.`\
 https://nytimes.com/2021/12/12/books/anne-rice-dead.html?searchResultPosition=3
 
