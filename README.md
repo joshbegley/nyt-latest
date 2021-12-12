@@ -28,7 +28,7 @@ https://nytimes.com/2021/12/12/us/los-angeles-mayor-race.html?searchResultPositi
 
 **Haiti’s Leader Kept a List of Drug Traffickers. His Assassins Came for It.**\
 `In the months before his murder, President Jovenel Moïse took a number of steps to fight drug and arms smugglers. Some officials now fear he was killed for it.`\
-https://nytimes.com/2021/12/12/world/jovenel-moise-haiti-president-drug-traffickers.html?searchResultPosition=8
+https://nytimes.com/2021/12/12/world/americas/jovenel-moise-haiti-president-drug-traffickers.html?searchResultPosition=8
 
 **For Texas Governor, Hard Right Turn Followed a Careful Rise**\
 `Greg Abbott’s shift will face a test in next year’s election, but he has demonstrated during his career a keen sense of the political winds.`\
