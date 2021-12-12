@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/12/books/anne-rice-dead.html?searchResultPosition=3
 
 **Israeli Leader Is to Meet Emirati Prince, Showcasing Deepening Ties**\
 `Prime Minister Naftali Bennett will travel to Abu Dhabi on Sunday — the first such visit by an Israeli leader.`\
-https://nytimes.com/2021/12/12/world/isreal-uae-naftali-bennett.html?searchResultPosition=4
+https://nytimes.com/2021/12/12/world/israel-uae-naftali-bennett.html?searchResultPosition=4
 
 **Kentucky, Haiti, Holiday Feasts: Your Weekend Briefing**\
 `Here’s what you need to know about the week’s top stories.`\
