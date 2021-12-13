@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/13/technology/masayuki-uemura-dead.html?searchResult
 `The Russian veto of a widely supported Security Council resolution pointed to the difficulty of achieving a unified response to global warming.`\
 https://nytimes.com/2021/12/13/world/americas/un-climate-change-russia.html?searchResultPosition=4
 
-**A Joyful Christmas Morning Starts With Something Sweet**\
+**Start Christmas Morning With Something Sweet**\
 `Big brunch dishes and holiday-spiced small treats capture the spirit of sharing and can be prepared ahead for effortless snacks.`\
 https://nytimes.com/2021/12/13/dining/christmas-morning-breakfast-brunch.html?searchResultPosition=5
 
