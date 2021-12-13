@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/13/business/car-electric-engine-retrofitting.html?se
 
 **Champions League Repeats Its Draw After a ‘Technical Problem’**\
 `A buzzed-about round of 16 matchup between Manchester United and Paris St.-Germain was the result of a mistake. P.S.G. will face Real Madrid instead.`\
-https://nytimes.com/2021/12/13/sports/soccer/champions-league-draw.html?searchResultPosition=2
+https://nytimes.com/2021/12/13/sports/soccer/champions-league-redraw.html?searchResultPosition=2
 
 **‘The Rise and Fall of LuLaRoe’ Review: Success? That’s a Stretch.**\
 `This formulaic documentary focuses on the individuals swindled by the multilevel marketing company known for leggings, LuLaRoe.`\
