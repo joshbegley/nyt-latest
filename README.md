@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/13/nyregion/new-york-city-reacts-to-new-state-rules-
 https://nytimes.com/2021/12/13/arts/music/claire-chase-density-review.html?searchResultPosition=3
 
 **Former Immigration Minister in Denmark Sentenced to Prison for Separating Couples**\
-`Inger Stojberg was sentenced to two months’ incarceration after being found by a court to have illegally ordered the separations of married migrant couples in which at least one person was underage`\
+`Inger Stojberg was sentenced to two months’ incarceration after being found by a court to have illegally ordered the separations of married migrant couples in which at least one person was underage.`\
 https://nytimes.com/2021/12/13/world/europe/denmark-immigration-minister-migrants-prison.html?searchResultPosition=4
 
 **Federal and state regulators will investigate the Amazon warehouse collapse.**\
