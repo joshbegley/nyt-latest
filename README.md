@@ -3,8 +3,8 @@
 https://nytimes.com/2021/12/13/movies/golden-globes-nominations-2022.html?searchResultPosition=1
 
 **A South Korean city will test facial recognition as a way to track the virus.**\
-`By Jin Yu Young`\
-https://nytimes.com/2021/12/13/world/a-south-korean-city-will-test-facial-recognition-as-a-way-to-track-the-virus.html?searchResultPosition=2
+`Officials hope the system can help reveal the movements of people who test positive and their interactions with others, making contact tracing easier.`\
+https://nytimes.com/2021/12/13/world/asia/south-korea-facial-recognition-coronavirus.html?searchResultPosition=2
 
 **A New Focus on Amazon Warehouses**\
 `After deadly tornadoes hit a facility owned by Amazon, concerns were raised about its safety practices and business model.`\
