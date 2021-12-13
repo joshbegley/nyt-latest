@@ -14,13 +14,13 @@ https://nytimes.com/2021/12/13/nyregion/good-for-business-but-bad-for-birds-and-
 `Our collective efforts can make a huge difference. `\
 https://nytimes.com/2021/12/13/opinion/environmental-nonprofits-tennesse-south.html?searchResultPosition=4
 
-**Cultivating Olives on the Slopes of Mount Etna**\
-`For millenniums, farmers and vintners in northeastern Sicily have benefited from the area’s mineral-rich soil, a result of volcanic eruptions.`\
-https://nytimes.com/2021/12/13/travel/mount-etna-olive-oil.html?searchResultPosition=5
-
 **India’s Latest Religious and Cultural Flashpoint: Eggs**\
 `Food-cart rules spurred by conservative beliefs draw a backlash, showcasing the tensions around the country’s rising Hindu nationalist movement.`\
-https://nytimes.com/2021/12/13/world/asia/india-eggs-hindu-nationalism.html?searchResultPosition=6
+https://nytimes.com/2021/12/13/world/asia/india-eggs-hindu-nationalism.html?searchResultPosition=5
+
+**Cultivating Olives on the Slopes of Mount Etna**\
+`For millenniums, farmers and vintners in northeastern Sicily have benefited from the area’s mineral-rich soil, a result of volcanic eruptions.`\
+https://nytimes.com/2021/12/13/travel/mount-etna-olive-oil.html?searchResultPosition=6
 
 **South Korea Has Long Wanted Nuclear Subs. A New Reactor Could Open a Door.**\
 `The country plans to build a small modular reactor for marine propulsion, raising questions of whether it eventually intends to develop a nuclear submarine despite a U.S. treaty.`\
