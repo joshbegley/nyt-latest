@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/13/opinion/build-back-better.html?searchResultPositi
 
 **Kentucky Tornadoes Followed Flash Floods, Ice Storm and a Covid Spike**\
 `Even before the catastrophic storm claimed dozens of lives, a state and its governor have been repeatedly tested.`\
-https://nytimes.com/2021/12/13/us/kentucky-tornadoes-disasters-governor.html?searchResultPosition=2
+https://nytimes.com/2021/12/13/us/kentucky-tornado-disaster-governor.html?searchResultPosition=2
 
 **Manchin Casts Doubt on Quick Vote on Biden’s Social Policy Bill**\
 `The West Virginia Democrat said he still harbored serious concerns about the $2.2 trillion measure, potentially frustrating his party’s push to win Senate approval before Christmas.`\
