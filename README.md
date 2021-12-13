@@ -36,5 +36,5 @@ https://nytimes.com/2021/12/13/world/asia/south-korea-reactor-nuclear-submarines
 
 **Across the World, Covid Anxiety and Depression Take Hold**\
 `It is still unclear how much of a threat the fast-spreading Omicron variant poses, but fear and a sudden revival of restrictions have added to an epidemic of loneliness.`\
-https://nytimes.com/2021/12/13/world/covid-omicron-depression-lockdowns.html?searchResultPosition=10
+https://nytimes.com/2021/12/13/world/covid-anxiety-depression-omicron.html?searchResultPosition=10
 
