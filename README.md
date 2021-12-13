@@ -2,7 +2,7 @@
 `It’s better to act more aggressively now than wait and risk sparking a recession later.`\
 https://nytimes.com/2021/12/13/opinion/inflation-biden-powell-economy-federal-reserve.html?searchResultPosition=1
 
-**UBS is told to pay €1.8 billion for helping rich French clients evade taxes.**\
+**UBS is fined $2 billion for helping rich French clients evade taxes.**\
 `The appeals ruling cut a hefty fine but upheld a lower court’s decision that the Swiss bank had used cloak-and-dagger techniques to evade French law.`\
 https://nytimes.com/2021/12/13/business/ubs-tax-evasion-france.html?searchResultPosition=2
 
