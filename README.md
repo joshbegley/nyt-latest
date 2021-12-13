@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/13/us/imperial-county-vaccination-rate.html?searchRe
 
 **Golden Globes Nominations 2022: The Complete List**\
 `The Hollywood Foreign Press Association is moving ahead with the awards even after controversies over ethical lapses and a lack of diversity prompted NBC to cancel the telecast.`\
-https://nytimes.com/2021/12/13/movies/golden-globes-nominations-2022.html?searchResultPosition=5
+https://nytimes.com/2021/12/13/movies/golden-globes-nominees-list.html?searchResultPosition=5
 
 **A South Korean city will test facial recognition as a way to track the virus.**\
 `Officials hope the system can help reveal the movements of people who test positive and their interactions with others, making contact tracing easier.`\
