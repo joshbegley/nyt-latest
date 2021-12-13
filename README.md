@@ -1,6 +1,6 @@
 **‘Succession’ Season Finale Recap: Do Not Pass Go**\
 `The final episode of Season 3 brought new alliances, new betrayals and new reminders that when Logan doesn’t like how the game is going, he just changes the rules.`\
-https://nytimes.com/2021/12/13/arts/television/succession-season-finale-recap.html?searchResultPosition=1
+https://nytimes.com/2021/12/13/arts/television/succession-season-3-finale-recap.html?searchResultPosition=1
 
 **New York’s food banks expand to meet demand for aid in the pandemic.**\
 `The city’s aid organizations are facing labor shortages and supply chain disruptions in their effort to help the 1.5 million New Yorkers who cannot afford food.`\
