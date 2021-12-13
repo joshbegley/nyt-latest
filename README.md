@@ -1,40 +1,40 @@
+**Philadelphia will require proof of vaccination to eat or drink indoors starting Jan. 3.**\
+`Proof of a recent negative test will also be accepted at first, to give people time to get vaccinated, the city said, but that option will end after two weeks.`\
+https://nytimes.com/2021/12/13/us/philadelphia-indoor-dining-mandate.html?searchResultPosition=1
+
+**Boris Johnson Is in Trouble, the Question Is, How Much?**\
+`The British prime minister is facing a new virus variant, a rebellious Conservative Party, collapsing poll ratings and questions about whether he or his staff flouted the lockdown rules.`\
+https://nytimes.com/2021/12/13/world/boris-johnson-uk-coronavirus.html?searchResultPosition=2
+
 **The Gift of a Good Argument**\
 `Everyone should have that privilege.`\
-https://nytimes.com/2021/12/13/opinion/debate-important-lessons.html?searchResultPosition=1
+https://nytimes.com/2021/12/13/opinion/debate-important-lessons.html?searchResultPosition=3
 
 **Militants Kill 2 Policemen in Kashmir as Violence Escalates**\
 `The clash on Monday came three days after a similar attack on a squad of police officers patrolling streets in northern Kashmir left two of its men dead.`\
-https://nytimes.com/2021/12/13/world/asia/india-kashmir-policemen-killed.html?searchResultPosition=2
+https://nytimes.com/2021/12/13/world/asia/india-kashmir-policemen-killed.html?searchResultPosition=4
 
 **Swiss Prosecutors Drop Money-Laundering Case Against Juan Carlos**\
 `A criminal inquiry into allegations that Spain’s former king laundered illegal commission payments from Saudi Arabia related to a high-speed rail deal was closed because of insufficient evidence.`\
-https://nytimes.com/2021/12/13/world/europe/switzerland-money-laundering-case-juan-carlos.html?searchResultPosition=3
+https://nytimes.com/2021/12/13/world/europe/switzerland-money-laundering-case-juan-carlos.html?searchResultPosition=5
 
 **Vicente Fernández, the King of Machos and Heartbreak**\
 `The singer’s brand of machismo may have frayed, but for many, he was the ideal of what it means to be hard-working, hard-loving Mexican man.`\
-https://nytimes.com/2021/12/13/arts/music/vicente-fernandez-influence.html?searchResultPosition=4
+https://nytimes.com/2021/12/13/arts/music/vicente-fernandez-influence.html?searchResultPosition=6
 
 **New York City reacts to new state rules requiring masks or vaccinations: ‘Most people, they understand.’**\
 `The mandate, which requires businesses to ask customers for proof of full vaccination or enforce mask-wearing, comes as the state grapples with the threat of a winter surge in coronavirus cases.`\
-https://nytimes.com/2021/12/13/nyregion/new-york-city-reacts-to-new-state-rules-requiring-masks-or-vaccinations-most-people-they-understand.html?searchResultPosition=5
+https://nytimes.com/2021/12/13/nyregion/new-york-city-reacts-to-new-state-rules-requiring-masks-or-vaccinations-most-people-they-understand.html?searchResultPosition=7
 
 **Review: ‘Density’ Keeps Expanding the Flute’s Universe**\
 `Now in its eighth year, Claire Chase’s multidecade project to create a modern repertory for her instrument shows no signs of slowing.`\
-https://nytimes.com/2021/12/13/arts/music/claire-chase-density-review.html?searchResultPosition=6
+https://nytimes.com/2021/12/13/arts/music/claire-chase-density-review.html?searchResultPosition=8
 
 **Former Immigration Minister in Denmark Sentenced to Prison for Separating Couples**\
 `Inger Stojberg was sentenced to two months’ incarceration after being found by a court to have illegally ordered the separations of married migrant couples in which at least one person was underage.`\
-https://nytimes.com/2021/12/13/world/europe/denmark-immigration-minister-migrants-prison.html?searchResultPosition=7
+https://nytimes.com/2021/12/13/world/europe/denmark-immigration-minister-migrants-prison.html?searchResultPosition=9
 
 **Federal and state regulators will investigate the Amazon warehouse collapse.**\
 `The Occupational Safety and Health Administration has had compliance officers on the ground since Saturday, the federal agency said.`\
-https://nytimes.com/2021/12/13/technology/osha-amazon-warehouse-collapse-investigation.html?searchResultPosition=8
-
-**An Encyclopedic New Guide to Cocktails Stirred, Shaken, Rolled, Tossed, Swizzled, Muddled...**\
-`“The Oxford Companion to Spirits and Cocktails,” edited by David Wondrich with Noah Rothbaum, is an authoritative work, nearly a decade in the making.`\
-https://nytimes.com/2021/12/13/books/oxford-cocktails-spirits-david-wondrich-noah-rothbaum.html?searchResultPosition=9
-
-**What Did Stephen Sondheim Really Think of ‘Rent’?**\
-`The composer served as something of a mentor to Jonathan Larson and spoke frankly about the show after the younger man’s death.`\
-https://nytimes.com/2021/12/13/movies/stephen-sondheim-jonathan-larson.html?searchResultPosition=10
+https://nytimes.com/2021/12/13/technology/osha-amazon-warehouse-collapse-investigation.html?searchResultPosition=10
 
