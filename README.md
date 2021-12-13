@@ -32,7 +32,7 @@ https://nytimes.com/2021/12/13/travel/mount-etna-olive-oil.html?searchResultPosi
 
 **South Korea Has Long Wanted Nuclear Subs. A New Reactor Could Open a Door.**\
 `The country plans to build a small modular reactor for marine propulsion, raising questions of whether it eventually intends to develop a nuclear submarine despite a U.S. treaty.`\
-https://nytimes.com/2021/12/13/world/asia/south-korea-reactor-nuclear-submarines.html?searchResultPosition=9
+https://nytimes.com/2021/12/13/world/asia/south-korea-nuclear-submarines.html?searchResultPosition=9
 
 **Across the World, Covid Anxiety and Depression Take Hold**\
 `It is still unclear how much of a threat the fast-spreading Omicron variant poses, but fear and a sudden revival of restrictions have added to an epidemic of loneliness.`\
