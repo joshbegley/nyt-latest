@@ -12,7 +12,7 @@ https://nytimes.com/slideshow/2021/12/13/realestate/what-you-get-for-2-8-million
 
 **The Mystery of Imperial County’s Vaccination Rate**\
 `The southeastern pocket of California has one of the highest Covid-19 immunization rates in the state.`\
-https://nytimes.com/2021/12/13/us/imperial-county-vaccination-rate.html?searchResultPosition=4
+https://nytimes.com/2021/12/13/us/imperial-county-covid-vaccination-rate.html?searchResultPosition=4
 
 **Golden Globes Nominations 2022: The Complete List**\
 `The Hollywood Foreign Press Association is moving ahead with the awards even after controversies over ethical lapses and a lack of diversity prompted NBC to cancel the telecast.`\
