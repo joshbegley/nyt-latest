@@ -1,4 +1,4 @@
-**The HPV Vaccine Prevents Cancer, but Most Kids Don’t Get It**\
+**The HPV Vaccine Prevents Cancer, but Most Kids Don’t Receive It**\
 `The human papillomavirus vaccine can prevent six potentially lethal malignancies, but inoculation is meeting with rising resistance from parents.`\
 https://nytimes.com/2021/12/13/well/live/hpv-vaccine-children.html?searchResultPosition=1
 
