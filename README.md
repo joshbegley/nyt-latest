@@ -23,7 +23,7 @@ https://nytimes.com/2021/12/13/technology/apple-department-of-labor-investigatio
 https://nytimes.com/2021/12/13/us/coronavirus-briefing-what-happened-today-south-africa-omicron.html?searchResultPosition=6
 
 **Rising From the Antarctic, a Climate Alarm**\
-`Wilder winds are altering crucial currents. The sea is releasing ancient carbon dioxide. Vast ice sheets are melting from below. See why the experts are increasingly alarmed.`\
+`Wilder winds are altering crucial currents. The sea is releasing ancient carbon dioxide. Vast ice shelves are melting from below. See why the experts are increasingly alarmed.`\
 https://nytimes.com/interactive/2021/12/13/climate/antarctic-climate-change.html?searchResultPosition=7
 
 **California is reinstating an indoor mask mandate.**\
