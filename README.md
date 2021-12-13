@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/13/arts/dance/nai-ni-chen-dead.html?searchResultPosi
 
 **Ghislaine Maxwell’s Unusual Request: Allow Anonymous Defense Witnesses**\
 `Three of Ms. Maxwell’s accusers testified anonymously. Now her lawyers are asking that three defense witnesses also be able to conceal their identities.`\
-https://nytimes.com/2021/12/13/nyregion/ghislaine-maxwell-trial.html?searchResultPosition=2
+https://nytimes.com/2021/12/13/nyregion/ghislaine-maxwell-witness.html?searchResultPosition=2
 
 **Humphrey Davies, Noted Translator of Arabic Literature, Dies at 74**\
 `He introduced numerous novels, including works by the Nobel laureate Naguib Mahfouz, to English language readers.`\
