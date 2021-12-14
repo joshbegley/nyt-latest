@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/14/us/politics/debt-limit.html?searchResultPosition=
 https://nytimes.com/2021/12/14/science/james-webb-telescope-launch.html?searchResultPosition=3
 
 **Phillip Adams Had Severe C.T.E. at the Time of Shootings**\
-`A doctor found an “unusually severe” form of the brain disease in the 32-year-old former N.F.L. player who killed six people in April before shooting himself.`\
+`A neuropathologist found an “unusually severe” form of the brain disease in the 32-year-old former N.F.L. player who killed six people in April before shooting himself.`\
 https://nytimes.com/2021/12/14/sports/football/phillip-adams-cte-shootings.html?searchResultPosition=4
 
 **Sterlin Harjo Can Do a Lot More Than ‘Reservation Dogs’**\
