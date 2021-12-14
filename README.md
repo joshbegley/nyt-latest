@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/14/climate/arctic-report-card-climate-change.html?se
 
 **‘Porgy and Bess’ Isn’t Black Opera. It’s American Opera.**\
 `A touchstone on the path to America’s classical music.`\
-https://nytimes.com/2021/12/14/opinion/porgy-and-bess.html?searchResultPosition=3
+https://nytimes.com/2021/12/14/opinion/opera-porgy-and-bess.html?searchResultPosition=3
 
 **Your Wednesday Briefing: Pfizer’s Covid Pill**\
 `The company says it prevents severe illness.`\
