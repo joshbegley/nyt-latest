@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/14/opinion/porgy-and-bess.html?searchResultPosition=
 https://nytimes.com/2021/12/14/briefing/pfizer-pill-beijing-influencers-boris-johnson.html?searchResultPosition=3
 
 **Trump Fraud Inquiry’s Focus: Did He Mislead His Own Accountants?**\
-`The investigation, by the Manhattan district attorney, is zeroing in on financial records the former president and his company sent to lenders.`\
+`The investigation, by the Manhattan district attorney, is zeroing in on financial records the accountants shared with potential lenders.`\
 https://nytimes.com/2021/12/14/nyregion/trump-fraud-inquiry.html?searchResultPosition=4
 
 **‘The Hand of God’ Review: A Portrait of the Cineaste as a Young Man**\
