@@ -22,7 +22,7 @@ https://nytimes.com/2021/12/14/arts/television/john-cameron-mitchell-hedwig.html
 `The Federal Reserve could announce plans to cut economic support faster, and may signal 2022 rate increases, at its Dec. 14-15 meeting.`\
 https://nytimes.com/2021/12/14/business/economy/fed-meeting-inflation.html?searchResultPosition=6
 
-**Facing Covid Spike, N.F.L. Mandates Boosters but Stops Short on Testing**\
+**Facing Covid Spike, N.F.L. Mandates Boosters, but Stops Short on Testing**\
 `The league will require boosters for coaches and some team personnel after a single-day high in positive tests among players. But the players’ union has argued that daily testing should resume.`\
 https://nytimes.com/2021/12/14/sports/football/nfl-covid-vaccine-booster-shots.html?searchResultPosition=7
 
