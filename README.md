@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/14/business/toyota-electric-vehicles.html?searchResultPosition=1
 
 **Cuomo Is Ordered to Forfeit $5.1 Million in Book Earnings**\
-`The ex-governor ran afoul state ethics laws in writing a book focused on his leadership during the pandemic, a state ethics panel had previously found.`\
+`The ex-governor ran afoul of ethics laws in writing a book focused on his leadership during the pandemic, a state panel had previously found.`\
 https://nytimes.com/2021/12/14/nyregion/andrew-cuomo-book.html?searchResultPosition=2
 
 **Transcript: David Brooks Interviews Leon Kass for ‘The Ezra Klein Show’**\
