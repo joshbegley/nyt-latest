@@ -22,7 +22,7 @@ https://nytimes.com/slideshow/2021/12/14/realestate/the-ultimate-amenity-in-a-pa
 `An investigation into the killing of the Caribbean nation’s leader points to corruption and drug trafficking at the highest levels of government.`\
 https://nytimes.com/2021/12/14/podcasts/the-daily/jovenel-moise-haiti-president-assassination.html?searchResultPosition=6
 
-**48 Pieces of Advice From Educators on How to Survive This Challenging Time**\
+**48 Pieces of Advice From Educators for This Challenging Time**\
 `“You’re not OK. I’m not OK. But that’s OK.”`\
 https://nytimes.com/2021/12/14/learning/48-pieces-of-advice-from-educators-on-how-to-survive-this-challenging-time.html?searchResultPosition=7
 
