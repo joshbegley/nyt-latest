@@ -1,6 +1,6 @@
 **Amtrak temporarily drops its vaccine mandate, avoiding cuts to service.**\
 `The shift in policy means that Amtrak officials no longer anticipate cuts to service next month.`\
-https://nytimes.com/2021/12/14/us/politics/amtrak-temporarily-drops-its-vaccine-mandate-avoiding-cuts-to-service.html?searchResultPosition=1
+https://nytimes.com/2021/12/14/us/politics/amtrak-vaccine-mandate.html?searchResultPosition=1
 
 **Dave Ramsey Fired Employee for Taking Covid Precautions, Suit Says**\
 `In his complaint, a former employee says the Tennessee radio broadcaster, an evangelical Christian who has built a personal finance empire, violated his religious rights.`\
