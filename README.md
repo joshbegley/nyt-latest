@@ -6,8 +6,8 @@ https://nytimes.com/2021/12/13/crosswords/daily-puzzle-2021-12-14.html?searchRes
 `A new musical imagines the all-singing, all-dancing LSD trips of Aldous Huxley, Clare Boothe Luce and Cary Grant.`\
 https://nytimes.com/2021/12/13/theater/flying-over-sunset-review.html?searchResultPosition=2
 
-**U.S. Unlikely to Deliver Aircraft to Israel Before 2024, Officials Say**\
-`The Israeli request to speed up delivery of the KC-46 refueling tankers came amid new tensions between Washington and Jerusalem over how to deal with Iran’s nuclear program.`\
+**Israel Finds Planes That Could Be Key to a Strike on Iran Badly Back-Ordered**\
+`The United States told Israel it was unlikely to deliver refueling tankers before 2024, amid tensions between the two nations over how to deal with Iran’s nuclear program.`\
 https://nytimes.com/2021/12/13/us/politics/israel-tankers-iran.html?searchResultPosition=3
 
 **Home-Fader-test**\
