@@ -1,6 +1,6 @@
 **Jail Officer Who Led Others to Safety Is Among the 74 Killed in Tornadoes**\
 `Families were mourning in several states after a swarm of tornadoes left a trail of destruction. “It’s almost crushing how it feels,” said Kentucky’s governor, Andy Beshear.`\
-https://nytimes.com/2021/12/13/us/kentucky-tornado-victims-prison.html?searchResultPosition=1
+https://nytimes.com/2021/12/13/us/kentucky-tornado-victims.html?searchResultPosition=1
 
 **Tunisia’s President Promises Vote on Constitution and Sets Election Date**\
 `President Kais Saied’s announcement dispelled some of the uncertainty Tunisians have endured for months since he shunted aside Parliament in what critics called a soft coup.`\
