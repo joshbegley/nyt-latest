@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/13/business/economy/charles-r-morris-dead.html?searc
 
 **California regulators propose raising fees on owners of rooftop solar systems.**\
 `The plan was welcomed by the state’s electric utilities while a solar industry association leader called it a “disaster.”`\
-https://nytimes.com/2021/12/13/business/energy-environment/california-solar-incentives.html?searchResultPosition=6
+https://nytimes.com/2021/12/13/business/energy-environment/california-solar-roof-incentive.html?searchResultPosition=6
 
 **‘This Death Toll Will Continue to Grow,’ Kentucky Governor Says**\
 `Gov. Andy Beshear of Kentucky said the state’s death toll is now 74 and that more than 100 other people remain unaccounted for.`\
