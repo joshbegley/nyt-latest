@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/13/world/middleeast/tunisia-saied-constitution-elect
 
 **Jan. 6 Committee Recommends Contempt Charge for Meadows**\
 `The panel sent a criminal contempt of Congress referral to the full House, as the extent of Mark Meadows’s role in President Donald J. Trump’s efforts to overturn the election became clearer.`\
-https://nytimes.com/2021/12/13/us/mark-meadows-contempt.html?searchResultPosition=4
+https://nytimes.com/2021/12/13/us/politics/mark-meadows-contempt.html?searchResultPosition=4
 
 **Massachusetts joins other states in distributing free at-home tests.**\
 `Massachusetts secured more than two million rapid at-home tests that would be delivered to 102 towns with high poverty rates.`\
