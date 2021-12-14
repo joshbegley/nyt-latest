@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/14/us/best-california-books-2021.html?searchResultPo
 https://nytimes.com/2021/12/14/business/oil-supply-prices.html?searchResultPosition=2
 
 **Fuel Tanker Explodes in Haiti, Killing Dozens**\
-`Around 40 people died in the blast, according to initial reports. It was the latest tragedy to hit the country, which has been rocked by political violence, natural disasters, poverty and hunger.`\
+`Scores more were injured in the blast. It was the latest tragedy to hit the country, which has been rocked by political violence, natural disasters, poverty and hunger.`\
 https://nytimes.com/2021/12/14/world/americas/haiti-fuel-tanker-explosion.html?searchResultPosition=3
 
 **Peloton’s Bumpy Ride**\
