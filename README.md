@@ -1,5 +1,5 @@
 **Fox News Hosts Sent Texts to Meadows Urging Trump to Act as Jan. 6 Attack Unfolded**\
-`But on their shows, Laura Ingraham spread the false claim of antifa involvement, and Sean Hannity referred to the 2020 election as a “train wreck.”`\
+`Afterward, on their shows, Laura Ingraham spread the false claim of antifa involvement, and Sean Hannity referred to the 2020 election as a “train wreck.”`\
 https://nytimes.com/2021/12/13/business/media/fox-news-trump-jan-6-meadows.html?searchResultPosition=1
 
 **Little Bit of Time**\
