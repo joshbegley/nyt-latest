@@ -30,11 +30,11 @@ https://nytimes.com/2021/12/14/travel/global-warming-ski-resort.html?searchResul
 `The International Olympic Committee’s professed neutrality has provided coverage for Beijing, which delivers big audiences and funding in exchange.`\
 https://nytimes.com/2021/12/14/business/china-olympics-peng-shuai-samaranch.html?searchResultPosition=8
 
-**Feed the Hungry? You’ll Need a Permit for That.**\
-`Newark, New Jersey’s largest city, is working on an ordinance that would restrict the practice of feeding homeless people who live on the street.`\
-https://nytimes.com/2021/12/14/nyregion/newark-prohibiting-feeding-homeless.html?searchResultPosition=9
-
 **Your Inflation Worries Say a Lot About You (and May Affect Prices)**\
 `Age, region, education and income all influence what people think consumer prices will be a few years from now. And that creates a policy puzzle.`\
-https://nytimes.com/2021/12/14/business/economy/inflation-age-region-education-income.html?searchResultPosition=10
+https://nytimes.com/2021/12/14/business/economy/inflation-age-region-education-income.html?searchResultPosition=9
+
+**Feed the Hungry? You’ll Need a Permit for That.**\
+`Newark, New Jersey’s largest city, is working on an ordinance that would restrict the practice of feeding homeless people who live on the street.`\
+https://nytimes.com/2021/12/14/nyregion/newark-prohibiting-feeding-homeless.html?searchResultPosition=10
 
