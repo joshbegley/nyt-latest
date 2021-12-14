@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/14/us/coronavirus-briefing-britain-omicron-restricti
 
 **Pfizer’s Covid Pill Works Well, Company Confirms in Final Analysis**\
 `The treatment, called Paxlovid, is likely to work against Omicron and could be available in the United States before the end of the year.`\
-https://nytimes.com/2021/12/14/health/pfizer-covid-pill.html?searchResultPosition=3
+https://nytimes.com/2021/12/14/health/pfizer-covid-pill-paxlovid.html?searchResultPosition=3
 
 **Amtrak temporarily drops its vaccine mandate, avoiding cuts to service.**\
 `The shift in policy means that Amtrak officials no longer anticipate cuts to service next month.`\
