@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/13/us/mark-meadows-contempt.html?searchResultPositio
 
 **Massachusetts joins other states in distributing free at-home tests.**\
 `Massachusetts secured more than two million rapid at-home tests that would be delivered to 102 towns with high poverty rates.`\
-https://nytimes.com/2021/12/13/us/massachusetts-joins-other-states-in-distributing-free-at-home-tests.html?searchResultPosition=4
+https://nytimes.com/2021/12/13/us/massachusetts-free-covid-test.html?searchResultPosition=4
 
 **Charles R. Morris, Iconoclastic Author on Economics, Dies at 82**\
 `Resisting ideological labels, experienced in government and banking, he critiqued policymakers’ “good intentions” and the costs of health care and forecast the 2008 financial crisis.`\
