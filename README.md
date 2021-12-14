@@ -28,7 +28,7 @@ https://nytimes.com/2021/12/14/nyregion/new-york-eviction-rent-relief-covid.html
 
 **Rams Remind Cardinals There’s Another Team in the N.F.C. West**\
 `Despite missing multiple players to Covid, Los Angeles and its veteran stars knocked off the division leaders.`\
-https://nytimes.com/2021/12/14/sports/football/rams-remind-cardinals-theres-another-team-in-the-west.html?searchResultPosition=8
+https://nytimes.com/2021/12/14/sports/football/rams-cardinals-nfc-west.html?searchResultPosition=8
 
 **Pfizer says its Covid pill will protect against severe disease, even from Omicron.**\
 `The company said the pill, Paxlovid, reduced the risk of hospitalization and death by 89 percent if given within three days of the onset of symptoms.`\
