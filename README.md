@@ -28,7 +28,7 @@ https://nytimes.com/2021/12/14/technology/computer-chips-united-states.html?sear
 
 **Even as Omicron Cases Rise in U.K., Johnson Faces Mutiny Over New Rules**\
 `The British prime minister, under fire for his government’s handling of the coronavirus, is facing deep opposition within his party over new rules aimed at quelling a surge of the variant.`\
-https://nytimes.com/2021/12/14/world/europe/britain-omicron-covid-restrictions-boris-johnson.html?searchResultPosition=8
+https://nytimes.com/2021/12/14/world/europe/britain-covid-restrictions.html?searchResultPosition=8
 
 **Kentucky on My Mind**\
 `On states that bite the hand that feeds them.`\
