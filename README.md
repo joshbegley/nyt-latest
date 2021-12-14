@@ -2,8 +2,8 @@
 `Even before the pandemic, Turkey was trying to ward off financial meltdown. The crisis has accelerated as President Recep Tayyip Erdogan has doubled down on his unorthodox policies.`\
 https://nytimes.com/2021/12/14/business/economy/turkey-inflation-economy-lira.html?searchResultPosition=1
 
-**Man Exonerated in Malcolm X Murder Files Claims Against State and City**\
-`Muhammad A. Aziz filed a claim against New York State on Tuesday for the toll that being “unjustly branded as a convicted murderer” for 55 years took on his life.`\
+**Man Exonerated in Malcolm X Murder Files Lawsuit Against New York State**\
+`Muhammad A. Aziz filed the claim on Tuesday, along with a notice seeking a settlement with the city, for the toll that being “unjustly branded as a convicted murderer” for 55 years took on his life.`\
 https://nytimes.com/2021/12/14/nyregion/aziz-malcolm-x-murder.html?searchResultPosition=2
 
 **A Witty Mastermind of Les Ballets Trockadero Comes Home**\
