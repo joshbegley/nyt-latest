@@ -1,4 +1,4 @@
-**Judge Dismisses Trump Suit Seeking to Stop Congress from Seeing His Taxes**\
+**Judge Dismisses Trump Suit Seeking to Stop Congress From Seeing His Taxes**\
 `The court said the Treasury Department can provide the former president’s tax returns to the House Ways and Means Committee. But the judge stayed the ruling to allow time for an appeal.`\
 https://nytimes.com/2021/12/14/us/trump-tax-returns.html?searchResultPosition=1
 
@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/14/science/spacex-sexual-harassment.html?searchResul
 
 **Adams, Wading Into Council Speaker Race, Puts Political Capital at Risk**\
 `After saying he would stay out of the race, Eric Adams, the incoming mayor, has sought to install an ally. It was unclear whether he would succeed.`\
-https://nytimes.com/2021/12/14/nyregion/eric-adams-council-speaker.html?searchResultPosition=3
+https://nytimes.com/2021/12/14/nyregion/eric-adams-francisco-moya.html?searchResultPosition=3
 
 **U.K. Parliament Passes Covid Restrictions Amid Omicron Surge**\
 `Several of Prime Minister Boris Johnson’s key measures to quell the outbreak, including an expansion of compulsory use of face masks and the requirement of vaccine passport to enter some events, passed in the Parliament.`\
