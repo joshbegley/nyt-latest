@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/14/briefing/pfizer-antarctica-james-webb-telescope.h
 
 **Michael Gargiulo Dies at 95; Documented the Moscow ‘Kitchen Debate’**\
 `Sent to the Soviet Union in 1959 to promote color television, he ended up taping what he later called a “turning point” in U.S.-Soviet relations.`\
-https://nytimes.com/2021/12/14/arts/television/michael-gargiulo-dies-at-95.html?searchResultPosition=3
+https://nytimes.com/2021/12/14/arts/television/michael-gargiulo-dead.html?searchResultPosition=3
 
 **Coronavirus Briefing: Britain’s Omicron restrictions**\
 `And the verdict on Pfizer’s Covid pill.`\
