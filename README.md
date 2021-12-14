@@ -1,6 +1,6 @@
 **Blinken, in Indonesia, Stresses Soft Power to Counter China**\
 `The U.S. secretary of state seeks to make the case that the United States is a better bet as a partner than China, even if it’s not spending so lavishly in the region.`\
-https://nytimes.com/2021/12/14/world/asia/blinken-in-indonesia-stresses-soft-power-to-counter-china.html?searchResultPosition=1
+https://nytimes.com/2021/12/14/world/asia/blinken-indonesia-china.html?searchResultPosition=1
 
 **How much material from space enters the Earth’s atmosphere on an average day?**\
 `Earth is under attack from space dust.`\
