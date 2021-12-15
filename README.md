@@ -8,11 +8,11 @@ https://nytimes.com/2021/12/15/nyregion/has-the-pandemic-torn-your-family-apart.
 
 **Storm Could Bring Destructive Winds to Central U.S.**\
 `A tornado watch was issued for parts of six states as wind gusts of more than 70 miles per hour bore down on parts of the Upper Midwest on Wednesday.`\
-https://nytimes.com/2021/12/15/us/midwest-severe-storm-high-winds.html?searchResultPosition=3
+https://nytimes.com/2021/12/15/us/midwest-tornado-warning.html?searchResultPosition=3
 
 **The Canadian government warns residents to avoid nonessential travel outside the country.**\
 `In response to the spread of Omicron, Canada is also ramping up distribution of booster doses and rapid antigen tests.`\
-https://nytimes.com/2021/12/15/world/americas/canada-travel-warning.html?searchResultPosition=4
+https://nytimes.com/2021/12/15/world/americas/canada-travel-warning-omicron.html?searchResultPosition=4
 
 **Overlooked No More: Frances B. Johnston, Photographer Who Defied Genteel Norms**\
 `Undaunted by obstacles facing her gender, she carved out a career taking portraits of celebrities and creating series on architecture and education.`\
