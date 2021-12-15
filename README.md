@@ -1,40 +1,40 @@
+**Iran Agrees to Replace Cameras at Nuclear Site but Blocks Images**\
+`Iran’s failure to allow the U.N. nuclear agency to fully monitor its nuclear program is hindering talks in Vienna on restoring the 2015 nuclear deal.`\
+https://nytimes.com/2021/12/15/world/europe/iran-nuclear-cameras-iaea.html?searchResultPosition=1
+
+**Theranos and the Logic of Start-up Bets**\
+`In the start-up world, there can be big payoff for investing and little incentive for asking questions.`\
+https://nytimes.com/2021/12/15/technology/theranos-start-up-investing.html?searchResultPosition=2
+
 **Review: ‘Messiah’ Brings the New York Philharmonic to Church**\
 `Jeannette Sorrell led superb voices and a stylish orchestra in Handel’s classic of the holiday season at Riverside Church.`\
-https://nytimes.com/2021/12/15/arts/music/messiah-new-york-philharmonic.html?searchResultPosition=1
+https://nytimes.com/2021/12/15/arts/music/messiah-new-york-philharmonic.html?searchResultPosition=3
 
 **UConn’s Paige Bueckers to Miss at Least Eight Weeks After Surgery**\
 `The national player of the year in women’s basketball last season as a freshman, she had an anterior tibial plateau fracture and lateral meniscus tear repaired.`\
-https://nytimes.com/2021/12/15/sports/ncaabasketball/paige-bueckers-uconn-surgery.html?searchResultPosition=2
+https://nytimes.com/2021/12/15/sports/ncaabasketball/paige-bueckers-uconn-surgery.html?searchResultPosition=4
 
 **Senate Passes $768 Billion Defense Bill, Sending It to Biden**\
 `Lawmakers in both parties linked arms in an overwhelming vote authorizing an increase in the Pentagon’s budget of roughly $24 billion more than President Biden requested.`\
-https://nytimes.com/2021/12/15/us/politics/defense-spending-bill.html?searchResultPosition=3
+https://nytimes.com/2021/12/15/us/politics/defense-spending-bill.html?searchResultPosition=5
 
 **On Cruise Ships, Omicron Puts Safety Protocols to the Test**\
 `Many lines are adjusting their masking, testing and vaccine rules, while criticism is mounting about the lack of transparency in reporting positive cases to passengers and crew members.`\
-https://nytimes.com/2021/12/15/travel/cruise-ships-coronavirus.html?searchResultPosition=4
+https://nytimes.com/2021/12/15/travel/cruise-ships-coronavirus.html?searchResultPosition=6
 
 **The Corset Keeps Coming Back**\
 `As we trade sweatpants for formality and fun, corsets are one of the things to reign supreme.`\
-https://nytimes.com/2021/12/15/style/corset-comeback.html?searchResultPosition=5
+https://nytimes.com/2021/12/15/style/corset-comeback.html?searchResultPosition=7
 
 **Raven O, a Nightlife Fixture for Four Decades, Takes a Final Bow**\
 `Since the ’80s, Raven O has choreographed, directed, hosted, danced and sung on many New York stages. After three final shows, he’ll return to Hawaii.`\
-https://nytimes.com/2021/12/15/arts/music/raven-o-retiring.html?searchResultPosition=6
+https://nytimes.com/2021/12/15/arts/music/raven-o-retiring.html?searchResultPosition=8
 
 **See How the Antarctic Is Signaling Major Climate Disruption**\
 `We’ve visualized recent data from the Southern Ocean that has scientists increasingly worried.`\
-https://nytimes.com/2021/12/15/climate/nyt-climate-newsletter-antarctic.html?searchResultPosition=7
+https://nytimes.com/2021/12/15/climate/nyt-climate-newsletter-antarctic.html?searchResultPosition=9
 
 **He Thought He Made N.B.A. History. All He Got Was 3 Points.**\
 `The N.B.A. introduced the 3-point shot in the 1979-80 season. Six players made 3s opening night, and for a decade, Kevin Grevey thought he’d made the first.`\
-https://nytimes.com/2021/12/15/sports/basketball/nba-three-pointer-chris-ford.html?searchResultPosition=8
-
-**New York University is the latest school to cancel events over a coronavirus surge.**\
-`The university said it was scrapping all “nonessential” gatherings on and off its Manhattan campus, where 99 percent of students are vaccinated.`\
-https://nytimes.com/2021/12/15/nyregion/nyu-events-canceled-covid.html?searchResultPosition=9
-
-**Kentucky Man Plays Piano Inside His Home Destroyed By Tornado**\
-`Jordan Baize returned to his home in Bremen, Ky., to find that it had been largely demolished in the tornado, but that his piano was still intact. He then played a Christian worship song, which his sister filmed.`\
-https://nytimes.com/video/us/100000008122028/tornado-kentucky-man-plays-piano.html?searchResultPosition=10
+https://nytimes.com/2021/12/15/sports/basketball/nba-three-pointer-chris-ford.html?searchResultPosition=10
 
