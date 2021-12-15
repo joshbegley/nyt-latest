@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/15/movies/the-tender-bar-review.html?searchResultPos
 https://nytimes.com/2021/12/15/movies/oscar-contenders-lady-gaga-ben-affleck-cate-blanchett.html?searchResultPosition=2
 
 **Inflation Has Arrived. Here’s What You Need to Know.**\
-`What is inflation, why is it up, and who does it hurt? A run through common questions about the ongoing price burst.`\
+`What is inflation, why is it up and whom does it hurt? A run through common questions about the ongoing price burst.`\
 https://nytimes.com/article/inflation-definition.html?searchResultPosition=3
 
 **Iran Agrees to Replace Cameras at Nuclear Site but Blocks Images**\
