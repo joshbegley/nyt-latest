@@ -22,7 +22,7 @@ https://nytimes.com/2021/12/15/sports/football/cleveland-browns-covid-outbreak.h
 `Images of businesses and homes in and around historic downtown Mayfield, Ky., show large-scale destruction.`\
 https://nytimes.com/interactive/2021/12/15/us/mayfield-kentucky-tornado-damage.html?searchResultPosition=6
 
-**Fed Eyes 3 Rate Increases in 2022; Winds Down Stimulus as Prices Rise**\
+**Fed Eyes 3 Rate Increases in 2022; Slows Stimulus as Prices Rise**\
 `Federal Reserve officials suggested as many as three interest rate increases in 2022 as the economy heals and inflation persists.`\
 https://nytimes.com/2021/12/15/business/economy/inflation-fed-fomc-meeting-december-2021.html?searchResultPosition=7
 
