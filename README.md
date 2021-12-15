@@ -1,6 +1,6 @@
 **Deion Sanders Lands Top Recruit Travis Hunter at Jackson State**\
 `On national signing day, the high school star from Georgia spurned Florida State after a two-year commitment in favor of the historically Black college.`\
-https://nytimes.com/2021/12/15/sports/ncaafootball/hunter-national-signing-day-fsu-jackson-state.html?searchResultPosition=1
+https://nytimes.com/2021/12/15/sports/ncaafootball/travis-hunter-deion-sanders-jackson-state.html?searchResultPosition=1
 
 **80,000 Honey Bees Found in Wall of Shower (Also, 100 Pounds of Honey)**\
 `“They were nice bees,” a St. Petersburg, Fla., homeowner said, but a bathroom renovation meant they had to go. A beekeeper safely removed them.`\
