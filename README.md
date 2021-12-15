@@ -1,6 +1,6 @@
 **Business Groups Sue Over California Law They Say Could Keep Pork Off Plates**\
 `A 2018 ballot initiative creating minimum space requirements for livestock is set to go into effect on Jan. 1. Food industry interests are warning of possible shortages and price increases.`\
-https://nytimes.com/2021/12/15/business/new-california-bacon-law.html?searchResultPosition=1
+https://nytimes.com/2021/12/15/business/california-bacon-law.html?searchResultPosition=1
 
 **N.F.L. Awards 2024 Super Bowl to Las Vegas**\
 `The awarding of one of sports’ biggest events marks a dramatic shift for the gambling mecca, which had long been snubbed by pro sports owners before wagering on games gained popular support.`\
