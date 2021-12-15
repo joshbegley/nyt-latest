@@ -16,7 +16,7 @@ https://nytimes.com/slideshow/2021/12/15/realestate/indian-ocean-views-from-the-
 
 **Vaccine Opponents in Germany Investigated Over Plot to Kill State Governor**\
 `The authorities in Dresden raided the homes of a group of people who they said were targeting the leader of the state of Saxony. A number of weapons were seized.`\
-https://nytimes.com/2021/12/15/world/europe/germany-plot-to-kill-saxony-governor-vaccines.html?searchResultPosition=5
+https://nytimes.com/2021/12/15/world/europe/germany-michael-kretschmer-plot-saxony-vaccines.html?searchResultPosition=5
 
 **From mandates to masks, how some big companies are adjusting to Omicron.**\
 `Google set deadlines for its vaccine mandate compliance, and JPMorgan Chase said only vaccinated workers and visitors could enter its New York offices.`\
