@@ -1,5 +1,5 @@
 **Muslim Lawmaker Comes Under Fire in House Debate on ‘Islamophobia’**\
-`A conservative Republican accused Ilhan Omar, the sponsor of a House bill to create an envoy to combat Islamophobia, of terrorist sympathies.`\
+`A conservative Republican accused Ilhan Omar, the sponsor of a House bill to combat anti-Muslim bias, of terrorist sympathies.`\
 https://nytimes.com/2021/12/14/us/politics/house-debate-islamophobia.html?searchResultPosition=1
 
 **Un-screw-up-able**\
