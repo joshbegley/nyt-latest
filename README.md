@@ -1,6 +1,6 @@
 **Derek Chauvin Pleads Guilty to Violating George Floyd’s Rights**\
 `The guilty plea is likely to lengthen the imprisonment of Mr. Chauvin, a former Minneapolis police officer who is already serving a prison sentence of 22 and a half years for murder.`\
-https://nytimes.com/2021/12/15/us/derek-chauvin-pleads-guilty-to-violating-george-floyds-rights.html?searchResultPosition=1
+https://nytimes.com/2021/12/15/us/derek-chauvin-civil-rights-guilty-plea.html?searchResultPosition=1
 
 **Los Angeles schools put off a student vaccine mandate until fall 2022.**\
 `The mandate would have required students 12 and over to be fully vaccinated by Jan. 10 or switch to online learning. Now, unvaccinated students will have to be tested frequently starring in January.`\
