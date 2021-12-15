@@ -10,8 +10,8 @@ https://nytimes.com/2021/12/15/world/europe/netherlands-dutch-coalition.html?sea
 `Jerome H. Powell, the Federal Reserve chair, discusses the central bank’s decision to taper off economic support to guard against rising inflation.`\
 https://nytimes.com/video/business/economy/100000008120686/federal-reserve-jerome-powell-speech.html?searchResultPosition=3
 
-**Britain breaks a daily record for new cases.**\
-`While the effect on hospitalizations and deaths remains unclear, a health official warned that the explosive growth of cases could deluge the National Health Service.`\
+**Britain breaks a daily record for new cases, amid warnings about the possible impact of explosive growth.**\
+`Officials didn’t specify what share of the new cases might be Omicron, though they said a majority in London were from the variant.`\
 https://nytimes.com/2021/12/15/world/europe/uk-covid-record-cases.html?searchResultPosition=4
 
 **Covid Outbreak Among Cleveland Browns Continues N.F.L. Surge**\
