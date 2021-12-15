@@ -14,7 +14,7 @@ https://nytimes.com/article/inflation-definition.html?searchResultPosition=3
 `Iran’s failure to allow the U.N. nuclear agency to fully monitor its nuclear program is hindering talks in Vienna on restoring the 2015 nuclear deal.`\
 https://nytimes.com/2021/12/15/world/europe/iran-nuclear-cameras-iaea.html?searchResultPosition=4
 
-**Theranos and the Logic of Start-up Bets**\
+**Theranos and the Logic of Start-Up Bets**\
 `In the start-up world, there can be big payoff for investing and little incentive for asking questions.`\
 https://nytimes.com/2021/12/15/technology/theranos-start-up-investing.html?searchResultPosition=5
 
