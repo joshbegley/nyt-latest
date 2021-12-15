@@ -2,8 +2,8 @@
 `This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2021/12/15/learning/word-of-the-day-jut.html?searchResultPosition=1
 
-**Boat Carrying Migrants Sinks Near Malaysia, Killing at Least 10**\
-`The vessel capsized near a beach town in the South China Sea, leaving 29 others missing, officials said. The victims’ nationalities were not disclosed.`\
+**Boat Carrying Indonesian Migrants Sinks Near Malaysia, Killing at Least 10**\
+`The vessel capsized near a beach town in the South China Sea, leaving 29 others missing, officials said.`\
 https://nytimes.com/2021/12/15/world/asia/malaysia-boat-migrants.html?searchResultPosition=2
 
 **Late Night Praises Fox News Hosts for Their Acting Skills**\
