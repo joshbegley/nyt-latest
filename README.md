@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/15/us/bee-hive-shower.html?searchResultPosition=2
 
 **New Studies Raise Hopes That Vaccines Prevent Severe Disease From Omicron**\
 `In the lab, immune cells put up a strong fight against Omicron, suggesting that vaccines will be able to prevent the worst outcomes of the virus variant.`\
-https://nytimes.com/2021/12/15/health/omicron-vaccines-severe-disease-t-cells.html?searchResultPosition=3
+https://nytimes.com/2021/12/15/health/omicron-vaccine-severe-disease.html?searchResultPosition=3
 
 **Coronavirus Briefing: Omicron vs. vaccines**\
 `And the coming Omicron wave.`\
