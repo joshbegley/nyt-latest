@@ -1,5 +1,5 @@
 **House Debate on ‘Islamophobia’ Devolves Into Attack on Muslim Lawmaker**\
-`A conservative Republican accused Ilhan Omar, a Muslim who sponsored a House bill to combat Islamophobia, of terrorist sympathies.`\
+`A conservative Republican accused Ilhan Omar, the sponsor of a House bill to create an envoy to combat Islamophobia, of terrorist sympathies.`\
 https://nytimes.com/2021/12/14/us/politics/house-debate-islamophobia.html?searchResultPosition=1
 
 **Un-screw-up-able**\
