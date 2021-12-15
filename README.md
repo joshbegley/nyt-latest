@@ -1,6 +1,6 @@
 **After a Tornado Blew His Roof Away, He Played Piano Under an Open Sky**\
 `The morning after Jordan Baize’s house in Kentucky was destroyed, he turned to his Yamaha piano. It was a moment of calm that his sister recorded on video.`\
-https://nytimes.com/2021/12/15/us/man-plays-piano-tornado.html?searchResultPosition=1
+https://nytimes.com/2021/12/15/us/kentucky-tornado-piano-man.html?searchResultPosition=1
 
 **After Months, a ‘New’ Dutch Coalition With the Same Leader and Parties**\
 `Mark Rutte, who has weathered a scandal and criticism for overstaying his welcome, will be prime minister for a fourth term.`\
