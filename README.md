@@ -1,6 +1,6 @@
 **Apple has a new return to office date: indefinite.**\
 `The news came on the heels of Apple temporarily closing three retail stores, in Miami, Annapolis, Md., and Ottawa, amid a spike of positive tests and exposure among employees working at those stores.`\
-https://nytimes.com/2021/12/15/technology/apple-rto.html?searchResultPosition=1
+https://nytimes.com/2021/12/15/technology/apple-return-to-work.html?searchResultPosition=1
 
 **Judge Is Urged to Resign Over Racial Slur in Video Recorded at Her Home**\
 `Michelle Odinet, a judge in Louisiana, said she had “zero recollection” of the episode captured on video, in which off-screen voices are heard narrating security-camera footage of a failed burglary attempt.`\
