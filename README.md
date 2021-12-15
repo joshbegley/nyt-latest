@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/15/nyregion/how-trump-valued-his-assets.html?searchR
 
 **Murray Hill, Manhattan: Flush With History, Now ‘Seeing a Transformation’**\
 `The East Side neighborhood, long a mecca for its nightlife, has suffered in the pandemic. But restaurants are reopening and construction noise is again filling the air.`\
-https://nytimes.com/2021/12/15/realestate/murray-hill-manhattan-flush-with-history-now-seeing-a-transformation.html?searchResultPosition=4
+https://nytimes.com/2021/12/15/realestate/murray-hill-nyc.html?searchResultPosition=4
 
 **Living in ... Murray Hill, Manhattan**\
 `The East Side neighborhood, long a mecca for its nightlife, is seeing restaurants reopen and new construction alter the Manhattan skyline.`\
