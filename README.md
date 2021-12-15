@@ -31,7 +31,7 @@ https://nytimes.com/2021/12/15/briefing/inflation-kentucky-pictures-of-the-year.
 https://nytimes.com/2021/12/15/nyregion/rikers-island-deaths.html?searchResultPosition=8
 
 **Apple has a new return to office date: indefinite.**\
-`Apple will also provide an additional $1,000 to each employee to help furnish home offices. The news came on the heels of Apple temporarily closing three retail stores amid a spike of positive tests and exposure among workers.`\
+`The news came after three Apple stores were temporarily closed amid a spike of exposures. Workers will get $1,000 each to help furnish a home office.`\
 https://nytimes.com/2021/12/15/technology/apple-return-to-work.html?searchResultPosition=9
 
 **Judge Is Urged to Resign Over Racial Slur in Video Recorded at Her Home**\
