@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/15/us/politics/gop-governors-vaccine-pentagon.html?searchResultPosition=1
 
 **Blinken Cuts Short Asia Trip After Journalist on His Plane Tests Positive for Covid**\
-`Citing the need for caution, the secretary of state expressed “deep regret” to Thailand’s deputy prime minister before returning to the U. S. earlier than planned.`\
+`Citing the need for caution, the secretary of state expressed “deep regret” to Thailand’s deputy prime minister before returning to the United States earlier than planned.`\
 https://nytimes.com/2021/12/15/world/asia/antony-blinken-journalist-covid.html?searchResultPosition=2
 
 **India’s Sex Workers Win Benefits From the Country’s Top Court**\
