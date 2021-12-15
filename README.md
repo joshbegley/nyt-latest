@@ -2,7 +2,7 @@
 `Corrections that appeared in print on Wednesday, Dec. 15, 2021.`\
 https://nytimes.com/2021/12/14/pageoneplus/corrections-dec-15-2021.html?searchResultPosition=1
 
-**Keechant Sewell to Head N.Y.P.D. as Its First Female Commissioner**\
+**Keechant Sewell to Lead N.Y.P.D. as Its First Female Commissioner**\
 `The selection of Ms. Sewell, the Nassau County chief of detectives, was seen as one of Eric Adams’s most critical appointments as incoming mayor.`\
 https://nytimes.com/2021/12/14/nyregion/keechant-sewell-nypd-commissioner.html?searchResultPosition=2
 
