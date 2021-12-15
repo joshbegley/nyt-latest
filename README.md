@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/15/business/economy/inflation-fed-fomc-meeting-decem
 
 **Texas’s Fight Over School Books**\
 `“At what point do I practice subversion?” a teacher wondered.`\
-https://nytimes.com/2021/12/15/us/texass-fight-over-school-books.html?searchResultPosition=3
+https://nytimes.com/2021/12/15/us/texas-school-books.html?searchResultPosition=3
 
 **Met Opera to Mandate Booster Shots for Staff and Audiences**\
 `It is the first major performing arts institution to require boosters, as concern mounts over rising coronavirus cases and the spread of the Omicron variant. The rule will take effect Jan. 17.`\
