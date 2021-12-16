@@ -1,6 +1,6 @@
 **What Students Are Saying About the Parents’ Role in a Recent School Shooting**\
 `Teenage comments in response to a question about this and two more writing prompts — and an invitation to join the ongoing conversation.`\
-https://nytimes.com/2021/12/16/learning/what-students-are-saying-about-the-parents-role-in-a-recent-school-shooting.html?searchResultPosition=1
+https://nytimes.com/2021/12/16/learning/writing-prompt-school-shooting.html?searchResultPosition=1
 
 **Ken Kragen, a Force Behind ‘We Are the World,’ Dies at 85**\
 `Michael Jackson, Lionel Richie and Quincy Jones were among the public faces of that 1985 fund-raising record. But behind the scenes, Mr. Kragen made it all happen.`\
