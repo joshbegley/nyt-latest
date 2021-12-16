@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/16/us/donald-cozzens-dead.html?searchResultPosition=
 
 **Justice Department Halts Settlement Talks With Migrant Families**\
 `The government said it was unable to reach a global settlement with parents and children who were separated at the border under a Trump administration policy.`\
-https://nytimes.com/2021/12/16/us/16migrant-family-separation-settlement.html?searchResultPosition=6
+https://nytimes.com/2021/12/16/us/biden-migrant-family-separation-settlement.html?searchResultPosition=6
 
 **What Students Are Saying About the Parents’ Role in a Recent School Shooting**\
 `Teenage comments in response to a question about this and two more writing prompts — and an invitation to join the ongoing conversation.`\
