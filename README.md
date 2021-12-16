@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/16/business/rivian-earnings-georgia-plant.html?searc
 
 **Omicron Is an Economic Threat, but Inflation Is Worse, Central Bankers Say**\
 `Within 24 hours, the Federal Reserve, Bank of England and European Central Bank all stepped forward to deal with price increases.`\
-https://nytimes.com/2021/12/16/business/economy/omicron-inflation-monetary-policy.html?searchResultPosition=3
+https://nytimes.com/2021/12/16/business/economy/omicron-inflation.html?searchResultPosition=3
 
 **F.D.A. Will Permanently Allow Abortion Pills by Mail**\
 `The decision will broaden access to medication abortion, an increasingly common method, but many conservative states are already mobilizing against it.`\
