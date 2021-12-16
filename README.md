@@ -10,7 +10,7 @@ https://nytimes.com/2021/12/16/sports/football/nfl-nba-sports-leagues-covid-outb
 `Two reports shed light on the issues driving Hispanic voters and why their support of the Democratic Party is eroding.`\
 https://nytimes.com/2021/12/16/us/politics/democrats-latinos.html?searchResultPosition=3
 
-**As Omicron Surges, a Race to Gauge the Threat**\
+**Scientists Are Racing to Gauge the Threat of Omicron**\
 `The variant will spread quickly through the United States, experts say. What happens after that is less certain.`\
 https://nytimes.com/2021/12/16/health/coronavirus-omicron-variant.html?searchResultPosition=4
 
