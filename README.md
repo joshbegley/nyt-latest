@@ -18,7 +18,7 @@ https://nytimes.com/2021/12/15/world/australia/jumping-castle-tasmania.html?sear
 `Sony Music Entertainment buys the Boss’s entire corpus, including classics like “Born to Run,” for an estimated $500 million or more.`\
 https://nytimes.com/2021/12/15/arts/music/bruce-springsteen-sells-music-catalog.html?searchResultPosition=5
 
-**Reddit takes first official step toward going public.**\
+**Reddit takes its first official step toward going public.**\
 `The company announced it had confidentially filed paperwork for an I.P.O., but without disclosing financial details.`\
 https://nytimes.com/2021/12/15/business/reddit-ipo.html?searchResultPosition=6
 
