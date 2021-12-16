@@ -30,9 +30,9 @@ https://nytimes.com/2021/12/15/todayspaper/quotation-of-the-day-gop-leaders-grad
 `A prominent Latin music producer, known as Flow La Movie, was reported to be among the dead.`\
 https://nytimes.com/2021/12/15/world/americas/santo-domingo-plane-crash.html?searchResultPosition=8
 
-**C.D.C. panel will discuss blood clot risk linked to J.&J.’s vaccine.**\
+**A C.D.C. panel will discuss a blood clot risk linked to J.&J.’s vaccine.**\
 `On Thursday, agency advisers will review updated figures showing roughly nine deaths from the rare disorder, according to a federal official.`\
-https://nytimes.com/2021/12/15/us/johnson-johnson-vaccine-blood-clots-cdc.html?searchResultPosition=9
+https://nytimes.com/2021/12/15/health/johnson-johnson-vaccine-blood-clots-cdc.html?searchResultPosition=9
 
 **Potentially Destructive Storm Sweeps Across Central U.S.**\
 `A tornado watch was issued for eight states as unusually powerful winds forced the closing of several highways.`\
