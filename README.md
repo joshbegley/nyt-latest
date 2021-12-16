@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/15/us/politics/democrats-social-policy-bill-2022.htm
 `Ms. Kennedy, nominated to be ambassador to Australia, and Ms. Kwan, nominated to be the envoy to Belize, were prominent Biden supporters during the 2020 campaign season.`\
 https://nytimes.com/2021/12/15/us/politics/michelle-kwan-caroline-kennedy-ambassador.html?searchResultPosition=4
 
-**Oh, God, Guns. Still Guns.**\
+**What We Still Haven’t Learned About Guns**\
 `Who would have thought a locked drawer could loom so large?`\
 https://nytimes.com/2021/12/15/opinion/michigan-school-shooting.html?searchResultPosition=5
 
