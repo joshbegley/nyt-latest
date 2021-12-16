@@ -2,7 +2,7 @@
 `Researchers found ads placed by Google on sites that falsely call global warming a hoax. The revenue those sites earn from the ads can fund further misinformation.`\
 https://nytimes.com/2021/12/16/climate/google-climate-denial-ads.html?searchResultPosition=1
 
-**Power Outages Across Midwest After Storms**\
+**Widespread Power Outages in Midwest After ‘Off the Charts’ Storms**\
 `Hundreds of thousands of customers were without electricity after a powerful storm system swept across the central U.S. At least one death was reported.`\
 https://nytimes.com/2021/12/16/us/midwest-power-outage.html?searchResultPosition=2
 
