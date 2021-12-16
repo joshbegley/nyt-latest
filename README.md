@@ -1,4 +1,4 @@
-**Sports’ Covid Outbreaks Feel Like Deja Vu All Over Again**\
+**Sports’ Covid Outbreaks Feel Like Déjà Vu All Over Again**\
 `Fueled by variants and holiday travel, virus infection rates are hitting 2020’s highs. Sports should pause until transmission is back in hand.`\
 https://nytimes.com/2021/12/16/sports/football/nfl-nba-sports-leagues-covid-outbreaks.html?searchResultPosition=1
 
