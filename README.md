@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2021/12/16/arts/editors-recommendations-fincher.html?searchResultPosition=1
 
 **How Politics Are Determining What Stove You Use**\
-`New York is the latest Democratic city aiming to fight climate change by    ushering out stoves and furnaces that run on gas in favor of electric alternatives. But Republican states and the gas industry are fighting back.`\
+`New York is the latest Democratic city aiming to fight climate change by ushering out stoves and furnaces that run on gas in favor of electric alternatives. But Republican states and the gas industry are fighting back.`\
 https://nytimes.com/2021/12/16/climate/gas-stoves-climate-change.html?searchResultPosition=2
 
 **12 Remaining Members of U.S. Group Kidnapped in Haiti Have Been Released**\
