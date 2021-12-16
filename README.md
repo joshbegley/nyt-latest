@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/16/movies/president-review.html?searchResultPosition
 
 **What to Know About C.T.E. in Football**\
 `The disease has been found in the brains of more than 315 former N.F.L. players.`\
-https://nytimes.com/article/cte-definition-athletes.html?searchResultPosition=6
+https://nytimes.com/article/cte-definition-nfl.html?searchResultPosition=6
 
 **3rd Teenager Pleads Guilty in Murder of Tessa Majors**\
 `Ms. Majors, a Barnard College freshman, was fatally stabbed in Morningside Park two years ago.`\
