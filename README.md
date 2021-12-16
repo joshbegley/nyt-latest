@@ -1,40 +1,40 @@
+**‘It’s Not the Ending He Wanted’**\
+`The ex-N.F.L. player Vincent Jackson was found dead in a hotel room days after his former team won the Super Bowl. In light of his C.T.E. diagnosis, his widow recounted Jackson’s decline.`\
+https://nytimes.com/2021/12/16/sports/football/vincent-jackson-death-cte.html?searchResultPosition=1
+
+**‘Fortress’ Review: Die Hard, Emote Hardly**\
+`A heist takes place in this thriller starring Bruce Willis, but it is audiences that might feel shortchanged.`\
+https://nytimes.com/2021/12/16/movies/fortress-review.html?searchResultPosition=2
+
+**‘A Naija Christmas’ Review: Honoring a Mother’s Wish**\
+`In this romantic comedy on Netflix, the first son to find a wife inherits the family home. But that task is harder than it might appear.`\
+https://nytimes.com/2021/12/16/movies/a-naija-christmas-review.html?searchResultPosition=3
+
+**‘The Novice’ Review: A Freshman Effort Worthy of Varsity**\
+`The obsessive ambitions of a college rower are masterfully orchestrated in a debut feature by the writer-director Lauren Hadaway.`\
+https://nytimes.com/2021/12/16/movies/the-novice-review.html?searchResultPosition=4
+
+**‘Swan Song’ Review: Second Life**\
+`In this future-set drama, Mahershala Ali plays an ailing father who decides whether or not to clone himself for the sake of his family.`\
+https://nytimes.com/2021/12/16/movies/swan-song-review.html?searchResultPosition=5
+
+**‘Juice WRLD: Into the Abyss’ Review: Free Fall**\
+`This unfocused documentary looks at the career of the rapper Juice WRLD, who died of an accidental overdose in 2019.`\
+https://nytimes.com/2021/12/16/movies/juice-wrld-into-the-abyss-review-free-fall.html?searchResultPosition=6
+
+**‘The Scary of Sixty-First’ Review: Resident Evil**\
+`A Manhattan apartment turns into the rental from hell in this mindless mix of horror and true crime.`\
+https://nytimes.com/2021/12/16/movies/the-scary-of-sixty-first-review.html?searchResultPosition=7
+
+**Super Typhoon Rai Hits the Philippines, Forcing Thousands to Flee Flooding**\
+`The Office of Civil Defense said that nearly 100,000 people in several regions had been evacuated. There was no immediate word on casualties.`\
+https://nytimes.com/2021/12/16/world/asia/super-typhoon-rai-odette-philippines.html?searchResultPosition=8
+
 **China’s Loudest Nationalist Steps Back**\
 `Hu Xijin, editor of the Communist Party tabloid Global Times and pioneer of the country’s fiery online posturing, is retiring from his role.`\
-https://nytimes.com/2021/12/16/world/asia/china-hu-xijin-retires.html?searchResultPosition=1
+https://nytimes.com/2021/12/16/world/asia/china-hu-xijin-retires.html?searchResultPosition=9
 
 **Expecting a Surge**\
 `We look at the latest on Omicron.`\
-https://nytimes.com/2021/12/16/briefing/omicron-update-spread-vaccines.html?searchResultPosition=2
-
-**France bans nonessential travel with U.K. over Omicron surge.**\
-`The French prime minister said the restrictions were necessary after “the extremely rapid spread” of Omicron in Britain.`\
-https://nytimes.com/2021/12/16/world/france-uk-travel-restrictions-omicron.html?searchResultPosition=3
-
-**A Classic Car Giant With a Lofty Mission: Save Driving**\
-`The Hagerty brand insures collectible autos — two million of them — and its articles and videos draw crowds. After going public, it has bigger plans.`\
-https://nytimes.com/2021/12/16/business/classic-cars-hagerty.html?searchResultPosition=4
-
-**NATO Signals Support for Ukraine in Face of Threat From Russia**\
-`The military alliance stood by its promise to open a path to Ukrainian membership amid warnings from Western intelligence agencies that Moscow could soon begin a military incursion.`\
-https://nytimes.com/2021/12/16/world/europe/ukraine-nato-russia.html?searchResultPosition=5
-
-**The Future of America’s Abortion Fight**\
-`How increased access to one medication could fundamentally change the debate over abortion across the country.`\
-https://nytimes.com/2021/12/16/podcasts/the-daily/medical-abortions.html?searchResultPosition=6
-
-**Home – International**\
-`-`\
-https://nytimes.com/slideshow/2021/12/16/multimedia/home-international.html?searchResultPosition=7
-
-**There Are Better Ways to Build a Burger**\
-`How we treat farm animals today will be seen as a defining moral failing of our age.`\
-https://nytimes.com/2021/12/16/opinion/factory-farming-animals.html?searchResultPosition=8
-
-**The Breakout Stars of 2021**\
-`In a year that offered glimmers of hope across the world of arts, these performers and creators rose to the occasion.`\
-https://nytimes.com/2021/12/16/arts/breakout-stars-2021.html?searchResultPosition=9
-
-**The Island Paradise Near the Front Line of Tensions Over Taiwan**\
-`New missile batteries planned for the Japanese island of Ishigaki reflect a drastic shift in Japan’s views on China.`\
-https://nytimes.com/2021/12/16/world/asia/ishigaki-japan-missiles-taiwan.html?searchResultPosition=10
+https://nytimes.com/2021/12/16/briefing/omicron-update-spread-vaccines.html?searchResultPosition=10
 
