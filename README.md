@@ -10,8 +10,8 @@ https://nytimes.com/2021/12/16/sports/football/nfl-week-15-picks.html?searchResu
 `High winds in Kansas caused dust storms and knocked over power lines, the authorities said.`\
 https://nytimes.com/video/us/100000008123220/weather-kansas-wind.html?searchResultPosition=3
 
-**2 Children Killed After Falling From Inflatable Castle in Tasmania**\
-`The students fell 33 feet from a jumping castle that was lifted into the air by a gust of wind, the authorities said. Several others were critically injured.`\
+**4 Children Killed After Heavy Winds Sweep Up Inflatable Castle**\
+`The students fell 33 feet on the last day of school in Tasmania, Australia. Several others were critically injured.`\
 https://nytimes.com/2021/12/15/world/australia/jumping-castle-tasmania.html?searchResultPosition=4
 
 **Bruce Springsteen Sells Music Catalog in Massive Deal**\
