@@ -31,7 +31,7 @@ https://nytimes.com/2021/12/15/crosswords/daily-puzzle-2021-12-16.html?searchRes
 https://nytimes.com/2021/12/15/todayspaper/quotation-of-the-day-gop-leaders-grad-stimulus-they-derided.html?searchResultPosition=8
 
 **Plane Crash in Dominican Republic Kills All 9 Aboard**\
-`A prominent Latin music producer, known as Flow La Movie, was reported to be among the dead.`\
+`A prominent Puerto Rican music producer known as Flow La Movie was reported to be among the dead.`\
 https://nytimes.com/2021/12/15/world/americas/santo-domingo-plane-crash.html?searchResultPosition=9
 
 **A C.D.C. panel will discuss a blood clot risk linked to J.&J.’s vaccine.**\
