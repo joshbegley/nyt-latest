@@ -14,8 +14,8 @@ https://nytimes.com/2021/12/16/world/france-uk-travel-restrictions-omicron.html?
 `The Hagerty brand insures collectible autos — two million of them — and its articles and videos draw crowds. After going public, it has bigger plans.`\
 https://nytimes.com/2021/12/16/business/classic-cars-hagerty.html?searchResultPosition=4
 
-**Ukraine’s Leader Seeks NATO Assurances in Face of Threat From Russia**\
-`The alliance stood by its promise to open a path to Ukrainian membership amid warnings from Ukrainian and Western intelligence agencies that Moscow could soon begin a military incursion.`\
+**NATO Signals Support for Ukraine in Face of Threat From Russia**\
+`The military alliance stood by its promise to open a path to Ukrainian membership amid warnings from Western intelligence agencies that Moscow could soon begin a military incursion.`\
 https://nytimes.com/2021/12/16/world/europe/ukraine-nato-russia.html?searchResultPosition=5
 
 **The Future of America’s Abortion Fight**\
