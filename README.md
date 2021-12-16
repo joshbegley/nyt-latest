@@ -36,5 +36,5 @@ https://nytimes.com/2021/12/16/business/medals-of-honor-biden.html?searchResultP
 
 **Chris Noth Peloton Ad Pulled After Sexual Assault Allegations**\
 `The online ad, a response to the “Sex and the City” reboot, was removed after The Hollywood Reporter published an article in which two women accused the actor of sexual assault.`\
-https://nytimes.com/2021/12/16/arts/television/chris-noth-peloton-ad.html?searchResultPosition=10
+https://nytimes.com/2021/12/16/arts/television/chris-noth-sexual-assault-peloton-ad.html?searchResultPosition=10
 
