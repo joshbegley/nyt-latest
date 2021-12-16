@@ -30,7 +30,7 @@ https://nytimes.com/2021/12/16/arts/spider-man-no-way-home-review.html?searchRes
 `This week our critic recommends a gentle British dramedy, a silly ’80s parody and a bunch of “Magic Mike” wannabes.`\
 https://nytimes.com/2021/12/16/arts/television/finding-magic-mike.html?searchResultPosition=8
 
-**Manchin Rejects Democratic Plan to Ban New Offshore Drilling**\
+**Manchin Is Expected to Reject Democratic Plan to Ban New Offshore Drilling**\
 `The Democrat from West Virginia, a coal and gas stronghold, has single-handedly stripped key elements from his party’s plan to tackle climate change.`\
 https://nytimes.com/2021/12/16/climate/manchin-offshore-drilling-climate.html?searchResultPosition=9
 
