@@ -1,4 +1,4 @@
-**San Francisco Mayor Declares State of Emergency to Fight ‘Reign of Criminals’**\
+**San Francisco Mayor Declares State of Emergency to Fight ‘Nasty Streets’ of the City**\
 `It’s a highly unusual move by a liberal mayor in one of the country’s most liberal cities.`\
 https://nytimes.com/2021/12/17/us/san-francisco-state-of-emergency-crime.html?searchResultPosition=1
 
