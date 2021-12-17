@@ -30,7 +30,7 @@ https://nytimes.com/2021/12/17/dining/what-to-cook-this-weekend.html?searchResul
 `Responses to a column by Ross Douthat  about Donald Trump, politics and the press. Also: Russia and Ukraine; keeping place names; F.D.R. and Churchill.`\
 https://nytimes.com/2021/12/17/opinion/letters/trump-press-coverage.html?searchResultPosition=8
 
-**Doctors Are ‘Living in a Constant Crisis’ as Covid Fills Hospitals and Omicron Looms**\
+**Doctors and Nurses Are ‘Living in a Constant Crisis’ as Covid Fills Hospitals and Omicron Looms**\
 `Hospitalizations across the country have increased 20 percent in two weeks, taxing already exhausted health care workers as the United States confronts a new variant.`\
 https://nytimes.com/2021/12/17/us/covid-hospitals-omicron.html?searchResultPosition=9
 
