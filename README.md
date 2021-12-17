@@ -18,7 +18,7 @@ https://nytimes.com/2021/12/16/us/harvard-admissions-act-sat.html?searchResultPo
 `Under the unusual arrangement, the Republican Party is paying to defend the former president as he faces investigations into his private business practices.`\
 https://nytimes.com/2021/12/16/us/politics/rnc-trump-investigations.html?searchResultPosition=5
 
-**Judge Overturns Purdue Pharma’s Opioid Settlement**\
+**Judge Overturns Purdue Pharma’s Opioids Settlement**\
 `The ruling said the company’s owners, members of the Sackler family, could not receive protection from civil lawsuits in return for a $4.5 billion contribution.`\
 https://nytimes.com/2021/12/16/health/purdue-pharma-opioid-settlement.html?searchResultPosition=6
 
