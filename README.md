@@ -1,4 +1,4 @@
-**‘I Didn’t Look Like a Human’: Jailed Journalist Tells of Myanmar Torture**\
+**‘I Didn’t Look Like a Human’: Journalist Tells of Myanmar Torture**\
 `When Ko Aung Kyaw erased his cellphone contacts to protect his sources, he knew his interrogators would make him pay a horrific price. He did it anyway.`\
 https://nytimes.com/2021/12/17/world/asia/myanmar-journalist-kyaw-torture.html?searchResultPosition=1
 
