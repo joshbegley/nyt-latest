@@ -1,6 +1,6 @@
 **Harvard Extends Test-Optional Admissions Policy for Four Years**\
 `The university joins many others that have eliminated the ACT and SAT requirements, adding fuel to the movement to get rid of standardized test scores.`\
-https://nytimes.com/2021/12/16/us/harvard-admissions-test-optional.html?searchResultPosition=1
+https://nytimes.com/2021/12/16/us/harvard-admissions-act-sat.html?searchResultPosition=1
 
 **R.N.C. Is Said to Agree to Pay Up to $1.6 Million of Trump’s Personal Legal Bills**\
 `Under the unusual arrangement, the Republican Party is paying to defend the former president as he faces investigations into his private business practices.`\
