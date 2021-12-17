@@ -1,5 +1,5 @@
-**It’s Time to Pack Those Presents**\
-`The holiday season is always a busy one for shipping, but this year has been complicated by supply chain disruptions and more people using deliveries because of the coronavirus pandemic.`\
+** It’s Time to Pack Those Presents**\
+`The holiday season is always a busy one for shipping, but this year has been complicated by supply chain disruptions and more people using deliveries because of the coronavirus pandemic. `\
 https://nytimes.com/interactive/2021/12/17/business/shipping-delays.html?searchResultPosition=1
 
 **Relationships with Grandmothers (and God) Drew Them Closer**\
