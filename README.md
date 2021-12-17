@@ -27,7 +27,7 @@ https://nytimes.com/2021/12/17/style/r-everett-frerichs-tony-harrelson-wedding.h
 https://nytimes.com/2021/12/17/style/bridgette-summers-andrew-wicks-wedding.html?searchResultPosition=7
 
 **Britain’s Conservatives Lose ‘Safe’ Seat, Dealing Blow to Boris Johnson**\
-`The governing party lost a district it had represented for more than a century.`\
+`The governing party lost to the Liberal Democrats a district it had represented for more than a century.`\
 https://nytimes.com/2021/12/17/world/europe/uk-election-tories-boris-johnson.html?searchResultPosition=8
 
 **27 Feared Dead in Suspected Arson at Office Building in Japan**\
