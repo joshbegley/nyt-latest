@@ -26,15 +26,15 @@ https://nytimes.com/2021/12/17/us/politics/virginia-democrats-abortion.html?sear
 `Si Spiegel, a bomber pilot, can claim a duel legacy: as a war hero and as a father of the artificial tree.`\
 https://nytimes.com/2021/12/17/nyregion/bomber-pilot-christmas-trees.html?searchResultPosition=7
 
+**Unfulfilled Promise**\
+`A start-up football school called Christians of Faith, later known as Bishop Sycamore, recruited players from tough neighborhoods with talk of academic help and a path to glory. But the path only led them back to where they started.`\
+https://nytimes.com/2021/12/17/sports/ncaafootball/bishop-sycamore-football.html?searchResultPosition=8
+
 **Where to Find Holiday Light Shows in New York City**\
 `After last year’s modified displays, Christmas light shows have returned to the city in full force, and they can be found in all five boroughs.`\
-https://nytimes.com/2021/12/17/nyregion/drive-thru-christmas-lights-nyc.html?searchResultPosition=8
+https://nytimes.com/2021/12/17/nyregion/drive-thru-christmas-lights-nyc.html?searchResultPosition=9
 
 **How a Young Film Actor Spends His Sundays**\
 `Daniel Ranieri went from ranting in an online video to being cast in a Hollywood movie. But he still loves sports, games and his ‘gaga’.`\
-https://nytimes.com/2021/12/17/nyregion/daniel-ranieri-tender-bar.html?searchResultPosition=9
-
-**Unfulfilled Promise**\
-`A start-up football school called Christians of Faith, later known as Bishop Sycamore, recruited players from tough neighborhoods with talk of academic help and a path to glory. But the path only led them back to where they started.`\
-https://nytimes.com/2021/12/17/sports/ncaafootball/unfulfilled-promise.html?searchResultPosition=10
+https://nytimes.com/2021/12/17/nyregion/daniel-ranieri-tender-bar.html?searchResultPosition=10
 
