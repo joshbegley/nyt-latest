@@ -1,6 +1,6 @@
 **Climate Change an ‘Emerging Threat’ to U.S. Financial Stability, Regulators Say**\
 `The Financial Stability Oversight Council issued a formal warning on the economic damage that global warming could inflict.`\
-https://nytimes.com/2021/12/17/us/politics/climate-change-an-emerging-threat-to-us-financial-stability-regulators-say.html?searchResultPosition=1
+https://nytimes.com/2021/12/17/us/politics/climate-change-us-financial-threat.html?searchResultPosition=1
 
 **David Arquette Spray Paints Bozo in Brooklyn**\
 `The “Scream” actor is on a mission to make people reconsider clowns — including himself.`\
