@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/17/us/san-francisco-state-of-emergency-crime.html?se
 https://nytimes.com/2021/12/17/movies/kevin-feige-amy-pascal-spider-man-no-way-home.html?searchResultPosition=2
 
 **What’s Better Than Charity?**\
-`Mutual aid fulfills needs, but it also builds stronger, more resilient communities`\
+`Mutual aid fulfills needs, but it also builds stronger, more resilient communities.`\
 https://nytimes.com/2021/12/17/opinion/charity-philanthropy-mutual-aid.html?searchResultPosition=3
 
 **‘Worst Day of My Life’: Daunte Wright’s Mother Testifies in Trial**\
