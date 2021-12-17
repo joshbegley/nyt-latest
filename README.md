@@ -1,4 +1,4 @@
-**The Best of Late Night This Week 🌙**\
+**The Best of Late Night This Week 🌙 **\
 `It was the last week of late-night shows for 2021, and the hosts spent much of it riffing on the House committee’s investigation into the Capitol riot. Here's what they had to say.`\
 https://nytimes.com/interactive/2021/12/17/arts/television/best-of-late-night.html?searchResultPosition=1
 
