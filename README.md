@@ -18,13 +18,13 @@ https://nytimes.com/2021/12/17/business/fed-bond-buying.html?searchResultPositio
 `Dominion, an election technology company, has accused the network of defaming it by spreading false claims that it was involved in rigging vote counts in the 2020 election.`\
 https://nytimes.com/2021/12/17/business/fox-news-dominion-lawsuit.html?searchResultPosition=5
 
-**What to Cook This Weekend**\
-`It’s time for holiday prep with pie, cookies and plans for the big meal.`\
-https://nytimes.com/2021/12/17/dining/what-to-cook-this-weekend.html?searchResultPosition=6
-
 **Coquito, the Puerto Rican Holiday Drink, Available in Frozen Form**\
 `At Torico Ice Cream in Jersey City, N.J., the Berrios family has been serving scoops of their signature flavor since 1970.`\
-https://nytimes.com/2021/12/17/dining/torico-ice-cream-coquito.html?searchResultPosition=7
+https://nytimes.com/2021/12/17/dining/torico-ice-cream-coquito.html?searchResultPosition=6
+
+**What to Cook This Weekend**\
+`It’s time for holiday prep with pie, cookies and plans for the big meal.`\
+https://nytimes.com/2021/12/17/dining/what-to-cook-this-weekend.html?searchResultPosition=7
 
 **On Trump, Truth and Press Coverage**\
 `Responses to a column by Ross Douthat  about Donald Trump, politics and the press. Also: Russia and Ukraine; keeping place names; F.D.R. and Churchill.`\
