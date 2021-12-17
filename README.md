@@ -1,40 +1,40 @@
+**A Love Language Spoken With Hands**\
+`For a deaf man used to broken promises, a video message delivers a fresh start.`\
+https://nytimes.com/2021/12/17/style/modern-love-deaf-sign-language.html?searchResultPosition=1
+
+**Her Easy Confidence Felt Excitingly Familiar**\
+`Geoffrey Bain Hutchinson and Neah Alexandra Morton had a first date five days after matching on a dating app. A mutual chemistry developed even faster.`\
+https://nytimes.com/2021/12/17/style/neah-alexandra-morton-geoffrey-bain-hutchinson-wedding.html?searchResultPosition=2
+
+**Mutual Admiration Forged Their Immediate Connection**\
+`Louis P. Di Cerbo and Dr. Robin G. Stafford met on the dating app Bumble in July 2020. His wife had died several months before, while she was still reeling from a divorce.`\
+https://nytimes.com/2021/12/17/style/louis-p-di-cerbo-robin-g-stafford-wedding.html?searchResultPosition=3
+
+**Life as a Pair Began at His Table for One**\
+`Sandra Sidi had given up on love by the time she walked into a Texas restaurant and caught the eye of Ron Welch, who invited her to sit with him.`\
+https://nytimes.com/2021/12/17/style/sandra-sidi-ron-welch-wedding.html?searchResultPosition=4
+
+**A ‘Super Like’ on Super Bowl Sunday**\
+`Dr. R Everett Frerichs got Tony Harrelson’s attention when he inadvertently sent him a “super like” on Match.com. They were married 10 months later.`\
+https://nytimes.com/2021/12/17/style/r-everett-frerichs-tony-harrelson-wedding.html?searchResultPosition=5
+
+**At First, They Were Up in the Air**\
+`When Bridgette Summers and Andrew Wicks each signed up for an aerial tour of Kauai, neither expected that their favorite sight would be a fellow passenger.`\
+https://nytimes.com/2021/12/17/style/bridgette-summers-andrew-wicks-wedding.html?searchResultPosition=6
+
 **Britain’s Conservatives Lose ‘Safe’ Seat, Dealing Blow to Boris Johnson**\
 `The governing party lost a district it had represented for more than a century.`\
-https://nytimes.com/2021/12/17/world/europe/uk-election-tories-boris-johnson.html?searchResultPosition=1
+https://nytimes.com/2021/12/17/world/europe/uk-election-tories-boris-johnson.html?searchResultPosition=7
 
 **27 Feared Dead in Suspected Arson at Office Building in Japan**\
 `The fire consumed the fourth floor of the building in Osaka, which housed a medical office.`\
-https://nytimes.com/2021/12/16/world/asia/japan-fire-osaka.html?searchResultPosition=2
+https://nytimes.com/2021/12/16/world/asia/japan-fire-osaka.html?searchResultPosition=8
 
 **Defense Contractor Tried to Give Classified Information to Russia, U.S. Says**\
 `John Murray Rowe Jr. was arrested Wednesday on espionage-related charges. The Justice Department said he had exchanged more than 300 emails with an F.B.I. employee posing as a Russian agent.`\
-https://nytimes.com/2021/12/16/us/former-defense-contractor-arrested-espionage.html?searchResultPosition=3
+https://nytimes.com/2021/12/16/us/former-defense-contractor-arrested-espionage.html?searchResultPosition=9
 
 **Variety: Acrostic**\
 `Emily Cox and Henry Rathvon present a jar-dropping acrostic — don’t lapse into a comma!`\
-https://nytimes.com/2021/12/16/crosswords/variety-acrostic.html?searchResultPosition=4
-
-**Offline Activity**\
-`In which we solve an Evans Clinchy puzzle and break into Will Shortz’s house.`\
-https://nytimes.com/2021/12/16/crosswords/daily-puzzle-2021-12-17.html?searchResultPosition=5
-
-**Harvard Extends Test-Optional Admissions Policy for Four Years**\
-`The university joins many others that have eliminated the ACT and SAT requirements, adding fuel to the movement to get rid of standardized test scores.`\
-https://nytimes.com/2021/12/16/us/harvard-admissions-act-sat.html?searchResultPosition=6
-
-**R.N.C. Is Said to Agree to Pay Up to $1.6 Million of Trump’s Personal Legal Bills**\
-`Under the unusual arrangement, the Republican Party is paying to defend the former president as he faces investigations into his private business practices.`\
-https://nytimes.com/2021/12/16/us/politics/rnc-trump-investigations.html?searchResultPosition=7
-
-**Judge Overturns Purdue Pharma’s Opioids Settlement**\
-`The ruling said the company’s owners, members of the Sackler family, could not receive protection from civil lawsuits in return for a $4.5 billion contribution.`\
-https://nytimes.com/2021/12/16/health/purdue-pharma-opioid-settlement.html?searchResultPosition=8
-
-**We Surveyed 1,320 Therapists, and the News Isn’t Good**\
-`Mental health providers are in high demand, and they can’t keep up. Therapists are turning away patients, closing their waiting lists and worrying that things are about to get worse.`\
-https://nytimes.com/2021/12/16/well/mind/mental-health-therapists.html?searchResultPosition=9
-
-**In the Path of the Storm**\
-`Tornadoes leveled communities across 260 miles. Survivors tell the tale.`\
-https://nytimes.com/interactive/2021/12/16/us/path-of-tornadoes.html?searchResultPosition=10
+https://nytimes.com/2021/12/16/crosswords/variety-acrostic.html?searchResultPosition=10
 
