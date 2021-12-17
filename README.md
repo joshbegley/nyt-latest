@@ -31,7 +31,7 @@ https://nytimes.com/2021/12/17/arts/television/comedy-eric-andre-john-wilson-bor
 https://nytimes.com/2021/12/17/arts/design/native-american-enslavement-colorado-exhibition.html?searchResultPosition=8
 
 **Watch Live: Former Minnesota Police Officer Testifies in Her Own Defense**\
-`Kimberly Potter, a former officer in a Minneapolis suburb, faces manslaughter charges after she appeared to mistake her gun for her Taser and fatally shot Daunte Wright.`\
+`Kimberly Potter, a former officer in a Minneapolis suburb, faces manslaughter charges after she appeared to mistake her gun for her Taser and fatally shot Daunte Wright. Warning: The trial may include graphic images and language.`\
 https://nytimes.com/video/us/100000008125398/kim-potter-testimony-livestream.html?searchResultPosition=9
 
 **Tensions run high between lawyers at Maxwell trial.**\
