@@ -1,6 +1,6 @@
 **Judge Overturns Purdue Pharma’s Opioid Settlement**\
 `The ruling said the company’s owners, members of the Sackler family, could not receive protection from civil lawsuits in return for a $4.5 billion contribution.`\
-https://nytimes.com/2021/12/16/health/purdue-pharmas-opioid-settlement.html?searchResultPosition=1
+https://nytimes.com/2021/12/16/health/purdue-pharma-opioid-settlement.html?searchResultPosition=1
 
 **We Surveyed 1,320 Therapists, and the News Isn’t Good**\
 `Mental health providers are in high demand, and they can’t keep up. Therapists are turning away patients, closing their waiting lists and worrying that things are about to get worse.`\
