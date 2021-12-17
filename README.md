@@ -1,6 +1,6 @@
 **For Johnson, a Political Rebuke as Omicron Variant Engulfs Britain**\
 `The prime minister’s Conservative Party lost a seat it had held for more than a century, a loss that could hamper his efforts to address the Omicron variant now sweeping Britain.`\
-https://nytimes.com/2021/12/17/world/europe/britain-johnson-omicron-political-rebuke.html?searchResultPosition=1
+https://nytimes.com/2021/12/17/world/europe/britain-johnson-omicron-politics.html?searchResultPosition=1
 
 **Love Letter: An Unspoken Gesture of Love**\
 `And: a divine connection.`\
