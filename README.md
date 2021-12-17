@@ -1,40 +1,40 @@
+**The 25 Essential Dishes to Eat in New York City**\
+`We asked six chefs and food experts to create a list of the most delicious and memorable plates in town.`\
+https://nytimes.com/2021/12/17/t-magazine/new-york-best-food-restaurants.html?searchResultPosition=1
+
+**Eric Adams Says He Wants to Close Rikers. It May Not Be That Simple.**\
+`The incoming mayor’s anti-crime ideas appear to conflict with a push to cut the jail population, clouding the future of plans to close the troubled complex.`\
+https://nytimes.com/2021/12/17/nyregion/eric-adams-rikers-island.html?searchResultPosition=2
+
+**Penélope Cruz Honored at MoMA Film Benefit**\
+`And: Susanne Bartsch held a toy drive and the New York Botanical Garden hosted a winter gala.`\
+https://nytimes.com/2021/12/17/style/penelope-cruz-moma-film-benefit.html?searchResultPosition=3
+
+**Two Years, 22 Rivers, 7,500 Miles. Crossing America by Canoe.**\
+`Paddling through the pandemic to see the country from water level “up close and personal at this interesting time.”`\
+https://nytimes.com/2021/12/17/nyregion/cross-country-canoe-paddle.html?searchResultPosition=4
+
+**Protect Abortion Rights? Virginia Democrats’ Vacation Plans Get in the Way.**\
+`Some Virginia Democrats want to codify abortion rights into state law in their final weeks in power. But several state senators do not want to upend their travel to Hawaii, Europe and Africa.`\
+https://nytimes.com/2021/12/17/us/politics/virginia-democrats-abortion.html?searchResultPosition=5
+
+**He Bombed the Nazis, Outwitted the Soviets and Modernized Christmas**\
+`Si Spiegel, a bomber pilot, can claim a duel legacy: as a war hero and as a father of the artificial tree.`\
+https://nytimes.com/2021/12/17/nyregion/bomber-pilot-christmas-trees.html?searchResultPosition=6
+
+**Where to Find Holiday Light Shows in New York City**\
+`After last year’s modified displays, Christmas light shows have returned to the city in full force, and they can be found in all five boroughs.`\
+https://nytimes.com/2021/12/17/nyregion/drive-thru-christmas-lights-nyc.html?searchResultPosition=7
+
 **How a Young Film Actor Spends His Sundays**\
 `Daniel Ranieri went from ranting in an online video to being cast in a Hollywood movie. But he still loves sports, games and his ‘gaga’.`\
-https://nytimes.com/2021/12/17/nyregion/daniel-ranieri-tender-bar.html?searchResultPosition=1
+https://nytimes.com/2021/12/17/nyregion/daniel-ranieri-tender-bar.html?searchResultPosition=8
 
-**You Love That House, but Should You Write a Love Letter?**\
-`A common practice in real estate is coming under new scrutiny because of concerns about discrimination. And one state has made it illegal.`\
-https://nytimes.com/2021/12/17/realestate/you-love-that-house-but-should-you-write-a-love-letter.html?searchResultPosition=2
+**Unfulfilled Promise**\
+`A start-up football school called Christians of Faith, later known as Bishop Sycamore, recruited players from tough neighborhoods with talk of academic help and a path to glory. But the path only led them back to where they started.`\
+https://nytimes.com/2021/12/17/sports/ncaafootball/unfulfilled-promise.html?searchResultPosition=9
 
-**The Risk of Avoiding Emerging Markets**\
-`The Omicron outbreak, inflation and monetary tightening are shaking emerging markets. Yet our columnist says it’s risky for long-term investors to shun them.`\
-https://nytimes.com/2021/12/17/business/emerging-markets-stocks-risks.html?searchResultPosition=3
-
-**He’s Prosecuted Pirates and Arms Dealers. Now He’ll Advise Eric Adams.**\
-`Brendan McGuire, a former federal prosecutor in Manhattan who ran an anti-corruption unit, will be Mr. Adams’s chief counsel.`\
-https://nytimes.com/2021/12/17/nyregion/adams-brendan-mcguire-lawyer.html?searchResultPosition=4
-
-**Alex Haley Taught America About Race — and a Young Man How to Write**\
-`In 1968, the celebrated author of “The Autobiography of Malcolm X” arrived at Hamilton College to teach and work on his magnum opus, “Roots.” Now, on the centenary of his birth, a former student recalls Haley’s class.`\
-https://nytimes.com/2021/12/17/books/review/alex-haley-hamilton-college-autobiography-of-malcolm-x-roots.html?searchResultPosition=5
-
-**The Verdict on the Elizabeth Holmes Trial Makeover**\
-`As the fraud trial of the Theranos founder draws to a close, could her new courtroom image affect the decision?`\
-https://nytimes.com/2021/12/17/style/elizabeth-holmes-trial-makeover.html?searchResultPosition=6
-
-**Could Oreo Cookies Solve New York’s Rat Problem?**\
-`They are being used in new high-tech rat traps, which have been spotted around the city.`\
-https://nytimes.com/2021/12/17/nyregion/rat-traps-nyc.html?searchResultPosition=7
-
-**What Shouldn’t Change About Classical Music**\
-`Our chief classical music critic bids farewell with some thoughts about what should be preserved in the field he’s covered for decades.`\
-https://nytimes.com/2021/12/17/arts/classical-music-tommasini.html?searchResultPosition=8
-
-**How the Student Loan Payment Restart Is Going to Work**\
-`Loan payments are about to resume for tens of millions of borrowers. Here’s how to navigate the end of the payment pause — and how to get into a more affordable plan if you need it.`\
-https://nytimes.com/article/student-loan-payment-restart.html?searchResultPosition=9
-
-**Verdi’s Shakespeare Resonates Across Italian Opera Houses**\
-`Glamorous opening nights came with “Macbeth,” “Falstaff” and “Otello” — as well as a new version of “Julius Caesar.”`\
-https://nytimes.com/2021/12/17/arts/music/verdi-shakespeare-opera.html?searchResultPosition=10
+**‘Time We Can’t Get Back’: Stolen at Birth, Chilean Adoptees Uncover Their Past**\
+`Hundreds of Chileans adopted abroad have learned that they were trafficked. Investigators believe thousands of children may have been taken from their parents during Chile’s dictatorship.`\
+https://nytimes.com/2021/12/17/world/americas/chile-adoption-pinochet.html?searchResultPosition=10
 
