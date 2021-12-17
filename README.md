@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/17/briefing/omicron-san-francisco-last-minute-gifts.
 `A handy primer on "emotional intelligence."`\
 https://nytimes.com/interactive/2021/12/17/well/mind/what-is-emotional-intelligence.html?searchResultPosition=4
 
-**Killer Robots Aren’t Science Fiction. A Push to Ban Them is Growing.**\
+**Killer Robots Aren’t Science Fiction. A Push to Ban Them Is Growing.**\
 `A U.N. conference made little headway this week on limiting development and use of killer robots, prompting stepped-up calls to outlaw such weapons with a new treaty.`\
 https://nytimes.com/2021/12/17/world/killer-drone-ban-robot.html?searchResultPosition=5
 
