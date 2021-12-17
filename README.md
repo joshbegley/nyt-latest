@@ -24,7 +24,7 @@ https://nytimes.com/video/us/100000008125398/kim-potter-testimony-livestream.htm
 
 **Tensions run high between lawyers at Maxwell trial.**\
 `At various point during Ghislaine Maxwell’s trial, prosecutors and defense attorneys have engaged in unusually heated spats.`\
-https://nytimes.com/2021/12/17/nyregion/tensions-run-high-between-lawyers-at-maxwell-trial.html?searchResultPosition=7
+https://nytimes.com/2021/12/17/nyregion/lawyers-tension-ghislaine-maxwell-trial.html?searchResultPosition=7
 
 **JPMorgan is fined $200 million after staff used personal chats for company business.**\
 `Employees in the bank’s securities division avoided oversight by discussing company business on their personal devices, two regulators said.`\
