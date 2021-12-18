@@ -34,7 +34,7 @@ https://nytimes.com/2021/12/18/health/ivf-tests-fertility-ingenomix.html?searchR
 `Despite a bid to protect it from a contentious rezoning plan, the Elizabeth Street Garden will be replaced by housing units.`\
 https://nytimes.com/2021/12/18/nyregion/soho-garden-rezoning.html?searchResultPosition=9
 
-**Covid Is Surging. Why Do Only a Third of Americans Have Boosters?**\
-`The C.D.C. now recommends that all U.S. adults get that dose. But the response is lagging, worrying health officials.`\
-https://nytimes.com/2021/12/18/us/omicron-booster-shots-americans.html?searchResultPosition=10
+**The No. 1 Skill Eric Adams Is Looking For (It’s Not on a Résumé)**\
+`The mayor-elect of New York City wants his top officials to be emotionally intelligent, characterizing it as his “No. 1 criteria.”`\
+https://nytimes.com/2021/12/18/nyregion/eric-adams-emotional-intelligence.html?searchResultPosition=10
 
