@@ -1,6 +1,6 @@
 **How Hong Kong’s ‘Patriots Only’ Elections Bolster Beijing’s Grip**\
 `China’s crackdown has driven most of the city’s popular pro-democracy candidates either into police custody or exile. Officials are urging the public to vote, but turnout is expected to be low.`\
-https://nytimes.com/2021/12/18/world/asia/hong-kongs-patriots-elections.html?searchResultPosition=1
+https://nytimes.com/2021/12/18/world/asia/hong-kong-patriots-elections.html?searchResultPosition=1
 
 **Early Decision Isn’t Binding. Let Us Explain.**\
 `If you can’t afford the price a college quotes you, you don’t have to go. We corrected an N.Y.U. blog post and rewrote the Common App for you.`\
