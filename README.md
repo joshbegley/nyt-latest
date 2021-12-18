@@ -1,40 +1,40 @@
-**How Hong Kong’s ‘Patriots Only’ Elections Bolster Beijing’s Grip**\
-`China’s crackdown has driven most of the city’s popular pro-democracy candidates either into police custody or exile. Officials are urging the public to vote, but turnout is expected to be low.`\
-https://nytimes.com/2021/12/18/world/asia/hong-kong-patriots-elections.html?searchResultPosition=1
+**Can a ‘Very Confident’ Carrie Lam Salvage Her Legacy in Hong Kong?**\
+`Mrs. Lam is Hong Kong’s most unpopular leader ever, blamed for mass protests and a political crackdown. Yet she now appears reinvigorated, perhaps even ready for a second term.`\
+https://nytimes.com/2021/12/18/world/asia/carrie-lam-hong-kong.html?searchResultPosition=1
 
-**Early Decision Isn’t Binding. Let Us Explain.**\
-`If you can’t afford the price a college quotes you, you don’t have to go. We corrected an N.Y.U. blog post and rewrote the Common App for you.`\
-https://nytimes.com/2021/12/18/your-money/paying-for-college/early-decision-binding-nyu.html?searchResultPosition=2
+**Map by Map, G.O.P. Chips Away at Black Democrats’ Power**\
+`Black elected officials in several states, from Congress down to the counties, have been drawn out of their districts this year or face headwinds to hold onto their seats.`\
+https://nytimes.com/2021/12/18/us/politics/gop-gerrymandering-black-democrats.html?searchResultPosition=2
 
-**Festive Wear**\
-`Do you have a special holiday outfit?`\
-https://nytimes.com/2021/12/18/learning/festive-wear.html?searchResultPosition=3
+**It’s Been a Home for Decades, but Legal Only a Few Months**\
+`California catches up with the reality that when it’s too hard to play by the rules, people convert the garage into an apartment anyway.`\
+https://nytimes.com/2021/12/18/business/economy/california-housing.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/18/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Why Los Angeles Delayed Enforcing Its Student Vaccine Mandate**\
+`As the deadline for compliance approached, the school board faced a difficult question: What would happen to the tens of thousands of students who were still not vaccinated?`\
+https://nytimes.com/2021/12/18/us/los-angeles-vaccine-mandate-delayed.html?searchResultPosition=4
 
-**Corrections: Dec. 18, 2021**\
-`Corrections that appeared in print on Saturday, Dec. 18, 2021.`\
-https://nytimes.com/2021/12/18/pageoneplus/corrections-dec-18-2021.html?searchResultPosition=5
+**Once a Symbol of U.S. Strength, an Afghan District Now Faces Dire Times**\
+`At the war’s end, residents of Marja are growing increasingly desperate for any kind of help, a frustration that has turned to anger that the international community has seemingly abandoned them.`\
+https://nytimes.com/2021/12/18/world/asia/afghanistan-marja-economy-taliban.html?searchResultPosition=5
 
-**Quotation of the Day: Despair Sets In as Cases Bury Hospital Staffs**\
-`Quotation of the Day for Saturday, December 18, 2021.`\
-https://nytimes.com/2021/12/18/todayspaper/quotation-of-the-day-despair-sets-in-as-cases-bury-hospital-staffs.html?searchResultPosition=6
+**The Year in Limbo**\
+`So much happened it 2021. But did it?`\
+https://nytimes.com/2021/12/18/style/year-in-review-2021.html?searchResultPosition=6
 
-**What if the Longest War Isn’t Over?**\
-`U.S. troops have left Afghanistan. But ongoing American influence is still shaping the country’s future.`\
-https://nytimes.com/2021/12/18/podcasts/afghanistan-sanctions.html?searchResultPosition=7
+**A Popular Test Claims to Boost I.V.F. Success. The Science Is Unclear.**\
+`I.V.F. patients are faced with a growing list of costly “add-ons.” For one such test, some say more robust research is needed to support its effectiveness.`\
+https://nytimes.com/2021/12/18/health/ivf-tests-fertility-ingenomix.html?searchResultPosition=7
 
-**Heavens**\
-`Let’s scratch away at this tricky, tricky debut puzzle by David Distenfeld.`\
-https://nytimes.com/2021/12/17/crosswords/daily-puzzle-2021-12-18.html?searchResultPosition=8
+**They Had a Plan to Save Their SoHo Garden. It Backfired.**\
+`Despite a bid to protect it from a contentious rezoning plan, the Elizabeth Street Garden will be replaced by housing units.`\
+https://nytimes.com/2021/12/18/nyregion/soho-garden-rezoning.html?searchResultPosition=8
 
-**Moderna backs down in its vaccine patent fight with the N.I.H.**\
-`The dispute was over who deserves credit for inventing the central component of the company’s Covid vaccine.`\
-https://nytimes.com/2021/12/17/us/moderna-patent-nih.html?searchResultPosition=9
+**Covid Is Surging. Why Do Only a Third of Americans Have Boosters?**\
+`The C.D.C. now recommends that all U.S. adults get that dose. But the response is lagging, worrying health officials.`\
+https://nytimes.com/2021/12/18/us/omicron-booster-shots-americans.html?searchResultPosition=9
 
-**In Reversal, Nets Will Allow Kyrie Irving to Play Part Time**\
-`Irving remains unvaccinated. He will be eligible to play only road games, except those against the Knicks and the Toronto Raptors.`\
-https://nytimes.com/2021/12/17/sports/basketball/kyrie-irving-nets-covid.html?searchResultPosition=10
+**The No. 1 Skill Eric Adams Is Looking For (It’s Not on a Résumé)**\
+`The mayor-elect of New York City wants his top officials to be emotionally intelligent, characterizing it as his “No. 1 criteria.”`\
+https://nytimes.com/2021/12/18/nyregion/eric-adams-emotional-intelligence.html?searchResultPosition=10
 
