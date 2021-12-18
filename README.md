@@ -2,7 +2,7 @@
 `President Biden came into office vowing to make testing cheap and accessible, but matching supply with demand has been a persistent problem.`\
 https://nytimes.com/2021/12/17/us/politics/covid-tests-omicron.html?searchResultPosition=1
 
-**Appeals Court Reinstates OSHA’s Vaccine Mandate for Workers at Larger Businesses**\
+**Appeals court reinstates OSHA’s vaccine mandate for workers at larger businesses.**\
 `The decision, by a split three-judge panel, overturned a ruling that had blocked a Biden administration rule requiring companies with more than 100 employers mandate vaccinations or testing for their workers.`\
 https://nytimes.com/2021/12/17/business/osha-vaccine-mandate.html?searchResultPosition=2
 
