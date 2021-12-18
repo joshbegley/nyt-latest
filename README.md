@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/17/us/puerto-rico-education-corruption-keleher.html?
 https://nytimes.com/interactive/2021/12/17/sports/sports-to-watch-this-weekend.html?searchResultPosition=2
 
 **Surprise! There’s No Voter Fraud. Again.**\
-`Voter fraud is a lie. New data proves what we’ve long known.`\
+`New data proves what we’ve long known: Claims of widespread voter fraud are a lie.`\
 https://nytimes.com/2021/12/17/opinion/election-vote-fraud-data.html?searchResultPosition=3
 
 **Defense Rests in Ghislaine Maxwell Trial**\
