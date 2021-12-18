@@ -1,40 +1,40 @@
+**In Reversal, Nets Will Allow Kyrie Irving to Play Part Time**\
+`Irving remains unvaccinated. He will be eligible to play only road games, except those against the Knicks and the Toronto Raptors.`\
+https://nytimes.com/2021/12/17/sports/basketball/kyrie-irving-nets-covid.html?searchResultPosition=1
+
 **With Omicron, U.S. Testing Capacity Faces Intense Pressure**\
 `President Biden came into office vowing to make testing cheap and accessible, but matching supply with demand has been a persistent problem.`\
-https://nytimes.com/2021/12/17/us/politics/us-covid-tests-omicron.html?searchResultPosition=1
+https://nytimes.com/2021/12/17/us/politics/us-covid-tests-omicron.html?searchResultPosition=2
 
 **Appeals Court Reinstates OSHA’s Vaccine Mandate for Workers at Larger Businesses**\
 `The decision, by a split three-judge panel, overturned a ruling that had blocked a Biden administration rule requiring companies with more than 100 employers mandate vaccinations or testing for their workers.`\
-https://nytimes.com/2021/12/17/business/osha-vaccine-mandate.html?searchResultPosition=2
+https://nytimes.com/2021/12/17/business/osha-vaccine-mandate.html?searchResultPosition=3
+
+**Novavax vaccine wins emergency approval from the W.H.O.**\
+`The authorization could drastically increase the vaccine supply for low- and middle-income countries.`\
+https://nytimes.com/2021/12/17/world/novavax-vaccine-approval-who.html?searchResultPosition=4
 
 **Family of Former N.F.L. Player Raises Questions About His Death**\
 `Lawyers for the family of Glenn Foster Jr., 31, said his death while in the custody of the Pickens County Sheriff’s Office in Alabama had not resulted from “natural causes.”`\
-https://nytimes.com/2021/12/17/us/glenn-foster-autopsy-strangulation.html?searchResultPosition=3
+https://nytimes.com/2021/12/17/us/glenn-foster-autopsy-strangulation.html?searchResultPosition=5
 
 **Biden Struggles to Beat Back a Resurgent Virus Once Again**\
 `A new variant and vaccine resistance have upended the president’s plans for a hopeful holiday season.`\
-https://nytimes.com/2021/12/17/us/politics/biden-coronavirus-omicron-winter.html?searchResultPosition=4
+https://nytimes.com/2021/12/17/us/politics/biden-coronavirus-omicron-winter.html?searchResultPosition=6
 
 **Rosalie Trombley, Who Picked Hits and Made Stars, Dies at 82**\
 `As music director for CKLW, a major radio station in the Detroit market, she furthered the careers of Alice Cooper, Bob Seger, the Temptations and many others.`\
-https://nytimes.com/2021/12/17/arts/music/rosalie-trombley-dead.html?searchResultPosition=5
+https://nytimes.com/2021/12/17/arts/music/rosalie-trombley-dead.html?searchResultPosition=7
 
 **‘Shopping Cart Killer’ Suspected in Four Deaths, Police Say**\
 `The authorities in Virginia say that Anthony Robinson met his victims via online dating sites and later transported their bodies in shopping carts to dispose of them.`\
-https://nytimes.com/2021/12/17/us/anthony-robinson-shopping-cart-killer-virginia.html?searchResultPosition=6
+https://nytimes.com/2021/12/17/us/anthony-robinson-shopping-cart-killer-virginia.html?searchResultPosition=8
 
 **Former Puerto Rico Education Secretary Is Sentenced to Prison**\
 `Julia Keleher, who had pleaded guilty to conspiracy to commit fraud, said she was “inept” in how she handled some big policy changes in a troubled system.`\
-https://nytimes.com/2021/12/17/us/puerto-rico-education-corruption-keleher.html?searchResultPosition=7
+https://nytimes.com/2021/12/17/us/puerto-rico-education-corruption-keleher.html?searchResultPosition=9
 
 **Sports to Watch This Weekend**\
 `College football bowl games, crucial N.F.L. matchups, the N.C.A.A. women’s volleyball tournament and championship swimming.`\
-https://nytimes.com/interactive/2021/12/17/sports/sports-to-watch-this-weekend.html?searchResultPosition=8
-
-**Surprise! There’s No Voter Fraud. Again.**\
-`New data proves what we’ve long known: Claims of widespread voter fraud are a lie.`\
-https://nytimes.com/2021/12/17/opinion/election-vote-fraud-data.html?searchResultPosition=9
-
-**Defense Rests in Ghislaine Maxwell Trial**\
-`Ms. Maxwell chose not to testify, and her lawyers called a handful of witnesses whose testimony sought to poke holes in the accounts of her accusers.`\
-https://nytimes.com/2021/12/17/nyregion/ghislaine-maxwell-trial-defense-rests.html?searchResultPosition=10
+https://nytimes.com/interactive/2021/12/17/sports/sports-to-watch-this-weekend.html?searchResultPosition=10
 
