@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/18/us/airstrikes-civilian-casualty-files-pentagon.html?searchResultPosition=1
 
 **Military Responses to Questions About U.S. Airstrikes**\
-`This document contains the United States military’s responses to questions about The Times’s airstrikes investigation.`\
+`This document contains the United States military’s responses to questions about The Times’s airstrikes investigation. Comments are from Capt. Bill Urban, spokesman for U.S. Central Command.`\
 https://nytimes.com/interactive/2021/us/military-responses.html?searchResultPosition=2
 
 **The Civilian Casualty Files**\
