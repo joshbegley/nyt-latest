@@ -18,8 +18,8 @@ https://nytimes.com/2021/12/18/sports/baseball/mets-buck-showalter.html?searchRe
 `Why the power of belief, not political imposition, is the key to Christian renewal.`\
 https://nytimes.com/2021/12/18/opinion/christianity-politics.html?searchResultPosition=5
 
-**Fire Consumes at Least Half of Vast QVC Distribution Center**\
-`The blaze began on Saturday morning at a 1.2 million-square-foot building in Rocky Mount, N.C.`\
+**Huge Fire Damages Sprawling QVC Distribution Center**\
+`The blaze, which began on Saturday morning, damaged up to 75 percent of a 1.2 million-square-foot building in Rocky Mount, N.C.`\
 https://nytimes.com/2021/12/18/us/fire-qvc-north-carolina.html?searchResultPosition=6
 
 **The Deals of the Year, 2021 Edition**\
