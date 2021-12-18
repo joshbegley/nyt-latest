@@ -1,6 +1,6 @@
 **Biden Struggles to Beat Back a Resurgent Virus Once Again**\
 `A new variant and vaccine resistance have upended the president’s plans for a hopeful holiday season.`\
-https://nytimes.com/2021/12/17/us/politics/biden-virus-omicron-winter.html?searchResultPosition=1
+https://nytimes.com/2021/12/17/us/politics/biden-coronavirus-omicron-winter.html?searchResultPosition=1
 
 **Rosalie Trombley, Who Picked Hits and Made Stars, Dies at 82**\
 `As music director for CKLW, a major radio station in the Detroit market, she furthered the careers of Alice Cooper, Bob Seger, the Temptations and many others.`\
