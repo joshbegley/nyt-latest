@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/17/sports/basketball/kyrie-irving-nets-covid.html?se
 https://nytimes.com/2021/12/17/us/politics/us-covid-tests-omicron.html?searchResultPosition=4
 
 **Appeals Court Reinstates OSHA’s Vaccine Mandate for Workers at Larger Businesses**\
-`The decision, by a split three-judge panel, overturned an earlier ruling that had blocked a Biden administration rule requiring companies with more than 100 employees mandate vaccinations or testing for their workers.`\
+`The decision, by a split three-judge panel, overturned an earlier ruling that had blocked a Biden administration rule requiring companies with more than 100 employees mandate vaccinations or testing for workers.`\
 https://nytimes.com/2021/12/17/business/osha-vaccine-mandate.html?searchResultPosition=5
 
 **Novavax vaccine wins emergency approval from the W.H.O.**\
