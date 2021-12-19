@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/19/world/middleeast/hamas-israel-gaza-war.html?searc
 `He succeeded Newt Gingrich in the House. As a U.S. senator for 15 years, he was known for championing bipartisan cooperation.`\
 https://nytimes.com/2021/12/19/us/politics/johnny-isakson-dead.html?searchResultPosition=4
 
-**Biden Agenda Sinks Under its Own Ambitions**\
+**Biden Agenda Sinks Under Its Own Ambitions**\
 `A key Democrat’s decision to pull support from the president’s sprawling climate and social agenda is rooted in the scope of the bill.`\
 https://nytimes.com/2021/12/19/business/biden-agenda-ambitions.html?searchResultPosition=5
 
