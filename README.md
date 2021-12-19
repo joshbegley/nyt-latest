@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/18/world/asia/southeast-asian-tourism-covid.html?searchResultPosition=1
 
 **Police Identify Suspect in Arson Fire That Killed 24 in Japan**\
-`A 61-year-old man, hospitalized after the fire at an Osaka clinic, is being investigated on suspicion of arson and murder, Japan’s public broadcaster said.`\
+`A 61-year-old man, hospitalized after the fire at an Osaka psychiatric clinic, is being investigated on suspicion of arson and murder, the police said.`\
 https://nytimes.com/2021/12/18/world/asia/japan-fire-osaka-arson.html?searchResultPosition=2
 
 **David Frost, Brexit Negotiator, Resigns in Another Blow to Boris Johnson**\
