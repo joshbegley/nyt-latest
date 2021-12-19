@@ -1,6 +1,6 @@
 **N.B.A. postpones 5 more games because of a Covid outbreak.**\
 `Dozens of players have entered the N.B.A.’s health and safety protocols over the past two weeks.`\
-https://nytimes.com/2021/12/19/sports/nba-postpones-5-more-games-because-of-a-covid-outbreak.html?searchResultPosition=1
+https://nytimes.com/2021/12/19/sports/nba-games-postponed-covid.html?searchResultPosition=1
 
 **‘Spider-Man: No Way Home’ Ensnares Audiences and Refills Studio Coffers**\
 `After nearly two years of lackluster box office sales for theatrical releases, Spidey breaks through to do what superheroes are supposed to do.`\
