@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/19/business/the-week-in-business-central-banks-infla
 https://nytimes.com/2021/12/19/podcasts/the-daily/climate-change-new-york.html?searchResultPosition=2
 
 **Death Toll From Super Typhoon Rai Is Climbing, Philippine Officials Say**\
-`Nearly 100 people are now believed to have been killed by the storm, and rescuers are still trying to reach some devastated areas.`\
+`More than 140 people are now believed to have been killed by the storm, and rescuers are still trying to reach some devastated areas.`\
 https://nytimes.com/2021/12/19/world/asia/philippines-super-typhoon-rai-odette.html?searchResultPosition=3
 
 **Omicron, E-Sports, Christmas: Your Weekend Briefing**\
