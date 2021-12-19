@@ -27,7 +27,7 @@ https://nytimes.com/2021/12/19/opinion/afghan-refugees-resettlement-us.html?sear
 https://nytimes.com/2021/12/19/opinion/omicron-breakthroughs.html?searchResultPosition=7
 
 **Manchin Pulls Support From Biden’s Social Policy Bill, Imperiling Its Passage**\
-`“I cannot vote to continue with this piece of legislation,” Mr. Manchin said on ‘Fox News Sunday,’ citing concerns about adding to the national debt.`\
+`“I cannot vote to continue with this piece of legislation,” Mr. Manchin said on “Fox News Sunday,” citing concerns about adding to the national debt.`\
 https://nytimes.com/2021/12/19/us/politics/manchin-build-back-better.html?searchResultPosition=8
 
 **A Civil War-Era Time Capsule, Hiding Beneath Lee Since 1887. Maybe.**\
