@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/19/world/europe/uk-lockdown-omicron-covid-boris-johnson.html?searchResultPosition=1
 
 **2 Lynchings Reported at Sikh Temples in India**\
-`One of the mob attacks took place at the Golden Temple, the holiest shrine for Sikhs.`\
+`Enraged mobs attacked men they linked to acts of sacrilege, one at the Golden Temple, the holiest shrine for Sikhs.`\
 https://nytimes.com/2021/12/19/world/asia/sikh-temples-lynching.html?searchResultPosition=2
 
 **Hamas, Claiming Victory Over Israel, Is Stuck in Same Old Cycle**\
