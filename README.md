@@ -18,7 +18,7 @@ https://nytimes.com/2021/12/18/crosswords/daily-puzzle-2021-12-19.html?searchRes
 `President Biden saw more of his judicial nominees confirmed in his first year than any president since Ronald Reagan. The Senate confirmed 18 federal judges in Donald Trump’s first year.`\
 https://nytimes.com/2021/12/18/us/politics/biden-judges-reagan-record.html?searchResultPosition=5
 
-**Omicron surge leads ‘S.N.L.’ to cancel its live audience and a pop star to pull her performance.**\
+**Omicron spike leads ‘S.N.L.’ to cancel its live audience and a pop star to pull her performance.**\
 `The show’s plan to use a ‘limited cast and crew’ made it impossible for the artist Charli XCX to go on.`\
 https://nytimes.com/2021/12/18/world/snl-no-live-audience-covid.html?searchResultPosition=6
 
