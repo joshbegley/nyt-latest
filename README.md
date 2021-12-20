@@ -1,6 +1,6 @@
 **Foreign Drones Tip the Balance in Ethiopia’s Civil War**\
 `Prime Minister Abiy Ahmed pulled off a stunning reversal in the year-old conflict with the help of armed drones supplied by the United Arab Emirates, Turkey and Iran.`\
-https://nytimes.com/2021/12/20/world/africa/drones-ethiopias-war-turkey-emirates.html?searchResultPosition=1
+https://nytimes.com/2021/12/20/world/africa/drones-ethiopia-war-turkey-emirates.html?searchResultPosition=1
 
 **Adele Holds Off Juice WRLD for a Fourth Week at No. 1**\
 `Traditional sales kept the singer’s “30” above “Fighting Demons,” the SoundCloud rapper’s second posthumous album, which dominated on streaming services.`\
