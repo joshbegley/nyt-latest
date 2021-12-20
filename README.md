@@ -34,7 +34,7 @@ https://nytimes.com/2021/12/19/obituaries/eve-babitz-dead.html?searchResultPosit
 `Anne Rowley ties it all together.`\
 https://nytimes.com/2021/12/19/crosswords/daily-puzzle-2021-12-20.html?searchResultPosition=9
 
-**Elizabeth Warren tests positive for the coronavirus.**\
-`The Massachusetts senator noted that she was experiencing mild symptoms and that she had received a booster shot.`\
+**Elizabeth Warren and Cory Booker test positive for the coronavirus.**\
+`Senators Elizabeth Warren of Massachusetts and Cory Booker of New Jersey, both Democrats, said they were vaccinated and had received a booster shot.`\
 https://nytimes.com/2021/12/19/us/elizabeth-warren-covid-positive.html?searchResultPosition=10
 
