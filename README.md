@@ -32,7 +32,7 @@ https://nytimes.com/video/us/politics/100000008128714/nyc-mayor-omicron.html?sea
 
 **Haitian Migrants File Lawsuit Protesting Treatment by Border Patrol**\
 `Images of Border Patrol agents corralling Black migrants prompted criticism of the Biden administration’s response to an influx of thousands in Del Rio, Texas.`\
-https://nytimes.com/2021/12/20/us/politics/haitian-migrants-border-patrol-lawsuit.html?searchResultPosition=9
+https://nytimes.com/2021/12/20/us/politics/haitian-migrants-biden-border-lawsuit.html?searchResultPosition=9
 
 **U.K. Foreign Secretary Inherits Thorny Issue: Northern Ireland Talks**\
 `Liz Truss is taking charge of Brexit talks after the surprise resignation of David Frost. If she is successful, it could give her a significant political boost.`\
