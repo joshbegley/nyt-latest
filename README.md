@@ -1,4 +1,4 @@
-**Carlos Marín, a member of Il Divo, dies at 53.**\
+**Carlos Marín, a Member of Il Divo, Dies at 53.**\
 `Known for his broad vocal register, he was part of a quartet that helped make popular the genre of operatic pop, or “popera.”`\
 https://nytimes.com/2021/12/20/arts/music/carlos-marin-dead.html?searchResultPosition=1
 
