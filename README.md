@@ -18,7 +18,7 @@ https://nytimes.com/2021/12/20/world/europe/pope-domestic-violence-almost-satani
 `The lawsuit argues that the attorney general, Letitia James, has long exhibited a political bias against the former president.`\
 https://nytimes.com/2021/12/20/nyregion/trump-lawsuit-letitia-james.html?searchResultPosition=5
 
-**Watch Live: Closing Arguments Set to Begin in Kimberly Potter Trial**\
+**Watch Live: Lawyers Make Closing Arguments in Kimberly Potter Trial**\
 `The former Minnesota police officer faces manslaughter charges after she appeared to mistake her gun for a Taser and fatally shot Daunte Wright. Warning: The trial footage may include graphic images and language.`\
 https://nytimes.com/video/us/100000008127244/kim-potter-closing-arguments-live.html?searchResultPosition=6
 
