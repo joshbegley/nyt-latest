@@ -1,6 +1,6 @@
 **Carlos Marín, a member of Il Divo, dies at 53.**\
 `Known for his broad vocal register, he was part of a quartet that helped make popular the genre of operatic pop, or “popera.”`\
-https://nytimes.com/2021/12/20/arts/music/carlos-marin-a-member-of-il-divo-dies-at-53.html?searchResultPosition=1
+https://nytimes.com/2021/12/20/arts/music/carlos-marin-dead.html?searchResultPosition=1
 
 **The Human Toll**\
 `U.S. airstrikes have not lived up to their billing.`\
