@@ -1,5 +1,5 @@
 **E.P.A. Announces Tighter Auto Pollution Rules**\
-`Under the new plan, designed to reduce planet-warming tailpipe emissions, new vehicles would required to average 55 miles per gallon starting in 2026.`\
+`Under the new plan, designed to reduce planet-warming tailpipe emissions, new vehicles would be required to average 55 miles per gallon starting in 2026.`\
 https://nytimes.com/2021/12/20/climate/tailpipe-rules-climate-biden.html?searchResultPosition=1
 
 **Cooking Toward Christmas**\
