@@ -2,7 +2,7 @@
 `The Senate majority leader still lacks the votes to alter the filibuster, but he said he will renew the effort to enact voting rights measures as early as the first week of January.`\
 https://nytimes.com/2021/12/20/us/politics/filibuster-senate-voting-rights.html?searchResultPosition=1
 
-**Gabriel Boric is Elected Chile’s Next President**\
+**Gabriel Boric Is Elected Chile’s Next President**\
 `The 35-year-old former student activist is set to become the nation’s youngest leader and its most liberal since President Salvador Allende.`\
 https://nytimes.com/video/world/americas/100000008128397/chile-gabriel-boric-presidential-election.html?searchResultPosition=2
 
