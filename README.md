@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘The Year in Pictures 2021’**\
-`In this lesson, students will explore a visual story of the past 365 days and reflect on the power of photojournalism.`\
-https://nytimes.com/2021/12/20/learning/lesson-plans/lesson-of-the-day-the-year-in-pictures-2021.html?searchResultPosition=1
+**Webb Telescope Prepares to Ascend, With an Eye Toward Our Origins**\
+`The biggest space telescope in history aims to answer astronomy’s oldest question: How did we get from the Big Bang to here?`\
+https://nytimes.com/2021/12/20/science/webb-telescope-astronomy.html?searchResultPosition=1
 
-**To Open Shelters, New York Relied on Landlord With Checkered History**\
-`Mayor Bill de Blasio promised to revamp the homeless shelter system, but some of the main players have not changed.`\
-https://nytimes.com/2021/12/20/nyregion/nyc-homeless-levitan-de-blasio.html?searchResultPosition=2
+**Secret Charms and 7th Sons: ‘The Cure’ Is Alive and Well in Ireland**\
+`Belief in the benefits of the cure, a type of folk medicine that interweaves home remedies with superstition, religion and a sprinkle of magic is still a way of life in pockets of Ireland.`\
+https://nytimes.com/2021/12/20/world/europe/ireland-cure-folk-medicine.html?searchResultPosition=2
 
-**Billions in Amtrak Funding Could Modernize Aging Rail System**\
-`The $1 trillion infrastructure bill that President Biden signed into law includes money that Amtrak hopes can fix crumbling bridges and tunnels along the Northeast Corridor.`\
-https://nytimes.com/2021/12/20/us/politics/amtrak-expansion-funding-infrastructure-bill.html?searchResultPosition=3
+**A Plan Forms in Mexico: Help Americans Get Abortions**\
+`Mexican activists plan to provide women in Texas and other U.S. states with information, support — and abortion-inducing pills.`\
+https://nytimes.com/2021/12/20/world/americas/mexico-abortion-pill-activists.html?searchResultPosition=3
 
-**Whiplash on U.S. Vaccine Mandate Leaves Employers ‘Totally Confused’**\
-`Companies are struggling to figure out what to do as legal battles and rising Covid cases complicate their plans. Even up in the air: What does “fully vaccinated” mean?`\
-https://nytimes.com/2021/12/20/business/company-vaccine-mandates-biden.html?searchResultPosition=4
+**Inside the Campaign to Save an Imperiled Cambodian Rainforest**\
+`Deep in the Southern Cardamom Mountains, former loggers and poachers have assumed new roles as protective rangers and ecotourism guides. Can their efforts help preserve a vast stretch of wilderness?`\
+https://nytimes.com/2021/12/20/travel/cardamom-mountains-wildlife-cambodia.html?searchResultPosition=4
 
-**Is That Sniffle a Cold? Or Is It Covid?**\
-`In New York City, the slightest runny nose has people canceling holiday gatherings and lining up for hours outside coronavirus testing centers.`\
-https://nytimes.com/2021/12/20/nyregion/common-cold-coronavirus-anxiety.html?searchResultPosition=5
+**The Best TV Episodes of 2021**\
+`Among the thousands of hours of television that came out this year, episodes of “Call My Agent,” “For All Mankind,” “Mythic Quest,” “Pose” and “WandaVision,” among others, stood out.`\
+https://nytimes.com/2021/12/20/arts/television/best-tv-episodes-2021.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/20/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**“Schizophrenia” Still Carries a Stigma. Will Changing the Name Help?**\
+`Many people with or connected to the mental illness approve of updating the name, a new survey shows. But some experts are not convinced it’s the answer.`\
+https://nytimes.com/2021/12/20/health/schizophrenia-name-change.html?searchResultPosition=6
 
-**No Corrections: Dec. 20, 2021**\
-`No corrections appeared in print on Monday, Dec. 20, 2021.`\
-https://nytimes.com/2021/12/20/pageoneplus/no-corrections-dec-20-2021.html?searchResultPosition=7
+**‘Q’ Has Been Quiet, but QAnon Lives On**\
+`With the absence of a leader, the movement has transformed into more of a “choose your own adventure” conspiracy theory.`\
+https://nytimes.com/2021/12/20/technology/qanon-conspiracy-movement.html?searchResultPosition=7
 
-**Quotation of the Day: Asian and Black Leaders Unite to End Hate but Split on Policing**\
-`Quotation of the Day for Monday, December 20, 2021.`\
-https://nytimes.com/2021/12/20/todayspaper/quotation-of-the-day-asian-and-black-leaders-unite-to-end-hate-but-split-on-policing.html?searchResultPosition=8
+**To Rein In the Police, Look to the States, Not the Court**\
+`The police almost always win in cases before the Supreme Court. Protections against police overreach will need to come from the state and local level.`\
+https://nytimes.com/2021/12/20/opinion/police-supreme-court-states.html?searchResultPosition=8
 
-**What’s on TV This Week: Kennedy Center Honors and ‘Insecure’**\
-`A recording of this month’s Kennedy Center Honors ceremony debuts on CBS. And HBO’s “Insecure” airs its final episode.`\
-https://nytimes.com/2021/12/20/arts/television/whats-on-tv-this-week-kennedy-center-honors-insecure.html?searchResultPosition=9
+**Let’s Hope What Happened in 2021 Stays in 2021**\
+`From the storming of the Capitol to the advent of Omicron, 2021 has been no one’s idea of a banner year. `\
+https://nytimes.com/2021/12/20/opinion/manchin-omicron-jan-6.html?searchResultPosition=9
 
-**Buying Influence: How China Manipulates Facebook and Twitter**\
-`New documents detail how Chinese officials tap private businesses for online information campaigns, offering a rare glimpse into how China’s vast bureaucracy works to spread propaganda online.`\
-https://nytimes.com/interactive/2021/12/20/technology/china-facebook-twitter-influence-manipulation.html?searchResultPosition=10
+**This Bill Could Save the Lives of Formerly Incarcerated People**\
+`The Medicaid Re-entry Act ought to become law, regardless of the fate of Build Back Better.`\
+https://nytimes.com/2021/12/20/opinion/medicaid-reentry-act.html?searchResultPosition=10
 
