@@ -1,6 +1,6 @@
 **Omicron, Trump, Spider-Man: Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/12/20/briefing/omicron-trump-spider-man-your-monday-evening-briefing.html?searchResultPosition=1
+https://nytimes.com/2021/12/20/briefing/omicron-trump-spider-man.html?searchResultPosition=1
 
 **Fox tightens its vaccine mandate and will no longer allow testing instead.**\
 `The new policy was in keeping with New York City’s vaccination rule for companies in the city.`\
