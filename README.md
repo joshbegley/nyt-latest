@@ -1,40 +1,40 @@
+**Roasted Almond Butters With French Pedigree**\
+`La Tourangelle’s new line of almond butters offers surprising takes on a sandwich spread.`\
+https://nytimes.com/2021/12/20/dining/la-tourangelle-almond-butter.html?searchResultPosition=1
+
+**A Pozole Kit for the Holidays**\
+`Masienda provides the hominy and some of the seasonings for a traditional Mexican stew.`\
+https://nytimes.com/2021/12/20/dining/masienda-pozole-kit.html?searchResultPosition=2
+
+**Leave Holiday Dessert to the Piemaker**\
+`Jaynelle St. Jean’s Pietisserie pies from the Bay Area are now available nationwide.`\
+https://nytimes.com/2021/12/20/dining/pietisserie-pies.html?searchResultPosition=3
+
+**Two New Sources for Food News**\
+`Whetstone, from the writer and television host Stephen Satterfield, has started a podcast and John McDonald, a co-founder of Tasting Table, has a newsletter, Broken Palate.`\
+https://nytimes.com/2021/12/20/dining/whetstone-media-podcast-broken-palate-newsletter.html?searchResultPosition=4
+
+**A Nonalcoholic Spritz Perfect for the Party**\
+`Lyre’s Amalfi Spritz is a fizzy, citrusy and slightly bitter drink that shines from a can or a punch bowl.`\
+https://nytimes.com/2021/12/20/dining/lyres-amalfi-spritz.html?searchResultPosition=5
+
+**This Hybrid Striped Bass Is Raised in Brooklyn**\
+`At Upward Farms in Greenpoint, its hybrid striped bass help its microgreens grow.`\
+https://nytimes.com/2021/12/20/dining/this-hybrid-striped-bass-is-raised-in-brooklyn.html?searchResultPosition=6
+
 **ThighMasters, Jazzercise, Yoga and Other Chapters in the History of Women and Exercise**\
 `In “Let’s Get Physical,” Danielle Friedman writes about ways 20th-century women have worked out, and why.`\
-https://nytimes.com/2021/12/20/books/review-lets-get-physical-danielle-friedman.html?searchResultPosition=1
+https://nytimes.com/2021/12/20/books/review-lets-get-physical-danielle-friedman.html?searchResultPosition=7
 
 **Haiti Missionaries Walked Miles to Escape Kidnappers, Ministry Says**\
 `A spokesman for Christian Aid Ministries described the dramatic escape of 12 missionaries who had been held captive in Haiti for two months. Their account has not been independently verified.`\
-https://nytimes.com/video/world/100000008128739/haiti-missionaries-kidnapped-escape.html?searchResultPosition=2
+https://nytimes.com/video/world/100000008128739/haiti-missionaries-kidnapped-escape.html?searchResultPosition=8
 
 **U.S. and Britain Help Ukraine Prepare for Potential Russian Cyberassault**\
 `Russia has attacked Ukraine’s power grid in the past, and experts say Moscow might take similar steps as it masses troops along the border.`\
-https://nytimes.com/2021/12/20/us/politics/russia-ukraine-cyberattacks.html?searchResultPosition=3
+https://nytimes.com/2021/12/20/us/politics/russia-ukraine-cyberattacks.html?searchResultPosition=9
 
 **Launching Themselves Toward Beijing**\
 `The Dew Tour event in Copper Mountain, Colo., was an important test for 2022 Olympic hopefuls and a big party for the fans.`\
-https://nytimes.com/2021/12/20/sports/olympics/snowboarding-ski-shaun-white-beijing-olympics.html?searchResultPosition=4
-
-**Lawyer for Kimberly Potter: Daunte Wright ‘Caused His Own Death’**\
-`The lead defense lawyer urged jurors to acquit Kimberley Potter on both of the manslaughter charges she faces for the fatal shooting of Daunte Wright, arguing that “a mistake is not a crime.”`\
-https://nytimes.com/video/us/100000008128678/kim-potter-trial-defense-closing-arguments.html?searchResultPosition=5
-
-**Two Pianists, Two Recitals, Two Deeply Personal Statements**\
-`Sara Davis Buechner and Conrad Tao both appeared in New York on Saturday.`\
-https://nytimes.com/2021/12/20/arts/music/piano-recital-buechner-tao.html?searchResultPosition=6
-
-**No ‘Hamilton’ Until After Christmas, as Virus Upends the Performing Arts**\
-`“Aladdin” also announced it would cancel performances through Christmas. The surge in virus cases has halted a variety of performances around the nation.`\
-https://nytimes.com/2021/12/20/theater/hamilton-canceled-coronavirus.html?searchResultPosition=7
-
-**Prosecutor in Kimberly Potter Trial: ‘This Was a Colossal Screw-Up’**\
-`The prosecutor emphasized in her closing arguments that Kimberly Potter, a former police officer, was criminally reckless when she fatally shot Daunte Wright.`\
-https://nytimes.com/video/us/100000008128574/kim-potter-trial-prosecutor-closing-arguments.html?searchResultPosition=8
-
-**‘A Strange Loop’ Won the Pulitzer. Now It’s Coming to Broadway.**\
-`The playwright Michael R. Jackson describes his musical as “a big, Black and queer-ass American Broadway show.”`\
-https://nytimes.com/2021/12/20/theater/a-strange-loop-broadway.html?searchResultPosition=9
-
-**A Panettone Baked in Prison, and It’s One of Italy’s Best**\
-`An employment program near the city of Padua helps inmates develop life skills and earn a substantial wage.`\
-https://nytimes.com/2021/12/20/dining/prison-employment-italy-panettone.html?searchResultPosition=10
+https://nytimes.com/2021/12/20/sports/olympics/snowboarding-ski-shaun-white-beijing-olympics.html?searchResultPosition=10
 
