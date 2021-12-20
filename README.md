@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/20/briefing/coronavirus-briefing-what-happened-today
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2021/12/20/briefing/omicron-trump-spider-man.html?searchResultPosition=4
 
-**Fox tightens its vaccine mandate and will no longer allow testing instead.**\
+**Fox tightens its vaccine rule, removing a test-out option for N.Y.C. office workers.**\
 `The new policy was in keeping with New York City’s vaccination rule for companies in the city.`\
 https://nytimes.com/2021/12/20/business/fox-vaccine-mandate.html?searchResultPosition=5
 
