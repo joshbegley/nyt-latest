@@ -1,4 +1,4 @@
-**No ‘Hamilton’ Until After Christmas, as Virus Upends Performing Arts**\
+**No ‘Hamilton’ Until After Christmas, as Virus Upends the Performing Arts**\
 `Roughly a third of Broadway shows canceled performances over the weekend, and the surge in virus cases has halted a variety of performances around the nation.`\
 https://nytimes.com/2021/12/20/theater/hamilton-canceled-coronavirus.html?searchResultPosition=1
 
