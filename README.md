@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/20/us/miami-cruise-covid.html?searchResultPosition=3
 https://nytimes.com/2021/12/20/world/europe/pope-domestic-violence-almost-satanic.html?searchResultPosition=4
 
 **Trump Sues New York A.G. in Attempt to Stop Inquiry Into His Business**\
-`The attorney general, Letitia James, is seeking to question the former president under oath next month as part of a long-running investigation.`\
+`The lawsuit argues that the attorney general, Letitia James, has long exhibited a political bias against the former president.`\
 https://nytimes.com/2021/12/20/nyregion/trump-lawsuit-letitia-james.html?searchResultPosition=5
 
 **Watch Live: Closing Arguments Set to Begin in Kimberly Potter Trial**\
