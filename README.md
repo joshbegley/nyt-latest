@@ -1,4 +1,4 @@
-**Watch Live: Lawyers Make Closing Arguments in Kimberly Potter Trial**\
+**Watch Live: Closing Arguments Set to Begin in Kimberly Potter Trial**\
 `The former Minnesota police officer faces manslaughter charges after she appeared to mistake her gun for a Taser and fatally shot Daunte Wright. Warning: The trial footage may include graphic images and language.`\
 https://nytimes.com/video/us/100000008127244/kim-potter-closing-arguments-live.html?searchResultPosition=1
 
