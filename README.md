@@ -1,6 +1,6 @@
 **Biden Administration Approves Two Big Solar Projects**\
 `The solar farms, planned for the California desert, would generate enough electricity to power about 132,000 homes, the Interior Department said.`\
-https://nytimes.com/2021/12/21/climate/solar-power-federal-land.html?searchResultPosition=1
+https://nytimes.com/2021/12/21/climate/solar-power-federal-land-california.html?searchResultPosition=1
 
 **Omicron and Holiday Travel: How to Strategize**\
 `Even as the variant surges, the seasonal travel rush seems unstoppable, but there are steps you can take to travel more responsibly and mitigate the health risks for yourself — and others.`\
