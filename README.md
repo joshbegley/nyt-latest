@@ -1,6 +1,6 @@
 **Libya’s Long-Awaited Election Will Most Likely Be Delayed**\
 `A postponement raises the possibility that the oil-rich North African nation could again descend into the fragmentation and violence that have marked the decade since its dictator was toppled.`\
-https://nytimes.com/2021/12/21/world/middleeast/libya-election.html?searchResultPosition=1
+https://nytimes.com/2021/12/21/world/middleeast/libya-election-delay.html?searchResultPosition=1
 
 **An Overlooked Cure for Loneliness**\
 `Science tells us the solution may lie in what we do for others, not ourselves.`\
