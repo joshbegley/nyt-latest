@@ -18,7 +18,7 @@ https://nytimes.com/2021/12/21/us/politics/joe-manchin-biden-agenda.html?searchR
 `Mayor Bill de Blasio and his successor, Eric Adams, are weighing difficult decisions as the city faces another troubling wave of coronavirus cases.`\
 https://nytimes.com/2021/12/21/nyregion/covid-omicron-nyc.html?searchResultPosition=5
 
-**Inmates Can Stay Confined at Home After Covid Emergency, Justice Dept. Says**\
+**Some Inmates Can Stay Confined at Home After Covid Emergency, Justice Dept. Says**\
 `The move reverses a Trump-era decision that would have sent nearly all of the thousands of inmates released to home confinement during the pandemic back to prison.`\
 https://nytimes.com/2021/12/21/us/politics/prison-covid-home-confinement.html?searchResultPosition=6
 
