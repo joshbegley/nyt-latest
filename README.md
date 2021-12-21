@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/21/opinion/letters/civilian-casualties.html?searchRe
 
 **Billionaire Makes Public Break From Mormon Church**\
 `Jeff T. Green, the chief executive of a technology firm, said he was leaving because of the church’s wealth and stance on social issues such as gay rights.`\
-https://nytimes.com/2021/12/21/us/jeff-green-resigns.html?searchResultPosition=4
+https://nytimes.com/2021/12/21/us/jeff-green-resigns-lds.html?searchResultPosition=4
 
 **What Are the Symptoms of Omicron, the New Covid Variant?**\
 `While there are subtle differences between the latest coronavirus strain and previous ones, so far the signs of infection look pretty similar.`\
