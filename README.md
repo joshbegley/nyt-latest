@@ -19,8 +19,8 @@ https://nytimes.com/2021/12/20/nyregion/adams-deputy-mayors-dot.html?searchResul
 https://nytimes.com/2021/12/20/us/politics/ted-cruz-biden-ambassadors.html?searchResultPosition=5
 
 **‘Jagged Little Pill’ to Close on Broadway, Citing Omicron**\
-`The Alanis Morissette musical becomes the first big show felled by the resurgent coronavirus pandemic.`\
-https://nytimes.com/2021/12/20/theater/jagged-little-pill-broadway-closing.html?searchResultPosition=6
+`The Alanis Morissette musical becomes the first big show to be felled by the resurgent coronavirus pandemic.`\
+https://nytimes.com/2021/12/20/theater/jagged-little-pill-shutdown-omicron.html?searchResultPosition=6
 
 **Jurors Weigh Charges Against Kimberly Potter for Killing Daunte Wright**\
 `At issue is whether Ms. Potter, a former police officer, was criminally reckless when she fired a gunshot into Mr. Wright’s chest while seeming to think she was holding her Taser.`\
