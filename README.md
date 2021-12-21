@@ -36,5 +36,5 @@ https://nytimes.com/2021/12/20/nyregion/adams-deputy-mayors-dot.html?searchResul
 
 **Deal With Ted Cruz Sets Stage for Russia Pipeline Fight in Early 2022**\
 `The Texas Republican leveraged his obstruction of diplomatic nominees into a Senate vote that could complicate President Biden’s efforts to defend Ukraine.`\
-https://nytimes.com/2021/12/20/us/politics/ted-cruz-biden-ambassadors.html?searchResultPosition=10
+https://nytimes.com/2021/12/20/us/politics/ted-cruz-biden-ukraine.html?searchResultPosition=10
 
