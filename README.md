@@ -28,7 +28,7 @@ https://nytimes.com/slideshow/2021/12/21/realestate/the-color-purple-house-where
 
 **The $1 Pizza Slice Becomes Inflation’s Latest Victim**\
 `Dollar-slice businesses, a staple of New York City’s dining scene, face an existential crisis as food prices rise at their fastest pace in decades.`\
-https://nytimes.com/2021/12/21/nyregion/nyc-dollar-pizza-inflation.html?searchResultPosition=8
+https://nytimes.com/2021/12/21/nyregion/pizza-inflation.html?searchResultPosition=8
 
 **Lawmakers Urge Tech Companies to ‘Mitigate Harm’ of Suicide Website**\
 `A House committee is seeking briefings from search engines and web-hosting companies whose services might have been leveraged by the site, which has been linked to numerous deaths.`\
