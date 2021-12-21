@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/21/realestate/lachanze-at-home-in-the-color-purple-h
 
 **How the Kremlin Is Militarizing Russian Society**\
 `With a “youth army,” a cathedral honoring the military and state media promoting patriotism, the government is preparing Russians for the possibility of a fight.`\
-https://nytimes.com/2021/12/21/world/europe/russia-putin-ukraine-military.html?searchResultPosition=6
+https://nytimes.com/2021/12/21/world/europe/russia-military-putin-kremlin.html?searchResultPosition=6
 
 **‘The Color Purple’ House Where LaChanze Lives**\
 `The Westchester house where the Tony-winning actor lives is ideally sized for family reunions — and for spending time alone.`\
