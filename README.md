@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/20/theater/jagged-little-pill-broadway-closing.html?
 
 **Jurors Weigh Charges Against Kimberly Potter for Killing Daunte Wright**\
 `At issue is whether Ms. Potter, a former police officer, was criminally reckless when she fired a gunshot into Mr. Wright’s chest while seeming to think she was holding her Taser.`\
-https://nytimes.com/2021/12/20/us/jury-deliberations-kimberly-potter-trial.html?searchResultPosition=6
+https://nytimes.com/2021/12/20/us/kim-potter-trial-jury-deliberates.html?searchResultPosition=6
 
 **Donald Trump said he got a booster shot and his supporters booed.**\
 `At an event in Houston, the former president revealed for the first time publicly that he had received the additional vaccine dose.`\
