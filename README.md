@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/21/arts/music/popcast-tiktok-music-critics-2021.html
 `The settlement, of about $734 million, resolves a lengthy dispute that began when Princess Haya Bint Al Hussein and her two children fled to London in 2019.`\
 https://nytimes.com/2021/12/21/world/europe/princess-haya-sheikh-mohammed-bin.html?searchResultPosition=4
 
-**At Abandoned American Base, a Notorious Prison Lies Empty**\
+**At an Abandoned American Base, a Notorious Prison Lies Empty**\
 `Taliban fighters now guard the prison at Bagram Air Base, which once held thousands of Taliban and Al Qaeda members who were set free in August.`\
 https://nytimes.com/2021/12/21/world/asia/afghanistan-taliban-bagram-prison.html?searchResultPosition=5
 
