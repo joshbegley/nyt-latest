@@ -1,5 +1,5 @@
 **Architects Are the Latest White-Collar Workers to Confront Bosses**\
-`Saying they are overworked and underpaid, architects at a prominent New York firm want to unionize. Others appear eager to follow.`\
+`Saying they are overworked and underpaid, architects at a prominent New York firm want to unionize. Others could follow.`\
 https://nytimes.com/2021/12/21/business/architects-white-collar-union.html?searchResultPosition=1
 
 **How to Find a Coronavirus Test in New York City**\
