@@ -1,5 +1,5 @@
 **British Court Orders Dubai Ruler to Pay £554 Million in Custody Settlement**\
-`The court ruling resolves a lengthy dispute that began when Princess Haya Bint Al Hussein and her two children fled to London in 2019.`\
+`The settlement, of about $734 million, resolves a lengthy dispute that began when Princess Haya Bint Al Hussein and her two children fled to London in 2019.`\
 https://nytimes.com/2021/12/21/world/europe/princess-haya-sheikh-mohammed-bin.html?searchResultPosition=1
 
 **At Abandoned American Base, a Notorious Prison Lies Empty**\
