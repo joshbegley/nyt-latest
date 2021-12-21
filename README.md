@@ -32,7 +32,7 @@ https://nytimes.com/2021/12/21/technology/congress-microsoft-google-suicide-webs
 
 **To Fight Omicron, Biden Plans Aid From Military and 500 Million Tests**\
 `The president is set to unveil his initiatives, which also include creating new federal testing sites and deploying federal vaccinators, in a speech on Tuesday.`\
-https://nytimes.com/2021/12/21/us/politics/biden-speech-omicron-covid.html?searchResultPosition=9
+https://nytimes.com/2021/12/21/us/politics/omicron-covid-biden.html?searchResultPosition=9
 
 **Reporting on a Child’s Fight to Survive**\
 `John Eligon, a correspondent for The Times, examined the obstacles of caring for children with sickle cell disease in developing nations.`\
