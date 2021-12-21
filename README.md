@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/21/opinion/41-ways-to-understand-2021.html?searchRes
 
 **Are Schools Ready for the Next Big Surge?**\
 `Districts say they don’t want to close classrooms again. But the latest wave in Covid-19 cases could challenge the rickety infrastructure that has kept schools running this year.`\
-https://nytimes.com/2021/12/21/us/schools-covid-omicron-closing.html?searchResultPosition=4
+https://nytimes.com/2021/12/21/us/covid-schools.html?searchResultPosition=4
 
 **LaChanze, at Home in ‘The Color Purple’ House**\
 `The Westchester house where the Tony-winning actor lives is ideally sized for family reunions — and for spending time alone.`\
