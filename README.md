@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/21/business/economy/kellogg-union-strike-contract.ht
 
 **Does New York Need a British Steakhouse? Yes, if It’s Hawksmoor.**\
 `A restaurant group in London has planted its flag in Manhattan, a bastion of beef. But this is more than a case of bringing coals to Newcastle.`\
-https://nytimes.com/2021/12/21/dining/restaurant-review-hawksmoor-steakhouse.html?searchResultPosition=3
+https://nytimes.com/2021/12/21/dining/hawksmoor-steakhouse-review.html?searchResultPosition=3
 
 **American Beef, British Sensibility**\
 `The London steakhouse group Hawksmoor sought out locally raised, grass-fed beef for its first American location.`\
