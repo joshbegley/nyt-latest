@@ -16,7 +16,7 @@ https://nytimes.com/video/world/australia/100000008130445/new-zealand-omicron-re
 
 **‘Caroling on the Edge’: A Christmas Tradition Returns**\
 `Last year, most carol singing in Britain was canceled because of the pandemic. This year, a group of roving singers was determined to carry on, despite the Omicron variant.`\
-https://nytimes.com/2021/12/21/arts/music/caroling-christmas-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2021/12/21/arts/music/christmas-caroling-covid.html?searchResultPosition=5
 
 **Designed to Prepare for Cyberattacks, a Panel Wraps Up Its Work**\
 `Some of the Cyberspace Solarium Commission’s work remains unfinished as lawmakers wrestle with how to oversee security of cloud computing providers and other issues.`\
