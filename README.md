@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/21/briefing/asia-omicron-russia-military-tiktok-bran
 
 **Broadway Grosses Dip as Omicron Prompts Some Shows to Cancel**\
 `The surge in coronavirus cases comes at a tough time for the theater industry, which traditionally relies on the holiday season box office.`\
-https://nytimes.com/2021/12/21/theater/broadway-grosses-omicron.html?searchResultPosition=2
+https://nytimes.com/2021/12/21/theater/broadway-covid-omicron.html?searchResultPosition=2
 
 **Darby Penney, Who Crusaded for Better Psychiatric Care, Dies at 68**\
 `She shed light on marginalized people’s lives by examining the contents of suitcases left in the attic of a psychiatric hospital. She went on to become a prominent activist.`\
