@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/20/us/politics/biden-puppy-commander.html?searchResu
 
 **SpaceX reports 132 coronavirus cases at its headquarters in Southern California.**\
 `The infections occurred in Hawthorne, Calif., where the company manages space launches and builds rockets and astronaut capsules.`\
-https://nytimes.com/2021/12/20/science/spacex-covid-elon-musk.html?searchResultPosition=2
+https://nytimes.com/2021/12/20/science/spacex-covid-cases.html?searchResultPosition=2
 
 **76-Year-Old Man Is Charged With 1978 Killing of Queens Girl**\
 `The San Francisco police arrested a man in Colorado in the killing of a 15-year-old girl whose body was found 43 years ago near Golden Gate Park.`\
