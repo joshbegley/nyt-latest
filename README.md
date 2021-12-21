@@ -28,7 +28,7 @@ https://nytimes.com/2021/12/20/us/politics/scott-perry-january-6-committee.html?
 
 **Jan. 6 Committee Weighs Possibility of Criminal Referrals**\
 `The House panel is examining whether there is enough evidence to recommend that the Justice Department pursue cases against Donald J. Trump and others.`\
-https://nytimes.com/2021/12/20/us/politics/jan-6-committee-criminal-referrals.html?searchResultPosition=8
+https://nytimes.com/2021/12/20/us/politics/jan-6-committee-trump-criminal-referral.html?searchResultPosition=8
 
 **Eric Adams Names 5 Women to Top City Hall Posts**\
 `Mayor-elect Eric Adams chose Lorraine Grillo, who is overseeing the city’s pandemic-recovery efforts, as his top deputy mayor.`\
