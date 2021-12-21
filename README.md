@@ -32,7 +32,7 @@ https://nytimes.com/2021/12/21/nyregion/pizza-inflation.html?searchResultPositio
 
 **Lawmakers Urge Tech Companies to ‘Mitigate Harm’ of Suicide Website**\
 `A House committee is seeking briefings from search engines and web-hosting companies whose services might have been leveraged by the site, which has been linked to numerous deaths.`\
-https://nytimes.com/2021/12/21/technology/congress-microsoft-google-suicide-website.html?searchResultPosition=9
+https://nytimes.com/2021/12/21/technology/suicide-website-google.html?searchResultPosition=9
 
 **To Fight Omicron, Biden Plans Aid From Military and 500 Million Tests**\
 `The president is set to unveil his initiatives, which also include creating new federal testing sites and deploying federal vaccinators, in a speech on Tuesday.`\
