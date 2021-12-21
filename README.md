@@ -1,6 +1,6 @@
 **In a Boston Court, a Harsh Spotlight Falls on a Heavyweight of Science**\
 `The trial of Charles Lieber offers a peek inside the world of big-money, big-prestige science as the U.S. cracked down on Chinese funding.`\
-https://nytimes.com/2021/12/21/us/lieber-china-initiative-trial.html?searchResultPosition=1
+https://nytimes.com/2021/12/21/science/lieber-china-initiative-trial.html?searchResultPosition=1
 
 **Jody Williams and Rita Sodi Open Commerce Inn in the West Village**\
 `An offshoot of Sushi Noz in Chelsea, a pop-up boutique from the Greek chef Maria Loi and more restaurant news.`\
