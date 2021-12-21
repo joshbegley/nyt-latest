@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/21/arts/music/christmas-caroling-covid.html?searchRe
 
 **Designed to Prepare for Cyberattacks, a Panel Wraps Up Its Work**\
 `Some of the Cyberspace Solarium Commission’s work remains unfinished as lawmakers wrestle with how to oversee security of cloud computing providers and other issues.`\
-https://nytimes.com/2021/12/21/us/politics/cyber-attacks-commission.html?searchResultPosition=6
+https://nytimes.com/2021/12/21/us/politics/cyber-attack-commission.html?searchResultPosition=6
 
 **The Year of Balenciaga**\
 `From couture to “The Simpsons” and the metaverse, one brand set the style agenda in 2021.`\
