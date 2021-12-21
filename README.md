@@ -1,6 +1,6 @@
 **Man Sentenced to 3 Years Over Threats to Journalists and Politicians**\
 `The same day that Trump supporters stormed the Capitol, Robert Lemke told a congressman’s brother that he was with “armed members near your home,” prosecutors said.`\
-https://nytimes.com/2021/12/21/us/elections/robert-lemke-capitol-riot.html?searchResultPosition=1
+https://nytimes.com/2021/12/21/us/politics/robert-lemke-capitol-riot.html?searchResultPosition=1
 
 **Epidemics: A Force for Life-Changing Innovation**\
 `“Design and Healing” at the Cooper Hewitt shows adaptations to disease through history that shaped health care, behavior and the form of buildings.`\
