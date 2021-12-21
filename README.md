@@ -26,15 +26,15 @@ https://nytimes.com/2021/12/20/us/politics/scott-perry-january-6-committee.html?
 `The House panel is examining whether there is enough evidence to recommend that the Justice Department pursue cases against Donald J. Trump and others.`\
 https://nytimes.com/2021/12/20/us/politics/jan-6-committee-criminal-referrals.html?searchResultPosition=7
 
-**Biden was in close contact with a White House official who later tested positive.**\
-`The president came into contact with the official, who was vaccinated and had received a booster shot, aboard Air Force One.`\
-https://nytimes.com/2021/12/20/us/biden-white-house-official-covid-positive.html?searchResultPosition=8
-
 **Eric Adams Names 5 Women to Top City Hall Posts**\
 `Mayor-elect Eric Adams chose Lorraine Grillo, who is overseeing the city’s pandemic-recovery efforts, as his top deputy mayor.`\
-https://nytimes.com/2021/12/20/nyregion/adams-deputy-mayors-dot.html?searchResultPosition=9
+https://nytimes.com/2021/12/20/nyregion/adams-deputy-mayors-dot.html?searchResultPosition=8
 
 **Deal With Ted Cruz Sets Stage for Russia Pipeline Fight in Early 2022**\
 `The Texas Republican leveraged his obstruction of diplomatic nominees into a Senate vote that could complicate President Biden’s efforts to defend Ukraine.`\
-https://nytimes.com/2021/12/20/us/politics/ted-cruz-biden-ambassadors.html?searchResultPosition=10
+https://nytimes.com/2021/12/20/us/politics/ted-cruz-biden-ambassadors.html?searchResultPosition=9
+
+**‘Jagged Little Pill’ to Close on Broadway, Citing Omicron**\
+`The Alanis Morissette musical becomes the first big show to be felled by the resurgent coronavirus pandemic.`\
+https://nytimes.com/2021/12/20/theater/jagged-little-pill-shutdown-omicron.html?searchResultPosition=10
 
