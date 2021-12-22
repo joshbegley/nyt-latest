@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/22/sports/ncaabasketball/memphis-penny-hardaway-emoni-bates.html?searchResultPosition=1
 
 **A Creamy, Wine-Braised Chicken to Celebrate Simply**\
-`A rich, deluxe meal doesn’t have to be difficult, time consuming or all that expensive, if you don’t want it to be. This simple recipe from Melissa Clark proves it.`\
+`A deluxe meal doesn’t have to be difficult, time consuming or all that expensive, if you don’t want it to be. This recipe from Melissa Clark proves it.`\
 https://nytimes.com/2021/12/22/dining/wine-braised-chicken.html?searchResultPosition=2
 
 **Why It’s Easier Than Ever to Buy a Used Car**\
