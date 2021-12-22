@@ -10,13 +10,13 @@ https://nytimes.com/2021/12/22/world/asia/india-christians-attacked.html?searchR
 `Soaring inflation in Europe is starting to squeeze shopkeepers and consumers. Many are preparing for more price increases in the new year.`\
 https://nytimes.com/2021/12/22/business/paris-france-inflation-prices.html?searchResultPosition=3
 
-**The F.B.I. Deployed Surveillance Teams Inside Portland Protests**\
-`Federal agents infiltrated Portland’s unruly racial justice protests, dressing to blend in and capturing clandestine video. The tactics raised internal concern.`\
-https://nytimes.com/2021/12/22/us/portland-protests-fbi-surveillance.html?searchResultPosition=4
-
 **U.K. System Strained as Health Care Workers Get Covid Themselves**\
 `Hospitals, clinics and ambulance services say infections are winnowing their staffs, straining a system already taxed by nearly two years of dealing with the pandemic.`\
-https://nytimes.com/2021/12/22/world/europe/britain-health-care-covid-nhs.html?searchResultPosition=5
+https://nytimes.com/2021/12/22/world/europe/britain-health-care-covid-nhs.html?searchResultPosition=4
+
+**The F.B.I. Deployed Surveillance Teams Inside Portland Protests**\
+`Federal agents infiltrated Portland’s unruly racial justice protests, dressing to blend in and capturing clandestine video. The tactics raised internal concern.`\
+https://nytimes.com/2021/12/22/us/portland-protests-fbi-surveillance.html?searchResultPosition=5
 
 **Using a City’s Excess Heat to Reduce Emissions**\
 `A district in London has developed an innovative way to divert subway heat for buildings to lower carbon emissions. Other cities are getting creative, as well.`\
