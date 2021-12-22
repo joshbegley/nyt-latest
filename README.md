@@ -6,7 +6,7 @@ https://nytimes.com/2021/12/22/us/california-booster-mandate-feb-1.html?searchRe
 `The actor is happy to upend 100 years of clichés by playing the romantic lead. It’s a liberating change after the series became his life.`\
 https://nytimes.com/2021/12/22/movies/peter-dinklage-cyrano.html?searchResultPosition=2
 
-**National Guard Empties Bedpans and Clips Toenails in New Roles at Understaffed Nursing Homes**\
+**National Guard Empties Bedpans and Clips Toenails at Nursing Homes**\
 `In Minnesota, an ambitious initiative is training hundreds of Guard members to become certified nursing assistants and relieve burned out nursing home workers.`\
 https://nytimes.com/2021/12/22/health/covid-national-guard-nursing-homes.html?searchResultPosition=3
 
