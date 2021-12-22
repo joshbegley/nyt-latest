@@ -24,7 +24,7 @@ https://nytimes.com/audio/2021/12/22/podcasts/DAILY04032017.html?searchResultPos
 
 **F.D.A. Clears Pfizer’s Covid Pill for High-Risk Patients 12 and Older**\
 `The first-of-its-kind treatment, Paxlovid, has been found to be highly protective against severe illness. It could be available within a few days.`\
-https://nytimes.com/2021/12/22/health/pfizer-covid-pill-fda.html?searchResultPosition=7
+https://nytimes.com/2021/12/22/health/pfizer-covid-pill-fda-paxlovid.html?searchResultPosition=7
 
 **NSA Declassifies Internet Surveillance Files from 2011 Case**\
 `The National Security Agency has declassified a batch of previously secret documents related to its “upstream” Internet surveillance system. The New York Times had sought the files in a Freedom of Information Act lawsuit.`\
