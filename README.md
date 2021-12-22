@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/22/health/covid-national-guard-nursing-homes.html?se
 
 **Virus cases spike in New York City jails, where less than half of detainees are vaccinated.**\
 `“The risks to the human beings in our custody are at a crisis level,” the correction commissioner wrote in a letter to lawyers and judges.`\
-https://nytimes.com/2021/12/22/world/rikers-nyc-jails-covid.html?searchResultPosition=5
+https://nytimes.com/2021/12/22/nyregion/rikers-nyc-jails-covid.html?searchResultPosition=5
 
 **Listen to Your Daily Audio Report**\
 `This is how the news should sound. Twenty minutes a day, five days a week, hosted by Michael Barbaro and powered by New York Times journalism.`\
