@@ -1,6 +1,6 @@
-**na**\
-`n/a`\
-https://nytimes.com/paidpost/n-a/watch-the-verizon-5g-ultra-show.html?searchResultPosition=1
+**‘Emily in Paris’ and the City I Thought Was Mine**\
+`At first, our critic was horrified to see Emily at his favorite local haunt. With the Netflix show back for Season 2, he reflects on being just another basic American in Paris.`\
+https://nytimes.com/2021/12/22/arts/television/emily-in-paris-season-two.html?searchResultPosition=1
 
 **Reggaeton and Electronic Music Have a Long History. 2021 Revived It.**\
 `A host of fusions between the two genres arrived this year, with implications for both the underground and the mainstream.`\
