@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/22/nyregion/anne-emerman-dead.html?searchResultPosit
 
 **At Memphis, Virus Setbacks and Mixed Play Put High Hopes in Doubt**\
 `Despite Coach Penny Hardaway and two young N.B.A. prospects, the Tigers have underachieved. They may need to win an automatic bid to get into the N.C.A.A. tournament.`\
-https://nytimes.com/2021/12/22/sports/ncaabasketball/memphis-penny-hardaway-emoni-bates.html?searchResultPosition=3
+https://nytimes.com/2021/12/22/sports/ncaabasketball/memphis-penny-hardaway-vaccination.html?searchResultPosition=3
 
 **A Creamy, Wine-Braised Chicken to Celebrate Simply**\
 `A deluxe meal doesn’t have to be difficult, time consuming or all that expensive, if you don’t want it to be. This recipe from Melissa Clark proves it.`\
