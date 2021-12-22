@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/21/us/politics/manchin-child-tax-credit-biden.html?s
 
 **Omicron Will Surge Despite Biden’s New Plan, Scientists Say**\
 `Public health experts fear that the highly contagious variant cannot be stopped without harsh measures that the public will no longer tolerate.`\
-https://nytimes.com/2021/12/21/health/covid-biden-scientists.html?searchResultPosition=4
+https://nytimes.com/2021/12/21/health/omicron-covid-biden-scientists.html?searchResultPosition=4
 
 **Coronavirus Briefing: What Happened Today**\
 `President Biden’s Omicron strategy.`\
