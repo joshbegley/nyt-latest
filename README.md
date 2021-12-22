@@ -1,40 +1,40 @@
+**3,000 Years Ago, Britain Got Half Its Genes From … France?**\
+`An extensive study of ancient DNA suggests that a wave of newcomers — and perhaps the first Celtic languages — crossed the English Channel three millenniums ago.`\
+https://nytimes.com/2021/12/22/science/archaeology-britain-migration-dna-reich.html?searchResultPosition=1
+
+**U.S. Eases Pressure of Sanctions on Afghanistan**\
+`The Treasury Department issued new “general licenses” to help aid flow as a humanitarian crisis deepens.`\
+https://nytimes.com/2021/12/22/us/politics/afghanistan-sanctions-aid-taliban.html?searchResultPosition=2
+
+**Why These Mexican Fish Do the Wave**\
+`Soccer fans aren’t the only ones on Earth who make waves.`\
+https://nytimes.com/2021/12/22/science/fish-wave-mexico.html?searchResultPosition=3
+
+**What to Cook Right Now**\
+`Melissa Clark dives deep on oysters: “merroir” and recipes for mignonette, cocktail sauce, and oysters Rockefeller.`\
+https://nytimes.com/2021/12/22/dining/what-to-cook-right-now.html?searchResultPosition=4
+
+**Bringing the Chords of Freedom Behind Bars**\
+`Jail Guitar Doors provides prisoners with instruments to improve their lives.`\
+https://nytimes.com/interactive/2021/12/22/opinion/tom-morello-prison-music-programs.html?searchResultPosition=5
+
 **How Can I Make the Holidays Less Exhausting?**\
 `Even without a pandemic, dealing with family dynamics requires preparation and tending to ourselves.`\
-https://nytimes.com/2021/12/22/well/holidays-exhaustion-burnout.html?searchResultPosition=1
+https://nytimes.com/2021/12/22/well/holidays-exhaustion-burnout.html?searchResultPosition=6
 
 **Parenting in 2021? ‘Not Great, Bob!’**\
 `But we can still find ways to cackle with our kids.`\
-https://nytimes.com/2021/12/22/opinion/parenting-covid-vaccinated.html?searchResultPosition=2
+https://nytimes.com/2021/12/22/opinion/parenting-covid-vaccinated.html?searchResultPosition=7
 
 **England Lowers Covid Isolation Requirement**\
 `Health officials reduced the number of days people must isolate after showing Covid-19 symptoms to seven from 10, if they test negative on the sixth and seventh days. The move comes as a surge in the Omicron variant drives up cases.`\
-https://nytimes.com/video/world/europe/100000008131831/england-omicron-isolation-requirement.html?searchResultPosition=3
+https://nytimes.com/video/world/europe/100000008131831/england-omicron-isolation-requirement.html?searchResultPosition=8
 
 **‘Emily in Paris’ and the City I Thought Was Mine**\
 `At first, our critic was horrified to see Emily at his favorite local haunt. With the Netflix show back for Season 2, he reflects on being just another basic American in Paris.`\
-https://nytimes.com/2021/12/22/arts/television/emily-in-paris-season-two.html?searchResultPosition=4
+https://nytimes.com/2021/12/22/arts/television/emily-in-paris-season-two.html?searchResultPosition=9
 
 **Reggaeton and Electronic Music Have a Long History. 2021 Revived It.**\
 `A host of fusions between the two genres arrived this year, with implications for both the underground and the mainstream.`\
-https://nytimes.com/2021/12/22/arts/music/reggaeton-electronic-fusions.html?searchResultPosition=5
-
-**Victory Speech (Hillary’s Version)**\
-`Hillary Clinton delivered an unused election speech. Jennifer Aniston cried at Central Perk. It was a year for watching celebrities reinhabit their past selves.`\
-https://nytimes.com/2021/12/22/arts/hillary-clinton-masterclass.html?searchResultPosition=6
-
-**New York City’s health commissioner will stay on until March, the incoming mayor says.**\
-`The commissioner, Dr. Dave A. Chokshi, will continue to run the health department after Eric Adams becomes mayor on Jan. 1, as the Omicron variant surges. Dr. Ashwin Vasan will succeed Dr. Chokshi in mid-March.`\
-https://nytimes.com/2021/12/22/nyregion/new-york-health-commissioner.html?searchResultPosition=7
-
-**Covid Spoils Another Christmas in the Holy Land**\
-`Israel’s strict border controls have largely barred foreign tourists from entry, but the traditional Jerusalem Santa is managing to bring some local cheer.`\
-https://nytimes.com/2021/12/22/world/middleeast/israel-christmas-covid.html?searchResultPosition=8
-
-**A Ballerina Who Adds to the ‘Palette of What’s Possible’**\
-`Chyrstyn Fentroy was a star at Dance Theater of Harlem before joining Boston Ballet, where she has been promoted to the top rank of principal.`\
-https://nytimes.com/2021/12/22/arts/dance/chyrstyn-fentroy-principal-dancer-boston-ballet.html?searchResultPosition=9
-
-**Reliving the Pain (and Joy, Too) of My Deepest Love Onscreen**\
-`An author wrote about the loss of her fiancé and father of her son. When Denzel Washington stepped in to film that story, the memories flooded back.`\
-https://nytimes.com/2021/12/22/movies/journal-for-jordan-denzel-washington-michael-b-jordan.html?searchResultPosition=10
+https://nytimes.com/2021/12/22/arts/music/reggaeton-electronic-fusions.html?searchResultPosition=10
 
