@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/22/climate/nyt-climate-newsletter-build-back-better.
 
 **Jack Dorsey and venture capitalists clash over the future of cryptocurrency.**\
 `The Twitter co-founder’s comments exposed a rift over the direction of crypto.`\
-https://nytimes.com/2021/12/22/business/jack-dorsey-and-venture-capitalists-clash-over-the-future-of-cryptocurrency.html?searchResultPosition=3
+https://nytimes.com/2021/12/22/business/jack-dorsey-bitcoin-web3-vc.html?searchResultPosition=3
 
 **‘The Velvet Queen’ Review: Searching for an Elusive Leopard**\
 `The documentary follows the photographer Vincent Munier and the writer Sylvain Tesson on a mission to catch a glimpse of a rare snow leopard in Tibet.`\
