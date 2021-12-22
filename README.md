@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/22/technology/big-tech.html?searchResultPosition=3
 `The British star of “Gentleman Jack” is known for going deep on her intensely complex and driven characters. Her latest is confined to a submarine.`\
 https://nytimes.com/2021/12/22/arts/television/vigil-suranne-jones-peacock.html?searchResultPosition=4
 
-**The White House will freeze federal student loan repayments until May 1.**\
+**The White House Will Freeze Federal Student Loan Repayments Until May 1**\
 `The Biden administration, under pressure from Democratic lawmakers, announced a three-month extension, citing the ongoing pandemic.`\
 https://nytimes.com/2021/12/22/your-money/student-loan-pause.html?searchResultPosition=5
 
