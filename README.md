@@ -10,8 +10,8 @@ https://nytimes.com/2021/12/22/technology/big-tech.html?searchResultPosition=2
 `The British star of “Gentleman Jack” is known for going deep on her intensely complex and driven characters. Her latest is confined to a submarine.`\
 https://nytimes.com/2021/12/22/arts/television/vigil-suranne-jones-peacock.html?searchResultPosition=3
 
-**The Biden administration extends a pause on student loan payments.**\
-`White House officials said student loan borrowers would get an extra 90 days, until May 1, before having to resume their payments.`\
+**The White House will freeze federal student loan repayments until May 1.**\
+`The Biden administration, under pressure from Democratic lawmakers, announced a three-month extension, citing the ongoing pandemic.`\
 https://nytimes.com/2021/12/22/your-money/student-loan-pause.html?searchResultPosition=4
 
 **A Soup That Tastes Like Being Home for the Holidays**\
