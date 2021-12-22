@@ -1,40 +1,40 @@
-**Endangered Seal Found on Hawaii Beach Was Shot to Death**\
-`The shooting is the third deliberate seal killing of 2021 on the island of Molokai, investigators said. “Why would somebody do that?” one resident asked.`\
-https://nytimes.com/2021/12/22/us/seal-death-hawaii.html?searchResultPosition=1
+**6 Numbers That Reveal Bill de Blasio’s Legacy on Inequality**\
+`Police stops are down, but homelessness endures. Schools remain segregated, but there are 60,000 prekindergarten slots.`\
+https://nytimes.com/2021/12/22/nyregion/de-blasio-report-card-inequity.html?searchResultPosition=1
 
-**Libya Delays Presidential Election**\
-`The postponement risks further destabilizing the oil-rich North African country, which has been mired in divisions and violence in the decade since Col. Muammar el-Qaddafi was toppled and killed in a revolution.`\
-https://nytimes.com/2021/12/22/world/africa/libya-delays-presidential-election.html?searchResultPosition=2
+**Arrests, Beatings and Secret Prayers: Inside the Persecution of India’s Christians**\
+`“They want to remove us from society,” a Christian farmer said of Hindu extremists. Rising attacks on Christians are part of a broader shift in India, in which minorities feel less safe.`\
+https://nytimes.com/2021/12/22/world/asia/india-christians-attacked.html?searchResultPosition=2
 
-**Dozens Feared Dead After Landslide at Jade Mine in Myanmar**\
-`An official said one person was killed after more than 70 were swept into a lake by mining waste in Hpakant, the center of the country’s secretive jade industry.`\
-https://nytimes.com/2021/12/22/world/asia/myanmar-landslide-jade-mine.html?searchResultPosition=3
+**At a Paris Market, Costs Rise, Even for the Humble Baguette**\
+`Soaring inflation in Europe is starting to squeeze shopkeepers and consumers. Many are preparing for more price increases in the new year.`\
+https://nytimes.com/2021/12/22/business/paris-france-inflation-prices.html?searchResultPosition=3
 
-**Inflation and the Price of a Slice**\
-`Dollar-slice pizzerias face an existential crisis as prices soar for everything from pepperoni to pizza boxes.`\
-https://nytimes.com/2021/12/22/nyregion/inflation-and-the-price-of-a-slice.html?searchResultPosition=4
+**The F.B.I. Deployed Surveillance Teams Inside Portland Protests**\
+`Federal agents infiltrated Portland’s unruly racial justice protests, dressing to blend in and capturing clandestine video. The tactics raised internal concern.`\
+https://nytimes.com/2021/12/22/us/portland-protests-fbi-surveillance.html?searchResultPosition=4
 
-**Why a Chinese Company Dominates Electric Car Batteries**\
-`Beijing gave CATL lavish subsidies, a captive market of buyers and soft regulatory treatment, helping it to control a crucial technology of the future.`\
-https://nytimes.com/2021/12/22/business/china-catl-electric-car-batteries.html?searchResultPosition=5
+**U.K. System Strained as Health Care Workers Get Covid Themselves**\
+`Hospitals, clinics and ambulance services say infections are winnowing their staffs, straining a system already taxed by nearly two years of dealing with the pandemic.`\
+https://nytimes.com/2021/12/22/world/europe/britain-health-care-covid-nhs.html?searchResultPosition=5
 
-**Omicron Is Just Beginning and Americans Are Already Tired**\
-`A sense of dread about the variant’s rapid spread is growing even in places that had experienced a virus lull.`\
-https://nytimes.com/2021/12/22/us/omicron-virus-worry-dread.html?searchResultPosition=6
+**Using a City’s Excess Heat to Reduce Emissions**\
+`A district in London has developed an innovative way to divert subway heat for buildings to lower carbon emissions. Other cities are getting creative, as well.`\
+https://nytimes.com/2021/12/22/world/heat-carbon-emissions-cities.html?searchResultPosition=6
 
-**Menendez’s Son Prepares to Run for His Father’s Old House Seat**\
-`Robert Menendez Jr., 36, has won backing from key Democrats in the northern New Jersey congressional district.`\
-https://nytimes.com/2021/12/22/nyregion/robert-menendez-jr-congress-albio-sires.html?searchResultPosition=7
+**Closing in on the Great One**\
+`As Alex Ovechkin ascends the N.H.L.’s record books, the unthinkable is happening: Wayne Gretzky’s record of 894 goals is in jeopardy. Even Gretzky is certain Ovechkin will pass him.`\
+https://nytimes.com/2021/12/22/sports/hockey/alex-ovechkin-gretzky-goals-record.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/22/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**What Do You Think of Our New Vocabulary Quizzes?**\
+`Here are the 12 “Vocabulary in Context” quizzes we published this fall. How, if at all, should we change them for the spring?`\
+https://nytimes.com/2021/12/22/learning/what-do-you-think-of-our-new-vocabulary-quizzes.html?searchResultPosition=8
 
-**Word of the Day: inevitable**\
-`This word has appeared in 996 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2021/12/22/learning/word-of-the-day-inevitable.html?searchResultPosition=9
+**How to Cope With Medicare’s Rising Costs**\
+`A higher Medicare premium in 2022 is just part of the puzzle of health care costs for older Americans. But there are ways to plan.`\
+https://nytimes.com/2021/12/22/business/medicare-retirement-costs.html?searchResultPosition=9
 
-**She Fled Kabul for a New Life in Kentucky. Then the Tornado Hit.**\
-`On Dec. 11, Bowling Green, Ky. was hit by powerful tornadoes, leading to 16 fatalities. Sodaba Rahmaty and her family were among over two dozen newly arrived Afghans affected by the storm.`\
-https://nytimes.com/video/us/100000008128081/kentucky-tornado-afghan-refugee-video.html?searchResultPosition=10
+**Why Christmas Gifts Are Arriving on Time This Year**\
+`Fears that a disrupted supply chain could wreak havoc on the logistics industry over the holiday turned out to be wrong as many Americans ordered early and shopped in stores.`\
+https://nytimes.com/2021/12/22/business/christmas-gifts-delivery-supply-chain.html?searchResultPosition=10
 
