@@ -1,5 +1,5 @@
-**Britain Lowers Covid Isolation Requirement**\
-`British health officials reduced the number of days people must isolate after showing Covid-19 symptoms to seven from 10, if they test negative on the sixth and seventh days. The move comes as a surge in the Omicron variant drives up cases.`\
+**England Lowers Covid Isolation Requirement**\
+`Health officials reduced the number of days people must isolate after showing Covid-19 symptoms to seven from 10, if they test negative on the sixth and seventh days. The move comes as a surge in the Omicron variant drives up cases.`\
 https://nytimes.com/video/world/europe/100000008131831/england-omicron-isolation-requirement.html?searchResultPosition=1
 
 **‘Emily in Paris’ and the City I Thought Was Mine**\
