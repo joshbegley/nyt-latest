@@ -34,7 +34,7 @@ https://nytimes.com/2021/12/22/crosswords/spelling-bee-forum.html?searchResultPo
 `This word has appeared in 996 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2021/12/22/learning/word-of-the-day-inevitable.html?searchResultPosition=9
 
-**She Fled Kabul for A New Life in Kentucky, Then The Tornado Hit**\
+**She Fled Kabul for a New Life in Kentucky. Then the Tornado Hit.**\
 `On Dec. 11, Bowling Green, Ky. was hit by powerful tornadoes, leading to 16 fatalities. Sodaba Rahmaty and her family were among over two dozen newly arrived Afghans affected by the storm.`\
 https://nytimes.com/video/us/100000008128081/kentucky-tornado-afghan-refugee-video.html?searchResultPosition=10
 
