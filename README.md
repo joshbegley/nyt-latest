@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/23/books/h-jackson-brown-jr-dead.html?searchResultPo
 
 **Toys ‘R’ Us Tries to Come Back, Four Years After Bankruptcy**\
 `The retailer, which had closed all its U.S. stores, has resurfaced at the American Dream mall in New Jersey, just in time for the holidays.`\
-https://nytimes.com/2021/12/23/business/toysrus-american-dream-mall.html?searchResultPosition=5
+https://nytimes.com/2021/12/23/business/toys-r-us-american-dream-mall.html?searchResultPosition=5
 
 **Trump Asks Supreme Court to Block Release of Jan. 6 Records**\
 `The case is a constitutional clash on the scope of executive privilege and on whether a former president may invoke it when the current one has waived it.`\
