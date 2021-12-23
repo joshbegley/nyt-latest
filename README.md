@@ -3,8 +3,8 @@
 https://nytimes.com/video/us/100000008130831/kim-potter-daunte-wright-verdict-reactions.html?searchResultPosition=1
 
 **How often do officers confuse a gun with a Taser?**\
-`By Nicholas Bogel-Burroughs`\
-https://nytimes.com/2021/12/23/us/how-often-do-officers-confuse-a-gun-with-a-taser.html?searchResultPosition=2
+`Incidents in which police officers mistakenly fired their guns when they meant to draw their Tasers have not been common, but there have been several in recent years.`\
+https://nytimes.com/2021/12/23/us/kim-potter-gun-taser.html?searchResultPosition=2
 
 **Our Favorite Sports Photos of 2021**\
 `We asked some of our photographers to choose their favorite sports images that they made this year and tell us why they liked them.`\
