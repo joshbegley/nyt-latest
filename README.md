@@ -1,6 +1,6 @@
 **For 2nd Time This Week, a Deadly Crash of a Migrant Boat Off Greece**\
 `Ninety people were left stranded after Thursday’s accident. The crash came in a week that also saw scores of migrants die in wrecks off the coast of Libya.`\
-https://nytimes.com/2021/12/23/world/migrant-boat-crash-greece.html?searchResultPosition=1
+https://nytimes.com/2021/12/23/world/europe/migrant-boat-crash-greece.html?searchResultPosition=1
 
 **How Much Watching Time Do You Have This Weekend?**\
 `This holiday weekend, catch the series finale of “Insecure” or a supremely chill show about restoring family heirlooms.`\
