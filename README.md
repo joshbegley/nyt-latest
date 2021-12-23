@@ -2,7 +2,7 @@
 `U.S. officials say intelligence sharing is essential to the Ukrainian government’s survival, even as they try to avoid escalating the situation.`\
 https://nytimes.com/2021/12/23/us/politics/russia-ukraine-military-biden.html?searchResultPosition=1
 
-**In an Evolutionary Race to Dominate the Seas Ichthyosaurs Were the Winners**\
+**In an Evolutionary Race to Dominate the Seas, Ichthyosaurs Were the Winners**\
 `Scientists have described a giant new species of ichthyosaur that evolved its 55-foot-long body size only a few million years after the lizards returned to the seas.`\
 https://nytimes.com/2021/12/23/science/ichthyosaurs-whales-evolution.html?searchResultPosition=2
 
