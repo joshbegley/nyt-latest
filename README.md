@@ -24,7 +24,7 @@ https://nytimes.com/2021/12/23/opinion/culture/holiday-feasting-rich-poor.html?s
 
 **Watch Live: Reactions After Jury’s Decision in Kimberly Potter Trial**\
 `The defense lawyers for Kimberly Potter, prosecutors and Daunte Wright’s family are expected to deliver remarks after the jury convicted Ms. Potter on two counts of manslaughter.`\
-https://nytimes.com/video/us/100000008130831/kim-potter-daunte-wright-verdict-reactions.html?searchResultPosition=7
+https://nytimes.com/video/embedded/us/100000008130831/kim-potter-daunte-wright-verdict-reactions.html?searchResultPosition=7
 
 **How often do officers confuse a gun with a Taser?**\
 `Incidents in which police officers mistakenly fired their guns when they meant to draw their Tasers have not been common, but there have been several in recent years.`\
