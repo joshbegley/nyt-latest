@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/23/us/exxon-mobil-fire-baytown-texas.html?searchResu
 
 **Fury in China After an Outspoken Teacher Disappears**\
 `Supporters of Li Tiantian believe that local officials may have sent her to a psychiatric hospital, a longstanding way of stifling and discrediting dissent.`\
-https://nytimes.com/2021/12/23/world/asia/china-teacher-disappeared.html?searchResultPosition=6
+https://nytimes.com/2021/12/23/world/asia/li-tiantian-disappearance.html?searchResultPosition=6
 
 **The Artists We Lost in 2021, in Their Words**\
 `Some artists held the spotlight for generations. Others left us lamenting careers cut short. Here is a tribute to those we lost this year.`\
