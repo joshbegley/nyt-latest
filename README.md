@@ -1,5 +1,5 @@
-**The Dream of Eating a Whole Plate of Shrimp Cocktail by Yourself**\
-`It can come true: Making this retro appetizer at home, and doing it perfectly, gives you the wherewithal to eat a lot of a really good thing.`\
+**Make Shrimp Cocktail for Others, or Just for Yourself**\
+`Preparing this retro appetizer at home, and doing it perfectly, gives you the wherewithal to eat a lot of a really good thing.`\
 https://nytimes.com/2021/12/23/dining/shrimp-cocktail-recipe.html?searchResultPosition=1
 
 **Omicron Drives U.S. Virus Cases Past Delta’s Peak**\
