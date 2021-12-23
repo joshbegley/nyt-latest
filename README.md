@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/23/briefing/coronavirus-briefing-what-happened-today
 https://nytimes.com/video/us/100000008134379/kim-potter-verdict-attorney-general.html?searchResultPosition=4
 
 **Texas Board Withdraws Clemency Recommendation for George Floyd**\
-`The Texas Board of Pardons and Paroles said it had made “procedural errors” when it issued a recommendation that Mr. Floyd be posthumously pardoned for a 2004 drug conviction in Houston.`\
+`The Texas Board of Pardons and Paroles said it had made “procedural errors” when it issued a recommendation that Mr. Floyd be posthumously pardoned for a 2004 drug conviction.`\
 https://nytimes.com/2021/12/23/us/george-floyd-posthumous-pardon.html?searchResultPosition=5
 
 **Capital One settles a class-action lawsuit for $190 million in a 2019 hacking.**\
