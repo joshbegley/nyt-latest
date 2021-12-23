@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/23/books/a-guide-to-joan-didions-books.html?searchRe
 
 **Joan Didion Chronicled American Disorder With Her Own Unmistakable Style**\
 `The generation-defining essayist and novelist was preoccupied with mythos — and gifted at fashioning her own.`\
-https://nytimes.com/2021/12/23/books/joan-didion-appraisal.html?searchResultPosition=2
+https://nytimes.com/2021/12/23/books/death-of-joan-didion.html?searchResultPosition=2
 
 **Joan Didion, ‘New Journalist’ Who Explored Culture and Chaos, Dies at 87**\
 `She established a distinctive voice in American fiction before turning to political reporting and screenplay writing. But it was California, her native state, that provided her with her richest material.`\
