@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/23/us/older-people-omicron-virus-holidays.html?searc
 
 **Merck’s Covid pill is cleared for high-risk adults.**\
 `The F.D.A. said the drug could be used when alternate treatment options were “not accessible or clinically appropriate.”`\
-https://nytimes.com/2021/12/23/business/mercks-covid-pill-fda.html?searchResultPosition=3
+https://nytimes.com/2021/12/23/business/pill-covid.html?searchResultPosition=3
 
 **In Washington, a Princess Party and a Carnival of Self-Loathing**\
 `Two shows with Broadway aspirations, “Once Upon a One More Time” and “A Strange Loop,” represent opposite extremes of what a big, mainstream production can be.`\
