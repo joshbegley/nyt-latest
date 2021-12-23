@@ -18,7 +18,7 @@ https://nytimes.com/2021/12/23/business/dealbook/plan-for-long-retirement.html?s
 `A new documentary tries to unpack how $200 million went unaccounted for after the Canadian cryptocurrency entrepreneur Gerald W. Cotten died.`\
 https://nytimes.com/2021/12/23/movies/dead-mans-switch-a-crypto-mystery-review.html?searchResultPosition=5
 
-**Intel apologizes over statement on forced labor in Xinjiang.**\
+**Intel apologizes over its statement on forced labor in Xinjiang.**\
 `The chip maker sought to walk back a statement saying it could not use labor or goods from Xinjiang, where the United States has said China’s repression of Uyghurs amounts to genocide.`\
 https://nytimes.com/2021/12/23/business/intel-apology-china-xinjiang.html?searchResultPosition=6
 
