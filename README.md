@@ -28,7 +28,7 @@ https://nytimes.com/2021/12/23/briefing/covids-risk-to-older-adults.html?searchR
 
 **Thomas Kinsella, Evocative Irish Poet, Is Dead at 93**\
 `His work — difficult and often contentious — was likened to the prose of James Joyce for its sense of place. He was also a translator of ancient texts, including the Tain Bo Cuailnge.`\
-https://nytimes.com/2021/12/23/obituaries/thomas-kinsella-dead.html?searchResultPosition=8
+https://nytimes.com/2021/12/23/books/thomas-kinsella-dead.html?searchResultPosition=8
 
 **Public Streets Are the Lab for Self-Driving Experiments**\
 `When the U.S. ordered companies to report accidents involving driver-assistance tech, Tesla was thought to be the motivation. But 108 companies were listed, showing how widespread the testing may be.`\
