@@ -27,7 +27,7 @@ https://nytimes.com/2021/12/23/us/kim-potter-gun-taser.html?searchResultPosition
 https://nytimes.com/video/us/100000008134043/kim-potter-trial-verdict.html?searchResultPosition=7
 
 **The New Year’s Eve party in Times Square is scaled back as Omicron spreads.**\
-`The authorities will allow in only about 15,000 people. Usually, the crowd numbers around 58,000.`\
+`The authorities will require masks and limit the crowd to 15,000 people.`\
 https://nytimes.com/2021/12/23/nyregion/times-square-new-years-eve-party-covid.html?searchResultPosition=8
 
 **Our Favorite Sports Photos of 2021**\
