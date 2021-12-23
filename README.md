@@ -35,6 +35,6 @@ https://nytimes.com/2021/12/22/health/covid-omicron-delta-hospitalizations.html?
 https://nytimes.com/interactive/2021/12/22/opinion/us-politics-quiz.html?searchResultPosition=9
 
 **Supreme Court to Hold Special Hearing on Biden Vaccine Mandates**\
-`Challengers say vaccination or testing requirements at large employers and for health care workers were not authorized by Congress.`\
+`Challengers say vaccination-or-testing requirements at large employers and for health care workers were not authorized by Congress.`\
 https://nytimes.com/2021/12/22/us/politics/osha-vaccine-mandate-supreme-court.html?searchResultPosition=10
 
