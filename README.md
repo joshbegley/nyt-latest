@@ -1,6 +1,6 @@
 **Kimberly Potter is convicted on two charges of manslaughter in the death of Daunte Wright.**\
 `The prosecution and defense had agreed that the shooting was a mistake and that Ms. Potter, who is white, had meant to draw her Taser when she fatally shot Mr. Wright, a 20-year-old Black man, during a traffic stop.`\
-https://nytimes.com/2021/12/23/us/kimberly-potter-is-convicted-of-manslaughter-in-death-of-daunte-wright.html?searchResultPosition=1
+https://nytimes.com/2021/12/23/us/manslaughter-kim-potter-verdict.html?searchResultPosition=1
 
 **… and a Merry Christmas From the ‘Patriots’ of Jan. 6**\
 `Holiday cards from defendants awaiting trial on charges related to the Capitol riot reflect their status as symbolic martyrs for the Republican base.`\
