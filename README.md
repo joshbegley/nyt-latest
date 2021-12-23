@@ -12,7 +12,7 @@ https://nytimes.com/article/tests-covid-omicron-pcr-rapid.html?searchResultPosit
 
 **Amazon Reaches Labor Deal, Giving Workers More Power to Organize**\
 `The agreement’s national scope and its concessions to organizing go further than any previous settlement that the e-commerce giant has made.`\
-https://nytimes.com/2021/12/23/technology/amazon-labor-deal.html?searchResultPosition=4
+https://nytimes.com/2021/12/23/business/amazon-labor-deal.html?searchResultPosition=4
 
 **The Shoes of Our Lost Icons Are Still Full of Life**\
 `A look at the indelible footprints of Hank Aaron, Virgil Abloh, Halyna Hutchins and more.`\
