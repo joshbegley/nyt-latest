@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/23/well/mind/having-fun-suceeding-coronavirus-pandem
 https://nytimes.com/2021/12/23/movies/american-underdog-review.html?searchResultPosition=4
 
 **As Omicron Spreads, Older Americans Display a Mix of Worry and Resolve**\
-`They are at higher risk at becoming seriously ill from the virus, but they also want don’t want to ‘stop doing the things that are most important.’`\
+`They are at higher risk at becoming seriously ill from the virus, but they also don’t want to ‘stop doing the things that are most important.’`\
 https://nytimes.com/2021/12/23/us/older-people-omicron-virus-holidays.html?searchResultPosition=5
 
 **Merck’s Covid pill is cleared for high-risk adults.**\
