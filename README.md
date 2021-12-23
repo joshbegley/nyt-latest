@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/23/movies/american-underdog-review.html?searchResult
 https://nytimes.com/2021/12/23/us/older-people-omicron-virus-holidays.html?searchResultPosition=3
 
 **Merck’s Covid pill is cleared for high-risk adults.**\
-`The F.D.A. said the drug could be used when alternate treatment options were “not accessible or clinically appropriate.”`\
+`The F.D.A. said the drug was not a preferred treatment, but could be used when alternate treatment options were “not accessible or clinically appropriate.”`\
 https://nytimes.com/2021/12/23/business/pill-covid.html?searchResultPosition=4
 
 **In Washington, a Princess Party and a Carnival of Self-Loathing**\
