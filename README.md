@@ -1,40 +1,40 @@
-**At Putin News Conference, a Search for Signals on Ukraine**\
-`At his annual appearance, President Vladimir V. Putin made comments intended to sway a domestic audience.`\
-https://nytimes.com/2021/12/23/world/europe/russia-putin-ukraine.html?searchResultPosition=1
+**The Artists We Lost in 2021, in Their Words**\
+`Some artists held the spotlight for generations. Others left us lamenting careers cut short. Here is a tribute to those we lost this year.`\
+https://nytimes.com/2021/12/23/arts/artists-who-died-2021.html?searchResultPosition=1
 
-**Grieving Our Old Normal**\
-`How do we mourn everything we’ve lost to Covid?`\
-https://nytimes.com/video/opinion/100000008101567/covid-pandemic-grief.html?searchResultPosition=2
+**‘It Felt So New York’: One Year on the Subway**\
+`The city has begun to recover from the pandemic in fits and starts. Throughout, the world underneath the streets has mirrored the suffering, and joys, of the city above.`\
+https://nytimes.com/2021/12/23/nyregion/nyc-subway-photos.html?searchResultPosition=2
 
-**The Mayor and the ‘Tale of Two Cities’**\
-`Bill de Blasio, whose term ends in little more than a week, promised to reduce inequality in a city divided along the fault lines of extreme wealth and poverty.`\
-https://nytimes.com/2021/12/23/nyregion/the-mayor-and-the-tale-of-two-cities.html?searchResultPosition=3
+**Omicron is prompting rich nations to expand booster access. That may prolong the pandemic, the W.H.O. warns.**\
+`By Azi Paybarah`\
+https://nytimes.com/2021/12/23/world/omicron-boosters-who.html?searchResultPosition=3
 
-**Gen Z Channels the 1990s**\
-`The icons and fashions of the fin de siecle are objects of fascination for those who didn’t experience them the first time around. Here’s what they say about why.`\
-https://nytimes.com/2021/12/23/style/gen-z-1990s.html?searchResultPosition=4
+**How to Catch a Polar Bear**\
+`First, spot the bear.`\
+https://nytimes.com/2021/12/23/science/polar-bears-svalbard.html?searchResultPosition=4
 
-**Drama! Divas! Dates! A New Generation of Fans Discovers the Opera**\
-`Drawn by cheaper tickets and a sense of glamour, New Yorkers in their 20s and 30s are making their way to the Met this season, many of them for the first time.`\
-https://nytimes.com/2021/12/23/style/metropolitan-opera-new-generation.html?searchResultPosition=5
+**The Evolution of the Foul**\
+`The N.B.A. foul is never set in stone. As players reinvent the game, the officiating changes, too.`\
+https://nytimes.com/2021/12/23/sports/basketball/nba-fouls.html?searchResultPosition=5
 
-**Americans Hunt for Virus Tests and the Assurance of Safe Holiday Gatherings**\
-`Supply shortages, financial barriers and misinformation are still stopping some Americans from getting a test.`\
-https://nytimes.com/2021/12/23/us/us-covid-test-availability.html?searchResultPosition=6
+**Heir Apparent or Afterthought? The Frustrations of Kamala Harris.**\
+`The vice president’s allies are increasingly concerned that President Biden relied on her to win but does not need her to govern.`\
+https://nytimes.com/2021/12/23/us/politics/kamala-harris-biden-administration.html?searchResultPosition=6
 
-**As Workers Gain Pay Leverage, Nonprofits Can’t Keep Up**\
-`Schools and social assistance agencies face staffing shortages as they compete with businesses able to raise wages — and services are suffering.`\
-https://nytimes.com/2021/12/23/business/economy/nonprofit-jobs-wages.html?searchResultPosition=7
+**Beneath a Covid Vaccine Debacle, 30 Years of Government Culpability**\
+`Washington has rejected plans to revamp vaccine preparedness for decades and repeatedly paid a price. The Biden administration is at a similar crossroads.`\
+https://nytimes.com/2021/12/23/us/vaccine-hub-government-culpability.html?searchResultPosition=7
 
-**Jewels Made to Be Worn, All Day, Every Day**\
-`Malu Byrne and Rick Van Streain Low, the designers behind En Studio, have created a polished jewelry line with a casual perspective.`\
-https://nytimes.com/2021/12/23/style/jewels-made-to-be-worn-all-day-every-day.html?searchResultPosition=8
+**Welcome to the Charles Dickens Luxury Apartments**\
+`Want to understand London’s economic transformation? Have a look around the condo conversion of the workhouse that inspired “Oliver Twist.”`\
+https://nytimes.com/2021/12/23/business/dickens-condos-oliver-twist-workhouse.html?searchResultPosition=8
 
-**Of Mouth Molds and Michelin Stars: Chef Finds Fame After Epic Takedown**\
-`Panned by a prominent blogger, the Italian restaurant Bros’ and its celebrity chef became a global target for critics of pretentious cuisine. There was a good side for him.`\
-https://nytimes.com/2021/12/23/world/europe/bros-restaurant-review-geraldine-deruiter.html?searchResultPosition=9
+**Inside the Mind of Kyler Murray**\
+`He is the N.F.L.’s Gatsby, mysterious and magnetic, with a brain hard-wired to win. Ask him about the touchdown pass he meticulously mapped out in his mind five days before he threw it.`\
+https://nytimes.com/2021/12/23/sports/football/inside-the-mind-of-kyler-murray.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/23/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**Why Even a 40% Tax Break Won’t Move Japan’s Employers to Raise Pay**\
+`The country’s prime minister says lifting long-stagnant wages would jump-start the sputtering economy. Companies call the plan a nonstarter.`\
+https://nytimes.com/2021/12/23/business/japan-wages-kishida-economy.html?searchResultPosition=10
 
