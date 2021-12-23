@@ -1,4 +1,4 @@
-**Make Shrimp Cocktail for Others, or Just for Yourself**\
+**You Don’t Need a Party to Make Shrimp Cocktail**\
 `Preparing this retro appetizer at home, and doing it perfectly, gives you the wherewithal to eat a lot of a really good thing.`\
 https://nytimes.com/2021/12/23/dining/shrimp-cocktail-recipe.html?searchResultPosition=1
 
