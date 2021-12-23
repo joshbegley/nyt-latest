@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/23/podcasts/the-daily/the-year-in-sound.html?searchR
 
 **What Does It Mean to Be ‘Fully Vaccinated’ Against Covid-19?**\
 `With all the uncertainty around the Omicron variant, vaccine guidelines are evolving.`\
-https://nytimes.com/2021/12/23/health/definition-of-fully-vaccinated-covid.html?searchResultPosition=5
+https://nytimes.com/article/fully-vaccinated-covid.html?searchResultPosition=5
 
 **Multiple People Injured in Fire at Oil Refinery in Texas**\
 `The complex in Baytown is about 25 miles east of Houston.`\
