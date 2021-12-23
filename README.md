@@ -34,7 +34,7 @@ https://nytimes.com/2021/12/23/us/vaccine-hub-government-culpability.html?search
 `Want to understand London’s economic transformation? Have a look around the condo conversion of the workhouse that inspired “Oliver Twist.”`\
 https://nytimes.com/2021/12/23/business/dickens-condos-oliver-twist-workhouse.html?searchResultPosition=9
 
-**Inside the Mind of Kyler Murray**\
-`He is the N.F.L.’s Gatsby, mysterious and magnetic, with a brain hard-wired to win. Ask him about the touchdown pass he meticulously mapped out in his mind five days before he threw it.`\
-https://nytimes.com/2021/12/23/sports/football/inside-the-mind-of-kyler-murray.html?searchResultPosition=10
+**Why Even a 40% Tax Break Won’t Move Japan’s Employers to Raise Pay**\
+`The country’s prime minister says lifting long-stagnant wages would jump-start the sputtering economy. Companies call the plan a nonstarter.`\
+https://nytimes.com/2021/12/23/business/japan-wages-kishida-economy.html?searchResultPosition=10
 
