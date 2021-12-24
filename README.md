@@ -31,7 +31,7 @@ https://nytimes.com/2021/12/23/world/asia/south-korea-park-geun-hye-pardon.html?
 https://nytimes.com/2021/12/23/us/politics/medicaid-work-requirements-georgia-biden.html?searchResultPosition=8
 
 **Former Boston College Student Gets Suspended Sentence in Boyfriend’s Suicide**\
-`Inyoung You pleaded guilty to involuntary manslaughter in the suicide of her college boyfriend, whom she had sent tens of thousands of abusive text messages.`\
+`Inyoung You pleaded guilty to involuntary manslaughter in the suicide of her college boyfriend, to whom she had sent tens of thousands of abusive text messages.`\
 https://nytimes.com/2021/12/23/us/inyoung-you-boston-college-suicide-guilty-plea.html?searchResultPosition=9
 
 **Christmas Is Weird**\
