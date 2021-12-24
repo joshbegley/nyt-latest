@@ -18,7 +18,7 @@ https://nytimes.com/2021/12/24/opinion/letters/spielberg-west-side-story.html?se
 `Two decades ago, “Sex and the City” set the standard for many shows to come. With “And Just Like That …,” the series reintroduces itself to a genre that has evolved beyond it.`\
 https://nytimes.com/2021/12/24/arts/television/sex-and-the-city-girls-girlfriends-run-the-world.html?searchResultPosition=5
 
-**Robert H. Grubbs, 79, Dies; Breakthrough in Chemistry Led to a Nobel**\
+**Robert H. Grubbs, 79, Dies; His Chemistry Breakthrough Led to a Nobel**\
 `He helped perfect the manufacturing of compounds that are now used to make everything from plastics to pharmaceuticals, marking an advance in “green chemistry.”`\
 https://nytimes.com/2021/12/24/science/robert-h-grubbs-dead.html?searchResultPosition=6
 
