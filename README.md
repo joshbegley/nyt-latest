@@ -1,40 +1,40 @@
-**Worldly, Charming, and Quietly Equipping a Brutal Military**\
-`A Burmese-Irish family said all the right things, even as it helped Myanmar’s rulers avoid sanctions scrutiny in buying airplanes, defense radar and more.`\
-https://nytimes.com/2021/12/24/world/asia/myanmar-coup-military-tatmadaw-kyaw-thaung.html?searchResultPosition=1
+**The Unbearable Sadness of Your Parents’ Bad Holiday Gifts**\
+`These objects haunt us; there’s no returning them, not really.`\
+https://nytimes.com/2021/12/24/opinion/bad-holiday-gifts.html?searchResultPosition=1
 
-**David Sedaris’s Diaries and Paul McCartney’s Songs**\
-`Sedaris talks about “A Carnival of Snackery,” and Paul Muldoon talks about working with McCartney on “The Lyrics.”`\
-https://nytimes.com/2021/12/24/books/review/podcast-david-sedaris-carnival-snackery-paul-muldoon-paul-mccartney-lyrics.html?searchResultPosition=2
+**Rodin Bronze From Family Plot Is Heading to Auction**\
+`Experts criticize the decision to remove this grave site memorial and sell it privately. The family says it’s a way to provide safekeeping.`\
+https://nytimes.com/2021/12/24/arts/design/rodin-grave-memorial-auction.html?searchResultPosition=2
 
-**The Year in Pictures: N.Y.C. Nightlife**\
-`This summer, I contributed to a story for which 40 photographers documented the return of New York City’s nightlife. Here’s what it looked like for me.`\
-https://nytimes.com/interactive/2021/12/24/nyregion/nyc-nightlife-year-in-pictures.html?searchResultPosition=3
+**From the ‘Silent Majority’ to the Unvaxxed Minority**\
+`What Covid has done to Europe’s far right.`\
+https://nytimes.com/2021/12/24/opinion/vaccination-europe-covid-far-right.html?searchResultPosition=3
 
-**Gillian Laub’s Divided House Is Still Standing. What About Yours?**\
-`“Family Matters” at the ICP captures the inevitability of families fractured over politics.`\
-https://nytimes.com/2021/12/24/arts/design/gillian-laub-family-matters-icp.html?searchResultPosition=4
+**Fighting Inflation Means Taking On Corporations**\
+`Easing spiking prices will take more than raising interest rates.`\
+https://nytimes.com/2021/12/24/opinion/inflation-truman-biden-corporate-power.html?searchResultPosition=4
 
-**Boba Fett, Intergalactic Man of Mystery**\
-`How did this fearsome “Star Wars” bounty hunter go from a peripheral player to the star of “The Book of Boba Fett”? He used the support of fans — and a little brute force.`\
-https://nytimes.com/2021/12/24/arts/television/star-wars-boba-fett-disney.html?searchResultPosition=5
+**This Is a Do-or-Die Moment for Chile’s Incoming President**\
+`Mr. Boric has no room for error in this constitutional moment.`\
+https://nytimes.com/2021/12/24/opinion/chile-president-boric.html?searchResultPosition=5
 
-**What Did You Do This Year?**\
-`Despite the seesaws of the pandemic, the world of arts and culture made a strong comeback this year. Browse this interactive flow chart for a look back at what there was to see and do in 2021.`\
-https://nytimes.com/interactive/2021/12/24/arts/2021-culture-diet-flowchart.html?searchResultPosition=6
+**On bell hooks and the Solace of Ritual**\
+`The holidays are off to a rough start. But tradition can help.`\
+https://nytimes.com/2021/12/24/opinion/bell-hooks-holiday-traditions.html?searchResultPosition=6
 
-**Migraines, Marriage, Mourning: Joan Didion Showed Us How to Bare All**\
-`The sorceress of syntax, with an unrivaled eye for detail, insisted we see her.`\
-https://nytimes.com/2021/12/24/opinion/joan-didion-writers.html?searchResultPosition=7
+**In the Premier League, There’s No Looking Back**\
+`England’s clubs are plowing ahead with their holiday schedule. But amid questions about Omicron and fairness, do they really have a choice?`\
+https://nytimes.com/2021/12/24/sports/soccer/premier-league-coronavirus.html?searchResultPosition=7
 
-**Despite Uproar Over Floyd’s Death, an Unceasing Tide of Police Killings**\
-`George Floyd’s murder set in motion shock waves that touched almost every aspect of American society. But on the core issues of police violence and accountability, very little has changed.`\
-https://nytimes.com/2021/12/24/us/police-killings-accountability.html?searchResultPosition=8
+**What to Cook This Weekend**\
+`Glazed ham and scalloped potato gratin, cinnamon rolls, and vegan Yorkshire puddings are all on the horizon.`\
+https://nytimes.com/2021/12/24/dining/what-to-cook-this-weekend.html?searchResultPosition=8
 
-**What Is ‘West Side Story’ Without Jerome Robbins? Chatty.**\
-`Justin Peck takes over choreographic duties in the Steven Spielberg adaptation of the 1957 musical in which words, not bodies, rule the screen.`\
-https://nytimes.com/2021/12/24/arts/dance/west-side-story-dance-justin-peck.html?searchResultPosition=9
+**Five Science-Fiction Movies to Stream Now**\
+`This month’s picks include apocalyptic K-pop and a parallel-dimension thriller.`\
+https://nytimes.com/2021/12/24/movies/streaming-sci-fi-movies.html?searchResultPosition=9
 
-**Despite Omicron Wave, Britons Are Set on Not Losing Another Christmas**\
-`For Christmas shoppers in central London this week, little seemed to dampen their spirits. But there was an undercurrent that the city was bracing for further coronavirus restrictions.`\
-https://nytimes.com/2021/12/24/world/europe/covid-britain-omicron-christmas.html?searchResultPosition=10
+**On Broadway, Newly Vital Understudies Step Into the Spotlight**\
+`As Omicron spreads, shows are relying on replacement actors more than ever. And productions without enough of them have had to cancel performances.`\
+https://nytimes.com/2021/12/24/theater/understudies-broadway-cancellations.html?searchResultPosition=10
 
