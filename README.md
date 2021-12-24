@@ -7,7 +7,7 @@ https://nytimes.com/2021/12/23/crosswords/variety-puns-and-anagrams.html?searchR
 https://nytimes.com/2021/12/23/crosswords/daily-puzzle-2021-12-24.html?searchResultPosition=2
 
 **Officers Fire at Suspect in Store and a Bullet Kills a Girl in a Dressing Room**\
-`The suspect was killed and a shot pierced a wall during the confrontation at a clothing store in Los Angeles, fatally striking a 14-year-old, the police said.`\
+`The suspect was killed and a shot pierced a wall, fatally striking a 14-year-old, during the confrontation at a clothing store in Los Angeles, the police said.`\
 https://nytimes.com/2021/12/23/us/girl-fatally-shot-police-los-angeles.html?searchResultPosition=3
 
 **Two More Broadway Shows Close as Omicron Takes a Toll on Theater**\
