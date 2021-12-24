@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/24/opinion/letters/spielberg-west-side-story.html?se
 https://nytimes.com/2021/12/24/arts/television/sex-and-the-city-girls-girlfriends-run-the-world.html?searchResultPosition=4
 
 **Robert H. Grubbs, 79, Dies; Breakthrough in Chemistry Led to a Nobel**\
-`He helped perfect the manufacturing of compounds that are now used everything from plastics to pharmaceuticals, marking an advance in “green chemistry.”`\
+`He helped perfect the manufacturing of compounds that are now used to make everything from plastics to pharmaceuticals, marking an advance in “green chemistry.”`\
 https://nytimes.com/2021/12/24/science/robert-h-grubbs-dead.html?searchResultPosition=5
 
 **How a Relief Fund for Restaurants Picked Winners and Losers**\
