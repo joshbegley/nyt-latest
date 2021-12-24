@@ -18,7 +18,7 @@ https://nytimes.com/2021/12/23/us/girl-fatally-shot-police-los-angeles.html?sear
 `“Thoughts of a Colored Man” and “Waitress” became the latest productions to end their runs because of coronavirus cases among their cast or crew.`\
 https://nytimes.com/2021/12/23/theater/broadway-shows-close-omicron-waitress-thoughts.html?searchResultPosition=5
 
-**More than 1,000 Christmas Eve flights are canceled because of Omicron.**\
+**More than 1,000 Christmas Eve flights are canceled around the globe because of Omicron.**\
 `United Airlines, Delta, JetBlue and Allegiant were among those canceling flights, the latest blow to the holiday season.`\
 https://nytimes.com/2021/12/23/us/canceled-flights-omicron.html?searchResultPosition=6
 
