@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/24/world/europe/queen-elizabeth-ii-christmas-covid.h
 https://nytimes.com/2021/12/24/world/europe/europe-covid-pandemic-omicron.html?searchResultPosition=3
 
 **A member of the K-pop band BTS tests positive for Covid.**\
-`The K-pop singer Suga discovered that he was infected after returning to South Korea from the United States.`\
+`The K-pop star Suga discovered that he was infected after returning to South Korea from the United States.`\
 https://nytimes.com/2021/12/24/arts/music/suga-bts-covid.html?searchResultPosition=4
 
 **He Paid $30 for a Drawing. It Could Be a Renaissance Work Worth Millions.**\
