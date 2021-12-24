@@ -10,13 +10,13 @@ https://nytimes.com/2021/12/24/todayspaper/quotation-of-the-day-omicron-sowing-d
 `Emilia Gonzalez, a nurse, and Joseph McCloud postponed a 2020 wedding because of her work on the frontline. He then entered a contest on Instagram that turned their luck around.`\
 https://nytimes.com/2021/12/24/style/emilia-gonzalez-joseph-mccloud-wedding.html?searchResultPosition=3
 
+**‘The Nutcracker’ and the Sex Tape**\
+`A holiday story about passion and other adhesives (and an ugly Christmas sweater).`\
+https://nytimes.com/2021/12/24/style/modern-love-nutcracker-sex-tape-ugly-christmas-sweater.html?searchResultPosition=4
+
 **Finding Romance in the Ups and Downs**\
 `Adrian Ballinger and Emily Harrington, both mountain climbers, met on Mount Everest, at 21,000 feet.`\
-https://nytimes.com/2021/12/24/style/adrian-ballinger-emily-harrington-wedding.html?searchResultPosition=4
-
-**‘The Nutcracker’ and the Sex Tape**\
-`A holiday story about passion and other adhesives (featuring an ugly Christmas sweater).`\
-https://nytimes.com/2021/12/24/style/modern-love-nutcracker-sex-tape-ugly-christmas-sweater.html?searchResultPosition=5
+https://nytimes.com/2021/12/24/style/adrian-ballinger-emily-harrington-wedding.html?searchResultPosition=5
 
 **The First Spark Flew in the Fifth Grade**\
 `Daniel Khaytman and Angela Ratmansky met at 8-years-old. Eighteen years later, they married.`\
