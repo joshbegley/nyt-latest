@@ -1,5 +1,5 @@
 **Judge Upholds His Block on New York Times Coverage of Project Veritas**\
-`The New York State judge also ordered The Times to turn over any physical copies and destroy any electronic versions of  documents a lawyer prepared for the group.`\
+`The New York State judge also ordered The Times to turn over any physical copies and destroy any electronic versions of documents a lawyer prepared for the group.`\
 https://nytimes.com/2021/12/24/business/media/new-york-times-project-veritas.html?searchResultPosition=1
 
 **At Home and Away’s Best of 2021**\
