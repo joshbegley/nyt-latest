@@ -1,4 +1,4 @@
-**South Korea to Pardon Former President Park Geun-hye, Imprisoned for Corruption**\
+**South Korea to Pardon Ex-President Park Geun-hye, Imprisoned for Corruption**\
 `The government said it would release Ms. Park on Dec. 31 in the interest of national “reconciliation.”`\
 https://nytimes.com/2021/12/23/world/asia/south-korea-park-geun-hye-pardon.html?searchResultPosition=1
 
