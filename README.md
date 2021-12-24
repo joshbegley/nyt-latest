@@ -10,13 +10,13 @@ https://nytimes.com/2021/12/23/books/an-ode-to-all-the-great-books-i-havent-read
 `What do the president, vice president, former president and party leaders want in 2022? We made our best guess.`\
 https://nytimes.com/2021/12/23/us/politics/political-wish-lists-2022.html?searchResultPosition=3
 
+**C.D.C. Shortens Covid Isolation Period for Health Care Workers**\
+`The agency issued revised guidelines as Omicron cases climb and hospitals grapple with worker shortages that have left wards understaffed.`\
+https://nytimes.com/2021/12/23/health/cdc-covid-isolation-period-health-care-workers.html?searchResultPosition=4
+
 **Prosecutor Won’t Charge Cuomo Over Trooper’s Sexual Harassment Claim**\
 `The acting Nassau County district attorney said the allegations were “credible” and “deeply troubling” but not criminal under New York law.`\
-https://nytimes.com/2021/12/23/nyregion/prosecutor-cuomo-trooper-sexual-harassment-claim.html?searchResultPosition=4
-
-**C.D.C. Shortens Covid Isolation Period for Health Care Workers**\
-`The agency issued revised guidelines as Omicron cases climb, and hospitals grapple with worker shortages that have left wards understaffed.`\
-https://nytimes.com/2021/12/23/health/cdc-covid-isolation-period-health-care-workers.html?searchResultPosition=5
+https://nytimes.com/2021/12/23/nyregion/prosecutor-cuomo-trooper-sexual-harassment-claim.html?searchResultPosition=5
 
 **Booster protection wanes against symptomatic Omicron infections, British data suggests.**\
 `A new study found that booster protection against symptomatic Omicron fades within 10 weeks.`\
