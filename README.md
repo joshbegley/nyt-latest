@@ -10,31 +10,31 @@ https://nytimes.com/interactive/2021/12/24/briefing/the-weekender.html?searchRes
 `“Am I in Saudi Arabia?” Once officially banned, Christmas is coming out of hiding in the kingdom, as its ultra-constrictive religious rules are eased.`\
 https://nytimes.com/2021/12/24/world/middleeast/saudi-arabia-christmas.html?searchResultPosition=3
 
+**South Africa ends quarantines and contact tracing, and authorizes booster shots.**\
+`The new regulations follow data showing that while the Omicron variant is highly transmissible, it has not caused high rates of severe disease in South Africa.`\
+https://nytimes.com/2021/12/24/world/africa/south-africa-covid-quarantine.html?searchResultPosition=4
+
 **Tracing the Origins of a Black American New Year’s Ritual**\
 `Families have long embraced the tradition of eating black-eyed peas and greens on Jan. 1, but the inspiration for the ritual crosses cultures and continents.`\
-https://nytimes.com/2021/12/24/dining/black-eyed-peas-greens-new-years.html?searchResultPosition=4
+https://nytimes.com/2021/12/24/dining/black-eyed-peas-greens-new-years.html?searchResultPosition=5
 
 **As Hindu Extremists Call for Killing of Muslims, India’s Leaders Keep Silent**\
 `Right-wing Hindu activists at a conference took an oath to harm Muslims if necessary to make “a Hindu-only nation,” the most blatant example of rising anti-Muslim sentiment across India.`\
-https://nytimes.com/2021/12/24/world/asia/hindu-extremists-india-muslims.html?searchResultPosition=5
+https://nytimes.com/2021/12/24/world/asia/hindu-extremists-india-muslims.html?searchResultPosition=6
 
 **Group Raises $20 Million to Preserve ‘Lost’ Brontë Library**\
 `The Honresfield Library, which includes rarely seen manuscripts by the Brontës, Robert Burns, Walter Scott and Jane Austen, will be acquired for the British public.`\
-https://nytimes.com/2021/12/24/arts/honresfield-library-bronte.html?searchResultPosition=6
+https://nytimes.com/2021/12/24/arts/honresfield-library-bronte.html?searchResultPosition=7
 
 **Bosses Have a New Headache: How Long Should Sick Workers Isolate?**\
 `Amid staffing shortages, companies are weighing conflicting guidance on when employees who have tested positive for the coronavirus can safely return to work.`\
-https://nytimes.com/2021/12/24/business/workers-covid-isolate.html?searchResultPosition=7
+https://nytimes.com/2021/12/24/business/workers-covid-isolate.html?searchResultPosition=8
 
 **Lazy Lasagna**\
 `Sarah Copeland’s quick ragù tastes like the classic baked pasta without all the work.`\
-https://nytimes.com/2021/12/24/dining/lazy-lasagna.html?searchResultPosition=8
+https://nytimes.com/2021/12/24/dining/lazy-lasagna.html?searchResultPosition=9
 
 **Democrats Say They Are Serious About State Elections. But Are They Too Late?**\
 `State-level races are becoming a central focus of American politics as the lasting effects of new congressional maps and election laws raise the stakes.`\
-https://nytimes.com/2021/12/24/us/elections/democrats-state-elections.html?searchResultPosition=9
-
-**A Painting of George Floyd Roils Catholic University**\
-`At the Catholic University of America in Washington, conservative students called for a campus ban on further displays of an artwork that depicts Floyd as Jesus.`\
-https://nytimes.com/2021/12/24/arts/design/george-floyd-painting-catholic-university.html?searchResultPosition=10
+https://nytimes.com/2021/12/24/us/elections/democrats-state-elections.html?searchResultPosition=10
 
