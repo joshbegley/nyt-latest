@@ -1,5 +1,5 @@
 **At Least 16 Dead After Migrant Boat Capsizes Off Greece**\
-`The wreck late Friday in the Aegean Sea, the third in Greek waters in three days, was another reminder of the risks asylum seekers face in a bid to seek better lives.`\
+`The wreck late Friday in the Aegean Sea, the third in Greek waters in three days, was another reminder of the risks asylum seekers face.`\
 https://nytimes.com/2021/12/25/world/europe/migrant-boat-greece.html?searchResultPosition=1
 
 **How the Webb telescope compares with the Hubble.**\
