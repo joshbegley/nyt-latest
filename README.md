@@ -1,40 +1,40 @@
-**Falling in Love**\
-`Looking back at a year of pictures from the Styles Desk.`\
-https://nytimes.com/2021/12/25/style/pictures-2021.html?searchResultPosition=1
+**A New Israeli Wonderland, Where You Can Almost Forget Where You Are**\
+`An alien spaceship theme park, an Italian Renaissance-style mall, a canal with gondolas. “Nothing in Israel compares with it,” the developer says. There’s just one catch.`\
+https://nytimes.com/2021/12/25/world/middleeast/west-bank-entertainment-complex-israel.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/25/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Sardi’s Is Back After 648 Days, Its Fortunes Tied to Broadway**\
+`The caricatures are back up. But many shows are canceling performances just as Sardi’s reopens, a hurdle for a restaurant catering to the theater crowd.`\
+https://nytimes.com/2021/12/25/theater/sardis-broadway-reopening.html?searchResultPosition=2
 
-**Corrections: Dec. 25, 2021**\
-`Corrections that appeared in print on Saturday, Dec. 25, 2021.`\
-https://nytimes.com/2021/12/25/pageoneplus/corrections-dec-25-2021.html?searchResultPosition=3
+**As Omicron Spreads and Cases Soar, the Unvaccinated Remain Defiant**\
+`To some who are steadfastly opposed to the shot, the evasiveness of the coronavirus has only reaffirmed their stance.`\
+https://nytimes.com/2021/12/25/us/as-omicron-spreads-and-cases-soar-the-unvaccinated-remain-defiant.html?searchResultPosition=3
 
-**Quotation of the Day: In a Tiny, Jolly Spy for Santa, Watchdogs Spot Big Brother**\
-`Quotation of the Day for Saturday, December 25, 2021.`\
-https://nytimes.com/2021/12/25/todayspaper/quotation-of-the-day-in-a-tiny-jolly-spy-for-santa-watchdogs-spot-big-brother.html?searchResultPosition=4
+**Many African Countries Toughen Covid Restrictions as Fourth Wave Spreads**\
+`Infections have more than doubled or tripled in many countries, prompting the authorities to reimpose curfews and quarantines and introduce vaccine mandates as the holiday season gets underway.`\
+https://nytimes.com/2021/12/25/world/africa/africa-coronavirus-omicron.html?searchResultPosition=4
 
-**What to Watch For in N.F.L.’s Christmas Day Games**\
-`The Cleveland Browns visit the Green Bay Packers, and the Arizona Cardinals host the Indianapolis Colts.`\
-https://nytimes.com/2021/12/25/sports/football/nfl-christmas-games-schedule.html?searchResultPosition=5
+**Another Christmas of Death and Distress in America’s I.C.U.s**\
+`The toll on health care workers, many of whom are giving up their holiday to treat dangerously ill Covid patients, is severe.`\
+https://nytimes.com/2021/12/25/us/another-christmas-of-death-and-distress-in-americas-icus.html?searchResultPosition=5
 
-**Classic ‘I Messed Up’ Gift**\
-`All is bright with this Johan Vass puzzle, under a tree or at the kitchen table.`\
-https://nytimes.com/2021/12/24/crosswords/daily-puzzle-2021-12-25.html?searchResultPosition=6
+**Man Killed in Apparent Shark Attack Off California, the Authorities Say**\
+`The body of a man who had been on a boogie board was found off the coast of Morro Bay. The death was believed to be the only fatal shark encounter of the year in the United States.`\
+https://nytimes.com/2021/12/25/us/deadly-shark-attack-california.html?searchResultPosition=6
 
-**Holiday Spirit Glimmers as New York Endures Another Pandemic Christmas**\
-`Despite a surge in coronavirus cases that dashed plans for travel and celebrations, New Yorkers did what they could to salvage the season.`\
-https://nytimes.com/2021/12/24/nyregion/christmas-virus-nyc.html?searchResultPosition=7
+**After Hurricanes and Pandemic, a New Orleans Museum Fights to Hold On**\
+`The Backstreet Cultural Museum served as an enduring tribute to the city’s Black culture, as the Tremé neighborhood gentrified around it. Then Hurricane Ida destroyed its home.`\
+https://nytimes.com/2021/12/25/us/backstreet-cultural-museum-new-orleans.html?searchResultPosition=7
 
-**As Omicron Overshadows Christmas, Thousands of Flights Are Canceled**\
-`Travelers had hoped this holiday season would represent a return to relative normalcy. Instead, pilots are out and delays are piling up.`\
-https://nytimes.com/2021/12/24/business/omicron-christmas-travel.html?searchResultPosition=8
+**Putting a New Spin on Classic Recipes**\
+`The food writer Melissa Clark on the holidays, her favorite cookie and how she relaxes when she’s not cooking.`\
+https://nytimes.com/2021/12/25/insider/melissa-clark-recipes.html?searchResultPosition=8
 
-**Gordon Carey, a Force in the Civil Rights Movement, Dies at 89**\
-`An “unsung hero” of the era, he played important roles in two of its far-reaching events: the 1960 lunch-counter sit-ins and the 1961 Freedom Rides.`\
-https://nytimes.com/2021/12/24/us/gordon-carey-dead.html?searchResultPosition=9
+**Got a Resolution? Why Wait for the New Year?**\
+`Some Gen Zers and millennials don’t see the point in waiting for the  traditional date to begin bettering themselves.`\
+https://nytimes.com/2021/12/25/style/new-years-resolutions-millennials-gen-z.html?searchResultPosition=9
 
-**A Dangerous Court Order Against The New York Times**\
-`A troubling ruling that raises First Amendment concerns.`\
-https://nytimes.com/2021/12/24/opinion/project-veritas-new-york-times.html?searchResultPosition=10
+**Wallice, an Indie Pop Sensation from Los Angeles**\
+`Her 2020 song “Punching Bag” was anointed by an influential Spotify  playlist.`\
+https://nytimes.com/2021/12/25/style/wallice-indie-pop-punching-bag-los-angeles.html?searchResultPosition=10
 
