@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/25/world/europe/alfredo-lupi-janitor-italy.html?sear
 
 **As Russian Threat Looms, Ukraine’s Government Is No Laughing Matter**\
 `President Volodymyr Zelensky, a former actor, has surrounded himself with advisers from his old comedy troupe. No kidding.`\
-https://nytimes.com/2021/12/25/world/europe/ukraine-russia-zelensky-comedy.html?searchResultPosition=6
+https://nytimes.com/2021/12/25/world/europe/ukraine-russia.html?searchResultPosition=6
 
 **It’s Time for a U.S.-Pakistan Policy Reset**\
 `A reset won’t be easy: Resentment is rife. `\
