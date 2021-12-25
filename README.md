@@ -18,23 +18,23 @@ https://nytimes.com/2021/12/25/world/navy-ship-covid-guantanamo-bay.html?searchR
 `Parts of Oregon and Washington were also bracing for single-digit temperatures as the Southern United States recorded temperatures more than 25 degrees above normal.`\
 https://nytimes.com/2021/12/25/us/weather-seattle-portland.html?searchResultPosition=5
 
+**Sardi’s, Broadway’s iconic watering hole, is back, just in time for Omicron show closures.**\
+`By Michael Paulson`\
+https://nytimes.com/2021/12/25/world/sardis-broadways-iconic-watering-hole-is-back-just-in-time-for-omicron-show-closures.html?searchResultPosition=6
+
 **As Prices Rise, Biden Turns to Antitrust Enforcers**\
 `A wide-ranging presidential order helped block a railroad merger and tackle supply-chain problems, and it is planting the seeds for bigger actions.`\
-https://nytimes.com/2021/12/25/business/biden-inflation.html?searchResultPosition=6
+https://nytimes.com/2021/12/25/business/biden-inflation.html?searchResultPosition=7
 
 **A Janitor’s Colleagues Put Him on the Fast Track to Retirement**\
 `An Italian factory worker was dealing with a lifelong impairment that made it hard to work, but he wasn’t in a position to retire. Then his co-workers gave him 20 months’ worth of vacation days.`\
-https://nytimes.com/2021/12/25/world/europe/alfredo-lupi-janitor-italy.html?searchResultPosition=7
+https://nytimes.com/2021/12/25/world/europe/alfredo-lupi-janitor-italy.html?searchResultPosition=8
 
 **As Russian Threat Looms, Ukraine’s Government Is No Laughing Matter**\
 `President Volodymyr Zelensky, a former actor, has surrounded himself with advisers from his old comedy troupe. No kidding.`\
-https://nytimes.com/2021/12/25/world/europe/ukraine-russia.html?searchResultPosition=8
+https://nytimes.com/2021/12/25/world/europe/ukraine-russia.html?searchResultPosition=9
 
 **It’s Time for a U.S.-Pakistan Policy Reset**\
 `A reset won’t be easy: Resentment is rife. `\
-https://nytimes.com/2021/12/25/opinion/pakistan-biden-khan.html?searchResultPosition=9
-
-**Wanda Young, Motown Hitmaker With the Marvelettes, Dies at 78**\
-`She was the lead voice on “Don’t Mess With Bill” and other songs written by Smokey Robinson, who said she “had this little voice that was sexy to me.”`\
-https://nytimes.com/2021/12/25/arts/music/wanda-young-dead.html?searchResultPosition=10
+https://nytimes.com/2021/12/25/opinion/pakistan-biden-khan.html?searchResultPosition=10
 
