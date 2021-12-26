@@ -12,11 +12,11 @@ https://nytimes.com/2021/12/26/opinion/how-christmas-changed-everything.html?sea
 
 **It Was bell hooks Who Taught Me How to ‘Talk Back’**\
 `Ms. hooks understood that voice and language are how marginalized people humanize themselves to themselves.`\
-https://nytimes.com/2021/12/26/opinion/bell-hooks-death-talking-back.html?searchResultPosition=4
+https://nytimes.com/2021/12/26/opinion/bell-hooks-death-black.html?searchResultPosition=4
 
 **I Took Ketamine for My Depression. Things Got Pretty Weird.**\
 `I became an elephant, an octopus, a balloon. I grew giant hands. But I couldn’t shake my sadness.`\
-https://nytimes.com/2021/12/26/opinion/depression-ketamine-bolsonaro.html?searchResultPosition=5
+https://nytimes.com/2021/12/26/opinion/depression-ketamine.html?searchResultPosition=5
 
 **What to Cook This Week**\
 `Ham buns would make a great vehicle for holiday leftovers ahead of whole roasted cauliflower later this week.`\
