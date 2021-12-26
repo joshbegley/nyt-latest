@@ -1,6 +1,6 @@
 **Soccer Star Ordered to Pay $30,000 to Man Who Returned His Dog**\
 `Daniel Sturridge lost his Pomeranian in a 2019 break-in. A man who returned the dog sued for breach of contract after Mr. Sturridge reneged on a promised reward, according to court records.`\
-https://nytimes.com/2021/12/26/us/daniel-sturridge-dog.html?searchResultPosition=1
+https://nytimes.com/2021/12/26/sports/soccer/daniel-sturridge-dog.html?searchResultPosition=1
 
 **Homes That Sold for Around $1 Million**\
 `Recent residential sales in New York City and the region.`\
