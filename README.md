@@ -1,40 +1,40 @@
+**How Nicole Kidman Learned to Love Playing Lucille Ball**\
+`A career of dramas like “The Hours” and “Big Little Lies” was not enough to help Kidman portray the “I Love Lucy” star in “Being the Ricardos.” As she put it, “Funny’s hard.”`\
+https://nytimes.com/2021/12/26/movies/nicole-kidman-being-the-ricardos-lucille-ball.html?searchResultPosition=1
+
+**Training Civilians, Ukraine Nurtures a Resistance in Waiting**\
+`Eastern European nations have drawn a lesson from America’s wars of the last decades: Insurgency works. Ukraine’s training of volunteers has become a factor in the standoff with Russia.`\
+https://nytimes.com/2021/12/26/world/europe/ukraine-russia-civilian-training.html?searchResultPosition=2
+
+**1,000 New People Arrive in Texas Every Day. Half Are Newborns.**\
+`A surge in births in Texas comes amid a declining birthrate nationwide.`\
+https://nytimes.com/2021/12/26/us/texas-newborns-birthrate.html?searchResultPosition=3
+
+**‘Magic’ Weight-Loss Pills and Covid Cures: Dr. Oz Under the Microscope**\
+`The celebrity physician, a candidate in Pennsylvania’s Republican primary for Senate, has a long history of dispensing dubious medical advice on his daytime show and on Fox News.`\
+https://nytimes.com/2021/12/26/us/politics/dr-oz-medical-advice.html?searchResultPosition=4
+
+**In Congo, Bolivia and Beyond, Where the Green Future Begins**\
+`The Times’s Race to the Future series is focused on the competition for electric-car resources that will shape the 21st century.`\
+https://nytimes.com/2021/12/26/insider/in-congo-bolivia-and-beyond-where-the-green-future-begins.html?searchResultPosition=5
+
+**The Premier League’s Influence Extends to Title Races Abroad**\
+`The outsize wealth of England’s clubs increasingly allows their owners to play a direct role in deciding the champions of other leagues.`\
+https://nytimes.com/2021/12/26/sports/soccer/premier-league-money-union-brighton.html?searchResultPosition=6
+
+**Why Older Women Face Greater Financial Hardship Than Older Men**\
+`In a troubling picture, American women are looking at a rockier road to secure retirement than their male counterparts.`\
+https://nytimes.com/2021/12/26/health/older-women-financial-hardship-retirement.html?searchResultPosition=7
+
+**The Gift of Glasses**\
+`Improving children’s vision and schoolwork with screenings, exams and even new eyeglasses.`\
+https://nytimes.com/2021/12/26/neediest-cases/the-gift-of-glasses.html?searchResultPosition=8
+
 **First They Fought About Masks. Then Over the Soul of the City.**\
 `In Enid, Okla., pandemic politics prompted a fundamental question: What does it mean to be an American? Whose version of the country will prevail?`\
-https://nytimes.com/2021/12/26/us/first-they-fought-about-masks-then-over-the-soul-of-the-city.html?searchResultPosition=1
+https://nytimes.com/2021/12/26/us/first-they-fought-about-masks-then-over-the-soul-of-the-city.html?searchResultPosition=9
 
 **For This College Basketball Team, It Pays to Hit the Road**\
 `Jackson State, a small Division I program, has trouble scheduling big-name schools at home, so it made extra revenue by playing away games for the first third of its season.`\
-https://nytimes.com/2021/12/26/sports/jackson-state-basketball-road-trip.html?searchResultPosition=2
-
-**The Best Metropolitan Diary Item of 2021: The Readers Speak**\
-`A tale of two hot dog vendors claims the top spot in this year’s voting, outpolling four other favorites. All five are presented here.`\
-https://nytimes.com/2021/12/26/nyregion/metropolitan-diary.html?searchResultPosition=3
-
-**Drawing New York City, and Drawn to It**\
-`Metropolitan Diary’s illustrator reflects on three years with the column and describes a few of her favorite assignments.`\
-https://nytimes.com/2021/12/26/nyregion/metropolitan-diary-agnes-lee.html?searchResultPosition=4
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/26/crosswords/spelling-bee-forum.html?searchResultPosition=5
-
-**45 Years of Metropolitan Diary**\
-`What makes a column that began in November 1976 so durable? The broad appeal of New York stories like the ones featured here each week.`\
-https://nytimes.com/2021/12/26/nyregion/metropolitan-diary-forty-fifth-anniversary.html?searchResultPosition=6
-
-**Desmond Tutu, Whose Voice Helped Slay Apartheid, Dies at 90**\
-`The archbishop, a powerful force for nonviolence in South Africa’s anti-apartheid movement, was awarded the Nobel Peace Prize in 1984.`\
-https://nytimes.com/2021/12/26/obituaries/desmond-tutu-dead.html?searchResultPosition=7
-
-**The N.B.A.’s Early Breakout Stars**\
-`Three players in particular have given hope to their antsy fans, despite injuries, Covid-related absences and the hiccups of being new to the league.`\
-https://nytimes.com/2021/12/26/sports/basketball/nba-breakout-stars.html?searchResultPosition=8
-
-**El Salvador Releases 3 Women Serving Long Prison Sentences for Abortions**\
-`The three women, who had suffered obstetric emergencies, had been sentenced to 30 years in prison under the nation’s strict anti-abortion laws.`\
-https://nytimes.com/2021/12/25/world/americas/el-salvador-abortion-bukele.html?searchResultPosition=9
-
-**Pest Control**\
-`This tough puzzle by Christina Iverson will have you crawling up the walls.`\
-https://nytimes.com/2021/12/25/crosswords/daily-puzzle-2021-12-26.html?searchResultPosition=10
+https://nytimes.com/2021/12/26/sports/jackson-state-basketball-road-trip.html?searchResultPosition=10
 
