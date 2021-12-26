@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/26/pageoneplus/corrections-dec-26-2021.html?searchRe
 
 **‘A True South African Giant’: Tributes for Desmond Tutu, a Force for Harmony**\
 `From prominent South African lawmakers to religious figures, many on social media honored Archbishop Tutu as a patriot of peaceful principles who dedicated his life to combating injustice everywhere.`\
-https://nytimes.com/2021/12/26/world/africa/desmond-tutu-reactions.html?searchResultPosition=5
+https://nytimes.com/2021/12/26/world/africa/tutu-death.html?searchResultPosition=5
 
 **Myanmar’s Army Is Accused of Massacring Dozens of Civilians**\
 `At least 35 people were killed and their bodies burned, according to an international aid group and opponents of the military regime.`\
