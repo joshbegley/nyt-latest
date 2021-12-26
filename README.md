@@ -23,7 +23,7 @@ https://nytimes.com/2021/12/26/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2021/12/26/nyregion/metropolitan-diary-forty-fifth-anniversary.html?searchResultPosition=6
 
 **Desmond Tutu, Whose Voice Helped Slay Apartheid, Dies at 90**\
-`The archbishop was a powerful force for nonviolence in South Africa’s anti-apartheid movement, earning him a Nobel Peace Prize in 1984.`\
+`The archbishop, a powerful force for nonviolence in South Africa’s anti-apartheid movement, was awarded the Nobel Peace Prize in 1984.`\
 https://nytimes.com/2021/12/26/obituaries/desmond-tutu-dead.html?searchResultPosition=7
 
 **The N.B.A.’s Early Breakout Stars**\
