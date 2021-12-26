@@ -2,7 +2,7 @@
 `Inside the self-reinforcing ecosystem of paid experts who advise and train officers, then absolve those accused of killings.`\
 https://nytimes.com/2021/12/26/us/police-deaths-in-custody-blame.html?searchResultPosition=1
 
-**No sailors on a Navy ship have required hospitalization after outbreak.**\
+**No sailors on a Navy ship have needed hospitalization after outbreak.**\
 `The base hospital at Guantánamo Bay gave vaccine booster doses to the ship to administer to anyone who wants one.`\
 https://nytimes.com/2021/12/26/world/americas/navy-ship-covid.html?searchResultPosition=2
 
