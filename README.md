@@ -23,7 +23,7 @@ https://nytimes.com/2021/12/26/world/middleeast/archbishop-tutu-cowell-recollect
 https://nytimes.com/interactive/2021/12/26/us/vilke-court-testimony-ruiz-case.html?searchResultPosition=6
 
 **Even in Retirement, Desmond Tutu Remained South Africa’s Moral Compass**\
-`The Nobel laureate retired from public life over a decade ago, but he continued to advocate social justice, gay rights and climate change.`\
+`The Nobel laureate retired from public life over a decade ago, but he continued to advocate social justice, gay rights and environmentalism.`\
 https://nytimes.com/2021/12/26/world/africa/desmond-tutu-south-africa.html?searchResultPosition=7
 
 **Expert Report of Dr. Gary Vilke**\
