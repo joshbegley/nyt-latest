@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2021/12/26/us/164-neuman-report-daniel-price.htm
 `The Metropolitan Museum of Art hopes to entice visitors with a show of 150 Disney artifacts and its own objets d’art. But does getting cozy with a behemoth serve the public?`\
 https://nytimes.com/2021/12/26/arts/design/the-met-inspiring-walt-disney.html?searchResultPosition=9
 
-**Fauci warns against complacency amid data that Omicron causes milder illness**\
+**Fauci warns against complacency amid data showing Omicron causes milder illness.**\
 `The nation’s top infectious disease expert said mounting evidence suggests the fast-spreading variant is less deadly than Delta but that unvaccinated Americans are still at risk of serious outcomes.`\
 https://nytimes.com/2021/12/26/science/fauci-omicron.html?searchResultPosition=10
 
