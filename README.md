@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/27/nyregion/nyc-vaccine-mandate.html?searchResultPos
 
 **I’ve Spent 25 Years as a Joan Didion Thief**\
 `Didion inspired at least two generations of  impostors.`\
-https://nytimes.com/2021/12/27/opinion/joan-didion-influence.html?searchResultPosition=6
+https://nytimes.com/2021/12/27/opinion/joan-didion-influence-writers.html?searchResultPosition=6
 
 **Desmond Tutu’s Funeral Is Limited to 100 People**\
 `Church leaders in South Africa urged mourners to attend services for Desmond M. Tutu, the first Black archbishop of Cape Town, in their local communities because of pandemic restrictions.`\
