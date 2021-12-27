@@ -1,6 +1,6 @@
 **Stream These 9 Titles Before They Leave Netflix in January**\
 `The turnover is a little lighter this month for U.S. subscribers, but there are still a bunch of great movies and TV shows worth catching.`\
-https://nytimes.com/2021/12/27/arts/television/netflix-expiring-january.html?searchResultPosition=1
+https://nytimes.com/2021/12/27/arts/television/netflix-january.html?searchResultPosition=1
 
 **‘People Want Jewelry With Meaning’: How Breast Milk Became a Gem**\
 `Mothers are memorializing their breastfeeding experiences with stones made from the liquid.`\
