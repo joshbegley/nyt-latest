@@ -28,7 +28,7 @@ https://nytimes.com/2021/12/27/well/live/blood-pressure-medications.html?searchR
 
 **‘I Look Like the Strategy’: Winsome Sears Wants Black Voters to Rethink the G.O.P.**\
 `The incoming lieutenant governor of Virginia was an unlikely candidate: a deeply conservative Black woman, and an immigrant, who supports Donald Trump.`\
-https://nytimes.com/2021/12/27/us/i-look-like-the-strategy-winsome-sears-wants-black-voters-to-rethink-the-gop.html?searchResultPosition=8
+https://nytimes.com/2021/12/27/us/winsome-sears-black-voters-republican.html?searchResultPosition=8
 
 **How Disgust Explains Everything**\
 `For psychologists who study it, disgust is one of the primal emotions that define — and explain — humanity.`\
