@@ -26,8 +26,8 @@ https://nytimes.com/2021/12/26/business/thousands-of-flights-canceled-over-weeke
 `Adam Aaronson’s puzzle will have you seeing double.`\
 https://nytimes.com/2021/12/26/crosswords/daily-puzzle-2021-12-27.html?searchResultPosition=7
 
-**Three college football bowl games are canceled because of virus cases.**\
-`The Fenway, Military and Sun Bowls were scrapped when teams didn’t have enough healthy players to take the field.`\
+**Two college football bowl games are canceled because of virus cases. A third is in doubt.**\
+`The Fenway and Military Bowls were scrapped when teams didn’t have enough healthy players to take the field. One team pulled out of the Sun Bowl.`\
 https://nytimes.com/2021/12/26/world/two-college-football-bowl-games-are-canceled-because-of-virus-cases.html?searchResultPosition=8
 
 **Using Journalism to Give Back**\
