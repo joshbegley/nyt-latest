@@ -14,7 +14,7 @@ https://nytimes.com/2021/12/27/technology/gdpr-internet-privacy-onetrust.html?se
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2021/12/27/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
-**Jean-Marc Vallée, Director of ‘Dallas Buyers Club’ and ‘Big Little Lies,’ Dies at 58**\
+**Jean-Marc Vallée, Director of ‘Dallas Buyers Club,’ Dies at 58**\
 `Known for his naturalistic approach, the Canadian-born filmmaker transformed true stories into award-winning dramas.`\
 https://nytimes.com/2021/12/27/movies/jean-marc-vallee-dead.html?searchResultPosition=5
 
