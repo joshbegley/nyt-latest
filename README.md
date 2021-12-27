@@ -1,40 +1,40 @@
-**E.O. Wilson, a Pioneer of Evolutionary Biology, Dies at 92**\
-`A Harvard professor for 46 years, he was an expert on insects and explored how natural selection and other forces could influence animal behavior. He then applied his research to humans.`\
-https://nytimes.com/2021/12/27/science/eo-wilson-dead.html?searchResultPosition=1
+**Helping to Reveal a Still-Shuttered World**\
+`Our weekly photo essay series offered readers a glimpse of distant places and cultures that, for a second straight year, remained largely inaccessible.`\
+https://nytimes.com/2021/12/27/travel/world-through-a-lens.html?searchResultPosition=1
 
-**The Show Will Go On, Thanks to Them**\
-`The latest Covid surge has highlighted the essential skills provided by Broadway’s swings and understudies.`\
-https://nytimes.com/2021/12/27/nyregion/the-show-will-go-on-thanks-to-them.html?searchResultPosition=2
+**As Other Arab States Falter, Saudi Arabia Seeks to Become a Cultural Hub**\
+`While conflicts and crises have battered Arab cultural capitals, Saudi Arabia is hosting film festivals and bankrolling new movies.`\
+https://nytimes.com/2021/12/27/world/middleeast/saudi-arabia-films-movies.html?searchResultPosition=2
 
-**Record Beef Prices, but Ranchers Aren’t Cashing In**\
-`“You’re feeding America and going broke doing it”: After years of consolidation, four companies dominate the meatpacking industry, while many ranchers are barely hanging on.`\
-https://nytimes.com/2021/12/27/business/beef-prices-cattle-ranchers.html?searchResultPosition=3
+**‘Help Us’: After Typhoon Rai, Miles of Destruction and the Smell of Death**\
+`Philippine officials warned that residents were going hungry. Many were still in evacuation centers. On a highway, survivors scrawled an appeal for aid.`\
+https://nytimes.com/2021/12/27/world/asia/philippines-super-typhoon-rai.html?searchResultPosition=3
 
-**The Companies Benefiting From Fragmenting Internet Privacy Rules**\
-`Companies have sprouted up to help others navigate the varied laws around the world governing websites.`\
-https://nytimes.com/2021/12/27/technology/gdpr-internet-privacy-onetrust.html?searchResultPosition=4
+**What Three Broadway Shows Tell Us About Racial Progress**\
+`The female protagonists in “Trouble in Mind,” “Caroline, or Change” and “Clyde’s” show the richness that comes from having a multitude of Black voices onstage.`\
+https://nytimes.com/2021/12/27/theater/trouble-in-mind-caroline-or-change-clydes.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/27/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Your DNA Test Could Send a Relative to Jail**\
+`Thanks to “genetic genealogy,” solving crimes with genomic databases is becoming mainstream — with some uncomfortable implications for the future of privacy.`\
+https://nytimes.com/2021/12/27/magazine/genome-test-crimes.html?searchResultPosition=5
 
-**Jean-Marc Vallée, Director of ‘Dallas Buyers Club,’ Dies at 58**\
-`Known for his naturalistic approach, the Canadian-born filmmaker transformed true stories into acclaimed dramas.`\
-https://nytimes.com/2021/12/27/movies/jean-marc-vallee-dead.html?searchResultPosition=6
+**Many Common Medications Can Raise Your Blood Pressure**\
+`Popular pain relievers and antidepressants, as well as alcohol and herbal supplements, are among the many substances that can contribute to hypertension.`\
+https://nytimes.com/2021/12/27/well/live/blood-pressure-medications.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘Around the World in 80 Days’ and New Year’s Eve**\
-`David Tennant stars in a new Jules Verne adaptation on PBS. And Miley Cyrus, Pete Davidson and more appear in New Year’s Eve specials.`\
-https://nytimes.com/2021/12/27/arts/television/whats-on-tv-this-week-around-the-world-in-80-days-and-new-years-eve.html?searchResultPosition=7
+**‘I Look Like the Strategy’: Winsome Sears Wants Black Voters to Rethink the G.O.P.**\
+`The incoming lieutenant governor of Virginia was an unlikely candidate: a deeply conservative Black woman, and an immigrant, who supports Donald Trump.`\
+https://nytimes.com/2021/12/27/us/i-look-like-the-strategy-winsome-sears-wants-black-voters-to-rethink-the-gop.html?searchResultPosition=7
 
-**No Corrections: Dec. 27, 2021**\
-`No corrections appeared in print on Monday, Dec. 27, 2021.`\
-https://nytimes.com/2021/12/27/pageoneplus/no-corrections-dec-27-2021.html?searchResultPosition=8
+**How Disgust Explains Everything**\
+`For psychologists who study it, disgust is one of the primal emotions that define — and explain — humanity.`\
+https://nytimes.com/2021/12/27/magazine/disgust-science.html?searchResultPosition=8
 
-**Quotation of the Day: Dubious Advice From TV Doctor in Senate Hunt**\
-`Quotation of the Day for Monday, December 27, 2021l.`\
-https://nytimes.com/2021/12/27/todayspaper/quotation-of-the-day-dubious-advice-from-tv-doctor-in-senate-hunt.html?searchResultPosition=9
+**Crash Test Dummies Made Cars Safer (for Average-Size Men)**\
+`Designers and researchers are now trying to leverage cutting-edge technology to create a system that better protects every body, women’s included.`\
+https://nytimes.com/2021/12/27/business/car-safety-women.html?searchResultPosition=9
 
-**Your Monday Briefing**\
-`Thousands of canceled flights.`\
-https://nytimes.com/2021/12/27/briefing/omicron-travel-desmond-tutu.html?searchResultPosition=10
+**The Conversation I Never Had With Chuck Close**\
+`The artist’s image has been reduced to the sexual harassment accusations against him, but I knew him to be more than that.`\
+https://nytimes.com/2021/12/27/opinion/chuck-close-artist.html?searchResultPosition=10
 
