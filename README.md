@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/27/world/africa/somalia-prime-minister-suspended.htm
 
 **A lab in Australia mistakenly tells hundreds of people they tested negative.**\
 `Human error is blamed for the mix-up, which so far has affected 400 people at a clinic in Sydney.`\
-https://nytimes.com/2021/12/27/world/australia/a-lab-in-australia-mistakenly-tells-hundreds-of-people-they-tested-negative.html?searchResultPosition=2
+https://nytimes.com/2021/12/27/world/australia/australia-lab-negative-covid-tests-mistake.html?searchResultPosition=2
 
 **Helping to Reveal a Still-Shuttered World**\
 `Our weekly photo essay series offered readers a glimpse of distant places and cultures that, for a second straight year, remained largely inaccessible.`\
