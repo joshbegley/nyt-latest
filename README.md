@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/27/us/mining-clean-energy-antimony-tribes.html?searc
 
 **Desmond Tutu’s Funeral Is Limited to 100 People**\
 `Church leaders in South Africa urged mourners to attend services for Desmond M. Tutu, the first Black archbishop of Cape Town, in their local communities because of pandemic restrictions.`\
-https://nytimes.com/video/world/africa/100000008136671/desomond-tutu-funeral-coronavirus-restrictions.html?searchResultPosition=5
+https://nytimes.com/video/embedded/world/africa/100000008136671/desomond-tutu-funeral-coronavirus-restrictions.html?searchResultPosition=5
 
 **Mikaela Shiffrin, a top medal contender at the Beijing Olympics, says she has tested positive.**\
 `The two-time Olympic champion skier will miss World Cup races Tuesday and Wednesday in Lienz, Austria.`\
