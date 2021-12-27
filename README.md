@@ -30,8 +30,8 @@ https://nytimes.com/2021/12/26/world/two-college-football-bowl-games-are-cancele
 `For over 100 years, The Times has inspired readers to donate to The Neediest Cases Fund, which helps people in need.`\
 https://nytimes.com/2021/12/26/neediest-cases/using-journalism-to-give-back.html?searchResultPosition=8
 
-**Why the Police Believe They’re Not to Blame for Deaths in Custody**\
-`Inside the self-reinforcing ecosystem of paid experts who advise and train officers, then absolve those accused of killings.`\
+**How Paid Experts Help Exonerate Police After Deaths in Custody**\
+`Inside the self-reinforcing ecosystem of people who advise, train and defend officers. Many accuse them of slanting science and perpetuating aggressive tactics.`\
 https://nytimes.com/2021/12/26/us/police-deaths-in-custody-blame.html?searchResultPosition=9
 
 **No sailors on a Navy ship have needed hospitalization after outbreak.**\
