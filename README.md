@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/27/technology/gdpr-internet-privacy-onetrust.html?se
 https://nytimes.com/2021/12/27/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
 **Jean-Marc Vallée, Director of ‘Dallas Buyers Club,’ Dies at 58**\
-`Known for his naturalistic approach, the Canadian-born filmmaker transformed true stories into award-winning dramas.`\
+`Known for his naturalistic approach, the Canadian-born filmmaker transformed true stories into acclaimed dramas.`\
 https://nytimes.com/2021/12/27/movies/jean-marc-vallee-dead.html?searchResultPosition=5
 
 **What’s on TV This Week: ‘Around the World in 80 Days’ and New Year’s Eve**\
