@@ -1,40 +1,40 @@
+**Why New York City May Soon Be More Walkable for Blind People**\
+`A federal judge ordered New York City to install more than 9,000 accessible pedestrian signals at city crosswalks.`\
+https://nytimes.com/2021/12/27/nyregion/nyc-crosswalk-blind-people.html?searchResultPosition=1
+
+**Vaccine Order Begins for New York City’s Private Employers**\
+`Mayor Bill de Blasio announced that all employers in New York City must now verify that their on-site workers have received at least one dose of a coronavirus vaccine.`\
+https://nytimes.com/video/nyregion/100000008137206/nyc-vaccine-mandate.html?searchResultPosition=2
+
+**Biden Signs $770 Billion Defense Bill**\
+`The National Defense Authorization Act passed Congress with bipartisan support, over the opposition of liberals pushing for more social spending.`\
+https://nytimes.com/2021/12/27/us/politics/biden-defense-bill.html?searchResultPosition=3
+
 **New York State Sending Millions of Covid Tests to School Districts**\
 `Gov. Kathy Hochul and her team announced that New York would deliver six million coronavirus tests to school districts across the state.`\
-https://nytimes.com/video/nyregion/100000008137093/new-york-covid-tests-schools.html?searchResultPosition=1
+https://nytimes.com/video/nyregion/100000008137093/new-york-covid-tests-schools.html?searchResultPosition=4
 
 **Biden Reassures Governors as Coronavirus Surges**\
 `The governor of Arkansas raised concerns about President Biden’s plan for the federal government to purchase 500 million rapid at-home tests.`\
-https://nytimes.com/video/us/politics/100000008136804/biden-governors-covid-tests.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000008136804/biden-governors-covid-tests.html?searchResultPosition=5
 
 **Winter Storm Wreaks Havoc in the Sierra Nevada**\
 `The widespread storm system began over the holiday weekend and forced the closure of several major highways and state roads in Northern California.`\
-https://nytimes.com/video/us/100000008136865/winter-storm-snow-california.html?searchResultPosition=3
+https://nytimes.com/video/us/100000008136865/winter-storm-snow-california.html?searchResultPosition=6
 
 **Winter Storm Shuts Down 81 Miles of an Interstate in the Sierra Nevada**\
 `A sprawling storm system pummeled the West, making travel in some cases “outright impossible,” a National Weather Service meteorologist said.`\
-https://nytimes.com/2021/12/27/us/sierra-nevada-california-snow.html?searchResultPosition=4
+https://nytimes.com/2021/12/27/us/sierra-nevada-california-snow.html?searchResultPosition=7
 
 **Your Tuesday Briefing: Israel Collects Data on Fourth Dose**\
 `The studies will be watched by governments around the world.`\
-https://nytimes.com/2021/12/27/briefing/israel-booster-premier-league-typhoon-rai.html?searchResultPosition=5
+https://nytimes.com/2021/12/27/briefing/israel-booster-premier-league-typhoon-rai.html?searchResultPosition=8
 
 **Donald H. Elliott, Innovative Urban Planner, Dies at 89**\
 `He preserved landmarks in New York through creative zoning, involved communities in decision-making and insisted on aesthetic standards for urban design.`\
-https://nytimes.com/2021/12/27/nyregion/donald-h-elliott-dead.html?searchResultPosition=6
+https://nytimes.com/2021/12/27/nyregion/donald-h-elliott-dead.html?searchResultPosition=9
 
 **Stream These 9 Titles Before They Leave Netflix in January**\
 `The turnover is a little lighter this month for U.S. subscribers, but there are still a bunch of great movies and TV shows worth catching.`\
-https://nytimes.com/2021/12/27/arts/television/netflix-january.html?searchResultPosition=7
-
-**‘People Want Jewelry With Meaning’: How Breast Milk Became a Gem**\
-`Mothers are memorializing their breastfeeding experiences with stones made from the liquid.`\
-https://nytimes.com/2021/12/27/style/breast-milk-jewelry.html?searchResultPosition=8
-
-**10 Photos of the Year From California**\
-`The past 12 months were more than just Year 2 of the pandemic.`\
-https://nytimes.com/2021/12/27/us/california-2021-photos.html?searchResultPosition=9
-
-**A ‘Tragic Mistake’ by Officer Potter, but Not a Criminal One**\
-`Two readers disagree with the verdict in the shooting of Daunte Wright. Also: Tributes to Desmond Tutu and Joan Didion; Amy Coney Barrett and Roe.`\
-https://nytimes.com/2021/12/27/opinion/letters/officer-potter-verdict.html?searchResultPosition=10
+https://nytimes.com/2021/12/27/arts/television/netflix-january.html?searchResultPosition=10
 
