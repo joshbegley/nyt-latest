@@ -1,40 +1,40 @@
+**Iraq Confirms Election Gains for Shiite Leader Emerging as Unlikely U.S. Ally**\
+`A court certified October’s parliamentary vote that gave Muqtada al-Sadr’s party a plurality of seats, clearing a path for a government to be formed.`\
+https://nytimes.com/2021/12/27/world/middleeast/iraq-election-muqtada-al-sadr.html?searchResultPosition=1
+
 **$3.5 Million Homes in California**\
 `A midcentury-modern house in Palm Springs, a 1929 Spanish-style home in Los Angeles and a neo-Classical retreat in Montecito.`\
-https://nytimes.com/2021/12/27/realestate/3-5-million-homes-in-california.html?searchResultPosition=1
+https://nytimes.com/2021/12/27/realestate/3-5-million-homes-in-california.html?searchResultPosition=2
 
 **What You Get for $3.5 Million in California**\
 `A midcentury-modern house in Palm Springs, a 1929 Spanish-style home in Los Angeles and a neo-Classical retreat in Montecito.`\
-https://nytimes.com/slideshow/2021/12/27/realestate/what-you-get-for-3-5-million-in-california.html?searchResultPosition=2
+https://nytimes.com/slideshow/2021/12/27/realestate/what-you-get-for-3-5-million-in-california.html?searchResultPosition=3
 
 **Juliette Lewis, an ‘Imagination Freak Fairy,’ Knows Her Worth**\
 `She’s been a child star, and a rock star. Now, at 48 and starring in the buzzy thriller “Yellowjackets,” Lewis has discovered how to regenerate.`\
-https://nytimes.com/2021/12/27/arts/television/yellowjackets-juliette-lewis.html?searchResultPosition=3
+https://nytimes.com/2021/12/27/arts/television/yellowjackets-juliette-lewis.html?searchResultPosition=4
 
 **From a Burger King to a Concert Hall, With Help From Frank Gehry**\
 `The Los Angeles Philharmonic’s ambitious new home for its youth orchestra is the latest sign of the changing fortunes of Inglewood.`\
-https://nytimes.com/2021/12/27/arts/frank-gehry-yola-dudamel.html?searchResultPosition=4
+https://nytimes.com/2021/12/27/arts/frank-gehry-yola-dudamel.html?searchResultPosition=5
 
 **Jurors Set to Deliberate for Fourth Day in the Elizabeth Holmes Trial**\
 `A jury of eight men and four women deliberated for three days last week with no verdict in the case of the Theranos founder.`\
-https://nytimes.com/2021/12/27/technology/elizabeth-holmes-trial-theranos.html?searchResultPosition=5
+https://nytimes.com/2021/12/27/technology/elizabeth-holmes-trial-theranos.html?searchResultPosition=6
 
 **Richard Marcinko, Founding Commander of SEAL Team 6, Dies at 81**\
 `The Navy asked Commander Marcinko, a larger-than-life soldier who often flouted rules, to build a SEAL unit that could respond quickly to terrorist crises.`\
-https://nytimes.com/2021/12/27/us/richard-marcinko-dead.html?searchResultPosition=6
+https://nytimes.com/2021/12/27/us/richard-marcinko-dead.html?searchResultPosition=7
 
 **South Africa Begins a Week of Mourning for Desmond Tutu**\
 `The cleric and anti-apartheid activist’s funeral will be held on Jan. 1 at the cathedral where he served as South Africa’s first Black archbishop.`\
-https://nytimes.com/2021/12/27/world/africa/desmond-tutu-mourning.html?searchResultPosition=7
+https://nytimes.com/2021/12/27/world/africa/desmond-tutu-mourning.html?searchResultPosition=8
 
 **Israel begins studying the effectiveness of a 4th vaccine dose.**\
 `A decision on whether to offer the additional shot, and for whom, is expected within days.`\
-https://nytimes.com/2021/12/27/world/middleeast/israel-fourth-dose-covid-vaccine.html?searchResultPosition=8
+https://nytimes.com/2021/12/27/world/middleeast/israel-fourth-dose-covid-vaccine.html?searchResultPosition=9
 
 **Watch: E.O. Wilson’s 2008 Interview With The Times**\
 `Edward O. Wilson, the legendary biologist, talked with the Times’s James Gorman in 2008 about his lifelong quest to explore and to protect the planet’s biodiversity.`\
-https://nytimes.com/video/obituaries/1194834030869/last-word-e-o-wilson-obituary.html?searchResultPosition=9
-
-**Overlooked Stories**\
-`Today we look at stories from 2021 that didn’t receive as much attention as they deserved.`\
-https://nytimes.com/2021/12/27/briefing/overlooked-stories-2021-journalism.html?searchResultPosition=10
+https://nytimes.com/video/obituaries/1194834030869/last-word-e-o-wilson-obituary.html?searchResultPosition=10
 
