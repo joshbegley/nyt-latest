@@ -6,7 +6,7 @@ https://nytimes.com/2021/12/27/science/russia-nasa-spacex-asat.html?searchResult
 `In the years since Juan Carlos, Spain’s former king, fled the country to escape corruption investigations, some of the cases have been resolved or dropped. Now Spaniards are weighing whether they want him back.`\
 https://nytimes.com/2021/12/27/world/europe/spain-king-juan-carlos.html?searchResultPosition=2
 
-**Iraq Confirms Election Gains for Shiite Leader Emerging as Unlikely U.S. Ally**\
+**Iraq Confirms Election Gains for Shiite Leader Seen as Potential U.S. Ally**\
 `A court certified October’s parliamentary vote that gave Muqtada al-Sadr’s party a plurality of seats, clearing a path for a government to be formed.`\
 https://nytimes.com/2021/12/27/world/middleeast/iraq-election-muqtada-al-sadr.html?searchResultPosition=3
 
