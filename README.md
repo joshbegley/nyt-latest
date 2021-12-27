@@ -1,6 +1,6 @@
 **Jurors Set to Deliberate for Fourth Day in the Elizabeth Holmes Trial**\
 `A jury of eight men and four women deliberated for three days last week with no verdict in the case of the Theranos founder.`\
-https://nytimes.com/2021/12/27/technology/jurors-set-to-deliberate-for-fourth-day-in-the-elizabeth-holmes-trial.html?searchResultPosition=1
+https://nytimes.com/2021/12/27/technology/elizabeth-holmes-trial-theranos.html?searchResultPosition=1
 
 **Richard Marcinko, Founding Commander of SEAL Team 6, Dies at 81**\
 `The Navy asked Commander Marcinko, a larger-than-life soldier who often flouted rules, to build a SEAL unit that could respond quickly to terrorist crises.`\
