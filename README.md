@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/27/style/breast-milk-jewelry.html?searchResultPositi
 
 **10 Photos of the Year From California**\
 `The past 12 months were more than just Year 2 of the pandemic.`\
-https://nytimes.com/2021/12/27/us/10-photos-of-the-year-from-california.html?searchResultPosition=2
+https://nytimes.com/2021/12/27/us/california-2021-photos.html?searchResultPosition=2
 
 **A ‘Tragic Mistake’ by Officer Potter, but Not a Criminal One**\
 `Two readers disagree with the verdict in the shooting of Daunte Wright. Also: Tributes to Desmond Tutu and Joan Didion; Amy Coney Barrett and Roe.`\
