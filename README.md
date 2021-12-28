@@ -16,7 +16,7 @@ https://nytimes.com/interactive/2021/12/28/science/science-quiz-distance-year.ht
 
 **Air Filters and Outdoor Spaces: Office Costs Rise as Workers Return**\
 `Building owners may have saved on maintenance when their offices were dark, but new pandemic-related costs are being added to the bill.`\
-https://nytimes.com/2021/12/28/business/office-return-maintenance-costs.html?searchResultPosition=5
+https://nytimes.com/2021/12/28/business/offices-coronavirus.html?searchResultPosition=5
 
 **Recent Commercial Real Estate Transactions**\
 `Recent commercial real estate transactions in New York.`\
