@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/28/briefing/new-years-omicron-briefing.html?searchRe
 
 **Better Living Through Stoicism, From Seneca to Modern Interpreters**\
 `The philosophy — which, among other things, counsels how to deal with catastrophe — has experienced a revival over the past decade or so, with another uptick in interest at the start of the pandemic.`\
-https://nytimes.com/2021/12/28/books/stoics-seneca-marcus-aurelius-ryan-holiday.html?searchResultPosition=2
+https://nytimes.com/2021/12/28/books/stoicism-books.html?searchResultPosition=2
 
 **Sharon Gless Admires Eddie Redmayne and L.A.’s Union Station**\
 `The “Cagney & Lacey” star discusses her unflinching new memoir and why Jean Smart’s performance in “Hacks” gives her hope.`\
