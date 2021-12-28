@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/27/sports/basketball/nba-isolation-guidelines-requir
 
 **As Omicron Surges, Officials Shorten Isolation Times for Many Americans**\
 `Hoping to prevent further disruptions to daily life, the C.D.C. reduced the period that certain infected Americans must sequester.`\
-https://nytimes.com/2021/12/27/health/covid-isolation-cdc.html?searchResultPosition=3
+https://nytimes.com/2021/12/27/health/omicron-cdc.html?searchResultPosition=3
 
 **Second Time Capsule Is Found Beneath Pedestal of Lee Statue**\
 `The discovery in Richmond excited historians, officials and crew workers, who hope that the box contains rare memorabilia buried in 1887.`\
