@@ -24,7 +24,7 @@ https://nytimes.com/2021/12/28/sports/rodeo-women.html?searchResultPosition=6
 
 **‘Bless and Protect My Team’: An Italian Town Hopes Its Basketball Patron Advances to National Status**\
 `Porretta Terme, in central Italy, is passionate about basketball, and is pressing the Vatican to officially recognize its local saint as Italy’s patron of the sport.`\
-https://nytimes.com/2021/12/28/world/europe/italy-basketball-saint.html?searchResultPosition=7
+https://nytimes.com/2021/12/28/world/europe/porretta-terme-italy-don-maestrello.html?searchResultPosition=7
 
 **A Cabinet of Wonders Opens Wide**\
 `A Coco Chanel ballet slipper, Beethoven’s hair, Andy Warhol’s painted ticket. “Treasures,” at the New York Public Library, showcases delights from its collections.`\
