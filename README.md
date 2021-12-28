@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2021/12/28/science/animal-discoveries.html?searc
 
 **How Will Americans Eat in 2022? The Food Forecasters Speak.**\
 `They see a new interest in mushrooms, a rethinking of chicken and coffee, a resurgence of 1980s cocktails — and, believe it or not, a return to civility.`\
-https://nytimes.com/2021/12/28/dining/food-trends-2022.html?searchResultPosition=3
+https://nytimes.com/2021/12/28/dining/food-trends-predictions-2022.html?searchResultPosition=3
 
 **A lengthy doctors’ strike over understaffing sparks chaos at New Delhi hospitals.**\
 `While the country’s overall case count remains low, daily infections in the capital region have risen by more than 300 percent over the past two weeks.`\
@@ -32,7 +32,7 @@ https://nytimes.com/video/embedded/nyregion/100000008137797/coronavirus-nyc-live
 
 **Chile Rewrites Its Constitution, Confronting Climate Change Head On**\
 `Chile has lots of lithium, which is essential to the world’s transition to green energy. But anger over powerful mining interests, a water crisis and inequality has driven Chile to rethink how it defines itself.`\
-https://nytimes.com/2021/12/28/climate/chile-constitution-lithium-water-climate.html?searchResultPosition=9
+https://nytimes.com/2021/12/28/climate/chile-constitution-climate-change.html?searchResultPosition=9
 
 **How a Pro Skateboarder Became an Apostle of Ancient Tuning**\
 `Duane Pitre was poised to become a street skating legend. Now he embraces just intonation.`\
