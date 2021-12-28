@@ -1,6 +1,6 @@
 **Your Wednesday Briefing: Omicron Curbs New Year’s Eve**\
 `No big parties in Paris, Rome, Tokyo and beyond.`\
-https://nytimes.com/2021/12/28/briefing/omicron-new-years-memorial-international-india-christians.html?searchResultPosition=1
+https://nytimes.com/2021/12/28/briefing/new-years-omicron-briefing.html?searchResultPosition=1
 
 **Better Living Through Stoicism, From Seneca to Modern Interpreters**\
 `The philosophy — which, among other things, counsels how to deal with catastrophe — has experienced a revival over the past decade or so, with another uptick in interest at the start of the pandemic.`\
