@@ -11,8 +11,8 @@ https://nytimes.com/2021/12/28/world/americas/brazil-floods.html?searchResultPos
 https://nytimes.com/2021/12/28/world/omicron-covid-contagious-cdc.html?searchResultPosition=3
 
 **‘The Music Man’ is canceling shows after Hugh Jackman announces he has Covid.**\
-`By Laura Zornosa`\
-https://nytimes.com/2021/12/28/arts/hugh-jackman-covid-music-man-canceled.html?searchResultPosition=4
+`The show joins other productions that have been suspended, including the Temptations musical “Ain’t Too Proud,” which will close for good on Jan. 16.`\
+https://nytimes.com/2021/12/28/arts/hugh-jackman-covid-the-music-man.html?searchResultPosition=4
 
 **Your Wednesday Briefing: Omicron Curbs New Year’s Eve**\
 `No big parties in Paris, Rome, Tokyo and beyond.`\
