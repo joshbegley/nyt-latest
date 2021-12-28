@@ -16,7 +16,7 @@ https://nytimes.com/2021/12/28/dining/nyc-restaurant-openings.html?searchResultP
 
 **Britain’s Crossbow Rules in the Cross Hairs After Windsor Castle Breach**\
 `Britain’s Home Office said it was “considering options to strengthen controls” on the weapons, part of a continuing review, after a man was arrested in castle grounds with one.`\
-https://nytimes.com/2021/12/28/world/europe/windsor-castle-crossbow.html?searchResultPosition=5
+https://nytimes.com/2021/12/28/world/europe/windsor-castle-intruder.html?searchResultPosition=5
 
 **Born and Raised in Pakistan, but Living in Legal Limbo**\
 `Pakistan has refused to grant the children of Afghan refugees full rights as citizens. A lack of identification documents limits their livelihoods and puts them at risk of deportation.`\
