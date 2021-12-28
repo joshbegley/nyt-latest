@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/28/nyregion/nyc-schools-covid-testing-students.html?
 
 **Watch Live: De Blasio, Hochul and Adams Speak**\
 `Mayor Bill de Blasio, Governor Kathy Hochul and Mayor-elect Eric Adams hold a press conference about New York City’s schools.`\
-https://nytimes.com/video/nyregion/100000008137797/coronavirus-nyc-livestream.html?searchResultPosition=2
+https://nytimes.com/video/embedded/nyregion/100000008137797/coronavirus-nyc-livestream.html?searchResultPosition=2
 
 **Chile Rewrites Its Constitution, Confronting Climate Change Head On**\
 `Chile has lots of lithium, which is essential to the world’s transition to green energy. But anger over powerful mining interests, a water crisis and inequality has driven Chile to rethink how it defines itself.`\
