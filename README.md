@@ -1,40 +1,40 @@
-**Once Again, Nursing Homes Are Under Scrutiny**\
-`Some nursing homes are struggling to administer booster shots to their residents.`\
-https://nytimes.com/2021/12/28/nyregion/once-again-nursing-homes-are-under-scrutiny.html?searchResultPosition=1
+**Seeking Opportunity, a Cowgirl Hits the Road**\
+`Jackie Crawford, a champion breakaway roper, is among the riders blazing a new path for women in rodeo.`\
+https://nytimes.com/2021/12/28/sports/rodeo-women.html?searchResultPosition=1
 
-**Germany Wants Its Russian Pipeline. German Allies Aren’t Sure It’s a Good Idea.**\
-`The Nord Stream 2 Russia-to-Germany pipeline could offer plentiful natural gas. But tensions with Vladimir Putin are keeping it out of reach.`\
-https://nytimes.com/2021/12/28/world/europe/nord-stream-pipeline-germany-russia.html?searchResultPosition=2
+**‘Bless and Protect My Team’: An Italian Town Hopes Its Basketball Patron Advances to National Status**\
+`Porretta Terme, in central Italy, is passionate about basketball, and is pressing the Vatican to officially recognize its local saint as Italy’s patron of the sport.`\
+https://nytimes.com/2021/12/28/world/europe/italy-basketball-saint.html?searchResultPosition=2
 
-**As Traffic Roars Back, Neighborhoods Outside Manhattan Feel the Pain**\
-`With transit use lagging and truck deliveries and car ownership rising, congestion across New York City is likely to be worse after the pandemic than it was before.`\
-https://nytimes.com/2021/12/28/nyregion/new-york-city-traffic.html?searchResultPosition=3
+**A Cabinet of Wonders Opens Wide**\
+`A Coco Chanel ballet slipper, Beethoven’s hair, Andy Warhol’s painted ticket. “Treasures,” at the New York Public Library, showcases delights from its collections.`\
+https://nytimes.com/2021/12/28/arts/ny-public-library-treasures.html?searchResultPosition=3
 
-**A New Generation Stacks Up Championships in an Old Game — Tetris**\
-`The best player in the world over the last two years is a 14-year-old boy from Fort Worth. One of his main challengers? His 16-year-old brother.`\
-https://nytimes.com/2021/12/28/sports/tetris-game-players.html?searchResultPosition=4
+**No, the Build Back Better Act Isn’t Dead Yet**\
+`The strategy Barack Obama used to resuscitate the A.C.A. offers clues that may help revive the Build Back Better Act, and President Biden’s precarious standing.`\
+https://nytimes.com/2021/12/28/opinion/build-back-better-biden.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/28/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**He Went to Jail on Minor Charges. He Left in a Coma.**\
+`Jayshawn Boyd, 22, was attacked inside a New Jersey jail in a beating caught on video. Then another detainee was killed, leading to multiple inquiries.`\
+https://nytimes.com/2021/12/28/nyregion/new-jersey-prison-beating.html?searchResultPosition=5
 
-**You Don’t Need a Spaceship to Grow ‘Weird Little’ Martian Radishes**\
-`Scientists on this planet have worked out a variety of techniques to simulate the conditions of other worlds that are near and very far.`\
-https://nytimes.com/2021/12/28/science/moon-mars-titan-simulations.html?searchResultPosition=6
+**Shopping for Flatware**\
+`Your knives, forks and spoons set the tone for a meal — but they also need to be easy to use. Here’s how to choose the right ones.`\
+https://nytimes.com/2021/12/28/realestate/shopping-for-flatware.html?searchResultPosition=6
 
-**Sickle Cell Math Is Brutally Simple, but Not Widely Taught**\
-`An inexpensive blood test can warn couples if they face one in four odds of having a baby with the disease. No one ever told Lametra Scott and Rickey Buggs about it.`\
-https://nytimes.com/2021/12/28/health/sickle-cell-genetic-testing.html?searchResultPosition=7
+**How to Spot Those Pesky (and Expensive) Lodging Fees**\
+`Some charges are up, some down, others more explicit as the lodging industry tries to recover from the pandemic.`\
+https://nytimes.com/2021/12/28/travel/lodging-fees.html?searchResultPosition=7
 
-**Gunman Kills 4 in Denver Area Before He Is Fatally Shot**\
-`The shooting spree on Monday night left three others wounded, including a police officer.`\
-https://nytimes.com/2021/12/28/us/denver-shooting-lakewood.html?searchResultPosition=8
+**Making These Resolutions Can Improve a Relationship**\
+`Relationship experts share four suggestions for enhancing intimacy and romance with your partner in the new year.`\
+https://nytimes.com/2021/12/28/style/making-these-resolutions-can-improve-a-relationship.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`Omicron’s effects in the U.S.`\
-https://nytimes.com/2021/12/28/briefing/omicron-iraq-cleric.html?searchResultPosition=9
+**The 2021 High School Yearbook of American Politics**\
+`The figures and stories that defined 12 very weird months.`\
+https://nytimes.com/2021/12/28/opinion/2021-political-stories-politicians.html?searchResultPosition=9
 
-**Riot Games to Pay $100 Million in Gender Discrimination Case**\
-`The company was originally set to pay its female employees $10 million until California fought successfully for more money.`\
-https://nytimes.com/2021/12/28/business/riot-games-to-pay-100-million-in-gender-discrimination-case.html?searchResultPosition=10
+**I’m Invited to a Destination Wedding at a Plantation. What Do I Do?**\
+`The magazine’s Ethicist columnist on how uncomfortable moments can’t be avoided if our country is going to get out from under four centuries of racism.`\
+https://nytimes.com/2021/12/28/magazine/plantation-wedding.html?searchResultPosition=10
 
