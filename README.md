@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/28/arts/neil-marcus-dead.html?searchResultPosition=1
 
 **Record Floods Stun Brazil’s Northeast, Killing at Least 20**\
 `In northeast Brazil, local officials say they have never before seen flooding on this scale. Tens of thousands were forced to flee their homes.`\
-https://nytimes.com/2021/12/28/world/americas/brazil-floods.html?searchResultPosition=2
+https://nytimes.com/2021/12/28/world/americas/brazil-floods-climate-change.html?searchResultPosition=2
 
 **An early Omicron cluster in the U.S. suggests the variant has a shorter incubation period.**\
 `A case study of one infected household observed that it may take as little as three days for people to become contagious, compared with four to six days with earlier versions of the virus.`\
