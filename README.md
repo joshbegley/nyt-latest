@@ -1,6 +1,6 @@
 **Jan. 6 Committee Shelves Requests for Hundreds of Trump Records**\
 `The Biden administration asked to shield some sensitive documents but continued to reject Trump’s blanket claim of executive privilege.`\
-https://nytimes.com/2021/12/28/us/politics/jan-6-committee-trump-records.html?searchResultPosition=1
+https://nytimes.com/2021/12/28/us/politics/trump-jan-6.html?searchResultPosition=1
 
 **Omicron, Russia, Tetris: Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
