@@ -1,6 +1,6 @@
 **This College Bowl Season, the Toughest Opponent is the Coronavirus**\
 `The Holiday Bowl, canceled on Tuesday, was the latest postseason college football game to be scratched or changed because one of the schools could not field a team.`\
-https://nytimes.com/2021/12/28/sports/college-football-bowl-cancellations-postponements-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2021/12/28/sports/college-football-holiday-bowl.html?searchResultPosition=1
 
 **Neil Marcus, Whose Art Illuminated Disability, Dies at 67**\
 `A playwright and actor, he saw his life as performance art. He was best known for his play “Storm Reading.”`\
