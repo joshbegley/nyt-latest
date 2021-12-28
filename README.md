@@ -20,7 +20,7 @@ https://nytimes.com/2021/12/28/world/asia/delta-flight-shanghai-seattle.html?sea
 
 **Seeking Opportunity, a Cowgirl Hits the Road**\
 `Jackie Crawford, a champion breakaway roper, is among the riders blazing a new path for women in rodeo.`\
-https://nytimes.com/2021/12/28/sports/rodeo-women.html?searchResultPosition=6
+https://nytimes.com/2021/12/28/sports/rodeo-women-cow-girl.html?searchResultPosition=6
 
 **He Went to Jail on Minor Charges. He Left in a Coma.**\
 `Jayshawn Boyd, 22, was attacked inside a New Jersey jail in a beating caught on video. Then another detainee was killed, leading to multiple inquiries.`\
