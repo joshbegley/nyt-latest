@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/27/us/politics/sarah-weddington-dead.html?searchResu
 
 **New York City Tries New Approach: Vaccine Mandate for Private Employers**\
 `As coronavirus cases — and breakthrough infections — surge in the city because of the Omicron variant, some employers said a sweeping new vaccine mandate was the least of their concerns.`\
-https://nytimes.com/2021/12/27/nyregion/nyc-covid-vaccine-mandate.html?searchResultPosition=2
+https://nytimes.com/2021/12/27/nyregion/nyc-vaccine-mandate.html?searchResultPosition=2
 
 **Omicron, Desmond Tutu, Hot Dog Vendors: Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
