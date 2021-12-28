@@ -1,6 +1,6 @@
 **An early Omicron cluster in the U.S. suggests the variant has a shorter incubation period.**\
 `A case study of one infected household observed that it may take as little as three days for people to become contagious, compared with four to six days with earlier versions of the virus.`\
-https://nytimes.com/2021/12/28/world/omicron-cluster-covid-cdc.html?searchResultPosition=1
+https://nytimes.com/2021/12/28/world/omicron-covid-contagious-cdc.html?searchResultPosition=1
 
 **‘The Music Man’ is canceling shows after Hugh Jackman announces he has Covid.**\
 `By Laura Zornosa`\
