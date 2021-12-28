@@ -1,6 +1,6 @@
 **Teen Who Sought New Life Found Death at Hands of the Police, Father Says**\
 `The family of Valentina Orellana-Peralta described the terrifying moments before the 14-year-old girl, who had recently moved to Los Angeles from Chile, was killed by a stray bullet fired by a police officer.`\
-https://nytimes.com/2021/12/28/us/los-angeles-police-shooting-valentina-orellana-peralta.html?searchResultPosition=1
+https://nytimes.com/2021/12/28/us/la-police-shooting-valentina-orellana-peralta.html?searchResultPosition=1
 
 **Killer Who Stabbed 4 People 100 Times Gets Life Without Parole**\
 `Chad Isaak, 47, was convicted in August of murdering four people at RJR Maintenance & Management in Mandan, N.D., in 2019. He told a judge, “I’m not a murderer.”`\
