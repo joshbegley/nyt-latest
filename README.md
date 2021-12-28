@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/28/climate/thomas-lovejoy-dead.html?searchResultPosi
 
 **Omicron Is Not More Severe for Children, Despite Rising Hospitalizations**\
 `More children are being treated for Covid, but a combination of factors, including low vaccination rates, most likely explains the increase.`\
-https://nytimes.com/2021/12/28/health/covid-children-covid.html?searchResultPosition=2
+https://nytimes.com/2021/12/28/health/omicron-kids-hospitalizations.html?searchResultPosition=2
 
 **New Footage Shows Police Opening Fire in Los Angeles Shooting**\
 `Body camera footage shows a man attacking holiday shoppers in a Burlington clothing store before the police open fire, killing the suspect and a 14-year-old girl.`\
