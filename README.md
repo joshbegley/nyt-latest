@@ -30,11 +30,11 @@ https://nytimes.com/2021/12/28/realestate/shopping-for-flatware.html?searchResul
 `Some charges are up, some down, others more explicit as the lodging industry tries to recover from the pandemic.`\
 https://nytimes.com/2021/12/28/travel/lodging-fees.html?searchResultPosition=8
 
-**Making These Resolutions Can Improve a Relationship**\
-`Relationship experts share four suggestions for enhancing intimacy and romance with your partner in the new year.`\
-https://nytimes.com/2021/12/28/style/making-these-resolutions-can-improve-a-relationship.html?searchResultPosition=9
-
 **The 2021 High School Yearbook of American Politics**\
 `The figures and stories that defined 12 very weird months.`\
-https://nytimes.com/2021/12/28/opinion/2021-political-stories-politicians.html?searchResultPosition=10
+https://nytimes.com/2021/12/28/opinion/2021-political-stories-politicians.html?searchResultPosition=9
+
+**Making These Resolutions Can Improve a Relationship**\
+`Relationship experts share four suggestions for enhancing intimacy and romance with your partner in the new year.`\
+https://nytimes.com/2021/12/28/style/making-these-resolutions-can-improve-a-relationship.html?searchResultPosition=10
 
