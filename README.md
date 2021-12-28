@@ -26,7 +26,7 @@ https://nytimes.com/2021/12/28/science/moon-mars-titan-simulations.html?searchRe
 `An inexpensive blood test can warn couples if they face one in four odds of having a baby with the disease. No one ever told Lametra Scott and Rickey Buggs about it.`\
 https://nytimes.com/2021/12/28/health/sickle-cell-genetic-testing.html?searchResultPosition=7
 
-**Gunman Kills 4 in Denver Area Before He’s Fatally Shot**\
+**Gunman Kills 4 in Denver Area Before He Is Fatally Shot**\
 `The shooting spree on Monday night left three others wounded, including a police officer.`\
 https://nytimes.com/2021/12/28/us/denver-shooting-lakewood.html?searchResultPosition=8
 
