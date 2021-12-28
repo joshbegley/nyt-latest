@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/28/world/europe/windsor-castle-crossbow.html?searchR
 
 **Born and Raised in Pakistan, but Living in Legal Limbo**\
 `Pakistan has refused to grant the children of Afghan refugees full rights as citizens. A lack of identification documents limits their livelihoods and puts them at risk of deportation.`\
-https://nytimes.com/2021/12/28/world/asia/afghanistan-pakistan-refugee-limbo.html?searchResultPosition=4
+https://nytimes.com/2021/12/28/world/asia/refugees-afghanistan-pakistan.html?searchResultPosition=4
 
 **2021’s Most Fascinating Animals**\
 `Highlights from some of the most unusual discoveries in the animal kingdom this year.`\
