@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/28/arts/design/marabar-national-geographic-american-
 
 **Judge Says New York Times Can Retain Project Veritas Memos, for Now**\
 `A New York appeals court said the paper did not need to immediately give up or destroy documents related to the conservative group. The paper is still prevented from publishing certain documents.`\
-https://nytimes.com/2021/12/28/business/media/new-york-times-project-veritas.html?searchResultPosition=4
+https://nytimes.com/2021/12/28/business/media/nyt-project-veritas.html?searchResultPosition=4
 
 **Second Time Capsule Found Beneath Lee Statue**\
 `Conservation experts recovered a copper box buried more than a century ago from a pedestal that once held a statue of Confederate Gen. Robert E. Lee in Virginia.`\
