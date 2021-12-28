@@ -12,7 +12,7 @@ https://nytimes.com/2021/12/27/briefing/omicron-desmond-tutu-hot-dog-vendors-you
 
 **About 20 Apple stores are now closed as the Omicron variant surges.**\
 `Some of the closures were precautionary; others were closed because not enough healthy employees were available.`\
-https://nytimes.com/2021/12/27/business/apple-stores-closed.html?searchResultPosition=4
+https://nytimes.com/2021/12/27/business/apple-stores-closed-covid-omicron.html?searchResultPosition=4
 
 **Coronavirus Briefing: Record-breaking cases**\
 `And a testing guide for holiday parties.`\
