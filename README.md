@@ -1,6 +1,6 @@
 **Omicron Variant Might Help Defend Against Delta, Lab Study Suggests**\
 `In the lab, antibodies produced during an Omicron infection protected against Delta. If Omicron dominates in the real world, that could lead to a less dire future.`\
-https://nytimes.com/2021/12/28/health/covid-omicron-antibodies-beat-delta.html?searchResultPosition=1
+https://nytimes.com/2021/12/28/health/covid-omicron-antibodies-delta.html?searchResultPosition=1
 
 **Second N.Y. Prosecutor Declines to Seek Criminal Charges Against Cuomo**\
 `Allegations that two women made against the former governor were credible, the Westchester County district attorney said, but she said that his conduct was not criminal.`\
