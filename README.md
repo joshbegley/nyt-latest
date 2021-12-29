@@ -1,40 +1,40 @@
-**New York City Looks to Test More and Keep Classrooms Open**\
-`The city said it would allow students who were exposed to Covid to remain in school if they test negative for the coronavirus and have no symptoms.`\
-https://nytimes.com/2021/12/29/nyregion/nyc-schools-testing.html?searchResultPosition=1
+**‘A Moment of Intimacy’: New Yorkers and the Sacred Spaces in Their Homes**\
+`Hundreds of thousands of people in the city have set aside a part of their homes to pray, meditate or give thanks for another day.`\
+https://nytimes.com/2021/12/29/nyregion/a-moment-of-intimacy-new-yorkers-and-the-sacred-spaces-in-their-homes.html?searchResultPosition=1
 
-**What a Year of Brexit Brought U.K. Companies: Higher Costs and Endless Forms**\
-`While the worst of the Brexit trade disruptions are over, British exports to the European Union are down and companies are frustrated.`\
-https://nytimes.com/2021/12/29/business/uk-companies-brexit-trade.html?searchResultPosition=2
+**On Slaughterhouse Floor, Fear and Anger Remain**\
+`Workers say factories are still glossing over virus safety, as the meatpackers that dominate beef production harvest record profits.`\
+https://nytimes.com/2021/12/29/business/meat-factories-covid.html?searchResultPosition=2
 
-**How Does Your 9-Year-Old’s Hockey Team Rank Nationally?**\
-`MYHockey Rankings actually keeps track. Coaches say the website helps them find suitable opponents, but critics say it detracts from player development.`\
-https://nytimes.com/2021/12/29/sports/hockey/myhockey-youth-rankings.html?searchResultPosition=3
+**Voting Rights and the Battle Over Elections: What to Know**\
+`Since the 2020 election, Republicans have pursued a host of new voting restrictions across the country. Here’s where things stand.`\
+https://nytimes.com/article/voting-rights-tracker.html?searchResultPosition=3
 
-**How Discord, Born From an Obscure Game, Became a Social Hub for Young People**\
-`Jason Citron created a video game that was going nowhere fast. So he stripped it down to a chatting feature that eventually boomed during the pandemic.`\
-https://nytimes.com/2021/12/29/business/discord-server-social-media.html?searchResultPosition=4
+**2 Georgia Republicans Rack Up Fines for Defying House’s Mask Mandate**\
+`Representatives Marjorie Taylor Greene and Andrew Clyde have incurred more than $100,000 combined in penalties for dozens of violations.`\
+https://nytimes.com/2021/12/29/us/mask-mandate-fines-greene-clyde.html?searchResultPosition=4
 
-**5 Ways Young People Are Using Discord**\
-`Discord users from 12 to 23 years old describe how they use the messaging site, which has boomed during the pandemic.`\
-https://nytimes.com/2021/12/29/business/discord-users-gen-z.html?searchResultPosition=5
+**Meet Doc PJ, the Physician Who Finds Peace in an Uphill Climb**\
+`Dr. Craig Perrinjaquet has skied up a Colorado mountain every winter morning for 30 years. A friend says it’s the least interesting thing about him.`\
+https://nytimes.com/2021/12/29/sports/ski-uphill-breckenridge-doc-pj.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/29/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**A Story of Love and Obsession**\
+`At home with James Fenton, the English poet, journalist and critic, and Darryl Pinckney, the African American novelist and playwright, in their obsessively, deliriously embellished house in Harlem.`\
+https://nytimes.com/2021/12/29/style/a-story-of-love-and-obsession.html?searchResultPosition=6
 
-**Poland Is a Vision of the Future**\
-`The country is in the vanguard of democratic disintengration and nativist politics.`\
-https://nytimes.com/2021/12/29/opinion/poland-european-union.html?searchResultPosition=7
+**The ‘End of an Ending’: Was 2021 Really The Worst?**\
+`Voices from Times Opinion and “Argument” listeners make their case.`\
+https://nytimes.com/2021/12/29/opinion/2021-better-worse.html?searchResultPosition=7
 
-**After a Dismal 2020 Season, the Eagles Are, Surprisingly, Back**\
-`With a new coach and a second-year quarterback, the formerly pass-happy Philadelphia Eagles have morphed into a gritty option-running team. They have a good chance to make the playoffs.`\
-https://nytimes.com/2021/12/29/sports/after-a-dismal-2020-season-the-eagles-are-surprisingly-back.html?searchResultPosition=8
+**How Oklahoma Became a Marijuana Boom State**\
+`Weed entrepreneurs have poured into Oklahoma from across the United States, propelled by low start-up costs and relaxed rules.`\
+https://nytimes.com/2021/12/29/us/oklahoma-marijuana-boom.html?searchResultPosition=8
 
-**Your Wednesday Briefing**\
-`Omicron marches on.`\
-https://nytimes.com/2021/12/28/briefing/omicron-russia-human-rights.html?searchResultPosition=9
+**Maggie Gyllenhaal Has Dangerous Ideas About Directing**\
+`Is there such a thing as a women’s film or women’s filmmaking? With “The Lost Daughter,” she says the answer is yes.`\
+https://nytimes.com/2021/12/29/movies/maggie-gyllenhaal-lost-daughter.html?searchResultPosition=9
 
-**Keri Hulme, New Zealand’s First Booker Prize Winner, Dies at 74**\
-`The power Ms. Hulme drew from her Maori heritage shone through in her work, especially in “The Bone People,” which won the literary prize in 1985.`\
-https://nytimes.com/2021/12/28/books/keri-hulme-dead.html?searchResultPosition=10
+**Haunting the Coast of Spain: The Ghost Hotel of Algarrobico**\
+`For almost two decades, the hulk of a never-finished hotel has marred an idyllic coastline in southern Spain. Its fate remains cloudy, but the lesson is clear: It’s easier to damage the environment than to fix it.`\
+https://nytimes.com/2021/12/29/travel/spain-abandoned-hotel.html?searchResultPosition=10
 
