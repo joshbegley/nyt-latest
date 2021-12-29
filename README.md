@@ -7,8 +7,8 @@ https://nytimes.com/2021/12/28/obituaries/john-madden-hall-of-fame-coach-is-dead
 https://nytimes.com/2021/12/28/nyregion/murder-mother-son-conviction.html?searchResultPosition=2
 
 **In Quebec, some health care workers who test positive will continue working.**\
-`By Todd Gregory`\
-https://nytimes.com/2021/12/28/world/in-quebec-some-health-care-workers-who-test-positive-will-continue-working.html?searchResultPosition=3
+`All essential workers in the province, including those who work in medicine, will be subject to the new rules.`\
+https://nytimes.com/2021/12/28/world/quebec-health-workers-positive-covid.html?searchResultPosition=3
 
 **We Need to Listen to Desmond Tutu About Forgiveness**\
 `Contemporary activists can benefit from Tutu’s ideas about restorative justice and strengthen their quest for fundamental fairness.`\
