@@ -6,7 +6,7 @@ https://nytimes.com/2021/12/29/world/asia/afghanistan-taliban-helmand-marja.html
 `In shows like “Caroline, or Change” and “Kimberly Akimbo,” the composer excels at translating her astute insights about characters into music.`\
 https://nytimes.com/2021/12/29/theater/jeanine-tesori-kimberly-akimbo-caroline-or-change.html?searchResultPosition=2
 
-**Stay or Go? For Myanmar’s Latest Wave of Refugees, There’s No Good Choice**\
+**Stay or Go? For Myanmar’s Latest Wave of Refugees, There’s No Good Choice.**\
 `Hundreds of thousands who fled deadly unrest at home confront an uncertain future abroad. Yet for many who remained, conditions are dire.`\
 https://nytimes.com/2021/12/29/world/asia/myanmar-coup-refugees.html?searchResultPosition=3
 
