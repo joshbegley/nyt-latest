@@ -3,7 +3,7 @@
 https://nytimes.com/2021/12/29/us/politics/omicron-tests-hospitals.html?searchResultPosition=1
 
 **How John Madden Became the ‘Larger-Than-Life’ Face of a Gaming Empire**\
-`Madden, who died Tuesday, helped bring to life a series of football video games that have generated $7 billion in revenue since 1988.`\
+`Madden, who died Tuesday, helped bring to life a series of football video games that has generated $7 billion in revenue since 1988.`\
 https://nytimes.com/2021/12/29/sports/football/john-madden-nfl-video-game.html?searchResultPosition=2
 
 **Victoria's Secret, Darling Ingredients Rise; FuelCell Falls**\
