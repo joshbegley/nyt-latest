@@ -22,8 +22,8 @@ https://nytimes.com/2021/12/28/world/asia/hong-kong-stand-news-arrest.html?searc
 `Historians had hoped to find a rare, century-old photo of Abraham Lincoln in a box discovered beneath a pedestal of a statue of Robert E. Lee. It was not to be.`\
 https://nytimes.com/2021/12/28/us/robert-e-lee-statue-capsule-confederate.html?searchResultPosition=6
 
-**Harry M. Reid, a Power in the Senate, Dies at 82**\
-`Mr. Reid, a Democrat from Nevada, displayed his pugilistic instincts as he steered an economic stimulus package and the Affordable Care Act to passage.`\
+**Harry M. Reid, Senate Majority Leader Behind Landmark Democratic Victories, Dies at 82**\
+`Mr. Reid, who was from Nevada, displayed his pugilistic instincts as he steered an economic stimulus package and the Affordable Care Act to passage.`\
 https://nytimes.com/2021/12/28/us/politics/harry-reid-dead.html?searchResultPosition=7
 
 **What’s the Best Book of the Past 125 Years? We Asked Readers to Decide.**\
