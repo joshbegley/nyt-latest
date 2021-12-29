@@ -1,40 +1,40 @@
+**Briarcliff Manor, N.Y.: A Village ‘Between Two Rivers’**\
+`Situated between the Hudson and the Pocantico Rivers, 30 miles from Manhattan, the Westchester village offers outdoor activities and a close community.`\
+https://nytimes.com/2021/12/29/realestate/briarcliff-manor-ny-a-village-between-two-rivers.html?searchResultPosition=1
+
+**Living in ... Briarcliff Manor, N.Y.**\
+`Situated between the Hudson and the Pocantico Rivers, 30 miles from Manhattan, the Westchester village offers outdoor activities and a close community.`\
+https://nytimes.com/slideshow/2021/12/29/realestate/living-in-briarcliff-manor-ny.html?searchResultPosition=2
+
+**A Conversation With a Dogecoin Millionaire: An Update**\
+`It was once a parody — then he turned the cryptocurrency into profit.`\
+https://nytimes.com/2021/12/29/podcasts/the-daily/dogecoin-cryptocurrency.html?searchResultPosition=3
+
 **Alaska Records a 67-Degree Day, a December Record**\
 `The reading from Kodiak Island on Sunday was not the only extreme weather in the state this month. Other places have seen record cold or precipitation.`\
-https://nytimes.com/2021/12/29/us/alaska-record-temperature.html?searchResultPosition=1
+https://nytimes.com/2021/12/29/us/alaska-record-temperature.html?searchResultPosition=4
 
 **‘A Moment of Intimacy’: New Yorkers and the Sacred Spaces in Their Homes**\
 `Hundreds of thousands of people in the city have set aside a part of their homes to pray, meditate or give thanks for another day.`\
-https://nytimes.com/2021/12/29/nyregion/sacred-spaces-home-nyc.html?searchResultPosition=2
+https://nytimes.com/2021/12/29/nyregion/sacred-spaces-home-nyc.html?searchResultPosition=5
 
 **On Slaughterhouse Floor, Fear and Anger Remain**\
 `Workers say factories are still glossing over virus safety, as the meatpackers that dominate beef production harvest record profits.`\
-https://nytimes.com/2021/12/29/business/meat-factories-covid.html?searchResultPosition=3
+https://nytimes.com/2021/12/29/business/meat-factories-covid.html?searchResultPosition=6
 
 **Voting Rights and the Battle Over Elections: What to Know**\
 `Since the 2020 election, Republicans have pursued a host of new voting restrictions across the country. Here’s where things stand.`\
-https://nytimes.com/article/voting-rights-tracker.html?searchResultPosition=4
+https://nytimes.com/article/voting-rights-tracker.html?searchResultPosition=7
 
 **2 Georgia Republicans Rack Up Fines for Defying House’s Mask Mandate**\
 `Representatives Marjorie Taylor Greene and Andrew Clyde have incurred more than $100,000 combined in penalties for dozens of violations.`\
-https://nytimes.com/2021/12/29/us/mask-mandate-fines-greene-clyde.html?searchResultPosition=5
+https://nytimes.com/2021/12/29/us/mask-mandate-fines-greene-clyde.html?searchResultPosition=8
 
 **Meet Doc PJ, the Physician Who Finds Peace in an Uphill Climb**\
 `Dr. Craig Perrinjaquet has skied up a Colorado mountain every winter morning for 30 years. A friend says it’s the least interesting thing about him.`\
-https://nytimes.com/2021/12/29/sports/ski-uphill-breckenridge-doc-pj.html?searchResultPosition=6
+https://nytimes.com/2021/12/29/sports/ski-uphill-breckenridge-doc-pj.html?searchResultPosition=9
 
 **A Story of Love and Obsession**\
 `At home with James Fenton, the English poet, journalist and critic, and Darryl Pinckney, the African American novelist and playwright, in their obsessively, deliriously embellished house in Harlem.`\
-https://nytimes.com/2021/12/29/style/a-story-of-love-and-obsession.html?searchResultPosition=7
-
-**The ‘End of an Ending’: Was 2021 Really The Worst?**\
-`Voices from Times Opinion and “Argument” listeners make their case.`\
-https://nytimes.com/2021/12/29/opinion/2021-better-worse.html?searchResultPosition=8
-
-**How Oklahoma Became a Marijuana Boom State**\
-`Weed entrepreneurs have poured into Oklahoma from across the United States, propelled by low start-up costs and relaxed rules.`\
-https://nytimes.com/2021/12/29/us/oklahoma-marijuana-boom.html?searchResultPosition=9
-
-**Maggie Gyllenhaal Has Dangerous Ideas About Directing**\
-`Is there such a thing as a women’s film or women’s filmmaking? With “The Lost Daughter,” she says the answer is yes.`\
-https://nytimes.com/2021/12/29/movies/maggie-gyllenhaal-lost-daughter.html?searchResultPosition=10
+https://nytimes.com/2021/12/29/style/a-story-of-love-and-obsession.html?searchResultPosition=10
 
