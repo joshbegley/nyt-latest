@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/29/world/europe/france-left-presidential-election-pr
 
 **5 Key Songs From Jeanine Tesori’s Songbook**\
 `These works illuminate the composer’s gift for conveying the thoughts and feelings of unforgettable characters.`\
-https://nytimes.com/2021/12/29/arts/5-songs-jeanine-tesori-songbook.html?searchResultPosition=2
+https://nytimes.com/2021/12/29/arts/jeanine-tesori-songs.html?searchResultPosition=2
 
 **Jurors to Start Sixth Day Deliberating in Elizabeth Holmes Trial**\
 `Ms. Holmes, the founder of the blood testing start-up Theranos, is accused of deceiving investors, patients and advertisers.`\
