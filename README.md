@@ -1,6 +1,6 @@
 **Your Thursday Briefing: Myanmar’s Crisis**\
 `Refugees in limbo and danger for those who stay.`\
-https://nytimes.com/2021/12/29/briefing/myanmar-junta-omicron-records-hong-kong.html?searchResultPosition=1
+https://nytimes.com/2021/12/29/briefing/myanmar-refugees-junta.html?searchResultPosition=1
 
 **Severe Floods Kill at Least 20 People in Brazil**\
 `Authorities said the record floods in the northeastern part of the country forced more than 50,000 people to flee their homes.`\
