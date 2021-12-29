@@ -22,7 +22,7 @@ https://nytimes.com/2021/12/28/nyregion/murder-mother-son-conviction.html?search
 `All essential workers in the province, including those who work in medicine, will be subject to the new rules.`\
 https://nytimes.com/2021/12/28/world/quebec-health-workers-positive-covid.html?searchResultPosition=6
 
-**We Need to Listen to Desmond Tutu About Forgiveness**\
+**Where Is the Forgiveness and Grace in Cancel Culture?**\
 `Contemporary activists can benefit from Tutu’s ideas about restorative justice and strengthen their quest for fundamental fairness.`\
 https://nytimes.com/2021/12/28/opinion/desmond-tutu-america-justice.html?searchResultPosition=7
 
