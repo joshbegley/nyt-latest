@@ -1,6 +1,6 @@
 **Will Shortened Isolation Periods Spread the Virus?**\
-`Without rapid testing, some experts fear new guidelines may mean infected people leave isolation while still infectious. The C.D.C. director said testing was not useful in determining contagiousness.`\
-https://nytimes.com/2021/12/28/health/will-shortened-isolation-periods-spread-the-virus.html?searchResultPosition=1
+`Without rapid testing, some experts fear new U.S. guidelines may mean infected people leave isolation while still contagious. The C.D.C. director said masking was a better option.`\
+https://nytimes.com/2021/12/28/health/covid-isolation-period-omicron.html?searchResultPosition=1
 
 **John Madden, Hall of Fame Coach, Is Dead at 85**\
 `Madden was one of football’s most recognizable ambassadors for decades.`\
