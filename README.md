@@ -1,4 +1,4 @@
-**John Madden Is Remembered as ‘the Soundtrack of the N.F.L.’**\
+**John Madden Is Remembered as the ‘Soundtrack’ of the N.F.L.**\
 `Football fans, broadcasters, video-game enthusiasts and others paid tribute to the legendary coach and football ambassador.`\
 https://nytimes.com/2021/12/28/sports/football/john-madden-nfl-death-reactions.html?searchResultPosition=1
 
