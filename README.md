@@ -1,4 +1,4 @@
-**Alaskan Island Records a 67-Degree Day, a December Record**\
+**Alaska Records a 67-Degree Day, a December Record**\
 `The reading from Kodiak Island on Sunday was not the only extreme weather in the state this month. Other places have seen record cold or precipitation.`\
 https://nytimes.com/2021/12/29/us/alaska-record-temperature.html?searchResultPosition=1
 
