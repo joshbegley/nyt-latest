@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/29/us/alaska-record-temperature.html?searchResultPos
 
 **‘A Moment of Intimacy’: New Yorkers and the Sacred Spaces in Their Homes**\
 `Hundreds of thousands of people in the city have set aside a part of their homes to pray, meditate or give thanks for another day.`\
-https://nytimes.com/2021/12/29/nyregion/a-moment-of-intimacy-new-yorkers-and-the-sacred-spaces-in-their-homes.html?searchResultPosition=2
+https://nytimes.com/2021/12/29/nyregion/sacred-spaces-home-nyc.html?searchResultPosition=2
 
 **On Slaughterhouse Floor, Fear and Anger Remain**\
 `Workers say factories are still glossing over virus safety, as the meatpackers that dominate beef production harvest record profits.`\
