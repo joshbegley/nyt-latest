@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2021/12/28/books/best-book-winners.html?searchRe
 `Without rapid testing, some experts fear new U.S. guidelines may mean infected people leave isolation while still contagious. The C.D.C. director said masking was a better option.`\
 https://nytimes.com/2021/12/28/health/covid-isolation-period-omicron.html?searchResultPosition=9
 
-**John Madden, Face and Voice of the N.F.L. on the Field and in the Broadcast Booth, Dies**\
+**John Madden, Face and Voice of the N.F.L. on the Field and in the Broadcast Booth, Dies at 85**\
 `Mr. Madden coached the Oakland Raiders to a Super Bowl title before becoming one of football’s best-known broadcasters and a video game entrepreneur.`\
 https://nytimes.com/2021/12/28/sports/football/john-madden-dead.html?searchResultPosition=10
 
