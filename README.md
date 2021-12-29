@@ -26,7 +26,7 @@ https://nytimes.com/2021/12/28/crosswords/daily-puzzle-2021-12-29.html?searchRes
 `Football fans, broadcasters, video-game enthusiasts and others paid tribute to the legendary coach and football ambassador.`\
 https://nytimes.com/2021/12/28/sports/football/john-madden-nfl-death-reactions.html?searchResultPosition=7
 
-**Hong Kong Police Arrest Six Linked to Pro-Democracy News Site**\
+**Hong Kong Police Arrest 6 Linked to Pro-Democracy News Site**\
 `Six current or former senior staff members of Stand News were arrested on suspicion of conspiring to publish seditious material. More than 200 officers raided the news site’s headquarters.`\
 https://nytimes.com/2021/12/29/world/asia/hong-kong-stand-news-arrest.html?searchResultPosition=8
 
