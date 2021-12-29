@@ -26,8 +26,8 @@ https://nytimes.com/interactive/2021/12/28/books/best-book-winners.html?searchRe
 `Without rapid testing, some experts fear new U.S. guidelines may mean infected people leave isolation while still contagious. The C.D.C. director said masking was a better option.`\
 https://nytimes.com/2021/12/28/health/covid-isolation-period-omicron.html?searchResultPosition=7
 
-**John Madden, Hall of Fame Coach and Broadcaster, Is Dead at 85**\
-`He was one of football’s most recognizable ambassadors for decades, on the field, in the TV booth and as a video game entrepreneur.`\
+**John Madden, Face and Voice of the N.F.L. on the Field and in the Broadcast Booth, Dies**\
+`Mr. Madden coached the Oakland Raiders to a Super Bowl title before becoming one of football’s best-known broadcasters and a video game entrepreneur.`\
 https://nytimes.com/2021/12/28/sports/football/john-madden-dead.html?searchResultPosition=8
 
 **Mother’s Murder Conviction Dismissed in ’91 Death of 5-Year-Old Son**\
