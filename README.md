@@ -26,7 +26,7 @@ https://nytimes.com/2021/12/29/world/europe/france-left-presidential-election-pr
 `These works illuminate the composer’s gift for conveying the thoughts and feelings of unforgettable characters.`\
 https://nytimes.com/2021/12/29/arts/jeanine-tesori-songs.html?searchResultPosition=7
 
-**Jurors to Start Sixth Day Deliberating in Elizabeth Holmes Trial**\
+**Jurors Deliberate for a Sixth Day in Elizabeth Holmes Trial**\
 `Ms. Holmes, the founder of the blood testing start-up Theranos, is accused of deceiving investors, patients and advertisers.`\
 https://nytimes.com/2021/12/29/business/elizabeth-holmes-trial-theranos-jury.html?searchResultPosition=8
 
