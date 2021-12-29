@@ -4,7 +4,7 @@ https://nytimes.com/2021/12/29/world/europe/russia-memorial-human-rights-center.
 
 **Briarcliff Manor, N.Y.: A Village ‘Between Two Rivers’**\
 `Situated between the Hudson and the Pocantico Rivers, 30 miles from Manhattan, the Westchester village offers outdoor activities and a close community.`\
-https://nytimes.com/2021/12/29/realestate/briarcliff-manor-ny-a-village-between-two-rivers.html?searchResultPosition=2
+https://nytimes.com/2021/12/29/realestate/briarcliff-manor-ny.html?searchResultPosition=2
 
 **Living in ... Briarcliff Manor, N.Y.**\
 `Situated between the Hudson and the Pocantico Rivers, 30 miles from Manhattan, the Westchester village offers outdoor activities and a close community.`\
