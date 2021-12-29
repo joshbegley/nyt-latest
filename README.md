@@ -2,8 +2,8 @@
 `Hundreds of thousands who fled deadly unrest at home confront an uncertain future abroad. Yet for many who remained, conditions are dire.`\
 https://nytimes.com/2021/12/29/world/asia/myanmar-coup-refugees.html?searchResultPosition=1
 
-**Education, Misinformation, ‘Sopranos’ Reruns, Jellycats: Parenting in 2021**\
-`My favorite parenting stories of the year.`\
+**My Favorite Parenting Stories of the Year**\
+`Education, misinformation and extremely soft stuffed animals.`\
 https://nytimes.com/2021/12/29/opinion/new-year-education-parenting.html?searchResultPosition=2
 
 **More than 750 U.S. flights are canceled as airlines dig out.**\
