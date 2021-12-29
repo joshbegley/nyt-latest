@@ -1,4 +1,4 @@
-**With his inauguration ceremony postponed, Eric Adams will be sworn in on New Years Eve in Times Square.**\
+**With his inauguration ceremony postponed, Eric Adams will be sworn in on New Year’s Eve in Times Square.**\
 `The incoming mayor has made a point of reveling in New York’s nightlife, something that he has cast as boosterism for the city’s struggling club and restaurant scene.`\
 https://nytimes.com/2021/12/29/world/eric-adams-new-years-eve-times-square.html?searchResultPosition=1
 
@@ -34,7 +34,7 @@ https://nytimes.com/2021/12/29/arts/television/new-years-eve-movies-shows-livest
 `“Hard pants,” R.T.O. and boomer burnout made for an eventful second pandemic year. They also taught us about the economic future.`\
 https://nytimes.com/2021/12/29/business/economy/us-economic-trends-2021.html?searchResultPosition=9
 
-**What’s to Blame for All the Flight Cancellations?**\
+**I Got to the Bottom of All Those Flight Cancellations**\
 `Some say the airlines. Others say Omicron.`\
 https://nytimes.com/2021/12/29/opinion/omicron-airlines-flights.html?searchResultPosition=10
 
