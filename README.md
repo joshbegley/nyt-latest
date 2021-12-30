@@ -16,7 +16,7 @@ https://nytimes.com/interactive/2021/12/29/us/charity-thome-complaint.html?searc
 
 **Pentagon Building New Secret Courtroom at Guantánamo Bay**\
 `The concept is to permit two military judges to hold proceedings simultaneously starting in mid-2023.`\
-https://nytimes.com/2021/12/29/us/politics/guantanamo-secret-courtroom.html?searchResultPosition=5
+https://nytimes.com/2021/12/29/us/politics/pentagon-guantanamo-secret-courtroom.html?searchResultPosition=5
 
 **Biden and Putin Will Hold a Call on Ukraine**\
 `The Russian president requested Thursday’s call, which will be the second time in three weeks that the two leaders speak about tensions at the Ukrainian border.`\
