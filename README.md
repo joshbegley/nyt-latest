@@ -1,6 +1,6 @@
 **More Millennials Are Renting Because They Have To**\
 `A competitive housing market has fueled a surge in rental applications by the generation, especially in smaller cities.`\
-https://nytimes.com/2021/12/30/realestate/more-millennials-are-renting-because-they-have-to.html?searchResultPosition=1
+https://nytimes.com/2021/12/30/realestate/millennials-housing-market.html?searchResultPosition=1
 
 **How to Watch the Times Square Ball Drop on New Year’s Eve**\
 `The longstanding tradition will return to Times Square this year, with some safety measures in place, as Covid-19 surges in New York City and across the country.`\
