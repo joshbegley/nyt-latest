@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/30/books/review/the-story-paradox-jonathan-gottschal
 
 **A few U.S. cities say to New Year’s revelers: Party on.**\
 `Most large New Year’s Eve events in the U.S. have been canceled or pared down, but Chicago, Las Vegas and San Antonio are a few of the anomalies.`\
-https://nytimes.com/2021/12/30/world/chicago-las-vegas-san-antonio-new-years-events.html?searchResultPosition=3
+https://nytimes.com/2021/12/30/us/chicago-las-vegas-san-antonio-new-years-events.html?searchResultPosition=3
 
 **The Books We Loved as Children Can Comfort Us at the End**\
 `The cartoonist Paul Karasik spent time with his 103-year-old mother, reading the classics, like E.B. White’s “Charlotte's Web.”`\
