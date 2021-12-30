@@ -18,7 +18,7 @@ https://nytimes.com/video/us/100000008141104/colorado-wildfire-evacuation.html?s
 `Frustrations with the pandemic in college sports have mirrored the challenges seen well beyond athletics.`\
 https://nytimes.com/2021/12/30/sports/ncaafootball/covid-college-football-playoff.html?searchResultPosition=5
 
-**More Than 30,000 People Ordered Evacuated in Colorado as Wind Gusts Fan Wildfires**\
+**More Than 30,000 People Ordered Evacuated in Colorado as Winds Fan Wildfires**\
 `Residents of Superior and Louisville, in Boulder County, are forced to flee.`\
 https://nytimes.com/2021/12/30/us/colorado-wildfire-evacuations.html?searchResultPosition=6
 
