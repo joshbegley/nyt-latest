@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/30/books/ben-mcfall-dead.html?searchResultPosition=2
 https://nytimes.com/2021/12/30/opinion/trump-facebook-matrix.html?searchResultPosition=3
 
 **Officer Whose Bullet Killed a 14-Year-Old Girl Wanted to ‘Change’ the Police**\
-`As an L.A.P.D. officer, William Jones Jr. said he wanted the public “not to be scared of us.” He is now under investigation for a shooting that killed Valentina Orellana-Peralta and an unarmed assault suspect.`\
+`As an L.A.P.D. officer, William Jones Jr. said he wanted the public “not to be scared of us.” He is now under investigation for a shooting that killed Valentina Orellana Peralta and an unarmed assault suspect.`\
 https://nytimes.com/2021/12/30/us/los-angeles-police-burlington-shooting-william-dorsey-jones.html?searchResultPosition=4
 
 **Wildfires Prompt Evacuation in Northern Colorado**\
