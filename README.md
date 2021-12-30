@@ -10,7 +10,7 @@ https://nytimes.com/2021/12/30/theater/theater-80-st-marks-nyc.html?searchResult
 `The musician is fast becoming one of Britain’s biggest rock acts with tracks about working class life in North Shields. Can he let himself leave the town?`\
 https://nytimes.com/2021/12/30/arts/music/sam-fender.html?searchResultPosition=3
 
-**See Where Virus Cases Are Rising Fastest as Global Count Tops One Million**\
+**See Where Virus Cases Are Rising Fastest as Global Count Tops One Million Per Day**\
 `Steep surges driven by the Omicron variant have led to record-breaking rates of new cases in the United States, Canada, Australia and across Western Europe.`\
 https://nytimes.com/interactive/2021/12/30/world/covid-cases-omicron.html?searchResultPosition=4
 
