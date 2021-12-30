@@ -1,6 +1,6 @@
 **Your Thursday Briefing**\
 `Ghislaine Maxwell is found guilty.`\
-https://nytimes.com/2021/12/29/briefing/ghislaine-maxwell-omicron-france.html?searchResultPosition=1
+https://nytimes.com/2021/12/30/briefing/ghislaine-maxwell-omicron-france.html?searchResultPosition=1
 
 **Tiger Bites Arm of Man Reaching Into Enclosure at Florida Zoo, Officials Say**\
 `The man, who worked for a cleaning service, had entered a restricted area at the Naples Zoo, the authorities said. The tiger was shot and killed.`\
