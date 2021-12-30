@@ -8,7 +8,7 @@ https://nytimes.com/2021/12/30/dining/how-to-plan-a-veggie-new-years-eve.html?se
 
 **Pharmaceutical Company Found Liable in Landmark Opioid Trial**\
 `The case was the first of its kind, targeting every point of the prescription opioid supply chain, from manufacturers to pharmacy chains that filled prescriptions.`\
-https://nytimes.com/2021/12/30/nyregion/opioid-trial-verdict.html?searchResultPosition=3
+https://nytimes.com/2021/12/30/nyregion/teva-opioid-trial-verdict.html?searchResultPosition=3
 
 **Caseloads Spike as Omicron Spreads**\
 `The latest news and data from the team tracking the coronavirus.`\
