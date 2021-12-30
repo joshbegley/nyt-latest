@@ -27,7 +27,7 @@ https://nytimes.com/2021/12/30/t-magazine/best-food-cooking-recipes-2021.html?se
 https://nytimes.com/2021/12/30/style/lying-parents-social-qs.html?searchResultPosition=7
 
 **‘Poupelle of Chimney Town’ Review: Seeking Refuse**\
-`In this anime feature, a lonely boy strikes up a friendship with a trash creature and searches for  stars in a polluted sky.`\
+`In this anime feature, a lonely boy strikes up a friendship with a trash creature and searches for stars in a polluted sky.`\
 https://nytimes.com/2021/12/30/movies/poupelle-of-chimney-town-review.html?searchResultPosition=8
 
 **The Stories That Defined California in 2021**\
