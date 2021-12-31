@@ -3,8 +3,8 @@
 https://nytimes.com/video/nyregion/100000008141743/nyc-new-years.html?searchResultPosition=1
 
 **The Times Square celebration will be muted. The police presence will not.**\
-`By Michael Wilson`\
-https://nytimes.com/2021/12/31/nyregion/the-times-square-celebration-will-be-muted-the-police-presence-will-not.html?searchResultPosition=2
+`   `\
+https://nytimes.com/2021/12/31/nyregion/times-square-new-years-eve-security.html?searchResultPosition=2
 
 **Quebec government faces backlash over New Year’s Eve curfew.**\
 `Residents who leave their homes past 10 p.m. could face fines of up to $4,750.`\
