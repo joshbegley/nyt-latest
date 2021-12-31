@@ -27,7 +27,7 @@ https://nytimes.com/2021/12/31/briefing/new-years-eve-omicron-betty-white.html?s
 https://nytimes.com/video/us/100000008141811/colorado-governor-wildfire-fire.html?searchResultPosition=7
 
 **Trump Appointee Resigns After Fight With Democratic Bank Regulators**\
-`Jelena McWilliams, the chairwoman of the F.D.I.C., said in a letter to President Biden that she would step down effective Feb. 4. Her departure adds a second vacancy on the five-member board.`\
+`Jelena McWilliams, the chairwoman of the F.D.I.C., said  that she would step down effective Feb. 4. Democrats on the board contended she was stonewalling their attempts to review policy.`\
 https://nytimes.com/2021/12/31/business/jelena-mcwilliams-fdic-bank-regulator-resigns.html?searchResultPosition=8
 
 **New Year’s Eve Celebrations Around the World**\
