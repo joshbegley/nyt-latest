@@ -1,5 +1,5 @@
 **New Year’s Eve Celebrations Around the World**\
-`Countries around the globe rang in the New Year with fireworks and light shows as 2022 ushered in the third year of the coronavirus pandemic.`\
+`Countries around the globe rang in the new year with fireworks and light shows as 2022 ushered in the third year of the coronavirus pandemic.`\
 https://nytimes.com/video/world/100000008141857/new-year-celebration.html?searchResultPosition=1
 
 **Public university students in New York must now get vaccine boosters.**\
@@ -16,7 +16,7 @@ https://nytimes.com/interactive/2021/12/31/nyregion/ny-nj-reentry-covid.html?sea
 
 **Vikings quarterback Kirk Cousins tests positive in latest blow to the N.F.L. postseason race.**\
 `Cousins was placed on the team’s Covid-19 reserve list for at least five days, threatening Minnesota’s playoff chances.`\
-https://nytimes.com/2021/12/31/sports/kirk-cousins-covid.html?searchResultPosition=5
+https://nytimes.com/2021/12/31/sports/football/kirk-cousins-covid.html?searchResultPosition=5
 
 **Betty White, a TV Fixture for Seven Decades, Is Dead at 99**\
 `Among the many highlights of a career that began in 1949 were star turns on “The Mary Tyler Moore Show” in the 1970s and “Saturday Night Live” in 2010.`\
