@@ -22,8 +22,8 @@ https://nytimes.com/2021/12/30/nyregion/prosecutors-ghislaine-maxwell-conviction
 `The authorities are urging tens of thousands of people across parts of Boulder County, Colo., to leave as quickly as possible as the grassfires continue to burn.`\
 https://nytimes.com/video/us/100000008141342/colorado-wildfire-evacuations.html?searchResultPosition=6
 
-**Navy Fires Warship’s Top Two Officers, Reportedly Over Handling of Sexual Harassment Inquiry**\
-`The commander and second in charge of the littoral combat ship Montgomery were relieved because of “a loss of confidence in their ability to command,” a rare punishment for a ship’s leaders.`\
+**Navy Fires Warship’s Top Two Officers, Citing ‘Loss of Confidence’**\
+`The commander and second in charge of the U.S.S. Montgomery were relieved of command in a rare punishment, reportedly over their handling of a sexual harassment case.`\
 https://nytimes.com/2021/12/30/us/politics/uss-montgomery-captain-fired.html?searchResultPosition=7
 
 **Putin Warns Biden of ‘Complete Rupture’ of U.S.-Russia Relationship Over Ukraine**\
