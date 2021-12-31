@@ -36,5 +36,5 @@ https://nytimes.com/2021/12/31/us/google-maps-waze-sierra-nevada-snow.html?searc
 
 **A Guide to a New Year’s Eve Clouded by Omicron**\
 `In light of the surge in Covid-19 cases, here’s how to participate in the festivities — and how not to.`\
-https://nytimes.com/2021/12/31/nyregion/a-guide-to-a-new-years-eve-clouded-by-omicron.html?searchResultPosition=10
+https://nytimes.com/2021/12/31/nyregion/new-years-eve-nyc-guide-omicron.html?searchResultPosition=10
 
