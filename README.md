@@ -1,5 +1,5 @@
 **Betty White, a Beloved Sitcom Actress, Is Dead at 99**\
-`White’s award-winning career spanned seven decades and included many highlights, including creating two of the most memorable characters with roles on “The Mary Tyler Moore Show” and “The Golden Girls.”`\
+`White’s award-winning career spanned seven decades and included highlights like creating two of the most memorable TV characters with roles on “The Mary Tyler Moore Show” and “The Golden Girls.”`\
 https://nytimes.com/video/arts/television/100000008141995/betty-white-actress-dead.html?searchResultPosition=1
 
 **New Year’s Eve, Omicron, Betty White: Your Friday Evening Briefing**\
