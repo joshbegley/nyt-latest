@@ -1,6 +1,6 @@
 **How We Make Sense of Time**\
 `January 2022 arrives as our methods of keeping time feel like they are breaking. Calendar pages turn, yet time feels lost. In this year of all years, what does it mean for a year to be new?`\
-https://nytimes.com/2021/12/31/us/how-we-make-sense-of-time.html?searchResultPosition=1
+https://nytimes.com/2021/12/31/us/new-years-time-sense.html?searchResultPosition=1
 
 **Another Covid Winter, but Our Quarantine Comforts No Longer Work**\
 `Americans have spared little expense over the past two years turning their homes into cozy havens. That doesn’t mean they want to spend another winter in them.`\
