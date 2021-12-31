@@ -1,40 +1,40 @@
+**Scenes From a World on Fire**\
+`Climate change is already here. It’s just not evenly distributed yet.`\
+https://nytimes.com/2021/12/31/opinion/climate-change-glasgow-united-states.html?searchResultPosition=1
+
+**The Day the Soviet Flag Came Down**\
+`Reflections on the 30th anniversary of the fall of the Soviet Union.`\
+https://nytimes.com/2021/12/31/opinion/ussr-memorial-shutdown-ukraine.html?searchResultPosition=2
+
+**Sometimes You Have to Hate Exercise Before You Can Love It Again**\
+`When my partner, Oliver Sacks, died, I lost interest in working out. But I found my way back.`\
+https://nytimes.com/2021/12/31/opinion/exercise-new-year-oliver-sacks-grief.html?searchResultPosition=3
+
+**Recipes for New Year’s Eve**\
+`Put together a Dutch baby with bacon and Camembert, to eat with a glass of something bubbly.`\
+https://nytimes.com/2021/12/31/dining/recipes-new-years-eve.html?searchResultPosition=4
+
+**The Weekender**\
+`How many books make a place feel like home? Also in this edition: a marijuana boom in Oklahoma, and Nikki Giovanni on making peace with her hate.`\
+https://nytimes.com/interactive/2021/12/31/briefing/the-weekender.html?searchResultPosition=5
+
 **15 Songs We Almost Missed This Year**\
 `Hear tracks by Sofia Kourtesis, Remble, Caetano Veloso and others.`\
-https://nytimes.com/2021/12/31/arts/music/playlist-songs-almost-missed.html?searchResultPosition=1
+https://nytimes.com/2021/12/31/arts/music/playlist-songs-almost-missed.html?searchResultPosition=6
 
 **Asma Khader, Fighter for Women’s Rights in Jordan, Dies at 69**\
 `A respected lawyer, she focused on the victims of domestic violence and also worked hard to change discriminatory laws.`\
-https://nytimes.com/2021/12/31/world/middleeast/asma-khader-dead.html?searchResultPosition=2
+https://nytimes.com/2021/12/31/world/middleeast/asma-khader-dead.html?searchResultPosition=7
 
 **In Remembering Tutu, South Africa Reckons With Lasting Challenges**\
 `Archbishop Desmond Tutu’s death has reignited a public conversation about the state of the country’s reconciliation process and its democracy.`\
-https://nytimes.com/2021/12/31/world/africa/desmond-tutu-legacy.html?searchResultPosition=3
+https://nytimes.com/2021/12/31/world/africa/desmond-tutu-legacy.html?searchResultPosition=8
 
 **Clifton Collins Jr. Hopes ‘Jockey’ Makes a Familiar Face a Familiar Name, Too**\
 `You know the actor from countless TV shows, but after immersive preparation for a rare leading role, he appears headed for a breakthrough.`\
-https://nytimes.com/2021/12/31/movies/clifton-collins-jr-jockey.html?searchResultPosition=4
+https://nytimes.com/2021/12/31/movies/clifton-collins-jr-jockey.html?searchResultPosition=9
 
 **In a New Series, ‘Around the World in 80 Days’ Gets More Worldly**\
 `The latest take on the classic Jules Verne novel, for PBS’s Masterpiece, expands on earlier adaptations with new characters and a more diverse cast.`\
-https://nytimes.com/2021/12/31/arts/television/around-the-world-in-80-days-pbs-bbc.html?searchResultPosition=5
-
-**‘Buy Now, Pay Later’ Loans May Soon Play Bigger Role in Credit Scores**\
-`The credit-rating companies argue that reporting of on-time payments can help shoppers build a credit history. But consumer experts note that late or missed payments can hurt.`\
-https://nytimes.com/2021/12/31/your-money/buy-now-pay-later-loans-credit.html?searchResultPosition=6
-
-**A Daughter’s Reclamation of Her Father’s Past**\
-`The artist Sadie Barnette shares a new work that reframes pages from the dossier the F.B.I. kept on her parent, the founder of the Compton chapter of the Black Panthers.`\
-https://nytimes.com/2021/12/31/t-magazine/sadie-barnette-fbi-drawings.html?searchResultPosition=7
-
-**How We Make Sense of Time**\
-`January 2022 arrives as our methods of keeping time feel like they are breaking. Calendar pages turn, yet time feels lost. In this year of all years, what does it mean for a year to be new?`\
-https://nytimes.com/2021/12/31/us/new-years-time-sense.html?searchResultPosition=8
-
-**Another Covid Winter, but Our Quarantine Comforts No Longer Work**\
-`Americans have spared little expense over the past two years turning their homes into cozy havens. That doesn’t mean they want to spend another winter in them.`\
-https://nytimes.com/2021/12/31/realestate/another-covid-winter-but-our-quarantine-comforts-no-longer-work.html?searchResultPosition=9
-
-**Five Action Movies to Stream Now**\
-`Our newest picks include a good cop-bad cop revenge thriller starring Donnie Yen, a high-tech animated take on Hansel and Gretel, and more.`\
-https://nytimes.com/2021/12/31/movies/action-movies-streaming.html?searchResultPosition=10
+https://nytimes.com/2021/12/31/arts/television/around-the-world-in-80-days-pbs-bbc.html?searchResultPosition=10
 
