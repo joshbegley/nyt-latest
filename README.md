@@ -26,7 +26,7 @@ https://nytimes.com/2021/12/31/your-money/buy-now-pay-later-loans-credit.html?se
 `The artist Sadie Barnette shares a new work that reframes pages from the dossier the F.B.I. kept on her parent, the founder of the Compton chapter of the Black Panthers.`\
 https://nytimes.com/2021/12/31/t-magazine/sadie-barnette-fbi-drawings.html?searchResultPosition=7
 
-****\
+**How We Make Sense of Time**\
 `January 2022 arrives as our methods of keeping time feel like they are breaking. Calendar pages turn, yet time feels lost. In this year of all years, what does it mean for a year to be new?`\
 https://nytimes.com/2021/12/31/us/new-years-time-sense.html?searchResultPosition=8
 
