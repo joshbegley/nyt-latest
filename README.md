@@ -1,6 +1,6 @@
 **New Year’s Eve, Omicron, Betty White: Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2021/12/31/briefing/new-years-eve-omicron-betty-white-your-friday-evening-briefing.html?searchResultPosition=1
+https://nytimes.com/2021/12/31/briefing/new-years-eve-omicron-betty-white.html?searchResultPosition=1
 
 **No Reported Deaths in Colorado Wildfires**\
 `The fast moving fire on Thursday scorched more than 6,000 acres and forced thousands of residents to evacuate.`\
