@@ -1,40 +1,40 @@
-**Insider news quiz**\
-`How much do you know about The New York Times News Quiz?`\
-https://nytimes.com/interactive/2021/12/31/pageoneplus/31insider-quiz-on-quiz.html?searchResultPosition=1
+**Behind the Violence at Rikers, Decades of Mismanagement and Dysfunction**\
+`For years, New York City officials have presided over shortcuts and blunders that have led to chaos in one of America’s most expensive jail complexes.`\
+https://nytimes.com/2021/12/31/nyregion/rikers-island-correction-officers.html?searchResultPosition=1
 
-**What Default? With Confetti and Fanfare, Evergrande Says It’s Ready to Build.**\
-`Weeks after signaling it could no longer go on, the troubled Chinese property developer has pledged to start paying its workers and completing projects again. Buyers are skeptical.`\
-https://nytimes.com/2021/12/31/business/china-evergrande-default-publicity.html?searchResultPosition=2
+**In 2021, New York’s Housing Market Made a Stunning Comeback**\
+`It’s a trend that will likely continue in 2022, as momentum shifts away from the suburbs and international travel returns — unless new Covid variants interfere.`\
+https://nytimes.com/2021/12/31/realestate/in-2021-new-yorks-housing-market-made-a-stunning-comeback.html?searchResultPosition=2
 
-**A Digital Manhunt: How Chinese Police Track Critics on Twitter and Facebook**\
-`Authorities in China have turned to sophisticated investigative software to track and silence obscure critics on overseas social media. Their targets include college students and non-Chinese nationals.`\
-https://nytimes.com/2021/12/31/business/china-internet-police-twitter.html?searchResultPosition=3
+**A Strong Ending in 2021 for Manhattan’s Luxury Market**\
+`In the final month of closings, the British racecar driver Lewis Hamilton sold his TriBeCa triplex for $49.5 million.`\
+https://nytimes.com/2021/12/31/realestate/top-nyc-real-estate-sales.html?searchResultPosition=3
 
-**Is That a Burning Bush? Is This Mt. Sinai? Solstice Bolsters a Claim**\
-`On the year’s shortest day, hundreds of Israelis ventured deep into the desert to witness a strange natural phenomenon atop an ancient pilgrimage site that some argue is where God spoke to Moses.`\
-https://nytimes.com/2021/12/31/world/middleeast/israel-mount-sinai-burning-bush.html?searchResultPosition=4
+**A Summer Hot Spot Is Now a Winter Village. But Will New Yorkers Visit?**\
+`Governors Island, a popular summer retreat reachable only by ferry, is now open year-round.`\
+https://nytimes.com/2021/12/31/nyregion/governorsisland-nyc.html?searchResultPosition=4
 
-**Meisha Porter Had 3 Goals as Schools Chief: ‘Open. Open. Open.’**\
-`The departing New York City schools chancellor pulled off a big task in a short period of time: reopening the nation’s largest school district during a pandemic.`\
-https://nytimes.com/2021/12/31/nyregion/meisha-porter-nyc-schools-covid.html?searchResultPosition=5
+**The Fed’s Moves Pumped Up Stocks. In 2022, It May Pull the Plug.**\
+`Shares soared as interest rates stayed low and stimulus programs helped the economy. But expected changes could make investors wary.`\
+https://nytimes.com/2021/12/31/business/stock-market-2022.html?searchResultPosition=5
 
-**The Elizabeth Holmes Trial Meanders to a Finish**\
-`Other high-profile trials around the country have started and ended while Ms. Holmes’s case has stretched for four months into the new year.`\
-https://nytimes.com/2021/12/31/business/slow-elizabeth-holmes-trial.html?searchResultPosition=6
+**On an Iconic Wyoming Peak, Ski Mountaineers See a Test**\
+`Many people dream, talk and plan of skiing Grand Teton for years, only to be forced by poor conditions to start their wait all over. But the obsession never fades.`\
+https://nytimes.com/2021/12/31/sports/backcountry-ski-grand-teton-wyoming.html?searchResultPosition=6
 
-**Business Leaders Struggle With Endless Upheaval**\
-`C.E.O.s are trained to “shoot, move and communicate.” But the pandemic has called on them to rewrite the leadership playbook.`\
-https://nytimes.com/2021/12/31/business/ceos-pandemic-leadership.html?searchResultPosition=7
+**The Novelist Who Saw Middle America as It Really Was**\
+`Sinclair Lewis captured the narrow-mindedness and conformity of middle-class America in the first half of the 20th century. On the 100th anniversary of his best-selling novel “Babbitt,” Robert Gottlieb revisits Lewis’s life and career.`\
+https://nytimes.com/2021/12/31/books/review/sinclair-lewis-babbitt-main-street.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2021/12/31/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**The Son of New York Who Runs the South’s Most Envied Sports League**\
+`Greg Sankey rose from upstate New York to become the commissioner of the Southeastern Conference. These days, no one is exercising more sway over college sports.`\
+https://nytimes.com/2021/12/31/sports/ncaafootball/greg-sankey-sec.html?searchResultPosition=8
 
-**Quotation of the Day: Drug Company Found Liable in a Landmark Opioids Trial in New York**\
-`Quotation of the Day for Friday, December 31, 2021.`\
-https://nytimes.com/2021/12/31/todayspaper/quotation-of-the-day-drug-company-found-liable-in-a-landmark-opioids-trial-in-new-york.html?searchResultPosition=9
+**A Conductor Considers Her Future**\
+`Susanna Mälkki is at the top of her field as major American orchestras search for their next music directors.`\
+https://nytimes.com/2021/12/31/arts/music/classical-music-susanna-malkki.html?searchResultPosition=9
 
-**Editors’ Note: Dec. 31, 2021**\
-`Corrections that appeared in print on Friday, Dec. 31, 2021.`\
-https://nytimes.com/2021/12/31/pageoneplus/editors-note-dec-31-2021.html?searchResultPosition=10
+**What We Learned About the Economy in 2021**\
+`For once, the government tried overheating the economy. For better and worse, it succeeded.`\
+https://nytimes.com/2021/12/31/upshot/economy-inflation-2021-review.html?searchResultPosition=10
 
