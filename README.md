@@ -2,7 +2,7 @@
 `President Vladimir V. Putin of Russia spoke with President Biden for 50 minutes about the escalating crisis with Ukraine, but his intentions remained unclear.`\
 https://nytimes.com/2021/12/30/us/politics/biden-putin-ukraine-call.html?searchResultPosition=1
 
-**Putin, Omicron, Metaverse: Your Thursday Evening Briefing**\
+**Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2021/12/30/briefing/putin-omicron-metaverse-your-thursday-evening-briefing.html?searchResultPosition=2
 
