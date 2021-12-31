@@ -1,6 +1,6 @@
 **Air Travel Is No Holiday as Covid and Storms Cancel Flights**\
 `Airlines and passengers are ending the year with many of their plans upended. And New Year’s weekend may be bumpy, too.`\
-https://nytimes.com/2021/12/30/business/airline-travel.html?searchResultPosition=1
+https://nytimes.com/2021/12/30/business/flights-cancelled.html?searchResultPosition=1
 
 **Adams’s Virus Policy Includes Keeping Vaccine Mandate for Businesses**\
 `After a long silence on the subject, New York City’s incoming mayor said he would extend a number of Mayor Bill de Blasio’s Covid-19 policies.`\
