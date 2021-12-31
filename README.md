@@ -30,11 +30,11 @@ https://nytimes.com/2021/12/31/realestate/top-nyc-real-estate-sales.html?searchR
 `Governors Island, a popular summer retreat reachable only by ferry, is now open year-round.`\
 https://nytimes.com/2021/12/31/nyregion/governorsisland-nyc.html?searchResultPosition=8
 
+**The Son of New York Who Runs the South’s Most Envied Sports League**\
+`Greg Sankey rose from upstate New York to become the commissioner of the Southeastern Conference. These days, no one is exercising more sway over college sports.`\
+https://nytimes.com/2021/12/31/sports/ncaafootball/greg-sankey-sec.html?searchResultPosition=9
+
 **The Fed’s Moves Pumped Up Stocks. In 2022, It May Pull the Plug.**\
 `Shares soared as interest rates stayed low and stimulus programs helped the economy. But expected changes could make investors wary.`\
-https://nytimes.com/2021/12/31/business/stock-market-2022.html?searchResultPosition=9
-
-**On an Iconic Wyoming Peak, Ski Mountaineers See a Test**\
-`Many people dream, talk and plan of skiing Grand Teton for years, only to be forced by poor conditions to start their wait all over. But the obsession never fades.`\
-https://nytimes.com/2021/12/31/sports/backcountry-ski-grand-teton-wyoming.html?searchResultPosition=10
+https://nytimes.com/2021/12/31/business/stock-market-2022.html?searchResultPosition=10
 
