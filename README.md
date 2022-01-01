@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/01/arts/tv-movies-music-picks-2022.html?searchResult
 `A recent art show in a major Kurdish city in Turkey aimed to uplift a region crushed by years of conflict. It ended up serving as a reminder of how toxic the subject of Kurds remains in Turkey.`\
 https://nytimes.com/2022/01/01/world/europe/turkey-kurdish-art-exhibit.html?searchResultPosition=8
 
+**A Nation on Hold Wants to Speak With a Manager**\
+`In our anger-filled age, when people need to shop or travel or cope with mild disappointment they’re “devolving into children.”`\
+https://nytimes.com/2022/01/01/business/customer-service-pandemic-rage.html?searchResultPosition=9
+
 **Counterculture to Counterintuitive: Cannabis to Help You Diet?**\
 `An edibles company says one of its products will lead not to the “the munchies” but to weight loss. There’s just one problem: the science.`\
-https://nytimes.com/2022/01/01/style/gummies-edibles-marijuana-diet.html?searchResultPosition=9
-
-**U.S. Military Focusing on ISIS Cell Behind Attack at Kabul Airport**\
-`The suicide bomber who killed nearly 200 people, including 13 U.S. troops, had been freed from prison by the Taliban days before the attack.`\
-https://nytimes.com/2022/01/01/us/politics/afghan-war-isis-attack.html?searchResultPosition=10
+https://nytimes.com/2022/01/01/style/gummies-edibles-marijuana-diet.html?searchResultPosition=10
 
