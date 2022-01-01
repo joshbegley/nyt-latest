@@ -15,7 +15,7 @@ https://nytimes.com/2021/12/31/arts/television/betty-white-reactions.html?search
 https://nytimes.com/2021/12/31/business/media/betty-white-people-magazine.html?searchResultPosition=4
 
 **Alabama Rolls Past Cincinnati, 27-6, in College Football Playoff Semifinal**\
-`The Crimson Tide will face the winner of the other semifinal game, between Georgia and Michigan, on Jan. 10 for the national championship.`\
+`The Crimson Tide will face the Georgia Bulldogs on Jan. 10 for the national championship.`\
 https://nytimes.com/2021/12/31/sports/ncaafootball/alabama-cincinnati-cotton-bowl-score.html?searchResultPosition=5
 
 **Sandra Jaffe, Who Helped Preserve Jazz at Preservation Hall, Dies at 83**\
