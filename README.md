@@ -18,7 +18,7 @@ https://nytimes.com/2022/01/01/todayspaper/quotation-of-the-day-making-sense-of-
 `Eric Adams, the city’s second Black mayor, faces difficult decisions over how to lead New York City through the next wave of the pandemic.`\
 https://nytimes.com/2022/01/01/nyregion/eric-adams-inaguration-nyc-mayor.html?searchResultPosition=5
 
-**College Football Gets its Inevitable Georgia-Alabama Title Rematch**\
+**College Football Gets Its Inevitable Georgia-Alabama Title Rematch**\
 `And Georgia is hoping that this time around, it can show Alabama much more as they play for a national championship.`\
 https://nytimes.com/2022/01/01/sports/ncaafootball/alabama-georgia-college-football-national-championship.html?searchResultPosition=6
 
