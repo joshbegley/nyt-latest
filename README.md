@@ -1,6 +1,6 @@
 **How high will the U.S. surge go after the holidays? Should you get tested?**\
 `By Isabella Grullón Paz`\
-https://nytimes.com/2022/01/01/us/how-high-will-the-us-surge-go-after-the-holidays-should-you-get-tested.html?searchResultPosition=1
+https://nytimes.com/2022/01/01/us/omicron-covid-holidays-surge-testing.html?searchResultPosition=1
 
 **Eric Adams Becomes New York City’s 110th Mayor**\
 `Mayor Eric Adams of New York City was sworn in at a pared-down ceremony in Times Square shortly after the iconic New Year’s ball drop. Mr. Adams takes office as a new wave of coronavirus infections sweeps the city, driven by the Omicron variant.`\
