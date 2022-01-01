@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/01/opinion/january-6-attack-committee.html?searchRes
 https://nytimes.com/2022/01/01/world/africa/desmond-tutu-funeral-south-africa.html?searchResultPosition=3
 
 **Want a Covid Test With Your Viagra?**\
-`A health care company known for selling hair loss and erectile dysfunction treatments diversifies its product line, and earns new fans along the way.`\
+`A health care company known for hair loss and erectile dysfunction treatments diversifies its product line, and earns new fans along the way.`\
 https://nytimes.com/2022/01/01/business/roman-covid-tests.html?searchResultPosition=4
 
 **Trigger Warning: It’s My Brother’s Turn Again**\
