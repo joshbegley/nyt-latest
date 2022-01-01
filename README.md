@@ -1,6 +1,6 @@
 **Dan Reeves, Coach Who Reached (but Lost) Four Super Bowls, Dies at 77**\
 `After playing and coaching with the Dallas Cowboys, he went on to great success — if no championships — with the Denver Broncos and the Atlanta Falcons.`\
-https://nytimes.com/2022/01/01/sports/football/dan-reeves-coach-who-reached-but-lost-four-super-bowls-dies-at-77.html?searchResultPosition=1
+https://nytimes.com/2022/01/01/sports/football/dan-reeves-dead.html?searchResultPosition=1
 
 **South Africa Lays Desmond Tutu to Rest With a Simple Funeral**\
 `Desmond M. Tutu, a powerful opponent of apartheid and Cape Town’s first Black archbishop, was remembered in a modest ceremony scaled down further by pandemic restrictions.`\
