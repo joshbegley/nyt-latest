@@ -1,40 +1,40 @@
-**Kim Jong-un’s New Year Resolution: More Food for North Korea**\
-`At a party meeting, Mr. Kim made little mention of the United States or South Korea. Instead, he promised to “completely solve the food problem.”`\
-https://nytimes.com/2022/01/01/world/asia/north-korea-kim-jong-un.html?searchResultPosition=1
+**12 Things Our Critics Are Looking Forward to in 2022**\
+`‘Better Call Saul’ returns, Cecily Strong stars in a one-woman show, and Faith Ringgold gets an overdue retrospective.`\
+https://nytimes.com/2022/01/01/arts/tv-movies-music-picks-2022.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/01/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**An Exhibit Meant to Showcase Kurdish Suffering Provoked a Furor Instead**\
+`A recent art show in a major Kurdish city in Turkey aimed to uplift a region crushed by years of conflict. It ended up serving as a reminder of how toxic the subject of Kurds remains in Turkey.`\
+https://nytimes.com/2022/01/01/world/europe/turkey-kurdish-art-exhibit.html?searchResultPosition=2
 
-**Corrections: Jan. 1, 2022**\
-`Corrections that appeared in print on Saturday, Jan. 1, 2022.`\
-https://nytimes.com/2022/01/01/pageoneplus/corrections-jan-1-2022.html?searchResultPosition=3
+**Counterculture to Counterintuitive: Cannabis to Help You Diet?**\
+`An edibles company says one of its products will lead not to the “the munchies” but to weight loss. There’s just one problem: the science.`\
+https://nytimes.com/2022/01/01/style/gummies-edibles-marijuana-diet.html?searchResultPosition=3
 
-**Quotation of the Day: Making Sense of Time When a Year Feels Lost**\
-`Quotation of the Day for Saturday, January 1, 2022.`\
-https://nytimes.com/2022/01/01/todayspaper/quotation-of-the-day-making-sense-of-time-when-a-year-feels-lost.html?searchResultPosition=4
+**U.S. Military Focusing on ISIS Cell Behind Attack at Kabul Airport**\
+`The suicide bomber who killed nearly 200 people, including 13 U.S. troops, had been freed from prison by the Taliban days before the attack.`\
+https://nytimes.com/2022/01/01/us/politics/afghan-war-isis-attack.html?searchResultPosition=4
 
-**Eric Adams takes office as New York City’s 110th mayor at a perilous moment.**\
-`Eric Adams, the city’s second Black mayor, faces difficult decisions over how to lead New York City through the next wave of the pandemic.`\
-https://nytimes.com/2022/01/01/nyregion/eric-adams-inaguration-nyc-mayor.html?searchResultPosition=5
+**The New Political Cry in South Korea: ‘Out With Man Haters’**\
+`After slow gains in women’s rights, the country is facing a type of political correctness enforced by young men angry at feminists, saying they undermine opportunity.`\
+https://nytimes.com/2022/01/01/world/asia/south-korea-men-anti-feminists.html?searchResultPosition=5
 
-**College Football Gets Its Inevitable Georgia-Alabama Title Rematch**\
-`And Georgia is hoping that this time around, it can show Alabama much more as they play for a national championship.`\
-https://nytimes.com/2022/01/01/sports/ncaafootball/alabama-georgia-college-football-national-championship.html?searchResultPosition=6
+**10 Insightful Tips From People Who Prove It’s Never Too Late**\
+`Let their stories be your inspiration as you set resolutions for 2022.`\
+https://nytimes.com/2022/01/01/style/new-years-resolutions-quotes-tips.html?searchResultPosition=6
 
-**The Rise of Daily Run Streakers. No, Not Those Streakers.**\
-`Streaking has become an increasingly popular phenomenon within running circles. Whether running one mile a day, or 20, streakers push for consistency.`\
-https://nytimes.com/2022/01/01/sports/the-rise-of-daily-run-streakers-no-not-those-streakers.html?searchResultPosition=7
+**A Nation On Hold Wants to Speak With a Manager**\
+`In our anger-filled age, when people need to shop or travel or cope with mild disappointment they’re “devolving into children.”`\
+https://nytimes.com/2022/01/01/business/customer-service-pandemic-rage.html?searchResultPosition=7
 
-**A Renewed Georgia Pummels Michigan to Reach National Title Game vs. Alabama**\
-`The next challenge will come on Jan. 10, pandemic conditions permitting, when Alabama and Georgia will play in a rematch for the championship.`\
-https://nytimes.com/2021/12/31/sports/ncaafootball/georgia-michigan-orange-bowl-score.html?searchResultPosition=8
+**Nashville Finds Opportunity in the Hole a Bomber Left in the Heart of the City**\
+`Since the explosion last Christmas, the city has grappled with how rebuilding will fit into its larger ambitions of transforming downtown. The hope is to draw more than just tourists.`\
+https://nytimes.com/2022/01/01/us/nashville-finds-opportunity-in-the-hole-a-bomber-left-in-the-heart-of-the-city.html?searchResultPosition=8
 
-**Line Just Before a Comma**\
-`Peter Wentz escorts us into MMXXII with a staid and sensible — never mind!`\
-https://nytimes.com/2021/12/31/crosswords/daily-puzzle-2022-01-01.html?searchResultPosition=9
+**Once Upon a Time … Bedtime Stories Were Just for Kids**\
+`But now that’s changed. In almost everyone’s never-ending quest for better sleep, the adult bedtime story industry is booming.`\
+https://nytimes.com/2022/01/01/style/bedtime-stories-for-adults.html?searchResultPosition=9
 
-**Betty White Recalled as a Trailblazer With a Love for Life**\
-`“The world looks a little different now,” said the actor Ryan Reynolds, who was one of many to pay tribute to the actress who died on Friday.`\
-https://nytimes.com/2021/12/31/arts/television/betty-white-reactions.html?searchResultPosition=10
+**With Omicron’s Rise, Americans Brace for Returning to School and Work**\
+`The highly contagious variant has already contributed to flight cancellations and staffing shortages.`\
+https://nytimes.com/2022/01/01/us/omicron-covid-pandemic-despair.html?searchResultPosition=10
 
