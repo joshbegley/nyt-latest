@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/02/pageoneplus/corrections-jan-2-2022.html?searchResultPosition=1
 
 **Quotation of the Day: Back to School and Work Even as Omicron Explodes**\
-`Quotation of the Day for Sunday, January 2, 2021.`\
+`Quotation of the Day for Sunday, January 2, 2022.`\
 https://nytimes.com/2022/01/02/todayspaper/quotation-of-the-day-back-to-school-and-work-even-as-omicron-explodes.html?searchResultPosition=2
 
 **21 People Rescued After a Freezing Night Stranded in Aerial Tram Cars**\
