@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/02/business/media/crowdtangle-facebook-brandon-silverman.html?searchResultPosition=1
 
 **Dolphins Revealed as Playoff Pretenders by Tennessee**\
-`The 8-8 Miami Dolphins were on the brink of elimination despite winning seven in a row this season. Of course, they also lost seven in a row this season.`\
+`The Miami Dolphins were on the brink of being eliminated, and later officially so, despite winning seven in a row this season. Of course, they also lost seven in a row this season.`\
 https://nytimes.com/2022/01/02/sports/dolphins-titans-nfl-week17-score.html?searchResultPosition=2
 
 **‘Mrs. Doubtfire’ on Broadway Is Pausing to Avoid Closing**\
