@@ -31,7 +31,7 @@ https://nytimes.com/2022/01/01/science/space-preview-2022.html?searchResultPosit
 https://nytimes.com/interactive/2022/science/astronomy-space-calendar.html?searchResultPosition=8
 
 **After Catastrophic Fire, Colorado Fights a New Hazard: 10 Inches of Snow**\
-`Those whose homes survived huge fires were struggling against new threats from cold and ice. At least three people were missing and feared dead.`\
+`Those whose homes survived huge fires were struggling against new threats from cold and ice. At least three people were missing and feared dead as the authorities confirmed 991 houses destroyed.`\
 https://nytimes.com/2022/01/01/us/colorado-fires-snow-boulder-superior-louisville.html?searchResultPosition=9
 
 **Off-Duty Officer Shot While Sleeping in Car Outside a Harlem Police Station**\
