@@ -1,40 +1,40 @@
-**South Korea Says Unknown Person Crossed Heavily Armed Border Into North**\
-`The breach at the Demilitarized Zone went unnoticed for hours, the South Korean military said. There was no immediate response from North Korea.`\
-https://nytimes.com/2022/01/02/world/asia/korea-dmz-border.html?searchResultPosition=1
+**A Spanish Mystery: Is a ‘Masked Restorer’ to Blame for a Church’s Botched Repair?**\
+`Yet another imprudent fix in a land plagued by vigilante handymen led to angry calls to find the culprit — and to a soul-searching question: Does Spain just have too much history in need of upkeep?`\
+https://nytimes.com/2022/01/02/world/spain-church-restoration-mystery.html?searchResultPosition=1
 
-**Coming Soon to This Coal County: Solar, in a Big Way**\
-`In Martin County, Ky., where coal production has flatlined, entrepreneurs are promising that a new solar farm atop a shuttered mine will bring green energy jobs.`\
-https://nytimes.com/2022/01/02/climate/coal-mines-solar-climate.html?searchResultPosition=2
+**China Moves to Overhaul Protections for Women’s Rights, Sort Of**\
+`The proposed revisions to a women’s rights law would be the first major changes in nearly 20 years. But many women are skeptical that real progress will follow.`\
+https://nytimes.com/2022/01/02/world/asia/china-womens-rights.html?searchResultPosition=2
 
-**How Much for That Doggie in the Cubicle?**\
-`Everyone needs a little boundary training.`\
-https://nytimes.com/2022/01/02/business/office-dogs-etiquette.html?searchResultPosition=3
+**Child Tax Credit’s Extra Help Ends, Just as Covid Surges Anew**\
+`A pandemic benefit that many progressives hoped to make permanent has lapsed in a congressional standoff. Researchers say it spared many from poverty.`\
+https://nytimes.com/2022/01/02/business/economy/child-tax-credit.html?searchResultPosition=3
 
-**‘My Friend and I Decided to Grab Some Cupcakes Before Going Home’**\
-`A sweet cultural exchange, a happy landing at J.F.K. and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/01/02/nyregion/metropolitan-diary.html?searchResultPosition=4
+**NASA’s Retiring Top Scientist Says We Can Terraform Mars and Maybe Venus, Too**\
+`Jim Green has shaped much of the space agency’s scientific inquiry for decades.`\
+https://nytimes.com/2022/01/02/science/jim-green-nasa-mars.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/02/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Noah Hawley Keeps Changing Lanes**\
+`The show runner behind “Fargo” and “Legion” is also a novelist. His latest, “Anthem,” is set in a divided America with a touch of magical realism.`\
+https://nytimes.com/2022/01/02/books/noah-hawley-anthem.html?searchResultPosition=5
 
-**Large Fire Burning at South African Parliament**\
-`The extent of the damage was not immediately clear on Sunday morning, but officials feared it would be extensive.`\
-https://nytimes.com/2022/01/02/world/africa/south-africa-fire-parliament.html?searchResultPosition=6
+**Puerto Rico Faces Staggering Covid Case Explosion**\
+`The island had a 4,600 percent increase in cases in recent weeks after mounting one of the nation’s most successful vaccination campaigns.`\
+https://nytimes.com/2022/01/02/us/coronavirus-puerto-rico.html?searchResultPosition=6
 
-**Corrections: Jan. 2, 2022**\
-`Corrections that appeared in print on Sunday, Jan. 2, 2022.`\
-https://nytimes.com/2022/01/02/pageoneplus/corrections-jan-2-2022.html?searchResultPosition=7
+**Left and Center-Left Both Claim Stacey Abrams. Who’s Right?**\
+`Ms. Abrams, the Georgia Democrat running for governor, has admirers in both wings of her party — and Republicans eager to defeat her. Her carefully calibrated strategy faces a test in 2022.`\
+https://nytimes.com/2022/01/02/us/politics/stacey-abrams-georgia-democrats.html?searchResultPosition=7
 
-**Quotation of the Day: Back to School and Work Even as Omicron Explodes**\
-`Quotation of the Day for Sunday, January 2, 2022.`\
-https://nytimes.com/2022/01/02/todayspaper/quotation-of-the-day-back-to-school-and-work-even-as-omicron-explodes.html?searchResultPosition=8
+**Tracking Climate Change in 193 Countries**\
+`A team of more than 40 Opinion writers, photographers and editors spent five months canvassing the globe to illustrate the deadly consequences of our warming world.`\
+https://nytimes.com/2022/01/02/insider/tracking-climate-change-in-193-countries.html?searchResultPosition=8
 
-**21 People Rescued After a Freezing Night Stranded in Aerial Tram Cars**\
-`They spent the first hours of 2022 shivering in stalled aerial tram cars on a New Mexico mountain, rationing Life Savers gummies and bottles of water.`\
-https://nytimes.com/2022/01/01/us/sandia-peak-tramway-rescue.html?searchResultPosition=9
+**Homes That Sold for Around $600,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/01/02/realestate/homes-that-sold-for-around-600000.html?searchResultPosition=9
 
-**Three People Missing After Colorado Wildfire**\
-`Officials said they were searching for three people who were feared dead inside their homes after a devastating wildfire that scorched through two Colorado suburbs.`\
-https://nytimes.com/video/us/100000008142532/colorado-wildfire-missing-update.html?searchResultPosition=10
+**Each N.F.L. Team’s Playoff Path: Week 17**\
+`A team-by-team guide to the N.F.L. playoff picture through Week 17.`\
+https://nytimes.com/interactive/2022/01/02/upshot/nfl-week-17-playoff-chances.html?searchResultPosition=10
 
