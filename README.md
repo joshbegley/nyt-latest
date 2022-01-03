@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/03/health/omicron-delta-monoclonal-medication.html?s
 
 **Kathy Hochul Will Propose Term Limits for New York Governors**\
 `The state’s Covid response will continue to demand her attention, but other contentious issues await as the Legislature returns and a primary looms in June.`\
-https://nytimes.com/2022/01/03/nyregion/kathy-hochul-bail-reform.html?searchResultPosition=3
+https://nytimes.com/2022/01/03/nyregion/kathy-hochul-government-reform.html?searchResultPosition=3
 
 **Review: ‘The Streets of New York’ Is a Good Old Melodrama**\
 `At the Irish Repertory Theater, this musical confection is a luridly entertaining tale, set mostly in 1857, about a villainous banker and his wily clerk.`\
