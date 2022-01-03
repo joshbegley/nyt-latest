@@ -1,4 +1,4 @@
-**The Virus Is Surging. Avant-Garde Arts Festivals Are Closing.**\
+**Coronavirus Is Surging. Avant-Garde Arts Festivals Are Closing.**\
 `Under the Radar, Prototype and the Exponential Festival, annual January beacons of experimental work, have canceled their in-person offerings.`\
 https://nytimes.com/2022/01/03/theater/festivals-covid-coronavirus.html?searchResultPosition=1
 
