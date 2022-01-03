@@ -31,7 +31,7 @@ https://nytimes.com/2022/01/03/well/move/exercising-muscle-strength.html?searchR
 https://nytimes.com/video/us/100000008143469/snow-washington-southeast-storm.html?searchResultPosition=8
 
 **Suspect in Fire at South African Parliament to Appear in Court**\
-`A 49-year-old man is facing charges of arson and theft in the blaze, which started Sunday and heavily damaged legislative buildings in Cape Town.`\
+`A 49-year-old man is facing charges of arson and theft in the blaze, which started Sunday and has heavily damaged legislative buildings in Cape Town.`\
 https://nytimes.com/2022/01/03/world/africa/south-africa-parliament-fire-suspect.html?searchResultPosition=9
 
 **Trump Endorses Viktor Orban, Hungary’s Far-Right Prime Minister**\
