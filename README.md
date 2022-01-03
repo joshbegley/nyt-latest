@@ -14,8 +14,8 @@ https://nytimes.com/2022/01/03/technology/personaltech/blackberry-devices-stop-w
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/01/03/briefing/omicron-apple-jan-6-your-monday-evening-briefing.html?searchResultPosition=4
 
-**Senate Returns to Deal With Biden’s Stalled Agenda**\
-`The president’s domestic policy ambitions hang in the balance, but little legislative action is expected ahead of the anniversary of the Jan. 6 riot.`\
+**Democrats Set Timetable to Change Rules for Stalled Voting Rights Bills**\
+`The top Senate Democrat said he would act by Jan. 17 to try to force through the measures if Republicans refused to drop their opposition.`\
 https://nytimes.com/2022/01/03/us/politics/senate-democrats-biden-agenda.html?searchResultPosition=5
 
 **Coronavirus Briefing: Back-to-school chaos**\
