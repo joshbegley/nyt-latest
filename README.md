@@ -1,40 +1,40 @@
-**A New Mayor and a New Relationship Between City Hall and Albany**\
-`Unlike their feuding predecessors, Mayor Eric Adams and Gov. Kathy Hochul appear to be getting along. They have their reasons.`\
-https://nytimes.com/2022/01/03/nyregion/a-new-mayor-and-a-new-relationship-between-city-hall-and-albany.html?searchResultPosition=1
+**The Ghost Wolves of Galveston Island**\
+`A population of strange canids in Texas could hold the key to reviving the highly endangered red wolf.`\
+https://nytimes.com/2022/01/03/science/red-wolves-dna-galveston.html?searchResultPosition=1
 
-**Board Diversity Increased in 2021. Some Ask What Took So Long.**\
-`Some executives say corporate boards have often overlooked qualified women and nonwhite people. That may be changing.`\
-https://nytimes.com/2022/01/03/business/corporate-board-diversity.html?searchResultPosition=2
+**This Isn’t the California I Married**\
+`The honeymoon’s over for its residents now that wildfires are almost constant. Has living in this natural wonderland lost its magic?`\
+https://nytimes.com/2022/01/03/magazine/california-widfires.html?searchResultPosition=2
 
-**Why Eric Adams and Kathy Hochul ‘Need Each Other’**\
-`Mayor Eric Adams has a base that Gov. Kathy Hochul wants to tap into. Ms. Hochul controls the money that Mr. Adams needs to jump-start his agenda.`\
-https://nytimes.com/2022/01/03/nyregion/kathy-hochul-eric-adams.html?searchResultPosition=3
+**Celebrating the ‘Great Night of Shiva’ in Kathmandu**\
+`Every year, thousands of celebrants gather at a temple complex in Nepal’s capital in honor of Shiva, one of Hinduism’s most revered gods.`\
+https://nytimes.com/2022/01/03/travel/nepal-maha-shivaratri.html?searchResultPosition=3
 
-**The Pandemic Brought Seismic Changes. They Changed With It.**\
-`From new forms of medicine to less wasteful business practices, many have adapted to Covid-19 in ways that have improved them, and society.`\
-https://nytimes.com/2022/01/03/nyregion/coronavirus-pandemic-silver-linings.html?searchResultPosition=4
+**When Three Shots Are Not Enough**\
+`People with compromised immune systems are getting unapproved fourth or fifth Covid-19 shots, despite uncertainty about their safety or effectiveness.`\
+https://nytimes.com/2022/01/03/us/additional-doses-covid-vaccine.html?searchResultPosition=4
 
-**Banks Tiptoe Toward Their Cloud-Based Future**\
-`Cloud computing is slowly changing how Wall Street banks handle their business, but concerns with security remain.`\
-https://nytimes.com/2022/01/03/business/wall-street-cloud-computing.html?searchResultPosition=5
+**Stress May Be Your Heart’s Worst Enemy**\
+`Psychological stress activates the fear center in the brain, setting into motion a cascade of reactions that can lead to heart attacks and strokes.`\
+https://nytimes.com/2022/01/03/well/mind/stress-heart.html?searchResultPosition=5
 
-**Jurors Set to Deliberate for Seventh Day in Elizabeth Holmes Trial**\
-`Ms. Holmes, the founder of the blood-testing start-up Theranos, is accused of deceiving investors, patients and advertisers.`\
-https://nytimes.com/2022/01/03/business/elizabeth-holmes-theranos-trial.html?searchResultPosition=6
+**Why Therapists Are Worried About Mental Health in America Right Now**\
+`The Times recently asked mental health professionals from across the country to share how their patients — and they themselves — are coping with the coronavirus crisis.`\
+https://nytimes.com/2022/01/03/insider/why-therapists-are-worried-about-mental-health-in-america-right-now.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/03/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**For One Rockaways Couple, Lockdown Was a Creative Windfall**\
+`While many hoped to use the enforced isolation of quarantine creatively, the couple who started Locus of Occult actually did.`\
+https://nytimes.com/2022/01/03/realestate/for-one-rockaways-couple-lockdown-was-a-creative-windfall.html?searchResultPosition=7
 
-**Word of the Day: assimilate**\
-`This word has appeared in 68 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/03/learning/word-of-the-day-assimilate.html?searchResultPosition=8
+**Diets Make You Feel Bad. Try Training Your Brain Instead.**\
+`The new Eat Well Challenge will show you how to reshape your eating habits without dieting.`\
+https://nytimes.com/2022/01/03/well/eat/healthy-eating-habits-new-year.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘RuPaul’s Drag Race’ and ‘Batman Forever’**\
-`The 14th season of RuPaul’s Emmy-winning competition series premieres on VH1. And “Batman Forever” airs on BBC America.`\
-https://nytimes.com/2022/01/03/arts/television/whats-on-tv-this-week-rupauls-drag-race.html?searchResultPosition=9
+**How the E.U. Allowed Hungary to Become an Illiberal Model**\
+`After years of complacency and wishful thinking, Brussels is finally trying to rein in the country’s pugnacious leader, Prime Minister Viktor Orban.`\
+https://nytimes.com/2022/01/03/world/europe/eu-hungary-threat.html?searchResultPosition=9
 
-**No Corrections: Jan. 3, 2022**\
-`No corrections appeared in print on Monday, Jan. 3, 2022.`\
-https://nytimes.com/2022/01/03/pageoneplus/no-corrections-jan-3-2022.html?searchResultPosition=10
+**Language Mistake in Georgia Death Penalty Law Creates a Daunting Hurdle**\
+`The Supreme Court will decide whether to hear a challenge to the law, which requires that defendants in capital cases who are intellectually disabled prove it “beyond a reasonable doubt” — a phrase that was inserted in error.`\
+https://nytimes.com/2022/01/03/us/politics/supreme-court-death-penalty-intellectual-disability.html?searchResultPosition=10
 
