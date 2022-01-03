@@ -1,6 +1,6 @@
 **The Virus Is Surging. Avant-Garde Arts Festivals Are Closing.**\
 `Under the Radar, Prototype and the Exponential Festival, annual January beacons of experimental work, have canceled their in-person offerings.`\
-https://nytimes.com/2022/01/03/theater/covid-omicron-under-radar-prototype.html?searchResultPosition=1
+https://nytimes.com/2022/01/03/theater/festivals-covid-coronavirus.html?searchResultPosition=1
 
 **Sudan Braces for ‘the Worst’ after Prime Minister Resigns**\
 `With the departure of the civilian prime minister Abdalla Hamdok on Sunday, the military and security forces are now fully in control of Sudan again.`\
