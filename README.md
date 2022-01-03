@@ -1,6 +1,6 @@
 **Sudan Braces for ‘the Worst’ after Prime Minister Resigns**\
 `With the departure of the civilian prime minister Abdalla Hamdok on Sunday, the military and security forces are now fully in control of Sudan again.`\
-https://nytimes.com/2022/01/03/world/africa/sudan-prime-minister-resigns.html?searchResultPosition=1
+https://nytimes.com/2022/01/03/world/africa/sudan-prime-minister-abdalla-hamdok.html?searchResultPosition=1
 
 **BlackBerry Ends Service on Its Once-Ubiquitous Mobile Devices**\
 `Android-powered devices carrying the BlackBerry name won’t be affected. For some, it’s a farewell to an era when BlackBerries dominated airport lounges and the West Wing.`\
@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/03/briefing/omicron-apple-jan-6-your-monday-evening-
 
 **Senate Returns to Deal With Biden’s Stalled Agenda**\
 `The president’s domestic policy ambitions hang in the balance, but little legislative action is expected ahead of the anniversary of the Jan. 6 riot.`\
-https://nytimes.com/2022/01/03/us/politics/senate-returns-agenda.html?searchResultPosition=4
+https://nytimes.com/2022/01/03/us/politics/senate-democrats-biden-agenda.html?searchResultPosition=4
 
 **Coronavirus Briefing: Back-to-school chaos**\
 `And the latest on Omicron.`\
@@ -28,7 +28,7 @@ https://nytimes.com/2022/01/03/opinion/2021-worst-predictions.html?searchResultP
 
 **Adele Closes Out 2021 With a Sixth Straight Week at No. 1**\
 `“30” ended the year with the equivalent of 1.8 million sales in the United States.`\
-https://nytimes.com/2022/01/03/arts/music/adele-billboard-sixth-week.html?searchResultPosition=8
+https://nytimes.com/2022/01/03/arts/music/adele-30-billboard-sixth-week.html?searchResultPosition=8
 
 **The First of the Year**\
 `Writers and photographers share their reflections on the start of 2022.`\
