@@ -22,8 +22,8 @@ https://nytimes.com/2022/01/02/theater/mrs-doubtfire-broadway.html?searchResultP
 `Days after what might be the most damaging wildfire in state history, residents are just beginning to make sense of the long road back and the extent of the damage.`\
 https://nytimes.com/2022/01/02/us/colorado-fire-damage.html?searchResultPosition=6
 
-**Giants Give Up Four Sacks and the Jets Falter, as Opponents Overshadow Gains**\
-`Every week brings the Giants and Jets closer to the N.F.L. draft.`\
+**Giants Give Up Four Sacks and Jets Falter, as Opponents Overshadow Gains**\
+`Every week brings the Giants and the Jets closer to the N.F.L. draft.`\
 https://nytimes.com/2022/01/02/sports/football/giants-bears-buccaneers-jets-score.html?searchResultPosition=7
 
 **Two People Remain Missing After Colorado Wildfire**\
