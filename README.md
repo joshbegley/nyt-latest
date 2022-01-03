@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/03/opinion/new-years-resolutions.html?searchResultPo
 
 **How Beijing Has Muted Hong Kong’s Independent Media**\
 `Citizen News, a small but aggressive online publication, is the latest outlet to fold amid relentless pressure from the authorities.`\
-https://nytimes.com/2022/01/03/world/asia/hong-kong-media-muzzled.html?searchResultPosition=2
+https://nytimes.com/article/hong-kong-media-muzzled.html?searchResultPosition=2
 
 **Online ‘Auction’ Is Latest Attack on Muslim Women in India**\
 `The fake site, the second in months, is a sign of the organized nature of virtual bullying, with threats of sexualized violence aimed at silencing the outspoken.`\
