@@ -26,7 +26,7 @@ https://nytimes.com/2022/01/03/business/omicron-return-to-office.html?searchResu
 `The start of 2022 has echoes of the last two years, but the landscape is also changing.`\
 https://nytimes.com/2022/01/03/business/dealbook/covid-return-office.html?searchResultPosition=7
 
-**Winter Storm Knocks Out Power Across Southeast**\
+**Winter Storm Hits the D.C. Area and Knocks Out Power Across Southeast**\
 `Hundreds of thousands were without electricity on Monday, and federal government offices in the Washington, D.C., area were closed because of the storm.`\
 https://nytimes.com/2022/01/03/us/sleet-snow-forecast.html?searchResultPosition=8
 
