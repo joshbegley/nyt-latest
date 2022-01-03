@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/02/us/meteor-explosion-pittsburgh.html?searchResultP
 
 **What We Learned From Week 17 in the N.F.L.**\
 `Burrow-to-Chase can do damage in the playoffs, and Tom Brady and the Buccaneers aren’t exactly where they want to be at this point in the season.`\
-https://nytimes.com/2022/01/02/sports/football/what-we-learned-from-week-17-in-the-nfl.html?searchResultPosition=2
+https://nytimes.com/2022/01/02/sports/football/nfl-week-17-scores.html?searchResultPosition=2
 
 **Jan. 6 Panel Faces Difficult Questions as Anniversary of Capitol Riot Approaches**\
 `Decisions about subpoenas and a Supreme Court ruling loom as lawmakers, staff members and Capitol employees plan to commemorate the day.`\
