@@ -2,8 +2,8 @@
 `As Queen Elizabeth II prepares to mark 70 years on the throne this year, a sexual abuse case in a Manhattan court involving her son could mean more turmoil for the royal family.`\
 https://nytimes.com/2022/01/04/world/europe/prince-andrew-sexual-abuse-royal-family.html?searchResultPosition=1
 
-**Palestinian Prisoner’s Hunger Strike Sets Israel on Edge**\
-`A Palestinian accused of plotting to kill Israelis went on a hunger strike to protest his imprisonment without trial. Israel has agreed to release him.`\
+**Palestinian Prisoner’s Hunger Strike Leads to Release**\
+`A Palestinian accused of plotting to kill Israelis went on a hunger strike to protest his imprisonment without trial. Fearing unrest, Israel agreed to release him.`\
 https://nytimes.com/2022/01/04/world/middleeast/palestinian-hunger-strike-israel.html?searchResultPosition=2
 
 **With His New Line, Joseph Altuzarra Honors His Teen Self**\
