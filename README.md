@@ -6,17 +6,17 @@ https://nytimes.com/2022/01/04/world/asia/ioc-forced-labor-beijing-olympics.html
 `Few locales outside Japan can equal the variety, skill and creativity served at the city’s countless sushi counters.`\
 https://nytimes.com/2022/01/04/dining/los-angeles-sushi.html?searchResultPosition=2
 
+**Silicon Valley Can’t Escape Elizabeth Holmes**\
+`Ms. Holmes, the founder of Theranos, wasn’t a creature of Silicon Valley, or so the refrain went. But her fraud trial showed otherwise.`\
+https://nytimes.com/2022/01/04/technology/elizabeth-holmes-theranos-silicon-valley.html?searchResultPosition=3
+
 **The Capitol Police and the Scars of Jan. 6**\
 `For many officers, their bodies, minds and lives will never be the same after the attack.`\
-https://nytimes.com/2022/01/04/magazine/jan-6-capitol-police-officers.html?searchResultPosition=3
+https://nytimes.com/2022/01/04/magazine/jan-6-capitol-police-officers.html?searchResultPosition=4
 
 **How to Design a Home Gym That You’ll Actually Use**\
 `As the pandemic rages on, the safest place to work out is at home. Here’s how to create a personal gym you’ll want to spend time in.`\
-https://nytimes.com/2022/01/04/realestate/how-to-design-a-home-gym-that-youll-actually-use.html?searchResultPosition=4
-
-**Silicon Valley Can’t Escape Elizabeth Holmes**\
-`Ms. Holmes, the founder of Theranos, wasn’t a creature of Silicon Valley, or so the refrain went. But her fraud trial showed otherwise.`\
-https://nytimes.com/2022/01/04/technology/elizabeth-holmes-theranos-silicon-valley.html?searchResultPosition=5
+https://nytimes.com/2022/01/04/realestate/how-to-design-a-home-gym-that-youll-actually-use.html?searchResultPosition=5
 
 **The ‘Best Spring Skiing Anywhere’? Try Crete**\
 `The Greek island has no lifts, no lodges, no trail maps. But for those willing to climb for their turns, it’s got miles of wide-open terrain, dependable spring snow and no crowds.`\
