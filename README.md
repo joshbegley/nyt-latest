@@ -14,7 +14,7 @@ https://nytimes.com/2022/01/03/technology/elizabeth-holmes-theranos.html?searchR
 `After an unrelenting spike in cases, a small but growing list of districts — including Newark, Atlanta, Milwaukee and Cleveland — moved temporarily to remote learning.`\
 https://nytimes.com/2022/01/03/us/schools-classrooms-omicron.html?searchResultPosition=4
 
-**Elizabeth Holmes found guilty of four counts of fraud.**\
+**Elizabeth Holmes is found guilty of four counts of fraud.**\
 `The case against the founder of the failed blood testing start-up Theranos came to symbolize the pitfalls of Silicon Valley’s culture of hustle and hype.`\
 https://nytimes.com/2022/01/03/technology/elizabeth-holmes-guilty.html?searchResultPosition=5
 
