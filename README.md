@@ -24,7 +24,7 @@ https://nytimes.com/2022/01/04/briefing/olympics-china-philippines-covid-lockdow
 
 **Election Falsehoods Surged on Podcasts Before Capitol Riots, Researchers Find**\
 `A new study analyzed nearly 1,500 episodes, showing the extent to which podcasts pushed misinformation about voter fraud.`\
-https://nytimes.com/2022/01/04/technology/podcast-election-misinformation.html?searchResultPosition=7
+https://nytimes.com/2022/01/04/technology/apple-google-spotify-podcast-election-misinformation.html?searchResultPosition=7
 
 **Kathy Flores, Pathbreaking Women’s Rugby Coach, Dies at 66**\
 `She was a gifted player and exacting coach who pushed for recognition of women in a historically male-dominated sport.`\
@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/04/sports/rugby/kathy-flores-dead.html?searchResultP
 `A memo sent to the staff indicated that the retailer was preparing for the potential that vaccines or weekly testing could be mandated by the Biden administration.`\
 https://nytimes.com/2022/01/04/business/macys-vaccine-mandates.html?searchResultPosition=9
 
-**Covid vaccinations are not linked to pre-term birth, researchers report.**\
+**Covid vaccinations are not linked to pre-term births, researchers report.**\
 `Women who were vaccinated while pregnant were at no greater risk of delivering prematurely, nor of having small babies.`\
 https://nytimes.com/2022/01/04/health/covid-vaccine-premature-birth.html?searchResultPosition=10
 
