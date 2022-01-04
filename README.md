@@ -1,4 +1,4 @@
-**City schools are ‘staying open,’ Mayor Eric Adams says**\
+**City Schools Are ‘Staying Open,’ Mayor Eric Adams Says**\
 `But the spike in Omicron cases has created trepidation for many parents.`\
 https://nytimes.com/2022/01/04/nyregion/city-schools-are-staying-open-mayor-eric-adams-says.html?searchResultPosition=1
 
