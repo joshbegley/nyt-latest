@@ -18,8 +18,8 @@ https://nytimes.com/2022/01/03/technology/verizon-att-5g-delay.html?searchResult
 `Convicted of four of 11 charges of fraud, Ms. Holmes can appeal her conviction.`\
 https://nytimes.com/2022/01/03/technology/elizabeth-holmes-conviction-appeal.html?searchResultPosition=5
 
-**Colorado Wildfire Probe Focuses on Christian Sect**\
-`Investigators are looking at the possibility that a fire that destroyed more than 900 homes in Colorado started on property owned by a fundamentalist Christian sect known as the Twelve Tribes.`\
+**Colorado Wildfire Inquiry Focuses on Christian Sect**\
+`Investigators are looking at the possibility that a fire that destroyed more than 900 homes started on property owned by a fundamentalist Christian sect known as Twelve Tribes.`\
 https://nytimes.com/2022/01/03/us/colorado-fire-twelve-tribes.html?searchResultPosition=6
 
 **The Epic Rise and Fall of Elizabeth Holmes**\
