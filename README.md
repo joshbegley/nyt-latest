@@ -1,4 +1,4 @@
-**Federal judge blocks the Defense Dept. from punishing Navy forces who refused the vaccine.**\
+**Federal judge blocks the Defense Dept. from punishing Navy forces who refuse the vaccine.**\
 `“There is no Covid-19 exception to the First Amendment. There is no military exclusion from our Constitution,” the judge said in his ruling.`\
 https://nytimes.com/2022/01/04/us/lawsuit-us-troops-vaccine-exemption.html?searchResultPosition=1
 
