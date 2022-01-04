@@ -36,5 +36,5 @@ https://nytimes.com/2022/01/03/us/california-school-reopening-testing.html?searc
 
 **Sudan Braces for ‘the Worst’ after Prime Minister Resigns**\
 `With the departure of the civilian prime minister Abdalla Hamdok on Sunday, the military and security forces are now fully in control of Sudan again.`\
-https://nytimes.com/2022/01/03/world/africa/sudan-prime-minister-abdalla-hamdok.html?searchResultPosition=10
+https://nytimes.com/2022/01/03/world/africa/sudan-prime-minister-resigns.html?searchResultPosition=10
 
