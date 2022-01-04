@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/04/briefing/jobs-omicron-andrew-cuomo.html?searchRes
 
 **New York said it needed $1 billion more for pandemic rent relief. It is getting far less.**\
 `The gap illustrates how severe the economic crisis has been in New York, and how aid programs may be falling short.`\
-https://nytimes.com/2022/01/04/nyregion/new-york-said-it-needed-1-billion-more-for-pandemic-rent-relief-it-is-getting-far-less.html?searchResultPosition=3
+https://nytimes.com/2022/01/04/nyregion/new-york-rent-relief-pandemic.html?searchResultPosition=3
 
 **N.Y. Prisons Punished 1,600 Based on Faulty Drug Tests, Report Finds**\
 `Incarcerated people were subjected to solitary confinement and denied family visits because of improperly administered tests, the state inspector general found.`\
