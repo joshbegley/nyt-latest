@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/04/us/i-95-closed-snowstorm-winter.html?searchResult
 
 **Djokovic is granted a medical exemption to play in the Australian Open.**\
 `The top-ranked player in men’s tennis revealed his plans in a post on his Instagram account.`\
-https://nytimes.com/2022/01/04/world/djokovic-australian-open-vaccine-exemption.html?searchResultPosition=4
+https://nytimes.com/2022/01/04/sports/tennis/djokovic-vaccine.html?searchResultPosition=4
 
 **OPEC and Russia will discuss oil output, amid concerns about lagging production.**\
 `The group called OPEC Plus is expected to approve increased oil output, but its members have lately been falling short of production quotas.`\
