@@ -36,5 +36,5 @@ https://nytimes.com/2022/01/04/opinion/marriage-divorce-narratives.html?searchRe
 
 **Imagine It’s 2024, and Republicans Are Declaring Trump President**\
 `Too many Americans are willing to believe in election lies, and  their leaders  eager to cater to that mistaken conviction.`\
-https://nytimes.com/2022/01/04/opinion/january-6-democracy.html?searchResultPosition=10
+https://nytimes.com/2022/01/04/opinion/trump-2024.html?searchResultPosition=10
 
