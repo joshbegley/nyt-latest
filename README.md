@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/04/world/canada/canada-pledges-compensation-in-battl
 
 **Sabine Weiss, Last of the ‘Humanist’ School of Photographers, Dies at 97**\
 `Like Robert Doisneau and Brassaï, she shot life in postwar Paris as it really was. But she also won fame for her reporting and fashion work.`\
-https://nytimes.com/2022/01/04/arts/sabine-weiss-last-of-the-humanist-school-of-photographers-dies-at-97.html?searchResultPosition=2
+https://nytimes.com/2022/01/04/arts/sabine-weiss-dead.html?searchResultPosition=2
 
 **5 Tips for Spotting Melanoma and Other Skin Cancers**\
 `An unusual incident at a hockey game may have been lifesaving for one staff member with a suspicious skin mole.`\
