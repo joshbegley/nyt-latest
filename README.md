@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Where Do Your Spices Come From?’**\
-`In this lesson, students will learn how cinnamon, nutmeg and cardamom are produced in Zanzibar. Then they will research a spice they are curious about.`\
-https://nytimes.com/2022/01/04/learning/lesson-plans/lesson-of-the-day-where-do-your-spices-come-from.html?searchResultPosition=1
+**The Capitol Police and the Scars of Jan. 6**\
+`For many officers, their bodies, minds and lives will never be the same after the attack.`\
+https://nytimes.com/2022/01/04/magazine/jan-6-capitol-riot-police-officers.html?searchResultPosition=1
 
-**City Schools Are ‘Staying Open,’ Mayor Eric Adams Says**\
-`But the spike in Omicron cases has created trepidation for many parents.`\
-https://nytimes.com/2022/01/04/nyregion/city-schools-are-staying-open-mayor-eric-adams-says.html?searchResultPosition=2
+**How to Design a Home Gym That You’ll Actually Use**\
+`As the pandemic rages on, the safest place to work out is at home. Here’s how to create a personal gym you’ll want to spend time in.`\
+https://nytimes.com/2022/01/04/realestate/how-to-design-a-home-gym-that-youll-actually-use.html?searchResultPosition=2
 
-**Changing Brussels Neighborhood Tries to Leave Stigma of Terrorism Behind**\
-`Molenbeek was where a terrorist cell planned attacks that killed 162 in Paris and Brussels. Six years later, residents are trying to reinvent the area as a trial rekindles an awful association.`\
-https://nytimes.com/2022/01/04/world/europe/molenbeek-attack-brussels-paris.html?searchResultPosition=3
+**Silicon Valley Can’t Escape Elizabeth Holmes**\
+`Ms. Holmes, the founder of Theranos, wasn’t a creature of Silicon Valley, or so the refrain went. But her fraud trial showed otherwise.`\
+https://nytimes.com/2022/01/04/technology/elizabeth-holmes-theranos-silicon-valley.html?searchResultPosition=3
 
-**A Widening Web of Undersea Cables Connects Britain to Green Energy**\
-`Linking one nation’s power grid with another’s is considered essential as more electricity is generated from solar and wind.`\
-https://nytimes.com/2022/01/04/business/britain-electricity-norway-cables.html?searchResultPosition=4
+**The ‘Best Spring Skiing Anywhere’? Try Crete**\
+`The Greek island has no lifts, no lodges, no trail maps. But for those willing to climb for their turns, it’s got miles of wide-open terrain, dependable spring snow and no crowds.`\
+https://nytimes.com/2022/01/04/travel/crete-greece-skiing.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/04/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Two Wyoming Bobsledders. Two Horrific Brain Injuries. One Survivor.**\
+`Travis Bell and Joe Sisson were close friends and rising stars in bobsled before crashes derailed their careers. Two decades later, one of them wonders why he thrived and his friend is gone.`\
+https://nytimes.com/2022/01/04/sports/olympics/bobsled-travis-bell-joe-sisson.html?searchResultPosition=5
 
-**Chasing the ‘Ghost Bird’ of Australia’s Outback**\
-`An elusive, nocturnal parrot disappeared for more than a century. An unlikely rediscovery led to ornithological scandal — and then hope.`\
-https://nytimes.com/2022/01/04/science/night-parrot-ghost-bird-australia.html?searchResultPosition=6
+**Considering Bone or Joint Surgery? You May Not Need It.**\
+`For many common problems of the knee, hip, shoulder, spine and wrist, nonsurgical options may be just as good.`\
+https://nytimes.com/2022/01/04/well/bone-joint-surgery.html?searchResultPosition=6
 
-**Word of the Day: antipathy**\
-`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/04/learning/word-of-the-day-antipathy.html?searchResultPosition=7
+**What Does Marriage Ask Us to Give Up?**\
+`More and more Americans are single, living lives of hard-won independence.`\
+https://nytimes.com/2022/01/04/opinion/marriage-divorce-narratives.html?searchResultPosition=7
 
-**Late Night Is Happy Twitter Booted Marjorie Taylor Greene**\
-`Seth Meyers said that living in a world with the Republican congresswoman’s “insane” screaming was “like trying to have a conversation with a friend on the street next to a jackhammer.”`\
-https://nytimes.com/2022/01/04/arts/television/taylor-greene-twitter-late-night-tv-shows.html?searchResultPosition=8
+**Imagine It’s 2024, and Republicans Are Declaring Trump President**\
+`Too many Americans are willing to believe in election lies, and  their leaders  eager to cater to that mistaken conviction.`\
+https://nytimes.com/2022/01/04/opinion/january-6-democracy.html?searchResultPosition=8
 
-**Federal judge blocks the Defense Dept. from punishing Navy forces who refuse the vaccine.**\
-`“There is no Covid-19 exception to the First Amendment. There is no military exclusion from our Constitution,” the judge said in his ruling.`\
-https://nytimes.com/2022/01/04/us/lawsuit-us-troops-vaccine-exemption.html?searchResultPosition=9
+**‘Insurmountable’: Parents Grapple With Omicron’s Upending Force in Schools**\
+`Some want classrooms to stay open through the surge; others are desperate for a remote option. For nearly all, it’s an agonizing situation.`\
+https://nytimes.com/2022/01/04/us/covid-omicron-schools-parents.html?searchResultPosition=9
 
-**Corrections: Jan. 4, 2022**\
-`Corrections that appeared in print on Tuesday, Jan. 4, 2022.`\
-https://nytimes.com/2022/01/04/pageoneplus/corrections-jan-4-2022.html?searchResultPosition=10
+**Our Broken Electoral System Created the Capitol Riot**\
+`Our institutions, from the Electoral College  to the media, have convinced conservatives that they are denizens of the real America. `\
+https://nytimes.com/2022/01/04/opinion/capitol-riot.html?searchResultPosition=10
 
