@@ -28,7 +28,7 @@ https://nytimes.com/2022/01/04/learning/word-of-the-day-antipathy.html?searchRes
 
 **Late Night Is Happy Twitter Booted Marjorie Taylor Greene**\
 `Seth Meyers said that living in a world with the Republican congresswoman’s “insane” screaming was “like trying to have a conversation with a friend on the street next to a jackhammer.”`\
-https://nytimes.com/2022/01/04/arts/television/seth-myers-marjorie-taylor-greene-twitter.html?searchResultPosition=8
+https://nytimes.com/2022/01/04/arts/television/taylor-greene-twitter-late-night-tv-shows.html?searchResultPosition=8
 
 **Federal judge blocks the Defense Dept. from punishing Navy forces who refuse the vaccine.**\
 `“There is no Covid-19 exception to the First Amendment. There is no military exclusion from our Constitution,” the judge said in his ruling.`\
