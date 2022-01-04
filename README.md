@@ -1,36 +1,36 @@
+**5G cellular service can go forward as U.S. reaches deal with carriers.**\
+`Transportation regulators had clashed with AT&T and Verizon, saying the new technology posed a security risk.`\
+https://nytimes.com/2022/01/04/technology/5g-att-verizon-rollout.html?searchResultPosition=1
+
 **Lawsuit Accusing Nirvana of Sexually Exploitive Imagery Is Dismissed**\
 `Spencer Elden, who was pictured naked as a baby on the cover of “Nevermind,” said Nirvana had engaged in “child pornography.”`\
-https://nytimes.com/2022/01/04/arts/music/nirvana-baby-nevermind-cover-lawsuit.html?searchResultPosition=1
+https://nytimes.com/2022/01/04/arts/music/nirvana-baby-nevermind-cover-lawsuit.html?searchResultPosition=2
 
 **Petition to Rescind Tony Blair’s Knighthood Gets Hundreds of Thousands of Signatures**\
 `Nearly 15 years after he left office, the prime minister’s support for the Iraq war has not been forgiven by many in Britain.`\
-https://nytimes.com/2022/01/04/world/europe/tony-blair-knighthood-petition-rescind.html?searchResultPosition=2
+https://nytimes.com/2022/01/04/world/europe/tony-blair-knighthood-petition-rescind.html?searchResultPosition=3
 
 **New York’s battered economy could struggle for years to come.**\
 `The city is not expected to rebuild its labor force to prepandemic levels until late 2025 as the recovery is hampered by a slow rebound in the leisure and hospitality sector.`\
-https://nytimes.com/2022/01/04/business/new-york-economy.html?searchResultPosition=3
+https://nytimes.com/2022/01/04/business/new-york-economy.html?searchResultPosition=4
 
 **Spanish Police Seize 300,000 Unauthorized Covid Tests**\
 `The police in Spain released a video showing the seizure of unauthorized antigen tests from a warehouse on Dec. 29. Amid a national shortage of Covid test kits, the police are investigating cases of theft or illegal trafficking of hundreds of thousands of the tests.`\
-https://nytimes.com/video/world/europe/100000008145349/covid-test-kits-spain.html?searchResultPosition=4
+https://nytimes.com/video/world/europe/100000008145349/covid-test-kits-spain.html?searchResultPosition=5
 
 **The U.S. government doubles its order for Pfizer’s Covid pills.**\
 `The order for 10 million additional treatment courses will modestly increase very limited supplies in the next few weeks, with much larger deliveries later in the year.`\
-https://nytimes.com/2022/01/04/business/paxlovid-covid-pill.html?searchResultPosition=5
+https://nytimes.com/2022/01/04/business/paxlovid-covid-pill.html?searchResultPosition=6
 
 **A Gothic Novel Haunted by Nine Lives Over Nine Decades**\
 `In “Luckenbooth,” Jenni Fagan traces the strange, fantastical stories of artists, vagabonds, dreamers and mystics in a single tenement.`\
-https://nytimes.com/2022/01/04/books/review/jenni-fagan-luckenbooth.html?searchResultPosition=6
+https://nytimes.com/2022/01/04/books/review/jenni-fagan-luckenbooth.html?searchResultPosition=7
 
 **‘American Gadfly’ Review: A Candid Candidacy**\
 `This documentary goes behind the scenes of Mike Gravel’s oddball run for the 2020 Democratic presidential nomination.`\
-https://nytimes.com/2022/01/04/movies/american-gadfly-review.html?searchResultPosition=7
+https://nytimes.com/2022/01/04/movies/american-gadfly-review.html?searchResultPosition=8
 
 **Were You Hospitalized in New York City With Covid? Tell Us About It.**\
 `Times reporters writing about the most recent surge would like to hear from people who were hospitalized with Covid-19 in the last two weeks.`\
-https://nytimes.com/2022/01/04/nyregion/nyc-covid-hospitalization.html?searchResultPosition=9
-
-**‘Late Night’ Cancels Shows After Seth Meyers Tests Positive for Coronavirus**\
-`The NBC host said, “I feel fine,” and that his program would most likely return in a remote format next week.`\
-https://nytimes.com/2022/01/04/arts/television/seth-meyers-covid-positive.html?searchResultPosition=10
+https://nytimes.com/2022/01/04/nyregion/nyc-covid-hospitalization.html?searchResultPosition=10
 
