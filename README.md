@@ -1,4 +1,4 @@
-**5G cellular service can go forward as U.S. reaches deal with carriers.**\
+**5G cellular service will go forward as U.S. reaches deal with carriers.**\
 `Transportation regulators had clashed with AT&T and Verizon, saying the new technology posed a security risk.`\
 https://nytimes.com/2022/01/04/technology/5g-att-verizon-rollout.html?searchResultPosition=1
 
