@@ -6,9 +6,9 @@ https://nytimes.com/2022/01/04/podcasts/the-daily/prenatal-tests-pregnancy-birth
 `The new rules bar unvaccinated residents from leaving their homes except for a list of essential reasons.`\
 https://nytimes.com/2022/01/04/world/asia/philippines-manila-covid-lockdown.html?searchResultPosition=2
 
-**What Is the I.O.C. Doing About Forced Labor Concerns in China? It Won’t Say.**\
+**Faced With Questions About Forced Labor in China, the I.O.C. Is Tight-Lipped**\
 `Olympic officials are reluctant to probe whether any Beijing 2022 merchandise might have been made under duress by Uyghurs, an activist group charges.`\
-https://nytimes.com/2022/01/04/world/asia/ioc-forced-labor-beijing-olympics.html?searchResultPosition=3
+https://nytimes.com/2022/01/04/world/asia/ioc-china.html?searchResultPosition=3
 
 **Tracing a Los Angeles Treasure: Its Glorious Sprawl of Sushi**\
 `Few locales outside Japan can equal the variety, skill and creativity served at the city’s countless sushi counters.`\
