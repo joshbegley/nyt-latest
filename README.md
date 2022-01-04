@@ -1,5 +1,5 @@
 **I-95 Near Washington, D.C., Is Closed After Deadly Snowstorm**\
-`Part of Interstate 95, one of the country’s busiest travel corridors, was shut down after the effects of a winter storm caused accidents involving several tractor-trailers.`\
+`Drivers reported being stranded for hours as part of the interstate, one of the country’s busiest travel corridors, was shut down after accidents involving several tractor-trailers.`\
 https://nytimes.com/2022/01/04/us/i-95-closed-snowstorm-winter.html?searchResultPosition=1
 
 **OPEC and Russia will discuss oil output, amid concerns about lagging production.**\
