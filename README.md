@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/03/technology/elizabeth-holmes-theranos.html?searchR
 
 **‘It’s Chaos’ as Schools Confront Omicron**\
 `After an unrelenting spike in cases, a small but growing list of districts — including Newark, Atlanta, Milwaukee and Cleveland — moved temporarily to remote learning.`\
-https://nytimes.com/2022/01/03/us/schools-classrooms-omicron.html?searchResultPosition=4
+https://nytimes.com/2022/01/03/us/school-reopening-classrooms-omicron.html?searchResultPosition=4
 
 **Elizabeth Holmes is found guilty of four counts of fraud.**\
 `The case against the founder of the failed blood testing start-up Theranos came to symbolize the pitfalls of Silicon Valley’s culture of hustle and hype.`\
