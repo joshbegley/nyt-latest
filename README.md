@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/04/world/asia/ioc-china.html?searchResultPosition=5
 
 **Tracing a Los Angeles Treasure: Its Glorious Sprawl of Sushi**\
 `Few locales outside Japan can equal the variety, skill and creativity served at the city’s countless sushi counters.`\
-https://nytimes.com/2022/01/04/dining/los-angeles-sushi.html?searchResultPosition=6
+https://nytimes.com/2022/01/04/dining/la-sushi.html?searchResultPosition=6
 
 **How to Design a Home Gym That You’ll Actually Use**\
 `As the pandemic rages on, the safest place to work out is at home. Here’s how to create a personal gym you’ll want to spend time in.`\
