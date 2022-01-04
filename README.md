@@ -10,7 +10,7 @@ https://nytimes.com/2022/01/03/us/politics/bobby-rush-retire.html?searchResultPo
 `David Bukszpan debuts with an introspective puzzle.`\
 https://nytimes.com/2022/01/03/crosswords/daily-puzzle-2022-01-04.html?searchResultPosition=3
 
-**U.S. Attorney Reacts to Guilty Verdict in Elizabeth Holmes Trial**\
+**Prosecution Reacts to Guilty Verdict in Elizabeth Holmes Trial**\
 `Ms. Holmes, the founder of the blood testing start-up Theranos, was convicted of four of the 11 charges of fraud for lying to investors, patients and others.`\
 https://nytimes.com/video/business/economy/100000008144605/elizabeth-holmes-verdict.html?searchResultPosition=4
 
