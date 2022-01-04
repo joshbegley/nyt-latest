@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/04/dining/los-angeles-sushi.html?searchResultPositio
 
 **The Capitol Police and the Scars of Jan. 6**\
 `For many officers, their bodies, minds and lives will never be the same after the attack.`\
-https://nytimes.com/2022/01/04/magazine/jan-6-capitol-riot-police-officers.html?searchResultPosition=3
+https://nytimes.com/2022/01/04/magazine/jan-6-capitol-police-officers.html?searchResultPosition=3
 
 **How to Design a Home Gym That You’ll Actually Use**\
 `As the pandemic rages on, the safest place to work out is at home. Here’s how to create a personal gym you’ll want to spend time in.`\
