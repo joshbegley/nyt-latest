@@ -1,4 +1,4 @@
-**Job openings remain near a record, and more workers quit than ever.**\
+**More workers quit than ever as U.S. job openings remain near a record.**\
 `Government data for November shows the continuing disruption of the coronavirus in the labor market.`\
 https://nytimes.com/2022/01/04/business/economy/job-openings-coronavirus.html?searchResultPosition=1
 
