@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/04/dining/los-angeles-sushi.html?searchResultPositio
 
 **Silicon Valley Can’t Escape Elizabeth Holmes**\
 `Ms. Holmes, the founder of Theranos, wasn’t a creature of Silicon Valley, or so the refrain went. But her fraud trial showed otherwise.`\
-https://nytimes.com/2022/01/04/technology/elizabeth-holmes-theranos-silicon-valley.html?searchResultPosition=5
+https://nytimes.com/2022/01/04/technology/elizabeth-holmes-verdict.html?searchResultPosition=5
 
 **The Capitol Police and the Scars of Jan. 6**\
 `For many officers, their bodies, minds and lives will never be the same after the attack.`\
