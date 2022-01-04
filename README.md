@@ -1,40 +1,40 @@
+**American Girl Debuts Chinese American Doll in Response to Anti-Asian Sentiment**\
+`The company said it created the doll, named Corinne Tan, to teach children to stand against racism.`\
+https://nytimes.com/2022/01/04/business/chinese-american-girl-doll.html?searchResultPosition=1
+
+**Only 17% of workers say their pay has kept pace with inflation.**\
+`A survey shows a vast majority of Americans across party lines are concerned about the rise in prices.`\
+https://nytimes.com/2022/01/04/business/economy/worker-pay-inflation.html?searchResultPosition=2
+
 **Leftists Are Ascendant in Latin America as Key Elections Loom**\
 `Growing inequality and sputtering economies have helped fuel a wave of leftist victories that may soon extend to Brazil and Colombia.`\
-https://nytimes.com/2022/01/04/world/americas/leftists-elections-latin-america.html?searchResultPosition=1
+https://nytimes.com/2022/01/04/world/americas/leftists-elections-latin-america.html?searchResultPosition=3
 
 **By weight, how much of you is carbon?**\
 `Answer this question to learn a bit about what you’re made of.`\
-https://nytimes.com/interactive/2022/01/04/science/science-quiz-human-body-carbon.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/01/04/science/science-quiz-human-body-carbon.html?searchResultPosition=4
 
 **To Boldly Explore the Jewish Roots of ‘Star Trek’**\
 `An exhibition at a Jewish cultural center has plenty of artifacts to delight Trekkies — but it also notes the Jewish origins of the Vulcan salute.`\
-https://nytimes.com/2022/01/04/arts/design/star-trek-exhibition-skirball.html?searchResultPosition=3
+https://nytimes.com/2022/01/04/arts/design/star-trek-exhibition-skirball.html?searchResultPosition=5
 
 **As Omicron Bears Down on Retailers, Landlords Get Creative to Fill Space**\
 `Tenants are being offered concessions like reduced rates and customized spaces, while vacant storefronts are being filled with pop-up shops and works by local artists.`\
-https://nytimes.com/2022/01/04/business/omicron-retail-real-estate.html?searchResultPosition=4
+https://nytimes.com/2022/01/04/business/omicron-retail-real-estate.html?searchResultPosition=6
 
 **Take a Look at the Inspirations Behind ‘The Witcher’**\
 `The showrunner of the wildly popular Netflix fantasy series offers a tour through the images and themes that have guided her.`\
-https://nytimes.com/2022/01/04/arts/television/witcher-netflix-lauren-schmidt-hissrich.html?searchResultPosition=5
+https://nytimes.com/2022/01/04/arts/television/witcher-netflix-lauren-schmidt-hissrich.html?searchResultPosition=7
 
 **Recent Commercial Real Estate Transactions**\
 `Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2022/01/04/business/new-york-commercial-real-estate.html?searchResultPosition=6
+https://nytimes.com/2022/01/04/business/new-york-commercial-real-estate.html?searchResultPosition=8
 
 **California’s Political Musical Chairs**\
 `Newly drawn congressional maps have scrambled the calculus for some incumbent lawmakers and those seeking to unseat them.`\
-https://nytimes.com/2022/01/04/us/california-redistricting.html?searchResultPosition=7
+https://nytimes.com/2022/01/04/us/california-redistricting.html?searchResultPosition=9
 
 **The Verdict Is In on Elizabeth Holmes**\
 `The Theranos founder was found guilty of defrauding investors. What does that mean for Silicon Valley?`\
-https://nytimes.com/2022/01/04/business/dealbook/elizabeth-holmes-theranos-guilty.html?searchResultPosition=8
-
-**Drivers Stranded Overnight as Snowstorm Shuts Part of I-95 in Virginia**\
-`Some motorists remained trapped in their cars Tuesday morning after a 50-mile stretch of the interstate, one of the country’s busiest travel corridors, was closed south of Washington, D.C.`\
-https://nytimes.com/2022/01/04/us/i-95-closed-snowstorm-winter.html?searchResultPosition=9
-
-**Djokovic is granted a medical exemption to play in the Australian Open.**\
-`The top-ranked player in men’s tennis revealed his plans in a post on his Instagram account.`\
-https://nytimes.com/2022/01/04/sports/tennis/djokovic-vaccine.html?searchResultPosition=10
+https://nytimes.com/2022/01/04/business/dealbook/elizabeth-holmes-theranos-guilty.html?searchResultPosition=10
 
