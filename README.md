@@ -1,6 +1,6 @@
 **What happens next to Elizabeth Holmes.**\
 `Convicted of four of 11 charges of fraud, Ms. Holmes can appeal her conviction.`\
-https://nytimes.com/2022/01/03/technology/what-happens-next-to-elizabeth-holmes.html?searchResultPosition=1
+https://nytimes.com/2022/01/03/technology/elizabeth-holmes-conviction-appeal.html?searchResultPosition=1
 
 **Colorado Wildfire Probe Focuses on Christian Sect**\
 `Investigators are looking at the possibility that a fire that destroyed more than 900 homes in Colorado started on property owned by a fundamentalist Christian sect known as the Twelve Tribes.`\
