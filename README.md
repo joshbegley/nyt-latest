@@ -14,7 +14,7 @@ https://nytimes.com/2022/01/04/opinion/theranos-verdict.html?searchResultPositio
 `The government said it would pay a landmark 40 billion Canadian dollars to repair the system, potentially ending a lawsuit brought 15 years ago.`\
 https://nytimes.com/2022/01/04/world/canada/canada-indigenous-children-settlement.html?searchResultPosition=4
 
-**Sabine Weiss, Last of the ‘Humanist’ School of Photographers, Dies at 97**\
+**Sabine Weiss, Last of the ‘Humanist’ Street Photographers, Dies at 97**\
 `Like Robert Doisneau and Brassaï, she shot life in postwar Paris as it really was. But she also won fame for her reporting and fashion work.`\
 https://nytimes.com/2022/01/04/arts/sabine-weiss-dead.html?searchResultPosition=5
 
