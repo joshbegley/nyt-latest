@@ -30,8 +30,8 @@ https://nytimes.com/2022/01/04/us/california-redistricting.html?searchResultPosi
 `The Theranos founder was found guilty of defrauding investors. What does that mean for Silicon Valley?`\
 https://nytimes.com/2022/01/04/business/dealbook/elizabeth-holmes-theranos-guilty.html?searchResultPosition=8
 
-**I-95 Near Washington, D.C., Is Closed After Deadly Snowstorm**\
-`Drivers reported being stranded for hours as part of the interstate, one of the country’s busiest travel corridors, was shut down after accidents involving several tractor-trailers.`\
+**Drivers Stranded Overnight as Part of I-95 Is Closed**\
+`A 50-mile stretch of the interstate, one of the country’s busiest travel corridors, was shut down south of Washington, D.C., after accidents involving several tractor-trailers.`\
 https://nytimes.com/2022/01/04/us/i-95-closed-snowstorm-winter.html?searchResultPosition=9
 
 **Djokovic is granted a medical exemption to play in the Australian Open.**\
