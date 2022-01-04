@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/04/nyregion/city-schools-are-staying-open-mayor-eric
 
 **Changing Brussels Neighborhood Tries to Leave Stigma of Terrorism Behind**\
 `Molenbeek was where a terrorist cell planned attacks that killed 162 in Paris and Brussels. Six years later, residents are trying to reinvent the area as a trial rekindles an awful association.`\
-https://nytimes.com/2022/01/04/world/europe/molenbeek-brussels-terrorist-attack-paris.html?searchResultPosition=3
+https://nytimes.com/2022/01/04/world/europe/molenbeek-attack-brussels-paris.html?searchResultPosition=3
 
 **A Widening Web of Undersea Cables Connects Britain to Green Energy**\
 `Linking one nation’s power grid with another’s is considered essential as more electricity is generated from solar and wind.`\
