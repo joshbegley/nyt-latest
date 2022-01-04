@@ -1,6 +1,6 @@
 **Elizabeth Holmes found guilty of four counts of fraud.**\
 `The case against the founder of the failed blood testing start-up Theranos came to symbolize the pitfalls of Silicon Valley’s culture of hustle and hype.`\
-https://nytimes.com/2022/01/03/technology/elizabeth-holmes-verdict.html?searchResultPosition=1
+https://nytimes.com/2022/01/03/technology/elizabeth-holmes-guilty.html?searchResultPosition=1
 
 **New Hampshire’s Top Election Official Announces Retirement**\
 `The official, Bill Gardner, a Democrat, has served as secretary of state in New Hampshire for more than four decades.`\
