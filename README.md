@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/04/travel/crete-greece-skiing.html?searchResultPosit
 `Travis Bell and Joe Sisson were close friends and rising stars in bobsled before crashes derailed their careers. Two decades later, one of them wonders why he thrived and his friend is gone.`\
 https://nytimes.com/2022/01/04/sports/olympics/bobsled-travis-bell-joe-sisson.html?searchResultPosition=9
 
-**Considering Bone or Joint Surgery? You May Not Need It.**\
-`For many common problems of the knee, hip, shoulder, spine and wrist, nonsurgical options may be just as good.`\
-https://nytimes.com/2022/01/04/well/bone-joint-surgery.html?searchResultPosition=10
+**What Does Marriage Ask Us to Give Up?**\
+`More and more Americans are single, living lives of hard-won independence.`\
+https://nytimes.com/2022/01/04/opinion/marriage-divorce.html?searchResultPosition=10
 
