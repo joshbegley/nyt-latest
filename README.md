@@ -1,6 +1,6 @@
 **To Boldly Explore the Jewish Roots of ‘Star Trek’**\
 `An exhibition at a Jewish cultural center has plenty of artifacts to delight Trekkies — but it also notes the Jewish origins of the Vulcan salute.`\
-https://nytimes.com/2022/01/04/arts/star-trek-exhibition-skirball.html?searchResultPosition=1
+https://nytimes.com/2022/01/04/arts/design/star-trek-exhibition-skirball.html?searchResultPosition=1
 
 **As Omicron Bears Down on Retailers, Landlords Get Creative to Fill Space**\
 `Tenants are being offered concessions like reduced rates and customized spaces, while vacant storefronts are being filled with pop-up shops and works by local artists.`\
