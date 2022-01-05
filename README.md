@@ -1,10 +1,10 @@
+**Protests Over Gas Prices Rage On in Kazakhstan**\
+`Anger in the resource-rich Central Asian nation has swelled despite concessions from the ruling party and a strict state of emergency.`\
+https://nytimes.com/2022/01/05/world/europe/kazakhstan-protests-gas-prices.html?searchResultPosition=1
+
 **Omicron is Milder**\
 `How should that affect your behavior?`\
-https://nytimes.com/2022/01/05/briefing/omicron-risk-milder-pandemic.html?searchResultPosition=1
-
-**Skepticism and anger greet Novak Djokovic’s vaccine exemption.**\
-`Some Australians reacted with fury at the announcement from the world’s No. 1 male tennis player, the sport’s most prominent vaccination skeptic.`\
-https://nytimes.com/live/2022/01/05/world/omicron-covid-vaccine-tests/novak-djokovic-vaccine-exemption-skepticism?searchResultPosition=2
+https://nytimes.com/2022/01/05/briefing/omicron-risk-milder-pandemic.html?searchResultPosition=2
 
 **A Georgia woman is sentenced to 3 years over a Covid fraud scheme.**\
 `The woman, who fraudulently obtained more than $6 million in Covid relief money, is the latest example of Americans misusing the Paycheck Protection Program.`\
