@@ -1,6 +1,6 @@
 **Biden Administration to Increase Supply of ‘Game Changer’ Pfizer Pill**\
 `President Biden announced that his administration would double its order of Pfizer’s scarce Covid-19 antiviral drug, which has been shown to reduce hospitalizations.`\
-https://nytimes.com/2022/01/04/us/biden-administration-doubles-order-pfizer-pill.html?searchResultPosition=1
+https://nytimes.com/2022/01/04/us/biden-pfizer-pill-order.html?searchResultPosition=1
 
 **Norman Mailer Book to Be Released by Skyhorse**\
 `The independent press acquired the title after Random House, the writer’s longtime publisher, declined to make an offer.`\
