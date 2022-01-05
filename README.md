@@ -1,18 +1,18 @@
+**German Start-Ups Lay the Groundwork for a Marijuana Bonanza**\
+`Two of the three parties in Germany’s new governing coalition support legalization, a potentially radical shift in the conservative country.`\
+https://nytimes.com/2022/01/05/world/europe/germany-legalize-recreational-marijuana-pot-cannabis.html?searchResultPosition=1
+
 **Welcoming Back Live Theater Doesn’t Mean Agreeing About All of It**\
 `Two critics on the joys (and pains) of a tentatively hopeful fall season.`\
-https://nytimes.com/2022/01/05/theater/live-theater-critics-debate.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/theater/live-theater-critics-debate.html?searchResultPosition=2
 
 **Tracking Coronavirus in South Africa: Latest Case Count**\
 `See the latest charts of coronavirus cases, deaths and vaccinations in South Africa.`\
-https://nytimes.com/interactive/2021/world/south-africa-covid-cases.html?searchResultPosition=2
+https://nytimes.com/interactive/2021/world/south-africa-covid-cases.html?searchResultPosition=3
 
 **The Devils You Know: Three ‘Spider-Man’ Villains Return in ‘No Way Home’**\
 `Willem Dafoe, Alfred Molina and Jamie Foxx talk about reprising their bad-guy roles in the blockbuster sequel.`\
-https://nytimes.com/2022/01/05/movies/spider-man-no-way-home-villains.html?searchResultPosition=3
-
-**Fire in Philadelphia Rowhouse Was Fatal, Officials Say**\
-`The Philadelphia Fire Department said it responded to a fire on Wednesday morning in the Fairmount neighborhood, and spent almost an hour bringing it under control.`\
-https://nytimes.com/2022/01/05/us/philadelphia-fire.html?searchResultPosition=4
+https://nytimes.com/2022/01/05/movies/spider-man-no-way-home-villains.html?searchResultPosition=4
 
 **A variant found in France is not a concern, the W.H.O. says.**\
 `The so-called I.H.U. variant contains numerous mutations of the coronavirus, but experts say it has shown little sign of spreading so far.`\
