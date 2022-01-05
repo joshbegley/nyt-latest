@@ -26,15 +26,15 @@ https://nytimes.com/2022/01/05/sports/tennis/novak-djokovic-australia-border.htm
 `On Jan. 6, 2021, rioters attacked the U.S. Capitol in an attempt to stop the certification of the 2020 presidential election. One year later, is our democracy still in danger?`\
 https://nytimes.com/2022/01/05/learning/how-worried-should-we-be-about-our-democracy.html?searchResultPosition=7
 
+**Reimbursement for rapid at-home tests will start next week, a White House official says.**\
+`With demand for coronavirus tests exploding, new federal sites will open soon, the White House said, but there were no details yet on when Americans would get the free tests President Biden promised.`\
+https://nytimes.com/2022/01/05/us/politics/white-house-rapid-tests.html?searchResultPosition=8
+
 **Gowns, Puppets and Sharks: 8 Cultural Sights to See This Winter**\
 `Cold, dreary weekends are upon us. So what to do with the kids (or yourself, for that matter)? Here are some suggestions, including museums, historic homes and gardens.`\
-https://nytimes.com/2022/01/05/arts/design/what-to-do-nyc-winter.html?searchResultPosition=8
+https://nytimes.com/2022/01/05/arts/design/what-to-do-nyc-winter.html?searchResultPosition=9
 
 **Grammy Awards Postponed Amid Covid-19 Surge**\
 `The Recording Academy has not announced a new date for its 64th annual show, originally scheduled for Jan. 31 in Los Angeles.`\
-https://nytimes.com/2022/01/05/arts/music/grammy-awards-postponed-covid.html?searchResultPosition=9
-
-**Fed officials discussed raising rates sooner and faster in 2022.**\
-`Minutes from the Federal Reserve’s December meeting show that officials are contemplating when and how quickly to lift interest rates.`\
-https://nytimes.com/2022/01/05/business/economy/federal-reserve-minutes-interest-rates.html?searchResultPosition=10
+https://nytimes.com/2022/01/05/arts/music/grammy-awards-postponed-covid.html?searchResultPosition=10
 
