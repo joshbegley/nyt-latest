@@ -1,6 +1,6 @@
 **Skepticism and anger greet Novak Djokovic’s vaccine exemption.**\
 `Some Australians reacted with fury at the announcement from the world’s No. 1 male tennis player, the sport’s most prominent vaccination skeptic.`\
-https://nytimes.com/2022/01/05/sports/tennis/skepticism-and-anger-greet-novak-djokovics-vaccine-exemption.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/sports/tennis/novak-djokovic-vaccine-exemption-skepticism.html?searchResultPosition=1
 
 **A Georgia woman is sentenced to 3 years over a Covid fraud scheme.**\
 `The woman, who fraudulently obtained more than $6 million in Covid relief money, is the latest example of Americans misusing the Paycheck Protection Program.`\
