@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/05/world/americas/rio-carnival-covid.html?searchResu
 https://nytimes.com/2022/01/05/climate/biden-climate-nyt-newsletter.html?searchResultPosition=2
 
 **A Long, Hard Year for Republicans Who Voted to Impeach After Jan. 6**\
-`Ten House Republicans voted to to charge President Donald J. Trump with inciting the Capitol attack. All of them are still struggling with the consequences.`\
+`Ten House Republicans voted to charge President Donald J. Trump with inciting the Capitol attack. All of them are still struggling with the consequences.`\
 https://nytimes.com/2022/01/05/us/politics/republican-impeachment-votes-trump-jan-6.html?searchResultPosition=3
 
 **Philadelphia Rowhouse Fire Kills More than a Dozen People**\
