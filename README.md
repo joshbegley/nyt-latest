@@ -1,6 +1,6 @@
 **Being ‘Up to Date’ on Covid Vaccine Now Includes a Booster, C.D.C. Says**\
 `The agency did not change the definition of what qualifies as full vaccination — a subject of intense interest to many.`\
-https://nytimes.com/2022/01/05/us/cdc-covid-vaccine-booster.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/us/covid-vaccine-booster-cdc-up-to-date.html?searchResultPosition=1
 
 **F.B.I. Arrests Man Accused of Stealing Unpublished Book Manuscripts**\
 `Filippo Bernardini, an Italian citizen who worked in publishing, was charged with wire fraud and identity theft for a scheme that prosecutors said affected hundreds of people over five or more years.`\
