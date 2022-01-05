@@ -1,6 +1,6 @@
 **German Start-Ups Lay the Groundwork for a Marijuana Bonanza**\
 `Two of the three parties in Germany’s new governing coalition support legalization, a potentially radical shift in the conservative country.`\
-https://nytimes.com/2022/01/05/world/europe/germany-legalize-recreational-marijuana-pot-cannabis.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/world/europe/germany-legalize-recreational-marijuana.html?searchResultPosition=1
 
 **Welcoming Back Live Theater Doesn’t Mean Agreeing About All of It**\
 `Two critics on the joys (and pains) of a tentatively hopeful fall season.`\
