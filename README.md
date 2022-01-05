@@ -28,7 +28,7 @@ https://nytimes.com/2022/01/05/business/media/slate-editor-jared-hohlt.html?sear
 
 **Rio Cancels Carnival Street Parties but Keeps Parade**\
 `As the Omicron variant sweeps the globe, the parties in Rio de Janeiro, which ordinarily draw millions of revelers, have been called off for a second year.`\
-https://nytimes.com/2022/01/05/world/americas/rio-cancels-carnival-parties-parade.html?searchResultPosition=8
+https://nytimes.com/2022/01/05/world/americas/rio-carnival-parties-parade-brazil.html?searchResultPosition=8
 
 **Garland Reaffirms Justice Dept.’s Commitment to Jan. 6 Inquiry**\
 `In remarks delivered one day before the first anniversary of the Jan. 6 Capitol riot, Attorney General Merrick B. Garland emphasized a commitment to the rule of law and to following the facts wherever they lead.`\
