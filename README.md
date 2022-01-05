@@ -26,11 +26,11 @@ https://nytimes.com/2022/01/04/nyregion/brooklyn-gang-deadly-shooting-charged.ht
 `Two days after winter break, union members were preparing to vote on whether they would refuse to report to school buildings.`\
 https://nytimes.com/2022/01/04/us/chicago-teachers-union-remote-learning.html?searchResultPosition=7
 
-**How to Stop Trump and Prevent Another Jan. 6**\
-`Drop talk of dismantling the police and taking steps to dismantle the Constitution.`\
-https://nytimes.com/2022/01/04/opinion/trump-jan-6-democracy.html?searchResultPosition=8
-
 **Will We Go From Pandemic to Recession?**\
 `Inflation unchecked can become a father to extremism.`\
-https://nytimes.com/2022/01/04/opinion/inflation-federal-reserve.html?searchResultPosition=9
+https://nytimes.com/2022/01/04/opinion/inflation-federal-reserve.html?searchResultPosition=8
+
+**How to Stop Trump and Prevent Another Jan. 6**\
+`Drop talk of dismantling the police and taking steps to dismantle the Constitution.`\
+https://nytimes.com/2022/01/04/opinion/trump-jan-6-democracy.html?searchResultPosition=9
 
