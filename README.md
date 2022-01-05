@@ -31,7 +31,7 @@ https://nytimes.com/2022/01/04/us/politics/trump-jan-6-capitol-attack-anniversar
 https://nytimes.com/2022/01/04/learning/lesson-plans/photographing-interesting-people-in-your-community-a-guide-to-taking-portraits.html?searchResultPosition=8
 
 **Kazakhstan Declares State of Emergency as Protests Over Fuel Prices Spread**\
-`In a rare show of dissent in the authoritarian country, thousands took to the street as gas prices doubled. The government responded with curfews and tear gas.`\
+`Thousands took to the street as gas prices doubled. The government responded with curfews and tear gas. The president later announced the resignation of the government.`\
 https://nytimes.com/2022/01/04/world/europe/kazakhstan-emergency-protests-fuel.html?searchResultPosition=9
 
 **Biden Administration to Increase Supply of ‘Game Changer’ Pfizer Pill**\
