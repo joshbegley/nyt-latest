@@ -11,7 +11,7 @@ https://nytimes.com/2021/12/30/business/sony-takes-a-step-toward-the-electric-ca
 https://nytimes.com/2022/01/05/nyregion/cuomo-criminal-charge-dropped.html?searchResultPosition=3
 
 **Skepticism Greets Novak Djokovic’s Vaccine Exemption**\
-`The world No. 1 does not have the Covid-19 vaccination required to play in the Australian Open. Ultimately, that did not matter.`\
+`The world No. 1 sought a medical exemption rather than submit the proof of vaccination required to play in the Australian Open. Few were surprised when he got one.`\
 https://nytimes.com/2022/01/05/sports/skepticism-greets-novak-djokovics-vaccine-exemption.html?searchResultPosition=4
 
 **Reign of Coney Island’s ‘Mayor’ Ends in a Sideshow by the Sea**\
