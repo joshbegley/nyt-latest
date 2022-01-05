@@ -1,6 +1,6 @@
 **Bloomfield, N.J.: A Walkable Suburb With Plenty of Green Space**\
 `Less than 20 miles from Midtown, the Essex County township appeals to those who want to move out of the city without leaving its conveniences behind.`\
-https://nytimes.com/2022/01/05/realestate/bloomfield-nj-a-walkable-suburb-with-plenty-of-green-space.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/realestate/bloomfield-nj-walkable-suburb.html?searchResultPosition=1
 
 **Living In ... Bloomfield, N.J.**\
 `Less than 20 miles from Midtown, the Essex County township appeals to those who want to move out of the city without leaving its conveniences behind.`\
