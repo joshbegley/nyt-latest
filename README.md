@@ -2,8 +2,8 @@
 `The new measures will deepen the city’s isolation and mark a return to the tough restrictions from the early days of the pandemic as officials race to control Omicron.`\
 https://nytimes.com/2022/01/05/world/asia/hong-kong-flights.html?searchResultPosition=1
 
-**Protests Over Gas Prices Rage On in Kazakhstan**\
-`Anger in the resource-rich Central Asian nation has swelled despite concessions from the ruling party and a strict state of emergency.`\
+**Kazakhstan Shuts Internet as Government Offices Burn in Protests**\
+`Anger sparked by a gas price increase in the resource-rich Central Asian nation has swelled despite concessions from the ruling party and a strict state of emergency.`\
 https://nytimes.com/2022/01/05/world/europe/kazakhstan-protests-gas-prices.html?searchResultPosition=2
 
 **Omicron Is Milder**\
