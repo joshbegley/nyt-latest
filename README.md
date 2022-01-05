@@ -2,7 +2,7 @@
 `The announcement represents a vindication of the strategy to release the entire Warner Bros. 2021 film slate simultaneously in theaters and on streaming.`\
 https://nytimes.com/2022/01/05/business/hbo-max-2021-subscribers.html?searchResultPosition=1
 
-**Hochul Will Chart New York’s Recovery in First State of State Speech**\
+**Hochul Charts New York’s Recovery in First State of State Speech**\
 `Gov. Kathy Hochul was set to pledge $10 billion to boost the state’s decimated health care work force, and to direct funds to further combat gun violence.`\
 https://nytimes.com/2022/01/05/nyregion/kathy-hochul-state-of-ny-speech.html?searchResultPosition=2
 
