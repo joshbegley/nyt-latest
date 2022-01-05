@@ -24,7 +24,7 @@ https://nytimes.com/2022/01/05/opinion/stock-market-retirement.html?searchResult
 
 **Biden Will Deliver a Speech on Voting Rights in Atlanta on Tuesday**\
 `He will be joined by Kamala Harris, the vice president, who is leading the administration’s push for access to the vote.`\
-https://nytimes.com/2022/01/05/us/politics/biden-voting-rights-speech.html?searchResultPosition=7
+https://nytimes.com/2022/01/05/us/politics/biden-harris-voting-rights-speech-atlanta.html?searchResultPosition=7
 
 **The New Year Begins**\
 `Let’s hear it for achievable goals.`\
