@@ -1,6 +1,6 @@
 **Your Wednesday Briefing**\
 `Britain can ‘ride out’ the Covid wave, Boris Johnson says.`\
-https://nytimes.com/2022/01/04/briefing/britain-covid-china-ioc-north-korea-missile.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/briefing/britain-china-ioc-north-korea.html?searchResultPosition=1
 
 **PG&E Equipment Is Blamed for Starting Dixie Fire in Northern California**\
 `Fire investigators referred their findings to prosecutors.`\
