@@ -1,40 +1,40 @@
+**Dr. Ronald Weinstein, Telepathology Pioneer, Dies at 83**\
+`Decades ago, he demonstrated that cancer could be diagnosed remotely. It was a pivotal step in the evolution of telemedicine.`\
+https://nytimes.com/2022/01/05/science/ronald-weinstein-dead.html?searchResultPosition=1
+
 **The Meaning of Apple at $3 Trillion**\
 `We aren’t buying more smartphones. So how is this smartphone company making crazy money?`\
-https://nytimes.com/2022/01/05/technology/apple-profits.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/technology/apple-profits.html?searchResultPosition=2
 
 **What’s in Our Queue? ‘Blowing the Fuse’ and More**\
 `I’m a senior staff editor on The Times’s Features Print Hub. Here are five things I've been watching, reading and listening to.`\
-https://nytimes.com/interactive/2022/01/05/arts/editors-recommendations-blowing-the-fuse.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/01/05/arts/editors-recommendations-blowing-the-fuse.html?searchResultPosition=3
 
 **Put a Female Statue on a Vacant Pedestal? An Italian City Says Not So Fast.**\
 `In Padua, Italy, a proposal to include a female philosopher in a monument whose 78 sculptures are all men has spurred debate.`\
-https://nytimes.com/2022/01/05/world/europe/italy-female-statue-padua-prato-della-valle.html?searchResultPosition=3
+https://nytimes.com/2022/01/05/world/europe/italy-female-statue-padua-prato-della-valle.html?searchResultPosition=4
 
 **Billy Turner, Trainer of a Triple Crown Winner, Dies at 81**\
 `In 1977, under his guidance, Seattle Slew became only the 10th thoroughbred in history to win the Kentucky Derby, Preakness Stakes and Belmont Stakes.`\
-https://nytimes.com/2022/01/05/sports/horse-racing/billy-turner-dead.html?searchResultPosition=4
+https://nytimes.com/2022/01/05/sports/horse-racing/billy-turner-dead.html?searchResultPosition=5
 
 **Photos from the scene of the Philadelphia fire.**\
 `It was one of the deadliest residential fires in the city’s recent history.`\
-https://nytimes.com/2022/01/05/us/fairmount-philadelphia-fire-photos.html?searchResultPosition=5
+https://nytimes.com/2022/01/05/us/fairmount-philadelphia-fire-photos.html?searchResultPosition=6
 
 **India’s Rising Omicron Wave Brings a Grim Sense of Déjà Vu**\
 `Just months after Delta fueled hospital failures and funeral pyres, India’s leaders again offer a mixed message: Their political rallies are packed even as they order curfews and work closures.`\
-https://nytimes.com/2022/01/05/world/asia/india-omicron-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2022/01/05/world/asia/india-omicron-coronavirus.html?searchResultPosition=7
 
 **Rio’s Carnival parade will go on, but street parties are canceled, the mayor says.**\
 `As the Omicron variant sweeps the globe, the parties in Rio de Janeiro, which ordinarily draw millions of revelers, have been called off for a second year.`\
-https://nytimes.com/2022/01/05/world/americas/rio-carnival-covid.html?searchResultPosition=7
+https://nytimes.com/2022/01/05/world/americas/rio-carnival-covid.html?searchResultPosition=8
 
 **Why the Coming Months Will Be Critical for Biden’s Climate Plan**\
 `There’s potential political trouble on the horizon for the president.`\
-https://nytimes.com/2022/01/05/climate/biden-climate-nyt-newsletter.html?searchResultPosition=8
+https://nytimes.com/2022/01/05/climate/biden-climate-nyt-newsletter.html?searchResultPosition=9
 
 **A Long, Hard Year for Republicans Who Voted to Impeach After Jan. 6**\
 `Ten House Republicans voted to charge President Donald J. Trump with inciting the Capitol attack. All of them are still struggling with the consequences.`\
-https://nytimes.com/2022/01/05/us/politics/republican-impeachment-votes-trump-jan-6.html?searchResultPosition=9
-
-**Philadelphia Rowhouse Fire Kills More than a Dozen People**\
-`Officials said seven children were among 13 people who died after a fire broke out in a three-story rowhouse in Philadelphia’s Fairmount neighborhood.`\
-https://nytimes.com/video/us/100000008146721/fire-philadelphia-fairmount.html?searchResultPosition=10
+https://nytimes.com/2022/01/05/us/politics/republican-impeachment-votes-trump-jan-6.html?searchResultPosition=10
 
