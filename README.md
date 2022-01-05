@@ -36,5 +36,5 @@ https://nytimes.com/2022/01/04/world/europe/kazakhstan-emergency-protests-fuel.h
 
 **Biden Administration to Increase Supply of ‘Game Changer’ Pfizer Pill**\
 `President Biden announced that his administration would double its order of Pfizer’s scarce Covid-19 antiviral drug, which has been shown to reduce hospitalizations.`\
-https://nytimes.com/2022/01/04/us/biden-pfizer-pill-order.html?searchResultPosition=10
+https://nytimes.com/2022/01/04/us/politics/biden-pfizer-pill-order.html?searchResultPosition=10
 
