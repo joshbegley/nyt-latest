@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/05/world/asia/hong-kong-flights.html?searchResultPos
 `Anger in the resource-rich Central Asian nation has swelled despite concessions from the ruling party and a strict state of emergency.`\
 https://nytimes.com/2022/01/05/world/europe/kazakhstan-protests-gas-prices.html?searchResultPosition=2
 
-**Omicron is Milder**\
+**Omicron Is Milder**\
 `How should that affect your behavior?`\
 https://nytimes.com/2022/01/05/briefing/omicron-risk-milder-pandemic.html?searchResultPosition=3
 
