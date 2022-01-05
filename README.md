@@ -23,7 +23,7 @@ https://nytimes.com/2022/01/05/briefing/india-omicron-kazakhstan-protests-djokov
 https://nytimes.com/2022/01/05/world/europe/macron-france-unvaccinated.html?searchResultPosition=6
 
 **U.S. Seeks Inquiry Into Maxwell Juror’s Selection After He Reveals Abuse**\
-`A juror who voted to convict Ghislaine Maxwell on sex-trafficking charges told news outlets he had disclosed during deliberations that he had been sexually abused.`\
+`A juror who voted to convict Ghislaine Maxwell on sex-trafficking charges told news outlets he disclosed during deliberations that he had been sexually abused.`\
 https://nytimes.com/2022/01/05/nyregion/maxwell-trial-jury-inquiry.html?searchResultPosition=7
 
 **Kathy Hochul Vows Pandemic Relief in First State of the State Speech**\
