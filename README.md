@@ -1,6 +1,6 @@
 **Hedgehogs Are a Source of Drug-Resistant Bacteria, Study Finds**\
 `Scientists chart how a battle between fungus and bacteria living on the skin of hedgehogs led to the emergence of a strain of MRSA that can infect cows and humans.`\
-https://nytimes.com/2022/01/05/science/hedgehogs-mrsa-bacteria.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/science/hedgehog-mrsa-drug-resistant-bacteria.html?searchResultPosition=1
 
 **Slate’s Top Editor Leaves After a Three-Year Run**\
 `Jared Hohlt, who made his reputation at New York magazine, led the publication’s newsroom during a difficult period for digital media.`\
