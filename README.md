@@ -22,19 +22,19 @@ https://nytimes.com/2022/01/06/podcasts/the-daily/cheney-trump-gop-jan-6.html?se
 `Xi’an, a city of 13 million people, has been on lockdown since Dec. 22, the longest in the country since the early days of the outbreak in Wuhan.`\
 https://nytimes.com/2022/01/06/world/asia/china-xian-lockdown-covid.html?searchResultPosition=6
 
-**Biden to warn that democracy is at risk, a year after the Capitol riot.**\
-`The president’s speech marking the anniversary of Jan. 6 will underscore just how fractured the nation remains.`\
-https://nytimes.com/live/2022/01/06/us/jan-6-capitol-riot/biden-speech-january-6?searchResultPosition=7
-
 **The Storming of the Capitol, One Year On**\
 `Times Opinion puts the events of Jan. 6 in context.`\
-https://nytimes.com/2022/01/06/opinion/jan-6-anniversary-package.html?searchResultPosition=8
+https://nytimes.com/2022/01/06/opinion/jan-6-anniversary-package.html?searchResultPosition=7
 
 **Christian Nationalism Is One of Trump’s Most Powerful Weapons**\
 `And it is still being wielded in service of Trump’s fictions.`\
-https://nytimes.com/2022/01/06/opinion/jan-6-christian-nationalism.html?searchResultPosition=9
+https://nytimes.com/2022/01/06/opinion/jan-6-christian-nationalism.html?searchResultPosition=8
 
 **Vocabulary in Context: Metal Detector Discovery**\
 `Test your vocabulary and reading comprehension with this quiz based on the Times article "English Teenager Finds Bronze Age Ax Using a Metal Detector."`\
-https://nytimes.com/interactive/2022/01/06/learning/06vocabmetaldetectorsLN.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/01/06/learning/06vocabmetaldetectorsLN.html?searchResultPosition=9
+
+**‘I Have Absolutely Nothing’: After a Massive Winter Fire, What Is Left?**\
+`Families whose homes were left in ashes when the Marshall fire swept through Boulder, Colo., now face starting over again in a housing market that was competitive before 991 homes were destroyed.`\
+https://nytimes.com/2022/01/06/us/colorado-marshall-fire-survivors.html?searchResultPosition=10
 
