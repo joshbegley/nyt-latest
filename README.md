@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/05/movies/expedition-content-review.html?searchResul
 
 **‘An Untenable Situation’: Chicagoans in Limbo After Schools Abruptly Close**\
 `Teachers voted to stop going to school amid a standoff between Mayor Lori Lightfoot and the Chicago Teachers Union, which called for more virus safeguards.`\
-https://nytimes.com/2022/01/05/us/chicago-schools-close-teachers-union-lightfoot.html?searchResultPosition=5
+https://nytimes.com/2022/01/05/us/chicago-schools-close-teachers-union-child-care.html?searchResultPosition=5
 
 **Is Covid Causing Decision Fatigue? Share Your Story.**\
 `We want to hear from you.`\
@@ -24,7 +24,7 @@ https://nytimes.com/2022/01/05/us/covid-decision-fatigue.html?searchResultPositi
 
 **Federal Prisons Director Is Resigning After Rocky Tenure**\
 `Michael Carvajal took over the Bureau of Prisons in February 2020, just as the coronavirus began to sweep through the nation’s prisons.`\
-https://nytimes.com/2022/01/05/us/politics/michael-carvajal-prisons-resigns.html?searchResultPosition=7
+https://nytimes.com/2022/01/05/us/politics/michael-carvajal-resigns-prisons.html?searchResultPosition=7
 
 **Federal Labor Officials Claim New York Times Violated Workplace Law**\
 `The National Labor Relations Board alleges that Times management wrongly prevented some employees from showing support for a union, a claim the paper denied.`\
