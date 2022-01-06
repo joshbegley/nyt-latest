@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/06/learning/film-club-grieving-our-old-normal.html?s
 
 **Watch Live: House Holds Moment of Silence on Capitol Riot Anniversary**\
 `Members of Congress deliver remarks after the moment of silence on the first anniversary since a mob of Donald J. Trump’s supporters stormed the U.S. Capitol.`\
-https://nytimes.com/video/us/politics/100000008146895/jan-6-moment-of-silence.html?searchResultPosition=6
+https://nytimes.com/video/embedded/us/politics/100000008146895/jan-6-moment-of-silence.html?searchResultPosition=6
 
 **‘This is really happening’: Times reporters discuss their experience outside the Capitol on Jan. 6.**\
 `A New York Times team was out on Jan. 6, 2021, to cover what was expected to be a modest “Stop the Steal” rally on the Ellipse.`\
