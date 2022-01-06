@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/06/dining/vegetarian-mushroom-recipes.html?searchRes
 https://nytimes.com/video/us/politics/100000008148344/jan-6-capitol-house-testimonials.html?searchResultPosition=3
 
 **New York Times Co. Said to Have Reached Deal for The Athletic**\
-`The deal, valued at around $550 million, could help the media company reach its goal of 10 million subscriptions ahead of schedule.`\
+`The deal, valued at around $550 million, could help The Times reach its goal of 10 million subscriptions ahead of schedule.`\
 https://nytimes.com/2022/01/06/business/new-york-times-the-athletic.html?searchResultPosition=4
 
 **Peter Bogdanovich, Director Whose Career Was a Hollywood Drama, Dies at 82**\
