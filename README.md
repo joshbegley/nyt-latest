@@ -24,7 +24,7 @@ https://nytimes.com/2022/01/06/world/asia/china-xian-lockdown-covid.html?searchR
 
 **Biden to warn that democracy is at risk, a year after the Capitol riot.**\
 `The president’s speech marking the anniversary of Jan. 6 will underscore just how fractured the nation remains.`\
-https://nytimes.com/2022/01/06/us/politics/biden-speech-january-6.html?searchResultPosition=7
+https://nytimes.com/live/2022/01/06/us/jan-6-capitol-riot/biden-speech-january-6?searchResultPosition=7
 
 **The Storming of the Capitol, One Year On**\
 `Times Opinion puts the events of Jan. 6 in context.`\
