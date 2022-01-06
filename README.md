@@ -14,7 +14,7 @@ https://nytimes.com/video/world/asia/100000008147805/kazakhstan-protests.html?se
 `Irving declined to be vaccinated for Covid-19 before the season, making him ineligible to play in New York City because of a local vaccine mandate at sports arenas that went into effect in September.`\
 https://nytimes.com/2022/01/05/sports/kyrie-irving-nets-pacers-vaccine.html?searchResultPosition=4
 
-**Starbucks union walkout protests Covid safety at a Buffalo-area store.**\
+**Starbucks union workers near Buffalo walk out over Covid concerns.**\
 `The walkout, involving about half a dozen employees, is planned to last the rest of the week.`\
 https://nytimes.com/2022/01/05/business/starbucks-union-walkout-covid.html?searchResultPosition=5
 
