@@ -6,9 +6,9 @@ https://nytimes.com/2022/01/06/nyregion/nypd-subway-patrol.html?searchResultPosi
 `An opportunity to hear from, and ask questions of, the journalists who helped ignite the #MeToo movement.`\
 https://nytimes.com/2022/01/06/learning/a-live-panel-for-students-how-investigative-journalism-works.html?searchResultPosition=2
 
-**In a First for Pakistan, a Woman Is Cleared to Become Supreme Court Justice**\
+**In a First for Pakistan, a Woman Is Cleared to Become a Supreme Court Justice**\
 `Justice Ayesha A. Malik’s nomination, intensely opposed by some lawyers that have threatened to strike, was hailed by others as an important victory in improving representation for women.`\
-https://nytimes.com/2022/01/06/world/asia/pakistan-woman-supreme-court-ayesha-malik.html?searchResultPosition=3
+https://nytimes.com/2022/01/06/world/asia/pakistan-woman-supreme-court.html?searchResultPosition=3
 
 **A Supreme Court Ruling Against Vaccine Mandates Could Be Disastrous for Public Health**\
 `Biden’s vaccine mandates must remain intact.`\
