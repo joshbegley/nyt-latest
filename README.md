@@ -22,7 +22,7 @@ https://nytimes.com/video/us/politics/100000008148344/jan-6-capitol-house-testim
 `The deal, valued at around $550 million, could help The Times reach its goal of 10 million subscriptions ahead of schedule.`\
 https://nytimes.com/2022/01/06/business/new-york-times-the-athletic.html?searchResultPosition=6
 
-**Peter Bogdanovich, Director Whose Career Was a Hollywood Drama, Dies at 82**\
+**Peter Bogdanovich, 82, Director Whose Career Was a Hollywood Drama, Dies**\
 `Within one decade, the ’70s, he was transformed from one of the most celebrated of filmmakers, notably for “The Last Picture Show,” into one of the most ostracized.`\
 https://nytimes.com/2022/01/06/movies/peter-bogdanovich-dead.html?searchResultPosition=7
 
