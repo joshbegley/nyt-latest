@@ -1,4 +1,4 @@
-**Philadelphia House Fire Leaves 13 Dead, Including 7 Children**\
+**Philadelphia House Fire Leaves 12 Dead, Including 8 Children**\
 `It was among the deadliest residential fires in the country in recent years. The mayor called it “one of the most tragic days in our city’s history.”`\
 https://nytimes.com/2022/01/05/us/philadelphia-rowhouse-fire.html?searchResultPosition=1
 
