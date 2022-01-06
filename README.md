@@ -22,7 +22,7 @@ https://nytimes.com/2022/01/06/podcasts/the-daily/cheney-trump-gop-jan-6.html?se
 `Xi’an, a city of 13 million people, has been on lockdown since Dec. 22, the longest in the country since the early days of the outbreak in Wuhan.`\
 https://nytimes.com/2022/01/06/world/asia/china-xian-lockdown-covid.html?searchResultPosition=6
 
-**Biden to Warn Democracy Is at Risk, a Year After the Capitol Riot**\
+**Biden to warn that democracy is at risk, a year after the Capitol riot.**\
 `The president’s speech marking the anniversary of Jan. 6 will underscore just how fractured the nation remains.`\
 https://nytimes.com/2022/01/06/us/politics/biden-speech-january-6.html?searchResultPosition=7
 
