@@ -1,40 +1,40 @@
-**‘Emily in Paris’ Isn’t the Only Clichéd Show in This Town**\
-`Netflix doesn’t qualify as a solo offender when it comes to Gallic stereotypes, as three musical theater works on the city’s stages show.`\
-https://nytimes.com/2022/01/06/theater/paris-musicals-french-cliches.html?searchResultPosition=1
+**Vocabulary in Context: Metal Detector Discovery**\
+`Test your vocabulary and reading comprehension with this quiz based on the Times article "English Teenager Finds Bronze Age Ax Using a Metal Detector."`\
+https://nytimes.com/interactive/2022/01/06/learning/06vocabmetaldetectorsLN.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Jan. 6 Panel Faces Difficult Questions as Anniversary of Capitol Riot Approaches’**\
-`In this lesson, students will explore how Congress is investigating the Jan. 6 attack on the Capitol, and then they will form their own committee to uncover what happened that day and what we can learn from it.`\
-https://nytimes.com/2022/01/06/learning/lesson-plans/lesson-of-the-day-jan-6-panel-faces-difficult-questions-as-anniversary-of-capitol-riot-approaches.html?searchResultPosition=2
+**‘I Have Absolutely Nothing’: After a Massive Winter Fire, What Is Left?**\
+`Families whose homes were left in ashes when the Marshall fire swept through Boulder, Colo., now face starting over again in a housing market that was competitive before 991 homes were destroyed.`\
+https://nytimes.com/2022/01/06/us/colorado-marshall-fire-survivors.html?searchResultPosition=2
 
-**Dozens Reported Dead in Kazakhstan, as Russian Alliance Sends Troops**\
-`A revolt inspired by anger over a surge in fuel prices has since spread across the country. A Russia-led military alliance has sent troops to help quell the violence in what it described as a temporary peacekeeping effort.`\
-https://nytimes.com/2022/01/06/world/asia/kazakhstan-protests.html?searchResultPosition=3
+**Notes From the End of a Very Long Life**\
+`With the death of Ruth Willig at 98, a Times series on a set of the oldest New Yorkers — chronicled over seven years in 21 articles — offers their lessons on living with loss.`\
+https://nytimes.com/2022/01/06/nyregion/ruth-willig-oldest-new-yorkers.html?searchResultPosition=3
 
-**Why Novak Djokovic Was Blocked From Entering Australia**\
-`The men’s No. 1 tennis player had received an exemption to the country’s vaccine requirements. Then the federal government stepped in.`\
-https://nytimes.com/2022/01/06/world/australia/why-novak-djokovic-was-blocked.html?searchResultPosition=4
+**In the Lower Ninth Ward, an Artist Renews His Purpose**\
+`Kevin Beasley was invited to create an installation in New Orleans for a few months. Instead he bought land, and met his neighbors.`\
+https://nytimes.com/2022/01/06/arts/design/kevin-beasley-new-orleans.html?searchResultPosition=4
 
-**To Reach South Korea, He Risked His Life. To Leave It, He Did It Again.**\
-`Officials say a North Korean who crossed the DMZ in 2020 crossed it again to go back. His life in the South seems to have been one of poverty and isolation.`\
-https://nytimes.com/2022/01/06/world/asia/north-korea-defector-dmz.html?searchResultPosition=5
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2022/01/06/arts/things-to-do-this-weekend.html?searchResultPosition=5
 
-**Hochul’s Priorities: Lift the Economy and Attract Health Workers**\
-`Gov. Kathy Hochul’s first State of the State address called for dozens of initiatives as she prepares to run for a full term as governor.`\
-https://nytimes.com/2022/01/06/nyregion/hochuls-priorities-lift-the-economy-and-attract-health-workers.html?searchResultPosition=6
+**Hochul’s Speech Is a Road Map to the Campaign That Lies Ahead**\
+`Gov. Kathy Hochul sought to exude decisiveness in crisis, previewing her efforts to run as the steady-hand candidate as she seeks her first full term.`\
+https://nytimes.com/2022/01/06/nyregion/hochul-policy-agenda-ny.html?searchResultPosition=6
 
-**That Vintage Dress on the Red Carpet? There’s More to the Story.**\
-`It’s awards season, and the big designer brands have some scrappy, pre-owned competition.`\
-https://nytimes.com/2022/01/06/style/vintage-runway-fashion-awards-season-red-carpet.html?searchResultPosition=7
+**She Spent Her Life Fighting for Equity for Women in Sports**\
+`Christine Grant, the Title IX pioneer who died in December, often lamented the historically poor treatment of female athletes, asking incredulously, “Can you imagine that?”`\
+https://nytimes.com/2022/01/06/sports/christine-grant-title-ix.html?searchResultPosition=7
 
-**A Year Later, Jan. 6 Becomes Just Another Wedge in a Divided Nation**\
-`The nearly universal outrage after the assault on the Capitol has reverted to separate blue and red realities, and former President Donald J. Trump has remained the dominant force in his party.`\
-https://nytimes.com/2022/01/06/us/politics/jan-6-capitol-riot-aftermath.html?searchResultPosition=8
+**Cases Rise, Criticism Mounts, but Ships Keep Cruising**\
+`One day after the C.D.C. advised against all travel on cruise ships, thousands of cruisers partied like it was 2019. But worries about onboard policies — and frustration over quarantines — is rising.`\
+https://nytimes.com/2022/01/06/travel/coronavirus-cruise-ships-omicron.html?searchResultPosition=8
 
-**The Covid Nurse Turned Polaroid Portraitist**\
-`Clifton Mooney came to New York City to work on the front lines of the pandemic. Once he got here, he found a second calling.`\
-https://nytimes.com/2022/01/06/style/clifton-mooney-polaroids.html?searchResultPosition=9
+**A Fed Official’s 2020 Trade Drew Outcry. It Went Further Than First Disclosed.**\
+`Corrected disclosures show that Vice Chair Richard H. Clarida sold a stock fund, then swiftly repurchased it before a big Fed announcement.`\
+https://nytimes.com/2022/01/06/business/economy/richard-clarida-fed-stock-fund.html?searchResultPosition=9
 
-**Manhattan D.A. Acts on Vow to Seek Incarceration Only for Worst Crimes**\
-`Alvin Bragg has told prosecutors in his office to seek jail or prison time for only the most serious crimes, unless the law requires otherwise.`\
-https://nytimes.com/2022/01/06/nyregion/alvin-bragg-manhattan-da.html?searchResultPosition=10
+**Watching a Partner Change Is Hard. Accepting It Can Be Harder.**\
+`We don’t marry one person as much as we marry one version of a person. But accepting the person a partner may become can be more challenging.`\
+https://nytimes.com/2022/01/06/style/partner-change-relationship-acceptance.html?searchResultPosition=10
 
