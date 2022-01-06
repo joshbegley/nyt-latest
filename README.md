@@ -1,6 +1,6 @@
 **Philadelphia House Fire Leaves 13 Dead, Including 7 Children**\
 `It was among the deadliest residential fires in the country in recent years. The mayor called it “one of the most tragic days in our city’s history.”`\
-https://nytimes.com/2022/01/05/us/philadelphia-house-fire-leaves-13-dead-including-7-children.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/us/philadelphia-rowhouse-fire.html?searchResultPosition=1
 
 **How Many Americans Support Political Violence?**\
 `Probably a lot fewer than you’ve been led to believe, but more than enough to make you nervous.`\
