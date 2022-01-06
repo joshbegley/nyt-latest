@@ -27,7 +27,7 @@ https://nytimes.com/video/sports/tennis/100000008147678/djokovic-visa-australia.
 https://nytimes.com/2022/01/05/us/rabbi-yisroel-goldstein-fraud.html?searchResultPosition=7
 
 **These Are the People Who Died in Connection With the Capitol Riot**\
-`A bipartisan Senate report found that at least seven people lost their lives in connection with the attack.`\
+`A bipartisan Senate report found that at least seven people had lost their lives in connection with the Jan. 6 attack.`\
 https://nytimes.com/2022/01/05/us/politics/jan-6-capitol-deaths.html?searchResultPosition=8
 
 **Boris Johnson Scales Back Covid Travel Restrictions for Visitors**\
