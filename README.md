@@ -1,4 +1,4 @@
-**Adams to Send More Officers Into New York Subway System**\
+**Police to Step Up Patrols of New York Subway, Adams Says**\
 `As the subway tries to lure back riders, Mayor Eric Adams said that officers would more regularly patrol stations and trains.`\
 https://nytimes.com/2022/01/06/nyregion/nypd-subway-patrol.html?searchResultPosition=1
 
