@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/05/us/politics/cdc-rochelle-walensky-covid-isolation
 
 **One Year Later, Assault Still Casts a Pall Over the Capitol and Its Occupants**\
 `The attempt by a violent mob to interfere with a basic democratic task has left a stain on the institution and a strain on relationships.`\
-https://nytimes.com/2022/01/05/us/politics/one-year-later-assault-still-casts-a-pall-over-the-capitol-and-its-occupants.html?searchResultPosition=4
+https://nytimes.com/2022/01/05/us/politics/jan-6-attack-capitol-lawmakers.html?searchResultPosition=4
 
 **Australia Denies Entry to Novak Djokovic Over Vaccine Exemption**\
 `Novak Djokovic, the world’s No. 1-ranked men’s tennis player, was told to leave Australia after a 12-hour standoff with government officials over questions about the evidence supporting a medical exemption from a Covid-19 vaccine.`\
