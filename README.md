@@ -1,6 +1,6 @@
 **Starbucks union walkout protests Covid safety at a Buffalo-area store.**\
 `The walkout, involving about half a dozen employees, is planned to last the rest of the week.`\
-https://nytimes.com/2022/01/05/business/starbucks-union-walkout-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2022/01/05/business/starbucks-union-walkout-covid.html?searchResultPosition=1
 
 **‘Expedition Content’ Review: Anthropological Maneuvers in the Dark**\
 `An engrossing documentary looks back at a 1961 expedition to New Guinea and the creation of the landmark ethnographic film that resulted.`\
