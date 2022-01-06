@@ -8,10 +8,10 @@ https://nytimes.com/2022/01/06/learning/a-live-panel-for-students-how-investigat
 
 **In a First for Pakistan, a Woman Is Cleared to Become Supreme Court Justice**\
 `Justice Ayesha A. Malik’s nomination, intensely opposed by some lawyers that have threatened to strike, was hailed by others as an important victory in improving representation for women.`\
-https://nytimes.com/2022/01/06/world/asia/pakistan-woman-supreme-court.html?searchResultPosition=3
+https://nytimes.com/2022/01/06/world/asia/pakistan-woman-supreme-court-ayesha-malik.html?searchResultPosition=3
 
 **A Supreme Court Ruling Against Vaccine Mandates Could Be Disastrous for Public Health**\
-`Biden’s vaccine mandates must remain entact.`\
+`Biden’s vaccine mandates must remain intact.`\
 https://nytimes.com/2022/01/06/opinion/supreme-court-vaccine-mandates.html?searchResultPosition=4
 
 **Let Marjorie Taylor Greene Keep Her Social Media Accounts**\
