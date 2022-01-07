@@ -28,7 +28,7 @@ https://nytimes.com/2022/01/07/movies/sidney-poitier-dead.html?searchResultPosit
 
 **Fugitive Italian Killer Finally Meets His Match: Google Maps**\
 `Investigators had tracked the man to a town in Spain, and an image found online confirmed that the police were on the right track.`\
-https://nytimes.com/2022/01/07/world/europe/italian-fugitive-caught-google-maps.html?searchResultPosition=8
+https://nytimes.com/2022/01/07/world/europe/italian-mafia-fugitive-google-maps.html?searchResultPosition=8
 
 **Scrambling but Undaunted, the Met Opera Sings Through Omicron**\
 `The variant has upended Broadway, ballet and concerts. But the Met has yet to miss a performance, thanks to strict rules, fill-in artists and luck.`\
