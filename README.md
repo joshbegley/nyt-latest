@@ -31,7 +31,7 @@ https://nytimes.com/2022/01/07/movies/horror-movies-streaming.html?searchResultP
 https://nytimes.com/2022/01/07/well/live/flu-covid-same-time.html?searchResultPosition=8
 
 **Sidney Poitier, Who Paved the Way for Black Actors in Film, Dies at 94**\
-`Mr. Poitier, the first Black performer to win the Academy Award for best actor for “Lilies of the Field,” once said he felt “as if I were representing 15, 18 million people with every move I made.”`\
+`The first Black performer to win the Academy Award for best actor, for “Lilies of the Field,” he once said he felt “as if I were representing 15, 18 million people with every move I made.”`\
 https://nytimes.com/2022/01/07/movies/sidney-poitier-dead.html?searchResultPosition=9
 
 **Fugitive Italian Killer Finally Meets His Match: Google Maps**\
