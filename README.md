@@ -31,7 +31,7 @@ https://nytimes.com/2022/01/07/style/elizabeth-wexler-eric-hollenberg-wedding.ht
 https://nytimes.com/2022/01/07/books/review/carl-bernstein-chasing-history.html?searchResultPosition=8
 
 **Your Friday Briefing**\
-`Is ‘forever boosting’ tenable?`\
+`Is “forever boosting” tenable?`\
 https://nytimes.com/2022/01/06/briefing/omicron-boosters-capitol-riot-kazakhstan.html?searchResultPosition=9
 
 **Victims of Philadelphia Fire Remembered at Vigil**\
