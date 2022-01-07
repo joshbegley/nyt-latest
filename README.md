@@ -26,7 +26,7 @@ https://nytimes.com/2022/01/07/nyregion/eric-adams-philip-banks-deputy-mayor.htm
 `The Moriori, whose history of peaceful isolation was shattered by violent subjugation, are fighting to establish themselves as a thriving people alongside the Maori.`\
 https://nytimes.com/2022/01/07/world/australia/moriori-new-zealand.html?searchResultPosition=7
 
-**Moon Cube Mystery: Chinese Rover Finds It’s Just a Small Rock**\
+**Moon Cube Mystery: Chinese Rover Finds It’s Just a Rock**\
 `A blurry image that China’s space program had called the “mystery hut” was a result of camera angle, light and shadow.`\
 https://nytimes.com/2022/01/07/science/moon-cube-china-rover.html?searchResultPosition=8
 
