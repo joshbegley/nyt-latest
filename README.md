@@ -1,4 +1,4 @@
-**The Sports to Watch This Weekend**\
+**Sports to Watch This Weekend**\
 `N.F.L. teams play a 17th game, and Nathan Chen is in action at the U.S. Figure Skating Championships.`\
 https://nytimes.com/interactive/2022/01/07/sports/sports-to-watch.html?searchResultPosition=1
 
