@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/07/opinion/democrats-focus-group.html?searchResultPo
 `This year is anyone’s guess. Here are ours.`\
 https://nytimes.com/2022/01/07/style/lifestyle-trends-predictions-2022.html?searchResultPosition=8
 
+**Supreme Court to Hear Major Challenges to Biden’s Vaccine Mandates**\
+`Challengers say the administration exceeded its authority in requiring vaccines or testing at large employers and mandating vaccines for many health care workers.`\
+https://nytimes.com/2022/01/07/us/politics/biden-vaccine-mandate-supreme-court.html?searchResultPosition=9
+
 **Kyrie Irving and Klay Thompson’s Returns Prompt Divergent Questions**\
 `Thompson’s comeback restores the Warriors’ backcourt, one of the most symbiotic connections in sports. Irving’s return raises concerns about the Nets’ lineup disruptions.`\
-https://nytimes.com/2022/01/07/sports/basketball/kyrie-irving-klay-thompson-return-date.html?searchResultPosition=9
-
-**How a Mobile Covid Tester Spends Her Sundays**\
-`After losing her sister to the disease, Jona Tajonera wanted to help others. Now, she operates up to 20 testing sites across the city.`\
-https://nytimes.com/2022/01/07/nyregion/covid-testing-nyc.html?searchResultPosition=10
+https://nytimes.com/2022/01/07/sports/basketball/kyrie-irving-klay-thompson-return-date.html?searchResultPosition=10
 
