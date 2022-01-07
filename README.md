@@ -1,40 +1,40 @@
+**First They Built a House. Later, Huts. Then, a Life Together.**\
+`Michael Porten and Trish Andersen, both artists, collaborated on a microhouse in 2014. The next year, he helped her build huts in France, during what she calls a summer of love.`\
+https://nytimes.com/2022/01/07/style/michael-porten-trish-andersen-wedding.html?searchResultPosition=1
+
+**For Them, Opportunity Knocked Twice**\
+`Darrick Lo and Adrienne Lei felt an attraction when they met in 2015, but didn’t act on it. Two years later, after reconnecting on OkCupid, they did.`\
+https://nytimes.com/2022/01/07/style/darrick-lo-adrienne-lei-wedding.html?searchResultPosition=2
+
+**A Long Awaited Call Leads to a True Connection**\
+`Vaibhavi Kamat and Jaideep Rao hit it off right away after meeting at a convention in New York. But weeks went by before he would hear from her again.`\
+https://nytimes.com/2022/01/07/style/vaibhavi-kamat-jaideep-rao-wedding.html?searchResultPosition=3
+
+**The Benefits of Bickering in Marriage**\
+`A relationship is a shared story, even if it’s hard to agree on the details.`\
+https://nytimes.com/2022/01/07/style/bickering-marriage.html?searchResultPosition=4
+
+**A Wedding Without the Hoopla**\
+`When Elizabeth Wexler and Eric Hollenberg started dating early in the pandemic, they had no idea that Covid cases would again be rising weeks before their nuptials.`\
+https://nytimes.com/2022/01/07/style/elizabeth-wexler-eric-hollenberg-wedding.html?searchResultPosition=5
+
+**Carl Bernstein’s Eulogy for the Newspaper Business**\
+`Bernstein’s memoir “Chasing History” is a personal and affectionate look at the past, when journalism was thriving.`\
+https://nytimes.com/2022/01/07/books/review/carl-bernstein-chasing-history.html?searchResultPosition=6
+
 **Your Friday Briefing**\
 `Is ‘forever boosting’ tenable?`\
-https://nytimes.com/2022/01/06/briefing/omicron-boosters-capitol-riot-kazakhstan.html?searchResultPosition=1
+https://nytimes.com/2022/01/06/briefing/omicron-boosters-capitol-riot-kazakhstan.html?searchResultPosition=7
 
 **Victims of Philadelphia Fire Remembered at Vigil**\
 `Family members of the 12 people who died in a fire at a Philadelphia rowhouse held a candlelight vigil to remember their loved ones.`\
-https://nytimes.com/video/us/100000008149730/philadelphia-fire-vigil.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008149730/philadelphia-fire-vigil.html?searchResultPosition=8
 
 **Variety: Split Decisions**\
 `Fred Piscop gears us up for a new year of variety challenges.`\
-https://nytimes.com/2022/01/06/crosswords/variety-split-decisions.html?searchResultPosition=3
+https://nytimes.com/2022/01/06/crosswords/variety-split-decisions.html?searchResultPosition=9
 
 **Constantly Craving Kisses**\
 `T.G.I.A.R.W.F.! Or, “Thank God It’s a Robyn Weintraub Friday.”`\
-https://nytimes.com/2022/01/06/crosswords/daily-puzzle-2022-01-07.html?searchResultPosition=4
-
-**North Korea Says It Will Skip Beijing Olympics Because of the Pandemic**\
-`The country also blamed “hostile forces” for its decision not to send a delegation to China, its closest ally.`\
-https://nytimes.com/2022/01/06/world/asia/north-korea-beijing-olympics.html?searchResultPosition=5
-
-**How Is the South Coast Healing, After the Fires and With Covid?**\
-`A little bit of empathetic momentum can go a long way toward helping people and places heal.`\
-https://nytimes.com/2022/01/06/world/australia/south-coast-fires-covid.html?searchResultPosition=6
-
-**Winter Storm Expected to Blanket the Northeast in Snow**\
-`Significant snowfall could create perilous driving conditions for the Friday morning commute.`\
-https://nytimes.com/2022/01/06/nyregion/northeast-snowstorm.html?searchResultPosition=7
-
-**Biden Calls Out Trump for Inciting Jan. 6 Capitol Attack**\
-`President Biden, Vice President Kamala Harris and lawmakers in Congress held a series of memorials to mark a year since a mob of Trump supporters stormed the U.S. Capitol building.`\
-https://nytimes.com/video/us/politics/100000008149624/capitol-attack-anniversary.html?searchResultPosition=8
-
-**At the Capitol, a Day of Somber Remembrance**\
-`The anniversary of Jan. 6 was part national commemoration, part group therapy session and part slick production as Democrats marked the deadliest attack on the Capitol in two centuries.`\
-https://nytimes.com/2022/01/06/us/politics/january-6-anniversary-photos.html?searchResultPosition=9
-
-**Biden’s Speech on the Jan. 6 Riot, Annotated**\
-`The president commemorated the anniversary of the attack on the Capitol with an emotional address forcefully denouncing his predecessor.`\
-https://nytimes.com/2022/01/06/us/politics/biden-speech-january-6-transcript.html?searchResultPosition=10
+https://nytimes.com/2022/01/06/crosswords/daily-puzzle-2022-01-07.html?searchResultPosition=10
 
