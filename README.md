@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/07/science/why-comets-are-green.html?searchResultPos
 `Luiza Trajano turned a small family store into a retail giant. Now, a company policy limiting its executive training program to Black applicants is drawing praise, outrage and much soul-searching.`\
 https://nytimes.com/2022/01/07/world/americas/luiza-trajano-brazil-magalu-racism.html?searchResultPosition=8
 
-**Here’s How Climate Change and Covid Are Transforming Skiing**\
-`There’s less snow and stricter rules, but skiers are adjusting in surprising ways.`\
-https://nytimes.com/2022/01/07/climate/skiing-climate-change.html?searchResultPosition=9
-
 **Families of Veterans Who Died of Covid Win $53 Million Legal Settlement**\
 `The New Jersey nursing home settlement is believed to be the first of its kind nationwide.`\
-https://nytimes.com/2022/01/07/nyregion/nj-nursing-home-covid-settlement.html?searchResultPosition=10
+https://nytimes.com/2022/01/07/nyregion/nj-nursing-home-covid-settlement.html?searchResultPosition=9
+
+**Here’s How Climate Change and Covid Are Transforming Skiing**\
+`There’s less snow and stricter rules, but skiers are adjusting in surprising ways.`\
+https://nytimes.com/2022/01/07/climate/skiing-climate-change.html?searchResultPosition=10
 
