@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/06/us/politics/capitol-riot-photos.html?searchResult
 
 **Biden’s Speech on the Jan. 6 Riot, Annotated**\
 `The president commemorated the anniversary of the attack on the Capitol with an emotional address forcefully denouncing his predecessor.`\
-https://nytimes.com/2022/01/06/us/politics/biden-january-6-speech-transcript.html?searchResultPosition=2
+https://nytimes.com/2022/01/06/us/politics/biden-speech-january-6-transcript.html?searchResultPosition=2
 
 **Ohio Officer Shoots Through Fence, Killing a Man Who Was Firing a Gun**\
 `Body-camera footage shows an officer in Canton, Ohio, firing through a wooden fence, killing James R. Williams, 46, as he fired shots just after the start of the New Year.`\
