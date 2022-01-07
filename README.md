@@ -1,5 +1,5 @@
-**Kazakhstan Says Order Is ‘Mainly Restored’ After Protests**\
-`Russian troops are on the ground to help the government quell widespread unrest in the country, which had been viewed as a bastion of stability in a volatile region.`\
+**Kazakhstan’s President Says Security Forces Can ‘Fire Without Warning’ to Quell Unrest**\
+`President Kassym-Jomart Tokayev said on Friday that “bandits” were responsible for the unrest and must be “destroyed.” He thanked Russia for sending troops to help establish order.`\
 https://nytimes.com/2022/01/07/world/asia/kazakhstan-protests.html?searchResultPosition=1
 
 **Omicron Compounds Subway Headaches**\
