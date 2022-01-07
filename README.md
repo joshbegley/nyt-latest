@@ -28,7 +28,7 @@ https://nytimes.com/2022/01/07/science/moon-cube-china-rover.html?searchResultPo
 
 **Behind Kazakhstan Unrest, the ‘Strongman’s Dilemma’**\
 `Since the Cold War’s end, most dictatorial governments have collapsed after their ruler’s departure.`\
-https://nytimes.com/2022/01/07/world/asia/behind-kazakhstan-unrest-the-strongmans-dilemma.html?searchResultPosition=8
+https://nytimes.com/2022/01/07/world/asia/kazakhstan-protests-strongmen.html?searchResultPosition=8
 
 **Building a Hub for New Art ‘Under the Shadow of the Acropolis’**\
 `Many associate culture in Athens with ruins and ancient artifacts. But the Greek government and several big philanthropic foundations want to put the city on the international contemporary art map.`\
