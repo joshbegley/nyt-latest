@@ -8,7 +8,7 @@ https://nytimes.com/video/us/politics/100000008149624/capitol-attack-anniversary
 
 **At the Capitol, a Day of Somber Remembrance**\
 `The anniversary of Jan. 6 was part national commemoration, part group therapy session and part slick production as Democrats marked the deadliest attack on the Capitol in two centuries.`\
-https://nytimes.com/2022/01/06/us/politics/capitol-riot-photos.html?searchResultPosition=3
+https://nytimes.com/2022/01/06/us/politics/january-6-anniversary-photos.html?searchResultPosition=3
 
 **Biden’s Speech on the Jan. 6 Riot, Annotated**\
 `The president commemorated the anniversary of the attack on the Capitol with an emotional address forcefully denouncing his predecessor.`\
