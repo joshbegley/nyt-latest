@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/07/business/european-union-eurozone-inflation.html?s
 
 **New York Could Make History With a Fashion Sustainability Act**\
 `The state would be the first to pass legislation setting broad sustainability regulations for the industry.`\
-https://nytimes.com/2022/01/07/style/fashion-act-new-york-state-sustainability.html?searchResultPosition=2
+https://nytimes.com/2022/01/07/style/new-york-fashion-sustainability-act.html?searchResultPosition=2
 
 **‘Euphoria’ Is Back. Here’s Where It Left Off.**\
 `Season 1 ended with a relapse for Rue after Jules took a train to the city. It also ended in 2019. Need to jog your memory? Read on.`\
