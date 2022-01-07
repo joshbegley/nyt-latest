@@ -1,4 +1,4 @@
-**F. Sionil Jose, Novelist Who Saw Heroism in Ordinary Filipinos, Dies at 97**\
+**F. Sionil Jose, 97, Novelist Who Saw Heroism in Ordinary Filipinos, Dies**\
 `Mr. Jose’s writing, rich in themes drawn from his rural upbringing, amounted to a continuing morality play about poverty and class divisions in the Philippines.`\
 https://nytimes.com/2022/01/07/world/asia/f-sionil-jose-dead.html?searchResultPosition=1
 
