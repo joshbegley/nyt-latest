@@ -1,6 +1,6 @@
 **Food for Thought**\
 `Timothy Polin’s puzzle gives us a good core workout.`\
-https://nytimes.com/2022/01/08/crosswords/food-for-thought.html?searchResultPosition=1
+https://nytimes.com/2022/01/08/crosswords/daily-puzzle-2022-01-09.html?searchResultPosition=1
 
 **Max Julien, Star of a Cult Blaxploitation Film, Dies at 88**\
 `Black audiences flocked to see him in “The Mack,” and generations of cinephiles have paid homage to his star turn, his smooth delivery and his extraordinary costumes.`\
@@ -23,7 +23,7 @@ https://nytimes.com/2022/01/08/us/mine-collapse-pennsylvania-fayette-county.html
 https://nytimes.com/2022/01/08/nyregion/anti-asian-hate-crime-death-harlem.html?searchResultPosition=6
 
 **Mariah Bell, ‘Ancient’ at 25, Wins U.S. Figure Skating Title and a Spot in Beijing**\
-`Bell will have a chance to compete in the Olympics next month, along with Karen Chen, who finished second at nationals, and Alysa Liu, who withdrew on Friday after a positive coronavirus test.`\
+`Bell was named to the U.S. Olympic team, along with Karen Chen, who finished second at nationals, and Alysa Liu, who withdrew on Friday after a positive coronavirus test.`\
 https://nytimes.com/2022/01/08/sports/mariah-bell-figure-skating-title-olympics.html?searchResultPosition=7
 
 **Alec Baldwin Says He Is Complying With Cellphone Search Warrant**\
