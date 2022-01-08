@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/08/world/europe/kazakhstan-russia.html?searchResultP
 https://nytimes.com/2022/01/08/opinion/cheney-jan-6.html?searchResultPosition=2
 
 **Heavy Snow Kills 21 at Popular Tourist Site in Pakistan**\
-`Stranded in their cars on snow covered roads, some in the mountainside town of Murree froze to death and others died from carbon monoxide poisoning.`\
+`Stranded in their cars on snow-covered roads, some in the mountainside town of Murree froze to death and others died from carbon monoxide poisoning.`\
 https://nytimes.com/2022/01/08/world/asia/pakistan-snow-kills-21-murree-hill-station.html?searchResultPosition=3
 
 **Can My Condo Make Me Use the Service Elevator When I’m With My Dog?**\
