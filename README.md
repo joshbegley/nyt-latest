@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/08/opinion/cheney-jan-6.html?searchResultPosition=1
 
 **Heavy Snow Kills 21 at Popular Tourist Site in Pakistan**\
 `Stranded in their cars on snow covered roads, some in the mountainside town of Murree froze to death and others died from carbon monoxide poisoning.`\
-https://nytimes.com/2022/01/08/world/asia/murree-hill-station-snow-kills-21.html?searchResultPosition=2
+https://nytimes.com/2022/01/08/world/asia/pakistan-snow-kills-21-murree-hill-station.html?searchResultPosition=2
 
 **Can My Condo Make Me Use the Service Elevator When I’m With My Dog?**\
 `Most apartment owners are subject to the house rules, which a board can change. But some rules are not always enforceable.`\
