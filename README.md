@@ -1,6 +1,6 @@
 **Worker Killed in Pennsylvania Mine Collapse, State Officials Say**\
 `The fatal injury occurred when the mine’s roof fell onto equipment the miner was using, officials said. No one else was caught in the collapse.`\
-https://nytimes.com/2022/01/08/us/politics/mine-collapse-pennsylvania-fayette-county.html?searchResultPosition=1
+https://nytimes.com/2022/01/08/us/mine-collapse-pennsylvania-fayette-county.html?searchResultPosition=1
 
 **Asian Immigrant Attacked in Hate Crime Last Year Dies**\
 `Yao Pan Ma was hospitalized in April after he was pushed to the ground and kicked in the head in East Harlem. He died on Dec. 31, the police said.`\
