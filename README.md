@@ -15,7 +15,7 @@ https://nytimes.com/2022/01/07/opinion/culture/jeopardy-trans-amy-schneider.html
 https://nytimes.com/2022/01/07/nyregion/columbia-student-workers-strike-ends.html?searchResultPosition=4
 
 **Cyber Ninjas, Derided for Arizona Vote Review, Says It Is Shutting Down**\
-`The organization that conducted the widely derided review of the presidential vote in Arizona’s largest county said it was insolvent and had laid off its employees.`\
+`The organization that conducted the review of the presidential vote in Arizona’s largest county said it was insolvent and had laid off its employees.`\
 https://nytimes.com/2022/01/07/us/cyber-ninjas-arizona-vote-review.html?searchResultPosition=5
 
 **Bidens Speak to Victims of the Colorado Wildfires**\
