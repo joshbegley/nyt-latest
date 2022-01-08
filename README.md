@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/08/movies/max-julien-dead.html?searchResultPosition=1
 
 **A Deadly Encounter With a State Trooper**\
-`Over 15 years, a Pennsylvania state trooper, Jay Splain, fatally shot four people in separate incidents. We obtained dash cam footage of one of those killings.`\
+`Over 15 years, a Pennsylvania state trooper, Jay Splain, fatally shot four people in separate incidents. We obtained dash cam footage of one of those killings. `\
 https://nytimes.com/interactive/2022/01/08/us/state-trooper-vehicle-shooting.html?searchResultPosition=2
 
 **Chicago’s mayor rejects union’s terms for returning to school.**\
