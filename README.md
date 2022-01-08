@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/07/opinion/culture/jeopardy-trans-amy-schneider.html
 `The agreement follows negotiations that grew tense at times, and those on both sides said they were glad to see the stalemate end.`\
 https://nytimes.com/2022/01/07/nyregion/columbia-student-workers-strike-ends.html?searchResultPosition=2
 
-**Cyber Ninjas, the Firm That Reviewed Arizona’s Vote, Hits Bottom**\
+**Cyber Ninjas, Derided for Arizona Vote Review, Says It Is Shutting Down**\
 `The organization that conducted the widely derided review of the presidential vote in Arizona’s largest county said it was insolvent and had laid off its employees.`\
 https://nytimes.com/2022/01/07/us/cyber-ninjas-arizona-vote-review.html?searchResultPosition=3
 
