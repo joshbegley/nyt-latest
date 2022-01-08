@@ -1,5 +1,5 @@
 **Captain’s Phrase**\
-`Staggered by Freddie Cheung’s ocean of a grid? We’ll find our sea legs.`\
+`Staggered by Freddie Cheng’s ocean of a grid? We’ll find our sea legs.`\
 https://nytimes.com/2022/01/07/crosswords/daily-puzzle-2022-01-08.html?searchResultPosition=1
 
 **Biden Consoles Residents in Fire-Ravaged Colorado**\
