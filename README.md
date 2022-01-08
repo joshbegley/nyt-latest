@@ -1,6 +1,6 @@
 **A Giant Telescope Grows in Space**\
 `Everything is going great for the James Webb Space Telescope. So far.`\
-https://nytimes.com/2022/01/08/science/james-webb-telescope-deployment.html?searchResultPosition=1
+https://nytimes.com/2022/01/08/science/james-webb-telescope-nasa-deployment.html?searchResultPosition=1
 
 **Robert Birnbaum, Architect of Modern-Day Financial Markets, Dies at 94**\
 `He was renowned for his steady hand during the 1987 stock market crash. He later helped design circuit breakers to calm future panics.`\
