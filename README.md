@@ -22,8 +22,8 @@ https://nytimes.com/2022/01/08/us/mine-collapse-pennsylvania-fayette-county.html
 `Yao Pan Ma was hospitalized in April after he was pushed to the ground and kicked in the head in East Harlem. He died on Dec. 31, the police said.`\
 https://nytimes.com/2022/01/08/nyregion/anti-asian-hate-crime-death-harlem.html?searchResultPosition=6
 
-**Mariah Bell, ‘Ancient’ at 25, Wins a Spot on the Olympic Figure Skating Team**\
-`Bell won the U.S. figure skating national championship and a chance to compete in Beijing next month, along with Karen Chen and Alysa Liu.`\
+**Mariah Bell, ‘Ancient’ at 25, Wins U.S. Figure Skating Title and a Spot in Beijing**\
+`Bell will have a chance to compete in the Olympics next month, along with Karen Chen, who finished second at nationals, and Alysa Liu, who withdrew on Friday after a positive coronavirus test.`\
 https://nytimes.com/2022/01/08/sports/mariah-bell-figure-skating-title-olympics.html?searchResultPosition=7
 
 **Alec Baldwin Says He Is Complying With Cellphone Search Warrant**\
