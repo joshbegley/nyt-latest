@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/09/sports/football/washington-giants-score.html?sear
 
 **Watch Live: Bronx Apartment Fire Update**\
 `Officials give details on the apartment building fire that killed at least 19 people, including nine children, in New York City.`\
-https://nytimes.com/video/nyregion/100000008152349/bronx-fire-nyc-live-video.html?searchResultPosition=2
+https://nytimes.com/video/embedded/nyregion/100000008152349/bronx-fire-nyc-live-video.html?searchResultPosition=2
 
 **Bronx Fire Kills at Least 19, Including 9 Children**\
 `Roughly 200 firefighters responded to the scene after a fire broke out at a 120-unit apartment building. Officials said it one of the worst fires in recent memory.`\
@@ -14,7 +14,7 @@ https://nytimes.com/video/nyregion/100000008152272/bronx-fire-apartment-building
 `With 846 receiving yards this season, Brock Bowers may be Georgia’s best offensive bet against Alabama in the national championship game.`\
 https://nytimes.com/2022/01/09/sports/ncaafootball/georgia-alabama-brock-bowers.html?searchResultPosition=4
 
-**Investigators focus on cause of deadly fire in a Bronx apartment building.**\
+**Mayor said space heater is believed to be the cause of deadly fire in a Bronx apartment building.**\
 `The blaze started in a duplex apartment on the second and third floors  and quickly spread.`\
 https://nytimes.com/2022/01/09/nyregion/cause-bronx-apartment-fire.html?searchResultPosition=5
 
