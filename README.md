@@ -1,22 +1,22 @@
+**Cliff Collapses on Boaters in Brazil, Killing 10**\
+`The tragedy in Minas Gerais state gripped the nation because it was captured on videos that showed an immense slab of rock smashing into pleasure boats.`\
+https://nytimes.com/2022/01/09/world/americas/brazil-cliff-collapses.html?searchResultPosition=1
+
 **Making Your Running Resolution Stick**\
 `We’re speaking with experts about how to have your best year of running. This week, we hear from a physical therapist and a clinical psychologist.`\
-https://nytimes.com/2022/01/09/sports/running-resolution-tips.html?searchResultPosition=1
+https://nytimes.com/2022/01/09/sports/running-resolution-tips.html?searchResultPosition=2
 
 **‘Jeopardy!’ Keeps Seeing Winning Streaks. Champions Ponder Why.**\
 `Amy Schneider isn’t the only one on a roll. Just a dozen players have won 10 or more games, half of those in the past five years, and a quarter in this season alone.`\
-https://nytimes.com/2022/01/09/arts/television/jeopardy-streaks-amy-schneider.html?searchResultPosition=2
+https://nytimes.com/2022/01/09/arts/television/jeopardy-streaks-amy-schneider.html?searchResultPosition=3
 
 **Freelance Writer Accuses The Atlantic of Defamation**\
 `A lawsuit by Ruth Shalit Barrett centers on the magazine’s retraction of her article in 2020 about wealthy parents seeking Ivy League admissions for their children through sports.`\
-https://nytimes.com/2022/01/09/business/ruth-shalit-barrett-atlantic-lawsuit.html?searchResultPosition=3
+https://nytimes.com/2022/01/09/business/ruth-shalit-barrett-atlantic-lawsuit.html?searchResultPosition=4
 
 **Dwayne Hickman, T.V.’s Lovelorn Dobie Gillis, Is Dead at 87**\
 `He went on to appear in movies and other TV shows and to work as a television executive, but the role of Dobie would dog him for decades.`\
-https://nytimes.com/2022/01/09/obituaries/dwayne-hickman-dead.html?searchResultPosition=4
-
-**32 seriously hurt in Bronx apartment building fire, officials say.**\
-`Officials expect there will be fatalities, the fire commissioner said, but it was unclear how many. Smoke in the building from the fire was “unprecedented,” he said.`\
-https://nytimes.com/2022/01/09/nyregion/bronx-fire-apartment-building.html?searchResultPosition=5
+https://nytimes.com/2022/01/09/obituaries/dwayne-hickman-dead.html?searchResultPosition=5
 
 **U.S. flight cancellations continue into the weekend.**\
 `Bad weather and staff shortages are still a problem. But airlines are also trying to deal with the traditional slowdown in travel in January.`\
