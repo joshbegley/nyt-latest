@@ -15,7 +15,7 @@ https://nytimes.com/video/nyregion/100000008152272/bronx-fire-apartment-building
 https://nytimes.com/2022/01/09/sports/ncaafootball/georgia-alabama-brock-bowers.html?searchResultPosition=4
 
 **Mayor Adams said a space heater is believed to be the cause of a deadly fire in a Bronx apartment building.**\
-`The blaze started in a duplex apartment on the second and third floors  and quickly spread.`\
+`The blaze started in a duplex apartment on the second and third floors and quickly spread.`\
 https://nytimes.com/2022/01/09/nyregion/cause-bronx-apartment-fire.html?searchResultPosition=5
 
 **Your Monday Briefing: Djokovic’s Appeal to Australia**\
