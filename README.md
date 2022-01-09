@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/09/us/politics/biden-republicans-agenda.html?searchR
 
 **‘We were just trying to breathe,’ says resident who survived fire in Bronx apartment building.**\
 `It took only moments for the apartment to become filled with smoke, said Wesley Patterson, who has lived in the building for 20 years. At least 19 people are dead.`\
-https://nytimes.com/2022/01/09/nyregion/nyc-bronx-apartment-fire-.html?searchResultPosition=2
+https://nytimes.com/2022/01/09/nyregion/nyc-bronx-apartment-fire-survivor.html?searchResultPosition=2
 
 **At least 19 dead, including 9 children, in Bronx apartment fire, officials say**\
 `Mayor Eric Adams said the fire was one of the worst in the city “during modern times.”`\
@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/09/arts/television/jeopardy-streaks-amy-schneider.ht
 `A lawsuit by Ruth Shalit Barrett centers on the magazine’s retraction of her article in 2020 about wealthy parents seeking Ivy League admissions for their children through sports.`\
 https://nytimes.com/2022/01/09/business/ruth-shalit-barrett-atlantic-lawsuit.html?searchResultPosition=9
 
-**Dwayne Hickman, T.V.’s Lovelorn Dobie Gillis, Is Dead at 87**\
+**Dwayne Hickman, TV’s Lovelorn Dobie Gillis, Is Dead at 87**\
 `He went on to appear in movies and other TV shows and to work as a television executive, but the role of Dobie would dog him for decades.`\
 https://nytimes.com/2022/01/09/obituaries/dwayne-hickman-dead.html?searchResultPosition=10
 
