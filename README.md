@@ -14,8 +14,8 @@ https://nytimes.com/2022/01/09/dining/what-to-cook-this-week.html?searchResultPo
 `The city also announced a raft of restrictions in an effort to contain the outbreak and trace its source.`\
 https://nytimes.com/2022/01/09/world/asia/china-covid-testing-omicron.html?searchResultPosition=4
 
-**Fury Alone Won’t Destroy Trumpism. We Need a Plan B.**\
-`Steve Bannon is thinking globally and acting locally. He’s not wrong. `\
+**Steve Bannon Is Onto Something**\
+`Fury alone won’t destroy Trumpism. We need a Plan B.`\
 https://nytimes.com/2022/01/09/opinion/trump-bannon-trumpism-democracy.html?searchResultPosition=5
 
 **Russia Warns That U.S. Doesn’t Understand Its Goals on Ukraine**\
