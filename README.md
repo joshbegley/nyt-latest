@@ -14,7 +14,7 @@ https://nytimes.com/2022/01/09/business/ruth-shalit-barrett-atlantic-lawsuit.htm
 `He went on to appear in movies and other TV shows and to work as a television executive, but the role of Dobie would dog him for decades.`\
 https://nytimes.com/2022/01/09/obituaries/dwayne-hickman-dead.html?searchResultPosition=4
 
-**32 Seriously Hurt in Bronx Apartment Building Fire, Officials Say**\
+**32 seriously hurt in Bronx apartment building fire, officials say.**\
 `Officials expect there will be fatalities, the fire commissioner said, but it was unclear how many. Smoke in the building from the fire was “unprecedented,” he said.`\
 https://nytimes.com/2022/01/09/nyregion/bronx-fire-apartment-building.html?searchResultPosition=5
 
