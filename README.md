@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/09/sports/football/washington-giants-score.html?sear
 https://nytimes.com/video/embedded/nyregion/100000008152349/bronx-fire-nyc-live-video.html?searchResultPosition=2
 
 **Bronx Fire Kills at Least 19, Including 9 Children**\
-`Roughly 200 firefighters responded to the scene after a fire broke out at a 120-unit apartment building. Officials said it one of the worst fires in recent memory.`\
+`Roughly 200 firefighters responded to the scene after a fire broke out at a 120-unit apartment building. Officials said it was one of the worst fires in recent memory.`\
 https://nytimes.com/video/nyregion/100000008152272/bronx-fire-apartment-building.html?searchResultPosition=3
 
 **Georgia Embraces College Football’s Evolution of the Tight End**\
