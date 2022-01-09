@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/09/sports/running-resolution-tips.html?searchResultP
 `Amy Schneider isn’t the only one on a roll. Just a dozen players have won 10 or more games, half of those in the past five years, and a quarter in this season alone.`\
 https://nytimes.com/2022/01/09/arts/television/jeopardy-streaks-amy-schneider.html?searchResultPosition=2
 
-**Freelance Writer Accuses Atlantic of Defamation**\
+**Freelance Writer Accuses The Atlantic of Defamation**\
 `A lawsuit by Ruth Shalit Barrett centers on the magazine’s retraction of her article in 2020 about wealthy parents seeking Ivy League admissions for their children through sports.`\
 https://nytimes.com/2022/01/09/business/ruth-shalit-barrett-atlantic-lawsuit.html?searchResultPosition=3
 
