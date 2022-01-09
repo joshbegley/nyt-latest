@@ -1,4 +1,4 @@
-**As U.S. figure skaters test positive, new worries before Winter Olympics.**\
+**After U.S. figure skaters tested positive, new worries arise for the Winter Olympics.**\
 `Problems at the national championships could turn up in Beijing next month, too.`\
 https://nytimes.com/2022/01/08/world/figure-skating-olympic-team.html?searchResultPosition=1
 
