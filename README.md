@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/09/health/immunocompromised-fourth-dose-booster.html
 `The president pledged to use all of the powers of his office to thwart Republicans still under the thumb of Donald J. Trump.`\
 https://nytimes.com/2022/01/09/us/politics/biden-republicans-agenda.html?searchResultPosition=2
 
-**‘We were just trying to breathe,’ said a resident who survived the fire in a Bronx apartment building.**\
+**‘We were just trying to breathe,’ says resident who survived fire in Bronx apartment building.**\
 `It took only moments for the apartment to become filled with smoke, said Wesley Patterson, who has lived in the building for 20 years. At least 19 people are dead.`\
 https://nytimes.com/2022/01/09/nyregion/nyc-bronx-apartment-fire-survivor.html?searchResultPosition=3
 
