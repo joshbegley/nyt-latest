@@ -1,4 +1,4 @@
-**Chen Falls Short of Perfection but Wins Another Skating Title**\
+**Chen Falls Short of Perfection but Wins U.S. Title Again**\
 `Nathan Chen won his sixth consecutive U.S. national figure skating title and is expected to contend for a gold medal at the Beijing Games.`\
 https://nytimes.com/2022/01/09/sports/olympics/nathan-chen-us-skating-championships.html?searchResultPosition=1
 
