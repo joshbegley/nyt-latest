@@ -26,8 +26,8 @@ https://nytimes.com/video/nyregion/100000008152272/bronx-fire-apartment-building
 `With 846 receiving yards this season, Brock Bowers may be Georgia’s best offensive bet against Alabama in the national championship game.`\
 https://nytimes.com/2022/01/09/sports/ncaafootball/georgia-alabama-brock-bowers.html?searchResultPosition=7
 
-**Mayor Adams said a space heater is believed to be the cause of a deadly fire in a Bronx apartment building.**\
-`The blaze started in a duplex apartment on the second and third floors and quickly spread.`\
+**A space heater is blamed for the deadly fire in a Bronx apartment building.**\
+`The blaze started in a duplex apartment on the second and third floors, and its smoke quickly spread throughout the building.`\
 https://nytimes.com/2022/01/09/nyregion/cause-bronx-apartment-fire.html?searchResultPosition=8
 
 **Your Monday Briefing: Djokovic’s Appeal to Australia**\
