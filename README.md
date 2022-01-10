@@ -1,6 +1,6 @@
 **Haitian Prime Minister Had Close Links With Murder Suspect**\
 `New evidence suggests the man who took over from Haiti’s murdered president had close links to a prime suspect in the assassination — and that the two stayed in contact even after the crime.`\
-https://nytimes.com/2022/01/10/world/americas/haitian-prime-minister-had-close-links-with-murder-suspect.html?searchResultPosition=1
+https://nytimes.com/2022/01/10/world/americas/haitian-prime-minister-assassination-suspect.html?searchResultPosition=1
 
 **Clay Aiken Announces Run for Congress**\
 `Mr. Aiken, the former “American Idol” contestant, said he was running as a “loud and proud Democrat” for an open House seat in his native North Carolina this year.`\
