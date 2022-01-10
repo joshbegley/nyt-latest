@@ -27,7 +27,7 @@ https://nytimes.com/2022/01/10/dining/restaurant-review-semma-south-indian-food.
 https://nytimes.com/slideshow/2022/01/10/dining/indian-food-semma.html?searchResultPosition=7
 
 **Carl Bennett, Founder of Caldor Discount Stores, Dies at 101**\
-`He and his wife, Dorothy, turned a walk-up discount store in Westchester, N.Y., into a 100-outlet behemoth that reached $1 billion in annual sales.`\
+`He and his wife, Dorothy, turned a walk-up store in Westchester, N.Y., into a 100-outlet behemoth that reached $1 billion in annual sales.`\
 https://nytimes.com/2022/01/10/business/carl-bennett-dead.html?searchResultPosition=8
 
 **Jesse Watters Is Promoted to an Evening Slot on Fox News**\
