@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2022/01/10/learning/Uganda-Geography-Quiz.html?s
 `The city has become a hub for billionaires’ superyachts, banking on the strength of the “blue economy.”`\
 https://nytimes.com/2022/01/10/business/barcelona-superyachts.html?searchResultPosition=2
 
-**Uganda Opens Schools After World’s Longest Covid Closing. What Was the Cost?**\
+**Uganda Reopens Schools After World’s Longest Covid Shutdown**\
 `Many countries have closed classrooms on and off, but Uganda had kept more than 10 million students at home since March 2020. Critics say it took a heavy toll.`\
 https://nytimes.com/2022/01/10/world/africa/uganda-schools-reopen.html?searchResultPosition=3
 
