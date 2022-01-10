@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/10/world/europe/as-its-population-soars-to-40-rum-is
 
 **‘Nothing Will Be the Same’: A Prison Town Weighs a Future Without a Prison**\
 `After a decade of efforts that sharply reduced inmate populations, California is closing prisons. One town high in the Sierra Nevada whose economy is built on incarceration is waging a legal battle to keep a prison open.`\
-https://nytimes.com/2022/01/10/us/nothing-will-be-the-same-a-prison-town-weighs-a-future-without-a-prison.html?searchResultPosition=6
+https://nytimes.com/2022/01/10/us/susanville-california-prison-closing.html?searchResultPosition=6
 
 **Eric Adams’s First Days: Battling Omicron, Then a Deadly Fire**\
 `During his first week in office, the mayor focused on keeping schools open. Then on Sunday, he was faced with devastating loss of life in the Bronx.`\
