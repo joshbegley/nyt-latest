@@ -1,6 +1,6 @@
 **Klay Thompson Returns, as if He Never Left**\
 `He barked at officials. He launched 3-pointers. He played off the crowd. And he soared for an emphatic dunk.`\
-https://nytimes.com/2022/01/10/sports/basketball/klay-thompson-returns-as-if-he-never-left.html?searchResultPosition=1
+https://nytimes.com/2022/01/10/sports/basketball/klay-thompson-return.html?searchResultPosition=1
 
 **Raiders Use 17th Game (and Then Some) to Slide Into Postseason**\
 `In an odd game in which a tie could have sent both teams to the playoffs, the Raiders outlasted the Chargers in overtime, eliminating their division rival.`\
