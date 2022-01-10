@@ -26,7 +26,7 @@ https://nytimes.com/2022/01/10/arts/music/weeknd-dawn-fm-review.html?searchResul
 `He was a suspect in three lurid murders and became a fugitive. In September, he was found guilty in the fatal shooting of a confidante and sentenced to life in prison.`\
 https://nytimes.com/2022/01/10/obituaries/robert-durst-dead.html?searchResultPosition=7
 
-**Robert Durst, Real Estate Scion and Convicted Killer, Dies at 78**\
+**Robert Durst Dies Still Facing Murder Charge in First Wife’s Death**\
 `Mr. Durst, long suspected in three killings, was found guilty in September in one of them, the 2000 death of a friend.`\
 https://nytimes.com/2022/01/10/nyregion/robert-durst-dies.html?searchResultPosition=8
 
