@@ -30,8 +30,8 @@ https://nytimes.com/2022/01/09/sports/olympics/nathan-chen-us-skating-championsh
 `Lynn Lempel’s puzzle is a grand ol’ time.`\
 https://nytimes.com/2022/01/09/crosswords/daily-puzzle-2022-01-10.html?searchResultPosition=8
 
-**Jake Fromm’s Quarterback Sneak Epitomizes Giants’ Futility**\
-`Starting their third-string quarterback, the Giants fell behind early and made a futile call when backed up on their own 4-yard line.`\
+**Jets Flutter in the Fourth, While the Giants’ Futile Sneak Symbolizes Season**\
+`The Jets held on against the Bills until the fourth quarter, after the Giants fell behind early to Washington and made a futile call on their own 4-yard line.`\
 https://nytimes.com/2022/01/09/sports/football/washington-giants-score.html?searchResultPosition=9
 
 **Watch Live: Bronx Apartment Fire Update**\
