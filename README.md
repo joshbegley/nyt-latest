@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/10/science/european-royals-letterlocking.html?searchResultPosition=1
 
 **Train Crashes Into Downed Plane Seconds After Pilot Is Rescued**\
-`Video captured the moment Los Angeles police officers pulled a pilot from the wreckage of a plane just before a train slammed into it.`\
+`Videos captured the moment Los Angeles police officers pulled a pilot from the wreckage of a plane just before a train slammed into it.`\
 https://nytimes.com/video/us/100000008152916/california-plane-pilot-lapd-train-crash.html?searchResultPosition=2
 
 **At-Home Coronavirus Tests Are Inaccessible to Blind People**\
