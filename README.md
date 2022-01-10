@@ -22,7 +22,7 @@ https://nytimes.com/2022/01/09/us/jim-jordan-jan-6-panel.html?searchResultPositi
 `The 2022 list highlights places around the globe where travelers can be part of the solution.`\
 https://nytimes.com/interactive/2022/travel/52-places-travel-2022.html?searchResultPosition=6
 
-**Bob Saget, Comic Who Portrayed Danny Tanner in ‘Full House,’ Dies at 65**\
+**Bob Saget, Comic Who Portrayed Danny Tanner on ‘Full House,’ Dies at 65**\
 `The actor, who had also hosted “America’s Funniest Home Videos,” was found dead in an Orlando hotel room while on tour.`\
 https://nytimes.com/2022/01/09/arts/television/bob-saget-dead.html?searchResultPosition=7
 
