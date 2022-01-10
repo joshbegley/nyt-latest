@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘After 110 Years, an Overdue Book Is Returned to a Library in Idaho’**\
-`In this lesson, students will learn about the journey of a book that was checked out in 1911 and not returned until 2021. Then, they will discuss the importance of libraries and learn about how they are cataloged.`\
-https://nytimes.com/2022/01/10/learning/lesson-plans/lesson-of-the-day-after-110-years-an-overdue-book-is-returned-to-a-library-in-idaho.html?searchResultPosition=1
+**These Boats Are Really Big, but Barcelona Has the Room**\
+`The city has become a hub for billionaires’ superyachts, banking on the strength of the “blue economy.”`\
+https://nytimes.com/2022/01/10/business/barcelona-superyachts.html?searchResultPosition=1
 
-**A Devastating Fire, Apparently Caused by a Space Heater**\
-`At least 19 people, including nine children, died. Mayor Eric Adams called the numbers “horrific.”`\
-https://nytimes.com/2022/01/10/nyregion/a-devastating-fire-apparently-caused-by-a-space-heater.html?searchResultPosition=2
+**Uganda Reopens Schools After World’s Longest Shutdown. What Was the Cost?**\
+`Many countries have closed classrooms on and off, but Uganda had kept more than 10 million students at home since March 2020. Critics say it took a heavy toll.`\
+https://nytimes.com/2022/01/10/world/africa/uganda-schools-reopen.html?searchResultPosition=2
 
-**U.S. and Russia Will Discuss European Security, but Without Europeans**\
-`The coming talks in Geneva are bilateral, reviving old fears that the two Cold War powers will forge a deal on their own.`\
-https://nytimes.com/2022/01/10/world/europe/us-russia-europe-ukraine-nato.html?searchResultPosition=3
+**Shopping for Fire Screens**\
+`Because if you’re lucky enough to have a fireplace, it deserves a good fire screen.`\
+https://nytimes.com/2022/01/10/realestate/shopping-for-fire-screens.html?searchResultPosition=3
 
-**Quotation of the Day: In Mist, Rain and Mud, Island’s Residents Find Their Kind of Paradise**\
-`Quotation of the Day for Monday, January 10, 2022.`\
-https://nytimes.com/2022/01/10/todayspaper/quotation-of-the-day-in-mist-rain-and-mud-islands-residents-find-their-kind-of-paradise.html?searchResultPosition=4
+**The World Has Changed, So Has ‘52 Places’**\
+`Our annual list of destinations to visit this year looks at spots where visitors can be part of the solution to problems like overtourism and climate change.`\
+https://nytimes.com/2022/01/10/travel/52-places-introduction.html?searchResultPosition=4
 
-**As Its Population Soars to 40, Rum Isle Glimpses a Future in the Mist**\
-`With four new families recently arriving, the remote and rainy island in the Hebrides is experiencing its version of a population surge, although residents new and old concede living here isn’t easy.`\
-https://nytimes.com/2022/01/10/world/europe/rum-isle-scotland-hebrides.html?searchResultPosition=5
+**Manchin’s Choice on Build Back Better: Mine Workers or Mine Owners**\
+`Senator Joe Manchin III is caught between the mine workers’ union, which supports President Biden’s social policy and climate bill, and mine owners in his state who oppose it.`\
+https://nytimes.com/2022/01/10/us/politics/manchin-coal-miners.html?searchResultPosition=5
 
-**‘Nothing Will Be the Same’: A Prison Town Weighs a Future Without a Prison**\
-`After a decade of efforts that sharply reduced inmate populations, California is closing prisons. One town high in the Sierra Nevada whose economy is built on incarceration is waging a legal battle to keep a prison open.`\
-https://nytimes.com/2022/01/10/us/susanville-california-prison-closing.html?searchResultPosition=6
+**How Families Can Navigate the I.C.U.**\
+`A new book offers guidance on how family members can support a critically ill loved one who ends up in the hospital’s intensive care unit.`\
+https://nytimes.com/2022/01/10/well/how-families-can-navigate-the-icu.html?searchResultPosition=6
 
-**Eric Adams’s First Days: Battling Omicron, Then a Deadly Fire**\
-`During his first week in office, the mayor focused on keeping schools open. Then on Sunday, he was faced with devastating loss of life in the Bronx.`\
-https://nytimes.com/2022/01/10/nyregion/eric-adams-mayor-covid.html?searchResultPosition=7
+**Covid Test Misinformation Spikes Along With Spread of Omicron**\
+`The added demand for testing and the higher prevalence of breakthrough cases have created an “opportune moment” to exploit.`\
+https://nytimes.com/2022/01/10/technology/covid-test-misinformation.html?searchResultPosition=7
 
-**U.S. Greenhouse Gas Emissions Bounced Back Sharply in 2021**\
-`Emissions rose 6 percent last year after a record 10 percent decline in 2020, fueled by a rise in coal power and truck traffic as the U.S. economy rebounded from the pandemic.`\
-https://nytimes.com/2022/01/10/climate/emissions-pandemic-rebound.html?searchResultPosition=8
+**Cookies? Chips? Pizza? Here’s How to Own Your Cravings**\
+`For the Eat Well Challenge, mindfulness techniques like “urge surfing” can help curb overeating without banning favorite foods.`\
+https://nytimes.com/2022/01/10/well/eat/food-cravings-strategies.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/10/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Covid 3.0, Biden 2.0 and Trump Number … Well, We’re Not Quite Sure**\
+`The new year is off to an unusual start. `\
+https://nytimes.com/2022/01/10/opinion/covid-biden-trump.html?searchResultPosition=9
 
-**No Corrections: Jan. 10, 2022**\
-`No corrections appeared in print on Monday, Jan. 10, 2022.`\
-https://nytimes.com/2022/01/10/pageoneplus/no-corrections-jan-10-2022.html?searchResultPosition=10
+**After Nearly 50 Years, a Beloved East Village Indian Boutique Is Closing**\
+`Dress Shoppe II, an Indian fabric and clothing shop in Manhattan, will shut its doors at the end of January.`\
+https://nytimes.com/2022/01/10/style/dress-shoppe-east-village.html?searchResultPosition=10
 
