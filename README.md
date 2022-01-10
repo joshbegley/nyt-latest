@@ -6,13 +6,13 @@ https://nytimes.com/interactive/2022/01/10/learning/Uganda-Geography-Quiz.html?s
 `The city has become a hub for billionaires’ superyachts, banking on the strength of the “blue economy.”`\
 https://nytimes.com/2022/01/10/business/barcelona-superyachts.html?searchResultPosition=2
 
+**Uganda Opens Schools After World’s Longest Covid Closing. What Was the Cost?**\
+`Many countries have closed classrooms on and off, but Uganda had kept more than 10 million students at home since March 2020. Critics say it took a heavy toll.`\
+https://nytimes.com/2022/01/10/world/africa/uganda-schools-reopen.html?searchResultPosition=3
+
 **Shopping for Fire Screens**\
 `Because if you’re lucky enough to have a fireplace, it deserves a good fire screen.`\
-https://nytimes.com/2022/01/10/realestate/fireplace-screens.html?searchResultPosition=3
-
-**Uganda Reopens Schools After World’s Longest Shutdown. What Was the Cost?**\
-`Many countries have closed classrooms on and off, but Uganda had kept more than 10 million students at home since March 2020. Critics say it took a heavy toll.`\
-https://nytimes.com/2022/01/10/world/africa/uganda-schools-reopen.html?searchResultPosition=4
+https://nytimes.com/2022/01/10/realestate/fireplace-screens.html?searchResultPosition=4
 
 **The World Has Changed, So Has ‘52 Places’**\
 `Our annual list of destinations to visit this year looks at spots where visitors can be part of the solution to problems like overtourism and climate change.`\
