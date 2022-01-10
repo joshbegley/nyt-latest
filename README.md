@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/10/world/africa/uganda-schools-reopen.html?searchRes
 
 **The World Has Changed, So Has ‘52 Places’**\
 `Our annual list of destinations to visit this year looks at spots where visitors can be part of the solution to problems like overtourism and climate change.`\
-https://nytimes.com/2022/01/10/travel/52-places-introduction.html?searchResultPosition=4
+https://nytimes.com/2022/01/10/travel/a-different-kind-of-52.html?searchResultPosition=4
 
 **Manchin’s Choice on Build Back Better: Mine Workers or Mine Owners**\
 `Senator Joe Manchin III is caught between the mine workers’ union, which supports President Biden’s social policy and climate bill, and mine owners in his state who oppose it.`\
