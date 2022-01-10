@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/10/opinion/letters/democrats-republicans-focus-group
 https://nytimes.com/2022/01/10/arts/music/weeknd-dawn-fm-review.html?searchResultPosition=3
 
 **Robert Durst, Real Estate Scion Convicted as a Killer, Dies at 78**\
-`He was a suspect in three lurid killings and became a fugitive. In September, he was found guilty in the murder of a confidante and sentenced to life in prison.`\
+`He was a suspect in three lurid murders and became a fugitive. In September, he was found guilty in the fatal shooting of a confidante and sentenced to life in prison.`\
 https://nytimes.com/2022/01/10/obituaries/robert-durst-dead.html?searchResultPosition=4
 
 **Robert Durst, Real Estate Scion and Convicted Killer, Dies at 78**\
