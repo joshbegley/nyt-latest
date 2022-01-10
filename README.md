@@ -24,7 +24,7 @@ https://nytimes.com/2022/01/09/arts/television/bob-saget-dead.html?searchResultP
 
 **Noncitizens’ Right to Vote Becomes Law in New York City**\
 `Starting next year, 800,000 legal permanent residents will be eligible to vote in municipal elections.`\
-https://nytimes.com/2022/01/09/nyregion/noncitizens-voting-rights.html?searchResultPosition=7
+https://nytimes.com/2022/01/09/nyregion/noncitizens-nyc-voting-rights.html?searchResultPosition=7
 
 **What We Learned From Week 18 in the N.F.L.**\
 `Matthew Stafford’s late-game miscues sank the Rams against the 49ers, and the Colts laid an egg against the Jaguars, leaving the door open for the Steelers to sneak into the playoffs.`\
