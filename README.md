@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/10/us/ex-officer-kills-boyfriend-oklahoma.html?searc
 
 **Chicago’s public schools cancel Monday classes.**\
 `The teachers’ work stoppage is extending to a fourth school day, while negotiations with the city go on.`\
-https://nytimes.com/2022/01/09/us/chicagos-public-schools-cancel-monday-classes.html?searchResultPosition=4
+https://nytimes.com/2022/01/09/us/chicago-public-schools-classes-cancelled.html?searchResultPosition=4
 
 **Klay Thompson Returns, as if He Never Left**\
 `He barked at officials. He launched 3-pointers. He played off the crowd. And he soared for an emphatic dunk.`\
