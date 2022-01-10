@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/10/todayspaper/quotation-of-the-day-in-mist-rain-and
 
 **As Its Population Soars to 40, Rum Isle Glimpses a Future in the Mist**\
 `With four new families recently arriving, the remote and rainy island in the Hebrides is experiencing its version of a population surge, although residents new and old concede living here isn’t easy.`\
-https://nytimes.com/2022/01/10/world/europe/as-its-population-soars-to-40-rum-isle-glimpses-a-future-in-the-mist.html?searchResultPosition=5
+https://nytimes.com/2022/01/10/world/europe/rum-isle-scotland-hebrides.html?searchResultPosition=5
 
 **‘Nothing Will Be the Same’: A Prison Town Weighs a Future Without a Prison**\
 `After a decade of efforts that sharply reduced inmate populations, California is closing prisons. One town high in the Sierra Nevada whose economy is built on incarceration is waging a legal battle to keep a prison open.`\
