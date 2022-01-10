@@ -1,5 +1,5 @@
-**Raiders Use 17th Game and Then Some to Slide Into Postseason**\
-`In a win-or-go home final regular-season game, Raiders outlasted the Chargers in overtime.`\
+**Raiders Use 17th Game (and Then Some) to Slide Into Postseason**\
+`In an odd game in which a tie could have sent both teams to the playoffs, the Raiders outlasted the Chargers in overtime, eliminating their division rival.`\
 https://nytimes.com/2022/01/10/sports/football/raiders-chargers-score-overtime.html?searchResultPosition=1
 
 **Must the Shows Go On?**\
