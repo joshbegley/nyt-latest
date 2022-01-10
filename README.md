@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/09/learning/word-of-the-day-lingua-franca.html?searc
 `Many residents of the high-rise sought it out for its close-knit feel and proximity to area mosques.`\
 https://nytimes.com/2022/01/09/nyregion/gambia-bronx-fire-victims.html?searchResultPosition=9
 
-**Novak Djokovic’s Appeal of Deportation Order Is Heard in Australia**\
-`His lawyer argued that the tennis star had met all government requirements before flying to the country to compete in the Australian Open.`\
+**Novak Djokovic Can Remain in Australia, Judge Rules**\
+`The court ordered the government to release him from detention and restore a visa.`\
 https://nytimes.com/2022/01/09/sports/tennis/novak-djokovic-australian-open-vaccine.html?searchResultPosition=10
 
