@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/11/us/politics/biden-filibuster-voting-rights.html?s
 
 **How the ‘Djokovic Affair’ Came Back to Bite Australia’s Prime Minister**\
 `Scott Morrison thought he had a political winner. Now, with an election looming, Australians debate their government’s fairness and competence.`\
-https://nytimes.com/2022/01/11/world/australia/novak-djokovic-scott-morrison.html?searchResultPosition=3
+https://nytimes.com/2022/01/11/world/australia/novak-djokovic-australia-border-scott-morrison.html?searchResultPosition=3
 
 **A Flea-Infested Former Convent: How Could They Resist?**\
 `The 1926 building owned by the Catholic Church looked as if it hadn’t been updated in decades. One Dallas family was charmed.`\
