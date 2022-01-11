@@ -1,6 +1,6 @@
 **Delta Air Lines and a union spar over isolation periods for sick workers.**\
 `The airline’s top lawyer sent a letter telling the union to stop criticizing policies on how many days workers should quarantine if they test positive for the coronavirus.`\
-https://nytimes.com/2022/01/11/business/delta-flight-attendants-union-isolation.html?searchResultPosition=1
+https://nytimes.com/2022/01/11/business/delta-flight-attendants-union-isolation-covid.html?searchResultPosition=1
 
 **Deadly Philadelphia Rowhouse Fire Started With a Christmas Tree**\
 `Officials said the fire that killed 12 people started when a lighter ignited the tree. Investigators determined that a 5-year-old boy, who told the police he had been playing with the lighter, was the only person in the part of the apartment where the fire began.`\
