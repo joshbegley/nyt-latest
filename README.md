@@ -15,7 +15,7 @@ https://nytimes.com/2022/01/11/business/boeings-sales-increased-last-year-to-the
 https://nytimes.com/2022/01/11/world/canada/wheatley-ontario-gas-explosion.html?searchResultPosition=4
 
 **San Francisco Ballet Appoints Tamara Rojo to Artistic Director**\
-`Rojo, who has given the English National Ballet a new allure, succeeds Helgi Tomasson as just the fourth director to lead the San Francisco company.`\
+`Rojo, who has given the English National Ballet a new allure, succeeds Helgi Tomasson as just the fifth director to lead the San Francisco company.`\
 https://nytimes.com/2022/01/11/arts/dance/tamara-rojo-artistic-director-san-francisco-ballet.html?searchResultPosition=5
 
 **Covid Cases in Europe More Than Doubled in Two Weeks, W.H.O. Says**\
