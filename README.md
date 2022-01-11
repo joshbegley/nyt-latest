@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/11/world/jeffrey-moyo-zimbabwe-nyt.html?searchResultPosition=1
 
 **Georgia Wins National Title, Conquering a Drought and a Rival**\
-`The Bulldogs’ defense frustrated Bryce Young, Alabama’s Heisman Trophy-winning quarterback, to win the program’s first championship since the 1980 season and end a skid against the Crimson Tide.`\
+`The Bulldogs’ defense frustrated Bryce Young, Alabama’s Heisman Trophy-winning quarterback, to win the program’s first championship since the 1980 season and end a losing streak against the rival Crimson Tide.`\
 https://nytimes.com/2022/01/11/sports/georgia-alabama-score.html?searchResultPosition=2
 
 **Your Tuesday Briefing**\
