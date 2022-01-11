@@ -31,7 +31,7 @@ https://nytimes.com/2022/01/11/us/schools-covid-testing.html?searchResultPositio
 https://nytimes.com/2022/01/11/well/mind/melatonin-sleep-insomnia.html?searchResultPosition=8
 
 **Powell Says the Fed Is Prepared to Raise Rates to Combat Inflation**\
-`Jerome H. Powell, the Federal Reserve chair, said the Fed could raise interest rates to manage inflation within the rapidly growing economy. Mr. Powell’s remarks came during a Senate hearing as he seeks confirmation to a second term.`\
+`Jerome H. Powell, the Federal Reserve chair, said the Fed could raise interest rates to manage inflation within the rapidly growing economy. He spoke during his Senate reconfirmation hearing.`\
 https://nytimes.com/video/us/politics/100000008155078/powell-fed-confirmation-senate.html?searchResultPosition=9
 
 **Transcript: Ezra Klein Interviews Chris Hayes**\
