@@ -1,5 +1,5 @@
-**Leaders of Chicago teachers’ union approve deal to return to classrooms after virus dispute.**\
-`Students in the third-largest U.S. school district have missed about a week of classes.`\
+**Chicago schools will reopen as teachers and the city reach a deal over virus safeguards.**\
+`Students in the third-largest U.S. school district will go back to classes on Wednesday.`\
 https://nytimes.com/2022/01/10/us/chicago-schools-deal-covid.html?searchResultPosition=1
 
 **Here/There**\
