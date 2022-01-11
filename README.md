@@ -10,8 +10,8 @@ https://nytimes.com/2022/01/10/nyregion/bronx-apartment-fire-smoke.html?searchRe
 `Chicago public schools remained closed after negotiations stagnated between the teachers’ union and the city over in-person classes and pandemic safety.`\
 https://nytimes.com/video/us/100000008154090/chicago-public-school-teachers.html?searchResultPosition=3
 
-**Stacey Abrams Isn’t the Only One Skipping Biden’s Voting Rights Speech**\
-`Several voting rights groups won’t be at the Georgia event, protesting what they called months of inaction. Ms. Abrams, the Democratic candidate for governor, cited a scheduling conflict.`\
+**Voting Rights Groups Skipping Biden’s Speech in Georgia Over Inaction**\
+`Stacey Abrams, the Democratic candidate for governor, also will not be there, but she cited a scheduling conflict.`\
 https://nytimes.com/2022/01/10/us/politics/biden-stacey-abrams-voting-rights.html?searchResultPosition=4
 
 **Guantánamo Panel Approves Transfer of First High-Value Detainee**\
