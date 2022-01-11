@@ -2,13 +2,13 @@
 `If the man is found fit to stand trial, he will faces charges that now include terrorism. His lawyers said he would protest with a hunger strike.`\
 https://nytimes.com/2022/01/11/world/africa/south-africa-parliament-fire-suspect.html?searchResultPosition=1
 
-**Dorms Pop Up in Spain as More Students Seek Housing Away From Home**\
-`The country’s student population has become increasingly mobile, fueling investments in accommodations, largely funded by foreign capital.`\
-https://nytimes.com/2022/01/11/world/europe/spain-student-housing-dorms.html?searchResultPosition=2
-
 **‘Cheer’ Is Back. Here’s Where the Jerry Harris Case Stands.**\
 `The Emmy-winning Netflix documentary series returns for a second season on Wednesday without its breakout star, who is awaiting trial in a child pornography case.`\
-https://nytimes.com/2022/01/11/arts/television/cheer-season-2-jerry-harris.html?searchResultPosition=3
+https://nytimes.com/2022/01/11/arts/television/cheer-season-2-jerry-harris.html?searchResultPosition=2
+
+**Dorms Pop Up in Spain as More Students Seek Housing Away From Home**\
+`The country’s student population has become increasingly mobile, fueling investments in accommodations, largely funded by foreign capital.`\
+https://nytimes.com/2022/01/11/world/europe/spain-student-housing-dorms.html?searchResultPosition=3
 
 **Why Kane Brown Loves Cookie Monster, Elvis Presley and ‘Ted Lasso’**\
 `The country star’s list of must-haves mixes heartstring-yanking shows, sports video games and powerhouse musicians known for shaking up the culture.`\
