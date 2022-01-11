@@ -1,40 +1,40 @@
-**What Will the Highways of the Future Look Like?**\
-`The rise of 5G and advances in A.I. are transforming the future of mobility and paving the way for high-tech highways designed to save lives — and the planet.`\
-https://nytimes.com/paidpost/ferrovial/what-will-the-highways-of-the-future-look-like.html?searchResultPosition=1
+**How the ‘Djokovic Affair’ Came Back to Bite Australia’s Prime Minister**\
+`Scott Morrison thought he had a political winner. Now, with an election looming, Australians debate their government’s fairness and competence.`\
+https://nytimes.com/2022/01/11/world/australia/novak-djokovic-scott-morrison.html?searchResultPosition=1
 
-**Lesson of the Day: ‘Revolt in Kazakhstan: What’s Happening, and Why It Matters’**\
-`In this lesson, students will learn about recent protests in Kazakhstan and implications across the region. Then, they will choose one aspect of the current crisis to learn more about, sharing their findings with a classmate.`\
-https://nytimes.com/2022/01/11/learning/lesson-plans/lesson-of-the-day-revolt-in-kazakhstan-whats-happening-and-why-it-matters.html?searchResultPosition=2
+**A Flea-Infested Former Convent: How Could They Resist?**\
+`The 1926 building owned by the Catholic Church looked as if it hadn’t been updated in decades. One Dallas family was charmed.`\
+https://nytimes.com/2022/01/11/realestate/a-flea-infested-former-convent-how-could-they-resist.html?searchResultPosition=2
 
-**Deadly Smoke and a Door That Did Not Close**\
-`Seventeen people killed in Sunday’s fire inhaled smoke that poured out of a single apartment. Its door-closing mechanism did not work, officials said.`\
-https://nytimes.com/2022/01/11/nyregion/deadly-smoke-and-a-door-that-did-not-close.html?searchResultPosition=3
+**‘We Saw the Potential of This Neglected Home’**\
+`The 1926 building owned by the Catholic Church looked as if it hadn’t been updated in decades. One Dallas family was charmed.`\
+https://nytimes.com/slideshow/2022/01/11/realestate/we-saw-the-potential-of-this-neglected-home.html?searchResultPosition=3
 
-**In Southern Africa, Success Against H.I.V. Offers Hope for Beating Back Another Virus**\
-`A former Africa correspondent, who covered the height of the AIDS epidemic there 15 years ago, finds lessons in the remarkable progress against that virus for our current fight.`\
-https://nytimes.com/2022/01/11/health/southern-africa-hiv-aids-epidemic-progress.html?searchResultPosition=4
+**The Big Dream of Yonkers: To Be the ‘Burbank of New York’**\
+`A new film and television facility, once fully open, will be ‘hands-down the largest in the Northeast,’ the leader of the project said.`\
+https://nytimes.com/2022/01/11/nyregion/lionsgate-great-point-studio-yonkers.html?searchResultPosition=4
 
-**Economists Pin More Blame on Tech for Rising Inequality**\
-`Recent research underlines the central role that automation has played in widening disparities.`\
-https://nytimes.com/2022/01/11/technology/income-inequality-technology-machines.html?searchResultPosition=5
+**The Soldiers Came Home Sick. The Government Denied It Was Responsible.**\
+`U.S. service members and veterans have long insisted that the military’s garbage-disposal fires in war zones made them ill. Why were their claims stonewalled for so long?`\
+https://nytimes.com/2022/01/11/magazine/military-burn-pits.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/11/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**For Retail Workers, Omicron Disruptions Aren’t Just About Health**\
+`Stores are shortening hours, fitting rooms are being closed and some employees can’t go on break. “Morale could not be lower,” one retail worker said.`\
+https://nytimes.com/2022/01/11/business/retail-workers-omicron-pandemic.html?searchResultPosition=6
 
-**Winter TV Shows**\
-`What new or returning shows are you excited to watch?`\
-https://nytimes.com/2022/01/11/learning/winter-tv-shows.html?searchResultPosition=7
+**Chris Hayes on How Biden Can Have a Better 2022**\
+`The political journalist discusses the Biden administration’s successes and failures with the economy, pandemic response and climate change.`\
+https://nytimes.com/2022/01/11/opinion/ezra-klein-podcast-chris-hayes.html?searchResultPosition=7
 
-**Checking Privilege in the Animal Kingdom**\
-`Researchers say the human concepts of intergenerational wealth and inequality are useful for studying some animals’ behavior.`\
-https://nytimes.com/2022/01/11/science/inequality-intergenerational-wealth-animals.html?searchResultPosition=8
+**Why Do Women Gain Belly Fat in Midlife?**\
+`And is there any way to target it through diet or exercise?`\
+https://nytimes.com/2022/01/11/well/move/belly-fat-women.html?searchResultPosition=8
 
-**Seth Meyers: ‘Ted Cruz Has a Thing for Self-Humiliation’**\
-`“That clip was like watching one of those dumb cable news segments where a reporter willingly gets Tasered just to show everyone how bad it is,” Meyers joked of Cruz’s recent appearance on ‘Tucker Carlson.’`\
-https://nytimes.com/2022/01/11/arts/television/ted-cruz-tucker-carlson.html?searchResultPosition=9
+**Must I Donate a Kidney to My Awful Brother?**\
+`The magazine’s Ethicist columnist on what you owe to a sibling who didn’t treat you right and how to handle a potential bullying situation at your child’s school.`\
+https://nytimes.com/2022/01/11/magazine/kidney-donation-ethics.html?searchResultPosition=9
 
-**Word of the Day: winnow**\
-`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/11/learning/word-of-the-day-winnow.html?searchResultPosition=10
+**It’s Time for the U.S. to Work With the Taliban**\
+`Kneecapping the government through continued sanctions and frozen aid won’t change the fact that the Taliban are now in charge.`\
+https://nytimes.com/2022/01/11/opinion/afghanistan-taliban-us.html?searchResultPosition=10
 
