@@ -1,12 +1,12 @@
 **Jerome Powell says the Fed will tighten trading rules after an ethics scandal.**\
 `The Federal Reserve is embroiled in a scandal over trades officials made in 2020, before and after they rescued markets.`\
-https://nytimes.com/2022/01/11/business/jerome-powell-says-the-fed-will-tighten-trading-rules-after-an-ethics-scandal.html?searchResultPosition=1
+https://nytimes.com/2022/01/11/business/jerome-powell-trading-ethics-rules.html?searchResultPosition=1
 
 **Is Government Money Creation Actually Enabling Deficit Spending?**\
 `Bitcoin can’t solve a problem we don’t actually have.`\
 https://nytimes.com/2022/01/11/opinion/bitcoin-inflation-deficit-spending.html?searchResultPosition=2
 
-**A Pandemic Party Again Has Boris Johnson on the Hot Seat**\
+**A Pandemic Party Again Has Boris Johnson in the Hot Seat**\
 `The prime minister and his government are accused — yet again — of violating their own lockdown rules, undermining their credibility and attempts to pivot to other issues.`\
 https://nytimes.com/2022/01/11/world/europe/boris-johnson-uk-parties.html?searchResultPosition=3
 
