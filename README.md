@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/11/arts/music/sadie-jean-wyd-now-lil-yachty.html?sea
 `President Biden and Vice President Kamala Harris deliver remarks on the urgency of passing voting rights legislation, as bills stall in Congress and a swath of states try to limit access to the ballot box.`\
 https://nytimes.com/video/us/politics/100000008152026/biden-harris-voting-rights-atlanta-live-video.html?searchResultPosition=2
 
-**4 Injured in Medical Helicopter Crash Near Philadelphia**\
+**Infant Among 4 Injured in Medical Helicopter Crash Near Philadelphia**\
 `The authorities said it was a “miracle” that the injuries were not life-threatening. The helicopter was carrying an infant patient to the Children’s Hospital of Philadelphia.`\
 https://nytimes.com/2022/01/11/us/helicopter-crash-drexel-hill-pa.html?searchResultPosition=3
 
