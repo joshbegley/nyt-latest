@@ -1,6 +1,6 @@
 **Fauci accuses Senator Paul of fueling threats against him in the latest exchange.**\
 `Senator Rand Paul accused Dr. Anthony Fauci of trying to undermine scientists who disagreed with him. Dr. Fauci denied the allegation and accused Republicans of feeding attacks against him.`\
-https://nytimes.com/2022/01/11/us/politics/paul-fauci-senate-testimony.html?searchResultPosition=1
+https://nytimes.com/2022/01/11/us/politics/rand-paul-fauci-covid.html?searchResultPosition=1
 
 **Delta Air Lines and a union spar over isolation periods for sick workers.**\
 `The airline’s top lawyer sent a letter telling the union to stop criticizing policies on how many days workers should quarantine if they test positive for the coronavirus.`\
