@@ -28,7 +28,7 @@ https://nytimes.com/video/us/politics/100000008155761/biden-filibuster-voting-ri
 
 **Bob Falkenburg, Tennis Hall of Famer Turned Entrepreneur, Dies at 95**\
 `He won at Wimbledon in 1948 and took some doubles titles before decamping to Brazil and founding a fast-food chain.`\
-https://nytimes.com/2022/01/11/sports/tennis/bob-falkenburg-tennis-hall-of-famer-turned-entrepreneur-dies-at-95.html?searchResultPosition=8
+https://nytimes.com/2022/01/11/sports/tennis/bob-falkenburg-dead.html?searchResultPosition=8
 
 **Justice Dept. Forms Domestic Terrorism Unit**\
 `The move is in keeping with Attorney General Merrick B. Garland’s vow to make combating domestic terrorism a priority.`\
