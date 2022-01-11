@@ -1,4 +1,4 @@
-**Chicago Schools To Reopen After Reaching Deal With Teachers’ Union**\
+**Chicago Schools to Reopen After Reaching Deal With Teachers’ Union**\
 `The city of Chicago and the Chicago Teachers Union agreed to return to in-person learning in a deal that would include additional testing and metrics to close schools with major virus outbreaks.`\
 https://nytimes.com/video/us/100000008154985/chicago-schools-reopen-covid.html?searchResultPosition=1
 
