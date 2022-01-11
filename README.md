@@ -14,8 +14,8 @@ https://nytimes.com/2022/01/11/climate/dont-look-up-climate.html?searchResultPos
 `Sidney Poitier and Peter Bogdanovich were geniuses of the Hollywood system who, with great success and frustration, worked to transform it in the same era.`\
 https://nytimes.com/2022/01/11/movies/sidney-poitier-peter-bogdanovich.html?searchResultPosition=4
 
-**Why Covid Testing Is Falling Short in Many Schools Across the U.S.**\
-`As millions of American students head back to their desks, the Covid-19 testing that was supposed to help keep classrooms open safely is itself being tested.`\
+**Why Coronavirus Testing Is Falling Short in Many Schools Across the U.S.**\
+`As millions of American students head back to their desks, the virus testing that was supposed to help keep classrooms open safely is itself being tested.`\
 https://nytimes.com/2022/01/11/us/schools-covid-testing.html?searchResultPosition=5
 
 **Melatonin Isn’t a Sleeping Pill. Here’s How to Use It.**\
