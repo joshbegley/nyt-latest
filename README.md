@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/11/arts/music/michael-lang-dead.html?searchResultPos
 `“A closing window to act,” said the W.H.O.’s Europe director.`\
 https://nytimes.com/2022/01/11/briefing/omicron-europe-afghanistan-aid-biden.html?searchResultPosition=2
 
-**Christmas Tree Sparked Fatal Philadelphia Rowhouse Fire**\
+**Philadelphia Fire Started When Boy, 5, Ignited Christmas Tree**\
 `Investigators determined that a 5-year-old, who told the police he had been playing with a lighter, was the only person in the part of the apartment where the fire began.`\
 https://nytimes.com/2022/01/11/us/philadelphia-fire-christmas-tree.html?searchResultPosition=3
 
