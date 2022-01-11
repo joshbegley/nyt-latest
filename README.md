@@ -30,7 +30,7 @@ https://nytimes.com/2022/01/11/us/politics/justice-dept-domestic-terrorism.html?
 `With Covid here to stay, some public health experts say we need to adapt to a “new normal.”`\
 https://nytimes.com/2022/01/11/opinion/omicron-covid-biden.html?searchResultPosition=8
 
-**Hundreds of Rikers Detainees Protest Over Covid and the Cold**\
+**Hundreds at Rikers Protest Conditions, Citing Covid and the Cold**\
 `Detainees in one jail at the Rikers Island complex are refusing to eat Correction Department meals.`\
 https://nytimes.com/2022/01/11/nyregion/rikers-island-hunger-strike.html?searchResultPosition=9
 
