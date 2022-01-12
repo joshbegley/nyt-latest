@@ -3,8 +3,8 @@
 https://nytimes.com/2022/01/12/briefing/inflation-beijing-olympics-dry-january.html?searchResultPosition=1
 
 **‘We must not allow this virus a free ride, or wave the white flag,’ the top W.H.O. official says.**\
-`By Adeel Hassan and Isabella Kwai`\
-https://nytimes.com/2022/01/12/world/we-must-not-allow-this-virus-a-free-ride-or-wave-the-white-flag-the-top-who-official-says.html?searchResultPosition=2
+`Over the past week, a staggering average of 2.6 million new cases a day has been reported, according to according to the Center for Systems Science and Engineering at Johns Hopkins University.`\
+https://nytimes.com/2022/01/12/world/who-omicron-coronavirus.html?searchResultPosition=2
 
 **7 Ways to Remember Martin Luther King in New York**\
 `From in-person and virtual performances to exhibitions and tours, the city offers plenty of options for honoring the civil rights leader this year.`\
