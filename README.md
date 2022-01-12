@@ -1,4 +1,4 @@
-**Corrections: Jan. 12, 2021**\
+**Corrections: Jan. 12, 2022**\
 `Corrections that appeared in print on Wednesday, Jan. 12, 2022.`\
 https://nytimes.com/2022/01/11/pageoneplus/corrections-jan-12-2021.html?searchResultPosition=1
 
