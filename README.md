@@ -1,5 +1,5 @@
 **Watch Live: U.S. Envoy Speaks After NATO-Russia Council Meeting**\
-`The deputy secretary of state, Wendy R. Sherman, holds a news conference.`\
+`The deputy secretary of state, Wendy R. Sherman, is scheduled to hold a news conference.`\
 https://nytimes.com/video/world/europe/100000008155545/wendy-sherman-nato-russia-livestream.html?searchResultPosition=1
 
 **The Newest Corporate Perk**\
