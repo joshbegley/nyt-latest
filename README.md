@@ -1,6 +1,6 @@
 **NATO and Russia Talk Frankly, but Past One Another for Now**\
 `Four hours of frank and serious discussion between Russia and the 30-member alliance leave unanswered whether Vladimir V. Putin will choose diplomacy or war.`\
-https://nytimes.com/2022/01/12/world/europe/nato-russia-talks-brussels-ukraine.html?searchResultPosition=1
+https://nytimes.com/2022/01/12/world/europe/nato-russia-talks-ukraine-brussels.html?searchResultPosition=1
 
 **Dale Clevenger, Chicago Symphony’s Fearless Horn Master, Dies at 81**\
 `Mr. Clevenger, who played his notoriously treacherous instrument with daring, was an anchor of the Chicago orchestra’s famed brass section for 47 years.`\
