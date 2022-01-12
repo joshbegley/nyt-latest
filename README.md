@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/11/todayspaper/quotation-of-the-day-russia-professes
 
 **Two Held in Fatal Shooting of the Memphis Rapper Young Dolph**\
 `One suspect was captured by federal marshals in Indiana after failing to surrender as he had promised on social media, the authorities said.`\
-https://nytimes.com/2022/01/11/arts/music/young-dolph-arrests.html?searchResultPosition=4
+https://nytimes.com/2022/01/11/arts/music/young-dolph-shooting-arrests.html?searchResultPosition=4
 
 **Cause for an ‘Aha!’**\
 `Adam Aaronson is counting on you.`\
