@@ -1,5 +1,5 @@
 **Watch Live: U.S. Envoy Speaks After NATO-Russia Council Meeting**\
-`The deputy secretary of state, Wendy R. Sherman, is scheduled to hold a news conference.`\
+`The deputy secretary of state, Wendy R. Sherman, holds a news conference.`\
 https://nytimes.com/video/world/europe/100000008155545/wendy-sherman-nato-russia-livestream.html?searchResultPosition=1
 
 **The Newest Corporate Perk**\
@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/12/business/grid-news-site-live.html?searchResultPos
 `Each week we spotlight five student activities created for a broad range of learners based on reporting in The New York Times.`\
 https://nytimes.com/2022/01/12/learning/weekly-accessible-learning-activities-food-carts-bravery-and-vocabulary-stories.html?searchResultPosition=9
 
-**Price inflation is expected to pop again as policymakers await an elusive peak.**\
-`Economists expect a 7 percent gain in the Consumer Price Index, which would be the fastest pace since mid-1982.`\
+**Consumer prices popped again in December as policymakers await an elusive peak.**\
+`The Consumer Price Index increased at the fastest pace in nearly 40 years, a new report showed.`\
 https://nytimes.com/2022/01/12/business/economy/cpi-inflation-december-2021.html?searchResultPosition=10
 
