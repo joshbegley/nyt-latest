@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/12/arts/design/james-clark-cambodian-antiquities.htm
 
 **Woman Jailed in Iran Has Returned to U.K.**\
 `Aras Amiri, a arts worker employed by the British Council, was arrested in March 2018 on espionage charges. She was acquitted in August and few back to Britain earlier this week.`\
-https://nytimes.com/2022/01/12/world/middleeast/british-council-aras-amiri-released-iran-uk.html?searchResultPosition=2
+https://nytimes.com/2022/01/12/world/middleeast/aras-amiri-released-iran.html?searchResultPosition=2
 
 **André Onana Just Wants to Play**\
 `Cameroon’s 25-year-old goalkeeper has already had his career interrupted twice by bans. Now he’s back, and eager to move on.`\
