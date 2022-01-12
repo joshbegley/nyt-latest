@@ -23,7 +23,7 @@ https://nytimes.com/2022/01/12/health/alan-scott-dead.html?searchResultPosition=
 https://nytimes.com/2022/01/12/arts/design/james-clark-cambodian-antiquities.html?searchResultPosition=6
 
 **Woman Jailed in Iran Has Returned to U.K.**\
-`Aras Amiri, a arts worker employed by the British Council, was arrested in March 2018 on espionage charges. She was acquitted in August and few back to Britain earlier this week.`\
+`Aras Amiri, a arts worker employed by the British Council, was arrested in March 2018 on espionage charges. She was acquitted in August and flew back to Britain earlier this week.`\
 https://nytimes.com/2022/01/12/world/middleeast/aras-amiri-released-iran.html?searchResultPosition=7
 
 **André Onana Just Wants to Play**\
