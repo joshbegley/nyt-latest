@@ -26,15 +26,15 @@ https://nytimes.com/slideshow/2022/01/12/realestate/a-look-at-the-growing-south-
 `Cross-country ski racers were less likely to develop anxiety disorders. The good news is less intense aerobic activities may provide similar benefits.`\
 https://nytimes.com/2022/01/12/well/move/exercise-anxiety.html?searchResultPosition=7
 
+**That Cloud of Smoke Is Not a Mirage**\
+`Cigarettes, once shunned, have made a comeback with a younger crowd who knows better.`\
+https://nytimes.com/2022/01/12/style/smoking-cigarettes-comeback.html?searchResultPosition=8
+
 **Biden Must Be More Aggressive in Ending New Truck and Bus Emissions**\
 `To meet his climate goals, the president must clean up these carbon-spewing vehicles. `\
-https://nytimes.com/2022/01/12/opinion/climate-change-biden-trucks-buses.html?searchResultPosition=8
+https://nytimes.com/2022/01/12/opinion/climate-change-biden-trucks-buses.html?searchResultPosition=9
 
 **The Gender Gap Is Taking Us to Unexpected Places**\
 `With unforeseen and underexplored consequences.`\
-https://nytimes.com/2022/01/12/opinion/gender-gap-politics.html?searchResultPosition=9
-
-**The Weddings Section Asks What It Means to Be Committed in 2022**\
-`The Times Weddings editor Charanna Alexander discusses the decision to move away from the traditional Times wedding announcement and her plans for the section.`\
-https://nytimes.com/2022/01/12/insider/weddings-section-committed-meaning-2022.html?searchResultPosition=10
+https://nytimes.com/2022/01/12/opinion/gender-gap-politics.html?searchResultPosition=10
 
