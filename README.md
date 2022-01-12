@@ -2,7 +2,7 @@
 `Economists expect a 7 percent gain in the Consumer Price Index, which would be the fastest pace since mid-1982.`\
 https://nytimes.com/2022/01/12/business/economy/cpi-inflation-december-2021.html?searchResultPosition=1
 
-**Pro Sports Leagues Chase Gen Z Where It Plays**\
+**Pro Sports Leagues Are Chasing Gen Z Where It Plays**\
 `Here’s what sports marketers are doing to win back a lost generation.`\
 https://nytimes.com/2022/01/12/sports/video-games-nfl-gamers-gen-z.html?searchResultPosition=2
 
