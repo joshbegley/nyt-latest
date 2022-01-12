@@ -10,8 +10,8 @@ https://nytimes.com/2022/01/12/us/politics/democrats-voting-rights-bill.html?sea
 `The federal government is borrowing cheaply, but its debt could reach a tipping point.`\
 https://nytimes.com/2022/01/12/opinion/rising-federal-debt.html?searchResultPosition=3
 
-**Jan. 6 Committee Asks McCarthy for Interview in Riot Investigation**\
-`The panel said it was interested in conversations the top House Republican had with Donald J. Trump on the day of the riot and in its aftermath.`\
+**Jan. 6 Committee Seeks to Interview Kevin McCarthy**\
+`The panel said it was interested in conversations the top House Republican had with then-President Donald J. Trump on the day of the riot and afterward.`\
 https://nytimes.com/2022/01/12/us/politics/kevin-mccarthy-jan-6-committee.html?searchResultPosition=4
 
 **What We’re Looking Forward to This Year**\
