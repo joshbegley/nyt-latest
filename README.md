@@ -1,40 +1,40 @@
-**The Landlord’s Worst Nightmare Is a Basic Human Right**\
-`The comedian and journalist Jeff Seal takes to the streets to rally support for a little-known bill that would protect millions of New Yorkers from unjust evictions. But a powerful lobby stands in its way.`\
-https://nytimes.com/video/opinion/100000008153212/new-york-eviction-bill.html?searchResultPosition=1
+**The Army of Millions Who Enforce China’s Zero-Covid Policy, at All Costs**\
+`As the troubled lockdown in Xi’an has shown, many Chinese people remain willing to work diligently toward the government’s goal of eliminating the virus, no matter the consequences.`\
+https://nytimes.com/2022/01/12/business/china-zero-covid-policy-xian.html?searchResultPosition=1
 
-**Exploring the Creative Process With ‘Live Art’**\
-`In this art lesson, we invite students to watch illustrators draw and discuss the choices they make in their work. Then, students experiment with these practices in their own projects.`\
-https://nytimes.com/2022/01/12/learning/lesson-plans/exploring-the-creative-process-with-live-art.html?searchResultPosition=2
+**Pro Sports Leagues Want to Take Gen Z Back to the Old Ball Game**\
+`But first, they’ll have to tear children away from their video games. Here’s what sports marketers are doing to win back a lost generation.`\
+https://nytimes.com/2022/01/12/sports/video-games-nfl-gamers-gen-z.html?searchResultPosition=2
 
-**Fire in a High-rise? In Most Cases, the Fire Dept. Says Stay Put.**\
-`As relatives waited for victims of a deadly Bronx high-rise fire to be identified, officials said simple safety measures could make a difference.`\
-https://nytimes.com/2022/01/12/nyregion/bronx-fire-safety-victims.html?searchResultPosition=3
+**The South End of Stamford, Conn.: Master-Planned With Luxury Rentals, and Lots of Pets**\
+`The neighborhood, a 322-acre peninsula on Long Island Sound, has been redeveloped with 4,000 new apartments. And there are more to come.`\
+https://nytimes.com/2022/01/12/realestate/living-stamford-south-end.html?searchResultPosition=3
 
-**SAG Award Nominations 2022: What to Watch for**\
-`The actors’ group will be unveiling its list amid a Covid-affected Oscar season.`\
-https://nytimes.com/2022/01/12/movies/sag-nominations-2022.html?searchResultPosition=4
+**The Visions of Penélope Cruz**\
+`She already felt a mystical connection with the director Pedro Almodóvar. For their seventh collaboration, “Parallel Mothers,” she gave her all, even collapsing after one scene.`\
+https://nytimes.com/2022/01/12/movies/penelope-cruz-pedro-almodovar-parallel-mothers.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/12/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Why Some Workers Are Getting All the Covid Tests They Need**\
+`In the absence of a national effort to make coronavirus testing widely available, a number of big American companies ramped up their own, making tests available for a select group of workers.`\
+https://nytimes.com/2022/01/12/business/covid-testing-google-blackrock-morgan-stanley.html?searchResultPosition=5
 
-**Weapon Burger**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2022/01/12/learning/weapon-burger.html?searchResultPosition=6
+**A Look at the Growing South End in Stamford**\
+`Over the last decade, about 4,000 luxury rentals have been built in the neighborhood, and there are more to come.`\
+https://nytimes.com/slideshow/2022/01/12/realestate/a-look-at-the-growing-south-end-in-stamford.html?searchResultPosition=6
 
-**Stephen Colbert Debates Catching Omicron on Purpose**\
-`“I mean, all the other late-night hosts are doing it,” Colbert said.`\
-https://nytimes.com/2022/01/12/arts/television/colbert-deliberately-catching-omicron.html?searchResultPosition=7
+**How Exercise May Tame Our Anxiety**\
+`Cross-country ski racers were less likely to develop anxiety disorders. The good news is less intense aerobic activities may provide similar benefits.`\
+https://nytimes.com/2022/01/12/well/move/exercise-anxiety.html?searchResultPosition=7
 
-**Word of the Day: stalwart**\
-`This word has appeared in 173 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/12/learning/word-of-the-day-stalwart.html?searchResultPosition=8
+**Biden Must Be More Aggressive in Ending New Truck and Bus Emissions**\
+`To meet his climate goals, the president must clean up these carbon-spewing vehicles. `\
+https://nytimes.com/2022/01/12/opinion/climate-change-biden-trucks-buses.html?searchResultPosition=8
 
-**The Reason Every N.F.L. Playoff Team Will Lose**\
-`Only one of these teams will prove us wrong.`\
-https://nytimes.com/2022/01/12/sports/football/nfl-playoff-teams.html?searchResultPosition=9
+**The Gender Gap Is Taking Us to Unexpected Places**\
+`With unforeseen and underexplored consequences.`\
+https://nytimes.com/2022/01/12/opinion/gender-gap-politics.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`“The moment to defend our democracy is now.”`\
-https://nytimes.com/2022/01/11/briefing/biden-filibuster-omicron-europe.html?searchResultPosition=10
+**The Weddings Section Asks What It Means to Be Committed in 2022**\
+`The Times Weddings editor Charanna Alexander discusses the decision to move away from the traditional Times wedding announcement and her plans for the section.`\
+https://nytimes.com/2022/01/12/insider/weddings-section-committed-meaning-2022.html?searchResultPosition=10
 
