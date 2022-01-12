@@ -35,6 +35,6 @@ https://nytimes.com/2022/01/12/opinion/parents-school-omicron.html?searchResultP
 https://nytimes.com/2022/01/12/world/europe/nato-definition.html?searchResultPosition=9
 
 **Is Gruyère Still Gruyère if It Doesn’t Come From Gruyères?**\
-`The U.S. District Court in Virginia says yes. In a ruling, a federal judge sided with U.S. cheese producers and said gruyère could be produced anywhere, not just in Switzerland and France.`\
+`A federal judge says yes, siding with U.S. cheese producers who say gruyère can be produced anywhere, not just in Switzerland and France.`\
 https://nytimes.com/2022/01/12/business/gruyere-cheese-us-court-ruling.html?searchResultPosition=10
 
