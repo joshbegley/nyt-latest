@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/12/sports/video-games-nfl-gamers-gen-z.html?searchRe
 
 **The South End of Stamford, Conn.: Master-Planned With Luxury Rentals, and Lots of Pets**\
 `The neighborhood, a 322-acre peninsula on Long Island Sound, has been redeveloped with 4,000 new apartments. And there are more to come.`\
-https://nytimes.com/2022/01/12/realestate/living-stamford-south-end.html?searchResultPosition=3
+https://nytimes.com/2022/01/12/realestate/living-stamford-ct-south-end.html?searchResultPosition=3
 
 **The Visions of Penélope Cruz**\
 `She already felt a mystical connection with the director Pedro Almodóvar. For their seventh collaboration, “Parallel Mothers,” she gave her all, even collapsing after one scene.`\
