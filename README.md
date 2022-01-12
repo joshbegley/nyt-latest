@@ -11,7 +11,7 @@ https://nytimes.com/video/world/europe/100000008155545/wendy-sherman-nato-russia
 https://nytimes.com/2022/01/12/business/dealbook/covid-testing-companies.html?searchResultPosition=3
 
 **Boris Johnson, Under Fire, Apologizes for Pandemic Party**\
-`The British prime minister, on the defensive after a series of ethical lapses, said, “I know there are things we simply did not get right” about a gathering at 10 Downing Street during a lockdown in 2020.`\
+`The British prime minister, on the defensive after a series of ethical lapses, said, “There were things we simply did not get right” about a gathering at Downing Street during a lockdown in 2020.`\
 https://nytimes.com/2022/01/12/world/europe/boris-johnson-uk-parties.html?searchResultPosition=4
 
 **Valuable Learnings in Times of Crisis**\
