@@ -6,9 +6,9 @@ https://nytimes.com/2022/01/11/briefing/biden-filibuster-omicron-europe.html?sea
 `As the American Airlines flight was boarding on Tuesday afternoon, the passenger entered the cockpit and “caused damage,” the airline said.`\
 https://nytimes.com/2022/01/11/business/american-airlines-honduras-passenger-cockpit.html?searchResultPosition=2
 
-**Djokovic Says He Did Interview and Photo Shoot Even After Testing Positive**\
-`The tennis star released a statement that he said would clarify “misinformation” as the Australian authorities weigh whether to deport him.`\
-https://nytimes.com/2022/01/11/world/asia/novak-djokovic-covid-statement.html?searchResultPosition=3
+**Djokovic Admits False Statement on Australia Travel Document**\
+`The tennis star also said he had participated in an interview and a photo shoot even after testing positive for the coronavirus, in an apparent violation of rules in his native Serbia.`\
+https://nytimes.com/2022/01/12/world/asia/novak-djokovic-covid-statement.html?searchResultPosition=3
 
 **Quotation of the Day: Russia Professes ‘No Intention to Invade.’ Ukraine Isn’t Convinced.**\
 `Quotation of the Day for Wednesday, January 12, 2022.`\
