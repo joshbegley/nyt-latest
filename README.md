@@ -1,5 +1,5 @@
 **Lael Brainard will call inflation ‘too high’ at nomination hearing for Fed vice chair.**\
-`Ms. Brainard, a Federal Reserve governor who President Biden nominated for vice chair, will say the central bank is focused on getting price gains back down.`\
+`Ms. Brainard, a Federal Reserve governor whom President Biden nominated for vice chair, will say the central bank is focused on getting price gains back down.`\
 https://nytimes.com/2022/01/12/business/economy/lael-brainard-fed-confirmation-hearing.html?searchResultPosition=1
 
 **Democrats Plan to Fast-Track Voting Rights Bill, Speeding a Showdown**\
