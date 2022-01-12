@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/12/business/covid-testing-google-blackrock-morgan-st
 `Over the last decade, about 4,000 luxury rentals have been built in the neighborhood, and there are more to come.`\
 https://nytimes.com/slideshow/2022/01/12/realestate/a-look-at-the-growing-south-end-in-stamford.html?searchResultPosition=8
 
+**Biden Must Be More Aggressive in Ending New Truck and Bus Emissions**\
+`To meet his climate goals, the president must clean up these carbon-spewing vehicles. `\
+https://nytimes.com/2022/01/12/opinion/climate-change-biden-trucks-buses.html?searchResultPosition=9
+
 **How Exercise May Tame Our Anxiety**\
 `Cross-country ski racers were less likely to develop anxiety disorders. The good news is less intense aerobic activities may provide similar benefits.`\
-https://nytimes.com/2022/01/12/well/move/exercise-anxiety.html?searchResultPosition=9
-
-**That Cloud of Smoke Is Not a Mirage**\
-`Cigarettes, once shunned, have made a comeback with a younger crowd who knows better.`\
-https://nytimes.com/2022/01/12/style/smoking-cigarettes-comeback.html?searchResultPosition=10
+https://nytimes.com/2022/01/12/well/move/exercise-anxiety.html?searchResultPosition=10
 
