@@ -35,6 +35,6 @@ https://nytimes.com/2022/01/12/business/grid-news-site-live.html?searchResultPos
 https://nytimes.com/2022/01/12/learning/weekly-accessible-learning-activities-food-carts-bravery-and-vocabulary-stories.html?searchResultPosition=9
 
 **Consumer prices popped again in December as policymakers await an elusive peak.**\
-`The Consumer Price Index increased at the fastest pace in nearly 40 years, a new report showed.`\
+`The Consumer Price Index increased at the fastest pace in 40 years, a new report showed.`\
 https://nytimes.com/2022/01/12/business/economy/cpi-inflation-december-2021.html?searchResultPosition=10
 
