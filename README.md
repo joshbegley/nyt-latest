@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/11/nyregion/bronx-fire-missing-persons.html?searchRe
 
 **A Voting Rights Push, as States Make Voting Harder**\
 `President Biden says he won’t keep “quiet” any longer about protecting ballot access. But voting rights groups say he should’ve raised his voice months ago.`\
-https://nytimes.com/2022/01/11/us/politics/a-voting-rights-push-as-states-make-voting-harder.html?searchResultPosition=2
+https://nytimes.com/2022/01/11/us/politics/biden-voting-rights-state-laws.html?searchResultPosition=2
 
 **What Putin Really Wants From the Ukraine Crisis**\
 `He wants to break NATO’s back. And he might succeed.`\
