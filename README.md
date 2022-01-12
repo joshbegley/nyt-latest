@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/12/business/economy/cpi-inflation-december-2021.html?searchResultPosition=1
 
 **Pro Sports Leagues Are Chasing Gen Z Where It Plays**\
-`Here’s what sports marketers are doing to win back a lost generation.`\
+`Here’s what sports marketers are doing to win back a lost generation and save the future of fandom.`\
 https://nytimes.com/2022/01/12/sports/video-games-nfl-gamers-gen-z.html?searchResultPosition=2
 
 **The Army of Millions Who Enforce China’s Zero-Covid Policy, at All Costs**\
