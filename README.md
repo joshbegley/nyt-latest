@@ -1,6 +1,6 @@
 **Jonny Greenwood: First Radiohead, Now Orchestras and Film**\
 `Scoring films like “The Power of the Dog” and “Spencer,” he has become a major composer, his concert music fueling his soundtracks.`\
-https://nytimes.com/2022/01/12/arts/music/jonny-greenwood-power-dog-diana.html?searchResultPosition=1
+https://nytimes.com/2022/01/12/arts/music/jonny-greenwood-power-dog-spencer.html?searchResultPosition=1
 
 **A Wet January, Thanks to Covid**\
 `Not drinking for a month sounded easy enough. But for some, Omicron changed those plans.`\
