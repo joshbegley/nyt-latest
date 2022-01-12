@@ -1,5 +1,5 @@
-**Rate of Covid-19 Infection Slows Down in N.Y.C., Governor Says**\
-`Governor Kathy Hochul of New York said the rate of new coronavirus cases in New York City had begun to plateau but hospitalization continued to grow.`\
+**Rate of New Coronavirus Cases Slows in N.Y.C., Governor Says**\
+`Governor Kathy Hochul of New York said case numbers in New York City had begun to plateau, but hospitalizations continued to grow.`\
 https://nytimes.com/video/nyregion/100000008155956/covid-omicron-cases-nyc.html?searchResultPosition=1
 
 **How Candy Leads to Deforestation**\
