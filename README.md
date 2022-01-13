@@ -10,17 +10,17 @@ https://nytimes.com/2022/01/13/business/adb-smart-headlights-us.html?searchResul
 `In parts of the Northeast, it seems to be.`\
 https://nytimes.com/2022/01/13/briefing/omicron-peak-us-northeast.html?searchResultPosition=3
 
+**C.E.O.s Were Our Heroes, at Least According to Them**\
+`They stepped up in the pandemic “to save the world,” says Marc Benioff of Salesforce. Even as their tax practices and perches kept them above its troubles.`\
+https://nytimes.com/2022/01/13/business/davos-man-marc-benioff-book.html?searchResultPosition=4
+
 **The Taliban Have Staffing Issues. They Are Looking for Help in Pakistan.**\
 `Government jobs are given as patronage to ex-fighters and exiles living quietly in Pakistan. But not all possess the technical skills required for the job.`\
-https://nytimes.com/2022/01/13/world/taliban-members.html?searchResultPosition=4
+https://nytimes.com/2022/01/13/world/taliban-members.html?searchResultPosition=5
 
 **He Was an Important Conductor. Also a Great One.**\
 `Hans Rosbaud was renowned as a modern-music specialist. But newly released archival recordings demonstrate his gifts were far broader.`\
-https://nytimes.com/2022/01/13/arts/music/hans-rosbaud-classical-music.html?searchResultPosition=5
-
-**C.E.O.s Were Our Heroes, at Least According to Them**\
-`They stepped up in the pandemic “to save the world,” says Marc Benioff of Salesforce. Even as their tax practices and perches kept them above its troubles.`\
-https://nytimes.com/2022/01/13/business/davos-man-marc-benioff-book.html?searchResultPosition=6
+https://nytimes.com/2022/01/13/arts/music/hans-rosbaud-classical-music.html?searchResultPosition=6
 
 **Hochul Unveiled a Sweeping Vision for New York. Now Comes the Hard Part.**\
 `After laying out her priorities in the State of the State address, Gov. Kathy Hochul must now work with the Legislature to back her with funding and new laws.`\
