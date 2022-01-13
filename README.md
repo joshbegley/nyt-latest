@@ -15,7 +15,7 @@ https://nytimes.com/2022/01/13/dining/the-remarkable-versatility-of-broccoli.htm
 https://nytimes.com/2022/01/13/arts/design/james-castle-david-zwirner.html?searchResultPosition=4
 
 **Teachers in France Stage Walkout Over Covid Rules in Schools**\
-`Tens of thousands of teachers, other school personnel and parents took to the streets on Thursday to protest shifting, confusing rules that say are now too lax.`\
+`Tens of thousands of teachers, other school personnel and parents took to the streets on Thursday to protest shifting, confusing rules that they say are now too lax.`\
 https://nytimes.com/2022/01/13/world/europe/france-teachers-walkout-covid-coronavirus.html?searchResultPosition=5
 
 **A Divisive Figure Around the World, Djokovic Is a Hero in Serbia**\
