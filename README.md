@@ -1,40 +1,40 @@
-**With Djokovic’s Status in Limbo, So Is the Australian Open**\
-`Thursday brought no resolution in the star’s duel with the government, even as the tournament’s draw placed him (for now) at the top of the bracket.`\
-https://nytimes.com/2022/01/13/sports/tennis/novak-djokovic-australian-open-draw.html?searchResultPosition=1
+**The Taliban Have H.R. Problems. They Are Looking for Help in Pakistan.**\
+`Government jobs are given as patronage to ex-fighters and exiles living quietly in Pakistan. But not all possess the technical skills required for the job.`\
+https://nytimes.com/2022/01/13/world/taliban-pakistan-afghanistan-government.html?searchResultPosition=1
 
-**Utilities in Germany secure funding in the face of exploding energy prices.**\
-`Energy companies say they need extra financing to cover future commitments as natural gas prices remain near record levels.`\
-https://nytimes.com/2022/01/13/world/europe/germany-utilities-funding-prices.html?searchResultPosition=2
+**He Was an Important Conductor. Also a Great One.**\
+`Hans Rosbaud was renowned as a modern-music specialist. But newly released archival recordings demonstrate his gifts were far broader.`\
+https://nytimes.com/2022/01/13/arts/music/hans-rosbaud-classical-music.html?searchResultPosition=2
 
-**Prince Andrew Can’t Avoid His Day in Court, a Judge Rules**\
-`Andrew was sued in New York by Virginia Giuffre, who said he raped her when she was a teenager. The trial could cloud the celebration of Queen Elizabeth’s 70-year reign.`\
-https://nytimes.com/2022/01/13/nyregion/prince-andrew-cant-avoid-his-day-in-court-a-judge-rules.html?searchResultPosition=3
+**C.E.O.s Were Our Heroes, at Least According to Them**\
+`They stepped up in the pandemic “to save the world,” says Marc Benioff of Salesforce. Even as their tax practices and perches kept them above its troubles.`\
+https://nytimes.com/2022/01/13/business/davos-man-marc-benioff-book.html?searchResultPosition=3
 
-**For Putin, Propping Up Allies Is Turning Into a Perilous Bargain**\
-`The Russian leader is fighting fires on multiple fronts, illustrating the danger of his strategy of relying on force to aid his autocratic neighbors.`\
-https://nytimes.com/2022/01/13/world/europe/putin-ukraine-kazakhstan.html?searchResultPosition=4
+**Hochul Unveiled a Sweeping Vision for New York. Now Comes the Hard Part.**\
+`After laying out her priorities in the State of the State address, Gov. Kathy Hochul must now work with the Legislature to back her with funding and new laws.`\
+https://nytimes.com/2022/01/13/nyregion/kathy-hochul-budget-agenda.html?searchResultPosition=4
 
-**Contouring Is Back. It’s Not What You Remember.**\
-`A lot of women who once avoided contouring because of its unnatural, made-for-Instagram effect, are now gravitating toward it.`\
-https://nytimes.com/2022/01/13/style/contouring-is-back-its-not-what-you-remember.html?searchResultPosition=5
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2022/01/13/arts/things-to-do-this-weekend.html?searchResultPosition=5
 
-**A Pop Star Becomes a Guru**\
-`Alex Ebert, the lead troubadour of Edward Sharpe and the Magnetic Zeros, flips to the B side of his career: philosopher.`\
-https://nytimes.com/2022/01/13/style/alex-ebert-bad-guru.html?searchResultPosition=6
+**Into the Belly of the Whale With Sjón**\
+`The Icelandic novelist, poet and Bjork collaborator is a surrealist for our time.`\
+https://nytimes.com/2022/01/13/magazine/sjon-poet-novelist-lyricist.html?searchResultPosition=6
 
-**Balaclavas Are Trendy, but for Some Muslim Women It’s More Complicated**\
-`The sudden popularity of the hoodlike head covering has spurred a comparison to hijabs.`\
-https://nytimes.com/2022/01/13/style/balaclavas-muslim-women-hijab.html?searchResultPosition=7
+**We Need to Think the Unthinkable About Our Country**\
+`It’s plausible that the United States as we know it could disintegrate. Institutions need to consider worst-case scenarios — to help avoid them. `\
+https://nytimes.com/2022/01/13/opinion/january-6-civil-war.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/13/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Maren Morris, a Pop-Curious Hitmaker, Is Country, After All**\
+`With proven Top 40 chops, the singer has still chosen to call Nashville home on her third album, “Humble Quest,” due out in March.`\
+https://nytimes.com/2022/01/13/arts/music/maren-morris-humble-quest.html?searchResultPosition=8
 
-**In London Theaters, the Show (Sometimes) Goes On**\
-`A surge in coronavirus infections toppled production after production, but two stage adaptations — of a movie and a blockbuster novel — recovered and endure.`\
-https://nytimes.com/2022/01/13/theater/force-majeure-donmar-life-of-pi-wyndhams.html?searchResultPosition=9
+**Our Patients Are Scared of Omicron. Here’s What Can Be Done to Help.**\
+`Only with a better understanding of the science do we have any hope of protecting our vulnerable friends, family members and neighbors.`\
+https://nytimes.com/2022/01/13/opinion/omicron-immunocompromised.html?searchResultPosition=9
 
-**Word of the Day: omnibus**\
-`This word has appeared in 50 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/13/learning/word-of-the-day-omnibus.html?searchResultPosition=10
+**Why This Liberal Mayor Doesn’t Want a Lecture From Progressives**\
+`London Breed has heard the wrath of progressives (and conservatives) on doing too much (and too little) to “clean up” neighborhoods in San Francisco struggling with substance use. She’s not backing down.`\
+https://nytimes.com/2022/01/13/opinion/sway-kara-swisher-london-breed.html?searchResultPosition=10
 
