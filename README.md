@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/12/sports/baseball/rachel-balkovec-yankees.html?sear
 
 **Gaetz’s Ex-Girlfriend Testifies Before Federal Grand Jury**\
 `The development suggests that the Justice Department may have secured a key witness in its child sex trafficking investigation of Representative Matt Gaetz.`\
-https://nytimes.com/2022/01/12/us/politics/matt-gaetz-investigation.html?searchResultPosition=3
+https://nytimes.com/2022/01/12/us/politics/matt-gaetz-girlfriend-investigation.html?searchResultPosition=3
 
 **A Look Inside Rikers: ‘Fight Night’ and Gang Rule, Captured on Video**\
 `Videos obtained by The New York Times reveal scenes of violence as the Department of Correction struggles to restore order in the jail system.`\
