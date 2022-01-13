@@ -1,4 +1,4 @@
-**The Taliban Have H.R. Problems. They Are Looking for Help in Pakistan.**\
+**The Taliban Have Staffing Issues. They Are Looking for Help in Pakistan.**\
 `Government jobs are given as patronage to ex-fighters and exiles living quietly in Pakistan. But not all possess the technical skills required for the job.`\
 https://nytimes.com/2022/01/13/world/taliban-pakistan-afghanistan-government.html?searchResultPosition=1
 
