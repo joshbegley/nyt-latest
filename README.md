@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/13/nyregion/kathy-hochul-budget-agenda.html?searchRe
 `Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
 https://nytimes.com/2022/01/13/arts/things-to-do-this-weekend.html?searchResultPosition=8
 
+**Maren Morris, a Pop-Curious Hitmaker, Is Country, After All**\
+`With proven Top 40 chops, the singer has still chosen to call Nashville home on her third album, “Humble Quest,” due out in March.`\
+https://nytimes.com/2022/01/13/arts/music/maren-morris-humble-quest.html?searchResultPosition=9
+
 **Into the Belly of the Whale With Sjón**\
 `The Icelandic novelist, poet and Bjork collaborator is a surrealist for our time.`\
-https://nytimes.com/2022/01/13/magazine/sjon-poet-novelist-lyricist.html?searchResultPosition=9
-
-**We Need to Think the Unthinkable About Our Country**\
-`It’s plausible that the United States as we know it could disintegrate. Institutions need to consider worst-case scenarios — to help avoid them. `\
-https://nytimes.com/2022/01/13/opinion/january-6-civil-war.html?searchResultPosition=10
+https://nytimes.com/2022/01/13/magazine/sjon-poet-novelist-lyricist.html?searchResultPosition=10
 
