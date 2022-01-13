@@ -1,40 +1,40 @@
+**Homes for Sale in Brooklyn, Manhattan and the Bronx**\
+`This week’s properties are in Crown Heights, TriBeCa and Riverdale.`\
+https://nytimes.com/2022/01/13/realestate/housing-market-nyc.html?searchResultPosition=1
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a seven-bedroom in Mount Kisco, N.Y., and a two-bedroom in Fairfield, Conn.`\
+https://nytimes.com/2022/01/13/realestate/housing-market-near-nyc.html?searchResultPosition=2
+
+**On the Market in New York City**\
+`This week’s properties are in Crown Heights, TriBeCa and Riverdale.`\
+https://nytimes.com/slideshow/2022/01/13/realestate/on-the-market-in-new-york-city.html?searchResultPosition=3
+
+**On the Market in the New York Region**\
+`This week’s properties are a seven-bedroom in Mount Kisco, N.Y., and a two-bedroom in Fairfield, Conn.`\
+https://nytimes.com/slideshow/2022/01/13/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+
+**The T List: Five Things We Recommend This Week**\
+`A ryokan-style spa in France, paintings by Somaya Critchlow — and more.`\
+https://nytimes.com/2022/01/13/t-magazine/somaya-critchlow-en-place.html?searchResultPosition=5
+
+**My Daughter’s Married Boyfriend Shouldn’t Join Us on Vacation, Right?**\
+`A mother is concerned about her adult child’s involvement with a polyamorous man.`\
+https://nytimes.com/2022/01/13/style/daughter-boyfriend-polyamory-social-qs.html?searchResultPosition=6
+
 **Russia and West at Impasse as Ukraine Urges Reversal of Troop Buildup**\
 `In a third round of diplomacy on Eastern European security this week, Kremlin officials sounded an increasingly pessimistic note, though they did not close the door on future talks.`\
-https://nytimes.com/2022/01/13/world/europe/russia-ukraine-talks.html?searchResultPosition=1
+https://nytimes.com/2022/01/13/world/europe/russia-ukraine-talks.html?searchResultPosition=7
 
 **Teachers across France stage a one-day walkout over Covid rules.**\
-`Teachers unions also planned demonstrations nationwide that are expected to pose a serious challenge for the government of President Emmanuel Macron.`\
-https://nytimes.com/2022/01/13/world/europe/covid-france-teachers-strike.html?searchResultPosition=2
+`Teaching unions also planned demonstrations nationwide that are expected to pose a serious challenge for the government of President Emmanuel Macron.`\
+https://nytimes.com/2022/01/13/world/europe/covid-france-teachers-strike.html?searchResultPosition=8
 
 **TPG, a private equity firm, goes public in the year’s first big stock market debut.**\
 `The firm, which was valued at $9 billion in its I.P.O., must convince investors that it can compete with its publicly traded rivals.`\
-https://nytimes.com/2022/01/13/business/tpg-ipo.html?searchResultPosition=3
+https://nytimes.com/2022/01/13/business/tpg-ipo.html?searchResultPosition=9
 
 **California Is Doubling Efforts to Preserve Film and TV Production**\
 `In 2022, the state is offering more film tax credits than ever before.`\
-https://nytimes.com/2022/01/13/us/film-production-tax-credits.html?searchResultPosition=4
-
-**TPG Becomes 2022’s First Big I.P.O.**\
-`The private equity firm’s trading debut is seen as a gauge for the health of the market.`\
-https://nytimes.com/2022/01/13/business/dealbook/tpg-ipo-private-equity.html?searchResultPosition=5
-
-**Delta, struggling with Omicron and storms, posts a fourth-quarter loss.**\
-`The airline said it lost $408 million in the final three months of 2021, but added that performance was expected to recover with a strong spring and summer travel season.`\
-https://nytimes.com/2022/01/13/business/delta-4q-2021-earnings-omicron.html?searchResultPosition=6
-
-**Lesson of the Day: ‘What It’s Like to Leave Prison During a Pandemic’**\
-`In this lesson, students will learn about the challenges facing people released from prison. Then, they will explore ways to support the formerly incarcerated.`\
-https://nytimes.com/2022/01/13/learning/lesson-plans/lesson-of-the-day-what-its-like-to-leave-prison-during-a-pandemic.html?searchResultPosition=7
-
-**Nigeria Lifts 7-Month Ban on Twitter**\
-`The social media site had been blocked after it deleted a post from President Muhammadu Buhari about secessionist groups that was widely seen as threatening.`\
-https://nytimes.com/2022/01/13/world/africa/nigeria-lifts-twitter-ban.html?searchResultPosition=8
-
-**Is It Bad Sportsmanship to Run Up the Score in Youth Sports?**\
-`A coach is suspended after his high school team won 92-4 in basketball. Should blowouts be allowed in youth sports?`\
-https://nytimes.com/2022/01/13/learning/is-it-bad-sportsmanship-to-run-up-the-score-in-youth-sports.html?searchResultPosition=9
-
-**Russian-Led Alliance Begins Withdrawing Troops From Kazakhstan**\
-`The force was deployed a week ago to stabilize the Central Asian country after political unrest that left dozens dead and thousands injured.`\
-https://nytimes.com/2022/01/13/world/europe/kazakhstan-russia-troops-withdrawal.html?searchResultPosition=10
+https://nytimes.com/2022/01/13/us/film-production-tax-credits.html?searchResultPosition=10
 
