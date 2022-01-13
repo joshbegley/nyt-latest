@@ -1,5 +1,5 @@
 **New Rule Makes Thousands of Federal Inmates Eligible for Release**\
-`The Justice Department issued guidelines that allow more prisoners participate in a program to earn shorter terms under the 2018 bipartisan criminal justice law.`\
+`The Justice Department issued guidelines that allow more prisoners to participate in a program to earn shorter terms under the 2018 bipartisan criminal justice law.`\
 https://nytimes.com/2022/01/13/us/politics/federal-prisoners-release.html?searchResultPosition=1
 
 **Judge Tosses Teen’s Sexual Assault Conviction, Drawing Outrage**\
