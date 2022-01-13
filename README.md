@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/13/style/asian-american-studies-dartmouth.html?searc
 
 **Watch Live: Biden Delivers Update on Covid Response**\
 `President Biden speaks about his administration’s response to the coronavirus as the United States faces surging cases from the Omicron variant.`\
-https://nytimes.com/video/us/politics/100000008157947/biden-covid.html?searchResultPosition=6
+https://nytimes.com/video/embedded/us/politics/100000008157947/biden-covid.html?searchResultPosition=6
 
 **Sometimes, Life Stinks. So He Invented the Nasal Ranger.**\
 `For Chuck McGinley, an engineer who devised the go-to instrument for measuring odors, helping people understand what they smell is serious science.`\
