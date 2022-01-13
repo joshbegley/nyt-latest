@@ -1,4 +1,4 @@
-**U.S. Embassy in Iraq Fends Off Attack With Counter Rocket System**\
+**U.S. Embassy in Iraq Responds to Attack With Counter Rocket System**\
 `In neighborhoods near the Green Zone in Baghdad, some residents watched from gardens and rooftops as rounds from the embassy’s counter rocket system exploded in the air in flashes of red.`\
 https://nytimes.com/video/world/middleeast/100000008158807/baghdad-rocket-attacks.html?searchResultPosition=1
 
