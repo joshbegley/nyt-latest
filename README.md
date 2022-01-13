@@ -27,7 +27,7 @@ https://nytimes.com/2022/01/12/us/politics/matt-gaetz-girlfriend-investigation.h
 https://nytimes.com/2022/01/12/nyregion/rikers-jail-videos.html?searchResultPosition=7
 
 **At ‘Touray Tower,’ the Broken Heart of New York’s Gambian Community**\
-`Abdoulie Touray is believed to have been the first Gambian to move into 333 E. 181st Street. As a counselor to immigrants, he drew scores of compatriots to the building where 17 died in a fire.`\
+`Abdoulie Touray is believed to have been the first Gambian to move into 333 E. 181st Street. He drew scores of compatriots to the building where 17 died in a fire.`\
 https://nytimes.com/2022/01/12/nyregion/gambian-residents-bronx-apartment-fire.html?searchResultPosition=8
 
 **By Honoring Hernandez, the Mets Fully Embrace Their Past**\
