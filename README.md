@@ -28,7 +28,7 @@ https://nytimes.com/2022/01/13/health/multiple-sclerosis-epstein-barr-virus.html
 
 **Baryshnikov Arts Center to Return to Live Performance in Spring**\
 `After a two-year hiatus, live programming resumes, including evenings by the violinist Johnny Gandelsman and the choreographer Ashwini Ramaswamy.`\
-https://nytimes.com/2022/01/13/arts/dance/baryshnikov-arts-center-to-return-to-live-performance-in-spring.html?searchResultPosition=8
+https://nytimes.com/2022/01/13/arts/dance/baryshnikov-arts-center-live-performance.html?searchResultPosition=8
 
 **A Schooling Debate: In Person or Remote?**\
 `Readers discuss an article about rising tensions as some teachers’ unions push for remote learning. Also: Snacks on planes.`\
