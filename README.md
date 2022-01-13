@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/13/us/politics/republican-presidential-debate-disput
 https://nytimes.com/2022/01/13/learning/whats-going-on-in-this-graph-jan-19-2022.html?searchResultPosition=3
 
 **2021 Was Another of Earth’s Warmest Years**\
-`NOAA announced its yearly global temperature data, which continued a warming trend. The last seven years have been the seven warmest ever.`\
+`NOAA announced its yearly global temperature data, which continued a warming trend. The last seven years have been the seven warmest ever. `\
 https://nytimes.com/interactive/2022/01/13/climate/2021-climate-temperatures.html?searchResultPosition=4
 
 **Navient reaches a $1.85 billion deal to settle claims of predatory behavior.**\
