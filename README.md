@@ -1,6 +1,6 @@
 **He Makes Tom Brady’s Offense Work**\
 `The offensive coordinator Byron Leftwich has customized the Buccaneers’ offense to its hodgepodge of stars, injury replacements and holdovers.`\
-https://nytimes.com/2022/01/13/sports/football/byron-leftwich-buccaneers-jaguars.html?searchResultPosition=1
+https://nytimes.com/2022/01/13/sports/football/byron-leftwich-buccaneers.html?searchResultPosition=1
 
 **How I Quit Prime and Survived**\
 `It turns out, one can live in America and not have an Amazon Prime account.`\
