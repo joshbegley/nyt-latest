@@ -14,7 +14,7 @@ https://nytimes.com/2022/01/13/opinion/letters/remote-learning-covid.html?search
 `From our critics, reviews of closed gallery shows around New York City.`\
 https://nytimes.com/2022/01/13/arts/art-we-saw-this-winter.html?searchResultPosition=4
 
-**Oath Keepers Leader Charged With Conspiracy in Jan. 6 Investigation**\
+**Oath Keepers Leader Charged With Seditious Conspiracy in Jan. 6 Investigation**\
 `The F.B.I. arrested Stewart Rhodes, the founder of the far-right militia, in a major step forward in the investigation into the attack on the Capitol by supporters of Donald Trump.`\
 https://nytimes.com/2022/01/13/us/politics/oath-keepers-stewart-rhodes.html?searchResultPosition=5
 
