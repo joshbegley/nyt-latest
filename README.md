@@ -1,6 +1,6 @@
 **The Taliban Have Staffing Issues. They Are Looking for Help in Pakistan.**\
 `Government jobs are given as patronage to ex-fighters and exiles living quietly in Pakistan. But not all possess the technical skills required for the job.`\
-https://nytimes.com/2022/01/13/world/taliban-pakistan-afghanistan-government.html?searchResultPosition=1
+https://nytimes.com/2022/01/13/world/taliban-members.html?searchResultPosition=1
 
 **He Was an Important Conductor. Also a Great One.**\
 `Hans Rosbaud was renowned as a modern-music specialist. But newly released archival recordings demonstrate his gifts were far broader.`\
