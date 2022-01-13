@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/13/arts/art-we-saw-this-winter.html?searchResultPosi
 
 **Oath Keepers Leader Charged With Conspiracy in Jan. 6 Investigation**\
 `The F.B.I. arrested Stewart Rhodes, the founder of the far-right militia, in a major step forward in the investigation into the attack on the Capitol by supporters of Donald Trump.`\
-https://nytimes.com/2022/01/13/us/politics/oath-keepers-leader-arrested-in-jan-6-investigation.html?searchResultPosition=5
+https://nytimes.com/2022/01/13/us/politics/oath-keepers-stewart-rhodes.html?searchResultPosition=5
 
 **Facing Violence With Brushes and Ballots**\
 `On Jan. 6, many artists shared the belief that they should respond to a national trauma. But how?`\
