@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/14/crosswords/spelling-bee-forum.html?searchResultPo
 
 **Hackers Bring Down Government Sites in Ukraine**\
 `A cyberattack defaced the Foreign Ministry website with a message saying “Be afraid,” a day after the latest round of high-stakes talks intended to forestall a Russian invasion.`\
-https://nytimes.com/2022/01/14/world/europe/hackers-bring-down-government-sites-in-ukraine.html?searchResultPosition=6
+https://nytimes.com/2022/01/14/world/europe/hackers-ukraine-government-sites.html?searchResultPosition=6
 
 **Word of the Day: malleable**\
 `This word has appeared in 57 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
