@@ -1,40 +1,40 @@
-**Indian Bishop Is Acquitted on Charges of Raping a Nun**\
-`The bishop, Franco Mulakkal, had been accused of repeatedly assaulting the nun in the southern state of Kerala over a two-year period.`\
-https://nytimes.com/2022/01/14/world/asia/india-bishop-rape-nun.html?searchResultPosition=1
+**Survivor993 Is Not Alone: Lawsuits Show Abuse at School for At-Risk Teens**\
+`The Family Foundation School, closed in 2014, has long faced accusations of using improper methods. Decades later, lawsuits submitted under the Child Victims’ Act have exposed rampant claims of physical, emotional and sexual abuse.`\
+https://nytimes.com/2022/01/14/nyregion/family-foundation-school-abuse-lawsuits.html?searchResultPosition=1
 
-**Lesson of the Day: ‘2021’s Most Fascinating Animals’**\
-`In this lesson, students will learn about some of the unusual creatures The Times reported on in 2021. Then, they will research another unique animal.`\
-https://nytimes.com/2022/01/14/learning/lesson-plans/lesson-of-the-day-2021s-most-fascinating-animals.html?searchResultPosition=2
+**New York’s Eviction Moratorium Is Ending**\
+`A financial lifeline for tenants, it was imposed early in the pandemic and extended time and again. It will expire on Saturday.`\
+https://nytimes.com/2022/01/14/nyregion/eviction-moratorium-is-ending.html?searchResultPosition=2
 
-**Unionizing Starbucks, Inspired by Bernie Sanders**\
-`The liberal workers the company has long attracted are expanding a union campaign to other cities after a landmark victory in Buffalo.`\
-https://nytimes.com/2022/01/14/business/economy/starbucks-union.html?searchResultPosition=3
+**They Remodeled Before Covid. Here’s What They Regret Now.**\
+`The live-work space in Jersey City, N.J., should have been ideal for lockdown. But hindsight born of a pandemic taught them a few things.`\
+https://nytimes.com/2022/01/14/realestate/pre-covid-remodel.html?searchResultPosition=3
 
-**Critics Say I.M.F. Loan Fees Are Hurting Nations in Desperate Need**\
-`Democratic lawmakers say the global fund’s surcharges for emergency relief siphon away money that countries need to fight the pandemic.`\
-https://nytimes.com/2022/01/14/business/economy/imf-surcharges.html?searchResultPosition=4
+**What Hindsight Taught Them About Renovation**\
+`The live-work space in Jersey City, N.J., should have been ideal for lockdown. But the pandemic changed everything.`\
+https://nytimes.com/slideshow/2022/01/14/realestate/what-hindsight-taught-them-about-renovation.html?searchResultPosition=4
 
-**Dagmara Dominczyk Burns Bright in ‘Succession’**\
-`The Polish actress also stars in “The Lost Daughter,” directed by Maggie Gyllenhaal.`\
-https://nytimes.com/2022/01/14/style/dagmara-dominczyk.html?searchResultPosition=5
+**New York’s Ban on Evictions Is Expiring. What Happens Now?**\
+`The moratorium’s end presents Gov. Kathy Hochul with a potential challenge as she prepares to run for a full term.`\
+https://nytimes.com/2022/01/14/nyregion/eviction-moratorium-new-york.html?searchResultPosition=5
 
-**Candy Cornucopia**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2022/01/14/learning/candy-cornucopia.html?searchResultPosition=6
+**Mommy Is Going Away for Awhile**\
+`The antiheroine of the moment, in movies like “The Lost Daughter” and novels like “I Love You But I’ve Chosen Darkness,” commits the mother’s ultimate sin: abandoning her children.`\
+https://nytimes.com/2022/01/14/movies/bad-moms-lost-daughter.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/14/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**No Shots, No Day Care: Parents of Youngest Struggle With Work-Life Imbalance**\
+`Facing an uncontrolled surge of virus cases, parents of children under 5 are again forced to wrestle with child care crises as the rest of the world appears eager to move on.`\
+https://nytimes.com/2022/01/14/us/covid-vaccines-children.html?searchResultPosition=7
 
-**Hackers Bring Down Government Sites in Ukraine**\
-`A cyberattack defaced the Foreign Ministry website with a message saying “Be afraid,” a day after the latest round of high-stakes talks intended to forestall a Russian invasion.`\
-https://nytimes.com/2022/01/14/world/europe/hackers-ukraine-government-sites.html?searchResultPosition=8
+**When a Diagnosis Demands a Long-Term Money Strategy**\
+`Financial planning for people with chronic diseases is complicated and multifaceted. Start by building a team of people to help.`\
+https://nytimes.com/2022/01/14/business/chronic-illness-financial-planning.html?searchResultPosition=8
 
-**Word of the Day: malleable**\
-`This word has appeared in 57 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/14/learning/word-of-the-day-malleable.html?searchResultPosition=9
+**How the Head of a Jazz Nonprofit Spends Her Sundays**\
+`Alina Bloomgarden believes that music education can reduce recidivism. Many renowned jazz artists have joined her cause.`\
+https://nytimes.com/2022/01/14/nyregion/alina-bloomgarden-music-inside-jazz.html?searchResultPosition=9
 
-**Stephen Colbert Wants Hard Time for the Oath Keepers 11**\
-`“Finally!” Colbert said. “Up until now, the most serious charge any of these guys has gotten is impersonating a Flintstone.”`\
-https://nytimes.com/2022/01/14/arts/television/stephen-colbert-oath-keepers.html?searchResultPosition=10
+**Insurers Say Saturday Is Too Soon to Meet White House Goals on Rapid Tests**\
+`Not all health plans will be ready for the Covid tests to be free upfront at stores, relying at first on receipts and reimbursement.`\
+https://nytimes.com/2022/01/14/upshot/free-rapid-covid-tests.html?searchResultPosition=10
 
