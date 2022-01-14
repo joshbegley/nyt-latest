@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/14/business/citigroup-vaccine-requirement-coronaviru
 
 **JPMorgan Chase tallied a record profit last year.**\
 `Quarterly profit at the nation’s biggest bank was down, but it still earned a record $48.3 billion for the year.`\
-https://nytimes.com/2022/01/14/business/bank-earnings-4q-2021.html?searchResultPosition=3
+https://nytimes.com/2022/01/14/business/jpmorgan-chase-earnings-4q-2021.html?searchResultPosition=3
 
 **Companies’ Vaccine Mandates Get Messier**\
 `The Supreme Court blocked the Biden administration’s rule, making corporate policies more fraught.`\
