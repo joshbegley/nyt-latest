@@ -1,4 +1,4 @@
-**John Katko, Republican who Voted to Impeach Trump, Won’t Seek Re-election**\
+**John Katko, Republican Who Voted to Impeach Trump, Won’t Seek Re-election**\
 `Increasingly marginalized from conservatives at home and in Washington, Mr. Katko also faced a brutal general election campaign in his left-leaning New York district.`\
 https://nytimes.com/2022/01/14/us/politics/john-katko-retire-trump-impeachment.html?searchResultPosition=1
 
