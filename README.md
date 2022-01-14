@@ -1,6 +1,6 @@
 **I’m a Longtime Union Organizer. But I Had Never Seen Anything Like This.**\
-`After a spate of preventable deaths, a group of health care workers in Oregon decided to take matters into their own hands.`\
-https://nytimes.com/2022/01/14/opinion/im-a-longtime-union-organizer-but-i-had-never-seen-anything-like-this.html?searchResultPosition=1
+`After a spate of deaths, a group of health care workers in Oregon decided to that to save lives, they needed a union.`\
+https://nytimes.com/2022/01/14/opinion/unions-oregon-assisted-living.html?searchResultPosition=1
 
 **FKA twigs Seeks Angelic Intervention, and 10 More New Songs**\
 `Hear tracks by Maren Morris, Stromae, Robert Glasper and others.`\
