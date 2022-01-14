@@ -1,40 +1,40 @@
+**Our Kinder, Gentler, Nobody-Moves-Out Divorce**\
+`When the end of a marriage means living on separate floors of the same house.`\
+https://nytimes.com/2022/01/14/style/modern-love-kinder-gentler-divorce.html?searchResultPosition=1
+
+**In Lockdown, a Long-Distance Romance Grew Stronger**\
+`Maheisha Adams and Meerim Ilyas met at a conference in Ukraine in 2019, and solidified their bond a year later while quarantining together in Washington.`\
+https://nytimes.com/2022/01/14/style/maheisha-adams-meerim-ilyas-wedding.html?searchResultPosition=2
+
+**Their First Date ‘Felt Like Christmas’**\
+`Yasmin Quiles and NaVell Shorter met about 10 years ago at a Scotch-tasting event, and soon became intoxicated by each other’s energy.`\
+https://nytimes.com/2022/01/14/fashion/weddings/yasmin-quiles-navell-shorter-wedding.html?searchResultPosition=3
+
+**For Two Fraternity Brothers, an Even Stronger Bond**\
+`Scott Malamut and Dr. Thomas McConville started dating a year after they met as members of the same fraternity at Cornell University in 2006.`\
+https://nytimes.com/2022/01/14/style/scott-malamut-thomas-mcconville-wedding.html?searchResultPosition=4
+
+**Looking for a Wedding Date, He Found a Partner Instead**\
+`Nicholas Cerbone matched with Emily Sundel on the dating app Bumble while he was looking for someone to attend his brother’s wedding with him.`\
+https://nytimes.com/2022/01/14/style/nicholas-cerbone-emily-sundel-wedding.html?searchResultPosition=5
+
+**Their Relationship Was All Over the Map**\
+`Herman Parish IV met Anna Sánchez Bendahan in New York. Years later, after dating and going their separate ways, they reconnected in Rome and rekindled their romance.`\
+https://nytimes.com/2022/01/14/style/herman-parish-anna-bendahan-wedding.html?searchResultPosition=6
+
+**Ricki Lake Says Her Late Husband Helped Her Find Love Anew**\
+`The former talk show host Ricki Lake and Ross Burningham wed in an intimate backyard celebration in Malibu, Calif.`\
+https://nytimes.com/2022/01/14/style/ricki-lake-ross-burningham-wedding.html?searchResultPosition=7
+
 **Your Friday Briefing**\
 `An ominous outcome of talks with Russia.`\
-https://nytimes.com/2022/01/13/briefing/russia-talks-prince-andrew.html?searchResultPosition=1
+https://nytimes.com/2022/01/13/briefing/russia-talks-prince-andrew.html?searchResultPosition=8
 
 **New Sanctions for Russian Gas Pipeline Fall Short in Senate**\
 `The measure pitted Ukraine’s president, who was pushing for the penalties, against the Biden administration, which successfully lobbied Democrats to oppose them.`\
-https://nytimes.com/2022/01/13/us/politics/senate-russia-gas-pipeline-ukraine.html?searchResultPosition=2
+https://nytimes.com/2022/01/13/us/politics/senate-russia-gas-pipeline-ukraine.html?searchResultPosition=9
 
 **Variety: Acrostic**\
 `Emily Cox and Henry Rathvon bring us back to a transformative period in American history.`\
-https://nytimes.com/2022/01/13/crosswords/variety-acrostic.html?searchResultPosition=3
-
-**First Pass Friday: The Power of Sleeping on It**\
-`Matthew Stock and Sid Sivakumar open our solving weekend.`\
-https://nytimes.com/2022/01/13/crosswords/daily-puzzle-2022-01-14.html?searchResultPosition=4
-
-**Baltimore Prosecutor Charged With Perjury and Filing False Loan Applications**\
-`Marilyn Mosby, the state’s attorney for Baltimore City, is accused of lying about pandemic hardships to withdraw retirement funds and of making false statements in her mortgage applications to buy two Florida vacation homes.`\
-https://nytimes.com/2022/01/13/us/marilyn-mosby-baltimore-charged.html?searchResultPosition=5
-
-**Once a Trump Foil, Michael Avenatti Says Jail Treatment Was Payback**\
-`Mr. Avenatti, who was convicted in California of trying to extort Nike, is awaiting trial in New York on charges that he stole about $300,000 from Stormy Daniels.`\
-https://nytimes.com/2022/01/13/nyregion/michael-avenatti-trump-jail.html?searchResultPosition=6
-
-**Mayor Adams Says He’s Open to a Remote Learning Option**\
-`Mayor Eric Adams of New York City said his administration would continue to push for in-person learning, but would also consider a temporary remote option for students.`\
-https://nytimes.com/video/nyregion/100000008159291/nyc-school-remote-learning.html?searchResultPosition=7
-
-**Biden Will Nominate Three New Fed Officials**\
-`The nominees would bring more diverse leadership to the Fed, which has struggled to expand its ranks.`\
-https://nytimes.com/2022/01/13/business/economy/biden-federal-reserve-nominees.html?searchResultPosition=8
-
-**North Korea Threatens ‘Stronger’ Reaction as U.S. Seeks Sanctions Over Missile Tests**\
-`The country’s warning came as tensions have crept up over its six missile tests in recent months.`\
-https://nytimes.com/2022/01/14/world/asia/north-korea-missiles-us-sanctions.html?searchResultPosition=9
-
-**Boom! Go the (Tech) Subpoenas**\
-`A reckoning for Big Tech over its role in the Jan. 6 Capitol attack`\
-https://nytimes.com/2022/01/13/opinion/tech-congress-subpoenas.html?searchResultPosition=10
+https://nytimes.com/2022/01/13/crosswords/variety-acrostic.html?searchResultPosition=10
 
