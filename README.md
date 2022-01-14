@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/14/realestate/pre-covid-remodel.html?searchResultPos
 `The live-work space in Jersey City, N.J., should have been ideal for lockdown. But the pandemic changed everything.`\
 https://nytimes.com/slideshow/2022/01/14/realestate/what-hindsight-taught-them-about-renovation.html?searchResultPosition=8
 
-**New York’s Ban on Evictions Is Expiring. What Happens Now?**\
-`The moratorium’s end presents Gov. Kathy Hochul with a potential challenge as she prepares to run for a full term.`\
-https://nytimes.com/2022/01/14/nyregion/eviction-moratorium-new-york.html?searchResultPosition=9
-
 **Mommy Is Going Away for Awhile**\
 `The antiheroine of the moment, in movies like “The Lost Daughter” and novels like “I Love You But I’ve Chosen Darkness,” commits the mother’s ultimate sin: abandoning her children.`\
-https://nytimes.com/2022/01/14/movies/bad-moms-lost-daughter.html?searchResultPosition=10
+https://nytimes.com/2022/01/14/movies/bad-moms-lost-daughter.html?searchResultPosition=9
+
+**New York’s Ban on Evictions Is Expiring. What Happens Now?**\
+`The moratorium’s end presents Gov. Kathy Hochul with a potential challenge as she prepares to run for a full term.`\
+https://nytimes.com/2022/01/14/nyregion/eviction-moratorium-new-york.html?searchResultPosition=10
 
