@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/14/world/europe/giglio-costa-concordia-italy.html?se
 
 **In the Smartphone Era, Millennials Are Buying Film Cameras**\
 `In this Tuesday’s puzzle, “SLR” was the answer to the clue “Certain camera, for short.”`\
-https://nytimes.com/2022/01/14/crosswords/in-the-smartphone-era-millennials-are-buying-film-cameras.html?searchResultPosition=2
+https://nytimes.com/2022/01/14/crosswords/film-camera-crossword-clue.html?searchResultPosition=2
 
 **‘Superload’ Lumbers Across Pennsylvania, Two Lanes Wide and as Big as Two Whales**\
 `A mammoth tractor-trailer is hauling a tank from a decommissioned nuclear training site for disassembly near Pittsburgh. Top speed: 30 m.p.h.`\
