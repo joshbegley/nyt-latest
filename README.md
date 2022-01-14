@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/14/arts/music/review-igor-levit-carnegie-hall.html?s
 
 **Alec Baldwin Turns Over His Phone in ‘Rust’ Investigation, Lawyer Says**\
 `Nearly a month after detectives in New Mexico got a search warrant for his phone, his lawyer said he had reached an agreement designed to protect his privacy.`\
-https://nytimes.com/2022/01/14/arts/alec-baldwin-phone-police-rust.html?searchResultPosition=2
+https://nytimes.com/2022/01/14/movies/alec-baldwin-phone-police-rust.html?searchResultPosition=2
 
 **Eddie Basinski, Who Played Both the Infield and the Fiddle, Dies at 99**\
 `Basinski, who spent time with the Dodgers and the Pirates, was a rare double threat: a major league ballplayer and a trained violinist.`\
