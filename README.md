@@ -22,8 +22,8 @@ https://nytimes.com/2022/01/14/business/biden-federal-reserve-board-governors.ht
 `Pep Guardiola’s ideas and his teams have changed the way England views the game. The danger is that those changes affect perceptions of what qualifies as success.`\
 https://nytimes.com/2022/01/14/sports/man-city-chelsea.html?searchResultPosition=6
 
-**U.S. Considers Backing an Insurgency, After Battling One**\
-`Conversations about supporting Ukrainian insurgents in the event of a Russian invasion has revived the specter of a new Cold War.`\
+**U.S. Considers Backing an Insurgency if Russia Invades Ukraine**\
+`Conversations about how far the United States would go to subvert Russia in the event of an invasion has revived the specter of a new Cold War.`\
 https://nytimes.com/2022/01/14/us/politics/russia-ukraine-biden-military.html?searchResultPosition=7
 
 **One Indelible Scene: When the Show Must Go on in ‘Drive My Car’**\
