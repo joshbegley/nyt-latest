@@ -1,6 +1,6 @@
 **The Girl Detective Goes Digital**\
 `The graphic novelist Kristen Radtke imagines Nancy Drew stories if they existed in the age of the internet.`\
-https://nytimes.com/2022/01/14/books/the-girl-detective-goes-digital.html?searchResultPosition=1
+https://nytimes.com/2022/01/14/books/nancy-drew-kristen-radtke-internet.html?searchResultPosition=1
 
 **Sidney Poitier and the Black Voice**\
 `He was a pioneer — in the transitional sense.`\
