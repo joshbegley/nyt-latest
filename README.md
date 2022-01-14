@@ -1,4 +1,4 @@
-**Senate Rejects New Sanctions on Russian Gas Pipeline**\
+**New Sanctions for Russian Gas Pipeline Fall Short in Senate**\
 `The measure pitted Ukraine’s president, who was pushing for the penalties, against the Biden administration, which successfully lobbied Democrats to oppose them.`\
 https://nytimes.com/2022/01/13/us/politics/senate-russia-gas-pipeline-ukraine.html?searchResultPosition=1
 
