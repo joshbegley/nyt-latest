@@ -1,5 +1,5 @@
 **Baltimore Prosecutor Charged With Perjury and Filing False Loan Applications**\
-`Marilyn Mosby, the State’s Attorney for Baltimore City, is accused of lying about pandemic hardships to withdraw retirement funds and of making false statements in her mortgage applications to buy two Florida vacation homes.`\
+`Marilyn Mosby, the state’s attorney for Baltimore City, is accused of lying about pandemic hardships to withdraw retirement funds and of making false statements in her mortgage applications to buy two Florida vacation homes.`\
 https://nytimes.com/2022/01/13/us/marilyn-mosby-baltimore-charged.html?searchResultPosition=1
 
 **Once a Trump Foil, Michael Avenatti Says Jail Treatment Was Payback**\
