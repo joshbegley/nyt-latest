@@ -1,4 +1,4 @@
-**When Tennis Became a Stage for Global Pandemic Morality**\
+**When Tennis Became a Stage for Right and Wrong During a Pandemic**\
 `The move to deport Novak Djokovic is not just an exercise of Australian law. It represents an enforcement of collectivist values during a pandemic.`\
 https://nytimes.com/2022/01/14/world/australia/novak-djokovic-australian-open.html?searchResultPosition=1
 
