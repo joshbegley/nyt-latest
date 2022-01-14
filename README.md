@@ -2,7 +2,7 @@
 `The congressional map would have given Republicans 12-to-3 advantage in elections for the House of Representatives.`\
 https://nytimes.com/2022/01/14/us/politics/ohio-supreme-court-congressional-maps-gerrymandering.html?searchResultPosition=1
 
-**Markov Chains, Sinclair Lewis, and Other Letters to the Editor**\
+**Markov Chains, Sinclair Lewis and Other Letters to the Editor**\
 `Readers respond to recent issues of the Sunday Book Review.`\
 https://nytimes.com/2022/01/14/books/review/markov-chains-sinclair-lewis-and-other-letters-to-the-editor.html?searchResultPosition=2
 
