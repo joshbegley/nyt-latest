@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2022/01/14/world/europe/djokovic-family-restaura
 
 **He Makes Justin Bieber and the Bee Gees Go Viral on TikTok**\
 `Griffin Haddrill is a founder of VRTCL, an agency hired to turn hit songs into memes.`\
-https://nytimes.com/2022/01/14/style/he-makes-justin-bieber-and-the-bee-gees-go-viral-on-tiktok.html?searchResultPosition=2
+https://nytimes.com/2022/01/14/style/griffin-haddrill-tiktok.html?searchResultPosition=2
 
 **Games to Watch This Weekend**\
 `The most jam-packed N.F.L. playoff weekend ever, along with big matches in English soccer.`\
