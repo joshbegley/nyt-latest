@@ -2,7 +2,7 @@
 `Training materials released by the Oregon city included a meme that mocked protesters as dirty hippies and suggested they would be left “stitched and bandaged.”`\
 https://nytimes.com/2022/01/14/us/portland-police-protests.html?searchResultPosition=1
 
-**‘Security Threat’ Disables Software at Some New York City Schools**\
+**‘Attempted Security Threat’ Disables Software at Some New York Schools**\
 `The outage in a platform used by teachers and students has caused another disruption for a system that has had its share amid the pandemic.`\
 https://nytimes.com/2022/01/14/us/politics/nyc-schools-security-threat-software.html?searchResultPosition=2
 
