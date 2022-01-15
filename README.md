@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/asia/100000008161535/tonga-tsunami-volcano.html?searchResultPosition=1
 
 **Woman Dies After Being Pushed Onto Subway Tracks in Times Square**\
-`The police said the woman, who was Asian, was shoved in front of an R train as it approached a 42nd Street station in Manhattan on Saturday morning.`\
+`The police said the woman was shoved in front of an R train as it approached a 42nd Street station in Manhattan on Saturday morning.`\
 https://nytimes.com/2022/01/15/nyregion/woman-pushed-on-train-death.html?searchResultPosition=2
 
 **The Downfall of Prince Andrew: Here’s What You Need to Know**\
