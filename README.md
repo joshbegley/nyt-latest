@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/15/world/bangladesh-london-brick-lane-gentrification
 `Djokovic, the Serbian tennis star, is at the center of some of the most divisive debates of the pandemic: Individual versus community, science versus quackery.`\
 https://nytimes.com/2022/01/15/sports/novak-djokovic-australian-open.html?searchResultPosition=8
 
-**Crypto Enthusiasts Meet Their Match: Angry Gamers**\
-`Game publishers are offering NFTs, but skeptical gamers smell a moneymaking scheme and are fighting back.`\
-https://nytimes.com/2022/01/15/technology/crypto-gamers-nfts.html?searchResultPosition=9
-
 **What the Omicron Wave Looks Like at One Brooklyn E.R.**\
 `The nature of this variant, combined with widespread vaccine use, may make it seem less severe in some ways than earlier ones. It doesn’t always feel that like that here.`\
-https://nytimes.com/2022/01/15/nyregion/omicron-brooklyn-hospital-center.html?searchResultPosition=10
+https://nytimes.com/2022/01/15/nyregion/brooklyn-omicron-cases.html?searchResultPosition=9
+
+**Crypto Enthusiasts Meet Their Match: Angry Gamers**\
+`Game publishers are offering NFTs, but skeptical gamers smell a moneymaking scheme and are fighting back.`\
+https://nytimes.com/2022/01/15/technology/crypto-gamers-nfts.html?searchResultPosition=10
 
