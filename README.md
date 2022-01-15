@@ -6,17 +6,17 @@ https://nytimes.com/2022/01/15/world/europe/france-lepen.html?searchResultPositi
 `Instead of breaking up the big meatpacking companies, the Biden administration is supporting the creation of  rivals.`\
 https://nytimes.com/2022/01/15/opinion/meat-meatpacking-industry.html?searchResultPosition=2
 
+**Is Addiction Really a Disease?**\
+`The view that addiction is a disease makes it an individual problem. That’s dangerous.`\
+https://nytimes.com/2022/01/15/opinion/addiction-disease.html?searchResultPosition=3
+
 **Novak Djokovic Got the Boot. Australians Are Thrilled.**\
 `An otherwise skilled sportsman has recruited himself as a cack-handed symbol of everything presently enraging Australians.`\
-https://nytimes.com/2022/01/15/opinion/novak-djokovic-ausralian-open-tennis-visa.html?searchResultPosition=3
+https://nytimes.com/2022/01/15/opinion/novak-djokovic-ausralian-open-tennis-visa.html?searchResultPosition=4
 
 **Boris Johnson Has Survived Many Scandals. This One Is Different.**\
 `What might seem like an overblown reaction to a gathering in a garden — as opposed to, say, a violent insurrection — could well have historic repercussions.`\
-https://nytimes.com/2022/01/15/opinion/boris-johnson-lockdown.html?searchResultPosition=4
-
-**Is Addiction Really a Disease?**\
-`The view that addiction is a disease makes it an individual problem. That’s dangerous.`\
-https://nytimes.com/2022/01/15/opinion/is-addiction-really-a-disease.html?searchResultPosition=5
+https://nytimes.com/2022/01/15/opinion/boris-johnson-lockdown.html?searchResultPosition=5
 
 **The Sublime Beauty of My Friend Bob Saget’s Filthy Comedy**\
 `How I explained his offensive jokes to my horrified kids.`\
