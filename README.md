@@ -1,40 +1,40 @@
-**Cambodia’s Internet May Soon Be Like China’s: State-Controlled**\
-`Under a new decree, all web traffic will be routed through a government portal. Rights groups say a crackdown on digital expression is about to get worse.`\
-https://nytimes.com/2022/01/15/business/cambodia-arrests-internet.html?searchResultPosition=1
+**Towers Rise Over London’s Brick Lane, Clouding Its Future**\
+`Luxury developments and rising rents have ignited concerns about gentrification and displacement in a district that has long been a sanctuary for minority communities.`\
+https://nytimes.com/2022/01/15/world/bangladesh-london-brick-lane-gentrification.html?searchResultPosition=1
 
-**The Charmed Life of Bruce Bozzi**\
-`He’s best friends with Andy Cohen and Sarah Jessica Parker, is married to super agent Bryan Lourd, and fancies himself a liquor mogul.`\
-https://nytimes.com/2022/01/15/style/the-charmed-life-of-bruce-bozzi.html?searchResultPosition=2
+**Novak Djokovic, a Master on the Court, Keeps Making Errors Off It**\
+`Djokovic, the Serbian tennis star, is at the center of some of the most divisive debates of the pandemic: Individual versus community, science versus quackery.`\
+https://nytimes.com/2022/01/15/sports/novak-djokovic-australian-open.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/15/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Crypto Enthusiasts Meet Their Match: Angry Gamers**\
+`Game publishers are offering NFTs, but skeptical gamers smell a moneymaking scheme and are fighting back.`\
+https://nytimes.com/2022/01/15/technology/crypto-gamers-nfts.html?searchResultPosition=3
 
-**Corrections: Jan. 15, 2022**\
-`Corrections that appeared in print on Saturday, Jan. 15, 2022.`\
-https://nytimes.com/2022/01/15/pageoneplus/corrections-jan-15-2022.html?searchResultPosition=4
+**What the Omicron Wave Looks Like at One Brooklyn E.R.**\
+`The nature of this variant, combined with widespread vaccine use, may make it seem less severe in some ways than earlier ones. It doesn’t always feel that like that here.`\
+https://nytimes.com/2022/01/15/nyregion/omicron-brooklyn-hospital-center.html?searchResultPosition=4
 
-**Quotation of the Day: Dozens on Trial in Cuba After Harsh Crackdown Over a Wave of Protests**\
-`Quotation of the Day for Saturday, January 15, 2022.`\
-https://nytimes.com/2022/01/15/todayspaper/quotation-of-the-day-dozens-on-trial-in-cuba-after-harsh-crackdown-over-a-wave-of-protests.html?searchResultPosition=5
+**With Voting Bills Dead, Democrats Face Costly Fight to Overcome G.O.P. Curbs**\
+`Party officials now say they are resigned to spending and organizing their way around the new voting restrictions passed in Republican-controlled states.`\
+https://nytimes.com/2022/01/15/us/politics/voting-rights-democrats.html?searchResultPosition=5
 
-**Firefighters Battle Large Blaze at Passaic Chemical Plant**\
-`Mayor Hector Lora urged residents to shut their windows as smoke from the burning chlorine plant wafted through the region.`\
-https://nytimes.com/2022/01/14/us/firefighters-battle-large-blaze-at-passaic-chemical-plant.html?searchResultPosition=6
+**What to Watch For in Saturday’s N.F.L. Playoff Games**\
+`The Las Vegas Raiders will face the Cincinnati Bengals and the New England Patriots will visit the Buffalo Bills.`\
+https://nytimes.com/2022/01/15/sports/football/nfl-playoffs-bills-patriots-raiders-bengals.html?searchResultPosition=6
 
-**Large Fire Erupts at a Chemical Plant in New Jersey**\
-`Crews battled a fire at a chemical plant in Passaic, N.J. No major injuries were reported.`\
-https://nytimes.com/video/us/100000008161371/chemical-fire-new-jersey.html?searchResultPosition=7
+**Census Memo Cites ‘Unprecedented’ Meddling by Trump Administration**\
+`Newly released documents show that top career officials at the Census Bureau had drafted a list of complaints about political interference in the 2020 count.`\
+https://nytimes.com/2022/01/15/us/2020-census-trump.html?searchResultPosition=7
 
-**Chris Evert, Tennis Hall of Famer, Says She Has Ovarian Cancer**\
-`The early-stage cancer was detected after a preventive hysterectomy, and it has not spread elsewhere in her body, according to ESPN.`\
-https://nytimes.com/2022/01/14/sports/tennis/chris-evert-ovarian-cancer.html?searchResultPosition=8
+**The Strategy, and Importance, of the Service Toss**\
+`Tennis players work for years perfecting the move, and finding the sweet spot can strikingly improve their game.`\
+https://nytimes.com/2022/01/15/sports/tennis/service-toss-ball.html?searchResultPosition=8
 
-**Eye-Opening Declaration?**\
-`Prepare to double up on takes when you take on Sam Ezersky’s Saturday puzzle.`\
-https://nytimes.com/2022/01/14/crosswords/daily-puzzle-2022-01-15.html?searchResultPosition=9
+**Twenty Years Ago, a Tennis Comeback in Australia Like No Other**\
+`Martina Hingis was way ahead in the final, but Jennifer Capriati made history in the oppressive heat and won.`\
+https://nytimes.com/2022/01/15/sports/tennis/capriati-hingis-australian-open.html?searchResultPosition=9
 
-**Novak Djokovic’s Fight to Stay in Australia Lives Another Day**\
-`A federal court judge scheduled a Sunday hearing to address the unvaccinated tennis star’s Australian visa revocation. The Australian Open begins on Monday.`\
-https://nytimes.com/2022/01/14/sports/tennis/novak-djokovic-australia-visa-hearing.html?searchResultPosition=10
+**A Library the Internet Can’t Get Enough Of**\
+`Why does this image keep resurfacing on social media?`\
+https://nytimes.com/2022/01/15/style/library-twitter-richard-macksey.html?searchResultPosition=10
 
