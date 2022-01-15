@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/15/theater/paul-carter-harrison-dead.html?searchResu
 
 **Trump Rally Underscores G.O.P. Tension Over How to Win in 2022**\
 `Donald Trump’s rally in Arizona on Saturday will feature a host of election deniers. His involvement in state races and his inability to let go of his 2020 loss worries many Republicans.`\
-https://nytimes.com/2022/01/15/us/politics/trump-rally-gop-tensions.html?searchResultPosition=3
+https://nytimes.com/2022/01/15/us/politics/trump-rally-republicans.html?searchResultPosition=3
 
 **What Is Joe Biden Thinking?**\
 `The strange strategy of a staggering presidency.`\
