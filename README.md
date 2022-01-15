@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/15/world/asia/tonga-volcano-tsunami.html?searchResul
 
 **Halting Progress and Happy Accidents: How mRNA Vaccines Were Made**\
 `The stunning Covid vaccines manufactured by Pfizer-BioNTech and Moderna drew upon long-buried discoveries made in the hopes of ending past epidemics.`\
-https://nytimes.com/2022/01/15/health/covid-mrna-vaccines-origin-story.html?searchResultPosition=5
+https://nytimes.com/2022/01/15/health/mrna-vaccine.html?searchResultPosition=5
 
 **Desperately in Demand This Pandemic Winter: Snowplow Operators**\
 `An upheaval in the labor force has affected the transportation sector, creating shortages of snow-clearing professionals as winter storms pummel the United States.`\
