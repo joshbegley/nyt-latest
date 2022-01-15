@@ -1,4 +1,4 @@
-**SWAT Responds to a Synagogue in Dallas-Fort Worth Area**\
+**SWAT Team Responds to a Synagogue in the Dallas-Fort Worth Area**\
 `A man could be heard shouting on a livestream from Congregation Beth Israel in Colleyville, Texas. F.B.I. crisis negotiators and heavily armed police have converged on the building.`\
 https://nytimes.com/2022/01/15/us/texas-synagogue-attack.html?searchResultPosition=1
 
