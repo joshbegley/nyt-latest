@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/14/us/politics/covid-tests-free-biden.html?searchRes
 
 **Frustrated Democrats Call for ‘Reset’ Ahead of Midterm Elections**\
 `Democrats already were expecting a rough election year. But their struggle to advance priorities has some calling for a course correction.`\
-https://nytimes.com/2022/01/14/us/politics/democratic-frustration-midterms.html?searchResultPosition=4
+https://nytimes.com/2022/01/14/us/politics/democratic-midterms.html?searchResultPosition=4
 
 **In a First, Ohio Moves to Put Body Cameras on Guards in Every Prison**\
 `The state is distributing 5,100 new body-worn cameras, the most extensive commitment of any state as corrections facilities across the country push for better surveillance.`\
