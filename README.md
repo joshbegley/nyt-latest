@@ -1,5 +1,5 @@
 **SWAT Responds to a Synagogue in Dallas-Fort Worth Area**\
-`A man could be heard shouting on a livestream from Congregation Beth Israel in Colleyville, Texas.`\
+`A man could be heard shouting on a livestream from Congregation Beth Israel in Colleyville, Texas. F.B.I. crisis negotiators and heavily armed police have converged on the building.`\
 https://nytimes.com/2022/01/15/us/texas-synagogue-attack.html?searchResultPosition=1
 
 **Paul Carter Harrison, Whose Ideas Shaped Black Theater, Dies at 85**\
