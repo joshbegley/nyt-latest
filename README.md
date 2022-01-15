@@ -23,7 +23,7 @@ https://nytimes.com/2022/01/14/sports/tennis/novak-djokovic-australia-visa-heari
 https://nytimes.com/2022/01/14/books/terry-teachout-dead.html?searchResultPosition=6
 
 **Where is Novak Djokovic?**\
-`The Serbian tennis player has kept out of sight but is under the watch of border officials.`\
+`The tennis star went into immigration detention on Saturday as he awaited his next hearing. News outlets said he was taken to a Melbourne hotel.`\
 https://nytimes.com/2022/01/14/sports/tennis/novak-djokovic-detained.html?searchResultPosition=7
 
 **U.S. Government to Begin Accepting Requests for Free Covid Tests Next Week**\
