@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/15/sports/tennis/djokovic-nadal-osaka.html?searchRes
 
 **Months After an Explosion, a Town Is Deserted and Without Answers**\
 `Hundreds of people in Wheatley, Ontario, are still out of their homes four months after a gas leak blew up three buildings in the town’s center.`\
-https://nytimes.com/2022/01/15/world/canada/ontario-town-explosion.html?searchResultPosition=5
+https://nytimes.com/2022/01/15/world/canada/wheatley-ontario-explosion.html?searchResultPosition=5
 
 **32 Years After Civil War, Mundane Moments Trigger Awful Memories**\
 `Cards. Candles. Sunsets. For this New York Times correspondent and other children of Beirut in the 1980s, traumatic reminders of the war are still there in everyday activities.`\
