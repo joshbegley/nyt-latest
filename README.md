@@ -1,6 +1,6 @@
 **Tsunami Reported in Tonga After an Underwater Volcano Eruption**\
 `A four-foot tsunami wave was reported to have hit Tonga’s capital, Nuku’alofa, on Saturday, sending people rushing to higher ground.`\
-https://nytimes.com/2022/01/15/world/tonga-volcano-tsunami.html?searchResultPosition=1
+https://nytimes.com/2022/01/15/world/asia/tonga-volcano-tsunami.html?searchResultPosition=1
 
 **Halting Progress and Happy Accidents: How mRNA Vaccines Were Made**\
 `The stunning Covid vaccines manufactured by Pfizer-BioNTech and Moderna drew upon long-buried discoveries made in the hopes of ending past epidemics.`\
