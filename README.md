@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/16/us/snowstorm-updates-news.html?searchResultPositi
 
 **Running Resolutions: Start Slowly, and Eat Your Favorite Foods**\
 `We’re speaking with experts about how to have your best year of running. This week, we hear from a nutritionist and a running coach.`\
-https://nytimes.com/2022/01/16/sports/running-nutrition-coaching-advice.html?searchResultPosition=5
+https://nytimes.com/2022/01/16/sports/running-tips-advice.html?searchResultPosition=5
 
 **The U.S. surgeon general warns that Omicron has not yet peaked.**\
 `As the fast-spreading variant has blanketed the country, known cases and hospitalizations have surged, and officials warn of tough weeks ahead.`\
