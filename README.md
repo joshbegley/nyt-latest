@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/16/nyregion/bronx-fire-what-happened.html?searchResultPosition=1
 
 **Residents Urged to Stay Home as Winter Storm Hits Southern States**\
-`Parts of the Southeast had already received more than nine inches of snow after the storm moved through the region, knocking out power for tens of thousands and coating highways with dangerous ice.`\
+`Parts of the Southeast received more than nine inches of snow after the storm moved through the region on Sunday, knocking out power to tens of thousands of customers and coating highways with dangerous ice.`\
 https://nytimes.com/video/us/100000008162245/winter-storm-southern-states.html?searchResultPosition=2
 
 **Your Monday Briefing: Djokovic Leaves Australia**\
