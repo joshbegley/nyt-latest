@@ -1,5 +1,5 @@
 **Charles E. McGee, Tuskegee Airman Promoted by Trump, Dies at 102**\
-`In three wars, he flew a total of 409 combat missions. To celebrate his 100th birthday, he took the controls of a jet for one more flight.`\
+`In three wars, he flew a total of 409 combat missions. “We shattered all the myths” he said of the accomplishments of Black pilots in World War II.`\
 https://nytimes.com/2022/01/16/obituaries/charles-e-mcgee-dead.html?searchResultPosition=1
 
 **An Unplayed Australian Open Is a Turning Point for Novak Djokovic**\
