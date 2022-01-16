@@ -1,6 +1,6 @@
 **A Quandary for New York Restaurants and Workers: What to Do About Omicron?**\
 `Without hard rules about employees who test positive, owners and workers are weighing safety against finances, and not always agreeing on the answer.`\
-https://nytimes.com/2022/01/16/dining/nyc-restaurants-covid-omicron-guidance.html?searchResultPosition=1
+https://nytimes.com/2022/01/16/dining/nyc-restaurants-covid-guidance.html?searchResultPosition=1
 
 **‘Devastated’: Crowds Throng Funeral Service for 15 Bronx Fire Victims**\
 `Mourners crowded a mosque to say goodbye to 15 of the 17 people killed in the Jan. 9 blaze in a Bronx high-rise.`\
