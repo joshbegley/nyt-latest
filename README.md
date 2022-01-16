@@ -28,7 +28,7 @@ https://nytimes.com/2022/01/16/dining/what-to-cook-this-week.html?searchResultPo
 
 **At the Australian Open, Everyone Not Named Djokovic Is Ready to Star**\
 `Novak Djokovic’s immigration troubles dominated the weeks leading up to the tournament. He is gone, but don’t worry: Plenty of other stars and story lines are ready for the spotlight.`\
-https://nytimes.com/2022/01/16/sports/tennis/australian-open-watch.html?searchResultPosition=8
+https://nytimes.com/2022/01/16/sports/tennis/who-is-playing-at-the-australian-open.html?searchResultPosition=8
 
 **Netanyahu’s Lawyers Discuss a Plea Bargain to End His Graft Trial**\
 `Benjamin Netanyahu, Israel’s former prime minister, has pleaded not guilty in a corruption case. But his lawyers are negotiating a deal in which he might accept some charges to avoid jail time.`\
