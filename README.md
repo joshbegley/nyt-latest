@@ -30,7 +30,7 @@ https://nytimes.com/2022/01/16/opinion/quitting-twitter.html?searchResultPositio
 `Leaders of a musicians’ licensing group are trying to curb mahraganat, a bold genre wildly popular with young people. It is not clear if they can.`\
 https://nytimes.com/2022/01/16/world/middleeast/egypt-mahraganat-music.html?searchResultPosition=8
 
-**This Isn’t the Presidency Biden Imagined for Himself**\
+**This Presidency Isn’t Turning Out as Planned**\
 `The problems the president is facing are an almost perfect inversion of the problems Obama faced.`\
 https://nytimes.com/2022/01/16/opinion/biden-obama-economy.html?searchResultPosition=9
 
