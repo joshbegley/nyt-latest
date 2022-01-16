@@ -1,4 +1,4 @@
-**At the Australian Open, Everyone Not Named Djokovic is Ready to Star**\
+**At the Australian Open, Everyone Not Named Djokovic Is Ready to Star**\
 `Novak Djokovic’s immigration troubles dominated the weeks leading up to the tournament. He is gone, but don’t worry: Plenty of other stars and story lines are ready for the spotlight.`\
 https://nytimes.com/2022/01/16/sports/tennis/australian-open-watch.html?searchResultPosition=1
 
