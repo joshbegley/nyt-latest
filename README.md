@@ -30,7 +30,7 @@ https://nytimes.com/2022/01/15/crosswords/daily-puzzle-2022-01-16.html?searchRes
 `Following Adolph Rupp, one of the greatest college coaches of all time, was a challenge. Hall rose to the occasion, taking the team to the Final Four three times.`\
 https://nytimes.com/2022/01/15/sports/ncaabasketball/joe-b-hall-dead.html?searchResultPosition=9
 
-**Paul Carter Harrison, Whose Ideas Shaped Black Theater, Dies at 85**\
-`In his essays and plays, he provided a framework that linked playwrights like August Wilson to African rituals and mythologies.`\
-https://nytimes.com/2022/01/15/theater/paul-carter-harrison-dead.html?searchResultPosition=10
+**What is the impact on the U.S. right now?**\
+`By Livia Albeck-Ripka`\
+https://nytimes.com/2022/01/15/us/what-is-the-impact-on-the-us-right-now.html?searchResultPosition=10
 
