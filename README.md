@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/16/nyregion/bronx-fire-funeral.html?searchResultPosition=1
 
 **‘Grateful to Be Alive’: What We Know About the Synagogue Hostage Rescue**\
-`The hostages at a synagogue in the Dallas-Fort Worth area were freed on Saturday night. Here’s what happened.`\
+`The authorities have identified the suspect, a British citizen, who was killed when the hostages at a synagogue in the Dallas-Fort Worth area were freed on Saturday night.`\
 https://nytimes.com/2022/01/16/us/hostage-texas-synagogue.html?searchResultPosition=2
 
 **States Brace for Dangerous Conditions From Winter Storm**\
