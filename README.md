@@ -32,7 +32,7 @@ https://nytimes.com/2022/01/16/world/europe/djokovic-visa-australia-serbia.html?
 
 **University of Michigan Fires Its President Over Inappropriate Relationship**\
 `Mark Schlissel’s contract was terminated immediately for interactions with a subordinate, the Board of Regents said.`\
-https://nytimes.com/2022/01/16/us/university-of-michigan-president-fired-schlissel.html?searchResultPosition=9
+https://nytimes.com/2022/01/16/us/mark-schlissel-fired.html?searchResultPosition=9
 
 **Professor Who Called Students ‘Vectors of Disease’ in Video Is Suspended**\
 `Barry Mehler of Ferris State University was put on paid leave after uploading the bizarre welcome video, but some of his peers said his rights of free expression were being curtailed.`\
