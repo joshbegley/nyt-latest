@@ -36,5 +36,5 @@ https://nytimes.com/2022/01/16/sports/running-tips-advice.html?searchResultPosit
 
 **The U.S. surgeon general warns that Omicron has not yet peaked.**\
 `As the fast-spreading variant has blanketed the country, known cases and hospitalizations have surged, and officials warn of tough weeks ahead.`\
-https://nytimes.com/2022/01/16/health/omicron-peak-murthy.html?searchResultPosition=10
+https://nytimes.com/2022/01/16/health/omicron-peak.html?searchResultPosition=10
 
