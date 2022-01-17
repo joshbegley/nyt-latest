@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/17/theater/witness-review-arlekin-players.html?searc
 https://nytimes.com/2022/01/17/us/texas-synagogue-hostages-escape.html?searchResultPosition=2
 
 **Sales of Electric Vehicles Surpass Diesel in Europe, a First**\
-`The popularity of battery powered cars is soaring while the overall auto market stagnates, a worldwide trend.`\
+`The popularity of battery-powered cars is soaring while the overall auto market stagnates, a worldwide trend.`\
 https://nytimes.com/2022/01/17/business/electric-vehicles-europe.html?searchResultPosition=3
 
 **‘Situation in Tonga Is Not Stable,’ Diplomat Says**\
