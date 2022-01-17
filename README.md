@@ -16,7 +16,7 @@ https://nytimes.com/video/us/100000008162982/winter-snow-storm-northeast.html?se
 
 **Officials Investigating Synagogue Attacker’s Link to 2010 Terror Case**\
 `Aafia Siddiqui has spent almost 12 years in a U.S. federal prison after being convicted of trying to kill American soldiers and plotting to blow up the Statue of Liberty.`\
-https://nytimes.com/2022/01/17/world/europe/texas-synagogue-hostages.html?searchResultPosition=5
+https://nytimes.com/2022/01/17/world/europe/texas-synagogue-hostages-aafia-siddiqui.html?searchResultPosition=5
 
 **Ralph Emery, the Dick Clark of Country Music, Dies at 88**\
 `For six decades he promoted country performers on radio and television, earning a place in the Country Music Hall of Fame.`\
