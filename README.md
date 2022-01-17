@@ -1,6 +1,6 @@
 **At a Trump Rally, Venting Rage at Biden**\
 `At the first Trump rally since President Biden accused his predecessor of holding “a dagger at the throat of America,” the conservative outrage at the current president was palpable.`\
-https://nytimes.com/interactive/2022/01/17/us/politics/trumprally-burst.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/01/17/us/politics/trump-rally-arizona.html?searchResultPosition=1
 
 **A North Sea Auction Produces Big Plans for Scottish Wind Farms**\
 `Oil giants like BP and Shell propose to spend billions on renewable energy, bolstering Scotland’s efforts to move away from an economy based on fossil fuel.`\
