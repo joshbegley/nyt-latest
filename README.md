@@ -1,6 +1,6 @@
 **A Love of Trees or a Display of Power? The Odd Park of an Oligarch**\
 `A billionaire former prime minister says he has retired from Georgia’s fraught politics. His critics say he still wields considerable power. What’s beyond dispute: his obsession with trees.`\
-https://nytimes.com/2022/01/17/world/europe/georgian-republic-bidzina-ivanishvili.html?searchResultPosition=1
+https://nytimes.com/2022/01/17/world/europe/bidzina-ivanishvili-georgia-trees.html?searchResultPosition=1
 
 **In London Shops, Greek Cheese, Sicilian Citrus and British Headaches**\
 `For companies depending on fast, small deliveries, the costs of new Brexit trade rules are mounting.`\
