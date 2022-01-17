@@ -1,6 +1,6 @@
 **In a Double Bill, the Avant-Garde Meets a Very Good Girl**\
 `Excellent performances, including one by a well-behaved dog, warm up two experimental plays upstate.`\
-https://nytimes.com/2022/01/17/theater/the-art-of-the-dog-with-my-own-hands-ps21.html?searchResultPosition=1
+https://nytimes.com/2022/01/17/theater/art-of-theater-with-my-own-hands-ps21.html?searchResultPosition=1
 
 **At a Trump Rally, Venting Rage at Biden**\
 `At the first Trump rally since President Biden accused his predecessor of holding “a dagger at the throat of America,” the conservative outrage at the current president was palpable.`\
