@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/17/sports/tennis/sebastian-korda-australian-open.htm
 
 **French Far-Right Candidate Convicted for Inciting Racial Hatred**\
 `Éric Zemmour, a pundit whose presidential run has upended French politics, had called unaccompanied migrant children “assassins” and “rapists” on television.`\
-https://nytimes.com/2022/01/17/world/europe/france-eric-zemmour-conviction.html?searchResultPosition=6
+https://nytimes.com/2022/01/17/world/europe/eric-zemmour-convicted-racial-hate.html?searchResultPosition=6
 
 **In Volcano’s Wake, an Agonizing Wait for News From Tonga**\
 `Overseas Tongans were desperately seeking word from their loved ones after a huge undersea eruption severed communications lines two days ago.`\
