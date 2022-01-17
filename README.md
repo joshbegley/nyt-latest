@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/17/world/middleeast/uae-explosion-yemen-houthi.html?
 
 **After Quarantine, Keeping Up the Korda Family Tradition**\
 `Sebastian Korda’s father and sisters have won in Australia. Now he has knocked off his first Australian Open win.`\
-https://nytimes.com/2022/01/17/sports/tennis/after-quarantine-keeping-up-the-korda-family-tradition.html?searchResultPosition=4
+https://nytimes.com/2022/01/17/sports/tennis/sebastian-korda-australian-open.html?searchResultPosition=4
 
 **French Far-Right Candidate Convicted for Inciting Racial Hatred**\
 `Éric Zemmour, a pundit whose presidential run has upended French politics, had called unaccompanied migrant children “assassins” and “rapists” on television.`\
