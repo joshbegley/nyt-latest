@@ -14,7 +14,7 @@ https://nytimes.com/2022/01/17/health/cdc-tensions-omicron-isolation-guidance.ht
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/01/17/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
-**Authorities Threaten Arrest of Ukraine’s Leading Opposition Politician**\
+**Poroshenko, Former President, Returns to Ukraine, Roiling Politics**\
 `Petro O. Poroshenko, a former president, returned to Kyiv on Monday facing possible arrest, adding internal political turmoil to a threat of Russian invasion.`\
 https://nytimes.com/2022/01/17/world/europe/ukraine-zelensky-poroshenko-russia.html?searchResultPosition=5
 
