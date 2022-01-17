@@ -32,7 +32,7 @@ https://nytimes.com/2022/01/17/pageoneplus/corrections-jan-17-2022.html?searchRe
 
 **Dictator’s Son Can Stay in Philippine Presidential Race, Officials Say**\
 `With Ferdinand Marcos Jr. leading in the polls, victims of his father’s regime have not given up their fight to keep his name off the ballot.`\
-https://nytimes.com/2022/01/17/world/asia/philippines-marcos-presidential-election.html?searchResultPosition=9
+https://nytimes.com/2022/01/17/world/asia/marcos-jr-philippines-presidential-election.html?searchResultPosition=9
 
 **Behind the Movement to Create More Black Video Game Characters**\
 `The lack of Black representation in games stems from a failure to understand the Black gaming audience, creators say.`\
