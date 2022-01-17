@@ -8,7 +8,7 @@ https://nytimes.com/slideshow/2022/01/17/realestate/what-you-get-for-3-2-million
 
 **Yemen’s Houthi Militia Claims Rare Military Strike on U.A.E.**\
 `Emirati officials said that several people had been killed in an explosion of fuel tankers in Abu Dhabi, possibly as a result of a drone attack.`\
-https://nytimes.com/2022/01/17/world/middleeast/uae-explosion-yemen-houthi.html?searchResultPosition=3
+https://nytimes.com/2022/01/17/world/middleeast/uae-attack-yemen-houthi.html?searchResultPosition=3
 
 **After Quarantine, Keeping Up the Korda Family Tradition**\
 `Sebastian Korda’s father and sisters have won in Australia. Now he has knocked off his first Australian Open win.`\
