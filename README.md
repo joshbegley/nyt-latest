@@ -19,7 +19,7 @@ https://nytimes.com/2022/01/16/nyregion/mourning-bronx-scenes.html?searchResultP
 https://nytimes.com/2022/01/16/nyregion/michelle-go-man-pushes-woman-subway.html?searchResultPosition=5
 
 **Charles E. McGee, Tuskegee Airman Promoted by Trump, Dies at 102**\
-`In three wars, he flew a total of 409 combat missions. “We shattered all the myths” he said of the accomplishments of Black pilots in World War II.`\
+`In three wars, he flew a total of 409 combat missions. “We shattered all the myths,” he said of the accomplishments of Black pilots in World War II.`\
 https://nytimes.com/2022/01/16/obituaries/charles-e-mcgee-dead.html?searchResultPosition=6
 
 **An Unplayed Australian Open Is a Turning Point for Novak Djokovic**\
