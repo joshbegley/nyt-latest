@@ -1,5 +1,5 @@
 **Janis Ian Lets Her Music Speak Her Mind (One Last Time)**\
-`At 70, the singer-songwriter who was has always been unafraid of difficult subjects is releasing a final album, “The Light at the End of the Line.”`\
+`At 70, the singer-songwriter who has always been unafraid of difficult subjects is releasing a final album, “The Light at the End of the Line.”`\
 https://nytimes.com/2022/01/17/arts/music/janis-ian-light-at-the-end-of-the-line.html?searchResultPosition=1
 
 **$3.2 Million Homes in California**\
