@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/17/travel/namibia-skeleton-coast-road-trip.html?sear
 `The Deauville Beach Resort played host to The Beatles, Frank Sinatra and John F. Kennedy. But it has been deemed unsafe after years of neglect.`\
 https://nytimes.com/2022/01/17/us/deauville-hotel-miami-beach.html?searchResultPosition=9
 
-**Did We Save Wolves Only So We Could Slaughter Them Again?**\
+**A Slaughter of Wolves Like This Hasn’t Been Seen in a Century**\
 `Wolves have thrived since returning to the Northern Rockies. Now they face relentless assault by hunters and trappers.`\
 https://nytimes.com/2022/01/17/opinion/wolves-endangered-yellowstone.html?searchResultPosition=10
 
