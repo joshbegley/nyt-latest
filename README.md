@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/16/business/the-chairman-of-credit-suisse-resigns-af
 https://nytimes.com/2022/01/16/sports/football/cowboys-49ers-score-wild-card.html?searchResultPosition=2
 
 **China’s Economy Slowed Late Last Year on Real Estate Troubles**\
-`Economic output climbed 4 percent in the last quarter, slowing from the July through September quarter. Growth has faltered lately as home buyers and consumers become cautious.`\
+`Economic output climbed 4 percent in the last quarter of 2021, slowing from the previous period that ran July through September. Growth has faltered lately as home buyers and consumers become cautious.`\
 https://nytimes.com/2022/01/16/business/economy/china-economy.html?searchResultPosition=3
 
 **Who Is King of Florida? Tensions Rise Between Trump and a Former Acolyte**\
