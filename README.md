@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/16/us/florida-tensions-rise-trump-desantis.html?sear
 
 **North Korea Launches 2 Short-Range Ballistic Missiles**\
 `The recent missile activity has raised tensions in the region at a sensitive time, and has prompted the United States to call for more sanctions on the North.`\
-https://nytimes.com/2022/01/16/world/asia/north-korea-ballistic-missiles.html?searchResultPosition=2
+https://nytimes.com/2022/01/17/world/asia/north-korea-ballistic-missiles.html?searchResultPosition=2
 
 **Custom 1951 Mercury Sells at Auction for $1.95 Million**\
 `The Hirohata Merc, a prime example of the custom car scene that blossomed in midcentury Southern California, notched two records in its sale.`\
