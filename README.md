@@ -24,7 +24,7 @@ https://nytimes.com/2022/01/16/business/economy/china-economy.html?searchResultP
 
 **Who Is King of Florida? Tensions Rise Between Trump and a Former Acolyte**\
 `A spat over Covid has exposed friction between the former president and a rising G.O.P. governor unwilling to curb his ambitions.`\
-https://nytimes.com/2022/01/16/us/florida-tensions-rise-trump-desantis.html?searchResultPosition=7
+https://nytimes.com/2022/01/16/us/trump-desantis.html?searchResultPosition=7
 
 **North Korea Launches 2 Short-Range Ballistic Missiles**\
 `The recent missile activity has raised tensions in the region at a sensitive time, and has prompted the United States to call for more sanctions on the North.`\
