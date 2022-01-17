@@ -35,6 +35,6 @@ https://nytimes.com/2022/01/17/world/europe/texas-synagogue-hostages-aafia-siddi
 https://nytimes.com/2022/01/17/arts/music/ralph-emery-dead.html?searchResultPosition=9
 
 **The Real Roots of the Debate Over Schools During Covid**\
-`How “taxpayer became just another kind of consumer.`\
+`How “taxpayer” became just another kind of consumer.`\
 https://nytimes.com/2022/01/17/opinion/school-closures-covid-scams.html?searchResultPosition=10
 
