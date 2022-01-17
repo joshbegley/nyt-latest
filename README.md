@@ -26,15 +26,15 @@ https://nytimes.com/2022/01/17/world/europe/france-eric-zemmour-conviction.html?
 `Overseas Tongans were desperately seeking word from their loved ones after a huge undersea eruption severed communications lines two days ago.`\
 https://nytimes.com/2022/01/17/world/asia/tonga-volcano.html?searchResultPosition=7
 
+**Philippines grapples with a record surge after the holidays.**\
+`By Sui-Lee Wee and Camille Elemia`\
+https://nytimes.com/2022/01/17/world/asia/philippines-grapples-with-a-record-surge-after-the-holidays.html?searchResultPosition=8
+
 **Quotation of the Day: A Renegade Pop Music Genre Challenges the Old Guard**\
 `Quotation of the Day for Monday, January 17, 2022.`\
-https://nytimes.com/2022/01/17/todayspaper/quotation-of-the-day-a-renegade-pop-music-genre-challenges-the-old-guard.html?searchResultPosition=8
+https://nytimes.com/2022/01/17/todayspaper/quotation-of-the-day-a-renegade-pop-music-genre-challenges-the-old-guard.html?searchResultPosition=9
 
 **Corrections: Jan. 17, 2022**\
 `Corrections that appeared in print on Monday, Jan. 17, 2022.`\
-https://nytimes.com/2022/01/17/pageoneplus/corrections-jan-17-2022.html?searchResultPosition=9
-
-**Dictator’s Son Can Stay in Philippine Presidential Race, Officials Say**\
-`With Ferdinand Marcos Jr. leading in the polls, victims of his father’s regime have not given up their fight to keep his name off the ballot.`\
-https://nytimes.com/2022/01/17/world/asia/marcos-jr-philippines-presidential-election.html?searchResultPosition=10
+https://nytimes.com/2022/01/17/pageoneplus/corrections-jan-17-2022.html?searchResultPosition=10
 
