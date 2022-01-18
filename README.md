@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/18/dining/james-hoffmann-coffee.html?searchResultPos
 `The 2007 play based on Khaled Hosseini’s novel has been widely produced, including on the West End in London. It will come to Broadway in July.`\
 https://nytimes.com/2022/01/18/theater/kite-runner-broadway.html?searchResultPosition=2
 
-**Hochul Outpaces Foes by Raising a Record-High $21.6 Million for Campaign**\
+**Hochul Outpaces Foes by Raising Record-High $21.6 Million for Campaign**\
 `The fund-raising haul positions Gov. Kathy Hochul, who leads her rivals in polls, as a prohibitive favorite to win her first full term as governor of New York in November.`\
 https://nytimes.com/2022/01/18/nyregion/kathy-hochul-fundraising.html?searchResultPosition=3
 
