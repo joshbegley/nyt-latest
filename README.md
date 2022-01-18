@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/18/world/europe/uk-covid-restrictions-boris-johnson.
 https://nytimes.com/2022/01/18/sports/tennis/emma-raducanu-sloane-stephens-australian-open.html?searchResultPosition=3
 
 **Jan. 6 Inquiry Subpoenas Giuliani and Legal Team That Made Claims of Voting Fraud**\
-`The House committee investigating the Capitol riot called for documents and testimony from Rudolph W. Giuliani, Jenna Ellis, Sidney Powell and Boris Epshteyn.`\
+`The House committee investigating the Capitol riot called for documents and testimony from Rudolph W. Giuliani and three others.`\
 https://nytimes.com/2022/01/18/us/politics/jan-6-inquiry-subpoenas-giuliani.html?searchResultPosition=4
 
 **Judge Approves Deal to Resolve Puerto Rico Bankruptcy**\
