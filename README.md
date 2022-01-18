@@ -14,7 +14,7 @@ https://nytimes.com/2022/01/18/arts/design/faith-ringgold-mural-rikers-brooklyn-
 `Good poker players have always known that they need to maintain a balance between bluffing and playing it straight. Now they can do so perfectly.`\
 https://nytimes.com/2022/01/18/magazine/ai-technology-poker.html?searchResultPosition=4
 
-**Kyle MacLachlan Opened the Prada Show, But Don’t Get Too Excited**\
+**Kyle MacLachlan Opened the Prada Show, but Don’t Get Too Excited**\
 `The actor approached his spot on Prada’s fall 2022 runway as if it was a wonderful role — albeit one he may not reprise.`\
 https://nytimes.com/2022/01/18/style/kyle-maclachlan-prada.html?searchResultPosition=5
 
