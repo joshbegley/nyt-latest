@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/18/books/review/kingdom-of-characters-jing-tsu.html?
 https://nytimes.com/2022/01/18/books/review-devil-house-john-darnielle.html?searchResultPosition=3
 
 **As Johnson Reels From Scandals, Is Someone Plotting to Take His Place?**\
-`A key question is: Will the results of an inquiry over parties in Downing Street during lockdown push a fellow conservative to move against Prime Minister Boris Johnson.`\
+`A key question is: Will the results of an inquiry over parties in Downing Street during lockdown push a fellow conservative to move against Prime Minister Boris Johnson?`\
 https://nytimes.com/2022/01/18/world/europe/britain-johnson-parties-plot.html?searchResultPosition=4
 
 **Scholars Doubt New Theory on Anne Frank’s Betrayal**\
