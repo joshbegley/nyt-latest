@@ -1,5 +1,5 @@
-**Ingrid Betancourt, Former Guerrilla Hostage in Colombia, Announces Bid for President**\
-`Her candidacy comes at a critical time, when Colombians are fed up with the political establishment and the future of the peace agreement is at stake.`\
+**Ex-Guerrilla Hostage in Colombia Will Make a Bid for President**\
+`Ingrid Betancourt’s candidacy comes at a critical time, when Colombians are fed up with the political establishment and the future of the peace agreement is at stake.`\
 https://nytimes.com/2022/01/18/world/americas/colombia-ingrid-betancourt.html?searchResultPosition=1
 
 **Kazakhstan’s Former Leader Speaks Out on Unrest That Gripped the Country**\
