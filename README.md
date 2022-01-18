@@ -14,13 +14,13 @@ https://nytimes.com/2022/01/18/world/australia/tonga-volcano-covid.html?searchRe
 `President López Obrador wants to halt most oil exports and imports of gasoline and other fuels. Critics say he is reneging on Mexico’s climate change commitments.`\
 https://nytimes.com/2022/01/18/business/economy/mexico-oil-refinery-texas.html?searchResultPosition=4
 
-**In Arkansas, Trans Teens Await an Uncertain Future**\
-`Even as the medical community grapples with how best to provide care to transgender adolescents, some states seek to ban it outright.`\
-https://nytimes.com/2022/01/18/science/transgender-adolescents-arkansas.html?searchResultPosition=5
-
 **Naomi Osaka Returns, Ready or Not**\
 `After a tumultuous year and a four-month layoff during which she questioned what she wanted from tennis, Osaka is back on the court. “I’m not sure if this is going to work out well.”`\
-https://nytimes.com/2022/01/18/sports/tennis/naomi-osaka-australian-open.html?searchResultPosition=6
+https://nytimes.com/2022/01/18/sports/tennis/naomi-osaka-australian-open.html?searchResultPosition=5
+
+**In Arkansas, Trans Teens Await an Uncertain Future**\
+`Even as the medical community grapples with how best to provide care to transgender adolescents, some states seek to ban it outright.`\
+https://nytimes.com/2022/01/18/science/transgender-adolescents-arkansas.html?searchResultPosition=6
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
