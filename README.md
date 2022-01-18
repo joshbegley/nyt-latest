@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/18/books/review-devil-house-john-darnielle.html?sear
 
 **As Johnson Reels From Scandals, Is Someone Plotting to Take His Place?**\
 `A key question is: Will the results of an inquiry over parties in Downing Street during lockdown push a fellow conservative to move against Prime Minister Boris Johnson?`\
-https://nytimes.com/2022/01/18/world/europe/britain-johnson-parties-plot.html?searchResultPosition=5
+https://nytimes.com/2022/01/18/world/europe/britain-boris-johnson-parties.html?searchResultPosition=5
 
 **Scholars Doubt New Theory on Anne Frank’s Betrayal**\
 `A new book that names a Jewish notary as a suspect made headlines. Now that World War II and Holocaust experts have had time to review its claims, many doubt the methods and conclusion.`\
