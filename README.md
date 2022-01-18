@@ -1,6 +1,6 @@
 **At Prada, It’s in With the Old**\
 `Opening their fall show with Kyle MacLachlan and closing it with Jeff Goldblum, Miuccia Prada and Raf Simons make a case for dressing up like grown-ups.`\
-https://nytimes.com/2022/01/18/style/at-prada-its-in-with-the-old.html?searchResultPosition=1
+https://nytimes.com/2022/01/18/style/prada-fall-show-jeff-goldblum-kyle-maclachlan.html?searchResultPosition=1
 
 **This Way to the Pandemic Exit**\
 `As Milan men’s wear tentatively returns to live showings, labels like Zegna, Brunello Cucinelli and Dsquared try dreaming their way out of grim reality.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/18/dining/malbec-book.html?searchResultPosition=5
 
 **Coffee, Italian Style, in East Harlem**\
 `Dell’Aria Coffee Roasters celebrates the bean, with a training lab for would-be baristas, along with a coffee shop for aficionados.`\
-https://nytimes.com/2022/01/18/dining/coffee-italian-style-in-east-harlem.html?searchResultPosition=6
+https://nytimes.com/2022/01/18/dining/coffee-east-harlem.html?searchResultPosition=6
 
 **Brad Leone Takes On the Pork Roll**\
 `The Bon Appétit video personality has teamed up with Olympia Provisions on his own version of a New Jersey favorite.`\
