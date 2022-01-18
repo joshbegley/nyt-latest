@@ -2,7 +2,7 @@
 `Kendra James was a legacy student at Taft, but wasn’t made to feel like a member of a proud tradition while she was there.`\
 https://nytimes.com/2022/01/18/books/review/admissions-kendra-james.html?searchResultPosition=1
 
-**Microsoft agrees to buy Activision Blizzard for nearly $70 billion, a big bet on the metaverse.**\
+**Microsoft will buy Activision Blizzard for nearly $70 billion, a big bet on the metaverse.**\
 `With the deal, the largest in the software maker’s history, Microsoft will gain Activision’s nearly 400 million monthly users and access to some of the world’s most popular games.`\
 https://nytimes.com/2022/01/18/business/microsoft-activision-bilzzard.html?searchResultPosition=2
 
