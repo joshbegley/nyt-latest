@@ -26,15 +26,15 @@ https://nytimes.com/2022/01/18/dining/indoor-dining-covid.html?searchResultPosit
 `The French master teacher Philippe Gaulier has worked with stars like Sacha Baron Cohen. But at 78, are his methods, which include insults, outdated?`\
 https://nytimes.com/2022/01/18/arts/television/philippe-gaulier-clowns.html?searchResultPosition=7
 
+**New York City’s mayor says ‘we are winning’ against Omicron, as experts urge caution.**\
+`The number of known cases is still much higher than last winter, and during the devastating first wave in the spring of 2020, testing was scarce, leaving many cases unreported.`\
+https://nytimes.com/2022/01/18/nyregion/eric-adams-omicron-nyc.html?searchResultPosition=8
+
 **Ex-Kazakhstan Leader Calls Rumors of Rift With President ‘Groundless’**\
 `Nursultan Nazarbayev, the former president of Kazakhstan, broke his silence on recent protests and dismissed claims of tension within the country’s elite.`\
-https://nytimes.com/video/world/europe/100000008164322/kazakhstan-protests-nazarbayev-video.html?searchResultPosition=8
+https://nytimes.com/video/world/europe/100000008164322/kazakhstan-protests-nazarbayev-video.html?searchResultPosition=9
 
 **With Activision, Microsoft Bets on the Future**\
 `Video games have become weapons that tech titans wield to try to shape our future.`\
-https://nytimes.com/2022/01/18/technology/microsoft-activision-metaverse.html?searchResultPosition=9
-
-**What’s All the Hype About the Metaverse?**\
-`Microsoft cited the metaverse as a reason for buying Activision Blizzard for $68.7 billion. Let’s break down what that really means.`\
-https://nytimes.com/2022/01/18/technology/personaltech/metaverse-gaming-definition.html?searchResultPosition=10
+https://nytimes.com/2022/01/18/technology/microsoft-activision-metaverse.html?searchResultPosition=10
 
