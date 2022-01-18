@@ -1,5 +1,5 @@
 **Stafford, Beckham Get Playoff Vindication in Rams Win**\
-`Matthew Stafford and Odell Beckham Jr., prolific stars without postseason wins, propelled the Rams to a wild-card round victory over the Cardinals on Monday.`\
+`Matthew Stafford and Odell Beckham Jr., prolific stars with little postseason notoriety, propelled the Rams to a wild-card round victory over the Cardinals on Monday.`\
 https://nytimes.com/2022/01/18/sports/football/cardinals-rams-score-monday-night.html?searchResultPosition=1
 
 **Italy Ponders a New Role for Draghi. Let the Politicking Begin.**\
