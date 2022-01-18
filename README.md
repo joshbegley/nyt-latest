@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/18/nyregion/bill-de-blasio-governor.html?searchResul
 
 **New Research Tracks Ancient Artifacts Looted by the Nazis**\
 `Scholars are increasingly focusing attention on the seizure and excavation of antiquities from Greece and other countries by German forces during World War II.`\
-https://nytimes.com/2022/01/18/arts/design/antiquities-looted-nazis.html?searchResultPosition=3
+https://nytimes.com/2022/01/18/arts/design/nazis-antiquities-looted.html?searchResultPosition=3
 
 **Swipe Right When You See a Conference Room You Like**\
 `Mobile apps for office buildings have become popular as employers try to entice staff back on site by making work-related tasks convenient and safe.`\
