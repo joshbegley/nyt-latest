@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/18/sports/tennis/emma-raducanu-sloane-stephens-austr
 
 **Jan. 6 Inquiry Subpoenas Giuliani and Legal Team That Made Claims of Voting Fraud**\
 `The House committee investigating the Capitol riot called for documents and testimony from Rudolph W. Giuliani, Jenna Ellis, Sidney Powell and Boris Epshteyn.`\
-https://nytimes.com/2022/01/18/us/politics/jan-6-inquiry-subpoenas.html?searchResultPosition=3
+https://nytimes.com/2022/01/18/us/politics/jan-6-inquiry-subpoenas-giuliani.html?searchResultPosition=3
 
 **Judge Approves Deal to Resolve Puerto Rico Bankruptcy**\
 `The plan restructures $33 billion in debt nearly five years after Puerto Rico became the first U.S. state or territory to essentially declare bankruptcy.`\
