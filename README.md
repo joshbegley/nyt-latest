@@ -19,7 +19,7 @@ https://nytimes.com/2022/01/18/sports/basketball/warriors-chamath-palihapitiya-u
 https://nytimes.com/2022/01/18/podcasts/transcript-ezra-klein-interviews-zeynep-tufekci.html?searchResultPosition=5
 
 **Texas Hostage Taker Was Known to British Intelligence**\
-`Malik Faisal Akram had been listed as a “subject of interest” in 2020 by Britain’s MI5 security service, according to a U.S. official and British news media reports. But he had since been deemed to no longer be a risk.`\
+`Malik Faisal Akram was listed as a “subject of interest” in 2020 by Britain’s MI5 security service, according to a U.S. official and British media reports. But he had since been deemed to no longer be a risk.`\
 https://nytimes.com/2022/01/18/world/europe/texas-synagogue-hostage-mi5-intelligence.html?searchResultPosition=6
 
 **How $1,000 a Month in Guaranteed Income Is Helping N.Y.C Mothers**\
