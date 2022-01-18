@@ -1,6 +1,6 @@
 **Editor files discrimination suit against The New York Post.**\
 `In the lawsuit, Michelle Gotthelf said that the tabloid’s longtime top editor, Col Allan, retaliated against her after she turned down a sexual proposition.`\
-https://nytimes.com/2022/01/18/business/media/editor-files-discrimination-suit-against-the-new-york-post.html?searchResultPosition=1
+https://nytimes.com/2022/01/18/business/media/ny-post-discrimination-lawsuit.html?searchResultPosition=1
 
 **Gunna Beats the Weeknd in a Close Race for No. 1**\
 `In a tale of two surprise albums with striking cover art, “deluxe” versions and retail discounts, the Atlanta rapper’s “DS4Ever” won by a nose.`\
