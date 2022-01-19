@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/19/briefing/ukraine-talks-britain-covid-activision.html?searchResultPosition=1
 
 **N.Y. Attorney General Outlines Pattern of Possible Fraud at Trump Business**\
-`The attorney general, Letitia James, released new details of her investigation into whether the company misrepresented the value of its assets, but her office did not file a lawsuit.`\
+`The attorney general, Letitia James, released new details of her investigation as she argued for the need to question Donald J. Trump and two of his children under oath.`\
 https://nytimes.com/2022/01/18/nyregion/trump-organization-fraud-letitia-james.html?searchResultPosition=2
 
 **Mapping a First Look at Tonga’s Devastation After the Volcano Eruption**\
@@ -27,7 +27,7 @@ https://nytimes.com/video/us/politics/100000008165320/senate-voting-rights-filib
 https://nytimes.com/2022/01/18/business/britney-spears-father-fees.html?searchResultPosition=7
 
 **Yvette Mimieux, Who Found Fame With ‘The Time Machine,’ Dies at 80**\
-`Typically playing fragile characters, she had success in the ’60s in “Where the Boys Are” and other films before her acting career took a downturn.`\
+`Typically playing fragile characters, she had success in the 1960s in “Where the Boys Are” and other films before her acting career took a downturn.`\
 https://nytimes.com/2022/01/18/arts/yvette-mimieux-dead.html?searchResultPosition=8
 
 **‘This Beautiful Future’ Review: Love Glows in War’s Shadow**\
