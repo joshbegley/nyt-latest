@@ -1,5 +1,5 @@
 **Officer Shot in Leg in Confrontation With Teen in the Bronx, Police Say**\
-`A bullet fired by the suspect struck both him and the officer in what Mayor Eric Adams called another “unacceptable” example of gun violence in New York.`\
+`Officials said a bullet fired by the suspect struck both him and the officer in what Mayor Eric Adams called another “unacceptable” example of gun violence in New York.`\
 https://nytimes.com/2022/01/19/nyregion/police-officer-shot-bronx.html?searchResultPosition=1
 
 **A Possible Sex Offender Doesn’t Look Good on a Commemorative Tea Towel**\
