@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/19/theater/broadway-hochul-tax-credit.html?searchRes
 
 **Israel Evicts Palestinians in Flashpoint Area of East Jerusalem**\
 `Israelis evicted an extended family and destroyed their homes in the Sheikh Jarrah neighborhood, where attempted evictions last year helped spark a war with Gaza.`\
-https://nytimes.com/2022/01/19/world/middleeast/palestinians-evicted-jerusalem-sheikh-jarrah.html?searchResultPosition=5
+https://nytimes.com/2022/01/19/world/middleeast/israel-palestine-jerusalem-eviction.html?searchResultPosition=5
 
 **Newly Declassified Video Shows U.S. Killing of 10 Civilians in Drone Strike**\
 `The New York Times obtained footage of the botched strike in Kabul, whose victims included seven children, through a Freedom of Information Act lawsuit.`\
