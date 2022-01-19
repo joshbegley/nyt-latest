@@ -28,11 +28,11 @@ https://nytimes.com/2022/01/19/arts/music/aoife-odonovan-age-of-apathy.html?sear
 
 **Survey of Americans Who Attempted Suicide Finds Many Aren’t Getting Care**\
 `The number of people who try suicide has risen steadily in the U.S. But despite gains in health coverage, nearly half are not getting mental health treatment.`\
-https://nytimes.com/2022/01/19/health/suicide-us-attempts.html?searchResultPosition=8
+https://nytimes.com/2022/01/19/health/suicide-attempts-us.html?searchResultPosition=8
 
 **What New York Prosecutors Have on Robert Durst**\
 `Nearly four decades after Kathie McCormack Durst disappeared, prosecutors say they are confident she was killed by her husband, Robert Durst.`\
-https://nytimes.com/2022/01/19/nyregion/robert-durst-westchester-murder.html?searchResultPosition=9
+https://nytimes.com/2022/01/19/nyregion/robert-durst-murders.html?searchResultPosition=9
 
 **The 5G Snafu Was Avoidable**\
 `Government agencies should have worked together to keep the skies safe while introducing new wireless technology.`\
