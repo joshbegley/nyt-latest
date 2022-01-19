@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/19/learning/weekly-accessible-learning-activities-sp
 `There are three seasoned pros to keep an eye on and one teenage amateur.`\
 https://nytimes.com/2022/01/19/sports/golf/hsbc-championship-players-to-watch.html?searchResultPosition=8
 
+**Biden promises free masks in the ‘largest deployment’ of such equipment in U.S. history.**\
+`The White House said the government would begin shipping N95 masks at the end of this week.`\
+https://nytimes.com/2022/01/19/us/covid-biden-free-masks.html?searchResultPosition=9
+
 **Dunellen, N.J.: Affordability, With a ‘Small-Town Quaintness’**\
 `The Middlesex County borough offers a sense of community and a diversity that feels ‘like being in Brooklyn.’ But the housing market is ‘very tight.’`\
-https://nytimes.com/2022/01/19/realestate/dunellen-nj.html?searchResultPosition=9
-
-**Living In ... Dunellen, N.J.**\
-`The Middlesex County borough offers a sense of community and a diversity that feels ‘like being in Brooklyn.’ But the housing market is ‘very tight.’`\
-https://nytimes.com/slideshow/2022/01/19/realestate/living-in-dunellen-nj.html?searchResultPosition=10
+https://nytimes.com/2022/01/19/realestate/dunellen-nj.html?searchResultPosition=10
 
