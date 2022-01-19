@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/19/sports/golf/hsbc-championship-players-to-watch.ht
 
 **Dunellen, N.J.: Affordability, With a ‘Small-Town Quaintness’**\
 `The Middlesex County borough offers a sense of community and a diversity that feels ‘like being in Brooklyn.’ But the housing market is ‘very tight.’`\
-https://nytimes.com/2022/01/19/realestate/dunellen-nj-affordability-with-a-small-town-quaintness.html?searchResultPosition=2
+https://nytimes.com/2022/01/19/realestate/dunellen-nj.html?searchResultPosition=2
 
 **Living In ... Dunellen, N.J.**\
 `The Middlesex County borough offers a sense of community and a diversity that feels ‘like being in Brooklyn.’ But the housing market is ‘very tight.’`\
