@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/19/briefing/voting-rights-omicron-andre-leon-talley.
 
 **Why Are Men More Likely to Die of Covid? It’s Complicated.**\
 `Sex differences in Covid death rates vary widely from state to state, suggesting they are rooted in behavior as well as biology.`\
-https://nytimes.com/2022/01/19/health/covid-sex-differences-deaths-men-women.html?searchResultPosition=5
+https://nytimes.com/2022/01/19/health/covid-gender-deaths-men-women.html?searchResultPosition=5
 
 **Senator Scott Criticizes Comparing Voting Restrictions to Jim Crow**\
 `Senators Tim Scott and Cory Booker clashed over calling Republican-backed voting legislation “Jim Crow 2.0.”`\
