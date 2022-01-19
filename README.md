@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/19/theater/broadway-hochul-tax-credit.html?searchRes
 `Israelis evicted an extended family and destroyed their homes in the Sheikh Jarrah neighborhood, where attempted evictions last year helped spark a war with Gaza.`\
 https://nytimes.com/2022/01/19/world/middleeast/israel-palestine-jerusalem-eviction.html?searchResultPosition=9
 
-**Newly Declassified Video Shows U.S. Killing of 10 Civilians in Drone Strike**\
-`The New York Times obtained footage of the botched strike in Kabul, whose victims included seven children, through a Freedom of Information Act lawsuit.`\
-https://nytimes.com/2022/01/19/us/politics/afghanistan-drone-strike-video.html?searchResultPosition=10
+**A Florida public health official is put on leave after emailing his staff to urge vaccination.**\
+`Dr. Raul Pino, the state public health administrator in Orlando, told employees that without a good reason, not being vaccinated against the coronavirus was irresponsible.`\
+https://nytimes.com/2022/01/19/us/raul-pino-florida-vaccines.html?searchResultPosition=10
 
