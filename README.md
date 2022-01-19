@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/19/us/politics/afghanistan-drone-strike-video.html?searchResultPosition=1
 
 **High-Resolution Drone Video Shows Closer Angle of Kabul Strike**\
-`The U.S. military took the rare step of releasing high-resolution drone footage showing the Afghan aid worker Zemari Ahmadi arriving at his home in Kabul on Aug. 29, 2021. The U.S. military mistakenly killed him and nine of his family members with a Hellfire missile moments later.`\
+`A second drone captured high-resolution footage of the strike on Aug. 29, 2021 from another angle. The U.S. military mistakenly killed the Afghan aid worker Zemari Ahmadi and nine of his family members with a Hellfire missile.`\
 https://nytimes.com/video/us/100000008165897/drone-strike-kabul.html?searchResultPosition=2
 
 **New Video Shows Botched Kabul Drone Strike**\
