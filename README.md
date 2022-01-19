@@ -26,7 +26,7 @@ https://nytimes.com/video/us/politics/100000008165320/senate-voting-rights-filib
 `Jamie Spears, suspended as his daughter’s conservator, wants her to pay his legal costs. A filing by her lawyer outlined accusations against him.`\
 https://nytimes.com/2022/01/18/business/britney-spears-father-fees.html?searchResultPosition=7
 
-**Yvette Mimieux, Who Found Fame in ‘The Time Machine,’ Dies at 80**\
+**Yvette Mimieux, Who Found Fame With ‘The Time Machine,’ Dies at 80**\
 `Typically playing fragile characters, she had success in the ’60s in “Where the Boys Are” and other films before her acting career took a downturn.`\
 https://nytimes.com/2022/01/18/arts/yvette-mimieux-dead.html?searchResultPosition=8
 
