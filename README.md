@@ -36,5 +36,5 @@ https://nytimes.com/2022/01/19/world/europe/essex-lorry-deaths-verdict-belgium.h
 
 **Omicron Is in Retreat**\
 `What’s next?`\
-https://nytimes.com/2022/01/19/briefing/omicron-retreat-next-phase-us.html?searchResultPosition=10
+https://nytimes.com/2022/01/19/briefing/omicron-variant-cases.html?searchResultPosition=10
 
