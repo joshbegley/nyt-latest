@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/19/opinion/sway-kara-swisher-lina-khan.html?searchRe
 
 **Sotomayor and Gorsuch Address Reports of Conflicts Over Masks**\
 `Justice Sonia Sotomayor, who has diabetes, has been participating in Supreme Court arguments remotely. Justice Neil M. Gorsuch, her seatmate, is the only member of the court who does not wear a mask.`\
-https://nytimes.com/2022/01/19/us/politics/supreme-court-sotomayor-gorsuch-masks.html?searchResultPosition=6
+https://nytimes.com/2022/01/19/us/politics/supreme-court-masks.html?searchResultPosition=6
 
 **Syrian Doctor Accused of Atrocities Goes on Trial in Germany**\
 `The charges against Alaa Mousa include torturing opponents of the Assad regime in military hospitals in Syria, and murdering at least one by lethal injection.`\
