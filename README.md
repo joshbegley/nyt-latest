@@ -1,40 +1,40 @@
-**We Know the Real Cause of the Crisis in Our Hospitals. It’s Greed.**\
-`Nurses would like to set the record straight on the hospital staffing crisis.`\
-https://nytimes.com/video/opinion/100000008158650/covid-nurse-burnout-understaffing.html?searchResultPosition=1
+**Players to Watch at the HSBC Championship**\
+`There are three seasoned pros to keep an eye on and one teenage amateur.`\
+https://nytimes.com/2022/01/19/sports/golf/hsbc-championship-players-to-watch.html?searchResultPosition=1
 
-**A State Budget With an Unexpected Twist: No Red Ink**\
-`Gov. Kathy Hochul announced a $216.3 billion spending plan as officials projected balanced state budgets through 2027.`\
-https://nytimes.com/2022/01/19/nyregion/new-york-state-budget.html?searchResultPosition=2
+**Dunellen, N.J.: Affordability, With a ‘Small-Town Quaintness’**\
+`The Middlesex County borough offers a sense of community and a diversity that feels ‘like being in Brooklyn.’ But the housing market is ‘very tight.’`\
+https://nytimes.com/2022/01/19/realestate/dunellen-nj-affordability-with-a-small-town-quaintness.html?searchResultPosition=2
 
-**‘We Are Taiwanese’: China’s Growing Menace Hardens Island’s Identity**\
-`More than ever, Taiwan defines itself by its democratic values. Beijing’s military and diplomatic threats only reinforce the island’s separateness.`\
-https://nytimes.com/2022/01/19/world/asia/taiwan-china-identity.html?searchResultPosition=3
+**Living In ... Dunellen, N.J.**\
+`The Middlesex County borough offers a sense of community and a diversity that feels ‘like being in Brooklyn.’ But the housing market is ‘very tight.’`\
+https://nytimes.com/slideshow/2022/01/19/realestate/living-in-dunellen-nj.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/19/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**‘It’s All Just Wild’: Tech Start-Ups Reach a New Peak of Froth**\
+`There’s more money and more bubbly behavior. Investors insist it’s rational.`\
+https://nytimes.com/2022/01/19/technology/tech-startup-funding.html?searchResultPosition=4
 
-**Your Tech**\
-`What are your favorite apps and tech tools right now?`\
-https://nytimes.com/2022/01/19/learning/your-tech.html?searchResultPosition=5
+**Does the Supreme Court Need More Justices?**\
+`The cases for and against altering the court.`\
+https://nytimes.com/2022/01/19/opinion/the-argument-court-reform.html?searchResultPosition=5
 
-**André Leon Talley, Editor and Fashion Industry Force, Dies at 73**\
-`Called “a creative genius,” he was the rare Black editor at the top of a field that was mostly white and notoriously elitist.`\
-https://nytimes.com/2022/01/19/style/andre-leon-talley-dead.html?searchResultPosition=6
+**Has the Pandemic Undermined Off-Season Deals?**\
+`In many places, high-occupancy rates are inflating prices for budget-minded travelers who count on off-peak periods to find the best bargains. Here’s what to do and where to look.`\
+https://nytimes.com/2022/01/19/travel/off-season-deals-pandemic.html?searchResultPosition=6
 
-**Read the court filing**\
-`The New York attorney general, Letitia James, released new details of her investigation into the Trump Organization.`\
-https://nytimes.com/interactive/2022/01/19/nyregion/letitia-james-trump-filing-january-18-2022.html?searchResultPosition=7
+**Florence Is Burning**\
+`Inspired by American drag ball culture, the young Finnish designer Ervin Latimer staged a raucous, gender-ambivalent throwdown for his Pitti Uomo debut.`\
+https://nytimes.com/2022/01/19/style/florence-is-burning.html?searchResultPosition=7
 
-**Trevor Noah Doesn’t Trust At-Home Tests**\
-`“We’re just going to test ourselves for antigens? Is that before or after we mess up the directions on an Easy Mac?” Noah said.`\
-https://nytimes.com/2022/01/19/arts/television/trevor-noah-home-covid-tests.html?searchResultPosition=8
+**In Voting Rights Fight, Democrats Train Ire on Sinema and Manchin**\
+`Prominent Democrats are expressing rage at their party’s two filibuster holdouts, rather than at Republicans who are blocking their voting rights bill.`\
+https://nytimes.com/2022/01/19/us/politics/democrats-filibuster-sinema-manchin.html?searchResultPosition=8
 
-**Word of the Day: banish**\
-`This word has appeared in 50 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/19/learning/word-of-the-day-banish.html?searchResultPosition=9
+**Everyone Is Quitting. Here’s the Right Way to Do It.**\
+`From understanding why you want to leave to tackling health insurance and retirement plans, here’s your guide to a graceful exit — without leaving money on the table.`\
+https://nytimes.com/2022/01/19/your-money/quitting-your-job-guide.html?searchResultPosition=9
 
-**Officer Shot in Leg in Confrontation With Teen in the Bronx, Police Say**\
-`Officials said a bullet fired by the suspect struck both him and the officer in what Mayor Eric Adams called another “unacceptable” example of gun violence in New York.`\
-https://nytimes.com/2022/01/19/nyregion/police-officer-shot-bronx.html?searchResultPosition=10
+**Ghislaine Maxwell’s Bid for a New Trial Faces a Major Hurdle**\
+`The rule that a trial judge cannot ask what happened in the jury room could block an attempt by Ms. Maxwell’s lawyers to overturn the verdict.`\
+https://nytimes.com/2022/01/19/nyregion/ghislaine-maxwell-trial-juror.html?searchResultPosition=10
 
