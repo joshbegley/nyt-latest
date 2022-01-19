@@ -32,7 +32,7 @@ https://nytimes.com/2022/01/19/business/covid-pill-treatment-pfizer.html?searchR
 
 **Undeterred by Omicron, Tourists Seek Sun in a Welcoming Spain**\
 `For decades, Spain has been a prime destination for European snowbirds. Even as the Omicron variant spreads, the country is keeping its doors wide open to visitors.`\
-https://nytimes.com/2022/01/19/world/europe/spain-tourism-covid-canary.html?searchResultPosition=9
+https://nytimes.com/2022/01/19/world/europe/spain-covid-canary-islands.html?searchResultPosition=9
 
 **What You Get for $620,000**\
 `A 1788 house in West Simsbury, Conn.; a three-bedroom rowhouse in Leesburg, Va.; and a four-bedroom home in Vestavia Hills, Ala.`\
