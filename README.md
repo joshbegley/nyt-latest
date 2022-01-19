@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/19/business/5g-radio-altimeters.html?searchResultPos
 https://nytimes.com/2022/01/19/briefing/blinken-ukraine-britain-covid-taiwan.html?searchResultPosition=2
 
 **Watch Live: President Biden Holds Formal News Conference**\
-`President Biden takes questions from reporters on the eve of his first year in office.`\
+`President Biden delivers remarks and takes questions from reporters on the eve of his first year in office.`\
 https://nytimes.com/video/us/politics/100000008164725/biden-press-conference-livestream.html?searchResultPosition=3
 
 **New Jersey Mandates Boosters for Health Care and Prison Workers**\
