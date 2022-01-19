@@ -26,7 +26,7 @@ https://nytimes.com/2022/01/19/movies/jon-bernthal-king-richard.html?searchResul
 `The FTC Chair’s exclusive conversation with Kara Swisher and Andrew Ross Sorkin.`\
 https://nytimes.com/2022/01/19/opinion/sway-kara-swisher-lina-khan.html?searchResultPosition=7
 
-**Sotomayor and Gorsuch Address Reports of Conflicts Over Masks**\
+**Roberts, Sotomayor and Gorsuch Address Reports of Conflicts Over Masks**\
 `Justice Sonia Sotomayor, who has diabetes, has been participating in Supreme Court arguments remotely. Justice Neil M. Gorsuch, her seatmate, is the only member of the court who does not wear a mask.`\
 https://nytimes.com/2022/01/19/us/politics/supreme-court-masks.html?searchResultPosition=8
 
