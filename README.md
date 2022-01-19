@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/18/technology/video-games-activision-microsoft.html?
 
 **New Government Website for Ordering Covid Tests Is Up and Running**\
 `Visitors can go to covidtests.gov and click through to a Postal Service web page where they can order four tests per household, free of charge.`\
-https://nytimes.com/2022/01/18/health/government-website-covid-tests.html?searchResultPosition=4
+https://nytimes.com/2022/01/18/us/politics/government-website-covid-tests.html?searchResultPosition=4
 
 **Emily’s List Threatens to Pull Support From Sinema Over Filibuster Stance**\
 `The powerful political action committee said the Arizona senator could find herself “standing alone” in 2024 if she refuses to change Senate rules to force through voting rights legislation.`\
