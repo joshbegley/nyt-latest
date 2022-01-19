@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/19/us/politics/jan-6-committee-subpoena-white-nation
 
 **Biden Will Provide 400 Million N95 Masks For Free Starting Next Week**\
 `The masks will be distributed at pharmacies and community health centers, but some public health experts said the effort was coming too late.`\
-https://nytimes.com/2022/01/19/health/biden-n95-masks.html?searchResultPosition=2
+https://nytimes.com/2022/01/19/health/biden-free-n95-masks.html?searchResultPosition=2
 
 **Gathering to Remember Michelle Go**\
 `Hundreds of people gathered in Times Square on Tuesday at a vigil for the woman who died after being pushed onto the subway tracks last weekend.`\
