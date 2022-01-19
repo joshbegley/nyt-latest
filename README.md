@@ -1,4 +1,4 @@
-**André Leon Talley, Ex-Vogue Editor and a ‘Force’ in Fashion, Dies at 73**\
+**André Leon Talley, Editor and Fashion Industry Force, Dies at 73**\
 `Called “a creative genius,” he was the rare Black editor at the top of a field that was mostly white and notoriously elitist.`\
 https://nytimes.com/2022/01/19/style/andre-leon-talley-dead.html?searchResultPosition=1
 
