@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/19/business/5g-radio-altimeters.html?searchResultPosition=1
 
 **Your Thursday Briefing: Blinken Visits Ukraine**\
-`Officials pushed back on Moscow’s negotiation demands.`\
+`U.S. officials pushed back on Moscow’s negotiation demands.`\
 https://nytimes.com/2022/01/19/briefing/blinken-ukraine-britain-covid-taiwan.html?searchResultPosition=2
 
 **Watch Live: President Biden Holds Formal News Conference**\
