@@ -22,7 +22,7 @@ https://nytimes.com/2022/01/19/pageoneplus/corrections-jan-20-2022.html?searchRe
 `President Biden’s comments went well beyond the formal intelligence assessments described by White House officials, which conclude that Russia’s president has not yet decided whether to invade.`\
 https://nytimes.com/2022/01/19/us/politics/biden-putin-russia-ukraine.html?searchResultPosition=6
 
-**After a day of debate, voting rights bill is blocked in the Senate**\
+**After a day of debate, the voting rights bill is blocked in the Senate.**\
 `Without the votes to change Senate rules, Democrats had no avenue for overcoming a Republican filibuster against legislation intended to offset new state voting restrictions.`\
 https://nytimes.com/2022/01/19/us/politics/senate-voting-rights-filibuster.html?searchResultPosition=7
 
