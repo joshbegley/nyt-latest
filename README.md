@@ -1,6 +1,6 @@
 **A son’s plea, after the death of a mother who celebrated catching Covid.**\
 `Jak Rek said his mother, Hana Horka, 57, had refused to be vaccinated and sought infection to gain natural immunity.`\
-https://nytimes.com/2022/01/20/world/a-sons-plea-after-the-death-of-a-mother-who-celebrated-catching-covid.html?searchResultPosition=1
+https://nytimes.com/2022/01/20/world/hana-horka-covid-czech-singer.html?searchResultPosition=1
 
 **This ‘Plastic Man’ Has a Cape and a Superhero’s Mission: Cleaning Up Senegal**\
 `Dressed head to toe in plastic, Modou Fall is a familiar sight in Dakar. But however playful his costume, his goal couldn’t be more serious: ridding the capital of the scourge of plastic bags.`\
