@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/20/learning/quitting.html?searchResultPosition=5
 
 **‘Misstatements and Omissions’**\
 `The New York attorney general said financial documents from Donald Trump inflated the value of his assets.`\
-https://nytimes.com/2022/01/20/nyregion/misleading-statements-and-omissions.html?searchResultPosition=6
+https://nytimes.com/2022/01/20/nyregion/misstatements-and-omissions.html?searchResultPosition=6
 
 **Jimmy Kimmel Not Surprised About Trump’s ‘Male Pattern Fraudness’**\
 `“The walls appear to be closing in on Trump — big, beautiful walls,” Kimmel said, as new details emerged from an investigation into the ex-president’s family business.`\
