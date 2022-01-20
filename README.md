@@ -24,7 +24,7 @@ https://nytimes.com/2022/01/20/opinion/murder-rate-police-homicide.html?searchRe
 
 **Biden the Negotiator Confronts the Cold Reality of Capitol Hill Gridlock**\
 `President Biden will retreat from fruitless negotiations with lawmakers and instead emphasize his power to govern, senior White House advisers said.`\
-https://nytimes.com/2022/01/20/us/politics/biden-capitol-hill-gridlock.html?searchResultPosition=7
+https://nytimes.com/2022/01/20/us/politics/president-biden-senate-house.html?searchResultPosition=7
 
 **After Jan. 6, Sean Hannity Advised Trump: ‘No More Stolen Election Talk’**\
 `The Fox News host discussed with the White House press secretary how to dissuade the president from pursuing claims of voter fraud, newly disclosed documents show.`\
