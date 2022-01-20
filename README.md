@@ -1,4 +1,4 @@
-**Biden Predicts Russia Will Invade Ukraine, but Warns That Putin Will Pay a ‘Dear Price’**\
+**Biden Predicts Putin Will Order Ukraine Invasion, but ‘Will Regret Having Done It’**\
 `Mr. Biden’s comments went well beyond the formal intelligence assessments described by White House officials, which conclude that Russia’s president has not yet decided whether to invade.`\
 https://nytimes.com/2022/01/19/us/politics/biden-putin-ukraine.html?searchResultPosition=1
 
