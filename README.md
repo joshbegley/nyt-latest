@@ -1,5 +1,5 @@
 **Reporter Is Hit by Car on Air, Striking Nerve With TV Journalists**\
-`TV journalists said stations must be more careful about sending reporters out alone after footage circulated online of a West Virginia reporter being hit by an S.U.V.`\
+`TV reporters, responding to footage of a West Virginia journalist being hit by an S.U.V., said stations should be more careful about sending reporters out alone.`\
 https://nytimes.com/2022/01/20/us/west-virginia-reporter-hit-by-car.html?searchResultPosition=1
 
 **Film Club: ‘The Aria of Babyface Cauliflower Brown’**\
