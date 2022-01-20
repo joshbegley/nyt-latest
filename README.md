@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/20/technology/why-free-covid-tests-went-viral.html?s
 `The prosecutor, Fani T. Willis of Fulton County, Ga., is conducting a criminal investigation of election interference by the former president and his allies.`\
 https://nytimes.com/2022/01/20/us/politics/georgia-trump-election-investigation.html?searchResultPosition=2
 
-**Omicron was probably in N.Y.C. well before the first U.S. case was detected, wastewater data suggests.**\
+**Omicron was probably in N.Y.C. well before the first U.S. case was detected, wastewater data suggest.**\
 `The findings provide more evidence that wastewater surveillance can serve as an early warning system about the spread of new variants.`\
 https://nytimes.com/2022/01/20/health/nyc-omicron-wasteweater.html?searchResultPosition=3
 
