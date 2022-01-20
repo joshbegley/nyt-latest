@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/20/arts/music/fred-parris-dead.html?searchResultPosi
 
 **Why Free Covid Tests Went Viral**\
 `It says something about human nature.`\
-https://nytimes.com/2022/01/20/technology/why-free-covid-tests-went-viral.html?searchResultPosition=2
+https://nytimes.com/2022/01/20/technology/free-covid-tests.html?searchResultPosition=2
 
 **Atlanta D.A. Requests Special Grand Jury in Trump Election Inquiry**\
 `The prosecutor, Fani T. Willis of Fulton County, Ga., is conducting a criminal investigation of election interference by the former president and his allies.`\
