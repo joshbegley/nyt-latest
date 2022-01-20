@@ -1,4 +1,4 @@
-**Reporter Is Hit by Car on Air, Striking a Nerve With TV Journalists**\
+**Reporter Is Hit by Car on Air, Striking Nerve With TV Journalists**\
 `TV journalists said stations must be more careful about sending reporters out alone after footage circulated online of a West Virginia reporter being hit by an S.U.V.`\
 https://nytimes.com/2022/01/20/us/west-virginia-reporter-hit-by-car.html?searchResultPosition=1
 
