@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/20/science/whales-swallow-choke.html?searchResultPos
 `America 2022 is an exhausting place. Prioritizing rest, sleep and dreaming is  something I can pass on.`\
 https://nytimes.com/2022/01/20/opinion/teach-children-to-be-lazy.html?searchResultPosition=2
 
-**‘She Was Just Going For a Run’: Anger in Ireland Over Teacher’s Murder**\
+**‘She Was Just Going for a Run’: Anger in Ireland Over Teacher’s Murder**\
 `Ashling Murphy, a 23-year-old first-grade teacher, was out jogging when she was attacked. Her death has prompted outrage over women’s safety.`\
 https://nytimes.com/2022/01/20/world/europe/ireland-ashling-murphy-murder.html?searchResultPosition=3
 
