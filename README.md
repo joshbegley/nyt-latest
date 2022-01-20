@@ -22,7 +22,7 @@ https://nytimes.com/2022/01/19/us/politics/jan-6-attack-14th-amendment.html?sear
 `The panel investigating the assault on the Capitol wants information from two leaders of the “America First” extremist movement.`\
 https://nytimes.com/2022/01/19/us/politics/jan-6-committee-subpoena-white-nationalists.html?searchResultPosition=6
 
-**Biden Will Provide 400 Million N95 Masks For Free Starting Next Week**\
+**Biden Will Provide 400 Million N95 Masks for Free Starting Next Week**\
 `The masks will be distributed at pharmacies and community health centers, but some public health experts said the effort was coming too late.`\
 https://nytimes.com/2022/01/19/health/biden-free-n95-masks.html?searchResultPosition=7
 
