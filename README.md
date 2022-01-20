@@ -1,40 +1,40 @@
+**Kidneys From a Genetically Altered Pig Are Implanted in a Brain-Dead Patient**\
+`Surgeons at the University of Alabama at Birmingham said they hoped to start clinical trials with kidney patients later this year.`\
+https://nytimes.com/2022/01/20/health/transplants-pig-human-kidney.html?searchResultPosition=1
+
+**‘Salt in My Soul’ Review: Living, Even Thriving, With Illness**\
+`This documentary reconstructs the life of Mallory Smith, who died at 25 after a lifelong battle with cystic fibrosis.`\
+https://nytimes.com/2022/01/20/arts/salt-in-my-soul-review.html?searchResultPosition=2
+
+**‘Munich: The Edge of War’ Review: ‘Well Navigated, Sir’ (Not!)**\
+`With clenched jaws and furrowed brows, this plodding procedural attempts to glorify Neville Chamberlain, played here by Jeremy Irons.`\
+https://nytimes.com/2022/01/20/movies/munich-the-edge-of-war-review.html?searchResultPosition=3
+
+**‘A Shot Through the Wall’ Review: Tipping Justice’s Scales**\
+`In this drama about the killing of a Black man, the intersection of race and policing is considered from the perspective of a Chinese American police officer.`\
+https://nytimes.com/2022/01/20/movies/a-shot-through-the-wall-review.html?searchResultPosition=4
+
+**‘The King’s Daughter’ Review: Sinking or Swimming at Versailles**\
+`Pierce Brosnan stars as a version of King Louis XIV who seeks to sacrifice a mermaid for immortality in this puerile storybook fantasy that was shot nearly eight years ago.`\
+https://nytimes.com/2022/01/20/movies/the-kings-daughter-review.html?searchResultPosition=5
+
+**‘The Royal Treatment’ Review: Heavy is the Head (and Shoulders)**\
+`Laura Marano and Mena Massoud star in a romantic comedy that tweaks a familiar formula but still feels inane.`\
+https://nytimes.com/2022/01/20/movies/the-royal-treatment-review.html?searchResultPosition=6
+
+**‘Donkeyhead’ Review: You Really Can’t Go Home Anymore**\
+`A writer living in Canada finds herself back home with her Punjabi immigrant parents.`\
+https://nytimes.com/2022/01/20/movies/donkeyhead-review.html?searchResultPosition=7
+
+**‘The Last Thing Mary Saw’ Review: God Is Always Watching**\
+`In this thriller set in a Calvinist household in 1843, two women in love struggle against both patriarchal and supernatural forces to be together.`\
+https://nytimes.com/2022/01/20/movies/the-last-thing-mary-saw-review.html?searchResultPosition=8
+
+**‘Lunana: A Yak in the Classroom’ Review: Remote Learning**\
+`In Pawo Choyning Dorji’s film, a teacher is assigned to a school that’s an eight-day walk from where he lives.`\
+https://nytimes.com/2022/01/20/movies/lunana-a-yak-in-the-classroom-review.html?searchResultPosition=9
+
 **Australia’s (Brief) Idea to Ease Supply Chains: Juvenile Forklift Drivers**\
 `A proposal, and the rapid retreat that followed, both elicited waggish mockery and highlighted a serious economic problem.`\
-https://nytimes.com/2022/01/20/business/australia-juvenile-forklift-drivers.html?searchResultPosition=1
-
-**Fears of an Invasion**\
-`We explain the latest on Russia and Ukraine.`\
-https://nytimes.com/2022/01/20/briefing/russia-ukraine-putin-biden.html?searchResultPosition=2
-
-**On their second date, they got stuck together in lockdown. Would romance bloom?**\
-`Sparks didn’t fly on their first blind date. Then the city shut down while she was visiting.`\
-https://nytimes.com/2022/01/20/world/asia/china-blind-date-lockdown.html?searchResultPosition=3
-
-**Microsoft and the Metaverse**\
-`Why are so many major companies investing in this new digital world — and what is it, anyway?`\
-https://nytimes.com/2022/01/20/podcasts/the-daily/metaverse-microsoft-activision-blizzard.html?searchResultPosition=4
-
-**‘Trainer to the Trainers’ in a Dog Fighting Ring Is Sentenced to 5 Years**\
-`Vernon Vegas trained dogs for fights hosted by a multistate cocaine trafficking and dog fighting ring, federal prosecutors said.`\
-https://nytimes.com/2022/01/20/us/georgia-dog-fighting-trainer.html?searchResultPosition=5
-
-**Predictions Favored Solar Over Wind Power. What Happened?**\
-`One lesson: Renewable technology benefits from early, consistent government support.`\
-https://nytimes.com/2022/01/20/climate/solar-wind-renewable-energy.html?searchResultPosition=6
-
-**Vocabulary in Context: Discord**\
-`Test your vocabulary and reading comprehension with this quiz based on the Times article "How Discord, Born From an Obscure Game, Became a Social Hub for Young People."`\
-https://nytimes.com/interactive/2022/01/20/learning/20DiscordLN.html?searchResultPosition=7
-
-**This Ancient Brew Has Retro Appeal in South Korea**\
-`Makgeolli, a rice wine made by Korean farmers for centuries, has become a cosmopolitan sensation over the past decade. The buzz grew during Covid lockdowns.`\
-https://nytimes.com/2022/01/20/world/asia/south-korea-makgeolli-rice-wine.html?searchResultPosition=8
-
-**How Fire Defined the Bronx, and Us**\
-`The recent fire at Twin Parks in the Bronx was an undeniable tragedy. Just as every fire there over the past 50 years has been.`\
-https://nytimes.com/2022/01/20/nyregion/bronx-fires.html?searchResultPosition=9
-
-**The Day New Queer Cinema Said: Let’s Do This**\
-`Thirty years after a panel at Sundance, some of the artists and journalists who helped ignite an L.G.B.T.Q. film movement take stock.`\
-https://nytimes.com/2022/01/20/movies/new-queer-cinema-anniversary.html?searchResultPosition=10
+https://nytimes.com/2022/01/20/business/australia-juvenile-forklift-drivers.html?searchResultPosition=10
 
