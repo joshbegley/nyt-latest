@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/19/pageoneplus/corrections-jan-20-2022.html?searchRe
 `Mr. Biden’s comments went well beyond the formal intelligence assessments described by White House officials, which conclude that Russia’s president has not yet decided whether to invade.`\
 https://nytimes.com/2022/01/19/us/politics/biden-putin-russia-ukraine.html?searchResultPosition=2
 
-**After a Day of Debate, Voting Rights Bills Head for Defeat in the Senate**\
+**After a Day of Debate, Voting Rights Bill Heads for Defeat in the Senate**\
 `Without the votes to change Senate rules, Democrats cannot overcome a Republican filibuster against legislation intended to offset new state voting restrictions.`\
 https://nytimes.com/2022/01/19/us/politics/senate-voting-rights-filibuster.html?searchResultPosition=3
 
