@@ -18,13 +18,13 @@ https://nytimes.com/2022/01/20/climate/solar-wind-renewable-energy.html?searchRe
 `Test your vocabulary and reading comprehension with this quiz based on the Times article "How Discord, Born From an Obscure Game, Became a Social Hub for Young People."`\
 https://nytimes.com/interactive/2022/01/20/learning/20DiscordLN.html?searchResultPosition=5
 
-**This Ancient Brew Has Retro Appeal in South Korea**\
-`Makgeolli, a rice wine made by Korean farmers for centuries, has become a cosmopolitan sensation over the past decade. The buzz grew during Covid lockdowns.`\
-https://nytimes.com/2022/01/20/world/asia/south-korea-makgeolli-rice-wine.html?searchResultPosition=6
-
 **How Fire Defined the Bronx, and Us**\
 `The recent fire at Twin Parks in the Bronx was an undeniable tragedy. Just as every fire there over the past 50 years has been.`\
-https://nytimes.com/2022/01/20/nyregion/bronx-fires.html?searchResultPosition=7
+https://nytimes.com/2022/01/20/nyregion/bronx-fires.html?searchResultPosition=6
+
+**This Ancient Brew Has Retro Appeal in South Korea**\
+`Makgeolli, a rice wine made by Korean farmers for centuries, has become a cosmopolitan sensation over the past decade. The buzz grew during Covid lockdowns.`\
+https://nytimes.com/2022/01/20/world/asia/south-korea-makgeolli-rice-wine.html?searchResultPosition=7
 
 **The Day New Queer Cinema Said: Let’s Do This**\
 `Thirty years after a panel at Sundance, some of the artists and journalists who helped ignite an L.G.B.T.Q. film movement take stock.`\
