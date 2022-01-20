@@ -1,6 +1,6 @@
 **Michael Schur’s Unending Quest to Be Perfect**\
 `The comedy writer, known for shows like “Parks and Recreation” and “The Good Place,” has a surprising new project: a book about moral philosophy that explores how to be a good person.`\
-https://nytimes.com/2022/01/20/books/michael-schur-how-to-be-perfect-good-place.html?searchResultPosition=1
+https://nytimes.com/2022/01/20/books/michael-schur-how-to-be-perfect.html?searchResultPosition=1
 
 **Detective Shot in Leg During Drug Search on Staten Island, Police Say**\
 `The officer was the second to be shot in New York in 36 hours, offering a challenge to Mayor Eric Adams as he seeks to deliver on the public safety message that was central to his campaign.`\
