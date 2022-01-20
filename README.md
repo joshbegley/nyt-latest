@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/20/arts/music/rampd-disability-culture-music-industry.html?searchResultPosition=1
 
 **Mining Truck Explodes in Ghana, Killing Dozens**\
-`The number of dead is not yet known, but the blast flattened buildings in a small town and left a large crater.`\
+`The number of dead is not yet known, but the blast flattened structures in a small town and left a large crater.`\
 https://nytimes.com/2022/01/20/world/africa/ghana-explosion-mining-truck.html?searchResultPosition=2
 
 **‘The Tiger Rising’ Review: A Cage of Clichés**\
