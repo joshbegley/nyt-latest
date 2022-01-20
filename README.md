@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/20/us/politics/virginia-glenn-youngkin-governor.html
 
 **Supreme Court Refuses to Require Prompt Action on Texas Abortion Law**\
 `In dissent, the three liberal justices said the majority, by allowing a time-consuming legal detour, had created “a disaster for the rule of law.”`\
-https://nytimes.com/2022/01/20/us/politics/supreme-court-texas-abortion-law.html?searchResultPosition=4
+https://nytimes.com/2022/01/20/us/politics/texas-abortion-law-supreme-court.html?searchResultPosition=4
 
 **Transit Line Connecting Brooklyn and Queens Moves Step Closer to Reality**\
 `A new 14-mile transit line, which would not run into Manhattan, would fill a significant gap in New York’s transportation system.`\
