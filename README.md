@@ -22,8 +22,8 @@ https://nytimes.com/2022/01/21/realestate/architect-designer-pandemic-diy.html?s
 `Here’s what it looks like when professionals take on D.I.Y. projects. (Don’t feel bad if they put yours to shame.)`\
 https://nytimes.com/slideshow/2022/01/21/realestate/the-designer-version-of-diy.html?searchResultPosition=6
 
-**Hong Kong’s Zero-Covid Policy Shakes the ‘Soul of the City’**\
-`Businesses that held on through several outbreaks are now trembling as the highflying metropolitan hub struggles with supply chain issues and a relentless virus policy.`\
+**Zero-Covid Policy Shakes Hong Kong’s Economy and Its ‘Soul’**\
+`Businesses that held on through several outbreaks are now trembling as the highflying metropolitan hub struggles with supply chain issues and a relentless approach to the pandemic.`\
 https://nytimes.com/2022/01/21/business/hong-kong-covid-supply-chain.html?searchResultPosition=7
 
 **The French Naturalist Who Loved To Paint Mushrooms**\
