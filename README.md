@@ -23,7 +23,7 @@ https://nytimes.com/2022/01/21/arts/music/anna-von-hausswolff-satanist.html?sear
 https://nytimes.com/2022/01/21/world/asia/taiwan-fire-ghost-building-suspect.html?searchResultPosition=6
 
 **Augmented Reality Theater Takes a Bow. In Your Kitchen.**\
-`The Interactive Storytelling Studio at the National Theater in London is using technology to bring a miniature musical to viewers’ homes. It’s one of several high-tech British projects pushing dramatic boundaries.`\
+`The Immersive Storytelling Studio at the National Theater in London is using technology to bring a miniature musical to viewers’ homes. It’s one of several high-tech British projects pushing dramatic boundaries.`\
 https://nytimes.com/2022/01/21/theater/national-theater-immersive-storytelling-studio-all-kinds-of-limbo.html?searchResultPosition=7
 
 **How Much Stock Is Too Much in Retirement?**\
