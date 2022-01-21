@@ -1,4 +1,4 @@
-**Honey, I Shrank the Economy’s Capacity**\
+**Wonking Out: Honey, I Shrank the Economy’s Capacity**\
 `Why the trend has not been our friend.`\
 https://nytimes.com/2022/01/21/opinion/inflation-us-economy-biden.html?searchResultPosition=1
 
