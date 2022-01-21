@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/20/us/politics/democrats-voting-rights.html?searchRe
 https://nytimes.com/2022/01/20/us/politics/voting-rights-cory-booker-tim-scott.html?searchResultPosition=3
 
 **With Broad Safety Net Bill Stalled, Democrats Weigh What to Salvage**\
-`As discussions resumed over how to whittle down Democrats’ marquee plan, Senator Joe Manchin, a key holdout, said any talks would be “starting from scratch.”`\
+`As discussions resumed over how to whittle down the plan, Senator Joe Manchin, a key holdout, said any talks would be starting with “a clean sheet of paper.”`\
 https://nytimes.com/2022/01/20/us/politics/manchin-democrats.html?searchResultPosition=4
 
 **N.C.A.A. Reorganizes Around New Constitution That Shifts Power to Universities**\
