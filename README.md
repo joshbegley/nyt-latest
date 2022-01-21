@@ -1,5 +1,5 @@
 **Naomi Osaka Loses at Australian Open**\
-`The unseeded American Amanda Anisimova eliminated the four-time Grand Slam champion in three sets, an early end to her latest return to the tour.`\
+`The unseeded American Amanda Anisimova eliminated the four-time Grand Slam champion in a tense match, bringing an early end to her latest return to the tour.`\
 https://nytimes.com/2022/01/21/sports/tennis/naomi-osaka-australian-open.html?searchResultPosition=1
 
 **What the ‘Djokovic Affair’ Revealed About Australia**\
