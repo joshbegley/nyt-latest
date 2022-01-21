@@ -14,7 +14,7 @@ https://nytimes.com/2022/01/21/opinion/google-neoliberal.html?searchResultPositi
 `In “Putting the Rabbit in the Hat,” the actor currently thriving as Logan Roy in “Succession” recounts his Scottish upbringing, his years in the theater and his experiences in Hollywood.`\
 https://nytimes.com/2022/01/21/books/review-brian-cox-memoir-putting-rabbit-in-hat.html?searchResultPosition=4
 
-**The U.S. suspends 44 flights by Chinese airlines over China’s Covid policy.**\
+**The Biden administration suspends 44 flights in tit-for-tat with China over passengers with coronavirus.**\
 `The retaliatory move came after the Chinese government canceled American, Delta and United flights to China after some passengers tested positive for the coronavirus.`\
 https://nytimes.com/2022/01/21/business/biden-china-airlines-coronavirus.html?searchResultPosition=5
 
