@@ -1,40 +1,40 @@
-**Meat Loaf, ‘Bat Out of Hell’ Singer and Actor, Dies at 74**\
-`In his six-decade career, the singer, born Marvin Lee Aday, sold millions of albums and acted in films.`\
-https://nytimes.com/2022/01/21/arts/music/meat-loaf-dead-marvin-lee-aday.html?searchResultPosition=1
+**How Remote Work is Crippling New York City’s Commuter Rails**\
+`Before the pandemic, they relied on office workers, who paid up to $500 a month on tickets. At the M.T.A., those sales are down 75 percent.`\
+https://nytimes.com/2022/01/21/nyregion/nyc-commuter-rail-pandemic.html?searchResultPosition=1
 
-**A First Payday for a Mayor, and for Cryptocurrency**\
-`Mayor Eric Adams wants New York City to become the global capital for cryptocurrency.`\
-https://nytimes.com/2022/01/21/nyregion/a-first-payday-for-a-mayor-and-for-cryptocurrency.html?searchResultPosition=2
+**What Designers Have Been Doing at Home During the Pandemic**\
+`Here’s what it looks like when the professionals take on D.I.Y. projects. (Don’t feel bad if they put yours to shame.)`\
+https://nytimes.com/2022/01/21/realestate/architect-designer-pandemic-diy.html?searchResultPosition=2
 
-**Biden as a New F.D.R.? Try L.B.J.**\
-`The president’s agenda — big progressive change — has placed Democratic priorities over the voters’ desire for practical help on the pandemic and inflation.`\
-https://nytimes.com/2022/01/21/us/politics/biden-agenda-fdr-lbj.html?searchResultPosition=3
+**The Designer Version of D.I.Y.**\
+`Here’s what it looks like when professionals take on D.I.Y. projects. (Don’t feel bad if they put yours to shame.)`\
+https://nytimes.com/slideshow/2022/01/21/realestate/the-designer-version-of-diy.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/21/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Hong Kong’s Zero-Covid Policy Shakes the ‘Soul of the City’**\
+`Businesses that held on through several outbreaks are now trembling as the high-flying metropolitan hub struggles with supply chain issues and a relentless virus policy.`\
+https://nytimes.com/2022/01/21/business/hong-kong-covid-supply-chain.html?searchResultPosition=4
 
-**Doors**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2022/01/21/learning/doors.html?searchResultPosition=5
+**The French Naturalist Who Loved To Paint Mushrooms**\
+`Jean-Henri Fabre, known for his popular books on insects, was a man of many hobbies.`\
+https://nytimes.com/2022/01/21/books/the-french-naturalist-who-loved-to-paint-mushrooms.html?searchResultPosition=5
 
-**Late Night Celebrates One Year of President Biden**\
-`“A year ago, Biden pledged to address Covid, the economy, climate change and racial injustice. And good news — after 12 months of tireless effort, we’re all getting three free masks,” Jimmy Fallon said.`\
-https://nytimes.com/2022/01/21/arts/television/jimmy-fallon-president-biden.html?searchResultPosition=6
+**The Fearsome, Quiet Champion**\
+`Francis Ngannou, known widely for his devastating punches, journeyed from Cameroon to France to the United States to become a mixed martial arts star. Yet his future in the U.F.C. is unclear.`\
+https://nytimes.com/2022/01/21/sports/francis-ngannou-ufc-fight.html?searchResultPosition=6
 
-**Word of the Day: epiphany**\
-`This word has appeared in 109 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/21/learning/word-of-the-day-epiphany.html?searchResultPosition=7
+**Damien Hirst and the Art of the Deal**\
+`He might be Britain’s richest artist, but with each attempt to monetize his talent, Hirst’s originality as a conceptual sculptor becomes an ever more distant memory.`\
+https://nytimes.com/2022/01/21/arts/design/damien-hirst-nft.html?searchResultPosition=7
 
-**Twitter Shakes Up Security Team**\
-`Parag Agrawal, Twitter’s new chief executive, terminated the company’s head of security this week. Twitter’s chief information security officer is also leaving.`\
-https://nytimes.com/2022/01/21/technology/twitter-security-team.html?searchResultPosition=8
+**China Holds the Line on ‘Zero Covid,’ but Some Wonder for How Long**\
+`More people are being caught up in the country’s virus-control dragnet. Some think the no-tolerance policy is unsustainable.`\
+https://nytimes.com/2022/01/21/world/asia/china-zero-covid-policy.html?searchResultPosition=8
 
-**The Most Exciting Sporting Event in the World Is Happening Right Now**\
-`The Africa Cup of Nations soccer tournament shows glimpses of a different vision for the continent.`\
-https://nytimes.com/2022/01/21/opinion/africa-cup-of-nations-soccer-tournament-politcs.html?searchResultPosition=9
+**Back to School, but Still Learning Online**\
+`Federal stimulus dollars are dedicated to helping students recover from virtual schooling. Many districts are spending some of that money on virtual tutoring.`\
+https://nytimes.com/2022/01/21/us/online-tutoring-stimulus-funding.html?searchResultPosition=9
 
-**Intel to Invest at Least $20 Billion in New Chip Factories in Ohio**\
-`Building up U.S. chip production has been a focus of lawmakers and companies alike amid a global shortage of the crucial components.`\
-https://nytimes.com/2022/01/21/technology/intel-chip-factories-ohio.html?searchResultPosition=10
+**The View From the White House**\
+`Ron Klain, President Biden’s chief of staff, reflects on the first year of the administration.`\
+https://nytimes.com/2022/01/21/opinion/ezra-klein-podcast-ron-klain.html?searchResultPosition=10
 
