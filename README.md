@@ -1,4 +1,4 @@
-**The Biden administration suspends 44 U.S. flights by Chinese airlines.**\
+**The U.S. suspends 44 flights by Chinese airlines over China’s Covid policy.**\
 `The retaliatory move came after the Chinese government canceled American, Delta and United flights to China after some passengers tested positive for the coronavirus.`\
 https://nytimes.com/2022/01/21/business/biden-china-airlines-coronavirus.html?searchResultPosition=1
 
