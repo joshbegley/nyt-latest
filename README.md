@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/20/us/election-police-georgia-florida.html?searchRes
 `Senator Chuck Schumer, the majority leader, chose to plunge ahead because of the importance of the issue even after the outcome became preordained.`\
 https://nytimes.com/2022/01/20/us/politics/democrats-voting-rights.html?searchResultPosition=2
 
-**Three Black Senators Play Outsized Roles in Voting Rights Debate**\
+**Three Black Senators Play Outsize Roles in Voting Rights Debate**\
 `Senators Cory Booker, Tim Scott and Raphael Warnock brought vastly different perspectives to proceedings that highlighted the Senate’s striking lack of diversity.`\
 https://nytimes.com/2022/01/20/us/politics/voting-rights-cory-booker-tim-scott.html?searchResultPosition=3
 
