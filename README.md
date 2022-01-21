@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/20/sports/ncaafootball/ncaa-constitution-transgender
 
 **Biden Versus the Friends of Covid**\
 `Anti-vaccine politics explain many of the president’s problems.`\
-https://nytimes.com/2022/01/20/opinion/coronavirus-republicans-biden.html?searchResultPosition=5
+https://nytimes.com/2022/01/20/opinion/coronavirus-biden.html?searchResultPosition=5
 
 **Winning Virginia Was the Easy Part. Can Glenn Youngkin Govern?**\
 `The new governor is converting his education-centric campaign message into policy. Republicans are pleased. Democrats are skeptical.`\
