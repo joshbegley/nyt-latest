@@ -26,15 +26,15 @@ https://nytimes.com/slideshow/2022/01/21/realestate/the-designer-version-of-diy.
 `Businesses that held on through several outbreaks are now trembling as the highflying metropolitan hub struggles with supply chain issues and a relentless approach to the pandemic.`\
 https://nytimes.com/2022/01/21/business/hong-kong-covid-supply-chain.html?searchResultPosition=7
 
+**Damien Hirst and the Art of the Deal**\
+`He might be Britain’s richest artist, but with each attempt to monetize his talent, Hirst’s originality as a conceptual sculptor becomes an ever more distant memory.`\
+https://nytimes.com/2022/01/21/arts/design/damien-hirst-nft.html?searchResultPosition=8
+
 **The French Naturalist Who Loved To Paint Mushrooms**\
 `Jean-Henri Fabre, known for his popular books on insects, was a man of many hobbies.`\
-https://nytimes.com/2022/01/21/books/the-french-naturalist-who-loved-to-paint-mushrooms.html?searchResultPosition=8
+https://nytimes.com/2022/01/21/books/the-french-naturalist-who-loved-to-paint-mushrooms.html?searchResultPosition=9
 
 **The Fearsome, Quiet Champion**\
 `Francis Ngannou, known widely for his devastating punches, journeyed from Cameroon to France to the United States to become a mixed martial arts star. Yet his future in the U.F.C. is unclear.`\
-https://nytimes.com/2022/01/21/sports/francis-ngannou-ufc-fight.html?searchResultPosition=9
-
-**Damien Hirst and the Art of the Deal**\
-`He might be Britain’s richest artist, but with each attempt to monetize his talent, Hirst’s originality as a conceptual sculptor becomes an ever more distant memory.`\
-https://nytimes.com/2022/01/21/arts/design/damien-hirst-nft.html?searchResultPosition=10
+https://nytimes.com/2022/01/21/sports/francis-ngannou-ufc-fight.html?searchResultPosition=10
 
