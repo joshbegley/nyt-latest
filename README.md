@@ -2,8 +2,8 @@
 `More Democrats are focusing on it.`\
 https://nytimes.com/2022/01/21/briefing/climate-change-bill-democrats.html?searchResultPosition=1
 
-**Naomi Osaka Loses at Australian Open**\
-`The unseeded American Amanda Anisimova eliminated the four-time Grand Slam champion, who expressed pride in her play and said, “I can be proud of myself.”`\
+**Naomi Osaka Is Out at Australian Open**\
+`The unseeded American Amanda Anisimova eliminated the four-time Grand Slam champion, who expressed pride in her effort and said, “I can’t be sad about that.”`\
 https://nytimes.com/2022/01/21/sports/tennis/naomi-osaka-australian-open.html?searchResultPosition=2
 
 **What the ‘Djokovic Affair’ Revealed About Australia**\
