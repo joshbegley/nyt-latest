@@ -1,4 +1,4 @@
-**Elza Soares, Who Pushed the Boundaries of Brazilian Music, Dies at 91**\
+**Elza Soares, 91, Who Pushed the Boundaries of Brazilian Music, Dies**\
 `She rose from a favela in Rio to samba stardom in the 1960s. But her career was later overshadowed by an affair with a famous soccer player that became a national scandal.`\
 https://nytimes.com/2022/01/20/arts/music/elza-soares-dead.html?searchResultPosition=1
 
