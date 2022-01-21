@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/21/style/loveletter-newsletter-an-emotionally-absent
 
 **A Knockout Country-Rap Crossover, and 13 More New Songs**\
 `Hear tracks by Nilüfer Yanya, Gayle, John Mellencamp and others.`\
-https://nytimes.com/2022/01/21/arts/music/kidd-g-ynw-bslime-charlie-puth.html?searchResultPosition=2
+https://nytimes.com/2022/01/21/arts/music/playlist-kidd-g-ynw-bslime-charlie-puth.html?searchResultPosition=2
 
 **So You Think You’re a Covid Expert (but Are You?)**\
 `How long should you isolate? What tests are the most reliable? Do vaccine cocktails work? Some people have turned into amateur scientists as they look for answers.`\
