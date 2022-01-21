@@ -4,11 +4,11 @@ https://nytimes.com/2022/01/20/us/politics/democrats-voting-rights.html?searchRe
 
 **Three Black Senators Play Outsized Roles in Voting Rights Debate**\
 `Senators Cory Booker, Tim Scott and Raphael Warnock brought vastly different perspectives to proceedings that highlighted the Senate’s striking lack of diversity.`\
-https://nytimes.com/2022/01/20/us/politics/black-senators-warnock-scott-booker-voting-rights.html?searchResultPosition=2
+https://nytimes.com/2022/01/20/us/politics/voting-rights-cory-booker-tim-scott.html?searchResultPosition=2
 
 **With Broad Safety Net Bill Stalled, Democrats Weigh What to Salvage**\
 `As discussions resumed over how to whittle down Democrats’ marquee plan, Senator Joe Manchin, a key holdout, said any talks would be “starting from scratch.”`\
-https://nytimes.com/2022/01/20/us/politics/democrats-priorities-bill.html?searchResultPosition=3
+https://nytimes.com/2022/01/20/us/politics/manchin-democrats.html?searchResultPosition=3
 
 **N.C.A.A. Reorganizes Around New Constitution That Shifts Power to Universities**\
 `The organizing body in college sports also adopted new rules for transgender athletes to mirror other elite sports in the United States.`\
