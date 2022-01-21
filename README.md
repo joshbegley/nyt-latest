@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/21/arts/music/playlist-kidd-g-ynw-bslime-charlie-put
 
 **So You Think You’re a Covid Expert (but Are You?)**\
 `How long should you isolate? What tests are the most reliable? Do vaccine cocktails work? Some people have turned into amateur scientists as they look for answers.`\
-https://nytimes.com/2022/01/21/style/so-you-think-youre-a-covid-expert-but-are-you.html?searchResultPosition=3
+https://nytimes.com/2022/01/21/style/amateur-covid-scientist-expert.html?searchResultPosition=3
 
 **A Reimagined ‘Long Day’s Journey Into Night’ for the Covid Era**\
 `Robert O’Hara directs a trimmed-down revival of Eugene O’Neill’s classic, with a colorblind cast and a weary eye on the pandemic and the opioid crisis.`\
