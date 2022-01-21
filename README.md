@@ -36,5 +36,5 @@ https://nytimes.com/2022/01/21/opinion/africa-cup-of-nations-soccer-tournament-p
 
 **Intel to Invest at Least $20 Billion in New Chip Factories in Ohio**\
 `Building up U.S. chip production has been a focus of lawmakers and companies alike amid a global shortage of the crucial components.`\
-https://nytimes.com/2022/01/21/technology/intel-to-invest-at-least-20-billion-in-new-chip-factories-in-ohio.html?searchResultPosition=10
+https://nytimes.com/2022/01/21/technology/intel-chip-factories-ohio.html?searchResultPosition=10
 
