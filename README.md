@@ -28,7 +28,7 @@ https://nytimes.com/2022/01/22/sports/football/nfl-covid-testing.html?searchResu
 
 **Arizona Democrats Censure Sinema After Filibuster Vote**\
 `Kyrsten Sinema, a first-term Arizona senator, was rebuked by fellow Democrats in her state after her vote on the filibuster helped sink the party’s voting-rights legislation.`\
-https://nytimes.com/2022/01/22/us/sinema-censure-arizona-democrats.html?searchResultPosition=8
+https://nytimes.com/2022/01/22/us/politics/sinema-censure-arizona-democrats.html?searchResultPosition=8
 
 **Wildfire in Big Sur Forces Residents to Evacuate**\
 `A late-season blaze that started on Friday grew to 1,500 acres in the scenic region of California.`\
