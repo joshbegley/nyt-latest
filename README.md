@@ -6,7 +6,7 @@ https://nytimes.com/2022/01/21/us/florida-professors-free-speech.html?searchResu
 `Gov. Doug Ducey has been using federal pandemic aid to undermine school mask requirements, which Treasury said violated the law.`\
 https://nytimes.com/2022/01/21/us/politics/arizona-sues-covid-masks.html?searchResultPosition=2
 
-**N.Y.P.D. Officer Fatally Shot, Officials Say; 2nd in Critical Condition**\
+**2 N.Y.P.D. Officers Killed in Shooting in Harlem, Officials Say**\
 `The officers were the third and fourth to be shot in the line of duty in recent days.`\
 https://nytimes.com/2022/01/21/nyregion/nypd-officers-shot-harlem.html?searchResultPosition=3
 
