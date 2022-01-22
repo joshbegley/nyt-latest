@@ -1,40 +1,40 @@
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/22/crosswords/spelling-bee-forum.html?searchResultPosition=1
+**Charting an Omicron Infection**\
+`Following the course of a typical Omicron infection.`\
+https://nytimes.com/interactive/2022/01/22/science/charting-omicron-infection.html?searchResultPosition=1
 
-**Corrections: Jan. 22, 2022**\
-`Corrections that appeared in print on Saturday, Jan. 22, 2022.`\
-https://nytimes.com/2022/01/22/pageoneplus/corrections-jan-22-2022.html?searchResultPosition=2
+**China’s Games: How Xi Jinping Is Staging the Olympics on His Terms**\
+`From Beijing’s unexpected bid through the coronavirus pandemic, China has managed to fulfill its promises and cow its critics.`\
+https://nytimes.com/2022/01/22/world/asia/winter-olympics-china-beijing-xi-jinping.html?searchResultPosition=2
 
-**Quotation of the Day: Ruling on Free Speech a Victory for Florida Professors**\
-`Quotation of the Day for Saturday, January 22, 2022.`\
-https://nytimes.com/2022/01/22/todayspaper/quotation-of-the-day-ruling-on-free-speech-a-victory-for-florida-professors.html?searchResultPosition=3
+**Defend Chernobyl During an Invasion? Why Bother, Some Ukrainians Ask.**\
+`Ukraine has initiated a defensive strategy for the Chernobyl Exclusion Zone, one of the most radioactive places on Earth, which lies on the shortest path between Russia and Ukraine’s capital, Kyiv.`\
+https://nytimes.com/2022/01/22/world/europe/chernobyl-ukraine-invasion-russia.html?searchResultPosition=3
 
-**Voices From the March for Life**\
-`Protesters at this year’s anti-abortion rally expressed excitement about a coming Supreme Court ruling that could overturn Roe v. Wade.`\
-https://nytimes.com/video/us/politics/100000008170996/voices-from-the-march-for-life.html?searchResultPosition=4
+**Omicron Cases Appear to Peak in U.S., but Deaths Continue to Rise**\
+`The country is reporting upward of 700,000 new cases a day, fewer than earlier this month, but still far more than in any prior surge.`\
+https://nytimes.com/2022/01/22/us/omicron-cases-us-deaths.html?searchResultPosition=4
 
-**The Fugees are the latest artists to cancel shows over the pandemic.**\
-`A tour to recognize the 25th anniversary of a career-defining album will have to wait.`\
-https://nytimes.com/2022/01/21/world/the-fugees-are-latest-artists-to-cancel-shows-over-the-pandemic.html?searchResultPosition=5
+**On Abortion Law, the U.S. Is Unusual. Without Roe, It Would Be, Too.**\
+`Many rich democracies have earlier cutoffs for abortion — but allow it later for a variety of reasons. And around the world, it has been much more common to expand access than restrict it.`\
+https://nytimes.com/2022/01/22/upshot/abortion-us-roe-global.html?searchResultPosition=5
 
-**Three Tiny Islands Have Borne the Brunt of Tonga’s Tsunami**\
-`The sparsely populated islets of Nomuka, Mango and Fonoifua were hit by waves almost 50 feet high, a Red Cross official said.`\
-https://nytimes.com/2022/01/21/world/asia/tonga-tsunami-volcano.html?searchResultPosition=6
+**Bouncing Boulders Point to Quakes on Mars**\
+`A preponderance of boulder tracks on the red planet may be evidence of recent seismic activity.`\
+https://nytimes.com/2022/01/22/science/mars-boulders-earthquakes.html?searchResultPosition=6
 
-**Words Read With Feeling**\
-`Daniel Okulitch returns to the weekend puzzle stage.`\
-https://nytimes.com/2022/01/21/crosswords/daily-puzzle-2022-01-22.html?searchResultPosition=7
+**Ami Colé Fills a Void In Black Beauty Products**\
+`After toiling in the beauty industry for years, Diarrha N’Diaye-Mbaye decided to create the products she desperately sought but could not find.`\
+https://nytimes.com/2022/01/22/us/ami-cole-beauty-products.html?searchResultPosition=7
 
-**Monkeys Escape After Truck Crashes on Pennsylvania Highway**\
-`The State Police said that a pickup truck with an enclosed trailer full of 100 monkeys had collided with a dump truck. Four escaped.`\
-https://nytimes.com/2022/01/21/us/monkeys-truck-crash-pennsylvania.html?searchResultPosition=8
+**Eyesore or Monument? Preservationists Fight to Save a Grain Elevator in Buffalo**\
+`The current owner of the Great Northern has been pushing to demolish the building — possibly the last grain elevator of its type in the world.`\
+https://nytimes.com/2022/01/22/nyregion/buffalo-grain-elevator.html?searchResultPosition=8
 
-**F.D.A. expands approval of remdesivir to patients who are not hospitalized.**\
-`The treatment must be given via intravenous infusion over three consecutive days, generally at a hospital or clinic.`\
-https://nytimes.com/2022/01/21/world/remdesivir-fda-approval-expanded-covid.html?searchResultPosition=9
+**The Designer Bringing a New Kind of Cool to Kenzo**\
+`Nigo, the Japanese street wear king, is joining the luxury world and taking on “the greatest challenge” of his career.`\
+https://nytimes.com/2022/01/22/style/nigo-kenzo.html?searchResultPosition=9
 
-**Judge Issues Stinging Free Speech Ruling Against University of Florida**\
-`While a lawsuit is being resolved, the university cannot bar professors from offering expert testimony in lawsuits against the state, the federal judge ruled.`\
-https://nytimes.com/2022/01/21/us/florida-professors-free-speech.html?searchResultPosition=10
+**Oh, By the Way: I Had a Baby**\
+`The pandemic has offered some women a choice they never had before: to keep their pregnancies secret til the very end.`\
+https://nytimes.com/2022/01/22/style/secret-pregnancy.html?searchResultPosition=10
 
