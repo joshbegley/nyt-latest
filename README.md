@@ -1,6 +1,6 @@
 **How a Calm Call for Help Led 2 N.Y.P.D. Officers Into a Hail of Gunfire**\
 `The latest deadly episode to rattle the city began with a routine domestic disturbance call and ended with one officer dead and another in critical condition.`\
-https://nytimes.com/2022/01/22/nyregion/how-a-calm-call-for-help-led-2-nypd-officers-into-a-hail-of-gunfire.html?searchResultPosition=1
+https://nytimes.com/2022/01/22/nyregion/nypd-officers-shot-harlem.html?searchResultPosition=1
 
 **How to Retreat From Ukraine**\
 `Searching for a non-disastrous way back from American overreach.`\
