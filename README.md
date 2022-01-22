@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/21/us/politics/arizona-sues-covid-masks.html?searchR
 
 **2 N.Y.P.D. Officers Killed in Shooting in Harlem, Officials Say**\
 `The officers were the third and fourth to be shot in the line of duty in recent days.`\
-https://nytimes.com/2022/01/21/nyregion/nypd-officers-shot-harlem.html?searchResultPosition=4
+https://nytimes.com/live/2022/01/21/nyregion/nypd-officers-shot-harlem/nypd-officers-shot-harlem?searchResultPosition=4
 
 **As F.B.I. Breached Texas Synagogue, Hostages Were Dashing for Exit**\
 `The federal agency said it was unaware that three hostages were already escaping the temple as an elite rescue team entered from different sides, killing the attacker.`\
