@@ -1,1 +1,1 @@
-**The last time two New York officers were killed was in December 2014.**\
+**The last time a New York officer was killed was in September 2019.**\
