@@ -19,7 +19,7 @@ https://nytimes.com/2022/01/22/us/covid-flight-passenger-violent.html?searchResu
 https://nytimes.com/2022/01/22/world/europe/ukraine-russia-coup-britain.html?searchResultPosition=5
 
 **Nick Bosa, who missed time last week with a concussion, will play for the 49ers.**\
-`By Ben Shpigel`\
+`Bosa is one of the 49ers’ biggest stars.`\
 https://nytimes.com/2022/01/22/sports/football/nick-bosa-49ers-packers.html?searchResultPosition=6
 
 **Lisa Goddard, 55, Dies; Brought Climate Data to Those Who Needed It**\
