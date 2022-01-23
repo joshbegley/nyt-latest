@@ -2,7 +2,7 @@
 `Poor conditions for Vietnamese workers building a $900 million tire factory underscore a chasm between the promise of investment from China and grim realities on the ground.`\
 https://nytimes.com/2022/01/22/world/europe/china-serbia-vietnamese-workers.html?searchResultPosition=1
 
-**Bengals overcome sacks, seed, to shock No. 1 Titans on final play.**\
+**Bengals overcome sacks and seeding to shock No. 1 Titans on the final play.**\
 `The Bengals kicked a field goal on the last play to beat Tennessee, 19-16, in a game that was mostly dominated by each defense.`\
 https://nytimes.com/2022/01/22/sports/football/bengals-titans-score.html?searchResultPosition=2
 
