@@ -1,36 +1,40 @@
+**Beholder of Beauty**\
+`André Leon Talley was the last great editor of a lost era.`\
+https://nytimes.com/2022/01/23/style/andre-leon-talley-legacy.html?searchResultPosition=1
+
+**For Small Towns With Small Work Forces, Omicron Means Small Margins for Error**\
+`In large cities and rural towns, the Omicron variant has workers calling in sick with Covid-19. But in the small towns, it is often hard to find a Plan B.`\
+https://nytimes.com/2022/01/23/us/omicron-workers-small-towns.html?searchResultPosition=2
+
+**For Many Who Marched, Jan. 6 Was Only the Beginning**\
+`To many of those who attended the Trump rally but who never breached the Capitol, that date wasn’t a dark day for the nation. It was a new start.`\
+https://nytimes.com/2022/01/23/us/for-many-who-marched-jan-6-was-only-the-beginning.html?searchResultPosition=3
+
+**André Leon Talley in His Own Words**\
+`“We’re living in such a vulgar age!,” the unfiltered fashion editor once said.`\
+https://nytimes.com/2022/01/23/style/andre-leon-talley-in-his-own-words.html?searchResultPosition=4
+
+**‘I Asked a Woman on the Platform if She Had Any Tissues’**\
+`Helping hands in the subway, a tug of war on the Upper East Side and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2022/01/23/nyregion/metropolitan-diary.html?searchResultPosition=5
+
+**André, by Bill**\
+`Two of fashion’s greats, André Leon Talley and Bill Cunningham, were wonderful foils for each other.`\
+https://nytimes.com/2022/01/23/style/andre-leon-talley-bill-cunningham-photos.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/01/23/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**On ‘S.N.L.,’ Donald Trump Tries His Hand at Wordle**\
+`Colin Jost and Pete Davidson provided an update on their purchase of a retired Staten Island Ferry boat, in this episode hosted by Will Forte.`\
+https://nytimes.com/2022/01/23/arts/television/saturday-night-live-will-forte.html?searchResultPosition=8
+
 **The Bat Mitzvah Question I Wasn’t Expecting: ‘Are We Safe at Synagogue?’**\
 `Finding hope in the darkness of cancer, Covid and Colleyville.`\
-https://nytimes.com/2022/01/23/opinion/colleyville-synagogue-parenting.html?searchResultPosition=1
+https://nytimes.com/2022/01/23/opinion/colleyville-synagogue-parenting.html?searchResultPosition=9
 
 **Quotation of the Day: Did the Stimulus Fuel Inflation Rates? A Policy Debate Heats Up.**\
 `Quotation of the Day for Sunday, January 23, 2022.`\
-https://nytimes.com/2022/01/23/todayspaper/quotation-of-the-day-did-the-stimulus-fuel-inflation-rates-a-policy-debate-heats-up.html?searchResultPosition=2
-
-**Corrections: Jan. 23, 2022**\
-`Corrections that appeared in print on Sunday, Jan. 23, 2022.`\
-https://nytimes.com/2022/01/23/pageoneplus/corrections-jan-23-2022.html?searchResultPosition=3
-
-**The 49ers complete their upset after the Packers’ special teams flubs.**\
-`San Francisco will move on to play either the Los Angeles Rams or the Tampa Bay Buccaneers in the N.F.C. championship game.`\
-https://nytimes.com/2022/01/22/sports/football/packers-49ers-score.html?searchResultPosition=4
-
-**‘Miserable and Dangerous’: A Failed Chinese Promise in Serbia**\
-`Poor conditions for Vietnamese workers building a $900 million tire factory underscore a chasm between the promise of investment from China and grim realities on the ground.`\
-https://nytimes.com/2022/01/22/world/europe/china-serbia-vietnamese-workers.html?searchResultPosition=5
-
-**Bengals overcome sacks and seeding to shock No. 1 Titans on the final play.**\
-`The Bengals kicked a field goal on the last play to beat Tennessee, 19-16, in a game that was mostly dominated by each defense.`\
-https://nytimes.com/2022/01/22/sports/football/bengals-titans-score.html?searchResultPosition=6
-
-**Wildfire Forces Hundreds to Evacuate in Big Sur**\
-`The blaze grew to 1,000 acres, and at least 500 residents in California’s Big Sur area were ordered to evacuate.`\
-https://nytimes.com/video/us/100000008171370/wildfire-big-sur-evacuations.html?searchResultPosition=8
-
-**Covid Outbreak Triggers Lockdown in Hong Kong Housing Complex**\
-`Multiple apartment buildings were locked down and 37,000 people were ordered to undergo testing after more than 100 new cases of the Omicron variant were reported in the complex.`\
-https://nytimes.com/video/world/asia/100000008171248/hong-kong-omicron-outbreak-lockdown.html?searchResultPosition=9
-
-**Turns of Phrase**\
-`Nancy Stark and Will Nediger put the cart before the horse, but we’ll get where we’re going.`\
-https://nytimes.com/2022/01/22/crosswords/daily-puzzle-2022-01-23.html?searchResultPosition=10
+https://nytimes.com/2022/01/23/todayspaper/quotation-of-the-day-did-the-stimulus-fuel-inflation-rates-a-policy-debate-heats-up.html?searchResultPosition=10
 
