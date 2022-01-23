@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/23/business/media/sarah-palin-libel-suit-nyt.html?se
 https://nytimes.com/2022/01/23/us/politics/biden-covid-strategy.html?searchResultPosition=3
 
 **A YouTuber’s Plane Crash Draws Doubts From Aviation Experts**\
-`The video from December shows Trevor Jacob cursing in panic before leaping with a parachute out of a small plane. Some experts wonder if the crash was publicity stunt.`\
+`The video from December shows Trevor Jacob cursing in panic before leaping with a parachute out of a small plane. Some experts wonder if the crash was a publicity stunt.`\
 https://nytimes.com/2022/01/23/us/trevor-jacob-youtube-plane-investigation.html?searchResultPosition=4
 
 **Dennis Smith, Firefighter Who Wrote Best Sellers, Dies at 81**\
