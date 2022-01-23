@@ -1,5 +1,5 @@
 **Ngannou Keeps U.F.C. Heavyweight Crown Amid Contract Dispute**\
-`Francis Ngannou beat Ciryl Gane in the absence of Dana White, the U.F.C. president, who is facing a contract renewal with the champion.`\
+`Francis Ngannou beat Ciryl Gane in the absence of Dana White, the U.F.C. president, who is faced with renewing the champion’s contract.`\
 https://nytimes.com/2022/01/23/sports/ufc-francis-ngannou.html?searchResultPosition=1
 
 **Eric Adams Says Injured N.Y.P.D. Officer Is ‘Fighting for His Life’**\
