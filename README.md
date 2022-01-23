@@ -1,5 +1,5 @@
 **Former President of Florida International University Explains Sudden Exit**\
-`On Sunday, Mark B. Rosenberg said he created ‘discomfort for a valued employee.’`\
+`On Sunday, Mark B. Rosenberg said he created “discomfort for a valued employee.”`\
 https://nytimes.com/2022/01/23/us/fiu-president-resign-reason.html?searchResultPosition=1
 
 **Nelson Peltz Takes Aim at Unilever**\
