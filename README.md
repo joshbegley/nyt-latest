@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/22/world/europe/china-serbia-vietnamese-workers.html
 https://nytimes.com/2022/01/22/sports/football/bengals-titans-score.html?searchResultPosition=2
 
 **Wildfire Forces Hundreds to Evacuate in Big Sur**\
-`The blaze grew to 1,500 acres, and at least 500 residents in California’s Big Sur area were ordered to evacuate.`\
+`The blaze grew to 1,000 acres, and at least 500 residents in California’s Big Sur area were ordered to evacuate.`\
 https://nytimes.com/video/us/100000008171370/wildfire-big-sur-evacuations.html?searchResultPosition=4
 
 **Covid Outbreak Triggers Lockdown in Hong Kong Housing Complex**\
