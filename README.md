@@ -18,13 +18,13 @@ https://nytimes.com/2022/01/23/sports/nfl-playoffs-divisional-round.html?searchR
 `With a late-night announcement about Russian meddling in Ukraine, the U.K. signaled its intention to be a player in Europe’s security crisis — even as Prime Minister Boris Johnson is besieged by political scandals.`\
 https://nytimes.com/2022/01/23/world/europe/uk-russia-ukraine.html?searchResultPosition=5
 
-**‘Now There Is No One’: The Lament of One of the Last Christians in a Syrian City**\
-`Michel Butros al-Jisri is among the few Christians left from a once-vibrant community in Idlib on the brink of disappearing. The city, in the only territory in Syria still controlled by rebels, is ruled by Islamists.`\
-https://nytimes.com/2022/01/23/world/middleeast/syria-christians-idlib.html?searchResultPosition=6
-
 **Olympians Face a Daunting Final Qualifying Event: Staying Healthy**\
 `For athletes going to Beijing, years of sacrifice could go to waste if they get the coronavirus now. To avoid it, they’re hunkering down, shunning friends and skipping competitions.`\
-https://nytimes.com/2022/01/23/sports/2022-beijing-covid-coronavirus.html?searchResultPosition=7
+https://nytimes.com/2022/01/23/sports/2022-beijing-covid-coronavirus.html?searchResultPosition=6
+
+**‘Now There Is No One’: The Lament of One of the Last Christians in a Syrian City**\
+`Michel Butros al-Jisri is among the few Christians left from a once-vibrant community in Idlib on the brink of disappearing. The city, in the only territory in Syria still controlled by rebels, is ruled by Islamists.`\
+https://nytimes.com/2022/01/23/world/middleeast/syria-christians-idlib.html?searchResultPosition=7
 
 **A Tricky First Case for the Man Who Wrote the Rules on Nazi Looted Art**\
 `The diplomat and lawyer who helped author the treaty used around the world to guide restitution claims is representing the family of a childhood friend, which has been sued to surrender a painting.`\
