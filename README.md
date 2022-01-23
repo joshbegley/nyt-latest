@@ -24,7 +24,7 @@ https://nytimes.com/2022/01/23/obituaries/clark-gillies-dead.html?searchResultPo
 
 **Workers at REI Store in Manhattan Seek to Form Retailer’s Only Union**\
 `In filing for a union election, employees of the outdoor equipment retailer cited safety during the pandemic, among other concerns.`\
-https://nytimes.com/2022/01/23/business/rei-union-manhattan-store.html?searchResultPosition=7
+https://nytimes.com/2022/01/23/business/economy/rei-union-manhattan-store.html?searchResultPosition=7
 
 **Gonzaga revokes John Stockton’s season tickets over his refusal to wear masks.**\
 `Stockton has been a vocal opponent of Covid-19 vaccines and government measures to mitigate the virus.`\
