@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/23/us/politics/jan-6-investigator-fired-university-o
 https://nytimes.com/2022/01/23/us/crystal-cruises-ship-diverted.html?searchResultPosition=2
 
 **Kansas City wins in overtime with a Kelce touchdown catch.**\
-`In the fourth quarter, Kansas City and Buffalo scored a combined 25 points in the final two minutes.`\
+`In the fourth quarter, Kansas City and Buffalo scored a combined 25 points in the last two minutes.`\
 https://nytimes.com/2022/01/23/sports/football/bills-chiefs-score.html?searchResultPosition=3
 
 **U.S. Orders Family Members of Embassy Staff to Leave Ukraine**\
