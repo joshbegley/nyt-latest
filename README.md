@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/23/nyregion/eric-adams-crime-police.html?searchResul
 https://nytimes.com/2022/01/23/climate/led-light-bulbs-dollar-store.html?searchResultPosition=3
 
 **A Grim January Leaves Some New Yorkers Fearful for the City’s Future**\
-`With a flood of sad news and the persistence of the pandemic, people across the city are struggling to find grounds for hope.`\
+`New York is far safer and stronger than in the ’70s. But after a flood of sad news, many people are struggling to find grounds for optimism.`\
 https://nytimes.com/2022/01/23/nyregion/new-york-mood-officers-shot.html?searchResultPosition=4
 
 **The Rams eke out the win after almost giving it away.**\
