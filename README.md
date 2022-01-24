@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/24/business/economy/omicron-covid-economy.html?searchResultPosition=1
 
 **Syrian-Kurdish Forces Retake Part of Prison Held by ISIS**\
-`Paramilitary forces in northeastern Syria say they have regained control of part of a prison under siege since an Islamic State attack last week.`\
+`Paramilitary forces in northeastern Syria say they have regained partial control of a prison attacked by the Islamic State last week. Hundreds of boys are being held hostage.`\
 https://nytimes.com/2022/01/24/world/middleeast/syria-prison-isis-hasaka.html?searchResultPosition=2
 
 **Supreme Court Will Hear Challenge to Affirmative Action at Harvard and U.N.C.**\
