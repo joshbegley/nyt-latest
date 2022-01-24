@@ -23,7 +23,7 @@ https://nytimes.com/2022/01/24/world/europe/stowaway-airplane-wheel-well.html?se
 https://nytimes.com/2022/01/24/business/dealbook/activists-unilever-peloton-kohls.html?searchResultPosition=6
 
 **Boris Johnson Orders Inquiry Into Lawmaker’s Claim of Islamophobia**\
-`Nusrat Ghani said that her “Muslimness” had been given as one reason for her losing her job as transport minister in 2020.`\
+`Nusrat Ghani said that her “Muslimness” had been given as one reason for her losing her job as a transport minister in 2020.`\
 https://nytimes.com/2022/01/24/world/europe/uk-boris-johnson-ghani-islamophobia.html?searchResultPosition=7
 
 **Benedict Admits Being at Meeting About Priest Accused of Abuse**\
