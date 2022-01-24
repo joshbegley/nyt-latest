@@ -6,8 +6,8 @@ https://nytimes.com/2022/01/24/world/europe/stowaway-airplane-wheel-well.html?se
 `Shareholders are pushing for big changes at Unilever, Peloton and Kohl’s.`\
 https://nytimes.com/2022/01/24/business/dealbook/activists-unilever-peloton-kohls.html?searchResultPosition=2
 
-**Boris Johnson Orders Inquiry Into Lawmaker’s Claims of Islamophobia**\
-`The British prime minister gave way to pressure for an investigation into allegations by Nusrat Ghani that she had lost her job as transport minister in part because of her “Muslimness.”`\
+**Boris Johnson Orders Inquiry Into Lawmaker’s Claim of Islamophobia**\
+`Nusrat Ghani said that her “Muslimness” had been given as one reason for her losing her job as transport minister in 2020.`\
 https://nytimes.com/2022/01/24/world/europe/uk-boris-johnson-ghani-islamophobia.html?searchResultPosition=3
 
 **Benedict Admits Being at Meeting About Priest Accused of Abuse**\
