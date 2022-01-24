@@ -19,7 +19,7 @@ https://nytimes.com/2022/01/23/us/mom-scream-massachusetts-pandemic.html?searchR
 https://nytimes.com/2022/01/23/sports/ncaabasketball/ayoka-lee-womens-ncaa-basketball-scoring-record.html?searchResultPosition=5
 
 **Thierry Mugler, Genre-Busting French Fashion Designer, Dies at 73**\
-`The boundary-breaking designer created dresses so memorable (Demi Moore’s black dress in the 1993 film “Indecent Proposal,” for one) most people could picture them with their eyes closed.`\
+`The dominatrix-loving couturier turned sex into a style weapon.`\
 https://nytimes.com/2022/01/23/style/thierry-mugler-dead.html?searchResultPosition=6
 
 **Kansas City loses its standout safety, Tyrann Mathieu, to a concussion.**\
