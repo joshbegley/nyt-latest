@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/24/dining/noglu-gluten-free-pastries.html?searchResu
 
 **Pentagon Puts 8,500 Troops on ‘High Alert’ Amid Ukraine Tensions**\
 `The move signals a shift for the Biden administration as the United States and NATO allies brace for possible Russian military action.`\
-https://nytimes.com/2022/01/24/us/politics/us-troops-russia-ukraine.html?searchResultPosition=3
+https://nytimes.com/2022/01/24/us/politics/russia-ukraine-us-troops.html?searchResultPosition=3
 
 **The Plush Side of Sour Cream**\
 `Vermont Creamery’s first sour creams are suitable for dipping in flavors like onion and chive or cilantro lime.`\
