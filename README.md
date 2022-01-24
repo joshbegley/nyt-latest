@@ -22,7 +22,7 @@ https://nytimes.com/2022/01/24/science/gang-chen-mit-china.html?searchResultPosi
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/01/24/briefing/sp-500-burkina-faso-hippos-your-monday-evening-briefing.html?searchResultPosition=6
 
-**“Here We Go”: Behind the Curtain with Soccer’s Prophet of the Deal**\
+**‘Here We Go’: Behind the Curtain with Soccer’s Prophet of the Deal**\
 `Fabrizio Romano has turned rumors into an industry. But is he an observer of soccer’s multibillion-dollar transfer market, or a participant in it?`\
 https://nytimes.com/2022/01/24/sports/soccer/fabrizio-romano-transfer-rumors.html?searchResultPosition=7
 
