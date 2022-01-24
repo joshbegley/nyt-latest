@@ -1,40 +1,40 @@
+**Activist Investors Assemble**\
+`Shareholders are pushing for big changes at Unilever, Peloton and Kohl’s.`\
+https://nytimes.com/2022/01/24/business/dealbook/activists-unilever-peloton-kohls.html?searchResultPosition=1
+
 **Boris Johnson Orders Inquiry Into Lawmaker’s Claims of Islamophobia**\
 `The British prime minister gave way to pressure for an investigation into allegations by Nusrat Ghani that she had lost her job as transport minister in part because of her “Muslimness.”`\
-https://nytimes.com/2022/01/24/world/europe/uk-boris-johnson-ghani-islamophobia.html?searchResultPosition=1
+https://nytimes.com/2022/01/24/world/europe/uk-boris-johnson-ghani-islamophobia.html?searchResultPosition=2
 
 **Benedict Admits Being at Meeting About Priest Accused of Abuse**\
 `A statement by the former pope contradicted a previous statement to a law firm investigating allegations of child sex abuse by priests when he was an archbishop.`\
-https://nytimes.com/2022/01/24/world/europe/pope-benedict-child-abuse.html?searchResultPosition=2
+https://nytimes.com/2022/01/24/world/europe/pope-benedict-child-abuse.html?searchResultPosition=3
 
 **There Is Plenty to Learn From an Election, Even if No One Wins**\
 `David Ortiz could be voted into the Baseball Hall of Fame on Tuesday, but there will be trends worth noting even if he, Barry Bonds, Roger Clemens and others fall short.`\
-https://nytimes.com/2022/01/24/sports/baseball/hall-of-fame.html?searchResultPosition=3
+https://nytimes.com/2022/01/24/sports/baseball/hall-of-fame.html?searchResultPosition=4
 
 **Personal Profit in Congress**\
 `Some members of Congress have strangely good timing when it comes to stock investments.`\
-https://nytimes.com/2022/01/24/briefing/congress-stock-investments-profits.html?searchResultPosition=4
+https://nytimes.com/2022/01/24/briefing/congress-stock-investments-profits.html?searchResultPosition=5
 
 **NATO Steps Up Readiness in Eastern Europe**\
 `The alliance is sending more jets and ships to the region. The decision comes as Britain joined the U.S. in withdrawing the families of diplomats in Kyiv, moves that the Ukraine government called premature.`\
-https://nytimes.com/2022/01/24/world/europe/ukraine-nato-russia-embassies.html?searchResultPosition=5
+https://nytimes.com/2022/01/24/world/europe/ukraine-nato-russia-embassies.html?searchResultPosition=6
 
 **A Portrait of a Paralympian Who Died by Euthanasia**\
 `Belgium has some of the world’s most liberal euthanasia laws. A photojournalist documented one woman’s experience of them.`\
-https://nytimes.com/2022/01/24/podcasts/the-daily/marieke-vervoort-euthanasia.html?searchResultPosition=6
+https://nytimes.com/2022/01/24/podcasts/the-daily/marieke-vervoort-euthanasia.html?searchResultPosition=7
 
 **Julian Assange Can Appeal Decision to Extradite Him to U.S., U.K. Court Rules**\
 `The WikiLeaks founder has argued that American prison conditions would be harmful to his mental health. He faces a lengthy sentence if convicted on espionage charges.`\
-https://nytimes.com/2022/01/24/world/europe/julian-assange-extradition-appeal.html?searchResultPosition=7
+https://nytimes.com/2022/01/24/world/europe/julian-assange-extradition-appeal.html?searchResultPosition=8
 
 **How Much Do You Know About Saudi Arabia?**\
 `Can you find Saudi Arabia on a map? What else do you know about this Middle Eastern nation with a population of 35 million people?`\
-https://nytimes.com/interactive/2022/01/24/learning/SaudiArabia-Geography-Quiz.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/01/24/learning/SaudiArabia-Geography-Quiz.html?searchResultPosition=9
 
 **Experts Share Some Tips on How to Buy Vintage Jewelry**\
 `How do you go about buying online? Should a piece be signed? And what’s good value right now?`\
-https://nytimes.com/2022/01/24/fashion/jewelry-vintage-buying-tips.html?searchResultPosition=9
-
-**For Jewelry at Couture Week, Challenges Can Lead to Innovation**\
-`Creations from Boucheron, Cartier and others embrace noteworthy trends, including transformable designs and materials like titanium.`\
-https://nytimes.com/2022/01/24/fashion/jewelry-couture-boucheron-cartier-dior-paris.html?searchResultPosition=10
+https://nytimes.com/2022/01/24/fashion/jewelry-vintage-buying-tips.html?searchResultPosition=10
 
