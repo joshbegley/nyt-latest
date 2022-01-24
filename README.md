@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/23/world/africa/burkina-faso-military-takeover.html?
 https://nytimes.com/2022/01/24/books/newbery-last-cuentista-caldecott-watercress.html?searchResultPosition=2
 
 **Silvana Estrada Arrives With a Devastating Album About Heartbreak**\
-`The Mexican singer-songwriter’s debut solo album, “Marchita,” paints a tender portrait of lost love, putting her voice and cuatro guitar center stage.`\
+`The Mexican singer-songwriter’s debut solo album, “Marchita,” paints a tender portrait of lost love, putting her voice and her Venezuelan cuatro center stage.`\
 https://nytimes.com/2022/01/24/arts/music/silvana-estrada-marchita.html?searchResultPosition=3
 
 **Boris Johnson Says He Takes Islamophobia Claim ‘Very Seriously’**\
