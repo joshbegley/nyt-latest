@@ -18,8 +18,8 @@ https://nytimes.com/2022/01/24/dining/restaurant-review-taqueria-ramirez.html?se
 `Suadero, tripe and other taco fillings popular in Mexico City are the focus of a new restaurant in Greenpoint, Brooklyn.`\
 https://nytimes.com/slideshow/2022/01/24/dining/a-taco-shop-with-flavors-from-mexicos-capital.html?searchResultPosition=5
 
-**James Webb Telescope Arrives at Its Destination: How to Watch**\
-`The telescope is preparing to arrive at L2, a place that is gravitationally balanced between Earth and sun, where it will ultimately carry out its scientific mission.`\
+**After Million-Mile Journey, James Webb Telescope Reaches Destination**\
+`The telescope’s safe arrival is a relief to scientists who plan to spend the next 10 or more years using it to study ancient galaxies.`\
 https://nytimes.com/2022/01/24/science/james-webb-telescope-arrival.html?searchResultPosition=6
 
 **What is a stock market correction?**\
