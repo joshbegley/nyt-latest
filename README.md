@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/24/arts/steve-schapiro-dead.html?searchResultPositio
 
 **Coronavirus Briefing: Past the Peak**\
 `New data points are emerging that may offer hope to exhausted Americans.`\
-https://nytimes.com/2022/01/24/briefing/coronavirus-briefing-past-the-peak-omicron.html?searchResultPosition=5
+https://nytimes.com/2022/01/24/briefing/coronavirus-peak-omicron.html?searchResultPosition=5
 
 **Adams Announces Return of Controversial Anti-Crime Unit**\
 `Mayor Eric Adams of New York City announced an ambitious public safety plan that would bring back a revamped version of the police unit, which was disbanded in 2020 amid social justice protests.`\
