@@ -30,8 +30,8 @@ https://nytimes.com/2022/01/23/climate/led-light-bulbs-dollar-store.html?searchR
 `New York is far safer and stronger than in the ’70s. But after a flood of sad news, many people are struggling to find grounds for optimism.`\
 https://nytimes.com/2022/01/23/nyregion/new-york-mood-officers-shot.html?searchResultPosition=8
 
-**The Rams eke out the win after almost giving it away.**\
-`Los Angeles won on a field goal on the game’s final play.`\
+**Matthew Stafford, in a Reversal, Seals a Rams Win in the Final Minutes**\
+`Stafford’s interceptions have dogged him this season, but his decisive heave to Cooper Kupp late in the game helped set up the Rams’ win over the Buccaneers on Sunday.`\
 https://nytimes.com/2022/01/23/sports/football/rams-buccaneers-score.html?searchResultPosition=9
 
 **Biden Weighs Deploying Thousands of Troops to Eastern Europe and Baltics**\
