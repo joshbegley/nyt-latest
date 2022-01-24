@@ -10,7 +10,7 @@ https://nytimes.com/2022/01/24/dining/cooking-for-the-lunar-new-year.html?search
 `Derek Chauvin’s presence will be felt throughout the federal trial of the three officers who were with him when he murdered George Floyd.`\
 https://nytimes.com/2022/01/24/us/derek-chauvin-george-floyd-testify.html?searchResultPosition=3
 
-**Sarah Palin has Covid, delaying her libel case against The New York Times.**\
+**Sarah Palin tests positive for the virus, delaying her libel case against The New York Times.**\
 `Jed S. Rakoff, the judge in the trial, said he would await the results of another Covid test for Ms. Palin before deciding how long to postpone the trial.`\
 https://nytimes.com/2022/01/24/business/sarah-palin-covid.html?searchResultPosition=4
 
