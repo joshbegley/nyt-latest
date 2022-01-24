@@ -27,7 +27,7 @@ https://nytimes.com/2022/01/24/dining/cooking-for-the-lunar-new-year.html?search
 https://nytimes.com/2022/01/24/us/derek-chauvin-george-floyd-testify.html?searchResultPosition=7
 
 **Sarah Palin Tests Positive, Delaying Libel Case Against The Times**\
-`Jed S. Rakoff, the judge in the trial, said he would await the results of another Covid test for Ms. Palin before deciding how long to postpone the trial.`\
+`Jed S. Rakoff, the judge in the trial, said it would now begin on Feb. 3, following three positive test results for Ms. Palin.`\
 https://nytimes.com/2022/01/24/business/sarah-palin-covid.html?searchResultPosition=8
 
 **Omicron’s Radical Evolution**\
