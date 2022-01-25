@@ -1,6 +1,6 @@
 **Court Throws Out Alabama’s New Congressional Map**\
 `A federal panel of judges ordered state lawmakers to redraw the lines, saying Black voters “have less opportunity than other Alabamians” to elect candidates of their choice.`\
-https://nytimes.com/2022/01/24/us/politics/court-alabama-redistricting-map.html?searchResultPosition=1
+https://nytimes.com/2022/01/24/us/politics/alabama-congressional-map-redistricting.html?searchResultPosition=1
 
 **Passionate Learners**\
 `Ray Brunsberg and Ellen Brunsberg make their playful debut.`\
