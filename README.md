@@ -18,7 +18,7 @@ https://nytimes.com/2022/01/25/podcasts/the-daily/boris-johnson-downing-street-p
 `The rapper sued the YouTuber Tasha K in 2019 after she posted a series of videos claiming that Cardi B was a prostitute.`\
 https://nytimes.com/2022/01/25/arts/music/cardi-b-libel-lawsuit-tasha-k.html?searchResultPosition=5
 
-**Rafael Nadal Prevails After Five Sets and Charge of Favoritism**\
+**Rafael Nadal Prevails After Five Sets and a Charge of Favoritism**\
 `Nadal beat Denis Shapovalov to reach the semifinals, then rejected his opponent’s complaints about unfairness, saying, “I think he’s wrong.”`\
 https://nytimes.com/2022/01/25/sports/tennis/nadal-shapovalov-australian-open.html?searchResultPosition=6
 
