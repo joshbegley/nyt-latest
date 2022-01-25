@@ -1,6 +1,6 @@
 **War May Loom, but Are There Offramps?**\
 `Fears of a Russian invasion of Ukraine are growing, but diplomatic options remain.`\
-https://nytimes.com/2022/01/24/us/politics/us-russia-ukraine.html?searchResultPosition=1
+https://nytimes.com/2022/01/24/us/politics/us-russia-ukraine-war.html?searchResultPosition=1
 
 **Review: ‘Just for Us’ Reaches Across the Chasm**\
 `The return of this brisk, smart provocation of a monologue is a cheering development, all the more so because it’s a belly-laugh funny show.`\
