@@ -22,19 +22,19 @@ https://nytimes.com/2022/01/25/realestate/they-broke-up-with-two-architects-befo
 `“The house needed an architect who wasn’t so driven by ego,” said an owner of the 1975 Bay Area home, which was in need of an update.`\
 https://nytimes.com/slideshow/2022/01/25/realestate/a-bay-area-renovation-with-a-light-touch.html?searchResultPosition=6
 
+**C.I.A.-Backed Afghan Fighters Are Still Waiting to Reach U.S.**\
+`Commandos who played a key role in helping American forces are waiting for visas in the United Arab Emirates, and are among the last of the evacuated Afghans to get a chance to reach the United States.`\
+https://nytimes.com/2022/01/25/us/politics/cia-afghan-fighters-commandos.html?searchResultPosition=7
+
+**Mahershala Ali Finally Gets the Leading Role He Deserves**\
+`After a string of supporting performances, he steps into the spotlight as not one but two main characters in the sci-fi drama “Swan Song.”`\
+https://nytimes.com/2022/01/25/movies/mahershala-ali-swan-song.html?searchResultPosition=8
+
 **Fed’s Policy Pivot May Prove Late and Abrupt, Critics Fret**\
 `The Federal Reserve is still buying bonds as prices surge. Some praise the central bank’s continuing policy pivot; others ask if it was fast enough.`\
-https://nytimes.com/2022/01/25/business/economy/fed-economy.html?searchResultPosition=7
+https://nytimes.com/2022/01/25/business/economy/fed-economy.html?searchResultPosition=9
 
 **Portraits of Relief**\
 `Waves of borrowers in the federal Public Service Loan Forgiveness program are seeing their debts go to zero. Here’s how six of them finally got there.`\
-https://nytimes.com/2022/01/25/your-money/pslf-relief.html?searchResultPosition=8
-
-**C.I.A.-Backed Afghan Fighters Are Still Waiting to Reach U.S.**\
-`Commandos who played a key role in helping American forces are waiting for visas in the United Arab Emirates, and are among the last of the evacuated Afghans to get a chance to reach the United States.`\
-https://nytimes.com/2022/01/25/us/politics/cia-afghan-fighters-commandos.html?searchResultPosition=9
-
-**The Rise of the Crypto Mayors**\
-`This new political breed accepts paychecks in Bitcoin. The mayors also want to use buzzy new tech like NFTs to raise money for public projects.`\
-https://nytimes.com/2022/01/25/business/crypto-mayors.html?searchResultPosition=10
+https://nytimes.com/2022/01/25/your-money/pslf-relief.html?searchResultPosition=10
 
