@@ -31,7 +31,7 @@ https://nytimes.com/2022/01/25/arts/television/trevor-noah-robert-kennedy-jr.htm
 https://nytimes.com/2022/01/25/learning/word-of-the-day-kindle.html?searchResultPosition=8
 
 **Madison Keys Powers Her Way Into Australian Open Semifinals**\
-`The unseeded American upset No. 4 Barbora Krejcikova, 6-3, 6-2, to advance to the semifinals at the Grand Slam tournament for the first time since 2015.`\
+`The unseeded American upset No. 4 Barbora Krejcikova to advance to the semifinals, where she will face No. 1 Asheligh Barty.`\
 https://nytimes.com/2022/01/25/sports/tennis/madison-keys-australian-open.html?searchResultPosition=9
 
 **Corrections: Jan. 25, 2022**\
