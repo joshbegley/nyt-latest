@@ -10,7 +10,7 @@ https://nytimes.com/2022/01/25/briefing/covid-behavior-vaccinated-unvaccinated.h
 `Prime Minister Boris Johnson has come under fire over revelations that he and his staff attended parties while the country was in a coronavirus lockdown.`\
 https://nytimes.com/2022/01/25/world/europe/uk-boris-johnson-parties-police.html?searchResultPosition=3
 
-**Why Garden Parties May Be Boris Johnson’s Undoing**\
+**How Partying Could Be Boris Johnson’s Undoing**\
 `The British prime minister is engulfed in a scandal over parties held at his home and office during lockdown. Could this spell the end of his premiership?`\
 https://nytimes.com/2022/01/25/podcasts/the-daily/boris-johnson-downing-street-parties.html?searchResultPosition=4
 
