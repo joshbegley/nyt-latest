@@ -22,7 +22,7 @@ https://nytimes.com/2022/01/25/dining/sarah-palin-covid-restaurant.html?searchRe
 `The agreement would reinstate a benefit passed by the state in 2021 that expired at the end of September.`\
 https://nytimes.com/2022/01/25/us/politics/paid-sick-leave-ca-california.html?searchResultPosition=6
 
-**Stay Woke: The Right Can Be Illiberal, Too**\
+**Stay Woke. The Right Can Be Illiberal, Too.**\
 `Dis-enlightenment thinking isn’t exclusive to the left.`\
 https://nytimes.com/2022/01/25/opinion/woke-free-speech.html?searchResultPosition=7
 
