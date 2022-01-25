@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/25/opinion/letters/russia-ukraine.html?searchResultP
 https://nytimes.com/2022/01/25/arts/design/whitney-biennial.html?searchResultPosition=3
 
 **International Monetary Fund Lowers Global Economic Growth Forecast**\
-`The organization lowered its estimate for economic growth in 2022 to 4.4 percent from its earlier prediction of 4.9 percent. It warned that larger than expected slowdowns in the United States and China, the world’s two largest economies, could drag down global output.`\
+`The organization reduced its estimate for economic growth in 2022 to 4.4 percent from its earlier prediction of 4.9 percent. It warned that larger than expected slowdowns in the United States and China, the world’s two largest economies, could drag down global output.`\
 https://nytimes.com/video/business/100000008174700/world-economy-growth-2022.html?searchResultPosition=4
 
 **Recent Commercial Real Estate Transactions**\
