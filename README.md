@@ -2,7 +2,7 @@
 `In “God: An Anatomy,” Francesca Stavrakopoulou attempts to understand divinity as our ancestors did, as having a corporeal presence.`\
 https://nytimes.com/2022/01/25/books/review/god-francesca-stavrakopoulou.html?searchResultPosition=1
 
-**The South <em>Is</em> America. One Writer Sets Out to Explore It.**\
+**Searching for America, South of the Mason-Dixon**\
 `In “South to America: A Journey Below the Mason-Dixon to Understand the Soul of a Nation,” Imani Perry straddles genres to find her own — and our — South.`\
 https://nytimes.com/2022/01/25/books/review/south-to-america-imani-perry.html?searchResultPosition=2
 
