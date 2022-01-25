@@ -1,6 +1,6 @@
 **How Australia’s Leader Lost Control of His Chinese Social Media Account**\
 `A Chinese electronics company said it had bought the WeChat account legitimately, but some Australian officials said it was hijacked, and urged a boycott.`\
-https://nytimes.com/2022/01/24/world/australia/scott-morrison-wechat-account.html?searchResultPosition=1
+https://nytimes.com/2022/01/25/world/australia/scott-morrison-wechat-account.html?searchResultPosition=1
 
 **Caught on a Hot Mic: Biden Has Harsh Words for Peter Doocy of Fox News**\
 `The unscripted insult came from a president who is no stranger to having his words accidentally overheard.`\
