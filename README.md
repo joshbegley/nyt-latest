@@ -1,40 +1,40 @@
+**Where Is Germany in the Ukraine Standoff? Its Allies Wonder.**\
+`Germany’s allies have begun to question what price Berlin is prepared to pay to deter Russia, and even its reliability as an ally, as it wavers on tough measures.`\
+https://nytimes.com/2022/01/25/world/europe/germany-russia-nato-ukraine.html?searchResultPosition=1
+
+**Your Wednesday Briefing: Russia’s Military Drills**\
+`The Kremlin blamed the U.S. for ramping up tensions.`\
+https://nytimes.com/2022/01/25/briefing/russia-drills-omicron-europe-olympics.html?searchResultPosition=2
+
 **New York Restaurant Won’t Face City Scrutiny for Admitting Sarah Palin**\
 `Elio’s let the former Alaska governor eat indoors despite a city rule that it ask for proof she was vaccinated. She wasn’t.`\
-https://nytimes.com/2022/01/25/dining/sarah-palin-covid-restaurant.html?searchResultPosition=1
+https://nytimes.com/2022/01/25/dining/sarah-palin-covid-restaurant.html?searchResultPosition=3
 
 **California leaders agree to once again require extra paid sick leave.**\
 `The agreement would reinstate a benefit passed by the state in 2021 that expired at the end of September.`\
-https://nytimes.com/2022/01/25/us/politics/paid-sick-leave-ca-california.html?searchResultPosition=2
+https://nytimes.com/2022/01/25/us/politics/paid-sick-leave-ca-california.html?searchResultPosition=4
 
 **Stay Woke: The Right Can Be Illiberal, Too**\
 `Dis-enlightenment thinking isn’t exclusive to the left.`\
-https://nytimes.com/2022/01/25/opinion/woke-free-speech.html?searchResultPosition=3
+https://nytimes.com/2022/01/25/opinion/woke-free-speech.html?searchResultPosition=5
 
 **After a Mastectomy, Moving Between Gratitude and Grief**\
 `Getting diagnosed with a breast cancer gene mutation at 32 was a gift, but left room for disappointment too.`\
-https://nytimes.com/2022/01/25/well/mind/breast-cancer-mastectomy-recovery.html?searchResultPosition=4
+https://nytimes.com/2022/01/25/well/mind/breast-cancer-mastectomy-recovery.html?searchResultPosition=6
 
 **‘Compartment No. 6’ Review: Strangers on a Russian Train**\
 `A young Finnish woman embarks on a journey of self-discovery that takes her (and you) through richly detailed and surprising terrain.`\
-https://nytimes.com/2022/01/25/movies/compartment-no-6-review.html?searchResultPosition=5
+https://nytimes.com/2022/01/25/movies/compartment-no-6-review.html?searchResultPosition=7
 
 **Why Does Alcohol Mess With My Sleep?**\
 `Tips for getting a better night’s rest when your evening plans include drinking.`\
-https://nytimes.com/2022/01/25/well/mind/alcohol-drinking-sleep.html?searchResultPosition=6
+https://nytimes.com/2022/01/25/well/mind/alcohol-drinking-sleep.html?searchResultPosition=8
 
 **Tiny Love Stories: ‘An Invitation to His Bed’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2022/01/25/style/tiny-modern-love-stories-an-invitation-to-his-bed.html?searchResultPosition=7
+https://nytimes.com/2022/01/25/style/tiny-modern-love-stories-an-invitation-to-his-bed.html?searchResultPosition=9
 
 **We Count Our Blessings When Some of Them Go Missing**\
 `What losing my father taught me about the pandemic.`\
-https://nytimes.com/2022/01/25/opinion/pandemic-grief-loss.html?searchResultPosition=8
-
-**Worried About the Health of Cinema? Sundance Has Good News for You.**\
-`From surprising found-footage documentaries to “Get Out”-influenced dramas and that Lena Dunham title, this year’s virtual festival has a lot to like.`\
-https://nytimes.com/2022/01/25/movies/sundance-film-festival-2022-lena-dunham.html?searchResultPosition=9
-
-**A fashion brand is fined for suppressing negative reviews, putting retailers on alert.**\
-`Fashion Nova held lower-starred reviews for approval before they could be posted, the F.T.C. said in a complaint.`\
-https://nytimes.com/2022/01/25/business/fashion-nova-reviews.html?searchResultPosition=10
+https://nytimes.com/2022/01/25/opinion/pandemic-grief-loss.html?searchResultPosition=10
 
