@@ -2,7 +2,7 @@
 `While leprosy is now easily treated, those who have the disease are still often ostracized. But they’re always welcome at this refuge in India, a nation that records over half the world’s cases.`\
 https://nytimes.com/2022/01/25/world/asia/india-leprosy-treatment-sivananda.html?searchResultPosition=1
 
-**A Covid-19 outbreak is reported aboard an aid ship bound for Tonga.**\
+**A coronavirus outbreak is reported aboard an aid ship bound for Tonga.**\
 `Twenty-three people aboard the Australian ship have tested positive for the virus, prompting concerns that it could spread to Tonga. The volcano-stricken island has reported only one case during the pandemic.`\
 https://nytimes.com/2022/01/25/world/asia/tonga-aid-ship-covid.html?searchResultPosition=2
 
