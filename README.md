@@ -6,13 +6,13 @@ https://nytimes.com/2022/01/25/world/europe/uk-boris-johnson-sue-gray-report.htm
 `The physical toll on Mayfield, Ky., is evident. The psychological anguish will be equally difficult to overcome.`\
 https://nytimes.com/2022/01/25/us/tornadoes-kentucky.html?searchResultPosition=2
 
+**Breezy Johnson, U.S. Medal Hopeful in Downhill, Will Miss Olympics**\
+`Johnson has crashed in training twice this month, leaving her with a battered knee. Her withdrawal means the field is wide open for the women’s downhill on Feb. 15.`\
+https://nytimes.com/2022/01/25/sports/olympics/breezy-johnson-olympics-downhill-injury.html?searchResultPosition=3
+
 **For Ukrainian Soldiers, a Nervous Guessing Game on the Front**\
 `Given Russia’s penchant for misdirection, it’s unclear how a military incursion would start. And that keeps the Ukrainian troops on edge.`\
-https://nytimes.com/2022/01/25/world/europe/ukraine-russia-frontline.html?searchResultPosition=3
-
-**An American Medal Hopeful in the Downhill Will Miss the Olympics**\
-`Breezy Johnson has crashed in training twice this month, leaving her with a battered knee. Her withdrawal means the field is wide open for the women’s downhill on Feb. 15.`\
-https://nytimes.com/2022/01/25/sports/olympics/breezy-johnson-olympics-downhill-injury.html?searchResultPosition=4
+https://nytimes.com/2022/01/25/world/europe/ukraine-russia-frontline.html?searchResultPosition=4
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
