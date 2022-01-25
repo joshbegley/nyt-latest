@@ -1,4 +1,4 @@
-**‘We Are Going to Turn Our Pain Into Purpose.’**\
+**‘We Are Going to Turn Our Pain Into Purpose’**\
 `Mayor Eric Adams’s ambitious gun safety plan includes reviving a controversial police unit his predecessor disbanded.`\
 https://nytimes.com/2022/01/25/nyregion/we-are-going-to-turn-our-pain-into-purpose.html?searchResultPosition=1
 
