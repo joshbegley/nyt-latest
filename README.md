@@ -2,7 +2,7 @@
 `The company, the world’s largest maker of wind turbines, said pandemic delays in China and the rising cost of steel were hindering earnings.`\
 https://nytimes.com/2022/01/26/business/vestas-annual-earnings-2021.html?searchResultPosition=1
 
-**Kurdish-led Militia in Syria Says It Has Retaken Prison Stormed by ISIS**\
+**Kurdish-Led Militia in Syria Says It Has Retaken Prison From ISIS**\
 `The Syrian Democratic Forces said they had regained control of a prison in the northeastern Syrian city of Hasaka days after it was attacked by Islamic State fighters.`\
 https://nytimes.com/2022/01/26/world/middleeast/syria-prison-isis-hostages.html?searchResultPosition=2
 
