@@ -26,15 +26,15 @@ https://nytimes.com/2022/01/26/arts/music/anais-mitchell.html?searchResultPositi
 `The four-year air pollution study, which followed 68.5 million older Americans, was the first of its kind.`\
 https://nytimes.com/2022/01/26/climate/air-pollution-study-epa.html?searchResultPosition=7
 
+**Living In ... Robbinsville, N.J.**\
+`The Mercer County township in the middle of the state is growing rapidly, but there’s still plenty of green space.`\
+https://nytimes.com/slideshow/2022/01/26/realestate/living-in-robbinsville-nj.html?searchResultPosition=8
+
 **Oura Ring 3 Review: A Missed Opportunity for Wearable Tech**\
 `At a time when we are concerned about health, the smart ring, which can track sleep and body temperature, is too flawed to recommend.`\
-https://nytimes.com/2022/01/26/technology/personaltech/oura-ring-3-review.html?searchResultPosition=8
+https://nytimes.com/2022/01/26/technology/personaltech/oura-ring-3-review.html?searchResultPosition=9
 
 **In California, a New Fight to Stop Building in the Path of Fire**\
 `A proposed luxury development in hills already scarred by wildfire is raising questions about the continued push to build in areas at highest risk.`\
-https://nytimes.com/2022/01/26/us/wildfire-development-california-legal.html?searchResultPosition=9
-
-**Can Hugo Boss Actually Be Cool?**\
-`The brand built by selling Wall Street suits is trying to reinvent itself for the post-office age.`\
-https://nytimes.com/2022/01/26/style/hugo-boss-rebrand.html?searchResultPosition=10
+https://nytimes.com/2022/01/26/us/wildfire-development-california-legal.html?searchResultPosition=10
 
